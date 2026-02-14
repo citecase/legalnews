@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-14T05:41:41+00:00*
+*Last Updated: 2026-02-14T06:32:51+00:00*
 
 ---
 
-### 2026-02-14T05:41:41+00:00
-2026 LiveLaw (SC) 155 | M/s Everest Automobiles v. M/s Rajit Enterprises
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-155-ms-everest-automobiles-v-ms-rajit-enterprises-523141
-
-[Read on Telegram](https://t.me/livelawindia/105113)
-
----
-### 2026-02-14T06:00:21+00:00
-Complete Supreme Court Annual Digest 2025 [Part-II]
-https://www.livelaw.in/supreme-court/complete-supreme-court-annual-digest-2025-523143
-
-[Read on Telegram](https://t.me/livelawindia/105114)
-
----
-### 2026-02-14T06:02:31+00:00
-Motor Accident | Car Owner Can Lead Independent Evidence On Issue Of Negligence Despite Driver's Plea Of Guilt: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-motor-accidents-guilt-criminal-case-523131
-
-[Read on Telegram](https://t.me/livelawindia/105115)
-
----
-### 2026-02-14T06:03:01+00:00
-Is Man Liable Under S.498A IPC For Cruelty To Live-In Partner? Supreme Court To Examine
-https://www.livelaw.in/top-stories/supreme-court-to-examine-if-section-498a-ipc-applies-in-live-in-relationships-523144
-
-[Read on Telegram](https://t.me/livelawindia/105116)
-
----
 ### 2026-02-14T06:32:51+00:00
 The Silent Capture Of Generic Terms
 https://www.livelaw.in/articles/generic-terms-trademark-523123
@@ -142,5 +114,33 @@ Madras High Court Monthly Digest: January 2026 [Citation 1 to 51]
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-monthly-digest-january-2026-522363
 
 [Read on Telegram](https://t.me/livelawindia/105132)
+
+---
+### 2026-02-14T14:33:02+00:00
+Law Without Remedy: Unpaid Salaries In India's Online Work Economy
+https://www.livelaw.in/articles/unpaid-salaries-online-work-economy-523136
+
+[Read on Telegram](https://t.me/livelawindia/105133)
+
+---
+### 2026-02-14T14:55:42+00:00
+U.P. State Legal Services Authority Launches Nyaya Rath Mobile Legal Aid Vehicles Across 74 Districts
+https://www.livelaw.in/news-updates/up-state-legal-services-authority-launches-nyaya-rath-mobile-legal-aid-vehicles-across-74-districts-523188
+
+[Read on Telegram](https://t.me/livelawindia/105134)
+
+---
+### 2026-02-14T17:03:03+00:00
+IIT Kharagpur Announces Annual Public Policy Conference; Abstract Submission Closes On Feb 20
+https://www.livelaw.in/lawschool/news/iit-kharagpur-announces-annual-public-policy-conference-abstract-submission-closes-feb-20-523190
+
+[Read on Telegram](https://t.me/livelawindia/105135)
+
+---
+### 2026-02-14T17:18:13+00:00
+NLU Odisha Announces Alternate Movie Ending Competition On Andhadhun; Entries Open Till March 7
+https://www.livelaw.in/lawschool/competitions/nlu-odisha-announces-alternate-movie-ending-competition-on-andhadhun-entries-open-till-march-7-523191
+
+[Read on Telegram](https://t.me/livelawindia/105136)
 
 ---
