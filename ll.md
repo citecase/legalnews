@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-14T05:03:19+00:00*
+*Last Updated: 2026-02-14T05:41:41+00:00*
 
 ---
 
-### 2026-02-14T05:03:19+00:00
-Para Legal Worker/ Lawyer And Case Worker Vacancy At Sakhi One Stop Centre, District Dantewada, Chhattisgarh
-https://www.livelaw.in/job-updates/para-legal-worker-lawyer-and-case-worker-vacancy-at-sakhi-one-stop-centre-district-dantewada-chhattisgarh-523134
-
-[Read on Telegram](https://t.me/livelawindia/105108)
-
----
-### 2026-02-14T05:04:39+00:00
-General Manager (AHL) Vacancy At Uttar Pradesh Medical Supplies Corporation Limited
-https://www.livelaw.in/job-updates/general-manager-ahl-vacancy-at-uttar-pradesh-medical-supplies-corporation-limited-523135
-
-[Read on Telegram](https://t.me/livelawindia/105109)
-
----
-### 2026-02-14T05:32:41+00:00
-Ancestral Property, Right Of Birth Wholly Foreign To Muslim Law: Gujarat High Court Rejects Woman's Plea For Share In Father's Estate
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-ancestral-property-temporary-injunction-muslim-woman-property-suit-523128
-
-[Read on Telegram](https://t.me/livelawindia/105110)
-
----
-### 2026-02-14T05:36:01+00:00
-Supreme Court Doubts Judgment Allowing Cheque Case Complainant To File Appeal As 'Victim' u/s 372 CrPC; Refers To Larger Bench
-https://www.livelaw.in/supreme-court/supreme-court-doubts-judgment-on-cheque-case-complainants-appeal-us-372-crpc-523139
-
-[Read on Telegram](https://t.me/livelawindia/105111)
-
----
-### 2026-02-14T05:37:01+00:00
-Assistant Manager (Corporate Legal) Vacancy At Tata Communications Limited [Apply Now]
-https://www.livelaw.in/job-updates/assistant-manager-corporate-legal-vacancy-at-tata-communications-limited-523140
-
-[Read on Telegram](https://t.me/livelawindia/105112)
-
----
 ### 2026-02-14T05:41:41+00:00
 2026 LiveLaw (SC) 155 | M/s Everest Automobiles v. M/s Rajit Enterprises
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-155-ms-everest-automobiles-v-ms-rajit-enterprises-523141
@@ -142,5 +107,40 @@ Supreme Court Allows High Courts To Hear Consumer Appeals In States Where State 
 https://www.livelaw.in/top-stories/supreme-court-allows-high-courts-to-hear-consumer-appeals-in-states-where-state-commission-not-formed-523159
 
 [Read on Telegram](https://t.me/livelawindia/105127)
+
+---
+### 2026-02-14T09:26:49+00:00
+Absconding Accused Not Entitled To Anticipatory Bail On Sole Ground Of Co-Accused' Acquittal : Supreme Court
+https://www.livelaw.in/supreme-court/absconding-accused-not-entitled-to-anticipatory-bail-on-sole-ground-of-co-accused-acquittal-supreme-court-523164
+
+[Read on Telegram](https://t.me/livelawindia/105128)
+
+---
+### 2026-02-14T09:29:09+00:00
+2026 LiveLaw (SC) 158 | BALMUKUND SINGH GAUTAM VERSUS STATE OF MADHYA PRADESH AND ANR.
+https://www.livelaw.in/supreme-court/2026-livelaw-sc-158-balmukund-singh-gautam-versus-state-of-madhya-pradesh-and-anr-523165
+
+[Read on Telegram](https://t.me/livelawindia/105129)
+
+---
+### 2026-02-14T09:44:29+00:00
+Supreme Court To Hear Pleas Seeking FIR Against Assam CM Himanta Biswa Sarma On Feb 16
+https://www.livelaw.in/top-stories/supreme-court-to-hear-pleas-seeking-fir-against-assam-cm-himanta-biswa-sarma-on-feb-16-523167
+
+[Read on Telegram](https://t.me/livelawindia/105130)
+
+---
+### 2026-02-14T10:32:19+00:00
+Public Exhibition Of Accused And Presumption Of Innocence
+https://www.livelaw.in/articles/accused-public-exhibition-innocence-presumption-523133
+
+[Read on Telegram](https://t.me/livelawindia/105131)
+
+---
+### 2026-02-14T10:32:29+00:00
+Madras High Court Monthly Digest: January 2026 [Citation 1 to 51]
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-monthly-digest-january-2026-522363
+
+[Read on Telegram](https://t.me/livelawindia/105132)
 
 ---
