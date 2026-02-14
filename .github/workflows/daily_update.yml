@@ -1,0 +1,28 @@
+name: Daily LiveLaw Update
+
+on:
+  schedule:
+    # This runs every day at 00:00 UTC
+    - cron: '0 0 * * *'
+  workflow_dispatch: # Allows you to run it manually for testing
+
+jobs:
+  build:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Checkout code
+        uses: actions/checkout@v4
+
+      - name: Set up Python
+        uses: actions/setup-python@v4
+        with:
+          python-version: '3.9'
+
+      - name: Install dependencies
+        run: pip install PyGithub
+
+      - name: Run update script
+        env:
+          # Use the built-in secret (no setup required for public repos)
+          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+        run: python update_news.py
