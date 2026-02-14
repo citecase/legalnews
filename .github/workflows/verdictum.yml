@@ -1,0 +1,42 @@
+name: Verdictum Auto-Update
+
+on:
+  schedule:
+    - cron: '30 */6 * * *'
+  workflow_dispatch:
+
+jobs:
+  update-verdictum:
+    runs-on: ubuntu-latest
+    permissions:
+      contents: write
+
+    steps:
+      - name: Checkout Repository
+        uses: actions/checkout@v4
+
+      - name: Setup Python
+        uses: actions/setup-python@v5
+        with:
+          python-version: '3.10'
+
+      - name: Install Dependencies
+        run: pip install requests beautifulsoup4
+
+      - name: Run Verdictum Scraper
+        run: python verdictum_scraper.py
+
+      - name: Commit and Push
+        run: |
+          git config --local user.email "github-actions[bot]@users.noreply.github.com"
+          git config --local user.name "github-actions[bot]"
+          
+          # Stage both JSON and MD
+          git add v.json v.md
+          
+          if git diff --quiet && git diff --staged --quiet; then
+            echo "No changes."
+          else
+            git commit -m "Update v.json and v.md"
+            git push
+          fi
