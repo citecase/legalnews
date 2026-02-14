@@ -27,12 +27,23 @@ def scrape_verdictum():
     with open('v.json', 'w', encoding='utf-8') as f:
         json.dump(updates, f, ensure_ascii=False, indent=4)
     
-    # 2. Save to v.md (Newest Updates at the top)
+    # 2. Save to v.md (using triple quotes to prevent SyntaxErrors)
     with open('v.md', 'w', encoding='utf-8') as f:
         f.write("# Verdictum Legal Updates\n\n")
-        f.write(f"*Last Updated: {updates[-1]['date'] if updates else 'N/A'}*\n\n---\n\n")
+        last_date = updates[-1]['date'] if updates else 'N/A'
+        f.write(f"*Last Updated: {last_date}*\n\n---\n\n")
         
         for up in reversed(updates):
-            f.write(f"### {up['date']}\n")
-            f.write(f"{up['text']}\n\n")
-            f.write(f"[Source
+            # Using triple quotes (""") allows multi-line f-strings safely
+            content = f"""### {up['date']}
+{up['text']}
+
+[Source Link]({up['url']})
+
+---
+
+"""
+            f.write(content)
+
+if __name__ == "__main__":
+    scrape_verdictum()
