@@ -1,36 +1,53 @@
-name: Update LiveLaw JSON
+name: LiveLaw Auto-Update
 
 on:
   schedule:
-    - cron: '0 */6 * * *' # Runs every 6 hours
-  workflow_dispatch: # Allows manual run from the Actions tab
+    # Runs every 6 hours (UTC). Adjust the cron as needed.
+    - cron: '0 */6 * * *'
+  workflow_dispatch: # Allows you to trigger it manually from the "Actions" tab
+
+# Prevent multiple runs from overlapping if one is delayed
+concurrency:
+  group: ${{ github.workflow }}-${{ github.ref }}
+  cancel-in-progress: true
 
 jobs:
-  build:
+  scrape-and-update:
     runs-on: ubuntu-latest
     permissions:
-      contents: write # Important for pushing changes
+      contents: write # Required to push changes back to the repo
 
     steps:
-      - name: Checkout repository
+      - name: Checkout Repository
         uses: actions/checkout@v4
 
       - name: Set up Python
-        uses: actions/setup-python@v4
+        uses: actions/setup-python@v5
         with:
-          python-version: '3.9'
+          python-version: '3.10'
+          cache: 'pip' # Speeds up subsequent runs
 
-      - name: Install dependencies
+      - name: Install Dependencies
         run: |
+          python -m pip install --upgrade pip
           pip install requests beautifulsoup4
 
-      - name: Run scraper
+      - name: Run LiveLaw Scraper
         run: python scraper.py
 
-      - name: Commit and push if changed
+      - name: Commit and Push Changes
         run: |
+          # Configure Git with the GitHub Actions Bot identity
           git config --local user.email "github-actions[bot]@users.noreply.github.com"
           git config --local user.name "github-actions[bot]"
-          git add ll.json
-          git diff-index --quiet HEAD || git commit -m "Update ll.json with latest Telegram posts"
-          git push
+          
+          # Stage both the JSON and Markdown files
+          git add ll.json ll.md
+          
+          # Only commit and push if there are actual changes (prevents empty commits)
+          if git diff --quiet && git diff --staged --quiet; then
+            echo "No changes detected. Skipping push."
+          else
+            git commit -m "Update LiveLaw data: $(date -u +'%Y-%m-%d %H:%M:%S') UTC"
+            git push
+          fi
