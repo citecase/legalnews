@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-14T13:02:24+00:00*
+*Last Updated: 2026-02-14T15:02:28+00:00*
+
+---
+
+### 2026-02-14T15:02:28+00:00
+Legal Assistant Vacancy At National Book Trust
+https://www.verdictum.in/job-updates/national-book-trust-1607520
+
+[Source Link](https://t.me/verdictumlegalupdates/25408)
+
+---
+
+### 2026-02-14T14:13:06+00:00
+24x7 Police Beat, Drug Control Measures At NLU Odisha: Orissa High Court Directs Enhanced Campus Security
+https://www.verdictum.in/court-updates/high-courts/orissa-high-court/roshan-kumar-pradhan-v-state-of-odisha-nlu-odisha-security-guidelines-1607519
+
+[Source Link](https://t.me/verdictumlegalupdates/25407)
+
+---
+
+### 2026-02-14T13:32:45+00:00
+Car Owner’s Request To Adduce Independent Evidence Can’t Be Declined By MACT Merely Because Driver Pleaded Guilty: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/menon-ps-v-the-registrar-general-2026ker12467-car-owner-request-independent-evidence-motor-accident-tribunal-1607518
+
+[Source Link](https://t.me/verdictumlegalupdates/25406)
 
 ---
 
@@ -137,30 +161,6 @@ https://www.verdictum.in/court-updates/supreme-court/2026-insc-153-state-bank-of
 https://www.verdictum.in/court-updates/high-courts/delhi-high-court/2026dhc839db-delhi-medical-technical-employees-association-v-union-of-india-1607441
 
 [Source Link](https://t.me/verdictumlegalupdates/25389)
-
----
-
-### 2026-02-13T14:03:11+00:00
-Repeatedly Making Scandalous Allegations Interferes With Course Of Judicial Proceedings: Madras High Court Holds Man In Contempt For Saying Judge Committed Genocide
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/high-court-of-madras-v-tashok-surana-scandalous-allegations-judicial-proceedings-contempt-saying-judge-committed-genocide-1607439
-
-[Source Link](https://t.me/verdictumlegalupdates/25388)
-
----
-
-### 2026-02-13T13:32:30+00:00
-Without Clear Identity, Criminal Law Would Be of No Use: Delhi High Court Acquits Man Over Doubtful Identification
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/feroz-ahmad-v-state-of-nct-of-delhi-2026dhc1084-robbery-ghost-identification-criminal-1607438
-
-[Source Link](https://t.me/verdictumlegalupdates/25387)
-
----
-
-### 2026-02-13T13:02:49+00:00
-Doctrine of Lis Pendens U/S. 52 Transfer Of Property Act Doesn’t Exclude Suits For Recovery Of Money: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/r-savithri-naidu-v-ms-the-cotton-corporation-of-india-limited-2026-insc-150-transferee-pendente-lite-post-arbitral-award-purchaser-execution-1607437
-
-[Source Link](https://t.me/verdictumlegalupdates/25386)
 
 ---
 
