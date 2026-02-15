@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-14T09:29:09+00:00*
+*Last Updated: 2026-02-14T14:33:02+00:00*
 
 ---
 
-### 2026-02-14T09:29:09+00:00
-2026 LiveLaw (SC) 158 | BALMUKUND SINGH GAUTAM VERSUS STATE OF MADHYA PRADESH AND ANR.
-https://www.livelaw.in/supreme-court/2026-livelaw-sc-158-balmukund-singh-gautam-versus-state-of-madhya-pradesh-and-anr-523165
-
-[Read on Telegram](https://t.me/livelawindia/105129)
-
----
-### 2026-02-14T09:44:29+00:00
-Supreme Court To Hear Pleas Seeking FIR Against Assam CM Himanta Biswa Sarma On Feb 16
-https://www.livelaw.in/top-stories/supreme-court-to-hear-pleas-seeking-fir-against-assam-cm-himanta-biswa-sarma-on-feb-16-523167
-
-[Read on Telegram](https://t.me/livelawindia/105130)
-
----
-### 2026-02-14T10:32:19+00:00
-Public Exhibition Of Accused And Presumption Of Innocence
-https://www.livelaw.in/articles/accused-public-exhibition-innocence-presumption-523133
-
-[Read on Telegram](https://t.me/livelawindia/105131)
-
----
-### 2026-02-14T10:32:29+00:00
-Madras High Court Monthly Digest: January 2026 [Citation 1 to 51]
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-monthly-digest-january-2026-522363
-
-[Read on Telegram](https://t.me/livelawindia/105132)
-
----
 ### 2026-02-14T14:33:02+00:00
 Law Without Remedy: Unpaid Salaries In India's Online Work Economy
 https://www.livelaw.in/articles/unpaid-salaries-online-work-economy-523136
@@ -143,5 +115,33 @@ Litigation, Success And Money
 https://www.livelaw.in/articles/litigation-lawyer-523204
 
 [Read on Telegram](https://t.me/livelawindia/105148)
+
+---
+### 2026-02-15T13:32:01+00:00
+Allahabad High Court Weekly Round-Up: February 9 To February 15, 2026
+https://www.livelaw.in/round-ups/weekly/allahabad-high-court-weekly-roundup-february-9-february-15-2026-523206
+
+[Read on Telegram](https://t.me/livelawindia/105149)
+
+---
+### 2026-02-15T14:36:51+00:00
+Allahabad High Court Objects To CGST Dept Citing SC Judges' Names In Affidavit; Grants Bail To Chinese Woman In Tax Evasion Case
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-bail-chinese-national-gst-evasion-warning-citing-supreme-court-judges-names-523212
+
+[Read on Telegram](https://t.me/livelawindia/105150)
+
+---
+### 2026-02-15T15:34:01+00:00
+Allahabad High Court Refers Advocate For Criminal Contempt Who Accused Judge Of 'Working Under Govt Pressure'
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-advocate-criminal-contempt-government-pressure-remark-agaisnt-judge-523213
+
+[Read on Telegram](https://t.me/livelawindia/105151)
+
+---
+### 2026-02-15T16:09:22+00:00
+Supreme Court Allows Three NGT Judicial Members To Continue Beyond Retirement Till Next Appointments
+https://www.livelaw.in/top-stories/supreme-court-allows-three-ngt-judicial-members-to-continue-beyond-retirement-till-next-appointments-523214
+
+[Read on Telegram](https://t.me/livelawindia/105152)
 
 ---
