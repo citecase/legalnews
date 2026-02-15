@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-15T06:02:19+00:00*
+*Last Updated: 2026-02-15T12:02:45+00:00*
+
+---
+
+### 2026-02-15T12:02:45+00:00
+Magistrate Not Always Bound To Order FIR U/S 175(3) BNSS; Same Principles As S.156(3) CrPC Apply: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/pradeep-kumar-v-state-of-up-2026ahc31226-magistrate-fir-1563-crpc-bnss-1607559
+
+[Source Link](https://t.me/verdictumlegalupdates/25414)
+
+---
+
+### 2026-02-15T10:32:44+00:00
+Negative Viscera Report Not Automatically Fatal To Case: Madras High Court Upholds Conviction Of Parents For Poisoning Mentally Disordered Child
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/s-muneeswaran-anr-v-state-represented-by-inspector-of-police-malli-police-station-1607558
+
+[Source Link](https://t.me/verdictumlegalupdates/25413)
+
+---
+
+### 2026-02-15T09:02:42+00:00
+Mere Omission In FIS To Mention Caste Abuse Not Ground For Discharge When Allegation Appears In Subsequent Statements: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/rakesh-anr-v-state-of-kerala-ors-2026ker8061-scst-act-allegation-1607557
+
+[Source Link](https://t.me/verdictumlegalupdates/25412)
+
+---
+
+### 2026-02-15T07:32:41+00:00
+Financial Emergency No Ground To Force Employee To Continue; Refusal To Accept Resignation May Amount To ‘Bonded Labour’ Under Article 23: Kerala HC
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/greevas-job-panakkal-v-traco-cable-company-limited-2026ker12335-resignation-employee-employer-refusal-1607556
+
+[Source Link](https://t.me/verdictumlegalupdates/25411)
 
 ---
 
@@ -129,38 +161,6 @@ Same Child Survivor in Two Separate Incidents: Madras High Court Upholds Convict
 https://www.verdictum.in/court-updates/high-courts/madras-high-court/bhagavathiraj-v-state-crlamdno120-of-2025-pocso-accused-joint-trial-1607477
 
 [Source Link](https://t.me/verdictumlegalupdates/25395)
-
----
-
-### 2026-02-14T05:12:19+00:00
-Places Of Worship Act Does Not Give Protection To Structures Put Up On Government Land By Encroachment: Madras High Court
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/nkumar-v-the-district-collector-no-provision-places-of-worship-act-protection-land-encroachmen-1607474
-
-[Source Link](https://t.me/verdictumlegalupdates/25394)
-
----
-
-### 2026-02-14T04:33:27+00:00
-Kerala High Court: Only Role In Crime & Grounds Of Arrest To Be Communicated To Accused From Whom No Seizure Is Made, Not Contraband Quantity
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/imran-hamsath-ikthiyar-irshad-v-state-of-kerala-2026ker10993-role-crime-grounds-of-arrest-seizure-contraband-1607442
-
-[Source Link](https://t.me/verdictumlegalupdates/25393)
-
----
-
-### 2026-02-13T16:02:27+00:00
-Young Professional Vacancy At Income Tax Department, Bihar & Jharkhand
-https://www.verdictum.in/job-updates/income-tax-department-1607440
-
-[Source Link](https://t.me/verdictumlegalupdates/25392)
-
----
-
-### 2026-02-13T15:32:05+00:00
-District Cricket Associations Not Required To Replicate BCCI Constitution; Judicial Review Cannot Enforce Such Reform: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/the-tiruchirappalli-district-cricket-association-v-anna-nagar-cricket-club-anr-2026-insc-154-1607446
-
-[Source Link](https://t.me/verdictumlegalupdates/25391)
 
 ---
 
