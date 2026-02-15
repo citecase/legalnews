@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-14T15:02:28+00:00*
+*Last Updated: 2026-02-15T06:02:19+00:00*
+
+---
+
+### 2026-02-15T06:02:19+00:00
+Delhi High Court Flags Serious Concern Over Inordinate Pendency Of Bail Applications Before Sessions & High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/amir-v-state-nct-of-delhi-2026dhc1202-bail-inordinate-delay-serious-concern-1607524
+
+[Source Link](https://t.me/verdictumlegalupdates/25410)
+
+---
+
+### 2026-02-15T04:32:48+00:00
+Second Wife Not Entitled To Family Pension If Marriage Solemnised During First Wife’s Lifetime: Madras High Court
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/the-accountant-general-v-mradhakrishnan-2026mhc388-second-wife-pension-1607521
+
+[Source Link](https://t.me/verdictumlegalupdates/25409)
 
 ---
 
@@ -145,22 +161,6 @@ District Cricket Associations Not Required To Replicate BCCI Constitution; Judic
 https://www.verdictum.in/court-updates/supreme-court/the-tiruchirappalli-district-cricket-association-v-anna-nagar-cricket-club-anr-2026-insc-154-1607446
 
 [Source Link](https://t.me/verdictumlegalupdates/25391)
-
----
-
-### 2026-02-13T15:02:24+00:00
-Where Both Enactments Have Non-Obstante Clause, Then One Has To See Dominant Purpose For Which Special Act Was Made: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/2026-insc-153-state-bank-of-india-v-union-of-india-1607445
-
-[Source Link](https://t.me/verdictumlegalupdates/25390)
-
----
-
-### 2026-02-13T14:32:23+00:00
-‘Wholesale Identity’ With Compared Cadre Necessary To Claim Equal Pay For Equal Work, Similarity In Designation Insufficient: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/2026dhc839db-delhi-medical-technical-employees-association-v-union-of-india-1607441
-
-[Source Link](https://t.me/verdictumlegalupdates/25389)
 
 ---
 
