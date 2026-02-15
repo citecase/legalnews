@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-14T06:32:51+00:00*
+*Last Updated: 2026-02-14T07:33:02+00:00*
 
 ---
 
-### 2026-02-14T06:32:51+00:00
-The Silent Capture Of Generic Terms
-https://www.livelaw.in/articles/generic-terms-trademark-523123
-
-[Read on Telegram](https://t.me/livelawindia/105117)
-
----
-### 2026-02-14T06:33:01+00:00
-Teachers Shape Future Of Citizenry, Merit Can't Be Defeated By Lower Preference Exercised In Application Form: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-ruling-teachers-share-citizenry-dilution-quality-selection-less-meritorious-faculty-interest-of-society-523137
-
-[Read on Telegram](https://t.me/livelawindia/105118)
-
----
-### 2026-02-14T06:33:51+00:00
-Bank's Internal Classification Of Debt As NPA Won't Determine Limitation Under IBC: Supreme Court
-https://www.livelaw.in/supreme-court/banks-internal-classification-of-debt-as-npa-wont-determine-limitation-under-ibc-supreme-court-523146
-
-[Read on Telegram](https://t.me/livelawindia/105119)
-
----
-### 2026-02-14T06:34:51+00:00
-2026 LiveLaw (SC) 156 | B Prashanth Hegde v. State Bank of India and Anr
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-156-b-prashanth-hegde-v-state-bank-of-india-and-anr-523147
-
-[Read on Telegram](https://t.me/livelawindia/105120)
-
----
-### 2026-02-14T07:20:42+00:00
-NMIMS Hyderabad Launches 'Kaunyak 2026' With Moot Court, Mock Trial, Debate & IP Quiz
-https://www.livelaw.in/lawschool/news/nmims-hyderabad-launches-kaunyak-2026-moot-court-mock-trial-debate-ip-quiz-523154
-
-[Read on Telegram](https://t.me/livelawindia/105121)
-
----
-### 2026-02-14T07:22:42+00:00
-Madras High Court Calls For Inquiry On Claim That Senior Advocate Took Rs 50 Lakh From Client On Pretext Of Bribing Judge
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-order-inquiry-on-allegation-that-senior-advocate-took-rs-50-lakh-from-client-in-the-name-of-bribing-judge-523155
-
-[Read on Telegram](https://t.me/livelawindia/105122)
-
----
 ### 2026-02-14T07:33:02+00:00
 BDS Degree Not Equivalent To 'Degree In Medicine' For Food Safety Officer Post: Rajasthan High Court
 https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-eligibility-equivalence-dental-bachelors-medicine-degree-523149
@@ -142,5 +100,47 @@ NLU Odisha Announces Alternate Movie Ending Competition On Andhadhun; Entries Op
 https://www.livelaw.in/lawschool/competitions/nlu-odisha-announces-alternate-movie-ending-competition-on-andhadhun-entries-open-till-march-7-523191
 
 [Read on Telegram](https://t.me/livelawindia/105136)
+
+---
+### 2026-02-15T03:31:00+00:00
+Complete Supreme Court Annual Digest 2025 [Part-III]
+https://www.livelaw.in/supreme-court/complete-supreme-court-annual-digest-2025-523195
+
+[Read on Telegram](https://t.me/livelawindia/105137)
+
+---
+### 2026-02-15T04:21:20+00:00
+Allahabad High Court 'Shocked' As Top Govt Medical College Turns Away Poisoning Victim Citing 'No Bed', Leading To Death
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-shocked-kgmu-medical-college-poisoning-victim-death-523196
+
+[Read on Telegram](https://t.me/livelawindia/105138)
+
+---
+### 2026-02-15T04:32:30+00:00
+Disability Rights: All India Annual Digest 2025
+https://www.livelaw.in/top-stories/all-india-annual-digest-2025-disability-rights-521368
+
+[Read on Telegram](https://t.me/livelawindia/105139)
+
+---
+### 2026-02-15T05:04:50+00:00
+Submitting False Medical Certificates To Obtain Leave Is Grave Misconduct Justifying Dismissal : Delhi HC
+https://www.livelaw.in/high-court/delhi-high-court/submitting-false-medical-certificates-to-obtain-leave-is-grave-misconduct-justifying-dismissal-delhi-hc-523197
+
+[Read on Telegram](https://t.me/livelawindia/105140)
+
+---
+### 2026-02-15T05:14:10+00:00
+Mere Employment Of Wife No Ground To Deny Maintenance: Allahabad HC Notes 'Disparity' In Earning Capacity, Rejects Husband's Plea
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-employment-wife-no-ground-deny-maintenance-disparity-earning-husband-523199
+
+[Read on Telegram](https://t.me/livelawindia/105141)
+
+---
+### 2026-02-15T05:27:50+00:00
+Supreme Court Unsatisfied With FSSAI, Asks It To Consider Front-of-Pack Labels Warning Of High Sugar, Fat & Sodium In Food
+https://www.livelaw.in/top-stories/supreme-court-unsatisfied-with-fssai-asks-it-to-consider-front-of-pack-labels-warning-of-high-sugar-fat-sodium-in-food-523200
+
+[Read on Telegram](https://t.me/livelawindia/105142)
 
 ---
