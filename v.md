@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-15T12:02:45+00:00*
+*Last Updated: 2026-02-15T15:03:11+00:00*
+
+---
+
+### 2026-02-15T15:03:11+00:00
+Delhi Pollution Control Committee (DPCC) Invites Applications For The Posts Of Assistant Law Officer, Legal Assistant
+https://www.verdictum.in/job-updates/delhi-pollution-control-committee-dpcc-1607522
+
+[Source Link](https://t.me/verdictumlegalupdates/25416)
+
+---
+
+### 2026-02-15T13:32:47+00:00
+No Complete Deficiency Of Service: Supreme Court Directs Release Of 50% Of Compensation Amount To Farmers Alleging Substandard Quality Of Seeds
+https://www.verdictum.in/court-updates/supreme-court/ms-shyam-beej-bhandar-anr-v-suresh-2026-insc-158-no-complete-deficiency-of-service-compensation-farmers-substandard-seeds-1607560
+
+[Source Link](https://t.me/verdictumlegalupdates/25415)
 
 ---
 
@@ -145,22 +161,6 @@ Post-Bail Conduct Irrelevant In Appeal Against Grant Of Bail: Supreme Court Reje
 https://www.verdictum.in/court-updates/supreme-court/balmukund-singh-gautam-v-state-of-madhya-pradesh-2026-insc-157-bail-application-co-accused-absconding-1607487
 
 [Source Link](https://t.me/verdictumlegalupdates/25397)
-
----
-
-### 2026-02-14T06:52:22+00:00
-Supplying Grounds of Arrest on Separate Paper Invalid if Not Mentioned in Arrest Memo: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/-shivam-chaurasiya-v-state-of-up-2026ahc-lko10501-db-arrest-memo-reasons-separate-paper-article-21-1607485
-
-[Source Link](https://t.me/verdictumlegalupdates/25396)
-
----
-
-### 2026-02-14T06:02:40+00:00
-Same Child Survivor in Two Separate Incidents: Madras High Court Upholds Conviction Of Accused In POCSO Case In Joint Trial
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/bhagavathiraj-v-state-crlamdno120-of-2025-pocso-accused-joint-trial-1607477
-
-[Source Link](https://t.me/verdictumlegalupdates/25395)
 
 ---
 
