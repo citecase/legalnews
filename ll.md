@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-14T07:33:02+00:00*
+*Last Updated: 2026-02-14T09:29:09+00:00*
 
 ---
 
-### 2026-02-14T07:33:02+00:00
-BDS Degree Not Equivalent To 'Degree In Medicine' For Food Safety Officer Post: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-eligibility-equivalence-dental-bachelors-medicine-degree-523149
-
-[Read on Telegram](https://t.me/livelawindia/105123)
-
----
-### 2026-02-14T07:45:42+00:00
-BREAKING| Reporters Collective & RTI Forum Move Supreme Court Challenging Digital Personal Data Protection Act
-https://www.livelaw.in/top-stories/digital-personal-data-protection-act-challenged-in-supreme-court-523156
-
-[Read on Telegram](https://t.me/livelawindia/105124)
-
----
-### 2026-02-14T07:48:42+00:00
-Police Failure To Apply IPC Provisions Results In Acquittal Of Contractor for Stockpiling Decontrolled Cement : Supreme Court
-https://www.livelaw.in/supreme-court/police-failure-to-apply-ipc-provisions-results-in-acquittal-of-contractor-for-stockpiling-decontrolled-cement-supreme-court-523157
-
-[Read on Telegram](https://t.me/livelawindia/105125)
-
----
-### 2026-02-14T07:49:22+00:00
-2026 LiveLaw (SC) 157 |  MANOJ VERSUS STATE OF MAHARASHTRA & ANR.
-https://www.livelaw.in/supreme-court/2026-livelaw-sc-157-manoj-versus-state-of-maharashtra-anr-523158
-
-[Read on Telegram](https://t.me/livelawindia/105126)
-
----
-### 2026-02-14T08:05:42+00:00
-Supreme Court Allows High Courts To Hear Consumer Appeals In States Where State Commission Not Formed
-https://www.livelaw.in/top-stories/supreme-court-allows-high-courts-to-hear-consumer-appeals-in-states-where-state-commission-not-formed-523159
-
-[Read on Telegram](https://t.me/livelawindia/105127)
-
----
-### 2026-02-14T09:26:49+00:00
-Absconding Accused Not Entitled To Anticipatory Bail On Sole Ground Of Co-Accused' Acquittal : Supreme Court
-https://www.livelaw.in/supreme-court/absconding-accused-not-entitled-to-anticipatory-bail-on-sole-ground-of-co-accused-acquittal-supreme-court-523164
-
-[Read on Telegram](https://t.me/livelawindia/105128)
-
----
 ### 2026-02-14T09:29:09+00:00
 2026 LiveLaw (SC) 158 | BALMUKUND SINGH GAUTAM VERSUS STATE OF MADHYA PRADESH AND ANR.
 https://www.livelaw.in/supreme-court/2026-livelaw-sc-158-balmukund-singh-gautam-versus-state-of-madhya-pradesh-and-anr-523165
@@ -142,5 +100,48 @@ Supreme Court Unsatisfied With FSSAI, Asks It To Consider Front-of-Pack Labels W
 https://www.livelaw.in/top-stories/supreme-court-unsatisfied-with-fssai-asks-it-to-consider-front-of-pack-labels-warning-of-high-sugar-fat-sodium-in-food-523200
 
 [Read on Telegram](https://t.me/livelawindia/105142)
+
+---
+### 2026-02-15T07:02:50+00:00
+Disqualification For Public Employment Is Removed When Offender Is Released On Probation: Delhi HC
+https://www.livelaw.in/high-court/delhi-high-court/disqualification-for-public-employment-is-removed-when-offender-is-released-on-probation-delhi-hc-523198
+
+[Read on Telegram](https://t.me/livelawindia/105143)
+
+---
+### 2026-02-15T07:25:50+00:00
+5th TRC National Moot Court Competition 2026 To Be Hosted By TRC Law College
+https://www.livelaw.in/lawschool/moot-courts/5th-trc-national-moot-court-competition-2026-hosted-trc-law-college-523202
+
+[Read on Telegram](https://t.me/livelawindia/105144)
+
+---
+### 2026-02-15T08:05:40+00:00
+Nyaya Abhyuday 2.0: National Forensic Sciences University Announces National Techno-Legal Fest 2026 At Gandhinagar Campus
+https://www.livelaw.in/lawschool/news/nyaya-abhyuday-national-forensic-sciences-university-announces-national-techno-legal-fest-523203
+
+[Read on Telegram](https://t.me/livelawindia/105145)
+
+---
+### 2026-02-15T08:32:50+00:00
+Previous Service As  Village Assistant Can't  be 
+Excluded  For  Pension : Madras HC
+https://www.livelaw.in/high-court/madras-high-court/previous-service-as-village-assistant-cant-be-excluded-for-pension-madras-hc-523201
+
+[Read on Telegram](https://t.me/livelawindia/105146)
+
+---
+### 2026-02-15T10:32:51+00:00
+Juvenile Justice Act: All India Annual Digest 2025
+https://www.livelaw.in/top-stories/all-india-annual-digest-2025-juvenile-justice-act-521369
+
+[Read on Telegram](https://t.me/livelawindia/105147)
+
+---
+### 2026-02-15T11:15:51+00:00
+Litigation, Success And Money
+https://www.livelaw.in/articles/litigation-lawyer-523204
+
+[Read on Telegram](https://t.me/livelawindia/105148)
 
 ---
