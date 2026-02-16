@@ -1,147 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-14T14:33:02+00:00*
+*Last Updated: 2026-02-16T04:38:30+00:00*
 
 ---
 
-### 2026-02-14T14:33:02+00:00
-Law Without Remedy: Unpaid Salaries In India's Online Work Economy
-https://www.livelaw.in/articles/unpaid-salaries-online-work-economy-523136
+### 2026-02-16T04:38:30+00:00
+Assistant Registrar Vacancy At National Institute Of Technology, Rourkela
+https://www.livelaw.in/job-updates/assistant-registrar-vacancy-at-national-institute-of-technology-rourkela-523228
 
-[Read on Telegram](https://t.me/livelawindia/105133)
-
----
-### 2026-02-14T14:55:42+00:00
-U.P. State Legal Services Authority Launches Nyaya Rath Mobile Legal Aid Vehicles Across 74 Districts
-https://www.livelaw.in/news-updates/up-state-legal-services-authority-launches-nyaya-rath-mobile-legal-aid-vehicles-across-74-districts-523188
-
-[Read on Telegram](https://t.me/livelawindia/105134)
+[Read on Telegram](https://t.me/livelawindia/105162)
 
 ---
-### 2026-02-14T17:03:03+00:00
-IIT Kharagpur Announces Annual Public Policy Conference; Abstract Submission Closes On Feb 20
-https://www.livelaw.in/lawschool/news/iit-kharagpur-announces-annual-public-policy-conference-abstract-submission-closes-feb-20-523190
+### 2026-02-16T04:44:30+00:00
+Plea For FIR Against Himanta Biswa Sarma : Live Updates From Supreme Court
+https://www.livelaw.in/top-stories/plea-for-fir-against-himanta-biswa-sarma-live-updates-from-supreme-court-523229
 
-[Read on Telegram](https://t.me/livelawindia/105135)
-
----
-### 2026-02-14T17:18:13+00:00
-NLU Odisha Announces Alternate Movie Ending Competition On Andhadhun; Entries Open Till March 7
-https://www.livelaw.in/lawschool/competitions/nlu-odisha-announces-alternate-movie-ending-competition-on-andhadhun-entries-open-till-march-7-523191
-
-[Read on Telegram](https://t.me/livelawindia/105136)
+[Read on Telegram](https://t.me/livelawindia/105163)
 
 ---
-### 2026-02-15T03:31:00+00:00
-Complete Supreme Court Annual Digest 2025 [Part-III]
-https://www.livelaw.in/supreme-court/complete-supreme-court-annual-digest-2025-523195
+### 2026-02-16T04:46:30+00:00
+Mandatory Minimum Sentencing Under BNS And Changing Sentencing Discretion
+https://www.livelaw.in/articles/minimum-sentencing-bns-changing-sentencing-discretion-523230
 
-[Read on Telegram](https://t.me/livelawindia/105137)
-
----
-### 2026-02-15T04:21:20+00:00
-Allahabad High Court 'Shocked' As Top Govt Medical College Turns Away Poisoning Victim Citing 'No Bed', Leading To Death
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-shocked-kgmu-medical-college-poisoning-victim-death-523196
-
-[Read on Telegram](https://t.me/livelawindia/105138)
+[Read on Telegram](https://t.me/livelawindia/105164)
 
 ---
-### 2026-02-15T04:32:30+00:00
-Disability Rights: All India Annual Digest 2025
-https://www.livelaw.in/top-stories/all-india-annual-digest-2025-disability-rights-521368
+### 2026-02-16T04:47:30+00:00
+Senior Citizen Must Show Inability To Maintain Oneself; Not Every Family Dispute Attracts Maintenance Act: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/senior-citizen-maintenance-act-inability-to-maintain-oneself-523227
 
-[Read on Telegram](https://t.me/livelawindia/105139)
-
----
-### 2026-02-15T05:04:50+00:00
-Submitting False Medical Certificates To Obtain Leave Is Grave Misconduct Justifying Dismissal : Delhi HC
-https://www.livelaw.in/high-court/delhi-high-court/submitting-false-medical-certificates-to-obtain-leave-is-grave-misconduct-justifying-dismissal-delhi-hc-523197
-
-[Read on Telegram](https://t.me/livelawindia/105140)
+[Read on Telegram](https://t.me/livelawindia/105165)
 
 ---
-### 2026-02-15T05:14:10+00:00
-Mere Employment Of Wife No Ground To Deny Maintenance: Allahabad HC Notes 'Disparity' In Earning Capacity, Rejects Husband's Plea
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-employment-wife-no-ground-deny-maintenance-disparity-earning-husband-523199
+### 2026-02-16T05:02:30+00:00
+Karnataka High Court Quashes Dowry FIR, Notes Alleged Payments Unbelievable Given Complainant Family's Financial Condition
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-section-498a-ipc-dowry-cruelty-fir-baseless-523232
 
-[Read on Telegram](https://t.me/livelawindia/105141)
-
----
-### 2026-02-15T05:27:50+00:00
-Supreme Court Unsatisfied With FSSAI, Asks It To Consider Front-of-Pack Labels Warning Of High Sugar, Fat & Sodium In Food
-https://www.livelaw.in/top-stories/supreme-court-unsatisfied-with-fssai-asks-it-to-consider-front-of-pack-labels-warning-of-high-sugar-fat-sodium-in-food-523200
-
-[Read on Telegram](https://t.me/livelawindia/105142)
+[Read on Telegram](https://t.me/livelawindia/105166)
 
 ---
-### 2026-02-15T07:02:50+00:00
-Disqualification For Public Employment Is Removed When Offender Is Released On Probation: Delhi HC
-https://www.livelaw.in/high-court/delhi-high-court/disqualification-for-public-employment-is-removed-when-offender-is-released-on-probation-delhi-hc-523198
+### 2026-02-16T05:06:10+00:00
+High Powered Election Committee Notifies Kerala Bar Council Elections For April 17
+https://www.livelaw.in/news-updates/high-powered-election-committee-notifies-kerala-bar-council-elections-523234
 
-[Read on Telegram](https://t.me/livelawindia/105143)
-
----
-### 2026-02-15T07:25:50+00:00
-5th TRC National Moot Court Competition 2026 To Be Hosted By TRC Law College
-https://www.livelaw.in/lawschool/moot-courts/5th-trc-national-moot-court-competition-2026-hosted-trc-law-college-523202
-
-[Read on Telegram](https://t.me/livelawindia/105144)
+[Read on Telegram](https://t.me/livelawindia/105167)
 
 ---
-### 2026-02-15T08:05:40+00:00
-Nyaya Abhyuday 2.0: National Forensic Sciences University Announces National Techno-Legal Fest 2026 At Gandhinagar Campus
-https://www.livelaw.in/lawschool/news/nyaya-abhyuday-national-forensic-sciences-university-announces-national-techno-legal-fest-523203
+### 2026-02-16T05:10:10+00:00
+Guest Lecture On Anti-Corruption And Anti-Money Laundering Investigations Held At MNLU Nagpur
+https://www.livelaw.in/lawschool/news/guest-lecture-anti-corruption-anti-money-laundering-investigations-mnlu-nagpur-523235
 
-[Read on Telegram](https://t.me/livelawindia/105145)
-
----
-### 2026-02-15T08:32:50+00:00
-Previous Service As  Village Assistant Can't  be 
-Excluded  For  Pension : Madras HC
-https://www.livelaw.in/high-court/madras-high-court/previous-service-as-village-assistant-cant-be-excluded-for-pension-madras-hc-523201
-
-[Read on Telegram](https://t.me/livelawindia/105146)
+[Read on Telegram](https://t.me/livelawindia/105168)
 
 ---
-### 2026-02-15T10:32:51+00:00
-Juvenile Justice Act: All India Annual Digest 2025
-https://www.livelaw.in/top-stories/all-india-annual-digest-2025-juvenile-justice-act-521369
+### 2026-02-16T05:15:50+00:00
+Know The Law | Principles On Seconday Evidence Production : Supreme Court Explains
+https://www.livelaw.in/top-stories/know-the-law-principles-on-seconday-evidence-production-supreme-court-explains-523238
 
-[Read on Telegram](https://t.me/livelawindia/105147)
-
----
-### 2026-02-15T11:15:51+00:00
-Litigation, Success And Money
-https://www.livelaw.in/articles/litigation-lawyer-523204
-
-[Read on Telegram](https://t.me/livelawindia/105148)
+[Read on Telegram](https://t.me/livelawindia/105169)
 
 ---
-### 2026-02-15T13:32:01+00:00
-Allahabad High Court Weekly Round-Up: February 9 To February 15, 2026
-https://www.livelaw.in/round-ups/weekly/allahabad-high-court-weekly-roundup-february-9-february-15-2026-523206
+### 2026-02-16T05:17:50+00:00
+Madras High Court Weekly Round-Up: February 09 - February 15, 2026
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-februry-9-to-february-15-2026-523233
 
-[Read on Telegram](https://t.me/livelawindia/105149)
-
----
-### 2026-02-15T14:36:51+00:00
-Allahabad High Court Objects To CGST Dept Citing SC Judges' Names In Affidavit; Grants Bail To Chinese Woman In Tax Evasion Case
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-bail-chinese-national-gst-evasion-warning-citing-supreme-court-judges-names-523212
-
-[Read on Telegram](https://t.me/livelawindia/105150)
+[Read on Telegram](https://t.me/livelawindia/105170)
 
 ---
-### 2026-02-15T15:34:01+00:00
-Allahabad High Court Refers Advocate For Criminal Contempt Who Accused Judge Of 'Working Under Govt Pressure'
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-advocate-criminal-contempt-government-pressure-remark-agaisnt-judge-523213
+### 2026-02-16T05:30:00+00:00
+BREAKING| Supreme Court 9-Judge Bench To Hear Reference Over 'Industry' Definition On March 17
+https://www.livelaw.in/top-stories/supreme-court-9-judge-bench-reference-industry-definition-on-march-bangalore-water-supply-case-523244
 
-[Read on Telegram](https://t.me/livelawindia/105151)
+[Read on Telegram](https://t.me/livelawindia/105171)
 
 ---
-### 2026-02-15T16:09:22+00:00
-Supreme Court Allows Three NGT Judicial Members To Continue Beyond Retirement Till Next Appointments
-https://www.livelaw.in/top-stories/supreme-court-allows-three-ngt-judicial-members-to-continue-beyond-retirement-till-next-appointments-523214
+### 2026-02-16T05:32:40+00:00
+S.346(2) BNSS | Remand Beyond 15 Days Of Accused Already In Custody Not Illegal, Habeas Corpus Won't Lie In Every Case: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-remand-bnss-custody-illegal-habeas-corpus-523224
 
-[Read on Telegram](https://t.me/livelawindia/105152)
+[Read on Telegram](https://t.me/livelawindia/105172)
+
+---
+### 2026-02-16T05:48:20+00:00
+Codeine Preparations Exceeding Permissible Limits Attract NDPS Act: Allahabad High Court Denies Bail To Two Over Adulterated Cough Syrup
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-recovered-illegally-diverted-codeine-cough-syrup-523239
+
+[Read on Telegram](https://t.me/livelawindia/105173)
+
+---
+### 2026-02-16T05:56:20+00:00
+BREAKING | Supreme Court 9-Judge Bench To Hear Sabarimala Reference Issues From April 7
+https://www.livelaw.in/top-stories/supreme-court-sabarimala-review-9-judge-bench-reference-dawoodi-bohra-parsi-muslim-women-entry-dargah-fire-temple-523254
+
+[Read on Telegram](https://t.me/livelawindia/105174)
+
+---
+### 2026-02-16T06:02:20+00:00
+S.45A ESI Act | Charitable Trust Running Pathology Lab Not 'Factory': Gujarat High Court Sets Aside Orders To Pay Contribution Dues
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-charitable-trust-path-lab-esi-act-contributions-523242
+
+[Read on Telegram](https://t.me/livelawindia/105175)
+
+---
+### 2026-02-16T06:17:20+00:00
+SC/ST Act | Special Court Considering Protest Complaint Must Verify Police Refer Report, Pass Reasoned Order: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-protest-complaint-refer-report-reasoned-order-523247
+
+[Read on Telegram](https://t.me/livelawindia/105176)
+
+---
+### 2026-02-16T06:32:50+00:00
+No Provision For Deducting "Prostsahan Agrim","Tyohar Agrim" & GST From Retiral Dues Of Employee: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-cant-deduct-gst-from-employee-retiral-dues-523249
+
+[Read on Telegram](https://t.me/livelawindia/105177)
+
+---
+### 2026-02-16T06:33:50+00:00
+'Why Should Youngsters Suffer?': Supreme Court Dismisses Delhi Govt Challenge To Retrospective Pay Hike For HC Law Researchers
+https://www.livelaw.in/top-stories/supreme-court-dismisses-delhi-govt-challenge-to-retrospective-pay-hike-for-hc-law-researchers-523260
+
+[Read on Telegram](https://t.me/livelawindia/105178)
+
+---
+### 2026-02-16T06:47:50+00:00
+Kerala High Court Weekly Round-Up : February 09 - February 15, 2026
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-weekly-february-2026-523261
+
+[Read on Telegram](https://t.me/livelawindia/105179)
+
+---
+### 2026-02-16T06:54:30+00:00
+Supreme Court Rejects Abu Salem's Plea For Release On Claim Of Completing 25 Years' Imprisonment
+https://www.livelaw.in/top-stories/supreme-court-rejects-abu-salems-plea-for-release-on-claim-of-completing-25-years-imprisonment-523263
+
+[Read on Telegram](https://t.me/livelawindia/105180)
+
+---
+### 2026-02-16T07:03:10+00:00
+Identity Of Petitioner Must Be Verified Through SHO In Bank Account Defreezing Cases: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sho-verification-in-defreezing-of-bank-accounts-523252
+
+[Read on Telegram](https://t.me/livelawindia/105181)
 
 ---
