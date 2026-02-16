@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-15T15:03:11+00:00*
+*Last Updated: 2026-02-16T07:32:26+00:00*
+
+---
+
+### 2026-02-16T07:32:26+00:00
+Sensitive Issue, About Balancing Competing Interests: Supreme Court Issues Notice In Plea Challenging Constitutional Validity Of Digital Personal Data Protection Act
+https://www.verdictum.in/court-updates/supreme-court/issues-notice-plea-challenging-constitutional-validity-digital-personal-data-protection-act-1607636
+
+[Source Link](https://t.me/verdictumlegalupdates/25423)
+
+---
+
+### 2026-02-16T06:53:04+00:00
+Supreme Court’s 9-Judge Bench To Commence Hearing On Definition Of Word ‘Industry' From March 17
+https://www.verdictum.in/court-updates/supreme-court/supreme-courts-9-judge-bench-to-commence-hearing-on-definition-of-word-industry-from-march-17-1607624
+
+[Source Link](https://t.me/verdictumlegalupdates/25422)
+
+---
+
+### 2026-02-16T06:14:23+00:00
+Breaking| Supreme Court's Nine Judges Bench To Hear Review Of 2018 Sabarimala Judgment From April 7
+https://www.verdictum.in/court-updates/supreme-court/9jb-review-2018-sabarimala-judgment-allowed-women-of-all-ages-to-enter-lord-ayyappa-temple-april-1607622
+
+[Source Link](https://t.me/verdictumlegalupdates/25421)
+
+---
+
+### 2026-02-16T06:02:41+00:00
+If Every Allegation Of Fact In Plaint Isn't Denied Specifically Or By Implication, It Would Be Taken As Admission: Jammu & Kashmir and Ladakh High Court
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/hotel-new-metro-v-ut-of-jk-ors-2026jklhc-sgr15-allegation-of-fact-plaint-implication-admission-rule-5-order-viii-cpc-1607619
+
+[Source Link](https://t.me/verdictumlegalupdates/25420)
+
+---
+
+### 2026-02-16T05:32:40+00:00
+Civil Disputes Needs Adjudication By Court of Law: Gujarat HC Quashes Human Rights Commission Proceedings, Issues Guidelines
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/mahendra-shanabhai-patel-v-the-district-magistrate-2026gujhc2718-civil-court-property-dispute-human-rights-commission-1607618
+
+[Source Link](https://t.me/verdictumlegalupdates/25419)
+
+---
+
+### 2026-02-16T05:02:39+00:00
+Domestic Violence Act Does Not Compel Reinstatement Into A Residence Abandoned By Choice: Delhi High Court Refuses 81-Year-Old Wife’s Re-Entry Plea
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/x-v-y-2026dhc1066-wife-matrimonial-house-home-voluntarily-shared-household-1607615
+
+[Source Link](https://t.me/verdictumlegalupdates/25418)
+
+---
+
+### 2026-02-16T04:33:07+00:00
+Indian Succession Act| Mother Doesn’t Have Legal Right To Share If Son Dies Intestate Leaving Behind Wife & Children: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/mrs-estrida-lucy-janet-vaz-v-nil-2026khc5798-mother-legal-right-share-son-dies-intestate-wife-children-1607561
+
+[Source Link](https://t.me/verdictumlegalupdates/25417)
 
 ---
 
@@ -105,62 +161,6 @@ Vacancy Of Associate At Global Jurix LLP
 https://www.verdictum.in/job-updates/vacancy-of-associate-at-global-jurix-llp-1607531
 
 [Source Link](https://t.me/verdictumlegalupdates/25404)
-
----
-
-### 2026-02-14T12:02:21+00:00
-Pharma Licences Cannot Shield Organised Drug Diversion: Punjab & Haryana HC Refuses Bail In Massive Psychotropic Drug Trafficking Racket
-https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/aashish-verma-v-union-of-india-2026phhc020996-ndps-bail-drugs-pharmaceutical-1607515
-
-[Source Link](https://t.me/verdictumlegalupdates/25403)
-
----
-
-### 2026-02-14T11:13:10+00:00
-Mere Pendency Of Counterclaim For Damages Does Not Bar Financial Creditor From Invoking Insolvency Proceedings Under IBC: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/b-prashanth-hegde-v-state-bank-of-india-2026-insc-155-1607511
-
-[Source Link](https://t.me/verdictumlegalupdates/25402)
-
----
-
-### 2026-02-14T10:32:48+00:00
-Madras High Court Affirms Life Sentence Under POCSO Act For Pastor Convicted Of Aggravated Sexual Assault On Disabled Minor
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/joseph-raja-v-the-inspector-of-police-all-women-police-station-rajapalayam-1607507
-
-[Source Link](https://t.me/verdictumlegalupdates/25401)
-
----
-
-### 2026-02-14T09:52:27+00:00
-Police Control Room Central Hub Of Emergency Services Not Crime Investigation & Prevention: Delhi High Court Upholds Murder Conviction
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/mohan-akkar-v-state-2026dhc998-db-pcr-tunnel-vision-dying-declaration-1607501
-
-[Source Link](https://t.me/verdictumlegalupdates/25400)
-
----
-
-### 2026-02-14T09:02:26+00:00
-Similarly Situated As Other Daily-Wage Workers: Supreme Court Orders Regularization Of Casual Workers Of Gwalior Income Tax Department
-https://www.verdictum.in/court-updates/supreme-court/pawan-kumar-ors-v-union-of-india-2026-insc-156-similarly-situated-daily-wage-workers-gwalior-income-tax-department-1607498
-
-[Source Link](https://t.me/verdictumlegalupdates/25399)
-
----
-
-### 2026-02-14T08:12:44+00:00
-Prosecution Impermissible Absent Subsisting Statutory Control Order On Date Of Offence: Supreme Court Sets Aside Conviction Under Essential Commodities Act
-https://www.verdictum.in/court-updates/supreme-court/manoj-v-state-of-maharashtra-2026-insc-152-1607489
-
-[Source Link](https://t.me/verdictumlegalupdates/25398)
-
----
-
-### 2026-02-14T07:33:03+00:00
-Post-Bail Conduct Irrelevant In Appeal Against Grant Of Bail: Supreme Court Rejects Absconding Accused's Anticipatory Bail
-https://www.verdictum.in/court-updates/supreme-court/balmukund-singh-gautam-v-state-of-madhya-pradesh-2026-insc-157-bail-application-co-accused-absconding-1607487
-
-[Source Link](https://t.me/verdictumlegalupdates/25397)
 
 ---
 
