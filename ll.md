@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-16T09:33:13+00:00*
+*Last Updated: 2026-02-16T12:04:24+00:00*
 
 ---
 
-### 2026-02-16T09:33:13+00:00
-DSLSA Organises Special Traffic Lok Adalat And Launches Digital Lok Adalat Application In Delhi
-https://www.livelaw.in/events/dslsa-organises-special-traffic-lok-adalat-launches-digital-lok-adalat-application-delhi-523288
-
-[Read on Telegram](https://t.me/livelawindia/105196)
-
----
-### 2026-02-16T09:33:23+00:00
-S.482 BNSS | Pre-Arrest Bail Not Maintainable After Arrest, Even If Accused Released On Transit Bail: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-transit-bail-anticipatory-bail-arrest-523284
-
-[Read on Telegram](https://t.me/livelawindia/105197)
-
----
-### 2026-02-16T09:40:43+00:00
-CCI v. Swapan Dey: Who Decides Exclusivity Or Exclusion?
-https://www.livelaw.in/articles/cci-swapandey-nclat-523291
-
-[Read on Telegram](https://t.me/livelawindia/105198)
-
----
-### 2026-02-16T09:46:43+00:00
-Supreme Court Dismisses Plea Challenging Chhattisgarh Gram Sabha's Hoardings Banning Entry Of Pastors, Converts Into Tribal Village
-https://www.livelaw.in/top-stories/supreme-court-plea-against-chhattisgarh-hc-judgment-upholding-gram-sabha-hoardings-barring-entry-of-pastors-converts-in-tribal-villages-dismissed-523293
-
-[Read on Telegram](https://t.me/livelawindia/105199)
-
----
-### 2026-02-16T09:48:03+00:00
-'Testing Waters': Punjab & Haryana High Court Pulls Up Lawyer Who Moved Two Bails Pleas In Same FIR, Imposes Costs
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-slams-lawyer-who-moved-two-bails-in-same-fir-imposed-cost-523289
-
-[Read on Telegram](https://t.me/livelawindia/105200)
-
----
-### 2026-02-16T10:02:43+00:00
-Cheque Bounce Cases: Delhi High Court Grants Interim Suspension Of Sentence To Actor Rajpal Yadav
-https://www.livelaw.in/high-court/delhi-high-court/rajpal-yadav-sentence-cheque-bounce-case-suspended-523294
-
-[Read on Telegram](https://t.me/livelawindia/105201)
-
----
-### 2026-02-16T10:09:23+00:00
-Assistant Manager / Deputy Manager (Legal) Vacancy At ATS Expertise Private Limited [Apply Now]
-https://www.livelaw.in/job-updates/assistant-manager-deputy-manager-legal-vacancy-at-ats-expertise-private-limited-apply-now-523295
-
-[Read on Telegram](https://t.me/livelawindia/105202)
-
----
-### 2026-02-16T10:13:23+00:00
-Can't Allow Country To Be Maligned Internationally: Delhi High Court In Author Amrit Wilson's OCI Card Cancellation Case
-https://www.livelaw.in/high-court/delhi-high-court/amrit-wilson-oci-card-cancellation-centre-stand-cant-malign-india-abroad-523297
-
-[Read on Telegram](https://t.me/livelawindia/105203)
-
----
-### 2026-02-16T10:40:53+00:00
-Why Rules Under Shariat Application Act Not Framed? Supreme Court Seeks Responses Of Union, UP Govt
-https://www.livelaw.in/supreme-court/shariat-act-rules-not-framed-supreme-court-asks-up-union-govt-523302
-
-[Read on Telegram](https://t.me/livelawindia/105204)
-
----
-### 2026-02-16T10:54:54+00:00
-Supreme Court Dismisses Plea Challenging 'Logical Discrepancy' Category Applied By ECI In West Bengal SIR
-https://www.livelaw.in/top-stories/supreme-court-dismisses-plea-challenging-logical-discrepancy-category-applied-by-eci-in-west-bengal-sir-523305
-
-[Read on Telegram](https://t.me/livelawindia/105205)
-
----
-### 2026-02-16T11:03:34+00:00
-Commission-Based Workers At Civil Hospital Not Govt Servants; No Right To Regularisation: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-physically-challenged-workers-govt-employee-benefits-523306
-
-[Read on Telegram](https://t.me/livelawindia/105206)
-
----
-### 2026-02-16T11:20:14+00:00
-High Court Can Quash Gratuity Orders Passed Without Jurisdiction Even If Employer Did Not Object To Claim: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-gratuity-claim-employer-objection-jurisdiction-523310
-
-[Read on Telegram](https://t.me/livelawindia/105207)
-
----
-### 2026-02-16T11:37:44+00:00
-Employee Can't Be Denied Promotion Due To Employer's Failure To Timely Communicate Annual Performance Reports: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-irctc-promotion-annual-performance-reports-523313
-
-[Read on Telegram](https://t.me/livelawindia/105208)
-
----
 ### 2026-02-16T12:04:24+00:00
 National Green Tribunal Dismisses Challenges To Great Nicobar Infrastructure Project; Directs Strict Compliance With Environmental Safeguards
 https://www.livelaw.in/environment/national-green-tribunal-upholds-environmental-clearance-great-nicobar-ictt-project-523316
@@ -142,5 +51,96 @@ Supreme Court Extends Tenure Of DRAT Allahabad Chairman, Seeks Union's Action Pl
 https://www.livelaw.in/top-stories/supreme-court-extends-tenure-of-drat-allahabad-chairman-seeks-unions-action-plan-on-tribunals-523327
 
 [Read on Telegram](https://t.me/livelawindia/105215)
+
+---
+### 2026-02-16T13:48:24+00:00
+2-Judge Bench Created Unnecessary Uncertainty : CJI Surya Kant On Judgment Against Post-Facto Environmental Clearances
+https://www.livelaw.in/top-stories/2-judge-bench-created-unnecessary-uncertainty-cji-surya-kant-on-judgment-against-post-facto-environmental-clearances-523332
+
+[Read on Telegram](https://t.me/livelawindia/105216)
+
+---
+### 2026-02-16T13:55:44+00:00
+Supreme Court Allows Karnataka High Court To Notify Civil Judge Appointments
+https://www.livelaw.in/top-stories/supreme-court-allows-karnataka-high-court-to-notify-civil-judge-appointments-523333
+
+[Read on Telegram](https://t.me/livelawindia/105217)
+
+---
+### 2026-02-16T14:07:06+00:00
+Magistrate Bound To Consider Subsequent 'Closure Report' Even After Taking Cognizance On Initial Chargesheet: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-magistrate-bound-consider-closure-report-cognizance-initial-chargesheet-523334
+
+[Read on Telegram](https://t.me/livelawindia/105218)
+
+---
+### 2026-02-16T14:09:46+00:00
+Karnataka High Court Weekly Round-Up: February 09 - February 15, 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-round-up-523335
+
+[Read on Telegram](https://t.me/livelawindia/105219)
+
+---
+### 2026-02-16T14:29:26+00:00
+Delhi High Court Weekly Round-Up: February 09 To February 15, 2026
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-weekly-round-up-february-09-to-february-15-2026-523337
+
+[Read on Telegram](https://t.me/livelawindia/105220)
+
+---
+### 2026-02-16T14:37:06+00:00
+Substitution Of Arbitrators, Unaddressed Statutory Imperative In Jagdeep Chowgule
+https://www.livelaw.in/articles/arbitrators-unaddressed-statutory-jagdeep-chowgule-523338
+
+[Read on Telegram](https://t.me/livelawindia/105221)
+
+---
+### 2026-02-16T15:18:56+00:00
+NALSA Launches Pilot Project “Community Mediation: Towards A Litigation-Free Rural India” In Baghpat
+https://www.livelaw.in/news-updates/nalsa-launches-pilot-project-community-mediation-towards-a-litigation-free-rural-india-in-baghpat-523340
+
+[Read on Telegram](https://t.me/livelawindia/105222)
+
+---
+### 2026-02-16T15:24:16+00:00
+Rusty Tray Table, Non-Functional Lavatories: Delhi Consumer Commission Holds Air India Liable For Deficiency In Service
+https://www.livelaw.in/consumer-cases/rusty-tray-table-non-functional-lavatories-delhi-consumer-commission-holds-air-india-liable-for-deficiency-in-service-523341
+
+[Read on Telegram](https://t.me/livelawindia/105223)
+
+---
+### 2026-02-16T15:28:16+00:00
+Senior Entitled To Stepping Up Of Pay If Junior In Same Cadre & Pay Scale Draws Higher Salary: Calcutta HC
+https://www.livelaw.in/high-court/calcutta-high-court/senior-entitled-to-stepping-up-of-pay-if-junior-in-same-cadre-pay-scale-draws-higher-salary-calcutta-hc-523342
+
+[Read on Telegram](https://t.me/livelawindia/105224)
+
+---
+### 2026-02-16T16:01:26+00:00
+Punjab Regional Town Planning Act | Illegally 'Change Of Land Use' Permission Can't Be Post Facto Legalised : Supreme Court
+https://www.livelaw.in/supreme-court/punjab-regional-town-planning-act-illegally-change-of-land-use-permission-cant-be-post-facto-legalised-supreme-court-523348
+
+[Read on Telegram](https://t.me/livelawindia/105225)
+
+---
+### 2026-02-16T16:07:46+00:00
+2026 LiveLaw (SC) 162 |  HARBINDER SINGH SEKHON & ORS. VERSUS THE STATE OF PUNJAB & ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-162-harbinder-singh-sekhon-ors-versus-the-state-of-punjab-ors-523349
+
+[Read on Telegram](https://t.me/livelawindia/105226)
+
+---
+### 2026-02-16T16:15:06+00:00
+AILAJ Denies Writing Letter Alleging Senior Advocate Took Money On Pretext To Bribe Madras High Court Judge
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ailaj-letter-name-misused-fake-letter-alleging-senior-advocate-bribe-judge-523351
+
+[Read on Telegram](https://t.me/livelawindia/105227)
+
+---
+### 2026-02-16T16:17:26+00:00
+S. 69 CGST Act | 'Reasons To Believe' Need Not Be Furnished But 'Grounds' Must Be Supplied As Annexure To Arrest Memo: Allahabad HC
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-section-69-cgst-act-reasons-believe-grounds-supplied-annexure-arrest-memo-523353
+
+[Read on Telegram](https://t.me/livelawindia/105228)
 
 ---
