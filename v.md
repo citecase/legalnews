@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-16T13:32:51+00:00*
+*Last Updated: 2026-02-16T16:02:57+00:00*
+
+---
+
+### 2026-02-16T16:02:57+00:00
+District Legal Services Authority (DLSA), Sonepur Invites Applications For The Post Of Legal Aid Defence Counsels
+https://www.verdictum.in/job-updates/district-legal-services-authority-1607689
+
+[Source Link](https://t.me/verdictumlegalupdates/25440)
+
+---
+
+### 2026-02-16T15:32:46+00:00
+Petty Assault Or Rash Driving Not Affecting Force Discipline Cannot Automatically Bar Police Appointment: Gujarat High Court
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/bharatbhai-khumsinghbhai-sangod-v-state-of-gujarat-2026gujhc7456-police-recruitment-srpf-fir-quashed-assault-kicks-1607688
+
+[Source Link](https://t.me/verdictumlegalupdates/25439)
+
+---
+
+### 2026-02-16T15:03:05+00:00
+Cheque Returned For "Funds Insufficient" Post Banks Merger; Validity Of Presentation U/S 138 NI Act Requires Trial & Investigation: Bombay HC
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/chetan-sunderji-bhanushali-v-hema-ramesh-chheda-2026bhc-as6948-cheque-insufficient-funds-bank-merger-acquisition-valid-1607687
+
+[Source Link](https://t.me/verdictumlegalupdates/25438)
+
+---
+
+### 2026-02-16T14:33:04+00:00
+Section 18 SC/ST Act Bars Anticipatory Bail Where Prima Facie Public-View Caste Offence Is Disclosed: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/yogitabai-wo-vinod-patil-ors-v-state-of-maharashtra-ors-2026bhc-aug6277-1607685
+
+[Source Link](https://t.me/verdictumlegalupdates/25437)
+
+---
+
+### 2026-02-16T14:02:43+00:00
+Habeas Corpus Plea To Challenge Detention Under Judicial Remand Maintainable If Statutory Or Constitutional Violations Alleged: Gujarat High Court
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/vinodbhai-tilakdhari-tiwari-v-state-of-gujarat-ors-2026gujhc2986-db-1607686
+
+[Source Link](https://t.me/verdictumlegalupdates/25436)
 
 ---
 
@@ -121,46 +161,6 @@ Breaking| Supreme Court's Nine Judges Bench To Hear Review Of 2018 Sabarimala Ju
 https://www.verdictum.in/court-updates/supreme-court/9jb-review-2018-sabarimala-judgment-allowed-women-of-all-ages-to-enter-lord-ayyappa-temple-april-1607622
 
 [Source Link](https://t.me/verdictumlegalupdates/25421)
-
----
-
-### 2026-02-16T06:02:41+00:00
-If Every Allegation Of Fact In Plaint Isn't Denied Specifically Or By Implication, It Would Be Taken As Admission: Jammu & Kashmir and Ladakh High Court
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/hotel-new-metro-v-ut-of-jk-ors-2026jklhc-sgr15-allegation-of-fact-plaint-implication-admission-rule-5-order-viii-cpc-1607619
-
-[Source Link](https://t.me/verdictumlegalupdates/25420)
-
----
-
-### 2026-02-16T05:32:40+00:00
-Civil Disputes Needs Adjudication By Court of Law: Gujarat HC Quashes Human Rights Commission Proceedings, Issues Guidelines
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/mahendra-shanabhai-patel-v-the-district-magistrate-2026gujhc2718-civil-court-property-dispute-human-rights-commission-1607618
-
-[Source Link](https://t.me/verdictumlegalupdates/25419)
-
----
-
-### 2026-02-16T05:02:39+00:00
-Domestic Violence Act Does Not Compel Reinstatement Into A Residence Abandoned By Choice: Delhi High Court Refuses 81-Year-Old Wife’s Re-Entry Plea
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/x-v-y-2026dhc1066-wife-matrimonial-house-home-voluntarily-shared-household-1607615
-
-[Source Link](https://t.me/verdictumlegalupdates/25418)
-
----
-
-### 2026-02-16T04:33:07+00:00
-Indian Succession Act| Mother Doesn’t Have Legal Right To Share If Son Dies Intestate Leaving Behind Wife & Children: Karnataka High Court
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/mrs-estrida-lucy-janet-vaz-v-nil-2026khc5798-mother-legal-right-share-son-dies-intestate-wife-children-1607561
-
-[Source Link](https://t.me/verdictumlegalupdates/25417)
-
----
-
-### 2026-02-15T15:03:11+00:00
-Delhi Pollution Control Committee (DPCC) Invites Applications For The Posts Of Assistant Law Officer, Legal Assistant
-https://www.verdictum.in/job-updates/delhi-pollution-control-committee-dpcc-1607522
-
-[Source Link](https://t.me/verdictumlegalupdates/25416)
 
 ---
 
