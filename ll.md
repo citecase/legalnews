@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-16T12:04:24+00:00*
+*Last Updated: 2026-02-16T12:37:54+00:00*
 
 ---
 
-### 2026-02-16T12:04:24+00:00
-National Green Tribunal Dismisses Challenges To Great Nicobar Infrastructure Project; Directs Strict Compliance With Environmental Safeguards
-https://www.livelaw.in/environment/national-green-tribunal-upholds-environmental-clearance-great-nicobar-ictt-project-523316
-
-[Read on Telegram](https://t.me/livelawindia/105209)
-
----
-### 2026-02-16T12:26:04+00:00
-Supreme Court Directs Production Of Pendrive Given To Sonam Wangchuk In Custody, Doubts Accuracy Of Union's Transcript Of Speeches
-https://www.livelaw.in/top-stories/sonam-wanghchuk-detention-supreme-court-asks-pendrive-doubts-speech-transcript-523319
-
-[Read on Telegram](https://t.me/livelawindia/105210)
-
----
 ### 2026-02-16T12:37:54+00:00
 Condonation Of Delay Can't Be Claimed As Matter Of Right; Entirely Court's Discretion : Supreme Court
 https://www.livelaw.in/supreme-court/condonation-of-delay-cant-be-claimed-as-matter-of-right-entirely-courts-discretion-supreme-court-523322
@@ -142,5 +128,19 @@ S. 69 CGST Act | 'Reasons To Believe' Need Not Be Furnished But 'Grounds' Must B
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-section-69-cgst-act-reasons-believe-grounds-supplied-annexure-arrest-memo-523353
 
 [Read on Telegram](https://t.me/livelawindia/105228)
+
+---
+### 2026-02-17T01:32:22+00:00
+Bombay High Court Seeks ED Response On Anil Deshmukh's Plea To Defer Framing Of Charges In Money Laundering Case
+https://www.livelaw.in/high-court/bombay-high-court/anil-deshmukh-money-laundering-plea-to-defer-charges-523358
+
+[Read on Telegram](https://t.me/livelawindia/105229)
+
+---
+### 2026-02-17T02:32:53+00:00
+Andhra Pradesh High Court Weekly Round-Up: February 09 - February 15, 2026
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-weekly-digest-february-9-to-february-15-2026-523359
+
+[Read on Telegram](https://t.me/livelawindia/105230)
 
 ---
