@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-17T05:19:42+00:00*
+*Last Updated: 2026-02-17T10:32:54+00:00*
 
 ---
 
-### 2026-02-17T05:19:42+00:00
-Mere Suspicion Cannot Defeat Genuine Claim”: Chandigarh Consumer Commission Holds Shriram General Insurance Liable For Arbitrary Repudiation
-https://www.livelaw.in/consumer-cases/mere-suspicion-cannot-defeat-genuine-claim-chandigarh-consumer-commission-holds-shriram-general-insurance-liable-for-arbitrary-repudiation-523388
+### 2026-02-17T10:32:54+00:00
+Bar On Second Revision Petition Can't Be Circumvented By Clever Drafting: Rajasthan High Court Dismisses NI Act Plea
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-judicial-scrutiny-nomenclature-juridical-character-523457
 
-[Read on Telegram](https://t.me/livelawindia/105244)
-
----
-### 2026-02-17T05:21:02+00:00
-Challenge To Vested Forest Notification Filed After 14 Years Barred By Limitation: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-limitation-under-private-forest-vesting-act-523389
-
-[Read on Telegram](https://t.me/livelawindia/105245)
+[Read on Telegram](https://t.me/livelawindia/105295)
 
 ---
-### 2026-02-17T05:31:42+00:00
-Actor Shatrughan Sinha Moves Bombay High Court To Protect His 'Personality Rights' Including His Iconic Dialogue 'Khamosh'
-https://www.livelaw.in/high-court/bombay-high-court/shatrughan-sinha-personality-rights-protection-dialogue-khamosh-523392
+### 2026-02-17T10:42:33+00:00
+Karnataka High Court Sets Aside Election Of Congress MLA SN Subbareddy But Rejects BJP Leader's Claim To Be Declared Winner
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-congress-mla-sn-subbareddy-election-2023-523474
 
-[Read on Telegram](https://t.me/livelawindia/105246)
-
----
-### 2026-02-17T05:35:22+00:00
-Recruiting Authority Can Prescribe Minimum Marks After Test  , If Provided In Advertisement : Delhi HC
-https://www.livelaw.in/high-court/delhi-high-court/recruiting-authority-can-prescribe-minimum-marks-after-test-if-provided-in-advertisement-delhi-hc-523393
-
-[Read on Telegram](https://t.me/livelawindia/105247)
+[Read on Telegram](https://t.me/livelawindia/105296)
 
 ---
-### 2026-02-17T05:40:06+00:00
-Kerala High Court Dismisses Plea Challenging Centre's Order Allowing Old Labour Courts To Function After Enactment Of New Industrial Code
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-old-labour-courts-new-industrial-code-523395
+### 2026-02-17T10:45:13+00:00
+'Classic Case Of Suicidal Hanging' : Supreme Court On Alleged Political Murder During 2018 West Bengal Post-Poll Violence
+https://www.livelaw.in/top-stories/classic-case-of-suicidal-hanging-supreme-court-on-alleged-political-murder-during-2018-west-bengal-post-poll-violence-523475
 
-[Read on Telegram](https://t.me/livelawindia/105248)
-
----
-### 2026-02-17T05:40:46+00:00
-'No Disability Pension For Brain Stroke Caused By Smoking' : Supreme Court Rejects Ex-Army Officer's Claim
-https://www.livelaw.in/supreme-court/no-disability-pension-for-brain-stroke-caused-by-smoking-supreme-court-rejects-ex-army-officers-claim-523396
-
-[Read on Telegram](https://t.me/livelawindia/105249)
+[Read on Telegram](https://t.me/livelawindia/105297)
 
 ---
-### 2026-02-17T05:42:06+00:00
-Designed To Exclude: Legal Architecture Of Informality In India
-https://www.livelaw.in/articles/legal-architecture-labour-law-523397
+### 2026-02-17T10:47:53+00:00
+Promotion Not A Fundamental Right, But Consideration For Promotion Is A Fundamental Right: Madras High Court Reiterates
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-consideration-for-promotion-fundamental-right-523459
 
-[Read on Telegram](https://t.me/livelawindia/105250)
-
----
-### 2026-02-17T05:42:16+00:00
-2026 LiveLaw (SC) 163 | SAREVESH KUMAR VERSUS UNION OF INDIA & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-163-sarevesh-kumar-versus-union-of-india-ors-523398
-
-[Read on Telegram](https://t.me/livelawindia/105251)
+[Read on Telegram](https://t.me/livelawindia/105298)
 
 ---
-### 2026-02-17T06:01:42+00:00
-Actress Pratyusha's Death : Supreme Court Rules Out Murder; Convicts Siddhartha Reddy For Abetment Of Suicide
-https://www.livelaw.in/top-stories/actress-pratyushas-death-supreme-court-rules-out-murder-convicts-siddhartha-reddy-for-abetment-of-suicide-523405
+### 2026-02-17T11:02:33+00:00
+RPNLU, Prayagraj Inaugurates Week-Long Foundation Day Celebrations
+https://www.livelaw.in/lawschool/news/rpnlu-prayagraj-inaugurates-week-long-foundation-day-celebrations-523478
 
-[Read on Telegram](https://t.me/livelawindia/105252)
-
----
-### 2026-02-17T06:02:22+00:00
-Gauhati High Court Weekly Round-Up: February 09 - February 15, 2026
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-weekly-round-up-february-09-15-2026-523402
-
-[Read on Telegram](https://t.me/livelawindia/105253)
+[Read on Telegram](https://t.me/livelawindia/105299)
 
 ---
-### 2026-02-17T06:10:22+00:00
-Legal Consultant Vacancy At Administrative Control Of Medical And Health Department
-https://www.livelaw.in/job-updates/legal-consultant-vacancy-at-administrative-control-of-medical-and-health-department-523407
+### 2026-02-17T11:02:53+00:00
+Karnataka High Court Refuses To Interfere In Plea Alleging ₹1.45 Lakh Fraud By Religious Figure, Cites Alternative Remedies
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-woman-duped-religious-person-complaint-police-523460
 
-[Read on Telegram](https://t.me/livelawindia/105254)
-
----
-### 2026-02-17T06:18:22+00:00
-Project Associate (Legal) Vacancy At Intelligent Communication Systems India [Walk-In-Interview; Apply Now]
-https://www.livelaw.in/job-updates/project-associate-legal-vacancy-at-intelligent-communication-systems-india-523408
-
-[Read on Telegram](https://t.me/livelawindia/105255)
+[Read on Telegram](https://t.me/livelawindia/105300)
 
 ---
-### 2026-02-17T06:23:02+00:00
-Stipendiary Graduate Trainees Not 'Employees' Under EPF Act; PF Demand Unsustainable: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/stipendiary-graduate-trainees-not-employees-under-epf-act-pf-demand-unsustainable-calcutta-high-court-523380
+### 2026-02-17T11:10:13+00:00
+HNLU Crowned National Champions At India Qualifying Rounds Of Jessup Moot 2026
+https://www.livelaw.in/lawschool/news/hnlu-crowned-national-champions-india-qualifying-rounds-jessup-moot-523481
 
-[Read on Telegram](https://t.me/livelawindia/105256)
-
----
-### 2026-02-17T06:26:22+00:00
-Karnataka Court Awards Death Sentence To Three For Gang-Rape Of Israeli Woman, Murder Of Male Tourist Last Year
-https://www.livelaw.in/news-updates/karnataka-sessions-court-gang-rape-israeli-woman-murder-male-tourist-523410
-
-[Read on Telegram](https://t.me/livelawindia/105257)
+[Read on Telegram](https://t.me/livelawindia/105301)
 
 ---
-### 2026-02-17T06:41:33+00:00
-NEET-PG 2025 Cut-Off Reduction Made 95,913 More Candidates Eligible, NBEMS Informs Supreme Court
-https://www.livelaw.in/top-stories/neet-pg-2025-cut-off-reduction-made-95913-more-candidates-eligible-nbems-informs-supreme-court-523416
+### 2026-02-17T11:12:13+00:00
+Film Inspired By Venjaramoodu Murder Case Referred To Revising Committee: Censor Board Tells Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-venjaramoodu-murder-case-kaalam-paranja-kadha-523469
 
-[Read on Telegram](https://t.me/livelawindia/105258)
-
----
-### 2026-02-17T06:52:13+00:00
-STAC 2026: 11th National Trial Advocacy Competition at CHRIST School of Law
-https://www.livelaw.in/lawschool/competitions/stac-2026-11th-national-trial-advocacy-competition-at-christ-school-of-law-523417
-
-[Read on Telegram](https://t.me/livelawindia/105259)
+[Read on Telegram](https://t.me/livelawindia/105302)
 
 ---
-### 2026-02-17T06:53:53+00:00
-Liquor Branding Contest Not Indirect Solicitation Or Surrogate Advertisement: Excise Commissioner Tells Kerala High Court In Plea Against BEVCO
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-bevco-liquor-branding-contest-excise-commissioner-523418
+### 2026-02-17T11:23:03+00:00
+Failure Of Joint Real Estate Deal Due To Non-Performance Of Contract Is Civil Wrong, Not Criminal Offence: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/failure-of-joint-real-estate-deal-is-civil-wrong-not-criminal-offence-calcutta-high-court-quashes-case-against-landowners-523401
 
-[Read on Telegram](https://t.me/livelawindia/105260)
-
----
-### 2026-02-17T06:58:33+00:00
-Vidhi Pragati National IP Moot Court Competition 2026 Concludes Successfully At NLU Delhi
-https://www.livelaw.in/lawschool/news/vidhi-pragati-national-ip-moot-court-competition-2026-concludes-successfully-nlu-delhi-523420
-
-[Read on Telegram](https://t.me/livelawindia/105261)
+[Read on Telegram](https://t.me/livelawindia/105303)
 
 ---
-### 2026-02-17T07:02:54+00:00
-Educational Institutions Not Service Providers, Students Not Consumers: Uttarakhand State Commission Reiterates
-https://www.livelaw.in/consumer-cases/educational-institutions-not-service-providers-students-not-consumers-uttarakhand-state-commission-reiterates-523391
+### 2026-02-17T11:26:03+00:00
+Rahul Gandhi Had No Nexus With Alleged Defamatory Publication: Karnataka High Court While Quashing BJP's Defamation Case
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-defamation-rahul-gandhi-state-bjp-523482
 
-[Read on Telegram](https://t.me/livelawindia/105262)
+[Read on Telegram](https://t.me/livelawindia/105304)
 
 ---
-### 2026-02-17T07:05:54+00:00
-NEET-PG 2025: Delhi High Court Upholds Cut-Off Reduction, Says No Arbitrariness In Policy Decision
-https://www.livelaw.in/high-court/delhi-high-court/neet-pg-2025-cut-off-reduction-upheld-policy-no-arbitrariness-523424
+### 2026-02-17T11:42:23+00:00
+Employer Can't Reject Resignation Citing Financial Constraint, Forcing Employee To Continue Amounts To Bonded Labour: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/employer-cannot-refuse-resignation-citing-financial-constraint-bonded-labour-523484
 
-[Read on Telegram](https://t.me/livelawindia/105263)
+[Read on Telegram](https://t.me/livelawindia/105305)
+
+---
+### 2026-02-17T11:44:43+00:00
+[Advertisement] 2nd Edition Two-Week Advanced Certificate Course On Mergers And Acquisitions By Dharmashastra National Law University, Jabalpur
+https://www.livelaw.in/lawschool/diploma-certificate-courses/2nd-edition-two-week-advanced-certificate-course-on-mergers-and-acquisitions-by-dharmashastra-national-law-university-jabalpur-523486
+
+[Read on Telegram](https://t.me/livelawindia/105306)
+
+---
+### 2026-02-17T12:08:14+00:00
+Shocking That Ancient Temple Structures Are Let Out For Rent By HR&CE Unmindful Of Their Responsibility: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-hrce-renting-out-ancient-temple-structures-shocking-523489
+
+[Read on Telegram](https://t.me/livelawindia/105307)
+
+---
+### 2026-02-17T12:12:54+00:00
+Contractual Loan Dispute Over Alleged Excess Charges Not Cheating Or Breach Of Trust: Calcutta High Court Quashes Case
+https://www.livelaw.in/high-court/calcutta-high-court/contractual-loan-dispute-over-alleged-excess-charges-not-cheating-or-breach-of-trust-calcutta-high-court-quashes-case-523403
+
+[Read on Telegram](https://t.me/livelawindia/105308)
+
+---
+### 2026-02-17T12:44:54+00:00
+ESZ Constructions & Quarrying: Kerala High Court Directs Centre, State To Disclose Action On Gadgil & Kasthurirangan Committee Recommendations
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-disclose-steps-gadgil-and-kasthurirangan-committee-reports-523495
+
+[Read on Telegram](https://t.me/livelawindia/105309)
+
+---
+### 2026-02-17T12:47:34+00:00
+Post-Bail Conduct Not Valid Consideration In Appeal Against Grant Of Bail : Supreme Court
+https://www.livelaw.in/supreme-court/post-bail-conduct-not-valid-consideration-in-appeal-against-grant-of-bail-supreme-court-523496
+
+[Read on Telegram](https://t.me/livelawindia/105310)
+
+---
+### 2026-02-17T12:50:14+00:00
+Supreme Court Seeks Union's Affidavit On TET Requirement For Special Educators To Secondary Classes
+https://www.livelaw.in/top-stories/supreme-court-children-with-special-needs-secondary-classes-whether-teachers-eligibility-test-required-for-special-educators-523498
+
+[Read on Telegram](https://t.me/livelawindia/105311)
+
+---
+### 2026-02-17T12:51:34+00:00
+Kerala Court Rejects Former MLA Antony Raju's Plea To Quash Conviction In Evidence Tampering Case
+https://www.livelaw.in/news-updates/kerala-court-rejects-former-mla-antony-rajus-plea-to-aside-conviction-in-evidence-tampering-case-523499
+
+[Read on Telegram](https://t.me/livelawindia/105312)
+
+---
+### 2026-02-17T12:57:44+00:00
+Accusing Wife Of Extramarital Affair Is Mental Cruelty, Ground To Live Apart: Karnataka High Court Denies Divorce To Husband Claiming Desertion
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-wife-extra-marital-affair-husband-divorce-desertion-523501
+
+[Read on Telegram](https://t.me/livelawindia/105313)
+
+---
+### 2026-02-17T13:13:04+00:00
+Right To Travel Not Absolute In Economic Offences: Calcutta High Court Declines Relief To Ex-Pharma Employee In ₹1300 Crore SFIO Probe
+https://www.livelaw.in/high-court/calcutta-high-court/right-to-travel-not-absolute-in-economic-offences-calcutta-high-court-declines-relief-to-ex-pharma-employee-in-1300-crore-sfio-probe-523406
+
+[Read on Telegram](https://t.me/livelawindia/105314)
 
 ---
