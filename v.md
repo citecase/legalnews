@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-17T13:32:30+00:00*
+*Last Updated: 2026-02-17T16:03:07+00:00*
+
+---
+
+### 2026-02-17T16:03:07+00:00
+Assistant Legal Aid Defence Counsel Vacancy At District Legal Services Authority
+https://www.verdictum.in/job-updates/district-legal-services-authority-dlsa-1607810
+
+[Source Link](https://t.me/verdictumlegalupdates/25464)
+
+---
+
+### 2026-02-17T15:33:05+00:00
+Mere Levy Of High Interest Rate On Loan Amount Does Not Constitute Abetment To Suicide Absent Any Overt Acts: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/smt-sunil-v-state-govt-of-nct-of-delhi-ors-2026dhc1321-suicide-abetment-1607806
+
+[Source Link](https://t.me/verdictumlegalupdates/25463)
+
+---
+
+### 2026-02-17T15:02:24+00:00
+Commissioner Need Not Furnish “Reasons To Believe” U/S 69 CGST Act To Accused; Failure To Supply ‘Grounds Of Arrest’ Renders Remand Illegal: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/jai-kumar-aggarwal-v-directorate-general-of-gst-intelligence-ors-2026ahc32796-db-1607805
+
+[Source Link](https://t.me/verdictumlegalupdates/25462)
+
+---
+
+### 2026-02-17T14:32:23+00:00
+Employer Must Accept Resignation Unless Contract Violated Or Disciplinary Proceedings Pending: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/greevas-job-panakkal-v-traco-cable-company-limited-ors-2026ker12335-1607809
+
+[Source Link](https://t.me/verdictumlegalupdates/25461)
+
+---
+
+### 2026-02-17T14:03:02+00:00
+Writ Petition Against NCDRC Order Not Maintainable When All Respondents Are Private Parties; Remedy Lies Under Article 227: Calcutta High Court
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/dr-tripti-das-anr-v-dr-phani-bhusan-mandal-ors-ncdrc-article-226-1607808
+
+[Source Link](https://t.me/verdictumlegalupdates/25460)
 
 ---
 
@@ -121,46 +161,6 @@ Conduct Alone Cannot Establish Guilt: Allahabad High Court Acquits Murder Accuse
 https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/shiv-pujan-verma-v-state-of-up-2026ahc-lko11396-db-prosecution-benefit-of-doubt-conviction-murder-circumstantial-evidence-1607736
 
 [Source Link](https://t.me/verdictumlegalupdates/25445)
-
----
-
-### 2026-02-17T06:03:01+00:00
-Legal Heirs To Pay Fine From Accounts Inherited From Him: Kerala High Court Upholds Deceased Contractor’s Conviction In Corruption Case
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/to-abraham-v-state-of-kerala-2026ker9212-contractor-engineer-corruption-deceased-1607732
-
-[Source Link](https://t.me/verdictumlegalupdates/25444)
-
----
-
-### 2026-02-17T05:33:00+00:00
-Merely Because Candidate Belongs To ST Category Doesn’t Mandate Relaxation In Criteria For Appointment In SFIO: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/anant-kumar-rao-v-union-public-service-commission-2026dhc1221-db-candidate-st-category-appointment-serious-fraud-investigation-office-1607727
-
-[Source Link](https://t.me/verdictumlegalupdates/25443)
-
----
-
-### 2026-02-17T05:02:18+00:00
-Life Imprisonment To Be Awarded In Rarest Of Rare Cases Of Brutal Killing: Allahabad High Court Reduces Accused's Life Term To 10 Years In Dowry Death Case
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/shakeel-ahmad-and-another-v-state-of-up-2026ahc32236-db-life-imprisonment-rarest-of-rare-cases-bride-dowry-death-1607721
-
-[Source Link](https://t.me/verdictumlegalupdates/25442)
-
----
-
-### 2026-02-17T04:33:27+00:00
-Cognizance Under SC/ST Act Must Be Supported by Reasons; Cryptic Order Unsustainable: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/nisha-v-nair-v-state-of-kerala-2026ker10639-scst-act-protest-petition-cognizance-speaking-order-cryptic-1607690
-
-[Source Link](https://t.me/verdictumlegalupdates/25441)
-
----
-
-### 2026-02-16T16:02:57+00:00
-District Legal Services Authority (DLSA), Sonepur Invites Applications For The Post Of Legal Aid Defence Counsels
-https://www.verdictum.in/job-updates/district-legal-services-authority-1607689
-
-[Source Link](https://t.me/verdictumlegalupdates/25440)
 
 ---
 
