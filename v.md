@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-16T16:02:57+00:00*
+*Last Updated: 2026-02-17T07:32:45+00:00*
+
+---
+
+### 2026-02-17T07:32:45+00:00
+Teacher Recruitment Must Prioritise Merit as They Shape Future Citizenry: Andhra Pradesh High Court Warns Against Quality Dilution
+https://www.verdictum.in/court-updates/high-courts/andhra-pradesh-high-court/kamireddy-bhavani-v-state-of-andhra-pradesh-wpnos23243-and-23487-of-2025-merit-teacher-recruitment-secondary-1607743
+
+[Source Link](https://t.me/verdictumlegalupdates/25447)
+
+---
+
+### 2026-02-17T07:02:24+00:00
+Precautionary Principle Overrides Sectoral Pollution Index: Supreme Court Strikes Down CPCB’s Downgrade Of Cement Grinding Units Near Schools
+https://www.verdictum.in/court-updates/supreme-court/harbinder-singh-sekhon-v-the-state-of-punjab-2026-insc-159-cpcb-cement-unit-schools-environment-protection-judicial-review-1607745
+
+[Source Link](https://t.me/verdictumlegalupdates/25446)
+
+---
+
+### 2026-02-17T06:32:42+00:00
+Conduct Alone Cannot Establish Guilt: Allahabad High Court Acquits Murder Accused
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/shiv-pujan-verma-v-state-of-up-2026ahc-lko11396-db-prosecution-benefit-of-doubt-conviction-murder-circumstantial-evidence-1607736
+
+[Source Link](https://t.me/verdictumlegalupdates/25445)
+
+---
+
+### 2026-02-17T06:03:01+00:00
+Legal Heirs To Pay Fine From Accounts Inherited From Him: Kerala High Court Upholds Deceased Contractor’s Conviction In Corruption Case
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/to-abraham-v-state-of-kerala-2026ker9212-contractor-engineer-corruption-deceased-1607732
+
+[Source Link](https://t.me/verdictumlegalupdates/25444)
+
+---
+
+### 2026-02-17T05:33:00+00:00
+Merely Because Candidate Belongs To ST Category Doesn’t Mandate Relaxation In Criteria For Appointment In SFIO: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/anant-kumar-rao-v-union-public-service-commission-2026dhc1221-db-candidate-st-category-appointment-serious-fraud-investigation-office-1607727
+
+[Source Link](https://t.me/verdictumlegalupdates/25443)
+
+---
+
+### 2026-02-17T05:02:18+00:00
+Life Imprisonment To Be Awarded In Rarest Of Rare Cases Of Brutal Killing: Allahabad High Court Reduces Accused's Life Term To 10 Years In Dowry Death Case
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/shakeel-ahmad-and-another-v-state-of-up-2026ahc32236-db-life-imprisonment-rarest-of-rare-cases-bride-dowry-death-1607721
+
+[Source Link](https://t.me/verdictumlegalupdates/25442)
+
+---
+
+### 2026-02-17T04:33:27+00:00
+Cognizance Under SC/ST Act Must Be Supported by Reasons; Cryptic Order Unsustainable: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/nisha-v-nair-v-state-of-kerala-2026ker10639-scst-act-protest-petition-cognizance-speaking-order-cryptic-1607690
+
+[Source Link](https://t.me/verdictumlegalupdates/25441)
 
 ---
 
@@ -105,62 +161,6 @@ Benefit Of Probation Removes Disqualification Attached To Conviction For Public 
 https://www.verdictum.in/court-updates/high-courts/delhi-high-court/union-of-india-v-rajesh-2026dhc572-db-probation-employee-airport-authority-of-india-conviction-disqualification-1607656
 
 [Source Link](https://t.me/verdictumlegalupdates/25428)
-
----
-
-### 2026-02-16T09:32:41+00:00
-Mentioning Names Of Judges While Giving Reference To Judgments In Counter Affidavit Totally Uncalled for: Allahabad High Court Warns CGST Officer
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/alice-lee-li-tengli-v-union-of-india-2026ahc28109-names-judges-reference-judgments-counter-affidavit-cgst-officer-1607655
-
-[Source Link](https://t.me/verdictumlegalupdates/25427)
-
----
-
-### 2026-02-16T09:02:49+00:00
-Man Convicted For Dowry Death Offence Disqualified From Inheriting Wife’s Property: Kerala High Court Invokes “Slayer Rule" Doctrine
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/vijayan-v-appukuttan-palraj-2026ker8018-sections-498a-304b-ipc-disqualified-inheriting-wifes-property-1607652
-
-[Source Link](https://t.me/verdictumlegalupdates/25426)
-
----
-
-### 2026-02-16T08:22:48+00:00
-Why Should We Become Political Battleground During Elections: Supreme Court Refuses To Entertain Pleas Seeking Action Against Assam CM Himanta Sarma
-https://www.verdictum.in/court-updates/supreme-court/refuses-pleas-seeking-action-against-assam-cm-himanta-sarma-communal-hate-speeches-1607644
-
-[Source Link](https://t.me/verdictumlegalupdates/25425)
-
----
-
-### 2026-02-16T08:03:07+00:00
-Self Acquired Property Of Hindu Male Devolving After Enactment of Hindu Succession Act Is Held Individually Not As Coparcenary: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/santha-ors-v-raghavendran-ors2026ker12551-hindu-succession-act-1607641
-
-[Source Link](https://t.me/verdictumlegalupdates/25424)
-
----
-
-### 2026-02-16T07:32:26+00:00
-Sensitive Issue, About Balancing Competing Interests: Supreme Court Issues Notice In Plea Challenging Constitutional Validity Of Digital Personal Data Protection Act
-https://www.verdictum.in/court-updates/supreme-court/issues-notice-plea-challenging-constitutional-validity-digital-personal-data-protection-act-1607636
-
-[Source Link](https://t.me/verdictumlegalupdates/25423)
-
----
-
-### 2026-02-16T06:53:04+00:00
-Supreme Court’s 9-Judge Bench To Commence Hearing On Definition Of Word ‘Industry' From March 17
-https://www.verdictum.in/court-updates/supreme-court/supreme-courts-9-judge-bench-to-commence-hearing-on-definition-of-word-industry-from-march-17-1607624
-
-[Source Link](https://t.me/verdictumlegalupdates/25422)
-
----
-
-### 2026-02-16T06:14:23+00:00
-Breaking| Supreme Court's Nine Judges Bench To Hear Review Of 2018 Sabarimala Judgment From April 7
-https://www.verdictum.in/court-updates/supreme-court/9jb-review-2018-sabarimala-judgment-allowed-women-of-all-ages-to-enter-lord-ayyappa-temple-april-1607622
-
-[Source Link](https://t.me/verdictumlegalupdates/25421)
 
 ---
 
