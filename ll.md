@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-17T12:57:44+00:00*
+*Last Updated: 2026-02-18T05:39:39+00:00*
 
 ---
 
-### 2026-02-17T12:57:44+00:00
-Accusing Wife Of Extramarital Affair Is Mental Cruelty, Ground To Live Apart: Karnataka High Court Denies Divorce To Husband Claiming Desertion
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-wife-extra-marital-affair-husband-divorce-desertion-523501
+### 2026-02-18T05:39:39+00:00
+2026 LiveLaw (SC) 168 | IN RE: ORDER DATED 17.03.2025 PASSED BY THE HIGH COURT OF JUDICATURE AT ALLAHABAD IN CRIMINAL REVISION NO. 1449/2024 AND ANCILLARY ISSUES
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-168-in-re-order-dated-17032025-passed-by-the-high-court-of-judicature-at-allahabad-in-criminal-revision-no-14492024-and-ancillary-issues-523586
 
-[Read on Telegram](https://t.me/livelawindia/105313)
-
----
-### 2026-02-17T13:13:04+00:00
-Right To Travel Not Absolute In Economic Offences: Calcutta High Court Declines Relief To Ex-Pharma Employee In ₹1300 Crore SFIO Probe
-https://www.livelaw.in/high-court/calcutta-high-court/right-to-travel-not-absolute-in-economic-offences-calcutta-high-court-declines-relief-to-ex-pharma-employee-in-1300-crore-sfio-probe-523406
-
-[Read on Telegram](https://t.me/livelawindia/105314)
+[Read on Telegram](https://t.me/livelawindia/105357)
 
 ---
-### 2026-02-17T13:31:04+00:00
-Rajasthan HC Acting CJ Orders Action Against 8 Judicial Officers After Finding Them Absent During Surprise Inspection At District Court
-https://www.livelaw.in/high-court/rajasthan-high-court/surprise-inspection-by-rajasthan-high-court-acting-cj-finds-8-judges-missing-in-jodhpur-district-court-officers-placed-under-awaiting-posting-orders-523503
+### 2026-02-18T05:39:59+00:00
+Assistant Professor Vacancy At Cochin University Of Science And Technology
+https://www.livelaw.in/job-updates/assistant-professor-vacancy-at-cochin-university-of-science-and-technology-523588
 
-[Read on Telegram](https://t.me/livelawindia/105315)
-
----
-### 2026-02-17T13:32:44+00:00
-Chartered Accountants, Company Secretaries Can't Appear Before Tribunals: BCI, Tax Lawyers Association Tell Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/chartered-accountants-company-secretaries-cant-appear-before-tribunals-bci-tax-lawyers-association-tell-delhi-high-court-523500
-
-[Read on Telegram](https://t.me/livelawindia/105316)
+[Read on Telegram](https://t.me/livelawindia/105358)
 
 ---
-### 2026-02-17T13:47:25+00:00
-Mandatory Veg/ Non-Veg Labelling On Toothpastes Under Review: Delhi High Court Seeks Joint Decision By Regulatory Authorities
-https://www.livelaw.in/high-court/delhi-high-court/mandatory-veg-non-veg-labelling-on-toothpastes-under-review-delhi-high-court-seeks-joint-decision-by-regulatory-authorities-523504
+### 2026-02-18T05:41:19+00:00
+Chief Legal Aid Defence Counsel Vacancy At District Legal Services Authority, Sonepur
+https://www.livelaw.in/job-updates/chief-legal-aid-defence-counsel-vacancy-at-district-legal-services-authority-sonepur-523589
 
-[Read on Telegram](https://t.me/livelawindia/105317)
-
----
-### 2026-02-17T14:02:55+00:00
-Land Acquisition Award Can Be Executed Through Multiple Petitions Till Full Realisation; S.38 CPC Not Applicable: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/land-acquisition-award-can-be-executed-through-multiple-petitions-till-full-realisation-s38-cpc-not-applicable-calcutta-high-court-523394
-
-[Read on Telegram](https://t.me/livelawindia/105318)
+[Read on Telegram](https://t.me/livelawindia/105359)
 
 ---
-### 2026-02-17T14:42:35+00:00
-Changing Rules Midway Vitiates Recruitment, Mere Participation Of Candidates Does Not Create Estoppel & Cure Illegality: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-changing-rules-midway-vitiates-recruitment-mere-participation-of-candidates-does-not-create-estoppel-cure-illegality-523505
+### 2026-02-18T05:47:59+00:00
+Kerala High Court Orders Operationalisation Of e-Prison Portal In Two Weeks To Prevent Prolonged Detention Of Undertrials
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-e-prison-portal-kelsa-sop-523539
 
-[Read on Telegram](https://t.me/livelawindia/105319)
-
----
-### 2026-02-17T14:45:55+00:00
-S. 27 Evidence Act | Disclosure Statements Made Outside Police Custody Not Admissible : Supreme Court
-https://www.livelaw.in/supreme-court/s-27-evidence-act-disclosure-statements-made-outside-police-custody-not-admissible-supreme-court-523514
-
-[Read on Telegram](https://t.me/livelawindia/105320)
+[Read on Telegram](https://t.me/livelawindia/105360)
 
 ---
-### 2026-02-17T14:50:15+00:00
-2026 LiveLaw (SC) 164 | Rohit Jangde Versus The State of Chhattisgarh
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-164-rohit-jangde-versus-the-state-of-chhattisgarh-523515
+### 2026-02-18T05:52:19+00:00
+Compensation To Victim Not Substitute For Punishment In Grave Offences : Supreme Court
+https://www.livelaw.in/supreme-court/compensation-to-victim-not-substitute-for-punishment-in-grave-offences-supreme-court-523593
 
-[Read on Telegram](https://t.me/livelawindia/105321)
-
----
-### 2026-02-17T14:52:15+00:00
-From Rights Recognition To Resource Deficit: Implementation Realities After Dr. Jaya Thakur v. Union Of India
-https://www.livelaw.in/lawschool/articles/rights-recognition-resource-deficit-menstrual-health-523516
-
-[Read on Telegram](https://t.me/livelawindia/105322)
+[Read on Telegram](https://t.me/livelawindia/105361)
 
 ---
-### 2026-02-17T14:59:05+00:00
-'National Security Paramount': Supreme Court Upholds Dismissal Of BSF Officer For Cattle Smuggling Across Indo-Bangladesh Border
-https://www.livelaw.in/top-stories/supreme-court-dismisses-bsf-officer-for-cattle-smuggling-across-indo-bangladesh-border-523517
+### 2026-02-18T05:53:19+00:00
+2026 LiveLaw (SC) 169 | PARAMESHWARI VERSUS THE STATE OF TAMIL NADU & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-169-parameshwari-versus-the-state-of-tamil-nadu-ors-523594
 
-[Read on Telegram](https://t.me/livelawindia/105323)
-
----
-### 2026-02-17T15:00:25+00:00
-2026 LiveLaw (SC) 165 |  Bhagirath Choudhary v. Border Security Force
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-165-bhagirath-choudhary-v-border-security-force-523518
-
-[Read on Telegram](https://t.me/livelawindia/105324)
+[Read on Telegram](https://t.me/livelawindia/105362)
 
 ---
-### 2026-02-17T15:03:25+00:00
-Calcutta High Court Acquits Convicts In Almost 40-Year-Old Culpable Homicide Case, Cites Witnesses' "Unnatural Conduct"
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-acquits-convicts-in-almost-40-year-old-culpable-homicide-case-cites-witnesses-unnatural-conduct-523412
+### 2026-02-18T06:02:19+00:00
+Gauhati High Court Grants Bail To Man Arrested For Posting Objectionable Facebook Comment On Red Fort Blast
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-grants-bail-man-arrested-posting-objectionable-facebook-comment-red-fort-blast-523540
 
-[Read on Telegram](https://t.me/livelawindia/105325)
-
----
-### 2026-02-17T15:37:50+00:00
-2026 LiveLaw (SC) 166 | GUDIPALLI SIDDHARTHA REDDY v STATE C.B.I
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-166-gudipalli-siddhartha-reddy-v-state-cbi-523522
-
-[Read on Telegram](https://t.me/livelawindia/105326)
+[Read on Telegram](https://t.me/livelawindia/105363)
 
 ---
-### 2026-02-17T15:48:50+00:00
-Surviving Partner In Mutual Suicide Pact Liable For Abetment :Supreme Court
-https://www.livelaw.in/supreme-court/surviving-partner-in-mutual-suicide-pact-liable-for-abetment-supreme-court-523523
+### 2026-02-18T06:07:59+00:00
+Will Must Be Respected Unless Suspicious Circumstances Are Proved; Unequal Distribution Not Grounds To Deny Probate: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/will-must-be-respected-unless-suspicious-circumstances-are-proved-unequal-distribution-not-grounds-to-deny-probate-calcutta-high-court-523579
 
-[Read on Telegram](https://t.me/livelawindia/105327)
-
----
-### 2026-02-17T16:21:30+00:00
-No Conversion Angle In Suicide Of Tamil Nadu School Girl In 2022 : CBI Informs Supreme Court
-https://www.livelaw.in/top-stories/no-conversion-angle-in-suicide-of-tamil-nadu-school-girl-in-2022-cbi-informs-supreme-court-523527
-
-[Read on Telegram](https://t.me/livelawindia/105328)
+[Read on Telegram](https://t.me/livelawindia/105364)
 
 ---
-### 2026-02-17T16:22:10+00:00
-Karnataka HC Orders Status Quo In Commune-1 Dispute; Earlier Interim Stay On Maintenance By Co-operative Society To Continue
-https://www.livelaw.in/law-firms/litigation/karnataka-hc-orders-status-quo-commune-1-dispute-earlier-interim-stay-maintenance-co-operative-society-continue-523528
+### 2026-02-18T06:17:59+00:00
+Jammu & Kashmir And Ladakh High Court Weekly Roundup February 9 - February 15, 2026
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-weekly-roundup-february-9-february-15-2026-523548
 
-[Read on Telegram](https://t.me/livelawindia/105329)
-
----
-### 2026-02-17T16:32:20+00:00
-Supreme Court Daily Round-Up : February 16, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-february-16-2026-523350
-
-[Read on Telegram](https://t.me/livelawindia/105330)
+[Read on Telegram](https://t.me/livelawindia/105365)
 
 ---
-### 2026-02-17T16:39:40+00:00
-UP Govt Admits Woman Died Due To Wrong Blood Transfusion At SRN Hospital; High Court Forms Panel To Fix Lapses, Mulls Compensation
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-up-govt-woman-died-wrong-blood-transfusion-srn-hospital-lapses-compensation-523531
+### 2026-02-18T06:18:09+00:00
+'Erroneous': Supreme Court Sets Aside HC Verdict That Grabbing Minor's Breasts, Loosening Pyjama String Wasn't Rape Attempt
+https://www.livelaw.in/supreme-court/supreme-court-sets-aside-allahabad-hc-verdict-that-grabbing-minors-breasts-loosening-pyjama-string-wasnt-rape-attempt-523598
 
-[Read on Telegram](https://t.me/livelawindia/105331)
+[Read on Telegram](https://t.me/livelawindia/105366)
 
 ---
-### 2026-02-17T17:02:40+00:00
-Supreme Court Daily Round-Up : February 17, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-february-17-2026-523529
+### 2026-02-18T06:28:10+00:00
+'ED Has Been Weaponised', 'No, ED Was Terrorised' : Exchange In Supreme Court Plea Against Mamata Banerjee
+https://www.livelaw.in/top-stories/ed-has-been-weaponised-no-ed-was-terrorised-exchange-in-supreme-court-plea-against-mamata-banerjee-523599
 
-[Read on Telegram](https://t.me/livelawindia/105332)
+[Read on Telegram](https://t.me/livelawindia/105367)
+
+---
+### 2026-02-18T06:32:50+00:00
+Gauhati High Court Quashes Child Marriage, POCSO Case As Couple Married, Living Together With Child
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-trial-futile-parties-married-living-together-quashes-case-s528-bnss-523541
+
+[Read on Telegram](https://t.me/livelawindia/105368)
+
+---
+### 2026-02-18T06:33:00+00:00
+Delhi High Court Refuses To Quash CBI Case Against Due Diligence Firm In ₹600 Lakh Bank Loan Fraud Case
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-to-quash-cbi-case-against-due-diligence-firm-in-600-lakh-bank-loan-fraud-case-523545
+
+[Read on Telegram](https://t.me/livelawindia/105369)
+
+---
+### 2026-02-18T06:37:10+00:00
+Principles For Bail In Heinous Crimes Must Apply To Serious Economic Offences : Supreme Court
+https://www.livelaw.in/supreme-court/principles-for-bail-in-heinous-crimes-must-apply-to-serious-economic-offences-supreme-court-523600
+
+[Read on Telegram](https://t.me/livelawindia/105370)
+
+---
+### 2026-02-18T06:38:10+00:00
+2026 LiveLaw (SC) 170 | RAKESH MITTAL VERSUS AJAY PAL GUPTA, ALIAS SONU CHAUDHARY & ANR.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-170-rakesh-mittal-versus-ajay-pal-gupta-alias-sonu-chaudhary-anr-523601
+
+[Read on Telegram](https://t.me/livelawindia/105371)
+
+---
+### 2026-02-18T06:40:10+00:00
+Sabarimala Gold Theft: Kerala Court Grants Bail To Senior Thantri Kandararu Rajeevaru
+https://www.livelaw.in/news-updates/kerala-kollam-vigilance-court-rajeev-thantri-sabarimala-gold-theft-523603
+
+[Read on Telegram](https://t.me/livelawindia/105372)
+
+---
+### 2026-02-18T06:58:10+00:00
+Transgender Persons Act | DM's Certificate Conclusive Proof Of Gender; Passport Authority Can't Demand Medical Test: Allahabad HC
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-transgender-persons-act-dm-certificate-conclusive-proof-gender-passport-medical-test-523607
+
+[Read on Telegram](https://t.me/livelawindia/105373)
+
+---
+### 2026-02-18T07:02:10+00:00
+Delhi Consumer Commission Holds Samsung India Liable For Not Delivering Complimentary Bezel Promised In Advertisement
+https://www.livelaw.in/arbitration-cases/delhi-consumer-commission-holds-samsung-india-liable-for-not-delivering-complimentary-bezel-promised-in-advertisement-523570
+
+[Read on Telegram](https://t.me/livelawindia/105374)
+
+---
+### 2026-02-18T07:03:10+00:00
+Gujarat High Court Cautions Trial Judges To Avoid Drafting Mistakes In Judgments, After Finding Copy-Paste Errors In Arbitration Order
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-commercial-court-drafting-mistakes-judgments-error-523602
+
+[Read on Telegram](https://t.me/livelawindia/105375)
+
+---
+### 2026-02-18T07:05:10+00:00
+Anjel Chakma Murder : Supreme Court Asks Attorney General To Examine Plea Seeking Guidelines Against Racial Violence
+https://www.livelaw.in/top-stories/anjel-chakma-murder-supreme-court-asks-attorney-general-to-examine-plea-seeking-guidelines-against-racial-violence-523608
+
+[Read on Telegram](https://t.me/livelawindia/105376)
 
 ---
