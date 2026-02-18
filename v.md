@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-18T07:32:45+00:00*
+*Last Updated: 2026-02-18T13:33:02+00:00*
+
+---
+
+### 2026-02-18T13:33:02+00:00
+No Independent Witness Examined Though Incident Occurred In Populated Locality: Calcutta High Court Acquits 1985 Murder Convicts After 38 Years
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/bishnupada-choudhury-v-state-of-west-bengal-2026chc-as260-shaky-fir-witness-unnatural-conduct-prosecution-acquit-1985-1607931
+
+[Source Link](https://t.me/verdictumlegalupdates/25483)
+
+---
+
+### 2026-02-18T13:02:50+00:00
+Additional Intake Cannot Be Denied Solely On Unsubstantiated Need Assessment: Madras High Court Directs BCI To Reconsider Applications By Law Colleges
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/kmc-college-of-law-v-the-state-of-tamil-nadu-wpnos48845-of-2025-batch-bci-moratorium-merit-not-need-basis-policy-1607930
+
+[Source Link](https://t.me/verdictumlegalupdates/25482)
+
+---
+
+### 2026-02-18T12:32:48+00:00
+Nepotism & Self-Aggrandizement Anathema To Democratic System: Supreme Court Imposes Rs 1 Lakh Cost For HEWO’s Allotment Citing Favouritism
+https://www.verdictum.in/court-updates/supreme-court/cause-title-dinesh-kumar-v-the-state-of-haryana-2026-insc-163-nepotism-anathema-democratic-system-hewo-allotment-1607917
+
+[Source Link](https://t.me/verdictumlegalupdates/25481)
+
+---
+
+### 2026-02-18T12:03:06+00:00
+Unnotified Draft Recruitment Rules Cannot Govern Selection; Recruitment Vitiated Ab Initio If Criteria Altered Midway: J&K And Ladakh High Court
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/sapna-devi-anr-v-sheetal-ors-cw-jk-services-selection-board-v-sheetal-ors-1607918
+
+[Source Link](https://t.me/verdictumlegalupdates/25480)
+
+---
+
+### 2026-02-18T11:33:05+00:00
+Evidence U/S. 8 Of Evidence Act Only Corroborative; Cannot By Itself Result In Conviction: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/rohit-jangde-v-the-state-of-chhattisgarh-2026-insc-162-section-8-evidence-1607916
+
+[Source Link](https://t.me/verdictumlegalupdates/25479)
+
+---
+
+### 2026-02-18T11:03:04+00:00
+Magistrate Can Commit Case To Court Of Sessions U/S.209 Or 323 Of CrPC Even During Course Of Trial: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/rakesh-mittal-v-ajay-pal-gupta-sonu-chaudhary-2026-insc-161-magistrate-case-court-of-sessions-sections-209-323-crpc-1607910
+
+[Source Link](https://t.me/verdictumlegalupdates/25478)
+
+---
+
+### 2026-02-18T10:32:22+00:00
+Supreme Court Refuses To Grant Anticipatory Bail To CA For Alleged Money Laundering Of Rs 640 Crores In Cyber Fraud Case
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-refuses-to-grant-anticipatory-bail-to-ca-for-alleged-money-laundering-of-rs-640-crores-in-cyber-fraud-case-1607908
+
+[Source Link](https://t.me/verdictumlegalupdates/25477)
+
+---
+
+### 2026-02-18T10:03:01+00:00
+Supreme Court Grants Bail To Another Accused In 2024 Pune Porsche Accident Case
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-grants-bail-to-another-accused-in-2024-pune-porsche-accident-case-1607902
+
+[Source Link](https://t.me/verdictumlegalupdates/25476)
+
+---
+
+### 2026-02-18T09:32:40+00:00
+Crime Is A Crime, Must Be Dealt With An Iron Hand: Apex Court Asks Attorney General To Consider Plea Seeking Prevention Of Discrimination & Violence Against Citizens Of North-East Region
+https://www.verdictum.in/court-updates/supreme-court/crime-is-a-crime-must-be-dealt-with-an-iron-hand-apex-court-asks-attorney-general-to-consider-plea-seeking-prevention-of-discrimination-violence-against-citizens-of-north-east-region-1607900
+
+[Source Link](https://t.me/verdictumlegalupdates/25475)
+
+---
+
+### 2026-02-18T09:02:49+00:00
+Supreme Court Asks Uttarakhand High Court To Decide Pleas Of Aviation Firm Against Temporary Acquisition Of Private Helipad By State
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-asks-uttarakhand-high-court-to-decide-pleas-of-aviation-firm-against-temporary-acquisition-of-private-helipad-by-state-1607898
+
+[Source Link](https://t.me/verdictumlegalupdates/25474)
+
+---
+
+### 2026-02-18T08:32:48+00:00
+"Use Simple Language, Avoid Complicated Expressions": Supreme Court Asks NJAC To Form Committee To Draft Guidelines On Judicial Sensitivity In Sexual Offence Cases
+https://www.verdictum.in/court-updates/supreme-court/2026-insc-165-in-reorder-dated-17032025-passed-by-the-high-court-of-judicature-at-allahabad-1607896
+
+[Source Link](https://t.me/verdictumlegalupdates/25473)
+
+---
+
+### 2026-02-18T08:03:06+00:00
+Inevitably A Case For Invoking Offence Of Attempt To Rape: Supreme Court Sets Aside Controversial Allahabad High Court Decision On Sexual Assault
+https://www.verdictum.in/court-updates/supreme-court/2026-insc-165-in-reorder-dated-17032025-passed-by-the-high-court-of-judicature-at-allahabad-1607892
+
+[Source Link](https://t.me/verdictumlegalupdates/25472)
 
 ---
 
@@ -65,102 +161,6 @@ Assistant Legal Aid Defence Counsel Vacancy At District Legal Services Authority
 https://www.verdictum.in/job-updates/district-legal-services-authority-dlsa-1607810
 
 [Source Link](https://t.me/verdictumlegalupdates/25464)
-
----
-
-### 2026-02-17T15:33:05+00:00
-Mere Levy Of High Interest Rate On Loan Amount Does Not Constitute Abetment To Suicide Absent Any Overt Acts: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/smt-sunil-v-state-govt-of-nct-of-delhi-ors-2026dhc1321-suicide-abetment-1607806
-
-[Source Link](https://t.me/verdictumlegalupdates/25463)
-
----
-
-### 2026-02-17T15:02:24+00:00
-Commissioner Need Not Furnish “Reasons To Believe” U/S 69 CGST Act To Accused; Failure To Supply ‘Grounds Of Arrest’ Renders Remand Illegal: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/jai-kumar-aggarwal-v-directorate-general-of-gst-intelligence-ors-2026ahc32796-db-1607805
-
-[Source Link](https://t.me/verdictumlegalupdates/25462)
-
----
-
-### 2026-02-17T14:32:23+00:00
-Employer Must Accept Resignation Unless Contract Violated Or Disciplinary Proceedings Pending: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/greevas-job-panakkal-v-traco-cable-company-limited-ors-2026ker12335-1607809
-
-[Source Link](https://t.me/verdictumlegalupdates/25461)
-
----
-
-### 2026-02-17T14:03:02+00:00
-Writ Petition Against NCDRC Order Not Maintainable When All Respondents Are Private Parties; Remedy Lies Under Article 227: Calcutta High Court
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/dr-tripti-das-anr-v-dr-phani-bhusan-mandal-ors-ncdrc-article-226-1607808
-
-[Source Link](https://t.me/verdictumlegalupdates/25460)
-
----
-
-### 2026-02-17T13:32:30+00:00
-Disability Pension Can't Be Awarded To Army Personnel If Disease Was Attributable To Smoking: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/sarevesh-kumar-v-union-of-india-civil-appeal-no-773-2024-1607815
-
-[Source Link](https://t.me/verdictumlegalupdates/25459)
-
----
-
-### 2026-02-17T13:03:09+00:00
-Judicial Orders Don't Affect Fundamental Rights: Supreme Court Dismisses Plea Seeking Declaration Of Its Judgments As Per Incuriam
-https://www.verdictum.in/court-updates/supreme-court/maryama-josh-v-union-of-india-writ-petition-civil-no-113-2026-1607812
-
-[Source Link](https://t.me/verdictumlegalupdates/25458)
-
----
-
-### 2026-02-17T12:33:07+00:00
-Delhi Jal Board Can Exclude Bidders Facing Corruption, PMLA Proceedings: Delhi High Court Upholds Preventive Tender Clause
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/dhanvine-engineering-pvt-ltd-v-delhi-jal-board-2026dhc1164-db-yamuna-river-bidders-tender-fir-pmla-corruption-sewage-treatment-1607800
-
-[Source Link](https://t.me/verdictumlegalupdates/25457)
-
----
-
-### 2026-02-17T12:02:46+00:00
-Victim Was Consenting Party; Record Silent About Transfer Of Indecent Video: Allahabad High Court Quashes Rape Case Against Public Servant
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/neeraj-kumar-and-another-v-state-of-up-2026ahc33341-victim-consenting-party-transfer-indecent-videos-rape-public-servant-1607791
-
-[Source Link](https://t.me/verdictumlegalupdates/25456)
-
----
-
-### 2026-02-17T11:32:25+00:00
-Fraudulent Marriage to Evade Criminal Liability Vitiates Consent: Delhi High Court Upholds Rape and Bigamy Convictions
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/bhagwan-devi-v-state-2026dhc1162-bigamy-rape-minor-married-criminal-liability-consent-1607786
-
-[Source Link](https://t.me/verdictumlegalupdates/25455)
-
----
-
-### 2026-02-17T11:03:24+00:00
-'Absolutely Uncalled For': Supreme Court Expresses Concern Over Growing Trend Of Lawyers Using AI To File Pleas
-https://www.verdictum.in/court-updates/supreme-court/absolutely-uncalled-for-supreme-court-expresses-concern-over-growing-trend-of-lawyers-using-ai-to-file-pleas-1607772
-
-[Source Link](https://t.me/verdictumlegalupdates/25454)
-
----
-
-### 2026-02-17T10:33:02+00:00
-"Case Akin To Crime Thriller": Karnataka High Court Refuses To Quash Proceedings Against Accused Involved In Multi Crore Fake SBI Loan Scam
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/sri-k-balajee-balajee-sha-v-state-of-karnataka-ors-connected-matters-1607764
-
-[Source Link](https://t.me/verdictumlegalupdates/25453)
-
----
-
-### 2026-02-17T09:53:01+00:00
-Supreme Court Reserves Order On Plea Seeking CBI Probe Into Govt. Contracts To Arunachal CM Pema Khandu’s Family Members
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-reserves-order-on-plea-seeking-cbi-probe-into-govt-contracts-to-arunachal-cm-pema-khandus-family-members-1607759
-
-[Source Link](https://t.me/verdictumlegalupdates/25452)
 
 ---
 
