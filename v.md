@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-17T16:03:07+00:00*
+*Last Updated: 2026-02-18T07:32:45+00:00*
+
+---
+
+### 2026-02-18T07:32:45+00:00
+People Undertaking Night Journey Not Uncommon: Delhi High Court Remands Matter To Railway Claims Tribunal For Awarding Compensation
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/priyanka-v-union-of-india-2026dhc1282-railway-claims-tribunal-deceased-bonafide-passenger-train-compensation-1607884
+
+[Source Link](https://t.me/verdictumlegalupdates/25471)
+
+---
+
+### 2026-02-18T07:02:43+00:00
+Contractual Clauses Like ‘As Is Where Is’ and ‘Whatever There Is’ Can’t Preserve Municipal Charge Which Stands Extinguished U/S.53 & 238 Of IBC: Calcutta High Court
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/mamta-binani-anr-vs-kolkata-municipal-corporation-contractual-clauses-like-as-is-where-is-and-whatever-there-is-cant-preserve-municipal-charge-which-stands-extinguished-us53-238-of-ibc-calcutta-high-court-1607871
+
+[Source Link](https://t.me/verdictumlegalupdates/25470)
+
+---
+
+### 2026-02-18T06:18:02+00:00
+No Exhumation Of Buried Bodies Shall Be Permitted: Supreme Court Directs In Plea Challenging Digging Up Of Tribal Christians' Dead Bodies In Chhattisgarh
+https://www.verdictum.in/court-updates/supreme-court/directs-plea-challenging-digging-up-tribal-christians-dead-bodies-chhattisgarh-1607863
+
+[Source Link](https://t.me/verdictumlegalupdates/25469)
+
+---
+
+### 2026-02-18T06:02:41+00:00
+Compensation Cannot Become “Blood Money” In Heinous Offences: Supreme Court Restores 3-Year Sentence Of Convict In Attempt To Murder Case
+https://www.verdictum.in/court-updates/supreme-court/parameshwari-v-state-of-tamil-nadu-2026-insc-164-high-court-reduced-sentence-blood-money-application-of-mind-compensation-1607860
+
+[Source Link](https://t.me/verdictumlegalupdates/25468)
+
+---
+
+### 2026-02-18T05:32:59+00:00
+Section 60 CPC Protection Applies Only In Execution Proceedings; Bank Can Exercise Lien Over Salary Account: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/the-divisional-manager-assistant-manager-canara-bank-v-agi-kumar-s-2026ker11262-1607849
+
+[Source Link](https://t.me/verdictumlegalupdates/25467)
+
+---
+
+### 2026-02-18T05:02:38+00:00
+Reimbursement Request For Daughter’s Treatment At Non-Empanelled Private Hospital Ought To Have Been Sympathetically Considered: Kerala High Court Grants Relief To Govt. Teacher
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/yusuff-am-v-state-of-kerala-2026ker8298-request-reimbursement-daughter-treatment-non-empanelled-private-hospital-1607846
+
+[Source Link](https://t.me/verdictumlegalupdates/25466)
+
+---
+
+### 2026-02-18T04:32:47+00:00
+“Surviving Partner In Mutual Suicide Pact Legally Culpable”: Supreme Court While Holding Telugu Actress' Partner Guilty Of Abetment Of Her Suicide
+https://www.verdictum.in/court-updates/supreme-court/guddipalli-siddhartha-reddy-v-state-cbi-2026-insc-160-suicide-pratyusha-1607840
+
+[Source Link](https://t.me/verdictumlegalupdates/25465)
 
 ---
 
@@ -105,62 +161,6 @@ Supreme Court Reserves Order On Plea Seeking CBI Probe Into Govt. Contracts To A
 https://www.verdictum.in/court-updates/supreme-court/supreme-court-reserves-order-on-plea-seeking-cbi-probe-into-govt-contracts-to-arunachal-cm-pema-khandus-family-members-1607759
 
 [Source Link](https://t.me/verdictumlegalupdates/25452)
-
----
-
-### 2026-02-17T09:12:40+00:00
-Telugu Actress Death: Supreme Court Dismisses Convict's Plea, Directs Him To Surrender
-https://www.verdictum.in/court-updates/supreme-court/telugu-actress-death-supreme-court-dismisses-convicts-plea-directs-him-to-surrender-1607758
-
-[Source Link](https://t.me/verdictumlegalupdates/25451)
-
----
-
-### 2026-02-17T08:42:19+00:00
-Political Leaders Must Ultimately Foster Fraternity: Supreme Court While Hearing Plea Seeking Guidelines On Statements Made by Constitutional Functionaries
-https://www.verdictum.in/court-updates/supreme-court/hearing-plea-seeking-guidelines-statements-made-constitutional-functionaries-himanta-biswa-sarma-speech-1607756
-
-[Source Link](https://t.me/verdictumlegalupdates/25450)
-
----
-
-### 2026-02-17T08:32:27+00:00
-Complaint U/S 138 NI Act Cannot Be Dismissed For Complainant’s Absence When Accused Avoids Trial: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/gopal-prased-sharma-v-state-of-up-anr-and-connected-matters-2026ahc29741-1607754
-
-[Source Link](https://t.me/verdictumlegalupdates/25449)
-
----
-
-### 2026-02-17T08:02:26+00:00
-Magistrate Can’t Ignore IO’s Closure Report After Taking Cognizance; Proceeding Further Without Considering Such Report Amounts To Procedural Illegality: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/sonu-v-state-of-up-2026ahc32574-magistrate-cannot-ignore-io-closure-report-1607749
-
-[Source Link](https://t.me/verdictumlegalupdates/25448)
-
----
-
-### 2026-02-17T07:32:45+00:00
-Teacher Recruitment Must Prioritise Merit as They Shape Future Citizenry: Andhra Pradesh High Court Warns Against Quality Dilution
-https://www.verdictum.in/court-updates/high-courts/andhra-pradesh-high-court/kamireddy-bhavani-v-state-of-andhra-pradesh-wpnos23243-and-23487-of-2025-merit-teacher-recruitment-secondary-1607743
-
-[Source Link](https://t.me/verdictumlegalupdates/25447)
-
----
-
-### 2026-02-17T07:02:24+00:00
-Precautionary Principle Overrides Sectoral Pollution Index: Supreme Court Strikes Down CPCB’s Downgrade Of Cement Grinding Units Near Schools
-https://www.verdictum.in/court-updates/supreme-court/harbinder-singh-sekhon-v-the-state-of-punjab-2026-insc-159-cpcb-cement-unit-schools-environment-protection-judicial-review-1607745
-
-[Source Link](https://t.me/verdictumlegalupdates/25446)
-
----
-
-### 2026-02-17T06:32:42+00:00
-Conduct Alone Cannot Establish Guilt: Allahabad High Court Acquits Murder Accused
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/shiv-pujan-verma-v-state-of-up-2026ahc-lko11396-db-prosecution-benefit-of-doubt-conviction-murder-circumstantial-evidence-1607736
-
-[Source Link](https://t.me/verdictumlegalupdates/25445)
 
 ---
 
