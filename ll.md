@@ -1,114 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-18T10:07:29+00:00*
+*Last Updated: 2026-02-18T11:47:31+00:00*
 
 ---
 
-### 2026-02-18T10:07:29+00:00
-'Patentee Can't Be Made To Suffer For Negligence Of Agent': Orissa High Court Allows Restoration Of Expired Patent Beyond Deadline
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-patentee-agent-negligence-523625
-
-[Read on Telegram](https://t.me/livelawindia/105405)
-
----
-### 2026-02-18T10:10:29+00:00
-Interest Act | Interest Can't Be Claimed On Delayed Payment If Contract Bars It : Supreme Court
-https://www.livelaw.in/supreme-court/interest-act-interest-cant-be-claimed-on-delayed-payment-if-contract-bars-it-supreme-court-523654
-
-[Read on Telegram](https://t.me/livelawindia/105406)
-
----
-### 2026-02-18T10:12:59+00:00
-Telangana High Court Quashes Criminal Proceedings Against Licensed Hookah Lounge Operators, Calls Police Action Abuse Of Process
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-hookah-lounge-operators-cotpa-523552
-
-[Read on Telegram](https://t.me/livelawindia/105407)
-
----
-### 2026-02-18T10:13:09+00:00
-2026 LiveLaw (SC) 172 | THE KERALA WATER AUTHORITY & ORS. VERSUS T I RAJU & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-172-the-kerala-water-authority-ors-versus-t-i-raju-ors-523655
-
-[Read on Telegram](https://t.me/livelawindia/105408)
-
----
-### 2026-02-18T10:22:29+00:00
-Family Pension Received By Heirs Of Deceased Has No Bearing While Considering MACT Compensation: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-family-pension-mact-compensation-523606
-
-[Read on Telegram](https://t.me/livelawindia/105409)
-
----
-### 2026-02-18T10:27:09+00:00
-High Court Seeks Delhi Govt's Stand On Steps Taken To Fill Vacancies In Delhi Commission For Women
-https://www.livelaw.in/high-court/delhi-high-court/high-court-seeks-delhi-govts-stand-on-steps-taken-to-fill-vacancies-in-delhi-commission-for-women-523634
-
-[Read on Telegram](https://t.me/livelawindia/105410)
-
----
-### 2026-02-18T10:36:19+00:00
-Cricketer Md Shami's Wife Approaches Supreme Court To Transfer DV Act, Maintenance Cases From Kolkata To Delhi
-https://www.livelaw.in/top-stories/supreme-court-cricketer-mohammed-shami-wife-plea-for-transfer-of-domestic-violence-act-maintenance-cases-from-kolkata-to-delhi-notice-issued-523659
-
-[Read on Telegram](https://t.me/livelawindia/105411)
-
----
-### 2026-02-18T10:44:21+00:00
-Intimating Arrest Grounds On WhatsApp Sufficient When Relative Unwilling To Appear: Kerala High Court Denies Relief To NDPS Accused
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-whatsapp-message-grounds-arrest-bail-523661
-
-[Read on Telegram](https://t.me/livelawindia/105412)
-
----
-### 2026-02-18T10:48:21+00:00
-State Cannot Have 'Win-Win' Situation By Sitting Over Contractors' Dues For Years & Only Paying Principal Amount: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-state-cannot-have-a-win-win-situation-by-sitting-over-dues-for-years-court-pulls-up-govt-for-withholding-admitted-payments-523555
-
-[Read on Telegram](https://t.me/livelawindia/105413)
-
----
-### 2026-02-18T10:57:01+00:00
-NBDSA Fines Zee News ₹1 Lakh For Unverified 'Truck Par Namaz' Broadcast; Issues Fresh Guidelines On Use Of Social Media Content
-https://www.livelaw.in/news-updates/nbdsa-fines-zee-news-1-lakh-for-unverified-truck-par-namaz-broadcast-issues-fresh-guidelines-on-use-of-social-media-content-523669
-
-[Read on Telegram](https://t.me/livelawindia/105414)
-
----
-### 2026-02-18T11:19:01+00:00
-'No Public Interest, Should Not Engage Judicial Time': Karnataka High Court Rejects PIL Seeking Change Of Ward Name, Imposes ₹5K Cost
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-pil-change-of-ward-name-523678
-
-[Read on Telegram](https://t.me/livelawindia/105415)
-
----
-### 2026-02-18T11:32:21+00:00
-Fabricated Or False Documents In Probe Will Invite Departmental Action: MP High Court Issues Stern Warning To Police
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/fabricated-or-false-documents-in-probe-will-invite-departmental-action-madhya-pradesh-high-court-issues-stern-warning-to-police-523636
-
-[Read on Telegram](https://t.me/livelawindia/105416)
-
----
-### 2026-02-18T11:32:41+00:00
-Jharkhand High Court Drops Contempt Case Against Advocate After SC Intervention; Says Senior Lawyers Must Show Greater Restraint
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-contempt-case-advocate-523676
-
-[Read on Telegram](https://t.me/livelawindia/105417)
-
----
-### 2026-02-18T11:41:11+00:00
-IPR Chair Vacancy At Indian Institute Of Technology, Roorkee
-https://www.livelaw.in/job-updates/ipr-chair-vacancy-at-indian-institute-of-technology-roorkee-523686
-
-[Read on Telegram](https://t.me/livelawindia/105418)
-
----
-### 2026-02-18T11:41:21+00:00
-Advocate's Unauthorized Statement In Court Can't Make Client Liable For Contempt: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-advocate-unauthorized-statement-client-liable-contempt-523687
-
-[Read on Telegram](https://t.me/livelawindia/105419)
-
----
 ### 2026-02-18T11:47:31+00:00
 Kerala High Court Orders Director Of Health Services To Conduct Safety Audit Of All Three Mental Health Centres In State
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-mental-health-centres-audit-523680
@@ -142,5 +37,110 @@ https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-urges-more-j
 https://www.livelaw.in/high-court/jammu-kashmir/jammu-kashmir-high-court-contractual-health-officer-termination-523665
 
 [Read on Telegram](https://t.me/livelawindia/105424)
+
+---
+### 2026-02-18T13:28:07+00:00
+Bombay High Court Criticises Maha Govt Over 'Systemic' Failure In Dealing With Land Acquisition Cases, Asks State To Be In 'Mission Mode'
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-criticises-maha-govt-over-systemic-failure-in-dealing-with-land-acquisition-cases-asks-state-to-be-in-mission-mode-523692
+
+[Read on Telegram](https://t.me/livelawindia/105425)
+
+---
+### 2026-02-18T13:37:47+00:00
+Homoeopathy Practitioner Cannot Prescribe Allopathy Medicines: Telangana High Court Quashes Case For Want Of Complaint U/S 54 NMC Act
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-homeopathy-practitioner-allopathic-medicines-523643
+
+[Read on Telegram](https://t.me/livelawindia/105426)
+
+---
+### 2026-02-18T13:57:27+00:00
+'Child's Continued Stay in Jail May Prejudice Personality Development': J&K&L High Court Grants Bail To Mother After 12 Years' Custody
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-kashmir-high-court-grants-bail-woman-custody-523666
+
+[Read on Telegram](https://t.me/livelawindia/105427)
+
+---
+### 2026-02-18T14:03:07+00:00
+Savings Clause Under Foreigners Act Does Not Authorise Initiation Of Fresh Proceedings After Its Repeal: MP High Court Clarifies
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/immigration-and-foreigners-act-saving-clause-does-not-authorize-initiation-of-fresh-proceedings-under-repealed-foreigners-act-madhya-pradesh-high-curt-523679
+
+[Read on Telegram](https://t.me/livelawindia/105428)
+
+---
+### 2026-02-18T14:22:37+00:00
+Allowing Famous Person Like Elvish Yadav To Use A Voiceless Gives Bad Message : Supreme Court In Snake Venom Case
+https://www.livelaw.in/top-stories/allowing-famous-person-like-elvish-yadav-to-use-a-voiceless-gives-bad-message-supreme-court-in-snake-venom-case-523700
+
+[Read on Telegram](https://t.me/livelawindia/105429)
+
+---
+### 2026-02-18T14:25:57+00:00
+Degrees Obtained Before University Was Declared Defunct Remain Valid : Supreme Court
+https://www.livelaw.in/supreme-court/degrees-obtained-before-university-was-declared-defunct-remain-valid-supreme-court-523702
+
+[Read on Telegram](https://t.me/livelawindia/105430)
+
+---
+### 2026-02-18T14:26:57+00:00
+2026 LiveLaw (SC) 173 | PRIYANKA KUMARI AND ORS. VERSUS THE STATE OF BIHAR AND ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-173-priyanka-kumari-and-ors-versus-the-state-of-bihar-and-ors-523703
+
+[Read on Telegram](https://t.me/livelawindia/105431)
+
+---
+### 2026-02-18T14:40:17+00:00
+Supreme Court Asks 'Baba Khatarnak' To Approach Authorities With Plea To Protect Ganga From Sewage
+https://www.livelaw.in/top-stories/supreme-court-asks-baba-khatarnak-to-approach-authorities-with-plea-to-protect-ganga-from-sewage-523710
+
+[Read on Telegram](https://t.me/livelawindia/105432)
+
+---
+### 2026-02-18T14:57:58+00:00
+Victim Not Supporting Prosecution Case, Non-Corroboration Of Medical Evidence: Karnataka High Court Upholds Acquittal In POCSO Case
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-rape-acquittal-prosecution-medical-evidence-523644
+
+[Read on Telegram](https://t.me/livelawindia/105433)
+
+---
+### 2026-02-18T15:06:18+00:00
+NCDRC Holds Sahaj Ankur Realtors Liable For Failing To Provide Promised Flat Or Alternative Accommodation; Awards ₹3.91 Crore Compensation
+https://www.livelaw.in/consumer-cases/ncdrc-holds-sahaj-ankur-realtors-liable-for-failing-to-provide-promised-flat-or-alternative-accommodation-awards-391-crore-compensation-523714
+
+[Read on Telegram](https://t.me/livelawindia/105434)
+
+---
+### 2026-02-18T15:17:28+00:00
+NI Act | 20% Deposit Is Rule In Cheque Bounce Cases, Waiver Only In Exceptional Circumstances: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-20-deposit-is-the-rule-in-cheque-bounce-cases-waiver-only-in-exceptional-circumstances-523706
+
+[Read on Telegram](https://t.me/livelawindia/105435)
+
+---
+### 2026-02-18T15:27:48+00:00
+From Finality To Flexibility: Post-Gayatri Balasamy Jurisprudence In Indian Arbitration (2025)
+https://www.livelaw.in/articles/gayatri-balasamy-jurisprudence-indian-arbitration-523719
+
+[Read on Telegram](https://t.me/livelawindia/105436)
+
+---
+### 2026-02-18T15:50:28+00:00
+TraceX Guard Mobile Security App Launched to Combat Fake Government Apps and Financial Fraud
+https://www.livelaw.in/tech-law/tracex-guard-mobile-security-app-fake-government-app-fraud-protection-523720
+
+[Read on Telegram](https://t.me/livelawindia/105437)
+
+---
+### 2026-02-18T16:12:18+00:00
+Disabled Lineman Denied Promotion While Juniors Were Elevated: Punjab & Haryana High Court Grants Notional Regularisation
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-disabled-lineman-denied-promotion-while-juniors-elevated-523707
+
+[Read on Telegram](https://t.me/livelawindia/105438)
+
+---
+### 2026-02-18T16:21:18+00:00
+Supreme Court Daily Round-Up : February 18, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-february-18-2026-523723
+
+[Read on Telegram](https://t.me/livelawindia/105439)
 
 ---
