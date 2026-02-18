@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-18T13:33:02+00:00*
+*Last Updated: 2026-02-18T16:02:28+00:00*
+
+---
+
+### 2026-02-18T16:02:28+00:00
+Legal Assistant Vacancy At National Institute of Speech and Hearing (NISH)
+https://www.verdictum.in/job-updates/national-institute-of-speech-and-hearing-1607932
+
+[Source Link](https://t.me/verdictumlegalupdates/25488)
+
+---
+
+### 2026-02-18T15:32:47+00:00
+EWS Income And Asset Certificate Meeting Reservation Eligibility Cannot Be Invalidated For Improper Format: J&K And Ladakh High Court
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/priyanka-rakwal-do-suresh-kumar-wo-sunil-manhas-v-union-territory-of-jammu-kashmir-ors-1607939
+
+[Source Link](https://t.me/verdictumlegalupdates/25487)
+
+---
+
+### 2026-02-18T15:02:26+00:00
+Madhya Pradesh High Court Denies Bail To Doctor & Wife Accused Of Prescribing Coldriff Cough Syrup Causing Death Of Over 26 Children
+https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/dr-praveen-soni-v-state-of-madhya-pradesh-smt-jyoti-soni-v-state-of-madhya-pradesh-2026mphc-jbp13368-1607938
+
+[Source Link](https://t.me/verdictumlegalupdates/25486)
+
+---
+
+### 2026-02-18T14:32:04+00:00
+Ejaculation Without Penetration Constitutes An Attempt To Commit Rape And Not Actual Rape: Chhattisgarh High Court
+https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/vasudeo-gond-v-state-of-chhattisgarh-2026cghc8245-penetration-sine-qua-non-offence-rape-conviction-sec376-1-ipc-1607937
+
+[Source Link](https://t.me/verdictumlegalupdates/25485)
+
+---
+
+### 2026-02-18T14:03:03+00:00
+PFI Was Lawful Until 2018; Mere Leadership Role Alone Cannot Attract Money Laundering: Delhi HC Grants Bail In PMLA Case
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/moideen-kutty-k-v-directorate-of-enforcement-2026dhc1308-pmla-enforcement-directorate-cognizance-incarceration-pre-trial-1607936
+
+[Source Link](https://t.me/verdictumlegalupdates/25484)
 
 ---
 
@@ -121,46 +161,6 @@ No Exhumation Of Buried Bodies Shall Be Permitted: Supreme Court Directs In Plea
 https://www.verdictum.in/court-updates/supreme-court/directs-plea-challenging-digging-up-tribal-christians-dead-bodies-chhattisgarh-1607863
 
 [Source Link](https://t.me/verdictumlegalupdates/25469)
-
----
-
-### 2026-02-18T06:02:41+00:00
-Compensation Cannot Become “Blood Money” In Heinous Offences: Supreme Court Restores 3-Year Sentence Of Convict In Attempt To Murder Case
-https://www.verdictum.in/court-updates/supreme-court/parameshwari-v-state-of-tamil-nadu-2026-insc-164-high-court-reduced-sentence-blood-money-application-of-mind-compensation-1607860
-
-[Source Link](https://t.me/verdictumlegalupdates/25468)
-
----
-
-### 2026-02-18T05:32:59+00:00
-Section 60 CPC Protection Applies Only In Execution Proceedings; Bank Can Exercise Lien Over Salary Account: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/the-divisional-manager-assistant-manager-canara-bank-v-agi-kumar-s-2026ker11262-1607849
-
-[Source Link](https://t.me/verdictumlegalupdates/25467)
-
----
-
-### 2026-02-18T05:02:38+00:00
-Reimbursement Request For Daughter’s Treatment At Non-Empanelled Private Hospital Ought To Have Been Sympathetically Considered: Kerala High Court Grants Relief To Govt. Teacher
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/yusuff-am-v-state-of-kerala-2026ker8298-request-reimbursement-daughter-treatment-non-empanelled-private-hospital-1607846
-
-[Source Link](https://t.me/verdictumlegalupdates/25466)
-
----
-
-### 2026-02-18T04:32:47+00:00
-“Surviving Partner In Mutual Suicide Pact Legally Culpable”: Supreme Court While Holding Telugu Actress' Partner Guilty Of Abetment Of Her Suicide
-https://www.verdictum.in/court-updates/supreme-court/guddipalli-siddhartha-reddy-v-state-cbi-2026-insc-160-suicide-pratyusha-1607840
-
-[Source Link](https://t.me/verdictumlegalupdates/25465)
-
----
-
-### 2026-02-17T16:03:07+00:00
-Assistant Legal Aid Defence Counsel Vacancy At District Legal Services Authority
-https://www.verdictum.in/job-updates/district-legal-services-authority-dlsa-1607810
-
-[Source Link](https://t.me/verdictumlegalupdates/25464)
 
 ---
 
