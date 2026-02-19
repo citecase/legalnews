@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-19T07:26:12+00:00*
+*Last Updated: 2026-02-19T13:32:10+00:00*
+
+---
+
+### 2026-02-19T13:32:10+00:00
+Tribunal Under Senior Citizens Act Can Grant Maintenance But Cannot Order Eviction: Calcutta High Court
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/pushpa-sharma-v-state-of-west-bengal-ors-shyam-sundar-sharma-bablu-v-state-of-west-bengal-ors-1608049
+
+[Source Link](https://t.me/verdictumlegalupdates/25507)
+
+---
+
+### 2026-02-19T13:02:59+00:00
+Not A Fly-By-Night Operator; Had Positive Duty To Verify: Delhi HC Refuses to Quash Criminal Proceedings Against Due Diligence Firm In ₹6 Crore Bank Loan Fraud Case
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/vikas-garg-v-state-2026dhc1359-cbi-due-diligence-agency-6-crore-bank-loan-fraud-1608048
+
+[Source Link](https://t.me/verdictumlegalupdates/25506)
+
+---
+
+### 2026-02-19T12:32:37+00:00
+Kerala High Court Upholds Centre’s Notification Allowing Existing Labour Courts & Industrial Tribunals To Function Under Industrial Relations Code 2020
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/mk-suresh-kumar-v-union-of-india-2026ker14042-old-labour-courts-notification-union-of-india-tribunals-1608047
+
+[Source Link](https://t.me/verdictumlegalupdates/25505)
+
+---
+
+### 2026-02-19T12:02:56+00:00
+Supreme Court Refuses To Entertain Plea Seeking SIR Of Election Rolls In Poll-Bound Assam
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-refuses-to-entertain-plea-seeking-sir-of-election-rolls-in-poll-bound-assam-1608045
+
+[Source Link](https://t.me/verdictumlegalupdates/25504)
+
+---
+
+### 2026-02-19T11:33:15+00:00
+Supreme Court Reserves Judgment On AIADMK Leader's Plea Challenging MK Stalin's Election In 2011
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-reserves-judgment-on-aiadmk-leaders-plea-challenging-mk-stalins-election-in-2011-1608029
+
+[Source Link](https://t.me/verdictumlegalupdates/25503)
+
+---
+
+### 2026-02-19T11:06:39+00:00
+Supreme Court Will Hear Challenge To Citizenship Amendment Act From May 5
+https://www.verdictum.in/court-updates/supreme-court/will-hear-challenge-citizenship-amendment-act-from-may-5-1608032
+
+[Source Link](https://t.me/verdictumlegalupdates/25502)
+
+---
+
+### 2026-02-19T10:32:55+00:00
+University Act Later Struck Down; But It Cannot Nullify Prior Employment Eligibility: Supreme Court Reinstates Terminated Librarians
+https://www.verdictum.in/court-updates/supreme-court/priyanka-kumari-ors-v-state-of-bihar-ors-2026-insc-167-university-1608024
+
+[Source Link](https://t.me/verdictumlegalupdates/25501)
+
+---
+
+### 2026-02-19T10:02:37+00:00
+Awarding Statutory Minimum Sentence Under POCSO Act Not "Enhancement" U/S 386 CrPC: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/santosh-maroti-bhandare-v-state-of-maharashtra-2026bhc-aug6078-pocso-minor-sentence-20-years-not-enhancement-1608021
+
+[Source Link](https://t.me/verdictumlegalupdates/25500)
+
+---
+
+### 2026-02-19T09:33:14+00:00
+IBC| Scope Of Inquiry At CIRP Admission Stage Limited To Existence Of Default Of A Debt Due And Payable And Nothing More: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/power-trust-v-bhuvan-madan-2026insc166-cirp-adjudicating-authority-insolvency-resolution-section-7-1608009
+
+[Source Link](https://t.me/verdictumlegalupdates/25499)
+
+---
+
+### 2026-02-19T09:01:13+00:00
+Second Word Staying Next To First Word Is Causing Grievances: Apex Court Disposes Of Plea After Filmmaker Neeraj Pandey Undertakes To Change Title Of 'Ghooskhor Pandat'
+https://www.verdictum.in/court-updates/supreme-court/disposes-filmmaker-neeraj-pandey-undertakes-title-of-netflix-film-ghooskhor-pandat-1608014
+
+[Source Link](https://t.me/verdictumlegalupdates/25498)
+
+---
+
+### 2026-02-19T08:34:52+00:00
+Coordinate Benches Of High Court Cannot Take Contradictory Views On Same Issue: Supreme Court Restores MIDC Plot Allotment to Highest Bidder
+https://www.verdictum.in/court-updates/supreme-court/sushil-kamalnayan-bharuka-v-state-of-maharashtra-2026-insc-168-tender-bidding-allotment-midc-industrial-1608008
+
+[Source Link](https://t.me/verdictumlegalupdates/25497)
+
+---
+
+### 2026-02-19T08:02:33+00:00
+Economic Development Will Be Hampered With This Kind Of Largesse Distribution: Supreme Court Slams Freebies Culture
+https://www.verdictum.in/court-updates/supreme-court/economic-development-will-be-hampered-with-this-kind-of-largesse-distribution-supreme-court-slams-freebies-culture-1608002
+
+[Source Link](https://t.me/verdictumlegalupdates/25496)
 
 ---
 
@@ -65,102 +161,6 @@ Legal Assistant Vacancy At National Institute of Speech and Hearing (NISH)
 https://www.verdictum.in/job-updates/national-institute-of-speech-and-hearing-1607932
 
 [Source Link](https://t.me/verdictumlegalupdates/25488)
-
----
-
-### 2026-02-18T15:32:47+00:00
-EWS Income And Asset Certificate Meeting Reservation Eligibility Cannot Be Invalidated For Improper Format: J&K And Ladakh High Court
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/priyanka-rakwal-do-suresh-kumar-wo-sunil-manhas-v-union-territory-of-jammu-kashmir-ors-1607939
-
-[Source Link](https://t.me/verdictumlegalupdates/25487)
-
----
-
-### 2026-02-18T15:02:26+00:00
-Madhya Pradesh High Court Denies Bail To Doctor & Wife Accused Of Prescribing Coldriff Cough Syrup Causing Death Of Over 26 Children
-https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/dr-praveen-soni-v-state-of-madhya-pradesh-smt-jyoti-soni-v-state-of-madhya-pradesh-2026mphc-jbp13368-1607938
-
-[Source Link](https://t.me/verdictumlegalupdates/25486)
-
----
-
-### 2026-02-18T14:32:04+00:00
-Ejaculation Without Penetration Constitutes An Attempt To Commit Rape And Not Actual Rape: Chhattisgarh High Court
-https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/vasudeo-gond-v-state-of-chhattisgarh-2026cghc8245-penetration-sine-qua-non-offence-rape-conviction-sec376-1-ipc-1607937
-
-[Source Link](https://t.me/verdictumlegalupdates/25485)
-
----
-
-### 2026-02-18T14:03:03+00:00
-PFI Was Lawful Until 2018; Mere Leadership Role Alone Cannot Attract Money Laundering: Delhi HC Grants Bail In PMLA Case
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/moideen-kutty-k-v-directorate-of-enforcement-2026dhc1308-pmla-enforcement-directorate-cognizance-incarceration-pre-trial-1607936
-
-[Source Link](https://t.me/verdictumlegalupdates/25484)
-
----
-
-### 2026-02-18T13:33:02+00:00
-No Independent Witness Examined Though Incident Occurred In Populated Locality: Calcutta High Court Acquits 1985 Murder Convicts After 38 Years
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/bishnupada-choudhury-v-state-of-west-bengal-2026chc-as260-shaky-fir-witness-unnatural-conduct-prosecution-acquit-1985-1607931
-
-[Source Link](https://t.me/verdictumlegalupdates/25483)
-
----
-
-### 2026-02-18T13:02:50+00:00
-Additional Intake Cannot Be Denied Solely On Unsubstantiated Need Assessment: Madras High Court Directs BCI To Reconsider Applications By Law Colleges
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/kmc-college-of-law-v-the-state-of-tamil-nadu-wpnos48845-of-2025-batch-bci-moratorium-merit-not-need-basis-policy-1607930
-
-[Source Link](https://t.me/verdictumlegalupdates/25482)
-
----
-
-### 2026-02-18T12:32:48+00:00
-Nepotism & Self-Aggrandizement Anathema To Democratic System: Supreme Court Imposes Rs 1 Lakh Cost For HEWO’s Allotment Citing Favouritism
-https://www.verdictum.in/court-updates/supreme-court/cause-title-dinesh-kumar-v-the-state-of-haryana-2026-insc-163-nepotism-anathema-democratic-system-hewo-allotment-1607917
-
-[Source Link](https://t.me/verdictumlegalupdates/25481)
-
----
-
-### 2026-02-18T12:03:06+00:00
-Unnotified Draft Recruitment Rules Cannot Govern Selection; Recruitment Vitiated Ab Initio If Criteria Altered Midway: J&K And Ladakh High Court
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/sapna-devi-anr-v-sheetal-ors-cw-jk-services-selection-board-v-sheetal-ors-1607918
-
-[Source Link](https://t.me/verdictumlegalupdates/25480)
-
----
-
-### 2026-02-18T11:33:05+00:00
-Evidence U/S. 8 Of Evidence Act Only Corroborative; Cannot By Itself Result In Conviction: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/rohit-jangde-v-the-state-of-chhattisgarh-2026-insc-162-section-8-evidence-1607916
-
-[Source Link](https://t.me/verdictumlegalupdates/25479)
-
----
-
-### 2026-02-18T11:03:04+00:00
-Magistrate Can Commit Case To Court Of Sessions U/S.209 Or 323 Of CrPC Even During Course Of Trial: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/rakesh-mittal-v-ajay-pal-gupta-sonu-chaudhary-2026-insc-161-magistrate-case-court-of-sessions-sections-209-323-crpc-1607910
-
-[Source Link](https://t.me/verdictumlegalupdates/25478)
-
----
-
-### 2026-02-18T10:32:22+00:00
-Supreme Court Refuses To Grant Anticipatory Bail To CA For Alleged Money Laundering Of Rs 640 Crores In Cyber Fraud Case
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-refuses-to-grant-anticipatory-bail-to-ca-for-alleged-money-laundering-of-rs-640-crores-in-cyber-fraud-case-1607908
-
-[Source Link](https://t.me/verdictumlegalupdates/25477)
-
----
-
-### 2026-02-18T10:03:01+00:00
-Supreme Court Grants Bail To Another Accused In 2024 Pune Porsche Accident Case
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-grants-bail-to-another-accused-in-2024-pune-porsche-accident-case-1607902
-
-[Source Link](https://t.me/verdictumlegalupdates/25476)
 
 ---
 
