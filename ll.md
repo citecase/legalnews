@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-18T11:47:31+00:00*
+*Last Updated: 2026-02-19T04:38:09+00:00*
 
 ---
 
-### 2026-02-18T11:47:31+00:00
-Kerala High Court Orders Director Of Health Services To Conduct Safety Audit Of All Three Mental Health Centres In State
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-mental-health-centres-audit-523680
+### 2026-02-19T04:38:09+00:00
+Young Professional – II (Legal) Vacancy At Indian Council Of Medical Research, New Delhi
+https://www.livelaw.in/job-updates/young-professional-ii-legal-vacancy-at-indian-council-of-medical-research-new-delhi-523747
 
-[Read on Telegram](https://t.me/livelawindia/105420)
-
----
-### 2026-02-18T12:17:11+00:00
-Cut-Off Marks Can't Be Introduced Midway In Recruitment; Similarly Placed Candidates Entitled To Same Relief: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/cut-off-marks-cant-be-introduced-midway-in-recruitment-similarly-placed-candidates-entitled-to-same-relief-calcutta-high-court-523592
-
-[Read on Telegram](https://t.me/livelawindia/105421)
+[Read on Telegram](https://t.me/livelawindia/105444)
 
 ---
-### 2026-02-18T12:32:31+00:00
-'You Need Harsher Action': High Court Raps Delhi Govt Over Delay In Filling Up DCPCR Vacancies, Warns Of Serious Consequence
-https://www.livelaw.in/high-court/delhi-high-court/you-need-harsher-action-high-court-raps-delhi-govt-over-delay-in-filling-up-dcpcr-vacancies-warns-of-serious-consequence-523662
+### 2026-02-19T04:42:49+00:00
+Madras High Court Seeks State's Response On Plea Challenging Notification Mandating Sanction Before Prosecuting Police Officials
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-notification-prior-sanction-police-challenged-523728
 
-[Read on Telegram](https://t.me/livelawindia/105422)
-
----
-### 2026-02-18T12:52:21+00:00
-Delhi High Court Urges More Judicial Appointments For MCOCA Cases, Calls For Administrative Action
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-urges-more-judicial-appointments-for-mcoca-cases-calls-for-administrative-action-523677
-
-[Read on Telegram](https://t.me/livelawindia/105423)
+[Read on Telegram](https://t.me/livelawindia/105445)
 
 ---
-### 2026-02-18T13:12:41+00:00
-'Transport & Infrastructure Issues Cannot Justify Absence From Duty': J&K&L High Court Declines Plea Of Terminated NHM Worker
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-kashmir-high-court-contractual-health-officer-termination-523665
+### 2026-02-19T04:46:09+00:00
+Legal Assistant Vacancy At National Institute Of Speech & Hearing [Walk-In-Interview]
+https://www.livelaw.in/job-updates/legal-assistant-vacancy-at-national-institute-of-speech-hearing-523748
 
-[Read on Telegram](https://t.me/livelawindia/105424)
-
----
-### 2026-02-18T13:28:07+00:00
-Bombay High Court Criticises Maha Govt Over 'Systemic' Failure In Dealing With Land Acquisition Cases, Asks State To Be In 'Mission Mode'
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-criticises-maha-govt-over-systemic-failure-in-dealing-with-land-acquisition-cases-asks-state-to-be-in-mission-mode-523692
-
-[Read on Telegram](https://t.me/livelawindia/105425)
+[Read on Telegram](https://t.me/livelawindia/105446)
 
 ---
-### 2026-02-18T13:37:47+00:00
-Homoeopathy Practitioner Cannot Prescribe Allopathy Medicines: Telangana High Court Quashes Case For Want Of Complaint U/S 54 NMC Act
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-homeopathy-practitioner-allopathic-medicines-523643
+### 2026-02-19T04:47:49+00:00
+Final Partition Decree Liable To Stamp Duty Even If Physical Division Not Possible: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/final-partition-decree-liable-to-stamp-duty-even-if-physical-division-not-possible-calcutta-high-court-523743
 
-[Read on Telegram](https://t.me/livelawindia/105426)
-
----
-### 2026-02-18T13:57:27+00:00
-'Child's Continued Stay in Jail May Prejudice Personality Development': J&K&L High Court Grants Bail To Mother After 12 Years' Custody
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-kashmir-high-court-grants-bail-woman-custody-523666
-
-[Read on Telegram](https://t.me/livelawindia/105427)
+[Read on Telegram](https://t.me/livelawindia/105447)
 
 ---
-### 2026-02-18T14:03:07+00:00
-Savings Clause Under Foreigners Act Does Not Authorise Initiation Of Fresh Proceedings After Its Repeal: MP High Court Clarifies
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/immigration-and-foreigners-act-saving-clause-does-not-authorize-initiation-of-fresh-proceedings-under-repealed-foreigners-act-madhya-pradesh-high-curt-523679
+### 2026-02-19T04:51:09+00:00
+S.7 IBC | Corporate Debtor's Ability To Pay Debt Not To Be Considered Before Admitting Insolvency Petition : Supreme Court
+https://www.livelaw.in/supreme-court/s7-ibc-corporate-debtors-ability-to-pay-debt-not-to-be-considered-before-admitting-insolvency-petition-supreme-court-523749
 
-[Read on Telegram](https://t.me/livelawindia/105428)
-
----
-### 2026-02-18T14:22:37+00:00
-Allowing Famous Person Like Elvish Yadav To Use A Voiceless Gives Bad Message : Supreme Court In Snake Venom Case
-https://www.livelaw.in/top-stories/allowing-famous-person-like-elvish-yadav-to-use-a-voiceless-gives-bad-message-supreme-court-in-snake-venom-case-523700
-
-[Read on Telegram](https://t.me/livelawindia/105429)
+[Read on Telegram](https://t.me/livelawindia/105448)
 
 ---
-### 2026-02-18T14:25:57+00:00
-Degrees Obtained Before University Was Declared Defunct Remain Valid : Supreme Court
-https://www.livelaw.in/supreme-court/degrees-obtained-before-university-was-declared-defunct-remain-valid-supreme-court-523702
+### 2026-02-19T05:07:09+00:00
+Delhi High Court Issues Notice On PIL Seeking Comprehensive Guidelines To Prevent UPI Frauds, Faster Recovery For Victims
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-issues-notice-on-pil-seeking-comprehensive-guidelines-to-prevent-upi-frauds-faster-recovery-for-victims-523752
 
-[Read on Telegram](https://t.me/livelawindia/105430)
-
----
-### 2026-02-18T14:26:57+00:00
-2026 LiveLaw (SC) 173 | PRIYANKA KUMARI AND ORS. VERSUS THE STATE OF BIHAR AND ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-173-priyanka-kumari-and-ors-versus-the-state-of-bihar-and-ors-523703
-
-[Read on Telegram](https://t.me/livelawindia/105431)
+[Read on Telegram](https://t.me/livelawindia/105449)
 
 ---
-### 2026-02-18T14:40:17+00:00
-Supreme Court Asks 'Baba Khatarnak' To Approach Authorities With Plea To Protect Ganga From Sewage
-https://www.livelaw.in/top-stories/supreme-court-asks-baba-khatarnak-to-approach-authorities-with-plea-to-protect-ganga-from-sewage-523710
+### 2026-02-19T05:27:29+00:00
+Kerala High Court Orders Standardised Framework For Prasad Sales In Sabarimala Temple
+https://www.livelaw.in/high-court/kerala-high-court/sabarimala-ghee-embezzlement-kerala-high-court-orders-standardised-framework-for-prasad-sales-in-sabarimala-temple-523753
 
-[Read on Telegram](https://t.me/livelawindia/105432)
-
----
-### 2026-02-18T14:57:58+00:00
-Victim Not Supporting Prosecution Case, Non-Corroboration Of Medical Evidence: Karnataka High Court Upholds Acquittal In POCSO Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-rape-acquittal-prosecution-medical-evidence-523644
-
-[Read on Telegram](https://t.me/livelawindia/105433)
+[Read on Telegram](https://t.me/livelawindia/105450)
 
 ---
-### 2026-02-18T15:06:18+00:00
-NCDRC Holds Sahaj Ankur Realtors Liable For Failing To Provide Promised Flat Or Alternative Accommodation; Awards ₹3.91 Crore Compensation
-https://www.livelaw.in/consumer-cases/ncdrc-holds-sahaj-ankur-realtors-liable-for-failing-to-provide-promised-flat-or-alternative-accommodation-awards-391-crore-compensation-523714
+### 2026-02-19T05:38:55+00:00
+'Why Are You Here?': Delhi High Court Questions Territorial Jurisdiction Of Singer Jubin Nautiyal's Suit To Protect Personality Rights
+https://www.livelaw.in/high-court/delhi-high-court/why-are-you-here-delhi-high-court-questions-territorial-jurisdiction-of-singer-jubin-nautiyals-suit-to-protect-personality-rights-523758
 
-[Read on Telegram](https://t.me/livelawindia/105434)
-
----
-### 2026-02-18T15:17:28+00:00
-NI Act | 20% Deposit Is Rule In Cheque Bounce Cases, Waiver Only In Exceptional Circumstances: Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-20-deposit-is-the-rule-in-cheque-bounce-cases-waiver-only-in-exceptional-circumstances-523706
-
-[Read on Telegram](https://t.me/livelawindia/105435)
+[Read on Telegram](https://t.me/livelawindia/105451)
 
 ---
-### 2026-02-18T15:27:48+00:00
-From Finality To Flexibility: Post-Gayatri Balasamy Jurisprudence In Indian Arbitration (2025)
-https://www.livelaw.in/articles/gayatri-balasamy-jurisprudence-indian-arbitration-523719
+### 2026-02-19T05:39:55+00:00
+Senior Citizen Passenger Kept In Airport Shuttle Without Food Or Water; Alliance Air Held Liable
+https://www.livelaw.in/consumer-cases/senior-citizen-passenger-kept-in-airport-shuttle-without-food-or-water-alliance-air-held-liable-523759
 
-[Read on Telegram](https://t.me/livelawindia/105436)
-
----
-### 2026-02-18T15:50:28+00:00
-TraceX Guard Mobile Security App Launched to Combat Fake Government Apps and Financial Fraud
-https://www.livelaw.in/tech-law/tracex-guard-mobile-security-app-fake-government-app-fraud-protection-523720
-
-[Read on Telegram](https://t.me/livelawindia/105437)
+[Read on Telegram](https://t.me/livelawindia/105452)
 
 ---
-### 2026-02-18T16:12:18+00:00
-Disabled Lineman Denied Promotion While Juniors Were Elevated: Punjab & Haryana High Court Grants Notional Regularisation
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-disabled-lineman-denied-promotion-while-juniors-elevated-523707
+### 2026-02-19T05:42:35+00:00
+Advise SC Judges Against Passing 'Stigmatic' Orders: Oudh Bar Association Urges CJI To Expunge Remarks Against Justice Pankaj Bhatia
+https://www.livelaw.in/news-updates/oudh-bar-association-cji-surya-kant-sc-judges-stigmatic-expunge-remarks-justice-pankaj-bhatia-523761
 
-[Read on Telegram](https://t.me/livelawindia/105438)
+[Read on Telegram](https://t.me/livelawindia/105453)
 
 ---
-### 2026-02-18T16:21:18+00:00
-Supreme Court Daily Round-Up : February 18, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-february-18-2026-523723
+### 2026-02-19T05:43:15+00:00
+Rajasthan High Court Pulls Up Medical Dept For 'Deliberate Non-Compliance' Of Court Orders; Directs Principal Secy To Appear
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-health-principal-secretary-noc-delay-523730
 
-[Read on Telegram](https://t.me/livelawindia/105439)
+[Read on Telegram](https://t.me/livelawindia/105454)
+
+---
+### 2026-02-19T05:49:35+00:00
+Motor Accident | Insurer Be Asked To 'Pay & Recover' If Deceased Was Gratuitous Passenger In Goods Vehicle : Supreme Court
+https://www.livelaw.in/top-stories/motor-accident-insurer-be-asked-to-pay-recover-if-deceased-was-gratuitous-passenger-in-goods-vehicle-supreme-court-523764
+
+[Read on Telegram](https://t.me/livelawindia/105455)
+
+---
+### 2026-02-19T05:51:55+00:00
+2026 LiveLaw (SC) 174 | Kaminiben & Ors. v. Oriental Insurance Company Limited & Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-174-kaminiben-ors-v-oriental-insurance-company-limited-ors-523766
+
+[Read on Telegram](https://t.me/livelawindia/105456)
+
+---
+### 2026-02-19T06:00:35+00:00
+Single Complaint Can Be Maintained U/S 138 NI Act For Dishonour Of Multiple Cheques Issued in Same Transaction: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/single-complaint-section-138-of-ni-act-dishonour-multiple-cheques-same-transaction-523768
+
+[Read on Telegram](https://t.me/livelawindia/105457)
+
+---
+### 2026-02-19T06:03:05+00:00
+Madras High Court Reserves Orders On Plea By YouTuber Savukku Shankar's Mother Regarding His Treatment, Challenging Solitary Confinement
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-savukku-shankar-treatment-solitary-confinement-orders-reserved-523756
+
+[Read on Telegram](https://t.me/livelawindia/105458)
+
+---
+### 2026-02-19T06:08:25+00:00
+Supreme Court Grants Bail To Filmmaker Vikram Bhatt & Wife In Cheating Case Over Movie Deal, Sends Parties To Mediation
+https://www.livelaw.in/top-stories/supreme-court-grants-bail-to-filmmaker-vikram-bhatt-wife-in-cheating-case-over-movie-deal-sends-parties-to-mediation-523769
+
+[Read on Telegram](https://t.me/livelawindia/105459)
+
+---
+### 2026-02-19T06:13:05+00:00
+'LOCs Cannot Be Issued Mechanically In Matrimonial Cruelty Cases U/S 498A IPC, Only In Exceptional Situations': AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-ruling-locs-must-be-issued-exceptional-circumstances-section-498-a-cases-routine-manner-523725
+
+[Read on Telegram](https://t.me/livelawindia/105460)
+
+---
+### 2026-02-19T06:27:45+00:00
+Person Can Profess Lingayat Faith Yet Belong To Ganiga Caste, Both Not Mutually Exclusive Identities: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-lingayat-faith-ganinga-both-not-mutually-exclusive-523729
+
+[Read on Telegram](https://t.me/livelawindia/105461)
+
+---
+### 2026-02-19T06:42:05+00:00
+Calcutta High Court Enhances Motor Accident Compensation; Says GPF & Insurance Deductions Cannot Reduce Income For Calculating Dependency
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-enhances-motor-accident-compensation-says-gpf-insurance-deductions-cannot-reduce-income-for-calculating-dependency-523754
+
+[Read on Telegram](https://t.me/livelawindia/105462)
+
+---
+### 2026-02-19T06:48:05+00:00
+Woman Forced Out Of Matrimonial Home Can Initiate DV Case From Shelter; Economic Abuse Creates Continuing Cause Of Action: Calcutta HC
+https://www.livelaw.in/high-court/calcutta-high-court/woman-forced-out-of-matrimonial-home-can-initiate-dv-case-from-shelter-economic-abuse-creates-continuing-cause-of-action-calcutta-hc-523755
+
+[Read on Telegram](https://t.me/livelawindia/105463)
 
 ---
