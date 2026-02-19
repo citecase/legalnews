@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-19T13:32:10+00:00*
+*Last Updated: 2026-02-19T16:02:37+00:00*
+
+---
+
+### 2026-02-19T16:02:37+00:00
+Panel Lawyer Vacancy At District Legal Services Authority, Nagpur
+https://www.verdictum.in/job-updates/district-legal-services-authority-1608053
+
+[Source Link](https://t.me/verdictumlegalupdates/25512)
+
+---
+
+### 2026-02-19T15:32:55+00:00
+Single Complaint U/S 138 NI Act Maintainable For Dishonour Of Multiple Cheques Issued In Same Transaction: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/balachandran-v-sajan-mathew-state-of-kerala-2026ker13892-sec-138-ni-act-1608063
+
+[Source Link](https://t.me/verdictumlegalupdates/25511)
+
+---
+
+### 2026-02-19T15:03:14+00:00
+Intermediary Arrangement May Not Necessarily Break Employer-Employee Relationship Under EPF Act: Madras High Court
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/ms-seyadu-beedi-company-v-regional-provident-fund-commissioner-anr-1608052
+
+[Source Link](https://t.me/verdictumlegalupdates/25510)
+
+---
+
+### 2026-02-19T14:32:53+00:00
+There Should Never Be A Vacuum: Delhi High Court Upholds Link Judge’s Powers Under MCOCA, Flags Need For More Special Judges
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/deepa-singh-v-state-2026dhc1315-mcoca-special-judge-leave-vacuum-1608051
+
+[Source Link](https://t.me/verdictumlegalupdates/25509)
+
+---
+
+### 2026-02-19T14:02:31+00:00
+Victim’s Non-Support Of Prosecution And Lack Of Corroboration Creates High Probability Of Acquittal: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/state-of-karnataka-v-sr-pocso-act-prosecutrix-testimony-hostile-acquittal-1608050
+
+[Source Link](https://t.me/verdictumlegalupdates/25508)
 
 ---
 
@@ -121,46 +161,6 @@ Supreme Court Grants Regular Bail To Vikram Bhatt And His Wife In Fraud Case; Re
 https://www.verdictum.in/court-updates/supreme-court/grants-regular-bail-to-vikram-bhatt-and-his-wife-in-fraud-case-refers-parties-to-mediation-1607981
 
 [Source Link](https://t.me/verdictumlegalupdates/25493)
-
----
-
-### 2026-02-19T06:03:08+00:00
-Consent Cannot Be Retrospectively Withdrawn: Delhi High Court Upholds Discharge Of Advocate In Rape Case; Rejects Victim's Plea That She Was Unaware Of His Religious Identity
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ms-a-v-state-2026dhc1382-advocates-consensual-relationship-vakalatnama-rape-1607979
-
-[Source Link](https://t.me/verdictumlegalupdates/25492)
-
----
-
-### 2026-02-19T05:33:06+00:00
-Delay In Filing Probate Raises Suspicion; But It Does Not Defeat Claim Once Execution And Attestation Are Proved: Calcutta High Court
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/raja-shah-ors-v-kowshik-show-ors-2026chc-as276-db-probate-will-1607977
-
-[Source Link](https://t.me/verdictumlegalupdates/25491)
-
----
-
-### 2026-02-19T05:02:45+00:00
-Kerala High Court Directs Time-Bound Completion Of E-Prison Portal After Stakeholder Brainstorming
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/suo-motu-v-state-of-kerala-wpcrl-no-867-of-2024s-e-prison-prisoners-languishing-in-jails-1607974
-
-[Source Link](https://t.me/verdictumlegalupdates/25490)
-
----
-
-### 2026-02-19T04:32:34+00:00
-Accusation Of Relationship With Other Person Is Mental Cruelty & Reasonable Cause For Wife To Live Apart: Karnataka High Court Upholds Dismissal Of Husband's Divorce Plea
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/a-v-b-accusation-relationship-other-person-mental-cruelty-rejection-divorce-petition-1607941
-
-[Source Link](https://t.me/verdictumlegalupdates/25489)
-
----
-
-### 2026-02-18T16:02:28+00:00
-Legal Assistant Vacancy At National Institute of Speech and Hearing (NISH)
-https://www.verdictum.in/job-updates/national-institute-of-speech-and-hearing-1607932
-
-[Source Link](https://t.me/verdictumlegalupdates/25488)
 
 ---
 
