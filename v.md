@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-18T16:02:28+00:00*
+*Last Updated: 2026-02-19T07:26:12+00:00*
+
+---
+
+### 2026-02-19T07:26:12+00:00
+Breaking| Supreme Court Stays Madras High Court Order Halting Functioning Of State Waqf Board For Non-Inclusion Of Non-Muslim Members
+https://www.verdictum.in/court-updates/supreme-court/stays-madras-high-court-order-restraining-tamil-nadu-waqf-board-1607995
+
+[Source Link](https://t.me/verdictumlegalupdates/25495)
+
+---
+
+### 2026-02-19T07:02:50+00:00
+Bride’s Gold Ornaments Ordinarily Entrusted To Husband Or Relatives For Safe Keeping: Kerala High Court Upholds Order Asking Man To Return Ornaments
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/a-v-b-2026ker13291-bride-gold-ornaments-husband-return-ornaments-1607980
+
+[Source Link](https://t.me/verdictumlegalupdates/25494)
+
+---
+
+### 2026-02-19T06:29:49+00:00
+Supreme Court Grants Regular Bail To Vikram Bhatt And His Wife In Fraud Case; Refers Parties To Mediation
+https://www.verdictum.in/court-updates/supreme-court/grants-regular-bail-to-vikram-bhatt-and-his-wife-in-fraud-case-refers-parties-to-mediation-1607981
+
+[Source Link](https://t.me/verdictumlegalupdates/25493)
+
+---
+
+### 2026-02-19T06:03:08+00:00
+Consent Cannot Be Retrospectively Withdrawn: Delhi High Court Upholds Discharge Of Advocate In Rape Case; Rejects Victim's Plea That She Was Unaware Of His Religious Identity
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ms-a-v-state-2026dhc1382-advocates-consensual-relationship-vakalatnama-rape-1607979
+
+[Source Link](https://t.me/verdictumlegalupdates/25492)
+
+---
+
+### 2026-02-19T05:33:06+00:00
+Delay In Filing Probate Raises Suspicion; But It Does Not Defeat Claim Once Execution And Attestation Are Proved: Calcutta High Court
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/raja-shah-ors-v-kowshik-show-ors-2026chc-as276-db-probate-will-1607977
+
+[Source Link](https://t.me/verdictumlegalupdates/25491)
+
+---
+
+### 2026-02-19T05:02:45+00:00
+Kerala High Court Directs Time-Bound Completion Of E-Prison Portal After Stakeholder Brainstorming
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/suo-motu-v-state-of-kerala-wpcrl-no-867-of-2024s-e-prison-prisoners-languishing-in-jails-1607974
+
+[Source Link](https://t.me/verdictumlegalupdates/25490)
+
+---
+
+### 2026-02-19T04:32:34+00:00
+Accusation Of Relationship With Other Person Is Mental Cruelty & Reasonable Cause For Wife To Live Apart: Karnataka High Court Upholds Dismissal Of Husband's Divorce Plea
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/a-v-b-accusation-relationship-other-person-mental-cruelty-rejection-divorce-petition-1607941
+
+[Source Link](https://t.me/verdictumlegalupdates/25489)
 
 ---
 
@@ -105,62 +161,6 @@ Supreme Court Grants Bail To Another Accused In 2024 Pune Porsche Accident Case
 https://www.verdictum.in/court-updates/supreme-court/supreme-court-grants-bail-to-another-accused-in-2024-pune-porsche-accident-case-1607902
 
 [Source Link](https://t.me/verdictumlegalupdates/25476)
-
----
-
-### 2026-02-18T09:32:40+00:00
-Crime Is A Crime, Must Be Dealt With An Iron Hand: Apex Court Asks Attorney General To Consider Plea Seeking Prevention Of Discrimination & Violence Against Citizens Of North-East Region
-https://www.verdictum.in/court-updates/supreme-court/crime-is-a-crime-must-be-dealt-with-an-iron-hand-apex-court-asks-attorney-general-to-consider-plea-seeking-prevention-of-discrimination-violence-against-citizens-of-north-east-region-1607900
-
-[Source Link](https://t.me/verdictumlegalupdates/25475)
-
----
-
-### 2026-02-18T09:02:49+00:00
-Supreme Court Asks Uttarakhand High Court To Decide Pleas Of Aviation Firm Against Temporary Acquisition Of Private Helipad By State
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-asks-uttarakhand-high-court-to-decide-pleas-of-aviation-firm-against-temporary-acquisition-of-private-helipad-by-state-1607898
-
-[Source Link](https://t.me/verdictumlegalupdates/25474)
-
----
-
-### 2026-02-18T08:32:48+00:00
-"Use Simple Language, Avoid Complicated Expressions": Supreme Court Asks NJAC To Form Committee To Draft Guidelines On Judicial Sensitivity In Sexual Offence Cases
-https://www.verdictum.in/court-updates/supreme-court/2026-insc-165-in-reorder-dated-17032025-passed-by-the-high-court-of-judicature-at-allahabad-1607896
-
-[Source Link](https://t.me/verdictumlegalupdates/25473)
-
----
-
-### 2026-02-18T08:03:06+00:00
-Inevitably A Case For Invoking Offence Of Attempt To Rape: Supreme Court Sets Aside Controversial Allahabad High Court Decision On Sexual Assault
-https://www.verdictum.in/court-updates/supreme-court/2026-insc-165-in-reorder-dated-17032025-passed-by-the-high-court-of-judicature-at-allahabad-1607892
-
-[Source Link](https://t.me/verdictumlegalupdates/25472)
-
----
-
-### 2026-02-18T07:32:45+00:00
-People Undertaking Night Journey Not Uncommon: Delhi High Court Remands Matter To Railway Claims Tribunal For Awarding Compensation
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/priyanka-v-union-of-india-2026dhc1282-railway-claims-tribunal-deceased-bonafide-passenger-train-compensation-1607884
-
-[Source Link](https://t.me/verdictumlegalupdates/25471)
-
----
-
-### 2026-02-18T07:02:43+00:00
-Contractual Clauses Like ‘As Is Where Is’ and ‘Whatever There Is’ Can’t Preserve Municipal Charge Which Stands Extinguished U/S.53 & 238 Of IBC: Calcutta High Court
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/mamta-binani-anr-vs-kolkata-municipal-corporation-contractual-clauses-like-as-is-where-is-and-whatever-there-is-cant-preserve-municipal-charge-which-stands-extinguished-us53-238-of-ibc-calcutta-high-court-1607871
-
-[Source Link](https://t.me/verdictumlegalupdates/25470)
-
----
-
-### 2026-02-18T06:18:02+00:00
-No Exhumation Of Buried Bodies Shall Be Permitted: Supreme Court Directs In Plea Challenging Digging Up Of Tribal Christians' Dead Bodies In Chhattisgarh
-https://www.verdictum.in/court-updates/supreme-court/directs-plea-challenging-digging-up-tribal-christians-dead-bodies-chhattisgarh-1607863
-
-[Source Link](https://t.me/verdictumlegalupdates/25469)
 
 ---
 
