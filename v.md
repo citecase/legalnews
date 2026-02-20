@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-19T16:02:37+00:00*
+*Last Updated: 2026-02-20T07:02:46+00:00*
+
+---
+
+### 2026-02-20T07:02:46+00:00
+A Slap Over Wife Staying At Paternal Home Without Informing Husband Not ‘Cruelty’: Gujarat High Court Acquits Husband In Wife’s Suicide Case
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/dilipbhai-manglabhai-varli-v-state-of-gujarat-2026gujhc10136-wife-slap-quarrel-suicide-1608109
+
+[Source Link](https://t.me/verdictumlegalupdates/25518)
+
+---
+
+### 2026-02-20T06:33:05+00:00
+Shared Household Not Sine Qua Non For Economic Abuse Under Domestic Violence Act; Woman Compelled To Leave Matrimonial Home Can Invoke Jurisdiction From Temporary Residence: Calcutta High Court
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/rani-bibi-v-sk-nurullah-2026chc-as289-matrimonial-home-dv-act-temporary-residence-1608099
+
+[Source Link](https://t.me/verdictumlegalupdates/25517)
+
+---
+
+### 2026-02-20T06:02:24+00:00
+Jailed Accused with FIRs For Murder, Sexual Offences Against Children Validly Detained Under NSA: Allahabad HC Refuses To Quash Detention Order
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/sunil-kumar-gupta-a-v-union-of-india-2025ahc-lko7756-db-nsa-preventive-detention-sexual-offences-firs-jailed-accused-1608095
+
+[Source Link](https://t.me/verdictumlegalupdates/25516)
+
+---
+
+### 2026-02-20T05:32:22+00:00
+Gujarat High Court Directs Grant Of Licences To Passed-Out Homoeopathy Students Amid Approval Dispute Over College Recognition
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/parul-university-v-union-of-india-ors2026gujhc10491-homoeopathy-college-1608092
+
+[Source Link](https://t.me/verdictumlegalupdates/25515)
+
+---
+
+### 2026-02-20T05:03:01+00:00
+Barking Up a Wrong Tree: Madras High Court Declines Plea to Restrain 70-Year Burial Usage, Says Burial Sites Must Be Notified
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/ks-balakrishnan-v-the-district-collector-wpnos36402-37501-44377-of-2025-burial-ground-70-year-land-scst-act-wrong-tree-1608090
+
+[Source Link](https://t.me/verdictumlegalupdates/25514)
+
+---
+
+### 2026-02-20T04:33:10+00:00
+Caste Not Restricted To Biological Descent; Child’s Identity Not Anchored To Absent Father: Bombay High Court Directs Correction Of Name & Caste From School Records
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/xyz-minor-anr-v-state-of-maharashtra-ors2026bhc-aug7179-db-1608064
+
+[Source Link](https://t.me/verdictumlegalupdates/25513)
 
 ---
 
@@ -113,54 +161,6 @@ IBC| Scope Of Inquiry At CIRP Admission Stage Limited To Existence Of Default Of
 https://www.verdictum.in/court-updates/supreme-court/power-trust-v-bhuvan-madan-2026insc166-cirp-adjudicating-authority-insolvency-resolution-section-7-1608009
 
 [Source Link](https://t.me/verdictumlegalupdates/25499)
-
----
-
-### 2026-02-19T09:01:13+00:00
-Second Word Staying Next To First Word Is Causing Grievances: Apex Court Disposes Of Plea After Filmmaker Neeraj Pandey Undertakes To Change Title Of 'Ghooskhor Pandat'
-https://www.verdictum.in/court-updates/supreme-court/disposes-filmmaker-neeraj-pandey-undertakes-title-of-netflix-film-ghooskhor-pandat-1608014
-
-[Source Link](https://t.me/verdictumlegalupdates/25498)
-
----
-
-### 2026-02-19T08:34:52+00:00
-Coordinate Benches Of High Court Cannot Take Contradictory Views On Same Issue: Supreme Court Restores MIDC Plot Allotment to Highest Bidder
-https://www.verdictum.in/court-updates/supreme-court/sushil-kamalnayan-bharuka-v-state-of-maharashtra-2026-insc-168-tender-bidding-allotment-midc-industrial-1608008
-
-[Source Link](https://t.me/verdictumlegalupdates/25497)
-
----
-
-### 2026-02-19T08:02:33+00:00
-Economic Development Will Be Hampered With This Kind Of Largesse Distribution: Supreme Court Slams Freebies Culture
-https://www.verdictum.in/court-updates/supreme-court/economic-development-will-be-hampered-with-this-kind-of-largesse-distribution-supreme-court-slams-freebies-culture-1608002
-
-[Source Link](https://t.me/verdictumlegalupdates/25496)
-
----
-
-### 2026-02-19T07:26:12+00:00
-Breaking| Supreme Court Stays Madras High Court Order Halting Functioning Of State Waqf Board For Non-Inclusion Of Non-Muslim Members
-https://www.verdictum.in/court-updates/supreme-court/stays-madras-high-court-order-restraining-tamil-nadu-waqf-board-1607995
-
-[Source Link](https://t.me/verdictumlegalupdates/25495)
-
----
-
-### 2026-02-19T07:02:50+00:00
-Bride’s Gold Ornaments Ordinarily Entrusted To Husband Or Relatives For Safe Keeping: Kerala High Court Upholds Order Asking Man To Return Ornaments
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/a-v-b-2026ker13291-bride-gold-ornaments-husband-return-ornaments-1607980
-
-[Source Link](https://t.me/verdictumlegalupdates/25494)
-
----
-
-### 2026-02-19T06:29:49+00:00
-Supreme Court Grants Regular Bail To Vikram Bhatt And His Wife In Fraud Case; Refers Parties To Mediation
-https://www.verdictum.in/court-updates/supreme-court/grants-regular-bail-to-vikram-bhatt-and-his-wife-in-fraud-case-refers-parties-to-mediation-1607981
-
-[Source Link](https://t.me/verdictumlegalupdates/25493)
 
 ---
 
