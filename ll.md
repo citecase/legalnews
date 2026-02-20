@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-19T13:17:51+00:00*
+*Last Updated: 2026-02-20T04:55:10+00:00*
 
 ---
 
-### 2026-02-19T13:17:51+00:00
-Mere Transfer Of Money With Interest Doesn't Make A 'Money Lender'; Bar Under Money Lending Act Can't Be Decided At O.VII R.11 Stage: Bombay HC
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-maharashtra-money-lending-act-orderviirule11-cpc-523775
+### 2026-02-20T04:55:10+00:00
+'Travesty Of Justice To Keep Convict In Jail For Years Pending Appeal' : Supreme Court Quotes 1977 Judgment, Suspends Murder Sentence
+https://www.livelaw.in/supreme-court/travesty-of-justice-to-keep-convict-in-jail-for-years-pending-appeal-supreme-court-quotes-1977-judgment-suspends-murder-sentence-523889
 
-[Read on Telegram](https://t.me/livelawindia/105500)
-
----
-### 2026-02-19T13:32:21+00:00
-Bombay High Court Dismisses Retired Zilla Parishad Doctors' Plea For NPA From 2016, Calls It Impermissible Judicial Interference In Policy
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-retirement-date-classification-service-benefit-523773
-
-[Read on Telegram](https://t.me/livelawindia/105501)
+[Read on Telegram](https://t.me/livelawindia/105529)
 
 ---
-### 2026-02-19T13:52:26+00:00
-Courts Must Be 'Adjudication-Friendly' In Restoration Pleas, Especially When Trial Is Complete: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-dismissal-of-suit-at-final-arguments-stage-demands-adjudication-friendly-approach-not-technical-rejection-unless-court-is-being-honeyfuggled-523734
+### 2026-02-20T04:56:10+00:00
+2026 LiveLaw (SC) 176 | MUNA BISOI VERSUS STATE OF ODISHA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-176-muna-bisoi-versus-state-of-odisha-523890
 
-[Read on Telegram](https://t.me/livelawindia/105502)
-
----
-### 2026-02-19T13:58:06+00:00
-Post Of Public Importance Can't Remain Unfilled For Indefinite Period, Fresh Recruitment Justified In Public Interest: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-post-of-public-importance-cant-remain-unfilled-for-indefinite-period-fresh-recruitment-justified-523832
-
-[Read on Telegram](https://t.me/livelawindia/105503)
+[Read on Telegram](https://t.me/livelawindia/105530)
 
 ---
-### 2026-02-19T14:23:06+00:00
-Supreme Court Seeks Inputs In Suo Motu Case For Strengthening Bar Associations
-https://www.livelaw.in/top-stories/supreme-court-seeks-inputs-in-suo-motu-case-for-strengthening-bar-associations-523841
+### 2026-02-20T05:03:10+00:00
+Sabarimala Gold Theft: Kerala High Court Orders Advanced Metallurgical Tests, Sets March 31 Deadline For Final Report
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-scientific-probe-in-sabarimala-gold-theft-case-523887
 
-[Read on Telegram](https://t.me/livelawindia/105504)
-
----
-### 2026-02-19T14:32:06+00:00
-Madras HC Quashes Case Against Woman For Commenting On Photo Of Minor Girls Holding Liquor Bottle, Says Complaint Was Filed Vindictively
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-case-quashed-comment-minor-girls-liquor-bottles-523834
-
-[Read on Telegram](https://t.me/livelawindia/105505)
+[Read on Telegram](https://t.me/livelawindia/105531)
 
 ---
-### 2026-02-19T14:35:06+00:00
-Allahabad High Court Quashes Criminal Case Against Students Accused Of Offering Namaz At Restricted Place; Issues Warning
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-quashes-criminal-case-students-namaz-warning-523843
+### 2026-02-20T05:17:30+00:00
+Whether Cheque Was Given As Security Or Towards Debt Cannot Be Decided In Quashing Proceedings U/S 482 CrPC: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-whether-a-cheque-was-given-as-security-or-towards-debt-cannot-be-settled-in-proceedings-under-section-482-crpc-523873
 
-[Read on Telegram](https://t.me/livelawindia/105506)
-
----
-### 2026-02-19T14:39:16+00:00
-Arnesh Kumar Guidelines Flouted: Punjab & Haryana High Court Issues Notice To Both State's Chief Secretaries, DGPs In Contempt Plea
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-arnesh-kumar-notice-to-both-states-chief-secretaries-dgps-in-contempt-plea-523844
-
-[Read on Telegram](https://t.me/livelawindia/105507)
+[Read on Telegram](https://t.me/livelawindia/105532)
 
 ---
-### 2026-02-19T14:50:56+00:00
-How Law Students Can Secure Judicial Internships At Supreme Court
-https://www.livelaw.in/articles/law-students-judicial-internships-supreme-court-523846
+### 2026-02-20T05:22:30+00:00
+Delhi High Court Protects Personality Rights Of Actress Kajol; Restrains Sale Of Commercial Merchandise, Obscene Material
+https://www.livelaw.in/high-court/delhi-high-court/kajol-devgan-personality-rights-protected-actor-privacy-523907
 
-[Read on Telegram](https://t.me/livelawindia/105508)
-
----
-### 2026-02-19T14:52:16+00:00
-Jharkhand High Court Orders No Coercive Action Against Advocate In Road Accident Cross-FIR
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-coercive-action-road-accident-523847
-
-[Read on Telegram](https://t.me/livelawindia/105509)
+[Read on Telegram](https://t.me/livelawindia/105533)
 
 ---
-### 2026-02-19T14:57:56+00:00
-'Cruelty Of The Highest Order': Supreme Court Raps Husband For Depriving Wife Access To 6-Month Old Twins
-https://www.livelaw.in/top-stories/supreme-court-raps-husband-for-depriving-wife-access-to-6-month-old-twin-children-matrimonial-dispute-cruelty-of-the-highest-order-523848
+### 2026-02-20T05:22:40+00:00
+Manager (Legal) Vacancy At Tata Capital Limited [Kolkata; Apply Now]
+https://www.livelaw.in/job-updates/manager-legal-vacancy-at-tata-capital-limited-kolkata-523908
 
-[Read on Telegram](https://t.me/livelawindia/105510)
-
----
-### 2026-02-19T15:07:16+00:00
-Allahabad High Court Seeks UP Govt Reply To PIL Alleging Selective Continuation Of Grant-In-Aid To Suspended Madrasas
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-up-govt-reply-pil-selective-continuation-grant-in-aid-suspended-madrasas-523849
-
-[Read on Telegram](https://t.me/livelawindia/105511)
+[Read on Telegram](https://t.me/livelawindia/105534)
 
 ---
-### 2026-02-19T15:26:36+00:00
-Supreme Court Issues Notice In Patanjali Foods' Plea Against Telangana Factory Zone Cancellation; Orders Status Quo
-https://www.livelaw.in/law-firms/litigation/supreme-court-issues-notice-in-patanjali-foods-plea-against-telangana-factory-zone-cancellation-orders-status-quo-523853
+### 2026-02-20T05:28:30+00:00
+'State Cannot Sleep For 20 Years & Recover Salary Before Retirement': Calcutta High Court Quashes Recovery Against Indian Museum Employee
+https://www.livelaw.in/high-court/calcutta-high-court/state-cannot-sleep-for-20-years-recover-salary-before-retirement-calcutta-high-court-quashes-recovery-against-indian-museum-employee-523912
 
-[Read on Telegram](https://t.me/livelawindia/105512)
-
----
-### 2026-02-19T15:28:16+00:00
-Section 9 MEPS Act Cannot Be Expanded To Cover Pay, Increment Or Monetary Claims By School Employees: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/section-9-meps-act-cannot-be-expanded-to-cover-pay-increment-or-monetary-claims-by-school-employees-bombay-high-court-523776
-
-[Read on Telegram](https://t.me/livelawindia/105513)
+[Read on Telegram](https://t.me/livelawindia/105535)
 
 ---
-### 2026-02-19T15:35:38+00:00
-Supreme Court To Examine TN Power DisCom's Challenge Against Electricity Rule Mandating That Tariff Should Reflect Cost
-https://www.livelaw.in/top-stories/supreme-court-to-examine-tn-power-discoms-challenge-against-electricity-rule-mandating-that-tariff-should-reflect-cost-523856
+### 2026-02-20T05:32:30+00:00
+Peaceful Protests Don't Attract Recovery Of Police Deployment Costs Unless Democratic Limits Are Exceeded: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-recover-additional-deployment-cost-523891
 
-[Read on Telegram](https://t.me/livelawindia/105514)
-
----
-### 2026-02-19T15:52:48+00:00
-'Silence Of Grave' Can't Be Substituted By Signatures Of Heirs: P&H High Court Refuses To Quash Death By Negligence Case On Compromise
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-refuses-to-quash-death-by-negligence-case-silence-of-grave-cant-be-substituted-by-signatures-of-heirs-523845
-
-[Read on Telegram](https://t.me/livelawindia/105515)
+[Read on Telegram](https://t.me/livelawindia/105536)
 
 ---
-### 2026-02-19T16:24:28+00:00
-Will Hold State Liable For Victim Compensation If 'Chinese Manjha' Sales Continue Unabated, Warns Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-warns-up-govt-compensation-chinese-manjha-deaths-523861
+### 2026-02-20T05:43:00+00:00
+Tripura Being Border State Faces Regular Drug Problem Leading To HIV/AIDS, Citizens Are Victimised: High Court Denies Bail In NDPS Case
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-ndps-bail-rejection-523900
 
-[Read on Telegram](https://t.me/livelawindia/105516)
-
----
-### 2026-02-19T17:08:19+00:00
-Supreme Court Daily Round-Up : February 19, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-february-19-2026-523858
-
-[Read on Telegram](https://t.me/livelawindia/105517)
+[Read on Telegram](https://t.me/livelawindia/105537)
 
 ---
-### 2026-02-19T17:19:59+00:00
-NUALS Kochi To Host 7th M. K. Nambyar Memorial International Maritime Law Arbitration Competition (NIMLAC) 2026
-https://www.livelaw.in/lawschool/competitions/nuals-kochi-host-7th-m-k-nambyar-memorial-international-maritime-law-arbitration-competition-nimlac-523870
+### 2026-02-20T05:47:20+00:00
+Project Analyst Vacancy At Ernst & Young India [Mumbai; Apply Now]
+https://www.livelaw.in/job-updates/project-analyst-vacancy-at-ernst-young-india-mumbai-523917
 
-[Read on Telegram](https://t.me/livelawindia/105518)
+[Read on Telegram](https://t.me/livelawindia/105538)
 
 ---
-### 2026-02-19T18:27:49+00:00
-Technology News: TraceX Guard AI Mobile Security Platform Launched to Combat India's Rising Mobile Cybercrime Crisis
-https://www.livelaw.in/tech-law/technology-news-tracex-guard-ai-mobile-security-india-2026-523871
+### 2026-02-20T05:48:00+00:00
+CBSE Can't Reduce Marks In Subject Not Sought For Re-Evaluation: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-cbse-cannot-alter-marks-in-subject-not-sought-for-re-evaluation-523893
 
-[Read on Telegram](https://t.me/livelawindia/105519)
+[Read on Telegram](https://t.me/livelawindia/105539)
+
+---
+### 2026-02-20T05:49:00+00:00
+BREAKING| Supreme Court Dismisses PIL To Ban Building Babri Masjids Or Any Mosque In Babur's Name
+https://www.livelaw.in/top-stories/supreme-court-dismisses-pil-to-ban-building-babri-masjids-or-any-mosque-in-baburs-name-523918
+
+[Read on Telegram](https://t.me/livelawindia/105540)
+
+---
+### 2026-02-20T06:02:20+00:00
+Madhya Pradesh High Court Faults State For 'Blindly' Filing Appeal Before Wrong Forum, Imposes Costs
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/state-appeal-blindly-filed-dont-know-law-costs-imposed-523895
+
+[Read on Telegram](https://t.me/livelawindia/105541)
+
+---
+### 2026-02-20T06:11:20+00:00
+Madras High Court Directs DVAC To Register FIR Against Minister KN Nehru Based On Materials Supplied By ED
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tn-dvac-fir-against-minister-kn-nehru-ed-materials-523921
+
+[Read on Telegram](https://t.me/livelawindia/105542)
+
+---
+### 2026-02-20T06:12:40+00:00
+'Akin To Crime Thriller': Karnataka High Court Refuses To Quash FIR By Businessman Duped Of ₹200 Crore By Fake SBI Site
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-fir-fake-sbi-website-crime-thriller-200-crore-523874
+
+[Read on Telegram](https://t.me/livelawindia/105543)
+
+---
+### 2026-02-20T06:14:20+00:00
+'Check Period' After Minor Punishment Illegal; Employee Entitled To Promotion Consideration : Madras HC
+https://www.livelaw.in/high-court/madras-high-court/check-period-after-minor-punishment-illegal-employee-entitled-to-promotion-consideration-madras-hc-523922
+
+[Read on Telegram](https://t.me/livelawindia/105544)
+
+---
+### 2026-02-20T06:32:20+00:00
+Homemaker Doesn't 'Sit Idle', Law Must Recognize Economic Value Of Her Contribution To Domestic Relationship: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/home-maker-salary-economic-value-contribution-to-house-523923
+
+[Read on Telegram](https://t.me/livelawindia/105545)
+
+---
+### 2026-02-20T06:43:10+00:00
+'Police-Politician Nexus' : Supreme Court Raps Andhra Police For Lax Probe In Murder Case Against YSRCP MLC Udaya Bhaskar
+https://www.livelaw.in/top-stories/police-politician-nexus-supreme-court-raps-andhra-police-for-lax-probe-in-murder-case-against-ysrcp-mlc-udaya-bhaskar-523926
+
+[Read on Telegram](https://t.me/livelawindia/105546)
+
+---
+### 2026-02-20T06:47:30+00:00
+Ancestral Or Inherited Properties Can Be Attached Under PMLA: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/ed-pmla-ancestral-property-can-be-attached-proceeds-of-crime-untraceable-523924
+
+[Read on Telegram](https://t.me/livelawindia/105547)
+
+---
+### 2026-02-20T07:03:04+00:00
+Debarment Cannot Be Lifelong, Penalty Must Be Proportionate: J&K&L High Court Allows Contractor To Seek Fresh Registration
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-debarment-cannot-be-lifelong-penalty-must-be-proportionate-to-misconduct-court-allows-contractor-to-seek-fresh-registration-523872
+
+[Read on Telegram](https://t.me/livelawindia/105548)
 
 ---
