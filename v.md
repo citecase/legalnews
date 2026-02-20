@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-20T13:32:25+00:00*
+*Last Updated: 2026-02-20T16:02:42+00:00*
+
+---
+
+### 2026-02-20T16:02:42+00:00
+Family Court Mahasamund, Chhattisgarh Invites Applications For The Post Of Amicus Curiae
+https://www.verdictum.in/job-updates/district-mahasamund-1608161
+
+[Source Link](https://t.me/verdictumlegalupdates/25536)
+
+---
+
+### 2026-02-20T15:33:01+00:00
+Ed-Tech Platforms Can Use Publicly Available Data To Rank Universities If Not Disparaging: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ms-getmyuni-education-services-private-limited-v-mangalayatan-university-2026dhc1394-university-ranking-1608171
+
+[Source Link](https://t.me/verdictumlegalupdates/25535)
+
+---
+
+### 2026-02-20T15:02:19+00:00
+Single Assault To Deter Love Relationship Opposed By Family Does Not Breach "Public Order": Bombay HC Quashes Detention Order  Under MPDA
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/aditya-shailendra-mane-v-the-state-of-maharashtra-2026bhc-kol944-db-love-boy-girl-assault-deter-family-members-1608160
+
+[Source Link](https://t.me/verdictumlegalupdates/25534)
+
+---
+
+### 2026-02-20T14:32:58+00:00
+Ancestral Property Not Immune From Attachment As Equivalent Value Of Proceeds Of Crime Under PMLA: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/arun-suri-v-directorate-of-enforcement-2026dhc1391-db-ed-property-attached-1608159
+
+[Source Link](https://t.me/verdictumlegalupdates/25533)
+
+---
+
+### 2026-02-20T14:02:37+00:00
+Minor Assault Without Intent Or Knowledge Cannot Amount To Murder Even If Victim Dies Of Heart Condition: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/abdul-jaleel-v-the-state-of-kerala-2026ker13793-intent-knowledge-minor-assault-302-ipc-1608158
+
+[Source Link](https://t.me/verdictumlegalupdates/25532)
 
 ---
 
@@ -121,46 +161,6 @@ Shared Household Not Sine Qua Non For Economic Abuse Under Domestic Violence Act
 https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/rani-bibi-v-sk-nurullah-2026chc-as289-matrimonial-home-dv-act-temporary-residence-1608099
 
 [Source Link](https://t.me/verdictumlegalupdates/25517)
-
----
-
-### 2026-02-20T06:02:24+00:00
-Jailed Accused with FIRs For Murder, Sexual Offences Against Children Validly Detained Under NSA: Allahabad HC Refuses To Quash Detention Order
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/sunil-kumar-gupta-a-v-union-of-india-2025ahc-lko7756-db-nsa-preventive-detention-sexual-offences-firs-jailed-accused-1608095
-
-[Source Link](https://t.me/verdictumlegalupdates/25516)
-
----
-
-### 2026-02-20T05:32:22+00:00
-Gujarat High Court Directs Grant Of Licences To Passed-Out Homoeopathy Students Amid Approval Dispute Over College Recognition
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/parul-university-v-union-of-india-ors2026gujhc10491-homoeopathy-college-1608092
-
-[Source Link](https://t.me/verdictumlegalupdates/25515)
-
----
-
-### 2026-02-20T05:03:01+00:00
-Barking Up a Wrong Tree: Madras High Court Declines Plea to Restrain 70-Year Burial Usage, Says Burial Sites Must Be Notified
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/ks-balakrishnan-v-the-district-collector-wpnos36402-37501-44377-of-2025-burial-ground-70-year-land-scst-act-wrong-tree-1608090
-
-[Source Link](https://t.me/verdictumlegalupdates/25514)
-
----
-
-### 2026-02-20T04:33:10+00:00
-Caste Not Restricted To Biological Descent; Child’s Identity Not Anchored To Absent Father: Bombay High Court Directs Correction Of Name & Caste From School Records
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/xyz-minor-anr-v-state-of-maharashtra-ors2026bhc-aug7179-db-1608064
-
-[Source Link](https://t.me/verdictumlegalupdates/25513)
-
----
-
-### 2026-02-19T16:02:37+00:00
-Panel Lawyer Vacancy At District Legal Services Authority, Nagpur
-https://www.verdictum.in/job-updates/district-legal-services-authority-1608053
-
-[Source Link](https://t.me/verdictumlegalupdates/25512)
 
 ---
 
