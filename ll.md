@@ -1,86 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-20T17:58:04+00:00*
+*Last Updated: 2026-02-21T05:27:10+00:00*
 
 ---
 
-### 2026-02-20T17:58:04+00:00
-Law Centre II, University of Delhi Announces Smt. Sushma Swaraj Memorial National Parliamentary Debate 2026
-https://www.livelaw.in/lawschool/news/law-centre-ii-university-of-delhi-announces-smt-sushma-swaraj-memorial-national-parliamentary-debate-2026-524028
-
-[Read on Telegram](https://t.me/livelawindia/105606)
-
----
-### 2026-02-21T03:17:49+00:00
-Supreme Court Weekly Roundup: February 9, 2026 To February 15, 2026
-https://www.livelaw.in/round-ups/weekly/supreme-court-weekly-roundup-february-9-2026-to-february-15-2026-524003
-
-[Read on Telegram](https://t.me/livelawindia/105607)
-
----
-### 2026-02-21T04:13:00+00:00
-Cooperation With Investigation Doesn't Mean Self Incrimination: Supreme Court Grants Bail Despite Refusal To Surrender Mobile
-https://www.livelaw.in/top-stories/supreme-court-self-incrimination-anticipatory-bail-surrender-mobile-524013
-
-[Read on Telegram](https://t.me/livelawindia/105608)
-
----
-### 2026-02-21T04:20:00+00:00
-Supreme Court Issues Directions For Proper Enforcement Of Solid Waste Management Rules 2026
-https://www.livelaw.in/top-stories/supreme-court-issues-directions-for-proper-enforcement-of-solid-waste-management-rules-2026-524033
-
-[Read on Telegram](https://t.me/livelawindia/105609)
-
----
-### 2026-02-21T04:28:00+00:00
-2026 LiveLaw (SC) 182 | BHOPAL MUNICIPAL CORPORATION VERSUS DR SUBHASH C. PANDEY & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-182-bhopal-municipal-corporation-versus-dr-subhash-c-pandey-ors-524036
-
-[Read on Telegram](https://t.me/livelawindia/105610)
-
----
-### 2026-02-21T04:33:10+00:00
-Rajasthan High Court Monthly Digest: January 2026
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-monthly-digest-2026-522364
-
-[Read on Telegram](https://t.me/livelawindia/105611)
-
----
-### 2026-02-21T04:40:50+00:00
-Minor Refuses To Return Home, Alleges Forced Marriage: Gujarat High Court Orders Custody With Children Home
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-directed-children-home-custody-girl-524040
-
-[Read on Telegram](https://t.me/livelawindia/105612)
-
----
-### 2026-02-21T04:50:10+00:00
-From Being Forgotten To Being Found: Balancing Digital Reputation With Right To Information & Freedom Of Press
-https://www.livelaw.in/top-stories/right-to-be-found-versus-right-to-be-forgotten-privacy-free-press-right-to-information-reputation-524043
-
-[Read on Telegram](https://t.me/livelawindia/105613)
-
----
-### 2026-02-21T04:53:10+00:00
-Offences Under Chapter IV Of Drugs And Cosmetics Act Triable Only By Sessions Court, Not Magistrate: Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-chapteriv-drugs-and-cosmetics-act-sessions-court-triable-524022
-
-[Read on Telegram](https://t.me/livelawindia/105614)
-
----
-### 2026-02-21T05:09:10+00:00
-Prisoner Can't Be Transferred 800–1000 Km Away Without Reason, Causing Hardship To Family: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-distant-jail-transfer-family-travel-524047
-
-[Read on Telegram](https://t.me/livelawindia/105615)
-
----
-### 2026-02-21T05:12:30+00:00
-Know The Law | From Liberal Approach To Strict Scrutiny, Supreme Court Approach Towards Condoning Govt Delay
-https://www.livelaw.in/supreme-court/know-the-law-from-liberal-approach-to-strict-scrutiny-supreme-court-approach-towards-condoning-govt-delay-523897
-
-[Read on Telegram](https://t.me/livelawindia/105616)
-
----
 ### 2026-02-21T05:27:10+00:00
 Supreme Court Dismisses Plea Against Bombay HC View That Magistrate Can't Order Takedown Of Online Content Under S. 69 IT Act
 https://www.livelaw.in/top-stories/supreme-court-dismisses-plea-online-takedown-sec69-it-act-524011
@@ -142,5 +65,82 @@ Senior Analyst Vacancy At Ernst & Young India [Noida; Apply Now]
 https://www.livelaw.in/job-updates/senior-analyst-vacancy-at-ernst-young-india-noida-524056
 
 [Read on Telegram](https://t.me/livelawindia/105625)
+
+---
+### 2026-02-21T07:00:35+00:00
+Three Hours To Comply: India's New Rules For AI-Generated Content And Deepfakes
+https://www.livelaw.in/articles/ai-generated-content-deepfakes-524064
+
+[Read on Telegram](https://t.me/livelawindia/105626)
+
+---
+### 2026-02-21T08:03:06+00:00
+Supreme Court Asks Madhya Pradesh High Court To Decide Challenge To 27% OBC Quota In 3 Months
+https://www.livelaw.in/top-stories/supreme-court-asks-madhya-pradesh-high-court-to-decide-challenge-to-27-obc-quota-in-3-months-524066
+
+[Read on Telegram](https://t.me/livelawindia/105627)
+
+---
+### 2026-02-21T08:33:46+00:00
+Law Centre II, University Of Delhi To Host Model United Nations Conference 2.0 On March 28–29, 2026
+https://www.livelaw.in/lawschool/competitions/law-centre-ii-university-of-delhi-to-host-model-united-nations-conference-20-on-march-2829-2026-524067
+
+[Read on Telegram](https://t.me/livelawindia/105628)
+
+---
+### 2026-02-21T09:01:36+00:00
+“Who Let The Dogs Out?”: Karnataka High Court Stays Assault FIR Over Altercation After Dog Attempts To Bite Neighbour
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dog-neighbour-attempt-to-bite-fir-altercation-524069
+
+[Read on Telegram](https://t.me/livelawindia/105629)
+
+---
+### 2026-02-21T09:53:08+00:00
+Karnataka High Court Quashes Cheating FIR Against WinZo After Woman Alleged Misuse Of PAN Card On Gaming App
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-winzo-fir-cheating-misuse-pan-card-524070
+
+[Read on Telegram](https://t.me/livelawindia/105630)
+
+---
+### 2026-02-21T09:53:18+00:00
+Senior Consultants Vacancy At National Commission For Protection Of Child Rights (NCPCR)
+https://www.livelaw.in/job-updates/senior-consultants-vacancy-at-national-commission-for-protection-of-child-rights-ncpcr-524074
+
+[Read on Telegram](https://t.me/livelawindia/105631)
+
+---
+### 2026-02-21T10:32:54+00:00
+Bombay High Court Monthly Digest: January 2026
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-monthly-digest-january-2026-522519
+
+[Read on Telegram](https://t.me/livelawindia/105632)
+
+---
+### 2026-02-21T10:57:14+00:00
+Amicus Urges Supreme Court To Revise Draft Criminal Practice Rules In Light Of BNSS, BSA Changes
+https://www.livelaw.in/top-stories/amicus-urges-supreme-court-to-revise-draft-criminal-practice-rules-in-light-of-bnss-bsa-changes-524038
+
+[Read on Telegram](https://t.me/livelawindia/105633)
+
+---
+### 2026-02-21T11:17:14+00:00
+MP High Court Directs Return Of Original Documents To NEET PG Candidate Amid Seat Leaving Bond Dispute
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-directs-return-of-original-document-to-neet-pg-candidate-amid-seat-leaving-bond-dispute-524017
+
+[Read on Telegram](https://t.me/livelawindia/105634)
+
+---
+### 2026-02-21T11:22:24+00:00
+After Supreme Court's Criticism, UP Police Agree To Add Hate Crime Offences In Case Of Attack On Muslim Cleric
+https://www.livelaw.in/top-stories/supreme-court-attack-on-muslim-cleric-in-noida-up-govt-to-investigate-hate-crime-offenses-sections-153b-and-295a-ipc-524080
+
+[Read on Telegram](https://t.me/livelawindia/105635)
+
+---
+### 2026-02-21T11:36:04+00:00
+Supreme Court Dismisses Uttarakhand Forest Officer's Plea Against Prosecution Sanction In Corbett Park Tree Felling Case
+https://www.livelaw.in/top-stories/supreme-court-dismisses-uttarakhand-forest-officers-plea-against-prosecution-sanction-in-corbett-park-tree-felling-case-524081
+
+[Read on Telegram](https://t.me/livelawindia/105636)
 
 ---
