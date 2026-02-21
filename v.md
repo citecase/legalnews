@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-21T06:52:41+00:00*
+*Last Updated: 2026-02-21T12:52:23+00:00*
+
+---
+
+### 2026-02-21T12:52:23+00:00
+Entry Into House With Consent Not Ipso Facto Criminal; Consensual Relationship With Married Woman Does Not Attract Section 450 IPC: Orissa HC
+https://www.verdictum.in/court-updates/high-courts/orissa-high-court/ajit-kishan-v-state-of-odisha-crla-no-736-of-2025-consensual-relationship-married-woman-trespass-1608262
+
+[Source Link](https://t.me/verdictumlegalupdates/25548)
+
+---
+
+### 2026-02-21T12:02:41+00:00
+Pujari Is A Servant Of Deity;  Cannot Claim Ownership Or Hereditary Management Rights Over Temple Properties: Madhya Pradesh HC
+https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/state-of-mp-v-mandir-shri-ganeshji-2026mphc-gwl5986-pujari-manager-deity-servant-ownership-1608249
+
+[Source Link](https://t.me/verdictumlegalupdates/25547)
+
+---
+
+### 2026-02-21T11:13:00+00:00
+Telecom Operator Continuing Operation Post February 2, 2012, After License Quashing Liable To Pay Reserve Price: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/union-of-india-v-sistema-shyam-teleservices-limited-2026-insc-174-telecom-operator-license-quashing-reserve-price-1608248
+
+[Source Link](https://t.me/verdictumlegalupdates/25546)
+
+---
+
+### 2026-02-21T10:32:48+00:00
+Public Authorities Not Expected To Act In Dishonourable Manner: Delhi High Court Directs DDA To Forthwith Pay Advocate’s Fee
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ravi-prakash-mehrotra-v-delhi-development-authority-ors-2026dhc1494-1608245
+
+[Source Link](https://t.me/verdictumlegalupdates/25545)
+
+---
+
+### 2026-02-21T09:53:07+00:00
+Mortgage By Conditional Sale| Nature of Transaction Must Be Gathered From Entire Document; Mere Description As Sale Not Conclusive: Gujarat HC
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/patel-hasanbhai-alibhai-aadambhai-v-patel-jayeshkumar-ishwarbhai-2026gujhc13084-document-as-a-whole-mortgage-conditional-sale-1608241
+
+[Source Link](https://t.me/verdictumlegalupdates/25544)
+
+---
+
+### 2026-02-21T09:02:25+00:00
+Failure To Furnish Grounds Of Arrest Before Magistrate Renders Arrest Illegal: Karnataka High Court Grants Bail To Murder Accused
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/nanjunda-v-state-of-karnataka-grounds-of-arrest-murder-accused-article-221-1608235
+
+[Source Link](https://t.me/verdictumlegalupdates/25543)
+
+---
+
+### 2026-02-21T08:22:24+00:00
+Grandparents Not “Family”; Settlements By Grandchildren Attract Higher Duty: Madras High Court
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/v-shiva-v-inspector-general-of-registration-ors-and-connected-matter-1608234
+
+[Source Link](https://t.me/verdictumlegalupdates/25542)
+
+---
+
+### 2026-02-21T07:32:42+00:00
+Unfair Contractual Clauses No Bar To Just Compensation; Detailed Mathematical Assessment Not Sine Qua Non Under Consumer Protection Act: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/parsvnath-developers-ltd-v-mohit-khirbat-2026-insc-170-homebuyers-developers-residential-possession-oc-1608226
+
+[Source Link](https://t.me/verdictumlegalupdates/25541)
 
 ---
 
@@ -97,70 +161,6 @@ Abetment Of Suicide Offence Not Attracted Merely Because Husband Harboured Doubt
 https://www.verdictum.in/court-updates/high-courts/uttarakhand-high-court/sunil-dutt-pathak-v-state-of-uttarakhand-2026uhc1053-criminal-liability-section-306-ipc-husband-doubts-wife-1608155
 
 [Source Link](https://t.me/verdictumlegalupdates/25529)
-
----
-
-### 2026-02-20T12:02:29+00:00
-Non-Earning Spouse Cannot Be Treated As “Idle”; Domestic Labour Must Be Recognised While Deciding Maintenance: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/rakesh-ray-v-priti-ray-connected-matters-2026dhc1380-maintenance-1608152
-
-[Source Link](https://t.me/verdictumlegalupdates/25528)
-
----
-
-### 2026-02-20T11:33:08+00:00
-State Cannot Act As Private Litigant To Justify Illegal Seizure Through The Plea Of Delay: J&K & Ladakh High Court
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/dr-posh-charak-v-u-t-of-jk-2026jklhc-jmu182-writ-jurisdiction-illegal-land-occupy-seizure-disputed-facts-1608124
-
-[Source Link](https://t.me/verdictumlegalupdates/25527)
-
----
-
-### 2026-02-20T11:02:47+00:00
-Supreme Court Refuses To Entertain Plea To Ban Naming of Mosques or Religious Structures After Name Of Mughal Emperor Babur
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-refuses-to-entertain-plea-to-ban-naming-of-mosques-or-religious-structures-after-name-of-mughal-emperor-babur-1608126
-
-[Source Link](https://t.me/verdictumlegalupdates/25526)
-
----
-
-### 2026-02-20T10:32:05+00:00
-Case Of Complete Collusion And Hobnobbing: SC Slams Police-Power Nexus, Asks To Conclude Murder Trial Against YSRCP MLC By Nov 30
-https://www.verdictum.in/court-updates/supreme-court/case-of-complete-collusion-and-hobnobbing-sc-slams-police-power-nexus-asks-to-conclude-murder-trial-against-ysrcp-mlc-by-nov-30-1608129
-
-[Source Link](https://t.me/verdictumlegalupdates/25525)
-
----
-
-### 2026-02-20T10:02:24+00:00
-Supreme Court Disposes Of Plea After A.R. Rahman Agrees To Credit Dagar Brothers’ "Shiva Stuti" Performance In Ponniyin Selvan II Song
-https://www.verdictum.in/court-updates/supreme-court/disposes-plea-after-ar-rahman-agrees-credit-dagar-brothers-shiva-stuti-performance-ponniyin-selvan-ii-song-1608133
-
-[Source Link](https://t.me/verdictumlegalupdates/25524)
-
----
-
-### 2026-02-20T09:36:23+00:00
-Breaking: Supreme Court Orders Judicial Oversight In West Bengal SIR Row; Asks High Court To Appoint Judicial Officers To Adjudicate Claims And Objections In Process
-https://www.verdictum.in/court-updates/supreme-court/orders-judicial-oversight-west-bengal-sir-row-high-court-appoint-judicial-officers-adjudicate-claims-objections-1608132
-
-[Source Link](https://t.me/verdictumlegalupdates/25523)
-
----
-
-### 2026-02-20T09:02:32+00:00
-Supreme Court Seeks Centre's Response On Woman's Plea To Bring Mortal Remains Of Son From Dubai
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-seeks-centres-response-on-womans-plea-to-bring-mortal-remains-of-son-from-dubai-1608125
-
-[Source Link](https://t.me/verdictumlegalupdates/25522)
-
----
-
-### 2026-02-20T08:15:10+00:00
-Don't Fight Political Battles Here: Supreme Court Refuses To Entertain Petition Against PVC Boards In Kerala
-https://www.verdictum.in/court-updates/supreme-court/refuses-to-entertain-petition-against-pvc-boards-in-kerala-1608122
-
-[Source Link](https://t.me/verdictumlegalupdates/25521)
 
 ---
 
