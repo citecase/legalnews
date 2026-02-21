@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-20T16:02:42+00:00*
+*Last Updated: 2026-02-21T06:52:41+00:00*
+
+---
+
+### 2026-02-21T06:52:41+00:00
+Landowners Not Concerned With Construction Can’t Be Held Liable For Deficiency In Service For Lapse On Developer’s Part: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/sriganesh-chandrasekaran-v-ms-unishire-homes-llp-2026-insc-172-landowners-construction-deficiency-service-developer-1608215
+
+[Source Link](https://t.me/verdictumlegalupdates/25540)
+
+---
+
+### 2026-02-21T06:02:59+00:00
+Drugs And Cosmetics Act| S. 36-A Not Applicable Where S. 32(2) Applies: Supreme Court Denies Relief To Pharma Company Accused Of Violations
+https://www.verdictum.in/court-updates/supreme-court/ms-sbs-biotech-others-v-state-of-himachal-pradesh-2026-insc-171-dca-1608203
+
+[Source Link](https://t.me/verdictumlegalupdates/25539)
+
+---
+
+### 2026-02-21T05:12:58+00:00
+Absence Of DNA Testing Of Patrially Decomposed Body Does Not Vitiate Identification If Credible Witness Testimony Establishes Identity: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/neelu-nilesh-koshti-v-state-of-madhya-pradesh-insc-173-identification-dna-1608198
+
+[Source Link](https://t.me/verdictumlegalupdates/25538)
+
+---
+
+### 2026-02-21T04:32:56+00:00
+Presence Of Public Urinal & Open Garbage Bin Next To Somebody’s House Violates Right To Life: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/rachit-gupta-v-government-of-nct-of-delhi-2026dhc1483-public-urinal-open-garbage-house-right-to-life-1608172
+
+[Source Link](https://t.me/verdictumlegalupdates/25537)
 
 ---
 
@@ -129,38 +161,6 @@ Don't Fight Political Battles Here: Supreme Court Refuses To Entertain Petition 
 https://www.verdictum.in/court-updates/supreme-court/refuses-to-entertain-petition-against-pvc-boards-in-kerala-1608122
 
 [Source Link](https://t.me/verdictumlegalupdates/25521)
-
----
-
-### 2026-02-20T08:02:29+00:00
-Encroachment In Mumbai Has Assumed Character Of Disease: Bombay High Court Directs BMC To Submit Encroachment Removal Plan On A "Private Street"
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/beaumont-hfsi-pre-primary-anr-v-municipal-corporation-of-greater-mumbai-ors-1608121
-
-[Source Link](https://t.me/verdictumlegalupdates/25520)
-
----
-
-### 2026-02-20T07:32:28+00:00
-Merely Advancing Money To People Doesn't Ipso Facto Make A Party "Money Lender": Bombay HC
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/hubtown-limited-v-ashok-commercial-enterprises-2026bhc-os1601-money-lender-loan-recovery-suit-1608113
-
-[Source Link](https://t.me/verdictumlegalupdates/25519)
-
----
-
-### 2026-02-20T07:02:46+00:00
-A Slap Over Wife Staying At Paternal Home Without Informing Husband Not ‘Cruelty’: Gujarat High Court Acquits Husband In Wife’s Suicide Case
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/dilipbhai-manglabhai-varli-v-state-of-gujarat-2026gujhc10136-wife-slap-quarrel-suicide-1608109
-
-[Source Link](https://t.me/verdictumlegalupdates/25518)
-
----
-
-### 2026-02-20T06:33:05+00:00
-Shared Household Not Sine Qua Non For Economic Abuse Under Domestic Violence Act; Woman Compelled To Leave Matrimonial Home Can Invoke Jurisdiction From Temporary Residence: Calcutta High Court
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/rani-bibi-v-sk-nurullah-2026chc-as289-matrimonial-home-dv-act-temporary-residence-1608099
-
-[Source Link](https://t.me/verdictumlegalupdates/25517)
 
 ---
 
