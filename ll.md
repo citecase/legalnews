@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-21T05:27:10+00:00*
+*Last Updated: 2026-02-21T06:12:21+00:00*
 
 ---
 
-### 2026-02-21T05:27:10+00:00
-Supreme Court Dismisses Plea Against Bombay HC View That Magistrate Can't Order Takedown Of Online Content Under S. 69 IT Act
-https://www.livelaw.in/top-stories/supreme-court-dismisses-plea-online-takedown-sec69-it-act-524011
-
-[Read on Telegram](https://t.me/livelawindia/105617)
-
----
-### 2026-02-21T05:33:00+00:00
-Labour Court Can Extend Time For Compliance Of Award Even After It Becomes Enforceable Under Section 17A ID Act: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/labour-court-extend-time-compliance-award-section-17a-industrial-disputes-act-524050
-
-[Read on Telegram](https://t.me/livelawindia/105618)
-
----
-### 2026-02-21T05:55:41+00:00
-Complete Supreme Court Annual Digest 2025 [Part-IV]
-https://www.livelaw.in/supreme-court/complete-supreme-court-annual-digest-2025-524054
-
-[Read on Telegram](https://t.me/livelawindia/105619)
-
----
-### 2026-02-21T06:02:41+00:00
-Salary Of Officer Relieved From Post Without Next Posting To Be Recovered From Official Empowered To Order Transfer: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-posting-of-officers-state-government-524053
-
-[Read on Telegram](https://t.me/livelawindia/105620)
-
----
-### 2026-02-21T06:09:01+00:00
-Assistant Legal Aid Defense Counsel Vacancy At Office Of The District Legal Services Authority, Balangir
-https://www.livelaw.in/job-updates/assistant-legal-aid-defense-counsel-vacancy-at-office-of-the-district-legal-services-authority-balangir-524057
-
-[Read on Telegram](https://t.me/livelawindia/105621)
-
----
-### 2026-02-21T06:11:01+00:00
-Senior Personnel Officer Vacancy At Syama Prasad Mookerjee Port, Kolkata
-https://www.livelaw.in/job-updates/senior-personnel-officer-vacancy-at-syama-prasad-mookerjee-port-kolkata-524058
-
-[Read on Telegram](https://t.me/livelawindia/105622)
-
----
 ### 2026-02-21T06:12:21+00:00
 Legal Officer Vacancy At Non-CSG Cadres In Reserve Bank Of India (RBI)
 https://www.livelaw.in/job-updates/legal-officer-vacancy-at-non-csg-cadres-in-reserve-bank-of-india-rbi-524059
@@ -142,5 +100,47 @@ Supreme Court Dismisses Uttarakhand Forest Officer's Plea Against Prosecution Sa
 https://www.livelaw.in/top-stories/supreme-court-dismisses-uttarakhand-forest-officers-plea-against-prosecution-sanction-in-corbett-park-tree-felling-case-524081
 
 [Read on Telegram](https://t.me/livelawindia/105636)
+
+---
+### 2026-02-21T14:34:15+00:00
+Delhi High Court Fines Lawyer For Failing To Inform Opposite Side's Counsel While Seeking Adjournment
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-fines-lawyer-for-failing-to-inform-opposite-sides-counsel-while-seeking-adjournment-524091
+
+[Read on Telegram](https://t.me/livelawindia/105637)
+
+---
+### 2026-02-21T14:38:25+00:00
+'Unintentional Mistake': Karnataka High Court Quashes FIR Over Hoisting National Flag Upside Down On Independence Day Function
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-fir-hoisting-national-flag-upside-down-524095
+
+[Read on Telegram](https://t.me/livelawindia/105638)
+
+---
+### 2026-02-21T15:02:59+00:00
+Delhi High Court Asks Litigant To Approach Grievances Council Over Plea Against Streaming Of 'Lady Chatterley's Lover' Film
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-asks-litigant-to-approach-grievances-council-over-plea-against-streaming-of-lady-chatterleys-lover-film-524092
+
+[Read on Telegram](https://t.me/livelawindia/105639)
+
+---
+### 2026-02-21T15:35:30+00:00
+M.C.E. Society's A.K.K. New Law Academy, Pune Organises Dr. P.A. Inamdar National Moot Court Competition 2026
+https://www.livelaw.in/lawschool/moot-courts/mce-societys-akk-new-law-academy-pune-organises-dr-pa-inamdar-national-moot-court-competition-524104
+
+[Read on Telegram](https://t.me/livelawindia/105640)
+
+---
+### 2026-02-21T15:52:54+00:00
+“Statutory Authority Cannot Act As Rubber Stamp”: J&K&L High Court Grants Relief To Homeowner, Stays Eviction
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-final-decision-must-reflect-authoritys-own-mind-statutory-authority-cannot-act-as-rubber-stamp-or-abdicate-core-decision-making-524090
+
+[Read on Telegram](https://t.me/livelawindia/105641)
+
+---
+### 2026-02-21T15:57:54+00:00
+Husband Abandoning Wife & Defaulting In Paying Maintenance Forfeits Right To Contest Dissolution Of Marriage: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-maintenance-default-amount-mental-cruelty-524094
+
+[Read on Telegram](https://t.me/livelawindia/105642)
 
 ---
