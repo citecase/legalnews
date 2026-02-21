@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-21T12:52:23+00:00*
+*Last Updated: 2026-02-21T15:02:47+00:00*
+
+---
+
+### 2026-02-21T15:02:47+00:00
+Indian Council of Medical Research Invites Applications For The Recruitment Of Young Professionals (Legal)
+https://www.verdictum.in/job-updates/indian-council-of-medical-research-1608265
+
+[Source Link](https://t.me/verdictumlegalupdates/25551)
+
+---
+
+### 2026-02-21T14:12:26+00:00
+MRTP Act | Land Deemed To Be Released If No Acquisition Steps Taken Within 24 Months of Purchase Notice: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/yakub-salebhai-contractor-v-state-of-maharashtra-2026bhc-as8128-db-acquisition-land-24-months-purchase-notice-1608264
+
+[Source Link](https://t.me/verdictumlegalupdates/25550)
+
+---
+
+### 2026-02-21T13:33:04+00:00
+Circumstantial Evidence Complete If It Unerringly Points To Guilt: Kerala High Court Upholds Conviction Of Man Accused Of Killing Friend To Continue Affair With His Wife
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/v-manoj-v-state-of-kerala-connected-appeal-2026ker13921-circumstantial-evidence-1608263
+
+[Source Link](https://t.me/verdictumlegalupdates/25549)
 
 ---
 
@@ -137,30 +161,6 @@ Minor Assault Without Intent Or Knowledge Cannot Amount To Murder Even If Victim
 https://www.verdictum.in/court-updates/high-courts/kerala-high-court/abdul-jaleel-v-the-state-of-kerala-2026ker13793-intent-knowledge-minor-assault-302-ipc-1608158
 
 [Source Link](https://t.me/verdictumlegalupdates/25532)
-
----
-
-### 2026-02-20T13:32:25+00:00
-Administrative Necessity & Public Interest Justify De Novo Recruitment, Where Earlier Process Becomes Stale Or Inconclusive: Punjab & Haryana High Court
-https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/birendra-singh-rawat-state-of-punjab-and-another-2025phhc179779-administrative-necessity-public-interest-de-novo-recruitment-1608157
-
-[Source Link](https://t.me/verdictumlegalupdates/25531)
-
----
-
-### 2026-02-20T13:03:12+00:00
-HR&CE-Backed Temple Festivals Cannot Propagate Caste; Donor Names To Be Printed Without Caste References: Madras High Court
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/n-samaran-v-the-commissioner-temple-invitation-caste-reference-hrce-1608156
-
-[Source Link](https://t.me/verdictumlegalupdates/25530)
-
----
-
-### 2026-02-20T12:32:51+00:00
-Abetment Of Suicide Offence Not Attracted Merely Because Husband Harboured Doubts About Wife’s Character: Uttarakhand High Court
-https://www.verdictum.in/court-updates/high-courts/uttarakhand-high-court/sunil-dutt-pathak-v-state-of-uttarakhand-2026uhc1053-criminal-liability-section-306-ipc-husband-doubts-wife-1608155
-
-[Source Link](https://t.me/verdictumlegalupdates/25529)
 
 ---
 
