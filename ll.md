@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-21T08:03:06+00:00*
+*Last Updated: 2026-02-21T10:32:54+00:00*
 
 ---
 
-### 2026-02-21T08:03:06+00:00
-Supreme Court Asks Madhya Pradesh High Court To Decide Challenge To 27% OBC Quota In 3 Months
-https://www.livelaw.in/top-stories/supreme-court-asks-madhya-pradesh-high-court-to-decide-challenge-to-27-obc-quota-in-3-months-524066
-
-[Read on Telegram](https://t.me/livelawindia/105627)
-
----
-### 2026-02-21T08:33:46+00:00
-Law Centre II, University Of Delhi To Host Model United Nations Conference 2.0 On March 28–29, 2026
-https://www.livelaw.in/lawschool/competitions/law-centre-ii-university-of-delhi-to-host-model-united-nations-conference-20-on-march-2829-2026-524067
-
-[Read on Telegram](https://t.me/livelawindia/105628)
-
----
-### 2026-02-21T09:01:36+00:00
-“Who Let The Dogs Out?”: Karnataka High Court Stays Assault FIR Over Altercation After Dog Attempts To Bite Neighbour
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dog-neighbour-attempt-to-bite-fir-altercation-524069
-
-[Read on Telegram](https://t.me/livelawindia/105629)
-
----
-### 2026-02-21T09:53:08+00:00
-Karnataka High Court Quashes Cheating FIR Against WinZo After Woman Alleged Misuse Of PAN Card On Gaming App
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-winzo-fir-cheating-misuse-pan-card-524070
-
-[Read on Telegram](https://t.me/livelawindia/105630)
-
----
-### 2026-02-21T09:53:18+00:00
-Senior Consultants Vacancy At National Commission For Protection Of Child Rights (NCPCR)
-https://www.livelaw.in/job-updates/senior-consultants-vacancy-at-national-commission-for-protection-of-child-rights-ncpcr-524074
-
-[Read on Telegram](https://t.me/livelawindia/105631)
-
----
 ### 2026-02-21T10:32:54+00:00
 Bombay High Court Monthly Digest: January 2026
 https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-monthly-digest-january-2026-522519
@@ -142,5 +107,40 @@ https://www.livelaw.in/top-stories/widen-law-make-it-more-intelligible-cji-urges
 https://www.livelaw.in/high-court/calcutta-high-court/criminal-liability-cannot-flow-from-designation-alone-calcutta-high-court-quashes-mgnregs-misappropriation-case-against-officer-524096
 
 [Read on Telegram](https://t.me/livelawindia/105646)
+
+---
+### 2026-02-22T09:28:46+00:00
+Lok Sabha Speaker And Law Minister Launch JGU's New Master's Programmes In Electoral Analysis, Political Communication & Legislative Drafting
+https://www.livelaw.in/lawschool/news/lok-sabha-speaker-law-minister-launch-jgus-new-masters-programmes-524113
+
+[Read on Telegram](https://t.me/livelawindia/105647)
+
+---
+### 2026-02-22T09:32:46+00:00
+Behind Closed Doors: Domestic Violence And The Law's Ongoing Battle In India
+https://www.livelaw.in/law-firms/law-firm-articles-/behind-closed-doors-domestic-violence-and-the-laws-ongoing-battle-in-india-524114
+
+[Read on Telegram](https://t.me/livelawindia/105648)
+
+---
+### 2026-02-22T09:47:16+00:00
+Relatives Can't Be Put To Trial On 'General Abuse' Claims Alone: Calcutta High Court Partly Quashes Matrimonial Cruelty Case U/S 498A IPC
+https://www.livelaw.in/high-court/calcutta-high-court/relatives-cant-be-put-to-trial-on-general-abuse-claims-alone-calcutta-high-court-partly-quashes-matrimonial-cruelty-case-us-498a-ipc-524097
+
+[Read on Telegram](https://t.me/livelawindia/105649)
+
+---
+### 2026-02-22T10:33:16+00:00
+Bharatiya Nagarik Suraksha Sanhita (BNSS) And Bhartiya Nyaya Sanhita (BNS) Monthly Digest: January 2026
+https://www.livelaw.in/top-stories/bnss-bns-monthly-digest-january-2026-522362
+
+[Read on Telegram](https://t.me/livelawindia/105650)
+
+---
+### 2026-02-22T10:33:26+00:00
+Punjab & Haryana High Court Monthly Digest: January 2026
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-monthly-digest-january-2026-523290
+
+[Read on Telegram](https://t.me/livelawindia/105651)
 
 ---
