@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-21T10:32:54+00:00*
+*Last Updated: 2026-02-21T11:22:24+00:00*
 
 ---
 
-### 2026-02-21T10:32:54+00:00
-Bombay High Court Monthly Digest: January 2026
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-monthly-digest-january-2026-522519
-
-[Read on Telegram](https://t.me/livelawindia/105632)
-
----
-### 2026-02-21T10:57:14+00:00
-Amicus Urges Supreme Court To Revise Draft Criminal Practice Rules In Light Of BNSS, BSA Changes
-https://www.livelaw.in/top-stories/amicus-urges-supreme-court-to-revise-draft-criminal-practice-rules-in-light-of-bnss-bsa-changes-524038
-
-[Read on Telegram](https://t.me/livelawindia/105633)
-
----
-### 2026-02-21T11:17:14+00:00
-MP High Court Directs Return Of Original Documents To NEET PG Candidate Amid Seat Leaving Bond Dispute
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-directs-return-of-original-document-to-neet-pg-candidate-amid-seat-leaving-bond-dispute-524017
-
-[Read on Telegram](https://t.me/livelawindia/105634)
-
----
 ### 2026-02-21T11:22:24+00:00
 After Supreme Court's Criticism, UP Police Agree To Add Hate Crime Offences In Case Of Attack On Muslim Cleric
 https://www.livelaw.in/top-stories/supreme-court-attack-on-muslim-cleric-in-noida-up-govt-to-investigate-hate-crime-offenses-sections-153b-and-295a-ipc-524080
@@ -142,5 +121,26 @@ Punjab & Haryana High Court Monthly Digest: January 2026
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-monthly-digest-january-2026-523290
 
 [Read on Telegram](https://t.me/livelawindia/105651)
+
+---
+### 2026-02-22T13:12:47+00:00
+SCLC Youth Summit 2026 | National Youth Parliament & Model United Nations | Prize Pool ₹99,000 | 7–8 March 2026 | Pune
+https://www.livelaw.in/lawschool/competitions/sclc-youth-summit-2026-national-youth-parliament-model-united-nations-prize-pool-99000-78-march-2026-pune-524115
+
+[Read on Telegram](https://t.me/livelawindia/105652)
+
+---
+### 2026-02-22T13:32:48+00:00
+Medical Trainees Not 'Employees' Under EPF Act: Calcutta High Court Upholds Tribunal Order, Quashes PF Demand
+https://www.livelaw.in/high-court/calcutta-high-court/medical-trainees-not-employees-under-epf-act-calcutta-high-court-upholds-tribunal-order-quashes-pf-demand-524098
+
+[Read on Telegram](https://t.me/livelawindia/105653)
+
+---
+### 2026-02-22T16:14:10+00:00
+Law Firms Generating Unnecessary Litigation By Drafting Confusing Arbitration Clauses Is Professional Misconduct : Supreme Court
+https://www.livelaw.in/top-stories/law-firms-generating-unnecessary-litigation-by-drafting-confusing-arbitration-clauses-is-professional-misconduct-supreme-court-524122
+
+[Read on Telegram](https://t.me/livelawindia/105654)
 
 ---
