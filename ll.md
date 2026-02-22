@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-21T06:12:21+00:00*
+*Last Updated: 2026-02-21T08:03:06+00:00*
 
 ---
 
-### 2026-02-21T06:12:21+00:00
-Legal Officer Vacancy At Non-CSG Cadres In Reserve Bank Of India (RBI)
-https://www.livelaw.in/job-updates/legal-officer-vacancy-at-non-csg-cadres-in-reserve-bank-of-india-rbi-524059
-
-[Read on Telegram](https://t.me/livelawindia/105623)
-
----
-### 2026-02-21T06:20:41+00:00
-Multiple Vacancies At One Stop Centre, Adoni [Kurnool District, Andhra Pradesh]
-https://www.livelaw.in/job-updates/multiple-vacancies-at-one-stop-centre-adoni-kurnool-district-andhra-pradesh-524061
-
-[Read on Telegram](https://t.me/livelawindia/105624)
-
----
-### 2026-02-21T06:32:31+00:00
-Senior Analyst Vacancy At Ernst & Young India [Noida; Apply Now]
-https://www.livelaw.in/job-updates/senior-analyst-vacancy-at-ernst-young-india-noida-524056
-
-[Read on Telegram](https://t.me/livelawindia/105625)
-
----
-### 2026-02-21T07:00:35+00:00
-Three Hours To Comply: India's New Rules For AI-Generated Content And Deepfakes
-https://www.livelaw.in/articles/ai-generated-content-deepfakes-524064
-
-[Read on Telegram](https://t.me/livelawindia/105626)
-
----
 ### 2026-02-21T08:03:06+00:00
 Supreme Court Asks Madhya Pradesh High Court To Decide Challenge To 27% OBC Quota In 3 Months
 https://www.livelaw.in/top-stories/supreme-court-asks-madhya-pradesh-high-court-to-decide-challenge-to-27-obc-quota-in-3-months-524066
@@ -142,5 +114,33 @@ Husband Abandoning Wife & Defaulting In Paying Maintenance Forfeits Right To Con
 https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-maintenance-default-amount-mental-cruelty-524094
 
 [Read on Telegram](https://t.me/livelawindia/105642)
+
+---
+### 2026-02-22T04:32:29+00:00
+Associate Vacancy At Ernst & Young India [Chennai; Apply Now]
+https://www.livelaw.in/job-updates/associate-vacancy-at-ernst-young-india-chennai-524062
+
+[Read on Telegram](https://t.me/livelawindia/105643)
+
+---
+### 2026-02-22T04:32:49+00:00
+Chhattisgarh High Court Monthly Digest: January 2026
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-monthly-digest-january-2026-522368
+
+[Read on Telegram](https://t.me/livelawindia/105644)
+
+---
+### 2026-02-22T05:39:59+00:00
+“Widen Law, Make It More Intelligible”: CJI Urges Young Graduates To Keep Law Accessible
+https://www.livelaw.in/top-stories/widen-law-make-it-more-intelligible-cji-urges-young-graduates-to-keep-law-accessible-524112
+
+[Read on Telegram](https://t.me/livelawindia/105645)
+
+---
+### 2026-02-22T06:37:51+00:00
+“Criminal Liability Cannot Flow From Designation Alone”: Calcutta High Court Quashes MGNREGS Misappropriation Case Against Officer
+https://www.livelaw.in/high-court/calcutta-high-court/criminal-liability-cannot-flow-from-designation-alone-calcutta-high-court-quashes-mgnregs-misappropriation-case-against-officer-524096
+
+[Read on Telegram](https://t.me/livelawindia/105646)
 
 ---
