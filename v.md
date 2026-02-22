@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-22T12:03:05+00:00*
+*Last Updated: 2026-02-22T15:02:48+00:00*
+
+---
+
+### 2026-02-22T15:02:48+00:00
+Para Legal Vacancy At Women Development and Child Welfare Department, Kurnool
+https://www.verdictum.in/job-updates/women-development-and-child-welfare-department-1608268
+
+[Source Link](https://t.me/verdictumlegalupdates/25559)
+
+---
+
+### 2026-02-22T13:32:06+00:00
+Dowry Death Conviction Cannot Be Based On Prior Matrimonial Conduct Unconnected To Death: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/state-govt-of-nct-of-delhi-v-aftab-another-2026dhc1334-db-dowry-death-1608323
+
+[Source Link](https://t.me/verdictumlegalupdates/25558)
 
 ---
 
@@ -145,22 +161,6 @@ Landowners Not Concerned With Construction Can’t Be Held Liable For Deficiency
 https://www.verdictum.in/court-updates/supreme-court/sriganesh-chandrasekaran-v-ms-unishire-homes-llp-2026-insc-172-landowners-construction-deficiency-service-developer-1608215
 
 [Source Link](https://t.me/verdictumlegalupdates/25540)
-
----
-
-### 2026-02-21T06:02:59+00:00
-Drugs And Cosmetics Act| S. 36-A Not Applicable Where S. 32(2) Applies: Supreme Court Denies Relief To Pharma Company Accused Of Violations
-https://www.verdictum.in/court-updates/supreme-court/ms-sbs-biotech-others-v-state-of-himachal-pradesh-2026-insc-171-dca-1608203
-
-[Source Link](https://t.me/verdictumlegalupdates/25539)
-
----
-
-### 2026-02-21T05:12:58+00:00
-Absence Of DNA Testing Of Patrially Decomposed Body Does Not Vitiate Identification If Credible Witness Testimony Establishes Identity: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/neelu-nilesh-koshti-v-state-of-madhya-pradesh-insc-173-identification-dna-1608198
-
-[Source Link](https://t.me/verdictumlegalupdates/25538)
 
 ---
 
