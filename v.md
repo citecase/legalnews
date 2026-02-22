@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-21T15:02:47+00:00*
+*Last Updated: 2026-02-22T06:02:19+00:00*
+
+---
+
+### 2026-02-22T06:02:19+00:00
+Wife’s Convenience No Longer Paramount In Matrimonial Transfer Pleas: Madhya Pradesh High Court
+https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/ekta-vaish-v-deepak-kuchbandiya-2026mphc-jbp14249-1608267
+
+[Source Link](https://t.me/verdictumlegalupdates/25553)
+
+---
+
+### 2026-02-22T04:32:27+00:00
+Salary Details Of Husband "Personal Information": Rajasthan High Court Upholds Dismissal Of Wife’s RTI Plea
+https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/kanta-kumawat-v-state-of-rajasthan-2026rj-jd6212-salary-husband-personal-information-1608266
+
+[Source Link](https://t.me/verdictumlegalupdates/25552)
 
 ---
 
@@ -145,22 +161,6 @@ Single Assault To Deter Love Relationship Opposed By Family Does Not Breach "Pub
 https://www.verdictum.in/court-updates/high-courts/bombay-high-court/aditya-shailendra-mane-v-the-state-of-maharashtra-2026bhc-kol944-db-love-boy-girl-assault-deter-family-members-1608160
 
 [Source Link](https://t.me/verdictumlegalupdates/25534)
-
----
-
-### 2026-02-20T14:32:58+00:00
-Ancestral Property Not Immune From Attachment As Equivalent Value Of Proceeds Of Crime Under PMLA: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/arun-suri-v-directorate-of-enforcement-2026dhc1391-db-ed-property-attached-1608159
-
-[Source Link](https://t.me/verdictumlegalupdates/25533)
-
----
-
-### 2026-02-20T14:02:37+00:00
-Minor Assault Without Intent Or Knowledge Cannot Amount To Murder Even If Victim Dies Of Heart Condition: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/abdul-jaleel-v-the-state-of-kerala-2026ker13793-intent-knowledge-minor-assault-302-ipc-1608158
-
-[Source Link](https://t.me/verdictumlegalupdates/25532)
 
 ---
 
