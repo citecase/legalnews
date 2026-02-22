@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-22T06:02:19+00:00*
+*Last Updated: 2026-02-22T12:03:05+00:00*
+
+---
+
+### 2026-02-22T12:03:05+00:00
+Consider Jurisprudence Routinely Adopted Is Counterproductive; Bad Practice To Invoke Contempt Jurisdiction For Quick Relief: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/mahendra-prasad-agarwal-v-arvind-kumar-singh-2026-insc-175-consider-jurisprudence-counterproductive-contempt-jurisdiction-1608322
+
+[Source Link](https://t.me/verdictumlegalupdates/25557)
+
+---
+
+### 2026-02-22T10:33:03+00:00
+Jharkhand High Court Closes Contempt Case Against Lawyer Who Asked Judge Not To Cross Limits; Accepts His Unconditional Apology
+https://www.verdictum.in/court-updates/high-courts/jharkhand-high-court/the-court-on-its-own-motion-v-mahesh-tewari-2026jhhc4155-fb-advocate-restraint-close-contempt-case-1608321
+
+[Source Link](https://t.me/verdictumlegalupdates/25556)
+
+---
+
+### 2026-02-22T09:02:42+00:00
+Assault By Employer Cannot Be Termed “Accident” For Seeking Compensation U/S 3 Employees’ Compensation Act: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/swamy-dead-v-kumara-neutral-citation-2026khc6427-employee-compensation-1608320
+
+[Source Link](https://t.me/verdictumlegalupdates/25555)
+
+---
+
+### 2026-02-22T07:32:20+00:00
+Government Not To Transfer Officials Without Providing Posting: Karnataka High Court Issues Directions To Regulate Transfer Practice
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/k-arun-kumar-v-state-of-karnataka-ors-2026khc6227-db-transfers-1608287
+
+[Source Link](https://t.me/verdictumlegalupdates/25554)
 
 ---
 
@@ -129,38 +161,6 @@ Absence Of DNA Testing Of Patrially Decomposed Body Does Not Vitiate Identificat
 https://www.verdictum.in/court-updates/supreme-court/neelu-nilesh-koshti-v-state-of-madhya-pradesh-insc-173-identification-dna-1608198
 
 [Source Link](https://t.me/verdictumlegalupdates/25538)
-
----
-
-### 2026-02-21T04:32:56+00:00
-Presence Of Public Urinal & Open Garbage Bin Next To Somebody’s House Violates Right To Life: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/rachit-gupta-v-government-of-nct-of-delhi-2026dhc1483-public-urinal-open-garbage-house-right-to-life-1608172
-
-[Source Link](https://t.me/verdictumlegalupdates/25537)
-
----
-
-### 2026-02-20T16:02:42+00:00
-Family Court Mahasamund, Chhattisgarh Invites Applications For The Post Of Amicus Curiae
-https://www.verdictum.in/job-updates/district-mahasamund-1608161
-
-[Source Link](https://t.me/verdictumlegalupdates/25536)
-
----
-
-### 2026-02-20T15:33:01+00:00
-Ed-Tech Platforms Can Use Publicly Available Data To Rank Universities If Not Disparaging: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ms-getmyuni-education-services-private-limited-v-mangalayatan-university-2026dhc1394-university-ranking-1608171
-
-[Source Link](https://t.me/verdictumlegalupdates/25535)
-
----
-
-### 2026-02-20T15:02:19+00:00
-Single Assault To Deter Love Relationship Opposed By Family Does Not Breach "Public Order": Bombay HC Quashes Detention Order  Under MPDA
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/aditya-shailendra-mane-v-the-state-of-maharashtra-2026bhc-kol944-db-love-boy-girl-assault-deter-family-members-1608160
-
-[Source Link](https://t.me/verdictumlegalupdates/25534)
 
 ---
 
