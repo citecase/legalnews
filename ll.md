@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-21T11:22:24+00:00*
+*Last Updated: 2026-02-23T04:44:09+00:00*
 
 ---
 
-### 2026-02-21T11:22:24+00:00
-After Supreme Court's Criticism, UP Police Agree To Add Hate Crime Offences In Case Of Attack On Muslim Cleric
-https://www.livelaw.in/top-stories/supreme-court-attack-on-muslim-cleric-in-noida-up-govt-to-investigate-hate-crime-offenses-sections-153b-and-295a-ipc-524080
+### 2026-02-23T04:44:09+00:00
+Young Professional Vacancy At Office Of Pr. Chief Commissioner Of Income Tax, Lucknow (CCA Region)
+https://www.livelaw.in/job-updates/young-professional-vacancy-at-office-of-pr-chief-commissioner-of-income-tax-lucknow-cca-region-524152
 
-[Read on Telegram](https://t.me/livelawindia/105635)
-
----
-### 2026-02-21T11:36:04+00:00
-Supreme Court Dismisses Uttarakhand Forest Officer's Plea Against Prosecution Sanction In Corbett Park Tree Felling Case
-https://www.livelaw.in/top-stories/supreme-court-dismisses-uttarakhand-forest-officers-plea-against-prosecution-sanction-in-corbett-park-tree-felling-case-524081
-
-[Read on Telegram](https://t.me/livelawindia/105636)
+[Read on Telegram](https://t.me/livelawindia/105665)
 
 ---
-### 2026-02-21T14:34:15+00:00
-Delhi High Court Fines Lawyer For Failing To Inform Opposite Side's Counsel While Seeking Adjournment
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-fines-lawyer-for-failing-to-inform-opposite-sides-counsel-while-seeking-adjournment-524091
+### 2026-02-23T04:48:09+00:00
+'No Inducement Of Prostitution': Kerala High Court Quashes Criminal Proceedings Against Brothel Customer
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-prostitution-immoral-trafficking-customer-524126
 
-[Read on Telegram](https://t.me/livelawindia/105637)
-
----
-### 2026-02-21T14:38:25+00:00
-'Unintentional Mistake': Karnataka High Court Quashes FIR Over Hoisting National Flag Upside Down On Independence Day Function
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-fir-hoisting-national-flag-upside-down-524095
-
-[Read on Telegram](https://t.me/livelawindia/105638)
+[Read on Telegram](https://t.me/livelawindia/105666)
 
 ---
-### 2026-02-21T15:02:59+00:00
-Delhi High Court Asks Litigant To Approach Grievances Council Over Plea Against Streaming Of 'Lady Chatterley's Lover' Film
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-asks-litigant-to-approach-grievances-council-over-plea-against-streaming-of-lady-chatterleys-lover-film-524092
+### 2026-02-23T05:02:31+00:00
+Karnataka High Court Quashes Obscenity FIR Over WhatsApp Message Questioning Invite To Hindu Priests For Inaugural Function
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-obscenity-fir-whatsapp-message-invite-to-hindu-priests-524128
 
-[Read on Telegram](https://t.me/livelawindia/105639)
-
----
-### 2026-02-21T15:35:30+00:00
-M.C.E. Society's A.K.K. New Law Academy, Pune Organises Dr. P.A. Inamdar National Moot Court Competition 2026
-https://www.livelaw.in/lawschool/moot-courts/mce-societys-akk-new-law-academy-pune-organises-dr-pa-inamdar-national-moot-court-competition-524104
-
-[Read on Telegram](https://t.me/livelawindia/105640)
+[Read on Telegram](https://t.me/livelawindia/105667)
 
 ---
-### 2026-02-21T15:52:54+00:00
-“Statutory Authority Cannot Act As Rubber Stamp”: J&K&L High Court Grants Relief To Homeowner, Stays Eviction
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-final-decision-must-reflect-authoritys-own-mind-statutory-authority-cannot-act-as-rubber-stamp-or-abdicate-core-decision-making-524090
+### 2026-02-23T05:10:11+00:00
+Dalits And The Indian Constitution
+https://www.livelaw.in/book-reviews/constitution-of-india-dalits-emancipatory-promises-524157
 
-[Read on Telegram](https://t.me/livelawindia/105641)
-
----
-### 2026-02-21T15:57:54+00:00
-Husband Abandoning Wife & Defaulting In Paying Maintenance Forfeits Right To Contest Dissolution Of Marriage: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-maintenance-default-amount-mental-cruelty-524094
-
-[Read on Telegram](https://t.me/livelawindia/105642)
+[Read on Telegram](https://t.me/livelawindia/105668)
 
 ---
-### 2026-02-22T04:32:29+00:00
-Associate Vacancy At Ernst & Young India [Chennai; Apply Now]
-https://www.livelaw.in/job-updates/associate-vacancy-at-ernst-young-india-chennai-524062
+### 2026-02-23T05:17:51+00:00
+Writ Against Private Institute Over Termination Not Maintainable In Absence Of Public Law Element: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-iihmr-private-service-dispute-article226-524129
 
-[Read on Telegram](https://t.me/livelawindia/105643)
-
----
-### 2026-02-22T04:32:49+00:00
-Chhattisgarh High Court Monthly Digest: January 2026
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-monthly-digest-january-2026-522368
-
-[Read on Telegram](https://t.me/livelawindia/105644)
+[Read on Telegram](https://t.me/livelawindia/105669)
 
 ---
-### 2026-02-22T05:39:59+00:00
-“Widen Law, Make It More Intelligible”: CJI Urges Young Graduates To Keep Law Accessible
-https://www.livelaw.in/top-stories/widen-law-make-it-more-intelligible-cji-urges-young-graduates-to-keep-law-accessible-524112
+### 2026-02-23T05:20:31+00:00
+Supreme Court Asks MHA Committee To Meet Once In 3 Months To Address Issues Faced By People From North East
+https://www.livelaw.in/top-stories/supreme-court-asks-mha-committee-to-meet-once-in-3-months-to-address-issues-faced-by-people-from-north-east-524158
 
-[Read on Telegram](https://t.me/livelawindia/105645)
-
----
-### 2026-02-22T06:37:51+00:00
-“Criminal Liability Cannot Flow From Designation Alone”: Calcutta High Court Quashes MGNREGS Misappropriation Case Against Officer
-https://www.livelaw.in/high-court/calcutta-high-court/criminal-liability-cannot-flow-from-designation-alone-calcutta-high-court-quashes-mgnregs-misappropriation-case-against-officer-524096
-
-[Read on Telegram](https://t.me/livelawindia/105646)
+[Read on Telegram](https://t.me/livelawindia/105670)
 
 ---
-### 2026-02-22T09:28:46+00:00
-Lok Sabha Speaker And Law Minister Launch JGU's New Master's Programmes In Electoral Analysis, Political Communication & Legislative Drafting
-https://www.livelaw.in/lawschool/news/lok-sabha-speaker-law-minister-launch-jgus-new-masters-programmes-524113
+### 2026-02-23T05:32:11+00:00
+'Prima Facie Evidence To Support Charges': Kerala High Court Refuses To Suspend Sentence Of Convicts In 1995 Political Murder Of DYFI Member
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sakeer-dyfi-political-murder-524139
 
-[Read on Telegram](https://t.me/livelawindia/105647)
-
----
-### 2026-02-22T09:32:46+00:00
-Behind Closed Doors: Domestic Violence And The Law's Ongoing Battle In India
-https://www.livelaw.in/law-firms/law-firm-articles-/behind-closed-doors-domestic-violence-and-the-laws-ongoing-battle-in-india-524114
-
-[Read on Telegram](https://t.me/livelawindia/105648)
+[Read on Telegram](https://t.me/livelawindia/105671)
 
 ---
-### 2026-02-22T09:47:16+00:00
-Relatives Can't Be Put To Trial On 'General Abuse' Claims Alone: Calcutta High Court Partly Quashes Matrimonial Cruelty Case U/S 498A IPC
-https://www.livelaw.in/high-court/calcutta-high-court/relatives-cant-be-put-to-trial-on-general-abuse-claims-alone-calcutta-high-court-partly-quashes-matrimonial-cruelty-case-us-498a-ipc-524097
+### 2026-02-23T05:32:31+00:00
+AG To Hear Sanction Petition Seeking Contempt Action Against Congress' VD Satheesan For Remarks On Kerala High Court Ex-CJ
+https://www.livelaw.in/news-updates/kerala-advocate-general-criminal-contempt-vd-satheesan-524159
 
-[Read on Telegram](https://t.me/livelawindia/105649)
-
----
-### 2026-02-22T10:33:16+00:00
-Bharatiya Nagarik Suraksha Sanhita (BNSS) And Bhartiya Nyaya Sanhita (BNS) Monthly Digest: January 2026
-https://www.livelaw.in/top-stories/bnss-bns-monthly-digest-january-2026-522362
-
-[Read on Telegram](https://t.me/livelawindia/105650)
+[Read on Telegram](https://t.me/livelawindia/105672)
 
 ---
-### 2026-02-22T10:33:26+00:00
-Punjab & Haryana High Court Monthly Digest: January 2026
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-monthly-digest-january-2026-523290
+### 2026-02-23T05:35:31+00:00
+Complete Supreme Court Annual Digest 2025 [Part-V]
+https://www.livelaw.in/supreme-court/complete-supreme-court-annual-digest-2025-524161
 
-[Read on Telegram](https://t.me/livelawindia/105651)
-
----
-### 2026-02-22T13:12:47+00:00
-SCLC Youth Summit 2026 | National Youth Parliament & Model United Nations | Prize Pool ₹99,000 | 7–8 March 2026 | Pune
-https://www.livelaw.in/lawschool/competitions/sclc-youth-summit-2026-national-youth-parliament-model-united-nations-prize-pool-99000-78-march-2026-pune-524115
-
-[Read on Telegram](https://t.me/livelawindia/105652)
+[Read on Telegram](https://t.me/livelawindia/105673)
 
 ---
-### 2026-02-22T13:32:48+00:00
-Medical Trainees Not 'Employees' Under EPF Act: Calcutta High Court Upholds Tribunal Order, Quashes PF Demand
-https://www.livelaw.in/high-court/calcutta-high-court/medical-trainees-not-employees-under-epf-act-calcutta-high-court-upholds-tribunal-order-quashes-pf-demand-524098
+### 2026-02-23T05:48:01+00:00
+Kerala High Court Weekly Round-Up : February 16 - February 22, 2026
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-weekly-round-up-february-2026-524154
 
-[Read on Telegram](https://t.me/livelawindia/105653)
+[Read on Telegram](https://t.me/livelawindia/105674)
 
 ---
-### 2026-02-22T16:14:10+00:00
-Law Firms Generating Unnecessary Litigation By Drafting Confusing Arbitration Clauses Is Professional Misconduct : Supreme Court
-https://www.livelaw.in/top-stories/law-firms-generating-unnecessary-litigation-by-drafting-confusing-arbitration-clauses-is-professional-misconduct-supreme-court-524122
+### 2026-02-23T05:55:01+00:00
+Setback For Anil Ambani: Bombay High Court Sets Aside Interim Order Restraining "Fraud Classification" Proceedings
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-banks-stay-anil-ambani-524164
 
-[Read on Telegram](https://t.me/livelawindia/105654)
+[Read on Telegram](https://t.me/livelawindia/105675)
+
+---
+### 2026-02-23T05:58:01+00:00
+NEET-PG Cut Off Reduction Won't Affect Doctors' Competence As They Already Qualified MBBS : Centre To Supreme Court
+https://www.livelaw.in/top-stories/neet-pg-cut-off-reduction-wont-affect-doctors-competence-as-they-already-qualified-mbbs-centre-to-supreme-court-524167
+
+[Read on Telegram](https://t.me/livelawindia/105676)
+
+---
+### 2026-02-23T06:03:01+00:00
+Rajasthan High Court Issues Contempt Notice To Jaipur Development Authority Over Alleged Wilful Disobedience Of Stay Order
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-contempt-notice-jaipur-development-authority-marriage-garden-524130
+
+[Read on Telegram](https://t.me/livelawindia/105677)
+
+---
+### 2026-02-23T06:07:21+00:00
+Calcutta High Court Cancels Judicial Officers' Leaves To Assist In SIR Process
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-cancels-judicial-officers-leaves-to-assist-in-sir-process-524169
+
+[Read on Telegram](https://t.me/livelawindia/105678)
+
+---
+### 2026-02-23T06:15:21+00:00
+'Don't Misbehave In My Court, You've Seen Me In Chandigarh' : CJI Surya Kant Warns Advocate
+https://www.livelaw.in/top-stories/dont-misbehave-in-my-court-youve-seen-me-in-chandigarh-cji-surya-kant-warns-advocate-524170
+
+[Read on Telegram](https://t.me/livelawindia/105679)
+
+---
+### 2026-02-23T06:17:41+00:00
+S.27A NDPS Act Cannot Be Triggered By Bank Entries Or Custodial Statements Alone, Proof Of Financing Or Harbouring Needed: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-section-27-a-ndps-cannot-be-triggered-by-bank-entries-or-custodial-statements-alone-clear-proof-of-financing-or-harbouring-required-524132
+
+[Read on Telegram](https://t.me/livelawindia/105680)
+
+---
+### 2026-02-23T06:33:01+00:00
+Gravity Of Allegations Alone Cannot Justify Pre-Trial Incarceration: J&K&L High Court Grants Bail To Relatives Accused In POCSO Case
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-gravity-of-allegations-alone-cannot-justify-pre-trial-incarceration-court-grants-bail-to-relatives-accused-of-abetment-in-pocso-case-524136
+
+[Read on Telegram](https://t.me/livelawindia/105681)
+
+---
+### 2026-02-23T06:47:51+00:00
+Karnataka High Court Weekly Round-Up: February 16 - February 22, 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-round-up-524155
+
+[Read on Telegram](https://t.me/livelawindia/105682)
+
+---
+### 2026-02-23T06:49:31+00:00
+Chief Justice Of India Digitally Launched E-Souvenir “Nurturing The Future Of The Judiciary” Marking The Legacy Of Chhattisgarh State Judicial Academy
+https://www.livelaw.in/news-updates/chief-justice-india-digitally-launched-e-souvenir-nurturing-future-judiciary-marking-legacy-chhattisgarh-state-judicial-academy-524173
+
+[Read on Telegram](https://t.me/livelawindia/105683)
+
+---
+### 2026-02-23T06:49:41+00:00
+Tirpuati Laddu : Supreme Court Refuses To Interfere With AP Govt's One-Man Committee Inquiry Over Ghee Adulteration
+https://www.livelaw.in/top-stories/tirpuati-laddu-supreme-court-refuses-to-interfere-with-ap-govts-one-man-committee-inquiry-into-ghee-adulteration-524174
+
+[Read on Telegram](https://t.me/livelawindia/105684)
 
 ---
