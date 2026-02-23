@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-23T11:17:17+00:00*
+*Last Updated: 2026-02-23T12:27:57+00:00*
 
 ---
 
-### 2026-02-23T11:17:17+00:00
-Mother Is Natural Guardian Of Girl Aged Below 5 Yrs, Disputed Separation Deed Giving Custody To Father No Bar: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-minor-girl-custody-disputed-separation-deed-524214
-
-[Read on Telegram](https://t.me/livelawindia/105717)
-
----
-### 2026-02-23T11:33:27+00:00
-From Air Force To J&K Administrative Services: High Court Grants Relief To Airman Who Breached Rules To Pursue Civil Service Career
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-from-air-force-to-jk-administrative-services-high-court-grants-relief-to-airman-who-breached-rules-to-pursue-civil-service-career-524134
-
-[Read on Telegram](https://t.me/livelawindia/105718)
-
----
-### 2026-02-23T11:41:07+00:00
-'Deep Societal Faultlines In India' : Justice Bhuyan Cites Denial Of Home To Muslim Girl, Opposition To Dalits Making School Meals
-https://www.livelaw.in/top-stories/justice-bhuyan-cites-denial-of-home-to-muslim-girl-opposition-to-dalits-making-school-meals-524235
-
-[Read on Telegram](https://t.me/livelawindia/105719)
-
----
-### 2026-02-23T11:42:47+00:00
-Entering School Premises Without Permission May Amount To 'House Trespass' Under IPC: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-ruling-school-premises-qualify-place-for-custody-nsui-member-hurled-abuses-section-452-house-trespass-524226
-
-[Read on Telegram](https://t.me/livelawindia/105720)
-
----
-### 2026-02-23T11:48:07+00:00
-Supreme Court Asks Kerala Devaswom Recruitment Board To Halt Selection Process For Guruvayur Devaswom Posts
-https://www.livelaw.in/top-stories/supreme-court-kerala-devaswom-recruitment-board-act-constitutionality-guruvayoor-devaswom-posts-selection-process-not-to-proceed-524236
-
-[Read on Telegram](https://t.me/livelawindia/105721)
-
----
-### 2026-02-23T11:48:27+00:00
-India AI Impact Summit 2026 Convenes Global Leaders On Open Data Regulation; Panel Calls For “Structured Openness”
-https://www.livelaw.in/lawschool/news/india-ai-impact-summit-2026-convenes-global-leaders-open-data-regulation-panel-calls-structured-openness-524237
-
-[Read on Telegram](https://t.me/livelawindia/105722)
-
----
-### 2026-02-23T11:59:27+00:00
-2-Day Workshop On Fashion Law By MKD Centre Of Excellence, NUALS Kochi [March 12-13, 2026; Offline]: Register Now!
-https://www.livelaw.in/lawschool/news/2-day-workshop-on-fashion-law-mkd-centre-of-excellence-nuals-kochi-march-12-13-2026-offline-register-now-524238
-
-[Read on Telegram](https://t.me/livelawindia/105723)
-
----
-### 2026-02-23T12:03:07+00:00
-Gujarat High Court Weekly Round-Up : February 16 - February 22, 2026
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-weekly-roundup-524209
-
-[Read on Telegram](https://t.me/livelawindia/105724)
-
----
-### 2026-02-23T12:17:27+00:00
-Gravity Of Offence Alone Can't Justify Denial Of Premature Release: Delhi High Court Orders Release Of Bangladeshi Life Convict
-https://www.livelaw.in/high-court/delhi-high-court/gravity-of-offence-alone-cant-justify-denial-of-premature-release-delhi-high-court-orders-release-of-bangladeshi-life-convict-524165
-
-[Read on Telegram](https://t.me/livelawindia/105725)
-
----
-### 2026-02-23T12:24:17+00:00
-Dr. Rajendra Prasad National Law University Felicitates Justice Manoj Kumar Gupta On His Elevation As Chief Justice Of Uttarakhand High Court
-https://www.livelaw.in/lawschool/news/dr-rajendra-prasad-national-law-university-felicitates-justice-manoj-kumar-gupta-on-his-elevation-as-chief-justice-of-uttarakhand-high-court-524245
-
-[Read on Telegram](https://t.me/livelawindia/105726)
-
----
 ### 2026-02-23T12:27:57+00:00
 Illegality In Search Doesn't Render Collected Evidence Invalid : Supreme Court
 https://www.livelaw.in/supreme-court/illegality-in-search-doesnt-render-collected-evidence-invalid-supreme-court-524246
@@ -142,5 +72,75 @@ Generating Tatkal Tickets For Out-Of-Turn Passengers Without Collecting Fare Is 
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-railway-empployee-issues-tatkal-ticket-out-of-turn-punishment-524244
 
 [Read on Telegram](https://t.me/livelawindia/105736)
+
+---
+### 2026-02-23T13:27:42+00:00
+RGNUL Organises National Moot Court Competition On Consumer Protection Laws 2026
+https://www.livelaw.in/lawschool/news/rgnul-organises-national-moot-court-competition-consumer-protection-laws-524256
+
+[Read on Telegram](https://t.me/livelawindia/105737)
+
+---
+### 2026-02-23T13:32:33+00:00
+Accessibility In Courts: MP High Court Directs Audit Of Facilities For Women, Disabled, Chronically Ill And Senior Citizens
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/court-building-accessibility-audit-facilities-for-women-disabled-chronically-ill-people-524241
+
+[Read on Telegram](https://t.me/livelawindia/105738)
+
+---
+### 2026-02-23T13:32:43+00:00
+Employees' Compensation Act | Insurer Not Liable To Bear Penalty Imposed On Employer For Delayed Compensation Payment  : Supreme Court
+https://www.livelaw.in/supreme-court/employees-compensation-act-insurer-not-liable-to-bear-penalty-imposed-on-employer-for-delayed-compensation-payment-supreme-court-524257
+
+[Read on Telegram](https://t.me/livelawindia/105739)
+
+---
+### 2026-02-23T13:34:23+00:00
+2026 LiveLaw (SC) 187 | NEW INDIA ASSURANCE CO. LTD. VERSUS REKHA CHAUDHARY AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-187-new-india-assurance-co-ltd-versus-rekha-chaudhary-and-others-524258
+
+[Read on Telegram](https://t.me/livelawindia/105740)
+
+---
+### 2026-02-23T15:13:44+00:00
+Even Short-Term Engagement As Driver Sufficient For Claim Under Employees' Compensation Act: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/employee-compensation-entitled-short-term-driver-524278
+
+[Read on Telegram](https://t.me/livelawindia/105741)
+
+---
+### 2026-02-23T15:43:25+00:00
+UP SIR : Supreme Court Asks Lucknow DEO To Examine Grievances Of Relocated Akbar Nagar Residents
+https://www.livelaw.in/top-stories/up-sir-supreme-court-asks-lucknow-deo-to-examine-grievances-of-relocated-akbar-nagar-residents-524283
+
+[Read on Telegram](https://t.me/livelawindia/105742)
+
+---
+### 2026-02-23T16:28:35+00:00
+'No Vehicle Wednesday' Will Not Be Implemented Till Ramzan End: Lakshadweep Admin Tells Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/no-vehicle-wednesday-not-implemented-end-of-ramzan-524289
+
+[Read on Telegram](https://t.me/livelawindia/105743)
+
+---
+### 2026-02-23T16:52:15+00:00
+33 Multi-Utility Vehicles Flagged Off For DLSAs In Assam To Boost Last-Mile Access To Justice
+https://www.livelaw.in/news-updates/assam-legal-services-authority-legal-aid-vehicle-access-to-justice-524291
+
+[Read on Telegram](https://t.me/livelawindia/105744)
+
+---
+### 2026-02-23T17:02:15+00:00
+Supreme Court Daily Round-Up : February 23, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-february-23-2026-524285
+
+[Read on Telegram](https://t.me/livelawindia/105745)
+
+---
+### 2026-02-23T17:29:25+00:00
+Bombay High Court Quashes ED Complaint Against Advocate In Anil Deshmukh Case, Finds No Proceeds Of Crime
+https://www.livelaw.in/high-court/bombay-high-court/anil-deshmukh-money-laundering-ed-case-against-aide-kishore-dewani-quashed-524292
+
+[Read on Telegram](https://t.me/livelawindia/105746)
 
 ---
