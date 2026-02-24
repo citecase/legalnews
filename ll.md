@@ -1,135 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-24T10:37:07+00:00*
+*Last Updated: 2026-02-24T13:00:37+00:00*
 
 ---
 
-### 2026-02-24T10:37:07+00:00
-'If Victim Was Asking About My Location & Trying To Reach Me, How Can I Be Accused Of Trafficking?' Asaram Tells Rajasthan HC In Rape Case
-https://www.livelaw.in/high-court/calcutta-high-court/prosecution-ignored-crucial-witnesses-no-call-record-link-to-me-or-co-accused-asaram-bapu-tells-rajasthan-high-court-in-rape-case-524381
-
-[Read on Telegram](https://t.me/livelawindia/105801)
-
----
-### 2026-02-24T10:38:47+00:00
-Supreme Court Asks Dhulia Committee To Consider Plea To Postpone Kerala Bar Council Elections
-https://www.livelaw.in/top-stories/supreme-court-asks-dhulia-committee-to-consider-plea-to-postpone-kerala-bar-council-elections-524382
-
-[Read on Telegram](https://t.me/livelawindia/105802)
-
----
-### 2026-02-24T10:51:37+00:00
-Karnataka High Court Quashes FIR Against School Principal Over Morphed Photo Of Him Standing On National Flag
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-school-principal-photo-national-flag-fir-524386
-
-[Read on Telegram](https://t.me/livelawindia/105803)
-
----
-### 2026-02-24T11:08:17+00:00
-After Housing Society Refuses Permission For EV Charger Installation, Owner Moves Supreme Court To Enforce Power Ministry Guidelines
-https://www.livelaw.in/top-stories/after-housing-society-refuses-permission-for-ev-charger-installation-owner-moves-supreme-court-to-enforce-power-ministry-guidelines-524393
-
-[Read on Telegram](https://t.me/livelawindia/105804)
-
----
-### 2026-02-24T11:09:37+00:00
-AI Summit Protest: Delhi Court Remands Indian Youth Congress President Uday Bhanu Chib To 4 Days Police Custody
-https://www.livelaw.in/news-updates/ai-summit-protest-youth-congress-president-uday-bhanu-police-custody-524395
-
-[Read on Telegram](https://t.me/livelawindia/105805)
-
----
-### 2026-02-24T11:19:17+00:00
-Bombay High Court Reserves Verdict On Rahul Gandhi's Plea To Quash Defamation Case Over 'Chowkidar Chor' Comment
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-reserves-verdict-on-rahul-gandhis-plea-to-quash-defamation-case-over-chowkidar-chor-comments-524396
-
-[Read on Telegram](https://t.me/livelawindia/105806)
-
----
-### 2026-02-24T11:19:27+00:00
-Kerala High Court Issues Notice To Centre On Plea Alleging Misuse Of Broadcasting License Of 'Reporter TV' Channel
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-notice-union-intervention-boradcasting-license-reporter-tv-channel-524397
-
-[Read on Telegram](https://t.me/livelawindia/105807)
-
----
-### 2026-02-24T11:24:37+00:00
-Haldwani Evictions : Supreme Court Directs To Examine If Occupiers Are Eligible Under PMAY Scheme
-https://www.livelaw.in/top-stories/haldwani-evictions-supreme-court-directs-to-examine-if-occupiers-are-eligible-under-pmay-scheme-524398
-
-[Read on Telegram](https://t.me/livelawindia/105808)
-
----
-### 2026-02-24T11:45:17+00:00
-Govt Employees, Police Have No Right To Go On Leave Without Permission, Unauthorised Absence Can't Be Adjusted Later: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/leave-without-permission-cannot-be-adjusted-govt-employee-police-524399
-
-[Read on Telegram](https://t.me/livelawindia/105809)
-
----
-### 2026-02-24T12:02:07+00:00
-Madras High Court Dismisses Vaiko's Plea Challenging 2012 LTTE Ban, Says Expired Notification Can't Be Adjudicated
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-vaiko-ltte-ban-2012-notification-dismissed-524402
-
-[Read on Telegram](https://t.me/livelawindia/105810)
-
----
-### 2026-02-24T12:13:07+00:00
-Mere Breaking Up Of Relationship Not 'Instigation' For Abetment Of Suicide: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/relationship-break-up-not-abetment-of-suicide-524403
-
-[Read on Telegram](https://t.me/livelawindia/105811)
-
----
-### 2026-02-24T12:14:47+00:00
-GNLU: 3rd Edition Of GCCIL National Mock CIRP Competition 2026
-https://www.livelaw.in/lawschool/competitions/gnlu-3rd-edition-of-gccil-national-mock-cirp-competition-2026-524405
-
-[Read on Telegram](https://t.me/livelawindia/105812)
-
----
-### 2026-02-24T12:25:47+00:00
-9th National Law Fest Arguendo 2026 At UILS, Panjab University, Chandigarh [March 19-21; Offline] Register By February 28th
-https://www.livelaw.in/lawschool/news/national-law-fest-arguendo-2026-uils-panjab-university-chandigarh-524406
-
-[Read on Telegram](https://t.me/livelawindia/105813)
-
----
-### 2026-02-24T12:32:07+00:00
-Speculative Fear Of Village Rivalry No Ground To Deny Parole, Law & Order Manageable Through Conditions: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-village-rivalry-deny-parole-524379
-
-[Read on Telegram](https://t.me/livelawindia/105814)
-
----
-### 2026-02-24T12:43:08+00:00
-Every Non-Relative Organ Donor Can't Be Viewed With Suspicion Of Commercial Dealings: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-third-party-donor-not-to-viewed-through-needle-of-suspicion-524409
-
-[Read on Telegram](https://t.me/livelawindia/105815)
-
----
-### 2026-02-24T12:49:57+00:00
-Supreme Court Refuses To Interfere With Denial Of Bail To Ex-J&K Bar Association President In UAPA Case, Seeks Report On His Health
-https://www.livelaw.in/top-stories/supreme-court-refuses-to-interfere-with-denial-of-bail-to-ex-jk-bar-association-president-in-uapa-case-seeks-report-on-his-health-524410
-
-[Read on Telegram](https://t.me/livelawindia/105816)
-
----
-### 2026-02-24T12:53:57+00:00
-Mere Refusal To Marry Or Non-Reply To Messages Not Abetment Of Suicide: Delhi High Court Grants Anticipatory Bail
-https://www.livelaw.in/high-court/delhi-high-court/abetment-suicide-refusing-marriage-not-responding-whatsapp-messages-524411
-
-[Read on Telegram](https://t.me/livelawindia/105817)
-
----
-### 2026-02-24T12:59:37+00:00
-Voluntary Confession Substantive Evidence Under Customs Act : Supreme Court
-https://www.livelaw.in/supreme-court/voluntary-confession-substantive-evidence-under-customs-act-supreme-court-524413
-
-[Read on Telegram](https://t.me/livelawindia/105818)
-
----
 ### 2026-02-24T13:00:37+00:00
 2026 LiveLaw (SC) 190 |  AMAD NOORMAMAD BAKALI VERSUS THE STATE OF GUJARAT & ORS.
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-190-amad-noormamad-bakali-versus-the-state-of-gujarat-ors-524414
@@ -142,5 +16,131 @@ S.69 BNS | Sexual Intercourse Via Deceitful Means Cases Mushrooming Despite Part
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-section-69-bns-cases-mushrooming-consensual-524415
 
 [Read on Telegram](https://t.me/livelawindia/105820)
+
+---
+### 2026-02-24T13:23:18+00:00
+IBC | Defunct Scheme Of Arrangement Under Companies Act Cannot Stall Corporate Insolvency Resolution Process : Supreme Court
+https://www.livelaw.in/supreme-court/ibc-defunct-scheme-of-arrangement-under-companies-act-cannot-stall-corporate-insolvency-resolution-process-supreme-court-524417
+
+[Read on Telegram](https://t.me/livelawindia/105821)
+
+---
+### 2026-02-24T13:24:18+00:00
+2026 LiveLaw (SC) 191 | Omkara Assets Reconstruction Private Limited. Versus Amit Chaturvedi and Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-191-omkara-assets-reconstruction-private-limited-versus-amit-chaturvedi-and-ors-524418
+
+[Read on Telegram](https://t.me/livelawindia/105822)
+
+---
+### 2026-02-24T13:32:52+00:00
+'Days Of Deepfakes': Gujarat High Court Rejects PIL Filed Solely Based On WhatsApp Video Alleging Illegal Demolition Of College Building
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-dismissed-public-interest-litigation-whatsapp-video-524416
+
+[Read on Telegram](https://t.me/livelawindia/105823)
+
+---
+### 2026-02-24T13:38:32+00:00
+Supreme Court Of India - Far From The Constitution Of India And Its Spirit?
+https://www.livelaw.in/articles/supreme-court-indian-constitution-524421
+
+[Read on Telegram](https://t.me/livelawindia/105824)
+
+---
+### 2026-02-24T13:48:32+00:00
+Madras High Court Refuses To Interfere With Attachment Of PFI-Linked Organisation's Property Under UAPA
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-pfi-linked-organisation-property-attachment-no-interfere-524425
+
+[Read on Telegram](https://t.me/livelawindia/105825)
+
+---
+### 2026-02-24T14:12:12+00:00
+Delhi Court Orders Shikhar Dhawan's Ex-Wife To Return ₹5.72 Crore, Says Australia's 'Property Settlement' Proceedings Contrary To Indian Law
+https://www.livelaw.in/news-updates/shikhar-dhawan-family-dispute-property-settlement-australian-law-524428
+
+[Read on Telegram](https://t.me/livelawindia/105826)
+
+---
+### 2026-02-24T15:09:23+00:00
+HNLU Hosts Ninth Convocation; CJI Surya Kant Stresses Ethics And Collegiality In Legal Profession
+https://www.livelaw.in/lawschool/news/hnlu-hosts-ninth-convocation-cji-surya-kant-stresses-ethics-collegiality-legal-profession-524435
+
+[Read on Telegram](https://t.me/livelawindia/105827)
+
+---
+### 2026-02-24T15:11:23+00:00
+"Mushroom Growth" Of PILs Concerning, Some Read Newspaper & File Petition By Evening : CJI Surya Kant
+https://www.livelaw.in/top-stories/mushroom-growth-of-pils-concerning-some-read-newspaper-file-petition-by-evening-cji-surya-kant-524436
+
+[Read on Telegram](https://t.me/livelawindia/105828)
+
+---
+### 2026-02-24T15:20:03+00:00
+NLUD Wins 1st RGNUL National Corporate Liquidation Process Competition
+https://www.livelaw.in/lawschool/news/nlud-wins-1st-rgnul-national-corporate-liquidation-process-competition-524438
+
+[Read on Telegram](https://t.me/livelawindia/105829)
+
+---
+### 2026-02-24T15:42:53+00:00
+IBC | Mere Pendency Of Restructuring Arrangements Cannot Stall CIRP : Supreme Court
+https://www.livelaw.in/supreme-court/ibc-mere-pendency-of-restructuring-arrangements-cannot-stall-cirp-supreme-court-524444
+
+[Read on Telegram](https://t.me/livelawindia/105830)
+
+---
+### 2026-02-24T15:43:53+00:00
+2026 LiveLaw (SC) 192 | CATALYST TRUSTEESHIP LTD. versus ECSTASY REALTY PVT. LTD.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-192-catalyst-trusteeship-ltd-versus-ecstasy-realty-pvt-ltd-524445
+
+[Read on Telegram](https://t.me/livelawindia/105831)
+
+---
+### 2026-02-24T16:50:43+00:00
+Delhi Riots: Accused Cops Appear Before Court In Case Over Death Of Man Forced To Sing National Anthem
+https://www.livelaw.in/news-updates/delhi-riots-accused-cops-appear-before-court-in-case-over-death-of-man-forced-to-sing-national-anthem-524457
+
+[Read on Telegram](https://t.me/livelawindia/105832)
+
+---
+### 2026-02-24T16:51:13+00:00
+Delhi High Court Protects Personality Rights Of Swami Ramdev, Orders Take Down Of Deepfake Content
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-protects-personality-rights-of-swami-ramdev-orders-take-down-of-deepfake-content-524458
+
+[Read on Telegram](https://t.me/livelawindia/105833)
+
+---
+### 2026-02-24T16:51:23+00:00
+'Allegations Lack Hallmark Of Terrorism': Delhi Court Orders Supply Of FIR Over AI Summit Protest To Indian Youth Congress Chief
+https://www.livelaw.in/news-updates/allegations-lack-hallmark-of-terrorism-delhi-court-orders-supply-of-fir-over-ai-summit-protest-to-indian-youth-congress-chief-524459
+
+[Read on Telegram](https://t.me/livelawindia/105834)
+
+---
+### 2026-02-24T16:52:43+00:00
+'Party Cannot Be Denied Examination Of Witness Merely On Account Of Witness Being Unwell': Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-witness-examination-health-issues-524460
+
+[Read on Telegram](https://t.me/livelawindia/105835)
+
+---
+### 2026-02-24T17:02:23+00:00
+Bombay HC Quashes FIR Against 85-Yr-Old For 'Inverted' Display Of Indian Flag; Says 'Intention To Insult' Essential Under National Honour Act
+https://www.livelaw.in/high-court/bombay-high-court/bombay-hc-quashes-fir-against-85-yr-old-for-inverted-display-of-indian-flag-says-intention-to-insult-essential-under-national-honour-act-524466
+
+[Read on Telegram](https://t.me/livelawindia/105836)
+
+---
+### 2026-02-24T17:08:03+00:00
+Supreme Court Daily Round-Up : February 24, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-february-24-2026-524446
+
+[Read on Telegram](https://t.me/livelawindia/105837)
+
+---
+### 2026-02-24T18:59:23+00:00
+CNLU Patna LLM Student Committed Suicide Amid Mid-Semester Exams
+https://www.livelaw.in/news-updates/cnlu-patna-llm-student-committed-suicide-amid-mid-semester-exams-524474
+
+[Read on Telegram](https://t.me/livelawindia/105838)
 
 ---
