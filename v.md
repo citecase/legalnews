@@ -1,6 +1,110 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-24T07:03:05+00:00*
+*Last Updated: 2026-02-24T13:33:13+00:00*
+
+---
+
+### 2026-02-24T13:33:13+00:00
+Dispute Has Civil Colour & Accused Paid Compensation To Complainant: Supreme Court Quashes Cheating Case
+https://www.verdictum.in/court-updates/supreme-court/bhagaban-gantyayat-v-the-state-of-orissa-2026-insc-183-dispute-civil-continuance-criminal-proceedings-compensation-complainant-1608559
+
+[Source Link](https://t.me/verdictumlegalupdates/25602)
+
+---
+
+### 2026-02-24T13:02:51+00:00
+Legitimate Expectations Must Yield To Public Interest: Patna High Court Affirms Cancellation Of Ju-Jitsu Athletes’ Direct Appointment As Sub-Inspectors
+https://www.verdictum.in/court-updates/high-courts/patna-high-court/bijay-kumar-ors-v-state-of-bihar-ors-jujitsu-athelets-sub-inspectors-1608558
+
+[Source Link](https://t.me/verdictumlegalupdates/25601)
+
+---
+
+### 2026-02-24T12:32:30+00:00
+Transfer Is Incidence Of Service: Allahabad High Court Upholds Mid-Session RTE-Based Redeployment, Flags Mechanical Inclusion Of Shiksha Mitras
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/arun-pratap-singh-v-state-of-up-2026ahc34786-teacher-mid-session-transfer-rte-mandate-1608557
+
+[Source Link](https://t.me/verdictumlegalupdates/25600)
+
+---
+
+### 2026-02-24T12:03:09+00:00
+Student-Edited WhatsApp Image Of Principal With National Flag Lacks Intentional Insult: Karnataka HC Quashes FIR Against Principal
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/sri-venugopal-bc-v-the-state-of-karnataka-criminal-petition-no11694-of-2024-national-flag-principal-whatsapp-1608556
+
+[Source Link](https://t.me/verdictumlegalupdates/25599)
+
+---
+
+### 2026-02-24T11:33:07+00:00
+Custody Cannot Be Used As Leverage In Marital Disputes; Separating 4-Year-Old From Mother Would Cause Trauma: Gujarat High Court
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/x-v-state-of-gujarat-2026gujhc12448-db-minor-child-mother-trauma-welfare-1608543
+
+[Source Link](https://t.me/verdictumlegalupdates/25598)
+
+---
+
+### 2026-02-24T11:02:26+00:00
+Much Water Has Flown During Pendency In Last 5 Years: Supreme Court Closes Suo Motu Case On Polluted Rivers
+https://www.verdictum.in/court-updates/supreme-court/closes-suo-motu-proceedings-remediation-of-polluted-rivers-1608539
+
+[Source Link](https://t.me/verdictumlegalupdates/25597)
+
+---
+
+### 2026-02-24T10:33:05+00:00
+Such Movies Depict Secular State Like Kerala In Wrong Light: Kerala HC Remarks During Hearing Of Plea Seeking To Quash Certificate To ‘The Kerala Story 2’
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/such-movies-depict-secular-state-like-kerala-in-wrong-light-kerala-hc-remarks-during-hearing-of-plea-seeking-to-quash-certificate-to-the-kerala-story-2-1608538
+
+[Source Link](https://t.me/verdictumlegalupdates/25596)
+
+---
+
+### 2026-02-24T10:02:43+00:00
+Detenu’s Right To Make Representation Subsists Throughout Preventive Detention; Fixing Time Limits Violates Article 22(5): Manipur High Court
+https://www.verdictum.in/court-updates/high-courts/manipur-high-court/mutum-ranjan-meitei-lamjingba-v-state-of-manipur-ors-preventive-detention-1608512
+
+[Source Link](https://t.me/verdictumlegalupdates/25595)
+
+---
+
+### 2026-02-24T09:32:42+00:00
+State Cannot Resile From Concession Made Before Court: Supreme Court Upholds Appointment Directions In 2012 Rajasthan Teacher Recruitment
+https://www.verdictum.in/court-updates/supreme-court/state-of-rajasthan-v-namonarayan-sharma-2026-insc-179-teacher-recruitment-rajasthan-2012-grade-ii-1608528
+
+[Source Link](https://t.me/verdictumlegalupdates/25594)
+
+---
+
+### 2026-02-24T09:02:50+00:00
+Lathi Is Lethal When Used On Vital Parts: Supreme Court Restores Murder Conviction
+https://www.verdictum.in/court-updates/supreme-court/sitaram-kuchhbedia-v-vimal-rana-2026-insc-178-lathi-blow-head-murder-unlawful-assembly-1608524
+
+[Source Link](https://t.me/verdictumlegalupdates/25593)
+
+---
+
+### 2026-02-24T08:33:09+00:00
+Supreme Court Stays Kerala High Court Decision Halting New Kerala Citizen Response Programme Scheme
+https://www.verdictum.in/court-updates/supreme-court/stays-kerala-high-court-decision-halting-new-kerala-citizen-response-programme-scheme-nava-keralam-1608523
+
+[Source Link](https://t.me/verdictumlegalupdates/25592)
+
+---
+
+### 2026-02-24T08:02:28+00:00
+Section 149 IPC| In Unlawful Assembly, Individual Role Need Not Be Isolated At Bail Stage: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/shobha-namdev-sonavane-v-samadhan-bajirao-sonvane-ors-2026-insc-181-1608517
+
+[Source Link](https://t.me/verdictumlegalupdates/25591)
+
+---
+
+### 2026-02-24T07:34:27+00:00
+Voluntary Statements Recorded U/S.108 Of Customs Act Admissible in Evidence: Supreme Court Upholds 1985 Smuggling Conviction
+https://www.verdictum.in/court-updates/supreme-court/amad-noormamad-bakali-v-the-state-of-gujarat-2026-insc-180-voluntary-statements-section-108-customs-act-evidence-conviction-1608511
+
+[Source Link](https://t.me/verdictumlegalupdates/25590)
 
 ---
 
@@ -57,110 +161,6 @@ Foreign Decree Awarding Damages For Breach Of Contract Cannot Be Capped By FEMA 
 https://www.verdictum.in/court-updates/high-courts/delhi-high-court/peter-beck-und-partner-v-prakash-industries-ltd-2026dhc1547-foreign-courts-wales-fema-rbi-1608456
 
 [Source Link](https://t.me/verdictumlegalupdates/25583)
-
----
-
-### 2026-02-23T15:33:10+00:00
-Revisional Court Can’t Substitute Its Own Conclusion: Kerala High Court Dismisses Accused’s Petition In Cheque Bounce Case
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/janardhananv-v-viswanathan-p-2026ker14825-revisional-court-cant-substitute-own-conclusion-cheque-bounce-1608455
-
-[Source Link](https://t.me/verdictumlegalupdates/25582)
-
----
-
-### 2026-02-23T15:02:49+00:00
-Accused Should Have Induced Woman To Carry On Prostitution To Attract Offence: Kerala High Court Quashes Immoral Traffic Act Proceedings Against Customer
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/vishnu-pv-v-state-of-kerala-2026ker14343-accused-woman-prostitution-immoral-traffic-prevention-act-1608454
-
-[Source Link](https://t.me/verdictumlegalupdates/25581)
-
----
-
-### 2026-02-23T14:32:47+00:00
-Search Ordered By Single Member Of Appropriate Authority In PCPNDT Proceedings Illegal, Evidence Seized In Such Searches Still Admissible: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/dr-naresh-kumar-garg-v-state-of-haryana-ors-2026-insc-176-pcpndt-act-1608453
-
-[Source Link](https://t.me/verdictumlegalupdates/25580)
-
----
-
-### 2026-02-23T14:02:26+00:00
-Andhra Pradesh High Court Seeks Explanation From State On Lack Of Bone Marrow Transplantation Service In Govt Hospitals
-https://www.verdictum.in/court-updates/high-courts/andhra-pradesh-high-court/guntha-venkata-sai-kumar-v-state-of-andhra-pradesh-affidavit-pil-bone-marrow-transplantation-govt-hospitals-1608457
-
-[Source Link](https://t.me/verdictumlegalupdates/25579)
-
----
-
-### 2026-02-23T13:32:24+00:00
-Mere Delay In Lodging FIR Not Fatal If Explained: Gujarat High Court Upholds Conviction in Double Murder Case
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/shamji-sunil-dakudo-v-state-of-gujarat-2026gujhc13817-db-fir-delay-1608443
-
-[Source Link](https://t.me/verdictumlegalupdates/25578)
-
----
-
-### 2026-02-23T13:02:43+00:00
-At The Cost Of Other Poor Muslims, You Only Want To Promote Them: Supreme Court On PIL Seeking Reservation For Pasmanda Muslims
-https://www.verdictum.in/court-updates/supreme-court/at-the-cost-of-other-poor-muslims-you-only-want-to-promote-them-supreme-court-on-pil-seeking-reservation-for-pasmanda-muslims-1608441
-
-[Source Link](https://t.me/verdictumlegalupdates/25577)
-
----
-
-### 2026-02-23T12:32:22+00:00
-Supreme Court To Recaption 40 Years Old Pending MC Mehta Cases Appearing As 'Pending' Due To Filing Of IAs
-https://www.verdictum.in/court-updates/supreme-court/recaption-40-years-old-pending-mc-mehta-cases-correct-artificial-case-backlog-1608439
-
-[Source Link](https://t.me/verdictumlegalupdates/25576)
-
----
-
-### 2026-02-23T12:03:10+00:00
-Meta And WhatsApp Undertakes Before Supreme Court To Comply With Data Privacy Mandate By March 16
-https://www.verdictum.in/court-updates/supreme-court/meta-whatsapp-undertakes-supreme-court-comply-data-privacy-mandate-march-16-1608438
-
-[Source Link](https://t.me/verdictumlegalupdates/25575)
-
----
-
-### 2026-02-23T11:33:09+00:00
-AFT Not Vested With Civil Contempt Powers For Final Orders; Remedy Lies With High Court U/S 10 Contempt Of Courts Act: Delhi HC
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/union-of-india-v-lt-col-mukul-dev-2026dhc1577-db-aft-army-civil-contempt-tribunal-1608423
-
-[Source Link](https://t.me/verdictumlegalupdates/25574)
-
----
-
-### 2026-02-23T11:02:27+00:00
-Delhi Air Pollution| Supreme Court Asks Union To Submit Proposals For Phase-Out Of Coal Industries In NCR
-https://www.verdictum.in/court-updates/supreme-court/asks-union-submit-proposals-phase-out-coal-industries-in-ncr-1608427
-
-[Source Link](https://t.me/verdictumlegalupdates/25573)
-
----
-
-### 2026-02-23T10:33:06+00:00
-Section 319 CrPC | Summoning Additional Accused Requires Evidence Capable Of Leading To Conviction Absent Rebuttal: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/rukminibai-vishnu-karad-ors-v-state-of-maharashtra-anr-2026bhc-aug7609-1608419
-
-[Source Link](https://t.me/verdictumlegalupdates/25572)
-
----
-
-### 2026-02-23T10:03:04+00:00
-"No Complaint" Documents Don’t Warrant Quashing For Husband If Specific Overt Acts Are Alleged: Calcutta High Court
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/a-v-state-of-west-bengal-no-complaint-documents-dont-warrant-quashing-husband-1608414
-
-[Source Link](https://t.me/verdictumlegalupdates/25571)
-
----
-
-### 2026-02-23T09:32:43+00:00
-Supreme Court Declines To Entertain Plea Of Displaced Lucknow's Akbar Nagar Residents Over Voter Roll Exclusion
-https://www.verdictum.in/court-updates/supreme-court/declines-plea-displaced-lucknow-akbar-nagar-residents-voter-roll-exclusion-up-sir-1608410
-
-[Source Link](https://t.me/verdictumlegalupdates/25570)
 
 ---
 
