@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-23T16:02:51+00:00*
+*Last Updated: 2026-02-24T07:03:05+00:00*
+
+---
+
+### 2026-02-24T07:03:05+00:00
+Documented Admission Of Marriage By Deceased Husband Sufficient To Establish Widow’s Entitlement To Family Pension: Gujarat High Court
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/farzanabanu-mohammadhanif-shaikh-v-ahmedabad-municipal-corporation-ors-2026gujhc13966-1608489
+
+[Source Link](https://t.me/verdictumlegalupdates/25589)
+
+---
+
+### 2026-02-24T06:22:24+00:00
+Supreme Court Modifies Its Order In West Bengal SIR Matter; Civil Judges With 3-Year Experience To Verify 80 Lakh Claims Of 'Logical Discrepancies'
+https://www.verdictum.in/court-updates/supreme-court/west-bengal-sir-modifies-order-to-expand-judicial-pool-for-west-bengal-voter-list-1608496
+
+[Source Link](https://t.me/verdictumlegalupdates/25588)
+
+---
+
+### 2026-02-24T06:02:22+00:00
+Allahabad High Court Upholds Right Of Interfaith Couples To Live Together; Says 2021 Anti-Conversion Law Not Attracted Without Proof Of Conversion
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/noori-v-state-of-up-2026ahc39447-inter-faith-hindu-muslim-relationship-1608493
+
+[Source Link](https://t.me/verdictumlegalupdates/25587)
+
+---
+
+### 2026-02-24T05:32:41+00:00
+Court Cannot Confer Power Of Provisional Release Where Statute Is Silent: Kerala High Court On Section 130 CGST
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/ms-authentic-metal-v-the-enforcement-officer-wpc-no881-of-2026-confiscation-provisional-release-cgst-1608488
+
+[Source Link](https://t.me/verdictumlegalupdates/25586)
+
+---
+
+### 2026-02-24T05:02:40+00:00
+Section 27A NDPS Act Cannot Be Invoked Without Proof Of Financing Or Harbouring: J&K And Ladakh High Court Grants Bail
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/mazeed-ali-v-union-territory-of-jammu-kashmir-police-station-udhampur-1608479
+
+[Source Link](https://t.me/verdictumlegalupdates/25585)
+
+---
+
+### 2026-02-24T04:33:08+00:00
+District Magistrate Can Authorise Additional Chief Medical Officer To File Complaint Under PC & PNDT Act: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/gayatri-nanjundappa-dr-gayatri-singh-v-the-state-of-up-2026ahc-lko13182-1608448
+
+[Source Link](https://t.me/verdictumlegalupdates/25584)
 
 ---
 
@@ -113,54 +161,6 @@ Supreme Court Declines To Entertain Plea Of Displaced Lucknow's Akbar Nagar Resi
 https://www.verdictum.in/court-updates/supreme-court/declines-plea-displaced-lucknow-akbar-nagar-residents-voter-roll-exclusion-up-sir-1608410
 
 [Source Link](https://t.me/verdictumlegalupdates/25570)
-
----
-
-### 2026-02-23T09:02:41+00:00
-Delays Have Dangerous Ends: Allahabad HC Refuses To Interfere In 13-Year-Old Cheque Bounce Case, Calls for Expeditious Trial
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/brijesh-kumar-v-state-of-up-2026ahc39262-cheque-bounce-trial-summary-1608405
-
-[Source Link](https://t.me/verdictumlegalupdates/25569)
-
----
-
-### 2026-02-23T08:33:00+00:00
-Possibility Of Rashness & Negligence By Driver Can’t Be Negated On Mere Account Of Low Speed: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/state-v-sabu-2026dhc1518-possibility-rashness-negligence-driver-negated-account-low-speed-1608399
-
-[Source Link](https://t.me/verdictumlegalupdates/25568)
-
----
-
-### 2026-02-23T08:02:48+00:00
-Supreme Court Asks Delhi HC To Decide Bail Plea Of Sukesh Chandrashekhar's Wife Within Three Weeks
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-asks-delhi-hc-to-decide-bail-plea-of-sukesh-chandrashekhars-wife-within-three-weeks-1608386
-
-[Source Link](https://t.me/verdictumlegalupdates/25567)
-
----
-
-### 2026-02-23T07:33:07+00:00
-State Absolutely Liable For Prison Suicide As Custodial Death: Allahabad High Court Awards ₹10 Lakh As Compensation
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/prema-devi-v-state-of-up2026ahc-lko13651-db-custodial-death-prison-jail-suicide-article-21-state-responsibility-1608376
-
-[Source Link](https://t.me/verdictumlegalupdates/25566)
-
----
-
-### 2026-02-23T06:53:06+00:00
-Supreme Court Refuses To Entertain Subramanian Swamy's Plea Against State's Administrative Probe Into Tirupati's Prasadam Adulteration Case
-https://www.verdictum.in/court-updates/supreme-court/refuses-to-entertain-plea-seeking-to-restrain-states-administrative-probe-into-tirumala-laddu-adulteration-case-1608377
-
-[Source Link](https://t.me/verdictumlegalupdates/25565)
-
----
-
-### 2026-02-23T06:32:24+00:00
-2D/3D Seismic Survey For Oil Exploration Not In The Nature Of FTS Or Royalty U/S 44DA Of Income Tax Act: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/pgs-geophysical-as-v-income-tax-department-anr2026dhc1499-db-it-act-1608375
-
-[Source Link](https://t.me/verdictumlegalupdates/25564)
 
 ---
 
