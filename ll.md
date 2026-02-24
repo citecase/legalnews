@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-24T04:03:20+00:00*
+*Last Updated: 2026-02-24T10:37:07+00:00*
 
 ---
 
-### 2026-02-24T04:03:20+00:00
-Deputy Registrar Vacancy At National Company Law Tribunal, Guwahati Bench
-https://www.livelaw.in/job-updates/deputy-registrar-vacancy-at-national-company-law-tribunal-guwahati-bench-524307
+### 2026-02-24T10:37:07+00:00
+'If Victim Was Asking About My Location & Trying To Reach Me, How Can I Be Accused Of Trafficking?' Asaram Tells Rajasthan HC In Rape Case
+https://www.livelaw.in/high-court/calcutta-high-court/prosecution-ignored-crucial-witnesses-no-call-record-link-to-me-or-co-accused-asaram-bapu-tells-rajasthan-high-court-in-rape-case-524381
 
-[Read on Telegram](https://t.me/livelawindia/105751)
-
----
-### 2026-02-24T04:06:41+00:00
-JAG ENTRY SCHEME 124th Recruitment 2026 [Apply Now]
-https://www.livelaw.in/job-updates/jag-entry-scheme-124th-recruitment-2026-524308
-
-[Read on Telegram](https://t.me/livelawindia/105752)
+[Read on Telegram](https://t.me/livelawindia/105801)
 
 ---
-### 2026-02-24T04:32:51+00:00
-'Violates Article 21': Karnataka High Court Orders Release Of Theft Accused Jailed For 3 Years Despite Bail For Want Of Surety
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-payment-of-surety-bail-article-21-524270
+### 2026-02-24T10:38:47+00:00
+Supreme Court Asks Dhulia Committee To Consider Plea To Postpone Kerala Bar Council Elections
+https://www.livelaw.in/top-stories/supreme-court-asks-dhulia-committee-to-consider-plea-to-postpone-kerala-bar-council-elections-524382
 
-[Read on Telegram](https://t.me/livelawindia/105753)
-
----
-### 2026-02-24T04:40:31+00:00
-The Architecture Of Uncertainty: Understanding "Blindspot" And Contractual Trap In 2025 Labour Codes
-https://www.livelaw.in/articles/contractual-trap-labour-codes-524310
-
-[Read on Telegram](https://t.me/livelawindia/105754)
+[Read on Telegram](https://t.me/livelawindia/105802)
 
 ---
-### 2026-02-24T04:45:31+00:00
-'Courts Shouldn't Issue Unmanageable General Directions' : Supreme Court Rejects Contempt Plea Over 2018 Judgment Against Mob Violence
-https://www.livelaw.in/top-stories/courts-shouldnt-issue-unmanageable-general-directions-supreme-court-rejects-contempt-plea-over-2018-judgment-against-mob-violence-524312
+### 2026-02-24T10:51:37+00:00
+Karnataka High Court Quashes FIR Against School Principal Over Morphed Photo Of Him Standing On National Flag
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-school-principal-photo-national-flag-fir-524386
 
-[Read on Telegram](https://t.me/livelawindia/105755)
-
----
-### 2026-02-24T04:47:51+00:00
-'Each Day's Delay Will Add To Agony': Gujarat High Court Permits Termination Of 15-Week Pregnancy Of Minor Rape Survivor
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-rape-survivor-terminate-pregnancy-524300
-
-[Read on Telegram](https://t.me/livelawindia/105756)
+[Read on Telegram](https://t.me/livelawindia/105803)
 
 ---
-### 2026-02-24T05:07:51+00:00
-Rationalists Who Mock People For Treating Gurus As Gods Are The Real Fools & Barbarians : Justice GR Swaminathan
-https://www.livelaw.in/news-updates/justice-gr-swaminathan-rationalists-fools-not-treating-guru-as-gods-524314
+### 2026-02-24T11:08:17+00:00
+After Housing Society Refuses Permission For EV Charger Installation, Owner Moves Supreme Court To Enforce Power Ministry Guidelines
+https://www.livelaw.in/top-stories/after-housing-society-refuses-permission-for-ev-charger-installation-owner-moves-supreme-court-to-enforce-power-ministry-guidelines-524393
 
-[Read on Telegram](https://t.me/livelawindia/105757)
-
----
-### 2026-02-24T05:14:31+00:00
-West Bengal SIR : Live Updates From Supreme Court Hearing
-https://www.livelaw.in/top-stories/west-bengal-sir-live-updates-from-supreme-court-hearing-524315
-
-[Read on Telegram](https://t.me/livelawindia/105758)
+[Read on Telegram](https://t.me/livelawindia/105804)
 
 ---
-### 2026-02-24T05:22:11+00:00
-Disqualification Clauses Must Be Strictly Construed, Cannot Be Expanded Beyond Advertisement: Patna HC Upholds Grant Of IOCL Dealership
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-criminal-case-pendency-disqualification-beyond-advertisement-524317
+### 2026-02-24T11:09:37+00:00
+AI Summit Protest: Delhi Court Remands Indian Youth Congress President Uday Bhanu Chib To 4 Days Police Custody
+https://www.livelaw.in/news-updates/ai-summit-protest-youth-congress-president-uday-bhanu-police-custody-524395
 
-[Read on Telegram](https://t.me/livelawindia/105759)
-
----
-### 2026-02-24T05:22:21+00:00
-Playing Commercial Ads After Scheduled Movie Time Is A Breach Of Contractual Obligation: Medak District Consumer Commission Holds PVR Inox Liable
-https://www.livelaw.in/consumer-cases/playing-commercial-ads-after-scheduled-movie-time-is-a-breach-of-contractual-obligation-medak-district-consumer-commission-holds-pvr-inox-liable-524318
-
-[Read on Telegram](https://t.me/livelawindia/105760)
+[Read on Telegram](https://t.me/livelawindia/105805)
 
 ---
-### 2026-02-24T05:28:31+00:00
-Disciplinary  Proceedings For Obtaining  B.Ed  Without  Permission, Employee  Can't Be Given Promotional Post  : Gauhati HC
-https://www.livelaw.in/high-court/gauhati-high-court/disciplinary-proceedings-for-obtaining-bed-without-permission-employee-cant-be-given-promotional-post-gauhati-hc-524319
+### 2026-02-24T11:19:17+00:00
+Bombay High Court Reserves Verdict On Rahul Gandhi's Plea To Quash Defamation Case Over 'Chowkidar Chor' Comment
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-reserves-verdict-on-rahul-gandhis-plea-to-quash-defamation-case-over-chowkidar-chor-comments-524396
 
-[Read on Telegram](https://t.me/livelawindia/105761)
-
----
-### 2026-02-24T05:48:21+00:00
-Right To Choose Partner Is Constitutional Right; UP Anti-Conversion Law Doesn't Bar Interfaith Relationships: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-interfaith-relationships-up-anti-conversion-law-524320
-
-[Read on Telegram](https://t.me/livelawindia/105762)
+[Read on Telegram](https://t.me/livelawindia/105806)
 
 ---
-### 2026-02-24T05:50:01+00:00
-WB SIR | 'Will Take 80 Days With Only Bengal Judges' : Supreme Court Allows Deployment Of Judges From Odisha & Jharkhand
-https://www.livelaw.in/top-stories/west-bengal-sir-supreme-court-allows-judges-from-odisha-jharkhand-to-be-used-to-decide-claims-524324
+### 2026-02-24T11:19:27+00:00
+Kerala High Court Issues Notice To Centre On Plea Alleging Misuse Of Broadcasting License Of 'Reporter TV' Channel
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-notice-union-intervention-boradcasting-license-reporter-tv-channel-524397
 
-[Read on Telegram](https://t.me/livelawindia/105763)
-
----
-### 2026-02-24T05:58:21+00:00
-Benami Act Attachment During CIRP Can't Be Challenged Before NCLT/NCLAT : Supreme Court
-https://www.livelaw.in/top-stories/benami-act-attachment-during-cirp-cant-be-challenged-before-ncltnclat-supreme-court-524326
-
-[Read on Telegram](https://t.me/livelawindia/105764)
+[Read on Telegram](https://t.me/livelawindia/105807)
 
 ---
-### 2026-02-24T06:03:01+00:00
-Treating Ad-Hoc Teachers As “Disposable Resources” Undermines Dignity Of Labour & Academic Excellence: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-ruling-adhoc-teachers-discharging-duties-regular-faculty-disposable-resources-dignity-of-labour-524294
+### 2026-02-24T11:24:37+00:00
+Haldwani Evictions : Supreme Court Directs To Examine If Occupiers Are Eligible Under PMAY Scheme
+https://www.livelaw.in/top-stories/haldwani-evictions-supreme-court-directs-to-examine-if-occupiers-are-eligible-under-pmay-scheme-524398
 
-[Read on Telegram](https://t.me/livelawindia/105765)
-
----
-### 2026-02-24T06:17:41+00:00
-Kerala High Court Refuses To Stay Common Software Tender For Agricultural Credit Societies, But Seeks Bid Details Before Contract
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-software-application-pacs-tender-process-524323
-
-[Read on Telegram](https://t.me/livelawindia/105766)
+[Read on Telegram](https://t.me/livelawindia/105808)
 
 ---
-### 2026-02-24T06:25:41+00:00
-Supreme Court Rejects OCI Cardholder's Plea To Contest Bar Council Elections
-https://www.livelaw.in/top-stories/supreme-court-rejects-oci-cardholders-plea-to-contest-bar-council-elections-524328
+### 2026-02-24T11:45:17+00:00
+Govt Employees, Police Have No Right To Go On Leave Without Permission, Unauthorised Absence Can't Be Adjusted Later: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/leave-without-permission-cannot-be-adjusted-govt-employee-police-524399
 
-[Read on Telegram](https://t.me/livelawindia/105767)
-
----
-### 2026-02-24T06:39:54+00:00
-'Kerala Lives In Total Harmony, Movie Has Wrong Portrayal' : Kerala High Court On 'The Kerala Story 2' Film
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kerala-story-2-cbfc-certification-524331
-
-[Read on Telegram](https://t.me/livelawindia/105768)
+[Read on Telegram](https://t.me/livelawindia/105809)
 
 ---
-### 2026-02-24T06:47:54+00:00
-"Consensual Relationship, No Intention To Prosecute": Telangana High Court Quashes FIR U/S 69 BNS
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-quashes-section69-bns-marriage-promise-524299
+### 2026-02-24T12:02:07+00:00
+Madras High Court Dismisses Vaiko's Plea Challenging 2012 LTTE Ban, Says Expired Notification Can't Be Adjudicated
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-vaiko-ltte-ban-2012-notification-dismissed-524402
 
-[Read on Telegram](https://t.me/livelawindia/105769)
+[Read on Telegram](https://t.me/livelawindia/105810)
 
 ---
-### 2026-02-24T06:59:34+00:00
-Refusing Marriage Citing Kundli Mismatch After Physical Relations, Repeated Assurances Attract S.69 BNS: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/69-bns-false-promise-to-marry-despite-kundli-mismatch-524333
+### 2026-02-24T12:13:07+00:00
+Mere Breaking Up Of Relationship Not 'Instigation' For Abetment Of Suicide: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/relationship-break-up-not-abetment-of-suicide-524403
 
-[Read on Telegram](https://t.me/livelawindia/105770)
+[Read on Telegram](https://t.me/livelawindia/105811)
+
+---
+### 2026-02-24T12:14:47+00:00
+GNLU: 3rd Edition Of GCCIL National Mock CIRP Competition 2026
+https://www.livelaw.in/lawschool/competitions/gnlu-3rd-edition-of-gccil-national-mock-cirp-competition-2026-524405
+
+[Read on Telegram](https://t.me/livelawindia/105812)
+
+---
+### 2026-02-24T12:25:47+00:00
+9th National Law Fest Arguendo 2026 At UILS, Panjab University, Chandigarh [March 19-21; Offline] Register By February 28th
+https://www.livelaw.in/lawschool/news/national-law-fest-arguendo-2026-uils-panjab-university-chandigarh-524406
+
+[Read on Telegram](https://t.me/livelawindia/105813)
+
+---
+### 2026-02-24T12:32:07+00:00
+Speculative Fear Of Village Rivalry No Ground To Deny Parole, Law & Order Manageable Through Conditions: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-village-rivalry-deny-parole-524379
+
+[Read on Telegram](https://t.me/livelawindia/105814)
+
+---
+### 2026-02-24T12:43:08+00:00
+Every Non-Relative Organ Donor Can't Be Viewed With Suspicion Of Commercial Dealings: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-third-party-donor-not-to-viewed-through-needle-of-suspicion-524409
+
+[Read on Telegram](https://t.me/livelawindia/105815)
+
+---
+### 2026-02-24T12:49:57+00:00
+Supreme Court Refuses To Interfere With Denial Of Bail To Ex-J&K Bar Association President In UAPA Case, Seeks Report On His Health
+https://www.livelaw.in/top-stories/supreme-court-refuses-to-interfere-with-denial-of-bail-to-ex-jk-bar-association-president-in-uapa-case-seeks-report-on-his-health-524410
+
+[Read on Telegram](https://t.me/livelawindia/105816)
+
+---
+### 2026-02-24T12:53:57+00:00
+Mere Refusal To Marry Or Non-Reply To Messages Not Abetment Of Suicide: Delhi High Court Grants Anticipatory Bail
+https://www.livelaw.in/high-court/delhi-high-court/abetment-suicide-refusing-marriage-not-responding-whatsapp-messages-524411
+
+[Read on Telegram](https://t.me/livelawindia/105817)
+
+---
+### 2026-02-24T12:59:37+00:00
+Voluntary Confession Substantive Evidence Under Customs Act : Supreme Court
+https://www.livelaw.in/supreme-court/voluntary-confession-substantive-evidence-under-customs-act-supreme-court-524413
+
+[Read on Telegram](https://t.me/livelawindia/105818)
+
+---
+### 2026-02-24T13:00:37+00:00
+2026 LiveLaw (SC) 190 |  AMAD NOORMAMAD BAKALI VERSUS THE STATE OF GUJARAT & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-190-amad-noormamad-bakali-versus-the-state-of-gujarat-ors-524414
+
+[Read on Telegram](https://t.me/livelawindia/105819)
+
+---
+### 2026-02-24T13:01:58+00:00
+S.69 BNS | Sexual Intercourse Via Deceitful Means Cases Mushrooming Despite Parties Having Consensual Relationship: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-section-69-bns-cases-mushrooming-consensual-524415
+
+[Read on Telegram](https://t.me/livelawindia/105820)
 
 ---
