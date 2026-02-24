@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-24T13:33:13+00:00*
+*Last Updated: 2026-02-24T16:02:49+00:00*
+
+---
+
+### 2026-02-24T16:02:49+00:00
+Junior Legal Officer Vacancy At Rajasthan State Industrial Development and Investment Corporation Limited (RIICO)
+https://www.verdictum.in/job-updates/rajasthan-state-industrial-development-and-investment-corporation-limited-riico-1608562
+
+[Source Link](https://t.me/verdictumlegalupdates/25607)
+
+---
+
+### 2026-02-24T15:32:48+00:00
+Demand And Acceptance Are Sine Qua Non For Offence U/S. 7 PC Act: Karnataka High Court Quashes FIR Against Police Officer
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/prabhugowda-patil-v-state-of-karnataka-anr-section-7-prevention-corruption-1608566
+
+[Source Link](https://t.me/verdictumlegalupdates/25606)
+
+---
+
+### 2026-02-24T15:02:27+00:00
+Disqualification Clauses Must Be Construed Strictly: Patna High Court Dismisses Appeal Against IOCL Dealership Allotment
+https://www.verdictum.in/court-updates/high-courts/patna-high-court/binod-kumar-mishra-v-indian-oil-corporation-limited-ors-delaership-eligibility-1608564
+
+[Source Link](https://t.me/verdictumlegalupdates/25605)
+
+---
+
+### 2026-02-24T14:33:05+00:00
+Potential Denial Of Relief By MACT Cannot Preclude Claim Under Employees’ Compensation Act: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/shakuntala-tilakdhari-gupta-ors-v-jawaharlal-r-gupta-anr-2026bhc-as8700-1608563
+
+[Source Link](https://t.me/verdictumlegalupdates/25604)
+
+---
+
+### 2026-02-24T14:02:24+00:00
+Deceased Being Educated Lady Could Have Lodged Cruelty Complaint: Madhya Pradesh High Court Affirms Acquittal In Dowry Death Case
+https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/dinesh-kumar-dubey-v-rachit-mishra-2026mphc-jbp12540-deceased-educated-lady-cruelty-acquittal-dowry-death-1608560
+
+[Source Link](https://t.me/verdictumlegalupdates/25603)
 
 ---
 
@@ -121,46 +161,6 @@ Supreme Court Modifies Its Order In West Bengal SIR Matter; Civil Judges With 3-
 https://www.verdictum.in/court-updates/supreme-court/west-bengal-sir-modifies-order-to-expand-judicial-pool-for-west-bengal-voter-list-1608496
 
 [Source Link](https://t.me/verdictumlegalupdates/25588)
-
----
-
-### 2026-02-24T06:02:22+00:00
-Allahabad High Court Upholds Right Of Interfaith Couples To Live Together; Says 2021 Anti-Conversion Law Not Attracted Without Proof Of Conversion
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/noori-v-state-of-up-2026ahc39447-inter-faith-hindu-muslim-relationship-1608493
-
-[Source Link](https://t.me/verdictumlegalupdates/25587)
-
----
-
-### 2026-02-24T05:32:41+00:00
-Court Cannot Confer Power Of Provisional Release Where Statute Is Silent: Kerala High Court On Section 130 CGST
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/ms-authentic-metal-v-the-enforcement-officer-wpc-no881-of-2026-confiscation-provisional-release-cgst-1608488
-
-[Source Link](https://t.me/verdictumlegalupdates/25586)
-
----
-
-### 2026-02-24T05:02:40+00:00
-Section 27A NDPS Act Cannot Be Invoked Without Proof Of Financing Or Harbouring: J&K And Ladakh High Court Grants Bail
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/mazeed-ali-v-union-territory-of-jammu-kashmir-police-station-udhampur-1608479
-
-[Source Link](https://t.me/verdictumlegalupdates/25585)
-
----
-
-### 2026-02-24T04:33:08+00:00
-District Magistrate Can Authorise Additional Chief Medical Officer To File Complaint Under PC & PNDT Act: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/gayatri-nanjundappa-dr-gayatri-singh-v-the-state-of-up-2026ahc-lko13182-1608448
-
-[Source Link](https://t.me/verdictumlegalupdates/25584)
-
----
-
-### 2026-02-23T16:02:51+00:00
-Foreign Decree Awarding Damages For Breach Of Contract Cannot Be Capped By FEMA Or RBI Directions: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/peter-beck-und-partner-v-prakash-industries-ltd-2026dhc1547-foreign-courts-wales-fema-rbi-1608456
-
-[Source Link](https://t.me/verdictumlegalupdates/25583)
 
 ---
 
