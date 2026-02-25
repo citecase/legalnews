@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-24T13:00:37+00:00*
+*Last Updated: 2026-02-25T03:33:07+00:00*
 
 ---
 
-### 2026-02-24T13:00:37+00:00
-2026 LiveLaw (SC) 190 |  AMAD NOORMAMAD BAKALI VERSUS THE STATE OF GUJARAT & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-190-amad-noormamad-bakali-versus-the-state-of-gujarat-ors-524414
+### 2026-02-25T03:33:07+00:00
+Rajasthan State Legal Services Authority Hosts Three-Day National Conference On Cyber Safety And Digital Justice
+https://www.livelaw.in/events/rajasthan-state-legal-services-authority-national-conference-524477
 
-[Read on Telegram](https://t.me/livelawindia/105819)
-
----
-### 2026-02-24T13:01:58+00:00
-S.69 BNS | Sexual Intercourse Via Deceitful Means Cases Mushrooming Despite Parties Having Consensual Relationship: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-section-69-bns-cases-mushrooming-consensual-524415
-
-[Read on Telegram](https://t.me/livelawindia/105820)
+[Read on Telegram](https://t.me/livelawindia/105841)
 
 ---
-### 2026-02-24T13:23:18+00:00
-IBC | Defunct Scheme Of Arrangement Under Companies Act Cannot Stall Corporate Insolvency Resolution Process : Supreme Court
-https://www.livelaw.in/supreme-court/ibc-defunct-scheme-of-arrangement-under-companies-act-cannot-stall-corporate-insolvency-resolution-process-supreme-court-524417
+### 2026-02-25T03:46:48+00:00
+No One Can Denigrate Any Community By Speeches Or Art; Ministers Must Not Target Any Community: Supreme Court
+https://www.livelaw.in/supreme-court/cant-denigrate-any-community-by-speeches-or-art-ministers-mustnt-target-any-community-supreme-court-524478
 
-[Read on Telegram](https://t.me/livelawindia/105821)
-
----
-### 2026-02-24T13:24:18+00:00
-2026 LiveLaw (SC) 191 | Omkara Assets Reconstruction Private Limited. Versus Amit Chaturvedi and Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-191-omkara-assets-reconstruction-private-limited-versus-amit-chaturvedi-and-ors-524418
-
-[Read on Telegram](https://t.me/livelawindia/105822)
+[Read on Telegram](https://t.me/livelawindia/105842)
 
 ---
-### 2026-02-24T13:32:52+00:00
-'Days Of Deepfakes': Gujarat High Court Rejects PIL Filed Solely Based On WhatsApp Video Alleging Illegal Demolition Of College Building
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-dismissed-public-interest-litigation-whatsapp-video-524416
+### 2026-02-25T04:02:48+00:00
+Karnataka High Court Upholds Order Taking Cognizance Of IPS Officer Roopa Moudgil's Defamation Complaint Against IAS Officer Rohini Sindhuri
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-ips-officer-ias-officer-cognizance-defamation-524475
 
-[Read on Telegram](https://t.me/livelawindia/105823)
-
----
-### 2026-02-24T13:38:32+00:00
-Supreme Court Of India - Far From The Constitution Of India And Its Spirit?
-https://www.livelaw.in/articles/supreme-court-indian-constitution-524421
-
-[Read on Telegram](https://t.me/livelawindia/105824)
+[Read on Telegram](https://t.me/livelawindia/105843)
 
 ---
-### 2026-02-24T13:48:32+00:00
-Madras High Court Refuses To Interfere With Attachment Of PFI-Linked Organisation's Property Under UAPA
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-pfi-linked-organisation-property-attachment-no-interfere-524425
+### 2026-02-25T04:29:35+00:00
+Consultant Vacancy At Ernst & Young [Bangalore; Apply Now]
+https://www.livelaw.in/job-updates/consultant-vacancy-at-ernst-young-bangalore-524487
 
-[Read on Telegram](https://t.me/livelawindia/105825)
-
----
-### 2026-02-24T14:12:12+00:00
-Delhi Court Orders Shikhar Dhawan's Ex-Wife To Return ₹5.72 Crore, Says Australia's 'Property Settlement' Proceedings Contrary To Indian Law
-https://www.livelaw.in/news-updates/shikhar-dhawan-family-dispute-property-settlement-australian-law-524428
-
-[Read on Telegram](https://t.me/livelawindia/105826)
+[Read on Telegram](https://t.me/livelawindia/105844)
 
 ---
-### 2026-02-24T15:09:23+00:00
-HNLU Hosts Ninth Convocation; CJI Surya Kant Stresses Ethics And Collegiality In Legal Profession
-https://www.livelaw.in/lawschool/news/hnlu-hosts-ninth-convocation-cji-surya-kant-stresses-ethics-collegiality-legal-profession-524435
+### 2026-02-25T04:32:35+00:00
+Remembering Justice H.R.Khanna On His 16th Death Anniversary
+https://www.livelaw.in/articles/justice-hrkhanna-16th-death-anniversary-524311
 
-[Read on Telegram](https://t.me/livelawindia/105827)
-
----
-### 2026-02-24T15:11:23+00:00
-"Mushroom Growth" Of PILs Concerning, Some Read Newspaper & File Petition By Evening : CJI Surya Kant
-https://www.livelaw.in/top-stories/mushroom-growth-of-pils-concerning-some-read-newspaper-file-petition-by-evening-cji-surya-kant-524436
-
-[Read on Telegram](https://t.me/livelawindia/105828)
+[Read on Telegram](https://t.me/livelawindia/105845)
 
 ---
-### 2026-02-24T15:20:03+00:00
-NLUD Wins 1st RGNUL National Corporate Liquidation Process Competition
-https://www.livelaw.in/lawschool/news/nlud-wins-1st-rgnul-national-corporate-liquidation-process-competition-524438
+### 2026-02-25T04:35:55+00:00
+Young Professional (Legal) Vacancy At SEEPZ-SEZ Authority
+https://www.livelaw.in/job-updates/young-professional-legal-vacancy-at-seepz-sez-authority-524489
 
-[Read on Telegram](https://t.me/livelawindia/105829)
-
----
-### 2026-02-24T15:42:53+00:00
-IBC | Mere Pendency Of Restructuring Arrangements Cannot Stall CIRP : Supreme Court
-https://www.livelaw.in/supreme-court/ibc-mere-pendency-of-restructuring-arrangements-cannot-stall-cirp-supreme-court-524444
-
-[Read on Telegram](https://t.me/livelawindia/105830)
+[Read on Telegram](https://t.me/livelawindia/105846)
 
 ---
-### 2026-02-24T15:43:53+00:00
-2026 LiveLaw (SC) 192 | CATALYST TRUSTEESHIP LTD. versus ECSTASY REALTY PVT. LTD.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-192-catalyst-trusteeship-ltd-versus-ecstasy-realty-pvt-ltd-524445
+### 2026-02-25T04:37:15+00:00
+Executive (Grievance Handling) Vacancy At Sahakar Taxi Cooperative Limited
+https://www.livelaw.in/job-updates/executive-grievance-handling-vacancy-at-sahakar-taxi-cooperative-limited-524490
 
-[Read on Telegram](https://t.me/livelawindia/105831)
-
----
-### 2026-02-24T16:50:43+00:00
-Delhi Riots: Accused Cops Appear Before Court In Case Over Death Of Man Forced To Sing National Anthem
-https://www.livelaw.in/news-updates/delhi-riots-accused-cops-appear-before-court-in-case-over-death-of-man-forced-to-sing-national-anthem-524457
-
-[Read on Telegram](https://t.me/livelawindia/105832)
+[Read on Telegram](https://t.me/livelawindia/105847)
 
 ---
-### 2026-02-24T16:51:13+00:00
-Delhi High Court Protects Personality Rights Of Swami Ramdev, Orders Take Down Of Deepfake Content
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-protects-personality-rights-of-swami-ramdev-orders-take-down-of-deepfake-content-524458
+### 2026-02-25T04:38:05+00:00
+Rajasthan HC Enhances Compensation To ₹78 Lakh In MBBS Final-Year Student's Accidental Death, Applies Notional Income of ₹50K Per Month
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-notional-income-compensation-mbbs-student-death-case-524465
 
-[Read on Telegram](https://t.me/livelawindia/105833)
-
----
-### 2026-02-24T16:51:23+00:00
-'Allegations Lack Hallmark Of Terrorism': Delhi Court Orders Supply Of FIR Over AI Summit Protest To Indian Youth Congress Chief
-https://www.livelaw.in/news-updates/allegations-lack-hallmark-of-terrorism-delhi-court-orders-supply-of-fir-over-ai-summit-protest-to-indian-youth-congress-chief-524459
-
-[Read on Telegram](https://t.me/livelawindia/105834)
+[Read on Telegram](https://t.me/livelawindia/105848)
 
 ---
-### 2026-02-24T16:52:43+00:00
-'Party Cannot Be Denied Examination Of Witness Merely On Account Of Witness Being Unwell': Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-witness-examination-health-issues-524460
+### 2026-02-25T04:38:55+00:00
+Assistant Law Officer And Legal Assistant Vacancy At Delhi Pollution Control Committee
+https://www.livelaw.in/job-updates/assistant-law-officer-and-legal-assistant-vacancy-at-delhi-pollution-control-committee-524491
 
-[Read on Telegram](https://t.me/livelawindia/105835)
-
----
-### 2026-02-24T17:02:23+00:00
-Bombay HC Quashes FIR Against 85-Yr-Old For 'Inverted' Display Of Indian Flag; Says 'Intention To Insult' Essential Under National Honour Act
-https://www.livelaw.in/high-court/bombay-high-court/bombay-hc-quashes-fir-against-85-yr-old-for-inverted-display-of-indian-flag-says-intention-to-insult-essential-under-national-honour-act-524466
-
-[Read on Telegram](https://t.me/livelawindia/105836)
+[Read on Telegram](https://t.me/livelawindia/105849)
 
 ---
-### 2026-02-24T17:08:03+00:00
-Supreme Court Daily Round-Up : February 24, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-february-24-2026-524446
+### 2026-02-25T05:03:12+00:00
+Unregistered Nikahnama, Lack Of Marriage Photo Or Service Record Entry Can't Defeat Widow's Pension Claim: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-service-record-entry-widow-family-pension-524476
 
-[Read on Telegram](https://t.me/livelawindia/105837)
+[Read on Telegram](https://t.me/livelawindia/105850)
 
 ---
-### 2026-02-24T18:59:23+00:00
-CNLU Patna LLM Student Committed Suicide Amid Mid-Semester Exams
-https://www.livelaw.in/news-updates/cnlu-patna-llm-student-committed-suicide-amid-mid-semester-exams-524474
+### 2026-02-25T05:07:35+00:00
+Some Compulsory Mechanism Needed To Make People Vote, Says Supreme Court
+https://www.livelaw.in/top-stories/voting-be-made-compulsory-opines-supreme-court-524502
 
-[Read on Telegram](https://t.me/livelawindia/105838)
+[Read on Telegram](https://t.me/livelawindia/105851)
+
+---
+### 2026-02-25T05:17:15+00:00
+Litigants Can't Plead Ignorance When Judgments Are Uploaded Online: Gujarat High Court Refuses To Restore Suit Dismissed For Default
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-restore-suit-dismissed-524495
+
+[Read on Telegram](https://t.me/livelawindia/105852)
+
+---
+### 2026-02-25T05:25:55+00:00
+BREAKING| CJI Surya Kant Takes Objection To NCERT Class 8 Book Teaching Students About 'Corruption In Judiciary'
+https://www.livelaw.in/top-stories/cji-surya-kant-takes-objection-to-ncert-class-8-book-teaching-students-about-corruption-in-judiciary-524505
+
+[Read on Telegram](https://t.me/livelawindia/105853)
+
+---
+### 2026-02-25T05:32:20+00:00
+Anna University Moves Madras High Court Against Revocation Of Ex-VC's Suspension By Governor
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-anna-university-plea-revocation-suspension-ex-vc-by-chancellor-524503
+
+[Read on Telegram](https://t.me/livelawindia/105854)
+
+---
+### 2026-02-25T05:52:50+00:00
+Maker-Checker System Doesn't Immunise Bank Officer From Personal Liability For Illicit Transactions: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/maker-checker-system-doesnt-immunise-bank-officer-from-personal-liability-for-illicit-transactions-delhi-high-court-524462
+
+[Read on Telegram](https://t.me/livelawindia/105855)
+
+---
+### 2026-02-25T06:12:31+00:00
+Order 43 Rule 1(c) CPC | Appeal Maintainable Against Rejection Of Delay Condonation In Plea For Restoration Of Suit: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-delay-condonation-restoration-plea-524500
+
+[Read on Telegram](https://t.me/livelawindia/105856)
+
+---
+### 2026-02-25T06:36:31+00:00
+Supreme Court Dismisses Challenge To S.20(2)(a) BNSS Allowing Appointment Of Sessions Judge As Director Of Prosecution
+https://www.livelaw.in/top-stories/supreme-court-dismisses-challenge-to-s202a-bnss-allowing-appointment-of-sessions-judge-as-director-of-prosecution-524513
+
+[Read on Telegram](https://t.me/livelawindia/105857)
+
+---
+### 2026-02-25T06:37:31+00:00
+Only Actual Custody Counts For Police Remand U/S 187 BNSS, Not Period Spent On Interim Bail: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/default-bail-only-actual-custody-counts-for-police-remand-us-187-bnss-not-period-spent-on-interim-bail-delhi-high-court-524461
+
+[Read on Telegram](https://t.me/livelawindia/105858)
+
+---
+### 2026-02-25T06:47:51+00:00
+Once Non-Cognizable Report Is Registered, Police Can't Lodge FIR Based On Second Complaint Without Giving Reasons: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-police-ncr-lodging-fir-second-complaint-524515
+
+[Read on Telegram](https://t.me/livelawindia/105859)
+
+---
+### 2026-02-25T07:03:01+00:00
+'Purpose Defeated': Kerala High Court Orders Discontinuation Of Kannur Corporation's 60 Year-Old-Siren Installed During Indo-Pak War
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kannur-corporation-siren-524516
+
+[Read on Telegram](https://t.me/livelawindia/105860)
 
 ---
