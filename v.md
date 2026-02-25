@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-25T07:32:56+00:00*
+*Last Updated: 2026-02-25T13:32:23+00:00*
+
+---
+
+### 2026-02-25T13:32:23+00:00
+‘Fencesitter’ Litigant Cannot Shift Blame On Advocate; Plea of Ignorance Unacceptable In Era Of Online Orders: Gujarat High Court
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/lr-of-sardar-himmatbhai-khokar-lr-of-jesangbhai-amthabhai-2026gujhc13773-litigant-advocate-online-order-1608685
+
+[Source Link](https://t.me/verdictumlegalupdates/25626)
+
+---
+
+### 2026-02-25T13:03:01+00:00
+Inverted Display Of National Flag Not An Offence If There Was No Intention To Insult: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/v-k-narayanan-v-state-of-maharashtra-tricolour-insult-inverted-display-1608684
+
+[Source Link](https://t.me/verdictumlegalupdates/25625)
+
+---
+
+### 2026-02-25T12:32:20+00:00
+Motor Vehicles Act Doesn’t Create Independent Mechanism For ‘Clarification’ Of Concluded Appellate Judgment: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/reliance-general-insurance-company-limited-v-kanika-2026-insc-188-motor-vehicles-act-clarification-concluded-appellate-judgment-1608683
+
+[Source Link](https://t.me/verdictumlegalupdates/25624)
+
+---
+
+### 2026-02-25T12:02:19+00:00
+Accused Posed As Police And Tried Honey Trapping Style Robbery: Gujarat High Court Refuses Probation Benefit
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/state-of-gujarat-v-vishalkumar-somchandra-shah-2026gujhc12748-db-robbery-dacoity-probation-honeytrap-1608680
+
+[Source Link](https://t.me/verdictumlegalupdates/25623)
+
+---
+
+### 2026-02-25T11:33:17+00:00
+Recovery On Retirement Eve Imperils Financial Security & Undermines Dignity: Calcutta High Court Sets Aside Recovery Proceedings Against Retired Employee
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/ashok-tripathy-v-union-of-india-ors-wpa-13911-of-2017-public-employer-hindi-typist-retirement-salary-1608668
+
+[Source Link](https://t.me/verdictumlegalupdates/25622)
+
+---
+
+### 2026-02-25T11:02:56+00:00
+Competent Authority Can Opt Other Officers For Surprise Check: Kerala HC Refuses to Quash Corruption Case Against Excise Officer
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/unaize-ahammed-v-state-of-kerala-2026ker10903-liquor-bottles-recovery-corruption-red-handed-1608667
+
+[Source Link](https://t.me/verdictumlegalupdates/25621)
+
+---
+
+### 2026-02-25T10:33:14+00:00
+Courts Must Not Be Seen To Stifle Free Speech: Justice Ujjal Bhuyan Notes In His Separate Opinion After Supreme Court Records Withdrawal Of ‘Ghooskhor Pandat’ Movie Title
+https://www.verdictum.in/court-updates/supreme-court/atul-mishra-v-union-of-india-writ-petition-c-no181-of-2026-ghooskhor-pandat-title-1608660
+
+[Source Link](https://t.me/verdictumlegalupdates/25620)
+
+---
+
+### 2026-02-25T10:02:53+00:00
+Supreme Court Seeks Details On Cost, Availability Of NAT In Hospital To Prevent Transfusion Related Infection
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-seeks-details-on-cost-availability-of-nat-in-hospital-to-prevent-transfusion-related-infection-1608642
+
+[Source Link](https://t.me/verdictumlegalupdates/25619)
+
+---
+
+### 2026-02-25T09:33:12+00:00
+IT Returns Are Personal, Not Public: Karnataka HC Quashes CIC Order Directing Disclosure to Wife Under RTI; Issues Guidelines
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/income-tax-officer-and-cpio-v-gulsanober-2026khc11056-wife-husband-privacy-public-interest-1608649
+
+[Source Link](https://t.me/verdictumlegalupdates/25618)
+
+---
+
+### 2026-02-25T09:03:00+00:00
+Supreme Court Refused To Entertain Plea Challenging Constitutional Validity Of Section 20(2)(a) Of BNSS For Appointment Of Prosecution Officer
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-refused-to-entertain-plea-challenging-constitutional-validity-of-section-202a-of-bnss-for-appointment-of-prosecution-officer-1608635
+
+[Source Link](https://t.me/verdictumlegalupdates/25617)
+
+---
+
+### 2026-02-25T08:32:39+00:00
+Film Nowhere Portrays Yadav Community In Bad Light: Supreme Court Refuses To Ban Movie ‘Yadav Ji ki Love Story’
+https://www.verdictum.in/court-updates/supreme-court/film-nowhere-portrays-yadav-community-in-bad-light-supreme-court-refuses-to-ban-movie-yadav-ji-ki-love-story-1608634
+
+[Source Link](https://t.me/verdictumlegalupdates/25616)
+
+---
+
+### 2026-02-25T08:02:57+00:00
+Supreme Court Stays Criminal Proceedings Against Hemant Soren Over Alleged Non-Compliance With ED Summons
+https://www.verdictum.in/court-updates/supreme-court/stays-criminal-proceedings-jharkhand-chief-minister-hemant-soren-over-alleged-non-compliance-with-ed-summons-1608631
+
+[Source Link](https://t.me/verdictumlegalupdates/25615)
 
 ---
 
@@ -65,102 +161,6 @@ Junior Legal Officer Vacancy At Rajasthan State Industrial Development and Inves
 https://www.verdictum.in/job-updates/rajasthan-state-industrial-development-and-investment-corporation-limited-riico-1608562
 
 [Source Link](https://t.me/verdictumlegalupdates/25607)
-
----
-
-### 2026-02-24T15:32:48+00:00
-Demand And Acceptance Are Sine Qua Non For Offence U/S. 7 PC Act: Karnataka High Court Quashes FIR Against Police Officer
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/prabhugowda-patil-v-state-of-karnataka-anr-section-7-prevention-corruption-1608566
-
-[Source Link](https://t.me/verdictumlegalupdates/25606)
-
----
-
-### 2026-02-24T15:02:27+00:00
-Disqualification Clauses Must Be Construed Strictly: Patna High Court Dismisses Appeal Against IOCL Dealership Allotment
-https://www.verdictum.in/court-updates/high-courts/patna-high-court/binod-kumar-mishra-v-indian-oil-corporation-limited-ors-delaership-eligibility-1608564
-
-[Source Link](https://t.me/verdictumlegalupdates/25605)
-
----
-
-### 2026-02-24T14:33:05+00:00
-Potential Denial Of Relief By MACT Cannot Preclude Claim Under Employees’ Compensation Act: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/shakuntala-tilakdhari-gupta-ors-v-jawaharlal-r-gupta-anr-2026bhc-as8700-1608563
-
-[Source Link](https://t.me/verdictumlegalupdates/25604)
-
----
-
-### 2026-02-24T14:02:24+00:00
-Deceased Being Educated Lady Could Have Lodged Cruelty Complaint: Madhya Pradesh High Court Affirms Acquittal In Dowry Death Case
-https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/dinesh-kumar-dubey-v-rachit-mishra-2026mphc-jbp12540-deceased-educated-lady-cruelty-acquittal-dowry-death-1608560
-
-[Source Link](https://t.me/verdictumlegalupdates/25603)
-
----
-
-### 2026-02-24T13:33:13+00:00
-Dispute Has Civil Colour & Accused Paid Compensation To Complainant: Supreme Court Quashes Cheating Case
-https://www.verdictum.in/court-updates/supreme-court/bhagaban-gantyayat-v-the-state-of-orissa-2026-insc-183-dispute-civil-continuance-criminal-proceedings-compensation-complainant-1608559
-
-[Source Link](https://t.me/verdictumlegalupdates/25602)
-
----
-
-### 2026-02-24T13:02:51+00:00
-Legitimate Expectations Must Yield To Public Interest: Patna High Court Affirms Cancellation Of Ju-Jitsu Athletes’ Direct Appointment As Sub-Inspectors
-https://www.verdictum.in/court-updates/high-courts/patna-high-court/bijay-kumar-ors-v-state-of-bihar-ors-jujitsu-athelets-sub-inspectors-1608558
-
-[Source Link](https://t.me/verdictumlegalupdates/25601)
-
----
-
-### 2026-02-24T12:32:30+00:00
-Transfer Is Incidence Of Service: Allahabad High Court Upholds Mid-Session RTE-Based Redeployment, Flags Mechanical Inclusion Of Shiksha Mitras
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/arun-pratap-singh-v-state-of-up-2026ahc34786-teacher-mid-session-transfer-rte-mandate-1608557
-
-[Source Link](https://t.me/verdictumlegalupdates/25600)
-
----
-
-### 2026-02-24T12:03:09+00:00
-Student-Edited WhatsApp Image Of Principal With National Flag Lacks Intentional Insult: Karnataka HC Quashes FIR Against Principal
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/sri-venugopal-bc-v-the-state-of-karnataka-criminal-petition-no11694-of-2024-national-flag-principal-whatsapp-1608556
-
-[Source Link](https://t.me/verdictumlegalupdates/25599)
-
----
-
-### 2026-02-24T11:33:07+00:00
-Custody Cannot Be Used As Leverage In Marital Disputes; Separating 4-Year-Old From Mother Would Cause Trauma: Gujarat High Court
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/x-v-state-of-gujarat-2026gujhc12448-db-minor-child-mother-trauma-welfare-1608543
-
-[Source Link](https://t.me/verdictumlegalupdates/25598)
-
----
-
-### 2026-02-24T11:02:26+00:00
-Much Water Has Flown During Pendency In Last 5 Years: Supreme Court Closes Suo Motu Case On Polluted Rivers
-https://www.verdictum.in/court-updates/supreme-court/closes-suo-motu-proceedings-remediation-of-polluted-rivers-1608539
-
-[Source Link](https://t.me/verdictumlegalupdates/25597)
-
----
-
-### 2026-02-24T10:33:05+00:00
-Such Movies Depict Secular State Like Kerala In Wrong Light: Kerala HC Remarks During Hearing Of Plea Seeking To Quash Certificate To ‘The Kerala Story 2’
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/such-movies-depict-secular-state-like-kerala-in-wrong-light-kerala-hc-remarks-during-hearing-of-plea-seeking-to-quash-certificate-to-the-kerala-story-2-1608538
-
-[Source Link](https://t.me/verdictumlegalupdates/25596)
-
----
-
-### 2026-02-24T10:02:43+00:00
-Detenu’s Right To Make Representation Subsists Throughout Preventive Detention; Fixing Time Limits Violates Article 22(5): Manipur High Court
-https://www.verdictum.in/court-updates/high-courts/manipur-high-court/mutum-ranjan-meitei-lamjingba-v-state-of-manipur-ors-preventive-detention-1608512
-
-[Source Link](https://t.me/verdictumlegalupdates/25595)
 
 ---
 
