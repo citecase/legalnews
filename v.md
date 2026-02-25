@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-24T16:02:49+00:00*
+*Last Updated: 2026-02-25T07:32:56+00:00*
+
+---
+
+### 2026-02-25T07:32:56+00:00
+Burden Of Proving Fact Rests Squarely On Party Making Such Assertion In Writ Petition Which Is Decided On Affidavits: Supreme Court Allows IOCL’s Appeal
+https://www.verdictum.in/court-updates/supreme-court/indian-oil-corporation-limited-v-ms-aditya-hp-centre-2026-insc-182-burden-proving-fact-assertion-writ-petition-affidavits-1608626
+
+[Source Link](https://t.me/verdictumlegalupdates/25614)
+
+---
+
+### 2026-02-25T07:02:35+00:00
+Hospitals Cannot Treat Another Hospital as ‘Rival’; Non-Compete Clause Against Doctor Void: Madras High Court
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/miot-hospitals-private-limited-v-dr-balaraman-palaniappan-2026mhc733-doctor-lawyer-non-compete-clause-1608609
+
+[Source Link](https://t.me/verdictumlegalupdates/25613)
+
+---
+
+### 2026-02-25T06:16:13+00:00
+Calculated Move To Defame Judiciary: Supreme Court On NCERT’s New Book Containing Chapter On Corruption In Judiciary
+https://www.verdictum.in/court-updates/supreme-court/chief-justice-against-ncert-over-chapter-8-in-new-book-containing-chapter-on-corruption-in-judiciary-1608618
+
+[Source Link](https://t.me/verdictumlegalupdates/25612)
+
+---
+
+### 2026-02-25T06:02:32+00:00
+Attachment Order Under Benami Act Cannot Be Challenged Before NCLT Under IBC: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/s-rajendran-v-the-deputy-commissioner-of-income-tax-benami-prohibition-2026-insc-187-nclt-nclat-judicial-review-1608615
+
+[Source Link](https://t.me/verdictumlegalupdates/25611)
+
+---
+
+### 2026-02-25T05:32:31+00:00
+Accused Knew That He Was Married & His False Promise Of Marriage Would Be Broken: Allahabad High Court Refuses To Quash Chargesheet U/S 69 BNS
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/vipin-kumar-and-3-others-v-state-of-up-2026ahc39442-accused-married-false-promise-of-marriage-quash-case-1608608
+
+[Source Link](https://t.me/verdictumlegalupdates/25610)
+
+---
+
+### 2026-02-25T05:02:50+00:00
+Reasonable Accommodation, Periodical Medical Check-Ups Part of Prisoners' Rights: Madras High Court Directs Biennial Health Audit In Prison
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/m-kalaiselvi-v-state-of-tamil-nadu-ors-prisoner-rights-accommodation-health-1608607
+
+[Source Link](https://t.me/verdictumlegalupdates/25609)
+
+---
+
+### 2026-02-25T04:32:48+00:00
+Request For No Caste, No Religion Certificate Can’t Be Considered Unless Litigant Relinquishes His Religion: Madras High Court
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/chellamanickam-v-the-principal-secretary-request-no-cast-no-religion-certificate-litigant-relinquishes-religion-1608600
+
+[Source Link](https://t.me/verdictumlegalupdates/25608)
 
 ---
 
@@ -105,62 +161,6 @@ Detenu’s Right To Make Representation Subsists Throughout Preventive Detention
 https://www.verdictum.in/court-updates/high-courts/manipur-high-court/mutum-ranjan-meitei-lamjingba-v-state-of-manipur-ors-preventive-detention-1608512
 
 [Source Link](https://t.me/verdictumlegalupdates/25595)
-
----
-
-### 2026-02-24T09:32:42+00:00
-State Cannot Resile From Concession Made Before Court: Supreme Court Upholds Appointment Directions In 2012 Rajasthan Teacher Recruitment
-https://www.verdictum.in/court-updates/supreme-court/state-of-rajasthan-v-namonarayan-sharma-2026-insc-179-teacher-recruitment-rajasthan-2012-grade-ii-1608528
-
-[Source Link](https://t.me/verdictumlegalupdates/25594)
-
----
-
-### 2026-02-24T09:02:50+00:00
-Lathi Is Lethal When Used On Vital Parts: Supreme Court Restores Murder Conviction
-https://www.verdictum.in/court-updates/supreme-court/sitaram-kuchhbedia-v-vimal-rana-2026-insc-178-lathi-blow-head-murder-unlawful-assembly-1608524
-
-[Source Link](https://t.me/verdictumlegalupdates/25593)
-
----
-
-### 2026-02-24T08:33:09+00:00
-Supreme Court Stays Kerala High Court Decision Halting New Kerala Citizen Response Programme Scheme
-https://www.verdictum.in/court-updates/supreme-court/stays-kerala-high-court-decision-halting-new-kerala-citizen-response-programme-scheme-nava-keralam-1608523
-
-[Source Link](https://t.me/verdictumlegalupdates/25592)
-
----
-
-### 2026-02-24T08:02:28+00:00
-Section 149 IPC| In Unlawful Assembly, Individual Role Need Not Be Isolated At Bail Stage: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/shobha-namdev-sonavane-v-samadhan-bajirao-sonvane-ors-2026-insc-181-1608517
-
-[Source Link](https://t.me/verdictumlegalupdates/25591)
-
----
-
-### 2026-02-24T07:34:27+00:00
-Voluntary Statements Recorded U/S.108 Of Customs Act Admissible in Evidence: Supreme Court Upholds 1985 Smuggling Conviction
-https://www.verdictum.in/court-updates/supreme-court/amad-noormamad-bakali-v-the-state-of-gujarat-2026-insc-180-voluntary-statements-section-108-customs-act-evidence-conviction-1608511
-
-[Source Link](https://t.me/verdictumlegalupdates/25590)
-
----
-
-### 2026-02-24T07:03:05+00:00
-Documented Admission Of Marriage By Deceased Husband Sufficient To Establish Widow’s Entitlement To Family Pension: Gujarat High Court
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/farzanabanu-mohammadhanif-shaikh-v-ahmedabad-municipal-corporation-ors-2026gujhc13966-1608489
-
-[Source Link](https://t.me/verdictumlegalupdates/25589)
-
----
-
-### 2026-02-24T06:22:24+00:00
-Supreme Court Modifies Its Order In West Bengal SIR Matter; Civil Judges With 3-Year Experience To Verify 80 Lakh Claims Of 'Logical Discrepancies'
-https://www.verdictum.in/court-updates/supreme-court/west-bengal-sir-modifies-order-to-expand-judicial-pool-for-west-bengal-voter-list-1608496
-
-[Source Link](https://t.me/verdictumlegalupdates/25588)
 
 ---
 
