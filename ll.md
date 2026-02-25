@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-25T10:32:24+00:00*
+*Last Updated: 2026-02-25T14:31:15+00:00*
 
 ---
 
-### 2026-02-25T10:32:24+00:00
-Family Property Dispute Given Criminal Colour: Calcutta High Court Quashes Defamation, Intimidation Case Against Cousin
-https://www.livelaw.in/high-court/calcutta-high-court/property-dispute-given-criminal-colour-calcutta-high-court-quashes-defamation-intimidation-case-against-cousin-524569
+### 2026-02-25T14:31:15+00:00
+Supreme Court Decides Century Old Hereditary Pujari Right Dispute In Karnataka Temple
+https://www.livelaw.in/supreme-court/supreme-court-decides-century-old-hereditary-pujari-right-dispute-in-karnataka-temple-524617
 
-[Read on Telegram](https://t.me/livelawindia/105888)
-
----
-### 2026-02-25T10:33:04+00:00
-Right To Education | Govt Can't Deny Distance Education To Employees For Want Of Minimum 3 Years Service: Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-right-to-education-cant-be-curtailed-by-service-tenure-condition-for-distance-learning-524535
-
-[Read on Telegram](https://t.me/livelawindia/105889)
+[Read on Telegram](https://t.me/livelawindia/105916)
 
 ---
-### 2026-02-25T10:43:44+00:00
-Insolvency, Sovereignty and Spectrum: Locating IBC Within Constitutional Order
-https://www.livelaw.in/articles/insolvency-locating-ibc-constitutional-order-524581
+### 2026-02-25T14:32:25+00:00
+ESG And Competition Law In Cross-Border M&A: A Contemporary Shift In Corporate And Commercial Regulation
+https://www.livelaw.in/articles/esg-competition-law-corporate-commercial-regulation-524608
 
-[Read on Telegram](https://t.me/livelawindia/105890)
-
----
-### 2026-02-25T10:48:04+00:00
-Karnataka High Court Upholds Husband's Murder Conviction, Life Term For Setting Man Ablaze Over Suspicion Of Affair With Wife
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-husband-murder-set-on-fire-suspicion-affair-524536
-
-[Read on Telegram](https://t.me/livelawindia/105891)
+[Read on Telegram](https://t.me/livelawindia/105917)
 
 ---
-### 2026-02-25T11:03:04+00:00
-Delhi High Court Seeks Centre, NCRB Response On Plea Challenging Criminal Procedure (Identification) Act Over Alleged Invasion Of Privacy
-https://www.livelaw.in/high-court/delhi-high-court/criminal-procedure-identification-act-challenged-centre-ncrb-notice-524584
+### 2026-02-25T14:32:55+00:00
+2026 LiveLaw (SC) 198 | OGEPPA (D) THROUGH LRS. AND OTHERS VERSUS SAHEBGOUDA (D) THROUGH LRS. AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-198-ogeppa-d-through-lrs-and-others-versus-sahebgouda-d-through-lrs-and-others-524618
 
-[Read on Telegram](https://t.me/livelawindia/105892)
-
----
-### 2026-02-25T11:17:24+00:00
-'People Need Open Spaces': Kerala High Court Pulls Up GIDA Over Kiosks On Queen's Walkway, Orders Status Quo
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-commercial-kiosks-queens-walkway-524542
-
-[Read on Telegram](https://t.me/livelawindia/105893)
+[Read on Telegram](https://t.me/livelawindia/105918)
 
 ---
-### 2026-02-25T11:29:34+00:00
-Supreme Court Refuses To Interfere With Bihar's Sikrahana River Dam Project
-https://www.livelaw.in/top-stories/supreme-court-refuses-to-interfere-with-bihars-sikrahana-river-dam-project-524590
+### 2026-02-25T14:35:35+00:00
+P&H High Court Gives Clean Chit To Ex-CM Bhupinder Hooda, Sonia Gandhi's AJIL Company In Panchkula Land Allotment Case
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/ph-high-court-gives-clean-chit-to-ex-cm-bhupinder-hooda-sonia-gandhis-ajil-company-in-panchkula-land-allotment-case-524620
 
-[Read on Telegram](https://t.me/livelawindia/105894)
-
----
-### 2026-02-25T11:32:54+00:00
-Periodical Medical Checkup Is Right Of Every Prisoner Under Article 21: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-prisoner-right-periodic-medical-checkups-article-21-524544
-
-[Read on Telegram](https://t.me/livelawindia/105895)
+[Read on Telegram](https://t.me/livelawindia/105919)
 
 ---
-### 2026-02-25T11:36:14+00:00
-PIL In Supreme Court Seeks Compulsory NAT Testing In All Blood Banks Across India
-https://www.livelaw.in/top-stories/pil-in-supreme-court-seeks-compulsory-nat-testing-in-all-blood-banks-across-india-524591
+### 2026-02-25T14:37:55+00:00
+2026 LiveLaw (SC) 199 |  S. Rajendran v. Deputy Commissioner of Income Tax (Benami Prohibition)
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-199-s-rajendran-v-deputy-commissioner-of-income-tax-benami-prohibition-524621
 
-[Read on Telegram](https://t.me/livelawindia/105896)
-
----
-### 2026-02-25T11:47:24+00:00
-J&K&L High Court Issues Notice On PIL Alleging Non-Implementation Of Public Service Guarantee Act, Seeks Response From UT Govt
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-kashmir-high-court-pil-public-service-guarantee-act-524470
-
-[Read on Telegram](https://t.me/livelawindia/105897)
+[Read on Telegram](https://t.me/livelawindia/105920)
 
 ---
-### 2026-02-25T11:54:44+00:00
-Procedural Lapse By ICC Can't Extinguish Sexual Harassment Complaint: Gauhati High Court Orders Fresh Inquiry Under POSH
-https://www.livelaw.in/high-court/gauhati-high-court/procedural-lapse-by-icc-cant-extinguish-sexual-harassment-complaint-gauhati-high-court-orders-fresh-inquiry-under-posh-524597
+### 2026-02-25T14:57:33+00:00
+Deity's Title Cannot Be Defeated By Adverse Possession Claims Against 'Sebait'/Manager: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/deitys-title-cannot-be-defeated-by-adverse-possession-claims-against-sebaitmanager-calcutta-high-court-524558
 
-[Read on Telegram](https://t.me/livelawindia/105898)
-
----
-### 2026-02-25T12:02:24+00:00
-“Sending Appellant To Jail After 42 Years Not Expedient”: Calcutta High Court Releases Essential Commodities Act Convict On Probation
-https://www.livelaw.in/high-court/calcutta-high-court/sending-appellant-to-jail-after-42-years-not-expedient-calcutta-high-court-releases-essential-commodities-act-convict-on-probation-524561
-
-[Read on Telegram](https://t.me/livelawindia/105899)
+[Read on Telegram](https://t.me/livelawindia/105921)
 
 ---
-### 2026-02-25T12:08:04+00:00
-'Kerala Doesn't Have Dignity As Such, Dignity Is Of India': Kerala Story 2 Producer To High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-story-2-certification-keralite-locus-challenge-movie-cbfc-524598
+### 2026-02-25T15:05:33+00:00
+Madras High Court Quashes Case Against Rajya Sabha MP C Shanmugam For Alleged Derogatory Comments Against Women
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-state-women-commission-case-c-ve-shanmugam-quashed-524626
 
-[Read on Telegram](https://t.me/livelawindia/105900)
-
----
-### 2026-02-25T12:18:04+00:00
-No Requirement To Take Signature Of Accused On Record Of Test Identification Parade: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-informant-signature-tip-record-524560
-
-[Read on Telegram](https://t.me/livelawindia/105901)
+[Read on Telegram](https://t.me/livelawindia/105922)
 
 ---
-### 2026-02-25T12:32:45+00:00
-Blacklisting Contractor Has Civil Consequences, Mandatory Debarment Procedure Can't Be Bypassed: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/blacklisting-has-civil-consequences-mandatory-debarment-procedure-cant-be-bypassed-calcutta-high-court-524564
+### 2026-02-25T15:06:13+00:00
+No Boards Or Barricades: Delhi High Court Denies Bail As Youth Dies In 20-Ft Road Pit; Says 'Public Roads Can't Be Turned Into Death Traps'
+https://www.livelaw.in/high-court/delhi-high-court/no-caution-boards-no-barricades-delhi-high-court-denies-bail-as-youth-dies-in-20-ft-road-pit-says-public-roads-cant-be-turned-into-death-traps-524627
 
-[Read on Telegram](https://t.me/livelawindia/105902)
-
----
-### 2026-02-25T12:47:15+00:00
-Re-Testing Of NDPS Samples Cannot Be Allowed Routinely, Haphazardly Importing Rights From Other Statutes Impermissible: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-re-testing-of-ndps-samples-cannot-be-allowed-as-a-matter-of-course-haphazard-import-of-rights-from-other-statutes-impermissible-524468
-
-[Read on Telegram](https://t.me/livelawindia/105903)
+[Read on Telegram](https://t.me/livelawindia/105923)
 
 ---
-### 2026-02-25T13:01:05+00:00
-Compassionate Assistance To Govt Employee's Family Deductible From Motor Accident Compensation: Supreme Court
-https://www.livelaw.in/supreme-court/compassionate-assistance-to-govt-employees-family-deductible-from-motor-accident-compensation-supreme-court-524604
+### 2026-02-25T15:07:53+00:00
+Villager Attacked For Trespassing On Property, Cutting Bamboo: Calcutta High Court Acquits Accused In 35-Yr-Old Case
+https://www.livelaw.in/high-court/calcutta-high-court/villager-attacked-for-trespassing-on-property-cutting-bamboo-calcutta-high-court-acquits-accused-in-35-yr-old-case-524567
 
-[Read on Telegram](https://t.me/livelawindia/105904)
-
----
-### 2026-02-25T13:01:45+00:00
-2026 LiveLaw (SC) 196 | RELIANCE GENERAL INSURANCE COMPANY LIMITED VERSUS KANIKA & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-196-reliance-general-insurance-company-limited-versus-kanika-ors-524605
-
-[Read on Telegram](https://t.me/livelawindia/105905)
+[Read on Telegram](https://t.me/livelawindia/105924)
 
 ---
-### 2026-02-25T13:02:25+00:00
-Orissa High Court Directs DGP & Home Department To Train Police Officers To Mandatorily Provide Written Grounds To Arrestees
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-train-police-officers-arrest-written-grounds-524537
+### 2026-02-25T15:27:50+00:00
+MP High Court Issues Notice On Journalist's PIL Against Public Health Hazard Caused By Transport Of Fly Ash From Thermal Power Plant
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-issues-notice-in-public-interest-litigation-over-transport-of-fly-ash-causing-environmental-and-public-health-hazard-524629
 
-[Read on Telegram](https://t.me/livelawindia/105906)
+[Read on Telegram](https://t.me/livelawindia/105925)
 
 ---
-### 2026-02-25T13:17:45+00:00
-Calcutta High Court Refuses Probate Of 2001 Will, Cites Contradictory Witness Testimony; Due Execution Not Proved Under Succession Act
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-refuses-probate-of-2001-will-cites-contradictory-attesting-witness-testimony-holds-due-execution-not-proved-under-succession-act-524539
+### 2026-02-25T15:28:00+00:00
+'Gruesome Crime Alone Not Ground To Deny Bail': Calcutta High Court Grants Anticipatory Bail In 2021 Post-Poll Violence Case
+https://www.livelaw.in/high-court/calcutta-high-court/gruesome-crime-alone-not-ground-to-deny-bail-calcutta-high-court-grants-anticipatory-bail-in-2021-post-poll-violence-case-524579
 
-[Read on Telegram](https://t.me/livelawindia/105907)
+[Read on Telegram](https://t.me/livelawindia/105926)
+
+---
+### 2026-02-25T15:32:30+00:00
+Failure To Apprehend Accused For 13 Yrs Speaks Volumes About CBI: Delhi High Court While Granting Bail In ₹2 Crore Fraud Case
+https://www.livelaw.in/high-court/delhi-high-court/failure-to-apprehend-accused-for-13-yrs-speaks-volumes-about-cbi-delhi-high-court-while-granting-bail-in-2-crore-fraud-case-524628
+
+[Read on Telegram](https://t.me/livelawindia/105927)
+
+---
+### 2026-02-25T15:42:10+00:00
+Reserved Candidate Availing Relaxation At Screening Stage Cannot Claim Migration To General Category: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-reserved-candidate-availing-relaxation-at-screening-stage-cannot-claim-migration-to-general-category-524634
+
+[Read on Telegram](https://t.me/livelawindia/105928)
+
+---
+### 2026-02-25T15:47:50+00:00
+Married Daughter Eligible For Ex-Gratia & Leave Encashment If Sole Legal Heir: Madhya Pradesh High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-married-daughter-entitled-to-ex-gratia-and-leave-encashment-payments-524630
+
+[Read on Telegram](https://t.me/livelawindia/105929)
+
+---
+### 2026-02-25T15:57:40+00:00
+Stamp Duty Must Be Assessed On Date Of Execution, Not On Impounding Or Registrar's Order: MP High Court Quashes Excess Demand
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-stamp-duty-to-be-determined-based-on-execution-date-524632
+
+[Read on Telegram](https://t.me/livelawindia/105930)
+
+---
+### 2026-02-25T15:59:00+00:00
+[Advertisement] WBNUJS Invites Applications For Two-Year Master's Programmes For Academic Session 2026–2027
+https://www.livelaw.in/lawschool/diploma-certificate-courses/wbnujs-invites-applications-for-two-year-masters-programmes-for-academic-session-524639
+
+[Read on Telegram](https://t.me/livelawindia/105931)
+
+---
+### 2026-02-25T16:08:00+00:00
+Criminal Justice Not Purchasable Commodity: Meghalaya High Court Rejects Monetary Settlements In Fatal Negligence Cases
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-rejects-monetary-settlements-fatal-negligence-cases-524633
+
+[Read on Telegram](https://t.me/livelawindia/105932)
+
+---
+### 2026-02-25T16:22:40+00:00
+D.Y. Patil University To Host Conference On 'The Security State and Digital Governance' From March 6–8, 2026
+https://www.livelaw.in/lawschool/news/dy-patil-university-to-host-conference-on-the-security-state-and-digital-governance-524641
+
+[Read on Telegram](https://t.me/livelawindia/105933)
+
+---
+### 2026-02-25T16:32:00+00:00
+Jindal Global Law School Hosts LSGL Deans' Meeting 2026 On Law And The Digital Future
+https://www.livelaw.in/lawschool/news/jindal-global-law-school-hosts-lsgl-deans-meeting-2026-on-law-and-the-digital-future-524642
+
+[Read on Telegram](https://t.me/livelawindia/105934)
+
+---
+### 2026-02-25T17:03:10+00:00
+Supreme Court Daily Round-Up : February 25, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-february-25-2026-524625
+
+[Read on Telegram](https://t.me/livelawindia/105935)
 
 ---
