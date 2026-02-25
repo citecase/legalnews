@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-25T13:32:23+00:00*
+*Last Updated: 2026-02-25T16:02:59+00:00*
+
+---
+
+### 2026-02-25T16:02:59+00:00
+Assistant Editor, SCR Vacancy At Supreme Court Of India
+https://www.verdictum.in/job-updates/supreme-court-of-india-1608687
+
+[Source Link](https://t.me/verdictumlegalupdates/25631)
+
+---
+
+### 2026-02-25T15:32:58+00:00
+Review Must Be Heard By Same Judge If Available; Another Bench Cannot Entertain Review When He Is On Short Leave: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/advanced-technology-products-inc-v-oriental-export-corporation-2026bhc-as9107-1608694
+
+[Source Link](https://t.me/verdictumlegalupdates/25630)
+
+---
+
+### 2026-02-25T15:03:17+00:00
+Registrar Has Power To Investigate Society U/S 22 MSR Act, But Must Follow Statutory Procedure: Manipur High Court
+https://www.verdictum.in/court-updates/high-courts/manipur-high-court/state-of-manipur-v-manipur-olympic-association-ors-societies-registration-1608692
+
+[Source Link](https://t.me/verdictumlegalupdates/25629)
+
+---
+
+### 2026-02-25T14:32:16+00:00
+Section 7 IBC| Corporate Debtor Cannot Indirectly Raise "Pre-Existing Dispute" Defence Against CIRP Admission: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/catalyst-trusteeship-ltd-v-ecstasy-realty-pvt-ltd-2026-insc-186-1608689
+
+[Source Link](https://t.me/verdictumlegalupdates/25628)
+
+---
+
+### 2026-02-25T14:02:34+00:00
+Dying Declaration Recorded By Police Officer U/S 161 CrPC Admissible If Voluntary, Truthful And Consistent: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/asif-v-state-of-karnataka-2026khc8117-db-dying-declaration-section-161-crpc-1608686
+
+[Source Link](https://t.me/verdictumlegalupdates/25627)
 
 ---
 
@@ -121,46 +161,6 @@ Calculated Move To Defame Judiciary: Supreme Court On NCERT’s New Book Contain
 https://www.verdictum.in/court-updates/supreme-court/chief-justice-against-ncert-over-chapter-8-in-new-book-containing-chapter-on-corruption-in-judiciary-1608618
 
 [Source Link](https://t.me/verdictumlegalupdates/25612)
-
----
-
-### 2026-02-25T06:02:32+00:00
-Attachment Order Under Benami Act Cannot Be Challenged Before NCLT Under IBC: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/s-rajendran-v-the-deputy-commissioner-of-income-tax-benami-prohibition-2026-insc-187-nclt-nclat-judicial-review-1608615
-
-[Source Link](https://t.me/verdictumlegalupdates/25611)
-
----
-
-### 2026-02-25T05:32:31+00:00
-Accused Knew That He Was Married & His False Promise Of Marriage Would Be Broken: Allahabad High Court Refuses To Quash Chargesheet U/S 69 BNS
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/vipin-kumar-and-3-others-v-state-of-up-2026ahc39442-accused-married-false-promise-of-marriage-quash-case-1608608
-
-[Source Link](https://t.me/verdictumlegalupdates/25610)
-
----
-
-### 2026-02-25T05:02:50+00:00
-Reasonable Accommodation, Periodical Medical Check-Ups Part of Prisoners' Rights: Madras High Court Directs Biennial Health Audit In Prison
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/m-kalaiselvi-v-state-of-tamil-nadu-ors-prisoner-rights-accommodation-health-1608607
-
-[Source Link](https://t.me/verdictumlegalupdates/25609)
-
----
-
-### 2026-02-25T04:32:48+00:00
-Request For No Caste, No Religion Certificate Can’t Be Considered Unless Litigant Relinquishes His Religion: Madras High Court
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/chellamanickam-v-the-principal-secretary-request-no-cast-no-religion-certificate-litigant-relinquishes-religion-1608600
-
-[Source Link](https://t.me/verdictumlegalupdates/25608)
-
----
-
-### 2026-02-24T16:02:49+00:00
-Junior Legal Officer Vacancy At Rajasthan State Industrial Development and Investment Corporation Limited (RIICO)
-https://www.verdictum.in/job-updates/rajasthan-state-industrial-development-and-investment-corporation-limited-riico-1608562
-
-[Source Link](https://t.me/verdictumlegalupdates/25607)
 
 ---
 
