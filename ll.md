@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-26T05:02:54+00:00*
+*Last Updated: 2026-02-26T10:23:02+00:00*
 
 ---
 
-### 2026-02-26T05:02:54+00:00
-Senior Citizens' Right To Live With Dignity Is Constitutional Mandate: Rajasthan High Court Orders Statewide Audit Of Old Age Homes
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-rslsa-audit-old-age-homes-senior-citizen-population-524666
+### 2026-02-26T10:23:02+00:00
+J&K&L High Court Orders NHAI To Initiate Acquisition Or Restore Land Illegally Occupied Since 1957 Without Compensation
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-orders-nhai-to-initiate-acquisition-or-restore-land-illegally-occupied-since-1957-without-compensation-524685
 
-[Read on Telegram](https://t.me/livelawindia/105950)
-
----
-### 2026-02-26T05:12:14+00:00
-Omnibus Cruelty Allegations, Belated Medical Certificates Can't Justify Attempt-To-Homicide Charge Against In-Laws: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/omnibus-cruelty-allegations-belated-medical-certificates-cant-justify-attempt-to-homicide-charge-against-in-laws-calcutta-high-court-524572
-
-[Read on Telegram](https://t.me/livelawindia/105951)
+[Read on Telegram](https://t.me/livelawindia/105996)
 
 ---
-### 2026-02-26T05:32:54+00:00
-Kerala High Court Relaxes Bar On Issuance Of Patta In Munnar; Allows Processing Of Land Assignment Claims For Pre-1971 Occupants
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-modifies-bar-patta-issuance-in-munnar-consideration-pre1971-occupants-conditions-524670
+### 2026-02-26T10:23:32+00:00
+Gauhati High Court Issues Notice To Assam CM Himanta Sarma, UOI On PIL Against 'Hate Speeches' Targetting Muslims
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-assam-cm-himanta-biswa-sarma-hate-speech-524738
 
-[Read on Telegram](https://t.me/livelawindia/105952)
-
----
-### 2026-02-26T05:47:14+00:00
-'Wholly Unacceptable': Kerala High Court Raps Devaswom Board Over Poor Sanitation At Chottanikkara Temple Despite ₹2–4 Crore Monthly Income
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-chottanikkara-temple-cleanliness-524671
-
-[Read on Telegram](https://t.me/livelawindia/105953)
+[Read on Telegram](https://t.me/livelawindia/105997)
 
 ---
-### 2026-02-26T05:54:44+00:00
-Delhi High Court Refuses To Entertain Appeal Over Manish Sisodia's 2020 Election Win Citing Lack Of Maintainability
-https://www.livelaw.in/high-court/delhi-high-court/manish-sisodia-2020-election-win-challenge-dismissed-appeal-not-maintainable-524676
+### 2026-02-26T10:30:22+00:00
+Honour Killing Double Murder Case | 'Offence Strikes Root Of Public Conscience': Punjab & Haryana High Court Denies Bail
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-honour-killing-double-murder-case-bail-dismissed-524739
 
-[Read on Telegram](https://t.me/livelawindia/105954)
-
----
-### 2026-02-26T06:02:45+00:00
-Kerala High Court Directs State To Ensure OPD, Essential Medical Services Not Disrupted Amid Medical College Doctors' Strike
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-pil-doctors-strike-essential-medical-services-state-duty-524678
-
-[Read on Telegram](https://t.me/livelawindia/105955)
+[Read on Telegram](https://t.me/livelawindia/105998)
 
 ---
-### 2026-02-26T06:14:05+00:00
-Calcutta High Court Directs SDO To Cancel Gram Panchayat Pradhan's Reservation Certificate Over False OBC Claim
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-directs-sdo-to-cancel-gram-panchayat-pradhans-reservation-certificate-over-false-obc-claim-524687
+### 2026-02-26T10:43:42+00:00
+BREAKING| Supreme Court Expresses Reservations About 3-Year Practice Rule To Join Judicial Service, Says Women Affected
+https://www.livelaw.in/top-stories/supreme-court-expresses-reservations-about-3-year-practice-rule-to-join-judicial-service-says-women-affected-524745
 
-[Read on Telegram](https://t.me/livelawindia/105956)
-
----
-### 2026-02-26T06:15:05+00:00
-BREAKING| Supreme Court Bans NCERT Textbook With Chapter On Judicial Corruption, Issues Contempt Notice To NCERT Director & Ministry Official
-https://www.livelaw.in/top-stories/supreme-court-bans-ncert-textbook-with-chapter-on-judicial-corruption-issues-contempt-notice-to-ncert-director-524688
-
-[Read on Telegram](https://t.me/livelawindia/105957)
+[Read on Telegram](https://t.me/livelawindia/105999)
 
 ---
-### 2026-02-26T06:17:45+00:00
-Punitive Termination Cannot Be Passed Without Hearing; Misconduct-Based Discharge Violates Natural Justice: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-termination-order-north-west-ksrtc-524675
+### 2026-02-26T10:47:42+00:00
+Labour Courts Continue To Have Jurisdiction Till Tribunals Are Formed Under Industrial Relations Code 2020: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-labour-courts-statutory-authorities-industrial-disputes-act-524679
 
-[Read on Telegram](https://t.me/livelawindia/105958)
-
----
-### 2026-02-26T06:21:25+00:00
-'Sorry State Of Affairs': MP High Court Seeks Explanation From Bhind Municipal Council For Non-Payment Of Contractor Dues Since 2014
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-seeks-response-from-municipal-office-in-payment-dues-case-of-contractor-524689
-
-[Read on Telegram](https://t.me/livelawindia/105959)
+[Read on Telegram](https://t.me/livelawindia/106000)
 
 ---
-### 2026-02-26T06:37:05+00:00
-Pune Porsche Case | Supreme Court Issues Notice On Bail Plea Of Father Of Minor Accused Of Driving
-https://www.livelaw.in/top-stories/pune-porsche-case-supreme-court-issues-notice-on-bail-plea-of-father-of-minor-accused-of-driving-524690
+### 2026-02-26T10:50:22+00:00
+Supreme Court Issues Notice To Union, ECI On PIL To Curb Unregulated Election Expenditure By Political Parties
+https://www.livelaw.in/top-stories/supreme-court-common-cause-pil-unregulated-election-expenditure-by-political-parties-ceiling-limits-rp-act-electoral-bonds-case-524748
 
-[Read on Telegram](https://t.me/livelawindia/105960)
-
----
-### 2026-02-26T06:41:51+00:00
-Second Wife From Void Marriage Not Entitled To Family Pension Under Army Rules Even After First Wife's Death: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/second-wife-no-family-pension-void-marriage-even-after-first-wife-death-524691
-
-[Read on Telegram](https://t.me/livelawindia/105961)
+[Read on Telegram](https://t.me/livelawindia/106001)
 
 ---
-### 2026-02-26T06:42:51+00:00
-Calcutta High Court Enhances Amputee Accident Victim's Compensation, Says Loss Of Amenities & Future Medical Costs Must Be Considered
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-enhances-amputee-accident-victims-compensation-says-loss-of-amenities-future-medical-costs-must-be-calculated-524573
+### 2026-02-26T11:16:38+00:00
+Citing Garuda Purana, P&H High Court Holds Reimbursement For Emergency Medical Treatment In Non-Empanelled Hospital Can't Be Curtailed
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/garuda-puran-full-reimbursement-for-emergency-treatment-in-non-empanelled-hospital-524753
 
-[Read on Telegram](https://t.me/livelawindia/105962)
-
----
-### 2026-02-26T06:47:31+00:00
-Wards Of Soldiers Disabled In Action But Retained In Service Not Entitled To Priority-II Reservation: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/wards-of-soldiers-disabled-in-action-but-retained-in-service-not-entitled-to-priority-ii-reservation-delhi-high-court-524683
-
-[Read on Telegram](https://t.me/livelawindia/105963)
+[Read on Telegram](https://t.me/livelawindia/106002)
 
 ---
-### 2026-02-26T06:48:31+00:00
-Vidhan: The Policy Triathlon 2026 Concludes At IIM Ranchi; Over 200 Students Participate Nationwide
-https://www.livelaw.in/lawschool/news/vidhan-the-policy-triathlon-2026-concludes-at-iim-ranchi-over-200-students-participate-nationwide-524693
+### 2026-02-26T11:29:58+00:00
+'Online Abuses Hurled At Superior Courts Cross The Line': Allahabad High Court Warns Netizens Of Strict Contempt Action
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-warns-netizens-online-abuses-superior-courts-strict-contempt-action-524755
 
-[Read on Telegram](https://t.me/livelawindia/105964)
-
----
-### 2026-02-26T06:59:18+00:00
-Supreme Court AoR Exam June 2025 Results Published
-https://www.livelaw.in/top-stories/supreme-court-aor-exam-june-2025-results-published-524695
-
-[Read on Telegram](https://t.me/livelawindia/105965)
+[Read on Telegram](https://t.me/livelawindia/106003)
 
 ---
-### 2026-02-26T07:01:18+00:00
-S. 464 IPC | Document Can't Be Termed Forged Merely Because It Is Not Traceable In Records : Supreme Court
-https://www.livelaw.in/supreme-court/s-464-ipc-document-cant-be-termed-forged-merely-because-it-is-not-traceable-in-records-supreme-court-524697
+### 2026-02-26T11:32:39+00:00
+Labour Court Can't Re-Appreciate Evidence After Upholding Domestic Enquiry: Delhi High Court Restores Termination Of MTNL Workman
+https://www.livelaw.in/high-court/delhi-high-court/labour-court-cant-re-appreciate-evidence-after-upholding-domestic-enquiry-delhi-high-court-restores-termination-of-mtnl-workman-524741
 
-[Read on Telegram](https://t.me/livelawindia/105966)
-
----
-### 2026-02-26T07:01:28+00:00
-Ratio Et Oratio: VIT School Of Law To Host National Level Legal Debate Competition 2026; Register By March 7
-https://www.livelaw.in/lawschool/competitions/ratio-et-oratio-vit-school-law-host-national-level-legal-debate-competition-524698
-
-[Read on Telegram](https://t.me/livelawindia/105967)
+[Read on Telegram](https://t.me/livelawindia/106004)
 
 ---
-### 2026-02-26T07:02:28+00:00
-Kerala High Court Directs State To Finalise SOP To Curb Overloaded Goods Vehicles On National Highways
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-mandates-strict-sop-to-curb-overloaded-goods-vehicle-on-national-highways-524692
+### 2026-02-26T11:42:19+00:00
+State Can't Arbitrarily Scrap Near-Complete Recruitment, Constitutional Courts Can Intervene If Decision Lacks Rationality: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-state-cant-arbitrarily-scrap-near-complete-recruitment-constitutional-courts-sufficiently-empowered-to-intervene-if-decision-lacks-rational-basis-524681
 
-[Read on Telegram](https://t.me/livelawindia/105968)
+[Read on Telegram](https://t.me/livelawindia/106005)
 
 ---
-### 2026-02-26T07:02:38+00:00
-2026 LiveLaw (SC) 200 | VANDANA JAIN & ORS. VERSUS THE STATE OF UTTAR PRADESH & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-200-vandana-jain-ors-versus-the-state-of-uttar-pradesh-ors-524699
+### 2026-02-26T11:50:39+00:00
+Maharashtra Govt Flags Security Risk In Allowing Muslim Cab Drivers To Offer Namaz Near Airport; High Court Calls For Alternate Arrangement
+https://www.livelaw.in/high-court/bombay-high-court/mumbai-airport-namaz-place-ramadan-security-concerns-maharashtra-govt-524759
 
-[Read on Telegram](https://t.me/livelawindia/105969)
+[Read on Telegram](https://t.me/livelawindia/106006)
+
+---
+### 2026-02-26T11:50:49+00:00
+Aravalli Hills : Supreme Court Seeks Expert Panel To Determine Scope Of Permissible Activity, Maintains Halt On Mining
+https://www.livelaw.in/top-stories/aravalli-hills-supreme-court-seeks-expert-panel-to-determine-scope-of-permissible-activity-maintains-halt-on-mining-524760
+
+[Read on Telegram](https://t.me/livelawindia/106007)
+
+---
+### 2026-02-26T11:58:59+00:00
+Maharashtra Co-Operative Societies Rules | Failure To Pay Balance Amount In 15 Days Renders Auction A Nullity: Supreme Court
+https://www.livelaw.in/supreme-court/maharashtra-co-operative-societies-rules-failure-to-pay-balance-amount-in-15-days-renders-auction-a-nullity-supreme-court-524762
+
+[Read on Telegram](https://t.me/livelawindia/106008)
+
+---
+### 2026-02-26T12:02:39+00:00
+Allowing Petitions To Languish Under Objections To Save Limitation 'Can't Be Countenanced': Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/allowing-petitions-to-languish-under-objections-to-save-limitation-cant-be-countenanced-delhi-high-court-524740
+
+[Read on Telegram](https://t.me/livelawindia/106009)
+
+---
+### 2026-02-26T12:17:49+00:00
+Remand Illegal When Offences Are Bailable: Karnataka High Court Quashes Man's Custody For Allegedly Kidnapping Wife
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-husband-judicial-custody-kidnapping-wife-524754
+
+[Read on Telegram](https://t.me/livelawindia/106010)
+
+---
+### 2026-02-26T12:33:12+00:00
+Need To Record Reasons While Granting Bail In Heinous Crimes, Mechanical Bail Orders Impermissible: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-need-to-record-reasons-while-granting-bail-in-heinous-crimes-mechanical-bail-orders-impermissible-524682
+
+[Read on Telegram](https://t.me/livelawindia/106011)
+
+---
+### 2026-02-26T12:39:18+00:00
+Many Political Parties 'Mushrooming' These Days Only For Tax And Legal Benefits: Madras High Court Remarks
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tvk-public-meeting-sop-challenge-political-party-mushrooming-524768
+
+[Read on Telegram](https://t.me/livelawindia/106012)
+
+---
+### 2026-02-26T12:39:58+00:00
+RTI Act Applies To Cochin International Airport Ltd : Supreme Court Upholds Kerala High Court Order
+https://www.livelaw.in/top-stories/supreme-court-upholds-kerala-hc-order-which-held-cochin-international-airport-to-be-a-public-authority-under-right-to-information-act-cost-waived-524769
+
+[Read on Telegram](https://t.me/livelawindia/106013)
+
+---
+### 2026-02-26T12:49:18+00:00
+AI Summit Protest: Delhi Court Remands Three Youth Congress Activists Arrested From Himachal Pradesh To 3 Days Of Police Custody
+https://www.livelaw.in/news-updates/ai-summit-protest-accused-congress-youth-police-custody-524771
+
+[Read on Telegram](https://t.me/livelawindia/106014)
+
+---
+### 2026-02-26T13:00:58+00:00
+Registry's Functioning Requires Deeper Probe; Some Officials Think They Last In SC More Than Judges & Can Do Whatever : CJI
+https://www.livelaw.in/top-stories/registrys-functioning-requires-deeper-probe-cji-surya-kant-supreme-court-524774
+
+[Read on Telegram](https://t.me/livelawindia/106015)
 
 ---
