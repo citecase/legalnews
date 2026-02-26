@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-25T14:31:15+00:00*
+*Last Updated: 2026-02-25T14:32:25+00:00*
 
 ---
 
-### 2026-02-25T14:31:15+00:00
-Supreme Court Decides Century Old Hereditary Pujari Right Dispute In Karnataka Temple
-https://www.livelaw.in/supreme-court/supreme-court-decides-century-old-hereditary-pujari-right-dispute-in-karnataka-temple-524617
-
-[Read on Telegram](https://t.me/livelawindia/105916)
-
----
 ### 2026-02-25T14:32:25+00:00
 ESG And Competition Law In Cross-Border M&A: A Contemporary Shift In Corporate And Commercial Regulation
 https://www.livelaw.in/articles/esg-competition-law-corporate-commercial-regulation-524608
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : February 25, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-february-25-2026-524625
 
 [Read on Telegram](https://t.me/livelawindia/105935)
+
+---
+### 2026-02-26T00:40:10+00:00
+Lok Sabha Committee Inquiring Justice Yashwant Varma Reconstituted, Bombay HC CJ Inducted
+https://www.livelaw.in/top-stories/lok-sabha-committee-inquiring-justice-yashwant-varma-reconstituted-bombay-hc-cj-inducted-524644
+
+[Read on Telegram](https://t.me/livelawindia/105936)
 
 ---
