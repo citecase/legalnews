@@ -1,6 +1,110 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-26T07:32:59+00:00*
+*Last Updated: 2026-02-26T13:33:03+00:00*
+
+---
+
+### 2026-02-26T13:33:03+00:00
+Compromise Or Settlement Between Deceased's Family & Accused Not A Ground To Quash Death By Negligence Case: Meghalaya High Court
+https://www.verdictum.in/court-updates/high-courts/meghalaya-high-court/flamingstar-sohkhlet-v-state-of-meghalaya-2026mlhc69-motor-accident-death-compromise-1608807
+
+[Source Link](https://t.me/verdictumlegalupdates/25651)
+
+---
+
+### 2026-02-26T13:03:02+00:00
+Registering Authority Cannot Travel Beyond Sections 34 & 35 Of Registration Act To Refuse Registration Of Documents: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/siddharth-goel-v-the-sub-registrar-class-ii-2026bhc-as9479-db-registration-act-1608806
+
+[Source Link](https://t.me/verdictumlegalupdates/25650)
+
+---
+
+### 2026-02-26T12:33:00+00:00
+Public Safety Overrides Tenancy Rights; Tenants Can’t Obstruct Municipal Authorities From Demolishing Building Declared Dangerous: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/mukteshwar-mahadev-mukteshwari-durga-dharmarth-seva-samiti-v-state-of-up-public-safety-tenancy-rights-municipal-authorities-1608802
+
+[Source Link](https://t.me/verdictumlegalupdates/25649)
+
+---
+
+### 2026-02-26T12:02:38+00:00
+Misconceptions For Judiciary Will Travel From Teacher To Pupil And To Entire Society: Supreme Court Criticizes NCERT For 'Egregious Silence' On Judicial Reforms
+https://www.verdictum.in/court-updates/supreme-court/criticizes-ncert-class-viii-book-for-egregious-silence-judicial-reforms-1608800
+
+[Source Link](https://t.me/verdictumlegalupdates/25648)
+
+---
+
+### 2026-02-26T11:37:42+00:00
+Impleadment Without Privity Of Contract Or Arbitration Agreement Unsustainable: Delhi High Court Removes IIM Jammu From Arbitration Proceedings
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ms-ramacivil-india-construction-pvt-ltd-v-central-public-works-department-2026dhc1579-impleadment-arbitration-iim-jammu-1608786
+
+[Source Link](https://t.me/verdictumlegalupdates/25647)
+
+---
+
+### 2026-02-26T11:33:00+00:00
+Impleadment Without Privity Of Contract Or Arbitration Agreement Unsustainable: Delhi High Court Removes IIM Jammu From Arbitration Proceedings
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ms-ramacivil-india-construction-pvt-ltd-v-central-public-works-department-2026dhc1579-impleadment-arbitration-iim-jammu-1608786
+
+[Source Link](https://t.me/verdictumlegalupdates/25646)
+
+---
+
+### 2026-02-26T11:02:42+00:00
+Supreme Court To Form Expert Committee On Aravalli Hills And Ranges Issue; Extends Stay On Mining Activities
+https://www.verdictum.in/court-updates/supreme-court/form-expert-committee-aravalli-hills-ranges-issue-extends-stay-on-mining-activities-1608788
+
+[Source Link](https://t.me/verdictumlegalupdates/25645)
+
+---
+
+### 2026-02-26T10:33:14+00:00
+Pune Porsche Accident: Supreme Court Notice To Maharashtra Govt On Bail Plea Filed By Key Accused's Father
+https://www.verdictum.in/court-updates/supreme-court/pune-porsche-accident-supreme-court-notice-to-maharashtra-govt-on-bail-plea-filed-by-key-accuseds-father-1608770
+
+[Source Link](https://t.me/verdictumlegalupdates/25644)
+
+---
+
+### 2026-02-26T10:02:42+00:00
+Supreme Court Directs Centre To Participate In Meeting For Creation Of Centralised Dashboard And Standardisation Of CCTVs In Police Stations.
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-directs-centre-to-participate-in-meeting-for-creation-of-centralised-dashboard-and-standardisation-of-cctvs-in-police-stations-1608762
+
+[Source Link](https://t.me/verdictumlegalupdates/25643)
+
+---
+
+### 2026-02-26T09:32:41+00:00
+Supreme Court Issues Notice On Plea To Curb Fake Cases, PIL Purposes Mandate For Awareness Against Malicious Prosecution
+https://www.verdictum.in/court-updates/supreme-court/issues-notice-on-plea-to-curb-fake-cases-ashwini-upadhyay-1608778
+
+[Source Link](https://t.me/verdictumlegalupdates/25642)
+
+---
+
+### 2026-02-26T09:03:00+00:00
+Crematorium Is One Place Everybody Needs: Supreme Court Directs Mediation In Isha Foundation Crematorium Dispute
+https://www.verdictum.in/court-updates/supreme-court/directs-mediation-isha-foundation-kalabhairavar-dhagana-mandapam-crematorium-dispute-1608771
+
+[Source Link](https://t.me/verdictumlegalupdates/25641)
+
+---
+
+### 2026-02-26T08:33:21+00:00
+Mere Non-Traceability Of Document Does Not Make It Forged; Forgery Must Satisfy Section 464 IPC: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/vandana-jain-ors-v-state-of-uttar-pradesh-ors-2026-insc-192-464-1608760
+
+[Source Link](https://t.me/verdictumlegalupdates/25640)
+
+---
+
+### 2026-02-26T08:03:20+00:00
+Mandatory Timeline For Public Auction Deposit Inviolable; Waiver Requires Consent Of All Parties: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/ms-adishakti-developers-v-the-state-of-maharastra-civil-appeal-nos-002545-002548-of-2026-auction-sale-deposit-15-days-1608754
+
+[Source Link](https://t.me/verdictumlegalupdates/25639)
 
 ---
 
@@ -57,110 +161,6 @@ Financial Assistance Under 2006 Haryana Compassionate Assistance Rules Can Be De
 https://www.verdictum.in/court-updates/supreme-court/reliance-general-insurance-company-limited-v-kanika-2026-insc-188-financial-assistance-deducted-motor-vehicles-act-1608718
 
 [Source Link](https://t.me/verdictumlegalupdates/25632)
-
----
-
-### 2026-02-25T16:02:59+00:00
-Assistant Editor, SCR Vacancy At Supreme Court Of India
-https://www.verdictum.in/job-updates/supreme-court-of-india-1608687
-
-[Source Link](https://t.me/verdictumlegalupdates/25631)
-
----
-
-### 2026-02-25T15:32:58+00:00
-Review Must Be Heard By Same Judge If Available; Another Bench Cannot Entertain Review When He Is On Short Leave: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/advanced-technology-products-inc-v-oriental-export-corporation-2026bhc-as9107-1608694
-
-[Source Link](https://t.me/verdictumlegalupdates/25630)
-
----
-
-### 2026-02-25T15:03:17+00:00
-Registrar Has Power To Investigate Society U/S 22 MSR Act, But Must Follow Statutory Procedure: Manipur High Court
-https://www.verdictum.in/court-updates/high-courts/manipur-high-court/state-of-manipur-v-manipur-olympic-association-ors-societies-registration-1608692
-
-[Source Link](https://t.me/verdictumlegalupdates/25629)
-
----
-
-### 2026-02-25T14:32:16+00:00
-Section 7 IBC| Corporate Debtor Cannot Indirectly Raise "Pre-Existing Dispute" Defence Against CIRP Admission: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/catalyst-trusteeship-ltd-v-ecstasy-realty-pvt-ltd-2026-insc-186-1608689
-
-[Source Link](https://t.me/verdictumlegalupdates/25628)
-
----
-
-### 2026-02-25T14:02:34+00:00
-Dying Declaration Recorded By Police Officer U/S 161 CrPC Admissible If Voluntary, Truthful And Consistent: Karnataka High Court
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/asif-v-state-of-karnataka-2026khc8117-db-dying-declaration-section-161-crpc-1608686
-
-[Source Link](https://t.me/verdictumlegalupdates/25627)
-
----
-
-### 2026-02-25T13:32:23+00:00
-‘Fencesitter’ Litigant Cannot Shift Blame On Advocate; Plea of Ignorance Unacceptable In Era Of Online Orders: Gujarat High Court
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/lr-of-sardar-himmatbhai-khokar-lr-of-jesangbhai-amthabhai-2026gujhc13773-litigant-advocate-online-order-1608685
-
-[Source Link](https://t.me/verdictumlegalupdates/25626)
-
----
-
-### 2026-02-25T13:03:01+00:00
-Inverted Display Of National Flag Not An Offence If There Was No Intention To Insult: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/v-k-narayanan-v-state-of-maharashtra-tricolour-insult-inverted-display-1608684
-
-[Source Link](https://t.me/verdictumlegalupdates/25625)
-
----
-
-### 2026-02-25T12:32:20+00:00
-Motor Vehicles Act Doesn’t Create Independent Mechanism For ‘Clarification’ Of Concluded Appellate Judgment: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/reliance-general-insurance-company-limited-v-kanika-2026-insc-188-motor-vehicles-act-clarification-concluded-appellate-judgment-1608683
-
-[Source Link](https://t.me/verdictumlegalupdates/25624)
-
----
-
-### 2026-02-25T12:02:19+00:00
-Accused Posed As Police And Tried Honey Trapping Style Robbery: Gujarat High Court Refuses Probation Benefit
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/state-of-gujarat-v-vishalkumar-somchandra-shah-2026gujhc12748-db-robbery-dacoity-probation-honeytrap-1608680
-
-[Source Link](https://t.me/verdictumlegalupdates/25623)
-
----
-
-### 2026-02-25T11:33:17+00:00
-Recovery On Retirement Eve Imperils Financial Security & Undermines Dignity: Calcutta High Court Sets Aside Recovery Proceedings Against Retired Employee
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/ashok-tripathy-v-union-of-india-ors-wpa-13911-of-2017-public-employer-hindi-typist-retirement-salary-1608668
-
-[Source Link](https://t.me/verdictumlegalupdates/25622)
-
----
-
-### 2026-02-25T11:02:56+00:00
-Competent Authority Can Opt Other Officers For Surprise Check: Kerala HC Refuses to Quash Corruption Case Against Excise Officer
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/unaize-ahammed-v-state-of-kerala-2026ker10903-liquor-bottles-recovery-corruption-red-handed-1608667
-
-[Source Link](https://t.me/verdictumlegalupdates/25621)
-
----
-
-### 2026-02-25T10:33:14+00:00
-Courts Must Not Be Seen To Stifle Free Speech: Justice Ujjal Bhuyan Notes In His Separate Opinion After Supreme Court Records Withdrawal Of ‘Ghooskhor Pandat’ Movie Title
-https://www.verdictum.in/court-updates/supreme-court/atul-mishra-v-union-of-india-writ-petition-c-no181-of-2026-ghooskhor-pandat-title-1608660
-
-[Source Link](https://t.me/verdictumlegalupdates/25620)
-
----
-
-### 2026-02-25T10:02:53+00:00
-Supreme Court Seeks Details On Cost, Availability Of NAT In Hospital To Prevent Transfusion Related Infection
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-seeks-details-on-cost-availability-of-nat-in-hospital-to-prevent-transfusion-related-infection-1608642
-
-[Source Link](https://t.me/verdictumlegalupdates/25619)
 
 ---
 
