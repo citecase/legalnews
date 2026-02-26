@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-25T16:02:59+00:00*
+*Last Updated: 2026-02-26T07:32:59+00:00*
+
+---
+
+### 2026-02-26T07:32:59+00:00
+"Sharbat Rooh Afza" Classifiable As  Fruit Drink Or Processed Fruit Product Under UPVAT Act: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/ms-hamdard-wakf-laboratories-v-commissioner-of-commercial-tax-2026-insc-195-rooh-afza-sharbat-4-vat-upvat-1608750
+
+[Source Link](https://t.me/verdictumlegalupdates/25638)
+
+---
+
+### 2026-02-26T07:03:17+00:00
+Compromise Or Arrangement U/S. 230 Companies Act 2013 Permissible During IBC Proceedings At Appropriate Stage: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/omkara-assets-reconstruction-private-limited-v-amit-chaturvedi-ors-2026-insc-189-1608744
+
+[Source Link](https://t.me/verdictumlegalupdates/25637)
+
+---
+
+### 2026-02-26T06:32:56+00:00
+Recovery Of Weapons Of Assault Not Sine Qua Non For Conviction: Supreme Court Upholds Conviction In Double Murder Case
+https://www.verdictum.in/court-updates/supreme-court/ghanshyam-mandal-v-the-state-of-bihar-2026-insc-194-recovery-weapons-assault-not-sine-qua-non-for-conviction-1608742
+
+[Source Link](https://t.me/verdictumlegalupdates/25636)
+
+---
+
+### 2026-02-26T06:12:15+00:00
+Breaking: "Deep Rooted Conspiracy", Supreme Court Orders Nationwide Ban And Seizure Of NCERT Class 8 Textbook Over "Judicial Corruption" Chapter
+https://www.verdictum.in/court-updates/supreme-court/deep-rooted-consipiracy-ncert-published-class-8-book-corruption-in-judiciary-1608740
+
+[Source Link](https://t.me/verdictumlegalupdates/25635)
+
+---
+
+### 2026-02-26T05:33:13+00:00
+Habeas Corpus Not Proper Remedy When Child Custody Is Not Illegal; Parties Must Approach Civil Court For Welfare Determination: Orissa HC
+https://www.verdictum.in/court-updates/high-courts/orissa-high-court/shashikanta-majhi-v-state-of-odisha-and-others-wpcrl-no10-of-2026-child-custody-habeas-corpus-1608730
+
+[Source Link](https://t.me/verdictumlegalupdates/25634)
+
+---
+
+### 2026-02-26T05:02:52+00:00
+Party Setting Up Competing Claim To Hereditary Pujari Rights Has To Plead Specifically When They Came Into Possession Of Suit Temple: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/ogeppa-d-through-lrs-v-sahebgouda-d-2026-insc-191-party-competing-claim-hereditary-pujari-rights-1608728
+
+[Source Link](https://t.me/verdictumlegalupdates/25633)
+
+---
+
+### 2026-02-26T04:32:31+00:00
+Financial Assistance Under 2006 Haryana Compassionate Assistance Rules Can Be Deducted From Compensation Awarded Under Motor Vehicles Act: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/reliance-general-insurance-company-limited-v-kanika-2026-insc-188-financial-assistance-deducted-motor-vehicles-act-1608718
+
+[Source Link](https://t.me/verdictumlegalupdates/25632)
 
 ---
 
@@ -105,62 +161,6 @@ Supreme Court Seeks Details On Cost, Availability Of NAT In Hospital To Prevent 
 https://www.verdictum.in/court-updates/supreme-court/supreme-court-seeks-details-on-cost-availability-of-nat-in-hospital-to-prevent-transfusion-related-infection-1608642
 
 [Source Link](https://t.me/verdictumlegalupdates/25619)
-
----
-
-### 2026-02-25T09:33:12+00:00
-IT Returns Are Personal, Not Public: Karnataka HC Quashes CIC Order Directing Disclosure to Wife Under RTI; Issues Guidelines
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/income-tax-officer-and-cpio-v-gulsanober-2026khc11056-wife-husband-privacy-public-interest-1608649
-
-[Source Link](https://t.me/verdictumlegalupdates/25618)
-
----
-
-### 2026-02-25T09:03:00+00:00
-Supreme Court Refused To Entertain Plea Challenging Constitutional Validity Of Section 20(2)(a) Of BNSS For Appointment Of Prosecution Officer
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-refused-to-entertain-plea-challenging-constitutional-validity-of-section-202a-of-bnss-for-appointment-of-prosecution-officer-1608635
-
-[Source Link](https://t.me/verdictumlegalupdates/25617)
-
----
-
-### 2026-02-25T08:32:39+00:00
-Film Nowhere Portrays Yadav Community In Bad Light: Supreme Court Refuses To Ban Movie ‘Yadav Ji ki Love Story’
-https://www.verdictum.in/court-updates/supreme-court/film-nowhere-portrays-yadav-community-in-bad-light-supreme-court-refuses-to-ban-movie-yadav-ji-ki-love-story-1608634
-
-[Source Link](https://t.me/verdictumlegalupdates/25616)
-
----
-
-### 2026-02-25T08:02:57+00:00
-Supreme Court Stays Criminal Proceedings Against Hemant Soren Over Alleged Non-Compliance With ED Summons
-https://www.verdictum.in/court-updates/supreme-court/stays-criminal-proceedings-jharkhand-chief-minister-hemant-soren-over-alleged-non-compliance-with-ed-summons-1608631
-
-[Source Link](https://t.me/verdictumlegalupdates/25615)
-
----
-
-### 2026-02-25T07:32:56+00:00
-Burden Of Proving Fact Rests Squarely On Party Making Such Assertion In Writ Petition Which Is Decided On Affidavits: Supreme Court Allows IOCL’s Appeal
-https://www.verdictum.in/court-updates/supreme-court/indian-oil-corporation-limited-v-ms-aditya-hp-centre-2026-insc-182-burden-proving-fact-assertion-writ-petition-affidavits-1608626
-
-[Source Link](https://t.me/verdictumlegalupdates/25614)
-
----
-
-### 2026-02-25T07:02:35+00:00
-Hospitals Cannot Treat Another Hospital as ‘Rival’; Non-Compete Clause Against Doctor Void: Madras High Court
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/miot-hospitals-private-limited-v-dr-balaraman-palaniappan-2026mhc733-doctor-lawyer-non-compete-clause-1608609
-
-[Source Link](https://t.me/verdictumlegalupdates/25613)
-
----
-
-### 2026-02-25T06:16:13+00:00
-Calculated Move To Defame Judiciary: Supreme Court On NCERT’s New Book Containing Chapter On Corruption In Judiciary
-https://www.verdictum.in/court-updates/supreme-court/chief-justice-against-ncert-over-chapter-8-in-new-book-containing-chapter-on-corruption-in-judiciary-1608618
-
-[Source Link](https://t.me/verdictumlegalupdates/25612)
 
 ---
 
