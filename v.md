@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-27T13:32:48+00:00*
+*Last Updated: 2026-02-27T16:02:32+00:00*
+
+---
+
+### 2026-02-27T16:02:32+00:00
+Discretion In Bail Must Be Exercised Judiciously, Indicating Reasons In Serious Offences: J&K And Ladakh High Court Denies Bail To Murder Accused
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/murad-ali-and-others-v-union-territory-of-jk-and-others-2026jklhc-jmu456-1608914
+
+[Source Link](https://t.me/verdictumlegalupdates/25681)
+
+---
+
+### 2026-02-27T15:32:50+00:00
+“Demonstrably Pertains To Public Order”: Allahabad High Court Upholds NSA Detention For Cattle Slaughter On Eid Coinciding With Navratri
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/hasnen-v-union-of-india-and-others-cw-saiyyaj-ali-v-state-of-up-and-sikandar-v-state-of-up-2026ahc43774-db-1608913
+
+[Source Link](https://t.me/verdictumlegalupdates/25680)
+
+---
+
+### 2026-02-27T15:02:28+00:00
+Explanation Doesn’t Meet Threshold Of ‘Sufficient Cause’ U/S.5 Limitation Act: Delhi High Court Refuses To Condone 281-Day Delay
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ms-x-v-the-state-of-nct-of-delhi-2026dhc1381-explanation-sufficient-cause-limitation-act-condone-delay-1608912
+
+[Source Link](https://t.me/verdictumlegalupdates/25679)
+
+---
+
+### 2026-02-27T14:33:11+00:00
+Constitution Does Not Mandate Child To Invariably Bear Father’s Surname: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/ms-priancy-saru-magar-v-chief-registrar-births-and-deaths-bengaluru-2026khc9735-1608911
+
+[Source Link](https://t.me/verdictumlegalupdates/25678)
+
+---
+
+### 2026-02-27T14:02:49+00:00
+Real Dispute Is Between Tangible National Interests & Unfortunate Hypothetical Loss: Apex Court Remarks In Plea Challenging SHANTI Act
+https://www.verdictum.in/court-updates/supreme-court/real-dispute-is-between-tangible-national-interests-unfortunate-hypothetical-loss-apex-court-remarks-in-plea-challenging-shanti-act-1608910
+
+[Source Link](https://t.me/verdictumlegalupdates/25677)
 
 ---
 
@@ -121,46 +161,6 @@ Labour Courts Will Continue To Have Jurisdiction Till Tribunals Are Formed Under
 https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/glastronix-llp-v-the-presidentgeneral-secretary-2026khc7984-labour-courts-jurisdiction-tribunals-industrial-relations-code-1608859
 
 [Source Link](https://t.me/verdictumlegalupdates/25662)
-
----
-
-### 2026-02-27T06:33:01+00:00
-Not For Writ Court To Deal With Habeas Corpus Issue In Husband-Wife Dispute: Himachal Pradesh High Court
-https://www.verdictum.in/court-updates/high-courts/himachal-high-court/himanshu-dilip-kulkarni-v-state-of-himachal-pradesh-2026hhc4020-writ-court-habeas-corpus-husband-wife-dispute-1608854
-
-[Source Link](https://t.me/verdictumlegalupdates/25661)
-
----
-
-### 2026-02-27T06:02:40+00:00
-WhatsApp Texts Don’t Point To Anything Of Untoward Nature: Delhi High Court Grants Anticipatory Bail To Man In Ex-Lover’s Suicide Case
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ujjwal-v-state-govt-of-nct-of-delhi-2026dhc1623-whatsapp-texts-anticipatory-bail-ex-lover-suicide-case-1608847
-
-[Source Link](https://t.me/verdictumlegalupdates/25660)
-
----
-
-### 2026-02-27T05:32:19+00:00
-Supreme Court Collegium Recommends Appointment Of Chief Justice At Madras, Andhra Pradesh High Courts
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-collegium-recommends-appointment-of-chief-justice-at-madras-andhra-pradesh-high-courts-1608845
-
-[Source Link](https://t.me/verdictumlegalupdates/25659)
-
----
-
-### 2026-02-27T05:02:18+00:00
-Supreme Court Collegium Recommends Appointment Of Nine Advocates To Be Judges Of Patna High Court
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-collegium-recommends-appointment-of-nine-advocates-to-be-judges-of-patna-high-court-1608844
-
-[Source Link](https://t.me/verdictumlegalupdates/25658)
-
----
-
-### 2026-02-27T04:33:06+00:00
-"One Wife Free" Remark Not Misogynistic: Madras HC Quashes Proceedings Against Rajya Sabha MP C. Ve Shanmugan
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/c-ve-shanmugam-petitioner-v-the-tamil-nadu-state-commission-for-women-wp-crl-no-1418-of-202-mp-women-remarks-derogatory-1608808
-
-[Source Link](https://t.me/verdictumlegalupdates/25657)
 
 ---
 
