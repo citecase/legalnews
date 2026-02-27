@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-26T13:50:30+00:00*
+*Last Updated: 2026-02-27T04:38:11+00:00*
 
 ---
 
-### 2026-02-26T13:50:30+00:00
-MP Inbadurai Moves Madras High Court Over Alleged Delay In Registering FIR Against Minister KN Nehru Despite HC Order
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-inbadurai-contempt-petition-dvac-delay-fir-kn-nehru-524784
+### 2026-02-27T04:38:11+00:00
+Assistant Professor (Law) Vacancy At National Law School Of India University (NLSIU)
+https://www.livelaw.in/job-updates/assistant-professor-law-vacancy-at-national-law-school-of-india-university-524830
 
-[Read on Telegram](https://t.me/livelawindia/106016)
-
----
-### 2026-02-26T14:02:30+00:00
-Acts Disturbed 'Even Tempo Of Life': Allahabad High Court Upholds NSA Detention Of 3 Over 'Cattle Slaughter' On Navratri-Eid Eve
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-upholds-nsa-detention-cattle-slaughter-navratri-eid-eve-even-tempo-life-524787
-
-[Read on Telegram](https://t.me/livelawindia/106017)
+[Read on Telegram](https://t.me/livelawindia/106041)
 
 ---
-### 2026-02-26T14:05:10+00:00
-Supreme Court Dismisses ED Appeal Against Quashing Of Money Laundering Case Against Razorpay Over Illegal Loan App
-https://www.livelaw.in/top-stories/supreme-court-dismisses-ed-appeal-against-quashing-of-money-laundering-case-against-razorpay-over-illegal-loan-app-524789
+### 2026-02-27T04:40:11+00:00
+Dr. D.Y. Patil Law College, Pimpri To Organise 5th DYPLC National Moot Court Competition
+https://www.livelaw.in/lawschool/moot-courts/dr-dy-patil-law-college-pimpri-to-organise-5th-dyplc-national-moot-court-competition-524831
 
-[Read on Telegram](https://t.me/livelawindia/106018)
-
----
-### 2026-02-26T14:08:10+00:00
-2026 LiveLaw (SC) 202 |  M/S. ADISHAKTI DEVELOPERS VERSUS THE STATE OF MAHARASTRA & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-202-ms-adishakti-developers-versus-the-state-of-maharastra-ors-524790
-
-[Read on Telegram](https://t.me/livelawindia/106019)
+[Read on Telegram](https://t.me/livelawindia/106042)
 
 ---
-### 2026-02-26T14:17:20+00:00
-IBC Permits Parallel CIRP Against Debtor & Guarantor For Same Debt : Supreme Court
-https://www.livelaw.in/supreme-court/ibc-permits-parallel-cirp-against-debtor-guarantor-for-same-debt-supreme-court-524792
+### 2026-02-27T04:41:51+00:00
+Legal Officer Vacancy At Coal Controller's Organisation
+https://www.livelaw.in/job-updates/legal-officer-vacancy-at-coal-controllers-organisation-524833
 
-[Read on Telegram](https://t.me/livelawindia/106020)
-
----
-### 2026-02-26T14:19:00+00:00
-2026 LiveLaw (SC) 203  | ICICI BANK LIMITED VERSUS ERA INFRASTRUCTURE (INDIA) LIMITED (and connected matters)
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-203-icici-bank-limited-versus-era-infrastructure-india-limited-and-connected-matters-524793
-
-[Read on Telegram](https://t.me/livelawindia/106021)
+[Read on Telegram](https://t.me/livelawindia/106043)
 
 ---
-### 2026-02-26T14:27:40+00:00
-Deed Cannot Be Reinterpreted Based On Parties' Later Conduct When Terms Are Clear & Unambiguous: Supreme Court
-https://www.livelaw.in/supreme-court/deed-cannot-be-reinterpreted-based-on-parties-later-conduct-when-terms-are-clear-unambiguous-supreme-court-524795
+### 2026-02-27T04:47:51+00:00
+MP High Court Expedites Bangladeshi Woman's Trial But Declines Release Over Security Concerns Amid Current International Scenario
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-directs-expedited-trial-in-bangladeshi-womans-plea-against-detention-524812
 
-[Read on Telegram](https://t.me/livelawindia/106022)
-
----
-### 2026-02-26T14:29:00+00:00
-2026 LiveLaw (SC) 204 | THE GENERAL SECRETARY, VIVEKANANDA KENDRA VERSUS PRADEEP KUMAR AGARWALLA AND OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-204-the-general-secretary-vivekananda-kendra-versus-pradeep-kumar-agarwalla-and-others-524796
-
-[Read on Telegram](https://t.me/livelawindia/106023)
+[Read on Telegram](https://t.me/livelawindia/106044)
 
 ---
-### 2026-02-26T14:32:20+00:00
-Who Spoke First? Interpreting "Voluntarily Provided" Under Section 7(a) Of DPDP Act
-https://www.livelaw.in/articles/interpreting-voluntarily-provided-section7a-dpdp-act-524783
+### 2026-02-27T05:02:21+00:00
+Mental Healthcare Act Can't Be Used As Litigation Weapon: Bombay High Court Rejects Plea To Subject Father To Mental Examination
+https://www.livelaw.in/high-court/bombay-high-court/mental-healthcare-act-no-medical-examination-on-evidence-produced-by-adversary-524813
 
-[Read on Telegram](https://t.me/livelawindia/106024)
-
----
-### 2026-02-26T15:13:00+00:00
-Once Pension Is Credited To Bank Account, It Loses Statutory Protection & Can Be Recovered For Guarantor's Liability: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-once-pension-is-credited-to-bank-account-it-loses-statutory-protection-and-can-be-recovered-for-guarantors-liability-524686
-
-[Read on Telegram](https://t.me/livelawindia/106025)
+[Read on Telegram](https://t.me/livelawindia/106045)
 
 ---
-### 2026-02-26T15:58:35+00:00
-Manipur Violence | Supreme Court Expresses Disappointment Over Non-Payment Of Expenses To Justice Gita Mittal Committee
-https://www.livelaw.in/top-stories/manipur-violence-supreme-court-expresses-disappointment-over-non-payment-of-expenses-to-justice-gita-mittal-committee-524802
+### 2026-02-27T05:02:31+00:00
+All States/UTs Framed Rules To Implement Shariat Act? Supreme Court Seeks Report
+https://www.livelaw.in/top-stories/all-statesuts-framed-muslim-personal-law-shariat-act-rules-supreme-court-seeks-report-524841
 
-[Read on Telegram](https://t.me/livelawindia/106026)
-
----
-### 2026-02-26T16:02:55+00:00
-2026 LiveLaw (SC) 205 | Suhas Chakma v. Union of India & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-205-suhas-chakma-v-union-of-india-ors-524803
-
-[Read on Telegram](https://t.me/livelawindia/106027)
+[Read on Telegram](https://t.me/livelawindia/106046)
 
 ---
-### 2026-02-26T16:16:40+00:00
-S.469 CrPC | Limitation Period Starts From Date When Offender's Identity Is Known & Not From Receipt Of Complaint : Supreme Court
-https://www.livelaw.in/supreme-court/s469-crpc-limitation-period-starts-from-date-when-offenders-identity-is-known-not-from-receipt-of-complaint-supreme-court-524804
+### 2026-02-27T05:13:31+00:00
+SC Collegium Adopts New Policy To Ensure Incoming HC Chief Justices Are Available Before Incumbent's Retirement
+https://www.livelaw.in/top-stories/sc-collegium-adopts-new-policy-to-ensure-incoming-hc-chief-justices-are-available-before-incumbents-retirement-524845
 
-[Read on Telegram](https://t.me/livelawindia/106028)
-
----
-### 2026-02-26T16:19:20+00:00
-2026 LiveLaw (SC) 206  | THE STATE OF KERALA & ANR. Vs. M/s. PANACEA BIOTEC LTD. & ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-206-the-state-of-kerala-anr-vs-ms-panacea-biotec-ltd-anr-524805
-
-[Read on Telegram](https://t.me/livelawindia/106029)
+[Read on Telegram](https://t.me/livelawindia/106047)
 
 ---
-### 2026-02-26T16:21:20+00:00
-Supreme Court Directs Supply Of Chargesheets To Manipur Violence Victims, Free Legal Aid Lawyers For Family
-https://www.livelaw.in/top-stories/supreme-court-directs-supply-of-chargesheets-to-manipur-violence-victims-free-legal-aid-lawyers-for-family-524806
+### 2026-02-27T05:17:31+00:00
+Dying Declaration Lacking Medical Certification Unsafe For Conviction: Rajasthan High Court Acquits Man Booked For Setting Wife Ablaze
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-medical-endorsement-dying-declaration-wife-murder-case-524814
 
-[Read on Telegram](https://t.me/livelawindia/106030)
-
----
-### 2026-02-26T16:37:00+00:00
-Kerala High Court Reserves Order On 'Kerala Story 2' Movie Producer's Appeal Against Single Bench's Stay On Release
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-reserves-order-on-kerala-story-2-movie-producers-appeal-challenging-single-benchs-stay-on-release-524807
-
-[Read on Telegram](https://t.me/livelawindia/106031)
+[Read on Telegram](https://t.me/livelawindia/106048)
 
 ---
-### 2026-02-26T17:07:30+00:00
-Supreme Court Daily Round-Up : February 26, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-february-26-2026-524799
+### 2026-02-27T05:21:51+00:00
+'Private & Public Companies Must Be Treated Equally In Excise Licence Fee Exemptions': Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/state-cant-discriminate-between-private-public-companies-in-excise-fee-exemption-for-routine-management-changes-calcutta-high-court-524847
 
-[Read on Telegram](https://t.me/livelawindia/106032)
-
----
-### 2026-02-26T18:11:24+00:00
-NLU Odisha Organises Lecture Series On Judicial Journey And Corporate Law Practice
-https://www.livelaw.in/lawschool/news/nlu-odisha-organises-lecture-series-judicial-journey-corporate-law-practice-524809
-
-[Read on Telegram](https://t.me/livelawindia/106033)
+[Read on Telegram](https://t.me/livelawindia/106049)
 
 ---
-### 2026-02-27T02:12:01+00:00
-SC Collegium Recommends Justice S.A. Dharmadhikari As Madras High Court Chief Justice; Justice Lisa Gill For Andhra Pradesh HC
-https://www.livelaw.in/top-stories/sc-collegium-recommends-justice-sa-dharmadhikari-as-madras-high-court-chief-justice-justice-lisa-gill-for-andhra-pradesh-hc-524816
+### 2026-02-27T05:31:02+00:00
+Breaking | All Accused Including Arvind Kejriwal, Manish Sisodia Discharged In Liquor Policy Case, Delhi Court Raps CBI For Lapses
+https://www.livelaw.in/news-updates/arvind-kejriwal-discharged-liquor-policy-manish-sisodia-cbi-524848
 
-[Read on Telegram](https://t.me/livelawindia/106034)
+[Read on Telegram](https://t.me/livelawindia/106050)
 
 ---
-### 2026-02-27T02:20:01+00:00
-Supreme Court Collegium Approves Appointment Of Nine Advocates As Patna High Court Judges
-https://www.livelaw.in/top-stories/supreme-court-collegium-approves-appointment-of-nine-advocates-as-patna-high-court-judges-524817
+### 2026-02-27T05:32:21+00:00
+“Serious Allegations Made”: Madras High Court Seeks Details On ₹397 Crore Transformer Procurement During Senthil Balaji's Tenure
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-transformer-procurement-scam-details-called-for-524826
 
-[Read on Telegram](https://t.me/livelawindia/106035)
+[Read on Telegram](https://t.me/livelawindia/106051)
+
+---
+### 2026-02-27T05:36:43+00:00
+Kerala To Keralam: Decoding The Constitutional Process Of Renaming A State
+https://www.livelaw.in/articles/kerala-keralam-state-renaming-524849
+
+[Read on Telegram](https://t.me/livelawindia/106052)
+
+---
+### 2026-02-27T05:48:10+00:00
+Threat Of Suicide To Force Girl To Accompany Accused Constitutes Kidnapping: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/kidnapping-threatening-girl-to-accompany-else-suicide-524844
+
+[Read on Telegram](https://t.me/livelawindia/106053)
+
+---
+### 2026-02-27T05:49:30+00:00
+West Bengal SIR | Supreme Court Refuses To Entertain Objection To ECI's Training To Judicial Officers
+https://www.livelaw.in/top-stories/west-bengal-sir-supreme-court-refuses-to-entertain-objection-to-ecis-training-to-judicial-officers-524852
+
+[Read on Telegram](https://t.me/livelawindia/106054)
+
+---
+### 2026-02-27T06:02:50+00:00
+Karnataka High Court Directs North West Road Transport Corporation To Issue Guidelines On Transfer Of Employees In 3 Months
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-north-west-road-transport-corporation-transfer-guidelines-524851
+
+[Read on Telegram](https://t.me/livelawindia/106055)
+
+---
+### 2026-02-27T06:17:30+00:00
+469 CrPC | Limitation Commences From Date Of Knowledge Of Police Officer, Not Subsequent Date Of FIR: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/469-crpc-limitation-commences-from-date-of-knowledge-of-police-officer-not-subsequent-date-of-fir-delhi-high-court-524837
+
+[Read on Telegram](https://t.me/livelawindia/106056)
+
+---
+### 2026-02-27T06:32:40+00:00
+Absence Of Medical Officer's Opinion On Sexual Assault Not Fatal To Prosecution Under POCSO Act: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/pocso-sexual-assault-medical-officer-opinion-victim-testimony-reliable-524846
+
+[Read on Telegram](https://t.me/livelawindia/106057)
+
+---
+### 2026-02-27T06:47:20+00:00
+“Investigation Not Fair”: Madras High Court Orders CBI Probe Into Alleged Fake NOCs For Setting Up Petrol Pumps In State
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-fake-noc-petrol-pump-cbi-probe-ordered-524859
+
+[Read on Telegram](https://t.me/livelawindia/106058)
+
+---
+### 2026-02-27T06:52:40+00:00
+Delhi High Court Sets Aside CAT Order Quashing Disciplinary Proceedings Against Sameer Wankhede In Cordelia Cruise Ship Drugs Case
+https://www.livelaw.in/high-court/delhi-high-court/sameer-wankhede-disciplinary-action-revived-cat-order-set-aside-524861
+
+[Read on Telegram](https://t.me/livelawindia/106059)
+
+---
+### 2026-02-27T06:56:00+00:00
+Supreme Court Stays Karnataka HC Judgment Nullifying Election Of  Congress MLA SN Subbareddy
+https://www.livelaw.in/top-stories/supreme-court-stays-karnataka-hc-judgment-nullifying-election-of-congress-mla-sn-subbareddy-524863
+
+[Read on Telegram](https://t.me/livelawindia/106060)
 
 ---
