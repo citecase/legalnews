@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-26T16:02:40+00:00*
+*Last Updated: 2026-02-27T07:22:24+00:00*
+
+---
+
+### 2026-02-27T07:22:24+00:00
+Supreme Court Stays High Court Ruling Which Unified Indian Coast Guard Retirement Age To 60; Directs Union To Form Expert Panel
+https://www.verdictum.in/court-updates/supreme-court/stays-high-court-order-increasing-coast-guard-retirement-age-60-directs-union-form-expert-panel-1608861
+
+[Source Link](https://t.me/verdictumlegalupdates/25663)
+
+---
+
+### 2026-02-27T07:02:23+00:00
+Labour Courts Will Continue To Have Jurisdiction Till Tribunals Are Formed Under Industrial Relations Code, 2020: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/glastronix-llp-v-the-presidentgeneral-secretary-2026khc7984-labour-courts-jurisdiction-tribunals-industrial-relations-code-1608859
+
+[Source Link](https://t.me/verdictumlegalupdates/25662)
+
+---
+
+### 2026-02-27T06:33:01+00:00
+Not For Writ Court To Deal With Habeas Corpus Issue In Husband-Wife Dispute: Himachal Pradesh High Court
+https://www.verdictum.in/court-updates/high-courts/himachal-high-court/himanshu-dilip-kulkarni-v-state-of-himachal-pradesh-2026hhc4020-writ-court-habeas-corpus-husband-wife-dispute-1608854
+
+[Source Link](https://t.me/verdictumlegalupdates/25661)
+
+---
+
+### 2026-02-27T06:02:40+00:00
+WhatsApp Texts Don’t Point To Anything Of Untoward Nature: Delhi High Court Grants Anticipatory Bail To Man In Ex-Lover’s Suicide Case
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ujjwal-v-state-govt-of-nct-of-delhi-2026dhc1623-whatsapp-texts-anticipatory-bail-ex-lover-suicide-case-1608847
+
+[Source Link](https://t.me/verdictumlegalupdates/25660)
+
+---
+
+### 2026-02-27T05:32:19+00:00
+Supreme Court Collegium Recommends Appointment Of Chief Justice At Madras, Andhra Pradesh High Courts
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-collegium-recommends-appointment-of-chief-justice-at-madras-andhra-pradesh-high-courts-1608845
+
+[Source Link](https://t.me/verdictumlegalupdates/25659)
+
+---
+
+### 2026-02-27T05:02:18+00:00
+Supreme Court Collegium Recommends Appointment Of Nine Advocates To Be Judges Of Patna High Court
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-collegium-recommends-appointment-of-nine-advocates-to-be-judges-of-patna-high-court-1608844
+
+[Source Link](https://t.me/verdictumlegalupdates/25658)
+
+---
+
+### 2026-02-27T04:33:06+00:00
+"One Wife Free" Remark Not Misogynistic: Madras HC Quashes Proceedings Against Rajya Sabha MP C. Ve Shanmugan
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/c-ve-shanmugam-petitioner-v-the-tamil-nadu-state-commission-for-women-wp-crl-no-1418-of-202-mp-women-remarks-derogatory-1608808
+
+[Source Link](https://t.me/verdictumlegalupdates/25657)
 
 ---
 
@@ -105,62 +161,6 @@ Pune Porsche Accident: Supreme Court Notice To Maharashtra Govt On Bail Plea Fil
 https://www.verdictum.in/court-updates/supreme-court/pune-porsche-accident-supreme-court-notice-to-maharashtra-govt-on-bail-plea-filed-by-key-accuseds-father-1608770
 
 [Source Link](https://t.me/verdictumlegalupdates/25644)
-
----
-
-### 2026-02-26T10:02:42+00:00
-Supreme Court Directs Centre To Participate In Meeting For Creation Of Centralised Dashboard And Standardisation Of CCTVs In Police Stations.
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-directs-centre-to-participate-in-meeting-for-creation-of-centralised-dashboard-and-standardisation-of-cctvs-in-police-stations-1608762
-
-[Source Link](https://t.me/verdictumlegalupdates/25643)
-
----
-
-### 2026-02-26T09:32:41+00:00
-Supreme Court Issues Notice On Plea To Curb Fake Cases, PIL Purposes Mandate For Awareness Against Malicious Prosecution
-https://www.verdictum.in/court-updates/supreme-court/issues-notice-on-plea-to-curb-fake-cases-ashwini-upadhyay-1608778
-
-[Source Link](https://t.me/verdictumlegalupdates/25642)
-
----
-
-### 2026-02-26T09:03:00+00:00
-Crematorium Is One Place Everybody Needs: Supreme Court Directs Mediation In Isha Foundation Crematorium Dispute
-https://www.verdictum.in/court-updates/supreme-court/directs-mediation-isha-foundation-kalabhairavar-dhagana-mandapam-crematorium-dispute-1608771
-
-[Source Link](https://t.me/verdictumlegalupdates/25641)
-
----
-
-### 2026-02-26T08:33:21+00:00
-Mere Non-Traceability Of Document Does Not Make It Forged; Forgery Must Satisfy Section 464 IPC: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/vandana-jain-ors-v-state-of-uttar-pradesh-ors-2026-insc-192-464-1608760
-
-[Source Link](https://t.me/verdictumlegalupdates/25640)
-
----
-
-### 2026-02-26T08:03:20+00:00
-Mandatory Timeline For Public Auction Deposit Inviolable; Waiver Requires Consent Of All Parties: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/ms-adishakti-developers-v-the-state-of-maharastra-civil-appeal-nos-002545-002548-of-2026-auction-sale-deposit-15-days-1608754
-
-[Source Link](https://t.me/verdictumlegalupdates/25639)
-
----
-
-### 2026-02-26T07:32:59+00:00
-"Sharbat Rooh Afza" Classifiable As  Fruit Drink Or Processed Fruit Product Under UPVAT Act: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/ms-hamdard-wakf-laboratories-v-commissioner-of-commercial-tax-2026-insc-195-rooh-afza-sharbat-4-vat-upvat-1608750
-
-[Source Link](https://t.me/verdictumlegalupdates/25638)
-
----
-
-### 2026-02-26T07:03:17+00:00
-Compromise Or Arrangement U/S. 230 Companies Act 2013 Permissible During IBC Proceedings At Appropriate Stage: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/omkara-assets-reconstruction-private-limited-v-amit-chaturvedi-ors-2026-insc-189-1608744
-
-[Source Link](https://t.me/verdictumlegalupdates/25637)
 
 ---
 
