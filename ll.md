@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-27T04:38:11+00:00*
+*Last Updated: 2026-02-27T10:26:36+00:00*
 
 ---
 
-### 2026-02-27T04:38:11+00:00
-Assistant Professor (Law) Vacancy At National Law School Of India University (NLSIU)
-https://www.livelaw.in/job-updates/assistant-professor-law-vacancy-at-national-law-school-of-india-university-524830
+### 2026-02-27T10:26:36+00:00
+Pune Porsche Case | Supreme Court Grants Bail To Sassoon Hospital Doctor Accused Of Swapping Blood Samples
+https://www.livelaw.in/top-stories/pune-porsche-case-supreme-court-grants-bail-to-sassoon-hospital-doctor-accused-of-swapping-blood-samples-524895
 
-[Read on Telegram](https://t.me/livelawindia/106041)
-
----
-### 2026-02-27T04:40:11+00:00
-Dr. D.Y. Patil Law College, Pimpri To Organise 5th DYPLC National Moot Court Competition
-https://www.livelaw.in/lawschool/moot-courts/dr-dy-patil-law-college-pimpri-to-organise-5th-dyplc-national-moot-court-competition-524831
-
-[Read on Telegram](https://t.me/livelawindia/106042)
+[Read on Telegram](https://t.me/livelawindia/106077)
 
 ---
-### 2026-02-27T04:41:51+00:00
-Legal Officer Vacancy At Coal Controller's Organisation
-https://www.livelaw.in/job-updates/legal-officer-vacancy-at-coal-controllers-organisation-524833
+### 2026-02-27T10:28:16+00:00
+'Deplorable State Of Affairs': Kerala High Court Raps State After Tribal Man Killed In Elephant Attack At Aralam Farm
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-raps-state-after-fatal-elephant-attack-in-aralam-farm-524896
 
-[Read on Telegram](https://t.me/livelawindia/106043)
-
----
-### 2026-02-27T04:47:51+00:00
-MP High Court Expedites Bangladeshi Woman's Trial But Declines Release Over Security Concerns Amid Current International Scenario
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-directs-expedited-trial-in-bangladeshi-womans-plea-against-detention-524812
-
-[Read on Telegram](https://t.me/livelawindia/106044)
+[Read on Telegram](https://t.me/livelawindia/106078)
 
 ---
-### 2026-02-27T05:02:21+00:00
-Mental Healthcare Act Can't Be Used As Litigation Weapon: Bombay High Court Rejects Plea To Subject Father To Mental Examination
-https://www.livelaw.in/high-court/bombay-high-court/mental-healthcare-act-no-medical-examination-on-evidence-produced-by-adversary-524813
+### 2026-02-27T10:32:16+00:00
+Farmers Protest| Supreme Court Asks High-Powered Committee To Submit Final Recommendations In Sealed Cover
+https://www.livelaw.in/top-stories/farmers-protest-supreme-court-asks-high-powered-committee-to-submit-final-recommendations-in-sealed-cover-524900
 
-[Read on Telegram](https://t.me/livelawindia/106045)
-
----
-### 2026-02-27T05:02:31+00:00
-All States/UTs Framed Rules To Implement Shariat Act? Supreme Court Seeks Report
-https://www.livelaw.in/top-stories/all-statesuts-framed-muslim-personal-law-shariat-act-rules-supreme-court-seeks-report-524841
-
-[Read on Telegram](https://t.me/livelawindia/106046)
+[Read on Telegram](https://t.me/livelawindia/106079)
 
 ---
-### 2026-02-27T05:13:31+00:00
-SC Collegium Adopts New Policy To Ensure Incoming HC Chief Justices Are Available Before Incumbent's Retirement
-https://www.livelaw.in/top-stories/sc-collegium-adopts-new-policy-to-ensure-incoming-hc-chief-justices-are-available-before-incumbents-retirement-524845
+### 2026-02-27T10:41:16+00:00
+CBI, ED Probes Into Election Spending Must Not Become Tools To Influence Political Outcomes: Delhi Court In Liquor Policy Case
+https://www.livelaw.in/top-stories/cant-criminalise-election-spending-scrutiny-cbi-ed-political-outcomes-affected-liquor-policy-case-524903
 
-[Read on Telegram](https://t.me/livelawindia/106047)
-
----
-### 2026-02-27T05:17:31+00:00
-Dying Declaration Lacking Medical Certification Unsafe For Conviction: Rajasthan High Court Acquits Man Booked For Setting Wife Ablaze
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-medical-endorsement-dying-declaration-wife-murder-case-524814
-
-[Read on Telegram](https://t.me/livelawindia/106048)
+[Read on Telegram](https://t.me/livelawindia/106080)
 
 ---
-### 2026-02-27T05:21:51+00:00
-'Private & Public Companies Must Be Treated Equally In Excise Licence Fee Exemptions': Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/state-cant-discriminate-between-private-public-companies-in-excise-fee-exemption-for-routine-management-changes-calcutta-high-court-524847
+### 2026-02-27T10:49:36+00:00
+Breaking | Kerala High Court Lifts Stay On Release Of 'The Kerala Story 2' Movie; Stays Single Bench Order
+https://www.livelaw.in/top-stories/kerala-story-2-lifts-stay-on-release-division-bench-524905
 
-[Read on Telegram](https://t.me/livelawindia/106049)
-
----
-### 2026-02-27T05:31:02+00:00
-Breaking | All Accused Including Arvind Kejriwal, Manish Sisodia Discharged In Liquor Policy Case, Delhi Court Raps CBI For Lapses
-https://www.livelaw.in/news-updates/arvind-kejriwal-discharged-liquor-policy-manish-sisodia-cbi-524848
-
-[Read on Telegram](https://t.me/livelawindia/106050)
+[Read on Telegram](https://t.me/livelawindia/106081)
 
 ---
-### 2026-02-27T05:32:21+00:00
-“Serious Allegations Made”: Madras High Court Seeks Details On ₹397 Crore Transformer Procurement During Senthil Balaji's Tenure
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-transformer-procurement-scam-details-called-for-524826
+### 2026-02-27T11:40:19+00:00
+Revisit Coast Guard Rules On Different Retirement Ages : Supreme Court To Centre
+https://www.livelaw.in/top-stories/revisit-coast-guard-rules-on-different-retirement-ages-supreme-court-to-centre-524908
 
-[Read on Telegram](https://t.me/livelawindia/106051)
-
----
-### 2026-02-27T05:36:43+00:00
-Kerala To Keralam: Decoding The Constitutional Process Of Renaming A State
-https://www.livelaw.in/articles/kerala-keralam-state-renaming-524849
-
-[Read on Telegram](https://t.me/livelawindia/106052)
+[Read on Telegram](https://t.me/livelawindia/106082)
 
 ---
-### 2026-02-27T05:48:10+00:00
-Threat Of Suicide To Force Girl To Accompany Accused Constitutes Kidnapping: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/kidnapping-threatening-girl-to-accompany-else-suicide-524844
+### 2026-02-27T11:53:39+00:00
+VIT Chennai And The Hindu To Host Second Edition Of “Justice Unplugged 2026”
+https://www.livelaw.in/events/vit-chennai-and-the-hindu-to-host-justice-unplugged-2026-524909
 
-[Read on Telegram](https://t.me/livelawindia/106053)
-
----
-### 2026-02-27T05:49:30+00:00
-West Bengal SIR | Supreme Court Refuses To Entertain Objection To ECI's Training To Judicial Officers
-https://www.livelaw.in/top-stories/west-bengal-sir-supreme-court-refuses-to-entertain-objection-to-ecis-training-to-judicial-officers-524852
-
-[Read on Telegram](https://t.me/livelawindia/106054)
+[Read on Telegram](https://t.me/livelawindia/106083)
 
 ---
-### 2026-02-27T06:02:50+00:00
-Karnataka High Court Directs North West Road Transport Corporation To Issue Guidelines On Transfer Of Employees In 3 Months
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-north-west-road-transport-corporation-transfer-guidelines-524851
+### 2026-02-27T11:55:39+00:00
+Person Not Christian Just Because There Are Paintings Of Holy Cross, Statue Of Lord Jesus In His House: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-christian-holy-cross-painting-lord-jesus-statue-524910
 
-[Read on Telegram](https://t.me/livelawindia/106055)
-
----
-### 2026-02-27T06:17:30+00:00
-469 CrPC | Limitation Commences From Date Of Knowledge Of Police Officer, Not Subsequent Date Of FIR: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/469-crpc-limitation-commences-from-date-of-knowledge-of-police-officer-not-subsequent-date-of-fir-delhi-high-court-524837
-
-[Read on Telegram](https://t.me/livelawindia/106056)
+[Read on Telegram](https://t.me/livelawindia/106084)
 
 ---
-### 2026-02-27T06:32:40+00:00
-Absence Of Medical Officer's Opinion On Sexual Assault Not Fatal To Prosecution Under POCSO Act: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/pocso-sexual-assault-medical-officer-opinion-victim-testimony-reliable-524846
+### 2026-02-27T11:59:19+00:00
+PIL In Bombay High Court Seeks Structural Safety Audit Of All Metro Lines In Mumbai After Slab Collapse Accident
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-structural-safety-audit-metro-lines-pil-524912
 
-[Read on Telegram](https://t.me/livelawindia/106057)
-
----
-### 2026-02-27T06:47:20+00:00
-“Investigation Not Fair”: Madras High Court Orders CBI Probe Into Alleged Fake NOCs For Setting Up Petrol Pumps In State
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-fake-noc-petrol-pump-cbi-probe-ordered-524859
-
-[Read on Telegram](https://t.me/livelawindia/106058)
+[Read on Telegram](https://t.me/livelawindia/106085)
 
 ---
-### 2026-02-27T06:52:40+00:00
-Delhi High Court Sets Aside CAT Order Quashing Disciplinary Proceedings Against Sameer Wankhede In Cordelia Cruise Ship Drugs Case
-https://www.livelaw.in/high-court/delhi-high-court/sameer-wankhede-disciplinary-action-revived-cat-order-set-aside-524861
+### 2026-02-27T12:09:39+00:00
+Mere Commercial Gain By Private Party Under Govt Policy Can't Trigger Prosecution Sans Proof Of Corruption: Delhi Court In Liquor Policy Case
+https://www.livelaw.in/top-stories/liqour-policy-private-party-profit-not-illegal-sans-corruption-arvind-kejriwal-524921
 
-[Read on Telegram](https://t.me/livelawindia/106059)
+[Read on Telegram](https://t.me/livelawindia/106086)
 
 ---
-### 2026-02-27T06:56:00+00:00
-Supreme Court Stays Karnataka HC Judgment Nullifying Election Of  Congress MLA SN Subbareddy
-https://www.livelaw.in/top-stories/supreme-court-stays-karnataka-hc-judgment-nullifying-election-of-congress-mla-sn-subbareddy-524863
+### 2026-02-27T12:17:39+00:00
+Challenge To 1985 Wakf Property Notification Fails After 33 Years: J&K&L High Court Says Only Aggrieved Persons Can Maintain Writ
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-challenge-to-1985-wakf-property-notification-sro-320-fails-after-33-years-court-says-only-aggrieved-persons-can-maintain-writ-524911
 
-[Read on Telegram](https://t.me/livelawindia/106060)
+[Read on Telegram](https://t.me/livelawindia/106087)
+
+---
+### 2026-02-27T12:19:39+00:00
+Chinnaswamy Stadium Stampede: Karnataka Crowd Control Bill 2025 Referred For Consultation, High Court Closes Suo-Motu PIL
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-crowd-control-bill-chinnaswamy-stadium-stampede-524922
+
+[Read on Telegram](https://t.me/livelawindia/106088)
+
+---
+### 2026-02-27T12:23:39+00:00
+CBI Moves Delhi High Court Against Discharge Of Arvind Kejriwal, Manish Sisodia & Others In Liquor Policy Case
+https://www.livelaw.in/high-court/delhi-high-court/cbi-appeal-against-arvind-kejriwal-manish-sisodia-discharge-liquor-policy-sca-524924
+
+[Read on Telegram](https://t.me/livelawindia/106089)
+
+---
+### 2026-02-27T12:29:19+00:00
+S. 183 BNSS | Direction For Re-Recording Of Victim's Statement Can Be Given Only In 'Exceptional Circumstances': Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-section-183-bnss-victim-statement-re-recording-524926
+
+[Read on Telegram](https://t.me/livelawindia/106090)
+
+---
+### 2026-02-27T12:33:49+00:00
+CBFC Viewed Film In Full, Certification Can't Be Faulted On Basis Of Teaser Alone: High Court On Row Over 'Kerala Story 2'
+https://www.livelaw.in/high-court/kerala-high-court/kerala-story-2-cbfc-certificate-presumption-cant-stay-film-on-teaser-524927
+
+[Read on Telegram](https://t.me/livelawindia/106091)
+
+---
+### 2026-02-27T12:36:49+00:00
+2017 Actress Assault Case: Kerala Govt Moves High Court Against Acquittal Of Actor Dileep, Three Others
+https://www.livelaw.in/high-court/kerala-high-court/2017-actress-assault-case-state-appeal-against-dileep-acquittal-524929
+
+[Read on Telegram](https://t.me/livelawindia/106092)
+
+---
+### 2026-02-27T12:41:09+00:00
+Actor Vijay's Wife Moves Family Court Seeking Divorce
+https://www.livelaw.in/news-updates/actor-vijay-wife-divorce-petition-adultery-524930
+
+[Read on Telegram](https://t.me/livelawindia/106093)
+
+---
+### 2026-02-27T12:46:49+00:00
+"Filed Out Of Vendetta" : Supreme Court Dismisses Ex- Judicial Officer's Plea For FIR Against HC Judges Over His Compulsory Retirement
+https://www.livelaw.in/top-stories/filed-out-of-vendetta-supreme-court-dismisses-ex-judicial-officers-plea-for-fir-against-hc-judges-over-his-compulsory-retirement-524932
+
+[Read on Telegram](https://t.me/livelawindia/106094)
+
+---
+### 2026-02-27T12:54:49+00:00
+Allahabad HC Grants Interim Relief To Swami Avimukteshwaranand In POCSO Case; Reserves Verdict On Anticipatory Bail Plea
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-interim-relief-swami-avimukteshwaranand-pocso-reserves-verdict-anticipatory-bail-plea-524934
+
+[Read on Telegram](https://t.me/livelawindia/106095)
+
+---
+### 2026-02-27T13:07:49+00:00
+'Rigour Of Law Applies To All': Delhi High Court Rejects Centre's Bid To Revive Writ Dismissed Thrice For Non-Prosecution
+https://www.livelaw.in/high-court/delhi-high-court/rigour-of-law-applies-to-all-delhi-high-court-rejects-centres-bid-to-revive-writ-dismissed-thrice-for-non-prosecution-524913
+
+[Read on Telegram](https://t.me/livelawindia/106096)
 
 ---
