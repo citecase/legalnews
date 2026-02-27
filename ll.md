@@ -1,86 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-27T10:26:36+00:00*
+*Last Updated: 2026-02-27T12:19:39+00:00*
 
 ---
 
-### 2026-02-27T10:26:36+00:00
-Pune Porsche Case | Supreme Court Grants Bail To Sassoon Hospital Doctor Accused Of Swapping Blood Samples
-https://www.livelaw.in/top-stories/pune-porsche-case-supreme-court-grants-bail-to-sassoon-hospital-doctor-accused-of-swapping-blood-samples-524895
-
-[Read on Telegram](https://t.me/livelawindia/106077)
-
----
-### 2026-02-27T10:28:16+00:00
-'Deplorable State Of Affairs': Kerala High Court Raps State After Tribal Man Killed In Elephant Attack At Aralam Farm
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-raps-state-after-fatal-elephant-attack-in-aralam-farm-524896
-
-[Read on Telegram](https://t.me/livelawindia/106078)
-
----
-### 2026-02-27T10:32:16+00:00
-Farmers Protest| Supreme Court Asks High-Powered Committee To Submit Final Recommendations In Sealed Cover
-https://www.livelaw.in/top-stories/farmers-protest-supreme-court-asks-high-powered-committee-to-submit-final-recommendations-in-sealed-cover-524900
-
-[Read on Telegram](https://t.me/livelawindia/106079)
-
----
-### 2026-02-27T10:41:16+00:00
-CBI, ED Probes Into Election Spending Must Not Become Tools To Influence Political Outcomes: Delhi Court In Liquor Policy Case
-https://www.livelaw.in/top-stories/cant-criminalise-election-spending-scrutiny-cbi-ed-political-outcomes-affected-liquor-policy-case-524903
-
-[Read on Telegram](https://t.me/livelawindia/106080)
-
----
-### 2026-02-27T10:49:36+00:00
-Breaking | Kerala High Court Lifts Stay On Release Of 'The Kerala Story 2' Movie; Stays Single Bench Order
-https://www.livelaw.in/top-stories/kerala-story-2-lifts-stay-on-release-division-bench-524905
-
-[Read on Telegram](https://t.me/livelawindia/106081)
-
----
-### 2026-02-27T11:40:19+00:00
-Revisit Coast Guard Rules On Different Retirement Ages : Supreme Court To Centre
-https://www.livelaw.in/top-stories/revisit-coast-guard-rules-on-different-retirement-ages-supreme-court-to-centre-524908
-
-[Read on Telegram](https://t.me/livelawindia/106082)
-
----
-### 2026-02-27T11:53:39+00:00
-VIT Chennai And The Hindu To Host Second Edition Of “Justice Unplugged 2026”
-https://www.livelaw.in/events/vit-chennai-and-the-hindu-to-host-justice-unplugged-2026-524909
-
-[Read on Telegram](https://t.me/livelawindia/106083)
-
----
-### 2026-02-27T11:55:39+00:00
-Person Not Christian Just Because There Are Paintings Of Holy Cross, Statue Of Lord Jesus In His House: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-christian-holy-cross-painting-lord-jesus-statue-524910
-
-[Read on Telegram](https://t.me/livelawindia/106084)
-
----
-### 2026-02-27T11:59:19+00:00
-PIL In Bombay High Court Seeks Structural Safety Audit Of All Metro Lines In Mumbai After Slab Collapse Accident
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-structural-safety-audit-metro-lines-pil-524912
-
-[Read on Telegram](https://t.me/livelawindia/106085)
-
----
-### 2026-02-27T12:09:39+00:00
-Mere Commercial Gain By Private Party Under Govt Policy Can't Trigger Prosecution Sans Proof Of Corruption: Delhi Court In Liquor Policy Case
-https://www.livelaw.in/top-stories/liqour-policy-private-party-profit-not-illegal-sans-corruption-arvind-kejriwal-524921
-
-[Read on Telegram](https://t.me/livelawindia/106086)
-
----
-### 2026-02-27T12:17:39+00:00
-Challenge To 1985 Wakf Property Notification Fails After 33 Years: J&K&L High Court Says Only Aggrieved Persons Can Maintain Writ
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-challenge-to-1985-wakf-property-notification-sro-320-fails-after-33-years-court-says-only-aggrieved-persons-can-maintain-writ-524911
-
-[Read on Telegram](https://t.me/livelawindia/106087)
-
----
 ### 2026-02-27T12:19:39+00:00
 Chinnaswamy Stadium Stampede: Karnataka Crowd Control Bill 2025 Referred For Consultation, High Court Closes Suo-Motu PIL
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-crowd-control-bill-chinnaswamy-stadium-stampede-524922
@@ -142,5 +65,82 @@ https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-inte
 https://www.livelaw.in/high-court/delhi-high-court/rigour-of-law-applies-to-all-delhi-high-court-rejects-centres-bid-to-revive-writ-dismissed-thrice-for-non-prosecution-524913
 
 [Read on Telegram](https://t.me/livelawindia/106096)
+
+---
+### 2026-02-27T13:21:29+00:00
+Plea In Supreme Court Challenges Old NCERT Book Remark 'Judgments Tend To View Slumdwellers As Encroachers'
+https://www.livelaw.in/top-stories/supreme-court-former-ncert-member-plea-against-selective-narrative-old-ncert-social-science-textbook-role-of-judiciary-slum-dwellers-encroachers-524936
+
+[Read on Telegram](https://t.me/livelawindia/106097)
+
+---
+### 2026-02-27T13:43:19+00:00
+Jharkhand High Court Issues Directions For Bio-Medical Waste Management; Says Lax Enforcement Threatens Public Health & Violates Article 21
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-biomedical-waste-disposal-524915
+
+[Read on Telegram](https://t.me/livelawindia/106098)
+
+---
+### 2026-02-27T13:57:39+00:00
+Bombay HC Grants ₹50 Lakh COVID Compensation To MSRTC Supervisor's Widow; Says Field Staff Faced Same Risk As Drivers During Pandemic
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-supervisory-staff-compensation-524916
+
+[Read on Telegram](https://t.me/livelawindia/106099)
+
+---
+### 2026-02-27T14:17:19+00:00
+Supreme Court Reprimands Advocate Who Filed Petition Seeking FIR Against PM & HM For Enacting CAA
+https://www.livelaw.in/top-stories/supreme-court-reprimands-advocate-who-filed-petition-seeking-fir-against-pm-hm-for-enacting-caa-524941
+
+[Read on Telegram](https://t.me/livelawindia/106100)
+
+---
+### 2026-02-27T15:12:49+00:00
+J&K&L High Court Sets Aside CAT Order Granting Sanction For Foreign Job; Says Taking Overseas Assignment Without Prior Permission Is Misconduct
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-no-iota-of-doubt-taking-up-foreign-job-without-prior-sanction-violates-csr-leave-conduct-rules-tribunal-cannot-supplant-employers-discretion-524917
+
+[Read on Telegram](https://t.me/livelawindia/106101)
+
+---
+### 2026-02-27T15:50:00+00:00
+More Women Joining Workforce To Become Economically Independent, State Cannot Deny Maternity Benefits: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/more-women-joining-workforce-to-become-economically-independent-state-cannot-deny-maternity-benefits-bombay-high-court-524947
+
+[Read on Telegram](https://t.me/livelawindia/106102)
+
+---
+### 2026-02-27T15:51:20+00:00
+2026 LiveLaw (SC) 207 | Torrent Power Limited v. Ashish Arjunkumar Rathi
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-207-torrent-power-limited-v-ashish-arjunkumar-rathi-524950
+
+[Read on Telegram](https://t.me/livelawindia/106103)
+
+---
+### 2026-02-27T15:57:20+00:00
+Wife Pursuing S.498A IPC Case Against Husband In India After Accepting Divorce Settlement In US Is 'Abuse Of Process': Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/wife-pursuing-s498a-ipc-case-against-husband-in-india-after-accepting-divorce-settlement-in-us-is-abuse-of-process-delhi-high-court-524949
+
+[Read on Telegram](https://t.me/livelawindia/106104)
+
+---
+### 2026-02-27T16:07:20+00:00
+Subsequent Denial Of Bail To Co-Accused Not 'Supervening Circumstance' To Cancel Bail: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/subsequent-denial-of-bail-to-co-accused-not-supervening-circumstance-to-cancel-bail-delhi-high-court-524948
+
+[Read on Telegram](https://t.me/livelawindia/106105)
+
+---
+### 2026-02-27T16:18:00+00:00
+“What Is Casual For Srinagar DM Is Causality To Fundamental Rights”: J&K&L High Court Quashes Arbitrary Detention, Orders Immediate Release
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-what-is-casual-for-the-dm-srinagar-is-a-causality-to-fundamental-rightscourt-quashes-arbitrary-psa-detention-orders-immediate-release-524952
+
+[Read on Telegram](https://t.me/livelawindia/106106)
+
+---
+### 2026-02-27T17:07:54+00:00
+Supreme Court Daily Round-Up : February 27, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-february-27-2026-524943
+
+[Read on Telegram](https://t.me/livelawindia/106107)
 
 ---
