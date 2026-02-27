@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-26T12:49:18+00:00*
+*Last Updated: 2026-02-26T13:50:30+00:00*
 
 ---
 
-### 2026-02-26T12:49:18+00:00
-AI Summit Protest: Delhi Court Remands Three Youth Congress Activists Arrested From Himachal Pradesh To 3 Days Of Police Custody
-https://www.livelaw.in/news-updates/ai-summit-protest-accused-congress-youth-police-custody-524771
-
-[Read on Telegram](https://t.me/livelawindia/106014)
-
----
-### 2026-02-26T13:00:58+00:00
-Registry's Functioning Requires Deeper Probe; Some Officials Think They Last In SC More Than Judges & Can Do Whatever : CJI
-https://www.livelaw.in/top-stories/registrys-functioning-requires-deeper-probe-cji-surya-kant-supreme-court-524774
-
-[Read on Telegram](https://t.me/livelawindia/106015)
-
----
 ### 2026-02-26T13:50:30+00:00
 MP Inbadurai Moves Madras High Court Over Alleged Delay In Registering FIR Against Minister KN Nehru Despite HC Order
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-inbadurai-contempt-petition-dvac-delay-fir-kn-nehru-524784
@@ -142,5 +128,19 @@ NLU Odisha Organises Lecture Series On Judicial Journey And Corporate Law Practi
 https://www.livelaw.in/lawschool/news/nlu-odisha-organises-lecture-series-judicial-journey-corporate-law-practice-524809
 
 [Read on Telegram](https://t.me/livelawindia/106033)
+
+---
+### 2026-02-27T02:12:01+00:00
+SC Collegium Recommends Justice S.A. Dharmadhikari As Madras High Court Chief Justice; Justice Lisa Gill For Andhra Pradesh HC
+https://www.livelaw.in/top-stories/sc-collegium-recommends-justice-sa-dharmadhikari-as-madras-high-court-chief-justice-justice-lisa-gill-for-andhra-pradesh-hc-524816
+
+[Read on Telegram](https://t.me/livelawindia/106034)
+
+---
+### 2026-02-27T02:20:01+00:00
+Supreme Court Collegium Approves Appointment Of Nine Advocates As Patna High Court Judges
+https://www.livelaw.in/top-stories/supreme-court-collegium-approves-appointment-of-nine-advocates-as-patna-high-court-judges-524817
+
+[Read on Telegram](https://t.me/livelawindia/106035)
 
 ---
