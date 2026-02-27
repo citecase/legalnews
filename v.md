@@ -1,6 +1,110 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-27T07:22:24+00:00*
+*Last Updated: 2026-02-27T13:32:48+00:00*
+
+---
+
+### 2026-02-27T13:32:48+00:00
+Supreme Court Granted Bail To Doctor Arrested For Allegedly Tampering Blood Samples In 2024 Pune Porsche Accident Case
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-granted-bail-to-doctor-arrested-for-allegedly-tampering-blood-samples-in-2024-pune-porsche-accident-case-1608909
+
+[Source Link](https://t.me/verdictumlegalupdates/25676)
+
+---
+
+### 2026-02-27T13:02:46+00:00
+Parliament Not Bound By Central Govt's Undertaking Before Court, It Has Absolute Prerogative To Enact Law: Apex Court
+https://www.verdictum.in/court-updates/supreme-court/parliament-not-bound-by-central-govts-undertaking-before-court-it-has-absolute-prerogative-to-enact-law-apex-court-1608907
+
+[Source Link](https://t.me/verdictumlegalupdates/25675)
+
+---
+
+### 2026-02-27T12:32:45+00:00
+Nitish Katara Murder Case: Supreme Court Grants Furlough To Vikas Yadav Till March 7 For Holi
+https://www.verdictum.in/court-updates/supreme-court/nitish-katara-murder-case-supreme-court-grants-furlough-to-vikas-yadav-till-march-7-for-holi-1608902
+
+[Source Link](https://t.me/verdictumlegalupdates/25674)
+
+---
+
+### 2026-02-27T12:02:24+00:00
+IBC| Creditors Can Initiate CIRP Against Both Borrower And Guarantor For Same Debt: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/icici-bank-limited-v-era-infrastructure-india-2026-insc-201-cirp-borrower-guarantor-insolvency-1608901
+
+[Source Link](https://t.me/verdictumlegalupdates/25673)
+
+---
+
+### 2026-02-27T11:16:43+00:00
+Shocked At The Manner In Which FIR Was Registered: Supreme Court Quashes FIR Against Former Regional Head Of Zee Rajasthan In Extortion Case
+https://www.verdictum.in/court-updates/supreme-court/shocked-at-the-manner-in-which-fir-was-registered-supreme-court-quashes-fir-against-former-regional-head-of-zee-rajasthan-in-extortion-case-1608900
+
+[Source Link](https://t.me/verdictumlegalupdates/25672)
+
+---
+
+### 2026-02-27T10:47:22+00:00
+Breaking: Division Bench Of Kerala High Court Stays Order Against Release Of Movie 'Kerala Story 2: Goes Beyond'
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/kerala-story-2-goes-beyond-stay-late-night-hearing-1608898
+
+[Source Link](https://t.me/verdictumlegalupdates/25671)
+
+---
+
+### 2026-02-27T10:32:20+00:00
+Wards Of Battle Casualty Soldier Not Entitled To Priority-II If Officer Continued In Service: Delhi High Court Upholds 2018 Policy
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/master-athrava-tripathi-v-union-of-india-2026dhc1663-delhi-university-cw-admission-army-soldier-1608897
+
+[Source Link](https://t.me/verdictumlegalupdates/25670)
+
+---
+
+### 2026-02-27T09:43:09+00:00
+Supreme Court Issues Nationwide Directions For Open Prisons; Flags ‘Rank Apathy’ By States In Tackling Overcrowding Crisis
+https://www.verdictum.in/court-updates/supreme-court/suhas-chakma-v-union-of-india-2026-insc-198-open-prisons-dignity-guidelines-mechanism-1608891
+
+[Source Link](https://t.me/verdictumlegalupdates/25669)
+
+---
+
+### 2026-02-27T09:12:28+00:00
+Courts Aren’t Chartered Accountants: Supreme Court Stays Karnataka High Court's Ruling Setting Aside Congress MLA SN Subbareddy's Election
+https://www.verdictum.in/court-updates/supreme-court/stays-high-court-ruling-setting-aside-congress-mla-sn-subbareddy-election-1608894
+
+[Source Link](https://t.me/verdictumlegalupdates/25668)
+
+---
+
+### 2026-02-27T09:04:08+00:00
+When Plain Text Of Lease Deed Reveals Intention, Purposive Or Ex-Post Facto Construction Unnecessary: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/the-general-secretary-vivekananda-kendra-v-pradeep-kumar-agarwalla-and-others-2026-insc-199-1608886
+
+[Source Link](https://t.me/verdictumlegalupdates/25667)
+
+---
+
+### 2026-02-27T08:43:06+00:00
+When Plain Text Of Lease Deed Reveals Intention, Purposive Or Ex-Post Facto Construction Unnecessary: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/the-general-secretary-vivekananda-kendra-v-pradeep-kumar-agarwalla-and-others-2026-insc-199-1608886
+
+[Source Link](https://t.me/verdictumlegalupdates/25666)
+
+---
+
+### 2026-02-27T08:13:05+00:00
+Public Servant Complaints Not Hit By Section 202 CrPC Enquiry Requirement: Supreme Court Denies Relief To Pharma Company In Drug Misbranding Case
+https://www.verdictum.in/court-updates/supreme-court/the-state-of-kerala-anr-v-ms-panacea-biotec-ltd-anr-connected-appeals-2026-insc-200-1608865
+
+[Source Link](https://t.me/verdictumlegalupdates/25665)
+
+---
+
+### 2026-02-27T07:42:48+00:00
+West Bengal SIR| Judicial Officers Will Not Be Influenced: Supreme Court Refuses To Entertain Challenge To ECI Training Module For Judges For Voter List Revision
+https://www.verdictum.in/court-updates/supreme-court/west-bengal-sir-refuses-to-entertain-challenge-eci-training-module-judges-voter-list-revision-1608870
+
+[Source Link](https://t.me/verdictumlegalupdates/25664)
 
 ---
 
@@ -57,110 +161,6 @@ https://www.verdictum.in/court-updates/supreme-court/supreme-court-collegium-rec
 https://www.verdictum.in/court-updates/high-courts/madras-high-court/c-ve-shanmugam-petitioner-v-the-tamil-nadu-state-commission-for-women-wp-crl-no-1418-of-202-mp-women-remarks-derogatory-1608808
 
 [Source Link](https://t.me/verdictumlegalupdates/25657)
-
----
-
-### 2026-02-26T16:02:40+00:00
-Bihar Public Service Commission (BPSC) Invites Applications For The Post Of Civil Judge (Junior Division)
-https://www.verdictum.in/job-updates/bihar-public-service-commission-1608811
-
-[Source Link](https://t.me/verdictumlegalupdates/25656)
-
----
-
-### 2026-02-26T15:32:18+00:00
-Married Daughter Not Excluded From Entitlement To Ex-Gratia & Leave Encashment If She Is Sole Legal Heir: Madhya Pradesh High Court
-https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/rasanna-namdev-soni-v-the-high-court-of-madhya-pradesh-2026mphc-jbp14293-married-daughter-ex-gratia-leave-encashment-1608814
-
-[Source Link](https://t.me/verdictumlegalupdates/25655)
-
----
-
-### 2026-02-26T15:02:17+00:00
-Stamp Duty Is To Be Determined With Reference To Date of Execution Of Document & Not On Date When It Is Impounded: Madhya Pradesh High Court
-https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/ms-jai-prakash-associated-pvt-ltd-v-the-state-of-madhya-pradesh-2026mphc-jbp15508-stamp-duty-date-execution-document-1608810
-
-[Source Link](https://t.me/verdictumlegalupdates/25654)
-
----
-
-### 2026-02-26T14:32:56+00:00
-“High Time Citizens Of Delhi Are No Longer Taken For Granted”: Delhi High Court Denies Bail To Contractors In 14-Foot ‘Death Trap’ Excavation Case
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/himanshu-gupta-v-the-state-of-nct-of-delhi-2026dhc1693-motorcyclist-road-accident-delhi-jal-board-1608809
-
-[Source Link](https://t.me/verdictumlegalupdates/25653)
-
----
-
-### 2026-02-26T14:03:05+00:00
-"Unfathomable How CBI Treated Allotment Illegal": Punjab & Haryana High Court Discharges Haryana Ex-CM Bhupinder Hooda In Land Allotment Case
-https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/the-associated-journals-limitedbhupinder-singh-hooda-v-central-bureau-of-investigation-2026phhc030777-1608818
-
-[Source Link](https://t.me/verdictumlegalupdates/25652)
-
----
-
-### 2026-02-26T13:33:03+00:00
-Compromise Or Settlement Between Deceased's Family & Accused Not A Ground To Quash Death By Negligence Case: Meghalaya High Court
-https://www.verdictum.in/court-updates/high-courts/meghalaya-high-court/flamingstar-sohkhlet-v-state-of-meghalaya-2026mlhc69-motor-accident-death-compromise-1608807
-
-[Source Link](https://t.me/verdictumlegalupdates/25651)
-
----
-
-### 2026-02-26T13:03:02+00:00
-Registering Authority Cannot Travel Beyond Sections 34 & 35 Of Registration Act To Refuse Registration Of Documents: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/siddharth-goel-v-the-sub-registrar-class-ii-2026bhc-as9479-db-registration-act-1608806
-
-[Source Link](https://t.me/verdictumlegalupdates/25650)
-
----
-
-### 2026-02-26T12:33:00+00:00
-Public Safety Overrides Tenancy Rights; Tenants Can’t Obstruct Municipal Authorities From Demolishing Building Declared Dangerous: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/mukteshwar-mahadev-mukteshwari-durga-dharmarth-seva-samiti-v-state-of-up-public-safety-tenancy-rights-municipal-authorities-1608802
-
-[Source Link](https://t.me/verdictumlegalupdates/25649)
-
----
-
-### 2026-02-26T12:02:38+00:00
-Misconceptions For Judiciary Will Travel From Teacher To Pupil And To Entire Society: Supreme Court Criticizes NCERT For 'Egregious Silence' On Judicial Reforms
-https://www.verdictum.in/court-updates/supreme-court/criticizes-ncert-class-viii-book-for-egregious-silence-judicial-reforms-1608800
-
-[Source Link](https://t.me/verdictumlegalupdates/25648)
-
----
-
-### 2026-02-26T11:37:42+00:00
-Impleadment Without Privity Of Contract Or Arbitration Agreement Unsustainable: Delhi High Court Removes IIM Jammu From Arbitration Proceedings
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ms-ramacivil-india-construction-pvt-ltd-v-central-public-works-department-2026dhc1579-impleadment-arbitration-iim-jammu-1608786
-
-[Source Link](https://t.me/verdictumlegalupdates/25647)
-
----
-
-### 2026-02-26T11:33:00+00:00
-Impleadment Without Privity Of Contract Or Arbitration Agreement Unsustainable: Delhi High Court Removes IIM Jammu From Arbitration Proceedings
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ms-ramacivil-india-construction-pvt-ltd-v-central-public-works-department-2026dhc1579-impleadment-arbitration-iim-jammu-1608786
-
-[Source Link](https://t.me/verdictumlegalupdates/25646)
-
----
-
-### 2026-02-26T11:02:42+00:00
-Supreme Court To Form Expert Committee On Aravalli Hills And Ranges Issue; Extends Stay On Mining Activities
-https://www.verdictum.in/court-updates/supreme-court/form-expert-committee-aravalli-hills-ranges-issue-extends-stay-on-mining-activities-1608788
-
-[Source Link](https://t.me/verdictumlegalupdates/25645)
-
----
-
-### 2026-02-26T10:33:14+00:00
-Pune Porsche Accident: Supreme Court Notice To Maharashtra Govt On Bail Plea Filed By Key Accused's Father
-https://www.verdictum.in/court-updates/supreme-court/pune-porsche-accident-supreme-court-notice-to-maharashtra-govt-on-bail-plea-filed-by-key-accuseds-father-1608770
-
-[Source Link](https://t.me/verdictumlegalupdates/25644)
 
 ---
 
