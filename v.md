@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-27T16:02:32+00:00*
+*Last Updated: 2026-02-28T06:52:19+00:00*
+
+---
+
+### 2026-02-28T06:52:19+00:00
+Resolution Professional’s Actions Based On CoC’s Instructions Cannot Be Termed 'Material Irregularity' U/S 61(3)(ii) IBC: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/torrent-power-limited-v-ashish-arjunkumar-rathi-ors-2026-insc-206-irregularity-1608946
+
+[Source Link](https://t.me/verdictumlegalupdates/25685)
+
+---
+
+### 2026-02-28T06:02:58+00:00
+Arbitral Tribunal Cannot Bypass Contractual Bar On Pendente Lite Interest By Calling It Compensation; Post-Award Interest Statutory: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/cause-title-union-of-india-ors-v-larsen-and-tubro-limited-2026-insc-203-arbitration-post-award-pendente-lite-1608940
+
+[Source Link](https://t.me/verdictumlegalupdates/25684)
+
+---
+
+### 2026-02-28T05:12:56+00:00
+No Remand When Offences Are Bailable: Karnataka High Court Grants Relief To Man Accused Of Kidnapping Wife
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/murali-bn-v-state-of-karnataka-2026khc11283-no-remand-offences-bailable-man-kidnapping-wife-1608935
+
+[Source Link](https://t.me/verdictumlegalupdates/25683)
+
+---
+
+### 2026-02-28T04:33:05+00:00
+No Intelligible Differentia Between Public And Private Limited Companies: Calcutta High Court Affirms Reading Up Of Rule 5(1)(d) Of 2009 West Bengal Excise Rules
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/state-of-west-bengal-and-others-v-new-kenilworth-hotel-private-limited-and-others-2026chc-as338-db-1608915
+
+[Source Link](https://t.me/verdictumlegalupdates/25682)
 
 ---
 
@@ -129,38 +161,6 @@ When Plain Text Of Lease Deed Reveals Intention, Purposive Or Ex-Post Facto Cons
 https://www.verdictum.in/court-updates/supreme-court/the-general-secretary-vivekananda-kendra-v-pradeep-kumar-agarwalla-and-others-2026-insc-199-1608886
 
 [Source Link](https://t.me/verdictumlegalupdates/25666)
-
----
-
-### 2026-02-27T08:13:05+00:00
-Public Servant Complaints Not Hit By Section 202 CrPC Enquiry Requirement: Supreme Court Denies Relief To Pharma Company In Drug Misbranding Case
-https://www.verdictum.in/court-updates/supreme-court/the-state-of-kerala-anr-v-ms-panacea-biotec-ltd-anr-connected-appeals-2026-insc-200-1608865
-
-[Source Link](https://t.me/verdictumlegalupdates/25665)
-
----
-
-### 2026-02-27T07:42:48+00:00
-West Bengal SIR| Judicial Officers Will Not Be Influenced: Supreme Court Refuses To Entertain Challenge To ECI Training Module For Judges For Voter List Revision
-https://www.verdictum.in/court-updates/supreme-court/west-bengal-sir-refuses-to-entertain-challenge-eci-training-module-judges-voter-list-revision-1608870
-
-[Source Link](https://t.me/verdictumlegalupdates/25664)
-
----
-
-### 2026-02-27T07:22:24+00:00
-Supreme Court Stays High Court Ruling Which Unified Indian Coast Guard Retirement Age To 60; Directs Union To Form Expert Panel
-https://www.verdictum.in/court-updates/supreme-court/stays-high-court-order-increasing-coast-guard-retirement-age-60-directs-union-form-expert-panel-1608861
-
-[Source Link](https://t.me/verdictumlegalupdates/25663)
-
----
-
-### 2026-02-27T07:02:23+00:00
-Labour Courts Will Continue To Have Jurisdiction Till Tribunals Are Formed Under Industrial Relations Code, 2020: Karnataka High Court
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/glastronix-llp-v-the-presidentgeneral-secretary-2026khc7984-labour-courts-jurisdiction-tribunals-industrial-relations-code-1608859
-
-[Source Link](https://t.me/verdictumlegalupdates/25662)
 
 ---
 
