@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-27T12:23:39+00:00*
+*Last Updated: 2026-02-27T13:21:29+00:00*
 
 ---
 
-### 2026-02-27T12:23:39+00:00
-CBI Moves Delhi High Court Against Discharge Of Arvind Kejriwal, Manish Sisodia & Others In Liquor Policy Case
-https://www.livelaw.in/high-court/delhi-high-court/cbi-appeal-against-arvind-kejriwal-manish-sisodia-discharge-liquor-policy-sca-524924
-
-[Read on Telegram](https://t.me/livelawindia/106089)
-
----
-### 2026-02-27T12:29:19+00:00
-S. 183 BNSS | Direction For Re-Recording Of Victim's Statement Can Be Given Only In 'Exceptional Circumstances': Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-section-183-bnss-victim-statement-re-recording-524926
-
-[Read on Telegram](https://t.me/livelawindia/106090)
-
----
-### 2026-02-27T12:33:49+00:00
-CBFC Viewed Film In Full, Certification Can't Be Faulted On Basis Of Teaser Alone: High Court On Row Over 'Kerala Story 2'
-https://www.livelaw.in/high-court/kerala-high-court/kerala-story-2-cbfc-certificate-presumption-cant-stay-film-on-teaser-524927
-
-[Read on Telegram](https://t.me/livelawindia/106091)
-
----
-### 2026-02-27T12:36:49+00:00
-2017 Actress Assault Case: Kerala Govt Moves High Court Against Acquittal Of Actor Dileep, Three Others
-https://www.livelaw.in/high-court/kerala-high-court/2017-actress-assault-case-state-appeal-against-dileep-acquittal-524929
-
-[Read on Telegram](https://t.me/livelawindia/106092)
-
----
-### 2026-02-27T12:41:09+00:00
-Actor Vijay's Wife Moves Family Court Seeking Divorce
-https://www.livelaw.in/news-updates/actor-vijay-wife-divorce-petition-adultery-524930
-
-[Read on Telegram](https://t.me/livelawindia/106093)
-
----
-### 2026-02-27T12:46:49+00:00
-"Filed Out Of Vendetta" : Supreme Court Dismisses Ex- Judicial Officer's Plea For FIR Against HC Judges Over His Compulsory Retirement
-https://www.livelaw.in/top-stories/filed-out-of-vendetta-supreme-court-dismisses-ex-judicial-officers-plea-for-fir-against-hc-judges-over-his-compulsory-retirement-524932
-
-[Read on Telegram](https://t.me/livelawindia/106094)
-
----
-### 2026-02-27T12:54:49+00:00
-Allahabad HC Grants Interim Relief To Swami Avimukteshwaranand In POCSO Case; Reserves Verdict On Anticipatory Bail Plea
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-interim-relief-swami-avimukteshwaranand-pocso-reserves-verdict-anticipatory-bail-plea-524934
-
-[Read on Telegram](https://t.me/livelawindia/106095)
-
----
-### 2026-02-27T13:07:49+00:00
-'Rigour Of Law Applies To All': Delhi High Court Rejects Centre's Bid To Revive Writ Dismissed Thrice For Non-Prosecution
-https://www.livelaw.in/high-court/delhi-high-court/rigour-of-law-applies-to-all-delhi-high-court-rejects-centres-bid-to-revive-writ-dismissed-thrice-for-non-prosecution-524913
-
-[Read on Telegram](https://t.me/livelawindia/106096)
-
----
 ### 2026-02-27T13:21:29+00:00
 Plea In Supreme Court Challenges Old NCERT Book Remark 'Judgments Tend To View Slumdwellers As Encroachers'
 https://www.livelaw.in/top-stories/supreme-court-former-ncert-member-plea-against-selective-narrative-old-ncert-social-science-textbook-role-of-judiciary-slum-dwellers-encroachers-524936
@@ -142,5 +86,61 @@ Trinamool Congress Fields Sr Adv Menaka Guruswamy For Rajya Sabha Election
 https://www.livelaw.in/news-updates/trinamool-congress-fields-sr-adv-menaka-guruswamy-for-rajya-sabha-election-524963
 
 [Read on Telegram](https://t.me/livelawindia/106108)
+
+---
+### 2026-02-28T04:32:16+00:00
+S.163A MV Act | Borrower Driving Owner's Vehicle Not 'Third Party'; Legal Heirs Can't Claim No-Fault Compensation: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-motor-accident-claim-section-163a-mv-act-524962
+
+[Read on Telegram](https://t.me/livelawindia/106109)
+
+---
+### 2026-02-28T04:42:16+00:00
+'Lalita Kumari' Judgment Misused A Lot, Says Supreme Court On Challenge To BNSS Allowing Preliminary Enquiry Before FIR
+https://www.livelaw.in/top-stories/lalita-kumari-judgment-misused-a-lot-says-supreme-court-on-challenge-to-bnss-allowing-preliminary-enquiry-before-fir-524968
+
+[Read on Telegram](https://t.me/livelawindia/106110)
+
+---
+### 2026-02-28T04:47:36+00:00
+“Hungry, Tired, Physically Incapacitated To Dictate Judgment”: Allahabad High Court Judge Reserves Verdict In SC-Expedited Case
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-physically-incapacitated-reserves-judgment-524969
+
+[Read on Telegram](https://t.me/livelawindia/106111)
+
+---
+### 2026-02-28T05:02:39+00:00
+Magistrate Can't Return Private Complaint Solely For Want Of Accused's Postal Address: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/magistrate-private-complaint-want-of-accused-postal-address-524970
+
+[Read on Telegram](https://t.me/livelawindia/106112)
+
+---
+### 2026-02-28T05:33:30+00:00
+Supreme Court Orders CBI Probe Into Homebuyers' Grievances Against DLF Over Gurugram Primus Garden City Project
+https://www.livelaw.in/top-stories/supreme-court-orders-cbi-probe-into-homebuyers-grievances-against-dlf-over-gurugram-primus-garden-city-project-524973
+
+[Read on Telegram](https://t.me/livelawindia/106113)
+
+---
+### 2026-02-28T05:47:21+00:00
+Supreme Court Weekly Roundup: February 16, 2026 To February 22, 2026
+https://www.livelaw.in/round-ups/weekly/supreme-court-weekly-roundup-february-16-2026-to-february-22-2026-524975
+
+[Read on Telegram](https://t.me/livelawindia/106114)
+
+---
+### 2026-02-28T06:39:21+00:00
+Press Sustained By Readers Best Placed To Be Independent; Corporate Media Dependent On State Patronage : Justice Nagarathna
+https://www.livelaw.in/top-stories/press-sustained-by-readers-best-placed-to-be-independent-corporate-media-dependent-on-state-patronage-justice-nagarathna-524983
+
+[Read on Telegram](https://t.me/livelawindia/106115)
+
+---
+### 2026-02-28T06:44:31+00:00
+Uttarakhand State Commission Dismisses Appeal In Miscarriage Case, Holds No Medical Negligence Or Deficiency In Service Proved Against Doctor
+https://www.livelaw.in/consumer-cases/uttarakhand-state-commission-dismisses-appeal-in-miscarriage-case-holds-no-medical-negligence-or-deficiency-in-service-proved-against-doctor-524986
+
+[Read on Telegram](https://t.me/livelawindia/106116)
 
 ---
