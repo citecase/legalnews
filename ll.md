@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-28T06:39:21+00:00*
+*Last Updated: 2026-02-28T06:55:51+00:00*
 
 ---
 
-### 2026-02-28T06:39:21+00:00
-Press Sustained By Readers Best Placed To Be Independent; Corporate Media Dependent On State Patronage : Justice Nagarathna
-https://www.livelaw.in/top-stories/press-sustained-by-readers-best-placed-to-be-independent-corporate-media-dependent-on-state-patronage-justice-nagarathna-524983
-
-[Read on Telegram](https://t.me/livelawindia/106115)
-
----
-### 2026-02-28T06:44:31+00:00
-Uttarakhand State Commission Dismisses Appeal In Miscarriage Case, Holds No Medical Negligence Or Deficiency In Service Proved Against Doctor
-https://www.livelaw.in/consumer-cases/uttarakhand-state-commission-dismisses-appeal-in-miscarriage-case-holds-no-medical-negligence-or-deficiency-in-service-proved-against-doctor-524986
-
-[Read on Telegram](https://t.me/livelawindia/106116)
-
----
-### 2026-02-28T06:54:11+00:00
-Team Member Legal Vacancy At Kotak Mahindra Bank Limited [Delhi; Apply Now]
-https://www.livelaw.in/job-updates/team-member-legal-vacancy-at-kotak-mahindra-bank-limited-delhi-524989
-
-[Read on Telegram](https://t.me/livelawindia/106117)
-
----
 ### 2026-02-28T06:55:51+00:00
 Professional Director Vacancy At The Haryana State Cooperative Apex Bank Limited
 https://www.livelaw.in/job-updates/professional-director-vacancy-at-the-haryana-state-cooperative-apex-bank-limited-524990
@@ -142,5 +121,26 @@ RMLNLU To Organise Second National Conference On IPR, Advertising, AI & Deepfake
 https://www.livelaw.in/lawschool/news/rmlnlu-to-organise-second-national-conference-on-ipr-advertising-ai-deepfakes-in-hybrid-mode-march-2829-2026-525019
 
 [Read on Telegram](https://t.me/livelawindia/106134)
+
+---
+### 2026-02-28T13:33:51+00:00
+Delhi High Court Defers Constitution Of School-Level Fee Regulation Committees, Says Timelines Prima Facie Unworkable
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-defers-constitution-of-school-level-fee-regulation-committees-says-timelines-prima-facie-unworkable-525024
+
+[Read on Telegram](https://t.me/livelawindia/106135)
+
+---
+### 2026-02-28T16:57:59+00:00
+"Preventive Detention Law Invoked With Less Seriousness Than Traffic Challan": J&K&L High Court Orders Release Of Man
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-psa-invoked-with-less-seriousness-than-a-traffic-challan-court-quashes-preventive-detention-slams-mechanical-exercise-of-power-525034
+
+[Read on Telegram](https://t.me/livelawindia/106136)
+
+---
+### 2026-02-28T17:13:39+00:00
+'Chand Nikla' Remark To Woman Not Obscene Or Sexually Coloured: Punjab & Haryana High Court Quashes FIR
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-fir-against-gurugram-resident-chand-nikla-remark-to-woman-not-obscene-or-sexually-coloured-525042
+
+[Read on Telegram](https://t.me/livelawindia/106137)
 
 ---
