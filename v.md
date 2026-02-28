@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-28T12:52:21+00:00*
+*Last Updated: 2026-02-28T14:12:24+00:00*
+
+---
+
+### 2026-02-28T14:12:24+00:00
+Bombay High Court Quashes POCSO Case After Settlement; Orders Amount Deposited By Accused To Be Utilised Towards MacBook Purchase For Victim
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/mohan-maruti-jadhav-v-the-state-of-maharashtra-2026bhc-as8265-pocso-case-settlement-accused-macbook-purchase-1608982
+
+[Source Link](https://t.me/verdictumlegalupdates/25696)
+
+---
+
+### 2026-02-28T13:33:02+00:00
+Country Lacks Enough Qualified Doctors: Supreme Court Orders Grant Of Medical Degrees To Students With Invalid Tribe Certificate
+https://www.verdictum.in/court-updates/supreme-court/grants-degrees-medicos-invalid-tribe-certificate-doctors-1608980
+
+[Source Link](https://t.me/verdictumlegalupdates/25695)
 
 ---
 
@@ -145,22 +161,6 @@ Real Dispute Is Between Tangible National Interests & Unfortunate Hypothetical L
 https://www.verdictum.in/court-updates/supreme-court/real-dispute-is-between-tangible-national-interests-unfortunate-hypothetical-loss-apex-court-remarks-in-plea-challenging-shanti-act-1608910
 
 [Source Link](https://t.me/verdictumlegalupdates/25677)
-
----
-
-### 2026-02-27T13:32:48+00:00
-Supreme Court Granted Bail To Doctor Arrested For Allegedly Tampering Blood Samples In 2024 Pune Porsche Accident Case
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-granted-bail-to-doctor-arrested-for-allegedly-tampering-blood-samples-in-2024-pune-porsche-accident-case-1608909
-
-[Source Link](https://t.me/verdictumlegalupdates/25676)
-
----
-
-### 2026-02-27T13:02:46+00:00
-Parliament Not Bound By Central Govt's Undertaking Before Court, It Has Absolute Prerogative To Enact Law: Apex Court
-https://www.verdictum.in/court-updates/supreme-court/parliament-not-bound-by-central-govts-undertaking-before-court-it-has-absolute-prerogative-to-enact-law-apex-court-1608907
-
-[Source Link](https://t.me/verdictumlegalupdates/25675)
 
 ---
 
