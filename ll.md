@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-27T12:19:39+00:00*
+*Last Updated: 2026-02-27T12:23:39+00:00*
 
 ---
 
-### 2026-02-27T12:19:39+00:00
-Chinnaswamy Stadium Stampede: Karnataka Crowd Control Bill 2025 Referred For Consultation, High Court Closes Suo-Motu PIL
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-crowd-control-bill-chinnaswamy-stadium-stampede-524922
-
-[Read on Telegram](https://t.me/livelawindia/106088)
-
----
 ### 2026-02-27T12:23:39+00:00
 CBI Moves Delhi High Court Against Discharge Of Arvind Kejriwal, Manish Sisodia & Others In Liquor Policy Case
 https://www.livelaw.in/high-court/delhi-high-court/cbi-appeal-against-arvind-kejriwal-manish-sisodia-discharge-liquor-policy-sca-524924
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : February 27, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-february-27-2026-524943
 
 [Read on Telegram](https://t.me/livelawindia/106107)
+
+---
+### 2026-02-28T02:18:12+00:00
+Trinamool Congress Fields Sr Adv Menaka Guruswamy For Rajya Sabha Election
+https://www.livelaw.in/news-updates/trinamool-congress-fields-sr-adv-menaka-guruswamy-for-rajya-sabha-election-524963
+
+[Read on Telegram](https://t.me/livelawindia/106108)
 
 ---
