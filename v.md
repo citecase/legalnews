@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-01T06:03:08+00:00*
+*Last Updated: 2026-03-01T12:03:04+00:00*
+
+---
+
+### 2026-03-01T12:03:04+00:00
+Additional Documents Can Be Disclosed Even At Argument Stage If Reasonable Cause Is Shown: Calcutta High Court
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/usha-martin-limited-vs-balurghat-technologies-limited-1609005
+
+[Source Link](https://t.me/verdictumlegalupdates/25702)
+
+---
+
+### 2026-03-01T10:32:42+00:00
+Registration Certificate Under Partnership Act Not An ‘Order’; Registrar Cannot Invoke Section 21 General Clauses Act To Cancel It: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/universal-promoters-and-developers-v-government-of-nct-of-delhi-2026dhc1778-1609006
+
+[Source Link](https://t.me/verdictumlegalupdates/25701)
+
+---
+
+### 2026-03-01T09:02:41+00:00
+Madras High Court Orders CBI Probe Into Fake No Objection Certificates Used To Obtain Petroleum Retail Outlet Licences
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/vbr-menon-v-chief-controller-of-explosives-ors-petroleum-retail-1609004
+
+[Source Link](https://t.me/verdictumlegalupdates/25700)
+
+---
+
+### 2026-03-01T07:33:00+00:00
+‘FOREST’ Cannot Be Monopolised In Isolation; Composite Mark Must Be Judged As A Whole: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/mountain-valley-springs-india-pvt-ltd-v-baby-forest-ayurveda-pvt-ltd-2026dhc1756-db-forest-essential-trademark-appeal-1609003
+
+[Source Link](https://t.me/verdictumlegalupdates/25699)
 
 ---
 
@@ -129,38 +161,6 @@ No Remand When Offences Are Bailable: Karnataka High Court Grants Relief To Man 
 https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/murali-bn-v-state-of-karnataka-2026khc11283-no-remand-offences-bailable-man-kidnapping-wife-1608935
 
 [Source Link](https://t.me/verdictumlegalupdates/25683)
-
----
-
-### 2026-02-28T04:33:05+00:00
-No Intelligible Differentia Between Public And Private Limited Companies: Calcutta High Court Affirms Reading Up Of Rule 5(1)(d) Of 2009 West Bengal Excise Rules
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/state-of-west-bengal-and-others-v-new-kenilworth-hotel-private-limited-and-others-2026chc-as338-db-1608915
-
-[Source Link](https://t.me/verdictumlegalupdates/25682)
-
----
-
-### 2026-02-27T16:02:32+00:00
-Discretion In Bail Must Be Exercised Judiciously, Indicating Reasons In Serious Offences: J&K And Ladakh High Court Denies Bail To Murder Accused
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/murad-ali-and-others-v-union-territory-of-jk-and-others-2026jklhc-jmu456-1608914
-
-[Source Link](https://t.me/verdictumlegalupdates/25681)
-
----
-
-### 2026-02-27T15:32:50+00:00
-“Demonstrably Pertains To Public Order”: Allahabad High Court Upholds NSA Detention For Cattle Slaughter On Eid Coinciding With Navratri
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/hasnen-v-union-of-india-and-others-cw-saiyyaj-ali-v-state-of-up-and-sikandar-v-state-of-up-2026ahc43774-db-1608913
-
-[Source Link](https://t.me/verdictumlegalupdates/25680)
-
----
-
-### 2026-02-27T15:02:28+00:00
-Explanation Doesn’t Meet Threshold Of ‘Sufficient Cause’ U/S.5 Limitation Act: Delhi High Court Refuses To Condone 281-Day Delay
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ms-x-v-the-state-of-nct-of-delhi-2026dhc1381-explanation-sufficient-cause-limitation-act-condone-delay-1608912
-
-[Source Link](https://t.me/verdictumlegalupdates/25679)
 
 ---
 
