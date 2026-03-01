@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-02-28T14:12:24+00:00*
+*Last Updated: 2026-03-01T06:03:08+00:00*
+
+---
+
+### 2026-03-01T06:03:08+00:00
+Custodial Interrogation Significant For Investigation: Kerala High Court Denies Anticipatory Bail To Accused In ₹101 Crore Bank Misappropriation Case
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/n-basurangan-v-state-of-kerala-2026ker15130-prevention-of-corruption-act-1609002
+
+[Source Link](https://t.me/verdictumlegalupdates/25698)
+
+---
+
+### 2026-03-01T04:33:07+00:00
+Since Trainee Was Not Absorbed In Assam Rifles, Issue Of Reinstatement In Service Doesn't Arise: Gauhati High Court
+https://www.verdictum.in/court-updates/high-courts/guwahati-high-court/sachin-kumar-thakur-v-office-of-the-commandant-assam-rifle-taning-centre-2026gau-nl43-db-reinstatement-service-trainee-1608983
+
+[Source Link](https://t.me/verdictumlegalupdates/25697)
 
 ---
 
@@ -145,22 +161,6 @@ Explanation Doesn’t Meet Threshold Of ‘Sufficient Cause’ U/S.5 Limitation 
 https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ms-x-v-the-state-of-nct-of-delhi-2026dhc1381-explanation-sufficient-cause-limitation-act-condone-delay-1608912
 
 [Source Link](https://t.me/verdictumlegalupdates/25679)
-
----
-
-### 2026-02-27T14:33:11+00:00
-Constitution Does Not Mandate Child To Invariably Bear Father’s Surname: Karnataka High Court
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/ms-priancy-saru-magar-v-chief-registrar-births-and-deaths-bengaluru-2026khc9735-1608911
-
-[Source Link](https://t.me/verdictumlegalupdates/25678)
-
----
-
-### 2026-02-27T14:02:49+00:00
-Real Dispute Is Between Tangible National Interests & Unfortunate Hypothetical Loss: Apex Court Remarks In Plea Challenging SHANTI Act
-https://www.verdictum.in/court-updates/supreme-court/real-dispute-is-between-tangible-national-interests-unfortunate-hypothetical-loss-apex-court-remarks-in-plea-challenging-shanti-act-1608910
-
-[Source Link](https://t.me/verdictumlegalupdates/25677)
 
 ---
 
