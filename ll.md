@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-01T04:47:29+00:00*
+*Last Updated: 2026-03-01T05:38:19+00:00*
 
 ---
 
-### 2026-03-01T04:47:29+00:00
-Addition Of Text Above Signature On Receipt Raises 'Grave Suspicion': Calcutta High Court Refuses To Discharge Forgery Accused
-https://www.livelaw.in/high-court/calcutta-high-court/addition-of-text-above-signature-on-receipt-raises-grave-suspicion-calcutta-high-court-declines-to-discharge-forgery-accused-525047
-
-[Read on Telegram](https://t.me/livelawindia/106141)
-
----
-### 2026-03-01T04:48:49+00:00
-Sevakh Global Launches Pan-India 'Legal Safe Citizen' Initiative To Promote Legal Literacy And Digital Safety
-https://www.livelaw.in/events/sevakh-global-launches-pan-india-legal-safe-citizen-initiative-to-promote-legal-literacy-and-digital-safety-525052
-
-[Read on Telegram](https://t.me/livelawindia/106142)
-
----
-### 2026-03-01T04:59:29+00:00
-HNLU Raipur To Host International Trade Law Summit On 'WTO@30: Reimagining Multilateralism'
-https://www.livelaw.in/lawschool/call-for-papers/hnlu-raipur-host-international-trade-law-summit-wto30-reimagining-multilateralism-525053
-
-[Read on Telegram](https://t.me/livelawindia/106143)
-
----
-### 2026-03-01T05:07:49+00:00
-Dharmashastra National Law University To Organise REVĀ National Moot Court Competition 2026
-https://www.livelaw.in/lawschool/moot-courts/dharmashastra-national-law-university-to-organise-rev-national-moot-court-competition-2026-525054
-
-[Read on Telegram](https://t.me/livelawindia/106144)
-
----
 ### 2026-03-01T05:38:19+00:00
 Kerala High Court Flags Potential Misuse Of Booking In Sabarimala Padi Pooja Using False Credentials; Orders Seizure, Production Of Records
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-booking-system-padi-pooja-fake-names-525045
@@ -142,5 +114,33 @@ MP High Court Orders Protection Of Water Pipelines Laid Under Jal Jeevan Mission
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-issues-notice-in-lts-plea-over-damages-caused-by-bbnl-in-laying-ofc-works-for-bharatnet-scheme-525039
 
 [Read on Telegram](https://t.me/livelawindia/106160)
+
+---
+### 2026-03-01T13:02:19+00:00
+Himachal Pradesh High Court Quashes Preventive Detention Under PITNDPS Act, Cites Non-Application Of Mind
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-quashes-preventive-detention-under-pitndps-act-citing-non-application-of-mind-525059
+
+[Read on Telegram](https://t.me/livelawindia/106161)
+
+---
+### 2026-03-01T17:05:19+00:00
+Supreme Court Judge Justice Vikram Nath Inaugurates Upgraded Model Mediation Centre At Allahabad High Court
+https://www.livelaw.in/events/allahabad-high-court-upgraded-mediation-centre-inauguration-justice-vikram-nath-525079
+
+[Read on Telegram](https://t.me/livelawindia/106162)
+
+---
+### 2026-03-01T17:18:19+00:00
+Kerala High Court Stays Proceedings Against BJP's K Surendran In 2019 Hartal Violence Case
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-2019-flash-hartal-violence-525043
+
+[Read on Telegram](https://t.me/livelawindia/106163)
+
+---
+### 2026-03-01T17:32:50+00:00
+Punjab & Haryana High Court Grants Bail To Woman Accused In Double Murder Case Registered After 2 Years Of Death
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-grants-bail-to-woman-accused-in-double-murder-case-registered-nearly-2-years-after-death-525044
+
+[Read on Telegram](https://t.me/livelawindia/106164)
 
 ---
