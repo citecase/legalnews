@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-01T12:03:04+00:00*
+*Last Updated: 2026-03-01T15:02:47+00:00*
+
+---
+
+### 2026-03-01T15:02:47+00:00
+Young Professional Vacancy At EdCIL (India) Limited
+https://www.verdictum.in/job-updates/ministry-of-education-1608977
+
+[Source Link](https://t.me/verdictumlegalupdates/25704)
+
+---
+
+### 2026-03-01T13:33:05+00:00
+De Facto Marriage Entitles Woman To Maintenance Under Domestic Violence Act Despite Absence Of Formal Proof Of Marriage: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/x-v-y-2026bhc-aug6648-de-facto-marriage-woman-maintenance-dv-act-1609008
+
+[Source Link](https://t.me/verdictumlegalupdates/25703)
 
 ---
 
@@ -145,22 +161,6 @@ Resolution Professional’s Actions Based On CoC’s Instructions Cannot Be Term
 https://www.verdictum.in/court-updates/supreme-court/torrent-power-limited-v-ashish-arjunkumar-rathi-ors-2026-insc-206-irregularity-1608946
 
 [Source Link](https://t.me/verdictumlegalupdates/25685)
-
----
-
-### 2026-02-28T06:02:58+00:00
-Arbitral Tribunal Cannot Bypass Contractual Bar On Pendente Lite Interest By Calling It Compensation; Post-Award Interest Statutory: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/cause-title-union-of-india-ors-v-larsen-and-tubro-limited-2026-insc-203-arbitration-post-award-pendente-lite-1608940
-
-[Source Link](https://t.me/verdictumlegalupdates/25684)
-
----
-
-### 2026-02-28T05:12:56+00:00
-No Remand When Offences Are Bailable: Karnataka High Court Grants Relief To Man Accused Of Kidnapping Wife
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/murali-bn-v-state-of-karnataka-2026khc11283-no-remand-offences-bailable-man-kidnapping-wife-1608935
-
-[Source Link](https://t.me/verdictumlegalupdates/25683)
 
 ---
 
