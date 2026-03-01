@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-02-28T06:55:51+00:00*
+*Last Updated: 2026-02-28T09:48:56+00:00*
 
 ---
 
-### 2026-02-28T06:55:51+00:00
-Professional Director Vacancy At The Haryana State Cooperative Apex Bank Limited
-https://www.livelaw.in/job-updates/professional-director-vacancy-at-the-haryana-state-cooperative-apex-bank-limited-524990
-
-[Read on Telegram](https://t.me/livelawindia/106118)
-
----
-### 2026-02-28T06:56:51+00:00
-Legal Consultant (Senior) Vacancy At Bongaon Police District, West Bengal
-https://www.livelaw.in/job-updates/legal-consultant-senior-vacancy-at-bongaon-police-district-west-bengal-524991
-
-[Read on Telegram](https://t.me/livelawindia/106119)
-
----
-### 2026-02-28T06:57:01+00:00
-Discharge Without Completion Of Training In Assam Rifles , No Right For Reinstatement : Gauhati HC
-https://www.livelaw.in/high-court/gauhati-high-court/discharge-without-completion-of-training-in-assam-rifles-no-right-for-reinstatement-gauhati-hc-524992
-
-[Read on Telegram](https://t.me/livelawindia/106120)
-
----
-### 2026-02-28T07:04:40+00:00
-Team Member (Central Legal & Tax Unit) Vacancy At Kotak Mahindra Bank Limited
-https://www.livelaw.in/job-updates/team-member-central-legal-tax-unit-vacancy-at-kotak-mahindra-bank-limited-524993
-
-[Read on Telegram](https://t.me/livelawindia/106121)
-
----
-### 2026-02-28T07:09:00+00:00
-High Court's Contempt Jurisdiction Not Lost Just Because SC Affirmed Its Order : Supreme Court
-https://www.livelaw.in/top-stories/high-courts-contempt-jurisdiction-not-lost-just-because-sc-affirmed-its-order-supreme-court-524994
-
-[Read on Telegram](https://t.me/livelawindia/106122)
-
----
-### 2026-02-28T07:10:20+00:00
-2026 LiveLaw (SC) 208 |  United Labour Federation v Gagandeep Singh Bedi
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-208-united-labour-federation-v-gagandeep-singh-bedi-524995
-
-[Read on Telegram](https://t.me/livelawindia/106123)
-
----
-### 2026-02-28T07:32:40+00:00
-Accepting Alternative Cadre Promotion Without Protest; Can't Challenge  Juniors' Elevation In Parent  Cadre : J&K HC
-https://www.livelaw.in/high-court/jammu-kashmir/accepting-alternative-cadre-promotion-without-protest-cant-challenge-juniors-elevation-in-parent-cadre-jk-hc-524996
-
-[Read on Telegram](https://t.me/livelawindia/106124)
-
----
-### 2026-02-28T09:34:46+00:00
-Courts This Week| Umar Khalid's Bail| Pune-Porsche Case| WB SIR| Stray Dogs| Romeo-Juliet in POCSO
-https://www.livelaw.in/videos/uapa-courts-this-week-ctw-uapa-umar-khalid-sharjeel-imam-delhi-riots-conspiracy-pocso-525003
-
-[Read on Telegram](https://t.me/livelawindia/106125)
-
----
-### 2026-02-28T09:40:16+00:00
-Courts This Week| Mamata Banerjee in Supreme Court| Sonam Wangchuk| Kunal Kamra's challenge
-https://www.livelaw.in/videos/courts-this-week-ctw-mamata-banerjee-courts-this-week-west-bengal-sir-west-bengal-cm-senior-advocate-kapil-sibal-525004
-
-[Read on Telegram](https://t.me/livelawindia/106126)
-
----
-### 2026-02-28T09:43:56+00:00
-Courts This Week|RTI challenge|Sonam Wangchuk|Himanta Biswa Sarma|Ghooskhor Pandat & more
-https://www.livelaw.in/videos/cic-chief-information-commission-rti-act-sonam-wangchuk-himanta-biswa-sarma-ghooskhor-pandat-netflix-525006
-
-[Read on Telegram](https://t.me/livelawindia/106127)
-
----
 ### 2026-02-28T09:48:56+00:00
 Courts This Week| WB SIR| TN Power DisCom| Sonam Wangchuk| CM Pema Khandu| RTI Act
 https://www.livelaw.in/videos/courts-this-week-india-news-supreme-court-bjp-bharatiya-janta-party-india-news-court-updates-cm-pema-khandu-rti-act-525008
@@ -142,5 +72,75 @@ https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-psa
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-fir-against-gurugram-resident-chand-nikla-remark-to-woman-not-obscene-or-sexually-coloured-525042
 
 [Read on Telegram](https://t.me/livelawindia/106137)
+
+---
+### 2026-03-01T03:20:09+00:00
+NCERT Textbook Issue Wouldn't Have Happened If Judges Had Properly Done Their Duties : Sr Adv Kapil Sibal
+https://www.livelaw.in/top-stories/ncert-textbook-issue-wouldnt-have-happened-if-judges-had-properly-done-their-duties-sr-adv-kapil-sibal-525049
+
+[Read on Telegram](https://t.me/livelawindia/106138)
+
+---
+### 2026-03-01T04:13:39+00:00
+Complete Supreme Court Annual Digest 2025 [Part-VII]
+https://www.livelaw.in/supreme-court/complete-supreme-court-annual-digest-2025-525050
+
+[Read on Telegram](https://t.me/livelawindia/106139)
+
+---
+### 2026-03-01T04:42:29+00:00
+Madras High Court Cancels Bail Granted To 12 Accused In Murder Case Of BSP Leader K Armstrong
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-armstrong-murder-case-bail-of-12-accused-cancelled-525035
+
+[Read on Telegram](https://t.me/livelawindia/106140)
+
+---
+### 2026-03-01T04:47:29+00:00
+Addition Of Text Above Signature On Receipt Raises 'Grave Suspicion': Calcutta High Court Refuses To Discharge Forgery Accused
+https://www.livelaw.in/high-court/calcutta-high-court/addition-of-text-above-signature-on-receipt-raises-grave-suspicion-calcutta-high-court-declines-to-discharge-forgery-accused-525047
+
+[Read on Telegram](https://t.me/livelawindia/106141)
+
+---
+### 2026-03-01T04:48:49+00:00
+Sevakh Global Launches Pan-India 'Legal Safe Citizen' Initiative To Promote Legal Literacy And Digital Safety
+https://www.livelaw.in/events/sevakh-global-launches-pan-india-legal-safe-citizen-initiative-to-promote-legal-literacy-and-digital-safety-525052
+
+[Read on Telegram](https://t.me/livelawindia/106142)
+
+---
+### 2026-03-01T04:59:29+00:00
+HNLU Raipur To Host International Trade Law Summit On 'WTO@30: Reimagining Multilateralism'
+https://www.livelaw.in/lawschool/call-for-papers/hnlu-raipur-host-international-trade-law-summit-wto30-reimagining-multilateralism-525053
+
+[Read on Telegram](https://t.me/livelawindia/106143)
+
+---
+### 2026-03-01T05:07:49+00:00
+Dharmashastra National Law University To Organise REVĀ National Moot Court Competition 2026
+https://www.livelaw.in/lawschool/moot-courts/dharmashastra-national-law-university-to-organise-rev-national-moot-court-competition-2026-525054
+
+[Read on Telegram](https://t.me/livelawindia/106144)
+
+---
+### 2026-03-01T05:38:19+00:00
+Kerala High Court Flags Potential Misuse Of Booking In Sabarimala Padi Pooja Using False Credentials; Orders Seizure, Production Of Records
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-booking-system-padi-pooja-fake-names-525045
+
+[Read on Telegram](https://t.me/livelawindia/106145)
+
+---
+### 2026-03-01T05:47:19+00:00
+2026 Bengal Assembly Polls: Calcutta High Court Declines To Interfere With Surveillance & Live Web-Streaming Tender Criteria
+https://www.livelaw.in/high-court/calcutta-high-court/2026-bengal-assembly-polls-calcutta-high-court-declines-to-interfere-with-surveillance-live-web-streaming-tender-criteria-525046
+
+[Read on Telegram](https://t.me/livelawindia/106146)
+
+---
+### 2026-03-01T06:37:50+00:00
+Kaleshwaram Project Row | No Notice Issued Before Inquiry Commission Report Was Made Public: KCR Tells Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/kaleshwaram-project-report-filed-commission-of-inquiry-525036
+
+[Read on Telegram](https://t.me/livelawindia/106147)
 
 ---
