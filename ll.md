@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-01T05:38:19+00:00*
+*Last Updated: 2026-03-02T03:32:59+00:00*
 
 ---
 
-### 2026-03-01T05:38:19+00:00
-Kerala High Court Flags Potential Misuse Of Booking In Sabarimala Padi Pooja Using False Credentials; Orders Seizure, Production Of Records
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-booking-system-padi-pooja-fake-names-525045
+### 2026-03-02T03:32:59+00:00
+Karnataka High Court Monthly Digest: February 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-monthly-digest-february-2026-525080
 
-[Read on Telegram](https://t.me/livelawindia/106145)
-
----
-### 2026-03-01T05:47:19+00:00
-2026 Bengal Assembly Polls: Calcutta High Court Declines To Interfere With Surveillance & Live Web-Streaming Tender Criteria
-https://www.livelaw.in/high-court/calcutta-high-court/2026-bengal-assembly-polls-calcutta-high-court-declines-to-interfere-with-surveillance-live-web-streaming-tender-criteria-525046
-
-[Read on Telegram](https://t.me/livelawindia/106146)
+[Read on Telegram](https://t.me/livelawindia/106165)
 
 ---
-### 2026-03-01T06:37:50+00:00
-Kaleshwaram Project Row | No Notice Issued Before Inquiry Commission Report Was Made Public: KCR Tells Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/kaleshwaram-project-report-filed-commission-of-inquiry-525036
+### 2026-03-02T03:58:39+00:00
+Referring To Someone By Their Profession Doesn't Attract SC/ST Act Offence If No Intent To Humiliate: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-dhobin-profession-sc-st-act-offence-intent-humiliate-525089
 
-[Read on Telegram](https://t.me/livelawindia/106147)
-
----
-### 2026-03-01T07:13:00+00:00
-“Cannot Travel Beyond Suicide Note": Telangana High Court Quashes Case Abetment Case Against Accused Not Named By Deceased
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-quashes-section108-bns-case-allegations-suicide-note-525041
-
-[Read on Telegram](https://t.me/livelawindia/106148)
+[Read on Telegram](https://t.me/livelawindia/106166)
 
 ---
-### 2026-03-01T07:47:20+00:00
-Calcutta High Court Grants Bail To 74-Yr-Old Ex-SSC Advisor In PMLA Case; Says Prolonged Custody Without Trial Offends Article 21
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-grants-bail-to-74-yr-old-ex-ssc-advisor-in-pmla-case-says-prolonged-custody-without-trial-offends-article-21-525048
+### 2026-03-02T04:02:39+00:00
+S.135(C) Gujarat Land Revenue Code | Revenue Authorities Must Mutate Entry When Based On Registered Sale Deed: High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-revenue-authorities-registered-sale-deed-525081
 
-[Read on Telegram](https://t.me/livelawindia/106149)
-
----
-### 2026-03-01T07:56:40+00:00
-'No Respect For Law': Allahabad High Court Slams UP Cops Over SC Arrest Guideline Violations & 20  Hour Delay In Releasing Accused
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-no-respect-law-slams-up-police-sc-arrest-violations-20-hour-delay-release-accused-525055
-
-[Read on Telegram](https://t.me/livelawindia/106150)
+[Read on Telegram](https://t.me/livelawindia/106167)
 
 ---
-### 2026-03-01T08:30:55+00:00
-NCDRC Dismisses Consumer Complaint Filed Nearly 10 Years After Possession, Holds Claim Barred By Limitation
-https://www.livelaw.in/consumer-cases/ncdrc-dismisses-consumer-complaint-filed-nearly-10-years-after-possession-holds-claim-barred-by-limitation-525056
+### 2026-03-02T04:26:59+00:00
+Senior Consultant (Legal - AIF) Vacancy At National Pension System Trust
+https://www.livelaw.in/job-updates/senior-consultant-legal-aif-vacancy-at-national-pension-system-trust-525091
 
-[Read on Telegram](https://t.me/livelawindia/106151)
-
----
-### 2026-03-01T08:47:35+00:00
-Fresh Deemed Conveyance Plea Not Maintainable After Earlier Rejection On Merits; Quasi-Judicial Authorities Bound By Res Judicata: Bombay HC
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-quasi-judicial-authority-granting-deemed-conveyance-525038
-
-[Read on Telegram](https://t.me/livelawindia/106152)
+[Read on Telegram](https://t.me/livelawindia/106168)
 
 ---
-### 2026-03-01T09:31:05+00:00
-'Daughter Pregnancy Sans Marriage A Nightmare For Average Indian': Allahabad High Court Upholds Parents' Life Term In Double Murder Case
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-daughter-pregnancy-marriage-nightmare-parents-life-term-double-murder-shahjahanpur-525057
+### 2026-03-02T04:32:29+00:00
+Punjab & Haryana High Court Treats Disabled Petitioner's Plea Seeking Accessible Housing As PIL
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-treats-plea-by-60-disabled-petitioner-seeking-accessible-housing-as-pil-525082
 
-[Read on Telegram](https://t.me/livelawindia/106153)
-
----
-### 2026-03-01T09:32:45+00:00
-Must Ponder Why India Not Preferred Destination For International Arbitration: CJI Surya Kant
-https://www.livelaw.in/top-stories/must-ponder-why-india-not-preferred-destination-for-international-arbitration-cji-surya-kant-525058
-
-[Read on Telegram](https://t.me/livelawindia/106154)
+[Read on Telegram](https://t.me/livelawindia/106169)
 
 ---
-### 2026-03-01T10:18:45+00:00
-Insurance Policies Being Issued To Persons On Deathbed? Allahabad HC Orders Probe; Issues Warrant Against HDFC Life Official
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-insurance-policies-deathbed-probe-warrant-hdfc-life-525060
+### 2026-03-02T04:39:09+00:00
+Analyst (Compliance Review) Vacancy At KPMG India [Noida; Apply Now]
+https://www.livelaw.in/job-updates/analyst-compliance-review-vacancy-at-kpmg-india-noida-525092
 
-[Read on Telegram](https://t.me/livelawindia/106155)
-
----
-### 2026-03-01T11:17:55+00:00
-Delhi High Court Quashes Cheating Case Against Central Bank Of India Officers; Says Bank Can Adjust OTS Deposit On Borrower's Default
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-quashes-cheating-case-against-central-bank-of-india-officers-says-bank-can-adjust-ots-deposit-on-borrowers-default-525040
-
-[Read on Telegram](https://t.me/livelawindia/106156)
+[Read on Telegram](https://t.me/livelawindia/106170)
 
 ---
-### 2026-03-01T11:32:45+00:00
-[Cooperative Societies Act] Audit Reports/Inquiry Orders Are Only Preparatory Steps, Not 'Orders' For Revision: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-quashes-order-passed-minister-of-cooperation-525037
+### 2026-03-02T04:40:49+00:00
+Empanelment Of Advocates At Employees' Provident Fund Organisation (EPFO)
+https://www.livelaw.in/job-updates/empanelment-of-advocates-at-employees-provident-fund-organisation-epfo-525093
 
-[Read on Telegram](https://t.me/livelawindia/106157)
-
----
-### 2026-03-01T11:45:45+00:00
-Magistrate Discharging Judicial Duty Is Above DM, SP & Political Head; Disregarding His Orders Unpardonable: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-magistrate-judicial-duty-dm-sp-political-head-disregard-order-unpardonable-525061
-
-[Read on Telegram](https://t.me/livelawindia/106158)
+[Read on Telegram](https://t.me/livelawindia/106171)
 
 ---
-### 2026-03-01T12:44:19+00:00
-Faulty CCTVs A 'Routine Feature' In UP: Allahabad High Court Deems Surprise Police Station Inspections Part Of CJMs' Official Duty
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-surprise-police-station-inspections-cjms-official-duty-faulty-cctvs-up-525064
+### 2026-03-02T04:42:29+00:00
+Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
+https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-525094
 
-[Read on Telegram](https://t.me/livelawindia/106159)
-
----
-### 2026-03-01T12:52:39+00:00
-MP High Court Orders Protection Of Water Pipelines Laid Under Jal Jeevan Mission In Plea Alleging Damage Due To Optical Cable Fibre Work
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-issues-notice-in-lts-plea-over-damages-caused-by-bbnl-in-laying-ofc-works-for-bharatnet-scheme-525039
-
-[Read on Telegram](https://t.me/livelawindia/106160)
+[Read on Telegram](https://t.me/livelawindia/106172)
 
 ---
-### 2026-03-01T13:02:19+00:00
-Himachal Pradesh High Court Quashes Preventive Detention Under PITNDPS Act, Cites Non-Application Of Mind
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-quashes-preventive-detention-under-pitndps-act-citing-non-application-of-mind-525059
+### 2026-03-02T04:48:09+00:00
+Democratic Process Can't Be Curbed Unreasonably: Karnataka High Court Asks Police To Permit Use Of Loudspeakers For Trade Union's Campaign
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-loudspeaker-use-trade-union-campaign-protest-525083
 
-[Read on Telegram](https://t.me/livelawindia/106161)
-
----
-### 2026-03-01T17:05:19+00:00
-Supreme Court Judge Justice Vikram Nath Inaugurates Upgraded Model Mediation Centre At Allahabad High Court
-https://www.livelaw.in/events/allahabad-high-court-upgraded-mediation-centre-inauguration-justice-vikram-nath-525079
-
-[Read on Telegram](https://t.me/livelawindia/106162)
+[Read on Telegram](https://t.me/livelawindia/106173)
 
 ---
-### 2026-03-01T17:18:19+00:00
-Kerala High Court Stays Proceedings Against BJP's K Surendran In 2019 Hartal Violence Case
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-2019-flash-hartal-violence-525043
+### 2026-03-02T05:00:29+00:00
+Bench On Trial: From Real Trial To The Social Media Trial
+https://www.livelaw.in/lawschool/articles/real-trial-social-media-trial-525096
 
-[Read on Telegram](https://t.me/livelawindia/106163)
+[Read on Telegram](https://t.me/livelawindia/106174)
 
 ---
-### 2026-03-01T17:32:50+00:00
-Punjab & Haryana High Court Grants Bail To Woman Accused In Double Murder Case Registered After 2 Years Of Death
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-grants-bail-to-woman-accused-in-double-murder-case-registered-nearly-2-years-after-death-525044
+### 2026-03-02T05:03:09+00:00
+Delhi High Court Weekly Round-Up: February 23 To March 01, 2026
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-weekly-round-up-february-23-to-march-01-2026-525084
 
-[Read on Telegram](https://t.me/livelawindia/106164)
+[Read on Telegram](https://t.me/livelawindia/106175)
+
+---
+### 2026-03-02T05:05:49+00:00
+BREAKING | Supreme Court Flags Trial Court Citing “AI-Generated Fake Judgments”, Terms It Misconduct
+https://www.livelaw.in/top-stories/supreme-court-flags-trial-court-citing-ai-generated-fake-judgments-terms-it-misconduct-525097
+
+[Read on Telegram](https://t.me/livelawindia/106176)
+
+---
+### 2026-03-02T05:09:49+00:00
+Maharashtra State Commission Holds HP Employees' Co-operative Credit Society Liable For Deficiency In Service For Enforcing Undisclosed Restriction On Premature Withdrawal Of Deposit
+https://www.livelaw.in/consumer-cases/maharashtra-state-commission-holds-hp-employees-co-operative-credit-society-liable-for-deficiency-in-service-for-enforcing-undisclosed-restriction-on-prema-ure-withdrawal-of-deposit-525099
+
+[Read on Telegram](https://t.me/livelawindia/106177)
+
+---
+### 2026-03-02T05:17:29+00:00
+Gujarat High Court Acquits Cop In 50-Year-Old Custodial Torture Case Citing State's Failure To Prove Illegal Confinement & Assault
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-custodial-torture-case-illegal-confinement-assault-525086
+
+[Read on Telegram](https://t.me/livelawindia/106178)
+
+---
+### 2026-03-02T05:31:19+00:00
+'Surya Kumar Yadav Not Expected To Bowl Death Overs' : CJI Surya Kant Uses T20 Analogy, Stresses On Specialisation By Lawyers
+https://www.livelaw.in/top-stories/surya-kumar-yadav-not-expected-to-bowl-death-overs-cji-surya-kant-uses-t20-analogy-stresses-on-specialisation-by-lawyers-525101
+
+[Read on Telegram](https://t.me/livelawindia/106179)
+
+---
+### 2026-03-02T05:33:19+00:00
+'Judicial Murder': Allahabad High Court Orders Administrative Action Against Trial Judge For Causing Illegal Gain To Party In Title Dispute
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-administrative-action-against-civil-judge-525102
+
+[Read on Telegram](https://t.me/livelawindia/106180)
+
+---
+### 2026-03-02T05:51:29+00:00
+Project Manager Vacancy At Indian Institute Of Technology, Kanpur
+https://www.livelaw.in/job-updates/project-manager-vacancy-at-indian-institute-of-technology-kanpur-525104
+
+[Read on Telegram](https://t.me/livelawindia/106181)
+
+---
+### 2026-03-02T06:02:29+00:00
+Fraudulent Mutation Entry Is A 'Nullity'; Limitation Begins From Knowledge Of Fraud: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-challenge-fraudulent-land-mutation-fraud-525087
+
+[Read on Telegram](https://t.me/livelawindia/106182)
+
+---
+### 2026-03-02T06:05:49+00:00
+Tamil Nadu AG Refuses Consent To Initiate Contempt Proceedings Against Former Judge For Remarks On Justice GR Swaminathan
+https://www.livelaw.in/news-updates/tn-ag-refuses-sanction-contempt-against-former-judge-comment-gr-swaminathan-525106
+
+[Read on Telegram](https://t.me/livelawindia/106183)
+
+---
+### 2026-03-02T07:02:26+00:00
+Karnataka High Court Weekly Round-Up: February 23 - March 1, 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-round-up-525085
+
+[Read on Telegram](https://t.me/livelawindia/106184)
 
 ---
