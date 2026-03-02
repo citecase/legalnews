@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-02T13:33:09+00:00*
+*Last Updated: 2026-03-02T15:02:51+00:00*
+
+---
+
+### 2026-03-02T15:02:51+00:00
+Delhi High Court Grants Permanent Injunction To HUL & P&G Over Counterfeiting FMCG Goods, Awards ₹2.5 Lakhs Damages
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/hindustan-lever-ltd-v-rakesh-goyal-2026dhc1821-hindustan-lever-pg-fmcg-permanent-injunction-1609087
+
+[Source Link](https://t.me/verdictumlegalupdates/25719)
+
+---
+
+### 2026-03-02T14:12:50+00:00
+Madhya Pradesh High Court Issues Show Cause Notice To Advocate For Continued Appearance Despite Subsisting Contempt Conviction
+https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/munendra-singh-v-state-of-madhya-pradesh-2026mphc-gwl6777-contempt-1609086
+
+[Source Link](https://t.me/verdictumlegalupdates/25718)
 
 ---
 
@@ -145,22 +161,6 @@ Madras High Court Orders CBI Probe Into Fake No Objection Certificates Used To O
 https://www.verdictum.in/court-updates/high-courts/madras-high-court/vbr-menon-v-chief-controller-of-explosives-ors-petroleum-retail-1609004
 
 [Source Link](https://t.me/verdictumlegalupdates/25700)
-
----
-
-### 2026-03-01T07:33:00+00:00
-‘FOREST’ Cannot Be Monopolised In Isolation; Composite Mark Must Be Judged As A Whole: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/mountain-valley-springs-india-pvt-ltd-v-baby-forest-ayurveda-pvt-ltd-2026dhc1756-db-forest-essential-trademark-appeal-1609003
-
-[Source Link](https://t.me/verdictumlegalupdates/25699)
-
----
-
-### 2026-03-01T06:03:08+00:00
-Custodial Interrogation Significant For Investigation: Kerala High Court Denies Anticipatory Bail To Accused In ₹101 Crore Bank Misappropriation Case
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/n-basurangan-v-state-of-kerala-2026ker15130-prevention-of-corruption-act-1609002
-
-[Source Link](https://t.me/verdictumlegalupdates/25698)
 
 ---
 
