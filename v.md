@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-01T15:02:47+00:00*
+*Last Updated: 2026-03-02T06:52:27+00:00*
+
+---
+
+### 2026-03-02T06:52:27+00:00
+Police Requisitions Must Not Paralyse Banking Operations; Co-operative Banks Bound to Identify and Freeze Actual Fraud-Linked Accounts: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/ms-kunnamangalam-co-operative-rural-bank-ltd-v-inspector-of-police-2026ker15537-bank-free-mirror-account-cooperative-bank-1609057
+
+[Source Link](https://t.me/verdictumlegalupdates/25708)
+
+---
+
+### 2026-03-02T06:02:25+00:00
+Liability To Pay Penalty Imposed Under Employees Compensation Act Cannot Be Fastened On Insurance Company Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/new-india-assurance-co-ltd-v-rekha-chaudhary-ors-2026-insc-177-1609050
+
+[Source Link](https://t.me/verdictumlegalupdates/25707)
+
+---
+
+### 2026-03-02T05:12:18+00:00
+Perjury Cannot Be Invoked On Mere Suspicion in Commercial Suits: Delhi HC Allows Britannia to Amend ‘GOOD DAY’ Trademark Plaint
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/britannia-industries-ltd-v-desi-bites-snacks-p-ltd-2026dhc1826-britannia-good-day-commercial-suit-trademark-1609049
+
+[Source Link](https://t.me/verdictumlegalupdates/25706)
+
+---
+
+### 2026-03-02T04:32:47+00:00
+District Magistrate Showed Casual Approach Towards Fundamental Right Of Personal Liberty: Jammu & Kashmir and Ladakh High Court Quashes Detention Order
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/muzaffar-farooq-mir-v-ut-of-j-k-hcp-no-972025-1609009
+
+[Source Link](https://t.me/verdictumlegalupdates/25705)
 
 ---
 
@@ -129,38 +161,6 @@ Bombay High Court Orders MSRTC To Pay ₹50L Compensation To Widow Of Deceased T
 https://www.verdictum.in/court-updates/supreme-court/2026bhcas9734db-sunita-bapu-jagtap-v-chairman-maharashtra-state-road-transport-1608966
 
 [Source Link](https://t.me/verdictumlegalupdates/25689)
-
----
-
-### 2026-02-28T08:53:03+00:00
-Magistrate Cannot Return Complaint For Want Of Accused’s Postal Address: Kerala HC
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/anagh-v-state-of-kerala-2026ker16819-cyber-crime-address-magistrate-private-complaint-1608964
-
-[Source Link](https://t.me/verdictumlegalupdates/25688)
-
----
-
-### 2026-02-28T08:12:22+00:00
-Not Every Insult Is An Offence Under SC-ST Act: Gujarat High Court Upholds Acquittal
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/state-of-gujarat-v-thakor-talaji-kunwarji-expired-abated-ors-ghc-1608959
-
-[Source Link](https://t.me/verdictumlegalupdates/25687)
-
----
-
-### 2026-02-28T07:33:20+00:00
-Date Of Commencement Of Limitation Period U/S.469 CrPC Is Date Of Knowledge Of Police Officer: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/bachu-singh-v-cbi-2026dhc1635-limitation-section-469-crpc-knowledge-police-officer-1608955
-
-[Source Link](https://t.me/verdictumlegalupdates/25686)
-
----
-
-### 2026-02-28T06:52:19+00:00
-Resolution Professional’s Actions Based On CoC’s Instructions Cannot Be Termed 'Material Irregularity' U/S 61(3)(ii) IBC: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/torrent-power-limited-v-ashish-arjunkumar-rathi-ors-2026-insc-206-irregularity-1608946
-
-[Source Link](https://t.me/verdictumlegalupdates/25685)
 
 ---
 
