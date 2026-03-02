@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-02T03:32:59+00:00*
+*Last Updated: 2026-03-02T09:04:06+00:00*
 
 ---
 
-### 2026-03-02T03:32:59+00:00
-Karnataka High Court Monthly Digest: February 2026
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-monthly-digest-february-2026-525080
+### 2026-03-02T09:04:06+00:00
+AI Summit Protest: Delhi Court Grants Bail To 9 Indian Youth Congress Workers; Says Protest Was 'Political Critique'
+https://www.livelaw.in/news-updates/ai-summit-protest-political-critique-9-accused-get-bail-525132
 
-[Read on Telegram](https://t.me/livelawindia/106165)
-
----
-### 2026-03-02T03:58:39+00:00
-Referring To Someone By Their Profession Doesn't Attract SC/ST Act Offence If No Intent To Humiliate: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-dhobin-profession-sc-st-act-offence-intent-humiliate-525089
-
-[Read on Telegram](https://t.me/livelawindia/106166)
+[Read on Telegram](https://t.me/livelawindia/106189)
 
 ---
-### 2026-03-02T04:02:39+00:00
-S.135(C) Gujarat Land Revenue Code | Revenue Authorities Must Mutate Entry When Based On Registered Sale Deed: High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-revenue-authorities-registered-sale-deed-525081
+### 2026-03-02T09:32:26+00:00
+'Can't Be Harassed': MP High Courts Directs Return Of NEET-PG Candidate's Original Documents Withheld Over Technicalities
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-directs-return-of-original-document-in-contempt-petition-by-neet-pg-candidate-525123
 
-[Read on Telegram](https://t.me/livelawindia/106167)
-
----
-### 2026-03-02T04:26:59+00:00
-Senior Consultant (Legal - AIF) Vacancy At National Pension System Trust
-https://www.livelaw.in/job-updates/senior-consultant-legal-aif-vacancy-at-national-pension-system-trust-525091
-
-[Read on Telegram](https://t.me/livelawindia/106168)
+[Read on Telegram](https://t.me/livelawindia/106190)
 
 ---
-### 2026-03-02T04:32:29+00:00
-Punjab & Haryana High Court Treats Disabled Petitioner's Plea Seeking Accessible Housing As PIL
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-treats-plea-by-60-disabled-petitioner-seeking-accessible-housing-as-pil-525082
+### 2026-03-02T09:35:46+00:00
+Welfare Is Policy, Timing Is Politics - Why Supreme Court Must Lay Down Guidelines On Direct Cash Benefit Transfers And Freebies
+https://www.livelaw.in/articles/supreme-court-guidelines-direct-cash-benefit-transfers-election-freebies-525137
 
-[Read on Telegram](https://t.me/livelawindia/106169)
-
----
-### 2026-03-02T04:39:09+00:00
-Analyst (Compliance Review) Vacancy At KPMG India [Noida; Apply Now]
-https://www.livelaw.in/job-updates/analyst-compliance-review-vacancy-at-kpmg-india-noida-525092
-
-[Read on Telegram](https://t.me/livelawindia/106170)
+[Read on Telegram](https://t.me/livelawindia/106191)
 
 ---
-### 2026-03-02T04:40:49+00:00
-Empanelment Of Advocates At Employees' Provident Fund Organisation (EPFO)
-https://www.livelaw.in/job-updates/empanelment-of-advocates-at-employees-provident-fund-organisation-epfo-525093
+### 2026-03-02T09:46:46+00:00
+Madhya Pradesh SLSA Conducts State-Level Training For Referral Judges Under 'Mediation For Nation Campaign 2.0'
+https://www.livelaw.in/events/madhya-pradesh-slsa-conducts-state-level-training-referral-judges-mediation-nation-campaign-20-525139
 
-[Read on Telegram](https://t.me/livelawindia/106171)
-
----
-### 2026-03-02T04:42:29+00:00
-Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
-https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-525094
-
-[Read on Telegram](https://t.me/livelawindia/106172)
+[Read on Telegram](https://t.me/livelawindia/106192)
 
 ---
-### 2026-03-02T04:48:09+00:00
-Democratic Process Can't Be Curbed Unreasonably: Karnataka High Court Asks Police To Permit Use Of Loudspeakers For Trade Union's Campaign
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-loudspeaker-use-trade-union-campaign-protest-525083
+### 2026-03-02T09:48:06+00:00
+'Govt Acted Fairly': Madras High Court Dismisses Villagers' Plea Against Eviction For Madurai Airport Expansion
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-aiport-eviction-proceeding-challenge-dismissed-525136
 
-[Read on Telegram](https://t.me/livelawindia/106173)
-
----
-### 2026-03-02T05:00:29+00:00
-Bench On Trial: From Real Trial To The Social Media Trial
-https://www.livelaw.in/lawschool/articles/real-trial-social-media-trial-525096
-
-[Read on Telegram](https://t.me/livelawindia/106174)
+[Read on Telegram](https://t.me/livelawindia/106193)
 
 ---
-### 2026-03-02T05:03:09+00:00
-Delhi High Court Weekly Round-Up: February 23 To March 01, 2026
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-weekly-round-up-february-23-to-march-01-2026-525084
+### 2026-03-02T10:02:16+00:00
+International Digital Dispute Resolution Centre (IDDRC) Inaugurated At NFSU Gandhinagar By CJI Surya Kant
+https://www.livelaw.in/news-updates/international-digital-dispute-resolution-centre-iddrc-inaugurated-nfsu-gandhinagar-cji-surya-kant-525140
 
-[Read on Telegram](https://t.me/livelawindia/106175)
-
----
-### 2026-03-02T05:05:49+00:00
-BREAKING | Supreme Court Flags Trial Court Citing “AI-Generated Fake Judgments”, Terms It Misconduct
-https://www.livelaw.in/top-stories/supreme-court-flags-trial-court-citing-ai-generated-fake-judgments-terms-it-misconduct-525097
-
-[Read on Telegram](https://t.me/livelawindia/106176)
+[Read on Telegram](https://t.me/livelawindia/106194)
 
 ---
-### 2026-03-02T05:09:49+00:00
-Maharashtra State Commission Holds HP Employees' Co-operative Credit Society Liable For Deficiency In Service For Enforcing Undisclosed Restriction On Premature Withdrawal Of Deposit
-https://www.livelaw.in/consumer-cases/maharashtra-state-commission-holds-hp-employees-co-operative-credit-society-liable-for-deficiency-in-service-for-enforcing-undisclosed-restriction-on-prema-ure-withdrawal-of-deposit-525099
+### 2026-03-02T10:02:56+00:00
+'Never Bothered About Fate Of School Children': Orissa High Court Upholds Removal Of Teacher For 7 Yrs Unauthorized Absence
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-removal-school-teacher-unauthorized-absence-525134
 
-[Read on Telegram](https://t.me/livelawindia/106177)
-
----
-### 2026-03-02T05:17:29+00:00
-Gujarat High Court Acquits Cop In 50-Year-Old Custodial Torture Case Citing State's Failure To Prove Illegal Confinement & Assault
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-custodial-torture-case-illegal-confinement-assault-525086
-
-[Read on Telegram](https://t.me/livelawindia/106178)
+[Read on Telegram](https://t.me/livelawindia/106195)
 
 ---
-### 2026-03-02T05:31:19+00:00
-'Surya Kumar Yadav Not Expected To Bowl Death Overs' : CJI Surya Kant Uses T20 Analogy, Stresses On Specialisation By Lawyers
-https://www.livelaw.in/top-stories/surya-kumar-yadav-not-expected-to-bowl-death-overs-cji-surya-kant-uses-t20-analogy-stresses-on-specialisation-by-lawyers-525101
+### 2026-03-02T10:22:36+00:00
+Can Advocates Residing In NCR Be Allotted Chambers In Delhi District Courts? High Court Refers Issue To Portfolio Committee
+https://www.livelaw.in/high-court/delhi-high-court/can-advocates-residing-in-ncr-be-allotted-chambers-in-delhi-district-courts-high-court-refers-issue-to-portfolio-committee-525145
 
-[Read on Telegram](https://t.me/livelawindia/106179)
-
----
-### 2026-03-02T05:33:19+00:00
-'Judicial Murder': Allahabad High Court Orders Administrative Action Against Trial Judge For Causing Illegal Gain To Party In Title Dispute
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-administrative-action-against-civil-judge-525102
-
-[Read on Telegram](https://t.me/livelawindia/106180)
+[Read on Telegram](https://t.me/livelawindia/106196)
 
 ---
-### 2026-03-02T05:51:29+00:00
-Project Manager Vacancy At Indian Institute Of Technology, Kanpur
-https://www.livelaw.in/job-updates/project-manager-vacancy-at-indian-institute-of-technology-kanpur-525104
+### 2026-03-02T10:32:36+00:00
+Arms Licenses Scam | J&K&L High Court Directs MHA To File Fresh Affidavit On Sanction To Prosecute 8 IAS Officers
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-arms-licenses-scam-court-directs-mha-to-file-fresh-affidavit-on-sanction-to-prosecute-8-ias-officers-525127
 
-[Read on Telegram](https://t.me/livelawindia/106181)
-
----
-### 2026-03-02T06:02:29+00:00
-Fraudulent Mutation Entry Is A 'Nullity'; Limitation Begins From Knowledge Of Fraud: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-challenge-fraudulent-land-mutation-fraud-525087
-
-[Read on Telegram](https://t.me/livelawindia/106182)
+[Read on Telegram](https://t.me/livelawindia/106197)
 
 ---
-### 2026-03-02T06:05:49+00:00
-Tamil Nadu AG Refuses Consent To Initiate Contempt Proceedings Against Former Judge For Remarks On Justice GR Swaminathan
-https://www.livelaw.in/news-updates/tn-ag-refuses-sanction-contempt-against-former-judge-comment-gr-swaminathan-525106
+### 2026-03-02T10:47:56+00:00
+Kannur Infanticide Case: Kerala High Court Calls For Sessions Court's Opinion On Reference To Govt For Remission Of Sentence
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-saranya-valsaraj-infanticide-taliparamba-525125
 
-[Read on Telegram](https://t.me/livelawindia/106183)
+[Read on Telegram](https://t.me/livelawindia/106198)
 
 ---
-### 2026-03-02T07:02:26+00:00
-Karnataka High Court Weekly Round-Up: February 23 - March 1, 2026
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-round-up-525085
+### 2026-03-02T11:02:32+00:00
+Madras High Court Weekly Round-Up: February 23 to March 1, 2026
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-february-23-to-march-1-2026-525108
 
-[Read on Telegram](https://t.me/livelawindia/106184)
+[Read on Telegram](https://t.me/livelawindia/106199)
+
+---
+### 2026-03-02T11:28:12+00:00
+Kerala High Court Refers St. Mary's Basilica Issue For Mediation
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-refers-st-marys-basilica-issue-for-mediation-525153
+
+[Read on Telegram](https://t.me/livelawindia/106200)
+
+---
+### 2026-03-02T11:32:52+00:00
+Order XI Rule 1(5) CPC Gives Court Discretion To Accept Delayed Documents On Showing Reasonable Cause: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/order-xi-rule-15-cpc-gives-court-discretion-to-accept-delayed-documents-on-showing-reasonable-cause-calcutta-high-court-525146
+
+[Read on Telegram](https://t.me/livelawindia/106201)
+
+---
+### 2026-03-02T11:46:12+00:00
+Mega Legal Services Camp Organised By DSLSA In Mangolpur Kalan; Over 800 Beneficiaries Attend
+https://www.livelaw.in/news-updates/mega-legal-services-camp-organised-by-dslsa-in-mangolpur-kalan-over-800-beneficiaries-attend-525156
+
+[Read on Telegram](https://t.me/livelawindia/106202)
+
+---
+### 2026-03-02T11:47:52+00:00
+Kerala High Court Admits IMA, IAPMR Appeals Against Order Allowing Physiotherapists To Use 'Dr.' Prefix
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-dr-prefix-appeals-ima-iapmr-525155
+
+[Read on Telegram](https://t.me/livelawindia/106203)
+
+---
+### 2026-03-02T11:53:02+00:00
+Jammu & Kashmir And Ladakh High Court Weekly Roundup February 22 - March 1, 2026
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-weekly-roundup-feb-22-march-1-2026-525124
+
+[Read on Telegram](https://t.me/livelawindia/106204)
+
+---
+### 2026-03-02T11:59:22+00:00
+Karnataka High Court Extends Order Staying Coercive Steps Against Actor Ranveer Singh Booked Over 'Kantara' Movie Mimicry
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-ranveer-singh-kantara-movie-mimicry-525161
+
+[Read on Telegram](https://t.me/livelawindia/106205)
+
+---
+### 2026-03-02T12:06:22+00:00
+“No Application Of Mind”: Delhi High Court Stays Sessions Court Order Halting Bail To Uday Bhanu Chib In AI Summit Protest Case
+https://www.livelaw.in/high-court/delhi-high-court/no-application-of-mind-delhi-high-court-stays-sessions-court-order-halting-bail-to-uday-bhanu-chib-in-ai-summit-protest-case-525162
+
+[Read on Telegram](https://t.me/livelawindia/106206)
+
+---
+### 2026-03-02T12:52:33+00:00
+Mental Healthcare Act | Patna High Court Takes Suo Motu Cognisance Of “Shortcomings” In Bihar's Mental Health Facilities, Seeks Report
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-suo-motu-cognizance-bihar-mental-health-facilities-525143
+
+[Read on Telegram](https://t.me/livelawindia/106207)
+
+---
+### 2026-03-02T13:02:13+00:00
+Kerala High Court Weekly Round-Up : February 23 - March 1, 2026
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-february-march-2026-weekly-525135
+
+[Read on Telegram](https://t.me/livelawindia/106208)
 
 ---
