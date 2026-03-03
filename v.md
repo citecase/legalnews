@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-03T06:02:39+00:00*
+*Last Updated: 2026-03-03T13:33:05+00:00*
+
+---
+
+### 2026-03-03T13:33:05+00:00
+Borrower Driving Insured Vehicle Steps Into Owner’s Shoes; No Compensation U/S 163A: Gujarat High Court
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/manjuben-alias-manjulaben-shantilal-garasia-v-sirajbhai-imamuddin-luhar-2026gujhc13229-borrower-insured-vehicle-third-party-1609142
+
+[Source Link](https://t.me/verdictumlegalupdates/25726)
+
+---
+
+### 2026-03-03T12:03:04+00:00
+Delhi High Court Quashes Cheating Case Against Central Bank Of India's Officials, Says Dispute Over ₹58 Lakh Settlement Adjustment Is Purely Civil
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/2026dhc1584-mahender-singh-v-state-govt-of-nct-of-delhi-1609140
+
+[Source Link](https://t.me/verdictumlegalupdates/25725)
+
+---
+
+### 2026-03-03T10:32:23+00:00
+No Automatic Remand After Arbitral Award Is Set Aside U/S 34 Arbitration Act: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/raghavan-vt-v-union-of-india-2026ker10961-arbitral-award-remand-section-34-arbitration-1609138
+
+[Source Link](https://t.me/verdictumlegalupdates/25724)
+
+---
+
+### 2026-03-03T09:02:21+00:00
+Modified Land Claims Cannot Circumvent Final Orders; Res Judicata Applies To MOFA Deemed Conveyance Proceedings: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/magnum-unit-a-chs-limited-v-the-state-of-maharashtra-2026bhc-as9335-deemed-conveyance-res-judicata-mofa-1609091
+
+[Source Link](https://t.me/verdictumlegalupdates/25723)
+
+---
+
+### 2026-03-03T07:33:00+00:00
+Fraud Vitiates Revenue Proceedings; Delay Cannot Defeat Rights When Knowledge Is Later Acquired: Gujarat High Court
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/suleiman-ahmed-minty-v-state-of-gujarat-2026gujhc14448-mutation-delay-suppressing-facts-revenue-proceedings-1609090
+
+[Source Link](https://t.me/verdictumlegalupdates/25722)
 
 ---
 
@@ -121,46 +161,6 @@ Liability To Pay Penalty Imposed Under Employees Compensation Act Cannot Be Fast
 https://www.verdictum.in/court-updates/supreme-court/new-india-assurance-co-ltd-v-rekha-chaudhary-ors-2026-insc-177-1609050
 
 [Source Link](https://t.me/verdictumlegalupdates/25707)
-
----
-
-### 2026-03-02T05:12:18+00:00
-Perjury Cannot Be Invoked On Mere Suspicion in Commercial Suits: Delhi HC Allows Britannia to Amend ‘GOOD DAY’ Trademark Plaint
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/britannia-industries-ltd-v-desi-bites-snacks-p-ltd-2026dhc1826-britannia-good-day-commercial-suit-trademark-1609049
-
-[Source Link](https://t.me/verdictumlegalupdates/25706)
-
----
-
-### 2026-03-02T04:32:47+00:00
-District Magistrate Showed Casual Approach Towards Fundamental Right Of Personal Liberty: Jammu & Kashmir and Ladakh High Court Quashes Detention Order
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/muzaffar-farooq-mir-v-ut-of-j-k-hcp-no-972025-1609009
-
-[Source Link](https://t.me/verdictumlegalupdates/25705)
-
----
-
-### 2026-03-01T15:02:47+00:00
-Young Professional Vacancy At EdCIL (India) Limited
-https://www.verdictum.in/job-updates/ministry-of-education-1608977
-
-[Source Link](https://t.me/verdictumlegalupdates/25704)
-
----
-
-### 2026-03-01T13:33:05+00:00
-De Facto Marriage Entitles Woman To Maintenance Under Domestic Violence Act Despite Absence Of Formal Proof Of Marriage: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/x-v-y-2026bhc-aug6648-de-facto-marriage-woman-maintenance-dv-act-1609008
-
-[Source Link](https://t.me/verdictumlegalupdates/25703)
-
----
-
-### 2026-03-01T12:03:04+00:00
-Additional Documents Can Be Disclosed Even At Argument Stage If Reasonable Cause Is Shown: Calcutta High Court
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/usha-martin-limited-vs-balurghat-technologies-limited-1609005
-
-[Source Link](https://t.me/verdictumlegalupdates/25702)
 
 ---
 
