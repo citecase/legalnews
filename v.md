@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-03T13:33:05+00:00*
+*Last Updated: 2026-03-03T15:02:46+00:00*
+
+---
+
+### 2026-03-03T15:02:46+00:00
+Central Electricity Regulatory Commission Invites Applications For the Post Of Joint Chief (Legal)
+https://www.verdictum.in/job-updates/central-electricity-regulatory-commission-cerc-1609084
+
+[Source Link](https://t.me/verdictumlegalupdates/25727)
 
 ---
 
@@ -153,14 +161,6 @@ Police Requisitions Must Not Paralyse Banking Operations; Co-operative Banks Bou
 https://www.verdictum.in/court-updates/high-courts/kerala-high-court/ms-kunnamangalam-co-operative-rural-bank-ltd-v-inspector-of-police-2026ker15537-bank-free-mirror-account-cooperative-bank-1609057
 
 [Source Link](https://t.me/verdictumlegalupdates/25708)
-
----
-
-### 2026-03-02T06:02:25+00:00
-Liability To Pay Penalty Imposed Under Employees Compensation Act Cannot Be Fastened On Insurance Company Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/new-india-assurance-co-ltd-v-rekha-chaudhary-ors-2026-insc-177-1609050
-
-[Source Link](https://t.me/verdictumlegalupdates/25707)
 
 ---
 
