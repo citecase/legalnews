@@ -1,107 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-02T10:47:56+00:00*
+*Last Updated: 2026-03-02T13:52:24+00:00*
 
 ---
 
-### 2026-03-02T10:47:56+00:00
-Kannur Infanticide Case: Kerala High Court Calls For Sessions Court's Opinion On Reference To Govt For Remission Of Sentence
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-saranya-valsaraj-infanticide-taliparamba-525125
-
-[Read on Telegram](https://t.me/livelawindia/106198)
-
----
-### 2026-03-02T11:02:32+00:00
-Madras High Court Weekly Round-Up: February 23 to March 1, 2026
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-february-23-to-march-1-2026-525108
-
-[Read on Telegram](https://t.me/livelawindia/106199)
-
----
-### 2026-03-02T11:28:12+00:00
-Kerala High Court Refers St. Mary's Basilica Issue For Mediation
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-refers-st-marys-basilica-issue-for-mediation-525153
-
-[Read on Telegram](https://t.me/livelawindia/106200)
-
----
-### 2026-03-02T11:32:52+00:00
-Order XI Rule 1(5) CPC Gives Court Discretion To Accept Delayed Documents On Showing Reasonable Cause: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/order-xi-rule-15-cpc-gives-court-discretion-to-accept-delayed-documents-on-showing-reasonable-cause-calcutta-high-court-525146
-
-[Read on Telegram](https://t.me/livelawindia/106201)
-
----
-### 2026-03-02T11:46:12+00:00
-Mega Legal Services Camp Organised By DSLSA In Mangolpur Kalan; Over 800 Beneficiaries Attend
-https://www.livelaw.in/news-updates/mega-legal-services-camp-organised-by-dslsa-in-mangolpur-kalan-over-800-beneficiaries-attend-525156
-
-[Read on Telegram](https://t.me/livelawindia/106202)
-
----
-### 2026-03-02T11:47:52+00:00
-Kerala High Court Admits IMA, IAPMR Appeals Against Order Allowing Physiotherapists To Use 'Dr.' Prefix
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-dr-prefix-appeals-ima-iapmr-525155
-
-[Read on Telegram](https://t.me/livelawindia/106203)
-
----
-### 2026-03-02T11:53:02+00:00
-Jammu & Kashmir And Ladakh High Court Weekly Roundup February 22 - March 1, 2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-weekly-roundup-feb-22-march-1-2026-525124
-
-[Read on Telegram](https://t.me/livelawindia/106204)
-
----
-### 2026-03-02T11:59:22+00:00
-Karnataka High Court Extends Order Staying Coercive Steps Against Actor Ranveer Singh Booked Over 'Kantara' Movie Mimicry
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-ranveer-singh-kantara-movie-mimicry-525161
-
-[Read on Telegram](https://t.me/livelawindia/106205)
-
----
-### 2026-03-02T12:06:22+00:00
-“No Application Of Mind”: Delhi High Court Stays Sessions Court Order Halting Bail To Uday Bhanu Chib In AI Summit Protest Case
-https://www.livelaw.in/high-court/delhi-high-court/no-application-of-mind-delhi-high-court-stays-sessions-court-order-halting-bail-to-uday-bhanu-chib-in-ai-summit-protest-case-525162
-
-[Read on Telegram](https://t.me/livelawindia/106206)
-
----
-### 2026-03-02T12:52:33+00:00
-Mental Healthcare Act | Patna High Court Takes Suo Motu Cognisance Of “Shortcomings” In Bihar's Mental Health Facilities, Seeks Report
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-suo-motu-cognizance-bihar-mental-health-facilities-525143
-
-[Read on Telegram](https://t.me/livelawindia/106207)
-
----
-### 2026-03-02T13:02:13+00:00
-Kerala High Court Weekly Round-Up : February 23 - March 1, 2026
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-february-march-2026-weekly-525135
-
-[Read on Telegram](https://t.me/livelawindia/106208)
-
----
-### 2026-03-02T13:11:44+00:00
-'No Free Hand Available To State To Deal With Data As They Like': Petitioners Tell Kerala High Court In CMO Bulk Messaging Issue
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-cmo-bulk-messaging-525169
-
-[Read on Telegram](https://t.me/livelawindia/106209)
-
----
-### 2026-03-02T13:16:44+00:00
-'No Useful Purpose Would Be Served': Orissa High Court Quashes Cruelty & Dowry Case Against Husband Citing Mutual Divorce
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-quashes-cruelty-dowry-case-husband-mutual-divorce-525173
-
-[Read on Telegram](https://t.me/livelawindia/106210)
-
----
-### 2026-03-02T13:33:04+00:00
-Jammu & Kashmir And Ladakh High Court Monthly Digest: February 2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-monthly-digest-february-2026-525126
-
-[Read on Telegram](https://t.me/livelawindia/106211)
-
----
 ### 2026-03-02T13:52:24+00:00
 Karnataka High Court Grants 3-Day Emergency Parole To Disabled Life Convict To Attend Sister's Wedding Event
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-emergency-parole-life-convict-sisters-wedding-525171
@@ -142,5 +44,103 @@ Jharkhand HC Upholds Labour Court's Power To Modify Punishment Even After Fair E
 https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-full-wages-consequential-benefits-workmans-family-525144
 
 [Read on Telegram](https://t.me/livelawindia/106217)
+
+---
+### 2026-03-03T03:01:49+00:00
+Minister Ragupathy Gave Mischievous Political Spin To Thiruparankundram Issue: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-thiruparankundram-deepam-contempt-minister-ragupathy-political-spin-525187
+
+[Read on Telegram](https://t.me/livelawindia/106218)
+
+---
+### 2026-03-03T03:33:19+00:00
+Gujarat High Court Monthly Digest: February 2026
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-monthly-digest-525109
+
+[Read on Telegram](https://t.me/livelawindia/106219)
+
+---
+### 2026-03-03T04:02:19+00:00
+Kerala High Court Directs Chief Secretary To File Comprehensive Roadmap To Tackle Human-Wildlife Conflict In Aralam And Wayanad
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-chief-secretary-roadmap-human-wildlife-conflict-aralam-wayanad-525170
+
+[Read on Telegram](https://t.me/livelawindia/106220)
+
+---
+### 2026-03-03T04:31:09+00:00
+Progress: The Great Lie That Is Destroying Us All
+https://www.livelaw.in/articles/progress-civilastion-525192
+
+[Read on Telegram](https://t.me/livelawindia/106221)
+
+---
+### 2026-03-03T04:33:09+00:00
+S.63AA Gujarat Tenancy & Agricultural Lands Act | Collector Can't Deny Industrial Land Use Certificate Over Technical Defects: High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-industrial-land-use-certificate-technical-defects-525168
+
+[Read on Telegram](https://t.me/livelawindia/106222)
+
+---
+### 2026-03-03T04:34:09+00:00
+Senior Consultant (Credit Business & Operations) Vacancy At Daman & Diu State Co-operative Bank Limited
+https://www.livelaw.in/job-updates/senior-consultant-credit-business-operations-vacancy-at-daman-diu-state-co-operative-bank-limited-525193
+
+[Read on Telegram](https://t.me/livelawindia/106223)
+
+---
+### 2026-03-03T04:35:29+00:00
+Centre Administrator, Para Legal Personnel /Lawyer, And Case Workers Vacancy At One Stop Center Tanuku, West Godavari District
+https://www.livelaw.in/job-updates/centre-administrator-para-legal-personnel-lawyer-and-case-workers-vacancy-at-one-stop-center-tanuku-west-godavari-district-525194
+
+[Read on Telegram](https://t.me/livelawindia/106224)
+
+---
+### 2026-03-03T04:37:09+00:00
+Consultant B (Legal) Vacancy At National Biodiversity Authority
+https://www.livelaw.in/job-updates/consultant-b-legal-vacancy-at-national-biodiversity-authority-525196
+
+[Read on Telegram](https://t.me/livelawindia/106225)
+
+---
+### 2026-03-03T04:38:29+00:00
+Deputy Project Manager Vacancy At Indian Institute Of Technology, Kanpur
+https://www.livelaw.in/job-updates/deputy-project-manager-vacancy-at-indian-institute-of-technology-kanpur-525197
+
+[Read on Telegram](https://t.me/livelawindia/106226)
+
+---
+### 2026-03-03T04:47:56+00:00
+Calcutta High Court Cancels Bail Of POCSO Accused, Flags Trial Court's 'Mechanical' Grant Of Bail Once Chargesheet Was Filed
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-cancels-bail-of-pocso-accused-flags-trial-courts-mechanical-grant-of-bail-once-chargesheet-was-filed-525186
+
+[Read on Telegram](https://t.me/livelawindia/106227)
+
+---
+### 2026-03-03T05:02:56+00:00
+Financial Discipline Of Devaswom Board 'Below Par': Kerala High Court Directs Production Of Global Ayyappa Sangamam Records
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-travancore-devaswom-global-ayyappa-sangamam-525195
+
+[Read on Telegram](https://t.me/livelawindia/106228)
+
+---
+### 2026-03-03T05:05:16+00:00
+Supreme Court Weekly Digest January 11 - 20, 2026
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-weekly-digest-january-2026-525201
+
+[Read on Telegram](https://t.me/livelawindia/106229)
+
+---
+### 2026-03-03T05:17:36+00:00
+High Court Issues Notice On PIL Against Rajasthan Land Revenue Amendment Act, Actions Under Section 100A Subject To Final Outcome
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-issues-notice-riico-rajasthan-land-revenue-act2025-525199
+
+[Read on Telegram](https://t.me/livelawindia/106230)
+
+---
+### 2026-03-03T06:32:26+00:00
+Single-Use Plastic Ban: Rajasthan High Court Seeks Response Of Excise Department In PIL Over Tender For 36-Micron Plastic Liquor Labels
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-36micron-plastic-hologram-tender-plastic-waste-rules-525200
+
+[Read on Telegram](https://t.me/livelawindia/106231)
 
 ---
