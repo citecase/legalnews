@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-02T15:02:51+00:00*
+*Last Updated: 2026-03-03T06:02:39+00:00*
+
+---
+
+### 2026-03-03T06:02:39+00:00
+"Denial Of Reasonable Opportunity": Chhattisgarh High Court Remits Matter After Labour Court Proceeded Ex-Parte On Same Day While Service Report Was Still Awaited
+https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/2026cghc10349-jindal-steel-and-power-v-umesh-kumar-chauhan-1609089
+
+[Source Link](https://t.me/verdictumlegalupdates/25721)
+
+---
+
+### 2026-03-03T04:33:07+00:00
+Judicial Officer Discharging Judicial Functions Outranks District Magistrate, Police Chief And Political Head Of State: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/sanu-rashid-v-state-of-uttar-pradesh-judicial-officers-contempt-courts-1609088
+
+[Source Link](https://t.me/verdictumlegalupdates/25720)
 
 ---
 
@@ -145,22 +161,6 @@ Additional Documents Can Be Disclosed Even At Argument Stage If Reasonable Cause
 https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/usha-martin-limited-vs-balurghat-technologies-limited-1609005
 
 [Source Link](https://t.me/verdictumlegalupdates/25702)
-
----
-
-### 2026-03-01T10:32:42+00:00
-Registration Certificate Under Partnership Act Not An ‘Order’; Registrar Cannot Invoke Section 21 General Clauses Act To Cancel It: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/universal-promoters-and-developers-v-government-of-nct-of-delhi-2026dhc1778-1609006
-
-[Source Link](https://t.me/verdictumlegalupdates/25701)
-
----
-
-### 2026-03-01T09:02:41+00:00
-Madras High Court Orders CBI Probe Into Fake No Objection Certificates Used To Obtain Petroleum Retail Outlet Licences
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/vbr-menon-v-chief-controller-of-explosives-ors-petroleum-retail-1609004
-
-[Source Link](https://t.me/verdictumlegalupdates/25700)
 
 ---
 
