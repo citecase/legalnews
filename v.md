@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-04T06:02:58+00:00*
+*Last Updated: 2026-03-04T13:32:25+00:00*
+
+---
+
+### 2026-03-04T13:32:25+00:00
+Alleged Delinquency Could Be Driven By Probabilities Of Case & It Need Not Be Proved By Strict Proof Of Evidence: Madras High Court
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/union-of-india-v-bshankar-kumar-alleged-delinquency-probabilities-strict-proof-of-evidence-1609210
+
+[Source Link](https://t.me/verdictumlegalupdates/25734)
+
+---
+
+### 2026-03-04T12:02:24+00:00
+Allahabad High Court Directs Action Against Cops For 20 Hour Delay In Releasing Accused After Direction
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/sachin-arya-sachin-bhartiya-v-state-of-uttar-pradesh-action-cops-court-order-gap-arrest-guidelines-1609162
+
+[Source Link](https://t.me/verdictumlegalupdates/25733)
+
+---
+
+### 2026-03-04T10:32:22+00:00
+Campaign To Create Awareness A Facet Of Democratic Process: Karnataka HC Permits Trade Union To Use Autorickshaws With Loudspeakers For Campaigning
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/shri-naveen-r-v-centre-for-indian-trade-unions-2026khc8173-campaign-awareness-democratic-process-1609161
+
+[Source Link](https://t.me/verdictumlegalupdates/25732)
+
+---
+
+### 2026-03-04T09:02:21+00:00
+Merely Calling Somebody By Profession Won’t By Itself Attract Provisions Of SC/ST Act: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/harshit-honey-v-state-of-up-2026ahc40988-calling-somebody-by-profession-scst-act-1609160
+
+[Source Link](https://t.me/verdictumlegalupdates/25731)
+
+---
+
+### 2026-03-04T07:32:39+00:00
+Never Bothered About Fate Of Children: Orissa High Court Dismisses Teacher’s Appeal Against Her Disengagement Over 7 Years Of Unauthorised Absence
+https://www.verdictum.in/court-updates/high-courts/orissa-high-court/suchitra-mohapatra-v-state-of-odisha-fate-children-teacher-appeal-disengagement-unauthorised-absence-1609157
+
+[Source Link](https://t.me/verdictumlegalupdates/25730)
 
 ---
 
@@ -121,46 +161,6 @@ Courts Cannot Show Undue Leniency In UAPA: Kerala High Court Denies Bail To Sri 
 https://www.verdictum.in/court-updates/high-courts/kerala-high-court/ly-nandana-v-union-of-india-2025ker88273-uapa-sri-lanka-heroine-arms-seizure-narco-terrorism-1609077
 
 [Source Link](https://t.me/verdictumlegalupdates/25715)
-
----
-
-### 2026-03-02T11:22:45+00:00
-Audit Reports & Inquiry Orders Under Cooperative Societies Act Are "Preparatory Steps", Not Amenable To Revisional Jurisdiction: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/2026bhcas9333-shivkrupa-sahakari-patpedhi-v-state-of-maharashtra-1609076
-
-[Source Link](https://t.me/verdictumlegalupdates/25714)
-
----
-
-### 2026-03-02T10:32:43+00:00
-Confession In Police Custody Inadmissible Even If It Was Made Before Registration Of FIR: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/smt-seema-gupta-v-state-of-up-along-with-connected-appeal-2026ahc31529-db-1609074
-
-[Source Link](https://t.me/verdictumlegalupdates/25713)
-
----
-
-### 2026-03-02T09:53:02+00:00
-Hymen Rupture Or Vaginal Injury Not Essential Ingredient: Kerala High Court Upholds POCSO Conviction
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/noufal-v-state-of-kerala-2026ker17084-hymen-rupture-not-essential-prove-penetrative-sexual-assault-1609073
-
-[Source Link](https://t.me/verdictumlegalupdates/25712)
-
----
-
-### 2026-03-02T09:02:21+00:00
-If Appropriate Consequential Relief Is Not Sought Along With Declaration, Plaintiff Must Be Granted An Opportunity To Amend Plaint: Karnataka High Court
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/taj-parveen-v-ezazulla-shariff-rsa-no-1657-of-2013-section-34-specific-relief-declaration-suit-possession-1609068
-
-[Source Link](https://t.me/verdictumlegalupdates/25711)
-
----
-
-### 2026-03-02T08:12:19+00:00
-Refusal Of Internal Medical Examination Of Minor Victim By Her Parent Cannot By Itself Defeat Prosecution If Her Testimony Is Credible: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/vikas-v-state-anr-2026dhc1757-db-pocso-act-section-29-medical-evidence-1609066
-
-[Source Link](https://t.me/verdictumlegalupdates/25710)
 
 ---
 
