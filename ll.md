@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-03T08:21:46+00:00*
+*Last Updated: 2026-03-03T12:54:00+00:00*
 
 ---
 
-### 2026-03-03T08:21:46+00:00
-Another PIL Moved In Kerala High Court Seeking Removal Of 'Kerala' From Film Title 'Kerala Story 2'
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kerala-story-2-pil-525215
-
-[Read on Telegram](https://t.me/livelawindia/106236)
-
----
-### 2026-03-03T09:32:18+00:00
-Delay In Lodging Complaint No Ground To Grant Acquittal: Karnataka High Court Upholds Order Convicting Man For Son-In-Law's Murder
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-delay-complaint-acquit-accused-525218
-
-[Read on Telegram](https://t.me/livelawindia/106237)
-
----
-### 2026-03-03T10:17:08+00:00
-Asset Reconstruction Companies In India: High-Handedness, Judicial Reckoning, And Regulatory Reform
-https://www.livelaw.in/articles/asset-reconstruction-companies-regulatory-reform-525230
-
-[Read on Telegram](https://t.me/livelawindia/106238)
-
----
-### 2026-03-03T10:32:48+00:00
-Siblings Not Entitled To Compensation For 'Loss Of Love' In Motor Accident Death Claims: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/siblings-not-entitled-separate-compensation-in-motor-accident-death-claims-525219
-
-[Read on Telegram](https://t.me/livelawindia/106239)
-
----
-### 2026-03-03T10:56:18+00:00
-16th Government Law College International Law Summit 2026 | Keynote Address, Lectures, Panel Discussion, JDC 2026 & TAC 2026
-https://www.livelaw.in/lawschool/news/16th-government-law-college-international-law-summit-2026-525233
-
-[Read on Telegram](https://t.me/livelawindia/106240)
-
----
-### 2026-03-03T11:32:30+00:00
-Supreme Court Monthly Digest: January 2026
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-monthly-digest-january-2026-525204
-
-[Read on Telegram](https://t.me/livelawindia/106241)
-
----
-### 2026-03-03T11:33:10+00:00
-S.12(5) DV Act | Disposal Of Domestic Violence Plea Within 60 Days Not Practical But Long Adjournments Must Be Avoided: Orissa High Court
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-decide-application-unnecessary-adjournments-pwdv-act-525220
-
-[Read on Telegram](https://t.me/livelawindia/106242)
-
----
-### 2026-03-03T11:48:30+00:00
-After Husband Agrees, Kerala HC Allows Correction Of Father's Name In Birth Certificate Of Child Born Out Of Extra-Marital Affair
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-allows-correction-of-fathers-name-in-birth-certificate-of-child-born-out-of-extra-marital-affair-525237
-
-[Read on Telegram](https://t.me/livelawindia/106243)
-
----
-### 2026-03-03T12:47:00+00:00
-Posts To Be Delivered To Family When Addressee Is Deceased: Madras High Court Asks Ministry For Clarity On Delivery To Legal Heirs
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-family-receive-postal-item-when-addressee-dead-525241
-
-[Read on Telegram](https://t.me/livelawindia/106244)
-
----
-### 2026-03-03T12:47:10+00:00
-GNLU To Organise 'Women At Work' International Conference On Women In The Unorganised Sector
-https://www.livelaw.in/lawschool/news/gnlu-organise-women-work-international-conference-women-unorganised-sector-525242
-
-[Read on Telegram](https://t.me/livelawindia/106245)
-
----
 ### 2026-03-03T12:54:00+00:00
 'No Material': Karnataka High Court Upholds Order Acquitting 8 Of Rioting Inside Mosque, Attacking Persons Offering Prayers
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-acquittal-rioting-mosque-attempt-to-murder-525244
@@ -142,5 +72,75 @@ Attorney General R. Venkataramani Highlights Significance Of Nari Shakti Vandan 
 https://www.livelaw.in/news-updates/attorney-general-r-venkataramani-highlights-significance-nari-shakti-vandan-adhiniyam-ili-symposium-525257
 
 [Read on Telegram](https://t.me/livelawindia/106255)
+
+---
+### 2026-03-04T03:16:33+00:00
+Judges Should Not Hesitate To Decide Rightly Even If It Costs Them Elevation Or Displeases Those In Power: Justice Nagarathna
+https://www.livelaw.in/top-stories/judges-should-not-hesitate-to-decide-rightly-even-if-it-costs-them-elevation-or-displeases-those-in-power-justice-nagarathna-525260
+
+[Read on Telegram](https://t.me/livelawindia/106256)
+
+---
+### 2026-03-04T03:32:53+00:00
+Kerala High Court Monthly Digest: February 2026 [Citation: 63 - 121 ]
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-monthly-digest-february-2026-525154
+
+[Read on Telegram](https://t.me/livelawindia/106257)
+
+---
+### 2026-03-04T04:19:26+00:00
+Assistant Editor Vacancy At Registry Of The Supreme Court Of India
+https://www.livelaw.in/job-updates/assistant-editor-vacancy-at-registry-of-the-supreme-court-of-india-525262
+
+[Read on Telegram](https://t.me/livelawindia/106258)
+
+---
+### 2026-03-04T04:20:46+00:00
+Joint Chief (Legal) Vacancy At Central Electricity Regulatory Commission
+https://www.livelaw.in/job-updates/joint-chief-legal-vacancy-at-central-electricity-regulatory-commission-525263
+
+[Read on Telegram](https://t.me/livelawindia/106259)
+
+---
+### 2026-03-04T04:21:46+00:00
+Chairperson Vacancy At Permanent Lok Adalats For Public Utility Services, Punjab
+https://www.livelaw.in/job-updates/chairperson-vacancy-at-permanent-lok-adalats-for-public-utility-services-punjab-525264
+
+[Read on Telegram](https://t.me/livelawindia/106260)
+
+---
+### 2026-03-04T04:23:26+00:00
+Centre Administrator (Women only), Para legal Personnel /lawyer, And Case Workers Vacancy At One Stop Centre, Kuppam
+https://www.livelaw.in/job-updates/centre-administrator-women-only-para-legal-personnel-lawyer-and-case-workers-vacancy-at-one-stop-centre-kuppam-525265
+
+[Read on Telegram](https://t.me/livelawindia/106261)
+
+---
+### 2026-03-04T04:43:56+00:00
+Supreme Court Rejects Ex-Chhattisgarh CM's Dy Secretary Saumya Chaurasia's Plea Against Sanction Notices In Tax Evasion Case
+https://www.livelaw.in/top-stories/supreme-court-saumya-chaurasia-plea-against-sanction-notices-income-tax-act-tax-evasion-case-dismissed-525268
+
+[Read on Telegram](https://t.me/livelawindia/106262)
+
+---
+### 2026-03-04T04:46:36+00:00
+“Intellectual Dishonesty” In The Dock: When Prosecution Withholds Truth From The Court
+https://www.livelaw.in/articles/prosecution-withholds-truth-court-525269
+
+[Read on Telegram](https://t.me/livelawindia/106263)
+
+---
+### 2026-03-04T04:54:36+00:00
+Supreme Court Issues Contempt Notice To 51 Delhi Hospitals Over Not Meeting Requirement Of Free Treatment To Weaker Sections
+https://www.livelaw.in/top-stories/supreme-court-contempt-notice-51-private-hospitals-free-treatment-weaker-sections-ipd-opd-dda-mcd-action-ldo-concession-rate-525270
+
+[Read on Telegram](https://t.me/livelawindia/106264)
+
+---
+### 2026-03-04T05:02:16+00:00
+Complete Supreme Court Annual Digest 2025 [Part-VIII]
+https://www.livelaw.in/supreme-court/complete-supreme-court-annual-digest-2025-525271
+
+[Read on Telegram](https://t.me/livelawindia/106265)
 
 ---
