@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-03T15:02:46+00:00*
+*Last Updated: 2026-03-04T06:02:58+00:00*
+
+---
+
+### 2026-03-04T06:02:58+00:00
+Delhi High Court Asks Portfolio Committees To Review NCR Residency Condition For District Court Chamber Allotments
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/2026dhc1629db-sh-piyush-gupta-advocate-v-chamber-allotment-committee-1609158
+
+[Source Link](https://t.me/verdictumlegalupdates/25729)
+
+---
+
+### 2026-03-04T04:32:27+00:00
+Supreme Court Takes Note Of Use Of Fake AI-Generated Precedents In Trial Court Judgments; Warns Of "Misconduct" And "Legal Consequences"
+https://www.verdictum.in/court-updates/supreme-court/cognizance-using-fake-ai-generated-precedents-trial-court-judgments-1609159
+
+[Source Link](https://t.me/verdictumlegalupdates/25728)
 
 ---
 
@@ -145,22 +161,6 @@ Refusal Of Internal Medical Examination Of Minor Victim By Her Parent Cannot By 
 https://www.verdictum.in/court-updates/high-courts/delhi-high-court/vikas-v-state-anr-2026dhc1757-db-pocso-act-section-29-medical-evidence-1609066
 
 [Source Link](https://t.me/verdictumlegalupdates/25710)
-
----
-
-### 2026-03-02T07:33:08+00:00
-A Case Of Daylight Judicial Murder: Allahabad High Court Pulls Up Trial Court Judge For Causing Illegal Gain To Plaintiff
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/nagar-nigam-ghaziabad-v-indra-mohan-sachdev-2026ahc40819-trial-court-death-certificate-action-against-judge-1609062
-
-[Source Link](https://t.me/verdictumlegalupdates/25709)
-
----
-
-### 2026-03-02T06:52:27+00:00
-Police Requisitions Must Not Paralyse Banking Operations; Co-operative Banks Bound to Identify and Freeze Actual Fraud-Linked Accounts: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/ms-kunnamangalam-co-operative-rural-bank-ltd-v-inspector-of-police-2026ker15537-bank-free-mirror-account-cooperative-bank-1609057
-
-[Source Link](https://t.me/verdictumlegalupdates/25708)
 
 ---
 
