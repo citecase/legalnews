@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-03T04:47:56+00:00*
+*Last Updated: 2026-03-03T08:21:46+00:00*
 
 ---
 
-### 2026-03-03T04:47:56+00:00
-Calcutta High Court Cancels Bail Of POCSO Accused, Flags Trial Court's 'Mechanical' Grant Of Bail Once Chargesheet Was Filed
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-cancels-bail-of-pocso-accused-flags-trial-courts-mechanical-grant-of-bail-once-chargesheet-was-filed-525186
-
-[Read on Telegram](https://t.me/livelawindia/106227)
-
----
-### 2026-03-03T05:02:56+00:00
-Financial Discipline Of Devaswom Board 'Below Par': Kerala High Court Directs Production Of Global Ayyappa Sangamam Records
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-travancore-devaswom-global-ayyappa-sangamam-525195
-
-[Read on Telegram](https://t.me/livelawindia/106228)
-
----
-### 2026-03-03T05:05:16+00:00
-Supreme Court Weekly Digest January 11 - 20, 2026
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-weekly-digest-january-2026-525201
-
-[Read on Telegram](https://t.me/livelawindia/106229)
-
----
-### 2026-03-03T05:17:36+00:00
-High Court Issues Notice On PIL Against Rajasthan Land Revenue Amendment Act, Actions Under Section 100A Subject To Final Outcome
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-issues-notice-riico-rajasthan-land-revenue-act2025-525199
-
-[Read on Telegram](https://t.me/livelawindia/106230)
-
----
-### 2026-03-03T06:32:26+00:00
-Single-Use Plastic Ban: Rajasthan High Court Seeks Response Of Excise Department In PIL Over Tender For 36-Micron Plastic Liquor Labels
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-36micron-plastic-hologram-tender-plastic-waste-rules-525200
-
-[Read on Telegram](https://t.me/livelawindia/106231)
-
----
-### 2026-03-03T07:02:56+00:00
-Madras High Court Directs Disciplinary Action Against District Collector For Remaining Ex-Parte In Govt Land Suit
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-disciplinary-action-collector-ex-parte-suit-government-property-525209
-
-[Read on Telegram](https://t.me/livelawindia/106232)
-
----
-### 2026-03-03T07:11:56+00:00
-Allahabad High Court Weekly Round-Up: February 23 To March 1, 2026
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-weekly-roundup-february-23-march-1-2026-525212
-
-[Read on Telegram](https://t.me/livelawindia/106233)
-
----
-### 2026-03-03T07:30:56+00:00
-Allahabad High Court Weekly Round-Up: February 16 To February 22, 2026
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-weekly-roundup-february-16-february-22-2026-525213
-
-[Read on Telegram](https://t.me/livelawindia/106234)
-
----
-### 2026-03-03T07:41:46+00:00
-Allahabad High Court Monthly Digest: February 2026
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-monthly-digest-february-2026-525214
-
-[Read on Telegram](https://t.me/livelawindia/106235)
-
----
 ### 2026-03-03T08:21:46+00:00
 Another PIL Moved In Kerala High Court Seeking Removal Of 'Kerala' From Film Title 'Kerala Story 2'
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kerala-story-2-pil-525215
@@ -142,5 +79,68 @@ https://www.livelaw.in/lawschool/news/gnlu-organise-women-work-international-con
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-acquittal-rioting-mosque-attempt-to-murder-525244
 
 [Read on Telegram](https://t.me/livelawindia/106246)
+
+---
+### 2026-03-03T13:17:30+00:00
+Madras High Court Asks DVAC To Respond To Contempt Plea By MP Inbadurai Over Delay In Filing FIR Against Minister KN Nehru
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-kn-nehru-fir-contempt-plea-counter-525245
+
+[Read on Telegram](https://t.me/livelawindia/106247)
+
+---
+### 2026-03-03T13:27:30+00:00
+5-Year Integrated Law Course, Faculty of Law, University Of Delhi To Organise Two-Day Professional Interface “LexConnect 2026”
+https://www.livelaw.in/lawschool/news/5-year-integrated-law-course-faculty-of-law-university-of-delhi-to-organise-two-day-professional-interface-lexconnect-2026-525249
+
+[Read on Telegram](https://t.me/livelawindia/106248)
+
+---
+### 2026-03-03T13:47:30+00:00
+Live-In Couple Entitled To Protection From Parental Threats, Adults Free To Choose Partners: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/live-in-couple-entitled-to-protection-from-parental-threats-adults-free-to-choose-partners-delhi-high-court-525252
+
+[Read on Telegram](https://t.me/livelawindia/106249)
+
+---
+### 2026-03-03T13:52:10+00:00
+“Either Negligence Or Connivance”: Madras High Court Calls For Vigilance Probe Into State's Delay In Filing Appeals
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-vigilance-probe-delay-by-state-in-filing-appeals-525243
+
+[Read on Telegram](https://t.me/livelawindia/106250)
+
+---
+### 2026-03-03T14:02:40+00:00
+'Cause Of Action' Cannot Be Read Liberally To Choose Convenient Forum; Encourages Forum Shopping: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-cause-of-action-cannot-be-read-liberally-to-choose-a-convenient-forum-such-interpretation-encourages-forum-shopping-and-undermines-justice-525246
+
+[Read on Telegram](https://t.me/livelawindia/106251)
+
+---
+### 2026-03-03T14:32:50+00:00
+'16-Year-Old Boy Can't Have Sex But Can Rape'- Need For Romeo–Juliet Clause In POCSO
+https://www.livelaw.in/articles/romeo-juliet-clause-pocso-act-525251
+
+[Read on Telegram](https://t.me/livelawindia/106252)
+
+---
+### 2026-03-03T14:33:00+00:00
+NLU Jodhpur's JCLG Invites Submissions For Volume IX Issue I; Deadline March 10, 2026
+https://www.livelaw.in/lawschool/call-for-papers/nlu-jodhpurs-jclg-invites-submissions-for-volume-ix-issue-i-deadline-march-10-2026-525255
+
+[Read on Telegram](https://t.me/livelawindia/106253)
+
+---
+### 2026-03-03T14:37:40+00:00
+S.35(3) BNSS | Asking Accused To Appear Before Police In Regular Intervals Such As Every 15 Days Not Proper: Orissa High Court
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-accused-appear-regular-intervals-appearance-notice-525247
+
+[Read on Telegram](https://t.me/livelawindia/106254)
+
+---
+### 2026-03-03T15:50:10+00:00
+Attorney General R. Venkataramani Highlights Significance Of Nari Shakti Vandan Adhiniyam At ILI Symposium
+https://www.livelaw.in/news-updates/attorney-general-r-venkataramani-highlights-significance-nari-shakti-vandan-adhiniyam-ili-symposium-525257
+
+[Read on Telegram](https://t.me/livelawindia/106255)
 
 ---
