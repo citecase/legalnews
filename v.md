@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-04T13:32:25+00:00*
+*Last Updated: 2026-03-04T15:03:07+00:00*
+
+---
+
+### 2026-03-04T15:03:07+00:00
+Prosecution Officer Vacancy At Bihar Public Service Commission (BPSC)
+https://www.verdictum.in/job-updates/bihar-public-service-commission-bpsc-1609085
+
+[Source Link](https://t.me/verdictumlegalupdates/25735)
 
 ---
 
@@ -153,14 +161,6 @@ Order VII Rule 11 CPC | Plaint Can Be Rejected Only When Limitation Bar Is Appar
 https://www.verdictum.in/court-updates/high-courts/andhra-pradesh-high-court/mikkilineni-yujaya-dinesh-babu-ors-v-pasala-satyavathi-limitation-1609082
 
 [Source Link](https://t.me/verdictumlegalupdates/25716)
-
----
-
-### 2026-03-02T12:02:26+00:00
-Courts Cannot Show Undue Leniency In UAPA: Kerala High Court Denies Bail To Sri Lankan Crew In ₹300-kg Heroin And Arms Seizure Case
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/ly-nandana-v-union-of-india-2025ker88273-uapa-sri-lanka-heroine-arms-seizure-narco-terrorism-1609077
-
-[Source Link](https://t.me/verdictumlegalupdates/25715)
 
 ---
 
