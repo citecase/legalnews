@@ -1,128 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-05T04:45:57+00:00*
+*Last Updated: 2026-03-05T06:31:54+00:00*
 
 ---
 
-### 2026-03-05T04:45:57+00:00
-Police Should Record Statements, Preserve Videos Of Amicable Settlements In Criminal Cases: Orissa High Court
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-police-record-statements-amicable-settlements-criminal-cases-525328
-
-[Read on Telegram](https://t.me/livelawindia/106288)
-
----
-### 2026-03-05T04:47:57+00:00
-'Divorce Decree Cannot Be Granted By Relying Merely On Whatsapp Chat': Bombay High Court Sets Aside The Decree Of Family Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-divorce-decree-whatsapp-chat-525329
-
-[Read on Telegram](https://t.me/livelawindia/106289)
-
----
-### 2026-03-05T05:01:37+00:00
-The Quagmire Of Interim Injunctions In Probate Cases
-https://www.livelaw.in/articles/interim-injunctions-probate-cases-525331
-
-[Read on Telegram](https://t.me/livelawindia/106290)
-
----
-### 2026-03-05T05:02:17+00:00
-Thiruparakundram Deepam Row | Contempt Proceeding Not Political, Only Want To Ensure Court Order Is Respected: Madras High Court Remarks
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-thriruparankundram-contempt-plea-not-political-respect-court-order-525324
-
-[Read on Telegram](https://t.me/livelawindia/106291)
-
----
-### 2026-03-05T05:04:17+00:00
-S.133 Contract Act | Surety Not Liable For Borrower's Withdrawals After Modification Of Loan Limit Without Consent : Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-judgment-guarantor-liability-loan-agreement-indian-contract-act-section-133-contract-act-525332
-
-[Read on Telegram](https://t.me/livelawindia/106292)
-
----
-### 2026-03-05T05:06:17+00:00
-2026 LiveLaw (SC) 210 |  BHAGYALAXMI CO-OPERATIVE BANK LTD. VERSUS BABALDAS AMTHARAM PATEL (D) THROUGH LEGAL REPRESENTATIVES & OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-210-bhagyalaxmi-co-operative-bank-ltd-versus-babaldas-amtharam-patel-d-through-legal-representatives-others-525333
-
-[Read on Telegram](https://t.me/livelawindia/106293)
-
----
-### 2026-03-05T05:17:27+00:00
-Bengaluru Stampede Case: Karnataka High Court Asks State To Submit Proposed Chargesheet Material In Sealed Cover
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-bengaluru-stampede-chargesheet-525330
-
-[Read on Telegram](https://t.me/livelawindia/106294)
-
----
-### 2026-03-05T05:24:07+00:00
-Supreme Court Monthly Criminal Digest: January 2026
-https://www.livelaw.in/supreme-court/supreme-court-criminal-digest-january-2026-525335
-
-[Read on Telegram](https://t.me/livelawindia/106295)
-
----
-### 2026-03-05T05:36:02+00:00
-Karnataka High Court Refuses Custody Of Rescued Girl To Mother Allegedly Involved In Prostitution Racket
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-mother-daughter-custody-prostituion-525338
-
-[Read on Telegram](https://t.me/livelawindia/106296)
-
----
-### 2026-03-05T05:39:02+00:00
-Panel Discussion | 16th Government Law College International Law Summit 2026
-https://www.livelaw.in/lawschool/news/panel-discussion-16th-government-law-college-international-law-summit-2026-525339
-
-[Read on Telegram](https://t.me/livelawindia/106297)
-
----
-### 2026-03-05T05:41:02+00:00
-Supreme Court To Hear Plea Challenging Gujarat Civil Judge Recruitment Process
-https://www.livelaw.in/top-stories/supreme-court-to-hear-plea-challenging-gujarat-civil-judge-recruitment-process-525341
-
-[Read on Telegram](https://t.me/livelawindia/106298)
-
----
-### 2026-03-05T06:02:45+00:00
-Rajasthan High Court Deprecates Litigants Pursuing Two Remedies Simultaneously, Says 'Hedging Bets' Impermissible
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-rejects-revision-petition-existing-appeal-525340
-
-[Read on Telegram](https://t.me/livelawindia/106299)
-
----
-### 2026-03-05T06:08:14+00:00
-Allahabad High Court's Failure To Pronounce Verdict 6 Years After Reserving Forces Supreme Court To Transfer Cases To Itself
-https://www.livelaw.in/supreme-court/allahabad-high-courts-failure-to-pronounce-verdict-6-years-after-reserving-forces-supreme-court-to-transfer-cases-to-itself-525342
-
-[Read on Telegram](https://t.me/livelawindia/106300)
-
----
-### 2026-03-05T06:09:54+00:00
-2026 LiveLaw (SC) 211 | JAIDEEP KUMAR SRIVASTAVA v. THE STATE OF U.P. & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-211-jaideep-kumar-srivastava-v-the-state-of-up-ors-525343
-
-[Read on Telegram](https://t.me/livelawindia/106301)
-
----
-### 2026-03-05T06:12:14+00:00
-Courts This Week| Arvind Kejriwal| NCERT textbook| The Kerala Story 2| Aravalli and more
-https://www.livelaw.in/videos/supreme-court-courts-this-week-weekly-news-ncert-arvind-kejriwal-manish-sisodia-liquor-policy-case-the-kerala-story-2-aravalli-cji-chief-justice-of-india-zee-media-news-india-legal-news-law-525344
-
-[Read on Telegram](https://t.me/livelawindia/106302)
-
----
-### 2026-03-05T06:17:54+00:00
-Recovery Of RERA Compensation Cannot Be Put On Hold Due To Subsequent Vesting Of Land In State: HP High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-recovery-rera-compensation-525325
-
-[Read on Telegram](https://t.me/livelawindia/106303)
-
----
-### 2026-03-05T06:30:14+00:00
-Supreme Court Directs Husband's Employer To Desposit Monthly Maintenance To Wife's Account After Deducing From His Salary
-https://www.livelaw.in/top-stories/supreme-court-directs-husbands-employer-to-desposit-monthly-maintenance-to-wifes-account-after-deducing-from-his-salary-525345
-
-[Read on Telegram](https://t.me/livelawindia/106304)
-
----
 ### 2026-03-05T06:31:54+00:00
 Electricity Ombudsman Vacancy At Madhya Pradesh Electricity Regulatory Commission
 https://www.livelaw.in/job-updates/electricity-ombudsman-vacancy-at-madhya-pradesh-electricity-regulatory-commission-525346
@@ -142,5 +23,124 @@ Additional Legal Advisor Vacancy At National Investigation Agency
 https://www.livelaw.in/job-updates/additional-legal-advisor-vacancy-at-national-investigation-agency-525348
 
 [Read on Telegram](https://t.me/livelawindia/106307)
+
+---
+### 2026-03-05T07:07:10+00:00
+High Court Declines Fresh PIL Against 'Kerala Story 2'; Pulls Up Petitioner For Casting Aspersions On Coordinate Bench That Allowed Release
+https://www.livelaw.in/top-stories/kerala-high-court-kerala-story-2-pil-casting-aspersion-on-division-bench-525356
+
+[Read on Telegram](https://t.me/livelawindia/106308)
+
+---
+### 2026-03-05T07:07:51+00:00
+CJI Surya Kant Suggests Tech-Driven Reforms For Bhutan Judiciary
+https://www.livelaw.in/top-stories/cji-surya-kant-suggests-tech-driven-reforms-for-bhutan-judiciary-525357
+
+[Read on Telegram](https://t.me/livelawindia/106309)
+
+---
+### 2026-03-05T07:17:31+00:00
+Chief Director (Legal & Recovery) Vacancy At National Cooperative Development Corporation (NCDC)
+https://www.livelaw.in/job-updates/chief-director-legal-recovery-vacancy-at-national-cooperative-development-corporation-ncdc-525358
+
+[Read on Telegram](https://t.me/livelawindia/106310)
+
+---
+### 2026-03-05T07:33:11+00:00
+Chandigarh Consumer Commission Holds WTC Chandigarh Liable For Delay In Possession; Homebuyers Cannot Be Made To Wait Indefinitely
+https://www.livelaw.in/consumer-cases/chandigarh-consumer-commission-holds-wtc-chandigarh-liable-for-delay-in-possession-homebuyers-cannot-be-made-to-wait-indefinitely-525322
+
+[Read on Telegram](https://t.me/livelawindia/106311)
+
+---
+### 2026-03-05T08:17:44+00:00
+Alternation Of Child's Surname To Reflect Mother's Lineage Does Not Affect Father's Rights: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-child-surname-mother-father-constitution-525359
+
+[Read on Telegram](https://t.me/livelawindia/106312)
+
+---
+### 2026-03-05T08:47:26+00:00
+'Procurement Not By Fair Means': J&K&L High Court Flags Practise Of Filing Uncertified Photostat Copies As Annexures
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-photostat-copies-from-court-files-raise-red-flagscourt-warns-of-action-against-presiding-officers-court-staff-525352
+
+[Read on Telegram](https://t.me/livelawindia/106313)
+
+---
+### 2026-03-05T08:57:26+00:00
+'Spent Prime Of His Youth In Court Corridors': Orissa HC Raps State For Removing Teacher On Same Grounds After Reinstatement
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-removing-sc-teacher-reinstatement-525349
+
+[Read on Telegram](https://t.me/livelawindia/106314)
+
+---
+### 2026-03-05T09:27:37+00:00
+Employees' Compensation Act Claim Cannot Be Rejected Merely Because Disability Certificate Was Issued By Non-Treating Doctor: Bombay HC
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-set-aside-order-workmen-compensation-525350
+
+[Read on Telegram](https://t.me/livelawindia/106315)
+
+---
+### 2026-03-05T10:44:13+00:00
+Centre Notifies Appointment Of Justice SA Dharmadhikari As Madras High Court Chief Justice
+https://www.livelaw.in/top-stories/centre-notifies-appointment-of-justice-sa-dharmadhikari-as-madras-high-court-chief-justice-525367
+
+[Read on Telegram](https://t.me/livelawindia/106316)
+
+---
+### 2026-03-05T10:48:53+00:00
+The Black Box Of Fraud: AI And Reinvention Of White-Collar Crime
+https://www.livelaw.in/lawschool/articles/artificial-intelligence-white-collar-crime-525368
+
+[Read on Telegram](https://t.me/livelawindia/106317)
+
+---
+### 2026-03-05T10:59:53+00:00
+Chief/Deputy/Assistant Legal Aid Defense Counsel Vacancy At District Legal Services Authority, Mahesana [Apply Now]
+https://www.livelaw.in/job-updates/chiefdeputyassistant-legal-aid-defense-counsel-vacancy-at-district-legal-services-authority-mahesana-525370
+
+[Read on Telegram](https://t.me/livelawindia/106318)
+
+---
+### 2026-03-05T11:03:13+00:00
+'No Vehicle Day Not A Bad Idea', Says Kerala High Court But Questions Lakshadweep's Choice Of Wednesday For Traffic Ban
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-lakshadweep-wednesday-no-vehicle-pil-525371
+
+[Read on Telegram](https://t.me/livelawindia/106319)
+
+---
+### 2026-03-05T11:15:33+00:00
+Chief Legal Aid Defense Counsel, Deputy Chief Legal Aid Defense Counsel, And Assistant Legal Aid Defense Counsel Vacancy At District Court Complex, Kendrapara
+https://www.livelaw.in/job-updates/chief-legal-aid-defense-counsel-deputy-chief-legal-aid-defense-counsel-and-assistant-legal-aid-defense-counsel-vacancy-at-district-court-complex-kendrapara-525372
+
+[Read on Telegram](https://t.me/livelawindia/106320)
+
+---
+### 2026-03-05T12:08:43+00:00
+'Security Paramount': Bombay High Court Refuses Permission To Offer Namaz At Mumbai Airport
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-refuses-permission-muslim-drivers-namaz-mumbai-airport-525376
+
+[Read on Telegram](https://t.me/livelawindia/106321)
+
+---
+### 2026-03-05T12:08:53+00:00
+'No Work No Pay' Not Applicable When Employee Kept Away From Work By Authorities Without His Fault: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-no-work-no-pay-not-applicable-when-employer-kept-away-from-work-by-authorities-without-his-fault-525377
+
+[Read on Telegram](https://t.me/livelawindia/106322)
+
+---
+### 2026-03-05T12:45:22+00:00
+Kerala High Court Refuses To Interfere With Assembly Ethics Committee Proceedings Against Rahul Mamkoottathil MLA
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-pil-rahul-mamkootathil-525381
+
+[Read on Telegram](https://t.me/livelawindia/106323)
+
+---
+### 2026-03-05T12:53:02+00:00
+HP High Court Quashes FIR Against Shimla Councillor Under Railways Act, Finds No Material Showing Electric Pole Near Track Endangered Safety
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-wilful-endangerment-railways-act-525355
+
+[Read on Telegram](https://t.me/livelawindia/106324)
 
 ---
