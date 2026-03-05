@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-05T07:22:24+00:00*
+*Last Updated: 2026-03-05T13:33:05+00:00*
+
+---
+
+### 2026-03-05T13:33:05+00:00
+Writ Court Cannot Extend Benefit Of Marriage Assistance Scheme Meant For Those Earning Minimum Wages Or Less To A Larger Class: Madras High Court
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/the-principal-secretary-to-government-v-schitra-extension-benefit-marriage-assistance-minimum-wages-article-226-1609278
+
+[Source Link](https://t.me/verdictumlegalupdates/25750)
+
+---
+
+### 2026-03-05T12:53:04+00:00
+Non-Parties Can Also Be Held Liable For Contempt: Supreme Court Warns Against Delayed Appeals To Evade Compliance
+https://www.verdictum.in/court-updates/supreme-court/israr-ahmad-khan-v-amarnath-prasad-2026-insc-209-delayed-appeals-non-parties-contempt-sc-warns-1609276
+
+[Source Link](https://t.me/verdictumlegalupdates/25749)
+
+---
+
+### 2026-03-05T12:02:23+00:00
+Child Welfare Committee Has Final Authority Over Custody Of Rescued Minor Whose Mother Is Allegedly Involved In Prostitution Racket: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/x-v-state-2026khc3305-prostitution-racket-mother-minor-custody-cwc-1609273
+
+[Source Link](https://t.me/verdictumlegalupdates/25748)
+
+---
+
+### 2026-03-05T11:23:01+00:00
+Mere Use Of Words 'Waqf' Or 'Mosque' In Title Deed Does Not Create A Public Waqf: Madras High Court
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/2026mhc841-m-sirajudeen-sayeed-died-v-the-tamil-nadu-waqf-board-1609269
+
+[Source Link](https://t.me/verdictumlegalupdates/25747)
+
+---
+
+### 2026-03-05T10:37:41+00:00
+Centre Notifies Appointment Of Chief Justice At Madras High Court
+https://www.verdictum.in/court-updates/high-courts/centre-notifies-appointment-of-chief-justice-at-madras-high-court-1609267
+
+[Source Link](https://t.me/verdictumlegalupdates/25746)
+
+---
+
+### 2026-03-05T10:12:29+00:00
+Document-Centric Investigation Makes Custodial Detention Unnecessary: Karnataka HC Grants Bail To Ex-MP’s Son In Counterfeit Stamp Paper Case
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/d-a-srinivas-v-cbi-2026khc12284-ex-mp-custody-jail-counterfeit-govt-stamp-paper-1609266
+
+[Source Link](https://t.me/verdictumlegalupdates/25745)
+
+---
+
+### 2026-03-05T09:32:48+00:00
+Service Of Dismissal Order At Residence Doesn’t Give Rise To Territorial Cause Of Action: Jammu &Kashmir And Ladakh High Court
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/noshad-ahmed-v-union-of-india-swp-no-12452007-1609265
+
+[Source Link](https://t.me/verdictumlegalupdates/25744)
+
+---
+
+### 2026-03-05T08:53:06+00:00
+Prior User Prevails Over Subsequent Trademark Registration: Delhi High Court On ‘THUKRAL’ TM Dispute
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/rakesh-kumar-aggarwal-v-intellectual-property-appellate-board-2026dhc1830-trademark-thukral-repeated-default-1609262
+
+[Source Link](https://t.me/verdictumlegalupdates/25743)
+
+---
+
+### 2026-03-05T08:03:05+00:00
+Blow With Bamboo Stick Or Rod At Elbow Can Hardly Be Said To Cause Death: Calcutta High Court Reduces Sentence To Accused Convicted U/S 326 IPC
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/2026chcas359-goutam-saha-v-state-of-west-bengal-1609260
+
+[Source Link](https://t.me/verdictumlegalupdates/25742)
 
 ---
 
@@ -89,78 +161,6 @@ Merely Calling Somebody By Profession Won’t By Itself Attract Provisions Of SC
 https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/harshit-honey-v-state-of-up-2026ahc40988-calling-somebody-by-profession-scst-act-1609160
 
 [Source Link](https://t.me/verdictumlegalupdates/25731)
-
----
-
-### 2026-03-04T07:32:39+00:00
-Never Bothered About Fate Of Children: Orissa High Court Dismisses Teacher’s Appeal Against Her Disengagement Over 7 Years Of Unauthorised Absence
-https://www.verdictum.in/court-updates/high-courts/orissa-high-court/suchitra-mohapatra-v-state-of-odisha-fate-children-teacher-appeal-disengagement-unauthorised-absence-1609157
-
-[Source Link](https://t.me/verdictumlegalupdates/25730)
-
----
-
-### 2026-03-04T06:02:58+00:00
-Delhi High Court Asks Portfolio Committees To Review NCR Residency Condition For District Court Chamber Allotments
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/2026dhc1629db-sh-piyush-gupta-advocate-v-chamber-allotment-committee-1609158
-
-[Source Link](https://t.me/verdictumlegalupdates/25729)
-
----
-
-### 2026-03-04T04:32:27+00:00
-Supreme Court Takes Note Of Use Of Fake AI-Generated Precedents In Trial Court Judgments; Warns Of "Misconduct" And "Legal Consequences"
-https://www.verdictum.in/court-updates/supreme-court/cognizance-using-fake-ai-generated-precedents-trial-court-judgments-1609159
-
-[Source Link](https://t.me/verdictumlegalupdates/25728)
-
----
-
-### 2026-03-03T15:02:46+00:00
-Central Electricity Regulatory Commission Invites Applications For the Post Of Joint Chief (Legal)
-https://www.verdictum.in/job-updates/central-electricity-regulatory-commission-cerc-1609084
-
-[Source Link](https://t.me/verdictumlegalupdates/25727)
-
----
-
-### 2026-03-03T13:33:05+00:00
-Borrower Driving Insured Vehicle Steps Into Owner’s Shoes; No Compensation U/S 163A: Gujarat High Court
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/manjuben-alias-manjulaben-shantilal-garasia-v-sirajbhai-imamuddin-luhar-2026gujhc13229-borrower-insured-vehicle-third-party-1609142
-
-[Source Link](https://t.me/verdictumlegalupdates/25726)
-
----
-
-### 2026-03-03T12:03:04+00:00
-Delhi High Court Quashes Cheating Case Against Central Bank Of India's Officials, Says Dispute Over ₹58 Lakh Settlement Adjustment Is Purely Civil
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/2026dhc1584-mahender-singh-v-state-govt-of-nct-of-delhi-1609140
-
-[Source Link](https://t.me/verdictumlegalupdates/25725)
-
----
-
-### 2026-03-03T10:32:23+00:00
-No Automatic Remand After Arbitral Award Is Set Aside U/S 34 Arbitration Act: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/raghavan-vt-v-union-of-india-2026ker10961-arbitral-award-remand-section-34-arbitration-1609138
-
-[Source Link](https://t.me/verdictumlegalupdates/25724)
-
----
-
-### 2026-03-03T09:02:21+00:00
-Modified Land Claims Cannot Circumvent Final Orders; Res Judicata Applies To MOFA Deemed Conveyance Proceedings: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/magnum-unit-a-chs-limited-v-the-state-of-maharashtra-2026bhc-as9335-deemed-conveyance-res-judicata-mofa-1609091
-
-[Source Link](https://t.me/verdictumlegalupdates/25723)
-
----
-
-### 2026-03-03T07:33:00+00:00
-Fraud Vitiates Revenue Proceedings; Delay Cannot Defeat Rights When Knowledge Is Later Acquired: Gujarat High Court
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/suleiman-ahmed-minty-v-state-of-gujarat-2026gujhc14448-mutation-delay-suppressing-facts-revenue-proceedings-1609090
-
-[Source Link](https://t.me/verdictumlegalupdates/25722)
 
 ---
 
