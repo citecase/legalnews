@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-04T15:03:07+00:00*
+*Last Updated: 2026-03-05T07:22:24+00:00*
+
+---
+
+### 2026-03-05T07:22:24+00:00
+J&K&L High Court Dismisses Plea Challenging 1985 Waqf Notification Allegedly Covering Government Institutions, Public Utilities & Forest Department
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/satish-sasan-v-state-of-jkl-2026jklhc-jmu550-waqf-property-government-land-dams-marla-1609254
+
+[Source Link](https://t.me/verdictumlegalupdates/25741)
+
+---
+
+### 2026-03-05T06:32:22+00:00
+Temple Lands Are Not Commercial Assets Of State: Madras High Court Pulls Up Authorities Over Encroachment Of 507 Acres
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/a-radhakrishnan-v-p-madhusudhanreddy-ias-2026mhc866-temple-land-state-authority-encroachers-1609245
+
+[Source Link](https://t.me/verdictumlegalupdates/25740)
+
+---
+
+### 2026-03-05T06:03:21+00:00
+Delhi High Court Grants Interim Injunction Against AI-Generated Deepfake Videos Of Sadguru Shree Aniruddha Bapu
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/dr-aniruddha-dhairyadhar-joshi-v-john-does-ashok-kumars-cscomm-1782026-spiritual-leader-personality-rights-1609239
+
+[Source Link](https://t.me/verdictumlegalupdates/25739)
+
+---
+
+### 2026-03-05T05:32:20+00:00
+Overdrawing Beyond Sanctioned Limit Without Surety’s Consent Leads To Partial Discharge Under Section 133 Contract Act: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/bhagyalaxmi-co-operative-bank-ltd-v-babaldas-amtharam-patel-2026-insc-205-withdrawn-beyond-limit-surety-1609237
+
+[Source Link](https://t.me/verdictumlegalupdates/25738)
+
+---
+
+### 2026-03-05T05:02:18+00:00
+Judicial Reinterpretation Resulting In Coal Block Cancellation Is ‘Change In Law’ Under Power Purchase Agreement: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/west-bengal-state-electricity-distribution-co-ltd-v-adhunik-power-natural-resource-ltd-2026-insc-202-coal-block-ppa-change-in-law-1609236
+
+[Source Link](https://t.me/verdictumlegalupdates/25737)
+
+---
+
+### 2026-03-05T04:33:27+00:00
+Women Striving For Economic Independence Does Not Have To Compromise Role As Caregiver: Bombay High Court On Giving Maternity Benefits For Contractual Doctor
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/dhanashri-ramesh-karkhanis-v-municipal-corporation-of-greater-mumbai-2026bhc-os5400-db-mother-doctor-assistant-professor-contract-1609223
+
+[Source Link](https://t.me/verdictumlegalupdates/25736)
 
 ---
 
@@ -113,54 +161,6 @@ Fraud Vitiates Revenue Proceedings; Delay Cannot Defeat Rights When Knowledge Is
 https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/suleiman-ahmed-minty-v-state-of-gujarat-2026gujhc14448-mutation-delay-suppressing-facts-revenue-proceedings-1609090
 
 [Source Link](https://t.me/verdictumlegalupdates/25722)
-
----
-
-### 2026-03-03T06:02:39+00:00
-"Denial Of Reasonable Opportunity": Chhattisgarh High Court Remits Matter After Labour Court Proceeded Ex-Parte On Same Day While Service Report Was Still Awaited
-https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/2026cghc10349-jindal-steel-and-power-v-umesh-kumar-chauhan-1609089
-
-[Source Link](https://t.me/verdictumlegalupdates/25721)
-
----
-
-### 2026-03-03T04:33:07+00:00
-Judicial Officer Discharging Judicial Functions Outranks District Magistrate, Police Chief And Political Head Of State: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/sanu-rashid-v-state-of-uttar-pradesh-judicial-officers-contempt-courts-1609088
-
-[Source Link](https://t.me/verdictumlegalupdates/25720)
-
----
-
-### 2026-03-02T15:02:51+00:00
-Delhi High Court Grants Permanent Injunction To HUL & P&G Over Counterfeiting FMCG Goods, Awards ₹2.5 Lakhs Damages
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/hindustan-lever-ltd-v-rakesh-goyal-2026dhc1821-hindustan-lever-pg-fmcg-permanent-injunction-1609087
-
-[Source Link](https://t.me/verdictumlegalupdates/25719)
-
----
-
-### 2026-03-02T14:12:50+00:00
-Madhya Pradesh High Court Issues Show Cause Notice To Advocate For Continued Appearance Despite Subsisting Contempt Conviction
-https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/munendra-singh-v-state-of-madhya-pradesh-2026mphc-gwl6777-contempt-1609086
-
-[Source Link](https://t.me/verdictumlegalupdates/25718)
-
----
-
-### 2026-03-02T13:33:09+00:00
-Call For Strike By Bank Employees In Public Utility Services Sufficient To Trigger Conciliation Proceedings U/S 22 ID Act: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/the-federal-bank-ltd-v-federal-bank-officers-association-2026ker17176-bank-employees-strike-pus-conciliation-1609083
-
-[Source Link](https://t.me/verdictumlegalupdates/25717)
-
----
-
-### 2026-03-02T12:52:47+00:00
-Order VII Rule 11 CPC | Plaint Can Be Rejected Only When Limitation Bar Is Apparent Ex Facie From Plaint Averments: Andhra Pradesh High Court
-https://www.verdictum.in/court-updates/high-courts/andhra-pradesh-high-court/mikkilineni-yujaya-dinesh-babu-ors-v-pasala-satyavathi-limitation-1609082
-
-[Source Link](https://t.me/verdictumlegalupdates/25716)
 
 ---
 
