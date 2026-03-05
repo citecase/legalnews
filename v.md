@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-05T13:33:05+00:00*
+*Last Updated: 2026-03-05T16:02:43+00:00*
+
+---
+
+### 2026-03-05T16:02:43+00:00
+Legal Consultant Vacancy At Gujarat State Tribal Education Society (GSTES)
+https://www.verdictum.in/job-updates/gujarat-state-tribal-education-society-gstes-1609277
+
+[Source Link](https://t.me/verdictumlegalupdates/25755)
+
+---
+
+### 2026-03-05T15:33:12+00:00
+State Filing Appeals After Great Delay: Madras High Court Directs Vigilance Probe
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/the-commissioner-v-kannammal-education-trust-state-appeals-delay-vigilance-dept-probe-1609281
+
+[Source Link](https://t.me/verdictumlegalupdates/25754)
+
+---
+
+### 2026-03-05T15:02:30+00:00
+Matrimonial Cruelty Is Continuing Offence; Delay In Reporting Same Doesn’t Necessarily Erode Complaint’s Credibility: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/a-v-the-state-of-kerala-2026ker15653-matrimonial-cruelty-continuing-offence-delay-complain-credibility-1609284
+
+[Source Link](https://t.me/verdictumlegalupdates/25753)
+
+---
+
+### 2026-03-05T14:32:29+00:00
+Mail For Deceased Must Be Delivered To Legal Heirs, Not Returned To Sender: Madras High Court Asks Ministry Of Communications To Clarify Regulations
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/mohana-ramaswami-v-secretary-ministry-of-communications-wp-no-5160-of-2026-1609280
+
+[Source Link](https://t.me/verdictumlegalupdates/25752)
+
+---
+
+### 2026-03-05T14:02:27+00:00
+Can’t Reject Claim Under Employees’ Compensation Act On Ground That Disability Certificate Was Issued By Doctor Who Didn’t Treat Injured: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/mahendra-sabharu-majhi-v-ms-mahlaxmi-enterprises-2026bhc-as9667-claim-employees-compensation-act-disability-certificate-1609283
+
+[Source Link](https://t.me/verdictumlegalupdates/25751)
 
 ---
 
@@ -121,46 +161,6 @@ Women Striving For Economic Independence Does Not Have To Compromise Role As Car
 https://www.verdictum.in/court-updates/high-courts/bombay-high-court/dhanashri-ramesh-karkhanis-v-municipal-corporation-of-greater-mumbai-2026bhc-os5400-db-mother-doctor-assistant-professor-contract-1609223
 
 [Source Link](https://t.me/verdictumlegalupdates/25736)
-
----
-
-### 2026-03-04T15:03:07+00:00
-Prosecution Officer Vacancy At Bihar Public Service Commission (BPSC)
-https://www.verdictum.in/job-updates/bihar-public-service-commission-bpsc-1609085
-
-[Source Link](https://t.me/verdictumlegalupdates/25735)
-
----
-
-### 2026-03-04T13:32:25+00:00
-Alleged Delinquency Could Be Driven By Probabilities Of Case & It Need Not Be Proved By Strict Proof Of Evidence: Madras High Court
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/union-of-india-v-bshankar-kumar-alleged-delinquency-probabilities-strict-proof-of-evidence-1609210
-
-[Source Link](https://t.me/verdictumlegalupdates/25734)
-
----
-
-### 2026-03-04T12:02:24+00:00
-Allahabad High Court Directs Action Against Cops For 20 Hour Delay In Releasing Accused After Direction
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/sachin-arya-sachin-bhartiya-v-state-of-uttar-pradesh-action-cops-court-order-gap-arrest-guidelines-1609162
-
-[Source Link](https://t.me/verdictumlegalupdates/25733)
-
----
-
-### 2026-03-04T10:32:22+00:00
-Campaign To Create Awareness A Facet Of Democratic Process: Karnataka HC Permits Trade Union To Use Autorickshaws With Loudspeakers For Campaigning
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/shri-naveen-r-v-centre-for-indian-trade-unions-2026khc8173-campaign-awareness-democratic-process-1609161
-
-[Source Link](https://t.me/verdictumlegalupdates/25732)
-
----
-
-### 2026-03-04T09:02:21+00:00
-Merely Calling Somebody By Profession Won’t By Itself Attract Provisions Of SC/ST Act: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/harshit-honey-v-state-of-up-2026ahc40988-calling-somebody-by-profession-scst-act-1609160
-
-[Source Link](https://t.me/verdictumlegalupdates/25731)
 
 ---
 
