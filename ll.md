@@ -1,86 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-05T06:31:54+00:00*
+*Last Updated: 2026-03-05T10:44:13+00:00*
 
 ---
 
-### 2026-03-05T06:31:54+00:00
-Electricity Ombudsman Vacancy At Madhya Pradesh Electricity Regulatory Commission
-https://www.livelaw.in/job-updates/electricity-ombudsman-vacancy-at-madhya-pradesh-electricity-regulatory-commission-525346
-
-[Read on Telegram](https://t.me/livelawindia/106305)
-
----
-### 2026-03-05T06:33:14+00:00
-Private Secretary Vacancy At National Green Tribunal, Principal Bench, New Delhi
-https://www.livelaw.in/job-updates/private-secretary-vacancy-at-national-green-tribunal-principal-bench-new-delhi-525347
-
-[Read on Telegram](https://t.me/livelawindia/106306)
-
----
-### 2026-03-05T06:36:20+00:00
-Additional Legal Advisor Vacancy At National Investigation Agency
-https://www.livelaw.in/job-updates/additional-legal-advisor-vacancy-at-national-investigation-agency-525348
-
-[Read on Telegram](https://t.me/livelawindia/106307)
-
----
-### 2026-03-05T07:07:10+00:00
-High Court Declines Fresh PIL Against 'Kerala Story 2'; Pulls Up Petitioner For Casting Aspersions On Coordinate Bench That Allowed Release
-https://www.livelaw.in/top-stories/kerala-high-court-kerala-story-2-pil-casting-aspersion-on-division-bench-525356
-
-[Read on Telegram](https://t.me/livelawindia/106308)
-
----
-### 2026-03-05T07:07:51+00:00
-CJI Surya Kant Suggests Tech-Driven Reforms For Bhutan Judiciary
-https://www.livelaw.in/top-stories/cji-surya-kant-suggests-tech-driven-reforms-for-bhutan-judiciary-525357
-
-[Read on Telegram](https://t.me/livelawindia/106309)
-
----
-### 2026-03-05T07:17:31+00:00
-Chief Director (Legal & Recovery) Vacancy At National Cooperative Development Corporation (NCDC)
-https://www.livelaw.in/job-updates/chief-director-legal-recovery-vacancy-at-national-cooperative-development-corporation-ncdc-525358
-
-[Read on Telegram](https://t.me/livelawindia/106310)
-
----
-### 2026-03-05T07:33:11+00:00
-Chandigarh Consumer Commission Holds WTC Chandigarh Liable For Delay In Possession; Homebuyers Cannot Be Made To Wait Indefinitely
-https://www.livelaw.in/consumer-cases/chandigarh-consumer-commission-holds-wtc-chandigarh-liable-for-delay-in-possession-homebuyers-cannot-be-made-to-wait-indefinitely-525322
-
-[Read on Telegram](https://t.me/livelawindia/106311)
-
----
-### 2026-03-05T08:17:44+00:00
-Alternation Of Child's Surname To Reflect Mother's Lineage Does Not Affect Father's Rights: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-child-surname-mother-father-constitution-525359
-
-[Read on Telegram](https://t.me/livelawindia/106312)
-
----
-### 2026-03-05T08:47:26+00:00
-'Procurement Not By Fair Means': J&K&L High Court Flags Practise Of Filing Uncertified Photostat Copies As Annexures
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-photostat-copies-from-court-files-raise-red-flagscourt-warns-of-action-against-presiding-officers-court-staff-525352
-
-[Read on Telegram](https://t.me/livelawindia/106313)
-
----
-### 2026-03-05T08:57:26+00:00
-'Spent Prime Of His Youth In Court Corridors': Orissa HC Raps State For Removing Teacher On Same Grounds After Reinstatement
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-removing-sc-teacher-reinstatement-525349
-
-[Read on Telegram](https://t.me/livelawindia/106314)
-
----
-### 2026-03-05T09:27:37+00:00
-Employees' Compensation Act Claim Cannot Be Rejected Merely Because Disability Certificate Was Issued By Non-Treating Doctor: Bombay HC
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-set-aside-order-workmen-compensation-525350
-
-[Read on Telegram](https://t.me/livelawindia/106315)
-
----
 ### 2026-03-05T10:44:13+00:00
 Centre Notifies Appointment Of Justice SA Dharmadhikari As Madras High Court Chief Justice
 https://www.livelaw.in/top-stories/centre-notifies-appointment-of-justice-sa-dharmadhikari-as-madras-high-court-chief-justice-525367
@@ -142,5 +65,82 @@ HP High Court Quashes FIR Against Shimla Councillor Under Railways Act, Finds No
 https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-wilful-endangerment-railways-act-525355
 
 [Read on Telegram](https://t.me/livelawindia/106324)
+
+---
+### 2026-03-05T13:12:42+00:00
+Karnataka HC Asks State To Issue Guidelines On Background Check For Migrant Workers, Calls For Balanced Approach Without Stigmatisation
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-guidelines-migrant-workers-background-verification-525382
+
+[Read on Telegram](https://t.me/livelawindia/106325)
+
+---
+### 2026-03-05T13:27:22+00:00
+'Non Supply Of Inquiry Report To Accused Delinquent Vitates Punishment Order': MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-holds-non-supply-of-inquiry-report-to-government-employee-vitates-punishment-order-525378
+
+[Read on Telegram](https://t.me/livelawindia/106326)
+
+---
+### 2026-03-05T13:47:32+00:00
+S. 202 CrPC | Magistrate Bound To Inquire Before Issuing Summons To Accused Residing Beyond Territorial Jurisdiction: Uttarakhand HC
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-issuing-summons-accused-territorial-jurisdiction-525379
+
+[Read on Telegram](https://t.me/livelawindia/106327)
+
+---
+### 2026-03-05T14:31:52+00:00
+'Will Not Accept': Karnataka High Court Questions State For Filing Closure Report In FIR Over Abetment Of Student's Suicide
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-b-report-fir-student-abetment-to-suicide-525389
+
+[Read on Telegram](https://t.me/livelawindia/106328)
+
+---
+### 2026-03-05T15:07:22+00:00
+Kerala High Court Questions Local Self Govt Department Over Illegal Boards; Says Joint Directors Must Appear If Directions Not Implemented
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-lsgd-on-illegal-boards-joint-directors-asked-to-appear-if-directions-not-implemented-525391
+
+[Read on Telegram](https://t.me/livelawindia/106329)
+
+---
+### 2026-03-05T15:30:22+00:00
+NLU Odisha Invites Submissions for Short Film Making Competition on 'Campus Romance: Heartbeats and Heartbreak in the Hallways'
+https://www.livelaw.in/lawschool/competitions/nlu-odisha-invites-submissions-for-short-film-making-competition-on-campus-romance-heartbeats-and-heartbreak-in-the-hallways-525393
+
+[Read on Telegram](https://t.me/livelawindia/106330)
+
+---
+### 2026-03-05T16:00:13+00:00
+P&H High Court Quashes Case Against Man Accused Of Making Accusations Against Judge, Asks DGP To Run Police Awareness Program On S.215 BNSS
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-proceedings-against-man-accused-of-making-accusations-against-judge-punjab-dgp-525396
+
+[Read on Telegram](https://t.me/livelawindia/106331)
+
+---
+### 2026-03-05T16:10:52+00:00
+FIR Not Doubtful Or Diluted Merely Because It Was Lodged With Advocate's Help: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-fir-lodged-advocate-help-525399
+
+[Read on Telegram](https://t.me/livelawindia/106332)
+
+---
+### 2026-03-05T16:22:42+00:00
+'Criminal Proceedings Cannot Be Used To Settle Civil Scores In Property Deals': Punjab & Haryana High Court Quashes FIR
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-cheating-forgery-fir-criminal-proceedings-cannot-be-used-to-settle-civil-scores-525397
+
+[Read on Telegram](https://t.me/livelawindia/106333)
+
+---
+### 2026-03-05T16:33:03+00:00
+Failure Of Investigating Officer To Note Victim's Intellectual Disability Not Fatal If They Are Competent To Testify: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/failure-investigating-officer-victims-intellectual-disability-not-fatal-competent-testify-525398
+
+[Read on Telegram](https://t.me/livelawindia/106334)
+
+---
+### 2026-03-05T16:48:02+00:00
+Kerala High Court Flags Financial Irregularities In Ayyappa Conclave Spending; Directs Auditor Of Devaswom Board To File Statement
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-financial-irregularities-ayyappa-conclave-spending-statement-on-anomalies-audits-525401
+
+[Read on Telegram](https://t.me/livelawindia/106335)
 
 ---
