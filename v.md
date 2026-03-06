@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-05T16:02:43+00:00*
+*Last Updated: 2026-03-06T07:12:23+00:00*
+
+---
+
+### 2026-03-06T07:12:23+00:00
+Prolonged Use Of Temporary Employment Despite Vacancies Amounts To Unfair Labour Practice: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/shivaji-madhav-jadhav-v-nashik-district-central-cooperative-bank-ltd-2026bhc-as10655-unfair-labour-practice-temporary-employment-1609326
+
+[Source Link](https://t.me/verdictumlegalupdates/25760)
+
+---
+
+### 2026-03-06T06:32:42+00:00
+Karnataka High Court Convicts Domestic Help In Triple Murder Case; Asks State To Consider Tenant-Like Verification For Migrant Workers
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/state-of-karnataka-v-deepak-haldar-crla-no-1225-of-2016-domestic-help-bengaluru-triple-murder-migrant-workers-1609319
+
+[Source Link](https://t.me/verdictumlegalupdates/25759)
+
+---
+
+### 2026-03-06T06:03:00+00:00
+Repatriation Arrangement Does Not Stand In Way Of Relief: Delhi High Court Sets Aside "Mechanical" Rejection Of Premature Release Plea Of Bangladeshi Convict
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/2026-dhc1399-asif-naeem-v-state-govt-of-nct-delhi-1609310
+
+[Source Link](https://t.me/verdictumlegalupdates/25758)
+
+---
+
+### 2026-03-06T05:12:19+00:00
+Insurance Policy Issued To Persons On Deathbed: Allahabad High Court Orders Enquiry And Issues Warrant Against HDFC Life Manager
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/nawab-ali-nawabuddin-v-state-of-up-insurance-policy-deathbed-enquiry-warrant-hdfc-life-manager-1609309
+
+[Source Link](https://t.me/verdictumlegalupdates/25757)
+
+---
+
+### 2026-03-06T04:33:08+00:00
+Divorce Decree Can’t Be Granted Merely On Basis of Whatsapp Chat Which Is Not Proved By Leading Evidence: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/a-v-b-2026bhc-as10374-db-divorce-decree-whatsapp-chat-evidence-1609285
+
+[Source Link](https://t.me/verdictumlegalupdates/25756)
 
 ---
 
@@ -121,46 +161,6 @@ J&K&L High Court Dismisses Plea Challenging 1985 Waqf Notification Allegedly Cov
 https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/satish-sasan-v-state-of-jkl-2026jklhc-jmu550-waqf-property-government-land-dams-marla-1609254
 
 [Source Link](https://t.me/verdictumlegalupdates/25741)
-
----
-
-### 2026-03-05T06:32:22+00:00
-Temple Lands Are Not Commercial Assets Of State: Madras High Court Pulls Up Authorities Over Encroachment Of 507 Acres
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/a-radhakrishnan-v-p-madhusudhanreddy-ias-2026mhc866-temple-land-state-authority-encroachers-1609245
-
-[Source Link](https://t.me/verdictumlegalupdates/25740)
-
----
-
-### 2026-03-05T06:03:21+00:00
-Delhi High Court Grants Interim Injunction Against AI-Generated Deepfake Videos Of Sadguru Shree Aniruddha Bapu
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/dr-aniruddha-dhairyadhar-joshi-v-john-does-ashok-kumars-cscomm-1782026-spiritual-leader-personality-rights-1609239
-
-[Source Link](https://t.me/verdictumlegalupdates/25739)
-
----
-
-### 2026-03-05T05:32:20+00:00
-Overdrawing Beyond Sanctioned Limit Without Surety’s Consent Leads To Partial Discharge Under Section 133 Contract Act: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/bhagyalaxmi-co-operative-bank-ltd-v-babaldas-amtharam-patel-2026-insc-205-withdrawn-beyond-limit-surety-1609237
-
-[Source Link](https://t.me/verdictumlegalupdates/25738)
-
----
-
-### 2026-03-05T05:02:18+00:00
-Judicial Reinterpretation Resulting In Coal Block Cancellation Is ‘Change In Law’ Under Power Purchase Agreement: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/west-bengal-state-electricity-distribution-co-ltd-v-adhunik-power-natural-resource-ltd-2026-insc-202-coal-block-ppa-change-in-law-1609236
-
-[Source Link](https://t.me/verdictumlegalupdates/25737)
-
----
-
-### 2026-03-05T04:33:27+00:00
-Women Striving For Economic Independence Does Not Have To Compromise Role As Caregiver: Bombay High Court On Giving Maternity Benefits For Contractual Doctor
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/dhanashri-ramesh-karkhanis-v-municipal-corporation-of-greater-mumbai-2026bhc-os5400-db-mother-doctor-assistant-professor-contract-1609223
-
-[Source Link](https://t.me/verdictumlegalupdates/25736)
 
 ---
 
