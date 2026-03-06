@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-06T13:32:26+00:00*
+*Last Updated: 2026-03-06T16:03:12+00:00*
+
+---
+
+### 2026-03-06T16:03:12+00:00
+Additional Legal Advisor Vacancy At National Investigation Agency
+https://www.verdictum.in/job-updates/national-investigation-agency-1609347
+
+[Source Link](https://t.me/verdictumlegalupdates/25775)
+
+---
+
+### 2026-03-06T15:32:31+00:00
+CBI Court Bound To Transfer Scheduled Offence Case To PMLA Special Court Upon Application U/S 44(1)(c) PMLA: Madras High Court
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/deputy-director-directorate-of-enforcement-v-deputy-superintendent-of-police-central-bureau-of-investigation-2026mhc922-1609359
+
+[Source Link](https://t.me/verdictumlegalupdates/25774)
+
+---
+
+### 2026-03-06T15:03:10+00:00
+Blacklisting Contractors Disproportionate Without Finding Of Fraud Or Mens Rea: Chhattisgarh HC In Jal Jeevan Mission Tender
+https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/ms-ak-construction-v-state-of-chhattisgarh-2026cghc10481-db-1609358
+
+[Source Link](https://t.me/verdictumlegalupdates/25773)
+
+---
+
+### 2026-03-06T14:32:48+00:00
+Even Storage Of Child Pornographic Content Can Attract Offence U/S 15 POCSO Act: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/binoj-pj-v-state-of-karnataka-commercial-street-police-station-2026khc1635-1609357
+
+[Source Link](https://t.me/verdictumlegalupdates/25772)
+
+---
+
+### 2026-03-06T14:02:27+00:00
+Digital Gold Transactions Cannot Escape BUDS Act Scrutiny Merely Because They Are Not In Currency Form: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/nishchay-babu-arkalgud-v-state-of-karnataka-banning-of-unregulated-deposit-schemes-act-2019-1609349
+
+[Source Link](https://t.me/verdictumlegalupdates/25771)
 
 ---
 
@@ -121,46 +161,6 @@ Divorce Decree Can’t Be Granted Merely On Basis of Whatsapp Chat Which Is Not 
 https://www.verdictum.in/court-updates/high-courts/bombay-high-court/a-v-b-2026bhc-as10374-db-divorce-decree-whatsapp-chat-evidence-1609285
 
 [Source Link](https://t.me/verdictumlegalupdates/25756)
-
----
-
-### 2026-03-05T16:02:43+00:00
-Legal Consultant Vacancy At Gujarat State Tribal Education Society (GSTES)
-https://www.verdictum.in/job-updates/gujarat-state-tribal-education-society-gstes-1609277
-
-[Source Link](https://t.me/verdictumlegalupdates/25755)
-
----
-
-### 2026-03-05T15:33:12+00:00
-State Filing Appeals After Great Delay: Madras High Court Directs Vigilance Probe
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/the-commissioner-v-kannammal-education-trust-state-appeals-delay-vigilance-dept-probe-1609281
-
-[Source Link](https://t.me/verdictumlegalupdates/25754)
-
----
-
-### 2026-03-05T15:02:30+00:00
-Matrimonial Cruelty Is Continuing Offence; Delay In Reporting Same Doesn’t Necessarily Erode Complaint’s Credibility: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/a-v-the-state-of-kerala-2026ker15653-matrimonial-cruelty-continuing-offence-delay-complain-credibility-1609284
-
-[Source Link](https://t.me/verdictumlegalupdates/25753)
-
----
-
-### 2026-03-05T14:32:29+00:00
-Mail For Deceased Must Be Delivered To Legal Heirs, Not Returned To Sender: Madras High Court Asks Ministry Of Communications To Clarify Regulations
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/mohana-ramaswami-v-secretary-ministry-of-communications-wp-no-5160-of-2026-1609280
-
-[Source Link](https://t.me/verdictumlegalupdates/25752)
-
----
-
-### 2026-03-05T14:02:27+00:00
-Can’t Reject Claim Under Employees’ Compensation Act On Ground That Disability Certificate Was Issued By Doctor Who Didn’t Treat Injured: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/mahendra-sabharu-majhi-v-ms-mahlaxmi-enterprises-2026bhc-as9667-claim-employees-compensation-act-disability-certificate-1609283
-
-[Source Link](https://t.me/verdictumlegalupdates/25751)
 
 ---
 
