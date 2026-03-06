@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-06T07:12:23+00:00*
+*Last Updated: 2026-03-06T13:32:26+00:00*
+
+---
+
+### 2026-03-06T13:32:26+00:00
+Interview Session Timing Can’t Fix Seniority Under Rule 109 School Education Rules: Delhi High Court Upholds 2022 Seniority List For Promotion In Aided School
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/jolly-batoo-v-government-of-nct-of-delhi-interview-session-timing-seniority-school-education-rules-aided-school-1609348
+
+[Source Link](https://t.me/verdictumlegalupdates/25770)
+
+---
+
+### 2026-03-06T13:02:25+00:00
+School Buildings Constitute "Place For Custody Of Property" ; Attracts Offence Of House Trespass U/S 442 IPC: Chhattisgarh High Court
+https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/vikas-tiwari-v-state-of-chhattisgarh-crmp-no-8-of-2026-1609346
+
+[Source Link](https://t.me/verdictumlegalupdates/25769)
+
+---
+
+### 2026-03-06T12:32:43+00:00
+Violation Of Section 14 SARFAESI Procedure Can Justify Exercise Of Writ Jurisdiction Despite Alternative Remedy: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/ms-grids-engineers-and-contractors-v-union-bank-of-india-2026ker19606-1609345
+
+[Source Link](https://t.me/verdictumlegalupdates/25768)
+
+---
+
+### 2026-03-06T11:52:22+00:00
+Misuse Of POCSO Act In Consensual Adolescent Relationships On Rise: Madras High Court Directs Chief Secretary To Create Public Awareness
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/mahesh-v-state-represented-by-inspector-of-police-pocso-act-misure-awarness-1609343
+
+[Source Link](https://t.me/verdictumlegalupdates/25767)
+
+---
+
+### 2026-03-06T11:12:31+00:00
+Chhattisgarh High Court: ‘"Hinduised" Scheduled Tribe Couples Can Seek Mutual Consent Divorce U/S 13B Hindu Marriage Act
+https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/2026cghc10933db-hinduised-st-couples-seek-divorce-mutual-consent-divorce-1609341
+
+[Source Link](https://t.me/verdictumlegalupdates/25766)
+
+---
+
+### 2026-03-06T10:33:09+00:00
+Siblings Not Entitled To Motor Accident Compensation Under Head Of Loss Of Love & Affection: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/mariyakutty-united-india-insurance-company-ltd-2026ker16880-siblings-motor-accident-compensation-loss-of-love-1609339
+
+[Source Link](https://t.me/verdictumlegalupdates/25765)
+
+---
+
+### 2026-03-06T09:52:48+00:00
+Protection Under Section 35 Trademarks Act Extends To Company: Bombay High Court Rules Statutory Defence Is Not Limited Only To Individuals
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/2026bhcos5691db-kataria-insurance-brokers-pvt-ltd-v-bhavesh-suresh-kataria-1609338
+
+[Source Link](https://t.me/verdictumlegalupdates/25764)
+
+---
+
+### 2026-03-06T09:12:27+00:00
+Notification Inviting Applications Only For Government Pleader Cannot Be Used To Appoint Public Prosecutor: Kerala High Court Sets Aside Appointment
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/adv-p-t-joseph-v-state-of-kerala-2026ker16591-government-pleader-public-prosecutor-advocate-notice-1609337
+
+[Source Link](https://t.me/verdictumlegalupdates/25763)
+
+---
+
+### 2026-03-06T08:33:05+00:00
+Serious Slackness: Kerala High Court Asks Auditor To File Statement On Financial Anomalies Involving Ayyappa Global Conclave Expenditure
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/suo-motu-v-state-of-kerala-serious-slackness-auditor-financial-anomalies-ayyappa-global-conclave-1609333
+
+[Source Link](https://t.me/verdictumlegalupdates/25762)
+
+---
+
+### 2026-03-06T07:52:44+00:00
+Person Of Unsound Mind Not Incompetent To Testify Unless Unable To Understand Questions Or Give Rational Answers: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/appukuttan-v-state-of-kerala-2026ker18933-unsound-mind-testimony-376-1609330
+
+[Source Link](https://t.me/verdictumlegalupdates/25761)
 
 ---
 
@@ -81,86 +161,6 @@ Can’t Reject Claim Under Employees’ Compensation Act On Ground That Disabili
 https://www.verdictum.in/court-updates/high-courts/bombay-high-court/mahendra-sabharu-majhi-v-ms-mahlaxmi-enterprises-2026bhc-as9667-claim-employees-compensation-act-disability-certificate-1609283
 
 [Source Link](https://t.me/verdictumlegalupdates/25751)
-
----
-
-### 2026-03-05T13:33:05+00:00
-Writ Court Cannot Extend Benefit Of Marriage Assistance Scheme Meant For Those Earning Minimum Wages Or Less To A Larger Class: Madras High Court
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/the-principal-secretary-to-government-v-schitra-extension-benefit-marriage-assistance-minimum-wages-article-226-1609278
-
-[Source Link](https://t.me/verdictumlegalupdates/25750)
-
----
-
-### 2026-03-05T12:53:04+00:00
-Non-Parties Can Also Be Held Liable For Contempt: Supreme Court Warns Against Delayed Appeals To Evade Compliance
-https://www.verdictum.in/court-updates/supreme-court/israr-ahmad-khan-v-amarnath-prasad-2026-insc-209-delayed-appeals-non-parties-contempt-sc-warns-1609276
-
-[Source Link](https://t.me/verdictumlegalupdates/25749)
-
----
-
-### 2026-03-05T12:02:23+00:00
-Child Welfare Committee Has Final Authority Over Custody Of Rescued Minor Whose Mother Is Allegedly Involved In Prostitution Racket: Karnataka High Court
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/x-v-state-2026khc3305-prostitution-racket-mother-minor-custody-cwc-1609273
-
-[Source Link](https://t.me/verdictumlegalupdates/25748)
-
----
-
-### 2026-03-05T11:23:01+00:00
-Mere Use Of Words 'Waqf' Or 'Mosque' In Title Deed Does Not Create A Public Waqf: Madras High Court
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/2026mhc841-m-sirajudeen-sayeed-died-v-the-tamil-nadu-waqf-board-1609269
-
-[Source Link](https://t.me/verdictumlegalupdates/25747)
-
----
-
-### 2026-03-05T10:37:41+00:00
-Centre Notifies Appointment Of Chief Justice At Madras High Court
-https://www.verdictum.in/court-updates/high-courts/centre-notifies-appointment-of-chief-justice-at-madras-high-court-1609267
-
-[Source Link](https://t.me/verdictumlegalupdates/25746)
-
----
-
-### 2026-03-05T10:12:29+00:00
-Document-Centric Investigation Makes Custodial Detention Unnecessary: Karnataka HC Grants Bail To Ex-MP’s Son In Counterfeit Stamp Paper Case
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/d-a-srinivas-v-cbi-2026khc12284-ex-mp-custody-jail-counterfeit-govt-stamp-paper-1609266
-
-[Source Link](https://t.me/verdictumlegalupdates/25745)
-
----
-
-### 2026-03-05T09:32:48+00:00
-Service Of Dismissal Order At Residence Doesn’t Give Rise To Territorial Cause Of Action: Jammu &Kashmir And Ladakh High Court
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/noshad-ahmed-v-union-of-india-swp-no-12452007-1609265
-
-[Source Link](https://t.me/verdictumlegalupdates/25744)
-
----
-
-### 2026-03-05T08:53:06+00:00
-Prior User Prevails Over Subsequent Trademark Registration: Delhi High Court On ‘THUKRAL’ TM Dispute
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/rakesh-kumar-aggarwal-v-intellectual-property-appellate-board-2026dhc1830-trademark-thukral-repeated-default-1609262
-
-[Source Link](https://t.me/verdictumlegalupdates/25743)
-
----
-
-### 2026-03-05T08:03:05+00:00
-Blow With Bamboo Stick Or Rod At Elbow Can Hardly Be Said To Cause Death: Calcutta High Court Reduces Sentence To Accused Convicted U/S 326 IPC
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/2026chcas359-goutam-saha-v-state-of-west-bengal-1609260
-
-[Source Link](https://t.me/verdictumlegalupdates/25742)
-
----
-
-### 2026-03-05T07:22:24+00:00
-J&K&L High Court Dismisses Plea Challenging 1985 Waqf Notification Allegedly Covering Government Institutions, Public Utilities & Forest Department
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/satish-sasan-v-state-of-jkl-2026jklhc-jmu550-waqf-property-government-land-dams-marla-1609254
-
-[Source Link](https://t.me/verdictumlegalupdates/25741)
 
 ---
 
