@@ -1,128 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-05T10:44:13+00:00*
+*Last Updated: 2026-03-05T16:22:42+00:00*
 
 ---
 
-### 2026-03-05T10:44:13+00:00
-Centre Notifies Appointment Of Justice SA Dharmadhikari As Madras High Court Chief Justice
-https://www.livelaw.in/top-stories/centre-notifies-appointment-of-justice-sa-dharmadhikari-as-madras-high-court-chief-justice-525367
-
-[Read on Telegram](https://t.me/livelawindia/106316)
-
----
-### 2026-03-05T10:48:53+00:00
-The Black Box Of Fraud: AI And Reinvention Of White-Collar Crime
-https://www.livelaw.in/lawschool/articles/artificial-intelligence-white-collar-crime-525368
-
-[Read on Telegram](https://t.me/livelawindia/106317)
-
----
-### 2026-03-05T10:59:53+00:00
-Chief/Deputy/Assistant Legal Aid Defense Counsel Vacancy At District Legal Services Authority, Mahesana [Apply Now]
-https://www.livelaw.in/job-updates/chiefdeputyassistant-legal-aid-defense-counsel-vacancy-at-district-legal-services-authority-mahesana-525370
-
-[Read on Telegram](https://t.me/livelawindia/106318)
-
----
-### 2026-03-05T11:03:13+00:00
-'No Vehicle Day Not A Bad Idea', Says Kerala High Court But Questions Lakshadweep's Choice Of Wednesday For Traffic Ban
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-lakshadweep-wednesday-no-vehicle-pil-525371
-
-[Read on Telegram](https://t.me/livelawindia/106319)
-
----
-### 2026-03-05T11:15:33+00:00
-Chief Legal Aid Defense Counsel, Deputy Chief Legal Aid Defense Counsel, And Assistant Legal Aid Defense Counsel Vacancy At District Court Complex, Kendrapara
-https://www.livelaw.in/job-updates/chief-legal-aid-defense-counsel-deputy-chief-legal-aid-defense-counsel-and-assistant-legal-aid-defense-counsel-vacancy-at-district-court-complex-kendrapara-525372
-
-[Read on Telegram](https://t.me/livelawindia/106320)
-
----
-### 2026-03-05T12:08:43+00:00
-'Security Paramount': Bombay High Court Refuses Permission To Offer Namaz At Mumbai Airport
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-refuses-permission-muslim-drivers-namaz-mumbai-airport-525376
-
-[Read on Telegram](https://t.me/livelawindia/106321)
-
----
-### 2026-03-05T12:08:53+00:00
-'No Work No Pay' Not Applicable When Employee Kept Away From Work By Authorities Without His Fault: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-no-work-no-pay-not-applicable-when-employer-kept-away-from-work-by-authorities-without-his-fault-525377
-
-[Read on Telegram](https://t.me/livelawindia/106322)
-
----
-### 2026-03-05T12:45:22+00:00
-Kerala High Court Refuses To Interfere With Assembly Ethics Committee Proceedings Against Rahul Mamkoottathil MLA
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-pil-rahul-mamkootathil-525381
-
-[Read on Telegram](https://t.me/livelawindia/106323)
-
----
-### 2026-03-05T12:53:02+00:00
-HP High Court Quashes FIR Against Shimla Councillor Under Railways Act, Finds No Material Showing Electric Pole Near Track Endangered Safety
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-wilful-endangerment-railways-act-525355
-
-[Read on Telegram](https://t.me/livelawindia/106324)
-
----
-### 2026-03-05T13:12:42+00:00
-Karnataka HC Asks State To Issue Guidelines On Background Check For Migrant Workers, Calls For Balanced Approach Without Stigmatisation
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-guidelines-migrant-workers-background-verification-525382
-
-[Read on Telegram](https://t.me/livelawindia/106325)
-
----
-### 2026-03-05T13:27:22+00:00
-'Non Supply Of Inquiry Report To Accused Delinquent Vitates Punishment Order': MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-holds-non-supply-of-inquiry-report-to-government-employee-vitates-punishment-order-525378
-
-[Read on Telegram](https://t.me/livelawindia/106326)
-
----
-### 2026-03-05T13:47:32+00:00
-S. 202 CrPC | Magistrate Bound To Inquire Before Issuing Summons To Accused Residing Beyond Territorial Jurisdiction: Uttarakhand HC
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-issuing-summons-accused-territorial-jurisdiction-525379
-
-[Read on Telegram](https://t.me/livelawindia/106327)
-
----
-### 2026-03-05T14:31:52+00:00
-'Will Not Accept': Karnataka High Court Questions State For Filing Closure Report In FIR Over Abetment Of Student's Suicide
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-b-report-fir-student-abetment-to-suicide-525389
-
-[Read on Telegram](https://t.me/livelawindia/106328)
-
----
-### 2026-03-05T15:07:22+00:00
-Kerala High Court Questions Local Self Govt Department Over Illegal Boards; Says Joint Directors Must Appear If Directions Not Implemented
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-lsgd-on-illegal-boards-joint-directors-asked-to-appear-if-directions-not-implemented-525391
-
-[Read on Telegram](https://t.me/livelawindia/106329)
-
----
-### 2026-03-05T15:30:22+00:00
-NLU Odisha Invites Submissions for Short Film Making Competition on 'Campus Romance: Heartbeats and Heartbreak in the Hallways'
-https://www.livelaw.in/lawschool/competitions/nlu-odisha-invites-submissions-for-short-film-making-competition-on-campus-romance-heartbeats-and-heartbreak-in-the-hallways-525393
-
-[Read on Telegram](https://t.me/livelawindia/106330)
-
----
-### 2026-03-05T16:00:13+00:00
-P&H High Court Quashes Case Against Man Accused Of Making Accusations Against Judge, Asks DGP To Run Police Awareness Program On S.215 BNSS
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-proceedings-against-man-accused-of-making-accusations-against-judge-punjab-dgp-525396
-
-[Read on Telegram](https://t.me/livelawindia/106331)
-
----
-### 2026-03-05T16:10:52+00:00
-FIR Not Doubtful Or Diluted Merely Because It Was Lodged With Advocate's Help: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-fir-lodged-advocate-help-525399
-
-[Read on Telegram](https://t.me/livelawindia/106332)
-
----
 ### 2026-03-05T16:22:42+00:00
 'Criminal Proceedings Cannot Be Used To Settle Civil Scores In Property Deals': Punjab & Haryana High Court Quashes FIR
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-cheating-forgery-fir-criminal-proceedings-cannot-be-used-to-settle-civil-scores-525397
@@ -142,5 +23,124 @@ Kerala High Court Flags Financial Irregularities In Ayyappa Conclave Spending; D
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-financial-irregularities-ayyappa-conclave-spending-statement-on-anomalies-audits-525401
 
 [Read on Telegram](https://t.me/livelawindia/106335)
+
+---
+### 2026-03-06T04:35:10+00:00
+Intra-Court Appeal Maintainable Against Ex Parte Ad Interim Order & Any Order Affecting Party's Right To Pursue Statutory Remedy: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-section-5-appeal-ex-parte-ad-interim-order-525411
+
+[Read on Telegram](https://t.me/livelawindia/106336)
+
+---
+### 2026-03-06T04:36:30+00:00
+Gujarat High Court Issues Notice On PIL Flagging Alarming Rise Of Deepfakes & AI Generated Fake Content
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-deepfakes-interception-monitoring-ai-generated-content-525412
+
+[Read on Telegram](https://t.me/livelawindia/106337)
+
+---
+### 2026-03-06T04:45:10+00:00
+Scheduled Tribe Person Can Voluntarily Opt To Be Governed By Hindu Marriage Act: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-scheduled-tribe-person-hindu-marriage-act-525413
+
+[Read on Telegram](https://t.me/livelawindia/106338)
+
+---
+### 2026-03-06T04:48:10+00:00
+Team Lead Vacancy At Kotak Mahindra Bank Limited [Apply Now]
+https://www.livelaw.in/job-updates/team-lead-vacancy-at-kotak-mahindra-bank-limited-525414
+
+[Read on Telegram](https://t.me/livelawindia/106339)
+
+---
+### 2026-03-06T04:49:30+00:00
+Members Vacancy At Permanent Lok Adalats For Public Utility Services, Punjab
+https://www.livelaw.in/job-updates/members-vacancy-at-permanent-lok-adalats-for-public-utility-services-punjab-525415
+
+[Read on Telegram](https://t.me/livelawindia/106340)
+
+---
+### 2026-03-06T04:51:50+00:00
+Senior Deputy Secretary Vacancy At General Administration Department, Visakhapatnam Port Authority
+https://www.livelaw.in/job-updates/senior-deputy-secretary-vacancy-at-general-administration-department-visakhapatnam-port-authority-525416
+
+[Read on Telegram](https://t.me/livelawindia/106341)
+
+---
+### 2026-03-06T04:53:10+00:00
+Deputy Chief Legal Aid Defense Counsel Vacancy At District Legal Services Authority, Kurnool
+https://www.livelaw.in/job-updates/deputy-chief-legal-aid-defense-counsel-vacancy-at-district-legal-services-authority-kurnool-525417
+
+[Read on Telegram](https://t.me/livelawindia/106342)
+
+---
+### 2026-03-06T05:00:50+00:00
+Non-Parties Aggrieved By Judgment Can Seek Review Or Challenge It: Supreme Court
+https://www.livelaw.in/supreme-court/non-parties-aggrieved-by-judgment-can-seek-review-or-challenge-it-supreme-court-525419
+
+[Read on Telegram](https://t.me/livelawindia/106343)
+
+---
+### 2026-03-06T05:01:50+00:00
+2026 LiveLaw (SC) 212 |  Dr Jiji KS v Shibu K
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-212-dr-jiji-ks-v-shibu-k-525420
+
+[Read on Telegram](https://t.me/livelawindia/106344)
+
+---
+### 2026-03-06T05:02:30+00:00
+Rajasthan High Court Flags 'Near-Zero' Cut-Off; Says State Must Ensure Minimum Standards Even For Reserved Categories
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-expressed-minimum-standards-reserved-categories-525400
+
+[Read on Telegram](https://t.me/livelawindia/106345)
+
+---
+### 2026-03-06T05:16:10+00:00
+Controlling Love Marriages Under The Pretext Of 'Love-Jihad'
+https://www.livelaw.in/articles/controlling-love-marriages-love-jihad-525422
+
+[Read on Telegram](https://t.me/livelawindia/106346)
+
+---
+### 2026-03-06T05:30:00+00:00
+OMMC Rules | Cancellation Of Lease Not Illegal Merely Because Order Was Issued By 'In-Charge' Mining Officer: Orissa High Court
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-lease-cancellation-order-issued-incharge-mining-officer-525423
+
+[Read on Telegram](https://t.me/livelawindia/106347)
+
+---
+### 2026-03-06T06:17:40+00:00
+Minor Girl Apprehends Torture, Alleges Father's Involvement In Illegal Activities; Rajasthan High Court Allows Her To Stay In Children's Home
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-father-alleged-illegal-activities-children-home-525432
+
+[Read on Telegram](https://t.me/livelawindia/106348)
+
+---
+### 2026-03-06T06:27:00+00:00
+[Advertisement] Corporate Law In Practice: A Complete Guide To Careers & Skills | Into Legal World
+https://www.livelaw.in/lawschool/diploma-certificate-courses/corporate-law-in-practice-a-complete-guide-to-careers-skills-into-legal-world-525434
+
+[Read on Telegram](https://t.me/livelawindia/106349)
+
+---
+### 2026-03-06T06:32:50+00:00
+Criminal Case Cannot Continue In Hope Of Finding Offender When No Prima Facie Offence Is Disclosed: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-quashes-fir-gtl-infrastructure-525403
+
+[Read on Telegram](https://t.me/livelawindia/106350)
+
+---
+### 2026-03-06T06:40:10+00:00
+NALSA Constitutes Committee To Revisit Legal Aid Defense Counsel System (LADCS) Scheme And Policy
+https://www.livelaw.in/news-updates/nalsa-constitutes-committee-to-revisit-legal-aid-defense-counsel-system-ladcs-scheme-and-policy-525437
+
+[Read on Telegram](https://t.me/livelawindia/106351)
+
+---
+### 2026-03-06T06:57:30+00:00
+Justice Should Not Only Be Delivered Swiftly, But With Empathy: Justice Sushrut Arvind Dharmadikari Bids Farewell To Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/justice-sushrut-arvind-dharmadikari-bids-farewell-to-kerala-high-court-525424
+
+[Read on Telegram](https://t.me/livelawindia/106352)
 
 ---
