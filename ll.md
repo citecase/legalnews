@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-06T06:40:10+00:00*
+*Last Updated: 2026-03-06T09:03:54+00:00*
 
 ---
 
-### 2026-03-06T06:40:10+00:00
-NALSA Constitutes Committee To Revisit Legal Aid Defense Counsel System (LADCS) Scheme And Policy
-https://www.livelaw.in/news-updates/nalsa-constitutes-committee-to-revisit-legal-aid-defense-counsel-system-ladcs-scheme-and-policy-525437
-
-[Read on Telegram](https://t.me/livelawindia/106351)
-
----
-### 2026-03-06T06:57:30+00:00
-Justice Should Not Only Be Delivered Swiftly, But With Empathy: Justice Sushrut Arvind Dharmadikari Bids Farewell To Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/justice-sushrut-arvind-dharmadikari-bids-farewell-to-kerala-high-court-525424
-
-[Read on Telegram](https://t.me/livelawindia/106352)
-
----
-### 2026-03-06T07:17:10+00:00
-[Land Acquisition Act] 'Compensation U/S 28A Cannot Be Restricted To Compensation Awarded In Foundational Award': Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-compensation-awarded-foundational-award-land-acquisition-act-525428
-
-[Read on Telegram](https://t.me/livelawindia/106353)
-
----
-### 2026-03-06T07:19:50+00:00
-Sri Lankan Judge Approaches Karnataka High Court Seeking Removal Of Online Content Against Him
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-notice-sri-lankan-judge-defamatory-content-right-to-be-forgotten-525440
-
-[Read on Telegram](https://t.me/livelawindia/106354)
-
----
-### 2026-03-06T07:27:30+00:00
-Justice Sushrut Arvind Dharmadhikari Sworn In As Chief Justice of Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-justice-sa-adhikari-sworn-in-as-chief-justice-525443
-
-[Read on Telegram](https://t.me/livelawindia/106355)
-
----
-### 2026-03-06T07:38:40+00:00
-Partnership Between Bench & Bar Strengthens Public Confidence: Justice MM Shrivastava Bids Farewell To Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-bench-and-bar-partnership-strengthen-public-confidence-525445
-
-[Read on Telegram](https://t.me/livelawindia/106356)
-
----
-### 2026-03-06T07:41:40+00:00
-Centre Notifies Transfer Of Justice Lisa Gill From P&H HC To Andhra Pradesh High Court
-https://www.livelaw.in/top-stories/centre-notifies-transfer-of-justice-lisa-gill-from-ph-hc-to-andhra-pradesh-high-court-525447
-
-[Read on Telegram](https://t.me/livelawindia/106357)
-
----
-### 2026-03-06T07:42:40+00:00
-Kerala High Court Seeks Urgent Action on Monsoon Preparedness in Kochi, Directs Secretary Of Corporation To Submit Report
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-monsoon-preparedness-in-kochi-report-525448
-
-[Read on Telegram](https://t.me/livelawindia/106358)
-
----
-### 2026-03-06T07:43:00+00:00
-J&K&L High Court Orders Probe Against JMC Officials For Ignoring Court-Mandated Structural Report; Says Compensation To Be Levied From Salaries
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-jmc-ordered-fresh-safety-audit-ignoring-court-mandated-engineering-report-court-directs-chief-secretary-to-probe-officials-recover-costs-from-their-salaries-525426
-
-[Read on Telegram](https://t.me/livelawindia/106359)
-
----
-### 2026-03-06T08:07:40+00:00
-Kerala High Court Reserves Verdict In Ex-MLA Antony Raju's Plea Against Order Refusing To Quash Conviction In Evidence Tampering Case
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-antony-raju-mla-evidence-tampering-525446
-
-[Read on Telegram](https://t.me/livelawindia/106360)
-
----
 ### 2026-03-06T09:03:54+00:00
 LinkedIn Posts Mostly Exaggerated; Progress In Legal Profession Not Linear : Justice BV Nagarathna To Law Students
 https://www.livelaw.in/top-stories/linkedin-posts-mostly-exaggerated-progress-in-legal-profession-not-linear-justice-bv-nagarathna-to-law-students-525457
@@ -142,5 +72,75 @@ Trial Court Can't Assume Interview Committee's Role, Direct Appointment Of Govt 
 https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-civil-court-role-interview-committee-direct-appointment-525427
 
 [Read on Telegram](https://t.me/livelawindia/106370)
+
+---
+### 2026-03-06T13:28:00+00:00
+Karnataka High Court Quashes Proceedings Against Congress Leader Accused Of Assaulting Ex-MLA In Legislative Assembly
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-congress-leader-assault-ex-mla-legislative-assembly-525473
+
+[Read on Telegram](https://t.me/livelawindia/106371)
+
+---
+### 2026-03-06T13:57:00+00:00
+MP High Court Recommends Enquiry Against Trial Judge For Non-Compliance With High Court Orders
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-recommends-enquiry-against-trial-judge-for-non-complaince-with-orders-525489
+
+[Read on Telegram](https://t.me/livelawindia/106372)
+
+---
+### 2026-03-06T14:27:30+00:00
+Gujarat High Court Rejects Plea For Protection Of Burial Rights Near Protected Monument, Says Customary Right Not Proved
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-burial-rights-protected-monument-custom-proof-525484
+
+[Read on Telegram](https://t.me/livelawindia/106373)
+
+---
+### 2026-03-06T14:32:50+00:00
+Union Budget 2026-27 And Access To Medicines
+https://www.livelaw.in/articles/union-budget-2026-27-access-medicines-525488
+
+[Read on Telegram](https://t.me/livelawindia/106374)
+
+---
+### 2026-03-06T14:47:50+00:00
+Order VI Rule 17 CPC Proviso Not Applicable To Pre-2002 Suits: Allahabad High Court Permits Amendment In 1997 Plaint
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-allows-amendment-suit-proviso-rule17order-vi-525485
+
+[Read on Telegram](https://t.me/livelawindia/106375)
+
+---
+### 2026-03-06T15:02:10+00:00
+Failure Of Family To Act Despite Alleged Harassment Raises Doubt: Calcutta High Court Acquits Husband In 1987 Dowry Death Case
+https://www.livelaw.in/high-court/calcutta-high-court/failure-of-family-to-act-despite-alleged-harassment-raises-doubt-calcutta-high-court-acquits-husband-in-1987-dowry-death-case-525492
+
+[Read on Telegram](https://t.me/livelawindia/106376)
+
+---
+### 2026-03-06T15:13:00+00:00
+Punjab & Haryana High Court Chief Justice Sheel Nagu Inaugurates Senior Advocates' Lounge
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-chief-justice-sheel-nagu-inaugurates-senior-advocates-lounge-525495
+
+[Read on Telegram](https://t.me/livelawindia/106377)
+
+---
+### 2026-03-06T15:38:00+00:00
+Kerala High Court Disposes PIL On ESIC Medical College At Kollam, Says MBBS Course Must Comply With NMC Norms Before Approval
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-disposes-pil-on-esic-medical-college-in-kollam-525486
+
+[Read on Telegram](https://t.me/livelawindia/106378)
+
+---
+### 2026-03-06T16:13:10+00:00
+Father's Rape Of Minor Daughter Is A Betrayal Of Sacred Relationship: Rajasthan High Court Upholds Life Imprisonment
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-upholds-life-imprisonment-father-rape-minor-daughter-525496
+
+[Read on Telegram](https://t.me/livelawindia/106379)
+
+---
+### 2026-03-06T16:48:10+00:00
+Son's Right To Compassionate Appointment Cannot Be Defeated By Parents' Divorce Or Appointment Of Father's Second Wife: Rajasthan HC
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-compassionate-appointment-parents-divorce-525497
+
+[Read on Telegram](https://t.me/livelawindia/106380)
 
 ---
