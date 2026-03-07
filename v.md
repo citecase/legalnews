@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-06T16:03:12+00:00*
+*Last Updated: 2026-03-07T06:53:20+00:00*
+
+---
+
+### 2026-03-07T06:53:20+00:00
+Section 28A Land Acquisition Act Permits Compensation Beyond Foundational Award Where Land Classification Is Incorrect: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/geetabai-eknath-salunke-since-deceased-v-sub-divisional-officer-cum-land-acquisition-officer-2026bhc-aug8726-1609387
+
+[Source Link](https://t.me/verdictumlegalupdates/25779)
+
+---
+
+### 2026-03-07T06:02:19+00:00
+Theatrical Rights Don’t Include Satellite Telecast: Madras High Court Dismisses Copyright Claims Over Telugu Dubbed ‘Roja’
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/lahari-recording-co-p-ltd-v-jain-television-mala-publicity-service-p-ltd-2026mhc942-telugu-dubbed-roja-satellite-theatre-1609384
+
+[Source Link](https://t.me/verdictumlegalupdates/25778)
+
+---
+
+### 2026-03-07T05:12:58+00:00
+CBI Investigation Cannot Continue On Hope That IO May Someday Find Real Culprits And File Chargesheet: Bombay HC Quashes FIR Against GTL Infrastructure
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/gtl-infrastructure-limited-v-central-bureau-of-investigation-2026bhc-as10317-db-cbi-fir-bank-loan-restructuring-gtl-1609380
+
+[Source Link](https://t.me/verdictumlegalupdates/25777)
+
+---
+
+### 2026-03-07T04:33:07+00:00
+Accused Need Not Be Informed Grounds For Arrest When Formal Arrest Is Recorded As Per Warrant U/s.302 Of BNSS: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/ashique-v-state-of-kerala-2026ker19267-accused-grounds-for-arrest-warrant-sec302-bnss-1609361
+
+[Source Link](https://t.me/verdictumlegalupdates/25776)
 
 ---
 
@@ -129,38 +161,6 @@ Prolonged Use Of Temporary Employment Despite Vacancies Amounts To Unfair Labour
 https://www.verdictum.in/court-updates/high-courts/bombay-high-court/shivaji-madhav-jadhav-v-nashik-district-central-cooperative-bank-ltd-2026bhc-as10655-unfair-labour-practice-temporary-employment-1609326
 
 [Source Link](https://t.me/verdictumlegalupdates/25760)
-
----
-
-### 2026-03-06T06:32:42+00:00
-Karnataka High Court Convicts Domestic Help In Triple Murder Case; Asks State To Consider Tenant-Like Verification For Migrant Workers
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/state-of-karnataka-v-deepak-haldar-crla-no-1225-of-2016-domestic-help-bengaluru-triple-murder-migrant-workers-1609319
-
-[Source Link](https://t.me/verdictumlegalupdates/25759)
-
----
-
-### 2026-03-06T06:03:00+00:00
-Repatriation Arrangement Does Not Stand In Way Of Relief: Delhi High Court Sets Aside "Mechanical" Rejection Of Premature Release Plea Of Bangladeshi Convict
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/2026-dhc1399-asif-naeem-v-state-govt-of-nct-delhi-1609310
-
-[Source Link](https://t.me/verdictumlegalupdates/25758)
-
----
-
-### 2026-03-06T05:12:19+00:00
-Insurance Policy Issued To Persons On Deathbed: Allahabad High Court Orders Enquiry And Issues Warrant Against HDFC Life Manager
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/nawab-ali-nawabuddin-v-state-of-up-insurance-policy-deathbed-enquiry-warrant-hdfc-life-manager-1609309
-
-[Source Link](https://t.me/verdictumlegalupdates/25757)
-
----
-
-### 2026-03-06T04:33:08+00:00
-Divorce Decree Can’t Be Granted Merely On Basis of Whatsapp Chat Which Is Not Proved By Leading Evidence: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/a-v-b-2026bhc-as10374-db-divorce-decree-whatsapp-chat-evidence-1609285
-
-[Source Link](https://t.me/verdictumlegalupdates/25756)
 
 ---
 
