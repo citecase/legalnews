@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-07T12:52:30+00:00*
+*Last Updated: 2026-03-07T15:03:04+00:00*
+
+---
+
+### 2026-03-07T15:03:04+00:00
+District Legal Services Authority, Kurnool Invites Applications For The Post Of Deputy Chief Legal Aid Defense Counsel
+https://www.verdictum.in/job-updates/district-legal-services-authority-1609413
+
+[Source Link](https://t.me/verdictumlegalupdates/25790)
+
+---
+
+### 2026-03-07T14:12:23+00:00
+Star Campaigner’s Visit During 48-Hour Silence Period Not By Itself "Undue Influence": Bombay High Court Affirms Shiv Sena MLA’s Election
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/md-arif-lalan-khan-v-dilip-bhausaheb-lande-ors-2026bhc-os5855-election-1609423
+
+[Source Link](https://t.me/verdictumlegalupdates/25789)
+
+---
+
+### 2026-03-07T13:32:42+00:00
+Failure To Exhibit Post-Mortem Report Fatal To Prosecution: Calcutta High Court Sets Aside Conviction In Dowry Death Case
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/purna-chandra-raul-v-state-of-west-bengal-2026chc-as362-dowry-death-1609422
+
+[Source Link](https://t.me/verdictumlegalupdates/25788)
 
 ---
 
@@ -137,30 +161,6 @@ Digital Gold Transactions Cannot Escape BUDS Act Scrutiny Merely Because They Ar
 https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/nishchay-babu-arkalgud-v-state-of-karnataka-banning-of-unregulated-deposit-schemes-act-2019-1609349
 
 [Source Link](https://t.me/verdictumlegalupdates/25771)
-
----
-
-### 2026-03-06T13:32:26+00:00
-Interview Session Timing Can’t Fix Seniority Under Rule 109 School Education Rules: Delhi High Court Upholds 2022 Seniority List For Promotion In Aided School
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/jolly-batoo-v-government-of-nct-of-delhi-interview-session-timing-seniority-school-education-rules-aided-school-1609348
-
-[Source Link](https://t.me/verdictumlegalupdates/25770)
-
----
-
-### 2026-03-06T13:02:25+00:00
-School Buildings Constitute "Place For Custody Of Property" ; Attracts Offence Of House Trespass U/S 442 IPC: Chhattisgarh High Court
-https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/vikas-tiwari-v-state-of-chhattisgarh-crmp-no-8-of-2026-1609346
-
-[Source Link](https://t.me/verdictumlegalupdates/25769)
-
----
-
-### 2026-03-06T12:32:43+00:00
-Violation Of Section 14 SARFAESI Procedure Can Justify Exercise Of Writ Jurisdiction Despite Alternative Remedy: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/ms-grids-engineers-and-contractors-v-union-bank-of-india-2026ker19606-1609345
-
-[Source Link](https://t.me/verdictumlegalupdates/25768)
 
 ---
 
