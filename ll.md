@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-06T09:03:54+00:00*
+*Last Updated: 2026-03-06T09:47:44+00:00*
 
 ---
 
-### 2026-03-06T09:03:54+00:00
-LinkedIn Posts Mostly Exaggerated; Progress In Legal Profession Not Linear : Justice BV Nagarathna To Law Students
-https://www.livelaw.in/top-stories/linkedin-posts-mostly-exaggerated-progress-in-legal-profession-not-linear-justice-bv-nagarathna-to-law-students-525457
-
-[Read on Telegram](https://t.me/livelawindia/106361)
-
----
-### 2026-03-06T09:43:54+00:00
-Cancellation Of Coal Block Is 'Change In Law', Power Generator Entitled To Compensation From 2014: Supreme Court
-https://www.livelaw.in/top-stories/cancellation-of-coal-block-is-change-in-law-power-generator-entitled-to-compensation-from-2014-supreme-court-525461
-
-[Read on Telegram](https://t.me/livelawindia/106362)
-
----
-### 2026-03-06T09:45:14+00:00
-2026 LiveLaw (SC) 213  | West Bengal State Electricity Distribution Co. Ltd. v. Adhunik Power & Natural Resource Ltd. & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-213-west-bengal-state-electricity-distribution-co-ltd-v-adhunik-power-natural-resource-ltd-ors-525464
-
-[Read on Telegram](https://t.me/livelawindia/106363)
-
----
 ### 2026-03-06T09:47:44+00:00
 CMO Bulk Messaging Issue: Kerala High Court Reserves Verdict, State's Plea To Send 'Thank You' Messages Also To Be Decided
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-bulk-messages-chief-minister-office-525449
@@ -142,5 +121,26 @@ Son's Right To Compassionate Appointment Cannot Be Defeated By Parents' Divorce 
 https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-compassionate-appointment-parents-divorce-525497
 
 [Read on Telegram](https://t.me/livelawindia/106380)
+
+---
+### 2026-03-06T19:05:51+00:00
+Justice Vivek Rusia Inaugurates 3-Day Community Mediation Training Programme For Retired Officers At M.P. State Legal Services Authority
+https://www.livelaw.in/news-updates/justice-vivek-rusia-inaugurates-3-day-community-mediation-training-programme-for-retired-officers-at-mp-state-legal-services-authority-525498
+
+[Read on Telegram](https://t.me/livelawindia/106381)
+
+---
+### 2026-03-06T19:17:24+00:00
+Animal Law Cell, Faculty Of Law, University Of Delhi To Organise Conference On 'Turning Policy Into Practice: Advancing Animal Justice Through Litigation and Innovation'
+https://www.livelaw.in/lawschool/news/animal-law-cell-faculty-of-law-university-delhi-organise-conference-525499
+
+[Read on Telegram](https://t.me/livelawindia/106382)
+
+---
+### 2026-03-06T19:20:04+00:00
+Amjad Ali Khan Memorial Moot Court Competition 2026 By Sultan-Ul-Uloom College Of Law, Hyderabad
+https://www.livelaw.in/lawschool/moot-courts/amjad-ali-khan-memorial-moot-court-competition-2026-by-sultan-ul-uloom-college-of-law-hyderabad-525500
+
+[Read on Telegram](https://t.me/livelawindia/106383)
 
 ---
