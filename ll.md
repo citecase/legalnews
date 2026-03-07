@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-06T09:47:44+00:00*
+*Last Updated: 2026-03-06T14:32:50+00:00*
 
 ---
 
-### 2026-03-06T09:47:44+00:00
-CMO Bulk Messaging Issue: Kerala High Court Reserves Verdict, State's Plea To Send 'Thank You' Messages Also To Be Decided
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-bulk-messages-chief-minister-office-525449
-
-[Read on Telegram](https://t.me/livelawindia/106364)
-
----
-### 2026-03-06T09:48:44+00:00
-Judicial Overreach
-https://www.livelaw.in/articles/judicial-overreach-supreme-court-525465
-
-[Read on Telegram](https://t.me/livelawindia/106365)
-
----
-### 2026-03-06T09:58:44+00:00
-'Young Boys Bear Consequences In Adolescent Relationships': Madras High Court Calls For POCSO Awareness To Prevent Misuse
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-pocso-act-young-boys-bear-consequence-consensual-relationship-525466
-
-[Read on Telegram](https://t.me/livelawindia/106366)
-
----
-### 2026-03-06T10:33:07+00:00
-Kaleshwaram Project | Notice For Inquiry Issued To KCR, Others; Procedure Under Law Was Followed: State To Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-kcr-kaleshwaram-project-inquiry-commssion-525467
-
-[Read on Telegram](https://t.me/livelawindia/106367)
-
----
-### 2026-03-06T10:42:07+00:00
-Young Professional, Associate, And Consultant Vacancy At Centre For Trade And Investment Law
-https://www.livelaw.in/job-updates/young-professional-associate-and-consultant-vacancy-at-centre-for-trade-and-investment-law-525475
-
-[Read on Telegram](https://t.me/livelawindia/106368)
-
----
-### 2026-03-06T12:03:00+00:00
-“Justice Should Be Served To The Last Man In Queue”: Justice Sujit Narayan Prasad At 6th State Meet Of Jharkhand DLSAs
-https://www.livelaw.in/events/justice-sujit-narayan-prasad-6th-state-meet-jharkhand-dlsa-525402
-
-[Read on Telegram](https://t.me/livelawindia/106369)
-
----
-### 2026-03-06T12:12:40+00:00
-Trial Court Can't Assume Interview Committee's Role, Direct Appointment Of Govt School Teacher 11 Yrs After Merit List: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-civil-court-role-interview-committee-direct-appointment-525427
-
-[Read on Telegram](https://t.me/livelawindia/106370)
-
----
-### 2026-03-06T13:28:00+00:00
-Karnataka High Court Quashes Proceedings Against Congress Leader Accused Of Assaulting Ex-MLA In Legislative Assembly
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-congress-leader-assault-ex-mla-legislative-assembly-525473
-
-[Read on Telegram](https://t.me/livelawindia/106371)
-
----
-### 2026-03-06T13:57:00+00:00
-MP High Court Recommends Enquiry Against Trial Judge For Non-Compliance With High Court Orders
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-recommends-enquiry-against-trial-judge-for-non-complaince-with-orders-525489
-
-[Read on Telegram](https://t.me/livelawindia/106372)
-
----
-### 2026-03-06T14:27:30+00:00
-Gujarat High Court Rejects Plea For Protection Of Burial Rights Near Protected Monument, Says Customary Right Not Proved
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-burial-rights-protected-monument-custom-proof-525484
-
-[Read on Telegram](https://t.me/livelawindia/106373)
-
----
 ### 2026-03-06T14:32:50+00:00
 Union Budget 2026-27 And Access To Medicines
 https://www.livelaw.in/articles/union-budget-2026-27-access-medicines-525488
@@ -142,5 +72,75 @@ Amjad Ali Khan Memorial Moot Court Competition 2026 By Sultan-Ul-Uloom College O
 https://www.livelaw.in/lawschool/moot-courts/amjad-ali-khan-memorial-moot-court-competition-2026-by-sultan-ul-uloom-college-of-law-hyderabad-525500
 
 [Read on Telegram](https://t.me/livelawindia/106383)
+
+---
+### 2026-03-07T03:32:46+00:00
+Madras High Court Monthly Digest: February 2026 [Citations 51-94]
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-monthly-digest-february-2026-525337
+
+[Read on Telegram](https://t.me/livelawindia/106384)
+
+---
+### 2026-03-07T04:32:36+00:00
+Fixed-Term Employment Paradox: Workers' Security Vis-a-Vis Employers' Flexibility Under New Labour Code
+https://www.livelaw.in/articles/fixed-term-employment-new-labour-code-525503
+
+[Read on Telegram](https://t.me/livelawindia/106385)
+
+---
+### 2026-03-07T04:40:56+00:00
+Kerala High Court Notifies New Rules For Designating Senior Advocates
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-senior-advocates-designation-525507
+
+[Read on Telegram](https://t.me/livelawindia/106386)
+
+---
+### 2026-03-07T05:15:16+00:00
+US Sinking Of Iranian Warship IRIS Dena Raises International Law Questions
+https://www.livelaw.in/top-stories/us-sinking-of-iranian-warship-iris-dena-raises-international-law-questions-525509
+
+[Read on Telegram](https://t.me/livelawindia/106387)
+
+---
+### 2026-03-07T05:16:16+00:00
+Ex-DGP Sreelekha Moves Kerala High Court To Quash FIR  For Allegedly Disclosing POCSO Victims' Names On YouTube Channel
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-pocso-ex-dgp-sreelekha-fir-victims-names-525510
+
+[Read on Telegram](https://t.me/livelawindia/106388)
+
+---
+### 2026-03-07T05:23:26+00:00
+Punjab & Haryana High Court Acquits Dera Chief Gurmit Ram Rahim in 2002 Journalist Chhatrapati Murder Case
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-acquits-dera-chief-gurmit-ram-rahim-in-2002-journalist-chhatrapati-murder-case-525511
+
+[Read on Telegram](https://t.me/livelawindia/106389)
+
+---
+### 2026-03-07T05:35:06+00:00
+S.7 POCSO Act | Squeezing & Pulling Breast Of Minor Girl Without 'Skin-To-Skin' Contact Amounts To Sexual Assault: Orissa High Court
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-squeezing-pulling-breast-minor-girl-sexual-assault-sec7-pocso-act-525513
+
+[Read on Telegram](https://t.me/livelawindia/106390)
+
+---
+### 2026-03-07T05:47:06+00:00
+Kerala MLA Rahul Mamkoottathil's Anticipatory Bail In Rape Case Challenged In Supreme Court
+https://www.livelaw.in/top-stories/kerala-mla-rahul-mamkoottathils-anticipatory-bail-in-rape-case-challenged-in-supreme-court-525514
+
+[Read on Telegram](https://t.me/livelawindia/106391)
+
+---
+### 2026-03-07T05:53:46+00:00
+Complete Supreme Court Annual Digest 2025 [Part-IX]
+https://www.livelaw.in/supreme-court/complete-supreme-court-annual-digest-2025-525516
+
+[Read on Telegram](https://t.me/livelawindia/106392)
+
+---
+### 2026-03-07T06:12:47+00:00
+Plea Raises Data Protection Concerns Over 'Digi Yatra', Kerala High Court Seeks Response Of Centre, Digi Yatra Foundation
+https://www.livelaw.in/high-court/kerala-high-court/digi-yatra-data-protection-concerns-kerala-high-court-seeks-response-of-centre-digi-yatra-foundation-525518
+
+[Read on Telegram](https://t.me/livelawindia/106393)
 
 ---
