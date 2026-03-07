@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-07T05:53:46+00:00*
+*Last Updated: 2026-03-07T10:02:53+00:00*
 
 ---
 
-### 2026-03-07T05:53:46+00:00
-Complete Supreme Court Annual Digest 2025 [Part-IX]
-https://www.livelaw.in/supreme-court/complete-supreme-court-annual-digest-2025-525516
-
-[Read on Telegram](https://t.me/livelawindia/106392)
-
----
-### 2026-03-07T06:12:47+00:00
-Plea Raises Data Protection Concerns Over 'Digi Yatra', Kerala High Court Seeks Response Of Centre, Digi Yatra Foundation
-https://www.livelaw.in/high-court/kerala-high-court/digi-yatra-data-protection-concerns-kerala-high-court-seeks-response-of-centre-digi-yatra-foundation-525518
-
-[Read on Telegram](https://t.me/livelawindia/106393)
-
----
-### 2026-03-07T07:17:17+00:00
-Appointment To Higher Post On Compassionate Grounds Not Matter Of Right, Purely Discretionary Power: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-appointment-to-higher-post-on-compassionate-grounds-is-not-a-matter-of-right-power-of-government-to-grant-such-appointment-is-purely-discretionary-525520
-
-[Read on Telegram](https://t.me/livelawindia/106394)
-
----
-### 2026-03-07T07:38:27+00:00
-Transfer Of Matrimonial Case At Advanced Stage Of Trial Unjustified: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/transfer-of-matrimonial-case-at-advanced-stage-of-trial-unjustified-525527
-
-[Read on Telegram](https://t.me/livelawindia/106395)
-
----
-### 2026-03-07T07:53:47+00:00
-Management Trainee (Human Resource) Vacancy At HLL Lifecare Limited
-https://www.livelaw.in/job-updates/management-trainee-human-resource-vacancy-at-hll-lifecare-limited-525529
-
-[Read on Telegram](https://t.me/livelawindia/106396)
-
----
-### 2026-03-07T08:49:53+00:00
-Project Co-ordinator Vacancy At Child Help Line Unit, Vellore District
-https://www.livelaw.in/job-updates/project-co-ordinator-vacancy-at-child-help-line-unit-vellore-district-525531
-
-[Read on Telegram](https://t.me/livelawindia/106397)
-
----
-### 2026-03-07T08:50:53+00:00
-Assistant Legal Aid Defense Counsel Vacancy At District Legal Services Authority, Udalguri
-https://www.livelaw.in/job-updates/assistant-legal-aid-defense-counsel-vacancy-at-district-legal-services-authority-udalguri-525532
-
-[Read on Telegram](https://t.me/livelawindia/106398)
-
----
-### 2026-03-07T08:51:53+00:00
-Paralegal Personnel/ Lawyer Vacancy At Sakhi One Stop Centre, District Narayanpur
-https://www.livelaw.in/job-updates/paralegal-personnel-lawyer-vacancy-at-sakhi-one-stop-centre-district-narayanpur-525533
-
-[Read on Telegram](https://t.me/livelawindia/106399)
-
----
-### 2026-03-07T09:33:03+00:00
-Tariffs, Trust And Tectonics: Strategic Undercurrents In US–India Trade
-https://www.livelaw.in/articles/tariffs-undercurrents-us-india-trade-525504
-
-[Read on Telegram](https://t.me/livelawindia/106400)
-
----
 ### 2026-03-07T10:02:53+00:00
 “Appalled” That PIL On Illegal Constructions In Patnitop Has Lingered For Nearly A Decade; J&K&L High Court Directs CEO To Join Proceedings
 https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-not-pursued-in-right-earnest-court-directs-patnitop-authority-ceo-to-join-proceedings-in-long-pending-pil-on-illegal-constructions-525523
@@ -142,5 +79,68 @@ Bombay High Court Judge Duped Of Rs 6 Lakhs In Online Credit Card Fraud
 https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-judge-duped-of-rs-6-lakhs-in-online-credit-card-fraud-525553
 
 [Read on Telegram](https://t.me/livelawindia/106411)
+
+---
+### 2026-03-07T13:24:31+00:00
+CJI Surya Kant Inaugurates Chandigarh International Arbitration Centre
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/cji-surya-kant-inaugurates-chandigarh-international-arbitration-centre-525559
+
+[Read on Telegram](https://t.me/livelawindia/106412)
+
+---
+### 2026-03-07T14:32:21+00:00
+How To Produce WhatsApp Evidence In Court Proceedings?
+https://www.livelaw.in/articles/whatsapp-evidence-produce-court-proceedings-525556
+
+[Read on Telegram](https://t.me/livelawindia/106413)
+
+---
+### 2026-03-07T15:22:51+00:00
+Kerala Youth Congress Secretary Moves Private Complaint Before Magistrate Court Against 'Kerala Story 2' Movie Makers
+https://www.livelaw.in/news-updates/kerala-private-complaint-kerala-story-2-525574
+
+[Read on Telegram](https://t.me/livelawindia/106414)
+
+---
+### 2026-03-07T15:27:11+00:00
+India Must Inspire Global Confidence In Cross-Border Dispute Resolution: CJI Surya Kant
+https://www.livelaw.in/top-stories/india-must-inspire-global-confidence-in-cross-border-dispute-resolution-cji-surya-kant-525577
+
+[Read on Telegram](https://t.me/livelawindia/106415)
+
+---
+### 2026-03-07T15:37:31+00:00
+Conditional Acceptance In Tender Does Not Create Concluded Contract Until Conditions Are Fulfilled: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/conditional-acceptance-in-tender-does-not-create-concluded-contract-until-conditions-are-fulfilled-calcutta-high-court-525494
+
+[Read on Telegram](https://t.me/livelawindia/106416)
+
+---
+### 2026-03-07T16:09:11+00:00
+Misleading Social Media Posts Violate Right To Life: Rajasthan HC Orders Removal Of Facebook Post About Minor, Flags Privacy Violation
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-misleading-social-media-posts-privacy-violation-article21-525579
+
+[Read on Telegram](https://t.me/livelawindia/106417)
+
+---
+### 2026-03-07T16:10:31+00:00
+'Trust Is True Seat Of Jurisdiction': CJI Surya Kant Inaugurates Chandigarh International Arbitration Centre
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/cji-surya-kant-inaugurates-chandigarh-international-arbitration-centre-india-international-disputes-week-525580
+
+[Read on Telegram](https://t.me/livelawindia/106418)
+
+---
+### 2026-03-07T16:10:51+00:00
+Madhya Pradesh High Court Weekly Digest: February 23 to March 1, 2026
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-weekly-digest-february-23-to-march-1-2026-525581
+
+[Read on Telegram](https://t.me/livelawindia/106419)
+
+---
+### 2026-03-07T16:23:01+00:00
+Former NUJS Vice-Chancellor & Eminent Legal Scholar Professor M.P. Singh Passes Away
+https://www.livelaw.in/news-updates/former-nujs-vice-chancellor-eminent-legal-scholar-professor-mp-singh-passes-away-525586
+
+[Read on Telegram](https://t.me/livelawindia/106420)
 
 ---
