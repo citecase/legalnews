@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-07T06:53:20+00:00*
+*Last Updated: 2026-03-07T12:52:30+00:00*
+
+---
+
+### 2026-03-07T12:52:30+00:00
+Bombay High Court Dismisses Plea Seeking Allotment Of Space In Airport To Offer Namaz; Takes Note Of Report Flagging Security Risks
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/taxi-rickshaw-ola-uber-mens-union-v-adani-airport-holdings-ltd-airport-space-namaz-1609420
+
+[Source Link](https://t.me/verdictumlegalupdates/25787)
+
+---
+
+### 2026-03-07T12:02:49+00:00
+Human Rights Commission Cannot Be Used To Resolve Property Disputes Between Real Estate Parties: Bombay HC Quashes MSHRC Order
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/dilip-lalchand-porwal-v-state-of-maharashtra-2026bhc-os5808-db-human-rights-commission-private-property-dispute-1609409
+
+[Source Link](https://t.me/verdictumlegalupdates/25786)
+
+---
+
+### 2026-03-07T11:13:28+00:00
+Kept Matter Pending For Considerably Long Time: Madhya Pradesh High Court Orders Enquiry Against Trial Court Judge
+https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/ashok-kumar-and-others-v-smt-meera-devi-mcc-no-39-of-2022-matter-pending-long-time-enquiry-trial-judge-1609407
+
+[Source Link](https://t.me/verdictumlegalupdates/25785)
+
+---
+
+### 2026-03-07T10:33:07+00:00
+Maintenance Tribunal Can Order Eviction Of Child Or Relative To Protect Senior Citizen’s Residence: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/bholenath-mevalal-nishad-v-shyamdulari-mevalal-nishad-2026bhc-as11142-old-mother-son-eviction-senior-citizen-maintenance-1609405
+
+[Source Link](https://t.me/verdictumlegalupdates/25784)
+
+---
+
+### 2026-03-07T09:52:25+00:00
+Digging Beyond One Foot In Protected Monument Area Barred U/S 19 AMASR Act: Gujarat High Court Rejects Plea Seeking Burial Rights Near Tomb
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/pirzada-saiyed-bahaudin-b-kadri-v-state-of-gujarat-burial-tomb-ancient-monument-1609403
+
+[Source Link](https://t.me/verdictumlegalupdates/25783)
+
+---
+
+### 2026-03-07T09:03:04+00:00
+Additional CJM Not Subordinate To CJM In Judicial Functions; Can Pass Orders Under SARFAESI Act: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/msshubham-flour-mill-v-state-of-maharashtra-2026bhc-nag3635-acjm-cjm-judicial-powers-at-par-sarfaesi-act-1609396
+
+[Source Link](https://t.me/verdictumlegalupdates/25782)
+
+---
+
+### 2026-03-07T08:12:43+00:00
+Dera Sacha Sauda Chief Acquitted In 2002 Journalist Murder Case
+https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/dera-sacha-sauda-chief-acquitted-in-2002-journalist-murder-case-1609399
+
+[Source Link](https://t.me/verdictumlegalupdates/25781)
+
+---
+
+### 2026-03-07T07:42:42+00:00
+Mother-Child Relationship Is Sacrosanct: Delhi High Court Quashes Attempt To Murder Case Based On Compromise & Forgiveness
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/antonnette-promilla-fernanade-v-state-nct-of-delhi-2026dhc1891-mother-child-relationship-sacrosanct-quash-case-compromise-1609394
+
+[Source Link](https://t.me/verdictumlegalupdates/25780)
 
 ---
 
@@ -97,70 +161,6 @@ Violation Of Section 14 SARFAESI Procedure Can Justify Exercise Of Writ Jurisdic
 https://www.verdictum.in/court-updates/high-courts/kerala-high-court/ms-grids-engineers-and-contractors-v-union-bank-of-india-2026ker19606-1609345
 
 [Source Link](https://t.me/verdictumlegalupdates/25768)
-
----
-
-### 2026-03-06T11:52:22+00:00
-Misuse Of POCSO Act In Consensual Adolescent Relationships On Rise: Madras High Court Directs Chief Secretary To Create Public Awareness
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/mahesh-v-state-represented-by-inspector-of-police-pocso-act-misure-awarness-1609343
-
-[Source Link](https://t.me/verdictumlegalupdates/25767)
-
----
-
-### 2026-03-06T11:12:31+00:00
-Chhattisgarh High Court: ‘"Hinduised" Scheduled Tribe Couples Can Seek Mutual Consent Divorce U/S 13B Hindu Marriage Act
-https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/2026cghc10933db-hinduised-st-couples-seek-divorce-mutual-consent-divorce-1609341
-
-[Source Link](https://t.me/verdictumlegalupdates/25766)
-
----
-
-### 2026-03-06T10:33:09+00:00
-Siblings Not Entitled To Motor Accident Compensation Under Head Of Loss Of Love & Affection: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/mariyakutty-united-india-insurance-company-ltd-2026ker16880-siblings-motor-accident-compensation-loss-of-love-1609339
-
-[Source Link](https://t.me/verdictumlegalupdates/25765)
-
----
-
-### 2026-03-06T09:52:48+00:00
-Protection Under Section 35 Trademarks Act Extends To Company: Bombay High Court Rules Statutory Defence Is Not Limited Only To Individuals
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/2026bhcos5691db-kataria-insurance-brokers-pvt-ltd-v-bhavesh-suresh-kataria-1609338
-
-[Source Link](https://t.me/verdictumlegalupdates/25764)
-
----
-
-### 2026-03-06T09:12:27+00:00
-Notification Inviting Applications Only For Government Pleader Cannot Be Used To Appoint Public Prosecutor: Kerala High Court Sets Aside Appointment
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/adv-p-t-joseph-v-state-of-kerala-2026ker16591-government-pleader-public-prosecutor-advocate-notice-1609337
-
-[Source Link](https://t.me/verdictumlegalupdates/25763)
-
----
-
-### 2026-03-06T08:33:05+00:00
-Serious Slackness: Kerala High Court Asks Auditor To File Statement On Financial Anomalies Involving Ayyappa Global Conclave Expenditure
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/suo-motu-v-state-of-kerala-serious-slackness-auditor-financial-anomalies-ayyappa-global-conclave-1609333
-
-[Source Link](https://t.me/verdictumlegalupdates/25762)
-
----
-
-### 2026-03-06T07:52:44+00:00
-Person Of Unsound Mind Not Incompetent To Testify Unless Unable To Understand Questions Or Give Rational Answers: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/appukuttan-v-state-of-kerala-2026ker18933-unsound-mind-testimony-376-1609330
-
-[Source Link](https://t.me/verdictumlegalupdates/25761)
-
----
-
-### 2026-03-06T07:12:23+00:00
-Prolonged Use Of Temporary Employment Despite Vacancies Amounts To Unfair Labour Practice: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/shivaji-madhav-jadhav-v-nashik-district-central-cooperative-bank-ltd-2026bhc-as10655-unfair-labour-practice-temporary-employment-1609326
-
-[Source Link](https://t.me/verdictumlegalupdates/25760)
 
 ---
 
