@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-07T15:03:04+00:00*
+*Last Updated: 2026-03-08T06:02:50+00:00*
+
+---
+
+### 2026-03-08T06:02:50+00:00
+No Pension Without Enabling Rule: Allahabad High Court Rejects Retiral Benefits Claim Of Self-Financed Institute Employee
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/rekha-singh-v-union-of-india-2026ahc45134-no-pension-without-enabling-rule-1609415
+
+[Source Link](https://t.me/verdictumlegalupdates/25792)
+
+---
+
+### 2026-03-08T04:32:59+00:00
+Solar Panel Not Industrial Structure To Validate Use Of Land For Industrial Purpose: Madras High Court Upholds SIPCOT’s Allotment Cancellation
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/kems-forging-ltd-v-state-industries-promotion-corporation-of-tamilnadu-ltd-2026mhc913-solar-panel-industrial-structure-1609417
+
+[Source Link](https://t.me/verdictumlegalupdates/25791)
 
 ---
 
@@ -145,22 +161,6 @@ Blacklisting Contractors Disproportionate Without Finding Of Fraud Or Mens Rea: 
 https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/ms-ak-construction-v-state-of-chhattisgarh-2026cghc10481-db-1609358
 
 [Source Link](https://t.me/verdictumlegalupdates/25773)
-
----
-
-### 2026-03-06T14:32:48+00:00
-Even Storage Of Child Pornographic Content Can Attract Offence U/S 15 POCSO Act: Karnataka High Court
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/binoj-pj-v-state-of-karnataka-commercial-street-police-station-2026khc1635-1609357
-
-[Source Link](https://t.me/verdictumlegalupdates/25772)
-
----
-
-### 2026-03-06T14:02:27+00:00
-Digital Gold Transactions Cannot Escape BUDS Act Scrutiny Merely Because They Are Not In Currency Form: Karnataka High Court
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/nishchay-babu-arkalgud-v-state-of-karnataka-banning-of-unregulated-deposit-schemes-act-2019-1609349
-
-[Source Link](https://t.me/verdictumlegalupdates/25771)
 
 ---
 
