@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-08T06:02:50+00:00*
+*Last Updated: 2026-03-08T12:02:56+00:00*
+
+---
+
+### 2026-03-08T12:02:56+00:00
+Pressing Minor Girl’s Breast Through Bus Window Amounts to Sexual Assault: Orissa High Court Upholds POCSO Conviction
+https://www.verdictum.in/court-updates/high-courts/orissa-high-court/abinash-digal-v-state-of-odisha-crla-no1051-of-2024-pocso-skin-to-skin-not-necessary-sexual-intent-1609458
+
+[Source Link](https://t.me/verdictumlegalupdates/25796)
+
+---
+
+### 2026-03-08T10:32:34+00:00
+Madras High Court Asks Subramania Swamy Temple Trustees To Decide On Allowing Symbolic Prayers At Deepathoon Hillock Within 2 Weeks
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/rama-ravikumar-v-kj-praveenkumar-ias-district-collector-madurai-ors-1609454
+
+[Source Link](https://t.me/verdictumlegalupdates/25795)
+
+---
+
+### 2026-03-08T09:02:33+00:00
+Maternity Leave Not Break In Service; Compulsory Medical Service Bond Cannot Override Woman's Right to Motherhood: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/-dr-meenakshi-muthiah-v-state-of-maharashtra-others-2026bhc-nag3813-db-1609453
+
+[Source Link](https://t.me/verdictumlegalupdates/25794)
+
+---
+
+### 2026-03-08T07:32:52+00:00
+Transfer Of Matrimonial Case Highly Improper After Proceedings Have Progressed Upto Stage Of Trial: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/a-v-b-2026ker18706-transfer-matrimonial-case-improper-proceedings-trial-stage-1609421
+
+[Source Link](https://t.me/verdictumlegalupdates/25793)
 
 ---
 
@@ -129,38 +161,6 @@ CBI Investigation Cannot Continue On Hope That IO May Someday Find Real Culprits
 https://www.verdictum.in/court-updates/high-courts/bombay-high-court/gtl-infrastructure-limited-v-central-bureau-of-investigation-2026bhc-as10317-db-cbi-fir-bank-loan-restructuring-gtl-1609380
 
 [Source Link](https://t.me/verdictumlegalupdates/25777)
-
----
-
-### 2026-03-07T04:33:07+00:00
-Accused Need Not Be Informed Grounds For Arrest When Formal Arrest Is Recorded As Per Warrant U/s.302 Of BNSS: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/ashique-v-state-of-kerala-2026ker19267-accused-grounds-for-arrest-warrant-sec302-bnss-1609361
-
-[Source Link](https://t.me/verdictumlegalupdates/25776)
-
----
-
-### 2026-03-06T16:03:12+00:00
-Additional Legal Advisor Vacancy At National Investigation Agency
-https://www.verdictum.in/job-updates/national-investigation-agency-1609347
-
-[Source Link](https://t.me/verdictumlegalupdates/25775)
-
----
-
-### 2026-03-06T15:32:31+00:00
-CBI Court Bound To Transfer Scheduled Offence Case To PMLA Special Court Upon Application U/S 44(1)(c) PMLA: Madras High Court
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/deputy-director-directorate-of-enforcement-v-deputy-superintendent-of-police-central-bureau-of-investigation-2026mhc922-1609359
-
-[Source Link](https://t.me/verdictumlegalupdates/25774)
-
----
-
-### 2026-03-06T15:03:10+00:00
-Blacklisting Contractors Disproportionate Without Finding Of Fraud Or Mens Rea: Chhattisgarh HC In Jal Jeevan Mission Tender
-https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/ms-ak-construction-v-state-of-chhattisgarh-2026cghc10481-db-1609358
-
-[Source Link](https://t.me/verdictumlegalupdates/25773)
 
 ---
 
