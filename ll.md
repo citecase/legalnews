@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-07T12:28:20+00:00*
+*Last Updated: 2026-03-07T12:30:40+00:00*
 
 ---
 
-### 2026-03-07T12:28:20+00:00
-Delhi Court Grants Interim Bail To Al Falah Group Chairman In ED Case Noting Wife's Stage-IV Cancer Treatment
-https://www.livelaw.in/news-updates/delhi-court-grants-interim-bail-to-al-falah-group-chairman-in-ed-case-noting-wifes-stage-iv-cancer-treatment-525552
-
-[Read on Telegram](https://t.me/livelawindia/106410)
-
----
 ### 2026-03-07T12:30:40+00:00
 Bombay High Court Judge Duped Of Rs 6 Lakhs In Online Credit Card Fraud
 https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-judge-duped-of-rs-6-lakhs-in-online-credit-card-fraud-525553
@@ -142,5 +135,12 @@ Reimagining India's Dispute Resolution Framework
 https://www.livelaw.in/articles/india-dispute-resolution-framework-525578
 
 [Read on Telegram](https://t.me/livelawindia/106429)
+
+---
+### 2026-03-08T15:55:51+00:00
+Senior Advocate Abhishek Manu Singhvi Declares ₹ 2800 Crore Assets, Income In Last 5 Years Over ₹ 1500 Crore
+https://www.livelaw.in/news-updates/senior-advocate-abhishek-manu-singhvi-declares-2800-crore-assets-income-in-last-5-years-over-1500-crore-525601
+
+[Read on Telegram](https://t.me/livelawindia/106430)
 
 ---
