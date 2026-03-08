@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-07T10:02:53+00:00*
+*Last Updated: 2026-03-07T11:17:20+00:00*
 
 ---
 
-### 2026-03-07T10:02:53+00:00
-“Appalled” That PIL On Illegal Constructions In Patnitop Has Lingered For Nearly A Decade; J&K&L High Court Directs CEO To Join Proceedings
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-not-pursued-in-right-earnest-court-directs-patnitop-authority-ceo-to-join-proceedings-in-long-pending-pil-on-illegal-constructions-525523
-
-[Read on Telegram](https://t.me/livelawindia/106401)
-
----
-### 2026-03-07T11:03:40+00:00
-Standard Chartered Bank To Pay ₹5 Lakh Compensation For Harassing Consumer With ₹33 Lakh Demand After Credit Card Closure: Karnataka State Commission
-https://www.livelaw.in/consumer-cases/standard-chartered-bank-to-pay-5-lakh-compensation-for-harassing-consumer-with-33-lakh-demand-after-credit-card-closure-karnataka-state-commission-525542
-
-[Read on Telegram](https://t.me/livelawindia/106402)
-
----
-### 2026-03-07T11:08:40+00:00
-Kerala High Court Issues Directions To Travancore Devasom Board To Ensure Transparency In Padi Pooja At Sabarimala Temple
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-travancore-devasom-board-transparency-padi-pooja-sabarimala-temple-525545
-
-[Read on Telegram](https://t.me/livelawindia/106403)
-
----
-### 2026-03-07T11:12:20+00:00
-Consumer Law Monthly Digest: February 2026
-https://www.livelaw.in/consumer-cases/consumer-law-monthly-digest-february-2026-525547
-
-[Read on Telegram](https://t.me/livelawindia/106404)
-
----
 ### 2026-03-07T11:17:20+00:00
 Punjab & Haryana High Court Refuses Pre-Arrest Bail To Man Accused Of Writing 'Main Choor Hoon' On Man Who Was Later Allegedly Killed
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-refuses-pre-arrest-bail-to-man-accused-of-writing-main-choor-hoon-on-man-who-was-later-killed-525544
@@ -142,5 +114,33 @@ Former NUJS Vice-Chancellor & Eminent Legal Scholar Professor M.P. Singh Passes 
 https://www.livelaw.in/news-updates/former-nujs-vice-chancellor-eminent-legal-scholar-professor-mp-singh-passes-away-525586
 
 [Read on Telegram](https://t.me/livelawindia/106420)
+
+---
+### 2026-03-08T03:32:59+00:00
+Andhra Pradesh High Court Monthly Digest: February 2026
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-monthly-digest-february-2026-525327
+
+[Read on Telegram](https://t.me/livelawindia/106421)
+
+---
+### 2026-03-08T04:02:39+00:00
+Beyond Rituals Of Recognition: The Real Promise Of Women's Day
+https://www.livelaw.in/articles/womens-day-beyond-rituals-recognition-525554
+
+[Read on Telegram](https://t.me/livelawindia/106422)
+
+---
+### 2026-03-08T05:08:09+00:00
+'Shield Of Press Freedom Not Weapon For Extracting Unlawful Gain': MP High Court In Journalist's Plea To Quash FIR For Alleged Extortion
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-partly-allows-journalists-plea-to-quash-fir-of-cheating-and-extortion-says-freedom-of-press-cannot-be-a-weapon-for-extracting-unlawful-gain-525584
+
+[Read on Telegram](https://t.me/livelawindia/106423)
+
+---
+### 2026-03-08T06:22:19+00:00
+'Intention Clear From Brutality': Gujarat High Court Upholds Man's Life Sentence For Raping, Throttling Minor To Death
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-upholds-life-sentence-rape-murder-minor-girl-525583
+
+[Read on Telegram](https://t.me/livelawindia/106424)
 
 ---
