@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-08T12:02:56+00:00*
+*Last Updated: 2026-03-08T15:02:19+00:00*
+
+---
+
+### 2026-03-08T15:02:19+00:00
+Member (Law) Vacancy At Assam Electricity Regulatory Commission (AERC)
+https://www.verdictum.in/job-updates/assam-electricity-regulatory-commission-aerc-1609414
+
+[Source Link](https://t.me/verdictumlegalupdates/25798)
+
+---
+
+### 2026-03-08T13:32:17+00:00
+Both DRT & DRAT Are Within Jurisdiction Of Principal Seat: Bombay High Court Rejects Request For Petition Transfer To Kolhapur Circuit Bench
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/ms-shekhar-champalal-pagaria-v-cfm-assets-reconstruction-pvt-ltd-drt-drat-principal-seat-petition-transfer-1609459
+
+[Source Link](https://t.me/verdictumlegalupdates/25797)
 
 ---
 
@@ -145,22 +161,6 @@ Section 28A Land Acquisition Act Permits Compensation Beyond Foundational Award 
 https://www.verdictum.in/court-updates/high-courts/bombay-high-court/geetabai-eknath-salunke-since-deceased-v-sub-divisional-officer-cum-land-acquisition-officer-2026bhc-aug8726-1609387
 
 [Source Link](https://t.me/verdictumlegalupdates/25779)
-
----
-
-### 2026-03-07T06:02:19+00:00
-Theatrical Rights Don’t Include Satellite Telecast: Madras High Court Dismisses Copyright Claims Over Telugu Dubbed ‘Roja’
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/lahari-recording-co-p-ltd-v-jain-television-mala-publicity-service-p-ltd-2026mhc942-telugu-dubbed-roja-satellite-theatre-1609384
-
-[Source Link](https://t.me/verdictumlegalupdates/25778)
-
----
-
-### 2026-03-07T05:12:58+00:00
-CBI Investigation Cannot Continue On Hope That IO May Someday Find Real Culprits And File Chargesheet: Bombay HC Quashes FIR Against GTL Infrastructure
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/gtl-infrastructure-limited-v-central-bureau-of-investigation-2026bhc-as10317-db-cbi-fir-bank-loan-restructuring-gtl-1609380
-
-[Source Link](https://t.me/verdictumlegalupdates/25777)
 
 ---
 
