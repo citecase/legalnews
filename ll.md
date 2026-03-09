@@ -1,93 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-09T10:07:44+00:00*
+*Last Updated: 2026-03-09T11:42:45+00:00*
 
 ---
 
-### 2026-03-09T10:07:44+00:00
-Once Prosecution Establishes Facts, Accused Must Explain Circumstances Within His Knowledge Or Face Adverse Inference: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-once-prosecution-establishes-foundational-facts-accused-must-explain-circumstances-within-his-special-knowledge-or-face-adverse-inference-525596
-
-[Read on Telegram](https://t.me/livelawindia/106477)
-
----
-### 2026-03-09T10:26:44+00:00
-Supreme Court Clubs FIRs Against Woman Accused Of Sending Bomb Threats To Frame Man Who Rejected Marriage Proposal
-https://www.livelaw.in/top-stories/supreme-court-clubs-firs-against-woman-accused-of-sending-bomb-threats-in-multiple-states-525685
-
-[Read on Telegram](https://t.me/livelawindia/106478)
-
----
-### 2026-03-09T10:37:14+00:00
-[Maharashtra Ownership Flats Act] Private Agreements Cannot Override Statutory Duty To Grant Deemed Conveyance: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-internal-agreement-deemed-conveyance-525676
-
-[Read on Telegram](https://t.me/livelawindia/106479)
-
----
-### 2026-03-09T10:46:55+00:00
-Court Grants Interim Bail To Sharjeel Imam In Delhi Riots Larger Conspiracy Case
-https://www.livelaw.in/news-updates/court-grants-interim-bail-to-sharjeel-imam-in-delhi-riots-larger-conspiracy-case-525688
-
-[Read on Telegram](https://t.me/livelawindia/106480)
-
----
-### 2026-03-09T10:52:34+00:00
-Ombudsman For Local Self Government Institutions Can't Entertain Complaints Against Village Officer: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-public-servant-complaint-village-officer-ombudsman-525689
-
-[Read on Telegram](https://t.me/livelawindia/106481)
-
----
-### 2026-03-09T10:55:55+00:00
-S. 202 CrPC Inquiry Not Mandatory In Complaint Filed By Public Servant: Supreme Court
-https://www.livelaw.in/supreme-court/s-202-crpc-inquiry-not-mandatory-in-complaint-filed-by-public-servant-supreme-court-525691
-
-[Read on Telegram](https://t.me/livelawindia/106482)
-
----
-### 2026-03-09T11:00:35+00:00
-Weak Conspiracy Evidence, Coerced Witness: Why Punjab & Haryana High Court Acquitted Gurmeet Ram Rahim In Journalist Murder Case
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/why-punjab-haryana-high-court-acquitted-gurmeet-ram-rahim-in-journalist-murder-case-525692
-
-[Read on Telegram](https://t.me/livelawindia/106483)
-
----
-### 2026-03-09T11:07:15+00:00
-Supreme Court Dismisses Devangana Kalita's Plea For Reconstruction Of Case Diaries In 2020 Delhi Riots Case
-https://www.livelaw.in/top-stories/supreme-court-dismisses-devangana-kalita-plea-for-reconstruction-of-case-diaries-in-2020-delhi-riots-case-525694
-
-[Read on Telegram](https://t.me/livelawindia/106484)
-
----
-### 2026-03-09T11:07:35+00:00
-Voluntary Transfer Causes Loss Of Seniority, Not Past Service For Promotion Eligibility: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/voluntary-transfer-causes-loss-of-seniority-not-past-service-for-promotion-eligibility-calcutta-high-court-525638
-
-[Read on Telegram](https://t.me/livelawindia/106485)
-
----
-### 2026-03-09T11:07:45+00:00
-After NEET-PG Cut-Off Reduction, Telangana HC Allows In-Service Doctors To Exercise Web Options In Mop-Up Counselling For Stray Vacancies
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-neetpg-cutoff-reduction-stray-vacancies-counselling-525597
-
-[Read on Telegram](https://t.me/livelawindia/106486)
-
----
-### 2026-03-09T11:17:35+00:00
-TV Today Network Moves Supreme Court Seeking Discharge In BJP Leader Ramesh Bidhuri's Defamation Case
-https://www.livelaw.in/top-stories/supreme-court-notice-tv-today-network-criminal-defamation-bjp-leader-ramesh-bidhuri-525697
-
-[Read on Telegram](https://t.me/livelawindia/106487)
-
----
-### 2026-03-09T11:27:35+00:00
-Unreasoned Medical Board Opinion Can't Be Basis To Deny Disability Pension To Persons In Military Service: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-medical-boards-duty-reasons-denying-disability-pension-military-service-525698
-
-[Read on Telegram](https://t.me/livelawindia/106488)
-
----
 ### 2026-03-09T11:42:45+00:00
 [Maharashtra Ownership Flats Act] Pendency Of Civil Suit On Construction Irregularities Not A Bar To Deemed Conveyance: Bombay High Court
 https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-deputy-registrar-order-maharashtra-ownership-flats-act-525677
@@ -142,5 +58,89 @@ https://www.livelaw.in/high-court/calcutta-high-court/delay-in-fir-not-fatal-in-
 https://www.livelaw.in/top-stories/supreme-court-modifies-kerala-high-court-directions-on-police-arrest-from-court-premises-525710
 
 [Read on Telegram](https://t.me/livelawindia/106496)
+
+---
+### 2026-03-09T13:22:40+00:00
+Auction Purchaser In Possession Need Not Prove Delivery Of Possession To Seek Injunction Against Interference: Supreme Court
+https://www.livelaw.in/supreme-court/auction-purchaser-in-possession-need-not-prove-delivery-of-possession-to-seek-injunction-against-interference-supreme-court-525711
+
+[Read on Telegram](https://t.me/livelawindia/106497)
+
+---
+### 2026-03-09T13:23:40+00:00
+2026 LiveLaw (SC) 219  |  P. ELAIYAPPAN VERSUS NATARAJAN & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-219-p-elaiyappan-versus-natarajan-ors-525713
+
+[Read on Telegram](https://t.me/livelawindia/106498)
+
+---
+### 2026-03-09T13:43:00+00:00
+Delay Beyond 60 Days To Seek Discharge U/S 250 BNSS Does Not Extinguish Accused's Right: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-delay-beyond-60days-discharge-under-bnss-525674
+
+[Read on Telegram](https://t.me/livelawindia/106499)
+
+---
+### 2026-03-09T14:22:34+00:00
+Liquor Policy Case: Delhi High Court Says Trial Court's Findings On Witnesses While Discharging Kejriwal, Others 'Prima Facie Erroneous'
+https://www.livelaw.in/high-court/delhi-high-court/arvind-kejriwal-liquor-policy-discharge-trial-court-findings-on-witnessess-approver-erroneous-525724
+
+[Read on Telegram](https://t.me/livelawindia/106500)
+
+---
+### 2026-03-09T14:31:14+00:00
+ED Moves Delhi High Court To Expunge Trial Court's Remarks While Discharging All Accused In Excise Policy Case
+https://www.livelaw.in/high-court/delhi-high-court/ed-expunge-remarks-liquor-policy-arvind-kejriwal-discharge-525726
+
+[Read on Telegram](https://t.me/livelawindia/106501)
+
+---
+### 2026-03-09T14:32:34+00:00
+Dear Gujarat, My Marriage Is Not Meant To Be Notified
+https://www.livelaw.in/articles/gujarat-marriage-registration-bill2026-525576
+
+[Read on Telegram](https://t.me/livelawindia/106502)
+
+---
+### 2026-03-09T15:32:24+00:00
+Kerala High Court Allows Accused To Renew Passport With 5-Year Validity For Overseas Employment
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-passport-renewal-job-abroad-electronic-video-525695
+
+[Read on Telegram](https://t.me/livelawindia/106503)
+
+---
+### 2026-03-09T15:34:44+00:00
+Why No Rehabilitation Scheme For Acid Attack Survivors By Giving Govt Jobs? Supreme Court Asks States/UTs
+https://www.livelaw.in/top-stories/why-no-rehabilitation-scheme-for-acid-attack-survivors-by-giving-govt-jobs-supreme-court-asks-statesuts-525730
+
+[Read on Telegram](https://t.me/livelawindia/106504)
+
+---
+### 2026-03-09T15:42:44+00:00
+'Quarrel' With Daughter-in-Law By Itself No Offence Of Cruelty Or Dowry Harassment: Supreme Court
+https://www.livelaw.in/supreme-court/quarrel-with-daughter-in-law-by-itself-no-offence-of-cruelty-or-dowry-harassment-supreme-court-525731
+
+[Read on Telegram](https://t.me/livelawindia/106505)
+
+---
+### 2026-03-09T15:43:44+00:00
+2026 LiveLaw (SC) 220 |  DR. SUSHIL KUMAR PURBEY & ANR. VERSUS THE STATE OF BIHAR AND ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-220-dr-sushil-kumar-purbey-anr-versus-the-state-of-bihar-and-ors-525732
+
+[Read on Telegram](https://t.me/livelawindia/106506)
+
+---
+### 2026-03-09T16:12:14+00:00
+Hybrid Hearings Are Here To Stay, AI Cannot Replace Human Adjudication : Judges At Chandigarh Panel Discussion
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/what-high-court-judges-said-on-use-of-ai-and-digitalisation-of-courts-punjab-haryana-high-court-rajasthan-high-court-525734
+
+[Read on Telegram](https://t.me/livelawindia/106507)
+
+---
+### 2026-03-09T17:07:55+00:00
+Supreme Court Daily Round-Up : March 9, 2026
+https://www.livelaw.in/supreme-court/supreme-court-daily-round-up-march-9-2026-525733
+
+[Read on Telegram](https://t.me/livelawindia/106508)
 
 ---
