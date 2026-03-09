@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-08T15:02:19+00:00*
+*Last Updated: 2026-03-09T07:32:16+00:00*
+
+---
+
+### 2026-03-09T07:32:16+00:00
+Consensual Relationship Later Deteriorated: Bombay High Court Quashes Rape Case On False Promise Of Marriage
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/raghav-rajesh-aggarwal-v-the-state-of-maharashtra-2026bhc-as11319-db-consensual-relationship-rape-case-false-promise-of-marriage-1609504
+
+[Source Link](https://t.me/verdictumlegalupdates/25804)
+
+---
+
+### 2026-03-09T07:01:35+00:00
+Criminal Law Does Not Stop At Village Boundaries; Panchayats Cannot Suppress Child Sexual Abuse Complaints Or Broker Marriage Settlements: Orissa High Court
+https://www.verdictum.in/court-updates/high-courts/orissa-high-court/sanat-kumar-pradhan-v-state-of-odisha-crla-no1145-of-2025-panchayats-village-elders-meeting-pocso-marriage-1609499
+
+[Source Link](https://t.me/verdictumlegalupdates/25803)
+
+---
+
+### 2026-03-09T06:15:33+00:00
+BREAKING| Delhi High Court Stays Remarks Against Investigating Officers; Issues Notice On CBI's Plea Challenging Discharge Of Arvind Kejriwal and Others In Excise Policy Case
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/stays-remarks-against-investigating-officers-ssues-notice-cbi-plea-challenging-discharge-arvind-kejriwal-excise-policy-case-1609494
+
+[Source Link](https://t.me/verdictumlegalupdates/25802)
+
+---
+
+### 2026-03-09T06:01:52+00:00
+Before Ordering Remand, Magistrate Must Get Endorsement Of Fulfilment Of Pre-Arrest Formalities & No-Objection From Accused: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/k-a-ashokan-v-state-of-kerala-2026ker19646-remand-magistrate-pre-arrest-formalities-1609493
+
+[Source Link](https://t.me/verdictumlegalupdates/25801)
+
+---
+
+### 2026-03-09T05:03:10+00:00
+Irregular Procedure By Mamlatdars, Revenue Authorities In Passing Orders And Issuing Certified Copies: Bombay High Court Issues Directions
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/gopiki-soma-lingudkar-v-the-deputy-collector-2026bhc-goa415-mundkar-mamlatdars-revenue-authorities-certified-copies-directions-1609487
+
+[Source Link](https://t.me/verdictumlegalupdates/25800)
+
+---
+
+### 2026-03-09T04:32:59+00:00
+Deceptively Similar To ‘MASTIH': Delhi High Court Orders Cancellation Of ‘GRAND MASTI’ Trademark
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/radico-khaitan-ltd-v-mohit-petrochemical-pvt-ltd-2026dhc1890-grand-masti-conutry-liquor-tetra-pack-1609460
+
+[Source Link](https://t.me/verdictumlegalupdates/25799)
 
 ---
 
@@ -113,54 +161,6 @@ Kept Matter Pending For Considerably Long Time: Madhya Pradesh High Court Orders
 https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/ashok-kumar-and-others-v-smt-meera-devi-mcc-no-39-of-2022-matter-pending-long-time-enquiry-trial-judge-1609407
 
 [Source Link](https://t.me/verdictumlegalupdates/25785)
-
----
-
-### 2026-03-07T10:33:07+00:00
-Maintenance Tribunal Can Order Eviction Of Child Or Relative To Protect Senior Citizen’s Residence: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/bholenath-mevalal-nishad-v-shyamdulari-mevalal-nishad-2026bhc-as11142-old-mother-son-eviction-senior-citizen-maintenance-1609405
-
-[Source Link](https://t.me/verdictumlegalupdates/25784)
-
----
-
-### 2026-03-07T09:52:25+00:00
-Digging Beyond One Foot In Protected Monument Area Barred U/S 19 AMASR Act: Gujarat High Court Rejects Plea Seeking Burial Rights Near Tomb
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/pirzada-saiyed-bahaudin-b-kadri-v-state-of-gujarat-burial-tomb-ancient-monument-1609403
-
-[Source Link](https://t.me/verdictumlegalupdates/25783)
-
----
-
-### 2026-03-07T09:03:04+00:00
-Additional CJM Not Subordinate To CJM In Judicial Functions; Can Pass Orders Under SARFAESI Act: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/msshubham-flour-mill-v-state-of-maharashtra-2026bhc-nag3635-acjm-cjm-judicial-powers-at-par-sarfaesi-act-1609396
-
-[Source Link](https://t.me/verdictumlegalupdates/25782)
-
----
-
-### 2026-03-07T08:12:43+00:00
-Dera Sacha Sauda Chief Acquitted In 2002 Journalist Murder Case
-https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/dera-sacha-sauda-chief-acquitted-in-2002-journalist-murder-case-1609399
-
-[Source Link](https://t.me/verdictumlegalupdates/25781)
-
----
-
-### 2026-03-07T07:42:42+00:00
-Mother-Child Relationship Is Sacrosanct: Delhi High Court Quashes Attempt To Murder Case Based On Compromise & Forgiveness
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/antonnette-promilla-fernanade-v-state-nct-of-delhi-2026dhc1891-mother-child-relationship-sacrosanct-quash-case-compromise-1609394
-
-[Source Link](https://t.me/verdictumlegalupdates/25780)
-
----
-
-### 2026-03-07T06:53:20+00:00
-Section 28A Land Acquisition Act Permits Compensation Beyond Foundational Award Where Land Classification Is Incorrect: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/geetabai-eknath-salunke-since-deceased-v-sub-divisional-officer-cum-land-acquisition-officer-2026bhc-aug8726-1609387
-
-[Source Link](https://t.me/verdictumlegalupdates/25779)
 
 ---
 
