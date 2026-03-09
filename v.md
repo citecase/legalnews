@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-09T13:33:22+00:00*
+*Last Updated: 2026-03-09T16:02:19+00:00*
+
+---
+
+### 2026-03-09T16:02:19+00:00
+Registrar (Law) Vacancy At National Human Rights Commission (NHRC)
+https://www.verdictum.in/job-updates/national-human-rights-commission-nhrc-1609531
+
+[Source Link](https://t.me/verdictumlegalupdates/25821)
+
+---
+
+### 2026-03-09T15:32:57+00:00
+Vague Medico-Legal Reports Jeopardise Fair Adjudication In Criminal Trials: Rajasthan High Court Directs State To Frame Uniform Guidelines
+https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/gautam-v-state-of-rajasthan-2026rj-jp9713-medico-legal-reports-trial-1609539
+
+[Source Link](https://t.me/verdictumlegalupdates/25820)
+
+---
+
+### 2026-03-09T15:02:16+00:00
+Courts, Tribunals Dutybound To Ascertain Functional Disability In Motor Accident Claims: Gujarat High Court
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/tata-aig-general-insurance-co-ltd-v-sunil-ishwarbhai-panchal-rspecial-civil-application-no-3605-of-2025-functional-disability-mact-1609538
+
+[Source Link](https://t.me/verdictumlegalupdates/25819)
+
+---
+
+### 2026-03-09T14:32:55+00:00
+Strict Proof Of Solemnization Of First Marriage Mandatory For Bigamy Prosecution; Contractual Marriage Is Nullity Under Hindu Law: Calcutta High Court
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/deep-dey-v-state-of-west-bengal-strict-proof-solemnization-first-marriage-bigamy-prosecution-1609530
+
+[Source Link](https://t.me/verdictumlegalupdates/25818)
+
+---
+
+### 2026-03-09T14:02:44+00:00
+If Information Is Given And Perusal Of Records Is Permitted, Giving Copies Of Documents Not Necessary Under RTI Act: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/union-of-india-v-central-information-commission-2026ahc44589-db-rti-applicationpublic-exam-answer-sheets-1609529
+
+[Source Link](https://t.me/verdictumlegalupdates/25817)
 
 ---
 
@@ -121,46 +161,6 @@ BREAKING| Delhi High Court Stays Remarks Against Investigating Officers; Issues 
 https://www.verdictum.in/court-updates/high-courts/delhi-high-court/stays-remarks-against-investigating-officers-ssues-notice-cbi-plea-challenging-discharge-arvind-kejriwal-excise-policy-case-1609494
 
 [Source Link](https://t.me/verdictumlegalupdates/25802)
-
----
-
-### 2026-03-09T06:01:52+00:00
-Before Ordering Remand, Magistrate Must Get Endorsement Of Fulfilment Of Pre-Arrest Formalities & No-Objection From Accused: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/k-a-ashokan-v-state-of-kerala-2026ker19646-remand-magistrate-pre-arrest-formalities-1609493
-
-[Source Link](https://t.me/verdictumlegalupdates/25801)
-
----
-
-### 2026-03-09T05:03:10+00:00
-Irregular Procedure By Mamlatdars, Revenue Authorities In Passing Orders And Issuing Certified Copies: Bombay High Court Issues Directions
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/gopiki-soma-lingudkar-v-the-deputy-collector-2026bhc-goa415-mundkar-mamlatdars-revenue-authorities-certified-copies-directions-1609487
-
-[Source Link](https://t.me/verdictumlegalupdates/25800)
-
----
-
-### 2026-03-09T04:32:59+00:00
-Deceptively Similar To ‘MASTIH': Delhi High Court Orders Cancellation Of ‘GRAND MASTI’ Trademark
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/radico-khaitan-ltd-v-mohit-petrochemical-pvt-ltd-2026dhc1890-grand-masti-conutry-liquor-tetra-pack-1609460
-
-[Source Link](https://t.me/verdictumlegalupdates/25799)
-
----
-
-### 2026-03-08T15:02:19+00:00
-Member (Law) Vacancy At Assam Electricity Regulatory Commission (AERC)
-https://www.verdictum.in/job-updates/assam-electricity-regulatory-commission-aerc-1609414
-
-[Source Link](https://t.me/verdictumlegalupdates/25798)
-
----
-
-### 2026-03-08T13:32:17+00:00
-Both DRT & DRAT Are Within Jurisdiction Of Principal Seat: Bombay High Court Rejects Request For Petition Transfer To Kolhapur Circuit Bench
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/ms-shekhar-champalal-pagaria-v-cfm-assets-reconstruction-pvt-ltd-drt-drat-principal-seat-petition-transfer-1609459
-
-[Source Link](https://t.me/verdictumlegalupdates/25797)
 
 ---
 
