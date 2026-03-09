@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-09T04:53:10+00:00*
+*Last Updated: 2026-03-09T10:07:44+00:00*
 
 ---
 
-### 2026-03-09T04:53:10+00:00
-Preventive Detention Under PITNDPS Act Valid Only If Activities Fall Within Statutory Definition Of 'Illicit Traffic': J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-acts-prejudicial-to-public-order-cannot-ground-detention-under-pitndps-act-detenue-must-fall-within-definition-of-illicit-traffic-525593
+### 2026-03-09T10:07:44+00:00
+Once Prosecution Establishes Facts, Accused Must Explain Circumstances Within His Knowledge Or Face Adverse Inference: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-once-prosecution-establishes-foundational-facts-accused-must-explain-circumstances-within-his-special-knowledge-or-face-adverse-inference-525596
 
-[Read on Telegram](https://t.me/livelawindia/106442)
-
----
-### 2026-03-09T04:55:10+00:00
-2026 LiveLaw (SC) 215 | Awdesh Kumar Yadav v. Union of India
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-215-awdesh-kumar-yadav-v-union-of-india-525622
-
-[Read on Telegram](https://t.me/livelawindia/106443)
+[Read on Telegram](https://t.me/livelawindia/106477)
 
 ---
-### 2026-03-09T04:56:50+00:00
-2026 LiveLaw (SC) 216 | Dhanya Kumar Jain v. Bar Council of India
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-216-dhanya-kumar-jain-v-bar-council-of-india-525623
+### 2026-03-09T10:26:44+00:00
+Supreme Court Clubs FIRs Against Woman Accused Of Sending Bomb Threats To Frame Man Who Rejected Marriage Proposal
+https://www.livelaw.in/top-stories/supreme-court-clubs-firs-against-woman-accused-of-sending-bomb-threats-in-multiple-states-525685
 
-[Read on Telegram](https://t.me/livelawindia/106444)
-
----
-### 2026-03-09T04:58:50+00:00
-2026 LiveLaw (SC) 217 | OBC ADVOCATES WELFARE ASSOCIATION v.  STATE OF MP
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-217-obc-advocates-welfare-association-v-state-of-mp-525624
-
-[Read on Telegram](https://t.me/livelawindia/106445)
+[Read on Telegram](https://t.me/livelawindia/106478)
 
 ---
-### 2026-03-09T05:00:10+00:00
-2026 LiveLaw (SC) 218 | PRABHAKAR DESHPANDE v. CHIEF ELECTION COMMISSIONER OF INDIA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-218-prabhakar-deshpande-v-chief-election-commissioner-of-india-525625
+### 2026-03-09T10:37:14+00:00
+[Maharashtra Ownership Flats Act] Private Agreements Cannot Override Statutory Duty To Grant Deemed Conveyance: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-internal-agreement-deemed-conveyance-525676
 
-[Read on Telegram](https://t.me/livelawindia/106446)
-
----
-### 2026-03-09T05:18:10+00:00
-'Criminal Process Can't Be Used As Tool Of Harassment': Chhattisgarh High Court Quashes Complaint Against Former CJ, Sitting Judges
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-ruling-attempt-personal-grievance-criminal-prosecution-against-former-chief-justice-sitting-judge-judicial-officers-525621
-
-[Read on Telegram](https://t.me/livelawindia/106447)
+[Read on Telegram](https://t.me/livelawindia/106479)
 
 ---
-### 2026-03-09T05:20:30+00:00
-Legal Manager Vacancy At Kotak Mahindra Bank Limited
-https://www.livelaw.in/job-updates/legal-manager-vacancy-at-kotak-mahindra-bank-limited-525626
+### 2026-03-09T10:46:55+00:00
+Court Grants Interim Bail To Sharjeel Imam In Delhi Riots Larger Conspiracy Case
+https://www.livelaw.in/news-updates/court-grants-interim-bail-to-sharjeel-imam-in-delhi-riots-larger-conspiracy-case-525688
 
-[Read on Telegram](https://t.me/livelawindia/106448)
-
----
-### 2026-03-09T05:31:40+00:00
-Bar Council Elections : BCI Moves Supreme Court Challenging FIR Against High Powered Committee
-https://www.livelaw.in/top-stories/bar-council-elections-bci-moves-supreme-court-challenging-fir-against-high-powered-committee-525629
-
-[Read on Telegram](https://t.me/livelawindia/106449)
+[Read on Telegram](https://t.me/livelawindia/106480)
 
 ---
-### 2026-03-09T05:32:00+00:00
-'Contractual Marriage' On Stamp Paper Is Nullity Under Hindu Law, Cannot Form Basis For Bigamy Or Cruelty Charges: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/contractual-marriage-on-stamp-paper-is-nullity-under-hindu-law-cannot-form-basis-for-bigamy-or-cruelty-charges-calcutta-high-court-525630
+### 2026-03-09T10:52:34+00:00
+Ombudsman For Local Self Government Institutions Can't Entertain Complaints Against Village Officer: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-public-servant-complaint-village-officer-ombudsman-525689
 
-[Read on Telegram](https://t.me/livelawindia/106450)
-
----
-### 2026-03-09T05:44:00+00:00
-BSF Court Of Inquiry Can Proceed Alongside Criminal Trial  : J&K high Court
-https://www.livelaw.in/high-court/jammu-kashmir/bsf-court-of-inquiry-can-proceed-alongside-criminal-trial-jk-high-court-525632
-
-[Read on Telegram](https://t.me/livelawindia/106451)
+[Read on Telegram](https://t.me/livelawindia/106481)
 
 ---
-### 2026-03-09T05:44:10+00:00
-Kerala Court Grants Anticipatory Bail To 'Manjummel Boys' Director Chidambaram In Sexual Assault Case
-https://www.livelaw.in/news-updates/kerala-sessions-court-chidambaram-film-director-sexual-assault-525633
+### 2026-03-09T10:55:55+00:00
+S. 202 CrPC Inquiry Not Mandatory In Complaint Filed By Public Servant: Supreme Court
+https://www.livelaw.in/supreme-court/s-202-crpc-inquiry-not-mandatory-in-complaint-filed-by-public-servant-supreme-court-525691
 
-[Read on Telegram](https://t.me/livelawindia/106452)
-
----
-### 2026-03-09T05:46:20+00:00
-Kerala High Court Weekly Round-Up : March 02 - March 08, 2026
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-weekly-round-up-march-2026-525634
-
-[Read on Telegram](https://t.me/livelawindia/106453)
+[Read on Telegram](https://t.me/livelawindia/106482)
 
 ---
-### 2026-03-09T05:56:00+00:00
-West Bengal SIR : Plea In Supreme Court Challenging Exclusion From Final Electoral Roll
-https://www.livelaw.in/top-stories/west-bengal-sir-plea-in-supreme-court-challenging-exclusion-from-final-electoral-roll-525636
+### 2026-03-09T11:00:35+00:00
+Weak Conspiracy Evidence, Coerced Witness: Why Punjab & Haryana High Court Acquitted Gurmeet Ram Rahim In Journalist Murder Case
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/why-punjab-haryana-high-court-acquitted-gurmeet-ram-rahim-in-journalist-murder-case-525692
 
-[Read on Telegram](https://t.me/livelawindia/106454)
-
----
-### 2026-03-09T06:19:03+00:00
-Liquor Policy Case: Delhi HC Issues Notice On CBI's Challenge To Discharge Of Kejriwal, Sisodia; Asks Trial Court To Defer ED Proceedings
-https://www.livelaw.in/high-court/delhi-high-court/liquor-policy-cbi-plea-notice-arvind-kejriwal-manish-sisodia-ed-case-525640
-
-[Read on Telegram](https://t.me/livelawindia/106455)
+[Read on Telegram](https://t.me/livelawindia/106483)
 
 ---
-### 2026-03-09T06:35:03+00:00
-Andhra Pradesh High Court Flags Rising Trend Of Mandamus Petitions Challenging Quasi-Judicial Orders; Explains Difference With Certiorari
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/growing-pattern-mandamus-certiorari-difference-challenge-quasi-judicial-orders-sarpanch-removal-gram-panchayat-financial-irregularities-525644
+### 2026-03-09T11:07:15+00:00
+Supreme Court Dismisses Devangana Kalita's Plea For Reconstruction Of Case Diaries In 2020 Delhi Riots Case
+https://www.livelaw.in/top-stories/supreme-court-dismisses-devangana-kalita-plea-for-reconstruction-of-case-diaries-in-2020-delhi-riots-case-525694
 
-[Read on Telegram](https://t.me/livelawindia/106456)
-
----
-### 2026-03-09T06:36:03+00:00
-'Why Hurt Jain Sentiments?' Supreme Court Dismisses PIL Seeking Research On 'Tamasic' Nature Of Onion & Garlic
-https://www.livelaw.in/top-stories/why-hurt-jain-sentiments-supreme-court-dismisses-pil-seeking-research-on-tamasic-nature-of-onion-garlic-525645
-
-[Read on Telegram](https://t.me/livelawindia/106457)
+[Read on Telegram](https://t.me/livelawindia/106484)
 
 ---
-### 2026-03-09T06:37:23+00:00
-Man Electrocuted From High-Tension Line While Removing Bird Loses Both Hands; J&K&L High Court Orders ₹54.49 Lakh Compensation
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-electrocuted-while-removing-bird-from-high-tension-line-man-loses-both-handscourt-orders-5449-lakh-compensation-525594
+### 2026-03-09T11:07:35+00:00
+Voluntary Transfer Causes Loss Of Seniority, Not Past Service For Promotion Eligibility: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/voluntary-transfer-causes-loss-of-seniority-not-past-service-for-promotion-eligibility-calcutta-high-court-525638
 
-[Read on Telegram](https://t.me/livelawindia/106458)
-
----
-### 2026-03-09T06:47:53+00:00
-Bail Order Must Bear Magistrate's Full Signature; Mere Initials Undermine Judicial Solemnity: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/bail-order-must-bear-magistrates-full-signature-mere-initials-undermine-judicial-solemnity-calcutta-high-court-525627
-
-[Read on Telegram](https://t.me/livelawindia/106459)
+[Read on Telegram](https://t.me/livelawindia/106485)
 
 ---
-### 2026-03-09T06:50:33+00:00
-NLIU Law Review Invites Submissions For Volume XV Issue II
-https://www.livelaw.in/lawschool/call-for-papers/nliu-law-review-invites-submissions-for-volume-xv-issue-ii-525650
+### 2026-03-09T11:07:45+00:00
+After NEET-PG Cut-Off Reduction, Telangana HC Allows In-Service Doctors To Exercise Web Options In Mop-Up Counselling For Stray Vacancies
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-neetpg-cutoff-reduction-stray-vacancies-counselling-525597
 
-[Read on Telegram](https://t.me/livelawindia/106460)
+[Read on Telegram](https://t.me/livelawindia/106486)
 
 ---
-### 2026-03-09T07:02:53+00:00
-High Courts Can't Enquire Into Pay Parity Claims While Exercising Writ Jurisdiction: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-no-inquiry-pay-parity-in-writ-jurisdiction-525654
+### 2026-03-09T11:17:35+00:00
+TV Today Network Moves Supreme Court Seeking Discharge In BJP Leader Ramesh Bidhuri's Defamation Case
+https://www.livelaw.in/top-stories/supreme-court-notice-tv-today-network-criminal-defamation-bjp-leader-ramesh-bidhuri-525697
 
-[Read on Telegram](https://t.me/livelawindia/106461)
+[Read on Telegram](https://t.me/livelawindia/106487)
+
+---
+### 2026-03-09T11:27:35+00:00
+Unreasoned Medical Board Opinion Can't Be Basis To Deny Disability Pension To Persons In Military Service: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-medical-boards-duty-reasons-denying-disability-pension-military-service-525698
+
+[Read on Telegram](https://t.me/livelawindia/106488)
+
+---
+### 2026-03-09T11:42:45+00:00
+[Maharashtra Ownership Flats Act] Pendency Of Civil Suit On Construction Irregularities Not A Bar To Deemed Conveyance: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-deputy-registrar-order-maharashtra-ownership-flats-act-525677
+
+[Read on Telegram](https://t.me/livelawindia/106489)
+
+---
+### 2026-03-09T11:46:05+00:00
+'Medical Service Is Essential': Kerala High Court Directs State To Provide Uninterrupted Medical Services Amid Doctors' Strike
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-medical-services-doctors-strike-medical-college-525702
+
+[Read on Telegram](https://t.me/livelawindia/106490)
+
+---
+### 2026-03-09T11:48:05+00:00
+Child Witness Who Saw Father Kill Mother Through Window Reliable: Calcutta High Court Upholds Life Sentence
+https://www.livelaw.in/high-court/calcutta-high-court/child-witness-who-saw-father-kill-mother-through-window-reliable-calcutta-high-court-upholds-life-sentence-525641
+
+[Read on Telegram](https://t.me/livelawindia/106491)
+
+---
+### 2026-03-09T12:17:10+00:00
+Republic TV Journalists Booked For Filming Iranian Ship In Cochin Port Move Kerala Court Seeking Bail
+https://www.livelaw.in/news-updates/kerala-judicial-magistrate-court-republic-tv-journalists-iran-vessel-525704
+
+[Read on Telegram](https://t.me/livelawindia/106492)
+
+---
+### 2026-03-09T12:23:30+00:00
+Supreme Court Dismisses Dutch National's Plea Against Indian Trial For Murder Of British Woman In Kashmir
+https://www.livelaw.in/top-stories/supreme-court-dismisses-dutch-nationals-plea-against-indian-trial-for-murder-of-british-woman-in-kashmir-525705
+
+[Read on Telegram](https://t.me/livelawindia/106493)
+
+---
+### 2026-03-09T12:30:30+00:00
+Supreme Court Asks Centre To Take Efforts To Virtually Connect Indian Man With Child Taken To Russia By Mother
+https://www.livelaw.in/top-stories/supreme-court-asks-centre-to-take-efforts-to-virtually-connect-indian-man-with-child-taken-to-russia-by-mother-525707
+
+[Read on Telegram](https://t.me/livelawindia/106494)
+
+---
+### 2026-03-09T13:08:00+00:00
+Delay In FIR Not Fatal In Motor Accident Claims As Families First Rush Victims To Hospital: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/delay-in-fir-not-fatal-in-motor-accident-claims-as-families-first-rush-victims-to-hospital-calcutta-high-court-525642
+
+[Read on Telegram](https://t.me/livelawindia/106495)
+
+---
+### 2026-03-09T13:14:20+00:00
+'Too Restrictive' : Supreme Court Modifies Kerala High Court Directions On Police Arrest From Court Premises
+https://www.livelaw.in/top-stories/supreme-court-modifies-kerala-high-court-directions-on-police-arrest-from-court-premises-525710
+
+[Read on Telegram](https://t.me/livelawindia/106496)
 
 ---
