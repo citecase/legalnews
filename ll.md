@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-09T11:42:45+00:00*
+*Last Updated: 2026-03-09T11:46:05+00:00*
 
 ---
 
-### 2026-03-09T11:42:45+00:00
-[Maharashtra Ownership Flats Act] Pendency Of Civil Suit On Construction Irregularities Not A Bar To Deemed Conveyance: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-deputy-registrar-order-maharashtra-ownership-flats-act-525677
-
-[Read on Telegram](https://t.me/livelawindia/106489)
-
----
 ### 2026-03-09T11:46:05+00:00
 'Medical Service Is Essential': Kerala High Court Directs State To Provide Uninterrupted Medical Services Amid Doctors' Strike
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-medical-services-doctors-strike-medical-college-525702
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : March 9, 2026
 https://www.livelaw.in/supreme-court/supreme-court-daily-round-up-march-9-2026-525733
 
 [Read on Telegram](https://t.me/livelawindia/106508)
+
+---
+### 2026-03-09T20:00:05+00:00
+MP High Court Nullifies Congress MLA Mukesh Malhotra's Election For Non-Disclosure Of Criminal Cases, Declares BJP Candidate As Elected
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-congress-mla-mukesh-malhotra-election-nondisclosure-criminal-cases-525739
+
+[Read on Telegram](https://t.me/livelawindia/106509)
 
 ---
