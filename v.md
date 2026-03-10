@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-09T16:02:19+00:00*
+*Last Updated: 2026-03-10T07:03:01+00:00*
+
+---
+
+### 2026-03-10T07:03:01+00:00
+Lone Allegation Of Quarrel Can’t By Itself Attract Offence U/S.498A IPC & Dowry Act: Supreme Court Grants Relief To Parents-In-Law
+https://www.verdictum.in/court-updates/supreme-court/a-v-state-of-bihar-2026-insc-212-lone-allegation-quarrel-without-specific-act-section-498a-ipc-dowry-act-1609578
+
+[Source Link](https://t.me/verdictumlegalupdates/25827)
+
+---
+
+### 2026-03-10T06:32:40+00:00
+Courts Inundated With Cases Of Far Greater Urgency: Delhi HC Upholds Denial Of Injunction To Novo Nordisk
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/novo-nordisk-as-v-dr-reddys-laboratories-limited-2026dhc1911-db-diabetes-drug-little-man-common-man-patent-judicial-concern-1609573
+
+[Source Link](https://t.me/verdictumlegalupdates/25826)
+
+---
+
+### 2026-03-10T05:49:18+00:00
+BREAKING: Supreme Court Refuses To Stay Bombay High Court Order Striking Down IT Rules 2023 On Fact-Check Units; Issues Notice In Union's Plea
+https://www.verdictum.in/court-updates/supreme-court/refused-stay-bombay-high-court-order-striking-down-it-rules-2023-fact-check-units-1609570
+
+[Source Link](https://t.me/verdictumlegalupdates/25825)
+
+---
+
+### 2026-03-10T05:32:47+00:00
+“CBI May Have Coerced Witness”: Punjab & Haryana High Court While Acquitting Gurmeet Ram Rahim Singh In Journalist Murder Case
+https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/gurmeet-ram-rahim-singh-v-central-bureau-of-investigation-2026phhc035021-db-1609564
+
+[Source Link](https://t.me/verdictumlegalupdates/25824)
+
+---
+
+### 2026-03-10T05:02:59+00:00
+Wife’s Needs To Be Balanced Not Only With Husband’s Income But Also With Her Own Earning Prospects: Gujarat High Court Reduces Maintenance Amount
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/a-v-state-of-gujarat-ors-2026gujhc16305-wife-needs-husband-income-earning-prospects-maintenance-1609563
+
+[Source Link](https://t.me/verdictumlegalupdates/25823)
+
+---
+
+### 2026-03-10T04:33:08+00:00
+Teaching Experience Under UGC Regulations For Recruiting Assistant Professors Must Be Based On Actual Period Of Teaching: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/jovita-james-v-the-university-of-kerala-others-2026ker17033-ugc-regulation-1609540
+
+[Source Link](https://t.me/verdictumlegalupdates/25822)
 
 ---
 
@@ -113,54 +161,6 @@ J&K And Ladakh High Court To Look Into Alleged “Marriage Trap” Involving You
 https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/xyz-v-union-territory-of-jk-and-others-marriage-trap-kashmir-girls-jk-1609516
 
 [Source Link](https://t.me/verdictumlegalupdates/25808)
-
----
-
-### 2026-03-09T09:03:00+00:00
-Supreme Court Dismisses Lawyer’s Pleas Seeking Study On  'Tamasic' Energy In Onion & Garlic, Calls It Vague, Frivolous & Baseless
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-dismisses-lawyers-pleas-seeking-study-on-tamasic-energy-in-onion-garlic-calls-it-vague-frivolous-baseless-1609514
-
-[Source Link](https://t.me/verdictumlegalupdates/25807)
-
----
-
-### 2026-03-09T08:32:18+00:00
-Supreme Court Closes Contempt Proceedings Against Editor-in-Chief Of Varprad Media Ajay Shukla Following Apology
-https://www.verdictum.in/court-updates/supreme-court/closes-contempt-proceedings-against-youtuber-ajay-shukla-following-apology-1609512
-
-[Source Link](https://t.me/verdictumlegalupdates/25806)
-
----
-
-### 2026-03-09T08:02:57+00:00
-Revenue Authorities Cannot Annul Registered Sale Deeds Or Exercise Suo Motu Powers After Long Delay: Gujarat High Court
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/koli-parshottambhai-narsinhbhai-v-state-of-gujarat-thro-secretary-appeals-2026gujhc16216-revenue-registered-sale-deeds-suo-motu-1609505
-
-[Source Link](https://t.me/verdictumlegalupdates/25805)
-
----
-
-### 2026-03-09T07:32:16+00:00
-Consensual Relationship Later Deteriorated: Bombay High Court Quashes Rape Case On False Promise Of Marriage
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/raghav-rajesh-aggarwal-v-the-state-of-maharashtra-2026bhc-as11319-db-consensual-relationship-rape-case-false-promise-of-marriage-1609504
-
-[Source Link](https://t.me/verdictumlegalupdates/25804)
-
----
-
-### 2026-03-09T07:01:35+00:00
-Criminal Law Does Not Stop At Village Boundaries; Panchayats Cannot Suppress Child Sexual Abuse Complaints Or Broker Marriage Settlements: Orissa High Court
-https://www.verdictum.in/court-updates/high-courts/orissa-high-court/sanat-kumar-pradhan-v-state-of-odisha-crla-no1145-of-2025-panchayats-village-elders-meeting-pocso-marriage-1609499
-
-[Source Link](https://t.me/verdictumlegalupdates/25803)
-
----
-
-### 2026-03-09T06:15:33+00:00
-BREAKING| Delhi High Court Stays Remarks Against Investigating Officers; Issues Notice On CBI's Plea Challenging Discharge Of Arvind Kejriwal and Others In Excise Policy Case
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/stays-remarks-against-investigating-officers-ssues-notice-cbi-plea-challenging-discharge-arvind-kejriwal-excise-policy-case-1609494
-
-[Source Link](https://t.me/verdictumlegalupdates/25802)
 
 ---
 
