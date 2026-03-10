@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-10T04:48:51+00:00*
+*Last Updated: 2026-03-10T11:03:14+00:00*
 
 ---
 
-### 2026-03-10T04:48:51+00:00
-Supreme Court Seeks ASI Response On Plea To Allow Urs, Namaz At Hazrat Sheikh Muhammad Ghaus Tomb In Gwalior
-https://www.livelaw.in/top-stories/supreme-court-seeks-asi-response-on-plea-to-allow-urs-namaz-at-hazrat-sheikh-muhammad-ghaus-tomb-in-gwalior-525763
+### 2026-03-10T11:03:14+00:00
+Notification Of Kolhapur Circuit Bench Doesn't Automatically Divest Principal Seat Of Jurisdiction: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-establishment-kolhapur-circuit-bench-jurisdiction-525846
 
-[Read on Telegram](https://t.me/livelawindia/106521)
-
----
-### 2026-03-10T04:55:11+00:00
-Order XLI Rule 27 CPC | No Vested Right To Produce Additional Evidence At Appellate Stage : Supreme Court
-https://www.livelaw.in/supreme-court/order-xli-rule-27-cpc-no-vested-right-to-produce-additional-evidence-at-appellate-stage-supreme-court-525765
-
-[Read on Telegram](https://t.me/livelawindia/106522)
+[Read on Telegram](https://t.me/livelawindia/106568)
 
 ---
-### 2026-03-10T04:56:11+00:00
-2026 LiveLaw (SC) 221 | GOBIND SINGH AND ORS. VERSUS UNION OF INDIA AND ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-221-gobind-singh-and-ors-versus-union-of-india-and-ors-525766
+### 2026-03-10T11:07:14+00:00
+Termination Valid If Job Was Secured Using Certificate From Unrecognised Board: Himachal Pradesh High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-central-board-higher-education-matriculation-certificates-525826
 
-[Read on Telegram](https://t.me/livelawindia/106523)
-
----
-### 2026-03-10T05:02:11+00:00
-Karnataka High Court Weekly Round-Up: March 02 - March 08, 2026
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-round-up-525754
-
-[Read on Telegram](https://t.me/livelawindia/106524)
+[Read on Telegram](https://t.me/livelawindia/106569)
 
 ---
-### 2026-03-10T05:12:31+00:00
-Freezing Bank Account Without Prima Facie Link To Offence Violates Right To Life, Trade: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-freezing-bank-account-prima-facie-link-articles-21-525740
+### 2026-03-10T11:09:59+00:00
+Supreme Court Grants Anticipatory Bail To Former Telangana Intelligence Chief As Probe In Phone Tapping Case Complete
+https://www.livelaw.in/top-stories/supreme-court-grants-anticipatory-bail-prabhakar-rao-phone-tapping-case-525853
 
-[Read on Telegram](https://t.me/livelawindia/106525)
-
----
-### 2026-03-10T05:17:31+00:00
-LiveLaw Academy Launches “Comprehensive Course on Inheritance Laws in India” by Justice K. Kannan (Retd.)
-https://www.livelaw.in/top-stories/comprehensive-course-on-inheritance-laws-in-india-justice-k-kannan-525771
-
-[Read on Telegram](https://t.me/livelawindia/106526)
+[Read on Telegram](https://t.me/livelawindia/106570)
 
 ---
-### 2026-03-10T05:23:11+00:00
-Bail In POCSO Case Can Be Set Aside If Victim Not Heard : Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/bail-in-pocso-cases-invalid-if-victim-not-heard-525755
+### 2026-03-10T11:12:19+00:00
+Documents Collected During Investigation Are Not Evidence In Departmental Inquiry Unless Proved By Competent Witness: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-dismissal-iocl-officer-disciplinary-proceedings-competent-witnesses-525776
 
-[Read on Telegram](https://t.me/livelawindia/106527)
-
----
-### 2026-03-10T05:26:47+00:00
-BREAKING| Frame No-Fault Compensation Policy For Adverse Events Due To COVID-19 Vaccination : Supreme Court Directs Centre
-https://www.livelaw.in/top-stories/frame-no-fault-compensation-policy-for-adverse-events-due-to-covid-19-vaccination-supreme-court-directs-centre-525774
-
-[Read on Telegram](https://t.me/livelawindia/106528)
+[Read on Telegram](https://t.me/livelawindia/106571)
 
 ---
-### 2026-03-10T05:28:07+00:00
-Failure To Inform Passenger About Change From RAC To Waiting List Is Deficiency In Service: Delhi State Consumer Commission
-https://www.livelaw.in/consumer-cases/failure-to-inform-passenger-about-change-from-rac-to-waiting-list-is-deficiency-in-service-delhi-state-consumer-commission-525775
+### 2026-03-10T11:12:39+00:00
+Court Cannot Consider Documents Beyond Plaint While Deciding Order VII Rule 11 CPC Plea: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/court-cannot-consider-documents-beyond-plaint-while-deciding-order-vii-rule-11-cpc-plea-calcutta-high-court-525828
 
-[Read on Telegram](https://t.me/livelawindia/106529)
-
----
-### 2026-03-10T05:43:04+00:00
-Family Court Can Admit CCTV Footage Showing Husband Assaulting Wife Without Certificate U/S 65B Evidence Act: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-cctv-footage-husband-assaulting-wife-section-65b-certificate-525743
-
-[Read on Telegram](https://t.me/livelawindia/106530)
+[Read on Telegram](https://t.me/livelawindia/106572)
 
 ---
-### 2026-03-10T05:44:24+00:00
-'Important Issue' : Supreme Court Agrees To Hear Union's Challenge To Bombay HC Quashing IT Rules On 'Fact Check Unit'
-https://www.livelaw.in/top-stories/important-issue-supreme-court-agrees-to-hear-unions-challenge-to-bombay-hc-quashing-it-rules-on-fact-check-unit-525783
+### 2026-03-10T11:17:39+00:00
+Order VIII Rule 1A CPC Not A Bar To Producing Documents For Cross-Examining Witness: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-defendant-application-documents-production-525773
 
-[Read on Telegram](https://t.me/livelawindia/106531)
-
----
-### 2026-03-10T05:54:24+00:00
-Assistant Professor (Law) Vacancy At Dr. Rajendra Prasad National Law University, Prayagraj
-https://www.livelaw.in/job-updates/assistant-professor-law-vacancy-at-dr-rajendra-prasad-national-law-university-prayagraj-525785
-
-[Read on Telegram](https://t.me/livelawindia/106532)
+[Read on Telegram](https://t.me/livelawindia/106573)
 
 ---
-### 2026-03-10T06:07:44+00:00
-Govt Using Employee Data To Communicate Benefits Not Privacy Violation: Kerala High Court Dismisses Plea Challenging CMO's Bulk Messages
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-dismiss-cmo-bulk-messaging-issue-525787
+### 2026-03-10T11:24:19+00:00
+'Nalayak' Widely Used In Everyday Speech, Not Necessarily Obscene Or Intentional Insult: MP High Court Quashes FIR Against Former Minister
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-quashes-fir-against-former-minister-says-nalayak-commonly-used-word-525856
 
-[Read on Telegram](https://t.me/livelawindia/106533)
-
----
-### 2026-03-10T06:09:24+00:00
-'UCC Is The Answer' : Supreme Court On Plea Challenging Shariat Inhertiance Law Discriminating Against Muslim Women
-https://www.livelaw.in/top-stories/ucc-supreme-court-hariat-inhertiance-law-discriminating-against-muslim-women-525789
-
-[Read on Telegram](https://t.me/livelawindia/106534)
+[Read on Telegram](https://t.me/livelawindia/106574)
 
 ---
-### 2026-03-10T06:14:27+00:00
-Pune Porsche Crash | Supreme Court Grants Bail To Father Of Minor Driver In Blood Sample Swapping Case
-https://www.livelaw.in/top-stories/pune-porsche-crash-supreme-court-grants-bail-to-father-of-minor-driver-in-blood-sample-swapping-case-525790
+### 2026-03-10T11:31:19+00:00
+Shocking That Over 350 Trials Pending In J&K For More Than 5 Years : Supreme Court
+https://www.livelaw.in/top-stories/shocking-that-over-350-trials-pending-in-jk-for-more-than-5-years-supreme-court-525857
 
-[Read on Telegram](https://t.me/livelawindia/106535)
-
----
-### 2026-03-10T06:19:47+00:00
-2017 Actress Assault Case: Kerala High Court Condones 17 Days Delay In State's Appeal
-https://www.livelaw.in/high-court/kerala-high-court/actress-assault-kerala-high-court-condones-delay-525791
-
-[Read on Telegram](https://t.me/livelawindia/106536)
+[Read on Telegram](https://t.me/livelawindia/106575)
 
 ---
-### 2026-03-10T06:32:47+00:00
-'Condemned Without Hearing': ED Tells Delhi High Court Over Adverse Remarks In Excise Policy Case, Notice Issued
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-ed-excise-policy-case-remarks-trial-court-525792
+### 2026-03-10T11:32:19+00:00
+Karnataka High Court Declines PIL Seeking Circulars To Ensure Compliance With Lalita Kumari Ruling On Mandatory FIR
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-issue-circulars-mandatory-fir-registration-525858
 
-[Read on Telegram](https://t.me/livelawindia/106537)
-
----
-### 2026-03-10T06:34:07+00:00
-Centre Invokes Essential Commodities Act To Regulate Natural Gas Supply Amid West Asia Conflict
-https://www.livelaw.in/news-updates/centre-invokes-essential-commodities-act-to-regulate-natural-gas-supply-amid-west-asia-conflict-525793
-
-[Read on Telegram](https://t.me/livelawindia/106538)
+[Read on Telegram](https://t.me/livelawindia/106576)
 
 ---
-### 2026-03-10T06:37:47+00:00
-West Bengal SIR : Live Updates From Supreme Court Hearing
-https://www.livelaw.in/top-stories/west-bengal-sir-live-updates-from-supreme-court-hearing-525795
+### 2026-03-10T11:36:40+00:00
+Supreme Court Adjourns Habeas Plea Challenging Sonam Wangchuk's Detention Till March 17
+https://www.livelaw.in/top-stories/supreme-court-adjourns-habeas-plea-challenging-sonam-wangchuks-detention-till-march-17-525860
 
-[Read on Telegram](https://t.me/livelawindia/106539)
+[Read on Telegram](https://t.me/livelawindia/106577)
 
 ---
-### 2026-03-10T06:37:57+00:00
-Private Agreement Cannot Dissolve Marriage But Can Be Relied On To Prove Mutual Separation, Act As Bar To Maintenance: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-private-agreement-cannot-dissolve-marriage-but-can-prove-mutual-separation-act-as-a-bar-to-maintenance-525741
+### 2026-03-10T11:45:40+00:00
+Overcrowding In Reserved Coach Prevented Passengers From Accessing Confirmed Seats: Palakkad Consumer Commission Holds Railways Liable
+https://www.livelaw.in/consumer-cases/overcrowding-in-reserved-coach-prevented-passengers-from-accessing-confirmed-seats-palakkad-consumer-commission-holds-railways-liable-525864
 
-[Read on Telegram](https://t.me/livelawindia/106540)
+[Read on Telegram](https://t.me/livelawindia/106578)
+
+---
+### 2026-03-10T11:47:40+00:00
+'Desecration Of PIL Rules': Gujarat High Court Slaps ₹10 Lakh Costs On Litigant Claiming Encroachment Of Protected Mosque
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-cost-pil-rules-litigant-mosque-protected-monument-525861
+
+[Read on Telegram](https://t.me/livelawindia/106579)
+
+---
+### 2026-03-10T12:02:20+00:00
+Supreme Court Warns Defence & Finance Secretaries For Not Deciding On Benefits For Cadets Disabled During Training
+https://www.livelaw.in/top-stories/supreme-court-warns-defence-finance-secretaries-for-not-deciding-on-benefits-for-cadets-disabled-during-training-525867
+
+[Read on Telegram](https://t.me/livelawindia/106580)
+
+---
+### 2026-03-10T12:03:20+00:00
+Kerala Court Grants Bail To Republic TV Journalists Arrested For Allegedly Filming Iranian Warship
+https://www.livelaw.in/news-updates/kerala-magistrate-kochi-republic-tv-journalist-iran-ship-bail-525868
+
+[Read on Telegram](https://t.me/livelawindia/106581)
+
+---
+### 2026-03-10T12:12:30+00:00
+MP High Court Issues Notice On Plea Challenging State Notification Granting Special Executive Magistrate Powers To ACP
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-issues-notice-in-plea-challenging-grant-of-special-executive-powers-to-acp-525870
+
+[Read on Telegram](https://t.me/livelawindia/106582)
+
+---
+### 2026-03-10T12:16:50+00:00
+Senior Advocate Menaka Guruswamy Elected To Rajya Sabha, First MP From LGBT Community
+https://www.livelaw.in/news-updates/senior-advocate-menaka-guruswamy-elected-to-rajya-sabha-first-mp-from-lgbt-community-525872
+
+[Read on Telegram](https://t.me/livelawindia/106583)
+
+---
+### 2026-03-10T12:27:50+00:00
+Supreme Court To Examine Non-Production Of Undertrials Before Courts On Pan-India Basis; Seeks Responses From All HCs & DGPs
+https://www.livelaw.in/supreme-court/supreme-court-to-examine-non-production-of-undertrials-before-courts-on-pan-india-basis-seeks-responses-from-all-hcs-dgps-525873
+
+[Read on Telegram](https://t.me/livelawindia/106584)
+
+---
+### 2026-03-10T12:32:50+00:00
+J&K Police Rules | Failure To Report Complaint Against Police Officer To District Magistrate Vitiates Proceedings: High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-rule-349-jk-police-rules-mandatory-failure-to-report-complaint-against-police-officer-to-district-magistrate-vitiates-proceedings-525852
+
+[Read on Telegram](https://t.me/livelawindia/106585)
+
+---
+### 2026-03-10T12:45:30+00:00
+Uttam Nagar Holi Clash: Delhi High Court Orally Asks MCD Not To Demolish Homes Of Accused Till Tomorrow
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-mcd-action-home-accused-uttam-nagar-holi-case-525878
+
+[Read on Telegram](https://t.me/livelawindia/106586)
+
+---
+### 2026-03-10T12:54:14+00:00
+'Why Restrict Kambala Race To Certain Regions In Karnataka? : Supreme Court Dismisses PETA Challenge
+https://www.livelaw.in/top-stories/supreme-court-peta-plea-against-kambala-race-beyond-karnataka-coastal-districts-asks-what-is-wrong-in-showcasing-culture-525880
+
+[Read on Telegram](https://t.me/livelawindia/106587)
 
 ---
