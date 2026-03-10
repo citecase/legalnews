@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-10T13:32:47+00:00*
+*Last Updated: 2026-03-10T16:02:53+00:00*
+
+---
+
+### 2026-03-10T16:02:53+00:00
+Mumbai Metropolitan Region Development Authority (MMRDA) Invites Applications For The Post Of Assistant Law Officers
+https://www.verdictum.in/job-updates/mumbai-metropolitan-region-development-authority-1609614
+
+[Source Link](https://t.me/verdictumlegalupdates/25845)
+
+---
+
+### 2026-03-10T15:33:12+00:00
+Drawer Has No Control Over Bank Account In A Case Debit Freezement: Karnataka High Court Quashes Cheque Dishonour Complaint Proceedings
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/ms-nd-developers-private-ltd-v-ritesh-raushan-drawer-dishonour-cheque-account-debit-frozen-1609613
+
+[Source Link](https://t.me/verdictumlegalupdates/25844)
+
+---
+
+### 2026-03-10T15:02:50+00:00
+Plea Of Reverse Passing Off Foreign To Indian Trade Mark Jurisprudence: Delhi High Court Rejects WD & Seagate’s Claims Against Refurbished HDD Sellers
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/western-digital-technologies-inc-v-geonix-international-private-limited-2025dhc1908-db-1609612
+
+[Source Link](https://t.me/verdictumlegalupdates/25843)
+
+---
+
+### 2026-03-10T14:32:29+00:00
+“Law Does Not Criminalise Heartbreak”: Karnataka High Court Quashes FIR Against Man Accused Of Rape On Pretext Of Marriage
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/harshdeep-girish-parlathaya-v-state-of-karnataka-anr-rape-marriage-1609611
+
+[Source Link](https://t.me/verdictumlegalupdates/25842)
+
+---
+
+### 2026-03-10T14:02:28+00:00
+Gujarat High Court Directs State Govt To Increase Daily Allowance Of Home Guards To Police Personnel's Minimum Pay
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/rajeshbhai-maheshbhai-jani-v-state-of-gujarat-2026gujhc16437-state-govt-daily-allowance-home-guards-police-personnel-1609610
+
+[Source Link](https://t.me/verdictumlegalupdates/25841)
 
 ---
 
@@ -121,46 +161,6 @@ Courts Inundated With Cases Of Far Greater Urgency: Delhi HC Upholds Denial Of I
 https://www.verdictum.in/court-updates/high-courts/delhi-high-court/novo-nordisk-as-v-dr-reddys-laboratories-limited-2026dhc1911-db-diabetes-drug-little-man-common-man-patent-judicial-concern-1609573
 
 [Source Link](https://t.me/verdictumlegalupdates/25826)
-
----
-
-### 2026-03-10T05:49:18+00:00
-BREAKING: Supreme Court Refuses To Stay Bombay High Court Order Striking Down IT Rules 2023 On Fact-Check Units; Issues Notice In Union's Plea
-https://www.verdictum.in/court-updates/supreme-court/refused-stay-bombay-high-court-order-striking-down-it-rules-2023-fact-check-units-1609570
-
-[Source Link](https://t.me/verdictumlegalupdates/25825)
-
----
-
-### 2026-03-10T05:32:47+00:00
-“CBI May Have Coerced Witness”: Punjab & Haryana High Court While Acquitting Gurmeet Ram Rahim Singh In Journalist Murder Case
-https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/gurmeet-ram-rahim-singh-v-central-bureau-of-investigation-2026phhc035021-db-1609564
-
-[Source Link](https://t.me/verdictumlegalupdates/25824)
-
----
-
-### 2026-03-10T05:02:59+00:00
-Wife’s Needs To Be Balanced Not Only With Husband’s Income But Also With Her Own Earning Prospects: Gujarat High Court Reduces Maintenance Amount
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/a-v-state-of-gujarat-ors-2026gujhc16305-wife-needs-husband-income-earning-prospects-maintenance-1609563
-
-[Source Link](https://t.me/verdictumlegalupdates/25823)
-
----
-
-### 2026-03-10T04:33:08+00:00
-Teaching Experience Under UGC Regulations For Recruiting Assistant Professors Must Be Based On Actual Period Of Teaching: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/jovita-james-v-the-university-of-kerala-others-2026ker17033-ugc-regulation-1609540
-
-[Source Link](https://t.me/verdictumlegalupdates/25822)
-
----
-
-### 2026-03-09T16:02:19+00:00
-Registrar (Law) Vacancy At National Human Rights Commission (NHRC)
-https://www.verdictum.in/job-updates/national-human-rights-commission-nhrc-1609531
-
-[Source Link](https://t.me/verdictumlegalupdates/25821)
 
 ---
 
