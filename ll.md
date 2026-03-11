@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-10T12:32:50+00:00*
+*Last Updated: 2026-03-10T12:45:30+00:00*
 
 ---
 
-### 2026-03-10T12:32:50+00:00
-J&K Police Rules | Failure To Report Complaint Against Police Officer To District Magistrate Vitiates Proceedings: High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-rule-349-jk-police-rules-mandatory-failure-to-report-complaint-against-police-officer-to-district-magistrate-vitiates-proceedings-525852
-
-[Read on Telegram](https://t.me/livelawindia/106585)
-
----
 ### 2026-03-10T12:45:30+00:00
 Uttam Nagar Holi Clash: Delhi High Court Orally Asks MCD Not To Demolish Homes Of Accused Till Tomorrow
 https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-mcd-action-home-accused-uttam-nagar-holi-case-525878
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : March 10, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-march-10-2026-525911
 
 [Read on Telegram](https://t.me/livelawindia/106604)
+
+---
+### 2026-03-10T19:04:31+00:00
+Competition Law As Backbone Of Market Economy: CCI Chairperson Ravneet Kaur Addresses Workshop At DSNLU
+https://www.livelaw.in/lawschool/news/competition-law-backbone-market-economy-cci-chairperson-ravneet-kaur-addresses-workshop-dsnlu-525921
+
+[Read on Telegram](https://t.me/livelawindia/106605)
 
 ---
