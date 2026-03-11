@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-10T17:12:30+00:00*
+*Last Updated: 2026-03-11T09:38:20+00:00*
 
 ---
 
-### 2026-03-10T17:12:30+00:00
-Supreme Court Daily Round-Up : March 10, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-march-10-2026-525911
+### 2026-03-11T09:38:20+00:00
+Contractor Suppressing Prior Blacklisting Bars Equitable Relief, But Payment For Executed Work May Still Be Granted: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/suppression-of-prior-blacklisting-bars-equitable-relief-payment-executed-work-may-directed-525990
 
-[Read on Telegram](https://t.me/livelawindia/106604)
-
----
-### 2026-03-10T19:04:31+00:00
-Competition Law As Backbone Of Market Economy: CCI Chairperson Ravneet Kaur Addresses Workshop At DSNLU
-https://www.livelaw.in/lawschool/news/competition-law-backbone-market-economy-cci-chairperson-ravneet-kaur-addresses-workshop-dsnlu-525921
-
-[Read on Telegram](https://t.me/livelawindia/106605)
+[Read on Telegram](https://t.me/livelawindia/106640)
 
 ---
-### 2026-03-11T03:07:50+00:00
-Natural Justice Violated: Punjab & Haryana High Court Sets Aside Expulsion Of MBBS Student In Exam Scam Case
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-sets-aside-expulsion-of-mbbs-student-over-exam-scam-525919
+### 2026-03-11T09:41:20+00:00
+His Family Never Left His Side, Real Love Is Caring In Saddest Hours : Supreme Court Lauds Harish Rana's Parents
+https://www.livelaw.in/top-stories/harish-rana-passive-euthanasia-case-his-family-never-left-his-side-real-love-cares-supreme-court-lauds-parents-525992
 
-[Read on Telegram](https://t.me/livelawindia/106606)
-
----
-### 2026-03-11T03:10:50+00:00
-Deputy Project Manager Vacancy At Indian Institute Of Technology, Kanpur
-https://www.livelaw.in/job-updates/deputy-project-manager-vacancy-at-indian-institute-of-technology-kanpur-525923
-
-[Read on Telegram](https://t.me/livelawindia/106607)
+[Read on Telegram](https://t.me/livelawindia/106641)
 
 ---
-### 2026-03-11T03:12:10+00:00
-Secretary Vacancy At Mormugao Port Authority
-https://www.livelaw.in/job-updates/secretary-vacancy-at-mormugao-port-authority-525924
+### 2026-03-11T09:49:32+00:00
+Supreme Court Stays Death Sentence Of Man Convicted For Rape-Murder Of 5-Year Old Girl In Madhya Pradesh
+https://www.livelaw.in/top-stories/supreme-court-atul-nihale-convict-5-year-old-girl-rape-murder-madhya-pradesh-high-court-death-sentence-stayed-525996
 
-[Read on Telegram](https://t.me/livelawindia/106608)
-
----
-### 2026-03-11T03:13:10+00:00
-Legal Assistant Vacancy At Veer Narmad South Gujarat University
-https://www.livelaw.in/job-updates/legal-assistant-vacancy-at-veer-narmad-south-gujarat-university-525925
-
-[Read on Telegram](https://t.me/livelawindia/106609)
+[Read on Telegram](https://t.me/livelawindia/106642)
 
 ---
-### 2026-03-11T03:14:30+00:00
-Deputy General Manager Vacancy At National Health Mission (NHM), Uttar Pradesh
-https://www.livelaw.in/job-updates/deputy-general-manager-vacancy-at-national-health-mission-nhm-uttar-pradesh-525926
+### 2026-03-11T09:51:12+00:00
+Calcutta High Court Directs Designated Senior Advocates To Be Added As Parties In Plea Challenging Senior Designations
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-directs-designated-senior-advocates-to-be-added-as-parties-in-plea-challenging-senior-designations-525997
 
-[Read on Telegram](https://t.me/livelawindia/106610)
-
----
-### 2026-03-11T03:33:20+00:00
-Technology Must Facilitate Access To Justice: Gujarat High Court Allows NRI Husband To Join Conciliation Via VC
-https://www.livelaw.in/high-court/gujarat-high-court/nri-husband-mutual-divorce-participate-conciliation-via-vc-525906
-
-[Read on Telegram](https://t.me/livelawindia/106611)
+[Read on Telegram](https://t.me/livelawindia/106643)
 
 ---
-### 2026-03-11T04:02:20+00:00
-Rape On The Pretext Of Marriage - Section 69 Of Bharatiya Nyaya Sanhita, 2023 : A Provision Built To Be Abused
-https://www.livelaw.in/lawschool/articles/rape-marriage-section69-bharatiya-nyaya-sanhita2023-525866
+### 2026-03-11T10:02:52+00:00
+PIL In Karnataka High Court Seeks Removal Of Illegal Hoardings, Commercial LED Advertisement Boards; Calls It 'Visual Pollution'
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-remove-commercial-led-advertisement-boards-525991
 
-[Read on Telegram](https://t.me/livelawindia/106612)
-
----
-### 2026-03-11T04:02:40+00:00
-Notification Inviting Applications Only For Govt Pleader Can't Be Used To Appoint Public Prosecutor: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/single-notification-rules-separate-offices-government-pleaders-public-prosecutors-525918
-
-[Read on Telegram](https://t.me/livelawindia/106613)
+[Read on Telegram](https://t.me/livelawindia/106644)
 
 ---
-### 2026-03-11T04:32:50+00:00
-Claim That Daughter Falsely Accused Father Of Rape Over Discontinuation Of Studies 'Far-Fetched': Bombay High Court Upholds POCSO Conviction
-https://www.livelaw.in/high-court/bombay-high-court/girl-wont-accuse-father-of-rape-over-discontinuation-of-studies-525917
+### 2026-03-11T10:15:33+00:00
+Kerala High Court Stays Order Directing MLA Rahul Mamkootathil To Provide His Mobile Phone Passcodes To Investigating Officer
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-rahul-mamkootathil-mobile-passcode-526002
 
-[Read on Telegram](https://t.me/livelawindia/106614)
-
----
-### 2026-03-11T04:59:53+00:00
-NCLAT Order Not Invalid Merely Because Bench Had Majority Technical Members : Supreme Court
-https://www.livelaw.in/supreme-court/nclat-order-not-invalid-merely-because-bench-had-majority-technical-members-supreme-court-525937
-
-[Read on Telegram](https://t.me/livelawindia/106615)
+[Read on Telegram](https://t.me/livelawindia/106645)
 
 ---
-### 2026-03-11T05:02:53+00:00
-'Such Cases Should Never Reach Court': Bombay HC Criticises Railways For Making Family Of Deceased Employee Litigate For Compensation
-https://www.livelaw.in/high-court/bombay-high-court/railway-employees-death-in-train-accident-compensation-issue-never-land-in-court-525920
+### 2026-03-11T10:27:13+00:00
+Supreme Court Orders CBI To Conduct Preliminary Inquiry Into Death Of Dalit Woman Allegedly Molested By Ex-MP Home Minister's Aide
+https://www.livelaw.in/top-stories/supreme-court-orders-cbi-to-conduct-preliminary-inquiry-into-death-of-dalit-woman-allegedly-molested-by-ex-mp-home-ministers-aide-526007
 
-[Read on Telegram](https://t.me/livelawindia/106616)
-
----
-### 2026-03-11T05:12:13+00:00
-Landowner's Right To Seek Reference Cannot Be Denied On Grounds Of Limitation When Compensation Not Paid: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-landowners-right-to-seek-reference-cannot-be-denied-on-limitation-grounds-when-compensation-was-never-paid-525922
-
-[Read on Telegram](https://t.me/livelawindia/106617)
+[Read on Telegram](https://t.me/livelawindia/106646)
 
 ---
-### 2026-03-11T05:25:33+00:00
-BREAKING | Supreme Court Allows First Passive Euthanasia, Permits Withdrawal Of Life Support For Man In Vegetative State
-https://www.livelaw.in/top-stories/supreme-court-allows-first-passive-euthanasia-permits-withdrawal-of-life-support-for-man-in-vegetative-state-525943
+### 2026-03-11T10:42:53+00:00
+Calcutta High Court Issues Notice On PIL Against Non-Disbursal Of Maternity Benefits Under 'PM Matru Vandana Yojana'
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-issues-notice-on-pil-against-non-disbursal-of-maternity-benefits-under-pm-matru-vandana-yojana-526003
 
-[Read on Telegram](https://t.me/livelawindia/106618)
-
----
-### 2026-03-11T06:06:48+00:00
-Co-Operative Society's Multi-State Status Depends On Objectives, Not Spread Of Members Across States: Supreme Court
-https://www.livelaw.in/supreme-court/co-operative-societys-multi-state-status-depends-on-objectives-not-spread-of-members-across-states-supreme-court-525947
-
-[Read on Telegram](https://t.me/livelawindia/106619)
+[Read on Telegram](https://t.me/livelawindia/106647)
 
 ---
-### 2026-03-11T06:08:08+00:00
-2026 LiveLaw (SC) 224 | REGISTRAR CANE COOPERATIVE SOCIETIES & ORS. VERSUS GURDEEP SINGH NARVAL (DEAD) THROUGH LRS. & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-224-registrar-cane-cooperative-societies-ors-versus-gurdeep-singh-narval-dead-through-lrs-ors-525948
+### 2026-03-11T10:48:03+00:00
+Bombay High Court Flags Procedural Irregularities By Goa Revenue Authorities In Pronouncing Orders, Issuing Certified Copies
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-irregular-procedure-revenue-authorities-quasijudicial-capacities-525969
 
-[Read on Telegram](https://t.me/livelawindia/106620)
-
----
-### 2026-03-11T06:14:49+00:00
-NCDRC Holds Axis Bank Liable For Refusing Demonetised Cash Deposit In KYC-Compliant Account, Orders ₹3.19 Crore Compensation
-https://www.livelaw.in/consumer-cases/ncdrc-holds-axis-bank-liable-for-refusing-demonetised-cash-deposit-in-kyc-compliant-account-orders-319-crore-compensation-525951
-
-[Read on Telegram](https://t.me/livelawindia/106621)
+[Read on Telegram](https://t.me/livelawindia/106648)
 
 ---
-### 2026-03-11T06:47:49+00:00
-Redisplaying Of Defamatory Content Can Attract Offence U/S 499, 500 IPC: Kerala High Court Refuses To Quash Case Against Magazine Editors
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-defamation-redisplaying-offence-525944
+### 2026-03-11T10:55:03+00:00
+Jharkhand High Court Orders CBI Probe Into FIR Against ED Officers Over Alleged Assault On Accused At Ranchi Office
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-transfers-fir-ed-officials-cbi-senior-counsel-seeking-recusal-526012
 
-[Read on Telegram](https://t.me/livelawindia/106622)
+[Read on Telegram](https://t.me/livelawindia/106649)
 
 ---
-### 2026-03-11T06:54:09+00:00
-Kerala High Court Quashes Obscenity FIR Against Actor Shwetha Menon, Says Complaint Filed To 'Tarnish' Her Reputation
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-shwetha-menon-obscenity-fir-quashed-525955
+### 2026-03-11T11:17:03+00:00
+Liquor Policy Case: Arvind Kejriwal Writes To Delhi High Court CJ Seeking Transfer Of CBI's Plea Against Discharge To Another Judge
+https://www.livelaw.in/high-court/delhi-high-court/arvind-kejriwal-delhi-high-court-chief-justice-excise-policy-transfer-526018
 
-[Read on Telegram](https://t.me/livelawindia/106623)
+[Read on Telegram](https://t.me/livelawindia/106650)
+
+---
+### 2026-03-11T11:33:03+00:00
+All Cheque Dishonor Cases Must Be Referred To Mediation After Accused Is Served: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/cheque-dishonor-ni-act-cases-refer-to-mediation-after-accused-served-526011
+
+[Read on Telegram](https://t.me/livelawindia/106651)
+
+---
+### 2026-03-11T11:56:16+00:00
+No Question Of Closure Report In Minor's Suicide Case: Karnataka High Court Reserves Order In Abetment Case Against Fellow Students, Staff
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-minor-suicide-abetment-case-students-staff-526020
+
+[Read on Telegram](https://t.me/livelawindia/106652)
+
+---
+### 2026-03-11T11:57:56+00:00
+Bombay High Court Declines To Interfere With Denial Of Security Clearance To Azerbaijani Company For Work At Navi Mumbai Airport
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-security-clearance-denial-mumbai-airport-national-security-525970
+
+[Read on Telegram](https://t.me/livelawindia/106653)
+
+---
+### 2026-03-11T12:03:06+00:00
+Beyond Policy Matters: How Jaya Thakur Verdict Redefines Menstrual Autonomy
+https://www.livelaw.in/lawschool/articles/jaya-thakur-verdict-menstrual-autonomy-525876
+
+[Read on Telegram](https://t.me/livelawindia/106654)
+
+---
+### 2026-03-11T12:03:16+00:00
+Mumbai Sessions Court Quashes Process Against Amazon Seller Services Directors Over Sale Of Abortion Pills On Platform
+https://www.livelaw.in/news-updates/mumbai-court-amazon-seller-abortion-pills-online-sale-526021
+
+[Read on Telegram](https://t.me/livelawindia/106655)
+
+---
+### 2026-03-11T12:37:16+00:00
+Public Servant Convicted For Bribery Cannot Seek Acquittal Merely Because Co-Accused Was Acquitted For Not Proving Conspiracy: Supreme Court
+https://www.livelaw.in/supreme-court/public-servant-convicted-for-bribery-cannot-seek-acquittal-merely-because-co-accused-was-acquitted-for-not-proving-conspiracy-supreme-court-526026
+
+[Read on Telegram](https://t.me/livelawindia/106656)
+
+---
+### 2026-03-11T12:38:16+00:00
+2026 LiveLaw (SC) 228 | Central Bureau of Investigation Versus Baljeet Singh
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-228-central-bureau-of-investigation-versus-baljeet-singh-526027
+
+[Read on Telegram](https://t.me/livelawindia/106657)
+
+---
+### 2026-03-11T12:47:26+00:00
+“If Every State Should Have AIIMS, Why None In Kerala Yet?”: Kerala High Court Asks Centre
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-asks-centre-the-criteria-for-prioritising-the-establishment-of-aiims-526028
+
+[Read on Telegram](https://t.me/livelawindia/106658)
+
+---
+### 2026-03-11T13:02:06+00:00
+District Judge Appointments : Supreme Court Issues Directions For Reinstatement & Seniority Following 'Rejansih v. Deepa' Judgment
+https://www.livelaw.in/top-stories/district-judge-appointments-supreme-court-issues-directions-for-reinstatement-seniority-following-rejansih-v-deepa-judgment-526031
+
+[Read on Telegram](https://t.me/livelawindia/106659)
 
 ---
