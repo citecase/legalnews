@@ -1,135 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-11T09:38:20+00:00*
+*Last Updated: 2026-03-11T12:47:26+00:00*
 
 ---
 
-### 2026-03-11T09:38:20+00:00
-Contractor Suppressing Prior Blacklisting Bars Equitable Relief, But Payment For Executed Work May Still Be Granted: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/suppression-of-prior-blacklisting-bars-equitable-relief-payment-executed-work-may-directed-525990
-
-[Read on Telegram](https://t.me/livelawindia/106640)
-
----
-### 2026-03-11T09:41:20+00:00
-His Family Never Left His Side, Real Love Is Caring In Saddest Hours : Supreme Court Lauds Harish Rana's Parents
-https://www.livelaw.in/top-stories/harish-rana-passive-euthanasia-case-his-family-never-left-his-side-real-love-cares-supreme-court-lauds-parents-525992
-
-[Read on Telegram](https://t.me/livelawindia/106641)
-
----
-### 2026-03-11T09:49:32+00:00
-Supreme Court Stays Death Sentence Of Man Convicted For Rape-Murder Of 5-Year Old Girl In Madhya Pradesh
-https://www.livelaw.in/top-stories/supreme-court-atul-nihale-convict-5-year-old-girl-rape-murder-madhya-pradesh-high-court-death-sentence-stayed-525996
-
-[Read on Telegram](https://t.me/livelawindia/106642)
-
----
-### 2026-03-11T09:51:12+00:00
-Calcutta High Court Directs Designated Senior Advocates To Be Added As Parties In Plea Challenging Senior Designations
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-directs-designated-senior-advocates-to-be-added-as-parties-in-plea-challenging-senior-designations-525997
-
-[Read on Telegram](https://t.me/livelawindia/106643)
-
----
-### 2026-03-11T10:02:52+00:00
-PIL In Karnataka High Court Seeks Removal Of Illegal Hoardings, Commercial LED Advertisement Boards; Calls It 'Visual Pollution'
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-remove-commercial-led-advertisement-boards-525991
-
-[Read on Telegram](https://t.me/livelawindia/106644)
-
----
-### 2026-03-11T10:15:33+00:00
-Kerala High Court Stays Order Directing MLA Rahul Mamkootathil To Provide His Mobile Phone Passcodes To Investigating Officer
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-rahul-mamkootathil-mobile-passcode-526002
-
-[Read on Telegram](https://t.me/livelawindia/106645)
-
----
-### 2026-03-11T10:27:13+00:00
-Supreme Court Orders CBI To Conduct Preliminary Inquiry Into Death Of Dalit Woman Allegedly Molested By Ex-MP Home Minister's Aide
-https://www.livelaw.in/top-stories/supreme-court-orders-cbi-to-conduct-preliminary-inquiry-into-death-of-dalit-woman-allegedly-molested-by-ex-mp-home-ministers-aide-526007
-
-[Read on Telegram](https://t.me/livelawindia/106646)
-
----
-### 2026-03-11T10:42:53+00:00
-Calcutta High Court Issues Notice On PIL Against Non-Disbursal Of Maternity Benefits Under 'PM Matru Vandana Yojana'
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-issues-notice-on-pil-against-non-disbursal-of-maternity-benefits-under-pm-matru-vandana-yojana-526003
-
-[Read on Telegram](https://t.me/livelawindia/106647)
-
----
-### 2026-03-11T10:48:03+00:00
-Bombay High Court Flags Procedural Irregularities By Goa Revenue Authorities In Pronouncing Orders, Issuing Certified Copies
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-irregular-procedure-revenue-authorities-quasijudicial-capacities-525969
-
-[Read on Telegram](https://t.me/livelawindia/106648)
-
----
-### 2026-03-11T10:55:03+00:00
-Jharkhand High Court Orders CBI Probe Into FIR Against ED Officers Over Alleged Assault On Accused At Ranchi Office
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-transfers-fir-ed-officials-cbi-senior-counsel-seeking-recusal-526012
-
-[Read on Telegram](https://t.me/livelawindia/106649)
-
----
-### 2026-03-11T11:17:03+00:00
-Liquor Policy Case: Arvind Kejriwal Writes To Delhi High Court CJ Seeking Transfer Of CBI's Plea Against Discharge To Another Judge
-https://www.livelaw.in/high-court/delhi-high-court/arvind-kejriwal-delhi-high-court-chief-justice-excise-policy-transfer-526018
-
-[Read on Telegram](https://t.me/livelawindia/106650)
-
----
-### 2026-03-11T11:33:03+00:00
-All Cheque Dishonor Cases Must Be Referred To Mediation After Accused Is Served: Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/cheque-dishonor-ni-act-cases-refer-to-mediation-after-accused-served-526011
-
-[Read on Telegram](https://t.me/livelawindia/106651)
-
----
-### 2026-03-11T11:56:16+00:00
-No Question Of Closure Report In Minor's Suicide Case: Karnataka High Court Reserves Order In Abetment Case Against Fellow Students, Staff
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-minor-suicide-abetment-case-students-staff-526020
-
-[Read on Telegram](https://t.me/livelawindia/106652)
-
----
-### 2026-03-11T11:57:56+00:00
-Bombay High Court Declines To Interfere With Denial Of Security Clearance To Azerbaijani Company For Work At Navi Mumbai Airport
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-security-clearance-denial-mumbai-airport-national-security-525970
-
-[Read on Telegram](https://t.me/livelawindia/106653)
-
----
-### 2026-03-11T12:03:06+00:00
-Beyond Policy Matters: How Jaya Thakur Verdict Redefines Menstrual Autonomy
-https://www.livelaw.in/lawschool/articles/jaya-thakur-verdict-menstrual-autonomy-525876
-
-[Read on Telegram](https://t.me/livelawindia/106654)
-
----
-### 2026-03-11T12:03:16+00:00
-Mumbai Sessions Court Quashes Process Against Amazon Seller Services Directors Over Sale Of Abortion Pills On Platform
-https://www.livelaw.in/news-updates/mumbai-court-amazon-seller-abortion-pills-online-sale-526021
-
-[Read on Telegram](https://t.me/livelawindia/106655)
-
----
-### 2026-03-11T12:37:16+00:00
-Public Servant Convicted For Bribery Cannot Seek Acquittal Merely Because Co-Accused Was Acquitted For Not Proving Conspiracy: Supreme Court
-https://www.livelaw.in/supreme-court/public-servant-convicted-for-bribery-cannot-seek-acquittal-merely-because-co-accused-was-acquitted-for-not-proving-conspiracy-supreme-court-526026
-
-[Read on Telegram](https://t.me/livelawindia/106656)
-
----
-### 2026-03-11T12:38:16+00:00
-2026 LiveLaw (SC) 228 | Central Bureau of Investigation Versus Baljeet Singh
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-228-central-bureau-of-investigation-versus-baljeet-singh-526027
-
-[Read on Telegram](https://t.me/livelawindia/106657)
-
----
 ### 2026-03-11T12:47:26+00:00
 “If Every State Should Have AIIMS, Why None In Kerala Yet?”: Kerala High Court Asks Centre
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-asks-centre-the-criteria-for-prioritising-the-establishment-of-aiims-526028
@@ -142,5 +16,131 @@ District Judge Appointments : Supreme Court Issues Directions For Reinstatement 
 https://www.livelaw.in/top-stories/district-judge-appointments-supreme-court-issues-directions-for-reinstatement-seniority-following-rejansih-v-deepa-judgment-526031
 
 [Read on Telegram](https://t.me/livelawindia/106659)
+
+---
+### 2026-03-11T13:18:49+00:00
+Prima Facie No Offence U/S 153-A IPC: Allahabad HC Grants Relief To 'The Wire' MD S. Varadarajan In Mosque Demolition Report Case
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-153a-ipc-relief-the-wire-siddharth-varadarajan-mosque-demolition-report-case-526034
+
+[Read on Telegram](https://t.me/livelawindia/106660)
+
+---
+### 2026-03-11T13:22:29+00:00
+J&K&L High Court Flags 'Marriage Traps' Targeting Young Girls, Seeks Woman IPS Officer To Probe Alleged Predatory Practices
+https://www.livelaw.in/high-court/jammu-kashmir/jkl-high-court-flags-marriage-traps-targeting-young-girls-seeks-woman-ips-officer-to-probe-alleged-predatory-practices-525971
+
+[Read on Telegram](https://t.me/livelawindia/106661)
+
+---
+### 2026-03-11T13:31:29+00:00
+Migration And Asylum Project & NALSAR University Of Law To Host 'Nyaay Sabha 2026' On Access To Justice
+https://www.livelaw.in/events/migration-asylum-project-nalsar-university-law-host-nyaay-sabha-2026-access-justice-526035
+
+[Read on Telegram](https://t.me/livelawindia/106662)
+
+---
+### 2026-03-11T14:01:09+00:00
+Financial Abuse As Invisible Violence Inside Indian Homes
+https://www.livelaw.in/articles/financial-abuse-invisible-violence-indian-homes-526039
+
+[Read on Telegram](https://t.me/livelawindia/106663)
+
+---
+### 2026-03-11T14:02:39+00:00
+'Application By Senior Citizen For Eviction Of Relative Maintainable Even Without Claiming Monetary Maintenance': Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-senior-citizen-seeking-eviction-maintainable-monetary-maintenance-526013
+
+[Read on Telegram](https://t.me/livelawindia/106664)
+
+---
+### 2026-03-11T14:07:19+00:00
+When Can Medical Treatment Be Withdrawn In 'Best Interests Of Patient'? Supreme Court Explains Allowing First Passive Euthanasia
+https://www.livelaw.in/top-stories/when-can-medical-treatment-be-withdrawn-in-best-interests-of-patient-supreme-court-explains-allowing-first-passive-euthanasia-526041
+
+[Read on Telegram](https://t.me/livelawindia/106665)
+
+---
+### 2026-03-11T14:10:40+00:00
+2026 LiveLaw (SC) 229 | Harish Rana v Union of India
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-229-harish-rana-v-union-of-india-526043
+
+[Read on Telegram](https://t.me/livelawindia/106666)
+
+---
+### 2026-03-11T14:15:40+00:00
+NLU Odisha Wins 2nd RGNUL National IP Law Moot Court Competition 2026
+https://www.livelaw.in/lawschool/news/nlu-odisha-wins-2nd-rgnul-national-ip-law-moot-court-competition-2026-526044
+
+[Read on Telegram](https://t.me/livelawindia/106667)
+
+---
+### 2026-03-11T14:16:20+00:00
+Overzealous Investigation Fatal To Prosecution; Case Framed On Public Perceptions Ends Up In Mess : Supreme Court
+https://www.livelaw.in/supreme-court/overzealous-investigation-fatal-to-prosecution-case-framed-on-public-perceptions-ends-up-in-mess-supreme-court-526045
+
+[Read on Telegram](https://t.me/livelawindia/106668)
+
+---
+### 2026-03-11T14:17:40+00:00
+2026 LiveLaw (SC) 230 | Sanjay Kumar Sharma Versus State of Bihar & Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-230-sanjay-kumar-sharma-versus-state-of-bihar-ors-526046
+
+[Read on Telegram](https://t.me/livelawindia/106669)
+
+---
+### 2026-03-11T14:26:20+00:00
+Regional Language Or English Used In Navodaya Schools In Non-Hindi Regions : Centre To Supreme Court On Tamil Nadu Opposition
+https://www.livelaw.in/top-stories/regional-language-or-english-used-in-navodaya-schools-in-non-hindi-regions-centre-to-supreme-court-on-tamil-nadu-opposition-526048
+
+[Read on Telegram](https://t.me/livelawindia/106670)
+
+---
+### 2026-03-11T14:27:20+00:00
+Right To Be Considered For Promotion Is Legitimate Expectation; Marriage-Based Transfer Can't Defeat It: Himachal Pradesh High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-promotion-consideration-transfer-marriage-ground-526015
+
+[Read on Telegram](https://t.me/livelawindia/106671)
+
+---
+### 2026-03-11T14:29:00+00:00
+British Citizenship Row | Allahabad High Court Summons Complete Record Of MHA's 2019 Notice To Rahul Gandhi
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-british-citizenship-row-summons-complete-record-of-mha-notice-issued-to-rahul-gandhi-in-2019-526049
+
+[Read on Telegram](https://t.me/livelawindia/106672)
+
+---
+### 2026-03-11T14:51:20+00:00
+YS Vivekananda Reddy Murder | Supreme Court Dismisses Daughter's Pleas Challenging Bail To Accused & Seeking Further CBI Probe
+https://www.livelaw.in/top-stories/ys-vivekananda-reddy-murder-supreme-court-dismisses-daughters-pleas-challenging-bail-to-accused-seeking-further-cbi-probe-526053
+
+[Read on Telegram](https://t.me/livelawindia/106673)
+
+---
+### 2026-03-11T14:53:10+00:00
+Non-Disclosure Of Minor Criminal Cases Leading To Acquittal Should Not Automatically Lead To Termination: Sikkim High Court
+https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-nondisclosure-minor-criminal-case-candidate-social-background-526051
+
+[Read on Telegram](https://t.me/livelawindia/106674)
+
+---
+### 2026-03-11T14:53:40+00:00
+“How Do You Permit 15-Yr-Old To Consume Alcohol?”: Karnataka HC While Staying Proceedings Against Brewery Partner In Minor's Suicide Case
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-granting-interim-stay-brewery-partner-teen-suicide-case-526054
+
+[Read on Telegram](https://t.me/livelawindia/106675)
+
+---
+### 2026-03-11T15:17:30+00:00
+Registering Authority Cannot Usurp Powers Of Civil Court To Cancel Sale Deed: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-registering-authority-cannot-usurp-power-civil-court-526050
+
+[Read on Telegram](https://t.me/livelawindia/106676)
+
+---
+### 2026-03-11T17:02:45+00:00
+Supreme Court Daily Round-Up : March 11, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-march-11-2026-526055
+
+[Read on Telegram](https://t.me/livelawindia/106677)
 
 ---
