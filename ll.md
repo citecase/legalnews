@@ -1,135 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-10T12:45:30+00:00*
+*Last Updated: 2026-03-10T17:12:30+00:00*
 
 ---
 
-### 2026-03-10T12:45:30+00:00
-Uttam Nagar Holi Clash: Delhi High Court Orally Asks MCD Not To Demolish Homes Of Accused Till Tomorrow
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-mcd-action-home-accused-uttam-nagar-holi-case-525878
-
-[Read on Telegram](https://t.me/livelawindia/106586)
-
----
-### 2026-03-10T12:54:14+00:00
-'Why Restrict Kambala Race To Certain Regions In Karnataka? : Supreme Court Dismisses PETA Challenge
-https://www.livelaw.in/top-stories/supreme-court-peta-plea-against-kambala-race-beyond-karnataka-coastal-districts-asks-what-is-wrong-in-showcasing-culture-525880
-
-[Read on Telegram](https://t.me/livelawindia/106587)
-
----
-### 2026-03-10T13:17:24+00:00
-Foreign Nationals Also Entitled To Article 22 Safeguards; Grounds Of Arrest Must Be Communicated In Language Understood: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-foreign-nationals-entitled-article-22-deportation-overstaying-525884
-
-[Read on Telegram](https://t.me/livelawindia/106588)
-
----
-### 2026-03-10T13:32:24+00:00
-Unused Acquired Land Cannot Be Reclaimed Once It Vests In State; Subsequent Purchasers Have No Title: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/unused-acquired-land-cannot-be-reclaimed-once-it-vests-in-state-subsequent-purchasers-have-no-title-calcutta-high-court-525831
-
-[Read on Telegram](https://t.me/livelawindia/106589)
-
----
-### 2026-03-10T13:38:04+00:00
-Govt Order Cannot Supersede Statutory Notification Altering Tehsil Jurisdiction Under Land Revenue Act: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-government-order-cannot-supersede-statutory-notification-altering-tehsil-jurisdiction-under-land-revenue-act-525780
-
-[Read on Telegram](https://t.me/livelawindia/106590)
-
----
-### 2026-03-10T13:57:46+00:00
-Plea In Madras High Court Seeks Ban On Pre-Poll Alliance Between Political Parties, Says It Is Against Democracy
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-ban-pre-poll-alliance-against-democracy-525893
-
-[Read on Telegram](https://t.me/livelawindia/106591)
-
----
-### 2026-03-10T13:59:06+00:00
-S. 66 Companies Act | Valuation Report Not Mandatory For Share Capital Reduction : Supreme Court
-https://www.livelaw.in/supreme-court/s-66-companies-act-valuation-report-not-mandatory-for-share-capital-reduction-supreme-court-525894
-
-[Read on Telegram](https://t.me/livelawindia/106592)
-
----
-### 2026-03-10T14:02:26+00:00
-2026 LiveLaw (SC) 222 | Pannalal Bhansali Versus Bharti Telecom Limited & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-222-pannalal-bhansali-versus-bharti-telecom-limited-ors-525896
-
-[Read on Telegram](https://t.me/livelawindia/106593)
-
----
-### 2026-03-10T14:27:46+00:00
-Supreme Court Rejects UAPA Undertrial's Plea Questioning 21-Hour Confinement A Day In Prison Cell
-https://www.livelaw.in/top-stories/supreme-court-uapa-accused-vijith-vijayan-plea-against-21-hours-per-day-confinement-kerala-high-security-prison-cell-rule-238-dismissed-525903
-
-[Read on Telegram](https://t.me/livelawindia/106594)
-
----
-### 2026-03-10T14:33:16+00:00
-FUN -IN- LAW By Raju Moray
-https://www.livelaw.in/book-reviews/fun-in-law-raju-moray-525865
-
-[Read on Telegram](https://t.me/livelawindia/106595)
-
----
-### 2026-03-10T14:37:36+00:00
-[Maharashtra Co-Op Societies Act] 50% Deposit Mandatory Even If Revision Challenges Only Consequential Recovery Steps: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-deposit-recoverable-dues-section154-maharashtra-co-operative-societies-act-525777
-
-[Read on Telegram](https://t.me/livelawindia/106596)
-
----
-### 2026-03-10T15:02:38+00:00
-Special Court Under PC Act Is Also Designated Court Under PMLA: Madras High Court Transfers Money Laundering Case To CBI Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-scheduled-offence-trial-in-special-court-taking-cognisance-pmla-case-525905
-
-[Read on Telegram](https://t.me/livelawindia/106597)
-
----
-### 2026-03-10T15:05:38+00:00
-Mere Roadshow By Star Campaigner On Polling Day Not 'Undue Influence': Bombay High Court Upholds Election Of Shinde Sena Leader
-https://www.livelaw.in/high-court/bombay-high-court/elections-road-show-on-polling-day-not-undue-influence-eknath-shinde-model-code-of-conduct-525907
-
-[Read on Telegram](https://t.me/livelawindia/106598)
-
----
-### 2026-03-10T15:08:18+00:00
-Courts Will Become Forums For Personal Vendetta If Every Broken Relationship Is Criminalised: Karnataka High Court Quashes FIR
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-broken-relationship-criminalised-livein-relationship-525908
-
-[Read on Telegram](https://t.me/livelawindia/106599)
-
----
-### 2026-03-10T15:30:45+00:00
-KKV Was Silent When Majoritarianism Grew During His Tenure As AG: Subhashini Ali
-https://www.livelaw.in/top-stories/kkv-was-silent-when-majoritarianism-grew-during-his-tenure-as-ag-subhashini-ali-525910
-
-[Read on Telegram](https://t.me/livelawindia/106600)
-
----
-### 2026-03-10T15:37:05+00:00
-Plaintiff Approaching Court With Unclean Hands Not Entitled To Specific Performance: Supreme Court
-https://www.livelaw.in/supreme-court/plaintiff-approaching-court-with-unclean-hands-not-entitled-to-specific-performance-supreme-court-525912
-
-[Read on Telegram](https://t.me/livelawindia/106601)
-
----
-### 2026-03-10T15:38:25+00:00
-2026 LiveLaw (SC) 223 |MUDDAM RAJU YADAV VERSUS B. RAJA SHANKER (D) THROUGH LRS. & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-223-muddam-raju-yadav-versus-b-raja-shanker-d-through-lrs-ors-525913
-
-[Read on Telegram](https://t.me/livelawindia/106602)
-
----
-### 2026-03-10T16:35:00+00:00
-Courts Not Bound To Mechanically Direct FIRs U/S 173(4) BNSS Merely Because Victim Belongs To SC/ST Community: Allahabad HC
-https://www.livelaw.in/high-court/allahabad-high-court/allhabad-hc-mechanically-firs-1734-bnss-victim-sc-st-community-525915
-
-[Read on Telegram](https://t.me/livelawindia/106603)
-
----
 ### 2026-03-10T17:12:30+00:00
 Supreme Court Daily Round-Up : March 10, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-march-10-2026-525911
@@ -142,5 +16,131 @@ Competition Law As Backbone Of Market Economy: CCI Chairperson Ravneet Kaur Addr
 https://www.livelaw.in/lawschool/news/competition-law-backbone-market-economy-cci-chairperson-ravneet-kaur-addresses-workshop-dsnlu-525921
 
 [Read on Telegram](https://t.me/livelawindia/106605)
+
+---
+### 2026-03-11T03:07:50+00:00
+Natural Justice Violated: Punjab & Haryana High Court Sets Aside Expulsion Of MBBS Student In Exam Scam Case
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-sets-aside-expulsion-of-mbbs-student-over-exam-scam-525919
+
+[Read on Telegram](https://t.me/livelawindia/106606)
+
+---
+### 2026-03-11T03:10:50+00:00
+Deputy Project Manager Vacancy At Indian Institute Of Technology, Kanpur
+https://www.livelaw.in/job-updates/deputy-project-manager-vacancy-at-indian-institute-of-technology-kanpur-525923
+
+[Read on Telegram](https://t.me/livelawindia/106607)
+
+---
+### 2026-03-11T03:12:10+00:00
+Secretary Vacancy At Mormugao Port Authority
+https://www.livelaw.in/job-updates/secretary-vacancy-at-mormugao-port-authority-525924
+
+[Read on Telegram](https://t.me/livelawindia/106608)
+
+---
+### 2026-03-11T03:13:10+00:00
+Legal Assistant Vacancy At Veer Narmad South Gujarat University
+https://www.livelaw.in/job-updates/legal-assistant-vacancy-at-veer-narmad-south-gujarat-university-525925
+
+[Read on Telegram](https://t.me/livelawindia/106609)
+
+---
+### 2026-03-11T03:14:30+00:00
+Deputy General Manager Vacancy At National Health Mission (NHM), Uttar Pradesh
+https://www.livelaw.in/job-updates/deputy-general-manager-vacancy-at-national-health-mission-nhm-uttar-pradesh-525926
+
+[Read on Telegram](https://t.me/livelawindia/106610)
+
+---
+### 2026-03-11T03:33:20+00:00
+Technology Must Facilitate Access To Justice: Gujarat High Court Allows NRI Husband To Join Conciliation Via VC
+https://www.livelaw.in/high-court/gujarat-high-court/nri-husband-mutual-divorce-participate-conciliation-via-vc-525906
+
+[Read on Telegram](https://t.me/livelawindia/106611)
+
+---
+### 2026-03-11T04:02:20+00:00
+Rape On The Pretext Of Marriage - Section 69 Of Bharatiya Nyaya Sanhita, 2023 : A Provision Built To Be Abused
+https://www.livelaw.in/lawschool/articles/rape-marriage-section69-bharatiya-nyaya-sanhita2023-525866
+
+[Read on Telegram](https://t.me/livelawindia/106612)
+
+---
+### 2026-03-11T04:02:40+00:00
+Notification Inviting Applications Only For Govt Pleader Can't Be Used To Appoint Public Prosecutor: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/single-notification-rules-separate-offices-government-pleaders-public-prosecutors-525918
+
+[Read on Telegram](https://t.me/livelawindia/106613)
+
+---
+### 2026-03-11T04:32:50+00:00
+Claim That Daughter Falsely Accused Father Of Rape Over Discontinuation Of Studies 'Far-Fetched': Bombay High Court Upholds POCSO Conviction
+https://www.livelaw.in/high-court/bombay-high-court/girl-wont-accuse-father-of-rape-over-discontinuation-of-studies-525917
+
+[Read on Telegram](https://t.me/livelawindia/106614)
+
+---
+### 2026-03-11T04:59:53+00:00
+NCLAT Order Not Invalid Merely Because Bench Had Majority Technical Members : Supreme Court
+https://www.livelaw.in/supreme-court/nclat-order-not-invalid-merely-because-bench-had-majority-technical-members-supreme-court-525937
+
+[Read on Telegram](https://t.me/livelawindia/106615)
+
+---
+### 2026-03-11T05:02:53+00:00
+'Such Cases Should Never Reach Court': Bombay HC Criticises Railways For Making Family Of Deceased Employee Litigate For Compensation
+https://www.livelaw.in/high-court/bombay-high-court/railway-employees-death-in-train-accident-compensation-issue-never-land-in-court-525920
+
+[Read on Telegram](https://t.me/livelawindia/106616)
+
+---
+### 2026-03-11T05:12:13+00:00
+Landowner's Right To Seek Reference Cannot Be Denied On Grounds Of Limitation When Compensation Not Paid: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-landowners-right-to-seek-reference-cannot-be-denied-on-limitation-grounds-when-compensation-was-never-paid-525922
+
+[Read on Telegram](https://t.me/livelawindia/106617)
+
+---
+### 2026-03-11T05:25:33+00:00
+BREAKING | Supreme Court Allows First Passive Euthanasia, Permits Withdrawal Of Life Support For Man In Vegetative State
+https://www.livelaw.in/top-stories/supreme-court-allows-first-passive-euthanasia-permits-withdrawal-of-life-support-for-man-in-vegetative-state-525943
+
+[Read on Telegram](https://t.me/livelawindia/106618)
+
+---
+### 2026-03-11T06:06:48+00:00
+Co-Operative Society's Multi-State Status Depends On Objectives, Not Spread Of Members Across States: Supreme Court
+https://www.livelaw.in/supreme-court/co-operative-societys-multi-state-status-depends-on-objectives-not-spread-of-members-across-states-supreme-court-525947
+
+[Read on Telegram](https://t.me/livelawindia/106619)
+
+---
+### 2026-03-11T06:08:08+00:00
+2026 LiveLaw (SC) 224 | REGISTRAR CANE COOPERATIVE SOCIETIES & ORS. VERSUS GURDEEP SINGH NARVAL (DEAD) THROUGH LRS. & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-224-registrar-cane-cooperative-societies-ors-versus-gurdeep-singh-narval-dead-through-lrs-ors-525948
+
+[Read on Telegram](https://t.me/livelawindia/106620)
+
+---
+### 2026-03-11T06:14:49+00:00
+NCDRC Holds Axis Bank Liable For Refusing Demonetised Cash Deposit In KYC-Compliant Account, Orders ₹3.19 Crore Compensation
+https://www.livelaw.in/consumer-cases/ncdrc-holds-axis-bank-liable-for-refusing-demonetised-cash-deposit-in-kyc-compliant-account-orders-319-crore-compensation-525951
+
+[Read on Telegram](https://t.me/livelawindia/106621)
+
+---
+### 2026-03-11T06:47:49+00:00
+Redisplaying Of Defamatory Content Can Attract Offence U/S 499, 500 IPC: Kerala High Court Refuses To Quash Case Against Magazine Editors
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-defamation-redisplaying-offence-525944
+
+[Read on Telegram](https://t.me/livelawindia/106622)
+
+---
+### 2026-03-11T06:54:09+00:00
+Kerala High Court Quashes Obscenity FIR Against Actor Shwetha Menon, Says Complaint Filed To 'Tarnish' Her Reputation
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-shwetha-menon-obscenity-fir-quashed-525955
+
+[Read on Telegram](https://t.me/livelawindia/106623)
 
 ---
