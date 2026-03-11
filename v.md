@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-10T16:02:53+00:00*
+*Last Updated: 2026-03-11T07:02:56+00:00*
+
+---
+
+### 2026-03-11T07:02:56+00:00
+Breaking: Supreme Court Directs Union And State To Disassociate From Authors Of NCERT's  "Judicial Corruption" Chapter
+https://www.verdictum.in/court-updates/supreme-court/directs-union-and-state-to-disassociate-from-authors-of-ncert-judicial-corruption-chapter-1609655
+
+[Source Link](https://t.me/verdictumlegalupdates/25851)
+
+---
+
+### 2026-03-11T06:32:54+00:00
+Complete Vesting Of Trust Property In State Without Safeguards Manifestly Arbitrary: Supreme Court Strikes Down Bihar Law On Century-Old Sinha Library
+https://www.verdictum.in/court-updates/supreme-court/anurag-krishna-sinha-v-state-of-bihar-2026-insc-219-sachchidanand-sinha-library-requisition-management-act-2015-1609648
+
+[Source Link](https://t.me/verdictumlegalupdates/25850)
+
+---
+
+### 2026-03-11T05:52:33+00:00
+Breaking: Supreme Court Allows Passive Euthanasia for Man in Vegetative State for 13 Years; Applies 'Best Interest Principle'
+https://www.verdictum.in/court-updates/supreme-court/passive-euthanasia-for-man-in-vegetative-state-for-13-years-says-decision-is-not-death-1609645
+
+[Source Link](https://t.me/verdictumlegalupdates/25849)
+
+---
+
+### 2026-03-11T05:32:32+00:00
+Non-Examination Of Persons In FIR Cannot Raise Presumption That Their Testimony Is Adverse To Prosecution Or Favours Defence: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/basheer-ahmad-others-v-state-of-uttar-pradesh-2026ahc-lko16932-db-1609641
+
+[Source Link](https://t.me/verdictumlegalupdates/25848)
+
+---
+
+### 2026-03-11T05:02:51+00:00
+"Use Of A Mark" Not Limited To Direct Sales: Bombay High Court Directs Removal Of ‘C21’ Trademarks Registered By Century 21 Town Planners
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/century-21-real-estates-llc-v-century-21-town-planners-pvt-ltd-2026bhc-os6096-trademarks-registered-use-of-a-mark-1609637
+
+[Source Link](https://t.me/verdictumlegalupdates/25847)
+
+---
+
+### 2026-03-11T04:32:39+00:00
+Police Cannot Investigate Matter Of Juvenile In Case Of Petty Offence: Karnataka High Court Directs Case Transfers To Juvenile Police Unit
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/raghavendra-hm-v-state-of-karnataka-2026khc6025-police-jurisdiction-juvenile-petty-offence-1609615
+
+[Source Link](https://t.me/verdictumlegalupdates/25846)
 
 ---
 
@@ -113,54 +161,6 @@ Let People From Other Parts Be Familiarised With Culture: Supreme Court Dismisse
 https://www.verdictum.in/court-updates/supreme-court/let-people-from-other-parts-be-familiarised-with-culture-supreme-court-dismisses-plea-challenging-kambala-outside-two-districts-of-karnataka-1609592
 
 [Source Link](https://t.me/verdictumlegalupdates/25832)
-
----
-
-### 2026-03-10T09:03:06+00:00
-"In Our Over-Anxiety for Reforms, We May End Up Depriving Them": Supreme Court Questions Potential Legal Vacuum While Hearing Plea For Rights Of Muslim Women In Inheritance
-https://www.verdictum.in/court-updates/supreme-court/questions-potential-legal-vacuum-hearing-plea-rights-muslim-women-in-inheritance-1609591
-
-[Source Link](https://t.me/verdictumlegalupdates/25831)
-
----
-
-### 2026-03-10T08:32:45+00:00
-Cosmetics Imported Without CDSCO Licence May Be ‘Prohibited Goods’: Bombay High Court Refuses Re-Export of DRI Seized Consignments
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/glamstone-cosmetics-pvt-v-the-union-of-india-2026bhc-as11564-db-cosmetics-cdsco-license-dri-uae-1609590
-
-[Source Link](https://t.me/verdictumlegalupdates/25830)
-
----
-
-### 2026-03-10T08:02:44+00:00
-Order 41 Rule 27 CPC| Additional Evidence Cannot Be Allowed To Fill Lacunae In Appeal: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/gobind-singh-v-union-of-india-2026-insc-211-order-41-rule-27-cpc-additional-evidence-in-appeal-1609581
-
-[Source Link](https://t.me/verdictumlegalupdates/25829)
-
----
-
-### 2026-03-10T07:32:42+00:00
-Breaking: Supreme Court Orders High Court To Form Appellate Bench To Adjudicate Rejections In West Bengal Voter Revision; Directs ECI To End Technical Hurdles And Fund Judicial Costs
-https://www.verdictum.in/court-updates/supreme-court/orders-special-appellate-bench-west-bengal-voter-revision-directs-eci-end-technical-hurdles-fund-judicial-costs-1609584
-
-[Source Link](https://t.me/verdictumlegalupdates/25828)
-
----
-
-### 2026-03-10T07:03:01+00:00
-Lone Allegation Of Quarrel Can’t By Itself Attract Offence U/S.498A IPC & Dowry Act: Supreme Court Grants Relief To Parents-In-Law
-https://www.verdictum.in/court-updates/supreme-court/a-v-state-of-bihar-2026-insc-212-lone-allegation-quarrel-without-specific-act-section-498a-ipc-dowry-act-1609578
-
-[Source Link](https://t.me/verdictumlegalupdates/25827)
-
----
-
-### 2026-03-10T06:32:40+00:00
-Courts Inundated With Cases Of Far Greater Urgency: Delhi HC Upholds Denial Of Injunction To Novo Nordisk
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/novo-nordisk-as-v-dr-reddys-laboratories-limited-2026dhc1911-db-diabetes-drug-little-man-common-man-patent-judicial-concern-1609573
-
-[Source Link](https://t.me/verdictumlegalupdates/25826)
 
 ---
 
