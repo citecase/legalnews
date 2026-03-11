@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-11T13:32:41+00:00*
+*Last Updated: 2026-03-11T16:02:18+00:00*
+
+---
+
+### 2026-03-11T16:02:18+00:00
+Assistant Professor (Law) Vacancy At Dr. Rajendra Prasad National Law University, Prayagraj
+https://www.verdictum.in/job-updates/dr-rajendra-prasad-national-law-university-1609681
+
+[Source Link](https://t.me/verdictumlegalupdates/25868)
+
+---
+
+### 2026-03-11T15:32:57+00:00
+India Lacks A Structured Redressal Mechanism: Supreme Court Directs Centre To Frame ‘No-Fault’ Compensation Policy For Adverse Events From COVID-19 Vaccine
+https://www.verdictum.in/court-updates/supreme-court/rachana-gangu-v-union-of-india-2026-insc-218-covid-19-vaccination-deaths-no-fault-compensation-policy-1609687
+
+[Source Link](https://t.me/verdictumlegalupdates/25867)
+
+---
+
+### 2026-03-11T15:03:15+00:00
+Deeming Fiction Under Multi-State Cooperative Societies Act Cannot Override Statutory Scheme Of Reorganisation Act: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/registrar-cane-cooperative-societies-ors-v-gurdeep-singh-narval-dead-through-lrs-ors-2026-insc-216-1609686
+
+[Source Link](https://t.me/verdictumlegalupdates/25866)
+
+---
+
+### 2026-03-11T14:33:24+00:00
+Competent Person Has Fundamental Right To Refuse Medical Treatment: Apex Court Clarifies While Allowing First Passive Euthanasia
+https://www.verdictum.in/court-updates/supreme-court/2026-insc-222-harish-rana-v-union-of-india-1609685
+
+[Source Link](https://t.me/verdictumlegalupdates/25865)
+
+---
+
+### 2026-03-11T14:02:23+00:00
+PMLA | Quantification Of Proceeds Of Crime Not Required For Arrest; ‘Reason To Believe’ Based On Material Sufficient: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/y-shiva-reddy-v-directorate-of-enforcement-2026bhc-as11569-db-pmla-1609684
+
+[Source Link](https://t.me/verdictumlegalupdates/25864)
 
 ---
 
@@ -121,46 +161,6 @@ Breaking: Supreme Court Allows Passive Euthanasia for Man in Vegetative State fo
 https://www.verdictum.in/court-updates/supreme-court/passive-euthanasia-for-man-in-vegetative-state-for-13-years-says-decision-is-not-death-1609645
 
 [Source Link](https://t.me/verdictumlegalupdates/25849)
-
----
-
-### 2026-03-11T05:32:32+00:00
-Non-Examination Of Persons In FIR Cannot Raise Presumption That Their Testimony Is Adverse To Prosecution Or Favours Defence: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/basheer-ahmad-others-v-state-of-uttar-pradesh-2026ahc-lko16932-db-1609641
-
-[Source Link](https://t.me/verdictumlegalupdates/25848)
-
----
-
-### 2026-03-11T05:02:51+00:00
-"Use Of A Mark" Not Limited To Direct Sales: Bombay High Court Directs Removal Of ‘C21’ Trademarks Registered By Century 21 Town Planners
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/century-21-real-estates-llc-v-century-21-town-planners-pvt-ltd-2026bhc-os6096-trademarks-registered-use-of-a-mark-1609637
-
-[Source Link](https://t.me/verdictumlegalupdates/25847)
-
----
-
-### 2026-03-11T04:32:39+00:00
-Police Cannot Investigate Matter Of Juvenile In Case Of Petty Offence: Karnataka High Court Directs Case Transfers To Juvenile Police Unit
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/raghavendra-hm-v-state-of-karnataka-2026khc6025-police-jurisdiction-juvenile-petty-offence-1609615
-
-[Source Link](https://t.me/verdictumlegalupdates/25846)
-
----
-
-### 2026-03-10T16:02:53+00:00
-Mumbai Metropolitan Region Development Authority (MMRDA) Invites Applications For The Post Of Assistant Law Officers
-https://www.verdictum.in/job-updates/mumbai-metropolitan-region-development-authority-1609614
-
-[Source Link](https://t.me/verdictumlegalupdates/25845)
-
----
-
-### 2026-03-10T15:33:12+00:00
-Drawer Has No Control Over Bank Account In A Case Debit Freezement: Karnataka High Court Quashes Cheque Dishonour Complaint Proceedings
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/ms-nd-developers-private-ltd-v-ritesh-raushan-drawer-dishonour-cheque-account-debit-frozen-1609613
-
-[Source Link](https://t.me/verdictumlegalupdates/25844)
 
 ---
 
