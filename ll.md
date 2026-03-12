@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-12T09:44:49+00:00*
+*Last Updated: 2026-03-12T14:19:33+00:00*
 
 ---
 
-### 2026-03-12T09:44:49+00:00
-MNLU Nagpur To Host Two-Day National Conference On Four Decades of NDPS Act (April 10–11, 2026)
-https://www.livelaw.in/lawschool/news/mnlu-nagpur-to-host-two-day-national-conference-on-four-decades-of-ndps-act-april-1011-2026-526148
+### 2026-03-12T14:19:33+00:00
+Supreme Court Closes 40-Yr Old MC Mehta Case; Registers Suo Motu Case On NCR Air Quality Issue
+https://www.livelaw.in/top-stories/supreme-court-mc-mehta-case-air-quality-delhi-ncr-formally-closed-suo-motu-case-registered-applications-to-be-registered-as-writ-petitions-526196
 
-[Read on Telegram](https://t.me/livelawindia/106723)
-
----
-### 2026-03-12T09:46:49+00:00
-PIL Moved Before Kerala High Court To Quash Padma Bhushan Awarded To Vellappally Natesan
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-pil-padmabhushan-vellappally-natesan-526150
-
-[Read on Telegram](https://t.me/livelawindia/106724)
+[Read on Telegram](https://t.me/livelawindia/106750)
 
 ---
-### 2026-03-12T10:03:20+00:00
-Ramaiah College of Law To Host Ramaiah International Moot & ADR Conference (RIMAC 2026) On March 22
-https://www.livelaw.in/lawschool/news/ramaiah-college-of-law-to-host-ramaiah-international-moot-adr-conference-rimac-2026-on-march-22-526155
+### 2026-03-12T14:30:13+00:00
+When Does A Landowner Become A “Promoter”? Re-Examining The Debate After Supreme Court's Unishire Homes LLP Decision
+https://www.livelaw.in/law-firms/law-firm-articles-/landowner-become-promoter-re-examining-debate-after-supreme-courts-unishire-homes-llp-decision-526198
 
-[Read on Telegram](https://t.me/livelawindia/106725)
-
----
-### 2026-03-12T10:06:00+00:00
-Can't Presume Husband & Wife Are Always Together, Last Seen Theory Must Be Proved: Madras HC Acquits Wife Convicted Of Husband's Murder
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-husband-and-wife-not-always-seen-together-acquitted-526157
-
-[Read on Telegram](https://t.me/livelawindia/106726)
+[Read on Telegram](https://t.me/livelawindia/106751)
 
 ---
-### 2026-03-12T10:09:40+00:00
-Sidhu Moosewala Murder Case : Supreme Court Grants Bail To Pawan Kumar Bishnoi, Jagtar Singh
-https://www.livelaw.in/top-stories/supreme-court-punjabi-singer-sidhu-moosewala-murder-bail-granted-to-pawan-bishnoi-jagtar-singh-526158
+### 2026-03-12T14:43:23+00:00
+Kochhar & Co. Advises Phoenix Robotix (Datoms) On Their Series A Funding
+https://www.livelaw.in/law-firms/deals/kochhar-co-advises-phoenix-robotix-datoms-on-their-series-a-funding-526199
 
-[Read on Telegram](https://t.me/livelawindia/106727)
-
----
-### 2026-03-12T10:09:50+00:00
-After Advocates' Association Request, Kerala High Court Drops Proposal To Reopen 'Media Room' In Its Premises
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-khcaa-advocates-association-media-room-media-briefings-526159
-
-[Read on Telegram](https://t.me/livelawindia/106728)
+[Read on Telegram](https://t.me/livelawindia/106752)
 
 ---
-### 2026-03-12T10:23:00+00:00
-Municipal Authority Cannot Ignore Subsisting Civil Court Decree Merely Because Appeal Is Pending: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-municipal-authority-noc-civil-court-decree-526137
+### 2026-03-12T15:07:47+00:00
+Power Company Can't Claim Negligence By Deceased Who Died After Coming In Contact With Hanging Live Wire: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-power-company-loose-hanging-live-wire-deceased-526182
 
-[Read on Telegram](https://t.me/livelawindia/106729)
-
----
-### 2026-03-12T10:33:20+00:00
-Application For Compassionate Appointment & Acquisition Of Eligibility Must Be Within One Year Of Employee's Death Under J&K Rules: High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-application-for-compassionate-appointment-and-acquisition-of-eligibility-must-both-occur-within-one-year-of-employees-death-under-jk-compassionate-appointment-rules-1994-526071
-
-[Read on Telegram](https://t.me/livelawindia/106730)
+[Read on Telegram](https://t.me/livelawindia/106753)
 
 ---
-### 2026-03-12T10:43:00+00:00
-Blood Donation Ban On Gays, Transgender Persons & Sex Workers Retained After Review : Centre Tells Supreme Court
-https://www.livelaw.in/top-stories/blood-donation-ban-on-gays-transgender-persons-sex-workers-retained-after-review-centre-tells-supreme-court-526163
+### 2026-03-12T15:07:57+00:00
+From Aruna Shanbaug To Harish Rana: How India's Passive Euthanasia Law Evolved
+https://www.livelaw.in/top-stories/passive-euthanasia-legalised-harish-rana-aruna-shanbaug-cases-526200
 
-[Read on Telegram](https://t.me/livelawindia/106731)
-
----
-### 2026-03-12T10:55:14+00:00
-'Will Blanket Ban On Meetings Not Infringe Article 19?': Delhi High Court Issues Notice To DU, Delhi Police On Campus Protest Prohibition
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-ban-on-public-meetings-university-police-526165
-
-[Read on Telegram](https://t.me/livelawindia/106732)
+[Read on Telegram](https://t.me/livelawindia/106754)
 
 ---
-### 2026-03-12T11:22:30+00:00
-Failure To Examine Forensic Experts Whose Reports Are Relied Upon Vitiates Trial: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-summon-examine-forensic-experts-526138
+### 2026-03-12T15:08:17+00:00
+Fee Fixation Panel Should Interfere Only When Fee Shocks Conscience; Cannot Micromanage Every Private School: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-kashmir-high-court-fee-fixation-private-school-526110
 
-[Read on Telegram](https://t.me/livelawindia/106733)
-
----
-### 2026-03-12T12:27:44+00:00
-'Can ED Add Predicate Offences From Different FIRs Through Addendums In ECIR?' Karnataka HC Asks In Money Laundering Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-ed-predicate-offences-transactions-ecir-526175
-
-[Read on Telegram](https://t.me/livelawindia/106734)
+[Read on Telegram](https://t.me/livelawindia/106755)
 
 ---
-### 2026-03-12T12:38:44+00:00
-'Mere Delay In Trial Cannot Be Used As Grounds For Bail': Jharkhand High Court Refuses Bail To UAPA Accused
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-trial-delay-grant-bail-ground-uapa-accused-526180
+### 2026-03-12T15:14:37+00:00
+'For Protecting Devotees' Sentiments, They Attempted To Give Away God': Madras HC On State Giving Sand Dunes To School In Exchange For Temple Land
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-sand-dune-in-exchange-of-temple-land-criticised-526201
 
-[Read on Telegram](https://t.me/livelawindia/106735)
-
----
-### 2026-03-12T12:39:24+00:00
-Police Recruitment Can Be Denied To Person Acquitted In Heinous Crime Only On Benefit Of Doubt : Supreme Court
-https://www.livelaw.in/supreme-court/police-recruitment-can-be-denied-to-person-acquitted-in-heinous-crime-only-on-benefit-of-doubt-supreme-court-526181
-
-[Read on Telegram](https://t.me/livelawindia/106736)
+[Read on Telegram](https://t.me/livelawindia/106756)
 
 ---
-### 2026-03-12T12:40:24+00:00
-2026 LiveLaw (SC) 233 | THE STATE OF MADHYA PRADESH & ORS. VERSUS RAJKUMAR YADAV
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-233-the-state-of-madhya-pradesh-ors-versus-rajkumar-yadav-526183
+### 2026-03-12T15:17:57+00:00
+Arbitration | Belated Jurisdictional Challenge Impermissible After Active Participation In Arbitration Proceedings: Supreme Court
+https://www.livelaw.in/supreme-court/arbitration-belated-jurisdictional-challenge-impermissible-after-active-participation-in-arbitration-proceedings-supreme-court-526206
 
-[Read on Telegram](https://t.me/livelawindia/106737)
-
----
-### 2026-03-12T12:45:04+00:00
-Supreme Court Closes Contempt Proceedings Against Telengana Speaker As All Disqualification Petitions Decided
-https://www.livelaw.in/top-stories/supreme-court-closes-contempt-proceedings-against-telengana-speaker-as-all-disqualification-petitions-decided-526185
-
-[Read on Telegram](https://t.me/livelawindia/106738)
+[Read on Telegram](https://t.me/livelawindia/106757)
 
 ---
-### 2026-03-12T12:49:44+00:00
-Supreme Court Issues Notice On PIL Seeking Ban On Animal Sacrifices For Religious Rituals
-https://www.livelaw.in/top-stories/supreme-court-issues-notice-on-pil-seeking-ban-on-killing-of-animals-in-the-name-of-religion-animal-sacrifice-temple-hindu-rituals-526187
+### 2026-03-12T15:18:57+00:00
+2026 LiveLaw (SC) 235 | MUNICIPAL CORPORATION OF GREATER MUMBAI VERSUS M/S R.V. ANDERSON ASSOCIATES LIMITED
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-235-municipal-corporation-of-greater-mumbai-versus-ms-rv-anderson-associates-limited-526207
 
-[Read on Telegram](https://t.me/livelawindia/106739)
-
----
-### 2026-03-12T12:57:24+00:00
-Patna High Court Seeks State's Response On Permitting Settlement Of Traffic Challans In Lok Adalats
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-state-response-settlement-traffic-challans-lok-adalats-526176
-
-[Read on Telegram](https://t.me/livelawindia/106740)
+[Read on Telegram](https://t.me/livelawindia/106758)
 
 ---
-### 2026-03-12T13:05:24+00:00
-Senior Advocate Kirti Uppal Raises Concerns Over Arvind Kejriwal's Letter Seeking Transfer Of Excise Policy Case From Sitting Judge
-https://www.livelaw.in/high-court/delhi-high-court/senior-advocate-kirti-uppal-raises-concerns-over-arvind-kejriwals-letter-seeking-transfer-of-excise-policy-case-from-sitting-judge-526189
+### 2026-03-12T15:23:57+00:00
+Pujari Does Not Qualify As 'Workman', Temple Trust Not Industry Under Industrial Disputes Act: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-temple-pujari-priest-workman-industrial-disputes-act-526210
 
-[Read on Telegram](https://t.me/livelawindia/106741)
+[Read on Telegram](https://t.me/livelawindia/106759)
 
 ---
-### 2026-03-12T13:11:44+00:00
-Collegium of CM, LoP & Minister To Select DGP Not Workable, Says Supreme Court
-https://www.livelaw.in/top-stories/collegium-of-cm-lop-minister-to-select-dgp-not-workable-says-supreme-court-526190
+### 2026-03-12T15:42:37+00:00
+Interim Maintenance Under Section 125 CrPC Must Ordinarily Be Granted From Date Of Application: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/interim-maintenance-under-section-125-crpc-must-ordinarily-be-granted-from-date-of-application-delhi-high-court-526184
 
-[Read on Telegram](https://t.me/livelawindia/106742)
+[Read on Telegram](https://t.me/livelawindia/106760)
+
+---
+### 2026-03-12T15:42:47+00:00
+Dancing In Pub Or Wearing Revealing Clothes Doesn't Make Woman 'Bad': Karnataka High Court In Dowry Case
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-pub-dancing-wearing-revealing-clothes-dowry-case-526202
+
+[Read on Telegram](https://t.me/livelawindia/106761)
+
+---
+### 2026-03-12T15:47:37+00:00
+P&H High Court Flags Poor Nutrition Of Dogs In Chandigarh's Prevention Of Cruelty To Animals Society, Orders Local Commissioner To Monitor
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-flags-poor-nutrition-to-dogs-in-chandigarhs-prevention-of-cruelty-to-animals-society-orders-local-commissioner-to-monitor-526209
+
+[Read on Telegram](https://t.me/livelawindia/106762)
+
+---
+### 2026-03-12T16:02:27+00:00
+P&H High Court Suspends Sentence Of 73-Year-Old Convicted Under PMLA, Orders Plantation Of 20 Saplings
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-suspends-sentence-of-73-year-old-convicted-under-pmla-orders-plantation-of-20-saplings-526204
+
+[Read on Telegram](https://t.me/livelawindia/106763)
+
+---
+### 2026-03-12T16:13:07+00:00
+Bombay High Court Restrains Legends League Cricket From Playing PPL's Copyright Songs For This Year's Tournament
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-restrains-legends-league-cricket-from-playing-ppls-copyright-songs-for-this-years-tournament-526205
+
+[Read on Telegram](https://t.me/livelawindia/106764)
+
+---
+### 2026-03-12T16:24:27+00:00
+Justice Through Art: Nyaay Kala Exhibition To Reimagine Landmark Judgements At Nyaay Sabha 2026
+https://www.livelaw.in/events/justice-through-art-nyaay-kala-exhibition-to-reimagine-landmark-judgements-at-nyaay-sabha-2026-526214
+
+[Read on Telegram](https://t.me/livelawindia/106765)
+
+---
+### 2026-03-12T16:33:07+00:00
+MP State Legal Services Authority Marks International Women's Day With Online Interaction For Women Judicial Officers
+https://www.livelaw.in/news-updates/mp-state-legal-services-authority-marks-international-womens-day-online-interaction-women-judicial-officers-526215
+
+[Read on Telegram](https://t.me/livelawindia/106766)
+
+---
+### 2026-03-12T16:38:07+00:00
+Supreme Court Daily Round-Up : March 12, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-march-12-2026-526203
+
+[Read on Telegram](https://t.me/livelawindia/106767)
+
+---
+### 2026-03-12T17:19:37+00:00
+Call For Papers: International Labour Law Conference On New Labour Codes In India By MNLU Mumbai [April 6; Hybrid Mode]
+https://www.livelaw.in/lawschool/call-for-papers/international-labour-law-conference-new-labour-codes-india-mnlu-mumbai-526217
+
+[Read on Telegram](https://t.me/livelawindia/106768)
+
+---
+### 2026-03-12T17:43:42+00:00
+Srinagar Court Issues Non-Bailable Warrant Against Farooq Abdullah In JKCA Misappropriation Case
+https://www.livelaw.in/news-updates/srinagar-court-issues-non-bailable-warrant-against-farooq-abdullah-in-jkca-misappropriation-case-526218
+
+[Read on Telegram](https://t.me/livelawindia/106769)
 
 ---
