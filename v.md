@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-12T13:32:51+00:00*
+*Last Updated: 2026-03-12T16:02:08+00:00*
+
+---
+
+### 2026-03-12T16:02:08+00:00
+Dy Manager (Legal) Vacancy At Sahakar Taxi Cooperative Limited (STCL)
+https://www.verdictum.in/job-updates/sahakar-taxi-cooperative-limited-stcl-1609766
+
+[Source Link](https://t.me/verdictumlegalupdates/25892)
+
+---
+
+### 2026-03-12T15:32:26+00:00
+Failure To Summon Scientific Experts Before Relying On CA & DNA Reports Vitiates Trial: Bombay High Court Refuses To Confirm Death Sentence; Remands Case To Trial Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/tejas-dada-mahipati-dalvi-v-state-of-maharashtra-neutral-citation-2026bhc-as11660-db-1609776
+
+[Source Link](https://t.me/verdictumlegalupdates/25891)
+
+---
+
+### 2026-03-12T15:02:45+00:00
+District Registrar Has No Power To Adjudicate Civil Rights Of Parties & Cancel Sale Deeds: Madras High Court
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/gurumurthi-v-the-district-registrar-power-adjudicate-civil-rights-parties-sale-deeds-1609774
+
+[Source Link](https://t.me/verdictumlegalupdates/25890)
+
+---
+
+### 2026-03-12T14:32:23+00:00
+Not Initially Named In FIR; No Raid Conducted At Place Of Business: Supreme Court Grants Anticipatory Bail To Vijayawada Businessman In Spurious Liquor Case
+https://www.verdictum.in/court-updates/supreme-court/manoj-kumar-mutta-v-the-state-of-andhra-pradesh-2026-insc-215-not-named-fir-raid-spurious-liquor-1609773
+
+[Source Link](https://t.me/verdictumlegalupdates/25889)
+
+---
+
+### 2026-03-12T14:02:42+00:00
+Specific Performance To Be Denied If Plaintiff's Bonafides Is Even Slightly Doubtful Or Material Facts Are Suppressed: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/muddam-raju-yadav-v-b-raja-shanker-d-2026-insc-214-specific-performance-doubt-bonafides-1609771
+
+[Source Link](https://t.me/verdictumlegalupdates/25888)
 
 ---
 
@@ -121,46 +161,6 @@ Breaking: Supreme Court Grants Bail To JKDFP's Shabir Ahmed Shah In Terror Fundi
 https://www.verdictum.in/court-updates/supreme-court/grants-bail-to-jkdfp-shabir-ahmed-shah-terror-funding-case-1609723
 
 [Source Link](https://t.me/verdictumlegalupdates/25873)
-
----
-
-### 2026-03-12T06:04:41+00:00
-Creamy Layer Cannot Be Determined Solely On Income; Social Status Of Parents Must Also Be Considered In UPSC OBC Claims: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/union-of-india-v-rohith-nathan-2026-insc-230-creamy-layer-obc-upsc-parents-income-social-status-1609722
-
-[Source Link](https://t.me/verdictumlegalupdates/25872)
-
----
-
-### 2026-03-12T05:32:20+00:00
-Delhi High Court Initiates Contempt Action Against Reliance Entertainment Over Dues Linked To ‘Indian Police Force’ Web Series
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/super-cassettes-industries-private-ltd-v-reliance-entertainment-studios-private-ltd-2026dhc1971-indian-police-force-web-series-1609718
-
-[Source Link](https://t.me/verdictumlegalupdates/25871)
-
----
-
-### 2026-03-12T05:02:18+00:00
-State Must Act As Model Employer, Not Hard-Bargaining Negotiator: Supreme Court On Denial Of Regularisation To ‘Academic Arrangement’ Paramedical Staff
-https://www.verdictum.in/court-updates/supreme-court/abhishek-sharma-v-the-state-of-jammu-and-kashmir-2026-insc-220-jk-paramedical-staff-female-nurses-denial-of-regularisation-1609716
-
-[Source Link](https://t.me/verdictumlegalupdates/25870)
-
----
-
-### 2026-03-12T04:32:27+00:00
-Medico-Legal Certificate Alone Not Determinative Of Exact Time Of Accident: Delhi High Court Upholds MACT Compensation Award
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/united-india-insurance-company-limited-v-lakshmi-kumari-ors-2026dhc1946-1609712
-
-[Source Link](https://t.me/verdictumlegalupdates/25869)
-
----
-
-### 2026-03-11T16:02:18+00:00
-Assistant Professor (Law) Vacancy At Dr. Rajendra Prasad National Law University, Prayagraj
-https://www.verdictum.in/job-updates/dr-rajendra-prasad-national-law-university-1609681
-
-[Source Link](https://t.me/verdictumlegalupdates/25868)
 
 ---
 
