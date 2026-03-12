@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-11T16:02:18+00:00*
+*Last Updated: 2026-03-12T07:02:44+00:00*
+
+---
+
+### 2026-03-12T07:02:44+00:00
+Presence Of Accused As Part Of Unlawful Assembly Sufficient For Conviction Even If No Overt Act Is Imputed To Each Individually: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/dablu-etc-v-state-of-madhya-pradesh-2026-insc-224-presence-accused-unlawful-assembly-overt-act-1609729
+
+[Source Link](https://t.me/verdictumlegalupdates/25874)
+
+---
+
+### 2026-03-12T06:12:43+00:00
+Breaking: Supreme Court Grants Bail To JKDFP's Shabir Ahmed Shah In Terror Funding Case
+https://www.verdictum.in/court-updates/supreme-court/grants-bail-to-jkdfp-shabir-ahmed-shah-terror-funding-case-1609723
+
+[Source Link](https://t.me/verdictumlegalupdates/25873)
+
+---
+
+### 2026-03-12T06:04:41+00:00
+Creamy Layer Cannot Be Determined Solely On Income; Social Status Of Parents Must Also Be Considered In UPSC OBC Claims: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/union-of-india-v-rohith-nathan-2026-insc-230-creamy-layer-obc-upsc-parents-income-social-status-1609722
+
+[Source Link](https://t.me/verdictumlegalupdates/25872)
+
+---
+
+### 2026-03-12T05:32:20+00:00
+Delhi High Court Initiates Contempt Action Against Reliance Entertainment Over Dues Linked To ‘Indian Police Force’ Web Series
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/super-cassettes-industries-private-ltd-v-reliance-entertainment-studios-private-ltd-2026dhc1971-indian-police-force-web-series-1609718
+
+[Source Link](https://t.me/verdictumlegalupdates/25871)
+
+---
+
+### 2026-03-12T05:02:18+00:00
+State Must Act As Model Employer, Not Hard-Bargaining Negotiator: Supreme Court On Denial Of Regularisation To ‘Academic Arrangement’ Paramedical Staff
+https://www.verdictum.in/court-updates/supreme-court/abhishek-sharma-v-the-state-of-jammu-and-kashmir-2026-insc-220-jk-paramedical-staff-female-nurses-denial-of-regularisation-1609716
+
+[Source Link](https://t.me/verdictumlegalupdates/25870)
+
+---
+
+### 2026-03-12T04:32:27+00:00
+Medico-Legal Certificate Alone Not Determinative Of Exact Time Of Accident: Delhi High Court Upholds MACT Compensation Award
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/united-india-insurance-company-limited-v-lakshmi-kumari-ors-2026dhc1946-1609712
+
+[Source Link](https://t.me/verdictumlegalupdates/25869)
 
 ---
 
@@ -113,54 +161,6 @@ Law Must Take Course Against Mischief Mongers, No One Will Be Spared: Apex Court
 https://www.verdictum.in/court-updates/supreme-court/asks-union-identify-social-media-platforms-acted-irresponsibly-ncert-corruption-judiciary-1609662
 
 [Source Link](https://t.me/verdictumlegalupdates/25855)
-
----
-
-### 2026-03-11T08:32:59+00:00
-NCLT/NCLAT Benches Need Not Have Majority Of Judicial Members; Technical Members Cannot Be Treated As Inferior Adjudicators: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/pannalal-bhansali-v-bharti-telecom-limited-ors-2026-insc-213-benches-1609661
-
-[Source Link](https://t.me/verdictumlegalupdates/25854)
-
----
-
-### 2026-03-11T08:02:38+00:00
-Section 66 Companies Act | Reduction Of Share Capital Can Be Confirmed Without Valuation Report From Registered Valuer: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/pannalal-bhansali-v-bharti-telecom-limited-ors-2026-insc-213-companies-act-1609659
-
-[Source Link](https://t.me/verdictumlegalupdates/25853)
-
----
-
-### 2026-03-11T07:32:37+00:00
-One Pirator Cannot Sue Another: Bombay High Court Refuses Interim Relief In ‘ELDER’ Trademark Dispute, Imposes ₹1 Lakh Costs
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/elder-projects-limited-v-elder-nutraceuticals-private-limited-2026bhc-os6101-trademark-pirator-cannot-sue-another-elder-1609652
-
-[Source Link](https://t.me/verdictumlegalupdates/25852)
-
----
-
-### 2026-03-11T07:02:56+00:00
-Breaking: Supreme Court Directs Union And State To Disassociate From Authors Of NCERT's  "Judicial Corruption" Chapter
-https://www.verdictum.in/court-updates/supreme-court/directs-union-and-state-to-disassociate-from-authors-of-ncert-judicial-corruption-chapter-1609655
-
-[Source Link](https://t.me/verdictumlegalupdates/25851)
-
----
-
-### 2026-03-11T06:32:54+00:00
-Complete Vesting Of Trust Property In State Without Safeguards Manifestly Arbitrary: Supreme Court Strikes Down Bihar Law On Century-Old Sinha Library
-https://www.verdictum.in/court-updates/supreme-court/anurag-krishna-sinha-v-state-of-bihar-2026-insc-219-sachchidanand-sinha-library-requisition-management-act-2015-1609648
-
-[Source Link](https://t.me/verdictumlegalupdates/25850)
-
----
-
-### 2026-03-11T05:52:33+00:00
-Breaking: Supreme Court Allows Passive Euthanasia for Man in Vegetative State for 13 Years; Applies 'Best Interest Principle'
-https://www.verdictum.in/court-updates/supreme-court/passive-euthanasia-for-man-in-vegetative-state-for-13-years-says-decision-is-not-death-1609645
-
-[Source Link](https://t.me/verdictumlegalupdates/25849)
 
 ---
 
