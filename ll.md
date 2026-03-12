@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-11T12:47:26+00:00*
+*Last Updated: 2026-03-12T05:02:55+00:00*
 
 ---
 
-### 2026-03-11T12:47:26+00:00
-“If Every State Should Have AIIMS, Why None In Kerala Yet?”: Kerala High Court Asks Centre
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-asks-centre-the-criteria-for-prioritising-the-establishment-of-aiims-526028
+### 2026-03-12T05:02:55+00:00
+Section 138 NI Act Not Attracted When Cheque Bounces Due To Subsequent Freezing Of Drawer's Account: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/cheque-bounce-138-ni-act-drawer-bank-account-control-debit-freeze-526090
 
-[Read on Telegram](https://t.me/livelawindia/106658)
-
----
-### 2026-03-11T13:02:06+00:00
-District Judge Appointments : Supreme Court Issues Directions For Reinstatement & Seniority Following 'Rejansih v. Deepa' Judgment
-https://www.livelaw.in/top-stories/district-judge-appointments-supreme-court-issues-directions-for-reinstatement-seniority-following-rejansih-v-deepa-judgment-526031
-
-[Read on Telegram](https://t.me/livelawindia/106659)
+[Read on Telegram](https://t.me/livelawindia/106690)
 
 ---
-### 2026-03-11T13:18:49+00:00
-Prima Facie No Offence U/S 153-A IPC: Allahabad HC Grants Relief To 'The Wire' MD S. Varadarajan In Mosque Demolition Report Case
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-153a-ipc-relief-the-wire-siddharth-varadarajan-mosque-demolition-report-case-526034
+### 2026-03-12T05:04:55+00:00
+Supreme Court Expresses Strong Displeasure At Railways For Not Properly Explaining Investments On Safety
+https://www.livelaw.in/top-stories/supreme-court-union-informs-railway-fencing-to-be-completed-in-3-to-4-years-15000-kms-done-accidents-foot-over-bridges-kavach-system-526094
 
-[Read on Telegram](https://t.me/livelawindia/106660)
-
----
-### 2026-03-11T13:22:29+00:00
-J&K&L High Court Flags 'Marriage Traps' Targeting Young Girls, Seeks Woman IPS Officer To Probe Alleged Predatory Practices
-https://www.livelaw.in/high-court/jammu-kashmir/jkl-high-court-flags-marriage-traps-targeting-young-girls-seeks-woman-ips-officer-to-probe-alleged-predatory-practices-525971
-
-[Read on Telegram](https://t.me/livelawindia/106661)
+[Read on Telegram](https://t.me/livelawindia/106691)
 
 ---
-### 2026-03-11T13:31:29+00:00
-Migration And Asylum Project & NALSAR University Of Law To Host 'Nyaay Sabha 2026' On Access To Justice
-https://www.livelaw.in/events/migration-asylum-project-nalsar-university-law-host-nyaay-sabha-2026-access-justice-526035
+### 2026-03-12T05:17:55+00:00
+Deputy Manager (Legal & Policy) Vacancy At Sahakar Taxi Cooperative Limited
+https://www.livelaw.in/job-updates/deputy-manager-legal-policy-vacancy-at-sahakar-taxi-cooperative-limited-526097
 
-[Read on Telegram](https://t.me/livelawindia/106662)
-
----
-### 2026-03-11T14:01:09+00:00
-Financial Abuse As Invisible Violence Inside Indian Homes
-https://www.livelaw.in/articles/financial-abuse-invisible-violence-indian-homes-526039
-
-[Read on Telegram](https://t.me/livelawindia/106663)
+[Read on Telegram](https://t.me/livelawindia/106692)
 
 ---
-### 2026-03-11T14:02:39+00:00
-'Application By Senior Citizen For Eviction Of Relative Maintainable Even Without Claiming Monetary Maintenance': Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-senior-citizen-seeking-eviction-maintainable-monetary-maintenance-526013
+### 2026-03-12T05:23:15+00:00
+Allahabad HC Orders Protection For Man Allegedly Stopped From Namaz At Home; Says State Will Be Accountable For Any Harm To Him Or His Property
+https://www.livelaw.in/high-court/allahabad-high-court/bareilly-namaz-row-police-protection-state-accountable-for-violence-or-demolition-526098
 
-[Read on Telegram](https://t.me/livelawindia/106664)
-
----
-### 2026-03-11T14:07:19+00:00
-When Can Medical Treatment Be Withdrawn In 'Best Interests Of Patient'? Supreme Court Explains Allowing First Passive Euthanasia
-https://www.livelaw.in/top-stories/when-can-medical-treatment-be-withdrawn-in-best-interests-of-patient-supreme-court-explains-allowing-first-passive-euthanasia-526041
-
-[Read on Telegram](https://t.me/livelawindia/106665)
+[Read on Telegram](https://t.me/livelawindia/106693)
 
 ---
-### 2026-03-11T14:10:40+00:00
-2026 LiveLaw (SC) 229 | Harish Rana v Union of India
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-229-harish-rana-v-union-of-india-526043
+### 2026-03-12T05:29:15+00:00
+Railway Travel Insurance Cannot Be Limited To Online Tickets, Must Be Available To Counter Ticket Passengers Too: Supreme Court
+https://www.livelaw.in/top-stories/railway-travel-insurance-cannot-be-limited-to-online-tickets-must-be-available-to-counter-ticket-passengers-too-supreme-court-526099
 
-[Read on Telegram](https://t.me/livelawindia/106666)
-
----
-### 2026-03-11T14:15:40+00:00
-NLU Odisha Wins 2nd RGNUL National IP Law Moot Court Competition 2026
-https://www.livelaw.in/lawschool/news/nlu-odisha-wins-2nd-rgnul-national-ip-law-moot-court-competition-2026-526044
-
-[Read on Telegram](https://t.me/livelawindia/106667)
+[Read on Telegram](https://t.me/livelawindia/106694)
 
 ---
-### 2026-03-11T14:16:20+00:00
-Overzealous Investigation Fatal To Prosecution; Case Framed On Public Perceptions Ends Up In Mess : Supreme Court
-https://www.livelaw.in/supreme-court/overzealous-investigation-fatal-to-prosecution-case-framed-on-public-perceptions-ends-up-in-mess-supreme-court-526045
+### 2026-03-12T05:30:55+00:00
+2026 LiveLaw (SC) 231 |  Union of India v. Radha Yadav
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-231-union-of-india-v-radha-yadav-526100
 
-[Read on Telegram](https://t.me/livelawindia/106668)
-
----
-### 2026-03-11T14:17:40+00:00
-2026 LiveLaw (SC) 230 | Sanjay Kumar Sharma Versus State of Bihar & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-230-sanjay-kumar-sharma-versus-state-of-bihar-ors-526046
-
-[Read on Telegram](https://t.me/livelawindia/106669)
+[Read on Telegram](https://t.me/livelawindia/106695)
 
 ---
-### 2026-03-11T14:26:20+00:00
-Regional Language Or English Used In Navodaya Schools In Non-Hindi Regions : Centre To Supreme Court On Tamil Nadu Opposition
-https://www.livelaw.in/top-stories/regional-language-or-english-used-in-navodaya-schools-in-non-hindi-regions-centre-to-supreme-court-on-tamil-nadu-opposition-526048
+### 2026-03-12T05:32:15+00:00
+Providing Incorrect Information On Nomination Papers Amounts To Corrupt Practice: MP High Court Sets Aside Election Of Panchayat Member
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-sets-aside-election-result-says-incorrect-information-in-nomination-amounts-to-corrupt-practice-526070
 
-[Read on Telegram](https://t.me/livelawindia/106670)
-
----
-### 2026-03-11T14:27:20+00:00
-Right To Be Considered For Promotion Is Legitimate Expectation; Marriage-Based Transfer Can't Defeat It: Himachal Pradesh High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-promotion-consideration-transfer-marriage-ground-526015
-
-[Read on Telegram](https://t.me/livelawindia/106671)
+[Read on Telegram](https://t.me/livelawindia/106696)
 
 ---
-### 2026-03-11T14:29:00+00:00
-British Citizenship Row | Allahabad High Court Summons Complete Record Of MHA's 2019 Notice To Rahul Gandhi
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-british-citizenship-row-summons-complete-record-of-mha-notice-issued-to-rahul-gandhi-in-2019-526049
+### 2026-03-12T05:54:05+00:00
+Supreme Court Dismisses Lawyer's Plea Seeking Rs 1 Crore Fees For Filing Cases To 'Save' Former CJI Dipak Misra
+https://www.livelaw.in/top-stories/supreme-court-dismisses-lawyers-plea-seeking-rs-1-crore-fees-for-filing-cases-to-save-former-cji-dipak-misra-526102
 
-[Read on Telegram](https://t.me/livelawindia/106672)
-
----
-### 2026-03-11T14:51:20+00:00
-YS Vivekananda Reddy Murder | Supreme Court Dismisses Daughter's Pleas Challenging Bail To Accused & Seeking Further CBI Probe
-https://www.livelaw.in/top-stories/ys-vivekananda-reddy-murder-supreme-court-dismisses-daughters-pleas-challenging-bail-to-accused-seeking-further-cbi-probe-526053
-
-[Read on Telegram](https://t.me/livelawindia/106673)
+[Read on Telegram](https://t.me/livelawindia/106697)
 
 ---
-### 2026-03-11T14:53:10+00:00
-Non-Disclosure Of Minor Criminal Cases Leading To Acquittal Should Not Automatically Lead To Termination: Sikkim High Court
-https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-nondisclosure-minor-criminal-case-candidate-social-background-526051
+### 2026-03-12T06:03:05+00:00
+Rajasthan High Court Quashes Case Against JDA Officer Accused Of Illegal Demolition, Cites Lack Of Sanction
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-quashes-proceedings-jda-officer-unlawful-entry-526076
 
-[Read on Telegram](https://t.me/livelawindia/106674)
-
----
-### 2026-03-11T14:53:40+00:00
-“How Do You Permit 15-Yr-Old To Consume Alcohol?”: Karnataka HC While Staying Proceedings Against Brewery Partner In Minor's Suicide Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-granting-interim-stay-brewery-partner-teen-suicide-case-526054
-
-[Read on Telegram](https://t.me/livelawindia/106675)
+[Read on Telegram](https://t.me/livelawindia/106698)
 
 ---
-### 2026-03-11T15:17:30+00:00
-Registering Authority Cannot Usurp Powers Of Civil Court To Cancel Sale Deed: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-registering-authority-cannot-usurp-power-civil-court-526050
+### 2026-03-12T06:09:05+00:00
+Storing Child Sexual Abuse Material On Mobile Can Attract POCSO & IT Act Offences, Even Without Transmission: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-child-sexual-abuse-material-storage-punishable-section15-pocso-act-526105
 
-[Read on Telegram](https://t.me/livelawindia/106676)
+[Read on Telegram](https://t.me/livelawindia/106699)
 
 ---
-### 2026-03-11T17:02:45+00:00
-Supreme Court Daily Round-Up : March 11, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-march-11-2026-526055
+### 2026-03-12T06:17:05+00:00
+“I'm With Protestors, But Law & Order Should Be Maintained”: Madras High Court Asks Manamadurai Custodial Death Protestors To Vacate NH
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-manamadurai-custodial-death-alternate-location-protests-526107
 
-[Read on Telegram](https://t.me/livelawindia/106677)
+[Read on Telegram](https://t.me/livelawindia/106700)
+
+---
+### 2026-03-12T06:20:25+00:00
+Denying Doctor Permission To Pursue Higher Studies Solely Due To 'Administrative Inconvenience' Not Sustainable: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-relieves-medical-officer-senior-residency-526108
+
+[Read on Telegram](https://t.me/livelawindia/106701)
+
+---
+### 2026-03-12T06:24:25+00:00
+'Approach Law Commission' : Supreme Court On Plea Challenging S.129 TP Act For Exempting Muslim Gifts From Registration
+https://www.livelaw.in/top-stories/approach-law-commission-supreme-court-on-plea-challenging-s129-tp-act-for-exempting-muslim-gifts-from-registration-526109
+
+[Read on Telegram](https://t.me/livelawindia/106702)
+
+---
+### 2026-03-12T06:26:25+00:00
+Supreme Court Grants Bail To Kashmiri Separatist Shabir Ahmed Shah In Terror Funding Case; Notes Delay In Trial
+https://www.livelaw.in/top-stories/supreme-court-kashmiri-separatist-leader-shabir-ahmed-shah-terror-funding-case-bail-granted-delay-prejudice-526111
+
+[Read on Telegram](https://t.me/livelawindia/106703)
+
+---
+### 2026-03-12T06:38:05+00:00
+(hold, modify) Minor Below Minimum Age Prescribed For Applying At Time Of Employee's Death Can't Seek Compassionate Appointment: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-father-death-compassionate-appointment-526084
+
+[Read on Telegram](https://t.me/livelawindia/106704)
+
+---
+### 2026-03-12T06:46:19+00:00
+Major Relief For Rahul Gandhi As Nashik Court Quashes Savarkar Defamation Case
+https://www.livelaw.in/news-updates/rahul-gandhi-savarkar-defamation-case-quashed-complaint-withdrawn-526113
+
+[Read on Telegram](https://t.me/livelawindia/106705)
+
+---
+### 2026-03-12T06:54:19+00:00
+Supreme Court Refuses To Entertain Plea To Bring Netaji Subhash Chandra Bose's Mortal Remains To India
+https://www.livelaw.in/top-stories/supreme-court-refuses-to-entertain-plea-to-bring-netaji-subhash-chandra-boses-mortal-remains-to-india-526114
+
+[Read on Telegram](https://t.me/livelawindia/106706)
+
+---
+### 2026-03-12T06:57:59+00:00
+Lawyer's Role Is To Resolve Disputes, Not 'Loot' Clients: Bombay High Court Refuses To Quash Corruption Abetment Case Against Advocate
+https://www.livelaw.in/high-court/bombay-high-court/advocate-corruption-abetment-noble-profession-not-loot-clients-526115
+
+[Read on Telegram](https://t.me/livelawindia/106707)
+
+---
+### 2026-03-12T06:58:39+00:00
+UPSC Civil Service Exam : Supreme Court Rejects Plea Seeking Additional Attempt For Candidates Who Lost Last Chance Due To Covid
+https://www.livelaw.in/top-stories/supreme-court-upsc-civil-services-exam-plea-for-additional-attempt-last-permissible-attempt-in-covid-19-dismissed-526116
+
+[Read on Telegram](https://t.me/livelawindia/106708)
+
+---
+### 2026-03-12T07:02:19+00:00
+Section 479 BNSS Does Not Mandate Automatic Bail After Expiry Of Statutory Detention Period: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-bnss-section-479-does-not-confer-automatic-right-to-bail-court-retains-discretion-to-continue-detention-even-after-statutory-threshold-526074
+
+[Read on Telegram](https://t.me/livelawindia/106709)
 
 ---
