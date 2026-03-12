@@ -1,6 +1,110 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-12T07:02:44+00:00*
+*Last Updated: 2026-03-12T13:32:51+00:00*
+
+---
+
+### 2026-03-12T13:32:51+00:00
+Municipal Authorities Cannot Treat Decree As Non-Existent Merely Because Appeal Is Pending Without Stay: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/tapi-valley-agro-food-products-company-v-dondaicha-warwade-nagar-parishad-ors-2026bhc-aug9909-db-1609768
+
+[Source Link](https://t.me/verdictumlegalupdates/25887)
+
+---
+
+### 2026-03-12T13:02:49+00:00
+Section 67(2) CGST Act Does Not Authorise Seizure Of Cash During Search: Bombay High Court Quashes ₹1 Crore Seizure By GST Intelligence
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/smurti-waghdhare-v-joint-director-directorate-general-of-gst-intelligence-ors-2026bhc-os6209-db-1609764
+
+[Source Link](https://t.me/verdictumlegalupdates/25886)
+
+---
+
+### 2026-03-12T12:32:28+00:00
+“Totally Misconceived”: Supreme Court Dismisses Plea Seeking One Crore As Fee For Filing Cases To Save Former CJI Dipak Misra
+https://www.verdictum.in/court-updates/supreme-court/totally-misconceived-supreme-court-dismisses-plea-seeking-one-crore-as-fee-for-filing-cases-to-save-former-cji-dipak-misra-1609759
+
+[Source Link](https://t.me/verdictumlegalupdates/25885)
+
+---
+
+### 2026-03-12T12:02:27+00:00
+Supreme Court Issues Notice To MP Police In Plea Seeking Quashing Of FIR Over WhatsApp Message Saying Consuming Beef Was Essential For ‘Good Hindu’
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-issues-notice-to-mp-police-in-plea-seeking-quashing-of-fir-over-whatsapp-message-saying-consuming-beef-was-essential-for-good-hindu-1609757
+
+[Source Link](https://t.me/verdictumlegalupdates/25884)
+
+---
+
+### 2026-03-12T11:32:46+00:00
+Supreme Court Recaptions 40-Year Old M.C. Mehta Case To End Unending Saga Of Pending Applications
+https://www.verdictum.in/court-updates/supreme-court/recaptions-40-year-old-mc-mehta-cases-end-unending-saga-pending-applications-1609758
+
+[Source Link](https://t.me/verdictumlegalupdates/25883)
+
+---
+
+### 2026-03-12T11:02:44+00:00
+Arbitral Award Based On Irrelevant Material Or Ignoring Relevant Evidence Violates Fundamental Principles Of Justice: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/arenel-private-limited-v-aakash-packaging-2026bhc-os6126-db-arbitral-award-1609755
+
+[Source Link](https://t.me/verdictumlegalupdates/25882)
+
+---
+
+### 2026-03-12T10:33:23+00:00
+Courts Must Not Intrude Into Screening Committee’s Discretion In Police Recruitment: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/state-of-madhya-pradesh-v-rajkumar-yadav-2026-insc-225-police-constable-recruitment-screening-judicial-review-1609751
+
+[Source Link](https://t.me/verdictumlegalupdates/25881)
+
+---
+
+### 2026-03-12T10:02:42+00:00
+Party Cannot Keep ‘Jurisdictional Ace’ Up Its Sleeve To Challenge Arbitral Tribunal Later: Supreme Court Dismisses MCGM Appeal
+https://www.verdictum.in/court-updates/supreme-court/municipal-corporation-of-greater-mumbai-v-ms-rv-anderson-associates-limited-2026-insc-228-arbitration-tribunal-challenge-objection-1609750
+
+[Source Link](https://t.me/verdictumlegalupdates/25880)
+
+---
+
+### 2026-03-12T09:32:40+00:00
+Seniority Under TNEB Service Regulations To Be Determined By Merit List At Recruitment, Not From Start Of Probation: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/m-thanigivelu-ors-v-tamil-nadu-electricity-board-ors-2026-insc-229-1609748
+
+[Source Link](https://t.me/verdictumlegalupdates/25879)
+
+---
+
+### 2026-03-12T09:02:39+00:00
+Have Respect For Those Who Sacrificed Lives For Nation: Supreme Court Rebukes Advocate For Challenging Construction Of War Memorial
+https://www.verdictum.in/court-updates/supreme-court/rebukes-advocate-challenging-construction-war-memorial-1609746
+
+[Source Link](https://t.me/verdictumlegalupdates/25878)
+
+---
+
+### 2026-03-12T08:32:28+00:00
+Raiding Party Members In Bribery Trap Cases Not To Be Considered As Interested Witnesses: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/central-bureau-of-investigation-v-baljeet-singh-2026-insc-221-bribery-conspiracy-1609741
+
+[Source Link](https://t.me/verdictumlegalupdates/25877)
+
+---
+
+### 2026-03-12T08:03:07+00:00
+Supreme Court Refuses To Entertain Grand-Nephew’s Plea Seeking Repatriation Of Remains Of Netaji Subhash Chandra Bose
+https://www.verdictum.in/court-updates/supreme-court/grand-nephew-plea-seeking-repatriation-of-remains-of-netaji-subhash-chandra-bose-1609742
+
+[Source Link](https://t.me/verdictumlegalupdates/25876)
+
+---
+
+### 2026-03-12T07:32:25+00:00
+Data Is The Real, True Wealth: Supreme Court Issues Notice In Plea Challenging DPDP Act; Highlights Privacy Concerns
+https://www.verdictum.in/court-updates/supreme-court/issues-notice-plea-challenging-dpdp-act-highlights-privacy-concerns-1609732
+
+[Source Link](https://t.me/verdictumlegalupdates/25875)
 
 ---
 
@@ -57,110 +161,6 @@ Assistant Professor (Law) Vacancy At Dr. Rajendra Prasad National Law University
 https://www.verdictum.in/job-updates/dr-rajendra-prasad-national-law-university-1609681
 
 [Source Link](https://t.me/verdictumlegalupdates/25868)
-
----
-
-### 2026-03-11T15:32:57+00:00
-India Lacks A Structured Redressal Mechanism: Supreme Court Directs Centre To Frame ‘No-Fault’ Compensation Policy For Adverse Events From COVID-19 Vaccine
-https://www.verdictum.in/court-updates/supreme-court/rachana-gangu-v-union-of-india-2026-insc-218-covid-19-vaccination-deaths-no-fault-compensation-policy-1609687
-
-[Source Link](https://t.me/verdictumlegalupdates/25867)
-
----
-
-### 2026-03-11T15:03:15+00:00
-Deeming Fiction Under Multi-State Cooperative Societies Act Cannot Override Statutory Scheme Of Reorganisation Act: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/registrar-cane-cooperative-societies-ors-v-gurdeep-singh-narval-dead-through-lrs-ors-2026-insc-216-1609686
-
-[Source Link](https://t.me/verdictumlegalupdates/25866)
-
----
-
-### 2026-03-11T14:33:24+00:00
-Competent Person Has Fundamental Right To Refuse Medical Treatment: Apex Court Clarifies While Allowing First Passive Euthanasia
-https://www.verdictum.in/court-updates/supreme-court/2026-insc-222-harish-rana-v-union-of-india-1609685
-
-[Source Link](https://t.me/verdictumlegalupdates/25865)
-
----
-
-### 2026-03-11T14:02:23+00:00
-PMLA | Quantification Of Proceeds Of Crime Not Required For Arrest; ‘Reason To Believe’ Based On Material Sufficient: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/y-shiva-reddy-v-directorate-of-enforcement-2026bhc-as11569-db-pmla-1609684
-
-[Source Link](https://t.me/verdictumlegalupdates/25864)
-
----
-
-### 2026-03-11T13:32:41+00:00
-Framing A Case On Public Perceptions & Personal Predilections Ends Up In A Mess: Supreme Court Upholds Acquittal Of Son & Daughter-In-Law Accused Of Parricide
-https://www.verdictum.in/court-updates/supreme-court/sanjay-kumar-sharma-v-state-of-bihar-ors-2026-insc-223-murder-son-father-1609682
-
-[Source Link](https://t.me/verdictumlegalupdates/25863)
-
----
-
-### 2026-03-11T13:02:40+00:00
-Supreme Court Classifies CANH As "Medical Treatment"; Says Medical Board Can Exercise Clinical Judgment For Its Continuation Or Withdrawal
-https://www.verdictum.in/court-updates/supreme-court/2026-insc-222-harish-rana-v-union-of-india-1609683
-
-[Source Link](https://t.me/verdictumlegalupdates/25862)
-
----
-
-### 2026-03-11T12:33:19+00:00
-Detention In Deportation Centers Is An Executive Function Under Foreigners Act, Must Follow Natural Justice: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/samuel-akujuobi-v-union-of-india-2026dhc1980-nigerian-nationals-ndps-deportation-centers-executive-function-1609679
-
-[Source Link](https://t.me/verdictumlegalupdates/25861)
-
----
-
-### 2026-03-11T11:52:17+00:00
-FIR In Corruption Case Can’t Be Quashed On Compromise: Bombay High Court Refuses To Quash Proceedings Against Advocate For Abetting Bribery
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/sachin-chandramani-wankhede-v-state-of-maharashtra-ors-2026bhc-nag4062-db-1609677
-
-[Source Link](https://t.me/verdictumlegalupdates/25860)
-
----
-
-### 2026-03-11T11:02:56+00:00
-Drawing Dual Pension By Concealment Is Fraud On State Exchequer: Bombay HC Waives Interest On Recovery Considering Petitioner’s Remorse
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/shamshuddin-ali-mullaji-v-the-assistant-commissioner-of-epfc-pension-2026bhc-as11568-db-dual-pension-concealment-1609671
-
-[Source Link](https://t.me/verdictumlegalupdates/25859)
-
----
-
-### 2026-03-11T10:33:15+00:00
-Terrible Rat Race; Education Now Means Admission To Medical Or Engineering Seat: Madras High Court Criticises Entrance Exam Oriented Education
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/bshajimon-v-union-of-india-2026mhc821-education-medical-engineering-seat-cbse-student-additional-subject-1609670
-
-[Source Link](https://t.me/verdictumlegalupdates/25858)
-
----
-
-### 2026-03-11T10:03:13+00:00
-Interest On Deposited Gratuity Stops From Date Of Deposit; Issue Of ‘Special Allowance’ As Wages Requires Fresh Examination: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/gundu-daji-desai-v-ms-aplab-ltd-2026bhc-as11226-employee-wages-gratuity-interest-special-allowance-1609667
-
-[Source Link](https://t.me/verdictumlegalupdates/25857)
-
----
-
-### 2026-03-11T09:33:12+00:00
-Mere Recovery Of Currency Notes Without Nexus To Crime Cannot Be Treated As Incriminating Circumstance: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/pooranmal-v-state-of-rajasthan-2026-insc-217-murder-recovery-currency-1609663
-
-[Source Link](https://t.me/verdictumlegalupdates/25856)
-
----
-
-### 2026-03-11T08:49:21+00:00
-Law Must Take Course Against Mischief Mongers, No One Will Be Spared: Apex Court Directs Centre To Identify Persons Behind Online Content In NCERT Case
-https://www.verdictum.in/court-updates/supreme-court/asks-union-identify-social-media-platforms-acted-irresponsibly-ncert-corruption-judiciary-1609662
-
-[Source Link](https://t.me/verdictumlegalupdates/25855)
 
 ---
 
