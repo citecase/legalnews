@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-13T13:32:29+00:00*
+*Last Updated: 2026-03-13T16:02:46+00:00*
+
+---
+
+### 2026-03-13T16:02:46+00:00
+Legal Advisor Vacancy At Sanjay Gandhi National Park (SGNP)
+https://www.verdictum.in/job-updates/sanjay-gandhi-national-park-sgnp-1609843
+
+[Source Link](https://t.me/verdictumlegalupdates/25916)
+
+---
+
+### 2026-03-13T15:32:44+00:00
+Complaints Can’t Proceed Against Directors In Their Personal Capacity When Company Which Issued Cheques Is Not Made Accused: Allahabad High Court Quashes NI Act Proceedings
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/rajiv-gupta-complaint-case-v-the-state-of-up-2026ahc-lko17690-complaints-directors-personal-capacity-cheques-ni-act-1609842
+
+[Source Link](https://t.me/verdictumlegalupdates/25915)
+
+---
+
+### 2026-03-13T15:02:23+00:00
+Change In Financial Circumstances Cannot Justify Denial Of Maintenance Retrospectively When Husband Had Sufficient Earnings: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/-sg-ors-v-akg-2026dhc1808-section-125-crpc-maintenence-husband-1609837
+
+[Source Link](https://t.me/verdictumlegalupdates/25914)
+
+---
+
+### 2026-03-13T14:33:12+00:00
+Reciting Bhajans, Aartis Not ‘Work’ To Qualify Pujari As ‘Workman’; Few Servants Employed Don’t Make Temple Trust ‘Industry’: Gujarat High Court
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/umeshwar-akshaywar-dubey-v-shree-sainath-sarvajanik-seva-mandal-trust-2026gujhc17531-db-aarti-bhajan-pujari-not-workman-1609840
+
+[Source Link](https://t.me/verdictumlegalupdates/25913)
+
+---
+
+### 2026-03-13T14:03:11+00:00
+Army Major Refuses To Marry Complainant After Settling Rape Case On Realising She Filed Similar Complaint Against Another Man, HC Refuses To Recall Its Order Quashing FIR
+https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/xxx-v-state-of-punjab-crm-29714-2024-in-crm-m-1192-2024-army-major-quash-rape-promise-to-marry-1609852
+
+[Source Link](https://t.me/verdictumlegalupdates/25912)
 
 ---
 
@@ -121,46 +161,6 @@ Indian Designers Would Know They Have Enforceable Legal Rights: Calcutta High Co
 https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/nec-corporation-v-the-controller-of-patents-and-designs-2026chc-0869-graphic-user-interface-gui-designs-act-1609805
 
 [Source Link](https://t.me/verdictumlegalupdates/25897)
-
----
-
-### 2026-03-13T06:03:01+00:00
-High Court Cannot Sustain Termination Under Article 311(2)(b) Constitution Merely Because CAT Upheld Reasons To Dispense With Inquiry: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/manohar-lal-v-commissioner-of-police-ors-2026-insc-234-article-3112b-1609804
-
-[Source Link](https://t.me/verdictumlegalupdates/25896)
-
----
-
-### 2026-03-13T05:32:20+00:00
-S. 106 Evidence Act | Husband And Wife Cannot Be Assumed To Be Seen Together Always: Madras HC Acquits Wife In Murder Case
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/selvi-v-the-state-2026mhc961-s-106-evidence-act-husband-wife-last-seen-together-theory-murder-1609800
-
-[Source Link](https://t.me/verdictumlegalupdates/25895)
-
----
-
-### 2026-03-13T05:02:18+00:00
-S.45 Copyright Act Safeguards Trademark Artwork From Similar Registration: Delhi High Court Directs Removal Of Logo Copying Heineken’s Tiger
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/heineken-asia-pacific-pte-ltd-v-vijay-keshav-wagh-ors-2026dhc1932-1609798
-
-[Source Link](https://t.me/verdictumlegalupdates/25894)
-
----
-
-### 2026-03-13T04:33:07+00:00
-Publishing Derogatory Words Again By Redisplaying Publication Already Made Will Attract Offence Of Defamation: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/vellinakshathram-v-state-of-kerala-2026ker19976-publishing-derogatory-words-redisplaying-section-500-ipc-1609791
-
-[Source Link](https://t.me/verdictumlegalupdates/25893)
-
----
-
-### 2026-03-12T16:02:08+00:00
-Dy Manager (Legal) Vacancy At Sahakar Taxi Cooperative Limited (STCL)
-https://www.verdictum.in/job-updates/sahakar-taxi-cooperative-limited-stcl-1609766
-
-[Source Link](https://t.me/verdictumlegalupdates/25892)
 
 ---
 
