@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-13T03:37:41+00:00*
+*Last Updated: 2026-03-13T09:50:44+00:00*
 
 ---
 
-### 2026-03-13T03:37:41+00:00
-3 Year Practice Mandate : Law Colleges Suggest Alternatives For Special-Abled Candidates
-https://www.livelaw.in/top-stories/3-year-practice-mandate-law-colleges-suggest-alternatives-for-special-abled-candidates-526219
+### 2026-03-13T09:50:44+00:00
+Sabarimala Gold Theft: State Moves Kerala High Court To Cancel Rajeev Thantri's Bail, Expunge Special Court's Remarks Against Probe
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sabarimala-gold-theft-rajeev-thantri-526309
 
-[Read on Telegram](https://t.me/livelawindia/106771)
-
----
-### 2026-03-13T04:35:11+00:00
-Supreme Court Asks States To File Affidavits On Forming Animal Welfare Boards
-https://www.livelaw.in/top-two-news/supreme-court-asks-states-to-file-affidavits-on-forming-animal-welfare-boards-526230
-
-[Read on Telegram](https://t.me/livelawindia/106772)
+[Read on Telegram](https://t.me/livelawindia/106807)
 
 ---
-### 2026-03-13T04:40:31+00:00
-Supreme Court Asks Petitioners Challenging Plaster Of Paris Idol Immersion To Approach Bombay High Court
-https://www.livelaw.in/top-stories/supreme-court-asks-petitioners-challenging-plaster-of-paris-idol-immersion-to-approach-bombay-high-court-526232
+### 2026-03-13T10:09:44+00:00
+'3-Year Practice Condition Should Remain, Only Issue Is Modalities': Supreme Court In Review; Extends Civil Judge Application Dates
+https://www.livelaw.in/top-stories/3-year-practice-condition-should-remain-only-issue-is-modalities-supreme-court-in-review-extends-civil-judge-application-dates-526317
 
-[Read on Telegram](https://t.me/livelawindia/106773)
-
----
-### 2026-03-13T04:58:01+00:00
-To Dismiss Public Servant Without Dept Enquiry, Sufficient Cause Must Be Shown : Supreme Court Reinstantes Delhi Police Officer
-https://www.livelaw.in/supreme-court/to-dismiss-public-servant-without-dept-enquiry-sufficient-cause-must-be-shown-supreme-court-reinstantes-delhi-police-officer-526237
-
-[Read on Telegram](https://t.me/livelawindia/106774)
+[Read on Telegram](https://t.me/livelawindia/106808)
 
 ---
-### 2026-03-13T04:59:21+00:00
-2026 LiveLaw (SC) 236 | Manohar Lal v. Commissioner of Police & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-236-manohar-lal-v-commissioner-of-police-ors-526238
+### 2026-03-13T10:17:30+00:00
+Kaleshwaram Project Row | Telangana High Court Reserves Verdict On KCR's Plea Against Inquiry Commission's Report
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-kcr-t-harish-rao-inquiry-report-kaleshwaram-project-526311
 
-[Read on Telegram](https://t.me/livelawindia/106775)
-
----
-### 2026-03-13T05:15:44+00:00
-Supreme Court Upholds Claim Of Candidates With Learning Disability & Mental Illness To Join CAG Auditor Post
-https://www.livelaw.in/supreme-court/supreme-court-upholds-claim-of-candidates-with-learning-disability-mental-illness-to-join-cag-auditor-post-526248
-
-[Read on Telegram](https://t.me/livelawindia/106776)
+[Read on Telegram](https://t.me/livelawindia/106809)
 
 ---
-### 2026-03-13T05:17:45+00:00
-2026 LiveLaw (SC) 237 |  SUDHANSHU KARDAM VERSUS COMPTROLLER AND AUDITOR GENERAL OF INDIA AND ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-237-sudhanshu-kardam-versus-comptroller-and-auditor-general-of-india-and-ors-526250
+### 2026-03-13T10:33:21+00:00
+Kerala High Court Seeks Centre's Stand On Setting Up CFSL In State Amid NDPS Trial Delays, High Pendency
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-central-forensic-science-laboratory-ndps-trials-526314
 
-[Read on Telegram](https://t.me/livelawindia/106777)
-
----
-### 2026-03-13T05:33:05+00:00
-BREAKING Supreme Court Takes Suo Motu Cognizance Of Illegal Sand Mining In Chambal Sanctuary & Threat To 'Gharials'
-https://www.livelaw.in/top-stories/supreme-court-takes-suo-motu-cognizance-of-illegal-sand-mining-national-chambal-sanctuary-threat-to-endangered-gharial-526255
-
-[Read on Telegram](https://t.me/livelawindia/106778)
+[Read on Telegram](https://t.me/livelawindia/106810)
 
 ---
-### 2026-03-13T05:36:05+00:00
-BNSS | Person Cannot Be Detained For Breach Of Interim Bond Pending Preventive Inquiry: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/bnss-person-cannot-be-detained-for-breach-of-interim-bond-pending-preventive-inquiry-calcutta-high-court-526257
+### 2026-03-13T10:33:51+00:00
+Adalat AI Invites Applications For Project Manager Positions Across Multiple Cities
+https://www.livelaw.in/job-updates/adalat-ai-invites-applications-for-project-manager-positions-across-multiple-cities-526318
 
-[Read on Telegram](https://t.me/livelawindia/106779)
-
----
-### 2026-03-13T05:55:45+00:00
-Senior (Compliance Review) Vacancy At KPMG India [Apply Now]
-https://www.livelaw.in/job-updates/senior-compliance-review-vacancy-at-kpmg-india-526261
-
-[Read on Telegram](https://t.me/livelawindia/106780)
+[Read on Telegram](https://t.me/livelawindia/106811)
 
 ---
-### 2026-03-13T05:57:25+00:00
-Inspector Vacancy At National Human Rights Commission
-https://www.livelaw.in/job-updates/inspector-vacancy-at-national-human-rights-commission-526262
+### 2026-03-13T10:45:31+00:00
+'FIR Can't Be Doubted Merely Because It Is Based On Police Statement', Supreme Court Cancels Anticipatory Bail In SC/ST Case
+https://www.livelaw.in/supreme-court/fir-cant-be-doubted-merely-because-it-is-based-on-police-statement-supreme-court-cancels-anticipatory-bail-in-scst-case-526319
 
-[Read on Telegram](https://t.me/livelawindia/106781)
-
----
-### 2026-03-13T05:59:25+00:00
-Call For Applications: Research Assistant – Legal (Right To Food Programme) At National Law School Of India University (NLSIU)
-https://www.livelaw.in/job-updates/call-for-applications-research-assistant-legal-right-to-food-programme-at-national-law-school-of-india-university-nlsiu-526263
-
-[Read on Telegram](https://t.me/livelawindia/106782)
+[Read on Telegram](https://t.me/livelawindia/106812)
 
 ---
-### 2026-03-13T06:01:05+00:00
-Associate (Communication) Vacancy At NALSAR University Of Law
-https://www.livelaw.in/job-updates/associate-communication-vacancy-at-nalsar-university-of-law-526264
+### 2026-03-13T10:46:31+00:00
+2026 LiveLaw (SC) 239 |  Kuldeep Singh and Anr. Versus State of Punjab and Anr.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-239-kuldeep-singh-and-anr-versus-state-of-punjab-and-anr-526320
 
-[Read on Telegram](https://t.me/livelawindia/106783)
-
----
-### 2026-03-13T06:03:05+00:00
-Assistant Project Manager Vacancy At Indian Institute Of Technology, Kanpur
-https://www.livelaw.in/job-updates/assistant-project-manager-vacancy-at-indian-institute-of-technology-kanpur-526265
-
-[Read on Telegram](https://t.me/livelawindia/106784)
+[Read on Telegram](https://t.me/livelawindia/106813)
 
 ---
-### 2026-03-13T06:09:15+00:00
-Trial Judge 'Put Words In Mouth Of Witness': Calcutta High Court Acquits Death Row Convict In Political Murder Case
-https://www.livelaw.in/high-court/calcutta-high-court/trial-judge-put-words-in-mouth-of-witness-calcutta-high-court-acquits-death-row-convict-in-political-murder-case-526268
+### 2026-03-13T10:46:41+00:00
+Delhi Riots: Court Dismisses Plea For Registration Of FIR Against BJP Leader Kapil Mishra
+https://www.livelaw.in/news-updates/delhi-riots-court-dismisses-plea-for-registration-of-fir-against-bjp-leader-kapil-mishra-526321
 
-[Read on Telegram](https://t.me/livelawindia/106785)
-
----
-### 2026-03-13T06:18:34+00:00
-Decree Holder With Charged Decree Enjoys Priority Over Unsecured Decree Holders U/S 73 CPC: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/decree-holder-with-a-charged-decree-enjoys-priority-over-unsecured-decree-holders-under-section-73-of-cpc-526272
-
-[Read on Telegram](https://t.me/livelawindia/106786)
+[Read on Telegram](https://t.me/livelawindia/106814)
 
 ---
-### 2026-03-13T06:24:14+00:00
-Delhi Riots: Court Denies Bail To Shahrukh Pathan Who Pointed Gun At Cop
-https://www.livelaw.in/news-updates/delhi-riots-court-denies-bail-to-shahrukh-pathan-who-pointed-gun-at-cop-526274
+### 2026-03-13T10:47:31+00:00
+Calcutta High Court Orders SIT Probe Into 13-Year-Old Girl's Kidnap, Rape & Murder Case, Cites Serious Lapses In Police Investigation
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-orders-sit-probe-into-13-year-old-girls-kidnap-rape-murder-case-cites-serious-lapses-in-police-investigation-526275
 
-[Read on Telegram](https://t.me/livelawindia/106787)
-
----
-### 2026-03-13T06:30:54+00:00
-Does Lokpal Act Envisage Separate Sanctions For Chargesheet & Prosecution? Supreme Court To Examine In Plea Against Mahua Moitra
-https://www.livelaw.in/top-stories/supreme-court-lokpal-of-india-plea-against-quashing-of-sanction-for-cbi-chargesheet-against-mahua-moitra-trinamool-congress-526278
-
-[Read on Telegram](https://t.me/livelawindia/106788)
+[Read on Telegram](https://t.me/livelawindia/106815)
 
 ---
-### 2026-03-13T06:42:14+00:00
-Calcutta High Court Upholds Life Sentence Of Men For Raping 14-Yr-Old Girl In Moving Train After Forcing Her To Drink Liquor
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-upholds-life-sentence-of-two-men-for-raping-14-year-old-girl-in-moving-train-after-forcing-her-to-drink-liquor-526271
+### 2026-03-13T10:49:11+00:00
+Counsellor Vacancy At Family Court, Ajmer
+https://www.livelaw.in/job-updates/counsellor-vacancy-at-family-court-ajmer-526322
 
-[Read on Telegram](https://t.me/livelawindia/106789)
+[Read on Telegram](https://t.me/livelawindia/106816)
 
 ---
-### 2026-03-13T06:43:54+00:00
-'Mandating Menstrual Leave May Harm Women's Careers', Says Supreme Court; Asks Union To Consider Framing Policy
-https://www.livelaw.in/top-stories/mandating-menstrual-leave-may-harm-womens-careers-says-supreme-court-asks-union-to-consider-framing-policy-526281
+### 2026-03-13T10:57:31+00:00
+'Meticulous Investigation Being Carried Out By SIT': Kerala High Court In Plea Seeking CBI Inquiry In Sabarimala Gold Theft Case
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-cbi-inquiry-sabarimala-gold-theft-526286
 
-[Read on Telegram](https://t.me/livelawindia/106790)
+[Read on Telegram](https://t.me/livelawindia/106817)
+
+---
+### 2026-03-13T11:13:11+00:00
+Findings Of Civil Court On Nature Of Transaction Bind Authorities Under Maharashtra Money Lending Act: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-transaction-nature-res-judicata-maharashtra-money-lending-act-526244
+
+[Read on Telegram](https://t.me/livelawindia/106818)
+
+---
+### 2026-03-13T11:43:01+00:00
+Failed To Explain Death Of Woman Living With Him: Calcutta High Court Upholds Man's Life Sentence For Murder, Relies On 'Last-Seen' Theory
+https://www.livelaw.in/high-court/calcutta-high-court/failed-to-explain-death-of-woman-living-with-him-calcutta-high-court-upholds-mans-life-sentence-for-murder-relies-on-last-seen-theory-526279
+
+[Read on Telegram](https://t.me/livelawindia/106819)
+
+---
+### 2026-03-13T11:58:19+00:00
+'Prima Facie Material Shows Indians Were Trafficked Abroad': Bombay High Court Denies Bail To Alleged 'Mastermind' In Job Racket Case
+https://www.livelaw.in/high-court/bombay-high-court/prima-facie-material-shows-indians-were-trafficked-abroad-bombay-high-court-denies-bail-to-mastermind-in-job-racket-case-526329
+
+[Read on Telegram](https://t.me/livelawindia/106820)
+
+---
+### 2026-03-13T11:58:41+00:00
+Coaching Centres Driving Opposition To 3-Year Practice Rule For Judicial Service: Justice K Vinod Chandran
+https://www.livelaw.in/top-stories/coaching-centres-driving-opposition-to-3-year-practice-rule-for-judicial-service-justice-k-vinod-chandran-526332
+
+[Read on Telegram](https://t.me/livelawindia/106821)
+
+---
+### 2026-03-13T12:08:00+00:00
+CDSCO Registration Mandatory For Cosmetic Imports Even If Goods Are Meant For Warehousing & Re-Export: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-cosmetics-import-mandatory-cdsco-license-526245
+
+[Read on Telegram](https://t.me/livelawindia/106822)
+
+---
+### 2026-03-13T12:37:25+00:00
+'We Have Ethical Duty Not To Engage In Certain Conduct': Barrister Dr Venkat Iyer Speaks At Event On 'Legal Regulation Of Hate Speech'
+https://www.livelaw.in/news-updates/kerala-hate-speech-dr-venkat-iyer-justice-jayasankaran-nambiar-ethical-duty-526337
+
+[Read on Telegram](https://t.me/livelawindia/106823)
+
+---
+### 2026-03-13T12:41:45+00:00
+Supreme Court Stays Defamation Case Against Lawyer For Posting Book Extracts On Mamata Banerjee's Personal Life
+https://www.livelaw.in/top-stories/supreme-court-stays-defamation-case-against-lawyer-for-posting-book-extracts-on-mamata-banerjees-personal-life-526340
+
+[Read on Telegram](https://t.me/livelawindia/106824)
+
+---
+### 2026-03-13T12:47:25+00:00
+Gujarat HC Allows Partial De-Sealing Of Educational Institution For Carrying Out Fire Safety Compliance Work, Defers Verdict On Water Tank
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-educational-installation-de-sealing-partial-fire-safety-526330
+
+[Read on Telegram](https://t.me/livelawindia/106825)
+
+---
+### 2026-03-13T13:02:55+00:00
+Bombay High Court Refuses Compensation Claim Under 2013 Land Acquisition Act Due To Suppression Of Material Facts
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-rejects-landowners-plea-compensation-under-2013act-526246
+
+[Read on Telegram](https://t.me/livelawindia/106826)
 
 ---
