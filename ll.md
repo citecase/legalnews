@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-13T12:08:00+00:00*
+*Last Updated: 2026-03-14T03:07:10+00:00*
 
 ---
 
-### 2026-03-13T12:08:00+00:00
-CDSCO Registration Mandatory For Cosmetic Imports Even If Goods Are Meant For Warehousing & Re-Export: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-cosmetics-import-mandatory-cdsco-license-526245
+### 2026-03-14T03:07:10+00:00
+2026 LiveLaw (SC) 241 | MIZO CHIEF COUNCIL MIZORAM, THR. PRESIDENT SHRI L. CHINZAH v UNION OF INDIA & ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-241-mizo-chief-council-mizoram-thr-president-shri-l-chinzah-v-union-of-india-ors-526366
 
-[Read on Telegram](https://t.me/livelawindia/106822)
-
----
-### 2026-03-13T12:37:25+00:00
-'We Have Ethical Duty Not To Engage In Certain Conduct': Barrister Dr Venkat Iyer Speaks At Event On 'Legal Regulation Of Hate Speech'
-https://www.livelaw.in/news-updates/kerala-hate-speech-dr-venkat-iyer-justice-jayasankaran-nambiar-ethical-duty-526337
-
-[Read on Telegram](https://t.me/livelawindia/106823)
+[Read on Telegram](https://t.me/livelawindia/106843)
 
 ---
-### 2026-03-13T12:41:45+00:00
-Supreme Court Stays Defamation Case Against Lawyer For Posting Book Extracts On Mamata Banerjee's Personal Life
-https://www.livelaw.in/top-stories/supreme-court-stays-defamation-case-against-lawyer-for-posting-book-extracts-on-mamata-banerjees-personal-life-526340
+### 2026-03-14T04:32:13+00:00
+Rajasthan High Court Monthly Digest: February 2026
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-monthly-digest-february2026-525607
 
-[Read on Telegram](https://t.me/livelawindia/106824)
-
----
-### 2026-03-13T12:47:25+00:00
-Gujarat HC Allows Partial De-Sealing Of Educational Institution For Carrying Out Fire Safety Compliance Work, Defers Verdict On Water Tank
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-educational-installation-de-sealing-partial-fire-safety-526330
-
-[Read on Telegram](https://t.me/livelawindia/106825)
+[Read on Telegram](https://t.me/livelawindia/106844)
 
 ---
-### 2026-03-13T13:02:55+00:00
-Bombay High Court Refuses Compensation Claim Under 2013 Land Acquisition Act Due To Suppression Of Material Facts
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-rejects-landowners-plea-compensation-under-2013act-526246
+### 2026-03-14T04:51:13+00:00
+Registrar And Joint Registrar Vacancy At Armed Forces Tribunal, Regional Benches
+https://www.livelaw.in/job-updates/registrar-and-joint-registrar-vacancy-at-armed-forces-tribunal-regional-benches-526376
 
-[Read on Telegram](https://t.me/livelawindia/106826)
-
----
-### 2026-03-13T13:12:55+00:00
-Defamation Not Limited To Intent To Harm Reputation; Knowledge That Imputation May Harm Also Attracts Offence: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-defamation-under-section-499-rpc-includes-imputations-made-with-knowledge-they-would-harm-reputation-not-just-those-made-with-intent-526313
-
-[Read on Telegram](https://t.me/livelawindia/106827)
+[Read on Telegram](https://t.me/livelawindia/106845)
 
 ---
-### 2026-03-13T13:17:35+00:00
-Kerala High Court Summons Home Secretary Over Failure To Pay Mediator Fees & Victim Compensation
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-failure-payment-mediator-victim-compensation-526339
+### 2026-03-14T04:53:13+00:00
+Consultant (Global Issues) in UNES Division Vacancy At United Nations Economic & Social Division, Ministry Of External Affairs
+https://www.livelaw.in/job-updates/consultant-global-issues-in-unes-division-vacancy-at-united-nations-economic-social-division-ministry-of-external-affairs-526378
 
-[Read on Telegram](https://t.me/livelawindia/106828)
-
----
-### 2026-03-13T13:30:15+00:00
-Supreme Court Empowers District Judges To Nominate Members To Bar Associations' ECs To Ensure 30% Women Representation
-https://www.livelaw.in/top-stories/supreme-court-empowers-district-judges-to-nominate-women-members-in-bar-association-executive-committees-30-percent-representation-526347
-
-[Read on Telegram](https://t.me/livelawindia/106829)
+[Read on Telegram](https://t.me/livelawindia/106846)
 
 ---
-### 2026-03-13T13:42:15+00:00
-Rajasthan High Court Directs Cooperative Bank To Pay PMFBY Insurance To Farmers, Says They Cannot Suffer Due To Data Entry Error
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-nagaur-central-cooperative-bank-farmers-pmfby-insurance-526308
+### 2026-03-14T04:54:53+00:00
+Civil Judge (Junior Division)-Cum-Judicial Magistrate First Class Examination 2026 [Apply Now]
+https://www.livelaw.in/job-updates/civil-judge-junior-division-cum-judicial-magistrate-first-class-examination-2026-526379
 
-[Read on Telegram](https://t.me/livelawindia/106830)
-
----
-### 2026-03-13T14:05:05+00:00
-Auction Sale Confirmation Does Not Bar Judicial Scrutiny Of Valuation Of Reserve Price : Supreme Court
-https://www.livelaw.in/supreme-court/auction-sale-confirmation-does-not-bar-judicial-scrutiny-of-valuation-of-reserve-price-supreme-court-526349
-
-[Read on Telegram](https://t.me/livelawindia/106831)
+[Read on Telegram](https://t.me/livelawindia/106847)
 
 ---
-### 2026-03-13T14:06:25+00:00
-2026 LiveLaw (SC) 240 | OM SAKTHI SEKAR VERSUS V. SUKUMAR & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-240-om-sakthi-sekar-versus-v-sukumar-ors-526350
+### 2026-03-14T04:56:33+00:00
+Young Professional (Legal) Vacancy At EdCIL (India) Limited
+https://www.livelaw.in/job-updates/young-professional-legal-vacancy-at-edcil-india-limited-526380
 
-[Read on Telegram](https://t.me/livelawindia/106832)
-
----
-### 2026-03-13T14:08:45+00:00
-Setting Aside Or Modifying Trial Court Order Not Reflection On Judge's Integrity: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/setting-aside-or-modifying-trial-court-order-not-reflection-on-judges-integrity-delhi-high-court-526352
-
-[Read on Telegram](https://t.me/livelawindia/106833)
+[Read on Telegram](https://t.me/livelawindia/106848)
 
 ---
-### 2026-03-13T14:15:45+00:00
-Bill To Amend Transgender Persons Act Introduced In Lok Sabha; Seeks To Omit Self-Perceived Identification
-https://www.livelaw.in/news-updates/bill-to-amend-transgender-persons-act-introduced-in-lok-sabha-seeks-to-omit-self-perceived-identification-526353
+### 2026-03-14T05:07:52+00:00
+Court Officer Vacancy At National Company Law Tribunal, Bengaluru Bench
+https://www.livelaw.in/job-updates/court-officer-vacancy-at-national-company-law-tribunal-bengaluru-bench-526381
 
-[Read on Telegram](https://t.me/livelawindia/106834)
-
----
-### 2026-03-13T14:49:36+00:00
-Supreme Court Urges Centre To Revisit Yellow Dal Import Policy; Says Farming Of Pulses Be Incentivised
-https://www.livelaw.in/top-stories/supreme-court-urges-centre-to-revisit-yellow-dal-import-policy-says-farming-of-pulses-be-incentivised-526355
-
-[Read on Telegram](https://t.me/livelawindia/106835)
+[Read on Telegram](https://t.me/livelawindia/106849)
 
 ---
-### 2026-03-13T15:12:56+00:00
-MP High Court Refuses To Quash Defamation Case Against Shahdol Bar Association President Over Allegedly False Complaint
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-dismisses-plea-of-district-bar-associations-president-against-cognizance-of-defamation-charges-526312
+### 2026-03-14T05:18:42+00:00
+Can't Restrict Number Of Namaz Worshipers On Law & Order Ground; Resign If Unable To Do Duty : Allahabad High Court To Sambhal SP, Collector
+https://www.livelaw.in/top-stories/cant-restrict-number-of-namaz-worshipers-on-law-order-ground-resign-allahabad-high-court-to-sambhal-sp-collector-526383
 
-[Read on Telegram](https://t.me/livelawindia/106836)
-
----
-### 2026-03-13T15:34:56+00:00
-Madras High Court Seeks Centre's Response On Challenge To BNSS Provision On Pre-Cognizance Hearing
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-section-223-bnss-proviso-challenged-526356
-
-[Read on Telegram](https://t.me/livelawindia/106837)
+[Read on Telegram](https://t.me/livelawindia/106850)
 
 ---
-### 2026-03-13T15:44:56+00:00
-Supreme Court Daily Round-Up : March 13, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-march-13-2026-526357
+### 2026-03-14T05:22:02+00:00
+Gujarat High Court Allows Undertrial To Be Taken Home In Police Custody To Perform Pet Dog's Last Rites
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-undertrial-husband-last-rites-pet-dog-526384
 
-[Read on Telegram](https://t.me/livelawindia/106838)
-
----
-### 2026-03-13T17:23:04+00:00
-NALSA Announces 1st National Lok Adalat Of 2026 To Be Held On March 14
-https://www.livelaw.in/events/nalsa-announces-1st-national-lok-adalat-526362
-
-[Read on Telegram](https://t.me/livelawindia/106839)
+[Read on Telegram](https://t.me/livelawindia/106851)
 
 ---
-### 2026-03-13T17:35:44+00:00
-Jindal Global Law School Finishes Runners-Up At 2nd DSNLU Vis Pre-Moot 2026
-https://www.livelaw.in/lawschool/news/jindal-global-law-school-finishes-runners-up-2nd-dsnlu-vis-pre-moot-2026-526363
+### 2026-03-14T05:27:22+00:00
+Supreme Court Notifies Composition Of 9-Judge Bench Hearing Reference On 'Industry' Definition
+https://www.livelaw.in/top-stories/supreme-court-notifies-composition-of-9-judge-bench-hearing-reference-on-industry-definition-526386
 
-[Read on Telegram](https://t.me/livelawindia/106840)
+[Read on Telegram](https://t.me/livelawindia/106852)
 
 ---
-### 2026-03-14T02:10:20+00:00
-Lex Gazette Academy Announces 2nd Judexis Moot Court Competition 2026; Registrations Open
-https://www.livelaw.in/lawschool/moot-courts/lex-gazette-academy-announces-2nd-judexis-moot-court-competition-2026-registrations-open-526364
+### 2026-03-14T05:29:22+00:00
+State Undertakes Before Kerala High Court To Ensure Uninterrupted Service Of Sanitation Workers At Sabarimala
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sanitation-workers-sabarimala-526388
 
-[Read on Telegram](https://t.me/livelawindia/106841)
+[Read on Telegram](https://t.me/livelawindia/106853)
+
+---
+### 2026-03-14T05:37:22+00:00
+Kerala High Court Upholds Direction To Implead Local SHO In Bank Account Defreezing Petitions
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-direction-implead-local-sho-bank-account-defreezing-526387
+
+[Read on Telegram](https://t.me/livelawindia/106854)
+
+---
+### 2026-03-14T05:44:22+00:00
+Supreme Court Upholds Conviction Of Excise Inspector In 35-Year-Old Bribery Case, Reduces Sentence Since Convict Now 75 Yr Old
+https://www.livelaw.in/supreme-court/supreme-court-upholds-conviction-of-excise-inspector-in-35-year-old-bribery-case-reduces-sentence-since-convict-now-75-yr-old-526394
+
+[Read on Telegram](https://t.me/livelawindia/106855)
+
+---
+### 2026-03-14T05:45:22+00:00
+Counsellor Vacancy At Family Court, Dungarpur, Rajasthan
+https://www.livelaw.in/job-updates/counsellor-vacancy-at-family-court-dungarpur-rajasthan-526395
+
+[Read on Telegram](https://t.me/livelawindia/106856)
+
+---
+### 2026-03-14T05:45:32+00:00
+2026 LiveLaw (SC) 242 | RAJ BAHADUR SINGH VERSUS STATE OF UTTARAKHAND
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-242-raj-bahadur-singh-versus-state-of-uttarakhand-526397
+
+[Read on Telegram](https://t.me/livelawindia/106857)
+
+---
+### 2026-03-14T05:56:42+00:00
+Completing Class 8 After Age 14 Not Illegal Under RTE Act: HP High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-completing-class8-rte-act-526400
+
+[Read on Telegram](https://t.me/livelawindia/106858)
+
+---
+### 2026-03-14T06:02:43+00:00
+Kerala High Court Asks State Whether Suchitwa Mission Can Provide Expertise To Remove Pilgrims' Clothes Discarded In Pampa River
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-pampa-river-pilgrims-clothes-sabarimala-526389
+
+[Read on Telegram](https://t.me/livelawindia/106859)
+
+---
+### 2026-03-14T06:29:52+00:00
+BREAKING| Centre Revokes Detention Of Sonam Wangchuk Under National Security Act
+https://www.livelaw.in/top-stories/centre-revokes-detention-of-sonam-wangchuk-under-national-security-act-526404
+
+[Read on Telegram](https://t.me/livelawindia/106860)
+
+---
+### 2026-03-14T06:32:52+00:00
+Quantity Of Contraband Not Relevant For Preventive Detention Under PITNDPS Act: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-quantity-ndps-detention-order-illicit-traffic-526399
+
+[Read on Telegram](https://t.me/livelawindia/106861)
+
+---
+### 2026-03-14T06:42:13+00:00
+Children In The Crossfire: International Law And Child Rights Amid Armed Conflict
+https://www.livelaw.in/articles/children-crossfire-international-law-child-rights-amid-armed-conflict-526407
+
+[Read on Telegram](https://t.me/livelawindia/106862)
 
 ---
