@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-14T13:13:14+00:00*
+*Last Updated: 2026-03-14T15:32:17+00:00*
+
+---
+
+### 2026-03-14T15:32:17+00:00
+Legal Aid Defense Counsel Vacancy At District Legal Services Authority, Sonitpur
+https://www.verdictum.in/job-updates/district-legal-services-authority-1609919
+
+[Source Link](https://t.me/verdictumlegalupdates/25932)
+
+---
+
+### 2026-03-14T14:52:56+00:00
+Directions Ignored In Letter And Spirit: Allahabad HC Records ‘Serious Displeasure’ Over Lucknow DM’s Absence In La Martiniere Land Demarcation Case
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/la-martiniere-college-lucknow-v-state-of-up-lucknow-dm-absence-displeasure-1609918
+
+[Source Link](https://t.me/verdictumlegalupdates/25931)
+
+---
+
+### 2026-03-14T14:02:35+00:00
+Representation To CJI Seeks Discontinuance Of Colonial Wigs & Scarlet Robes In Courts; Restoration Of Civilisational Self Respect
+https://www.verdictum.in/news/representation-supreme-court-cji-calcutta-high-court-white-wig-scarlet-robe-1609937
+
+[Source Link](https://t.me/verdictumlegalupdates/25930)
 
 ---
 
@@ -137,30 +161,6 @@ Reciting Bhajans, Aartis Not ‘Work’ To Qualify Pujari As ‘Workman’; Few 
 https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/umeshwar-akshaywar-dubey-v-shree-sainath-sarvajanik-seva-mandal-trust-2026gujhc17531-db-aarti-bhajan-pujari-not-workman-1609840
 
 [Source Link](https://t.me/verdictumlegalupdates/25913)
-
----
-
-### 2026-03-13T14:03:11+00:00
-Army Major Refuses To Marry Complainant After Settling Rape Case On Realising She Filed Similar Complaint Against Another Man, HC Refuses To Recall Its Order Quashing FIR
-https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/xxx-v-state-of-punjab-crm-29714-2024-in-crm-m-1192-2024-army-major-quash-rape-promise-to-marry-1609852
-
-[Source Link](https://t.me/verdictumlegalupdates/25912)
-
----
-
-### 2026-03-13T13:32:29+00:00
-Kerala High Court Dismisses PIL Challenging Use Of Name “Indian Premier League” By BCCI
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/ashique-karoth-v-union-of-india-2026ker22346-pil-name-indian-premier-league-bcci-1609851
-
-[Source Link](https://t.me/verdictumlegalupdates/25911)
-
----
-
-### 2026-03-13T13:03:08+00:00
-Man Worships Invisible God, Destroys Visible Nature: Madras HC Quashes TN Order Allotting Sand Dunes Instead Of Temple Land To School
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/st-josephs-matriculation-higher-secondary-school-v-the-additional-chief-secretary-2026mhc991-sand-dunes-temple-land-development-1609838
-
-[Source Link](https://t.me/verdictumlegalupdates/25910)
 
 ---
 
