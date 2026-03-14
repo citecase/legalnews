@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-14T05:45:22+00:00*
+*Last Updated: 2026-03-14T05:56:42+00:00*
 
 ---
 
-### 2026-03-14T05:45:22+00:00
-Counsellor Vacancy At Family Court, Dungarpur, Rajasthan
-https://www.livelaw.in/job-updates/counsellor-vacancy-at-family-court-dungarpur-rajasthan-526395
-
-[Read on Telegram](https://t.me/livelawindia/106856)
-
----
-### 2026-03-14T05:45:32+00:00
-2026 LiveLaw (SC) 242 | RAJ BAHADUR SINGH VERSUS STATE OF UTTARAKHAND
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-242-raj-bahadur-singh-versus-state-of-uttarakhand-526397
-
-[Read on Telegram](https://t.me/livelawindia/106857)
-
----
 ### 2026-03-14T05:56:42+00:00
 Completing Class 8 After Age 14 Not Illegal Under RTE Act: HP High Court
 https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-completing-class8-rte-act-526400
@@ -142,5 +128,19 @@ Justice Vikram Nath Inaugurates Mobile Lok Adalat Vans Of Telangana State Legal 
 https://www.livelaw.in/news-updates/justice-vikram-nath-inaugurates-mobile-lok-adalat-vans-of-telangana-state-legal-services-authority-526433
 
 [Read on Telegram](https://t.me/livelawindia/106875)
+
+---
+### 2026-03-14T17:08:13+00:00
+1st National Lok Adalat Of 2026 Resolves 2.84 Crore Cases With Settlement Value Of ₹10,920.47 Crore
+https://www.livelaw.in/news-updates/1st-national-lok-adalat-of-2026-resolves-284-crore-cases-with-settlement-value-of-1092047-crore-526447
+
+[Read on Telegram](https://t.me/livelawindia/106876)
+
+---
+### 2026-03-14T17:20:53+00:00
+Sabarimala Reference: Consultation With Religious Scholars Needed Before Judicial Review Of Traditions, Kerala Tells Supreme Court
+https://www.livelaw.in/top-stories/sabarimala-reference-consultation-with-religious-scholars-needed-before-judicial-review-of-traditions-kerala-tells-supreme-court-526448
+
+[Read on Telegram](https://t.me/livelawindia/106877)
 
 ---
