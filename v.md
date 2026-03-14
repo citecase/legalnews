@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-14T06:52:13+00:00*
+*Last Updated: 2026-03-14T13:13:14+00:00*
+
+---
+
+### 2026-03-14T13:13:14+00:00
+Prior Agreement Of Sale Prevails Over Subsequent Attachment; Attaching Creditor Cannot Have Better Title Than Judgment Debtor: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/kesavan-v-d-chandran-2026ker17081-prior-agreement-sale-prevails-over-subsequent-attachment-1609916
+
+[Source Link](https://t.me/verdictumlegalupdates/25929)
+
+---
+
+### 2026-03-14T12:32:23+00:00
+Minor Alterations To "Lord Ayyappa" Logo Do Not Constitute Case For Rectification : Madras High Court Dismisses Plea Against Sri Lakshmi Venkateswara Rice Industries
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/2026-mhc-1056-sree-lakshmi-balaji-industries-v-sri-lakshmi-venkateswara-rice-industries-1609915
+
+[Source Link](https://t.me/verdictumlegalupdates/25928)
+
+---
+
+### 2026-03-14T11:52:42+00:00
+Can’t Say That Accused Isn’t Cooperating Merely Because He Has Smart Responses; Interrogator Has To Be Smarter: Delhi High Court Grants Anticipatory Bail
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ravjeet-singh-v-central-bureau-of-investigation-2026dhc2071-accused-cooperate-smart-responses-interrogator-1609913
+
+[Source Link](https://t.me/verdictumlegalupdates/25927)
+
+---
+
+### 2026-03-14T11:02:40+00:00
+No Proof Of Public Servant Discharging Duty: Allahabad High Court Sets Aside Conviction U/S. 333,333 IPC
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/rajendra-kumar-v-state-of-uttar-pradesh-2026ahc49013-public-servant-1609912
+
+[Source Link](https://t.me/verdictumlegalupdates/25926)
+
+---
+
+### 2026-03-14T10:12:39+00:00
+It Is For Oil Marketing Companies To Ensure Supply Of LPG Cylinders To Protect Interests Of Consumers: Kerala High Court Upholds OMC Right To Transfer LPG Distributors
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/2026ker20906-all-india-lpg-distributors-federation-v-union-of-india-1609911
+
+[Source Link](https://t.me/verdictumlegalupdates/25925)
+
+---
+
+### 2026-03-14T09:33:18+00:00
+Gaping Holes In Prosecution Case: Calcutta High Court Acquits Accused In TMC Worker Murder Case; Sets Aside Death Sentence
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/baladeb-paul-v-the-state-of-west-bengal-2026chc-as399-db-trial-court-elementary-mistake-trinamool-worker-murder-1609908
+
+[Source Link](https://t.me/verdictumlegalupdates/25924)
+
+---
+
+### 2026-03-14T08:52:17+00:00
+DRT Confirmed Auction Sales Not Immune From Judicial Review Where Valuation Or Reserve Price Is Questioned: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/om-sakthi-sekar-v-v-sukumar-ors-2026-insc-237-drt-auction-review-1609905
+
+[Source Link](https://t.me/verdictumlegalupdates/25923)
+
+---
+
+### 2026-03-14T08:12:16+00:00
+Government Remains Committed To Foster Environment Of Peace And Stability In Ladakh: Centre Says While Revoking Detention Of Sonam Wangchuk
+https://www.verdictum.in/court-updates/supreme-court/revokes-detention-of-sonam-wangchuk-ministry-of-home-affairs-1609904
+
+[Source Link](https://t.me/verdictumlegalupdates/25922)
+
+---
+
+### 2026-03-14T07:33:14+00:00
+Hard To Believe That Such Grave Incident Wasn’t Disclosed By Complainant To Her Husband: Supreme Court Grants Acquittal in 1998 Gang Rape Case
+https://www.verdictum.in/court-updates/supreme-court/rajendra-ors-vstate-of-uttarakhand-2026-insc-238-grave-incident-disclosed-complainant-husband-acquittal-rape-1609897
+
+[Source Link](https://t.me/verdictumlegalupdates/25921)
 
 ---
 
@@ -89,78 +161,6 @@ Man Worships Invisible God, Destroys Visible Nature: Madras HC Quashes TN Order 
 https://www.verdictum.in/court-updates/high-courts/madras-high-court/st-josephs-matriculation-higher-secondary-school-v-the-additional-chief-secretary-2026mhc991-sand-dunes-temple-land-development-1609838
 
 [Source Link](https://t.me/verdictumlegalupdates/25910)
-
----
-
-### 2026-03-13T12:32:48+00:00
-You Want Us To Run Entire Country: Supreme Court Dismisses Plea Seeking Directions To Ensure Public Safety By Maintaining Roads
-https://www.verdictum.in/court-updates/supreme-court/you-want-us-to-run-entire-country-supreme-court-dismisses-plea-seeking-directions-to-ensure-public-safety-by-maintaining-roads-1609845
-
-[Source Link](https://t.me/verdictumlegalupdates/25909)
-
----
-
-### 2026-03-13T12:03:06+00:00
-Supreme Court Stays Telangana High Court Order On 90-Day Notice Rule For Film Ticket Price Hikes
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-stays-telangana-high-court-order-on-90-day-notice-rule-for-film-ticket-price-hikes-1609834
-
-[Source Link](https://t.me/verdictumlegalupdates/25908)
-
----
-
-### 2026-03-13T11:33:04+00:00
-Privy Purse Benefits To Princely Rulers Were Political Arrangements, Not Legal Rights: Supreme Court Rejects Mizo Chiefs’ Land Ownership Claims
-https://www.verdictum.in/court-updates/supreme-court/mizo-chief-council-mizoram-thr-president-shri-l-chinzah-v-union-of-india-2026-insc-236-rejects-land-ownership-claims-1609833
-
-[Source Link](https://t.me/verdictumlegalupdates/25907)
-
----
-
-### 2026-03-13T11:03:04+00:00
-Right To Establish Educational Institution Does Not Include Right To Recognition Or Grant-In-Aid From State: J&K And Ladakh High Court
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/new-convent-high-school-gogji-bagh-srinagar-ors-v-union-of-india-ors-1609830
-
-[Source Link](https://t.me/verdictumlegalupdates/25906)
-
----
-
-### 2026-03-13T10:32:22+00:00
-Single Judge Can Depart From Own Earlier View If It Ignored Binding Precedent Or Statutory Provisions: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/vineesh-v-state-of-kerala-2026ker20618-judicial-order-single-judge-1609829
-
-[Source Link](https://t.me/verdictumlegalupdates/25905)
-
----
-
-### 2026-03-13T10:03:01+00:00
-Supreme Court Directs Union To Revisit Pulse Import Policy; Urges Inter-Ministerial Coordination To Incentivize Crop Diversification From Conventional Crops To Pulses
-https://www.verdictum.in/court-updates/supreme-court/union-to-revisit-pulse-import-policy-ministerial-coordination-incentivize-crop-diversification-conventional-crops-pulses-1609827
-
-[Source Link](https://t.me/verdictumlegalupdates/25904)
-
----
-
-### 2026-03-13T09:32:49+00:00
-Why Should We Pretend That We Know Medical Science: Supreme Court Refuses To Entertain Plea Seeking NAT Testing In Blood Banks
-https://www.verdictum.in/court-updates/supreme-court/why-should-we-pretend-that-we-know-medical-science-supreme-court-refuses-to-entertain-plea-seeking-nat-testing-in-blood-banks-1609826
-
-[Source Link](https://t.me/verdictumlegalupdates/25903)
-
----
-
-### 2026-03-13T09:02:28+00:00
-Create Supernumerary Posts If Advertised Posts Filled: Supreme Court Asks CAG To Accommodate 2 PwBD Candidates In Audit & Accounts Department
-https://www.verdictum.in/court-updates/supreme-court/sudhanshu-kardam-v-comptroller-and-auditor-general-of-india-2026-insc-232-supernumerary-posts-cag-pwbd-candidates-audit-accounts-1609821
-
-[Source Link](https://t.me/verdictumlegalupdates/25902)
-
----
-
-### 2026-03-13T08:33:07+00:00
-Supreme Court Refuses To Entertain Plea Seeking State To Take Action Against Persons For Propagating Allegations Of Animal Fat In Tirumala Laddu Prasadam Controversy
-https://www.verdictum.in/court-updates/supreme-court/refuses-entertain-plea-seeking-state-cease-desist-from-propagating-allegations-animal-fat-tirumala-laddu-prasadam-1609823
-
-[Source Link](https://t.me/verdictumlegalupdates/25901)
 
 ---
 
