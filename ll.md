@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-14T03:07:10+00:00*
+*Last Updated: 2026-03-14T05:45:22+00:00*
 
 ---
 
-### 2026-03-14T03:07:10+00:00
-2026 LiveLaw (SC) 241 | MIZO CHIEF COUNCIL MIZORAM, THR. PRESIDENT SHRI L. CHINZAH v UNION OF INDIA & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-241-mizo-chief-council-mizoram-thr-president-shri-l-chinzah-v-union-of-india-ors-526366
-
-[Read on Telegram](https://t.me/livelawindia/106843)
-
----
-### 2026-03-14T04:32:13+00:00
-Rajasthan High Court Monthly Digest: February 2026
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-monthly-digest-february2026-525607
-
-[Read on Telegram](https://t.me/livelawindia/106844)
-
----
-### 2026-03-14T04:51:13+00:00
-Registrar And Joint Registrar Vacancy At Armed Forces Tribunal, Regional Benches
-https://www.livelaw.in/job-updates/registrar-and-joint-registrar-vacancy-at-armed-forces-tribunal-regional-benches-526376
-
-[Read on Telegram](https://t.me/livelawindia/106845)
-
----
-### 2026-03-14T04:53:13+00:00
-Consultant (Global Issues) in UNES Division Vacancy At United Nations Economic & Social Division, Ministry Of External Affairs
-https://www.livelaw.in/job-updates/consultant-global-issues-in-unes-division-vacancy-at-united-nations-economic-social-division-ministry-of-external-affairs-526378
-
-[Read on Telegram](https://t.me/livelawindia/106846)
-
----
-### 2026-03-14T04:54:53+00:00
-Civil Judge (Junior Division)-Cum-Judicial Magistrate First Class Examination 2026 [Apply Now]
-https://www.livelaw.in/job-updates/civil-judge-junior-division-cum-judicial-magistrate-first-class-examination-2026-526379
-
-[Read on Telegram](https://t.me/livelawindia/106847)
-
----
-### 2026-03-14T04:56:33+00:00
-Young Professional (Legal) Vacancy At EdCIL (India) Limited
-https://www.livelaw.in/job-updates/young-professional-legal-vacancy-at-edcil-india-limited-526380
-
-[Read on Telegram](https://t.me/livelawindia/106848)
-
----
-### 2026-03-14T05:07:52+00:00
-Court Officer Vacancy At National Company Law Tribunal, Bengaluru Bench
-https://www.livelaw.in/job-updates/court-officer-vacancy-at-national-company-law-tribunal-bengaluru-bench-526381
-
-[Read on Telegram](https://t.me/livelawindia/106849)
-
----
-### 2026-03-14T05:18:42+00:00
-Can't Restrict Number Of Namaz Worshipers On Law & Order Ground; Resign If Unable To Do Duty : Allahabad High Court To Sambhal SP, Collector
-https://www.livelaw.in/top-stories/cant-restrict-number-of-namaz-worshipers-on-law-order-ground-resign-allahabad-high-court-to-sambhal-sp-collector-526383
-
-[Read on Telegram](https://t.me/livelawindia/106850)
-
----
-### 2026-03-14T05:22:02+00:00
-Gujarat High Court Allows Undertrial To Be Taken Home In Police Custody To Perform Pet Dog's Last Rites
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-undertrial-husband-last-rites-pet-dog-526384
-
-[Read on Telegram](https://t.me/livelawindia/106851)
-
----
-### 2026-03-14T05:27:22+00:00
-Supreme Court Notifies Composition Of 9-Judge Bench Hearing Reference On 'Industry' Definition
-https://www.livelaw.in/top-stories/supreme-court-notifies-composition-of-9-judge-bench-hearing-reference-on-industry-definition-526386
-
-[Read on Telegram](https://t.me/livelawindia/106852)
-
----
-### 2026-03-14T05:29:22+00:00
-State Undertakes Before Kerala High Court To Ensure Uninterrupted Service Of Sanitation Workers At Sabarimala
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sanitation-workers-sabarimala-526388
-
-[Read on Telegram](https://t.me/livelawindia/106853)
-
----
-### 2026-03-14T05:37:22+00:00
-Kerala High Court Upholds Direction To Implead Local SHO In Bank Account Defreezing Petitions
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-direction-implead-local-sho-bank-account-defreezing-526387
-
-[Read on Telegram](https://t.me/livelawindia/106854)
-
----
-### 2026-03-14T05:44:22+00:00
-Supreme Court Upholds Conviction Of Excise Inspector In 35-Year-Old Bribery Case, Reduces Sentence Since Convict Now 75 Yr Old
-https://www.livelaw.in/supreme-court/supreme-court-upholds-conviction-of-excise-inspector-in-35-year-old-bribery-case-reduces-sentence-since-convict-now-75-yr-old-526394
-
-[Read on Telegram](https://t.me/livelawindia/106855)
-
----
 ### 2026-03-14T05:45:22+00:00
 Counsellor Vacancy At Family Court, Dungarpur, Rajasthan
 https://www.livelaw.in/job-updates/counsellor-vacancy-at-family-court-dungarpur-rajasthan-526395
@@ -142,5 +51,96 @@ Children In The Crossfire: International Law And Child Rights Amid Armed Conflic
 https://www.livelaw.in/articles/children-crossfire-international-law-child-rights-amid-armed-conflict-526407
 
 [Read on Telegram](https://t.me/livelawindia/106862)
+
+---
+### 2026-03-14T06:57:33+00:00
+Kerala High Court Flags Irregularities In Accounting Of Ghee Sales In Sabarimala, Calls For Audit Dept Report
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ghee-sales-sabarimala-audit-526390
+
+[Read on Telegram](https://t.me/livelawindia/106863)
+
+---
+### 2026-03-14T07:12:43+00:00
+Service Benefits To Missing CRPF Constable's Father Can't Be Denied For Want Of Lodging Separate FIR: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-crpf-constable-separate-fir-service-benefits-526391
+
+[Read on Telegram](https://t.me/livelawindia/106864)
+
+---
+### 2026-03-14T08:39:17+00:00
+P&H High Court Denies Bail To YouTuber Jyoti Rani Accused Of Spying For Pakistan
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-denies-bail-to-youtuber-jyoti-rana-accused-of-espionage-passing-sensitive-information-to-pakistan-526414
+
+[Read on Telegram](https://t.me/livelawindia/106865)
+
+---
+### 2026-03-14T08:41:17+00:00
+Attempt To Settle Dispute Cannot Prevent Police From Taking Cognizance Of Crime : Supreme Court
+https://www.livelaw.in/supreme-court/attempt-to-settle-dispute-cannot-prevent-police-from-taking-cognizance-of-crime-supreme-court-526415
+
+[Read on Telegram](https://t.me/livelawindia/106866)
+
+---
+### 2026-03-14T08:42:38+00:00
+'Why Was Evidence Of Bangladeshi Trafficking Victim Not Recorded?' Bombay HC Seeks Explanation From Trial Court Over Repatriation Of Woman
+https://www.livelaw.in/high-court/bombay-high-court/why-was-evidence-of-bangladeshi-victim-not-recorded-bombay-high-court-seeks-explanation-from-trial-court-over-repatriation-of-woman-526392
+
+[Read on Telegram](https://t.me/livelawindia/106867)
+
+---
+### 2026-03-14T08:59:08+00:00
+Supreme Court Seeks Report From Union & States On Removal Of Encroachments From Ganga Banks
+https://www.livelaw.in/top-stories/supreme-court-seeks-report-from-union-states-on-removal-of-encroachments-from-ganga-banks-526417
+
+[Read on Telegram](https://t.me/livelawindia/106868)
+
+---
+### 2026-03-14T09:25:48+00:00
+National Lok Adalat at Punjab & Haryana High Court Settles 225 Cases, Awards ₹9.44 Crore in Motor Accident Claims
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/national-lok-adalat-at-punjab-haryana-high-court-settles-225-cases-awards-944-crore-in-motor-accident-claims-526421
+
+[Read on Telegram](https://t.me/livelawindia/106869)
+
+---
+### 2026-03-14T09:37:08+00:00
+'Highly Educated Woman In Police Dept Couldn't Have Continued 13-Yr Relationship Without Consent': MP HC Quashes FIR Against Army Officer
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-quashes-fir-against-army-officer-observes-false-pretext-of-marriage-allegation-not-tenable-as-woman-was-highly-educated-and-working-in-police-department-526398
+
+[Read on Telegram](https://t.me/livelawindia/106870)
+
+---
+### 2026-03-14T09:43:08+00:00
+"Digital Gold Platform Cannot Escape Law Merely By 'Cosmetic Garb' Of Transactions": Karnataka HC Refuses To Quash FIR Against JAR App
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-digital-gold-platform-jar-gold-retail-private-limited-526393
+
+[Read on Telegram](https://t.me/livelawindia/106871)
+
+---
+### 2026-03-14T10:06:00+00:00
+The Jurisprudence Of Dignity: Evolution Of Passive Euthanasia In India
+https://www.livelaw.in/articles/passive-euthanasia-jurisprudence-526423
+
+[Read on Telegram](https://t.me/livelawindia/106872)
+
+---
+### 2026-03-14T10:06:20+00:00
+How Supreme Court Dealt With Sonam Wangchuk's Detention: A Look At Questions Posed During Hearing
+https://www.livelaw.in/top-stories/how-supreme-court-dealt-with-sonam-wangchuks-detention-a-look-at-questions-posed-during-hearing-526424
+
+[Read on Telegram](https://t.me/livelawindia/106873)
+
+---
+### 2026-03-14T12:00:18+00:00
+Delhi High Court To Sit On Sunday For Habeas Corpus Pleas Alleging Illegal Police Detention Of Activists
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-to-sit-on-sunday-for-habeas-corpus-pleas-alleging-illegal-police-detention-of-activists-526431
+
+[Read on Telegram](https://t.me/livelawindia/106874)
+
+---
+### 2026-03-14T12:46:28+00:00
+Justice Vikram Nath Inaugurates Mobile Lok Adalat Vans Of Telangana State Legal Services Authority
+https://www.livelaw.in/news-updates/justice-vikram-nath-inaugurates-mobile-lok-adalat-vans-of-telangana-state-legal-services-authority-526433
+
+[Read on Telegram](https://t.me/livelawindia/106875)
 
 ---
