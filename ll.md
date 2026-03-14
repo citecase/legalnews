@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-13T11:58:41+00:00*
+*Last Updated: 2026-03-13T12:08:00+00:00*
 
 ---
 
-### 2026-03-13T11:58:41+00:00
-Coaching Centres Driving Opposition To 3-Year Practice Rule For Judicial Service: Justice K Vinod Chandran
-https://www.livelaw.in/top-stories/coaching-centres-driving-opposition-to-3-year-practice-rule-for-judicial-service-justice-k-vinod-chandran-526332
-
-[Read on Telegram](https://t.me/livelawindia/106821)
-
----
 ### 2026-03-13T12:08:00+00:00
 CDSCO Registration Mandatory For Cosmetic Imports Even If Goods Are Meant For Warehousing & Re-Export: Bombay High Court
 https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-cosmetics-import-mandatory-cdsco-license-526245
@@ -142,5 +135,12 @@ Jindal Global Law School Finishes Runners-Up At 2nd DSNLU Vis Pre-Moot 2026
 https://www.livelaw.in/lawschool/news/jindal-global-law-school-finishes-runners-up-2nd-dsnlu-vis-pre-moot-2026-526363
 
 [Read on Telegram](https://t.me/livelawindia/106840)
+
+---
+### 2026-03-14T02:10:20+00:00
+Lex Gazette Academy Announces 2nd Judexis Moot Court Competition 2026; Registrations Open
+https://www.livelaw.in/lawschool/moot-courts/lex-gazette-academy-announces-2nd-judexis-moot-court-competition-2026-registrations-open-526364
+
+[Read on Telegram](https://t.me/livelawindia/106841)
 
 ---
