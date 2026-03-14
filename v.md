@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-13T16:02:46+00:00*
+*Last Updated: 2026-03-14T06:52:13+00:00*
+
+---
+
+### 2026-03-14T06:52:13+00:00
+To Give Quietus To Long-Drawn Controversy: Supreme Court Orders Appointment Of 16 Candidates In 2006 KPSC Recruitment
+https://www.verdictum.in/court-updates/supreme-court/s-g-jamaludheen-v-state-of-karnataka-2026-insc-235-2006-kpsc-recruitment-motor-vehicle-inspector-1609890
+
+[Source Link](https://t.me/verdictumlegalupdates/25920)
+
+---
+
+### 2026-03-14T06:02:32+00:00
+Magistrate Has Jurisdiction Under Domestic Violence Act To Pass Injunction Order & Also Vacate Or Modify Same: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/n-k-prasannan-v-state-of-kerala-2026ker21280-magistrate-jurisdiction-dv-act-injunction-order-vacate-modify-1609841
+
+[Source Link](https://t.me/verdictumlegalupdates/25919)
+
+---
+
+### 2026-03-14T05:12:11+00:00
+Criminal Conviction Can’t Be Sustained On Mere Possibility; View Favourable To Accused Must Prevail If Evidence Admits Two Views: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/jag-ram-and-another-v-state-of-up-2026ahc51268-db-criminal-conviction-possibility-accused-two-views-1609839
+
+[Source Link](https://t.me/verdictumlegalupdates/25918)
+
+---
+
+### 2026-03-14T04:33:20+00:00
+Delhi High Court Asks Centre And CBFC To Implement Suggestions On Accessibility Features In Movies For Disabled Persons
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/rahul-bajaj-v-mythri-movie-makers-ib-ministry-meity-cbfc-suggestions-accessibility-features-movies-disabled-person-1609850
+
+[Source Link](https://t.me/verdictumlegalupdates/25917)
 
 ---
 
@@ -129,38 +161,6 @@ Supreme Court Refuses To Entertain Plea Seeking State To Take Action Against Per
 https://www.verdictum.in/court-updates/supreme-court/refuses-entertain-plea-seeking-state-cease-desist-from-propagating-allegations-animal-fat-tirumala-laddu-prasadam-1609823
 
 [Source Link](https://t.me/verdictumlegalupdates/25901)
-
----
-
-### 2026-03-13T08:03:26+00:00
-Supreme Court Takes Suo Motu Cognizance Against Illegal Sand Mining In National Chambal Sanctuary And Threats To Endangered Gharials
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-takes-suo-motu-cognizance-against-illegal-sand-mining-in-national-chambal-sanctuary-and-threats-to-endangered-gharials-1609811
-
-[Source Link](https://t.me/verdictumlegalupdates/25900)
-
----
-
-### 2026-03-13T07:33:05+00:00
-It Is An Affirmative Right But Think About Employer Who Needs To Give Paid Leave: Apex Court Refuses To Entertain Plea Seeking Menstrual Leave Policy
-https://www.verdictum.in/court-updates/supreme-court/it-is-an-affirmative-right-but-think-about-employer-who-needs-to-give-paid-leave-apex-court-refuses-to-entertain-plea-seeking-menstrual-leave-policy-1609814
-
-[Source Link](https://t.me/verdictumlegalupdates/25899)
-
----
-
-### 2026-03-13T07:01:04+00:00
-Lokpal Need Not Comply Fresh Sanction Directions: Apex Court On Delhi HC’s Direction To Lokpal In Alleged 'Cash-For-Query' Row Against Mahua Moitra
-https://www.verdictum.in/court-updates/supreme-court/stays-delhi-hc-direction-lokpal-fresh-sanction-against-mahua-moitra-alleged-cash-fo-query-row-1609813
-
-[Source Link](https://t.me/verdictumlegalupdates/25898)
-
----
-
-### 2026-03-13T06:32:22+00:00
-Indian Designers Would Know They Have Enforceable Legal Rights: Calcutta High Court Holds GUI Can Qualify As ‘Design’ Under Designs Act
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/nec-corporation-v-the-controller-of-patents-and-designs-2026chc-0869-graphic-user-interface-gui-designs-act-1609805
-
-[Source Link](https://t.me/verdictumlegalupdates/25897)
 
 ---
 
