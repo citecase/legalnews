@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-15T06:02:37+00:00*
+*Last Updated: 2026-03-15T12:02:22+00:00*
+
+---
+
+### 2026-03-15T12:02:22+00:00
+Measure Of Good Governance In Social Welfare State, Not Privacy Violation: Kerala High Court On WhatsApp Message By CM’s Office On DA Hike
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/dr-rasheed-ahammed-p-v-state-of-kerala-2026ker21429-cmo-whatsapp-dra-message-privacy-violation-spark-system-1609926
+
+[Source Link](https://t.me/verdictumlegalupdates/25938)
+
+---
+
+### 2026-03-15T10:33:01+00:00
+Material From Another Commissionerate Can Be Relied Upon To Initiate Section 74 CGST Proceedings: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/additional-commissioner-of-central-tax-v-ms-vigneshwara-transport-company-wa-no-101-of-2025-s-74-cgst-act-commissionerate-1609925
+
+[Source Link](https://t.me/verdictumlegalupdates/25937)
+
+---
+
+### 2026-03-15T09:02:39+00:00
+Section 73 CPC Ensures Equality Among Unsecured Decree Holders But Does Not Override Priority Of Mortgage Or Charge: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/koshy-abraham-v-shaji-2026ker20267-section-73-civil-procedure-code-1609923
+
+[Source Link](https://t.me/verdictumlegalupdates/25936)
+
+---
+
+### 2026-03-15T07:33:18+00:00
+Presumption Of Involvement In Crime Under Official Secrets Act: Punjab & Haryana High Court Dismisses Bail Petition Of Youtuber Jyoti Malhotra In Pakistan Espionage Case
+https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/jyoti-rani-alias-jyoti-malhotra-v-state-of-haryana-2026phhc034750-pakistan-espionage-official-secrets-act-1609922
+
+[Source Link](https://t.me/verdictumlegalupdates/25935)
 
 ---
 
@@ -129,38 +161,6 @@ Magistrate Has Jurisdiction Under Domestic Violence Act To Pass Injunction Order
 https://www.verdictum.in/court-updates/high-courts/kerala-high-court/n-k-prasannan-v-state-of-kerala-2026ker21280-magistrate-jurisdiction-dv-act-injunction-order-vacate-modify-1609841
 
 [Source Link](https://t.me/verdictumlegalupdates/25919)
-
----
-
-### 2026-03-14T05:12:11+00:00
-Criminal Conviction Can’t Be Sustained On Mere Possibility; View Favourable To Accused Must Prevail If Evidence Admits Two Views: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/jag-ram-and-another-v-state-of-up-2026ahc51268-db-criminal-conviction-possibility-accused-two-views-1609839
-
-[Source Link](https://t.me/verdictumlegalupdates/25918)
-
----
-
-### 2026-03-14T04:33:20+00:00
-Delhi High Court Asks Centre And CBFC To Implement Suggestions On Accessibility Features In Movies For Disabled Persons
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/rahul-bajaj-v-mythri-movie-makers-ib-ministry-meity-cbfc-suggestions-accessibility-features-movies-disabled-person-1609850
-
-[Source Link](https://t.me/verdictumlegalupdates/25917)
-
----
-
-### 2026-03-13T16:02:46+00:00
-Legal Advisor Vacancy At Sanjay Gandhi National Park (SGNP)
-https://www.verdictum.in/job-updates/sanjay-gandhi-national-park-sgnp-1609843
-
-[Source Link](https://t.me/verdictumlegalupdates/25916)
-
----
-
-### 2026-03-13T15:32:44+00:00
-Complaints Can’t Proceed Against Directors In Their Personal Capacity When Company Which Issued Cheques Is Not Made Accused: Allahabad High Court Quashes NI Act Proceedings
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/rajiv-gupta-complaint-case-v-the-state-of-up-2026ahc-lko17690-complaints-directors-personal-capacity-cheques-ni-act-1609842
-
-[Source Link](https://t.me/verdictumlegalupdates/25915)
 
 ---
 
