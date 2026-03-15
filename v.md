@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-15T12:02:22+00:00*
+*Last Updated: 2026-03-15T15:03:05+00:00*
+
+---
+
+### 2026-03-15T15:03:05+00:00
+District Legal Services Authority (DLSA), Gondia Invites Applications For The Post Of Assistant Legal Aid Defense Counsel
+https://www.verdictum.in/job-updates/district-legal-services-authority-dlsa-1609927
+
+[Source Link](https://t.me/verdictumlegalupdates/25940)
+
+---
+
+### 2026-03-15T13:33:03+00:00
+Joint Will Does Not Automatically Become Mutual Will; Principles Of Mutuality Cannot Be Inferred & Implied By Courts: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/varnini-karthikeyan-v-padmakaran-2026ker18297-joint-will-automatically-not-mutual-will-daughter-share-mother-self-acquired-property-1609928
+
+[Source Link](https://t.me/verdictumlegalupdates/25939)
 
 ---
 
@@ -145,22 +161,6 @@ Hard To Believe That Such Grave Incident Wasn’t Disclosed By Complainant To He
 https://www.verdictum.in/court-updates/supreme-court/rajendra-ors-vstate-of-uttarakhand-2026-insc-238-grave-incident-disclosed-complainant-husband-acquittal-rape-1609897
 
 [Source Link](https://t.me/verdictumlegalupdates/25921)
-
----
-
-### 2026-03-14T06:52:13+00:00
-To Give Quietus To Long-Drawn Controversy: Supreme Court Orders Appointment Of 16 Candidates In 2006 KPSC Recruitment
-https://www.verdictum.in/court-updates/supreme-court/s-g-jamaludheen-v-state-of-karnataka-2026-insc-235-2006-kpsc-recruitment-motor-vehicle-inspector-1609890
-
-[Source Link](https://t.me/verdictumlegalupdates/25920)
-
----
-
-### 2026-03-14T06:02:32+00:00
-Magistrate Has Jurisdiction Under Domestic Violence Act To Pass Injunction Order & Also Vacate Or Modify Same: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/n-k-prasannan-v-state-of-kerala-2026ker21280-magistrate-jurisdiction-dv-act-injunction-order-vacate-modify-1609841
-
-[Source Link](https://t.me/verdictumlegalupdates/25919)
 
 ---
 
