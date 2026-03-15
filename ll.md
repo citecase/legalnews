@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-14T08:59:08+00:00*
+*Last Updated: 2026-03-14T17:20:53+00:00*
 
 ---
 
-### 2026-03-14T08:59:08+00:00
-Supreme Court Seeks Report From Union & States On Removal Of Encroachments From Ganga Banks
-https://www.livelaw.in/top-stories/supreme-court-seeks-report-from-union-states-on-removal-of-encroachments-from-ganga-banks-526417
-
-[Read on Telegram](https://t.me/livelawindia/106868)
-
----
-### 2026-03-14T09:25:48+00:00
-National Lok Adalat at Punjab & Haryana High Court Settles 225 Cases, Awards ₹9.44 Crore in Motor Accident Claims
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/national-lok-adalat-at-punjab-haryana-high-court-settles-225-cases-awards-944-crore-in-motor-accident-claims-526421
-
-[Read on Telegram](https://t.me/livelawindia/106869)
-
----
-### 2026-03-14T09:37:08+00:00
-'Highly Educated Woman In Police Dept Couldn't Have Continued 13-Yr Relationship Without Consent': MP HC Quashes FIR Against Army Officer
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-quashes-fir-against-army-officer-observes-false-pretext-of-marriage-allegation-not-tenable-as-woman-was-highly-educated-and-working-in-police-department-526398
-
-[Read on Telegram](https://t.me/livelawindia/106870)
-
----
-### 2026-03-14T09:43:08+00:00
-"Digital Gold Platform Cannot Escape Law Merely By 'Cosmetic Garb' Of Transactions": Karnataka HC Refuses To Quash FIR Against JAR App
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-digital-gold-platform-jar-gold-retail-private-limited-526393
-
-[Read on Telegram](https://t.me/livelawindia/106871)
-
----
-### 2026-03-14T10:06:00+00:00
-The Jurisprudence Of Dignity: Evolution Of Passive Euthanasia In India
-https://www.livelaw.in/articles/passive-euthanasia-jurisprudence-526423
-
-[Read on Telegram](https://t.me/livelawindia/106872)
-
----
-### 2026-03-14T10:06:20+00:00
-How Supreme Court Dealt With Sonam Wangchuk's Detention: A Look At Questions Posed During Hearing
-https://www.livelaw.in/top-stories/how-supreme-court-dealt-with-sonam-wangchuks-detention-a-look-at-questions-posed-during-hearing-526424
-
-[Read on Telegram](https://t.me/livelawindia/106873)
-
----
-### 2026-03-14T12:00:18+00:00
-Delhi High Court To Sit On Sunday For Habeas Corpus Pleas Alleging Illegal Police Detention Of Activists
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-to-sit-on-sunday-for-habeas-corpus-pleas-alleging-illegal-police-detention-of-activists-526431
-
-[Read on Telegram](https://t.me/livelawindia/106874)
-
----
-### 2026-03-14T12:46:28+00:00
-Justice Vikram Nath Inaugurates Mobile Lok Adalat Vans Of Telangana State Legal Services Authority
-https://www.livelaw.in/news-updates/justice-vikram-nath-inaugurates-mobile-lok-adalat-vans-of-telangana-state-legal-services-authority-526433
-
-[Read on Telegram](https://t.me/livelawindia/106875)
-
----
-### 2026-03-14T17:08:13+00:00
-1st National Lok Adalat Of 2026 Resolves 2.84 Crore Cases With Settlement Value Of ₹10,920.47 Crore
-https://www.livelaw.in/news-updates/1st-national-lok-adalat-of-2026-resolves-284-crore-cases-with-settlement-value-of-1092047-crore-526447
-
-[Read on Telegram](https://t.me/livelawindia/106876)
-
----
 ### 2026-03-14T17:20:53+00:00
 Sabarimala Reference: Consultation With Religious Scholars Needed Before Judicial Review Of Traditions, Kerala Tells Supreme Court
 https://www.livelaw.in/top-stories/sabarimala-reference-consultation-with-religious-scholars-needed-before-judicial-review-of-traditions-kerala-tells-supreme-court-526448
@@ -142,5 +79,68 @@ https://www.livelaw.in/job-updates/33rd-bihar-judicial-services-competitive-exam
 https://www.livelaw.in/top-stories/follow-kabbadi-raiders-discipline-in-profession-cji-surya-kant-to-graduating-law-students-526458
 
 [Read on Telegram](https://t.me/livelawindia/106887)
+
+---
+### 2026-03-15T07:21:40+00:00
+As Delhi Police Say 10 Activists Released, High Court Seeks Explanation On Reasons For Their Detention
+https://www.livelaw.in/high-court/delhi-high-court/as-delhi-police-say-10-activists-released-high-court-seeks-explanation-on-reasons-for-their-detention-526459
+
+[Read on Telegram](https://t.me/livelawindia/106888)
+
+---
+### 2026-03-15T07:52:00+00:00
+Sabarimala Review: Dabholkar's Son Seeks Intervention In Supreme Court, Says Exclusion Of Women Discriminatory
+https://www.livelaw.in/top-stories/sabarimala-review-dabholkars-son-seeks-intervention-in-supreme-court-says-exclusion-of-women-discriminatory-526460
+
+[Read on Telegram](https://t.me/livelawindia/106889)
+
+---
+### 2026-03-15T08:26:30+00:00
+Supreme Court Sets Aside Conviction Of 4 Men In Gang Rape Case Of 1998
+https://www.livelaw.in/supreme-court/supreme-court-sets-aside-conviction-of-4-men-in-gang-rape-case-of-1998-526461
+
+[Read on Telegram](https://t.me/livelawindia/106890)
+
+---
+### 2026-03-15T08:28:10+00:00
+2026 LiveLaw (SC) 243 | RAJENDRA & ORS VERSUS STATE OF UTTARAKHAND
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-243-rajendra-ors-versus-state-of-uttarakhand-526462
+
+[Read on Telegram](https://t.me/livelawindia/106891)
+
+---
+### 2026-03-15T09:54:08+00:00
+Delhi High Court CJ Rejects Arvind Kejriwal's Plea To Transfer CBI's Excise Policy Case From Justice Swarana Kanta Sharma
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-cj-rejects-arvind-kejriwals-plea-to-transfer-cbis-excise-policy-case-from-justice-swarana-kanta-sharma-526465
+
+[Read on Telegram](https://t.me/livelawindia/106892)
+
+---
+### 2026-03-15T10:32:58+00:00
+Madhya Pradesh High Court Monthly Digest: February 2026
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-monthly-digest-february-2026-525608
+
+[Read on Telegram](https://t.me/livelawindia/106893)
+
+---
+### 2026-03-15T11:41:28+00:00
+Can't Supply FIR Copy To Activists Claiming Illegal Detention: Delhi Police Tells High Court
+https://www.livelaw.in/high-court/delhi-high-court/cant-supply-fir-copy-to-activists-claiming-illegal-detention-delhi-police-tells-high-court-526467
+
+[Read on Telegram](https://t.me/livelawindia/106894)
+
+---
+### 2026-03-15T12:16:13+00:00
+Delhi High Court Calls For Sensitive Handling Of Child Victims, Says Repeated Summoning In POCSO Trials Causes Trauma
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-calls-for-sensitive-handling-of-child-victims-says-repeated-summoning-in-pocso-trials-causes-trauma-526468
+
+[Read on Telegram](https://t.me/livelawindia/106895)
+
+---
+### 2026-03-15T12:32:13+00:00
+The Mirage Of Uniformity: Why Internal Reform Must Precede A Common Code
+https://www.livelaw.in/articles/uniformity-mirage-internal-common-code-526466
+
+[Read on Telegram](https://t.me/livelawindia/106896)
 
 ---
