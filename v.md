@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-14T15:32:17+00:00*
+*Last Updated: 2026-03-15T06:02:37+00:00*
+
+---
+
+### 2026-03-15T06:02:37+00:00
+Assessment Of Loss Of Future Earnings In MACT Claims Must Be Based On Impact On Earnings, Not Mere Percentage Of Disability: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/t-harish-v-santhosh-kumar-ds-anr-nc-2026khc10099-motor-accident-1609921
+
+[Source Link](https://t.me/verdictumlegalupdates/25934)
+
+---
+
+### 2026-03-15T04:32:26+00:00
+“Painful & Pinching To Constitutional Sensitivity”: Jammu & Kashmir & Ladakh High Court Quashes Preventive Detention Order Of Pulwama’s Salesman
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/mudasir-ahmad-bhat-v-union-territory-of-jk-hcp-no147-2025-1609920
+
+[Source Link](https://t.me/verdictumlegalupdates/25933)
 
 ---
 
@@ -145,22 +161,6 @@ Complaints Can’t Proceed Against Directors In Their Personal Capacity When Com
 https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/rajiv-gupta-complaint-case-v-the-state-of-up-2026ahc-lko17690-complaints-directors-personal-capacity-cheques-ni-act-1609842
 
 [Source Link](https://t.me/verdictumlegalupdates/25915)
-
----
-
-### 2026-03-13T15:02:23+00:00
-Change In Financial Circumstances Cannot Justify Denial Of Maintenance Retrospectively When Husband Had Sufficient Earnings: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/-sg-ors-v-akg-2026dhc1808-section-125-crpc-maintenence-husband-1609837
-
-[Source Link](https://t.me/verdictumlegalupdates/25914)
-
----
-
-### 2026-03-13T14:33:12+00:00
-Reciting Bhajans, Aartis Not ‘Work’ To Qualify Pujari As ‘Workman’; Few Servants Employed Don’t Make Temple Trust ‘Industry’: Gujarat High Court
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/umeshwar-akshaywar-dubey-v-shree-sainath-sarvajanik-seva-mandal-trust-2026gujhc17531-db-aarti-bhajan-pujari-not-workman-1609840
-
-[Source Link](https://t.me/verdictumlegalupdates/25913)
 
 ---
 
