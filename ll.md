@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-14T17:20:53+00:00*
+*Last Updated: 2026-03-15T03:48:27+00:00*
 
 ---
 
-### 2026-03-14T17:20:53+00:00
-Sabarimala Reference: Consultation With Religious Scholars Needed Before Judicial Review Of Traditions, Kerala Tells Supreme Court
-https://www.livelaw.in/top-stories/sabarimala-reference-consultation-with-religious-scholars-needed-before-judicial-review-of-traditions-kerala-tells-supreme-court-526448
-
-[Read on Telegram](https://t.me/livelawindia/106877)
-
----
 ### 2026-03-15T03:48:27+00:00
 'Account Of Life Lived To Fullest' : KK Venugopal's “An Accidental Lawyer”
 https://www.livelaw.in/book-reviews/account-of-life-lived-to-fullest-kk-venugopals-an-accidental-lawyer-526449
@@ -142,5 +135,12 @@ The Mirage Of Uniformity: Why Internal Reform Must Precede A Common Code
 https://www.livelaw.in/articles/uniformity-mirage-internal-common-code-526466
 
 [Read on Telegram](https://t.me/livelawindia/106896)
+
+---
+### 2026-03-15T14:18:53+00:00
+BREAKING| Arvind Kejriwal Moves Supreme Court To Transfer CBI Liquor Policy Case From Justice Swarana Kant Sharma
+https://www.livelaw.in/top-stories/arvind-kejriwal-moves-supreme-court-seeking-to-transfer-cbi-plea-against-liquor-policy-discharge-from-justice-sk-sharmas-bench-526473
+
+[Read on Telegram](https://t.me/livelawindia/106897)
 
 ---
