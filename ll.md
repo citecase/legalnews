@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-14T05:56:42+00:00*
+*Last Updated: 2026-03-14T08:59:08+00:00*
 
 ---
 
-### 2026-03-14T05:56:42+00:00
-Completing Class 8 After Age 14 Not Illegal Under RTE Act: HP High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-completing-class8-rte-act-526400
-
-[Read on Telegram](https://t.me/livelawindia/106858)
-
----
-### 2026-03-14T06:02:43+00:00
-Kerala High Court Asks State Whether Suchitwa Mission Can Provide Expertise To Remove Pilgrims' Clothes Discarded In Pampa River
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-pampa-river-pilgrims-clothes-sabarimala-526389
-
-[Read on Telegram](https://t.me/livelawindia/106859)
-
----
-### 2026-03-14T06:29:52+00:00
-BREAKING| Centre Revokes Detention Of Sonam Wangchuk Under National Security Act
-https://www.livelaw.in/top-stories/centre-revokes-detention-of-sonam-wangchuk-under-national-security-act-526404
-
-[Read on Telegram](https://t.me/livelawindia/106860)
-
----
-### 2026-03-14T06:32:52+00:00
-Quantity Of Contraband Not Relevant For Preventive Detention Under PITNDPS Act: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-quantity-ndps-detention-order-illicit-traffic-526399
-
-[Read on Telegram](https://t.me/livelawindia/106861)
-
----
-### 2026-03-14T06:42:13+00:00
-Children In The Crossfire: International Law And Child Rights Amid Armed Conflict
-https://www.livelaw.in/articles/children-crossfire-international-law-child-rights-amid-armed-conflict-526407
-
-[Read on Telegram](https://t.me/livelawindia/106862)
-
----
-### 2026-03-14T06:57:33+00:00
-Kerala High Court Flags Irregularities In Accounting Of Ghee Sales In Sabarimala, Calls For Audit Dept Report
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ghee-sales-sabarimala-audit-526390
-
-[Read on Telegram](https://t.me/livelawindia/106863)
-
----
-### 2026-03-14T07:12:43+00:00
-Service Benefits To Missing CRPF Constable's Father Can't Be Denied For Want Of Lodging Separate FIR: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-crpf-constable-separate-fir-service-benefits-526391
-
-[Read on Telegram](https://t.me/livelawindia/106864)
-
----
-### 2026-03-14T08:39:17+00:00
-P&H High Court Denies Bail To YouTuber Jyoti Rani Accused Of Spying For Pakistan
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-denies-bail-to-youtuber-jyoti-rana-accused-of-espionage-passing-sensitive-information-to-pakistan-526414
-
-[Read on Telegram](https://t.me/livelawindia/106865)
-
----
-### 2026-03-14T08:41:17+00:00
-Attempt To Settle Dispute Cannot Prevent Police From Taking Cognizance Of Crime : Supreme Court
-https://www.livelaw.in/supreme-court/attempt-to-settle-dispute-cannot-prevent-police-from-taking-cognizance-of-crime-supreme-court-526415
-
-[Read on Telegram](https://t.me/livelawindia/106866)
-
----
-### 2026-03-14T08:42:38+00:00
-'Why Was Evidence Of Bangladeshi Trafficking Victim Not Recorded?' Bombay HC Seeks Explanation From Trial Court Over Repatriation Of Woman
-https://www.livelaw.in/high-court/bombay-high-court/why-was-evidence-of-bangladeshi-victim-not-recorded-bombay-high-court-seeks-explanation-from-trial-court-over-repatriation-of-woman-526392
-
-[Read on Telegram](https://t.me/livelawindia/106867)
-
----
 ### 2026-03-14T08:59:08+00:00
 Supreme Court Seeks Report From Union & States On Removal Of Encroachments From Ganga Banks
 https://www.livelaw.in/top-stories/supreme-court-seeks-report-from-union-states-on-removal-of-encroachments-from-ganga-banks-526417
@@ -142,5 +72,75 @@ Sabarimala Reference: Consultation With Religious Scholars Needed Before Judicia
 https://www.livelaw.in/top-stories/sabarimala-reference-consultation-with-religious-scholars-needed-before-judicial-review-of-traditions-kerala-tells-supreme-court-526448
 
 [Read on Telegram](https://t.me/livelawindia/106877)
+
+---
+### 2026-03-15T03:48:27+00:00
+'Account Of Life Lived To Fullest' : KK Venugopal's “An Accidental Lawyer”
+https://www.livelaw.in/book-reviews/account-of-life-lived-to-fullest-kk-venugopals-an-accidental-lawyer-526449
+
+[Read on Telegram](https://t.me/livelawindia/106878)
+
+---
+### 2026-03-15T04:32:37+00:00
+Bharatiya Nagarik Suraksha Sanhita (BNSS) And Bhartiya Nyaya Sanhita (BNS) Monthly Digest: February 2026
+https://www.livelaw.in/top-stories/bnss-bns-monthly-digest-february-2026-525390
+
+[Read on Telegram](https://t.me/livelawindia/106879)
+
+---
+### 2026-03-15T05:48:46+00:00
+From Conflict To Compassion: Family Court Mediation Brings Amicable Resolution
+https://www.livelaw.in/news-updates/family-court-mediation-matrimonial-case-settlement-success-story-526451
+
+[Read on Telegram](https://t.me/livelawindia/106880)
+
+---
+### 2026-03-15T06:10:28+00:00
+Assistant Manager Vacancy At KPMG India [Apply Now]
+https://www.livelaw.in/job-updates/assistant-manager-vacancy-at-kpmg-india-526452
+
+[Read on Telegram](https://t.me/livelawindia/106881)
+
+---
+### 2026-03-15T06:12:08+00:00
+Chief Legal Aid Defense Counsel And Assistant Legal Aid Defense Of Counsel Vacancy At District Legal Services Authority, Sonitpur
+https://www.livelaw.in/job-updates/chief-legal-aid-defense-counsel-and-assistant-legal-aid-defense-of-counsel-vacancy-at-district-legal-services-authority-sonitpur-526453
+
+[Read on Telegram](https://t.me/livelawindia/106882)
+
+---
+### 2026-03-15T06:13:48+00:00
+Civil Judge (Junior Division)-Cum-Judicial Magistrate First Class (Grade-III) Vacancy At Meghalaya Judicial Service
+https://www.livelaw.in/job-updates/civil-judge-junior-division-cum-judicial-magistrate-first-class-grade-iii-vacancy-at-meghalaya-judicial-service-526454
+
+[Read on Telegram](https://t.me/livelawindia/106883)
+
+---
+### 2026-03-15T06:15:28+00:00
+Legal Advisor Vacancy At Sanjay Gandhi National Park (SGNP), Mumbai
+https://www.livelaw.in/job-updates/legal-advisor-vacancy-at-sanjay-gandhi-national-park-sgnp-mumbai-526455
+
+[Read on Telegram](https://t.me/livelawindia/106884)
+
+---
+### 2026-03-15T06:17:48+00:00
+Member (Law) Vacancy At Assam Electricity Regulatory Commission
+https://www.livelaw.in/job-updates/member-law-vacancy-at-assam-electricity-regulatory-commission-526456
+
+[Read on Telegram](https://t.me/livelawindia/106885)
+
+---
+### 2026-03-15T06:19:48+00:00
+33rd Bihar Judicial Services Competitive Examination [Apply Now]
+https://www.livelaw.in/job-updates/33rd-bihar-judicial-services-competitive-examination-526457
+
+[Read on Telegram](https://t.me/livelawindia/106886)
+
+---
+### 2026-03-15T06:53:58+00:00
+'Follow Kabbadi Raider's Discipline In Profession': CJI Surya Kant To Graduating Law Students
+https://www.livelaw.in/top-stories/follow-kabbadi-raiders-discipline-in-profession-cji-surya-kant-to-graduating-law-students-526458
+
+[Read on Telegram](https://t.me/livelawindia/106887)
 
 ---
