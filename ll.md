@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-16T05:02:27+00:00*
+*Last Updated: 2026-03-16T10:13:49+00:00*
 
 ---
 
-### 2026-03-16T05:02:27+00:00
-Banks Must Show Empathy Toward Employees With Medical Ailments; Can't Rigidly Follow Transfer Circulars: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-sbi-physically-dependent-employee-transfer-526490
+### 2026-03-16T10:13:49+00:00
+Union Minister Hardeep Puri's Daughter Moves Delhi High Court Against 'Defamatory' Content Linking Her To Jeffery Epstein
+https://www.livelaw.in/high-court/delhi-high-court/epstein-report-hardeep-puri-daughter-defamation-526578
 
-[Read on Telegram](https://t.me/livelawindia/106905)
-
----
-### 2026-03-16T05:06:47+00:00
-Delhi District Commission Holds Star Health Liable For Deficiency In Service For Wrongful Denial Of Insurance Claim
-https://www.livelaw.in/consumer-cases/delhi-district-commission-holds-star-health-liable-for-deficiency-in-service-for-wrongful-denial-of-insurance-claim-526498
-
-[Read on Telegram](https://t.me/livelawindia/106906)
+[Read on Telegram](https://t.me/livelawindia/106947)
 
 ---
-### 2026-03-16T05:10:27+00:00
-Appeals Filed Beyond 90 Days Under NIA Act Impermissible; Limitation Act Inapplicable: Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-appeals-beyond-90-days-nia-act-limitation-act-526502
+### 2026-03-16T10:18:09+00:00
+Suraj Lama Case: Kerala High Court Allows Amendment Alleging State Negligence Led To Death, Seeking Compensation
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-application-amend-pleadings-suraj-lama-missing-case-526573
 
-[Read on Telegram](https://t.me/livelawindia/106907)
-
----
-### 2026-03-16T05:17:28+00:00
-Reversion For Lack Of  Qualification After 18  Service Valid, But Pension Can Be Fixed Based On Higher Post: Andhra Pradesh HC
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/reversion-for-lack-of-qualification-after-18-service-valid-but-pension-can-be-fixed-based-on-higher-post-andhra-pradesh-hc-526505
-
-[Read on Telegram](https://t.me/livelawindia/106908)
+[Read on Telegram](https://t.me/livelawindia/106948)
 
 ---
-### 2026-03-16T05:17:47+00:00
-'Child Can't Be Used As Pawn To Prove Adultery': Telangana High Court Quashes Order Directing Minor's DNA Test In Divorce Case
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-minor-child-dna-test-divorce-case-526495
+### 2026-03-16T10:26:29+00:00
+SC/ST Act Enacted To Safeguard Interest Of Community Members, Not To Be Used As Tool Against Citizens: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-sc-st-act-for-safeguarding-interest-not-tool-against-citizens-526583
 
-[Read on Telegram](https://t.me/livelawindia/106909)
-
----
-### 2026-03-16T05:20:07+00:00
-Deputy Chief Legal Aid Defense Counsel And Assistant Legal Aid Defense Of Counsel Vacancy At District Legal Services Authority, Sivasagar
-https://www.livelaw.in/job-updates/deputy-chief-legal-aid-defense-counsel-and-assistant-legal-aid-defense-of-counsel-vacancy-at-district-legal-services-authority-sivasagar-526506
-
-[Read on Telegram](https://t.me/livelawindia/106910)
+[Read on Telegram](https://t.me/livelawindia/106949)
 
 ---
-### 2026-03-16T05:32:47+00:00
-Gujarat High Court Weekly Round-Up: March 09 - March 15, 2026
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-weekly-round-up-526482
+### 2026-03-16T11:12:19+00:00
+Google & MeitY Question Maintainability Of Sri Lankan Supreme Court Judge's Writ Petition In Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/google-meity-question-maintainability-of-sri-lankan-supreme-court-judges-writ-petition-in-karnataka-high-court-526593
 
-[Read on Telegram](https://t.me/livelawindia/106911)
-
----
-### 2026-03-16T05:45:27+00:00
-Call For Applications – Supervisor (Research And Training, Victim Advocacy Project), NLUD
-https://www.livelaw.in/job-updates/call-for-applications-supervisor-research-and-training-victim-advocacy-project-nlud-526511
-
-[Read on Telegram](https://t.me/livelawindia/106912)
+[Read on Telegram](https://t.me/livelawindia/106950)
 
 ---
-### 2026-03-16T05:46:27+00:00
-Legal Researcher Vacancy At National Green Tribunal, Principal Bench, New Delhi
-https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-national-green-tribunal-principal-bench-new-delhi-526512
+### 2026-03-16T11:30:39+00:00
+Kerala High Court Directs Nurses' Union To Defer Strike Till March 19, Refers Wage Dispute With Private Hospitals To Mediation
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-nurses-strike-private-hospital-mediation-526595
 
-[Read on Telegram](https://t.me/livelawindia/106913)
-
----
-### 2026-03-16T05:47:47+00:00
-After Supreme Court's Nudge, Haryana Govt Rejects Sanction To Prosecute Prof Ali Khan Mahmudabad For Posts On 'Operation Sindoor'
-https://www.livelaw.in/top-stories/at-supreme-court-nudge-haryana-rejects-sanction-to-prosecute-prof-ali-khan-mahmudabad-operation-sindoor-526514
-
-[Read on Telegram](https://t.me/livelawindia/106914)
+[Read on Telegram](https://t.me/livelawindia/106951)
 
 ---
-### 2026-03-16T05:47:57+00:00
-Call For Applications – Supervisor – Litigation, Victim Advocacy Project, NLUD
-https://www.livelaw.in/job-updates/call-for-applications-supervisor-litigation-victim-advocacy-project-nlud-526515
+### 2026-03-16T11:33:09+00:00
+Madras High Court Weekly Round-Up: March 09 - March 15, 2026
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-march-9-to-march-15-2026-526528
 
-[Read on Telegram](https://t.me/livelawindia/106915)
-
----
-### 2026-03-16T05:48:07+00:00
-Educational Institution Can't Withhold Student's Original Certificates For Non-Payment Of Fees, No Lien On Documents: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-university-withhold-original-certificates-nonpayment-fees-526496
-
-[Read on Telegram](https://t.me/livelawindia/106916)
+[Read on Telegram](https://t.me/livelawindia/106952)
 
 ---
-### 2026-03-16T05:49:47+00:00
-Counsellor Vacancy At Family Court, Bundi, Rajasthan
-https://www.livelaw.in/job-updates/counsellor-vacancy-at-family-court-bundi-rajasthan-526516
+### 2026-03-16T11:40:49+00:00
+Supreme Court Issues Contempt Notice To DoPT Secretary Over Delay In Considering IRS Officer's ITAT Appointment
+https://www.livelaw.in/top-stories/supreme-court-issues-contempt-notice-to-dopt-secretary-over-delay-in-considering-irs-officers-itat-appointment-526597
 
-[Read on Telegram](https://t.me/livelawindia/106917)
-
----
-### 2026-03-16T06:02:17+00:00
-"Conducted Parallel Trial": Madras High Court Quashes Tamil Nadu SHRC Order Against Police In Lois Sofia Case
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-lois-sofia-shrc-order-against-police-officer-quashed-526509
-
-[Read on Telegram](https://t.me/livelawindia/106918)
+[Read on Telegram](https://t.me/livelawindia/106953)
 
 ---
-### 2026-03-16T06:15:38+00:00
-'We Can't Thrust Our Views' : Supreme Court On Plea To Reduce 5 Year LL.B Course As 4 Year
-https://www.livelaw.in/top-stories/we-cant-thrust-our-views-supreme-court-on-plea-to-reduce-5-year-llb-course-as-4-year-526518
+### 2026-03-16T11:47:49+00:00
+District Judge Acting As Reference Court Under Land Acquisition Act Functions As Civil Court: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-district-judge-acting-as-reference-court-under-land-acquisition-act-functions-as-civil-court-orders-challengeable-only-under-supervisory-jurisdiction-526504
 
-[Read on Telegram](https://t.me/livelawindia/106919)
-
----
-### 2026-03-16T06:18:18+00:00
-Victim's Appeal Against Grant Of Probation To Convict Not Maintainable Under S.372 CrPC: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-jurisdictional-error-sentence-enhancement-dissatisfaction-526510
-
-[Read on Telegram](https://t.me/livelawindia/106920)
+[Read on Telegram](https://t.me/livelawindia/106954)
 
 ---
-### 2026-03-16T06:34:25+00:00
-Ramaiah College Of Law To Host Ramaiah International Moot & ADR Conference (RIMAC 2026) On March 22
-https://www.livelaw.in/lawschool/news/ramaiah-college-of-law-to-host-ramaiah-international-moot-adr-conference-rimac-2026-on-march-22-526520
+### 2026-03-16T11:51:29+00:00
+Subsequent Bail Pleas Arising From Same FIR Should Ordinarily Be Heard By Same Judge Who Rejected Earlier Bail: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/subsequent-bail-application-before-same-judge-who-rejected-earlier-526599
 
-[Read on Telegram](https://t.me/livelawindia/106921)
-
----
-### 2026-03-16T06:47:46+00:00
-Madhya Pradesh SLSA Launches India's First 40-Hour Mediation Training Programme For Hearing-Impaired Professionals
-https://www.livelaw.in/news-updates/madhya-pradesh-slsa-launches-indias-first-40-hour-mediation-training-programme-for-hearing-impaired-professionals-526523
-
-[Read on Telegram](https://t.me/livelawindia/106922)
+[Read on Telegram](https://t.me/livelawindia/106955)
 
 ---
-### 2026-03-16T07:03:36+00:00
-Liquor Policy Case: CBI Opposes Adjournment Sought By Arvind Kejriwal, Others In Its Plea Against Discharge
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-arvind-kejriwal-cbi-plea-discharge-adjournment-526526
+### 2026-03-16T11:53:09+00:00
+Despite Statutory Status, Vaishno Devi Shrine Board Not 'State' Under Article 12 Due To Lack Of Govt Control: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-despite-statutory-status-vaishno-devi-shrine-board-not-state-under-article-12-due-to-lack-of-govt-control-jk-high-court-526600
 
-[Read on Telegram](https://t.me/livelawindia/106923)
+[Read on Telegram](https://t.me/livelawindia/106956)
 
 ---
-### 2026-03-16T07:17:36+00:00
-Anganwari Helper Has Preferential Right For  Promotion As Worker,  Transferee  Can't Claim Post: HP HC
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/anganwari-helper-has-preferential-right-for-promotion-as-worker-transferee-cant-claim-post-hp-hc-526508
+### 2026-03-16T12:07:49+00:00
+Animal Cruelty: Gujarat High Court Seeks Status Of Proposed State Amendment Banning Glue Traps To Catch Rodents
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-proposed-state-amendment-glue-traps-ban-526601
 
-[Read on Telegram](https://t.me/livelawindia/106924)
+[Read on Telegram](https://t.me/livelawindia/106957)
+
+---
+### 2026-03-16T12:12:49+00:00
+Accidental Injury Unconnected With Duty Cannot Be Treated As 'War Injuries' For Claiming War Injury Element Of Pension: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-accidental-injuries-unconnected-with-operational-duties-cannot-be-treated-as-war-casualties-or-war-injuries-for-claiming-warm-injury-element-of-pension-526500
+
+[Read on Telegram](https://t.me/livelawindia/106958)
+
+---
+### 2026-03-16T12:14:09+00:00
+Air Force Group Insurance Society Is 'State' Under Article 12 Of Constitution  : Supreme Court
+https://www.livelaw.in/supreme-court/air-force-group-insurance-society-is-state-under-article-12-of-constitution-supreme-court-526605
+
+[Read on Telegram](https://t.me/livelawindia/106959)
+
+---
+### 2026-03-16T12:15:29+00:00
+2026 LiveLaw (SC) 244 | RAVI KHOKHAR & ORS Versus UNION OF INDIA & ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-244-ravi-khokhar-ors-versus-union-of-india-ors-526606
+
+[Read on Telegram](https://t.me/livelawindia/106960)
+
+---
+### 2026-03-16T12:22:09+00:00
+Bombay HC Quashes Midnight Cancellation Of Christian Prayer Event Over 'Miracle Healing' Claims; Orders Compliance With Black Magic Act
+https://www.livelaw.in/high-court/bombay-high-court/christian-prayer-event-restores-praying-to-jesus-cures-cancer-claims-black-magic-law-526602
+
+[Read on Telegram](https://t.me/livelawindia/106961)
+
+---
+### 2026-03-16T12:32:59+00:00
+The Right To Die, With Dignity
+https://www.livelaw.in/articles/right-to-die-with-dignity-526610
+
+[Read on Telegram](https://t.me/livelawindia/106962)
+
+---
+### 2026-03-16T12:33:09+00:00
+AI Technology Must Be Used To Assist Judges, Not Replace Them: Bombay High Court Justice Ravindra Ghuge
+https://www.livelaw.in/news-updates/ai-in-judiciary-cant-replace-judges-conscience-decision-making-526607
+
+[Read on Telegram](https://t.me/livelawindia/106963)
+
+---
+### 2026-03-16T12:47:20+00:00
+Entire Funds In Account Can't Be Presumed 'Proceeds Of Crime': Karnataka High Court In WinZO Case
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-ed-appeal-winzo-group-pay-employees-526608
+
+[Read on Telegram](https://t.me/livelawindia/106964)
+
+---
+### 2026-03-16T12:53:17+00:00
+Preventive Detention Cannot Be Invoked For Alleged Transport Of Bovine Animals Without Permit Unless Public Order Impacted: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-preventive-detention-cannot-be-invoked-solely-for-alleged-transportation-of-bovine-animals-without-permission-in-absence-of-public-order-impact-526532
+
+[Read on Telegram](https://t.me/livelawindia/106965)
+
+---
+### 2026-03-16T12:57:17+00:00
+Meghalaya HC Quashes Garo Hills ADC Notification Requiring ST Certificate For Election Nomination, Says Executive Committee Lacks Power
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-ghadc-notification-st-certificate-poll-candidates-526598
+
+[Read on Telegram](https://t.me/livelawindia/106966)
 
 ---
