@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-15T15:03:05+00:00*
+*Last Updated: 2026-03-16T07:32:23+00:00*
+
+---
+
+### 2026-03-16T07:32:23+00:00
+Ensure Proper Parking Spaces, Lifts, Playgrounds & Gyms In Residential Buildings For Disabled Persons: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/ms-scc-builders-pvt-ltd-v-state-of-up-2026ahc44277-db-parking-space-lift-playground-gym-residential-buildings-1610009
+
+[Source Link](https://t.me/verdictumlegalupdates/25947)
+
+---
+
+### 2026-03-16T07:02:22+00:00
+Quantity Of Contraband Has No Determinative Relevance In Deciding Whether Detention Order Under PITNDPS Act Should Be Passed: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/jayalekshmi-l-v-state-of-kerala-ors-2026ker18316-preventive-detention-1610006
+
+[Source Link](https://t.me/verdictumlegalupdates/25946)
+
+---
+
+### 2026-03-16T06:17:21+00:00
+Supreme Quashes Criminal Proceedings Against Ashoka University Professor Ali Khan Mahmudabad For Comments On 'Operation Sindoor'
+https://www.verdictum.in/court-updates/supreme-court/closes-case-against-ashoka-professor-ali-khan-mahmudabad-after-haryana-refuses-sanction-for-prosecution-1610005
+
+[Source Link](https://t.me/verdictumlegalupdates/25945)
+
+---
+
+### 2026-03-16T06:02:20+00:00
+Supreme Court Confirms Conviction Of Excise Constable In 1990 Corruption Case, Reduces Sentence Citing Old Age
+https://www.verdictum.in/court-updates/supreme-court/raj-bahadur-singh-v-state-of-uttarakhand-conviction-excise-constable-corruption-sentence-old-age-1610002
+
+[Source Link](https://t.me/verdictumlegalupdates/25944)
+
+---
+
+### 2026-03-16T05:32:58+00:00
+Mere Attempt At Reconciliation Can't Prevent Police From Taking Cognizance: Supreme Court While Cancelling Anticipatory Bail In Caste-Based Violence Case
+https://www.verdictum.in/court-updates/supreme-court/kuldeep-singh-v-state-of-punjab-slp-no-crl-13439-of-2025-1610001
+
+[Source Link](https://t.me/verdictumlegalupdates/25943)
+
+---
+
+### 2026-03-16T05:02:37+00:00
+Knowledge Or Reason To Believe That Imputation Would Harm Reputation Sufficient To Attract Defamation: J&K And Ladakh High Court
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/sanjay-gupta-anr-v-prem-kumar-defamation-section-499-indian-penal-code-1609917
+
+[Source Link](https://t.me/verdictumlegalupdates/25942)
+
+---
+
+### 2026-03-16T04:32:46+00:00
+Karnataka High Court Calls For Greater Inter-State Police Coordination In Missing Persons Cases; Highlights Need For National Database
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/mahesh-v-state-of-karnataka-2026khc8090-missing-persons-fir-state-police-assistance-1609929
+
+[Source Link](https://t.me/verdictumlegalupdates/25941)
 
 ---
 
@@ -105,62 +161,6 @@ Minor Alterations To "Lord Ayyappa" Logo Do Not Constitute Case For Rectificatio
 https://www.verdictum.in/court-updates/high-courts/madras-high-court/2026-mhc-1056-sree-lakshmi-balaji-industries-v-sri-lakshmi-venkateswara-rice-industries-1609915
 
 [Source Link](https://t.me/verdictumlegalupdates/25928)
-
----
-
-### 2026-03-14T11:52:42+00:00
-Can’t Say That Accused Isn’t Cooperating Merely Because He Has Smart Responses; Interrogator Has To Be Smarter: Delhi High Court Grants Anticipatory Bail
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ravjeet-singh-v-central-bureau-of-investigation-2026dhc2071-accused-cooperate-smart-responses-interrogator-1609913
-
-[Source Link](https://t.me/verdictumlegalupdates/25927)
-
----
-
-### 2026-03-14T11:02:40+00:00
-No Proof Of Public Servant Discharging Duty: Allahabad High Court Sets Aside Conviction U/S. 333,333 IPC
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/rajendra-kumar-v-state-of-uttar-pradesh-2026ahc49013-public-servant-1609912
-
-[Source Link](https://t.me/verdictumlegalupdates/25926)
-
----
-
-### 2026-03-14T10:12:39+00:00
-It Is For Oil Marketing Companies To Ensure Supply Of LPG Cylinders To Protect Interests Of Consumers: Kerala High Court Upholds OMC Right To Transfer LPG Distributors
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/2026ker20906-all-india-lpg-distributors-federation-v-union-of-india-1609911
-
-[Source Link](https://t.me/verdictumlegalupdates/25925)
-
----
-
-### 2026-03-14T09:33:18+00:00
-Gaping Holes In Prosecution Case: Calcutta High Court Acquits Accused In TMC Worker Murder Case; Sets Aside Death Sentence
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/baladeb-paul-v-the-state-of-west-bengal-2026chc-as399-db-trial-court-elementary-mistake-trinamool-worker-murder-1609908
-
-[Source Link](https://t.me/verdictumlegalupdates/25924)
-
----
-
-### 2026-03-14T08:52:17+00:00
-DRT Confirmed Auction Sales Not Immune From Judicial Review Where Valuation Or Reserve Price Is Questioned: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/om-sakthi-sekar-v-v-sukumar-ors-2026-insc-237-drt-auction-review-1609905
-
-[Source Link](https://t.me/verdictumlegalupdates/25923)
-
----
-
-### 2026-03-14T08:12:16+00:00
-Government Remains Committed To Foster Environment Of Peace And Stability In Ladakh: Centre Says While Revoking Detention Of Sonam Wangchuk
-https://www.verdictum.in/court-updates/supreme-court/revokes-detention-of-sonam-wangchuk-ministry-of-home-affairs-1609904
-
-[Source Link](https://t.me/verdictumlegalupdates/25922)
-
----
-
-### 2026-03-14T07:33:14+00:00
-Hard To Believe That Such Grave Incident Wasn’t Disclosed By Complainant To Her Husband: Supreme Court Grants Acquittal in 1998 Gang Rape Case
-https://www.verdictum.in/court-updates/supreme-court/rajendra-ors-vstate-of-uttarakhand-2026-insc-238-grave-incident-disclosed-complainant-husband-acquittal-rape-1609897
-
-[Source Link](https://t.me/verdictumlegalupdates/25921)
 
 ---
 
