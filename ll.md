@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-16T10:13:49+00:00*
+*Last Updated: 2026-03-16T12:57:17+00:00*
 
 ---
 
-### 2026-03-16T10:13:49+00:00
-Union Minister Hardeep Puri's Daughter Moves Delhi High Court Against 'Defamatory' Content Linking Her To Jeffery Epstein
-https://www.livelaw.in/high-court/delhi-high-court/epstein-report-hardeep-puri-daughter-defamation-526578
-
-[Read on Telegram](https://t.me/livelawindia/106947)
-
----
-### 2026-03-16T10:18:09+00:00
-Suraj Lama Case: Kerala High Court Allows Amendment Alleging State Negligence Led To Death, Seeking Compensation
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-application-amend-pleadings-suraj-lama-missing-case-526573
-
-[Read on Telegram](https://t.me/livelawindia/106948)
-
----
-### 2026-03-16T10:26:29+00:00
-SC/ST Act Enacted To Safeguard Interest Of Community Members, Not To Be Used As Tool Against Citizens: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-sc-st-act-for-safeguarding-interest-not-tool-against-citizens-526583
-
-[Read on Telegram](https://t.me/livelawindia/106949)
-
----
-### 2026-03-16T11:12:19+00:00
-Google & MeitY Question Maintainability Of Sri Lankan Supreme Court Judge's Writ Petition In Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/google-meity-question-maintainability-of-sri-lankan-supreme-court-judges-writ-petition-in-karnataka-high-court-526593
-
-[Read on Telegram](https://t.me/livelawindia/106950)
-
----
-### 2026-03-16T11:30:39+00:00
-Kerala High Court Directs Nurses' Union To Defer Strike Till March 19, Refers Wage Dispute With Private Hospitals To Mediation
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-nurses-strike-private-hospital-mediation-526595
-
-[Read on Telegram](https://t.me/livelawindia/106951)
-
----
-### 2026-03-16T11:33:09+00:00
-Madras High Court Weekly Round-Up: March 09 - March 15, 2026
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-march-9-to-march-15-2026-526528
-
-[Read on Telegram](https://t.me/livelawindia/106952)
-
----
-### 2026-03-16T11:40:49+00:00
-Supreme Court Issues Contempt Notice To DoPT Secretary Over Delay In Considering IRS Officer's ITAT Appointment
-https://www.livelaw.in/top-stories/supreme-court-issues-contempt-notice-to-dopt-secretary-over-delay-in-considering-irs-officers-itat-appointment-526597
-
-[Read on Telegram](https://t.me/livelawindia/106953)
-
----
-### 2026-03-16T11:47:49+00:00
-District Judge Acting As Reference Court Under Land Acquisition Act Functions As Civil Court: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-district-judge-acting-as-reference-court-under-land-acquisition-act-functions-as-civil-court-orders-challengeable-only-under-supervisory-jurisdiction-526504
-
-[Read on Telegram](https://t.me/livelawindia/106954)
-
----
-### 2026-03-16T11:51:29+00:00
-Subsequent Bail Pleas Arising From Same FIR Should Ordinarily Be Heard By Same Judge Who Rejected Earlier Bail: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/subsequent-bail-application-before-same-judge-who-rejected-earlier-526599
-
-[Read on Telegram](https://t.me/livelawindia/106955)
-
----
-### 2026-03-16T11:53:09+00:00
-Despite Statutory Status, Vaishno Devi Shrine Board Not 'State' Under Article 12 Due To Lack Of Govt Control: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-despite-statutory-status-vaishno-devi-shrine-board-not-state-under-article-12-due-to-lack-of-govt-control-jk-high-court-526600
-
-[Read on Telegram](https://t.me/livelawindia/106956)
-
----
-### 2026-03-16T12:07:49+00:00
-Animal Cruelty: Gujarat High Court Seeks Status Of Proposed State Amendment Banning Glue Traps To Catch Rodents
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-proposed-state-amendment-glue-traps-ban-526601
-
-[Read on Telegram](https://t.me/livelawindia/106957)
-
----
-### 2026-03-16T12:12:49+00:00
-Accidental Injury Unconnected With Duty Cannot Be Treated As 'War Injuries' For Claiming War Injury Element Of Pension: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-accidental-injuries-unconnected-with-operational-duties-cannot-be-treated-as-war-casualties-or-war-injuries-for-claiming-warm-injury-element-of-pension-526500
-
-[Read on Telegram](https://t.me/livelawindia/106958)
-
----
-### 2026-03-16T12:14:09+00:00
-Air Force Group Insurance Society Is 'State' Under Article 12 Of Constitution  : Supreme Court
-https://www.livelaw.in/supreme-court/air-force-group-insurance-society-is-state-under-article-12-of-constitution-supreme-court-526605
-
-[Read on Telegram](https://t.me/livelawindia/106959)
-
----
-### 2026-03-16T12:15:29+00:00
-2026 LiveLaw (SC) 244 | RAVI KHOKHAR & ORS Versus UNION OF INDIA & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-244-ravi-khokhar-ors-versus-union-of-india-ors-526606
-
-[Read on Telegram](https://t.me/livelawindia/106960)
-
----
-### 2026-03-16T12:22:09+00:00
-Bombay HC Quashes Midnight Cancellation Of Christian Prayer Event Over 'Miracle Healing' Claims; Orders Compliance With Black Magic Act
-https://www.livelaw.in/high-court/bombay-high-court/christian-prayer-event-restores-praying-to-jesus-cures-cancer-claims-black-magic-law-526602
-
-[Read on Telegram](https://t.me/livelawindia/106961)
-
----
-### 2026-03-16T12:32:59+00:00
-The Right To Die, With Dignity
-https://www.livelaw.in/articles/right-to-die-with-dignity-526610
-
-[Read on Telegram](https://t.me/livelawindia/106962)
-
----
-### 2026-03-16T12:33:09+00:00
-AI Technology Must Be Used To Assist Judges, Not Replace Them: Bombay High Court Justice Ravindra Ghuge
-https://www.livelaw.in/news-updates/ai-in-judiciary-cant-replace-judges-conscience-decision-making-526607
-
-[Read on Telegram](https://t.me/livelawindia/106963)
-
----
-### 2026-03-16T12:47:20+00:00
-Entire Funds In Account Can't Be Presumed 'Proceeds Of Crime': Karnataka High Court In WinZO Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-ed-appeal-winzo-group-pay-employees-526608
-
-[Read on Telegram](https://t.me/livelawindia/106964)
-
----
-### 2026-03-16T12:53:17+00:00
-Preventive Detention Cannot Be Invoked For Alleged Transport Of Bovine Animals Without Permit Unless Public Order Impacted: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-preventive-detention-cannot-be-invoked-solely-for-alleged-transportation-of-bovine-animals-without-permission-in-absence-of-public-order-impact-526532
-
-[Read on Telegram](https://t.me/livelawindia/106965)
-
----
 ### 2026-03-16T12:57:17+00:00
 Meghalaya HC Quashes Garo Hills ADC Notification Requiring ST Certificate For Election Nomination, Says Executive Committee Lacks Power
 https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-ghadc-notification-st-certificate-poll-candidates-526598
 
 [Read on Telegram](https://t.me/livelawindia/106966)
+
+---
+### 2026-03-16T13:31:01+00:00
+'Shocking': Allahabad HC Raps Medical Board For Insensitive Counseling Of Pregnant Minor; Orders DALSA To Oversee Fresh Report
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-raps-medical-board-insensitive-counseling-pregnant-minor-summons-cmo-526618
+
+[Read on Telegram](https://t.me/livelawindia/106967)
+
+---
+### 2026-03-16T14:11:48+00:00
+9th Gary B. Born Essay Competition On International Arbitration 2026 By NLU Jodhpur: Submit By April 25
+https://www.livelaw.in/lawschool/competitions/9th-gary-b-born-essay-competition-international-arbitration-2026-nlu-jodhpur-526625
+
+[Read on Telegram](https://t.me/livelawindia/106968)
+
+---
+### 2026-03-16T14:32:28+00:00
+Case Can't Be Quashed Merely Because FIR Was Lodged Under BNS Instead Of IPC For Pre-July 2024 Offence: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-proceedings-quashed-fir-registered-bns-526627
+
+[Read on Telegram](https://t.me/livelawindia/106969)
+
+---
+### 2026-03-16T14:33:08+00:00
+"Pursue Municipal Corporation": Gujarat High Court Disposes Plea Against Notice For Removal Of '200-Yr-Old' Dargah For Road Widening
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-dargah-removal-road-widening-526580
+
+[Read on Telegram](https://t.me/livelawindia/106970)
+
+---
+### 2026-03-16T14:45:28+00:00
+NIVAARAN & Commonwealth Lawyers Association To Host Guest Lecture By Andrew Miller KC On AI's Role In Mediation Practice
+https://www.livelaw.in/news-updates/nivaaran-commonwealth-lawyers-association-host-guest-lecture-andrew-miller-526629
+
+[Read on Telegram](https://t.me/livelawindia/106971)
+
+---
+### 2026-03-16T14:52:38+00:00
+Supreme Court Again Flags “Inexplicable And Huge Delay” In Trials In Maharashtra
+https://www.livelaw.in/top-stories/supreme-court-again-flags-inexplicable-and-huge-delay-in-trials-in-maharashtra-526630
+
+[Read on Telegram](https://t.me/livelawindia/106972)
+
+---
+### 2026-03-16T14:57:38+00:00
+Property Bought From 'Proceeds Of Crime' Before PMLA Can Still Be Attached By ED If Possession Continues: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/property-bought-from-proceeds-of-crime-before-pmla-can-still-be-attached-by-ed-if-possession-continues-delhi-high-court-526631
+
+[Read on Telegram](https://t.me/livelawindia/106973)
+
+---
+### 2026-03-16T15:01:18+00:00
+Punjab & Haryana High Court Refuses Reclassification Of Punjab Kesari Group Hotel As Commercial Building Amid Setback Violations
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-refuses-punjab-kesari-group-hotel-to-be-reclassified-as-commercial-building-amid-setback-violations-526633
+
+[Read on Telegram](https://t.me/livelawindia/106974)
+
+---
+### 2026-03-16T15:06:58+00:00
+Live-In Relationship With Another Woman Not Bigamy: Karnataka High Court Quashes Wife's Case Against Septuagenarian Husband
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-proceedings-septuagenarian-husband-526634
+
+[Read on Telegram](https://t.me/livelawindia/106975)
+
+---
+### 2026-03-16T15:13:18+00:00
+'Surrender Of Possession' Under J&K Migrant Property Act Includes Constructive & Symbolic Possession: High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-surrender-of-possession-under-jk-migrant-property-act-includes-constructive-and-symbolic-possession-such-interpretation-saves-appeal-remedy-from-arbitrariness-526533
+
+[Read on Telegram](https://t.me/livelawindia/106976)
+
+---
+### 2026-03-16T15:15:18+00:00
+Scent Without Sense: Why India's Trademark Law Might Not Be Ready For Olfactory Marks
+https://www.livelaw.in/law-firms/law-firm-articles-/scent-without-sense-why-indias-trademark-law-might-not-be-ready-for-olfactory-marks-526635
+
+[Read on Telegram](https://t.me/livelawindia/106977)
+
+---
+### 2026-03-16T15:21:38+00:00
+Why Supreme Court Is Revisiting Justice Krishna Iyer's 48-Year Old Defintion Of 'Industry'
+https://www.livelaw.in/top-stories/why-supreme-court-is-revisiting-justice-krishna-iyers-48-year-old-defintion-of-industry-526636
+
+[Read on Telegram](https://t.me/livelawindia/106978)
+
+---
+### 2026-03-16T15:27:58+00:00
+Boney Kapoor And Daughters Move Madras High Court To Reject Plaint Claiming Sridevi's Property
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-boney-kapoor-property-dispute-refusal-to-reject-plaint-526637
+
+[Read on Telegram](https://t.me/livelawindia/106979)
+
+---
+### 2026-03-16T15:32:58+00:00
+From Bulandshahr To Privy Council: A Woman's Legal Battle In 19th Century British India
+https://www.livelaw.in/articles/bulandshahr-privy-council-woman-legal-battle-19thcentury-british-india-526614
+
+[Read on Telegram](https://t.me/livelawindia/106980)
+
+---
+### 2026-03-16T15:42:38+00:00
+One Person Can't Have Two Dearness Allowances: Madras High Court On Woman Claiming DA On Regular Pension Despite Receiving Family Pension
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-single-person-cannot-have-two-dearness-allowance-526632
+
+[Read on Telegram](https://t.me/livelawindia/106981)
+
+---
+### 2026-03-16T15:46:58+00:00
+DNLU Jabalpur Hosts Conference On Evolution Of Arbitration In India: Today's Scenario, Emerging Challenges & Proactive Reforms
+https://www.livelaw.in/lawschool/news/dnlu-jabalpur-hosts-conference-on-evolution-of-arbitration-in-india-todays-scenario-emerging-challenges-proactive-reforms-526640
+
+[Read on Telegram](https://t.me/livelawindia/106982)
+
+---
+### 2026-03-16T16:44:54+00:00
+'Continuous Provocation From Tobacco-Addicted Brother Led To Break Point': Bombay HC Converts Murder Conviction To Culpable Homicide
+https://www.livelaw.in/high-court/bombay-high-court/continuous-provocation-from-tobacco-addicted-brother-led-to-break-point-bombay-hc-converts-murder-conviction-to-culpable-homicide-526644
+
+[Read on Telegram](https://t.me/livelawindia/106983)
+
+---
+### 2026-03-16T16:45:34+00:00
+Delhi High Court Convicts Truck Driver For Running Over 2-Year-Old, Invokes 'Res Ipsa Loquitur' Doctrine
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-convicts-truck-driver-for-running-over-2-year-old-invokes-res-ipsa-loquitur-doctrine-526645
+
+[Read on Telegram](https://t.me/livelawindia/106984)
+
+---
+### 2026-03-16T17:06:34+00:00
+Institute Of Law, Nirma University Wins 3rd Justice Hidayatullah International Moot Court Competition, Bags ₹2 Lakh Cash Prize
+https://www.livelaw.in/lawschool/news/institute-of-law-nirma-university-wins-3rd-justice-hidayatullah-international-moot-court-competition-bags-2-lakh-cash-prize-526646
+
+[Read on Telegram](https://t.me/livelawindia/106985)
 
 ---
