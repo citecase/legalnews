@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-16T13:32:50+00:00*
+*Last Updated: 2026-03-16T16:02:26+00:00*
+
+---
+
+### 2026-03-16T16:02:26+00:00
+Law Officer Vacancy At Chennai Port Authority
+https://www.verdictum.in/job-updates/chennai-port-authority-1610044
+
+[Source Link](https://t.me/verdictumlegalupdates/25964)
+
+---
+
+### 2026-03-16T15:33:04+00:00
+High Court Can’t Reappreciate Evidence Under Article 227 When Title Dispute Is Pending And Authorities Recorded Concurrent Findings: Chhattisgarh High Court
+https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/halima-begum-v-rafiq-ahmad-ors-title-dipsute-rent-control-article-227-1610043
+
+[Source Link](https://t.me/verdictumlegalupdates/25963)
+
+---
+
+### 2026-03-16T15:03:03+00:00
+Life Imprisonment Means Natural Life; Convict Cannot Be Made To Serve Additional Consecutive Sentence After Life Term: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/ronald-james-alvares-v-the-state-of-maharashtra-2026bhc-kol1753-db-convict-additional-consecutive-sentence-after-life-term-1610042
+
+[Source Link](https://t.me/verdictumlegalupdates/25962)
+
+---
+
+### 2026-03-16T14:32:42+00:00
+Orders Passed By Bench In Matters Outside Roster Assigned By Chief Justice Are Per Se Illegal: Orissa High Court
+https://www.verdictum.in/court-updates/high-courts/orissa-high-court/ms-nkc-projects-pvt-ltd-v-chief-engineer-roads-1-bhubaneswar-roster-1610041
+
+[Source Link](https://t.me/verdictumlegalupdates/25961)
+
+---
+
+### 2026-03-16T14:03:11+00:00
+Incidental Benefits Petitioner May Get As Member Of Class No Reason Not To Entertain PIL: Jharkhand High Court
+https://www.verdictum.in/court-updates/high-courts/jharkhand-high-court/vaishnavi-v-the-state-of-jharkhand-registration-pil-selection-processes-mandating-disability-certificates-format-1610040
+
+[Source Link](https://t.me/verdictumlegalupdates/25960)
 
 ---
 
@@ -121,46 +161,6 @@ Supreme Quashes Criminal Proceedings Against Ashoka University Professor Ali Kha
 https://www.verdictum.in/court-updates/supreme-court/closes-case-against-ashoka-professor-ali-khan-mahmudabad-after-haryana-refuses-sanction-for-prosecution-1610005
 
 [Source Link](https://t.me/verdictumlegalupdates/25945)
-
----
-
-### 2026-03-16T06:02:20+00:00
-Supreme Court Confirms Conviction Of Excise Constable In 1990 Corruption Case, Reduces Sentence Citing Old Age
-https://www.verdictum.in/court-updates/supreme-court/raj-bahadur-singh-v-state-of-uttarakhand-conviction-excise-constable-corruption-sentence-old-age-1610002
-
-[Source Link](https://t.me/verdictumlegalupdates/25944)
-
----
-
-### 2026-03-16T05:32:58+00:00
-Mere Attempt At Reconciliation Can't Prevent Police From Taking Cognizance: Supreme Court While Cancelling Anticipatory Bail In Caste-Based Violence Case
-https://www.verdictum.in/court-updates/supreme-court/kuldeep-singh-v-state-of-punjab-slp-no-crl-13439-of-2025-1610001
-
-[Source Link](https://t.me/verdictumlegalupdates/25943)
-
----
-
-### 2026-03-16T05:02:37+00:00
-Knowledge Or Reason To Believe That Imputation Would Harm Reputation Sufficient To Attract Defamation: J&K And Ladakh High Court
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/sanjay-gupta-anr-v-prem-kumar-defamation-section-499-indian-penal-code-1609917
-
-[Source Link](https://t.me/verdictumlegalupdates/25942)
-
----
-
-### 2026-03-16T04:32:46+00:00
-Karnataka High Court Calls For Greater Inter-State Police Coordination In Missing Persons Cases; Highlights Need For National Database
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/mahesh-v-state-of-karnataka-2026khc8090-missing-persons-fir-state-police-assistance-1609929
-
-[Source Link](https://t.me/verdictumlegalupdates/25941)
-
----
-
-### 2026-03-15T15:03:05+00:00
-District Legal Services Authority (DLSA), Gondia Invites Applications For The Post Of Assistant Legal Aid Defense Counsel
-https://www.verdictum.in/job-updates/district-legal-services-authority-dlsa-1609927
-
-[Source Link](https://t.me/verdictumlegalupdates/25940)
 
 ---
 
