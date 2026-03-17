@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-17T07:32:56+00:00*
+*Last Updated: 2026-03-17T13:33:21+00:00*
+
+---
+
+### 2026-03-17T13:33:21+00:00
+Clearing Revenue Arrears By Coparcener Doesn’t Confer Exclusive Title Over Ancestral Property: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/kg-venkataramanasa-v-kv-honnusa-2026khc12145-revenue-arrears-ancestral-self-acquired-property-1610111
+
+[Source Link](https://t.me/verdictumlegalupdates/25983)
+
+---
+
+### 2026-03-17T13:02:59+00:00
+Society Focusing More On A Woman’s Image Than Her Achievements Exposes Its Own Intellectual Poverty: Kerala High Court While Quashing Complaint Against Actress
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/shwetha-menon-v-state-of-kerala-2026ker21805-shwetha-menon-obscenity-1610110
+
+[Source Link](https://t.me/verdictumlegalupdates/25982)
+
+---
+
+### 2026-03-17T12:32:18+00:00
+Judicial Fiat Interfering With Rules:  Supreme Court Holds Anganwadi Workers With Degrees Not Confined To 11% Quota; Eligible For 29% SSLC Quota
+https://www.verdictum.in/court-updates/supreme-court/shiny-cj-v-shalini-sreenivasan-2026-insc-242-anganwadi-workers-11-quota-29-sslc-quota-1610108
+
+[Source Link](https://t.me/verdictumlegalupdates/25981)
+
+---
+
+### 2026-03-17T12:03:17+00:00
+Father's Professional Obligations Bar Him From Early Nurturing Of Infant Despite Physical Proximity: Supreme Court Urges Centre To Make Laws On Paternity Leave
+https://www.verdictum.in/court-updates/supreme-court/2026-insc-246-hamsaanandini-nanduri-v-union-of-india-1610104
+
+[Source Link](https://t.me/verdictumlegalupdates/25980)
+
+---
+
+### 2026-03-17T11:36:16+00:00
+Cancellation Of Admission On Ground That Student Already Availed RTE 25% Reservation Scheme Not Illegal: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/sampatrao-v-the-state-of-maharashtra-2026bhc-aug11220-db-admission-rte-25-reservation-scheme-1610103
+
+[Source Link](https://t.me/verdictumlegalupdates/25979)
+
+---
+
+### 2026-03-17T11:03:15+00:00
+Adopted Child Is No Different From  “Natural” Child; Right Of Reproductive Autonomy Not Confined To Giving Birth Biologically: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/2026-insc-246-hamsaanandini-nanduri-v-union-of-india-1610101
+
+[Source Link](https://t.me/verdictumlegalupdates/25978)
+
+---
+
+### 2026-03-17T10:39:13+00:00
+Temple Authorities, Priests & Venue Managers Facilitating Child Marriage Liable U/S 11 Prohibition Of Child Marriage Act: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/sri-manjunatha-n-ors-v-the-state-of-karnataka-2026khc14634-child-marriage-1610100
+
+[Source Link](https://t.me/verdictumlegalupdates/25977)
+
+---
+
+### 2026-03-17T10:02:52+00:00
+Orissa Panchayat Samiti Act| Election Tribunal Can Declare Any Candidate Duly Elected If Returned Candidate’s Election Found Invalid: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/ramadebi-rautray-v-state-of-odisha-ors-2026-insc-243-odisha-panchayat-1610099
+
+[Source Link](https://t.me/verdictumlegalupdates/25976)
+
+---
+
+### 2026-03-17T09:33:01+00:00
+Allegations Show Dominance And Coercion, Not Mutual Consent: Karnataka High Court Refuses To Quash Rape Case Against Teacher
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/lingaraja-naik-h-v-state-of-karnataka-criminal-petition-no1168-of-2025-refuses-to-quash-rape-case-against-teacher-1610097
+
+[Source Link](https://t.me/verdictumlegalupdates/25975)
+
+---
+
+### 2026-03-17T09:02:40+00:00
+Supreme Court: Benefits Received By Deceased’s Dependants From Employer Can’t Be Deducted From Motor Accident Compensation
+https://www.verdictum.in/court-updates/supreme-court/the-managing-director-ksrtc-v-p-chandramouli-2026-insc-241-dependants-group-insurance-motor-accident-1610095
+
+[Source Link](https://t.me/verdictumlegalupdates/25974)
+
+---
+
+### 2026-03-17T08:32:39+00:00
+College Failed To Conduct Minimum Number Of Hours: Kerala High Court Grants Relief To Law Students Barred From Exams Over Attendance Shortage
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/vaibhav-y-kini-v-mahatma-gandhi-university-2026ker22618-college-law-students-attendance-shortage-1610084
+
+[Source Link](https://t.me/verdictumlegalupdates/25973)
+
+---
+
+### 2026-03-17T07:44:18+00:00
+Breaking: Women Who Adopted Child Above Age Of 3 Months Are Similarly Situated To One Who Adopted Child Below Age Of 3 Years: Supreme Court Strikes Down 3-Month Age Limit For Adoptive Mothers
+https://www.verdictum.in/court-updates/supreme-court/strikes-down-3-month-age-limit-for-adoptive-mother-1610092
+
+[Source Link](https://t.me/verdictumlegalupdates/25972)
 
 ---
 
@@ -65,102 +161,6 @@ Law Officer Vacancy At Chennai Port Authority
 https://www.verdictum.in/job-updates/chennai-port-authority-1610044
 
 [Source Link](https://t.me/verdictumlegalupdates/25964)
-
----
-
-### 2026-03-16T15:33:04+00:00
-High Court Can’t Reappreciate Evidence Under Article 227 When Title Dispute Is Pending And Authorities Recorded Concurrent Findings: Chhattisgarh High Court
-https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/halima-begum-v-rafiq-ahmad-ors-title-dipsute-rent-control-article-227-1610043
-
-[Source Link](https://t.me/verdictumlegalupdates/25963)
-
----
-
-### 2026-03-16T15:03:03+00:00
-Life Imprisonment Means Natural Life; Convict Cannot Be Made To Serve Additional Consecutive Sentence After Life Term: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/ronald-james-alvares-v-the-state-of-maharashtra-2026bhc-kol1753-db-convict-additional-consecutive-sentence-after-life-term-1610042
-
-[Source Link](https://t.me/verdictumlegalupdates/25962)
-
----
-
-### 2026-03-16T14:32:42+00:00
-Orders Passed By Bench In Matters Outside Roster Assigned By Chief Justice Are Per Se Illegal: Orissa High Court
-https://www.verdictum.in/court-updates/high-courts/orissa-high-court/ms-nkc-projects-pvt-ltd-v-chief-engineer-roads-1-bhubaneswar-roster-1610041
-
-[Source Link](https://t.me/verdictumlegalupdates/25961)
-
----
-
-### 2026-03-16T14:03:11+00:00
-Incidental Benefits Petitioner May Get As Member Of Class No Reason Not To Entertain PIL: Jharkhand High Court
-https://www.verdictum.in/court-updates/high-courts/jharkhand-high-court/vaishnavi-v-the-state-of-jharkhand-registration-pil-selection-processes-mandating-disability-certificates-format-1610040
-
-[Source Link](https://t.me/verdictumlegalupdates/25960)
-
----
-
-### 2026-03-16T13:32:50+00:00
-AFGIS Is Subject To "Deep And Pervasive Government Control"; Qualifies As State Under Article 12: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/ravi-khokhar-ors-v-union-of-india-ors-2026-insc-233-state-article-12-1610039
-
-[Source Link](https://t.me/verdictumlegalupdates/25959)
-
----
-
-### 2026-03-16T13:03:08+00:00
-Absence Of Records Leads Unerringly To Conclusion That No Arbitral Proceedings Or Awards Ever Existed: Calcutta High Court
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/srei-equipment-finance-limited-v-roadwings-international-private-limited-2026chc-os88-absence-of-records-unerringly-arbitral-awards-1610038
-
-[Source Link](https://t.me/verdictumlegalupdates/25958)
-
----
-
-### 2026-03-16T12:32:27+00:00
-Providing Third Option Of Search Before Police Officer Violates Section 50 NDPS Act: Supreme Court Upholds Acquittal In Charas Recovery Case
-https://www.verdictum.in/court-updates/supreme-court/the-state-of-himachal-pradesh-v-surat-singh-2026-insc-240-ndps-act-provisions-1610037
-
-[Source Link](https://t.me/verdictumlegalupdates/25957)
-
----
-
-### 2026-03-16T12:03:06+00:00
-Search Of Female’s Purse, Baggage, Or Containers Not "Personal Search" U/S 50 NDPS Act: Chhattisgarh High Court
-https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/sneha-goyal-v-state-of-chhattisgarh-2026cghc11759-db-female-purse-bag-vehicle-baggage-container-section-50-ndps-act-1610030
-
-[Source Link](https://t.me/verdictumlegalupdates/25956)
-
----
-
-### 2026-03-16T11:32:45+00:00
-Supreme Court Refuses To Entertain Plea By Journalist Ravi Nair Challenging Notice By Gujarat Police Over Alleged Defamatory Article Against Adani Ports & SEZ Ltd.
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-refuses-to-entertain-plea-by-journalist-ravi-nair-challenging-notice-by-gujarat-police-over-alleged-defamatory-article-against-adani-ports-sez-ltd-1610031
-
-[Source Link](https://t.me/verdictumlegalupdates/25955)
-
----
-
-### 2026-03-16T11:03:03+00:00
-Not Convincing That Woman In Police Dept. Would Maintain Prolonged Relationship In Absence Of Consent: Madhya Pradesh HC Quashes Rape On False Promise Of Marriage Case
-https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/a-v-the-state-of-madhya-pradesh-2026mphc-jbp19601-prolonged-relationship-rape-on-false-promise-of-marriage-1610029
-
-[Source Link](https://t.me/verdictumlegalupdates/25954)
-
----
-
-### 2026-03-16T10:32:22+00:00
-Bombay High Court Upholds Refusal Of Bail To Accused Involved In Trafficking Youth Under Guise Of Providing Them Overseas Employment
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/jerry-philips-jacob-v-national-investigation-agency-2026bhc-as12168-db-bail-rejection-accused-trafficking-youths-1610028
-
-[Source Link](https://t.me/verdictumlegalupdates/25953)
-
----
-
-### 2026-03-16T10:03:01+00:00
-POCSO Victims Should Not Be Repeatedly Called For Bail Hearings; Objection Could Be Recorded At First Instance Itself: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/minor-child-k-v-state-nct-of-delhi-2026dhc2046-pocso-victim-summoned-11-times-bail-hearing-1610027
-
-[Source Link](https://t.me/verdictumlegalupdates/25952)
 
 ---
 
