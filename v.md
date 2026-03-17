@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-16T16:02:26+00:00*
+*Last Updated: 2026-03-17T07:32:56+00:00*
+
+---
+
+### 2026-03-17T07:32:56+00:00
+Money Laundering Distinct From Scheduled Offence; Continued Possession Of Tainted Property After PMLA Enforcement Is A Continuing Offence: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/directorate-of-enforcement-v-ms-mahanivesh-oils-foods-pvt-ltd-2026dhc2147-db-money-laundering-possession-of-tainted-property-1610088
+
+[Source Link](https://t.me/verdictumlegalupdates/25971)
+
+---
+
+### 2026-03-17T07:06:35+00:00
+Delhi High Court Directs Removal Of Social Media Content Linking Union Minister Hardeep Puri’s Daughter To Jeffrey Epstein
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/delhi-high-court-directs-removal-of-social-media-content-linking-union-minister-hardeep-puris-daughter-to-jeffrey-epstein-1610083
+
+[Source Link](https://t.me/verdictumlegalupdates/25970)
+
+---
+
+### 2026-03-17T06:33:14+00:00
+Cow Shed Is Not "Place Within Public View": Bombay High Court Quashes FIR Under SC-ST Act
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/shailendra-bankebihari-singh-v-the-state-of-maharashtra-2026bhc-as12132-db-abuse-cow-shed-not-place-within-public-view-1610079
+
+[Source Link](https://t.me/verdictumlegalupdates/25969)
+
+---
+
+### 2026-03-17T06:02:53+00:00
+Prosecution Cannot Recall Witnesses When Accused Admits Their Depositions Recorded U/S 299 CrPC: J&K&L High Court
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/mohammad-yaqoob-beigh-v-union-territory-ut-of-jk-bail-app-132026-cw-crmm-6402025-299-crpc-prosecution-cannot-recall-witnesses-1610074
+
+[Source Link](https://t.me/verdictumlegalupdates/25968)
+
+---
+
+### 2026-03-17T05:32:52+00:00
+Bombay High Court Permits Christian Group To Conduct "Maharashtra Prayer Festival"; Directs Them To Give Undertaking On Non-Contravention Of Black Magic Act
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/hope-of-glory-ministry-trust-v-the-state-of-maharashtra-2026bhc-kol1762-db-cancelling-event-fundamental-right-to-life-1610071
+
+[Source Link](https://t.me/verdictumlegalupdates/25967)
+
+---
+
+### 2026-03-17T05:01:50+00:00
+Mutual Agreement Between Spouses Can't Dissolve Statutory Marriage Absent Proven Customs Or Decree Under Hindu Marriage Act: J&K And Ladakh High Court
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/mutual-consent-separation-jk-hindu-marriage-act-1610070
+
+[Source Link](https://t.me/verdictumlegalupdates/25966)
+
+---
+
+### 2026-03-17T04:32:39+00:00
+Conviction U/s.138 Of NI Act No Reason To Withhold Pension: Madras High Court
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/the-director-v-srinivasan-stop-pension-retired-employee-convition-negotiable-instruments-act-1610045
+
+[Source Link](https://t.me/verdictumlegalupdates/25965)
 
 ---
 
@@ -105,62 +161,6 @@ POCSO Victims Should Not Be Repeatedly Called For Bail Hearings; Objection Could
 https://www.verdictum.in/court-updates/high-courts/delhi-high-court/minor-child-k-v-state-nct-of-delhi-2026dhc2046-pocso-victim-summoned-11-times-bail-hearing-1610027
 
 [Source Link](https://t.me/verdictumlegalupdates/25952)
-
----
-
-### 2026-03-16T09:33:00+00:00
-Entrustment Of Property For Execution Of Task Sufficient To Attract Section 409 IPC: Bombay High Court Denies Default Bail To Trustee
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/robert-gragery-dsouza-v-the-state-of-maharashtra-2026bhc-as12002-entrustment-of-property-sale-trustee-agent-s-409-ipc-1610025
-
-[Source Link](https://t.me/verdictumlegalupdates/25951)
-
----
-
-### 2026-03-16T09:03:08+00:00
-We Are'nt Experts To Comment: Supreme Court Refuses To Hear Plea Regarding Potential Leakage Of Mercury From Toxic Waste Residue At Union Carbide Site In Bhopal
-https://www.verdictum.in/court-updates/supreme-court/refuses-potential-leakage-mercury-from-toxic-waste-residue-union-carbide-site-in-bhopal-1610022
-
-[Source Link](https://t.me/verdictumlegalupdates/25950)
-
----
-
-### 2026-03-16T08:32:25+00:00
-Stay Or Modification Of Trial Court’s Order Not Reflection Of Judge’s Ability Or Competence: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/sanjay-kumar-sain-v-state-of-nct-of-delhi-2026dhc2128-expunging-judicial-officer-observations-police-officer-1610018
-
-[Source Link](https://t.me/verdictumlegalupdates/25949)
-
----
-
-### 2026-03-16T08:03:04+00:00
-Lawyer Is Not Client's Agent, But Responsible Spokesman; Should Not Step Into Shoes Of Client And Disrespect Court: Karnataka High Court
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/k-ganesh-v-c-manju-2026khc12942-client-advocate-conduct-review-disrespects-court-1610016
-
-[Source Link](https://t.me/verdictumlegalupdates/25948)
-
----
-
-### 2026-03-16T07:32:23+00:00
-Ensure Proper Parking Spaces, Lifts, Playgrounds & Gyms In Residential Buildings For Disabled Persons: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/ms-scc-builders-pvt-ltd-v-state-of-up-2026ahc44277-db-parking-space-lift-playground-gym-residential-buildings-1610009
-
-[Source Link](https://t.me/verdictumlegalupdates/25947)
-
----
-
-### 2026-03-16T07:02:22+00:00
-Quantity Of Contraband Has No Determinative Relevance In Deciding Whether Detention Order Under PITNDPS Act Should Be Passed: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/jayalekshmi-l-v-state-of-kerala-ors-2026ker18316-preventive-detention-1610006
-
-[Source Link](https://t.me/verdictumlegalupdates/25946)
-
----
-
-### 2026-03-16T06:17:21+00:00
-Supreme Quashes Criminal Proceedings Against Ashoka University Professor Ali Khan Mahmudabad For Comments On 'Operation Sindoor'
-https://www.verdictum.in/court-updates/supreme-court/closes-case-against-ashoka-professor-ali-khan-mahmudabad-after-haryana-refuses-sanction-for-prosecution-1610005
-
-[Source Link](https://t.me/verdictumlegalupdates/25945)
 
 ---
 
