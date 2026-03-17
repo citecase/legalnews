@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-17T04:32:49+00:00*
+*Last Updated: 2026-03-17T11:03:03+00:00*
 
 ---
 
-### 2026-03-17T04:32:49+00:00
-Phantom Precedents: The Rise Of AI-Generated Case Law In Indian Courts
-https://www.livelaw.in/articles/phantom-precedents-ai-generated-case-law-indian-courts-526665
+### 2026-03-17T11:03:03+00:00
+Academic Arrangement Rules Can't Extend Registrar/Tutor Tenure Beyond 3 Years In Medical Colleges: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-medical-dental-education-academic-arrangement-rules-2020-cannot-extend-tenure-of-registrartutordemonstrator-posts-beyond-three-years-high-court-526653
 
-[Read on Telegram](https://t.me/livelawindia/106991)
-
----
-### 2026-03-17T04:35:49+00:00
-Person Entitled To Compensation Who Suffers Injuries Or Death Anywhere Within Precincts Of Railway Station: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-railways-fell-off-berth-compensation-526672
-
-[Read on Telegram](https://t.me/livelawindia/106992)
+[Read on Telegram](https://t.me/livelawindia/107036)
 
 ---
-### 2026-03-17T04:51:53+00:00
-'Industry' Defintion Reference : Live Updates From Supreme Court 9-Judge Bench Hearing
-https://www.livelaw.in/top-stories/industry-defintion-reference-live-updates-from-supreme-court-9-judge-bench-hearing-526674
+### 2026-03-17T11:08:23+00:00
+Sabarimala Gold Theft: Kerala High Court Stays Special Court's Observations in Thanthri Rajeev's Bail
+https://www.livelaw.in/high-court/kerala-high-court/sabarimala-gold-theft-rajeev-thanthri-observation-vigilance-court-526751
 
-[Read on Telegram](https://t.me/livelawindia/106993)
-
----
-### 2026-03-17T05:04:33+00:00
-Denial Of Compassionate Appointment To Higher Post Despite Educational Qualifications & Eligibility Is Arbitrary: Andhra Pradesh HC
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/denial-of-compassionate-appointment-to-higher-post-despite-educational-qualifications-eligibility-is-arbitrary-andhra-pradesh-hc-526676
-
-[Read on Telegram](https://t.me/livelawindia/106994)
+[Read on Telegram](https://t.me/livelawindia/107037)
 
 ---
-### 2026-03-17T05:10:33+00:00
-Supreme Court Daily Round-Up : March 16, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-march-16-2026-526678
+### 2026-03-17T11:11:23+00:00
+Karnataka High Court Issues 'Gender Neutral' Guidelines To Obtain Spouse's Financial Records In Maintenance Cases
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-issues-gender-neutral-guidelines-financial-records-spouses-526752
 
-[Read on Telegram](https://t.me/livelawindia/106995)
-
----
-### 2026-03-17T05:13:33+00:00
-Motor Accident Claim: No Deduction Of Employer-Provided Group Insurance Benefits From Compensation, Reiterates Supreme Court
-https://www.livelaw.in/supreme-court/motor-accident-claim-no-deduction-of-employer-provided-group-insurance-benefits-from-compensation-reiterates-supreme-court-526679
-
-[Read on Telegram](https://t.me/livelawindia/106996)
+[Read on Telegram](https://t.me/livelawindia/107038)
 
 ---
-### 2026-03-17T05:14:33+00:00
-2026 LiveLaw (SC) 245  |  THE MANAGING DIRECTOR, KSRTC VERSUS P. CHANDRAMOULI & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-245-the-managing-director-ksrtc-versus-p-chandramouli-ors-526680
+### 2026-03-17T11:30:23+00:00
+Kerala Govt Proposes Three-Pillar Strategy To Address Human-Wildlife Conflict, Submits Report To High Court
+https://www.livelaw.in/high-court/kerala-high-court/roadmap-human-wildlife-conflict-aralam-wayanad-review-may-526754
 
-[Read on Telegram](https://t.me/livelawindia/106997)
-
----
-### 2026-03-17T05:18:23+00:00
-“Exams About To Start”: Chhattisgarh High Court Grants Bail To Class 12 Student Accused Of Possessing 40 Litres Of Country Liquor
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-ruling-examinations-about-to-commence-bail-granted-class-12th-student-possession-40-bulk-litres-mahua-alcohol-526647
-
-[Read on Telegram](https://t.me/livelawindia/106998)
+[Read on Telegram](https://t.me/livelawindia/107039)
 
 ---
-### 2026-03-17T05:18:54+00:00
-Delhi HC Issues Summons To Arnab Goswami, Republic TV In Congress' Defamation Suit Over 'Turkey Office' Claim; No Interim Relief For Now
-https://www.livelaw.in/high-court/delhi-high-court/arnab-goswami-republic-tv-defamation-congress-turkey-office-summons-no-injunction-526681
+### 2026-03-17T11:38:03+00:00
+SSC Recruitment | Medical Opinions Obtained Independently By Candidate Can't Justify Fresh Medical Examination: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/ssc-recruitment-medical-opinions-obtained-independently-by-candidate-cant-justify-fresh-medical-examination-delhi-high-court-526686
 
-[Read on Telegram](https://t.me/livelawindia/106999)
-
----
-### 2026-03-17T05:26:34+00:00
-Giving Accused Option To Be Searched Before Police Officer Violates Section 50 NDPS Act : Supreme Court
-https://www.livelaw.in/supreme-court/giving-accused-option-to-be-searched-before-police-officer-violates-section-50-ndps-act-supreme-court-526687
-
-[Read on Telegram](https://t.me/livelawindia/107000)
+[Read on Telegram](https://t.me/livelawindia/107040)
 
 ---
-### 2026-03-17T05:28:14+00:00
-2026 LiveLaw (SC) 246 |  THE STATE OF HIMACHAL PRADESH VERSUS SURAT SINGH
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-246-the-state-of-himachal-pradesh-versus-surat-singh-526688
+### 2026-03-17T11:47:43+00:00
+Chhattisgarh High Court Quashes Appointment Of State Pharmacy Council Registrar, Says Govt Cannot Directly Appoint Under Pharmacy Act
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-state-pharmacy-council-registrar-appointed-pharmacy-council-526652
 
-[Read on Telegram](https://t.me/livelawindia/107001)
-
----
-### 2026-03-17T06:05:04+00:00
-[Advertisement] Online Certificate Course On India's New Labour Codes By IIT Kharagpur [Starts May 2; Register By April 30]
-https://www.livelaw.in/lawschool/diploma-certificate-courses/online-certificate-course-indias-new-labour-codes-iit-kharagpur-526691
-
-[Read on Telegram](https://t.me/livelawindia/107002)
+[Read on Telegram](https://t.me/livelawindia/107041)
 
 ---
-### 2026-03-17T06:13:24+00:00
-Delhi High Court Orders Takedown Of Posts Linking Union Minister Hardeep Puri's Daughter To Jeffrey Epstein, But No Global Relief
-https://www.livelaw.in/high-court/delhi-high-court/hardeep-puri-daughter-himayani-puri-defamation-jeffrey-epstein-links-summons-global-takedown-issue-526693
+### 2026-03-17T11:50:13+00:00
+Dying Declaration Full Of Suspicious Circumstances Cannot Sustain Conviction: Calcutta High Court Acquits Husband In Wife's Murder Case
+https://www.livelaw.in/high-court/calcutta-high-court/dying-declaration-full-of-suspicious-circumstances-cannot-sustain-conviction-calcutta-high-court-acquits-husband-in-wifes-murder-case-526758
 
-[Read on Telegram](https://t.me/livelawindia/107003)
-
----
-### 2026-03-17T06:16:04+00:00
-Supreme Court To Issue Guidelines To High Courts To Avoid Delay In Pronouncing Judgments; Amicus Gives Suggestsion
-https://www.livelaw.in/top-stories/supreme-court-to-issue-guidelines-to-high-courts-to-avoid-delay-in-pronouncing-judgments-amicus-gives-suggestsion-526694
-
-[Read on Telegram](https://t.me/livelawindia/107004)
+[Read on Telegram](https://t.me/livelawindia/107042)
 
 ---
-### 2026-03-17T06:26:04+00:00
-Call For Papers: 1st NLIU National Symposium On Securities Law & Capital Markets, 2026
-https://www.livelaw.in/lawschool/call-for-papers/1st-nliu-national-symposium-on-securities-law-capital-markets-2026-526697
+### 2026-03-17T12:10:53+00:00
+Residence In Forest Area And Doing Cultivation For Livelihood Necessary To Be Declared As Forest Dwellers: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-forest-dweller-residence-and-cultivation-for-livelihood-necessary-526761
 
-[Read on Telegram](https://t.me/livelawindia/107005)
-
----
-### 2026-03-17T06:37:44+00:00
-'Concealed Personal Interest': Rajasthan High Court Bars Litigant From Filing PILs In Future, Mulls Imposing ₹25 Lakh Costs
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-filing-pil-personal-interest-weighbridge-mining-operations-case-526695
-
-[Read on Telegram](https://t.me/livelawindia/107006)
+[Read on Telegram](https://t.me/livelawindia/107043)
 
 ---
-### 2026-03-17T06:39:24+00:00
-NLU Jodhpur Wins Inaugural RGNUL–SAM Legislation Drafting Competition 2026
-https://www.livelaw.in/lawschool/news/nlu-jodhpur-wins-inaugural-rgnulsam-legislation-drafting-competition-526698
+### 2026-03-17T12:12:33+00:00
+“Clerical Error In Name Cannot Defeat Statutory Right”: Bombay High Court Orders Reconsideration Of Railway Death Compensation Claim
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-compensation-claim-compensation-claim-minor-variation-526685
 
-[Read on Telegram](https://t.me/livelawindia/107007)
-
----
-### 2026-03-17T06:53:14+00:00
-Anganwadi Workers With Degree Not Barred From 29% Quota For Supervisors In Kerala: Supreme Court
-https://www.livelaw.in/supreme-court/anganwadi-workers-with-degree-not-barred-from-29-quota-for-supervisors-in-kerala-supreme-court-526699
-
-[Read on Telegram](https://t.me/livelawindia/107008)
+[Read on Telegram](https://t.me/livelawindia/107044)
 
 ---
-### 2026-03-17T06:53:24+00:00
-Co-Owner's Undertaking To Accept “Whatever Amount” On Future Sale Cannot Bar Statutory Right To Partition: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/vague-undertaking-on-future-sale-cannot-bar-partition-suit-526649
+### 2026-03-17T12:14:55+00:00
+Why Can't Information About Unclaimed Bank Accounts Of Dead Persons Be Given To Heirs? Supreme Court Asks Union, RBI
+https://www.livelaw.in/top-stories/why-cant-information-about-unclaimed-bank-accounts-of-dead-persons-be-given-to-heirs-supreme-court-asks-union-rbi-526762
 
-[Read on Telegram](https://t.me/livelawindia/107009)
+[Read on Telegram](https://t.me/livelawindia/107045)
 
 ---
-### 2026-03-17T06:54:14+00:00
-2026 LiveLaw (SC) 247 | Shiny C.J. & Ors. Versus Shalini Sreenivasan & Ors. Etc
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-247-shiny-cj-ors-versus-shalini-sreenivasan-ors-etc-526700
+### 2026-03-17T12:20:55+00:00
+Fraudulent Diversion Of Company's Funds Can't Be Cured By Subsequent Shareholder Ratification : Supreme Court
+https://www.livelaw.in/supreme-court/fraudulent-diversion-of-companys-funds-cant-be-cured-by-subsequent-shareholder-ratification-supreme-court-526765
 
-[Read on Telegram](https://t.me/livelawindia/107010)
+[Read on Telegram](https://t.me/livelawindia/107046)
+
+---
+### 2026-03-17T12:22:15+00:00
+2026 LiveLaw (SC) 248 | Securities and Exchange Board of India Versus Terrascope Ventures Limited
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-248-securities-and-exchange-board-of-india-versus-terrascope-ventures-limited-526766
+
+[Read on Telegram](https://t.me/livelawindia/107047)
+
+---
+### 2026-03-17T12:30:15+00:00
+NGT Can't Order Removal Of Encroachment Raised In Violation Of Municipal Laws : Supreme Court
+https://www.livelaw.in/supreme-court/ngt-cant-order-removal-of-encroachment-raised-in-violation-of-municipal-laws-supreme-court-526767
+
+[Read on Telegram](https://t.me/livelawindia/107048)
+
+---
+### 2026-03-17T12:31:15+00:00
+2026 LiveLaw (SC) 249  | NARENDER BHARDWAJ VERSUS M/S 108 SUPER COMPLEX R.W.A. & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-249-narender-bhardwaj-versus-ms-108-super-complex-rwa-ors-526768
+
+[Read on Telegram](https://t.me/livelawindia/107049)
+
+---
+### 2026-03-17T12:46:55+00:00
+2026 LiveLaw (SC) 250 | Hamsaanandini Nanduri v. Union of India
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-250-hamsaanandini-nanduri-v-union-of-india-526770
+
+[Read on Telegram](https://t.me/livelawindia/107050)
+
+---
+### 2026-03-17T13:02:45+00:00
+'Accused Can't Blame Father For Not Informing Him About Hearing Date After Service Of Summons': HP High Court Rejects Delay Condonation Plea
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-failed-communicate-hearing-lawful-service-summons-526654
+
+[Read on Telegram](https://t.me/livelawindia/107051)
+
+---
+### 2026-03-17T13:05:25+00:00
+Vellapally Natesan Files Appeal Before Kerala High Court Against Removal As SNDP General Secretary
+https://www.livelaw.in/high-court/kerala-high-court/vellapally-natesan-appeal-challenging-removal-sndp-general-secretary-526771
+
+[Read on Telegram](https://t.me/livelawindia/107052)
+
+---
+### 2026-03-17T13:07:25+00:00
+Gujarat Court Sentences Five Convicts To 5-Years Imprisonment In 2016 Una Flogging Case
+https://www.livelaw.in/news-updates/gujarat-court-2016-una-flogging-case-526773
+
+[Read on Telegram](https://t.me/livelawindia/107053)
+
+---
+### 2026-03-17T13:08:05+00:00
+Scheme For Reserving 25% Seats Under RTE Cannot Be Used Multiple Times For Admission Of Same Child: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/scheme-for-reserving-25-seats-under-rte-cannot-be-used-multiple-times-for-admission-of-same-child-bombay-high-court-526755
+
+[Read on Telegram](https://t.me/livelawindia/107054)
+
+---
+### 2026-03-17T13:18:05+00:00
+“Unjust To Sustain Departmental Findings After Acquittal On Identical Evidence”: Bombay High Court Quashes CISF Officer's Dismissal
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-cisf-assistant-commandant-dismissal-526683
+
+[Read on Telegram](https://t.me/livelawindia/107055)
 
 ---
