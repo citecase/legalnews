@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-17T13:33:21+00:00*
+*Last Updated: 2026-03-17T16:02:36+00:00*
+
+---
+
+### 2026-03-17T16:02:36+00:00
+Officer (Legal) Vacancy At HMT Limited
+https://www.verdictum.in/job-updates/hmt-limited-1610112
+
+[Source Link](https://t.me/verdictumlegalupdates/25988)
+
+---
+
+### 2026-03-17T15:32:15+00:00
+No Reason To Disbelieve Her: Supreme Court Upholds Husband’s Conviction For Wife’s Murder; Relies On Daughter’s Testimony & Dying Declaration
+https://www.verdictum.in/court-updates/supreme-court/subramani-v-state-of-karnataka-2026-insc-249-husbands-conviction-daughters-testimony-and-dying-declaration-1610116
+
+[Source Link](https://t.me/verdictumlegalupdates/25987)
+
+---
+
+### 2026-03-17T15:03:04+00:00
+SEBI Can Impose Penalty For PFUTP Violations Even If WTM Proceedings Exist; Illegal Diversion Of Funds Not Curable By Ratification: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/sebi-v-terrascope-ventures-limited-2026-insc-245-sebi-penalty-for-pfutp-violations-wtm-funds-not-curable-by-ratification-1610114
+
+[Source Link](https://t.me/verdictumlegalupdates/25986)
+
+---
+
+### 2026-03-17T14:33:03+00:00
+Madras High Court Dismisses Amrutanjan’s Plea Against Arrears Of Rent Worth Crores For Occupying Kapaleeswarar Temple Land
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/amrutanjan-ltd-v-the-commissioner-hr-and-ce-department-kapaleeswarar-temple-land-rent-arrears-1610119
+
+[Source Link](https://t.me/verdictumlegalupdates/25985)
+
+---
+
+### 2026-03-17T14:03:02+00:00
+Body Building Is A Species Of Gymnastics Eligible For 5% Sports Quota Under Maharashtra Sports Reservation Policy: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/deepak-asaram-pawar-v-state-of-maharashtra-ors-2026bhc-nag4318-db-1610113
+
+[Source Link](https://t.me/verdictumlegalupdates/25984)
 
 ---
 
@@ -121,46 +161,6 @@ Cow Shed Is Not "Place Within Public View": Bombay High Court Quashes FIR Under 
 https://www.verdictum.in/court-updates/high-courts/bombay-high-court/shailendra-bankebihari-singh-v-the-state-of-maharashtra-2026bhc-as12132-db-abuse-cow-shed-not-place-within-public-view-1610079
 
 [Source Link](https://t.me/verdictumlegalupdates/25969)
-
----
-
-### 2026-03-17T06:02:53+00:00
-Prosecution Cannot Recall Witnesses When Accused Admits Their Depositions Recorded U/S 299 CrPC: J&K&L High Court
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/mohammad-yaqoob-beigh-v-union-territory-ut-of-jk-bail-app-132026-cw-crmm-6402025-299-crpc-prosecution-cannot-recall-witnesses-1610074
-
-[Source Link](https://t.me/verdictumlegalupdates/25968)
-
----
-
-### 2026-03-17T05:32:52+00:00
-Bombay High Court Permits Christian Group To Conduct "Maharashtra Prayer Festival"; Directs Them To Give Undertaking On Non-Contravention Of Black Magic Act
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/hope-of-glory-ministry-trust-v-the-state-of-maharashtra-2026bhc-kol1762-db-cancelling-event-fundamental-right-to-life-1610071
-
-[Source Link](https://t.me/verdictumlegalupdates/25967)
-
----
-
-### 2026-03-17T05:01:50+00:00
-Mutual Agreement Between Spouses Can't Dissolve Statutory Marriage Absent Proven Customs Or Decree Under Hindu Marriage Act: J&K And Ladakh High Court
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/mutual-consent-separation-jk-hindu-marriage-act-1610070
-
-[Source Link](https://t.me/verdictumlegalupdates/25966)
-
----
-
-### 2026-03-17T04:32:39+00:00
-Conviction U/s.138 Of NI Act No Reason To Withhold Pension: Madras High Court
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/the-director-v-srinivasan-stop-pension-retired-employee-convition-negotiable-instruments-act-1610045
-
-[Source Link](https://t.me/verdictumlegalupdates/25965)
-
----
-
-### 2026-03-16T16:02:26+00:00
-Law Officer Vacancy At Chennai Port Authority
-https://www.verdictum.in/job-updates/chennai-port-authority-1610044
-
-[Source Link](https://t.me/verdictumlegalupdates/25964)
 
 ---
 
