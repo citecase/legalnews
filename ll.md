@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-17T13:27:45+00:00*
+*Last Updated: 2026-03-18T05:21:25+00:00*
 
 ---
 
-### 2026-03-17T13:27:45+00:00
-Service Of Showcause Notice Via Email Valid Under PMLA Regulations: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/service-of-showcause-notice-via-email-valid-under-pmla-regulations-calcutta-high-court-526759
+### 2026-03-18T05:21:25+00:00
+Mewar Royal Family Dispute: Delhi High Court Declines Padmaja Kumari's Bid To Administer Father's Estate
+https://www.livelaw.in/high-court/delhi-high-court/mewar-royal-family-dispute-delhi-high-court-declines-padmaja-kumaris-bid-to-administer-fathers-estate-526839
 
-[Read on Telegram](https://t.me/livelawindia/107056)
-
----
-### 2026-03-17T13:38:12+00:00
-Ad-Hoc Service Can't Be Ignored For Promotion If Appointment Was Not Illegal: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-employee-ad-hoc-service-ignored-illegally-juniors-promoted-526735
-
-[Read on Telegram](https://t.me/livelawindia/107057)
+[Read on Telegram](https://t.me/livelawindia/107086)
 
 ---
-### 2026-03-17T13:42:32+00:00
-Bilkis Bano Case : Supreme Court Issues Notice On 2 Convicts' Appeal Against Life Sentence For Murder & Gang Rape
-https://www.livelaw.in/top-stories/bilkis-bano-case-supreme-court-issues-notice-on-2-convicts-appeal-against-life-sentence-for-murder-gang-rape-526775
+### 2026-03-18T05:28:05+00:00
+Property Disputes Between Husband And Wife Fall Within Exclusive Jurisdiction Of Family Court: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-family-court-dispute-properties-married-couples-526842
 
-[Read on Telegram](https://t.me/livelawindia/107058)
-
----
-### 2026-03-17T13:46:32+00:00
-Wife Can't Seek Husband's IT Returns Under RTI Act For Maintenance Proceedings, Exempt Under 'Personal Information': Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-it-returns-rti-act-maintenance-proceedings-526776
-
-[Read on Telegram](https://t.me/livelawindia/107059)
+[Read on Telegram](https://t.me/livelawindia/107087)
 
 ---
-### 2026-03-17T13:47:32+00:00
-Scrutinising Contradictions And Questioning Witness Credibility Beyond Scope Of S.319 CrPC : Supreme Court
-https://www.livelaw.in/supreme-court/scrutinising-contradictions-and-questioning-witness-credibility-beyond-scope-of-s319-crpc-supreme-court-526779
+### 2026-03-18T05:33:05+00:00
+Doctor's Opinion On Victim's Consciousness Prevails Over Police Assessment In Evaluating Dying Declaration: Supreme Court
+https://www.livelaw.in/supreme-court/doctors-opinion-on-victims-consciousness-prevails-over-police-assessment-in-evaluating-dying-declaration-supreme-court-526844
 
-[Read on Telegram](https://t.me/livelawindia/107060)
-
----
-### 2026-03-17T13:49:12+00:00
-2026 LiveLaw (SC) 251 | MOHAMMAD KALEEM Versus STATE OF UTTAR PRADESH & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-251-mohammad-kaleem-versus-state-of-uttar-pradesh-ors-526780
-
-[Read on Telegram](https://t.me/livelawindia/107061)
+[Read on Telegram](https://t.me/livelawindia/107088)
 
 ---
-### 2026-03-17T14:10:42+00:00
-Madras High Court Stays Contempt Proceedings Over Thiruparankundram Deepam Row
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-thiruparankundram-contempt-case-stayed-temporarily-526785
+### 2026-03-18T05:34:05+00:00
+2206 LiveLaw (SC) 255 | SUBRAMANI VERSUS STATE OF KARNATAKA
+https://www.livelaw.in/sc-judgments/2206-livelaw-sc-255-subramani-versus-state-of-karnataka-526845
 
-[Read on Telegram](https://t.me/livelawindia/107062)
-
----
-### 2026-03-17T14:28:02+00:00
-Special Police Officers Don't Hold Civil Post, Not Entitled To Article 311 Protection: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-special-police-officer-engaged-under-section-18-of-police-act-not-entitled-to-departmental-enquiry-before-disengagement-does-not-hold-civil-post-attracting-article-311-protection-526655
-
-[Read on Telegram](https://t.me/livelawindia/107063)
+[Read on Telegram](https://t.me/livelawindia/107089)
 
 ---
-### 2026-03-17T14:32:42+00:00
-The Menstrual Manifesto: A Commentary On Dr. Jaya Thakur V. Government Of India
-https://www.livelaw.in/articles/menstrual-manifesto-drjaya-thakur-government-of-india-526675
+### 2026-03-18T05:41:45+00:00
+Telangana High Court Upholds Conduct Of Secret Ballot To Elect Majority Trade Union, Says Non-Filing Of Returns No Ground To Stall Process
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-secret-ballot-majority-union-allegations-trade-unions-526846
 
-[Read on Telegram](https://t.me/livelawindia/107064)
-
----
-### 2026-03-17T14:33:02+00:00
-PMLA Bail Granted After 3 Years' Custody; Calcutta High Court Says Article 21 Can Override Twin Conditions In Cases Of Prolonged Custody
-https://www.livelaw.in/high-court/calcutta-high-court/pmla-bail-granted-after-3-years-custody-calcutta-high-court-says-article-21-can-override-twin-conditions-in-cases-of-prolonged-custody-526763
-
-[Read on Telegram](https://t.me/livelawindia/107065)
+[Read on Telegram](https://t.me/livelawindia/107090)
 
 ---
-### 2026-03-17T14:59:12+00:00
-Welfare State Functions, Charitable Acts Can't Be Regarded As 'Industry': Centre Tells Supreme Court In 9-Judge Bench Hearing
-https://www.livelaw.in/top-stories/welfare-state-functions-charitable-acts-cant-be-regarded-as-industry-centre-tells-supreme-court-in-9-judge-bench-hearing-526795
+### 2026-03-18T05:43:05+00:00
+Calcutta High Court Denies Relief To Excise Officer Caught While Allegedly Demanding Bribe To Grant Licence
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-denies-relief-to-excise-officer-caught-while-allegedly-demanding-bribe-to-grant-licence-526847
 
-[Read on Telegram](https://t.me/livelawindia/107066)
-
----
-### 2026-03-17T15:02:52+00:00
-Dua Associates Advises The Estée Lauder Companies On Acquisition Of Forest Essentials
-https://www.livelaw.in/law-firms/deals/dua-associates-advises-the-este-lauder-companies-on-acquisition-of-forest-essentials-526796
-
-[Read on Telegram](https://t.me/livelawindia/107067)
+[Read on Telegram](https://t.me/livelawindia/107091)
 
 ---
-### 2026-03-17T15:34:32+00:00
-'Bank Bound To Follow Customer's Instruction': Supreme Court Holds Bank Liable For Wrongful Remittance To Third Party
-https://www.livelaw.in/top-stories/bank-bound-to-follow-customers-instruction-supreme-court-holds-bank-liable-for-wrongful-remittance-to-third-party-526799
+### 2026-03-18T05:45:05+00:00
+ED v West Bengal & Mamata Banerjee Over IPAC Raid : Live Updates From Supreme Court
+https://www.livelaw.in/top-stories/ed-v-west-bengal-mamata-banerjee-over-ipac-raid-live-updates-from-supreme-court-526848
 
-[Read on Telegram](https://t.me/livelawindia/107068)
-
----
-### 2026-03-17T15:35:52+00:00
-2026 LiveLaw (SC) 252 | Canara Bank Overseas Branch v. Archean Industries Pvt Ltd
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-252-canara-bank-overseas-branch-v-archean-industries-pvt-ltd-526800
-
-[Read on Telegram](https://t.me/livelawindia/107069)
+[Read on Telegram](https://t.me/livelawindia/107092)
 
 ---
-### 2026-03-17T15:43:32+00:00
-Symbiosis Law School, Noida Wins 2nd Surana & Surana – NUSRL National Criminal Law Moot Court Competition 2025–26
-https://www.livelaw.in/lawschool/news/symbiosis-law-school-noida-wins-2nd-surana-surana-nusrl-national-criminal-law-moot-court-competition-526803
+### 2026-03-18T05:51:25+00:00
+LPG Shortage: Karnataka High Court Seeks Centre's Response To Plea For Uninterrupted Cylinder Supply To Hotels, Restaurants
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-commercial-lpg-shortage-affecting-hotels-526850
 
-[Read on Telegram](https://t.me/livelawindia/107070)
-
----
-### 2026-03-17T15:58:02+00:00
-J&K&L High Court Grants Bail To NDPS Accused To Attend Minor Daughter's Surgery, Says Health Issues Of Family Of Paramount Consideration
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-health-issues-of-family-member-of-detenue-of-paramount-consideration-court-grants-bail-to-ndps-accused-to-attend-minor-daughters-surgery-526749
-
-[Read on Telegram](https://t.me/livelawindia/107071)
+[Read on Telegram](https://t.me/livelawindia/107093)
 
 ---
-### 2026-03-17T16:03:02+00:00
-Karnataka High Court Grants Bail To Woman Accused Of Raising 'Jai Bangla' Slogan, Notes She Later Shouted 'Jai Bharat Mata Ki Jai'
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-woman-hurting-national-sentiments-shouting-slogan-526806
+### 2026-03-18T05:57:25+00:00
+Magistrate Cannot Direct Police To Conduct 'Inquiry' U/S 175(3) BNSS; Must Assess Grounds Before Ordering Probe: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/magistrate-cannot-direct-police-to-conduct-inquiry-us-1753-bnss-must-assess-grounds-before-ordering-probe-calcutta-high-court-526843
 
-[Read on Telegram](https://t.me/livelawindia/107072)
-
----
-### 2026-03-17T16:18:02+00:00
-Rajasthan High Court Stays Arrest Of upGrad Director In Cheating Case Over Course Fee Refund Dispute
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-arrest-upgrad-director-cheating-course-fee-refund-526807
-
-[Read on Telegram](https://t.me/livelawindia/107073)
+[Read on Telegram](https://t.me/livelawindia/107094)
 
 ---
-### 2026-03-17T16:57:53+00:00
-Supreme Court Daily Round-Up : March 17, 2026
-https://www.livelaw.in/supreme-court/supreme-court-daily-round-up-march-17-2026-526802
+### 2026-03-18T06:15:37+00:00
+Corporate Counsel Vacancy At Amazon's Legal Department [Apply Now]
+https://www.livelaw.in/job-updates/corporate-counsel-vacancy-at-amazons-legal-department-526851
 
-[Read on Telegram](https://t.me/livelawindia/107074)
+[Read on Telegram](https://t.me/livelawindia/107095)
 
 ---
-### 2026-03-18T02:11:01+00:00
-Shun Black Robes In Family Courts To Avoid Fear In Children, Rename Them 'Family Resolution Centres' : CJI Surya Kant
-https://www.livelaw.in/top-stories/shun-black-robes-in-family-courts-to-avoid-fear-in-children-rename-them-family-resolution-centres-cji-surya-kant-526813
+### 2026-03-18T06:19:17+00:00
+Young Professional (Banking Supervision) Vacancy At International Financial Services Centres Authority
+https://www.livelaw.in/job-updates/young-professional-banking-supervision-vacancy-at-international-financial-services-centres-authority-526852
 
-[Read on Telegram](https://t.me/livelawindia/107075)
+[Read on Telegram](https://t.me/livelawindia/107096)
+
+---
+### 2026-03-18T06:20:37+00:00
+Assistant Project Manager Vacancy At Indian Institute Of Technology, Kanpur
+https://www.livelaw.in/job-updates/assistant-project-manager-vacancy-at-indian-institute-of-technology-kanpur-526853
+
+[Read on Telegram](https://t.me/livelawindia/107097)
+
+---
+### 2026-03-18T06:21:37+00:00
+Administrative Officer Vacancy At National Institute Of Mental Health Rehabilitation (NIMHR), Sehore
+https://www.livelaw.in/job-updates/administrative-officer-vacancy-at-national-institute-of-mental-health-rehabilitation-nimhr-sehore-526854
+
+[Read on Telegram](https://t.me/livelawindia/107098)
+
+---
+### 2026-03-18T06:26:17+00:00
+Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
+https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-526856
+
+[Read on Telegram](https://t.me/livelawindia/107099)
+
+---
+### 2026-03-18T06:35:17+00:00
+Kerala High Court Allows Consumer Commission Member To Continue Beyond Tenure Till Rules Are Amended, Fresh Recruitment Done
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-permits-continuation-district-consumer-commission-member-rule-uncertainty-526858
+
+[Read on Telegram](https://t.me/livelawindia/107100)
+
+---
+### 2026-03-18T06:38:57+00:00
+Kerala High Court Brings Regulations To Curb Sexual Harassment Of Women At High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sexual-harassment-women-526859
+
+[Read on Telegram](https://t.me/livelawindia/107101)
+
+---
+### 2026-03-18T06:49:17+00:00
+Quashing Of FIR In Forgery Case Handwriting Expert's Opinion Is Pending Is Unjustified : Supreme Court
+https://www.livelaw.in/supreme-court/quashing-of-fir-in-forgery-case-handwriting-experts-opinion-is-pending-is-unjustified-supreme-court-526860
+
+[Read on Telegram](https://t.me/livelawindia/107102)
+
+---
+### 2026-03-18T06:49:58+00:00
+Limitation For Amendment Of Pleadings Must Be Decided In Reference To Stage Of Suit, Not Date Of Filing Of Suit: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-filing-amendment-limitation-suit-stage-526861
+
+[Read on Telegram](https://t.me/livelawindia/107103)
+
+---
+### 2026-03-18T06:50:38+00:00
+2026 LiveLaw (SC) 256  | SHARLA BAZLIEL VERSUS BALDEV THAKUR AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-256-sharla-bazliel-versus-baldev-thakur-and-others-526862
+
+[Read on Telegram](https://t.me/livelawindia/107104)
+
+---
+### 2026-03-18T06:58:38+00:00
+Kerala High Court Rejects PIL Challenging Use Of 'Indian Premier League' Name For IPL
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-pil-legality-indian-premier-league-526863
+
+[Read on Telegram](https://t.me/livelawindia/107105)
 
 ---
