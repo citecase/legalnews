@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-18T05:21:25+00:00*
+*Last Updated: 2026-03-18T10:22:43+00:00*
 
 ---
 
-### 2026-03-18T05:21:25+00:00
-Mewar Royal Family Dispute: Delhi High Court Declines Padmaja Kumari's Bid To Administer Father's Estate
-https://www.livelaw.in/high-court/delhi-high-court/mewar-royal-family-dispute-delhi-high-court-declines-padmaja-kumaris-bid-to-administer-fathers-estate-526839
+### 2026-03-18T10:22:43+00:00
+No Arbitrariness In Clubbing CCTV, GPS & Webcasting Experience: Calcutta High Court On Election Tender
+https://www.livelaw.in/high-court/calcutta-high-court/no-arbitrariness-in-clubbing-cctv-gps-webcasting-experience-calcutta-high-court-on-election-tender-526855
 
-[Read on Telegram](https://t.me/livelawindia/107086)
-
----
-### 2026-03-18T05:28:05+00:00
-Property Disputes Between Husband And Wife Fall Within Exclusive Jurisdiction Of Family Court: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-family-court-dispute-properties-married-couples-526842
-
-[Read on Telegram](https://t.me/livelawindia/107087)
+[Read on Telegram](https://t.me/livelawindia/107135)
 
 ---
-### 2026-03-18T05:33:05+00:00
-Doctor's Opinion On Victim's Consciousness Prevails Over Police Assessment In Evaluating Dying Declaration: Supreme Court
-https://www.livelaw.in/supreme-court/doctors-opinion-on-victims-consciousness-prevails-over-police-assessment-in-evaluating-dying-declaration-supreme-court-526844
+### 2026-03-18T10:39:53+00:00
+Allowing ED To File Writ Petition Against State Govt Dangerous To Federalism : West Bengal Govt To Supreme Court
+https://www.livelaw.in/top-stories/allowing-ed-to-file-writ-petition-against-state-govt-dangerous-to-federalism-west-bengal-govt-to-supreme-court-526915
 
-[Read on Telegram](https://t.me/livelawindia/107088)
-
----
-### 2026-03-18T05:34:05+00:00
-2206 LiveLaw (SC) 255 | SUBRAMANI VERSUS STATE OF KARNATAKA
-https://www.livelaw.in/sc-judgments/2206-livelaw-sc-255-subramani-versus-state-of-karnataka-526845
-
-[Read on Telegram](https://t.me/livelawindia/107089)
+[Read on Telegram](https://t.me/livelawindia/107136)
 
 ---
-### 2026-03-18T05:41:45+00:00
-Telangana High Court Upholds Conduct Of Secret Ballot To Elect Majority Trade Union, Says Non-Filing Of Returns No Ground To Stall Process
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-secret-ballot-majority-union-allegations-trade-unions-526846
+### 2026-03-18T10:42:33+00:00
+[Advertisement] NLUJ Centre For Gender Studies: 3-Day Online Certificate Course On Gender, Law & Practice
+https://www.livelaw.in/lawschool/diploma-certificate-courses/nluj-centre-for-gender-studies-3-day-online-certificate-course-on-gender-law-practice-526917
 
-[Read on Telegram](https://t.me/livelawindia/107090)
-
----
-### 2026-03-18T05:43:05+00:00
-Calcutta High Court Denies Relief To Excise Officer Caught While Allegedly Demanding Bribe To Grant Licence
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-denies-relief-to-excise-officer-caught-while-allegedly-demanding-bribe-to-grant-licence-526847
-
-[Read on Telegram](https://t.me/livelawindia/107091)
+[Read on Telegram](https://t.me/livelawindia/107137)
 
 ---
-### 2026-03-18T05:45:05+00:00
-ED v West Bengal & Mamata Banerjee Over IPAC Raid : Live Updates From Supreme Court
-https://www.livelaw.in/top-stories/ed-v-west-bengal-mamata-banerjee-over-ipac-raid-live-updates-from-supreme-court-526848
+### 2026-03-18T11:10:54+00:00
+Tahir Hussain Moves Delhi Court Seeking Interim Bail In Delhi Riots Larger Conspiracy Case On Medical Grounds
+https://www.livelaw.in/news-updates/delhi-riots-tahir-hussain-seeks-interim-bail-526921
 
-[Read on Telegram](https://t.me/livelawindia/107092)
-
----
-### 2026-03-18T05:51:25+00:00
-LPG Shortage: Karnataka High Court Seeks Centre's Response To Plea For Uninterrupted Cylinder Supply To Hotels, Restaurants
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-commercial-lpg-shortage-affecting-hotels-526850
-
-[Read on Telegram](https://t.me/livelawindia/107093)
+[Read on Telegram](https://t.me/livelawindia/107138)
 
 ---
-### 2026-03-18T05:57:25+00:00
-Magistrate Cannot Direct Police To Conduct 'Inquiry' U/S 175(3) BNSS; Must Assess Grounds Before Ordering Probe: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/magistrate-cannot-direct-police-to-conduct-inquiry-us-1753-bnss-must-assess-grounds-before-ordering-probe-calcutta-high-court-526843
+### 2026-03-18T11:27:44+00:00
+Telangana High Court Quashes FIR Against Man Accused Of Rape On Promise Of Marriage, Notes Five-Year Relationship With Complainant
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-consensual-relationship-criminalise-rape-marriage-promise-526876
 
-[Read on Telegram](https://t.me/livelawindia/107094)
-
----
-### 2026-03-18T06:15:37+00:00
-Corporate Counsel Vacancy At Amazon's Legal Department [Apply Now]
-https://www.livelaw.in/job-updates/corporate-counsel-vacancy-at-amazons-legal-department-526851
-
-[Read on Telegram](https://t.me/livelawindia/107095)
+[Read on Telegram](https://t.me/livelawindia/107139)
 
 ---
-### 2026-03-18T06:19:17+00:00
-Young Professional (Banking Supervision) Vacancy At International Financial Services Centres Authority
-https://www.livelaw.in/job-updates/young-professional-banking-supervision-vacancy-at-international-financial-services-centres-authority-526852
+### 2026-03-18T11:36:24+00:00
+Foreign Divorce Decree On Ground Of 'Irretrievable Breakdown' Not Enforceable In India: Supreme Court
+https://www.livelaw.in/supreme-court/foreign-divorce-decree-on-ground-of-irretrievable-breakdown-not-enforceable-in-india-supreme-court-526926
 
-[Read on Telegram](https://t.me/livelawindia/107096)
-
----
-### 2026-03-18T06:20:37+00:00
-Assistant Project Manager Vacancy At Indian Institute Of Technology, Kanpur
-https://www.livelaw.in/job-updates/assistant-project-manager-vacancy-at-indian-institute-of-technology-kanpur-526853
-
-[Read on Telegram](https://t.me/livelawindia/107097)
+[Read on Telegram](https://t.me/livelawindia/107140)
 
 ---
-### 2026-03-18T06:21:37+00:00
-Administrative Officer Vacancy At National Institute Of Mental Health Rehabilitation (NIMHR), Sehore
-https://www.livelaw.in/job-updates/administrative-officer-vacancy-at-national-institute-of-mental-health-rehabilitation-nimhr-sehore-526854
+### 2026-03-18T11:57:44+00:00
+Uttam Nagar Holi Clash: PIL In Delhi High Court Seeks To Prevent Communal Violence Ahead Of Eid
+https://www.livelaw.in/high-court/delhi-high-court/uttam-nagar-holi-clash-pil-in-delhi-high-court-seeks-to-prevent-communal-violence-ahead-of-eid-526928
 
-[Read on Telegram](https://t.me/livelawindia/107098)
-
----
-### 2026-03-18T06:26:17+00:00
-Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
-https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-526856
-
-[Read on Telegram](https://t.me/livelawindia/107099)
+[Read on Telegram](https://t.me/livelawindia/107141)
 
 ---
-### 2026-03-18T06:35:17+00:00
-Kerala High Court Allows Consumer Commission Member To Continue Beyond Tenure Till Rules Are Amended, Fresh Recruitment Done
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-permits-continuation-district-consumer-commission-member-rule-uncertainty-526858
+### 2026-03-18T12:03:24+00:00
+Masala Bonds Case: Kerala High Court Dismisses ED Appeal As Stay On Show Cause Notice Issued To KIIFB Expires
+https://www.livelaw.in/high-court/kerala-high-court/masala-bonds-case-dismisses-appeal-against-single-judge-order-infructuous-526930
 
-[Read on Telegram](https://t.me/livelawindia/107100)
-
----
-### 2026-03-18T06:38:57+00:00
-Kerala High Court Brings Regulations To Curb Sexual Harassment Of Women At High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sexual-harassment-women-526859
-
-[Read on Telegram](https://t.me/livelawindia/107101)
+[Read on Telegram](https://t.me/livelawindia/107142)
 
 ---
-### 2026-03-18T06:49:17+00:00
-Quashing Of FIR In Forgery Case Handwriting Expert's Opinion Is Pending Is Unjustified : Supreme Court
-https://www.livelaw.in/supreme-court/quashing-of-fir-in-forgery-case-handwriting-experts-opinion-is-pending-is-unjustified-supreme-court-526860
+### 2026-03-18T12:12:44+00:00
+Karnataka High Court Directs State To File Report On Police Investigations In Dharmasthala 'Mass Burial' Cases
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-police-investigations-report-file-dharmasthala-mass-burial-case-526931
 
-[Read on Telegram](https://t.me/livelawindia/107102)
-
----
-### 2026-03-18T06:49:58+00:00
-Limitation For Amendment Of Pleadings Must Be Decided In Reference To Stage Of Suit, Not Date Of Filing Of Suit: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-filing-amendment-limitation-suit-stage-526861
-
-[Read on Telegram](https://t.me/livelawindia/107103)
+[Read on Telegram](https://t.me/livelawindia/107143)
 
 ---
-### 2026-03-18T06:50:38+00:00
-2026 LiveLaw (SC) 256  | SHARLA BAZLIEL VERSUS BALDEV THAKUR AND OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-256-sharla-bazliel-versus-baldev-thakur-and-others-526862
+### 2026-03-18T12:20:04+00:00
+MP High Court Seeks Centre's Response On Plea Claiming Exclusion Of EWS Quota In Navodaya Vidyalaya Admissions
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-union-ews-quota-exclusion-jawahar-navodaya-vidyalayas-526935
 
-[Read on Telegram](https://t.me/livelawindia/107104)
+[Read on Telegram](https://t.me/livelawindia/107144)
 
 ---
-### 2026-03-18T06:58:38+00:00
-Kerala High Court Rejects PIL Challenging Use Of 'Indian Premier League' Name For IPL
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-pil-legality-indian-premier-league-526863
+### 2026-03-18T12:23:04+00:00
+Delhi High Court Directs Hybrid Hearing Facilities In All District Consumer Commissions Within Eight Weeks
+https://www.livelaw.in/high-court/delhi-high-court/hybrid-hearing-facilities-district-consumer-commissions-526932
 
-[Read on Telegram](https://t.me/livelawindia/107105)
+[Read on Telegram](https://t.me/livelawindia/107145)
+
+---
+### 2026-03-18T12:33:14+00:00
+Improper Joinder Of Causes Of Action Not Grounds To Reject Plaint Under Order VII Rule 11: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-cause-of-action-objection-suit-rejection-ground-526841
+
+[Read on Telegram](https://t.me/livelawindia/107146)
+
+---
+### 2026-03-18T12:47:14+00:00
+Baroda Cricket Association Elections: High Court Slams Electoral Officer For Ignoring Objections To Nomination, Disqualifies 4 Candidates
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-elections-baroda-cricket-association-526938
+
+[Read on Telegram](https://t.me/livelawindia/107147)
+
+---
+### 2026-03-18T12:58:57+00:00
+2026 LiveLaw (SC) 259 | KISHOREKUMAR MOHAN KALE v. KASHMIRA KALE
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-259-kishorekumar-mohan-kale-v-kashmira-kale-526952
+
+[Read on Telegram](https://t.me/livelawindia/107148)
+
+---
+### 2026-03-18T13:00:57+00:00
+Fresh Poll Not Needed In Two-Candidate Election, Runner-Up Candidate Be Declared Elected: Supreme Court
+https://www.livelaw.in/supreme-court/fresh-poll-not-needed-in-two-candidate-election-runner-up-candidate-be-declared-elected-supreme-court-526953
+
+[Read on Telegram](https://t.me/livelawindia/107149)
+
+---
+### 2026-03-18T13:02:27+00:00
+Kerala High Court Judge Calls Own Judgment 'Per Incuriam'; Says Illegal Sand Mining Attracts Both Sand Act Offences And Theft Under BNS
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-river-sand-theft-removal-transportation-sand-act-526940
+
+[Read on Telegram](https://t.me/livelawindia/107150)
+
+---
+### 2026-03-18T13:02:37+00:00
+2026 LiveLaw (SC) 260 | RAMADEBI RAUTRAY VERSUS STATE OF ODISHA AND ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-260-ramadebi-rautray-versus-state-of-odisha-and-ors-526954
+
+[Read on Telegram](https://t.me/livelawindia/107151)
+
+---
+### 2026-03-18T13:07:27+00:00
+MP High Court Orders Attachment, Civil Imprisonment For Wilful Injunction Breach; Flags Advocate's Dual Role As Counsel & Co-Sharer
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-attaches-property-and-orders-civil-jail-for-violating-stay-order-526956
+
+[Read on Telegram](https://t.me/livelawindia/107152)
+
+---
+### 2026-03-18T13:10:27+00:00
+Baramulla Consumer Commission Fines IndiGo ₹89K For Loss Of Passenger's Baggage Due To Negligent Handling Of Group Luggage
+https://www.livelaw.in/news-updates/indigo-airlines-fined-rs-89000-for-loss-of-passengers-baggage-due-to-negligent-handling-of-group-luggage-consumer-commission-526958
+
+[Read on Telegram](https://t.me/livelawindia/107153)
+
+---
+### 2026-03-18T13:18:07+00:00
+Telangana High Court Grants Bail To Woman Accused Of Prostitution, Says Mere Presence At Site Without Active Role Not Enough To Deny Relief
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-grants-bail-woman-accused-prostitution-case-526946
+
+[Read on Telegram](https://t.me/livelawindia/107154)
 
 ---
