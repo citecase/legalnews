@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-17T16:02:36+00:00*
+*Last Updated: 2026-03-18T07:32:24+00:00*
+
+---
+
+### 2026-03-18T07:32:24+00:00
+Pre-Trial Scrutiny U/S. 319 CrPC Should Not Resemble A Mini Trial: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/mohammad-kaleem-v-state-of-uttar-pradesh-2026-insc-251-trial-level-scrutiny-us-319-crpc-mini-trial-1610168
+
+[Source Link](https://t.me/verdictumlegalupdates/25995)
+
+---
+
+### 2026-03-18T07:02:43+00:00
+Where Forgery Is Alleged & Documents Sent For Handwriting Examination, FIR Cannot Be Quashed Before Expert Report: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/sharla-bazliel-v-baldev-thakur-others-2026-insc-252-forgery-expert-report-1610166
+
+[Source Link](https://t.me/verdictumlegalupdates/25994)
+
+---
+
+### 2026-03-18T06:33:02+00:00
+Least Expected From Law Graduates To Reach Correct Conclusion When HC Judges Are At Variance About Correct Answer To MCQ: Supreme Court Directs Supernumerary Law Officer Post Creation
+https://www.verdictum.in/court-updates/supreme-court/charan-preet-singh-v-municipal-corporation-chandigarh-ors-2026-insc-248-law-graduates-supernumerary-post-1610161
+
+[Source Link](https://t.me/verdictumlegalupdates/25993)
+
+---
+
+### 2026-03-18T06:09:01+00:00
+Corporate Undertaking To Pay Third Party Not Mere Freight Arrangement; Constitutes Valid Guarantee : Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/canara-bank-overseas-branch-v-archean-industries-private-limited-2026-insc-247-corporate-guarantee-surety-liable-to-creditor-1610157
+
+[Source Link](https://t.me/verdictumlegalupdates/25992)
+
+---
+
+### 2026-03-18T05:32:59+00:00
+Plea Of Non-Furnishing Of Grounds Of Arrest Raised Only In Subsequent Bail Applications Indicates No Prejudice In Defending Case: Madras High Court
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/sundar-rao-v-union-of-india-connected-cases-2026mhc1100-bail-ndps-act-1610149
+
+[Source Link](https://t.me/verdictumlegalupdates/25991)
+
+---
+
+### 2026-03-18T05:02:38+00:00
+No Transfer Request For Group B Or C Employees Should Be Entertained By CMO; Matter Should End At Dept Level: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/sri-chethan-s-v-the-karnataka-power-transmission-corporation-limited-2026khc14084-db-transfer-request-employees-cmo-1610121
+
+[Source Link](https://t.me/verdictumlegalupdates/25990)
+
+---
+
+### 2026-03-18T04:32:27+00:00
+Discovery Of Weapon U/S 27 Evidence Act Cannot Be Discarded Merely For Lack Of A Detailed Disclosure Statement: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/jaswantsingh-udaysingh-chavan-v-state-of-maharashtra-2026bhc-nag4309-db-1610115
+
+[Source Link](https://t.me/verdictumlegalupdates/25989)
 
 ---
 
@@ -105,62 +161,6 @@ Orissa Panchayat Samiti Act| Election Tribunal Can Declare Any Candidate Duly El
 https://www.verdictum.in/court-updates/supreme-court/ramadebi-rautray-v-state-of-odisha-ors-2026-insc-243-odisha-panchayat-1610099
 
 [Source Link](https://t.me/verdictumlegalupdates/25976)
-
----
-
-### 2026-03-17T09:33:01+00:00
-Allegations Show Dominance And Coercion, Not Mutual Consent: Karnataka High Court Refuses To Quash Rape Case Against Teacher
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/lingaraja-naik-h-v-state-of-karnataka-criminal-petition-no1168-of-2025-refuses-to-quash-rape-case-against-teacher-1610097
-
-[Source Link](https://t.me/verdictumlegalupdates/25975)
-
----
-
-### 2026-03-17T09:02:40+00:00
-Supreme Court: Benefits Received By Deceased’s Dependants From Employer Can’t Be Deducted From Motor Accident Compensation
-https://www.verdictum.in/court-updates/supreme-court/the-managing-director-ksrtc-v-p-chandramouli-2026-insc-241-dependants-group-insurance-motor-accident-1610095
-
-[Source Link](https://t.me/verdictumlegalupdates/25974)
-
----
-
-### 2026-03-17T08:32:39+00:00
-College Failed To Conduct Minimum Number Of Hours: Kerala High Court Grants Relief To Law Students Barred From Exams Over Attendance Shortage
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/vaibhav-y-kini-v-mahatma-gandhi-university-2026ker22618-college-law-students-attendance-shortage-1610084
-
-[Source Link](https://t.me/verdictumlegalupdates/25973)
-
----
-
-### 2026-03-17T07:44:18+00:00
-Breaking: Women Who Adopted Child Above Age Of 3 Months Are Similarly Situated To One Who Adopted Child Below Age Of 3 Years: Supreme Court Strikes Down 3-Month Age Limit For Adoptive Mothers
-https://www.verdictum.in/court-updates/supreme-court/strikes-down-3-month-age-limit-for-adoptive-mother-1610092
-
-[Source Link](https://t.me/verdictumlegalupdates/25972)
-
----
-
-### 2026-03-17T07:32:56+00:00
-Money Laundering Distinct From Scheduled Offence; Continued Possession Of Tainted Property After PMLA Enforcement Is A Continuing Offence: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/directorate-of-enforcement-v-ms-mahanivesh-oils-foods-pvt-ltd-2026dhc2147-db-money-laundering-possession-of-tainted-property-1610088
-
-[Source Link](https://t.me/verdictumlegalupdates/25971)
-
----
-
-### 2026-03-17T07:06:35+00:00
-Delhi High Court Directs Removal Of Social Media Content Linking Union Minister Hardeep Puri’s Daughter To Jeffrey Epstein
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/delhi-high-court-directs-removal-of-social-media-content-linking-union-minister-hardeep-puris-daughter-to-jeffrey-epstein-1610083
-
-[Source Link](https://t.me/verdictumlegalupdates/25970)
-
----
-
-### 2026-03-17T06:33:14+00:00
-Cow Shed Is Not "Place Within Public View": Bombay High Court Quashes FIR Under SC-ST Act
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/shailendra-bankebihari-singh-v-the-state-of-maharashtra-2026bhc-as12132-db-abuse-cow-shed-not-place-within-public-view-1610079
-
-[Source Link](https://t.me/verdictumlegalupdates/25969)
 
 ---
 
