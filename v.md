@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-18T07:32:24+00:00*
+*Last Updated: 2026-03-18T13:32:29+00:00*
+
+---
+
+### 2026-03-18T13:32:29+00:00
+Can’t Seek DNA Test Of Children To Prove Wife’s Adultery: Andhra Pradesh High Court
+https://www.verdictum.in/court-updates/high-courts/andhra-pradesh-high-court/a-v-b-dna-test-children-wife-adultery-1610193
+
+[Source Link](https://t.me/verdictumlegalupdates/26007)
+
+---
+
+### 2026-03-18T13:03:08+00:00
+Premises Used As Brothel Can Be Closed By Magistrate Under PITA Even Without Conviction Of Owner: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/anup-ganpat-gondkar-alias-anup-rajendra-gondkar-anr-v-state-of-maharashtra-2026bhc-aug11692-1610192
+
+[Source Link](https://t.me/verdictumlegalupdates/26006)
+
+---
+
+### 2026-03-18T12:32:47+00:00
+Mere Financial Pressure Does Not Invalidate ‘Full & Final’ Settlement As Accord & Satisfaction Remains Binding: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/supermint-exports-pvt-ltd-v-new-india-assurance-co-ltd-2026dhc2146-db-financial-pressure-accord-and-satisfaction-1610186
+
+[Source Link](https://t.me/verdictumlegalupdates/26005)
+
+---
+
+### 2026-03-18T12:03:06+00:00
+Senior Advocates, Academicians Write To CJI Seeking Contempt Action Against Arvind Kejriwal For Allegations Against Delhi HC Judge
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/letter-chief-justice-of-india-contempt-arvind-kejriwal-justice-swarana-kanta-sharma-1610190
+
+[Source Link](https://t.me/verdictumlegalupdates/26004)
+
+---
+
+### 2026-03-18T11:32:44+00:00
+Statutory Shield U/s.69 Of NDPS Act Can’t Be Mechanically Invoked If Officer Has No Jurisdiction: Orissa High Court Refuses To Quash FIR Against Head Constable
+https://www.verdictum.in/court-updates/high-courts/orissa-high-court/anand-k-v-state-of-odisha-69-ndps-act-fir-against-police-officer-1610185
+
+[Source Link](https://t.me/verdictumlegalupdates/26003)
+
+---
+
+### 2026-03-18T11:03:23+00:00
+US Divorce Decree On 'Irretrievable Breakdown' Not Valid Under Hindu Marriage Act: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/kishorekumar-mohan-kale-v-kashmira-kale-foreign-decree-divorcee-validity-1610183
+
+[Source Link](https://t.me/verdictumlegalupdates/26002)
+
+---
+
+### 2026-03-18T10:33:02+00:00
+Section 16 POSH Act Does Not Bar Providing Relevant Inquiry Documents To Employee Facing Disciplinary Proceedings: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/linson-k-thomas-v-union-of-india-ors-2026ker21938-posh-act-inquiry-1610182
+
+[Source Link](https://t.me/verdictumlegalupdates/26001)
+
+---
+
+### 2026-03-18T10:01:41+00:00
+Service Of Notice Through Email Valid Under PMLA Proceedings: Calcutta High Court
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/dipak-de-v-union-of-india-ors-plla-notice-electronic-mode-email-summon-1610181
+
+[Source Link](https://t.me/verdictumlegalupdates/26000)
+
+---
+
+### 2026-03-18T09:32:19+00:00
+RPwD Act Does Not Permit State To Arbitrarily Prescribe Upper Disability Ceiling For Reservation In Public Employment: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/prabhu-kumar-v-state-of-himachal-pradesh-ors-2026-insc-253-rpwd-act-1610179
+
+[Source Link](https://t.me/verdictumlegalupdates/25999)
+
+---
+
+### 2026-03-18T09:02:28+00:00
+Supreme Court Condemns Role Of Barabanki Bar Members In Toll Plaza Assault Case; Orders Bail & Case Transfer
+https://www.verdictum.in/court-updates/supreme-court/vishvjeet-v-state-of-uttar-pradesh-2026-insc-254-condemns-barabanki-bar-members-toll-plaza-assault-1610177
+
+[Source Link](https://t.me/verdictumlegalupdates/25998)
+
+---
+
+### 2026-03-18T08:32:47+00:00
+Supreme Court Has Granted 9-Months Extension To Complete Trial In Sheena Bora Murder Case, Says No Further Extensions Will Be Entertained
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-has-granted-9-months-extension-to-complete-trial-in-sheena-bora-murder-case-says-no-further-extensions-will-be-entertained-1610174
+
+[Source Link](https://t.me/verdictumlegalupdates/25997)
+
+---
+
+### 2026-03-18T08:02:46+00:00
+Supreme Court Rejects Pay Parity For Guest Lecturers, Mandates Honorarium As Per UGC Norms
+https://www.verdictum.in/court-updates/supreme-court/rejects-pay-parity-guest-lecturers-mandates-honorarium-ugc-norms-1610173
+
+[Source Link](https://t.me/verdictumlegalupdates/25996)
 
 ---
 
@@ -65,102 +161,6 @@ Officer (Legal) Vacancy At HMT Limited
 https://www.verdictum.in/job-updates/hmt-limited-1610112
 
 [Source Link](https://t.me/verdictumlegalupdates/25988)
-
----
-
-### 2026-03-17T15:32:15+00:00
-No Reason To Disbelieve Her: Supreme Court Upholds Husband’s Conviction For Wife’s Murder; Relies On Daughter’s Testimony & Dying Declaration
-https://www.verdictum.in/court-updates/supreme-court/subramani-v-state-of-karnataka-2026-insc-249-husbands-conviction-daughters-testimony-and-dying-declaration-1610116
-
-[Source Link](https://t.me/verdictumlegalupdates/25987)
-
----
-
-### 2026-03-17T15:03:04+00:00
-SEBI Can Impose Penalty For PFUTP Violations Even If WTM Proceedings Exist; Illegal Diversion Of Funds Not Curable By Ratification: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/sebi-v-terrascope-ventures-limited-2026-insc-245-sebi-penalty-for-pfutp-violations-wtm-funds-not-curable-by-ratification-1610114
-
-[Source Link](https://t.me/verdictumlegalupdates/25986)
-
----
-
-### 2026-03-17T14:33:03+00:00
-Madras High Court Dismisses Amrutanjan’s Plea Against Arrears Of Rent Worth Crores For Occupying Kapaleeswarar Temple Land
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/amrutanjan-ltd-v-the-commissioner-hr-and-ce-department-kapaleeswarar-temple-land-rent-arrears-1610119
-
-[Source Link](https://t.me/verdictumlegalupdates/25985)
-
----
-
-### 2026-03-17T14:03:02+00:00
-Body Building Is A Species Of Gymnastics Eligible For 5% Sports Quota Under Maharashtra Sports Reservation Policy: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/deepak-asaram-pawar-v-state-of-maharashtra-ors-2026bhc-nag4318-db-1610113
-
-[Source Link](https://t.me/verdictumlegalupdates/25984)
-
----
-
-### 2026-03-17T13:33:21+00:00
-Clearing Revenue Arrears By Coparcener Doesn’t Confer Exclusive Title Over Ancestral Property: Karnataka High Court
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/kg-venkataramanasa-v-kv-honnusa-2026khc12145-revenue-arrears-ancestral-self-acquired-property-1610111
-
-[Source Link](https://t.me/verdictumlegalupdates/25983)
-
----
-
-### 2026-03-17T13:02:59+00:00
-Society Focusing More On A Woman’s Image Than Her Achievements Exposes Its Own Intellectual Poverty: Kerala High Court While Quashing Complaint Against Actress
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/shwetha-menon-v-state-of-kerala-2026ker21805-shwetha-menon-obscenity-1610110
-
-[Source Link](https://t.me/verdictumlegalupdates/25982)
-
----
-
-### 2026-03-17T12:32:18+00:00
-Judicial Fiat Interfering With Rules:  Supreme Court Holds Anganwadi Workers With Degrees Not Confined To 11% Quota; Eligible For 29% SSLC Quota
-https://www.verdictum.in/court-updates/supreme-court/shiny-cj-v-shalini-sreenivasan-2026-insc-242-anganwadi-workers-11-quota-29-sslc-quota-1610108
-
-[Source Link](https://t.me/verdictumlegalupdates/25981)
-
----
-
-### 2026-03-17T12:03:17+00:00
-Father's Professional Obligations Bar Him From Early Nurturing Of Infant Despite Physical Proximity: Supreme Court Urges Centre To Make Laws On Paternity Leave
-https://www.verdictum.in/court-updates/supreme-court/2026-insc-246-hamsaanandini-nanduri-v-union-of-india-1610104
-
-[Source Link](https://t.me/verdictumlegalupdates/25980)
-
----
-
-### 2026-03-17T11:36:16+00:00
-Cancellation Of Admission On Ground That Student Already Availed RTE 25% Reservation Scheme Not Illegal: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/sampatrao-v-the-state-of-maharashtra-2026bhc-aug11220-db-admission-rte-25-reservation-scheme-1610103
-
-[Source Link](https://t.me/verdictumlegalupdates/25979)
-
----
-
-### 2026-03-17T11:03:15+00:00
-Adopted Child Is No Different From  “Natural” Child; Right Of Reproductive Autonomy Not Confined To Giving Birth Biologically: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/2026-insc-246-hamsaanandini-nanduri-v-union-of-india-1610101
-
-[Source Link](https://t.me/verdictumlegalupdates/25978)
-
----
-
-### 2026-03-17T10:39:13+00:00
-Temple Authorities, Priests & Venue Managers Facilitating Child Marriage Liable U/S 11 Prohibition Of Child Marriage Act: Karnataka High Court
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/sri-manjunatha-n-ors-v-the-state-of-karnataka-2026khc14634-child-marriage-1610100
-
-[Source Link](https://t.me/verdictumlegalupdates/25977)
-
----
-
-### 2026-03-17T10:02:52+00:00
-Orissa Panchayat Samiti Act| Election Tribunal Can Declare Any Candidate Duly Elected If Returned Candidate’s Election Found Invalid: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/ramadebi-rautray-v-state-of-odisha-ors-2026-insc-243-odisha-panchayat-1610099
-
-[Source Link](https://t.me/verdictumlegalupdates/25976)
 
 ---
 
