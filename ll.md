@@ -1,107 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-18T10:22:43+00:00*
+*Last Updated: 2026-03-18T13:00:57+00:00*
 
 ---
 
-### 2026-03-18T10:22:43+00:00
-No Arbitrariness In Clubbing CCTV, GPS & Webcasting Experience: Calcutta High Court On Election Tender
-https://www.livelaw.in/high-court/calcutta-high-court/no-arbitrariness-in-clubbing-cctv-gps-webcasting-experience-calcutta-high-court-on-election-tender-526855
-
-[Read on Telegram](https://t.me/livelawindia/107135)
-
----
-### 2026-03-18T10:39:53+00:00
-Allowing ED To File Writ Petition Against State Govt Dangerous To Federalism : West Bengal Govt To Supreme Court
-https://www.livelaw.in/top-stories/allowing-ed-to-file-writ-petition-against-state-govt-dangerous-to-federalism-west-bengal-govt-to-supreme-court-526915
-
-[Read on Telegram](https://t.me/livelawindia/107136)
-
----
-### 2026-03-18T10:42:33+00:00
-[Advertisement] NLUJ Centre For Gender Studies: 3-Day Online Certificate Course On Gender, Law & Practice
-https://www.livelaw.in/lawschool/diploma-certificate-courses/nluj-centre-for-gender-studies-3-day-online-certificate-course-on-gender-law-practice-526917
-
-[Read on Telegram](https://t.me/livelawindia/107137)
-
----
-### 2026-03-18T11:10:54+00:00
-Tahir Hussain Moves Delhi Court Seeking Interim Bail In Delhi Riots Larger Conspiracy Case On Medical Grounds
-https://www.livelaw.in/news-updates/delhi-riots-tahir-hussain-seeks-interim-bail-526921
-
-[Read on Telegram](https://t.me/livelawindia/107138)
-
----
-### 2026-03-18T11:27:44+00:00
-Telangana High Court Quashes FIR Against Man Accused Of Rape On Promise Of Marriage, Notes Five-Year Relationship With Complainant
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-consensual-relationship-criminalise-rape-marriage-promise-526876
-
-[Read on Telegram](https://t.me/livelawindia/107139)
-
----
-### 2026-03-18T11:36:24+00:00
-Foreign Divorce Decree On Ground Of 'Irretrievable Breakdown' Not Enforceable In India: Supreme Court
-https://www.livelaw.in/supreme-court/foreign-divorce-decree-on-ground-of-irretrievable-breakdown-not-enforceable-in-india-supreme-court-526926
-
-[Read on Telegram](https://t.me/livelawindia/107140)
-
----
-### 2026-03-18T11:57:44+00:00
-Uttam Nagar Holi Clash: PIL In Delhi High Court Seeks To Prevent Communal Violence Ahead Of Eid
-https://www.livelaw.in/high-court/delhi-high-court/uttam-nagar-holi-clash-pil-in-delhi-high-court-seeks-to-prevent-communal-violence-ahead-of-eid-526928
-
-[Read on Telegram](https://t.me/livelawindia/107141)
-
----
-### 2026-03-18T12:03:24+00:00
-Masala Bonds Case: Kerala High Court Dismisses ED Appeal As Stay On Show Cause Notice Issued To KIIFB Expires
-https://www.livelaw.in/high-court/kerala-high-court/masala-bonds-case-dismisses-appeal-against-single-judge-order-infructuous-526930
-
-[Read on Telegram](https://t.me/livelawindia/107142)
-
----
-### 2026-03-18T12:12:44+00:00
-Karnataka High Court Directs State To File Report On Police Investigations In Dharmasthala 'Mass Burial' Cases
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-police-investigations-report-file-dharmasthala-mass-burial-case-526931
-
-[Read on Telegram](https://t.me/livelawindia/107143)
-
----
-### 2026-03-18T12:20:04+00:00
-MP High Court Seeks Centre's Response On Plea Claiming Exclusion Of EWS Quota In Navodaya Vidyalaya Admissions
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-union-ews-quota-exclusion-jawahar-navodaya-vidyalayas-526935
-
-[Read on Telegram](https://t.me/livelawindia/107144)
-
----
-### 2026-03-18T12:23:04+00:00
-Delhi High Court Directs Hybrid Hearing Facilities In All District Consumer Commissions Within Eight Weeks
-https://www.livelaw.in/high-court/delhi-high-court/hybrid-hearing-facilities-district-consumer-commissions-526932
-
-[Read on Telegram](https://t.me/livelawindia/107145)
-
----
-### 2026-03-18T12:33:14+00:00
-Improper Joinder Of Causes Of Action Not Grounds To Reject Plaint Under Order VII Rule 11: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-cause-of-action-objection-suit-rejection-ground-526841
-
-[Read on Telegram](https://t.me/livelawindia/107146)
-
----
-### 2026-03-18T12:47:14+00:00
-Baroda Cricket Association Elections: High Court Slams Electoral Officer For Ignoring Objections To Nomination, Disqualifies 4 Candidates
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-elections-baroda-cricket-association-526938
-
-[Read on Telegram](https://t.me/livelawindia/107147)
-
----
-### 2026-03-18T12:58:57+00:00
-2026 LiveLaw (SC) 259 | KISHOREKUMAR MOHAN KALE v. KASHMIRA KALE
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-259-kishorekumar-mohan-kale-v-kashmira-kale-526952
-
-[Read on Telegram](https://t.me/livelawindia/107148)
-
----
 ### 2026-03-18T13:00:57+00:00
 Fresh Poll Not Needed In Two-Candidate Election, Runner-Up Candidate Be Declared Elected: Supreme Court
 https://www.livelaw.in/supreme-court/fresh-poll-not-needed-in-two-candidate-election-runner-up-candidate-be-declared-elected-supreme-court-526953
@@ -142,5 +44,103 @@ Telangana High Court Grants Bail To Woman Accused Of Prostitution, Says Mere Pre
 https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-grants-bail-woman-accused-prostitution-case-526946
 
 [Read on Telegram](https://t.me/livelawindia/107154)
+
+---
+### 2026-03-18T13:47:27+00:00
+Overtaking Without Due Care Violates Road Regulations, Constitutes Negligence: Himachal Pradesh High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-overtaking-due-care-violates-road-regulations-526959
+
+[Read on Telegram](https://t.me/livelawindia/107155)
+
+---
+### 2026-03-18T14:09:57+00:00
+Charity & Profession Can't Be Excluded From Definition Of 'Industry' Under ID Act : Indira Jaising Argues Before Supreme Court
+https://www.livelaw.in/top-stories/charity-profession-cant-be-excluded-from-definition-of-industry-under-id-act-indira-jaising-argues-before-supreme-court-526967
+
+[Read on Telegram](https://t.me/livelawindia/107156)
+
+---
+### 2026-03-18T14:18:57+00:00
+Appellate Court Should Not Lightly Interfere With MACT Compensation : Supreme Court
+https://www.livelaw.in/supreme-court/appellate-court-should-not-lightly-interfere-with-mact-compensation-supreme-court-526970
+
+[Read on Telegram](https://t.me/livelawindia/107157)
+
+---
+### 2026-03-18T14:21:18+00:00
+2026 LiveLaw (SC) 261 |  R. HALLE VERSUS RELIANCE GENERAL INSURANCE COMPANY LIMITED
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-261-r-halle-versus-reliance-general-insurance-company-limited-526971
+
+[Read on Telegram](https://t.me/livelawindia/107158)
+
+---
+### 2026-03-18T14:32:38+00:00
+Consent: The Foundation Of Digital Data Protection
+https://www.livelaw.in/articles/consent-digital-data-protection-future-526937
+
+[Read on Telegram](https://t.me/livelawindia/107159)
+
+---
+### 2026-03-18T14:42:38+00:00
+Suicide Is Problem Of Civilised World, Driven By Stress & Social Pressure: Delhi High Court Convicts Man For Abetting Wife's Suicide
+https://www.livelaw.in/high-court/delhi-high-court/suicide-is-problem-of-civilised-world-driven-by-stress-social-pressure-delhi-high-court-convicts-man-for-abetting-wifes-suicide-526968
+
+[Read on Telegram](https://t.me/livelawindia/107160)
+
+---
+### 2026-03-18T14:47:38+00:00
+'Daredevil Attack': 23 Yrs On, Delhi High Court Upholds Man's Conviction For Stabbing Policeman Who Intercepted Him
+https://www.livelaw.in/high-court/delhi-high-court/daredevil-attack-23-yrs-on-delhi-high-court-upholds-mans-conviction-for-stabbing-policeman-who-intercepted-him-526877
+
+[Read on Telegram](https://t.me/livelawindia/107161)
+
+---
+### 2026-03-18T15:32:25+00:00
+Nyaay Kala: Nyaay Sabha 2026
+https://www.livelaw.in/events/nyaay-sabha2026-526975
+
+[Read on Telegram](https://t.me/livelawindia/107162)
+
+---
+### 2026-03-18T15:59:15+00:00
+Abhishek Manu Singhvi Calls For Reforms To Address Judicial Pendency
+https://www.livelaw.in/lawschool/news/abhishek-manu-singhvi-calls-for-reforms-to-address-judicial-pendency-526978
+
+[Read on Telegram](https://t.me/livelawindia/107163)
+
+---
+### 2026-03-18T16:07:35+00:00
+Supreme Court Daily Round-Up : March 18, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-march-18-2026-526980
+
+[Read on Telegram](https://t.me/livelawindia/107164)
+
+---
+### 2026-03-18T16:24:15+00:00
+Make A Contempt Reference If 'Browbeaten' By Police Over Uncomfortable Investigation Orders: Allahabad HC Advises Magistrates
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-magistrates-contempt-reference-police-officers-browbeat-uncomfortable-investigation-orders-526983
+
+[Read on Telegram](https://t.me/livelawindia/107165)
+
+---
+### 2026-03-18T16:33:15+00:00
+[Advertisement] Into Legal World Launches Certification Course On Litigation, Drafting And Courtroom Advocacy
+https://www.livelaw.in/lawschool/diploma-certificate-courses/into-legal-world-launches-certification-course-on-litigation-drafting-and-courtroom-advocacy-526984
+
+[Read on Telegram](https://t.me/livelawindia/107166)
+
+---
+### 2026-03-18T17:15:45+00:00
+Merely Using Words 'Bully' Or 'Unprofessional' On Social Media Not Defamation: Delhi Court
+https://www.livelaw.in/news-updates/merely-using-words-bully-or-unprofessional-on-social-media-not-defamation-delhi-court-526986
+
+[Read on Telegram](https://t.me/livelawindia/107167)
+
+---
+### 2026-03-18T17:17:05+00:00
+Delhi High Court Acquits Clerk In Three Decade Old Case Over Alleged ₹500 Bribe, Says CBI Failed To Prove Case
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-acquits-clerk-in-three-decade-old-case-over-alleged-500-bribe-says-cbi-failed-to-prove-case-526987
+
+[Read on Telegram](https://t.me/livelawindia/107168)
 
 ---
