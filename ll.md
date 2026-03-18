@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-17T13:18:05+00:00*
+*Last Updated: 2026-03-17T13:27:45+00:00*
 
 ---
 
-### 2026-03-17T13:18:05+00:00
-“Unjust To Sustain Departmental Findings After Acquittal On Identical Evidence”: Bombay High Court Quashes CISF Officer's Dismissal
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-cisf-assistant-commandant-dismissal-526683
-
-[Read on Telegram](https://t.me/livelawindia/107055)
-
----
 ### 2026-03-17T13:27:45+00:00
 Service Of Showcause Notice Via Email Valid Under PMLA Regulations: Calcutta High Court
 https://www.livelaw.in/high-court/calcutta-high-court/service-of-showcause-notice-via-email-valid-under-pmla-regulations-calcutta-high-court-526759
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : March 17, 2026
 https://www.livelaw.in/supreme-court/supreme-court-daily-round-up-march-17-2026-526802
 
 [Read on Telegram](https://t.me/livelawindia/107074)
+
+---
+### 2026-03-18T02:11:01+00:00
+Shun Black Robes In Family Courts To Avoid Fear In Children, Rename Them 'Family Resolution Centres' : CJI Surya Kant
+https://www.livelaw.in/top-stories/shun-black-robes-in-family-courts-to-avoid-fear-in-children-rename-them-family-resolution-centres-cji-surya-kant-526813
+
+[Read on Telegram](https://t.me/livelawindia/107075)
 
 ---
