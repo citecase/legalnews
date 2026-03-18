@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-18T13:32:29+00:00*
+*Last Updated: 2026-03-18T16:02:45+00:00*
+
+---
+
+### 2026-03-18T16:02:45+00:00
+DLSA West Kameng Invites Applications For The Post Of Chief & Deputy Legal Aid Defence Counsel
+https://www.verdictum.in/job-updates/district-legal-services-authority-1610195
+
+[Source Link](https://t.me/verdictumlegalupdates/26012)
+
+---
+
+### 2026-03-18T15:32:44+00:00
+Mere Presence Of Victim’s Mother In Court As Advocate Clerk Cannot Dispense With Duty To Hear POCSO Victim At Bail Stage: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/xxx-v-state-of-kerala-2026ker17222-pocso-victim-participation-bail-stage-substantive-right-1610200
+
+[Source Link](https://t.me/verdictumlegalupdates/26011)
+
+---
+
+### 2026-03-18T15:02:43+00:00
+Asking Wife To Care For Family Member Does Not Constitute Cruelty U/S 498A IPC: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/sp-v-lt-2026dhc1982-divorce-cruelty-domestic-violence-breach-of-trust-1610199
+
+[Source Link](https://t.me/verdictumlegalupdates/26010)
+
+---
+
+### 2026-03-18T14:32:51+00:00
+In Criminal Appeals, High Courts Must Issue Notice To Convict With Intimation Of Contacting Amicus If His Counsel Is Absent: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/bhola-mahto-v-the-state-of-jharkhand-2026-insc-257-high-court-notice-convict-amicus-counsel-absent-1610198
+
+[Source Link](https://t.me/verdictumlegalupdates/26009)
+
+---
+
+### 2026-03-18T14:02:30+00:00
+Investigating Officer Cannot Compel Statutory Authority To Create Information; Can Only Seek Existing Documents U/S 94 BNSS: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/deputy-commissioner-of-customs-v-state-of-kerala-2026ker21518-us-94-bnss-investigating-officer-statutory-authority-1610194
+
+[Source Link](https://t.me/verdictumlegalupdates/26008)
 
 ---
 
@@ -121,46 +161,6 @@ Least Expected From Law Graduates To Reach Correct Conclusion When HC Judges Are
 https://www.verdictum.in/court-updates/supreme-court/charan-preet-singh-v-municipal-corporation-chandigarh-ors-2026-insc-248-law-graduates-supernumerary-post-1610161
 
 [Source Link](https://t.me/verdictumlegalupdates/25993)
-
----
-
-### 2026-03-18T06:09:01+00:00
-Corporate Undertaking To Pay Third Party Not Mere Freight Arrangement; Constitutes Valid Guarantee : Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/canara-bank-overseas-branch-v-archean-industries-private-limited-2026-insc-247-corporate-guarantee-surety-liable-to-creditor-1610157
-
-[Source Link](https://t.me/verdictumlegalupdates/25992)
-
----
-
-### 2026-03-18T05:32:59+00:00
-Plea Of Non-Furnishing Of Grounds Of Arrest Raised Only In Subsequent Bail Applications Indicates No Prejudice In Defending Case: Madras High Court
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/sundar-rao-v-union-of-india-connected-cases-2026mhc1100-bail-ndps-act-1610149
-
-[Source Link](https://t.me/verdictumlegalupdates/25991)
-
----
-
-### 2026-03-18T05:02:38+00:00
-No Transfer Request For Group B Or C Employees Should Be Entertained By CMO; Matter Should End At Dept Level: Karnataka High Court
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/sri-chethan-s-v-the-karnataka-power-transmission-corporation-limited-2026khc14084-db-transfer-request-employees-cmo-1610121
-
-[Source Link](https://t.me/verdictumlegalupdates/25990)
-
----
-
-### 2026-03-18T04:32:27+00:00
-Discovery Of Weapon U/S 27 Evidence Act Cannot Be Discarded Merely For Lack Of A Detailed Disclosure Statement: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/jaswantsingh-udaysingh-chavan-v-state-of-maharashtra-2026bhc-nag4309-db-1610115
-
-[Source Link](https://t.me/verdictumlegalupdates/25989)
-
----
-
-### 2026-03-17T16:02:36+00:00
-Officer (Legal) Vacancy At HMT Limited
-https://www.verdictum.in/job-updates/hmt-limited-1610112
-
-[Source Link](https://t.me/verdictumlegalupdates/25988)
 
 ---
 
