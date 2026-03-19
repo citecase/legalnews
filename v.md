@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-19T07:15:36+00:00*
+*Last Updated: 2026-03-19T13:42:41+00:00*
+
+---
+
+### 2026-03-19T13:42:41+00:00
+Consumer Fora Cannot Decide Fraudulent Pledge Disputes; FDR Deposits Not Per Se "Commercial Purpose": Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/sant-rohidas-leather-industries-and-charmakar-development-corporation-ltd-v-vijaya-bank-2026-insc-264-consumer-fora-fraudulent-pledge-1610268
+
+[Source Link](https://t.me/verdictumlegalupdates/26030)
+
+---
+
+### 2026-03-19T13:02:19+00:00
+Bombay High Court Rules ₹50 Lakh COVID-19 Benefit Cannot Be Denied Citing Arbitrary Cut-Off Date; Orders Relief For Deceased Clerk’s Family
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/2026-bhckol1977db-sanika-santosh-shinde-and-others-v-state-of-maharashtra-1610259
+
+[Source Link](https://t.me/verdictumlegalupdates/26029)
+
+---
+
+### 2026-03-19T12:32:58+00:00
+Dishonour Of Post-Dated Cheque By Itself Not Sufficient To Presume Dishonest Intention For Cheating: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/v-ganesan-v-state-represented-by-the-sub-inspector-of-police-anr-2026-insc-265-1610258
+
+[Source Link](https://t.me/verdictumlegalupdates/26028)
+
+---
+
+### 2026-03-19T12:02:57+00:00
+'Can’t Help Feeling That I Have Been Taken For A Ride': Madras High Court On Stay Sought By State In Thiruparankundram Deepam Contempt Case
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/rama-ravikumar-v-kjpraveenkumar-stay-state-karthigai-deepam-contempt-case-1610257
+
+[Source Link](https://t.me/verdictumlegalupdates/26027)
+
+---
+
+### 2026-03-19T11:32:56+00:00
+Crossing Central Line While Overtaking Amounts To Rash And Negligent Driving: Himachal Pradesh High Court Sets Aside Acquittal
+https://www.verdictum.in/court-updates/high-courts/himachal-high-court/state-of-hp-v-dhruv-dev-2026hhc3751-central-line-overtaking-rash-and-negligent-driving-1610256
+
+[Source Link](https://t.me/verdictumlegalupdates/26026)
+
+---
+
+### 2026-03-19T11:02:34+00:00
+Life Estate Granted To Widow Under Will Becomes Absolute U/S 14 Hindu Succession Act; Subsequent Bequest Ineffective: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/p-k-lakshmi-v-gopi-2026ker20646-life-estate-widow-wil-us-14-hindu-succession-act-1610254
+
+[Source Link](https://t.me/verdictumlegalupdates/26025)
+
+---
+
+### 2026-03-19T10:32:53+00:00
+Calcutta High Court Upholds Tender Conditions For Surveillance & Web Streaming Of West Bengal Assembly Elections 2026
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/innovatiview-india-limited-v-the-chief-electoral-officer-west-bengal-ors-2026chc-os92-db-1610253
+
+[Source Link](https://t.me/verdictumlegalupdates/26024)
+
+---
+
+### 2026-03-19T10:02:42+00:00
+Long Trial Must Have Wisened & Tired Him: Delhi High Court Converts Husband’s Conviction U/S 304-B to 306 IPC, Ends Further Imprisonment
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/veer-pal-v-state-nct-of-delhi-2026dhc2149-us-304-b-to-306-ipc-husbands-conviction-imprisonment-1610250
+
+[Source Link](https://t.me/verdictumlegalupdates/26023)
+
+---
+
+### 2026-03-19T09:33:00+00:00
+Offence Punishable With Lesser Sentence Can Be Considered As Minor Offence U/S.222 CrPC When Two Offences Are Cognate & Main Ingredients Are Common: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/the-state-of-uttar-pradesh-v-ram-swaroop-barkat-2026-insc-256-lesser-sentence-minor-offence-section-222-crpc-1610249
+
+[Source Link](https://t.me/verdictumlegalupdates/26022)
+
+---
+
+### 2026-03-19T09:03:19+00:00
+Functional Disability Can Be Assessed At 100% For Intellectual Impairment: Kerala High Court Enhances Motor Accident Compensation
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/athira-v-the-united-india-insurance-co-ltd-2026ker23137-mact-functional-disability-intellectual-impairment-1610247
+
+[Source Link](https://t.me/verdictumlegalupdates/26021)
+
+---
+
+### 2026-03-19T08:32:58+00:00
+Supreme Court Dismisses PIL Against Import Of Wildlife By Private Entities
+https://www.verdictum.in/court-updates/supreme-court/dismisses-pil-against-wildlife-imports-private-entities-1610242
+
+[Source Link](https://t.me/verdictumlegalupdates/26020)
+
+---
+
+### 2026-03-19T08:03:17+00:00
+Direction To Refund Gratuity Without Vacating Staff Quarters Illegal: Supreme Court Grants Relief To SAIL In Gratuity Dispute Case
+https://www.verdictum.in/court-updates/supreme-court/the-management-of-steel-authority-of-india-ltd-v-shambhu-prasad-singh-ors-2026-insc-263-1610241
+
+[Source Link](https://t.me/verdictumlegalupdates/26019)
 
 ---
 
@@ -65,102 +161,6 @@ Mere Presence Of Victim’s Mother In Court As Advocate Clerk Cannot Dispense Wi
 https://www.verdictum.in/court-updates/high-courts/kerala-high-court/xxx-v-state-of-kerala-2026ker17222-pocso-victim-participation-bail-stage-substantive-right-1610200
 
 [Source Link](https://t.me/verdictumlegalupdates/26011)
-
----
-
-### 2026-03-18T15:02:43+00:00
-Asking Wife To Care For Family Member Does Not Constitute Cruelty U/S 498A IPC: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/sp-v-lt-2026dhc1982-divorce-cruelty-domestic-violence-breach-of-trust-1610199
-
-[Source Link](https://t.me/verdictumlegalupdates/26010)
-
----
-
-### 2026-03-18T14:32:51+00:00
-In Criminal Appeals, High Courts Must Issue Notice To Convict With Intimation Of Contacting Amicus If His Counsel Is Absent: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/bhola-mahto-v-the-state-of-jharkhand-2026-insc-257-high-court-notice-convict-amicus-counsel-absent-1610198
-
-[Source Link](https://t.me/verdictumlegalupdates/26009)
-
----
-
-### 2026-03-18T14:02:30+00:00
-Investigating Officer Cannot Compel Statutory Authority To Create Information; Can Only Seek Existing Documents U/S 94 BNSS: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/deputy-commissioner-of-customs-v-state-of-kerala-2026ker21518-us-94-bnss-investigating-officer-statutory-authority-1610194
-
-[Source Link](https://t.me/verdictumlegalupdates/26008)
-
----
-
-### 2026-03-18T13:32:29+00:00
-Can’t Seek DNA Test Of Children To Prove Wife’s Adultery: Andhra Pradesh High Court
-https://www.verdictum.in/court-updates/high-courts/andhra-pradesh-high-court/a-v-b-dna-test-children-wife-adultery-1610193
-
-[Source Link](https://t.me/verdictumlegalupdates/26007)
-
----
-
-### 2026-03-18T13:03:08+00:00
-Premises Used As Brothel Can Be Closed By Magistrate Under PITA Even Without Conviction Of Owner: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/anup-ganpat-gondkar-alias-anup-rajendra-gondkar-anr-v-state-of-maharashtra-2026bhc-aug11692-1610192
-
-[Source Link](https://t.me/verdictumlegalupdates/26006)
-
----
-
-### 2026-03-18T12:32:47+00:00
-Mere Financial Pressure Does Not Invalidate ‘Full & Final’ Settlement As Accord & Satisfaction Remains Binding: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/supermint-exports-pvt-ltd-v-new-india-assurance-co-ltd-2026dhc2146-db-financial-pressure-accord-and-satisfaction-1610186
-
-[Source Link](https://t.me/verdictumlegalupdates/26005)
-
----
-
-### 2026-03-18T12:03:06+00:00
-Senior Advocates, Academicians Write To CJI Seeking Contempt Action Against Arvind Kejriwal For Allegations Against Delhi HC Judge
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/letter-chief-justice-of-india-contempt-arvind-kejriwal-justice-swarana-kanta-sharma-1610190
-
-[Source Link](https://t.me/verdictumlegalupdates/26004)
-
----
-
-### 2026-03-18T11:32:44+00:00
-Statutory Shield U/s.69 Of NDPS Act Can’t Be Mechanically Invoked If Officer Has No Jurisdiction: Orissa High Court Refuses To Quash FIR Against Head Constable
-https://www.verdictum.in/court-updates/high-courts/orissa-high-court/anand-k-v-state-of-odisha-69-ndps-act-fir-against-police-officer-1610185
-
-[Source Link](https://t.me/verdictumlegalupdates/26003)
-
----
-
-### 2026-03-18T11:03:23+00:00
-US Divorce Decree On 'Irretrievable Breakdown' Not Valid Under Hindu Marriage Act: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/kishorekumar-mohan-kale-v-kashmira-kale-foreign-decree-divorcee-validity-1610183
-
-[Source Link](https://t.me/verdictumlegalupdates/26002)
-
----
-
-### 2026-03-18T10:33:02+00:00
-Section 16 POSH Act Does Not Bar Providing Relevant Inquiry Documents To Employee Facing Disciplinary Proceedings: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/linson-k-thomas-v-union-of-india-ors-2026ker21938-posh-act-inquiry-1610182
-
-[Source Link](https://t.me/verdictumlegalupdates/26001)
-
----
-
-### 2026-03-18T10:01:41+00:00
-Service Of Notice Through Email Valid Under PMLA Proceedings: Calcutta High Court
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/dipak-de-v-union-of-india-ors-plla-notice-electronic-mode-email-summon-1610181
-
-[Source Link](https://t.me/verdictumlegalupdates/26000)
-
----
-
-### 2026-03-18T09:32:19+00:00
-RPwD Act Does Not Permit State To Arbitrarily Prescribe Upper Disability Ceiling For Reservation In Public Employment: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/prabhu-kumar-v-state-of-himachal-pradesh-ors-2026-insc-253-rpwd-act-1610179
-
-[Source Link](https://t.me/verdictumlegalupdates/25999)
 
 ---
 
