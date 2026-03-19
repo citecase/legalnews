@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-19T13:42:41+00:00*
+*Last Updated: 2026-03-19T16:02:45+00:00*
+
+---
+
+### 2026-03-19T16:02:45+00:00
+Para Legal Personnel Vacancy At DWCWO West Godavari
+https://www.verdictum.in/job-updates/district-women-and-child-welfare-and-empowerment-office-1610260
+
+[Source Link](https://t.me/verdictumlegalupdates/26034)
+
+---
+
+### 2026-03-19T15:33:04+00:00
+Supreme Court Quashes Case Of Rape On False Promise Of Marriage By Married Worker Of Massage Parlour Against Customer
+https://www.verdictum.in/court-updates/supreme-court/ankit-tomar-v-state-of-haryana-2026-insc-262-consent-demolishes-complaint-rape-marriage-promise-1610272
+
+[Source Link](https://t.me/verdictumlegalupdates/26033)
+
+---
+
+### 2026-03-19T15:02:43+00:00
+Supreme Court Reserves Verdict On Definition Of 'Industry' Under Industrial Disputes Act
+https://www.verdictum.in/court-updates/supreme-court/reserves-verdict-on-definition-of-industry-1610273
+
+[Source Link](https://t.me/verdictumlegalupdates/26032)
+
+---
+
+### 2026-03-19T14:32:22+00:00
+Life Imprisonment Must Be Understood As Remainder Of Natural Life In Absence Of Specific Restriction; Remission Is Domain Of Government: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/sri-kishan-v-state-of-karnataka-ors-2026khc15413-life-imprisonment-1610269
+
+[Source Link](https://t.me/verdictumlegalupdates/26031)
 
 ---
 
@@ -129,38 +161,6 @@ Procedural Irregularities Cannot Defeat "Mubarat" Divorce Once Mutual Consent Is
 https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/x-v-z-2026gujhc19473-db-mubarat-divorce-muslim-personal-law-mutual-consent-1610223
 
 [Source Link](https://t.me/verdictumlegalupdates/26015)
-
----
-
-### 2026-03-19T05:02:51+00:00
-SPOs Engaged Under VDC Scheme Not Entitled To Article 311 Protection Or Regular Departmental Enquiry Before Disengagement: J&K And Ladakh High Court
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/kirpal-singh-v-union-territory-of-jammu-kashmir-ors-spo-article-311-1610221
-
-[Source Link](https://t.me/verdictumlegalupdates/26014)
-
----
-
-### 2026-03-19T04:33:00+00:00
-Prosecution Must Prove Active Growing Or Nurturing Cannabis Plants To Establish "Cultivation" U/S 20 NDPS Act: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/subhash-mahadu-mahajan-v-state-of-maharashtra-2026bhc-aug10837-ndps-act-1610201
-
-[Source Link](https://t.me/verdictumlegalupdates/26013)
-
----
-
-### 2026-03-18T16:02:45+00:00
-DLSA West Kameng Invites Applications For The Post Of Chief & Deputy Legal Aid Defence Counsel
-https://www.verdictum.in/job-updates/district-legal-services-authority-1610195
-
-[Source Link](https://t.me/verdictumlegalupdates/26012)
-
----
-
-### 2026-03-18T15:32:44+00:00
-Mere Presence Of Victim’s Mother In Court As Advocate Clerk Cannot Dispense With Duty To Hear POCSO Victim At Bail Stage: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/xxx-v-state-of-kerala-2026ker17222-pocso-victim-participation-bail-stage-substantive-right-1610200
-
-[Source Link](https://t.me/verdictumlegalupdates/26011)
 
 ---
 
