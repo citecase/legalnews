@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-18T16:02:45+00:00*
+*Last Updated: 2026-03-19T07:15:36+00:00*
+
+---
+
+### 2026-03-19T07:15:36+00:00
+Supreme Court Quashes Criminal Case Against Elvish Yadav Over Snake Venom Allegations
+https://www.verdictum.in/court-updates/supreme-court/quashes-criminal-case-against-elvish-yadav-over-snake-venom-allegations-1610237
+
+[Source Link](https://t.me/verdictumlegalupdates/26018)
+
+---
+
+### 2026-03-19T06:38:54+00:00
+No Embargo On Prayers Within Private Premises; Article 25 Protects Right to Congregate And Not Incitement Of One Faith By Another: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/munazir-khan-v-state-of-up-2026ahc52685-db-no-embargo-prayers-private-premises-article-25-1610229
+
+[Source Link](https://t.me/verdictumlegalupdates/26017)
+
+---
+
+### 2026-03-19T06:13:33+00:00
+Functional Disability Must Reflect Actual Loss Of Earning Capacity: Supreme Court Enhances Motor Accident Compensation
+https://www.verdictum.in/court-updates/supreme-court/r-halle-v-reliance-general-insurance-company-limited-2026-insc-260-mact-functional-disability-actual-loss-of-earning-neurological-impairment-1610227
+
+[Source Link](https://t.me/verdictumlegalupdates/26016)
+
+---
+
+### 2026-03-19T05:32:12+00:00
+Procedural Irregularities Cannot Defeat "Mubarat" Divorce Once Mutual Consent Is Admitted: Gujarat High Court
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/x-v-z-2026gujhc19473-db-mubarat-divorce-muslim-personal-law-mutual-consent-1610223
+
+[Source Link](https://t.me/verdictumlegalupdates/26015)
+
+---
+
+### 2026-03-19T05:02:51+00:00
+SPOs Engaged Under VDC Scheme Not Entitled To Article 311 Protection Or Regular Departmental Enquiry Before Disengagement: J&K And Ladakh High Court
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/kirpal-singh-v-union-territory-of-jammu-kashmir-ors-spo-article-311-1610221
+
+[Source Link](https://t.me/verdictumlegalupdates/26014)
+
+---
+
+### 2026-03-19T04:33:00+00:00
+Prosecution Must Prove Active Growing Or Nurturing Cannabis Plants To Establish "Cultivation" U/S 20 NDPS Act: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/subhash-mahadu-mahajan-v-state-of-maharashtra-2026bhc-aug10837-ndps-act-1610201
+
+[Source Link](https://t.me/verdictumlegalupdates/26013)
 
 ---
 
@@ -113,54 +161,6 @@ RPwD Act Does Not Permit State To Arbitrarily Prescribe Upper Disability Ceiling
 https://www.verdictum.in/court-updates/supreme-court/prabhu-kumar-v-state-of-himachal-pradesh-ors-2026-insc-253-rpwd-act-1610179
 
 [Source Link](https://t.me/verdictumlegalupdates/25999)
-
----
-
-### 2026-03-18T09:02:28+00:00
-Supreme Court Condemns Role Of Barabanki Bar Members In Toll Plaza Assault Case; Orders Bail & Case Transfer
-https://www.verdictum.in/court-updates/supreme-court/vishvjeet-v-state-of-uttar-pradesh-2026-insc-254-condemns-barabanki-bar-members-toll-plaza-assault-1610177
-
-[Source Link](https://t.me/verdictumlegalupdates/25998)
-
----
-
-### 2026-03-18T08:32:47+00:00
-Supreme Court Has Granted 9-Months Extension To Complete Trial In Sheena Bora Murder Case, Says No Further Extensions Will Be Entertained
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-has-granted-9-months-extension-to-complete-trial-in-sheena-bora-murder-case-says-no-further-extensions-will-be-entertained-1610174
-
-[Source Link](https://t.me/verdictumlegalupdates/25997)
-
----
-
-### 2026-03-18T08:02:46+00:00
-Supreme Court Rejects Pay Parity For Guest Lecturers, Mandates Honorarium As Per UGC Norms
-https://www.verdictum.in/court-updates/supreme-court/rejects-pay-parity-guest-lecturers-mandates-honorarium-ugc-norms-1610173
-
-[Source Link](https://t.me/verdictumlegalupdates/25996)
-
----
-
-### 2026-03-18T07:32:24+00:00
-Pre-Trial Scrutiny U/S. 319 CrPC Should Not Resemble A Mini Trial: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/mohammad-kaleem-v-state-of-uttar-pradesh-2026-insc-251-trial-level-scrutiny-us-319-crpc-mini-trial-1610168
-
-[Source Link](https://t.me/verdictumlegalupdates/25995)
-
----
-
-### 2026-03-18T07:02:43+00:00
-Where Forgery Is Alleged & Documents Sent For Handwriting Examination, FIR Cannot Be Quashed Before Expert Report: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/sharla-bazliel-v-baldev-thakur-others-2026-insc-252-forgery-expert-report-1610166
-
-[Source Link](https://t.me/verdictumlegalupdates/25994)
-
----
-
-### 2026-03-18T06:33:02+00:00
-Least Expected From Law Graduates To Reach Correct Conclusion When HC Judges Are At Variance About Correct Answer To MCQ: Supreme Court Directs Supernumerary Law Officer Post Creation
-https://www.verdictum.in/court-updates/supreme-court/charan-preet-singh-v-municipal-corporation-chandigarh-ors-2026-insc-248-law-graduates-supernumerary-post-1610161
-
-[Source Link](https://t.me/verdictumlegalupdates/25993)
 
 ---
 
