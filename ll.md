@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-18T13:00:57+00:00*
+*Last Updated: 2026-03-19T05:12:45+00:00*
 
 ---
 
-### 2026-03-18T13:00:57+00:00
-Fresh Poll Not Needed In Two-Candidate Election, Runner-Up Candidate Be Declared Elected: Supreme Court
-https://www.livelaw.in/supreme-court/fresh-poll-not-needed-in-two-candidate-election-runner-up-candidate-be-declared-elected-supreme-court-526953
+### 2026-03-19T05:12:45+00:00
+Plea In Madras High Court To Restore FIR Against TVK's Aadhav Arjuna Over Social Media Post Allegedly Inciting Violence
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-aadhav-arjuna-fir-quash-recall-order-application-527005
 
-[Read on Telegram](https://t.me/livelawindia/107149)
-
----
-### 2026-03-18T13:02:27+00:00
-Kerala High Court Judge Calls Own Judgment 'Per Incuriam'; Says Illegal Sand Mining Attracts Both Sand Act Offences And Theft Under BNS
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-river-sand-theft-removal-transportation-sand-act-526940
-
-[Read on Telegram](https://t.me/livelawindia/107150)
+[Read on Telegram](https://t.me/livelawindia/107175)
 
 ---
-### 2026-03-18T13:02:37+00:00
-2026 LiveLaw (SC) 260 | RAMADEBI RAUTRAY VERSUS STATE OF ODISHA AND ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-260-ramadebi-rautray-versus-state-of-odisha-and-ors-526954
+### 2026-03-19T05:17:05+00:00
+Business Affairs Executive Vacancy At Amazon [Mumbai; Apply Now]
+https://www.livelaw.in/job-updates/business-affairs-executive-vacancy-at-amazon-mumbai-527008
 
-[Read on Telegram](https://t.me/livelawindia/107151)
-
----
-### 2026-03-18T13:07:27+00:00
-MP High Court Orders Attachment, Civil Imprisonment For Wilful Injunction Breach; Flags Advocate's Dual Role As Counsel & Co-Sharer
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-attaches-property-and-orders-civil-jail-for-violating-stay-order-526956
-
-[Read on Telegram](https://t.me/livelawindia/107152)
+[Read on Telegram](https://t.me/livelawindia/107176)
 
 ---
-### 2026-03-18T13:10:27+00:00
-Baramulla Consumer Commission Fines IndiGo ₹89K For Loss Of Passenger's Baggage Due To Negligent Handling Of Group Luggage
-https://www.livelaw.in/news-updates/indigo-airlines-fined-rs-89000-for-loss-of-passengers-baggage-due-to-negligent-handling-of-group-luggage-consumer-commission-526958
+### 2026-03-19T05:18:05+00:00
+Chief Legal Aid Defence Counsel And Deputy Chief Legal Aid Defense Counsel Vacancy At District Legal Services Authority, West Kameng District
+https://www.livelaw.in/job-updates/chief-legal-aid-defence-counsel-and-deputy-chief-legal-aid-defense-counsel-vacancy-at-district-legal-services-authority-west-kameng-district-527009
 
-[Read on Telegram](https://t.me/livelawindia/107153)
-
----
-### 2026-03-18T13:18:07+00:00
-Telangana High Court Grants Bail To Woman Accused Of Prostitution, Says Mere Presence At Site Without Active Role Not Enough To Deny Relief
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-grants-bail-woman-accused-prostitution-case-526946
-
-[Read on Telegram](https://t.me/livelawindia/107154)
+[Read on Telegram](https://t.me/livelawindia/107177)
 
 ---
-### 2026-03-18T13:47:27+00:00
-Overtaking Without Due Care Violates Road Regulations, Constitutes Negligence: Himachal Pradesh High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-overtaking-due-care-violates-road-regulations-526959
+### 2026-03-19T05:19:45+00:00
+Junior Assistant Vacancy At District Legal Services Authority, Mahabubabad
+https://www.livelaw.in/job-updates/junior-assistant-vacancy-at-district-legal-services-authority-mahabubabad-527010
 
-[Read on Telegram](https://t.me/livelawindia/107155)
-
----
-### 2026-03-18T14:09:57+00:00
-Charity & Profession Can't Be Excluded From Definition Of 'Industry' Under ID Act : Indira Jaising Argues Before Supreme Court
-https://www.livelaw.in/top-stories/charity-profession-cant-be-excluded-from-definition-of-industry-under-id-act-indira-jaising-argues-before-supreme-court-526967
-
-[Read on Telegram](https://t.me/livelawindia/107156)
+[Read on Telegram](https://t.me/livelawindia/107178)
 
 ---
-### 2026-03-18T14:18:57+00:00
-Appellate Court Should Not Lightly Interfere With MACT Compensation : Supreme Court
-https://www.livelaw.in/supreme-court/appellate-court-should-not-lightly-interfere-with-mact-compensation-supreme-court-526970
+### 2026-03-19T05:21:05+00:00
+Deputy Manager And Assistant Manager Vacancy At Assam Valley Fertilizers & Chemical Company Limited (AVFCCL)
+https://www.livelaw.in/job-updates/deputy-manager-and-assistant-manager-vacancy-at-assam-valley-fertilizers-chemical-company-limited-avfccl-527011
 
-[Read on Telegram](https://t.me/livelawindia/107157)
-
----
-### 2026-03-18T14:21:18+00:00
-2026 LiveLaw (SC) 261 |  R. HALLE VERSUS RELIANCE GENERAL INSURANCE COMPANY LIMITED
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-261-r-halle-versus-reliance-general-insurance-company-limited-526971
-
-[Read on Telegram](https://t.me/livelawindia/107158)
+[Read on Telegram](https://t.me/livelawindia/107179)
 
 ---
-### 2026-03-18T14:32:38+00:00
-Consent: The Foundation Of Digital Data Protection
-https://www.livelaw.in/articles/consent-digital-data-protection-future-526937
+### 2026-03-19T05:22:45+00:00
+Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
+https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-527012
 
-[Read on Telegram](https://t.me/livelawindia/107159)
-
----
-### 2026-03-18T14:42:38+00:00
-Suicide Is Problem Of Civilised World, Driven By Stress & Social Pressure: Delhi High Court Convicts Man For Abetting Wife's Suicide
-https://www.livelaw.in/high-court/delhi-high-court/suicide-is-problem-of-civilised-world-driven-by-stress-social-pressure-delhi-high-court-convicts-man-for-abetting-wifes-suicide-526968
-
-[Read on Telegram](https://t.me/livelawindia/107160)
+[Read on Telegram](https://t.me/livelawindia/107180)
 
 ---
-### 2026-03-18T14:47:38+00:00
-'Daredevil Attack': 23 Yrs On, Delhi High Court Upholds Man's Conviction For Stabbing Policeman Who Intercepted Him
-https://www.livelaw.in/high-court/delhi-high-court/daredevil-attack-23-yrs-on-delhi-high-court-upholds-mans-conviction-for-stabbing-policeman-who-intercepted-him-526877
+### 2026-03-19T05:26:25+00:00
+SAIL Can Withhold Gratuity, Adjust It Against Penal Rent If Ex-Employees Illegally Retain Quarters: Supreme Court
+https://www.livelaw.in/supreme-court/sail-can-withhold-gratuity-adjust-it-against-penal-rent-if-ex-employees-illegally-retain-quarters-supreme-court-527013
 
-[Read on Telegram](https://t.me/livelawindia/107161)
-
----
-### 2026-03-18T15:32:25+00:00
-Nyaay Kala: Nyaay Sabha 2026
-https://www.livelaw.in/events/nyaay-sabha2026-526975
-
-[Read on Telegram](https://t.me/livelawindia/107162)
+[Read on Telegram](https://t.me/livelawindia/107181)
 
 ---
-### 2026-03-18T15:59:15+00:00
-Abhishek Manu Singhvi Calls For Reforms To Address Judicial Pendency
-https://www.livelaw.in/lawschool/news/abhishek-manu-singhvi-calls-for-reforms-to-address-judicial-pendency-526978
+### 2026-03-19T05:28:45+00:00
+2026 LiveLaw (SC) 262 | THE MANAGEMENT OF STEEL AUTHORITY OF INDIA AND OTHERS VERSUS SHAMBHU PRASAD SINGH AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-262-the-management-of-steel-authority-of-india-and-others-versus-shambhu-prasad-singh-and-others-527014
 
-[Read on Telegram](https://t.me/livelawindia/107163)
-
----
-### 2026-03-18T16:07:35+00:00
-Supreme Court Daily Round-Up : March 18, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-march-18-2026-526980
-
-[Read on Telegram](https://t.me/livelawindia/107164)
+[Read on Telegram](https://t.me/livelawindia/107182)
 
 ---
-### 2026-03-18T16:24:15+00:00
-Make A Contempt Reference If 'Browbeaten' By Police Over Uncomfortable Investigation Orders: Allahabad HC Advises Magistrates
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-magistrates-contempt-reference-police-officers-browbeat-uncomfortable-investigation-orders-526983
+### 2026-03-19T05:36:09+00:00
+Foreign Divorce Decree Not Enforceable In India If Party Had No Meaningful Opportunity To Contest It : Supreme Court
+https://www.livelaw.in/supreme-court/foreign-divorce-decree-not-enforceable-in-india-if-party-had-no-meaningful-opportunity-to-contest-it-supreme-court-527015
 
-[Read on Telegram](https://t.me/livelawindia/107165)
-
----
-### 2026-03-18T16:33:15+00:00
-[Advertisement] Into Legal World Launches Certification Course On Litigation, Drafting And Courtroom Advocacy
-https://www.livelaw.in/lawschool/diploma-certificate-courses/into-legal-world-launches-certification-course-on-litigation-drafting-and-courtroom-advocacy-526984
-
-[Read on Telegram](https://t.me/livelawindia/107166)
+[Read on Telegram](https://t.me/livelawindia/107183)
 
 ---
-### 2026-03-18T17:15:45+00:00
-Merely Using Words 'Bully' Or 'Unprofessional' On Social Media Not Defamation: Delhi Court
-https://www.livelaw.in/news-updates/merely-using-words-bully-or-unprofessional-on-social-media-not-defamation-delhi-court-526986
+### 2026-03-19T05:38:49+00:00
+Delhi High Court Directs Nakkheeran Publications To Take Down 'Defamatory' Content Against Sadhguru's Isha Foundation
+https://www.livelaw.in/high-court/delhi-high-court/isha-foundation-defamation-nakkheeran-publications-sadhguru-527017
 
-[Read on Telegram](https://t.me/livelawindia/107167)
+[Read on Telegram](https://t.me/livelawindia/107184)
 
 ---
-### 2026-03-18T17:17:05+00:00
-Delhi High Court Acquits Clerk In Three Decade Old Case Over Alleged ₹500 Bribe, Says CBI Failed To Prove Case
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-acquits-clerk-in-three-decade-old-case-over-alleged-500-bribe-says-cbi-failed-to-prove-case-526987
+### 2026-03-19T05:40:49+00:00
+Bengaluru Court Issues John Doe Injunction Restraining Derogatory Content On Pawan Kalyan Starrer 'Ustaad Bhagath Singh'
+https://www.livelaw.in/news-updates/defamatory-content-pawan-kalyan-john-doe-injunction-mythri-movie-makers-527019
 
-[Read on Telegram](https://t.me/livelawindia/107168)
+[Read on Telegram](https://t.me/livelawindia/107185)
+
+---
+### 2026-03-19T05:54:49+00:00
+Victim And Convict Belonging To Same Village Not By Itself Ground To Deny Parole: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-parole-benefits-mere-apprehension-threat-527023
+
+[Read on Telegram](https://t.me/livelawindia/107186)
+
+---
+### 2026-03-19T06:11:10+00:00
+Order Passed By Judge On A Subject Matter Beyond His Assigned Roster Is Illegal: Orissa High Court
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-order-passed-judge-subject-matter-beyond-assigned-roster-527025
+
+[Read on Telegram](https://t.me/livelawindia/107187)
+
+---
+### 2026-03-19T06:18:10+00:00
+Madras High Court Dismisses Plea To Ban Pre-Poll Alliance Between Political Parties
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-pre-poll-alliance-challenge-plea-dismissed-527027
+
+[Read on Telegram](https://t.me/livelawindia/107188)
+
+---
+### 2026-03-19T06:19:30+00:00
+Ex-SC Judge Gives Evidence Supporting Nirav Modi In United Kingdom
+https://www.livelaw.in/top-stories/ex-sc-judge-gives-evidence-supporting-nirav-modi-in-united-kingdom-527029
+
+[Read on Telegram](https://t.me/livelawindia/107189)
+
+---
+### 2026-03-19T06:33:00+00:00
+Contributory Negligence | Vehicle Suffering Higher Damage In Accident Doesn't Mean Its Driver Was Speeding: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-motorcycle-higher-damager-motorcyclist-high-speed-527030
+
+[Read on Telegram](https://t.me/livelawindia/107190)
+
+---
+### 2026-03-19T06:39:00+00:00
+Vadodara Car Crash : Supreme Court Refuses To Interfere With Bail Granted To Accused
+https://www.livelaw.in/top-stories/vadodara-car-crash-supreme-court-refuses-to-interfere-with-bail-granted-to-accused-527031
+
+[Read on Telegram](https://t.me/livelawindia/107191)
+
+---
+### 2026-03-19T06:47:20+00:00
+AP High Court Declines Father's Plea For DNA Test Of Children To Prove Alleged Adultery By Wife In Divorce Case
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-ruling-children-dna-test-proof-adultery-divorce-dispute-husbands-plea-rejected-527033
+
+[Read on Telegram](https://t.me/livelawindia/107192)
+
+---
+### 2026-03-19T06:49:20+00:00
+Supreme Court Quashes FIR Against YouTuber Elvish Yadav in Snake Venom Case; Allows Filing Of Fresh Wildlife Complaint
+https://www.livelaw.in/top-stories/supreme-court-quashes-fir-against-youtuber-elvish-yadav-in-snake-venom-case-allows-filing-of-fresh-wildlife-complaint-527035
+
+[Read on Telegram](https://t.me/livelawindia/107193)
+
+---
+### 2026-03-19T06:56:40+00:00
+“I've Been Taken For A Ride”: Madras HC Judge On State Seeking Stay Of Thiruparankundram Contempt Proceedings After Taking Adjournment
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-thiruparankundram-case-contempt-proceeding-stay-taken-for-ride-527036
+
+[Read on Telegram](https://t.me/livelawindia/107194)
 
 ---
