@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-19T16:02:45+00:00*
+*Last Updated: 2026-03-20T07:12:34+00:00*
+
+---
+
+### 2026-03-20T07:12:34+00:00
+Common Strategy Adopted By Well-Qualified Husbands To Quit Jobs To Avoid Paying Maintenance: Delhi High Court Dismisses Petition Of CRPF Officer Who Voluntarily Retired
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/p-v-q-2026dhc2170-husbands-quit-jobs-avoid-maintenance-crpf-officer-voluntarily-retired-1610304
+
+[Source Link](https://t.me/verdictumlegalupdates/26039)
+
+---
+
+### 2026-03-20T06:32:13+00:00
+Probate Court Not Competent to Determine Title; Caveator Challenging Testator’s Title Has No "Caveatable Interest": Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/sunil-waman-bhide-v-chandrahas-laxman-kanhere-2026bhc-as12947-probate-disputed-title-of-testator-caveatable-interest-1610299
+
+[Source Link](https://t.me/verdictumlegalupdates/26038)
+
+---
+
+### 2026-03-20T05:41:12+00:00
+Kahaani 2 Movie Copyright Infringement Case: Supreme Court Quashes Criminal Proceedings  Against Filmmaker Sujoy Ghosh
+https://www.verdictum.in/court-updates/supreme-court/quashes-criminal-proceedings-movie-kahani-2-copyright-infringement-case-filmmaker-sujoy-ghosh-1610300
+
+[Source Link](https://t.me/verdictumlegalupdates/26037)
+
+---
+
+### 2026-03-20T05:13:51+00:00
+Disciplinary Proceedings Can Continue Post-Retirement If Permitted By Service Rules: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/virinder-pal-singh-v-punjab-and-sind-bank-ors-2026-insc-266-post-retirement-proceedings-1610298
+
+[Source Link](https://t.me/verdictumlegalupdates/26036)
+
+---
+
+### 2026-03-20T04:32:59+00:00
+Compromise Between Parties In Sec.138 NI Act Case Should Be Given Effect To Even After Finalisation Of Conviction: Bombay High Court Reiterates
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/mr-ravi-v-mr-avinash-shinde-2026bhc-nag4511-compromise-parties-section-138-ni-act-conviction-1610274
+
+[Source Link](https://t.me/verdictumlegalupdates/26035)
 
 ---
 
@@ -121,46 +161,6 @@ Supreme Court Dismisses PIL Against Import Of Wildlife By Private Entities
 https://www.verdictum.in/court-updates/supreme-court/dismisses-pil-against-wildlife-imports-private-entities-1610242
 
 [Source Link](https://t.me/verdictumlegalupdates/26020)
-
----
-
-### 2026-03-19T08:03:17+00:00
-Direction To Refund Gratuity Without Vacating Staff Quarters Illegal: Supreme Court Grants Relief To SAIL In Gratuity Dispute Case
-https://www.verdictum.in/court-updates/supreme-court/the-management-of-steel-authority-of-india-ltd-v-shambhu-prasad-singh-ors-2026-insc-263-1610241
-
-[Source Link](https://t.me/verdictumlegalupdates/26019)
-
----
-
-### 2026-03-19T07:15:36+00:00
-Supreme Court Quashes Criminal Case Against Elvish Yadav Over Snake Venom Allegations
-https://www.verdictum.in/court-updates/supreme-court/quashes-criminal-case-against-elvish-yadav-over-snake-venom-allegations-1610237
-
-[Source Link](https://t.me/verdictumlegalupdates/26018)
-
----
-
-### 2026-03-19T06:38:54+00:00
-No Embargo On Prayers Within Private Premises; Article 25 Protects Right to Congregate And Not Incitement Of One Faith By Another: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/munazir-khan-v-state-of-up-2026ahc52685-db-no-embargo-prayers-private-premises-article-25-1610229
-
-[Source Link](https://t.me/verdictumlegalupdates/26017)
-
----
-
-### 2026-03-19T06:13:33+00:00
-Functional Disability Must Reflect Actual Loss Of Earning Capacity: Supreme Court Enhances Motor Accident Compensation
-https://www.verdictum.in/court-updates/supreme-court/r-halle-v-reliance-general-insurance-company-limited-2026-insc-260-mact-functional-disability-actual-loss-of-earning-neurological-impairment-1610227
-
-[Source Link](https://t.me/verdictumlegalupdates/26016)
-
----
-
-### 2026-03-19T05:32:12+00:00
-Procedural Irregularities Cannot Defeat "Mubarat" Divorce Once Mutual Consent Is Admitted: Gujarat High Court
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/x-v-z-2026gujhc19473-db-mubarat-divorce-muslim-personal-law-mutual-consent-1610223
-
-[Source Link](https://t.me/verdictumlegalupdates/26015)
 
 ---
 
