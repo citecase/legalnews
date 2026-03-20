@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-20T07:12:34+00:00*
+*Last Updated: 2026-03-20T13:32:17+00:00*
+
+---
+
+### 2026-03-20T13:32:17+00:00
+No Statutory Time Limit Under NSA To Make A Representation: Manipur High Court Quashes Preventive Detention Order
+https://www.verdictum.in/court-updates/high-courts/manipur-high-court/laishram-nilajit-shija-v-the-state-of-manipur-wp-crl-no-1-of-2026-statutory-time-limit-under-nsa-preventive-detention-1610339
+
+[Source Link](https://t.me/verdictumlegalupdates/26050)
+
+---
+
+### 2026-03-20T13:02:56+00:00
+Averment That Previous Counsel Wasn't Properly Instructed Stands In Face Of Integrity Of Legal Profession: Punjab & Haryana High Court Imposes Cost On Litigant
+https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/ankit-rawal-v-state-of-haryana-averment-previous-counsel-legal-profession-cost-imposed-1610338
+
+[Source Link](https://t.me/verdictumlegalupdates/26049)
+
+---
+
+### 2026-03-20T12:32:35+00:00
+Children Born To Parents When In Love Become Victims Of Their Strife: Kerala High Court Highlights Children's Trauma In Matrimonial Disputes
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/x-v-state-of-kerala-2026ker20633-custody-disputes-children-born-in-love-become-victims-1610337
+
+[Source Link](https://t.me/verdictumlegalupdates/26048)
+
+---
+
+### 2026-03-20T12:03:14+00:00
+Hostility Shown By Independent Witnesses To Recovery Mahazar Not Always Fatal To Prosecution If Investigating Officer's Evidence Is Reliable: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/ratheesh-v-the-state-of-kerala-2026ker21248-hostility-independent-witnesses-recovery-mahazar-investigating-officer-evidence-1610321
+
+[Source Link](https://t.me/verdictumlegalupdates/26047)
+
+---
+
+### 2026-03-20T11:33:23+00:00
+Once Everyone Follows Fraternity, There Will Be No Hate Speech: Supreme Court Refuses To Entertain Plea Against Hate Speech Targeting Brahmins
+https://www.verdictum.in/court-updates/supreme-court/once-everyone-follows-fraternity-there-will-be-no-hate-speech-supreme-court-refuses-to-entertain-plea-against-hate-speech-targeting-brahmins-1610328
+
+[Source Link](https://t.me/verdictumlegalupdates/26046)
+
+---
+
+### 2026-03-20T11:03:01+00:00
+Don't Engage In Political Battle In Court: Apex Court Refuses To Entertain Woman’s Plea Alleging Threats Orchestrated By Karnataka’s CM Siddaramaiah
+https://www.verdictum.in/court-updates/supreme-court/dont-engage-in-political-battle-in-court-apex-court-refuses-to-entertain-womans-plea-alleging-threats-orchestrated-by-karnatakas-cm-siddaramaiah-1610327
+
+[Source Link](https://t.me/verdictumlegalupdates/26045)
+
+---
+
+### 2026-03-20T10:33:00+00:00
+CJI Surya Kant Recuses From Election Commissioners Appointment Case; Calls For Bench With No Future CJIs
+https://www.verdictum.in/court-updates/supreme-court/surya-kant-recuses-ec-appointment-case-bench-with-no-future-cji-1610330
+
+[Source Link](https://t.me/verdictumlegalupdates/26044)
+
+---
+
+### 2026-03-20T09:52:59+00:00
+Lethargy In Curbing Illegal Mining At National Chambal Sanctuary Will Amount To Aiding Habitat Destruction: Supreme Court Warns States Of Rajasthan, MP & UP
+https://www.verdictum.in/court-updates/supreme-court/national-chambal-sanctuary-aiding-habitat-destruction-states-of-rajasthan-mp-up-ghariyals-1610322
+
+[Source Link](https://t.me/verdictumlegalupdates/26043)
+
+---
+
+### 2026-03-20T09:02:18+00:00
+Delhi High Court Directs Railways Ministry To Extend Special Recruitment Quota To Hindustan Scouts & Guides Association, Ends Decades-Old Monopoly
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/hindustan-scouts-and-guides-association-through-its-national-secretary-champat-singh-anr-v-union-of-india-2026dhc2163-hindustan-scouts-and-guide-association-1610319
+
+[Source Link](https://t.me/verdictumlegalupdates/26042)
+
+---
+
+### 2026-03-20T08:22:57+00:00
+Mainstream Media Is By And Large Responsible, Problem Is Atomized Social Media: Supreme Court Flags Concerns In Plea Highlighting Misuse Of Digital Platforms By Police
+https://www.verdictum.in/court-updates/supreme-court/flags-concerns-plea-highlighting-growing-misuse-digital-platforms-by-law-enforcement-1610314
+
+[Source Link](https://t.me/verdictumlegalupdates/26041)
+
+---
+
+### 2026-03-20T07:53:16+00:00
+Mob Lynching U/S 103(2) BNS More Serious Than Ordinary Murder: Kerala High Court Cancels Bail Of 8 Accused In Walayar Lynching Case
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/state-of-kerala-v-anu-2026ker24661-mob-lynching-us-1032-bns-walayar-lynching-case-1610310
+
+[Source Link](https://t.me/verdictumlegalupdates/26040)
 
 ---
 
@@ -73,94 +161,6 @@ Life Imprisonment Must Be Understood As Remainder Of Natural Life In Absence Of 
 https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/sri-kishan-v-state-of-karnataka-ors-2026khc15413-life-imprisonment-1610269
 
 [Source Link](https://t.me/verdictumlegalupdates/26031)
-
----
-
-### 2026-03-19T13:42:41+00:00
-Consumer Fora Cannot Decide Fraudulent Pledge Disputes; FDR Deposits Not Per Se "Commercial Purpose": Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/sant-rohidas-leather-industries-and-charmakar-development-corporation-ltd-v-vijaya-bank-2026-insc-264-consumer-fora-fraudulent-pledge-1610268
-
-[Source Link](https://t.me/verdictumlegalupdates/26030)
-
----
-
-### 2026-03-19T13:02:19+00:00
-Bombay High Court Rules ₹50 Lakh COVID-19 Benefit Cannot Be Denied Citing Arbitrary Cut-Off Date; Orders Relief For Deceased Clerk’s Family
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/2026-bhckol1977db-sanika-santosh-shinde-and-others-v-state-of-maharashtra-1610259
-
-[Source Link](https://t.me/verdictumlegalupdates/26029)
-
----
-
-### 2026-03-19T12:32:58+00:00
-Dishonour Of Post-Dated Cheque By Itself Not Sufficient To Presume Dishonest Intention For Cheating: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/v-ganesan-v-state-represented-by-the-sub-inspector-of-police-anr-2026-insc-265-1610258
-
-[Source Link](https://t.me/verdictumlegalupdates/26028)
-
----
-
-### 2026-03-19T12:02:57+00:00
-'Can’t Help Feeling That I Have Been Taken For A Ride': Madras High Court On Stay Sought By State In Thiruparankundram Deepam Contempt Case
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/rama-ravikumar-v-kjpraveenkumar-stay-state-karthigai-deepam-contempt-case-1610257
-
-[Source Link](https://t.me/verdictumlegalupdates/26027)
-
----
-
-### 2026-03-19T11:32:56+00:00
-Crossing Central Line While Overtaking Amounts To Rash And Negligent Driving: Himachal Pradesh High Court Sets Aside Acquittal
-https://www.verdictum.in/court-updates/high-courts/himachal-high-court/state-of-hp-v-dhruv-dev-2026hhc3751-central-line-overtaking-rash-and-negligent-driving-1610256
-
-[Source Link](https://t.me/verdictumlegalupdates/26026)
-
----
-
-### 2026-03-19T11:02:34+00:00
-Life Estate Granted To Widow Under Will Becomes Absolute U/S 14 Hindu Succession Act; Subsequent Bequest Ineffective: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/p-k-lakshmi-v-gopi-2026ker20646-life-estate-widow-wil-us-14-hindu-succession-act-1610254
-
-[Source Link](https://t.me/verdictumlegalupdates/26025)
-
----
-
-### 2026-03-19T10:32:53+00:00
-Calcutta High Court Upholds Tender Conditions For Surveillance & Web Streaming Of West Bengal Assembly Elections 2026
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/innovatiview-india-limited-v-the-chief-electoral-officer-west-bengal-ors-2026chc-os92-db-1610253
-
-[Source Link](https://t.me/verdictumlegalupdates/26024)
-
----
-
-### 2026-03-19T10:02:42+00:00
-Long Trial Must Have Wisened & Tired Him: Delhi High Court Converts Husband’s Conviction U/S 304-B to 306 IPC, Ends Further Imprisonment
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/veer-pal-v-state-nct-of-delhi-2026dhc2149-us-304-b-to-306-ipc-husbands-conviction-imprisonment-1610250
-
-[Source Link](https://t.me/verdictumlegalupdates/26023)
-
----
-
-### 2026-03-19T09:33:00+00:00
-Offence Punishable With Lesser Sentence Can Be Considered As Minor Offence U/S.222 CrPC When Two Offences Are Cognate & Main Ingredients Are Common: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/the-state-of-uttar-pradesh-v-ram-swaroop-barkat-2026-insc-256-lesser-sentence-minor-offence-section-222-crpc-1610249
-
-[Source Link](https://t.me/verdictumlegalupdates/26022)
-
----
-
-### 2026-03-19T09:03:19+00:00
-Functional Disability Can Be Assessed At 100% For Intellectual Impairment: Kerala High Court Enhances Motor Accident Compensation
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/athira-v-the-united-india-insurance-co-ltd-2026ker23137-mact-functional-disability-intellectual-impairment-1610247
-
-[Source Link](https://t.me/verdictumlegalupdates/26021)
-
----
-
-### 2026-03-19T08:32:58+00:00
-Supreme Court Dismisses PIL Against Import Of Wildlife By Private Entities
-https://www.verdictum.in/court-updates/supreme-court/dismisses-pil-against-wildlife-imports-private-entities-1610242
-
-[Source Link](https://t.me/verdictumlegalupdates/26020)
 
 ---
 
