@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-20T09:12:36+00:00*
+*Last Updated: 2026-03-20T10:06:24+00:00*
 
 ---
 
-### 2026-03-20T09:12:36+00:00
-Supreme Court Bench With No CJI Or Future CJI To Hear Plea Challenging Law On Election Commissioners' Appointment
-https://www.livelaw.in/top-stories/supreme-court-bench-with-no-cji-or-future-cji-to-hear-plea-challenging-law-on-election-commissioners-appointment-527190
-
-[Read on Telegram](https://t.me/livelawindia/107279)
-
----
-### 2026-03-20T09:27:44+00:00
-Compliance With S.41A CrPC Notice Ordinarily Bars Arrest: MP High Court Grants Anticipatory Bail In Police Constable Recruitment Scam
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-allows-anticipatory-bail-to-middleman-in-police-constable-recruitment-exam-527194
-
-[Read on Telegram](https://t.me/livelawindia/107280)
-
----
-### 2026-03-20T09:30:44+00:00
-'People Have Right To Criticise Our Judgments': Supreme Court On Plea Against Old NCERT Chapter On Verdicts About Slums
-https://www.livelaw.in/top-stories/supreme-court-plea-against-old-ncert-textbook-excerpt-slum-dwellers-viewed-as-encroachers-disposed-of-people-have-right-to-criticize-judgments-527196
-
-[Read on Telegram](https://t.me/livelawindia/107281)
-
----
-### 2026-03-20T09:35:44+00:00
-1st NLUJ-CCLRP National Essay Writing Competition, 2026
-https://www.livelaw.in/lawschool/competitions/1st-nluj-cclrp-national-essay-writing-competition-527201
-
-[Read on Telegram](https://t.me/livelawindia/107282)
-
----
-### 2026-03-20T09:37:24+00:00
-Gujarat High Court Upholds Man's Discharge In Adultery Case Citing SC Judgment Striking Down S.497 IPC As Unconstitutional
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-adultery-sc-judgment-section-497-ipc-unconstitutional-527195
-
-[Read on Telegram](https://t.me/livelawindia/107283)
-
----
-### 2026-03-20T09:47:44+00:00
-'Unfortunate': MP High Court Laments IAS Officer Blindly Passing Order In Illegal Mining Case Without Verifying Facts, Imposes Costs
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-criticises-ias-offier-for-mechanically-passing-order-without-application-of-mind-527202
-
-[Read on Telegram](https://t.me/livelawindia/107284)
-
----
-### 2026-03-20T09:56:24+00:00
-Supreme Court Refuses To Stop BMC From Cutting 46K Mangroves For Versova-Bhayander Coastal Road
-https://www.livelaw.in/top-stories/supreme-court-refuses-to-stop-bmc-from-cutting-46k-mangroves-for-versova-bhayander-coastal-road-527204
-
-[Read on Telegram](https://t.me/livelawindia/107285)
-
----
-### 2026-03-20T09:57:04+00:00
-DBRANLU Concludes 3rd National Moot Court Competition 2026 In Collaboration With NHRC
-https://www.livelaw.in/lawschool/news/dbranlu-concludes-3rd-national-moot-court-competition-2026-in-collaboration-with-nhrc-527205
-
-[Read on Telegram](https://t.me/livelawindia/107286)
-
----
-### 2026-03-20T10:04:24+00:00
-Railways Liable To Pay Compensation For Loss Of 'Unborn' Child Aged 5 Months Or More In An Accident: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-railways-compensation-accidental-death-unborn-child-5-months-527208
-
-[Read on Telegram](https://t.me/livelawindia/107287)
-
----
 ### 2026-03-20T10:06:24+00:00
 [Advertisement] 1st NLU Delhi – Khaitan & Co Certificate Course on Taxation Laws
 https://www.livelaw.in/lawschool/diploma-certificate-courses/1st-nlu-delhi-khaitan-co-certificate-course-on-taxation-laws-527209
@@ -142,5 +79,68 @@ https://www.livelaw.in/supreme-court/set-off-can-be-raised-as-defence-against-co
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-272-ujaas-energy-ltd-vs-west-bengal-power-development-corporation-ltd-527229
 
 [Read on Telegram](https://t.me/livelawindia/107298)
+
+---
+### 2026-03-20T14:05:15+00:00
+United & United Relocates Headquarters To Noida, Inducts Three Partners
+https://www.livelaw.in/law-firms/professional-announcement/united-united-relocates-headquarters-to-noida-inducts-three-partners-527239
+
+[Read on Telegram](https://t.me/livelawindia/107299)
+
+---
+### 2026-03-20T14:09:15+00:00
+Delhi High Court Calls For Streamlining Of Prosecution Of Bails, Says Higher Police Authorities Unaware Of Ground Level Work
+https://www.livelaw.in/high-court/delhi-high-court/streamline-bail-prosecution-higher-police-authorities-unaware-of-ground-level-work-527241
+
+[Read on Telegram](https://t.me/livelawindia/107300)
+
+---
+### 2026-03-20T14:29:05+00:00
+HCs Can Look Beyond FIR/Complaint To Quash Frivolous Or Vexatious Criminal Proceedings : Supreme Court
+https://www.livelaw.in/supreme-court/hcs-can-look-beyond-fircomplaint-to-quash-frivolous-or-vexatious-criminal-proceedings-supreme-court-527243
+
+[Read on Telegram](https://t.me/livelawindia/107301)
+
+---
+### 2026-03-20T14:37:25+00:00
+'Caste Has No Real Existence Except In People's Minds': Madras High Court Declines Permission For Statue Over Caste Concerns
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-people-forgetting-real-things-and-remembering-only-caste-527244
+
+[Read on Telegram](https://t.me/livelawindia/107302)
+
+---
+### 2026-03-20T14:54:05+00:00
+Blackmailing By Digital Platforms Like Digital Arrest : CJI Surya Kant
+https://www.livelaw.in/top-stories/blackmailing-by-digital-platforms-like-digital-arrest-cji-surya-kant-527245
+
+[Read on Telegram](https://t.me/livelawindia/107303)
+
+---
+### 2026-03-20T15:09:05+00:00
+Xavier Law School To Host 4th Xavier Mediation Competition 2026
+https://www.livelaw.in/lawschool/competitions/xavier-law-school-to-host-4th-xavier-mediation-competition-527247
+
+[Read on Telegram](https://t.me/livelawindia/107304)
+
+---
+### 2026-03-20T15:21:05+00:00
+[POCSO Act] Girl Being Friendly With Boy On Valentines Day No License For Forced Sex: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/pocso-act-girl-being-friendly-with-boy-on-valentines-day-no-license-for-forced-sex-delhi-high-court-527248
+
+[Read on Telegram](https://t.me/livelawindia/107305)
+
+---
+### 2026-03-20T15:43:35+00:00
+Criminal Started Coming Into Legal Profession, BCI Tells Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-advocates-act-bci-plea-against-madras-hc-direction-to-not-enroll-law-graduates-with-pending-criminal-cases-notice-527249
+
+[Read on Telegram](https://t.me/livelawindia/107306)
+
+---
+### 2026-03-20T16:58:05+00:00
+Supreme Court Daily Round-Up : March 20, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-march-20-2026-527251
+
+[Read on Telegram](https://t.me/livelawindia/107307)
 
 ---
