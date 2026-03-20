@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-20T05:05:33+00:00*
+*Last Updated: 2026-03-20T09:12:36+00:00*
 
 ---
 
-### 2026-03-20T05:05:33+00:00
-Movie Can Be Flop Too; No Cheating Offence Just Because Film Investment Didn't Return Profit : Supreme Court
-https://www.livelaw.in/supreme-court/movie-can-be-flop-too-no-cheating-offence-just-because-film-investment-didnt-return-profit-supreme-court-527137
+### 2026-03-20T09:12:36+00:00
+Supreme Court Bench With No CJI Or Future CJI To Hear Plea Challenging Law On Election Commissioners' Appointment
+https://www.livelaw.in/top-stories/supreme-court-bench-with-no-cji-or-future-cji-to-hear-plea-challenging-law-on-election-commissioners-appointment-527190
 
-[Read on Telegram](https://t.me/livelawindia/107247)
-
----
-### 2026-03-20T05:13:06+00:00
-Rajasthan High Court Rejects Plea Challenging RJS Civil Judge 2024 Prelims Answer Key
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-rejects-challenge-rjs-examination-answer-key-527135
-
-[Read on Telegram](https://t.me/livelawindia/107248)
+[Read on Telegram](https://t.me/livelawindia/107279)
 
 ---
-### 2026-03-20T05:16:06+00:00
-Delhi High Court To Pass Interim Order Protecting Actress Sonakshi Sinha's Personality Rights
-https://www.livelaw.in/high-court/delhi-high-court/sonakshi-sinha-personality-rights-interim-protection-527138
+### 2026-03-20T09:27:44+00:00
+Compliance With S.41A CrPC Notice Ordinarily Bars Arrest: MP High Court Grants Anticipatory Bail In Police Constable Recruitment Scam
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-allows-anticipatory-bail-to-middleman-in-police-constable-recruitment-exam-527194
 
-[Read on Telegram](https://t.me/livelawindia/107249)
-
----
-### 2026-03-20T05:23:26+00:00
-Senior Assistant Secretary Vacancy At Deendayal Port Authority
-https://www.livelaw.in/job-updates/senior-assistant-secretary-vacancy-at-deendayal-port-authority-527140
-
-[Read on Telegram](https://t.me/livelawindia/107250)
+[Read on Telegram](https://t.me/livelawindia/107280)
 
 ---
-### 2026-03-20T05:28:26+00:00
-Notary Vacancy At Kadur Revenue Taluk, Chikkamagaluru District, Karnataka
-https://www.livelaw.in/job-updates/notary-vacancy-at-kadur-revenue-taluk-chikkamagaluru-district-karnataka-527141
+### 2026-03-20T09:30:44+00:00
+'People Have Right To Criticise Our Judgments': Supreme Court On Plea Against Old NCERT Chapter On Verdicts About Slums
+https://www.livelaw.in/top-stories/supreme-court-plea-against-old-ncert-textbook-excerpt-slum-dwellers-viewed-as-encroachers-disposed-of-people-have-right-to-criticize-judgments-527196
 
-[Read on Telegram](https://t.me/livelawindia/107251)
-
----
-### 2026-03-20T05:30:46+00:00
-40-Hour Mediation Training For Hearing And Speech-Impaired Professionals Will Bolster Inclusive Justice: MP Chief Justice
-https://www.livelaw.in/news-updates/40-hour-mediation-training-for-hearing-and-speech-impaired-professionals-will-bolster-inclusive-justice-mp-chief-justice-527142
-
-[Read on Telegram](https://t.me/livelawindia/107252)
+[Read on Telegram](https://t.me/livelawindia/107281)
 
 ---
-### 2026-03-20T05:35:46+00:00
-HR Legal Officer And Senior Officer/ Assistant Manager – Company Secretary Vacancy At Hindustan Petroleum Corporation Limited (HPCL)
-https://www.livelaw.in/job-updates/hr-legal-officer-and-senior-officer-assistant-manager-company-secretary-vacancy-at-hindustan-petroleum-corporation-limited-527143
+### 2026-03-20T09:35:44+00:00
+1st NLUJ-CCLRP National Essay Writing Competition, 2026
+https://www.livelaw.in/lawschool/competitions/1st-nluj-cclrp-national-essay-writing-competition-527201
 
-[Read on Telegram](https://t.me/livelawindia/107253)
-
----
-### 2026-03-20T05:37:26+00:00
-Legal Assistant Vacancy At Various Departments Of Delhi
-https://www.livelaw.in/job-updates/legal-assistant-vacancy-at-various-departments-of-delhi-527144
-
-[Read on Telegram](https://t.me/livelawindia/107254)
+[Read on Telegram](https://t.me/livelawindia/107282)
 
 ---
-### 2026-03-20T05:38:46+00:00
-Plea In Supreme Court For Proper Investigation Of Rape Of 4 Year Old Girl In Gurugram
-https://www.livelaw.in/top-stories/plea-in-supreme-court-for-proper-investigation-of-rape-of-4-year-old-girl-in-gurugram-527145
+### 2026-03-20T09:37:24+00:00
+Gujarat High Court Upholds Man's Discharge In Adultery Case Citing SC Judgment Striking Down S.497 IPC As Unconstitutional
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-adultery-sc-judgment-section-497-ipc-unconstitutional-527195
 
-[Read on Telegram](https://t.me/livelawindia/107255)
-
----
-### 2026-03-20T05:39:26+00:00
-Delhi High Court Asks Gautam Gambhir To File Correct Memo Of Parties In Suit Seeking Protection Of Personality Rights
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-gautam-gambhir-personality-rights-527146
-
-[Read on Telegram](https://t.me/livelawindia/107256)
+[Read on Telegram](https://t.me/livelawindia/107283)
 
 ---
-### 2026-03-20T05:52:06+00:00
-DNLU Jabalpur To Host WTO Chairs Programme International Symposium 2026 On Carbon Governance And Global Justice
-https://www.livelaw.in/lawschool/news/dnlu-jabalpur-to-host-wto-chairs-programme-international-symposium-2026-on-carbon-governance-and-global-justice-527147
+### 2026-03-20T09:47:44+00:00
+'Unfortunate': MP High Court Laments IAS Officer Blindly Passing Order In Illegal Mining Case Without Verifying Facts, Imposes Costs
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-criticises-ias-offier-for-mechanically-passing-order-without-application-of-mind-527202
 
-[Read on Telegram](https://t.me/livelawindia/107257)
-
----
-### 2026-03-20T05:59:26+00:00
-Supreme Court Weekly Digest February 1 - 5, 2026
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-weekly-digest-february-2026-527148
-
-[Read on Telegram](https://t.me/livelawindia/107258)
+[Read on Telegram](https://t.me/livelawindia/107284)
 
 ---
-### 2026-03-20T06:02:26+00:00
-Delhi High Court Quashes Extradition Of Man Wanted In UK Murder Case, Says No Prima Facie Evidence Of Stabbing
-https://www.livelaw.in/high-court/delhi-high-court/uk-murder-extradition-quashed-prima-facie-no-stabbing-527149
+### 2026-03-20T09:56:24+00:00
+Supreme Court Refuses To Stop BMC From Cutting 46K Mangroves For Versova-Bhayander Coastal Road
+https://www.livelaw.in/top-stories/supreme-court-refuses-to-stop-bmc-from-cutting-46k-mangroves-for-versova-bhayander-coastal-road-527204
 
-[Read on Telegram](https://t.me/livelawindia/107259)
-
----
-### 2026-03-20T06:17:16+00:00
-Supreme Court Accepts Proposal To Hold Tripura Village Committee Elections By June 2026
-https://www.livelaw.in/top-stories/supreme-court-accepts-proposal-to-hold-tripura-village-committee-elections-by-june-2026-527150
-
-[Read on Telegram](https://t.me/livelawindia/107260)
+[Read on Telegram](https://t.me/livelawindia/107285)
 
 ---
-### 2026-03-20T06:25:16+00:00
-Supreme Court Quashes Copyright Infringement Case Against Director Sujoy Ghosh Over 'Kahani 2' Script
-https://www.livelaw.in/top-stories/supreme-court-quashes-copyright-infringement-case-against-director-sujoy-ghosh-over-kahani-2-script-527151
+### 2026-03-20T09:57:04+00:00
+DBRANLU Concludes 3rd National Moot Court Competition 2026 In Collaboration With NHRC
+https://www.livelaw.in/lawschool/news/dbranlu-concludes-3rd-national-moot-court-competition-2026-in-collaboration-with-nhrc-527205
 
-[Read on Telegram](https://t.me/livelawindia/107261)
-
----
-### 2026-03-20T06:26:56+00:00
-Ernakulam District Commission Holds Polycab India Liable For Deficiency In Service For Refusing To Replace Defective Inverter During Warranty Period
-https://www.livelaw.in/consumer-cases/ernakulam-district-commission-holds-polycab-india-liable-for-deficiency-in-service-for-refusing-to-replace-defective-inverter-during-warranty-period-527152
-
-[Read on Telegram](https://t.me/livelawindia/107262)
+[Read on Telegram](https://t.me/livelawindia/107286)
 
 ---
-### 2026-03-20T06:27:56+00:00
-NALSAR Announces CIRP Simulation Competition 2026 Under NCIBL 2.0
-https://www.livelaw.in/lawschool/competitions/nalsar-announces-cirp-simulation-competition-2026-under-ncibl-20-527153
+### 2026-03-20T10:04:24+00:00
+Railways Liable To Pay Compensation For Loss Of 'Unborn' Child Aged 5 Months Or More In An Accident: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-railways-compensation-accidental-death-unborn-child-5-months-527208
 
-[Read on Telegram](https://t.me/livelawindia/107263)
-
----
-### 2026-03-20T06:31:16+00:00
-National Manager Vacancy At Kotak Mahindra Bank Limited [Apply Now]
-https://www.livelaw.in/job-updates/national-manager-vacancy-at-kotak-mahindra-bank-limited-527154
-
-[Read on Telegram](https://t.me/livelawindia/107264)
+[Read on Telegram](https://t.me/livelawindia/107287)
 
 ---
-### 2026-03-20T06:51:27+00:00
-Delhi HC Quashes Jamia's Action Against Professor Who Sought Separate Ladies Toilet, Says Safe Workplace Includes Dignified Restrooms
-https://www.livelaw.in/high-court/delhi-high-court/jamia-safe-workplace-includes-dignified-restrooms-ladies-toilet-527156
+### 2026-03-20T10:06:24+00:00
+[Advertisement] 1st NLU Delhi – Khaitan & Co Certificate Course on Taxation Laws
+https://www.livelaw.in/lawschool/diploma-certificate-courses/1st-nlu-delhi-khaitan-co-certificate-course-on-taxation-laws-527209
 
-[Read on Telegram](https://t.me/livelawindia/107265)
+[Read on Telegram](https://t.me/livelawindia/107288)
 
 ---
-### 2026-03-20T06:53:47+00:00
-Ganga Iftar Party Row | Varanasi Court Remands 14 Accused To Judicial Custody Until April 1
-https://www.livelaw.in/news-updates/ganga-iftar-party-row-varanasi-court-remands-14-accused-judicial-custody-april-1-527158
+### 2026-03-20T10:35:35+00:00
+Wildlife Surveillance & Tribal Privacy: Supreme Court Asks Petitioner To Approach  Ministry
+https://www.livelaw.in/top-stories/wildlife-surveillance-tribal-privacy-supreme-court-asks-petitioner-to-approach-ministry-527214
 
-[Read on Telegram](https://t.me/livelawindia/107266)
+[Read on Telegram](https://t.me/livelawindia/107289)
+
+---
+### 2026-03-20T10:41:15+00:00
+Chambal Sanctuary | Supreme Court To Hold Officials Vicariously Liable For Wildlife Destruction Due To Illegal Sand Mining
+https://www.livelaw.in/top-stories/supreme-court-illegal-sand-mining-national-chambal-sanctuary-endangered-gharial-suo-motu-vicarious-liability-of-officials-lethargy-inaction-527215
+
+[Read on Telegram](https://t.me/livelawindia/107290)
+
+---
+### 2026-03-20T11:00:21+00:00
+Calling Debtor For Loan Repayment Not Abetment Of Suicide : Supreme Court
+https://www.livelaw.in/supreme-court/calling-debtor-for-loan-repayment-not-abetment-of-suicide-supreme-court-527216
+
+[Read on Telegram](https://t.me/livelawindia/107291)
+
+---
+### 2026-03-20T11:01:41+00:00
+2026 LiveLaw (SC) 270 | DHIRUBHAI NANJIBHAI PATEL LOTWALA VERSUS STATE OF GUJARAT & ANR
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-270-dhirubhai-nanjibhai-patel-lotwala-versus-state-of-gujarat-anr-527217
+
+[Read on Telegram](https://t.me/livelawindia/107292)
+
+---
+### 2026-03-20T11:07:21+00:00
+'You Are Not Marrying A Maid, Husband Also Must Contribute To Cooking' : Supreme Court Tells Man
+https://www.livelaw.in/top-stories/supreme-court-marital-dispute-allegations-wife-not-cooking-washing-not-cruelty-husband-must-contribute-married-a-life-partner-not-maid-527218
+
+[Read on Telegram](https://t.me/livelawindia/107293)
+
+---
+### 2026-03-20T11:13:21+00:00
+Elective Nature Of Surgery No Ground To Deny Treatment In Custody: Delhi Court Orders Tahir Hussain's Operation In 15 Days
+https://www.livelaw.in/news-updates/delhi-riots-tahir-hussain-hernia-surgery-elective-custody-527219
+
+[Read on Telegram](https://t.me/livelawindia/107294)
+
+---
+### 2026-03-20T11:45:05+00:00
+2026 LiveLaw (SC) 271 | Sujoy Ghosh v. State of Jharkhand
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-271-sujoy-ghosh-v-state-of-jharkhand-527222
+
+[Read on Telegram](https://t.me/livelawindia/107295)
+
+---
+### 2026-03-20T12:09:55+00:00
+Litigant Can't Disown Counsel's Statement To Reopen Case, Such Pleas Undermine Judicial Process: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-litigant-cannot-disown-counsels-statement-to-reopen-case-such-pleas-undermine-judicial-process-527224
+
+[Read on Telegram](https://t.me/livelawindia/107296)
+
+---
+### 2026-03-20T12:57:45+00:00
+Set-Off Can Be Raised As Defence Against Corporate Debtor Though Resolution Plan Bars Future Settlements : Supreme Court
+https://www.livelaw.in/supreme-court/set-off-can-be-raised-as-defence-against-corporate-debtor-though-resolution-plan-bars-future-settlements-supreme-court-527228
+
+[Read on Telegram](https://t.me/livelawindia/107297)
+
+---
+### 2026-03-20T12:59:25+00:00
+2026 LiveLaw (SC) 272 |  UJAAS ENERGY LTD. VS. WEST BENGAL POWER DEVELOPMENT CORPORATION LTD.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-272-ujaas-energy-ltd-vs-west-bengal-power-development-corporation-ltd-527229
+
+[Read on Telegram](https://t.me/livelawindia/107298)
 
 ---
