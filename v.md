@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-20T13:32:17+00:00*
+*Last Updated: 2026-03-20T16:02:24+00:00*
+
+---
+
+### 2026-03-20T16:02:24+00:00
+Law Clerk Vacancy At Gauhati High Court
+https://www.verdictum.in/job-updates/gauhati-high-court-1610344
+
+[Source Link](https://t.me/verdictumlegalupdates/26055)
+
+---
+
+### 2026-03-20T15:33:02+00:00
+Solitary Financial Transaction Of ₹15,000 Without Corroboration Insufficient To Attract NDPS Rigour: Kerala High Court Grants Bail To Tanzanian Student
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/abdul-hamid-makame-v-state-of-kerala-2026ker24424-tanzanian-student-ndps-rigour-solitary-financial-transaction-1610343
+
+[Source Link](https://t.me/verdictumlegalupdates/26054)
+
+---
+
+### 2026-03-20T15:02:41+00:00
+Public Charitable Trusts Deemed Irrevocable by Law; Absence Of ‘Irrevocability Clause’ No Ground To Deny Section 12AB Tax Registration: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/the-chamber-of-tax-consultants-v-the-commissioner-of-income-tax-2026bhc-os6814-db-irrevocability-clause-section-12ab-tax-registration-1610342
+
+[Source Link](https://t.me/verdictumlegalupdates/26053)
+
+---
+
+### 2026-03-20T14:32:20+00:00
+No Legitimate Defence For Calling Their Work "Shit" Or Targeting Journalists: Delhi High Court Directs Newslaundry To Remove Disparaging Remarks Against TV Today Network From Social Media
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/tv-today-network-limited-v-news-laundry-media-private-limited-2026dhc2339-db-no-legitimate-defence-shit-or-targeting-journalists-1610341
+
+[Source Link](https://t.me/verdictumlegalupdates/26052)
+
+---
+
+### 2026-03-20T14:02:39+00:00
+Accused Can Challenge Complainant’s Financial Capacity In Sec.138 NI Act Case During Trial: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/rajesh-v-ambili-2026ker22222-accused-complainant-financial-capacity-sec138-ni-act-case-1610340
+
+[Source Link](https://t.me/verdictumlegalupdates/26051)
 
 ---
 
@@ -121,46 +161,6 @@ Disciplinary Proceedings Can Continue Post-Retirement If Permitted By Service Ru
 https://www.verdictum.in/court-updates/supreme-court/virinder-pal-singh-v-punjab-and-sind-bank-ors-2026-insc-266-post-retirement-proceedings-1610298
 
 [Source Link](https://t.me/verdictumlegalupdates/26036)
-
----
-
-### 2026-03-20T04:32:59+00:00
-Compromise Between Parties In Sec.138 NI Act Case Should Be Given Effect To Even After Finalisation Of Conviction: Bombay High Court Reiterates
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/mr-ravi-v-mr-avinash-shinde-2026bhc-nag4511-compromise-parties-section-138-ni-act-conviction-1610274
-
-[Source Link](https://t.me/verdictumlegalupdates/26035)
-
----
-
-### 2026-03-19T16:02:45+00:00
-Para Legal Personnel Vacancy At DWCWO West Godavari
-https://www.verdictum.in/job-updates/district-women-and-child-welfare-and-empowerment-office-1610260
-
-[Source Link](https://t.me/verdictumlegalupdates/26034)
-
----
-
-### 2026-03-19T15:33:04+00:00
-Supreme Court Quashes Case Of Rape On False Promise Of Marriage By Married Worker Of Massage Parlour Against Customer
-https://www.verdictum.in/court-updates/supreme-court/ankit-tomar-v-state-of-haryana-2026-insc-262-consent-demolishes-complaint-rape-marriage-promise-1610272
-
-[Source Link](https://t.me/verdictumlegalupdates/26033)
-
----
-
-### 2026-03-19T15:02:43+00:00
-Supreme Court Reserves Verdict On Definition Of 'Industry' Under Industrial Disputes Act
-https://www.verdictum.in/court-updates/supreme-court/reserves-verdict-on-definition-of-industry-1610273
-
-[Source Link](https://t.me/verdictumlegalupdates/26032)
-
----
-
-### 2026-03-19T14:32:22+00:00
-Life Imprisonment Must Be Understood As Remainder Of Natural Life In Absence Of Specific Restriction; Remission Is Domain Of Government: Karnataka High Court
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/sri-kishan-v-state-of-karnataka-ors-2026khc15413-life-imprisonment-1610269
-
-[Source Link](https://t.me/verdictumlegalupdates/26031)
 
 ---
 
