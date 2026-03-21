@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-20T16:02:24+00:00*
+*Last Updated: 2026-03-21T06:53:00+00:00*
+
+---
+
+### 2026-03-21T06:53:00+00:00
+Particular Thing Must Be Done In Stipulated Manner Or Not At All When Individual Liberty Is At Stake: Supreme Court Quashes FIR
+https://www.verdictum.in/court-updates/supreme-court/gabbar-singh-v-state-of-up-2026-insc-271-individual-liberty-fir-up-gangsters-act-1610378
+
+[Source Link](https://t.me/verdictumlegalupdates/26059)
+
+---
+
+### 2026-03-21T06:02:58+00:00
+Supreme Court Permits Extinguished Counter Claim To Be Raised As Plea Of Set-Off By Way Of Defence In Arbitral Proceedings
+https://www.verdictum.in/court-updates/supreme-court/ujaas-energy-ltd-v-west-bengal-power-development-corporation-ltd-2026-insc-268-counter-claim-set-off-defence-1610375
+
+[Source Link](https://t.me/verdictumlegalupdates/26058)
+
+---
+
+### 2026-03-21T05:12:37+00:00
+Master Plan Prevails Over Subsequent Tree Growth; Land Cannot Be Declared ‘Deemed Forest’ Later: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/naveen-solanki-v-rail-land-development-authority-2026-insc-270-master-plan-subsequent-tree-growth-deemed-forest-1610369
+
+[Source Link](https://t.me/verdictumlegalupdates/26057)
+
+---
+
+### 2026-03-21T04:32:46+00:00
+Serious Allegation Raised Against Judge In Person: Kerala High Court Asks Bar Council To Probe Advocate’s Misconduct
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/a-v-b-baseless-allegation-bar-council-probe-advocate-misconduct-1610350
+
+[Source Link](https://t.me/verdictumlegalupdates/26056)
 
 ---
 
@@ -129,38 +161,6 @@ Mob Lynching U/S 103(2) BNS More Serious Than Ordinary Murder: Kerala High Court
 https://www.verdictum.in/court-updates/high-courts/kerala-high-court/state-of-kerala-v-anu-2026ker24661-mob-lynching-us-1032-bns-walayar-lynching-case-1610310
 
 [Source Link](https://t.me/verdictumlegalupdates/26040)
-
----
-
-### 2026-03-20T07:12:34+00:00
-Common Strategy Adopted By Well-Qualified Husbands To Quit Jobs To Avoid Paying Maintenance: Delhi High Court Dismisses Petition Of CRPF Officer Who Voluntarily Retired
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/p-v-q-2026dhc2170-husbands-quit-jobs-avoid-maintenance-crpf-officer-voluntarily-retired-1610304
-
-[Source Link](https://t.me/verdictumlegalupdates/26039)
-
----
-
-### 2026-03-20T06:32:13+00:00
-Probate Court Not Competent to Determine Title; Caveator Challenging Testator’s Title Has No "Caveatable Interest": Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/sunil-waman-bhide-v-chandrahas-laxman-kanhere-2026bhc-as12947-probate-disputed-title-of-testator-caveatable-interest-1610299
-
-[Source Link](https://t.me/verdictumlegalupdates/26038)
-
----
-
-### 2026-03-20T05:41:12+00:00
-Kahaani 2 Movie Copyright Infringement Case: Supreme Court Quashes Criminal Proceedings  Against Filmmaker Sujoy Ghosh
-https://www.verdictum.in/court-updates/supreme-court/quashes-criminal-proceedings-movie-kahani-2-copyright-infringement-case-filmmaker-sujoy-ghosh-1610300
-
-[Source Link](https://t.me/verdictumlegalupdates/26037)
-
----
-
-### 2026-03-20T05:13:51+00:00
-Disciplinary Proceedings Can Continue Post-Retirement If Permitted By Service Rules: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/virinder-pal-singh-v-punjab-and-sind-bank-ors-2026-insc-266-post-retirement-proceedings-1610298
-
-[Source Link](https://t.me/verdictumlegalupdates/26036)
 
 ---
 
