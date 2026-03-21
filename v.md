@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-21T12:53:10+00:00*
+*Last Updated: 2026-03-21T15:03:04+00:00*
+
+---
+
+### 2026-03-21T15:03:04+00:00
+Manager (Law) Vacancy At Indian Renewable Energy Development Agency Limited (IREDA)
+https://www.verdictum.in/job-updates/indian-renewable-energy-development-agency-limited-1610405
+
+[Source Link](https://t.me/verdictumlegalupdates/26070)
+
+---
+
+### 2026-03-21T14:12:22+00:00
+Madras High Court Upholds Refusal Of Permission To Erect Freedom Fighter’s Statue On Ground Of Caste Consolidation; Emphasises Mandate Of Casteless Egalitarian Society
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/skumarasamy-v-the-additional-chief-secretary-to-government-rejection-plea-erect-freedom-fighter-statue-1610411
+
+[Source Link](https://t.me/verdictumlegalupdates/26069)
+
+---
+
+### 2026-03-21T13:33:01+00:00
+Petition U/S. 482 CrPC Not Maintainable Against NIA Special Court Discharge And Summoning Orders; Remedy Lies In Statutory Appeal: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/2026ahclko20344-mohd-faizan-v-state-of-up-1610408
+
+[Source Link](https://t.me/verdictumlegalupdates/26068)
 
 ---
 
@@ -137,30 +161,6 @@ Accused Can Challenge Complainant’s Financial Capacity In Sec.138 NI Act Case 
 https://www.verdictum.in/court-updates/high-courts/kerala-high-court/rajesh-v-ambili-2026ker22222-accused-complainant-financial-capacity-sec138-ni-act-case-1610340
 
 [Source Link](https://t.me/verdictumlegalupdates/26051)
-
----
-
-### 2026-03-20T13:32:17+00:00
-No Statutory Time Limit Under NSA To Make A Representation: Manipur High Court Quashes Preventive Detention Order
-https://www.verdictum.in/court-updates/high-courts/manipur-high-court/laishram-nilajit-shija-v-the-state-of-manipur-wp-crl-no-1-of-2026-statutory-time-limit-under-nsa-preventive-detention-1610339
-
-[Source Link](https://t.me/verdictumlegalupdates/26050)
-
----
-
-### 2026-03-20T13:02:56+00:00
-Averment That Previous Counsel Wasn't Properly Instructed Stands In Face Of Integrity Of Legal Profession: Punjab & Haryana High Court Imposes Cost On Litigant
-https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/ankit-rawal-v-state-of-haryana-averment-previous-counsel-legal-profession-cost-imposed-1610338
-
-[Source Link](https://t.me/verdictumlegalupdates/26049)
-
----
-
-### 2026-03-20T12:32:35+00:00
-Children Born To Parents When In Love Become Victims Of Their Strife: Kerala High Court Highlights Children's Trauma In Matrimonial Disputes
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/x-v-state-of-kerala-2026ker20633-custody-disputes-children-born-in-love-become-victims-1610337
-
-[Source Link](https://t.me/verdictumlegalupdates/26048)
 
 ---
 
