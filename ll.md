@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-20T10:06:24+00:00*
+*Last Updated: 2026-03-21T04:02:03+00:00*
 
 ---
 
-### 2026-03-20T10:06:24+00:00
-[Advertisement] 1st NLU Delhi – Khaitan & Co Certificate Course on Taxation Laws
-https://www.livelaw.in/lawschool/diploma-certificate-courses/1st-nlu-delhi-khaitan-co-certificate-course-on-taxation-laws-527209
+### 2026-03-21T04:02:03+00:00
+Kerala High Court Cancels Bail Granted To 8 Accused In Walayar Mob Lynching Case
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-walayar-mob-lynching-bail-cancel-527264
 
-[Read on Telegram](https://t.me/livelawindia/107288)
-
----
-### 2026-03-20T10:35:35+00:00
-Wildlife Surveillance & Tribal Privacy: Supreme Court Asks Petitioner To Approach  Ministry
-https://www.livelaw.in/top-stories/wildlife-surveillance-tribal-privacy-supreme-court-asks-petitioner-to-approach-ministry-527214
-
-[Read on Telegram](https://t.me/livelawindia/107289)
+[Read on Telegram](https://t.me/livelawindia/107310)
 
 ---
-### 2026-03-20T10:41:15+00:00
-Chambal Sanctuary | Supreme Court To Hold Officials Vicariously Liable For Wildlife Destruction Due To Illegal Sand Mining
-https://www.livelaw.in/top-stories/supreme-court-illegal-sand-mining-national-chambal-sanctuary-endangered-gharial-suo-motu-vicarious-liability-of-officials-lethargy-inaction-527215
+### 2026-03-21T04:02:23+00:00
+Legislative Gaps, Judicial Grafts: The IRC Transition
+https://www.livelaw.in/articles/legislative-gaps-judicial-grafts-irc-transition-527256
 
-[Read on Telegram](https://t.me/livelawindia/107290)
-
----
-### 2026-03-20T11:00:21+00:00
-Calling Debtor For Loan Repayment Not Abetment Of Suicide : Supreme Court
-https://www.livelaw.in/supreme-court/calling-debtor-for-loan-repayment-not-abetment-of-suicide-supreme-court-527216
-
-[Read on Telegram](https://t.me/livelawindia/107291)
+[Read on Telegram](https://t.me/livelawindia/107311)
 
 ---
-### 2026-03-20T11:01:41+00:00
-2026 LiveLaw (SC) 270 | DHIRUBHAI NANJIBHAI PATEL LOTWALA VERSUS STATE OF GUJARAT & ANR
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-270-dhirubhai-nanjibhai-patel-lotwala-versus-state-of-gujarat-anr-527217
+### 2026-03-21T04:11:23+00:00
+Statutory Appeals Must Be Filed With Certified Copy Of Impugned Judgment: Supreme Court
+https://www.livelaw.in/supreme-court/statutory-appeals-must-be-filed-with-certified-copy-of-impugned-judgment-supreme-court-527265
 
-[Read on Telegram](https://t.me/livelawindia/107292)
-
----
-### 2026-03-20T11:07:21+00:00
-'You Are Not Marrying A Maid, Husband Also Must Contribute To Cooking' : Supreme Court Tells Man
-https://www.livelaw.in/top-stories/supreme-court-marital-dispute-allegations-wife-not-cooking-washing-not-cruelty-husband-must-contribute-married-a-life-partner-not-maid-527218
-
-[Read on Telegram](https://t.me/livelawindia/107293)
+[Read on Telegram](https://t.me/livelawindia/107312)
 
 ---
-### 2026-03-20T11:13:21+00:00
-Elective Nature Of Surgery No Ground To Deny Treatment In Custody: Delhi Court Orders Tahir Hussain's Operation In 15 Days
-https://www.livelaw.in/news-updates/delhi-riots-tahir-hussain-hernia-surgery-elective-custody-527219
+### 2026-03-21T04:12:23+00:00
+2026 LiveLaw (SC) 273 | Central Bank of India v. Bijendra Kumar Jha & Others,
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-273-central-bank-of-india-v-bijendra-kumar-jha-others-527267
 
-[Read on Telegram](https://t.me/livelawindia/107294)
-
----
-### 2026-03-20T11:45:05+00:00
-2026 LiveLaw (SC) 271 | Sujoy Ghosh v. State of Jharkhand
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-271-sujoy-ghosh-v-state-of-jharkhand-527222
-
-[Read on Telegram](https://t.me/livelawindia/107295)
+[Read on Telegram](https://t.me/livelawindia/107313)
 
 ---
-### 2026-03-20T12:09:55+00:00
-Litigant Can't Disown Counsel's Statement To Reopen Case, Such Pleas Undermine Judicial Process: Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-litigant-cannot-disown-counsels-statement-to-reopen-case-such-pleas-undermine-judicial-process-527224
+### 2026-03-21T04:19:43+00:00
+Andhra Pradesh Liquor Scam Case: Supreme Court Grants Regular Bail To Avinash Reddy Using Article 142 Powers
+https://www.livelaw.in/top-stories/andhra-pradesh-liquor-scam-case-supreme-court-grants-regular-bail-to-avinash-reddy-using-article-142-powers-527268
 
-[Read on Telegram](https://t.me/livelawindia/107296)
-
----
-### 2026-03-20T12:57:45+00:00
-Set-Off Can Be Raised As Defence Against Corporate Debtor Though Resolution Plan Bars Future Settlements : Supreme Court
-https://www.livelaw.in/supreme-court/set-off-can-be-raised-as-defence-against-corporate-debtor-though-resolution-plan-bars-future-settlements-supreme-court-527228
-
-[Read on Telegram](https://t.me/livelawindia/107297)
+[Read on Telegram](https://t.me/livelawindia/107314)
 
 ---
-### 2026-03-20T12:59:25+00:00
-2026 LiveLaw (SC) 272 |  UJAAS ENERGY LTD. VS. WEST BENGAL POWER DEVELOPMENT CORPORATION LTD.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-272-ujaas-energy-ltd-vs-west-bengal-power-development-corporation-ltd-527229
+### 2026-03-21T04:21:03+00:00
+2026 LiveLaw (SC) 274 | MUPPIDI AVINASH REDDY v. STATE OF ANDHRA PRADESH
+https://www.livelaw.in/top-stories/2026-livelaw-sc-274-muppidi-avinash-reddy-v-state-of-andhra-pradesh-527269
 
-[Read on Telegram](https://t.me/livelawindia/107298)
-
----
-### 2026-03-20T14:05:15+00:00
-United & United Relocates Headquarters To Noida, Inducts Three Partners
-https://www.livelaw.in/law-firms/professional-announcement/united-united-relocates-headquarters-to-noida-inducts-three-partners-527239
-
-[Read on Telegram](https://t.me/livelawindia/107299)
+[Read on Telegram](https://t.me/livelawindia/107315)
 
 ---
-### 2026-03-20T14:09:15+00:00
-Delhi High Court Calls For Streamlining Of Prosecution Of Bails, Says Higher Police Authorities Unaware Of Ground Level Work
-https://www.livelaw.in/high-court/delhi-high-court/streamline-bail-prosecution-higher-police-authorities-unaware-of-ground-level-work-527241
+### 2026-03-21T04:47:53+00:00
+'CM Has Better Work To Do': Karnataka High Court Asks CM Office Not To Directly Entertain Transfer Requests
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-chief-minister-office-entertain-employee-transfer-requests-527270
 
-[Read on Telegram](https://t.me/livelawindia/107300)
-
----
-### 2026-03-20T14:29:05+00:00
-HCs Can Look Beyond FIR/Complaint To Quash Frivolous Or Vexatious Criminal Proceedings : Supreme Court
-https://www.livelaw.in/supreme-court/hcs-can-look-beyond-fircomplaint-to-quash-frivolous-or-vexatious-criminal-proceedings-supreme-court-527243
-
-[Read on Telegram](https://t.me/livelawindia/107301)
+[Read on Telegram](https://t.me/livelawindia/107316)
 
 ---
-### 2026-03-20T14:37:25+00:00
-'Caste Has No Real Existence Except In People's Minds': Madras High Court Declines Permission For Statue Over Caste Concerns
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-people-forgetting-real-things-and-remembering-only-caste-527244
+### 2026-03-21T05:05:13+00:00
+Rajasthan High Court Stays Transfer Of Panchayat-Controlled Ponds To Fisheries Department
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-panchayat-controlled-ponds-fisheries-department-transfer-527271
 
-[Read on Telegram](https://t.me/livelawindia/107302)
-
----
-### 2026-03-20T14:54:05+00:00
-Blackmailing By Digital Platforms Like Digital Arrest : CJI Surya Kant
-https://www.livelaw.in/top-stories/blackmailing-by-digital-platforms-like-digital-arrest-cji-surya-kant-527245
-
-[Read on Telegram](https://t.me/livelawindia/107303)
+[Read on Telegram](https://t.me/livelawindia/107317)
 
 ---
-### 2026-03-20T15:09:05+00:00
-Xavier Law School To Host 4th Xavier Mediation Competition 2026
-https://www.livelaw.in/lawschool/competitions/xavier-law-school-to-host-4th-xavier-mediation-competition-527247
+### 2026-03-21T05:20:53+00:00
+UP Ganster Act Has Perilious Consequences, So Strict Compliance With Procedure Mandatory : Supreme Court
+https://www.livelaw.in/supreme-court/up-ganster-act-has-perilious-consequences-so-strict-compliance-with-procedure-mandatory-supreme-court-527274
 
-[Read on Telegram](https://t.me/livelawindia/107304)
-
----
-### 2026-03-20T15:21:05+00:00
-[POCSO Act] Girl Being Friendly With Boy On Valentines Day No License For Forced Sex: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/pocso-act-girl-being-friendly-with-boy-on-valentines-day-no-license-for-forced-sex-delhi-high-court-527248
-
-[Read on Telegram](https://t.me/livelawindia/107305)
+[Read on Telegram](https://t.me/livelawindia/107318)
 
 ---
-### 2026-03-20T15:43:35+00:00
-Criminal Started Coming Into Legal Profession, BCI Tells Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-advocates-act-bci-plea-against-madras-hc-direction-to-not-enroll-law-graduates-with-pending-criminal-cases-notice-527249
+### 2026-03-21T05:21:53+00:00
+2026 LiveLaw (SC) 275 | Gabbar Singh alias Devendra Pratap Singh Alias Rajesh Singh Versus State of U.P. and Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-275-gabbar-singh-alias-devendra-pratap-singh-alias-rajesh-singh-versus-state-of-up-and-ors-527275
 
-[Read on Telegram](https://t.me/livelawindia/107306)
+[Read on Telegram](https://t.me/livelawindia/107319)
 
 ---
-### 2026-03-20T16:58:05+00:00
-Supreme Court Daily Round-Up : March 20, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-march-20-2026-527251
+### 2026-03-21T05:23:13+00:00
+Failure To Inform Grounds Of Arrest To Accused Vitiates Arrest & Remand: Delhi High Court Grants Bail In POCSO Case
+https://www.livelaw.in/high-court/delhi-high-court/failure-to-inform-grounds-of-arrest-to-accused-vitiates-arrest-remand-delhi-high-court-grants-bail-in-pocso-case-527261
 
-[Read on Telegram](https://t.me/livelawindia/107307)
+[Read on Telegram](https://t.me/livelawindia/107320)
+
+---
+### 2026-03-21T05:47:44+00:00
+MP High Court Issues Notice On Plea Alleging Flaws In Driving License Issuance Process, Road Safety Failure
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-seeks-reply-in-plea-alleging-irregularities-in-issuance-of-driving-licenses-527272
+
+[Read on Telegram](https://t.me/livelawindia/107321)
+
+---
+### 2026-03-21T06:17:29+00:00
+“Not A Shortcut”: Madras High Court Cautions Against Routine Use Of Detention Orders
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-detention-order-cannot-substitute-criminal-law-527260
+
+[Read on Telegram](https://t.me/livelawindia/107322)
+
+---
+### 2026-03-21T06:26:29+00:00
+Senior Associate And Associate (Legal) Vacancy At LPJ Partners [Apply Now]
+https://www.livelaw.in/job-updates/senior-associate-and-associate-legal-vacancy-at-lpj-partners-527281
+
+[Read on Telegram](https://t.me/livelawindia/107323)
+
+---
+### 2026-03-21T06:26:39+00:00
+Supreme Court Seeks Data From All States/UTs On Prison Occupancy
+https://www.livelaw.in/top-stories/supreme-court-seeks-data-from-all-statesuts-on-prison-occupancy-527282
+
+[Read on Telegram](https://t.me/livelawindia/107324)
+
+---
+### 2026-03-21T06:27:09+00:00
+Senior Consultant Vacancy At Indian Institute Of Corporate Affairs
+https://www.livelaw.in/job-updates/senior-consultant-vacancy-at-indian-institute-of-corporate-affairs-527283
+
+[Read on Telegram](https://t.me/livelawindia/107325)
+
+---
+### 2026-03-21T06:28:29+00:00
+Consultant (Registrar) Vacancy At Armed Forces Tribunal, Regional Bench, Kolkata
+https://www.livelaw.in/job-updates/consultant-registrar-vacancy-at-armed-forces-tribunal-regional-bench-kolkata-527284
+
+[Read on Telegram](https://t.me/livelawindia/107326)
+
+---
+### 2026-03-21T06:29:09+00:00
+Centre Administrator, Senior Planning Executive (Institutional Development & Academics), And Senior Research Associate Vacancy At Indian Institute of Corporate Affairs
+https://www.livelaw.in/job-updates/centre-administrator-senior-planning-executive-institutional-development-academics-and-senior-research-associate-vacancy-at-indian-institute-of-corporate-affairs-527285
+
+[Read on Telegram](https://t.me/livelawindia/107327)
+
+---
+### 2026-03-21T06:30:29+00:00
+State Tax Officer Vacancy At Commercial Tax Department, Goa
+https://www.livelaw.in/job-updates/state-tax-officer-vacancy-at-commercial-tax-department-goa-527286
+
+[Read on Telegram](https://t.me/livelawindia/107328)
+
+---
+### 2026-03-21T06:42:29+00:00
+Valuables Should Not Remain In Police Custody: Karnataka High Court Grants Interim Custody Of Seized Articles To Accused
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-police-custody-reward360-hacker-interim-custody-527273
+
+[Read on Telegram](https://t.me/livelawindia/107329)
 
 ---
