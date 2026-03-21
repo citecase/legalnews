@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-21T06:53:00+00:00*
+*Last Updated: 2026-03-21T12:53:10+00:00*
+
+---
+
+### 2026-03-21T12:53:10+00:00
+Failure To Furnish Written Grounds Of Arrest Vitiates Remand: Delhi High Court Grants Bail To POCSO Accused
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/2026dhc508-habibur-molla-sonu-v-state-1610402
+
+[Source Link](https://t.me/verdictumlegalupdates/26067)
+
+---
+
+### 2026-03-21T12:02:48+00:00
+Term "Dependant" Denotes Members Who Were Reliant On Deceased Employee: Karnataka High Court Dismisses Married Daughter’s Plea For Compassionate Appointment
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/2026khcd4011db-smt-laxmi-v-registrar-general-high-court-of-karnataka-1610398
+
+[Source Link](https://t.me/verdictumlegalupdates/26066)
+
+---
+
+### 2026-03-21T11:13:07+00:00
+Mother-In-Law Can Be Treated As A 'Near Relative' For Organ Transplantation: Punjab & Haryana High Court
+https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/anil-kumar-v-union-of-india-2026phc043235-near-relative-for-kidney-transplant-1610395
+
+[Source Link](https://t.me/verdictumlegalupdates/26065)
+
+---
+
+### 2026-03-21T10:33:06+00:00
+Death Of Foetus Is Death Of Child; To Be Treated As Independent Accident: Allahabad High Court Enhances Railway Accident Compensation
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/shri-sukhnandan-v-union-of-india-2026ahc-lko16113-death-foetus-child-compensation-pregnant-woman-railways-1610394
+
+[Source Link](https://t.me/verdictumlegalupdates/26064)
+
+---
+
+### 2026-03-21T09:52:25+00:00
+Once Land Is Vested To State There Is No Scope To Release It To Tenure Holders: Calcutta High Court Dismisses Plea For Return Of Unused Acquired Land
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/nirmal-mondal-v-union-of-india-wpa-28229-of-2025-1610392
+
+[Source Link](https://t.me/verdictumlegalupdates/26063)
+
+---
+
+### 2026-03-21T09:02:23+00:00
+Limited Digital Role In ISIS-Linked Content, Coupled With Health Condition: Delhi High Court Grants Bail To UAPA Accused
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/haris-nisar-langoo-v-nia-2026dhc2317-db-uapa-incarceration-isis-linked-content-1610389
+
+[Source Link](https://t.me/verdictumlegalupdates/26062)
+
+---
+
+### 2026-03-21T08:13:02+00:00
+Section 48B Land Acquisition Act Doesn’t Grant Original Landowners Enforceable Right To Reclaim Property Once Lawfully Vested In State: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/2026-insc-269-chennai-metropolitan-development-authority-v-dharmalingam-1610388
+
+[Source Link](https://t.me/verdictumlegalupdates/26061)
+
+---
+
+### 2026-03-21T07:33:21+00:00
+Death Of Public Servant Does Not End Confiscation Proceedings Against Spouse Under Bihar Special Courts Act: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/state-of-bihar-thr-vigilance-v-sudha-singh-2026-insc-272-death-of-public-servant-bihar-special-courts-act-2009-1610384
+
+[Source Link](https://t.me/verdictumlegalupdates/26060)
 
 ---
 
@@ -97,70 +161,6 @@ Children Born To Parents When In Love Become Victims Of Their Strife: Kerala Hig
 https://www.verdictum.in/court-updates/high-courts/kerala-high-court/x-v-state-of-kerala-2026ker20633-custody-disputes-children-born-in-love-become-victims-1610337
 
 [Source Link](https://t.me/verdictumlegalupdates/26048)
-
----
-
-### 2026-03-20T12:03:14+00:00
-Hostility Shown By Independent Witnesses To Recovery Mahazar Not Always Fatal To Prosecution If Investigating Officer's Evidence Is Reliable: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/ratheesh-v-the-state-of-kerala-2026ker21248-hostility-independent-witnesses-recovery-mahazar-investigating-officer-evidence-1610321
-
-[Source Link](https://t.me/verdictumlegalupdates/26047)
-
----
-
-### 2026-03-20T11:33:23+00:00
-Once Everyone Follows Fraternity, There Will Be No Hate Speech: Supreme Court Refuses To Entertain Plea Against Hate Speech Targeting Brahmins
-https://www.verdictum.in/court-updates/supreme-court/once-everyone-follows-fraternity-there-will-be-no-hate-speech-supreme-court-refuses-to-entertain-plea-against-hate-speech-targeting-brahmins-1610328
-
-[Source Link](https://t.me/verdictumlegalupdates/26046)
-
----
-
-### 2026-03-20T11:03:01+00:00
-Don't Engage In Political Battle In Court: Apex Court Refuses To Entertain Woman’s Plea Alleging Threats Orchestrated By Karnataka’s CM Siddaramaiah
-https://www.verdictum.in/court-updates/supreme-court/dont-engage-in-political-battle-in-court-apex-court-refuses-to-entertain-womans-plea-alleging-threats-orchestrated-by-karnatakas-cm-siddaramaiah-1610327
-
-[Source Link](https://t.me/verdictumlegalupdates/26045)
-
----
-
-### 2026-03-20T10:33:00+00:00
-CJI Surya Kant Recuses From Election Commissioners Appointment Case; Calls For Bench With No Future CJIs
-https://www.verdictum.in/court-updates/supreme-court/surya-kant-recuses-ec-appointment-case-bench-with-no-future-cji-1610330
-
-[Source Link](https://t.me/verdictumlegalupdates/26044)
-
----
-
-### 2026-03-20T09:52:59+00:00
-Lethargy In Curbing Illegal Mining At National Chambal Sanctuary Will Amount To Aiding Habitat Destruction: Supreme Court Warns States Of Rajasthan, MP & UP
-https://www.verdictum.in/court-updates/supreme-court/national-chambal-sanctuary-aiding-habitat-destruction-states-of-rajasthan-mp-up-ghariyals-1610322
-
-[Source Link](https://t.me/verdictumlegalupdates/26043)
-
----
-
-### 2026-03-20T09:02:18+00:00
-Delhi High Court Directs Railways Ministry To Extend Special Recruitment Quota To Hindustan Scouts & Guides Association, Ends Decades-Old Monopoly
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/hindustan-scouts-and-guides-association-through-its-national-secretary-champat-singh-anr-v-union-of-india-2026dhc2163-hindustan-scouts-and-guide-association-1610319
-
-[Source Link](https://t.me/verdictumlegalupdates/26042)
-
----
-
-### 2026-03-20T08:22:57+00:00
-Mainstream Media Is By And Large Responsible, Problem Is Atomized Social Media: Supreme Court Flags Concerns In Plea Highlighting Misuse Of Digital Platforms By Police
-https://www.verdictum.in/court-updates/supreme-court/flags-concerns-plea-highlighting-growing-misuse-digital-platforms-by-law-enforcement-1610314
-
-[Source Link](https://t.me/verdictumlegalupdates/26041)
-
----
-
-### 2026-03-20T07:53:16+00:00
-Mob Lynching U/S 103(2) BNS More Serious Than Ordinary Murder: Kerala High Court Cancels Bail Of 8 Accused In Walayar Lynching Case
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/state-of-kerala-v-anu-2026ker24661-mob-lynching-us-1032-bns-walayar-lynching-case-1610310
-
-[Source Link](https://t.me/verdictumlegalupdates/26040)
 
 ---
 
