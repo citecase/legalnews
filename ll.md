@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-21T06:28:29+00:00*
+*Last Updated: 2026-03-21T08:07:13+00:00*
 
 ---
 
-### 2026-03-21T06:28:29+00:00
-Consultant (Registrar) Vacancy At Armed Forces Tribunal, Regional Bench, Kolkata
-https://www.livelaw.in/job-updates/consultant-registrar-vacancy-at-armed-forces-tribunal-regional-bench-kolkata-527284
-
-[Read on Telegram](https://t.me/livelawindia/107326)
-
----
-### 2026-03-21T06:29:09+00:00
-Centre Administrator, Senior Planning Executive (Institutional Development & Academics), And Senior Research Associate Vacancy At Indian Institute of Corporate Affairs
-https://www.livelaw.in/job-updates/centre-administrator-senior-planning-executive-institutional-development-academics-and-senior-research-associate-vacancy-at-indian-institute-of-corporate-affairs-527285
-
-[Read on Telegram](https://t.me/livelawindia/107327)
-
----
-### 2026-03-21T06:30:29+00:00
-State Tax Officer Vacancy At Commercial Tax Department, Goa
-https://www.livelaw.in/job-updates/state-tax-officer-vacancy-at-commercial-tax-department-goa-527286
-
-[Read on Telegram](https://t.me/livelawindia/107328)
-
----
-### 2026-03-21T06:42:29+00:00
-Valuables Should Not Remain In Police Custody: Karnataka High Court Grants Interim Custody Of Seized Articles To Accused
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-police-custody-reward360-hacker-interim-custody-527273
-
-[Read on Telegram](https://t.me/livelawindia/107329)
-
----
-### 2026-03-21T07:02:19+00:00
-'State's Right To File Reply Cannot Be Curtailed': HP High Court Sets Aside Tribunal Order Granting Service Benefits
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-sets-aside-tribunal-order-granting-service-benefits-without-response-527259
-
-[Read on Telegram](https://t.me/livelawindia/107330)
-
----
-### 2026-03-21T07:32:53+00:00
-₹1,000 Cr Allocation 'Drop In The Ocean' Against ₹20,000 Cr Need: Rajasthan High Court Doubts State's Sincerity For Govt School Infra
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-raises-doubt-state-sincerity-school-safety-road-map-527280
-
-[Read on Telegram](https://t.me/livelawindia/107331)
-
----
-### 2026-03-21T08:02:13+00:00
-Married Daughter Living In Matrimonial Home Can't Seek Compassionate Appointment After Her Father's Death: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-compassionate-appointment-immediate-financial-distress-527288
-
-[Read on Telegram](https://t.me/livelawindia/107332)
-
----
-### 2026-03-21T08:04:13+00:00
-Bihar Special Courts Act | Confiscation Proceedings Can Proceed Against Wife After Death Of Public Servant With Illicit Assets : Supreme Court
-https://www.livelaw.in/supreme-court/bihar-special-courts-act-confiscation-proceedings-can-proceed-against-wife-after-death-of-public-servant-with-illicit-assets-supreme-court-527291
-
-[Read on Telegram](https://t.me/livelawindia/107333)
-
----
 ### 2026-03-21T08:07:13+00:00
 2026 LiveLaw (SC) 276 | THE STATE OF BIHAR THR. VIGILANCE Versus SUDHA SINGH (with connected case)
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-276-the-state-of-bihar-thr-vigilance-versus-sudha-singh-with-connected-case-527292
@@ -142,5 +86,61 @@ Victim's Negligence No Ground To Deny Compensation In Railway Accident: Delhi Hi
 https://www.livelaw.in/high-court/delhi-high-court/victims-negligence-no-ground-to-deny-compensation-in-railway-accident-delhi-high-court-527313
 
 [Read on Telegram](https://t.me/livelawindia/107345)
+
+---
+### 2026-03-21T13:18:06+00:00
+'Ganja' Quantity Can't Be Determined Precisely If 'Flower' Is Weighed Along With Leaves, Branches: Delhi High Court Grants Bail In NDPS Case
+https://www.livelaw.in/high-court/delhi-high-court/ganja-quantity-cant-be-determined-precisely-if-flower-is-weighed-along-with-leaves-branches-delhi-high-court-grants-bail-in-ndps-case-527314
+
+[Read on Telegram](https://t.me/livelawindia/107346)
+
+---
+### 2026-03-21T13:37:46+00:00
+Street Vendors Have 'Bounden Duty' To Maintain Cleanliness, Not Encroach Public Spaces: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/street-vendors-have-bounden-duty-to-maintain-cleanliness-not-encroach-public-spaces-delhi-high-court-527315
+
+[Read on Telegram](https://t.me/livelawindia/107347)
+
+---
+### 2026-03-21T13:39:47+00:00
+What If I Never Was Me: A lesser Mortal's Tearful Thanks
+https://www.livelaw.in/articles/lesser-mortal-tearful-thanks-527319
+
+[Read on Telegram](https://t.me/livelawindia/107348)
+
+---
+### 2026-03-21T14:02:37+00:00
+Encashment Of Cheque In Lieu Of Notice Bars Challenge To Termination Of Services: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/encashment-of-cheque-in-lieu-of-notice-bars-challenge-to-termination-of-services-delhi-high-court-527316
+
+[Read on Telegram](https://t.me/livelawindia/107349)
+
+---
+### 2026-03-21T14:17:57+00:00
+Delhi High Court Asks ECI To Consider Plea To Reduce 30-Day Notice Period For Registration Of Expelled Trinamool Leader's Party
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-asks-eci-to-consider-plea-to-reduce-30-day-notice-period-for-registration-of-expelled-trinamool-leaders-party-527318
+
+[Read on Telegram](https://t.me/livelawindia/107350)
+
+---
+### 2026-03-21T14:18:17+00:00
+Non-Dependent Legal Heirs Of Deceased Tenant Lose Rent Act Protection After One Year: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/non-dependent-legal-heirs-of-deceased-tenant-lose-rent-act-protection-after-one-year-delhi-high-court-527317
+
+[Read on Telegram](https://t.me/livelawindia/107351)
+
+---
+### 2026-03-21T15:00:27+00:00
+NALSAR To Host M.K. Nambyar Memorial Lecture Series 2026 Featuring Prof. Dinesha Samararatne
+https://www.livelaw.in/news-updates/nalsar-mk-nambyar-memorial-lecture-series-2026-featuring-prof-dinesha-samararatne-527334
+
+[Read on Telegram](https://t.me/livelawindia/107352)
+
+---
+### 2026-03-21T16:21:37+00:00
+Govt Panel Lawyers Are Appointed On Party Lines, Not Actual Merits ; Justice Manmohan
+https://www.livelaw.in/top-stories/govt-panel-lawyers-are-appointed-on-party-lines-not-actual-merits-justice-manmohan-527342
+
+[Read on Telegram](https://t.me/livelawindia/107353)
 
 ---
