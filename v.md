@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-22T12:32:43+00:00*
+*Last Updated: 2026-03-22T15:02:25+00:00*
+
+---
+
+### 2026-03-22T15:02:25+00:00
+Madras Fertilizers Limited (MFL) Invites Applications For The Posts Of Chief Manager & Senior officer (Legal)
+https://www.verdictum.in/job-updates/madras-fertilizers-limited-1610406
+
+[Source Link](https://t.me/verdictumlegalupdates/26077)
+
+---
+
+### 2026-03-22T13:52:44+00:00
+Authorities Under Maintenance Of Senior Citizens Act Cannot Decide Ownership Or Possession Disputes: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/magghu-ram-v-state-of-up-2026ahc-lko17019-senior-citizen-immovable-property-possession-ownership-1610417
+
+[Source Link](https://t.me/verdictumlegalupdates/26076)
 
 ---
 
@@ -145,22 +161,6 @@ Supreme Court Permits Extinguished Counter Claim To Be Raised As Plea Of Set-Off
 https://www.verdictum.in/court-updates/supreme-court/ujaas-energy-ltd-v-west-bengal-power-development-corporation-ltd-2026-insc-268-counter-claim-set-off-defence-1610375
 
 [Source Link](https://t.me/verdictumlegalupdates/26058)
-
----
-
-### 2026-03-21T05:12:37+00:00
-Master Plan Prevails Over Subsequent Tree Growth; Land Cannot Be Declared ‘Deemed Forest’ Later: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/naveen-solanki-v-rail-land-development-authority-2026-insc-270-master-plan-subsequent-tree-growth-deemed-forest-1610369
-
-[Source Link](https://t.me/verdictumlegalupdates/26057)
-
----
-
-### 2026-03-21T04:32:46+00:00
-Serious Allegation Raised Against Judge In Person: Kerala High Court Asks Bar Council To Probe Advocate’s Misconduct
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/a-v-b-baseless-allegation-bar-council-probe-advocate-misconduct-1610350
-
-[Source Link](https://t.me/verdictumlegalupdates/26056)
 
 ---
 
