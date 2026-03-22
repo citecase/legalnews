@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-22T03:18:00+00:00*
+*Last Updated: 2026-03-22T05:57:20+00:00*
 
 ---
 
-### 2026-03-22T03:18:00+00:00
-Allahabad High Court Suggests Engaging Tech-Savvy Young Lawyers To Boost Digital Efficiency In Govt Advocate Office
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-tech-savvy-young-lawyers-boost-digital-efficiency-govt-advocate-office-527355
-
-[Read on Telegram](https://t.me/livelawindia/107355)
-
----
-### 2026-03-22T03:18:10+00:00
-'Public Land Can't Be Held Hostage': Delhi High Court In UNI News Agency Case
-https://www.livelaw.in/high-court/delhi-high-court/public-land-cant-be-held-hostage-delhi-high-court-in-uni-news-agency-case-527366
-
-[Read on Telegram](https://t.me/livelawindia/107356)
-
----
-### 2026-03-22T03:37:40+00:00
-Government Major Stumbling Block In Mediation, Officers Afraid Of Settling Cases : Justice Sandeep Mehta
-https://www.livelaw.in/top-stories/government-major-stumbling-block-in-mediation-officers-afraid-of-settling-cases-justice-sandeep-mehta-527364
-
-[Read on Telegram](https://t.me/livelawindia/107357)
-
----
-### 2026-03-22T03:46:20+00:00
-Kerala High Court Directs Deepika Daily's Editor To Furnish Explanation Regarding Misleading Report On Court Order
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-deepika-misleading-report-k-rajan-shaji-j-kodankandath-527367
-
-[Read on Telegram](https://t.me/livelawindia/107358)
-
----
-### 2026-03-22T03:52:20+00:00
-2026 LiveLaw (SC) 277 |  NAVEEN SOLANKI AND ANOTHER VERSUS RAIL LAND DEVELOPMENT AUTHORITY AND OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-277-naveen-solanki-and-another-versus-rail-land-development-authority-and-others-527369
-
-[Read on Telegram](https://t.me/livelawindia/107359)
-
----
-### 2026-03-22T04:08:00+00:00
-Need To Debate Collegium System Threadbare; High Court Chief Justice Isn't Trusted : Justice Manmohan
-https://www.livelaw.in/top-stories/need-to-debate-collegium-system-threadbare-high-court-chief-justice-isnt-trusted-justice-manmohan-527360
-
-[Read on Telegram](https://t.me/livelawindia/107360)
-
----
-### 2026-03-22T04:21:40+00:00
-Chhattisgarh CJ Ramesh Sinha Inaugurates National Lok Adalat In Durg, Highlights Speedy Justice
-https://www.livelaw.in/news-updates/chhattisgarh-cj-ramesh-sinha-inaugurates-national-lok-adalat-in-durg-highlights-speedy-justice-527370
-
-[Read on Telegram](https://t.me/livelawindia/107361)
-
----
-### 2026-03-22T04:28:30+00:00
-2nd NLIU-SBA Law Conclave Announces National-Level Quiz Competition; Registrations Now Open
-https://www.livelaw.in/lawschool/competitions/2nd-nliu-sba-law-conclave-announces-national-level-quiz-competition-registrations-now-open-527371
-
-[Read on Telegram](https://t.me/livelawindia/107362)
-
----
-### 2026-03-22T04:32:30+00:00
-Bombay High Court Monthly Digest: February 2026
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-monthly-digest-february-2026-525794
-
-[Read on Telegram](https://t.me/livelawindia/107363)
-
----
-### 2026-03-22T04:52:30+00:00
-Judiciary A Soft Target For Case Pendency, Executive Also Responsible : Justice Dipankar Datta
-https://www.livelaw.in/top-stories/judiciary-a-soft-target-for-case-pendency-executive-also-responsible-justice-dipankar-datta-527361
-
-[Read on Telegram](https://t.me/livelawindia/107364)
-
----
-### 2026-03-22T04:57:10+00:00
-Custody Dispute Must Be Decided At Child's Place Of 'Ordinary Residence': Karnataka High Court Orders Return Of Minor To Mother In US
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-ordinary-residence-unilateral-relocation-527351
-
-[Read on Telegram](https://t.me/livelawindia/107365)
-
----
-### 2026-03-22T05:12:10+00:00
-Matrimonial Relations 'Never Took Shape' Due To Lack Of Cohabitation, Consummation: Delhi High Court Waives 1-Year Waiting Period For Divorce
-https://www.livelaw.in/high-court/delhi-high-court/matrimonial-relations-never-took-shape-due-to-lack-of-cohabitation-consummation-delhi-high-court-waives-1-year-waiting-period-for-divorce-527372
-
-[Read on Telegram](https://t.me/livelawindia/107366)
-
----
-### 2026-03-22T05:33:00+00:00
-Surety For Succession Certificate Not Required Where There Is Sole Heir And No Competing Claims: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-surety-condition-mechanically-imposed-indian-succession-act-527308
-
-[Read on Telegram](https://t.me/livelawindia/107367)
-
----
 ### 2026-03-22T05:57:20+00:00
 P&H High Court Commutes Death Sentence In Child's Rape-Murder Case, Awards 50 Yr Imprisonment & ₹75 Lakh Fine
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-commutes-death-penalty-imprisonment-without-remission-527346
@@ -142,5 +51,96 @@ Team Member (Legal) Vacancy At Cipla Limited [Maharashtra; Apply Now]
 https://www.livelaw.in/job-updates/team-member-legal-vacancy-at-cipla-limited-maharashtra-527376
 
 [Read on Telegram](https://t.me/livelawindia/107374)
+
+---
+### 2026-03-22T07:07:31+00:00
+Subsequent Tree Growth On Land Approved For Development Won't Make It 'Deemed Forest' : Supreme Court
+https://www.livelaw.in/supreme-court/subsequent-tree-growth-on-land-approved-for-development-wont-make-it-deemed-forest-supreme-court-527368
+
+[Read on Telegram](https://t.me/livelawindia/107375)
+
+---
+### 2026-03-22T08:02:26+00:00
+Gram Panchayat Employees Absorbed In Municipal Corporation Entitled To Equal Pay For Equal Work: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-order-payment-arrears-salary-municipal-corporation-employee-527356
+
+[Read on Telegram](https://t.me/livelawindia/107376)
+
+---
+### 2026-03-22T08:03:06+00:00
+Bombay High Court Upholds Closure Of Hotel Over Alleged Prostitution, Says Prior Conviction Not Needed Under Immoral Trafficking Act
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-eviction-premises-prior-conviction-immoral-traffic-prevention-act-527352
+
+[Read on Telegram](https://t.me/livelawindia/107377)
+
+---
+### 2026-03-22T08:42:57+00:00
+Kerala High Court Flags Gaps In 2020 Flood Compensation Policy, Orders Review & Disbursal To Affected Families
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-orders-review-of-flood-compensation-527350
+
+[Read on Telegram](https://t.me/livelawindia/107378)
+
+---
+### 2026-03-22T09:07:37+00:00
+Many In Judiciary Suffer From 'More Loyal Than King' Syndrome : Justice Ujjal Bhuyan
+https://www.livelaw.in/top-stories/many-in-judiciary-suffer-from-more-loyal-than-king-syndrome-justice-ujjal-bhuyan-527377
+
+[Read on Telegram](https://t.me/livelawindia/107379)
+
+---
+### 2026-03-22T09:47:47+00:00
+'Gang' In Western UP Insuring Persons On Deathbed; Police Uncooperative: HDFC Life Submits Before Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-up-police-uncooperative-probing-gang-insuring-persons-deathbed-western-up-hdfc-life-527378
+
+[Read on Telegram](https://t.me/livelawindia/107380)
+
+---
+### 2026-03-22T09:48:07+00:00
+Authorities Cannot Rely On 8-Year-Old Notice To Recover Provident Fund Dues Or Freeze Bank Accounts: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-freeze-bank-accounts-fresh-notice-527357
+
+[Read on Telegram](https://t.me/livelawindia/107381)
+
+---
+### 2026-03-22T10:27:47+00:00
+Order XLI Rule 27 CPC Inapplicable In Appeal Against Order Of Temporary Injunction: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-orderxlirule27cpc-inapplicable-appeal-order-temporary-injunction-527348
+
+[Read on Telegram](https://t.me/livelawindia/107382)
+
+---
+### 2026-03-22T10:32:27+00:00
+Many Good Lawyers Refuse Judgeship Since Pay Is Not Sufficient : Justice Dipankar Datta
+https://www.livelaw.in/top-stories/good-lawyers-refuse-judgeship-since-pay-is-not-sufficient-justice-dipankar-datta-527365
+
+[Read on Telegram](https://t.me/livelawindia/107383)
+
+---
+### 2026-03-22T10:43:57+00:00
+S. 482 CrPC Plea Not Maintainable Against NIA Court's Refusal To Discharge Even If State Police Probed Scheduled Offence: Allahabad HC
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-s-482-crpc-nia-court-refusal-discharge-state-police-probed-scheduled-offence-527379
+
+[Read on Telegram](https://t.me/livelawindia/107384)
+
+---
+### 2026-03-22T11:32:17+00:00
+Allahabad High Court Relies On Victim-Wife's Testimony To Uphold Man's Conviction In 1983 Attempt To Murder Case
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-victim-wife-testimony-uphold-man-conviction-1983-attempt-to-murder-527380
+
+[Read on Telegram](https://t.me/livelawindia/107385)
+
+---
+### 2026-03-22T11:47:47+00:00
+Srinagar Motor Accident Tribunal Awards Over ₹1 Crore In Bus Accident Case, Fines Insurance Company ₹50K For Withholding Policy Document
+https://www.livelaw.in/news-updates/srinagar-motor-accident-claims-tribunal-1-crore-bus-accident-fines-insurance-company-withholding-policy-document-527353
+
+[Read on Telegram](https://t.me/livelawindia/107386)
+
+---
+### 2026-03-22T12:13:07+00:00
+Registrar, Sub-Registrar Not 'Court', Section 5 Limitation Act Not Applicable In Proceeding Under Registration Act: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-registrar-subregistrar-section5-limitation-act-applicable-proceeding-registration-act-527349
+
+[Read on Telegram](https://t.me/livelawindia/107387)
 
 ---
