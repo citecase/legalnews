@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-22T06:32:18+00:00*
+*Last Updated: 2026-03-22T12:32:43+00:00*
+
+---
+
+### 2026-03-22T12:32:43+00:00
+Detention Order Can Never Be A Substitute To Normal Criminal Law:  Madras High Court
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/r-vembu-v-state-of-tamil-nadu-detention-order-criminal-law-substitute-1610416
+
+[Source Link](https://t.me/verdictumlegalupdates/26075)
+
+---
+
+### 2026-03-22T10:33:01+00:00
+Issue Involving Mixed Questions Of Law And Fact Cannot Be Tried As Preliminary Issue: Allahabad High Court Reiterates
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/paras-ram-paras-v-ram-charitra-2026ahc57600-discretion-issue-jurisdiction-bar-suit-rule-2-order-xiv-cpc-1610415
+
+[Source Link](https://t.me/verdictumlegalupdates/26074)
+
+---
+
+### 2026-03-22T08:32:40+00:00
+Delhi High Court Seeks Streamlining In Bail Matters, Flags Police Inaction
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/gulam-nabi-v-state-2026dhc2344-bail-streamlining-police-conduct-1610414
+
+[Source Link](https://t.me/verdictumlegalupdates/26073)
 
 ---
 
@@ -137,30 +161,6 @@ Serious Allegation Raised Against Judge In Person: Kerala High Court Asks Bar Co
 https://www.verdictum.in/court-updates/high-courts/kerala-high-court/a-v-b-baseless-allegation-bar-council-probe-advocate-misconduct-1610350
 
 [Source Link](https://t.me/verdictumlegalupdates/26056)
-
----
-
-### 2026-03-20T16:02:24+00:00
-Law Clerk Vacancy At Gauhati High Court
-https://www.verdictum.in/job-updates/gauhati-high-court-1610344
-
-[Source Link](https://t.me/verdictumlegalupdates/26055)
-
----
-
-### 2026-03-20T15:33:02+00:00
-Solitary Financial Transaction Of ₹15,000 Without Corroboration Insufficient To Attract NDPS Rigour: Kerala High Court Grants Bail To Tanzanian Student
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/abdul-hamid-makame-v-state-of-kerala-2026ker24424-tanzanian-student-ndps-rigour-solitary-financial-transaction-1610343
-
-[Source Link](https://t.me/verdictumlegalupdates/26054)
-
----
-
-### 2026-03-20T15:02:41+00:00
-Public Charitable Trusts Deemed Irrevocable by Law; Absence Of ‘Irrevocability Clause’ No Ground To Deny Section 12AB Tax Registration: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/the-chamber-of-tax-consultants-v-the-commissioner-of-income-tax-2026bhc-os6814-db-irrevocability-clause-section-12ab-tax-registration-1610342
-
-[Source Link](https://t.me/verdictumlegalupdates/26053)
 
 ---
 
