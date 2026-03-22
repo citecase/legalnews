@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-21T15:03:04+00:00*
+*Last Updated: 2026-03-22T06:32:18+00:00*
+
+---
+
+### 2026-03-22T06:32:18+00:00
+Wife's Earning Can’t Be Sole Criterion For Denying Maintenance: Gujarat High Court
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/a-v-state-of-gujarat-2026gujhc20342-wife-earning-maintenance-husband-1610413
+
+[Source Link](https://t.me/verdictumlegalupdates/26072)
+
+---
+
+### 2026-03-22T04:32:27+00:00
+Merely Being Friendly On Valentine’s Day Does Not Give Licence For Forcible Relations: Delhi High Court Denies Bail
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/wasim-akhtar-v-state-gnct-of-delhi-2026dhc2354-friend-valentines-day-forcible-relations-1610412
+
+[Source Link](https://t.me/verdictumlegalupdates/26071)
 
 ---
 
@@ -145,22 +161,6 @@ Public Charitable Trusts Deemed Irrevocable by Law; Absence Of ‘Irrevocability
 https://www.verdictum.in/court-updates/high-courts/bombay-high-court/the-chamber-of-tax-consultants-v-the-commissioner-of-income-tax-2026bhc-os6814-db-irrevocability-clause-section-12ab-tax-registration-1610342
 
 [Source Link](https://t.me/verdictumlegalupdates/26053)
-
----
-
-### 2026-03-20T14:32:20+00:00
-No Legitimate Defence For Calling Their Work "Shit" Or Targeting Journalists: Delhi High Court Directs Newslaundry To Remove Disparaging Remarks Against TV Today Network From Social Media
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/tv-today-network-limited-v-news-laundry-media-private-limited-2026dhc2339-db-no-legitimate-defence-shit-or-targeting-journalists-1610341
-
-[Source Link](https://t.me/verdictumlegalupdates/26052)
-
----
-
-### 2026-03-20T14:02:39+00:00
-Accused Can Challenge Complainant’s Financial Capacity In Sec.138 NI Act Case During Trial: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/rajesh-v-ambili-2026ker22222-accused-complainant-financial-capacity-sec138-ni-act-case-1610340
-
-[Source Link](https://t.me/verdictumlegalupdates/26051)
 
 ---
 
