@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-21T08:07:13+00:00*
+*Last Updated: 2026-03-22T03:18:00+00:00*
 
 ---
 
-### 2026-03-21T08:07:13+00:00
-2026 LiveLaw (SC) 276 | THE STATE OF BIHAR THR. VIGILANCE Versus SUDHA SINGH (with connected case)
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-276-the-state-of-bihar-thr-vigilance-versus-sudha-singh-with-connected-case-527292
+### 2026-03-22T03:18:00+00:00
+Allahabad High Court Suggests Engaging Tech-Savvy Young Lawyers To Boost Digital Efficiency In Govt Advocate Office
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-tech-savvy-young-lawyers-boost-digital-efficiency-govt-advocate-office-527355
 
-[Read on Telegram](https://t.me/livelawindia/107334)
-
----
-### 2026-03-21T08:32:23+00:00
-Allahabad High Court Seeks Trial Judge's Explanation For Acquitting POCSO Accused Without Discussing Victim's Injury Report
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-trial-court-explanation-acquitting-pocso-accused-victim-injury-report-527295
-
-[Read on Telegram](https://t.me/livelawindia/107335)
+[Read on Telegram](https://t.me/livelawindia/107355)
 
 ---
-### 2026-03-21T08:32:33+00:00
-BNSS | Gauhati High Court Upholds Telephonic Intimation Of Arrest To Accused's Family, Notes No Prejudice Caused
-https://www.livelaw.in/high-court/gauhati-high-court/bnss-arrest-violations-intimated-grounds-of-arrest-to-family-on-phone-no-prejudice-shown-527289
+### 2026-03-22T03:18:10+00:00
+'Public Land Can't Be Held Hostage': Delhi High Court In UNI News Agency Case
+https://www.livelaw.in/high-court/delhi-high-court/public-land-cant-be-held-hostage-delhi-high-court-in-uni-news-agency-case-527366
 
-[Read on Telegram](https://t.me/livelawindia/107336)
-
----
-### 2026-03-21T09:03:03+00:00
-When The Law Looks Away
-https://www.livelaw.in/lawschool/articles/when-law-looks-away-custodial-deaths-527257
-
-[Read on Telegram](https://t.me/livelawindia/107337)
+[Read on Telegram](https://t.me/livelawindia/107356)
 
 ---
-### 2026-03-21T09:32:33+00:00
-Senior Citizens Act Can't Be Invoked To Decide Property Ownership/ Title Disputes: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-senior-citizen-act-invoked-decide-ownership-title-disputes-527298
+### 2026-03-22T03:37:40+00:00
+Government Major Stumbling Block In Mediation, Officers Afraid Of Settling Cases : Justice Sandeep Mehta
+https://www.livelaw.in/top-stories/government-major-stumbling-block-in-mediation-officers-afraid-of-settling-cases-justice-sandeep-mehta-527364
 
-[Read on Telegram](https://t.me/livelawindia/107338)
-
----
-### 2026-03-21T09:34:33+00:00
-Justice Nagarathna Flags Paradox Of Govt Raising Concerns About Case Pendency While Contributing Most To Arrears
-https://www.livelaw.in/top-stories/justice-nagarathna-flags-paradox-of-govt-raising-concerns-about-case-pendency-while-contributing-most-to-arrears-527302
-
-[Read on Telegram](https://t.me/livelawindia/107339)
+[Read on Telegram](https://t.me/livelawindia/107357)
 
 ---
-### 2026-03-21T09:54:53+00:00
-There Are Instances Of Collegium Failing To Protect Righteous Judges : Justice Dipankar Datta
-https://www.livelaw.in/top-stories/collegium-failed-to-protect-righteous-judges-justice-dipankar-datta-527304
+### 2026-03-22T03:46:20+00:00
+Kerala High Court Directs Deepika Daily's Editor To Furnish Explanation Regarding Misleading Report On Court Order
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-deepika-misleading-report-k-rajan-shaji-j-kodankandath-527367
 
-[Read on Telegram](https://t.me/livelawindia/107340)
-
----
-### 2026-03-21T10:02:33+00:00
-Kerala High Court Closes Plea On Angamaly–Sabari Rail Project After Railways 'Defreezes' It On State's Offer To Bear 50% Cost
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-angamaly-sabari-rail-project-states-willingness-bear-project-cost-527299
-
-[Read on Telegram](https://t.me/livelawindia/107341)
+[Read on Telegram](https://t.me/livelawindia/107358)
 
 ---
-### 2026-03-21T11:04:33+00:00
-Delay By Officials No Ground To Reject Farmer Welfare Claim; Indifference To Beneficiary's Plight Unsustainable: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-administrative-action-beneficiary-welfare-scheme-unsustainable-527307
+### 2026-03-22T03:52:20+00:00
+2026 LiveLaw (SC) 277 |  NAVEEN SOLANKI AND ANOTHER VERSUS RAIL LAND DEVELOPMENT AUTHORITY AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-277-naveen-solanki-and-another-versus-rail-land-development-authority-and-others-527369
 
-[Read on Telegram](https://t.me/livelawindia/107342)
-
----
-### 2026-03-21T11:23:03+00:00
-Appeal Against Interlocutory Order Framing Charge Not Maintainable Under SC/ST Act: HP High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-order-framing-charge-appeal-sc-st-act-527258
-
-[Read on Telegram](https://t.me/livelawindia/107343)
+[Read on Telegram](https://t.me/livelawindia/107359)
 
 ---
-### 2026-03-21T11:48:03+00:00
-Patna High Court Orders Toll-Free Helpline For Mentally Ill Persons, Stresses Vocational Training To Make Recovered Patients Self-Sufficient
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-directs-formation-toll-free-number-mental-health-facilities-527310
+### 2026-03-22T04:08:00+00:00
+Need To Debate Collegium System Threadbare; High Court Chief Justice Isn't Trusted : Justice Manmohan
+https://www.livelaw.in/top-stories/need-to-debate-collegium-system-threadbare-high-court-chief-justice-isnt-trusted-justice-manmohan-527360
 
-[Read on Telegram](https://t.me/livelawindia/107344)
-
----
-### 2026-03-21T12:28:36+00:00
-Victim's Negligence No Ground To Deny Compensation In Railway Accident: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/victims-negligence-no-ground-to-deny-compensation-in-railway-accident-delhi-high-court-527313
-
-[Read on Telegram](https://t.me/livelawindia/107345)
+[Read on Telegram](https://t.me/livelawindia/107360)
 
 ---
-### 2026-03-21T13:18:06+00:00
-'Ganja' Quantity Can't Be Determined Precisely If 'Flower' Is Weighed Along With Leaves, Branches: Delhi High Court Grants Bail In NDPS Case
-https://www.livelaw.in/high-court/delhi-high-court/ganja-quantity-cant-be-determined-precisely-if-flower-is-weighed-along-with-leaves-branches-delhi-high-court-grants-bail-in-ndps-case-527314
+### 2026-03-22T04:21:40+00:00
+Chhattisgarh CJ Ramesh Sinha Inaugurates National Lok Adalat In Durg, Highlights Speedy Justice
+https://www.livelaw.in/news-updates/chhattisgarh-cj-ramesh-sinha-inaugurates-national-lok-adalat-in-durg-highlights-speedy-justice-527370
 
-[Read on Telegram](https://t.me/livelawindia/107346)
-
----
-### 2026-03-21T13:37:46+00:00
-Street Vendors Have 'Bounden Duty' To Maintain Cleanliness, Not Encroach Public Spaces: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/street-vendors-have-bounden-duty-to-maintain-cleanliness-not-encroach-public-spaces-delhi-high-court-527315
-
-[Read on Telegram](https://t.me/livelawindia/107347)
+[Read on Telegram](https://t.me/livelawindia/107361)
 
 ---
-### 2026-03-21T13:39:47+00:00
-What If I Never Was Me: A lesser Mortal's Tearful Thanks
-https://www.livelaw.in/articles/lesser-mortal-tearful-thanks-527319
+### 2026-03-22T04:28:30+00:00
+2nd NLIU-SBA Law Conclave Announces National-Level Quiz Competition; Registrations Now Open
+https://www.livelaw.in/lawschool/competitions/2nd-nliu-sba-law-conclave-announces-national-level-quiz-competition-registrations-now-open-527371
 
-[Read on Telegram](https://t.me/livelawindia/107348)
-
----
-### 2026-03-21T14:02:37+00:00
-Encashment Of Cheque In Lieu Of Notice Bars Challenge To Termination Of Services: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/encashment-of-cheque-in-lieu-of-notice-bars-challenge-to-termination-of-services-delhi-high-court-527316
-
-[Read on Telegram](https://t.me/livelawindia/107349)
+[Read on Telegram](https://t.me/livelawindia/107362)
 
 ---
-### 2026-03-21T14:17:57+00:00
-Delhi High Court Asks ECI To Consider Plea To Reduce 30-Day Notice Period For Registration Of Expelled Trinamool Leader's Party
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-asks-eci-to-consider-plea-to-reduce-30-day-notice-period-for-registration-of-expelled-trinamool-leaders-party-527318
+### 2026-03-22T04:32:30+00:00
+Bombay High Court Monthly Digest: February 2026
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-monthly-digest-february-2026-525794
 
-[Read on Telegram](https://t.me/livelawindia/107350)
-
----
-### 2026-03-21T14:18:17+00:00
-Non-Dependent Legal Heirs Of Deceased Tenant Lose Rent Act Protection After One Year: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/non-dependent-legal-heirs-of-deceased-tenant-lose-rent-act-protection-after-one-year-delhi-high-court-527317
-
-[Read on Telegram](https://t.me/livelawindia/107351)
+[Read on Telegram](https://t.me/livelawindia/107363)
 
 ---
-### 2026-03-21T15:00:27+00:00
-NALSAR To Host M.K. Nambyar Memorial Lecture Series 2026 Featuring Prof. Dinesha Samararatne
-https://www.livelaw.in/news-updates/nalsar-mk-nambyar-memorial-lecture-series-2026-featuring-prof-dinesha-samararatne-527334
+### 2026-03-22T04:52:30+00:00
+Judiciary A Soft Target For Case Pendency, Executive Also Responsible : Justice Dipankar Datta
+https://www.livelaw.in/top-stories/judiciary-a-soft-target-for-case-pendency-executive-also-responsible-justice-dipankar-datta-527361
 
-[Read on Telegram](https://t.me/livelawindia/107352)
+[Read on Telegram](https://t.me/livelawindia/107364)
 
 ---
-### 2026-03-21T16:21:37+00:00
-Govt Panel Lawyers Are Appointed On Party Lines, Not Actual Merits ; Justice Manmohan
-https://www.livelaw.in/top-stories/govt-panel-lawyers-are-appointed-on-party-lines-not-actual-merits-justice-manmohan-527342
+### 2026-03-22T04:57:10+00:00
+Custody Dispute Must Be Decided At Child's Place Of 'Ordinary Residence': Karnataka High Court Orders Return Of Minor To Mother In US
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-ordinary-residence-unilateral-relocation-527351
 
-[Read on Telegram](https://t.me/livelawindia/107353)
+[Read on Telegram](https://t.me/livelawindia/107365)
+
+---
+### 2026-03-22T05:12:10+00:00
+Matrimonial Relations 'Never Took Shape' Due To Lack Of Cohabitation, Consummation: Delhi High Court Waives 1-Year Waiting Period For Divorce
+https://www.livelaw.in/high-court/delhi-high-court/matrimonial-relations-never-took-shape-due-to-lack-of-cohabitation-consummation-delhi-high-court-waives-1-year-waiting-period-for-divorce-527372
+
+[Read on Telegram](https://t.me/livelawindia/107366)
+
+---
+### 2026-03-22T05:33:00+00:00
+Surety For Succession Certificate Not Required Where There Is Sole Heir And No Competing Claims: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-surety-condition-mechanically-imposed-indian-succession-act-527308
+
+[Read on Telegram](https://t.me/livelawindia/107367)
+
+---
+### 2026-03-22T05:57:20+00:00
+P&H High Court Commutes Death Sentence In Child's Rape-Murder Case, Awards 50 Yr Imprisonment & ₹75 Lakh Fine
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-commutes-death-penalty-imprisonment-without-remission-527346
+
+[Read on Telegram](https://t.me/livelawindia/107368)
+
+---
+### 2026-03-22T06:20:50+00:00
+Executive (Operations) Vacancy At Ernst & Young [Delhi; Apply Now]
+https://www.livelaw.in/job-updates/executive-operations-vacancy-at-ernst-young-delhi-527373
+
+[Read on Telegram](https://t.me/livelawindia/107369)
+
+---
+### 2026-03-22T06:26:10+00:00
+Senior Project Consultant Vacancy At Ernst & Young [Delhi; Apply Now]
+https://www.livelaw.in/job-updates/senior-project-consultant-vacancy-at-ernst-young-delhi-527374
+
+[Read on Telegram](https://t.me/livelawindia/107370)
+
+---
+### 2026-03-22T06:32:30+00:00
+'Appears To Be Eyewash': Gujarat High Court On State Public Service Commission's Affidavit Over Arthashastra Question Row
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-gpsc-arthashastra-question-authenticated-source-527309
+
+[Read on Telegram](https://t.me/livelawindia/107371)
+
+---
+### 2026-03-22T06:42:10+00:00
+Mutation Cannot Be Allowed Based On Sale Deed Allegedly Executed 45 Years Ago: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-mutation-sale-deed-allegedly-executed-527347
+
+[Read on Telegram](https://t.me/livelawindia/107372)
+
+---
+### 2026-03-22T06:51:11+00:00
+Legal Manager Vacancy At Kotak Mahindra Bank Limited [Ludhiana; Apply Now]
+https://www.livelaw.in/job-updates/legal-manager-vacancy-at-kotak-mahindra-bank-limited-ludhiana-527375
+
+[Read on Telegram](https://t.me/livelawindia/107373)
+
+---
+### 2026-03-22T06:57:51+00:00
+Team Member (Legal) Vacancy At Cipla Limited [Maharashtra; Apply Now]
+https://www.livelaw.in/job-updates/team-member-legal-vacancy-at-cipla-limited-maharashtra-527376
+
+[Read on Telegram](https://t.me/livelawindia/107374)
 
 ---
