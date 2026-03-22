@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-22T05:57:20+00:00*
+*Last Updated: 2026-03-22T07:07:31+00:00*
 
 ---
 
-### 2026-03-22T05:57:20+00:00
-P&H High Court Commutes Death Sentence In Child's Rape-Murder Case, Awards 50 Yr Imprisonment & ₹75 Lakh Fine
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-commutes-death-penalty-imprisonment-without-remission-527346
-
-[Read on Telegram](https://t.me/livelawindia/107368)
-
----
-### 2026-03-22T06:20:50+00:00
-Executive (Operations) Vacancy At Ernst & Young [Delhi; Apply Now]
-https://www.livelaw.in/job-updates/executive-operations-vacancy-at-ernst-young-delhi-527373
-
-[Read on Telegram](https://t.me/livelawindia/107369)
-
----
-### 2026-03-22T06:26:10+00:00
-Senior Project Consultant Vacancy At Ernst & Young [Delhi; Apply Now]
-https://www.livelaw.in/job-updates/senior-project-consultant-vacancy-at-ernst-young-delhi-527374
-
-[Read on Telegram](https://t.me/livelawindia/107370)
-
----
-### 2026-03-22T06:32:30+00:00
-'Appears To Be Eyewash': Gujarat High Court On State Public Service Commission's Affidavit Over Arthashastra Question Row
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-gpsc-arthashastra-question-authenticated-source-527309
-
-[Read on Telegram](https://t.me/livelawindia/107371)
-
----
-### 2026-03-22T06:42:10+00:00
-Mutation Cannot Be Allowed Based On Sale Deed Allegedly Executed 45 Years Ago: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-mutation-sale-deed-allegedly-executed-527347
-
-[Read on Telegram](https://t.me/livelawindia/107372)
-
----
-### 2026-03-22T06:51:11+00:00
-Legal Manager Vacancy At Kotak Mahindra Bank Limited [Ludhiana; Apply Now]
-https://www.livelaw.in/job-updates/legal-manager-vacancy-at-kotak-mahindra-bank-limited-ludhiana-527375
-
-[Read on Telegram](https://t.me/livelawindia/107373)
-
----
-### 2026-03-22T06:57:51+00:00
-Team Member (Legal) Vacancy At Cipla Limited [Maharashtra; Apply Now]
-https://www.livelaw.in/job-updates/team-member-legal-vacancy-at-cipla-limited-maharashtra-527376
-
-[Read on Telegram](https://t.me/livelawindia/107374)
-
----
 ### 2026-03-22T07:07:31+00:00
 Subsequent Tree Growth On Land Approved For Development Won't Make It 'Deemed Forest' : Supreme Court
 https://www.livelaw.in/supreme-court/subsequent-tree-growth-on-land-approved-for-development-wont-make-it-deemed-forest-supreme-court-527368
@@ -142,5 +93,54 @@ Registrar, Sub-Registrar Not 'Court', Section 5 Limitation Act Not Applicable In
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-registrar-subregistrar-section5-limitation-act-applicable-proceeding-registration-act-527349
 
 [Read on Telegram](https://t.me/livelawindia/107387)
+
+---
+### 2026-03-22T13:42:40+00:00
+Railway Claims Tribunal Cannot Infer Death Due To Trespass Solely From Nature Of Injuries: Bombay High Court Allows Compensation
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-railway-tribunal-trespass-nature-injury-deceased-527358
+
+[Read on Telegram](https://t.me/livelawindia/107388)
+
+---
+### 2026-03-22T13:53:30+00:00
+Judiciary Can't Be An Eternal Critic Or A Cheerleader : Justice Ujjal Bhuyan
+https://www.livelaw.in/top-stories/judiciary-cant-be-an-eternal-critic-or-a-cheerleader-justice-ujjal-bhuyan-527381
+
+[Read on Telegram](https://t.me/livelawindia/107389)
+
+---
+### 2026-03-22T14:08:10+00:00
+S. 24 Specific Relief Act Does Not Bar Fresh Suit For Refund Of Earnest Money After Dismissal Of Specific Performance Suit: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-section24-specific-relief-act-plaintiff-filing-fresh-suit-527354
+
+[Read on Telegram](https://t.me/livelawindia/107390)
+
+---
+### 2026-03-22T15:03:20+00:00
+Tenure Of CGRF Members Must Be Considered For Extension Before Issuing Fresh Recruitment: Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-quashes-recruitment-advertisement-performance-existing-members-527359
+
+[Read on Telegram](https://t.me/livelawindia/107391)
+
+---
+### 2026-03-22T15:17:24+00:00
+Supreme Court To Hear Chhattisgarh Court Employee's Plea To Pursue LL.B As Regular Student
+https://www.livelaw.in/top-stories/supreme-court-to-hear-chhattisgarh-court-employees-plea-to-pursue-llb-as-regular-student-527390
+
+[Read on Telegram](https://t.me/livelawindia/107392)
+
+---
+### 2026-03-22T15:30:24+00:00
+Half Of Civil Litigation Can Be Shifted To Mediation In 25 Years With Right Strategies: Sriram Panchu
+https://www.livelaw.in/top-stories/half-of-civil-litigation-can-be-shifted-to-mediation-in-25-years-with-right-strategies-sriram-panchu-527393
+
+[Read on Telegram](https://t.me/livelawindia/107393)
+
+---
+### 2026-03-22T15:52:34+00:00
+No Parole For 'Arranging' Children's Marriage Or If Other Criminal Cases Pending: Allahabad High Court Denies Relief To Ex-MLA
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-denies-parole-ex-mla-angad-yadav-up-prisoner-rules-pending-criminal-cases-527397
+
+[Read on Telegram](https://t.me/livelawindia/107394)
 
 ---
