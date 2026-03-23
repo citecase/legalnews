@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-23T07:31:23+00:00*
+*Last Updated: 2026-03-23T13:32:47+00:00*
+
+---
+
+### 2026-03-23T13:32:47+00:00
+Strained Relationship & Alleged Drunkenness Not Sufficient To Presume Guilt: Madras High Court Acquits Husband Accused Of Murdering Wife
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/m-senthilmurugan-v-inspector-of-police-husband-murder-wife-acquittal-1610514
+
+[Source Link](https://t.me/verdictumlegalupdates/26096)
+
+---
+
+### 2026-03-23T13:02:46+00:00
+Don't Overestimate Judiciary, We Aren't Panacea For Everything: SC Refuses To Entertain Plea Seeking Stricter Social Media Regulations
+https://www.verdictum.in/court-updates/supreme-court/refuses-entertain-plea-seeking-stricter-social-media-regulations-overestimate-judiciary-1610520
+
+[Source Link](https://t.me/verdictumlegalupdates/26095)
+
+---
+
+### 2026-03-23T12:33:05+00:00
+No Fault In High Court’s Order: Supreme Court Dismisses Pattali Makkal Katchi’s Plea Seeking Directions To Use ‘Mango’ Symbol In Tamil Nadu’s Elections
+https://www.verdictum.in/court-updates/supreme-court/no-fault-in-high-courts-order-supreme-court-dismisses-pattali-makkal-katchis-plea-seeking-directions-to-use-mango-symbol-in-tamil-nadus-elections-1610512
+
+[Source Link](https://t.me/verdictumlegalupdates/26094)
+
+---
+
+### 2026-03-23T12:02:43+00:00
+Injured Wife Is A Sterling Witness, Her Identification Of Husband As Assailant Cannot Be Doubted: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/rameshwar-singh-v-state-2026ahc56153-attempt-to-murder-husband-wife-1610509
+
+[Source Link](https://t.me/verdictumlegalupdates/26093)
+
+---
+
+### 2026-03-23T11:32:42+00:00
+Mere Allegation Of Involvement In Transportation Of Cows Without Permission Not Sufficient To Impose Preventive Detention: Jammu & Kashmir and Ladakh HC
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/kamal-kaka-v-ut-of-jk-ors-2026jklhc-jmu796-mere-allegation-involvement-transportation-cows-1610507
+
+[Source Link](https://t.me/verdictumlegalupdates/26092)
+
+---
+
+### 2026-03-23T11:02:21+00:00
+Framing Of Charge Not "Final Order"; Appeal Not Maintainable U/S 14A SC/ST Act: Himachal Pradesh High Court
+https://www.verdictum.in/court-updates/high-courts/himachal-high-court/lagnesh-verma-v-state-of-hp-2026hhc3474-us-14a-scst-act-framing-of-charge-final-order-1610505
+
+[Source Link](https://t.me/verdictumlegalupdates/26091)
+
+---
+
+### 2026-03-23T10:16:40+00:00
+Investigation Agencies Must Join Hands To Unearth Political Connivance Of Public Functionaries: Supreme Court Says In Anil Ambani Group Bank Fraud Probe
+https://www.verdictum.in/court-updates/supreme-court/anil-ambani-group-bank-fraud-probe-ed-cbi-probe-political-connivance-1610504
+
+[Source Link](https://t.me/verdictumlegalupdates/26090)
+
+---
+
+### 2026-03-23T10:02:28+00:00
+Patna High Court Directs State To Set Up 24x7 Toll-Free Reporting System For Persons With Mental Illness; Seeks Compliance Report
+https://www.verdictum.in/court-updates/high-courts/patna-high-court/court-on-its-own-motion-v-state-of-bihar-ors-mental-health-awareness-1610503
+
+[Source Link](https://t.me/verdictumlegalupdates/26089)
+
+---
+
+### 2026-03-23T09:32:27+00:00
+We Won’t Appreciate State For Politicising Development Issue Beneficial For Common Man: Apex Court Pulls Up West Bengal Govt For Creating Roadblocks In Construction Of Kolkata Metro
+https://www.verdictum.in/court-updates/supreme-court/we-wont-appreciate-state-for-politicising-development-issue-beneficial-for-common-man-apex-court-pulls-up-west-bengal-govt-for-creating-roadblocks-in-construction-of-kolkata-metro-1610502
+
+[Source Link](https://t.me/verdictumlegalupdates/26088)
+
+---
+
+### 2026-03-23T09:03:26+00:00
+Don’t File Such Petitions On Judicial Side: Supreme Court Refuses To Entertain PIL By One ‘Bada Khatarnak’ For Installation Of National Emblem On Its Dome
+https://www.verdictum.in/court-updates/supreme-court/dont-file-such-petitions-on-judicial-side-supreme-court-refuses-to-entertain-pil-by-one-bada-khatarnak-for-installation-of-national-emblem-on-its-dome-1610500
+
+[Source Link](https://t.me/verdictumlegalupdates/26087)
+
+---
+
+### 2026-03-23T08:31:25+00:00
+Serving Copy Of Complaint To Delinquent Mandatory Under POSH Rules: Kerala High Court While Setting Aside ICC’s Report
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/xxxxx-v-kerala-social-security-mission-2026ker23655-copy-complaint-delinquent-rule-7-posh-rules-1610497
+
+[Source Link](https://t.me/verdictumlegalupdates/26086)
+
+---
+
+### 2026-03-23T08:03:04+00:00
+Asset Disclosure Can Be Directed Post-Award To Secure Claim: Kerala High Court Clarifies Scope Of Powers U/S 9 Arbitration Act
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/e-d-f-man-liquid-products-italia-srl-v-emil-traders-private-limited-2026ker21531-powers-us-9-arbitration-act-asset-disclosure-1610491
+
+[Source Link](https://t.me/verdictumlegalupdates/26085)
 
 ---
 
@@ -65,102 +161,6 @@ Madras Fertilizers Limited (MFL) Invites Applications For The Posts Of Chief Man
 https://www.verdictum.in/job-updates/madras-fertilizers-limited-1610406
 
 [Source Link](https://t.me/verdictumlegalupdates/26077)
-
----
-
-### 2026-03-22T13:52:44+00:00
-Authorities Under Maintenance Of Senior Citizens Act Cannot Decide Ownership Or Possession Disputes: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/magghu-ram-v-state-of-up-2026ahc-lko17019-senior-citizen-immovable-property-possession-ownership-1610417
-
-[Source Link](https://t.me/verdictumlegalupdates/26076)
-
----
-
-### 2026-03-22T12:32:43+00:00
-Detention Order Can Never Be A Substitute To Normal Criminal Law:  Madras High Court
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/r-vembu-v-state-of-tamil-nadu-detention-order-criminal-law-substitute-1610416
-
-[Source Link](https://t.me/verdictumlegalupdates/26075)
-
----
-
-### 2026-03-22T10:33:01+00:00
-Issue Involving Mixed Questions Of Law And Fact Cannot Be Tried As Preliminary Issue: Allahabad High Court Reiterates
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/paras-ram-paras-v-ram-charitra-2026ahc57600-discretion-issue-jurisdiction-bar-suit-rule-2-order-xiv-cpc-1610415
-
-[Source Link](https://t.me/verdictumlegalupdates/26074)
-
----
-
-### 2026-03-22T08:32:40+00:00
-Delhi High Court Seeks Streamlining In Bail Matters, Flags Police Inaction
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/gulam-nabi-v-state-2026dhc2344-bail-streamlining-police-conduct-1610414
-
-[Source Link](https://t.me/verdictumlegalupdates/26073)
-
----
-
-### 2026-03-22T06:32:18+00:00
-Wife's Earning Can’t Be Sole Criterion For Denying Maintenance: Gujarat High Court
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/a-v-state-of-gujarat-2026gujhc20342-wife-earning-maintenance-husband-1610413
-
-[Source Link](https://t.me/verdictumlegalupdates/26072)
-
----
-
-### 2026-03-22T04:32:27+00:00
-Merely Being Friendly On Valentine’s Day Does Not Give Licence For Forcible Relations: Delhi High Court Denies Bail
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/wasim-akhtar-v-state-gnct-of-delhi-2026dhc2354-friend-valentines-day-forcible-relations-1610412
-
-[Source Link](https://t.me/verdictumlegalupdates/26071)
-
----
-
-### 2026-03-21T15:03:04+00:00
-Manager (Law) Vacancy At Indian Renewable Energy Development Agency Limited (IREDA)
-https://www.verdictum.in/job-updates/indian-renewable-energy-development-agency-limited-1610405
-
-[Source Link](https://t.me/verdictumlegalupdates/26070)
-
----
-
-### 2026-03-21T14:12:22+00:00
-Madras High Court Upholds Refusal Of Permission To Erect Freedom Fighter’s Statue On Ground Of Caste Consolidation; Emphasises Mandate Of Casteless Egalitarian Society
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/skumarasamy-v-the-additional-chief-secretary-to-government-rejection-plea-erect-freedom-fighter-statue-1610411
-
-[Source Link](https://t.me/verdictumlegalupdates/26069)
-
----
-
-### 2026-03-21T13:33:01+00:00
-Petition U/S. 482 CrPC Not Maintainable Against NIA Special Court Discharge And Summoning Orders; Remedy Lies In Statutory Appeal: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/2026ahclko20344-mohd-faizan-v-state-of-up-1610408
-
-[Source Link](https://t.me/verdictumlegalupdates/26068)
-
----
-
-### 2026-03-21T12:53:10+00:00
-Failure To Furnish Written Grounds Of Arrest Vitiates Remand: Delhi High Court Grants Bail To POCSO Accused
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/2026dhc508-habibur-molla-sonu-v-state-1610402
-
-[Source Link](https://t.me/verdictumlegalupdates/26067)
-
----
-
-### 2026-03-21T12:02:48+00:00
-Term "Dependant" Denotes Members Who Were Reliant On Deceased Employee: Karnataka High Court Dismisses Married Daughter’s Plea For Compassionate Appointment
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/2026khcd4011db-smt-laxmi-v-registrar-general-high-court-of-karnataka-1610398
-
-[Source Link](https://t.me/verdictumlegalupdates/26066)
-
----
-
-### 2026-03-21T11:13:07+00:00
-Mother-In-Law Can Be Treated As A 'Near Relative' For Organ Transplantation: Punjab & Haryana High Court
-https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/anil-kumar-v-union-of-india-2026phc043235-near-relative-for-kidney-transplant-1610395
-
-[Source Link](https://t.me/verdictumlegalupdates/26065)
 
 ---
 
