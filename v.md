@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-23T13:32:47+00:00*
+*Last Updated: 2026-03-23T16:03:03+00:00*
+
+---
+
+### 2026-03-23T16:03:03+00:00
+Legal Consultant Vacancy At Central Council for Research in Ayurvedic Sciences (CCRAS)
+https://www.verdictum.in/job-updates/central-council-for-research-in-ayurvedic-sciences-1610516
+
+[Source Link](https://t.me/verdictumlegalupdates/26101)
+
+---
+
+### 2026-03-23T15:33:02+00:00
+Denial Of Benefit Of Welfare Scheme Due To Administrative Lapses Amounts To Travesty Of Justice: Allahabad High Court Grants Relief To Widow
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/lalsa-devi-v-state-of-up-2026ahc51274-db-denial-benefit-welfare-scheme-delay-administrative-lapses-1610524
+
+[Source Link](https://t.me/verdictumlegalupdates/26100)
+
+---
+
+### 2026-03-23T15:02:51+00:00
+No Evidence To Reflect Part Payment Of Debt Before Presentation Of Cheque; Accused Not Entitled To Sec.56 NI Act Benefit: Gujarat High Court
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/rajubhai-kalidas-chunara-v-kantibhai-kalyanjibhai-shah-2026gujhc20689-part-payment-cheque-ni-act-section-56-1610522
+
+[Source Link](https://t.me/verdictumlegalupdates/26099)
+
+---
+
+### 2026-03-23T14:33:09+00:00
+Waqf Tribunal Appeared Influenced By Community Interests: Patna High Court Holds National Highway Act Prevails Over Waqf Act
+https://www.verdictum.in/court-updates/high-courts/patna-high-court/nhai-v-syed-mohammad-masood-jawed-miscellaneous-appeal-no795-of-2025-waqf-tribunal-nh-act-community-interests-1610513
+
+[Source Link](https://t.me/verdictumlegalupdates/26098)
+
+---
+
+### 2026-03-23T14:02:48+00:00
+Mere Live-In Relationship Not Marriage; No Bigamy Without Proof Of Second Marriage U/S 494 IPC: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/x-v-y-2026khc13088-live-in-relationship-not-marriage-bigamy-us-494-ipc-1610515
+
+[Source Link](https://t.me/verdictumlegalupdates/26097)
 
 ---
 
@@ -121,46 +161,6 @@ Nine Criminal Cases Pending: Allahabad High Court Denies Parole To Ex- MLA Angad
 https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/angad-yadav-v-state-of-up-2026ahc-lko20161-db-criminal-cases-pending-parole-ex-mla-1610482
 
 [Source Link](https://t.me/verdictumlegalupdates/26082)
-
----
-
-### 2026-03-23T06:02:59+00:00
-Common SSC Recruitment, Similar Duties, Historical Parity Doesn’t Guarantee Equal Pay: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/itgoa-v-union-of-india-2026dhc2303--1610481
-
-[Source Link](https://t.me/verdictumlegalupdates/26081)
-
----
-
-### 2026-03-23T05:32:58+00:00
-DSSSB Recruitment| Candidature Cannot Be Cancelled Without Effective Communication; Mere Website Notice Insufficient: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/government-of-nct-of-delhi-anr-v-sehdev-anr-dhc2306-db-1610476
-
-[Source Link](https://t.me/verdictumlegalupdates/26080)
-
----
-
-### 2026-03-23T05:02:57+00:00
-NEET-PG 2025| Candidate Allotted SVR Seat But Not Joined Can Not Be Treated As ‘Pursuing’ PG Course; No Bar To SPMD Counselling: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/remika-devi-v-national-board-of-examination-in-medical-sciences-ors-2026dhc2373-neet-pg-2025-pursuing-pg-course-1610473
-
-[Source Link](https://t.me/verdictumlegalupdates/26079)
-
----
-
-### 2026-03-23T04:32:46+00:00
-Registering Authority Of One State Can’t Insist On Personal Appearance Of Govt. Officer Of Another State Exempted U/S.88 Of Registration Act: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/alavikutty-t-k-v-state-of-kerala-2026ker22091-registering-authority-personal-appearance-govt-officer-registration-act-1610418
-
-[Source Link](https://t.me/verdictumlegalupdates/26078)
-
----
-
-### 2026-03-22T15:02:25+00:00
-Madras Fertilizers Limited (MFL) Invites Applications For The Posts Of Chief Manager & Senior officer (Legal)
-https://www.verdictum.in/job-updates/madras-fertilizers-limited-1610406
-
-[Source Link](https://t.me/verdictumlegalupdates/26077)
 
 ---
 
