@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-22T15:02:25+00:00*
+*Last Updated: 2026-03-23T07:31:23+00:00*
+
+---
+
+### 2026-03-23T07:31:23+00:00
+Breaking: Supreme Court Slams Haryana Police For Insensitivity In Gurugram's Sexual Assault Case Of 4-Year-Old; Summons Commissioner Of Police & IO
+https://www.verdictum.in/court-updates/supreme-court/slams-haryana-police-for-insensitivity-in-gurugrams-sexual-assault-case-of-4-year-old-1610493
+
+[Source Link](https://t.me/verdictumlegalupdates/26084)
+
+---
+
+### 2026-03-23T07:03:01+00:00
+Manipulations Found But No Misappropriation; Discrepancies Likely Clerical Errors: Kerala High Court Acquits Teacher Accused Of Falsifying PF Records
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/cm-kelu-v-deputy-superintendent-of-police-2026ker22718-acquits-assistant-teacher-no-misappropriation-1610488
+
+[Source Link](https://t.me/verdictumlegalupdates/26083)
+
+---
+
+### 2026-03-23T06:32:20+00:00
+Nine Criminal Cases Pending: Allahabad High Court Denies Parole To Ex- MLA Angad Yadav
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/angad-yadav-v-state-of-up-2026ahc-lko20161-db-criminal-cases-pending-parole-ex-mla-1610482
+
+[Source Link](https://t.me/verdictumlegalupdates/26082)
+
+---
+
+### 2026-03-23T06:02:59+00:00
+Common SSC Recruitment, Similar Duties, Historical Parity Doesn’t Guarantee Equal Pay: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/itgoa-v-union-of-india-2026dhc2303--1610481
+
+[Source Link](https://t.me/verdictumlegalupdates/26081)
+
+---
+
+### 2026-03-23T05:32:58+00:00
+DSSSB Recruitment| Candidature Cannot Be Cancelled Without Effective Communication; Mere Website Notice Insufficient: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/government-of-nct-of-delhi-anr-v-sehdev-anr-dhc2306-db-1610476
+
+[Source Link](https://t.me/verdictumlegalupdates/26080)
+
+---
+
+### 2026-03-23T05:02:57+00:00
+NEET-PG 2025| Candidate Allotted SVR Seat But Not Joined Can Not Be Treated As ‘Pursuing’ PG Course; No Bar To SPMD Counselling: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/remika-devi-v-national-board-of-examination-in-medical-sciences-ors-2026dhc2373-neet-pg-2025-pursuing-pg-course-1610473
+
+[Source Link](https://t.me/verdictumlegalupdates/26079)
+
+---
+
+### 2026-03-23T04:32:46+00:00
+Registering Authority Of One State Can’t Insist On Personal Appearance Of Govt. Officer Of Another State Exempted U/S.88 Of Registration Act: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/alavikutty-t-k-v-state-of-kerala-2026ker22091-registering-authority-personal-appearance-govt-officer-registration-act-1610418
+
+[Source Link](https://t.me/verdictumlegalupdates/26078)
 
 ---
 
@@ -105,62 +161,6 @@ Mother-In-Law Can Be Treated As A 'Near Relative' For Organ Transplantation: Pun
 https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/anil-kumar-v-union-of-india-2026phc043235-near-relative-for-kidney-transplant-1610395
 
 [Source Link](https://t.me/verdictumlegalupdates/26065)
-
----
-
-### 2026-03-21T10:33:06+00:00
-Death Of Foetus Is Death Of Child; To Be Treated As Independent Accident: Allahabad High Court Enhances Railway Accident Compensation
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/shri-sukhnandan-v-union-of-india-2026ahc-lko16113-death-foetus-child-compensation-pregnant-woman-railways-1610394
-
-[Source Link](https://t.me/verdictumlegalupdates/26064)
-
----
-
-### 2026-03-21T09:52:25+00:00
-Once Land Is Vested To State There Is No Scope To Release It To Tenure Holders: Calcutta High Court Dismisses Plea For Return Of Unused Acquired Land
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/nirmal-mondal-v-union-of-india-wpa-28229-of-2025-1610392
-
-[Source Link](https://t.me/verdictumlegalupdates/26063)
-
----
-
-### 2026-03-21T09:02:23+00:00
-Limited Digital Role In ISIS-Linked Content, Coupled With Health Condition: Delhi High Court Grants Bail To UAPA Accused
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/haris-nisar-langoo-v-nia-2026dhc2317-db-uapa-incarceration-isis-linked-content-1610389
-
-[Source Link](https://t.me/verdictumlegalupdates/26062)
-
----
-
-### 2026-03-21T08:13:02+00:00
-Section 48B Land Acquisition Act Doesn’t Grant Original Landowners Enforceable Right To Reclaim Property Once Lawfully Vested In State: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/2026-insc-269-chennai-metropolitan-development-authority-v-dharmalingam-1610388
-
-[Source Link](https://t.me/verdictumlegalupdates/26061)
-
----
-
-### 2026-03-21T07:33:21+00:00
-Death Of Public Servant Does Not End Confiscation Proceedings Against Spouse Under Bihar Special Courts Act: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/state-of-bihar-thr-vigilance-v-sudha-singh-2026-insc-272-death-of-public-servant-bihar-special-courts-act-2009-1610384
-
-[Source Link](https://t.me/verdictumlegalupdates/26060)
-
----
-
-### 2026-03-21T06:53:00+00:00
-Particular Thing Must Be Done In Stipulated Manner Or Not At All When Individual Liberty Is At Stake: Supreme Court Quashes FIR
-https://www.verdictum.in/court-updates/supreme-court/gabbar-singh-v-state-of-up-2026-insc-271-individual-liberty-fir-up-gangsters-act-1610378
-
-[Source Link](https://t.me/verdictumlegalupdates/26059)
-
----
-
-### 2026-03-21T06:02:58+00:00
-Supreme Court Permits Extinguished Counter Claim To Be Raised As Plea Of Set-Off By Way Of Defence In Arbitral Proceedings
-https://www.verdictum.in/court-updates/supreme-court/ujaas-energy-ltd-v-west-bengal-power-development-corporation-ltd-2026-insc-268-counter-claim-set-off-defence-1610375
-
-[Source Link](https://t.me/verdictumlegalupdates/26058)
 
 ---
 
