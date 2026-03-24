@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-24T09:42:32+00:00*
+*Last Updated: 2026-03-24T13:03:38+00:00*
 
 ---
 
-### 2026-03-24T09:42:32+00:00
-Contiguity, Distance And Local Convenience Key In Panchayat Delimitation: Himachal Pradesh High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-local-convenience-panchayat-delimitation-527539
-
-[Read on Telegram](https://t.me/livelawindia/107520)
-
----
-### 2026-03-24T09:49:12+00:00
-Actor Mohanlal Withdraws Plea Seeking Interim Relief Against Infringing Content In Suit For Protecting Personality Rights
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-mohanlal-personality-rights-interim-application-527640
-
-[Read on Telegram](https://t.me/livelawindia/107521)
-
----
-### 2026-03-24T09:49:52+00:00
-Supreme Court Adjourns Plea Against Nimisha Priya's Execution Sine Die
-https://www.livelaw.in/top-stories/supreme-court-adjourns-plea-against-nimisha-priyas-execution-sine-die-527642
-
-[Read on Telegram](https://t.me/livelawindia/107522)
-
----
-### 2026-03-24T09:52:32+00:00
-'Bar Is Best Judge Of Judges': Kerala High Court Refrains From Acting Against Lawyer Over Allegations On Judge, Asks Bar Body To Decide
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-professional-misconduct-allegation-lawyer-bar-association-527638
-
-[Read on Telegram](https://t.me/livelawindia/107523)
-
----
-### 2026-03-24T10:10:32+00:00
-Manipur Violence: Supreme Court Expresses Unhappiness Over Delay In Appointing Legal Aid Counsel For Victims
-https://www.livelaw.in/top-stories/manipur-violence-supreme-court-expresses-unhappiness-over-delay-in-appointing-legal-aid-counsel-for-victims-527645
-
-[Read on Telegram](https://t.me/livelawindia/107524)
-
----
-### 2026-03-24T10:34:07+00:00
-Can ED Go To State Police If CM Barges Into ED Raid? Supreme Court Asks West Bengal
-https://www.livelaw.in/top-stories/can-ed-go-to-state-police-if-cm-barges-into-ed-raid-supreme-court-asks-west-bengal-527648
-
-[Read on Telegram](https://t.me/livelawindia/107525)
-
----
-### 2026-03-24T10:47:07+00:00
-Absence Of Notice U/S 24 CPC Not Fatal To Transfer Unless Prejudice Shown: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-prior-notice-absence-section24-cpc-transfer-order-527538
-
-[Read on Telegram](https://t.me/livelawindia/107526)
-
----
-### 2026-03-24T10:53:27+00:00
-Bombay High Court Lets Outgoing Sarpanchs To Continue As Administrators For Now, But Restrains Them From Taking Policy Decisions
-https://www.livelaw.in/high-court/bombay-high-court/maharashtra-govt-sarpanch-continue-as-administrator-no-policy-decision-527651
-
-[Read on Telegram](https://t.me/livelawindia/107527)
-
----
-### 2026-03-24T10:57:47+00:00
-Except West Bengal, SIR Took Place Smoothly In Other States: Supreme Court
-https://www.livelaw.in/top-stories/except-west-bengal-special-intensive-revision-took-place-smoothly-in-all-other-states-supreme-court-527653
-
-[Read on Telegram](https://t.me/livelawindia/107528)
-
----
-### 2026-03-24T11:17:57+00:00
-Adopted Son's Conduct Forces Mother To Flee To Care Home; Madras High Court Orders FIR, Imposes ₹1 Lakh Costs
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-fir-adopted-son-loot-mother-property-cost-imposed-hcp-527654
-
-[Read on Telegram](https://t.me/livelawindia/107529)
-
----
-### 2026-03-24T11:28:17+00:00
-'Mistake Has Happened': Karnataka High Court Tells Ranveer Singh Over 'Kantara' Movie Mimicry; Actor To File Apology Affidavit
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-kantara-movie-mimicry-row-ranveer-singh-apology-527657
-
-[Read on Telegram](https://t.me/livelawindia/107530)
-
----
-### 2026-03-24T11:52:37+00:00
-Transfer Guidelines Not Enforceable, Employer's Power To Transfer Cannot Be Curtailed By Administrative Instructions: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-transfer-guidelines-not-enforceable-employers-power-to-transfer-cannot-be-curtailed-by-administrative-instructions-527541
-
-[Read on Telegram](https://t.me/livelawindia/107531)
-
----
-### 2026-03-24T12:08:47+00:00
-Customs Cannot Ignore FSSAI's Clearance & Re-Test Goods Without Justification: Bombay High Court Orders Release Of Seized Imports
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-customs-fssai-clearance-seized-imports-527662
-
-[Read on Telegram](https://t.me/livelawindia/107532)
-
----
-### 2026-03-24T12:09:27+00:00
-DSLSA Launches Legal Empowerment Initiatives Including PLV Handbook, Health-Based Outreach & Victim Facilitation Centres
-https://www.livelaw.in/news-updates/dslsa-launches-legal-empowerment-initiatives-including-plv-handbook-health-based-outreach-victim-facilitation-centres-527664
-
-[Read on Telegram](https://t.me/livelawindia/107533)
-
----
-### 2026-03-24T12:19:48+00:00
-Kerala High Court Directs Centre To Decide On Plea Alleging Misuse Of 'Reporter TV' Broadcasting License Within 2 Months
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-representation-misuse-broadcasting-license-reporter-tv-channel-527672
-
-[Read on Telegram](https://t.me/livelawindia/107534)
-
----
-### 2026-03-24T12:28:08+00:00
-NCLT Kolkata Dismisses Section 9 IBC Plea Against Bridge & Roof Co., Cites Pre-Existing Dispute Over Defective Work & Pending Final Bills
-https://www.livelaw.in/law-firms/litigation/nclt-kolkata-dismisses-section-9-ibc-plea-against-bridge-roof-co-cites-pre-existing-dispute-over-defective-work-pending-final-bills-527675
-
-[Read on Telegram](https://t.me/livelawindia/107535)
-
----
-### 2026-03-24T12:37:08+00:00
-'Long-Standing Contractors Cannot Claim Exclusive Right To Continue On Account Of Potential Loss Of Livelihood': Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-longstanding-contractor-exclusive-right-railway-shoe-shine-work-527663
-
-[Read on Telegram](https://t.me/livelawindia/107536)
-
----
-### 2026-03-24T12:55:38+00:00
-Courts Can't Order State To Take Over Churches Involved In Religious Disputes: Kerala High Court Sets Aside Takeover Of Six Churches
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-church-feud-district-collector-take-over-contempt-527677
-
-[Read on Telegram](https://t.me/livelawindia/107537)
-
----
-### 2026-03-24T12:59:18+00:00
-Supreme Court Expresses Reluctance To Set Timeline For Centre To Decide Citizenship Of CAA-Protected Refugees
-https://www.livelaw.in/top-stories/supreme-court-citizenship-amendment-act-certificates-delay-disenfranchisement-of-bangladesh-refugees-west-bengal-sir-minimal-judicial-intervention-527679
-
-[Read on Telegram](https://t.me/livelawindia/107538)
-
----
 ### 2026-03-24T13:03:38+00:00
 2026 LiveLaw (SC) 288 | CHINTHADA ANAND v STATE OF ANDHRA PRADESH AND ORS
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-288-chinthada-anand-v-state-of-andhra-pradesh-and-ors-527680
 
 [Read on Telegram](https://t.me/livelawindia/107539)
+
+---
+### 2026-03-24T13:26:58+00:00
+IBC | After Moratorium, Creditor Cannot Appropriate Pre-CIRP Dues From Earlier Security Deposit Made By Corporate Debtor : Supreme Court
+https://www.livelaw.in/supreme-court/ibc-after-moratorium-creditor-cannot-appropriate-pre-cirp-dues-from-earlier-security-deposit-made-by-corporate-debtor-supreme-court-527683
+
+[Read on Telegram](https://t.me/livelawindia/107540)
+
+---
+### 2026-03-24T13:28:38+00:00
+2026 LiveLaw (SC) 289 |  Central Transmission Utility of India Limited Versus Sumit Binani & Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-289-central-transmission-utility-of-india-limited-versus-sumit-binani-ors-527684
+
+[Read on Telegram](https://t.me/livelawindia/107541)
+
+---
+### 2026-03-24T13:35:38+00:00
+Civil Imprisonment Over Default Doesn't Absolve Husband's Liability To Pay Monthly Maintenance: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-civil-imprisonment-default-absolve-husband-liability-pay-monthly-maintenance-527685
+
+[Read on Telegram](https://t.me/livelawindia/107542)
+
+---
+### 2026-03-24T13:48:09+00:00
+Authority Must Share Adverse Material With Accused Before Passing Orders In Electricity Theft Cases: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-assessing-authority-hearing-opportunity-section135-electricity-act-527667
+
+[Read on Telegram](https://t.me/livelawindia/107543)
+
+---
+### 2026-03-24T13:49:09+00:00
+Supreme Court Collegium Recommends Making Three Additional Judges Of Madras High Court Permanent
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-supreme-court-collegium-three-additional-judges-permanent-527687
+
+[Read on Telegram](https://t.me/livelawindia/107544)
+
+---
+### 2026-03-24T13:52:29+00:00
+Keeping 400 Deers In AN Jha Deer Park Having Capacity For 34  'Grave Cruelty' : Supreme Court
+https://www.livelaw.in/top-stories/keeping-400-deers-in-an-jha-deer-park-having-capacity-for-34-grave-cruelty-supreme-court-527688
+
+[Read on Telegram](https://t.me/livelawindia/107545)
+
+---
+### 2026-03-24T13:57:29+00:00
+Accused Cannot Insist On Chargesheet Under Statute Of His Choice When Acts Are Punishable Under Two Different Laws: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-accused-cannot-insist-on-presentation-of-chargesheet-under-penal-statute-of-his-choice-when-acts-are-punishable-under-two-different-statutes-527665
+
+[Read on Telegram](https://t.me/livelawindia/107546)
+
+---
+### 2026-03-24T14:17:29+00:00
+Arms Act Case Based On Social Media Photos Unsustainable; No Proof Of Possession: P&H High Court Quashes FIR
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-case-arms-act-congress-politicians-527669
+
+[Read on Telegram](https://t.me/livelawindia/107547)
+
+---
+### 2026-03-24T14:30:49+00:00
+Anna Nagar Sexual Assault Case: Madras High Court Directs POCSO Court To Hold Day-To-Day Trial, Orders Protection For Victim & Family
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-anna-nagar-sexual-assault-case-special-court-day-to-day-trial-527697
+
+[Read on Telegram](https://t.me/livelawindia/107548)
+
+---
+### 2026-03-24T14:39:59+00:00
+CBI Moves Supreme Court Seeking Bail Cancellation Of Two Accused In Manipur Violence Case
+https://www.livelaw.in/top-stories/supreme-court-cbi-plea-for-cancellation-of-bail-to-2-accused-of-gangrape-parading-women-naked-manipur-ethnic-violence-527700
+
+[Read on Telegram](https://t.me/livelawindia/107549)
+
+---
+### 2026-03-24T14:43:39+00:00
+Former Minister Ponmudi Moves Madras High Court Against Magistrate Taking Cognisance Of Hate Speech Complaint
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ponmudi-challenge-magistrate-cognisance-uma-anandan-complaint-527701
+
+[Read on Telegram](https://t.me/livelawindia/107550)
+
+---
+### 2026-03-24T14:52:59+00:00
+Person Granted Pardon & Examined As Approver U/S 343 BNSS Not Required To Remain In Custody Until Termination Of Trial: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-person-granted-pardon-and-examined-as-approver-under-section-343-bnss-is-not-required-to-remain-in-custody-until-termination-of-trial-527671
+
+[Read on Telegram](https://t.me/livelawindia/107551)
+
+---
+### 2026-03-24T15:09:39+00:00
+The March Bill On Transgenders, Marches Backwards
+https://www.livelaw.in/articles/march-bill-transgenders-marches-backwards-527704
+
+[Read on Telegram](https://t.me/livelawindia/107552)
+
+---
+### 2026-03-24T15:12:19+00:00
+Bangalore Metro Moves High Court Seeking Permission To Fell Trees For Constructing JP Nagar 4th Phase Mysuru Road Rail Line
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-bmrcl-mysuru-road-metro-urban-green-cover-conservation-527699
+
+[Read on Telegram](https://t.me/livelawindia/107553)
+
+---
+### 2026-03-24T15:22:19+00:00
+Plea In Madras High Court Seeks Rescheduling Of IPL Matches In Chennai Due To Assembly Polls
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ipl-match-reschedule-after-tn-assembly-elections-527705
+
+[Read on Telegram](https://t.me/livelawindia/107554)
+
+---
+### 2026-03-24T15:25:19+00:00
+Conversion Does Not Automatically Lead To Loss Of Scheduled Tribe Status, Person Must Renounce Tribal Customs & Rituals: SC
+https://www.livelaw.in/top-stories/conversion-does-not-automatically-lead-to-loss-of-scheduled-tribe-status-person-must-renounce-tribal-customs-rituals-sc-527707
+
+[Read on Telegram](https://t.me/livelawindia/107555)
+
+---
+### 2026-03-24T15:31:19+00:00
+MP High Court Halts Rewa District Bar Association Election Over Non-Compliance With SC Order On 30% Women Representation In Bar Bodies
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-halts-rewa-district-bar-association-elections-over-non-compliance-with-scs-women-reservation-mandate-527709
+
+[Read on Telegram](https://t.me/livelawindia/107556)
+
+---
+### 2026-03-24T15:54:29+00:00
+Delhi High Court Weekly Round-Up: March 16 To March 22, 2026
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-weekly-round-up-march-16-to-march-22-2026-527711
+
+[Read on Telegram](https://t.me/livelawindia/107557)
+
+---
+### 2026-03-24T16:53:00+00:00
+Supreme Court Daily Round-Up : March 24, 2026
+https://www.livelaw.in/supreme-court/supreme-court-daily-round-up-march-24-2026-527708
+
+[Read on Telegram](https://t.me/livelawindia/107558)
 
 ---
