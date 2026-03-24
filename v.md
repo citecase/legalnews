@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-24T13:33:00+00:00*
+*Last Updated: 2026-03-24T16:03:17+00:00*
+
+---
+
+### 2026-03-24T16:03:17+00:00
+Commercial Courts Act| Delay In Written Statement Filed Within 120 Days Can Be Explained Beyond That Period: Andhra Pradesh High Court
+https://www.verdictum.in/court-updates/high-courts/andhra-pradesh-high-court/bunge-india-private-limited-v-ms-sree-mahalakshmi-oil-mills-commercial-courts-1610596
+
+[Source Link](https://t.me/verdictumlegalupdates/26122)
+
+---
+
+### 2026-03-24T15:33:05+00:00
+Tax Authorities Acting On Tax Evasion Petition Cannot Be Accused Of Malice When Due Procedure Is Followed: Andhra Pradesh High Court
+https://www.verdictum.in/court-updates/high-courts/andhra-pradesh-high-court/koduru-picheswara-rao-v-union-of-india-ors-income-tax-evasion-petition-1610594
+
+[Source Link](https://t.me/verdictumlegalupdates/26121)
+
+---
+
+### 2026-03-24T15:02:44+00:00
+Bombay High Court Expresses Concern On Misuse Of IBC To Stall SARFAESI Proceedings; Quashes DRT Order Halting Possession Of Secured Asset
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/rozina-firoz-hajiani-ors-v-union-of-india-ors-2026bhc-os6969-db-1610595
+
+[Source Link](https://t.me/verdictumlegalupdates/26120)
+
+---
+
+### 2026-03-24T14:32:42+00:00
+Liability To Be Borne By State & Not Private Insurer In Case Of Accident When Vehicle Was Requisitioned For Public Functions: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/district-magistrate-and-district-election-officer-and-collector-v-national-insurance-company-limited-2026-insc-279-liability-state-private-insurer-1610593
+
+[Source Link](https://t.me/verdictumlegalupdates/26119)
+
+---
+
+### 2026-03-24T14:02:41+00:00
+Vacancy Caused By Non-Joining Of Selected Candidate Does Not Automatically Travel Down Merit List In Absence Of Statutory Provision: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/state-of-karnataka-ors-v-santhosh-kumar-c-2026-insc-276-karnataka-psc-1610582
+
+[Source Link](https://t.me/verdictumlegalupdates/26118)
 
 ---
 
@@ -121,46 +161,6 @@ Vaishno Devi Adhoc Pujari’s Termination Dispute Not Amenable To Writ Jurisdict
 https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/subash-raina-v-state-of-jk-2026jklhc-jmu797-adhoc-pujaris-termination-dispute-writ-1610548
 
 [Source Link](https://t.me/verdictumlegalupdates/26103)
-
----
-
-### 2026-03-24T04:32:59+00:00
-Defect In Framing Of Charge Not Fatal Unless It Causes Failure Of Justice: Meghalaya High Court Upholds Rape Conviction
-https://www.verdictum.in/court-updates/high-courts/meghalaya-high-court/chanky-shadap-v-state-of-meghalaya-ors-2026mlhc247-section-376-ipc-1610527
-
-[Source Link](https://t.me/verdictumlegalupdates/26102)
-
----
-
-### 2026-03-23T16:03:03+00:00
-Legal Consultant Vacancy At Central Council for Research in Ayurvedic Sciences (CCRAS)
-https://www.verdictum.in/job-updates/central-council-for-research-in-ayurvedic-sciences-1610516
-
-[Source Link](https://t.me/verdictumlegalupdates/26101)
-
----
-
-### 2026-03-23T15:33:02+00:00
-Denial Of Benefit Of Welfare Scheme Due To Administrative Lapses Amounts To Travesty Of Justice: Allahabad High Court Grants Relief To Widow
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/lalsa-devi-v-state-of-up-2026ahc51274-db-denial-benefit-welfare-scheme-delay-administrative-lapses-1610524
-
-[Source Link](https://t.me/verdictumlegalupdates/26100)
-
----
-
-### 2026-03-23T15:02:51+00:00
-No Evidence To Reflect Part Payment Of Debt Before Presentation Of Cheque; Accused Not Entitled To Sec.56 NI Act Benefit: Gujarat High Court
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/rajubhai-kalidas-chunara-v-kantibhai-kalyanjibhai-shah-2026gujhc20689-part-payment-cheque-ni-act-section-56-1610522
-
-[Source Link](https://t.me/verdictumlegalupdates/26099)
-
----
-
-### 2026-03-23T14:33:09+00:00
-Waqf Tribunal Appeared Influenced By Community Interests: Patna High Court Holds National Highway Act Prevails Over Waqf Act
-https://www.verdictum.in/court-updates/high-courts/patna-high-court/nhai-v-syed-mohammad-masood-jawed-miscellaneous-appeal-no795-of-2025-waqf-tribunal-nh-act-community-interests-1610513
-
-[Source Link](https://t.me/verdictumlegalupdates/26098)
 
 ---
 
