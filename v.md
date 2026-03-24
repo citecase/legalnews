@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-23T16:03:03+00:00*
+*Last Updated: 2026-03-24T06:52:34+00:00*
+
+---
+
+### 2026-03-24T06:52:34+00:00
+Specific Averments Linking Directors To Day-To-Day Management A Jurisdictional Prerequisite For Proceedings U/S 141 NI Act: Calcutta High Court
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/masud-tarif-v-state-of-west-bengal-anr-section-141-negotiable-instruments-1610550
+
+[Source Link](https://t.me/verdictumlegalupdates/26106)
+
+---
+
+### 2026-03-24T06:03:33+00:00
+Breaking: Supreme Court Strikes Down Systemic Denial Of Permanent Commission In Armed Forces; Grants Pensionary Relief To Women Officials
+https://www.verdictum.in/court-updates/supreme-court/strikes-down-systemic-discrimination-in-armed-forces-grants-pensionary-relief-to-women-officers-across-army-navy-and-air-force-1610554
+
+[Source Link](https://t.me/verdictumlegalupdates/26105)
+
+---
+
+### 2026-03-24T05:52:52+00:00
+Presence & Testimony Of Chance Witness Requires Careful Scrutiny: Himachal Pradesh High Court Upholds Acquittal In Assault Case
+https://www.verdictum.in/court-updates/high-courts/himachal-high-court/state-of-himachal-pradesh-v-rakesh-kumar-ors-2026hhc7980-chance-witness-1610549
+
+[Source Link](https://t.me/verdictumlegalupdates/26104)
+
+---
+
+### 2026-03-24T05:12:10+00:00
+Vaishno Devi Adhoc Pujari’s Termination Dispute Not Amenable To Writ Jurisdiction; Lacks Public Law Element: Jammu & Kashmir High Court
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/subash-raina-v-state-of-jk-2026jklhc-jmu797-adhoc-pujaris-termination-dispute-writ-1610548
+
+[Source Link](https://t.me/verdictumlegalupdates/26103)
+
+---
+
+### 2026-03-24T04:32:59+00:00
+Defect In Framing Of Charge Not Fatal Unless It Causes Failure Of Justice: Meghalaya High Court Upholds Rape Conviction
+https://www.verdictum.in/court-updates/high-courts/meghalaya-high-court/chanky-shadap-v-state-of-meghalaya-ors-2026mlhc247-section-376-ipc-1610527
+
+[Source Link](https://t.me/verdictumlegalupdates/26102)
 
 ---
 
@@ -121,46 +161,6 @@ Don’t File Such Petitions On Judicial Side: Supreme Court Refuses To Entertain
 https://www.verdictum.in/court-updates/supreme-court/dont-file-such-petitions-on-judicial-side-supreme-court-refuses-to-entertain-pil-by-one-bada-khatarnak-for-installation-of-national-emblem-on-its-dome-1610500
 
 [Source Link](https://t.me/verdictumlegalupdates/26087)
-
----
-
-### 2026-03-23T08:31:25+00:00
-Serving Copy Of Complaint To Delinquent Mandatory Under POSH Rules: Kerala High Court While Setting Aside ICC’s Report
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/xxxxx-v-kerala-social-security-mission-2026ker23655-copy-complaint-delinquent-rule-7-posh-rules-1610497
-
-[Source Link](https://t.me/verdictumlegalupdates/26086)
-
----
-
-### 2026-03-23T08:03:04+00:00
-Asset Disclosure Can Be Directed Post-Award To Secure Claim: Kerala High Court Clarifies Scope Of Powers U/S 9 Arbitration Act
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/e-d-f-man-liquid-products-italia-srl-v-emil-traders-private-limited-2026ker21531-powers-us-9-arbitration-act-asset-disclosure-1610491
-
-[Source Link](https://t.me/verdictumlegalupdates/26085)
-
----
-
-### 2026-03-23T07:31:23+00:00
-Breaking: Supreme Court Slams Haryana Police For Insensitivity In Gurugram's Sexual Assault Case Of 4-Year-Old; Summons Commissioner Of Police & IO
-https://www.verdictum.in/court-updates/supreme-court/slams-haryana-police-for-insensitivity-in-gurugrams-sexual-assault-case-of-4-year-old-1610493
-
-[Source Link](https://t.me/verdictumlegalupdates/26084)
-
----
-
-### 2026-03-23T07:03:01+00:00
-Manipulations Found But No Misappropriation; Discrepancies Likely Clerical Errors: Kerala High Court Acquits Teacher Accused Of Falsifying PF Records
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/cm-kelu-v-deputy-superintendent-of-police-2026ker22718-acquits-assistant-teacher-no-misappropriation-1610488
-
-[Source Link](https://t.me/verdictumlegalupdates/26083)
-
----
-
-### 2026-03-23T06:32:20+00:00
-Nine Criminal Cases Pending: Allahabad High Court Denies Parole To Ex- MLA Angad Yadav
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/angad-yadav-v-state-of-up-2026ahc-lko20161-db-criminal-cases-pending-parole-ex-mla-1610482
-
-[Source Link](https://t.me/verdictumlegalupdates/26082)
 
 ---
 
