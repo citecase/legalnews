@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-25T04:40:53+00:00*
+*Last Updated: 2026-03-25T10:43:13+00:00*
 
 ---
 
-### 2026-03-25T04:40:53+00:00
-Delhi High Court Issues Notice On Plea Challenging Exclusion Of Autism, Mental Illness & Learning Disability Candidates From UPSC Reservation
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-issues-notice-on-plea-challenging-exclusion-of-autism-mental-illness-learning-disability-candidates-from-upsc-reservation-527735
+### 2026-03-25T10:43:13+00:00
+Uttam Nagar Holi Violence: Supreme Court Allows Petitioners To Approach Delhi Police Seeking Protection For Tarun's Family
+https://www.livelaw.in/top-stories/supreme-court-uttam-nagar-water-balloon-holi-incident-tarun-butolia-death-plea-alleging-lynching-seeking-remedial-measures-527801
 
-[Read on Telegram](https://t.me/livelawindia/107567)
-
----
-### 2026-03-25T04:47:33+00:00
-'Pitiable Condition' Of NH-8: Gujarat High Court Seeks NHAI Response On Repairs, Amount Spent On Maintenance & Toll Collected
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-pitiable-roads-nh-8-maintenance-toll-three-years-527732
-
-[Read on Telegram](https://t.me/livelawindia/107568)
+[Read on Telegram](https://t.me/livelawindia/107608)
 
 ---
-### 2026-03-25T04:52:13+00:00
-Gujarat Becomes Second State To Pass Law On Uniform Civil Code
-https://www.livelaw.in/news-updates/gujarat-becomes-second-state-to-pass-law-on-uniform-civil-code-527740
+### 2026-03-25T10:55:33+00:00
+India's Foreign Policy Falters When It Abandons Its Own Goalposts
+https://www.livelaw.in/articles/india-foreign-policy-us-israel-intervention-527804
 
-[Read on Telegram](https://t.me/livelawindia/107569)
-
----
-### 2026-03-25T05:05:53+00:00
-Madras High Court Imposes ₹50K Costs On 'Unusual' Plea Seeking Daily Protest At A Busy Public Junction Till World War Ends
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-50k-cost-daily-protest-till-end-of-world-war-527741
-
-[Read on Telegram](https://t.me/livelawindia/107570)
+[Read on Telegram](https://t.me/livelawindia/107609)
 
 ---
-### 2026-03-25T05:08:33+00:00
-2026 LiveLaw (SC) 290 | All India Shiromani Singh Sabha v. Union of India and others
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-290-all-india-shiromani-singh-sabha-v-union-of-india-and-others-527742
+### 2026-03-25T10:58:13+00:00
+Absence Of Material Facts Fatal To Election Challenge: Bombay High Court Dismisses Plea Challenging MLA's Election
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-dismisses-election-petition-allegation-suppression-constitutes-527796
 
-[Read on Telegram](https://t.me/livelawindia/107571)
-
----
-### 2026-03-25T05:17:53+00:00
-'State Largest Litigant, Must Act With Accountability': Karnataka High Court Calls For Digital Litigation Monitoring System To Prevent Delays
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-condone-delay-digital-litigation-monitoring-system-527743
-
-[Read on Telegram](https://t.me/livelawindia/107572)
+[Read on Telegram](https://t.me/livelawindia/107610)
 
 ---
-### 2026-03-25T05:22:33+00:00
-Mid-Session Fee Hike Cannot Apply To Already-Admitted Students: Calcutta High Court Quashes College's Demand Notice
-https://www.livelaw.in/high-court/calcutta-high-court/mid-session-fee-hike-cannot-apply-to-already-admitted-students-calcutta-high-court-quashes-colleges-demand-notice-527722
+### 2026-03-25T11:02:53+00:00
+Statutory Confidentiality Under POSH Act Doesn't Bar Supply Of Documents To Accused Employee Facing Disciplinary Action: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/statutory-confidentiality-posh-act-disciplinary-proceedings-documents-527781
 
-[Read on Telegram](https://t.me/livelawindia/107573)
-
----
-### 2026-03-25T05:26:43+00:00
-First Edition Of International Labour Law Conference On New Labour Codes In India: Contemporary Issues, Implementation Challenges And Global Perspectives
-https://www.livelaw.in/lawschool/news/first-edition-international-labour-law-conference-new-labour-codes-india-contemporary-issues-implementation-challenges-global-perspectives-527745
-
-[Read on Telegram](https://t.me/livelawindia/107574)
+[Read on Telegram](https://t.me/livelawindia/107611)
 
 ---
-### 2026-03-25T05:35:53+00:00
-NUALS Secures First Place At International Arbitration Moot Court Competition
-https://www.livelaw.in/lawschool/news/nuals-secures-first-place-international-arbitration-moot-court-competition-527749
+### 2026-03-25T11:12:53+00:00
+'Enforce Strict Age Verification At Entry': Karnataka High Court Directs Bengaluru Pubs, Declines To Quash FIR In Minor's Suicide Case
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-age-verification-bengaluru-pubs-minor-suicide-case-527807
 
-[Read on Telegram](https://t.me/livelawindia/107575)
-
----
-### 2026-03-25T05:37:34+00:00
-Delhi High Court Issues Notice On Plea Alleging Non-Compliance With SC Directions For CCTVs In Police Stations During Arrest, Interrogation
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-issues-notice-on-plea-alleging-non-compliance-with-sc-directions-for-cctvs-in-police-stations-during-arrest-interrogation-527736
-
-[Read on Telegram](https://t.me/livelawindia/107576)
+[Read on Telegram](https://t.me/livelawindia/107612)
 
 ---
-### 2026-03-25T05:41:34+00:00
-Insurance Claim Wrongly Repudiated For Film Distribution Losses Due To Telangana Agitation; NCDRC Awards ₹3.80 Crore Compensation
-https://www.livelaw.in/consumer-cases/insurance-claim-wrongly-repudiated-for-film-distribution-losses-due-to-telangana-agitation-ncdrc-awards-380-crore-compensation-527751
+### 2026-03-25T11:23:13+00:00
+'Frivolous Contempt Plea Against Judicial Officer Is Abuse Of Process': Punjab & Haryana High Court Imposes ₹1 Lakh Costs
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-false-allegations-court-order-against-judicial-officer-527798
 
-[Read on Telegram](https://t.me/livelawindia/107577)
-
----
-### 2026-03-25T05:52:44+00:00
-Right To Adopt Cannot Be Defeated By Procedural Delay: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/right-to-adopt-cannot-be-defeated-by-procedural-delay-calcutta-high-court-527717
-
-[Read on Telegram](https://t.me/livelawindia/107578)
+[Read on Telegram](https://t.me/livelawindia/107613)
 
 ---
-### 2026-03-25T05:52:54+00:00
-Supreme Court Refuses NHAI's Plea To Review Retrospective Application Of Solatium To NH Acquisitions, But Bars Reopening Settled Claims
-https://www.livelaw.in/top-stories/supreme-court-tarsem-singh-nhai-review-against-judgment-allowing-solatium-and-interest-to-pre-2019-land-acquisitions-527754
+### 2026-03-25T11:33:00+00:00
+Karnataka High Court Quashes Pollution Board's Closure Order Against Energy Unit; Says Only Chairman Competent, Not Member Secretary
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-kspcb-m11-energy-unit-527782
 
-[Read on Telegram](https://t.me/livelawindia/107579)
-
----
-### 2026-03-25T05:58:34+00:00
-HNLU Team Secures Runner-Up Position At 23rd Willem C. Vis East International Commercial Arbitration Moot, Hong Kong
-https://www.livelaw.in/lawschool/news/hnlu-team-secures-runner-up-position-23rd-willem-c-vis-east-international-commercial-arbitration-moot-hong-kong-527756
-
-[Read on Telegram](https://t.me/livelawindia/107580)
+[Read on Telegram](https://t.me/livelawindia/107614)
 
 ---
-### 2026-03-25T06:06:14+00:00
-'Need Of The Hour' : Supreme Court Issues Notice On SCBA Plea To Create Dedicated Welfare Fund For SC Advocates
-https://www.livelaw.in/top-stories/need-of-the-hour-supreme-court-issues-notice-on-scba-plea-to-create-dedicated-welfare-fund-for-sc-advocates-527757
+### 2026-03-25T11:41:50+00:00
+Unusual Victims' Conduct; No POCSO Presumption At Pre-Charge Stage: Why Allahabad HC Granted Relief To Swami Avimukteshwaranand
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-anticipatory-bail-swami-avimukteshwaranand-pocso-unusual-victim-conduct-527810
 
-[Read on Telegram](https://t.me/livelawindia/107581)
-
----
-### 2026-03-25T06:11:34+00:00
-'Genocide; Prima Facie Case Made Out': Allahabad High Court Refuses To Quash 1984 Kanpur Anti-Sikh Riot Cases
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-genocide-prima-facie-refuses-quash-1984-kanpur-anti-sikh-riot-527761
-
-[Read on Telegram](https://t.me/livelawindia/107582)
+[Read on Telegram](https://t.me/livelawindia/107615)
 
 ---
-### 2026-03-25T06:12:14+00:00
-State Can't Mechanically Suspend Municipal Resolutions: Gujarat High Court Stays Govt Order
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-ahmedabad-municipal-commissioner-late-payment-charges-state-govt-527746
+### 2026-03-25T11:47:30+00:00
+“Non-Compliance With Mandatory Bank Guarantee Validity Justifies Rejection Of Tender Bid": Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-ruling-compliance-tender-conditions-necessary-disqualification-bank-guarantee-527809
 
-[Read on Telegram](https://t.me/livelawindia/107583)
-
----
-### 2026-03-25T06:24:25+00:00
-Supreme Court Expunges Kerala HC Remarks About Woman In Rape Case Against MLA Rahul Mamkoottathil, Declines To Cancel Anticipatory Bail
-https://www.livelaw.in/top-stories/supreme-court-expunges-kerala-hc-remarks-about-woman-in-rape-case-against-mla-rahul-mamkoottathil-declines-to-cancel-anticipatory-bail-527764
-
-[Read on Telegram](https://t.me/livelawindia/107584)
+[Read on Telegram](https://t.me/livelawindia/107616)
 
 ---
-### 2026-03-25T06:43:05+00:00
-Delhi High Court Flags Possible Conflict Between S.223 BNSS Interpretation And SC Law On Cognizance, Refers Issue To Larger Bench
-https://www.livelaw.in/high-court/delhi-high-court/s223-bnss-should-notice-to-accused-precede-or-follow-complainants-examination-delhi-high-court-refers-to-larger-bench-527738
+### 2026-03-25T12:22:21+00:00
+Family Court Must Adopt Sensitive Approach In Custody Cases, Prioritize Child's Welfare Above Litigants' Rights: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-sensitive-approach-custody-child-welfare-priority-527822
 
-[Read on Telegram](https://t.me/livelawindia/107585)
+[Read on Telegram](https://t.me/livelawindia/107617)
 
 ---
-### 2026-03-25T06:45:45+00:00
-Sambhal Violence | Allahabad High Court Extends Stay On CJM Order For FIR Against Cops Until April 21
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-extends-stay-fir-against-cops-sambhal-violence-527765
+### 2026-03-25T12:28:01+00:00
+'Right To Fair Trial Violated': Bombay High Court Quashes Death Sentence, Orders Fresh Trial After Accused Was Not Properly Represented
+https://www.livelaw.in/high-court/bombay-high-court/right-to-fair-trial-violated-bombay-high-court-quashes-death-sentence-orders-fresh-trial-after-accused-was-not-properly-represented-527720
 
-[Read on Telegram](https://t.me/livelawindia/107586)
+[Read on Telegram](https://t.me/livelawindia/107618)
+
+---
+### 2026-03-25T12:30:01+00:00
+Discharge From  Air Force  On Grounds Of cumulative Unsuitability; Not A Punishment: Gauhati HC
+https://www.livelaw.in/high-court/gauhati-high-court/discharge-from-air-force-on-grounds-of-cumulative-unsuitability-not-a-punishment-gauhati-hc-527825
+
+[Read on Telegram](https://t.me/livelawindia/107619)
+
+---
+### 2026-03-25T12:42:01+00:00
+JGU Ranked #35 Globally In Law In QS World University Rankings By Subject 2026
+https://www.livelaw.in/lawschool/news/jgu-ranked-35-globally-law-qs-world-university-rankings-527826
+
+[Read on Telegram](https://t.me/livelawindia/107620)
+
+---
+### 2026-03-25T12:43:02+00:00
+Karnataka High Court Stays FIR Against DRDO Employees For Allegedly Removing Stray Dogs From Campus
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-drdo-employees-relocating-stray-dogs-527824
+
+[Read on Telegram](https://t.me/livelawindia/107621)
+
+---
+### 2026-03-25T12:52:22+00:00
+Parliament Passes Transgender Persons Amendment Bill Seeking To Omit Self-Determination Of Gender
+https://www.livelaw.in/top-stories/parliament-passes-transgender-persons-amendment-bill-seeking-to-omit-self-determination-of-gender-527828
+
+[Read on Telegram](https://t.me/livelawindia/107622)
+
+---
+### 2026-03-25T12:58:55+00:00
+Trust Legal Advises Gaudium IVF & Women Health Ltd On Proposed IPO
+https://www.livelaw.in/law-firms/deals/trust-legal-advises-gaudium-ivf-women-health-ltd-on-proposed-ipo-527830
+
+[Read on Telegram](https://t.me/livelawindia/107623)
+
+---
+### 2026-03-25T13:00:55+00:00
+Knanaya Community's Endogamy Not Essential Religious Practice, Excommunicating Members Marrying Outsiders Violates Rights: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/knanaya-communitys-endogamy-not-essential-religious-practice-excommunicating-members-marrying-outsiders-violates-rights-kerala-high-court-527831
+
+[Read on Telegram](https://t.me/livelawindia/107624)
+
+---
+### 2026-03-25T13:15:15+00:00
+Article 25 Doesn't Include Right To Seek Public Holiday On Religious Occasion : Supreme Court
+https://www.livelaw.in/supreme-court/article-25-doesnt-include-right-to-seek-public-holiday-on-religious-occasion-supreme-court-527833
+
+[Read on Telegram](https://t.me/livelawindia/107625)
+
+---
+### 2026-03-25T13:20:35+00:00
+LiveLaw Academy Launches Intensive Course on Commercial Arbitration: Theory and Practice by Sr. Adv. Percival Billimoria
+https://www.livelaw.in/top-stories/livelaw-academy-launches-intensive-course-on-commercial-arbitration-theory-and-practice-by-sr-adv-percival-billimoria-527835
+
+[Read on Telegram](https://t.me/livelawindia/107626)
+
+---
+### 2026-03-25T13:21:55+00:00
+Delhi High Court Upholds Summoning Of Sanctioning Authority Before Charge Stage In Corruption Case
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-upholds-summoning-of-sanctioning-authority-before-charge-stage-in-corruption-case-527836
+
+[Read on Telegram](https://t.me/livelawindia/107627)
 
 ---
