@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-25T10:43:13+00:00*
+*Last Updated: 2026-03-25T12:43:02+00:00*
 
 ---
 
-### 2026-03-25T10:43:13+00:00
-Uttam Nagar Holi Violence: Supreme Court Allows Petitioners To Approach Delhi Police Seeking Protection For Tarun's Family
-https://www.livelaw.in/top-stories/supreme-court-uttam-nagar-water-balloon-holi-incident-tarun-butolia-death-plea-alleging-lynching-seeking-remedial-measures-527801
-
-[Read on Telegram](https://t.me/livelawindia/107608)
-
----
-### 2026-03-25T10:55:33+00:00
-India's Foreign Policy Falters When It Abandons Its Own Goalposts
-https://www.livelaw.in/articles/india-foreign-policy-us-israel-intervention-527804
-
-[Read on Telegram](https://t.me/livelawindia/107609)
-
----
-### 2026-03-25T10:58:13+00:00
-Absence Of Material Facts Fatal To Election Challenge: Bombay High Court Dismisses Plea Challenging MLA's Election
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-dismisses-election-petition-allegation-suppression-constitutes-527796
-
-[Read on Telegram](https://t.me/livelawindia/107610)
-
----
-### 2026-03-25T11:02:53+00:00
-Statutory Confidentiality Under POSH Act Doesn't Bar Supply Of Documents To Accused Employee Facing Disciplinary Action: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/statutory-confidentiality-posh-act-disciplinary-proceedings-documents-527781
-
-[Read on Telegram](https://t.me/livelawindia/107611)
-
----
-### 2026-03-25T11:12:53+00:00
-'Enforce Strict Age Verification At Entry': Karnataka High Court Directs Bengaluru Pubs, Declines To Quash FIR In Minor's Suicide Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-age-verification-bengaluru-pubs-minor-suicide-case-527807
-
-[Read on Telegram](https://t.me/livelawindia/107612)
-
----
-### 2026-03-25T11:23:13+00:00
-'Frivolous Contempt Plea Against Judicial Officer Is Abuse Of Process': Punjab & Haryana High Court Imposes ₹1 Lakh Costs
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-false-allegations-court-order-against-judicial-officer-527798
-
-[Read on Telegram](https://t.me/livelawindia/107613)
-
----
-### 2026-03-25T11:33:00+00:00
-Karnataka High Court Quashes Pollution Board's Closure Order Against Energy Unit; Says Only Chairman Competent, Not Member Secretary
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-kspcb-m11-energy-unit-527782
-
-[Read on Telegram](https://t.me/livelawindia/107614)
-
----
-### 2026-03-25T11:41:50+00:00
-Unusual Victims' Conduct; No POCSO Presumption At Pre-Charge Stage: Why Allahabad HC Granted Relief To Swami Avimukteshwaranand
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-anticipatory-bail-swami-avimukteshwaranand-pocso-unusual-victim-conduct-527810
-
-[Read on Telegram](https://t.me/livelawindia/107615)
-
----
-### 2026-03-25T11:47:30+00:00
-“Non-Compliance With Mandatory Bank Guarantee Validity Justifies Rejection Of Tender Bid": Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-ruling-compliance-tender-conditions-necessary-disqualification-bank-guarantee-527809
-
-[Read on Telegram](https://t.me/livelawindia/107616)
-
----
-### 2026-03-25T12:22:21+00:00
-Family Court Must Adopt Sensitive Approach In Custody Cases, Prioritize Child's Welfare Above Litigants' Rights: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-sensitive-approach-custody-child-welfare-priority-527822
-
-[Read on Telegram](https://t.me/livelawindia/107617)
-
----
-### 2026-03-25T12:28:01+00:00
-'Right To Fair Trial Violated': Bombay High Court Quashes Death Sentence, Orders Fresh Trial After Accused Was Not Properly Represented
-https://www.livelaw.in/high-court/bombay-high-court/right-to-fair-trial-violated-bombay-high-court-quashes-death-sentence-orders-fresh-trial-after-accused-was-not-properly-represented-527720
-
-[Read on Telegram](https://t.me/livelawindia/107618)
-
----
-### 2026-03-25T12:30:01+00:00
-Discharge From  Air Force  On Grounds Of cumulative Unsuitability; Not A Punishment: Gauhati HC
-https://www.livelaw.in/high-court/gauhati-high-court/discharge-from-air-force-on-grounds-of-cumulative-unsuitability-not-a-punishment-gauhati-hc-527825
-
-[Read on Telegram](https://t.me/livelawindia/107619)
-
----
-### 2026-03-25T12:42:01+00:00
-JGU Ranked #35 Globally In Law In QS World University Rankings By Subject 2026
-https://www.livelaw.in/lawschool/news/jgu-ranked-35-globally-law-qs-world-university-rankings-527826
-
-[Read on Telegram](https://t.me/livelawindia/107620)
-
----
 ### 2026-03-25T12:43:02+00:00
 Karnataka High Court Stays FIR Against DRDO Employees For Allegedly Removing Stray Dogs From Campus
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-drdo-employees-relocating-stray-dogs-527824
@@ -142,5 +51,96 @@ Delhi High Court Upholds Summoning Of Sanctioning Authority Before Charge Stage 
 https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-upholds-summoning-of-sanctioning-authority-before-charge-stage-in-corruption-case-527836
 
 [Read on Telegram](https://t.me/livelawindia/107627)
+
+---
+### 2026-03-25T13:28:15+00:00
+2026 LiveLaw (SC) 293 | NATIONAL HIGHWAYS AUTHORITY OF INDIA Versus TARSEM SINGH AND ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-293-national-highways-authority-of-india-versus-tarsem-singh-and-ors-527840
+
+[Read on Telegram](https://t.me/livelawindia/107628)
+
+---
+### 2026-03-25T13:38:15+00:00
+Mandate On Non-Disclosure Of Rape Victim's Identity Not Being Followed: Supreme Court Directs Strict Compliance In Pending Cases
+https://www.livelaw.in/supreme-court/mandate-on-non-disclosure-of-rape-victims-identity-not-being-followed-supreme-court-directs-strict-compliance-in-pending-cases-527841
+
+[Read on Telegram](https://t.me/livelawindia/107629)
+
+---
+### 2026-03-25T13:39:35+00:00
+2026 LiveLaw (SC) 294 | STATE OF HIMACHAL PRADESH Versus HUKUM CHAND ALIAS MONU
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-294-state-of-himachal-pradesh-versus-hukum-chand-alias-monu-527842
+
+[Read on Telegram](https://t.me/livelawindia/107630)
+
+---
+### 2026-03-25T13:40:55+00:00
+Excise Duty Exemption Notifications Based On “Intended Use” Must Be Liberally Construed In Favour Of Assessee : Supreme Court
+https://www.livelaw.in/supreme-court/excise-duty-exemption-notifications-based-on-intended-use-must-be-liberally-construed-in-favour-of-assessee-supreme-court-527844
+
+[Read on Telegram](https://t.me/livelawindia/107631)
+
+---
+### 2026-03-25T13:41:55+00:00
+2026 LiveLaw (SC) 295 |  M/S. RASHTRIYA CHEMICALS AND FERTILIZERS LIMITED VERSUS COMMISSIONER OF CENTRAL EXCISE AND SERVICE TAX (LTU)
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-295-ms-rashtriya-chemicals-and-fertilizers-limited-versus-commissioner-of-central-excise-and-service-tax-ltu-527845
+
+[Read on Telegram](https://t.me/livelawindia/107632)
+
+---
+### 2026-03-25T14:07:25+00:00
+Magistrate Becomes Functus Officio After Accepting Cancellation Report, Can't Probe Police Lapses: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/magistrate-becomes-functus-officio-after-accepting-cancellation-report-cant-probe-police-lapses-delhi-high-court-527837
+
+[Read on Telegram](https://t.me/livelawindia/107633)
+
+---
+### 2026-03-25T14:42:45+00:00
+Sessions Court Cannot Take Cognisance Of Offences Under Drugs & Cosmetics Act Without Committal By Magistrate: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-sessions-court-cognisance-offences-drugs-cosmetics-act-527849
+
+[Read on Telegram](https://t.me/livelawindia/107634)
+
+---
+### 2026-03-25T15:19:35+00:00
+'How Can One Earning Rs 6 Lakh Annually Be Low Income Group?' Bombay High Court Questions CIDCO, Stays PMAY Flat Allotments
+https://www.livelaw.in/high-court/bombay-high-court/how-can-one-earning-rs-6-lakh-annually-be-low-income-group-bombay-high-court-questions-cidco-stays-pmay-flat-allotments-527859
+
+[Read on Telegram](https://t.me/livelawindia/107635)
+
+---
+### 2026-03-25T15:24:55+00:00
+Karnataka High Court Slams Unlawful Seizure Of Lamborghini, Directs Action Against RTO Officer
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-lamborghini-seizure-mv-inspector-departmental-enquiry-527861
+
+[Read on Telegram](https://t.me/livelawindia/107636)
+
+---
+### 2026-03-25T15:32:53+00:00
+Hostilities At Sea: Violations Of International Naval Warfare Norms
+https://www.livelaw.in/articles/hostilities-sea-violations-international-naval-warfare-norms-527857
+
+[Read on Telegram](https://t.me/livelawindia/107637)
+
+---
+### 2026-03-25T15:38:43+00:00
+'Patriotism Can't Be Compelled': Sanjay Hegde To Supreme Court On Vande Mataram Row; CJI Asks 'Not Even For National Anthem?'
+https://www.livelaw.in/top-stories/supreme-court-vande-mataram-mha-circular-sanjay-hegde-patriotism-cannot-be-compelled-cji-asks-not-even-in-case-of-national-anthem-527862
+
+[Read on Telegram](https://t.me/livelawindia/107638)
+
+---
+### 2026-03-25T16:52:59+00:00
+Supreme Court Daily Round-Up : March 25, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-march-25-2026-527863
+
+[Read on Telegram](https://t.me/livelawindia/107639)
+
+---
+### 2026-03-25T17:22:59+00:00
+Call For Papers: International Conference On Constitutionalism To Transformative Constitutionalism: Rethinking The Constitutions Across Time And World
+https://www.livelaw.in/lawschool/call-for-papers/international-conference-constitutionalism-transformative-constitutionalism-527866
+
+[Read on Telegram](https://t.me/livelawindia/107640)
 
 ---
