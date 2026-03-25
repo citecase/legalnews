@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-24T16:03:17+00:00*
+*Last Updated: 2026-03-25T07:33:03+00:00*
+
+---
+
+### 2026-03-25T07:33:03+00:00
+Supreme Court Refuses To Entertain Plea Seeking CBI Probe In Uttam Nagar Death Case; Asks Victim’s Family to Approach Delhi Police Commissioner First
+https://www.verdictum.in/court-updates/supreme-court/refuses-entertain-plea-seeking-cbi-probe-uttam-nagar-water-balloon-death-case-1610638
+
+[Source Link](https://t.me/verdictumlegalupdates/26129)
+
+---
+
+### 2026-03-25T07:03:02+00:00
+Deaf & Mute Victim’s Testimony Intelligible; Plastic Doll Demonstration Ensured Clarity: Chhattisgarh High Court Upholds Rape Conviction
+https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/neelam-kumar-deshmukh-state-of-chhattisgarh-2026cghc12396-db-deaf-mute-victims-testimony-intelligible-plastic-doll-1610635
+
+[Source Link](https://t.me/verdictumlegalupdates/26128)
+
+---
+
+### 2026-03-25T06:32:21+00:00
+Minority Schools Cannot Delegate Manager’s Power to Dismiss: Gujarat High Court Orders Fresh Show-Cause While Upholding Inquiry Against Teacher
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/the-trustee-ahmedabad-jesuits-schools-society-v-biju-jose-vadaken-2026gujhc20933-minority-schools-managers-power-1610631
+
+[Source Link](https://t.me/verdictumlegalupdates/26127)
+
+---
+
+### 2026-03-25T05:36:40+00:00
+Breaking: Mere Escalation In Projected Liability Not Valid Ground For Review: Supreme Court Dismisses NHAI Review Petition In Tarsem Singh Case
+https://www.verdictum.in/court-updates/supreme-court/dismisses-nhai-review-petition-in-tarsem-singh-case-1610624
+
+[Source Link](https://t.me/verdictumlegalupdates/26126)
+
+---
+
+### 2026-03-25T05:32:38+00:00
+Bombay High Court Upholds Railways Shoe Shine Policy For Passenger Services; No Monopoly In Contracts & Minimum Wages Must Be Ensured
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/bombay-shoe-shine-workers-co-op-society-ltd-v-the-general-manager-2026bhc-os6893-db-monopoly-in-contracts-minimum-wages-1610623
+
+[Source Link](https://t.me/verdictumlegalupdates/26125)
+
+---
+
+### 2026-03-25T05:02:37+00:00
+“Classic Case Of Legal Mala Fide & Colourable Exercise Of Power”: Allahabad High Court Quashes PWD Debarment Of Whistleblower Contractor
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/ms-satish-chandra-dixit-v-state-of-up-2026ahc59781-db-pwd-debarment-of-whistleblower-contractor-1610583
+
+[Source Link](https://t.me/verdictumlegalupdates/26124)
+
+---
+
+### 2026-03-25T04:32:26+00:00
+NGT Cannot Abdicate Adjudicatory Function To Expert Committees; Final Decision Must Be Of Tribunal: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/indian-oil-corporation-ltd-v-deepak-sharma-ors-2026-insc-278-ngt-1610597
+
+[Source Link](https://t.me/verdictumlegalupdates/26123)
 
 ---
 
@@ -105,62 +161,6 @@ Calculated And Deep-Rooted Move To Divide Society, Not Coming From India: Suprem
 https://www.verdictum.in/court-updates/supreme-court/supreme-court-refuses-to-entertain-pil-seeking-inclusion-of-denotified-tribes-in-census-1610577
 
 [Source Link](https://t.me/verdictumlegalupdates/26110)
-
----
-
-### 2026-03-24T09:13:18+00:00
-TAIT Merit Governs Final Selection; TET Relaxation Doesn’t Bar Migration To Open Category: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/chaya-v-the-state-of-maharashtra-2026-insc-277-tait-tet-migration-open-category-1610568
-
-[Source Link](https://t.me/verdictumlegalupdates/26109)
-
----
-
-### 2026-03-24T08:32:57+00:00
-Supreme Court Issues Notice In Pleas Seeking Cancellation Of Bail Granted To Accused Persons In Manipur Ethnic Violence And Gang Rape Case
-https://www.verdictum.in/court-updates/supreme-court/issues-notice-pleas-seeking-cancellation-bail-granted-accused-manipur-ethnic-violence-and-gang-rape-case-1610567
-
-[Source Link](https://t.me/verdictumlegalupdates/26108)
-
----
-
-### 2026-03-24T07:42:16+00:00
-One Party Cannot Decide Breach When Liability Is Disputed; Contract Clauses Cannot Create Vacuum In Legal Remedies: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/ms-abs-marine-services-v-the-andaman-and-nicobar-administration-2026-insc-274-contract-clauses-vacuum-in-legal-remedies-1610557
-
-[Source Link](https://t.me/verdictumlegalupdates/26107)
-
----
-
-### 2026-03-24T06:52:34+00:00
-Specific Averments Linking Directors To Day-To-Day Management A Jurisdictional Prerequisite For Proceedings U/S 141 NI Act: Calcutta High Court
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/masud-tarif-v-state-of-west-bengal-anr-section-141-negotiable-instruments-1610550
-
-[Source Link](https://t.me/verdictumlegalupdates/26106)
-
----
-
-### 2026-03-24T06:03:33+00:00
-Breaking: Supreme Court Strikes Down Systemic Denial Of Permanent Commission In Armed Forces; Grants Pensionary Relief To Women Officials
-https://www.verdictum.in/court-updates/supreme-court/strikes-down-systemic-discrimination-in-armed-forces-grants-pensionary-relief-to-women-officers-across-army-navy-and-air-force-1610554
-
-[Source Link](https://t.me/verdictumlegalupdates/26105)
-
----
-
-### 2026-03-24T05:52:52+00:00
-Presence & Testimony Of Chance Witness Requires Careful Scrutiny: Himachal Pradesh High Court Upholds Acquittal In Assault Case
-https://www.verdictum.in/court-updates/high-courts/himachal-high-court/state-of-himachal-pradesh-v-rakesh-kumar-ors-2026hhc7980-chance-witness-1610549
-
-[Source Link](https://t.me/verdictumlegalupdates/26104)
-
----
-
-### 2026-03-24T05:12:10+00:00
-Vaishno Devi Adhoc Pujari’s Termination Dispute Not Amenable To Writ Jurisdiction; Lacks Public Law Element: Jammu & Kashmir High Court
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/subash-raina-v-state-of-jk-2026jklhc-jmu797-adhoc-pujaris-termination-dispute-writ-1610548
-
-[Source Link](https://t.me/verdictumlegalupdates/26103)
 
 ---
 
