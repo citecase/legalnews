@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-25T13:32:48+00:00*
+*Last Updated: 2026-03-25T16:02:44+00:00*
+
+---
+
+### 2026-03-25T16:02:44+00:00
+Law Officer Vacancy At V.O. Chidambaranar Port Authority (VOCPA)
+https://www.verdictum.in/job-updates/vo-chidambaranar-port-authority-1610667
+
+[Source Link](https://t.me/verdictumlegalupdates/26146)
+
+---
+
+### 2026-03-25T15:32:22+00:00
+Deliberately Breached Conditions: Allahabad High Court Cancels Bail Of POCSO Accused Booked For Harassing Victim Who Committed Suicide
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/veer-pal-singh-v-state-of-up-2026ahc57652-deliberately-breached-conditions-bail-pocso-accused-harassing-girl-suicide-1610674
+
+[Source Link](https://t.me/verdictumlegalupdates/26145)
+
+---
+
+### 2026-03-25T15:02:31+00:00
+Quantification Of Loss Can’t Override Requirement Of Genuine Claim; Insurance Contract Not Instrument Of Unjust Enrichment: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/united-india-insurance-co-ltd-v-sayona-colors-pvt-ltd-2026-insc-287-quantification-loss-genuine-claim-unjust-enrichment-1610675
+
+[Source Link](https://t.me/verdictumlegalupdates/26144)
+
+---
+
+### 2026-03-25T14:37:10+00:00
+25 Former Judges Including Retired Supreme Court Judges Issue Statement Slamming USCIRF Report Seeking Ban On RSS
+https://www.verdictum.in/news/retired-judges-statement-uscirf-report-recommending-ban-rss-1610673
+
+[Source Link](https://t.me/verdictumlegalupdates/26143)
+
+---
+
+### 2026-03-25T14:02:29+00:00
+"Intended Use" May Govern Procurement, But "Actual Use" Determines Naphtha Excise Exemption: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/ms-rashtriya-chemicals-and-fertilizers-limited-v-commissioner-of-central-excise-and-service-tax-2026-insc-285-naphtha-excise-exemption-1610664
+
+[Source Link](https://t.me/verdictumlegalupdates/26142)
 
 ---
 
@@ -121,46 +161,6 @@ Minority Schools Cannot Delegate Manager’s Power to Dismiss: Gujarat High Cour
 https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/the-trustee-ahmedabad-jesuits-schools-society-v-biju-jose-vadaken-2026gujhc20933-minority-schools-managers-power-1610631
 
 [Source Link](https://t.me/verdictumlegalupdates/26127)
-
----
-
-### 2026-03-25T05:36:40+00:00
-Breaking: Mere Escalation In Projected Liability Not Valid Ground For Review: Supreme Court Dismisses NHAI Review Petition In Tarsem Singh Case
-https://www.verdictum.in/court-updates/supreme-court/dismisses-nhai-review-petition-in-tarsem-singh-case-1610624
-
-[Source Link](https://t.me/verdictumlegalupdates/26126)
-
----
-
-### 2026-03-25T05:32:38+00:00
-Bombay High Court Upholds Railways Shoe Shine Policy For Passenger Services; No Monopoly In Contracts & Minimum Wages Must Be Ensured
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/bombay-shoe-shine-workers-co-op-society-ltd-v-the-general-manager-2026bhc-os6893-db-monopoly-in-contracts-minimum-wages-1610623
-
-[Source Link](https://t.me/verdictumlegalupdates/26125)
-
----
-
-### 2026-03-25T05:02:37+00:00
-“Classic Case Of Legal Mala Fide & Colourable Exercise Of Power”: Allahabad High Court Quashes PWD Debarment Of Whistleblower Contractor
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/ms-satish-chandra-dixit-v-state-of-up-2026ahc59781-db-pwd-debarment-of-whistleblower-contractor-1610583
-
-[Source Link](https://t.me/verdictumlegalupdates/26124)
-
----
-
-### 2026-03-25T04:32:26+00:00
-NGT Cannot Abdicate Adjudicatory Function To Expert Committees; Final Decision Must Be Of Tribunal: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/indian-oil-corporation-ltd-v-deepak-sharma-ors-2026-insc-278-ngt-1610597
-
-[Source Link](https://t.me/verdictumlegalupdates/26123)
-
----
-
-### 2026-03-24T16:03:17+00:00
-Commercial Courts Act| Delay In Written Statement Filed Within 120 Days Can Be Explained Beyond That Period: Andhra Pradesh High Court
-https://www.verdictum.in/court-updates/high-courts/andhra-pradesh-high-court/bunge-india-private-limited-v-ms-sree-mahalakshmi-oil-mills-commercial-courts-1610596
-
-[Source Link](https://t.me/verdictumlegalupdates/26122)
 
 ---
 
