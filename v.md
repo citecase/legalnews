@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-25T07:33:03+00:00*
+*Last Updated: 2026-03-25T13:32:48+00:00*
+
+---
+
+### 2026-03-25T13:32:48+00:00
+Poll Prospects No Ground To Stay Conviction Of MPs/MLAs: Kerala High Court Refuses To Stay Ex-MLA Antony Raju's Conviction In NDPS Underwear Tampering Case
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/antony-raju-v-state-of-kerala-2026ker22892-ndps-underwear-tampering-case-mla-1610665
+
+[Source Link](https://t.me/verdictumlegalupdates/26141)
+
+---
+
+### 2026-03-25T13:02:46+00:00
+DSC Personnel Are Armed Forces Personnel; Entitled To Condonation Of Shortfall In Qualifying Service For Pension: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/cause-title-union-of-india-ors-v-balakrishnan-mullikote-ors-2026-insc-286-1610663
+
+[Source Link](https://t.me/verdictumlegalupdates/26140)
+
+---
+
+### 2026-03-25T12:32:25+00:00
+Writ Jurisdiction Not Meant For Vindicating Eccentric Insistences: Madras High Court Rejects Request For Indefinite Daily Protest Until End Of ‘World War’
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/sprabhu-v-the-district-collector-2026mhc1172-article-226-eccentric-insistencesindefinite-daily-protest-world-war-1610662
+
+[Source Link](https://t.me/verdictumlegalupdates/26139)
+
+---
+
+### 2026-03-25T12:02:44+00:00
+Himachal Pradesh High Court Flags Last Minute Panchayat Reorganisation; Quashes Inclusion Of Village In Different Gram Panchayat
+https://www.verdictum.in/court-updates/high-courts/himachal-high-court/nehru-yuva-club-of-village-manlog-badog-anr-v-state-of-himachal-pradesh-ors-2026hhc6374-1610660
+
+[Source Link](https://t.me/verdictumlegalupdates/26138)
+
+---
+
+### 2026-03-25T11:32:23+00:00
+State Govt. Has No Authority U/S.143-A(3) Maharashtra Municipal Councils Act To Appoint Arbitrator In Absence Of Arbitration Agreement: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/ms-bharat-udyog-ltd-v-ambernath-municipal-council-through-commissioner-2026-insc-288-state-govt-maharashtra-municipal-councils-arbitration-1610653
+
+[Source Link](https://t.me/verdictumlegalupdates/26137)
+
+---
+
+### 2026-03-25T11:03:02+00:00
+"He Dares To Call My Brother; He Will Dictate Me?": CJI Warns Of Criminal Contempt In Medical Admission Case
+https://www.verdictum.in/court-updates/supreme-court/chief-justice-surya-kant-warns-contempt-against-father-called-brother-medical-admission-case-1610655
+
+[Source Link](https://t.me/verdictumlegalupdates/26136)
+
+---
+
+### 2026-03-25T10:32:41+00:00
+Supreme Court Issues Notice On Plea For Dedicated Welfare Fund And Lawyers Welfare Stamp For SCBA Members
+https://www.verdictum.in/court-updates/supreme-court/issues-notice-plea-dedicated-welfare-fund-and-lawyers-welfare-stamp-for-scba-members-1610654
+
+[Source Link](https://t.me/verdictumlegalupdates/26135)
+
+---
+
+### 2026-03-25T10:02:39+00:00
+“Vague Apprehension Of Discrimination”: Apex Court Dismisses Plea Against Union’s Circular On Singing National Song Vande Mataram At Official Events
+https://www.verdictum.in/court-updates/supreme-court/vague-apprehension-of-discrimination-apex-court-dismisses-plea-against-unions-circular-on-singing-national-song-vande-mataram-at-official-events-1610652
+
+[Source Link](https://t.me/verdictumlegalupdates/26134)
+
+---
+
+### 2026-03-25T09:32:28+00:00
+Section 228A IPC Mandate On Non-Disclosure Of Victim’s Identity Must Be Strictly Followed In All Pending Matters: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/state-of-himachal-pradesh-v-hukum-chand-monu-2026-insc-290-rape-conviction-1610651
+
+[Source Link](https://t.me/verdictumlegalupdates/26133)
+
+---
+
+### 2026-03-25T09:03:07+00:00
+Security Deposit Cannot Be Adjusted Towards Pre-CIRP Dues After Moratorium Under IBC: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/central-transmission-utility-of-india-limited-v-sumit-binani-2026-insc-284-pre-cirp-dues-moratorium-ibc-1610643
+
+[Source Link](https://t.me/verdictumlegalupdates/26132)
+
+---
+
+### 2026-03-25T08:33:06+00:00
+Supreme Court upholds anticipatory bail Congress MLA Rahul Mamkootathil in sexual assault case, Expunges Observations Made Against Victim
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-upholds-anticipatory-bail-congress-mla-rahul-mamkootathil-in-sexual-assault-case-expunges-observations-made-against-victim-1610646
+
+[Source Link](https://t.me/verdictumlegalupdates/26131)
+
+---
+
+### 2026-03-25T07:56:25+00:00
+"Secondary Victimization Of Child": Apex Court Criticises Police For Downgrading Of POCSO Charges In Gurugram 4-Year-Old Sexual Assault Case
+https://www.verdictum.in/court-updates/supreme-court/criticises-police-for-downgrading-of-pocso-charges-constitutes-sit-in-gurugram-sexual-assault-case-of-4-year-old-1610644
+
+[Source Link](https://t.me/verdictumlegalupdates/26130)
 
 ---
 
@@ -65,102 +161,6 @@ Commercial Courts Act| Delay In Written Statement Filed Within 120 Days Can Be E
 https://www.verdictum.in/court-updates/high-courts/andhra-pradesh-high-court/bunge-india-private-limited-v-ms-sree-mahalakshmi-oil-mills-commercial-courts-1610596
 
 [Source Link](https://t.me/verdictumlegalupdates/26122)
-
----
-
-### 2026-03-24T15:33:05+00:00
-Tax Authorities Acting On Tax Evasion Petition Cannot Be Accused Of Malice When Due Procedure Is Followed: Andhra Pradesh High Court
-https://www.verdictum.in/court-updates/high-courts/andhra-pradesh-high-court/koduru-picheswara-rao-v-union-of-india-ors-income-tax-evasion-petition-1610594
-
-[Source Link](https://t.me/verdictumlegalupdates/26121)
-
----
-
-### 2026-03-24T15:02:44+00:00
-Bombay High Court Expresses Concern On Misuse Of IBC To Stall SARFAESI Proceedings; Quashes DRT Order Halting Possession Of Secured Asset
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/rozina-firoz-hajiani-ors-v-union-of-india-ors-2026bhc-os6969-db-1610595
-
-[Source Link](https://t.me/verdictumlegalupdates/26120)
-
----
-
-### 2026-03-24T14:32:42+00:00
-Liability To Be Borne By State & Not Private Insurer In Case Of Accident When Vehicle Was Requisitioned For Public Functions: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/district-magistrate-and-district-election-officer-and-collector-v-national-insurance-company-limited-2026-insc-279-liability-state-private-insurer-1610593
-
-[Source Link](https://t.me/verdictumlegalupdates/26119)
-
----
-
-### 2026-03-24T14:02:41+00:00
-Vacancy Caused By Non-Joining Of Selected Candidate Does Not Automatically Travel Down Merit List In Absence Of Statutory Provision: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/state-of-karnataka-ors-v-santhosh-kumar-c-2026-insc-276-karnataka-psc-1610582
-
-[Source Link](https://t.me/verdictumlegalupdates/26118)
-
----
-
-### 2026-03-24T13:33:00+00:00
-Court Bound To Accept Religious Belief Of Community, Not To Sit In Judgment On It: Travancore Devaswom Board Tells Supreme Court In Sabarimala Case
-https://www.verdictum.in/court-updates/supreme-court/travancore-devaswom-board-sabarimala-case-lord-ayappa-court-is-bound-to-accept-1610598
-
-[Source Link](https://t.me/verdictumlegalupdates/26117)
-
----
-
-### 2026-03-24T12:52:38+00:00
-Conversion To Christianity Extinguishes Scheduled Caste Status & SC-ST Act Protection: Supreme Court Dismisses Pastor's Appeal
-https://www.verdictum.in/court-updates/supreme-court/chinthada-anand-v-state-of-andhra-pradesh-026-insc-283-conversion-to-christianity-sc-status-1610592
-
-[Source Link](https://t.me/verdictumlegalupdates/26116)
-
----
-
-### 2026-03-24T12:31:37+00:00
-Person Not Belonging To Religion Cannot Normally Question Practice Of That Religion By Filing PIL: Kerala Submits In Sabarimala Case
-https://www.verdictum.in/court-updates/supreme-court/person-belonging-religion-question-practice-pil-kerala-sabarimala-case-1610589
-
-[Source Link](https://t.me/verdictumlegalupdates/26115)
-
----
-
-### 2026-03-24T12:02:16+00:00
-Consultation With Religious Scholars Must Precede Judicial Review Of Religious Practices: Kerala Tells Supreme Court In Sabarimala Case
-https://www.verdictum.in/court-updates/supreme-court/kerala-state-sabarimala-lord-ayappa-temple-women-entry-written-submissions-1610585
-
-[Source Link](https://t.me/verdictumlegalupdates/26114)
-
----
-
-### 2026-03-24T11:32:14+00:00
-Comparative Merits Of Rival Offers Or CoC’s Commercial Decision Cannot Be Reassessed In MA Arising From Disposed SLP: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/ms-lamba-exports-pvt-ltd-v-ms-dhir-global-industries-pvt-ltd-ors-2026-insc-275-1610571
-
-[Source Link](https://t.me/verdictumlegalupdates/26113)
-
----
-
-### 2026-03-24T10:50:33+00:00
-Delhi High Court Junks Lalu Yadav's Plea To Quash CBI FIR In Land-For-Jobs Case
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/delhi-high-court-junks-lalu-yadavs-plea-to-quash-cbi-fir-in-land-for-jobs-case-1610580
-
-[Source Link](https://t.me/verdictumlegalupdates/26112)
-
----
-
-### 2026-03-24T10:32:22+00:00
-Delhi High Court Restrains Use Of Sonakshi Sinha’s Persona Via AI, Deepfakes, Chatbots; Bars Obscene Content & Unauthorised Commercial Use
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/sonakshi-sinha-v-character-technologies-inc-cscomm-2752026-sonakshi-sinha-personality-rights-1610572
-
-[Source Link](https://t.me/verdictumlegalupdates/26111)
-
----
-
-### 2026-03-24T09:52:40+00:00
-Calculated And Deep-Rooted Move To Divide Society, Not Coming From India: Supreme Court Refuses To Entertain PIL Seeking Inclusion Of Denotified Tribes In Census
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-refuses-to-entertain-pil-seeking-inclusion-of-denotified-tribes-in-census-1610577
-
-[Source Link](https://t.me/verdictumlegalupdates/26110)
 
 ---
 
