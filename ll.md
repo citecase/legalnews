@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-26T08:37:59+00:00*
+*Last Updated: 2026-03-26T11:33:00+00:00*
 
 ---
 
-### 2026-03-26T08:37:59+00:00
-Merit Must Prevail For Department Allocation In Combined Recruitment: Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-directs-chief-secretaries-rational-criterion-department-allocation-527907
-
-[Read on Telegram](https://t.me/livelawindia/107675)
-
----
-### 2026-03-26T08:47:59+00:00
-Non-Disclosure Of Complaints Vitiates Enquiry: Gauhati High Court Sets Aside Action Against Gram Pradhan
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-non-disclosure-of-foundational-material-vitiates-enquiry-causing-civil-consequences-527876
-
-[Read on Telegram](https://t.me/livelawindia/107676)
-
----
-### 2026-03-26T09:19:39+00:00
-Father & Daughter Have 'Right To Know' Or It Will 'Trouble' Lives: Allahabad High Court Orders DNA Test In Maintenance Dispute
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-father-daughter-right-know-trouble-lives-orders-dna-test-maintenance-527926
-
-[Read on Telegram](https://t.me/livelawindia/107677)
-
----
-### 2026-03-26T09:32:39+00:00
-No Mandatory Civil Adjudication Without Bona Fide Title Claim: Gauhati High Court Upholds Criminal Proceedings In Land Grabbing Case
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-s102-assam-land-grabbing-act-not-attracted-no-bona-fide-plea-ownership-possession-raised-527877
-
-[Read on Telegram](https://t.me/livelawindia/107678)
-
----
-### 2026-03-26T10:02:59+00:00
-Suspecting Wife's Character Without Instigation Does Not Constitute Abetment To Suicide: Uttarakhand High Court Acquits Husband
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-acquits-husband-abetment-of-suicide-527924
-
-[Read on Telegram](https://t.me/livelawindia/107679)
-
----
-### 2026-03-26T10:32:09+00:00
-MP High Court Sets Aside Rejection Of SSC Candidate Over Domicile Mismatch, Says Technical Error Can't Be Treated As Suppression
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-distinguishes-technical-errors-from-suppression-of-material-facts-grants-relief-to-ssc-aspirant-527897
-
-[Read on Telegram](https://t.me/livelawindia/107680)
-
----
-### 2026-03-26T11:01:30+00:00
-Bombay High Court Asks Maharashtra Govt If Bhima Koregaon Accused Surendra Gadling Can Use Jail Computer To Review Evidence
-https://www.livelaw.in/high-court/bombay-high-court/bhima-koregaon-surendra-gadling-jail-computer-nia-evidence-527939
-
-[Read on Telegram](https://t.me/livelawindia/107681)
-
----
-### 2026-03-26T11:17:40+00:00
-Husband Finding Wife Being Intimate With Paramour Is Grave, Sudden Provocation: Gujarat High Court Upholds 2001 Culpable Homicide Conviction
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-husband-culpable-homicide-conviction-wife-intimate-act-527921
-
-[Read on Telegram](https://t.me/livelawindia/107682)
-
----
 ### 2026-03-26T11:33:00+00:00
 Patna High Court Sets Aside Direction To Appoint Waitlisted Candidate In Civil Court Recruitment, Says 'Fence-Sitters' Cannot Claim Parity
 https://www.livelaw.in/high-court/patna-high-court/patna-high-court-direction-appoint-waitlisted-candidate-civil-court-recruitment-527880
@@ -142,5 +86,61 @@ Madras High Court Stays Trial Against Ex-Minister K Ponmudi In Hate Speech Case,
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-former-minister-ponmudi-hate-speech-trial-stayed-527964
 
 [Read on Telegram](https://t.me/livelawindia/107694)
+
+---
+### 2026-03-26T14:13:03+00:00
+Wrong To Claim One Religion As 'Only True Religion' As It Disparages Other Faiths: Allahabad HC Refuses To Quash 295A IPC Case
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-wrong-claim-true-religion-disparages-faiths-refuses-quash-295a-ipc-527969
+
+[Read on Telegram](https://t.me/livelawindia/107695)
+
+---
+### 2026-03-26T14:22:33+00:00
+NDPS Act | Exact Quantity Of Seized Contraband Need Not Be Stated In Grounds Of Arrest Notice If Nature Is Mentioned: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ndps-contraband-seized-quantity-nature-arrest-grounds-527965
+
+[Read on Telegram](https://t.me/livelawindia/107696)
+
+---
+### 2026-03-26T14:36:13+00:00
+CCPA Issues Advisory Against 'LPG/Gas Charges' In Hotel Bills; Says Such Levies May Amount To Unfair Trade Practice
+https://www.livelaw.in/consumer-cases/ccpa-issues-advisory-against-lpggas-charges-in-hotel-bills-says-such-levies-may-amount-to-unfair-trade-practice-527973
+
+[Read on Telegram](https://t.me/livelawindia/107697)
+
+---
+### 2026-03-26T15:19:43+00:00
+Sabarimala Gold Theft: Kerala High Court Extends Deadline For SIT Probe; Clears 2017 Flag Mast Allegations
+https://www.livelaw.in/high-court/kerala-high-court/sabarimala-gold-theft-extends-deadline-for-sit-prob-flag-mast-allegations-527980
+
+[Read on Telegram](https://t.me/livelawindia/107698)
+
+---
+### 2026-03-26T15:32:53+00:00
+When Biography Ends But Biology Remains: Constitutional Right To Let Go
+https://www.livelaw.in/articles/biography-ends-biology-remains-constitutional-right-let-go-527946
+
+[Read on Telegram](https://t.me/livelawindia/107699)
+
+---
+### 2026-03-26T15:33:03+00:00
+'No Baby Should Die': Bombay High Court Slams Maharashtra Govt Over Continued Malnutrition Deaths In Tribal Areas
+https://www.livelaw.in/high-court/bombay-high-court/maharashtra-govt-continued-malnutrition-deaths-in-tribal-areas-527981
+
+[Read on Telegram](https://t.me/livelawindia/107700)
+
+---
+### 2026-03-26T16:17:34+00:00
+'Consent Immaterial In Legal Marriage': MP High Court Quashes S.377 IPC Charge Against Husband
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/husband-wife-377-ipc-inapplicable-consent-immaterial-in-legal-marriage-527984
+
+[Read on Telegram](https://t.me/livelawindia/107701)
+
+---
+### 2026-03-26T16:59:34+00:00
+NCLT Approval To Settlement Scheme Does Not Dilute Criminal Charges: Bombay High Court Clarifies In NSEL Scam
+https://www.livelaw.in/high-court/bombay-high-court/nclts-approval-to-one-time-settlement-does-not-dilute-criminal-offences-bombay-high-court-clarifies-in-nsel-scam-527986
+
+[Read on Telegram](https://t.me/livelawindia/107702)
 
 ---
