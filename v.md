@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-25T16:02:44+00:00*
+*Last Updated: 2026-03-26T07:33:06+00:00*
+
+---
+
+### 2026-03-26T07:33:06+00:00
+State Can Withdraw Tax Exemptions In Public Interest But Must Give Reasonable Notice To Beneficiaries: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/state-of-maharashtra-v-reliance-industries-ltd-2026-insc-296-tax-exemptions-reasonable-notice-to-beneficiaries-1610713
+
+[Source Link](https://t.me/verdictumlegalupdates/26153)
+
+---
+
+### 2026-03-26T07:02:44+00:00
+Supreme Court: Generation-Based Incentives Must Be Paid To Wind Power Producers Over And Above Fixed Tariffs
+https://www.verdictum.in/court-updates/supreme-court/2026-insc-294-southern-power-distribution-company-of-andhra-pradesh-limited-v-green-infra-wind-solutions-limited-1610705
+
+[Source Link](https://t.me/verdictumlegalupdates/26152)
+
+---
+
+### 2026-03-26T06:32:43+00:00
+Person In Contact With Investigating Agency Can’t Be Absconding: Delhi High Court Quashes Proclaimed Offender Order Against Australian National
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/manish-popli-v-central-bureau-of-investigation-ors-2026dhc2499-dhc-1610700
+
+[Source Link](https://t.me/verdictumlegalupdates/26151)
+
+---
+
+### 2026-03-26T06:02:42+00:00
+Prosecutrix Testimony Not Of Sterling Quality: Delhi High Court Acquits Sonu Punjaban In Trafficking Case
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/sandeep-bedwal-v-the-state-2026dhc2435-sonu-punjaban-trafficking-case-1610699
+
+[Source Link](https://t.me/verdictumlegalupdates/26150)
+
+---
+
+### 2026-03-26T05:32:50+00:00
+Suit Dismissed For Default Not A “Decision On Merits” To Trigger Res Judicata U/S 11 CPC: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/sharada-sanghi-ors-v-asha-agarwal-ors-2026-insc-292-res-judicata-1610697
+
+[Source Link](https://t.me/verdictumlegalupdates/26149)
+
+---
+
+### 2026-03-26T05:02:59+00:00
+Quashing Of Subsequent FIR Doesn’t Extinguish Existence Of PMLA Offence When Earlier FIR Subsists: Madhya Pradesh High Court
+https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/ms-jayshri-gaytri-food-products-pvt-ltd-v-directorate-of-enforcement-2026mphc-jbp23463-quashing-subsequent-fir-pmla-1610695
+
+[Source Link](https://t.me/verdictumlegalupdates/26148)
+
+---
+
+### 2026-03-26T04:32:47+00:00
+Decree For Execution Of Sale Deed Doesn’t Become Inexcutable Due To Absence Of Express Order Extending Time For Depositing Balance Sale Consideration:  Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/puthuparambil-raju-v-kachirayil-joseph-2026ker24284-decree-sale-deed-inexcutable-time-for-deposit-balance-sale-1610666
+
+[Source Link](https://t.me/verdictumlegalupdates/26147)
 
 ---
 
@@ -105,62 +161,6 @@ https://www.verdictum.in/court-updates/supreme-court/issues-notice-plea-dedicate
 https://www.verdictum.in/court-updates/supreme-court/vague-apprehension-of-discrimination-apex-court-dismisses-plea-against-unions-circular-on-singing-national-song-vande-mataram-at-official-events-1610652
 
 [Source Link](https://t.me/verdictumlegalupdates/26134)
-
----
-
-### 2026-03-25T09:32:28+00:00
-Section 228A IPC Mandate On Non-Disclosure Of Victim’s Identity Must Be Strictly Followed In All Pending Matters: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/state-of-himachal-pradesh-v-hukum-chand-monu-2026-insc-290-rape-conviction-1610651
-
-[Source Link](https://t.me/verdictumlegalupdates/26133)
-
----
-
-### 2026-03-25T09:03:07+00:00
-Security Deposit Cannot Be Adjusted Towards Pre-CIRP Dues After Moratorium Under IBC: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/central-transmission-utility-of-india-limited-v-sumit-binani-2026-insc-284-pre-cirp-dues-moratorium-ibc-1610643
-
-[Source Link](https://t.me/verdictumlegalupdates/26132)
-
----
-
-### 2026-03-25T08:33:06+00:00
-Supreme Court upholds anticipatory bail Congress MLA Rahul Mamkootathil in sexual assault case, Expunges Observations Made Against Victim
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-upholds-anticipatory-bail-congress-mla-rahul-mamkootathil-in-sexual-assault-case-expunges-observations-made-against-victim-1610646
-
-[Source Link](https://t.me/verdictumlegalupdates/26131)
-
----
-
-### 2026-03-25T07:56:25+00:00
-"Secondary Victimization Of Child": Apex Court Criticises Police For Downgrading Of POCSO Charges In Gurugram 4-Year-Old Sexual Assault Case
-https://www.verdictum.in/court-updates/supreme-court/criticises-police-for-downgrading-of-pocso-charges-constitutes-sit-in-gurugram-sexual-assault-case-of-4-year-old-1610644
-
-[Source Link](https://t.me/verdictumlegalupdates/26130)
-
----
-
-### 2026-03-25T07:33:03+00:00
-Supreme Court Refuses To Entertain Plea Seeking CBI Probe In Uttam Nagar Death Case; Asks Victim’s Family to Approach Delhi Police Commissioner First
-https://www.verdictum.in/court-updates/supreme-court/refuses-entertain-plea-seeking-cbi-probe-uttam-nagar-water-balloon-death-case-1610638
-
-[Source Link](https://t.me/verdictumlegalupdates/26129)
-
----
-
-### 2026-03-25T07:03:02+00:00
-Deaf & Mute Victim’s Testimony Intelligible; Plastic Doll Demonstration Ensured Clarity: Chhattisgarh High Court Upholds Rape Conviction
-https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/neelam-kumar-deshmukh-state-of-chhattisgarh-2026cghc12396-db-deaf-mute-victims-testimony-intelligible-plastic-doll-1610635
-
-[Source Link](https://t.me/verdictumlegalupdates/26128)
-
----
-
-### 2026-03-25T06:32:21+00:00
-Minority Schools Cannot Delegate Manager’s Power to Dismiss: Gujarat High Court Orders Fresh Show-Cause While Upholding Inquiry Against Teacher
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/the-trustee-ahmedabad-jesuits-schools-society-v-biju-jose-vadaken-2026gujhc20933-minority-schools-managers-power-1610631
-
-[Source Link](https://t.me/verdictumlegalupdates/26127)
 
 ---
 
