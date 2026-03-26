@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-26T07:33:06+00:00*
+*Last Updated: 2026-03-26T14:02:50+00:00*
+
+---
+
+### 2026-03-26T14:02:50+00:00
+ADM Acting As Rent Authority Cannot Set Aside Findings Based On Its Own Report; Exercise Of Such Dual Role Impermissible: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/rajesh-goyal-v-ms-laxmi-constructions-ors-2026-insc-299-dual-role-1610748
+
+[Source Link](https://t.me/verdictumlegalupdates/26164)
+
+---
+
+### 2026-03-26T13:32:28+00:00
+Jharkhand High Court Orders To Withhold Salary Of District Transport Officer If Retirement Benefits Of Clerk Are Not Released
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/sant-lal-singh-v-the-state-of-jharkhand-withhold-salary-of-district-transport-officer-non-compliance-1610751
+
+[Source Link](https://t.me/verdictumlegalupdates/26163)
+
+---
+
+### 2026-03-26T13:03:07+00:00
+Sexual Acts Committed By Husband & Wife Within Marital Relationship Doesn't Attract Offence U/S.377 IPC: Madhya Pradesh High Court
+https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/a-v-the-state-of-madhya-pradesh-2026mphc-gwl9922-sexual-acts-husband-wife-marital-relationship-section-377-ipc-1610746
+
+[Source Link](https://t.me/verdictumlegalupdates/26162)
+
+---
+
+### 2026-03-26T12:32:26+00:00
+Land Reserved For Public Purpose Land In Approved Layout Vests With Local Authority; Conversion To Residential Plots Impermissible: Madras High Court
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/vyasodaa-v-the-commissioner-2026mhc1189-public-purpose-land-layout-local-authority-residential-plots-1610740
+
+[Source Link](https://t.me/verdictumlegalupdates/26161)
+
+---
+
+### 2026-03-26T11:52:45+00:00
+Constitutional Courts Cannot Pre-Empt Executive Decisions In Tender Matters Through Ex-Ante Judicial Review: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/ms-steag-energy-services-india-pvt-ltd-v-gspc-pipavav-power-company-ltd-ors-2026-insc-295-1610735
+
+[Source Link](https://t.me/verdictumlegalupdates/26160)
+
+---
+
+### 2026-03-26T11:02:24+00:00
+No Appeal Lies Against Order On Transfer Application; Only Civil Revision Petition U/S.115 Of CPC Is Maintainable: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/ekta-kukreja-v-ms-srinivasa-trust-appeal-order-transfer-application-civil-revision-petition-sec-115-cpc-1610731
+
+[Source Link](https://t.me/verdictumlegalupdates/26159)
+
+---
+
+### 2026-03-26T10:13:02+00:00
+Section 29 POCSO Presumption Not Applicable At Stage Of Pre-Arrest Bail: Allahabad High Court Grants Anticipatory Bail To Swami Avimukteshwaranand
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/swami-avimukteshwaranand-saraswati-jagatguru-shankaracharya-jyotishpeethadheeshwar-and-another-v-state-of-up-and-5-others-2026ahc61379-1610730
+
+[Source Link](https://t.me/verdictumlegalupdates/26158)
+
+---
+
+### 2026-03-26T09:33:01+00:00
+Protection Of Youth Is A Moral Imperative: Karnataka High Court Mandates Strict Age Verification At Bar & Breweries Following Minor's Death
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/v-chitti-babu-v-state-of-karnataka-writ-petition-no-8163-of-2026-1610727
+
+[Source Link](https://t.me/verdictumlegalupdates/26157)
+
+---
+
+### 2026-03-26T09:02:20+00:00
+Technical Defect In Charge Not Enough To Order Retrial In Absence Of Prejudice: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/sandeep-yadav-v-satish-2026-insc-301-technical-defect-in-charge-not-enough-1610725
+
+[Source Link](https://t.me/verdictumlegalupdates/26156)
+
+---
+
+### 2026-03-26T08:32:29+00:00
+Citizens Should Not Dawdle On Their Rights: Supreme Court Quashes Vague And Belated Dowry Case Against In-Laws
+https://www.verdictum.in/court-updates/supreme-court/2026-insc-297-xxxx-v-state-of-up-1610721
+
+[Source Link](https://t.me/verdictumlegalupdates/26155)
+
+---
+
+### 2026-03-26T08:03:07+00:00
+Second Application U/S 28A Land Acquisition Act Maintainable On Basis Of Appellate Award; Prior Re-Determination No Bar: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/andanayya-ors-v-deputy-chief-engineer-ors-2026-insc-293-land-acquisition-1610717
+
+[Source Link](https://t.me/verdictumlegalupdates/26154)
 
 ---
 
@@ -73,94 +161,6 @@ Deliberately Breached Conditions: Allahabad High Court Cancels Bail Of POCSO Acc
 https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/veer-pal-singh-v-state-of-up-2026ahc57652-deliberately-breached-conditions-bail-pocso-accused-harassing-girl-suicide-1610674
 
 [Source Link](https://t.me/verdictumlegalupdates/26145)
-
----
-
-### 2026-03-25T15:02:31+00:00
-Quantification Of Loss Can’t Override Requirement Of Genuine Claim; Insurance Contract Not Instrument Of Unjust Enrichment: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/united-india-insurance-co-ltd-v-sayona-colors-pvt-ltd-2026-insc-287-quantification-loss-genuine-claim-unjust-enrichment-1610675
-
-[Source Link](https://t.me/verdictumlegalupdates/26144)
-
----
-
-### 2026-03-25T14:37:10+00:00
-25 Former Judges Including Retired Supreme Court Judges Issue Statement Slamming USCIRF Report Seeking Ban On RSS
-https://www.verdictum.in/news/retired-judges-statement-uscirf-report-recommending-ban-rss-1610673
-
-[Source Link](https://t.me/verdictumlegalupdates/26143)
-
----
-
-### 2026-03-25T14:02:29+00:00
-"Intended Use" May Govern Procurement, But "Actual Use" Determines Naphtha Excise Exemption: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/ms-rashtriya-chemicals-and-fertilizers-limited-v-commissioner-of-central-excise-and-service-tax-2026-insc-285-naphtha-excise-exemption-1610664
-
-[Source Link](https://t.me/verdictumlegalupdates/26142)
-
----
-
-### 2026-03-25T13:32:48+00:00
-Poll Prospects No Ground To Stay Conviction Of MPs/MLAs: Kerala High Court Refuses To Stay Ex-MLA Antony Raju's Conviction In NDPS Underwear Tampering Case
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/antony-raju-v-state-of-kerala-2026ker22892-ndps-underwear-tampering-case-mla-1610665
-
-[Source Link](https://t.me/verdictumlegalupdates/26141)
-
----
-
-### 2026-03-25T13:02:46+00:00
-DSC Personnel Are Armed Forces Personnel; Entitled To Condonation Of Shortfall In Qualifying Service For Pension: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/cause-title-union-of-india-ors-v-balakrishnan-mullikote-ors-2026-insc-286-1610663
-
-[Source Link](https://t.me/verdictumlegalupdates/26140)
-
----
-
-### 2026-03-25T12:32:25+00:00
-Writ Jurisdiction Not Meant For Vindicating Eccentric Insistences: Madras High Court Rejects Request For Indefinite Daily Protest Until End Of ‘World War’
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/sprabhu-v-the-district-collector-2026mhc1172-article-226-eccentric-insistencesindefinite-daily-protest-world-war-1610662
-
-[Source Link](https://t.me/verdictumlegalupdates/26139)
-
----
-
-### 2026-03-25T12:02:44+00:00
-Himachal Pradesh High Court Flags Last Minute Panchayat Reorganisation; Quashes Inclusion Of Village In Different Gram Panchayat
-https://www.verdictum.in/court-updates/high-courts/himachal-high-court/nehru-yuva-club-of-village-manlog-badog-anr-v-state-of-himachal-pradesh-ors-2026hhc6374-1610660
-
-[Source Link](https://t.me/verdictumlegalupdates/26138)
-
----
-
-### 2026-03-25T11:32:23+00:00
-State Govt. Has No Authority U/S.143-A(3) Maharashtra Municipal Councils Act To Appoint Arbitrator In Absence Of Arbitration Agreement: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/ms-bharat-udyog-ltd-v-ambernath-municipal-council-through-commissioner-2026-insc-288-state-govt-maharashtra-municipal-councils-arbitration-1610653
-
-[Source Link](https://t.me/verdictumlegalupdates/26137)
-
----
-
-### 2026-03-25T11:03:02+00:00
-"He Dares To Call My Brother; He Will Dictate Me?": CJI Warns Of Criminal Contempt In Medical Admission Case
-https://www.verdictum.in/court-updates/supreme-court/chief-justice-surya-kant-warns-contempt-against-father-called-brother-medical-admission-case-1610655
-
-[Source Link](https://t.me/verdictumlegalupdates/26136)
-
----
-
-### 2026-03-25T10:32:41+00:00
-Supreme Court Issues Notice On Plea For Dedicated Welfare Fund And Lawyers Welfare Stamp For SCBA Members
-https://www.verdictum.in/court-updates/supreme-court/issues-notice-plea-dedicated-welfare-fund-and-lawyers-welfare-stamp-for-scba-members-1610654
-
-[Source Link](https://t.me/verdictumlegalupdates/26135)
-
----
-
-### 2026-03-25T10:02:39+00:00
-“Vague Apprehension Of Discrimination”: Apex Court Dismisses Plea Against Union’s Circular On Singing National Song Vande Mataram At Official Events
-https://www.verdictum.in/court-updates/supreme-court/vague-apprehension-of-discrimination-apex-court-dismisses-plea-against-unions-circular-on-singing-national-song-vande-mataram-at-official-events-1610652
-
-[Source Link](https://t.me/verdictumlegalupdates/26134)
 
 ---
 
