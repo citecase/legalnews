@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-25T12:43:02+00:00*
+*Last Updated: 2026-03-26T03:55:59+00:00*
 
 ---
 
-### 2026-03-25T12:43:02+00:00
-Karnataka High Court Stays FIR Against DRDO Employees For Allegedly Removing Stray Dogs From Campus
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-drdo-employees-relocating-stray-dogs-527824
+### 2026-03-26T03:55:59+00:00
+Adjudicating Officer Vacancy At Real Estate Regulatory Authority, Bihar
+https://www.livelaw.in/job-updates/adjudicating-officer-vacancy-at-real-estate-regulatory-authority-bihar-527881
 
-[Read on Telegram](https://t.me/livelawindia/107621)
-
----
-### 2026-03-25T12:52:22+00:00
-Parliament Passes Transgender Persons Amendment Bill Seeking To Omit Self-Determination Of Gender
-https://www.livelaw.in/top-stories/parliament-passes-transgender-persons-amendment-bill-seeking-to-omit-self-determination-of-gender-527828
-
-[Read on Telegram](https://t.me/livelawindia/107622)
+[Read on Telegram](https://t.me/livelawindia/107644)
 
 ---
-### 2026-03-25T12:58:55+00:00
-Trust Legal Advises Gaudium IVF & Women Health Ltd On Proposed IPO
-https://www.livelaw.in/law-firms/deals/trust-legal-advises-gaudium-ivf-women-health-ltd-on-proposed-ipo-527830
+### 2026-03-26T03:58:19+00:00
+Vice Chancellor Vacancy At National Law University Odisha, Cuttack
+https://www.livelaw.in/job-updates/vice-chancellor-vacancy-at-national-law-university-odisha-cuttack-527882
 
-[Read on Telegram](https://t.me/livelawindia/107623)
-
----
-### 2026-03-25T13:00:55+00:00
-Knanaya Community's Endogamy Not Essential Religious Practice, Excommunicating Members Marrying Outsiders Violates Rights: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/knanaya-communitys-endogamy-not-essential-religious-practice-excommunicating-members-marrying-outsiders-violates-rights-kerala-high-court-527831
-
-[Read on Telegram](https://t.me/livelawindia/107624)
+[Read on Telegram](https://t.me/livelawindia/107645)
 
 ---
-### 2026-03-25T13:15:15+00:00
-Article 25 Doesn't Include Right To Seek Public Holiday On Religious Occasion : Supreme Court
-https://www.livelaw.in/supreme-court/article-25-doesnt-include-right-to-seek-public-holiday-on-religious-occasion-supreme-court-527833
+### 2026-03-26T04:00:19+00:00
+Registrar (Law) Vacancy At National Human Rights Commission
+https://www.livelaw.in/job-updates/registrar-law-vacancy-at-national-human-rights-commission-527883
 
-[Read on Telegram](https://t.me/livelawindia/107625)
-
----
-### 2026-03-25T13:20:35+00:00
-LiveLaw Academy Launches Intensive Course on Commercial Arbitration: Theory and Practice by Sr. Adv. Percival Billimoria
-https://www.livelaw.in/top-stories/livelaw-academy-launches-intensive-course-on-commercial-arbitration-theory-and-practice-by-sr-adv-percival-billimoria-527835
-
-[Read on Telegram](https://t.me/livelawindia/107626)
+[Read on Telegram](https://t.me/livelawindia/107646)
 
 ---
-### 2026-03-25T13:21:55+00:00
-Delhi High Court Upholds Summoning Of Sanctioning Authority Before Charge Stage In Corruption Case
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-upholds-summoning-of-sanctioning-authority-before-charge-stage-in-corruption-case-527836
+### 2026-03-26T04:02:59+00:00
+“Contributory Negligence Won't Apply To Children”: J&K&L High Court Awards Compensation Over Drowning Of Minors In Unfenced Tank
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-no-contributory-negligence-for-children-court-awards-compensation-to-father-of-deceased-minors-directs-safety-policy-for-public-installations-527869
 
-[Read on Telegram](https://t.me/livelawindia/107627)
-
----
-### 2026-03-25T13:28:15+00:00
-2026 LiveLaw (SC) 293 | NATIONAL HIGHWAYS AUTHORITY OF INDIA Versus TARSEM SINGH AND ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-293-national-highways-authority-of-india-versus-tarsem-singh-and-ors-527840
-
-[Read on Telegram](https://t.me/livelawindia/107628)
+[Read on Telegram](https://t.me/livelawindia/107647)
 
 ---
-### 2026-03-25T13:38:15+00:00
-Mandate On Non-Disclosure Of Rape Victim's Identity Not Being Followed: Supreme Court Directs Strict Compliance In Pending Cases
-https://www.livelaw.in/supreme-court/mandate-on-non-disclosure-of-rape-victims-identity-not-being-followed-supreme-court-directs-strict-compliance-in-pending-cases-527841
+### 2026-03-26T04:22:59+00:00
+Assistant Manager Vacancy At Tata Capital [Ahmedabad; Apply Now]
+https://www.livelaw.in/job-updates/assistant-manager-vacancy-at-tata-capital-ahmedabad-527885
 
-[Read on Telegram](https://t.me/livelawindia/107629)
-
----
-### 2026-03-25T13:39:35+00:00
-2026 LiveLaw (SC) 294 | STATE OF HIMACHAL PRADESH Versus HUKUM CHAND ALIAS MONU
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-294-state-of-himachal-pradesh-versus-hukum-chand-alias-monu-527842
-
-[Read on Telegram](https://t.me/livelawindia/107630)
+[Read on Telegram](https://t.me/livelawindia/107648)
 
 ---
-### 2026-03-25T13:40:55+00:00
-Excise Duty Exemption Notifications Based On “Intended Use” Must Be Liberally Construed In Favour Of Assessee : Supreme Court
-https://www.livelaw.in/supreme-court/excise-duty-exemption-notifications-based-on-intended-use-must-be-liberally-construed-in-favour-of-assessee-supreme-court-527844
+### 2026-03-26T04:32:29+00:00
+Rising Property Prices Make Timelines Crucial In Property Deals: Delhi High Court Refuses To Order Specific Performance
+https://www.livelaw.in/high-court/delhi-high-court/rising-property-prices-make-timelines-crucial-in-property-deals-delhi-high-court-refuses-to-order-specific-performance-527870
 
-[Read on Telegram](https://t.me/livelawindia/107631)
-
----
-### 2026-03-25T13:41:55+00:00
-2026 LiveLaw (SC) 295 |  M/S. RASHTRIYA CHEMICALS AND FERTILIZERS LIMITED VERSUS COMMISSIONER OF CENTRAL EXCISE AND SERVICE TAX (LTU)
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-295-ms-rashtriya-chemicals-and-fertilizers-limited-versus-commissioner-of-central-excise-and-service-tax-ltu-527845
-
-[Read on Telegram](https://t.me/livelawindia/107632)
+[Read on Telegram](https://t.me/livelawindia/107649)
 
 ---
-### 2026-03-25T14:07:25+00:00
-Magistrate Becomes Functus Officio After Accepting Cancellation Report, Can't Probe Police Lapses: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/magistrate-becomes-functus-officio-after-accepting-cancellation-report-cant-probe-police-lapses-delhi-high-court-527837
+### 2026-03-26T04:48:09+00:00
+Kerala High Court Directs State To Operationalise Five New NDPS Courts Within 3 Months, Request Centre For Financial Assistance In A Week
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ndps-special-court-permanent-staff-financial-assistance-527873
 
-[Read on Telegram](https://t.me/livelawindia/107633)
-
----
-### 2026-03-25T14:42:45+00:00
-Sessions Court Cannot Take Cognisance Of Offences Under Drugs & Cosmetics Act Without Committal By Magistrate: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-sessions-court-cognisance-offences-drugs-cosmetics-act-527849
-
-[Read on Telegram](https://t.me/livelawindia/107634)
+[Read on Telegram](https://t.me/livelawindia/107650)
 
 ---
-### 2026-03-25T15:19:35+00:00
-'How Can One Earning Rs 6 Lakh Annually Be Low Income Group?' Bombay High Court Questions CIDCO, Stays PMAY Flat Allotments
-https://www.livelaw.in/high-court/bombay-high-court/how-can-one-earning-rs-6-lakh-annually-be-low-income-group-bombay-high-court-questions-cidco-stays-pmay-flat-allotments-527859
+### 2026-03-26T04:52:09+00:00
+Menace Of Citing AI-Generated Fake Judgments Rampant Not Just In India, Across World : Supreme Court
+https://www.livelaw.in/top-stories/menace-of-citing-ai-generated-fake-judgments-rampant-not-just-in-india-across-world-supreme-court-527795
 
-[Read on Telegram](https://t.me/livelawindia/107635)
-
----
-### 2026-03-25T15:24:55+00:00
-Karnataka High Court Slams Unlawful Seizure Of Lamborghini, Directs Action Against RTO Officer
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-lamborghini-seizure-mv-inspector-departmental-enquiry-527861
-
-[Read on Telegram](https://t.me/livelawindia/107636)
+[Read on Telegram](https://t.me/livelawindia/107651)
 
 ---
-### 2026-03-25T15:32:53+00:00
-Hostilities At Sea: Violations Of International Naval Warfare Norms
-https://www.livelaw.in/articles/hostilities-sea-violations-international-naval-warfare-norms-527857
+### 2026-03-26T05:03:09+00:00
+Illegal Termination Doesn't Automatically Warrant Reinstatement Or Back Wages: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/illegal-termination-doesnt-automatically-warrant-reinstatement-or-back-wages-delhi-high-court-527871
 
-[Read on Telegram](https://t.me/livelawindia/107637)
-
----
-### 2026-03-25T15:38:43+00:00
-'Patriotism Can't Be Compelled': Sanjay Hegde To Supreme Court On Vande Mataram Row; CJI Asks 'Not Even For National Anthem?'
-https://www.livelaw.in/top-stories/supreme-court-vande-mataram-mha-circular-sanjay-hegde-patriotism-cannot-be-compelled-cji-asks-not-even-in-case-of-national-anthem-527862
-
-[Read on Telegram](https://t.me/livelawindia/107638)
+[Read on Telegram](https://t.me/livelawindia/107652)
 
 ---
-### 2026-03-25T16:52:59+00:00
-Supreme Court Daily Round-Up : March 25, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-march-25-2026-527863
+### 2026-03-26T05:17:49+00:00
+Delhi High Court Quashes Proclamation Order, LOC Against Australian Citizen, Says No Effort Made To Serve Accused Abroad
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-quashes-proclamation-order-loc-against-australian-citizen-says-no-effort-made-to-serve-accused-abroad-527860
 
-[Read on Telegram](https://t.me/livelawindia/107639)
+[Read on Telegram](https://t.me/livelawindia/107653)
 
 ---
-### 2026-03-25T17:22:59+00:00
-Call For Papers: International Conference On Constitutionalism To Transformative Constitutionalism: Rethinking The Constitutions Across Time And World
-https://www.livelaw.in/lawschool/call-for-papers/international-conference-constitutionalism-transformative-constitutionalism-527866
+### 2026-03-26T05:27:17+00:00
+When Can Converted Dalit Reclaim Scheduled Caste Status After Re-Conversion? Supreme Court Explains
+https://www.livelaw.in/supreme-court/when-can-converted-dalit-reclaim-scheduled-caste-status-after-re-conversion-supreme-court-explains-527785
 
-[Read on Telegram](https://t.me/livelawindia/107640)
+[Read on Telegram](https://t.me/livelawindia/107654)
+
+---
+### 2026-03-26T05:33:17+00:00
+Injury Sustained While De-Boarding At Station Where Train Does Not Halt Is Not 'Self-Inflicted Injury': Bombay High Court Orders Compensation
+https://www.livelaw.in/high-court/bombay-high-court/railway-compensation-de-boarding-at-station-where-train-does-not-halt-527868
+
+[Read on Telegram](https://t.me/livelawindia/107655)
+
+---
+### 2026-03-26T05:48:07+00:00
+Authorised ₹36.50 Crores To Clear Victim Compensation Arrears, ₹12.26 Crores Towards Arrears In Mediator Fees: State Tells Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-victim-compensation-fund-mediator-fees-arrears-state-government-527890
+
+[Read on Telegram](https://t.me/livelawindia/107656)
+
+---
+### 2026-03-26T06:02:27+00:00
+Graphologist's Report Cannot Be Admitted As Evidence To Determine Testator's State Of Mind Without Stating It's Relevance: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-graphologist-report-expert-evidence-527851
+
+[Read on Telegram](https://t.me/livelawindia/107657)
+
+---
+### 2026-03-26T06:08:56+00:00
+CMO Bulk Messaging Issue: Kerala High Court To Hear Next Week Appeal Alleging Privacy Violation Of Govt Officials, Judges
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-cmo-bulk-messaging-appeal-527900
+
+[Read on Telegram](https://t.me/livelawindia/107658)
+
+---
+### 2026-03-26T06:25:56+00:00
+Habeas Plea In Child Custody Case Not Maintainable When Child Is With Natural Guardian, No Imminent Threat Is Shown: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-habeas-corpus-child-custody-natural-guardian-527905
+
+[Read on Telegram](https://t.me/livelawindia/107659)
+
+---
+### 2026-03-26T06:32:46+00:00
+Delhi High Court Disposes PIL Against Judge-Led Mediation In Family Courts, Directs Petitioner To Approach Judges' Committee
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-disposes-pil-against-judge-led-mediation-in-family-courts-directs-petitioner-to-approach-judges-committee-527872
+
+[Read on Telegram](https://t.me/livelawindia/107660)
+
+---
+### 2026-03-26T06:33:46+00:00
+Punjab & Haryana High Court Denies Bail To Persons Accused Of Human Trafficking Via 'Dunki Route'
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-denies-bail-to-persons-accused-of-human-trafficking-via-dunki-route-527908
+
+[Read on Telegram](https://t.me/livelawindia/107661)
+
+---
+### 2026-03-26T06:58:46+00:00
+Kerala High Court Accepts Apology By Editor Of Deepika Daily Over Misreported Order On Digital Survey, Directs Publication Of Correction
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-apology-deepika-daily-misreported-order-publication-of-correction-527909
+
+[Read on Telegram](https://t.me/livelawindia/107662)
+
+---
+### 2026-03-26T07:02:46+00:00
+Right To Seek Contract Rescission Accrues Upon Expiry Of Time In Decree, Not Upon Receiving Notice Of Subsequent Proceedings: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/right-to-seek-rescission-expiry-time-decree-receipt-notice-subsequent-proceedings-527874
+
+[Read on Telegram](https://t.me/livelawindia/107663)
 
 ---
