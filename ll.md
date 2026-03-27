@@ -1,86 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-27T09:08:01+00:00*
+*Last Updated: 2026-03-27T11:28:41+00:00*
 
 ---
 
-### 2026-03-27T09:08:01+00:00
-'Alleged Offence Took Place On Road During School Hours, Absence Of Independent Witness Casts Doubt': Calcutta HC Sets Aside POCSO Conviction
-https://www.livelaw.in/high-court/calcutta-high-court/alleged-offence-took-place-on-road-during-school-hours-absence-of-independent-witness-casts-doubt-calcutta-hc-sets-aside-pocso-conviction-528029
-
-[Read on Telegram](https://t.me/livelawindia/107732)
-
----
-### 2026-03-27T09:17:41+00:00
-'Inability To Explain Death Inside Matrimonial Home Crucial': Calcutta High Court Upholds Life Sentence For Husband In Wife's Murder
-https://www.livelaw.in/high-court/calcutta-high-court/inability-to-explain-death-inside-matrimonial-home-crucial-calcutta-high-court-upholds-life-sentence-for-husband-in-wifes-murder-528030
-
-[Read on Telegram](https://t.me/livelawindia/107733)
-
----
-### 2026-03-27T09:32:57+00:00
-The Charter's Silence
-https://www.livelaw.in/articles/united-nations-charter-silence-527979
-
-[Read on Telegram](https://t.me/livelawindia/107734)
-
----
-### 2026-03-27T09:33:17+00:00
-University Lecturer Not A 'Public Office', Writ Of Quo Warranto Not Maintainable: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-rules-professors-not-public-office-lecturers-appointment-case-528040
-
-[Read on Telegram](https://t.me/livelawindia/107735)
-
----
-### 2026-03-27T09:39:17+00:00
-'Procedural Harakiri': Karnataka High Court Criticizes Magistrate For Closing Private Complaint In Absence Of S.175(3) BNSS Order Directing FIR
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-rebukes-magistrate-closing-private-complaint-receipt-fir-copy-registered-528045
-
-[Read on Telegram](https://t.me/livelawindia/107736)
-
----
-### 2026-03-27T09:52:37+00:00
-No Offence If Married Man Stays In Live-In Relationship With Adult Woman: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-no-crime-married-man-livein-relationship-adult-woman-528046
-
-[Read on Telegram](https://t.me/livelawindia/107737)
-
----
-### 2026-03-27T09:57:37+00:00
-TET-Qualified Teacher Cannot Rely On Fake Marksheet To Secure Approval Of Appointment: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/tet-qualified-teacher-cannot-rely-on-fake-marksheet-to-secure-approval-of-appointment-calcutta-high-court-528000
-
-[Read on Telegram](https://t.me/livelawindia/107738)
-
----
-### 2026-03-27T10:03:07+00:00
-Calcutta High Court Quashes Bigamy Case Under BNS After Parties Settle Dispute; Says S.82(2) Requires Complaint Case Under BNSS
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-quashes-bigamy-case-under-bns-after-parties-settle-dispute-says-s822-requires-complaint-case-under-bnss-528031
-
-[Read on Telegram](https://t.me/livelawindia/107739)
-
----
-### 2026-03-27T10:12:27+00:00
-Delhi High Court Sets Aside Order Refusing To Entertain Writ Petition Against Passport Impounding, Cites Serious Civil Consequences
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-sets-aside-order-refusing-to-entertain-writ-petition-against-passport-impounding-cites-serious-civil-consequences-527992
-
-[Read on Telegram](https://t.me/livelawindia/107740)
-
----
-### 2026-03-27T10:40:51+00:00
-Can't Presume Bar Association Is Unaware Of Advocates Allegedly Misleading Court To Defreeze Bank Accounts: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-alleged-misconduct-by-advocates-bank-defreezing-cases-528059
-
-[Read on Telegram](https://t.me/livelawindia/107741)
-
----
-### 2026-03-27T10:52:11+00:00
-Calcutta High Court Flags 39-Year Delay In Murder Case, Directs Magistrate To Commit Case To Sessions Court Within Six Weeks
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-flags-39-year-delay-in-murder-case-directs-magistrate-to-commit-case-to-sessions-court-within-six-weeks-528036
-
-[Read on Telegram](https://t.me/livelawindia/107742)
-
----
 ### 2026-03-27T11:28:41+00:00
 'Overloaded Vehicles Cannot Be Allowed To Ply Without Removing Excess Load': Patna High Court Calls For Strict Enforcement
 https://www.livelaw.in/high-court/patna-high-court/patna-high-court-overloaded-vehicles-cannot-allowed-removing-excess-load-528067
@@ -142,5 +65,82 @@ Non-Disclosure Of Intelligence Identifying Activities Of OGWs Does Not Vitiate P
 https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-activities-of-ogws-identified-through-intelligence-inputs-non-disclosure-of-such-material-does-not-vitiate-preventive-detention-jk-high-court-528054
 
 [Read on Telegram](https://t.me/livelawindia/107751)
+
+---
+### 2026-03-27T13:25:24+00:00
+Dismissal Of Suit For Default Not Res Judicata, But Party May Still Be Denied Relief For Abandoning Earlier Proceedings : Supreme Court
+https://www.livelaw.in/supreme-court/dismissal-of-suit-for-default-not-res-judicata-but-party-may-still-be-denied-relief-for-abandoning-earlier-proceedings-supreme-court-528083
+
+[Read on Telegram](https://t.me/livelawindia/107752)
+
+---
+### 2026-03-27T13:28:04+00:00
+2026 LiveLaw (SC) 299 | SHARADA SANGHI & ORS. VS. ASHA AGARWAL & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-299-sharada-sanghi-ors-vs-asha-agarwal-ors-528084
+
+[Read on Telegram](https://t.me/livelawindia/107753)
+
+---
+### 2026-03-27T13:37:45+00:00
+J&K&L High Court Orders MHA To Bring Back Minor Deported To Pakistan; Says Humanitarian Concerns Must Guide Sovereign Decisions
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-kashmir-high-court-deported-minor-indian-father-mha-citizenship-plea-528056
+
+[Read on Telegram](https://t.me/livelawindia/107754)
+
+---
+### 2026-03-27T13:42:55+00:00
+'Assault On Public Servants By A Private Individual Constitutes Offence Of Moral Turpitude': Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-assault-public-servants-private-individual-moral-turpitude-528053
+
+[Read on Telegram](https://t.me/livelawindia/107755)
+
+---
+### 2026-03-27T13:43:25+00:00
+DBRANLU Law Review Journal (Students' Edition) Invites Submissions For Inaugural Volume (2026)
+https://www.livelaw.in/lawschool/call-for-papers/dbranlu-law-review-journal-students-edition-invites-submissions-inaugural-volume-528086
+
+[Read on Telegram](https://t.me/livelawindia/107756)
+
+---
+### 2026-03-27T14:32:55+00:00
+Acceptance Of Olfactory Marks In India: Challenges And Way Forward
+https://www.livelaw.in/articles/acceptance-olfactory-marks-india-challenges-528048
+
+[Read on Telegram](https://t.me/livelawindia/107757)
+
+---
+### 2026-03-27T14:37:35+00:00
+Confessions Can Guide Police Investigations Even If They Can't Be Part Of Charge Sheet: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-confessions-police-probe-excluded-chargesheet-clarifies-sc-sanju-bansal-ruling-528087
+
+[Read on Telegram](https://t.me/livelawindia/107758)
+
+---
+### 2026-03-27T15:17:45+00:00
+'Beyond Imagination How Seized Items Were Termed Contraband Without FSL Report': Patna High Court Acquits NDPS Accused After 27 Years
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-acquits-accused-ndps-case-seized-items-termed-contraband-fsl-report-528060
+
+[Read on Telegram](https://t.me/livelawindia/107759)
+
+---
+### 2026-03-27T15:27:45+00:00
+Co-Operative Society Can Refuse Membership To Buyer If Builder Sells 'Refuge Area' As Residential Flat: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-cooperative-society-membership-refuge-area-residential-flat-528055
+
+[Read on Telegram](https://t.me/livelawindia/107760)
+
+---
+### 2026-03-27T15:46:35+00:00
+Plea Against Mukesh Ambani's Reliance Over Alleged 'Gas Theft' An Abuse Of Process; Can Harm Reputation, Affect Business: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/mukesh-ambani-reliance-industries-gas-theft-allegations-harm-reputation-abuse-of-process-528095
+
+[Read on Telegram](https://t.me/livelawindia/107761)
+
+---
+### 2026-03-27T16:14:35+00:00
+Woman Gets 10-Year Jail For Facilitating Rape, Delhi High Court Cites Continued Criminal Conduct
+https://www.livelaw.in/high-court/delhi-high-court/woman-gets-10-year-jail-for-facilitating-rape-delhi-high-court-cites-continued-criminal-conduct-528102
+
+[Read on Telegram](https://t.me/livelawindia/107762)
 
 ---
