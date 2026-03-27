@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-27T07:12:02+00:00*
+*Last Updated: 2026-03-27T13:12:44+00:00*
+
+---
+
+### 2026-03-27T13:12:44+00:00
+Failure To Explain Wife’s Death Inside Matrimonial Home Attracts Burden U/S. 106 Evidence Act: Gujarat High Court Upholds Husband’s Conviction
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/pareshbhai-shankerbhai-taviyad-v-state-of-gujarat-2026gujhc21965-db-failure-to-explain-wifes-death-attracts-s-106-burden-1610816
+
+[Source Link](https://t.me/verdictumlegalupdates/26182)
+
+---
+
+### 2026-03-27T12:32:42+00:00
+Deduction Of Pension For Grave Misconduct Can’t Be Based On One Instance Of Irregularity: Jharkhand High Court
+https://www.verdictum.in/court-updates/high-courts/jharkhand-high-court/state-of-jharkhand-ors-v-brajeshwar-singh-neutral-citation-2026jhhc7690-db-1610812
+
+[Source Link](https://t.me/verdictumlegalupdates/26181)
+
+---
+
+### 2026-03-27T11:52:41+00:00
+Rajasthan High Court Directs DGP To Draft Policy For Separation Of Powers Of Police's Investigation And Law & Order Wings To Curb Chronic Delays
+https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/2026rj-jp10953-jitendra-meena-v-state-of-rajasthan-1610811
+
+[Source Link](https://t.me/verdictumlegalupdates/26180)
+
+---
+
+### 2026-03-27T11:12:50+00:00
+Waitlisted Candidate Cannot Claim Appointment After Panel Lapses: Patna High Court In Civil Court Clerk Recruitment Case
+https://www.verdictum.in/court-updates/high-courts/patna-high-court/the-patna-high-court-v-chandan-kumar-letters-patent-appeal-no891-of-2025-waitlisted-candidate-civil-court-clerk-recruitment-case-1610809
+
+[Source Link](https://t.me/verdictumlegalupdates/26179)
+
+---
+
+### 2026-03-27T10:32:29+00:00
+Follow Due Process Of Law: Delhi High Court To Centre While Staying Eviction Of Race Club, Polo Ground
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/delhi-race-club-v-union-of-india-due-process-of-law-centre-staying-eviction-polo-ground-1610807
+
+[Source Link](https://t.me/verdictumlegalupdates/26178)
+
+---
+
+### 2026-03-27T09:52:47+00:00
+Merit Must Govern Not Just Selection But Allocation: Punjab & Haryana High Court Slams HSSC’s Opaque Department Allotment Process
+https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/aman-duddi-v-haryana-staff-selection-commission-2026phhc042652-hsscs-opaque-department-allotment-process-1610804
+
+[Source Link](https://t.me/verdictumlegalupdates/26177)
+
+---
+
+### 2026-03-27T09:12:26+00:00
+Allahabad High Court Orders Central Govt To Produce Records In Rahul Gandhi’s Dual Citizenship Case; Impleads Home Ministry
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/s-vignesh-shishir-v-sri-rahul-gandhi-application-implead-centre-opposite-party-dual-citizenship-case-1610802
+
+[Source Link](https://t.me/verdictumlegalupdates/26176)
+
+---
+
+### 2026-03-27T08:32:24+00:00
+NCLT Can’t Dilute Consequences Of Criminal Prosecution By Accepting Agreement Executed Between Parties: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/2026bhcas14523db-63-moons-technologies-limited-v-union-of-india-1610796
+
+[Source Link](https://t.me/verdictumlegalupdates/26175)
+
+---
+
+### 2026-03-27T07:52:23+00:00
+Inadvertent Technical Error In Online Application Not Suppression Of Facts: Madhya Pradesh High Court Sets Aside Candidate’s Disqualification
+https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/rohit-gami-v-union-of-india-through-chairman-staff-selection-commission-2026mphc-ind8131-1610795
+
+[Source Link](https://t.me/verdictumlegalupdates/26174)
 
 ---
 
@@ -89,78 +161,6 @@ Jharkhand High Court Orders To Withhold Salary Of District Transport Officer If 
 https://www.verdictum.in/court-updates/high-courts/madras-high-court/sant-lal-singh-v-the-state-of-jharkhand-withhold-salary-of-district-transport-officer-non-compliance-1610751
 
 [Source Link](https://t.me/verdictumlegalupdates/26163)
-
----
-
-### 2026-03-26T13:03:07+00:00
-Sexual Acts Committed By Husband & Wife Within Marital Relationship Doesn't Attract Offence U/S.377 IPC: Madhya Pradesh High Court
-https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/a-v-the-state-of-madhya-pradesh-2026mphc-gwl9922-sexual-acts-husband-wife-marital-relationship-section-377-ipc-1610746
-
-[Source Link](https://t.me/verdictumlegalupdates/26162)
-
----
-
-### 2026-03-26T12:32:26+00:00
-Land Reserved For Public Purpose Land In Approved Layout Vests With Local Authority; Conversion To Residential Plots Impermissible: Madras High Court
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/vyasodaa-v-the-commissioner-2026mhc1189-public-purpose-land-layout-local-authority-residential-plots-1610740
-
-[Source Link](https://t.me/verdictumlegalupdates/26161)
-
----
-
-### 2026-03-26T11:52:45+00:00
-Constitutional Courts Cannot Pre-Empt Executive Decisions In Tender Matters Through Ex-Ante Judicial Review: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/ms-steag-energy-services-india-pvt-ltd-v-gspc-pipavav-power-company-ltd-ors-2026-insc-295-1610735
-
-[Source Link](https://t.me/verdictumlegalupdates/26160)
-
----
-
-### 2026-03-26T11:02:24+00:00
-No Appeal Lies Against Order On Transfer Application; Only Civil Revision Petition U/S.115 Of CPC Is Maintainable: Karnataka High Court
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/ekta-kukreja-v-ms-srinivasa-trust-appeal-order-transfer-application-civil-revision-petition-sec-115-cpc-1610731
-
-[Source Link](https://t.me/verdictumlegalupdates/26159)
-
----
-
-### 2026-03-26T10:13:02+00:00
-Section 29 POCSO Presumption Not Applicable At Stage Of Pre-Arrest Bail: Allahabad High Court Grants Anticipatory Bail To Swami Avimukteshwaranand
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/swami-avimukteshwaranand-saraswati-jagatguru-shankaracharya-jyotishpeethadheeshwar-and-another-v-state-of-up-and-5-others-2026ahc61379-1610730
-
-[Source Link](https://t.me/verdictumlegalupdates/26158)
-
----
-
-### 2026-03-26T09:33:01+00:00
-Protection Of Youth Is A Moral Imperative: Karnataka High Court Mandates Strict Age Verification At Bar & Breweries Following Minor's Death
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/v-chitti-babu-v-state-of-karnataka-writ-petition-no-8163-of-2026-1610727
-
-[Source Link](https://t.me/verdictumlegalupdates/26157)
-
----
-
-### 2026-03-26T09:02:20+00:00
-Technical Defect In Charge Not Enough To Order Retrial In Absence Of Prejudice: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/sandeep-yadav-v-satish-2026-insc-301-technical-defect-in-charge-not-enough-1610725
-
-[Source Link](https://t.me/verdictumlegalupdates/26156)
-
----
-
-### 2026-03-26T08:32:29+00:00
-Citizens Should Not Dawdle On Their Rights: Supreme Court Quashes Vague And Belated Dowry Case Against In-Laws
-https://www.verdictum.in/court-updates/supreme-court/2026-insc-297-xxxx-v-state-of-up-1610721
-
-[Source Link](https://t.me/verdictumlegalupdates/26155)
-
----
-
-### 2026-03-26T08:03:07+00:00
-Second Application U/S 28A Land Acquisition Act Maintainable On Basis Of Appellate Award; Prior Re-Determination No Bar: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/andanayya-ors-v-deputy-chief-engineer-ors-2026-insc-293-land-acquisition-1610717
-
-[Source Link](https://t.me/verdictumlegalupdates/26154)
 
 ---
 
