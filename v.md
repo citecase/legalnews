@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-27T13:12:44+00:00*
+*Last Updated: 2026-03-27T16:02:51+00:00*
+
+---
+
+### 2026-03-27T16:02:51+00:00
+No Offence Made Out If Married Man Stays With Adult Woman In Live-In Relationship: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/a-v-state-of-up-no-offence-married-man-adult-woman-live-in-relationship-with-consent-1610826
+
+[Source Link](https://t.me/verdictumlegalupdates/26187)
+
+---
+
+### 2026-03-27T15:13:09+00:00
+University Professors Are Employees, Not Public Officers: Madhya Pradesh High Court Dismisses Quo Warranto Petition
+https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/2026mphcind8319-dr-kshamasheel-mishra-v-the-state-of-madhya-pradesh-1610822
+
+[Source Link](https://t.me/verdictumlegalupdates/26186)
+
+---
+
+### 2026-03-27T14:52:48+00:00
+Column: Conversion, Caste & Constitution
+https://www.verdictum.in/columns/chinthada-anand-v-state-of-andhra-pradesh-criminal-appeal-1580-of-2026-1610828
+
+[Source Link](https://t.me/verdictumlegalupdates/26185)
+
+---
+
+### 2026-03-27T14:33:07+00:00
+Liquor Trade Not A Fundamental Right; Suspension Of Licence Valid When Proportionate & Within Statutory Framework: Madhya Pradesh High Court
+https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/som-distilleries-private-limited-ors-v-state-of-madhya-pradesh-ors-2026mphc-jbp24006-1610820
+
+[Source Link](https://t.me/verdictumlegalupdates/26184)
+
+---
+
+### 2026-03-27T13:52:45+00:00
+Overcrowding Of Cattle In Congested Spaces Amounts To Animal Cruelty: Tripura High Court Issues Directions
+https://www.verdictum.in/court-updates/high-courts/tripura-high-court/dhyan-foundation-goushala-v-the-state-of-tripura-ors-cruelty-to-animals-1610819
+
+[Source Link](https://t.me/verdictumlegalupdates/26183)
 
 ---
 
@@ -121,46 +161,6 @@ Senior Analyst Vacancy At National Bank for Financing Infrastructure and Develop
 https://www.verdictum.in/job-updates/national-bank-for-financing-infrastructure-and-development-1610741
 
 [Source Link](https://t.me/verdictumlegalupdates/26168)
-
----
-
-### 2026-03-26T15:32:44+00:00
-Personal Criticism Of Presiding Officer Without Impact On Administration Of Justice Not Contempt: Rajasthan High Court
-https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/in-re-bhilwara-raj-2026rj-jd6479-db-contempt-of-courts-judicial-officer-1610747
-
-[Source Link](https://t.me/verdictumlegalupdates/26167)
-
----
-
-### 2026-03-26T15:03:03+00:00
-Bombay High Court Orders Compassionate Appointment & Compensation For Son Of BEST Conductor Who Died Of COVID-19
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/2026bhcos7223db-subodh-nayan-lakeshri-v-general-manager-brihanmumbai-electricity-supply-transport-undertaking-1610749
-
-[Source Link](https://t.me/verdictumlegalupdates/26166)
-
----
-
-### 2026-03-26T14:32:51+00:00
-S. 34(2) U.P. Excise Act Is Discretionary; Second Liquor Licence Cannot Be Cancelled Mechanically: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/vijay-kumar-sharma-v-state-of-uttar-pradesh-2026ahc60105-s-342-up-excise-act-is-discretionary-1610750
-
-[Source Link](https://t.me/verdictumlegalupdates/26165)
-
----
-
-### 2026-03-26T14:02:50+00:00
-ADM Acting As Rent Authority Cannot Set Aside Findings Based On Its Own Report; Exercise Of Such Dual Role Impermissible: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/rajesh-goyal-v-ms-laxmi-constructions-ors-2026-insc-299-dual-role-1610748
-
-[Source Link](https://t.me/verdictumlegalupdates/26164)
-
----
-
-### 2026-03-26T13:32:28+00:00
-Jharkhand High Court Orders To Withhold Salary Of District Transport Officer If Retirement Benefits Of Clerk Are Not Released
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/sant-lal-singh-v-the-state-of-jharkhand-withhold-salary-of-district-transport-officer-non-compliance-1610751
-
-[Source Link](https://t.me/verdictumlegalupdates/26163)
 
 ---
 
