@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-26T11:33:00+00:00*
+*Last Updated: 2026-03-27T04:32:52+00:00*
 
 ---
 
-### 2026-03-26T11:33:00+00:00
-Patna High Court Sets Aside Direction To Appoint Waitlisted Candidate In Civil Court Recruitment, Says 'Fence-Sitters' Cannot Claim Parity
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-direction-appoint-waitlisted-candidate-civil-court-recruitment-527880
+### 2026-03-27T04:32:52+00:00
+Halting The Pendulum: Imperative Of Finality In Judicial Eligibility
+https://www.livelaw.in/articles/imperative-finality-judicial-eligibility-527978
 
-[Read on Telegram](https://t.me/livelawindia/107683)
-
----
-### 2026-03-26T11:35:00+00:00
-Logged In, Left Out: How Code On Social Security, 2020 Only Mentions About India's Gig Workers
-https://www.livelaw.in/articles/code-on-social-security2020-india-gig-workers-527945
-
-[Read on Telegram](https://t.me/livelawindia/107684)
+[Read on Telegram](https://t.me/livelawindia/107706)
 
 ---
-### 2026-03-26T11:48:00+00:00
-Electricity Connection Can't Be Denied For Want Of Co-Sharer's Consent: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-electricity-connection-co-sharers-consent-consumer-527941
+### 2026-03-27T04:33:12+00:00
+Calcutta High Court Upholds KMC's Power To Revise Property Valuation For Levying Property Tax In ₹11.24 Crore Dispute
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-upholds-kmcs-power-to-revise-property-valuation-for-levying-property-tax-in-1124-crore-dispute-527993
 
-[Read on Telegram](https://t.me/livelawindia/107685)
-
----
-### 2026-03-26T12:36:13+00:00
-Omission To Sign Order Sheet On Framing Charges Won't Vitiate Trial, When Charges Were Read Over To Accused : Supreme Court
-https://www.livelaw.in/supreme-court/omission-to-sign-order-sheet-on-framing-charges-wont-vitiate-trial-when-charges-were-read-over-to-accused-supreme-court-527954
-
-[Read on Telegram](https://t.me/livelawindia/107686)
+[Read on Telegram](https://t.me/livelawindia/107707)
 
 ---
-### 2026-03-26T12:37:13+00:00
-Justice DY Chandrachud, Gen Naravane & Ankur Warikoo Speak On Constitutional Values, Leadership & Growth At Vadodara Literature Fest
-https://www.livelaw.in/lawschool/news/justice-dy-chandrachud-gen-naravane-ankur-warikoo-speak-on-constitutional-values-leadership-growth-at-vadodara-literature-fest-527955
+### 2026-03-27T04:57:32+00:00
+Legal Consultant Vacancy At Central Council For Research In Ayurvedic Sciences
+https://www.livelaw.in/job-updates/legal-consultant-vacancy-at-central-council-for-research-in-ayurvedic-sciences-528001
 
-[Read on Telegram](https://t.me/livelawindia/107687)
-
----
-### 2026-03-26T12:38:13+00:00
-2026 LiveLaw (SC) 296 | SANDEEP YADAV VERSUS SATISH & OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-296-sandeep-yadav-versus-satish-others-527956
-
-[Read on Telegram](https://t.me/livelawindia/107688)
+[Read on Telegram](https://t.me/livelawindia/107708)
 
 ---
-### 2026-03-26T12:42:33+00:00
-JGU Vice Chancellor Prof C Raj Kumar Conferred STAR Scholars Network's Lighthouse Leadership Award
-https://www.livelaw.in/lawschool/news/jgu-vice-chancellor-prof-c-raj-kumar-conferred-star-scholars-networks-lighthouse-leadership-award-527957
+### 2026-03-27T04:57:52+00:00
+'Weakens Public Trust In Healthcare': Bombay High Court Cancels Bail Of Accused For Supplying Fake Medicines To Govt Hospitals
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-cancels-bail-supplied-fake-medicines-govt-hospitals-528002
 
-[Read on Telegram](https://t.me/livelawindia/107689)
-
----
-### 2026-03-26T12:45:53+00:00
-'Respect For Higher Courts' Orders A Basic Principle' : Supreme Court Rebukes Rent Authority For Revisiting Eviction Order Affirmed By SC
-https://www.livelaw.in/supreme-court/respect-for-higher-courts-orders-a-basic-principle-supreme-court-rebukes-rent-authority-for-revisiting-eviction-order-affirmed-by-sc-527958
-
-[Read on Telegram](https://t.me/livelawindia/107690)
+[Read on Telegram](https://t.me/livelawindia/107709)
 
 ---
-### 2026-03-26T12:48:33+00:00
-2026 LiveLaw (SC) 297 | RAJESH GOYAL VERSUS M/S LAXMI CONSTRUCTIONS & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-297-rajesh-goyal-versus-ms-laxmi-constructions-ors-527959
+### 2026-03-27T04:59:12+00:00
+Counsellor Vacancy At Family Court, District Churu, Rajasthan
+https://www.livelaw.in/job-updates/counsellor-vacancy-at-family-court-district-churu-rajasthan-528003
 
-[Read on Telegram](https://t.me/livelawindia/107691)
-
----
-### 2026-03-26T12:51:33+00:00
-DMK MP Moves Madras High Court Seeking ED Action Against BJP's Nainar Nagendran In 'Cash For Vote' Case
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-dmk-mp-ed-action-against-bjp-nainar-nagendran-527960
-
-[Read on Telegram](https://t.me/livelawindia/107692)
+[Read on Telegram](https://t.me/livelawindia/107710)
 
 ---
-### 2026-03-26T12:53:53+00:00
-Kerala High Court Seeks ITC Response On Allegation That 'Honeydew Smooth' Printed On Gold Flake Cigarette Packs Violates Law
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-cigarette-packet-itc-gold-flake-packaging-rules-527961
+### 2026-03-27T05:00:12+00:00
+Assistant Manager (Legal) And Deputy Manager (Legal) Vacancy At Bharat Electronics Limited
+https://www.livelaw.in/job-updates/assistant-manager-legal-and-deputy-manager-legal-vacancy-at-bharat-electronics-limited-528004
 
-[Read on Telegram](https://t.me/livelawindia/107693)
-
----
-### 2026-03-26T13:11:33+00:00
-Madras High Court Stays Trial Against Ex-Minister K Ponmudi In Hate Speech Case, Dispenses With Appearance Before Magistrate
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-former-minister-ponmudi-hate-speech-trial-stayed-527964
-
-[Read on Telegram](https://t.me/livelawindia/107694)
+[Read on Telegram](https://t.me/livelawindia/107711)
 
 ---
-### 2026-03-26T14:13:03+00:00
-Wrong To Claim One Religion As 'Only True Religion' As It Disparages Other Faiths: Allahabad HC Refuses To Quash 295A IPC Case
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-wrong-claim-true-religion-disparages-faiths-refuses-quash-295a-ipc-527969
+### 2026-03-27T05:01:52+00:00
+Compassionate Appointment Can't Be Denied On Ground Of Delay When Initial Application Was Timely: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-subsequent-compassionate-appointment-rejected-time-barred-528005
 
-[Read on Telegram](https://t.me/livelawindia/107695)
-
----
-### 2026-03-26T14:22:33+00:00
-NDPS Act | Exact Quantity Of Seized Contraband Need Not Be Stated In Grounds Of Arrest Notice If Nature Is Mentioned: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ndps-contraband-seized-quantity-nature-arrest-grounds-527965
-
-[Read on Telegram](https://t.me/livelawindia/107696)
+[Read on Telegram](https://t.me/livelawindia/107712)
 
 ---
-### 2026-03-26T14:36:13+00:00
-CCPA Issues Advisory Against 'LPG/Gas Charges' In Hotel Bills; Says Such Levies May Amount To Unfair Trade Practice
-https://www.livelaw.in/consumer-cases/ccpa-issues-advisory-against-lpggas-charges-in-hotel-bills-says-such-levies-may-amount-to-unfair-trade-practice-527973
+### 2026-03-27T05:06:52+00:00
+Associate Director Vacancy At Deloitte Touche Tohmatsu India LLP [Mumbai; Apply Now]
+https://www.livelaw.in/job-updates/associate-director-vacancy-at-deloitte-touche-tohmatsu-india-llp-mumbai-528006
 
-[Read on Telegram](https://t.me/livelawindia/107697)
-
----
-### 2026-03-26T15:19:43+00:00
-Sabarimala Gold Theft: Kerala High Court Extends Deadline For SIT Probe; Clears 2017 Flag Mast Allegations
-https://www.livelaw.in/high-court/kerala-high-court/sabarimala-gold-theft-extends-deadline-for-sit-prob-flag-mast-allegations-527980
-
-[Read on Telegram](https://t.me/livelawindia/107698)
+[Read on Telegram](https://t.me/livelawindia/107713)
 
 ---
-### 2026-03-26T15:32:53+00:00
-When Biography Ends But Biology Remains: Constitutional Right To Let Go
-https://www.livelaw.in/articles/biography-ends-biology-remains-constitutional-right-let-go-527946
+### 2026-03-27T05:12:12+00:00
+Pension Can't Be Withheld On Basis Of Single Instance Of Irregularity; Entire Service Must Be Found Thoroughly Unsatisfactory: Jharkhand HC
+https://www.livelaw.in/high-court/jharkhand-high-court/pension-cant-be-withheld-on-basis-of-single-instance-of-irregularity-entire-service-must-be-found-thoroughly-unsatisfactory-jharkhand-hc-528008
 
-[Read on Telegram](https://t.me/livelawindia/107699)
-
----
-### 2026-03-26T15:33:03+00:00
-'No Baby Should Die': Bombay High Court Slams Maharashtra Govt Over Continued Malnutrition Deaths In Tribal Areas
-https://www.livelaw.in/high-court/bombay-high-court/maharashtra-govt-continued-malnutrition-deaths-in-tribal-areas-527981
-
-[Read on Telegram](https://t.me/livelawindia/107700)
+[Read on Telegram](https://t.me/livelawindia/107714)
 
 ---
-### 2026-03-26T16:17:34+00:00
-'Consent Immaterial In Legal Marriage': MP High Court Quashes S.377 IPC Charge Against Husband
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/husband-wife-377-ipc-inapplicable-consent-immaterial-in-legal-marriage-527984
+### 2026-03-27T05:17:52+00:00
+Does Fundamental Right To Reproductive Health Extend To Menstrual Leave? Can Executive Power Mandate It? Karnataka High Court Asks
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-govt-menstrual-leave-notification-528007
 
-[Read on Telegram](https://t.me/livelawindia/107701)
+[Read on Telegram](https://t.me/livelawindia/107715)
 
 ---
-### 2026-03-26T16:59:34+00:00
-NCLT Approval To Settlement Scheme Does Not Dilute Criminal Charges: Bombay High Court Clarifies In NSEL Scam
-https://www.livelaw.in/high-court/bombay-high-court/nclts-approval-to-one-time-settlement-does-not-dilute-criminal-offences-bombay-high-court-clarifies-in-nsel-scam-527986
+### 2026-03-27T05:31:46+00:00
+PMK Leadership Dispute: Chennai Court Dismisses Ramadoss' Plea To Freeze Mango Symbol For Upcoming Election, Gives Liberty To Approach ECI
+https://www.livelaw.in/news-updates/chennai-city-civil-court-ramadoss-petition-freeze-mango-symbol-dismissed-528011
 
-[Read on Telegram](https://t.me/livelawindia/107702)
+[Read on Telegram](https://t.me/livelawindia/107716)
+
+---
+### 2026-03-27T05:32:46+00:00
+Plea Filed In Karnataka High Court Against MHA Circular On Vande Mataram, Claims It  Imposes 'Religiously Loaded' Version On Students
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-vande-mataram-row-deity-invocations-national-song-528009
+
+[Read on Telegram](https://t.me/livelawindia/107717)
+
+---
+### 2026-03-27T05:50:26+00:00
+Bombay High Court Dismisses Plea Seeking CBI Probe Against Mukesh Ambani's Reliance Industries For Allegedly Stealing Gas From ONGC Fields
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-dismisses-cbi-probe-mukesh-ambani-reliance-industries-over-gas-theft-528012
+
+[Read on Telegram](https://t.me/livelawindia/107718)
+
+---
+### 2026-03-27T06:02:06+00:00
+Delhi High Court To Pass Interim Order Protecting Personality Rights Of Actor Mohanlal
+https://www.livelaw.in/high-court/delhi-high-court/mohanlal-actor-personality-rights-interim-protection-528014
+
+[Read on Telegram](https://t.me/livelawindia/107719)
+
+---
+### 2026-03-27T06:03:06+00:00
+Allegations Of Police Shielding Gangster Raise 'Alarming Systemic Failure': Rajasthan High Court Seeks DGP's Intervention
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-flags-systemic-failure-orders-protection-threatened-petitioner-528013
+
+[Read on Telegram](https://t.me/livelawindia/107720)
+
+---
+### 2026-03-27T06:17:07+00:00
+Gujarat High Court Upholds Husband's Conviction For Strangulating Wife, Staging Death As Suicide
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-husband-murder-conviction-wife-strangulation-staging-suicide-528017
+
+[Read on Telegram](https://t.me/livelawindia/107721)
+
+---
+### 2026-03-27T06:23:12+00:00
+Judicial Orders Of Criminal Courts Can't Be Challenged U/Art 226: Allahabad High Court Relies On SC's 'Neeta Singh' Ruling
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-supreme-court-article-226-writ-not-maintainable-judicial-orders-criminal-courts-528020
+
+[Read on Telegram](https://t.me/livelawindia/107722)
+
+---
+### 2026-03-27T06:32:12+00:00
+Kerala Panchayat Raj Act | No Disqualification For Failure To File Election Expenses Without Notice, Hearing: High Court
+https://www.livelaw.in/high-court/kerala-high-court/show-cause-notice-hearing-mandatory-disqualification-under-section-33-kerala-panchayat-raj-act-528018
+
+[Read on Telegram](https://t.me/livelawindia/107723)
+
+---
+### 2026-03-27T06:50:48+00:00
+Kerala High Court Directs ECI To Consider Plea Against BJP's B Gopalakrishnan Over Alleged Communal Remarks
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-election-commission-representation-against-b-gopalakrishnan-communal-remarks-528022
+
+[Read on Telegram](https://t.me/livelawindia/107724)
+
+---
+### 2026-03-27T07:02:08+00:00
+Manamadurai Custodial Death: Madras HC Expresses Anguish Over Deceased Body Being Used As Means Of Protest, Cites Right To Decent Burial
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-manamadurai-custodial-death-anguish-body-used-for-protest-528023
+
+[Read on Telegram](https://t.me/livelawindia/107725)
 
 ---
