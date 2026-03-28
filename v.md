@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-28T13:32:23+00:00*
+*Last Updated: 2026-03-28T15:02:26+00:00*
+
+---
+
+### 2026-03-28T15:02:26+00:00
+Manager Vacancy At India Infrastructure Finance Company Limited (IIFCL)
+https://www.verdictum.in/job-updates/india-infrastructure-finance-company-limited-1610886
+
+[Source Link](https://t.me/verdictumlegalupdates/26202)
+
+---
+
+### 2026-03-28T14:12:45+00:00
+Minor Skirmishes Common In Joint Family: Karnataka High Court Quashes S. 498A IPC Case Against In-Laws
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/x-v-state-of-karnataka-criminal-petition-no12989-of-2024-498a-case-in-laws-domestic-discord-1610884
+
+[Source Link](https://t.me/verdictumlegalupdates/26201)
 
 ---
 
@@ -145,22 +161,6 @@ Overcrowding Of Cattle In Congested Spaces Amounts To Animal Cruelty: Tripura Hi
 https://www.verdictum.in/court-updates/high-courts/tripura-high-court/dhyan-foundation-goushala-v-the-state-of-tripura-ors-cruelty-to-animals-1610819
 
 [Source Link](https://t.me/verdictumlegalupdates/26183)
-
----
-
-### 2026-03-27T13:12:44+00:00
-Failure To Explain Wife’s Death Inside Matrimonial Home Attracts Burden U/S. 106 Evidence Act: Gujarat High Court Upholds Husband’s Conviction
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/pareshbhai-shankerbhai-taviyad-v-state-of-gujarat-2026gujhc21965-db-failure-to-explain-wifes-death-attracts-s-106-burden-1610816
-
-[Source Link](https://t.me/verdictumlegalupdates/26182)
-
----
-
-### 2026-03-27T12:32:42+00:00
-Deduction Of Pension For Grave Misconduct Can’t Be Based On One Instance Of Irregularity: Jharkhand High Court
-https://www.verdictum.in/court-updates/high-courts/jharkhand-high-court/state-of-jharkhand-ors-v-brajeshwar-singh-neutral-citation-2026jhhc7690-db-1610812
-
-[Source Link](https://t.me/verdictumlegalupdates/26181)
 
 ---
 
