@@ -1,86 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-28T04:47:53+00:00*
+*Last Updated: 2026-03-28T08:37:45+00:00*
 
 ---
 
-### 2026-03-28T04:47:53+00:00
-Former Calcutta High Court Judge Included In SIR Supplementary List After Initial Omission
-https://www.livelaw.in/news-updates/former-calcutta-high-court-judge-included-in-sir-supplementary-list-after-initial-omission-528116
-
-[Read on Telegram](https://t.me/livelawindia/107766)
-
----
-### 2026-03-28T04:48:03+00:00
-Rajasthan High Court Cracks Down On Unregulated Jawai Tourism; Bans Night Safaris, Use Of Drones To Protect Leopard Habitat
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-unregulated-jawai-tourism-night-safari-528117
-
-[Read on Telegram](https://t.me/livelawindia/107767)
-
----
-### 2026-03-28T05:08:13+00:00
-Bail Not An Absolute Right For Juvenile In Heinous Cases, Release Can Be Denied If It Defeats Ends Of Justice: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-jj-act-bail-not-an-absolute-right-for-juvenile-in-heinous-offences-release-can-be-denied-if-it-defeats-ends-of-justice-528104
-
-[Read on Telegram](https://t.me/livelawindia/107768)
-
----
-### 2026-03-28T05:32:13+00:00
-Supreme Court's 'Mihir Rajesh Shah' Directive Mandating Written Grounds Of Arrest Applies Prospectively: Orissa High Court
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-supply-written-grounds-arrest-528121
-
-[Read on Telegram](https://t.me/livelawindia/107769)
-
----
-### 2026-03-28T05:46:21+00:00
-Deputy Manager Vacancy At Deloitte Touche Tohmatsu India LLP [Delhi; Apply Now]
-https://www.livelaw.in/job-updates/deputy-manager-vacancy-at-deloitte-touche-tohmatsu-india-llp-delhi-528123
-
-[Read on Telegram](https://t.me/livelawindia/107770)
-
----
-### 2026-03-28T05:52:45+00:00
-Assistant Legal Aid Counsel Vacancy At District Legal Services Authority, Ahmednagar
-https://www.livelaw.in/job-updates/assistant-legal-aid-counsel-district-legal-services-authority-ahmednagar-528124
-
-[Read on Telegram](https://t.me/livelawindia/107771)
-
----
-### 2026-03-28T06:08:25+00:00
-Consultant (Finance) Vacancy At India Optel Limited
-https://www.livelaw.in/job-updates/consultant-finance-vacancy-at-india-optel-limited-528125
-
-[Read on Telegram](https://t.me/livelawindia/107772)
-
----
-### 2026-03-28T06:10:25+00:00
-Multiple Vacancies At Indian Renewable Energy Development Agency Limited (IREDA)
-https://www.livelaw.in/job-updates/multiple-vacancies-at-indian-renewable-energy-development-agency-limited-528126
-
-[Read on Telegram](https://t.me/livelawindia/107773)
-
----
-### 2026-03-28T06:37:45+00:00
-Tenant Liable For Possession Through Family Members, Can't Evade Liability By Claiming Non-Residence: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/tenant-liable-for-possession-through-family-members-cant-evade-liability-by-claiming-non-residence-delhi-high-court-528105
-
-[Read on Telegram](https://t.me/livelawindia/107774)
-
----
-### 2026-03-28T06:56:15+00:00
-Married Persons Cannot Enter Into Live-In Relationship Without Obtaining Divorce: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-married-persons-cant-livein-relationship-divorce-528131
-
-[Read on Telegram](https://t.me/livelawindia/107775)
-
----
-### 2026-03-28T07:55:05+00:00
-Ex-Gratia Payments Last Hope Of Dependents; Rules Must Be Considered Liberally: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-ex-gratia-payments-dependents-liberal-approach-528138
-
-[Read on Telegram](https://t.me/livelawindia/107776)
-
----
 ### 2026-03-28T08:37:45+00:00
 No Deemed Continuity Of Expired Driving Licence After 2019 MV Act Amendment: Delhi High Court
 https://www.livelaw.in/high-court/delhi-high-court/no-deemed-continuity-of-expired-driving-licence-after-2019-mv-act-amendment-delhi-high-court-528107
@@ -142,5 +65,82 @@ Sikkim High Court Sets Aside Interim Compensation For Alleged Railway Work Damag
 https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-sets-aside-interim-compensation-railway-work-damage-case-528148
 
 [Read on Telegram](https://t.me/livelawindia/107785)
+
+---
+### 2026-03-28T14:03:10+00:00
+[Disabilities Act] Disabled Employee Shifted To New Cadre Cannot Claim Seniority Based On Previous Service: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-disabled-employee-claim-seniority-section47-disabilities-act-528149
+
+[Read on Telegram](https://t.me/livelawindia/107786)
+
+---
+### 2026-03-28T14:32:20+00:00
+A Constitutional Critique Of Rajasthan's Disturbed Areas Bill, 2026
+https://www.livelaw.in/lawschool/articles/constitutional-critique-rajasthan-disturbed-areas-bill2026-528140
+
+[Read on Telegram](https://t.me/livelawindia/107787)
+
+---
+### 2026-03-28T14:57:20+00:00
+'Equity Must Guide Environmental Justice': Justice BV Nagarathna Delivers 4th S.B. Sinha Memorial Lecture
+https://www.livelaw.in/events/justice-bv-nagarathna-delivers-4th-sb-sinha-memorial-lecture-528164
+
+[Read on Telegram](https://t.me/livelawindia/107788)
+
+---
+### 2026-03-28T15:06:31+00:00
+Land Acquisition | Person Who Accepted S.28A Award Can File Second Application For Enhancement Based On Appeals : Supreme Court
+https://www.livelaw.in/supreme-court/land-acquisition-person-who-accepted-s28a-award-can-file-second-application-for-enhancement-based-on-appeals-supreme-court-528165
+
+[Read on Telegram](https://t.me/livelawindia/107789)
+
+---
+### 2026-03-28T15:07:51+00:00
+2026 LiveLaw (SC) 300 | ANDANAYYA AND ORS. VERSUS DEPUTY CHIEF ENGINEER AND ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-300-andanayya-and-ors-versus-deputy-chief-engineer-and-ors-528166
+
+[Read on Telegram](https://t.me/livelawindia/107790)
+
+---
+### 2026-03-28T15:19:11+00:00
+Electricity Act | Regulatory Commission Can Take Into Account Govt Grant While Determining Tariff : Supreme Court
+https://www.livelaw.in/supreme-court/electricity-act-regulatory-commission-can-take-into-account-govt-grant-while-determining-tariff-supreme-court-528167
+
+[Read on Telegram](https://t.me/livelawindia/107791)
+
+---
+### 2026-03-28T15:21:31+00:00
+2026 LiveLaw (SC) 301 |  SOUTHERN POWER DISTRIBUTION COMPANY OF ANDHRA PRADESH LIMITED & ANR. VERSUS GREEN INFRA WIND SOLUTIONS LIMITED & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-301-southern-power-distribution-company-of-andhra-pradesh-limited-anr-versus-green-infra-wind-solutions-limited-ors-528168
+
+[Read on Telegram](https://t.me/livelawindia/107792)
+
+---
+### 2026-03-28T15:50:51+00:00
+Bhojshala Temple - Kamal Maula Dispute : Plea In Supreme Court Challenges MP High Court Judges' Decision To Visit Site
+https://www.livelaw.in/top-stories/bhojshala-temple-kamal-maula-dispute-plea-in-supreme-court-challenges-mp-high-court-judges-decision-to-visit-site-528169
+
+[Read on Telegram](https://t.me/livelawindia/107793)
+
+---
+### 2026-03-28T16:11:25+00:00
+6th Adamas Moot Court Competition 2026 | Adamas University [9th April – 11th April, 2026]
+https://www.livelaw.in/lawschool/moot-courts/6th-adamas-moot-court-competition-2026-adamas-university-528170
+
+[Read on Telegram](https://t.me/livelawindia/107794)
+
+---
+### 2026-03-28T16:13:05+00:00
+Section 144 BNSS | Daughter-In-Law Not Legally Obligated To Maintain Parents-In-Law : Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-125-crpc-144-bnss-daughter-in-law-not-legally-obligated-maintain-parents-in-law-528171
+
+[Read on Telegram](https://t.me/livelawindia/107795)
+
+---
+### 2026-03-28T16:34:08+00:00
+Anil Ambani Files Defamation Suit In Bombay High Court Against Arnab Goswami, Republic TV
+https://www.livelaw.in/top-stories/anil-ambani-files-defamation-suit-in-bombay-high-court-against-arnab-goswami-republic-tv-528172
+
+[Read on Telegram](https://t.me/livelawindia/107796)
 
 ---
