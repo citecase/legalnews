@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-27T11:28:41+00:00*
+*Last Updated: 2026-03-27T13:43:25+00:00*
 
 ---
 
-### 2026-03-27T11:28:41+00:00
-'Overloaded Vehicles Cannot Be Allowed To Ply Without Removing Excess Load': Patna High Court Calls For Strict Enforcement
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-overloaded-vehicles-cannot-allowed-removing-excess-load-528067
-
-[Read on Telegram](https://t.me/livelawindia/107743)
-
----
-### 2026-03-27T11:42:37+00:00
-'Suspicion Cannot Replace Proof': Patna High Court Acquits Accused In Ara Court Blast Case, Sets Aside Death Sentence
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-acquits-accused-ara-court-blast-case-528058
-
-[Read on Telegram](https://t.me/livelawindia/107744)
-
----
-### 2026-03-27T11:57:27+00:00
-Over 24 Lakh Cases Disposed In 1st National Lok Adalat Of 2026 In Jharkhand
-https://www.livelaw.in/events/cases-disposed-national-jharkhand-lok-adalat2026-528068
-
-[Read on Telegram](https://t.me/livelawindia/107745)
-
----
-### 2026-03-27T12:07:09+00:00
-Sabarimala Reference | Courts Should Not Determine Essential Religious Practices : All India Muslim Personal Law Board Tells Supreme Court
-https://www.livelaw.in/top-stories/sabarimala-reference-courts-should-not-determine-essential-religious-practices-all-india-muslim-personal-law-board-tells-supreme-court-528075
-
-[Read on Telegram](https://t.me/livelawindia/107746)
-
----
-### 2026-03-27T12:32:29+00:00
-'Can Single Member Constitute PMLA Adjudicating Authority?': Karnataka High Court Asks In ED Probe Against Partnership Firm
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-questions-legality-one-member-body-ed-probe-528079
-
-[Read on Telegram](https://t.me/livelawindia/107747)
-
----
-### 2026-03-27T12:52:49+00:00
-Advocate May Be Member Of Several Bar Associations, But Can Only Vote Once: Calcutta HC Flags Duplicate Entries In Bar Council Election List
-https://www.livelaw.in/high-court/calcutta-high-court/duplicate-entries-unthinkable-calcutta-high-court-flags-voter-roll-manipulation-in-wb-bar-council-election-528038
-
-[Read on Telegram](https://t.me/livelawindia/107748)
-
----
-### 2026-03-27T12:55:59+00:00
-Section 166 MV Act | Not Impleading Offending Vehicle's Driver Renders Claim Defective And Non Maintainable: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-rules-driver-of-offending-vehicle-necessary-party-for-claim-section-166-motor-vehicles-act-528082
-
-[Read on Telegram](https://t.me/livelawindia/107749)
-
----
-### 2026-03-27T12:56:09+00:00
-MPSLSA Conducts One-Day Online Training Programme For Paralegal Volunteers
-https://www.livelaw.in/news-updates/mpslsa-conducts-one-day-online-training-programme-for-paralegal-volunteers-528081
-
-[Read on Telegram](https://t.me/livelawindia/107750)
-
----
-### 2026-03-27T13:07:44+00:00
-Non-Disclosure Of Intelligence Identifying Activities Of OGWs Does Not Vitiate Preventive Detention: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-activities-of-ogws-identified-through-intelligence-inputs-non-disclosure-of-such-material-does-not-vitiate-preventive-detention-jk-high-court-528054
-
-[Read on Telegram](https://t.me/livelawindia/107751)
-
----
-### 2026-03-27T13:25:24+00:00
-Dismissal Of Suit For Default Not Res Judicata, But Party May Still Be Denied Relief For Abandoning Earlier Proceedings : Supreme Court
-https://www.livelaw.in/supreme-court/dismissal-of-suit-for-default-not-res-judicata-but-party-may-still-be-denied-relief-for-abandoning-earlier-proceedings-supreme-court-528083
-
-[Read on Telegram](https://t.me/livelawindia/107752)
-
----
-### 2026-03-27T13:28:04+00:00
-2026 LiveLaw (SC) 299 | SHARADA SANGHI & ORS. VS. ASHA AGARWAL & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-299-sharada-sanghi-ors-vs-asha-agarwal-ors-528084
-
-[Read on Telegram](https://t.me/livelawindia/107753)
-
----
-### 2026-03-27T13:37:45+00:00
-J&K&L High Court Orders MHA To Bring Back Minor Deported To Pakistan; Says Humanitarian Concerns Must Guide Sovereign Decisions
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-kashmir-high-court-deported-minor-indian-father-mha-citizenship-plea-528056
-
-[Read on Telegram](https://t.me/livelawindia/107754)
-
----
-### 2026-03-27T13:42:55+00:00
-'Assault On Public Servants By A Private Individual Constitutes Offence Of Moral Turpitude': Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-assault-public-servants-private-individual-moral-turpitude-528053
-
-[Read on Telegram](https://t.me/livelawindia/107755)
-
----
 ### 2026-03-27T13:43:25+00:00
 DBRANLU Law Review Journal (Students' Edition) Invites Submissions For Inaugural Volume (2026)
 https://www.livelaw.in/lawschool/call-for-papers/dbranlu-law-review-journal-students-edition-invites-submissions-inaugural-volume-528086
@@ -142,5 +51,96 @@ Woman Gets 10-Year Jail For Facilitating Rape, Delhi High Court Cites Continued 
 https://www.livelaw.in/high-court/delhi-high-court/woman-gets-10-year-jail-for-facilitating-rape-delhi-high-court-cites-continued-criminal-conduct-528102
 
 [Read on Telegram](https://t.me/livelawindia/107762)
+
+---
+### 2026-03-28T04:05:18+00:00
+"Abuse Of Process": Bombay High Court While Dismissing Plea Against Adani Green Energy In 'Bribery' Case
+https://www.livelaw.in/high-court/bombay-high-court/adani-green-energy-bribery-case-dismissed-abuse-of-process-528111
+
+[Read on Telegram](https://t.me/livelawindia/107763)
+
+---
+### 2026-03-28T04:32:23+00:00
+Shared Liability- Missing Link In New Shanti Bill, 2025
+https://www.livelaw.in/articles/shared-liability-missing-link-shanti-bill2025-528049
+
+[Read on Telegram](https://t.me/livelawindia/107764)
+
+---
+### 2026-03-28T04:33:03+00:00
+Karnataka High Court Stays Probe Against School Staff Accused Of Punishing Students By Making Them Stand In Sun
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-stays-case-bengaluru-school-principal-teachers-students-stand-sun-528114
+
+[Read on Telegram](https://t.me/livelawindia/107765)
+
+---
+### 2026-03-28T04:47:53+00:00
+Former Calcutta High Court Judge Included In SIR Supplementary List After Initial Omission
+https://www.livelaw.in/news-updates/former-calcutta-high-court-judge-included-in-sir-supplementary-list-after-initial-omission-528116
+
+[Read on Telegram](https://t.me/livelawindia/107766)
+
+---
+### 2026-03-28T04:48:03+00:00
+Rajasthan High Court Cracks Down On Unregulated Jawai Tourism; Bans Night Safaris, Use Of Drones To Protect Leopard Habitat
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-unregulated-jawai-tourism-night-safari-528117
+
+[Read on Telegram](https://t.me/livelawindia/107767)
+
+---
+### 2026-03-28T05:08:13+00:00
+Bail Not An Absolute Right For Juvenile In Heinous Cases, Release Can Be Denied If It Defeats Ends Of Justice: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-jj-act-bail-not-an-absolute-right-for-juvenile-in-heinous-offences-release-can-be-denied-if-it-defeats-ends-of-justice-528104
+
+[Read on Telegram](https://t.me/livelawindia/107768)
+
+---
+### 2026-03-28T05:32:13+00:00
+Supreme Court's 'Mihir Rajesh Shah' Directive Mandating Written Grounds Of Arrest Applies Prospectively: Orissa High Court
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-supply-written-grounds-arrest-528121
+
+[Read on Telegram](https://t.me/livelawindia/107769)
+
+---
+### 2026-03-28T05:46:21+00:00
+Deputy Manager Vacancy At Deloitte Touche Tohmatsu India LLP [Delhi; Apply Now]
+https://www.livelaw.in/job-updates/deputy-manager-vacancy-at-deloitte-touche-tohmatsu-india-llp-delhi-528123
+
+[Read on Telegram](https://t.me/livelawindia/107770)
+
+---
+### 2026-03-28T05:52:45+00:00
+Assistant Legal Aid Counsel Vacancy At District Legal Services Authority, Ahmednagar
+https://www.livelaw.in/job-updates/assistant-legal-aid-counsel-district-legal-services-authority-ahmednagar-528124
+
+[Read on Telegram](https://t.me/livelawindia/107771)
+
+---
+### 2026-03-28T06:08:25+00:00
+Consultant (Finance) Vacancy At India Optel Limited
+https://www.livelaw.in/job-updates/consultant-finance-vacancy-at-india-optel-limited-528125
+
+[Read on Telegram](https://t.me/livelawindia/107772)
+
+---
+### 2026-03-28T06:10:25+00:00
+Multiple Vacancies At Indian Renewable Energy Development Agency Limited (IREDA)
+https://www.livelaw.in/job-updates/multiple-vacancies-at-indian-renewable-energy-development-agency-limited-528126
+
+[Read on Telegram](https://t.me/livelawindia/107773)
+
+---
+### 2026-03-28T06:37:45+00:00
+Tenant Liable For Possession Through Family Members, Can't Evade Liability By Claiming Non-Residence: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/tenant-liable-for-possession-through-family-members-cant-evade-liability-by-claiming-non-residence-delhi-high-court-528105
+
+[Read on Telegram](https://t.me/livelawindia/107774)
+
+---
+### 2026-03-28T06:56:15+00:00
+Married Persons Cannot Enter Into Live-In Relationship Without Obtaining Divorce: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-married-persons-cant-livein-relationship-divorce-528131
+
+[Read on Telegram](https://t.me/livelawindia/107775)
 
 ---
