@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-27T13:43:25+00:00*
+*Last Updated: 2026-03-28T04:47:53+00:00*
 
 ---
 
-### 2026-03-27T13:43:25+00:00
-DBRANLU Law Review Journal (Students' Edition) Invites Submissions For Inaugural Volume (2026)
-https://www.livelaw.in/lawschool/call-for-papers/dbranlu-law-review-journal-students-edition-invites-submissions-inaugural-volume-528086
-
-[Read on Telegram](https://t.me/livelawindia/107756)
-
----
-### 2026-03-27T14:32:55+00:00
-Acceptance Of Olfactory Marks In India: Challenges And Way Forward
-https://www.livelaw.in/articles/acceptance-olfactory-marks-india-challenges-528048
-
-[Read on Telegram](https://t.me/livelawindia/107757)
-
----
-### 2026-03-27T14:37:35+00:00
-Confessions Can Guide Police Investigations Even If They Can't Be Part Of Charge Sheet: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-confessions-police-probe-excluded-chargesheet-clarifies-sc-sanju-bansal-ruling-528087
-
-[Read on Telegram](https://t.me/livelawindia/107758)
-
----
-### 2026-03-27T15:17:45+00:00
-'Beyond Imagination How Seized Items Were Termed Contraband Without FSL Report': Patna High Court Acquits NDPS Accused After 27 Years
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-acquits-accused-ndps-case-seized-items-termed-contraband-fsl-report-528060
-
-[Read on Telegram](https://t.me/livelawindia/107759)
-
----
-### 2026-03-27T15:27:45+00:00
-Co-Operative Society Can Refuse Membership To Buyer If Builder Sells 'Refuge Area' As Residential Flat: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-cooperative-society-membership-refuge-area-residential-flat-528055
-
-[Read on Telegram](https://t.me/livelawindia/107760)
-
----
-### 2026-03-27T15:46:35+00:00
-Plea Against Mukesh Ambani's Reliance Over Alleged 'Gas Theft' An Abuse Of Process; Can Harm Reputation, Affect Business: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/mukesh-ambani-reliance-industries-gas-theft-allegations-harm-reputation-abuse-of-process-528095
-
-[Read on Telegram](https://t.me/livelawindia/107761)
-
----
-### 2026-03-27T16:14:35+00:00
-Woman Gets 10-Year Jail For Facilitating Rape, Delhi High Court Cites Continued Criminal Conduct
-https://www.livelaw.in/high-court/delhi-high-court/woman-gets-10-year-jail-for-facilitating-rape-delhi-high-court-cites-continued-criminal-conduct-528102
-
-[Read on Telegram](https://t.me/livelawindia/107762)
-
----
-### 2026-03-28T04:05:18+00:00
-"Abuse Of Process": Bombay High Court While Dismissing Plea Against Adani Green Energy In 'Bribery' Case
-https://www.livelaw.in/high-court/bombay-high-court/adani-green-energy-bribery-case-dismissed-abuse-of-process-528111
-
-[Read on Telegram](https://t.me/livelawindia/107763)
-
----
-### 2026-03-28T04:32:23+00:00
-Shared Liability- Missing Link In New Shanti Bill, 2025
-https://www.livelaw.in/articles/shared-liability-missing-link-shanti-bill2025-528049
-
-[Read on Telegram](https://t.me/livelawindia/107764)
-
----
-### 2026-03-28T04:33:03+00:00
-Karnataka High Court Stays Probe Against School Staff Accused Of Punishing Students By Making Them Stand In Sun
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-stays-case-bengaluru-school-principal-teachers-students-stand-sun-528114
-
-[Read on Telegram](https://t.me/livelawindia/107765)
-
----
 ### 2026-03-28T04:47:53+00:00
 Former Calcutta High Court Judge Included In SIR Supplementary List After Initial Omission
 https://www.livelaw.in/news-updates/former-calcutta-high-court-judge-included-in-sir-supplementary-list-after-initial-omission-528116
@@ -142,5 +72,75 @@ Married Persons Cannot Enter Into Live-In Relationship Without Obtaining Divorce
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-married-persons-cant-livein-relationship-divorce-528131
 
 [Read on Telegram](https://t.me/livelawindia/107775)
+
+---
+### 2026-03-28T07:55:05+00:00
+Ex-Gratia Payments Last Hope Of Dependents; Rules Must Be Considered Liberally: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-ex-gratia-payments-dependents-liberal-approach-528138
+
+[Read on Telegram](https://t.me/livelawindia/107776)
+
+---
+### 2026-03-28T08:37:45+00:00
+No Deemed Continuity Of Expired Driving Licence After 2019 MV Act Amendment: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/no-deemed-continuity-of-expired-driving-licence-after-2019-mv-act-amendment-delhi-high-court-528107
+
+[Read on Telegram](https://t.me/livelawindia/107777)
+
+---
+### 2026-03-28T09:12:35+00:00
+Rape Conviction Cannot Rest On Suspicion; Chain Of Custody Defects Undermine Forensic Evidence: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-rape-conviction-chain-of-custody-forensic-evidence-528106
+
+[Read on Telegram](https://t.me/livelawindia/107778)
+
+---
+### 2026-03-28T09:32:29+00:00
+Do The New Labour Codes Make Working Hours More Arduous?
+https://www.livelaw.in/articles/new-labour-codes-working-hours-528052
+
+[Read on Telegram](https://t.me/livelawindia/107779)
+
+---
+### 2026-03-28T10:07:29+00:00
+"No Compensation Without Proof Of Bona Fide Travel": Delhi HC Dismisses Claim Despite Amputation Of Both Hands After Train Accident
+https://www.livelaw.in/high-court/delhi-high-court/no-compensation-without-proof-of-bona-fide-travel-delhi-hc-dismisses-claim-despite-amputation-of-both-hands-after-train-accident-528108
+
+[Read on Telegram](https://t.me/livelawindia/107780)
+
+---
+### 2026-03-28T10:12:29+00:00
+Brother Cultivating Widowed Sister's Land Is 'Family Member', Not 'Deemed Tenant' Under Maharashtra Tenancy Act: High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-cultivating-widowed-sister-land-maharashtra-tenancy-act-528120
+
+[Read on Telegram](https://t.me/livelawindia/107781)
+
+---
+### 2026-03-28T10:27:59+00:00
+“Detention Based On Vague Suspicion Violates Article 21": J&K&L High Court Strikes Down Detention Order Against 19-Yr-Old Student
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-personal-liberty-not-meant-to-be-a-matter-of-skating-on-thin-ice-preventive-detention-cannot-be-sustained-on-unfounded-and-mirage-like-suspicion-528109
+
+[Read on Telegram](https://t.me/livelawindia/107782)
+
+---
+### 2026-03-28T11:18:00+00:00
+CPC | Amendment Can't Be Used To Retract Admissions Conferring Rights On Opposite Party: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/cpc-amendment-cant-be-used-to-retract-admissions-conferring-rights-on-opposite-party-delhi-high-court-528147
+
+[Read on Telegram](https://t.me/livelawindia/107783)
+
+---
+### 2026-03-28T12:17:30+00:00
+“Withdrawal With Liberty To File Afresh Doesn't Permit New Reliefs": Bombay High Court Rejects Plaint
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-withdrawing-earlier-suit-fresh-suit-filed-additional-relief-528145
+
+[Read on Telegram](https://t.me/livelawindia/107784)
+
+---
+### 2026-03-28T12:38:00+00:00
+Sikkim High Court Sets Aside Interim Compensation For Alleged Railway Work Damage; Notes No Such Relief Was Sought
+https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-sets-aside-interim-compensation-railway-work-damage-case-528148
+
+[Read on Telegram](https://t.me/livelawindia/107785)
 
 ---
