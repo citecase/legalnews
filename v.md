@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-28T06:52:41+00:00*
+*Last Updated: 2026-03-28T13:32:23+00:00*
+
+---
+
+### 2026-03-28T13:32:23+00:00
+Wife Lived Separately Without Taking Care Of Children & Filed Criminal Case; Cruelty Established: Madras High Court Grants Divorce To Husband
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/ab-v-xy-wife-lived-separately-filed-criminal-case-cruelty-dissolve-marriage-1610885
+
+[Source Link](https://t.me/verdictumlegalupdates/26200)
+
+---
+
+### 2026-03-28T12:52:42+00:00
+Digital Assets Like Data & Code Property Of Company; Shareholder Can’t Claim Ownership To Defeat Misappropriation Allegations: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/aashay-harlalka-v-state-of-karnataka-anr-data-misappropriation-ipr-1610894
+
+[Source Link](https://t.me/verdictumlegalupdates/26199)
+
+---
+
+### 2026-03-28T12:03:01+00:00
+Clandestine Attempts Made To Unfreeze Bank Accounts; Can’t Presume Bar Association Is Unaware: Kerala High Court Calls For Enquiry
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/kerala-high-court-advocates-association-v-state-of-kerala-clandestine-attempts-unfreeze-bank-accounts-enquiry-1610881
+
+[Source Link](https://t.me/verdictumlegalupdates/26198)
+
+---
+
+### 2026-03-28T11:12:29+00:00
+Presumption Of Existence Of Vacancy If Engagement Of Workman Is For Substantially Long Term: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/long-term-engagement-presumes-perennial-nature-work-employer-nagar-nigam-1610879
+
+[Source Link](https://t.me/verdictumlegalupdates/26197)
+
+---
+
+### 2026-03-28T10:32:28+00:00
+Courts Must Not Attempt To Judicially Determine Nature Of Religious Practices: Muslim Personal Law Board Tells Supreme Court In Sabarimala Review Case
+https://www.verdictum.in/court-updates/supreme-court/all-india-muslim-personal-law-board-sabarimala-review-1610877
+
+[Source Link](https://t.me/verdictumlegalupdates/26196)
+
+---
+
+### 2026-03-28T09:52:26+00:00
+Refuge Area Cannot Be Treated As Flat For Grant Of Co-operative Society Membership: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/dheeraj-dreams-building-no1-chs-ltd-ors-v-divisional-joint-registrar-co-operative-societies-ors-2026bhc-os7221-1610874
+
+[Source Link](https://t.me/verdictumlegalupdates/26195)
+
+---
+
+### 2026-03-28T09:03:05+00:00
+Non-Compliance With Mandatory Bid Security Justifies Disqualification: Chhattisgarh High Court Upholds WAPCOS Tender Decision
+https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/ms-ramsaran-singh-projects-llp-v-wapcos-limited-wpc-no-5479-of-2025-1610872
+
+[Source Link](https://t.me/verdictumlegalupdates/26194)
+
+---
+
+### 2026-03-28T08:12:43+00:00
+Patents Act| Controller Must Refer Patent Application For Examination And Afford Hearing If Examiner’s Report Is Adverse: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/vishal-prafulsingh-solanke-anr-v-controller-of-patent-and-designs-ors-2026bhc-os7027-db-1610865
+
+[Source Link](https://t.me/verdictumlegalupdates/26193)
+
+---
+
+### 2026-03-28T07:33:03+00:00
+Victim Narrated All Occurrence In Detail & Same Isn’t Shaken: Kerala High Court Upholds POCSO Conviction
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/vishnu-unni-v-the-state-of-kerala-2026ker26885-victim-occurrence-detail-pocso-conviction-1610864
+
+[Source Link](https://t.me/verdictumlegalupdates/26192)
 
 ---
 
@@ -89,78 +161,6 @@ Deduction Of Pension For Grave Misconduct Can’t Be Based On One Instance Of Ir
 https://www.verdictum.in/court-updates/high-courts/jharkhand-high-court/state-of-jharkhand-ors-v-brajeshwar-singh-neutral-citation-2026jhhc7690-db-1610812
 
 [Source Link](https://t.me/verdictumlegalupdates/26181)
-
----
-
-### 2026-03-27T11:52:41+00:00
-Rajasthan High Court Directs DGP To Draft Policy For Separation Of Powers Of Police's Investigation And Law & Order Wings To Curb Chronic Delays
-https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/2026rj-jp10953-jitendra-meena-v-state-of-rajasthan-1610811
-
-[Source Link](https://t.me/verdictumlegalupdates/26180)
-
----
-
-### 2026-03-27T11:12:50+00:00
-Waitlisted Candidate Cannot Claim Appointment After Panel Lapses: Patna High Court In Civil Court Clerk Recruitment Case
-https://www.verdictum.in/court-updates/high-courts/patna-high-court/the-patna-high-court-v-chandan-kumar-letters-patent-appeal-no891-of-2025-waitlisted-candidate-civil-court-clerk-recruitment-case-1610809
-
-[Source Link](https://t.me/verdictumlegalupdates/26179)
-
----
-
-### 2026-03-27T10:32:29+00:00
-Follow Due Process Of Law: Delhi High Court To Centre While Staying Eviction Of Race Club, Polo Ground
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/delhi-race-club-v-union-of-india-due-process-of-law-centre-staying-eviction-polo-ground-1610807
-
-[Source Link](https://t.me/verdictumlegalupdates/26178)
-
----
-
-### 2026-03-27T09:52:47+00:00
-Merit Must Govern Not Just Selection But Allocation: Punjab & Haryana High Court Slams HSSC’s Opaque Department Allotment Process
-https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/aman-duddi-v-haryana-staff-selection-commission-2026phhc042652-hsscs-opaque-department-allotment-process-1610804
-
-[Source Link](https://t.me/verdictumlegalupdates/26177)
-
----
-
-### 2026-03-27T09:12:26+00:00
-Allahabad High Court Orders Central Govt To Produce Records In Rahul Gandhi’s Dual Citizenship Case; Impleads Home Ministry
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/s-vignesh-shishir-v-sri-rahul-gandhi-application-implead-centre-opposite-party-dual-citizenship-case-1610802
-
-[Source Link](https://t.me/verdictumlegalupdates/26176)
-
----
-
-### 2026-03-27T08:32:24+00:00
-NCLT Can’t Dilute Consequences Of Criminal Prosecution By Accepting Agreement Executed Between Parties: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/2026bhcas14523db-63-moons-technologies-limited-v-union-of-india-1610796
-
-[Source Link](https://t.me/verdictumlegalupdates/26175)
-
----
-
-### 2026-03-27T07:52:23+00:00
-Inadvertent Technical Error In Online Application Not Suppression Of Facts: Madhya Pradesh High Court Sets Aside Candidate’s Disqualification
-https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/rohit-gami-v-union-of-india-through-chairman-staff-selection-commission-2026mphc-ind8131-1610795
-
-[Source Link](https://t.me/verdictumlegalupdates/26174)
-
----
-
-### 2026-03-27T07:12:02+00:00
-Wrong For Any Religion To Claim That It Is The Only True Religion: Allahabad High Court Dismisses Christian Priest’s Application
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/rev-fr-vineet-vincent-pereira-alias-father-vineet-vinicent-paresh-v-state-of-up-2026ahc56120-religion-claim-christian-priest-fir-1610792
-
-[Source Link](https://t.me/verdictumlegalupdates/26173)
-
----
-
-### 2026-03-27T06:42:20+00:00
-Employee Cannot Be Denied Higher Pension Due To Employer’s Missing Records: Bombay High Court Sets Aside EPFO Order
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/kiran-rajaram-jadhav-v-epfo-2026bhc-as14389-employee-denied-higher-pension-missing-records-1610788
-
-[Source Link](https://t.me/verdictumlegalupdates/26172)
 
 ---
 
