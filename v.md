@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-27T16:02:51+00:00*
+*Last Updated: 2026-03-28T06:52:41+00:00*
+
+---
+
+### 2026-03-28T06:52:41+00:00
+Authorities Can Stop Overloaded Vehicle & Ask For Offloading Of Excess Cargo Before Allowing It To Proceed: Patna High Court
+https://www.verdictum.in/court-updates/high-courts/patna-high-court/vikas-kumar-v-the-union-of-india-ors-authorities-overloaded-vehicle-offloading-excess-cargo-1610860
+
+[Source Link](https://t.me/verdictumlegalupdates/26191)
+
+---
+
+### 2026-03-28T06:02:19+00:00
+Relief U/S 9 A&C Act Can Be Granted Even After Filing Of Petition Seeking Enforcement & Recognition Of Foreign Award: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/osterreichischer-lloyd-seereederei-cyprus-ltd-v-victore-ships-pvt-ltd-commercial-arbitration-petition-no-398-of-2025-relief-us-9-arbitration-act-1610853
+
+[Source Link](https://t.me/verdictumlegalupdates/26190)
+
+---
+
+### 2026-03-28T05:12:37+00:00
+Courts Cannot Compel Issuance Of A Marksheet Reflecting Marks That Don’t Match University Records: Calcutta High Court
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/abhishek-maity-v-the-west-bengal-state-university-ors-fake-marksheet-1610852
+
+[Source Link](https://t.me/verdictumlegalupdates/26189)
+
+---
+
+### 2026-03-28T04:33:06+00:00
+No Right, Title Or Interest Over Land: Allahabad High Court Dismissed Petition Challenging Eviction Of Mosque Built On Gram Sabha Land
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/shahban-and-another-v-state-of-up2026ahc-lko21285-stay-eviction-of-mosque-gram-sabha-land-1610829
+
+[Source Link](https://t.me/verdictumlegalupdates/26188)
 
 ---
 
@@ -129,38 +161,6 @@ Employee Cannot Be Denied Higher Pension Due To Employer’s Missing Records: Bo
 https://www.verdictum.in/court-updates/high-courts/bombay-high-court/kiran-rajaram-jadhav-v-epfo-2026bhc-as14389-employee-denied-higher-pension-missing-records-1610788
 
 [Source Link](https://t.me/verdictumlegalupdates/26172)
-
----
-
-### 2026-03-27T06:02:19+00:00
-Protecting Society From Counterfeit Medicines Is Essential: Bombay High Court Cancels Bail In Spurious Drug Racket Case
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/2026-bhc-nag-4723-state-v-robin-himanshu-vijaykumar-taneja-1610784
-
-[Source Link](https://t.me/verdictumlegalupdates/26171)
-
----
-
-### 2026-03-27T05:22:38+00:00
-Madras High Court Orders Inspection Of Idols Installed Under Tree; Disposes Plea Alleging Encroachment Of Public Places
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/apalanisamy-v-the-district-collector-2026mhc1184-inspection-idols-tree-allegations-encroachments-construction-1610779
-
-[Source Link](https://t.me/verdictumlegalupdates/26170)
-
----
-
-### 2026-03-27T04:33:07+00:00
-"Inhuman And Unfathomable": Gujarat High Court Quashes Family Court Order Mandating Toddler’s 6-Hour Visitation With Grandparents In Court Premises
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/2026-gujhc-22011-masiben-v-keshavjibhai-damjibhai-ghetiya-1610771
-
-[Source Link](https://t.me/verdictumlegalupdates/26169)
-
----
-
-### 2026-03-26T16:03:05+00:00
-Senior Analyst Vacancy At National Bank for Financing Infrastructure and Development (NaBFID)
-https://www.verdictum.in/job-updates/national-bank-for-financing-infrastructure-and-development-1610741
-
-[Source Link](https://t.me/verdictumlegalupdates/26168)
 
 ---
 
