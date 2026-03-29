@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-28T08:37:45+00:00*
+*Last Updated: 2026-03-28T12:38:00+00:00*
 
 ---
 
-### 2026-03-28T08:37:45+00:00
-No Deemed Continuity Of Expired Driving Licence After 2019 MV Act Amendment: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/no-deemed-continuity-of-expired-driving-licence-after-2019-mv-act-amendment-delhi-high-court-528107
-
-[Read on Telegram](https://t.me/livelawindia/107777)
-
----
-### 2026-03-28T09:12:35+00:00
-Rape Conviction Cannot Rest On Suspicion; Chain Of Custody Defects Undermine Forensic Evidence: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-rape-conviction-chain-of-custody-forensic-evidence-528106
-
-[Read on Telegram](https://t.me/livelawindia/107778)
-
----
-### 2026-03-28T09:32:29+00:00
-Do The New Labour Codes Make Working Hours More Arduous?
-https://www.livelaw.in/articles/new-labour-codes-working-hours-528052
-
-[Read on Telegram](https://t.me/livelawindia/107779)
-
----
-### 2026-03-28T10:07:29+00:00
-"No Compensation Without Proof Of Bona Fide Travel": Delhi HC Dismisses Claim Despite Amputation Of Both Hands After Train Accident
-https://www.livelaw.in/high-court/delhi-high-court/no-compensation-without-proof-of-bona-fide-travel-delhi-hc-dismisses-claim-despite-amputation-of-both-hands-after-train-accident-528108
-
-[Read on Telegram](https://t.me/livelawindia/107780)
-
----
-### 2026-03-28T10:12:29+00:00
-Brother Cultivating Widowed Sister's Land Is 'Family Member', Not 'Deemed Tenant' Under Maharashtra Tenancy Act: High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-cultivating-widowed-sister-land-maharashtra-tenancy-act-528120
-
-[Read on Telegram](https://t.me/livelawindia/107781)
-
----
-### 2026-03-28T10:27:59+00:00
-“Detention Based On Vague Suspicion Violates Article 21": J&K&L High Court Strikes Down Detention Order Against 19-Yr-Old Student
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-personal-liberty-not-meant-to-be-a-matter-of-skating-on-thin-ice-preventive-detention-cannot-be-sustained-on-unfounded-and-mirage-like-suspicion-528109
-
-[Read on Telegram](https://t.me/livelawindia/107782)
-
----
-### 2026-03-28T11:18:00+00:00
-CPC | Amendment Can't Be Used To Retract Admissions Conferring Rights On Opposite Party: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/cpc-amendment-cant-be-used-to-retract-admissions-conferring-rights-on-opposite-party-delhi-high-court-528147
-
-[Read on Telegram](https://t.me/livelawindia/107783)
-
----
-### 2026-03-28T12:17:30+00:00
-“Withdrawal With Liberty To File Afresh Doesn't Permit New Reliefs": Bombay High Court Rejects Plaint
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-withdrawing-earlier-suit-fresh-suit-filed-additional-relief-528145
-
-[Read on Telegram](https://t.me/livelawindia/107784)
-
----
 ### 2026-03-28T12:38:00+00:00
 Sikkim High Court Sets Aside Interim Compensation For Alleged Railway Work Damage; Notes No Such Relief Was Sought
 https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-sets-aside-interim-compensation-railway-work-damage-case-528148
@@ -142,5 +86,61 @@ Anil Ambani Files Defamation Suit In Bombay High Court Against Arnab Goswami, Re
 https://www.livelaw.in/top-stories/anil-ambani-files-defamation-suit-in-bombay-high-court-against-arnab-goswami-republic-tv-528172
 
 [Read on Telegram](https://t.me/livelawindia/107796)
+
+---
+### 2026-03-29T04:53:10+00:00
+Supreme Court Monthly Roundup: February 2026
+https://www.livelaw.in/round-ups/monthly/supreme-court-monthly-roundup-february-2026-528176
+
+[Read on Telegram](https://t.me/livelawindia/107797)
+
+---
+### 2026-03-29T04:58:30+00:00
+Incarceration Without Trial Amounts To Punishment: Supreme Court Grants Bail To Man After Two Years' Undertrial Custody
+https://www.livelaw.in/top-stories/incarceration-without-trial-amounts-to-punishment-supreme-court-grants-bail-to-man-after-two-years-undertrial-custody-528177
+
+[Read on Telegram](https://t.me/livelawindia/107798)
+
+---
+### 2026-03-29T05:00:10+00:00
+2026 LiveLaw (SC) 302 | Pardeep Kumar @ Banu v. State of Punjab
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-302-pardeep-kumar-banu-v-state-of-punjab-528178
+
+[Read on Telegram](https://t.me/livelawindia/107799)
+
+---
+### 2026-03-29T05:18:30+00:00
+'Fraudulent Insurance Claims With Staged Incidents Common' : Supreme Court Orders SIT Probe Into Fake Fire Claim
+https://www.livelaw.in/top-stories/fraudulent-insurance-claims-with-staged-incidents-common-supreme-court-orders-sit-probe-into-fake-fire-claim-528182
+
+[Read on Telegram](https://t.me/livelawindia/107800)
+
+---
+### 2026-03-29T05:23:20+00:00
+2026 LiveLaw (SC) 303 | United India Insurance Co. Ltd. v. Sayona Colors Pvt. Ltd.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-303-united-india-insurance-co-ltd-v-sayona-colors-pvt-ltd-528184
+
+[Read on Telegram](https://t.me/livelawindia/107801)
+
+---
+### 2026-03-29T05:39:20+00:00
+Calcutta High Court Acquits Man In Rape Case, Says Complaint Filed “Out Of Grudge” After Breakdown Of Relationship
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-acquits-man-in-rape-case-says-complaint-filed-out-of-grudge-after-breakdown-of-relationship-528185
+
+[Read on Telegram](https://t.me/livelawindia/107802)
+
+---
+### 2026-03-29T05:45:20+00:00
+Supreme Court Issues Contempt Notice To ASI Director Over Failure To File Affidavit On Delhi Heritage Sites
+https://www.livelaw.in/top-stories/supreme-court-issues-contempt-notice-to-asi-director-over-failure-to-file-affidavit-on-delhi-heritage-sites-528186
+
+[Read on Telegram](https://t.me/livelawindia/107803)
+
+---
+### 2026-03-29T06:17:40+00:00
+Regulatory Compliance & Risk Management Specialist Vacancy At Tata Consultancy Services [Apply Now]
+https://www.livelaw.in/job-updates/regulatory-compliance-risk-management-specialist-vacancy-at-tata-consultancy-services-528188
+
+[Read on Telegram](https://t.me/livelawindia/107804)
 
 ---
