@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-29T13:32:25+00:00*
+*Last Updated: 2026-03-29T15:02:27+00:00*
+
+---
+
+### 2026-03-29T15:02:27+00:00
+Legal Expert Vacancy At Andaman and Nicobar Islands Integrated Development Corporation Limited (ANIIDCO)
+https://www.verdictum.in/job-updates/andaman-and-nicobar-islands-integrated-development-corporation-limited-1610891
+
+[Source Link](https://t.me/verdictumlegalupdates/26210)
 
 ---
 
@@ -153,14 +161,6 @@ Authorities Can Stop Overloaded Vehicle & Ask For Offloading Of Excess Cargo Bef
 https://www.verdictum.in/court-updates/high-courts/patna-high-court/vikas-kumar-v-the-union-of-india-ors-authorities-overloaded-vehicle-offloading-excess-cargo-1610860
 
 [Source Link](https://t.me/verdictumlegalupdates/26191)
-
----
-
-### 2026-03-28T06:02:19+00:00
-Relief U/S 9 A&C Act Can Be Granted Even After Filing Of Petition Seeking Enforcement & Recognition Of Foreign Award: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/osterreichischer-lloyd-seereederei-cyprus-ltd-v-victore-ships-pvt-ltd-commercial-arbitration-petition-no-398-of-2025-relief-us-9-arbitration-act-1610853
-
-[Source Link](https://t.me/verdictumlegalupdates/26190)
 
 ---
 
