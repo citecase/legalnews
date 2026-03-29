@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-29T07:32:39+00:00*
+*Last Updated: 2026-03-29T13:32:25+00:00*
+
+---
+
+### 2026-03-29T13:32:25+00:00
+Complainant Has No Right To Be Heard In Penalty Proceedings Against SPIO U/S 20 RTI Act: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/raisa-eapen-v-state-of-kerala-ors-2026ker21070-appeal-right-to-information-1610883
+
+[Source Link](https://t.me/verdictumlegalupdates/26209)
+
+---
+
+### 2026-03-29T12:02:23+00:00
+Seized Item Was Declared Ganja Without Examination: Patna High Court Sets Aside NDPS Conviction In A 1998 Case
+https://www.verdictum.in/court-updates/high-courts/patna-high-court/tilakhdhari-yadav-v-the-state-of-bihar-criminal-appeal-sj-no49-of-2011-ndps-conviction-seized-item-declared-ganja-without-examination-1610893
+
+[Source Link](https://t.me/verdictumlegalupdates/26208)
+
+---
+
+### 2026-03-29T10:33:02+00:00
+Personal Liberty Can’t Be Sacrificed On Unfounded Suspicion: J&K And Ladakh High Court Quashes PSA Detention Of 19-Year-Old
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/sehran-bashir-nadaf-v-union-territory-of-jk-ors-jk-public-safety-act-1610892
+
+[Source Link](https://t.me/verdictumlegalupdates/26207)
+
+---
+
+### 2026-03-29T09:03:00+00:00
+Dead Body Of Victim In Custodial Death Case Being Used As Means Of Protest: Madras High Court Expresses Anguish
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/cselvakumar-v-the-chief-election-commissioner-dead-body-protest-anguish-pil-custodial-death-case-1610890
+
+[Source Link](https://t.me/verdictumlegalupdates/26206)
 
 ---
 
@@ -129,38 +161,6 @@ Relief U/S 9 A&C Act Can Be Granted Even After Filing Of Petition Seeking Enforc
 https://www.verdictum.in/court-updates/high-courts/bombay-high-court/osterreichischer-lloyd-seereederei-cyprus-ltd-v-victore-ships-pvt-ltd-commercial-arbitration-petition-no-398-of-2025-relief-us-9-arbitration-act-1610853
 
 [Source Link](https://t.me/verdictumlegalupdates/26190)
-
----
-
-### 2026-03-28T05:12:37+00:00
-Courts Cannot Compel Issuance Of A Marksheet Reflecting Marks That Don’t Match University Records: Calcutta High Court
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/abhishek-maity-v-the-west-bengal-state-university-ors-fake-marksheet-1610852
-
-[Source Link](https://t.me/verdictumlegalupdates/26189)
-
----
-
-### 2026-03-28T04:33:06+00:00
-No Right, Title Or Interest Over Land: Allahabad High Court Dismissed Petition Challenging Eviction Of Mosque Built On Gram Sabha Land
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/shahban-and-another-v-state-of-up2026ahc-lko21285-stay-eviction-of-mosque-gram-sabha-land-1610829
-
-[Source Link](https://t.me/verdictumlegalupdates/26188)
-
----
-
-### 2026-03-27T16:02:51+00:00
-No Offence Made Out If Married Man Stays With Adult Woman In Live-In Relationship: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/a-v-state-of-up-no-offence-married-man-adult-woman-live-in-relationship-with-consent-1610826
-
-[Source Link](https://t.me/verdictumlegalupdates/26187)
-
----
-
-### 2026-03-27T15:13:09+00:00
-University Professors Are Employees, Not Public Officers: Madhya Pradesh High Court Dismisses Quo Warranto Petition
-https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/2026mphcind8319-dr-kshamasheel-mishra-v-the-state-of-madhya-pradesh-1610822
-
-[Source Link](https://t.me/verdictumlegalupdates/26186)
 
 ---
 
