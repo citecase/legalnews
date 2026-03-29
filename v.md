@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-28T15:02:26+00:00*
+*Last Updated: 2026-03-29T07:32:39+00:00*
+
+---
+
+### 2026-03-29T07:32:39+00:00
+Acquired Land Cannot Be Returned Merely Because Project Did Not Materialise: Kerala High Court Directs State to Maintain Property Despite 37 Years of Non-Use
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/n-bharathi-amma-v-state-of-kerala-2026ker19455-acquired-land-reconveyance-project-state-1610889
+
+[Source Link](https://t.me/verdictumlegalupdates/26205)
+
+---
+
+### 2026-03-29T06:03:17+00:00
+Human Values And Rights Sacrosanct: Jammu & Kashmir And Ladakh HC Directs Retrieval Of Youth Forcibly Deported To Pakistan
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/2026jklhcjmu838-sajjad-ahmed-v-union-of-india-retrieval-youth-forcibly-deported-pakistan-1610888
+
+[Source Link](https://t.me/verdictumlegalupdates/26204)
+
+---
+
+### 2026-03-29T04:32:46+00:00
+Dispute Resolution System Provided In Contract: Madhya Pradesh High Court Refuses to Interfere In Contractual Matter
+https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/ms-prabha-exim-pvt-ltd-v-the-state-of-madhya-pradesh-2026mphc-ind7764-dispute-resolution-alternate-efficacious-remedy-1610887
+
+[Source Link](https://t.me/verdictumlegalupdates/26203)
 
 ---
 
@@ -137,30 +161,6 @@ University Professors Are Employees, Not Public Officers: Madhya Pradesh High Co
 https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/2026mphcind8319-dr-kshamasheel-mishra-v-the-state-of-madhya-pradesh-1610822
 
 [Source Link](https://t.me/verdictumlegalupdates/26186)
-
----
-
-### 2026-03-27T14:52:48+00:00
-Column: Conversion, Caste & Constitution
-https://www.verdictum.in/columns/chinthada-anand-v-state-of-andhra-pradesh-criminal-appeal-1580-of-2026-1610828
-
-[Source Link](https://t.me/verdictumlegalupdates/26185)
-
----
-
-### 2026-03-27T14:33:07+00:00
-Liquor Trade Not A Fundamental Right; Suspension Of Licence Valid When Proportionate & Within Statutory Framework: Madhya Pradesh High Court
-https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/som-distilleries-private-limited-ors-v-state-of-madhya-pradesh-ors-2026mphc-jbp24006-1610820
-
-[Source Link](https://t.me/verdictumlegalupdates/26184)
-
----
-
-### 2026-03-27T13:52:45+00:00
-Overcrowding Of Cattle In Congested Spaces Amounts To Animal Cruelty: Tripura High Court Issues Directions
-https://www.verdictum.in/court-updates/high-courts/tripura-high-court/dhyan-foundation-goushala-v-the-state-of-tripura-ors-cruelty-to-animals-1610819
-
-[Source Link](https://t.me/verdictumlegalupdates/26183)
 
 ---
 
