@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-28T16:13:05+00:00*
+*Last Updated: 2026-03-29T04:58:30+00:00*
 
 ---
 
-### 2026-03-28T16:13:05+00:00
-Section 144 BNSS | Daughter-In-Law Not Legally Obligated To Maintain Parents-In-Law : Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-125-crpc-144-bnss-daughter-in-law-not-legally-obligated-maintain-parents-in-law-528171
-
-[Read on Telegram](https://t.me/livelawindia/107795)
-
----
-### 2026-03-28T16:34:08+00:00
-Anil Ambani Files Defamation Suit In Bombay High Court Against Arnab Goswami, Republic TV
-https://www.livelaw.in/top-stories/anil-ambani-files-defamation-suit-in-bombay-high-court-against-arnab-goswami-republic-tv-528172
-
-[Read on Telegram](https://t.me/livelawindia/107796)
-
----
-### 2026-03-29T04:53:10+00:00
-Supreme Court Monthly Roundup: February 2026
-https://www.livelaw.in/round-ups/monthly/supreme-court-monthly-roundup-february-2026-528176
-
-[Read on Telegram](https://t.me/livelawindia/107797)
-
----
 ### 2026-03-29T04:58:30+00:00
 Incarceration Without Trial Amounts To Punishment: Supreme Court Grants Bail To Man After Two Years' Undertrial Custody
 https://www.livelaw.in/top-stories/incarceration-without-trial-amounts-to-punishment-supreme-court-grants-bail-to-man-after-two-years-undertrial-custody-528177
@@ -142,5 +121,26 @@ No Anticipatory Bail On Mere Summons In Complaint Cases? Allahabad High Court Do
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-anticipatory-bail-complaint-case-larger-bench-reference-summons-528209
 
 [Read on Telegram](https://t.me/livelawindia/107814)
+
+---
+### 2026-03-29T13:20:21+00:00
+Allahabad High Court Drops Contempt Proceedings Against Advocate Who Accused Judge Of Working Under 'Govt Pressure'
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-contempt-advocate-accused-judge-govt-pressure-528210
+
+[Read on Telegram](https://t.me/livelawindia/107815)
+
+---
+### 2026-03-29T13:27:21+00:00
+“No Dying Declaration, No Proof Of Cruelty”: Calcutta High Court Acquits Husband In S.498A IPC Case After 24 Years
+https://www.livelaw.in/high-court/calcutta-high-court/no-dying-declaration-no-proof-of-cruelty-calcutta-high-court-acquits-husband-in-s498a-ipc-case-after-24-years-528187
+
+[Read on Telegram](https://t.me/livelawindia/107816)
+
+---
+### 2026-03-29T14:32:31+00:00
+Wives Generally Exaggerate Husband's Income In Maintenance Pleas; It Doesn't Automatically Warrant Perjury Action: Allahabad HC
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-husband-income-exaggerate-maintenance-wife-perujury-action-528211
+
+[Read on Telegram](https://t.me/livelawindia/107817)
 
 ---
