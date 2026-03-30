@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-29T15:02:27+00:00*
+*Last Updated: 2026-03-30T07:52:44+00:00*
+
+---
+
+### 2026-03-30T07:52:44+00:00
+House Trespass Is An Offence Against Possession, True Owner Can’t Unlawfully Enter Premises In Tenant’s Lawful Possession: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/damodaran-k-v-state-of-kerala-2026ker26753-ownership-true-owner-unlawfully-enter-premises-tenant-intent-offence-1610972
+
+[Source Link](https://t.me/verdictumlegalupdates/26217)
+
+---
+
+### 2026-03-30T07:03:03+00:00
+Conviction Based Solely On Parental Statements Unsustainable: Calcutta High Court Acquits Husband In 2002 Dowry Death Case
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/boren-mondal-v-the-state-of-west-bengal-2026chc-as483-dowry-death-case-1610965
+
+[Source Link](https://t.me/verdictumlegalupdates/26216)
+
+---
+
+### 2026-03-30T06:32:01+00:00
+When Forged Driving License Is Tendered In Evidence Before MACT, It Attracts Offence U/S 193 IPC: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/2026-ker-27895-raji-joshi-alias-reji-joshi-v-state-of-kerala-1610962
+
+[Source Link](https://t.me/verdictumlegalupdates/26215)
+
+---
+
+### 2026-03-30T06:02:14+00:00
+Not Necessary To Specify Exact Quantity Of Contraband In Grounds Of Arrest: Kerala High Court Denies Bail To NDPS Accused
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/arun-kumar-p-v-state-of-kerala-2026ker24697-specifying-quantity-contraband-intermediate-commercial-arrest-sufficient-1610958
+
+[Source Link](https://t.me/verdictumlegalupdates/26214)
+
+---
+
+### 2026-03-30T05:32:53+00:00
+2019 Amendment To Motor Vehicles Act Removed 30-Day Automatic  Extension For Expired Licences: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/delhi-police-anr-v-sudheer-kumar-2026dhc4271-db-motor-vehicles-amendment-act-1610955
+
+[Source Link](https://t.me/verdictumlegalupdates/26213)
+
+---
+
+### 2026-03-30T05:02:51+00:00
+Tenant Can’t Evade Liability On Ground That He Is Not Personally Residing When He Takes Premises On Rent With His Family Members: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/rajat-verma-v-hp-suman-2026dhc2561tenant-liability-residing-premises-rent-family-members-1610953
+
+[Source Link](https://t.me/verdictumlegalupdates/26212)
+
+---
+
+### 2026-03-30T04:32:40+00:00
+Automatic Disqualification Follows Conviction For Offences Involving Moral Turpitude U/S 10 MMC Act: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/deelip-gopalsingh-thakur-v-the-state-of-maharashtra-2026bhc-aug12515-us-10-maharashtra-municipal-corporations-act-1610945
+
+[Source Link](https://t.me/verdictumlegalupdates/26211)
 
 ---
 
@@ -105,62 +161,6 @@ Clandestine Attempts Made To Unfreeze Bank Accounts; Can’t Presume Bar Associa
 https://www.verdictum.in/court-updates/high-courts/kerala-high-court/kerala-high-court-advocates-association-v-state-of-kerala-clandestine-attempts-unfreeze-bank-accounts-enquiry-1610881
 
 [Source Link](https://t.me/verdictumlegalupdates/26198)
-
----
-
-### 2026-03-28T11:12:29+00:00
-Presumption Of Existence Of Vacancy If Engagement Of Workman Is For Substantially Long Term: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/long-term-engagement-presumes-perennial-nature-work-employer-nagar-nigam-1610879
-
-[Source Link](https://t.me/verdictumlegalupdates/26197)
-
----
-
-### 2026-03-28T10:32:28+00:00
-Courts Must Not Attempt To Judicially Determine Nature Of Religious Practices: Muslim Personal Law Board Tells Supreme Court In Sabarimala Review Case
-https://www.verdictum.in/court-updates/supreme-court/all-india-muslim-personal-law-board-sabarimala-review-1610877
-
-[Source Link](https://t.me/verdictumlegalupdates/26196)
-
----
-
-### 2026-03-28T09:52:26+00:00
-Refuge Area Cannot Be Treated As Flat For Grant Of Co-operative Society Membership: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/dheeraj-dreams-building-no1-chs-ltd-ors-v-divisional-joint-registrar-co-operative-societies-ors-2026bhc-os7221-1610874
-
-[Source Link](https://t.me/verdictumlegalupdates/26195)
-
----
-
-### 2026-03-28T09:03:05+00:00
-Non-Compliance With Mandatory Bid Security Justifies Disqualification: Chhattisgarh High Court Upholds WAPCOS Tender Decision
-https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/ms-ramsaran-singh-projects-llp-v-wapcos-limited-wpc-no-5479-of-2025-1610872
-
-[Source Link](https://t.me/verdictumlegalupdates/26194)
-
----
-
-### 2026-03-28T08:12:43+00:00
-Patents Act| Controller Must Refer Patent Application For Examination And Afford Hearing If Examiner’s Report Is Adverse: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/vishal-prafulsingh-solanke-anr-v-controller-of-patent-and-designs-ors-2026bhc-os7027-db-1610865
-
-[Source Link](https://t.me/verdictumlegalupdates/26193)
-
----
-
-### 2026-03-28T07:33:03+00:00
-Victim Narrated All Occurrence In Detail & Same Isn’t Shaken: Kerala High Court Upholds POCSO Conviction
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/vishnu-unni-v-the-state-of-kerala-2026ker26885-victim-occurrence-detail-pocso-conviction-1610864
-
-[Source Link](https://t.me/verdictumlegalupdates/26192)
-
----
-
-### 2026-03-28T06:52:41+00:00
-Authorities Can Stop Overloaded Vehicle & Ask For Offloading Of Excess Cargo Before Allowing It To Proceed: Patna High Court
-https://www.verdictum.in/court-updates/high-courts/patna-high-court/vikas-kumar-v-the-union-of-india-ors-authorities-overloaded-vehicle-offloading-excess-cargo-1610860
-
-[Source Link](https://t.me/verdictumlegalupdates/26191)
 
 ---
 
