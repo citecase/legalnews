@@ -1,128 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-29T05:23:20+00:00*
+*Last Updated: 2026-03-30T01:34:20+00:00*
 
 ---
 
-### 2026-03-29T05:23:20+00:00
-2026 LiveLaw (SC) 303 | United India Insurance Co. Ltd. v. Sayona Colors Pvt. Ltd.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-303-united-india-insurance-co-ltd-v-sayona-colors-pvt-ltd-528184
-
-[Read on Telegram](https://t.me/livelawindia/107801)
-
----
-### 2026-03-29T05:39:20+00:00
-Calcutta High Court Acquits Man In Rape Case, Says Complaint Filed “Out Of Grudge” After Breakdown Of Relationship
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-acquits-man-in-rape-case-says-complaint-filed-out-of-grudge-after-breakdown-of-relationship-528185
-
-[Read on Telegram](https://t.me/livelawindia/107802)
-
----
-### 2026-03-29T05:45:20+00:00
-Supreme Court Issues Contempt Notice To ASI Director Over Failure To File Affidavit On Delhi Heritage Sites
-https://www.livelaw.in/top-stories/supreme-court-issues-contempt-notice-to-asi-director-over-failure-to-file-affidavit-on-delhi-heritage-sites-528186
-
-[Read on Telegram](https://t.me/livelawindia/107803)
-
----
-### 2026-03-29T06:17:40+00:00
-Regulatory Compliance & Risk Management Specialist Vacancy At Tata Consultancy Services [Apply Now]
-https://www.livelaw.in/job-updates/regulatory-compliance-risk-management-specialist-vacancy-at-tata-consultancy-services-528188
-
-[Read on Telegram](https://t.me/livelawindia/107804)
-
----
-### 2026-03-29T07:17:30+00:00
-Earlier Buyer Can Seek Cancellation Of Later Sale; Subsequent Transactions Cannot Override Prior Rights: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-cancels-second-property-deal-says-first-buyer-can-challenge-subsequent-sale-528179
-
-[Read on Telegram](https://t.me/livelawindia/107805)
-
----
-### 2026-03-29T08:04:20+00:00
-After Superannuation, Only Government & Not Subordinate Authority Competent To Impose Penalty, As Per Rules : Orissa HC
-https://www.livelaw.in/high-court/orissa-high-court/after-superannuation-only-government-not-subordinate-authority-competent-to-impose-penalty-as-per-rules-orissa-hc-528195
-
-[Read on Telegram](https://t.me/livelawindia/107806)
-
----
-### 2026-03-29T09:00:51+00:00
-Senior Legal Counsel Vacancy At Tata Consultancy Services [Apply Now]
-https://www.livelaw.in/job-updates/senior-legal-counsel-vacancy-at-tata-consultancy-services-528201
-
-[Read on Telegram](https://t.me/livelawindia/107807)
-
----
-### 2026-03-29T09:02:51+00:00
-Guilt Can Be Established On Basis Of Preliminary Inquiry Statements Even If Key Witnesses Turn Hostile During Departmental Proceedings : Delhi HC
-https://www.livelaw.in/high-court/delhi-high-court/guilt-can-be-established-on-basis-of-preliminary-inquiry-statements-even-if-key-witnesses-turn-hostile-during-departmental-proceedings-delhi-hc-528196
-
-[Read on Telegram](https://t.me/livelawindia/107808)
-
----
-### 2026-03-29T09:06:51+00:00
-Team Member (Compliance) Vacancy At Kotak Mahindra Bank Limited
-https://www.livelaw.in/job-updates/team-member-compliance-vacancy-at-kotak-mahindra-bank-limited-528202
-
-[Read on Telegram](https://t.me/livelawindia/107809)
-
----
-### 2026-03-29T09:12:11+00:00
-Delhi High Court Acquits Life Convicts In Decade-Old Murder Case, Flags Unreliable Eyewitness
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-acquits-life-convicts-in-decade-old-murder-case-flags-unreliable-eyewitness-528180
-
-[Read on Telegram](https://t.me/livelawindia/107810)
-
----
-### 2026-03-29T10:28:11+00:00
-Jammu & Kashmir And Ladakh High Court Weekly Roundup March 23 - 29, 2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-weekly-roundup-march-23-29-2026-528181
-
-[Read on Telegram](https://t.me/livelawindia/107811)
-
----
-### 2026-03-29T10:54:11+00:00
-Muslims Can Invoke 'Guardians And Wards Act' Provisions For Seeking Minor's Custody: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-muslims-guardians-wards-act-1890-minor-custody-habeas-corpus-528203
-
-[Read on Telegram](https://t.me/livelawindia/107812)
-
----
-### 2026-03-29T12:08:01+00:00
-Delhi High Court Warns Against Misuse Of Perjury Pleas To 'Arm-Twist' Opponents, Dismisses S.340 CrPC Application
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-warns-against-misuse-of-perjury-pleas-to-arm-twist-opponents-dismisses-s340-crpc-application-528183
-
-[Read on Telegram](https://t.me/livelawindia/107813)
-
----
-### 2026-03-29T12:53:31+00:00
-No Anticipatory Bail On Mere Summons In Complaint Cases? Allahabad High Court Doubts 2025 Ruling, Refers Issue To Larger Bench
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-anticipatory-bail-complaint-case-larger-bench-reference-summons-528209
-
-[Read on Telegram](https://t.me/livelawindia/107814)
-
----
-### 2026-03-29T13:20:21+00:00
-Allahabad High Court Drops Contempt Proceedings Against Advocate Who Accused Judge Of Working Under 'Govt Pressure'
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-contempt-advocate-accused-judge-govt-pressure-528210
-
-[Read on Telegram](https://t.me/livelawindia/107815)
-
----
-### 2026-03-29T13:27:21+00:00
-“No Dying Declaration, No Proof Of Cruelty”: Calcutta High Court Acquits Husband In S.498A IPC Case After 24 Years
-https://www.livelaw.in/high-court/calcutta-high-court/no-dying-declaration-no-proof-of-cruelty-calcutta-high-court-acquits-husband-in-s498a-ipc-case-after-24-years-528187
-
-[Read on Telegram](https://t.me/livelawindia/107816)
-
----
-### 2026-03-29T14:32:31+00:00
-Wives Generally Exaggerate Husband's Income In Maintenance Pleas; It Doesn't Automatically Warrant Perjury Action: Allahabad HC
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-husband-income-exaggerate-maintenance-wife-perujury-action-528211
-
-[Read on Telegram](https://t.me/livelawindia/107817)
-
----
 ### 2026-03-30T01:34:20+00:00
 'No Iota Of Evidence' : Delhi Court Acquits All In Bander Coal Block Case; Ex-Coal Secretary Honourably Acquitted
 https://www.livelaw.in/news-updates/no-iota-of-evidence-delhi-court-acquits-all-in-bander-coal-block-case-ex-coal-secretary-honourably-acquitted-528213
@@ -142,5 +23,124 @@ No One Can Make An Honour Issue Out Of An Adult Marrying A Person Of Their Choic
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-honour-issue-adult-marry-person-choice-528215
 
 [Read on Telegram](https://t.me/livelawindia/107820)
+
+---
+### 2026-03-30T03:32:20+00:00
+Consent Cannot Be Constructed: A Review Of M Space Master Realtors v Mulund Sandhyaprakash
+https://www.livelaw.in/articles/consent-constructed-m-space-master-realtors-528141
+
+[Read on Telegram](https://t.me/livelawindia/107821)
+
+---
+### 2026-03-30T03:33:10+00:00
+Belonging To Scheduled Tribe Doesn't Bar Divorce Under Hindu Marriage Act Without Established Custom: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-husband-divorce-petition-belonging-meena-community-528212
+
+[Read on Telegram](https://t.me/livelawindia/107822)
+
+---
+### 2026-03-30T03:33:20+00:00
+Project Officer Vacancy At Ahmedabad Municipal Corporation
+https://www.livelaw.in/job-updates/project-officer-vacancy-at-ahmedabad-municipal-corporation-528216
+
+[Read on Telegram](https://t.me/livelawindia/107823)
+
+---
+### 2026-03-30T03:35:00+00:00
+Legal Expert Vacancy At National Investigation Agency
+https://www.livelaw.in/job-updates/legal-expert-vacancy-at-national-investigation-agency-528217
+
+[Read on Telegram](https://t.me/livelawindia/107824)
+
+---
+### 2026-03-30T04:14:20+00:00
+Chairman Vacancy At Various Permanent Lok Adalat Of Mumbai
+https://www.livelaw.in/job-updates/chairman-vacancy-at-various-permanent-lok-adalat-of-mumbai-528223
+
+[Read on Telegram](https://t.me/livelawindia/107825)
+
+---
+### 2026-03-30T04:26:30+00:00
+Adv. Sreehari M.B. And Adv. Devinath A. Of Nedumangad Bar Emerge Winners In All-Kerala Law Quiz Competition
+https://www.livelaw.in/events/justice-siri-jagan-memorial-legal-quiz-competition-winners-528225
+
+[Read on Telegram](https://t.me/livelawindia/107826)
+
+---
+### 2026-03-30T04:42:30+00:00
+No Need To Appoint Guardian In Case Of Hindu Minor's Interest In Undivided Joint Family Property: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-appoint-guardian-hindu-minor-interest-undivided-joint-family-property-528222
+
+[Read on Telegram](https://t.me/livelawindia/107827)
+
+---
+### 2026-03-30T04:53:10+00:00
+'WhatsApp Notice Not Valid For Arrest U/S 41A CrPC': Rajasthan HC Convicts Cop For Contempt Over Violation Of Arnesh Kumar Guidelines
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-holds-police-officer-contempt-whatsapp-intimation-section41a-crpc-528226
+
+[Read on Telegram](https://t.me/livelawindia/107828)
+
+---
+### 2026-03-30T05:02:50+00:00
+Allahabad High Court Upholds Eviction Order Against Mosque Built On Govt Land, But Quashes Penalty Under Revenue Code
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-mosque-khalihan-land-eviction-up-revenue-code-528232
+
+[Read on Telegram](https://t.me/livelawindia/107829)
+
+---
+### 2026-03-30T05:07:50+00:00
+'Law Must Travel To Soldier' : CJI Surya Kant Addresses Army At Leh, Highlights Free Legal Aid Scheme For Defence Families
+https://www.livelaw.in/top-stories/law-must-travel-to-soldier-cji-surya-kant-addresses-army-at-leh-highlights-free-legal-aid-scheme-for-defence-families-528237
+
+[Read on Telegram](https://t.me/livelawindia/107830)
+
+---
+### 2026-03-30T05:33:00+00:00
+Gujarat High Court Weekly Round-Up: March 23 - March 29, 2026
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-weekly-round-up-528227
+
+[Read on Telegram](https://t.me/livelawindia/107831)
+
+---
+### 2026-03-30T05:42:20+00:00
+Registered Owner Who Parted With Possession Of Vehicle Used In Terror Activities Cannot Seek Its Release: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-registered-owner-who-parted-with-possession-of-vehicle-used-in-terror-activities-has-no-locus-to-seek-its-release-528220
+
+[Read on Telegram](https://t.me/livelawindia/107832)
+
+---
+### 2026-03-30T06:04:00+00:00
+Kerala High Court Expresses Satisfaction With Waste Management Measures At Chottanikkara Temple
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-waste-management-measures-chottanikkara-temple-528256
+
+[Read on Telegram](https://t.me/livelawindia/107833)
+
+---
+### 2026-03-30T06:22:36+00:00
+Hindu Succession Act | Husband Gets No Share In Parental Property Inherited By Wife: Andhra Pradesh High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-ruling-hindu-succession-act-parental-property-absence-of-children-property-devolution-528229
+
+[Read on Telegram](https://t.me/livelawindia/107834)
+
+---
+### 2026-03-30T07:18:24+00:00
+POCSO Cases Involving Consensual Adolescent Relationships May Be Quashed To Prevent “Manifest Injustice”: Meghalaya High Court
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-pocso-cases-consensual-adolescent-relationships-528245
+
+[Read on Telegram](https://t.me/livelawindia/107835)
+
+---
+### 2026-03-30T07:32:41+00:00
+“Nothing But Exploitation”: Andhra Pradesh High Court Flags Long-Term Engagement Of Temporary Workers Without Regularisation
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-ruling-exploitation-long-term-engagement-temporary-workers-meagre-salary-regularisation-denied-state-practice-528224
+
+[Read on Telegram](https://t.me/livelawindia/107836)
+
+---
+### 2026-03-30T07:33:01+00:00
+End The Linguistic Apartheid
+https://www.livelaw.in/lawschool/articles/linguistic-apartheid-528142
+
+[Read on Telegram](https://t.me/livelawindia/107837)
 
 ---
