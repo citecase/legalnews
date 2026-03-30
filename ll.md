@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-29T04:58:30+00:00*
+*Last Updated: 2026-03-29T05:23:20+00:00*
 
 ---
 
-### 2026-03-29T04:58:30+00:00
-Incarceration Without Trial Amounts To Punishment: Supreme Court Grants Bail To Man After Two Years' Undertrial Custody
-https://www.livelaw.in/top-stories/incarceration-without-trial-amounts-to-punishment-supreme-court-grants-bail-to-man-after-two-years-undertrial-custody-528177
-
-[Read on Telegram](https://t.me/livelawindia/107798)
-
----
-### 2026-03-29T05:00:10+00:00
-2026 LiveLaw (SC) 302 | Pardeep Kumar @ Banu v. State of Punjab
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-302-pardeep-kumar-banu-v-state-of-punjab-528178
-
-[Read on Telegram](https://t.me/livelawindia/107799)
-
----
-### 2026-03-29T05:18:30+00:00
-'Fraudulent Insurance Claims With Staged Incidents Common' : Supreme Court Orders SIT Probe Into Fake Fire Claim
-https://www.livelaw.in/top-stories/fraudulent-insurance-claims-with-staged-incidents-common-supreme-court-orders-sit-probe-into-fake-fire-claim-528182
-
-[Read on Telegram](https://t.me/livelawindia/107800)
-
----
 ### 2026-03-29T05:23:20+00:00
 2026 LiveLaw (SC) 303 | United India Insurance Co. Ltd. v. Sayona Colors Pvt. Ltd.
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-303-united-india-insurance-co-ltd-v-sayona-colors-pvt-ltd-528184
@@ -142,5 +121,26 @@ Wives Generally Exaggerate Husband's Income In Maintenance Pleas; It Doesn't Aut
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-husband-income-exaggerate-maintenance-wife-perujury-action-528211
 
 [Read on Telegram](https://t.me/livelawindia/107817)
+
+---
+### 2026-03-30T01:34:20+00:00
+'No Iota Of Evidence' : Delhi Court Acquits All In Bander Coal Block Case; Ex-Coal Secretary Honourably Acquitted
+https://www.livelaw.in/news-updates/no-iota-of-evidence-delhi-court-acquits-all-in-bander-coal-block-case-ex-coal-secretary-honourably-acquitted-528213
+
+[Read on Telegram](https://t.me/livelawindia/107818)
+
+---
+### 2026-03-30T02:28:10+00:00
+Can State Seal A Mosque Without Prior Notice? Allahabad High Court Seeks UP Govt's Response
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-seal-mosque-prior-notice-up-govt-response-528214
+
+[Read on Telegram](https://t.me/livelawindia/107819)
+
+---
+### 2026-03-30T02:41:50+00:00
+No One Can Make An Honour Issue Out Of An Adult Marrying A Person Of Their Choice: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-honour-issue-adult-marry-person-choice-528215
+
+[Read on Telegram](https://t.me/livelawindia/107820)
 
 ---
