@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-30T07:52:44+00:00*
+*Last Updated: 2026-03-30T14:02:57+00:00*
+
+---
+
+### 2026-03-30T14:02:57+00:00
+Temporary Surrender Of Temple Land Not ‘Alienation’ U/S 29 HR & CE Act: Kerala High Court Upholds Madayi Temple Road Widening
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/vijesh-ck-v-the-state-of-kerala-2026ker25499-madayi-temple-road-widening-1610999
+
+[Source Link](https://t.me/verdictumlegalupdates/26225)
+
+---
+
+### 2026-03-30T13:12:36+00:00
+Husband Won’t Get Right Over Property Inherited By Female Hindu From Her Father Or Mother In Absence Of Any Child: Andhra Pradesh High Court
+https://www.verdictum.in/court-updates/high-courts/andhra-pradesh-high-court/chikkala-devika-v-the-state-of-ap-husband-property-female-hindu-in-absence-of-child-1610998
+
+[Source Link](https://t.me/verdictumlegalupdates/26224)
+
+---
+
+### 2026-03-30T12:32:24+00:00
+Cannot Be Allowed To Languish For Indefinite Period: Andhra Pradesh High Court Directs Regularization Of NMR Employees After Three Decades Of Service
+https://www.verdictum.in/court-updates/high-courts/andhra-pradesh-high-court/k-narayana-reddy-v-state-of-andhra-pradesh-writ-petition-no-44902-31806-45705-2018-1610991
+
+[Source Link](https://t.me/verdictumlegalupdates/26223)
+
+---
+
+### 2026-03-30T11:53:23+00:00
+Supreme Court Calls For Pan-India SOP To Combat Human Trafficking; Constitutes Expert Core Committee For Practical Strategy
+https://www.verdictum.in/court-updates/supreme-court/mandates-pan-india-sop-combat-human-trafficking-constitutes-expert-core-committee-practical-strategy-1610992
+
+[Source Link](https://t.me/verdictumlegalupdates/26222)
+
+---
+
+### 2026-03-30T11:02:21+00:00
+Perilous For Courts To Test Utility Of Govt. Policy: Madras High Court Sets Aside Order Granting Benefit Under Repealed Marriage Assistance Scheme
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/government-of-tamil-nadu-v-j-praveena-2026mhc1250-perilous-courts-utility-govt-policy-marriage-assistance-scheme-1610987
+
+[Source Link](https://t.me/verdictumlegalupdates/26221)
+
+---
+
+### 2026-03-30T10:22:20+00:00
+Bank Cannot Deny Ex Gratia Payment On Mere Technicalities: Madhya Pradesh High Court Grants Relief To Deceased Employee's Widow
+https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/2026mphcgwl10260-rekha-jain-v-central-madhya-pradesh-gramin-bank-1610985
+
+[Source Link](https://t.me/verdictumlegalupdates/26220)
+
+---
+
+### 2026-03-30T09:12:58+00:00
+Wife Generally Exaggerates Husband’s Income In Maintenance Claims, Action U/S.340 CrPC Not Warranted: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/a-v-state-of-up-and-another-2026ahc51669-wife-husband-income-maintenance-claims-section-340-crpc-1610982
+
+[Source Link](https://t.me/verdictumlegalupdates/26219)
+
+---
+
+### 2026-03-30T08:32:57+00:00
+Shifting Disabled Employee To Suitable Position U/S 47 PwD Act Cannot Disturb Existing Cadre Seniority: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/rameshwar-so-mahadeorao-surve-v-state-of-maharashtra-ors-2026bhc-nag4826-1610977
+
+[Source Link](https://t.me/verdictumlegalupdates/26218)
 
 ---
 
@@ -97,70 +161,6 @@ Dead Body Of Victim In Custodial Death Case Being Used As Means Of Protest: Madr
 https://www.verdictum.in/court-updates/high-courts/madras-high-court/cselvakumar-v-the-chief-election-commissioner-dead-body-protest-anguish-pil-custodial-death-case-1610890
 
 [Source Link](https://t.me/verdictumlegalupdates/26206)
-
----
-
-### 2026-03-29T07:32:39+00:00
-Acquired Land Cannot Be Returned Merely Because Project Did Not Materialise: Kerala High Court Directs State to Maintain Property Despite 37 Years of Non-Use
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/n-bharathi-amma-v-state-of-kerala-2026ker19455-acquired-land-reconveyance-project-state-1610889
-
-[Source Link](https://t.me/verdictumlegalupdates/26205)
-
----
-
-### 2026-03-29T06:03:17+00:00
-Human Values And Rights Sacrosanct: Jammu & Kashmir And Ladakh HC Directs Retrieval Of Youth Forcibly Deported To Pakistan
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/2026jklhcjmu838-sajjad-ahmed-v-union-of-india-retrieval-youth-forcibly-deported-pakistan-1610888
-
-[Source Link](https://t.me/verdictumlegalupdates/26204)
-
----
-
-### 2026-03-29T04:32:46+00:00
-Dispute Resolution System Provided In Contract: Madhya Pradesh High Court Refuses to Interfere In Contractual Matter
-https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/ms-prabha-exim-pvt-ltd-v-the-state-of-madhya-pradesh-2026mphc-ind7764-dispute-resolution-alternate-efficacious-remedy-1610887
-
-[Source Link](https://t.me/verdictumlegalupdates/26203)
-
----
-
-### 2026-03-28T15:02:26+00:00
-Manager Vacancy At India Infrastructure Finance Company Limited (IIFCL)
-https://www.verdictum.in/job-updates/india-infrastructure-finance-company-limited-1610886
-
-[Source Link](https://t.me/verdictumlegalupdates/26202)
-
----
-
-### 2026-03-28T14:12:45+00:00
-Minor Skirmishes Common In Joint Family: Karnataka High Court Quashes S. 498A IPC Case Against In-Laws
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/x-v-state-of-karnataka-criminal-petition-no12989-of-2024-498a-case-in-laws-domestic-discord-1610884
-
-[Source Link](https://t.me/verdictumlegalupdates/26201)
-
----
-
-### 2026-03-28T13:32:23+00:00
-Wife Lived Separately Without Taking Care Of Children & Filed Criminal Case; Cruelty Established: Madras High Court Grants Divorce To Husband
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/ab-v-xy-wife-lived-separately-filed-criminal-case-cruelty-dissolve-marriage-1610885
-
-[Source Link](https://t.me/verdictumlegalupdates/26200)
-
----
-
-### 2026-03-28T12:52:42+00:00
-Digital Assets Like Data & Code Property Of Company; Shareholder Can’t Claim Ownership To Defeat Misappropriation Allegations: Karnataka High Court
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/aashay-harlalka-v-state-of-karnataka-anr-data-misappropriation-ipr-1610894
-
-[Source Link](https://t.me/verdictumlegalupdates/26199)
-
----
-
-### 2026-03-28T12:03:01+00:00
-Clandestine Attempts Made To Unfreeze Bank Accounts; Can’t Presume Bar Association Is Unaware: Kerala High Court Calls For Enquiry
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/kerala-high-court-advocates-association-v-state-of-kerala-clandestine-attempts-unfreeze-bank-accounts-enquiry-1610881
-
-[Source Link](https://t.me/verdictumlegalupdates/26198)
 
 ---
 
