@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-30T14:02:57+00:00*
+*Last Updated: 2026-03-30T16:02:25+00:00*
+
+---
+
+### 2026-03-30T16:02:25+00:00
+Institute of Company Secretaries of India Invites Applications For The Post Of Deputy Director (Legal)
+https://www.verdictum.in/job-updates/institute-of-company-secretaries-of-india-1611002
+
+[Source Link](https://t.me/verdictumlegalupdates/26229)
+
+---
+
+### 2026-03-30T15:33:02+00:00
+Transgender Reservation Can’t Be Reduced To Mere OBC Inclusion; State Must Ensure Substantive Equality: Rajasthan High Court
+https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/ganga-kumari-v-state-of-rajasthan-ors-2026rj-jd14683-db-transgender-reservation-1611009
+
+[Source Link](https://t.me/verdictumlegalupdates/26228)
+
+---
+
+### 2026-03-30T15:03:00+00:00
+Ploy Invented By Accused To Get Vehicle Released: Jammu & Kashmir And Ladakh High Court Dismisses Plea For Release Of Car Seized For Alleged Terrorist Activity
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/rubeena-begum-v-union-territory-of-jammu-and-kashmir-crla-d-42-2024-1611001
+
+[Source Link](https://t.me/verdictumlegalupdates/26227)
+
+---
+
+### 2026-03-30T14:32:38+00:00
+POCSO Cases Can Be Quashed By Consent U/S 528 BNSS; Discretion To Be Exercised As An Exception & With Caution: Meghalaya High Court
+https://www.verdictum.in/court-updates/high-courts/meghalaya-high-court/s-anr-v-state-of-meghalaya-ors-pocso-section-528-quashment-adolescent-1611000
+
+[Source Link](https://t.me/verdictumlegalupdates/26226)
 
 ---
 
@@ -129,38 +161,6 @@ Legal Expert Vacancy At Andaman and Nicobar Islands Integrated Development Corpo
 https://www.verdictum.in/job-updates/andaman-and-nicobar-islands-integrated-development-corporation-limited-1610891
 
 [Source Link](https://t.me/verdictumlegalupdates/26210)
-
----
-
-### 2026-03-29T13:32:25+00:00
-Complainant Has No Right To Be Heard In Penalty Proceedings Against SPIO U/S 20 RTI Act: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/raisa-eapen-v-state-of-kerala-ors-2026ker21070-appeal-right-to-information-1610883
-
-[Source Link](https://t.me/verdictumlegalupdates/26209)
-
----
-
-### 2026-03-29T12:02:23+00:00
-Seized Item Was Declared Ganja Without Examination: Patna High Court Sets Aside NDPS Conviction In A 1998 Case
-https://www.verdictum.in/court-updates/high-courts/patna-high-court/tilakhdhari-yadav-v-the-state-of-bihar-criminal-appeal-sj-no49-of-2011-ndps-conviction-seized-item-declared-ganja-without-examination-1610893
-
-[Source Link](https://t.me/verdictumlegalupdates/26208)
-
----
-
-### 2026-03-29T10:33:02+00:00
-Personal Liberty Can’t Be Sacrificed On Unfounded Suspicion: J&K And Ladakh High Court Quashes PSA Detention Of 19-Year-Old
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/sehran-bashir-nadaf-v-union-territory-of-jk-ors-jk-public-safety-act-1610892
-
-[Source Link](https://t.me/verdictumlegalupdates/26207)
-
----
-
-### 2026-03-29T09:03:00+00:00
-Dead Body Of Victim In Custodial Death Case Being Used As Means Of Protest: Madras High Court Expresses Anguish
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/cselvakumar-v-the-chief-election-commissioner-dead-body-protest-anguish-pil-custodial-death-case-1610890
-
-[Source Link](https://t.me/verdictumlegalupdates/26206)
 
 ---
 
