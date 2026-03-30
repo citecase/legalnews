@@ -1,86 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-30T09:33:05+00:00*
+*Last Updated: 2026-03-30T11:56:05+00:00*
 
 ---
 
-### 2026-03-30T09:33:05+00:00
-Passport Cannot Be Reissued Without Trial Court NOC When Criminal Case Is Pending: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-passport-reissued-trial-court-noc-criminal-case-pending-528249
-
-[Read on Telegram](https://t.me/livelawindia/107842)
-
----
-### 2026-03-30T10:13:05+00:00
-“Highly Improper": Karnataka High Court Quashes Seizure & RC Cancellation Of Mercedes In Tax Case, Says RTO Acted Beyond Authority
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-rto-seizing-action-mercedesbenz-cancel-registration-528276
-
-[Read on Telegram](https://t.me/livelawindia/107843)
-
----
-### 2026-03-30T11:07:35+00:00
-Senior Advocate P Sreekumar Appointed As ASG At Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-asg-p-sreekumar-528282
-
-[Read on Telegram](https://t.me/livelawindia/107844)
-
----
-### 2026-03-30T11:10:35+00:00
-SHO Cannot Mandate Surrender Of Firearms Via Phone Calls Ahead Of Elections: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/sho-cannot-mandate-surrender-of-firearms-via-phone-calls-elections-528284
-
-[Read on Telegram](https://t.me/livelawindia/107845)
-
----
-### 2026-03-30T11:12:55+00:00
-Maharashtra State Commission  Directs Lodha Developers To Refund ₹2.83 Crore With Interest For Possession Delay, Unfair Trade Practice
-https://www.livelaw.in/consumer-cases/maharashtra-state-commission-directs-lodha-developers-to-refund-283-crore-with-interest-for-possession-delay-unfair-trade-practice-528285
-
-[Read on Telegram](https://t.me/livelawindia/107846)
-
----
-### 2026-03-30T11:18:15+00:00
-Telangana High Court Upholds Digital Double-Valuation In PG Medical Exams; Says Courts Cannot Re-Assess Academic Evaluation
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-pg-medical-exam-digital-double-valuation-system-528250
-
-[Read on Telegram](https://t.me/livelawindia/107847)
-
----
-### 2026-03-30T11:20:35+00:00
-From Pandemic Protectionism To Strategic Liberalisation: Rethinking India's FDI Security Regime After 2026 Amendment To Press Note 3
-https://www.livelaw.in/articles/pandemic-protectionism-strategic-liberalisation-india-fdi-security-regime-528288
-
-[Read on Telegram](https://t.me/livelawindia/107848)
-
----
-### 2026-03-30T11:27:25+00:00
-Kerala High Court Weekly Round-Up: March 23 - March 29, 2026
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-weekly-march-2026-528277
-
-[Read on Telegram](https://t.me/livelawindia/107849)
-
----
-### 2026-03-30T11:33:05+00:00
-When Data Is The Market: India's Competition Law Blind Spots
-https://www.livelaw.in/articles/data-market-india-competition-law-blind-spots-528156
-
-[Read on Telegram](https://t.me/livelawindia/107850)
-
----
-### 2026-03-30T11:51:45+00:00
-Courts This Week| Mohammad Deepak Kumar| Newslaundry| Namaz at home| Washrooms on campus & more
-https://www.livelaw.in/videos/bajrang-dal-ctw-courts-this-week-uapa-mohammad-deepak-kumar-west-bengal-enforcement-directorate-newslaundry-528294
-
-[Read on Telegram](https://t.me/livelawindia/107851)
-
----
-### 2026-03-30T11:53:25+00:00
-'Abdicating Constitutional Duty': Rajasthan High Court Criticises State Notification Which Included Transgender Persons In OBC Category
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-transgender-reservation-state-policy-empty-ritual-528295
-
-[Read on Telegram](https://t.me/livelawindia/107852)
-
----
 ### 2026-03-30T11:56:05+00:00
 Why is the Transgender Persons (Protection of Rights) Amendment receiving backlash?
 https://www.livelaw.in/videos/lgbtq-trans-rights-union-centre-inc-congress-bjp-transgender-persons-amendment-nalsa-gender-queer-india-528297
@@ -142,5 +65,82 @@ Freezing Bank Account Without Prima Facie Nexus To Offence Violates Fundamental 
 https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-bank-account-blanket-freezing-violates-fundamental-rights-528253
 
 [Read on Telegram](https://t.me/livelawindia/107861)
+
+---
+### 2026-03-30T13:48:55+00:00
+'What Is Your Authority?': Kerala High Court Questions Development Authority's Construction Of Commercial Kiosks On Queen's Walkway
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kiosks-gida-queens-walkway-528309
+
+[Read on Telegram](https://t.me/livelawindia/107862)
+
+---
+### 2026-03-30T14:05:55+00:00
+India's Unfinished Law On Dying With Dignity
+https://www.livelaw.in/law-firms/law-firm-articles-/indias-unfinished-law-on-dying-with-dignity-528314
+
+[Read on Telegram](https://t.me/livelawindia/107863)
+
+---
+### 2026-03-30T14:11:35+00:00
+NLIU Bhopal Students Win Client-Counsel Pair Award At 7th GNLU Mediation Competition 2026
+https://www.livelaw.in/lawschool/news/nliu-bhopal-students-win-client-counsel-pair-award-7th-gnlu-mediation-competition-2026-528316
+
+[Read on Telegram](https://t.me/livelawindia/107864)
+
+---
+### 2026-03-30T14:17:55+00:00
+Kerala High Court Sets Aside Order Transferring School Playground, Cites Lack Of Proper Consideration
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-transfer-order-school-playground-lack-of-proper-consideration-528307
+
+[Read on Telegram](https://t.me/livelawindia/107865)
+
+---
+### 2026-03-30T14:30:35+00:00
+NLU Jodhpur Signs MoU With Cybersecurity Advisors Network To Strengthen Cyber Law Education
+https://www.livelaw.in/lawschool/news/nlu-jodhpur-signs-mou-with-cybersecurity-advisors-network-to-strengthen-cyber-law-education-528317
+
+[Read on Telegram](https://t.me/livelawindia/107866)
+
+---
+### 2026-03-30T14:46:25+00:00
+AI Generated Brands: The Next Wave of Trademark Litigation
+https://www.livelaw.in/law-firms/law-firm-articles-/ai-generated-brands-next-wave-trademark-litigation-528319
+
+[Read on Telegram](https://t.me/livelawindia/107867)
+
+---
+### 2026-03-30T14:57:45+00:00
+Kerala High Court Reserves Verdict In Plea To Stall Release Of Movie Allegedly Inspired By Venjaramoodu Murder Case
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-venjaramoodu-mass-murder-case-film-kaalam-paranja-kadha-528310
+
+[Read on Telegram](https://t.me/livelawindia/107868)
+
+---
+### 2026-03-30T15:17:45+00:00
+Acquittal Of Employee In Criminal Case Does Not Automatically Entitle Him To Full Pay & Back Wages For Suspension Period: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-acquittal-employee-criminal-case-full-pay-back-wages-suspension-period-528308
+
+[Read on Telegram](https://t.me/livelawindia/107869)
+
+---
+### 2026-03-30T15:32:26+00:00
+A Hope of Clean Cities: Why India's New Waste Laws maybe More Than Just Paperwork
+https://www.livelaw.in/articles/clean-cities-new-waste-laws-528157
+
+[Read on Telegram](https://t.me/livelawindia/107870)
+
+---
+### 2026-03-30T15:47:36+00:00
+Telangana HC Grants One-Day Escort Bail To NIA Accused For Father's Funeral; Says Trial Court Ignored Material On Customary Ceremony
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-granted-one-day-escort-bail-15thday-ritual-nia-case-528258
+
+[Read on Telegram](https://t.me/livelawindia/107871)
+
+---
+### 2026-03-30T18:03:16+00:00
+International Conference On Artificial Intelligence And Social Justice For Viksit Bharat 2047
+https://www.livelaw.in/lawschool/news/international-conference-artificial-intelligence-social-justice-viksit-bharat-2047-528323
+
+[Read on Telegram](https://t.me/livelawindia/107872)
 
 ---
