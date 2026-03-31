@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-31T14:02:45+00:00*
+*Last Updated: 2026-03-31T16:02:51+00:00*
+
+---
+
+### 2026-03-31T16:02:51+00:00
+Young Professional Vacancy At ICMR-National Institute of Nutrition (ICMR-NIN)
+https://www.verdictum.in/job-updates/icmr-national-institute-of-nutrition-1611073
+
+[Source Link](https://t.me/verdictumlegalupdates/26251)
+
+---
+
+### 2026-03-31T15:32:49+00:00
+No Liability U/s.125 CrPC Upon Daughter-In-Law To Maintain Her Parents-In-Law: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/rakesh-kumar-and-another-v-state-of-up-2026ahc24683-liability-section-125-crpc-daughter-in-law-maintain-parents-in-law-1611080
+
+[Source Link](https://t.me/verdictumlegalupdates/26250)
+
+---
+
+### 2026-03-31T15:03:08+00:00
+Case Is Predominantly Private In Nature: Punjab & Haryana HC Acquits AAP MLA Manjinder Singh Lalpura In 2013 Molestation Case Following Compromise
+https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/2026-phhc-49349-gagandeep-singh-alias-gaganpreet-singh-v-state-of-punjab-1611079
+
+[Source Link](https://t.me/verdictumlegalupdates/26249)
+
+---
+
+### 2026-03-31T14:32:46+00:00
+Victim Suffered Significant Emotional, Mental & Physical Trauma Fighting For Justice: Delhi High Court Sentences Women To 10 Years Imprisonment For Abetting Rape
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/2026-dhc-2434-state-v-sweety-1611077
+
+[Source Link](https://t.me/verdictumlegalupdates/26248)
 
 ---
 
@@ -129,38 +161,6 @@ Failure To Prove Foundational Facts For Invoking Presumption U/S 29 POCSO Act Fa
 https://www.verdictum.in/court-updates/high-courts/madras-high-court/sundaram-v-state-by-the-inspector-of-police-2026mhc1272-foundational-facts-presumption-us-29-pocso-act-fatal-1611033
 
 [Source Link](https://t.me/verdictumlegalupdates/26232)
-
----
-
-### 2026-03-31T05:02:18+00:00
-Service Of Notice U/S 41A CrPC Through WhatsApp Or Other Electronic Modes Not Valid: Rajasthan High Court
-https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/ravi-meena-v-pushpendra-singh-rathod-2026rj-jp11960-whatsapp-notice-us-41a-crpc-1611032
-
-[Source Link](https://t.me/verdictumlegalupdates/26231)
-
----
-
-### 2026-03-31T04:32:27+00:00
-Selfhood Is Not A Matter Of Concession; Transgender Amendment Bill 2026 Risks Reducing Gender Rights To “State-Mediated Entitlement”: Rajasthan High Court
-https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/ganga-kumari-v-state-of-rajasthan-ors-2026rj-jd14683-db-transgender-personhood-1611025
-
-[Source Link](https://t.me/verdictumlegalupdates/26230)
-
----
-
-### 2026-03-30T16:02:25+00:00
-Institute of Company Secretaries of India Invites Applications For The Post Of Deputy Director (Legal)
-https://www.verdictum.in/job-updates/institute-of-company-secretaries-of-india-1611002
-
-[Source Link](https://t.me/verdictumlegalupdates/26229)
-
----
-
-### 2026-03-30T15:33:02+00:00
-Transgender Reservation Can’t Be Reduced To Mere OBC Inclusion; State Must Ensure Substantive Equality: Rajasthan High Court
-https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/ganga-kumari-v-state-of-rajasthan-ors-2026rj-jd14683-db-transgender-reservation-1611009
-
-[Source Link](https://t.me/verdictumlegalupdates/26228)
 
 ---
 
