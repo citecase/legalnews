@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-30T12:17:05+00:00*
+*Last Updated: 2026-03-31T04:44:50+00:00*
 
 ---
 
-### 2026-03-30T12:17:05+00:00
-Madras High Court Weekly Round-Up: March 23 to March 29, 2026
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-march-23-to-march-29-2026-528283
+### 2026-03-31T04:44:50+00:00
+Dr. Nimo Yadav's Account Blocked On MEITY Orders For Showing PM Modi In Bad Taste: X Tells Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/x-account-blocked-meity-order-defaming-pm-modi-dr-nimo-yadav-528341
 
-[Read on Telegram](https://t.me/livelawindia/107854)
-
----
-### 2026-03-30T12:17:35+00:00
-Kerala High Court Dismisses Plea Challenging Appointment Of Ex-CM VS Achuthanandan's Son As IHRD Director In-Charge
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-dismisses-plea-appointment-vs-achuthanandans-son-ihrd-director-in-charge-528270
-
-[Read on Telegram](https://t.me/livelawindia/107855)
+[Read on Telegram](https://t.me/livelawindia/107884)
 
 ---
-### 2026-03-30T12:18:16+00:00
-Delhi Consumer Commission Issues Bailable Warrant Against Good Flipping Burgers Official For Non-Compliance Of Order
-https://www.livelaw.in/consumer-cases/delhi-consumer-commission-issues-bailable-warrant-against-good-flipping-burgers-official-for-non-compliance-of-order-528290
+### 2026-03-31T04:52:50+00:00
+Can Foreign Arbitral Award Be Challenged In India On Grounds Rejected By Seat Court? Supreme Court Explains 'Transnational Issue Estoppel'
+https://www.livelaw.in/supreme-court/can-foreign-arbitral-award-be-challenged-in-india-on-grounds-rejected-by-seat-court-supreme-court-explains-transnational-issue-estoppel-528344
 
-[Read on Telegram](https://t.me/livelawindia/107856)
-
----
-### 2026-03-30T12:18:25+00:00
-Transgender Bill 2026 | Inviolable Aspect Of Personhood Now At Risk Of Becoming 'State-Mediated Entitlement': Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-transgender-bill-2026-reduce-self-identity-right-state-mediated-entitlement-528300
-
-[Read on Telegram](https://t.me/livelawindia/107857)
+[Read on Telegram](https://t.me/livelawindia/107885)
 
 ---
-### 2026-03-30T12:48:21+00:00
-Mere Breach Of Promise To Marry Does Not Constitute Rape In Absence Of Initial Deception: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-quashes-section376-breach-promise-marry-rape-528239
+### 2026-03-31T04:54:50+00:00
+2026 LiveLaw (SC) 305 | Nagaraj V. Mylandla versus PI Opportunities Fund-I and others Etc
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-305-nagaraj-v-mylandla-versus-pi-opportunities-fund-i-and-others-etc-528345
 
-[Read on Telegram](https://t.me/livelawindia/107858)
-
----
-### 2026-03-30T13:08:01+00:00
-Appeal Under Employee's Compensation Act Maintainable Only On Substantial Question Of Law, Full Deposit Of Award Mandatory: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-appeal-under-section-30-of-employees-compensation-act-maintainable-only-on-substantial-question-of-law-full-deposit-of-award-including-interest-mandatory-528246
-
-[Read on Telegram](https://t.me/livelawindia/107859)
+[Read on Telegram](https://t.me/livelawindia/107886)
 
 ---
-### 2026-03-30T13:33:21+00:00
-'Kargil Must Not Only Be Remembered In Moments Of Conflict, But Strengthened In Times Of Peace' : CJI Inaugurates New Kargil Court Complex
-https://www.livelaw.in/top-stories/cji-surya-kant-inaugurates-new-kargil-court-complex-528306
+### 2026-03-31T05:00:30+00:00
+HPNLU Shimla Hosts 6th National Moot Court Competition 2026; Army Institute Of Law Emerges Winner
+https://www.livelaw.in/lawschool/news/hpnlu-shimla-hosts-6th-national-moot-court-competition-2026-army-institute-of-law-emerges-winner-528346
 
-[Read on Telegram](https://t.me/livelawindia/107860)
-
----
-### 2026-03-30T13:42:35+00:00
-Freezing Bank Account Without Prima Facie Nexus To Offence Violates Fundamental Rights: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-bank-account-blanket-freezing-violates-fundamental-rights-528253
-
-[Read on Telegram](https://t.me/livelawindia/107861)
+[Read on Telegram](https://t.me/livelawindia/107887)
 
 ---
-### 2026-03-30T13:48:55+00:00
-'What Is Your Authority?': Kerala High Court Questions Development Authority's Construction Of Commercial Kiosks On Queen's Walkway
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kiosks-gida-queens-walkway-528309
+### 2026-03-31T05:03:10+00:00
+Kerala High Court Directs KeLSA To Expedite Disbursal Of Victim Compensation, Mediator Fee Authorised By State
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-victim-compensation-mediator-fees-kelsa-528343
 
-[Read on Telegram](https://t.me/livelawindia/107862)
-
----
-### 2026-03-30T14:05:55+00:00
-India's Unfinished Law On Dying With Dignity
-https://www.livelaw.in/law-firms/law-firm-articles-/indias-unfinished-law-on-dying-with-dignity-528314
-
-[Read on Telegram](https://t.me/livelawindia/107863)
+[Read on Telegram](https://t.me/livelawindia/107888)
 
 ---
-### 2026-03-30T14:11:35+00:00
-NLIU Bhopal Students Win Client-Counsel Pair Award At 7th GNLU Mediation Competition 2026
-https://www.livelaw.in/lawschool/news/nliu-bhopal-students-win-client-counsel-pair-award-7th-gnlu-mediation-competition-2026-528316
+### 2026-03-31T05:17:51+00:00
+COVID Death Must Be Backed By Test Report Or Certificate For Seeking Compensation: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-compensation-death-covid19-infection-test-report-covid-death-certificate-mandatory-528347
 
-[Read on Telegram](https://t.me/livelawindia/107864)
-
----
-### 2026-03-30T14:17:55+00:00
-Kerala High Court Sets Aside Order Transferring School Playground, Cites Lack Of Proper Consideration
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-transfer-order-school-playground-lack-of-proper-consideration-528307
-
-[Read on Telegram](https://t.me/livelawindia/107865)
+[Read on Telegram](https://t.me/livelawindia/107889)
 
 ---
-### 2026-03-30T14:30:35+00:00
-NLU Jodhpur Signs MoU With Cybersecurity Advisors Network To Strengthen Cyber Law Education
-https://www.livelaw.in/lawschool/news/nlu-jodhpur-signs-mou-with-cybersecurity-advisors-network-to-strengthen-cyber-law-education-528317
+### 2026-03-31T05:18:01+00:00
+Calcutta High Court Rejects Plea Challenging 'Unprecedented' Transfers Of Cops, Bureaucrats By ECI Ahead Of 2026 Bengal Polls
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-dismiss-plea-against-transfer-of-cops-bureaucrats-eci-2026-bengal-polls-528350
 
-[Read on Telegram](https://t.me/livelawindia/107866)
-
----
-### 2026-03-30T14:46:25+00:00
-AI Generated Brands: The Next Wave of Trademark Litigation
-https://www.livelaw.in/law-firms/law-firm-articles-/ai-generated-brands-next-wave-trademark-litigation-528319
-
-[Read on Telegram](https://t.me/livelawindia/107867)
+[Read on Telegram](https://t.me/livelawindia/107890)
 
 ---
-### 2026-03-30T14:57:45+00:00
-Kerala High Court Reserves Verdict In Plea To Stall Release Of Movie Allegedly Inspired By Venjaramoodu Murder Case
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-venjaramoodu-mass-murder-case-film-kaalam-paranja-kadha-528310
+### 2026-03-31T05:30:44+00:00
+Hindu Husband's Obligation To Maintain Wife Attaches Even After Death; Widow Can Claim From Father-In-Law: Allahabad HC
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-hindu-law-husband-maintenance-duty-after-death-wife-father-in-law-perjury-528354
 
-[Read on Telegram](https://t.me/livelawindia/107868)
-
----
-### 2026-03-30T15:17:45+00:00
-Acquittal Of Employee In Criminal Case Does Not Automatically Entitle Him To Full Pay & Back Wages For Suspension Period: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-acquittal-employee-criminal-case-full-pay-back-wages-suspension-period-528308
-
-[Read on Telegram](https://t.me/livelawindia/107869)
+[Read on Telegram](https://t.me/livelawindia/107891)
 
 ---
-### 2026-03-30T15:32:26+00:00
-A Hope of Clean Cities: Why India's New Waste Laws maybe More Than Just Paperwork
-https://www.livelaw.in/articles/clean-cities-new-waste-laws-528157
+### 2026-03-31T05:32:04+00:00
+Delhi High Court Weekly Round-Up: March 23 To March 29, 2026
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-weekly-round-up-march-23-to-march-29-2026-528355
 
-[Read on Telegram](https://t.me/livelawindia/107870)
-
----
-### 2026-03-30T15:47:36+00:00
-Telangana HC Grants One-Day Escort Bail To NIA Accused For Father's Funeral; Says Trial Court Ignored Material On Customary Ceremony
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-granted-one-day-escort-bail-15thday-ritual-nia-case-528258
-
-[Read on Telegram](https://t.me/livelawindia/107871)
+[Read on Telegram](https://t.me/livelawindia/107892)
 
 ---
-### 2026-03-30T18:03:16+00:00
-International Conference On Artificial Intelligence And Social Justice For Viksit Bharat 2047
-https://www.livelaw.in/lawschool/news/international-conference-artificial-intelligence-social-justice-viksit-bharat-2047-528323
+### 2026-03-31T05:47:44+00:00
+Mere Conferment Of Ministerial Perks Doesn't Make Cabinet Rank Appointments 'Ministers' Under Article 164(1A): Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-conferment-ministerial-perks-cabinet-rank-appointment-528352
 
-[Read on Telegram](https://t.me/livelawindia/107872)
+[Read on Telegram](https://t.me/livelawindia/107893)
 
 ---
-### 2026-03-31T02:39:10+00:00
-Government Not Clearing Names Of Candidates Recommended For Judgeship A Major Problem  : Justice Abhay Oka
-https://www.livelaw.in/top-stories/government-not-clearing-names-of-candidates-recommended-for-judgeship-a-major-problem-justice-abhay-oka-528324
+### 2026-03-31T05:55:04+00:00
+2026 LiveLaw (SC) 305 | SHABIR AHMED SHAH Versus NATIONAL INVESTIGATION AGENCY
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-305-shabir-ahmed-shah-versus-national-investigation-agency-528357
 
-[Read on Telegram](https://t.me/livelawindia/107873)
+[Read on Telegram](https://t.me/livelawindia/107894)
+
+---
+### 2026-03-31T05:59:44+00:00
+2026 LiveLaw (SC) 306 | REJANISH K.V. vs. K. DEEPA  (consequential order of 3-judge bench)
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-306-rejanish-kv-vs-k-deepa-consequential-order-of-3-judge-bench-528358
+
+[Read on Telegram](https://t.me/livelawindia/107895)
+
+---
+### 2026-03-31T06:02:24+00:00
+Gauhati High Court Weekly Round-Up: March 23 - March 29, 2026
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-weekly-round-up-march-23-march-29-2026-528351
+
+[Read on Telegram](https://t.me/livelawindia/107896)
+
+---
+### 2026-03-31T06:18:04+00:00
+Delhi High Court Refuses To Shift Former PFI Chief E Abubacker From Jail To Private Hospital, Says No Deficiency In Medical Treatment
+https://www.livelaw.in/high-court/delhi-high-court/former-pfi-chief-e-abubacker-not-shift-from-jail-to-private-hospital-528361
+
+[Read on Telegram](https://t.me/livelawindia/107897)
+
+---
+### 2026-03-31T06:26:34+00:00
+ECI Not Targetting Bengal, More Officers Transferred In Other Poll-Bound States: Calcutta HC On ECI's 'Undisputed' Power Under Article 324
+https://www.livelaw.in/high-court/calcutta-high-court/eci-not-targetting-bengal-more-officers-transferred-in-other-poll-bound-states-calcutta-high-court-rejects-plea-528364
+
+[Read on Telegram](https://t.me/livelawindia/107898)
+
+---
+### 2026-03-31T06:32:54+00:00
+'Poverty Can't Be Ground For Incarceration': Rajasthan High Court Releases Convict Kept In Jail For Not Paying Costs Despite Settlement
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-releases-convict-accused-kept-jail-compounding-costs-ni-act-case-528360
+
+[Read on Telegram](https://t.me/livelawindia/107899)
+
+---
+### 2026-03-31T06:35:14+00:00
+The HILTP Debate: Balancing Urban Evolution With Statutory Compliance
+https://www.livelaw.in/law-firms/law-firm-articles-/the-hiltp-debate-balancing-urban-evolution-with-statutory-compliance-528373
+
+[Read on Telegram](https://t.me/livelawindia/107900)
+
+---
+### 2026-03-31T06:48:14+00:00
+Can Women Above 50-Years Of Age Be Permitted To Avail Assisted Reproductive Technology Services? Bombay High Court To Decide
+https://www.livelaw.in/high-court/bombay-high-court/art-services-for-women-above-50-years-age-528356
+
+[Read on Telegram](https://t.me/livelawindia/107901)
+
+---
+### 2026-03-31T06:57:54+00:00
+Principle Of Subsistence Of Rights Can't Apply Where Basis Of Engagement Stands Displaced By Administrative Restructuring: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-principle-of-subsistence-of-rights-cant-apply-where-basis-of-engagement-stands-displaced-by-administrative-restructuring-528368
+
+[Read on Telegram](https://t.me/livelawindia/107902)
+
+---
+### 2026-03-31T07:17:44+00:00
+Delhi High Court Orders ₹1 Crore Ex-Gratia To Kin Of School Vice Principal Who Died Of COVID-19 While Supervising Relief Work
+https://www.livelaw.in/high-court/delhi-high-court/covid-19-death-compensation-school-vice-principal-supervised-relief-work-528362
+
+[Read on Telegram](https://t.me/livelawindia/107903)
 
 ---
