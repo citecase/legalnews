@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-30T11:56:05+00:00*
+*Last Updated: 2026-03-30T12:17:05+00:00*
 
 ---
 
-### 2026-03-30T11:56:05+00:00
-Why is the Transgender Persons (Protection of Rights) Amendment receiving backlash?
-https://www.livelaw.in/videos/lgbtq-trans-rights-union-centre-inc-congress-bjp-transgender-persons-amendment-nalsa-gender-queer-india-528297
-
-[Read on Telegram](https://t.me/livelawindia/107853)
-
----
 ### 2026-03-30T12:17:05+00:00
 Madras High Court Weekly Round-Up: March 23 to March 29, 2026
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-march-23-to-march-29-2026-528283
@@ -142,5 +135,12 @@ International Conference On Artificial Intelligence And Social Justice For Viksi
 https://www.livelaw.in/lawschool/news/international-conference-artificial-intelligence-social-justice-viksit-bharat-2047-528323
 
 [Read on Telegram](https://t.me/livelawindia/107872)
+
+---
+### 2026-03-31T02:39:10+00:00
+Government Not Clearing Names Of Candidates Recommended For Judgeship A Major Problem  : Justice Abhay Oka
+https://www.livelaw.in/top-stories/government-not-clearing-names-of-candidates-recommended-for-judgeship-a-major-problem-justice-abhay-oka-528324
+
+[Read on Telegram](https://t.me/livelawindia/107873)
 
 ---
