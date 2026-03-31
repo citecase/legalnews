@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-31T04:44:50+00:00*
+*Last Updated: 2026-03-31T09:17:55+00:00*
 
 ---
 
-### 2026-03-31T04:44:50+00:00
-Dr. Nimo Yadav's Account Blocked On MEITY Orders For Showing PM Modi In Bad Taste: X Tells Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/x-account-blocked-meity-order-defaming-pm-modi-dr-nimo-yadav-528341
+### 2026-03-31T09:17:55+00:00
+'Govt Must Step In To Ensure Essential Services Not Affected': Kerala High Court On Private Hospital Nurses' Strike
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-private-hospital-nurses-strike-528389
 
-[Read on Telegram](https://t.me/livelawindia/107884)
-
----
-### 2026-03-31T04:52:50+00:00
-Can Foreign Arbitral Award Be Challenged In India On Grounds Rejected By Seat Court? Supreme Court Explains 'Transnational Issue Estoppel'
-https://www.livelaw.in/supreme-court/can-foreign-arbitral-award-be-challenged-in-india-on-grounds-rejected-by-seat-court-supreme-court-explains-transnational-issue-estoppel-528344
-
-[Read on Telegram](https://t.me/livelawindia/107885)
+[Read on Telegram](https://t.me/livelawindia/107907)
 
 ---
-### 2026-03-31T04:54:50+00:00
-2026 LiveLaw (SC) 305 | Nagaraj V. Mylandla versus PI Opportunities Fund-I and others Etc
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-305-nagaraj-v-mylandla-versus-pi-opportunities-fund-i-and-others-etc-528345
+### 2026-03-31T09:19:25+00:00
+[Advertisement]Industry-Ready Legal Freelancing And Remote Legal Career Training Certification Program By Into Legal World
+https://www.livelaw.in/lawschool/diploma-certificate-courses/industry-ready-legal-freelancing-remote-legal-career-training-certification-program-into-legal-world-528394
 
-[Read on Telegram](https://t.me/livelawindia/107886)
-
----
-### 2026-03-31T05:00:30+00:00
-HPNLU Shimla Hosts 6th National Moot Court Competition 2026; Army Institute Of Law Emerges Winner
-https://www.livelaw.in/lawschool/news/hpnlu-shimla-hosts-6th-national-moot-court-competition-2026-army-institute-of-law-emerges-winner-528346
-
-[Read on Telegram](https://t.me/livelawindia/107887)
+[Read on Telegram](https://t.me/livelawindia/107908)
 
 ---
-### 2026-03-31T05:03:10+00:00
-Kerala High Court Directs KeLSA To Expedite Disbursal Of Victim Compensation, Mediator Fee Authorised By State
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-victim-compensation-mediator-fees-kelsa-528343
+### 2026-03-31T09:22:45+00:00
+Disciplinary Authority Cannot Reject Medical Records Without Ascertaining Authenticity Before Dismissing Delinquent: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-disciplinary-authority-cannot-reject-medical-records-without-ascertaining-their-authenticity-before-dismissing-delinquent-528367
 
-[Read on Telegram](https://t.me/livelawindia/107888)
-
----
-### 2026-03-31T05:17:51+00:00
-COVID Death Must Be Backed By Test Report Or Certificate For Seeking Compensation: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-compensation-death-covid19-infection-test-report-covid-death-certificate-mandatory-528347
-
-[Read on Telegram](https://t.me/livelawindia/107889)
+[Read on Telegram](https://t.me/livelawindia/107909)
 
 ---
-### 2026-03-31T05:18:01+00:00
-Calcutta High Court Rejects Plea Challenging 'Unprecedented' Transfers Of Cops, Bureaucrats By ECI Ahead Of 2026 Bengal Polls
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-dismiss-plea-against-transfer-of-cops-bureaucrats-eci-2026-bengal-polls-528350
+### 2026-03-31T09:33:05+00:00
+Kerala High Court Upholds 2024 Amendment To Kerala Lok Ayukta Act
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-upholds-2024-amendment-to-lok-ayuktha-act-528390
 
-[Read on Telegram](https://t.me/livelawindia/107890)
-
----
-### 2026-03-31T05:30:44+00:00
-Hindu Husband's Obligation To Maintain Wife Attaches Even After Death; Widow Can Claim From Father-In-Law: Allahabad HC
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-hindu-law-husband-maintenance-duty-after-death-wife-father-in-law-perjury-528354
-
-[Read on Telegram](https://t.me/livelawindia/107891)
+[Read on Telegram](https://t.me/livelawindia/107910)
 
 ---
-### 2026-03-31T05:32:04+00:00
-Delhi High Court Weekly Round-Up: March 23 To March 29, 2026
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-weekly-round-up-march-23-to-march-29-2026-528355
+### 2026-03-31T09:48:05+00:00
+Allahabad High Court Summons Husband's ITRs To Determine Income, Remands Matter To Trial Court To Decide DV Case
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-summons-income-tax-returns-determine-income-dv-case-528391
 
-[Read on Telegram](https://t.me/livelawindia/107892)
-
----
-### 2026-03-31T05:47:44+00:00
-Mere Conferment Of Ministerial Perks Doesn't Make Cabinet Rank Appointments 'Ministers' Under Article 164(1A): Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-conferment-ministerial-perks-cabinet-rank-appointment-528352
-
-[Read on Telegram](https://t.me/livelawindia/107893)
+[Read on Telegram](https://t.me/livelawindia/107911)
 
 ---
-### 2026-03-31T05:55:04+00:00
-2026 LiveLaw (SC) 305 | SHABIR AHMED SHAH Versus NATIONAL INVESTIGATION AGENCY
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-305-shabir-ahmed-shah-versus-national-investigation-agency-528357
+### 2026-03-31T09:49:45+00:00
+Allahabad High Court Weekly Round-Up: March 23 To March 29, 2026
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-weekly-roundup-march23-march29-2026-528399
 
-[Read on Telegram](https://t.me/livelawindia/107894)
-
----
-### 2026-03-31T05:59:44+00:00
-2026 LiveLaw (SC) 306 | REJANISH K.V. vs. K. DEEPA  (consequential order of 3-judge bench)
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-306-rejanish-kv-vs-k-deepa-consequential-order-of-3-judge-bench-528358
-
-[Read on Telegram](https://t.me/livelawindia/107895)
+[Read on Telegram](https://t.me/livelawindia/107912)
 
 ---
-### 2026-03-31T06:02:24+00:00
-Gauhati High Court Weekly Round-Up: March 23 - March 29, 2026
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-weekly-round-up-march-23-march-29-2026-528351
+### 2026-03-31T09:58:25+00:00
+'Lawyers Can't Be Treated Like Servants': Rajasthan High Court Quashes JDA's Orders Removing Advocates For Violating Terms & Conditions
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-jda-advocates-removal-engagement-528400
 
-[Read on Telegram](https://t.me/livelawindia/107896)
-
----
-### 2026-03-31T06:18:04+00:00
-Delhi High Court Refuses To Shift Former PFI Chief E Abubacker From Jail To Private Hospital, Says No Deficiency In Medical Treatment
-https://www.livelaw.in/high-court/delhi-high-court/former-pfi-chief-e-abubacker-not-shift-from-jail-to-private-hospital-528361
-
-[Read on Telegram](https://t.me/livelawindia/107897)
+[Read on Telegram](https://t.me/livelawindia/107913)
 
 ---
-### 2026-03-31T06:26:34+00:00
-ECI Not Targetting Bengal, More Officers Transferred In Other Poll-Bound States: Calcutta HC On ECI's 'Undisputed' Power Under Article 324
-https://www.livelaw.in/high-court/calcutta-high-court/eci-not-targetting-bengal-more-officers-transferred-in-other-poll-bound-states-calcutta-high-court-rejects-plea-528364
+### 2026-03-31T10:07:25+00:00
+Jharkhand High Court Takes Suo Motu Cognisance Of Rape–Murder Of 12-Yr-Old; Slams Police For “Lethargic Attitude”
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-suo-motu-cognizance-rape-murder-police-lethargic-attitude-528372
 
-[Read on Telegram](https://t.me/livelawindia/107898)
-
----
-### 2026-03-31T06:32:54+00:00
-'Poverty Can't Be Ground For Incarceration': Rajasthan High Court Releases Convict Kept In Jail For Not Paying Costs Despite Settlement
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-releases-convict-accused-kept-jail-compounding-costs-ni-act-case-528360
-
-[Read on Telegram](https://t.me/livelawindia/107899)
+[Read on Telegram](https://t.me/livelawindia/107914)
 
 ---
-### 2026-03-31T06:35:14+00:00
-The HILTP Debate: Balancing Urban Evolution With Statutory Compliance
-https://www.livelaw.in/law-firms/law-firm-articles-/the-hiltp-debate-balancing-urban-evolution-with-statutory-compliance-528373
+### 2026-03-31T10:32:17+00:00
+Doctrinally Correct But Institutionally Problematic Approach To Kolhapur HC Bench Jurisdiction
+https://www.livelaw.in/articles/problematic-approach-kolhapur-hc-bench-jurisdiction-528408
 
-[Read on Telegram](https://t.me/livelawindia/107900)
-
----
-### 2026-03-31T06:48:14+00:00
-Can Women Above 50-Years Of Age Be Permitted To Avail Assisted Reproductive Technology Services? Bombay High Court To Decide
-https://www.livelaw.in/high-court/bombay-high-court/art-services-for-women-above-50-years-age-528356
-
-[Read on Telegram](https://t.me/livelawindia/107901)
+[Read on Telegram](https://t.me/livelawindia/107915)
 
 ---
-### 2026-03-31T06:57:54+00:00
-Principle Of Subsistence Of Rights Can't Apply Where Basis Of Engagement Stands Displaced By Administrative Restructuring: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-principle-of-subsistence-of-rights-cant-apply-where-basis-of-engagement-stands-displaced-by-administrative-restructuring-528368
+### 2026-03-31T10:32:57+00:00
+Transfer Of Maintenance Proceedings From Family Court To Gram Nyayalaya Valid: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-maintenance-proceedings-transfer-family-court-gram-nyayalaya-sec16-gram-nyayalayas-act2008-528392
 
-[Read on Telegram](https://t.me/livelawindia/107902)
+[Read on Telegram](https://t.me/livelawindia/107916)
 
 ---
-### 2026-03-31T07:17:44+00:00
-Delhi High Court Orders ₹1 Crore Ex-Gratia To Kin Of School Vice Principal Who Died Of COVID-19 While Supervising Relief Work
-https://www.livelaw.in/high-court/delhi-high-court/covid-19-death-compensation-school-vice-principal-supervised-relief-work-528362
+### 2026-03-31T10:43:17+00:00
+'Matter Of Grave Concern': MP High Court Flags Rise Of Illegal Sand Transport In Overloaded Vehicles Threatening Public Safety
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-illegal-sand-transport-case-overloaded-vehicles-increasing-road-accidents-528403
 
-[Read on Telegram](https://t.me/livelawindia/107903)
+[Read on Telegram](https://t.me/livelawindia/107917)
+
+---
+### 2026-03-31T10:47:17+00:00
+'Homemaker Renders Varied Services To Family, Not Unskilled Labour': MP High Court Enhances Compensation After Woman's Death In Accident
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-homemaker-motor-accident-claims-tribunal-enhanced-compensation-528402
+
+[Read on Telegram](https://t.me/livelawindia/107918)
+
+---
+### 2026-03-31T11:02:17+00:00
+Karnataka High Court Weekly Round-Up: March 23 - March 29, 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-roundup2026-528404
+
+[Read on Telegram](https://t.me/livelawindia/107919)
+
+---
+### 2026-03-31T11:27:27+00:00
+Preliminary Enquiry Evidence Cannot Form Basis Of Departmental Findings Without Cross-Examination: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-preliminary-enquiry-evidence-cannot-form-basis-of-departmental-findings-without-cross-examination-use-of-such-evidence-violates-natural-justice-528371
+
+[Read on Telegram](https://t.me/livelawindia/107920)
+
+---
+### 2026-03-31T11:53:07+00:00
+Disengagement Of Daily Wagers By PSU Due To Closure Or Financial Constraints Not Arbitrary Under Article 14: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-disengagement-of-daily-wagers-by-psu-due-to-closure-or-financial-constraints-not-arbitrary-under-article-14-528369
+
+[Read on Telegram](https://t.me/livelawindia/107921)
+
+---
+### 2026-03-31T12:12:27+00:00
+Private School Can't Be Treated As Closed Without Prior Approval Of DoE, Staff Entitled To Salary: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/private-school-staff-entitled-to-salary-unless-closed-with-doe-approval-528416
+
+[Read on Telegram](https://t.me/livelawindia/107922)
+
+---
+### 2026-03-31T12:32:38+00:00
+'Even Owner Can't Unlawfully Enter Premises In Another's Lawful Possession': Kerala High Court Upholds Landlord's Guilt In Trespass Case
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-landlord-trespass-tenant-guilt-528417
+
+[Read on Telegram](https://t.me/livelawindia/107923)
+
+---
+### 2026-03-31T12:47:38+00:00
+Cheque Bounce Complaint Can't Be Dismissed For Want Of Tracking Report: MP High Court Lays Guidelines On Presumption Of Service Of Notice
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-section-138-negotiable-instruments-act-guidelines-on-presumption-of-statutory-notice-service-528418
+
+[Read on Telegram](https://t.me/livelawindia/107924)
+
+---
+### 2026-03-31T13:02:18+00:00
+Madhya Pradesh High Court Weekly Roundup: March 23 - March 29, 2026
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-weekly-digest-23-march-to-29-march-2026-528429
+
+[Read on Telegram](https://t.me/livelawindia/107925)
+
+---
+### 2026-03-31T13:18:08+00:00
+Co-operative Society Can Undertake Banking Activities: Kerala High Court Upholds State Co-operative Banking Framework
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-upholds-validity-of-state-co-operative-banking-framework-528423
+
+[Read on Telegram](https://t.me/livelawindia/107926)
 
 ---
