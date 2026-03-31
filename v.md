@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-30T16:02:25+00:00*
+*Last Updated: 2026-03-31T07:42:44+00:00*
+
+---
+
+### 2026-03-31T07:42:44+00:00
+Chhattisgarh High Court Denies Bail To Key Accused In ₹540 Crore Illegal Coal Levy Scam Involving Pradesh Congress Bhavan
+https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/devendra-dadsena-v-state-of-chhattisgarh-2026cghc14779-coal-levy-case-1611048
+
+[Source Link](https://t.me/verdictumlegalupdates/26235)
+
+---
+
+### 2026-03-31T07:02:23+00:00
+Delhi High Court Refuses To Transfer Former PFI Chairman Abubacker E. To Private Hospital For Treatment; Allows Physical Evaluation For Second Opinion
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/2026dhc2623-abubacker-e-v-national-investigation-agency-1611039
+
+[Source Link](https://t.me/verdictumlegalupdates/26234)
+
+---
+
+### 2026-03-31T06:12:41+00:00
+Muslim Personal Law Does Not Bar Jurisdiction Under Guardians and Wards Act In Matters Of Custody Of Child: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/2026-ahc-65179-xxxx-v-state-of-up-1611038
+
+[Source Link](https://t.me/verdictumlegalupdates/26233)
+
+---
+
+### 2026-03-31T05:43:00+00:00
+Failure To Prove Foundational Facts For Invoking Presumption U/S 29 POCSO Act Fatal: Madras High Court Acquits 55-Year-Old Man
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/sundaram-v-state-by-the-inspector-of-police-2026mhc1272-foundational-facts-presumption-us-29-pocso-act-fatal-1611033
+
+[Source Link](https://t.me/verdictumlegalupdates/26232)
+
+---
+
+### 2026-03-31T05:02:18+00:00
+Service Of Notice U/S 41A CrPC Through WhatsApp Or Other Electronic Modes Not Valid: Rajasthan High Court
+https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/ravi-meena-v-pushpendra-singh-rathod-2026rj-jp11960-whatsapp-notice-us-41a-crpc-1611032
+
+[Source Link](https://t.me/verdictumlegalupdates/26231)
+
+---
+
+### 2026-03-31T04:32:27+00:00
+Selfhood Is Not A Matter Of Concession; Transgender Amendment Bill 2026 Risks Reducing Gender Rights To “State-Mediated Entitlement”: Rajasthan High Court
+https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/ganga-kumari-v-state-of-rajasthan-ors-2026rj-jd14683-db-transgender-personhood-1611025
+
+[Source Link](https://t.me/verdictumlegalupdates/26230)
 
 ---
 
@@ -113,54 +161,6 @@ Conviction Based Solely On Parental Statements Unsustainable: Calcutta High Cour
 https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/boren-mondal-v-the-state-of-west-bengal-2026chc-as483-dowry-death-case-1610965
 
 [Source Link](https://t.me/verdictumlegalupdates/26216)
-
----
-
-### 2026-03-30T06:32:01+00:00
-When Forged Driving License Is Tendered In Evidence Before MACT, It Attracts Offence U/S 193 IPC: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/2026-ker-27895-raji-joshi-alias-reji-joshi-v-state-of-kerala-1610962
-
-[Source Link](https://t.me/verdictumlegalupdates/26215)
-
----
-
-### 2026-03-30T06:02:14+00:00
-Not Necessary To Specify Exact Quantity Of Contraband In Grounds Of Arrest: Kerala High Court Denies Bail To NDPS Accused
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/arun-kumar-p-v-state-of-kerala-2026ker24697-specifying-quantity-contraband-intermediate-commercial-arrest-sufficient-1610958
-
-[Source Link](https://t.me/verdictumlegalupdates/26214)
-
----
-
-### 2026-03-30T05:32:53+00:00
-2019 Amendment To Motor Vehicles Act Removed 30-Day Automatic  Extension For Expired Licences: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/delhi-police-anr-v-sudheer-kumar-2026dhc4271-db-motor-vehicles-amendment-act-1610955
-
-[Source Link](https://t.me/verdictumlegalupdates/26213)
-
----
-
-### 2026-03-30T05:02:51+00:00
-Tenant Can’t Evade Liability On Ground That He Is Not Personally Residing When He Takes Premises On Rent With His Family Members: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/rajat-verma-v-hp-suman-2026dhc2561tenant-liability-residing-premises-rent-family-members-1610953
-
-[Source Link](https://t.me/verdictumlegalupdates/26212)
-
----
-
-### 2026-03-30T04:32:40+00:00
-Automatic Disqualification Follows Conviction For Offences Involving Moral Turpitude U/S 10 MMC Act: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/deelip-gopalsingh-thakur-v-the-state-of-maharashtra-2026bhc-aug12515-us-10-maharashtra-municipal-corporations-act-1610945
-
-[Source Link](https://t.me/verdictumlegalupdates/26211)
-
----
-
-### 2026-03-29T15:02:27+00:00
-Legal Expert Vacancy At Andaman and Nicobar Islands Integrated Development Corporation Limited (ANIIDCO)
-https://www.verdictum.in/job-updates/andaman-and-nicobar-islands-integrated-development-corporation-limited-1610891
-
-[Source Link](https://t.me/verdictumlegalupdates/26210)
 
 ---
 
