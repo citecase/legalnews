@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-03-31T11:27:27+00:00*
+*Last Updated: 2026-04-01T04:49:11+00:00*
 
 ---
 
-### 2026-03-31T11:27:27+00:00
-Preliminary Enquiry Evidence Cannot Form Basis Of Departmental Findings Without Cross-Examination: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-preliminary-enquiry-evidence-cannot-form-basis-of-departmental-findings-without-cross-examination-use-of-such-evidence-violates-natural-justice-528371
+### 2026-04-01T04:49:11+00:00
+Supreme Court Weekly Digest February 5 - 12, 2026
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-weekly-digest-february-2026-528463
 
-[Read on Telegram](https://t.me/livelawindia/107920)
-
----
-### 2026-03-31T11:53:07+00:00
-Disengagement Of Daily Wagers By PSU Due To Closure Or Financial Constraints Not Arbitrary Under Article 14: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-disengagement-of-daily-wagers-by-psu-due-to-closure-or-financial-constraints-not-arbitrary-under-article-14-528369
-
-[Read on Telegram](https://t.me/livelawindia/107921)
+[Read on Telegram](https://t.me/livelawindia/107946)
 
 ---
-### 2026-03-31T12:12:27+00:00
-Private School Can't Be Treated As Closed Without Prior Approval Of DoE, Staff Entitled To Salary: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/private-school-staff-entitled-to-salary-unless-closed-with-doe-approval-528416
+### 2026-04-01T04:58:31+00:00
+'Kerala High Court Has Formidable Women Lawyers, Gave First Woman Supreme Court Judge': Justice N Nagaresh In Farewell Address
+https://www.livelaw.in/high-court/kerala-high-court/justice-n-nagaresh-bids-farewell-to-kerala-high-court-528466
 
-[Read on Telegram](https://t.me/livelawindia/107922)
-
----
-### 2026-03-31T12:32:38+00:00
-'Even Owner Can't Unlawfully Enter Premises In Another's Lawful Possession': Kerala High Court Upholds Landlord's Guilt In Trespass Case
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-landlord-trespass-tenant-guilt-528417
-
-[Read on Telegram](https://t.me/livelawindia/107923)
+[Read on Telegram](https://t.me/livelawindia/107947)
 
 ---
-### 2026-03-31T12:47:38+00:00
-Cheque Bounce Complaint Can't Be Dismissed For Want Of Tracking Report: MP High Court Lays Guidelines On Presumption Of Service Of Notice
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-section-138-negotiable-instruments-act-guidelines-on-presumption-of-statutory-notice-service-528418
+### 2026-04-01T05:05:51+00:00
+Delay In Filing Complaint Can Be Fatal In Matrimonial Disputes: Supreme Court Quashes 498A, Dowry Harassment Case Against In-Laws
+https://www.livelaw.in/supreme-court/delay-in-filing-complaint-can-be-fatal-in-matrimonial-disputes-supreme-court-quashes-498a-dowry-harassment-case-against-in-laws-528469
 
-[Read on Telegram](https://t.me/livelawindia/107924)
-
----
-### 2026-03-31T13:02:18+00:00
-Madhya Pradesh High Court Weekly Roundup: March 23 - March 29, 2026
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-weekly-digest-23-march-to-29-march-2026-528429
-
-[Read on Telegram](https://t.me/livelawindia/107925)
+[Read on Telegram](https://t.me/livelawindia/107948)
 
 ---
-### 2026-03-31T13:18:08+00:00
-Co-operative Society Can Undertake Banking Activities: Kerala High Court Upholds State Co-operative Banking Framework
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-upholds-validity-of-state-co-operative-banking-framework-528423
+### 2026-04-01T05:07:41+00:00
+Authorities Cannot Evict Tenants By Declaring Building 'Unsafe' In Order To Bypass Due Process: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-kashmir-high-court-authorities-evict-tenants-declaring-building-unsafe-528454
 
-[Read on Telegram](https://t.me/livelawindia/107926)
-
----
-### 2026-03-31T13:47:12+00:00
-Legal Aid Or At Least Hearing Mandatory Before Framing Charges Against Accused In Custody: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-accused-judicial-custody-legal-counsel-filing-discharge-application-528421
-
-[Read on Telegram](https://t.me/livelawindia/107927)
+[Read on Telegram](https://t.me/livelawindia/107949)
 
 ---
-### 2026-03-31T14:17:52+00:00
-Cheque Dishonour Cannot Be Decided Solely Based On Return Memo Whose Authenticity Is Yet To Be Established: HP High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-cheque-dishonour-return-memo-528370
+### 2026-04-01T05:07:51+00:00
+'Digital Vigilantism': Delhi High Court Pulls Up Media, Actress Richa Chadha For Defamatory Posts Against Man Over Indigo Flight Incident
+https://www.livelaw.in/high-court/delhi-high-court/richa-chadha-media-digital-vigilantism-indigo-flight-incident-social-media-posts-528471
 
-[Read on Telegram](https://t.me/livelawindia/107928)
-
----
-### 2026-03-31T14:32:12+00:00
-Mere Use Of Words “Waqf” And “Mosque” Doesn't Establish Public Waqf Sans Declaration: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-use-of-waqf-mosque-does-not-imply-public-waqf-created-528434
-
-[Read on Telegram](https://t.me/livelawindia/107929)
+[Read on Telegram](https://t.me/livelawindia/107950)
 
 ---
-### 2026-03-31T14:33:12+00:00
-Artificial Intelligence In Courts: Promise, Peril, And The Path Ahead
-https://www.livelaw.in/articles/artificial-intelligence-courts-528424
+### 2026-04-01T05:11:18+00:00
+Consultant (Legal) And Consultant (Legal & Estate) Vacancy At Hindustan Salts Limited
+https://www.livelaw.in/job-updates/consultant-legal-and-consultant-legal-estate-vacancy-at-hindustan-salts-limited-528472
 
-[Read on Telegram](https://t.me/livelawindia/107930)
-
----
-### 2026-03-31T14:47:42+00:00
-Kerala High Court Summons Law Secretary To Explain Delay In Tabling Anti-Ragging Bill Before State Cabinet
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-anti-ragging-bill-cabinet-528435
-
-[Read on Telegram](https://t.me/livelawindia/107931)
+[Read on Telegram](https://t.me/livelawindia/107951)
 
 ---
-### 2026-03-31T15:17:42+00:00
-Driving Licence Not Fake Merely Because It Was Not Converted To Smart Card: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/driving-licence-not-fake-merely-because-it-was-not-converted-to-smart-card-delhi-high-court-528437
+### 2026-04-01T05:12:18+00:00
+Consultant In The PSP Division Vacancy At Ministry Of External Affairs (MEA), New Delhi
+https://www.livelaw.in/job-updates/consultant-in-the-psp-division-vacancy-at-ministry-of-external-affairs-mea-new-delhi-528473
 
-[Read on Telegram](https://t.me/livelawindia/107932)
-
----
-### 2026-03-31T15:48:12+00:00
-National Law University Delhi Enters QS World University Rankings By Subject 2026
-https://www.livelaw.in/lawschool/news/national-law-university-delhi-enters-qs-world-university-rankings-528440
-
-[Read on Telegram](https://t.me/livelawindia/107933)
+[Read on Telegram](https://t.me/livelawindia/107952)
 
 ---
-### 2026-03-31T16:03:12+00:00
-Delhi High Court Upholds Bidder's Disqualification From Sri Lanka Consular Services Tender, Cites Lack Of Independent Experience
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-upholds-bidders-disqualification-from-sri-lanka-consular-services-tender-cites-lack-of-independent-experience-528438
+### 2026-04-01T05:13:38+00:00
+Call For Application: Academic Fellow Under UNESCO Chair For Legal Dimensions Of Clean Sports At NLU, Delhi
+https://www.livelaw.in/job-updates/call-for-application-academic-fellow-under-unesco-chair-for-legal-dimensions-of-clean-sports-at-nlu-delhi-528474
 
-[Read on Telegram](https://t.me/livelawindia/107934)
-
----
-### 2026-03-31T16:17:32+00:00
-Writ Petition Not Maintainable Before Final Order In Court Martial Process: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/writ-petition-not-maintainable-before-final-order-in-court-martial-process-delhi-high-court-528439
-
-[Read on Telegram](https://t.me/livelawindia/107935)
+[Read on Telegram](https://t.me/livelawindia/107953)
 
 ---
-### 2026-03-31T16:22:33+00:00
-MNLU Mumbai To Host Global Conference On 'Sky Forensics': Investigating Crimes And Catastrophes In Air and Space
-https://www.livelaw.in/lawschool/news/mnlu-mumbai-host-global-conference-sky-forensics-investigating-crimes-catastrophes-528444
+### 2026-04-01T05:13:48+00:00
+Kerala High Court Refuses To Dismiss Election Petition Against Union Minister Suresh Gopi
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-suresh-gopi-election-petition-bjp-528475
 
-[Read on Telegram](https://t.me/livelawindia/107936)
-
----
-### 2026-03-31T16:48:42+00:00
-NLIU Bhopal Team Wins 5th National Moot Court Competition, 2026
-https://www.livelaw.in/lawschool/news/nliu-bhopal-team-wins-5th-national-moot-court-competition-528447
-
-[Read on Telegram](https://t.me/livelawindia/107937)
+[Read on Telegram](https://t.me/livelawindia/107954)
 
 ---
-### 2026-03-31T18:26:53+00:00
-Delhi Journal For Law And Justice Invites Submissions For 2026 Issue
-https://www.livelaw.in/lawschool/call-for-papers/delhi-journal-law-justice-invites-submissions-2026-issue-528448
+### 2026-04-01T05:14:58+00:00
+Senior Analyst (Legal) Vacancy At National Bank For Financing Infrastructure And Development (NaBFID)
+https://www.livelaw.in/job-updates/senior-analyst-legal-vacancy-at-national-bank-for-financing-infrastructure-and-development-528477
 
-[Read on Telegram](https://t.me/livelawindia/107938)
+[Read on Telegram](https://t.me/livelawindia/107955)
 
 ---
-### 2026-03-31T18:29:53+00:00
-CHRIST (Deemed to be University), Pune Hosts THEMIS 6th Moot Court Competition 2026
-https://www.livelaw.in/lawschool/news/christ-deemed-to-be-university-pune-hosts-themis-6th-moot-court-competition-2026-528449
+### 2026-04-01T05:18:18+00:00
+2026 LiveLaw (SC) 307  |  CHARUL SHUKLA VERSUS STATE OF U.P. & OTHERS (with connected appeal)
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-307-charul-shukla-versus-state-of-up-others-with-connected-appeal-528478
 
-[Read on Telegram](https://t.me/livelawindia/107939)
+[Read on Telegram](https://t.me/livelawindia/107956)
+
+---
+### 2026-04-01T05:34:28+00:00
+The Inimitable C.K. Daphtary
+https://www.livelaw.in/articles/ck-daphtary-attorney-general-india-legal-legend-528482
+
+[Read on Telegram](https://t.me/livelawindia/107957)
+
+---
+### 2026-04-01T05:40:28+00:00
+Rajasthan High Court Directs Admission Of NEET-PG Candidate Denied For Want Of Permanent Registration Certificate
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-neetpg2025-row-information-bulletin-statutory-regulations-528486
+
+[Read on Telegram](https://t.me/livelawindia/107958)
+
+---
+### 2026-04-01T05:59:28+00:00
+No Law Bars Conducting Prayer Meeting Inside One's Home, Permission From Authority Not Required: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-prayer-meeting-inside-house-permission-528488
+
+[Read on Telegram](https://t.me/livelawindia/107959)
+
+---
+### 2026-04-01T06:10:08+00:00
+Kerala Court Remands Malayalam Film Director Ranjith To Judicial Custody In Sexual Harassment Case
+https://www.livelaw.in/news-updates/kerala-court-director-ranjith-judicial-custody-arrest-sexual-harassment-case-528489
+
+[Read on Telegram](https://t.me/livelawindia/107960)
+
+---
+### 2026-04-01T06:22:58+00:00
+Co-Owner Cannot Be Denied Enhanced Compensation Granted To Other Co-Owners Under Same Acquisition: Himachal Pradesh High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-coowner-denied-compensation-same-acquisition-528455
+
+[Read on Telegram](https://t.me/livelawindia/107961)
+
+---
+### 2026-04-01T06:32:58+00:00
+UP Govt Servant (Medical Attendance) Rules | Legal Heirs Can Claim Medical Expenses If Beneficiary Dies: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-up-govt-servant-legal-heirs-beneficiaries-medical-compensation-528453
+
+[Read on Telegram](https://t.me/livelawindia/107962)
+
+---
+### 2026-04-01T06:42:22+00:00
+West Bengal SIR | Appellate Tribunals Can Entertain Fresh Documents After Verifying Genuineness : Supreme Court
+https://www.livelaw.in/top-stories/west-bengal-sir-appellate-tribunals-can-entertain-fresh-documents-after-verifying-genuineness-supreme-court-528493
+
+[Read on Telegram](https://t.me/livelawindia/107963)
+
+---
+### 2026-04-01T07:05:02+00:00
+Allahabad High Court Monthly Digest: March 2026
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-monthly-digest-march-2026-528495
+
+[Read on Telegram](https://t.me/livelawindia/107964)
+
+---
+### 2026-04-01T07:21:02+00:00
+Liquor Consumption Is Personal Choice, But Shops Causing Nuisance Must Be Checked: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-alcohol-consumption-choice-shop-license-no-nuisance-528496
+
+[Read on Telegram](https://t.me/livelawindia/107965)
 
 ---
