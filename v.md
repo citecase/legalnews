@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-01T13:32:59+00:00*
+*Last Updated: 2026-04-01T16:02:44+00:00*
+
+---
+
+### 2026-04-01T16:02:44+00:00
+Legal Inspector Vacancy At Bharat Coking Coal Limited (BCCL)
+https://www.verdictum.in/job-updates/bharat-coking-coal-limited-1611147
+
+[Source Link](https://t.me/verdictumlegalupdates/26272)
+
+---
+
+### 2026-04-01T15:15:43+00:00
+Challenge To Ex Parte Interim Maintenance Order Confined To Demonstrating Absence Of Service Or Sufficient Cause For Non-Appearance: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/a-v-state-of-up-2026ahc56157-challenge-ex-parte-interim-maintenance-order-absence-of-service-1611155
+
+[Source Link](https://t.me/verdictumlegalupdates/26271)
+
+---
+
+### 2026-04-01T14:12:20+00:00
+"Superintendence" Powers U/S 20 HR & CE Act Can't Be Invoked To Substitute Temple Administrative Authority: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/edamana-vasudevan-namboothiri-v-malabar-devaswom-board-2026ker25119-temple-administrative-authority-us-20-hr-ce-act-1611146
+
+[Source Link](https://t.me/verdictumlegalupdates/26270)
 
 ---
 
@@ -137,30 +161,6 @@ Order Freezing Entire Bank Account Without Quantifying Amount & Period Violates 
 https://www.verdictum.in/court-updates/high-courts/telangana-high-court/ms-the-bottle-restaurant-and-bar-v-the-union-of-india-order-freezing-entire-bank-account-fundamental-right-1611103
 
 [Source Link](https://t.me/verdictumlegalupdates/26253)
-
----
-
-### 2026-04-01T04:32:39+00:00
-Flagrant Disregard For Court Proceedings: Karnataka High Court Quashes RTO’s Seizure And Registration Cancellation Order Of Mercedes-AMG G63
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/neeraj-kumar-sharma-v-the-state-of-karnataka-2026khc16461-rtos-seizure-and-registration-cancellation-mercedes-1611071
-
-[Source Link](https://t.me/verdictumlegalupdates/26252)
-
----
-
-### 2026-03-31T16:02:51+00:00
-Young Professional Vacancy At ICMR-National Institute of Nutrition (ICMR-NIN)
-https://www.verdictum.in/job-updates/icmr-national-institute-of-nutrition-1611073
-
-[Source Link](https://t.me/verdictumlegalupdates/26251)
-
----
-
-### 2026-03-31T15:32:49+00:00
-No Liability U/s.125 CrPC Upon Daughter-In-Law To Maintain Her Parents-In-Law: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/rakesh-kumar-and-another-v-state-of-up-2026ahc24683-liability-section-125-crpc-daughter-in-law-maintain-parents-in-law-1611080
-
-[Source Link](https://t.me/verdictumlegalupdates/26250)
 
 ---
 
