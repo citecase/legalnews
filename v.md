@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-03-31T16:02:51+00:00*
+*Last Updated: 2026-04-01T07:32:58+00:00*
+
+---
+
+### 2026-04-01T07:32:58+00:00
+Till Final Order Is Passed In Court Martial Proceedings, Any Interference Through Writ Petition Uncalled for: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ajit-kumar-singh-v-union-of-india-2026dhc2650-db-final-order-court-martial-proceedings-interference-writ-petition-1611125
+
+[Source Link](https://t.me/verdictumlegalupdates/26258)
+
+---
+
+### 2026-04-01T06:42:36+00:00
+West Bengal SIR| Apex Court Sets Up 19 Appellate Tribunals For Voter Revision As 47.4 Lakh Cases Cleared; Orders Access To "Recorded Reasons"
+https://www.verdictum.in/court-updates/supreme-court/west-bengal-sir-sets-up-19-appellate-tribunals-voter-revision-access-recorded-reasons-for-appeals-1611120
+
+[Source Link](https://t.me/verdictumlegalupdates/26257)
+
+---
+
+### 2026-04-01T06:32:55+00:00
+Right To Choose Partner Irrespective Of Caste Or Religion Integral To Article 21; Live-In Relationship Of Interfaith Couple Not Offence: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/kajal-prajapati-and-another-v-state-of-up-2026ahc55672-right-to-choose-partner-caste-religion-article-21-1611119
+
+[Source Link](https://t.me/verdictumlegalupdates/26256)
+
+---
+
+### 2026-04-01T06:02:53+00:00
+“No Step-Motherly Treatment”: Calcutta High Court Upholds ECI Mass Transfers, Finds No Public Injury To Sustain PIL
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/arka-kumar-nag-v-election-commission-of-india-wpa-p-141-of-2026-ci-mass-transfers-1611112
+
+[Source Link](https://t.me/verdictumlegalupdates/26255)
+
+---
+
+### 2026-04-01T05:32:32+00:00
+Medical Records Cannot Be Summarily Discarded Without Verification In Disciplinary Proceedings: Jammu & Kashmir And Ladakh High Court
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/amit-kumar-v-union-of-india-ors-2026jklhc-jmu835-medical-records-1611110
+
+[Source Link](https://t.me/verdictumlegalupdates/26254)
+
+---
+
+### 2026-04-01T05:03:11+00:00
+Order Freezing Entire Bank Account Without Quantifying Amount & Period Violates Fundamental Right Of Trade: Telangana High Court
+https://www.verdictum.in/court-updates/high-courts/telangana-high-court/ms-the-bottle-restaurant-and-bar-v-the-union-of-india-order-freezing-entire-bank-account-fundamental-right-1611103
+
+[Source Link](https://t.me/verdictumlegalupdates/26253)
+
+---
+
+### 2026-04-01T04:32:39+00:00
+Flagrant Disregard For Court Proceedings: Karnataka High Court Quashes RTO’s Seizure And Registration Cancellation Order Of Mercedes-AMG G63
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/neeraj-kumar-sharma-v-the-state-of-karnataka-2026khc16461-rtos-seizure-and-registration-cancellation-mercedes-1611071
+
+[Source Link](https://t.me/verdictumlegalupdates/26252)
 
 ---
 
@@ -105,62 +161,6 @@ Bombay High Court Sets Aside Non-Speaking Patent Refusal Order; Directs Fresh Co
 https://www.verdictum.in/court-updates/high-courts/bombay-high-court/medipack-global-ventures-private-limited-v-assistant-controller-of-patents-and-designs-2026bhc-os7258-non-speaking-patent-refusal-1611059
 
 [Source Link](https://t.me/verdictumlegalupdates/26239)
-
----
-
-### 2026-03-31T09:32:49+00:00
-Appeal U/S 30 Employees' Compensation Act Inadmissible Without Substantial Question Of Law & Full Deposit Of Awarded Amount: J&K And Ladakh High Court
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/divisional-manager-j-k-state-forest-corporation-v-satish-kumar-ma-no-454-2011-in-ia-no-824-2011-1611058
-
-[Source Link](https://t.me/verdictumlegalupdates/26238)
-
----
-
-### 2026-03-31T09:02:48+00:00
-CCTV Photographs Inadmissible Without Certificate U/S 65B Evidence Act: Bombay High Court Acquits Man In Toddler Murder Case
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/shantilal-dashrath-gaikwad-v-state-of-maharashtra-026bhc-as14256-db-police-exerted-pressure-murder-of-nearly-two-year-old-girl-1611055
-
-[Source Link](https://t.me/verdictumlegalupdates/26237)
-
----
-
-### 2026-03-31T08:22:26+00:00
-Dowry Death Presumption Cannot Be Invoked Without Proof Of Cruelty Soon Before Death: Madras High Court Sets Aside Conviction
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/das-pragalathan-v-state-2026mhc1273-section-113b-evidence-act-presumption-1611054
-
-[Source Link](https://t.me/verdictumlegalupdates/26236)
-
----
-
-### 2026-03-31T07:42:44+00:00
-Chhattisgarh High Court Denies Bail To Key Accused In ₹540 Crore Illegal Coal Levy Scam Involving Pradesh Congress Bhavan
-https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/devendra-dadsena-v-state-of-chhattisgarh-2026cghc14779-coal-levy-case-1611048
-
-[Source Link](https://t.me/verdictumlegalupdates/26235)
-
----
-
-### 2026-03-31T07:02:23+00:00
-Delhi High Court Refuses To Transfer Former PFI Chairman Abubacker E. To Private Hospital For Treatment; Allows Physical Evaluation For Second Opinion
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/2026dhc2623-abubacker-e-v-national-investigation-agency-1611039
-
-[Source Link](https://t.me/verdictumlegalupdates/26234)
-
----
-
-### 2026-03-31T06:12:41+00:00
-Muslim Personal Law Does Not Bar Jurisdiction Under Guardians and Wards Act In Matters Of Custody Of Child: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/2026-ahc-65179-xxxx-v-state-of-up-1611038
-
-[Source Link](https://t.me/verdictumlegalupdates/26233)
-
----
-
-### 2026-03-31T05:43:00+00:00
-Failure To Prove Foundational Facts For Invoking Presumption U/S 29 POCSO Act Fatal: Madras High Court Acquits 55-Year-Old Man
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/sundaram-v-state-by-the-inspector-of-police-2026mhc1272-foundational-facts-presumption-us-29-pocso-act-fatal-1611033
-
-[Source Link](https://t.me/verdictumlegalupdates/26232)
 
 ---
 
