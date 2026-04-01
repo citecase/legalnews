@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-01T07:32:58+00:00*
+*Last Updated: 2026-04-01T13:32:59+00:00*
+
+---
+
+### 2026-04-01T13:32:59+00:00
+No Law Prohibits Organizing Prayer Meeting In One’s Own House; Prior Permission Not Needed: Chhattisgarh High Court
+https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/badri-prasad-sahu-v-state-of-chhattisgarh-2026cghc13995-law-prohibits-prayer-meeting-own-house-permission-1611145
+
+[Source Link](https://t.me/verdictumlegalupdates/26269)
+
+---
+
+### 2026-04-01T12:52:57+00:00
+Divorce Takes Effect From Date On Which Talaq Is Pronounced; Subsequent Decree Merely Declaratory In Nature: Allhabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/a-v-state-of-up-2026ahc49191-divorce-date-talaq-pronounced-decree-declaratory-1611144
+
+[Source Link](https://t.me/verdictumlegalupdates/26268)
+
+---
+
+### 2026-04-01T12:02:55+00:00
+Purely Disputed Questions Of Fact Can’t Be Dealt With In Writ Petition: Delhi High Court In Coaching Centre Sealing Case
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/heena-aleem-v-municipal-corporation-of-delhi-2026dhc2712-purely-disputed-questions-fact-coaching-centre-sealing-1611143
+
+[Source Link](https://t.me/verdictumlegalupdates/26267)
+
+---
+
+### 2026-04-01T11:33:34+00:00
+Supreme Court Reserves Verdict In Review Pleas Relating To Grant Of Retrospective Environmental Clearances To Projects Violating Green Norms
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-reserves-verdict-in-review-pleas-relating-to-grant-of-retrospective-environmental-clearances-to-projects-violating-green-norms-1611142
+
+[Source Link](https://t.me/verdictumlegalupdates/26266)
+
+---
+
+### 2026-04-01T11:03:22+00:00
+Recognised School Cannot Claim Closure Without Prior Approval; Stoppage Of Functioning Not Closure In Law: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/vishwajyoti-v-virender-kumar-sardana-ors-2026dhc2697-delhi-school-1611141
+
+[Source Link](https://t.me/verdictumlegalupdates/26265)
+
+---
+
+### 2026-04-01T10:32:20+00:00
+Licensing Authority Must Examine Local Needs & Public Interest Before Granting FL-2 Licence: Madras High Court Quashes Liquor Permit in Jallikattu Area
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/t-sathiskumar-v-the-state-government-of-tamilnadu-wpmdnos31562-31655-of-2025-fl-2-licence-jallikattu-area-1611140
+
+[Source Link](https://t.me/verdictumlegalupdates/26264)
+
+---
+
+### 2026-04-01T10:02:15+00:00
+Judicially Determined Fair Compensation In Land Acquisition Must Enure To All Landowners; Denial On Technical Grounds Impermissible: Himachal Pradesh High Court
+https://www.verdictum.in/court-updates/high-courts/himachal-high-court/sohan-lal-deceased-through-lrs-v-hp-electricity-board-ors-2026hhc7831-db-1611139
+
+[Source Link](https://t.me/verdictumlegalupdates/26263)
+
+---
+
+### 2026-04-01T09:32:13+00:00
+People Who Have Lost Their Lives, Their Families Aren't Coming: Supreme Court Dismisses PIL Challenging Air India Boeing 787-8 Crash Report
+https://www.verdictum.in/court-updates/supreme-court/dismisses-pil-challenging-air-india-boeing-787-8-crash-report-ahemdabad-1611137
+
+[Source Link](https://t.me/verdictumlegalupdates/26262)
+
+---
+
+### 2026-04-01T09:03:22+00:00
+SHO Can’t Mandate Surrender Of Arms Through Phone Call In View Of Elections: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/np-kunhikannan-v-state-of-kerala-2026ker27351-sho-cant-mandate-surrender-arms-phone-call-elections-1611135
+
+[Source Link](https://t.me/verdictumlegalupdates/26261)
+
+---
+
+### 2026-04-01T08:32:20+00:00
+Supreme Court Refuses To Review Survey Report, Videography And Objections In Bhojshala Temple-Kamal Maula Mosque Dispute
+https://www.verdictum.in/court-updates/supreme-court/refuses-to-review-survey-videography-and-objections-in-bhojshala-temple-kamal-maula-mosque-dispute-1611131
+
+[Source Link](https://t.me/verdictumlegalupdates/26260)
+
+---
+
+### 2026-04-01T08:02:19+00:00
+Driving Licence Can’t Be Called Fake Merely Because It Was In Booklet Form: Delhi High Court Dismisses Insurance Company’s Appeal
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/the-new-india-assurance-company-ltd-v-ms-kapoor-diesels-garage-pvt-ltd-2026dhc2672-driving-licence-booklet-form-1611129
+
+[Source Link](https://t.me/verdictumlegalupdates/26259)
 
 ---
 
@@ -73,94 +161,6 @@ No Liability U/s.125 CrPC Upon Daughter-In-Law To Maintain Her Parents-In-Law: A
 https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/rakesh-kumar-and-another-v-state-of-up-2026ahc24683-liability-section-125-crpc-daughter-in-law-maintain-parents-in-law-1611080
 
 [Source Link](https://t.me/verdictumlegalupdates/26250)
-
----
-
-### 2026-03-31T15:03:08+00:00
-Case Is Predominantly Private In Nature: Punjab & Haryana HC Acquits AAP MLA Manjinder Singh Lalpura In 2013 Molestation Case Following Compromise
-https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/2026-phhc-49349-gagandeep-singh-alias-gaganpreet-singh-v-state-of-punjab-1611079
-
-[Source Link](https://t.me/verdictumlegalupdates/26249)
-
----
-
-### 2026-03-31T14:32:46+00:00
-Victim Suffered Significant Emotional, Mental & Physical Trauma Fighting For Justice: Delhi High Court Sentences Women To 10 Years Imprisonment For Abetting Rape
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/2026-dhc-2434-state-v-sweety-1611077
-
-[Source Link](https://t.me/verdictumlegalupdates/26248)
-
----
-
-### 2026-03-31T14:02:45+00:00
-Claimant Must Establish Case Of Victim’s COVID Infection By Placing Test Reports Or COVID Death Certificate For Claiming Compensation: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/ajay-kumar-v-state-of-up-and-3-others-2026ahc49943-db-claimant-victim-covid-infection-compensation-1611076
-
-[Source Link](https://t.me/verdictumlegalupdates/26247)
-
----
-
-### 2026-03-31T13:32:23+00:00
-District Magistrate's Role U/S 14 SARFAESI Act Is Purely Administrative & Not Adjudicatory: Punjab & Haryana High Court
-https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/iifl-home-finance-ltd-v-state-of-haryana-ors-2026phhc037744-db-dm-1611072
-
-[Source Link](https://t.me/verdictumlegalupdates/26246)
-
----
-
-### 2026-03-31T13:02:22+00:00
-‘Lethargic Attitude’: Jharkhand  High Court Takes Suo Motu Congnizance In Minor’s Rape & Murder Case; Questions Delay In Arrest
-https://www.verdictum.in/court-updates/high-courts/jharkhand-high-court/court-on-its-own-motion-v-the-state-of-jharkhand-suo-motu-congnizance-rape-murder-delay-arrest-1611081
-
-[Source Link](https://t.me/verdictumlegalupdates/26245)
-
----
-
-### 2026-03-31T12:33:08+00:00
-Personal Ideology Clothed In Constitutional Language: Amit Shah Slams Congress's VP Candidate Justice Sudershan Reddy For Salwa Judum Verdict
-https://www.verdictum.in/news/amit-shah-slams-salwa-judum-verdict-lok-sabha-justice-sudarshan-reddy-1611069
-
-[Source Link](https://t.me/verdictumlegalupdates/26244)
-
----
-
-### 2026-03-31T12:02:26+00:00
-Lawyers Can’t Be Treated As Servants; Engagement Can’t Be Terminated Arbitrarily: Rajasthan High Court Directs JDA To Retain Assistant Advocates
-https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/sri-pratap-singh-v-jaipur-development-authority-ors-2026rj-jp12194-1611068
-
-[Source Link](https://t.me/verdictumlegalupdates/26243)
-
----
-
-### 2026-03-31T11:33:05+00:00
-Mere Breach Of Promise To Marry Doesn’t Constitute Rape Sans Material Indicating Initial Deception: Uttarakhand High Court
-https://www.verdictum.in/court-updates/high-courts/uttarakhand-high-court/suraj-bora-v-state-of-uttarakhand-2026uhc800-mere-breach-of-promise-to-marry-rape-initial-deception-1611064
-
-[Source Link](https://t.me/verdictumlegalupdates/26242)
-
----
-
-### 2026-03-31T11:03:04+00:00
-Amendment Of Pleadings Does Not Immunise Party From Consequences Of Earlier False Pleadings: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/self-bhaskar-jagannath-gadekar-v-the-deputy-collector-ors-2026bhc-aug13547-1611062
-
-[Source Link](https://t.me/verdictumlegalupdates/26241)
-
----
-
-### 2026-03-31T10:32:22+00:00
-Christ, Divine Law & The Bible Do Not Support Endogamy; No Bar On Knanaya Marrying Non-Knanaya Catholic: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/the-metropolitan-archbishop-v-knanaya-catholic-naveekarana-samithy-2026ker24904-knanaya-marrying-outside-community-excommunication-1611060
-
-[Source Link](https://t.me/verdictumlegalupdates/26240)
-
----
-
-### 2026-03-31T10:02:21+00:00
-Bombay High Court Sets Aside Non-Speaking Patent Refusal Order; Directs Fresh Consideration By Different Controller
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/medipack-global-ventures-private-limited-v-assistant-controller-of-patents-and-designs-2026bhc-os7258-non-speaking-patent-refusal-1611059
-
-[Source Link](https://t.me/verdictumlegalupdates/26239)
 
 ---
 
