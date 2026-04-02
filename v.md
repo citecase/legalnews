@@ -1,6 +1,110 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-02T07:32:45+00:00*
+*Last Updated: 2026-04-02T14:01:11+00:00*
+
+---
+
+### 2026-04-02T14:01:11+00:00
+Specific Show-Cause Notice A Mandatory Precept For Blacklisting Even If Termination Is Justified: Supreme Court Sets Aside Order Blacklisting Contractor
+https://www.verdictum.in/court-updates/supreme-court/ms-akg-construction-and-developers-pvt-ltd-v-state-of-jharkhand-2026-insc-312-blacklisting-specific-show-cause-notice-mandatory-1611229
+
+[Source Link](https://t.me/verdictumlegalupdates/26292)
+
+---
+
+### 2026-04-02T13:32:19+00:00
+Post-Notification Sale Instances Can Be Relied Upon In Land Acquisition Matters If Proximate, Genuine And Uninfluenced: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/national-highways-authority-of-india-v-bhaskar-ninu-zambare-ors-2026bhc-aug13742-1611224
+
+[Source Link](https://t.me/verdictumlegalupdates/26291)
+
+---
+
+### 2026-04-02T13:03:10+00:00
+Right To Be Considered For Promotion Is Fundamental Right; Departmental Promotion Committee Meetings Must Be Held Quarterly: Punjab & Haryana High Court
+https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/kulwant-singh-v-state-of-punjab-2026phhc048139-right-promotion-fundamental-right-1611223
+
+[Source Link](https://t.me/verdictumlegalupdates/26290)
+
+---
+
+### 2026-04-02T12:33:09+00:00
+Adjudicating Authority Cannot Override Competent Authority’s Findings U/S 37A FEMA During Pendency Of Appeal: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/sri-nisha-v-special-director-adjudicating-authority-directorate-of-enforcement-ors-2026-insc-309-1611222
+
+[Source Link](https://t.me/verdictumlegalupdates/26289)
+
+---
+
+### 2026-04-02T12:03:07+00:00
+“Paper-Based" Compliance Mechanism Renders Article 21 Illusionary: Jharkhand High Court Directs Establishment Of Burn Units Across State In 120 Days
+https://www.verdictum.in/court-updates/high-courts/jharkhand-high-court/onkar-vishwakarma-v-state-of-jharkhand-2026jhhc9192-db-establishment-of-burn-units-across-state-1611217
+
+[Source Link](https://t.me/verdictumlegalupdates/26288)
+
+---
+
+### 2026-04-02T11:33:06+00:00
+Confirmed Auction Sale Not Absolute Where Process Violates SARFAESI Rules And Borrower Discharges Liability: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/e-muthurathinasabathy-ors-v-ms-sri-international-ors-2026-insc-303-1611213
+
+[Source Link](https://t.me/verdictumlegalupdates/26287)
+
+---
+
+### 2026-04-02T11:02:24+00:00
+Gharials & Aquatic Life Verge Of Extinction: Supreme Court Stays Rajasthan’s Denotification Of Chambal Sanctuary Land
+https://www.verdictum.in/court-updates/supreme-court/stays-rajasthan-denotification-chambal-sanctuary-land-amid-rampant-illegal-sand-mining-1611216
+
+[Source Link](https://t.me/verdictumlegalupdates/26286)
+
+---
+
+### 2026-04-02T10:32:23+00:00
+Subsequent Bar On Taking Cognisance Does Not Affect Proceedings Where Cognisance Was Validly Taken Earlier: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/samarendra-nath-kundu-anr-v-sadhana-das-anr-2026-insc-304-prosecution-1611212
+
+[Source Link](https://t.me/verdictumlegalupdates/26285)
+
+---
+
+### 2026-04-02T10:02:22+00:00
+Supreme Court Cancels Satinder Bhasin’s Bail For Non-Compliance With Settlement Obligations In 'Grand Venice' Project
+https://www.verdictum.in/court-updates/supreme-court/satinder-singh-bhasin-v-government-of-nct-of-delhi-2026-insc-310-satinder-bhasins-bail-grand-venice-project-1611210
+
+[Source Link](https://t.me/verdictumlegalupdates/26284)
+
+---
+
+### 2026-04-02T09:32:20+00:00
+State Appears To Be Appointing Govt Pleaders/Public Prosecutors Based On Their Proximity To Ruling Dispensation: Madras High Court Calls It "Deeply Disturbing"
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/rajkumar-v-the-state-of-tamil-nadu-state-govt-pleaders-public-prosecutors-proximity-ruling-dispensation-1611209
+
+[Source Link](https://t.me/verdictumlegalupdates/26283)
+
+---
+
+### 2026-04-02T09:02:19+00:00
+Supreme Court: Subsequent Application Filed U/s.11 Of Arbitration Act Based On Same Cause Of Action Barred By Order 23 Rule 1 CPC
+https://www.verdictum.in/court-updates/supreme-court/rajiv-gaddh-v-subodh-parkash-2026-insc-302-subsequent-application-section-116-arbitration-act-o23-r1-cpc-1611207
+
+[Source Link](https://t.me/verdictumlegalupdates/26282)
+
+---
+
+### 2026-04-02T08:33:07+00:00
+Seizure Not Unbridled Power But A Conditional Exercise: Karnataka High Court Orders Enquiry Against Erring Senior Motor Vehicle Inspector, Quashes FIR
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/h1-car-care-v-state-of-karnataka-criminal-petition-no2309-of-2026-erring-senior-motor-vehicle-inspector-1611202
+
+[Source Link](https://t.me/verdictumlegalupdates/26281)
+
+---
+
+### 2026-04-02T08:02:46+00:00
+Delhi High Court Bar Association Resolves To Abstain From Work On First And Third Saturdays Of Every Month
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/delhi-high-court-bar-association-resolves-abstain-work-first-third-saturdays-of-every-month-1611203
+
+[Source Link](https://t.me/verdictumlegalupdates/26280)
 
 ---
 
@@ -57,110 +161,6 @@ Entry Ban Not Absolute Restriction, Preserves Deity's Celibate Character: Akhil 
 https://www.verdictum.in/court-updates/supreme-court/akhil-bhartiya-sant-samiti-sabarimala-review-case-absolute-restriction-preserves-deity-celibate-1611156
 
 [Source Link](https://t.me/verdictumlegalupdates/26273)
-
----
-
-### 2026-04-01T16:02:44+00:00
-Legal Inspector Vacancy At Bharat Coking Coal Limited (BCCL)
-https://www.verdictum.in/job-updates/bharat-coking-coal-limited-1611147
-
-[Source Link](https://t.me/verdictumlegalupdates/26272)
-
----
-
-### 2026-04-01T15:15:43+00:00
-Challenge To Ex Parte Interim Maintenance Order Confined To Demonstrating Absence Of Service Or Sufficient Cause For Non-Appearance: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/a-v-state-of-up-2026ahc56157-challenge-ex-parte-interim-maintenance-order-absence-of-service-1611155
-
-[Source Link](https://t.me/verdictumlegalupdates/26271)
-
----
-
-### 2026-04-01T14:12:20+00:00
-"Superintendence" Powers U/S 20 HR & CE Act Can't Be Invoked To Substitute Temple Administrative Authority: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/edamana-vasudevan-namboothiri-v-malabar-devaswom-board-2026ker25119-temple-administrative-authority-us-20-hr-ce-act-1611146
-
-[Source Link](https://t.me/verdictumlegalupdates/26270)
-
----
-
-### 2026-04-01T13:32:59+00:00
-No Law Prohibits Organizing Prayer Meeting In One’s Own House; Prior Permission Not Needed: Chhattisgarh High Court
-https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/badri-prasad-sahu-v-state-of-chhattisgarh-2026cghc13995-law-prohibits-prayer-meeting-own-house-permission-1611145
-
-[Source Link](https://t.me/verdictumlegalupdates/26269)
-
----
-
-### 2026-04-01T12:52:57+00:00
-Divorce Takes Effect From Date On Which Talaq Is Pronounced; Subsequent Decree Merely Declaratory In Nature: Allhabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/a-v-state-of-up-2026ahc49191-divorce-date-talaq-pronounced-decree-declaratory-1611144
-
-[Source Link](https://t.me/verdictumlegalupdates/26268)
-
----
-
-### 2026-04-01T12:02:55+00:00
-Purely Disputed Questions Of Fact Can’t Be Dealt With In Writ Petition: Delhi High Court In Coaching Centre Sealing Case
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/heena-aleem-v-municipal-corporation-of-delhi-2026dhc2712-purely-disputed-questions-fact-coaching-centre-sealing-1611143
-
-[Source Link](https://t.me/verdictumlegalupdates/26267)
-
----
-
-### 2026-04-01T11:33:34+00:00
-Supreme Court Reserves Verdict In Review Pleas Relating To Grant Of Retrospective Environmental Clearances To Projects Violating Green Norms
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-reserves-verdict-in-review-pleas-relating-to-grant-of-retrospective-environmental-clearances-to-projects-violating-green-norms-1611142
-
-[Source Link](https://t.me/verdictumlegalupdates/26266)
-
----
-
-### 2026-04-01T11:03:22+00:00
-Recognised School Cannot Claim Closure Without Prior Approval; Stoppage Of Functioning Not Closure In Law: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/vishwajyoti-v-virender-kumar-sardana-ors-2026dhc2697-delhi-school-1611141
-
-[Source Link](https://t.me/verdictumlegalupdates/26265)
-
----
-
-### 2026-04-01T10:32:20+00:00
-Licensing Authority Must Examine Local Needs & Public Interest Before Granting FL-2 Licence: Madras High Court Quashes Liquor Permit in Jallikattu Area
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/t-sathiskumar-v-the-state-government-of-tamilnadu-wpmdnos31562-31655-of-2025-fl-2-licence-jallikattu-area-1611140
-
-[Source Link](https://t.me/verdictumlegalupdates/26264)
-
----
-
-### 2026-04-01T10:02:15+00:00
-Judicially Determined Fair Compensation In Land Acquisition Must Enure To All Landowners; Denial On Technical Grounds Impermissible: Himachal Pradesh High Court
-https://www.verdictum.in/court-updates/high-courts/himachal-high-court/sohan-lal-deceased-through-lrs-v-hp-electricity-board-ors-2026hhc7831-db-1611139
-
-[Source Link](https://t.me/verdictumlegalupdates/26263)
-
----
-
-### 2026-04-01T09:32:13+00:00
-People Who Have Lost Their Lives, Their Families Aren't Coming: Supreme Court Dismisses PIL Challenging Air India Boeing 787-8 Crash Report
-https://www.verdictum.in/court-updates/supreme-court/dismisses-pil-challenging-air-india-boeing-787-8-crash-report-ahemdabad-1611137
-
-[Source Link](https://t.me/verdictumlegalupdates/26262)
-
----
-
-### 2026-04-01T09:03:22+00:00
-SHO Can’t Mandate Surrender Of Arms Through Phone Call In View Of Elections: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/np-kunhikannan-v-state-of-kerala-2026ker27351-sho-cant-mandate-surrender-arms-phone-call-elections-1611135
-
-[Source Link](https://t.me/verdictumlegalupdates/26261)
-
----
-
-### 2026-04-01T08:32:20+00:00
-Supreme Court Refuses To Review Survey Report, Videography And Objections In Bhojshala Temple-Kamal Maula Mosque Dispute
-https://www.verdictum.in/court-updates/supreme-court/refuses-to-review-survey-videography-and-objections-in-bhojshala-temple-kamal-maula-mosque-dispute-1611131
-
-[Source Link](https://t.me/verdictumlegalupdates/26260)
 
 ---
 
