@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-02T14:01:11+00:00*
+*Last Updated: 2026-04-02T16:02:55+00:00*
+
+---
+
+### 2026-04-02T16:02:55+00:00
+IIT Madras Invites Applications For The Post Of Legal Consultant
+https://www.verdictum.in/job-updates/indian-institute-of-technology-madras-1611225
+
+[Source Link](https://t.me/verdictumlegalupdates/26295)
+
+---
+
+### 2026-04-02T15:23:14+00:00
+Child’s Overseas Citizenship & Foreign Court Orders No Conclusive Factor In Custody Disputes; Welfare Of Child Remains Paramount: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/aman-kathpal-v-union-of-india-anr-pankaj-dhingra-v-state-nct-of-delhi-anr-2026dhc2685-db-1611231
+
+[Source Link](https://t.me/verdictumlegalupdates/26294)
+
+---
+
+### 2026-04-02T14:42:12+00:00
+FPS Licence Cannot Be Transferred Through Partnership Or Will; Original Licensee’s Name Cannot Be Removed: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/gulabsingh-v-state-of-maharashtra-ors-2026bhc-aug13810-fair-price-shops-1611230
+
+[Source Link](https://t.me/verdictumlegalupdates/26293)
 
 ---
 
@@ -137,30 +161,6 @@ Breaking: Supreme Court Slams West Bengal Over "Mobocracy" And Attack On Judicia
 https://www.verdictum.in/court-updates/supreme-court/lams-west-bengal-government-over-mobocracy-and-attack-on-judicial-officers-1611185
 
 [Source Link](https://t.me/verdictumlegalupdates/26276)
-
----
-
-### 2026-04-02T05:32:59+00:00
-Attempt To Sensationalise The Issue: Delhi High Court Restrains Republishing Of Unverified Allegations Pending Investigation In Indigo Flight Incident
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/nidish-gopalkrishnan-nair-v-x-2026dhc2691-indigo-flight-controversy-2026-sensationalize-1611180
-
-[Source Link](https://t.me/verdictumlegalupdates/26275)
-
----
-
-### 2026-04-02T05:02:18+00:00
-Writ Petition Challenging Income Tax Recovery Notice Maintainable Where Part Of Cause Of Action Arises: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/capegemini-technology-services-india-ltd-v-deputy-commissioner-of-income-tax-circle-11-pune-ors2026bhc-as15349-db-1611179
-
-[Source Link](https://t.me/verdictumlegalupdates/26274)
-
----
-
-### 2026-04-02T04:32:26+00:00
-Entry Ban Not Absolute Restriction, Preserves Deity's Celibate Character: Akhil Bhartiya Sant Samiti To Supreme Court In Sabarimala Case
-https://www.verdictum.in/court-updates/supreme-court/akhil-bhartiya-sant-samiti-sabarimala-review-case-absolute-restriction-preserves-deity-celibate-1611156
-
-[Source Link](https://t.me/verdictumlegalupdates/26273)
 
 ---
 
