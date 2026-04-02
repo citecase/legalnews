@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-02T05:25:17+00:00*
+*Last Updated: 2026-04-02T09:41:55+00:00*
 
 ---
 
-### 2026-04-02T05:25:17+00:00
-Law Officer (Grade – I) Vacancy At V.O. Chidambaranar Port Authority
-https://www.livelaw.in/job-updates/law-officer-grade-i-vacancy-at-vo-chidambaranar-port-authority-528656
+### 2026-04-02T09:41:55+00:00
+Continue & Regularly Review Security Arrangements For All District Courts: Delhi High Court Tells Police, Closes Suo Motu Case
+https://www.livelaw.in/high-court/delhi-high-court/continue-regularly-review-security-arrangements-for-all-district-courts-delhi-high-court-tells-police-closes-suo-motu-case-528706
 
-[Read on Telegram](https://t.me/livelawindia/108050)
-
----
-### 2026-04-02T05:32:57+00:00
-Muslim Man Allegedly Stripped, Forced To Utter 'Jay Sri Ram': Orissa High Court Orders DSP To Supervise Probe
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-muslim-man-allegedly-stripped-forced-utter-jay-sri-ram-528637
-
-[Read on Telegram](https://t.me/livelawindia/108051)
+[Read on Telegram](https://t.me/livelawindia/108079)
 
 ---
-### 2026-04-02T05:48:21+00:00
-Rajasthan High Court Quashes Unreasoned Suspension Order By RSRTC Officer, Bars Her From Discharging Duty Until Legal Training
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-unreasoned-rsrtc-order-legal-training-528642
+### 2026-04-02T09:53:15+00:00
+Patna HC Quashes Criminal Proceedings Against Forest Officer, Says Public Servants Must Be Protected From Vexatious Prosecution
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-quashes-criminal-proceedings-forest-officer-public-servants-528618
 
-[Read on Telegram](https://t.me/livelawindia/108052)
-
----
-### 2026-04-02T05:55:41+00:00
-BREAKING| Supreme Court Slams West Bengal Officials Over  Attack On Judges During SIR Duty, Directs Use Of Central Forces
-https://www.livelaw.in/top-stories/supreme-court-slams-west-bengal-officials-over-attack-on-judges-during-sir-duty-directs-use-of-central-forces-528661
-
-[Read on Telegram](https://t.me/livelawindia/108053)
+[Read on Telegram](https://t.me/livelawindia/108080)
 
 ---
-### 2026-04-02T06:02:21+00:00
-Trial Judge Can't Use Leading Questions U/S 165 Evidence Act To 'Repair' Weaknesses In Rape Case: Karnataka High Court Acquits Two
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-trial-judge-leading-questions-section165-evidence-act-rape-case-528650
+### 2026-04-02T09:58:35+00:00
+SARFAESI | Borrowers' Redemption Right Not Lost By Auction Sale If Balance Consideration Was Paid After Timelimit : Supreme Court
+https://www.livelaw.in/supreme-court/sarfaesi-borrowers-redemption-right-not-lost-auction-sale-if-balance-consideration-paid-beyond-timelimit-supreme-court-528710
 
-[Read on Telegram](https://t.me/livelawindia/108054)
-
----
-### 2026-04-02T06:16:41+00:00
-Supreme Court Weekly Digest February 12 - 20, 2026
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-weekly-digest-february-2026-528666
-
-[Read on Telegram](https://t.me/livelawindia/108055)
+[Read on Telegram](https://t.me/livelawindia/108081)
 
 ---
-### 2026-04-02T06:22:51+00:00
-Proviso To Order VI Rule 17 CPC Not Strictly Applicable To Amendment Of Grounds In Revision Or Appellate Proceedings: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-order-vi-rule-17-amendment-revision-appellate-proceedings-grounds-528668
+### 2026-04-02T09:59:35+00:00
+2026 LiveLaw (SC) 319 |  E. MUTHURATHINASABATHY & ORS. VERSUS M/S. SRI INTERNATIONAL & ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-319-e-muthurathinasabathy-ors-versus-ms-sri-international-ors-528711
 
-[Read on Telegram](https://t.me/livelawindia/108056)
-
----
-### 2026-04-02T06:32:31+00:00
-Bhojshala-Kamal Maula Dispute: MP High Court To Commence Regular Hearing From April 06
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bhojshala-kamal-maula-hearing-dispute-april-6-528670
-
-[Read on Telegram](https://t.me/livelawindia/108057)
+[Read on Telegram](https://t.me/livelawindia/108082)
 
 ---
-### 2026-04-02T06:38:32+00:00
-'Never Seen Such A Polarised State' : Supreme Court On West Bengal After Attack On Judges In SIR Duties
-https://www.livelaw.in/top-stories/never-seen-such-a-polarised-state-supreme-court-on-west-bengal-after-attack-on-judges-in-sir-duties-528671
+### 2026-04-02T10:07:35+00:00
+Justice KV Viswanathan Recuses After Reserving Judgment On Discovering Prior Appearance As Lawyer For Appellant
+https://www.livelaw.in/top-stories/justice-kv-viswanathan-recuses-after-reserving-judgment-on-discovering-prior-appearance-as-lawyer-for-appellant-528712
 
-[Read on Telegram](https://t.me/livelawindia/108058)
-
----
-### 2026-04-02T06:39:31+00:00
-Repeated Possession Of Small Quantity Drugs Can Trigger Preventive Detention Under KAAPA: Kerala High Court Full Bench
-https://www.livelaw.in/high-court/kerala-high-court/repeat-drug-possession-small-quantity-goonda-kaapa-528672
-
-[Read on Telegram](https://t.me/livelawindia/108059)
+[Read on Telegram](https://t.me/livelawindia/108083)
 
 ---
-### 2026-04-02T06:47:41+00:00
-Delhi High Court Bar Association To Abstain From Work On Working Saturdays, Reiterates Request To Reconsider Mandate
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-bar-association-to-abstain-from-work-on-working-saturdays-reiterates-request-to-reconsider-mandate-528673
+### 2026-04-02T10:08:15+00:00
+'Grossly Vulgar, Obscene': Delhi High Court Orders Immediate Take Down Of 'Volume 1' Song By Honey Singh, Badshah
+https://www.livelaw.in/high-court/delhi-high-court/take-down-volume-1-song-honey-singh-badshah-vulgar-obscene-528714
 
-[Read on Telegram](https://t.me/livelawindia/108060)
-
----
-### 2026-04-02T06:48:11+00:00
-Supreme Court Cancels Bail Of Satinder Singh Bhasin For Not Settling Claims In Grand Venice Project
-https://www.livelaw.in/top-stories/supreme-court-cancels-bail-of-satinder-singh-bhasin-for-not-settling-claims-in-grand-venice-project-528674
-
-[Read on Telegram](https://t.me/livelawindia/108061)
+[Read on Telegram](https://t.me/livelawindia/108084)
 
 ---
-### 2026-04-02T06:49:31+00:00
-2026 LiveLaw (SC) 316 |  SATINDER SINGH BHASIN Vs GOVERNMENT OF NCT OF DELHI (Bail cancellation)
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-316-satinder-singh-bhasin-vs-government-of-nct-of-delhi-bail-cancellation-528675
+### 2026-04-02T10:53:45+00:00
+National Green Tribunal Rejects BRS Leader's Plea Challenging Musi Riverfront Development Project
+https://www.livelaw.in/news-updates/national-green-tribunal-dismisses-application-musi-riverfront-development-project-528723
 
-[Read on Telegram](https://t.me/livelawindia/108062)
-
----
-### 2026-04-02T06:54:11+00:00
-Order IX Rule 13 CPC Application Not Barred By Dismissal Of Appeal Against Ex-Parte Decree : Supreme Court
-https://www.livelaw.in/supreme-court/order-ix-rule-13-cpc-application-not-barred-by-dismissal-of-appeal-against-ex-parte-decree-supreme-court-528676
-
-[Read on Telegram](https://t.me/livelawindia/108063)
+[Read on Telegram](https://t.me/livelawindia/108085)
 
 ---
-### 2026-04-02T06:55:31+00:00
-2026 LiveLaw (SC) 317 | DEEPESH MAHESWARI AND ANR. VERSUS RENU MAHESWARI AND ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-317-deepesh-maheswari-and-anr-versus-renu-maheswari-and-ors-528677
+### 2026-04-02T11:04:25+00:00
+Plea In Madras High Court Seeks Allowing Only Hindus, Sikhs, Buddhists To Contest From Constituencies Earmarked For SC Category
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-only-hindu-sikh-buddhist-permitted-to-contest-sc-reserved-constituency-528724
 
-[Read on Telegram](https://t.me/livelawindia/108064)
-
----
-### 2026-04-02T06:58:11+00:00
-Justice Chandurkar Recuses From Hearing Surendra Gadling's Bail Plea In Gadchiroli Arson Case
-https://www.livelaw.in/top-stories/justice-chandurkar-recuses-from-hearing-surendra-gadlings-bail-plea-in-gadchiroli-arson-case-528678
-
-[Read on Telegram](https://t.me/livelawindia/108065)
+[Read on Telegram](https://t.me/livelawindia/108086)
 
 ---
-### 2026-04-02T07:07:31+00:00
-Bombay HC Declines To Reject Petition Challenging Shiv Sena MLA's Election Over Non-Disclosure Of Material Facts In Poll Affidavit
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-election-petition-shiv-sena-mla-nondisclosure-material-information-election-affidavit-528627
+### 2026-04-02T11:17:34+00:00
+West Bengal SIR | Supreme Court Asks INC Candidate Deleted From Electoral Roll To Approach Appellate Tribunal
+https://www.livelaw.in/top-stories/supreme-court-west-bengal-sir-inc-candidate-deleted-from-electoral-roll-to-approach-appellate-tribunal-528730
 
-[Read on Telegram](https://t.me/livelawindia/108066)
-
----
-### 2026-04-02T07:09:31+00:00
-PIL Against Fee For Downloading FIR On 'Punjab Police Sanjh Portal', High Court Seeks Clarification On Existing Charges
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-fee-downloading-fir-copy-pil-pp-sanjh-portal-528680
-
-[Read on Telegram](https://t.me/livelawindia/108067)
+[Read on Telegram](https://t.me/livelawindia/108087)
 
 ---
-### 2026-04-02T07:17:42+00:00
-Departmental Inquiry Not Needed After Bribery Conviction Of Govt Employee: MP High Court Upholds Dismissal
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-prevention-of-corruption-act-dismissal-from-service-government-employee-bribery-conviction-528617
+### 2026-04-02T11:17:44+00:00
+Bombay High Court Seeks Maharashtra Govt Response To Plea Against Scrapping Of 5% Muslim Quota In Education
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-maharashtra-government-5percent-quota-muslims-528725
 
-[Read on Telegram](https://t.me/livelawindia/108068)
+[Read on Telegram](https://t.me/livelawindia/108088)
 
 ---
-### 2026-04-02T07:18:02+00:00
-Delhi High Court Refuses To Interfere In BCD Election Process, Says Result Shall Be Declared Only After Reconciliation Of Votes
-https://www.livelaw.in/high-court/delhi-high-court/bar-council-of-delhi-election-result-votes-discrepancy-reconciliation-528681
+### 2026-04-02T11:24:54+00:00
+Monkey Menace In Judges' Residential Bungalows : Supreme Court Floats Tender To Engage 'Monkey Scarers'
+https://www.livelaw.in/top-stories/monkey-menace-in-judges-residential-bungalows-supreme-court-floats-tender-to-engage-monkey-scarers-528731
 
-[Read on Telegram](https://t.me/livelawindia/108069)
+[Read on Telegram](https://t.me/livelawindia/108089)
+
+---
+### 2026-04-02T11:26:54+00:00
+Karnataka High Court Issues Notice To Centre On Actor Darshan's Plea Alleging 'Brazen' Media Trial In Renukaswamy Murder Case Despite Injunctions
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-renukaswamy-murder-actor-darshan-srinivas-media-trial-528732
+
+[Read on Telegram](https://t.me/livelawindia/108090)
+
+---
+### 2026-04-02T12:03:35+00:00
+MP High Court To Begin Hearing Challenge Against Increase In OBC Reservation Quota From April 27
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-increasing-obc-reservation-ordinance-528736
+
+[Read on Telegram](https://t.me/livelawindia/108091)
+
+---
+### 2026-04-02T12:05:15+00:00
+Paradox Of “Self-Assessed Tax” Under Section 73 Of CGST Act, 2017: Reconciling Voluntary Compliance With Mandatory Penalty
+https://www.livelaw.in/law-firms/law-firm-articles-/paradox-of-self-assessed-tax-under-section-73-of-cgst-act-2017-reconciling-voluntary-compliance-with-mandatory-penalty-528737
+
+[Read on Telegram](https://t.me/livelawindia/108092)
+
+---
+### 2026-04-02T12:19:05+00:00
+Governor Bound By Council Of Ministers' Advice On Remission & Premature Release Of Convicts: Madras High Court Full Bench
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-governor-bound-decision-council-of-minister-remission-premature-release-528741
+
+[Read on Telegram](https://t.me/livelawindia/108093)
+
+---
+### 2026-04-02T12:28:05+00:00
+Compensation Dispute Under National Highways Act Need Not Be Referred To Civil Court If Competent Authority Can Decide: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-kashmir-high-court-compensation-national-highways-act-civil-court-528717
+
+[Read on Telegram](https://t.me/livelawindia/108094)
+
+---
+### 2026-04-02T12:57:05+00:00
+Possible To Reform Murderer, But Cyber Criminal Should Not Be Spared : CJI Surya Kant
+https://www.livelaw.in/top-stories/supreme-court-cji-surya-kant-murderer-can-be-reformed-cyber-criminal-must-not-be-spared-528750
+
+[Read on Telegram](https://t.me/livelawindia/108095)
+
+---
+### 2026-04-02T12:57:45+00:00
+Able-Bodied Person Cannot Avoid Maintenance By Pleading Unemployment: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-able-bodied-person-maintenance-pleading-unemployment-528742
+
+[Read on Telegram](https://t.me/livelawindia/108096)
+
+---
+### 2026-04-02T13:06:35+00:00
+Can Cadets Boarded Out Due To Training Injury Be Treated As Ex-Servicemen For Job Reservation? Supreme Court Asks Centre
+https://www.livelaw.in/top-stories/can-cadets-boarded-out-due-to-training-injury-be-treated-as-ex-servicemen-for-job-reservation-supreme-court-asks-centre-528752
+
+[Read on Telegram](https://t.me/livelawindia/108097)
+
+---
+### 2026-04-02T13:11:55+00:00
+Punjab & Haryana High Court Judge Pankaj Jain Inspects Rewari District Jail; Inaugurates Legal Aid Clinic, Video Conferencing Room
+https://www.livelaw.in/news-updates/punjab-haryana-high-court-judge-pankaj-jain-inspects-rewari-district-jail-inaugurates-legal-aid-clinic-video-conferencing-room-528753
+
+[Read on Telegram](https://t.me/livelawindia/108098)
 
 ---
