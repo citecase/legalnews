@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-03T07:32:09+00:00*
+*Last Updated: 2026-04-03T10:36:51+00:00*
 
 ---
 
-### 2026-04-03T07:32:09+00:00
-“Bail Conditions Can't Invade Privacy Of Accused's Family”: Delhi High Court Sets Aside 'Surveillance' Directions On Wife
-https://www.livelaw.in/high-court/delhi-high-court/bail-conditions-cant-invade-privacy-of-accuseds-family-no-surveillance-on-wife-528818
-
-[Read on Telegram](https://t.me/livelawindia/108144)
-
----
-### 2026-04-03T07:37:49+00:00
-Cancellation Of Tender On Grounds Waived By Bidder Is Manifestly Arbitrary: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-cancellation-tender-waived-bidder-arbitrary-528835
-
-[Read on Telegram](https://t.me/livelawindia/108145)
-
----
-### 2026-04-03T07:46:15+00:00
-No 'Hon'ble' Or 'Mr' Prefix For Union Minister In FIR? Allahabad High Court Seeks UP Govt's Explanation
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-honble-prefix-union-minister-fir-seeks-up-govt-explanation-528838
-
-[Read on Telegram](https://t.me/livelawindia/108146)
-
----
-### 2026-04-03T07:51:35+00:00
-Rajasthan High Court Deletes Earlier Remarks On Transgender Bill 2026, Uploads Updated Version
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-deleted-earlier-remarks-transgender-bill-2026-528840
-
-[Read on Telegram](https://t.me/livelawindia/108147)
-
----
-### 2026-04-03T08:24:50+00:00
-MNLU Nagpur's All-Women Team Qualifies For World Rounds Of Frankfurt Investment Arbitration Moot
-https://www.livelaw.in/lawschool/news/mnlu-nagpurs-all-women-team-qualifies-world-rounds-frankfurt-investment-arbitration-moot-528841
-
-[Read on Telegram](https://t.me/livelawindia/108148)
-
----
-### 2026-04-03T08:27:10+00:00
-Disappointed That West Bengal Chief Secretary Could Not Be Contacted When Judges Were Gheraoed : Supreme Court
-https://www.livelaw.in/top-stories/disappointed-that-west-bengal-chief-secretary-could-not-be-contacted-when-judges-were-gheraoed-sir-supreme-court-528842
-
-[Read on Telegram](https://t.me/livelawindia/108149)
-
----
-### 2026-04-03T08:37:24+00:00
-Whether DM's Non-Disclosure Of NSA Detenue's Right To Make Representation To Him Vitiates Process? MP High Court Refer To Larger Bench
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-national-security-act-right-of-representation-detention-order-state-government-528831
-
-[Read on Telegram](https://t.me/livelawindia/108150)
-
----
-### 2026-04-03T08:57:34+00:00
-Sabarimala Reference | Internal Autonomy Of Religion Must Be Protected : Jain Organisations Tell Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-sabarimala-review-jain-organizations-submissions-person-not-belonging-to-a-religion-must-not-be-allowed-to-challenge-its-practices-528847
-
-[Read on Telegram](https://t.me/livelawindia/108151)
-
----
-### 2026-04-03T09:02:34+00:00
-Allahabad High Court Orders Immediate Release Of Husband Sentenced To 22 Months In Prison Over Unpaid Maintenance
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-immediate-release-22-months-prison-unpaid-maintenance-528849
-
-[Read on Telegram](https://t.me/livelawindia/108152)
-
----
-### 2026-04-03T09:26:54+00:00
-Supreme Court Holds Good Friday Sitting To Modify Order On Rajasthan SI Selection Exam
-https://www.livelaw.in/top-stories/supreme-court-holds-good-friday-sitting-to-modify-order-on-rajasthan-si-selection-exam-528851
-
-[Read on Telegram](https://t.me/livelawindia/108153)
-
----
 ### 2026-04-03T10:36:51+00:00
 Who Qualifies As Scheduled Caste?
 https://www.livelaw.in/articles/qualifies-scheduled-caste-528860
@@ -142,5 +72,75 @@ Annual Conference Of District Judiciary Judges To Be Held At Gujarat High Court 
 https://www.livelaw.in/events/annual-conference-district-judiciary-judges-gujarat-high-court-528885
 
 [Read on Telegram](https://t.me/livelawindia/108163)
+
+---
+### 2026-04-03T13:17:53+00:00
+Regulation Of Building Operations Act | Locus Of Complainant Irrelevant When Fraud In Obtaining Permission Established: Allahabad HC
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-locus-complainant-irrelevant-prima-facie-fraud-528882
+
+[Read on Telegram](https://t.me/livelawindia/108164)
+
+---
+### 2026-04-03T13:42:13+00:00
+Punjab & Haryana High Court Strikes Down 1997 Rule Mandating Govt-Parity Retiral Benefits For Cooperative Society Employees
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-retiral-benefits-cooperative-society-employees-528875
+
+[Read on Telegram](https://t.me/livelawindia/108165)
+
+---
+### 2026-04-03T13:42:33+00:00
+“Long Incarceration Tilts Balance In Favour Of Liberty”: J&K&L High Court Grants Bail To Accused In Murder Case After 9 Years Custody
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-long-incarceration-tilts-balance-in-favour-of-liberty-court-grants-bail-to-accused-in-murder-arms-act-case-after-9-years-in-custody-528877
+
+[Read on Telegram](https://t.me/livelawindia/108166)
+
+---
+### 2026-04-03T14:12:23+00:00
+MP High Court Quashes FIR Against Railway Vigilance Officers Accused Of Harassing Ticket Examiner, Cites Possible 'Extraneous Influence'
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-criminal-proceedings-railway-vigilance-officer-extraneous-influence-fir-registration-528878
+
+[Read on Telegram](https://t.me/livelawindia/108167)
+
+---
+### 2026-04-03T14:12:43+00:00
+'Clay Residue Not Sufficient To Conclude JCB Was Used For Illegal Sand Excavation': Bombay High Court Quashes ₹7.5 Lakh Penalty On Farmer
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-illegal-sand-excavation-farmer-parking-jcb-field-528822
+
+[Read on Telegram](https://t.me/livelawindia/108168)
+
+---
+### 2026-04-03T15:27:36+00:00
+Elected Member Working As 'Gram Rojgar Sevak' Not Disqualified For Holding 'Office Of Profit' Under Village Panchayats Act: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-elected-member-gram-rojgar-sevak-holding-office-maharashtra-village-panchayats-act-528823
+
+[Read on Telegram](https://t.me/livelawindia/108169)
+
+---
+### 2026-04-03T15:57:36+00:00
+Madras High Court Initiates Suo Motu Contempt Against YouTuber Felix Gerald Over Savukku Shankar Interview
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-felix-gerald-suo-motu-contempt-order-against-savukku-shankar-528897
+
+[Read on Telegram](https://t.me/livelawindia/108170)
+
+---
+### 2026-04-03T16:42:26+00:00
+Earning Capacity Of Adult Sons Doesn't Negate Wife's 'Independent' Right To Permanent Alimony: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-hc-earning-adult-sons-dilute-wife-permanent-alimony-528898
+
+[Read on Telegram](https://t.me/livelawindia/108171)
+
+---
+### 2026-04-03T16:43:26+00:00
+Myth Of Formalisation: Economic Survey Projections And Governance Challenges In India's Labour Codes
+https://www.livelaw.in/lawschool/articles/economic-survey-projections-governance-challenges-india-labour-codes-528899
+
+[Read on Telegram](https://t.me/livelawindia/108172)
+
+---
+### 2026-04-03T17:52:26+00:00
+Consumer Law Monthly Digest: March 2026
+https://www.livelaw.in/digests/monthly-digests/consumer-law-monthly-digest-march-2026-528900
+
+[Read on Telegram](https://t.me/livelawindia/108173)
 
 ---
