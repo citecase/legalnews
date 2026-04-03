@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-03T07:32:59+00:00*
+*Last Updated: 2026-04-03T13:12:15+00:00*
+
+---
+
+### 2026-04-03T13:12:15+00:00
+Spouse Alleging Mental Cruelty Not Required To Explain Reasons Behind Conduct Of Other Party: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/amb-v-sb-2026bhc-nag5200-db-mental-cruelty-divorce-matrimonial-law-1611293
+
+[Source Link](https://t.me/verdictumlegalupdates/26313)
+
+---
+
+### 2026-04-03T12:32:24+00:00
+Ventures Cannot Be Shut Because Of Protests Without Basis: Kerala High Court Directs Panchayat To Allow Entrepreneurs To Setup Hot Mix Plant
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/sudheer-s-v-state-of-kerala-2026ker28842-panchayat-allow-entrepreneurs-to-setup-hot-mix-plant-1611291
+
+[Source Link](https://t.me/verdictumlegalupdates/26312)
+
+---
+
+### 2026-04-03T12:03:02+00:00
+Competent Authority Not Bound To Refer Every Claimed Dispute U/S 3H(4) National Highways Act To Civil Courts: J&K And Ladakh High Court
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/atiqa-begum-ors-v-ut-of-jk-ors-national-highways-authority-of-india-1611289
+
+[Source Link](https://t.me/verdictumlegalupdates/26311)
+
+---
+
+### 2026-04-03T11:32:21+00:00
+Corroborated Testimonies With Medical Evidence Overrides Negative DNA Findings: Gauhati High Court Upholds POCSO Conviction
+https://www.verdictum.in/court-updates/high-courts/guwahati-high-court/nripen-rabha-v-state-of-assam-2026gau-as3874-negative-dna-findings-pocso-act-1611288
+
+[Source Link](https://t.me/verdictumlegalupdates/26310)
+
+---
+
+### 2026-04-03T11:02:59+00:00
+Sec.197 CrPC Protects Public Servants Against Vexatious Prosecution: Patna High Court Quashes Summoning Order Against Forest Officer
+https://www.verdictum.in/court-updates/high-courts/patna-high-court/anil-kumar-jha-v-the-state-of-bihar-sec197-crpc-public-servants-vexatious-prosecution-forest-officer-1611287
+
+[Source Link](https://t.me/verdictumlegalupdates/26309)
+
+---
+
+### 2026-04-03T10:32:58+00:00
+Right To Education Cannot Be Translated Into Right To Select A Particular School: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/2026dhc2772db-pooja-v-aadharshila-vidyapeeth-1611286
+
+[Source Link](https://t.me/verdictumlegalupdates/26308)
+
+---
+
+### 2026-04-03T10:06:57+00:00
+Grown-Up Married Lady Consenting To Physical Relationship Is Not An Act Induced By Misconception Of Fact: Punjab & Haryana High Court
+https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/abc-v-state-of-ut-chandigarh-2026phhc044912-grown-up-married-lady-physical-relationship-misconception-of-fact-1611285
+
+[Source Link](https://t.me/verdictumlegalupdates/26307)
+
+---
+
+### 2026-04-03T09:32:55+00:00
+Father Can’t Escape Maintenance Liability Towards Minor Children Even When Mother Is Earning: Uttarakhand High Court
+https://www.verdictum.in/court-updates/high-courts/uttarakhand-high-court/a-v-state-of-uttarakhand-2026uhc66-father-responsibility-maintenance-parents-1611280
+
+[Source Link](https://t.me/verdictumlegalupdates/26306)
+
+---
+
+### 2026-04-03T09:02:34+00:00
+Rajasthan High Court Deletes Criticism Of Transgender Act Amendment In Its Epilogue To Judgment, Says Included “By Mistake”
+https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/ganga-kumari-v-state-of-rajasthan-ors-neutral-citation-2026rj-jd15024-db-1611281
+
+[Source Link](https://t.me/verdictumlegalupdates/26305)
+
+---
+
+### 2026-04-03T08:32:32+00:00
+Public Servants Deemed To Be In Service Until Closing Hours, Can't Walk Away To Claim Cessation Of Employment: Madras High Court
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/2026mhc1335-k-suresh-v-union-of-india-1611278
+
+[Source Link](https://t.me/verdictumlegalupdates/26304)
+
+---
+
+### 2026-04-03T08:02:41+00:00
+Judicial Intervention U/S 165 Evidence Act Cannot Supply Missing Ingredients Of Offence: Karnataka High Court Acquits Two In Gang Rape Case
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/mohan-naik-v-state-of-karnataka-anr-crla-no824-of-2023-judicial-intervention-us-165-evidence-act-1611271
+
+[Source Link](https://t.me/verdictumlegalupdates/26303)
 
 ---
 
@@ -73,94 +161,6 @@ Child’s Overseas Citizenship & Foreign Court Orders No Conclusive Factor In Cu
 https://www.verdictum.in/court-updates/high-courts/delhi-high-court/aman-kathpal-v-union-of-india-anr-pankaj-dhingra-v-state-nct-of-delhi-anr-2026dhc2685-db-1611231
 
 [Source Link](https://t.me/verdictumlegalupdates/26294)
-
----
-
-### 2026-04-02T14:42:12+00:00
-FPS Licence Cannot Be Transferred Through Partnership Or Will; Original Licensee’s Name Cannot Be Removed: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/gulabsingh-v-state-of-maharashtra-ors-2026bhc-aug13810-fair-price-shops-1611230
-
-[Source Link](https://t.me/verdictumlegalupdates/26293)
-
----
-
-### 2026-04-02T14:01:11+00:00
-Specific Show-Cause Notice A Mandatory Precept For Blacklisting Even If Termination Is Justified: Supreme Court Sets Aside Order Blacklisting Contractor
-https://www.verdictum.in/court-updates/supreme-court/ms-akg-construction-and-developers-pvt-ltd-v-state-of-jharkhand-2026-insc-312-blacklisting-specific-show-cause-notice-mandatory-1611229
-
-[Source Link](https://t.me/verdictumlegalupdates/26292)
-
----
-
-### 2026-04-02T13:32:19+00:00
-Post-Notification Sale Instances Can Be Relied Upon In Land Acquisition Matters If Proximate, Genuine And Uninfluenced: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/national-highways-authority-of-india-v-bhaskar-ninu-zambare-ors-2026bhc-aug13742-1611224
-
-[Source Link](https://t.me/verdictumlegalupdates/26291)
-
----
-
-### 2026-04-02T13:03:10+00:00
-Right To Be Considered For Promotion Is Fundamental Right; Departmental Promotion Committee Meetings Must Be Held Quarterly: Punjab & Haryana High Court
-https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/kulwant-singh-v-state-of-punjab-2026phhc048139-right-promotion-fundamental-right-1611223
-
-[Source Link](https://t.me/verdictumlegalupdates/26290)
-
----
-
-### 2026-04-02T12:33:09+00:00
-Adjudicating Authority Cannot Override Competent Authority’s Findings U/S 37A FEMA During Pendency Of Appeal: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/sri-nisha-v-special-director-adjudicating-authority-directorate-of-enforcement-ors-2026-insc-309-1611222
-
-[Source Link](https://t.me/verdictumlegalupdates/26289)
-
----
-
-### 2026-04-02T12:03:07+00:00
-“Paper-Based" Compliance Mechanism Renders Article 21 Illusionary: Jharkhand High Court Directs Establishment Of Burn Units Across State In 120 Days
-https://www.verdictum.in/court-updates/high-courts/jharkhand-high-court/onkar-vishwakarma-v-state-of-jharkhand-2026jhhc9192-db-establishment-of-burn-units-across-state-1611217
-
-[Source Link](https://t.me/verdictumlegalupdates/26288)
-
----
-
-### 2026-04-02T11:33:06+00:00
-Confirmed Auction Sale Not Absolute Where Process Violates SARFAESI Rules And Borrower Discharges Liability: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/e-muthurathinasabathy-ors-v-ms-sri-international-ors-2026-insc-303-1611213
-
-[Source Link](https://t.me/verdictumlegalupdates/26287)
-
----
-
-### 2026-04-02T11:02:24+00:00
-Gharials & Aquatic Life Verge Of Extinction: Supreme Court Stays Rajasthan’s Denotification Of Chambal Sanctuary Land
-https://www.verdictum.in/court-updates/supreme-court/stays-rajasthan-denotification-chambal-sanctuary-land-amid-rampant-illegal-sand-mining-1611216
-
-[Source Link](https://t.me/verdictumlegalupdates/26286)
-
----
-
-### 2026-04-02T10:32:23+00:00
-Subsequent Bar On Taking Cognisance Does Not Affect Proceedings Where Cognisance Was Validly Taken Earlier: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/samarendra-nath-kundu-anr-v-sadhana-das-anr-2026-insc-304-prosecution-1611212
-
-[Source Link](https://t.me/verdictumlegalupdates/26285)
-
----
-
-### 2026-04-02T10:02:22+00:00
-Supreme Court Cancels Satinder Bhasin’s Bail For Non-Compliance With Settlement Obligations In 'Grand Venice' Project
-https://www.verdictum.in/court-updates/supreme-court/satinder-singh-bhasin-v-government-of-nct-of-delhi-2026-insc-310-satinder-bhasins-bail-grand-venice-project-1611210
-
-[Source Link](https://t.me/verdictumlegalupdates/26284)
-
----
-
-### 2026-04-02T09:32:20+00:00
-State Appears To Be Appointing Govt Pleaders/Public Prosecutors Based On Their Proximity To Ruling Dispensation: Madras High Court Calls It "Deeply Disturbing"
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/rajkumar-v-the-state-of-tamil-nadu-state-govt-pleaders-public-prosecutors-proximity-ruling-dispensation-1611209
-
-[Source Link](https://t.me/verdictumlegalupdates/26283)
 
 ---
 
