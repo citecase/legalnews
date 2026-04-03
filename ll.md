@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-02T12:57:45+00:00*
+*Last Updated: 2026-04-02T13:11:55+00:00*
 
 ---
 
-### 2026-04-02T12:57:45+00:00
-Able-Bodied Person Cannot Avoid Maintenance By Pleading Unemployment: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-able-bodied-person-maintenance-pleading-unemployment-528742
-
-[Read on Telegram](https://t.me/livelawindia/108096)
-
----
-### 2026-04-02T13:06:35+00:00
-Can Cadets Boarded Out Due To Training Injury Be Treated As Ex-Servicemen For Job Reservation? Supreme Court Asks Centre
-https://www.livelaw.in/top-stories/can-cadets-boarded-out-due-to-training-injury-be-treated-as-ex-servicemen-for-job-reservation-supreme-court-asks-centre-528752
-
-[Read on Telegram](https://t.me/livelawindia/108097)
-
----
 ### 2026-04-02T13:11:55+00:00
 Punjab & Haryana High Court Judge Pankaj Jain Inspects Rewari District Jail; Inaugurates Legal Aid Clinic, Video Conferencing Room
 https://www.livelaw.in/news-updates/punjab-haryana-high-court-judge-pankaj-jain-inspects-rewari-district-jail-inaugurates-legal-aid-clinic-video-conferencing-room-528753
@@ -142,5 +128,19 @@ https://www.livelaw.in/sc-judgments/2026-livelaw-sc-321-ms-akg-construction-and-
 https://www.livelaw.in/news-updates/delhi-riots-tahir-hussain-brother-shah-alam-acquitted-528781
 
 [Read on Telegram](https://t.me/livelawindia/108115)
+
+---
+### 2026-04-03T01:32:42+00:00
+MP High Court Initiates Suo Moto Criminal Contempt Against BJP MLA For Attempting To Influence Judge In Illegal Mining Case
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-suo-motu-criminal-contempt-petition-bjp-mla-sanjay-pathak-528786
+
+[Read on Telegram](https://t.me/livelawindia/108116)
+
+---
+### 2026-04-03T02:32:52+00:00
+Journalist Moves High Court Against AAP's Copyright Strikes On His Facebook Page For Using Punjab CM's Photos; Notice Issued
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-journalists-plea-against-removal-of-facebook-page-copyright-strike-for-using-punjab-cms-photo-528784
+
+[Read on Telegram](https://t.me/livelawindia/108117)
 
 ---
