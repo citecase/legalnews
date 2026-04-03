@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-03T13:12:15+00:00*
+*Last Updated: 2026-04-03T16:02:40+00:00*
+
+---
+
+### 2026-04-03T16:02:40+00:00
+AI Assets Holding Limited (AIAHL) Invites Applications For The Post Of Manager Legal & Corporate
+https://www.verdictum.in/job-updates/ai-assets-holding-limited-1611294
+
+[Source Link](https://t.me/verdictumlegalupdates/26316)
+
+---
+
+### 2026-04-03T14:52:38+00:00
+Even Operating Of Dance Bar Per Se Is Not Completely Prohibited: Bombay High Court Quashes Morality-Based Denial Of Orchestra Performance License
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/2026-bhcas-15781-shivaji-sambu-waghralkar-v-commissioner-of-police-1611299
+
+[Source Link](https://t.me/verdictumlegalupdates/26315)
+
+---
+
+### 2026-04-03T14:03:04+00:00
+Sealed Cover Procedure Cannot Be Invoked At Investigation Stage To Withhold Candidate’s Results Without Charge Sheet: Patna High Court
+https://www.verdictum.in/court-updates/high-courts/patna-high-court/monu-kumar-ors-v-state-of-bihar-ors-2026pathc30182-sealed-cover-1611295
+
+[Source Link](https://t.me/verdictumlegalupdates/26314)
 
 ---
 
@@ -137,30 +161,6 @@ Can’t Expect Minor To Respond To Public Notice Independently: Supreme Court Qu
 https://www.verdictum.in/court-updates/supreme-court/deepesh-maheswari-v-renu-maheswari-2026-insc-306-minor-public-notice-ex-parte-order-succession-1611249
 
 [Source Link](https://t.me/verdictumlegalupdates/26297)
-
----
-
-### 2026-04-03T04:33:20+00:00
-Uncorroborated Testimony Of Single Witness Insufficient To Sustain SC/ST Act Charges If Absent In Complainant’s Initial Statements: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ranjit-kaur-v-state-nct-of-delhi-2026dhc2700-uncorroborated-testimony-sustain-scst-act-charges-1611232
-
-[Source Link](https://t.me/verdictumlegalupdates/26296)
-
----
-
-### 2026-04-02T16:02:55+00:00
-IIT Madras Invites Applications For The Post Of Legal Consultant
-https://www.verdictum.in/job-updates/indian-institute-of-technology-madras-1611225
-
-[Source Link](https://t.me/verdictumlegalupdates/26295)
-
----
-
-### 2026-04-02T15:23:14+00:00
-Child’s Overseas Citizenship & Foreign Court Orders No Conclusive Factor In Custody Disputes; Welfare Of Child Remains Paramount: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/aman-kathpal-v-union-of-india-anr-pankaj-dhingra-v-state-nct-of-delhi-anr-2026dhc2685-db-1611231
-
-[Source Link](https://t.me/verdictumlegalupdates/26294)
 
 ---
 
