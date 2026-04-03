@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-02T16:02:55+00:00*
+*Last Updated: 2026-04-03T07:32:59+00:00*
+
+---
+
+### 2026-04-03T07:32:59+00:00
+Second FIR Permissible Where It Targets Broader Criminal Conspiracy Distinct From Earlier Case: J&K And Ladakh High Court
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/kali-dass-anr-v-state-of-jk-second-fir-distinct-case-wider-conspiracy-1611266
+
+[Source Link](https://t.me/verdictumlegalupdates/26302)
+
+---
+
+### 2026-04-03T07:02:58+00:00
+Sajjadanashin Of A Waqf Different From Mutawalli U/S 32(2)(g) Waqf Act; Civil Court Has Jurisdiction Over Succession: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/syed-mohammed-ghouse-pasha-khadri-v-syed-mohammed-adil-pasha-khadri-2026-insc-314-sajjadanashin-of-a-waqf-mutawalli-us-322g-1611262
+
+[Source Link](https://t.me/verdictumlegalupdates/26301)
+
+---
+
+### 2026-04-03T06:32:56+00:00
+Governor Bound By Cabinet Advice On Premature Release Of Convict Prisoners; Can't Take Different View: Madras High Court
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/eswaran-v-state-wp-no-31478-of-2024-1611257
+
+[Source Link](https://t.me/verdictumlegalupdates/26300)
+
+---
+
+### 2026-04-03T06:02:14+00:00
+Power Distributor Can’t Disconnect Supply In Absence Of Dues & Theft Of Electricity: Telangana HC Holds Disconnecting Power For Causing Pollution Arbitrary
+https://www.verdictum.in/court-updates/high-courts/telangana-high-court/b-vijay-kumar-v-the-state-of-telangana-power-supply-distribution-company-disconnect-absence-dues-electricity-1611256
+
+[Source Link](https://t.me/verdictumlegalupdates/26299)
+
+---
+
+### 2026-04-03T05:32:33+00:00
+Higher Professional Rank Justifies Stringent Disciplinary Action: Supreme Court Rejects Parity In Bank Misconduct Penalties
+https://www.verdictum.in/court-updates/supreme-court/punjab-sind-bank-v-raj-kumar-2026-insc-313-rejects-parity-in-bank-misconduct-penalties-1611254
+
+[Source Link](https://t.me/verdictumlegalupdates/26298)
+
+---
+
+### 2026-04-03T05:03:11+00:00
+Can’t Expect Minor To Respond To Public Notice Independently: Supreme Court Quashes Ex Parte Order Granting Succession Certificate
+https://www.verdictum.in/court-updates/supreme-court/deepesh-maheswari-v-renu-maheswari-2026-insc-306-minor-public-notice-ex-parte-order-succession-1611249
+
+[Source Link](https://t.me/verdictumlegalupdates/26297)
+
+---
+
+### 2026-04-03T04:33:20+00:00
+Uncorroborated Testimony Of Single Witness Insufficient To Sustain SC/ST Act Charges If Absent In Complainant’s Initial Statements: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ranjit-kaur-v-state-nct-of-delhi-2026dhc2700-uncorroborated-testimony-sustain-scst-act-charges-1611232
+
+[Source Link](https://t.me/verdictumlegalupdates/26296)
 
 ---
 
@@ -105,62 +161,6 @@ State Appears To Be Appointing Govt Pleaders/Public Prosecutors Based On Their P
 https://www.verdictum.in/court-updates/high-courts/madras-high-court/rajkumar-v-the-state-of-tamil-nadu-state-govt-pleaders-public-prosecutors-proximity-ruling-dispensation-1611209
 
 [Source Link](https://t.me/verdictumlegalupdates/26283)
-
----
-
-### 2026-04-02T09:02:19+00:00
-Supreme Court: Subsequent Application Filed U/s.11 Of Arbitration Act Based On Same Cause Of Action Barred By Order 23 Rule 1 CPC
-https://www.verdictum.in/court-updates/supreme-court/rajiv-gaddh-v-subodh-parkash-2026-insc-302-subsequent-application-section-116-arbitration-act-o23-r1-cpc-1611207
-
-[Source Link](https://t.me/verdictumlegalupdates/26282)
-
----
-
-### 2026-04-02T08:33:07+00:00
-Seizure Not Unbridled Power But A Conditional Exercise: Karnataka High Court Orders Enquiry Against Erring Senior Motor Vehicle Inspector, Quashes FIR
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/h1-car-care-v-state-of-karnataka-criminal-petition-no2309-of-2026-erring-senior-motor-vehicle-inspector-1611202
-
-[Source Link](https://t.me/verdictumlegalupdates/26281)
-
----
-
-### 2026-04-02T08:02:46+00:00
-Delhi High Court Bar Association Resolves To Abstain From Work On First And Third Saturdays Of Every Month
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/delhi-high-court-bar-association-resolves-abstain-work-first-third-saturdays-of-every-month-1611203
-
-[Source Link](https://t.me/verdictumlegalupdates/26280)
-
----
-
-### 2026-04-02T07:32:45+00:00
-Adhyaksha Or Up-Adhyaksha Removable Only With Support Of More Than Half Of Total Elected Members U/S 70(4) Of Bihar Panchayat Raj Act: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/rashmi-singh-v-the-state-of-bihar-2026-insc-308-us-704-bihar-panchayat-raj-act-1611196
-
-[Source Link](https://t.me/verdictumlegalupdates/26279)
-
----
-
-### 2026-04-02T07:02:43+00:00
-Ministry Of Home Affairs Competent To Initiate Disciplinary Proceedings Against AGMUT Cadre IAS Officers: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/union-of-india-ors-v-padma-jaiswal-ias-agmut2003-connected-matters-2026dhc2682-db-1611190
-
-[Source Link](https://t.me/verdictumlegalupdates/26278)
-
----
-
-### 2026-04-02T06:32:22+00:00
-Departmental Charge-Sheet Not A Plaint; Evasive Reply Given To It Does Not Amount To Admission: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/jai-prakash-saini-v-managing-director-up-cooperative-federation-ltd-ors-2026-insc-305-1611187
-
-[Source Link](https://t.me/verdictumlegalupdates/26277)
-
----
-
-### 2026-04-02T05:59:40+00:00
-Breaking: Supreme Court Slams West Bengal Over "Mobocracy" And Attack On Judicial Officers, Says "Complete Failure Of Civil & Police Administration In State"
-https://www.verdictum.in/court-updates/supreme-court/lams-west-bengal-government-over-mobocracy-and-attack-on-judicial-officers-1611185
-
-[Source Link](https://t.me/verdictumlegalupdates/26276)
 
 ---
 
