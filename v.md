@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-03T16:02:40+00:00*
+*Last Updated: 2026-04-04T07:32:24+00:00*
+
+---
+
+### 2026-04-04T07:32:24+00:00
+Advocate Using Chamber As Associate Has No Vested Right Over It: Delhi High Court Upholds Chamber Allotment Committee’s View
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/anju-tanwar-v-lawyers-chambers-allotment-committee-advocate-chamber-associate-no-vested-right-1611327
+
+[Source Link](https://t.me/verdictumlegalupdates/26321)
+
+---
+
+### 2026-04-04T06:52:23+00:00
+Credibility Of Witness Not Disqualified By Criminal Antecedents If Testimony Is Consistent, Coherent & Corroborative: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/muheshkumar-k-v-state-of-kerala-2026ker29710-credibility-of-witness-criminal-antecedents-1611324
+
+[Source Link](https://t.me/verdictumlegalupdates/26320)
+
+---
+
+### 2026-04-04T06:03:01+00:00
+Provisions Of Family Courts Act Remain Unaffected By Gram Nyayalayas Act; Family Court Alone Can Consider Maintenance Case: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/abc-v-xyz-2026ker26328-family-courts-act-gram-nyayalayas-act-maintenance-case-1611323
+
+[Source Link](https://t.me/verdictumlegalupdates/26319)
+
+---
+
+### 2026-04-04T05:12:19+00:00
+Consensual Adolescent Relationship: Uttarakhand High Court Stays Proceedings Before Juvenile Justice Board Against 15-Yr-Old Boy
+https://www.verdictum.in/court-updates/high-courts/uttarakhand-high-court/s-v-state-of-uttarakhand-proceedings-juvenile-justice-board-minors-consensual-adolescent-relationships-1611321
+
+[Source Link](https://t.me/verdictumlegalupdates/26318)
+
+---
+
+### 2026-04-04T04:32:27+00:00
+Bail Conditions Can't Be Imposed On Family Members Of Accused Or Convict: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/sandeep-kala-kale-sonu-sinothia-v-state-govt-of-nct-of-delhibail-conditions-undertrial-family-members-1611319
+
+[Source Link](https://t.me/verdictumlegalupdates/26317)
 
 ---
 
@@ -121,46 +161,6 @@ Second FIR Permissible Where It Targets Broader Criminal Conspiracy Distinct Fro
 https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/kali-dass-anr-v-state-of-jk-second-fir-distinct-case-wider-conspiracy-1611266
 
 [Source Link](https://t.me/verdictumlegalupdates/26302)
-
----
-
-### 2026-04-03T07:02:58+00:00
-Sajjadanashin Of A Waqf Different From Mutawalli U/S 32(2)(g) Waqf Act; Civil Court Has Jurisdiction Over Succession: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/syed-mohammed-ghouse-pasha-khadri-v-syed-mohammed-adil-pasha-khadri-2026-insc-314-sajjadanashin-of-a-waqf-mutawalli-us-322g-1611262
-
-[Source Link](https://t.me/verdictumlegalupdates/26301)
-
----
-
-### 2026-04-03T06:32:56+00:00
-Governor Bound By Cabinet Advice On Premature Release Of Convict Prisoners; Can't Take Different View: Madras High Court
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/eswaran-v-state-wp-no-31478-of-2024-1611257
-
-[Source Link](https://t.me/verdictumlegalupdates/26300)
-
----
-
-### 2026-04-03T06:02:14+00:00
-Power Distributor Can’t Disconnect Supply In Absence Of Dues & Theft Of Electricity: Telangana HC Holds Disconnecting Power For Causing Pollution Arbitrary
-https://www.verdictum.in/court-updates/high-courts/telangana-high-court/b-vijay-kumar-v-the-state-of-telangana-power-supply-distribution-company-disconnect-absence-dues-electricity-1611256
-
-[Source Link](https://t.me/verdictumlegalupdates/26299)
-
----
-
-### 2026-04-03T05:32:33+00:00
-Higher Professional Rank Justifies Stringent Disciplinary Action: Supreme Court Rejects Parity In Bank Misconduct Penalties
-https://www.verdictum.in/court-updates/supreme-court/punjab-sind-bank-v-raj-kumar-2026-insc-313-rejects-parity-in-bank-misconduct-penalties-1611254
-
-[Source Link](https://t.me/verdictumlegalupdates/26298)
-
----
-
-### 2026-04-03T05:03:11+00:00
-Can’t Expect Minor To Respond To Public Notice Independently: Supreme Court Quashes Ex Parte Order Granting Succession Certificate
-https://www.verdictum.in/court-updates/supreme-court/deepesh-maheswari-v-renu-maheswari-2026-insc-306-minor-public-notice-ex-parte-order-succession-1611249
-
-[Source Link](https://t.me/verdictumlegalupdates/26297)
 
 ---
 
