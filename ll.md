@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-03T17:52:26+00:00*
+*Last Updated: 2026-04-04T09:29:44+00:00*
 
 ---
 
-### 2026-04-03T17:52:26+00:00
-Consumer Law Monthly Digest: March 2026
-https://www.livelaw.in/digests/monthly-digests/consumer-law-monthly-digest-march-2026-528900
+### 2026-04-04T09:29:44+00:00
+Challenging Ex-Parte Maintenance Order? File Recall Plea U/S 145(2) BNSS Before Moving HC, Clarifies Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-ex-parte-maintenance-order-recall-145-2-bnss-528961
 
-[Read on Telegram](https://t.me/livelawindia/108173)
-
----
-### 2026-04-04T03:32:59+00:00
-APSC Exam Probe: Gauhati High Court Bars Use Of Inquiry Panel's Reports To Prosecute Candidates Citing Violation Of Procedural Safeguards
-https://www.livelaw.in/high-court/gauhati-high-court/apsc-exam-probe-commission-reports-cant-used-against-candidates-violation-s-8b8c-safeguards-528876
-
-[Read on Telegram](https://t.me/livelawindia/108174)
+[Read on Telegram](https://t.me/livelawindia/108207)
 
 ---
-### 2026-04-04T03:37:39+00:00
-Flight Cancellation Without Prior Intimation: Chandigarh State Commission Holds Air India, Travel Agent Liable
-https://www.livelaw.in/consumer-cases/flight-cancellation-without-prior-intimation-chandigarh-state-commission-holds-airin-dia-travel-agent-liable-528902
+### 2026-04-04T09:30:44+00:00
+Pained At Seeing Clips Of Undignified Conduct By Judges : Supreme Court Justice NV Anjaria
+https://www.livelaw.in/high-court/gujarat-high-court/justice-nv-anjaria-pained-videos-judicial-officers-528962
 
-[Read on Telegram](https://t.me/livelawindia/108175)
-
----
-### 2026-04-04T03:42:39+00:00
-June 30 Retirement No Bar To July 1 Annual Increment- Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/june-30-retirement-no-bar-to-july-1-annual-increment-delhi-high-court-528903
-
-[Read on Telegram](https://t.me/livelawindia/108176)
+[Read on Telegram](https://t.me/livelawindia/108208)
 
 ---
-### 2026-04-04T04:26:49+00:00
-Supreme Court Monthly Digest: February 2026
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-monthly-digest-february-2026-528911
+### 2026-04-04T09:35:44+00:00
+NLU Odisha Invites Applications For Ph.D. Programme 2026-27; Entrance Test On May 10
+https://www.livelaw.in/lawschool/llm-phd/nlu-odisha-invites-applications-for-phd-programme-2026-27-entrance-test-on-may-10-528964
 
-[Read on Telegram](https://t.me/livelawindia/108177)
-
----
-### 2026-04-04T04:27:29+00:00
-Young Professional Vacancy At Income Tax Appellate Tribunal (ITAT)
-https://www.livelaw.in/job-updates/young-professional-vacancy-at-income-tax-appellate-tribunal-itat-528912
-
-[Read on Telegram](https://t.me/livelawindia/108178)
+[Read on Telegram](https://t.me/livelawindia/108209)
 
 ---
-### 2026-04-04T04:32:29+00:00
-Identity Under Scrutiny
-https://www.livelaw.in/articles/identity-under-scrutiny-528914
+### 2026-04-04T09:47:24+00:00
+Pay Parity Can't Be Claimed On Common Recruitment When Pay Commission Maintains Cadre Distinction: Delhi HC
+https://www.livelaw.in/high-court/delhi-high-court/pay-parity-cant-be-claimed-on-common-recruitment-when-pay-commission-maintains-cadre-distinction-delhi-hc-528905
 
-[Read on Telegram](https://t.me/livelawindia/108179)
-
----
-### 2026-04-04T04:32:39+00:00
-Gujarat High Court Monthly Digest: March 2026 [Citations 70 - 104]
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-monthly-digest-march-2026-528483
-
-[Read on Telegram](https://t.me/livelawindia/108180)
+[Read on Telegram](https://t.me/livelawindia/108210)
 
 ---
-### 2026-04-04T04:35:09+00:00
-Law Clerks-Cum-Legal Research Assistants Vacancy At High Court Of Meghalaya
-https://www.livelaw.in/job-updates/law-clerks-cum-legal-research-assistants-vacancy-at-high-court-of-meghalaya-528915
+### 2026-04-04T10:02:44+00:00
+Delhi High Court Upholds Conviction Of Lawyer, Cop For Falsely Implicating Man In Gang Rape Case And Tortured In Police Custody
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-upholds-conviction-of-lawyer-cop-for-falsely-implicating-man-in-gang-rape-case-and-tortured-in-police-custody-528951
 
-[Read on Telegram](https://t.me/livelawindia/108181)
-
----
-### 2026-04-04T04:39:09+00:00
-Consultant, Associate, And Young Professional Vacancy At Indian Institute Of Foreign Trade (IIFT)
-https://www.livelaw.in/job-updates/consultant-associate-and-young-professional-vacancy-at-indian-institute-of-foreign-trade-iift-528916
-
-[Read on Telegram](https://t.me/livelawindia/108182)
+[Read on Telegram](https://t.me/livelawindia/108211)
 
 ---
-### 2026-04-04T04:41:09+00:00
-Assistant Manager Vacancy At India Infrastructure Finance Company Limited
-https://www.livelaw.in/job-updates/assistant-manager-vacancy-at-india-infrastructure-finance-company-limited-528917
+### 2026-04-04T10:17:05+00:00
+Centre Should Not View States As Subordinates; Citizens Of A State Cannot Be Discriminated Against: Justice BV Nagarathna
+https://www.livelaw.in/top-stories/centre-should-not-view-states-as-subordinates-citizens-of-a-state-cannot-be-discriminated-against-justice-bv-nagarathna-528970
 
-[Read on Telegram](https://t.me/livelawindia/108183)
-
----
-### 2026-04-04T05:16:09+00:00
-[Advertisement] Certificate Course On FinTech Regulations By Dharmashastra National Law University, Jabalpur [Register By April 9]
-https://www.livelaw.in/lawschool/diploma-certificate-courses/fintech-regulations-dharmashastra-national-law-university-jabalpur-528921
-
-[Read on Telegram](https://t.me/livelawindia/108184)
+[Read on Telegram](https://t.me/livelawindia/108212)
 
 ---
-### 2026-04-04T05:28:12+00:00
-Himachal Pradesh High Court Quashes FIR Against Congress Leader Over Allegedly Abusive Remarks Against PM Modi
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-congress-leader-alleged-remarks-prime-minister-528923
+### 2026-04-04T10:17:45+00:00
+Bombay High Court Slams Party For Obstructing 2011 Eviction Decree; Imposes 25K Costs & Orders Immediate Possession Warrant
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-executive-failing-execute-eviction-decree-528929
 
-[Read on Telegram](https://t.me/livelawindia/108185)
-
----
-### 2026-04-04T05:32:52+00:00
-Counsel Sends Illness Slip But Appears Elsewhere: Allahabad High Court Imposes ₹20,000 Costs
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-cost-lawyer-attempting-deceive-court-528880
-
-[Read on Telegram](https://t.me/livelawindia/108186)
+[Read on Telegram](https://t.me/livelawindia/108213)
 
 ---
-### 2026-04-04T05:37:42+00:00
-Pre-Arrest Bail Not Barred Under SC/ST Act If Prima Facie Ingredients Of Offence Are Not Disclosed: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-pre-arrest-bail-not-absolutely-barred-under-scst-act-if-prima-facie-ingredients-of-offence-are-not-disclosed-528901
+### 2026-04-04T10:24:25+00:00
+Kerala Court Sends Director Renjith To Police Custody For 3 Days In Sexual Harassment Case
+https://www.livelaw.in/news-updates/kerala-court-magistrate-ernakulam-renjith-director-sexual-harassment-528971
 
-[Read on Telegram](https://t.me/livelawindia/108187)
-
----
-### 2026-04-04T05:47:02+00:00
-Patna High Court Flags Police's “Invariable Misuse” Of NDPS Act In Cough Syrup Cases; Says Such Offences Fall Under Drugs & Cosmetics Act
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-misusing-ndps-act-codeine-cough-syrup-case-528932
-
-[Read on Telegram](https://t.me/livelawindia/108188)
+[Read on Telegram](https://t.me/livelawindia/108214)
 
 ---
-### 2026-04-04T05:52:42+00:00
-'Absence Of Burn Care Facilities Renders Right To Health Illusory': Jharkhand HC Issues Statewide Directions After Hazaribagh Fire Tragedy
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-issues-statewide-directions-hazaribagh-fire-tragedy-528924
+### 2026-04-04T10:28:35+00:00
+'Intellectual Disability Results In Lifelong Impairment': Kerala HC Assesses Functional Disability Of Child Injured In Road Accident At 100%
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-intellectual-disability-functional-disability-100-528973
 
-[Read on Telegram](https://t.me/livelawindia/108189)
-
----
-### 2026-04-04T06:43:14+00:00
-Stamp Deficiency Can Be Recovered From Legal Representatives To The Extent Of Their Inheritance: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-stamp-deficiency-recovered-legal-representatives-inheritance-528925
-
-[Read on Telegram](https://t.me/livelawindia/108190)
+[Read on Telegram](https://t.me/livelawindia/108215)
 
 ---
-### 2026-04-04T06:47:34+00:00
-Identity Of Evidence: Orissa High Court Quashes Disciplinary Action After Criminal Court Acquittal
-https://www.livelaw.in/high-court/orissa-high-court/identity-of-evidence-orissa-high-court-quashes-disciplinary-action-after-criminal-court-acquittal-528904
+### 2026-04-04T10:32:55+00:00
+Unidentified Minors No Ground To Drop POCSO Charges In Cases Involving Child Sexual Exploitation Material: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/unidentified-minors-no-ground-to-drop-pocso-charges-in-cases-involving-child-sexual-exploitation-material-delhi-high-court-528974
 
-[Read on Telegram](https://t.me/livelawindia/108191)
+[Read on Telegram](https://t.me/livelawindia/108216)
 
 ---
-### 2026-04-04T07:02:14+00:00
-LiveLaw Invites Applications for Editorial Roles at LIVELAWBIZ
-https://www.livelaw.in/job-updates/livelaw-invites-applications-for-editorial-roles-at-livelawbiz-528937
+### 2026-04-04T10:37:27+00:00
+Gujarat High Court Bars Judges From Using Artificial Intelligence In Decision Making, Reasoning, Interpretation
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-ai-policy-judges-decision-making-528975
 
-[Read on Telegram](https://t.me/livelawindia/108192)
+[Read on Telegram](https://t.me/livelawindia/108217)
+
+---
+### 2026-04-04T11:03:07+00:00
+Role Of A Judge Often Requires Taking Unpopular Or Inconvenient Decisions: Justice Vikram Nath
+https://www.livelaw.in/high-court/gujarat-high-court/supreme-court-justice-vikram-nath-gujarat-high-conference-district-judges-conference-528976
+
+[Read on Telegram](https://t.me/livelawindia/108218)
+
+---
+### 2026-04-04T11:03:17+00:00
+Delhi High Court Protects Personality Rights Of Actor Mohanlal Against AI-Generated Content, Unauthorized Merchandise
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-protects-personality-rights-of-actor-mohanlal-against-ai-generated-content-unauthorized-merchandise-528979
+
+[Read on Telegram](https://t.me/livelawindia/108219)
+
+---
+### 2026-04-04T11:12:23+00:00
+Delimitation Is A Legislative Function: Punjab & Haryana High Court Dismisses Challenges To Municipal Ward Notifications
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-delimitation-wards-municipal-councils-corporations-528930
+
+[Read on Telegram](https://t.me/livelawindia/108220)
+
+---
+### 2026-04-04T11:15:23+00:00
+Institutions Like ECI, CAG Must Function Independently, Free From Political Influence: Justice BV Nagarathna
+https://www.livelaw.in/top-stories/institutions-like-eci-cag-must-function-independently-free-from-political-influence-justice-bv-nagarathna-528983
+
+[Read on Telegram](https://t.me/livelawindia/108221)
+
+---
+### 2026-04-04T11:33:03+00:00
+Supreme Court Criminal Digest February 2026
+https://www.livelaw.in/supreme-court/supreme-court-criminal-digest-february-2026-528935
+
+[Read on Telegram](https://t.me/livelawindia/108222)
+
+---
+### 2026-04-04T12:13:33+00:00
+BREAKING| Plea In Supreme Court Challenges Transgender Persons Amendment Act 2026, Says Omitting Self-Identification Violates Art 21
+https://www.livelaw.in/top-stories/plea-in-supreme-court-challenges-transgender-persons-amendment-act-2026-says-omitting-self-identification-violates-art-21-528986
+
+[Read on Telegram](https://t.me/livelawindia/108223)
+
+---
+### 2026-04-04T12:14:13+00:00
+'Not Proper At This Stage': Kerala High Court Refuses To Quash Order Restraining Construction Of Commercial Kiosks In Queen's Walkway
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kiosks-queens-walkway-appeal-528987
+
+[Read on Telegram](https://t.me/livelawindia/108224)
+
+---
+### 2026-04-04T12:17:13+00:00
+Legal Research, Understanding Impugned Order No Ground To Condone Delay: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/legal-research-understanding-impugned-order-no-ground-to-condone-delay-delhi-high-court-528988
+
+[Read on Telegram](https://t.me/livelawindia/108225)
+
+---
+### 2026-04-04T12:32:13+00:00
+Rajasthan HC Quashes 'Organ Removal' Case Against Shelter Home, Says Culpable Homicide Charge Impossible When Act Alleged On Dead Body
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-cognizance-alleged-organ-removal-shelter-home-528931
+
+[Read on Telegram](https://t.me/livelawindia/108226)
 
 ---
