@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-04T13:33:06+00:00*
+*Last Updated: 2026-04-04T15:02:49+00:00*
+
+---
+
+### 2026-04-04T15:02:49+00:00
+Section Officer Vacancy At Andhra Pradesh High Court
+https://www.verdictum.in/job-updates/andhra-pradesh-high-court-1611346
+
+[Source Link](https://t.me/verdictumlegalupdates/26331)
+
+---
+
+### 2026-04-04T14:12:28+00:00
+Department Can’t Deny Benefit Of Increment Already Earned By Employee Which Is Payable On Subsequent Date As Per Rules: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/union-of-india-ors-v-naresh-kumar-gupta-2026dhc2369-db-benefit-increment-employees-subsequent-date-1611345
+
+[Source Link](https://t.me/verdictumlegalupdates/26330)
 
 ---
 
@@ -145,22 +161,6 @@ Ventures Cannot Be Shut Because Of Protests Without Basis: Kerala High Court Dir
 https://www.verdictum.in/court-updates/high-courts/kerala-high-court/sudheer-s-v-state-of-kerala-2026ker28842-panchayat-allow-entrepreneurs-to-setup-hot-mix-plant-1611291
 
 [Source Link](https://t.me/verdictumlegalupdates/26312)
-
----
-
-### 2026-04-03T12:03:02+00:00
-Competent Authority Not Bound To Refer Every Claimed Dispute U/S 3H(4) National Highways Act To Civil Courts: J&K And Ladakh High Court
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/atiqa-begum-ors-v-ut-of-jk-ors-national-highways-authority-of-india-1611289
-
-[Source Link](https://t.me/verdictumlegalupdates/26311)
-
----
-
-### 2026-04-03T11:32:21+00:00
-Corroborated Testimonies With Medical Evidence Overrides Negative DNA Findings: Gauhati High Court Upholds POCSO Conviction
-https://www.verdictum.in/court-updates/high-courts/guwahati-high-court/nripen-rabha-v-state-of-assam-2026gau-as3874-negative-dna-findings-pocso-act-1611288
-
-[Source Link](https://t.me/verdictumlegalupdates/26310)
 
 ---
 
