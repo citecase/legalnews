@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-04T07:32:24+00:00*
+*Last Updated: 2026-04-04T13:33:06+00:00*
+
+---
+
+### 2026-04-04T13:33:06+00:00
+No Offence U/S.138 Of NI Act If Endorsement Of Part Payment As Per Section 56 Isn’t Recorded: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/danikutti-philip-v-johnykutty-j-2026ker27586-section-138-ni-act-endorsement-part-payment-sec56-1611344
+
+[Source Link](https://t.me/verdictumlegalupdates/26329)
+
+---
+
+### 2026-04-04T12:52:45+00:00
+Recovery Against Legal Representatives Of Defaulter U/S 48 Stamp Act Limited To Inherited Estate: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/raj-kumar-verma-v-the-state-of-up-2026ahc61816-defaulter-us-48-stamp-act-limited-to-inherited-estate-1611343
+
+[Source Link](https://t.me/verdictumlegalupdates/26328)
+
+---
+
+### 2026-04-04T12:02:44+00:00
+Belongs To Backward Community Can’t Tilt Scales; No Scope For Charity Or Compassion In Matters Of Public Employment: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/commissioner-delhi-police-anr-v-uttam-kumar-2026-insc-314-backward-community-tilting-scale-police-aspirant-1611342
+
+[Source Link](https://t.me/verdictumlegalupdates/26327)
+
+---
+
+### 2026-04-04T11:12:22+00:00
+Departmental Proceedings Based On Same Evidence Cannot Survive Once Plea Of Alibi Is Accepted In Criminal Trial: Orissa High Court
+https://www.verdictum.in/court-updates/high-courts/orissa-high-court/state-of-odisha-ors-v-bansidhar-bariki-departmental-proceedings-trial-1611338
+
+[Source Link](https://t.me/verdictumlegalupdates/26326)
+
+---
+
+### 2026-04-04T10:33:01+00:00
+PM Modi Never Came Forward To Lodge Complaint: Himachal Pradesh High Court Quashes FIR Against Congress Leader For Abusive Remarks Against PM Modi
+https://www.verdictum.in/court-updates/high-courts/himachal-high-court/thakar-singh-bharmouri-v-state-of-hp-cr-mmo-no623-of-2025-abusive-remarks-against-pm-modi-1611337
+
+[Source Link](https://t.me/verdictumlegalupdates/26325)
+
+---
+
+### 2026-04-04T09:52:49+00:00
+Attempt To Deceive Court: Allahabad High Court Slams Advocate Over “Illness Slip” Misuse; Imposes ₹20,000 Costs
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/arun-kumar-yadav-v-state-of-up-2026dhc62958-illness-slip-misuse-advocate-costs-1611335
+
+[Source Link](https://t.me/verdictumlegalupdates/26324)
+
+---
+
+### 2026-04-04T09:02:28+00:00
+Wife’s Right To Permanent Alimony U/S 25 HMA Not Dependent On Her Children’s Majority Or Earning Capacity: Rajasthan High Court
+https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/sk-v-ns-2026rj-jd9372-db-husband-wife-children-divorce-permanent-alimony-1611333
+
+[Source Link](https://t.me/verdictumlegalupdates/26323)
+
+---
+
+### 2026-04-04T08:13:06+00:00
+Single Word Caste-Based Abuse Enough To Attract SC/ST Act; Length Of Expression Immaterial: J&K And Ladakh High Court
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/santosha-devi-v-ut-of-jk-ors-caste-based-abuse-sc-st-act-public-view-1611330
+
+[Source Link](https://t.me/verdictumlegalupdates/26322)
 
 ---
 
@@ -97,70 +161,6 @@ Corroborated Testimonies With Medical Evidence Overrides Negative DNA Findings: 
 https://www.verdictum.in/court-updates/high-courts/guwahati-high-court/nripen-rabha-v-state-of-assam-2026gau-as3874-negative-dna-findings-pocso-act-1611288
 
 [Source Link](https://t.me/verdictumlegalupdates/26310)
-
----
-
-### 2026-04-03T11:02:59+00:00
-Sec.197 CrPC Protects Public Servants Against Vexatious Prosecution: Patna High Court Quashes Summoning Order Against Forest Officer
-https://www.verdictum.in/court-updates/high-courts/patna-high-court/anil-kumar-jha-v-the-state-of-bihar-sec197-crpc-public-servants-vexatious-prosecution-forest-officer-1611287
-
-[Source Link](https://t.me/verdictumlegalupdates/26309)
-
----
-
-### 2026-04-03T10:32:58+00:00
-Right To Education Cannot Be Translated Into Right To Select A Particular School: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/2026dhc2772db-pooja-v-aadharshila-vidyapeeth-1611286
-
-[Source Link](https://t.me/verdictumlegalupdates/26308)
-
----
-
-### 2026-04-03T10:06:57+00:00
-Grown-Up Married Lady Consenting To Physical Relationship Is Not An Act Induced By Misconception Of Fact: Punjab & Haryana High Court
-https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/abc-v-state-of-ut-chandigarh-2026phhc044912-grown-up-married-lady-physical-relationship-misconception-of-fact-1611285
-
-[Source Link](https://t.me/verdictumlegalupdates/26307)
-
----
-
-### 2026-04-03T09:32:55+00:00
-Father Can’t Escape Maintenance Liability Towards Minor Children Even When Mother Is Earning: Uttarakhand High Court
-https://www.verdictum.in/court-updates/high-courts/uttarakhand-high-court/a-v-state-of-uttarakhand-2026uhc66-father-responsibility-maintenance-parents-1611280
-
-[Source Link](https://t.me/verdictumlegalupdates/26306)
-
----
-
-### 2026-04-03T09:02:34+00:00
-Rajasthan High Court Deletes Criticism Of Transgender Act Amendment In Its Epilogue To Judgment, Says Included “By Mistake”
-https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/ganga-kumari-v-state-of-rajasthan-ors-neutral-citation-2026rj-jd15024-db-1611281
-
-[Source Link](https://t.me/verdictumlegalupdates/26305)
-
----
-
-### 2026-04-03T08:32:32+00:00
-Public Servants Deemed To Be In Service Until Closing Hours, Can't Walk Away To Claim Cessation Of Employment: Madras High Court
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/2026mhc1335-k-suresh-v-union-of-india-1611278
-
-[Source Link](https://t.me/verdictumlegalupdates/26304)
-
----
-
-### 2026-04-03T08:02:41+00:00
-Judicial Intervention U/S 165 Evidence Act Cannot Supply Missing Ingredients Of Offence: Karnataka High Court Acquits Two In Gang Rape Case
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/mohan-naik-v-state-of-karnataka-anr-crla-no824-of-2023-judicial-intervention-us-165-evidence-act-1611271
-
-[Source Link](https://t.me/verdictumlegalupdates/26303)
-
----
-
-### 2026-04-03T07:32:59+00:00
-Second FIR Permissible Where It Targets Broader Criminal Conspiracy Distinct From Earlier Case: J&K And Ladakh High Court
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/kali-dass-anr-v-state-of-jk-second-fir-distinct-case-wider-conspiracy-1611266
-
-[Source Link](https://t.me/verdictumlegalupdates/26302)
 
 ---
 
