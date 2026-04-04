@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-03T10:36:51+00:00*
+*Last Updated: 2026-04-03T17:52:26+00:00*
 
 ---
 
-### 2026-04-03T10:36:51+00:00
-Who Qualifies As Scheduled Caste?
-https://www.livelaw.in/articles/qualifies-scheduled-caste-528860
-
-[Read on Telegram](https://t.me/livelawindia/108154)
-
----
-### 2026-04-03T10:37:31+00:00
-Motor Accident Claim Cannot Be Dismissed Merely Because Injured Claimant Dies During Proceedings: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-sets-aside-order-motor-accident-claims-tribunal-528824
-
-[Read on Telegram](https://t.me/livelawindia/108155)
-
----
-### 2026-04-03T10:53:31+00:00
-Pay Commission Benefits Can't Be Denied By Creating Additional Conditions: Supreme Court
-https://www.livelaw.in/supreme-court/pay-commission-benefits-cant-be-denied-by-creating-additional-conditions-supreme-court-528865
-
-[Read on Telegram](https://t.me/livelawindia/108156)
-
----
-### 2026-04-03T10:54:31+00:00
-2026 LiveLaw (SC) 323 |  UNION OF INDIA & OTHERS VERSUS SUNIL KUMAR RAI & OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-323-union-of-india-others-versus-sunil-kumar-rai-others-528866
-
-[Read on Telegram](https://t.me/livelawindia/108157)
-
----
-### 2026-04-03T11:07:41+00:00
-'No Understanding Of Evidence': Patna HC Acquits Murder Accused, Orders Training After Trial Judge Relied On Police Confession To Convict
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-murder-accused-removing-trial-judge-criminal-roster-police-confession-528821
-
-[Read on Telegram](https://t.me/livelawindia/108158)
-
----
-### 2026-04-03T12:04:14+00:00
-Mere Abuse Or Uttering Caste Name Not Offence Under SC/ST Act: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-merely-abusing-scst-member-or-uttering-caste-name-not-enough-abuse-must-be-by-caste-name-in-public-view-to-constitute-offence-under-atrocities-act-528874
-
-[Read on Telegram](https://t.me/livelawindia/108159)
-
----
-### 2026-04-03T12:27:34+00:00
-Land Revenue Code | Mere Allegation Of Taking Indirect Advantage From Demarcation Proceedings Not Criminal Conspiracy: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-quashes-fir-mp-land-revenue-cide-demarcation-proceedings-criminal-conspiracy-cogent-evidence-528817
-
-[Read on Telegram](https://t.me/livelawindia/108160)
-
----
-### 2026-04-03T12:47:54+00:00
-Relaxation In Selection Criteria For PwD  Candidates Not Concession, But Constitutional Obligation: P&H HC Directs States To Frame Norms
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-directs-instructions-relaxation-selection-criteria-rpwd-act-528872
-
-[Read on Telegram](https://t.me/livelawindia/108161)
-
----
-### 2026-04-03T12:52:36+00:00
-Punjab & Haryana High Court Temporarily Prohibits Cutting Of Trees In Haryana Without Court's Permission
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-prohibits-cutting-trees-haryana-528873
-
-[Read on Telegram](https://t.me/livelawindia/108162)
-
----
-### 2026-04-03T13:10:33+00:00
-Annual Conference Of District Judiciary Judges To Be Held At Gujarat High Court on April 4–5
-https://www.livelaw.in/events/annual-conference-district-judiciary-judges-gujarat-high-court-528885
-
-[Read on Telegram](https://t.me/livelawindia/108163)
-
----
-### 2026-04-03T13:17:53+00:00
-Regulation Of Building Operations Act | Locus Of Complainant Irrelevant When Fraud In Obtaining Permission Established: Allahabad HC
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-locus-complainant-irrelevant-prima-facie-fraud-528882
-
-[Read on Telegram](https://t.me/livelawindia/108164)
-
----
-### 2026-04-03T13:42:13+00:00
-Punjab & Haryana High Court Strikes Down 1997 Rule Mandating Govt-Parity Retiral Benefits For Cooperative Society Employees
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-retiral-benefits-cooperative-society-employees-528875
-
-[Read on Telegram](https://t.me/livelawindia/108165)
-
----
-### 2026-04-03T13:42:33+00:00
-“Long Incarceration Tilts Balance In Favour Of Liberty”: J&K&L High Court Grants Bail To Accused In Murder Case After 9 Years Custody
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-long-incarceration-tilts-balance-in-favour-of-liberty-court-grants-bail-to-accused-in-murder-arms-act-case-after-9-years-in-custody-528877
-
-[Read on Telegram](https://t.me/livelawindia/108166)
-
----
-### 2026-04-03T14:12:23+00:00
-MP High Court Quashes FIR Against Railway Vigilance Officers Accused Of Harassing Ticket Examiner, Cites Possible 'Extraneous Influence'
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-criminal-proceedings-railway-vigilance-officer-extraneous-influence-fir-registration-528878
-
-[Read on Telegram](https://t.me/livelawindia/108167)
-
----
-### 2026-04-03T14:12:43+00:00
-'Clay Residue Not Sufficient To Conclude JCB Was Used For Illegal Sand Excavation': Bombay High Court Quashes ₹7.5 Lakh Penalty On Farmer
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-illegal-sand-excavation-farmer-parking-jcb-field-528822
-
-[Read on Telegram](https://t.me/livelawindia/108168)
-
----
-### 2026-04-03T15:27:36+00:00
-Elected Member Working As 'Gram Rojgar Sevak' Not Disqualified For Holding 'Office Of Profit' Under Village Panchayats Act: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-elected-member-gram-rojgar-sevak-holding-office-maharashtra-village-panchayats-act-528823
-
-[Read on Telegram](https://t.me/livelawindia/108169)
-
----
-### 2026-04-03T15:57:36+00:00
-Madras High Court Initiates Suo Motu Contempt Against YouTuber Felix Gerald Over Savukku Shankar Interview
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-felix-gerald-suo-motu-contempt-order-against-savukku-shankar-528897
-
-[Read on Telegram](https://t.me/livelawindia/108170)
-
----
-### 2026-04-03T16:42:26+00:00
-Earning Capacity Of Adult Sons Doesn't Negate Wife's 'Independent' Right To Permanent Alimony: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-hc-earning-adult-sons-dilute-wife-permanent-alimony-528898
-
-[Read on Telegram](https://t.me/livelawindia/108171)
-
----
-### 2026-04-03T16:43:26+00:00
-Myth Of Formalisation: Economic Survey Projections And Governance Challenges In India's Labour Codes
-https://www.livelaw.in/lawschool/articles/economic-survey-projections-governance-challenges-india-labour-codes-528899
-
-[Read on Telegram](https://t.me/livelawindia/108172)
-
----
 ### 2026-04-03T17:52:26+00:00
 Consumer Law Monthly Digest: March 2026
 https://www.livelaw.in/digests/monthly-digests/consumer-law-monthly-digest-march-2026-528900
 
 [Read on Telegram](https://t.me/livelawindia/108173)
+
+---
+### 2026-04-04T03:32:59+00:00
+APSC Exam Probe: Gauhati High Court Bars Use Of Inquiry Panel's Reports To Prosecute Candidates Citing Violation Of Procedural Safeguards
+https://www.livelaw.in/high-court/gauhati-high-court/apsc-exam-probe-commission-reports-cant-used-against-candidates-violation-s-8b8c-safeguards-528876
+
+[Read on Telegram](https://t.me/livelawindia/108174)
+
+---
+### 2026-04-04T03:37:39+00:00
+Flight Cancellation Without Prior Intimation: Chandigarh State Commission Holds Air India, Travel Agent Liable
+https://www.livelaw.in/consumer-cases/flight-cancellation-without-prior-intimation-chandigarh-state-commission-holds-airin-dia-travel-agent-liable-528902
+
+[Read on Telegram](https://t.me/livelawindia/108175)
+
+---
+### 2026-04-04T03:42:39+00:00
+June 30 Retirement No Bar To July 1 Annual Increment- Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/june-30-retirement-no-bar-to-july-1-annual-increment-delhi-high-court-528903
+
+[Read on Telegram](https://t.me/livelawindia/108176)
+
+---
+### 2026-04-04T04:26:49+00:00
+Supreme Court Monthly Digest: February 2026
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-monthly-digest-february-2026-528911
+
+[Read on Telegram](https://t.me/livelawindia/108177)
+
+---
+### 2026-04-04T04:27:29+00:00
+Young Professional Vacancy At Income Tax Appellate Tribunal (ITAT)
+https://www.livelaw.in/job-updates/young-professional-vacancy-at-income-tax-appellate-tribunal-itat-528912
+
+[Read on Telegram](https://t.me/livelawindia/108178)
+
+---
+### 2026-04-04T04:32:29+00:00
+Identity Under Scrutiny
+https://www.livelaw.in/articles/identity-under-scrutiny-528914
+
+[Read on Telegram](https://t.me/livelawindia/108179)
+
+---
+### 2026-04-04T04:32:39+00:00
+Gujarat High Court Monthly Digest: March 2026 [Citations 70 - 104]
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-monthly-digest-march-2026-528483
+
+[Read on Telegram](https://t.me/livelawindia/108180)
+
+---
+### 2026-04-04T04:35:09+00:00
+Law Clerks-Cum-Legal Research Assistants Vacancy At High Court Of Meghalaya
+https://www.livelaw.in/job-updates/law-clerks-cum-legal-research-assistants-vacancy-at-high-court-of-meghalaya-528915
+
+[Read on Telegram](https://t.me/livelawindia/108181)
+
+---
+### 2026-04-04T04:39:09+00:00
+Consultant, Associate, And Young Professional Vacancy At Indian Institute Of Foreign Trade (IIFT)
+https://www.livelaw.in/job-updates/consultant-associate-and-young-professional-vacancy-at-indian-institute-of-foreign-trade-iift-528916
+
+[Read on Telegram](https://t.me/livelawindia/108182)
+
+---
+### 2026-04-04T04:41:09+00:00
+Assistant Manager Vacancy At India Infrastructure Finance Company Limited
+https://www.livelaw.in/job-updates/assistant-manager-vacancy-at-india-infrastructure-finance-company-limited-528917
+
+[Read on Telegram](https://t.me/livelawindia/108183)
+
+---
+### 2026-04-04T05:16:09+00:00
+[Advertisement] Certificate Course On FinTech Regulations By Dharmashastra National Law University, Jabalpur [Register By April 9]
+https://www.livelaw.in/lawschool/diploma-certificate-courses/fintech-regulations-dharmashastra-national-law-university-jabalpur-528921
+
+[Read on Telegram](https://t.me/livelawindia/108184)
+
+---
+### 2026-04-04T05:28:12+00:00
+Himachal Pradesh High Court Quashes FIR Against Congress Leader Over Allegedly Abusive Remarks Against PM Modi
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-congress-leader-alleged-remarks-prime-minister-528923
+
+[Read on Telegram](https://t.me/livelawindia/108185)
+
+---
+### 2026-04-04T05:32:52+00:00
+Counsel Sends Illness Slip But Appears Elsewhere: Allahabad High Court Imposes ₹20,000 Costs
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-cost-lawyer-attempting-deceive-court-528880
+
+[Read on Telegram](https://t.me/livelawindia/108186)
+
+---
+### 2026-04-04T05:37:42+00:00
+Pre-Arrest Bail Not Barred Under SC/ST Act If Prima Facie Ingredients Of Offence Are Not Disclosed: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-pre-arrest-bail-not-absolutely-barred-under-scst-act-if-prima-facie-ingredients-of-offence-are-not-disclosed-528901
+
+[Read on Telegram](https://t.me/livelawindia/108187)
+
+---
+### 2026-04-04T05:47:02+00:00
+Patna High Court Flags Police's “Invariable Misuse” Of NDPS Act In Cough Syrup Cases; Says Such Offences Fall Under Drugs & Cosmetics Act
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-misusing-ndps-act-codeine-cough-syrup-case-528932
+
+[Read on Telegram](https://t.me/livelawindia/108188)
+
+---
+### 2026-04-04T05:52:42+00:00
+'Absence Of Burn Care Facilities Renders Right To Health Illusory': Jharkhand HC Issues Statewide Directions After Hazaribagh Fire Tragedy
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-issues-statewide-directions-hazaribagh-fire-tragedy-528924
+
+[Read on Telegram](https://t.me/livelawindia/108189)
+
+---
+### 2026-04-04T06:43:14+00:00
+Stamp Deficiency Can Be Recovered From Legal Representatives To The Extent Of Their Inheritance: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-stamp-deficiency-recovered-legal-representatives-inheritance-528925
+
+[Read on Telegram](https://t.me/livelawindia/108190)
+
+---
+### 2026-04-04T06:47:34+00:00
+Identity Of Evidence: Orissa High Court Quashes Disciplinary Action After Criminal Court Acquittal
+https://www.livelaw.in/high-court/orissa-high-court/identity-of-evidence-orissa-high-court-quashes-disciplinary-action-after-criminal-court-acquittal-528904
+
+[Read on Telegram](https://t.me/livelawindia/108191)
+
+---
+### 2026-04-04T07:02:14+00:00
+LiveLaw Invites Applications for Editorial Roles at LIVELAWBIZ
+https://www.livelaw.in/job-updates/livelaw-invites-applications-for-editorial-roles-at-livelawbiz-528937
+
+[Read on Telegram](https://t.me/livelawindia/108192)
 
 ---
