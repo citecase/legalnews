@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-05T13:32:26+00:00*
+*Last Updated: 2026-04-05T15:03:08+00:00*
+
+---
+
+### 2026-04-05T15:03:08+00:00
+Deputy Chief Law Officer Vacancy At Visakhapatnam Port Authority (VPA)
+https://www.verdictum.in/job-updates/visakhapatnam-port-authority-1611348
+
+[Source Link](https://t.me/verdictumlegalupdates/26339)
 
 ---
 
@@ -153,14 +161,6 @@ Credibility Of Witness Not Disqualified By Criminal Antecedents If Testimony Is 
 https://www.verdictum.in/court-updates/high-courts/kerala-high-court/muheshkumar-k-v-state-of-kerala-2026ker29710-credibility-of-witness-criminal-antecedents-1611324
 
 [Source Link](https://t.me/verdictumlegalupdates/26320)
-
----
-
-### 2026-04-04T06:03:01+00:00
-Provisions Of Family Courts Act Remain Unaffected By Gram Nyayalayas Act; Family Court Alone Can Consider Maintenance Case: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/abc-v-xyz-2026ker26328-family-courts-act-gram-nyayalayas-act-maintenance-case-1611323
-
-[Source Link](https://t.me/verdictumlegalupdates/26319)
 
 ---
 
