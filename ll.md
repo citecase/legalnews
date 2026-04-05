@@ -1,86 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-04T11:15:23+00:00*
+*Last Updated: 2026-04-04T14:25:13+00:00*
 
 ---
 
-### 2026-04-04T11:15:23+00:00
-Institutions Like ECI, CAG Must Function Independently, Free From Political Influence: Justice BV Nagarathna
-https://www.livelaw.in/top-stories/institutions-like-eci-cag-must-function-independently-free-from-political-influence-justice-bv-nagarathna-528983
-
-[Read on Telegram](https://t.me/livelawindia/108221)
-
----
-### 2026-04-04T11:33:03+00:00
-Supreme Court Criminal Digest February 2026
-https://www.livelaw.in/supreme-court/supreme-court-criminal-digest-february-2026-528935
-
-[Read on Telegram](https://t.me/livelawindia/108222)
-
----
-### 2026-04-04T12:13:33+00:00
-BREAKING| Plea In Supreme Court Challenges Transgender Persons Amendment Act 2026, Says Omitting Self-Identification Violates Art 21
-https://www.livelaw.in/top-stories/plea-in-supreme-court-challenges-transgender-persons-amendment-act-2026-says-omitting-self-identification-violates-art-21-528986
-
-[Read on Telegram](https://t.me/livelawindia/108223)
-
----
-### 2026-04-04T12:14:13+00:00
-'Not Proper At This Stage': Kerala High Court Refuses To Quash Order Restraining Construction Of Commercial Kiosks In Queen's Walkway
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kiosks-queens-walkway-appeal-528987
-
-[Read on Telegram](https://t.me/livelawindia/108224)
-
----
-### 2026-04-04T12:17:13+00:00
-Legal Research, Understanding Impugned Order No Ground To Condone Delay: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/legal-research-understanding-impugned-order-no-ground-to-condone-delay-delhi-high-court-528988
-
-[Read on Telegram](https://t.me/livelawindia/108225)
-
----
-### 2026-04-04T12:32:13+00:00
-Rajasthan HC Quashes 'Organ Removal' Case Against Shelter Home, Says Culpable Homicide Charge Impossible When Act Alleged On Dead Body
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-cognizance-alleged-organ-removal-shelter-home-528931
-
-[Read on Telegram](https://t.me/livelawindia/108226)
-
----
-### 2026-04-04T13:08:03+00:00
-Judicial System Which Disposes Cases Quickly But Compromises Fairness Not Effective : Supreme Court Justice Vipul Pancholi
-https://www.livelaw.in/high-court/gujarat-high-court/supreme-court-justice-vipul-pancholi-judicial-system-district-judges-conference-528980
-
-[Read on Telegram](https://t.me/livelawindia/108227)
-
----
-### 2026-04-04T13:37:23+00:00
-Sabarimala Reference : Supreme Court Constitutes 9-Judge Bench; Hearing To Commence On April 7
-https://www.livelaw.in/top-stories/sabarimala-reference-supreme-court-constitutes-9-judge-bench-hearing-to-commence-on-april-7-528995
-
-[Read on Telegram](https://t.me/livelawindia/108228)
-
----
-### 2026-04-04T13:53:03+00:00
-S. 35 BNSS | Notice Of Appearance Must Be Served Physically, WhatsApp Or Email Not Valid Modes: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-appearance-notice-served-physically-whatsapp-email-section35-bnss-528956
-
-[Read on Telegram](https://t.me/livelawindia/108229)
-
----
-### 2026-04-04T14:03:23+00:00
-Are CPCB Guidelines On Petrol Pump Establishment Mandatory?  Supreme Court Refers To Larger Bench
-https://www.livelaw.in/top-stories/are-cpcb-guidelines-on-petrol-pump-establishment-mandatory-supreme-court-refers-to-larger-bench-528981
-
-[Read on Telegram](https://t.me/livelawindia/108230)
-
----
-### 2026-04-04T14:03:33+00:00
-'Proper Assistance Not Being Rendered': Allahabad High Court Flags Inadequate Assistance Being Provided By Government Empaneled Lawyers
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-inadequate-assistance-government-empaneled-lawyers-529000
-
-[Read on Telegram](https://t.me/livelawindia/108231)
-
----
 ### 2026-04-04T14:25:13+00:00
 Parties Can't Re-Agitate Issues In Intra-Court Appeal After Agreeing That Matter Is Covered By Binding Precedent Before Single Judge: Patna HC
 https://www.livelaw.in/high-court/patna-high-court/patna-high-court-fixed-salary-policy-case-aided-sanskrit-school-madarsas-529002
@@ -142,5 +65,82 @@ Supreme Court Declines To Quash Disciplinary Proceedings Against Sameer Wankhede
 https://www.livelaw.in/top-stories/supreme-court-declines-to-quash-disciplinary-proceedings-against-sameer-wankhede-gives-fresh-opportunity-to-respond-to-chargesheet-528997
 
 [Read on Telegram](https://t.me/livelawindia/108240)
+
+---
+### 2026-04-05T03:32:20+00:00
+Supreme Court Monthly Roundup: March 2026
+https://www.livelaw.in/round-ups/monthly/supreme-court-monthly-roundup-march-2026-528996
+
+[Read on Telegram](https://t.me/livelawindia/108241)
+
+---
+### 2026-04-05T04:25:30+00:00
+Combatised BSF Person Retire At 57, Can't Claim Civilian Retirement Age Of 60 - Delhi  High Court
+https://www.livelaw.in/high-court/delhi-high-court/combatised-bsf-person-retire-at-57-cant-claim-civilian-retirement-age-of-60-delhi-high-court-529027
+
+[Read on Telegram](https://t.me/livelawindia/108242)
+
+---
+### 2026-04-05T04:32:50+00:00
+Madras High Court Monthly Digest: March 2026 [Citation 95 to 135]
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-monthly-digest-march-2026-528484
+
+[Read on Telegram](https://t.me/livelawindia/108243)
+
+---
+### 2026-04-05T04:33:50+00:00
+Consumer Law: Quarterly Digest 2026 (January To March)
+https://www.livelaw.in/consumer-cases/consumer-law-quarterly-digest-2026-january-to-march-529028
+
+[Read on Telegram](https://t.me/livelawindia/108244)
+
+---
+### 2026-04-05T04:37:10+00:00
+3 Year Practice Rule Won't Affect Women, Experience As Lawyer Necessary To Be Judge: Justice BV Nagarathna
+https://www.livelaw.in/top-stories/3-year-practice-rule-wont-affect-women-experience-as-lawyer-necessary-to-be-judge-justice-bv-nagarathna-529023
+
+[Read on Telegram](https://t.me/livelawindia/108245)
+
+---
+### 2026-04-05T05:10:10+00:00
+Associate Director Vacancy At Deloitte Touche Tohmatsu India LLP
+https://www.livelaw.in/job-updates/associate-director-vacancy-at-deloitte-touche-tohmatsu-india-llp-529029
+
+[Read on Telegram](https://t.me/livelawindia/108246)
+
+---
+### 2026-04-05T05:12:10+00:00
+Manager (Corporate Legal) Vacancy At Tata Communications Limited
+https://www.livelaw.in/job-updates/manager-corporate-legal-vacancy-at-tata-communications-limited-529030
+
+[Read on Telegram](https://t.me/livelawindia/108247)
+
+---
+### 2026-04-05T05:13:30+00:00
+Legal Counsel Vacancy At Tata Consultancy Services Limited
+https://www.livelaw.in/job-updates/legal-counsel-vacancy-at-tata-consultancy-services-limited-529031
+
+[Read on Telegram](https://t.me/livelawindia/108248)
+
+---
+### 2026-04-05T05:14:30+00:00
+Manager Vacancy At Deloitte Touche Tohmatsu India LLP
+https://www.livelaw.in/job-updates/manager-vacancy-at-deloitte-touche-tohmatsu-india-llp-529032
+
+[Read on Telegram](https://t.me/livelawindia/108249)
+
+---
+### 2026-04-05T05:21:40+00:00
+Public Advertisement  Can't Replace Direct Communication To Employees For Promotion : Jharkhand HC
+https://www.livelaw.in/high-court/jharkhand-high-court/public-advertisement-cant-replace-direct-communication-to-employees-for-promotion-jharkhand-hc-529033
+
+[Read on Telegram](https://t.me/livelawindia/108250)
+
+---
+### 2026-04-05T06:07:20+00:00
+Supreme Court Grants Bail To Doctors In NDPS Case Since Grounds Of Arrest Weren't Given In Writing As Per 'Mihir Shah' Verdict
+https://www.livelaw.in/top-stories/supreme-court-grants-bail-ndps-case-tramadol-tablets-seizure-non-supply-of-grounds-of-arrest-in-writing-529024
+
+[Read on Telegram](https://t.me/livelawindia/108251)
 
 ---
