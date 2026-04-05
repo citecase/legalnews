@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-05T04:32:50+00:00*
+*Last Updated: 2026-04-05T05:14:30+00:00*
 
 ---
 
-### 2026-04-05T04:32:50+00:00
-Madras High Court Monthly Digest: March 2026 [Citation 95 to 135]
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-monthly-digest-march-2026-528484
-
-[Read on Telegram](https://t.me/livelawindia/108243)
-
----
-### 2026-04-05T04:33:50+00:00
-Consumer Law: Quarterly Digest 2026 (January To March)
-https://www.livelaw.in/consumer-cases/consumer-law-quarterly-digest-2026-january-to-march-529028
-
-[Read on Telegram](https://t.me/livelawindia/108244)
-
----
-### 2026-04-05T04:37:10+00:00
-3 Year Practice Rule Won't Affect Women, Experience As Lawyer Necessary To Be Judge: Justice BV Nagarathna
-https://www.livelaw.in/top-stories/3-year-practice-rule-wont-affect-women-experience-as-lawyer-necessary-to-be-judge-justice-bv-nagarathna-529023
-
-[Read on Telegram](https://t.me/livelawindia/108245)
-
----
-### 2026-04-05T05:10:10+00:00
-Associate Director Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/associate-director-vacancy-at-deloitte-touche-tohmatsu-india-llp-529029
-
-[Read on Telegram](https://t.me/livelawindia/108246)
-
----
-### 2026-04-05T05:12:10+00:00
-Manager (Corporate Legal) Vacancy At Tata Communications Limited
-https://www.livelaw.in/job-updates/manager-corporate-legal-vacancy-at-tata-communications-limited-529030
-
-[Read on Telegram](https://t.me/livelawindia/108247)
-
----
-### 2026-04-05T05:13:30+00:00
-Legal Counsel Vacancy At Tata Consultancy Services Limited
-https://www.livelaw.in/job-updates/legal-counsel-vacancy-at-tata-consultancy-services-limited-529031
-
-[Read on Telegram](https://t.me/livelawindia/108248)
-
----
 ### 2026-04-05T05:14:30+00:00
 Manager Vacancy At Deloitte Touche Tohmatsu India LLP
 https://www.livelaw.in/job-updates/manager-vacancy-at-deloitte-touche-tohmatsu-india-llp-529032
@@ -142,5 +100,47 @@ Inquiry Officer Acting As Prosecutor, Denying Cross-Examination Vitiates Departm
 https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-no-requirement-to-appoint-presenting-officer-in-every-enquiry-but-inquiry-officer-acting-as-prosecutor-denying-cross-examination-vitiates-proceedings-529044
 
 [Read on Telegram](https://t.me/livelawindia/108262)
+
+---
+### 2026-04-05T13:37:26+00:00
+Status Of Bhumidar Cannot Be Revised If Conditions U/S 122-B (4-F) UP Zamindari Abolition Act Are Satisfied: Allahabad HC
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-section122b4f-up-zamindari-abolition-act-bhumidhar-529043
+
+[Read on Telegram](https://t.me/livelawindia/108263)
+
+---
+### 2026-04-05T13:54:06+00:00
+NLU Jodhpur, CyberPeace Foundation Sign MoU To Establish CyberPeace Chair In Cyber Law
+https://www.livelaw.in/lawschool/news/nlu-jodhpur-cyberpeace-foundation-sign-mou-establish-cyberpeace-chair-cyber-law-529074
+
+[Read on Telegram](https://t.me/livelawindia/108264)
+
+---
+### 2026-04-05T14:37:36+00:00
+Jammu & Kashmir And Ladakh High Court Monthly Digest: March 2026
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-monthly-digest-march-2026-529042
+
+[Read on Telegram](https://t.me/livelawindia/108265)
+
+---
+### 2026-04-05T15:02:16+00:00
+Non-Ministerial Posts In Special Police Battalion Fall Under State Cadre, Promotions Must Follow State-Wide Seniority: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-police-battalion-promotions-state-wide-seniority-529045
+
+[Read on Telegram](https://t.me/livelawindia/108266)
+
+---
+### 2026-04-05T15:10:36+00:00
+When Judiciary & Executive Align In Purpose, Constitution Comes Alive : CJI Surya Kant
+https://www.livelaw.in/top-stories/when-judiciary-executive-align-in-purpose-constitution-comes-alive-cji-surya-kant-529075
+
+[Read on Telegram](https://t.me/livelawindia/108267)
+
+---
+### 2026-04-05T15:34:46+00:00
+Arvind Kejriwal Files Application In Delhi High Court Seeking Recusal Of Justice Swarana Kanta Sharma From Liquor Policy Case
+https://www.livelaw.in/high-court/delhi-high-court/arvind-kejriwal-files-application-in-delhi-high-court-seeking-recusal-of-justice-swarana-kanta-sharma-from-liquor-policy-case-529076
+
+[Read on Telegram](https://t.me/livelawindia/108268)
 
 ---
