@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-04T15:02:49+00:00*
+*Last Updated: 2026-04-05T07:33:00+00:00*
+
+---
+
+### 2026-04-05T07:33:00+00:00
+Control Over Women’s Bodies, Choices, & Lives Still Persists Deeply Within Society: Supreme Court Upholds Husband’s Conviction
+https://www.verdictum.in/court-updates/supreme-court/shankar-v-state-of-rajasthan-2026-insc-315-control-over-womens-bodies-within-society-1611391
+
+[Source Link](https://t.me/verdictumlegalupdates/26334)
+
+---
+
+### 2026-04-05T06:02:58+00:00
+Orissa High Court Asks Senior Officer To Investigate Assault Case Of Muslim Man Who Was Allegedly Made To Chant ‘Jay Shriram’
+https://www.verdictum.in/court-updates/high-courts/orissa-high-court/sk-hanif-v-state-of-odisha-viral-social-media-senior-officer-assault-muslim-man-1611360
+
+[Source Link](https://t.me/verdictumlegalupdates/26333)
+
+---
+
+### 2026-04-05T04:32:26+00:00
+Squarely Within Government’s Policy-Making Realm: Kerala High Court Dismisses Appeal Of Seasonal Workers Seeking Parity With Regular Workers
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/p-sahadevan-v-state-of-kerala-2026ker27593-government-policy-making-realm-seasonal-regular-workers-1611349
+
+[Source Link](https://t.me/verdictumlegalupdates/26332)
 
 ---
 
@@ -137,30 +161,6 @@ Even Operating Of Dance Bar Per Se Is Not Completely Prohibited: Bombay High Cou
 https://www.verdictum.in/court-updates/high-courts/bombay-high-court/2026-bhcas-15781-shivaji-sambu-waghralkar-v-commissioner-of-police-1611299
 
 [Source Link](https://t.me/verdictumlegalupdates/26315)
-
----
-
-### 2026-04-03T14:03:04+00:00
-Sealed Cover Procedure Cannot Be Invoked At Investigation Stage To Withhold Candidate’s Results Without Charge Sheet: Patna High Court
-https://www.verdictum.in/court-updates/high-courts/patna-high-court/monu-kumar-ors-v-state-of-bihar-ors-2026pathc30182-sealed-cover-1611295
-
-[Source Link](https://t.me/verdictumlegalupdates/26314)
-
----
-
-### 2026-04-03T13:12:15+00:00
-Spouse Alleging Mental Cruelty Not Required To Explain Reasons Behind Conduct Of Other Party: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/amb-v-sb-2026bhc-nag5200-db-mental-cruelty-divorce-matrimonial-law-1611293
-
-[Source Link](https://t.me/verdictumlegalupdates/26313)
-
----
-
-### 2026-04-03T12:32:24+00:00
-Ventures Cannot Be Shut Because Of Protests Without Basis: Kerala High Court Directs Panchayat To Allow Entrepreneurs To Setup Hot Mix Plant
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/sudheer-s-v-state-of-kerala-2026ker28842-panchayat-allow-entrepreneurs-to-setup-hot-mix-plant-1611291
-
-[Source Link](https://t.me/verdictumlegalupdates/26312)
 
 ---
 
