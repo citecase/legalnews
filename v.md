@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-05T07:33:00+00:00*
+*Last Updated: 2026-04-05T13:32:26+00:00*
+
+---
+
+### 2026-04-05T13:32:26+00:00
+Engineered Non-Native Cells Distinct From Natural Parts: Delhi High Court Directs Fresh Consideration Of Harvard's Patent Application
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/president-and-fellows-of-harvard-college-v-controller-general-of-patents-designs-and-trademarks-2026dhc2597-engineered-non-native-cells-1611402
+
+[Source Link](https://t.me/verdictumlegalupdates/26338)
+
+---
+
+### 2026-04-05T12:03:05+00:00
+Customary Right & Easement Materially Distinct: Bombay High Court Upholds Customary Right to Celebrate Bagad Festival In Baner Over Private Property Claims
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/ganesh-d-tapkir-v-baner-yethil-samasta-gramastha-mandal-bhc-as15517-bagad-festival-in-baner-1611401
+
+[Source Link](https://t.me/verdictumlegalupdates/26337)
+
+---
+
+### 2026-04-05T10:32:43+00:00
+Relaxation In Selection Criteria For PwD Candidates A Constitutional Obligation: Punjab & Haryana High Court Directs Formulation Of Norms
+https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/sohan-v-state-of-haryana-ors-along-with-connected-matters-2026phhc033034-1611393
+
+[Source Link](https://t.me/verdictumlegalupdates/26336)
+
+---
+
+### 2026-04-05T09:02:22+00:00
+Non-Identification Of Victims Or No Proof Of Age In Child Pornography Cases Can’t Defeat Prosecution In POCSO Cases: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/court-on-its-own-motion-v-state-ors-2026dhc2817-child-pornography-pocso-1611392
+
+[Source Link](https://t.me/verdictumlegalupdates/26335)
 
 ---
 
@@ -129,38 +161,6 @@ Provisions Of Family Courts Act Remain Unaffected By Gram Nyayalayas Act; Family
 https://www.verdictum.in/court-updates/high-courts/kerala-high-court/abc-v-xyz-2026ker26328-family-courts-act-gram-nyayalayas-act-maintenance-case-1611323
 
 [Source Link](https://t.me/verdictumlegalupdates/26319)
-
----
-
-### 2026-04-04T05:12:19+00:00
-Consensual Adolescent Relationship: Uttarakhand High Court Stays Proceedings Before Juvenile Justice Board Against 15-Yr-Old Boy
-https://www.verdictum.in/court-updates/high-courts/uttarakhand-high-court/s-v-state-of-uttarakhand-proceedings-juvenile-justice-board-minors-consensual-adolescent-relationships-1611321
-
-[Source Link](https://t.me/verdictumlegalupdates/26318)
-
----
-
-### 2026-04-04T04:32:27+00:00
-Bail Conditions Can't Be Imposed On Family Members Of Accused Or Convict: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/sandeep-kala-kale-sonu-sinothia-v-state-govt-of-nct-of-delhibail-conditions-undertrial-family-members-1611319
-
-[Source Link](https://t.me/verdictumlegalupdates/26317)
-
----
-
-### 2026-04-03T16:02:40+00:00
-AI Assets Holding Limited (AIAHL) Invites Applications For The Post Of Manager Legal & Corporate
-https://www.verdictum.in/job-updates/ai-assets-holding-limited-1611294
-
-[Source Link](https://t.me/verdictumlegalupdates/26316)
-
----
-
-### 2026-04-03T14:52:38+00:00
-Even Operating Of Dance Bar Per Se Is Not Completely Prohibited: Bombay High Court Quashes Morality-Based Denial Of Orchestra Performance License
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/2026-bhcas-15781-shivaji-sambu-waghralkar-v-commissioner-of-police-1611299
-
-[Source Link](https://t.me/verdictumlegalupdates/26315)
 
 ---
 
