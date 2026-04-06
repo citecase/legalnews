@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-06T05:17:31+00:00*
+*Last Updated: 2026-04-06T10:25:03+00:00*
 
 ---
 
-### 2026-04-06T05:17:31+00:00
-Civil Services Rules | 'Awaiting Posting Orders' Can't Be Used To Bypass Disciplinary Process For Alleged Misconduct: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-disciplinary-proceedings-alleged-misconduct-529090
+### 2026-04-06T10:25:03+00:00
+West Bengal SIR & Judges' Gherao : Live Updates From Supreme Court
+https://www.livelaw.in/top-stories/west-bengal-sir-judges-gherao-live-updates-from-supreme-court-529165
 
-[Read on Telegram](https://t.me/livelawindia/108281)
-
----
-### 2026-04-06T05:25:41+00:00
-Supreme Court Orders CBI Preliminary Inquiry Into Alleged Illegal Allotment Of Contracts To Arunachal CM Prema Khandu's Kin
-https://www.livelaw.in/top-stories/supreme-court-orders-cbi-preliminary-inquiry-into-allotment-of-contracts-by-arunachal-cm-prema-khandu-529104
-
-[Read on Telegram](https://t.me/livelawindia/108282)
+[Read on Telegram](https://t.me/livelawindia/108318)
 
 ---
-### 2026-04-06T05:37:21+00:00
-Delay In Grant Of Sanction Within 4 Months By Itself Not Enough To Quash Prosecution In Corruption Case: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-disproportionate-assets-case-departmental-exoneration-529046
+### 2026-04-06T10:27:43+00:00
+HP High Court Quashes Brewery Licence Cancellation; Says Inspection Team Was Not Constituted As Per Excise Act
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-statutory-composition-inspection-team-vitiates-process-529100
 
-[Read on Telegram](https://t.me/livelawindia/108283)
-
----
-### 2026-04-06T05:39:01+00:00
-State Government Can't Transfer Officers Engaged In SIR Work Without Prior Approval Of Election Commission: Chhattisgarh HC
-https://www.livelaw.in/high-court/chhattisgarh-high-court/state-government-cant-transfer-officers-engaged-in-sir-work-without-prior-approval-of-election-commission-chhattisgarh-hc-529107
-
-[Read on Telegram](https://t.me/livelawindia/108284)
+[Read on Telegram](https://t.me/livelawindia/108319)
 
 ---
-### 2026-04-06T05:44:41+00:00
-Habeas Plea Not A Tool To Trace Husband Evading Maintenance; Family Court Can Initiate Coercive Measures: Allahabad HC
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-habeas-plea-trace-husband-evading-maintenance-family-court-coercive-measures-529109
+### 2026-04-06T10:47:43+00:00
+Electricity Department Strictly Liable In Electrocution Cases, Proof Of Negligence Not Needed: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-strict-liability-principle-electrocution-employee-negligence-irrelevant-529136
 
-[Read on Telegram](https://t.me/livelawindia/108285)
-
----
-### 2026-04-06T05:52:21+00:00
-Madras High Court Weekly Round-Up: March 30 - April 05, 2026
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-march-30-to-april-5-2026-529080
-
-[Read on Telegram](https://t.me/livelawindia/108286)
+[Read on Telegram](https://t.me/livelawindia/108320)
 
 ---
-### 2026-04-06T06:02:41+00:00
-'Profound Invasion Of Privacy': Rajasthan High Court Directs Centre, Meta To Remove 'Obscene Images' Of Minor From Instagram
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-immediat-images-shared-unauthorized-manner-529096
+### 2026-04-06T11:03:03+00:00
+Doctor's Accident Register Entry Not Gospel Truth, Can't Be Pitted Against Unassailable Eyewitnesses To Discredit Them: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-accident-register-entry-not-gospel-of-truth-529146
 
-[Read on Telegram](https://t.me/livelawindia/108287)
-
----
-### 2026-04-06T06:05:21+00:00
-Delhi High Court Expedites Hearing On Activist's Plea To Vacate Injunction Over Posts Linking Hardeep Puri's Daughter To Epstein
-https://www.livelaw.in/high-court/delhi-high-court/himayani-puri-social-media-posts-link-epstein-union-minister-hardeep-puri-daughter-529113
-
-[Read on Telegram](https://t.me/livelawindia/108288)
+[Read on Telegram](https://t.me/livelawindia/108321)
 
 ---
-### 2026-04-06T06:10:01+00:00
-Delhi High Court Directs Immediate Restoration Of X Accounts 'Dr Nimo Yadav', 'Nehr Who'
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-dr-nimo-yadav-x-account-blocking-centre-529114
+### 2026-04-06T11:18:13+00:00
+'State Must Ensure Protection Of Married Couple Facing Threat': Uttarakhand High Court Orders Police To Provide Safety
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-state-legal-obligation-threat-married-couple-529101
 
-[Read on Telegram](https://t.me/livelawindia/108289)
-
----
-### 2026-04-06T06:17:31+00:00
-Mutation Proceedings Not Meant To Decide Property Title, Parties Must Approach Civil Court: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-mutation-authorities-civil-suit-529095
-
-[Read on Telegram](https://t.me/livelawindia/108290)
+[Read on Telegram](https://t.me/livelawindia/108322)
 
 ---
-### 2026-04-06T06:31:11+00:00
-'Project Will Be Lifeline For Kerala' : Supreme Court Rejects Challenge To EC For Wayanad Tunnel Construction
-https://www.livelaw.in/top-stories/project-will-be-lifeline-for-kerala-supreme-court-rejects-challenge-to-ec-for-wayanad-tunnel-construction-529117
+### 2026-04-06T11:25:33+00:00
+S. 194 BNSS | Inquest Report Meant Only To Note Apparent Cause Of Death, Need Not Name Assailant: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-section-194-bnss-inquest-report-cause-death-assailant-529171
 
-[Read on Telegram](https://t.me/livelawindia/108291)
-
----
-### 2026-04-06T06:32:51+00:00
-Uttering Caste Slurs At Factory Dispatch Door Accessed By Workers Falls Under 'Public View' Under SC/ST Act: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-factory-dispatch-door-public-view-529047
-
-[Read on Telegram](https://t.me/livelawindia/108292)
+[Read on Telegram](https://t.me/livelawindia/108323)
 
 ---
-### 2026-04-06T06:42:59+00:00
-Patna HC Invokes Doctrine Of Frustration To Dissolve Marriage Under SMA After Wife Remarried, Flags “Perverse” Family Court Ruling
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-doctrine-of-frustration-dissolve-marriage-special-marriage-act-529051
+### 2026-04-06T11:36:14+00:00
+CCTVs In Police Stations | Supreme Court Directs Appearance Of Union Home Secretary ; Asks Why 'Kerala Model' Can't Be Followed
+https://www.livelaw.in/top-stories/cctvs-in-police-stations-supreme-court-directs-appearance-of-union-home-secretary-asks-why-kerala-model-cant-be-followed-529173
 
-[Read on Telegram](https://t.me/livelawindia/108293)
-
----
-### 2026-04-06T06:45:19+00:00
-S. 221 CrPC | No Bar To Invoke Both 'Cheating' & 'Criminal Breach Of Trust' Offences On Same Allegations: Allahabad HC
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-221-crpc-no-bar-cheating-criminal-breach-of-trust-offences-allegations-529119
-
-[Read on Telegram](https://t.me/livelawindia/108294)
+[Read on Telegram](https://t.me/livelawindia/108324)
 
 ---
-### 2026-04-06T06:59:18+00:00
-Supreme Court Refuses To Stay Adani's Resolution Plan For Jaiprakash Associates; Urges NCLAT To Hear Vedanta's Appeal On Priority
-https://www.livelaw.in/top-stories/supreme-court-refuses-to-stay-adanis-resolution-plan-for-jaiprakash-associates-urges-nclat-to-hear-vedantas-appeal-on-priority-529120
+### 2026-04-06T11:54:49+00:00
+"No Iota Of Evidence": Calcutta High Court Quashes NDPS Case Against Man Accused Of 'Masterminding' Phensedyl Racket
+https://www.livelaw.in/high-court/calcutta-high-court/no-iota-of-evidence-calcutta-high-court-quashes-ndps-case-against-man-accused-of-masterminding-phensdyl-racket-529175
 
-[Read on Telegram](https://t.me/livelawindia/108295)
-
----
-### 2026-04-06T07:03:18+00:00
-Challenge To Tribunal Order Lies Before HC Having Territorial Jurisdiction Over It: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-writ-petition-principal-bench-armed-forces-tribunal-territorial-jurisdiction-529099
-
-[Read on Telegram](https://t.me/livelawindia/108296)
+[Read on Telegram](https://t.me/livelawindia/108325)
 
 ---
-### 2026-04-06T07:17:18+00:00
-Tribunals Can't Get Involved In Infight Between Counsel: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-tribunal-infight-between-counsels-529108
+### 2026-04-06T12:03:09+00:00
+West Bengal SIR | Nandalal Bose's Grandson Deleted From Electoral Roll; Supreme Court Asks Him To Approach Appellate Tribunal
+https://www.livelaw.in/top-stories/west-bengal-sir-nandalal-boses-grandson-deleted-from-electoral-roll-supreme-court-asks-him-to-approach-appellate-tribunal-529179
 
-[Read on Telegram](https://t.me/livelawindia/108297)
-
----
-### 2026-04-06T07:32:48+00:00
-S.145 NI Act | Only Complainant Can Lead Evidence By Affidavit In Cheque Bounce Cases, Not Accused: Orissa High Court
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-complainant-evidenceinchief-affidavit-529111
-
-[Read on Telegram](https://t.me/livelawindia/108298)
+[Read on Telegram](https://t.me/livelawindia/108326)
 
 ---
-### 2026-04-06T07:42:28+00:00
-Promise Made By Chief Minister During Press Conference Not Legally Enforceable Without Policy Backing: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/chief-minister-promise-not-enforceable-without-policy-arvind-kejriwal-529129
+### 2026-04-06T12:17:09+00:00
+Bombay High Court Seeks DG Shipping's Stand On Plea For DNA Test Of Seafarer's Remains Killed In Iranian Missile Strike
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-director-general-shipping-dna-testing-indian-seafarer-iranian-missile-strike-529180
 
-[Read on Telegram](https://t.me/livelawindia/108299)
+[Read on Telegram](https://t.me/livelawindia/108327)
 
 ---
-### 2026-04-06T07:47:28+00:00
-Abruptly Blocking Employee's Smart Card Access To Terminate Him Violates Basic Dignity Of Labour: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-smart-card-access-blocking-termination-violate-labour-dignity-529122
+### 2026-04-06T12:17:29+00:00
+Prohibition Act | Error In Treating Breath Analyser As Inconclusive Doesn't Revive Flawed Inquiry: Patna HC Affirms Cop's Reinstatement
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-breath-analyzer-test-inconclusive-police-officer-dismissal-529050
 
-[Read on Telegram](https://t.me/livelawindia/108300)
+[Read on Telegram](https://t.me/livelawindia/108328)
+
+---
+### 2026-04-06T12:33:12+00:00
+'Cybercrime Akin To Silent Virus': Punjab & Haryana High Court Declines Anticipatory Bail To Man Booked In ₹6 Crore Digital Arrest Case
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-digital-arrest-case-cybercrime-silent-virus-bail-529181
+
+[Read on Telegram](https://t.me/livelawindia/108329)
+
+---
+### 2026-04-06T12:36:32+00:00
+'Serious Allegations Against State Police' : Supreme Court Directs NIA To Investigate Judges' Gherao During West Bengal SIR
+https://www.livelaw.in/top-stories/serious-allegations-against-state-police-supreme-court-directs-nia-to-investigate-judges-gherao-during-west-bengal-sir-529184
+
+[Read on Telegram](https://t.me/livelawindia/108330)
+
+---
+### 2026-04-06T12:43:12+00:00
+Calling Someone 'Bas**rd' Not Offence Of Obscenity Under S.294 IPC : Supreme Court
+https://www.livelaw.in/supreme-court/calling-someone-basrd-not-offence-of-obscenity-under-s294-ipc-supreme-court-529189
+
+[Read on Telegram](https://t.me/livelawindia/108331)
+
+---
+### 2026-04-06T12:45:32+00:00
+2026 LiveLaw (SC) 329  |  SIVAKUMAR VERSUS STATE REP. BY THE INSPECTOR OF POLICE
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-329-sivakumar-versus-state-rep-by-the-inspector-of-police-529191
+
+[Read on Telegram](https://t.me/livelawindia/108332)
+
+---
+### 2026-04-06T12:53:52+00:00
+Sathankulam Custodial Deaths Case: Madurai Court Awards Death Penalty To All Nine Police Officers
+https://www.livelaw.in/news-updates/sathankulam-custodial-death-nine-police-officers-sentenced-to-death-529197
+
+[Read on Telegram](https://t.me/livelawindia/108333)
+
+---
+### 2026-04-06T12:59:52+00:00
+Gujarat SLSA Launches Community Mediation Initiative, Flags Off 25 Vehicles To Expand Legal Aid Access
+https://www.livelaw.in/news-updates/gujarat-slsa-launches-community-mediation-initiative-flags-off-25-vehicles-to-expand-legal-aid-access-529198
+
+[Read on Telegram](https://t.me/livelawindia/108334)
+
+---
+### 2026-04-06T13:06:22+00:00
+'Integral Part Of Judicial System': Justice Rajan Roy Lauds Legal Reporters At Oudh Bar Association Felicitation Event
+https://www.livelaw.in/news-updates/justice-rajan-roy-lauds-legal-reporters-oudh-bar-association-felicitation-event-529199
+
+[Read on Telegram](https://t.me/livelawindia/108335)
+
+---
+### 2026-04-06T13:08:22+00:00
+Judges' Gherao During SIR | Supreme Court Drops Further Action Against West Bengal Chief Secretary, DGP & Other Officials
+https://www.livelaw.in/top-stories/judges-gherao-during-sir-supreme-court-drops-further-action-against-west-bengal-chief-secretary-dgp-other-officials-529200
+
+[Read on Telegram](https://t.me/livelawindia/108336)
+
+---
+### 2026-04-06T13:16:42+00:00
+Punjab & Haryana High Court Weekly Round-Up: March 30 - April 05, 2026
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-weekly-round-up-529202
+
+[Read on Telegram](https://t.me/livelawindia/108337)
 
 ---
