@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-05T15:03:08+00:00*
+*Last Updated: 2026-04-06T08:03:06+00:00*
+
+---
+
+### 2026-04-06T08:03:06+00:00
+Supreme Court Refuses To Interfere With NCLAT’s Order Allowing Adani To Acquire JAL, Asks Tribunal To Decide Expeditiously
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-refuses-to-interfere-with-nclats-order-allowing-adani-to-acquire-jal-asks-tribunal-to-decide-expeditiously-1611459
+
+[Source Link](https://t.me/verdictumlegalupdates/26347)
+
+---
+
+### 2026-04-06T07:32:45+00:00
+Presidential Order Overrides State Service Rules: Telangana High Court Directs State Cadre Level Seniority For Special Police Battalions
+https://www.verdictum.in/court-updates/high-courts/telangana-high-court/sp-kasim-peera-vs-the-state-of-telangana-writ-petition-no-16166-of-2020-tate-level-seniority-for-special-police-battalions-1611457
+
+[Source Link](https://t.me/verdictumlegalupdates/26346)
+
+---
+
+### 2026-04-06T07:03:03+00:00
+Spa Prostitution Case: Bombay High Court Refuses To Quash Case Under Immoral Traffic (Prevention) Act
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/mahendra-salgaonkar-v-state-2026bhc-goa419-charges-immoral-traffic-prevention-act-spa-prostitution-1611453
+
+[Source Link](https://t.me/verdictumlegalupdates/26345)
+
+---
+
+### 2026-04-06T06:33:02+00:00
+Disciplinary Authority Acting As Judge, Prosecutor & Enquiry Officer Creates Apprehension Of Bias: J&K And Ladakh High Court
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/gopal-krishan-v-ut-of-jk-ors-2026jklhc-jmu828-disciplinary-action-1611450
+
+[Source Link](https://t.me/verdictumlegalupdates/26344)
+
+---
+
+### 2026-04-06T06:03:00+00:00
+Primacy Of FSSAI Certification Overrides Contrary Customs Findings In Food Import Clearances: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/nbg-international-private-limited-v-the-union-of-india-2026bhc-as14241-db-fssai-certification-food-import-clearances-1611446
+
+[Source Link](https://t.me/verdictumlegalupdates/26343)
+
+---
+
+### 2026-04-06T05:31:59+00:00
+Apex Court Orders CBI Probe Into ₹1,270 Crore Arunachal Pradesh Public Works Contracts Improperly Awarded To Firms Linked To Family Of CM Pema Khandu
+https://www.verdictum.in/court-updates/supreme-court/cbi-probe-1270-crore-arunachal-pradesh-public-contracts-awarded-family-of-chief-minister-pema-khandu-1611441
+
+[Source Link](https://t.me/verdictumlegalupdates/26342)
+
+---
+
+### 2026-04-06T05:02:37+00:00
+"Show Off Remedial Action" For Subsequent External Events Not Sufficient Cause: Bombay High Court Refuses To Condone Delay In MCGM's Appeal In 2017 Kamala Mills Tragedy Case
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/the-municipal-corporation-of-greater-mumbai-v-pankaj-mehta-2026bhc-as16008-8-years-delay-in-2017-kamala-mills-tragedy-1611440
+
+[Source Link](https://t.me/verdictumlegalupdates/26341)
+
+---
+
+### 2026-04-06T04:32:26+00:00
+Unrealised Notional Profits From "Mark-To-Market" Instruments Not Exigible To Tax: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/the-principal-commissioner-of-income-tax-central-v-kalyan-jewellers-india-ltd-2026ker21788-mark-to-market-instruments-1611433
+
+[Source Link](https://t.me/verdictumlegalupdates/26340)
 
 ---
 
@@ -97,70 +161,6 @@ Recovery Against Legal Representatives Of Defaulter U/S 48 Stamp Act Limited To 
 https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/raj-kumar-verma-v-the-state-of-up-2026ahc61816-defaulter-us-48-stamp-act-limited-to-inherited-estate-1611343
 
 [Source Link](https://t.me/verdictumlegalupdates/26328)
-
----
-
-### 2026-04-04T12:02:44+00:00
-Belongs To Backward Community Can’t Tilt Scales; No Scope For Charity Or Compassion In Matters Of Public Employment: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/commissioner-delhi-police-anr-v-uttam-kumar-2026-insc-314-backward-community-tilting-scale-police-aspirant-1611342
-
-[Source Link](https://t.me/verdictumlegalupdates/26327)
-
----
-
-### 2026-04-04T11:12:22+00:00
-Departmental Proceedings Based On Same Evidence Cannot Survive Once Plea Of Alibi Is Accepted In Criminal Trial: Orissa High Court
-https://www.verdictum.in/court-updates/high-courts/orissa-high-court/state-of-odisha-ors-v-bansidhar-bariki-departmental-proceedings-trial-1611338
-
-[Source Link](https://t.me/verdictumlegalupdates/26326)
-
----
-
-### 2026-04-04T10:33:01+00:00
-PM Modi Never Came Forward To Lodge Complaint: Himachal Pradesh High Court Quashes FIR Against Congress Leader For Abusive Remarks Against PM Modi
-https://www.verdictum.in/court-updates/high-courts/himachal-high-court/thakar-singh-bharmouri-v-state-of-hp-cr-mmo-no623-of-2025-abusive-remarks-against-pm-modi-1611337
-
-[Source Link](https://t.me/verdictumlegalupdates/26325)
-
----
-
-### 2026-04-04T09:52:49+00:00
-Attempt To Deceive Court: Allahabad High Court Slams Advocate Over “Illness Slip” Misuse; Imposes ₹20,000 Costs
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/arun-kumar-yadav-v-state-of-up-2026dhc62958-illness-slip-misuse-advocate-costs-1611335
-
-[Source Link](https://t.me/verdictumlegalupdates/26324)
-
----
-
-### 2026-04-04T09:02:28+00:00
-Wife’s Right To Permanent Alimony U/S 25 HMA Not Dependent On Her Children’s Majority Or Earning Capacity: Rajasthan High Court
-https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/sk-v-ns-2026rj-jd9372-db-husband-wife-children-divorce-permanent-alimony-1611333
-
-[Source Link](https://t.me/verdictumlegalupdates/26323)
-
----
-
-### 2026-04-04T08:13:06+00:00
-Single Word Caste-Based Abuse Enough To Attract SC/ST Act; Length Of Expression Immaterial: J&K And Ladakh High Court
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/santosha-devi-v-ut-of-jk-ors-caste-based-abuse-sc-st-act-public-view-1611330
-
-[Source Link](https://t.me/verdictumlegalupdates/26322)
-
----
-
-### 2026-04-04T07:32:24+00:00
-Advocate Using Chamber As Associate Has No Vested Right Over It: Delhi High Court Upholds Chamber Allotment Committee’s View
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/anju-tanwar-v-lawyers-chambers-allotment-committee-advocate-chamber-associate-no-vested-right-1611327
-
-[Source Link](https://t.me/verdictumlegalupdates/26321)
-
----
-
-### 2026-04-04T06:52:23+00:00
-Credibility Of Witness Not Disqualified By Criminal Antecedents If Testimony Is Consistent, Coherent & Corroborative: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/muheshkumar-k-v-state-of-kerala-2026ker29710-credibility-of-witness-criminal-antecedents-1611324
-
-[Source Link](https://t.me/verdictumlegalupdates/26320)
 
 ---
 
