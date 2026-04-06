@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-05T05:14:30+00:00*
+*Last Updated: 2026-04-06T05:17:31+00:00*
 
 ---
 
-### 2026-04-05T05:14:30+00:00
-Manager Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/manager-vacancy-at-deloitte-touche-tohmatsu-india-llp-529032
+### 2026-04-06T05:17:31+00:00
+Civil Services Rules | 'Awaiting Posting Orders' Can't Be Used To Bypass Disciplinary Process For Alleged Misconduct: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-disciplinary-proceedings-alleged-misconduct-529090
 
-[Read on Telegram](https://t.me/livelawindia/108249)
-
----
-### 2026-04-05T05:21:40+00:00
-Public Advertisement  Can't Replace Direct Communication To Employees For Promotion : Jharkhand HC
-https://www.livelaw.in/high-court/jharkhand-high-court/public-advertisement-cant-replace-direct-communication-to-employees-for-promotion-jharkhand-hc-529033
-
-[Read on Telegram](https://t.me/livelawindia/108250)
+[Read on Telegram](https://t.me/livelawindia/108281)
 
 ---
-### 2026-04-05T06:07:20+00:00
-Supreme Court Grants Bail To Doctors In NDPS Case Since Grounds Of Arrest Weren't Given In Writing As Per 'Mihir Shah' Verdict
-https://www.livelaw.in/top-stories/supreme-court-grants-bail-ndps-case-tramadol-tablets-seizure-non-supply-of-grounds-of-arrest-in-writing-529024
+### 2026-04-06T05:25:41+00:00
+Supreme Court Orders CBI Preliminary Inquiry Into Alleged Illegal Allotment Of Contracts To Arunachal CM Prema Khandu's Kin
+https://www.livelaw.in/top-stories/supreme-court-orders-cbi-preliminary-inquiry-into-allotment-of-contracts-by-arunachal-cm-prema-khandu-529104
 
-[Read on Telegram](https://t.me/livelawindia/108251)
-
----
-### 2026-04-05T07:32:15+00:00
-CPF Option  Exercised Can't Be Reversed To Claim Pension Under CCS Rules: Delhi HC
-https://www.livelaw.in/high-court/delhi-high-court/cpf-option-exercised-cant-be-reversed-to-claim-pension-under-ccs-rules-delhi-hc-529034
-
-[Read on Telegram](https://t.me/livelawindia/108252)
+[Read on Telegram](https://t.me/livelawindia/108282)
 
 ---
-### 2026-04-05T08:44:16+00:00
-Courtroom Or Club? Rajasthan HC Slaps Contempt Notice Over Viral Video Of Men Playing Songs, Posing In Judge's Chair
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-contempt-notice-viral-video-songs-posing-judge-chair-529039
+### 2026-04-06T05:37:21+00:00
+Delay In Grant Of Sanction Within 4 Months By Itself Not Enough To Quash Prosecution In Corruption Case: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-disproportionate-assets-case-departmental-exoneration-529046
 
-[Read on Telegram](https://t.me/livelawindia/108253)
-
----
-### 2026-04-05T09:04:56+00:00
-Tendency To Approach Police For Civil Wrongs Undermines Rule of Law: Allahabad High Court Slams 'Cosmetic' FIRs
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-criminal-colour-civil-disputes-undermines-rule-of-law-arrest-stayed-529040
-
-[Read on Telegram](https://t.me/livelawindia/108254)
+[Read on Telegram](https://t.me/livelawindia/108283)
 
 ---
-### 2026-04-05T09:14:56+00:00
-Delhi High Court Weekly Round-Up: March 30 To April 05, 2026
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-weekly-round-up-march-30-to-april-05-2026-529041
+### 2026-04-06T05:39:01+00:00
+State Government Can't Transfer Officers Engaged In SIR Work Without Prior Approval Of Election Commission: Chhattisgarh HC
+https://www.livelaw.in/high-court/chhattisgarh-high-court/state-government-cant-transfer-officers-engaged-in-sir-work-without-prior-approval-of-election-commission-chhattisgarh-hc-529107
 
-[Read on Telegram](https://t.me/livelawindia/108255)
-
----
-### 2026-04-05T10:32:26+00:00
-Kerala High Court Monthly Digest: March 2026 [Citations122 – 180]
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-monthly-digest-march-2026-528540
-
-[Read on Telegram](https://t.me/livelawindia/108256)
+[Read on Telegram](https://t.me/livelawindia/108284)
 
 ---
-### 2026-04-05T11:46:26+00:00
-Judge Shouldn't Be Labelled 'Liberal', 'Pro' Or 'Conservative' : Justice Amanullah
-https://www.livelaw.in/top-stories/judge-shouldnt-be-labelled-liberal-pro-or-conservative-justice-amanullah-529048
+### 2026-04-06T05:44:41+00:00
+Habeas Plea Not A Tool To Trace Husband Evading Maintenance; Family Court Can Initiate Coercive Measures: Allahabad HC
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-habeas-plea-trace-husband-evading-maintenance-family-court-coercive-measures-529109
 
-[Read on Telegram](https://t.me/livelawindia/108257)
-
----
-### 2026-04-05T11:56:26+00:00
-Important MCQs Based On Latest Supreme Court Judgments For Law Examination
-https://www.livelaw.in/law-exams/important-mcqs-based-on-latest-supreme-court-judgments-for-law-examination-529052
-
-[Read on Telegram](https://t.me/livelawindia/108258)
+[Read on Telegram](https://t.me/livelawindia/108285)
 
 ---
-### 2026-04-05T12:19:46+00:00
-Compassion Has No Place In Public Employment; No Second Chance For Candidate Who Skipped Physical Test : Supreme Court
-https://www.livelaw.in/supreme-court/compassion-has-no-place-in-public-employment-no-second-chance-for-candidate-who-skipped-physical-test-supreme-court-529055
+### 2026-04-06T05:52:21+00:00
+Madras High Court Weekly Round-Up: March 30 - April 05, 2026
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-march-30-to-april-5-2026-529080
 
-[Read on Telegram](https://t.me/livelawindia/108259)
-
----
-### 2026-04-05T12:21:06+00:00
-2026 LiveLaw (SC) 328 | COMMISSIONER, DELHI POLICE & ANR. VS. UTTAM KUMAR
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-328-commissioner-delhi-police-anr-vs-uttam-kumar-529056
-
-[Read on Telegram](https://t.me/livelawindia/108260)
+[Read on Telegram](https://t.me/livelawindia/108286)
 
 ---
-### 2026-04-05T12:54:16+00:00
-Euthanasia & Morality Of Chosen Death
-https://www.livelaw.in/articles/euthanasia-morality-chosen-death-529066
+### 2026-04-06T06:02:41+00:00
+'Profound Invasion Of Privacy': Rajasthan High Court Directs Centre, Meta To Remove 'Obscene Images' Of Minor From Instagram
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-immediat-images-shared-unauthorized-manner-529096
 
-[Read on Telegram](https://t.me/livelawindia/108261)
-
----
-### 2026-04-05T13:07:16+00:00
-Inquiry Officer Acting As Prosecutor, Denying Cross-Examination Vitiates Departmental Proceedings: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-no-requirement-to-appoint-presenting-officer-in-every-enquiry-but-inquiry-officer-acting-as-prosecutor-denying-cross-examination-vitiates-proceedings-529044
-
-[Read on Telegram](https://t.me/livelawindia/108262)
+[Read on Telegram](https://t.me/livelawindia/108287)
 
 ---
-### 2026-04-05T13:37:26+00:00
-Status Of Bhumidar Cannot Be Revised If Conditions U/S 122-B (4-F) UP Zamindari Abolition Act Are Satisfied: Allahabad HC
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-section122b4f-up-zamindari-abolition-act-bhumidhar-529043
+### 2026-04-06T06:05:21+00:00
+Delhi High Court Expedites Hearing On Activist's Plea To Vacate Injunction Over Posts Linking Hardeep Puri's Daughter To Epstein
+https://www.livelaw.in/high-court/delhi-high-court/himayani-puri-social-media-posts-link-epstein-union-minister-hardeep-puri-daughter-529113
 
-[Read on Telegram](https://t.me/livelawindia/108263)
-
----
-### 2026-04-05T13:54:06+00:00
-NLU Jodhpur, CyberPeace Foundation Sign MoU To Establish CyberPeace Chair In Cyber Law
-https://www.livelaw.in/lawschool/news/nlu-jodhpur-cyberpeace-foundation-sign-mou-establish-cyberpeace-chair-cyber-law-529074
-
-[Read on Telegram](https://t.me/livelawindia/108264)
+[Read on Telegram](https://t.me/livelawindia/108288)
 
 ---
-### 2026-04-05T14:37:36+00:00
-Jammu & Kashmir And Ladakh High Court Monthly Digest: March 2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-monthly-digest-march-2026-529042
+### 2026-04-06T06:10:01+00:00
+Delhi High Court Directs Immediate Restoration Of X Accounts 'Dr Nimo Yadav', 'Nehr Who'
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-dr-nimo-yadav-x-account-blocking-centre-529114
 
-[Read on Telegram](https://t.me/livelawindia/108265)
-
----
-### 2026-04-05T15:02:16+00:00
-Non-Ministerial Posts In Special Police Battalion Fall Under State Cadre, Promotions Must Follow State-Wide Seniority: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-police-battalion-promotions-state-wide-seniority-529045
-
-[Read on Telegram](https://t.me/livelawindia/108266)
+[Read on Telegram](https://t.me/livelawindia/108289)
 
 ---
-### 2026-04-05T15:10:36+00:00
-When Judiciary & Executive Align In Purpose, Constitution Comes Alive : CJI Surya Kant
-https://www.livelaw.in/top-stories/when-judiciary-executive-align-in-purpose-constitution-comes-alive-cji-surya-kant-529075
+### 2026-04-06T06:17:31+00:00
+Mutation Proceedings Not Meant To Decide Property Title, Parties Must Approach Civil Court: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-mutation-authorities-civil-suit-529095
 
-[Read on Telegram](https://t.me/livelawindia/108267)
+[Read on Telegram](https://t.me/livelawindia/108290)
 
 ---
-### 2026-04-05T15:34:46+00:00
-Arvind Kejriwal Files Application In Delhi High Court Seeking Recusal Of Justice Swarana Kanta Sharma From Liquor Policy Case
-https://www.livelaw.in/high-court/delhi-high-court/arvind-kejriwal-files-application-in-delhi-high-court-seeking-recusal-of-justice-swarana-kanta-sharma-from-liquor-policy-case-529076
+### 2026-04-06T06:31:11+00:00
+'Project Will Be Lifeline For Kerala' : Supreme Court Rejects Challenge To EC For Wayanad Tunnel Construction
+https://www.livelaw.in/top-stories/project-will-be-lifeline-for-kerala-supreme-court-rejects-challenge-to-ec-for-wayanad-tunnel-construction-529117
 
-[Read on Telegram](https://t.me/livelawindia/108268)
+[Read on Telegram](https://t.me/livelawindia/108291)
+
+---
+### 2026-04-06T06:32:51+00:00
+Uttering Caste Slurs At Factory Dispatch Door Accessed By Workers Falls Under 'Public View' Under SC/ST Act: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-factory-dispatch-door-public-view-529047
+
+[Read on Telegram](https://t.me/livelawindia/108292)
+
+---
+### 2026-04-06T06:42:59+00:00
+Patna HC Invokes Doctrine Of Frustration To Dissolve Marriage Under SMA After Wife Remarried, Flags “Perverse” Family Court Ruling
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-doctrine-of-frustration-dissolve-marriage-special-marriage-act-529051
+
+[Read on Telegram](https://t.me/livelawindia/108293)
+
+---
+### 2026-04-06T06:45:19+00:00
+S. 221 CrPC | No Bar To Invoke Both 'Cheating' & 'Criminal Breach Of Trust' Offences On Same Allegations: Allahabad HC
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-221-crpc-no-bar-cheating-criminal-breach-of-trust-offences-allegations-529119
+
+[Read on Telegram](https://t.me/livelawindia/108294)
+
+---
+### 2026-04-06T06:59:18+00:00
+Supreme Court Refuses To Stay Adani's Resolution Plan For Jaiprakash Associates; Urges NCLAT To Hear Vedanta's Appeal On Priority
+https://www.livelaw.in/top-stories/supreme-court-refuses-to-stay-adanis-resolution-plan-for-jaiprakash-associates-urges-nclat-to-hear-vedantas-appeal-on-priority-529120
+
+[Read on Telegram](https://t.me/livelawindia/108295)
+
+---
+### 2026-04-06T07:03:18+00:00
+Challenge To Tribunal Order Lies Before HC Having Territorial Jurisdiction Over It: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-writ-petition-principal-bench-armed-forces-tribunal-territorial-jurisdiction-529099
+
+[Read on Telegram](https://t.me/livelawindia/108296)
+
+---
+### 2026-04-06T07:17:18+00:00
+Tribunals Can't Get Involved In Infight Between Counsel: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-tribunal-infight-between-counsels-529108
+
+[Read on Telegram](https://t.me/livelawindia/108297)
+
+---
+### 2026-04-06T07:32:48+00:00
+S.145 NI Act | Only Complainant Can Lead Evidence By Affidavit In Cheque Bounce Cases, Not Accused: Orissa High Court
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-complainant-evidenceinchief-affidavit-529111
+
+[Read on Telegram](https://t.me/livelawindia/108298)
+
+---
+### 2026-04-06T07:42:28+00:00
+Promise Made By Chief Minister During Press Conference Not Legally Enforceable Without Policy Backing: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/chief-minister-promise-not-enforceable-without-policy-arvind-kejriwal-529129
+
+[Read on Telegram](https://t.me/livelawindia/108299)
+
+---
+### 2026-04-06T07:47:28+00:00
+Abruptly Blocking Employee's Smart Card Access To Terminate Him Violates Basic Dignity Of Labour: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-smart-card-access-blocking-termination-violate-labour-dignity-529122
+
+[Read on Telegram](https://t.me/livelawindia/108300)
 
 ---
