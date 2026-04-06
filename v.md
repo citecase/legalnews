@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-06T13:33:02+00:00*
+*Last Updated: 2026-04-06T16:02:49+00:00*
+
+---
+
+### 2026-04-06T16:02:49+00:00
+Institute of Chartered Accountants of India Invites Applications For The Posts Of Director, Executive Officer (Legal)
+https://www.verdictum.in/job-updates/institute-of-chartered-accountants-of-india-1611482
+
+[Source Link](https://t.me/verdictumlegalupdates/26363)
+
+---
+
+### 2026-04-06T15:32:27+00:00
+Combatised Status Of Cadre Once Conferred By President Extends To Subsequent Posts Within It Without Fresh Declaration: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/union-of-india-ors-v-bn-chaubey-ors-2026dhc2359-db-border-security-force-1611472
+
+[Source Link](https://t.me/verdictumlegalupdates/26362)
+
+---
+
+### 2026-04-06T15:03:06+00:00
+No Convincing Evidence: Supreme Court Acquits Ex-IRB Constable Convicted For Superior’s Murder; Grants Liberty To Seek Reinstatement
+https://www.verdictum.in/court-updates/supreme-court/jay-prakash-yadav-v-the-state-of-jharkhand-2026-insc-317-irb-constable-convicted-superior-murder-1611492
+
+[Source Link](https://t.me/verdictumlegalupdates/26361)
+
+---
+
+### 2026-04-06T14:32:24+00:00
+Constitutional Courts Can Invoke Doctrine Of Frustration To Dissolve Marriages Under Special Marriage Act Where Performance Becomes Impossible: Patna High Court
+https://www.verdictum.in/court-updates/high-courts/patna-high-court/manoj-kumar-munna-v-nita-bharti-special-marriages-act-dissolution-divorce-1611485
+
+[Source Link](https://t.me/verdictumlegalupdates/26360)
+
+---
+
+### 2026-04-06T14:03:03+00:00
+Advocate Needing Time To Understand Impugned Order Can’t Justify Delay Of More Than One Year: Delhi High Court Dismisses Delay Condonation Application
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ajit-kumar-gola-v-state-gnctd-2026dhc2829-advocate-impugned-order-delay-condonation-application-1611484
+
+[Source Link](https://t.me/verdictumlegalupdates/26359)
 
 ---
 
@@ -121,46 +161,6 @@ Disciplinary Authority Acting As Judge, Prosecutor & Enquiry Officer Creates App
 https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/gopal-krishan-v-ut-of-jk-ors-2026jklhc-jmu828-disciplinary-action-1611450
 
 [Source Link](https://t.me/verdictumlegalupdates/26344)
-
----
-
-### 2026-04-06T06:03:00+00:00
-Primacy Of FSSAI Certification Overrides Contrary Customs Findings In Food Import Clearances: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/nbg-international-private-limited-v-the-union-of-india-2026bhc-as14241-db-fssai-certification-food-import-clearances-1611446
-
-[Source Link](https://t.me/verdictumlegalupdates/26343)
-
----
-
-### 2026-04-06T05:31:59+00:00
-Apex Court Orders CBI Probe Into ₹1,270 Crore Arunachal Pradesh Public Works Contracts Improperly Awarded To Firms Linked To Family Of CM Pema Khandu
-https://www.verdictum.in/court-updates/supreme-court/cbi-probe-1270-crore-arunachal-pradesh-public-contracts-awarded-family-of-chief-minister-pema-khandu-1611441
-
-[Source Link](https://t.me/verdictumlegalupdates/26342)
-
----
-
-### 2026-04-06T05:02:37+00:00
-"Show Off Remedial Action" For Subsequent External Events Not Sufficient Cause: Bombay High Court Refuses To Condone Delay In MCGM's Appeal In 2017 Kamala Mills Tragedy Case
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/the-municipal-corporation-of-greater-mumbai-v-pankaj-mehta-2026bhc-as16008-8-years-delay-in-2017-kamala-mills-tragedy-1611440
-
-[Source Link](https://t.me/verdictumlegalupdates/26341)
-
----
-
-### 2026-04-06T04:32:26+00:00
-Unrealised Notional Profits From "Mark-To-Market" Instruments Not Exigible To Tax: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/the-principal-commissioner-of-income-tax-central-v-kalyan-jewellers-india-ltd-2026ker21788-mark-to-market-instruments-1611433
-
-[Source Link](https://t.me/verdictumlegalupdates/26340)
-
----
-
-### 2026-04-05T15:03:08+00:00
-Deputy Chief Law Officer Vacancy At Visakhapatnam Port Authority (VPA)
-https://www.verdictum.in/job-updates/visakhapatnam-port-authority-1611348
-
-[Source Link](https://t.me/verdictumlegalupdates/26339)
 
 ---
 
