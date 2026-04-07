@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-06T13:32:40+00:00*
+*Last Updated: 2026-04-07T04:32:50+00:00*
 
 ---
 
-### 2026-04-06T13:32:40+00:00
-DU Team Wins 4th CNLU Cyber Law National Moot Court Competition 2026
-https://www.livelaw.in/lawschool/news/du-team-wins-4th-cnlu-cyber-law-national-moot-court-competition-2026-529205
+### 2026-04-07T04:32:50+00:00
+Delay In Recruitment To Specialised Medical Posts Particularly For Mental Healthcare Causes Prejudice To Public: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-hearing-pil-delay-medical-mental-healthcare-recruitment-prolonged-delay-lack-of-amenities-md-psychiatrist-prejudice-to-public-529231
 
-[Read on Telegram](https://t.me/livelawindia/108338)
-
----
-### 2026-04-06T13:32:50+00:00
-Lok Adalat Award Not Valid Without Signatures Of Parties; Advocate's Signature Alone Not Binding: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-lok-adalat-award-signatures-parties-529203
-
-[Read on Telegram](https://t.me/livelawindia/108339)
+[Read on Telegram](https://t.me/livelawindia/108371)
 
 ---
-### 2026-04-06T13:42:40+00:00
-Agreement To Sell Executed During Statutory Bar Under HP Tenancy Act Not Specifically Enforceable: High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-agreement-executed-statutory-bar-hp-tenancy-act-529102
+### 2026-04-07T04:47:30+00:00
+Karnataka High Court Stays Case Against Consultant Accused Of Converting Voter Lists Into Excel & Posting On Social Media For A 'Fee'
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-converted-eci-voter-lists-529232
 
-[Read on Telegram](https://t.me/livelawindia/108340)
-
----
-### 2026-04-06T13:46:40+00:00
-'Chilling Trend': Allahabad HC Slams Public Perception That Bribes Can Buy Anything, Denies Relief In Fake PhD Fraud FIR
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-chilling-trend-bribes-denies-relief-fake-phd-fraud-fir-529207
-
-[Read on Telegram](https://t.me/livelawindia/108341)
+[Read on Telegram](https://t.me/livelawindia/108372)
 
 ---
-### 2026-04-06T13:52:40+00:00
-NEET | Medical Seat National Resource; Seat Rendered Vacant Due To Fraud Must Be Allotted To Next Candidate : Supreme Court
-https://www.livelaw.in/supreme-court/neet-medical-seat-national-resource-seat-rendered-vacant-due-to-fraud-must-be-allotted-to-next-candidate-supreme-court-529208
+### 2026-04-07T05:02:30+00:00
+'Bengaluru Traffic Will Teach You Patience': Karnataka High Court Refuses To Quash Road Rage Case Against 23-Year-Old Software Engineer
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-quash-road-rage-case-bengaluru-traffic-529265
 
-[Read on Telegram](https://t.me/livelawindia/108342)
-
----
-### 2026-04-06T13:54:20+00:00
-2026 LiveLaw (SC) 330 | THE SECRETARY NATIONAL MEDICAL COMMISSION VERSUS SANJANA THAKUR & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-330-the-secretary-national-medical-commission-versus-sanjana-thakur-ors-529209
-
-[Read on Telegram](https://t.me/livelawindia/108343)
+[Read on Telegram](https://t.me/livelawindia/108373)
 
 ---
-### 2026-04-06T14:10:00+00:00
-'15 Yrs On Tourist Visa & Running Restaurant?': Karnataka High Court Expresses Surprise Over Foreigner's Continued Residence In India
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-tourist-visa-french-national-leave-india-notice-529210
+### 2026-04-07T05:15:50+00:00
+Kerala High Court Dismisses Election Petition Against Union Minister Suresh Gopi
+https://www.livelaw.in/high-court/kerala-high-court/suresh-gopi-election-petition-interlocutory-application-529269
 
-[Read on Telegram](https://t.me/livelawindia/108344)
-
----
-### 2026-04-06T14:13:20+00:00
-Surgeon Best Judge To Choose Which Procedure To Adopt : Supreme Court Quashes Medical Negligence Case
-https://www.livelaw.in/supreme-court/surgeon-best-judge-to-choose-which-procedure-to-adopt-supreme-court-quashes-medical-negligence-case-529211
-
-[Read on Telegram](https://t.me/livelawindia/108345)
+[Read on Telegram](https://t.me/livelawindia/108374)
 
 ---
-### 2026-04-06T14:14:20+00:00
-2026 LiveLaw (SC) 332 | DR. S. BALAGOPAL VERSUS STATE OF TAMIL NADU & ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-332-dr-s-balagopal-versus-state-of-tamil-nadu-anr-529212
+### 2026-04-07T05:17:30+00:00
+Sajjadanashin Of Dargah & Mutawalli Of Waqf Not Same : Supreme Court
+https://www.livelaw.in/top-stories/sajjadanashin-of-dargah-mutawalli-of-waqf-not-same-supreme-court-529270
 
-[Read on Telegram](https://t.me/livelawindia/108346)
-
----
-### 2026-04-06T14:21:40+00:00
-Kerala High Court To Hear PleaChallenging Transgender Persons (Protection Of Rights) Amendment Act, 2026
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-transgender-persons-amendment-act-2026-529214
-
-[Read on Telegram](https://t.me/livelawindia/108347)
+[Read on Telegram](https://t.me/livelawindia/108375)
 
 ---
-### 2026-04-06T14:32:30+00:00
-Juridical Debates From Banerji To Nine-Judge Bench On 'Industry' Under Industrial Relations Law
-https://www.livelaw.in/articles/juridical-debates-banerji-nine-judge-bench-industry-industrial-relations-law-529187
+### 2026-04-07T05:18:20+00:00
+Only Parents' Income Relevant To Determine Creamy Layer, Self Or Income Of Spouse Who Is Not Class-I Officer Irrelevant: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-obc-reservation-determination-of-creamy-layer-status-self-income-irrelevant-529262
 
-[Read on Telegram](https://t.me/livelawindia/108348)
-
----
-### 2026-04-06T15:10:30+00:00
-'Serious Lapse In Investigation': Allahabad High Court Acquits Man Who Spent 11 Years In Jail In Minor's Rape Case
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-lapse-investigation-acquits-11-years-jail-minor-rape-case-529222
-
-[Read on Telegram](https://t.me/livelawindia/108349)
+[Read on Telegram](https://t.me/livelawindia/108376)
 
 ---
-### 2026-04-06T15:34:00+00:00
-'Failure To Develop Allotted Land Bars Equitable Relief', Supreme Court Upholds Cancellation Of Lease In Piaggio's Favor
-https://www.livelaw.in/supreme-court/failure-to-develop-allotted-land-bars-equitable-relief-supreme-court-upholds-cancellation-of-lease-in-piaggios-favor-529224
+### 2026-04-07T05:19:20+00:00
+Divorced Daughter Not Entitled To Family Pension If Divorce Occurred After Pensioner-Father's Death: Tripura High Court
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-divorce-pensioner-death-family-pension-eligibility-revised-pension-rules-529271
 
-[Read on Telegram](https://t.me/livelawindia/108350)
-
----
-### 2026-04-06T15:35:20+00:00
-2026 LiveLaw (SC) 332 | M/S. PIAGGIO VEHICLES PVT. LTD. VERSUS STATE OF U.P. & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-332-ms-piaggio-vehicles-pvt-ltd-versus-state-of-up-ors-529225
-
-[Read on Telegram](https://t.me/livelawindia/108351)
+[Read on Telegram](https://t.me/livelawindia/108377)
 
 ---
-### 2026-04-06T15:42:40+00:00
-Even Single Instance Of Award Of Public Work Through Tainted Process Violates Article 14 : Supreme Court
-https://www.livelaw.in/top-stories/even-single-instance-of-award-of-public-work-through-tainted-process-violates-article-14-supreme-court-529226
+### 2026-04-07T05:20:40+00:00
+Kerala High Court Rejects Plea To Stall Movie Allegedly Inspired By Venjaramoodu Mass Murder Case
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-movie-venjaramoodu-mass-murder-kaalam-paranja-kadha-529272
 
-[Read on Telegram](https://t.me/livelawindia/108352)
-
----
-### 2026-04-06T15:45:00+00:00
-2026 LiveLaw (SC) 333 | Save Mon Region Federation And Anr v. The State Of Arunachal Pradesh And Ors
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-333-save-mon-region-federation-and-anr-v-the-state-of-arunachal-pradesh-and-ors-529227
-
-[Read on Telegram](https://t.me/livelawindia/108353)
+[Read on Telegram](https://t.me/livelawindia/108378)
 
 ---
-### 2026-04-06T15:51:40+00:00
-Chhattisgarh High Court Convicts Ex-CM Ajit Jogi's Son For Murder Of NCP Leader Ram Avtar Jaggi, Imposes Life Sentence
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-convicts-amit-jogi-murder-ncp-leader-ramavatar-jaggi-529228
+### 2026-04-07T05:20:50+00:00
+2026 LiveLaw (SC) 335 |  SYED MOHAMMED GHOUSE PASHA KHADRI versus SYED MOHAMMED ADIL PASHA KHADRI & ORS. ETC
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-335-syed-mohammed-ghouse-pasha-khadri-versus-syed-mohammed-adil-pasha-khadri-ors-etc-529273
 
-[Read on Telegram](https://t.me/livelawindia/108354)
-
----
-### 2026-04-06T16:08:21+00:00
-Karta Can't Unilaterally Gift Substantial Portion Of Joint Family Property In Favour Of One Coparcener: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-karta-cannot-unilaterally-gift-joint-family-property-to-coparcener-529230
-
-[Read on Telegram](https://t.me/livelawindia/108355)
+[Read on Telegram](https://t.me/livelawindia/108379)
 
 ---
-### 2026-04-06T16:57:51+00:00
-Supreme Court Daily Round-Up : April 6, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-6-2026-529229
+### 2026-04-07T05:25:20+00:00
+Sabarimala Reference : Live Updates From Supreme Court 9-Judge Bench
+https://www.livelaw.in/top-stories/sabarimala-reference-live-updates-from-supreme-court-9-judge-bench-529276
 
-[Read on Telegram](https://t.me/livelawindia/108356)
+[Read on Telegram](https://t.me/livelawindia/108380)
 
 ---
-### 2026-04-07T01:02:30+00:00
-WB SIR | Appeals May Take Time, But Can't Order Interim Inclusion Of Deleted Voters Just Because They're Earlier Mapped: Supreme Court
-https://www.livelaw.in/top-stories/wb-sir-appeals-may-take-time-but-cant-allow-interim-inclusion-of-deleted-voters-just-because-theyre-earlier-mapped-supreme-court-529235
+### 2026-04-07T05:32:20+00:00
+'Right To Travel Abroad Is Basic Human Right': P&H High Court Allows Ex-DSP Convicted In Bribery Case To Travel Abroad
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-human-right-exdsp-travel-abroad-529242
 
-[Read on Telegram](https://t.me/livelawindia/108357)
+[Read on Telegram](https://t.me/livelawindia/108381)
+
+---
+### 2026-04-07T05:39:20+00:00
+Woman Keeping Minor As Maid Cannot Be Treated As Her 'Lawful Guardian': Calcutta High Court Quashes Kidnapping Case
+https://www.livelaw.in/high-court/calcutta-high-court/woman-keeping-minor-as-maid-cannot-be-treated-as-lawful-guardian-calcutta-high-court-quashes-kidnapping-case-529279
+
+[Read on Telegram](https://t.me/livelawindia/108382)
+
+---
+### 2026-04-07T05:56:40+00:00
+Does Transgender Persons Amendment Act Affect Persons Already Undergoing Hormone Therapy? Kerala High Court Asks Centre
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-constitutional-validity-transgender-amendment-act-529281
+
+[Read on Telegram](https://t.me/livelawindia/108383)
+
+---
+### 2026-04-07T06:03:00+00:00
+Claim To Be 'Sole Hereditary Pujari' Of Temple Can't Be Decided In Writ Petition: HP High Court Upholds Rejection Of Man's Plea
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-temple-priest-sole-pujari-writ-petition-529247
+
+[Read on Telegram](https://t.me/livelawindia/108384)
+
+---
+### 2026-04-07T06:06:20+00:00
+S.528 BNSS | Criminal Proceedings Can Be Quashed When Reliable Material Disproves Allegations : Supreme Court
+https://www.livelaw.in/supreme-court/s528-bnss-criminal-proceedings-can-be-quashed-when-reliable-material-disproves-allegations-supreme-court-529282
+
+[Read on Telegram](https://t.me/livelawindia/108385)
+
+---
+### 2026-04-07T06:07:41+00:00
+2026 LiveLaw (SC) 335 | SAJAL BOSE VERSUS THE STATE OF WEST BENGAL AND ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-335-sajal-bose-versus-the-state-of-west-bengal-and-ors-529283
+
+[Read on Telegram](https://t.me/livelawindia/108386)
+
+---
+### 2026-04-07T06:32:11+00:00
+Religion Is Not A Cloak For Enrichment, Poojaris Not Entitled To Monies Deposited In Temple Donation Box As A Right: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-religion-not-enrichment-poojari-no-right-to-hundi-money-529288
+
+[Read on Telegram](https://t.me/livelawindia/108387)
+
+---
+### 2026-04-07T06:53:11+00:00
+Representation of People Act | Election Petition Must Be Personally Presented By Petitioner Before HC: Meghalaya High Court
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-representation-people-act-election-petition-personally-presented-high-court-529285
+
+[Read on Telegram](https://t.me/livelawindia/108388)
+
+---
+### 2026-04-07T07:07:51+00:00
+Whistleblowers Have No Locus In Service Matters Unless They Are Directly Aggrieved: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-whistleblowers-locus-service-matters-directly-aggrieved-529248
+
+[Read on Telegram](https://t.me/livelawindia/108389)
+
+---
+### 2026-04-07T07:11:01+00:00
+Delhi High Court Issues Notice On Plea By Former Congress MLA Rajendra Bharti Against Conviction In Cheating Case
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-issues-notice-on-plea-by-former-congress-mla-rajendra-bharti-against-conviction-in-cheating-case-529293
+
+[Read on Telegram](https://t.me/livelawindia/108390)
 
 ---
