@@ -1,146 +1,148 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-07T10:21:06+00:00*
+*Last Updated: 2026-04-07T15:17:42+00:00*
 
 ---
 
-### 2026-04-07T10:21:06+00:00
-Calcutta High Court Bar Association Suspends Lawyer Over Attack On Judicial Officers In Malda; Calls For De-Enrolment
-https://www.livelaw.in/news-updates/calcutta-hc-bar-association-suspends-lawyer-arrested-over-alleged-involvement-with-unrest-against-judicial-officers-in-bengal-529336
+### 2026-04-07T15:17:42+00:00
+Ex-Cricketer Kiran More Moves Gujarat High Court Against Disqualification To Contest Baroda Cricket Association Elections
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-kiran-more-baroda-cricket-association-election-529390
 
-[Read on Telegram](https://t.me/livelawindia/108413)
-
----
-### 2026-04-07T10:35:27+00:00
-NEET PG 2025-26  : Supreme Court To Hear Pleas Challenging Cut-off Reduction On April 28
-https://www.livelaw.in/top-stories/neet-pg-2025-26-supreme-court-to-hear-pleas-challenging-cut-off-reduction-on-april-28-529341
-
-[Read on Telegram](https://t.me/livelawindia/108414)
+[Read on Telegram](https://t.me/livelawindia/108440)
 
 ---
-### 2026-04-07T10:37:27+00:00
-'Absence Without Leave Cannot Be Treated As Desertion Without Inquiring Into Cause': P&H High Court Grants Relief To CRPF Constable
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-declaration-crpf-constable-deserter-529275
+### 2026-04-07T15:18:02+00:00
+No 'Mens Rea'; Merely Filing 'False' Cases Against Husband Not Abetment Of Suicide: Allahabad HC Grants Relief To Wife
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-mens-rea-false-cases-husband-abetment-suicide-relief-wife-529391
 
-[Read on Telegram](https://t.me/livelawindia/108415)
-
----
-### 2026-04-07T10:39:16+00:00
-Kerala Court Orders Production Of Director Renjith In Sexual Assault Case, Bail Hearing Tomorrow
-https://www.livelaw.in/news-updates/kerala-magistrate-ernakulam-director-renjith-balakrishnan-sexual-harassment-assault-529342
-
-[Read on Telegram](https://t.me/livelawindia/108416)
+[Read on Telegram](https://t.me/livelawindia/108441)
 
 ---
-### 2026-04-07T10:43:16+00:00
-False Cases By Wife Leading To Husband's Arrest, 17-Year Separation Amounts To Mental Cruelty: Calcutta High Court Upholds Divorce
-https://www.livelaw.in/high-court/calcutta-high-court/false-criminal-case-by-wife-leading-to-husbands-arrest-17-year-separation-amounts-to-mental-cruelty-calcutta-high-court-529343
+### 2026-04-07T15:18:42+00:00
+Orissa High Court Organises Awareness Programme On Prevention Of Sexual Harassment At Workplaces
+https://www.livelaw.in/events/orissa-high-court-organises-awareness-programme-prevention-sexual-harassment-workplaces-529392
 
-[Read on Telegram](https://t.me/livelawindia/108417)
-
----
-### 2026-04-07T10:53:17+00:00
-Kallahalli Varahaswamy Temple | Karnataka HC Stays Fresh Encroachment Probe Against Parakala Mutt After Tehsildar Report Found No Illegalities
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-fresh-encroachment-probe-parakkala-matha-kallahalli-varahaswamy-temple-529337
-
-[Read on Telegram](https://t.me/livelawindia/108418)
+[Read on Telegram](https://t.me/livelawindia/108442)
 
 ---
-### 2026-04-07T11:07:16+00:00
-Bombay High Court Orders DNA Testing Of Mortal Remains Of Indian Seafarer Killed In Iranian Missile Strike
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-dna-testing-mortal-remains-indian-seafarer-killed-iranian-missile-strike-529347
+### 2026-04-07T15:21:02+00:00
+“Crime Was Not Result Of Lust But Love”: HP High Court Grants Bail To POCSO Accused, Cites Marital Relationship & Birth Of Child
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-considering-marriage-continued-custody-minor-mother-pocso-529393
 
-[Read on Telegram](https://t.me/livelawindia/108419)
-
----
-### 2026-04-07T11:10:36+00:00
-Judgment Allowing Women Entry In Sabarimala Temple Wrong: Centre Tells Supreme Court In 9-Judge Bench Reference
-https://www.livelaw.in/top-stories/judgment-allowing-women-entry-in-sabarimala-temple-wrong-centre-tells-supreme-court-in-9-judge-bench-reference-529348
-
-[Read on Telegram](https://t.me/livelawindia/108420)
+[Read on Telegram](https://t.me/livelawindia/108443)
 
 ---
-### 2026-04-07T11:21:57+00:00
-West Bengal SIR | 'ECI Could Not Furnish Reasons' : Appellate Tribunal Restores Deleted INC Candidate To Voter List
-https://www.livelaw.in/top-stories/west-bengal-sir-eci-could-not-furnish-reasons-appellate-tribunal-restores-deleted-inc-candidate-to-voter-list-529351
+### 2026-04-07T15:26:42+00:00
+'Need Civic Sense Like Japanese People': Bombay High Court While Granting Compensation In Mumbai Local Train Death Case
+https://www.livelaw.in/high-court/bombay-high-court/mumbai-local-train-japan-civic-sense-railway-accident-529398
 
-[Read on Telegram](https://t.me/livelawindia/108421)
-
----
-### 2026-04-07T11:22:57+00:00
-Calcutta High Court Quashes NDPS Case Based Solely On Inadmissible S.67 Statements; Says 14-Year Delay Violates Article 21
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-quashes-ndps-case-based-solely-on-inadmissible-s67-statements-says-14-year-delay-violates-article-21-529332
-
-[Read on Telegram](https://t.me/livelawindia/108422)
+[Read on Telegram](https://t.me/livelawindia/108444)
 
 ---
-### 2026-04-07T11:32:57+00:00
-Karnataka High Court Weekly Round-Up: March 30 – April 05, 2026
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-round-up-529305
+### 2026-04-07T15:47:03+00:00
+Lokpal Must Give Reasons To Order Probe Despite CBI Clean Chit: Delhi High Court Quashes Investigation Against DRI Officer
+https://www.livelaw.in/high-court/delhi-high-court/lokpal-must-give-reasons-to-order-probe-despite-cbi-clean-chit-delhi-high-court-quashes-investigation-against-dri-officer-529405
 
-[Read on Telegram](https://t.me/livelawindia/108423)
-
----
-### 2026-04-07T11:47:47+00:00
-Kerala High Court Seeks Affidavit On Action Taken Over Digital Survey Vigilance Report; Orders Removal Of Misleading Posts On Earlier Order
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-principal-secretary-affidavit-steps-vigilance-enquiry-report-digital-survey-project-529350
-
-[Read on Telegram](https://t.me/livelawindia/108424)
+[Read on Telegram](https://t.me/livelawindia/108445)
 
 ---
-### 2026-04-07T11:53:27+00:00
-RMLNLU To Host 14th Ram Manohar Lohiya Parliamentary Debate From April 10–12
-https://www.livelaw.in/lawschool/competitions/rmlnlu-to-host-14th-ram-manohar-lohiya-parliamentary-debate-from-april-1012-529360
+### 2026-04-07T15:51:43+00:00
+Katchanatham Caste Killings: Madras High Court Upholds Life Sentence Of 26 Accused, Acquits One
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-katchnatham-caste-killing-life-sentence-of-26-upheld-529410
 
-[Read on Telegram](https://t.me/livelawindia/108425)
-
----
-### 2026-04-07T12:12:27+00:00
-Clubbing Multiple Contracts In One Writ Petition Maintainable Subject To Payment Of Aggregate Court Fee: Andhra Pradesh High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-ruling-clubbing-multiple-contracts-maintainable-writ-payment-aggregate-court-fee-529298
-
-[Read on Telegram](https://t.me/livelawindia/108426)
+[Read on Telegram](https://t.me/livelawindia/108446)
 
 ---
-### 2026-04-07T12:36:28+00:00
-WTO IP Director Antony Taubman Delivers Inaugural Lecture At HNLU's FDP On Emerging IP Jurisprudence
-https://www.livelaw.in/lawschool/news/wto-ip-director-antony-taubman-delivers-inaugural-lecture-at-hnlus-fdp-on-emerging-ip-jurisprudence-529365
+### 2026-04-07T16:02:33+00:00
+Punjab & Haryana High Court Imposes ₹10K Cost On Bail Applicant For Failure To Disclose Earlier Dismissal Of Bail Application
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-imposes-cost-bail-applicant-disclose-previous-bail-application-dismissal-529404
 
-[Read on Telegram](https://t.me/livelawindia/108427)
-
----
-### 2026-04-07T13:01:18+00:00
-'Was Continuously Bullied By Deceased': Gujarat High Court Grants Bail To Teenager Booked For Stabbing Schoolmate
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-bail-teenager-stabbing-schoolmate-529366
-
-[Read on Telegram](https://t.me/livelawindia/108428)
+[Read on Telegram](https://t.me/livelawindia/108447)
 
 ---
-### 2026-04-07T13:02:58+00:00
-Personal Hearing Of Borrower Not Necessary Before Banks Declare Account 'Fraud' : Supreme Court Clarifies 'Rajesh Agarwal' Verdict
-https://www.livelaw.in/supreme-court/personal-hearing-of-borrower-not-necessary-before-banks-declare-account-fraud-supreme-court-clarifies-rajesh-agarwal-verdict-529368
+### 2026-04-07T16:08:33+00:00
+Not Reviewing Sabarimala Verdict In Reference; Only Considering Constitutional Questions, Says Supreme Court
+https://www.livelaw.in/top-stories/not-reviewing-sabarimala-verdict-in-reference-only-considering-constitutional-questions-says-supreme-court-529411
 
-[Read on Telegram](https://t.me/livelawindia/108429)
-
----
-### 2026-04-07T13:17:18+00:00
-“Show-Cause Issued Without Application Of Mind”: Calcutta High Court Quashes Termination Of LPG Transport Contract
-https://www.livelaw.in/high-court/calcutta-high-court/show-cause-issued-without-application-of-mind-calcutta-high-court-quashes-termination-of-lpg-transport-contract-529345
-
-[Read on Telegram](https://t.me/livelawindia/108430)
+[Read on Telegram](https://t.me/livelawindia/108448)
 
 ---
-### 2026-04-07T13:30:58+00:00
-Cheque Dishonour Complaint Can't Be Quashed At Pre-Trial Stage Once Section 138 NI Act Ingredients Are Met : Supreme Court
-https://www.livelaw.in/supreme-court/cheque-dishonour-complaint-cant-be-quashed-at-pre-trial-stage-once-section-138-ni-act-ingredients-are-met-supreme-court-529372
+### 2026-04-07T16:17:13+00:00
+'Will Consider If There's Institutional Damage' : Supreme Court Reserves Order In Yatin Oza's Contempt Case
+https://www.livelaw.in/top-stories/supreme-court-yatin-oza-senior-advocate-status-contempt-gambling-den-remark-sr-advs-press-for-closure-orders-reserved-529412
 
-[Read on Telegram](https://t.me/livelawindia/108431)
+[Read on Telegram](https://t.me/livelawindia/108449)
 
 ---
-### 2026-04-07T13:37:28+00:00
-Magistrate Can Direct Further Investigation Even At Post-Cognizance Stage U/S 173(8) CrPC: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-magistrate-can-direct-further-investigation-even-at-post-cognizance-stage-under-section-1738-read-with-section-1563-crpc-529307
+### 2026-04-07T16:17:33+00:00
+Delhi High Court Directs Advocates To Approach Appellate Panel Under IT Rules Over WhatsApp Account Ban, Data Loss Grievance
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-advocates-to-approach-appellate-panel-under-it-rules-over-whatsapp-account-ban-data-loss-grievance-529407
 
-[Read on Telegram](https://t.me/livelawindia/108432)
+[Read on Telegram](https://t.me/livelawindia/108450)
+
+---
+### 2026-04-07T16:32:53+00:00
+'Constraints Can Change Lives Drastically': Delhi High Court Notes Migrant Woman's Vulnerability, Upholds Accused's Rape Conviction
+https://www.livelaw.in/high-court/delhi-high-court/constraints-can-change-lives-drastically-delhi-high-court-notes-migrant-womans-vulnerability-upholds-accuseds-rape-conviction-529408
+
+[Read on Telegram](https://t.me/livelawindia/108451)
+
+---
+### 2026-04-07T16:40:13+00:00
+Horizontally Reserved PwD Post In Unreserved Category Open To SC/ST/OBC Candidates With Disabilities : Supreme Court
+https://www.livelaw.in/supreme-court/horizontally-reserved-pwd-post-in-unreserved-category-open-to-scstobc-candidates-with-disabilities-supreme-court-529416
+
+[Read on Telegram](https://t.me/livelawindia/108452)
+
+---
+### 2026-04-07T16:41:33+00:00
+2026 LiveLaw (SC) 336 | THE WEST BENGAL STATE ELECTRICITY TRANSMISSION 
+CO.LTD
+ & ORS. VERSUS DIPENDU BISWAS & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-336-the-west-bengal-state-electricity-transmission-coltd-ors-versus-dipendu-biswas-ors-529417
+
+[Read on Telegram](https://t.me/livelawindia/108453)
+
+---
+### 2026-04-07T16:44:33+00:00
+2026 LiveLaw (SC) 337 |  State Bank of India Versus Amit Iron Private Limited & Ors
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-337-state-bank-of-india-versus-amit-iron-private-limited-ors-529419
+
+[Read on Telegram](https://t.me/livelawindia/108454)
+
+---
+### 2026-04-07T16:45:53+00:00
+2026 LiveLaw (SC) 338 | RENUKA VERSUS THE STATE OF MAHARASHTRA & ANR.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-338-renuka-versus-the-state-of-maharashtra-anr-529420
+
+[Read on Telegram](https://t.me/livelawindia/108455)
+
+---
+### 2026-04-07T16:47:33+00:00
+2026 LiveLaw (SC) 339 | NATIONAL INSURANCE COMPANY LIMITED v. K. SARAVANAN
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-339-national-insurance-company-limited-v-k-saravanan-529421
+
+[Read on Telegram](https://t.me/livelawindia/108456)
+
+---
+### 2026-04-07T16:49:53+00:00
+2026 LiveLaw (SC) 340 | UCO BANK & ORS. VERSUS SK SHRIVASTAVA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-340-uco-bank-ors-versus-sk-shrivastava-529422
+
+[Read on Telegram](https://t.me/livelawindia/108457)
+
+---
+### 2026-04-07T17:07:43+00:00
+Supreme Court Daily Round-Up : April 7, 2026
+https://www.livelaw.in/supreme-court/supreme-court-daily-round-up-april-7-2026-529418
+
+[Read on Telegram](https://t.me/livelawindia/108458)
+
+---
+### 2026-04-07T17:36:23+00:00
+Madhya Pradesh State Legal Services Authority Conducts Mega Legal Outreach Camps Across All 51 Districts
+https://www.livelaw.in/news-updates/madhya-pradesh-state-legal-services-authority-conducts-mega-legal-outreach-camps-across-all-51-districts-529423
+
+[Read on Telegram](https://t.me/livelawindia/108459)
 
 ---
