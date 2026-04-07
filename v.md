@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-06T16:02:49+00:00*
+*Last Updated: 2026-04-07T07:52:44+00:00*
+
+---
+
+### 2026-04-07T07:52:44+00:00
+Operating Surgeon Is The Best Judge: Supreme Court Quashes Criminal Proceedings Against Surgeon Over Alleged Lack of Specific Consent For Orchidectomy
+https://www.verdictum.in/court-updates/supreme-court/dr-s-balagopal-v-state-of-tamil-nadu-2026-insc-319-operating-surgeon-best-is-the-judge-orchidectomy-1611538
+
+[Source Link](https://t.me/verdictumlegalupdates/26369)
+
+---
+
+### 2026-04-07T07:13:02+00:00
+Failure To Commence Industrial Operations Within Time Bars Equitable Relief: Supreme Court Upholds Cancellation Of 33-Acre Noida Industrial Plot
+https://www.verdictum.in/court-updates/supreme-court/ms-piaggio-vehicles-pvt-ltd-v-state-of-up-2026-insc-321-33-acre-noida-industrial-plot-1611536
+
+[Source Link](https://t.me/verdictumlegalupdates/26368)
+
+---
+
+### 2026-04-07T06:32:41+00:00
+Courts May Invoke Inherent Powers To Prevent Injustice Where Unimpeachable Evidence Displaces Prosecution’s Case: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/sajal-bose-v-the-state-of-west-bengal-2026-insc-322-unimpeachable-evidence-displaces-prosecutions-case-1611529
+
+[Source Link](https://t.me/verdictumlegalupdates/26367)
+
+---
+
+### 2026-04-07T05:52:19+00:00
+Disturbing Pattern Of Administrative Apathy & Regulatory Inaction: Supreme Court Issues Stringent Directions To Ensure Strict Compliance To Save Jojari River
+https://www.verdictum.in/court-updates/supreme-court/in-re-2-million-lives-at-risk-contamination-in-jojari-river-rajasthan-2026-insc-316-issues-stringent-directions-1611525
+
+[Source Link](https://t.me/verdictumlegalupdates/26366)
+
+---
+
+### 2026-04-07T05:12:38+00:00
+Public Statements Made By Chief Minister Not Legally Enforceable Unless Formally Implemented: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/government-of-nct-of-delhi-v-najma-ors-2026dhc2834-db-chief-minister-1611521
+
+[Source Link](https://t.me/verdictumlegalupdates/26365)
+
+---
+
+### 2026-04-07T04:32:46+00:00
+Married Daughter Separated From Husband Not Entitled To Family Pension Under State Civil Services Pension Rules: Tripura High Court
+https://www.verdictum.in/court-updates/high-courts/tripura-high-court/smt-ujjala-rani-paul-v-agartala-municipal-corporation-married-daughter-separated-husband-family-pension-1611493
+
+[Source Link](https://t.me/verdictumlegalupdates/26364)
 
 ---
 
@@ -113,54 +161,6 @@ Breaking: Delhi High Court Issues Notice To CBI In Application Seeking Recusal O
 https://www.verdictum.in/court-updates/high-courts/delhi-high-court/issues-notice-to-cbi-seeking-recusal-of-justice-swarna-kanta-sharma-excise-policy-case-kejriwal-to-argue-in-person-1611467
 
 [Source Link](https://t.me/verdictumlegalupdates/26350)
-
----
-
-### 2026-04-06T09:02:39+00:00
-Will Be A Lifeline For People: Supreme Court Dismisses Plea Challenging Environmental Clearance Granted To Kozhikode-Wayanad Tube Tunnel
-https://www.verdictum.in/court-updates/supreme-court/will-be-a-lifeline-for-people-supreme-court-dismisses-plea-challenging-environmental-clearance-granted-to-kozhikode-wayanad-tube-tunnel-1611464
-
-[Source Link](https://t.me/verdictumlegalupdates/26349)
-
----
-
-### 2026-04-06T08:33:08+00:00
-Protection U/S 17A PC Act A Shield For Innocent, Not A Sanctuary For Culpable: Karnataka High Court Directs Investigation In Swachh Bharat Mission Funds Misappropriation Case
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/ravichandre-gowda-nr-v-state-of-karnataka-others-wp-no-2783-of-2026-misappropriation-in-swachh-bharat-mission-17a-pc-act-1611463
-
-[Source Link](https://t.me/verdictumlegalupdates/26348)
-
----
-
-### 2026-04-06T08:03:06+00:00
-Supreme Court Refuses To Interfere With NCLAT’s Order Allowing Adani To Acquire JAL, Asks Tribunal To Decide Expeditiously
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-refuses-to-interfere-with-nclats-order-allowing-adani-to-acquire-jal-asks-tribunal-to-decide-expeditiously-1611459
-
-[Source Link](https://t.me/verdictumlegalupdates/26347)
-
----
-
-### 2026-04-06T07:32:45+00:00
-Presidential Order Overrides State Service Rules: Telangana High Court Directs State Cadre Level Seniority For Special Police Battalions
-https://www.verdictum.in/court-updates/high-courts/telangana-high-court/sp-kasim-peera-vs-the-state-of-telangana-writ-petition-no-16166-of-2020-tate-level-seniority-for-special-police-battalions-1611457
-
-[Source Link](https://t.me/verdictumlegalupdates/26346)
-
----
-
-### 2026-04-06T07:03:03+00:00
-Spa Prostitution Case: Bombay High Court Refuses To Quash Case Under Immoral Traffic (Prevention) Act
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/mahendra-salgaonkar-v-state-2026bhc-goa419-charges-immoral-traffic-prevention-act-spa-prostitution-1611453
-
-[Source Link](https://t.me/verdictumlegalupdates/26345)
-
----
-
-### 2026-04-06T06:33:02+00:00
-Disciplinary Authority Acting As Judge, Prosecutor & Enquiry Officer Creates Apprehension Of Bias: J&K And Ladakh High Court
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/gopal-krishan-v-ut-of-jk-ors-2026jklhc-jmu828-disciplinary-action-1611450
-
-[Source Link](https://t.me/verdictumlegalupdates/26344)
 
 ---
 
