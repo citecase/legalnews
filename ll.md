@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-06T13:16:42+00:00*
+*Last Updated: 2026-04-06T13:32:40+00:00*
 
 ---
 
-### 2026-04-06T13:16:42+00:00
-Punjab & Haryana High Court Weekly Round-Up: March 30 - April 05, 2026
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-weekly-round-up-529202
-
-[Read on Telegram](https://t.me/livelawindia/108337)
-
----
 ### 2026-04-06T13:32:40+00:00
 DU Team Wins 4th CNLU Cyber Law National Moot Court Competition 2026
 https://www.livelaw.in/lawschool/news/du-team-wins-4th-cnlu-cyber-law-national-moot-court-competition-2026-529205
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : April 6, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-6-2026-529229
 
 [Read on Telegram](https://t.me/livelawindia/108356)
+
+---
+### 2026-04-07T01:02:30+00:00
+WB SIR | Appeals May Take Time, But Can't Order Interim Inclusion Of Deleted Voters Just Because They're Earlier Mapped: Supreme Court
+https://www.livelaw.in/top-stories/wb-sir-appeals-may-take-time-but-cant-allow-interim-inclusion-of-deleted-voters-just-because-theyre-earlier-mapped-supreme-court-529235
+
+[Read on Telegram](https://t.me/livelawindia/108357)
 
 ---
