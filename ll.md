@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-07T04:32:50+00:00*
+*Last Updated: 2026-04-07T10:21:06+00:00*
 
 ---
 
-### 2026-04-07T04:32:50+00:00
-Delay In Recruitment To Specialised Medical Posts Particularly For Mental Healthcare Causes Prejudice To Public: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-hearing-pil-delay-medical-mental-healthcare-recruitment-prolonged-delay-lack-of-amenities-md-psychiatrist-prejudice-to-public-529231
+### 2026-04-07T10:21:06+00:00
+Calcutta High Court Bar Association Suspends Lawyer Over Attack On Judicial Officers In Malda; Calls For De-Enrolment
+https://www.livelaw.in/news-updates/calcutta-hc-bar-association-suspends-lawyer-arrested-over-alleged-involvement-with-unrest-against-judicial-officers-in-bengal-529336
 
-[Read on Telegram](https://t.me/livelawindia/108371)
-
----
-### 2026-04-07T04:47:30+00:00
-Karnataka High Court Stays Case Against Consultant Accused Of Converting Voter Lists Into Excel & Posting On Social Media For A 'Fee'
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-converted-eci-voter-lists-529232
-
-[Read on Telegram](https://t.me/livelawindia/108372)
+[Read on Telegram](https://t.me/livelawindia/108413)
 
 ---
-### 2026-04-07T05:02:30+00:00
-'Bengaluru Traffic Will Teach You Patience': Karnataka High Court Refuses To Quash Road Rage Case Against 23-Year-Old Software Engineer
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-quash-road-rage-case-bengaluru-traffic-529265
+### 2026-04-07T10:35:27+00:00
+NEET PG 2025-26  : Supreme Court To Hear Pleas Challenging Cut-off Reduction On April 28
+https://www.livelaw.in/top-stories/neet-pg-2025-26-supreme-court-to-hear-pleas-challenging-cut-off-reduction-on-april-28-529341
 
-[Read on Telegram](https://t.me/livelawindia/108373)
-
----
-### 2026-04-07T05:15:50+00:00
-Kerala High Court Dismisses Election Petition Against Union Minister Suresh Gopi
-https://www.livelaw.in/high-court/kerala-high-court/suresh-gopi-election-petition-interlocutory-application-529269
-
-[Read on Telegram](https://t.me/livelawindia/108374)
+[Read on Telegram](https://t.me/livelawindia/108414)
 
 ---
-### 2026-04-07T05:17:30+00:00
-Sajjadanashin Of Dargah & Mutawalli Of Waqf Not Same : Supreme Court
-https://www.livelaw.in/top-stories/sajjadanashin-of-dargah-mutawalli-of-waqf-not-same-supreme-court-529270
+### 2026-04-07T10:37:27+00:00
+'Absence Without Leave Cannot Be Treated As Desertion Without Inquiring Into Cause': P&H High Court Grants Relief To CRPF Constable
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-declaration-crpf-constable-deserter-529275
 
-[Read on Telegram](https://t.me/livelawindia/108375)
-
----
-### 2026-04-07T05:18:20+00:00
-Only Parents' Income Relevant To Determine Creamy Layer, Self Or Income Of Spouse Who Is Not Class-I Officer Irrelevant: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-obc-reservation-determination-of-creamy-layer-status-self-income-irrelevant-529262
-
-[Read on Telegram](https://t.me/livelawindia/108376)
+[Read on Telegram](https://t.me/livelawindia/108415)
 
 ---
-### 2026-04-07T05:19:20+00:00
-Divorced Daughter Not Entitled To Family Pension If Divorce Occurred After Pensioner-Father's Death: Tripura High Court
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-divorce-pensioner-death-family-pension-eligibility-revised-pension-rules-529271
+### 2026-04-07T10:39:16+00:00
+Kerala Court Orders Production Of Director Renjith In Sexual Assault Case, Bail Hearing Tomorrow
+https://www.livelaw.in/news-updates/kerala-magistrate-ernakulam-director-renjith-balakrishnan-sexual-harassment-assault-529342
 
-[Read on Telegram](https://t.me/livelawindia/108377)
-
----
-### 2026-04-07T05:20:40+00:00
-Kerala High Court Rejects Plea To Stall Movie Allegedly Inspired By Venjaramoodu Mass Murder Case
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-movie-venjaramoodu-mass-murder-kaalam-paranja-kadha-529272
-
-[Read on Telegram](https://t.me/livelawindia/108378)
+[Read on Telegram](https://t.me/livelawindia/108416)
 
 ---
-### 2026-04-07T05:20:50+00:00
-2026 LiveLaw (SC) 335 |  SYED MOHAMMED GHOUSE PASHA KHADRI versus SYED MOHAMMED ADIL PASHA KHADRI & ORS. ETC
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-335-syed-mohammed-ghouse-pasha-khadri-versus-syed-mohammed-adil-pasha-khadri-ors-etc-529273
+### 2026-04-07T10:43:16+00:00
+False Cases By Wife Leading To Husband's Arrest, 17-Year Separation Amounts To Mental Cruelty: Calcutta High Court Upholds Divorce
+https://www.livelaw.in/high-court/calcutta-high-court/false-criminal-case-by-wife-leading-to-husbands-arrest-17-year-separation-amounts-to-mental-cruelty-calcutta-high-court-529343
 
-[Read on Telegram](https://t.me/livelawindia/108379)
-
----
-### 2026-04-07T05:25:20+00:00
-Sabarimala Reference : Live Updates From Supreme Court 9-Judge Bench
-https://www.livelaw.in/top-stories/sabarimala-reference-live-updates-from-supreme-court-9-judge-bench-529276
-
-[Read on Telegram](https://t.me/livelawindia/108380)
+[Read on Telegram](https://t.me/livelawindia/108417)
 
 ---
-### 2026-04-07T05:32:20+00:00
-'Right To Travel Abroad Is Basic Human Right': P&H High Court Allows Ex-DSP Convicted In Bribery Case To Travel Abroad
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-human-right-exdsp-travel-abroad-529242
+### 2026-04-07T10:53:17+00:00
+Kallahalli Varahaswamy Temple | Karnataka HC Stays Fresh Encroachment Probe Against Parakala Mutt After Tehsildar Report Found No Illegalities
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-fresh-encroachment-probe-parakkala-matha-kallahalli-varahaswamy-temple-529337
 
-[Read on Telegram](https://t.me/livelawindia/108381)
-
----
-### 2026-04-07T05:39:20+00:00
-Woman Keeping Minor As Maid Cannot Be Treated As Her 'Lawful Guardian': Calcutta High Court Quashes Kidnapping Case
-https://www.livelaw.in/high-court/calcutta-high-court/woman-keeping-minor-as-maid-cannot-be-treated-as-lawful-guardian-calcutta-high-court-quashes-kidnapping-case-529279
-
-[Read on Telegram](https://t.me/livelawindia/108382)
+[Read on Telegram](https://t.me/livelawindia/108418)
 
 ---
-### 2026-04-07T05:56:40+00:00
-Does Transgender Persons Amendment Act Affect Persons Already Undergoing Hormone Therapy? Kerala High Court Asks Centre
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-constitutional-validity-transgender-amendment-act-529281
+### 2026-04-07T11:07:16+00:00
+Bombay High Court Orders DNA Testing Of Mortal Remains Of Indian Seafarer Killed In Iranian Missile Strike
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-dna-testing-mortal-remains-indian-seafarer-killed-iranian-missile-strike-529347
 
-[Read on Telegram](https://t.me/livelawindia/108383)
-
----
-### 2026-04-07T06:03:00+00:00
-Claim To Be 'Sole Hereditary Pujari' Of Temple Can't Be Decided In Writ Petition: HP High Court Upholds Rejection Of Man's Plea
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-temple-priest-sole-pujari-writ-petition-529247
-
-[Read on Telegram](https://t.me/livelawindia/108384)
+[Read on Telegram](https://t.me/livelawindia/108419)
 
 ---
-### 2026-04-07T06:06:20+00:00
-S.528 BNSS | Criminal Proceedings Can Be Quashed When Reliable Material Disproves Allegations : Supreme Court
-https://www.livelaw.in/supreme-court/s528-bnss-criminal-proceedings-can-be-quashed-when-reliable-material-disproves-allegations-supreme-court-529282
+### 2026-04-07T11:10:36+00:00
+Judgment Allowing Women Entry In Sabarimala Temple Wrong: Centre Tells Supreme Court In 9-Judge Bench Reference
+https://www.livelaw.in/top-stories/judgment-allowing-women-entry-in-sabarimala-temple-wrong-centre-tells-supreme-court-in-9-judge-bench-reference-529348
 
-[Read on Telegram](https://t.me/livelawindia/108385)
-
----
-### 2026-04-07T06:07:41+00:00
-2026 LiveLaw (SC) 335 | SAJAL BOSE VERSUS THE STATE OF WEST BENGAL AND ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-335-sajal-bose-versus-the-state-of-west-bengal-and-ors-529283
-
-[Read on Telegram](https://t.me/livelawindia/108386)
+[Read on Telegram](https://t.me/livelawindia/108420)
 
 ---
-### 2026-04-07T06:32:11+00:00
-Religion Is Not A Cloak For Enrichment, Poojaris Not Entitled To Monies Deposited In Temple Donation Box As A Right: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-religion-not-enrichment-poojari-no-right-to-hundi-money-529288
+### 2026-04-07T11:21:57+00:00
+West Bengal SIR | 'ECI Could Not Furnish Reasons' : Appellate Tribunal Restores Deleted INC Candidate To Voter List
+https://www.livelaw.in/top-stories/west-bengal-sir-eci-could-not-furnish-reasons-appellate-tribunal-restores-deleted-inc-candidate-to-voter-list-529351
 
-[Read on Telegram](https://t.me/livelawindia/108387)
-
----
-### 2026-04-07T06:53:11+00:00
-Representation of People Act | Election Petition Must Be Personally Presented By Petitioner Before HC: Meghalaya High Court
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-representation-people-act-election-petition-personally-presented-high-court-529285
-
-[Read on Telegram](https://t.me/livelawindia/108388)
+[Read on Telegram](https://t.me/livelawindia/108421)
 
 ---
-### 2026-04-07T07:07:51+00:00
-Whistleblowers Have No Locus In Service Matters Unless They Are Directly Aggrieved: Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-whistleblowers-locus-service-matters-directly-aggrieved-529248
+### 2026-04-07T11:22:57+00:00
+Calcutta High Court Quashes NDPS Case Based Solely On Inadmissible S.67 Statements; Says 14-Year Delay Violates Article 21
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-quashes-ndps-case-based-solely-on-inadmissible-s67-statements-says-14-year-delay-violates-article-21-529332
 
-[Read on Telegram](https://t.me/livelawindia/108389)
+[Read on Telegram](https://t.me/livelawindia/108422)
 
 ---
-### 2026-04-07T07:11:01+00:00
-Delhi High Court Issues Notice On Plea By Former Congress MLA Rajendra Bharti Against Conviction In Cheating Case
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-issues-notice-on-plea-by-former-congress-mla-rajendra-bharti-against-conviction-in-cheating-case-529293
+### 2026-04-07T11:32:57+00:00
+Karnataka High Court Weekly Round-Up: March 30 – April 05, 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-round-up-529305
 
-[Read on Telegram](https://t.me/livelawindia/108390)
+[Read on Telegram](https://t.me/livelawindia/108423)
+
+---
+### 2026-04-07T11:47:47+00:00
+Kerala High Court Seeks Affidavit On Action Taken Over Digital Survey Vigilance Report; Orders Removal Of Misleading Posts On Earlier Order
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-principal-secretary-affidavit-steps-vigilance-enquiry-report-digital-survey-project-529350
+
+[Read on Telegram](https://t.me/livelawindia/108424)
+
+---
+### 2026-04-07T11:53:27+00:00
+RMLNLU To Host 14th Ram Manohar Lohiya Parliamentary Debate From April 10–12
+https://www.livelaw.in/lawschool/competitions/rmlnlu-to-host-14th-ram-manohar-lohiya-parliamentary-debate-from-april-1012-529360
+
+[Read on Telegram](https://t.me/livelawindia/108425)
+
+---
+### 2026-04-07T12:12:27+00:00
+Clubbing Multiple Contracts In One Writ Petition Maintainable Subject To Payment Of Aggregate Court Fee: Andhra Pradesh High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-ruling-clubbing-multiple-contracts-maintainable-writ-payment-aggregate-court-fee-529298
+
+[Read on Telegram](https://t.me/livelawindia/108426)
+
+---
+### 2026-04-07T12:36:28+00:00
+WTO IP Director Antony Taubman Delivers Inaugural Lecture At HNLU's FDP On Emerging IP Jurisprudence
+https://www.livelaw.in/lawschool/news/wto-ip-director-antony-taubman-delivers-inaugural-lecture-at-hnlus-fdp-on-emerging-ip-jurisprudence-529365
+
+[Read on Telegram](https://t.me/livelawindia/108427)
+
+---
+### 2026-04-07T13:01:18+00:00
+'Was Continuously Bullied By Deceased': Gujarat High Court Grants Bail To Teenager Booked For Stabbing Schoolmate
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-bail-teenager-stabbing-schoolmate-529366
+
+[Read on Telegram](https://t.me/livelawindia/108428)
+
+---
+### 2026-04-07T13:02:58+00:00
+Personal Hearing Of Borrower Not Necessary Before Banks Declare Account 'Fraud' : Supreme Court Clarifies 'Rajesh Agarwal' Verdict
+https://www.livelaw.in/supreme-court/personal-hearing-of-borrower-not-necessary-before-banks-declare-account-fraud-supreme-court-clarifies-rajesh-agarwal-verdict-529368
+
+[Read on Telegram](https://t.me/livelawindia/108429)
+
+---
+### 2026-04-07T13:17:18+00:00
+“Show-Cause Issued Without Application Of Mind”: Calcutta High Court Quashes Termination Of LPG Transport Contract
+https://www.livelaw.in/high-court/calcutta-high-court/show-cause-issued-without-application-of-mind-calcutta-high-court-quashes-termination-of-lpg-transport-contract-529345
+
+[Read on Telegram](https://t.me/livelawindia/108430)
+
+---
+### 2026-04-07T13:30:58+00:00
+Cheque Dishonour Complaint Can't Be Quashed At Pre-Trial Stage Once Section 138 NI Act Ingredients Are Met : Supreme Court
+https://www.livelaw.in/supreme-court/cheque-dishonour-complaint-cant-be-quashed-at-pre-trial-stage-once-section-138-ni-act-ingredients-are-met-supreme-court-529372
+
+[Read on Telegram](https://t.me/livelawindia/108431)
+
+---
+### 2026-04-07T13:37:28+00:00
+Magistrate Can Direct Further Investigation Even At Post-Cognizance Stage U/S 173(8) CrPC: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-magistrate-can-direct-further-investigation-even-at-post-cognizance-stage-under-section-1738-read-with-section-1563-crpc-529307
+
+[Read on Telegram](https://t.me/livelawindia/108432)
 
 ---
