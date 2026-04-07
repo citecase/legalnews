@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-07T13:32:47+00:00*
+*Last Updated: 2026-04-07T16:02:52+00:00*
+
+---
+
+### 2026-04-07T16:02:52+00:00
+Male Legal Fellow Vacancy At Tata Institute of Social Sciences (TISS)
+https://www.verdictum.in/job-updates/tata-institute-of-social-sciences-1611558
+
+[Source Link](https://t.me/verdictumlegalupdates/26382)
+
+---
+
+### 2026-04-07T15:33:11+00:00
+No Direct Allegation: Supreme Court Quashes Summoning Order In Cheque Bounce Case Against Director Booked On Ground Of Signing Board Resolution
+https://www.verdictum.in/court-updates/supreme-court/saroj-pandey-v-govt-of-nct-of-delhi-2026-insc-324-summoning-order-cheque-bounce-case-director-board-resolution-1611564
+
+[Source Link](https://t.me/verdictumlegalupdates/26381)
+
+---
+
+### 2026-04-07T14:52:50+00:00
+Madras High Court Orders Enquiry Into Ostracisation Of Family In Village Over Land Dispute
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/prevathi-v-the-district-collector-petition-ostracised-land-dispute-district-collector-sp-enquiry-1611563
+
+[Source Link](https://t.me/verdictumlegalupdates/26380)
+
+---
+
+### 2026-04-07T14:12:28+00:00
+Opening Car Door Without Checking Traffic Is Sheer Negligence: Delhi High Court Upholds MACT Award
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/indusind-general-insurance-company-limited-v-roshan-kumar-sahu-2026dhc2690-opening-car-door-traffic-negligence-1611559
+
+[Source Link](https://t.me/verdictumlegalupdates/26379)
 
 ---
 
@@ -129,38 +161,6 @@ Institute of Chartered Accountants of India Invites Applications For The Posts O
 https://www.verdictum.in/job-updates/institute-of-chartered-accountants-of-india-1611482
 
 [Source Link](https://t.me/verdictumlegalupdates/26363)
-
----
-
-### 2026-04-06T15:32:27+00:00
-Combatised Status Of Cadre Once Conferred By President Extends To Subsequent Posts Within It Without Fresh Declaration: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/union-of-india-ors-v-bn-chaubey-ors-2026dhc2359-db-border-security-force-1611472
-
-[Source Link](https://t.me/verdictumlegalupdates/26362)
-
----
-
-### 2026-04-06T15:03:06+00:00
-No Convincing Evidence: Supreme Court Acquits Ex-IRB Constable Convicted For Superior’s Murder; Grants Liberty To Seek Reinstatement
-https://www.verdictum.in/court-updates/supreme-court/jay-prakash-yadav-v-the-state-of-jharkhand-2026-insc-317-irb-constable-convicted-superior-murder-1611492
-
-[Source Link](https://t.me/verdictumlegalupdates/26361)
-
----
-
-### 2026-04-06T14:32:24+00:00
-Constitutional Courts Can Invoke Doctrine Of Frustration To Dissolve Marriages Under Special Marriage Act Where Performance Becomes Impossible: Patna High Court
-https://www.verdictum.in/court-updates/high-courts/patna-high-court/manoj-kumar-munna-v-nita-bharti-special-marriages-act-dissolution-divorce-1611485
-
-[Source Link](https://t.me/verdictumlegalupdates/26360)
-
----
-
-### 2026-04-06T14:03:03+00:00
-Advocate Needing Time To Understand Impugned Order Can’t Justify Delay Of More Than One Year: Delhi High Court Dismisses Delay Condonation Application
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ajit-kumar-gola-v-state-gnctd-2026dhc2829-advocate-impugned-order-delay-condonation-application-1611484
-
-[Source Link](https://t.me/verdictumlegalupdates/26359)
 
 ---
 
