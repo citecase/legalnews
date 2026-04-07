@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-07T07:52:44+00:00*
+*Last Updated: 2026-04-07T13:32:47+00:00*
+
+---
+
+### 2026-04-07T13:32:47+00:00
+Bed Of Watercourse Vests With State Regardless Of Current Flow: Madras High Court Orders Removal Of Encroachments In Coimbatore Housing Project
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/shruthi-enclave-welfare-association-v-the-state-of-tamil-nadu-2026mhc1368-bed-of-watercourse-vests-with-state-1611557
+
+[Source Link](https://t.me/verdictumlegalupdates/26378)
+
+---
+
+### 2026-04-07T12:53:05+00:00
+Banks Must Furnish Full Forensic Audit Report But Need Not Grant Personal Hearings For Fraud Classification Of Account: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/state-bank-of-india-v-amit-iron-private-limited-2026-insc-323-furnish-full-forensic-audit-report-1611556
+
+[Source Link](https://t.me/verdictumlegalupdates/26377)
+
+---
+
+### 2026-04-07T12:12:24+00:00
+Termination Proceedings Shouldn’t Be Conflated With Blacklisting Proceedings; Blacklisting Must Comport With Principles Of Natural Justice: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/ms-akg-construction-and-developers-pvt-ltd-v-state-of-jharkhand-2026-insc-312-termination-blacklisting-proceedings-1611550
+
+[Source Link](https://t.me/verdictumlegalupdates/26376)
+
+---
+
+### 2026-04-07T11:33:02+00:00
+Right To Go For Trial Is Plaintiff’s Vested Right Which Can’t Be Taken Away Under Procedure Of Summary Judgment: Calcutta High Court
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/ms-s-g-karel-and-sons-jewellers-private-limited-v-ms-madan-lal-agarwalla-jewellers-trial-plaintiffs-vested-right-1611548
+
+[Source Link](https://t.me/verdictumlegalupdates/26375)
+
+---
+
+### 2026-04-07T11:03:21+00:00
+Sabarimala Review| Judgment Was Wrongly Decided & Deserves To Be Declared Wrong In Law: Centre Argues Denominational Autonomy Can't Be Tested On Touchstone Of Individual Dignity
+https://www.verdictum.in/court-updates/supreme-court/sabarimala-review-judgment-was-wrongly-decided-centre-sg-tushar-mehta-denominational-autonomy-touchstone-of-individual-dignity-1611549
+
+[Source Link](https://t.me/verdictumlegalupdates/26374)
+
+---
+
+### 2026-04-07T10:33:09+00:00
+Words Like "Bastard" Commonly Used In Modern Era During Heated Conversations; Not Sufficient To Arouse Prurient Interest: Supreme Court Sets Aside Conviction U/S 294(b) IPC
+https://www.verdictum.in/court-updates/supreme-court/sivakumar-v-state-rep-by-the-inspector-of-police-2026-insc-318-use-of-bastard-alone-not-obscene-us-294b-ipc-1611546
+
+[Source Link](https://t.me/verdictumlegalupdates/26373)
+
+---
+
+### 2026-04-07T09:52:48+00:00
+Complete Reservation In BCD Elections Impermissible: Delhi High Court Rejects Plea To Reserve 6 Seats For Junior Lawyers
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ramesh-chandra-singh-v-bar-council-of-delhi-2026dhc2855-db-plea-reserve-seats-for-junior-lawyers-reject-1611545
+
+[Source Link](https://t.me/verdictumlegalupdates/26372)
+
+---
+
+### 2026-04-07T09:12:46+00:00
+Akhil Bharatiya Adhivakta Parishad Calls For Enactment Of Code Of Conduct For Retired Judges
+https://www.verdictum.in/news/akhil-bharatiya-adhivakta-parishad-resolution-code-of-conduct-former-judges-1611544
+
+[Source Link](https://t.me/verdictumlegalupdates/26371)
+
+---
+
+### 2026-04-07T08:33:05+00:00
+Prima Facie Evidence Of Meetings For Religious Conversion: Gujarat High Court Refuses Plea Of Two Moulvis Seeking Discharge
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/sarfraz-v-state-of-gujarat-2026gujhc22767-refuseal-to-discharge-religious-conversion-case-moulvis-1611541
+
+[Source Link](https://t.me/verdictumlegalupdates/26370)
 
 ---
 
@@ -89,78 +161,6 @@ Advocate Needing Time To Understand Impugned Order Can’t Justify Delay Of More
 https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ajit-kumar-gola-v-state-gnctd-2026dhc2829-advocate-impugned-order-delay-condonation-application-1611484
 
 [Source Link](https://t.me/verdictumlegalupdates/26359)
-
----
-
-### 2026-04-06T13:33:02+00:00
-Plea of Alibi Must Be Established During Trial, Not At Section 319 CrPC Summoning Stage: Rajasthan High Court
-https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/vikram-sharma-v-state-of-rajasthan-2026rj-jp12525s-plea-of-alibi-us-319-crpc-stage-1611483
-
-[Source Link](https://t.me/verdictumlegalupdates/26358)
-
----
-
-### 2026-04-06T12:52:30+00:00
-Sheer Failure Of Both You & Your Administration: Supreme Court Slams West Bengal Chief Secretary, Transfers Probe In Malda Gherao Incident To NIA
-https://www.verdictum.in/court-updates/supreme-court/slams-west-bengal-chief-secretary-transfers-probe-in-malda-gherao-incident-to-nia-1611486
-
-[Source Link](https://t.me/verdictumlegalupdates/26357)
-
----
-
-### 2026-04-06T12:12:29+00:00
-West Bengal SIR| Supreme Court Directs Uniform Procedure For Appellate Tribunals, Asks High Court To Constitute Committee Of Three Former Senior Judges
-https://www.verdictum.in/court-updates/supreme-court/west-bengal-sir-supreme-court-directs-uniform-procedure-for-appellate-tribunals-asks-high-court-to-constitute-committee-of-three-former-senior-judges-1611479
-
-[Source Link](https://t.me/verdictumlegalupdates/26356)
-
----
-
-### 2026-04-06T12:04:28+00:00
-Complicated Question Of Title Beyond Competence Of Mutation Authorities To Decide: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/rajveer-singh-v-board-of-revenue-uttar-pradesh-lucknow-2026ahc59919-title-competence-mutation-authorities-1611478
-
-[Source Link](https://t.me/verdictumlegalupdates/26355)
-
----
-
-### 2026-04-06T11:32:26+00:00
-Employee Who Continued Under CPF Scheme Can’t Claim Parity With One Who Didn’t: Delhi High Court Dismisses Plea Seeking Pension Under CCS Rules
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/cause-title-debasis-das-gupta-v-union-of-india-employee-cpf-scheme-parity-pension-ccs-rules-1611471
-
-[Source Link](https://t.me/verdictumlegalupdates/26354)
-
----
-
-### 2026-04-06T11:02:45+00:00
-Presence Of Employees At Factory Gate Satisfies "Public View" U/S 3 SC/ST Act: Karnataka High Court Refuses To Quash FIR
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/shyam-mehta-v-state-of-karnataka-2026khc-d4997-public-view-under-scst-act-workmans-fear-for-livelihood-1611470
-
-[Source Link](https://t.me/verdictumlegalupdates/26353)
-
----
-
-### 2026-04-06T10:33:03+00:00
-Disproportionate Assets Case Cannot Be Quashed For Delayed Sanction & Departmental Exoneration On Technical Grounds: Telangana High Court
-https://www.verdictum.in/court-updates/high-courts/telangana-high-court/sri-azmeera-kailas-v-the-state-of-telangana-criminal-petition-no10711-of-2024-criminal-proceedings-corruption-cannot-be-quashed-1611466
-
-[Source Link](https://t.me/verdictumlegalupdates/26352)
-
----
-
-### 2026-04-06T10:02:42+00:00
-Supreme Court Asks Union Home Secretary To Appear In Person For Implementation Of Scheme For Installation Of CCTVs In Police Stations
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-asks-union-home-secretary-to-appear-in-person-for-implementation-of-scheme-for-installation-of-cctvs-in-police-stations-1611468
-
-[Source Link](https://t.me/verdictumlegalupdates/26351)
-
----
-
-### 2026-04-06T09:27:40+00:00
-Breaking: Delhi High Court Issues Notice To CBI In Application Seeking Recusal Of Justice Swarna Kanta Sharma In Excise Policy Case: Kejriwal To Argue In Person
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/issues-notice-to-cbi-seeking-recusal-of-justice-swarna-kanta-sharma-excise-policy-case-kejriwal-to-argue-in-person-1611467
-
-[Source Link](https://t.me/verdictumlegalupdates/26350)
 
 ---
 
