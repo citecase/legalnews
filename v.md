@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-08T14:03:12+00:00*
+*Last Updated: 2026-04-08T16:17:26+00:00*
+
+---
+
+### 2026-04-08T16:17:26+00:00
+"Professors Who Have Nothing To Do With Indian Society Have Occupied So Much Space": CJI's Reaction To Apex Court Relying On Nivedita Menon's Articles
+https://www.verdictum.in/court-updates/supreme-court/prof-nivedita-menon-article-justice-dy-chandrachud-joseph-shine-adultry-case-1611641
+
+[Source Link](https://t.me/verdictumlegalupdates/26405)
+
+---
+
+### 2026-04-08T16:02:24+00:00
+DLSA Firozabad Invites Applications For The Post of Legal Aid Defense Counsel
+https://www.verdictum.in/job-updates/district-legal-services-authority-1611634
+
+[Source Link](https://t.me/verdictumlegalupdates/26404)
+
+---
+
+### 2026-04-08T15:33:13+00:00
+Minor Victim Voluntarily Went With The Accused: Calcutta High Court Sets Aside Conviction U/S 363 IPC
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/sk-samad-v-state-of-west-bengal-2026chc-as550-section-363-ipc-kidnapping-1611633
+
+[Source Link](https://t.me/verdictumlegalupdates/26403)
+
+---
+
+### 2026-04-08T15:02:52+00:00
+Sabarimala Pilgrimage Must Follow ‘Carrying Capacity’ Principle: Kerala High Court Upholds Daily Cap of 75,000 Devotees & Digital Queue System
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/suo-motu-v-state-of-kerala-wpc-no-8529-of-2026-caps-daily-devotees-at-75000-sabarimala-pilgrimage-1611632
+
+[Source Link](https://t.me/verdictumlegalupdates/26402)
+
+---
+
+### 2026-04-08T14:32:30+00:00
+Can’t Run Mini Trial In Revision: Gujarat High Court Denies Relief Bharuch Forced Conversion Case
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/yusufbhai-jivanbhai-patel-mahendrabhai-jivabhai-vasava-v-state-of-gujarat-2026gujhc23504-forced-conversion-1611631
+
+[Source Link](https://t.me/verdictumlegalupdates/26401)
 
 ---
 
@@ -121,46 +161,6 @@ Bar On Payment Of Gratuity As Per Rule 69(1)(c) Of Central Civil Services (Pensi
 https://www.verdictum.in/court-updates/supreme-court/bikram-chand-rana-v-himachal-pradesh-road-transport-corporation-2026-insc-326-bar-gratuity-departmental-proceedings-1611598
 
 [Source Link](https://t.me/verdictumlegalupdates/26386)
-
----
-
-### 2026-04-08T05:35:00+00:00
-SC/ST/OBC PwD Candidates Equally Entitled To Compete For Unreserved PwD Posts; Meritorious Reserved Candidates Preferred: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/the-west-bengal-state-electricity-transmission-co-ltd-v-dipendu-biswas-2026-insc-330-scstobc-pwd-candidates-1611595
-
-[Source Link](https://t.me/verdictumlegalupdates/26385)
-
----
-
-### 2026-04-08T05:02:18+00:00
-Claimants Didn’t Sign Joint Memo; Only Their Advocate Did: Karnataka High Court Sets Aside Lok Adalat Award
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/smt-shaila-v-the-managing-director-icici-lombard-gic-ltd-award-lok-adalat-claimants-joint-memo-1611592
-
-[Source Link](https://t.me/verdictumlegalupdates/26384)
-
----
-
-### 2026-04-08T04:33:07+00:00
-Second Marriage By Muslim Man Not Bigamy Under IPC: Madhya Pradesh High Court
-https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/mohd-arif-ahmad-jahagir-khan-v-the-state-of-madhya-pradesh-2026mphc-jbp22473-second-marriage-muslim-man-not-bigamy-ipc-1611565
-
-[Source Link](https://t.me/verdictumlegalupdates/26383)
-
----
-
-### 2026-04-07T16:02:52+00:00
-Male Legal Fellow Vacancy At Tata Institute of Social Sciences (TISS)
-https://www.verdictum.in/job-updates/tata-institute-of-social-sciences-1611558
-
-[Source Link](https://t.me/verdictumlegalupdates/26382)
-
----
-
-### 2026-04-07T15:33:11+00:00
-No Direct Allegation: Supreme Court Quashes Summoning Order In Cheque Bounce Case Against Director Booked On Ground Of Signing Board Resolution
-https://www.verdictum.in/court-updates/supreme-court/saroj-pandey-v-govt-of-nct-of-delhi-2026-insc-324-summoning-order-cheque-bounce-case-director-board-resolution-1611564
-
-[Source Link](https://t.me/verdictumlegalupdates/26381)
 
 ---
 
