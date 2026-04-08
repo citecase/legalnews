@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-07T16:02:52+00:00*
+*Last Updated: 2026-04-08T07:53:05+00:00*
+
+---
+
+### 2026-04-08T07:53:05+00:00
+Presumption U/S 139 N.I. Act Can’t Be Rebutted At Pre-Trial Stage; Defence Of No Enforceable Debt To Be Tested During Trial: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/renuka-v-state-of-maharashtra-anr-2026-insc-327-section-138-ni-act-1611611
+
+[Source Link](https://t.me/verdictumlegalupdates/26389)
+
+---
+
+### 2026-04-08T07:14:24+00:00
+Voluntary Retirement Notice Effective By Operation Of Law If Not Refused Within Stipulated Period: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/uco-bank-v-sk-shrivastava-2026-insc-328-voluntary-retirement-notice-effective-by-operation-1611606
+
+[Source Link](https://t.me/verdictumlegalupdates/26388)
+
+---
+
+### 2026-04-08T06:31:23+00:00
+Temple Servants Cannot Claim “Lion’s Share” Of Deity Wealth For Personal Luxury; Hundi Collection At Public Temples Are Public Trust: Madras High Court
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/p-seethalakshmi-v-the-commissioner-hrce-department-wamd-no-25-of-2025-hundi-collection-temple-servants-lions-share-1611599
+
+[Source Link](https://t.me/verdictumlegalupdates/26387)
+
+---
+
+### 2026-04-08T06:03:21+00:00
+Bar On Payment Of Gratuity As Per Rule 69(1)(c) Of Central Civil Services (Pension) Rules Operates As Long As Either Departmental Or Judicial Proceedings Are Pending: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/bikram-chand-rana-v-himachal-pradesh-road-transport-corporation-2026-insc-326-bar-gratuity-departmental-proceedings-1611598
+
+[Source Link](https://t.me/verdictumlegalupdates/26386)
+
+---
+
+### 2026-04-08T05:35:00+00:00
+SC/ST/OBC PwD Candidates Equally Entitled To Compete For Unreserved PwD Posts; Meritorious Reserved Candidates Preferred: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/the-west-bengal-state-electricity-transmission-co-ltd-v-dipendu-biswas-2026-insc-330-scstobc-pwd-candidates-1611595
+
+[Source Link](https://t.me/verdictumlegalupdates/26385)
+
+---
+
+### 2026-04-08T05:02:18+00:00
+Claimants Didn’t Sign Joint Memo; Only Their Advocate Did: Karnataka High Court Sets Aside Lok Adalat Award
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/smt-shaila-v-the-managing-director-icici-lombard-gic-ltd-award-lok-adalat-claimants-joint-memo-1611592
+
+[Source Link](https://t.me/verdictumlegalupdates/26384)
+
+---
+
+### 2026-04-08T04:33:07+00:00
+Second Marriage By Muslim Man Not Bigamy Under IPC: Madhya Pradesh High Court
+https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/mohd-arif-ahmad-jahagir-khan-v-the-state-of-madhya-pradesh-2026mphc-jbp22473-second-marriage-muslim-man-not-bigamy-ipc-1611565
+
+[Source Link](https://t.me/verdictumlegalupdates/26383)
 
 ---
 
@@ -105,62 +161,6 @@ Prima Facie Evidence Of Meetings For Religious Conversion: Gujarat High Court Re
 https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/sarfraz-v-state-of-gujarat-2026gujhc22767-refuseal-to-discharge-religious-conversion-case-moulvis-1611541
 
 [Source Link](https://t.me/verdictumlegalupdates/26370)
-
----
-
-### 2026-04-07T07:52:44+00:00
-Operating Surgeon Is The Best Judge: Supreme Court Quashes Criminal Proceedings Against Surgeon Over Alleged Lack of Specific Consent For Orchidectomy
-https://www.verdictum.in/court-updates/supreme-court/dr-s-balagopal-v-state-of-tamil-nadu-2026-insc-319-operating-surgeon-best-is-the-judge-orchidectomy-1611538
-
-[Source Link](https://t.me/verdictumlegalupdates/26369)
-
----
-
-### 2026-04-07T07:13:02+00:00
-Failure To Commence Industrial Operations Within Time Bars Equitable Relief: Supreme Court Upholds Cancellation Of 33-Acre Noida Industrial Plot
-https://www.verdictum.in/court-updates/supreme-court/ms-piaggio-vehicles-pvt-ltd-v-state-of-up-2026-insc-321-33-acre-noida-industrial-plot-1611536
-
-[Source Link](https://t.me/verdictumlegalupdates/26368)
-
----
-
-### 2026-04-07T06:32:41+00:00
-Courts May Invoke Inherent Powers To Prevent Injustice Where Unimpeachable Evidence Displaces Prosecution’s Case: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/sajal-bose-v-the-state-of-west-bengal-2026-insc-322-unimpeachable-evidence-displaces-prosecutions-case-1611529
-
-[Source Link](https://t.me/verdictumlegalupdates/26367)
-
----
-
-### 2026-04-07T05:52:19+00:00
-Disturbing Pattern Of Administrative Apathy & Regulatory Inaction: Supreme Court Issues Stringent Directions To Ensure Strict Compliance To Save Jojari River
-https://www.verdictum.in/court-updates/supreme-court/in-re-2-million-lives-at-risk-contamination-in-jojari-river-rajasthan-2026-insc-316-issues-stringent-directions-1611525
-
-[Source Link](https://t.me/verdictumlegalupdates/26366)
-
----
-
-### 2026-04-07T05:12:38+00:00
-Public Statements Made By Chief Minister Not Legally Enforceable Unless Formally Implemented: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/government-of-nct-of-delhi-v-najma-ors-2026dhc2834-db-chief-minister-1611521
-
-[Source Link](https://t.me/verdictumlegalupdates/26365)
-
----
-
-### 2026-04-07T04:32:46+00:00
-Married Daughter Separated From Husband Not Entitled To Family Pension Under State Civil Services Pension Rules: Tripura High Court
-https://www.verdictum.in/court-updates/high-courts/tripura-high-court/smt-ujjala-rani-paul-v-agartala-municipal-corporation-married-daughter-separated-husband-family-pension-1611493
-
-[Source Link](https://t.me/verdictumlegalupdates/26364)
-
----
-
-### 2026-04-06T16:02:49+00:00
-Institute of Chartered Accountants of India Invites Applications For The Posts Of Director, Executive Officer (Legal)
-https://www.verdictum.in/job-updates/institute-of-chartered-accountants-of-india-1611482
-
-[Source Link](https://t.me/verdictumlegalupdates/26363)
 
 ---
 
