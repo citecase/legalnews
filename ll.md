@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-08T10:55:50+00:00*
+*Last Updated: 2026-04-08T13:39:52+00:00*
 
 ---
 
-### 2026-04-08T10:55:50+00:00
-2026 LiveLaw (SC) 343 | SUSHILA & ORS. VERSUS SUDHAKAR & ANR
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-343-sushila-ors-versus-sudhakar-anr-529518
-
-[Read on Telegram](https://t.me/livelawindia/108511)
-
----
-### 2026-04-08T11:16:20+00:00
-NLIU Bhopal Team Wins 2nd Symbiosis Moot Court Competition 2026
-https://www.livelaw.in/lawschool/news/nliu-bhopal-team-wins-2nd-symbiosis-moot-court-competition-2026-529520
-
-[Read on Telegram](https://t.me/livelawindia/108512)
-
----
-### 2026-04-08T11:19:40+00:00
-How Can Non-Devotees Of Lord Ayyappa Challenge Sabarimala Custom? Supreme Court Asks
-https://www.livelaw.in/top-stories/how-can-non-devotees-of-lord-ayyappa-challenge-sabarimala-custom-supreme-court-asks-529521
-
-[Read on Telegram](https://t.me/livelawindia/108513)
-
----
-### 2026-04-08T11:29:40+00:00
-'Legal, Ethical Duty To Maintain Wife & Kids': Gujarat High Court Upholds Husband's 660-Day Jail Term Over Failure To Pay Maintenance
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-husband-660-day-jail-term-failure-to-pay-maintenance-529526
-
-[Read on Telegram](https://t.me/livelawindia/108514)
-
----
-### 2026-04-08T11:35:40+00:00
-Authorities Cannot Direct Removal Of "National" From Trust Name Under Maharashtra Public Trusts Act: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-authorities-maharashtra-public-trusts-act-jurisdiction-trust-529527
-
-[Read on Telegram](https://t.me/livelawindia/108515)
-
----
-### 2026-04-08T11:43:00+00:00
-Baseless Allegations Of Wife's Prior Marriage No Bar To Relief Under DV Act; Wife Entitled To Maintenance: HP High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-allegation-prior-marriage-without-proof-529485
-
-[Read on Telegram](https://t.me/livelawindia/108516)
-
----
-### 2026-04-08T11:46:40+00:00
-Kerala High Court Appoints Retd Justice VG Arun As Chairman Of High Power Committee For Implementing Sabarimala Master Plan
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-justice-vg-arun-chairman-high-power-committee-sabarimala-master-plan-529533
-
-[Read on Telegram](https://t.me/livelawindia/108517)
-
----
-### 2026-04-08T11:55:11+00:00
-Sabarimala Reference | Judicial Review Over Superstitious Practices Not Barred, Says Supreme Court In Hearing
-https://www.livelaw.in/top-stories/sabarimala-reference-courts-can-interfere-with-superstitious-practices-supreme-court-in-hearing-529534
-
-[Read on Telegram](https://t.me/livelawindia/108518)
-
----
-### 2026-04-08T12:01:11+00:00
-CCS Pension Rules | Gratuity Can Be Withheld During Pendency Of Criminal Or Disciplinary Proceedings Against Employee : Supreme Court
-https://www.livelaw.in/supreme-court/ccs-pension-rules-gratuity-can-be-withheld-during-pendency-of-criminal-or-disciplinary-proceedings-supreme-court-529536
-
-[Read on Telegram](https://t.me/livelawindia/108519)
-
----
-### 2026-04-08T12:03:11+00:00
-2026 LiveLaw (SC) 344 | BIKRAM CHAND RANA VERSUS HIMACHAL PRADESH ROAD TRANSPORT CORPORATION
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-344-bikram-chand-rana-versus-himachal-pradesh-road-transport-corporation-529537
-
-[Read on Telegram](https://t.me/livelawindia/108520)
-
----
-### 2026-04-08T12:06:51+00:00
-S. 27 Evidence Act | Recovery Of Weapon Meaningless Without Proof Linking It To Crime : Supreme Court
-https://www.livelaw.in/supreme-court/s-27-evidence-act-recovery-of-weapon-meaningless-without-proof-linking-it-to-crime-supreme-court-529539
-
-[Read on Telegram](https://t.me/livelawindia/108521)
-
----
-### 2026-04-08T12:07:31+00:00
-2026 LiveLaw (SC) 345 | GAUTAM SATNAMI VERSUS STATE OF CHHATTISGARH
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-345-gautam-satnami-versus-state-of-chhattisgarh-529540
-
-[Read on Telegram](https://t.me/livelawindia/108522)
-
----
-### 2026-04-08T12:32:31+00:00
-Merely Being Director Or MD Does Not Attract Liability Under Drug And Cosmetics Act Without Specific Allegations: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-merely-being-director-or-managing-director-does-not-attract-liability-under-drug-and-cosmetics-act-without-specific-allegations-529457
-
-[Read on Telegram](https://t.me/livelawindia/108523)
-
----
-### 2026-04-08T12:40:42+00:00
-'Crores Of Public Money Spent': Kerala High Court Directs Audit Of Vigilance Tribunals After Noting Only 5 Cases Disposed Of Annually
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-performance-audit-vigilance-tribunals-529548
-
-[Read on Telegram](https://t.me/livelawindia/108524)
-
----
-### 2026-04-08T12:42:42+00:00
-Assam College Employees Act | Family Pension Available To Employees Retired/Deceased Before 2005, Subject To CPF Refund: Gauhati HC
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-hc-s8-assam-college-employees-act-pension-family-pension-available-employees-retire-decease-before-2005-cpf-refund-529400
-
-[Read on Telegram](https://t.me/livelawindia/108525)
-
----
-### 2026-04-08T12:49:42+00:00
-Bombay High Court Restrains Filmmaker Santosh Kumar From Making Defamatory Comments Against Aditya Dhar Over 'Dhurandhar' Script
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-restrains-filmmaker-santosh-kumar-from-making-defamatory-comments-against-aditya-dhar-over-dhurandhar-script-529550
-
-[Read on Telegram](https://t.me/livelawindia/108526)
-
----
-### 2026-04-08T12:57:22+00:00
-Congress Leader Pawan Khera Moves Telangana High Court Seeking Anticipatory Bail In FIR By Assam CM's Wife Over Passport Row
-https://www.livelaw.in/high-court/telangana-high-court/pawan-khera-telangana-high-court-anticipatory-bail-in-fir-by-assam-cms-wife-529551
-
-[Read on Telegram](https://t.me/livelawindia/108527)
-
----
-### 2026-04-08T13:16:22+00:00
-South Delhi Consumer  Commission Dismisses Medical Negligence Claim Against Max Hospital; Holds Insurer Liable For Deficiency Over Failure To Provide Repudiation Letter
-https://www.livelaw.in/consumer-cases/south-delhi-consumer-commission-dismisses-medical-negligence-claim-against-max-hospital-holds-insurer-liable-for-deficiency-over-failure-to-provide-repudiation-letter-529554
-
-[Read on Telegram](https://t.me/livelawindia/108528)
-
----
-### 2026-04-08T13:33:02+00:00
-Recruitment | Challenge To Marks Barred By Constructive Res Judicata Where Party Accepts Remand On Limited Issue: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-challenge-award-marks-barred-constructive-res-judicata-party-settled-limited-remand-529486
-
-[Read on Telegram](https://t.me/livelawindia/108529)
-
----
 ### 2026-04-08T13:39:52+00:00
 Allahabad High Court Upholds 1999 Quadruple Murder Conviction Based On Minor Sons' Testimony Against Mother, Her 'Lover'
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-1999-quadruple-murder-conviction-minor-sons-testimony-mother-lover-529556
 
 [Read on Telegram](https://t.me/livelawindia/108530)
+
+---
+### 2026-04-08T13:48:02+00:00
+Bail Cannot Be Denied Under UAPA On Uncorroborated Approver Testimony & Telephonic Links: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-bail-cant-be-refused-in-uapa-matters-where-prosecution-relies-on-uncorroborated-approver-statements-without-recovery-529552
+
+[Read on Telegram](https://t.me/livelawindia/108531)
+
+---
+### 2026-04-08T13:48:12+00:00
+'Media Must Avoid Sensationalism': Delhi Court Grants Ex Parte Injunction To Manoj Sandesara Over Sterling Biotech Reporting
+https://www.livelaw.in/news-updates/sterling-biotech-reporting-media-avoid-sensationalism-529557
+
+[Read on Telegram](https://t.me/livelawindia/108532)
+
+---
+### 2026-04-08T14:02:32+00:00
+Allahabad High Court Upholds Retrospective Application Of Payment Of Bonus Amendment Act, 2015
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-upholds-retrospective-applicability-payment-bonus-amendment-act2015-529487
+
+[Read on Telegram](https://t.me/livelawindia/108533)
+
+---
+### 2026-04-08T14:15:12+00:00
+S. 482 CrPC | Successive Quashing Petitions Not Maintainable On Grounds Available Earlier But Abandoned: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-482-crpc-successive-quashing-petitions-not-maintainable-529564
+
+[Read on Telegram](https://t.me/livelawindia/108534)
+
+---
+### 2026-04-08T14:30:02+00:00
+Rehabilitation Under Statutory Scheme Not Punitive: Uttarakhand HC Upholds Eviction Notices To Rispana Riverbed Basti Residents
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-rehabilitation-statutory-scheme-punitive-eviction-notices-529568
+
+[Read on Telegram](https://t.me/livelawindia/108535)
+
+---
+### 2026-04-08T14:30:12+00:00
+Sabarimala Reference | Centre Questions Verdicts Decriminalising Adultery & Homosexuality For Applying 'Constitutional Morality'
+https://www.livelaw.in/top-stories/sabarimala-reference-centre-questions-verdicts-decriminalising-adultery-homosexuality-for-applying-constitutional-morality-529567
+
+[Read on Telegram](https://t.me/livelawindia/108536)
+
+---
+### 2026-04-08T14:31:52+00:00
+Rajasthan Bar Council Polls: Supervisory Committee Orders Ballots Without Senior Advocate Categorisation
+https://www.livelaw.in/news-updates/rajasthan-bar-council-polls-supervisory-committee-orders-ballots-senior-advocate-categorisation-529569
+
+[Read on Telegram](https://t.me/livelawindia/108537)
+
+---
+### 2026-04-08T14:33:02+00:00
+Regulating Intimacy Or Violating Privacy? A Constitutional Challenge To Mandatory Live-In Registration Under Gujarat Uniform Civil Code 2026
+https://www.livelaw.in/articles/constitutional-challenge-livein-registration-gujarat-uniform-civil-code2026-529402
+
+[Read on Telegram](https://t.me/livelawindia/108538)
+
+---
+### 2026-04-08T14:47:22+00:00
+Overdraft Facility Not Per Se Commercial Transaction: Delhi State Commission Sets Aside Dismissal Of Consumer Complaint
+https://www.livelaw.in/consumer-cases/overdraft-facility-not-per-se-commercial-transaction-delhi-state-commission-sets-aside-dismissal-of-consumer-complaint-529559
+
+[Read on Telegram](https://t.me/livelawindia/108539)
+
+---
+### 2026-04-08T15:07:22+00:00
+Delhi High Court Asks Nursing Council To Consider Setting Up Grievance Redressal Mechanism For Nurses
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-asks-nursing-council-to-consider-setting-up-grievance-redressal-mechanism-for-nurses-529458
+
+[Read on Telegram](https://t.me/livelawindia/108540)
+
+---
+### 2026-04-08T15:44:12+00:00
+Rajasthan HC Lawyer Among First Three Civilian Indians to Complete 100-Metre Deep-Sea Dive In Lakshadweep
+https://www.livelaw.in/news-updates/rajasthan-high-court-lawyer-three-civilian-indians-complete-deepsea-dive-lakshadweep-529578
+
+[Read on Telegram](https://t.me/livelawindia/108541)
+
+---
+### 2026-04-08T15:50:12+00:00
+HP High Court Quashes Dy Commissioners' Power To Modify Panchayat Reservation Roster Beyond Article 243D Of Constitution
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-discretion-alter-panchayat-roster-contrary-article243d-529580
+
+[Read on Telegram](https://t.me/livelawindia/108542)
+
+---
+### 2026-04-08T15:53:22+00:00
+'Swatantryaveer' Title Given To Savarkar Not By Govt But By A Writer : Savarkar's Grandnephew Tells Pune Court
+https://www.livelaw.in/high-court/bombay-high-court/swatantryaveer-title-given-to-savarkar-not-by-govt-savarkars-grandnephew-tells-pune-court-rahul-gandhi-defamation-case-529581
+
+[Read on Telegram](https://t.me/livelawindia/108543)
+
+---
+### 2026-04-08T15:57:22+00:00
+Karnataka High Court Issues Notice Over Custodial Death Of 24-Year-Old, But Refuses To Issue Blanket Directions In PIL Seeking Protocol
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-pucl-custodial-death-blanket-directions-torture-prevention-protocol-529582
+
+[Read on Telegram](https://t.me/livelawindia/108544)
+
+---
+### 2026-04-08T16:21:02+00:00
+When Sentences Of Imprisonment For Multiple Offences Run Concurrently, Fine Cannot Be Imposed Separately : Supreme Court
+https://www.livelaw.in/supreme-court/when-sentences-of-imprisonment-for-multiple-offences-run-concurrently-fine-cannot-be-imposed-separately-supreme-court-529584
+
+[Read on Telegram](https://t.me/livelawindia/108545)
+
+---
+### 2026-04-08T16:23:05+00:00
+2026 LiveLaw (SC) 346 | HEM RAJ VERSUS THE STATE OF HIMACHAL PRADESH
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-346-hem-raj-versus-the-state-of-himachal-pradesh-529585
+
+[Read on Telegram](https://t.me/livelawindia/108546)
+
+---
+### 2026-04-08T16:28:46+00:00
+Don't Take Child Trafficking Lightly, Gangs Operating Across Country : Supreme Court Tells State Home Secretaries
+https://www.livelaw.in/top-stories/dont-take-child-trafficking-lightly-gangs-operating-across-country-supreme-court-tells-state-home-secretaries-529587
+
+[Read on Telegram](https://t.me/livelawindia/108547)
+
+---
+### 2026-04-08T16:42:27+00:00
+'No Bias Can Be Attached To Justice Swarana Kanta Sharma' : CBI Opposes Kejriwal's Recusal Application
+https://www.livelaw.in/high-court/delhi-high-court/no-bias-can-be-attached-to-justice-swarana-kanta-sharma-cbi-opposes-kejriwals-recusal-application-529590
+
+[Read on Telegram](https://t.me/livelawindia/108548)
+
+---
+### 2026-04-08T17:12:27+00:00
+Supreme Court Daily Round-Up : April 8, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-8-2026-529591
+
+[Read on Telegram](https://t.me/livelawindia/108549)
 
 ---
