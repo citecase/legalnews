@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-07T15:17:42+00:00*
+*Last Updated: 2026-04-07T15:18:02+00:00*
 
 ---
 
-### 2026-04-07T15:17:42+00:00
-Ex-Cricketer Kiran More Moves Gujarat High Court Against Disqualification To Contest Baroda Cricket Association Elections
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-kiran-more-baroda-cricket-association-election-529390
-
-[Read on Telegram](https://t.me/livelawindia/108440)
-
----
 ### 2026-04-07T15:18:02+00:00
 No 'Mens Rea'; Merely Filing 'False' Cases Against Husband Not Abetment Of Suicide: Allahabad HC Grants Relief To Wife
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-mens-rea-false-cases-husband-abetment-suicide-relief-wife-529391
@@ -144,5 +137,12 @@ Madhya Pradesh State Legal Services Authority Conducts Mega Legal Outreach Camps
 https://www.livelaw.in/news-updates/madhya-pradesh-state-legal-services-authority-conducts-mega-legal-outreach-camps-across-all-51-districts-529423
 
 [Read on Telegram](https://t.me/livelawindia/108459)
+
+---
+### 2026-04-08T02:32:30+00:00
+MNLU Nagpur PhD Admissions: Bombay High Court Closes Plea After Nomadic Tribe Category Candidate Granted Admission
+https://www.livelaw.in/high-court/bombay-high-court/mnlu-nagpur-phd-admissions-bombay-high-court-closes-plea-after-nomadic-tribe-category-candidate-granted-admission-529424
+
+[Read on Telegram](https://t.me/livelawindia/108460)
 
 ---
