@@ -1,128 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-09T09:48:08+00:00*
+*Last Updated: 2026-04-09T13:22:52+00:00*
 
 ---
 
-### 2026-04-09T09:48:08+00:00
-'Mandatory Tender Conditions Cannot Be Relaxed': Patna HC Sets Aside Technical Qualification Of Bidder For Non-Submission Of Required Document
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-technical-qualification-bidder-nonsubmission-required-document-529638
-
-[Read on Telegram](https://t.me/livelawindia/108590)
-
----
-### 2026-04-09T10:03:09+00:00
-Telangana High Court Reserves Order On Pawan Khera's Anticipatory Bail Plea In FIR By Assam CM's Wife Over Passport Row
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-pawan-khera-anticipatory-bail-petition-fir-assam-cms-wife-passport-row-529667
-
-[Read on Telegram](https://t.me/livelawindia/108591)
-
----
-### 2026-04-09T10:23:58+00:00
-'Trial Is Going On, Look At How It Is Being Recreated': Karnataka High Court Flags Sensational Media Coverage Of Renukaswamy Murder Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-raps-media-sensational-coverage-darshan-renukaswamy-murder-case-529672
-
-[Read on Telegram](https://t.me/livelawindia/108592)
-
----
-### 2026-04-09T10:38:18+00:00
-'Abandonment Of Service Not Voluntary Retirement', Supreme Court Denies Pensionary Benefits To SBI Clerk
-https://www.livelaw.in/supreme-court/abandonment-of-service-not-voluntary-retirement-supreme-court-denies-pensionary-benefits-to-sbi-clerk-529677
-
-[Read on Telegram](https://t.me/livelawindia/108593)
-
----
-### 2026-04-09T10:39:19+00:00
-2026 LiveLaw (SC) 350 | K.G. SESHADRI VERSUS THE TRUSTEES OF STATE BANK OF INDIA AND ANOTHER
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-350-kg-seshadri-versus-the-trustees-of-state-bank-of-india-and-another-529679
-
-[Read on Telegram](https://t.me/livelawindia/108594)
-
----
-### 2026-04-09T10:40:39+00:00
-Sampradayas Attached To Temple Must Be Followed While Visiting It: Supreme Court In Sabarimala Reference Hearing
-https://www.livelaw.in/top-stories/sampradayas-attached-to-temple-must-be-followed-while-visiting-it-supreme-court-in-sabarimala-reference-hearing-529681
-
-[Read on Telegram](https://t.me/livelawindia/108595)
-
----
-### 2026-04-09T10:47:39+00:00
-Star Health Data Breach | Madras High Court Dismisses Plea By Cyber Security Expert Seeking Probe Into Security Lapses
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-star-health-data-breach-security-lapse-probe-plea-dismissed-529669
-
-[Read on Telegram](https://t.me/livelawindia/108596)
-
----
-### 2026-04-09T10:54:39+00:00
-'Ordinary Policemen Directing Content Take Down': Kunal Kamra Tells Bombay High Court In Plea Against IT Rules Amendment, SAHYOG Portal
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-kunal-kamra-content-take-down-sahyog-portal-it-rules-529685
-
-[Read on Telegram](https://t.me/livelawindia/108597)
-
----
-### 2026-04-09T11:22:55+00:00
-Continued Detention Of Approver Who Complied With Pardon Conditions May Violate Article 21; S.306(4)(b) CrPC No Bar: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-continued-detention-of-approver-despite-compliance-with-pardon-conditions-may-violate-article-21-right-to-personal-liberty-529670
-
-[Read on Telegram](https://t.me/livelawindia/108598)
-
----
-### 2026-04-09T11:24:15+00:00
-'Sweeping Generalisation': Telangana High Court Rejects PIL Claiming 70-90% Reservation In Municipalities, Finds No Supportive Data
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-wardwise-reservation-notifications-529689
-
-[Read on Telegram](https://t.me/livelawindia/108599)
-
----
-### 2026-04-09T11:24:34+00:00
-Reducing Medical Reimbursement Without Disclosing Policy Terms Is Deficiency In Service: Chandigarh Commission
-https://www.livelaw.in/consumer-cases/reducing-medical-reimbursement-without-disclosing-policy-terms-is-deficiency-in-service-chandigarh-commission-529690
-
-[Read on Telegram](https://t.me/livelawindia/108600)
-
----
-### 2026-04-09T11:35:54+00:00
-Excluding Other Denominations From Temples Will Affect Hinduism : Supreme Court In Sabarimala Reference Hearing
-https://www.livelaw.in/top-stories/excluding-other-denominations-from-temples-will-affect-hinduism-supreme-court-in-sabarimala-reference-hearing-529692
-
-[Read on Telegram](https://t.me/livelawindia/108601)
-
----
-### 2026-04-09T11:51:04+00:00
-PIL In Bombay High Court Seeks Rules Under Anti-Superstition Act After 'Godman' Ashok Kharat Case
-https://www.livelaw.in/high-court/bombay-high-court/pil-bombay-high-court-implementation-maharashtras-anti-superstition-act-529699
-
-[Read on Telegram](https://t.me/livelawindia/108602)
-
----
-### 2026-04-09T12:07:44+00:00
-S.107 CrPC Invocable Only For Threat To Public Peace, Not Over Individual Fear: Patna High Court Quashes Preventive Proceedings
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-individuals-insufficient-trigger-preventive-action-529651
-
-[Read on Telegram](https://t.me/livelawindia/108603)
-
----
-### 2026-04-09T12:17:24+00:00
-S.197 CrPC Protection Applies Even If Public Servant Exceeded Powers While Discharging Official Duty: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-shield-against-false-prosecution-without-sanction-even-if-public-servant-exceeded-powers-while-discharging-official-duties-section-197-crpc-protection-applies-529674
-
-[Read on Telegram](https://t.me/livelawindia/108604)
-
----
-### 2026-04-09T13:06:11+00:00
-Stranger Affected By Interim Order Entitled To Impleadment In Writ Proceedings : Supreme Court
-https://www.livelaw.in/supreme-court/stranger-affected-by-interim-order-entitled-to-impleadment-in-writ-proceedings-supreme-court-529705
-
-[Read on Telegram](https://t.me/livelawindia/108605)
-
----
-### 2026-04-09T13:19:12+00:00
-Law Researcher Vacancy At Debts Recovery Appellate Tribunal, Delhi
-https://www.livelaw.in/job-updates/law-researcher-vacancy-at-debts-recovery-appellate-tribunal-delhi-529707
-
-[Read on Telegram](https://t.me/livelawindia/108606)
-
----
 ### 2026-04-09T13:22:52+00:00
 Writ Court Cannot Examine Validity Of Revenue Mutations Unless Explicitly Challenged: J&K&L High Court
 https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-writ-court-cannot-examine-validity-of-revenue-mutations-or-comment-on-their-attestation-unless-explicitly-challenged-529697
@@ -142,5 +23,124 @@ Thiruparankundram Deepam Row: Madras High Court Dismisses Plea By Hindu Dharma P
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-thiruparankundram-deepam-row-hindu-dharma-parishad-plea-dismissed-529712
 
 [Read on Telegram](https://t.me/livelawindia/108609)
+
+---
+### 2026-04-09T13:55:52+00:00
+'Undesirable For National Security': Calcutta HC Upholds Dismissal Of BSF Personnel Accused Of Taking Bribes To Declare Candidates 'Fit'
+https://www.livelaw.in/high-court/calcutta-high-court/undesirable-for-national-security-calcutta-hc-upholds-dismissal-of-bsf-personnel-accused-of-taking-bribes-to-declare-candidates-fit-529713
+
+[Read on Telegram](https://t.me/livelawindia/108610)
+
+---
+### 2026-04-09T13:57:33+00:00
+'Only Prima Facie Case Is Seen At Charge-Framing Stage': Allahabad HC Refuses Relief To Book Editor Accused Of Insulting Quran
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-prima-facie-charge-stage-book-editor-insult-quran-529714
+
+[Read on Telegram](https://t.me/livelawindia/108611)
+
+---
+### 2026-04-09T14:31:42+00:00
+'Don't Eat Up Court's Time To Show Off Skills' :  Supreme Court Cautions Lawyers For Arguing Against Settled Precedents
+https://www.livelaw.in/supreme-court/dont-eat-up-courts-time-to-show-off-skills-supreme-court-cautions-lawyers-for-arguing-against-settled-precedents-529722
+
+[Read on Telegram](https://t.me/livelawindia/108612)
+
+---
+### 2026-04-09T14:33:03+00:00
+2026 LiveLaw (SC) 351 | ROMA AHUJA VERSUS THE STATE AND ANOTHER
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-351-roma-ahuja-versus-the-state-and-another-529723
+
+[Read on Telegram](https://t.me/livelawindia/108613)
+
+---
+### 2026-04-09T14:33:22+00:00
+Improbable For Elderly In-Laws Suffering From Medical Ailments To Assault Daughter-In-Law: Calcutta High Court Quashes S.498A IPC Case
+https://www.livelaw.in/high-court/calcutta-high-court/improbable-for-elderly-in-laws-suffering-from-medical-ailments-to-assault-daughter-in-law-calcutta-high-court-quashes-s498a-ipc-case-529717
+
+[Read on Telegram](https://t.me/livelawindia/108614)
+
+---
+### 2026-04-09T14:33:32+00:00
+Artificial Intelligence And Competition Law: Can Algorithms Collude Without Human Intent?
+https://www.livelaw.in/articles/artificial-intelligence-competition-law-algorithms-collude-human-intent-529500
+
+[Read on Telegram](https://t.me/livelawindia/108615)
+
+---
+### 2026-04-09T14:34:22+00:00
+2026 LiveLaw (SC) 352 | M/S CHOPRA HOTELS PRIVATE LIMITED VERSUS HARBINDER SINGH SEKHON & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-352-ms-chopra-hotels-private-limited-versus-harbinder-singh-sekhon-ors-529725
+
+[Read on Telegram](https://t.me/livelawindia/108616)
+
+---
+### 2026-04-09T14:50:43+00:00
+'Scandalous, Wild & Hollow': Allahabad HC Slams Man For Making False Sex Racket Claims Against Wife & Daughters
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-slams-false-sex-racket-claims-wife-daughters-529730
+
+[Read on Telegram](https://t.me/livelawindia/108617)
+
+---
+### 2026-04-09T14:58:23+00:00
+Delhi High Court Closes Subedar's Plea After Army Admits Procedural Lapses In Service Extension Screening, Orders Fresh Firing Test
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-closes-subedars-plea-after-army-admits-procedural-lapses-in-service-extension-screening-orders-fresh-firing-test-529732
+
+[Read on Telegram](https://t.me/livelawindia/108618)
+
+---
+### 2026-04-09T15:13:00+00:00
+Land Acquisition Act | Acquisition Lapses If 80% Compensation Not Paid Before Taking Possession U/S 17A: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-land-acquisition-act-non-compliance-with-s-17-a-urgency-compensation-requirement-leads-to-lapse-of-proceedings-us-11b-529711
+
+[Read on Telegram](https://t.me/livelawindia/108619)
+
+---
+### 2026-04-09T15:22:08+00:00
+There Are Temples Where Only Women Can Go : Centre To Supreme Court In Sabarimala Reference
+https://www.livelaw.in/top-stories/there-are-temples-where-only-women-can-go-centre-to-supreme-court-in-sabarimala-reference-529735
+
+[Read on Telegram](https://t.me/livelawindia/108620)
+
+---
+### 2026-04-09T15:29:28+00:00
+Suspension Order Subject To Inquiry Isn't Blacklisting; State Free To Reject Bid Over Quality Concerns: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-suspension-order-inquiry-blacklisting-reject-bid-quality-concerns-529736
+
+[Read on Telegram](https://t.me/livelawindia/108621)
+
+---
+### 2026-04-09T15:34:48+00:00
+Court Grants Interim Bail To Accused Khalid Saifi In Delhi Riots Larger Conspiracy Case
+https://www.livelaw.in/news-updates/court-grants-interim-bail-to-accused-khalid-saifi-in-delhi-riots-larger-conspiracy-case-529737
+
+[Read on Telegram](https://t.me/livelawindia/108622)
+
+---
+### 2026-04-09T16:07:19+00:00
+'Conviction Cannot Rest On Contradictions': Calcutta High Court Acquits Brothers In Attempt-To-Murder Case After 19 Years
+https://www.livelaw.in/high-court/calcutta-high-court/conviction-cannot-rest-on-contradictions-calcutta-high-court-acquits-brothers-in-attempt-to-murder-case-after-19-years-529726
+
+[Read on Telegram](https://t.me/livelawindia/108623)
+
+---
+### 2026-04-09T16:26:19+00:00
+Allahabad High Court Directs Centre To Decide Plea Claiming Ex-Chinese National Obtained Indian Citizenship By Fraud
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-centre-decide-ex-chinese-national-indian-citizenship-naturalisation-fraud-529740
+
+[Read on Telegram](https://t.me/livelawindia/108624)
+
+---
+### 2026-04-09T16:29:19+00:00
+Supreme Court Daily Round-Up : April 9, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-9-2026-529742
+
+[Read on Telegram](https://t.me/livelawindia/108625)
+
+---
+### 2026-04-09T17:16:32+00:00
+Delhi High Court Directs Reissue Of Minor's Passport Without Father's Name After He Gave Up Custody
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-reissue-of-minors-passport-without-fathers-name-after-he-gave-up-custody-529745
+
+[Read on Telegram](https://t.me/livelawindia/108626)
 
 ---
