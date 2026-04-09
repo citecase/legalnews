@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-09T04:32:51+00:00*
+*Last Updated: 2026-04-09T09:48:08+00:00*
 
 ---
 
-### 2026-04-09T04:32:51+00:00
-Constitutional Morality Vs Public Health: Blood Safety, Scientific Evidence And Exclusion Of Queer Donors
-https://www.livelaw.in/lawschool/articles/constitutional-morality-public-health-queer-donors-529498
+### 2026-04-09T09:48:08+00:00
+'Mandatory Tender Conditions Cannot Be Relaxed': Patna HC Sets Aside Technical Qualification Of Bidder For Non-Submission Of Required Document
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-technical-qualification-bidder-nonsubmission-required-document-529638
 
-[Read on Telegram](https://t.me/livelawindia/108556)
-
----
-### 2026-04-09T05:03:51+00:00
-Punjab & Haryana High Court Denies Bail To Former MLA Dharam Singh Chhoker In Money Laundering Case
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-bail-former-mla-dharam-singh-chhoker-money-laundering-case-529611
-
-[Read on Telegram](https://t.me/livelawindia/108557)
+[Read on Telegram](https://t.me/livelawindia/108590)
 
 ---
-### 2026-04-09T05:06:31+00:00
-'Matrimonial Battle Of Mahabharata', Supreme Court Dissolves 10-Year Estranged Marriage, Quashes 80  Cases Between Couple
-https://www.livelaw.in/supreme-court/matrimonial-battle-of-mahabharata-supreme-court-dissolves-10-year-estranged-marriage-quashes-80-cases-between-couple-529612
+### 2026-04-09T10:03:09+00:00
+Telangana High Court Reserves Order On Pawan Khera's Anticipatory Bail Plea In FIR By Assam CM's Wife Over Passport Row
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-pawan-khera-anticipatory-bail-petition-fir-assam-cms-wife-passport-row-529667
 
-[Read on Telegram](https://t.me/livelawindia/108558)
-
----
-### 2026-04-09T05:09:31+00:00
-2026 LiveLaw (SC) 347 | XXX VERSUS YYY
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-347-xxx-versus-yyy-529613
-
-[Read on Telegram](https://t.me/livelawindia/108559)
+[Read on Telegram](https://t.me/livelawindia/108591)
 
 ---
-### 2026-04-09T05:12:11+00:00
-Motor Accident Claim | Insurance Company Impleaded As Party Can Raise All Grounds, Contest Quantum Of Compensation : Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-mv-act-motor-accident-claim-insurance-company-impleaded-as-party-can-raise-all-grounds-contest-quantum-of-compensation-529614
+### 2026-04-09T10:23:58+00:00
+'Trial Is Going On, Look At How It Is Being Recreated': Karnataka High Court Flags Sensational Media Coverage Of Renukaswamy Murder Case
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-raps-media-sensational-coverage-darshan-renukaswamy-murder-case-529672
 
-[Read on Telegram](https://t.me/livelawindia/108560)
-
----
-### 2026-04-09T05:13:11+00:00
-2026 LiveLaw (SC) 348  | NATIONAL INSURANCE COMPANY LTD. v. GAURI GURUDAS GAONKAR,
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-348-national-insurance-company-ltd-v-gauri-gurudas-gaonkar-529615
-
-[Read on Telegram](https://t.me/livelawindia/108561)
+[Read on Telegram](https://t.me/livelawindia/108592)
 
 ---
-### 2026-04-09T05:24:41+00:00
-Sabarimala Reference : Live Updates From Supreme Court 9-Judge Bench [Day 3]
-https://www.livelaw.in/top-stories/sabarimala-reference-live-updates-from-supreme-court-9-judge-bench-day-3-529617
+### 2026-04-09T10:38:18+00:00
+'Abandonment Of Service Not Voluntary Retirement', Supreme Court Denies Pensionary Benefits To SBI Clerk
+https://www.livelaw.in/supreme-court/abandonment-of-service-not-voluntary-retirement-supreme-court-denies-pensionary-benefits-to-sbi-clerk-529677
 
-[Read on Telegram](https://t.me/livelawindia/108562)
-
----
-### 2026-04-09T05:33:01+00:00
-Karnataka High Court Declines PIL Against MHA Advisory For School Students To Sing Vande Mataram, Inlcuding Stanzas On Hindu Deities
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-declines-pil-against-mha-advisory-for-school-students-to-sing-vande-mataram-inlcuding-stanzas-on-hindu-deities-529618
-
-[Read on Telegram](https://t.me/livelawindia/108563)
+[Read on Telegram](https://t.me/livelawindia/108593)
 
 ---
-### 2026-04-09T05:47:21+00:00
-Dispossession Proceedings Under BNSS Impermissible When Party Is In Actual Possession: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-proceeding-sections164165-bnss-actual-possession-property-529588
+### 2026-04-09T10:39:19+00:00
+2026 LiveLaw (SC) 350 | K.G. SESHADRI VERSUS THE TRUSTEES OF STATE BANK OF INDIA AND ANOTHER
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-350-kg-seshadri-versus-the-trustees-of-state-bank-of-india-and-another-529679
 
-[Read on Telegram](https://t.me/livelawindia/108564)
-
----
-### 2026-04-09T05:57:21+00:00
-Part Cause Of Action Arises Where Authority Passes Order: Delhi High Court Restores Plea Against PNB
-https://www.livelaw.in/high-court/delhi-high-court/part-cause-of-action-arises-where-authority-passes-order-delhi-high-court-restores-plea-against-pnb-529459
-
-[Read on Telegram](https://t.me/livelawindia/108565)
+[Read on Telegram](https://t.me/livelawindia/108594)
 
 ---
-### 2026-04-09T06:03:21+00:00
-Punjab & Haryana High Court Grants Bail To Man Over Alleged Involvement In Espionage Activities Linked To Pakistan
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-davender-singh-espionage-activities-linked-pakistan-529620
+### 2026-04-09T10:40:39+00:00
+Sampradayas Attached To Temple Must Be Followed While Visiting It: Supreme Court In Sabarimala Reference Hearing
+https://www.livelaw.in/top-stories/sampradayas-attached-to-temple-must-be-followed-while-visiting-it-supreme-court-in-sabarimala-reference-hearing-529681
 
-[Read on Telegram](https://t.me/livelawindia/108566)
-
----
-### 2026-04-09T06:27:51+00:00
-'Forest Guard Run Over In Chambal Sanctuary While Attempting To Stop Tractor Carrying Sand': Amicus Tells Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-amicus-application-forest-guard-run-over-by-tractor-illegal-sand-mining-national-chambal-sanctuary-madhya-pradesh-529625
-
-[Read on Telegram](https://t.me/livelawindia/108567)
+[Read on Telegram](https://t.me/livelawindia/108595)
 
 ---
-### 2026-04-09T06:35:51+00:00
-Sai University Organises S. Krishnamurti Endowment Lecture In Law 2026
-https://www.livelaw.in/lawschool/news/sai-university-organises-s-krishnamurti-endowment-lecture-in-law-2026-529629
+### 2026-04-09T10:47:39+00:00
+Star Health Data Breach | Madras High Court Dismisses Plea By Cyber Security Expert Seeking Probe Into Security Lapses
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-star-health-data-breach-security-lapse-probe-plea-dismissed-529669
 
-[Read on Telegram](https://t.me/livelawindia/108568)
-
----
-### 2026-04-09T06:46:11+00:00
-'Publicity Driven Exercise': Orissa High Court Quashes Case Against Mukesh Ambani Over Supply Of 'Defective Mobile' To Lawyer In 2003
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-criminal-complaint-mukesh-ambani-defective-mobile-handset-supply-529632
-
-[Read on Telegram](https://t.me/livelawindia/108569)
+[Read on Telegram](https://t.me/livelawindia/108596)
 
 ---
-### 2026-04-09T07:12:21+00:00
-Lawyer Can't Be Prosecuted For Defamation For Statements Made On Instructions Of Client: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-lawyer-not-liable-defamation-statement-made-on-client-instruction-529640
+### 2026-04-09T10:54:39+00:00
+'Ordinary Policemen Directing Content Take Down': Kunal Kamra Tells Bombay High Court In Plea Against IT Rules Amendment, SAHYOG Portal
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-kunal-kamra-content-take-down-sahyog-portal-it-rules-529685
 
-[Read on Telegram](https://t.me/livelawindia/108570)
-
----
-### 2026-04-09T07:14:41+00:00
-NLU Delhi To Host 11th Prof. Ghanshyam Memorial Parliamentary Debate From April 25–27
-https://www.livelaw.in/lawschool/competitions/nlu-delhi-to-host-11th-prof-ghanshyam-memorial-parliamentary-debate-from-april-2527-529642
-
-[Read on Telegram](https://t.me/livelawindia/108571)
+[Read on Telegram](https://t.me/livelawindia/108597)
 
 ---
-### 2026-04-09T07:16:21+00:00
-S.142 NI Act | Signing Of Board Resolution Doesn't Mean Director Was Aware Of Company's Day-To-Day Affairs : Supreme Court
-https://www.livelaw.in/supreme-court/s142-ni-act-signing-of-board-resolution-doesnt-mean-director-was-aware-of-companys-day-to-day-affairs-supreme-court-529643
+### 2026-04-09T11:22:55+00:00
+Continued Detention Of Approver Who Complied With Pardon Conditions May Violate Article 21; S.306(4)(b) CrPC No Bar: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-continued-detention-of-approver-despite-compliance-with-pardon-conditions-may-violate-article-21-right-to-personal-liberty-529670
 
-[Read on Telegram](https://t.me/livelawindia/108572)
-
----
-### 2026-04-09T07:16:41+00:00
-NCDRC Keeps In Abeyance Arrest Warrants Against Actor Salman Khan Over Alleged Misleading Advertisement
-https://www.livelaw.in/news-updates/ncdrc-salman-khan-bailable-warrants-alleged-misleading-ad-529644
-
-[Read on Telegram](https://t.me/livelawindia/108573)
+[Read on Telegram](https://t.me/livelawindia/108598)
 
 ---
-### 2026-04-09T07:18:01+00:00
-2026 LiveLaw (SC) 349 | Saroj Pandey v. Govt of NCT of Delhi
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-349-saroj-pandey-v-govt-of-nct-of-delhi-529645
+### 2026-04-09T11:24:15+00:00
+'Sweeping Generalisation': Telangana High Court Rejects PIL Claiming 70-90% Reservation In Municipalities, Finds No Supportive Data
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-wardwise-reservation-notifications-529689
 
-[Read on Telegram](https://t.me/livelawindia/108574)
+[Read on Telegram](https://t.me/livelawindia/108599)
 
 ---
-### 2026-04-09T07:32:38+00:00
-Mere Recovery Of Drone From Neighbouring Property Due To Mechanical Failure Not Criminal Trespass: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-mechanical-failure-criminal-trespass-drone-company-529634
+### 2026-04-09T11:24:34+00:00
+Reducing Medical Reimbursement Without Disclosing Policy Terms Is Deficiency In Service: Chandigarh Commission
+https://www.livelaw.in/consumer-cases/reducing-medical-reimbursement-without-disclosing-policy-terms-is-deficiency-in-service-chandigarh-commission-529690
 
-[Read on Telegram](https://t.me/livelawindia/108575)
+[Read on Telegram](https://t.me/livelawindia/108600)
+
+---
+### 2026-04-09T11:35:54+00:00
+Excluding Other Denominations From Temples Will Affect Hinduism : Supreme Court In Sabarimala Reference Hearing
+https://www.livelaw.in/top-stories/excluding-other-denominations-from-temples-will-affect-hinduism-supreme-court-in-sabarimala-reference-hearing-529692
+
+[Read on Telegram](https://t.me/livelawindia/108601)
+
+---
+### 2026-04-09T11:51:04+00:00
+PIL In Bombay High Court Seeks Rules Under Anti-Superstition Act After 'Godman' Ashok Kharat Case
+https://www.livelaw.in/high-court/bombay-high-court/pil-bombay-high-court-implementation-maharashtras-anti-superstition-act-529699
+
+[Read on Telegram](https://t.me/livelawindia/108602)
+
+---
+### 2026-04-09T12:07:44+00:00
+S.107 CrPC Invocable Only For Threat To Public Peace, Not Over Individual Fear: Patna High Court Quashes Preventive Proceedings
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-individuals-insufficient-trigger-preventive-action-529651
+
+[Read on Telegram](https://t.me/livelawindia/108603)
+
+---
+### 2026-04-09T12:17:24+00:00
+S.197 CrPC Protection Applies Even If Public Servant Exceeded Powers While Discharging Official Duty: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-shield-against-false-prosecution-without-sanction-even-if-public-servant-exceeded-powers-while-discharging-official-duties-section-197-crpc-protection-applies-529674
+
+[Read on Telegram](https://t.me/livelawindia/108604)
+
+---
+### 2026-04-09T13:06:11+00:00
+Stranger Affected By Interim Order Entitled To Impleadment In Writ Proceedings : Supreme Court
+https://www.livelaw.in/supreme-court/stranger-affected-by-interim-order-entitled-to-impleadment-in-writ-proceedings-supreme-court-529705
+
+[Read on Telegram](https://t.me/livelawindia/108605)
+
+---
+### 2026-04-09T13:19:12+00:00
+Law Researcher Vacancy At Debts Recovery Appellate Tribunal, Delhi
+https://www.livelaw.in/job-updates/law-researcher-vacancy-at-debts-recovery-appellate-tribunal-delhi-529707
+
+[Read on Telegram](https://t.me/livelawindia/108606)
+
+---
+### 2026-04-09T13:22:52+00:00
+Writ Court Cannot Examine Validity Of Revenue Mutations Unless Explicitly Challenged: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-writ-court-cannot-examine-validity-of-revenue-mutations-or-comment-on-their-attestation-unless-explicitly-challenged-529697
+
+[Read on Telegram](https://t.me/livelawindia/108607)
+
+---
+### 2026-04-09T13:24:32+00:00
+When Indians Can Follow Road Safety Rules Abroad Then Why Not In India? Bombay High Court In Accident Case
+https://www.livelaw.in/high-court/bombay-high-court/indians-road-safety-rules-accident-compensation-enhanced-529709
+
+[Read on Telegram](https://t.me/livelawindia/108608)
+
+---
+### 2026-04-09T13:48:32+00:00
+Thiruparankundram Deepam Row: Madras High Court Dismisses Plea By Hindu Dharma Parishad Seeking Permission To Light Lamp
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-thiruparankundram-deepam-row-hindu-dharma-parishad-plea-dismissed-529712
+
+[Read on Telegram](https://t.me/livelawindia/108609)
 
 ---
