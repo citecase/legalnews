@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-08T13:39:52+00:00*
+*Last Updated: 2026-04-09T04:32:51+00:00*
 
 ---
 
-### 2026-04-08T13:39:52+00:00
-Allahabad High Court Upholds 1999 Quadruple Murder Conviction Based On Minor Sons' Testimony Against Mother, Her 'Lover'
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-1999-quadruple-murder-conviction-minor-sons-testimony-mother-lover-529556
+### 2026-04-09T04:32:51+00:00
+Constitutional Morality Vs Public Health: Blood Safety, Scientific Evidence And Exclusion Of Queer Donors
+https://www.livelaw.in/lawschool/articles/constitutional-morality-public-health-queer-donors-529498
 
-[Read on Telegram](https://t.me/livelawindia/108530)
-
----
-### 2026-04-08T13:48:02+00:00
-Bail Cannot Be Denied Under UAPA On Uncorroborated Approver Testimony & Telephonic Links: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-bail-cant-be-refused-in-uapa-matters-where-prosecution-relies-on-uncorroborated-approver-statements-without-recovery-529552
-
-[Read on Telegram](https://t.me/livelawindia/108531)
+[Read on Telegram](https://t.me/livelawindia/108556)
 
 ---
-### 2026-04-08T13:48:12+00:00
-'Media Must Avoid Sensationalism': Delhi Court Grants Ex Parte Injunction To Manoj Sandesara Over Sterling Biotech Reporting
-https://www.livelaw.in/news-updates/sterling-biotech-reporting-media-avoid-sensationalism-529557
+### 2026-04-09T05:03:51+00:00
+Punjab & Haryana High Court Denies Bail To Former MLA Dharam Singh Chhoker In Money Laundering Case
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-bail-former-mla-dharam-singh-chhoker-money-laundering-case-529611
 
-[Read on Telegram](https://t.me/livelawindia/108532)
-
----
-### 2026-04-08T14:02:32+00:00
-Allahabad High Court Upholds Retrospective Application Of Payment Of Bonus Amendment Act, 2015
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-upholds-retrospective-applicability-payment-bonus-amendment-act2015-529487
-
-[Read on Telegram](https://t.me/livelawindia/108533)
+[Read on Telegram](https://t.me/livelawindia/108557)
 
 ---
-### 2026-04-08T14:15:12+00:00
-S. 482 CrPC | Successive Quashing Petitions Not Maintainable On Grounds Available Earlier But Abandoned: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-482-crpc-successive-quashing-petitions-not-maintainable-529564
+### 2026-04-09T05:06:31+00:00
+'Matrimonial Battle Of Mahabharata', Supreme Court Dissolves 10-Year Estranged Marriage, Quashes 80  Cases Between Couple
+https://www.livelaw.in/supreme-court/matrimonial-battle-of-mahabharata-supreme-court-dissolves-10-year-estranged-marriage-quashes-80-cases-between-couple-529612
 
-[Read on Telegram](https://t.me/livelawindia/108534)
-
----
-### 2026-04-08T14:30:02+00:00
-Rehabilitation Under Statutory Scheme Not Punitive: Uttarakhand HC Upholds Eviction Notices To Rispana Riverbed Basti Residents
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-rehabilitation-statutory-scheme-punitive-eviction-notices-529568
-
-[Read on Telegram](https://t.me/livelawindia/108535)
+[Read on Telegram](https://t.me/livelawindia/108558)
 
 ---
-### 2026-04-08T14:30:12+00:00
-Sabarimala Reference | Centre Questions Verdicts Decriminalising Adultery & Homosexuality For Applying 'Constitutional Morality'
-https://www.livelaw.in/top-stories/sabarimala-reference-centre-questions-verdicts-decriminalising-adultery-homosexuality-for-applying-constitutional-morality-529567
+### 2026-04-09T05:09:31+00:00
+2026 LiveLaw (SC) 347 | XXX VERSUS YYY
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-347-xxx-versus-yyy-529613
 
-[Read on Telegram](https://t.me/livelawindia/108536)
-
----
-### 2026-04-08T14:31:52+00:00
-Rajasthan Bar Council Polls: Supervisory Committee Orders Ballots Without Senior Advocate Categorisation
-https://www.livelaw.in/news-updates/rajasthan-bar-council-polls-supervisory-committee-orders-ballots-senior-advocate-categorisation-529569
-
-[Read on Telegram](https://t.me/livelawindia/108537)
+[Read on Telegram](https://t.me/livelawindia/108559)
 
 ---
-### 2026-04-08T14:33:02+00:00
-Regulating Intimacy Or Violating Privacy? A Constitutional Challenge To Mandatory Live-In Registration Under Gujarat Uniform Civil Code 2026
-https://www.livelaw.in/articles/constitutional-challenge-livein-registration-gujarat-uniform-civil-code2026-529402
+### 2026-04-09T05:12:11+00:00
+Motor Accident Claim | Insurance Company Impleaded As Party Can Raise All Grounds, Contest Quantum Of Compensation : Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-mv-act-motor-accident-claim-insurance-company-impleaded-as-party-can-raise-all-grounds-contest-quantum-of-compensation-529614
 
-[Read on Telegram](https://t.me/livelawindia/108538)
-
----
-### 2026-04-08T14:47:22+00:00
-Overdraft Facility Not Per Se Commercial Transaction: Delhi State Commission Sets Aside Dismissal Of Consumer Complaint
-https://www.livelaw.in/consumer-cases/overdraft-facility-not-per-se-commercial-transaction-delhi-state-commission-sets-aside-dismissal-of-consumer-complaint-529559
-
-[Read on Telegram](https://t.me/livelawindia/108539)
+[Read on Telegram](https://t.me/livelawindia/108560)
 
 ---
-### 2026-04-08T15:07:22+00:00
-Delhi High Court Asks Nursing Council To Consider Setting Up Grievance Redressal Mechanism For Nurses
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-asks-nursing-council-to-consider-setting-up-grievance-redressal-mechanism-for-nurses-529458
+### 2026-04-09T05:13:11+00:00
+2026 LiveLaw (SC) 348  | NATIONAL INSURANCE COMPANY LTD. v. GAURI GURUDAS GAONKAR,
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-348-national-insurance-company-ltd-v-gauri-gurudas-gaonkar-529615
 
-[Read on Telegram](https://t.me/livelawindia/108540)
-
----
-### 2026-04-08T15:44:12+00:00
-Rajasthan HC Lawyer Among First Three Civilian Indians to Complete 100-Metre Deep-Sea Dive In Lakshadweep
-https://www.livelaw.in/news-updates/rajasthan-high-court-lawyer-three-civilian-indians-complete-deepsea-dive-lakshadweep-529578
-
-[Read on Telegram](https://t.me/livelawindia/108541)
+[Read on Telegram](https://t.me/livelawindia/108561)
 
 ---
-### 2026-04-08T15:50:12+00:00
-HP High Court Quashes Dy Commissioners' Power To Modify Panchayat Reservation Roster Beyond Article 243D Of Constitution
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-discretion-alter-panchayat-roster-contrary-article243d-529580
+### 2026-04-09T05:24:41+00:00
+Sabarimala Reference : Live Updates From Supreme Court 9-Judge Bench [Day 3]
+https://www.livelaw.in/top-stories/sabarimala-reference-live-updates-from-supreme-court-9-judge-bench-day-3-529617
 
-[Read on Telegram](https://t.me/livelawindia/108542)
-
----
-### 2026-04-08T15:53:22+00:00
-'Swatantryaveer' Title Given To Savarkar Not By Govt But By A Writer : Savarkar's Grandnephew Tells Pune Court
-https://www.livelaw.in/high-court/bombay-high-court/swatantryaveer-title-given-to-savarkar-not-by-govt-savarkars-grandnephew-tells-pune-court-rahul-gandhi-defamation-case-529581
-
-[Read on Telegram](https://t.me/livelawindia/108543)
+[Read on Telegram](https://t.me/livelawindia/108562)
 
 ---
-### 2026-04-08T15:57:22+00:00
-Karnataka High Court Issues Notice Over Custodial Death Of 24-Year-Old, But Refuses To Issue Blanket Directions In PIL Seeking Protocol
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-pucl-custodial-death-blanket-directions-torture-prevention-protocol-529582
+### 2026-04-09T05:33:01+00:00
+Karnataka High Court Declines PIL Against MHA Advisory For School Students To Sing Vande Mataram, Inlcuding Stanzas On Hindu Deities
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-declines-pil-against-mha-advisory-for-school-students-to-sing-vande-mataram-inlcuding-stanzas-on-hindu-deities-529618
 
-[Read on Telegram](https://t.me/livelawindia/108544)
-
----
-### 2026-04-08T16:21:02+00:00
-When Sentences Of Imprisonment For Multiple Offences Run Concurrently, Fine Cannot Be Imposed Separately : Supreme Court
-https://www.livelaw.in/supreme-court/when-sentences-of-imprisonment-for-multiple-offences-run-concurrently-fine-cannot-be-imposed-separately-supreme-court-529584
-
-[Read on Telegram](https://t.me/livelawindia/108545)
+[Read on Telegram](https://t.me/livelawindia/108563)
 
 ---
-### 2026-04-08T16:23:05+00:00
-2026 LiveLaw (SC) 346 | HEM RAJ VERSUS THE STATE OF HIMACHAL PRADESH
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-346-hem-raj-versus-the-state-of-himachal-pradesh-529585
+### 2026-04-09T05:47:21+00:00
+Dispossession Proceedings Under BNSS Impermissible When Party Is In Actual Possession: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-proceeding-sections164165-bnss-actual-possession-property-529588
 
-[Read on Telegram](https://t.me/livelawindia/108546)
-
----
-### 2026-04-08T16:28:46+00:00
-Don't Take Child Trafficking Lightly, Gangs Operating Across Country : Supreme Court Tells State Home Secretaries
-https://www.livelaw.in/top-stories/dont-take-child-trafficking-lightly-gangs-operating-across-country-supreme-court-tells-state-home-secretaries-529587
-
-[Read on Telegram](https://t.me/livelawindia/108547)
+[Read on Telegram](https://t.me/livelawindia/108564)
 
 ---
-### 2026-04-08T16:42:27+00:00
-'No Bias Can Be Attached To Justice Swarana Kanta Sharma' : CBI Opposes Kejriwal's Recusal Application
-https://www.livelaw.in/high-court/delhi-high-court/no-bias-can-be-attached-to-justice-swarana-kanta-sharma-cbi-opposes-kejriwals-recusal-application-529590
+### 2026-04-09T05:57:21+00:00
+Part Cause Of Action Arises Where Authority Passes Order: Delhi High Court Restores Plea Against PNB
+https://www.livelaw.in/high-court/delhi-high-court/part-cause-of-action-arises-where-authority-passes-order-delhi-high-court-restores-plea-against-pnb-529459
 
-[Read on Telegram](https://t.me/livelawindia/108548)
+[Read on Telegram](https://t.me/livelawindia/108565)
 
 ---
-### 2026-04-08T17:12:27+00:00
-Supreme Court Daily Round-Up : April 8, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-8-2026-529591
+### 2026-04-09T06:03:21+00:00
+Punjab & Haryana High Court Grants Bail To Man Over Alleged Involvement In Espionage Activities Linked To Pakistan
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-davender-singh-espionage-activities-linked-pakistan-529620
 
-[Read on Telegram](https://t.me/livelawindia/108549)
+[Read on Telegram](https://t.me/livelawindia/108566)
+
+---
+### 2026-04-09T06:27:51+00:00
+'Forest Guard Run Over In Chambal Sanctuary While Attempting To Stop Tractor Carrying Sand': Amicus Tells Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-amicus-application-forest-guard-run-over-by-tractor-illegal-sand-mining-national-chambal-sanctuary-madhya-pradesh-529625
+
+[Read on Telegram](https://t.me/livelawindia/108567)
+
+---
+### 2026-04-09T06:35:51+00:00
+Sai University Organises S. Krishnamurti Endowment Lecture In Law 2026
+https://www.livelaw.in/lawschool/news/sai-university-organises-s-krishnamurti-endowment-lecture-in-law-2026-529629
+
+[Read on Telegram](https://t.me/livelawindia/108568)
+
+---
+### 2026-04-09T06:46:11+00:00
+'Publicity Driven Exercise': Orissa High Court Quashes Case Against Mukesh Ambani Over Supply Of 'Defective Mobile' To Lawyer In 2003
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-criminal-complaint-mukesh-ambani-defective-mobile-handset-supply-529632
+
+[Read on Telegram](https://t.me/livelawindia/108569)
+
+---
+### 2026-04-09T07:12:21+00:00
+Lawyer Can't Be Prosecuted For Defamation For Statements Made On Instructions Of Client: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-lawyer-not-liable-defamation-statement-made-on-client-instruction-529640
+
+[Read on Telegram](https://t.me/livelawindia/108570)
+
+---
+### 2026-04-09T07:14:41+00:00
+NLU Delhi To Host 11th Prof. Ghanshyam Memorial Parliamentary Debate From April 25–27
+https://www.livelaw.in/lawschool/competitions/nlu-delhi-to-host-11th-prof-ghanshyam-memorial-parliamentary-debate-from-april-2527-529642
+
+[Read on Telegram](https://t.me/livelawindia/108571)
+
+---
+### 2026-04-09T07:16:21+00:00
+S.142 NI Act | Signing Of Board Resolution Doesn't Mean Director Was Aware Of Company's Day-To-Day Affairs : Supreme Court
+https://www.livelaw.in/supreme-court/s142-ni-act-signing-of-board-resolution-doesnt-mean-director-was-aware-of-companys-day-to-day-affairs-supreme-court-529643
+
+[Read on Telegram](https://t.me/livelawindia/108572)
+
+---
+### 2026-04-09T07:16:41+00:00
+NCDRC Keeps In Abeyance Arrest Warrants Against Actor Salman Khan Over Alleged Misleading Advertisement
+https://www.livelaw.in/news-updates/ncdrc-salman-khan-bailable-warrants-alleged-misleading-ad-529644
+
+[Read on Telegram](https://t.me/livelawindia/108573)
+
+---
+### 2026-04-09T07:18:01+00:00
+2026 LiveLaw (SC) 349 | Saroj Pandey v. Govt of NCT of Delhi
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-349-saroj-pandey-v-govt-of-nct-of-delhi-529645
+
+[Read on Telegram](https://t.me/livelawindia/108574)
+
+---
+### 2026-04-09T07:32:38+00:00
+Mere Recovery Of Drone From Neighbouring Property Due To Mechanical Failure Not Criminal Trespass: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-mechanical-failure-criminal-trespass-drone-company-529634
+
+[Read on Telegram](https://t.me/livelawindia/108575)
 
 ---
