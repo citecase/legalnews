@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-09T14:02:48+00:00*
+*Last Updated: 2026-04-09T16:03:13+00:00*
+
+---
+
+### 2026-04-09T16:03:13+00:00
+Cyber Law Consultant Vacancy At Madhya Pradesh Land Records Management Committee, Bhopal
+https://www.verdictum.in/job-updates/madhya-pradesh-land-records-management-committee-1611707
+
+[Source Link](https://t.me/verdictumlegalupdates/26426)
+
+---
+
+### 2026-04-09T15:12:51+00:00
+Cogent Evidence Of Prior Concert For Commission Of Crime Required For Murder Conviction By Invoking Section 34 IPC: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/brijendra-singh-v-state-of-up-2026ahc77353-db-finding-evidence-prior-concert-conviction-sections-302-34-ipc-1611715
+
+[Source Link](https://t.me/verdictumlegalupdates/26425)
+
+---
+
+### 2026-04-09T14:32:50+00:00
+Claimant In Electrocution Cases Need Not Prove Negligence By Authorities; Strict Liability Applies Once Injury Is Established: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/up-state-power-corporation-ltd-v-mohd-nisar-alias-bade-lalla-2026ahc67581-1611714
+
+[Source Link](https://t.me/verdictumlegalupdates/26424)
 
 ---
 
@@ -137,30 +161,6 @@ Separate Sentences U/S 25 & 29 NDPS Act Permissible As They Constitute Independe
 https://www.verdictum.in/court-updates/supreme-court/hem-raj-v-state-of-himachal-pradesh-2026-insc-332-section-25-and-29-ndps-act-1611662
 
 [Source Link](https://t.me/verdictumlegalupdates/26407)
-
----
-
-### 2026-04-09T04:32:26+00:00
-Every Resident Has Right To Participate: Gujarat High Court Orders Inclusion In Electoral List Of Man Whose Name Was Deleted During SIR
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/jayesh-batukbhai-patelvanani-v-state-of-gujarat-2026gujhc24341-db-resident-participate-name-sir-electoral-list-1611642
-
-[Source Link](https://t.me/verdictumlegalupdates/26406)
-
----
-
-### 2026-04-08T16:17:26+00:00
-"Professors Who Have Nothing To Do With Indian Society Have Occupied So Much Space": CJI's Reaction To Apex Court Relying On Nivedita Menon's Articles
-https://www.verdictum.in/court-updates/supreme-court/prof-nivedita-menon-article-justice-dy-chandrachud-joseph-shine-adultry-case-1611641
-
-[Source Link](https://t.me/verdictumlegalupdates/26405)
-
----
-
-### 2026-04-08T16:02:24+00:00
-DLSA Firozabad Invites Applications For The Post of Legal Aid Defense Counsel
-https://www.verdictum.in/job-updates/district-legal-services-authority-1611634
-
-[Source Link](https://t.me/verdictumlegalupdates/26404)
 
 ---
 
