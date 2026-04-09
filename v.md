@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-09T07:52:40+00:00*
+*Last Updated: 2026-04-09T14:02:48+00:00*
+
+---
+
+### 2026-04-09T14:02:48+00:00
+Civil Court Jurisdiction Barred In NBFC Loan Recovery Disputes; NCLT Has Exclusive Domain U/S 45 QA RBI Act: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/shivam-traders-and-hire-purchase-pvt-ltd-v-madhusudan-vehicles-pvt-ltd-2026ahc67074-nclt-exclusive-domain-us-45-qa-1611706
+
+[Source Link](https://t.me/verdictumlegalupdates/26423)
+
+---
+
+### 2026-04-09T13:32:27+00:00
+Supply Contracts For Infrastructure Projects Classified As "Works Contracts" Under M.P. Madhyastham Adhikaran Adhiniyam: Madhya Pradesh High Court
+https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/mp-power-transmission-company-limited-v-vk-udyog-ltd-arbitration-appeal-no-15-of-2024-supply-contracts-works-contracts-1611705
+
+[Source Link](https://t.me/verdictumlegalupdates/26422)
+
+---
+
+### 2026-04-09T13:03:05+00:00
+Prosecution Sanction Under Official Secrets Act Not Granted: Punjab & Haryana High Court Grants Bail To Man Accused Of Spying During Operation Sindoor
+https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/davender-singh-alias-davinder-singh-v-state-of-haryana-2026phhc050691-prosecution-official-secrets-act-1611704
+
+[Source Link](https://t.me/verdictumlegalupdates/26421)
+
+---
+
+### 2026-04-09T12:32:44+00:00
+Justice Must Not Only Be Impartial In Substance But Also Appear To Be So In Perception: Madras High Court Transfers Criminal Case To CBCID
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/sathiskumar-v-the-superintendent-of-police-justice-impartial-transfer-criminal-case-cbcid-1611698
+
+[Source Link](https://t.me/verdictumlegalupdates/26420)
+
+---
+
+### 2026-04-09T12:02:23+00:00
+Individual Freedom Of Conscience Can't Defeat Freedom Of Denomination: Devotees Submit After Apex Court Highlighted "Eclipsing" Of Rights Of Non-Believer
+https://www.verdictum.in/court-updates/supreme-court/sabarimala-reference-9jb-cs-vaidyanathan-justice-joymalya-bagchi-non-believer-1611700
+
+[Source Link](https://t.me/verdictumlegalupdates/26419)
+
+---
+
+### 2026-04-09T11:32:41+00:00
+Successive Petitions U/S 482 CrPC Not Maintainable When Available Grounds Abandoned By Applicant In Previous Petitions: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/ramdular-singh-v-state-of-up-2026ahc75768-successive-petitions-us-482-crpc-1611697
+
+[Source Link](https://t.me/verdictumlegalupdates/26418)
+
+---
+
+### 2026-04-09T11:03:00+00:00
+Public Funds Raised In Deity’s Name Cannot Be Used To Acquire Property For Private Samithi: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/suo-motu-v-state-of-kerala-2026ker29828-public-funds-raised-in-deitys-name-not-for-private-samithi-1611696
+
+[Source Link](https://t.me/verdictumlegalupdates/26417)
+
+---
+
+### 2026-04-09T10:32:29+00:00
+Child’s Testimony Not Inherently Unreliable: Allahabad High Court Upholds Murder Conviction Based On Minor Son's Testimony Against Mother & Her Lover
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/tarsem-singh-v-state-of-uttar-pradesh-2026ahc-lko23961-db-child-testimony-1611693
+
+[Source Link](https://t.me/verdictumlegalupdates/26416)
+
+---
+
+### 2026-04-09T10:02:27+00:00
+When Statute Or Notification Links Tax Benefit To A Certificate, State Cannot Unilaterally Detach Them To Detriment Of Assessee: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/ms-jsw-steel-limited-v-managing-director-msedcl-2026bhc-as16014-db-notification-tax-benefit-to-certificate-1611692
+
+[Source Link](https://t.me/verdictumlegalupdates/26415)
+
+---
+
+### 2026-04-09T09:32:45+00:00
+Bombay High Court Asks Judicial Officers To Ensure Orders & Judgments Are Uploaded On Same Day; Warns Of Strict Action
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/dard-se-humdard-tak-trust-vstate-of-maharashtra-judges-orders-judgments-uploaded-same-day-1611690
+
+[Source Link](https://t.me/verdictumlegalupdates/26414)
+
+---
+
+### 2026-04-09T09:02:24+00:00
+Supreme Court To Hear Plea Raising Issue Of Forest Guard Allegedly Being Run Over By Sand Miners In MP
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-to-hear-plea-raising-issue-of-forest-guard-allegedly-being-run-over-by-sand-miners-in-mp-1611688
+
+[Source Link](https://t.me/verdictumlegalupdates/26413)
+
+---
+
+### 2026-04-09T08:32:23+00:00
+Directors Of Pharma Companies Can’t Be Prosecuted Under Drugs & Cosmetics Act Without Specific Allegations: J&K And Ladakh High Court
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/amit-kumar-bansal-ors-v-sanjeev-kumar-gupta-2026jklhc-jmu953-jklhc-1611684
+
+[Source Link](https://t.me/verdictumlegalupdates/26412)
 
 ---
 
@@ -65,102 +161,6 @@ DLSA Firozabad Invites Applications For The Post of Legal Aid Defense Counsel
 https://www.verdictum.in/job-updates/district-legal-services-authority-1611634
 
 [Source Link](https://t.me/verdictumlegalupdates/26404)
-
----
-
-### 2026-04-08T15:33:13+00:00
-Minor Victim Voluntarily Went With The Accused: Calcutta High Court Sets Aside Conviction U/S 363 IPC
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/sk-samad-v-state-of-west-bengal-2026chc-as550-section-363-ipc-kidnapping-1611633
-
-[Source Link](https://t.me/verdictumlegalupdates/26403)
-
----
-
-### 2026-04-08T15:02:52+00:00
-Sabarimala Pilgrimage Must Follow ‘Carrying Capacity’ Principle: Kerala High Court Upholds Daily Cap of 75,000 Devotees & Digital Queue System
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/suo-motu-v-state-of-kerala-wpc-no-8529-of-2026-caps-daily-devotees-at-75000-sabarimala-pilgrimage-1611632
-
-[Source Link](https://t.me/verdictumlegalupdates/26402)
-
----
-
-### 2026-04-08T14:32:30+00:00
-Can’t Run Mini Trial In Revision: Gujarat High Court Denies Relief Bharuch Forced Conversion Case
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/yusufbhai-jivanbhai-patel-mahendrabhai-jivabhai-vasava-v-state-of-gujarat-2026gujhc23504-forced-conversion-1611631
-
-[Source Link](https://t.me/verdictumlegalupdates/26401)
-
----
-
-### 2026-04-08T14:03:12+00:00
-Accident Register Entries Made By Doctor Who Treated Victim Can’t Override Unassailable Eyewitness Account: Madras High Court
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/muthukumar-v-state-rep-by-the-inspector-of-police-parthibanoor-police-station-ramanathapuram-district-1611630
-
-[Source Link](https://t.me/verdictumlegalupdates/26400)
-
----
-
-### 2026-04-08T13:32:10+00:00
-Adherence To Personal Presentation Rule Is Mandatory For Election Petitions U/S 81(1) Representation Of People Act: Meghalaya High Court
-https://www.verdictum.in/court-updates/high-courts/meghalaya-high-court/titosstar-well-chyne-v-gavin-miguel-mylliem-2026mlhc297-adherence-to-personal-presentation-us-811-representation-of-people-act-1611629
-
-[Source Link](https://t.me/verdictumlegalupdates/26399)
-
----
-
-### 2026-04-08T13:02:09+00:00
-Allahabad High Court Refuses To Quash Hate Speech Case Against State President Of Muslim Personal Law Board
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/noor-ahmad-ajahri-v-state-of-up-and-another-2026ahc68626-quash-proceedings-muslim-personal-law-board-bjp-1611628
-
-[Source Link](https://t.me/verdictumlegalupdates/26398)
-
----
-
-### 2026-04-08T12:32:28+00:00
-Magistrate Can Direct Further Investigation U/S 173(8) CrPC After Taking Cognisance Where Investigation Is Defective: J&K And Ladakh High Court
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/subash-chander-sharma-v-sho-police-station-anti-corruption-bureau-jammu-ors-2026jklhc-jmu954-1611622
-
-[Source Link](https://t.me/verdictumlegalupdates/26397)
-
----
-
-### 2026-04-08T12:03:06+00:00
-Can Court Entertain Plea By A Non-Devotee? : Supreme Court Questions Locus Standi Of Petitioners In Sabarimala PILs
-https://www.verdictum.in/court-updates/supreme-court/justice-bv-nagarathna-questions-locus-standi-future-of-pils-in-sabarimala-reference-1611625
-
-[Source Link](https://t.me/verdictumlegalupdates/26396)
-
----
-
-### 2026-04-08T11:32:24+00:00
-Sabarimala Reference|Secular Courts Are Scholars Of Law, Can't Decide Religious Practices Due To Lack Of Scholarly Competence: Centre Concludes Its Arguments
-https://www.verdictum.in/court-updates/supreme-court/sabarimala-reference-secular-courts-are-scholars-of-law-decide-religious-practices-scholarly-competence-centre-concludes-arguments-tushar-mehta-1611623
-
-[Source Link](https://t.me/verdictumlegalupdates/26395)
-
----
-
-### 2026-04-08T11:02:23+00:00
-Not A Valid Ground For Judicial Review: Centre Attacks Doctrine Of Constitutional Morality, Calls It 'Vague Concept' Capable Of Elastic Interpretation
-https://www.verdictum.in/court-updates/supreme-court/sabarimala-reference-centre-rejects-doctrine-of-constitutional-morality-calls-vague-concept-capable-elastic-interpretation-1611620
-
-[Source Link](https://t.me/verdictumlegalupdates/26394)
-
----
-
-### 2026-04-08T10:32:21+00:00
-Disputed Questions Of Hereditary Pujari Rights And 'Mohtamin' Status Beyond Writ Jurisdiction: Himachal Pradesh High Court
-https://www.verdictum.in/court-updates/high-courts/himachal-high-court/hari-ram-deceased-through-lrs-v-state-of-hp-2026hhc7726-hereditary-pujari-rights-and-mohtamin-status-1611619
-
-[Source Link](https://t.me/verdictumlegalupdates/26393)
-
----
-
-### 2026-04-08T09:53:10+00:00
-FSSAI Cannot Regulate Cattle Feed Under Human Food Safety Laws: Delhi High Court Quashes Mandatory BIS Certification
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/godrej-agrovet-ltd-v-fssai-2026dhc2861-db-fssai-cannot-regulate-cattle-feed-1611617
-
-[Source Link](https://t.me/verdictumlegalupdates/26392)
 
 ---
 
