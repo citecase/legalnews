@@ -1,93 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-10T09:32:46+00:00*
+*Last Updated: 2026-04-10T11:50:36+00:00*
 
 ---
 
-### 2026-04-10T09:32:46+00:00
-Much Ado About Rs.80/-
-https://www.livelaw.in/articles/much-ado-about-rs80-529561
-
-[Read on Telegram](https://t.me/livelawindia/108686)
-
----
-### 2026-04-10T09:44:26+00:00
-General Reference To Tender Document Containing Arbitration Clause Will Not Amount To Its Incorporation In Contract : Supreme Court
-https://www.livelaw.in/supreme-court/general-reference-to-tender-document-containing-arbitration-clause-will-not-amount-to-its-incorporation-in-contract-supreme-court-529850
-
-[Read on Telegram](https://t.me/livelawindia/108687)
-
----
-### 2026-04-10T09:45:26+00:00
-2026 LiveLaw (SC) 356 |  MAHARASHTRA STATE ELECTRICITY DISTRIBUTION COMPANY LIMITED (MSEDCL) & ORS. v R Z MALPANI
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-356-maharashtra-state-electricity-distribution-company-limited-msedcl-ors-v-r-z-malpani-529852
-
-[Read on Telegram](https://t.me/livelawindia/108688)
-
----
-### 2026-04-10T09:46:46+00:00
-Karnataka High Court To Quash Reckless Driving FIR Against Lamborghini Driver Subject To Undertaking Community Service
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-lamborghini-driver-reckless-driving-teach-children-traffic-rules-529853
-
-[Read on Telegram](https://t.me/livelawindia/108689)
-
----
-### 2026-04-10T10:18:56+00:00
-NCDRC Allows Coercive Action Against Ansal For Non-Compliance, Says Corporate Veil May Be Lifted In Appropriate Cases
-https://www.livelaw.in/consumer-cases/ncdrc-allows-coercive-action-against-ansal-for-non-compliance-says-corporate-veil-may-be-lifted-in-appropriate-cases-529858
-
-[Read on Telegram](https://t.me/livelawindia/108690)
-
----
-### 2026-04-10T10:32:46+00:00
-Bombay High Court Orders HDFC Bank To Remit ₹38.04 Lakhs To Businessman Who Lost Amount In Cyber Fraud
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-orders-hdfc-bank-businessman-lost-cyber-fraud-529834
-
-[Read on Telegram](https://t.me/livelawindia/108691)
-
----
-### 2026-04-10T10:37:47+00:00
-Land Acquisition Act | Non-Publication Of S.4(1) Notice In Gazette & Newspapers With Local Circulation Vitiates Acquisition: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-non-publication-of-notification-us-4-land-acquisition-act-in-government-gazette-besides-widely-circulated-newspapers-vitiates-proceedings-529749
-
-[Read on Telegram](https://t.me/livelawindia/108692)
-
----
-### 2026-04-10T10:44:06+00:00
-Multi-State Co-Operative Societies Barred From Investing Outside Their 'Same Line Of Business' : Supreme Court Upholds
-https://www.livelaw.in/supreme-court/multi-state-co-operative-societies-barred-from-investing-outside-their-same-line-of-business-supreme-court-upholds-529863
-
-[Read on Telegram](https://t.me/livelawindia/108693)
-
----
-### 2026-04-10T10:45:46+00:00
-Staring At Colleague's Breast May Be Misconduct, Morally Wrong But Not Voyeurism: Bombay High Court Quashes FIR
-https://www.livelaw.in/high-court/bombay-high-court/staring-at-colleagues-breast-not-voyeurism-section-354c-ipc-529864
-
-[Read on Telegram](https://t.me/livelawindia/108694)
-
----
-### 2026-04-10T10:47:06+00:00
-2026 LiveLaw (SC) 357 | M/S NIRMAL UJJWAL CREDIT CO-OPERATIVE SOCIETY LTD. v. RAVI SETHIA & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-357-ms-nirmal-ujjwal-credit-co-operative-society-ltd-v-ravi-sethia-ors-529866
-
-[Read on Telegram](https://t.me/livelawindia/108695)
-
----
-### 2026-04-10T11:08:06+00:00
-Central Forensic Science Lab To Be Established In Thiruvananthapuram, Centre Tells Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-forensic-science-lab-central-thiruvananthapuram-529869
-
-[Read on Telegram](https://t.me/livelawindia/108696)
-
----
-### 2026-04-10T11:36:56+00:00
-4th Ashok Desai Memorial Lecture: CJI Justice Surya Kant To Speak On "Reimagining Justice: The Indian Judiciary 50 Years Hence" [13th April, 6 PM]
-https://www.livelaw.in/events/cji-justice-surya-kant-ashok-desai-memorial-lecture-529881
-
-[Read on Telegram](https://t.me/livelawindia/108697)
-
----
 ### 2026-04-10T11:50:36+00:00
 Allahabad High Court Weekly Round-Up: March 30 To April 5, 2026
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-weekly-round-up-march-30-to-april-5-2026-529882
@@ -142,5 +58,89 @@ Madras High Court Rejects PMK Founder Ramadoss' Plea Against Interim Order Refus
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-pmk-ramadoss-mango-symbol-freeze-plea-dismissed-529892
 
 [Read on Telegram](https://t.me/livelawindia/108705)
+
+---
+### 2026-04-10T13:33:17+00:00
+'No Impediment Now': Kerala High Court Records Approval For Cabinet Meeting To Finalise Draft Ragging Bill Amid Model Code Of Conduct
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ragging-bill-cabinet-meeting-model-code-conduct-529894
+
+[Read on Telegram](https://t.me/livelawindia/108706)
+
+---
+### 2026-04-10T13:33:57+00:00
+Supreme Court Slams Ghaziabad Police Over Faulty Probe In Rape-Murder Of 4 Yr Old, Flags Hospitals' Lapses
+https://www.livelaw.in/top-stories/supreme-court-slams-ghaziabad-police-over-faulty-probe-in-rape-murder-of-4-yr-old-flags-hospitals-lapses-529895
+
+[Read on Telegram](https://t.me/livelawindia/108707)
+
+---
+### 2026-04-10T13:42:37+00:00
+Rajasthan High Court Stays Consumer Forum Proceedings Against Actor Salman Khan Over Alleged Misleading Advertisement
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-salman-khan-consumer-forum-proceedings-529896
+
+[Read on Telegram](https://t.me/livelawindia/108708)
+
+---
+### 2026-04-10T14:01:57+00:00
+Veil Of Partnership Can Be Lifted To See If It's Device To Cloak Illegal Sub-letting : Supreme Court
+https://www.livelaw.in/supreme-court/veil-of-partnership-can-be-lifted-to-see-if-its-device-to-cloak-illegal-sub-letting-supreme-court-529897
+
+[Read on Telegram](https://t.me/livelawindia/108709)
+
+---
+### 2026-04-10T14:32:47+00:00
+Public Recruitment | Supreme Court Cautions Courts Against Entertaining Challenges To Rejection Due To Errors In Online Applications
+https://www.livelaw.in/supreme-court/public-recruitment-supreme-court-cautions-courts-against-entertaining-challenges-to-rejection-due-to-errors-in-online-applications-529898
+
+[Read on Telegram](https://t.me/livelawindia/108710)
+
+---
+### 2026-04-10T14:32:57+00:00
+Insolvency And Bankruptcy Code (Amendment) Act, 2026 – Comprehensive Analysis
+https://www.livelaw.in/articles/insolvency-bankruptcy-code-amendment-act2026-comprehensive-analysis-529563
+
+[Read on Telegram](https://t.me/livelawindia/108711)
+
+---
+### 2026-04-10T14:33:07+00:00
+Insolvency And Bankruptcy Code (Amendment) Act, 2026 – Comprehensive Analysis
+https://www.livelaw.in/know-the-law/insolvency-bankruptcy-code-amendment-act2026-comprehensive-analysis-529562
+
+[Read on Telegram](https://t.me/livelawindia/108712)
+
+---
+### 2026-04-10T14:46:07+00:00
+Unlawful Arrest Vitiates Medical Exam Under BNSS: Karnataka High Court Quashes NDPS FIR Against Woman Over 'Ellavoma' Drug Raid
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-lawful-arrest-medical-examination-ellavoma-farm-raid-case-529902
+
+[Read on Telegram](https://t.me/livelawindia/108713)
+
+---
+### 2026-04-10T14:53:07+00:00
+Granting Pensioners Lower Dearness Relief Than Employees' DA Is Arbitrary, Violates Article 14: Supreme Court
+https://www.livelaw.in/supreme-court/different-dearness-reliefallowance-for-pensioners-employees-arbitrary-supreme-court-dismisses-kerala-ksrtc-appeals-529906
+
+[Read on Telegram](https://t.me/livelawindia/108714)
+
+---
+### 2026-04-10T15:02:47+00:00
+Departmental Proceedings, Even If Harsh Cannot Amount To Abetment Of Suicide: Bombay High Court Discharges Accused
+https://www.livelaw.in/high-court/bombay-high-court/harsh-departmental-proceedings-not-abetment-of-suicide-529907
+
+[Read on Telegram](https://t.me/livelawindia/108715)
+
+---
+### 2026-04-10T15:20:17+00:00
+Rajasthan Judicial Officer Facing 'Serious Allegations' In 6 Cases Moves High Court Against Suspension Order
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-judicial-officer-serious-allegations-high-court-suspension-order-529911
+
+[Read on Telegram](https://t.me/livelawindia/108716)
+
+---
+### 2026-04-10T16:20:07+00:00
+Deposit ₹23.89 Cr To Restore Water Supply: Bombay HC To Sahara Star Hotel After BMC Disconnects Supply Over Reassessed Property Tax
+https://www.livelaw.in/high-court/bombay-high-court/deposit-2389-cr-to-restore-water-supply-bombay-hc-to-sahara-star-hotel-after-bmc-disconnected-supply-over-reassessed-property-tax-529915
+
+[Read on Telegram](https://t.me/livelawindia/108717)
 
 ---
