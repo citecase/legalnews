@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-10T13:32:56+00:00*
+*Last Updated: 2026-04-10T16:02:43+00:00*
+
+---
+
+### 2026-04-10T16:02:43+00:00
+DLSA Sangli Invites Applications for The Post Of Deputy Chief Legal Aid Defense Counsel
+https://www.verdictum.in/job-updates/district-legal-services-authority-1611778
+
+[Source Link](https://t.me/verdictumlegalupdates/26450)
+
+---
+
+### 2026-04-10T15:33:02+00:00
+Loss Of Confidence Justifies Termination In Financial Roles Upon Proven Misconduct; Employer Cannot Be Forced To Retain Employee: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/uma-shankar-sharma-v-state-govt-of-nct-2026dhc2921-loss-of-confidence-justifies-termination-1611783
+
+[Source Link](https://t.me/verdictumlegalupdates/26449)
+
+---
+
+### 2026-04-10T15:02:41+00:00
+Phenothiazine, Promethazine Come Within Ambit Of Drugs & Cosmetics Act & Not NDPS Act: Patna High Court Suspends Sentence Of Accused
+https://www.verdictum.in/court-updates/high-courts/patna-high-court/dharmendra-kumar-v-the-state-of-bihar-phenothiazine-promethazine-drugs-cosmetics-act-ndps-act-1611782
+
+[Source Link](https://t.me/verdictumlegalupdates/26448)
+
+---
+
+### 2026-04-10T14:32:59+00:00
+Physical Assault Allegations Against Medically Incapacitated Elderly In-Laws Improbable And Unsustainable: Calcutta High Court Quashes Criminal Proceedings
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/mrigesh-kanti-nath-ors-v-state-of-west-bengal-anr-physical-assault-1611781
+
+[Source Link](https://t.me/verdictumlegalupdates/26447)
+
+---
+
+### 2026-04-10T14:02:58+00:00
+Service Bond For Subsidised MBBS Education Not Forced Labour Or Trafficking: Karnataka High Court Allows ESIC Appeal
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/esic-v-abhishek-choudhari-wa-no-312-of-2020-service-bond-for-subsidised-mbbs-education-1611780
+
+[Source Link](https://t.me/verdictumlegalupdates/26446)
 
 ---
 
@@ -121,46 +161,6 @@ Supreme Court Refuses To Grant Bail To Punjab's DIG Harcharan Singh Bhullar In A
 https://www.verdictum.in/court-updates/supreme-court/punjab-police-dig-harcharan-singh-bhullar-bail-corruption-1611751
 
 [Source Link](https://t.me/verdictumlegalupdates/26431)
-
----
-
-### 2026-04-10T06:02:14+00:00
-Letter Of Intent Is A Precursor And Not Concluded Contract To Justify Requirement U/S 7 Arbitration Act: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/msedcl-v-r-z-2026-insc-342-letter-of-intent-is-a-precursor-not-concluded-contract-1611750
-
-[Source Link](https://t.me/verdictumlegalupdates/26430)
-
----
-
-### 2026-04-10T05:32:53+00:00
-High Court Cannot Usurp Discretionary Powers Of Governor Even Before It Is Exercised In Awarding Extraordinary Pension: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/the-state-of-uttarakhand-v-sarita-singh-2026-insc-337-1611743
-
-[Source Link](https://t.me/verdictumlegalupdates/26429)
-
----
-
-### 2026-04-10T05:02:51+00:00
-Computing Point Of Limitation U/S 468 CrPC Is  Date Of Filing Complaint Or Lodging Of FIR: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/roma-ahuja-v-state-and-another-2026-insc-336-section-468-criminal-procedure-code-1611742
-
-[Source Link](https://t.me/verdictumlegalupdates/26428)
-
----
-
-### 2026-04-10T04:32:40+00:00
-Absence Not Deliberate But Occurred Due To Counsel’s Lapse: Chhattisgarh High Court Orders Fresh Consideration Of Application To Set Aside Ex-Parte Decree
-https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/ramkrishn-sahu-v-kamal-prasad-kasar-2026cghc16049-absence-counsels-lapse-order-9-rule-13-cpc-1611733
-
-[Source Link](https://t.me/verdictumlegalupdates/26427)
-
----
-
-### 2026-04-09T16:03:13+00:00
-Cyber Law Consultant Vacancy At Madhya Pradesh Land Records Management Committee, Bhopal
-https://www.verdictum.in/job-updates/madhya-pradesh-land-records-management-committee-1611707
-
-[Source Link](https://t.me/verdictumlegalupdates/26426)
 
 ---
 
