@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-09T16:03:13+00:00*
+*Last Updated: 2026-04-10T08:02:40+00:00*
+
+---
+
+### 2026-04-10T08:02:40+00:00
+Executing Court Can’t Assume Role Of Trial Court; Jurisdiction Is Limited To Giving Effect To Decree: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/maurice-w-innis-v-lily-kazrooni-lily-arif-shaikh-2026-insc-340-executing-court-role-trial-court-decree-1611759
+
+[Source Link](https://t.me/verdictumlegalupdates/26434)
+
+---
+
+### 2026-04-10T07:32:59+00:00
+Supreme Court rejects Plea To Stop Caste Census, Slams Petitioner For Language Used In PIL
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-rejects-plea-to-stop-caste-census-slams-petitioner-for-language-used-in-pil-1611756
+
+[Source Link](https://t.me/verdictumlegalupdates/26433)
+
+---
+
+### 2026-04-10T07:02:57+00:00
+Supreme Court Regularises Interim Bail Granted To Journalist Mahesh Langa In Alleged Money Laundering Case
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-regularises-interim-bail-granted-to-journalist-mahesh-langa-in-alleged-money-laundering-case-1611752
+
+[Source Link](https://t.me/verdictumlegalupdates/26432)
+
+---
+
+### 2026-04-10T06:32:56+00:00
+Supreme Court Refuses To Grant Bail To Punjab's DIG Harcharan Singh Bhullar In Alleged Corruption Case
+https://www.verdictum.in/court-updates/supreme-court/punjab-police-dig-harcharan-singh-bhullar-bail-corruption-1611751
+
+[Source Link](https://t.me/verdictumlegalupdates/26431)
+
+---
+
+### 2026-04-10T06:02:14+00:00
+Letter Of Intent Is A Precursor And Not Concluded Contract To Justify Requirement U/S 7 Arbitration Act: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/msedcl-v-r-z-2026-insc-342-letter-of-intent-is-a-precursor-not-concluded-contract-1611750
+
+[Source Link](https://t.me/verdictumlegalupdates/26430)
+
+---
+
+### 2026-04-10T05:32:53+00:00
+High Court Cannot Usurp Discretionary Powers Of Governor Even Before It Is Exercised In Awarding Extraordinary Pension: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/the-state-of-uttarakhand-v-sarita-singh-2026-insc-337-1611743
+
+[Source Link](https://t.me/verdictumlegalupdates/26429)
+
+---
+
+### 2026-04-10T05:02:51+00:00
+Computing Point Of Limitation U/S 468 CrPC Is  Date Of Filing Complaint Or Lodging Of FIR: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/roma-ahuja-v-state-and-another-2026-insc-336-section-468-criminal-procedure-code-1611742
+
+[Source Link](https://t.me/verdictumlegalupdates/26428)
+
+---
+
+### 2026-04-10T04:32:40+00:00
+Absence Not Deliberate But Occurred Due To Counsel’s Lapse: Chhattisgarh High Court Orders Fresh Consideration Of Application To Set Aside Ex-Parte Decree
+https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/ramkrishn-sahu-v-kamal-prasad-kasar-2026cghc16049-absence-counsels-lapse-order-9-rule-13-cpc-1611733
+
+[Source Link](https://t.me/verdictumlegalupdates/26427)
 
 ---
 
@@ -97,70 +161,6 @@ When Statute Or Notification Links Tax Benefit To A Certificate, State Cannot Un
 https://www.verdictum.in/court-updates/high-courts/bombay-high-court/ms-jsw-steel-limited-v-managing-director-msedcl-2026bhc-as16014-db-notification-tax-benefit-to-certificate-1611692
 
 [Source Link](https://t.me/verdictumlegalupdates/26415)
-
----
-
-### 2026-04-09T09:32:45+00:00
-Bombay High Court Asks Judicial Officers To Ensure Orders & Judgments Are Uploaded On Same Day; Warns Of Strict Action
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/dard-se-humdard-tak-trust-vstate-of-maharashtra-judges-orders-judgments-uploaded-same-day-1611690
-
-[Source Link](https://t.me/verdictumlegalupdates/26414)
-
----
-
-### 2026-04-09T09:02:24+00:00
-Supreme Court To Hear Plea Raising Issue Of Forest Guard Allegedly Being Run Over By Sand Miners In MP
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-to-hear-plea-raising-issue-of-forest-guard-allegedly-being-run-over-by-sand-miners-in-mp-1611688
-
-[Source Link](https://t.me/verdictumlegalupdates/26413)
-
----
-
-### 2026-04-09T08:32:23+00:00
-Directors Of Pharma Companies Can’t Be Prosecuted Under Drugs & Cosmetics Act Without Specific Allegations: J&K And Ladakh High Court
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/amit-kumar-bansal-ors-v-sanjeev-kumar-gupta-2026jklhc-jmu953-jklhc-1611684
-
-[Source Link](https://t.me/verdictumlegalupdates/26412)
-
----
-
-### 2026-04-09T07:52:40+00:00
-Matrimonial Mahabharata: Supreme Court Dissolves "Dead Marriage"; Directs Husband To Pay  5Cr To Wife
-https://www.verdictum.in/court-updates/supreme-court/xxx-v-yyy-2026-insc-334-matrimonial-battle-of-mahabharata-article-142-dissolve-matrimonial-dispute-1611678
-
-[Source Link](https://t.me/verdictumlegalupdates/26411)
-
----
-
-### 2026-04-09T07:14:28+00:00
-Person Directly Affected By Interim Order In Writ Proceedings Cannot Be Denied Hearing Merely For Not Being Original Party: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/ms-chopra-hotels-private-limited-v-harbinder-singh-sekhon-ors-2026-insc-335-1611674
-
-[Source Link](https://t.me/verdictumlegalupdates/26410)
-
----
-
-### 2026-04-09T06:12:41+00:00
-Essential Conditions Under Pension Fund Rules Not Satisfied: Supreme Court Upholds Denial Of Pension To Bank Clerk Who Voluntarily Abandoned Job
-https://www.verdictum.in/court-updates/supreme-court/kg-seshadri-v-the-trustees-of-state-bank-of-india-2026-insc-333-pension-fund-rules-bank-clerk-voluntarily-abandoned-job-1611669
-
-[Source Link](https://t.me/verdictumlegalupdates/26409)
-
----
-
-### 2026-04-09T05:32:19+00:00
-Determination For OBC Creamy Layer Cannot Be Based On Income Of Candidate's Husband Working As Civil Judge Class-I: Madhya Pradesh High Court
-https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/sunita-yadav-v-the-state-of-madhya-pradesh-2026mphc-gwl11101-obc-creamy-layer-husbands-income-civil-judge-class-i-1611664
-
-[Source Link](https://t.me/verdictumlegalupdates/26408)
-
----
-
-### 2026-04-09T05:02:58+00:00
-Separate Sentences U/S 25 & 29 NDPS Act Permissible As They Constitute Independent Offences: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/hem-raj-v-state-of-himachal-pradesh-2026-insc-332-section-25-and-29-ndps-act-1611662
-
-[Source Link](https://t.me/verdictumlegalupdates/26407)
 
 ---
 
