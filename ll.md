@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-09T13:22:52+00:00*
+*Last Updated: 2026-04-09T13:48:32+00:00*
 
 ---
 
-### 2026-04-09T13:22:52+00:00
-Writ Court Cannot Examine Validity Of Revenue Mutations Unless Explicitly Challenged: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-writ-court-cannot-examine-validity-of-revenue-mutations-or-comment-on-their-attestation-unless-explicitly-challenged-529697
-
-[Read on Telegram](https://t.me/livelawindia/108607)
-
----
-### 2026-04-09T13:24:32+00:00
-When Indians Can Follow Road Safety Rules Abroad Then Why Not In India? Bombay High Court In Accident Case
-https://www.livelaw.in/high-court/bombay-high-court/indians-road-safety-rules-accident-compensation-enhanced-529709
-
-[Read on Telegram](https://t.me/livelawindia/108608)
-
----
 ### 2026-04-09T13:48:32+00:00
 Thiruparankundram Deepam Row: Madras High Court Dismisses Plea By Hindu Dharma Parishad Seeking Permission To Light Lamp
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-thiruparankundram-deepam-row-hindu-dharma-parishad-plea-dismissed-529712
@@ -142,5 +128,19 @@ Delhi High Court Directs Reissue Of Minor's Passport Without Father's Name After
 https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-reissue-of-minors-passport-without-fathers-name-after-he-gave-up-custody-529745
 
 [Read on Telegram](https://t.me/livelawindia/108626)
+
+---
+### 2026-04-09T20:14:27+00:00
+How This Mobile Security App Can Strengthen National Safety and Protect Military Devices from Malicious Apps, QR Fraud, and Malicious Links
+https://www.livelaw.in/tech-law/how-mobile-security-app-strengthens-national-safety-military-devices-qr-fraud-malicious-links-529755
+
+[Read on Telegram](https://t.me/livelawindia/108627)
+
+---
+### 2026-04-09T21:02:17+00:00
+How This Mobile Security App Can Strengthen National Safety and Protect Military Devices from Malicious Apps, QR Fraud, and Malicious Links
+https://www.livelaw.in/tech-law/how-mobile-security-app-strengthens-national-safety-military-devices-qr-fraud-malicious-links-529756
+
+[Read on Telegram](https://t.me/livelawindia/108628)
 
 ---
