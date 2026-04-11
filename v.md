@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-11T07:32:23+00:00*
+*Last Updated: 2026-04-11T13:32:44+00:00*
+
+---
+
+### 2026-04-11T13:32:44+00:00
+Denial Of Relaxation In Qualification Despite Granting It To Similarly Situated Employees, Arbitrary And Violative Of Articles 14 & 16 Constitution: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/kamal-prasad-dubey-v-state-of-madhya-pradesh-ors-2026-insc-353-equality-1611856
+
+[Source Link](https://t.me/verdictumlegalupdates/26463)
+
+---
+
+### 2026-04-11T12:52:22+00:00
+Disgraceful Conduct Evident In Viral Video: Bombay High Court Upholds RPF Constable’s Removal For Outraging Modesty Despite Absence Of Complaint
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/rajesh-sahadeo-jangid-v-union-of-india-2026bhc-as16291-db-rpf-constables-removal-for-outraging-modesty-1611854
+
+[Source Link](https://t.me/verdictumlegalupdates/26462)
+
+---
+
+### 2026-04-11T12:03:51+00:00
+Presumption U/S 113-B Evidence Act Arises Only After Prosecution Establishes Nexus Between Dowry Harassment And Death: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/-mewa-lal-ors-v-state-of-uttar-pradesh-2026ahc-lko22648-dowry-death-1611853
+
+[Source Link](https://t.me/verdictumlegalupdates/26461)
+
+---
+
+### 2026-04-11T11:13:10+00:00
+Unwanted Staring Not Voyeurism U/S.354-C IPC; Watching Or Recording Of Woman During Private Act Required For Prosecution: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/abhijit-baswant-nigudkar-v-the-state-of-maharashtra-ors-2026bhc-as16818-db-unwanted-staring-voyeurism-354-c-ipc-1611850
+
+[Source Link](https://t.me/verdictumlegalupdates/26460)
+
+---
+
+### 2026-04-11T10:32:48+00:00
+Co-Tenancy Cannot Be Granted On Mere Presumption Of Joint Family Without Proof Of Ancestral Identity: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/2026-ahc-74330-chhutta-v-the-board-of-revenue-1611848
+
+[Source Link](https://t.me/verdictumlegalupdates/26459)
+
+---
+
+### 2026-04-11T09:55:07+00:00
+Identify Bottlenecks; Put SOPs In Place: Delhi High Court Emphasises Need For Timely Compliance Of Court Orders On Parole
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/nandu-ram-kishore-v-state-nct-of-delhi-bottlenecks-sops-court-orders-parole-1611847
+
+[Source Link](https://t.me/verdictumlegalupdates/26458)
+
+---
+
+### 2026-04-11T09:02:25+00:00
+State Regulation Does Not Render Co-Operative Societies "State" Under Article 12 Of Constitution: Supreme Court Upholds Election Eligibility Bye-Laws
+https://www.verdictum.in/court-updates/supreme-court/ram-chandra-choudhary-v-roop-nagar-dugdh-utpadak-sahakari-samiti-limited-2026-insc-347-upholds-election-eligibility-bye-laws-1611838
+
+[Source Link](https://t.me/verdictumlegalupdates/26457)
+
+---
+
+### 2026-04-11T08:13:04+00:00
+Minor Accompanying Person Of Her Free Will Without Being Induced Does Not Constitute Offence Of Kidnapping: Chhattisgarh High Court
+https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/2026-cghc-16334-db-deepak-vaishnav-v-state-of-chhattisgarh-1611837
+
+[Source Link](https://t.me/verdictumlegalupdates/26456)
 
 ---
 
@@ -97,70 +161,6 @@ Adjudicating Authority Has To Satisfy Itself Of Existence Of Plausible Pre-exist
 https://www.verdictum.in/court-updates/supreme-court/gls-films-industries-private-limited-v-chemical-suppliers-india-private-limited-2026-insc-344-pre-existing-sec-9-ibc-1611776
 
 [Source Link](https://t.me/verdictumlegalupdates/26444)
-
----
-
-### 2026-04-10T12:32:43+00:00
-Administrative Suspension Short Of Formal Blacklisting Does Not Warrant Judicial Interference In Technical Tender Evaluations: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/vertel-digital-pvt-ltd-v-state-of-up-2026ahc-lko22927-db-administrative-suspension-not-formal-blacklisting-1611775
-
-[Source Link](https://t.me/verdictumlegalupdates/26443)
-
----
-
-### 2026-04-10T12:03:01+00:00
-Delhi High Court Restrains Bhopal Publisher From Use Of ‘The Pioneer’ Trademark
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/cmyk-printech-limited-v-ms-ideal-multi-media-network-private-limited-publisher-the-pioneer-trademark-1611773
-
-[Source Link](https://t.me/verdictumlegalupdates/26442)
-
----
-
-### 2026-04-10T11:32:20+00:00
-Expression “Same Line Of Business” U/S 64(d) MSCS Act Must Be Construed With Reference To Bye-Laws; Sameness In Core Activities Required: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/ms-nirmal-ujjwal-credit-co-operative-society-ltd-v-ravi-sethia-ors-2026-insc-338-1611772
-
-[Source Link](https://t.me/verdictumlegalupdates/26441)
-
----
-
-### 2026-04-10T11:03:19+00:00
-Omission To Seek Consequential Reliefs In Initial Suit Triggers Bar Under Order II Rule 2(3) CPC Against Subsequent Suit Seeking Them: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/channappa-d-thr-lrs-v-parvatewwa-d-thr-lrs-2026-insc-343-bar-under-order-ii-rule-23-cpc-against-subsequent-litigation-1611770
-
-[Source Link](https://t.me/verdictumlegalupdates/26440)
-
----
-
-### 2026-04-10T10:32:57+00:00
-Supreme Court Asks Centre To Look Into Alleged Forced Recruitment Of Indians In Russian Army To Fight Ukraine War
-https://www.verdictum.in/court-updates/supreme-court/russia-ukraine-war-russian-army-illegal-deportation-1611771
-
-[Source Link](https://t.me/verdictumlegalupdates/26439)
-
----
-
-### 2026-04-10T10:02:16+00:00
-Justice Yashwant Varma Submits His Resignation As Allahabad High Court Judge To President Murmu, Rendering Impeachment Proceedings Infructuous
-https://www.verdictum.in/news/justice-yashwant-varma-submits-his-resignation-as-allahabad-high-court-judge-to-president-murmu-rendering-impeachment-proceedings-infructuous-1611767
-
-[Source Link](https://t.me/verdictumlegalupdates/26438)
-
----
-
-### 2026-04-10T09:32:54+00:00
-Inhuman & Insensitive Approach Of Private Hospitals & Police: Supreme Court Summons Commissioner For Investigative Lapses In Alleged Ghaziabad's 4-Year-Old Rape-Murder Case
-https://www.verdictum.in/court-updates/supreme-court/up-police-investigative-lapses-ghaziabad-minor-raps-summons-commissioner-1611766
-
-[Source Link](https://t.me/verdictumlegalupdates/26437)
-
----
-
-### 2026-04-10T09:02:33+00:00
-Adverse Presumption For Non-Appearance In Witness Box Is Rebuttable And Not Fatal If Case Is Otherwise Proved: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/russi-fisheries-pvt-ltd-anr-v-bhavna-seth-ors-neutral-citation-2026-insc-339-1611763
-
-[Source Link](https://t.me/verdictumlegalupdates/26436)
 
 ---
 
