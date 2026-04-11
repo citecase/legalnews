@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-10T11:50:36+00:00*
+*Last Updated: 2026-04-10T12:37:46+00:00*
 
 ---
 
-### 2026-04-10T11:50:36+00:00
-Allahabad High Court Weekly Round-Up: March 30 To April 5, 2026
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-weekly-round-up-march-30-to-april-5-2026-529882
-
-[Read on Telegram](https://t.me/livelawindia/108698)
-
----
-### 2026-04-10T11:57:36+00:00
-Kerala High Court Pushes Kochi Authorities To Clear Plastic Waste, Canal Debris; Fast-Track Pre-Monsoon Measures
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-flags-plastic-waste-canal-debris-pre-monsoon-action-529883
-
-[Read on Telegram](https://t.me/livelawindia/108699)
-
----
-### 2026-04-10T12:07:56+00:00
-Disciplinary Action Can Be Initiated Against RPF Personnel Based Video Clips Even If Victim Doesn't File Complaint: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-disciplinary-action-rpf-personnel-viral-video-formal-complaint-529806
-
-[Read on Telegram](https://t.me/livelawindia/108700)
-
----
-### 2026-04-10T12:23:06+00:00
-PMLA Bail Cannot Be Cancelled Without Supervening Circumstances; Mere Misapplication Of S.45 No Ground For Cancellation: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-bail-cancellation-under-pmla-requires-supervening-circumstances-like-misuse-of-liberty-mere-disagreement-with-order-not-enough-529819
-
-[Read on Telegram](https://t.me/livelawindia/108701)
-
----
 ### 2026-04-10T12:37:46+00:00
 Justice Yashwant Varma Withdraws From Inquiry Proceedings Over Cash-at-Home Controversy, Blames Procedure As Unfair
 https://www.livelaw.in/top-stories/justice-yashwant-varma-withdraws-from-inquiry-proceedings-over-cash-at-home-controversy-blames-procedure-as-unfair-529888
@@ -142,5 +114,33 @@ Deposit ₹23.89 Cr To Restore Water Supply: Bombay HC To Sahara Star Hotel Afte
 https://www.livelaw.in/high-court/bombay-high-court/deposit-2389-cr-to-restore-water-supply-bombay-hc-to-sahara-star-hotel-after-bmc-disconnected-supply-over-reassessed-property-tax-529915
 
 [Read on Telegram](https://t.me/livelawindia/108717)
+
+---
+### 2026-04-11T02:30:12+00:00
+2026 LiveLaw (SC) 358 | SRI M.V. RAMACHANDRASA  v. M/S. MAHENDRA WATCH COMPANY
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-358-sri-mv-ramachandrasa-v-ms-mahendra-watch-company-529918
+
+[Read on Telegram](https://t.me/livelawindia/108718)
+
+---
+### 2026-04-11T02:33:32+00:00
+2026 LiveLaw (SC) 359 | Poonam Dwivedi v State of UP and others
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-359-poonam-dwivedi-v-state-of-up-and-others-529919
+
+[Read on Telegram](https://t.me/livelawindia/108719)
+
+---
+### 2026-04-11T02:34:52+00:00
+2026 LiveLaw (SC) 360 | THE STATE OF KERALA VERSUS M. VIJAYAKUMAR & ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-360-the-state-of-kerala-versus-m-vijayakumar-ors-529920
+
+[Read on Telegram](https://t.me/livelawindia/108720)
+
+---
+### 2026-04-11T02:39:32+00:00
+Supreme Court Daily Round-Up : April 10, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-10-2026-529921
+
+[Read on Telegram](https://t.me/livelawindia/108721)
 
 ---
