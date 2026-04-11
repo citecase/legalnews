@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-11T08:02:28+00:00*
+*Last Updated: 2026-04-11T08:08:48+00:00*
 
 ---
 
-### 2026-04-11T08:02:28+00:00
-State Election Commission Can't Delete Voter's Name From Municipal Roll, Can Only Replicate Assembly List: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-state-election-commission-electoral-roll-deletion-inclusion-name-529960
-
-[Read on Telegram](https://t.me/livelawindia/108746)
-
----
-### 2026-04-11T08:06:08+00:00
-IBC | NCLT Not To Examine If 'Pre-Existing Dispute' Will Succeed While Considering CIRP Of Operational Creditor : Supreme Court
-https://www.livelaw.in/supreme-court/bc-nclt-not-to-examine-if-pre-existing-dispute-will-succeed-while-considering-cirp-of-operational-creditor-supreme-court-529966
-
-[Read on Telegram](https://t.me/livelawindia/108747)
-
----
 ### 2026-04-11T08:08:48+00:00
 2026 LiveLaw (SC) 362 | GLS Films Industries Private Limited versus Chemical Suppliers India Private Limited
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-362-gls-films-industries-private-limited-versus-chemical-suppliers-india-private-limited-529967
@@ -142,5 +128,19 @@ The Unbroken Nib
 https://www.livelaw.in/articles/unbroken-nib-529984
 
 [Read on Telegram](https://t.me/livelawindia/108765)
+
+---
+### 2026-04-11T14:27:59+00:00
+Kerala High Court Collegium Recommends Elevation Of Five Judicial Officers As HC Judges
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-collegium-judicial-officers-elevation-high-court-judges-529996
+
+[Read on Telegram](https://t.me/livelawindia/108766)
+
+---
+### 2026-04-11T14:32:29+00:00
+Law On Reels- Why Does The Show 'Chiraiya' Legally Matter To Women?
+https://www.livelaw.in/articles/chiraiya-legally-matter-women-529760
+
+[Read on Telegram](https://t.me/livelawindia/108767)
 
 ---
