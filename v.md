@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-10T16:02:43+00:00*
+*Last Updated: 2026-04-11T07:32:23+00:00*
+
+---
+
+### 2026-04-11T07:32:23+00:00
+Adolescents Married At Tender Age Leading To Childbirth: Bombay High Court Quashes POCSO Case
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/a-v-the-state-of-maharashtra-2026bhc-aug14397-db-adolescents-tender-age-childbirth-pocso-1611832
+
+[Source Link](https://t.me/verdictumlegalupdates/26455)
+
+---
+
+### 2026-04-11T06:52:41+00:00
+Appellate Court Cannot Dilute Liability Of Convict U/S 34 IPC At Interlocutory Stage Due To Absence Of Overt Act: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/dhan-jee-pandey-v-the-state-of-bihar-2026-insc-349-liability-us-34-ipc-at-interlocutory-stage-1611830
+
+[Source Link](https://t.me/verdictumlegalupdates/26454)
+
+---
+
+### 2026-04-11T06:02:40+00:00
+"Principal Architect, Ultimate Beneficiary": Chhattisgarh High Court Convicts Ex-CM Ajit Jogi's Son In NCP Leader’s Murder Case
+https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/central-bureau-of-investigation-v-amit-jogi-ors-2026cghc15302-db-ajit-jogi-1611819
+
+[Source Link](https://t.me/verdictumlegalupdates/26453)
+
+---
+
+### 2026-04-11T05:12:58+00:00
+Mens Rea Cannot Be Mechanically Attributed To Inanimate Objects: Karnataka High Court Quashes FIR Against Drone Research Company
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/ms-new-space-research-and-technologies-private-limited-v-the-state-of-karnataka-2026khc11506-fir-against-drone-research-company-1611784
+
+[Source Link](https://t.me/verdictumlegalupdates/26452)
+
+---
+
+### 2026-04-11T04:33:07+00:00
+Wife Who Discontinued Her Job Due To Marital Obligations Entitled To Maintenance: Madhya Pradesh High Court
+https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/a-v-b-2026mphc-ind7791-wife-discontinued-job-maintenance-marital-obligations-1611791
+
+[Source Link](https://t.me/verdictumlegalupdates/26451)
 
 ---
 
@@ -121,46 +161,6 @@ Adverse Presumption For Non-Appearance In Witness Box Is Rebuttable And Not Fata
 https://www.verdictum.in/court-updates/supreme-court/russi-fisheries-pvt-ltd-anr-v-bhavna-seth-ors-neutral-citation-2026-insc-339-1611763
 
 [Source Link](https://t.me/verdictumlegalupdates/26436)
-
----
-
-### 2026-04-10T08:32:22+00:00
-Supreme Court Stays Criminal Proceedings Against Priest Claiming Christianity As Only True Religion
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-stays-criminal-proceedings-against-priest-claiming-christianity-as-only-true-religion-1611760
-
-[Source Link](https://t.me/verdictumlegalupdates/26435)
-
----
-
-### 2026-04-10T08:02:40+00:00
-Executing Court Can’t Assume Role Of Trial Court; Jurisdiction Is Limited To Giving Effect To Decree: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/maurice-w-innis-v-lily-kazrooni-lily-arif-shaikh-2026-insc-340-executing-court-role-trial-court-decree-1611759
-
-[Source Link](https://t.me/verdictumlegalupdates/26434)
-
----
-
-### 2026-04-10T07:32:59+00:00
-Supreme Court rejects Plea To Stop Caste Census, Slams Petitioner For Language Used In PIL
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-rejects-plea-to-stop-caste-census-slams-petitioner-for-language-used-in-pil-1611756
-
-[Source Link](https://t.me/verdictumlegalupdates/26433)
-
----
-
-### 2026-04-10T07:02:57+00:00
-Supreme Court Regularises Interim Bail Granted To Journalist Mahesh Langa In Alleged Money Laundering Case
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-regularises-interim-bail-granted-to-journalist-mahesh-langa-in-alleged-money-laundering-case-1611752
-
-[Source Link](https://t.me/verdictumlegalupdates/26432)
-
----
-
-### 2026-04-10T06:32:56+00:00
-Supreme Court Refuses To Grant Bail To Punjab's DIG Harcharan Singh Bhullar In Alleged Corruption Case
-https://www.verdictum.in/court-updates/supreme-court/punjab-police-dig-harcharan-singh-bhullar-bail-corruption-1611751
-
-[Source Link](https://t.me/verdictumlegalupdates/26431)
 
 ---
 
