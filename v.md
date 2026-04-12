@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-12T07:33:14+00:00*
+*Last Updated: 2026-04-12T13:33:20+00:00*
+
+---
+
+### 2026-04-12T13:33:20+00:00
+Recording Or Sharing Office Calls Does Not Constitute Spying U/S 3 Official Secrets Act Absent Threat To Sovereignty & Security Of State: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/pravin-shyamrao-samarth-v-state-of-maharashtra-anr-2026bhc-nag5513-db-1611879
+
+[Source Link](https://t.me/verdictumlegalupdates/26472)
+
+---
+
+### 2026-04-12T12:02:58+00:00
+EWS Reservation Strictly Contingent On Valid Financial-Year Certificate By Cut-Off Date: Supreme Court Upholds Rejection Of Candidature
+https://www.verdictum.in/court-updates/supreme-court/poonam-dwivedi-v-state-of-up-2026-insc-351-ews-reservation-strictly-contingent-on-valid-certificate-1611878
+
+[Source Link](https://t.me/verdictumlegalupdates/26471)
+
+---
+
+### 2026-04-12T10:32:37+00:00
+Once Landlord Proves Absence Of Original Tenant & Third-Party Possession, Onus To Rebut Presumption Of Unlawful Sub-Letting Shifts To Tenant: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/sri-mv-ramachandrasa-since-deceased-v-ms-mahendra-watch-company-ors-2026-insc-348-1611877
+
+[Source Link](https://t.me/verdictumlegalupdates/26470)
+
+---
+
+### 2026-04-12T09:02:35+00:00
+No Supervening Circumstances Pleaded By ED: Jammu & Kashmir and Ladakh High Court Upholds Bail Granted To Two Accused In Police Recruitment Paper Leak Case
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/assistant-director-directorate-of-enforcement-v-yatin-yadav-2026jklhc-jmu985-bail-accused-police-recruitment-paper-leak-1611865
+
+[Source Link](https://t.me/verdictumlegalupdates/26469)
 
 ---
 
@@ -129,38 +161,6 @@ https://www.verdictum.in/court-updates/supreme-court/dhan-jee-pandey-v-the-state
 https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/central-bureau-of-investigation-v-amit-jogi-ors-2026cghc15302-db-ajit-jogi-1611819
 
 [Source Link](https://t.me/verdictumlegalupdates/26453)
-
----
-
-### 2026-04-11T05:12:58+00:00
-Mens Rea Cannot Be Mechanically Attributed To Inanimate Objects: Karnataka High Court Quashes FIR Against Drone Research Company
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/ms-new-space-research-and-technologies-private-limited-v-the-state-of-karnataka-2026khc11506-fir-against-drone-research-company-1611784
-
-[Source Link](https://t.me/verdictumlegalupdates/26452)
-
----
-
-### 2026-04-11T04:33:07+00:00
-Wife Who Discontinued Her Job Due To Marital Obligations Entitled To Maintenance: Madhya Pradesh High Court
-https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/a-v-b-2026mphc-ind7791-wife-discontinued-job-maintenance-marital-obligations-1611791
-
-[Source Link](https://t.me/verdictumlegalupdates/26451)
-
----
-
-### 2026-04-10T16:02:43+00:00
-DLSA Sangli Invites Applications for The Post Of Deputy Chief Legal Aid Defense Counsel
-https://www.verdictum.in/job-updates/district-legal-services-authority-1611778
-
-[Source Link](https://t.me/verdictumlegalupdates/26450)
-
----
-
-### 2026-04-10T15:33:02+00:00
-Loss Of Confidence Justifies Termination In Financial Roles Upon Proven Misconduct; Employer Cannot Be Forced To Retain Employee: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/uma-shankar-sharma-v-state-govt-of-nct-2026dhc2921-loss-of-confidence-justifies-termination-1611783
-
-[Source Link](https://t.me/verdictumlegalupdates/26449)
 
 ---
 
