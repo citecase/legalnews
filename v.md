@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-12T13:33:20+00:00*
+*Last Updated: 2026-04-12T15:02:41+00:00*
+
+---
+
+### 2026-04-12T15:02:41+00:00
+Empanelment Of Advocates & Law Firms At National Film Development Corporation Ltd. (NFDC)
+https://www.verdictum.in/job-updates/national-film-development-corporation-ltd-1611860
+
+[Source Link](https://t.me/verdictumlegalupdates/26473)
 
 ---
 
@@ -153,14 +161,6 @@ Appellate Court Cannot Dilute Liability Of Convict U/S 34 IPC At Interlocutory S
 https://www.verdictum.in/court-updates/supreme-court/dhan-jee-pandey-v-the-state-of-bihar-2026-insc-349-liability-us-34-ipc-at-interlocutory-stage-1611830
 
 [Source Link](https://t.me/verdictumlegalupdates/26454)
-
----
-
-### 2026-04-11T06:02:40+00:00
-"Principal Architect, Ultimate Beneficiary": Chhattisgarh High Court Convicts Ex-CM Ajit Jogi's Son In NCP Leader’s Murder Case
-https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/central-bureau-of-investigation-v-amit-jogi-ors-2026cghc15302-db-ajit-jogi-1611819
-
-[Source Link](https://t.me/verdictumlegalupdates/26453)
 
 ---
 
