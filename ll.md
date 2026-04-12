@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-11T08:08:48+00:00*
+*Last Updated: 2026-04-11T10:19:59+00:00*
 
 ---
 
-### 2026-04-11T08:08:48+00:00
-2026 LiveLaw (SC) 362 | GLS Films Industries Private Limited versus Chemical Suppliers India Private Limited
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-362-gls-films-industries-private-limited-versus-chemical-suppliers-india-private-limited-529967
-
-[Read on Telegram](https://t.me/livelawindia/108748)
-
----
-### 2026-04-11T08:13:09+00:00
-Investments Of Multi State Co-Operative Societies Must Align With Society's Own Business As Per Bye-Laws: Supreme Court
-https://www.livelaw.in/top-stories/investments-of-multi-state-co-operative-societies-must-align-with-societys-own-business-as-per-bye-laws-supreme-court-529969
-
-[Read on Telegram](https://t.me/livelawindia/108749)
-
----
-### 2026-04-11T08:30:39+00:00
-Instagram Chat Encryption Row | 'Approach Data Protection Board First' MP High Court To PIL Petitioner; Seeks Order By May 5
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/mp-high-court-instagram-chat-encryption-data-protection-board-pil-529972
-
-[Read on Telegram](https://t.me/livelawindia/108750)
-
----
-### 2026-04-11T08:40:39+00:00
-Metro Corporation Office Not 'Prohibited Place', Recording Office Calls Not 'Spying' Under Official Secrets Act:  Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-recording-phone-calls-officials-sharing-spying-529973
-
-[Read on Telegram](https://t.me/livelawindia/108751)
-
----
-### 2026-04-11T08:47:39+00:00
-'Denying Inter-Utility Transfers To Lower-Ranking Officials Without Nexus To Relevant Policy Violates Article 14': P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-discriminatory-interutility-transfers-violative-article14-529926
-
-[Read on Telegram](https://t.me/livelawindia/108752)
-
----
-### 2026-04-11T09:02:39+00:00
-'Shockingly Disproportionate': Allahabad HC Quashes ₹2.14 Cr Recovery From Employee; Says No Finding Of Financial Loss Or Personal Gain
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-financial-loss-department-employee-gain-529914
-
-[Read on Telegram](https://t.me/livelawindia/108753)
-
----
-### 2026-04-11T09:27:29+00:00
-'Despite ACB Exoneration, J&K Govt Issued Show Cause Notice After Seven Years': High Court Stays Blacklisting Of Insurance Broker
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-despite-acb-exoneration-jk-government-issued-show-cause-notice-after-seven-years-high-court-stays-blacklisting-of-insurance-broker-trinity-reinsurance-529924
-
-[Read on Telegram](https://t.me/livelawindia/108754)
-
----
-### 2026-04-11T09:32:29+00:00
-Nazi Germany And Legal Ambiguity
-https://www.livelaw.in/articles/nazi-germany-legal-ambiguity-529759
-
-[Read on Telegram](https://t.me/livelawindia/108755)
-
----
-### 2026-04-11T09:52:39+00:00
-Land Acquisition | HC Can Suo Moto Enhance Compensation Even If No Cross-Appeal Is Filed By Landowners: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-order41rule33-cpc-suo-moto-enhance-compensation-cross-appeal-landowners-529970
-
-[Read on Telegram](https://t.me/livelawindia/108756)
-
----
 ### 2026-04-11T10:19:59+00:00
 LL.M. In Corporate Law and Management (2026–28)
 https://www.livelaw.in/lawschool/llm-phd/llm-corporate-law-management-529980
@@ -142,5 +79,68 @@ Law On Reels- Why Does The Show 'Chiraiya' Legally Matter To Women?
 https://www.livelaw.in/articles/chiraiya-legally-matter-women-529760
 
 [Read on Telegram](https://t.me/livelawindia/108767)
+
+---
+### 2026-04-12T03:32:32+00:00
+Allahabad High Court Slams KDA For 41-Year Delay In Handing Over Allotted Plot, Directs Chief Minister To Probe Officers' Negligence
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-kanpur-development-authority-possession-officers-negligence-529961
+
+[Read on Telegram](https://t.me/livelawindia/108768)
+
+---
+### 2026-04-12T04:07:22+00:00
+Prior Notice By Police Not Necessary For Property Attachment U/S 106 BNSS: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-prior-notice-police-property-attachment-section106-bnss-530010
+
+[Read on Telegram](https://t.me/livelawindia/108769)
+
+---
+### 2026-04-12T04:32:07+00:00
+Identity On Trial: Constitutional Debate On Transgender Rights In India
+https://www.livelaw.in/lawschool/articles/constitutional-debate-transgender-rights-india-529903
+
+[Read on Telegram](https://t.me/livelawindia/108770)
+
+---
+### 2026-04-12T04:33:07+00:00
+Bharatiya Nagarik Suraksha Sanhita (BNSS) And Bhartiya Nyaya Sanhita (BNS) Monthly Digest: March 2026
+https://www.livelaw.in/top-stories/bnss-bns-monthly-digest-march-2026-529130
+
+[Read on Telegram](https://t.me/livelawindia/108771)
+
+---
+### 2026-04-12T04:42:47+00:00
+Supreme Court Weekly Roundup: March 30 To April 05, 2026
+https://www.livelaw.in/round-ups/weekly/supreme-court-weekly-roundup-march-30-to-april-05-2026-529964
+
+[Read on Telegram](https://t.me/livelawindia/108772)
+
+---
+### 2026-04-12T04:47:07+00:00
+Supreme Court Allows Transwoman To Apply As Transgender For Delhi Teaching Posts Regardless Of Gender Notified For Vacancy
+https://www.livelaw.in/top-stories/supreme-court-jane-kaushik-relief-transgender-persons-separate-vacancies-teaching-positions-in-schools-530009
+
+[Read on Telegram](https://t.me/livelawindia/108773)
+
+---
+### 2026-04-12T05:15:17+00:00
+Recovery Personnel Vacancy At Cosmos Co-Op. Bank Limited
+https://www.livelaw.in/job-updates/recovery-personnel-vacancy-at-cosmos-co-op-bank-limited-530013
+
+[Read on Telegram](https://t.me/livelawindia/108774)
+
+---
+### 2026-04-12T05:17:57+00:00
+Senior Consultant (Legal) Vacancy At National Disaster Management Authority
+https://www.livelaw.in/job-updates/senior-consultant-legal-vacancy-at-national-disaster-management-authority-530014
+
+[Read on Telegram](https://t.me/livelawindia/108775)
+
+---
+### 2026-04-12T05:32:17+00:00
+'Manifest Infirmity': Rajasthan High Court Criticizes Sessions Court For Reversing 'Well-Reasoned' Discharge Of Theft Accused
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-stresses-judicial-mind-mechanical-orders-charge-stage-529962
+
+[Read on Telegram](https://t.me/livelawindia/108776)
 
 ---
