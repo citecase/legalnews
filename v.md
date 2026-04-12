@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-11T15:02:47+00:00*
+*Last Updated: 2026-04-12T07:33:14+00:00*
+
+---
+
+### 2026-04-12T07:33:14+00:00
+Absence Of Recovery, Lack Of Direct Nexus And Prolonged Custody: Jammu & Kashmir And Ladakh HC Grants Bail In UAPA Case
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/2026jklhc943-amin-allaie-v-national-investigating-agency-jammu-1611864
+
+[Source Link](https://t.me/verdictumlegalupdates/26468)
+
+---
+
+### 2026-04-12T06:02:52+00:00
+Delhi High Court Upholds Order Allowing RTI Applicant To Seek Information Relating To Insurance Policies By Furnishing Basic Details Other Than Policy Number
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ambika-gupta-v-cpio-lic-of-india-2026dhc2925-db-litigant-information-insurance-policies-basic-details-1611861
+
+[Source Link](https://t.me/verdictumlegalupdates/26467)
+
+---
+
+### 2026-04-12T04:33:21+00:00
+Bail Applications Of Child In Conflict With Law Can’t Be Dealt With Like Crimes Committed By Adults, JJB & Children’s Court Must Give Reasons: Gujarat High Court
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/2026gujhc24178-xxxx-v-state-of-gujarat-1611859
+
+[Source Link](https://t.me/verdictumlegalupdates/26466)
 
 ---
 
@@ -137,30 +161,6 @@ Loss Of Confidence Justifies Termination In Financial Roles Upon Proven Miscondu
 https://www.verdictum.in/court-updates/high-courts/delhi-high-court/uma-shankar-sharma-v-state-govt-of-nct-2026dhc2921-loss-of-confidence-justifies-termination-1611783
 
 [Source Link](https://t.me/verdictumlegalupdates/26449)
-
----
-
-### 2026-04-10T15:02:41+00:00
-Phenothiazine, Promethazine Come Within Ambit Of Drugs & Cosmetics Act & Not NDPS Act: Patna High Court Suspends Sentence Of Accused
-https://www.verdictum.in/court-updates/high-courts/patna-high-court/dharmendra-kumar-v-the-state-of-bihar-phenothiazine-promethazine-drugs-cosmetics-act-ndps-act-1611782
-
-[Source Link](https://t.me/verdictumlegalupdates/26448)
-
----
-
-### 2026-04-10T14:32:59+00:00
-Physical Assault Allegations Against Medically Incapacitated Elderly In-Laws Improbable And Unsustainable: Calcutta High Court Quashes Criminal Proceedings
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/mrigesh-kanti-nath-ors-v-state-of-west-bengal-anr-physical-assault-1611781
-
-[Source Link](https://t.me/verdictumlegalupdates/26447)
-
----
-
-### 2026-04-10T14:02:58+00:00
-Service Bond For Subsidised MBBS Education Not Forced Labour Or Trafficking: Karnataka High Court Allows ESIC Appeal
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/esic-v-abhishek-choudhari-wa-no-312-of-2020-service-bond-for-subsidised-mbbs-education-1611780
-
-[Source Link](https://t.me/verdictumlegalupdates/26446)
 
 ---
 
