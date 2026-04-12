@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-11T10:58:09+00:00*
+*Last Updated: 2026-04-11T12:20:59+00:00*
 
 ---
 
-### 2026-04-11T10:58:09+00:00
-'Delegation Of Refund Power To Adjudicating Officer Not Contrary To Scheme Of RERA Act': Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-delegation-exercise-refund-power-adjudicating-officer-rera-act-529971
-
-[Read on Telegram](https://t.me/livelawindia/108761)
-
----
-### 2026-04-11T11:17:29+00:00
-NALSA Holds North Zone Regional Conference On “Enhancing Access to Justice” In Dehradun; Justice J.K. Maheshwari Emphasises People-Centric Justice System
-https://www.livelaw.in/news-updates/nalsa-holds-north-zone-regional-conference-on-enhancing-access-to-justice-in-dehradun-justice-jk-maheshwari-emphasises-people-centric-justice-system-529990
-
-[Read on Telegram](https://t.me/livelawindia/108762)
-
----
-### 2026-04-11T11:49:39+00:00
-RGNUL Hosts 2nd National Panel Discussion On Indian Knowledge System
-https://www.livelaw.in/lawschool/news/rgnul-hosts-2nd-national-panel-discussion-on-indian-knowledge-system-529991
-
-[Read on Telegram](https://t.me/livelawindia/108763)
-
----
 ### 2026-04-11T12:20:59+00:00
 DNLU Student Law Journal Invites Submissions For Volume V (2026); Apply By May 5
 https://www.livelaw.in/lawschool/call-for-papers/dnlu-student-law-journal-invites-submissions-for-volume-v-2026-apply-by-may-5-529993
@@ -142,5 +121,26 @@ Rajasthan High Court Monthly Digest: March 2026
 https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-monthly-digest2026-529259
 
 [Read on Telegram](https://t.me/livelawindia/108780)
+
+---
+### 2026-04-12T13:40:03+00:00
+Delhi Consumer Commission Holds Realme Mobile Telecommunication (India) Pvt. Ltd. Liable For Defective Phone Explosion; Awards ₹1 Lakh Compensation
+https://www.livelaw.in/consumer-cases/delhi-consumer-commission-holds-realme-mobile-telecommunication-india-pvt-ltd-liable-for-defective-phone-explosion-awards-1-lakh-compensation-530025
+
+[Read on Telegram](https://t.me/livelawindia/108781)
+
+---
+### 2026-04-12T14:32:33+00:00
+Reaffirmation Of Article 25: Chhattisgarh High Court's Stance On Prohibition Of Private Prayer Meeting
+https://www.livelaw.in/articles/reaffirmation-article-25-chhattisgarh-high-court-private-prayer-meeting-prohibition-530012
+
+[Read on Telegram](https://t.me/livelawindia/108782)
+
+---
+### 2026-04-12T17:25:37+00:00
+NALSA Concludes North Zone Regional Conference On 'Enhancing Access To Justice' In Dehradun; Key Deliberations On Inclusive Justice Delivery
+https://www.livelaw.in/news-updates/nalsa-concludes-north-zone-regional-conference-on-enhancing-access-to-justice-in-dehradun-key-deliberations-on-inclusive-justice-delivery-530026
+
+[Read on Telegram](https://t.me/livelawindia/108783)
 
 ---
