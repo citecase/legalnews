@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-11T10:19:59+00:00*
+*Last Updated: 2026-04-11T10:58:09+00:00*
 
 ---
 
-### 2026-04-11T10:19:59+00:00
-LL.M. In Corporate Law and Management (2026–28)
-https://www.livelaw.in/lawschool/llm-phd/llm-corporate-law-management-529980
-
-[Read on Telegram](https://t.me/livelawindia/108757)
-
----
-### 2026-04-11T10:29:39+00:00
-Independent Cooperative Societies Not 'State' Under Art 12; Their Election Process Not Amenable To Writ Jurisdiction: Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-district-milk-unions-independent-cooperative-societies-not-state-article-12-election-process-not-amenable-to-writ-article-226-529982
-
-[Read on Telegram](https://t.me/livelawindia/108758)
-
----
-### 2026-04-11T10:32:59+00:00
-Telangana High Court Monthly Round-Up : March 2026
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-monthly-round-up-529641
-
-[Read on Telegram](https://t.me/livelawindia/108759)
-
----
-### 2026-04-11T10:53:30+00:00
-RGNUL Signs MoU With Mentblue To Strengthen Student Career Development & Placements
-https://www.livelaw.in/lawschool/news/rgnul-signs-mou-with-mentblue-to-strengthen-student-career-development-placements-529988
-
-[Read on Telegram](https://t.me/livelawindia/108760)
-
----
 ### 2026-04-11T10:58:09+00:00
 'Delegation Of Refund Power To Adjudicating Officer Not Contrary To Scheme Of RERA Act': Bombay High Court
 https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-delegation-exercise-refund-power-adjudicating-officer-rera-act-529971
@@ -142,5 +114,33 @@ https://www.livelaw.in/job-updates/senior-consultant-legal-vacancy-at-national-d
 https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-stresses-judicial-mind-mechanical-orders-charge-stage-529962
 
 [Read on Telegram](https://t.me/livelawindia/108776)
+
+---
+### 2026-04-12T07:42:07+00:00
+From Aspiration To Accountability: Plastic Waste Management (Amendment) Rules, 2026 And India's Evolving War On Plastic Pollution
+https://www.livelaw.in/articles/plastic-waste-management-amendment-rules2026-india-plastic-pollution-530015
+
+[Read on Telegram](https://t.me/livelawindia/108777)
+
+---
+### 2026-04-12T08:38:02+00:00
+Wife's Compromise Waiving Future Maintenance Is Against Public Policy; Doesn't Bar Her Claims U/S 125 CrPC: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/ph-high-court-compromise-wife-waive-right-future-maintenance-public-policy-125-crpc-530016
+
+[Read on Telegram](https://t.me/livelawindia/108778)
+
+---
+### 2026-04-12T09:32:32+00:00
+Fractured World Order: War Beyond Law and Lawlessness
+https://www.livelaw.in/articles/fractured-world-order-war-beyond-lawlessness-529904
+
+[Read on Telegram](https://t.me/livelawindia/108779)
+
+---
+### 2026-04-12T10:33:00+00:00
+Rajasthan High Court Monthly Digest: March 2026
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-monthly-digest2026-529259
+
+[Read on Telegram](https://t.me/livelawindia/108780)
 
 ---
