@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-13T09:45:24+00:00*
+*Last Updated: 2026-04-13T10:00:24+00:00*
 
 ---
 
-### 2026-04-13T09:45:24+00:00
-Civil Services Exam: Gujarat High Court Rejects Plea Challenging Procedure To Avail Scribe Filed By Candidate Who Failed All Attempts
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-upsc-civil-services-exam-scribe-facility-procedure-530098
-
-[Read on Telegram](https://t.me/livelawindia/108823)
-
----
-### 2026-04-13T09:45:34+00:00
-'Justice Should Also Be Seen To Be Done' : Supreme Court Directs Another Disciplinary Authority To Decide After Employee Alleged Bias
-https://www.livelaw.in/supreme-court/justice-should-also-be-seen-to-be-done-supreme-court-directs-another-disciplinary-authority-to-decide-after-employee-alleged-bias-530100
-
-[Read on Telegram](https://t.me/livelawindia/108824)
-
----
-### 2026-04-13T09:46:44+00:00
-2026 LiveLaw (SC) 363 | NATIONAL BAL BHAWAN & ANR. V. KHAZAN CHAND & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-363-national-bal-bhawan-anr-v-khazan-chand-ors-530101
-
-[Read on Telegram](https://t.me/livelawindia/108825)
-
----
-### 2026-04-13T09:47:46+00:00
-Madras High Court Weekly Round-Up: April 06 - April 12, 2026
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-april-6-to-april-12-2026-530069
-
-[Read on Telegram](https://t.me/livelawindia/108826)
-
----
-### 2026-04-13T09:49:44+00:00
-Supreme Court Earmarks 4 EC Posts For Women AoRs In SCAORA Elections
-https://www.livelaw.in/top-stories/supreme-court-scaora-executive-committee-elections-secretary-joint-treasurer-2-other-posts-earmarked-for-women-aors-530103
-
-[Read on Telegram](https://t.me/livelawindia/108827)
-
----
-### 2026-04-13T09:58:44+00:00
-Courts Cannot Re-Adjudicate Settled Issues In Contempt Jurisdiction, Can Only Examine Compliance : Supreme Court
-https://www.livelaw.in/supreme-court/courts-cannot-re-adjudicate-settled-issues-in-contempt-jurisdiction-can-only-examine-compliance-supreme-court-530105
-
-[Read on Telegram](https://t.me/livelawindia/108828)
-
----
 ### 2026-04-13T10:00:24+00:00
 2026 LiveLaw (SC) 364 | JALIM SINGH VERSUS NAND KISHORE & ORS.
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-364-jalim-singh-versus-nand-kishore-ors-530106
@@ -142,5 +100,47 @@ Mere Non-Wearing Of Helmet Doesn't Enable Plea Of Contributory Negligence Withou
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-helmet-not-prevent-accident-mact-order-upheld-contributory-negligence-530135
 
 [Read on Telegram](https://t.me/livelawindia/108842)
+
+---
+### 2026-04-13T14:12:57+00:00
+Being A Student Doesn't Absolve Husband From Maintaining Wife: P&H High Court Denies Relief To 22 Y/O Engineering Student
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-and-haryan-high-court-student-husband-maintain-wife-530142
+
+[Read on Telegram](https://t.me/livelawindia/108843)
+
+---
+### 2026-04-13T14:38:07+00:00
+Plea Filed In Supreme Court Against S.44(3) Of DPDP Act, Seeks Interim Relief Against Masking/Deletion Of Available Data; Notice Issued
+https://www.livelaw.in/top-stories/supreme-court-plea-against-s44-dpdp-act-seeks-interim-relief-against-masking-deletion-of-available-data-notice-issued-530147
+
+[Read on Telegram](https://t.me/livelawindia/108844)
+
+---
+### 2026-04-13T14:58:07+00:00
+Certified Copy Of Decree Sufficient For Sub-Registrar To Record Cancellation Of Registered Documents: Karnataka HC Issues Guidelines
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-issues-guidelines-recording-cancellation-registered-documents-530146
+
+[Read on Telegram](https://t.me/livelawindia/108845)
+
+---
+### 2026-04-13T15:02:27+00:00
+Section 32A's Clean Slate: A Promise That Rarely Materializes
+https://www.livelaw.in/lawschool/articles/section-32a-ibc-clean-slate-promise-530148
+
+[Read on Telegram](https://t.me/livelawindia/108846)
+
+---
+### 2026-04-13T18:57:48+00:00
+DBRANLU Students Win 7th Surana & Surana–Army Institute of Law Family Moot Court Competition 2025–26
+https://www.livelaw.in/lawschool/news/dbranlu-students-win-7th-surana-suranaarmy-institute-of-law-family-moot-court-competition-530157
+
+[Read on Telegram](https://t.me/livelawindia/108847)
+
+---
+### 2026-04-13T19:07:48+00:00
+Efficiency, Integrity Key To Judiciary's Strength: Chhattisgarh HC Chief Justice Ramesh Sinha
+https://www.livelaw.in/news-updates/efficiency-integrity-key-to-judiciarys-strength-chhattisgarh-hc-chief-justice-ramesh-sinha-530158
+
+[Read on Telegram](https://t.me/livelawindia/108848)
 
 ---
