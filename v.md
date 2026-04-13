@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-12T15:02:41+00:00*
+*Last Updated: 2026-04-13T08:02:48+00:00*
+
+---
+
+### 2026-04-13T08:02:48+00:00
+"Are State Officers Blind?": Supreme Court Slams MP Govt Over Inaction On Forest Guard's Death In National Chambal Sanctuary
+https://www.verdictum.in/court-updates/supreme-court/illegal-sand-mining-national-chambal-sanctuary-1611949
+
+[Source Link](https://t.me/verdictumlegalupdates/26481)
+
+---
+
+### 2026-04-13T07:33:07+00:00
+Police Cannot Freeze Entire Bank Account Without Linking Whole Balance To Suspected Crime: Allahabad High Court
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/ashish-rawat-v-union-of-india-2026ahc78406-db-police-cannot-freeze-entire-bank-account-1611946
+
+[Source Link](https://t.me/verdictumlegalupdates/26480)
+
+---
+
+### 2026-04-13T07:03:05+00:00
+Rental Compensation Payable Till Award Payment Where Possession Precedes Land Acquisition: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/ms-devi-construction-llp-v-state-of-maharashtra-2026bhc-as16176-db-rental-compensation-payable-till-award-1611934
+
+[Source Link](https://t.me/verdictumlegalupdates/26479)
+
+---
+
+### 2026-04-13T06:23:44+00:00
+Supreme Court Allows Lalu Prasad Yadav To Raise Section 17A PC Act Challenge During Trial In Land-for-Jobs Case; Dispenses With Personal Appearance
+https://www.verdictum.in/court-updates/supreme-court/lalu-prasad-yadav-land-for-jobs-case-17a-pc-act-cbi-1611936
+
+[Source Link](https://t.me/verdictumlegalupdates/26478)
+
+---
+
+### 2026-04-13T06:03:03+00:00
+No Challenge To Unproduced & Unregistered Sale Deed Not Fatal; Declaratory Decree Itself Amounts To Repudiation Of Voidable Transaction: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/hari-ram-v-state-of-rajasthan-ors-2026-insc-350-unregistered-sale-deed-1611931
+
+[Source Link](https://t.me/verdictumlegalupdates/26477)
+
+---
+
+### 2026-04-13T05:32:41+00:00
+Differential DA/DR Rates For Serving & Retired Employees Without Rational Nexus To Inflationary Objective Violate Article 14: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/state-of-kerala-v-m-vijayakumar-2026-insc-352-differential-dadr-rates-for-serving-retired-employees-1611927
+
+[Source Link](https://t.me/verdictumlegalupdates/26476)
+
+---
+
+### 2026-04-13T05:02:20+00:00
+Classification Based On Employee Grade For Inter-Utility Transfers Violates Article 14 Constitution: Punjab & Haryana High Court
+https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/jaswinder-singh-v-state-of-haryana-2026phhc054927-1611925
+
+[Source Link](https://t.me/verdictumlegalupdates/26475)
+
+---
+
+### 2026-04-13T04:32:28+00:00
+Advocates Can’t Blackmail Clients & Stall Legal Proceedings To Settle Fee Disputes: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/2026ker31575-mary-help-john-david-j-v-jv-anoop-1611880
+
+[Source Link](https://t.me/verdictumlegalupdates/26474)
 
 ---
 
@@ -97,70 +161,6 @@ Disgraceful Conduct Evident In Viral Video: Bombay High Court Upholds RPF Consta
 https://www.verdictum.in/court-updates/high-courts/bombay-high-court/rajesh-sahadeo-jangid-v-union-of-india-2026bhc-as16291-db-rpf-constables-removal-for-outraging-modesty-1611854
 
 [Source Link](https://t.me/verdictumlegalupdates/26462)
-
----
-
-### 2026-04-11T12:03:51+00:00
-Presumption U/S 113-B Evidence Act Arises Only After Prosecution Establishes Nexus Between Dowry Harassment And Death: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/-mewa-lal-ors-v-state-of-uttar-pradesh-2026ahc-lko22648-dowry-death-1611853
-
-[Source Link](https://t.me/verdictumlegalupdates/26461)
-
----
-
-### 2026-04-11T11:13:10+00:00
-Unwanted Staring Not Voyeurism U/S.354-C IPC; Watching Or Recording Of Woman During Private Act Required For Prosecution: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/abhijit-baswant-nigudkar-v-the-state-of-maharashtra-ors-2026bhc-as16818-db-unwanted-staring-voyeurism-354-c-ipc-1611850
-
-[Source Link](https://t.me/verdictumlegalupdates/26460)
-
----
-
-### 2026-04-11T10:32:48+00:00
-Co-Tenancy Cannot Be Granted On Mere Presumption Of Joint Family Without Proof Of Ancestral Identity: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/2026-ahc-74330-chhutta-v-the-board-of-revenue-1611848
-
-[Source Link](https://t.me/verdictumlegalupdates/26459)
-
----
-
-### 2026-04-11T09:55:07+00:00
-Identify Bottlenecks; Put SOPs In Place: Delhi High Court Emphasises Need For Timely Compliance Of Court Orders On Parole
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/nandu-ram-kishore-v-state-nct-of-delhi-bottlenecks-sops-court-orders-parole-1611847
-
-[Source Link](https://t.me/verdictumlegalupdates/26458)
-
----
-
-### 2026-04-11T09:02:25+00:00
-State Regulation Does Not Render Co-Operative Societies "State" Under Article 12 Of Constitution: Supreme Court Upholds Election Eligibility Bye-Laws
-https://www.verdictum.in/court-updates/supreme-court/ram-chandra-choudhary-v-roop-nagar-dugdh-utpadak-sahakari-samiti-limited-2026-insc-347-upholds-election-eligibility-bye-laws-1611838
-
-[Source Link](https://t.me/verdictumlegalupdates/26457)
-
----
-
-### 2026-04-11T08:13:04+00:00
-Minor Accompanying Person Of Her Free Will Without Being Induced Does Not Constitute Offence Of Kidnapping: Chhattisgarh High Court
-https://www.verdictum.in/court-updates/high-courts/chhattisgarh-high-court/2026-cghc-16334-db-deepak-vaishnav-v-state-of-chhattisgarh-1611837
-
-[Source Link](https://t.me/verdictumlegalupdates/26456)
-
----
-
-### 2026-04-11T07:32:23+00:00
-Adolescents Married At Tender Age Leading To Childbirth: Bombay High Court Quashes POCSO Case
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/a-v-the-state-of-maharashtra-2026bhc-aug14397-db-adolescents-tender-age-childbirth-pocso-1611832
-
-[Source Link](https://t.me/verdictumlegalupdates/26455)
-
----
-
-### 2026-04-11T06:52:41+00:00
-Appellate Court Cannot Dilute Liability Of Convict U/S 34 IPC At Interlocutory Stage Due To Absence Of Overt Act: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/dhan-jee-pandey-v-the-state-of-bihar-2026-insc-349-liability-us-34-ipc-at-interlocutory-stage-1611830
-
-[Source Link](https://t.me/verdictumlegalupdates/26454)
 
 ---
 
