@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-13T08:02:48+00:00*
+*Last Updated: 2026-04-13T14:03:05+00:00*
+
+---
+
+### 2026-04-13T14:03:05+00:00
+Nothing But Attempt To Extract Pound Of Flesh From Husband: Madhya Pradesh High Court While Dismissing Wife’s Maintenance Plea
+https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/a-v-b-2026mphc-jbp25498-attempt-extract-pound-of-flesh-husband-maintenance-plea-1611975
+
+[Source Link](https://t.me/verdictumlegalupdates/26493)
+
+---
+
+### 2026-04-13T13:32:33+00:00
+Apex Court Seeks Response From Centre & EC On Plea Seeking Implementation Of Finger And Iris Biometric Identification System At Polling Stations To Prevent Duplicate Voting
+https://www.verdictum.in/court-updates/supreme-court/apex-court-seeks-response-from-centre-ec-on-plea-seeking-implementation-of-finger-and-iris-biometric-identification-system-at-polling-stations-to-prevent-duplicate-voting-1611974
+
+[Source Link](https://t.me/verdictumlegalupdates/26492)
+
+---
+
+### 2026-04-13T13:02:52+00:00
+Right To Vote In Country You Were Born Is Not Just Constitutional, But Sentimental: Supreme Court While Refusing Plea Against Deletion Of Names In WB Voter List In SIR
+https://www.verdictum.in/court-updates/supreme-court/right-to-vote-in-country-you-were-born-is-not-just-constitutional-but-sentimental-supreme-court-while-refusing-plea-against-deletion-of-names-in-wb-voter-list-in-sir-1611972
+
+[Source Link](https://t.me/verdictumlegalupdates/26491)
+
+---
+
+### 2026-04-13T12:32:30+00:00
+Supreme Court Seeks Centre’s Response On Plea To Accord Weightage To States' Proposal On Exact Cost Of Cultivation While Fixing MSP
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-seeks-centres-response-on-plea-to-accord-weightage-to-states-proposal-on-exact-cost-of-cultivation-while-fixing-msp-1611971
+
+[Source Link](https://t.me/verdictumlegalupdates/26490)
+
+---
+
+### 2026-04-13T12:03:09+00:00
+Supreme Court Urges Justice Dhulia Panel To Determine Manner For Co-Opting Women Members In State Bar Council Polls
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-urges-justice-dhulia-panel-to-determine-manner-for-co-opting-women-members-in-state-bar-council-polls-1611969
+
+[Source Link](https://t.me/verdictumlegalupdates/26489)
+
+---
+
+### 2026-04-13T11:12:48+00:00
+Attended Akhil Bharatiya Adhivakta Parishad's Event: Kejriwal Personally Argues Seeking Recusal Of Justice Swarna Kanta Sharma
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/arvind-kejriwal-justice-swarna-kanta-sharma-argue-recusal-1611967
+
+[Source Link](https://t.me/verdictumlegalupdates/26488)
+
+---
+
+### 2026-04-13T11:02:46+00:00
+Mutt As Legal Representative Entitled To  Motor Accident Compensation For Death Of Mathadipati: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/sb-shivamurthy-shivachary-hiremutt-v-shabir-ahamed-ors-2026khc-k2871-db-1611965
+
+[Source Link](https://t.me/verdictumlegalupdates/26487)
+
+---
+
+### 2026-04-13T10:32:25+00:00
+No Impediment For PWD To Carry Out Maintenance: Kerala High Court Takes Note Of ECI's Approval For Its Internal Infrastructure Work
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/high-court-of-kerala-v-the-election-commission-of-india-no-impediment-pwd-maintenance-infrastructure-1611962
+
+[Source Link](https://t.me/verdictumlegalupdates/26486)
+
+---
+
+### 2026-04-13T10:02:24+00:00
+"I Am Not Plastic" Label Aggravates Risk: Kerala High Court Upholds Existing Ban On Entry Of "Compostable" Bottles Into Sabarimala’s Forest Region
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/swami-saranam-enterprises-v-state-of-kerala-2026ker31403-existing-ban-on-entry-plastic-sabarimalas-1611961
+
+[Source Link](https://t.me/verdictumlegalupdates/26485)
+
+---
+
+### 2026-04-13T09:33:02+00:00
+Adjudicating Officer Can Exercise Delegated Powers Of Refund Under RERA: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/marvel-landmarks-pvt-ltd-v-state-of-maharashtra-ors-2026bhc-as16466-1611958
+
+[Source Link](https://t.me/verdictumlegalupdates/26484)
+
+---
+
+### 2026-04-13T09:02:31+00:00
+Wife Having LLB Degree No Ground To Refuse Maintenance: Gujarat High Court
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/a-v-state-of-gujarat-2026gujhc24635-wife-possession-llb-maintenance-1611957
+
+[Source Link](https://t.me/verdictumlegalupdates/26483)
+
+---
+
+### 2026-04-13T08:33:10+00:00
+Supreme Court Seeks Response From Centre & States On PIL Seeking Implementation Of Right To Education
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-seeks-response-from-centre-states-on-pil-seeking-implementation-of-right-to-education-1611948
+
+[Source Link](https://t.me/verdictumlegalupdates/26482)
 
 ---
 
@@ -65,102 +161,6 @@ Advocates Can’t Blackmail Clients & Stall Legal Proceedings To Settle Fee Disp
 https://www.verdictum.in/court-updates/high-courts/kerala-high-court/2026ker31575-mary-help-john-david-j-v-jv-anoop-1611880
 
 [Source Link](https://t.me/verdictumlegalupdates/26474)
-
----
-
-### 2026-04-12T15:02:41+00:00
-Empanelment Of Advocates & Law Firms At National Film Development Corporation Ltd. (NFDC)
-https://www.verdictum.in/job-updates/national-film-development-corporation-ltd-1611860
-
-[Source Link](https://t.me/verdictumlegalupdates/26473)
-
----
-
-### 2026-04-12T13:33:20+00:00
-Recording Or Sharing Office Calls Does Not Constitute Spying U/S 3 Official Secrets Act Absent Threat To Sovereignty & Security Of State: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/pravin-shyamrao-samarth-v-state-of-maharashtra-anr-2026bhc-nag5513-db-1611879
-
-[Source Link](https://t.me/verdictumlegalupdates/26472)
-
----
-
-### 2026-04-12T12:02:58+00:00
-EWS Reservation Strictly Contingent On Valid Financial-Year Certificate By Cut-Off Date: Supreme Court Upholds Rejection Of Candidature
-https://www.verdictum.in/court-updates/supreme-court/poonam-dwivedi-v-state-of-up-2026-insc-351-ews-reservation-strictly-contingent-on-valid-certificate-1611878
-
-[Source Link](https://t.me/verdictumlegalupdates/26471)
-
----
-
-### 2026-04-12T10:32:37+00:00
-Once Landlord Proves Absence Of Original Tenant & Third-Party Possession, Onus To Rebut Presumption Of Unlawful Sub-Letting Shifts To Tenant: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/sri-mv-ramachandrasa-since-deceased-v-ms-mahendra-watch-company-ors-2026-insc-348-1611877
-
-[Source Link](https://t.me/verdictumlegalupdates/26470)
-
----
-
-### 2026-04-12T09:02:35+00:00
-No Supervening Circumstances Pleaded By ED: Jammu & Kashmir and Ladakh High Court Upholds Bail Granted To Two Accused In Police Recruitment Paper Leak Case
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/assistant-director-directorate-of-enforcement-v-yatin-yadav-2026jklhc-jmu985-bail-accused-police-recruitment-paper-leak-1611865
-
-[Source Link](https://t.me/verdictumlegalupdates/26469)
-
----
-
-### 2026-04-12T07:33:14+00:00
-Absence Of Recovery, Lack Of Direct Nexus And Prolonged Custody: Jammu & Kashmir And Ladakh HC Grants Bail In UAPA Case
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/2026jklhc943-amin-allaie-v-national-investigating-agency-jammu-1611864
-
-[Source Link](https://t.me/verdictumlegalupdates/26468)
-
----
-
-### 2026-04-12T06:02:52+00:00
-Delhi High Court Upholds Order Allowing RTI Applicant To Seek Information Relating To Insurance Policies By Furnishing Basic Details Other Than Policy Number
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ambika-gupta-v-cpio-lic-of-india-2026dhc2925-db-litigant-information-insurance-policies-basic-details-1611861
-
-[Source Link](https://t.me/verdictumlegalupdates/26467)
-
----
-
-### 2026-04-12T04:33:21+00:00
-Bail Applications Of Child In Conflict With Law Can’t Be Dealt With Like Crimes Committed By Adults, JJB & Children’s Court Must Give Reasons: Gujarat High Court
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/2026gujhc24178-xxxx-v-state-of-gujarat-1611859
-
-[Source Link](https://t.me/verdictumlegalupdates/26466)
-
----
-
-### 2026-04-11T15:02:47+00:00
-Senior Consultant (Legal) Vacancy At National Disaster Management Authority (NDMA)
-https://www.verdictum.in/job-updates/national-disaster-management-authority-1611858
-
-[Source Link](https://t.me/verdictumlegalupdates/26465)
-
----
-
-### 2026-04-11T14:12:25+00:00
-Prior Finalised Decisions On Territorial Jurisdiction Remain Binding Despite Subsequent Different Interpretation By Superior Court On Identical Clauses: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/hdfc-bank-limited-v-archana-2026bhc-nag5312-subsequent-different-interpretation-by-superior-court-1611857
-
-[Source Link](https://t.me/verdictumlegalupdates/26464)
-
----
-
-### 2026-04-11T13:32:44+00:00
-Denial Of Relaxation In Qualification Despite Granting It To Similarly Situated Employees, Arbitrary And Violative Of Articles 14 & 16 Constitution: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/kamal-prasad-dubey-v-state-of-madhya-pradesh-ors-2026-insc-353-equality-1611856
-
-[Source Link](https://t.me/verdictumlegalupdates/26463)
-
----
-
-### 2026-04-11T12:52:22+00:00
-Disgraceful Conduct Evident In Viral Video: Bombay High Court Upholds RPF Constable’s Removal For Outraging Modesty Despite Absence Of Complaint
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/rajesh-sahadeo-jangid-v-union-of-india-2026bhc-as16291-db-rpf-constables-removal-for-outraging-modesty-1611854
-
-[Source Link](https://t.me/verdictumlegalupdates/26462)
 
 ---
 
