@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-13T05:18:00+00:00*
+*Last Updated: 2026-04-13T09:45:24+00:00*
 
 ---
 
-### 2026-04-13T05:18:00+00:00
-'Competition Must Be Among Equals': Rajasthan High Court Says Home Guard Selection Can't Pit Experienced Volunteers Against Fresh Candidates
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-preferential-screening-home-guard-volunteers-fresh-candidates-530050
+### 2026-04-13T09:45:24+00:00
+Civil Services Exam: Gujarat High Court Rejects Plea Challenging Procedure To Avail Scribe Filed By Candidate Who Failed All Attempts
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-upsc-civil-services-exam-scribe-facility-procedure-530098
 
-[Read on Telegram](https://t.me/livelawindia/108799)
-
----
-### 2026-04-13T05:27:20+00:00
-BREAKING | Umar Khalid Files Review Petition Against Supreme Court's Bail Denial; Seeks Open Court Hearing
-https://www.livelaw.in/top-stories/umar-khalid-files-review-petition-against-supreme-courts-bail-denial-seeks-open-court-hearing-530058
-
-[Read on Telegram](https://t.me/livelawindia/108800)
+[Read on Telegram](https://t.me/livelawindia/108823)
 
 ---
-### 2026-04-13T05:32:40+00:00
-Gujarat High Court Weekly Round-Up: April 06 - April 12, 2026
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-weekly-round-up-530044
+### 2026-04-13T09:45:34+00:00
+'Justice Should Also Be Seen To Be Done' : Supreme Court Directs Another Disciplinary Authority To Decide After Employee Alleged Bias
+https://www.livelaw.in/supreme-court/justice-should-also-be-seen-to-be-done-supreme-court-directs-another-disciplinary-authority-to-decide-after-employee-alleged-bias-530100
 
-[Read on Telegram](https://t.me/livelawindia/108801)
-
----
-### 2026-04-13T05:47:40+00:00
-Kerala High Court Refuses Permission To Sell 'Compostable' Plastic Bottles At Sabarimala, Says They're Not Biodegradable
-https://www.livelaw.in/high-court/kerala-high-court/sabarimala-compostable-plastic-waste-management-rules-kerala-high-court-rejects-biodegradable-pla-bottles-530053
-
-[Read on Telegram](https://t.me/livelawindia/108802)
+[Read on Telegram](https://t.me/livelawindia/108824)
 
 ---
-### 2026-04-13T06:03:00+00:00
-Accused Can't Be Denied Effective Cross-Examination Due To Counsel's Absence: Rajasthan High Court Permits Recall Of Eyewitness
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-recall-eyewitness-trained-counsel-crossexamination-530055
+### 2026-04-13T09:46:44+00:00
+2026 LiveLaw (SC) 363 | NATIONAL BAL BHAWAN & ANR. V. KHAZAN CHAND & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-363-national-bal-bhawan-anr-v-khazan-chand-ors-530101
 
-[Read on Telegram](https://t.me/livelawindia/108803)
-
----
-### 2026-04-13T06:06:00+00:00
-Supreme Court Allows Lalu Prasad Yadav To Raise Issue Of S.17A PC Act Sanction During Trial Of 'Land-for-Railway Jobs' Case
-https://www.livelaw.in/top-stories/supreme-court-allows-lalu-prasad-yadav-to-raise-issue-of-s17a-pc-act-sanction-during-trial-of-land-for-railway-jobs-case-530062
-
-[Read on Telegram](https://t.me/livelawindia/108804)
+[Read on Telegram](https://t.me/livelawindia/108825)
 
 ---
-### 2026-04-13T06:08:00+00:00
-Supreme Court 3-Bench To Hear Teesta Setalvad's Plea To Release Passport Surrendered As Bail Condition
-https://www.livelaw.in/top-stories/supreme-court-3-bench-to-hear-teesta-setalvads-plea-to-release-passport-surrendered-as-bail-condition-530063
+### 2026-04-13T09:47:46+00:00
+Madras High Court Weekly Round-Up: April 06 - April 12, 2026
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-april-6-to-april-12-2026-530069
 
-[Read on Telegram](https://t.me/livelawindia/108805)
-
----
-### 2026-04-13T06:18:11+00:00
-Family Courts Can't Transfer Cases, Power Lies Only With HC Or District Court Under Section 24 CPC: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-transfer-powers-issue-section24-cpc-530056
-
-[Read on Telegram](https://t.me/livelawindia/108806)
+[Read on Telegram](https://t.me/livelawindia/108826)
 
 ---
-### 2026-04-13T06:26:11+00:00
-Supreme Court Issues Notice On Farmers' Plea Seeking MSP Fixation Based On Actual Cost Of Cultivation
-https://www.livelaw.in/top-stories/supreme-court-issues-notice-on-farmers-plea-seeking-msp-fixation-based-on-actual-cost-of-cultivation-530065
+### 2026-04-13T09:49:44+00:00
+Supreme Court Earmarks 4 EC Posts For Women AoRs In SCAORA Elections
+https://www.livelaw.in/top-stories/supreme-court-scaora-executive-committee-elections-secretary-joint-treasurer-2-other-posts-earmarked-for-women-aors-530103
 
-[Read on Telegram](https://t.me/livelawindia/108807)
-
----
-### 2026-04-13T06:32:51+00:00
-Mere Administrative Exigency Or Convenience Can't Be Ground To Invoke Urgency Clause Under Land Acquisition Act: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-administrative-exigency-invoke-urgency-sec17-land-acquisition-act-530059
-
-[Read on Telegram](https://t.me/livelawindia/108808)
+[Read on Telegram](https://t.me/livelawindia/108827)
 
 ---
-### 2026-04-13T06:47:51+00:00
-Rajasthan High Court Asks State To Frame Policy Curbing Khap Panchayat 'Diktats', Says Social Boycott Violates Citizens' Fundamental Rights
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-khap-panchayats-citizens-rights-directions-530068
+### 2026-04-13T09:58:44+00:00
+Courts Cannot Re-Adjudicate Settled Issues In Contempt Jurisdiction, Can Only Examine Compliance : Supreme Court
+https://www.livelaw.in/supreme-court/courts-cannot-re-adjudicate-settled-issues-in-contempt-jurisdiction-can-only-examine-compliance-supreme-court-530105
 
-[Read on Telegram](https://t.me/livelawindia/108809)
-
----
-### 2026-04-13T06:57:31+00:00
-Himachal Pradesh High Court Monthly Digest : March 2026
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-monthly-digest2026-530054
-
-[Read on Telegram](https://t.me/livelawindia/108810)
+[Read on Telegram](https://t.me/livelawindia/108828)
 
 ---
-### 2026-04-13T07:17:41+00:00
-Bar Council Elections : Supreme Court Requests Justice Dhulia Committee To Decide Manner Of Co-opting Women Members
-https://www.livelaw.in/top-stories/bar-council-elections-supreme-court-requests-justice-dhulia-committee-to-decide-manner-of-co-opting-women-members-530078
+### 2026-04-13T10:00:24+00:00
+2026 LiveLaw (SC) 364 | JALIM SINGH VERSUS NAND KISHORE & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-364-jalim-singh-versus-nand-kishore-ors-530106
 
-[Read on Telegram](https://t.me/livelawindia/108811)
-
----
-### 2026-04-13T07:18:21+00:00
-Brother Not Covered For Purpose Of Family Pension, When Eligible Claimant Mother Never Availed It: Calcutta HC
-https://www.livelaw.in/high-court/calcutta-high-court/brother-not-covered-for-purpose-of-family-pension-when-eligible-claimant-mother-never-availed-it-calcutta-hc-530033
-
-[Read on Telegram](https://t.me/livelawindia/108812)
+[Read on Telegram](https://t.me/livelawindia/108829)
 
 ---
-### 2026-04-13T07:22:41+00:00
-Supreme Court Issues Notice On Plea Seeking Biometric Identification At Polling Booths To Prevent Electoral Malpractices
-https://www.livelaw.in/top-stories/supreme-court-issues-notice-on-plea-seeking-biometric-identification-at-polling-booths-to-prevent-electoral-malpractices-530079
+### 2026-04-13T10:09:45+00:00
+Advocate Moves Supreme Court Challenging P&H High Court's Refusal Of Senior Designation
+https://www.livelaw.in/top-stories/advocate-moves-supreme-court-challenging-ph-high-courts-refusal-of-senior-designation-530107
 
-[Read on Telegram](https://t.me/livelawindia/108813)
-
----
-### 2026-04-13T07:29:21+00:00
-Assam Police Move Supreme Court Against Telangana HC Order Granting Anticipatory Bail To Congress Leader Pawan Khera
-https://www.livelaw.in/top-stories/assam-police-move-supreme-court-against-telangana-hc-order-granting-anticipatory-bail-to-congress-leader-pawan-khera-530080
-
-[Read on Telegram](https://t.me/livelawindia/108814)
+[Read on Telegram](https://t.me/livelawindia/108830)
 
 ---
-### 2026-04-13T07:32:21+00:00
-Kerala High Court Weekly Round-Up : April 06 - April 12, 2026
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-weekly-april-2026-530048
+### 2026-04-13T10:51:55+00:00
+Gherao Of Judges During West Bengal SIR | Supreme Court Asks If Instigators Had Political Background
+https://www.livelaw.in/top-stories/gherao-of-judges-during-west-bengal-sir-supreme-court-asks-if-instigators-had-political-background-530115
 
-[Read on Telegram](https://t.me/livelawindia/108815)
-
----
-### 2026-04-13T07:41:01+00:00
-Kejriwal Argues His Plea For Justice Swarana Kanta Sharma's Recusal : Live Updates From Delhi High Court | Liquor Policy Case
-https://www.livelaw.in/top-stories/kejriwal-argues-his-plea-for-justice-swarana-kanta-sharmas-recusal-live-updates-530083
-
-[Read on Telegram](https://t.me/livelawindia/108816)
+[Read on Telegram](https://t.me/livelawindia/108831)
 
 ---
-### 2026-04-13T07:48:01+00:00
-Mutt Can Claim Motor Accident Compensation For Death Of Head Priest: Karnataka High Court Recognises 'Institutional Dependency'
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-mutt-claim-motor-accident-compensation-mathadipati-530084
+### 2026-04-13T10:58:25+00:00
+Debarment Must Have Express Tender Backing; Cannot Be Imposed by Implication: Patna High Court Quashes Blacklisting Of Contractor
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-set-aside-year-debarment-contractor-530096
 
-[Read on Telegram](https://t.me/livelawindia/108817)
+[Read on Telegram](https://t.me/livelawindia/108832)
 
 ---
-### 2026-04-13T08:09:18+00:00
-West Bengal SIR  |'If Winning Margin Is 2 % & 15% Couldn't Vote?' : Justice Bagchi Raises Concerns, Says ECI Deviated From Bihar Stance
-https://www.livelaw.in/top-stories/west-bengal-sir-if-winning-margin-is-2-15-of-electorate-couldnt-vote-justice-bagchi-raises-concerns-530087
+### 2026-04-13T11:36:45+00:00
+Mere Discrepancy In DOB Without Intent To Deceive Isn't Fraud: Allahabad High Court Quashes Govt Teacher's Dismissal
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-dob-discrepancy-not-fraud-teacher-reinstated-530118
 
-[Read on Telegram](https://t.me/livelawindia/108818)
+[Read on Telegram](https://t.me/livelawindia/108833)
+
+---
+### 2026-04-13T12:00:15+00:00
+For Justice Swarana Kanta Sharma's Recusal, Arvind Kejriwal Relies On Delhi HC Order Changing Judge In Sayender Jain's Case On ED Plea
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-arvind-kejriwal-recusal-plea-justice-swarana-kanta-sharma-530121
+
+[Read on Telegram](https://t.me/livelawindia/108834)
+
+---
+### 2026-04-13T12:12:35+00:00
+TDR Bonds Not Mandatory Under 2013 Land Acquisition Law; State Must Follow Statutory Compensation Scheme If Acquisition Refused: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-state-thrust-tdr-bonds-rehabilitation-road-widening-acquisition-proceedings-2013-act-530075
+
+[Read on Telegram](https://t.me/livelawindia/108835)
+
+---
+### 2026-04-13T12:27:35+00:00
+West Bengal SIR | Can't Allow Deleted Persons To Vote In 2026 Elections When Their Appeals Are Pending : Supreme Court
+https://www.livelaw.in/top-stories/west-bengal-sir-cant-allow-deleted-persons-to-vote-in-2026-elections-when-their-appeals-are-pending-supreme-court-530126
+
+[Read on Telegram](https://t.me/livelawindia/108836)
+
+---
+### 2026-04-13T12:43:05+00:00
+Tender Lapses Automatically If Not Extended; Repeated Representations Can't Cure Delay: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-cancellation-old-tender-empty-cartridget-munger-gun-factory-530095
+
+[Read on Telegram](https://t.me/livelawindia/108837)
+
+---
+### 2026-04-13T12:44:45+00:00
+'State Govts Failed' : Supreme Court Slams Rajasthan, MP Over Sand Mafia Rampage In Chambal Sanctuary
+https://www.livelaw.in/top-stories/state-govts-failed-supreme-court-slams-rajasthan-mp-over-sand-mafia-rampage-in-chambal-sanctuary-530128
+
+[Read on Telegram](https://t.me/livelawindia/108838)
+
+---
+### 2026-04-13T12:44:55+00:00
+Appeal Moved Before Kerala High Court To Stall Release Of Movie Inspired By Venjaramoodu Mass Murder Case
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-appeal-venjaramoodu-mass-murder-case-530130
+
+[Read on Telegram](https://t.me/livelawindia/108839)
+
+---
+### 2026-04-13T13:05:05+00:00
+Follow Temple Norms Barring Foreign-Returned Priests From Worshipping At Sringeri Sharada Peetham: AP High Court To  State
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-state-circular-sringeri-sharada-peetham-pramanika-foreign-returned-priests-worship-530134
+
+[Read on Telegram](https://t.me/livelawindia/108840)
+
+---
+### 2026-04-13T13:32:25+00:00
+Accepting Arvind Kejriwal's Plea To Recuse Will Set Bad Precedent: CBI Tells Justice Swarana Kanta Sharma
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-cbi-opposes-recusal-justice-swarana-kanta-sharma-arvind-kejriwal-530138
+
+[Read on Telegram](https://t.me/livelawindia/108841)
+
+---
+### 2026-04-13T13:37:55+00:00
+Mere Non-Wearing Of Helmet Doesn't Enable Plea Of Contributory Negligence Without Direct Nexus To Accident: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-helmet-not-prevent-accident-mact-order-upheld-contributory-negligence-530135
+
+[Read on Telegram](https://t.me/livelawindia/108842)
 
 ---
