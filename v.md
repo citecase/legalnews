@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-13T14:03:05+00:00*
+*Last Updated: 2026-04-13T15:53:10+00:00*
+
+---
+
+### 2026-04-13T15:53:10+00:00
+Solicitor General Slams Kejriwal’s Recusal Plea As Attempt To Malign Bench, Delhi High Court Reserves Order
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/sg-tushar-mehta-arvind-kejriwal-justice-swarna-kanta-sharma-recusal-1611987
+
+[Source Link](https://t.me/verdictumlegalupdates/26497)
+
+---
+
+### 2026-04-13T15:32:49+00:00
+Bar Of Working 80 Days In 12 Months For Availing Benefit Of Maternity Leave Not Applicable To State Govt Establishment: Madhya Pradesh High Court
+https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/dr-priti-saket-v-the-state-of-madhya-pradesh-and-others-2026mphc-jbp24642-benefit-maternity-leave-state-govt-1611978
+
+[Source Link](https://t.me/verdictumlegalupdates/26496)
+
+---
+
+### 2026-04-13T15:02:27+00:00
+Absence Not Wilful: Jharkhand High Court Grants Relief To Teacher Who Suffered Depression
+https://www.verdictum.in/court-updates/high-courts/jharkhand-high-court/the-state-of-jharkhand-v-nandu-ram-2026jhhc10177-db-absence-not-wilful-teacher-depression-1611977
+
+[Source Link](https://t.me/verdictumlegalupdates/26495)
+
+---
+
+### 2026-04-13T14:32:26+00:00
+Dealer’s Margin On Lottery Tickets Not “Commission” Absent Payment Or Credit Of Income; Section 194G IT Act Not Attracted: Madras High Court
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/the-commissioner-of-income-tax-coimbatore-v-ms-martin-lottery-agencies-ltd-1611976
+
+[Source Link](https://t.me/verdictumlegalupdates/26494)
 
 ---
 
@@ -129,38 +161,6 @@ Supreme Court Allows Lalu Prasad Yadav To Raise Section 17A PC Act Challenge Dur
 https://www.verdictum.in/court-updates/supreme-court/lalu-prasad-yadav-land-for-jobs-case-17a-pc-act-cbi-1611936
 
 [Source Link](https://t.me/verdictumlegalupdates/26478)
-
----
-
-### 2026-04-13T06:03:03+00:00
-No Challenge To Unproduced & Unregistered Sale Deed Not Fatal; Declaratory Decree Itself Amounts To Repudiation Of Voidable Transaction: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/hari-ram-v-state-of-rajasthan-ors-2026-insc-350-unregistered-sale-deed-1611931
-
-[Source Link](https://t.me/verdictumlegalupdates/26477)
-
----
-
-### 2026-04-13T05:32:41+00:00
-Differential DA/DR Rates For Serving & Retired Employees Without Rational Nexus To Inflationary Objective Violate Article 14: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/state-of-kerala-v-m-vijayakumar-2026-insc-352-differential-dadr-rates-for-serving-retired-employees-1611927
-
-[Source Link](https://t.me/verdictumlegalupdates/26476)
-
----
-
-### 2026-04-13T05:02:20+00:00
-Classification Based On Employee Grade For Inter-Utility Transfers Violates Article 14 Constitution: Punjab & Haryana High Court
-https://www.verdictum.in/court-updates/high-courts/punjab-and-haryana-high-court/jaswinder-singh-v-state-of-haryana-2026phhc054927-1611925
-
-[Source Link](https://t.me/verdictumlegalupdates/26475)
-
----
-
-### 2026-04-13T04:32:28+00:00
-Advocates Can’t Blackmail Clients & Stall Legal Proceedings To Settle Fee Disputes: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/2026ker31575-mary-help-john-david-j-v-jv-anoop-1611880
-
-[Source Link](https://t.me/verdictumlegalupdates/26474)
 
 ---
 
