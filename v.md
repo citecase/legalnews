@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-14T14:03:06+00:00*
+*Last Updated: 2026-04-14T16:03:12+00:00*
+
+---
+
+### 2026-04-14T16:03:12+00:00
+Staff Selection Commission (KKR), Bengaluru Invites Applications For The Post Of Young Professional (Legal Consultant)
+https://www.verdictum.in/job-updates/staff-selection-commission-1611980
+
+[Source Link](https://t.me/verdictumlegalupdates/26519)
+
+---
+
+### 2026-04-14T15:33:10+00:00
+Process Bail Applications Of First Time Offenders Who Have Served 1/3rd Of Maximum Sentence: Delhi High Court Calls For Compliance With Apex Court's Directions
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/rishabh-gehlot-v-state-nct-of-delhi-2026dhc3039-process-bail-applications-first-time-offender-1612056
+
+[Source Link](https://t.me/verdictumlegalupdates/26518)
+
+---
+
+### 2026-04-14T15:02:49+00:00
+Can’t Infer Contributory Negligence Merely Because Deceased Driver Didn't Wear Helmet: Madras High Court Upholds MACT Award
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/the-managing-director-v-mariyammal-cant-claim-contributory-negligence-non-wearing-helmet-negligent-1612054
+
+[Source Link](https://t.me/verdictumlegalupdates/26517)
+
+---
+
+### 2026-04-14T14:32:28+00:00
+Prosecution's Explanation Too Hard To Swallow: Allahabad High Court Sets Aside Conviction In 1986 Murder Case
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/rammu-v-state-of-up-2026ahc79213-db-tainted-one-sided-in-1986-murder-case-1612051
+
+[Source Link](https://t.me/verdictumlegalupdates/26516)
 
 ---
 
@@ -129,38 +161,6 @@ Benefit U/S 4 Probation of Offenders Act Available Even If Sentence Imposed Is O
 https://www.verdictum.in/court-updates/supreme-court/milind-so-ashruba-dhanve-ors-v-state-of-maharashtra-2026-insc-355-1612011
 
 [Source Link](https://t.me/verdictumlegalupdates/26500)
-
----
-
-### 2026-04-14T05:02:58+00:00
-Recurrent Possession Of “Small Quantity” Drugs Can Attract Preventive Detention Under KAAPA: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/aaliya-ashraf-v-state-of-kerala-ors-kkapa-ndps-preventive-detention-1612010
-
-[Source Link](https://t.me/verdictumlegalupdates/26499)
-
----
-
-### 2026-04-14T04:32:26+00:00
-Insurance Company Can’t Recover Award Amount From RC Owner On Ground That Driver Had No Badge: Kerala High Court
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/united-india-insurance-company-limited-v-eg-sahadevan-2026ker25402-insurance-company-recovery-award-amount-vehicle-1611982
-
-[Source Link](https://t.me/verdictumlegalupdates/26498)
-
----
-
-### 2026-04-13T15:53:10+00:00
-Solicitor General Slams Kejriwal’s Recusal Plea As Attempt To Malign Bench, Delhi High Court Reserves Order
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/sg-tushar-mehta-arvind-kejriwal-justice-swarna-kanta-sharma-recusal-1611987
-
-[Source Link](https://t.me/verdictumlegalupdates/26497)
-
----
-
-### 2026-04-13T15:32:49+00:00
-Bar Of Working 80 Days In 12 Months For Availing Benefit Of Maternity Leave Not Applicable To State Govt Establishment: Madhya Pradesh High Court
-https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/dr-priti-saket-v-the-state-of-madhya-pradesh-and-others-2026mphc-jbp24642-benefit-maternity-leave-state-govt-1611978
-
-[Source Link](https://t.me/verdictumlegalupdates/26496)
 
 ---
 
