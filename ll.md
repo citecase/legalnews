@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-13T10:00:24+00:00*
+*Last Updated: 2026-04-14T05:29:40+00:00*
 
 ---
 
-### 2026-04-13T10:00:24+00:00
-2026 LiveLaw (SC) 364 | JALIM SINGH VERSUS NAND KISHORE & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-364-jalim-singh-versus-nand-kishore-ors-530106
+### 2026-04-14T05:29:40+00:00
+2026 LiveLaw (SC) 365 |  KAMAL PRASAD DUBEY VERSUS THE STATE OF MADHYA PRADESH AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-365-kamal-prasad-dubey-versus-the-state-of-madhya-pradesh-and-others-530186
 
-[Read on Telegram](https://t.me/livelawindia/108829)
-
----
-### 2026-04-13T10:09:45+00:00
-Advocate Moves Supreme Court Challenging P&H High Court's Refusal Of Senior Designation
-https://www.livelaw.in/top-stories/advocate-moves-supreme-court-challenging-ph-high-courts-refusal-of-senior-designation-530107
-
-[Read on Telegram](https://t.me/livelawindia/108830)
+[Read on Telegram](https://t.me/livelawindia/108858)
 
 ---
-### 2026-04-13T10:51:55+00:00
-Gherao Of Judges During West Bengal SIR | Supreme Court Asks If Instigators Had Political Background
-https://www.livelaw.in/top-stories/gherao-of-judges-during-west-bengal-sir-supreme-court-asks-if-instigators-had-political-background-530115
+### 2026-04-14T05:32:20+00:00
+Delhi High Court Orders Strict Compliance With SC Directions On Release Of Undertrials Completing 1/3rd Sentence
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-orders-strict-compliance-with-sc-directions-on-release-of-undertrials-completing-13rd-sentence-530171
 
-[Read on Telegram](https://t.me/livelawindia/108831)
-
----
-### 2026-04-13T10:58:25+00:00
-Debarment Must Have Express Tender Backing; Cannot Be Imposed by Implication: Patna High Court Quashes Blacklisting Of Contractor
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-set-aside-year-debarment-contractor-530096
-
-[Read on Telegram](https://t.me/livelawindia/108832)
+[Read on Telegram](https://t.me/livelawindia/108859)
 
 ---
-### 2026-04-13T11:36:45+00:00
-Mere Discrepancy In DOB Without Intent To Deceive Isn't Fraud: Allahabad High Court Quashes Govt Teacher's Dismissal
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-dob-discrepancy-not-fraud-teacher-reinstated-530118
+### 2026-04-14T05:49:20+00:00
+Legal Associate Vacancy At Tata 1MG Healthcare Solutions Private Limited
+https://www.livelaw.in/job-updates/legal-associate-vacancy-at-tata-1mg-healthcare-solutions-private-limited-530190
 
-[Read on Telegram](https://t.me/livelawindia/108833)
-
----
-### 2026-04-13T12:00:15+00:00
-For Justice Swarana Kanta Sharma's Recusal, Arvind Kejriwal Relies On Delhi HC Order Changing Judge In Sayender Jain's Case On ED Plea
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-arvind-kejriwal-recusal-plea-justice-swarana-kanta-sharma-530121
-
-[Read on Telegram](https://t.me/livelawindia/108834)
+[Read on Telegram](https://t.me/livelawindia/108860)
 
 ---
-### 2026-04-13T12:12:35+00:00
-TDR Bonds Not Mandatory Under 2013 Land Acquisition Law; State Must Follow Statutory Compensation Scheme If Acquisition Refused: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-state-thrust-tdr-bonds-rehabilitation-road-widening-acquisition-proceedings-2013-act-530075
+### 2026-04-14T06:03:00+00:00
+'Abuse Of Process' To Pressurise Govt Officials: Rajasthan High Court Dismisses Contempt Plea Over False Transfer Claim With ₹5,000 Costs
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-dismisses-contempt-plea-false-claims-transfer-direction-530189
 
-[Read on Telegram](https://t.me/livelawindia/108835)
-
----
-### 2026-04-13T12:27:35+00:00
-West Bengal SIR | Can't Allow Deleted Persons To Vote In 2026 Elections When Their Appeals Are Pending : Supreme Court
-https://www.livelaw.in/top-stories/west-bengal-sir-cant-allow-deleted-persons-to-vote-in-2026-elections-when-their-appeals-are-pending-supreme-court-530126
-
-[Read on Telegram](https://t.me/livelawindia/108836)
+[Read on Telegram](https://t.me/livelawindia/108861)
 
 ---
-### 2026-04-13T12:43:05+00:00
-Tender Lapses Automatically If Not Extended; Repeated Representations Can't Cure Delay: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-cancellation-old-tender-empty-cartridget-munger-gun-factory-530095
+### 2026-04-14T06:17:06+00:00
+Ambedkar Jayanti: Reminiscing A Legacy Of Equality
+https://www.livelaw.in/articles/ambedkar-jayanti-reminiscing-legacy-equality-530192
 
-[Read on Telegram](https://t.me/livelawindia/108837)
-
----
-### 2026-04-13T12:44:45+00:00
-'State Govts Failed' : Supreme Court Slams Rajasthan, MP Over Sand Mafia Rampage In Chambal Sanctuary
-https://www.livelaw.in/top-stories/state-govts-failed-supreme-court-slams-rajasthan-mp-over-sand-mafia-rampage-in-chambal-sanctuary-530128
-
-[Read on Telegram](https://t.me/livelawindia/108838)
+[Read on Telegram](https://t.me/livelawindia/108862)
 
 ---
-### 2026-04-13T12:44:55+00:00
-Appeal Moved Before Kerala High Court To Stall Release Of Movie Inspired By Venjaramoodu Mass Murder Case
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-appeal-venjaramoodu-mass-murder-case-530130
+### 2026-04-14T06:25:16+00:00
+Spouse Cannot Withdraw Consent For Mutual Divorce After Agreeing For It In Settlement Of Claims : Supreme Court
+https://www.livelaw.in/supreme-court/spouse-cannot-withdraw-consent-for-mutual-divorce-after-agreeing-for-it-in-settlement-of-claims-supreme-court-530194
 
-[Read on Telegram](https://t.me/livelawindia/108839)
-
----
-### 2026-04-13T13:05:05+00:00
-Follow Temple Norms Barring Foreign-Returned Priests From Worshipping At Sringeri Sharada Peetham: AP High Court To  State
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-state-circular-sringeri-sharada-peetham-pramanika-foreign-returned-priests-worship-530134
-
-[Read on Telegram](https://t.me/livelawindia/108840)
+[Read on Telegram](https://t.me/livelawindia/108863)
 
 ---
-### 2026-04-13T13:32:25+00:00
-Accepting Arvind Kejriwal's Plea To Recuse Will Set Bad Precedent: CBI Tells Justice Swarana Kanta Sharma
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-cbi-opposes-recusal-justice-swarana-kanta-sharma-arvind-kejriwal-530138
+### 2026-04-14T06:30:36+00:00
+2026 LiveLaw (SC) 366 | DHANANJAY RATHI VERSUS RUCHIKA RATHI
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-366-dhananjay-rathi-versus-ruchika-rathi-530195
 
-[Read on Telegram](https://t.me/livelawindia/108841)
-
----
-### 2026-04-13T13:37:55+00:00
-Mere Non-Wearing Of Helmet Doesn't Enable Plea Of Contributory Negligence Without Direct Nexus To Accident: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-helmet-not-prevent-accident-mact-order-upheld-contributory-negligence-530135
-
-[Read on Telegram](https://t.me/livelawindia/108842)
+[Read on Telegram](https://t.me/livelawindia/108864)
 
 ---
-### 2026-04-13T14:12:57+00:00
-Being A Student Doesn't Absolve Husband From Maintaining Wife: P&H High Court Denies Relief To 22 Y/O Engineering Student
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-and-haryan-high-court-student-husband-maintain-wife-530142
+### 2026-04-14T06:32:36+00:00
+IBC Overrides Securities Law? NCLAT's Expanding Jurisdiction Over Frozen Demat Accounts
+https://www.livelaw.in/lawschool/articles/ibc-securities-law-nclat-expanding-jurisdiction-frozen-demat-accounts-530149
 
-[Read on Telegram](https://t.me/livelawindia/108843)
-
----
-### 2026-04-13T14:38:07+00:00
-Plea Filed In Supreme Court Against S.44(3) Of DPDP Act, Seeks Interim Relief Against Masking/Deletion Of Available Data; Notice Issued
-https://www.livelaw.in/top-stories/supreme-court-plea-against-s44-dpdp-act-seeks-interim-relief-against-masking-deletion-of-available-data-notice-issued-530147
-
-[Read on Telegram](https://t.me/livelawindia/108844)
+[Read on Telegram](https://t.me/livelawindia/108865)
 
 ---
-### 2026-04-13T14:58:07+00:00
-Certified Copy Of Decree Sufficient For Sub-Registrar To Record Cancellation Of Registered Documents: Karnataka HC Issues Guidelines
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-issues-guidelines-recording-cancellation-registered-documents-530146
+### 2026-04-14T06:32:46+00:00
+Case Can't Be Transferred On 'Hypersensitive' Litigant's Imaginary Apprehension Of Bias: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/case-cant-be-transferred-on-hypersensitive-litigants-imaginary-apprehension-of-bias-delhi-high-court-530172
 
-[Read on Telegram](https://t.me/livelawindia/108845)
-
----
-### 2026-04-13T15:02:27+00:00
-Section 32A's Clean Slate: A Promise That Rarely Materializes
-https://www.livelaw.in/lawschool/articles/section-32a-ibc-clean-slate-promise-530148
-
-[Read on Telegram](https://t.me/livelawindia/108846)
+[Read on Telegram](https://t.me/livelawindia/108866)
 
 ---
-### 2026-04-13T18:57:48+00:00
-DBRANLU Students Win 7th Surana & Surana–Army Institute of Law Family Moot Court Competition 2025–26
-https://www.livelaw.in/lawschool/news/dbranlu-students-win-7th-surana-suranaarmy-institute-of-law-family-moot-court-competition-530157
+### 2026-04-14T06:35:56+00:00
+5th Soli Sorabjee Memorial Lecture To Be Held At India International Centre Today
+https://www.livelaw.in/news-updates/5th-soli-sorabjee-memorial-lecture-to-be-held-at-india-international-centre-today-530196
 
-[Read on Telegram](https://t.me/livelawindia/108847)
+[Read on Telegram](https://t.me/livelawindia/108867)
 
 ---
-### 2026-04-13T19:07:48+00:00
-Efficiency, Integrity Key To Judiciary's Strength: Chhattisgarh HC Chief Justice Ramesh Sinha
-https://www.livelaw.in/news-updates/efficiency-integrity-key-to-judiciarys-strength-chhattisgarh-hc-chief-justice-ramesh-sinha-530158
+### 2026-04-14T06:50:03+00:00
+'We'd Examine' : Supreme Court To Hear Plea Seeking Free Pre-Primary Education As Proposed By NEP 2020
+https://www.livelaw.in/top-stories/supreme-court-pil-seeking-free-compulsory-education-at-pre-primary-level-right-to-education-act-nep-2020-notice-issued-530198
 
-[Read on Telegram](https://t.me/livelawindia/108848)
+[Read on Telegram](https://t.me/livelawindia/108868)
+
+---
+### 2026-04-14T07:01:03+00:00
+Savarkar Got 'Swatantryaveer' Title For His Work, No Official Govt Gazette Regarding It : Grandnephew Tells Court
+https://www.livelaw.in/news-updates/official-government-gazette-swatantryaveer-title-savarkar-pune-court-530203
+
+[Read on Telegram](https://t.me/livelawindia/108869)
+
+---
+### 2026-04-14T07:03:43+00:00
+Supreme Court Suspends PC Act Sentence Of Ex-Jharkhand Minister Anosh Ekka; Flags 'Overlapping' CBI Prosecutions
+https://www.livelaw.in/supreme-court/supreme-court-suspends-pc-act-sentence-of-ex-jharkhand-minister-anosh-ekka-flags-overlapping-cbi-prosecutions-530204
+
+[Read on Telegram](https://t.me/livelawindia/108870)
+
+---
+### 2026-04-14T07:05:03+00:00
+2026 LiveLaw (SC) 367 | ANOSH EKKA VERSUS STATE THROUGH CENTRAL BUREAU OF INVESTIGATION
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-367-anosh-ekka-versus-state-through-central-bureau-of-investigation-530205
+
+[Read on Telegram](https://t.me/livelawindia/108871)
+
+---
+### 2026-04-14T07:06:43+00:00
+NLUJ, IDIA Rajasthan & IC RegFin Legal Announce 3rd Edition of Essay Writing Competition
+https://www.livelaw.in/lawschool/competitions/nluj-idia-rajasthan-ic-regfin-legal-announce-3rd-edition-of-essay-writing-competition-530206
+
+[Read on Telegram](https://t.me/livelawindia/108872)
+
+---
+### 2026-04-14T07:21:29+00:00
+Supreme Court Upholds Calcutta HC Order Refusing Stay On WB Election Webcasting Tender; SLP Dismissed
+https://www.livelaw.in/law-firms/litigation/supreme-court-upholds-calcutta-hc-order-refusing-stay-on-wb-election-webcasting-tender-slp-dismissed-530208
+
+[Read on Telegram](https://t.me/livelawindia/108873)
+
+---
+### 2026-04-14T07:30:49+00:00
+S.156(3) CrPC/S.175(3) BNSS | Magistrate's Order For Investigation Can't Be Quashed By Relying On Accused's Defence : Supreme Court
+https://www.livelaw.in/supreme-court/s1563-crpcs1753-bnss-magistrates-order-for-investigation-cant-be-quashed-by-relying-on-accuseds-defence-supreme-court-530209
+
+[Read on Telegram](https://t.me/livelawindia/108874)
+
+---
+### 2026-04-14T07:31:10+00:00
+Karnataka High Court Weekly Round-Up: April 06 – April 12, 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-round-up2026-530210
+
+[Read on Telegram](https://t.me/livelawindia/108875)
+
+---
+### 2026-04-14T07:32:09+00:00
+2026 LiveLaw (SC) 368 | ACCAMMA SAM JACOB VERSUS THE STATE OF KARNATAKA & ANR. ETC.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-368-accamma-sam-jacob-versus-the-state-of-karnataka-anr-etc-530211
+
+[Read on Telegram](https://t.me/livelawindia/108876)
+
+---
+### 2026-04-14T07:32:29+00:00
+Trade Union Cannot Invoke Recovery U/S 50 MRTU & PULP Act Without Written Authorisation From Employees: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-trade-union-section50-of-mrtu-pulp-act-employees-written-authorisation-530182
+
+[Read on Telegram](https://t.me/livelawindia/108877)
 
 ---
