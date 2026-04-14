@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-14T08:02:52+00:00*
+*Last Updated: 2026-04-14T14:03:06+00:00*
+
+---
+
+### 2026-04-14T14:03:06+00:00
+If Tender Period Lapses Without Formal Extension, Contract To Be Considered Naturally Terminated: Patna High Court
+https://www.verdictum.in/court-updates/high-courts/patna-high-court/state-of-bihar-v-ms-kumar-and-kumar-letters-patent-appeal-320-of-2025-1612050
+
+[Source Link](https://t.me/verdictumlegalupdates/26515)
+
+---
+
+### 2026-04-14T13:32:55+00:00
+Even Negligence Can Constitute Contempt; Belated Apology Not A Defence But Evidence Of Genuine Contrition: Andhra Pradesh High Court
+https://www.verdictum.in/court-updates/high-courts/andhra-pradesh-high-court/nagatham-suneetha-anr-v-nagatham-muni-rajamma-ors-contempt-of-court-1612049
+
+[Source Link](https://t.me/verdictumlegalupdates/26514)
+
+---
+
+### 2026-04-14T13:02:33+00:00
+Unwarranted Coercion By Attaching Bank Accounts Without Show Cause Notice Violates Article 300A  Constitution: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/2026bhcos9038db-nivara-infradevelopers-llp-v-union-of-india-1612048
+
+[Source Link](https://t.me/verdictumlegalupdates/26513)
+
+---
+
+### 2026-04-14T12:33:12+00:00
+When Proof Fails, Conviction Cannot Stand: Gujarat High Court Sets Aside Death Sentence In Double Murder Case
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/state-of-gujarat-v-baldevbhai-budhaji-dhulaji-chauhan-thakor-2026gujhc25493-db-1612045
+
+[Source Link](https://t.me/verdictumlegalupdates/26512)
+
+---
+
+### 2026-04-14T11:41:31+00:00
+Supreme Court Collegium Recommends Advocates & Judicial Officers For Appointment As Judges In Two High Courts
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-collegium-recommends-advocates-judicial-officers-for-appointment-as-judges-in-two-high-courts-1612043
+
+[Source Link](https://t.me/verdictumlegalupdates/26511)
+
+---
+
+### 2026-04-14T11:12:29+00:00
+Mere Discrepancy In Date Of Birth Across Different Certificates Not Fraud: Allahabad High Court Quashes Dismissal Order
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/vijai-kumar-yadav-v-state-of-up-2026ahc80471-discrepancy-date-of-birth-across-different-certificate-fraud-1612042
+
+[Source Link](https://t.me/verdictumlegalupdates/26510)
+
+---
+
+### 2026-04-14T10:32:28+00:00
+High Court Cannot Stifle Investigation Ordered U/S 156(3) CrPC Stage If Prima Facie Cognizable Offence Disclosed: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/accamma-sam-jacob-v-the-state-of-karnataka-2026-insc-362-stifle-investigation-at-section-1563-stage-1612041
+
+[Source Link](https://t.me/verdictumlegalupdates/26509)
+
+---
+
+### 2026-04-14T09:53:06+00:00
+Recovery Rights U/S 50 MRTU & PULP Act Are Person-Specific And Non-Transferable To Unions Absent Express Mandate: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/vidyut-metallics-employees-union-v-vidyut-metallics-private-limited-2026bhc-as16846-recovery-rights-us-50-mrtu-pulp-act-1612040
+
+[Source Link](https://t.me/verdictumlegalupdates/26508)
+
+---
+
+### 2026-04-14T09:03:05+00:00
+Certified Copy Of Decree Is Conclusive Proof: Karnataka HC Directs Sub-Registrars To Record Document Cancellations Without Insisting On Formal Court Communication
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/2026khc17065-mr-antony-damy-k-v-state-of-karnataka-1612037
+
+[Source Link](https://t.me/verdictumlegalupdates/26507)
+
+---
+
+### 2026-04-14T08:32:43+00:00
+Assist In Process Of Restoration Of Tribal Land: Supreme Court Asks Ex-Jharkhand Minister Anosh Ekka While Granting Bail In Land Scam & Disproportionate Assets Case
+https://www.verdictum.in/court-updates/high-courts/jharkhand-high-court/anosh-ekka-v-state-through-central-bureau-of-investigation-2026-insc-357-bail-ex-jharkhand-minister-land-scam-1612036
+
+[Source Link](https://t.me/verdictumlegalupdates/26506)
 
 ---
 
@@ -81,86 +161,6 @@ Bar Of Working 80 Days In 12 Months For Availing Benefit Of Maternity Leave Not 
 https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/dr-priti-saket-v-the-state-of-madhya-pradesh-and-others-2026mphc-jbp24642-benefit-maternity-leave-state-govt-1611978
 
 [Source Link](https://t.me/verdictumlegalupdates/26496)
-
----
-
-### 2026-04-13T15:02:27+00:00
-Absence Not Wilful: Jharkhand High Court Grants Relief To Teacher Who Suffered Depression
-https://www.verdictum.in/court-updates/high-courts/jharkhand-high-court/the-state-of-jharkhand-v-nandu-ram-2026jhhc10177-db-absence-not-wilful-teacher-depression-1611977
-
-[Source Link](https://t.me/verdictumlegalupdates/26495)
-
----
-
-### 2026-04-13T14:32:26+00:00
-Dealer’s Margin On Lottery Tickets Not “Commission” Absent Payment Or Credit Of Income; Section 194G IT Act Not Attracted: Madras High Court
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/the-commissioner-of-income-tax-coimbatore-v-ms-martin-lottery-agencies-ltd-1611976
-
-[Source Link](https://t.me/verdictumlegalupdates/26494)
-
----
-
-### 2026-04-13T14:03:05+00:00
-Nothing But Attempt To Extract Pound Of Flesh From Husband: Madhya Pradesh High Court While Dismissing Wife’s Maintenance Plea
-https://www.verdictum.in/court-updates/high-courts/madhya-pradesh-high-court/a-v-b-2026mphc-jbp25498-attempt-extract-pound-of-flesh-husband-maintenance-plea-1611975
-
-[Source Link](https://t.me/verdictumlegalupdates/26493)
-
----
-
-### 2026-04-13T13:32:33+00:00
-Apex Court Seeks Response From Centre & EC On Plea Seeking Implementation Of Finger And Iris Biometric Identification System At Polling Stations To Prevent Duplicate Voting
-https://www.verdictum.in/court-updates/supreme-court/apex-court-seeks-response-from-centre-ec-on-plea-seeking-implementation-of-finger-and-iris-biometric-identification-system-at-polling-stations-to-prevent-duplicate-voting-1611974
-
-[Source Link](https://t.me/verdictumlegalupdates/26492)
-
----
-
-### 2026-04-13T13:02:52+00:00
-Right To Vote In Country You Were Born Is Not Just Constitutional, But Sentimental: Supreme Court While Refusing Plea Against Deletion Of Names In WB Voter List In SIR
-https://www.verdictum.in/court-updates/supreme-court/right-to-vote-in-country-you-were-born-is-not-just-constitutional-but-sentimental-supreme-court-while-refusing-plea-against-deletion-of-names-in-wb-voter-list-in-sir-1611972
-
-[Source Link](https://t.me/verdictumlegalupdates/26491)
-
----
-
-### 2026-04-13T12:32:30+00:00
-Supreme Court Seeks Centre’s Response On Plea To Accord Weightage To States' Proposal On Exact Cost Of Cultivation While Fixing MSP
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-seeks-centres-response-on-plea-to-accord-weightage-to-states-proposal-on-exact-cost-of-cultivation-while-fixing-msp-1611971
-
-[Source Link](https://t.me/verdictumlegalupdates/26490)
-
----
-
-### 2026-04-13T12:03:09+00:00
-Supreme Court Urges Justice Dhulia Panel To Determine Manner For Co-Opting Women Members In State Bar Council Polls
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-urges-justice-dhulia-panel-to-determine-manner-for-co-opting-women-members-in-state-bar-council-polls-1611969
-
-[Source Link](https://t.me/verdictumlegalupdates/26489)
-
----
-
-### 2026-04-13T11:12:48+00:00
-Attended Akhil Bharatiya Adhivakta Parishad's Event: Kejriwal Personally Argues Seeking Recusal Of Justice Swarna Kanta Sharma
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/arvind-kejriwal-justice-swarna-kanta-sharma-argue-recusal-1611967
-
-[Source Link](https://t.me/verdictumlegalupdates/26488)
-
----
-
-### 2026-04-13T11:02:46+00:00
-Mutt As Legal Representative Entitled To  Motor Accident Compensation For Death Of Mathadipati: Karnataka High Court
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/sb-shivamurthy-shivachary-hiremutt-v-shabir-ahamed-ors-2026khc-k2871-db-1611965
-
-[Source Link](https://t.me/verdictumlegalupdates/26487)
-
----
-
-### 2026-04-13T10:32:25+00:00
-No Impediment For PWD To Carry Out Maintenance: Kerala High Court Takes Note Of ECI's Approval For Its Internal Infrastructure Work
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/high-court-of-kerala-v-the-election-commission-of-india-no-impediment-pwd-maintenance-infrastructure-1611962
-
-[Source Link](https://t.me/verdictumlegalupdates/26486)
 
 ---
 
