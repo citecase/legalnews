@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-13T15:53:10+00:00*
+*Last Updated: 2026-04-14T08:02:52+00:00*
+
+---
+
+### 2026-04-14T08:02:52+00:00
+Supreme Court Quashes DV Act Proceedings Over Wife’s "Afterthought" Allegation Of ₹170 Crore Worth Unreturned Gold; Dissolves Marriage
+https://www.verdictum.in/court-updates/supreme-court/x-v-y-2026-insc-360-wifes-afterthought-allegation-of-170-crore-unreturned-gold-dv-act-1612034
+
+[Source Link](https://t.me/verdictumlegalupdates/26505)
+
+---
+
+### 2026-04-14T07:32:45+00:00
+Supreme Court Clarifies Justice Asha Menon Advisory Committee Lacks Power To Adjudicate Transgender Recruitment Rights Issue
+https://www.verdictum.in/court-updates/supreme-court/justice-asha-menon-advisory-committee-transgender-recruitment-rights-1612029
+
+[Source Link](https://t.me/verdictumlegalupdates/26504)
+
+---
+
+### 2026-04-14T07:02:23+00:00
+Weekly Overview| Supreme Court Judgments: April 6 – April 10, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-april-6-april-10-2026-1612023
+
+[Source Link](https://t.me/verdictumlegalupdates/26503)
+
+---
+
+### 2026-04-14T06:32:42+00:00
+Appeal Filed By Suspended Director In Name Of Corporate Debtor After Admission Of CIRP Contrary To IBC’s Mandate: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/nitendra-kumar-tomer-v-unox-spa-and-another-2026-insc-356-suspended-director-corporate-debtor-1612022
+
+[Source Link](https://t.me/verdictumlegalupdates/26502)
+
+---
+
+### 2026-04-14T06:03:21+00:00
+"Brother" Doesn’t Come Within Definition Of "Family" Under Pension Scheme: Calcutta High Court Dismisses Appeal Filed By Brother Of Deceased Teacher
+https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/smt-ranu-chatterjee-v-state-of-west-bengal-brother-deceased-pension-1981-scheme-1612020
+
+[Source Link](https://t.me/verdictumlegalupdates/26501)
+
+---
+
+### 2026-04-14T05:32:59+00:00
+Benefit U/S 4 Probation of Offenders Act Available Even If Sentence Imposed Is Only Fine: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/milind-so-ashruba-dhanve-ors-v-state-of-maharashtra-2026-insc-355-1612011
+
+[Source Link](https://t.me/verdictumlegalupdates/26500)
+
+---
+
+### 2026-04-14T05:02:58+00:00
+Recurrent Possession Of “Small Quantity” Drugs Can Attract Preventive Detention Under KAAPA: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/aaliya-ashraf-v-state-of-kerala-ors-kkapa-ndps-preventive-detention-1612010
+
+[Source Link](https://t.me/verdictumlegalupdates/26499)
+
+---
+
+### 2026-04-14T04:32:26+00:00
+Insurance Company Can’t Recover Award Amount From RC Owner On Ground That Driver Had No Badge: Kerala High Court
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/united-india-insurance-company-limited-v-eg-sahadevan-2026ker25402-insurance-company-recovery-award-amount-vehicle-1611982
+
+[Source Link](https://t.me/verdictumlegalupdates/26498)
 
 ---
 
@@ -97,70 +161,6 @@ No Impediment For PWD To Carry Out Maintenance: Kerala High Court Takes Note Of 
 https://www.verdictum.in/court-updates/high-courts/kerala-high-court/high-court-of-kerala-v-the-election-commission-of-india-no-impediment-pwd-maintenance-infrastructure-1611962
 
 [Source Link](https://t.me/verdictumlegalupdates/26486)
-
----
-
-### 2026-04-13T10:02:24+00:00
-"I Am Not Plastic" Label Aggravates Risk: Kerala High Court Upholds Existing Ban On Entry Of "Compostable" Bottles Into Sabarimala’s Forest Region
-https://www.verdictum.in/court-updates/high-courts/kerala-high-court/swami-saranam-enterprises-v-state-of-kerala-2026ker31403-existing-ban-on-entry-plastic-sabarimalas-1611961
-
-[Source Link](https://t.me/verdictumlegalupdates/26485)
-
----
-
-### 2026-04-13T09:33:02+00:00
-Adjudicating Officer Can Exercise Delegated Powers Of Refund Under RERA: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/marvel-landmarks-pvt-ltd-v-state-of-maharashtra-ors-2026bhc-as16466-1611958
-
-[Source Link](https://t.me/verdictumlegalupdates/26484)
-
----
-
-### 2026-04-13T09:02:31+00:00
-Wife Having LLB Degree No Ground To Refuse Maintenance: Gujarat High Court
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/a-v-state-of-gujarat-2026gujhc24635-wife-possession-llb-maintenance-1611957
-
-[Source Link](https://t.me/verdictumlegalupdates/26483)
-
----
-
-### 2026-04-13T08:33:10+00:00
-Supreme Court Seeks Response From Centre & States On PIL Seeking Implementation Of Right To Education
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-seeks-response-from-centre-states-on-pil-seeking-implementation-of-right-to-education-1611948
-
-[Source Link](https://t.me/verdictumlegalupdates/26482)
-
----
-
-### 2026-04-13T08:02:48+00:00
-"Are State Officers Blind?": Supreme Court Slams MP Govt Over Inaction On Forest Guard's Death In National Chambal Sanctuary
-https://www.verdictum.in/court-updates/supreme-court/illegal-sand-mining-national-chambal-sanctuary-1611949
-
-[Source Link](https://t.me/verdictumlegalupdates/26481)
-
----
-
-### 2026-04-13T07:33:07+00:00
-Police Cannot Freeze Entire Bank Account Without Linking Whole Balance To Suspected Crime: Allahabad High Court
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/ashish-rawat-v-union-of-india-2026ahc78406-db-police-cannot-freeze-entire-bank-account-1611946
-
-[Source Link](https://t.me/verdictumlegalupdates/26480)
-
----
-
-### 2026-04-13T07:03:05+00:00
-Rental Compensation Payable Till Award Payment Where Possession Precedes Land Acquisition: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/ms-devi-construction-llp-v-state-of-maharashtra-2026bhc-as16176-db-rental-compensation-payable-till-award-1611934
-
-[Source Link](https://t.me/verdictumlegalupdates/26479)
-
----
-
-### 2026-04-13T06:23:44+00:00
-Supreme Court Allows Lalu Prasad Yadav To Raise Section 17A PC Act Challenge During Trial In Land-for-Jobs Case; Dispenses With Personal Appearance
-https://www.verdictum.in/court-updates/supreme-court/lalu-prasad-yadav-land-for-jobs-case-17a-pc-act-cbi-1611936
-
-[Source Link](https://t.me/verdictumlegalupdates/26478)
 
 ---
 
