@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-14T10:03:17+00:00*
+*Last Updated: 2026-04-14T11:06:27+00:00*
 
 ---
 
-### 2026-04-14T10:03:17+00:00
-Uploading Minor's Obscene Content Online Has Far-Reaching Consequences, Harm Goes Beyond Punishment: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/uploading-minors-obscene-content-online-has-far-reaching-consequences-harm-goes-beyond-punishment-delhi-high-court-530226
-
-[Read on Telegram](https://t.me/livelawindia/108888)
-
----
-### 2026-04-14T10:24:57+00:00
-Marriage With Victim After She Attains Majority Doesn't Absolve Accused Of Rape Committed When She Was Minor: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/marriage-with-victim-after-she-attains-majority-doesnt-absolve-accused-of-rape-committed-when-she-was-minor-delhi-high-court-530241
-
-[Read on Telegram](https://t.me/livelawindia/108889)
-
----
-### 2026-04-14T10:27:17+00:00
-Moneylife Moves Delhi Court Against Ex Parte Order To Remove Reports Linking Manoj Sandesara, Family To Sterling Biotech Case
-https://www.livelaw.in/news-updates/moneylife-moves-delhi-court-against-ex-parte-order-to-remove-reports-linking-manoj-sandesara-family-to-sterling-biotech-case-530246
-
-[Read on Telegram](https://t.me/livelawindia/108890)
-
----
-### 2026-04-14T10:27:27+00:00
-Dispute Over Compensation Under NH Act Must Be Referred To Civil Court, Authority Must Withhold Disbursement Till Resolution: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-dispute-over-apportionment-of-compensation-under-nh-act-must-be-referred-to-principal-civil-court-authority-must-withhold-disbursement-till-resolution-530180
-
-[Read on Telegram](https://t.me/livelawindia/108891)
-
----
-### 2026-04-14T11:00:07+00:00
-Law Does Not Favour The Indolent: Supreme Court Sets Aside Arbitration Initiated After 21-Year Delay
-https://www.livelaw.in/top-stories/law-does-not-favour-the-indolent-supreme-court-sets-aside-arbitration-initiated-after-21-year-delay-530249
-
-[Read on Telegram](https://t.me/livelawindia/108892)
-
----
-### 2026-04-14T11:02:27+00:00
-Once Reference Is Accepted, Should Be Decided On Merits: Rajasthan High Court Quashes Labour Court Order Rejecting Reference As Defective
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-labour-court-adjudication-dismissed-technical-ground-530227
-
-[Read on Telegram](https://t.me/livelawindia/108893)
-
----
 ### 2026-04-14T11:06:27+00:00
 2026 LiveLaw (SC) 369 | State of West Bengal & Ors. v. M/S B.B.M. Enterprises
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-369-state-of-west-bengal-ors-v-ms-bbm-enterprises-530252
@@ -142,5 +100,47 @@ Cannabis Leaves, Stalks Not 'Ganja': Delhi High Court Grants Bail In NDPS Case, 
 https://www.livelaw.in/high-court/delhi-high-court/cannabis-leaves-stalks-not-ganja-delhi-high-court-grants-bail-in-ndps-case-doubts-commercial-quantity-530276
 
 [Read on Telegram](https://t.me/livelawindia/108907)
+
+---
+### 2026-04-14T14:12:32+00:00
+Whether Written Statement Without Admission/Denial Affidavit Is Non-Est Or Curable Defect; Delhi High Court Refers Issue To Larger Bench
+https://www.livelaw.in/high-court/delhi-high-court/whether-written-statement-without-admissiondenial-affidavit-is-non-est-or-curable-defect-delhi-high-court-refers-issue-to-larger-bench-530243
+
+[Read on Telegram](https://t.me/livelawindia/108908)
+
+---
+### 2026-04-14T14:22:12+00:00
+'Cochin Devaswom Board Duty-Bound To Ensure Basic Facilities To Devotees': Kerala High Court Calls For Proper Management Of 409 Temples
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-cochin-devaswom-board-temples-management-530277
+
+[Read on Telegram](https://t.me/livelawindia/108909)
+
+---
+### 2026-04-14T14:33:02+00:00
+CAPF Stagnation And Problem Of Legislative Override
+https://www.livelaw.in/lawschool/articles/capf-stagnation-legislative-override-530151
+
+[Read on Telegram](https://t.me/livelawindia/108910)
+
+---
+### 2026-04-14T14:53:02+00:00
+No Adverse Inference For Refusing Handwriting Sample If Court Doesn't Disclose Invocation Of S.73 Evidence Act: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/no-adverse-inference-for-refusing-handwriting-sample-if-court-doesnt-disclose-invocation-of-s73-evidence-act-delhi-high-court-530244
+
+[Read on Telegram](https://t.me/livelawindia/108911)
+
+---
+### 2026-04-14T15:53:16+00:00
+'Deepfakes Disproportionately Target Women, Takedown Comes After Harm Is Done': Justice PS Narasimha
+https://www.livelaw.in/top-stories/soli-sorabjee-memorial-lecture-justice-ps-narasimha-artificial-intelligence-human-rights-deepfakes-gender-based-violence-530285
+
+[Read on Telegram](https://t.me/livelawindia/108912)
+
+---
+### 2026-04-14T16:12:36+00:00
+High Court Asks Delhi Govt To Frame Rules Preventing Persons With 'Tainted Antecedents' From Holding Key Posts In Cooperative Societies
+https://www.livelaw.in/high-court/delhi-high-court/high-court-asks-delhi-govt-to-frame-rules-preventing-persons-with-tainted-antecedents-from-holding-key-posts-in-cooperative-societies-530245
+
+[Read on Telegram](https://t.me/livelawindia/108913)
 
 ---
