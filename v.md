@@ -1,6 +1,110 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-15T08:02:47+00:00*
+*Last Updated: 2026-04-15T14:03:05+00:00*
+
+---
+
+### 2026-04-15T14:03:05+00:00
+Andhra Pradesh High Court Orders Compliance With Directions Of Sringeri Sharada Peetham Barring Priests Who Have Travelled Abroad From Entering Sanctum Sanctorum
+https://www.verdictum.in/court-updates/high-courts/andhra-pradesh-high-court/d-s-s-s-subrahmanyam-somayaji-v-the-state-of-andhra-pradesh-sringeri-sharada-peetham-priests-1612134
+
+[Source Link](https://t.me/verdictumlegalupdates/26540)
+
+---
+
+### 2026-04-15T13:33:04+00:00
+Driving Motorcycle Without Valid License With 2 Pillion Riders No Basis For Inferring Contributory Negligence Unless There Is Negligence Of Deceased: Rajasthan High Court
+https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/smt-pushpa-v-hemraj-2026rj-jp14433-motorcycle-driving-license-contributory-negligence-1612133
+
+[Source Link](https://t.me/verdictumlegalupdates/26539)
+
+---
+
+### 2026-04-15T13:02:42+00:00
+Intimation U/S 143(1) Income Tax Act Not Equivalent To Assessment Order For Purposes Of Reopening Assessment: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/vng-automotive-pvt-ltd-v-assistant-commissioner-of-income-tax-2026dhc2975-db-interest-on-funds-linked-to-project-setup-1612132
+
+[Source Link](https://t.me/verdictumlegalupdates/26538)
+
+---
+
+### 2026-04-15T12:32:31+00:00
+Bank Employees May Be  ‘Public Servants’ U/S.21 RPC; But Can’t Invoke Section 197 CrPC As Shield Against Prosecution: Jammu & Kashmir and Ladakh High Court
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/jasmeet-singh-v-shafi-ahmed-bank-employees-public-servants-section-21-rpc-section-197-crpc-1612131
+
+[Source Link](https://t.me/verdictumlegalupdates/26537)
+
+---
+
+### 2026-04-15T12:02:30+00:00
+Delhi High Court Permits Sperm Retrieval Of Army Soldier In Persistent Vegetative State To Enable IVF Procedure
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ms-x-v-union-of-india-ors-2026dhc3086-army-soldier-coma-ivf-treatment-1612130
+
+[Source Link](https://t.me/verdictumlegalupdates/26536)
+
+---
+
+### 2026-04-15T11:30:09+00:00
+It Is Assumed That Fertile Women Will Be Antithetical To The Very Manifestation Of Deity: Travancore Devaswom Board Submits In Sabarimala Reference
+https://www.verdictum.in/court-updates/supreme-court/travancore-devaswom-board-sabarimala-reference-abhishek-manusinghvi-1612125
+
+[Source Link](https://t.me/verdictumlegalupdates/26535)
+
+---
+
+### 2026-04-15T11:03:07+00:00
+Safeguards U/S 223 BNSS Cannot Be Mechanically Bypassed Before Directing FIR Against Public Servants: Rajasthan High Court
+https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/prashant-kaushik-ors-v-state-of-rajasthan-anr-2026rj-jd14705-bnss-1612124
+
+[Source Link](https://t.me/verdictumlegalupdates/26534)
+
+---
+
+### 2026-04-15T10:33:05+00:00
+Authorities Cannot Reopen Validated Appointments Once Final: Allahabad High Court Grants Relief To Teachers
+https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/meenakshi-sharma-anr-v-state-of-up-ors-neutral-citation-2026ahc80501-1612122
+
+[Source Link](https://t.me/verdictumlegalupdates/26533)
+
+---
+
+### 2026-04-15T10:02:44+00:00
+Absence Of Evidence Proving Nexus Between Employment And Death Bars Dependency Benefit Under ESI Act: Gujarat High Court
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/employees-state-insurance-corporation-v-sudhaben-ramanbhai-patel-rfirst-appeal-no-656-of-2011-proving-nexus-between-employment-and-death-1612121
+
+[Source Link](https://t.me/verdictumlegalupdates/26532)
+
+---
+
+### 2026-04-15T09:33:03+00:00
+Bombay High Court Dismisses Abu Salem’s Plea Seeking Immediate Release After Completing '25 years' In Jail
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/bombay-high-court-dismisses-abu-salems-plea-seeking-immediate-release-after-completing-25-years-in-jail-1612114
+
+[Source Link](https://t.me/verdictumlegalupdates/26531)
+
+---
+
+### 2026-04-15T09:26:42+00:00
+Justice Abhay S. Oka To Speak On "Robes Cannot Be Rented"
+https://www.verdictum.in/events/justice-abhay-s-oka-to-speak-on-robes-cannot-be-rented-1612118
+
+[Source Link](https://t.me/verdictumlegalupdates/26530)
+
+---
+
+### 2026-04-15T08:51:00+00:00
+Supreme Court Stays Transit Anticipatory Bail Granted To Pawan Khera In FIR Lodged For Statements On Wife Of Assam CM
+https://www.verdictum.in/court-updates/supreme-court/transit-anticipatory-bail-pawan-khera-defamation-wife-assam-cm-himanta-biswa-sarma-1612116
+
+[Source Link](https://t.me/verdictumlegalupdates/26529)
+
+---
+
+### 2026-04-15T08:32:28+00:00
+Unlawful Arrest Vitiates Medical Examination; Tainted Blood Sample Cannot Sustain Prosecution Under NDPS Act: Karnataka High Court
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/sri-eman-abbas-topiwala-v-state-of-karnataka-ndps-act-blood-sample-arrest-1612112
+
+[Source Link](https://t.me/verdictumlegalupdates/26528)
 
 ---
 
@@ -57,111 +161,6 @@ Posting Obscene Content Of Minors On Social Media Causes Lasting Damage To Digni
 https://www.verdictum.in/court-updates/high-courts/delhi-high-court/sumit-v-state-of-nct-of-delhi-bail-application-538-2026-1612058
 
 [Source Link](https://t.me/verdictumlegalupdates/26521)
-
----
-
-### 2026-04-15T04:32:47+00:00
-Reservation Benefits Granted In One State
-Cannot Be Extended To Reserved Category Candidates Belonging To Another State: Rajasthan High Court
-https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/federation-of-private-medical-and-dental-college-of-rajasthan-v-chairman-neet-pg-medical-dental-admission-board-ors-1612082
-
-[Source Link](https://t.me/verdictumlegalupdates/26520)
-
----
-
-### 2026-04-14T16:03:12+00:00
-Staff Selection Commission (KKR), Bengaluru Invites Applications For The Post Of Young Professional (Legal Consultant)
-https://www.verdictum.in/job-updates/staff-selection-commission-1611980
-
-[Source Link](https://t.me/verdictumlegalupdates/26519)
-
----
-
-### 2026-04-14T15:33:10+00:00
-Process Bail Applications Of First Time Offenders Who Have Served 1/3rd Of Maximum Sentence: Delhi High Court Calls For Compliance With Apex Court's Directions
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/rishabh-gehlot-v-state-nct-of-delhi-2026dhc3039-process-bail-applications-first-time-offender-1612056
-
-[Source Link](https://t.me/verdictumlegalupdates/26518)
-
----
-
-### 2026-04-14T15:02:49+00:00
-Can’t Infer Contributory Negligence Merely Because Deceased Driver Didn't Wear Helmet: Madras High Court Upholds MACT Award
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/the-managing-director-v-mariyammal-cant-claim-contributory-negligence-non-wearing-helmet-negligent-1612054
-
-[Source Link](https://t.me/verdictumlegalupdates/26517)
-
----
-
-### 2026-04-14T14:32:28+00:00
-Prosecution's Explanation Too Hard To Swallow: Allahabad High Court Sets Aside Conviction In 1986 Murder Case
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/rammu-v-state-of-up-2026ahc79213-db-tainted-one-sided-in-1986-murder-case-1612051
-
-[Source Link](https://t.me/verdictumlegalupdates/26516)
-
----
-
-### 2026-04-14T14:03:06+00:00
-If Tender Period Lapses Without Formal Extension, Contract To Be Considered Naturally Terminated: Patna High Court
-https://www.verdictum.in/court-updates/high-courts/patna-high-court/state-of-bihar-v-ms-kumar-and-kumar-letters-patent-appeal-320-of-2025-1612050
-
-[Source Link](https://t.me/verdictumlegalupdates/26515)
-
----
-
-### 2026-04-14T13:32:55+00:00
-Even Negligence Can Constitute Contempt; Belated Apology Not A Defence But Evidence Of Genuine Contrition: Andhra Pradesh High Court
-https://www.verdictum.in/court-updates/high-courts/andhra-pradesh-high-court/nagatham-suneetha-anr-v-nagatham-muni-rajamma-ors-contempt-of-court-1612049
-
-[Source Link](https://t.me/verdictumlegalupdates/26514)
-
----
-
-### 2026-04-14T13:02:33+00:00
-Unwarranted Coercion By Attaching Bank Accounts Without Show Cause Notice Violates Article 300A  Constitution: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/2026bhcos9038db-nivara-infradevelopers-llp-v-union-of-india-1612048
-
-[Source Link](https://t.me/verdictumlegalupdates/26513)
-
----
-
-### 2026-04-14T12:33:12+00:00
-When Proof Fails, Conviction Cannot Stand: Gujarat High Court Sets Aside Death Sentence In Double Murder Case
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/state-of-gujarat-v-baldevbhai-budhaji-dhulaji-chauhan-thakor-2026gujhc25493-db-1612045
-
-[Source Link](https://t.me/verdictumlegalupdates/26512)
-
----
-
-### 2026-04-14T11:41:31+00:00
-Supreme Court Collegium Recommends Advocates & Judicial Officers For Appointment As Judges In Two High Courts
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-collegium-recommends-advocates-judicial-officers-for-appointment-as-judges-in-two-high-courts-1612043
-
-[Source Link](https://t.me/verdictumlegalupdates/26511)
-
----
-
-### 2026-04-14T11:12:29+00:00
-Mere Discrepancy In Date Of Birth Across Different Certificates Not Fraud: Allahabad High Court Quashes Dismissal Order
-https://www.verdictum.in/court-updates/high-courts/allahabad-high-court/vijai-kumar-yadav-v-state-of-up-2026ahc80471-discrepancy-date-of-birth-across-different-certificate-fraud-1612042
-
-[Source Link](https://t.me/verdictumlegalupdates/26510)
-
----
-
-### 2026-04-14T10:32:28+00:00
-High Court Cannot Stifle Investigation Ordered U/S 156(3) CrPC Stage If Prima Facie Cognizable Offence Disclosed: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/accamma-sam-jacob-v-the-state-of-karnataka-2026-insc-362-stifle-investigation-at-section-1563-stage-1612041
-
-[Source Link](https://t.me/verdictumlegalupdates/26509)
-
----
-
-### 2026-04-14T09:53:06+00:00
-Recovery Rights U/S 50 MRTU & PULP Act Are Person-Specific And Non-Transferable To Unions Absent Express Mandate: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/vidyut-metallics-employees-union-v-vidyut-metallics-private-limited-2026bhc-as16846-recovery-rights-us-50-mrtu-pulp-act-1612040
-
-[Source Link](https://t.me/verdictumlegalupdates/26508)
 
 ---
 
