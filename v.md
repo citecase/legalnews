@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-15T14:03:05+00:00*
+*Last Updated: 2026-04-15T16:02:32+00:00*
+
+---
+
+### 2026-04-15T16:02:32+00:00
+Para Legal Personnel/Lawyer Vacancy At One Stop Centre Thulluru (OSC Guntur)
+https://www.verdictum.in/job-updates/one-stop-centre-thulluru-1612136
+
+[Source Link](https://t.me/verdictumlegalupdates/26544)
+
+---
+
+### 2026-04-15T15:32:51+00:00
+Principle Of Finality Applies To Adjudication Of Industrial Disputes Despite Relaxed Application Of Res Judicata: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ms-ibp-company-limited-v-shailendra-kumar-anr-2025dhc3085-1612140
+
+[Source Link](https://t.me/verdictumlegalupdates/26543)
+
+---
+
+### 2026-04-15T15:02:19+00:00
+Competent Authority Has To Refer Compensation Dispute Under National Highways Act To Civil Court & Withhold Disbursement Till It Is Resolved: J&K And Ladakh High Court
+https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/abdul-aziz-bhat-v-ut-of-jk-and-others-2026jklhc-sgr60-db-competent-authority-national-highways-act-1612139
+
+[Source Link](https://t.me/verdictumlegalupdates/26542)
+
+---
+
+### 2026-04-15T14:32:26+00:00
+Devaswom Board Is Giving Least Priority To Basic Needs Of Pilgrims: Kerala High Court Directs CDB To Formulate Scheme
+https://www.verdictum.in/court-updates/high-courts/kerala-high-court/suo-motu-v-state-of-kerala-2026ker32087-cochin-devaswom-board-amenities-devotees-temples-1612138
+
+[Source Link](https://t.me/verdictumlegalupdates/26541)
 
 ---
 
@@ -129,38 +161,6 @@ Marrying Victim After She Attained Majority Doesn’t Absolve Accused Of Rape Wh
 https://www.verdictum.in/court-updates/high-courts/delhi-high-court/gayassudin-v-state-of-nct-of-delhi-2026dhc2960-marrying-victim-majority-accused-rape-minor-1612101
 
 [Source Link](https://t.me/verdictumlegalupdates/26525)
-
----
-
-### 2026-04-15T06:33:02+00:00
-If Indemnity holder Incurred Absolute Liability, He is Entitled To Call Upon Indemnifier To Pay It Off: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/vps-healthcare-private-limited-anr-v-prabhat-kumar-srivastava-ors-2026-insc-361-1612096
-
-[Source Link](https://t.me/verdictumlegalupdates/26524)
-
----
-
-### 2026-04-15T06:02:21+00:00
-Not Entitled To Bail On Lengthy Incarceration Ground: Bombay High Court Denies Bail To Man Accused Of Wife’s Murder
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/mangesh-v-the-state-of-maharashtra-2026bhc-aug14896-lengthy-incarceration-no-absolute-ground-for-bail-1612090
-
-[Source Link](https://t.me/verdictumlegalupdates/26523)
-
----
-
-### 2026-04-15T05:32:20+00:00
-Chats Reflect Inappropriate Demands Being Made: Gujarat High Court Denies Bail To College Professor In Sexual Harassment Case
-https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/manishkumar-shivlal-chauhan-v-state-of-gujarat-2026gujhc23449-chats-professor-sexual-harassment-case-1612088
-
-[Source Link](https://t.me/verdictumlegalupdates/26522)
-
----
-
-### 2026-04-15T05:02:58+00:00
-Posting Obscene Content Of Minors On Social Media Causes Lasting Damage To Dignity Creating Harm That Far Exceeds Statutory Punishment: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/sumit-v-state-of-nct-of-delhi-bail-application-538-2026-1612058
-
-[Source Link](https://t.me/verdictumlegalupdates/26521)
 
 ---
 
