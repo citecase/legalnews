@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-14T11:06:27+00:00*
+*Last Updated: 2026-04-15T05:16:00+00:00*
 
 ---
 
-### 2026-04-14T11:06:27+00:00
-2026 LiveLaw (SC) 369 | State of West Bengal & Ors. v. M/S B.B.M. Enterprises
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-369-state-of-west-bengal-ors-v-ms-bbm-enterprises-530252
+### 2026-04-15T05:16:00+00:00
+'No Sudden Or Immediate Financial Crisis': MP High Court Dismisses Plea For Compassionate Appointment 20 Years After Father's Death
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-compassionate-appointment-20-years-bharat-sanchar-nigam-limited-530303
 
-[Read on Telegram](https://t.me/livelawindia/108894)
-
----
-### 2026-04-14T11:10:54+00:00
-Supreme Court Collegium Approves Proposal To Appoint Two Women Advocates As Kerala High Court Judges
-https://www.livelaw.in/high-court/kerala-high-court/supreme-court-collegium-advocates-kerala-high-court-judges-530254
-
-[Read on Telegram](https://t.me/livelawindia/108895)
+[Read on Telegram](https://t.me/livelawindia/108919)
 
 ---
-### 2026-04-14T11:11:04+00:00
-NALSAR's Centre For Tax Laws Invites Submissions For CTL Blog
-https://www.livelaw.in/lawschool/call-for-papers/nalsars-centre-tax-laws-invites-submissions-ctl-blog-530255
+### 2026-04-15T05:32:20+00:00
+Convicts Sentenced To Only Fine Also Entitled To Benefit Of Probation Of Offender Act : Supreme Court
+https://www.livelaw.in/supreme-court/convicts-sentenced-to-only-fine-also-entitled-to-benefit-of-probation-of-offender-act-supreme-court-530306
 
-[Read on Telegram](https://t.me/livelawindia/108896)
-
----
-### 2026-04-14T11:13:34+00:00
-Supreme Court Collegium Approves Appointment Of Three Judicial Officers As Karnataka High Court Judges
-https://www.livelaw.in/top-stories/supreme-court-collegium-approves-appointment-of-three-judicial-officers-as-karnataka-high-court-judges-530256
-
-[Read on Telegram](https://t.me/livelawindia/108897)
+[Read on Telegram](https://t.me/livelawindia/108920)
 
 ---
-### 2026-04-14T11:15:54+00:00
-NLIU Hosts 2nd SBA Law Conclave; Judges, Practitioners Discuss Reforms In Legal System
-https://www.livelaw.in/lawschool/news/nliu-hosts-2nd-sba-law-conclave-judges-practitioners-discuss-reforms-in-legal-system-530258
+### 2026-04-15T05:33:10+00:00
+Minor Defects In Chargesheet Don't Entitle Accused To Default Bail: AP High Court Cancels Bail In Case Involving 808Kg Contraband
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-ruling-technical-discrepancies-default-bail-ndps-act-huge-quantity-contraband-seized-bail-cancelled-530304
 
-[Read on Telegram](https://t.me/livelawindia/108898)
-
----
-### 2026-04-14T11:28:14+00:00
-BREAKING| Centre Proposes Constitution Amendment To Increase Lok Sabha Seats To 850 & To Allow Delimitation Before 2026 Census
-https://www.livelaw.in/top-stories/centre-proposes-constitution-amendment-to-increase-lok-sabha-seats-to-850-to-allow-delimitation-before-2026-census-530262
-
-[Read on Telegram](https://t.me/livelawindia/108899)
+[Read on Telegram](https://t.me/livelawindia/108921)
 
 ---
-### 2026-04-14T11:32:54+00:00
-Absence Of Vishaka-Style Formal Complaint Committee Not Enough To Vitiate Sexual Misconduct Inquiry If Procedure Was Fair: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-vishaka-committee-domestic-inquiry-sexual-misconduct-530184
+### 2026-04-15T05:33:40+00:00
+2026 LiveLaw (SC) 370 | MILIND S/O ASHRUBA DHANVE AND ORS. VERSUS THE STATE OF MAHARASHTRA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-370-milind-so-ashruba-dhanve-and-ors-versus-the-state-of-maharashtra-530307
 
-[Read on Telegram](https://t.me/livelawindia/108900)
-
----
-### 2026-04-14T11:49:14+00:00
-SCL India To Host 3rd International Conference On Construction Law & Arbitration In Mumbai On April 25
-https://www.livelaw.in/events/scl-india-host-3rd-international-conference-construction-law-arbitration-mumbai-530266
-
-[Read on Telegram](https://t.me/livelawindia/108901)
+[Read on Telegram](https://t.me/livelawindia/108922)
 
 ---
-### 2026-04-14T11:57:54+00:00
-No Contributory Negligence For Riding Without Licence Or With Two Pillion Riders Unless Directly Linked To Accident: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-enhances-compensation-contributory-negligence-proof-530187
+### 2026-04-15T05:43:20+00:00
+Senior Manager (Legal) Vacancy At Tata AIA Life Insurance Company Limited
+https://www.livelaw.in/job-updates/senior-manager-legal-vacancy-at-tata-aia-life-insurance-company-limited-530308
 
-[Read on Telegram](https://t.me/livelawindia/108902)
-
----
-### 2026-04-14T12:32:49+00:00
-27 Years On, Gujarat High Court Upholds Acquittal In NDPS Case; Says Prosecution Case "Utterly Flawed" Despite Commercial Quantity Drugs
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-acquittal-ndps-act-prosecution-investigation-530259
-
-[Read on Telegram](https://t.me/livelawindia/108903)
+[Read on Telegram](https://t.me/livelawindia/108923)
 
 ---
-### 2026-04-14T12:34:09+00:00
-Para Legal Personnel Vacancy At One Stop Centre Thulluru At Guntur District [Women Only; Apply Now]
-https://www.livelaw.in/job-updates/para-legal-personnel-vacancy-at-one-stop-centre-thulluru-at-guntur-district-women-only-530271
+### 2026-04-15T05:43:40+00:00
+Complaint Before Delhi High Court Against Arvind Kejriwal, AAP Leaders For 'Unauthorizedly' Circulating Justice SK Sharma's Recusal Hearing
+https://www.livelaw.in/high-court/delhi-high-court/arvind-kejriwal-complaint-circulated-justice-swarna-kanta-sharma-recusal-hearing-530309
 
-[Read on Telegram](https://t.me/livelawindia/108904)
-
----
-### 2026-04-14T13:07:14+00:00
-India Subscribes To All Religions, Never Declares Itself A Hindu State : Justice NK Singh
-https://www.livelaw.in/top-stories/india-never-declares-itself-a-hindu-state-justice-nk-singh-530273
-
-[Read on Telegram](https://t.me/livelawindia/108905)
+[Read on Telegram](https://t.me/livelawindia/108924)
 
 ---
-### 2026-04-14T13:12:34+00:00
-Bank Officials Not Entitled To S.197 CrPC Protection Despite Being 'Public Servants' Under RPC: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-bank-employees-not-entitled-to-section-197-crpc-protection-against-prosecution-under-ipcrpc-shield-only-for-those-not-removable-without-government-sanction-530240
+### 2026-04-15T05:50:10+00:00
+Assistant Project Manager Vacancy At Indian Institute Of Technology, Kanpur
+https://www.livelaw.in/job-updates/assistant-project-manager-vacancy-at-indian-institute-of-technology-kanpur-530310
 
-[Read on Telegram](https://t.me/livelawindia/108906)
-
----
-### 2026-04-14T13:32:34+00:00
-Cannabis Leaves, Stalks Not 'Ganja': Delhi High Court Grants Bail In NDPS Case, Doubts Commercial Quantity
-https://www.livelaw.in/high-court/delhi-high-court/cannabis-leaves-stalks-not-ganja-delhi-high-court-grants-bail-in-ndps-case-doubts-commercial-quantity-530276
-
-[Read on Telegram](https://t.me/livelawindia/108907)
+[Read on Telegram](https://t.me/livelawindia/108925)
 
 ---
-### 2026-04-14T14:12:32+00:00
-Whether Written Statement Without Admission/Denial Affidavit Is Non-Est Or Curable Defect; Delhi High Court Refers Issue To Larger Bench
-https://www.livelaw.in/high-court/delhi-high-court/whether-written-statement-without-admissiondenial-affidavit-is-non-est-or-curable-defect-delhi-high-court-refers-issue-to-larger-bench-530243
+### 2026-04-15T05:56:10+00:00
+BREAKING| Supreme Court Stays Telangana High Court's Anticipatory Bail To Pawan Khera In Assam FIR
+https://www.livelaw.in/top-stories/supreme-court-stays-telangana-high-courts-anticipatory-bail-to-pawan-khera-in-assam-fir-530311
 
-[Read on Telegram](https://t.me/livelawindia/108908)
-
----
-### 2026-04-14T14:22:12+00:00
-'Cochin Devaswom Board Duty-Bound To Ensure Basic Facilities To Devotees': Kerala High Court Calls For Proper Management Of 409 Temples
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-cochin-devaswom-board-temples-management-530277
-
-[Read on Telegram](https://t.me/livelawindia/108909)
+[Read on Telegram](https://t.me/livelawindia/108926)
 
 ---
-### 2026-04-14T14:33:02+00:00
-CAPF Stagnation And Problem Of Legislative Override
-https://www.livelaw.in/lawschool/articles/capf-stagnation-legislative-override-530151
+### 2026-04-15T06:02:10+00:00
+Madras High Court Seeks IT Dept Report On Assets Declaration By Udayanidhi Stalin For 2026 TN Elections
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-report-asset-declaration-udayanidhi-stalin-tn-election-530313
 
-[Read on Telegram](https://t.me/livelawindia/108910)
-
----
-### 2026-04-14T14:53:02+00:00
-No Adverse Inference For Refusing Handwriting Sample If Court Doesn't Disclose Invocation Of S.73 Evidence Act: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/no-adverse-inference-for-refusing-handwriting-sample-if-court-doesnt-disclose-invocation-of-s73-evidence-act-delhi-high-court-530244
-
-[Read on Telegram](https://t.me/livelawindia/108911)
+[Read on Telegram](https://t.me/livelawindia/108927)
 
 ---
-### 2026-04-14T15:53:16+00:00
-'Deepfakes Disproportionately Target Women, Takedown Comes After Harm Is Done': Justice PS Narasimha
-https://www.livelaw.in/top-stories/soli-sorabjee-memorial-lecture-justice-ps-narasimha-artificial-intelligence-human-rights-deepfakes-gender-based-violence-530285
+### 2026-04-15T06:03:11+00:00
+Heart Attack At Workplace Not Automatically 'Employment Injury', Must Show Nexus With Death: Gujarat High Court Denies Benefit Under ESI Act
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-esi-act-workman-compensation-injury-death-nexus-530305
 
-[Read on Telegram](https://t.me/livelawindia/108912)
+[Read on Telegram](https://t.me/livelawindia/108928)
 
 ---
-### 2026-04-14T16:12:36+00:00
-High Court Asks Delhi Govt To Frame Rules Preventing Persons With 'Tainted Antecedents' From Holding Key Posts In Cooperative Societies
-https://www.livelaw.in/high-court/delhi-high-court/high-court-asks-delhi-govt-to-frame-rules-preventing-persons-with-tainted-antecedents-from-holding-key-posts-in-cooperative-societies-530245
+### 2026-04-15T06:09:50+00:00
+1993 Bombay Blasts Case: High Court Dismisses Abu Salem's Plea Seeking Premature Release
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-dismisses-abu-salem-plea-premature-release-530315
 
-[Read on Telegram](https://t.me/livelawindia/108913)
+[Read on Telegram](https://t.me/livelawindia/108929)
+
+---
+### 2026-04-15T06:32:10+00:00
+S.82 CrPC | Absconder Tag Can't Be Invoked Without Exhausting All Reasonable Steps To Secure Presence Of Accused: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-arrest-absconder-accused-appear-bail-530316
+
+[Read on Telegram](https://t.me/livelawindia/108930)
+
+---
+### 2026-04-15T06:44:36+00:00
+Delhi High Court Imposes ₹20K Costs On NGO For Seeking Repeated Adjournments In Defamation Suit Against BBC Over PM Modi Documentary
+https://www.livelaw.in/high-court/delhi-high-court/narendra-modi-bbc-documentary-suit-ngo-repeated-adjournment-costs-530319
+
+[Read on Telegram](https://t.me/livelawindia/108931)
+
+---
+### 2026-04-15T07:02:46+00:00
+S.94 BNSS | Husband Can Seek Wife's Employment Records To Oppose Maintenance Claim: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-invocation-section94-bnss-wife-income-maintenance-case-530317
+
+[Read on Telegram](https://t.me/livelawindia/108932)
+
+---
+### 2026-04-15T07:03:36+00:00
+Kerala Agriculture Income Tax | Amalgamating Company's Loss Can't Be Set-Off From Income Of Amalgamated Company : Supreme Court
+https://www.livelaw.in/supreme-court/kerala-agriculture-income-tax-amalgamating-companys-loss-cant-be-set-off-from-income-of-amalgamated-company-supreme-court-530321
+
+[Read on Telegram](https://t.me/livelawindia/108933)
+
+---
+### 2026-04-15T07:04:16+00:00
+2026 LiveLaw (SC) 371 | ASPINWALL AND CO. LTD. VERSUS INSPECTING ASSISTANT COMMISSIONER
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-371-aspinwall-and-co-ltd-versus-inspecting-assistant-commissioner-530322
+
+[Read on Telegram](https://t.me/livelawindia/108934)
+
+---
+### 2026-04-15T07:17:46+00:00
+'Eviction Proceedings Cannot Be Continued Against Tenant Who Has Become Co-Owner Of Property': Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-eviction-proceedings-tenant-coowner-property-530314
+
+[Read on Telegram](https://t.me/livelawindia/108935)
+
+---
+### 2026-04-15T07:33:06+00:00
+[Tenancy Act] Landlord's Right To Terminate Tenancy For 'Bona Fide Personal Cultivation' Extinguishes Upon Sale Of Land: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-inherited-right-terminate-tenancy-personal-cultivation-530312
+
+[Read on Telegram](https://t.me/livelawindia/108936)
+
+---
+### 2026-04-15T07:43:06+00:00
+First-Year Law Student Found Dead At NUJS Kolkata Campus
+https://www.livelaw.in/high-court/calcutta-high-court/first-year-student-found-dead-at-nujs-kolkata-campus-530332
+
+[Read on Telegram](https://t.me/livelawindia/108937)
+
+---
+### 2026-04-15T07:47:26+00:00
+“Good Ground, But Not At This Stage”: Madras High Court Rejects Plea For Audio-Enabled VVPAT For Visually Impaired Voters Ahead Of TN Polls
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-audio-enabled-vvpat-assembly-elections-plea-dismissed-530329
+
+[Read on Telegram](https://t.me/livelawindia/108938)
 
 ---
