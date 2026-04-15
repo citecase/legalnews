@@ -1,6 +1,71 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-14T16:03:12+00:00*
+*Last Updated: 2026-04-15T08:02:47+00:00*
+
+---
+
+### 2026-04-15T08:02:47+00:00
+Services Of Pigmy Agents Rendered In Course Of Employment Not ‘Supply’ Under GST: Karnataka High Court Quashes Notices
+https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/ms-karnataka-vikas-grameena-bank-v-deputy-commissioner-of-commercial-taxes-writ-petition-no-100806-of-2024-t-res-master-servant-nexus-1612110
+
+[Source Link](https://t.me/verdictumlegalupdates/26527)
+
+---
+
+### 2026-04-15T07:32:45+00:00
+Delhi High Court Upholds Conviction Of Police Officer & Lawyer For Falsely Implicating Man For Gang Rape & Custodial Violence
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/haji-mohd-altaf-v-the-state-neutral-citation-2026dhc2778-1612106
+
+[Source Link](https://t.me/verdictumlegalupdates/26526)
+
+---
+
+### 2026-04-15T07:02:44+00:00
+Marrying Victim After She Attained Majority Doesn’t Absolve Accused Of Rape When She Was Minor: Delhi High Court Denies Bail
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/gayassudin-v-state-of-nct-of-delhi-2026dhc2960-marrying-victim-majority-accused-rape-minor-1612101
+
+[Source Link](https://t.me/verdictumlegalupdates/26525)
+
+---
+
+### 2026-04-15T06:33:02+00:00
+If Indemnity holder Incurred Absolute Liability, He is Entitled To Call Upon Indemnifier To Pay It Off: Supreme Court
+https://www.verdictum.in/court-updates/supreme-court/vps-healthcare-private-limited-anr-v-prabhat-kumar-srivastava-ors-2026-insc-361-1612096
+
+[Source Link](https://t.me/verdictumlegalupdates/26524)
+
+---
+
+### 2026-04-15T06:02:21+00:00
+Not Entitled To Bail On Lengthy Incarceration Ground: Bombay High Court Denies Bail To Man Accused Of Wife’s Murder
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/mangesh-v-the-state-of-maharashtra-2026bhc-aug14896-lengthy-incarceration-no-absolute-ground-for-bail-1612090
+
+[Source Link](https://t.me/verdictumlegalupdates/26523)
+
+---
+
+### 2026-04-15T05:32:20+00:00
+Chats Reflect Inappropriate Demands Being Made: Gujarat High Court Denies Bail To College Professor In Sexual Harassment Case
+https://www.verdictum.in/court-updates/high-courts/gujarat-high-court/manishkumar-shivlal-chauhan-v-state-of-gujarat-2026gujhc23449-chats-professor-sexual-harassment-case-1612088
+
+[Source Link](https://t.me/verdictumlegalupdates/26522)
+
+---
+
+### 2026-04-15T05:02:58+00:00
+Posting Obscene Content Of Minors On Social Media Causes Lasting Damage To Dignity Creating Harm That Far Exceeds Statutory Punishment: Delhi High Court
+https://www.verdictum.in/court-updates/high-courts/delhi-high-court/sumit-v-state-of-nct-of-delhi-bail-application-538-2026-1612058
+
+[Source Link](https://t.me/verdictumlegalupdates/26521)
+
+---
+
+### 2026-04-15T04:32:47+00:00
+Reservation Benefits Granted In One State
+Cannot Be Extended To Reserved Category Candidates Belonging To Another State: Rajasthan High Court
+https://www.verdictum.in/court-updates/high-courts/rajasthan-high-court/federation-of-private-medical-and-dental-college-of-rajasthan-v-chairman-neet-pg-medical-dental-admission-board-ors-1612082
+
+[Source Link](https://t.me/verdictumlegalupdates/26520)
 
 ---
 
@@ -97,70 +162,6 @@ Recovery Rights U/S 50 MRTU & PULP Act Are Person-Specific And Non-Transferable 
 https://www.verdictum.in/court-updates/high-courts/bombay-high-court/vidyut-metallics-employees-union-v-vidyut-metallics-private-limited-2026bhc-as16846-recovery-rights-us-50-mrtu-pulp-act-1612040
 
 [Source Link](https://t.me/verdictumlegalupdates/26508)
-
----
-
-### 2026-04-14T09:03:05+00:00
-Certified Copy Of Decree Is Conclusive Proof: Karnataka HC Directs Sub-Registrars To Record Document Cancellations Without Insisting On Formal Court Communication
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/2026khc17065-mr-antony-damy-k-v-state-of-karnataka-1612037
-
-[Source Link](https://t.me/verdictumlegalupdates/26507)
-
----
-
-### 2026-04-14T08:32:43+00:00
-Assist In Process Of Restoration Of Tribal Land: Supreme Court Asks Ex-Jharkhand Minister Anosh Ekka While Granting Bail In Land Scam & Disproportionate Assets Case
-https://www.verdictum.in/court-updates/high-courts/jharkhand-high-court/anosh-ekka-v-state-through-central-bureau-of-investigation-2026-insc-357-bail-ex-jharkhand-minister-land-scam-1612036
-
-[Source Link](https://t.me/verdictumlegalupdates/26506)
-
----
-
-### 2026-04-14T08:02:52+00:00
-Supreme Court Quashes DV Act Proceedings Over Wife’s "Afterthought" Allegation Of ₹170 Crore Worth Unreturned Gold; Dissolves Marriage
-https://www.verdictum.in/court-updates/supreme-court/x-v-y-2026-insc-360-wifes-afterthought-allegation-of-170-crore-unreturned-gold-dv-act-1612034
-
-[Source Link](https://t.me/verdictumlegalupdates/26505)
-
----
-
-### 2026-04-14T07:32:45+00:00
-Supreme Court Clarifies Justice Asha Menon Advisory Committee Lacks Power To Adjudicate Transgender Recruitment Rights Issue
-https://www.verdictum.in/court-updates/supreme-court/justice-asha-menon-advisory-committee-transgender-recruitment-rights-1612029
-
-[Source Link](https://t.me/verdictumlegalupdates/26504)
-
----
-
-### 2026-04-14T07:02:23+00:00
-Weekly Overview| Supreme Court Judgments: April 6 – April 10, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-april-6-april-10-2026-1612023
-
-[Source Link](https://t.me/verdictumlegalupdates/26503)
-
----
-
-### 2026-04-14T06:32:42+00:00
-Appeal Filed By Suspended Director In Name Of Corporate Debtor After Admission Of CIRP Contrary To IBC’s Mandate: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/nitendra-kumar-tomer-v-unox-spa-and-another-2026-insc-356-suspended-director-corporate-debtor-1612022
-
-[Source Link](https://t.me/verdictumlegalupdates/26502)
-
----
-
-### 2026-04-14T06:03:21+00:00
-"Brother" Doesn’t Come Within Definition Of "Family" Under Pension Scheme: Calcutta High Court Dismisses Appeal Filed By Brother Of Deceased Teacher
-https://www.verdictum.in/court-updates/high-courts/calcutta-high-court/smt-ranu-chatterjee-v-state-of-west-bengal-brother-deceased-pension-1981-scheme-1612020
-
-[Source Link](https://t.me/verdictumlegalupdates/26501)
-
----
-
-### 2026-04-14T05:32:59+00:00
-Benefit U/S 4 Probation of Offenders Act Available Even If Sentence Imposed Is Only Fine: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/milind-so-ashruba-dhanve-ors-v-state-of-maharashtra-2026-insc-355-1612011
-
-[Source Link](https://t.me/verdictumlegalupdates/26500)
 
 ---
 
