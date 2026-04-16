@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-16T06:03:15+00:00*
+*Last Updated: 2026-04-16T10:34:10+00:00*
 
 ---
 
-### 2026-04-16T06:03:15+00:00
-S.193(2) BNSS | 60-Day Timeline For Chargesheet In Rape, POCSO Offences Not Shortcut To Default Bail For Accused: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-section1932-bnss-victim-benefit-default-bail-accused-530457
+### 2026-04-16T10:34:10+00:00
+'Irreplaceable Ecological Value': Kerala High Court Allows Road-Widening To Kannur Temple On Conditions Including Afforestation With 400 Trees
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-afforestation-400-trees-kannur-temple-road-widening-sustainable-development-530530
 
-[Read on Telegram](https://t.me/livelawindia/109003)
-
----
-### 2026-04-16T06:08:15+00:00
-Delhi High Court Seeks Centre, Meta's Response To Plea Against Blocking Of News Outlet Molitic's Facebook Page
-https://www.livelaw.in/high-court/delhi-high-court/molitics-facebook-page-blocked-meity-meta-to-respond-530458
-
-[Read on Telegram](https://t.me/livelawindia/109004)
+[Read on Telegram](https://t.me/livelawindia/109044)
 
 ---
-### 2026-04-16T06:13:35+00:00
-RMLNLU Conducts Two-Week Capacity Building Programme On Traditional Knowledge Systems & Cultural Expressions [Apply By April 20]
-https://www.livelaw.in/lawschool/news/rmlnlu-conducts-two-week-capacity-building-programme-traditional-knowledge-systems-cultural-expressions-530459
+### 2026-04-16T10:37:10+00:00
+Supreme Court Dismisses PIL Seeking 50% Women Representation  In Judicial Services, Govt Panels
+https://www.livelaw.in/top-stories/supreme-court-pil-for-earmarking-50-percent-vacancies-for-women-in-judiciary-government-panels-rejected-make-representation-to-stakeholders-530531
 
-[Read on Telegram](https://t.me/livelawindia/109005)
-
----
-### 2026-04-16T06:19:12+00:00
-Delhi High Court Issues Notice To 'X' User On Gaurav Bhatia's Plea Alleging Breach Of Interim Order Restraining Defamatory Posts
-https://www.livelaw.in/high-court/delhi-high-court/gaurav-bhatia-defamation-interim-order-x-user-defiance-530460
-
-[Read on Telegram](https://t.me/livelawindia/109006)
+[Read on Telegram](https://t.me/livelawindia/109045)
 
 ---
-### 2026-04-16T06:33:02+00:00
-“Live-In Relationship Doesn't Negate Deception In False Promise To Marry Cases”: Delhi High Court Rejects Anticipatory Bail
-https://www.livelaw.in/high-court/delhi-high-court/live-in-relationship-doesnt-negate-deception-in-false-promise-to-marry-cases-delhi-high-court-rejects-anticipatory-bail-530441
+### 2026-04-16T10:38:50+00:00
+CBI Seeks Remission-Less Life Term For Congress MLA Vinay Kulkarni, Others Convicted For Murder Of BJP's Yogesh Goudar
+https://www.livelaw.in/news-updates/remissionless-life-imprisonment-yogesh-goudar-murder-case-mla-vinay-kulkarni-530533
 
-[Read on Telegram](https://t.me/livelawindia/109007)
-
----
-### 2026-04-16T06:48:17+00:00
-Motor Accidents | Absence Of Badge Not Breach Of Policy For Autorickshaw Driver, Insurer Liable To Compensate: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-autorickshaw-motor-accidents-insurer-liable-badge-530462
-
-[Read on Telegram](https://t.me/livelawindia/109008)
+[Read on Telegram](https://t.me/livelawindia/109046)
 
 ---
-### 2026-04-16T06:48:27+00:00
-Corporate Counsel Vacancy At Tata Consultancy Services Limited [Apply Now]
-https://www.livelaw.in/job-updates/corporate-counsel-vacancy-at-tata-consultancy-services-limited-530466
+### 2026-04-16T10:57:20+00:00
+Critical Analysis Of Supreme Court's Approach To WB SIR Exercise
+https://www.livelaw.in/articles/critical-analysis-of-supreme-courts-approach-to-wb-sir-exercise-530535
 
-[Read on Telegram](https://t.me/livelawindia/109009)
-
----
-### 2026-04-16T06:51:27+00:00
-'Can't Compel People To Vote' : Supreme Court Rejects Plea Seeking To Make Voting Mandatory
-https://www.livelaw.in/top-stories/cant-compel-people-to-vote-supreme-court-rejects-plea-seeking-to-make-voting-mandatory-530468
-
-[Read on Telegram](https://t.me/livelawindia/109010)
+[Read on Telegram](https://t.me/livelawindia/109047)
 
 ---
-### 2026-04-16T06:54:27+00:00
-Assistant Legal Aid Defense Counsel Vacancy At District Legal Services Authority, Ranchi
-https://www.livelaw.in/job-updates/assistant-legal-aid-defense-counsel-vacancy-at-district-legal-services-authority-ranchi-530471
+### 2026-04-16T11:06:00+00:00
+Distincition Between 'Seat' & 'Venue' Of Arbitration : Supreme Court Summarises Principles
+https://www.livelaw.in/supreme-court/distincition-between-seat-venue-of-arbitration-supreme-court-summarises-principles-530538
 
-[Read on Telegram](https://t.me/livelawindia/109011)
-
----
-### 2026-04-16T06:58:07+00:00
-Reservation Granted In One State Can't Be Extended To Another, Backward Classes May Not Share Same Social Realities: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-reserved-category-status-neetpg-530465
-
-[Read on Telegram](https://t.me/livelawindia/109012)
+[Read on Telegram](https://t.me/livelawindia/109048)
 
 ---
-### 2026-04-16T06:59:27+00:00
-[Advertisement] Single Credit Course On “Just Transitions And Energy Justice – An Indian Perspective”
-https://www.livelaw.in/lawschool/diploma-certificate-courses/advertisement-single-credit-course-just-transitions-energy-justice-indian-perspective-530475
+### 2026-04-16T11:07:40+00:00
+2026 LiveLaw (SC) 377 | J&K ECONOMIC RECONSTRUCTION AGENCY VERSUS RASH BUILDERS INDIA PRIVATE LIMITED
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-377-jk-economic-reconstruction-agency-versus-rash-builders-india-private-limited-530539
 
-[Read on Telegram](https://t.me/livelawindia/109013)
-
----
-### 2026-04-16T07:04:27+00:00
-Air Force Act | Disciplinary Proceedings Can't Be Initiated Against Officer Discharged In Criminal Trial On Same Charge : Supreme Court
-https://www.livelaw.in/supreme-court/air-force-act-disciplinary-proceedings-cant-be-initiated-against-officer-discharged-in-criminal-trial-on-same-charge-supreme-court-530476
-
-[Read on Telegram](https://t.me/livelawindia/109014)
+[Read on Telegram](https://t.me/livelawindia/109049)
 
 ---
-### 2026-04-16T07:05:27+00:00
-2026 LiveLaw (SC) 376 | EX. SQN. LDR. R. SOOD VS. UNION OF INDIA & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-376-ex-sqn-ldr-r-sood-vs-union-of-india-ors-530478
+### 2026-04-16T11:10:00+00:00
+Madras High Court Prevents Illegal Broadcast of Vijay Starrer "Jana Nayagan" Movie
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-illegal-broadcast-jana-nayagan-temporarily-restrained-530541
 
-[Read on Telegram](https://t.me/livelawindia/109015)
-
----
-### 2026-04-16T07:08:27+00:00
-Jindal Global Law School Signs MoU With ADR ODR International for Dispute Resolution Studies And Programmes
-https://www.livelaw.in/lawschool/news/jindal-global-law-school-signs-mou-with-adr-odr-international-for-dispute-resolution-studies-and-programmes-530479
-
-[Read on Telegram](https://t.me/livelawindia/109016)
+[Read on Telegram](https://t.me/livelawindia/109050)
 
 ---
-### 2026-04-16T07:11:17+00:00
-Telangana High Court To Hear Quashing Plea By BJP's Madhavi Lata Accused Of Obstructing Voter, Forcibly Lifting Her Niqab During 2024 Polls
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-quashes-case-against-bjps-madhavi-lata-for-allegedly-obstructing-voter-forecibly-lifting-her-niqab-during-2024-polls-530481
+### 2026-04-16T11:14:20+00:00
+Delhi High Court Lays Down Principles For Quashing POCSO Cases Where Victim Denies Actual Harm Due To Consensual Relations, Marriage
+https://www.livelaw.in/high-court/delhi-high-court/pocso-case-quashing-guidelines-consensual-relations-victim-accused-married-530544
 
-[Read on Telegram](https://t.me/livelawindia/109017)
-
----
-### 2026-04-16T07:11:29+00:00
-Consultant Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/consultant-vacancy-at-deloitte-touche-tohmatsu-india-llp-530480
-
-[Read on Telegram](https://t.me/livelawindia/109018)
+[Read on Telegram](https://t.me/livelawindia/109051)
 
 ---
-### 2026-04-16T07:18:47+00:00
-Call For Applications: Consultant For The Accelerating Justice Delivery Project Of The IBA [Apply Now]
-https://www.livelaw.in/job-updates/call-for-applications-consultant-for-the-accelerating-justice-delivery-project-of-the-iba-530482
+### 2026-04-16T11:33:00+00:00
+'State Cannot Exercise Unfettered Discretion In Tender Matters Or Deviate From Notice Conditions Without Reasons': Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-unfettered-discretion-tender-matters-nit-conditions-530507
 
-[Read on Telegram](https://t.me/livelawindia/109019)
-
----
-### 2026-04-16T07:28:57+00:00
-BREAKING | Supreme Court Dismisses Anil Ambani's Plea To Stay Fraud Classification Of Loan Accounts
-https://www.livelaw.in/top-stories/supreme-court-dismisses-anil-ambanis-plea-to-stay-fraud-classification-of-loan-accounts-530484
-
-[Read on Telegram](https://t.me/livelawindia/109020)
+[Read on Telegram](https://t.me/livelawindia/109052)
 
 ---
-### 2026-04-16T07:33:17+00:00
-'Sufficient Material To Proceed': Delhi Court Takes Cognizance Of PMLA Complaint Against Robert Vadra, Others
-https://www.livelaw.in/news-updates/sufficient-material-to-proceed-delhi-court-takes-cognizance-of-pmla-complaint-against-robert-vadra-others-530486
+### 2026-04-16T11:39:51+00:00
+Why Cabinet's Proposed Delimitation Amendment Violates Constitutional Compact
+https://www.livelaw.in/articles/cabinet-proposed-delimitation-amendment-violates-constitutional-compact-530550
 
-[Read on Telegram](https://t.me/livelawindia/109021)
+[Read on Telegram](https://t.me/livelawindia/109053)
 
 ---
-### 2026-04-16T07:53:38+00:00
-Plea In Madras High Court Alleges Fraudulent Fund Collection Through NaMo App, Seeks Action Against BJP Leaders
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-donation-scandal-namo-app-probe-against-bjp-plea-filed-530489
+### 2026-04-16T12:04:11+00:00
+BREAKING| West Bengal SIR : Supreme Court Allows Excluded Persons To Vote If Appeals Allowed Before April 21/27
+https://www.livelaw.in/top-stories/west-bengal-sir-supreme-court-allows-excluded-persons-to-vote-if-appeals-allowed-before-april-2127-530552
 
-[Read on Telegram](https://t.me/livelawindia/109022)
+[Read on Telegram](https://t.me/livelawindia/109054)
+
+---
+### 2026-04-16T12:17:11+00:00
+Madras High Court Disposes Plea Seeking Postal Ballot For Students Away From Home, Cites Similar Issue Pending In SC
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-postal-ballot-students-assembly-elections-disposed-530554
+
+[Read on Telegram](https://t.me/livelawindia/109055)
+
+---
+### 2026-04-16T12:19:11+00:00
+Karnataka HC Refuses To Lift Stay On Probe Over Dog Relocation At DRDO Premises, Directs Preservation Of CCTV Footage
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-investigation-stray-dog-relocation-drdo-premises-530555
+
+[Read on Telegram](https://t.me/livelawindia/109056)
+
+---
+### 2026-04-16T12:22:12+00:00
+Conviction For Completed Offence Invalid If Charge Was Only For Attempt Under POCSO: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/conviction-for-completed-offence-invalid-if-charge-was-only-for-attempt-under-pocso-delhi-high-court-530447
+
+[Read on Telegram](https://t.me/livelawindia/109057)
+
+---
+### 2026-04-16T12:37:21+00:00
+Actor Allu Arjun Moves Delhi High Court Seeking Protection Of Personality Rights; Hearing Tomorrow
+https://www.livelaw.in/high-court/delhi-high-court/allu-arjun-personality-rights-hearing-tomorrow-530559
+
+[Read on Telegram](https://t.me/livelawindia/109058)
+
+---
+### 2026-04-16T12:52:21+00:00
+Supreme Court Issues SOP Mandating Strict Timeline Framework For Filing Legal Aid Appeals
+https://www.livelaw.in/supreme-court/supreme-court-issues-sop-mandating-strict-timeline-framework-for-filing-legal-aid-appeals-530563
+
+[Read on Telegram](https://t.me/livelawindia/109059)
+
+---
+### 2026-04-16T12:58:55+00:00
+Trafficking Victim Can Be Repatriated Based On 'No Objection' By Trial Court, Magistrate's Order Not Needed: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/victims-of-trafficking-can-be-repatriated-based-on-no-objection-order-by-trial-court-magistrates-order-not-needed-bombay-high-court-530565
+
+[Read on Telegram](https://t.me/livelawindia/109060)
+
+---
+### 2026-04-16T13:11:15+00:00
+Justice SK Sharma's Children Had No Role In Arvind Kejriwal's Case, Never Assisted In Any Proceedings: CBI Tells Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/cbi-oppose-justice-swarna-kanta-recusal-arvind-kejriwal-530567
+
+[Read on Telegram](https://t.me/livelawindia/109061)
+
+---
+### 2026-04-16T13:39:35+00:00
+'Dhurandhar' Script Row: Bombay High Court Calls For Settlement Between Parties, Says Defamation Suit Need Not Be Escalated
+https://www.livelaw.in/high-court/bombay-high-court/dhurandhar-script-row-bombay-high-court-calls-for-settlement-between-parties-says-defamation-suit-need-not-be-escalated-530571
+
+[Read on Telegram](https://t.me/livelawindia/109062)
+
+---
+### 2026-04-16T13:44:39+00:00
+Family Courts Cannot 'Casually' Pass Orders Directing Spouse To Undergo Medical Exam To Ascertain Mental Health: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/family-courts-cannot-casually-pass-orders-directing-spouse-to-undergo-medical-exam-to-ascertain-mental-health-bombay-high-court-530574
+
+[Read on Telegram](https://t.me/livelawindia/109063)
 
 ---
