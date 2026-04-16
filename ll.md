@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-15T12:48:11+00:00*
+*Last Updated: 2026-04-15T12:49:21+00:00*
 
 ---
 
-### 2026-04-15T12:48:11+00:00
-'Profession Can't Be Tarnished': Gujarat High Court Denies Anticipatory Bail To Law Student Accused Of Posing As Advocate
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-anticipatory-bail-law-student-cheating-fir-530385
-
-[Read on Telegram](https://t.me/livelawindia/108967)
-
----
 ### 2026-04-15T12:49:21+00:00
 2026 LiveLaw (SC) 373 | BHARTIYA MAZDOOR SANGH, U.P. & ANR. VERSUS STATE OF U.P. & OTHERS
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-373-bhartiya-mazdoor-sangh-up-anr-versus-state-of-up-others-530391
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : April 15, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-15-2026-530414
 
 [Read on Telegram](https://t.me/livelawindia/108986)
+
+---
+### 2026-04-16T03:14:30+00:00
+NLUO Launches Mediation Blog During 3rd National Negotiation Competition; Invites Submissions
+https://www.livelaw.in/lawschool/news/nluo-launches-mediation-blog-during-3rd-national-negotiation-competition-invites-submissions-530424
+
+[Read on Telegram](https://t.me/livelawindia/108987)
 
 ---
