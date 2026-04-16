@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-15T16:02:32+00:00*
+*Last Updated: 2026-04-16T07:53:15+00:00*
+
+---
+
+### 2026-04-16T07:53:15+00:00
+Supreme Court Refuses To Interfere With High Court Order On Anil Ambani’s Fraud Classification By Banks
+https://www.verdictum.in/court-updates/supreme-court/anil-ambani-fraud-classification-banks-1612192
+
+[Source Link](https://t.me/verdictumlegalupdates/26550)
+
+---
+
+### 2026-04-16T07:32:54+00:00
+Supreme Court Refuses To Entertain PIL Seeking Ban On Sale Of Liquor In Tetra Packs In UP; Asks To Approach State Authorities
+https://www.verdictum.in/court-updates/supreme-court/supreme-court-refuses-to-entertain-pil-seeking-ban-on-sale-of-liquor-in-tetra-packs-in-up-asks-to-approach-state-authorities-1612187
+
+[Source Link](https://t.me/verdictumlegalupdates/26549)
+
+---
+
+### 2026-04-16T06:52:33+00:00
+Supreme Court Appoints Former Madras HC Chief Justice To Oversee Workmen Claims, PF Dues & Asset Valuation In Jaipur Udyog Case
+https://www.verdictum.in/court-updates/supreme-court/bhartiya-mazdoor-sangh-up-v-state-of-up-2026-insc-364-appoints-former-madras-hc-chief-justice-jaipur-udyog-case-1612180
+
+[Source Link](https://t.me/verdictumlegalupdates/26548)
+
+---
+
+### 2026-04-16T06:01:52+00:00
+Trial Courts Cannot Order Surrender Of Passport In Bail Conditions: Madras High Court
+https://www.verdictum.in/court-updates/high-courts/madras-high-court/raja-v-the-inspector-of-police-trial-courts-cannot-order-surrender-passport-bail-conditions-1612178
+
+[Source Link](https://t.me/verdictumlegalupdates/26547)
+
+---
+
+### 2026-04-16T05:13:10+00:00
+Amounts To Misconduct: Bombay High Court Asks Bar Council To Take Action Against Advocate Who Appeared For Multiple Parties Without Vakalatnama
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/pushpa-vs-state-of-maharashtra-2026bhc-nag5672-db-mischief-misconduct-bar-council-1612172
+
+[Source Link](https://t.me/verdictumlegalupdates/26546)
+
+---
+
+### 2026-04-16T04:32:18+00:00
+Domestic Enquiry Conducted In Cases Prior To Enactment Of POSH Act On Statutory Standing Order Not Illegal: Bombay High Court
+https://www.verdictum.in/court-updates/high-courts/bombay-high-court/glaxosmithkline-pharmaceuticals-limited-v-suhas-shankar-pagare-2026bhc-as16848-absence-of-complaints-committee-under-posh-act-1612162
+
+[Source Link](https://t.me/verdictumlegalupdates/26545)
 
 ---
 
@@ -113,54 +161,6 @@ Bombay High Court Dismisses Abu Salem’s Plea Seeking Immediate Release After C
 https://www.verdictum.in/court-updates/high-courts/bombay-high-court/bombay-high-court-dismisses-abu-salems-plea-seeking-immediate-release-after-completing-25-years-in-jail-1612114
 
 [Source Link](https://t.me/verdictumlegalupdates/26531)
-
----
-
-### 2026-04-15T09:26:42+00:00
-Justice Abhay S. Oka To Speak On "Robes Cannot Be Rented"
-https://www.verdictum.in/events/justice-abhay-s-oka-to-speak-on-robes-cannot-be-rented-1612118
-
-[Source Link](https://t.me/verdictumlegalupdates/26530)
-
----
-
-### 2026-04-15T08:51:00+00:00
-Supreme Court Stays Transit Anticipatory Bail Granted To Pawan Khera In FIR Lodged For Statements On Wife Of Assam CM
-https://www.verdictum.in/court-updates/supreme-court/transit-anticipatory-bail-pawan-khera-defamation-wife-assam-cm-himanta-biswa-sarma-1612116
-
-[Source Link](https://t.me/verdictumlegalupdates/26529)
-
----
-
-### 2026-04-15T08:32:28+00:00
-Unlawful Arrest Vitiates Medical Examination; Tainted Blood Sample Cannot Sustain Prosecution Under NDPS Act: Karnataka High Court
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/sri-eman-abbas-topiwala-v-state-of-karnataka-ndps-act-blood-sample-arrest-1612112
-
-[Source Link](https://t.me/verdictumlegalupdates/26528)
-
----
-
-### 2026-04-15T08:02:47+00:00
-Services Of Pigmy Agents Rendered In Course Of Employment Not ‘Supply’ Under GST: Karnataka High Court Quashes Notices
-https://www.verdictum.in/court-updates/high-courts/karnataka-high-court/ms-karnataka-vikas-grameena-bank-v-deputy-commissioner-of-commercial-taxes-writ-petition-no-100806-of-2024-t-res-master-servant-nexus-1612110
-
-[Source Link](https://t.me/verdictumlegalupdates/26527)
-
----
-
-### 2026-04-15T07:32:45+00:00
-Delhi High Court Upholds Conviction Of Police Officer & Lawyer For Falsely Implicating Man For Gang Rape & Custodial Violence
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/haji-mohd-altaf-v-the-state-neutral-citation-2026dhc2778-1612106
-
-[Source Link](https://t.me/verdictumlegalupdates/26526)
-
----
-
-### 2026-04-15T07:02:44+00:00
-Marrying Victim After She Attained Majority Doesn’t Absolve Accused Of Rape When She Was Minor: Delhi High Court Denies Bail
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/gayassudin-v-state-of-nct-of-delhi-2026dhc2960-marrying-victim-majority-accused-rape-minor-1612101
-
-[Source Link](https://t.me/verdictumlegalupdates/26525)
 
 ---
 
