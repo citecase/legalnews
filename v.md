@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-16T14:02:21+00:00*
+*Last Updated: 2026-04-16T16:02:55+00:00*
+
+---
+
+### 2026-04-16T16:02:55+00:00
+Indian Bureau of Mines (IBM) Invites Applications For The Post Of Law Officers
+https://www.verdictum.in/job-updates/indian-bureau-of-mines-1612211
+
+[Source Link](https://t.me/verdictumlegalupdates/26564)
+
+---
+
+### 2026-04-16T15:32:24+00:00
+Right To Statutory Bail U/S 187 BNSS Cannot Be Derived From Investigation Timeline U/S 193 BNSS In POCSO Cases: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/govinda-v-state-of-karnataka-writ-petition-no5248-of-2026-gm-res-statutory-bail-us-187-bnss-s-193-bnss-investigation-timeline-1612218
+
+[Source Link](https://t.me/verdictumlegalupdates/26563)
+
+---
+
+### 2026-04-16T14:53:22+00:00
+The Substance Of Transaction Is Determinative: Kerala High Court Refuses To Quash NI Act Complaint Instituted On Basis Of  Withdrawal Slip Of Co-Operative Society
+https://www.verdictum.in/supreme-court/clara-dominic-v-tomy-eapen-2026ker26925-ni-act-complaint-withdrawal-slip-co-operative-society-1612217
+
+[Source Link](https://t.me/verdictumlegalupdates/26562)
 
 ---
 
@@ -137,30 +161,6 @@ Domestic Enquiry Conducted In Cases Prior To Enactment Of POSH Act On Statutory 
 https://www.verdictum.in/court-updates/high-courts/bombay-high-court/glaxosmithkline-pharmaceuticals-limited-v-suhas-shankar-pagare-2026bhc-as16848-absence-of-complaints-committee-under-posh-act-1612162
 
 [Source Link](https://t.me/verdictumlegalupdates/26545)
-
----
-
-### 2026-04-15T16:02:32+00:00
-Para Legal Personnel/Lawyer Vacancy At One Stop Centre Thulluru (OSC Guntur)
-https://www.verdictum.in/job-updates/one-stop-centre-thulluru-1612136
-
-[Source Link](https://t.me/verdictumlegalupdates/26544)
-
----
-
-### 2026-04-15T15:32:51+00:00
-Principle Of Finality Applies To Adjudication Of Industrial Disputes Despite Relaxed Application Of Res Judicata: Delhi High Court
-https://www.verdictum.in/court-updates/high-courts/delhi-high-court/ms-ibp-company-limited-v-shailendra-kumar-anr-2025dhc3085-1612140
-
-[Source Link](https://t.me/verdictumlegalupdates/26543)
-
----
-
-### 2026-04-15T15:02:19+00:00
-Competent Authority Has To Refer Compensation Dispute Under National Highways Act To Civil Court & Withhold Disbursement Till It Is Resolved: J&K And Ladakh High Court
-https://www.verdictum.in/court-updates/high-courts/jammu-ladakh-high-court/abdul-aziz-bhat-v-ut-of-jk-and-others-2026jklhc-sgr60-db-competent-authority-national-highways-act-1612139
-
-[Source Link](https://t.me/verdictumlegalupdates/26542)
 
 ---
 
