@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-16T16:02:55+00:00*
+*Last Updated: 2026-04-17T07:52:56+00:00*
+
+---
+
+### 2026-04-17T07:52:56+00:00
+Legal Aid Must Be Real, Not Symbolic: Supreme Court Formulates SOP To Curb Systemic Delays In Legal Aid Appeals & SLPs
+https://www.verdictum.in/supreme-court/shankar-mahto-v-state-of-bihar-2026-insc-369-formulates-sop-to-delays-in-legal-aid-appeals-slps-1612261
+
+[Source Link](https://t.me/verdictumlegalupdates/26570)
+
+---
+
+### 2026-04-17T07:05:15+00:00
+Breaking: Supreme Court Declines Extension Of Transit Bail For Pawan Khera Till Tuesday; Directs Immediate Move To Guwahati High Court
+https://www.verdictum.in/supreme-court/extension-transit-bail-for-pawan-khera-tuesday-guwahati-high-court-1612258
+
+[Source Link](https://t.me/verdictumlegalupdates/26569)
+
+---
+
+### 2026-04-17T06:22:14+00:00
+Courts Should Defer To Institutional Economic Decisions Absent Arbitrariness Or Mala Fides: Delhi High Court
+https://www.verdictum.in/delhi-high-court/putzmeister-concrete-pumps-gmbh-v-union-of-india-2026dhc2653-db-prior-approval-foreign-investment-1612252
+
+[Source Link](https://t.me/verdictumlegalupdates/26568)
+
+---
+
+### 2026-04-17T05:36:53+00:00
+Breaking: Supreme Court Mandates Extreme Legal Measures Against Sand Mining Mafia In National Chambal Sanctuary; Warns Of CRPF Deployment & Total Mining Ban
+https://www.verdictum.in/supreme-court/extreme-legal-measures-sand-mining-mafia-crpf-deployment-national-chambal-sanctuary-1612247
+
+[Source Link](https://t.me/verdictumlegalupdates/26567)
+
+---
+
+### 2026-04-17T05:22:51+00:00
+COFEPOSA Detenu Can’t Seek Legal Assistance In Routine Manner When Officer Merely Assists Advisory Board On Detaining Authority's Behalf: Supreme Court
+https://www.verdictum.in/supreme-court/priyanka-sarkariya-v-the-union-of-india-anr-2026-insc-371-cofeposa-detenu-legal-assistance-1612245
+
+[Source Link](https://t.me/verdictumlegalupdates/26566)
+
+---
+
+### 2026-04-17T04:33:00+00:00
+Protective Jurisdiction U/S 9 Arbitration Act Cannot Resurrect Contracts Terminated By Self-Executing Automatic Clauses: Delhi High Court
+https://www.verdictum.in/delhi-high-court/jlt-energy-9-sas-v-hindustan-cleanenergy-limited-2026dhc3034-db-1612219
+
+[Source Link](https://t.me/verdictumlegalupdates/26565)
 
 ---
 
@@ -113,54 +161,6 @@ We Only Need Awareness, We Cannot Compel: Supreme Court Refuses To Entertain PIL
 https://www.verdictum.in/court-updates/supreme-court/we-only-need-awareness-we-cannot-compel-supreme-court-refuses-to-entertain-pil-seeking-directions-to-make-voting-compulsory-1612189
 
 [Source Link](https://t.me/verdictumlegalupdates/26551)
-
----
-
-### 2026-04-16T07:53:15+00:00
-Supreme Court Refuses To Interfere With High Court Order On Anil Ambani’s Fraud Classification By Banks
-https://www.verdictum.in/court-updates/supreme-court/anil-ambani-fraud-classification-banks-1612192
-
-[Source Link](https://t.me/verdictumlegalupdates/26550)
-
----
-
-### 2026-04-16T07:32:54+00:00
-Supreme Court Refuses To Entertain PIL Seeking Ban On Sale Of Liquor In Tetra Packs In UP; Asks To Approach State Authorities
-https://www.verdictum.in/court-updates/supreme-court/supreme-court-refuses-to-entertain-pil-seeking-ban-on-sale-of-liquor-in-tetra-packs-in-up-asks-to-approach-state-authorities-1612187
-
-[Source Link](https://t.me/verdictumlegalupdates/26549)
-
----
-
-### 2026-04-16T06:52:33+00:00
-Supreme Court Appoints Former Madras HC Chief Justice To Oversee Workmen Claims, PF Dues & Asset Valuation In Jaipur Udyog Case
-https://www.verdictum.in/court-updates/supreme-court/bhartiya-mazdoor-sangh-up-v-state-of-up-2026-insc-364-appoints-former-madras-hc-chief-justice-jaipur-udyog-case-1612180
-
-[Source Link](https://t.me/verdictumlegalupdates/26548)
-
----
-
-### 2026-04-16T06:01:52+00:00
-Trial Courts Cannot Order Surrender Of Passport In Bail Conditions: Madras High Court
-https://www.verdictum.in/court-updates/high-courts/madras-high-court/raja-v-the-inspector-of-police-trial-courts-cannot-order-surrender-passport-bail-conditions-1612178
-
-[Source Link](https://t.me/verdictumlegalupdates/26547)
-
----
-
-### 2026-04-16T05:13:10+00:00
-Amounts To Misconduct: Bombay High Court Asks Bar Council To Take Action Against Advocate Who Appeared For Multiple Parties Without Vakalatnama
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/pushpa-vs-state-of-maharashtra-2026bhc-nag5672-db-mischief-misconduct-bar-council-1612172
-
-[Source Link](https://t.me/verdictumlegalupdates/26546)
-
----
-
-### 2026-04-16T04:32:18+00:00
-Domestic Enquiry Conducted In Cases Prior To Enactment Of POSH Act On Statutory Standing Order Not Illegal: Bombay High Court
-https://www.verdictum.in/court-updates/high-courts/bombay-high-court/glaxosmithkline-pharmaceuticals-limited-v-suhas-shankar-pagare-2026bhc-as16848-absence-of-complaints-committee-under-posh-act-1612162
-
-[Source Link](https://t.me/verdictumlegalupdates/26545)
 
 ---
 
