@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-17T09:37:46+00:00*
+*Last Updated: 2026-04-17T11:19:02+00:00*
 
 ---
 
-### 2026-04-17T09:37:46+00:00
-Birth Certificate Issued Under Registration Of Births And Deaths Act Binding Unless Cancelled Or Forgery Is Proved: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-birth-certificate-registration-births-deaths-act-530644
-
-[Read on Telegram](https://t.me/livelawindia/109122)
-
----
-### 2026-04-17T09:52:46+00:00
-Supreme Court Issues Notice On CBI's Appeal Against Aqcuittal Of 4 Kerala Policemen In Udayakumar Custodial Death Case
-https://www.livelaw.in/top-stories/supreme-court-issues-notice-on-cbis-appeal-against-aqcuittal-of-4-kerala-policemen-in-udayakumar-custodial-death-case-530689
-
-[Read on Telegram](https://t.me/livelawindia/109123)
-
----
-### 2026-04-17T10:02:06+00:00
-Evidentiary Value Of Handwriting Expert's Report Will Depend On Facts And Circumstances Of Each Case: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-evidentiary-value-handwriting-expert-report-530673
-
-[Read on Telegram](https://t.me/livelawindia/109124)
-
----
-### 2026-04-17T10:03:46+00:00
-'Film Won't Sway Judicially-Trained Mind': Kerala High Court Refuses To Stall Movie Allegedly Inspired By Venjaramoodu Mass Murder Case
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-venjaramoodu-mass-murder-case-movie-kaalam-paranja-kadha-530691
-
-[Read on Telegram](https://t.me/livelawindia/109125)
-
----
-### 2026-04-17T10:12:56+00:00
-Prime Accused In TCS Forced Conversion Case To Approach Nashik Court For Pre-Arrest Bail Citing Pregnancy
-https://www.livelaw.in/news-updates/prime-accused-in-tcs-forced-conversion-case-to-approach-nashik-court-for-pre-arrest-bail-citing-pregnancy-530693
-
-[Read on Telegram](https://t.me/livelawindia/109126)
-
----
-### 2026-04-17T10:17:56+00:00
-Hyderabad Court Grants Strong Interim Relief to Euro Exim Bank; Unverified Allegations Against Bank Pulled Up
-https://www.livelaw.in/tech-law/hyderabad-court-grants-interim-relief-euro-exim-bank-unverified-allegations-530695
-
-[Read on Telegram](https://t.me/livelawindia/109127)
-
----
-### 2026-04-17T11:03:42+00:00
-Father Forcibly Taking Custody Of Child Not 'Illegal Detention' Unless It Is In Violation Of Court Order: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-father-forcibe-custody-child-not-illegal-detention-habeas-corpus-mother-530705
-
-[Read on Telegram](https://t.me/livelawindia/109128)
-
----
 ### 2026-04-17T11:19:02+00:00
 Landlord's Bona Fide Need To Be Assessed As On Date Of Eviction Petition Unless Subsequent Events Cause Material Change : Supreme Court
 https://www.livelaw.in/supreme-court/landlords-bona-fide-need-to-be-assessed-as-on-date-of-eviction-petition-unless-subsequent-events-cause-material-change-supreme-court-530707
@@ -142,5 +93,54 @@ Bombay High Court Protects Personality Rights Of Kartik Aryan, Directs Take Down
 https://www.livelaw.in/high-court/bombay-high-court/prima-facie-disparaging-content-diminishes-his-brand-value-bombay-high-court-protects-personality-rights-of-kartik-aryan-530733
 
 [Read on Telegram](https://t.me/livelawindia/109141)
+
+---
+### 2026-04-17T14:17:22+00:00
+BREAKING | Lok Sabha Rejects Constitution (131st) Amendment Bill 2026 On Delimitation
+https://www.livelaw.in/top-stories/lok-sabha-rejects-constitution-131st-bill-2026-on-delimitation-530736
+
+[Read on Telegram](https://t.me/livelawindia/109142)
+
+---
+### 2026-04-17T14:28:02+00:00
+Madras High Court Dismisses Janata Party's Plea Challenging Use Of Deceptively Similar Symbol By Naam Tamilar Katchi Party
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-janata-party-deceptively-similar-symbol-ntk-plea-dismissed-530738
+
+[Read on Telegram](https://t.me/livelawindia/109143)
+
+---
+### 2026-04-17T14:32:22+00:00
+Death Of "Paper Shield": Re-Evaluating CA Certificates In Indian Construction Arbitration
+https://www.livelaw.in/articles/reevaluating-ca-certificates-indian-construction-arbitration-530709
+
+[Read on Telegram](https://t.me/livelawindia/109144)
+
+---
+### 2026-04-17T14:38:22+00:00
+Clause Saying 'Can Be Settled By Arbitration' Does Not Create Mandate To Arbitrate : Supreme Court
+https://www.livelaw.in/supreme-court/clause-saying-can-be-settled-by-arbitration-does-not-create-mandate-to-arbitrate-supreme-court-530742
+
+[Read on Telegram](https://t.me/livelawindia/109145)
+
+---
+### 2026-04-17T14:39:42+00:00
+2026 LiveLaw (SC) 388 | NAGREEKA INDCON PRODUCTS PVT. LTD. VERSUS CARGOCARE LOGISTICS (INDIA) PVT. LTD
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-388-nagreeka-indcon-products-pvt-ltd-versus-cargocare-logistics-india-pvt-ltd-530743
+
+[Read on Telegram](https://t.me/livelawindia/109146)
+
+---
+### 2026-04-17T14:48:22+00:00
+WB Polls: Calcutta HC Quashes Appointment Of College Teachers As Presiding Officers, Pulls Up ECI For Failure To Justify Decision
+https://www.livelaw.in/high-court/calcutta-high-court/wb-polls-calcutta-hc-quashes-appointment-of-college-teachers-as-presiding-officers-pulls-up-eci-for-failure-to-justify-decision-530746
+
+[Read on Telegram](https://t.me/livelawindia/109147)
+
+---
+### 2026-04-17T15:40:52+00:00
+Supreme Court Approves Environment Compensation Charge Hike For Commercial Vehicles Entering Delhi, Mandates 5% Annual Increase
+https://www.livelaw.in/supreme-court/supreme-court-approves-environment-compensation-charge-hike-for-commercial-vehicles-entering-delhi-mandates-5-annual-increase-530748
+
+[Read on Telegram](https://t.me/livelawindia/109148)
 
 ---
