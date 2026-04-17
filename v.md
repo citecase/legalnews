@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-17T13:52:18+00:00*
+*Last Updated: 2026-04-17T15:33:02+00:00*
+
+---
+
+### 2026-04-17T15:33:02+00:00
+Allahabad High Court Declines To Quash FIR Against Class XII Girl Students For Alleged Attempted Religious Conversion
+https://www.verdictum.in/allahabad-high-court/aleena-aleena-parveen-anr-v-state-of-uttar-pradesh-ors-2026ahc83206-db-1612293
+
+[Source Link](https://t.me/verdictumlegalupdates/26580)
+
+---
+
+### 2026-04-17T14:42:40+00:00
+Husband Didn’t Make Full Disclosure; Attempted To Conceal Actual Income: Delhi High Court Enhances Maintenance Amount
+https://www.verdictum.in/delhi-high-court/a-v-b-2026dhc2819-husband-conceal-actual-income-maintenance-amount-1612285
+
+[Source Link](https://t.me/verdictumlegalupdates/26579)
 
 ---
 
@@ -145,22 +161,6 @@ Seat Of Arbitration Governed By Agreement & Not By Stray Recital In Award: Supre
 https://www.verdictum.in/supreme-court/jk-economic-reconstruction-agency-v-rash-builders-india-private-limited-2026-insc-368-seat-venue-arbitration-1612216
 
 [Source Link](https://t.me/verdictumlegalupdates/26561)
-
----
-
-### 2026-04-16T13:32:39+00:00
-Discharge Stands On A Better Footing Than Acquittal; Delinquent Entitled To Avail Of All Benefits: Supreme Court Grants Relief To Ex- IAF Officer
-https://www.verdictum.in/supreme-court/ex-sqn-ldr-r-sood-v-union-of-india-2026-insc-366-air-force-criminal-court-disciplinary-action-1612215
-
-[Source Link](https://t.me/verdictumlegalupdates/26560)
-
----
-
-### 2026-04-16T13:02:58+00:00
-Can Section 5 Limitation Act Be Extended To Appeals  Filed Under Section 85(3A) Of Finance Act, 1994? Supreme Court To Examine
-https://www.verdictum.in/supreme-court/section-5-limitation-act-appeals-section-85-3-a-finance-act-1994-1612213
-
-[Source Link](https://t.me/verdictumlegalupdates/26559)
 
 ---
 
