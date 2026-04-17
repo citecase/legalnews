@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-17T07:52:56+00:00*
+*Last Updated: 2026-04-17T13:52:18+00:00*
+
+---
+
+### 2026-04-17T13:52:18+00:00
+Supreme Court: Order II Rule 2 CPC Can't Be Invoked For Rejection Of Plaint Under Order VII Rule 11(d) CPC, Requires Evidence
+https://www.verdictum.in/supreme-court/s-valliammai-v-s-ramanathan-2026-insc-372-order-ii-rule-2-cpc-bar-1612284
+
+[Source Link](https://t.me/verdictumlegalupdates/26578)
+
+---
+
+### 2026-04-17T13:02:56+00:00
+Uttarakhand High Court Directs District Magistrate To Look Into Retailer's Grievance On Protests Outside Licensed Liquor Shop
+https://www.verdictum.in/uttarakhand-high-court/suresh-chandra-upreti-v-state-of-uttarakhand-2026uhc2708-district-magistrate-protests-licensed-liquor-shop-1612282
+
+[Source Link](https://t.me/verdictumlegalupdates/26577)
+
+---
+
+### 2026-04-17T12:12:35+00:00
+Illicit Relationship Alone Not Sufficient To Establish Abetment Of Suicide In Absence Of Mens Rea And Instigation U/S 306 IPC: Supreme Court
+https://www.verdictum.in/supreme-court/balaji-jaiswal-v-state-of-chhattisgarh-anr-2026-insc-375-suicide-abetment-1612279
+
+[Source Link](https://t.me/verdictumlegalupdates/26576)
+
+---
+
+### 2026-04-17T11:23:13+00:00
+Essential Religious Practice Test Must Be Replaced With Threshold Test; Constitutional Morality Will Homogenise Religious Practices: Senior Advocate Rajeev Dhavan Argues In Sabarimala Reference
+https://www.verdictum.in/supreme-court/sabarimala-reference-senior-advocate-rajeev-dhavan-constitutional-morality-essential-religious-practice-1612277
+
+[Source Link](https://t.me/verdictumlegalupdates/26575)
+
+---
+
+### 2026-04-17T10:42:42+00:00
+Supreme Court Grants Anticipatory Bail To Businessman In Case Involving Allegations Of Sexual Assault And ₹30 Crore Extortion Dispute
+https://www.verdictum.in/supreme-court/venu-gopalakrishnan-v-state-of-kerala-anr-2026-insc-373-sexual-assault-1612273
+
+[Source Link](https://t.me/verdictumlegalupdates/26574)
+
+---
+
+### 2026-04-17T09:52:21+00:00
+Unreasoned Denial Of Pre-Reference Interest, Failure To Decide Claims Vitiate Arbitral Award U/S 34 Arbitration Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/panchanan-international-private-limited-v-the-oriental-insurance-company-limited-2026dhc3010-unreasoned-denial-of-pre-reference-interest-1612271
+
+[Source Link](https://t.me/verdictumlegalupdates/26573)
+
+---
+
+### 2026-04-17T09:12:19+00:00
+Reasoned Judgment With Points For Determination Necessary Even In Ex Parte Cases: Supreme Court
+https://www.verdictum.in/supreme-court/pramod-shroff-v-mohan-singh-chopra-2026-insc-378-order-xx-rule-4-cpc-points-for-determination-ex-parte-1612270
+
+[Source Link](https://t.me/verdictumlegalupdates/26572)
+
+---
+
+### 2026-04-17T08:32:18+00:00
+Allegations Of Physical Assault & Obscene Conduct Within Family Fall Within Ambit Of “Domestic Violence” Under DV Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/anurag-manohar-kankerwal-v-soham-rani-2026dhc2821-domestic-violence-1612266
+
+[Source Link](https://t.me/verdictumlegalupdates/26571)
 
 ---
 
@@ -97,70 +161,6 @@ Can Section 5 Limitation Act Be Extended To Appeals  Filed Under Section 85(3A) 
 https://www.verdictum.in/supreme-court/section-5-limitation-act-appeals-section-85-3-a-finance-act-1994-1612213
 
 [Source Link](https://t.me/verdictumlegalupdates/26559)
-
----
-
-### 2026-04-16T12:32:57+00:00
-Gujarat High Court Denies Anticipatory Bail To Law Student Accused Of Posing As Advocate In ₹80 Lakh Swindling Case
-https://www.verdictum.in/gujarat-high-court/sadhu-falguni-miteshkumar-v-state-of-gujarat-2026gujhc24681-law-student-posing-advocate-swindling-money-1612210
-
-[Source Link](https://t.me/verdictumlegalupdates/26558)
-
----
-
-### 2026-04-16T12:02:35+00:00
-Supreme Court Seeks Response From Centre On Plea Challenging Gender Discrimination In Muslim Inheritance Laws
-https://www.verdictum.in/supreme-court/centre-plea-gender-discrimination-muslim-inheritance-laws-1612206
-
-[Source Link](https://t.me/verdictumlegalupdates/26557)
-
----
-
-### 2026-04-16T11:31:54+00:00
-Apex Court Refuses To Entertain Plea Of Army Veterans Challenging Validity Of Current Pay-Fixation Rules
-https://www.verdictum.in/supreme-court/apex-court-refuses-to-entertain-plea-of-army-veterans-challenging-validity-of-current-pay-fixation-rules-1612204
-
-[Source Link](https://t.me/verdictumlegalupdates/26556)
-
----
-
-### 2026-04-16T11:13:12+00:00
-Not A Plea For Privilege But Dignity & Fairness: Karnataka High Court Directs Strict Implementation Of Menstrual Leave Policy Across All Sectors
-https://www.verdictum.in/karnataka-high-court/chandravva-hanamant-gokavi-v-state-of-karnataka-writ-petition-no-109734-of-2025-menstrual-leave-policy-across-all-sectors-1612203
-
-[Source Link](https://t.me/verdictumlegalupdates/26555)
-
----
-
-### 2026-04-16T10:33:01+00:00
-Creditworthy Deposition Of Hostile Witness Can Be Looked At: Supreme Court Restores Conviction In Corruption Case
-https://www.verdictum.in/court-updates/supreme-court/the-state-of-kerala-v-ka-abdul-rasheed-2026-insc-365-creditworthy-deposition-hostile-witness-1612199
-
-[Source Link](https://t.me/verdictumlegalupdates/26554)
-
----
-
-### 2026-04-16T09:41:20+00:00
-Trust Deficit Exists On Both Sides: Apex Court Declines To Interfere With Large-Scale Transfer Of IAS, IPS Officers In West Bengal
-https://www.verdictum.in/court-updates/supreme-court/west-bengal-eci-large-scale-transfer-ias-ips-officers-1612200
-
-[Source Link](https://t.me/verdictumlegalupdates/26553)
-
----
-
-### 2026-04-16T09:12:38+00:00
-Bank's Failure To Present Cheques Within Validity Period Can Constitute Deficiency In Service Under Consumer Protection Act: Supreme Court
-https://www.verdictum.in/court-updates/supreme-court/canara-bank-v-kavita-chowdhary-2026-insc-363-failure-to-present-cheques-within-validity-period-banks-negligence-1612198
-
-[Source Link](https://t.me/verdictumlegalupdates/26552)
-
----
-
-### 2026-04-16T08:32:37+00:00
-We Only Need Awareness, We Cannot Compel: Supreme Court Refuses To Entertain PIL Seeking Directions To Make Voting Compulsory
-https://www.verdictum.in/court-updates/supreme-court/we-only-need-awareness-we-cannot-compel-supreme-court-refuses-to-entertain-pil-seeking-directions-to-make-voting-compulsory-1612189
-
-[Source Link](https://t.me/verdictumlegalupdates/26551)
 
 ---
 
