@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-16T13:11:15+00:00*
+*Last Updated: 2026-04-16T14:01:22+00:00*
 
 ---
 
-### 2026-04-16T13:11:15+00:00
-Justice SK Sharma's Children Had No Role In Arvind Kejriwal's Case, Never Assisted In Any Proceedings: CBI Tells Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/cbi-oppose-justice-swarna-kanta-recusal-arvind-kejriwal-530567
-
-[Read on Telegram](https://t.me/livelawindia/109061)
-
----
-### 2026-04-16T13:39:35+00:00
-'Dhurandhar' Script Row: Bombay High Court Calls For Settlement Between Parties, Says Defamation Suit Need Not Be Escalated
-https://www.livelaw.in/high-court/bombay-high-court/dhurandhar-script-row-bombay-high-court-calls-for-settlement-between-parties-says-defamation-suit-need-not-be-escalated-530571
-
-[Read on Telegram](https://t.me/livelawindia/109062)
-
----
-### 2026-04-16T13:44:39+00:00
-Family Courts Cannot 'Casually' Pass Orders Directing Spouse To Undergo Medical Exam To Ascertain Mental Health: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/family-courts-cannot-casually-pass-orders-directing-spouse-to-undergo-medical-exam-to-ascertain-mental-health-bombay-high-court-530574
-
-[Read on Telegram](https://t.me/livelawindia/109063)
-
----
 ### 2026-04-16T14:01:22+00:00
 Plea In Madras High Court Seeks Income Tax Probe Into TVK Chief Vijay's Assets Over Alleged Discrepancies In Election Affidavit
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-probe-asset-declaration-inconsistency-tvk-vijay-530575
@@ -142,5 +121,26 @@ https://www.livelaw.in/news-updates/nani-palkhivala-arbitration-centre-partners-
 https://www.livelaw.in/high-court/bombay-high-court/shocking-misconduct-bombay-high-court-directs-bar-council-to-act-against-advocate-for-misleading-court-party-530604
 
 [Read on Telegram](https://t.me/livelawindia/109080)
+
+---
+### 2026-04-17T00:41:10+00:00
+Centre Brings 2023 Women's Reservation Law Into Force From April 16 While Parliament Debates New Amendments
+https://www.livelaw.in/top-stories/centre-brings-2023-womens-reservation-law-into-force-from-april-16-while-parliament-debates-new-amendments-530608
+
+[Read on Telegram](https://t.me/livelawindia/109081)
+
+---
+### 2026-04-17T01:08:10+00:00
+Kerala v. Tamil Nadu: Supreme Court Stays NGT Proceedings Against Kerala's Check Dam Construction In Border Village
+https://www.livelaw.in/top-stories/supreme-court-kerala-tamil-nadu-inter-state-water-dispute-ngt-chennai-proceedings-over-check-dam-under-jal-jeevan-mission-stayed-530607
+
+[Read on Telegram](https://t.me/livelawindia/109082)
+
+---
+### 2026-04-17T03:08:13+00:00
+Low Judge-To-Population Ratio Must Be Fixed To Tackle Judicial Delays: : Justice AS Oka
+https://www.livelaw.in/top-stories/low-judge-to-population-ratio-must-be-fixed-to-tackle-judicial-delays-justice-as-oka-530591
+
+[Read on Telegram](https://t.me/livelawindia/109083)
 
 ---
