@@ -1,107 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-17T11:20:22+00:00*
+*Last Updated: 2026-04-17T14:32:22+00:00*
 
 ---
 
-### 2026-04-17T11:20:22+00:00
-2026 LiveLaw (SC) 385  | MARIA MARTINS VERSUS NOEL ZUZARTE AND OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-385-maria-martins-versus-noel-zuzarte-and-others-530708
-
-[Read on Telegram](https://t.me/livelawindia/109130)
-
----
-### 2026-04-17T11:37:26+00:00
-2026 LiveLaw (SC) 386 |  IN RE: ILLEGAL SAND MINING IN THE NATIONAL CHAMBAL SANCTUARY AND THREAT TO ENDANGERED AQUATIC WILDLIFE Versus
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-386-in-re-illegal-sand-mining-in-the-national-chambal-sanctuary-and-threat-to-endangered-aquatic-wildlife-versus-530711
-
-[Read on Telegram](https://t.me/livelawindia/109131)
-
----
-### 2026-04-17T11:39:06+00:00
-BJP's Yogesh Goudar Murder| Congress MLA Vinay Kulkarni & 15 Others Sentenced To Life Imprisonment By Bengaluru Court
-https://www.livelaw.in/news-updates/bjps-yogesh-goudar-murder-congress-mla-vinay-kulkarni-15-others-sentenced-to-life-imprisonment-by-bengaluru-court-530713
-
-[Read on Telegram](https://t.me/livelawindia/109132)
-
----
-### 2026-04-17T11:41:46+00:00
-Delhi Court Seeks ED's Response On Jacqueline Fernandez's Plea To Turn Approver In Rs. 200 Crore Money Laundering Case
-https://www.livelaw.in/news-updates/delhi-court-seeks-eds-response-on-jacqueline-fernandezs-plea-to-turn-approver-in-rs-200-crore-money-laundering-case-530715
-
-[Read on Telegram](https://t.me/livelawindia/109133)
-
----
-### 2026-04-17T11:47:46+00:00
-'Deplorable': Allahabad High Court On Detention Order Passed After 10 Months Of Arrest, Without Application Of Mind
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-detention-order-passed-after-10-months-of-arrest-without-application-of-mind-530678
-
-[Read on Telegram](https://t.me/livelawindia/109134)
-
----
-### 2026-04-17T11:51:26+00:00
-Bombay High Court Quashes FIR Against COVID "Infected" Doctor Booked For Not Getting Admitted In Quarantine Centre
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-quashes-fir-against-covid-infected-doctor-booked-for-not-getting-admitted-in-quarantine-centre-530721
-
-[Read on Telegram](https://t.me/livelawindia/109135)
-
----
-### 2026-04-17T12:01:16+00:00
-Allahabad High Court Orders FIR Against LoP Rahul Gandhi Over British Citizenship Row
-https://www.livelaw.in/top-stories/allahabad-high-court-fir-against-lop-rahul-gandhi-british-citizenship-row-530723
-
-[Read on Telegram](https://t.me/livelawindia/109136)
-
----
-### 2026-04-17T12:03:56+00:00
-Reform Before Uniformity: Case For Repairing Personal Laws Rather Than Replacing Them
-https://www.livelaw.in/articles/uniform-civil-code-and-personal-law-reforms-analysis-530725
-
-[Read on Telegram](https://t.me/livelawindia/109137)
-
----
-### 2026-04-17T12:06:56+00:00
-Delhi High Court Issues Notice On Plea Challenging 'Exorbitant' Filing Fees Before NGT
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-issues-notice-on-plea-challenging-exorbitant-filing-fees-before-ngt-530727
-
-[Read on Telegram](https://t.me/livelawindia/109138)
-
----
-### 2026-04-17T12:10:16+00:00
-Husband's Girlfriend Does Not Fall Within Definition Of 'Relative' U/S 498A IPC; Cannot Be Prosecuted For Cruelty: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-girl-friend-or-concubine-does-not-fall-within-definition-of-relative-under-section-498-a-ipc-cannot-be-prosecuted-for-cruelty-court-quashes-fir-530728
-
-[Read on Telegram](https://t.me/livelawindia/109139)
-
----
-### 2026-04-17T12:18:16+00:00
-Rajasthan High Court Upholds Reinstatement Despite Alleged Illegal Appointment, Cites Violation Of Industrial Disputes Act Procedure
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-upholds-reinstatement-alleged-illegal-appointment-530606
-
-[Read on Telegram](https://t.me/livelawindia/109140)
-
----
-### 2026-04-17T13:25:11+00:00
-Bombay High Court Protects Personality Rights Of Kartik Aryan, Directs Take Down Of AI-Generated & Disparaging Content
-https://www.livelaw.in/high-court/bombay-high-court/prima-facie-disparaging-content-diminishes-his-brand-value-bombay-high-court-protects-personality-rights-of-kartik-aryan-530733
-
-[Read on Telegram](https://t.me/livelawindia/109141)
-
----
-### 2026-04-17T14:17:22+00:00
-BREAKING | Lok Sabha Rejects Constitution (131st) Amendment Bill 2026 On Delimitation
-https://www.livelaw.in/top-stories/lok-sabha-rejects-constitution-131st-bill-2026-on-delimitation-530736
-
-[Read on Telegram](https://t.me/livelawindia/109142)
-
----
-### 2026-04-17T14:28:02+00:00
-Madras High Court Dismisses Janata Party's Plea Challenging Use Of Deceptively Similar Symbol By Naam Tamilar Katchi Party
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-janata-party-deceptively-similar-symbol-ntk-plea-dismissed-530738
-
-[Read on Telegram](https://t.me/livelawindia/109143)
-
----
 ### 2026-04-17T14:32:22+00:00
 Death Of "Paper Shield": Re-Evaluating CA Certificates In Indian Construction Arbitration
 https://www.livelaw.in/articles/reevaluating-ca-certificates-indian-construction-arbitration-530709
@@ -142,5 +44,103 @@ Draft Petitions Personally, Don't Outsource To AI: CJI Surya Kant To New AoRs
 https://www.livelaw.in/top-stories/draft-petitions-personally-dont-outsource-to-ai-cji-surya-kant-to-new-aors-530753
 
 [Read on Telegram](https://t.me/livelawindia/109149)
+
+---
+### 2026-04-18T03:27:57+00:00
+Supreme Court Daily Round-Up : April 17, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-17-2026-530749
+
+[Read on Telegram](https://t.me/livelawindia/109150)
+
+---
+### 2026-04-18T03:32:18+00:00
+'Prolonged Litigation Aggravates Bitterness': Orissa High Court Quashes Criminal Case Against In-Laws After Settlement
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-quashes-criminal-case-inlaws-basing-upon-settlement-530487
+
+[Read on Telegram](https://t.me/livelawindia/109151)
+
+---
+### 2026-04-18T04:12:47+00:00
+J&K&L High Court Collegium Recommends 11 Names For Appointment As Judges
+https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-collegium-recommends-11-names-for-appointment-as-judges-in-historic-single-exercise-530755
+
+[Read on Telegram](https://t.me/livelawindia/109152)
+
+---
+### 2026-04-18T04:32:27+00:00
+Cheating And Criminal Breach Of Trust: Can Both Be Invoked Together?
+https://www.livelaw.in/articles/cheating-criminal-breach-of-trust-invoked-together-530756
+
+[Read on Telegram](https://t.me/livelawindia/109153)
+
+---
+### 2026-04-18T04:32:47+00:00
+Rajasthan High Court Quarterly Digest: January - March, 2026
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-quarterly-digest2026-530294
+
+[Read on Telegram](https://t.me/livelawindia/109154)
+
+---
+### 2026-04-18T04:57:37+00:00
+Supreme Court To Examine Validity Of Gangster Acts & Laws Against Organised Crimes
+https://www.livelaw.in/top-stories/supreme-court-pleas-challenging-vires-up-gangster-act-rules-similar-laws-on-organized-crime-placed-before-3-judge-bench-530661
+
+[Read on Telegram](https://t.me/livelawindia/109155)
+
+---
+### 2026-04-18T05:02:26+00:00
+Accused Must Disclose Being Abroad In Pre-Arrest Bail Plea; Concealment Alone Ground To Deny Relief: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-prearrest-bail-accused-abroad-duty-disclose-530760
+
+[Read on Telegram](https://t.me/livelawindia/109156)
+
+---
+### 2026-04-18T05:38:09+00:00
+Duty To Maintain Spouse Primary; Loan Repayments For Asset Creation No Ground To Reduce Maintenance Liability: Supreme Court
+https://www.livelaw.in/supreme-court/duty-to-maintain-spouse-primary-loan-repayments-for-asset-creation-no-ground-to-reduce-maintenance-liability-supreme-court-530717
+
+[Read on Telegram](https://t.me/livelawindia/109157)
+
+---
+### 2026-04-18T05:57:39+00:00
+2026 LiveLaw (SC) 387 | Deepa Joshi v Gaurav Joshi
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-387-deepa-joshi-v-gaurav-joshi-530720
+
+[Read on Telegram](https://t.me/livelawindia/109158)
+
+---
+### 2026-04-18T06:02:59+00:00
+Bombay High Court Seeks Centre's Response On PIL Seeking Inclusion Of SSPE In Rare Diseases Policy
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-seeks-centres-response-on-pil-seeking-inclusion-of-sspe-in-rare-diseases-policy-530762
+
+[Read on Telegram](https://t.me/livelawindia/109159)
+
+---
+### 2026-04-18T06:17:39+00:00
+Constitution Demands That We Dismantle Structures That Produce Inequality: Ex-CJI BR Gavai
+https://www.livelaw.in/top-stories/constitution-demands-that-we-dismantle-structures-that-produce-inequality-ex-cji-br-gavai-530687
+
+[Read on Telegram](https://t.me/livelawindia/109160)
+
+---
+### 2026-04-18T06:32:39+00:00
+Parents Can't Invoke Habeas Corpus Against Adult Daughters' Choice To Lead Life Of Celibacy: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-habeas-corpus-parent-disgruntled-adult-child-decision-530763
+
+[Read on Telegram](https://t.me/livelawindia/109161)
+
+---
+### 2026-04-18T07:02:53+00:00
+Section 311 CrPC | Court Can Summon Material Witness Even If Prosecution Doesn't: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-accused-summon-material-witness-section311-crpc-530764
+
+[Read on Telegram](https://t.me/livelawindia/109162)
+
+---
+### 2026-04-18T07:12:53+00:00
+Deputy Chief Legal Aid Defense Counsel Vacancy At Gujarat State Legal Services Authority, Ahmedabad [Apply Now]
+https://www.livelaw.in/job-updates/deputy-chief-legal-aid-defense-counsel-vacancy-at-gujarat-state-legal-services-authority-ahmedabad-530783
+
+[Read on Telegram](https://t.me/livelawindia/109163)
 
 ---
