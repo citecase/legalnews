@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-17T11:19:02+00:00*
+*Last Updated: 2026-04-17T11:20:22+00:00*
 
 ---
 
-### 2026-04-17T11:19:02+00:00
-Landlord's Bona Fide Need To Be Assessed As On Date Of Eviction Petition Unless Subsequent Events Cause Material Change : Supreme Court
-https://www.livelaw.in/supreme-court/landlords-bona-fide-need-to-be-assessed-as-on-date-of-eviction-petition-unless-subsequent-events-cause-material-change-supreme-court-530707
-
-[Read on Telegram](https://t.me/livelawindia/109129)
-
----
 ### 2026-04-17T11:20:22+00:00
 2026 LiveLaw (SC) 385  | MARIA MARTINS VERSUS NOEL ZUZARTE AND OTHERS
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-385-maria-martins-versus-noel-zuzarte-and-others-530708
@@ -142,5 +135,12 @@ Supreme Court Approves Environment Compensation Charge Hike For Commercial Vehic
 https://www.livelaw.in/supreme-court/supreme-court-approves-environment-compensation-charge-hike-for-commercial-vehicles-entering-delhi-mandates-5-annual-increase-530748
 
 [Read on Telegram](https://t.me/livelawindia/109148)
+
+---
+### 2026-04-18T01:44:36+00:00
+Draft Petitions Personally, Don't Outsource To AI: CJI Surya Kant To New AoRs
+https://www.livelaw.in/top-stories/draft-petitions-personally-dont-outsource-to-ai-cji-surya-kant-to-new-aors-530753
+
+[Read on Telegram](https://t.me/livelawindia/109149)
 
 ---
