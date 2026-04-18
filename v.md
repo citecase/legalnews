@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-18T13:33:05+00:00*
+*Last Updated: 2026-04-18T15:02:28+00:00*
+
+---
+
+### 2026-04-18T15:02:28+00:00
+District Legal Services Authority Sirmaur (DLSA Sirmaur) Invites Applications For The Post Of Deputy Chief & Assistant Legal Aid Defense Counsel
+https://www.verdictum.in/job-updates/district-legal-services-authority-1612350
+
+[Source Link](https://t.me/verdictumlegalupdates/26595)
+
+---
+
+### 2026-04-18T14:12:46+00:00
+Safety Of Commuter Constitutional Obligation Of State Under Article 21: Supreme Court Issues Interim Directions To NHAI, MoRTH Following Phalodi Accident
+https://www.verdictum.in/supreme-court/in-re-phalodi-accident-v-national-highways-authority-of-india-2026-insc-388-safety-commuter-article-21-morth-1612354
+
+[Source Link](https://t.me/verdictumlegalupdates/26594)
 
 ---
 
@@ -145,22 +161,6 @@ Illicit Relationship Alone Not Sufficient To Establish Abetment Of Suicide In Ab
 https://www.verdictum.in/supreme-court/balaji-jaiswal-v-state-of-chhattisgarh-anr-2026-insc-375-suicide-abetment-1612279
 
 [Source Link](https://t.me/verdictumlegalupdates/26576)
-
----
-
-### 2026-04-17T11:23:13+00:00
-Essential Religious Practice Test Must Be Replaced With Threshold Test; Constitutional Morality Will Homogenise Religious Practices: Senior Advocate Rajeev Dhavan Argues In Sabarimala Reference
-https://www.verdictum.in/supreme-court/sabarimala-reference-senior-advocate-rajeev-dhavan-constitutional-morality-essential-religious-practice-1612277
-
-[Source Link](https://t.me/verdictumlegalupdates/26575)
-
----
-
-### 2026-04-17T10:42:42+00:00
-Supreme Court Grants Anticipatory Bail To Businessman In Case Involving Allegations Of Sexual Assault And ₹30 Crore Extortion Dispute
-https://www.verdictum.in/supreme-court/venu-gopalakrishnan-v-state-of-kerala-anr-2026-insc-373-sexual-assault-1612273
-
-[Source Link](https://t.me/verdictumlegalupdates/26574)
 
 ---
 
