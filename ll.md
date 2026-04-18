@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-17T14:32:22+00:00*
+*Last Updated: 2026-04-18T09:33:08+00:00*
 
 ---
 
-### 2026-04-17T14:32:22+00:00
-Death Of "Paper Shield": Re-Evaluating CA Certificates In Indian Construction Arbitration
-https://www.livelaw.in/articles/reevaluating-ca-certificates-indian-construction-arbitration-530709
+### 2026-04-18T09:33:08+00:00
+Mere Show Cause Notice Not Enough Before Blacklisting, Must Indicate Grounds And Material: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-show-cause-notice-blacklisting-grounds-purported-blacklisting-530775
 
-[Read on Telegram](https://t.me/livelawindia/109144)
-
----
-### 2026-04-17T14:38:22+00:00
-Clause Saying 'Can Be Settled By Arbitration' Does Not Create Mandate To Arbitrate : Supreme Court
-https://www.livelaw.in/supreme-court/clause-saying-can-be-settled-by-arbitration-does-not-create-mandate-to-arbitrate-supreme-court-530742
-
-[Read on Telegram](https://t.me/livelawindia/109145)
+[Read on Telegram](https://t.me/livelawindia/109175)
 
 ---
-### 2026-04-17T14:39:42+00:00
-2026 LiveLaw (SC) 388 | NAGREEKA INDCON PRODUCTS PVT. LTD. VERSUS CARGOCARE LOGISTICS (INDIA) PVT. LTD
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-388-nagreeka-indcon-products-pvt-ltd-versus-cargocare-logistics-india-pvt-ltd-530743
+### 2026-04-18T09:38:38+00:00
+Judicial Pendency: Accountability—Or Misattribution? [Part I]
+https://www.livelaw.in/articles/judicial-pendency-accountability-misattribution-530811
 
-[Read on Telegram](https://t.me/livelawindia/109146)
-
----
-### 2026-04-17T14:48:22+00:00
-WB Polls: Calcutta HC Quashes Appointment Of College Teachers As Presiding Officers, Pulls Up ECI For Failure To Justify Decision
-https://www.livelaw.in/high-court/calcutta-high-court/wb-polls-calcutta-hc-quashes-appointment-of-college-teachers-as-presiding-officers-pulls-up-eci-for-failure-to-justify-decision-530746
-
-[Read on Telegram](https://t.me/livelawindia/109147)
+[Read on Telegram](https://t.me/livelawindia/109176)
 
 ---
-### 2026-04-17T15:40:52+00:00
-Supreme Court Approves Environment Compensation Charge Hike For Commercial Vehicles Entering Delhi, Mandates 5% Annual Increase
-https://www.livelaw.in/supreme-court/supreme-court-approves-environment-compensation-charge-hike-for-commercial-vehicles-entering-delhi-mandates-5-annual-increase-530748
+### 2026-04-18T09:38:58+00:00
+National Seminar On Gender Justice And Social Transformation, Organised by  Department Of Law, Tezpur University, on 15–16 May 2026 (Hybrid Mode)
+https://www.livelaw.in/lawschool/seminars/national-seminar-on-gender-justice-and-social-transformation-organised-by-the-department-of-law-tezpur-university-on-1516-may-2026-hybrid-mode-530813
 
-[Read on Telegram](https://t.me/livelawindia/109148)
-
----
-### 2026-04-18T01:44:36+00:00
-Draft Petitions Personally, Don't Outsource To AI: CJI Surya Kant To New AoRs
-https://www.livelaw.in/top-stories/draft-petitions-personally-dont-outsource-to-ai-cji-surya-kant-to-new-aors-530753
-
-[Read on Telegram](https://t.me/livelawindia/109149)
+[Read on Telegram](https://t.me/livelawindia/109177)
 
 ---
-### 2026-04-18T03:27:57+00:00
-Supreme Court Daily Round-Up : April 17, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-17-2026-530749
+### 2026-04-18T09:39:08+00:00
+Judicial Pendency: Accountability—Or Misattribution? [Part II]
+https://www.livelaw.in/articles/judicial-pendency-accountability-misattribution-530812
 
-[Read on Telegram](https://t.me/livelawindia/109150)
-
----
-### 2026-04-18T03:32:18+00:00
-'Prolonged Litigation Aggravates Bitterness': Orissa High Court Quashes Criminal Case Against In-Laws After Settlement
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-quashes-criminal-case-inlaws-basing-upon-settlement-530487
-
-[Read on Telegram](https://t.me/livelawindia/109151)
+[Read on Telegram](https://t.me/livelawindia/109178)
 
 ---
-### 2026-04-18T04:12:47+00:00
-J&K&L High Court Collegium Recommends 11 Names For Appointment As Judges
-https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-collegium-recommends-11-names-for-appointment-as-judges-in-historic-single-exercise-530755
+### 2026-04-18T09:46:08+00:00
+Sabarimala Reference | Correct Test Is If Religious Belief Is Bona Fide, Not If It's Essential : Rajeev Dhavan To Supreme Court
+https://www.livelaw.in/top-stories/sabarimala-reference-correct-test-is-if-religious-belief-is-bona-fide-not-if-its-essential-rajeev-dhavan-to-supreme-court-530815
 
-[Read on Telegram](https://t.me/livelawindia/109152)
-
----
-### 2026-04-18T04:32:27+00:00
-Cheating And Criminal Breach Of Trust: Can Both Be Invoked Together?
-https://www.livelaw.in/articles/cheating-criminal-breach-of-trust-invoked-together-530756
-
-[Read on Telegram](https://t.me/livelawindia/109153)
+[Read on Telegram](https://t.me/livelawindia/109179)
 
 ---
-### 2026-04-18T04:32:47+00:00
-Rajasthan High Court Quarterly Digest: January - March, 2026
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-quarterly-digest2026-530294
+### 2026-04-18T10:02:48+00:00
+Telangana High Court Holds HYDRAA Commissioner Guilty Of Contempt For Putting Permanent Structures On Disputed Land Despite Court Order
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-hydraa-commissioner-guilty-altering-disputed-land-530776
 
-[Read on Telegram](https://t.me/livelawindia/109154)
-
----
-### 2026-04-18T04:57:37+00:00
-Supreme Court To Examine Validity Of Gangster Acts & Laws Against Organised Crimes
-https://www.livelaw.in/top-stories/supreme-court-pleas-challenging-vires-up-gangster-act-rules-similar-laws-on-organized-crime-placed-before-3-judge-bench-530661
-
-[Read on Telegram](https://t.me/livelawindia/109155)
+[Read on Telegram](https://t.me/livelawindia/109180)
 
 ---
-### 2026-04-18T05:02:26+00:00
-Accused Must Disclose Being Abroad In Pre-Arrest Bail Plea; Concealment Alone Ground To Deny Relief: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-prearrest-bail-accused-abroad-duty-disclose-530760
+### 2026-04-18T10:25:48+00:00
+Registrar Has Jurisdiction Over Removal Of Secretary Of Co op Society Being Statutory Officer  : Gauhati HC
+https://www.livelaw.in/high-court/gauhati-high-court/registrar-has-jurisdiction-over-removal-of-secretary-of-co-op-society-being-statutory-officer-gauhati-hc-530818
 
-[Read on Telegram](https://t.me/livelawindia/109156)
-
----
-### 2026-04-18T05:38:09+00:00
-Duty To Maintain Spouse Primary; Loan Repayments For Asset Creation No Ground To Reduce Maintenance Liability: Supreme Court
-https://www.livelaw.in/supreme-court/duty-to-maintain-spouse-primary-loan-repayments-for-asset-creation-no-ground-to-reduce-maintenance-liability-supreme-court-530717
-
-[Read on Telegram](https://t.me/livelawindia/109157)
+[Read on Telegram](https://t.me/livelawindia/109181)
 
 ---
-### 2026-04-18T05:57:39+00:00
-2026 LiveLaw (SC) 387 | Deepa Joshi v Gaurav Joshi
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-387-deepa-joshi-v-gaurav-joshi-530720
+### 2026-04-18T10:32:38+00:00
+Termination Without Enquiry, Followed By Post-Facto Revocation 'Unknown To Law': Rajasthan High Court Slaps Costs On State
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-termination-without-enquiry-530777
 
-[Read on Telegram](https://t.me/livelawindia/109158)
-
----
-### 2026-04-18T06:02:59+00:00
-Bombay High Court Seeks Centre's Response On PIL Seeking Inclusion Of SSPE In Rare Diseases Policy
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-seeks-centres-response-on-pil-seeking-inclusion-of-sspe-in-rare-diseases-policy-530762
-
-[Read on Telegram](https://t.me/livelawindia/109159)
+[Read on Telegram](https://t.me/livelawindia/109182)
 
 ---
-### 2026-04-18T06:17:39+00:00
-Constitution Demands That We Dismantle Structures That Produce Inequality: Ex-CJI BR Gavai
-https://www.livelaw.in/top-stories/constitution-demands-that-we-dismantle-structures-that-produce-inequality-ex-cji-br-gavai-530687
+### 2026-04-18T10:41:58+00:00
+Judges Who Can't Live Within Their Income & Fall Prey To Greed Must Be Weeded Out : Justice BV Nagarathna
+https://www.livelaw.in/top-stories/judges-who-cant-live-within-their-income-fall-prey-to-greed-must-be-weeded-out-justice-bv-nagarathna-530819
 
-[Read on Telegram](https://t.me/livelawindia/109160)
-
----
-### 2026-04-18T06:32:39+00:00
-Parents Can't Invoke Habeas Corpus Against Adult Daughters' Choice To Lead Life Of Celibacy: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-habeas-corpus-parent-disgruntled-adult-child-decision-530763
-
-[Read on Telegram](https://t.me/livelawindia/109161)
+[Read on Telegram](https://t.me/livelawindia/109183)
 
 ---
-### 2026-04-18T07:02:53+00:00
-Section 311 CrPC | Court Can Summon Material Witness Even If Prosecution Doesn't: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-accused-summon-material-witness-section311-crpc-530764
+### 2026-04-18T10:45:38+00:00
+Sale Of Accused's Property Can't Be Ordered As Bail Condition : Supreme Court
+https://www.livelaw.in/supreme-court/sale-of-accuseds-property-cant-be-ordered-as-bail-condition-supreme-court-530820
 
-[Read on Telegram](https://t.me/livelawindia/109162)
+[Read on Telegram](https://t.me/livelawindia/109184)
 
 ---
-### 2026-04-18T07:12:53+00:00
-Deputy Chief Legal Aid Defense Counsel Vacancy At Gujarat State Legal Services Authority, Ahmedabad [Apply Now]
-https://www.livelaw.in/job-updates/deputy-chief-legal-aid-defense-counsel-vacancy-at-gujarat-state-legal-services-authority-ahmedabad-530783
+### 2026-04-18T10:46:58+00:00
+2026 LiveLaw (SC) 389 | FEROZE BASHA & ANR. VERSUS STATE OF TAMIL NADU
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-389-feroze-basha-anr-versus-state-of-tamil-nadu-530822
 
-[Read on Telegram](https://t.me/livelawindia/109163)
+[Read on Telegram](https://t.me/livelawindia/109185)
+
+---
+### 2026-04-18T11:02:18+00:00
+Murder Not 'Accident' Under CM Farmer's Insurance Scheme: Allahabad High Court Rejects Compensation Claim
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-murder-cutting-grass-mukhymantri-kisan-evam-sarvhit-bima-yojna-530779
+
+[Read on Telegram](https://t.me/livelawindia/109186)
+
+---
+### 2026-04-18T11:30:28+00:00
+'Housing Society Cannot Decide Title' : Bombay High Court Orders Co-operative Society To Grant Membership
+https://www.livelaw.in/high-court/bombay-high-court/housing-society-cannot-decide-title-bombay-high-court-orders-co-operative-society-to-grant-membership-530826
+
+[Read on Telegram](https://t.me/livelawindia/109187)
+
+---
+### 2026-04-18T11:30:38+00:00
+Prospective Accused Need To Be Heard: Allahabad HC Withholds Dictated Order Directing FIR Against Rahul Gandhi
+https://www.livelaw.in/top-stories/allahabad-hc-accused-entitled-heard-withholds-dictated-order-fir-against-rahul-gandhi-530827
+
+[Read on Telegram](https://t.me/livelawindia/109188)
+
+---
+### 2026-04-18T11:32:48+00:00
+Telangana High Court Upholds Removal Of CRPF Personnel For 'Grave Misconduct' Of Contracting Second Marriage Despite Subsistence Of First
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-crpf-personnel-removal-second-marriage-misconduct-530780
+
+[Read on Telegram](https://t.me/livelawindia/109189)
+
+---
+### 2026-04-18T11:43:08+00:00
+Law Researcher Vacancy At Debts Recovery Appellate Tribunal, Delhi
+https://www.livelaw.in/job-updates/law-researcher-vacancy-at-debts-recovery-appellate-tribunal-delhi-530832
+
+[Read on Telegram](https://t.me/livelawindia/109190)
+
+---
+### 2026-04-18T12:02:29+00:00
+Telangana High Court Weekly Round-Up : April 06 – April 12, 2026
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-weekly-roundup2026-530781
+
+[Read on Telegram](https://t.me/livelawindia/109191)
+
+---
+### 2026-04-18T12:32:58+00:00
+Past Crimes Alone Not Ground To Deny Ordinary Leave If Prisoner Eligible Under Rule 397  Of Prison Rules: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-past-crimes-alone-cannot-be-ground-to-deny-leave-530784
+
+[Read on Telegram](https://t.me/livelawindia/109192)
+
+---
+### 2026-04-18T13:02:40+00:00
+Remarriage Of Widow Not Ground To Deny Motor Accident Compensation For Husband's Death: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-widow-compensation-remarriage-deceased-wife-share-530785
+
+[Read on Telegram](https://t.me/livelawindia/109193)
+
+---
+### 2026-04-18T13:12:40+00:00
+Highway Safety | No Parking Of Heavy Vehicles, No Unauthorised Dhabas : Supreme Court Issues Directions
+https://www.livelaw.in/top-stories/supreme-court-in-re-phalodi-accident-suo-motu-interim-directions-safety-of-commuter-integral-facet-of-article-21-right-to-live-with-dignity-530836
+
+[Read on Telegram](https://t.me/livelawindia/109194)
 
 ---
