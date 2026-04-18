@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-18T09:33:08+00:00*
+*Last Updated: 2026-04-18T10:45:38+00:00*
 
 ---
 
-### 2026-04-18T09:33:08+00:00
-Mere Show Cause Notice Not Enough Before Blacklisting, Must Indicate Grounds And Material: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-show-cause-notice-blacklisting-grounds-purported-blacklisting-530775
-
-[Read on Telegram](https://t.me/livelawindia/109175)
-
----
-### 2026-04-18T09:38:38+00:00
-Judicial Pendency: Accountability—Or Misattribution? [Part I]
-https://www.livelaw.in/articles/judicial-pendency-accountability-misattribution-530811
-
-[Read on Telegram](https://t.me/livelawindia/109176)
-
----
-### 2026-04-18T09:38:58+00:00
-National Seminar On Gender Justice And Social Transformation, Organised by  Department Of Law, Tezpur University, on 15–16 May 2026 (Hybrid Mode)
-https://www.livelaw.in/lawschool/seminars/national-seminar-on-gender-justice-and-social-transformation-organised-by-the-department-of-law-tezpur-university-on-1516-may-2026-hybrid-mode-530813
-
-[Read on Telegram](https://t.me/livelawindia/109177)
-
----
-### 2026-04-18T09:39:08+00:00
-Judicial Pendency: Accountability—Or Misattribution? [Part II]
-https://www.livelaw.in/articles/judicial-pendency-accountability-misattribution-530812
-
-[Read on Telegram](https://t.me/livelawindia/109178)
-
----
-### 2026-04-18T09:46:08+00:00
-Sabarimala Reference | Correct Test Is If Religious Belief Is Bona Fide, Not If It's Essential : Rajeev Dhavan To Supreme Court
-https://www.livelaw.in/top-stories/sabarimala-reference-correct-test-is-if-religious-belief-is-bona-fide-not-if-its-essential-rajeev-dhavan-to-supreme-court-530815
-
-[Read on Telegram](https://t.me/livelawindia/109179)
-
----
-### 2026-04-18T10:02:48+00:00
-Telangana High Court Holds HYDRAA Commissioner Guilty Of Contempt For Putting Permanent Structures On Disputed Land Despite Court Order
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-hydraa-commissioner-guilty-altering-disputed-land-530776
-
-[Read on Telegram](https://t.me/livelawindia/109180)
-
----
-### 2026-04-18T10:25:48+00:00
-Registrar Has Jurisdiction Over Removal Of Secretary Of Co op Society Being Statutory Officer  : Gauhati HC
-https://www.livelaw.in/high-court/gauhati-high-court/registrar-has-jurisdiction-over-removal-of-secretary-of-co-op-society-being-statutory-officer-gauhati-hc-530818
-
-[Read on Telegram](https://t.me/livelawindia/109181)
-
----
-### 2026-04-18T10:32:38+00:00
-Termination Without Enquiry, Followed By Post-Facto Revocation 'Unknown To Law': Rajasthan High Court Slaps Costs On State
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-termination-without-enquiry-530777
-
-[Read on Telegram](https://t.me/livelawindia/109182)
-
----
-### 2026-04-18T10:41:58+00:00
-Judges Who Can't Live Within Their Income & Fall Prey To Greed Must Be Weeded Out : Justice BV Nagarathna
-https://www.livelaw.in/top-stories/judges-who-cant-live-within-their-income-fall-prey-to-greed-must-be-weeded-out-justice-bv-nagarathna-530819
-
-[Read on Telegram](https://t.me/livelawindia/109183)
-
----
 ### 2026-04-18T10:45:38+00:00
 Sale Of Accused's Property Can't Be Ordered As Bail Condition : Supreme Court
 https://www.livelaw.in/supreme-court/sale-of-accuseds-property-cant-be-ordered-as-bail-condition-supreme-court-530820
@@ -142,5 +79,68 @@ Highway Safety | No Parking Of Heavy Vehicles, No Unauthorised Dhabas : Supreme 
 https://www.livelaw.in/top-stories/supreme-court-in-re-phalodi-accident-suo-motu-interim-directions-safety-of-commuter-integral-facet-of-article-21-right-to-live-with-dignity-530836
 
 [Read on Telegram](https://t.me/livelawindia/109194)
+
+---
+### 2026-04-18T13:33:04+00:00
+Land Acquisition Act, 1894 | Reference Court Can't Set Aside Collector's Award Or Order Fresh Determination: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-reference-court-set-aside-collector-award-land-acquisition-act1894-530789
+
+[Read on Telegram](https://t.me/livelawindia/109195)
+
+---
+### 2026-04-18T13:43:04+00:00
+Delhi Court Convicts CBI Officials For Assault, Trespass During IRS Officer's 2000 Arrest; Holds Raid Malafide
+https://www.livelaw.in/news-updates/delhi-court-convicts-cbi-officials-for-assault-trespass-during-irs-officers-2000-arrest-holds-raid-malafide-530839
+
+[Read on Telegram](https://t.me/livelawindia/109196)
+
+---
+### 2026-04-18T14:02:54+00:00
+CAPF Personnel Who Crossed 60 Years Age Before Jan 31, 2019 Not Entitled To Enhanced Retirement Benefits: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/capf-personnel-who-crossed-60-years-age-before-jan-31-2019-not-entitled-to-enhanced-retirement-benefits-delhi-high-court-530798
+
+[Read on Telegram](https://t.me/livelawindia/109197)
+
+---
+### 2026-04-18T14:32:54+00:00
+Constitutional Peril Of 'Non-Speaking' Order
+https://www.livelaw.in/articles/constitutional-peril-nonspeaking-order-530825
+
+[Read on Telegram](https://t.me/livelawindia/109198)
+
+---
+### 2026-04-18T15:49:52+00:00
+Ad Hoc Employees Appointed Without Recruitment Advertisements Or Interviews Cannot Be Regularised: Supreme Court
+https://www.livelaw.in/top-stories/ad-hoc-employees-appointed-without-recruitment-advertisements-or-interviews-cannot-be-regularised-supreme-court-530844
+
+[Read on Telegram](https://t.me/livelawindia/109199)
+
+---
+### 2026-04-18T15:51:32+00:00
+2026 LiveLaw (SC) 390 | Madan Singh and Ors. v. State of Haryana and Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-390-madan-singh-and-ors-v-state-of-haryana-and-ors-530845
+
+[Read on Telegram](https://t.me/livelawindia/109200)
+
+---
+### 2026-04-18T15:56:12+00:00
+2026 LiveLaw (SC) 391 | IN RE: PHALODI ACCIDENT Versus
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-391-in-re-phalodi-accident-versus-530846
+
+[Read on Telegram](https://t.me/livelawindia/109201)
+
+---
+### 2026-04-18T18:38:25+00:00
+NHRC Chairperson Justice V. Ramasubramanian Urges Academia To Build Future-Ready IP Jurisprudence At HNLU FDP
+https://www.livelaw.in/lawschool/news/nhrc-chairperson-justice-v-ramasubramanian-urges-academia-to-build-future-ready-ip-jurisprudence-at-hnlu-fdp-530850
+
+[Read on Telegram](https://t.me/livelawindia/109202)
+
+---
+### 2026-04-18T18:54:15+00:00
+[Advertisement] Advanced Certificate Course In Legal Drafting, Court Practice & AI For Lawyers (ALD v7.0)
+https://www.livelaw.in/lawschool/diploma-certificate-courses/advanced-certificate-course-legal-drafting-court-practice-ai-lawyers-530851
+
+[Read on Telegram](https://t.me/livelawindia/109203)
 
 ---
