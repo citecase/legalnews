@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-18T11:02:18+00:00*
+*Last Updated: 2026-04-18T12:32:58+00:00*
 
 ---
 
-### 2026-04-18T11:02:18+00:00
-Murder Not 'Accident' Under CM Farmer's Insurance Scheme: Allahabad High Court Rejects Compensation Claim
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-murder-cutting-grass-mukhymantri-kisan-evam-sarvhit-bima-yojna-530779
-
-[Read on Telegram](https://t.me/livelawindia/109186)
-
----
-### 2026-04-18T11:30:28+00:00
-'Housing Society Cannot Decide Title' : Bombay High Court Orders Co-operative Society To Grant Membership
-https://www.livelaw.in/high-court/bombay-high-court/housing-society-cannot-decide-title-bombay-high-court-orders-co-operative-society-to-grant-membership-530826
-
-[Read on Telegram](https://t.me/livelawindia/109187)
-
----
-### 2026-04-18T11:30:38+00:00
-Prospective Accused Need To Be Heard: Allahabad HC Withholds Dictated Order Directing FIR Against Rahul Gandhi
-https://www.livelaw.in/top-stories/allahabad-hc-accused-entitled-heard-withholds-dictated-order-fir-against-rahul-gandhi-530827
-
-[Read on Telegram](https://t.me/livelawindia/109188)
-
----
-### 2026-04-18T11:32:48+00:00
-Telangana High Court Upholds Removal Of CRPF Personnel For 'Grave Misconduct' Of Contracting Second Marriage Despite Subsistence Of First
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-crpf-personnel-removal-second-marriage-misconduct-530780
-
-[Read on Telegram](https://t.me/livelawindia/109189)
-
----
-### 2026-04-18T11:43:08+00:00
-Law Researcher Vacancy At Debts Recovery Appellate Tribunal, Delhi
-https://www.livelaw.in/job-updates/law-researcher-vacancy-at-debts-recovery-appellate-tribunal-delhi-530832
-
-[Read on Telegram](https://t.me/livelawindia/109190)
-
----
-### 2026-04-18T12:02:29+00:00
-Telangana High Court Weekly Round-Up : April 06 – April 12, 2026
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-weekly-roundup2026-530781
-
-[Read on Telegram](https://t.me/livelawindia/109191)
-
----
 ### 2026-04-18T12:32:58+00:00
 Past Crimes Alone Not Ground To Deny Ordinary Leave If Prisoner Eligible Under Rule 397  Of Prison Rules: Kerala High Court
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-past-crimes-alone-cannot-be-ground-to-deny-leave-530784
@@ -142,5 +100,47 @@ DMK MP Moves Private Bill For Immediate Implementation Of Women's Reservation, S
 https://www.livelaw.in/news-updates/rajya-sabha-wilson-women-reservation-parliament-delimitation-postpone-530853
 
 [Read on Telegram](https://t.me/livelawindia/109205)
+
+---
+### 2026-04-19T04:32:30+00:00
+Kerala High Court Quarterly Digest: January - March, 2026 [Citations: 1 - 180]
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-quarterly-digest-january-march-2026-530792
+
+[Read on Telegram](https://t.me/livelawindia/109206)
+
+---
+### 2026-04-19T04:32:50+00:00
+Bail For Children In Conflict With Law
+https://www.livelaw.in/articles/bail-children-conflict-with-law-530828
+
+[Read on Telegram](https://t.me/livelawindia/109207)
+
+---
+### 2026-04-19T05:32:15+00:00
+Lok Adalats Can Settle Disputes Of Any Pecuniary Value Within Its Territorial Jurisdiction: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-lok-adalat-pecuniary-territorial-jurisdiction-530807
+
+[Read on Telegram](https://t.me/livelawindia/109208)
+
+---
+### 2026-04-19T06:07:25+00:00
+Executing Court Cannot Issue Levy Warrants While S.47 CPC Challenge To Decree Remains Pending: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-executing-court-cannot-issue-levy-warrants-during-pendency-of-section-47-objection-skipping-adjudication-renders-statutory-remedy-illusory-530804
+
+[Read on Telegram](https://t.me/livelawindia/109209)
+
+---
+### 2026-04-19T06:33:25+00:00
+PIL In Allahabad High Court Seeks Ban On 'Dhurandhar 2' For Allegedly Depicting 'R&AW' Plotting Atiq Ahmad's Killing
+https://www.livelaw.in/high-court/allahabad-high-court/pil-allahabad-high-court-ban-dhurandhar-2-raw-plot-atiq-ahmad-killing-530863
+
+[Read on Telegram](https://t.me/livelawindia/109210)
+
+---
+### 2026-04-19T07:09:54+00:00
+Symbiosis Law School, Noida Wins 14th RGNUL National Moot Court Competition, 2026
+https://www.livelaw.in/lawschool/news/symbiosis-law-school-noida-wins-14th-rgnul-national-moot-court-competition-2026-530867
+
+[Read on Telegram](https://t.me/livelawindia/109211)
 
 ---
