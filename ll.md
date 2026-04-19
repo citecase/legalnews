@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-18T12:32:58+00:00*
+*Last Updated: 2026-04-19T03:04:30+00:00*
 
 ---
 
-### 2026-04-18T12:32:58+00:00
-Past Crimes Alone Not Ground To Deny Ordinary Leave If Prisoner Eligible Under Rule 397  Of Prison Rules: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-past-crimes-alone-cannot-be-ground-to-deny-leave-530784
-
-[Read on Telegram](https://t.me/livelawindia/109192)
-
----
-### 2026-04-18T13:02:40+00:00
-Remarriage Of Widow Not Ground To Deny Motor Accident Compensation For Husband's Death: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-widow-compensation-remarriage-deceased-wife-share-530785
-
-[Read on Telegram](https://t.me/livelawindia/109193)
-
----
-### 2026-04-18T13:12:40+00:00
-Highway Safety | No Parking Of Heavy Vehicles, No Unauthorised Dhabas : Supreme Court Issues Directions
-https://www.livelaw.in/top-stories/supreme-court-in-re-phalodi-accident-suo-motu-interim-directions-safety-of-commuter-integral-facet-of-article-21-right-to-live-with-dignity-530836
-
-[Read on Telegram](https://t.me/livelawindia/109194)
-
----
-### 2026-04-18T13:33:04+00:00
-Land Acquisition Act, 1894 | Reference Court Can't Set Aside Collector's Award Or Order Fresh Determination: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-reference-court-set-aside-collector-award-land-acquisition-act1894-530789
-
-[Read on Telegram](https://t.me/livelawindia/109195)
-
----
-### 2026-04-18T13:43:04+00:00
-Delhi Court Convicts CBI Officials For Assault, Trespass During IRS Officer's 2000 Arrest; Holds Raid Malafide
-https://www.livelaw.in/news-updates/delhi-court-convicts-cbi-officials-for-assault-trespass-during-irs-officers-2000-arrest-holds-raid-malafide-530839
-
-[Read on Telegram](https://t.me/livelawindia/109196)
-
----
-### 2026-04-18T14:02:54+00:00
-CAPF Personnel Who Crossed 60 Years Age Before Jan 31, 2019 Not Entitled To Enhanced Retirement Benefits: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/capf-personnel-who-crossed-60-years-age-before-jan-31-2019-not-entitled-to-enhanced-retirement-benefits-delhi-high-court-530798
-
-[Read on Telegram](https://t.me/livelawindia/109197)
-
----
-### 2026-04-18T14:32:54+00:00
-Constitutional Peril Of 'Non-Speaking' Order
-https://www.livelaw.in/articles/constitutional-peril-nonspeaking-order-530825
-
-[Read on Telegram](https://t.me/livelawindia/109198)
-
----
-### 2026-04-18T15:49:52+00:00
-Ad Hoc Employees Appointed Without Recruitment Advertisements Or Interviews Cannot Be Regularised: Supreme Court
-https://www.livelaw.in/top-stories/ad-hoc-employees-appointed-without-recruitment-advertisements-or-interviews-cannot-be-regularised-supreme-court-530844
-
-[Read on Telegram](https://t.me/livelawindia/109199)
-
----
-### 2026-04-18T15:51:32+00:00
-2026 LiveLaw (SC) 390 | Madan Singh and Ors. v. State of Haryana and Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-390-madan-singh-and-ors-v-state-of-haryana-and-ors-530845
-
-[Read on Telegram](https://t.me/livelawindia/109200)
-
----
-### 2026-04-18T15:56:12+00:00
-2026 LiveLaw (SC) 391 | IN RE: PHALODI ACCIDENT Versus
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-391-in-re-phalodi-accident-versus-530846
-
-[Read on Telegram](https://t.me/livelawindia/109201)
-
----
-### 2026-04-18T18:38:25+00:00
-NHRC Chairperson Justice V. Ramasubramanian Urges Academia To Build Future-Ready IP Jurisprudence At HNLU FDP
-https://www.livelaw.in/lawschool/news/nhrc-chairperson-justice-v-ramasubramanian-urges-academia-to-build-future-ready-ip-jurisprudence-at-hnlu-fdp-530850
-
-[Read on Telegram](https://t.me/livelawindia/109202)
-
----
-### 2026-04-18T18:54:15+00:00
-[Advertisement] Advanced Certificate Course In Legal Drafting, Court Practice & AI For Lawyers (ALD v7.0)
-https://www.livelaw.in/lawschool/diploma-certificate-courses/advanced-certificate-course-legal-drafting-court-practice-ai-lawyers-530851
-
-[Read on Telegram](https://t.me/livelawindia/109203)
-
----
-### 2026-04-18T19:22:55+00:00
-NPAC Conference On Insolvency and Bankruptcy Code, 2016: “From Resolution To Resilience: Reimagining India's Corporate Restructuring Landscape”
-https://www.livelaw.in/lawschool/seminars/npac-conference-on-insolvency-bankruptcy-code-resolution-resilience-530852
-
-[Read on Telegram](https://t.me/livelawindia/109204)
-
----
 ### 2026-04-19T03:04:30+00:00
 DMK MP Moves Private Bill For Immediate Implementation Of Women's Reservation, Seeks Postponing Delimitation By 25 Years
 https://www.livelaw.in/news-updates/rajya-sabha-wilson-women-reservation-parliament-delimitation-postpone-530853
@@ -142,5 +51,96 @@ Symbiosis Law School, Noida Wins 14th RGNUL National Moot Court Competition, 202
 https://www.livelaw.in/lawschool/news/symbiosis-law-school-noida-wins-14th-rgnul-national-moot-court-competition-2026-530867
 
 [Read on Telegram](https://t.me/livelawindia/109211)
+
+---
+### 2026-04-19T07:33:45+00:00
+NLUO's Centre For Child Rights Celebrates 11th Foundation Day, Unveils Flagship Journal
+https://www.livelaw.in/lawschool/news/nluos-centre-for-child-rights-celebrates-11th-foundation-day-unveils-flagship-journal-530868
+
+[Read on Telegram](https://t.me/livelawindia/109212)
+
+---
+### 2026-04-19T07:49:25+00:00
+Allahabad HC Directs Basti SP To Remain In Courtroom 'Till Its Rising' For Filing False Affidavit In A Murder Case
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-basti-sp-remain-courtroom-till-rising-incorrect-facts-affidavit-530869
+
+[Read on Telegram](https://t.me/livelawindia/109213)
+
+---
+### 2026-04-19T08:03:25+00:00
+NUSRL Ranchi Announces 3rd Legislative Drafting & Presentation Competition
+https://www.livelaw.in/lawschool/competitions/nusrl-ranchi-announces-3rd-legislative-drafting-presentation-competition-530870
+
+[Read on Telegram](https://t.me/livelawindia/109214)
+
+---
+### 2026-04-19T08:17:55+00:00
+Industries Cannot Use Public Roads Disproportionately For Gain: Jharkhand HC Orders Parking Compliance, Trauma Care Near Steel Plant
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-directs-enforcement-parking-norms-trauma-care-facilities-chaliyama-steel-plant-530805
+
+[Read on Telegram](https://t.me/livelawindia/109215)
+
+---
+### 2026-04-19T08:18:05+00:00
+Dr. Veerappa Moily's 'Bharatiya Nyaya Shastra' Launched At Jindal Global Law School
+https://www.livelaw.in/lawschool/news/dr-veerappa-moilys-bharatiya-nyaya-shastra-launched-at-jindal-global-law-school-530871
+
+[Read on Telegram](https://t.me/livelawindia/109216)
+
+---
+### 2026-04-19T09:04:19+00:00
+Uttarakhand High Court Directs Bank To Pay ₹25 Lakh Insurance To Widow Of Deceased Constable; Says Administrative Lapse Cannot Defeat Claim
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-bank-deny-insurance-cover-530803
+
+[Read on Telegram](https://t.me/livelawindia/109217)
+
+---
+### 2026-04-19T09:14:59+00:00
+Chhattisgarh High Court Refuses Relief To Professor Accused Of Forcing Hindu Students To Offer Namaz At NSS Camp
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-refuses-relief-professor-hindu-students-namaz-university-530873
+
+[Read on Telegram](https://t.me/livelawindia/109218)
+
+---
+### 2026-04-19T09:32:29+00:00
+Notice Of Peril: Why Special Marriage Act's 30-Day Notice Must Fall
+https://www.livelaw.in/articles/special-marriage-act-30day-notice-530830
+
+[Read on Telegram](https://t.me/livelawindia/109219)
+
+---
+### 2026-04-19T10:14:12+00:00
+Justice Sanjeev Sachdeva Inaugurates Court, Mediation And Housing Facilities In Madhya Pradesh
+https://www.livelaw.in/news-updates/justice-sanjeev-sachdeva-inaugurates-court-mediation-and-housing-facilities-madhya-pradesh-530877
+
+[Read on Telegram](https://t.me/livelawindia/109220)
+
+---
+### 2026-04-19T10:25:12+00:00
+No Proof Of Harassment Over Demand For 'Radio': Allahabad High Court Acquits Husband In 1982 Abetment To Suicide Case
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-no-proof-harassment-demand-radio-acquits-husband-abetment-suicide-530878
+
+[Read on Telegram](https://t.me/livelawindia/109221)
+
+---
+### 2026-04-19T10:32:42+00:00
+Madhya Pradesh High Court Quarterly Digest: January to March, 2026
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-quarterly-digest-january-to-march-2026-530793
+
+[Read on Telegram](https://t.me/livelawindia/109222)
+
+---
+### 2026-04-19T11:24:02+00:00
+'District Judiciary Breathes Life Into Law' : CJI Surya Kant Inaugurates Madurai Additional District Court Complex
+https://www.livelaw.in/top-stories/district-judiciary-breathes-life-into-law-cji-surya-kant-inaugurates-madurai-additional-district-court-complex-530879
+
+[Read on Telegram](https://t.me/livelawindia/109223)
+
+---
+### 2026-04-19T11:43:32+00:00
+'Education Now A Business': Madras HC Transfers Probe Into UKG Student's Death In School; Says 'Poor Rarely Get Justice'
+https://www.livelaw.in/high-court/madras-high-court/madras-hc-education-business-transfers-probe-ukg-student-death-school-poor-justice-530880
+
+[Read on Telegram](https://t.me/livelawindia/109224)
 
 ---
