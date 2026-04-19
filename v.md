@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-19T07:32:33+00:00*
+*Last Updated: 2026-04-19T13:32:59+00:00*
+
+---
+
+### 2026-04-19T13:32:59+00:00
+Litigant’s Actual Knowledge Of Demise Makes Advocate's Duty Under Order XXII Rule 10A CPC Inconsequential: Bombay High Court
+https://www.verdictum.in/bombay-high-court/romesh-satyanarayan-sharma-v-swaran-singh-chawla-2026bhc-as17872-litigants-actual-knowledge-of-demise-order-xxii-rule-10a-cpc-1612377
+
+[Source Link](https://t.me/verdictumlegalupdates/26602)
+
+---
+
+### 2026-04-19T12:02:58+00:00
+Proceedings Converted Into Suit U/S 295 Succession Act Retain Limited Probate Scope; Court Can Examine Validity Of Will U/S 71: Kerala High Court
+https://www.verdictum.in/kerala-high-court/p-lakshmikutty-amma-ors-v-vk-indira-anr-indian-succession-act-1612378
+
+[Source Link](https://t.me/verdictumlegalupdates/26601)
+
+---
+
+### 2026-04-19T10:32:16+00:00
+Absence Of Preliminary Assessment U/S 15 JJ Act Bars Treating Juvenile As Adult; Bail Cannot Be Denied On Conjectural Apprehensions: Supreme Court
+https://www.verdictum.in/supreme-court/juvenile-delinquent-v-state-of-up-2026-insc-387-absence-of-preliminary-assessment-us-15-jj-act-bars-juvenile-as-adult-1612375
+
+[Source Link](https://t.me/verdictumlegalupdates/26600)
+
+---
+
+### 2026-04-19T09:02:55+00:00
+State Alone Custodian Of Public Property; Revenue Cannot Initiate Proceedings To Alter Records Without Government Direction: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/state-of-karnataka-v-special-deputy-commissioner-ors-2026khc17876-1612374
+
+[Source Link](https://t.me/verdictumlegalupdates/26599)
 
 ---
 
@@ -129,38 +161,6 @@ Use Of Word ‘Can’ In Arbitration Clause Does Not Constitute Mandatory Agreem
 https://www.verdictum.in/supreme-court/nagreeka-indcon-products-pvt-ltd-v-cargocare-logistics-india-pvt-ltd-2026-insc-384-can-in-arbitration-clause-not-arbitrary-agreement-1612320
 
 [Source Link](https://t.me/verdictumlegalupdates/26583)
-
----
-
-### 2026-04-18T05:12:18+00:00
-FIR Against Wife For ‘Giving Dowry’ Cannot Be Based On Her Own Statement; Proceedings Maintainable Only On Independent Evidence: Supreme Court
-https://www.verdictum.in/supreme-court/rahul-gupta-v-station-house-officer-ors-2026-insc-374-dowry-prohibition-fir-1612315
-
-[Source Link](https://t.me/verdictumlegalupdates/26582)
-
----
-
-### 2026-04-18T04:33:07+00:00
-Right To Sue Circumscribed By Order II Rules 1 & 2 CPC; Defendant Must Prove Identity Of Cause Of Action To Invoke Bar: Supreme Court
-https://www.verdictum.in/supreme-court/s-valliammai-ors-v-s-ramanathan-anr-2026-insc-372-civil-procedure-code-1612307
-
-[Source Link](https://t.me/verdictumlegalupdates/26581)
-
----
-
-### 2026-04-17T15:33:02+00:00
-Allahabad High Court Declines To Quash FIR Against Class XII Girl Students For Alleged Attempted Religious Conversion
-https://www.verdictum.in/allahabad-high-court/aleena-aleena-parveen-anr-v-state-of-uttar-pradesh-ors-2026ahc83206-db-1612293
-
-[Source Link](https://t.me/verdictumlegalupdates/26580)
-
----
-
-### 2026-04-17T14:42:40+00:00
-Husband Didn’t Make Full Disclosure; Attempted To Conceal Actual Income: Delhi High Court Enhances Maintenance Amount
-https://www.verdictum.in/delhi-high-court/a-v-b-2026dhc2819-husband-conceal-actual-income-maintenance-amount-1612285
-
-[Source Link](https://t.me/verdictumlegalupdates/26579)
 
 ---
 
