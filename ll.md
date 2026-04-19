@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-18T10:45:38+00:00*
+*Last Updated: 2026-04-18T11:02:18+00:00*
 
 ---
 
-### 2026-04-18T10:45:38+00:00
-Sale Of Accused's Property Can't Be Ordered As Bail Condition : Supreme Court
-https://www.livelaw.in/supreme-court/sale-of-accuseds-property-cant-be-ordered-as-bail-condition-supreme-court-530820
-
-[Read on Telegram](https://t.me/livelawindia/109184)
-
----
-### 2026-04-18T10:46:58+00:00
-2026 LiveLaw (SC) 389 | FEROZE BASHA & ANR. VERSUS STATE OF TAMIL NADU
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-389-feroze-basha-anr-versus-state-of-tamil-nadu-530822
-
-[Read on Telegram](https://t.me/livelawindia/109185)
-
----
 ### 2026-04-18T11:02:18+00:00
 Murder Not 'Accident' Under CM Farmer's Insurance Scheme: Allahabad High Court Rejects Compensation Claim
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-murder-cutting-grass-mukhymantri-kisan-evam-sarvhit-bima-yojna-530779
@@ -142,5 +128,19 @@ https://www.livelaw.in/lawschool/news/nhrc-chairperson-justice-v-ramasubramanian
 https://www.livelaw.in/lawschool/diploma-certificate-courses/advanced-certificate-course-legal-drafting-court-practice-ai-lawyers-530851
 
 [Read on Telegram](https://t.me/livelawindia/109203)
+
+---
+### 2026-04-18T19:22:55+00:00
+NPAC Conference On Insolvency and Bankruptcy Code, 2016: “From Resolution To Resilience: Reimagining India's Corporate Restructuring Landscape”
+https://www.livelaw.in/lawschool/seminars/npac-conference-on-insolvency-bankruptcy-code-resolution-resilience-530852
+
+[Read on Telegram](https://t.me/livelawindia/109204)
+
+---
+### 2026-04-19T03:04:30+00:00
+DMK MP Moves Private Bill For Immediate Implementation Of Women's Reservation, Seeks Postponing Delimitation By 25 Years
+https://www.livelaw.in/news-updates/rajya-sabha-wilson-women-reservation-parliament-delimitation-postpone-530853
+
+[Read on Telegram](https://t.me/livelawindia/109205)
 
 ---
