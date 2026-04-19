@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-18T15:02:28+00:00*
+*Last Updated: 2026-04-19T07:32:33+00:00*
+
+---
+
+### 2026-04-19T07:32:33+00:00
+Adjudication Of Landlord's Bona Fide Need Should Be Done On Date Of Filing Of Eviction Suit Unless Subsequent Event Changes Ground Of Relief: Supreme Court Reiterates
+https://www.verdictum.in/supreme-court/maria-martins-v-noel-zuzarte-and-others-2026-insc-376-adjudication-bona-fide-need-eviction-suit-1612372
+
+[Source Link](https://t.me/verdictumlegalupdates/26598)
+
+---
+
+### 2026-04-19T06:02:12+00:00
+Court Must Summon Material Witness U/S 311 CrPC If Essential For Decision; Prosecution’s Omission No Ground To Deny Such Opportunity: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/narayan-lal-rebari-ors-v-state-of-rajasthan-2026rj-jd14230-section-311-crpc-1612371
+
+[Source Link](https://t.me/verdictumlegalupdates/26597)
+
+---
+
+### 2026-04-19T04:32:40+00:00
+Material & Grounds Necessitating Blacklisting Must Be Mentioned In Order: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/ms-adeeba-naaz-contractor-v-state-of-up-2026ahc-lko25600-db-show-cause-notice-blacklisting-order-1612358
+
+[Source Link](https://t.me/verdictumlegalupdates/26596)
 
 ---
 
@@ -137,30 +161,6 @@ Husband Didn’t Make Full Disclosure; Attempted To Conceal Actual Income: Delhi
 https://www.verdictum.in/delhi-high-court/a-v-b-2026dhc2819-husband-conceal-actual-income-maintenance-amount-1612285
 
 [Source Link](https://t.me/verdictumlegalupdates/26579)
-
----
-
-### 2026-04-17T13:52:18+00:00
-Supreme Court: Order II Rule 2 CPC Can't Be Invoked For Rejection Of Plaint Under Order VII Rule 11(d) CPC, Requires Evidence
-https://www.verdictum.in/supreme-court/s-valliammai-v-s-ramanathan-2026-insc-372-order-ii-rule-2-cpc-bar-1612284
-
-[Source Link](https://t.me/verdictumlegalupdates/26578)
-
----
-
-### 2026-04-17T13:02:56+00:00
-Uttarakhand High Court Directs District Magistrate To Look Into Retailer's Grievance On Protests Outside Licensed Liquor Shop
-https://www.verdictum.in/uttarakhand-high-court/suresh-chandra-upreti-v-state-of-uttarakhand-2026uhc2708-district-magistrate-protests-licensed-liquor-shop-1612282
-
-[Source Link](https://t.me/verdictumlegalupdates/26577)
-
----
-
-### 2026-04-17T12:12:35+00:00
-Illicit Relationship Alone Not Sufficient To Establish Abetment Of Suicide In Absence Of Mens Rea And Instigation U/S 306 IPC: Supreme Court
-https://www.verdictum.in/supreme-court/balaji-jaiswal-v-state-of-chhattisgarh-anr-2026-insc-375-suicide-abetment-1612279
-
-[Source Link](https://t.me/verdictumlegalupdates/26576)
 
 ---
 
