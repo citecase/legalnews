@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-19T13:32:59+00:00*
+*Last Updated: 2026-04-19T15:02:41+00:00*
+
+---
+
+### 2026-04-19T15:02:41+00:00
+District Legal Services Authority Latur (DLSA Latur) Invites Applications For The Post Of Assistant Legal Aid Defense Counsel
+https://www.verdictum.in/job-updates/district-legal-services-authority-1612351
+
+[Source Link](https://t.me/verdictumlegalupdates/26603)
 
 ---
 
@@ -153,14 +161,6 @@ Regularisation Of Ad Hoc Employees Without Advertisement Or Interview Arbitrary:
 https://www.verdictum.in/supreme-court/madan-singh-v-state-of-haryana-2026-insc-379-regularisation-of-ad-hoc-employees-haryanas-2014-policy-1612324
 
 [Source Link](https://t.me/verdictumlegalupdates/26584)
-
----
-
-### 2026-04-18T06:02:59+00:00
-Use Of Word ‘Can’ In Arbitration Clause Does Not Constitute Mandatory Agreement; Leaves Option Of Recourse To Civil Courts: Supreme Court
-https://www.verdictum.in/supreme-court/nagreeka-indcon-products-pvt-ltd-v-cargocare-logistics-india-pvt-ltd-2026-insc-384-can-in-arbitration-clause-not-arbitrary-agreement-1612320
-
-[Source Link](https://t.me/verdictumlegalupdates/26583)
 
 ---
 
