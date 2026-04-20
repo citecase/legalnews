@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-19T15:02:41+00:00*
+*Last Updated: 2026-04-20T08:12:19+00:00*
+
+---
+
+### 2026-04-20T08:12:19+00:00
+Subsequent Repayment Irrelevant For Offence Of Falsification Of Accounts U/S 477A IPC; Deceitful Withdrawal Sufficient: Kerala High Court
+https://www.verdictum.in/kerala-high-court/benoy-v-state-of-kerala-2026ker31007-falsification-of-accounts-section-477a-ipc-1612448
+
+[Source Link](https://t.me/verdictumlegalupdates/26610)
+
+---
+
+### 2026-04-20T07:32:57+00:00
+Education Once Considered Holy Now Become Lucrative Business: Madras High Court Orders Transfer Of Probe To "Sincere" Officer Into UKG Student’s Death
+https://www.verdictum.in/madras-high-court/v-marisamy-v-the-superintendent-of-police-tirunelveli-crlop-mdno7378-of-2026-transfer-of-probe-sincere-officer-ukg-students-death-1612444
+
+[Source Link](https://t.me/verdictumlegalupdates/26609)
+
+---
+
+### 2026-04-20T06:53:16+00:00
+Allegations Of Harassment Insufficient For Abetment Of Suicide U/S 306 IPC; Requires Proximate Act Of Incitement Or Facilitation: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/rameshwar-prasad-gupta-v-state-of-uttar-pradesh-2026ahc70198-harassment-suicide-1612442
+
+[Source Link](https://t.me/verdictumlegalupdates/26608)
+
+---
+
+### 2026-04-20T06:02:55+00:00
+Denying Benefit To Similarly Situated Employee Violates Article 14: Uttarakhand High Court Asks Bank To Pay ₹25L To Constable’s Widow
+https://www.verdictum.in/uttarakhand-high-court/damyanti-negi-v-state-of-uttarakhand-others-2026uhc2264-benefit-similarly-situated-employee-article-14-1612433
+
+[Source Link](https://t.me/verdictumlegalupdates/26607)
+
+---
+
+### 2026-04-20T05:32:33+00:00
+State Lacks Competence To Prescribe Additional Eligibility For Drug Inspector: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/up-public-service-commission-prayagraj-v-ashish-tyagi-2026ahc-lko24035-db-up-rules-2015-ultra-vires-1612428
+
+[Source Link](https://t.me/verdictumlegalupdates/26606)
+
+---
+
+### 2026-04-20T05:01:52+00:00
+Can’t Claim Indefeasible Right To Appointment Merely On Ground Of Unfilled Vacancies When Candidate Doesn’t Fall Under Cut-Off & Waiting Lists: Delhi High Court
+https://www.verdictum.in/delhi-high-court/smt-jyoti-v-delhi-subordinate-services-selection-board-2026dhc2920-db-indefeasible-right-appointment-vacancies-1612426
+
+[Source Link](https://t.me/verdictumlegalupdates/26605)
+
+---
+
+### 2026-04-20T04:32:21+00:00
+Kerala High Court Directs Regulatory Commission To Consider Mechanism For Disclosure And Settlement Of Electricity Dues At Time Of Property Transfer
+https://www.verdictum.in/kerala-high-court/bipha-drug-laboratories-pvt-ltd-v-kerala-state-electricity-board-ltd-ors-2026ker31812-1612380
+
+[Source Link](https://t.me/verdictumlegalupdates/26604)
 
 ---
 
@@ -105,62 +161,6 @@ Time & Effort Of Mother Cannot Be Monetarily Valued; Primary Obligation Of Child
 https://www.verdictum.in/bombay-high-court/x-v-y-2026bhc-nag5555-primary-obligation-of-childs-expenses-rests-on-father-1612345
 
 [Source Link](https://t.me/verdictumlegalupdates/26591)
-
----
-
-### 2026-04-18T11:12:20+00:00
-Father As Natural Guardian Cannot Be Accused Of Illegal Custody Except When In Violation Of Court Order: Allahabad HC Dismisses Habeas Corpus Plea
-https://www.verdictum.in/allahabad-high-court/anjali-devi-v-state-of-up-2026ahc79268-father-natural-guardian-cannot-be-accused-of-illegal-custody-1612344
-
-[Source Link](https://t.me/verdictumlegalupdates/26590)
-
----
-
-### 2026-04-18T10:33:29+00:00
-"Subordinate Legislation Carries Presumption Of Validity": Karnataka High Court Sets Aside Stay On Excise Rules
-https://www.verdictum.in/karnataka-high-court/state-of-karnataka-anr-v-sri-guruswamy-ors-excise-rules-stay-vacated-1612341
-
-[Source Link](https://t.me/verdictumlegalupdates/26589)
-
----
-
-### 2026-04-18T09:53:07+00:00
-Pre-Cross Examination Recording U/S 313 CrPC Does Not Vitiate Trial Absent Prejudice: Karnataka High Court Upholds NI Act Conviction
-https://www.verdictum.in/karnataka-high-court/gundu-sidray-birje-v-pundalik-gundu-patil-2026khc-d5462-pre-cross-examination-recording-us-313-crpc-1612340
-
-[Source Link](https://t.me/verdictumlegalupdates/26588)
-
----
-
-### 2026-04-18T09:02:46+00:00
-Temple Promotes Mental Well Being: Madras High Court Dismisses Plea For Removal Of Temple From Land Earmarked For Park With ₹1 Lakh Cost
-https://www.verdictum.in/madras-high-court/jesudass-cornelius-v-the-district-collector-temple-in-park-cannot-be-treated-as-encroachment-motivated-petition-1612337
-
-[Source Link](https://t.me/verdictumlegalupdates/26587)
-
----
-
-### 2026-04-18T08:12:44+00:00
-Denial Of Opportunity To Cross-Examine Expert Whose Report Is Relied Upon Vitiates Disciplinary Proceedings: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/sachin-kumar-ors-v-union-of-india-ors-2026ahc81720-disciplinary-proceedings-1612335
-
-[Source Link](https://t.me/verdictumlegalupdates/26586)
-
----
-
-### 2026-04-18T07:32:42+00:00
-No Prohibition On Entertaining Complaint By Wife Against Chartered Accountant For Professional Misconduct: Delhi High Court
-https://www.verdictum.in/delhi-high-court/shekhar-sharma-v-the-institute-of-chartered-accountant-of-india-2026dhc2609-complaint-spouse-professional-misconduct-1612327
-
-[Source Link](https://t.me/verdictumlegalupdates/26585)
-
----
-
-### 2026-04-18T06:53:01+00:00
-Regularisation Of Ad Hoc Employees Without Advertisement Or Interview Arbitrary: Supreme Court Strikes Down Haryana’s 2014 Policy
-https://www.verdictum.in/supreme-court/madan-singh-v-state-of-haryana-2026-insc-379-regularisation-of-ad-hoc-employees-haryanas-2014-policy-1612324
-
-[Source Link](https://t.me/verdictumlegalupdates/26584)
 
 ---
 
