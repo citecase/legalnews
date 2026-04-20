@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-20T06:02:51+00:00*
+*Last Updated: 2026-04-20T10:53:04+00:00*
 
 ---
 
-### 2026-04-20T06:02:51+00:00
-Justice Sharma's Children Have 'Active Professional Ties' With Govt, Raises Conflict Of Interest Concerns: Arvind Kejriwal To Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/arvind-kejriwal-justice-swarana-kanta-sharma-recusal-children-active-professionals-with-govt-cbi-530934
+### 2026-04-20T10:53:04+00:00
+Supreme Court Sets 3 Month Deadline For Trial Of Cleric In UAPA Case Over Alleged Al Qaeda Link
+https://www.livelaw.in/top-stories/supreme-court-directs-timebound-trial-of-cleric-in-uapa-case-over-alleged-al-qaeda-link-530997
 
-[Read on Telegram](https://t.me/livelawindia/109247)
-
----
-### 2026-04-20T06:23:21+00:00
-Family Pensioner Cannot Be Treated As 'Dependent' To Deny Medical Reimbursement: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-family-pensioner-dependent-deny-medical-reimbursement-530887
-
-[Read on Telegram](https://t.me/livelawindia/109248)
+[Read on Telegram](https://t.me/livelawindia/109284)
 
 ---
-### 2026-04-20T06:23:51+00:00
-Shocking That Well Educated People Are Falling Prey To Digital Arrest Scams : CJI Surya Kant
-https://www.livelaw.in/top-stories/shocking-that-well-educated-people-are-falling-prey-to-digital-arrest-scams-cji-surya-kant-530939
+### 2026-04-20T10:53:14+00:00
+Husband Obtaining Divorce Decree From Foreign Court Without Informing Wife Constitutes Cruelty: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-foreign-divorce-without-notice-reconciliation-efforts-cruelty-530987
 
-[Read on Telegram](https://t.me/livelawindia/109249)
-
----
-### 2026-04-20T06:32:31+00:00
-Kerala High Court Weekly Round-Up: April 13 - April 19, 2026
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-weekly-round-up-april-2026-530912
-
-[Read on Telegram](https://t.me/livelawindia/109250)
+[Read on Telegram](https://t.me/livelawindia/109285)
 
 ---
-### 2026-04-20T06:48:21+00:00
-HRA, Other Allowances Forming Part Of Deceased's Income Must Be Included To Calculate Motor Accident Compensation: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-enhances-compensation-terming-deductions-530938
+### 2026-04-20T11:12:54+00:00
+Gujarat High Court Upholds Compensation For Electrocution Death While Repairing TV Antenna, Says Electricity Board Strictly Liable
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-compensation-electrocution-tv-antenna-electric-wire-530991
 
-[Read on Telegram](https://t.me/livelawindia/109251)
-
----
-### 2026-04-20T06:48:52+00:00
-'Supreme Court Mein Entry Band Kar Denge': SC Warns Petitioner For Repeated PILs To Declare Netaji Won Indian Independence
-https://www.livelaw.in/top-stories/sc-warns-petitioner-for-repeated-pils-to-declare-netaji-won-indian-independence-530941
-
-[Read on Telegram](https://t.me/livelawindia/109252)
+[Read on Telegram](https://t.me/livelawindia/109286)
 
 ---
-### 2026-04-20T06:52:11+00:00
-Expired Product Sold Online: Thrissur Commission Holds E-Commerce Platform & Seller Liable, Orders Refund & Compensation
-https://www.livelaw.in/consumer-cases/expired-product-sold-online-thrissur-commission-holds-e-commerce-platform-seller-liable-orders-refund-compensation-530942
+### 2026-04-20T11:22:14+00:00
+'If Nothing To Hide, Entire CCTV Should've Been Produced': NIA Court Orders Probe Against Jail Officials Over Alleged Ill-Treatment Of Inmate
+https://www.livelaw.in/news-updates/kerala-court-orders-probe-into-allegations-of-ill-treatment-in-high-security-prison-531004
 
-[Read on Telegram](https://t.me/livelawindia/109253)
-
----
-### 2026-04-20T07:03:21+00:00
-Kerala High Court Refuses To Lift Ban On Munnar Glass Bridge, But Directs Collector To Revisit Issue
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-munnar-glass-bridge-permit-530943
-
-[Read on Telegram](https://t.me/livelawindia/109254)
+[Read on Telegram](https://t.me/livelawindia/109287)
 
 ---
-### 2026-04-20T07:13:21+00:00
-Madras High Court Reserves Verdict On Plea To Debar AIADMK 's Edappadi Palaniswami From 2026 Assembly Polls Over Alleged Derogatory Speeches
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-palaniswami-debar-election-plea-orders-reserved-530946
+### 2026-04-20T11:32:14+00:00
+GEOX AI Explained: The Future of AI Geolocation and Its Impact on Military Intelligence & Global Investigations
+https://www.livelaw.in/tech-law/geox-ai-explained-future-of-ai-geolocation-military-intelligence-global-investigations-531005
 
-[Read on Telegram](https://t.me/livelawindia/109255)
-
----
-### 2026-04-20T07:23:21+00:00
-Congress Leader Pawan Khera Moves Gauhati High Court Seeking Anticipatory Bail In FIR By Assam CM's Wife Over Passport Row
-https://www.livelaw.in/high-court/gauhati-high-court/pawan-khera-gauhati-high-court-anticipatory-bail-fir-assam-cms-wife-passport-row-530948
-
-[Read on Telegram](https://t.me/livelawindia/109256)
+[Read on Telegram](https://t.me/livelawindia/109288)
 
 ---
-### 2026-04-20T07:33:11+00:00
-Tripura High Court Flags “Grave Procedural Impropriety” By State In Stalling ACP Benefits For HC Staff Approved By CJ
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-cj-decision-staff-service-conditions-action-improper-530889
+### 2026-04-20T11:44:13+00:00
+TCS Nashik Case | Court Denies Interim Anticipatory Bail To Nida Khan
+https://www.livelaw.in/news-updates/tcs-nashik-case-court-denies-interim-anticipatory-bail-to-nida-khan-531008
 
-[Read on Telegram](https://t.me/livelawindia/109257)
-
----
-### 2026-04-20T07:40:11+00:00
-Father Cannot Avoid Duty To Maintain Minor Child Due To Mother's Income Or Personal Liabilities: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-upholds-interim-maintenance-father-maintain-minor-child-530952
-
-[Read on Telegram](https://t.me/livelawindia/109258)
+[Read on Telegram](https://t.me/livelawindia/109289)
 
 ---
-### 2026-04-20T07:44:51+00:00
-Short Breaks In Continuous Service Won't Make Ad Hoc Employee Ineligible For Regularisation: Supreme Court
-https://www.livelaw.in/supreme-court/short-breaks-in-continuous-service-wont-make-ad-hoc-employee-ineligible-for-regularisation-supreme-court-530955
+### 2026-04-20T11:53:33+00:00
+Bombay High Court Rejects PIL Claiming Misuse Of Taxpayers' Money On RSS Chief Mohan Bhagwat's Z  Security
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-dismisses-pil-zplus-security-rss-chief-mohan-bhagwat-531010
 
-[Read on Telegram](https://t.me/livelawindia/109259)
-
----
-### 2026-04-20T07:46:11+00:00
-2026 LiveLaw (SC) 394 |PREM CHAND AND OTHERS VERSUS STATE OF PUNJAB AND ANOTHER
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-394-prem-chand-and-others-versus-state-of-punjab-and-another-530957
-
-[Read on Telegram](https://t.me/livelawindia/109260)
+[Read on Telegram](https://t.me/livelawindia/109290)
 
 ---
-### 2026-04-20T07:47:51+00:00
-Unscientific De-Silting Causing Silt Discharge Into River, Harming Marine Life: HP High Court Imposes ₹12 Lakh Fine On Hydro Project
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-shanan-hydro-project-unscientific-silt-marine-life-530902
+### 2026-04-20T12:03:33+00:00
+Courts This Week| Scheduled Caste status & conversion| AI cases| Ranveer Singh| Ganga-Iftar row
+https://www.livelaw.in/videos/supreme-court-courts-this-week-artificial-intelligence-ganga-iftar-consent-marital-rape-ex-post-facto-environmental-law-indian-army-iaf-indian-navy-news-legal-law-531013
 
-[Read on Telegram](https://t.me/livelawindia/109261)
-
----
-### 2026-04-20T07:57:31+00:00
-Executing Court Cannot Modify Terms Of Compromise Decree On Ground Of Practical Difficulties : Supreme Court
-https://www.livelaw.in/supreme-court/executing-court-cannot-modify-terms-of-compromise-decree-on-ground-of-practical-difficulties-supreme-court-530960
-
-[Read on Telegram](https://t.me/livelawindia/109262)
+[Read on Telegram](https://t.me/livelawindia/109291)
 
 ---
-### 2026-04-20T07:59:31+00:00
-2026 LiveLaw (SC) 395 | MAURICE W. INNIS VERSUS LILY KAZROONI @ LILY ARIF SHAIKH
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-395-maurice-w-innis-versus-lily-kazrooni-lily-arif-shaikh-530962
+### 2026-04-20T12:06:13+00:00
+Courts This Week| Judges Gheraoed| Byju's Insolvency| Trans Rights| Pookie Baba| Delhi Riots
+https://www.livelaw.in/videos/sir-west-bengal-specal-intensive-revision-cji-surya-kant-bjp-byjus-trans-rights-pooki-baba-delhi-riots-531014
 
-[Read on Telegram](https://t.me/livelawindia/109263)
-
----
-### 2026-04-20T08:02:51+00:00
-No Construction In No-Development Zone: Lakshadweep Administration Assures Kerala High Court In PIL Against Kavaratti Resort Project
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-lakshadweep-kavaratti-island-resort-construction-pil-530950
-
-[Read on Telegram](https://t.me/livelawindia/109264)
+[Read on Telegram](https://t.me/livelawindia/109292)
 
 ---
-### 2026-04-20T08:17:11+00:00
-Unregistered Gift-Deed Cannot Form Basis Of Declaration Suit, Registration Mandatory U/S 123 Transfer Of Property Act: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-ruling-gift-deed-unregistered-void-section-123-transfer-of-property-act-registration-mandatory-documents-foundation-of-litigation-530958
+### 2026-04-20T12:07:13+00:00
+Jammu & Kashmir And Ladakh High Court Weekly Round-Up: April 13 - April 19, 2026
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-weekly-roundup-april-13-april-19-2026-530954
 
-[Read on Telegram](https://t.me/livelawindia/109265)
+[Read on Telegram](https://t.me/livelawindia/109293)
 
 ---
-### 2026-04-20T08:17:31+00:00
-Disproportionate Assets: Gujarat High Court Upholds Conviction Of Judicial Officer Whose Wife Received ₹7 Lakh 'Gift' From Non-Relative
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-judicial-officer-disproportionate-assets-case-wife-gift-non-family-member-530951
+### 2026-04-20T12:09:13+00:00
+Courts This Week| Sabarimala| Russia-Ukraine War| WB SIR| Arvind Kejriwal| Trans rights
+https://www.livelaw.in/videos/sabarimala-supreme-court-livelaw-india-news-russia-ukraine-awstika-das-west-bengal-debojeet-das-sir-special-intensive-revision-arvind-kejriwal-trans-rights-delhi-delhi-high-court-531015
 
-[Read on Telegram](https://t.me/livelawindia/109266)
+[Read on Telegram](https://t.me/livelawindia/109294)
+
+---
+### 2026-04-20T12:15:53+00:00
+Supreme Court Seeks BCI's View On SCBA Plea That SC Lawyers Should Get Exclusive Benefit Of Advocates' Welfare Stamps In SC Vakalats
+https://www.livelaw.in/top-stories/supreme-court-seeks-bcis-view-on-scba-plea-that-sc-lawyers-should-get-exclusive-benefit-of-advocates-welfare-stamps-in-sc-vakalats-531017
+
+[Read on Telegram](https://t.me/livelawindia/109295)
+
+---
+### 2026-04-20T12:23:13+00:00
+West Bengal SIR: Supreme Court Asks Appellate Tribunal To Give Out-Of-Turn Hearing For Person Claiming To Possess Aadhaar & Passport
+https://www.livelaw.in/top-stories/supreme-court-west-bengal-sir-appellate-tribunal-requested-to-give-out-of-turn-hearing-to-woman-excluded-from-electoral-roll-531022
+
+[Read on Telegram](https://t.me/livelawindia/109296)
+
+---
+### 2026-04-20T12:41:43+00:00
+Supreme Court Dismisses Umar Khalid's Plea To Review Judgment Denying Bail In Delhi Riots Larger Conspiracy Case
+https://www.livelaw.in/top-stories/supreme-court-dismisses-umar-khalids-plea-to-review-judgment-denying-bail-in-delhi-riots-larger-conspiracy-case-531025
+
+[Read on Telegram](https://t.me/livelawindia/109297)
+
+---
+### 2026-04-20T12:48:03+00:00
+Sikkim High Court Directs State To Consider Sub-Classification Within 'Blindness & Low-Vision Disability' Quota In Public Employment
+https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-public-employment-disability-quota-blindness-low-vision-candidate-531018
+
+[Read on Telegram](https://t.me/livelawindia/109298)
+
+---
+### 2026-04-20T12:56:04+00:00
+RGNUL Hosts International Conference On Expanding Horizons Of Human Rights In The Age Of Globalisation
+https://www.livelaw.in/lawschool/news/rgnul-hosts-international-conference-expanding-horizons-human-rights-globalisation-531027
+
+[Read on Telegram](https://t.me/livelawindia/109299)
+
+---
+### 2026-04-20T13:12:33+00:00
+S.294 CrPC Mandatory, Trial Court Cannot Reject Admission Or Denial Of Documents On Ground Of Relevance: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-sec294-crpc-trial-court-reject-application-party-admit-deny-documents-bombay-high-court-530956
+
+[Read on Telegram](https://t.me/livelawindia/109300)
+
+---
+### 2026-04-20T13:13:03+00:00
+Calcutta High Court Monthly Digest: March 2026
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-monthly-digest-march-2026-531030
+
+[Read on Telegram](https://t.me/livelawindia/109301)
+
+---
+### 2026-04-20T13:31:23+00:00
+Ought Not To Get Married If You Can't Maintain Wife, Children: Allahabad HC Rejects Husband's Plea Citing Poor Finances
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-husband-cant-plead-poor-finances-escape-wife-maintenance-531032
+
+[Read on Telegram](https://t.me/livelawindia/109302)
+
+---
+### 2026-04-20T13:33:13+00:00
+DNA Test Cannot Be Ordered Routinely To Prove Adultery; Presumption Of Legitimacy Of Child Must Prevail: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-dna-test-prove-adultery-legitimacy-child-531020
+
+[Read on Telegram](https://t.me/livelawindia/109303)
 
 ---
