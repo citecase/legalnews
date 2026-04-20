@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-20T13:52:39+00:00*
+*Last Updated: 2026-04-20T16:03:03+00:00*
+
+---
+
+### 2026-04-20T16:03:03+00:00
+Summary Judgment Under Order XIII-A CPC Permissible Where Defendant Raises No Credible Or Bona Fide Defence: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/de-converter-india-private-limited-v-la-chemico-pvt-ltd-ors-order-xiii-a-cpc-1612472
+
+[Source Link](https://t.me/verdictumlegalupdates/26620)
+
+---
+
+### 2026-04-20T15:12:22+00:00
+Father Can’t Avoid His Responsibility Of Providing Maintenance For Child Merely Because Mother Is Employed: Uttarakhand High Court
+https://www.verdictum.in/uttarakhand-high-court/a-v-state-of-uttarakhand-another-2026uhc1557-father-maintenance-child-mother-1612469
+
+[Source Link](https://t.me/verdictumlegalupdates/26619)
+
+---
+
+### 2026-04-20T14:32:41+00:00
+Breaking: Justice Swarana Kanta Sharma Refuses To Recuse From Hearing Pleas Against Arvind Kejriwal's Discharge, Says Kejriwal Put Judiciary On Trial
+https://www.verdictum.in/delhi-high-court/arvind-kejriwal-justice-swarana-kanta-sharma-recusal-plea-1612475
+
+[Source Link](https://t.me/verdictumlegalupdates/26618)
 
 ---
 
@@ -137,30 +161,6 @@ Proceedings Converted Into Suit U/S 295 Succession Act Retain Limited Probate Sc
 https://www.verdictum.in/kerala-high-court/p-lakshmikutty-amma-ors-v-vk-indira-anr-indian-succession-act-1612378
 
 [Source Link](https://t.me/verdictumlegalupdates/26601)
-
----
-
-### 2026-04-19T10:32:16+00:00
-Absence Of Preliminary Assessment U/S 15 JJ Act Bars Treating Juvenile As Adult; Bail Cannot Be Denied On Conjectural Apprehensions: Supreme Court
-https://www.verdictum.in/supreme-court/juvenile-delinquent-v-state-of-up-2026-insc-387-absence-of-preliminary-assessment-us-15-jj-act-bars-juvenile-as-adult-1612375
-
-[Source Link](https://t.me/verdictumlegalupdates/26600)
-
----
-
-### 2026-04-19T09:02:55+00:00
-State Alone Custodian Of Public Property; Revenue Cannot Initiate Proceedings To Alter Records Without Government Direction: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/state-of-karnataka-v-special-deputy-commissioner-ors-2026khc17876-1612374
-
-[Source Link](https://t.me/verdictumlegalupdates/26599)
-
----
-
-### 2026-04-19T07:32:33+00:00
-Adjudication Of Landlord's Bona Fide Need Should Be Done On Date Of Filing Of Eviction Suit Unless Subsequent Event Changes Ground Of Relief: Supreme Court Reiterates
-https://www.verdictum.in/supreme-court/maria-martins-v-noel-zuzarte-and-others-2026-insc-376-adjudication-bona-fide-need-eviction-suit-1612372
-
-[Source Link](https://t.me/verdictumlegalupdates/26598)
 
 ---
 
