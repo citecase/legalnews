@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-20T08:12:19+00:00*
+*Last Updated: 2026-04-20T13:52:39+00:00*
+
+---
+
+### 2026-04-20T13:52:39+00:00
+EWS Category Candidates Cannot Claim Age Relaxation Benefits As SC/ST/OBC Candidates In Civil Services Examination: Delhi High Court
+https://www.verdictum.in/delhi-high-court/anish-arun-ors-v-union-of-india-ors-2026dhc3135-db-ews-age-relaxation-1612467
+
+[Source Link](https://t.me/verdictumlegalupdates/26617)
+
+---
+
+### 2026-04-20T13:02:37+00:00
+Supreme Court Asks States To Segregate UAPA & NDPS Trials From Regular Courts, Union To Provide 1 Crore To States For Special Exclusive Courts
+https://www.verdictum.in/supreme-court/states-segregate-uapa-ndps-courts-union-special-exclusive-courts-1612468
+
+[Source Link](https://t.me/verdictumlegalupdates/26616)
+
+---
+
+### 2026-04-20T12:23:16+00:00
+We Can't Have Fishing Inquiry: Supreme Court Says On Allegation Of Addition Of 7 Lacs Voters In WB Using Form 6
+https://www.verdictum.in/supreme-court/we-cant-have-fishing-inquiry-supreme-court-says-on-allegation-of-addition-of-voters-in-wb-using-form-6-1612464
+
+[Source Link](https://t.me/verdictumlegalupdates/26615)
+
+---
+
+### 2026-04-20T11:33:14+00:00
+CAPF Retirement Age Parity Benefits Limited To Personnel Not Crossing 60 Years As On Jan 31, 2019: Delhi High Court
+https://www.verdictum.in/delhi-high-court/charanjit-lal-v-union-of-india-2026dhc3195-db-capf-retirement-age-parity-benefits-1612460
+
+[Source Link](https://t.me/verdictumlegalupdates/26614)
+
+---
+
+### 2026-04-20T10:42:43+00:00
+Oral Testimony Of Victim & Mother Sufficient To Prove Age Under POCSO Act If Minority Not Disputed In Cross-Examination: Kerala High Court
+https://www.verdictum.in/kerala-high-court/joseph-sabu-v-state-of-kerala-2026ker32710-pocso-oral-testimony-cross-examination-1612459
+
+[Source Link](https://t.me/verdictumlegalupdates/26613)
+
+---
+
+### 2026-04-20T09:43:02+00:00
+Kerala High Court Issues Guidelines For Crowd Management During Religious Festival, Traffic Regulation & Post-Event Restoration
+https://www.verdictum.in/kerala-high-court/am-udayan-v-state-of-kerala-ors-neutral-citation-2026ker17163-1612456
+
+[Source Link](https://t.me/verdictumlegalupdates/26612)
+
+---
+
+### 2026-04-20T08:52:21+00:00
+"Incorrigible Petitioner": Supreme Court Dismisses Frivolous PIL Seeking "National Son" Status For Netaji Subhash Chandra Bose
+https://www.verdictum.in/supreme-court/national-son-status-netaji-subhash-chandra-bose-1612453
+
+[Source Link](https://t.me/verdictumlegalupdates/26611)
 
 ---
 
@@ -105,62 +161,6 @@ Adjudication Of Landlord's Bona Fide Need Should Be Done On Date Of Filing Of Ev
 https://www.verdictum.in/supreme-court/maria-martins-v-noel-zuzarte-and-others-2026-insc-376-adjudication-bona-fide-need-eviction-suit-1612372
 
 [Source Link](https://t.me/verdictumlegalupdates/26598)
-
----
-
-### 2026-04-19T06:02:12+00:00
-Court Must Summon Material Witness U/S 311 CrPC If Essential For Decision; Prosecution’s Omission No Ground To Deny Such Opportunity: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/narayan-lal-rebari-ors-v-state-of-rajasthan-2026rj-jd14230-section-311-crpc-1612371
-
-[Source Link](https://t.me/verdictumlegalupdates/26597)
-
----
-
-### 2026-04-19T04:32:40+00:00
-Material & Grounds Necessitating Blacklisting Must Be Mentioned In Order: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/ms-adeeba-naaz-contractor-v-state-of-up-2026ahc-lko25600-db-show-cause-notice-blacklisting-order-1612358
-
-[Source Link](https://t.me/verdictumlegalupdates/26596)
-
----
-
-### 2026-04-18T15:02:28+00:00
-District Legal Services Authority Sirmaur (DLSA Sirmaur) Invites Applications For The Post Of Deputy Chief & Assistant Legal Aid Defense Counsel
-https://www.verdictum.in/job-updates/district-legal-services-authority-1612350
-
-[Source Link](https://t.me/verdictumlegalupdates/26595)
-
----
-
-### 2026-04-18T14:12:46+00:00
-Safety Of Commuter Constitutional Obligation Of State Under Article 21: Supreme Court Issues Interim Directions To NHAI, MoRTH Following Phalodi Accident
-https://www.verdictum.in/supreme-court/in-re-phalodi-accident-v-national-highways-authority-of-india-2026-insc-388-safety-commuter-article-21-morth-1612354
-
-[Source Link](https://t.me/verdictumlegalupdates/26594)
-
----
-
-### 2026-04-18T13:33:05+00:00
-Birth Certificate Issued Under Statutory Provision Cannot Be Doubted On Medical Opinion Unless Cancelled Or Forgery Is Proved: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/vimal-singh-v-union-of-india-2026ahc80210-birth-certificate-statutory-provision-cannot-doubted-medical-opinion-1612353
-
-[Source Link](https://t.me/verdictumlegalupdates/26593)
-
----
-
-### 2026-04-18T12:52:23+00:00
-Loan Repayments Not Expenditure To Reduce Liability To Pay Maintenance To Wife: Supreme Court
-https://www.verdictum.in/supreme-court/abc-v-xyz-2026-insc-370-loan-repayments-asset-creation-liability-maintenance-1612352
-
-[Source Link](https://t.me/verdictumlegalupdates/26592)
-
----
-
-### 2026-04-18T12:03:02+00:00
-Time & Effort Of Mother Cannot Be Monetarily Valued; Primary Obligation Of Child’s Expenses Rests On Father: Bombay High Court
-https://www.verdictum.in/bombay-high-court/x-v-y-2026bhc-nag5555-primary-obligation-of-childs-expenses-rests-on-father-1612345
-
-[Source Link](https://t.me/verdictumlegalupdates/26591)
 
 ---
 
