@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-19T04:32:50+00:00*
+*Last Updated: 2026-04-19T06:07:25+00:00*
 
 ---
 
-### 2026-04-19T04:32:50+00:00
-Bail For Children In Conflict With Law
-https://www.livelaw.in/articles/bail-children-conflict-with-law-530828
-
-[Read on Telegram](https://t.me/livelawindia/109207)
-
----
-### 2026-04-19T05:32:15+00:00
-Lok Adalats Can Settle Disputes Of Any Pecuniary Value Within Its Territorial Jurisdiction: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-lok-adalat-pecuniary-territorial-jurisdiction-530807
-
-[Read on Telegram](https://t.me/livelawindia/109208)
-
----
 ### 2026-04-19T06:07:25+00:00
 Executing Court Cannot Issue Levy Warrants While S.47 CPC Challenge To Decree Remains Pending: J&K&L High Court
 https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-executing-court-cannot-issue-levy-warrants-during-pendency-of-section-47-objection-skipping-adjudication-renders-statutory-remedy-illusory-530804
@@ -142,5 +128,19 @@ Relief For Advocate In 'Illness Slip' Row: Allahabad HC Waives ₹20K Cost, Expu
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-20k-cost-expunges-adverse-remarks-apology-relief-advocate-illness-slip-row-530882
 
 [Read on Telegram](https://t.me/livelawindia/109226)
+
+---
+### 2026-04-20T03:13:48+00:00
+Associate Director Vacancy At Deloitte Touche Tohmatsu India LLP [Delhi; Apply Now]
+https://www.livelaw.in/job-updates/associate-director-vacancy-at-deloitte-touche-tohmatsu-india-llp-530894
+
+[Read on Telegram](https://t.me/livelawindia/109227)
+
+---
+### 2026-04-20T03:23:58+00:00
+Program Associate-II Vacancy At Indian Institute Of Technology, Gandhinagar
+https://www.livelaw.in/job-updates/program-associate-ii-vacancy-at-indian-institute-of-technology-gandhinagar-530895
+
+[Read on Telegram](https://t.me/livelawindia/109228)
 
 ---
