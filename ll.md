@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-21T11:06:04+00:00*
+*Last Updated: 2026-04-21T11:51:35+00:00*
 
 ---
 
-### 2026-04-21T11:06:04+00:00
-Madras High Court Refuses Probe Into TVK Candidate Aadhav Arjuna's Financial Disclosures In Election Affidavit, Says ECI Has Power
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-aadhav-arjuna-financial-disclosure-eci-probe-dismissed-531172
-
-[Read on Telegram](https://t.me/livelawindia/109379)
-
----
-### 2026-04-21T11:11:04+00:00
-'State Acted As Predator': J&K&L High Court Orders Industrial Sheds For Kashmiri Pandit Migrant Without Premium Or Arrears
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-directs-allotment-of-two-industrial-sheds-without-payment-of-arrears-or-premium-to-kashmiri-pandit-who-had-left-kashmir-531175
-
-[Read on Telegram](https://t.me/livelawindia/109380)
-
----
-### 2026-04-21T11:15:04+00:00
-Kerala High Court Appoints Advocate Commissioner To Verify If Lakshadweep Resort Construction Falls In No-Development Zone
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-lakshadweep-administration-resort-kavaratti-island-531178
-
-[Read on Telegram](https://t.me/livelawindia/109381)
-
----
-### 2026-04-21T11:32:44+00:00
-Allahabad High Court Awards ₹28 Lakh Compensation To Man Who Lost Both Arms From Electrocution As A Child In 1997
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-compensation-lost-both-arms-electrocution-531138
-
-[Read on Telegram](https://t.me/livelawindia/109382)
-
----
-### 2026-04-21T11:37:35+00:00
-EPFO Cannot Retain Deposited Amount After Assessment Is Set Aside, Must Pay Interest For Unjust Enrichment: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-unjust-enrichment-interest-delayed-refund-epfo-531173
-
-[Read on Telegram](https://t.me/livelawindia/109383)
-
----
-### 2026-04-21T11:47:15+00:00
-Karnataka High Court Dismisses Congress MLA G Manjunatha's Appeal In False Caste Certificate Case, Says Allegations Are 'Serious'
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-congress-mla-gmanjunatha-appeal-scheduled-caste-531179
-
-[Read on Telegram](https://t.me/livelawindia/109384)
-
----
 ### 2026-04-21T11:51:35+00:00
 Supreme Court Warns To Suspend Bar Associations Failing To Implement 30% Women Representation
 https://www.livelaw.in/top-stories/supreme-court-warns-to-suspend-bar-associations-failing-to-implement-30-women-representation-531181
@@ -142,5 +100,47 @@ Judges Can't Defend Themselves Publicly, Criticism Must Be Responsible Backed By
 https://www.livelaw.in/high-court/delhi-high-court/judges-criticism-must-be-backed-by-cogent-evidence-cant-defend-themselves-publicly-531195
 
 [Read on Telegram](https://t.me/livelawindia/109398)
+
+---
+### 2026-04-21T14:06:45+00:00
+Presence Of Deceased's Relative As Court Staff Or Lawyer Not Ground To Transfer Criminal Trial: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-transfer-petition-presumption-of-influence-531204
+
+[Read on Telegram](https://t.me/livelawindia/109399)
+
+---
+### 2026-04-21T14:33:05+00:00
+Patna High Court Limits Interest On Delayed Salary Arrears To 3 Years Before Filing Of Writ Petition, Modifies Single Judge Order
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-limits-interest-delayed-salary-payment-531171
+
+[Read on Telegram](https://t.me/livelawindia/109400)
+
+---
+### 2026-04-21T15:15:55+00:00
+'Over Generalization': Gauhati HC On PIL Alleging Bengali-Speaking Community Targeted In Assam; Seeks State's Response
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-hc-pil-allege-bengali-speaking-community-targeted-assam-state-response-531211
+
+[Read on Telegram](https://t.me/livelawindia/109401)
+
+---
+### 2026-04-21T15:37:55+00:00
+Investigating Officer Not Bound By FIR; May Alter Offences In Final Chargesheet U/S 173 CrPC Based On Evidence: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-investigating-officer-not-bound-by-fir-may-alter-offences-in-final-charge-sheet-us-173-crpc-based-on-evidence-531176
+
+[Read on Telegram](https://t.me/livelawindia/109402)
+
+---
+### 2026-04-21T16:38:39+00:00
+Chhattisgarh HC Bench Recuses As Judge's Niece Appears As Counsel; Calls CJ's Recusal Norms Circular An 'Interference'
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-hc-recusal-judge-niece-chief-justice-circular-interference-531214
+
+[Read on Telegram](https://t.me/livelawindia/109403)
+
+---
+### 2026-04-21T17:03:39+00:00
+Supreme Court Daily Round-Up : April 21, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-21-2026-531215
+
+[Read on Telegram](https://t.me/livelawindia/109404)
 
 ---
