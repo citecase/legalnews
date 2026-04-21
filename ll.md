@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-20T12:56:04+00:00*
+*Last Updated: 2026-04-20T13:12:33+00:00*
 
 ---
 
-### 2026-04-20T12:56:04+00:00
-RGNUL Hosts International Conference On Expanding Horizons Of Human Rights In The Age Of Globalisation
-https://www.livelaw.in/lawschool/news/rgnul-hosts-international-conference-expanding-horizons-human-rights-globalisation-531027
-
-[Read on Telegram](https://t.me/livelawindia/109299)
-
----
 ### 2026-04-20T13:12:33+00:00
 S.294 CrPC Mandatory, Trial Court Cannot Reject Admission Or Denial Of Documents On Ground Of Relevance: Bombay High Court
 https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-sec294-crpc-trial-court-reject-application-party-admit-deny-documents-bombay-high-court-530956
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : April 20, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-20-2026-531054
 
 [Read on Telegram](https://t.me/livelawindia/109318)
+
+---
+### 2026-04-21T02:26:10+00:00
+Forest Rights Act Recognizes Existing Rights, Supersedes Prior Court Orders: Allahabad HC Grants Relief To Tharu Community
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-forest-rights-act-supersedes-prior-court-orders-tharu-community-531076
+
+[Read on Telegram](https://t.me/livelawindia/109319)
 
 ---
