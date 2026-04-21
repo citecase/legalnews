@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-21T14:12:25+00:00*
+*Last Updated: 2026-04-21T16:02:24+00:00*
+
+---
+
+### 2026-04-21T16:02:24+00:00
+Vacancy District Magistrate Nainital Invites Applications For The Post Of Assistant Prosecuting Officer
+https://www.verdictum.in/job-updates/district-magistrate-nainital-1612537
+
+[Source Link](https://t.me/verdictumlegalupdates/26639)
+
+---
+
+### 2026-04-21T15:32:42+00:00
+CARA Must Pursue Hague Convention Compliance Before Issuing NOC For Inter-Country Adoptions: Delhi High Court
+https://www.verdictum.in/delhi-high-court/gur-kaur-minor-ors-v-union-of-india-anr-2026dhc3264-adoption-1612542
+
+[Source Link](https://t.me/verdictumlegalupdates/26638)
+
+---
+
+### 2026-04-21T14:52:27+00:00
+Allegations Of Corrupt Practice In Election Petition Quasi-Criminal In Nature; Must Be Proved Like Criminal Charge: High Court
+https://www.verdictum.in/madhya-pradesh-high-court/neetu-parmar-v-varshagadekar-ors-2026mphc-jbp26450-municipal-election-petition-1612541
+
+[Source Link](https://t.me/verdictumlegalupdates/26637)
 
 ---
 
@@ -137,30 +161,6 @@ Summary Judgment Under Order XIII-A CPC Permissible Where Defendant Raises No Cr
 https://www.verdictum.in/calcutta-high-court/de-converter-india-private-limited-v-la-chemico-pvt-ltd-ors-order-xiii-a-cpc-1612472
 
 [Source Link](https://t.me/verdictumlegalupdates/26620)
-
----
-
-### 2026-04-20T15:12:22+00:00
-Father Can’t Avoid His Responsibility Of Providing Maintenance For Child Merely Because Mother Is Employed: Uttarakhand High Court
-https://www.verdictum.in/uttarakhand-high-court/a-v-state-of-uttarakhand-another-2026uhc1557-father-maintenance-child-mother-1612469
-
-[Source Link](https://t.me/verdictumlegalupdates/26619)
-
----
-
-### 2026-04-20T14:32:41+00:00
-Breaking: Justice Swarana Kanta Sharma Refuses To Recuse From Hearing Pleas Against Arvind Kejriwal's Discharge, Says Kejriwal Put Judiciary On Trial
-https://www.verdictum.in/delhi-high-court/arvind-kejriwal-justice-swarana-kanta-sharma-recusal-plea-1612475
-
-[Source Link](https://t.me/verdictumlegalupdates/26618)
-
----
-
-### 2026-04-20T13:52:39+00:00
-EWS Category Candidates Cannot Claim Age Relaxation Benefits As SC/ST/OBC Candidates In Civil Services Examination: Delhi High Court
-https://www.verdictum.in/delhi-high-court/anish-arun-ors-v-union-of-india-ors-2026dhc3135-db-ews-age-relaxation-1612467
-
-[Source Link](https://t.me/verdictumlegalupdates/26617)
 
 ---
 
