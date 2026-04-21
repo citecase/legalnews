@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-20T13:12:33+00:00*
+*Last Updated: 2026-04-21T06:18:07+00:00*
 
 ---
 
-### 2026-04-20T13:12:33+00:00
-S.294 CrPC Mandatory, Trial Court Cannot Reject Admission Or Denial Of Documents On Ground Of Relevance: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-sec294-crpc-trial-court-reject-application-party-admit-deny-documents-bombay-high-court-530956
+### 2026-04-21T06:18:07+00:00
+S. 100 CPC | Findings Of Fact, Even If Erroneous, Cannot Be Disturbed In Second Appeal: Supreme Court
+https://www.livelaw.in/supreme-court/s-100-cpc-findings-of-fact-even-if-erroneous-cannot-be-disturbed-in-second-appeal-supreme-court-531109
 
-[Read on Telegram](https://t.me/livelawindia/109300)
-
----
-### 2026-04-20T13:13:03+00:00
-Calcutta High Court Monthly Digest: March 2026
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-monthly-digest-march-2026-531030
-
-[Read on Telegram](https://t.me/livelawindia/109301)
+[Read on Telegram](https://t.me/livelawindia/109343)
 
 ---
-### 2026-04-20T13:31:23+00:00
-Ought Not To Get Married If You Can't Maintain Wife, Children: Allahabad HC Rejects Husband's Plea Citing Poor Finances
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-husband-cant-plead-poor-finances-escape-wife-maintenance-531032
+### 2026-04-21T06:19:27+00:00
+2026 LiveLaw (SC) 402 | RUSSI FISHERIES P. LTD. & ANR. VERSUS BHAVNA SETH & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-402-russi-fisheries-p-ltd-anr-versus-bhavna-seth-ors-531111
 
-[Read on Telegram](https://t.me/livelawindia/109302)
-
----
-### 2026-04-20T13:33:13+00:00
-DNA Test Cannot Be Ordered Routinely To Prove Adultery; Presumption Of Legitimacy Of Child Must Prevail: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-dna-test-prove-adultery-legitimacy-child-531020
-
-[Read on Telegram](https://t.me/livelawindia/109303)
+[Read on Telegram](https://t.me/livelawindia/109344)
 
 ---
-### 2026-04-20T14:05:13+00:00
-Supreme Court Approves Contempt Trial Of Advocate For Making Allegations Against High Court Judge In Press Conference
-https://www.livelaw.in/supreme-court/supreme-court-approves-contempt-trial-of-advocate-for-making-allegations-against-high-court-judge-in-press-conference-531034
+### 2026-04-21T06:23:47+00:00
+WB Polls: PIL Before Calcutta High Court Challenges Voter Roll Deletions, Seeks Clear Appellate Framework Before Polling Begins
+https://www.livelaw.in/high-court/calcutta-high-court/wb-polls-pil-in-calcutta-high-court-against-voter-roll-deletions-seeks-clear-appeal-framework-before-polling-begins-531112
 
-[Read on Telegram](https://t.me/livelawindia/109304)
-
----
-### 2026-04-20T14:06:53+00:00
-2026 LiveLaw (SC) 396 | NILESH C. OJHA VERSUS HIGH COURT OF JUDICATURE AT BOMBAY THROUGH SECRETARY & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-396-nilesh-c-ojha-versus-high-court-of-judicature-at-bombay-through-secretary-ors-531035
-
-[Read on Telegram](https://t.me/livelawindia/109305)
+[Read on Telegram](https://t.me/livelawindia/109345)
 
 ---
-### 2026-04-20T14:25:14+00:00
-Breaking | 'Politician Can't Be Allowed To Judge Judicial Competence' : Justice Swarana Kanta Sharma Rejects Arvind Kejriwal's Recusal Plea
-https://www.livelaw.in/high-court/delhi-high-court/arvind-kejriwal-justice-swarana-kanta-sharma-rejects-recusal-liquor-policy-case-531038
+### 2026-04-21T06:24:47+00:00
+'MARQ' Deceptively Similar To 'MARC': Delhi High Court Upholds Injunction Against Flipkart
+https://www.livelaw.in/law-firms/litigation/marq-deceptively-similar-to-marc-delhi-high-court-upholds-injunction-against-flipkart-531113
 
-[Read on Telegram](https://t.me/livelawindia/109306)
-
----
-### 2026-04-20T14:32:24+00:00
-Section 23(4) Of Arbitration Act; An Arbitrator's Quagmire
-https://www.livelaw.in/articles/section234-arbitration-act-arbitrator-quagmire-530928
-
-[Read on Telegram](https://t.me/livelawindia/109307)
+[Read on Telegram](https://t.me/livelawindia/109346)
 
 ---
-### 2026-04-20T14:49:44+00:00
-'Litigant Can't Dictate How Judge's Children Live': Justice Sharma On Kejriwal Citing Her Children's Appointment As Govt Counsel
-https://www.livelaw.in/high-court/delhi-high-court/justice-swarana-kanta-sharma-arvind-kejriwals-recusal-plea-judges-children-litigant-531046
+### 2026-04-21T06:28:27+00:00
+MP High Court Reinstates Election Of BJP Municipal Council President, Rejects Claim Of 'Unlawful' Votes From Congress Councillors
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-moral-policing-election-tribunal-municipal-council-president-531115
 
-[Read on Telegram](https://t.me/livelawindia/109308)
-
----
-### 2026-04-20T15:05:24+00:00
-Madras High Court Dismisses DMK MP's Plea Seeking Registration Of ED Case Against 9 AIADMK Leaders
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-mp-girirajan-plea-ed-case-nine-aiadmk-leaders-dismissed-531048
-
-[Read on Telegram](https://t.me/livelawindia/109309)
+[Read on Telegram](https://t.me/livelawindia/109347)
 
 ---
-### 2026-04-20T15:16:24+00:00
-Madras High Court Seeks IT-Dept's Reply On Plea Alleging Discrepancies In BJP Leader Tamilisai Soundararajan's Election Affidavit
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tamilisai-soundararajan-asset-declaration-discrepancies-notice-531053
+### 2026-04-21T06:33:07+00:00
+Bombay High Court Weekly Round-Up: April 13 To April 19, 2026
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-weekly-round-up-april-13-to-april-19-2026-531090
 
-[Read on Telegram](https://t.me/livelawindia/109310)
-
----
-### 2026-04-20T15:22:04+00:00
-Divisional Judicial Seminar & Refresher Training On New Criminal Laws Held At Durg District Court
-https://www.livelaw.in/news-updates/divisional-judicial-seminar-refresher-training-on-new-criminal-laws-held-at-durg-district-court-531055
-
-[Read on Telegram](https://t.me/livelawindia/109311)
+[Read on Telegram](https://t.me/livelawindia/109348)
 
 ---
-### 2026-04-20T15:23:44+00:00
-Bombay High Court Asks Centre To Decide Plea For Posthumously Conferring Padma Vibhushan On Olympian Khashaba Jadhav
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-asks-centre-to-decide-plea-for-posthumously-conferring-padma-vibhushan-on-olympian-khashaba-jadhav-531057
+### 2026-04-21T06:38:27+00:00
+WB Polls: PIL In Calcutta High Court Challenges Alleged List Of 'Troublemakers' By ECI To Detain TMC's Political Workers
+https://www.livelaw.in/high-court/calcutta-high-court/wb-polls-pil-in-calcutta-high-court-challenges-alleged-list-of-troublemakers-by-eci-to-detain-tmcs-political-workers-531122
 
-[Read on Telegram](https://t.me/livelawindia/109312)
-
----
-### 2026-04-20T15:46:54+00:00
-Karnataka High Court Defreezes School's Bank Account Frozen Over ₹5 Lakh Fee Payment Linked To Cybercrime Probe, Calls It 'Drastic' Measure
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-cybercrime-notice-bengaluru-school-freezing-account-531061
-
-[Read on Telegram](https://t.me/livelawindia/109313)
+[Read on Telegram](https://t.me/livelawindia/109349)
 
 ---
-### 2026-04-20T16:09:34+00:00
-Mere Entry In Municipality Property Register Not Proof Of Title : Supreme Court Rejects MCD's Claim
-https://www.livelaw.in/supreme-court/mere-entry-in-municipality-property-register-not-proof-of-title-supreme-court-rejects-mcds-claim-531063
+### 2026-04-21T06:52:07+00:00
+Delhi High Court Weekly Round-Up: April 13 To April 19, 2026
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-weekly-round-up-april-13-to-april-19-2026-531125
 
-[Read on Telegram](https://t.me/livelawindia/109314)
-
----
-### 2026-04-20T16:10:34+00:00
-2026 LiveLaw (SC) 396 | PAWAN GARG & ORS. VERSUS SOUTH DELHI MUNICIPAL CORPORATION
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-396-pawan-garg-ors-versus-south-delhi-municipal-corporation-531064
-
-[Read on Telegram](https://t.me/livelawindia/109315)
+[Read on Telegram](https://t.me/livelawindia/109350)
 
 ---
-### 2026-04-20T16:14:54+00:00
-Cow Slaughter Disturbs 'Even Tempo Of Life', Spontaneously Evokes Violent Reactions: Allahabad High Court Upholds NSA Detention
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-cow-slaughter-disturb-even-tempo-upholds-nsa-detention-531065
+### 2026-04-21T06:54:27+00:00
+Madras High Court Dismisses Plea By DMK MP Seeking ED Probe Against BJP's Nainar Nagendran And Kesava Vinayagam
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-r-girirajan-nainar-nagendran-ed-case-dismissed-531126
 
-[Read on Telegram](https://t.me/livelawindia/109316)
-
----
-### 2026-04-20T16:35:24+00:00
-Supreme Court Suggests Union Funding For Exclusive Courts Be Extended To UAPA Cases Handled By State Agencies
-https://www.livelaw.in/top-stories/supreme-court-creation-of-exclusive-courts-suo-motu-union-urged-to-provide-financial-assistance-to-courts-tackling-state-cases-under-uapa-531067
-
-[Read on Telegram](https://t.me/livelawindia/109317)
+[Read on Telegram](https://t.me/livelawindia/109351)
 
 ---
-### 2026-04-20T17:17:08+00:00
-Supreme Court Daily Round-Up : April 20, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-20-2026-531054
+### 2026-04-21T06:57:15+00:00
+Delhi High Court Denies Anticipatory Bail To RTO Clerk Accused In Pan-India Fake Vehicle Registration Racket
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-denies-anticipatory-bail-to-rto-clerk-accused-in-pan-india-fake-vehicle-registration-racket-531071
 
-[Read on Telegram](https://t.me/livelawindia/109318)
+[Read on Telegram](https://t.me/livelawindia/109352)
 
 ---
-### 2026-04-21T02:26:10+00:00
-Forest Rights Act Recognizes Existing Rights, Supersedes Prior Court Orders: Allahabad HC Grants Relief To Tharu Community
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-forest-rights-act-supersedes-prior-court-orders-tharu-community-531076
+### 2026-04-21T07:02:16+00:00
+'Hate Speech' PILs | Assam CM Continued Provocative Remarks After HC Issued Notice: Petitioners Submit In Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-hate-speech-pils-assam-cm-provocative-remarks-hc-notice-531129
 
-[Read on Telegram](https://t.me/livelawindia/109319)
+[Read on Telegram](https://t.me/livelawindia/109353)
+
+---
+### 2026-04-21T07:22:59+00:00
+Conditional NOC Doesn't Authorize Unilateral Cancellation By Authorities: AP High Court Warns Of Adverse Impact On Constitutional Rights
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-ruling-service-of-notice-fundamental-requirement-public-confidence-natural-justice-dents-administrative-decision-making-prejudice-to-rural-communitites-531124
+
+[Read on Telegram](https://t.me/livelawindia/109354)
+
+---
+### 2026-04-21T07:23:09+00:00
+Accidental Brushing Against Judge's Car Not Offence Of Assault On Public Servant: Kerala High Court Quashes Case Against Bus Driver
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-brushing-overtaking-private-bus-judge-official-car-531134
+
+[Read on Telegram](https://t.me/livelawindia/109355)
+
+---
+### 2026-04-21T07:25:09+00:00
+Supreme Court Allows Chhattisgarh Court Employee To Appear In LL.B. 3rd Year Exams As Interim Measure
+https://www.livelaw.in/top-stories/supreme-court-chhattisgarh-court-employee-allowed-to-appear-in-llb-3rd-year-exams-as-interim-measure-531135
+
+[Read on Telegram](https://t.me/livelawindia/109356)
+
+---
+### 2026-04-21T07:42:30+00:00
+Accountability Important For Liquor License : Supreme Court Allows UP To Reopen Action Against Country Liquor Trader
+https://www.livelaw.in/supreme-court/accountability-important-for-liquor-license-supreme-court-allows-up-to-reopen-action-against-country-liquor-trader-531139
+
+[Read on Telegram](https://t.me/livelawindia/109357)
+
+---
+### 2026-04-21T07:44:10+00:00
+Pension Not Payable If Employee Fails To Exercise Mandatory Option Under 1984 Model Pension Rules Adopted By Municipality: Calcutta HC
+https://www.livelaw.in/high-court/calcutta-high-court/pension-not-payable-if-employee-fails-to-exercise-mandatory-option-under-1984-model-pension-rules-adopted-by-municipality-calcutta-hc-531140
+
+[Read on Telegram](https://t.me/livelawindia/109358)
+
+---
+### 2026-04-21T07:47:10+00:00
+Delhi High Court Grants 15-Day Interim Bail To Dowry Death Accused To Secure Daughter's School Admission
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-grants-15-day-interim-bail-to-dowry-death-accused-to-secure-daughters-school-admission-531072
+
+[Read on Telegram](https://t.me/livelawindia/109359)
+
+---
+### 2026-04-21T07:48:30+00:00
+'4 PM' YouTube Channel Blocked To Curb Anti-India Narratives: Centre Tells Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/centre-defends-4pm-youtube-channel-blocking-anti-india-content-destabilising-info-on-terrorism-internal-security-531141
+
+[Read on Telegram](https://t.me/livelawindia/109360)
+
+---
+### 2026-04-21T07:52:30+00:00
+Gauhati High Court Reserves Order On Pawan Khera's Anticipatory Bail Plea In FIR By Assam CM's Wife
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-reserves-order-pawan-khera-anticipatory-bail-plea-fir-assam-cm-wife-531142
+
+[Read on Telegram](https://t.me/livelawindia/109361)
+
+---
+### 2026-04-21T07:55:50+00:00
+₹7.36 Crore Investment Not Disclosed In Udayanidhi Stalin's 2026 Election Affidavit: Income Tax Dept Tells Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-udayanidhi-stalin-financial-record-not-available-it-dept-time-531144
+
+[Read on Telegram](https://t.me/livelawindia/109362)
 
 ---
