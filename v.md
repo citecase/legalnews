@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-20T16:03:03+00:00*
+*Last Updated: 2026-04-21T08:02:41+00:00*
+
+---
+
+### 2026-04-21T08:02:41+00:00
+Ineligibility At Initial Stage Vitiates Appointment To Public Post; Higher Standard Of Scrutiny Required In Uniformed Services: Supreme Court
+https://www.verdictum.in/supreme-court/state-of-uttar-pradesh-ors-v-ajay-kumar-malik-2026-insc-394-uniformed-services-1612519
+
+[Source Link](https://t.me/verdictumlegalupdates/26626)
+
+---
+
+### 2026-04-21T07:12:40+00:00
+Mere Entry In MCD Property Records Not Sufficient To Establish Title Over Land: Supreme Court
+https://www.verdictum.in/supreme-court/pawan-garg-ors-v-south-delhi-municipal-corporation-2026-insc-389-mcd-1612517
+
+[Source Link](https://t.me/verdictumlegalupdates/26625)
+
+---
+
+### 2026-04-21T07:02:58+00:00
+Sabarimala Reference| Entry Of Women Will Have To Be In Sync With Characteristic Of Deity, Which Is Integral To Core Of Worship: Senior Advocate VV Giri Submits
+https://www.verdictum.in/supreme-court/senior-advocate-vv-giri-sabarimala-reference-1612513
+
+[Source Link](https://t.me/verdictumlegalupdates/26624)
+
+---
+
+### 2026-04-21T06:32:57+00:00
+Weekly Overview| Supreme Court Judgments: April 13 – April 17, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-april-13-april-17-2026-1612508
+
+[Source Link](https://t.me/verdictumlegalupdates/26623)
+
+---
+
+### 2026-04-21T05:45:16+00:00
+Legal Representative Of Deceased Party Can Challenge Arbitral Award U/S.34 Arbitration Act: Supreme Court
+https://www.verdictum.in/supreme-court/v-k-john-v-s-mukanchand-bothra-and-huf-died-2026-insc-393-legal-representative-arbitral-award-1612503
+
+[Source Link](https://t.me/verdictumlegalupdates/26622)
+
+---
+
+### 2026-04-21T04:32:24+00:00
+Investigation Shouldn't Be Thwarted By Quashing FIR When It Alleges Cognizable Offence: Allahabad High Court Reiterates
+https://www.verdictum.in/allahabad-high-court/devendra-kumar-singh-v-state-of-up-2026ahc-lko26045-db-investigation-bns-fir-1612477
+
+[Source Link](https://t.me/verdictumlegalupdates/26621)
 
 ---
 
@@ -113,54 +161,6 @@ Denying Benefit To Similarly Situated Employee Violates Article 14: Uttarakhand 
 https://www.verdictum.in/uttarakhand-high-court/damyanti-negi-v-state-of-uttarakhand-others-2026uhc2264-benefit-similarly-situated-employee-article-14-1612433
 
 [Source Link](https://t.me/verdictumlegalupdates/26607)
-
----
-
-### 2026-04-20T05:32:33+00:00
-State Lacks Competence To Prescribe Additional Eligibility For Drug Inspector: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/up-public-service-commission-prayagraj-v-ashish-tyagi-2026ahc-lko24035-db-up-rules-2015-ultra-vires-1612428
-
-[Source Link](https://t.me/verdictumlegalupdates/26606)
-
----
-
-### 2026-04-20T05:01:52+00:00
-Can’t Claim Indefeasible Right To Appointment Merely On Ground Of Unfilled Vacancies When Candidate Doesn’t Fall Under Cut-Off & Waiting Lists: Delhi High Court
-https://www.verdictum.in/delhi-high-court/smt-jyoti-v-delhi-subordinate-services-selection-board-2026dhc2920-db-indefeasible-right-appointment-vacancies-1612426
-
-[Source Link](https://t.me/verdictumlegalupdates/26605)
-
----
-
-### 2026-04-20T04:32:21+00:00
-Kerala High Court Directs Regulatory Commission To Consider Mechanism For Disclosure And Settlement Of Electricity Dues At Time Of Property Transfer
-https://www.verdictum.in/kerala-high-court/bipha-drug-laboratories-pvt-ltd-v-kerala-state-electricity-board-ltd-ors-2026ker31812-1612380
-
-[Source Link](https://t.me/verdictumlegalupdates/26604)
-
----
-
-### 2026-04-19T15:02:41+00:00
-District Legal Services Authority Latur (DLSA Latur) Invites Applications For The Post Of Assistant Legal Aid Defense Counsel
-https://www.verdictum.in/job-updates/district-legal-services-authority-1612351
-
-[Source Link](https://t.me/verdictumlegalupdates/26603)
-
----
-
-### 2026-04-19T13:32:59+00:00
-Litigant’s Actual Knowledge Of Demise Makes Advocate's Duty Under Order XXII Rule 10A CPC Inconsequential: Bombay High Court
-https://www.verdictum.in/bombay-high-court/romesh-satyanarayan-sharma-v-swaran-singh-chawla-2026bhc-as17872-litigants-actual-knowledge-of-demise-order-xxii-rule-10a-cpc-1612377
-
-[Source Link](https://t.me/verdictumlegalupdates/26602)
-
----
-
-### 2026-04-19T12:02:58+00:00
-Proceedings Converted Into Suit U/S 295 Succession Act Retain Limited Probate Scope; Court Can Examine Validity Of Will U/S 71: Kerala High Court
-https://www.verdictum.in/kerala-high-court/p-lakshmikutty-amma-ors-v-vk-indira-anr-indian-succession-act-1612378
-
-[Source Link](https://t.me/verdictumlegalupdates/26601)
 
 ---
 
