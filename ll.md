@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-22T05:20:55+00:00*
+*Last Updated: 2026-04-22T11:09:24+00:00*
 
 ---
 
-### 2026-04-22T05:20:55+00:00
-Law Clerk Exam Result Discrepancy To Be Rectified Within 72 Hours: Supreme Court Recruitment Cell
-https://www.livelaw.in/top-stories/law-clerk-exam-result-discrepancy-to-be-rectified-within-72-hours-supreme-court-recruitment-cell-531249
+### 2026-04-22T11:09:24+00:00
+Delhi High Court Rejects Unnao Rape Victim's Plea To Lead Further Evidence Against Kuldeep Singh Sengar
+https://www.livelaw.in/high-court/delhi-high-court/unnao-rape-victim-plea-to-lead-further-evidence-against-kuldeep-singh-sengar-rejected-531316
 
-[Read on Telegram](https://t.me/livelawindia/109421)
-
----
-### 2026-04-22T05:30:55+00:00
-Kaleshwaram Project: Part Relief To KCR, Harish Rao As Telangana High Court Says Inquiry Commission Findings Violating Section 8B 'Inoperative'
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-kaleshwaram-project-row-kcr-plea-against-inquiry-commissions-report-531250
-
-[Read on Telegram](https://t.me/livelawindia/109422)
+[Read on Telegram](https://t.me/livelawindia/109464)
 
 ---
-### 2026-04-22T05:46:25+00:00
-High Court Cannot Decide Appeal Lying Before A Statutory Appellate Authority Merely Because Of Delay: Supreme Court
-https://www.livelaw.in/top-stories/high-court-cannot-decide-appeal-lying-before-a-statutory-appellate-authority-merely-because-of-delay-supreme-court-531251
+### 2026-04-22T11:12:24+00:00
+Can't Lay Down Blanket Rules On State Interference In Religion For Social Reform : Supreme Court In Sabarimala Reference Hearing
+https://www.livelaw.in/top-stories/cant-lay-down-blanket-rules-on-state-interference-in-religion-for-social-reform-supreme-court-in-sabarimala-reference-hearing-531318
 
-[Read on Telegram](https://t.me/livelawindia/109423)
-
----
-### 2026-04-22T05:48:05+00:00
-2026 LiveLaw (SC) 404 |  Premal Pratap Joisher & Anr. v. Vikram Jethlal Joisher & Ors. Etc.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-404-premal-pratap-joisher-anr-v-vikram-jethlal-joisher-ors-etc-531252
-
-[Read on Telegram](https://t.me/livelawindia/109424)
+[Read on Telegram](https://t.me/livelawindia/109465)
 
 ---
-### 2026-04-22T06:02:08+00:00
-Kerala High Court Allows Devaswom Minister To Convene Thrissur Pooram Review Meeting Amid Model Code Of Conduct
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-devaswom-minister-thrissur-pooram-review-meeting-model-code-of-conduct-531255
+### 2026-04-22T11:17:44+00:00
+Acquittal In Section 498A IPC Case Not Ground To Deny Maintenance To Wife: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-maintenance-section-125-crpc-wife-minor-child-section-498a-ipc-cruelty-531319
 
-[Read on Telegram](https://t.me/livelawindia/109425)
-
----
-### 2026-04-22T06:02:48+00:00
-Delhi High Court Rejects Kashmiri Migrant Contractors' Decades-Old Payment Claims Citing Missing Records
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-rejects-kashmiri-migrant-contractors-decades-old-payment-claims-citing-missing-records-531221
-
-[Read on Telegram](https://t.me/livelawindia/109426)
+[Read on Telegram](https://t.me/livelawindia/109466)
 
 ---
-### 2026-04-22T06:15:08+00:00
-SDO Has No Power To Alter Land Classification Under UP Zamindari Abolition And Land Reforms Act: Supreme Court
-https://www.livelaw.in/top-stories/sdo-has-no-power-to-alter-land-classification-under-up-zamindari-abolition-and-land-reforms-act-supreme-court-531257
+### 2026-04-22T11:19:44+00:00
+Order 7 Rule 11 CPC | Plaint Can't Be Rejected Over Deficiency In Valuation, Court Fee Without Giving Chance To Rectify: Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-order-7-rule-11-cpc-plaint-cannot-be-rejected-over-deficiency-in-valuation-court-fee-without-chance-to-rectify-531322
 
-[Read on Telegram](https://t.me/livelawindia/109427)
-
----
-### 2026-04-22T06:16:08+00:00
-2026 LiveLaw (SC) 405 | Babu Singh v. Consolidation Officer and Others
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-405-babu-singh-v-consolidation-officer-and-others-531258
-
-[Read on Telegram](https://t.me/livelawindia/109428)
+[Read on Telegram](https://t.me/livelawindia/109467)
 
 ---
-### 2026-04-22T06:17:28+00:00
-PG Medical Student Who Fails One Theory Paper Must Re-Appear In All Four Papers Along With Practical & Viva: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-candidate-fails-theory-paper-reappear-practical-viva-531244
+### 2026-04-22T11:21:04+00:00
+2026 LiveLaw (SC) 408 | M/s. MARG LIMITED VERSUS SUSHIL LALWANI & ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-408-ms-marg-limited-versus-sushil-lalwani-ors-531323
 
-[Read on Telegram](https://t.me/livelawindia/109429)
-
----
-### 2026-04-22T06:30:48+00:00
-Delhi High Court Registers Suo Motu Case On Establishment, Expansion Of Open Prisons
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-registers-suo-motu-case-on-establishment-expansion-of-open-prisons-531260
-
-[Read on Telegram](https://t.me/livelawindia/109430)
+[Read on Telegram](https://t.me/livelawindia/109468)
 
 ---
-### 2026-04-22T06:38:08+00:00
-No Bar On Fresh Tender Amid Subsisting Contracts; Writ Courts Won't Entertain Anticipatory Grievances: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/no-bar-on-fresh-tender-amid-subsisting-contracts-writ-courts-wont-entertain-anticipatory-grievances-delhi-high-court-531219
+### 2026-04-22T11:27:44+00:00
+Bombay High Court Issues Notice To ED On Anil Deshmukh's Plea Seeking Stay On PMLA Trial
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-notice-ed-anil-deshmukh-pmla-trial-531320
 
-[Read on Telegram](https://t.me/livelawindia/109431)
-
----
-### 2026-04-22T06:50:08+00:00
-Delhi High Court Justice Tejas Karia Recuses From Hearing PIL Seeking Contempt Action Against Arvind Kejriwal For Circulating Court Videos
-https://www.livelaw.in/high-court/delhi-high-court/arvind-kejriwal-pil-seeks-contempt-justice-tejas-karia-recuses-531265
-
-[Read on Telegram](https://t.me/livelawindia/109432)
+[Read on Telegram](https://t.me/livelawindia/109469)
 
 ---
-### 2026-04-22T06:52:38+00:00
-Delhi High Court Holds Hockey India Officials Guilty Of Contempt For Disobeying Order On Executive Board Meeting Access
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-holds-hockey-india-officials-guilty-of-contempt-for-disobeying-order-on-executive-board-meeting-access-531222
+### 2026-04-22T11:32:44+00:00
+Preventive Detention Based On Speculative Apprehension Of Election Disturbance Unsustainable: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-preventive-detention-based-on-speculative-apprehension-of-election-disturbance-without-live-nexus-unsustainable-531317
 
-[Read on Telegram](https://t.me/livelawindia/109433)
-
----
-### 2026-04-22T07:03:18+00:00
-Maintenance Can't Be Demanded From Man If DNA Test Shows He's Not Child's Father : Supreme Court
-https://www.livelaw.in/supreme-court/maintenance-cant-be-demanded-from-man-if-dna-test-shows-hes-not-childs-father-supreme-court-531267
-
-[Read on Telegram](https://t.me/livelawindia/109434)
+[Read on Telegram](https://t.me/livelawindia/109470)
 
 ---
-### 2026-04-22T07:03:28+00:00
-Bombay High Court Discharges Four Accused In 2006 Malegaon Blast Case
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-discharges-hindu-men-2006-malegaon-blast-531268
+### 2026-04-22T11:49:54+00:00
+National Green Tribunal Orders Action In Dwarka Omaxe Project Case
+https://www.livelaw.in/environment/national-green-tribunal-dwarka-omaxe-project-case-531326
 
-[Read on Telegram](https://t.me/livelawindia/109435)
-
----
-### 2026-04-22T07:04:39+00:00
-2026 LiveLaw (SC) 406 |  Nikhat Parveen @ Khusboo Khatoon v. Rafique @ Shillu
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-406-nikhat-parveen-khusboo-khatoon-v-rafique-shillu-531269
-
-[Read on Telegram](https://t.me/livelawindia/109436)
+[Read on Telegram](https://t.me/livelawindia/109471)
 
 ---
-### 2026-04-22T07:13:18+00:00
-Funeral Processions Not Licence To Endanger Public: Madras High Court Denies Relief To Mourners Accused Of Attacking Bus With Girl Students
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-funeral-procession-chief-enact-law-govern-no-endanger-public-safety-531270
+### 2026-04-22T11:57:18+00:00
+2017 School Headmistress Rape-Murder : Supreme Court Dismisses Assam Govt Appeal Against Acquittal
+https://www.livelaw.in/supreme-court/arnomai-bora-rape-murder-case-supreme-court-rejects-assam-govt-appeal-against-acquittal-531328
 
-[Read on Telegram](https://t.me/livelawindia/109437)
-
----
-### 2026-04-22T07:16:18+00:00
-Delhi High Court Refuses To Entertain PIL Over LPG Shortage, Says Issue Lies In Executive Domain
-https://www.livelaw.in/high-court/delhi-high-court/lpg-shortage-pil-dismissed-executive-domain-531272
-
-[Read on Telegram](https://t.me/livelawindia/109438)
+[Read on Telegram](https://t.me/livelawindia/109472)
 
 ---
-### 2026-04-22T07:38:58+00:00
-Prosthetic Limb Costs Must Also Be Compensated To Restore Accident Victims To Dignified Life: Supreme Court
-https://www.livelaw.in/top-stories/prosthetic-limb-costs-must-also-be-compensated-to-restore-accident-victims-to-dignified-life-supreme-court-531275
+### 2026-04-22T11:58:38+00:00
+2026 LiveLaw (SC) 410 | THE STATE OF ASSAM VERSUS MOINUL HAQUE @ MONU
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-410-the-state-of-assam-versus-moinul-haque-monu-531329
 
-[Read on Telegram](https://t.me/livelawindia/109439)
+[Read on Telegram](https://t.me/livelawindia/109473)
 
 ---
-### 2026-04-22T07:39:58+00:00
-2026 LiveLaw (SC) 407 | Prahlad Sahai v Haryana Roadways and anr
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-407-prahlad-sahai-v-haryana-roadways-and-anr-531276
+### 2026-04-22T12:19:18+00:00
+Right To Legal Representation Before Insurance Ombudsman Can't Be Denied At Adjudicatory Stage: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-insurance-ombudsman-denial-legal-representation-531332
 
-[Read on Telegram](https://t.me/livelawindia/109440)
+[Read on Telegram](https://t.me/livelawindia/109474)
+
+---
+### 2026-04-22T12:37:48+00:00
+AP High Court Flags Excessive Compassionate Appointments, Says Educated Youth Left Waiting 'In Silence'
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-ruling-compassionate-appointment-staggering-number-20801-ex-gratia-amount-contractual-employment-531334
+
+[Read on Telegram](https://t.me/livelawindia/109475)
+
+---
+### 2026-04-22T12:42:08+00:00
+'Extra Ordinary Situation In Bengal' : Supreme Court Refers To Judges' Gherao, Asks How ED Can Avail Regular Remedies Against CM
+https://www.livelaw.in/top-stories/extra-ordinary-situation-in-bengal-supreme-court-refers-to-judges-gherao-asks-how-ed-can-avail-regular-remedies-against-cm-531341
+
+[Read on Telegram](https://t.me/livelawindia/109476)
+
+---
+### 2026-04-22T12:48:28+00:00
+S. 225 BNSS | Magistrate Must Conduct Inquiry Or Order Probe Before Proceeding Against Accused Outside Jurisdiction : Supreme Court
+https://www.livelaw.in/supreme-court/s-225-bnss-magistrate-must-conduct-inquiry-or-order-probe-before-proceeding-against-accused-outside-jurisdiction-supreme-court-531343
+
+[Read on Telegram](https://t.me/livelawindia/109477)
+
+---
+### 2026-04-22T12:50:08+00:00
+2026 LiveLaw (SC) 411 | RAJEEV MEHTA @ RAJIV KISHOR KIRTILAL MEHTA VERSUS PARAM BIR SINGH
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-411-rajeev-mehta-rajiv-kishor-kirtilal-mehta-versus-param-bir-singh-531344
+
+[Read on Telegram](https://t.me/livelawindia/109478)
+
+---
+### 2026-04-22T13:02:29+00:00
+Fractured Ribs Or Treated Hip Dislocation Alone Cannot Establish Permanent Disability Without Medical Proof: Sikkim High Court
+https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-fractures-treated-injuries-prove-disability-531307
+
+[Read on Telegram](https://t.me/livelawindia/109479)
+
+---
+### 2026-04-22T13:10:28+00:00
+Karnataka HC Directs IndiGo To Expeditiously Conclude Inquiry Against Pilot Suspended For Allegedly Refusing To Fly Over Fuel Discrepancy
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-issues-directions-indigo-pilot-suspension-post-fuel-discrepancy-row-531346
+
+[Read on Telegram](https://t.me/livelawindia/109480)
+
+---
+### 2026-04-22T13:15:49+00:00
+Sabarimala Reference | How Can Judgment Be Challenged In Writ? Supreme Court Questions Plea Against Dawoodi Bohra Practice
+https://www.livelaw.in/top-stories/sabarimala-reference-how-can-judgment-be-challenged-in-writ-supreme-court-questions-plea-against-dawoodi-bohra-practice-531348
+
+[Read on Telegram](https://t.me/livelawindia/109481)
+
+---
+### 2026-04-22T13:34:24+00:00
+Plea In Supreme Court Seeks Action Against PM Narendra Modi For Alleged MCC Violation By April 18 Speech
+https://www.livelaw.in/top-stories/plea-in-supreme-court-seeks-action-against-pm-narendra-modi-for-alleged-mcc-violation-by-april-18-speech-531349
+
+[Read on Telegram](https://t.me/livelawindia/109482)
+
+---
+### 2026-04-22T13:42:04+00:00
+“Punitive & Stigmatic”: AP High Court Reinstates Probationary Judicial Officer Discharged Over Alleged Misconduct Without Inquiry
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-ruling-discharge-probationary-judicial-officer-reinstatement-back-wages-stigmatic-punitive-531351
+
+[Read on Telegram](https://t.me/livelawindia/109483)
 
 ---
