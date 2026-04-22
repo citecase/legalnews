@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-22T08:13:18+00:00*
+*Last Updated: 2026-04-22T14:02:23+00:00*
+
+---
+
+### 2026-04-22T14:02:23+00:00
+Foreign Judgment Rendered In Summary Proceedings & Failing Section 13 CPC Test Not Enforceable In India: Supreme Court
+https://www.verdictum.in/supreme-court/messer-griesheim-gmbh-air-liquide-deutschland-gmbh-v-goyal-mg-gases-private-limited-2026-insc-401-1612613
+
+[Source Link](https://t.me/verdictumlegalupdates/26655)
+
+---
+
+### 2026-04-22T13:33:21+00:00
+Mere Initiation Of Tender Process For Subsequent Period Not Interference With Subsisting Contractual Rights If Existing Contracts Can Run Full Course: Delhi High Court
+https://www.verdictum.in/delhi-high-court/ms-kaushik-medical-store-v-union-of-india-2026dhc3263-db-initiation-tender-process-existing-contracts-1612612
+
+[Source Link](https://t.me/verdictumlegalupdates/26654)
+
+---
+
+### 2026-04-22T13:02:39+00:00
+Calcutta High Court Upholds ECI Requisition Of College Teachers As Presiding Officers For West Bengal Assembly Elections
+https://www.verdictum.in/calcutta-high-court/the-election-commission-of-india-ors-v-rupa-banerjee-nee-samjpati-1612611
+
+[Source Link](https://t.me/verdictumlegalupdates/26653)
+
+---
+
+### 2026-04-22T12:32:38+00:00
+WB I-PAC Raids|Supreme Court Says That Democracy Is Put In Peril If A Chief Minister Intervenes In A Probe
+https://www.verdictum.in/supreme-court/wb-i-pac-raidssupreme-court-says-that-democracy-is-put-in-peril-if-a-chief-minister-intervenes-in-a-probe-1612610
+
+[Source Link](https://t.me/verdictumlegalupdates/26652)
+
+---
+
+### 2026-04-22T11:52:57+00:00
+Religion Is A Historical Reality, Not A Gift Of Constitution: Senior Advocate Rakesh Dwivedi Argues For Slow & Light Touch Of Judicial Review
+https://www.verdictum.in/supreme-court/senior-advocate-rakesh-dwivedi-judicial-review-sabarimala-1612606
+
+[Source Link](https://t.me/verdictumlegalupdates/26651)
+
+---
+
+### 2026-04-22T11:23:15+00:00
+Courts Not Precluded From Inquiring & Determining Basic Tenets Of Religion: Senior Advocate Gopal Subramanium In Sabarimala Reference
+https://www.verdictum.in/supreme-court/sabarimala-senior-advocate-gopal-subramanium-organic-definition-religion-denominational-1612604
+
+[Source Link](https://t.me/verdictumlegalupdates/26650)
+
+---
+
+### 2026-04-22T10:53:24+00:00
+DNA Test Showed That Man Is Not Her Biological Father: Supreme Court Upholds Order Denying Maintenance To Child
+https://www.verdictum.in/supreme-court/abc-v-xyz-2026-insc-399-dna-test-finality-order-denying-maintenance-child-1612603
+
+[Source Link](https://t.me/verdictumlegalupdates/26649)
+
+---
+
+### 2026-04-22T10:12:22+00:00
+Supreme Court Asks Centre To file Affidavit On Plea By Balwant Singh Rajoana Seeking Commutation Of His Death Sentence
+https://www.verdictum.in/supreme-court/supreme-court-asks-centre-to-file-affidavit-on-plea-by-balwant-singh-rajoana-seeking-commutation-of-his-death-sentence-1612601
+
+[Source Link](https://t.me/verdictumlegalupdates/26648)
+
+---
+
+### 2026-04-22T09:33:01+00:00
+Alienee Acquiring Interest In Deceased’s Estate Before Probate Proceedings An Interested Party: Supreme Court
+https://www.verdictum.in/supreme-court/s-leorex-sebastian-anr-v-sarojini-ors-2026-insc-400-succession-act-1612599
+
+[Source Link](https://t.me/verdictumlegalupdates/26647)
+
+---
+
+### 2026-04-22T08:52:59+00:00
+Rejection Of Plaint Not Automatic Upon Finding Of Deficit Court Fee: Supreme Court
+https://www.verdictum.in/supreme-court/ms-marg-limited-v-sushil-lalwani-2026-insc-402-rejection-plaint-deficit-court-fee-1612594
+
+[Source Link](https://t.me/verdictumlegalupdates/26646)
 
 ---
 
@@ -81,86 +161,6 @@ Essential Eligibility Criteria Cannot Be Substituted By Higher Academic Degree O
 https://www.verdictum.in/supreme-court/himakshi-v-rahul-verma-2026-insc-391-higher-academic-degree-or-purported-relaxation-mtech-1612540
 
 [Source Link](https://t.me/verdictumlegalupdates/26636)
-
----
-
-### 2026-04-21T13:32:24+00:00
-Cow Slaughter Evokes Strong Emotions & Violent Reaction: Allahabad High Court Upholds NSA Detention
-https://www.verdictum.in/allahabad-high-court/sameer-v-state-of-up-ors-2026ahc83732-db-cow-slaughter-nsa-detention-1612536
-
-[Source Link](https://t.me/verdictumlegalupdates/26635)
-
----
-
-### 2026-04-21T12:53:03+00:00
-Taking Pending Disputes To Press To Allege Bias Against Judge Unbecoming Of Advocate: Supreme Court Refuses To Interfere With Contempt Proceedings
-https://www.verdictum.in/supreme-court/nilesh-c-ojha-v-high-court-of-judicature-at-bombay-2026-insc-390-1612535
-
-[Source Link](https://t.me/verdictumlegalupdates/26634)
-
----
-
-### 2026-04-21T12:03:01+00:00
-Rule Banning Private Schools From Using Premises For 'Political Or Ideological' Activities: Madras High Court Stays Requirement Of Reporting Compliance
-https://www.verdictum.in/madras-high-court/sri-kamaraj-vidyalaya-primary-school-v-the-state-of-tamil-nadu-rule-private-schools-compliance-political-activities-1612531
-
-[Source Link](https://t.me/verdictumlegalupdates/26633)
-
----
-
-### 2026-04-21T11:32:20+00:00
-Why Is Investigating Officer Playing Hide & Seek With Court: Apex Court Asks UP While Expressing Displeasure Over Affidavit Filed In Alleged Hate Crime
-https://www.verdictum.in/supreme-court/why-is-investigating-officer-playing-hide-seek-with-court-apex-court-asks-up-while-expressing-displeasure-over-affidavit-filed-in-alleged-hate-crime-1612529
-
-[Source Link](https://t.me/verdictumlegalupdates/26632)
-
----
-
-### 2026-04-21T11:02:38+00:00
-Article 25 Is "Take It Or Leave It": Senior Advocate Gopal Sankaranarayanan Argues Dissenters Cannot Use Free Speech To Force Religious Reform
-https://www.verdictum.in/supreme-court/senior-advocate-gopal-sankaranarayanan-sabarimala-1612530
-
-[Source Link](https://t.me/verdictumlegalupdates/26631)
-
----
-
-### 2026-04-21T10:33:07+00:00
-There Is No Need To Attack Power Of Judicial Review: CJI Tells Senior Adv J Sai Deepak After He Submits That Courts Shouldn't Preside Over Codified Religious Practice
-https://www.verdictum.in/supreme-court/senior-adv-j-sai-deepak-sabarimala-cji-surya-kant-judicial-review-1612528
-
-[Source Link](https://t.me/verdictumlegalupdates/26630)
-
----
-
-### 2026-04-21T10:02:25+00:00
-Supreme Court Issues Notice In Contempt Plea Alleging Non-compliance Of Judgment On Illegal Constructions In Gurugram
-https://www.verdictum.in/supreme-court/supreme-court-issues-notice-in-contempt-plea-alleging-non-compliance-of-judgment-on-illegal-constructions-in-gurugram-1612527
-
-[Source Link](https://t.me/verdictumlegalupdates/26629)
-
----
-
-### 2026-04-21T09:33:25+00:00
-Judicially Skilled Mind Not Swayed By Depiction In Movie: Kerala High Court Refuses To Stall Release Of Movie Allegedly Based On Venjaramoodu Mass Murder Case
-https://www.verdictum.in/kerala-high-court/abdal-rahim-h-v-union-of-india-2026ker31002-movie-release-venjaramoodu-mass-murder-case-1612526
-
-[Source Link](https://t.me/verdictumlegalupdates/26628)
-
----
-
-### 2026-04-21T08:52:23+00:00
-Dismissal Of Complaint By Magistrate U/S.204(4) CrPC On First Posting Date Without Proper Explanation Not Reasonable: Kerala High Court
-https://www.verdictum.in/kerala-high-court/aloysious-fernandez-dickson-v-state-of-kerala-2026ker31483-order-of-dismissal-criminal-complaint-magistrate-1612523
-
-[Source Link](https://t.me/verdictumlegalupdates/26627)
-
----
-
-### 2026-04-21T08:02:41+00:00
-Ineligibility At Initial Stage Vitiates Appointment To Public Post; Higher Standard Of Scrutiny Required In Uniformed Services: Supreme Court
-https://www.verdictum.in/supreme-court/state-of-uttar-pradesh-ors-v-ajay-kumar-malik-2026-insc-394-uniformed-services-1612519
-
-[Source Link](https://t.me/verdictumlegalupdates/26626)
 
 ---
 
