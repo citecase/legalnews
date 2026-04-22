@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-21T16:02:24+00:00*
+*Last Updated: 2026-04-22T08:13:18+00:00*
+
+---
+
+### 2026-04-22T08:13:18+00:00
+Power To Recall Order Cannot Be Exercised Merely Because Similar Matters Are Pending: Supreme Court
+https://www.verdictum.in/supreme-court/the-kerala-financial-corporation-v-premaraj-ma-power-to-recall-order-cannot-be-exercised-merely-because-similar-matters-are-pending-1612593
+
+[Source Link](https://t.me/verdictumlegalupdates/26645)
+
+---
+
+### 2026-04-22T07:32:56+00:00
+Money Transactions Must Be Corroborated By Cogent Evidence, Not Just Trust: Delhi High Court In ₹6 Crore Property Fraud Claim
+https://www.verdictum.in/delhi-high-court/ng-dev-v-state-nct-of-delhi-2026dhc3265-money-transaction-cogent-evidence-trust-fraud-1612584
+
+[Source Link](https://t.me/verdictumlegalupdates/26644)
+
+---
+
+### 2026-04-22T06:52:35+00:00
+Government Notification Rates For Prosthetic Limbs Abysmally Low: Supreme Court Enhances Motor Accident Compensation
+https://www.verdictum.in/supreme-court/prahlad-sahai-v-haryana-roadways-anr-2026-insc-396-prosthetic-limbs-1612583
+
+[Source Link](https://t.me/verdictumlegalupdates/26643)
+
+---
+
+### 2026-04-22T06:12:53+00:00
+Rights Of Prisoners With Disabilities Must Be Recognized: Supreme Court Directs Committee To Formulate Action Plan; Asks States, UTs To Place Compliance Affidavits
+https://www.verdictum.in/supreme-court/sathyan-naravoor-v-union-of-india-ors-2026-insc-397-rights-of-prisoners-with-disabilities-action-plan-1612578
+
+[Source Link](https://t.me/verdictumlegalupdates/26642)
+
+---
+
+### 2026-04-22T05:35:32+00:00
+Mere Incorporation Of Termination As Consequence In Initial Notice Not Sufficient Compliance: Rajasthan High Court Holds 30-Day Notice Mandatory Under MMC Rules
+https://www.verdictum.in/rajasthan-high-court/takhat-singh-v-state-of-rajasthan-2026rj-jd13509-30-day-notice-mandatory-before-lease-termination-1612574
+
+[Source Link](https://t.me/verdictumlegalupdates/26641)
+
+---
+
+### 2026-04-22T04:32:41+00:00
+Conferment Of Bhumidhari Rights On Public Utility Lands Prohibited; Diversion Of Such Land Through Administrative Process Illegal: Supreme Court
+https://www.verdictum.in/supreme-court/babu-singh-v-consolidation-officer-and-others-2026-insc-395-section-132-of-upzalr-act-public-utility-lands-1612566
+
+[Source Link](https://t.me/verdictumlegalupdates/26640)
 
 ---
 
@@ -113,54 +161,6 @@ Ineligibility At Initial Stage Vitiates Appointment To Public Post; Higher Stand
 https://www.verdictum.in/supreme-court/state-of-uttar-pradesh-ors-v-ajay-kumar-malik-2026-insc-394-uniformed-services-1612519
 
 [Source Link](https://t.me/verdictumlegalupdates/26626)
-
----
-
-### 2026-04-21T07:12:40+00:00
-Mere Entry In MCD Property Records Not Sufficient To Establish Title Over Land: Supreme Court
-https://www.verdictum.in/supreme-court/pawan-garg-ors-v-south-delhi-municipal-corporation-2026-insc-389-mcd-1612517
-
-[Source Link](https://t.me/verdictumlegalupdates/26625)
-
----
-
-### 2026-04-21T07:02:58+00:00
-Sabarimala Reference| Entry Of Women Will Have To Be In Sync With Characteristic Of Deity, Which Is Integral To Core Of Worship: Senior Advocate VV Giri Submits
-https://www.verdictum.in/supreme-court/senior-advocate-vv-giri-sabarimala-reference-1612513
-
-[Source Link](https://t.me/verdictumlegalupdates/26624)
-
----
-
-### 2026-04-21T06:32:57+00:00
-Weekly Overview| Supreme Court Judgments: April 13 – April 17, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-april-13-april-17-2026-1612508
-
-[Source Link](https://t.me/verdictumlegalupdates/26623)
-
----
-
-### 2026-04-21T05:45:16+00:00
-Legal Representative Of Deceased Party Can Challenge Arbitral Award U/S.34 Arbitration Act: Supreme Court
-https://www.verdictum.in/supreme-court/v-k-john-v-s-mukanchand-bothra-and-huf-died-2026-insc-393-legal-representative-arbitral-award-1612503
-
-[Source Link](https://t.me/verdictumlegalupdates/26622)
-
----
-
-### 2026-04-21T04:32:24+00:00
-Investigation Shouldn't Be Thwarted By Quashing FIR When It Alleges Cognizable Offence: Allahabad High Court Reiterates
-https://www.verdictum.in/allahabad-high-court/devendra-kumar-singh-v-state-of-up-2026ahc-lko26045-db-investigation-bns-fir-1612477
-
-[Source Link](https://t.me/verdictumlegalupdates/26621)
-
----
-
-### 2026-04-20T16:03:03+00:00
-Summary Judgment Under Order XIII-A CPC Permissible Where Defendant Raises No Credible Or Bona Fide Defence: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/de-converter-india-private-limited-v-la-chemico-pvt-ltd-ors-order-xiii-a-cpc-1612472
-
-[Source Link](https://t.me/verdictumlegalupdates/26620)
 
 ---
 
