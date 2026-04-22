@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-21T12:28:05+00:00*
+*Last Updated: 2026-04-22T05:20:55+00:00*
 
 ---
 
-### 2026-04-21T12:28:05+00:00
-'Compassionate Appointment Is A Tailored Exception; Not Meant For Delayed Claims': Patna HC Dismisses Appeal After 25-Year Gap
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-compassionate-appointment-tailored-exception-delayed-claims-531146
+### 2026-04-22T05:20:55+00:00
+Law Clerk Exam Result Discrepancy To Be Rectified Within 72 Hours: Supreme Court Recruitment Cell
+https://www.livelaw.in/top-stories/law-clerk-exam-result-discrepancy-to-be-rectified-within-72-hours-supreme-court-recruitment-cell-531249
 
-[Read on Telegram](https://t.me/livelawindia/109388)
-
----
-### 2026-04-21T12:36:49+00:00
-Income Tax Dept Files Complaint Against TN Congress Chief For Falsely Claiming That He Was Detained In Pretext Of Search
-https://www.livelaw.in/news-updates/income-tax-dept-tn-congress-chief-complaint-false-allegation-detention-531186
-
-[Read on Telegram](https://t.me/livelawindia/109389)
+[Read on Telegram](https://t.me/livelawindia/109421)
 
 ---
-### 2026-04-21T12:41:09+00:00
-PIL Moved Before Kerala High Court To Stop Cattle Markets Operating Without Roofs, Exposing Animals To Scorching Summer Heat
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-pil-cattle-markets-roofs-heat-exposure-531187
+### 2026-04-22T05:30:55+00:00
+Kaleshwaram Project: Part Relief To KCR, Harish Rao As Telangana High Court Says Inquiry Commission Findings Violating Section 8B 'Inoperative'
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-kaleshwaram-project-row-kcr-plea-against-inquiry-commissions-report-531250
 
-[Read on Telegram](https://t.me/livelawindia/109390)
-
----
-### 2026-04-21T12:42:29+00:00
-State Cannot Claim Adverse Possession Over Land Used For Vaishno Devi Pilgrim Facilities, Must Acquire Or Return It: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-state-cannot-perfect-title-by-invoking-adverse-possession-court-directs-acquisition-of-open-land-used-by-mata-vaishno-devi-pilgrims-531177
-
-[Read on Telegram](https://t.me/livelawindia/109391)
+[Read on Telegram](https://t.me/livelawindia/109422)
 
 ---
-### 2026-04-21T13:03:09+00:00
-Rajya Sabha Election Bribery Row: Karnataka High Court Orders No Coercive Steps Against 4 Accused Of Trying To Bribe Odisha Congress MLAs
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-odisha-rajya-sabha-election-bribery-row-operation-lotus-531190
+### 2026-04-22T05:46:25+00:00
+High Court Cannot Decide Appeal Lying Before A Statutory Appellate Authority Merely Because Of Delay: Supreme Court
+https://www.livelaw.in/top-stories/high-court-cannot-decide-appeal-lying-before-a-statutory-appellate-authority-merely-because-of-delay-supreme-court-531251
 
-[Read on Telegram](https://t.me/livelawindia/109392)
-
----
-### 2026-04-21T13:08:49+00:00
-Cybercrime Operates Through Organised Ecosystems; Response Must Be Real-Time &Collaborative : CJI Surya Kant
-https://www.livelaw.in/top-stories/cybercrime-operates-through-organised-ecosystems-response-must-be-real-time-collaborative-cji-surya-kant-531191
-
-[Read on Telegram](https://t.me/livelawindia/109393)
+[Read on Telegram](https://t.me/livelawindia/109423)
 
 ---
-### 2026-04-21T13:28:35+00:00
-Punjab & Haryana High Court Orders Soundproof VC Facilities In Prisons To Protect Lawyer-Client Confidentiality
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-right-to-confidential-lawyer-client-communication-extends-to-video-conferencing-soundproof-facilities-mandatory-in-prisons-531194
+### 2026-04-22T05:48:05+00:00
+2026 LiveLaw (SC) 404 |  Premal Pratap Joisher & Anr. v. Vikram Jethlal Joisher & Ors. Etc.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-404-premal-pratap-joisher-anr-v-vikram-jethlal-joisher-ors-etc-531252
 
-[Read on Telegram](https://t.me/livelawindia/109394)
-
----
-### 2026-04-21T13:32:55+00:00
-Probative Value Of Fingerprint Evidence Gets Eroded If Collected At Police Station Instead Of Place Of Recovery: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-fingerprint-evidence-probative-value-police-station-531163
-
-[Read on Telegram](https://t.me/livelawindia/109395)
+[Read on Telegram](https://t.me/livelawindia/109424)
 
 ---
-### 2026-04-21T13:37:55+00:00
-Foreign Judgment Passed Without Fair Opportunity To Defend Not Enforceable In India: Supreme Court
-https://www.livelaw.in/supreme-court/foreign-judgment-passed-without-fair-opportunity-to-defend-not-enforceable-in-india-supreme-court-531196
+### 2026-04-22T06:02:08+00:00
+Kerala High Court Allows Devaswom Minister To Convene Thrissur Pooram Review Meeting Amid Model Code Of Conduct
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-devaswom-minister-thrissur-pooram-review-meeting-model-code-of-conduct-531255
 
-[Read on Telegram](https://t.me/livelawindia/109396)
-
----
-### 2026-04-21T13:39:15+00:00
-2026 LiveLaw (SC) 403 | Messer Griesheim GMBH v Goyal Gases Private Ltd
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-403-messer-griesheim-gmbh-v-goyal-gases-private-ltd-531197
-
-[Read on Telegram](https://t.me/livelawindia/109397)
+[Read on Telegram](https://t.me/livelawindia/109425)
 
 ---
-### 2026-04-21T13:47:15+00:00
-Judges Can't Defend Themselves Publicly, Criticism Must Be Responsible Backed By Cogent Evidence: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/judges-criticism-must-be-backed-by-cogent-evidence-cant-defend-themselves-publicly-531195
+### 2026-04-22T06:02:48+00:00
+Delhi High Court Rejects Kashmiri Migrant Contractors' Decades-Old Payment Claims Citing Missing Records
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-rejects-kashmiri-migrant-contractors-decades-old-payment-claims-citing-missing-records-531221
 
-[Read on Telegram](https://t.me/livelawindia/109398)
-
----
-### 2026-04-21T14:06:45+00:00
-Presence Of Deceased's Relative As Court Staff Or Lawyer Not Ground To Transfer Criminal Trial: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-transfer-petition-presumption-of-influence-531204
-
-[Read on Telegram](https://t.me/livelawindia/109399)
+[Read on Telegram](https://t.me/livelawindia/109426)
 
 ---
-### 2026-04-21T14:33:05+00:00
-Patna High Court Limits Interest On Delayed Salary Arrears To 3 Years Before Filing Of Writ Petition, Modifies Single Judge Order
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-limits-interest-delayed-salary-payment-531171
+### 2026-04-22T06:15:08+00:00
+SDO Has No Power To Alter Land Classification Under UP Zamindari Abolition And Land Reforms Act: Supreme Court
+https://www.livelaw.in/top-stories/sdo-has-no-power-to-alter-land-classification-under-up-zamindari-abolition-and-land-reforms-act-supreme-court-531257
 
-[Read on Telegram](https://t.me/livelawindia/109400)
-
----
-### 2026-04-21T15:15:55+00:00
-'Over Generalization': Gauhati HC On PIL Alleging Bengali-Speaking Community Targeted In Assam; Seeks State's Response
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-hc-pil-allege-bengali-speaking-community-targeted-assam-state-response-531211
-
-[Read on Telegram](https://t.me/livelawindia/109401)
+[Read on Telegram](https://t.me/livelawindia/109427)
 
 ---
-### 2026-04-21T15:37:55+00:00
-Investigating Officer Not Bound By FIR; May Alter Offences In Final Chargesheet U/S 173 CrPC Based On Evidence: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-investigating-officer-not-bound-by-fir-may-alter-offences-in-final-charge-sheet-us-173-crpc-based-on-evidence-531176
+### 2026-04-22T06:16:08+00:00
+2026 LiveLaw (SC) 405 | Babu Singh v. Consolidation Officer and Others
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-405-babu-singh-v-consolidation-officer-and-others-531258
 
-[Read on Telegram](https://t.me/livelawindia/109402)
-
----
-### 2026-04-21T16:38:39+00:00
-Chhattisgarh HC Bench Recuses As Judge's Niece Appears As Counsel; Calls CJ's Recusal Norms Circular An 'Interference'
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-hc-recusal-judge-niece-chief-justice-circular-interference-531214
-
-[Read on Telegram](https://t.me/livelawindia/109403)
+[Read on Telegram](https://t.me/livelawindia/109428)
 
 ---
-### 2026-04-21T17:03:39+00:00
-Supreme Court Daily Round-Up : April 21, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-21-2026-531215
+### 2026-04-22T06:17:28+00:00
+PG Medical Student Who Fails One Theory Paper Must Re-Appear In All Four Papers Along With Practical & Viva: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-candidate-fails-theory-paper-reappear-practical-viva-531244
 
-[Read on Telegram](https://t.me/livelawindia/109404)
-
----
-### 2026-04-22T00:41:50+00:00
-2026 LiveLaw (SC) 404 |  SATHYAN NARAVOOR v. UNION OF INDIA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-404-sathyan-naravoor-v-union-of-india-531224
-
-[Read on Telegram](https://t.me/livelawindia/109405)
+[Read on Telegram](https://t.me/livelawindia/109429)
 
 ---
-### 2026-04-22T02:21:01+00:00
-Sabarimala Reference | Supreme Court Debates Essential Religious Practice Test, Denominational Rights vs State Reform Power
-https://www.livelaw.in/top-stories/sabarimala-reference-supreme-court-debates-essential-religious-practice-test-denominational-rights-vs-state-reform-power-531226
+### 2026-04-22T06:30:48+00:00
+Delhi High Court Registers Suo Motu Case On Establishment, Expansion Of Open Prisons
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-registers-suo-motu-case-on-establishment-expansion-of-open-prisons-531260
 
-[Read on Telegram](https://t.me/livelawindia/109406)
+[Read on Telegram](https://t.me/livelawindia/109430)
 
 ---
-### 2026-04-22T03:17:51+00:00
-'Jail Shouldn't Dilute Rights Of Prisoners With Disabilities': Supreme Entrusts Oversight To High-Powered Committee
-https://www.livelaw.in/top-stories/supreme-court-sathyan-naravoor-prisoners-with-disabilities-issues-referred-to-high-powered-committee-suhas-chakma-case-531223
+### 2026-04-22T06:38:08+00:00
+No Bar On Fresh Tender Amid Subsisting Contracts; Writ Courts Won't Entertain Anticipatory Grievances: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/no-bar-on-fresh-tender-amid-subsisting-contracts-writ-courts-wont-entertain-anticipatory-grievances-delhi-high-court-531219
 
-[Read on Telegram](https://t.me/livelawindia/109407)
+[Read on Telegram](https://t.me/livelawindia/109431)
+
+---
+### 2026-04-22T06:50:08+00:00
+Delhi High Court Justice Tejas Karia Recuses From Hearing PIL Seeking Contempt Action Against Arvind Kejriwal For Circulating Court Videos
+https://www.livelaw.in/high-court/delhi-high-court/arvind-kejriwal-pil-seeks-contempt-justice-tejas-karia-recuses-531265
+
+[Read on Telegram](https://t.me/livelawindia/109432)
+
+---
+### 2026-04-22T06:52:38+00:00
+Delhi High Court Holds Hockey India Officials Guilty Of Contempt For Disobeying Order On Executive Board Meeting Access
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-holds-hockey-india-officials-guilty-of-contempt-for-disobeying-order-on-executive-board-meeting-access-531222
+
+[Read on Telegram](https://t.me/livelawindia/109433)
+
+---
+### 2026-04-22T07:03:18+00:00
+Maintenance Can't Be Demanded From Man If DNA Test Shows He's Not Child's Father : Supreme Court
+https://www.livelaw.in/supreme-court/maintenance-cant-be-demanded-from-man-if-dna-test-shows-hes-not-childs-father-supreme-court-531267
+
+[Read on Telegram](https://t.me/livelawindia/109434)
+
+---
+### 2026-04-22T07:03:28+00:00
+Bombay High Court Discharges Four Accused In 2006 Malegaon Blast Case
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-discharges-hindu-men-2006-malegaon-blast-531268
+
+[Read on Telegram](https://t.me/livelawindia/109435)
+
+---
+### 2026-04-22T07:04:39+00:00
+2026 LiveLaw (SC) 406 |  Nikhat Parveen @ Khusboo Khatoon v. Rafique @ Shillu
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-406-nikhat-parveen-khusboo-khatoon-v-rafique-shillu-531269
+
+[Read on Telegram](https://t.me/livelawindia/109436)
+
+---
+### 2026-04-22T07:13:18+00:00
+Funeral Processions Not Licence To Endanger Public: Madras High Court Denies Relief To Mourners Accused Of Attacking Bus With Girl Students
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-funeral-procession-chief-enact-law-govern-no-endanger-public-safety-531270
+
+[Read on Telegram](https://t.me/livelawindia/109437)
+
+---
+### 2026-04-22T07:16:18+00:00
+Delhi High Court Refuses To Entertain PIL Over LPG Shortage, Says Issue Lies In Executive Domain
+https://www.livelaw.in/high-court/delhi-high-court/lpg-shortage-pil-dismissed-executive-domain-531272
+
+[Read on Telegram](https://t.me/livelawindia/109438)
+
+---
+### 2026-04-22T07:38:58+00:00
+Prosthetic Limb Costs Must Also Be Compensated To Restore Accident Victims To Dignified Life: Supreme Court
+https://www.livelaw.in/top-stories/prosthetic-limb-costs-must-also-be-compensated-to-restore-accident-victims-to-dignified-life-supreme-court-531275
+
+[Read on Telegram](https://t.me/livelawindia/109439)
+
+---
+### 2026-04-22T07:39:58+00:00
+2026 LiveLaw (SC) 407 | Prahlad Sahai v Haryana Roadways and anr
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-407-prahlad-sahai-v-haryana-roadways-and-anr-531276
+
+[Read on Telegram](https://t.me/livelawindia/109440)
 
 ---
