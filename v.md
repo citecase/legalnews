@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-22T14:02:23+00:00*
+*Last Updated: 2026-04-22T16:03:18+00:00*
+
+---
+
+### 2026-04-22T16:03:18+00:00
+Chief Legal Aid Defence Counsel Vacancy At DLSA Aurangabad
+https://www.verdictum.in/job-updates/district-legal-services-authority-1612616
+
+[Source Link](https://t.me/verdictumlegalupdates/26659)
+
+---
+
+### 2026-04-22T15:32:57+00:00
+Reluctance Of Independent Witness To Testify In Violent Crimes Fearing Retaliation Cannot Be Held Fatal To Prosecution: Supreme Court
+https://www.verdictum.in/supreme-court/adalat-yadav-ors-v-state-of-bihar-2026-insc-403-murder-independent-witness-1612618
+
+[Source Link](https://t.me/verdictumlegalupdates/26658)
+
+---
+
+### 2026-04-22T15:02:45+00:00
+'Motivated Petition': Bombay High Court Dismisses PIL Seeking Recovery Of Z  Security Charges For RSS Chief
+https://www.verdictum.in/bombay-high-court/lalan-kishor-singh-v-the-union-of-india-2026bhc-nag6103-db-pil-z-security-charges-rss-chief-1612622
+
+[Source Link](https://t.me/verdictumlegalupdates/26657)
+
+---
+
+### 2026-04-22T14:32:24+00:00
+Constitutional Morality Was Never Meant To Create Restriction To Dilute Articles 25 & 26: Mukul Rohatgi In Sabarimala Reference
+https://www.verdictum.in/supreme-court/senior-advocate-mukul-rohatgi-sabarimala-reference-1612621
+
+[Source Link](https://t.me/verdictumlegalupdates/26656)
 
 ---
 
@@ -129,38 +161,6 @@ Conferment Of Bhumidhari Rights On Public Utility Lands Prohibited; Diversion Of
 https://www.verdictum.in/supreme-court/babu-singh-v-consolidation-officer-and-others-2026-insc-395-section-132-of-upzalr-act-public-utility-lands-1612566
 
 [Source Link](https://t.me/verdictumlegalupdates/26640)
-
----
-
-### 2026-04-21T16:02:24+00:00
-Vacancy District Magistrate Nainital Invites Applications For The Post Of Assistant Prosecuting Officer
-https://www.verdictum.in/job-updates/district-magistrate-nainital-1612537
-
-[Source Link](https://t.me/verdictumlegalupdates/26639)
-
----
-
-### 2026-04-21T15:32:42+00:00
-CARA Must Pursue Hague Convention Compliance Before Issuing NOC For Inter-Country Adoptions: Delhi High Court
-https://www.verdictum.in/delhi-high-court/gur-kaur-minor-ors-v-union-of-india-anr-2026dhc3264-adoption-1612542
-
-[Source Link](https://t.me/verdictumlegalupdates/26638)
-
----
-
-### 2026-04-21T14:52:27+00:00
-Allegations Of Corrupt Practice In Election Petition Quasi-Criminal In Nature; Must Be Proved Like Criminal Charge: High Court
-https://www.verdictum.in/madhya-pradesh-high-court/neetu-parmar-v-varshagadekar-ors-2026mphc-jbp26450-municipal-election-petition-1612541
-
-[Source Link](https://t.me/verdictumlegalupdates/26637)
-
----
-
-### 2026-04-21T14:12:25+00:00
-Essential Eligibility Criteria Cannot Be Substituted By Higher Academic Degree Or Purported Relaxation: Supreme Court
-https://www.verdictum.in/supreme-court/himakshi-v-rahul-verma-2026-insc-391-higher-academic-degree-or-purported-relaxation-mtech-1612540
-
-[Source Link](https://t.me/verdictumlegalupdates/26636)
 
 ---
 
