@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-22T11:09:24+00:00*
+*Last Updated: 2026-04-22T12:48:28+00:00*
 
 ---
 
-### 2026-04-22T11:09:24+00:00
-Delhi High Court Rejects Unnao Rape Victim's Plea To Lead Further Evidence Against Kuldeep Singh Sengar
-https://www.livelaw.in/high-court/delhi-high-court/unnao-rape-victim-plea-to-lead-further-evidence-against-kuldeep-singh-sengar-rejected-531316
-
-[Read on Telegram](https://t.me/livelawindia/109464)
-
----
-### 2026-04-22T11:12:24+00:00
-Can't Lay Down Blanket Rules On State Interference In Religion For Social Reform : Supreme Court In Sabarimala Reference Hearing
-https://www.livelaw.in/top-stories/cant-lay-down-blanket-rules-on-state-interference-in-religion-for-social-reform-supreme-court-in-sabarimala-reference-hearing-531318
-
-[Read on Telegram](https://t.me/livelawindia/109465)
-
----
-### 2026-04-22T11:17:44+00:00
-Acquittal In Section 498A IPC Case Not Ground To Deny Maintenance To Wife: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-maintenance-section-125-crpc-wife-minor-child-section-498a-ipc-cruelty-531319
-
-[Read on Telegram](https://t.me/livelawindia/109466)
-
----
-### 2026-04-22T11:19:44+00:00
-Order 7 Rule 11 CPC | Plaint Can't Be Rejected Over Deficiency In Valuation, Court Fee Without Giving Chance To Rectify: Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-order-7-rule-11-cpc-plaint-cannot-be-rejected-over-deficiency-in-valuation-court-fee-without-chance-to-rectify-531322
-
-[Read on Telegram](https://t.me/livelawindia/109467)
-
----
-### 2026-04-22T11:21:04+00:00
-2026 LiveLaw (SC) 408 | M/s. MARG LIMITED VERSUS SUSHIL LALWANI & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-408-ms-marg-limited-versus-sushil-lalwani-ors-531323
-
-[Read on Telegram](https://t.me/livelawindia/109468)
-
----
-### 2026-04-22T11:27:44+00:00
-Bombay High Court Issues Notice To ED On Anil Deshmukh's Plea Seeking Stay On PMLA Trial
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-notice-ed-anil-deshmukh-pmla-trial-531320
-
-[Read on Telegram](https://t.me/livelawindia/109469)
-
----
-### 2026-04-22T11:32:44+00:00
-Preventive Detention Based On Speculative Apprehension Of Election Disturbance Unsustainable: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-preventive-detention-based-on-speculative-apprehension-of-election-disturbance-without-live-nexus-unsustainable-531317
-
-[Read on Telegram](https://t.me/livelawindia/109470)
-
----
-### 2026-04-22T11:49:54+00:00
-National Green Tribunal Orders Action In Dwarka Omaxe Project Case
-https://www.livelaw.in/environment/national-green-tribunal-dwarka-omaxe-project-case-531326
-
-[Read on Telegram](https://t.me/livelawindia/109471)
-
----
-### 2026-04-22T11:57:18+00:00
-2017 School Headmistress Rape-Murder : Supreme Court Dismisses Assam Govt Appeal Against Acquittal
-https://www.livelaw.in/supreme-court/arnomai-bora-rape-murder-case-supreme-court-rejects-assam-govt-appeal-against-acquittal-531328
-
-[Read on Telegram](https://t.me/livelawindia/109472)
-
----
-### 2026-04-22T11:58:38+00:00
-2026 LiveLaw (SC) 410 | THE STATE OF ASSAM VERSUS MOINUL HAQUE @ MONU
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-410-the-state-of-assam-versus-moinul-haque-monu-531329
-
-[Read on Telegram](https://t.me/livelawindia/109473)
-
----
-### 2026-04-22T12:19:18+00:00
-Right To Legal Representation Before Insurance Ombudsman Can't Be Denied At Adjudicatory Stage: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-insurance-ombudsman-denial-legal-representation-531332
-
-[Read on Telegram](https://t.me/livelawindia/109474)
-
----
-### 2026-04-22T12:37:48+00:00
-AP High Court Flags Excessive Compassionate Appointments, Says Educated Youth Left Waiting 'In Silence'
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-ruling-compassionate-appointment-staggering-number-20801-ex-gratia-amount-contractual-employment-531334
-
-[Read on Telegram](https://t.me/livelawindia/109475)
-
----
-### 2026-04-22T12:42:08+00:00
-'Extra Ordinary Situation In Bengal' : Supreme Court Refers To Judges' Gherao, Asks How ED Can Avail Regular Remedies Against CM
-https://www.livelaw.in/top-stories/extra-ordinary-situation-in-bengal-supreme-court-refers-to-judges-gherao-asks-how-ed-can-avail-regular-remedies-against-cm-531341
-
-[Read on Telegram](https://t.me/livelawindia/109476)
-
----
 ### 2026-04-22T12:48:28+00:00
 S. 225 BNSS | Magistrate Must Conduct Inquiry Or Order Probe Before Proceeding Against Accused Outside Jurisdiction : Supreme Court
 https://www.livelaw.in/supreme-court/s-225-bnss-magistrate-must-conduct-inquiry-or-order-probe-before-proceeding-against-accused-outside-jurisdiction-supreme-court-531343
@@ -142,5 +51,96 @@ https://www.livelaw.in/top-stories/plea-in-supreme-court-seeks-action-against-pm
 https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-ruling-discharge-probationary-judicial-officer-reinstatement-back-wages-stigmatic-punitive-531351
 
 [Read on Telegram](https://t.me/livelawindia/109483)
+
+---
+### 2026-04-22T13:57:44+00:00
+Citizens Have Right To Protest In Democratic Set-Up But Public Places Can't Be Occupied Indefinitely: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-transport-workers-plea-indefinite-strike-freedom-park-531352
+
+[Read on Telegram](https://t.me/livelawindia/109484)
+
+---
+### 2026-04-22T14:18:04+00:00
+Service Records Are Personal Information, Exempted From Disclosure Under RTI Act: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-service-record-exempted-disclosure-rti-act-531306
+
+[Read on Telegram](https://t.me/livelawindia/109485)
+
+---
+### 2026-04-22T14:32:54+00:00
+Know About Lookout Circular
+https://www.livelaw.in/know-the-law/lookout-circular-531354
+
+[Read on Telegram](https://t.me/livelawindia/109486)
+
+---
+### 2026-04-22T14:55:54+00:00
+Calcutta High Court Stays ECI Memo Branding 800 Persons As “Trouble-Makers”; Says It Cannot Issue “Blanket Direction” Beyond Statute
+https://www.livelaw.in/top-stories/calcutta-high-court-stays-eci-memo-branding-800-persons-as-trouble-makers-says-it-cannot-issue-blanket-direction-beyond-statute-531365
+
+[Read on Telegram](https://t.me/livelawindia/109487)
+
+---
+### 2026-04-22T15:08:34+00:00
+No Bar On Second Maternity Leave Within 2 Years Of First: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-second-maternity-leave-2years-531367
+
+[Read on Telegram](https://t.me/livelawindia/109488)
+
+---
+### 2026-04-22T15:10:54+00:00
+Father Is Natural Guardian After Mother's Death, Ordinarily Most Suitable For Minor's Welfare: Allahabad HC Allows Habeas Plea
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-father-natural-guardian-mother-demise-suitable-minor-welfare-allahabad-hc-habeas-plea-531368
+
+[Read on Telegram](https://t.me/livelawindia/109489)
+
+---
+### 2026-04-22T15:25:24+00:00
+Food Safety Officer Can't Seize Plant & Machinery Under FSS Act; Such Power Vests With Court: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-food-safety-officer-cannot-seize-plant-machinery-under-food-safety-act-such-power-vests-with-court-531370
+
+[Read on Telegram](https://t.me/livelawindia/109490)
+
+---
+### 2026-04-22T15:35:44+00:00
+Rajasthan High Court Grants Parole To Life Convict Despite Absconding History, Cites Long Incarceration
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-parole-grants-parole-murder-convict-absconding-history-531371
+
+[Read on Telegram](https://t.me/livelawindia/109491)
+
+---
+### 2026-04-22T15:43:04+00:00
+Supreme Court Requests Allahabad HC CJ To Ensure Priority Disposal Of Long-Pending Service Disputes
+https://www.livelaw.in/supreme-court/supreme-court-requests-allahabad-hc-cj-to-ensure-priority-disposal-of-long-pending-service-disputes-531372
+
+[Read on Telegram](https://t.me/livelawindia/109492)
+
+---
+### 2026-04-22T15:44:44+00:00
+2026 LiveLaw (SC) 412 | RAJENDRA SINGH BORA VERSUS UNION OF INDIA & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-412-rajendra-singh-bora-versus-union-of-india-ors-531373
+
+[Read on Telegram](https://t.me/livelawindia/109493)
+
+---
+### 2026-04-22T15:49:04+00:00
+'Drug Peddlers Using Students As Sellers': Supreme Court Raises Concerns About Drug Trafficking In Educational Institutes
+https://www.livelaw.in/top-stories/supreme-court-raises-concerns-about-drug-trafficking-abuse-in-education-institutions-21-year-old-law-student-ganja-possession-case-531374
+
+[Read on Telegram](https://t.me/livelawindia/109494)
+
+---
+### 2026-04-22T16:39:54+00:00
+Bombay High Court Directs RBI To Accept ₹2 Lakh In Demonetised Notes Seized By Police, Preventing Timely Exchange
+https://www.livelaw.in/high-court/bombay-high-court/rbi-exchange-demonitized-currency-notes-delayed-not-owners-fault-531378
+
+[Read on Telegram](https://t.me/livelawindia/109495)
+
+---
+### 2026-04-22T17:07:14+00:00
+Supreme Court Daily Round-Up : April 22, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-22-2026-531375
+
+[Read on Telegram](https://t.me/livelawindia/109496)
 
 ---
