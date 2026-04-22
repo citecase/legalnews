@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-21T11:51:35+00:00*
+*Last Updated: 2026-04-21T12:28:05+00:00*
 
 ---
 
-### 2026-04-21T11:51:35+00:00
-Supreme Court Warns To Suspend Bar Associations Failing To Implement 30% Women Representation
-https://www.livelaw.in/top-stories/supreme-court-warns-to-suspend-bar-associations-failing-to-implement-30-women-representation-531181
-
-[Read on Telegram](https://t.me/livelawindia/109385)
-
----
-### 2026-04-21T12:00:15+00:00
-Jana Nayagan Movie Leak: Freelance Editor Approaches Madras High Court Seeking Anticipatory Bail
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-jana-nayagan-leak-freelance-editor-anticipatory-bail-plea-531182
-
-[Read on Telegram](https://t.me/livelawindia/109386)
-
----
-### 2026-04-21T12:03:05+00:00
-Drastic Measure Of Property Attachment, Appointment Of Receiver Can't Be Resorted To Routinely: P&H High Court In Tenancy Dispute
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/no-routine-attachment-of-property-appointing-receiver-tenancy-dispute-531152
-
-[Read on Telegram](https://t.me/livelawindia/109387)
-
----
 ### 2026-04-21T12:28:05+00:00
 'Compassionate Appointment Is A Tailored Exception; Not Meant For Delayed Claims': Patna HC Dismisses Appeal After 25-Year Gap
 https://www.livelaw.in/high-court/patna-high-court/patna-high-court-compassionate-appointment-tailored-exception-delayed-claims-531146
@@ -142,5 +121,26 @@ Supreme Court Daily Round-Up : April 21, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-21-2026-531215
 
 [Read on Telegram](https://t.me/livelawindia/109404)
+
+---
+### 2026-04-22T00:41:50+00:00
+2026 LiveLaw (SC) 404 |  SATHYAN NARAVOOR v. UNION OF INDIA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-404-sathyan-naravoor-v-union-of-india-531224
+
+[Read on Telegram](https://t.me/livelawindia/109405)
+
+---
+### 2026-04-22T02:21:01+00:00
+Sabarimala Reference | Supreme Court Debates Essential Religious Practice Test, Denominational Rights vs State Reform Power
+https://www.livelaw.in/top-stories/sabarimala-reference-supreme-court-debates-essential-religious-practice-test-denominational-rights-vs-state-reform-power-531226
+
+[Read on Telegram](https://t.me/livelawindia/109406)
+
+---
+### 2026-04-22T03:17:51+00:00
+'Jail Shouldn't Dilute Rights Of Prisoners With Disabilities': Supreme Entrusts Oversight To High-Powered Committee
+https://www.livelaw.in/top-stories/supreme-court-sathyan-naravoor-prisoners-with-disabilities-issues-referred-to-high-powered-committee-suhas-chakma-case-531223
+
+[Read on Telegram](https://t.me/livelawindia/109407)
 
 ---
