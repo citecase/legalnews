@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-23T06:15:26+00:00*
+*Last Updated: 2026-04-23T09:52:31+00:00*
 
 ---
 
-### 2026-04-23T06:15:26+00:00
-MNLU Mumbai Hosts International Conference On Transformative Constitutionalism
-https://www.livelaw.in/lawschool/news/mnlu-mumbai-hosts-international-conference-on-transformative-constitutionalism-531424
+### 2026-04-23T09:52:31+00:00
+Burial Of Animal Near Religious Structure Not Offence U/S 270 IPC Without Any Infection Risk: Himachal Pradesh High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-religious-sentiments-hurt-section270-ipc-531388
 
-[Read on Telegram](https://t.me/livelawindia/109521)
-
----
-### 2026-04-23T06:23:18+00:00
-'Land In Delhi Scarce': High Court Restores NDMC's ₹1063 Cr License Fee Demand From Hotel, Says Can't Burden Taxpayers
-https://www.livelaw.in/high-court/delhi-high-court/land-in-delhi-scarce-high-court-restores-ndmcs-1063-cr-license-fee-demand-from-hotel-says-cant-burden-taxpayers-531381
-
-[Read on Telegram](https://t.me/livelawindia/109522)
+[Read on Telegram](https://t.me/livelawindia/109556)
 
 ---
-### 2026-04-23T06:32:20+00:00
-Citing Manusmriti, Rajasthan High Court Allows Recall Of Prosecutrix In Rape Case After Marriage With Accused; Considers Interest Of Child
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-allows-recall-rape-victim-protecting-marriage-531416
+### 2026-04-23T09:53:31+00:00
+2026 LiveLaw (SC) 417 | SHYAM LAL THAKUR v. BAR COUNCIL OF INDIA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-417-shyam-lal-thakur-v-bar-council-of-india-531479
 
-[Read on Telegram](https://t.me/livelawindia/109523)
-
----
-### 2026-04-23T06:35:20+00:00
-Supreme Court Stays HC Judgment Convicting & Sentencing Ex-Chhattisgarh CM' Son Amit Jogi In 2003 Ram Avtar Jaggi Murder Case
-https://www.livelaw.in/top-stories/supreme-court-ex-chhattisgarh-cm-son-amit-jogi-plea-against-conviction-in-ncp-leader-ram-avtar-jaggi-murder-case-531428
-
-[Read on Telegram](https://t.me/livelawindia/109524)
+[Read on Telegram](https://t.me/livelawindia/109557)
 
 ---
-### 2026-04-23T06:46:40+00:00
-Delhi High Court Issues Notice On Activist's Plea To Vacate Injunction Over Posts Linking Hardeep Puri's Daughter To Epstein
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-issues-notice-vacate-injunction-posts-linking-hardeep-puri-daughter-epstein-531430
+### 2026-04-23T09:56:51+00:00
+Delhi High Court Seeks X User's Response On Gaurav Bhatia's Plea To Take Down 'Obscene' Post On His TV Appearance
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-gaurav-bhatia-plea-obscene-post-tv-appearance-531480
 
-[Read on Telegram](https://t.me/livelawindia/109525)
-
----
-### 2026-04-23T06:52:20+00:00
-Congress MP Raja Warring Moves Punjab & Haryana High Court Seeking Stay On 'Lawrence Of Punjab' Web Series
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/plea-filed-seeking-stay-on-release-of-series-lawrence-of-punjab-on-ott-platform-531433
-
-[Read on Telegram](https://t.me/livelawindia/109526)
+[Read on Telegram](https://t.me/livelawindia/109558)
 
 ---
-### 2026-04-23T06:54:40+00:00
-Supreme Court Weekly Digest March 24 - 31, 2026
-https://www.livelaw.in/top-stories/supreme-court-judgments-and-orders-weekly-digest-531434
+### 2026-04-23T09:57:11+00:00
+No Embargo Under RPwD Act On Grant Of “Total Support” To Persons With Disabilities; Absence Of Rules No Bar: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/no-embargo-under-rpwd-act-on-grant-of-total-support-to-persons-with-disabilities-absence-of-rules-no-bar-delhi-high-court-531386
 
-[Read on Telegram](https://t.me/livelawindia/109527)
-
----
-### 2026-04-23T06:56:00+00:00
-Government Grants Act Prevails Over Rent Control Law : Supreme Court Sets Aside Eviction Proceedings Against Union Govt
-https://www.livelaw.in/supreme-court/government-grants-act-prevails-over-rent-control-law-supreme-court-sets-aside-eviction-proceedings-against-union-govt-531436
-
-[Read on Telegram](https://t.me/livelawindia/109528)
+[Read on Telegram](https://t.me/livelawindia/109559)
 
 ---
-### 2026-04-23T06:57:20+00:00
-2026 LiveLaw (SC) 413 | UNION OF INDIA VERSUS SIR SOBHA SINGH AND SONS PVT. LTD.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-413-union-of-india-versus-sir-sobha-singh-and-sons-pvt-ltd-531437
+### 2026-04-23T10:02:51+00:00
+Punjab Anti-Sacrilege Law Challenged In High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-punjab-anti-sacrilege-law-challenged-in-531471
 
-[Read on Telegram](https://t.me/livelawindia/109529)
-
----
-### 2026-04-23T06:57:40+00:00
-Illegal Mineral Transport To Bangladesh Border: Meghalaya HC Registers Suo Motu PIL, Flags “Disturbing Pattern Of Inaction”
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-illegal-mineral-transport-bangladesh-border-531382
-
-[Read on Telegram](https://t.me/livelawindia/109530)
+[Read on Telegram](https://t.me/livelawindia/109560)
 
 ---
-### 2026-04-23T07:02:30+00:00
-Karnataka High Court Grants Two Weeks To WinZO Co-Founder Paavan Nanda To Respond To ED's Bail Cancellation Plea
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-winzo-cofounder-paavan-nanda-objections-ed-bail-cancellation-plea-531435
+### 2026-04-23T10:10:23+00:00
+Punjab & Haryana High Court Acquits Rape Convict After 21 Years, Cites Material Contradictions In Prosecutrix's Testimony
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-acquits-rape-convict-after-21-years-cites-material-contradictions-forensic-inconsistencies-531482
 
-[Read on Telegram](https://t.me/livelawindia/109531)
-
----
-### 2026-04-23T07:03:00+00:00
-'Civil Court Lacks Jurisdiction' : Supreme Court In Boundary Dispute Between Maharashtra Panchayat & Municipality
-https://www.livelaw.in/supreme-court/civil-court-lacks-jurisdiction-supreme-court-in-boundary-dispute-between-maharashtra-panchayat-municipality-531439
-
-[Read on Telegram](https://t.me/livelawindia/109532)
+[Read on Telegram](https://t.me/livelawindia/109561)
 
 ---
-### 2026-04-23T07:04:00+00:00
-2026 LiveLaw (SC) 414 |  UNCHGAON VILLAGE PANCHAYAT VERSUS KOLHAPUR MUNICIPAL CORPORATION AND ANOTHER
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-414-unchgaon-village-panchayat-versus-kolhapur-municipal-corporation-and-another-531441
+### 2026-04-23T10:26:21+00:00
+Deputy Chief Legal Aid Counsel And Assistant Legal Aid Defense Counsel Vacancy At District Legal Services Authority, Kullu, H.P.
+https://www.livelaw.in/job-updates/deputy-chief-legal-aid-counsel-and-assistant-legal-aid-defense-counsel-vacancy-at-district-legal-services-authority-kullu-hp-531489
 
-[Read on Telegram](https://t.me/livelawindia/109533)
-
----
-### 2026-04-23T07:09:00+00:00
-RPNLU Prayagraj Marks Earth Day with Plantation Drive At Permanent Campus
-https://www.livelaw.in/lawschool/news/rpnlu-prayagraj-marks-earth-day-with-plantation-drive-at-permanent-campus-531443
-
-[Read on Telegram](https://t.me/livelawindia/109534)
+[Read on Telegram](https://t.me/livelawindia/109562)
 
 ---
-### 2026-04-23T07:27:10+00:00
-Non-Examination of Independent Witness Not Fatal If Injured Eyewitness Testimony Is Of Sterling Quality : Supreme Court
-https://www.livelaw.in/supreme-court/non-examination-of-independent-witness-not-fatal-if-injured-eyewitness-testimony-is-of-sterling-quality-supreme-court-531445
+### 2026-04-23T10:33:01+00:00
+Farming Not Barred In Municipal Limits, Agricultural Livelihood No Ground To Oppose Municipal Inclusion: HP High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-agricultural-activity-municipal-inclusion-rural-benefits-531387
 
-[Read on Telegram](https://t.me/livelawindia/109535)
-
----
-### 2026-04-23T07:27:50+00:00
-2026 LiveLaw (SC) 415 | ADALAT YADAV ETC. VERSUS THE STATE OF BIHAR
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-415-adalat-yadav-etc-versus-the-state-of-bihar-531446
-
-[Read on Telegram](https://t.me/livelawindia/109536)
+[Read on Telegram](https://t.me/livelawindia/109563)
 
 ---
-### 2026-04-23T07:33:10+00:00
-CPC Procedure Applicable To Trial Of Election Petitions Only Subject To Provisions Of Representation Of People Act; Contrary Provisions Cannot Be Invoked: J&K High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-cpc-procedure-applicable-to-trial-of-election-petitions-only-subject-to-provisions-of-representation-of-people-act-contrary-provisions-cannot-be-invoked-531419
+### 2026-04-23T11:03:21+00:00
+Senior Resource Person (Legal) Vacancy At National Institute Of Electronics And Information Technology
+https://www.livelaw.in/job-updates/senior-resource-person-legal-vacancy-at-national-institute-of-electronics-and-information-technology-531497
 
-[Read on Telegram](https://t.me/livelawindia/109537)
-
----
-### 2026-04-23T07:37:50+00:00
-Legal Counsel (Litigation) Vacancy At Tata Consultancy Services Limited
-https://www.livelaw.in/job-updates/legal-counsel-litigation-vacancy-at-tata-consultancy-services-limited-531449
-
-[Read on Telegram](https://t.me/livelawindia/109538)
+[Read on Telegram](https://t.me/livelawindia/109564)
 
 ---
-### 2026-04-23T07:47:30+00:00
-Magistrate's Power Under S.204(4) CrPC To Dismiss Complaint Must Be Exercised Judiciously With Reasoned Orders: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/magistrates-power-dismiss-complaints-section-2044-reasoned-orders-531420
+### 2026-04-23T11:36:56+00:00
+Widow Seeks Maintenance Arrears Owed By Deceased Husband From Father-In-Law: Allahabad HC Stays Recovery Warrant
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-widow-deceased-husband-maintenance-arrears-father-in-law-stays-recovery-warrant-531502
 
-[Read on Telegram](https://t.me/livelawindia/109539)
+[Read on Telegram](https://t.me/livelawindia/109565)
 
 ---
-### 2026-04-23T08:02:31+00:00
-No Bar On Appointment Of Teachers In UP Basic Education Institution For Involvement In Journalism: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-appointment-teachers-up-basic-education-institution-involved-journalism-531425
+### 2026-04-23T12:07:00+00:00
+BREAKING | 'Sexually Coloured Remarks' : Delhi Court Orders FIR Against Abhijit Iyer Mitra For Posts Against Newslaundry's Manisha Pande
+https://www.livelaw.in/news-updates/delhi-court-fir-abhijit-iyer-mitra-abusing-newslaundrys-manisha-pande-on-x-531503
 
-[Read on Telegram](https://t.me/livelawindia/109540)
+[Read on Telegram](https://t.me/livelawindia/109566)
+
+---
+### 2026-04-23T12:13:40+00:00
+Madras High Court Commutes Death Penalty For Father Convicted Of Daughter's Rape, Says He Should Spend Each Day With Reminder Of Guilt
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-pocso-death-sentence-commutted-father-rape-daughter-531507
+
+[Read on Telegram](https://t.me/livelawindia/109567)
+
+---
+### 2026-04-23T12:29:22+00:00
+No Restriction On Women To Enter Mosque For Namaz; ERP Tests Wrongly Applied To Islam : AIMPLB Tells Supreme Court
+https://www.livelaw.in/top-stories/no-restriction-on-women-to-enter-mosque-for-namaz-erp-tests-wrongly-applied-to-islam-aimplb-tells-supreme-court-531510
+
+[Read on Telegram](https://t.me/livelawindia/109568)
+
+---
+### 2026-04-23T12:53:02+00:00
+IBC Mechanism Not Substitute For Decree Execution Or Recovery Proceedings : Supreme Court
+https://www.livelaw.in/supreme-court/ibc-mechanism-not-substitute-for-decree-execution-or-recovery-proceedings-supreme-court-531513
+
+[Read on Telegram](https://t.me/livelawindia/109569)
+
+---
+### 2026-04-23T12:55:02+00:00
+2026 LiveLaw (SC) 418 | ANJANI TECHNOPLAST LTD. VERSUS SHUBH GAUTAM
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-418-anjani-technoplast-ltd-versus-shubh-gautam-531514
+
+[Read on Telegram](https://t.me/livelawindia/109570)
+
+---
+### 2026-04-23T12:57:22+00:00
+Kannada Actress Ranya Rao Released After 1-Year Detention Under COFEPOSA Act In Gold Smuggling Case
+https://www.livelaw.in/news-updates/cofeposa-detention-actress-ranya-rao-released-gold-smuggling-case-531515
+
+[Read on Telegram](https://t.me/livelawindia/109571)
+
+---
+### 2026-04-23T12:57:32+00:00
+Mere Telephone Call Does Not Satisfy Requirement Of Show Cause Notice Before Cancelling Caste Certificate: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-telephone-call-satisfy-show-cause-notice-caste-certificate-531472
+
+[Read on Telegram](https://t.me/livelawindia/109572)
+
+---
+### 2026-04-23T12:58:42+00:00
+Karnataka High Court Stays Order Directing Probe Against State Home Minister G Parameshwara In 'Illegal Betting' Case
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-stays-probe-against-state-home-minister-g-parameshwara-illegal-betting-case-531516
+
+[Read on Telegram](https://t.me/livelawindia/109573)
+
+---
+### 2026-04-23T13:07:53+00:00
+Karnataka High Court Stays FIR Against X User Booked For Reposting 'Fake' Video On State Energy Minister KJ George
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-reposted-fake-video-energy-minister-power-crisis-531518
+
+[Read on Telegram](https://t.me/livelawindia/109574)
+
+---
+### 2026-04-23T13:33:53+00:00
+J&K&L High Court Flags Persistent Non-Filing Of Replies By Government; Seeks Presence Of Law Secretary
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-flags-persistent-non-filing-of-replies-by-government-seeks-presence-of-law-secretary-to-apprise-court-of-steps-taken-531520
+
+[Read on Telegram](https://t.me/livelawindia/109575)
 
 ---
