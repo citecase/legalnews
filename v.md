@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-23T08:12:16+00:00*
+*Last Updated: 2026-04-23T14:12:39+00:00*
+
+---
+
+### 2026-04-23T14:12:39+00:00
+Subsequent Acquittal Does Not Efface Suppression Of Pending Criminal Case: Delhi High Court Upholds Termination Of Bank Employee
+https://www.verdictum.in/delhi-high-court/rajkiran-yadav-v-state-bank-of-india-2026dhc3284-bank-employee-withholding-material-information-acquittal-1612667
+
+[Source Link](https://t.me/verdictumlegalupdates/26673)
+
+---
+
+### 2026-04-23T13:32:57+00:00
+Single Achievement No Basis For Claiming Personality Rights: Delhi High Court In Dispute Involving CLAT Topper Geetali Gupta, LegalEdge
+https://www.verdictum.in/delhi-high-court/toprankers-edtech-solutions-private-limited-ors-v-lpt-edtech-private-limited-ors-1612666
+
+[Source Link](https://t.me/verdictumlegalupdates/26672)
+
+---
+
+### 2026-04-23T12:52:35+00:00
+"Reached A Dead End": Bombay High Court Discharges Four Accused In Malegaon Blast Case Noticing Two Contradictory Stories By ATS & NIA
+https://www.verdictum.in/bombay-high-court/rajendra-chaudhary-v-union-of-india-2026bhc-as19094-db-malegaon-blast-case-1612660
+
+[Source Link](https://t.me/verdictumlegalupdates/26671)
+
+---
+
+### 2026-04-23T12:12:54+00:00
+Conviction For Trivial Juvenile Offence No Bar To Army Employment: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/union-of-india-and-others-v-pushpraj-singh-2026mphc-jbp28700-conviction-trivial-juvenile-offence-employment-1612659
+
+[Source Link](https://t.me/verdictumlegalupdates/26670)
+
+---
+
+### 2026-04-23T11:32:14+00:00
+Indian Courts Not Bound To Mechanically Enforce Foreign Interest Order, If Enforcement Contrary To Child’s Welfare: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/ankur-joshi-v-state-of-madhya-pradesh-2026mphc-ind10638-indian-courts-not-bound-foreign-interest-order-1612656
+
+[Source Link](https://t.me/verdictumlegalupdates/26669)
+
+---
+
+### 2026-04-23T10:52:41+00:00
+“Quashing POCSO Cases Not Anathema To Law”: Delhi High Court Lays Down Tests For Consent-Based Closure In Adolescent Relationship Cases
+https://www.verdictum.in/delhi-high-court/harmeet-singh-v-state-gnct-of-delhi-anr-2026dhc3142-pocso-case-quashed-1612655
+
+[Source Link](https://t.me/verdictumlegalupdates/26668)
+
+---
+
+### 2026-04-23T09:33:18+00:00
+Calcutta High Court Stays ECI’s “Blanket Direction” Labelling 800 Citizens As “Trouble-Makers”; Says Action Can Be Taken Under BNS By Competent Authorities
+https://www.verdictum.in/calcutta-high-court/md-danish-farooqui-v-election-commission-of-india-ors-trouble-makers-1612651
+
+[Source Link](https://t.me/verdictumlegalupdates/26667)
+
+---
+
+### 2026-04-23T08:52:57+00:00
+Contempt Proceedings Must Ordinarily Be Initiated Within One Year From The Date Of Alleged Contempt: Supreme Court
+https://www.verdictum.in/supreme-court/the-secretary-government-of-tamil-nadu-ors-v-s-raja-ors-2026-insc-407-1612648
+
+[Source Link](https://t.me/verdictumlegalupdates/26666)
 
 ---
 
@@ -97,70 +161,6 @@ Mere Initiation Of Tender Process For Subsequent Period Not Interference With Su
 https://www.verdictum.in/delhi-high-court/ms-kaushik-medical-store-v-union-of-india-2026dhc3263-db-initiation-tender-process-existing-contracts-1612612
 
 [Source Link](https://t.me/verdictumlegalupdates/26654)
-
----
-
-### 2026-04-22T13:02:39+00:00
-Calcutta High Court Upholds ECI Requisition Of College Teachers As Presiding Officers For West Bengal Assembly Elections
-https://www.verdictum.in/calcutta-high-court/the-election-commission-of-india-ors-v-rupa-banerjee-nee-samjpati-1612611
-
-[Source Link](https://t.me/verdictumlegalupdates/26653)
-
----
-
-### 2026-04-22T12:32:38+00:00
-WB I-PAC Raids|Supreme Court Says That Democracy Is Put In Peril If A Chief Minister Intervenes In A Probe
-https://www.verdictum.in/supreme-court/wb-i-pac-raidssupreme-court-says-that-democracy-is-put-in-peril-if-a-chief-minister-intervenes-in-a-probe-1612610
-
-[Source Link](https://t.me/verdictumlegalupdates/26652)
-
----
-
-### 2026-04-22T11:52:57+00:00
-Religion Is A Historical Reality, Not A Gift Of Constitution: Senior Advocate Rakesh Dwivedi Argues For Slow & Light Touch Of Judicial Review
-https://www.verdictum.in/supreme-court/senior-advocate-rakesh-dwivedi-judicial-review-sabarimala-1612606
-
-[Source Link](https://t.me/verdictumlegalupdates/26651)
-
----
-
-### 2026-04-22T11:23:15+00:00
-Courts Not Precluded From Inquiring & Determining Basic Tenets Of Religion: Senior Advocate Gopal Subramanium In Sabarimala Reference
-https://www.verdictum.in/supreme-court/sabarimala-senior-advocate-gopal-subramanium-organic-definition-religion-denominational-1612604
-
-[Source Link](https://t.me/verdictumlegalupdates/26650)
-
----
-
-### 2026-04-22T10:53:24+00:00
-DNA Test Showed That Man Is Not Her Biological Father: Supreme Court Upholds Order Denying Maintenance To Child
-https://www.verdictum.in/supreme-court/abc-v-xyz-2026-insc-399-dna-test-finality-order-denying-maintenance-child-1612603
-
-[Source Link](https://t.me/verdictumlegalupdates/26649)
-
----
-
-### 2026-04-22T10:12:22+00:00
-Supreme Court Asks Centre To file Affidavit On Plea By Balwant Singh Rajoana Seeking Commutation Of His Death Sentence
-https://www.verdictum.in/supreme-court/supreme-court-asks-centre-to-file-affidavit-on-plea-by-balwant-singh-rajoana-seeking-commutation-of-his-death-sentence-1612601
-
-[Source Link](https://t.me/verdictumlegalupdates/26648)
-
----
-
-### 2026-04-22T09:33:01+00:00
-Alienee Acquiring Interest In Deceased’s Estate Before Probate Proceedings An Interested Party: Supreme Court
-https://www.verdictum.in/supreme-court/s-leorex-sebastian-anr-v-sarojini-ors-2026-insc-400-succession-act-1612599
-
-[Source Link](https://t.me/verdictumlegalupdates/26647)
-
----
-
-### 2026-04-22T08:52:59+00:00
-Rejection Of Plaint Not Automatic Upon Finding Of Deficit Court Fee: Supreme Court
-https://www.verdictum.in/supreme-court/ms-marg-limited-v-sushil-lalwani-2026-insc-402-rejection-plaint-deficit-court-fee-1612594
-
-[Source Link](https://t.me/verdictumlegalupdates/26646)
 
 ---
 
