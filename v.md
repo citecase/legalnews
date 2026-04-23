@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-23T14:12:39+00:00*
+*Last Updated: 2026-04-23T16:03:04+00:00*
+
+---
+
+### 2026-04-23T16:03:04+00:00
+Consultant Vacancy At Bharat Heavy Electricals Limited (BHEL)
+https://www.verdictum.in/job-updates/bharat-heavy-electricals-limited-1612661
+
+[Source Link](https://t.me/verdictumlegalupdates/26676)
+
+---
+
+### 2026-04-23T15:32:42+00:00
+Writ Of Quo Warranto Not Maintainable Against KTDC Posts Lacking ‘Public Office’ Character: Kerala High Court Rejects 33-Year Delayed Challenge To Managers’ Appointments
+https://www.verdictum.in/kerala-high-court/g-sasidharan-v-state-of-kerala-2026ker30901-ktdc-posts-lacking-public-office-managers-appointments-1612668
+
+[Source Link](https://t.me/verdictumlegalupdates/26675)
+
+---
+
+### 2026-04-23T14:52:41+00:00
+Every Player In Digital Arrest Scam Plays Pivotal Role: Delhi High Court Denies Bail To 4 Men In ₹22 Cr Cyber Fraud Case
+https://www.verdictum.in/delhi-high-court/ashok-kumar-v-state-of-nct-of-delhi-2026dhc3358-player-digital-arrest-scam-bail-cyber-fraud-1612665
+
+[Source Link](https://t.me/verdictumlegalupdates/26674)
 
 ---
 
@@ -137,30 +161,6 @@ https://www.verdictum.in/supreme-court/adalat-yadav-ors-v-state-of-bihar-2026-in
 https://www.verdictum.in/bombay-high-court/lalan-kishor-singh-v-the-union-of-india-2026bhc-nag6103-db-pil-z-security-charges-rss-chief-1612622
 
 [Source Link](https://t.me/verdictumlegalupdates/26657)
-
----
-
-### 2026-04-22T14:32:24+00:00
-Constitutional Morality Was Never Meant To Create Restriction To Dilute Articles 25 & 26: Mukul Rohatgi In Sabarimala Reference
-https://www.verdictum.in/supreme-court/senior-advocate-mukul-rohatgi-sabarimala-reference-1612621
-
-[Source Link](https://t.me/verdictumlegalupdates/26656)
-
----
-
-### 2026-04-22T14:02:23+00:00
-Foreign Judgment Rendered In Summary Proceedings & Failing Section 13 CPC Test Not Enforceable In India: Supreme Court
-https://www.verdictum.in/supreme-court/messer-griesheim-gmbh-air-liquide-deutschland-gmbh-v-goyal-mg-gases-private-limited-2026-insc-401-1612613
-
-[Source Link](https://t.me/verdictumlegalupdates/26655)
-
----
-
-### 2026-04-22T13:33:21+00:00
-Mere Initiation Of Tender Process For Subsequent Period Not Interference With Subsisting Contractual Rights If Existing Contracts Can Run Full Course: Delhi High Court
-https://www.verdictum.in/delhi-high-court/ms-kaushik-medical-store-v-union-of-india-2026dhc3263-db-initiation-tender-process-existing-contracts-1612612
-
-[Source Link](https://t.me/verdictumlegalupdates/26654)
 
 ---
 
