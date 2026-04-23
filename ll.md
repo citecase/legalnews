@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-22T12:50:08+00:00*
+*Last Updated: 2026-04-23T06:15:26+00:00*
 
 ---
 
-### 2026-04-22T12:50:08+00:00
-2026 LiveLaw (SC) 411 | RAJEEV MEHTA @ RAJIV KISHOR KIRTILAL MEHTA VERSUS PARAM BIR SINGH
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-411-rajeev-mehta-rajiv-kishor-kirtilal-mehta-versus-param-bir-singh-531344
+### 2026-04-23T06:15:26+00:00
+MNLU Mumbai Hosts International Conference On Transformative Constitutionalism
+https://www.livelaw.in/lawschool/news/mnlu-mumbai-hosts-international-conference-on-transformative-constitutionalism-531424
 
-[Read on Telegram](https://t.me/livelawindia/109478)
-
----
-### 2026-04-22T13:02:29+00:00
-Fractured Ribs Or Treated Hip Dislocation Alone Cannot Establish Permanent Disability Without Medical Proof: Sikkim High Court
-https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-fractures-treated-injuries-prove-disability-531307
-
-[Read on Telegram](https://t.me/livelawindia/109479)
+[Read on Telegram](https://t.me/livelawindia/109521)
 
 ---
-### 2026-04-22T13:10:28+00:00
-Karnataka HC Directs IndiGo To Expeditiously Conclude Inquiry Against Pilot Suspended For Allegedly Refusing To Fly Over Fuel Discrepancy
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-issues-directions-indigo-pilot-suspension-post-fuel-discrepancy-row-531346
+### 2026-04-23T06:23:18+00:00
+'Land In Delhi Scarce': High Court Restores NDMC's ₹1063 Cr License Fee Demand From Hotel, Says Can't Burden Taxpayers
+https://www.livelaw.in/high-court/delhi-high-court/land-in-delhi-scarce-high-court-restores-ndmcs-1063-cr-license-fee-demand-from-hotel-says-cant-burden-taxpayers-531381
 
-[Read on Telegram](https://t.me/livelawindia/109480)
-
----
-### 2026-04-22T13:15:49+00:00
-Sabarimala Reference | How Can Judgment Be Challenged In Writ? Supreme Court Questions Plea Against Dawoodi Bohra Practice
-https://www.livelaw.in/top-stories/sabarimala-reference-how-can-judgment-be-challenged-in-writ-supreme-court-questions-plea-against-dawoodi-bohra-practice-531348
-
-[Read on Telegram](https://t.me/livelawindia/109481)
+[Read on Telegram](https://t.me/livelawindia/109522)
 
 ---
-### 2026-04-22T13:34:24+00:00
-Plea In Supreme Court Seeks Action Against PM Narendra Modi For Alleged MCC Violation By April 18 Speech
-https://www.livelaw.in/top-stories/plea-in-supreme-court-seeks-action-against-pm-narendra-modi-for-alleged-mcc-violation-by-april-18-speech-531349
+### 2026-04-23T06:32:20+00:00
+Citing Manusmriti, Rajasthan High Court Allows Recall Of Prosecutrix In Rape Case After Marriage With Accused; Considers Interest Of Child
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-allows-recall-rape-victim-protecting-marriage-531416
 
-[Read on Telegram](https://t.me/livelawindia/109482)
-
----
-### 2026-04-22T13:42:04+00:00
-“Punitive & Stigmatic”: AP High Court Reinstates Probationary Judicial Officer Discharged Over Alleged Misconduct Without Inquiry
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-ruling-discharge-probationary-judicial-officer-reinstatement-back-wages-stigmatic-punitive-531351
-
-[Read on Telegram](https://t.me/livelawindia/109483)
+[Read on Telegram](https://t.me/livelawindia/109523)
 
 ---
-### 2026-04-22T13:57:44+00:00
-Citizens Have Right To Protest In Democratic Set-Up But Public Places Can't Be Occupied Indefinitely: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-transport-workers-plea-indefinite-strike-freedom-park-531352
+### 2026-04-23T06:35:20+00:00
+Supreme Court Stays HC Judgment Convicting & Sentencing Ex-Chhattisgarh CM' Son Amit Jogi In 2003 Ram Avtar Jaggi Murder Case
+https://www.livelaw.in/top-stories/supreme-court-ex-chhattisgarh-cm-son-amit-jogi-plea-against-conviction-in-ncp-leader-ram-avtar-jaggi-murder-case-531428
 
-[Read on Telegram](https://t.me/livelawindia/109484)
-
----
-### 2026-04-22T14:18:04+00:00
-Service Records Are Personal Information, Exempted From Disclosure Under RTI Act: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-service-record-exempted-disclosure-rti-act-531306
-
-[Read on Telegram](https://t.me/livelawindia/109485)
+[Read on Telegram](https://t.me/livelawindia/109524)
 
 ---
-### 2026-04-22T14:32:54+00:00
-Know About Lookout Circular
-https://www.livelaw.in/know-the-law/lookout-circular-531354
+### 2026-04-23T06:46:40+00:00
+Delhi High Court Issues Notice On Activist's Plea To Vacate Injunction Over Posts Linking Hardeep Puri's Daughter To Epstein
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-issues-notice-vacate-injunction-posts-linking-hardeep-puri-daughter-epstein-531430
 
-[Read on Telegram](https://t.me/livelawindia/109486)
-
----
-### 2026-04-22T14:55:54+00:00
-Calcutta High Court Stays ECI Memo Branding 800 Persons As “Trouble-Makers”; Says It Cannot Issue “Blanket Direction” Beyond Statute
-https://www.livelaw.in/top-stories/calcutta-high-court-stays-eci-memo-branding-800-persons-as-trouble-makers-says-it-cannot-issue-blanket-direction-beyond-statute-531365
-
-[Read on Telegram](https://t.me/livelawindia/109487)
+[Read on Telegram](https://t.me/livelawindia/109525)
 
 ---
-### 2026-04-22T15:08:34+00:00
-No Bar On Second Maternity Leave Within 2 Years Of First: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-second-maternity-leave-2years-531367
+### 2026-04-23T06:52:20+00:00
+Congress MP Raja Warring Moves Punjab & Haryana High Court Seeking Stay On 'Lawrence Of Punjab' Web Series
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/plea-filed-seeking-stay-on-release-of-series-lawrence-of-punjab-on-ott-platform-531433
 
-[Read on Telegram](https://t.me/livelawindia/109488)
-
----
-### 2026-04-22T15:10:54+00:00
-Father Is Natural Guardian After Mother's Death, Ordinarily Most Suitable For Minor's Welfare: Allahabad HC Allows Habeas Plea
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-father-natural-guardian-mother-demise-suitable-minor-welfare-allahabad-hc-habeas-plea-531368
-
-[Read on Telegram](https://t.me/livelawindia/109489)
+[Read on Telegram](https://t.me/livelawindia/109526)
 
 ---
-### 2026-04-22T15:25:24+00:00
-Food Safety Officer Can't Seize Plant & Machinery Under FSS Act; Such Power Vests With Court: Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-food-safety-officer-cannot-seize-plant-machinery-under-food-safety-act-such-power-vests-with-court-531370
+### 2026-04-23T06:54:40+00:00
+Supreme Court Weekly Digest March 24 - 31, 2026
+https://www.livelaw.in/top-stories/supreme-court-judgments-and-orders-weekly-digest-531434
 
-[Read on Telegram](https://t.me/livelawindia/109490)
-
----
-### 2026-04-22T15:35:44+00:00
-Rajasthan High Court Grants Parole To Life Convict Despite Absconding History, Cites Long Incarceration
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-parole-grants-parole-murder-convict-absconding-history-531371
-
-[Read on Telegram](https://t.me/livelawindia/109491)
+[Read on Telegram](https://t.me/livelawindia/109527)
 
 ---
-### 2026-04-22T15:43:04+00:00
-Supreme Court Requests Allahabad HC CJ To Ensure Priority Disposal Of Long-Pending Service Disputes
-https://www.livelaw.in/supreme-court/supreme-court-requests-allahabad-hc-cj-to-ensure-priority-disposal-of-long-pending-service-disputes-531372
+### 2026-04-23T06:56:00+00:00
+Government Grants Act Prevails Over Rent Control Law : Supreme Court Sets Aside Eviction Proceedings Against Union Govt
+https://www.livelaw.in/supreme-court/government-grants-act-prevails-over-rent-control-law-supreme-court-sets-aside-eviction-proceedings-against-union-govt-531436
 
-[Read on Telegram](https://t.me/livelawindia/109492)
-
----
-### 2026-04-22T15:44:44+00:00
-2026 LiveLaw (SC) 412 | RAJENDRA SINGH BORA VERSUS UNION OF INDIA & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-412-rajendra-singh-bora-versus-union-of-india-ors-531373
-
-[Read on Telegram](https://t.me/livelawindia/109493)
+[Read on Telegram](https://t.me/livelawindia/109528)
 
 ---
-### 2026-04-22T15:49:04+00:00
-'Drug Peddlers Using Students As Sellers': Supreme Court Raises Concerns About Drug Trafficking In Educational Institutes
-https://www.livelaw.in/top-stories/supreme-court-raises-concerns-about-drug-trafficking-abuse-in-education-institutions-21-year-old-law-student-ganja-possession-case-531374
+### 2026-04-23T06:57:20+00:00
+2026 LiveLaw (SC) 413 | UNION OF INDIA VERSUS SIR SOBHA SINGH AND SONS PVT. LTD.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-413-union-of-india-versus-sir-sobha-singh-and-sons-pvt-ltd-531437
 
-[Read on Telegram](https://t.me/livelawindia/109494)
-
----
-### 2026-04-22T16:39:54+00:00
-Bombay High Court Directs RBI To Accept ₹2 Lakh In Demonetised Notes Seized By Police, Preventing Timely Exchange
-https://www.livelaw.in/high-court/bombay-high-court/rbi-exchange-demonitized-currency-notes-delayed-not-owners-fault-531378
-
-[Read on Telegram](https://t.me/livelawindia/109495)
+[Read on Telegram](https://t.me/livelawindia/109529)
 
 ---
-### 2026-04-22T17:07:14+00:00
-Supreme Court Daily Round-Up : April 22, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-22-2026-531375
+### 2026-04-23T06:57:40+00:00
+Illegal Mineral Transport To Bangladesh Border: Meghalaya HC Registers Suo Motu PIL, Flags “Disturbing Pattern Of Inaction”
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-illegal-mineral-transport-bangladesh-border-531382
 
-[Read on Telegram](https://t.me/livelawindia/109496)
+[Read on Telegram](https://t.me/livelawindia/109530)
 
 ---
-### 2026-04-23T01:44:00+00:00
-Centre Notifies Appointment Of Justice Lisa Gill As Chief Justice of Andhra Pradesh High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/centre-notifies-appointment-of-justice-lisa-gill-as-chief-justice-of-andhra-pradesh-high-court-531389
+### 2026-04-23T07:02:30+00:00
+Karnataka High Court Grants Two Weeks To WinZO Co-Founder Paavan Nanda To Respond To ED's Bail Cancellation Plea
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-winzo-cofounder-paavan-nanda-objections-ed-bail-cancellation-plea-531435
 
-[Read on Telegram](https://t.me/livelawindia/109497)
+[Read on Telegram](https://t.me/livelawindia/109531)
+
+---
+### 2026-04-23T07:03:00+00:00
+'Civil Court Lacks Jurisdiction' : Supreme Court In Boundary Dispute Between Maharashtra Panchayat & Municipality
+https://www.livelaw.in/supreme-court/civil-court-lacks-jurisdiction-supreme-court-in-boundary-dispute-between-maharashtra-panchayat-municipality-531439
+
+[Read on Telegram](https://t.me/livelawindia/109532)
+
+---
+### 2026-04-23T07:04:00+00:00
+2026 LiveLaw (SC) 414 |  UNCHGAON VILLAGE PANCHAYAT VERSUS KOLHAPUR MUNICIPAL CORPORATION AND ANOTHER
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-414-unchgaon-village-panchayat-versus-kolhapur-municipal-corporation-and-another-531441
+
+[Read on Telegram](https://t.me/livelawindia/109533)
+
+---
+### 2026-04-23T07:09:00+00:00
+RPNLU Prayagraj Marks Earth Day with Plantation Drive At Permanent Campus
+https://www.livelaw.in/lawschool/news/rpnlu-prayagraj-marks-earth-day-with-plantation-drive-at-permanent-campus-531443
+
+[Read on Telegram](https://t.me/livelawindia/109534)
+
+---
+### 2026-04-23T07:27:10+00:00
+Non-Examination of Independent Witness Not Fatal If Injured Eyewitness Testimony Is Of Sterling Quality : Supreme Court
+https://www.livelaw.in/supreme-court/non-examination-of-independent-witness-not-fatal-if-injured-eyewitness-testimony-is-of-sterling-quality-supreme-court-531445
+
+[Read on Telegram](https://t.me/livelawindia/109535)
+
+---
+### 2026-04-23T07:27:50+00:00
+2026 LiveLaw (SC) 415 | ADALAT YADAV ETC. VERSUS THE STATE OF BIHAR
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-415-adalat-yadav-etc-versus-the-state-of-bihar-531446
+
+[Read on Telegram](https://t.me/livelawindia/109536)
+
+---
+### 2026-04-23T07:33:10+00:00
+CPC Procedure Applicable To Trial Of Election Petitions Only Subject To Provisions Of Representation Of People Act; Contrary Provisions Cannot Be Invoked: J&K High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-cpc-procedure-applicable-to-trial-of-election-petitions-only-subject-to-provisions-of-representation-of-people-act-contrary-provisions-cannot-be-invoked-531419
+
+[Read on Telegram](https://t.me/livelawindia/109537)
+
+---
+### 2026-04-23T07:37:50+00:00
+Legal Counsel (Litigation) Vacancy At Tata Consultancy Services Limited
+https://www.livelaw.in/job-updates/legal-counsel-litigation-vacancy-at-tata-consultancy-services-limited-531449
+
+[Read on Telegram](https://t.me/livelawindia/109538)
+
+---
+### 2026-04-23T07:47:30+00:00
+Magistrate's Power Under S.204(4) CrPC To Dismiss Complaint Must Be Exercised Judiciously With Reasoned Orders: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/magistrates-power-dismiss-complaints-section-2044-reasoned-orders-531420
+
+[Read on Telegram](https://t.me/livelawindia/109539)
+
+---
+### 2026-04-23T08:02:31+00:00
+No Bar On Appointment Of Teachers In UP Basic Education Institution For Involvement In Journalism: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-appointment-teachers-up-basic-education-institution-involved-journalism-531425
+
+[Read on Telegram](https://t.me/livelawindia/109540)
 
 ---
