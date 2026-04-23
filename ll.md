@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-22T12:48:28+00:00*
+*Last Updated: 2026-04-22T12:50:08+00:00*
 
 ---
 
-### 2026-04-22T12:48:28+00:00
-S. 225 BNSS | Magistrate Must Conduct Inquiry Or Order Probe Before Proceeding Against Accused Outside Jurisdiction : Supreme Court
-https://www.livelaw.in/supreme-court/s-225-bnss-magistrate-must-conduct-inquiry-or-order-probe-before-proceeding-against-accused-outside-jurisdiction-supreme-court-531343
-
-[Read on Telegram](https://t.me/livelawindia/109477)
-
----
 ### 2026-04-22T12:50:08+00:00
 2026 LiveLaw (SC) 411 | RAJEEV MEHTA @ RAJIV KISHOR KIRTILAL MEHTA VERSUS PARAM BIR SINGH
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-411-rajeev-mehta-rajiv-kishor-kirtilal-mehta-versus-param-bir-singh-531344
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : April 22, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-22-2026-531375
 
 [Read on Telegram](https://t.me/livelawindia/109496)
+
+---
+### 2026-04-23T01:44:00+00:00
+Centre Notifies Appointment Of Justice Lisa Gill As Chief Justice of Andhra Pradesh High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/centre-notifies-appointment-of-justice-lisa-gill-as-chief-justice-of-andhra-pradesh-high-court-531389
+
+[Read on Telegram](https://t.me/livelawindia/109497)
 
 ---
