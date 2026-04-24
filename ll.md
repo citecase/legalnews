@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-24T05:17:15+00:00*
+*Last Updated: 2026-04-24T10:56:44+00:00*
 
 ---
 
-### 2026-04-24T05:17:15+00:00
-Manager/ Coordinator Vacancy At District Child Protection Unit Nicobar District Car Nicobar
-https://www.livelaw.in/job-updates/manager-coordinator-vacancy-at-district-child-protection-unit-nicobar-district-car-nicobar-531570
+### 2026-04-24T10:56:44+00:00
+Zee5 To Move Delhi High Court Against Centre's Advisory Not To Release 'Lawrence Of Punjab' Web Series
+https://www.livelaw.in/high-court/delhi-high-court/lawrence-of-bishnoi-zee5-web-series-information-ministry-531641
 
-[Read on Telegram](https://t.me/livelawindia/109604)
-
----
-### 2026-04-24T05:20:05+00:00
-Uttam Nagar Holi Violence: Delhi High Court Grants Police Protection To Deceased's Family
-https://www.livelaw.in/high-court/delhi-high-court/uttam-nagar-holi-violence-delhi-high-court-grants-police-protection-to-deceaseds-family-531572
-
-[Read on Telegram](https://t.me/livelawindia/109605)
+[Read on Telegram](https://t.me/livelawindia/109638)
 
 ---
-### 2026-04-24T05:27:05+00:00
-Citing Vedas, Madras High Court Orders Action Against Those Polluting Village Tank For Fish Farming
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-water-pollution-great-sin-fish-farming-in-tank-action-531574
+### 2026-04-24T11:08:04+00:00
+'Parties Cannot Raise Additional Claims Beyond Settlement Terms After Voluntarily Entering Into Compromise': Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-dismisses-claim-interest-compromise-531621
 
-[Read on Telegram](https://t.me/livelawindia/109606)
-
----
-### 2026-04-24T05:32:05+00:00
-Supreme Court Orders Reinstatement Of Gujarat Judicial Officer, Quashes De Novo Inquiry After First Inquiry Report
-https://www.livelaw.in/supreme-court/supreme-court-orders-reinstatement-of-gujarat-judicial-officer-quashes-de-novo-inquiry-after-first-inquiry-report-531577
-
-[Read on Telegram](https://t.me/livelawindia/109607)
+[Read on Telegram](https://t.me/livelawindia/109639)
 
 ---
-### 2026-04-24T05:32:25+00:00
-2026 LiveLaw (SC) 420 | CHANDNI PRATEEK SHARMA v HIGH CIURT OF GUJARAT
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-420-chandni-prateek-sharma-v-high-ciurt-of-gujarat-531578
+### 2026-04-24T11:09:04+00:00
+Cheque Dishonour | Civil Compromise Decree Doesn't Automatically Bar Section 138 NI Act Prosecution: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-compromise-decree-criminal-prosecution-ni-act-531643
 
-[Read on Telegram](https://t.me/livelawindia/109608)
-
----
-### 2026-04-24T05:50:53+00:00
-Delhi Riots Larger Conspiracy Case: High Court Rejects Delhi Police's Appeal Against Bail To Ishrat Jahan
-https://www.livelaw.in/high-court/delhi-high-court/delhi-riots-ishrat-jahan-bail-upheld-delhi-police-appeal-denied-531581
-
-[Read on Telegram](https://t.me/livelawindia/109609)
+[Read on Telegram](https://t.me/livelawindia/109640)
 
 ---
-### 2026-04-24T06:06:53+00:00
-Woman's Choice Relevant; Can't Force To Continue Unwanted Pregnancy Saying Child Can Be Given For Adoption : Supreme Court
-https://www.livelaw.in/top-stories/womans-choice-relevant-cant-force-her-to-continue-unwanted-pregnancy-saying-child-can-be-given-for-adoption-supreme-court-531585
+### 2026-04-24T11:14:54+00:00
+Allahabad HC Alters Murder Conviction Of Family Accused Of Killing Man Who 'Attempted' To Rape Their Daughter
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-alters-murder-conviction-family-accused-killing-man-attempted-rape-daughter-531645
 
-[Read on Telegram](https://t.me/livelawindia/109610)
-
----
-### 2026-04-24T06:08:13+00:00
-Brother Cannot Claim Deceased Hindu Woman's Estate Over Husband's Heirs U/S 15 Hindu Succession Act: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-section151-hindu-succession-act-constitutional-531586
-
-[Read on Telegram](https://t.me/livelawindia/109611)
+[Read on Telegram](https://t.me/livelawindia/109641)
 
 ---
-### 2026-04-24T06:10:33+00:00
-Allahabad High Court Imposes ₹15 Lakh Costs On Husband For Filing False Affidavits In Maintenance Case Against Wife
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-imposes-cost-husband-filing-false-affidavit-maintenance-case-against-wife-531587
+### 2026-04-24T11:17:34+00:00
+NIA Act | Special Court Must Transfer Case To Regular Criminal Court If No Scheduled Offence Is Found After Cognisance: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-even-after-taking-cognizance-if-special-court-finds-no-scheduled-offence-made-out-case-must-be-transferred-to-regular-criminal-court-under-section-20-of-nia-act-531622
 
-[Read on Telegram](https://t.me/livelawindia/109612)
-
----
-### 2026-04-24T06:26:53+00:00
-West Bengal SIR : Supreme Court Asks Election Duty Officers Excluded From Voter Roll To Approach Appellate Tribunal
-https://www.livelaw.in/top-stories/west-bengal-sir-supreme-court-asks-election-duty-officers-excluded-from-voter-roll-to-approach-appellate-tribunal-531592
-
-[Read on Telegram](https://t.me/livelawindia/109613)
+[Read on Telegram](https://t.me/livelawindia/109642)
 
 ---
-### 2026-04-24T06:32:13+00:00
-Calcutta High Court Quarterly Digest: January - March 2026
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-quarterly-digest-january-to-march-2026-531421
+### 2026-04-24T11:30:14+00:00
+Right To Speedy Trial Cannot Displace Conditions For Bail Under S 37 NDPS Act : Supreme Court
+https://www.livelaw.in/supreme-court/right-to-speedy-trial-cannot-displace-conditions-for-bail-under-s-37-ndps-act-supreme-court-531648
 
-[Read on Telegram](https://t.me/livelawindia/109614)
-
----
-### 2026-04-24T06:48:00+00:00
-Grama Nyaylaya Can't Exercise Jurisdiction Over Maintenance Proceedings In Areas Where Family Court Is Established: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/grama-nyaylaya-exercise-jurisdiction-maintenance-proceedings-family-court-established-531582
-
-[Read on Telegram](https://t.me/livelawindia/109615)
+[Read on Telegram](https://t.me/livelawindia/109643)
 
 ---
-### 2026-04-24T07:03:00+00:00
-Agreement With School Mandatory For School-Bus Transport Permit; Arrangement With Guardians Insufficient: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-children-safety-school-bus-transport-permit-531588
+### 2026-04-24T11:31:54+00:00
+2026 LiveLaw (SC) 421 |  State of Punjab v Sukhwinder Singh @ Gora
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-421-state-of-punjab-v-sukhwinder-singh-gora-531649
 
-[Read on Telegram](https://t.me/livelawindia/109616)
-
----
-### 2026-04-24T07:17:21+00:00
-Karnataka High Court Seeks State's Stand On Anganwadi Workers' Plea Against Mandatory Facial Recognition To Avail Take-Home Ration Scheme
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-anganwadi-workers-mandatory-facial-recognition-take-home-ration-poshan-20-531594
-
-[Read on Telegram](https://t.me/livelawindia/109617)
+[Read on Telegram](https://t.me/livelawindia/109644)
 
 ---
-### 2026-04-24T07:23:31+00:00
-Punjab & Haryana High Court Closes Plea Against 'Lawrence Of Punjab' Web Series After Centre Advises Zee5 Against Its Release
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/lawrence-of-punjab-centre-advise-zee5-against-its-release-lawrence-bishnoi-crime-glorified-531602
+### 2026-04-24T11:43:14+00:00
+“Writ Jurisdiction Cannot Be Permitted To Be Abused”: J&K&L High Court Imposes ₹50K Cost For Suppression Of Material Facts
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-writ-jurisdiction-cannot-be-permitted-to-be-invoked-as-instrument-of-abuse-court-imposes-50k-costs-for-suppression-of-material-facts-531591
 
-[Read on Telegram](https://t.me/livelawindia/109618)
-
----
-### 2026-04-24T07:33:14+00:00
-In Specific Performance Suit Onus On Plaintiff To Prove 'Readiness & Willingness' To Perform His Part Of Contract: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-specific-performance-suit-plaintiff-readiness-willingness-531596
-
-[Read on Telegram](https://t.me/livelawindia/109619)
+[Read on Telegram](https://t.me/livelawindia/109645)
 
 ---
-### 2026-04-24T07:35:34+00:00
-10 Indians In Russia Died Fighting Ukraine War, Many Went Voluntarily : Centre Tells Supreme Court
-https://www.livelaw.in/top-stories/10-indians-in-russia-died-fighting-ukraine-war-many-went-voluntarily-centre-tells-supreme-court-531605
+### 2026-04-24T11:55:24+00:00
+Continuation Of LOC Despite Stay Of Proceedings Curtails Right To Livelihood: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-right-livelihood-loc-stay-proceedings-531653
 
-[Read on Telegram](https://t.me/livelawindia/109620)
-
----
-### 2026-04-24T07:42:54+00:00
-Deletion Under Order 1 Rule 10 CPC Not Akin To Withdrawal Of Suit; Deleted Pendente Lite Purchaser Remains Bound By Decree: Bombay HC
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-deletion-defendant-order1rule10-cpc-withdrawal-suit-531589
-
-[Read on Telegram](https://t.me/livelawindia/109621)
+[Read on Telegram](https://t.me/livelawindia/109646)
 
 ---
-### 2026-04-24T07:47:54+00:00
-West Bengal SIR | Appellate Tribunals May Give Out-of-Turn Hearing If Urgency Shown : Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-west-bengal-sir-liberty-to-approach-calcutta-hc-appellate-tribunal-to-persons-with-pending-grievances-531608
+### 2026-04-24T12:07:24+00:00
+'Disturbing Trend': Allahabad HC Slams UP Cops For Investigating Marriages, Chasing Young Couples; Seeks DGP's Action
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-up-cops-investigating-marriages-chasing-young-couples-dgp-action-531655
 
-[Read on Telegram](https://t.me/livelawindia/109622)
+[Read on Telegram](https://t.me/livelawindia/109647)
 
 ---
-### 2026-04-24T08:03:14+00:00
-Allahabad High Court Dismisses 48-Year-Old Second Appeal For Want Of Substantial Question Of Law
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-reappreciate-evidence-substantial-questions-of-law-531606
+### 2026-04-24T12:22:44+00:00
+Judicial Grace In Addressing Bar Is Non-Negotiable; Courts Must Moderate Tone & Temper, Especially With Senior Advocates: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-judicial-conduct-and-temper-towards-bar-is-non-negotiable-aspect-of-judicial-grace-court-must-moderate-its-tone-and-tenor-531623
 
-[Read on Telegram](https://t.me/livelawindia/109623)
+[Read on Telegram](https://t.me/livelawindia/109648)
+
+---
+### 2026-04-24T12:48:14+00:00
+NGT Takes Suo Motu Cognizance Of Risks From Hanging Glaciers In Central Himalaya
+https://www.livelaw.in/environment/ngt-suo-motu-cognizance-hanging-glaciers-central-himalaya-531662
+
+[Read on Telegram](https://t.me/livelawindia/109649)
+
+---
+### 2026-04-24T12:48:24+00:00
+'In Touch With Indian Mujahideen, Spread Jihadi Material': Delhi High Court Denies Bail To UAPA Accused Despite 12 Years In Custody
+https://www.livelaw.in/high-court/delhi-high-court/uapa-bail-denied-indian-mujahideen-spread-jihadi-material-terror-links-531663
+
+[Read on Telegram](https://t.me/livelawindia/109650)
+
+---
+### 2026-04-24T12:50:14+00:00
+Mere Knowledge Of Second Marriage Insufficient To Implicate Relatives In Bigamy Offence : Supreme Court
+https://www.livelaw.in/supreme-court/mere-knowledge-of-second-marriage-insufficient-to-implicate-relatives-in-bigamy-offence-supreme-court-531664
+
+[Read on Telegram](https://t.me/livelawindia/109651)
+
+---
+### 2026-04-24T12:51:14+00:00
+2026 LiveLaw (SC) 421 |  SIVARAMAN NAIR AND OTHERS VERSUS STATE OF KERALA AND ANOTHER
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-421-sivaraman-nair-and-others-versus-state-of-kerala-and-another-531665
+
+[Read on Telegram](https://t.me/livelawindia/109652)
+
+---
+### 2026-04-24T13:02:14+00:00
+Cheque Dishonor | Accused Can't Challenge Conviction After Pleading Guilty To Avoid Compensation: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-quash-conviction-plead-guilty-underwent-imprisonment-531666
+
+[Read on Telegram](https://t.me/livelawindia/109653)
+
+---
+### 2026-04-24T13:12:54+00:00
+Bombay High Court Calls For Special Appellate Tribunals To Ensure Timely Adjudication Under Motor Vehicles Act & Railways Act
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-calls-for-special-appellate-tribunals-to-ensure-timely-adjudication-under-motor-vehicles-act-railways-act-531668
+
+[Read on Telegram](https://t.me/livelawindia/109654)
+
+---
+### 2026-04-24T13:29:54+00:00
+J&K&L High Court Upholds Detention Of Alleged OGW, Says Contact With Pakistani Terror Handler Shows Continuing Threat
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-trf-links-dark-web-contacts-with-pak-handler-show-continued-role-as-ogw-high-court-upholds-psa-detention-531670
+
+[Read on Telegram](https://t.me/livelawindia/109655)
+
+---
+### 2026-04-24T13:37:54+00:00
+'Power To Decide Includes Power To Initiate Proceedings; No Writ Petition Lies Against Blacklisting Show Cause Notice': Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-dismisses-challenge-blacklisting-show-cause-notice-531671
+
+[Read on Telegram](https://t.me/livelawindia/109656)
+
+---
+### 2026-04-24T13:40:54+00:00
+Transgenders Are Also Children Of God, Tragedy Is Not In Their Birth But In Blindness Of Society: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-transgender-peersons-children-god-rehabilittaion-schemes-531672
+
+[Read on Telegram](https://t.me/livelawindia/109657)
 
 ---
