@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-24T10:56:44+00:00*
+*Last Updated: 2026-04-24T11:43:14+00:00*
 
 ---
 
-### 2026-04-24T10:56:44+00:00
-Zee5 To Move Delhi High Court Against Centre's Advisory Not To Release 'Lawrence Of Punjab' Web Series
-https://www.livelaw.in/high-court/delhi-high-court/lawrence-of-bishnoi-zee5-web-series-information-ministry-531641
-
-[Read on Telegram](https://t.me/livelawindia/109638)
-
----
-### 2026-04-24T11:08:04+00:00
-'Parties Cannot Raise Additional Claims Beyond Settlement Terms After Voluntarily Entering Into Compromise': Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-dismisses-claim-interest-compromise-531621
-
-[Read on Telegram](https://t.me/livelawindia/109639)
-
----
-### 2026-04-24T11:09:04+00:00
-Cheque Dishonour | Civil Compromise Decree Doesn't Automatically Bar Section 138 NI Act Prosecution: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-compromise-decree-criminal-prosecution-ni-act-531643
-
-[Read on Telegram](https://t.me/livelawindia/109640)
-
----
-### 2026-04-24T11:14:54+00:00
-Allahabad HC Alters Murder Conviction Of Family Accused Of Killing Man Who 'Attempted' To Rape Their Daughter
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-alters-murder-conviction-family-accused-killing-man-attempted-rape-daughter-531645
-
-[Read on Telegram](https://t.me/livelawindia/109641)
-
----
-### 2026-04-24T11:17:34+00:00
-NIA Act | Special Court Must Transfer Case To Regular Criminal Court If No Scheduled Offence Is Found After Cognisance: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-even-after-taking-cognizance-if-special-court-finds-no-scheduled-offence-made-out-case-must-be-transferred-to-regular-criminal-court-under-section-20-of-nia-act-531622
-
-[Read on Telegram](https://t.me/livelawindia/109642)
-
----
-### 2026-04-24T11:30:14+00:00
-Right To Speedy Trial Cannot Displace Conditions For Bail Under S 37 NDPS Act : Supreme Court
-https://www.livelaw.in/supreme-court/right-to-speedy-trial-cannot-displace-conditions-for-bail-under-s-37-ndps-act-supreme-court-531648
-
-[Read on Telegram](https://t.me/livelawindia/109643)
-
----
-### 2026-04-24T11:31:54+00:00
-2026 LiveLaw (SC) 421 |  State of Punjab v Sukhwinder Singh @ Gora
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-421-state-of-punjab-v-sukhwinder-singh-gora-531649
-
-[Read on Telegram](https://t.me/livelawindia/109644)
-
----
 ### 2026-04-24T11:43:14+00:00
 “Writ Jurisdiction Cannot Be Permitted To Be Abused”: J&K&L High Court Imposes ₹50K Cost For Suppression Of Material Facts
 https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-writ-jurisdiction-cannot-be-permitted-to-be-invoked-as-instrument-of-abuse-court-imposes-50k-costs-for-suppression-of-material-facts-531591
@@ -142,5 +93,54 @@ Transgenders Are Also Children Of God, Tragedy Is Not In Their Birth But In Blin
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-transgender-peersons-children-god-rehabilittaion-schemes-531672
 
 [Read on Telegram](https://t.me/livelawindia/109657)
+
+---
+### 2026-04-24T14:03:05+00:00
+State Must Bridge “Rehabilitation Gap” In Mental Healthcare, Ensure Recovery Leads To Doorway, Not Dead-End: Patna HC
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-rehabilitation-gap-mental-healthcare-infrastructure-531673
+
+[Read on Telegram](https://t.me/livelawindia/109658)
+
+---
+### 2026-04-24T15:05:21+00:00
+WB Polls: Calcutta High Court Allows Bike Riding On Poll Day, Says EC Cannot Impose Blanket Restrictions In Name Of Free & Fair Polls
+https://www.livelaw.in/high-court/calcutta-high-court/wb-polls-calcutta-high-court-allows-bike-riding-on-poll-day-says-ec-cannot-impose-blanket-restrictions-in-name-of-free-fair-polls-531682
+
+[Read on Telegram](https://t.me/livelawindia/109659)
+
+---
+### 2026-04-24T15:08:01+00:00
+Centre Notifies Appointment Of Adv AK Preetha As Kerala High Court Judge
+https://www.livelaw.in/top-stories/centre-notifies-appointment-of-adv-ak-preetha-as-kerala-high-court-judge-531683
+
+[Read on Telegram](https://t.me/livelawindia/109660)
+
+---
+### 2026-04-24T15:22:26+00:00
+'Service Inam' Land Attached To Mosque Is Wakf Property, Can't Be Alienated : Supreme Court
+https://www.livelaw.in/supreme-court/service-inam-land-attached-to-mosque-is-wakf-property-cant-be-alienated-supreme-court-531684
+
+[Read on Telegram](https://t.me/livelawindia/109661)
+
+---
+### 2026-04-24T15:23:46+00:00
+2026 LiveLaw (SC) 423 |  A.P. STATE WAKF BOARD THROUGH CHAIRPERSON VERSUS JANAKI BUSAPPA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-423-ap-state-wakf-board-through-chairperson-versus-janaki-busappa-531685
+
+[Read on Telegram](https://t.me/livelawindia/109662)
+
+---
+### 2026-04-24T16:02:27+00:00
+Recruitment Process Cannot Be Scrapped Solely Over Non-Issuance Of EOI While Engaging Exam-Conducting Agency: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-recruitment-process-cannot-be-scrapped-solely-for-non-issuance-of-rfpeoi-while-engaging-exam-conducting-agency-531674
+
+[Read on Telegram](https://t.me/livelawindia/109663)
+
+---
+### 2026-04-24T16:09:56+00:00
+Supreme Court Issues Notice On Christian Michel James' Plea Against Extradition Treaty Clause
+https://www.livelaw.in/top-stories/supreme-court-agustawestland-vvip-chopper-case-christian-michel-james-plea-against-continued-detention-india-uae-extradition-treaty-notice-issued-531686
+
+[Read on Telegram](https://t.me/livelawindia/109664)
 
 ---
