@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-23T12:58:42+00:00*
+*Last Updated: 2026-04-24T05:17:15+00:00*
 
 ---
 
-### 2026-04-23T12:58:42+00:00
-Karnataka High Court Stays Order Directing Probe Against State Home Minister G Parameshwara In 'Illegal Betting' Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-stays-probe-against-state-home-minister-g-parameshwara-illegal-betting-case-531516
+### 2026-04-24T05:17:15+00:00
+Manager/ Coordinator Vacancy At District Child Protection Unit Nicobar District Car Nicobar
+https://www.livelaw.in/job-updates/manager-coordinator-vacancy-at-district-child-protection-unit-nicobar-district-car-nicobar-531570
 
-[Read on Telegram](https://t.me/livelawindia/109573)
-
----
-### 2026-04-23T13:07:53+00:00
-Karnataka High Court Stays FIR Against X User Booked For Reposting 'Fake' Video On State Energy Minister KJ George
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-reposted-fake-video-energy-minister-power-crisis-531518
-
-[Read on Telegram](https://t.me/livelawindia/109574)
+[Read on Telegram](https://t.me/livelawindia/109604)
 
 ---
-### 2026-04-23T13:33:53+00:00
-J&K&L High Court Flags Persistent Non-Filing Of Replies By Government; Seeks Presence Of Law Secretary
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-flags-persistent-non-filing-of-replies-by-government-seeks-presence-of-law-secretary-to-apprise-court-of-steps-taken-531520
+### 2026-04-24T05:20:05+00:00
+Uttam Nagar Holi Violence: Delhi High Court Grants Police Protection To Deceased's Family
+https://www.livelaw.in/high-court/delhi-high-court/uttam-nagar-holi-violence-delhi-high-court-grants-police-protection-to-deceaseds-family-531572
 
-[Read on Telegram](https://t.me/livelawindia/109575)
-
----
-### 2026-04-23T13:58:12+00:00
-Bhojshala Temple-Kamal Maula Dispute: MP High Court Directs ASI To Upload Survey Video On Secure Digital Platform For Litigant
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bhojshala-kamal-maula-dispute-videographic-records-of-survey-archaelogical-survey-of-india-531524
-
-[Read on Telegram](https://t.me/livelawindia/109576)
+[Read on Telegram](https://t.me/livelawindia/109605)
 
 ---
-### 2026-04-23T14:02:32+00:00
-General Land Register Entries Not Conclusive Proof Of Title, Cannot Override Revenue Records Or Natural Justice: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-entries-in-general-land-register-prepared-by-cantonment-board-cannot-be-treated-as-conclusive-proof-of-title-over-land-531473
+### 2026-04-24T05:27:05+00:00
+Citing Vedas, Madras High Court Orders Action Against Those Polluting Village Tank For Fish Farming
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-water-pollution-great-sin-fish-farming-in-tank-action-531574
 
-[Read on Telegram](https://t.me/livelawindia/109577)
-
----
-### 2026-04-23T14:03:12+00:00
-Victim's Failure To Raise Alarm Not Indicative Of Consent: Uttarakhand High Court Upholds POCSO Conviction
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-victim-raise-alarm-indicative-consent-pocso-conviction-531521
-
-[Read on Telegram](https://t.me/livelawindia/109578)
+[Read on Telegram](https://t.me/livelawindia/109606)
 
 ---
-### 2026-04-23T14:29:12+00:00
-CBI Arrests Tis Hazari Courts Reader for Allegedly Demanding ₹30,000 Bribe To Facilitate Bail
-https://www.livelaw.in/news-updates/cbi-arrests-tis-hazari-courts-reader-for-allegedly-demanding-30000-bribe-to-facilitate-bail-531532
+### 2026-04-24T05:32:05+00:00
+Supreme Court Orders Reinstatement Of Gujarat Judicial Officer, Quashes De Novo Inquiry After First Inquiry Report
+https://www.livelaw.in/supreme-court/supreme-court-orders-reinstatement-of-gujarat-judicial-officer-quashes-de-novo-inquiry-after-first-inquiry-report-531577
 
-[Read on Telegram](https://t.me/livelawindia/109579)
-
----
-### 2026-04-23T14:32:32+00:00
-Full Court Fee For Grant Of Letters Of Administration Payable Only When Application Is Allowed: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-court-fees-payable-application-grant-letters-administration-531523
-
-[Read on Telegram](https://t.me/livelawindia/109580)
+[Read on Telegram](https://t.me/livelawindia/109607)
 
 ---
-### 2026-04-23T14:32:42+00:00
-Doctrine Of Merger Vis-à- Vis Order 9 Rule 13 Explanation
-https://www.livelaw.in/articles/doctrine-of-merger-order9-rule13-explanation-531493
+### 2026-04-24T05:32:25+00:00
+2026 LiveLaw (SC) 420 | CHANDNI PRATEEK SHARMA v HIGH CIURT OF GUJARAT
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-420-chandni-prateek-sharma-v-high-ciurt-of-gujarat-531578
 
-[Read on Telegram](https://t.me/livelawindia/109581)
-
----
-### 2026-04-23T14:34:12+00:00
-Appellate Court Can Reverse/Modify Conviction Even Without Accused's Appeal : Supreme Court
-https://www.livelaw.in/supreme-court/appellate-court-can-reversemodify-conviction-even-without-accuseds-appeal-supreme-court-531533
-
-[Read on Telegram](https://t.me/livelawindia/109582)
+[Read on Telegram](https://t.me/livelawindia/109608)
 
 ---
-### 2026-04-23T14:45:02+00:00
-Delhi Court Directs Aam Aadmi Party, Saurabh Bhardwaj To Take Down Defamatory Content Against BJP MP Bansuri Swaraj
-https://www.livelaw.in/news-updates/delhi-court-directs-aam-aadmi-party-saurabh-bhardwaj-to-take-down-defamatory-content-against-bjp-mp-bansuri-swaraj-531535
+### 2026-04-24T05:50:53+00:00
+Delhi Riots Larger Conspiracy Case: High Court Rejects Delhi Police's Appeal Against Bail To Ishrat Jahan
+https://www.livelaw.in/high-court/delhi-high-court/delhi-riots-ishrat-jahan-bail-upheld-delhi-police-appeal-denied-531581
 
-[Read on Telegram](https://t.me/livelawindia/109583)
-
----
-### 2026-04-23T14:56:02+00:00
-MP High Court Recalls Order Asking Registrar General To Approach SC Against Own Judge's Remarks On Sessions Judge
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-recalls-direction-special-leave-petition-supreme-court-531536
-
-[Read on Telegram](https://t.me/livelawindia/109584)
+[Read on Telegram](https://t.me/livelawindia/109609)
 
 ---
-### 2026-04-23T15:08:02+00:00
-Rajasthan High Court Issues Notice To Centre On Plea Challenging Transgender Persons Amendment Act, 2026
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-issues-notice-transgender-persons-amendment-act2026-531537
+### 2026-04-24T06:06:53+00:00
+Woman's Choice Relevant; Can't Force To Continue Unwanted Pregnancy Saying Child Can Be Given For Adoption : Supreme Court
+https://www.livelaw.in/top-stories/womans-choice-relevant-cant-force-her-to-continue-unwanted-pregnancy-saying-child-can-be-given-for-adoption-supreme-court-531585
 
-[Read on Telegram](https://t.me/livelawindia/109585)
-
----
-### 2026-04-23T15:12:02+00:00
-Conviction For Trivial Offence As Juvenile No Bar To Employment In Defence Services: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-conviction-trivial-juvenile-offence-army-employment-juvenile-justice-act-531538
-
-[Read on Telegram](https://t.me/livelawindia/109586)
+[Read on Telegram](https://t.me/livelawindia/109610)
 
 ---
-### 2026-04-23T15:12:42+00:00
-Firearm License Cannot Be Cancelled On Mere FIR Without Mention Of Misuse Of Firearm: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-firearm-license-cancelled-misuse-firearm-531539
+### 2026-04-24T06:08:13+00:00
+Brother Cannot Claim Deceased Hindu Woman's Estate Over Husband's Heirs U/S 15 Hindu Succession Act: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-section151-hindu-succession-act-constitutional-531586
 
-[Read on Telegram](https://t.me/livelawindia/109587)
-
----
-### 2026-04-23T15:47:12+00:00
-Delhi High Court Directs Rapido To Ensure Continued Accessibility For Visually Impaired Users
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-rapido-to-ensure-continued-accessibility-for-visually-impaired-users-531541
-
-[Read on Telegram](https://t.me/livelawindia/109588)
+[Read on Telegram](https://t.me/livelawindia/109611)
 
 ---
-### 2026-04-23T16:02:12+00:00
-Uttarakhand HC Denies Bail To Alleged 'Outside Solver' In Recruitment Exam Cheating Case, Cites WhatsApp Chats & Real-Time Question Solving
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-recruitment-exam-cheating-case-digital-evidence-531540
+### 2026-04-24T06:10:33+00:00
+Allahabad High Court Imposes ₹15 Lakh Costs On Husband For Filing False Affidavits In Maintenance Case Against Wife
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-imposes-cost-husband-filing-false-affidavit-maintenance-case-against-wife-531587
 
-[Read on Telegram](https://t.me/livelawindia/109589)
-
----
-### 2026-04-23T16:21:32+00:00
-Wife's Modest Salary Doesn't Bridge Status Gap, Unemployed Husband Has 'Substantial Earning Capacity': Karnataka HC Upholds ₹20K Maintenance
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-upholds-maintenance-wife-531543
-
-[Read on Telegram](https://t.me/livelawindia/109590)
+[Read on Telegram](https://t.me/livelawindia/109612)
 
 ---
-### 2026-04-23T16:43:22+00:00
-NIA Projected 'Altogether New Story', Ignored Findings Of ATS & CBI: Bombay High Court While Discharging Four In 2006 Malegaon Blasts
-https://www.livelaw.in/high-court/bombay-high-court/malegaon-blasts-nia-projected-altogether-new-story-ignored-findings-of-ats-cbi-531544
+### 2026-04-24T06:26:53+00:00
+West Bengal SIR : Supreme Court Asks Election Duty Officers Excluded From Voter Roll To Approach Appellate Tribunal
+https://www.livelaw.in/top-stories/west-bengal-sir-supreme-court-asks-election-duty-officers-excluded-from-voter-roll-to-approach-appellate-tribunal-531592
 
-[Read on Telegram](https://t.me/livelawindia/109591)
+[Read on Telegram](https://t.me/livelawindia/109613)
 
 ---
-### 2026-04-23T16:52:22+00:00
-Supreme Court Daily Round-Up : April 23, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-23-2026-531534
+### 2026-04-24T06:32:13+00:00
+Calcutta High Court Quarterly Digest: January - March 2026
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-quarterly-digest-january-to-march-2026-531421
 
-[Read on Telegram](https://t.me/livelawindia/109592)
+[Read on Telegram](https://t.me/livelawindia/109614)
+
+---
+### 2026-04-24T06:48:00+00:00
+Grama Nyaylaya Can't Exercise Jurisdiction Over Maintenance Proceedings In Areas Where Family Court Is Established: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/grama-nyaylaya-exercise-jurisdiction-maintenance-proceedings-family-court-established-531582
+
+[Read on Telegram](https://t.me/livelawindia/109615)
+
+---
+### 2026-04-24T07:03:00+00:00
+Agreement With School Mandatory For School-Bus Transport Permit; Arrangement With Guardians Insufficient: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-children-safety-school-bus-transport-permit-531588
+
+[Read on Telegram](https://t.me/livelawindia/109616)
+
+---
+### 2026-04-24T07:17:21+00:00
+Karnataka High Court Seeks State's Stand On Anganwadi Workers' Plea Against Mandatory Facial Recognition To Avail Take-Home Ration Scheme
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-anganwadi-workers-mandatory-facial-recognition-take-home-ration-poshan-20-531594
+
+[Read on Telegram](https://t.me/livelawindia/109617)
+
+---
+### 2026-04-24T07:23:31+00:00
+Punjab & Haryana High Court Closes Plea Against 'Lawrence Of Punjab' Web Series After Centre Advises Zee5 Against Its Release
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/lawrence-of-punjab-centre-advise-zee5-against-its-release-lawrence-bishnoi-crime-glorified-531602
+
+[Read on Telegram](https://t.me/livelawindia/109618)
+
+---
+### 2026-04-24T07:33:14+00:00
+In Specific Performance Suit Onus On Plaintiff To Prove 'Readiness & Willingness' To Perform His Part Of Contract: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-specific-performance-suit-plaintiff-readiness-willingness-531596
+
+[Read on Telegram](https://t.me/livelawindia/109619)
+
+---
+### 2026-04-24T07:35:34+00:00
+10 Indians In Russia Died Fighting Ukraine War, Many Went Voluntarily : Centre Tells Supreme Court
+https://www.livelaw.in/top-stories/10-indians-in-russia-died-fighting-ukraine-war-many-went-voluntarily-centre-tells-supreme-court-531605
+
+[Read on Telegram](https://t.me/livelawindia/109620)
+
+---
+### 2026-04-24T07:42:54+00:00
+Deletion Under Order 1 Rule 10 CPC Not Akin To Withdrawal Of Suit; Deleted Pendente Lite Purchaser Remains Bound By Decree: Bombay HC
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-deletion-defendant-order1rule10-cpc-withdrawal-suit-531589
+
+[Read on Telegram](https://t.me/livelawindia/109621)
+
+---
+### 2026-04-24T07:47:54+00:00
+West Bengal SIR | Appellate Tribunals May Give Out-of-Turn Hearing If Urgency Shown : Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-west-bengal-sir-liberty-to-approach-calcutta-hc-appellate-tribunal-to-persons-with-pending-grievances-531608
+
+[Read on Telegram](https://t.me/livelawindia/109622)
+
+---
+### 2026-04-24T08:03:14+00:00
+Allahabad High Court Dismisses 48-Year-Old Second Appeal For Want Of Substantial Question Of Law
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-reappreciate-evidence-substantial-questions-of-law-531606
+
+[Read on Telegram](https://t.me/livelawindia/109623)
 
 ---
