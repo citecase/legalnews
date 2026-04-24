@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-24T08:02:58+00:00*
+*Last Updated: 2026-04-24T13:53:02+00:00*
+
+---
+
+### 2026-04-24T13:53:02+00:00
+Absence Of Handwriting Expert’s Opinion On Signatures Not Fatal To Prosecution In Corruption Cases Where Evidence Proves Guilt: Kerala High Court
+https://www.verdictum.in/kerala-high-court/radhakrishnan-nair-v-state-of-kerala-2026ker31233-prevention-of-corruption-act-1612741
+
+[Source Link](https://t.me/verdictumlegalupdates/26692)
+
+---
+
+### 2026-04-24T13:13:00+00:00
+Fish Farming Has To Be Organic: Madras High Court Says Village Pond Cannot Be Exploited For Fish Culture
+https://www.verdictum.in/madras-high-court/m-raja-v-district-collector-madurai-wpmd-no-9310-of-2026-village-pond-cannot-be-exploited-for-polluting-fish-culture-1612740
+
+[Source Link](https://t.me/verdictumlegalupdates/26691)
+
+---
+
+### 2026-04-24T12:32:58+00:00
+Right To Speedy Trial Cannot Dilute Mandatory Statutory Rigours U/S 37 NDPS Act: Supreme Court Sets Aside Bail Order
+https://www.verdictum.in/supreme-court/state-of-punjab-v-sukhwinder-singh-2026-insc-411-right-to-speedy-trial-dilute-section-37-bail-ndps-1612747
+
+[Source Link](https://t.me/verdictumlegalupdates/26690)
+
+---
+
+### 2026-04-24T11:13:16+00:00
+Lack Of Jurisdiction Strikes At The Root & Cannot Be Waived By Consent: Madhya Pradesh HC Holds High Court Cannot Appoint Arbitrator In ICA
+https://www.verdictum.in/madhya-pradesh-high-court/ms-ssangyong-engineering-and-construction-company-ltd-v-ms-sb-engineering-associates-mphc-jbp31454-ica-high-court-cannot-appoint-arbitrator-1612732
+
+[Source Link](https://t.me/verdictumlegalupdates/26689)
+
+---
+
+### 2026-04-24T11:13:05+00:00
+He Has Dragged Innocent Lady Into Controversy To Gain Political Mileage: Gauhati High Court Rejects Anticipatory Bail Plea Of Pawan Khera
+https://www.verdictum.in/guwahati-high-court/gauhati-high-court-rejects-anticipatory-bail-pawan-khera-1612733
+
+[Source Link](https://t.me/verdictumlegalupdates/26688)
+
+---
+
+### 2026-04-24T10:32:34+00:00
+Every Indian Citizen Who Needs Support Is Being Supported: Centre Informs Supreme Court Of Fatalities Among Indians Trafficked To Russia-Ukraine War Zone
+https://www.verdictum.in/supreme-court/russia-ukraine-war-zone-died-war-indian-centre-asg-bhati-1612731
+
+[Source Link](https://t.me/verdictumlegalupdates/26687)
+
+---
+
+### 2026-04-24T10:02:52+00:00
+Contradictory Positions Across Different Forums On Debt Quantum Bar Creditor From Pressing Insolvency Proceedings: Supreme Court Imposes ₹5 Lakh Costs
+https://www.verdictum.in/supreme-court/anjani-technoplast-ltd-v-shubh-gautam-2026-insc-410-contradictory-positions-insolvency-proceedings-1612729
+
+[Source Link](https://t.me/verdictumlegalupdates/26686)
+
+---
+
+### 2026-04-24T09:22:41+00:00
+Supreme Court Orders All-Female SIT To Probe Ghaziabad Minor’s Death Amid Allegations Of Police Coercion & Hospital Negligence
+https://www.verdictum.in/supreme-court/sit-ghaziabad-minor-death-police-coercion-hospital-negligence-1612728
+
+[Source Link](https://t.me/verdictumlegalupdates/26685)
+
+---
+
+### 2026-04-24T08:52:39+00:00
+Judicial Officer's Official Vehicle Not "Protected" Public Property Under PDPP Act: Kerala High Court Quashes Case Against Bus Driver For Hitting MACT Judge’s Car
+https://www.verdictum.in/kerala-high-court/shajeer-v-state-of-kerala-2026ker32850-public-property-damage-judge-car-bus-crash-1612725
+
+[Source Link](https://t.me/verdictumlegalupdates/26684)
 
 ---
 
@@ -89,78 +161,6 @@ Subsequent Acquittal Does Not Efface Suppression Of Pending Criminal Case: Delhi
 https://www.verdictum.in/delhi-high-court/rajkiran-yadav-v-state-bank-of-india-2026dhc3284-bank-employee-withholding-material-information-acquittal-1612667
 
 [Source Link](https://t.me/verdictumlegalupdates/26673)
-
----
-
-### 2026-04-23T13:32:57+00:00
-Single Achievement No Basis For Claiming Personality Rights: Delhi High Court In Dispute Involving CLAT Topper Geetali Gupta, LegalEdge
-https://www.verdictum.in/delhi-high-court/toprankers-edtech-solutions-private-limited-ors-v-lpt-edtech-private-limited-ors-1612666
-
-[Source Link](https://t.me/verdictumlegalupdates/26672)
-
----
-
-### 2026-04-23T12:52:35+00:00
-"Reached A Dead End": Bombay High Court Discharges Four Accused In Malegaon Blast Case Noticing Two Contradictory Stories By ATS & NIA
-https://www.verdictum.in/bombay-high-court/rajendra-chaudhary-v-union-of-india-2026bhc-as19094-db-malegaon-blast-case-1612660
-
-[Source Link](https://t.me/verdictumlegalupdates/26671)
-
----
-
-### 2026-04-23T12:12:54+00:00
-Conviction For Trivial Juvenile Offence No Bar To Army Employment: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/union-of-india-and-others-v-pushpraj-singh-2026mphc-jbp28700-conviction-trivial-juvenile-offence-employment-1612659
-
-[Source Link](https://t.me/verdictumlegalupdates/26670)
-
----
-
-### 2026-04-23T11:32:14+00:00
-Indian Courts Not Bound To Mechanically Enforce Foreign Interest Order, If Enforcement Contrary To Child’s Welfare: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/ankur-joshi-v-state-of-madhya-pradesh-2026mphc-ind10638-indian-courts-not-bound-foreign-interest-order-1612656
-
-[Source Link](https://t.me/verdictumlegalupdates/26669)
-
----
-
-### 2026-04-23T10:52:41+00:00
-“Quashing POCSO Cases Not Anathema To Law”: Delhi High Court Lays Down Tests For Consent-Based Closure In Adolescent Relationship Cases
-https://www.verdictum.in/delhi-high-court/harmeet-singh-v-state-gnct-of-delhi-anr-2026dhc3142-pocso-case-quashed-1612655
-
-[Source Link](https://t.me/verdictumlegalupdates/26668)
-
----
-
-### 2026-04-23T09:33:18+00:00
-Calcutta High Court Stays ECI’s “Blanket Direction” Labelling 800 Citizens As “Trouble-Makers”; Says Action Can Be Taken Under BNS By Competent Authorities
-https://www.verdictum.in/calcutta-high-court/md-danish-farooqui-v-election-commission-of-india-ors-trouble-makers-1612651
-
-[Source Link](https://t.me/verdictumlegalupdates/26667)
-
----
-
-### 2026-04-23T08:52:57+00:00
-Contempt Proceedings Must Ordinarily Be Initiated Within One Year From The Date Of Alleged Contempt: Supreme Court
-https://www.verdictum.in/supreme-court/the-secretary-government-of-tamil-nadu-ors-v-s-raja-ors-2026-insc-407-1612648
-
-[Source Link](https://t.me/verdictumlegalupdates/26666)
-
----
-
-### 2026-04-23T08:12:16+00:00
-Knowledge Is Not Welcome From WhatsApp University: Justice Nagarathna Says During Sabarimala Hearing
-https://www.verdictum.in/supreme-court/senior-advocate-neeraj-kishan-kaul-justice-nagarathna-sabarimala-1612650
-
-[Source Link](https://t.me/verdictumlegalupdates/26665)
-
----
-
-### 2026-04-23T07:22:34+00:00
-Determination Of Municipal Limits Under MMC Act Legislative In Nature; Civil Court Cannot Adjudicate Its Validity: Supreme Court
-https://www.verdictum.in/supreme-court/unchgaon-village-panchayat-ors-v-kolhapur-municipal-corporation-anr-2026-insc-405-1612647
-
-[Source Link](https://t.me/verdictumlegalupdates/26664)
 
 ---
 
