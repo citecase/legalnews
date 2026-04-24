@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-24T13:53:02+00:00*
+*Last Updated: 2026-04-24T16:02:44+00:00*
+
+---
+
+### 2026-04-24T16:02:44+00:00
+Legal Assistant Vacancy At Uttar Pradesh Subordinate Service Selection Commission (UPSSSC)
+https://www.verdictum.in/job-updates/uttar-pradesh-subordinate-service-selection-commission-1612743
+
+[Source Link](https://t.me/verdictumlegalupdates/26695)
+
+---
+
+### 2026-04-24T15:13:21+00:00
+Onus On Plaintiff To Prove Continuous Readiness And Willingness U/S 16 Specific Relief Act; May Be Inferred From Conduct: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/miskinbanu-jahidkhan-pathan-ors-v-alisher-subhanali-ansari-anr-2026gujhc27194-1612745
+
+[Source Link](https://t.me/verdictumlegalupdates/26694)
+
+---
+
+### 2026-04-24T14:33:03+00:00
+Husband’s Sister Excludes Deceased Woman’s Brother From Intestate Inheritance U/S 15(1) Hindu Succession Act: Bombay High Court
+https://www.verdictum.in/bombay-high-court/santsaran-gursaran-advani-alias-papan-advani-v-nina-h-bhalla-2026bhc-os9925-female-intestate-succession-us-151-hindu-succession-act-1612744
+
+[Source Link](https://t.me/verdictumlegalupdates/26693)
 
 ---
 
@@ -137,30 +161,6 @@ Consultant Vacancy At Bharat Heavy Electricals Limited (BHEL)
 https://www.verdictum.in/job-updates/bharat-heavy-electricals-limited-1612661
 
 [Source Link](https://t.me/verdictumlegalupdates/26676)
-
----
-
-### 2026-04-23T15:32:42+00:00
-Writ Of Quo Warranto Not Maintainable Against KTDC Posts Lacking ‘Public Office’ Character: Kerala High Court Rejects 33-Year Delayed Challenge To Managers’ Appointments
-https://www.verdictum.in/kerala-high-court/g-sasidharan-v-state-of-kerala-2026ker30901-ktdc-posts-lacking-public-office-managers-appointments-1612668
-
-[Source Link](https://t.me/verdictumlegalupdates/26675)
-
----
-
-### 2026-04-23T14:52:41+00:00
-Every Player In Digital Arrest Scam Plays Pivotal Role: Delhi High Court Denies Bail To 4 Men In ₹22 Cr Cyber Fraud Case
-https://www.verdictum.in/delhi-high-court/ashok-kumar-v-state-of-nct-of-delhi-2026dhc3358-player-digital-arrest-scam-bail-cyber-fraud-1612665
-
-[Source Link](https://t.me/verdictumlegalupdates/26674)
-
----
-
-### 2026-04-23T14:12:39+00:00
-Subsequent Acquittal Does Not Efface Suppression Of Pending Criminal Case: Delhi High Court Upholds Termination Of Bank Employee
-https://www.verdictum.in/delhi-high-court/rajkiran-yadav-v-state-bank-of-india-2026dhc3284-bank-employee-withholding-material-information-acquittal-1612667
-
-[Source Link](https://t.me/verdictumlegalupdates/26673)
 
 ---
 
