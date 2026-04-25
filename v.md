@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-25T07:12:21+00:00*
+*Last Updated: 2026-04-25T13:12:44+00:00*
+
+---
+
+### 2026-04-25T13:12:44+00:00
+Propriety Of Judicial Conduct & Temper In Addressing Members Of Bar Non-Negotiable Aspect Of Judicial Grace: J&K And Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/sanjay-kumar-anr-v-mohan-singh-anr-2026jklhc-jmu1084-rahul-bharti-1612796
+
+[Source Link](https://t.me/verdictumlegalupdates/26709)
+
+---
+
+### 2026-04-25T12:32:42+00:00
+Supreme Court Mandates Unified ICU Standards; Directs States To Prepare Immediate Implementation Action Plan
+https://www.verdictum.in/supreme-court/unified-icu-standards-states-implementation-action-plan-1612808
+
+[Source Link](https://t.me/verdictumlegalupdates/26708)
+
+---
+
+### 2026-04-25T11:52:41+00:00
+UAPA Bail Cannot Rest on Long Incarceration Alone When Continuing Threat Persists: Delhi High Court Denies Bail To Two Accused Allegedly Planning Delhi Terror Attack
+https://www.verdictum.in/delhi-high-court/mohd-saquib-ansari-v-state-nct-of-delhi-2026dhc3407-db-uapa-delhi-terror-attack-parity-rejected-1612792
+
+[Source Link](https://t.me/verdictumlegalupdates/26707)
+
+---
+
+### 2026-04-25T11:02:20+00:00
+Supreme Court Expressed Surprise After Rodents Destroyed Currency Notes Seized In Corruption Case
+https://www.verdictum.in/supreme-court/supreme-court-expressed-surprise-after-rodents-destroyed-currency-notes-seized-in-corruption-case-1612793
+
+[Source Link](https://t.me/verdictumlegalupdates/26706)
+
+---
+
+### 2026-04-25T10:32:38+00:00
+Knowledge Of Second Marriage Insufficient To Fasten Liability U/S 494 IPC On Husband’s Family; Participation Must Be Shown: Supreme Court
+https://www.verdictum.in/supreme-court/sivaraman-nair-ors-v-state-of-kerala-anr-2026-insc-412-section-494-1612791
+
+[Source Link](https://t.me/verdictumlegalupdates/26705)
+
+---
+
+### 2026-04-25T09:53:07+00:00
+Is High Court Rule Mandating Surrender Of Convict Before Considering Suspension Of Sentence Bar On Power U/s. 482 CrPC: SC Refers To Larger Bench
+https://www.verdictum.in/supreme-court/high-court-rules-surrendering-suspension-sentence-section-482-crpc-1612789
+
+[Source Link](https://t.me/verdictumlegalupdates/26704)
+
+---
+
+### 2026-04-25T09:12:26+00:00
+Prosecution Must Prove Action Of Burying Dead Animal Was With Intention To Spread Infectious Disease To Attract Offence U/s.270 IPC: Himachal Pradesh High Court
+https://www.verdictum.in/himachal-high-court/state-of-himachal-pradesh-v-gaurav-sharma-2026hhc5566-burying-dead-animal-section-270-ipc-1612786
+
+[Source Link](https://t.me/verdictumlegalupdates/26703)
+
+---
+
+### 2026-04-25T08:32:24+00:00
+“Trial Judge Influenced By Horror Of Incident”: Madras High Court Refuses To Confirm Death Sentence For A Father Accused Of POCSO Offences
+https://www.verdictum.in/madras-high-court/state-of-tamil-nadu-v-murugan-pocso-father-sexual-assault-daughter-death-sentence-1612785
+
+[Source Link](https://t.me/verdictumlegalupdates/26702)
+
+---
+
+### 2026-04-25T07:53:03+00:00
+Merits Of Proposed Plea Irrelevant At Amendment Stage; Legal Heirs Can Continue Bonafide Need Claim After Landlord’s Death: Supreme Court
+https://www.verdictum.in/supreme-court/vinay-raghunath-deshmukh-v-natwarlal-shamji-gada-2026-insc-416-legal-heirs-bonafide-landlords-death-1612780
+
+[Source Link](https://t.me/verdictumlegalupdates/26701)
 
 ---
 
@@ -89,78 +161,6 @@ Right To Speedy Trial Cannot Dilute Mandatory Statutory Rigours U/S 37 NDPS Act:
 https://www.verdictum.in/supreme-court/state-of-punjab-v-sukhwinder-singh-2026-insc-411-right-to-speedy-trial-dilute-section-37-bail-ndps-1612747
 
 [Source Link](https://t.me/verdictumlegalupdates/26690)
-
----
-
-### 2026-04-24T11:13:16+00:00
-Lack Of Jurisdiction Strikes At The Root & Cannot Be Waived By Consent: Madhya Pradesh HC Holds High Court Cannot Appoint Arbitrator In ICA
-https://www.verdictum.in/madhya-pradesh-high-court/ms-ssangyong-engineering-and-construction-company-ltd-v-ms-sb-engineering-associates-mphc-jbp31454-ica-high-court-cannot-appoint-arbitrator-1612732
-
-[Source Link](https://t.me/verdictumlegalupdates/26689)
-
----
-
-### 2026-04-24T11:13:05+00:00
-He Has Dragged Innocent Lady Into Controversy To Gain Political Mileage: Gauhati High Court Rejects Anticipatory Bail Plea Of Pawan Khera
-https://www.verdictum.in/guwahati-high-court/gauhati-high-court-rejects-anticipatory-bail-pawan-khera-1612733
-
-[Source Link](https://t.me/verdictumlegalupdates/26688)
-
----
-
-### 2026-04-24T10:32:34+00:00
-Every Indian Citizen Who Needs Support Is Being Supported: Centre Informs Supreme Court Of Fatalities Among Indians Trafficked To Russia-Ukraine War Zone
-https://www.verdictum.in/supreme-court/russia-ukraine-war-zone-died-war-indian-centre-asg-bhati-1612731
-
-[Source Link](https://t.me/verdictumlegalupdates/26687)
-
----
-
-### 2026-04-24T10:02:52+00:00
-Contradictory Positions Across Different Forums On Debt Quantum Bar Creditor From Pressing Insolvency Proceedings: Supreme Court Imposes ₹5 Lakh Costs
-https://www.verdictum.in/supreme-court/anjani-technoplast-ltd-v-shubh-gautam-2026-insc-410-contradictory-positions-insolvency-proceedings-1612729
-
-[Source Link](https://t.me/verdictumlegalupdates/26686)
-
----
-
-### 2026-04-24T09:22:41+00:00
-Supreme Court Orders All-Female SIT To Probe Ghaziabad Minor’s Death Amid Allegations Of Police Coercion & Hospital Negligence
-https://www.verdictum.in/supreme-court/sit-ghaziabad-minor-death-police-coercion-hospital-negligence-1612728
-
-[Source Link](https://t.me/verdictumlegalupdates/26685)
-
----
-
-### 2026-04-24T08:52:39+00:00
-Judicial Officer's Official Vehicle Not "Protected" Public Property Under PDPP Act: Kerala High Court Quashes Case Against Bus Driver For Hitting MACT Judge’s Car
-https://www.verdictum.in/kerala-high-court/shajeer-v-state-of-kerala-2026ker32850-public-property-damage-judge-car-bus-crash-1612725
-
-[Source Link](https://t.me/verdictumlegalupdates/26684)
-
----
-
-### 2026-04-24T08:02:58+00:00
-Sheena Bora Murder Case: Supreme Court Refuses To Entertain Indrani Mukerjea’s Fresh Plea To Travel Abroad
-https://www.verdictum.in/supreme-court/sheena-bora-murder-case-supreme-court-refuses-to-entertain-indrani-mukerjeas-fresh-plea-to-travel-abroad-1612723
-
-[Source Link](https://t.me/verdictumlegalupdates/26683)
-
----
-
-### 2026-04-24T07:32:56+00:00
-No Court Can Compel Minor To Carry Pregnancy Against Her Express Will: Apex Court Allows 15 YO To Terminate Over 7 Month Pregnancy
-https://www.verdictum.in/supreme-court/no-court-can-compel-minor-to-carry-pregnancy-against-her-express-will-apex-court-allows-15-yo-to-terminate-over-7-month-pregnancy-1612717
-
-[Source Link](https://t.me/verdictumlegalupdates/26682)
-
----
-
-### 2026-04-24T07:02:35+00:00
-Supreme Court Refers Plea Seeking Release Of AgustaWestland Middleman James To Another Bench
-https://www.verdictum.in/supreme-court/supreme-court-refers-plea-seeking-release-of-agustawestland-middleman-james-to-another-bench-1612712
-
-[Source Link](https://t.me/verdictumlegalupdates/26681)
 
 ---
 
