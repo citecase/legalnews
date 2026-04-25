@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-25T08:16:10+00:00*
+*Last Updated: 2026-04-25T09:12:41+00:00*
 
 ---
 
-### 2026-04-25T08:16:10+00:00
-Can High Court Exempt Convict From Surrendering Before Entertaining Revision/Appeal? Supreme Court Refers To Larger Bench
-https://www.livelaw.in/top-stories/can-high-court-exempt-convict-from-surrendering-before-entertaining-revisionappeal-supreme-court-refers-to-larger-bench-531732
-
-[Read on Telegram](https://t.me/livelawindia/109684)
-
----
-### 2026-04-25T08:22:30+00:00
-Delhi High Court Upholds Man's 15-Year Sentence For Rape Of Stepdaughters; Notes Mother's Was 'Torn Between Devil And Deep Sea'
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-upholds-mans-15-year-sentence-for-rape-of-stepdaughters-notes-mothers-silence-torn-between-devil-and-deep-sea-531730
-
-[Read on Telegram](https://t.me/livelawindia/109685)
-
----
-### 2026-04-25T08:26:50+00:00
-HPNLU Announces National Virtual IPR Essay Competition 2.0, 2026
-https://www.livelaw.in/lawschool/competitions/hpnlu-announces-national-virtual-ipr-essay-competition-20-2026-531734
-
-[Read on Telegram](https://t.me/livelawindia/109686)
-
----
-### 2026-04-25T08:33:01+00:00
-Atal Setu Suicide: Widow Moves Bombay High Court Seeking Death Certificate After Civic Bodies Deny Jurisdiction
-https://www.livelaw.in/high-court/bombay-high-court/atal-setu-suicide-widow-moves-bombay-high-court-seeking-death-certificate-after-civic-bodies-deny-jurisdiction-531712
-
-[Read on Telegram](https://t.me/livelawindia/109687)
-
----
-### 2026-04-25T09:09:40+00:00
-'Good Move': P&H High Court Backs Punjab's Crackdown On Content Glorifying Lawrence Bishnoi's Crimes
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-blocks-2600-links-relating-to-lawrence-bishnoi-interview-glorifying-crime-531737
-
-[Read on Telegram](https://t.me/livelawindia/109688)
-
----
 ### 2026-04-25T09:12:41+00:00
 Call For Papers: National Capital Law Journal (Vol. XXIII, 2024)
 https://www.livelaw.in/lawschool/call-for-papers/national-capital-law-journal-vol-xxiii-2024-531739
@@ -142,5 +107,40 @@ Kerala High Court Permits Vadakkumnatha Temple Advisory Committee To Put Up Adve
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-thrissur-pooram-vadakkumnath-temple-advertisement-board-531768
 
 [Read on Telegram](https://t.me/livelawindia/109703)
+
+---
+### 2026-04-25T13:33:25+00:00
+False Declaration Of Own Educational Qualification Not 'Corrupt Practice' U/S 123(4) RP Act: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/false-declaration-of-own-educational-qualification-not-corrupt-practice-us-1234-rp-act-delhi-high-court-531764
+
+[Read on Telegram](https://t.me/livelawindia/109704)
+
+---
+### 2026-04-25T14:38:01+00:00
+Delhi High Court Grants Interim Bail To Advocate In Cheating Case To Arrange Funds For Children's School Admission
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-grants-interim-bail-to-advocate-in-cheating-case-to-arrange-funds-for-childrens-school-admission-531765
+
+[Read on Telegram](https://t.me/livelawindia/109705)
+
+---
+### 2026-04-25T15:32:31+00:00
+Mere Criminal History Not Sufficient To Invoke Gangsters Act; Proof Of “Continuing Unlawful Activity” Essential: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-criminal-history-gangsters-act-531766
+
+[Read on Telegram](https://t.me/livelawindia/109706)
+
+---
+### 2026-04-25T16:26:50+00:00
+Congress MLA Vinay Kulkarni Moves Karnataka High Court Against Conviction, Life Sentence In Yogesh Goudar Murder Case
+https://www.livelaw.in/high-court/karnataka-high-court/congress-mla-vinay-kulkarni-moves-karnataka-high-court-conviction-life-term-bjp-leader-yogesh-goudars-murder-531784
+
+[Read on Telegram](https://t.me/livelawindia/109707)
+
+---
+### 2026-04-25T16:28:30+00:00
+Dental Student Suicide: Kerala Court Denies Pre-Arrest Bail To Prime Accused College HOD, Grants Relief To Second Accused Professor
+https://www.livelaw.in/news-updates/kerala-court-dental-student-suicide-anticipatory-bail-531785
+
+[Read on Telegram](https://t.me/livelawindia/109708)
 
 ---
