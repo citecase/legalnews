@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-25T13:12:44+00:00*
+*Last Updated: 2026-04-25T14:33:07+00:00*
+
+---
+
+### 2026-04-25T14:33:07+00:00
+Senior Executive (Legal) Vacancy At National Pension System Trust (NPS Trust)
+https://www.verdictum.in/job-updates/national-pension-system-trust-1612798
+
+[Source Link](https://t.me/verdictumlegalupdates/26711)
+
+---
+
+### 2026-04-25T13:52:25+00:00
+Allahabad High Court Slams Police Interference In Personal Liberty, Rebukes Police For "Investigating Marriages" Instead Of Crimes
+https://www.verdictum.in/allahabad-high-court/2026ahc88279db-xxxx-v-state-of-up-police-investigating-marriages-1612797
+
+[Source Link](https://t.me/verdictumlegalupdates/26710)
 
 ---
 
@@ -145,22 +161,6 @@ Absence Of Handwriting Expert’s Opinion On Signatures Not Fatal To Prosecution
 https://www.verdictum.in/kerala-high-court/radhakrishnan-nair-v-state-of-kerala-2026ker31233-prevention-of-corruption-act-1612741
 
 [Source Link](https://t.me/verdictumlegalupdates/26692)
-
----
-
-### 2026-04-24T13:13:00+00:00
-Fish Farming Has To Be Organic: Madras High Court Says Village Pond Cannot Be Exploited For Fish Culture
-https://www.verdictum.in/madras-high-court/m-raja-v-district-collector-madurai-wpmd-no-9310-of-2026-village-pond-cannot-be-exploited-for-polluting-fish-culture-1612740
-
-[Source Link](https://t.me/verdictumlegalupdates/26691)
-
----
-
-### 2026-04-24T12:32:58+00:00
-Right To Speedy Trial Cannot Dilute Mandatory Statutory Rigours U/S 37 NDPS Act: Supreme Court Sets Aside Bail Order
-https://www.verdictum.in/supreme-court/state-of-punjab-v-sukhwinder-singh-2026-insc-411-right-to-speedy-trial-dilute-section-37-bail-ndps-1612747
-
-[Source Link](https://t.me/verdictumlegalupdates/26690)
 
 ---
 
