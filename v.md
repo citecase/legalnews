@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-24T16:02:44+00:00*
+*Last Updated: 2026-04-25T07:12:21+00:00*
+
+---
+
+### 2026-04-25T07:12:21+00:00
+Service Inam Land Granted To Mosque Assumes Waqf Character & Cannot Be Alienated As Personal Property: Supreme Court
+https://www.verdictum.in/supreme-court/ap-state-wakf-board-v-janaki-busappa-ors-2026-insc-413-service-inam-1612776
+
+[Source Link](https://t.me/verdictumlegalupdates/26700)
+
+---
+
+### 2026-04-25T06:32:19+00:00
+Unsuccessful Party In Arbitration Can Seek Post-Award Interim Measures U/S 9 A&C Act: Supreme Court
+https://www.verdictum.in/supreme-court/home-care-retail-marts-pvt-ltd-v-haresh-n-sanghavi-2026-insc-415-unsuccessful-party-to-arbitration-agreement-1612773
+
+[Source Link](https://t.me/verdictumlegalupdates/26699)
+
+---
+
+### 2026-04-25T05:52:58+00:00
+Wife’s Employment No Bar To Maintenance When Unemployed Husband’s Past Lucrative Income Shows Earning Capacity: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/pmh-v-sw-husband-unemployed-wife-employed-maintenance-divorce-past-income-1612734
+
+[Source Link](https://t.me/verdictumlegalupdates/26698)
+
+---
+
+### 2026-04-25T05:02:37+00:00
+Centre Notifies Appointment Of Advocate As Kerala High Court Judge
+https://www.verdictum.in/kerala-high-court/centre-notifies-appointment-of-advocate-as-kerala-high-court-judge-1612767
+
+[Source Link](https://t.me/verdictumlegalupdates/26697)
+
+---
+
+### 2026-04-25T04:32:45+00:00
+Deletion Of Defendant Under Order 1 Rule 10 CPC Does Not Amount To Abandonment Of Claim: Bombay High Court
+https://www.verdictum.in/bombay-high-court/kashinath-ramji-shinde-deceased-through-lrs-v-pradip-madhavrao-shinde-ors-2026bhc-aug16901-1612746
+
+[Source Link](https://t.me/verdictumlegalupdates/26696)
 
 ---
 
@@ -121,46 +161,6 @@ Supreme Court Refers Plea Seeking Release Of AgustaWestland Middleman James To A
 https://www.verdictum.in/supreme-court/supreme-court-refers-plea-seeking-release-of-agustawestland-middleman-james-to-another-bench-1612712
 
 [Source Link](https://t.me/verdictumlegalupdates/26681)
-
----
-
-### 2026-04-24T06:32:53+00:00
-ICC Cannot Label Instigator Of False Sexual Harassment Complaint Under POSH Act As ‘Unknown’ When Identity Is Disclosed: Bombay High Court
-https://www.verdictum.in/bombay-high-court/abc-v-xyz-2026bhc-goa849-false-complaint-sexual-harassment-posh-act-1612708
-
-[Source Link](https://t.me/verdictumlegalupdates/26680)
-
----
-
-### 2026-04-24T05:52:32+00:00
-Absence Of Notice Cannot Extend Limitation U/S 8 WB Land Reforms Act For Contiguous Raiyat’s Pre-emption Claim: Supreme Court
-https://www.verdictum.in/supreme-court/sib-nath-chatterjee-v-tulsidas-chatterjee-2026-insc-409-us-8-wb-land-reforms-act-1955-for-contiguous-raiyats-1612701
-
-[Source Link](https://t.me/verdictumlegalupdates/26679)
-
----
-
-### 2026-04-24T05:12:50+00:00
-Litigant Can Seek Recovery Of Sale Consideration & Not Avoidance Of Sale Deed In Case Of Non-Payment Of Sale Consideration: Delhi High Court
-https://www.verdictum.in/delhi-high-court/akhilesh-gupta-v-rajwans-vadehra-2026dhc3189-plaintiff-recovery-sale-consideration-1612696
-
-[Source Link](https://t.me/verdictumlegalupdates/26678)
-
----
-
-### 2026-04-24T04:32:59+00:00
-Courts Cannot Reassess Merits Of Arbitral Award U/S 37 Arbitration Act; Can't Exceed Limits Of Judicial Interference: Delhi High Court
-https://www.verdictum.in/delhi-high-court/smt-prem-lata-surekha-v-sh-chakradhari-surekha-ors-dhc3298-db-ac-act-1612674
-
-[Source Link](https://t.me/verdictumlegalupdates/26677)
-
----
-
-### 2026-04-23T16:03:04+00:00
-Consultant Vacancy At Bharat Heavy Electricals Limited (BHEL)
-https://www.verdictum.in/job-updates/bharat-heavy-electricals-limited-1612661
-
-[Source Link](https://t.me/verdictumlegalupdates/26676)
 
 ---
 
