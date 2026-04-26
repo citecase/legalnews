@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-25T09:12:41+00:00*
+*Last Updated: 2026-04-25T12:42:35+00:00*
 
 ---
 
-### 2026-04-25T09:12:41+00:00
-Call For Papers: National Capital Law Journal (Vol. XXIII, 2024)
-https://www.livelaw.in/lawschool/call-for-papers/national-capital-law-journal-vol-xxiii-2024-531739
-
-[Read on Telegram](https://t.me/livelawindia/109689)
-
----
-### 2026-04-25T09:28:21+00:00
-NUALS Secures First At Jessup International Moot, Wins Best Applicant Memorial Award
-https://www.livelaw.in/lawschool/news/nuals-secures-first-at-jessup-international-moot-wins-best-applicant-memorial-award-531740
-
-[Read on Telegram](https://t.me/livelawindia/109690)
-
----
-### 2026-04-25T09:32:11+00:00
-Jammu & Kashmir And Ladakh High Court Quarterly Digest January 2026 - March 2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-quarterly-digest-january-2026-march-2026-citations-1-121-531731
-
-[Read on Telegram](https://t.me/livelawindia/109691)
-
----
-### 2026-04-25T09:33:11+00:00
-'Land Once Acquired Can't Be Returned Even If Purpose Not Achieved': Kerala High Court Refuses Reconveyance After 37 Years
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-land-acquisition-return-purpose-redundant-531713
-
-[Read on Telegram](https://t.me/livelawindia/109692)
-
----
-### 2026-04-25T09:43:11+00:00
-“Udaan – Adolescent Empowerment Programme” Workshop Held At MP High Court Gwalior Under NALSA Scheme
-https://www.livelaw.in/news-updates/udaan-adolescent-empowerment-programme-workshop-held-at-mp-high-court-gwalior-under-nalsa-scheme-531742
-
-[Read on Telegram](https://t.me/livelawindia/109693)
-
----
-### 2026-04-25T09:57:51+00:00
-'ED Complaint Can't Stand On Its Own When Predicate FIRs Are Stayed': WinZo Tells Karnataka High Court In Plea To Quash PMLA Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-hearing-winzo-quashing-petition-money-laundeting-case-enforcement-directorate-531745
-
-[Read on Telegram](https://t.me/livelawindia/109694)
-
----
-### 2026-04-25T10:08:12+00:00
-Uttarakhand High Court Enhances Motor Accident Compensation Without Cross-Appeal, Invokes Order 41 Rule 33 CPC
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-enhances-motor-accident-compensation-order41rule33-cpc-531728
-
-[Read on Telegram](https://t.me/livelawindia/109695)
-
----
-### 2026-04-25T10:32:41+00:00
-Difference Between Permanent Disability & General Physical Debility Can't Be Blurred To Deny Jobs To Coal Workers Kin: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-specific-permanent-disability-general-physical-debility-531705
-
-[Read on Telegram](https://t.me/livelawindia/109696)
-
----
-### 2026-04-25T11:08:11+00:00
-J&K&L High Court Upholds Posthumous Regularisation Of Employee Who Served 21 Years, Says Accrued Rights Cannot Be Defeated By Repeal Of Law
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-right-accrued-to-deceased-cannot-be-taken-away-retrospectively-repeal-of-act-cannot-defeat-crystalized-right-violating-articles-14-16-531729
-
-[Read on Telegram](https://t.me/livelawindia/109697)
-
----
-### 2026-04-25T11:27:01+00:00
-Supreme Court Seeks Assam Govt Response On Plea For CBI Probe Into Alleged Custodial Torture
-https://www.livelaw.in/top-stories/supreme-court-seeks-assam-govt-response-on-plea-for-cbi-probe-into-alleged-custodial-torture-531755
-
-[Read on Telegram](https://t.me/livelawindia/109698)
-
----
-### 2026-04-25T11:33:01+00:00
-DV Act | Magistrate Has Inherent Power To Restore Case Dismissed For Default If Sufficient Cause Shown: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-dv-act-magistrate-inherent-power-restoration-default-531724
-
-[Read on Telegram](https://t.me/livelawindia/109699)
-
----
-### 2026-04-25T11:46:01+00:00
-Plea In Supreme Court Challenges Exclusion Of New AORs From SCAORA Voter List For April 29 Elections
-https://www.livelaw.in/top-stories/plea-in-supreme-court-challenges-exclusion-of-new-aors-from-scaora-voter-list-for-april-29-elections-531757
-
-[Read on Telegram](https://t.me/livelawindia/109700)
-
----
-### 2026-04-25T12:19:55+00:00
-'Once A Judge Always A Judge': CJI Surya Kant Calls For National Registry Of Ex-Judges Willing To Serve In ADR & Legal Awareness
-https://www.livelaw.in/top-stories/once-a-judge-always-a-judge-cji-surya-kant-calls-for-national-registry-of-ex-judges-willing-to-serve-in-adr-legal-awareness-531760
-
-[Read on Telegram](https://t.me/livelawindia/109701)
-
----
 ### 2026-04-25T12:42:35+00:00
 Absence Of Suspension Provision In PoSH Act Doesn't Bar Employer From Suspending Employee Facing Inquiry: Delhi High Court
 https://www.livelaw.in/high-court/delhi-high-court/absence-of-suspension-provision-in-posh-act-doesnt-bar-employer-from-suspending-employee-facing-inquiry-delhi-high-court-531763
@@ -142,5 +51,96 @@ Dental Student Suicide: Kerala Court Denies Pre-Arrest Bail To Prime Accused Col
 https://www.livelaw.in/news-updates/kerala-court-dental-student-suicide-anticipatory-bail-531785
 
 [Read on Telegram](https://t.me/livelawindia/109708)
+
+---
+### 2026-04-26T03:32:32+00:00
+Custodial Torture | Complaints Authority Can Recommend Criminal Case Even Against Retired Officers U/S 110 Kerala Police Act: High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-custodial-torture-retired-police-officers-complaints-authority-531792
+
+[Read on Telegram](https://t.me/livelawindia/109709)
+
+---
+### 2026-04-26T04:32:52+00:00
+Punjab's Anti-Sacrilege Amendment: A Dangerous And Disproportionate Precedent
+https://www.livelaw.in/articles/punjab-anti-sacrilege-amendment-disproportionate-precedent-531779
+
+[Read on Telegram](https://t.me/livelawindia/109710)
+
+---
+### 2026-04-26T04:33:12+00:00
+Madras High Court Quarterly Digest: January to March 2026 [Citations 01 - 135]
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-quarterly-digest-january-to-march-2026-530795
+
+[Read on Telegram](https://t.me/livelawindia/109711)
+
+---
+### 2026-04-26T04:39:32+00:00
+Supreme Court Monthly Criminal Digest March 2026
+https://www.livelaw.in/supreme-court/supreme-court-monthly-criminal-digest-march-2026-531796
+
+[Read on Telegram](https://t.me/livelawindia/109712)
+
+---
+### 2026-04-26T05:07:32+00:00
+Court Cannot Direct Accused To Surrender While Rejecting Anticipatory Bail : Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-court-accused-surrender-rejecting-anticipatory-bail-private-complaint-case-531727
+
+[Read on Telegram](https://t.me/livelawindia/109713)
+
+---
+### 2026-04-26T05:30:42+00:00
+Landlord's Legal Heirs Can Amend Eviction Suit To Add Bona Fide Need :  Supreme Court
+https://www.livelaw.in/supreme-court/landlords-legal-heirs-can-amend-eviction-suit-to-add-bona-fide-need-supreme-court-531799
+
+[Read on Telegram](https://t.me/livelawindia/109714)
+
+---
+### 2026-04-26T05:33:02+00:00
+MP High Court Asks Scrutiny Committee To Decide Congress Leader's Plea Against Raigaon BJP MLA's Caste Certificate
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-congress-leader-bjp-mla-scheduled-caste-high-level-caste-scrutiny-committee-531786
+
+[Read on Telegram](https://t.me/livelawindia/109715)
+
+---
+### 2026-04-26T05:40:02+00:00
+Law Officers Vacancy At Indian Bureau Of Mines
+https://www.livelaw.in/job-updates/law-officers-vacancy-at-indian-bureau-of-mines-531800
+
+[Read on Telegram](https://t.me/livelawindia/109716)
+
+---
+### 2026-04-26T05:41:42+00:00
+Professor (Law), Associate Professor (Law), And Assistant Professor (Law) Vacancy At National Law University and Judicial Academy, Assam
+https://www.livelaw.in/job-updates/professor-law-associate-professor-law-and-assistant-professor-law-vacancy-at-national-law-university-and-judicial-academy-assam-531801
+
+[Read on Telegram](https://t.me/livelawindia/109717)
+
+---
+### 2026-04-26T05:57:22+00:00
+Manusrimiti, Arthashastra, Indic Values Must Be Taught To NLU Students; Most Disconnected From Roots : Justice Dharmadhikari
+https://www.livelaw.in/news-updates/justice-sa-dharmadhikari-nlu-prodigies-disconnect-cultural-ideological-roots-531802
+
+[Read on Telegram](https://t.me/livelawindia/109718)
+
+---
+### 2026-04-26T06:15:02+00:00
+Employer Can't Set Up Ad Hoc Fact-Finding Committee Before ICC Inquiry; Violates PoSH Act: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/employer-cant-set-up-ad-hoc-fact-finding-committee-before-icc-inquiry-violates-posh-act-delhi-high-court-531805
+
+[Read on Telegram](https://t.me/livelawindia/109719)
+
+---
+### 2026-04-26T06:32:52+00:00
+Surrogacy Can't Be Denied Saying Wife Is Not 'Perfect Woman': Telangana High Court Grants Relief To Married Woman With Chromosome Condition
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-woman-cais-surrogacy-eligibility-531793
+
+[Read on Telegram](https://t.me/livelawindia/109720)
+
+---
+### 2026-04-26T07:33:23+00:00
+Rejection Of Bid Despite Relevant Documents Arbitrary, Discriminatory: Allahabad High Court Stays Tender Process
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-bid-rejected-relevant-documents-decision-making-process-discriminatory-531794
+
+[Read on Telegram](https://t.me/livelawindia/109721)
 
 ---
