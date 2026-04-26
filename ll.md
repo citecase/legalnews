@@ -1,86 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-25T12:42:35+00:00*
+*Last Updated: 2026-04-26T05:07:32+00:00*
 
 ---
 
-### 2026-04-25T12:42:35+00:00
-Absence Of Suspension Provision In PoSH Act Doesn't Bar Employer From Suspending Employee Facing Inquiry: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/absence-of-suspension-provision-in-posh-act-doesnt-bar-employer-from-suspending-employee-facing-inquiry-delhi-high-court-531763
-
-[Read on Telegram](https://t.me/livelawindia/109702)
-
----
-### 2026-04-25T12:45:15+00:00
-Kerala High Court Permits Vadakkumnatha Temple Advisory Committee To Put Up Advertisement Boards During Thrissur Pooram
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-thrissur-pooram-vadakkumnath-temple-advertisement-board-531768
-
-[Read on Telegram](https://t.me/livelawindia/109703)
-
----
-### 2026-04-25T13:33:25+00:00
-False Declaration Of Own Educational Qualification Not 'Corrupt Practice' U/S 123(4) RP Act: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/false-declaration-of-own-educational-qualification-not-corrupt-practice-us-1234-rp-act-delhi-high-court-531764
-
-[Read on Telegram](https://t.me/livelawindia/109704)
-
----
-### 2026-04-25T14:38:01+00:00
-Delhi High Court Grants Interim Bail To Advocate In Cheating Case To Arrange Funds For Children's School Admission
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-grants-interim-bail-to-advocate-in-cheating-case-to-arrange-funds-for-childrens-school-admission-531765
-
-[Read on Telegram](https://t.me/livelawindia/109705)
-
----
-### 2026-04-25T15:32:31+00:00
-Mere Criminal History Not Sufficient To Invoke Gangsters Act; Proof Of “Continuing Unlawful Activity” Essential: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-criminal-history-gangsters-act-531766
-
-[Read on Telegram](https://t.me/livelawindia/109706)
-
----
-### 2026-04-25T16:26:50+00:00
-Congress MLA Vinay Kulkarni Moves Karnataka High Court Against Conviction, Life Sentence In Yogesh Goudar Murder Case
-https://www.livelaw.in/high-court/karnataka-high-court/congress-mla-vinay-kulkarni-moves-karnataka-high-court-conviction-life-term-bjp-leader-yogesh-goudars-murder-531784
-
-[Read on Telegram](https://t.me/livelawindia/109707)
-
----
-### 2026-04-25T16:28:30+00:00
-Dental Student Suicide: Kerala Court Denies Pre-Arrest Bail To Prime Accused College HOD, Grants Relief To Second Accused Professor
-https://www.livelaw.in/news-updates/kerala-court-dental-student-suicide-anticipatory-bail-531785
-
-[Read on Telegram](https://t.me/livelawindia/109708)
-
----
-### 2026-04-26T03:32:32+00:00
-Custodial Torture | Complaints Authority Can Recommend Criminal Case Even Against Retired Officers U/S 110 Kerala Police Act: High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-custodial-torture-retired-police-officers-complaints-authority-531792
-
-[Read on Telegram](https://t.me/livelawindia/109709)
-
----
-### 2026-04-26T04:32:52+00:00
-Punjab's Anti-Sacrilege Amendment: A Dangerous And Disproportionate Precedent
-https://www.livelaw.in/articles/punjab-anti-sacrilege-amendment-disproportionate-precedent-531779
-
-[Read on Telegram](https://t.me/livelawindia/109710)
-
----
-### 2026-04-26T04:33:12+00:00
-Madras High Court Quarterly Digest: January to March 2026 [Citations 01 - 135]
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-quarterly-digest-january-to-march-2026-530795
-
-[Read on Telegram](https://t.me/livelawindia/109711)
-
----
-### 2026-04-26T04:39:32+00:00
-Supreme Court Monthly Criminal Digest March 2026
-https://www.livelaw.in/supreme-court/supreme-court-monthly-criminal-digest-march-2026-531796
-
-[Read on Telegram](https://t.me/livelawindia/109712)
-
----
 ### 2026-04-26T05:07:32+00:00
 Court Cannot Direct Accused To Surrender While Rejecting Anticipatory Bail : Supreme Court
 https://www.livelaw.in/top-stories/supreme-court-court-accused-surrender-rejecting-anticipatory-bail-private-complaint-case-531727
@@ -142,5 +65,82 @@ Rejection Of Bid Despite Relevant Documents Arbitrary, Discriminatory: Allahabad
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-bid-rejected-relevant-documents-decision-making-process-discriminatory-531794
 
 [Read on Telegram](https://t.me/livelawindia/109721)
+
+---
+### 2026-04-26T09:02:13+00:00
+2026 LiveLaw (SC) 424 | VINAY RAGHUNATH DESHMUKH VERSUS NATWARLAL SHAMJI GADA  AND ANOTHER
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-424-vinay-raghunath-deshmukh-versus-natwarlal-shamji-gada-and-another-531807
+
+[Read on Telegram](https://t.me/livelawindia/109722)
+
+---
+### 2026-04-26T09:08:13+00:00
+Article 227 | High Courts Cannot Reassess Materials Considered By Trial Courts : Supreme Court
+https://www.livelaw.in/supreme-court/article-227-high-courts-cannot-reassess-materials-considered-by-trial-courts-supreme-court-531808
+
+[Read on Telegram](https://t.me/livelawindia/109723)
+
+---
+### 2026-04-26T09:32:23+00:00
+Recusal Controversy: Why Supreme Court Should Frame Interim Standards
+https://www.livelaw.in/articles/recusal-controversy-supreme-court-frame-interim-standards-531780
+
+[Read on Telegram](https://t.me/livelawindia/109724)
+
+---
+### 2026-04-26T09:37:23+00:00
+MA (Yoga) Degree Holders Ineligible For Appointment Without Diploma From Regulatory Body; UGC-Recognised Degree Insufficient: Uttarakhand HC
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-ma-yoga-degree-holders-ineligible-recognised-diploma-regulatory-body-531804
+
+[Read on Telegram](https://t.me/livelawindia/109725)
+
+---
+### 2026-04-26T09:44:23+00:00
+Public Prosecutor Vacancy At Narcotics Control Bureau
+https://www.livelaw.in/job-updates/public-prosecutor-vacancy-at-narcotics-control-bureau-531809
+
+[Read on Telegram](https://t.me/livelawindia/109726)
+
+---
+### 2026-04-26T09:46:03+00:00
+Coordinator-Prison Work Vacancy At National Law Institute University, Bhopal
+https://www.livelaw.in/job-updates/coordinator-prison-work-vacancy-at-national-law-institute-university-bhopal-531810
+
+[Read on Telegram](https://t.me/livelawindia/109727)
+
+---
+### 2026-04-26T10:32:33+00:00
+Gujarat High Court Quarterly Digest: January-March, 2026
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-quarterly-digest-530796
+
+[Read on Telegram](https://t.me/livelawindia/109728)
+
+---
+### 2026-04-26T10:47:33+00:00
+Alleged Unsatisfactory Record Of Deceased Employee Cannot Be Used To Deny Son's Compassionate Appointment Claim: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-compassionate-appointment-claim-government-employee-531806
+
+[Read on Telegram](https://t.me/livelawindia/109729)
+
+---
+### 2026-04-26T11:43:03+00:00
+Six-Year Disqualification Over False Disclosure In Panchayat Elections Not Excessive: Himachal Pradesh High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-disqualification-false-disclosure-panchayat-elections-531803
+
+[Read on Telegram](https://t.me/livelawindia/109730)
+
+---
+### 2026-04-26T11:47:23+00:00
+Unsuccessful Party Can Invoke S. 9 Arbitration Act Post-Award: Supreme Court Settles Conflicting HC Views
+https://www.livelaw.in/supreme-court/unsuccessful-party-can-invoke-s-9-arbitration-act-post-award-supreme-court-settles-conflicting-hc-views-531818
+
+[Read on Telegram](https://t.me/livelawindia/109731)
+
+---
+### 2026-04-26T11:49:23+00:00
+2026 LiveLaw (SC) 425 |  Home Care Retail Marts Pvt Ltd v. Haresh N Sangavi
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-425-home-care-retail-marts-pvt-ltd-v-haresh-n-sangavi-531819
+
+[Read on Telegram](https://t.me/livelawindia/109732)
 
 ---
