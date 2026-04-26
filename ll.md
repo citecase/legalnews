@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-26T05:07:32+00:00*
+*Last Updated: 2026-04-26T05:33:02+00:00*
 
 ---
 
-### 2026-04-26T05:07:32+00:00
-Court Cannot Direct Accused To Surrender While Rejecting Anticipatory Bail : Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-court-accused-surrender-rejecting-anticipatory-bail-private-complaint-case-531727
-
-[Read on Telegram](https://t.me/livelawindia/109713)
-
----
-### 2026-04-26T05:30:42+00:00
-Landlord's Legal Heirs Can Amend Eviction Suit To Add Bona Fide Need :  Supreme Court
-https://www.livelaw.in/supreme-court/landlords-legal-heirs-can-amend-eviction-suit-to-add-bona-fide-need-supreme-court-531799
-
-[Read on Telegram](https://t.me/livelawindia/109714)
-
----
 ### 2026-04-26T05:33:02+00:00
 MP High Court Asks Scrutiny Committee To Decide Congress Leader's Plea Against Raigaon BJP MLA's Caste Certificate
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-congress-leader-bjp-mla-scheduled-caste-high-level-caste-scrutiny-committee-531786
@@ -142,5 +128,19 @@ https://www.livelaw.in/supreme-court/unsuccessful-party-can-invoke-s-9-arbitrati
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-425-home-care-retail-marts-pvt-ltd-v-haresh-n-sangavi-531819
 
 [Read on Telegram](https://t.me/livelawindia/109732)
+
+---
+### 2026-04-26T13:28:26+00:00
+Congress Leader Pawan Khera Moves Supreme Court Against Gauhati HC's Rejection Of Anticipatory Bail In FIR By Assam CM's Wife
+https://www.livelaw.in/top-stories/supreme-court-pawan-khera-plea-against-gauhati-high-court-rejection-anticipatory-bail-assam-himanta-sarma-wife-multiple-passports-forgery-531820
+
+[Read on Telegram](https://t.me/livelawindia/109733)
+
+---
+### 2026-04-26T14:32:32+00:00
+Fixed Term Employment: Contractualisation As A Tool For Fragmentation Of Labour Rights In India
+https://www.livelaw.in/articles/fixed-term-employment-contractualisation-fragmentation-labour-rights-531781
+
+[Read on Telegram](https://t.me/livelawindia/109734)
 
 ---
