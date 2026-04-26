@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-26T07:32:33+00:00*
+*Last Updated: 2026-04-26T13:32:39+00:00*
+
+---
+
+### 2026-04-26T13:32:39+00:00
+Transfer Of Maintenance Cases From Family Courts To Gram Nyayalayas Valid: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/civil-court-bar-association-anr-v-high-court-of-judicature-at-allahabad-ors-neutral-citation-2026ahc60135-db-1612806
+
+[Source Link](https://t.me/verdictumlegalupdates/26718)
+
+---
+
+### 2026-04-26T12:02:37+00:00
+Attempted Rape Of Accused’s Daughter Led To Fight; No Premeditation To Commit Murder: Allahabad High Court Alters Conviction To Culpable Homicide
+https://www.verdictum.in/allahabad-high-court/mahesh-singh-ors-v-state-of-uttar-pradesh-murder-culpable-homicide-rape-1612805
+
+[Source Link](https://t.me/verdictumlegalupdates/26717)
+
+---
+
+### 2026-04-26T10:32:36+00:00
+No Fundamental Right Affected: Kerala High Court Dismisses Challenge Against Industrial Relations Code (Amendment) Act Allowing Continuation Of Existing Tribunals
+https://www.verdictum.in/kerala-high-court/mk-suresh-kumar-v-the-union-of-india-2026ker31573-industrial-relations-code-amendment-act-1612803
+
+[Source Link](https://t.me/verdictumlegalupdates/26716)
+
+---
+
+### 2026-04-26T09:02:54+00:00
+Immolation Video Shocked Judicial Conscience: Madras High Court Directs TN Government To Formulate Taluk-Level Rehabilitation Scheme For Transgender Persons
+https://www.verdictum.in/madras-high-court/v-sarathkumar-v-the-state-rep-by-the-inspector-of-police-crlopmd-no-5185-of-2026-transgender-persons-taluk-level-rehabilitation-1612802
+
+[Source Link](https://t.me/verdictumlegalupdates/26715)
 
 ---
 
@@ -129,38 +161,6 @@ Unsuccessful Party In Arbitration Can Seek Post-Award Interim Measures U/S 9 A&C
 https://www.verdictum.in/supreme-court/home-care-retail-marts-pvt-ltd-v-haresh-n-sanghavi-2026-insc-415-unsuccessful-party-to-arbitration-agreement-1612773
 
 [Source Link](https://t.me/verdictumlegalupdates/26699)
-
----
-
-### 2026-04-25T05:52:58+00:00
-Wife’s Employment No Bar To Maintenance When Unemployed Husband’s Past Lucrative Income Shows Earning Capacity: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/pmh-v-sw-husband-unemployed-wife-employed-maintenance-divorce-past-income-1612734
-
-[Source Link](https://t.me/verdictumlegalupdates/26698)
-
----
-
-### 2026-04-25T05:02:37+00:00
-Centre Notifies Appointment Of Advocate As Kerala High Court Judge
-https://www.verdictum.in/kerala-high-court/centre-notifies-appointment-of-advocate-as-kerala-high-court-judge-1612767
-
-[Source Link](https://t.me/verdictumlegalupdates/26697)
-
----
-
-### 2026-04-25T04:32:45+00:00
-Deletion Of Defendant Under Order 1 Rule 10 CPC Does Not Amount To Abandonment Of Claim: Bombay High Court
-https://www.verdictum.in/bombay-high-court/kashinath-ramji-shinde-deceased-through-lrs-v-pradip-madhavrao-shinde-ors-2026bhc-aug16901-1612746
-
-[Source Link](https://t.me/verdictumlegalupdates/26696)
-
----
-
-### 2026-04-24T16:02:44+00:00
-Legal Assistant Vacancy At Uttar Pradesh Subordinate Service Selection Commission (UPSSSC)
-https://www.verdictum.in/job-updates/uttar-pradesh-subordinate-service-selection-commission-1612743
-
-[Source Link](https://t.me/verdictumlegalupdates/26695)
 
 ---
 
