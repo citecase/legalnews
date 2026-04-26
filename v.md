@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-26T13:32:39+00:00*
+*Last Updated: 2026-04-26T15:03:00+00:00*
+
+---
+
+### 2026-04-26T15:03:00+00:00
+NMRC Invites Applications For The Post Of Senior Section Officer/ Section Officer (Legal)
+https://www.verdictum.in/job-updates/noida-metro-rail-corporation-limited-1612804
+
+[Source Link](https://t.me/verdictumlegalupdates/26719)
 
 ---
 
@@ -153,14 +161,6 @@ Service Inam Land Granted To Mosque Assumes Waqf Character & Cannot Be Alienated
 https://www.verdictum.in/supreme-court/ap-state-wakf-board-v-janaki-busappa-ors-2026-insc-413-service-inam-1612776
 
 [Source Link](https://t.me/verdictumlegalupdates/26700)
-
----
-
-### 2026-04-25T06:32:19+00:00
-Unsuccessful Party In Arbitration Can Seek Post-Award Interim Measures U/S 9 A&C Act: Supreme Court
-https://www.verdictum.in/supreme-court/home-care-retail-marts-pvt-ltd-v-haresh-n-sanghavi-2026-insc-415-unsuccessful-party-to-arbitration-agreement-1612773
-
-[Source Link](https://t.me/verdictumlegalupdates/26699)
 
 ---
 
