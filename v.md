@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-27T14:33:05+00:00*
+*Last Updated: 2026-04-27T16:03:02+00:00*
+
+---
+
+### 2026-04-27T16:03:02+00:00
+Legal & IPR Officer Vacancy At National Institute of Technology Karnataka (NITK), Surathkal
+https://www.verdictum.in/job-updates/national-institute-of-technology-karnataka-1612925
+
+[Source Link](https://t.me/verdictumlegalupdates/26743)
+
+---
+
+### 2026-04-27T15:33:01+00:00
+Supreme Court Upholds Judgment Which Holds Directors Liable For Cheque Bounce Despite Company’s IBC Resolution
+https://www.verdictum.in/supreme-court/directors-liable-cheque-bounce-company-ibc-resolution-1612928
+
+[Source Link](https://t.me/verdictumlegalupdates/26742)
+
+---
+
+### 2026-04-27T15:02:19+00:00
+Specific, Permanent Disablement Distinct From General Physical Debility Under National Coal Wage Agreement: Telangana High Court
+https://www.verdictum.in/telangana-high-court/the-singareni-collieries-company-limited-v-madurakavi-kistaiah-wano39-of-2025-1612924
+
+[Source Link](https://t.me/verdictumlegalupdates/26741)
 
 ---
 
@@ -137,30 +161,6 @@ Failure To Repudiate Voidable Sale Deed Within Reasonable Time After Attaining M
 https://www.verdictum.in/allahabad-high-court/sarju-and-others-v-deputy-director-of-consolidation-and-others-2026ahc90275-1612881
 
 [Source Link](https://t.me/verdictumlegalupdates/26724)
-
----
-
-### 2026-04-27T06:03:14+00:00
-Impossible To Believe I Will Receive Impartial Hearing: Arvind Kejriwal Writes To Justice Swarana Kanta Sharma Saying He Won't Participate In Proceedings
-https://www.verdictum.in/supreme-court/arvind-kejriwal-writes-justice-swarana-kanta-sharma-delhi-excise-policy-case-1612880
-
-[Source Link](https://t.me/verdictumlegalupdates/26723)
-
----
-
-### 2026-04-27T05:32:33+00:00
-SHO Must Issue NOC To Travel Abroad Or Recall Existing LOC Once Criminal Proceedings Are Stayed: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/mohammed-ashiq-v-the-union-of-india-2026khc17527-sho-noc-stay-criminal-proceedings-1612876
-
-[Source Link](https://t.me/verdictumlegalupdates/26722)
-
----
-
-### 2026-04-27T05:03:12+00:00
-Carrying Passengers Without Ticket Is Serious Misconduct: Allahabad High Court Confirms Bus Conductor’s Termination
-https://www.verdictum.in/allahabad-high-court/jagdamba-prasad-pandey-v-state-of-up-2026ahc84410-passengers-ticket-misconduct-1612795
-
-[Source Link](https://t.me/verdictumlegalupdates/26721)
 
 ---
 
