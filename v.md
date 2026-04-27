@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-26T15:03:00+00:00*
+*Last Updated: 2026-04-27T09:02:53+00:00*
+
+---
+
+### 2026-04-27T09:02:53+00:00
+SCAORA Elections: Supreme Court Provisionally Allows Newly Registered Advocates-On-Record To Vote
+https://www.verdictum.in/supreme-court/newly-registered-advocates-on-record-vote-scaora-elections-1612906
+
+[Source Link](https://t.me/verdictumlegalupdates/26729)
+
+---
+
+### 2026-04-27T08:32:22+00:00
+Supreme Court Takes Suo Motu Cognizance In Brutal Assault Of Lady Advocate By Her Husband, Directs Delhi Police To Hand Over Probe To Senior Woman Cop
+https://www.verdictum.in/supreme-court/supreme-court-takes-suo-motu-cognizance-in-brutal-assault-of-lady-advocate-by-her-husband-directs-delhi-police-to-hand-over-probe-to-senior-woman-cop-1612902
+
+[Source Link](https://t.me/verdictumlegalupdates/26728)
+
+---
+
+### 2026-04-27T08:03:20+00:00
+Delhi High Court Closes Plea By Lawrence Bishnoi After Centre Halts Release Of 'Lawrence Of Punjab'
+https://www.verdictum.in/delhi-high-court/delhi-high-court-closes-plea-by-lawrence-bishnoi-after-centre-halts-release-of-lawrence-of-punjab-1612896
+
+[Source Link](https://t.me/verdictumlegalupdates/26727)
+
+---
+
+### 2026-04-27T07:32:19+00:00
+Allahabad High Court Grants Interim Relief To Candidates Having 18 Months Diploma In D.El.Ed.-ODL; Allows Them To Appear In UP-TET 2026
+https://www.verdictum.in/allahabad-high-court/shubham-kumar-shukla-and-35-others-v-state-of-up-diploma-deled-odl-up-tet-2026-1612886
+
+[Source Link](https://t.me/verdictumlegalupdates/26726)
+
+---
+
+### 2026-04-27T07:01:58+00:00
+Supreme Court Declines To Intervene In Gurugram Demolition Drive, Gives Liberty To Residents To Approach High Court Today
+https://www.verdictum.in/supreme-court/gurugram-demolition-drive-residents-high-court-1612891
+
+[Source Link](https://t.me/verdictumlegalupdates/26725)
+
+---
+
+### 2026-04-27T06:32:56+00:00
+Failure To Repudiate Voidable Sale Deed Within Reasonable Time After Attaining Majority Extinguishes Minor’s Rights: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/sarju-and-others-v-deputy-director-of-consolidation-and-others-2026ahc90275-1612881
+
+[Source Link](https://t.me/verdictumlegalupdates/26724)
+
+---
+
+### 2026-04-27T06:03:14+00:00
+Impossible To Believe I Will Receive Impartial Hearing: Arvind Kejriwal Writes To Justice Swarana Kanta Sharma Saying He Won't Participate In Proceedings
+https://www.verdictum.in/supreme-court/arvind-kejriwal-writes-justice-swarana-kanta-sharma-delhi-excise-policy-case-1612880
+
+[Source Link](https://t.me/verdictumlegalupdates/26723)
+
+---
+
+### 2026-04-27T05:32:33+00:00
+SHO Must Issue NOC To Travel Abroad Or Recall Existing LOC Once Criminal Proceedings Are Stayed: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/mohammed-ashiq-v-the-union-of-india-2026khc17527-sho-noc-stay-criminal-proceedings-1612876
+
+[Source Link](https://t.me/verdictumlegalupdates/26722)
+
+---
+
+### 2026-04-27T05:03:12+00:00
+Carrying Passengers Without Ticket Is Serious Misconduct: Allahabad High Court Confirms Bus Conductor’s Termination
+https://www.verdictum.in/allahabad-high-court/jagdamba-prasad-pandey-v-state-of-up-2026ahc84410-passengers-ticket-misconduct-1612795
+
+[Source Link](https://t.me/verdictumlegalupdates/26721)
+
+---
+
+### 2026-04-27T04:32:40+00:00
+Private Interest Subordinate To Public Safety In Urban Planning; Fire Safety Norms Cannot Be Compromised: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/ms-vishnu-sri-builders-and-developers-v-the-commissioner-bbmp-ors-2026khc18906-db-1612807
+
+[Source Link](https://t.me/verdictumlegalupdates/26720)
 
 ---
 
@@ -81,86 +161,6 @@ Allahabad High Court Slams Police Interference In Personal Liberty, Rebukes Poli
 https://www.verdictum.in/allahabad-high-court/2026ahc88279db-xxxx-v-state-of-up-police-investigating-marriages-1612797
 
 [Source Link](https://t.me/verdictumlegalupdates/26710)
-
----
-
-### 2026-04-25T13:12:44+00:00
-Propriety Of Judicial Conduct & Temper In Addressing Members Of Bar Non-Negotiable Aspect Of Judicial Grace: J&K And Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/sanjay-kumar-anr-v-mohan-singh-anr-2026jklhc-jmu1084-rahul-bharti-1612796
-
-[Source Link](https://t.me/verdictumlegalupdates/26709)
-
----
-
-### 2026-04-25T12:32:42+00:00
-Supreme Court Mandates Unified ICU Standards; Directs States To Prepare Immediate Implementation Action Plan
-https://www.verdictum.in/supreme-court/unified-icu-standards-states-implementation-action-plan-1612808
-
-[Source Link](https://t.me/verdictumlegalupdates/26708)
-
----
-
-### 2026-04-25T11:52:41+00:00
-UAPA Bail Cannot Rest on Long Incarceration Alone When Continuing Threat Persists: Delhi High Court Denies Bail To Two Accused Allegedly Planning Delhi Terror Attack
-https://www.verdictum.in/delhi-high-court/mohd-saquib-ansari-v-state-nct-of-delhi-2026dhc3407-db-uapa-delhi-terror-attack-parity-rejected-1612792
-
-[Source Link](https://t.me/verdictumlegalupdates/26707)
-
----
-
-### 2026-04-25T11:02:20+00:00
-Supreme Court Expressed Surprise After Rodents Destroyed Currency Notes Seized In Corruption Case
-https://www.verdictum.in/supreme-court/supreme-court-expressed-surprise-after-rodents-destroyed-currency-notes-seized-in-corruption-case-1612793
-
-[Source Link](https://t.me/verdictumlegalupdates/26706)
-
----
-
-### 2026-04-25T10:32:38+00:00
-Knowledge Of Second Marriage Insufficient To Fasten Liability U/S 494 IPC On Husband’s Family; Participation Must Be Shown: Supreme Court
-https://www.verdictum.in/supreme-court/sivaraman-nair-ors-v-state-of-kerala-anr-2026-insc-412-section-494-1612791
-
-[Source Link](https://t.me/verdictumlegalupdates/26705)
-
----
-
-### 2026-04-25T09:53:07+00:00
-Is High Court Rule Mandating Surrender Of Convict Before Considering Suspension Of Sentence Bar On Power U/s. 482 CrPC: SC Refers To Larger Bench
-https://www.verdictum.in/supreme-court/high-court-rules-surrendering-suspension-sentence-section-482-crpc-1612789
-
-[Source Link](https://t.me/verdictumlegalupdates/26704)
-
----
-
-### 2026-04-25T09:12:26+00:00
-Prosecution Must Prove Action Of Burying Dead Animal Was With Intention To Spread Infectious Disease To Attract Offence U/s.270 IPC: Himachal Pradesh High Court
-https://www.verdictum.in/himachal-high-court/state-of-himachal-pradesh-v-gaurav-sharma-2026hhc5566-burying-dead-animal-section-270-ipc-1612786
-
-[Source Link](https://t.me/verdictumlegalupdates/26703)
-
----
-
-### 2026-04-25T08:32:24+00:00
-“Trial Judge Influenced By Horror Of Incident”: Madras High Court Refuses To Confirm Death Sentence For A Father Accused Of POCSO Offences
-https://www.verdictum.in/madras-high-court/state-of-tamil-nadu-v-murugan-pocso-father-sexual-assault-daughter-death-sentence-1612785
-
-[Source Link](https://t.me/verdictumlegalupdates/26702)
-
----
-
-### 2026-04-25T07:53:03+00:00
-Merits Of Proposed Plea Irrelevant At Amendment Stage; Legal Heirs Can Continue Bonafide Need Claim After Landlord’s Death: Supreme Court
-https://www.verdictum.in/supreme-court/vinay-raghunath-deshmukh-v-natwarlal-shamji-gada-2026-insc-416-legal-heirs-bonafide-landlords-death-1612780
-
-[Source Link](https://t.me/verdictumlegalupdates/26701)
-
----
-
-### 2026-04-25T07:12:21+00:00
-Service Inam Land Granted To Mosque Assumes Waqf Character & Cannot Be Alienated As Personal Property: Supreme Court
-https://www.verdictum.in/supreme-court/ap-state-wakf-board-v-janaki-busappa-ors-2026-insc-413-service-inam-1612776
-
-[Source Link](https://t.me/verdictumlegalupdates/26700)
 
 ---
 
