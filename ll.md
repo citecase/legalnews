@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-26T05:33:02+00:00*
+*Last Updated: 2026-04-27T05:47:51+00:00*
 
 ---
 
-### 2026-04-26T05:33:02+00:00
-MP High Court Asks Scrutiny Committee To Decide Congress Leader's Plea Against Raigaon BJP MLA's Caste Certificate
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-congress-leader-bjp-mla-scheduled-caste-high-level-caste-scrutiny-committee-531786
+### 2026-04-27T05:47:51+00:00
+High-Rise Buildings Lacking Fire NOC Can't Risk General Public: Karnataka High Court Upholds Demolition Of Construction Blocking Driveway
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-plea-demolition-construction-lacking-fire-safety-531853
 
-[Read on Telegram](https://t.me/livelawindia/109715)
-
----
-### 2026-04-26T05:40:02+00:00
-Law Officers Vacancy At Indian Bureau Of Mines
-https://www.livelaw.in/job-updates/law-officers-vacancy-at-indian-bureau-of-mines-531800
-
-[Read on Telegram](https://t.me/livelawindia/109716)
+[Read on Telegram](https://t.me/livelawindia/109748)
 
 ---
-### 2026-04-26T05:41:42+00:00
-Professor (Law), Associate Professor (Law), And Assistant Professor (Law) Vacancy At National Law University and Judicial Academy, Assam
-https://www.livelaw.in/job-updates/professor-law-associate-professor-law-and-assistant-professor-law-vacancy-at-national-law-university-and-judicial-academy-assam-531801
+### 2026-04-27T06:02:11+00:00
+Unexplained Delay In Recording Eye-Witness Statements Renders Testimony Suspect: J&K&L High Court Acquits Three In Murder Case
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-unexplained-delay-in-recording-eye-witness-statements-renders-testimony-suspect-court-acquits-three-in-murder-case-531848
 
-[Read on Telegram](https://t.me/livelawindia/109717)
-
----
-### 2026-04-26T05:57:22+00:00
-Manusrimiti, Arthashastra, Indic Values Must Be Taught To NLU Students; Most Disconnected From Roots : Justice Dharmadhikari
-https://www.livelaw.in/news-updates/justice-sa-dharmadhikari-nlu-prodigies-disconnect-cultural-ideological-roots-531802
-
-[Read on Telegram](https://t.me/livelawindia/109718)
+[Read on Telegram](https://t.me/livelawindia/109749)
 
 ---
-### 2026-04-26T06:15:02+00:00
-Employer Can't Set Up Ad Hoc Fact-Finding Committee Before ICC Inquiry; Violates PoSH Act: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/employer-cant-set-up-ad-hoc-fact-finding-committee-before-icc-inquiry-violates-posh-act-delhi-high-court-531805
+### 2026-04-27T06:07:31+00:00
+Madras High Court Dismisses Fresh Plea Seeking ECI Probe Into Assets Declared By TVK Chief Vijay
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tn-election-eci-probe-tvk-vijay-asset-dismissed-531855
 
-[Read on Telegram](https://t.me/livelawindia/109719)
-
----
-### 2026-04-26T06:32:52+00:00
-Surrogacy Can't Be Denied Saying Wife Is Not 'Perfect Woman': Telangana High Court Grants Relief To Married Woman With Chromosome Condition
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-woman-cais-surrogacy-eligibility-531793
-
-[Read on Telegram](https://t.me/livelawindia/109720)
+[Read on Telegram](https://t.me/livelawindia/109750)
 
 ---
-### 2026-04-26T07:33:23+00:00
-Rejection Of Bid Despite Relevant Documents Arbitrary, Discriminatory: Allahabad High Court Stays Tender Process
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-bid-rejected-relevant-documents-decision-making-process-discriminatory-531794
+### 2026-04-27T06:12:11+00:00
+Supreme Court Takes Suo Motu Cognisance Of Brutal Assault On Woman Advocate By Husband
+https://www.livelaw.in/top-stories/supreme-court-takes-suo-motu-cognisance-of-brutal-assault-on-woman-advocate-by-husband-531858
 
-[Read on Telegram](https://t.me/livelawindia/109721)
-
----
-### 2026-04-26T09:02:13+00:00
-2026 LiveLaw (SC) 424 | VINAY RAGHUNATH DESHMUKH VERSUS NATWARLAL SHAMJI GADA  AND ANOTHER
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-424-vinay-raghunath-deshmukh-versus-natwarlal-shamji-gada-and-another-531807
-
-[Read on Telegram](https://t.me/livelawindia/109722)
+[Read on Telegram](https://t.me/livelawindia/109751)
 
 ---
-### 2026-04-26T09:08:13+00:00
-Article 227 | High Courts Cannot Reassess Materials Considered By Trial Courts : Supreme Court
-https://www.livelaw.in/supreme-court/article-227-high-courts-cannot-reassess-materials-considered-by-trial-courts-supreme-court-531808
+### 2026-04-27T06:18:11+00:00
+WB Polls: Plea In Calcutta High Court Flags Alleged 'Serious Misconduct' By Police Observer Who 'Unofficially' Met BJP Candidate At Hotel
+https://www.livelaw.in/high-court/calcutta-high-court/wb-polls-plea-in-calcutta-high-court-flags-alleged-serious-misconduct-by-police-observer-who-unofficially-met-bjp-candidate-at-hotel-531859
 
-[Read on Telegram](https://t.me/livelawindia/109723)
-
----
-### 2026-04-26T09:32:23+00:00
-Recusal Controversy: Why Supreme Court Should Frame Interim Standards
-https://www.livelaw.in/articles/recusal-controversy-supreme-court-frame-interim-standards-531780
-
-[Read on Telegram](https://t.me/livelawindia/109724)
+[Read on Telegram](https://t.me/livelawindia/109752)
 
 ---
-### 2026-04-26T09:37:23+00:00
-MA (Yoga) Degree Holders Ineligible For Appointment Without Diploma From Regulatory Body; UGC-Recognised Degree Insufficient: Uttarakhand HC
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-ma-yoga-degree-holders-ineligible-recognised-diploma-regulatory-body-531804
+### 2026-04-27T06:30:14+00:00
+Supreme Court Dismisses Former Kerala Minister Antony Raju's Plea To Suspend Conviction In Evidence Tampering Case
+https://www.livelaw.in/top-stories/supreme-court-dismisses-former-kerala-minister-antony-rajus-plea-to-suspend-conviction-in-evidence-tampering-case-531861
 
-[Read on Telegram](https://t.me/livelawindia/109725)
-
----
-### 2026-04-26T09:44:23+00:00
-Public Prosecutor Vacancy At Narcotics Control Bureau
-https://www.livelaw.in/job-updates/public-prosecutor-vacancy-at-narcotics-control-bureau-531809
-
-[Read on Telegram](https://t.me/livelawindia/109726)
+[Read on Telegram](https://t.me/livelawindia/109753)
 
 ---
-### 2026-04-26T09:46:03+00:00
-Coordinator-Prison Work Vacancy At National Law Institute University, Bhopal
-https://www.livelaw.in/job-updates/coordinator-prison-work-vacancy-at-national-law-institute-university-bhopal-531810
+### 2026-04-27T06:31:14+00:00
+Advocate AK Preeta Sworn In As Additional Judge Of Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-preeta-aravindan-krishnamma-swear-in-additional-judge-531862
 
-[Read on Telegram](https://t.me/livelawindia/109727)
-
----
-### 2026-04-26T10:32:33+00:00
-Gujarat High Court Quarterly Digest: January-March, 2026
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-quarterly-digest-530796
-
-[Read on Telegram](https://t.me/livelawindia/109728)
+[Read on Telegram](https://t.me/livelawindia/109754)
 
 ---
-### 2026-04-26T10:47:33+00:00
-Alleged Unsatisfactory Record Of Deceased Employee Cannot Be Used To Deny Son's Compassionate Appointment Claim: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-compassionate-appointment-claim-government-employee-531806
+### 2026-04-27T06:32:14+00:00
+Gujarat High Court Weekly Round-Up: April 20 - April 26, 2026
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-weekly-round-up-531830
 
-[Read on Telegram](https://t.me/livelawindia/109729)
-
----
-### 2026-04-26T11:43:03+00:00
-Six-Year Disqualification Over False Disclosure In Panchayat Elections Not Excessive: Himachal Pradesh High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-disqualification-false-disclosure-panchayat-elections-531803
-
-[Read on Telegram](https://t.me/livelawindia/109730)
+[Read on Telegram](https://t.me/livelawindia/109755)
 
 ---
-### 2026-04-26T11:47:23+00:00
-Unsuccessful Party Can Invoke S. 9 Arbitration Act Post-Award: Supreme Court Settles Conflicting HC Views
-https://www.livelaw.in/supreme-court/unsuccessful-party-can-invoke-s-9-arbitration-act-post-award-supreme-court-settles-conflicting-hc-views-531818
+### 2026-04-27T06:46:38+00:00
+Delhi High Court Quashes Case Against Bina Modi Over Alleged Assault On Samir Modi Following Settlement
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-quashes-case-against-bina-modi-over-alleged-assault-on-samir-modi-following-settlement-531864
 
-[Read on Telegram](https://t.me/livelawindia/109731)
-
----
-### 2026-04-26T11:49:23+00:00
-2026 LiveLaw (SC) 425 |  Home Care Retail Marts Pvt Ltd v. Haresh N Sangavi
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-425-home-care-retail-marts-pvt-ltd-v-haresh-n-sangavi-531819
-
-[Read on Telegram](https://t.me/livelawindia/109732)
+[Read on Telegram](https://t.me/livelawindia/109756)
 
 ---
-### 2026-04-26T13:28:26+00:00
-Congress Leader Pawan Khera Moves Supreme Court Against Gauhati HC's Rejection Of Anticipatory Bail In FIR By Assam CM's Wife
-https://www.livelaw.in/top-stories/supreme-court-pawan-khera-plea-against-gauhati-high-court-rejection-anticipatory-bail-assam-himanta-sarma-wife-multiple-passports-forgery-531820
+### 2026-04-27T06:52:38+00:00
+Stop Using 'Court Below' In Official Records, Shift To 'Trial Court': Allahabad HC Directs Registry
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-stop-court-below-lower-official-records-registry-531866
 
-[Read on Telegram](https://t.me/livelawindia/109733)
+[Read on Telegram](https://t.me/livelawindia/109757)
 
 ---
-### 2026-04-26T14:32:32+00:00
-Fixed Term Employment: Contractualisation As A Tool For Fragmentation Of Labour Rights In India
-https://www.livelaw.in/articles/fixed-term-employment-contractualisation-fragmentation-labour-rights-531781
+### 2026-04-27T06:58:58+00:00
+Written Power Of Attorney Can't Be Revoked Or Altered Through Oral Statements: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-power-of-attorney-cant-be-revoked-altered-substituted-orally-531868
 
-[Read on Telegram](https://t.me/livelawindia/109734)
+[Read on Telegram](https://t.me/livelawindia/109758)
+
+---
+### 2026-04-27T07:02:48+00:00
+J&K&L HC Quashes Supplementary Chargesheet Adding POCSV Charges After 5 Yrs; Says Further Probe Can't Convert 'Attempt' Into 'Completed Act'
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-further-investigation-cannot-upgrade-attempt-to-completed-act-court-quashes-supplementary-chargesheet-adding-pocso-offences-after-five-years-531846
+
+[Read on Telegram](https://t.me/livelawindia/109759)
+
+---
+### 2026-04-27T07:03:38+00:00
+'Debt Recovery Appellate Tribunal Is Not Mere Adjudicatory Body; Can Set Aside Default Orders To Do Complete Justice': Patna HC
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-debt-recovery-appellate-tribunal-adjudicatory-body-531870
+
+[Read on Telegram](https://t.me/livelawindia/109760)
+
+---
+### 2026-04-27T07:12:48+00:00
+'You Don't Leave Women Safe Anywhere': Karnataka High Court Refuses To Quash FIR Against Instagram Account 'Bangalore Metro Chicks' Owner
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-plea-bangalore-metro-chicks-account-531874
+
+[Read on Telegram](https://t.me/livelawindia/109761)
+
+---
+### 2026-04-27T07:33:19+00:00
+BREAKING| Supreme Court Allows Newly Qualified AORs To Vote In SCAORA Elections
+https://www.livelaw.in/top-stories/supreme-court-allows-newly-qualified-aors-to-vote-in-scaora-elections-531877
+
+[Read on Telegram](https://t.me/livelawindia/109762)
+
+---
+### 2026-04-27T07:52:59+00:00
+'Prima Facie No Justification': Allahabad HC On NCLT Principal Bench 'Joint Scrutiny' Order For Allahabad Filings
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-prima-facie-no-justification-nclt-principal-bench-joint-scrutiny-allahabad-filings-531879
+
+[Read on Telegram](https://t.me/livelawindia/109763)
+
+---
+### 2026-04-27T08:04:39+00:00
+S.480(3) BNSS Bail Conditions Not Applicable To Offences Punishable Up To 7 Yrs Imprisonment : Supreme Court
+https://www.livelaw.in/supreme-court/banil-conditions-under-s4803-bnss-not-applicable-to-offences-punishable-up-to-7-yrs-supreme-court-531881
+
+[Read on Telegram](https://t.me/livelawindia/109764)
+
+---
+### 2026-04-27T08:05:59+00:00
+2026 LiveLaw (SC) 426 |  NARAYAN VERSUS THE STATE OF MADHYA PRADESH
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-426-narayan-versus-the-state-of-madhya-pradesh-531882
+
+[Read on Telegram](https://t.me/livelawindia/109765)
+
+---
+### 2026-04-27T08:17:42+00:00
+Power Of Attorney Holder Does Not Have Locus To File Complaint On Behalf Of Victim Under SC/ST Act: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-power-of-attorney-holder-locus-standi-section3-scst-act-531849
+
+[Read on Telegram](https://t.me/livelawindia/109766)
+
+---
+### 2026-04-27T08:32:12+00:00
+Karnataka High Court Weekly Round-Up: April 20 – April 26, 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-roundup2026-531845
+
+[Read on Telegram](https://t.me/livelawindia/109767)
 
 ---
