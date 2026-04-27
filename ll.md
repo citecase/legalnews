@@ -1,86 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-27T10:33:23+00:00*
+*Last Updated: 2026-04-27T12:33:32+00:00*
 
 ---
 
-### 2026-04-27T10:33:23+00:00
-Jammu & Kashmir And Ladakh High Court Weekly Roundup April 20 - April 26, 2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-weekly-roundup-april-20-april-26-2026-531825
-
-[Read on Telegram](https://t.me/livelawindia/109779)
-
----
-### 2026-04-27T10:33:53+00:00
-'Real Crimes You Don't Register': Karnataka High Court Slams Police For Lodging FIR Over Two Missing Cows
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-police-registering-case-missing-cows-531913
-
-[Read on Telegram](https://t.me/livelawindia/109780)
-
----
-### 2026-04-27T10:37:33+00:00
-Calcutta High Court Modifies Order Lifting ECI's Restrictions On Motorbike Riding On Poll Day, Bans Group-Biking & Bike Rallies
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-modifies-order-lifting-ecis-restrictions-on-motorbike-riding-on-poll-day-bans-group-biking-bike-rallies-531915
-
-[Read on Telegram](https://t.me/livelawindia/109781)
-
----
-### 2026-04-27T11:00:18+00:00
-Supreme Court Asks Centre To Clarify If SNDP Yogam Governed By Companies Act Or Kerala Law
-https://www.livelaw.in/top-stories/supreme-court-asks-centre-to-clarify-if-sndp-yogam-governed-by-companies-act-or-kerala-law-531920
-
-[Read on Telegram](https://t.me/livelawindia/109782)
-
----
-### 2026-04-27T11:13:58+00:00
-'Court Is Temple Of Justice, Maintain Decorum': Gujarat HC Judge Objects To Attire Of College Girl In Courtroom
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-hc-judge-objects-to-attire-of-college-girl-531923
-
-[Read on Telegram](https://t.me/livelawindia/109783)
-
----
-### 2026-04-27T11:28:38+00:00
-Denial Of Additional Time To Lead Evidence Not A Violation Of Natural Justice To Invoke Writ Jurisdiction: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/additional-time-adduce-evidence-not-justify-bypassing-statutory-appellate-remedy-writ-531924
-
-[Read on Telegram](https://t.me/livelawindia/109784)
-
----
-### 2026-04-27T11:34:18+00:00
-Karnataka High Court Stays Probe Against Tumkur Deputy Commissioner Subha Kalyana In 'Illegal Betting' Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-stays-probe-dc-subha-kalyan-illegal-kabaddi-betting-case-531926
-
-[Read on Telegram](https://t.me/livelawindia/109785)
-
----
-### 2026-04-27T12:08:00+00:00
-Mere Custody No Excuse To Avoid Participation In Departmental Proceedings When Notices Are Duly Served: Tripura High Court
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-custody-avoid-participation-departmental-proceedings-531857
-
-[Read on Telegram](https://t.me/livelawindia/109786)
-
----
-### 2026-04-27T12:08:29+00:00
-Gurugram Demolitions: Punjab & Haryana High Court Permits Action Against Encroachments, Says Due Process Must Be Followed
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/gurugram-remove-encroachments-violating-municipal-law-follow-due-process-531930
-
-[Read on Telegram](https://t.me/livelawindia/109787)
-
----
-### 2026-04-27T12:12:39+00:00
-CITIL, DNLU Jabalpur Concludes International Symposium On “Carbon Governance And Global Justice”
-https://www.livelaw.in/lawschool/news/citil-dnlu-jabalpur-concludes-international-symposium-on-carbon-governance-and-global-justice-531932
-
-[Read on Telegram](https://t.me/livelawindia/109788)
-
----
-### 2026-04-27T12:33:22+00:00
-J&K&L High Court Quashes Preventive Detention Of AAP MLA Mehraj Malik, Says No Apprehension Of Him Acting Against Public Order
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-no-apprehension-that-detenu-is-likely-to-act-prejudicial-to-public-order-court-quashes-preventive-detention-of-aap-mla-mehraj-malik-531935
-
-[Read on Telegram](https://t.me/livelawindia/109789)
-
----
 ### 2026-04-27T12:33:32+00:00
 Madras High Court Weekly Round-Up: April 20 to April 26, 2026
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-april-20-to-april-26-2026-531891
@@ -142,5 +65,84 @@ S.27 Evidence Act | Joint Statement By Different Accused Admissible Only If They
 https://www.livelaw.in/supreme-court/s27-evidence-act-joint-statement-by-different-accused-admissible-only-if-they-lead-to-distinct-discoveries-supreme-court-531951
 
 [Read on Telegram](https://t.me/livelawindia/109798)
+
+---
+### 2026-04-27T14:09:02+00:00
+2026 LiveLaw (SC) 427 | ANAND JAKKAPPA PUJARI 
+@GADDADAR
+ VERSUS THE STATE OF KARNATAKA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-427-anand-jakkappa-pujari-gaddadar-versus-the-state-of-karnataka-531952
+
+[Read on Telegram](https://t.me/livelawindia/109799)
+
+---
+### 2026-04-27T14:15:02+00:00
+Firing In Air During Wedding Without Intention To Cause Injury Not Enough To Constitute Attempt To Murder Charge: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-attempt-to-murder-firing-in-air-wedding-no-intention-531954
+
+[Read on Telegram](https://t.me/livelawindia/109800)
+
+---
+### 2026-04-27T14:15:42+00:00
+'Sensitive Issue': Supreme Court On PIL Seeking DNA Verification Of Children Before Adoption & Rescue Measures For Missing Children
+https://www.livelaw.in/top-stories/supreme-court-reepak-kansal-pil-rescued-missing-children-safety-rehabilitation-dna-verification-before-child-adoption-531955
+
+[Read on Telegram](https://t.me/livelawindia/109801)
+
+---
+### 2026-04-27T14:40:52+00:00
+Delhi High Court Weekly Round-Up: April 20 To April 26, 2026
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-weekly-round-up-april-20-to-april-26-2026-531960
+
+[Read on Telegram](https://t.me/livelawindia/109802)
+
+---
+### 2026-04-27T15:02:32+00:00
+Between Misconduct And Crime: Legal Blind Spot In Workplace Sexual Harassment
+https://www.livelaw.in/articles/misconduct-crime-legal-blind-spot-workplace-sexual-harassment-531967
+
+[Read on Telegram](https://t.me/livelawindia/109803)
+
+---
+### 2026-04-27T15:02:52+00:00
+Madhya Pradesh High Court Weekly Roundup: April 20 - April 26, 2026
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-weekly-digest-april-20-to-april-26-531904
+
+[Read on Telegram](https://t.me/livelawindia/109804)
+
+---
+### 2026-04-27T15:17:12+00:00
+Married Woman Mature Enough To Understand Consequences: P&H High Court Quashes Rape On Pretext Of Marriage Case
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-rape-on-pretext-of-marriage-case-married-woman-mature-enough-to-understand-consequences-531966
+
+[Read on Telegram](https://t.me/livelawindia/109805)
+
+---
+### 2026-04-27T15:22:52+00:00
+'First Safeguard Duped Homebuyers, Then Only Bail' : Supreme Court To Ex-MLA In Money Laundering Case
+https://www.livelaw.in/top-stories/supreme-court-money-laundering-former-mla-dharam-singh-chhoker-asked-to-safeguard-homebuyers-interest-before-seeking-relief-531968
+
+[Read on Telegram](https://t.me/livelawindia/109806)
+
+---
+### 2026-04-27T15:48:02+00:00
+Preventive Detention During Ongoing Proceedings U/S 129 BNSS Must Meet Strict Legal Standards To Be Lawful: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-preventive-detention-under-psa-during-pendency-of-section-129-bnss-proceedings-valid-must-meet-strict-standards-531961
+
+[Read on Telegram](https://t.me/livelawindia/109807)
+
+---
+### 2026-04-27T17:05:11+00:00
+Punjab & Haryana High Court Directs Punjab To Release Pending DA/DR, Quashes Staggered Pension Arrears Plan
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-staggered-pension-arrears-plan-directs-punjab-to-release-pending-dadr-531973
+
+[Read on Telegram](https://t.me/livelawindia/109808)
+
+---
+### 2026-04-27T17:07:32+00:00
+Supreme Court Daily Round-Up : April 27, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-27-2026-531969
+
+[Read on Telegram](https://t.me/livelawindia/109809)
 
 ---
