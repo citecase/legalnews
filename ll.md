@@ -1,93 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-28T11:09:32+00:00*
+*Last Updated: 2026-04-28T12:59:58+00:00*
 
 ---
 
-### 2026-04-28T11:09:32+00:00
-Kerala High Court Initiates Suo Motu Case Over Violence In Hartal Over Nithin Raj Death
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-suo-motu-violence-hartal-nitin-raj-532061
-
-[Read on Telegram](https://t.me/livelawindia/109858)
-
----
-### 2026-04-28T11:13:32+00:00
-Call For Papers: NUSRL Ranchi Invites Abstracts For National Symposium On Convergence Of Law & Economics 2.0
-https://www.livelaw.in/lawschool/call-for-papers/nusrl-ranchi-national-symposium-convergence-law-economics-20-532062
-
-[Read on Telegram](https://t.me/livelawindia/109859)
-
----
-### 2026-04-28T11:14:32+00:00
-WhatsApp Banned 9400 Accounts Linked To Digital Arrest Scams : MHA Tells Supreme Court
-https://www.livelaw.in/top-stories/whatsapp-banned-9400-accounts-linked-to-digital-arrest-scams-mha-tells-supreme-court-532063
-
-[Read on Telegram](https://t.me/livelawindia/109860)
-
----
-### 2026-04-28T11:29:52+00:00
-AG Perarivalan, Convict In Rajiv Gandhi Assassination Case Released By Supreme Court, Joins Legal Profession
-https://www.livelaw.in/news-updates/rajiv-gandhi-assassination-case-ag-perarivalan-enrolled-as-lawyer-532066
-
-[Read on Telegram](https://t.me/livelawindia/109861)
-
----
-### 2026-04-28T11:30:02+00:00
-RGNUL Conducts 20-Hour Advanced Mediation Training Programme Under MCPC, Supreme Court
-https://www.livelaw.in/lawschool/news/rgnul-conducts-20-hour-advanced-mediation-training-programme-under-mcpc-supreme-court-532067
-
-[Read on Telegram](https://t.me/livelawindia/109862)
-
----
-### 2026-04-28T11:43:57+00:00
-RGNUL Hosts Practicum Lecture On 'Next 10 Years of IBC'; IBLD Signs MoU With Insolvency Law Academy
-https://www.livelaw.in/lawschool/news/rgnul-hosts-practicum-lecture-on-next-10-years-of-ibc-ibld-signs-mou-with-insolvency-law-academy-532069
-
-[Read on Telegram](https://t.me/livelawindia/109863)
-
----
-### 2026-04-28T12:02:47+00:00
-Calcutta High Court Declines To Pass Orders Till End Of Polling In Plea Seeking Action Against Police Observer Ajay Pal Sharma
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-declines-to-pass-orders-till-end-of-polling-in-plea-seeking-action-against-police-observer-ajay-pal-sharma-532071
-
-[Read on Telegram](https://t.me/livelawindia/109864)
-
----
-### 2026-04-28T12:11:27+00:00
-Transgender Persons Extracting Gifts/Money Not Backed By Law; Can't Legitimize 'Badhai' Collection: Allahabad HC
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-transgender-persons-extracting-gifts-money-legitimize-badhai-collection-532073
-
-[Read on Telegram](https://t.me/livelawindia/109865)
-
----
-### 2026-04-28T12:15:08+00:00
-RTE Act | School Cannot Delay Admission To State-Allotted Student Raising Dispute On Eligibility : Supreme Court
-https://www.livelaw.in/supreme-court/rte-act-school-cannot-delay-admission-to-state-allotted-student-raising-dispute-on-eligibility-supreme-court-532074
-
-[Read on Telegram](https://t.me/livelawindia/109866)
-
----
-### 2026-04-28T12:16:48+00:00
-2026 LiveLaw (SC) 430 |  LUCKNOW PUBLIC SCHOOL, ELDICO AND ANR. VERSUS THE STATE OF UTTAR PRADESH & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-430-lucknow-public-school-eldico-and-anr-versus-the-state-of-uttar-pradesh-ors-532075
-
-[Read on Telegram](https://t.me/livelawindia/109867)
-
----
-### 2026-04-28T12:47:28+00:00
-“Long Cohabitation & Economic Dependence”: HP High Court Grants Family Pension To Woman Despite Void Marriage
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-grants-family-pension-woman-void-marriage-532043
-
-[Read on Telegram](https://t.me/livelawindia/109868)
-
----
-### 2026-04-28T12:53:08+00:00
-Mere Designation As Managing Director Not Enough To Attract Criminal Liability Under Drugs & Cosmetics Act: Himachal Pradesh High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-managing-director-designation-criminal-liability-531964
-
-[Read on Telegram](https://t.me/livelawindia/109869)
-
----
 ### 2026-04-28T12:59:58+00:00
 Karnataka High Court Stays CERC's New Deviation Penalty Formula For Renewable Energy Generators, 2014 Regime To Continue In Interim
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-cerc-renewable-energy-generators-2014dsm-regime-532080
@@ -142,5 +58,89 @@ Kerala Assembly Polls 2026 : High Court Directs Swift Action On Candidate's Comp
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-directs-candidates-complaint-strong-room-opening-532096
 
 [Read on Telegram](https://t.me/livelawindia/109877)
+
+---
+### 2026-04-28T14:33:11+00:00
+Anti-Defection Law: Merger Or Mirage?
+https://www.livelaw.in/articles/anti-defection-law-merger-532086
+
+[Read on Telegram](https://t.me/livelawindia/109878)
+
+---
+### 2026-04-28T14:39:11+00:00
+No Right To Complete Tenure If Appointment Is Subject To 'Until Further Orders' : Supreme Court
+https://www.livelaw.in/supreme-court/no-right-to-complete-tenure-if-appointment-is-subject-to-until-further-orders-supreme-court-532098
+
+[Read on Telegram](https://t.me/livelawindia/109879)
+
+---
+### 2026-04-28T14:40:31+00:00
+2026 LiveLaw (SC) 432 | SADACHARI SINGH TOMAR VERSUS UNION OF INDIA & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-432-sadachari-singh-tomar-versus-union-of-india-ors-532099
+
+[Read on Telegram](https://t.me/livelawindia/109880)
+
+---
+### 2026-04-28T14:49:51+00:00
+Lok Adalat Awards Being Routinely Challenged Defeats Object Of Quick Resolution, Settlement Must Be Confined To Practical Terms: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-lok-adalat-awards-routinely-challenged-defeating-object-of-expeditious-resolution-members-must-confine-settlement-to-lawful-practicable-terms-532101
+
+[Read on Telegram](https://t.me/livelawindia/109881)
+
+---
+### 2026-04-28T15:18:01+00:00
+Highly Educated Lady Working In MNC Didn't Lodge FIR For Months: P&H High Court Quashes Rape Case, Says Relationship Was 'Consensual'
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-rape-case-found-relationship-consensual-highly-educated-lady-working-in-mnc-didnt-lodge-fir-for-months-532102
+
+[Read on Telegram](https://t.me/livelawindia/109882)
+
+---
+### 2026-04-28T15:31:25+00:00
+Madras High Court Quashes ED Case Against Minister I Periyasamy After Noting Quashing Of Predicate Offence
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ecir-against-minister-periyasamy-quashed-532108
+
+[Read on Telegram](https://t.me/livelawindia/109883)
+
+---
+### 2026-04-28T15:36:45+00:00
+Bombay High Court Adjourns Defamation Suit To 2046, After Senior Citizen Parties Refuse To Settle 'Ego Fight'
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-adjourns-defamation-suit-to-2046-after-senior-citizen-parties-refuse-to-settle-ego-fight-532111
+
+[Read on Telegram](https://t.me/livelawindia/109884)
+
+---
+### 2026-04-28T16:00:45+00:00
+Supreme Court Stays Bombay HC Judgment Releasing 193-Acre Thane Land From Acquisition As Private Forest
+https://www.livelaw.in/top-stories/supreme-court-stays-bombay-hc-judgment-releasing-193-acre-thane-land-from-acquisition-as-private-forest-532114
+
+[Read on Telegram](https://t.me/livelawindia/109885)
+
+---
+### 2026-04-28T16:05:13+00:00
+“Common Man's Life Made Miserable": Bombay High Court Slams Maharashtra Govt Over Illegal Hawkers Menace, Seeks Clear Action Plan
+https://www.livelaw.in/high-court/bombay-high-court/common-mans-life-made-miserable-bombay-high-court-slams-maharashtra-govt-over-illegal-hawkers-menace-seeks-clear-action-plan-532115
+
+[Read on Telegram](https://t.me/livelawindia/109886)
+
+---
+### 2026-04-28T16:25:33+00:00
+Sabarimala Reference | Art 25(2)(b) Mentions Throwing Open Of Only Temples Since Caste System Is Not In Other Religions : Justice Nagarathna
+https://www.livelaw.in/top-stories/sabarimala-reference-art-252b-mentions-throwing-open-of-only-temples-since-caste-system-is-not-in-other-religions-justice-nagarathna-532118
+
+[Read on Telegram](https://t.me/livelawindia/109887)
+
+---
+### 2026-04-28T17:12:46+00:00
+Supreme Court Daily Round-Up : April 28, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-28-2026-532119
+
+[Read on Telegram](https://t.me/livelawindia/109888)
+
+---
+### 2026-04-28T18:02:36+00:00
+“Trust ECI To Carry Out Duties Impartially”: Calcutta High Court Disposes Plea Challenging Preventive Action Memo After EC's Withdrawal
+https://www.livelaw.in/high-court/calcutta-high-court/trust-eci-to-carry-out-duties-impartially-calcutta-high-court-disposes-plea-challenging-preventive-action-memo-after-ecs-withdrawal-532121
+
+[Read on Telegram](https://t.me/livelawindia/109889)
 
 ---
