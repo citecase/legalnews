@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-28T15:02:41+00:00*
+*Last Updated: 2026-04-28T16:03:05+00:00*
+
+---
+
+### 2026-04-28T16:03:05+00:00
+DLSA, Shivamogga Invites Applications For The Post Of Deputy Legal Aid Defense Counsel
+https://www.verdictum.in/job-updates/district-legal-services-authority-1612999
+
+[Source Link](https://t.me/verdictumlegalupdates/26767)
+
+---
+
+### 2026-04-28T15:33:04+00:00
+Agricultural Damage Compensation Cannot Be Denied Citing Govt. Resolution Excluding Certain Wildlife Species: Bombay High Court
+https://www.verdictum.in/bombay-high-court/mahadeo-jagannath-dekate-v-state-of-maharashtra-ors-2026bhc-nag6387-db-1613004
+
+[Source Link](https://t.me/verdictumlegalupdates/26766)
 
 ---
 
@@ -145,22 +161,6 @@ Conviction U/S 149 IPC Not Sustainable When Number Of Participants Fall Below Fi
 https://www.verdictum.in/allahabad-high-court/ram-palat-and-another-v-state-2026ahc91865-acquittal-of-majority-of-named-accused-s-149-ipc-1612966
 
 [Source Link](https://t.me/verdictumlegalupdates/26748)
-
----
-
-### 2026-04-28T06:02:34+00:00
-Genesis Of FIR Doubtful When Complainant Disowns Written Complaint Unless Prosecution Explains Circumstances: J&K And Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/deepak-singh-ors-v-ut-of-jk-2026jklhc-jmu1090-db-witness-complaint-1612964
-
-[Source Link](https://t.me/verdictumlegalupdates/26747)
-
----
-
-### 2026-04-28T05:32:13+00:00
-Special Marriage Act Doesn’t Mandate That Petition For Divorce Won’t Be Maintainable Unless Marriage Is Registered Under Act: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/a-v-b-special-marriage-act-petition-divorce-decree-marriage-registered-1612960
-
-[Source Link](https://t.me/verdictumlegalupdates/26746)
 
 ---
 
