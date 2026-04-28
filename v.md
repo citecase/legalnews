@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-27T16:03:02+00:00*
+*Last Updated: 2026-04-28T09:02:43+00:00*
+
+---
+
+### 2026-04-28T09:02:43+00:00
+Requirement Of Deposit Of Amount As Condition For Maintaining Appeal Would Not Make Appellate Remedy Illusory: Kerala High Court
+https://www.verdictum.in/kerala-high-court/the-manager-majlis-english-medium-school-v-the-deputy-labour-commissioner-2026ker31138-appellate-remedy-1612981
+
+[Source Link](https://t.me/verdictumlegalupdates/26753)
+
+---
+
+### 2026-04-28T08:33:01+00:00
+Supreme Court Approves Deer Translocation From A.N. Jha Deer Park To Rajasthan; Directs Statutory Framework For Wildlife Translocation
+https://www.verdictum.in/supreme-court/new-delhi-nature-society-v-director-horticulture-dda-ors-2026-insc-419-1612980
+
+[Source Link](https://t.me/verdictumlegalupdates/26752)
+
+---
+
+### 2026-04-28T08:03:00+00:00
+No Privity Of Contract: Supreme Court Quashes Criminal Case Against Property Purchaser
+https://www.verdictum.in/supreme-court/s-anand-v-state-of-tamil-nadu-2026-insc-418-no-tangible-material-allegation-conspiracy-1612976
+
+[Source Link](https://t.me/verdictumlegalupdates/26751)
+
+---
+
+### 2026-04-28T07:33:59+00:00
+Manish Sisodia Joins Arvind Kejriwal In Withdrawing From Proceedings Before Justice Swarna Kanta Sharma
+https://www.verdictum.in/delhi-high-court/manish-sisodia-arvind-kejriwal-justice-swarna-kanta-sharma-1612975
+
+[Source Link](https://t.me/verdictumlegalupdates/26750)
+
+---
+
+### 2026-04-28T07:02:57+00:00
+Absence Of Seal Or Signature On Bank Memo In Electronic Clearance System Insufficient To Defeat Cheque Dishonour Prosecution: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/jagdish-r-v-bs-ravi-dead-through-lrs-cheque-dishonour-negotiable-instruments-1612970
+
+[Source Link](https://t.me/verdictumlegalupdates/26749)
+
+---
+
+### 2026-04-28T06:32:56+00:00
+Conviction U/S 149 IPC Not Sustainable When Number Of Participants Fall Below Five Due To Acquittal Of Some Accused: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/ram-palat-and-another-v-state-2026ahc91865-acquittal-of-majority-of-named-accused-s-149-ipc-1612966
+
+[Source Link](https://t.me/verdictumlegalupdates/26748)
+
+---
+
+### 2026-04-28T06:02:34+00:00
+Genesis Of FIR Doubtful When Complainant Disowns Written Complaint Unless Prosecution Explains Circumstances: J&K And Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/deepak-singh-ors-v-ut-of-jk-2026jklhc-jmu1090-db-witness-complaint-1612964
+
+[Source Link](https://t.me/verdictumlegalupdates/26747)
+
+---
+
+### 2026-04-28T05:32:13+00:00
+Special Marriage Act Doesn’t Mandate That Petition For Divorce Won’t Be Maintainable Unless Marriage Is Registered Under Act: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/a-v-b-special-marriage-act-petition-divorce-decree-marriage-registered-1612960
+
+[Source Link](https://t.me/verdictumlegalupdates/26746)
+
+---
+
+### 2026-04-28T05:03:12+00:00
+Once Fact Is Discovered At One Accused's Instance U/S 27 Evidence Act, It Cannot Be Re-Discovered Through Co-Accused: Supreme Court
+https://www.verdictum.in/supreme-court/anand-jakkappa-pujari-gaddadar-v-the-state-of-karnataka-2026-insc-417-re-discovered-us-27-evidence-act-1612959
+
+[Source Link](https://t.me/verdictumlegalupdates/26745)
+
+---
+
+### 2026-04-28T04:33:20+00:00
+Bombay High Court Asks Centre To Consider Setting Up Appellate Tribunal For Motor Accident & Railway Claims
+https://www.verdictum.in/bombay-high-court/the-oriental-insurance-co-ltd-v-mast-sandeep-sunder-kolhe-2026bhc-as19245-centre-appellate-tribunal-1612929
+
+[Source Link](https://t.me/verdictumlegalupdates/26744)
 
 ---
 
@@ -81,86 +161,6 @@ Penalty Proceedings U/S 271D & 271E Income Tax Act Initiated With Approval Of Ad
 https://www.verdictum.in/kerala-high-court/the-service-co-operative-bank-ltd-v-assistant-commissioner-of-income-tax-anr-2026ker33197-1612914
 
 [Source Link](https://t.me/verdictumlegalupdates/26734)
-
----
-
-### 2026-04-27T11:03:00+00:00
-Terminology "Court Below" May Be Replaced With "Trial Court": Allahabad High Court To Registry
-https://www.verdictum.in/allahabad-high-court/mahesh-tiwari-v-state-of-up-and-another-2026ahc91866-court-below-trial-court-1612911
-
-[Source Link](https://t.me/verdictumlegalupdates/26733)
-
----
-
-### 2026-04-27T10:32:58+00:00
-ICC Recommendations Under POSH Act Mandatory, Not Merely Recommendatory In Nature: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/sunita-devi-v-state-of-up-ors-2026ahc-lko26942-icc-posh-act-recommendations-1612910
-
-[Source Link](https://t.me/verdictumlegalupdates/26732)
-
----
-
-### 2026-04-27T10:02:35+00:00
-Weekly Overview| Supreme Court Judgments: April 20 – April 24, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-april-20-april-24-2026-1612908
-
-[Source Link](https://t.me/verdictumlegalupdates/26731)
-
----
-
-### 2026-04-27T09:32:55+00:00
-Courts Not Bound To Mechanically Enforce Foreign Interest Order, If Enforcement Contrary To Child’s Welfare: Madhya Pradesh High Court Refuses Custody To Father
-https://www.verdictum.in/madhya-pradesh-high-court/x-v-state-of-madhya-pradesh-2026mphc-ind10638-indian-courts-not-bound-enforce-foreign-interest-order-1612889
-
-[Source Link](https://t.me/verdictumlegalupdates/26730)
-
----
-
-### 2026-04-27T09:02:53+00:00
-SCAORA Elections: Supreme Court Provisionally Allows Newly Registered Advocates-On-Record To Vote
-https://www.verdictum.in/supreme-court/newly-registered-advocates-on-record-vote-scaora-elections-1612906
-
-[Source Link](https://t.me/verdictumlegalupdates/26729)
-
----
-
-### 2026-04-27T08:32:22+00:00
-Supreme Court Takes Suo Motu Cognizance In Brutal Assault Of Lady Advocate By Her Husband, Directs Delhi Police To Hand Over Probe To Senior Woman Cop
-https://www.verdictum.in/supreme-court/supreme-court-takes-suo-motu-cognizance-in-brutal-assault-of-lady-advocate-by-her-husband-directs-delhi-police-to-hand-over-probe-to-senior-woman-cop-1612902
-
-[Source Link](https://t.me/verdictumlegalupdates/26728)
-
----
-
-### 2026-04-27T08:03:20+00:00
-Delhi High Court Closes Plea By Lawrence Bishnoi After Centre Halts Release Of 'Lawrence Of Punjab'
-https://www.verdictum.in/delhi-high-court/delhi-high-court-closes-plea-by-lawrence-bishnoi-after-centre-halts-release-of-lawrence-of-punjab-1612896
-
-[Source Link](https://t.me/verdictumlegalupdates/26727)
-
----
-
-### 2026-04-27T07:32:19+00:00
-Allahabad High Court Grants Interim Relief To Candidates Having 18 Months Diploma In D.El.Ed.-ODL; Allows Them To Appear In UP-TET 2026
-https://www.verdictum.in/allahabad-high-court/shubham-kumar-shukla-and-35-others-v-state-of-up-diploma-deled-odl-up-tet-2026-1612886
-
-[Source Link](https://t.me/verdictumlegalupdates/26726)
-
----
-
-### 2026-04-27T07:01:58+00:00
-Supreme Court Declines To Intervene In Gurugram Demolition Drive, Gives Liberty To Residents To Approach High Court Today
-https://www.verdictum.in/supreme-court/gurugram-demolition-drive-residents-high-court-1612891
-
-[Source Link](https://t.me/verdictumlegalupdates/26725)
-
----
-
-### 2026-04-27T06:32:56+00:00
-Failure To Repudiate Voidable Sale Deed Within Reasonable Time After Attaining Majority Extinguishes Minor’s Rights: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/sarju-and-others-v-deputy-director-of-consolidation-and-others-2026ahc90275-1612881
-
-[Source Link](https://t.me/verdictumlegalupdates/26724)
 
 ---
 
