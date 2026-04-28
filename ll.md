@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-27T12:33:32+00:00*
+*Last Updated: 2026-04-27T12:40:42+00:00*
 
 ---
 
-### 2026-04-27T12:33:32+00:00
-Madras High Court Weekly Round-Up: April 20 to April 26, 2026
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-april-20-to-april-26-2026-531891
-
-[Read on Telegram](https://t.me/livelawindia/109790)
-
----
 ### 2026-04-27T12:40:42+00:00
 Noida Workers Protest: Madras High Court Refuses To Examine Legality Of UP Police's Arrest In Trichy Despite Lack Of Transit Remand
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-noida-worker-protest-validity-of-arrest-cannot-be-gone-into-531937
@@ -144,5 +137,12 @@ Supreme Court Daily Round-Up : April 27, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-27-2026-531969
 
 [Read on Telegram](https://t.me/livelawindia/109809)
+
+---
+### 2026-04-28T03:32:45+00:00
+Telangana High Court Weekly Round-Up : April 20 – April 26, 2026
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-weekly-round-up-531956
+
+[Read on Telegram](https://t.me/livelawindia/109810)
 
 ---
