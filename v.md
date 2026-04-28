@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-28T09:02:43+00:00*
+*Last Updated: 2026-04-28T15:02:41+00:00*
+
+---
+
+### 2026-04-28T15:02:41+00:00
+Right Of Transgender Persons To Collect Customary Offerings, Badhai Not Recognized By Law: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/rekha-devi-v-state-of-up-2026ahc-lko25757-db-right-transgenders-customary-offerings-1613007
+
+[Source Link](https://t.me/verdictumlegalupdates/26765)
+
+---
+
+### 2026-04-28T14:32:59+00:00
+Non-Issuance Of Integrity Certificate Does Not Vitiate Selection Committee Assessment Under IPS Regulations 1955: Telangana High Court
+https://www.verdictum.in/telangana-high-court/ls-chowhan-v-union-of-india-ors-2026tshc3744-db-integrity-certificate-1613003
+
+[Source Link](https://t.me/verdictumlegalupdates/26764)
+
+---
+
+### 2026-04-28T14:03:17+00:00
+Scripted Enquiry Fatal To Prosecution When "Innocent Persons Being Crucified": Supreme Court Acquits 9 Surviving Convicts In 2008 Murder Case
+https://www.verdictum.in/supreme-court/sadek-ali-md-sadek-ali-v-the-state-of-assam-2026-insc-421-scripted-enquiry-fatal-to-prosecution-1613001
+
+[Source Link](https://t.me/verdictumlegalupdates/26763)
+
+---
+
+### 2026-04-28T13:33:05+00:00
+Mere Presence Of Semen On Victim's Clothing Insufficient To Convict POCSO Accused Without Corroboration: Patna High Court
+https://www.verdictum.in/patna-high-court/md-khurshid-md-khurshid-rayeen-v-state-of-bihar-section-3-section-29-pocso-1613000
+
+[Source Link](https://t.me/verdictumlegalupdates/26762)
+
+---
+
+### 2026-04-28T13:03:04+00:00
+Failed To Show That Natural Justice Was Violated: Tripura High Court Upholds Ex-TSR Rifle Man’s Dismissal Order
+https://www.verdictum.in/tripura-high-court/sonvir-singh-v-the-state-of-tripura-natural-justice-ex-tsr-rifle-mans-dismissal-order-1612996
+
+[Source Link](https://t.me/verdictumlegalupdates/26761)
+
+---
+
+### 2026-04-28T12:32:42+00:00
+Andhra Pradesh High Court Invokes Concept of ‘Ardhangini’ To Allow Appointment Of Wife As Guardian Of Comatose Husband’s Bank Account
+https://www.verdictum.in/andhra-pradesh-high-court/singavaram-nagamma-v-state-of-andhra-pradesh-ors-guardian-bank-account-1612995
+
+[Source Link](https://t.me/verdictumlegalupdates/26760)
+
+---
+
+### 2026-04-28T12:02:41+00:00
+“Cannot Act Treat Employees As Chattels”: Karnataka High Court Pulls Up KIADB For Extending Suspension Beyond Six Months Without Chargesheet
+https://www.verdictum.in/karnataka-high-court/shankar-yamanappa-talawar-v-ceo-and-executive-member-kiadb-writ-petition-no101210-of-2025-s-res-employees-as-chattels-1612992
+
+[Source Link](https://t.me/verdictumlegalupdates/26759)
+
+---
+
+### 2026-04-28T11:33:00+00:00
+Supreme Court Asks Amicus Siddhartha Dave To Convene Meeting On Utilisation Of Funds By States On Installations Of CCTVs In Police Stations
+https://www.verdictum.in/supreme-court/supreme-court-asks-amicus-siddhartha-dave-to-convene-meeting-on-utilisation-of-funds-by-states-on-installations-of-cctvs-in-police-stations-1612989
+
+[Source Link](https://t.me/verdictumlegalupdates/26758)
+
+---
+
+### 2026-04-28T11:02:58+00:00
+Chemical Analysis Report Simply Tendered Across Bar Without Filing Supplementary Chargesheet: Bombay High Court Grants Bail To NDPS Accused
+https://www.verdictum.in/bombay-high-court/ashish-prakash-walke-v-state-of-maharashtra-2026bhc-nag6256-ndps-accused-bail-chemical-analysis-report-1612988
+
+[Source Link](https://t.me/verdictumlegalupdates/26757)
+
+---
+
+### 2026-04-28T10:32:57+00:00
+Forest Land Retained For Afforestation Need Not Be Notified As Reserved Forest To Attract FC Act: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/hk-lakshman-gowda-v-state-of-karnataka-ors-forest-conservation-act-1612987
+
+[Source Link](https://t.me/verdictumlegalupdates/26756)
+
+---
+
+### 2026-04-28T10:02:55+00:00
+There Cannot Be Anarchy: Justice Amanullah Emphasizes Need For Institutional Norms In Religious Management In Sabarimala Reference
+https://www.verdictum.in/supreme-court/sabarimala-reference-justice-amanullah-institutional-norms-religious-management-nizam-pasha-1612984
+
+[Source Link](https://t.me/verdictumlegalupdates/26755)
+
+---
+
+### 2026-04-28T09:32:34+00:00
+Arbitral Tribunal Competent To "Rule" On Limitation  Of Application U/A 11(6) A&C Act Despite High Court Referral: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/rajendra-prasad-singh-v-ms-arch-construction-2026ahc-lko29790-db-arbitral-tribunal-competent-to-rule-us-116-ac-act-1612983
+
+[Source Link](https://t.me/verdictumlegalupdates/26754)
 
 ---
 
@@ -65,102 +161,6 @@ Special Marriage Act Doesn’t Mandate That Petition For Divorce Won’t Be Main
 https://www.verdictum.in/karnataka-high-court/a-v-b-special-marriage-act-petition-divorce-decree-marriage-registered-1612960
 
 [Source Link](https://t.me/verdictumlegalupdates/26746)
-
----
-
-### 2026-04-28T05:03:12+00:00
-Once Fact Is Discovered At One Accused's Instance U/S 27 Evidence Act, It Cannot Be Re-Discovered Through Co-Accused: Supreme Court
-https://www.verdictum.in/supreme-court/anand-jakkappa-pujari-gaddadar-v-the-state-of-karnataka-2026-insc-417-re-discovered-us-27-evidence-act-1612959
-
-[Source Link](https://t.me/verdictumlegalupdates/26745)
-
----
-
-### 2026-04-28T04:33:20+00:00
-Bombay High Court Asks Centre To Consider Setting Up Appellate Tribunal For Motor Accident & Railway Claims
-https://www.verdictum.in/bombay-high-court/the-oriental-insurance-co-ltd-v-mast-sandeep-sunder-kolhe-2026bhc-as19245-centre-appellate-tribunal-1612929
-
-[Source Link](https://t.me/verdictumlegalupdates/26744)
-
----
-
-### 2026-04-27T16:03:02+00:00
-Legal & IPR Officer Vacancy At National Institute of Technology Karnataka (NITK), Surathkal
-https://www.verdictum.in/job-updates/national-institute-of-technology-karnataka-1612925
-
-[Source Link](https://t.me/verdictumlegalupdates/26743)
-
----
-
-### 2026-04-27T15:33:01+00:00
-Supreme Court Upholds Judgment Which Holds Directors Liable For Cheque Bounce Despite Company’s IBC Resolution
-https://www.verdictum.in/supreme-court/directors-liable-cheque-bounce-company-ibc-resolution-1612928
-
-[Source Link](https://t.me/verdictumlegalupdates/26742)
-
----
-
-### 2026-04-27T15:02:19+00:00
-Specific, Permanent Disablement Distinct From General Physical Debility Under National Coal Wage Agreement: Telangana High Court
-https://www.verdictum.in/telangana-high-court/the-singareni-collieries-company-limited-v-madurakavi-kistaiah-wano39-of-2025-1612924
-
-[Source Link](https://t.me/verdictumlegalupdates/26741)
-
----
-
-### 2026-04-27T14:33:05+00:00
-J&K&L High Court Grants Bail To Former MLA & Councillor Accused Of Leading Mob That Set Fire To BJP Office & Police Vehicle
-https://www.verdictum.in/jammu-ladakh-high-court/smanla-dorje-nurboo-v-union-territory-of-ladakh-bail-app-no-3162025-leh-violence-case-1612923
-
-[Source Link](https://t.me/verdictumlegalupdates/26740)
-
----
-
-### 2026-04-27T14:02:41+00:00
-“Tragic & Unfortunate Would Be Belittling Trauma Undergone”: Delhi High Court Upholds 15 Years Sentence Of Stepfather In POCSO Case
-https://www.verdictum.in/delhi-high-court/ram-murat-v-state-nct-of-delhi-2026dhc3268-stepfather-for-sexual-assault-under-pocso-act-1612922
-
-[Source Link](https://t.me/verdictumlegalupdates/26739)
-
----
-
-### 2026-04-27T13:32:18+00:00
-Marital Exploitation Justifies Compensation: Allahabad High Court Imposes ₹15L Costs On Advocate For Economically Exploiting Wife
-https://www.verdictum.in/allahabad-high-court/rs-v-ns-2026ahc90307-fifteen-lakh-compensation-wife-husband-advocate-1612921
-
-[Source Link](https://t.me/verdictumlegalupdates/26738)
-
----
-
-### 2026-04-27T13:02:56+00:00
-Within Govt’s Exclusive Domain To Use Spelling Of ‘Cuttack’ As ‘Katak’: Orissa High Court Imposes ₹10k Cost On PIL Petitioner
-https://www.verdictum.in/orissa-high-court/srujeet-khuntia-v-state-of-odisha-govt-exclusive-domain-cuttack-katak-cost-pil-1612920
-
-[Source Link](https://t.me/verdictumlegalupdates/26737)
-
----
-
-### 2026-04-27T12:33:24+00:00
-Why Did She Go And Live With Him Before Marriage: Supreme Court Questions Alleged Sexual Assault Case In 15-Year Consensual Live-In Relationship
-https://www.verdictum.in/supreme-court/why-did-she-go-and-live-with-him-before-marriage-supreme-court-questions-alleged-sexual-assault-case-in-15-year-consensual-live-in-relationship-1612918
-
-[Source Link](https://t.me/verdictumlegalupdates/26736)
-
----
-
-### 2026-04-27T12:02:43+00:00
-Supreme Court Orders Status Quo On Land Takeover Of Asaram's Ashram For Sports Complex For 2030 Commonwealth Games
-https://www.verdictum.in/supreme-court/supreme-court-orders-status-quo-on-land-takeover-of-asarams-ashram-for-sports-complex-for-2030-commonwealth-games-1612915
-
-[Source Link](https://t.me/verdictumlegalupdates/26735)
-
----
-
-### 2026-04-27T11:32:21+00:00
-Penalty Proceedings U/S 271D & 271E Income Tax Act Initiated With Approval Of Additional Commissioner Valid: Kerala High Court
-https://www.verdictum.in/kerala-high-court/the-service-co-operative-bank-ltd-v-assistant-commissioner-of-income-tax-anr-2026ker33197-1612914
-
-[Source Link](https://t.me/verdictumlegalupdates/26734)
 
 ---
 
