@@ -1,6 +1,55 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-28T16:03:05+00:00*
+*Last Updated: 2026-04-29T08:23:05+00:00*
+
+---
+
+### 2026-04-29T08:23:05+00:00
+Injured Witness Testimony Cannot Be Discarded Solely Due To Relationship With Victim If Found Reliable & Coherent: Chhattisgarh High Court
+https://www.verdictum.in/chhattisgarh-high-court/parasram-gayakwad-v-state-of-chhattisgarh-2026cghc18927-db-injured-witness-testimony-discarded-1613045
+
+[Source Link](https://t.me/verdictumlegalupdates/26773)
+
+---
+
+### 2026-04-29T07:32:53+00:00
+Supreme Court Emphasizes Neighborhood School’s Obligation Under RTE Act To Give Admission To Students Referred By State Govt
+https://www.verdictum.in/supreme-court/lucknow-public-school-eldico-v-the-state-of-uttar-pradesh-2026-insc-422-neighbourhood-school-rte-1613044
+
+[Source Link](https://t.me/verdictumlegalupdates/26772)
+
+---
+
+### 2026-04-29T06:32:54+00:00
+Ordinarily No Writ Lies Against Show Cause
+Notice Unless It's Ex Facie Without Jurisdiction: Patna High Court
+https://www.verdictum.in/patna-high-court/raj-raj-construction-v-state-of-bihar-civil-writ-jurisdiction-4759-of-2026-1613041
+
+[Source Link](https://t.me/verdictumlegalupdates/26771)
+
+---
+
+### 2026-04-29T05:33:32+00:00
+Breaking: Supreme Court Declines To Issue Directions On Hate Speech; Says No Legislative Vacuum Exists
+https://www.verdictum.in/supreme-court/declines-directions-on-hate-speech-prior-sanction-not-firs-ashwani-upadhyay-1613032
+
+[Source Link](https://t.me/verdictumlegalupdates/26770)
+
+---
+
+### 2026-04-29T05:16:12+00:00
+Corporate Guarantees Executed By Corporate Debtor Constitute "Financial Debt" U/S 5(8) IBC: Supreme Court
+https://www.verdictum.in/supreme-court/state-bank-of-india-v-doha-bank-qpsc-2026-insc-423-financial-debt-us-58-ibc-1613030
+
+[Source Link](https://t.me/verdictumlegalupdates/26769)
+
+---
+
+### 2026-04-29T04:33:20+00:00
+Preventive Detention Can Be Invoked While Proceedings U/s.129 BNSS Are Ongoing: Jammu & Kashmir and Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/mohd-kabir-v-the-union-territory-of-jammu-and-kashmir-2026jklhc-jmu1094-detention-bnss-1613009
+
+[Source Link](https://t.me/verdictumlegalupdates/26768)
 
 ---
 
@@ -113,54 +162,6 @@ Arbitral Tribunal Competent To "Rule" On Limitation  Of Application U/A 11(6) A&
 https://www.verdictum.in/allahabad-high-court/rajendra-prasad-singh-v-ms-arch-construction-2026ahc-lko29790-db-arbitral-tribunal-competent-to-rule-us-116-ac-act-1612983
 
 [Source Link](https://t.me/verdictumlegalupdates/26754)
-
----
-
-### 2026-04-28T09:02:43+00:00
-Requirement Of Deposit Of Amount As Condition For Maintaining Appeal Would Not Make Appellate Remedy Illusory: Kerala High Court
-https://www.verdictum.in/kerala-high-court/the-manager-majlis-english-medium-school-v-the-deputy-labour-commissioner-2026ker31138-appellate-remedy-1612981
-
-[Source Link](https://t.me/verdictumlegalupdates/26753)
-
----
-
-### 2026-04-28T08:33:01+00:00
-Supreme Court Approves Deer Translocation From A.N. Jha Deer Park To Rajasthan; Directs Statutory Framework For Wildlife Translocation
-https://www.verdictum.in/supreme-court/new-delhi-nature-society-v-director-horticulture-dda-ors-2026-insc-419-1612980
-
-[Source Link](https://t.me/verdictumlegalupdates/26752)
-
----
-
-### 2026-04-28T08:03:00+00:00
-No Privity Of Contract: Supreme Court Quashes Criminal Case Against Property Purchaser
-https://www.verdictum.in/supreme-court/s-anand-v-state-of-tamil-nadu-2026-insc-418-no-tangible-material-allegation-conspiracy-1612976
-
-[Source Link](https://t.me/verdictumlegalupdates/26751)
-
----
-
-### 2026-04-28T07:33:59+00:00
-Manish Sisodia Joins Arvind Kejriwal In Withdrawing From Proceedings Before Justice Swarna Kanta Sharma
-https://www.verdictum.in/delhi-high-court/manish-sisodia-arvind-kejriwal-justice-swarna-kanta-sharma-1612975
-
-[Source Link](https://t.me/verdictumlegalupdates/26750)
-
----
-
-### 2026-04-28T07:02:57+00:00
-Absence Of Seal Or Signature On Bank Memo In Electronic Clearance System Insufficient To Defeat Cheque Dishonour Prosecution: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/jagdish-r-v-bs-ravi-dead-through-lrs-cheque-dishonour-negotiable-instruments-1612970
-
-[Source Link](https://t.me/verdictumlegalupdates/26749)
-
----
-
-### 2026-04-28T06:32:56+00:00
-Conviction U/S 149 IPC Not Sustainable When Number Of Participants Fall Below Five Due To Acquittal Of Some Accused: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/ram-palat-and-another-v-state-2026ahc91865-acquittal-of-majority-of-named-accused-s-149-ipc-1612966
-
-[Source Link](https://t.me/verdictumlegalupdates/26748)
 
 ---
 
