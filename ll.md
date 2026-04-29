@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-28T13:39:41+00:00*
+*Last Updated: 2026-04-29T05:10:20+00:00*
 
 ---
 
-### 2026-04-28T13:39:41+00:00
-Too Hot To Handle: Indian Cities In A Giant Air Fryer
-https://www.livelaw.in/law-firms/law-firm-articles-/too-hot-handle-indian-cities-giant-air-fryer-532091
+### 2026-04-29T05:10:20+00:00
+Support Person Vacancy At District Child Protection Unit, Khunti District, Jharkhand
+https://www.livelaw.in/job-updates/support-person-vacancy-at-district-child-protection-unit-khunti-district-jharkhand-532154
 
-[Read on Telegram](https://t.me/livelawindia/109874)
-
----
-### 2026-04-28T14:06:11+00:00
-'Honeymoon Murder' Case | Shillong Court Grants Bail To Sonam Raghuvanshi Over Ineffective Intimation Of Arrest Grounds
-https://www.livelaw.in/news-updates/honeymoon-murder-shillong-court-grants-bail-sonam-raghuvanshi-non-intimation-grounds-of-arrest-532094
-
-[Read on Telegram](https://t.me/livelawindia/109875)
+[Read on Telegram](https://t.me/livelawindia/109907)
 
 ---
-### 2026-04-28T14:07:32+00:00
-Able-Bodied Husband Can't Deny Maintenance To Wife Having Cancer Claiming Closure Of Business Without Proof: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-husband-maintenance-wife-closure-of-business-532081
+### 2026-04-29T05:19:20+00:00
+LARR Authority Has Jurisdiction To Examine Limitation In Land Acquisition References Under 2013 Act: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-larr-authority-reference-court-limitation-section-64-land-acquisition-act2013-532155
 
-[Read on Telegram](https://t.me/livelawindia/109876)
-
----
-### 2026-04-28T14:23:51+00:00
-Kerala Assembly Polls 2026 : High Court Directs Swift Action On Candidate's Complaint Over Strong Room Opening
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-directs-candidates-complaint-strong-room-opening-532096
-
-[Read on Telegram](https://t.me/livelawindia/109877)
+[Read on Telegram](https://t.me/livelawindia/109908)
 
 ---
-### 2026-04-28T14:33:11+00:00
-Anti-Defection Law: Merger Or Mirage?
-https://www.livelaw.in/articles/anti-defection-law-merger-532086
+### 2026-04-29T05:25:40+00:00
+BREAKING| No Legislative Vacuum On Hate Speech; Union & States May Consider If Amendments Needed : Supreme Court
+https://www.livelaw.in/top-stories/no-legislative-vacuum-on-hate-speech-union-states-may-consider-if-amendments-needed-supreme-court-532157
 
-[Read on Telegram](https://t.me/livelawindia/109878)
-
----
-### 2026-04-28T14:39:11+00:00
-No Right To Complete Tenure If Appointment Is Subject To 'Until Further Orders' : Supreme Court
-https://www.livelaw.in/supreme-court/no-right-to-complete-tenure-if-appointment-is-subject-to-until-further-orders-supreme-court-532098
-
-[Read on Telegram](https://t.me/livelawindia/109879)
+[Read on Telegram](https://t.me/livelawindia/109909)
 
 ---
-### 2026-04-28T14:40:31+00:00
-2026 LiveLaw (SC) 432 | SADACHARI SINGH TOMAR VERSUS UNION OF INDIA & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-432-sadachari-singh-tomar-versus-union-of-india-ors-532099
+### 2026-04-29T05:32:20+00:00
+'No Time With Mother': Punjab & Haryana High Court Declines Custody To Working Mother Living In PG
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-declines-custody-to-working-mother-living-in-pg-532117
 
-[Read on Telegram](https://t.me/livelawindia/109880)
-
----
-### 2026-04-28T14:49:51+00:00
-Lok Adalat Awards Being Routinely Challenged Defeats Object Of Quick Resolution, Settlement Must Be Confined To Practical Terms: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-lok-adalat-awards-routinely-challenged-defeating-object-of-expeditious-resolution-members-must-confine-settlement-to-lawful-practicable-terms-532101
-
-[Read on Telegram](https://t.me/livelawindia/109881)
+[Read on Telegram](https://t.me/livelawindia/109910)
 
 ---
-### 2026-04-28T15:18:01+00:00
-Highly Educated Lady Working In MNC Didn't Lodge FIR For Months: P&H High Court Quashes Rape Case, Says Relationship Was 'Consensual'
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-rape-case-found-relationship-consensual-highly-educated-lady-working-in-mnc-didnt-lodge-fir-for-months-532102
+### 2026-04-29T05:35:40+00:00
+Madras High Court Orders CBI Probe Into Alleged ₹397 Crore Transformer Procurement Scam During Senthil Balaji's Tenure As Electricity Minister
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-cbi-probe-transformer-procurement-scam-senthil-balaji-532158
 
-[Read on Telegram](https://t.me/livelawindia/109882)
-
----
-### 2026-04-28T15:31:25+00:00
-Madras High Court Quashes ED Case Against Minister I Periyasamy After Noting Quashing Of Predicate Offence
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ecir-against-minister-periyasamy-quashed-532108
-
-[Read on Telegram](https://t.me/livelawindia/109883)
+[Read on Telegram](https://t.me/livelawindia/109911)
 
 ---
-### 2026-04-28T15:36:45+00:00
-Bombay High Court Adjourns Defamation Suit To 2046, After Senior Citizen Parties Refuse To Settle 'Ego Fight'
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-adjourns-defamation-suit-to-2046-after-senior-citizen-parties-refuse-to-settle-ego-fight-532111
+### 2026-04-29T05:44:00+00:00
+Not All Content On Public Figures Can Be Restrained Unless Derogatory: Delhi High Court Remarks In Arjun Kapoor's Personality Rights Suit
+https://www.livelaw.in/high-court/delhi-high-court/arjun-kapoor-personality-rights-content-on-public-figures-cant-be-restrained-unless-derogatory-532159
 
-[Read on Telegram](https://t.me/livelawindia/109884)
-
----
-### 2026-04-28T16:00:45+00:00
-Supreme Court Stays Bombay HC Judgment Releasing 193-Acre Thane Land From Acquisition As Private Forest
-https://www.livelaw.in/top-stories/supreme-court-stays-bombay-hc-judgment-releasing-193-acre-thane-land-from-acquisition-as-private-forest-532114
-
-[Read on Telegram](https://t.me/livelawindia/109885)
+[Read on Telegram](https://t.me/livelawindia/109912)
 
 ---
-### 2026-04-28T16:05:13+00:00
-“Common Man's Life Made Miserable": Bombay High Court Slams Maharashtra Govt Over Illegal Hawkers Menace, Seeks Clear Action Plan
-https://www.livelaw.in/high-court/bombay-high-court/common-mans-life-made-miserable-bombay-high-court-slams-maharashtra-govt-over-illegal-hawkers-menace-seeks-clear-action-plan-532115
+### 2026-04-29T05:52:00+00:00
+S. 24 HMA | No Maintenance If Qualified Wife Refrains From Working Just To Burden Husband: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-s-24-hma-no-maintenance-qualified-wife-refrains-working-burden-husband-532161
 
-[Read on Telegram](https://t.me/livelawindia/109886)
-
----
-### 2026-04-28T16:25:33+00:00
-Sabarimala Reference | Art 25(2)(b) Mentions Throwing Open Of Only Temples Since Caste System Is Not In Other Religions : Justice Nagarathna
-https://www.livelaw.in/top-stories/sabarimala-reference-art-252b-mentions-throwing-open-of-only-temples-since-caste-system-is-not-in-other-religions-justice-nagarathna-532118
-
-[Read on Telegram](https://t.me/livelawindia/109887)
+[Read on Telegram](https://t.me/livelawindia/109913)
 
 ---
-### 2026-04-28T17:12:46+00:00
-Supreme Court Daily Round-Up : April 28, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-28-2026-532119
+### 2026-04-29T06:42:52+00:00
+Magistrate Doesn't Require Prior Sanction To Direct FIR Registration Under S.156(3) CrPC : Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-hate-speech-prior-sanction-not-required-at-pre-cognizance-stage-brinda-karat-anurag-thakur-fir-registration-532170
 
-[Read on Telegram](https://t.me/livelawindia/109888)
-
----
-### 2026-04-28T18:02:36+00:00
-“Trust ECI To Carry Out Duties Impartially”: Calcutta High Court Disposes Plea Challenging Preventive Action Memo After EC's Withdrawal
-https://www.livelaw.in/high-court/calcutta-high-court/trust-eci-to-carry-out-duties-impartially-calcutta-high-court-disposes-plea-challenging-preventive-action-memo-after-ecs-withdrawal-532121
-
-[Read on Telegram](https://t.me/livelawindia/109889)
+[Read on Telegram](https://t.me/livelawindia/109914)
 
 ---
-### 2026-04-29T01:18:49+00:00
-PIL In Supreme Court Seeks Removal Of UP IPS Officer Ajay Pal Sharma As Election Observer In West Bengal Polls
-https://www.livelaw.in/top-stories/pil-in-supreme-court-seeks-removal-of-up-ips-officer-ajay-pal-sharma-as-election-observer-in-west-bengal-polls-532128
+### 2026-04-29T07:00:33+00:00
+No Prior Permission To Pursue Regular Course: Telangana High Court Refuses To Validate Employee's LLB Degree
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-court-employee-pursued-llb-prior-permission-532172
 
-[Read on Telegram](https://t.me/livelawindia/109890)
-
----
-### 2026-04-29T01:32:19+00:00
-Maharashtra Minister Nitesh Rane Sentenced To 1 Month Jail For Intentional Insult Of Public Servant By Forcing Him To Walk Through Mud
-https://www.livelaw.in/news-updates/nitesh-rane-1-month-jail-public-servant-insult-forcing-him-to-walk-in-mud-532125
-
-[Read on Telegram](https://t.me/livelawindia/109891)
+[Read on Telegram](https://t.me/livelawindia/109915)
 
 ---
-### 2026-04-29T02:32:31+00:00
-Kerala High Court Questions ECI Over Alleged Denial Of Voting Rights To 20,000 Election Duty Staff
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-elections-commission-disenfranchisement-election-poll-officials-532126
+### 2026-04-29T07:02:13+00:00
+Surprising That NHRC Orders Enquiry On UP Madarsas But No Suo-Motu Actions On Lynchings, Vigilantism: Allahabad HC
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-surprising-nhrc-up-madarsas-suo-motu-action-lynchings-vigilantism-532173
 
-[Read on Telegram](https://t.me/livelawindia/109892)
+[Read on Telegram](https://t.me/livelawindia/109916)
 
 ---
-### 2026-04-29T03:32:42+00:00
-Questions Of Title, Ownership Can't Be Decided In PIL Jurisdiction: Intervenors Tell MP High Court In Bhojshala Temple-Kamal Maula Dispute
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bhojshala-temple-kamal-maula-ownership-issues-public-interest-litigation-532123
+### 2026-04-29T07:04:53+00:00
+MP High Court Directs State To Address Grievances Of Families Displaced By Sardar Sarovar Dam Project In Medha Patkar's PIL
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-sardar-sarovar-project-displaced-people-registration-532174
 
-[Read on Telegram](https://t.me/livelawindia/109893)
+[Read on Telegram](https://t.me/livelawindia/109917)
+
+---
+### 2026-04-29T07:24:48+00:00
+Black Sheep In Legal Profession Must Be Dealt With Immediately : Supreme Court Questions Bar Council Disciplinary Mechanism
+https://www.livelaw.in/top-stories/black-sheep-in-legal-profession-must-be-dealt-with-immediately-supreme-court-questions-bar-council-disciplinary-mechanism-532178
+
+[Read on Telegram](https://t.me/livelawindia/109918)
+
+---
+### 2026-04-29T07:24:58+00:00
+INX Media Money Laundering Case: Karti Chidambaram Moves Madras High Court Against Attachment Of Assets By ED
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-inx-money-laundering-cause-karthi-chidambaram-plea-532179
+
+[Read on Telegram](https://t.me/livelawindia/109919)
+
+---
+### 2026-04-29T07:38:08+00:00
+Mere Familial Relationship Between Bidders Does Not Amount To Cartelisation In Tender Process: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-familial-relationship-bidders-cartelisation-tender-process-532164
+
+[Read on Telegram](https://t.me/livelawindia/109920)
+
+---
+### 2026-04-29T07:40:08+00:00
+CJI Surya Kant Flags Off 'Nyaya Ro Saathi' Vehicles; Calls For Reframing ADR As Primary Pillar Of Justice Delivery
+https://www.livelaw.in/news-updates/cji-surya-kant-flags-off-nyaya-ro-saathi-vehicles-calls-for-reframing-adr-as-primary-pillar-of-justice-delivery-532183
+
+[Read on Telegram](https://t.me/livelawindia/109921)
+
+---
+### 2026-04-29T07:51:28+00:00
+Bombay High Court Judge Recalls Order Adjourning Defamation Suit Till 2046, Now Posts Matter For Hearing In July 2026
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-judge-recalls-order-post-matter-hearing-532184
+
+[Read on Telegram](https://t.me/livelawindia/109922)
+
+---
+### 2026-04-29T08:02:28+00:00
+'Policy Decision': Delhi High Court Declines Plea For Compensation, Public Employment Benefits To Kin Of Those Killed In Terror Attacks
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-plea-compensation-public-employment-benefits-terror-attacks-532185
+
+[Read on Telegram](https://t.me/livelawindia/109923)
+
+---
+### 2026-04-29T08:12:48+00:00
+'We Can't Be Part Of Annihilation Of Religion; Let's Not Open Age Old Customs' : Supreme Court In Sabarimala Reference Hearing
+https://www.livelaw.in/top-stories/we-cant-be-part-of-annihilation-of-religion-lets-not-open-age-old-customs-supreme-court-in-sabarimala-reference-hearing-532187
+
+[Read on Telegram](https://t.me/livelawindia/109924)
+
+---
+### 2026-04-29T08:13:28+00:00
+“Suffering Is Same For All Pregnancies”: Madras High Court Criticises State GO Restricting Maternity Leave To 12 Weeks For Third Child
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-go-restricting-maternity-leave-third-pregnancy-criticised-532188
+
+[Read on Telegram](https://t.me/livelawindia/109925)
+
+---
+### 2026-04-29T08:23:51+00:00
+Delhi High Court Chief Justice's VC Proceedings Disturbed As Obscene Pornographic Content Played On Virtual Hearing Platform
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-chief-justice-vc-proceedings-obscene-pornographic-disturb-532190
+
+[Read on Telegram](https://t.me/livelawindia/109926)
 
 ---
