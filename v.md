@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-29T14:32:38+00:00*
+*Last Updated: 2026-04-29T16:02:14+00:00*
+
+---
+
+### 2026-04-29T16:02:14+00:00
+Alleged Recession Or Closure Of Business No Ground To Deny Maintenance To Wife; Able-Bodied Husband Presumed Capable Of Earning: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/vasantbhai-premjibhai-vekariya-v-state-of-gujarat-anr-1613070
+
+[Source Link](https://t.me/verdictumlegalupdates/26786)
+
+---
+
+### 2026-04-29T15:32:13+00:00
+Appointment Of Minor To Public Post Is Void Ab Initio; No Right Can Flow From Such Illegal Appointment: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/luxmi-shankar-tiwari-v-state-of-up-ors-2026ahc94774-minor-public-post-1613060
+
+[Source Link](https://t.me/verdictumlegalupdates/26785)
+
+---
+
+### 2026-04-29T15:03:11+00:00
+Ensure Comprehensive Mitigation Reports & Specialised Legal Teams in Death Penalty Cases: Supreme Court Issues Directions
+https://www.verdictum.in/supreme-court/aman-singh-v-state-of-bihar-2026-insc-424-comprehensive-mitigation-reports-death-penalty-1613064
+
+[Source Link](https://t.me/verdictumlegalupdates/26784)
 
 ---
 
@@ -138,30 +162,6 @@ DLSA, Shivamogga Invites Applications For The Post Of Deputy Legal Aid Defense C
 https://www.verdictum.in/job-updates/district-legal-services-authority-1612999
 
 [Source Link](https://t.me/verdictumlegalupdates/26767)
-
----
-
-### 2026-04-28T15:33:04+00:00
-Agricultural Damage Compensation Cannot Be Denied Citing Govt. Resolution Excluding Certain Wildlife Species: Bombay High Court
-https://www.verdictum.in/bombay-high-court/mahadeo-jagannath-dekate-v-state-of-maharashtra-ors-2026bhc-nag6387-db-1613004
-
-[Source Link](https://t.me/verdictumlegalupdates/26766)
-
----
-
-### 2026-04-28T15:02:41+00:00
-Right Of Transgender Persons To Collect Customary Offerings, Badhai Not Recognized By Law: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/rekha-devi-v-state-of-up-2026ahc-lko25757-db-right-transgenders-customary-offerings-1613007
-
-[Source Link](https://t.me/verdictumlegalupdates/26765)
-
----
-
-### 2026-04-28T14:32:59+00:00
-Non-Issuance Of Integrity Certificate Does Not Vitiate Selection Committee Assessment Under IPS Regulations 1955: Telangana High Court
-https://www.verdictum.in/telangana-high-court/ls-chowhan-v-union-of-india-ors-2026tshc3744-db-integrity-certificate-1613003
-
-[Source Link](https://t.me/verdictumlegalupdates/26764)
 
 ---
 
