@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-29T08:23:05+00:00*
+*Last Updated: 2026-04-29T14:32:38+00:00*
+
+---
+
+### 2026-04-29T14:32:38+00:00
+Excise Case: Delhi High Court Lists CBI Plea Against Discharge Of Kejriwal, Sisodia For Hearing On May 4
+https://www.verdictum.in/delhi-high-court/delhi-high-court-lists-cbi-plea-against-discharge-of-kejriwal-sisodia-for-hearing-on-may-4-1613062
+
+[Source Link](https://t.me/verdictumlegalupdates/26783)
+
+---
+
+### 2026-04-29T14:02:48+00:00
+Bombay High Court Grants Bail To Convict In Narendra Dabholkar Murder Case
+https://www.verdictum.in/bombay-high-court/bombay-high-court-grants-bail-to-convict-in-narendra-dabholkar-murder-case-1613067
+
+[Source Link](https://t.me/verdictumlegalupdates/26782)
+
+---
+
+### 2026-04-29T13:32:37+00:00
+You Will Have To Tell Us That You Are Visiting Some Country, We Will Not Return Passport Like This: Apex Court Disposes Of Activist Teesta Setalvad's Application Seeking Release Of Passport
+https://www.verdictum.in/supreme-court/apex-court-disposes-of-activist-teesta-setalvads-application-seeking-release-of-passport-1613068
+
+[Source Link](https://t.me/verdictumlegalupdates/26781)
+
+---
+
+### 2026-04-29T13:03:15+00:00
+"Is Religion Hands-Off For This Court?": Senior Advocate Indira Jaising Says That This Proposition Is Direct Attack On Judicial Review
+https://www.verdictum.in/supreme-court/senior-advocate-indira-jaising-defends-temple-entry-sabarimala-1613073
+
+[Source Link](https://t.me/verdictumlegalupdates/26780)
+
+---
+
+### 2026-04-29T12:32:34+00:00
+We Respect Introspection, But It Does Not Happen Only On One Day: Justice Nagarathna Questions Sudden Decision Of Lady Petitioners To Visit Sabarimala
+https://www.verdictum.in/supreme-court/justice-nagarathna-absence-lady-petitioner-sabarimala-visit-senior-advocate-indira-jaising-1613069
+
+[Source Link](https://t.me/verdictumlegalupdates/26779)
+
+---
+
+### 2026-04-29T12:12:52+00:00
+In Citizens’ Interest If Elections Are Fair & Peaceful: Calcutta High Court Disposes Of PIL After ECI Withdraws Memorandum On Preventive Detention
+https://www.verdictum.in/calcutta-high-court/md-danish-farooqui-v-eci-wpa-p-209-of-2026-ci-withdraws-memorandum-on-preventive-detention-1613059
+
+[Source Link](https://t.me/verdictumlegalupdates/26778)
+
+---
+
+### 2026-04-29T11:33:11+00:00
+Congress MP Advocate R Sudha Writes To President Seeking Suspension Of Rajiv Gandhi’s Assassin's Enrolment As Advocate
+https://www.verdictum.in/news/congress-mp-advocate-r-sudha-letter-enrollment-advocate-ag-perarivalan-1613061
+
+[Source Link](https://t.me/verdictumlegalupdates/26777)
+
+---
+
+### 2026-04-29T10:52:49+00:00
+Stranger Catching Hold Of Minor’s Hand Without Consent Amounts To Use Of Criminal Force With Sexual Intent: Delhi High Court
+https://www.verdictum.in/delhi-high-court/state-v-x-2026dhc3561-stranger-catching-hold-of-minors-hand-criminal-force-1613057
+
+[Source Link](https://t.me/verdictumlegalupdates/26776)
+
+---
+
+### 2026-04-29T10:02:28+00:00
+Ego Fight At Fag End Of Life Clogs System: Bombay High Court Recalls Order Listing Defamation Suit Involving Senior Citizen After 2046
+https://www.verdictum.in/bombay-high-court/tarinibahen-desai-anr-v-kilkilraj-bhansali-ors-ego-fight-fag-end-life-recall-order-defamation-suit-1613056
+
+[Source Link](https://t.me/verdictumlegalupdates/26775)
+
+---
+
+### 2026-04-29T09:13:06+00:00
+Article 311 Not Applicable To ICAR Employees; Autonomous Society Staff Do Not Hold Civil Posts Under Union Or State: Supreme Court
+https://www.verdictum.in/supreme-court/sadachari-singh-tomar-v-union-of-india-ors-2026-insc-427-article-311-1613052
+
+[Source Link](https://t.me/verdictumlegalupdates/26774)
 
 ---
 
@@ -82,86 +162,6 @@ Non-Issuance Of Integrity Certificate Does Not Vitiate Selection Committee Asses
 https://www.verdictum.in/telangana-high-court/ls-chowhan-v-union-of-india-ors-2026tshc3744-db-integrity-certificate-1613003
 
 [Source Link](https://t.me/verdictumlegalupdates/26764)
-
----
-
-### 2026-04-28T14:03:17+00:00
-Scripted Enquiry Fatal To Prosecution When "Innocent Persons Being Crucified": Supreme Court Acquits 9 Surviving Convicts In 2008 Murder Case
-https://www.verdictum.in/supreme-court/sadek-ali-md-sadek-ali-v-the-state-of-assam-2026-insc-421-scripted-enquiry-fatal-to-prosecution-1613001
-
-[Source Link](https://t.me/verdictumlegalupdates/26763)
-
----
-
-### 2026-04-28T13:33:05+00:00
-Mere Presence Of Semen On Victim's Clothing Insufficient To Convict POCSO Accused Without Corroboration: Patna High Court
-https://www.verdictum.in/patna-high-court/md-khurshid-md-khurshid-rayeen-v-state-of-bihar-section-3-section-29-pocso-1613000
-
-[Source Link](https://t.me/verdictumlegalupdates/26762)
-
----
-
-### 2026-04-28T13:03:04+00:00
-Failed To Show That Natural Justice Was Violated: Tripura High Court Upholds Ex-TSR Rifle Man’s Dismissal Order
-https://www.verdictum.in/tripura-high-court/sonvir-singh-v-the-state-of-tripura-natural-justice-ex-tsr-rifle-mans-dismissal-order-1612996
-
-[Source Link](https://t.me/verdictumlegalupdates/26761)
-
----
-
-### 2026-04-28T12:32:42+00:00
-Andhra Pradesh High Court Invokes Concept of ‘Ardhangini’ To Allow Appointment Of Wife As Guardian Of Comatose Husband’s Bank Account
-https://www.verdictum.in/andhra-pradesh-high-court/singavaram-nagamma-v-state-of-andhra-pradesh-ors-guardian-bank-account-1612995
-
-[Source Link](https://t.me/verdictumlegalupdates/26760)
-
----
-
-### 2026-04-28T12:02:41+00:00
-“Cannot Act Treat Employees As Chattels”: Karnataka High Court Pulls Up KIADB For Extending Suspension Beyond Six Months Without Chargesheet
-https://www.verdictum.in/karnataka-high-court/shankar-yamanappa-talawar-v-ceo-and-executive-member-kiadb-writ-petition-no101210-of-2025-s-res-employees-as-chattels-1612992
-
-[Source Link](https://t.me/verdictumlegalupdates/26759)
-
----
-
-### 2026-04-28T11:33:00+00:00
-Supreme Court Asks Amicus Siddhartha Dave To Convene Meeting On Utilisation Of Funds By States On Installations Of CCTVs In Police Stations
-https://www.verdictum.in/supreme-court/supreme-court-asks-amicus-siddhartha-dave-to-convene-meeting-on-utilisation-of-funds-by-states-on-installations-of-cctvs-in-police-stations-1612989
-
-[Source Link](https://t.me/verdictumlegalupdates/26758)
-
----
-
-### 2026-04-28T11:02:58+00:00
-Chemical Analysis Report Simply Tendered Across Bar Without Filing Supplementary Chargesheet: Bombay High Court Grants Bail To NDPS Accused
-https://www.verdictum.in/bombay-high-court/ashish-prakash-walke-v-state-of-maharashtra-2026bhc-nag6256-ndps-accused-bail-chemical-analysis-report-1612988
-
-[Source Link](https://t.me/verdictumlegalupdates/26757)
-
----
-
-### 2026-04-28T10:32:57+00:00
-Forest Land Retained For Afforestation Need Not Be Notified As Reserved Forest To Attract FC Act: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/hk-lakshman-gowda-v-state-of-karnataka-ors-forest-conservation-act-1612987
-
-[Source Link](https://t.me/verdictumlegalupdates/26756)
-
----
-
-### 2026-04-28T10:02:55+00:00
-There Cannot Be Anarchy: Justice Amanullah Emphasizes Need For Institutional Norms In Religious Management In Sabarimala Reference
-https://www.verdictum.in/supreme-court/sabarimala-reference-justice-amanullah-institutional-norms-religious-management-nizam-pasha-1612984
-
-[Source Link](https://t.me/verdictumlegalupdates/26755)
-
----
-
-### 2026-04-28T09:32:34+00:00
-Arbitral Tribunal Competent To "Rule" On Limitation  Of Application U/A 11(6) A&C Act Despite High Court Referral: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/rajendra-prasad-singh-v-ms-arch-construction-2026ahc-lko29790-db-arbitral-tribunal-competent-to-rule-us-116-ac-act-1612983
-
-[Source Link](https://t.me/verdictumlegalupdates/26754)
 
 ---
 
