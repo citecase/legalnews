@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-28T12:59:58+00:00*
+*Last Updated: 2026-04-28T13:39:41+00:00*
 
 ---
 
-### 2026-04-28T12:59:58+00:00
-Karnataka High Court Stays CERC's New Deviation Penalty Formula For Renewable Energy Generators, 2014 Regime To Continue In Interim
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-cerc-renewable-energy-generators-2014dsm-regime-532080
-
-[Read on Telegram](https://t.me/livelawindia/109870)
-
----
-### 2026-04-28T13:13:41+00:00
-Trial Courts Must Call Reports On Mitigating & Aggravating Factors In Potential Death Penalty Cases Before Sentencing : Supreme Court
-https://www.livelaw.in/supreme-court/trial-courts-must-call-reports-on-mitigating-aggravating-factors-in-potential-death-penalty-cases-before-sentencing-supreme-court-532083
-
-[Read on Telegram](https://t.me/livelawindia/109871)
-
----
-### 2026-04-28T13:17:21+00:00
-2026 LiveLaw (SC) 431 | Aman Singh and another v. State of Bihar
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-431-aman-singh-and-another-v-state-of-bihar-532084
-
-[Read on Telegram](https://t.me/livelawindia/109872)
-
----
-### 2026-04-28T13:24:01+00:00
-Supreme Court To Examine If State PSC Rules Prevail Over RTI Act On Disclosure Of Answer Sheets
-https://www.livelaw.in/top-stories/supreme-court-to-examine-if-state-psc-rules-prevail-over-rti-act-on-disclosure-of-answer-sheets-532087
-
-[Read on Telegram](https://t.me/livelawindia/109873)
-
----
 ### 2026-04-28T13:39:41+00:00
 Too Hot To Handle: Indian Cities In A Giant Air Fryer
 https://www.livelaw.in/law-firms/law-firm-articles-/too-hot-handle-indian-cities-giant-air-fryer-532091
@@ -142,5 +114,33 @@ https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-28-2026-53
 https://www.livelaw.in/high-court/calcutta-high-court/trust-eci-to-carry-out-duties-impartially-calcutta-high-court-disposes-plea-challenging-preventive-action-memo-after-ecs-withdrawal-532121
 
 [Read on Telegram](https://t.me/livelawindia/109889)
+
+---
+### 2026-04-29T01:18:49+00:00
+PIL In Supreme Court Seeks Removal Of UP IPS Officer Ajay Pal Sharma As Election Observer In West Bengal Polls
+https://www.livelaw.in/top-stories/pil-in-supreme-court-seeks-removal-of-up-ips-officer-ajay-pal-sharma-as-election-observer-in-west-bengal-polls-532128
+
+[Read on Telegram](https://t.me/livelawindia/109890)
+
+---
+### 2026-04-29T01:32:19+00:00
+Maharashtra Minister Nitesh Rane Sentenced To 1 Month Jail For Intentional Insult Of Public Servant By Forcing Him To Walk Through Mud
+https://www.livelaw.in/news-updates/nitesh-rane-1-month-jail-public-servant-insult-forcing-him-to-walk-in-mud-532125
+
+[Read on Telegram](https://t.me/livelawindia/109891)
+
+---
+### 2026-04-29T02:32:31+00:00
+Kerala High Court Questions ECI Over Alleged Denial Of Voting Rights To 20,000 Election Duty Staff
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-elections-commission-disenfranchisement-election-poll-officials-532126
+
+[Read on Telegram](https://t.me/livelawindia/109892)
+
+---
+### 2026-04-29T03:32:42+00:00
+Questions Of Title, Ownership Can't Be Decided In PIL Jurisdiction: Intervenors Tell MP High Court In Bhojshala Temple-Kamal Maula Dispute
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bhojshala-temple-kamal-maula-ownership-issues-public-interest-litigation-532123
+
+[Read on Telegram](https://t.me/livelawindia/109893)
 
 ---
