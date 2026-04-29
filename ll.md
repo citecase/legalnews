@@ -1,135 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-29T08:59:01+00:00*
+*Last Updated: 2026-04-29T13:32:15+00:00*
 
 ---
 
-### 2026-04-29T08:59:01+00:00
-Madras High Court Appoints Hindu Couple As Guardians Of Muslim Child, Notes They're Taking Care Of Her Since Birth
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-hindu-couple-appointed-legal-guardian-muslim-child-532193
-
-[Read on Telegram](https://t.me/livelawindia/109929)
-
----
-### 2026-04-29T09:10:21+00:00
-Bombay High Court Grants Bail To Accused In Narendra Dabholkar Murder Case
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-grants-bail-to-accused-in-narendra-dabholkar-murder-case-532196
-
-[Read on Telegram](https://t.me/livelawindia/109930)
-
----
-### 2026-04-29T09:29:31+00:00
-26/11 Mumbai Terror Attack: High Court Refuses Police Clearance Certificate To Acquitted Accused Fahim Ansari, Cites Security Concerns
-https://www.livelaw.in/high-court/bombay-high-court/2611-mumbai-attack-accused-fahim-ansari-acquitted-but-no-police-clearance-certificate-532200
-
-[Read on Telegram](https://t.me/livelawindia/109931)
-
----
-### 2026-04-29T09:32:31+00:00
-When Consent Becomes Control: Spousal Veto And Reproductive Autonomy Under ART Act, 2021
-https://www.livelaw.in/lawschool/articles/spousal-veto-reproductive-autonomy-art-act2021-532180
-
-[Read on Telegram](https://t.me/livelawindia/109932)
-
----
-### 2026-04-29T09:43:31+00:00
-High Court Questions Maintainability Of PIL Challenging Punjab's Anti-Sacrilege Law; Raps Petitioner For Suppressing Facts
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-raps-suspended-lawyer-who-challenged-anti-sacrilege-law-532202
-
-[Read on Telegram](https://t.me/livelawindia/109933)
-
----
-### 2026-04-29T10:15:51+00:00
-'Situation Is Grim' : Supreme Court Takes Suo Motu Case On NCLT Delays In Approving Resolution Plans
-https://www.livelaw.in/supreme-court/supreme-court-takes-suo-motu-case-on-nclt-delays-in-approving-resolution-plans-532210
-
-[Read on Telegram](https://t.me/livelawindia/109934)
-
----
-### 2026-04-29T10:30:21+00:00
-Accused Can't Be Taken To CCTV-Free Areas In Police Stations: Says MP High Court; Bats For Body Cams To Prevent Custodial Violence
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-indore-police-commissionerate-police-atrocities-cases-532214
-
-[Read on Telegram](https://t.me/livelawindia/109935)
-
----
-### 2026-04-29T10:49:25+00:00
-Insurance Law & Practice In India – Principles, Jurisprudence And The Digital Age: A Practitioner's Handbook Released At Constitution Club
-https://www.livelaw.in/news-updates/sanjay-kumar-girotra-book-insurance-law-practice-principles-jurisprudence-digital-age-532217
-
-[Read on Telegram](https://t.me/livelawindia/109936)
-
----
-### 2026-04-29T10:51:25+00:00
-Women Who Are True Devotees Of Lord Ayyappa Won't Go To Sabarimala Till They Attain 50 Years : Supreme Court
-https://www.livelaw.in/top-stories/women-who-are-true-devotees-of-lord-ayyappa-wont-go-to-sabarimala-till-they-attain-50-years-supreme-court-532218
-
-[Read on Telegram](https://t.me/livelawindia/109937)
-
----
-### 2026-04-29T10:52:26+00:00
-'Having Coffee In Public Becomes A Fearful Act': Allahabad HC's Justice Sreedharan Slams NHRC Silence On Inter-Faith Couples' Harassment
-https://www.livelaw.in/high-court/allahabad-high-court/coffee-public-fearful-allahabad-hc-justice-sreedharan-slams-nhrc-silence-inter-faith-couples-harassment-532220
-
-[Read on Telegram](https://t.me/livelawindia/109938)
-
----
-### 2026-04-29T11:13:25+00:00
-Supreme Court Declines To Release Teesta Setalvad's Passport Since No Definite Foreign Travel Plan Given
-https://www.livelaw.in/top-stories/supreme-court-declines-to-release-teesta-setalvads-passport-since-no-definite-foreign-travel-plan-given-532223
-
-[Read on Telegram](https://t.me/livelawindia/109939)
-
----
-### 2026-04-29T11:25:05+00:00
-Supreme Court Criticises Assam Police For Faulty Probe Leading To Acquittals In Murder Case
-https://www.livelaw.in/supreme-court/supreme-court-criticises-assam-police-for-faulty-probe-leading-to-acquittals-in-murder-case-532225
-
-[Read on Telegram](https://t.me/livelawindia/109940)
-
----
-### 2026-04-29T11:26:25+00:00
-2026 LiveLaw (SC) 435 |  Sadek Ali @ Md. Sadek Ali and Anr. Versus The State of Assam and Anr.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-435-sadek-ali-md-sadek-ali-and-anr-versus-the-state-of-assam-and-anr-532226
-
-[Read on Telegram](https://t.me/livelawindia/109941)
-
----
-### 2026-04-29T11:51:15+00:00
-'Govt Attempted To Shield Politicians': Madras High Court While Ordering CBI Probe Into Alleged Transformer Tender Scam Involving Senthil Balaji
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-transformer-procurement-scam-attempt-suppress-truth-532229
-
-[Read on Telegram](https://t.me/livelawindia/109942)
-
----
-### 2026-04-29T12:37:25+00:00
-Anil Ambani Alleges Fresh Objectionable Telecast By Republic TV Despite Prior Orders; Bombay High Court Asks Parties Not To “Escalate”
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-defamation-case-arnab-goswami-republic-tv-532237
-
-[Read on Telegram](https://t.me/livelawindia/109943)
-
----
-### 2026-04-29T13:06:45+00:00
-'Technology Can't Be Hurdle': Gujarat HC Sets Aside Family Court's 'Overly Technical' Conditions For Husband's VC Appearance In Divorce Case
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-husband-wife-divorce-mutual-technology-accessible-532239
-
-[Read on Telegram](https://t.me/livelawindia/109944)
-
----
-### 2026-04-29T13:17:05+00:00
-Kerala High Court Invites Suggestions From Bar Members On Senior Designation Applications
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-suggestions-bar-members-senior-designation-applications-532241
-
-[Read on Telegram](https://t.me/livelawindia/109945)
-
----
-### 2026-04-29T13:19:25+00:00
-Supreme Court Questions UP Police For Not Arresting Satinder Singh Bhasin Despite His Non-Surrender After Bail Cancellation
-https://www.livelaw.in/top-stories/supreme-court-grand-venice-project-satinder-singh-bhasin-non-surrender-after-cancellation-of-bail-up-dgp-summoned-532242
-
-[Read on Telegram](https://t.me/livelawindia/109946)
-
----
 ### 2026-04-29T13:32:15+00:00
 Remembering Soli Sorabjee: The Peerless Lawyer and Man
 https://www.livelaw.in/articles/remembering-soli-sorabjee-peerless-lawyer-532181
@@ -142,5 +16,131 @@ CIRP | Admission Of Claim By Resolution Professional Does Not Amount To Acknowle
 https://www.livelaw.in/top-stories/cirp-admission-of-claim-by-resolution-professional-does-not-amount-to-acknowledgment-of-debt-supreme-court-532248
 
 [Read on Telegram](https://t.me/livelawindia/109948)
+
+---
+### 2026-04-29T14:14:15+00:00
+Delhi Consumer Court Directs Fujitsu General To Refund ₹1.14 Lakh For Defective AC; Awards ₹25k Compensation
+https://www.livelaw.in/consumer-cases/delhi-consumer-court-directs-fujitsu-general-to-refund-114-lakh-for-defective-ac-awards-25k-compensation-532250
+
+[Read on Telegram](https://t.me/livelawindia/109949)
+
+---
+### 2026-04-29T14:22:49+00:00
+'Shocking' : Supreme Court Criticises Allahabad HC For Denying Bail To Undertrial Despite 9 Years' Custody
+https://www.livelaw.in/top-stories/shocking-supreme-court-criticises-allahabad-hc-for-denying-bail-to-undertrial-despite-9-years-custody-532251
+
+[Read on Telegram](https://t.me/livelawindia/109950)
+
+---
+### 2026-04-29T14:38:29+00:00
+Agricultural Procurement Takes Priority Over Personal Hardship: Punjab & Haryana High Court Upholds Temporary Transfer During Harvest Season
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-upholds-temporary-transfer-during-harvest-season-gricultural-procurement-takes-priority-over-personal-hardship-532253
+
+[Read on Telegram](https://t.me/livelawindia/109951)
+
+---
+### 2026-04-29T14:50:49+00:00
+Delhi High Court Upholds Police Constable's Conviction For Accepting ₹1,000 Bribe 32 Years Ago
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-upholds-police-constables-conviction-for-accepting-1000-bribe-32-years-ago-531963
+
+[Read on Telegram](https://t.me/livelawindia/109952)
+
+---
+### 2026-04-29T14:54:09+00:00
+Dental Student Suicide Case: College HOD Moves Kerala High Court Seeking Anticipatory Bail In Abetment FIR
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-dental-student-suicide-dr-ram-anticipatory-bail-532256
+
+[Read on Telegram](https://t.me/livelawindia/109953)
+
+---
+### 2026-04-29T15:07:49+00:00
+J&K&L High Court Cautions Advocates Against 'Vulgar Activities' At Bar Events Following Kanpur Bar Dance Incident
+https://www.livelaw.in/news-updates/jammu-and-kashmir-and-ladakh-high-court-warns-advocates-against-indecorous-activities-at-bar-events-following-kanpur-bar-dance-incident-532255
+
+[Read on Telegram](https://t.me/livelawindia/109954)
+
+---
+### 2026-04-29T15:37:39+00:00
+'Minor Minerals' Not Minor In Environmental Consequences; Unchecked Extraction Must Be Within Statutory Framework: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-minor-minerals-not-minor-in-environmental-consequences-unchecked-extraction-from-nallahs-must-operate-within-strict-statutory-framework-532254
+
+[Read on Telegram](https://t.me/livelawindia/109955)
+
+---
+### 2026-04-29T15:39:59+00:00
+'Person Cannot Oscillate Between Two Caste Identities To Derive Benefits, Undermines Sanctity Of System': Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-disqualification-proceedings-mukhiya-532260
+
+[Read on Telegram](https://t.me/livelawindia/109956)
+
+---
+### 2026-04-29T15:51:19+00:00
+Calcutta High Court Confirms 10-Year Sentence For Attempt To Murder After Man Hurls Bomb During 2008 Panchayat Poll Campaign
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-confirms-10-year-sentence-for-attempt-to-murder-after-man-hurled-bomb-during-panchayat-poll-campaign-532262
+
+[Read on Telegram](https://t.me/livelawindia/109957)
+
+---
+### 2026-04-29T15:57:39+00:00
+Medical Reimbursement Not 'Alms': Punjab & Haryana High Court Fixes 2-Month Deadline For Authorities, Orders Payment Of Interest For Delay
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-fixes-2-month-deadline-orders-interest-for-delay-532259
+
+[Read on Telegram](https://t.me/livelawindia/109958)
+
+---
+### 2026-04-29T16:16:05+00:00
+No Hate Speech Offences In Speeches Of Anurag Thakur & Parvesh Verma : Supreme Court In Brinda Karat's Plea
+https://www.livelaw.in/top-stories/supreme-court-bjp-anurag-thakur-parvesh-verma-hate-speeches-no-cognizable-offense-plea-for-fir-registration-by-brinda-karat-532264
+
+[Read on Telegram](https://t.me/livelawindia/109959)
+
+---
+### 2026-04-29T16:27:05+00:00
+Based On Finance Act 2026, Supreme Court Sets Aside HC Verdicts That JAOs Can't Issue IT Reassessment Notices
+https://www.livelaw.in/supreme-court/based-on-finance-act-2026-supreme-court-sets-aside-hc-verdicts-that-jaos-cant-issue-it-reassessment-notices-532266
+
+[Read on Telegram](https://t.me/livelawindia/109960)
+
+---
+### 2026-04-29T16:31:25+00:00
+2026 LiveLaw (SC) 436 |  Asst Commissioner of Income Tax v. Aristo Pharmaceuticals Private Ltd
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-436-asst-commissioner-of-income-tax-v-aristo-pharmaceuticals-private-ltd-532267
+
+[Read on Telegram](https://t.me/livelawindia/109961)
+
+---
+### 2026-04-29T16:51:35+00:00
+Can Indian Banks' Association Blacklist Advocates Through Caution Lists? Supreme Court Reserves Judgment
+https://www.livelaw.in/top-stories/can-indian-banks-association-blacklist-advocates-through-caution-lists-supreme-court-reserves-judgment-532269
+
+[Read on Telegram](https://t.me/livelawindia/109962)
+
+---
+### 2026-04-29T16:57:15+00:00
+2026 LiveLaw (SC) 437 | Ashwini Kumar Upadhyaya v. Union of India,
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-437-ashwini-kumar-upadhyaya-v-union-of-india-532271
+
+[Read on Telegram](https://t.me/livelawindia/109963)
+
+---
+### 2026-04-29T17:00:35+00:00
+2026 LiveLaw (SC) 438 |  Shankar Khandelwal v. Omkara Asset Reconstruction Pvt. Ltd.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-438-shankar-khandelwal-v-omkara-asset-reconstruction-pvt-ltd-532273
+
+[Read on Telegram](https://t.me/livelawindia/109964)
+
+---
+### 2026-04-29T17:02:15+00:00
+2026 LiveLaw (SC) 439 | VAIBHAV SINGH VERSUS STATE OF UTTAR PRADESH
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-439-vaibhav-singh-versus-state-of-uttar-pradesh-532274
+
+[Read on Telegram](https://t.me/livelawindia/109965)
+
+---
+### 2026-04-29T17:17:35+00:00
+Supreme Court Daily Round-Up : April 29, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-29-2026-532270
+
+[Read on Telegram](https://t.me/livelawindia/109966)
 
 ---
