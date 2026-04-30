@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-30T09:37:46+00:00*
+*Last Updated: 2026-04-30T10:32:56+00:00*
 
 ---
 
-### 2026-04-30T09:37:46+00:00
-Delhi High Court Restrains Priya Kapur From Dissipating Sunjay Kapur's Assets, Grants Interim Relief To Karisma Kapoor's Children
-https://www.livelaw.in/high-court/delhi-high-court/karisma-kapoor-children-father-sunjay-kapoor-assets-dispute-pria-kapur-not-dissipate-property-532361
-
-[Read on Telegram](https://t.me/livelawindia/110016)
-
----
-### 2026-04-30T10:02:26+00:00
-Allahabad High Court Imposes ₹25K Costs On Advocate For Filing PIL With False Credentials & Pending Criminal Cases
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-cost-advocate-filing-pil-false-credentials-pending-criminal-cases-532363
-
-[Read on Telegram](https://t.me/livelawindia/110017)
-
----
-### 2026-04-30T10:30:16+00:00
-BREAKING| No AOR Exam In 2026; Next Exam In 2027 : Supreme Court
-https://www.livelaw.in/top-stories/no-aor-exam-in-2026-next-exam-in-2027-supreme-court-532369
-
-[Read on Telegram](https://t.me/livelawindia/110018)
-
----
-### 2026-04-30T10:31:36+00:00
-Kerala High Court Declines Relief To Polling Officials Who Couldn't Vote In State Assembly Election
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-declines-relief-to-polling-officials-who-could-not-vote-in-the-states-general-election-532370
-
-[Read on Telegram](https://t.me/livelawindia/110019)
-
----
 ### 2026-04-30T10:32:56+00:00
 Pendency Of Execution Petition Against Judgment Debtor No Bar To Institute Other Execution Petitions Against Remaining Debtors: AP High Court
 https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-ruling-pendency-execution-petition-judgment-debtor-section-145-cpc-no-bar-initiation-of-another-petition-532295
@@ -142,5 +114,33 @@ Karnataka High Court Rejects Filmmaker Santosh Kumar's Plea To Cancel 'Dhurandha
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-plea-cancel-cbfc-certificate-dhurandhar2-plagiarism-allegations-532416
 
 [Read on Telegram](https://t.me/livelawindia/110035)
+
+---
+### 2026-04-30T14:22:39+00:00
+'Ya Allah! Rasgulla!' Remark Without Malicious Intent Doesn't Insult Religion: Bombay HC Quashes FIR Against Bharati Singh, Shekhar Suman
+https://www.livelaw.in/high-court/bombay-high-court/bharti-singh-shekhar-suman-fir-quashed-ya-allah-rasgulla-dahi-bhalla-comedy-532420
+
+[Read on Telegram](https://t.me/livelawindia/110036)
+
+---
+### 2026-04-30T14:32:40+00:00
+When Should A Judge Step Aside? India Has No Answer !
+https://www.livelaw.in/articles/judge-step-aside-532349
+
+[Read on Telegram](https://t.me/livelawindia/110037)
+
+---
+### 2026-04-30T16:07:40+00:00
+BREAKING | No Illegality In Appointing Central Govt Or PSU Employees, Excluding State Employees For WB Poll Counting Duties: Calcutta HC
+https://www.livelaw.in/high-court/calcutta-high-court/breaking-no-illegality-in-appointing-central-govt-or-psu-employees-excluding-state-employees-for-wb-poll-counting-duties-calcutta-hc-532425
+
+[Read on Telegram](https://t.me/livelawindia/110038)
+
+---
+### 2026-04-30T17:01:52+00:00
+“Goa Is Part Of India”: Bombay High Court Says Orders Of Indian Courts Not 'Foreign Judgments' Under Portuguese Civil Code
+https://www.livelaw.in/high-court/bombay-high-court/indian-court-order-not-foreign-under-portuguese-civil-code-goa-part-of-india-532430
+
+[Read on Telegram](https://t.me/livelawindia/110039)
 
 ---
