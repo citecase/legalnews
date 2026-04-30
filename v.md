@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-29T16:02:14+00:00*
+*Last Updated: 2026-04-30T08:32:42+00:00*
+
+---
+
+### 2026-04-30T08:32:42+00:00
+Abrupt Haste To Close Proceedings At Critical Stage Intensifies Doubt: Madras High Court Directs CBI Investigation Into Alleged ₹397 Crore TANGEDCO Transformer Procurement Scam
+https://www.verdictum.in/madras-high-court/arappor-iyakkam-v-the-director-directorate-of-vigilance-and-anti-corruption-2026mhc1636-alleged-397-crore-tangedco-transformer-1613116
+
+[Source Link](https://t.me/verdictumlegalupdates/26795)
+
+---
+
+### 2026-04-30T08:02:20+00:00
+Supreme Court Seeks Response From Centre On Plea Seeking To Establish Revenue Judicial Service For Land Disputes
+https://www.verdictum.in/supreme-court/supreme-court-seeks-response-from-centre-on-plea-seeking-to-establish-revenue-judicial-service-for-land-disputes-1613120
+
+[Source Link](https://t.me/verdictumlegalupdates/26794)
+
+---
+
+### 2026-04-30T07:32:59+00:00
+Supreme Court Reserves Judgment On Pawan Khera’s Plea Against Denial Of Anticipatory Bail
+https://www.verdictum.in/supreme-court/pawan-khera-denial-anticipatory-bail-cm-himanta-biswa-sarma-1613118
+
+[Source Link](https://t.me/verdictumlegalupdates/26793)
+
+---
+
+### 2026-04-30T07:12:58+00:00
+Admission Of Claim By Resolution Professional Is Mere Recital Of Debt & Not Acknowledgment Of Liability U/S.18 Limitation Act: Supreme Court
+https://www.verdictum.in/supreme-court/shankar-khandelwal-v-omkara-asset-reconstruction-pvt-ltd-2026-insc-429-claim-resolution-professional-limitation-1613112
+
+[Source Link](https://t.me/verdictumlegalupdates/26792)
+
+---
+
+### 2026-04-30T06:23:17+00:00
+Breaking: Innocent's Victimization Should Not Become Scar For Life: Apex Court Refuses To Hear Curative Plea By AIIMS Against Termination Of Pregnancy Of 15 YO
+https://www.verdictum.in/supreme-court/curative-petition-unwanted-pregnancy-termination-aiims-1613111
+
+[Source Link](https://t.me/verdictumlegalupdates/26791)
+
+---
+
+### 2026-04-30T06:12:55+00:00
+Railway Claims Tribunal Cannot Deny Compensation Citing Inconsistent Testimony On Distance & Timing Of Accident: Delhi High Court
+https://www.verdictum.in/delhi-high-court/smt-raj-kumari-ors-v-union-of-india-2026dhc3569-railway-tribunal-1613106
+
+[Source Link](https://t.me/verdictumlegalupdates/26790)
+
+---
+
+### 2026-04-30T05:32:33+00:00
+Father & Son Relationship Between Bidders Not Enough To Conclude Collusion & Cartelization In Tender Process: Bombay High Court
+https://www.verdictum.in/bombay-high-court/ms-gh-khandelwal-v-amravati-municipal-corporation-2026bhc-nag6315-db-relationship-of-father-son-cartelization-1613065
+
+[Source Link](https://t.me/verdictumlegalupdates/26789)
+
+---
+
+### 2026-04-30T05:02:52+00:00
+Guardians & Wards Act Is Religion-Neutral: Madras High Court Appoints Hindu Man As Legal Guardian Of "Muslim" Child
+https://www.verdictum.in/madras-high-court/x-v-y-cmamdno-423-of-2026-1613072
+
+[Source Link](https://t.me/verdictumlegalupdates/26788)
+
+---
+
+### 2026-04-30T04:32:20+00:00
+Compassionate Appointment Can’t Be Arbitrarily Rejected On Ground Of Deceased Employee’s Unsatisfactory Service Record: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/nikhil-kol-v-union-bank-of-india-ors-2026mphc-jbp32557-appointment-1613071
+
+[Source Link](https://t.me/verdictumlegalupdates/26787)
 
 ---
 
@@ -89,79 +161,6 @@ Stranger Catching Hold Of Minor’s Hand Without Consent Amounts To Use Of Crimi
 https://www.verdictum.in/delhi-high-court/state-v-x-2026dhc3561-stranger-catching-hold-of-minors-hand-criminal-force-1613057
 
 [Source Link](https://t.me/verdictumlegalupdates/26776)
-
----
-
-### 2026-04-29T10:02:28+00:00
-Ego Fight At Fag End Of Life Clogs System: Bombay High Court Recalls Order Listing Defamation Suit Involving Senior Citizen After 2046
-https://www.verdictum.in/bombay-high-court/tarinibahen-desai-anr-v-kilkilraj-bhansali-ors-ego-fight-fag-end-life-recall-order-defamation-suit-1613056
-
-[Source Link](https://t.me/verdictumlegalupdates/26775)
-
----
-
-### 2026-04-29T09:13:06+00:00
-Article 311 Not Applicable To ICAR Employees; Autonomous Society Staff Do Not Hold Civil Posts Under Union Or State: Supreme Court
-https://www.verdictum.in/supreme-court/sadachari-singh-tomar-v-union-of-india-ors-2026-insc-427-article-311-1613052
-
-[Source Link](https://t.me/verdictumlegalupdates/26774)
-
----
-
-### 2026-04-29T08:23:05+00:00
-Injured Witness Testimony Cannot Be Discarded Solely Due To Relationship With Victim If Found Reliable & Coherent: Chhattisgarh High Court
-https://www.verdictum.in/chhattisgarh-high-court/parasram-gayakwad-v-state-of-chhattisgarh-2026cghc18927-db-injured-witness-testimony-discarded-1613045
-
-[Source Link](https://t.me/verdictumlegalupdates/26773)
-
----
-
-### 2026-04-29T07:32:53+00:00
-Supreme Court Emphasizes Neighborhood School’s Obligation Under RTE Act To Give Admission To Students Referred By State Govt
-https://www.verdictum.in/supreme-court/lucknow-public-school-eldico-v-the-state-of-uttar-pradesh-2026-insc-422-neighbourhood-school-rte-1613044
-
-[Source Link](https://t.me/verdictumlegalupdates/26772)
-
----
-
-### 2026-04-29T06:32:54+00:00
-Ordinarily No Writ Lies Against Show Cause
-Notice Unless It's Ex Facie Without Jurisdiction: Patna High Court
-https://www.verdictum.in/patna-high-court/raj-raj-construction-v-state-of-bihar-civil-writ-jurisdiction-4759-of-2026-1613041
-
-[Source Link](https://t.me/verdictumlegalupdates/26771)
-
----
-
-### 2026-04-29T05:33:32+00:00
-Breaking: Supreme Court Declines To Issue Directions On Hate Speech; Says No Legislative Vacuum Exists
-https://www.verdictum.in/supreme-court/declines-directions-on-hate-speech-prior-sanction-not-firs-ashwani-upadhyay-1613032
-
-[Source Link](https://t.me/verdictumlegalupdates/26770)
-
----
-
-### 2026-04-29T05:16:12+00:00
-Corporate Guarantees Executed By Corporate Debtor Constitute "Financial Debt" U/S 5(8) IBC: Supreme Court
-https://www.verdictum.in/supreme-court/state-bank-of-india-v-doha-bank-qpsc-2026-insc-423-financial-debt-us-58-ibc-1613030
-
-[Source Link](https://t.me/verdictumlegalupdates/26769)
-
----
-
-### 2026-04-29T04:33:20+00:00
-Preventive Detention Can Be Invoked While Proceedings U/s.129 BNSS Are Ongoing: Jammu & Kashmir and Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/mohd-kabir-v-the-union-territory-of-jammu-and-kashmir-2026jklhc-jmu1094-detention-bnss-1613009
-
-[Source Link](https://t.me/verdictumlegalupdates/26768)
-
----
-
-### 2026-04-28T16:03:05+00:00
-DLSA, Shivamogga Invites Applications For The Post Of Deputy Legal Aid Defense Counsel
-https://www.verdictum.in/job-updates/district-legal-services-authority-1612999
-
-[Source Link](https://t.me/verdictumlegalupdates/26767)
 
 ---
 
