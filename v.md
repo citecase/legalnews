@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-30T08:32:42+00:00*
+*Last Updated: 2026-04-30T14:33:17+00:00*
+
+---
+
+### 2026-04-30T14:33:17+00:00
+Habeas Corpus Cannot Be Used For Transnational Child Custody Issues Requiring Detailed Inquiry: Delhi High Court
+https://www.verdictum.in/delhi-high-court/x-v-union-of-india-through-ministry-of-home-affairs-2026dhc3632-db-habeas-corpus-transnational-custody-battles-1613141
+
+[Source Link](https://t.me/verdictumlegalupdates/26806)
+
+---
+
+### 2026-04-30T14:03:06+00:00
+Goa Children's Act| "Child Abuse" Includes Both Physical & Psychological Maltreatment; Need Not Be Habitual: Bombay High Court
+https://www.verdictum.in/bombay-high-court/helcino-a-fernandes-v-state-2026bhc-goa941-child-abuse-us-2m-goa-childrens-act-1613140
+
+[Source Link](https://t.me/verdictumlegalupdates/26805)
+
+---
+
+### 2026-04-30T13:32:44+00:00
+Can't Interdict Ongoing Procurement Process On A Challenge Instituted At A Belated Stage: Delhi High Court
+https://www.verdictum.in/delhi-high-court/ms-utkarsh-enterprises-v-union-of-india-2026dhc3610-db-outdoor-gym-sports-equipment-tenders-1613139
+
+[Source Link](https://t.me/verdictumlegalupdates/26804)
+
+---
+
+### 2026-04-30T13:02:23+00:00
+Follow Liberal Approach & Not Technicalities While Deciding Application Seeking Amendment Of Pleadings: Supreme Court Reiterates
+https://www.verdictum.in/supreme-court/akkiraju-panduranga-rao-anr-v-gundlapally-ranga-rao-2026-insc-428-amendment-pleadings-1613146
+
+[Source Link](https://t.me/verdictumlegalupdates/26803)
+
+---
+
+### 2026-04-30T12:32:41+00:00
+Non-Compliance Of Sections 42, 50 & 52A NDPS Act Do Not Vitiate Prosecution If Recovery & Chain Of Custody Established With Cogent Evidence: Chhattisgarh High Court
+https://www.verdictum.in/chhattisgarh-high-court/sheikh-rehman-qureshi-v-state-of-chhattisgarh-2026cghc19266-db-compliance-lapses-us-42-50-52a-ndps-act-1613137
+
+[Source Link](https://t.me/verdictumlegalupdates/26802)
+
+---
+
+### 2026-04-30T12:03:00+00:00
+Hate Speech Runs Contrary To Deeper Civilizational Ethos Of India: Supreme Court Cautious About "Us vs Them" Mindset
+https://www.verdictum.in/supreme-court/ashwini-kumar-upadhyay-v-union-of-india-writ-petition-civil-no-943-of-2021-declines-to-issue-new-hate-speech-guidelines-1613133
+
+[Source Link](https://t.me/verdictumlegalupdates/26801)
+
+---
+
+### 2026-04-30T11:32:39+00:00
+Party Aggrieved By Arbitrator’s Rejection Of Jurisdictional Plea On Ground Of Limitation Must Wait Till Conclusion Of Proceedings To Challenge It: Supreme Court
+https://www.verdictum.in/supreme-court/ms-mcm-worldwide-private-limited-v-ms-construction-industry-development-council-2026-insc-425-1613132
+
+[Source Link](https://t.me/verdictumlegalupdates/26800)
+
+---
+
+### 2026-04-30T11:02:37+00:00
+State As A Model Employer Cannot Be Indifferent To Workforce Who Contributed Indirectly To National Endeavours: Supreme Court Quashes ISRO’s Labour Scheme
+https://www.verdictum.in/supreme-court/r-iyyappan-v-union-of-india-2026-insc-431-isros-gang-labour-scheme-1613130
+
+[Source Link](https://t.me/verdictumlegalupdates/26799)
+
+---
+
+### 2026-04-30T10:32:56+00:00
+“Advocates Must Maintain Decorum”: J&K And Ladakh High Court Issue Circular Against Vulgar Conduct In Bar Events After Kanpur Incident
+https://www.verdictum.in/jammu-ladakh-high-court/jammu-kashmir-and-ladakh-high-court-circular-kanpur-bar-vulgar-dance-1613129
+
+[Source Link](https://t.me/verdictumlegalupdates/26798)
+
+---
+
+### 2026-04-30T09:52:35+00:00
+Director Can’t Feign Ignorance Of Specific Performance Suit When Notice Was Issued To Company That Chose Not To Appear: Supreme Court Restores Executing Court’s Order
+https://www.verdictum.in/supreme-court/challani-ginning-and-pressing-factory-v-kamal-2026-insc-426-director-ignorance-specific-performance-suit-1613127
+
+[Source Link](https://t.me/verdictumlegalupdates/26797)
+
+---
+
+### 2026-04-30T09:02:43+00:00
+Supreme Court Asks High Court  Panel To Take Action Against Bar Association Officials For Abstaining From Work In NOIDA Court
+https://www.verdictum.in/supreme-court/supreme-court-asks-high-court-panel-to-take-action-against-bar-association-officials-for-abstaining-from-work-in-noida-court-1613125
+
+[Source Link](https://t.me/verdictumlegalupdates/26796)
 
 ---
 
@@ -73,94 +161,6 @@ Compassionate Appointment Can’t Be Arbitrarily Rejected On Ground Of Deceased 
 https://www.verdictum.in/madhya-pradesh-high-court/nikhil-kol-v-union-bank-of-india-ors-2026mphc-jbp32557-appointment-1613071
 
 [Source Link](https://t.me/verdictumlegalupdates/26787)
-
----
-
-### 2026-04-29T16:02:14+00:00
-Alleged Recession Or Closure Of Business No Ground To Deny Maintenance To Wife; Able-Bodied Husband Presumed Capable Of Earning: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/vasantbhai-premjibhai-vekariya-v-state-of-gujarat-anr-1613070
-
-[Source Link](https://t.me/verdictumlegalupdates/26786)
-
----
-
-### 2026-04-29T15:32:13+00:00
-Appointment Of Minor To Public Post Is Void Ab Initio; No Right Can Flow From Such Illegal Appointment: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/luxmi-shankar-tiwari-v-state-of-up-ors-2026ahc94774-minor-public-post-1613060
-
-[Source Link](https://t.me/verdictumlegalupdates/26785)
-
----
-
-### 2026-04-29T15:03:11+00:00
-Ensure Comprehensive Mitigation Reports & Specialised Legal Teams in Death Penalty Cases: Supreme Court Issues Directions
-https://www.verdictum.in/supreme-court/aman-singh-v-state-of-bihar-2026-insc-424-comprehensive-mitigation-reports-death-penalty-1613064
-
-[Source Link](https://t.me/verdictumlegalupdates/26784)
-
----
-
-### 2026-04-29T14:32:38+00:00
-Excise Case: Delhi High Court Lists CBI Plea Against Discharge Of Kejriwal, Sisodia For Hearing On May 4
-https://www.verdictum.in/delhi-high-court/delhi-high-court-lists-cbi-plea-against-discharge-of-kejriwal-sisodia-for-hearing-on-may-4-1613062
-
-[Source Link](https://t.me/verdictumlegalupdates/26783)
-
----
-
-### 2026-04-29T14:02:48+00:00
-Bombay High Court Grants Bail To Convict In Narendra Dabholkar Murder Case
-https://www.verdictum.in/bombay-high-court/bombay-high-court-grants-bail-to-convict-in-narendra-dabholkar-murder-case-1613067
-
-[Source Link](https://t.me/verdictumlegalupdates/26782)
-
----
-
-### 2026-04-29T13:32:37+00:00
-You Will Have To Tell Us That You Are Visiting Some Country, We Will Not Return Passport Like This: Apex Court Disposes Of Activist Teesta Setalvad's Application Seeking Release Of Passport
-https://www.verdictum.in/supreme-court/apex-court-disposes-of-activist-teesta-setalvads-application-seeking-release-of-passport-1613068
-
-[Source Link](https://t.me/verdictumlegalupdates/26781)
-
----
-
-### 2026-04-29T13:03:15+00:00
-"Is Religion Hands-Off For This Court?": Senior Advocate Indira Jaising Says That This Proposition Is Direct Attack On Judicial Review
-https://www.verdictum.in/supreme-court/senior-advocate-indira-jaising-defends-temple-entry-sabarimala-1613073
-
-[Source Link](https://t.me/verdictumlegalupdates/26780)
-
----
-
-### 2026-04-29T12:32:34+00:00
-We Respect Introspection, But It Does Not Happen Only On One Day: Justice Nagarathna Questions Sudden Decision Of Lady Petitioners To Visit Sabarimala
-https://www.verdictum.in/supreme-court/justice-nagarathna-absence-lady-petitioner-sabarimala-visit-senior-advocate-indira-jaising-1613069
-
-[Source Link](https://t.me/verdictumlegalupdates/26779)
-
----
-
-### 2026-04-29T12:12:52+00:00
-In Citizens’ Interest If Elections Are Fair & Peaceful: Calcutta High Court Disposes Of PIL After ECI Withdraws Memorandum On Preventive Detention
-https://www.verdictum.in/calcutta-high-court/md-danish-farooqui-v-eci-wpa-p-209-of-2026-ci-withdraws-memorandum-on-preventive-detention-1613059
-
-[Source Link](https://t.me/verdictumlegalupdates/26778)
-
----
-
-### 2026-04-29T11:33:11+00:00
-Congress MP Advocate R Sudha Writes To President Seeking Suspension Of Rajiv Gandhi’s Assassin's Enrolment As Advocate
-https://www.verdictum.in/news/congress-mp-advocate-r-sudha-letter-enrollment-advocate-ag-perarivalan-1613061
-
-[Source Link](https://t.me/verdictumlegalupdates/26777)
-
----
-
-### 2026-04-29T10:52:49+00:00
-Stranger Catching Hold Of Minor’s Hand Without Consent Amounts To Use Of Criminal Force With Sexual Intent: Delhi High Court
-https://www.verdictum.in/delhi-high-court/state-v-x-2026dhc3561-stranger-catching-hold-of-minors-hand-criminal-force-1613057
-
-[Source Link](https://t.me/verdictumlegalupdates/26776)
 
 ---
 
