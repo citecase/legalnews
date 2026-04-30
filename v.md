@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-30T14:33:17+00:00*
+*Last Updated: 2026-04-30T16:02:42+00:00*
+
+---
+
+### 2026-04-30T16:02:42+00:00
+Manager (Legal) Vacancy At Sabarmati Gas Limited (SGL)
+https://www.verdictum.in/job-updates/sabarmati-gas-limited-1613142
+
+[Source Link](https://t.me/verdictumlegalupdates/26809)
+
+---
+
+### 2026-04-30T15:32:40+00:00
+Foreign Court Order Alone Not Determinative Of Legality Of Custody; Welfare Of Child Paramount: Bombay High Court
+https://www.verdictum.in/bombay-high-court/dr-shreyas-dilip-mandre-v-state-of-maharashtra-anr-child-custody-dispute-1613138
+
+[Source Link](https://t.me/verdictumlegalupdates/26808)
+
+---
+
+### 2026-04-30T15:02:58+00:00
+Age-Based Restriction Under Surrogacy Law Is Scientifically Justified; Not Discriminatory: Kerala High Court
+https://www.verdictum.in/kerala-high-court/sajithanand-s-sajitha-manoharan-anr-v-union-of-india-ors-2026ker32802-1613144
+
+[Source Link](https://t.me/verdictumlegalupdates/26807)
 
 ---
 
@@ -137,30 +161,6 @@ Railway Claims Tribunal Cannot Deny Compensation Citing Inconsistent Testimony O
 https://www.verdictum.in/delhi-high-court/smt-raj-kumari-ors-v-union-of-india-2026dhc3569-railway-tribunal-1613106
 
 [Source Link](https://t.me/verdictumlegalupdates/26790)
-
----
-
-### 2026-04-30T05:32:33+00:00
-Father & Son Relationship Between Bidders Not Enough To Conclude Collusion & Cartelization In Tender Process: Bombay High Court
-https://www.verdictum.in/bombay-high-court/ms-gh-khandelwal-v-amravati-municipal-corporation-2026bhc-nag6315-db-relationship-of-father-son-cartelization-1613065
-
-[Source Link](https://t.me/verdictumlegalupdates/26789)
-
----
-
-### 2026-04-30T05:02:52+00:00
-Guardians & Wards Act Is Religion-Neutral: Madras High Court Appoints Hindu Man As Legal Guardian Of "Muslim" Child
-https://www.verdictum.in/madras-high-court/x-v-y-cmamdno-423-of-2026-1613072
-
-[Source Link](https://t.me/verdictumlegalupdates/26788)
-
----
-
-### 2026-04-30T04:32:20+00:00
-Compassionate Appointment Can’t Be Arbitrarily Rejected On Ground Of Deceased Employee’s Unsatisfactory Service Record: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/nikhil-kol-v-union-bank-of-india-ors-2026mphc-jbp32557-appointment-1613071
-
-[Source Link](https://t.me/verdictumlegalupdates/26787)
 
 ---
 
