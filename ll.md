@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-29T13:32:15+00:00*
+*Last Updated: 2026-04-29T14:14:15+00:00*
 
 ---
 
-### 2026-04-29T13:32:15+00:00
-Remembering Soli Sorabjee: The Peerless Lawyer and Man
-https://www.livelaw.in/articles/remembering-soli-sorabjee-peerless-lawyer-532181
-
-[Read on Telegram](https://t.me/livelawindia/109947)
-
----
-### 2026-04-29T13:55:55+00:00
-CIRP | Admission Of Claim By Resolution Professional Does Not Amount To Acknowledgment Of Debt: Supreme Court
-https://www.livelaw.in/top-stories/cirp-admission-of-claim-by-resolution-professional-does-not-amount-to-acknowledgment-of-debt-supreme-court-532248
-
-[Read on Telegram](https://t.me/livelawindia/109948)
-
----
 ### 2026-04-29T14:14:15+00:00
 Delhi Consumer Court Directs Fujitsu General To Refund ₹1.14 Lakh For Defective AC; Awards ₹25k Compensation
 https://www.livelaw.in/consumer-cases/delhi-consumer-court-directs-fujitsu-general-to-refund-114-lakh-for-defective-ac-awards-25k-compensation-532250
@@ -142,5 +128,19 @@ Supreme Court Daily Round-Up : April 29, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-29-2026-532270
 
 [Read on Telegram](https://t.me/livelawindia/109966)
+
+---
+### 2026-04-30T03:32:26+00:00
+Railways Can't Deny Compensation To Kin Of Deceased Passenger On 'Bald Plea' Of Possible Suicide Without Proof: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-suicide-bona-fide-journey-532231
+
+[Read on Telegram](https://t.me/livelawindia/109967)
+
+---
+### 2026-04-30T03:32:46+00:00
+Supreme Court Quarterly Digest 2026 - BAIL
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-quarterly-digest-bail-2026-532265
+
+[Read on Telegram](https://t.me/livelawindia/109968)
 
 ---
