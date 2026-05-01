@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-01T04:32:11+00:00*
+*Last Updated: 2026-05-01T09:08:18+00:00*
 
 ---
 
-### 2026-05-01T04:32:11+00:00
-Punjab & Haryana High Court Monthly Digest: March 2026
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-monthly-digest-march-2026-532445
+### 2026-05-01T09:08:18+00:00
+Defence Of Coercion In Issuance Of Cheque Cannot Be Proved Through Forensic Exam; Must Be Established By Witnesses: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-defence-of-coercion-in-issuance-of-cheques-cannot-be-proved-through-forensic-examination-must-be-established-by-witnesses-532435
 
-[Read on Telegram](https://t.me/livelawindia/110047)
-
----
-### 2026-05-01T04:32:31+00:00
-Numbers Do Lie: Rethinking Bright-Line Tests In Defining Control
-https://www.livelaw.in/articles/rethinking-bright-line-tests-defining-control-532412
-
-[Read on Telegram](https://t.me/livelawindia/110048)
+[Read on Telegram](https://t.me/livelawindia/110068)
 
 ---
-### 2026-05-01T04:47:51+00:00
-Deceased Railway Employee's Married Daughter Who Had Customary Divorce Entitled To Family Pension: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-deceased-employee-daughter-customary-divorce-family-pension-532446
+### 2026-05-01T09:17:38+00:00
+Gujarat High Court Extends Asaram's Temporary Bail In Rape Case Till June 15
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-extends-asarams-temporary-bail-till-june-15-532500
 
-[Read on Telegram](https://t.me/livelawindia/110049)
-
----
-### 2026-05-01T05:00:11+00:00
-Civil Judge (Junior Division) Vacancy At Kerala Judicial Service
-https://www.livelaw.in/job-updates/civil-judge-junior-division-vacancy-at-kerala-judicial-service-532463
-
-[Read on Telegram](https://t.me/livelawindia/110050)
+[Read on Telegram](https://t.me/livelawindia/110069)
 
 ---
-### 2026-05-01T05:01:51+00:00
-Grievance Redressal Executive And Anti-Fraud Executive Vacancy At State Health Agency, Delhi
-https://www.livelaw.in/job-updates/grievance-redressal-executive-and-anti-fraud-executive-vacancy-at-state-health-agency-delhi-532464
+### 2026-05-01T09:32:30+00:00
+Ticking POSH Boxes Won't Stop Harassment. Here's The Real Fix
+https://www.livelaw.in/articles/ticking-posh-boxes-harassment-532413
 
-[Read on Telegram](https://t.me/livelawindia/110051)
-
----
-### 2026-05-01T05:02:51+00:00
-One Dead, Two Served Life Sentence: 14 Years On, MP High Court Acquits Murder Convicts; Orders FIR Against IO For Fabricating Evidence
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-registration-of-fir-false-evidence-submission-532447
-
-[Read on Telegram](https://t.me/livelawindia/110052)
+[Read on Telegram](https://t.me/livelawindia/110070)
 
 ---
-### 2026-05-01T05:17:23+00:00
-After SC Stay On UGC Equity Regulations, MP High Court To Examine Circular Excluding General Category Students From Discrimination Complaints
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-university-grants-commission-regulations-2026-discriminatory-complaint-policy-532448
+### 2026-05-01T09:33:09+00:00
+Patna High Court Directs State To Comply With SOP Barring Arbitrary Raising Of Road Level, Contractor To Face Penalty For Violation
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-state-sop-arbitrary-raising-of-road-level-532487
 
-[Read on Telegram](https://t.me/livelawindia/110053)
-
----
-### 2026-05-01T05:24:03+00:00
-Legal Director Vacancy At Police Training Centres, Maharashtra [Apply Now]
-https://www.livelaw.in/job-updates/legal-director-vacancy-at-police-training-centres-maharashtra-532466
-
-[Read on Telegram](https://t.me/livelawindia/110054)
+[Read on Telegram](https://t.me/livelawindia/110071)
 
 ---
-### 2026-05-01T05:27:23+00:00
-Rajasthan High Court Extends Asaram's Interim Bail In 2013 Rape Case Till May 25
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-asaram-interim-bail-extension-may-25-532468
+### 2026-05-01T10:33:23+00:00
+Punjab & Haryana High Court Quarterly Digest: January - March, 2026
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quarterly-digest-january-march-2026-532449
 
-[Read on Telegram](https://t.me/livelawindia/110055)
-
----
-### 2026-05-01T05:37:43+00:00
-Legal Counsel (M&A) Vacancy At Tata Consultancy Services Limited
-https://www.livelaw.in/job-updates/legal-counsel-ma-vacancy-at-tata-consultancy-services-limited-532470
-
-[Read on Telegram](https://t.me/livelawindia/110056)
+[Read on Telegram](https://t.me/livelawindia/110072)
 
 ---
-### 2026-05-01T05:42:44+00:00
-Karnataka High Court Quashes FIR Against Ranveer Singh Over 'Kantara' Mimicry; Orders Him To Visit Chamundeshwari Temple Within 4 Weeks
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-fir-ranveer-singh-kantara-mimicry-532472
+### 2026-05-01T10:47:24+00:00
+Delhi High Court Closes ANI's ₹2 Crore Copyright Infringement Suit Against PTI After Settlement
+https://www.livelaw.in/high-court/delhi-high-court/ani-pti-2-crore-copyright-infringement-suit-settled-532509
 
-[Read on Telegram](https://t.me/livelawindia/110057)
-
----
-### 2026-05-01T06:02:07+00:00
-Consultant (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP [Bengaluru; Apply Now]
-https://www.livelaw.in/job-updates/consultant-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-bengaluru-532476
-
-[Read on Telegram](https://t.me/livelawindia/110058)
+[Read on Telegram](https://t.me/livelawindia/110073)
 
 ---
-### 2026-05-01T06:02:47+00:00
-Punjab & Haryana High Court Quashes Rape FIR Filed With 16-Year Delay, Says Relationship Was Consensual
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-fir-found-ingredients-missing-16-year-delay-in-filing-rape-case-532450
+### 2026-05-01T11:02:44+00:00
+Post-Conviction NDPS Bail Can't Be Granted On Long Incarceration Alone; Twin Conditions U/S 37 Must Be Strictly Met: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-post-conviction-ndps-bail-cant-be-granted-on-long-incarceration-alone-twin-conditions-under-section-37-must-be-strictly-met-532491
 
-[Read on Telegram](https://t.me/livelawindia/110059)
-
----
-### 2026-05-01T06:07:27+00:00
-BREAKING | Supreme Court Grants Anticipatory Bail To Pawan Khera In Assam Police FIR
-https://www.livelaw.in/top-stories/supreme-court-grants-anticipatory-bail-to-pawan-khera-in-assam-police-fir-532477
-
-[Read on Telegram](https://t.me/livelawindia/110060)
+[Read on Telegram](https://t.me/livelawindia/110074)
 
 ---
-### 2026-05-01T06:17:47+00:00
-“Cryptic & Bereft Of Reasons”: J&K&L High Court Sets Aside Order Granting Bail In Rape Case Over False Promise Of Marriage
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-cryptic-bereft-of-reasons-hc-sets-aside-bail-in-rape-case-involving-false-promise-of-marriage-observes-grant-of-bail-must-be-supported-by-cogent-reasons-532433
+### 2026-05-01T11:05:04+00:00
+'Work With Love Or Sit Outside Temple': Orissa High Court Cites Khalil Gibran, Upholds Bank Employee's Removal For Defying Transfer
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-court-denies-relief-bank-employee-removed-unauthorized-absence-532512
 
-[Read on Telegram](https://t.me/livelawindia/110061)
-
----
-### 2026-05-01T06:40:37+00:00
-In Defence of “Constitutional Morality”: How It Can Aid Adjudication
-https://www.livelaw.in/articles/constitutional-morality-and-sabarimala-reference-case-analysis-532480
-
-[Read on Telegram](https://t.me/livelawindia/110062)
+[Read on Telegram](https://t.me/livelawindia/110075)
 
 ---
-### 2026-05-01T06:57:17+00:00
-Only NCLT Allahabad Registry To Scrutinize Fresh Filings As Allahabad HC Stays Principal Bench's 'Joint Scrutiny' Order
-https://www.livelaw.in/high-court/allahabad-high-court/nclt-allahabad-registry-scrutinize-fresh-filings-allahabad-hc-stays-principal-bench-joint-scrutiny-532481
+### 2026-05-01T11:13:05+00:00
+'Lawrence Of Punjab' Row: High Court Seeks Centre, State's Response On Zee's Plea Alleging "Pre-Publication Restraint On Speech"
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/lawrence-of-punjab-censor-zee5-challenge-notice-issued-532513
 
-[Read on Telegram](https://t.me/livelawindia/110063)
-
----
-### 2026-05-01T07:02:37+00:00
-Bombay High Court Grants Interim Bail To Rape Accused To Allow Him To Get Married
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-grants-interim-bail-rape-accused-performing-marriage-532434
-
-[Read on Telegram](https://t.me/livelawindia/110064)
+[Read on Telegram](https://t.me/livelawindia/110076)
 
 ---
-### 2026-05-01T07:35:07+00:00
-Assam CM Himanta Biswa Sarma Made Unparliamentary Remarks Against Pawan Khera, Case Influenced By Politics: Supreme Court In Bail Order
-https://www.livelaw.in/top-stories/assam-cm-himanta-biswa-sarma-made-unparliamentary-remarks-against-pawan-khera-case-influenced-by-politics-supreme-court-in-bail-order-532486
+### 2026-05-01T11:17:44+00:00
+Uttarakhand High Court Directs Stoppage Of Using Heavy Machinery To Mine In Ramganga-Saryu River Area
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-directs-stopping-heavy-machinery-mining-ramganga-saryu-river-area-532436
 
-[Read on Telegram](https://t.me/livelawindia/110065)
+[Read on Telegram](https://t.me/livelawindia/110077)
 
 ---
-### 2026-05-01T07:49:07+00:00
-'Fighting Indian State' Remark | Allahabad HC Rejects Plea Against Sambhal Court Order Refusing FIR Against LoP Rahul Gandhi
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-fighting-indian-state-remark-rejects-sambhal-court-fir-lop-rahul-gandhi-532489
+### 2026-05-01T11:33:01+00:00
+'Administrative Action Must Be Judged On Material Available At Relevant Time; Subsequent Developments Cannot Invalidate It': Patna HC
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-administrative-action-judged-material-available-532510
 
-[Read on Telegram](https://t.me/livelawindia/110066)
+[Read on Telegram](https://t.me/livelawindia/110078)
+
+---
+### 2026-05-01T11:37:40+00:00
+No Deemed Confirmation On Completion Of Probation; Written Order Mandatory Under Model Standing Orders: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-completion-probation-period-model-standing-orders-532437
+
+[Read on Telegram](https://t.me/livelawindia/110079)
+
+---
+### 2026-05-01T12:02:40+00:00
+Govt Criticism No Offence; 'Fight' Against Ideology Different From Inciting Rebellion: Allahabad HC Grants Relief To Rahul Gandhi
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-criticism-govt-action-offence-rahul-gandhi-fight-remark-ideological-opposition-not-rebellion-532516
+
+[Read on Telegram](https://t.me/livelawindia/110080)
+
+---
+### 2026-05-01T12:16:03+00:00
+CJI Declares Sikkim As The Declared First Paperless State Judiciary At National Conclave On Technology And Judicial Education
+https://www.livelaw.in/top-stories/sikkim-as-the-declared-first-paperless-state-judiciary-532520
+
+[Read on Telegram](https://t.me/livelawindia/110081)
+
+---
+### 2026-05-01T12:31:23+00:00
+Order XIII-A CPC | Supreme Court Lays Down Guidelines For Summary Judgment In Commercial Suits
+https://www.livelaw.in/supreme-court/order-xiii-a-cpc-supreme-court-lays-down-guidelines-for-summary-judgment-in-commercial-suits-532522
+
+[Read on Telegram](https://t.me/livelawindia/110082)
+
+---
+### 2026-05-01T12:32:23+00:00
+2026 LiveLaw (SC) 442 | RELIANCE EMINENT TRADING AND COMMERCIAL PRIVATE LIMITED VERSUS DELHI DEVELOPMENT AUTHORITY
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-442-reliance-eminent-trading-and-commercial-private-limited-versus-delhi-development-authority-532524
+
+[Read on Telegram](https://t.me/livelawindia/110083)
+
+---
+### 2026-05-01T12:32:34+00:00
+Ambedkar – Enigma Of Fire, Unshackling India's Soul
+https://www.livelaw.in/articles/ambedkar-unshackling-india-soul-532506
+
+[Read on Telegram](https://t.me/livelawindia/110084)
+
+---
+### 2026-05-01T12:34:23+00:00
+2026 LiveLaw (SC) 443 | Pawan Khera v State of Assam
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-443-pawan-khera-v-state-of-assam-532525
+
+[Read on Telegram](https://t.me/livelawindia/110085)
+
+---
+### 2026-05-01T13:23:13+00:00
+'Unsigned Employment Contract Can Be Considered For Assessing Notional Income': Bombay High Court Enhances Motor Accident Compensation
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-enhances-motor-accident-compensation-unsigned-employment-contract-532438
+
+[Read on Telegram](https://t.me/livelawindia/110086)
+
+---
+### 2026-05-01T13:27:47+00:00
+Co-Convict Being On Parole No Bar To Furlough: Delhi High Court Orders Release Of Life Convict For Daughter's School Admission
+https://www.livelaw.in/high-court/delhi-high-court/co-convict-being-on-parole-no-bar-to-furlough-delhi-high-court-orders-release-of-life-convict-for-daughters-school-admission-532440
+
+[Read on Telegram](https://t.me/livelawindia/110087)
 
 ---
