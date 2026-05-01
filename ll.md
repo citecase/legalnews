@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-30T10:32:56+00:00*
+*Last Updated: 2026-04-30T11:03:23+00:00*
 
 ---
 
-### 2026-04-30T10:32:56+00:00
-Pendency Of Execution Petition Against Judgment Debtor No Bar To Institute Other Execution Petitions Against Remaining Debtors: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-ruling-pendency-execution-petition-judgment-debtor-section-145-cpc-no-bar-initiation-of-another-petition-532295
-
-[Read on Telegram](https://t.me/livelawindia/110020)
-
----
-### 2026-04-30T10:47:56+00:00
-Supreme Court Warns Centre, AIIMS Of Contempt Charges If Order On Minor's Pregnancy Termination Not Implemented By May 4
-https://www.livelaw.in/top-stories/supreme-court-warns-centre-aiims-of-contempt-charges-if-order-on-minors-pregnancy-termination-not-implemented-by-may-4-532372
-
-[Read on Telegram](https://t.me/livelawindia/110021)
-
----
-### 2026-04-30T10:48:56+00:00
-Jana Nayagan Movie Leak: Madras High Court Denies Anticipatory Bail To Accused Freelance Editor
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-jana-nayagan-movie-leak-anticipatory-bail-rejected-532373
-
-[Read on Telegram](https://t.me/livelawindia/110022)
-
----
-### 2026-04-30T10:49:56+00:00
-'Presumption Of Bona Fides In Favour Of ECI': Calcutta HC Told In Plea Against Exclusion Of State Employees As Counting Supervisors
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-west-bengal-polls-counting-supervisors-532374
-
-[Read on Telegram](https://t.me/livelawindia/110023)
-
----
-### 2026-04-30T10:55:16+00:00
-Harbhajan Singh Not Residing In Punjab: State Tells High Court In Plea Challenging Withdrawal Of His Security Cover
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-cricketer-harbhajan-singh-not-residing-532375
-
-[Read on Telegram](https://t.me/livelawindia/110024)
-
----
 ### 2026-04-30T11:03:23+00:00
 Denying Police Clearance Certificate Over National Security Concerns Is Reasonable Restriction On Right To Livelihood: Bombay High Court
 https://www.livelaw.in/high-court/bombay-high-court/2611-accused-no-police-clearance-right-to-livelihood-reasonable-restriction-national-security-532378
@@ -142,5 +107,40 @@ https://www.livelaw.in/high-court/calcutta-high-court/breaking-no-illegality-in-
 https://www.livelaw.in/high-court/bombay-high-court/indian-court-order-not-foreign-under-portuguese-civil-code-goa-part-of-india-532430
 
 [Read on Telegram](https://t.me/livelawindia/110039)
+
+---
+### 2026-05-01T02:10:20+00:00
+Supreme Court To Hear Kannur Corporation's Challenge To Kerala High Court Order Silencing Its Siren
+https://www.livelaw.in/top-stories/supreme-court-to-hear-kannur-corporations-challenge-to-kerala-high-court-order-silencing-its-siren-532451
+
+[Read on Telegram](https://t.me/livelawindia/110040)
+
+---
+### 2026-05-01T02:32:10+00:00
+Madras High Court Paves Way For Release Of 'Dhruva Natchathiram' Movie, Orders Escrow Account To Safeguard Creditors' Dues
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-dhruva-natchathiram-movie-release-separate-bank-account-532444
+
+[Read on Telegram](https://t.me/livelawindia/110041)
+
+---
+### 2026-05-01T03:02:30+00:00
+Advocates Must Desist From Making Unfounded & Scandalous Allegations In Pleadings Against Judicial Officers: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-advocates-must-desist-from-making-unfounded-and-scandalous-allegations-in-pleadings-against-judicial-officers-532439
+
+[Read on Telegram](https://t.me/livelawindia/110042)
+
+---
+### 2026-05-01T03:33:00+00:00
+Service Dispute With Private Trust Not Maintainable Under Writ Jurisdiction: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-service-dispute-with-private-trust-not-maintainable-under-writ-jurisdiction-532431
+
+[Read on Telegram](https://t.me/livelawindia/110043)
+
+---
+### 2026-05-01T03:42:40+00:00
+Supreme Court Daily Round-Up : April 30, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-30-2026-532428
+
+[Read on Telegram](https://t.me/livelawindia/110044)
 
 ---
