@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-01T13:32:50+00:00*
+*Last Updated: 2026-05-01T16:02:08+00:00*
+
+---
+
+### 2026-05-01T16:02:08+00:00
+Legal Director Vacancy At Maharashtra Police
+https://www.verdictum.in/job-updates/maharashtra-police-1613205
+
+[Source Link](https://t.me/verdictumlegalupdates/26832)
+
+---
+
+### 2026-05-01T15:32:27+00:00
+Allahabad High Court Directs Mahakumbh Mela Authority To Decide Claims For Compensation For Deaths In Stampede Within 30 Days
+https://www.verdictum.in/allahabad-high-court/sanjay-kumar-sharma-v-state-of-up-ex-gratia-compensation-mahakumbh-mela-stampede-1613215
+
+[Source Link](https://t.me/verdictumlegalupdates/26831)
+
+---
+
+### 2026-05-01T15:03:05+00:00
+Unexplained Money Transfer By Itself Does Not Sustain A Bribery Charge: Delhi High Court Sets Aside Removal Of CWC Manager
+https://www.verdictum.in/delhi-high-court/rajesh-choudhary-v-union-of-india-2026dhc3651-finding-of-bribery-sleeping-on-duty-1613210
+
+[Source Link](https://t.me/verdictumlegalupdates/26830)
+
+---
+
+### 2026-05-01T14:32:43+00:00
+Special Appeal Not Maintainable Where Single Judge Refuses To Initiate Contempt Without Examining Merits: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/x-v-y-2026ahc-lko30452-db-chapter-viii-rule-5-high-court-rules-1952-1613209
+
+[Source Link](https://t.me/verdictumlegalupdates/26829)
+
+---
+
+### 2026-05-01T14:02:32+00:00
+Matter Of Maintenance U/S.24 Of Hindu Marriage Act Is Summary Enquiry & Not Full Fledged Trial: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/ab-v-pq-neutral-citation-2026khc21864-section-24-maintenance-summary-enquiry-1613213
+
+[Source Link](https://t.me/verdictumlegalupdates/26828)
 
 ---
 
@@ -121,46 +161,6 @@ Honey Trap Designed To Extort Money: Gujarat High Court Quashes Rape Case
 https://www.verdictum.in/gujarat-high-court/x-v-state-of-gujarat-2026gujhc26565-manifest-honey-trap-designed-to-extort-money-1613176
 
 [Source Link](https://t.me/verdictumlegalupdates/26813)
-
----
-
-### 2026-05-01T05:32:59+00:00
-“Testimonies Appeared To Be Gimmick, Not Honest Contradiction”: Supreme Court Acquits Father-In-Law In Case U/S 498A IPC
-https://www.verdictum.in/supreme-court/narendra-singh-v-the-state-of-madhya-pradesh-criminal-appeal-no-302-of-2014-1613173
-
-[Source Link](https://t.me/verdictumlegalupdates/26812)
-
----
-
-### 2026-05-01T05:02:17+00:00
-Bombay High Court: Denial Of Police Clearance For Public Employment Due To Criminal Antecedents A Reasonable Restriction On Right To Livelihood
-https://www.verdictum.in/bombay-high-court/fahim-arshad-mohammed-yusuf-ansari-v-state-of-maharashtra-ors-2026bhc-as20585-db-1613148
-
-[Source Link](https://t.me/verdictumlegalupdates/26811)
-
----
-
-### 2026-05-01T04:33:06+00:00
-'Living Separately' U/S.13(B) Of Hindu Marriage Act Means Complete Cessation Of Marital Obligations Regardless Of Physical Residence: Patna High Court
-https://www.verdictum.in/patna-high-court/a-v-b-living-separately-section-13b-hma-marital-obligations-physical-residence-1613147
-
-[Source Link](https://t.me/verdictumlegalupdates/26810)
-
----
-
-### 2026-04-30T16:02:42+00:00
-Manager (Legal) Vacancy At Sabarmati Gas Limited (SGL)
-https://www.verdictum.in/job-updates/sabarmati-gas-limited-1613142
-
-[Source Link](https://t.me/verdictumlegalupdates/26809)
-
----
-
-### 2026-04-30T15:32:40+00:00
-Foreign Court Order Alone Not Determinative Of Legality Of Custody; Welfare Of Child Paramount: Bombay High Court
-https://www.verdictum.in/bombay-high-court/dr-shreyas-dilip-mandre-v-state-of-maharashtra-anr-child-custody-dispute-1613138
-
-[Source Link](https://t.me/verdictumlegalupdates/26808)
 
 ---
 
