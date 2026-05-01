@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-04-30T11:03:23+00:00*
+*Last Updated: 2026-05-01T04:32:11+00:00*
 
 ---
 
-### 2026-04-30T11:03:23+00:00
-Denying Police Clearance Certificate Over National Security Concerns Is Reasonable Restriction On Right To Livelihood: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/2611-accused-no-police-clearance-right-to-livelihood-reasonable-restriction-national-security-532378
+### 2026-05-01T04:32:11+00:00
+Punjab & Haryana High Court Monthly Digest: March 2026
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-monthly-digest-march-2026-532445
 
-[Read on Telegram](https://t.me/livelawindia/110025)
-
----
-### 2026-04-30T11:16:48+00:00
-'Why Anil Ambani Not Arrested?' Asks Petitioner ; 'Can't Respond Why X Or Y Not Arrested', Says ED
-https://www.livelaw.in/top-stories/supreme-court-pil-to-probe-adag-companies-fraud-sg-tushar-mehta-says-cant-answer-why-anil-ambani-not-arrested-532381
-
-[Read on Telegram](https://t.me/livelawindia/110026)
+[Read on Telegram](https://t.me/livelawindia/110047)
 
 ---
-### 2026-04-30T11:17:28+00:00
-'Honey Trap Case': Gujarat High Court Quashes Rape FIR Citing Consensual Relationship, Notes Complainant Tried To Extort Money
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-rape-fir-consensual-relationship-honey-trap-532347
+### 2026-05-01T04:32:31+00:00
+Numbers Do Lie: Rethinking Bright-Line Tests In Defining Control
+https://www.livelaw.in/articles/rethinking-bright-line-tests-defining-control-532412
 
-[Read on Telegram](https://t.me/livelawindia/110027)
-
----
-### 2026-04-30T11:32:48+00:00
-MP High Court Orders Inquiry Into Alleged Illegal Detention Of Three Men By Police Over Vasundhara Raje 'Fake Letter' Row
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-illegal-detention-habeas-corpus-petition-vasundhara-raje-532379
-
-[Read on Telegram](https://t.me/livelawindia/110028)
+[Read on Telegram](https://t.me/livelawindia/110048)
 
 ---
-### 2026-04-30T11:37:08+00:00
-'Premature': Delhi Court Rejects Moneylife's Appeal Against Ex Parte Order To Remove Reports Linking Manoj Sandesara To Sterling Biotech Case
-https://www.livelaw.in/news-updates/moneylifes-appeal-against-removing-reports-linking-manoj-sandesara-to-sterling-biotech-dismissed-532388
+### 2026-05-01T04:47:51+00:00
+Deceased Railway Employee's Married Daughter Who Had Customary Divorce Entitled To Family Pension: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-deceased-employee-daughter-customary-divorce-family-pension-532446
 
-[Read on Telegram](https://t.me/livelawindia/110029)
-
----
-### 2026-04-30T11:48:08+00:00
-'Don't Want Another Vijay Mallya Case': Karnataka High Court Allows Conditional Release Of DNA Officials' Passports In Bengaluru Stampede Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-conditionally-releases-passports-dna-officials-ipl-stampede-case-532389
-
-[Read on Telegram](https://t.me/livelawindia/110030)
+[Read on Telegram](https://t.me/livelawindia/110049)
 
 ---
-### 2026-04-30T11:57:48+00:00
-Delhi High Court Orders Takedown Of Deepfake Content Misusing YouTuber Bhuvan Bam's Personality Rights
-https://www.livelaw.in/high-court/delhi-high-court/bhuvan-bam-personality-rights-takedown-deepfake-content-532391
+### 2026-05-01T05:00:11+00:00
+Civil Judge (Junior Division) Vacancy At Kerala Judicial Service
+https://www.livelaw.in/job-updates/civil-judge-junior-division-vacancy-at-kerala-judicial-service-532463
 
-[Read on Telegram](https://t.me/livelawindia/110031)
-
----
-### 2026-04-30T12:07:58+00:00
-Arrest Memo Containing Allegations Satisfies Article 22(1) Requirement Of Communicating Grounds Of Arrest: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-written-document-essential-allegations-article-221-532296
-
-[Read on Telegram](https://t.me/livelawindia/110032)
+[Read on Telegram](https://t.me/livelawindia/110050)
 
 ---
-### 2026-04-30T12:41:58+00:00
-Delhi Court Sets Aside Order Summoning BJP MLA Karnail Singh In Defamation Case By AAP's Satyendar Jain
-https://www.livelaw.in/news-updates/delhi-court-sets-aside-order-summoning-bjp-mla-karnail-singh-in-defamation-case-by-aaps-satyendar-jain-532407
+### 2026-05-01T05:01:51+00:00
+Grievance Redressal Executive And Anti-Fraud Executive Vacancy At State Health Agency, Delhi
+https://www.livelaw.in/job-updates/grievance-redressal-executive-and-anti-fraud-executive-vacancy-at-state-health-agency-delhi-532464
 
-[Read on Telegram](https://t.me/livelawindia/110033)
-
----
-### 2026-04-30T13:47:29+00:00
-Manipur Violence : Supreme Court Asks Whistleblower To Give First Generation Copy Of Alleged Recording Of Biren Singh For Forensic Analysis
-https://www.livelaw.in/top-stories/manipur-violence-supreme-court-asks-whistleblower-to-give-first-generation-copy-of-alleged-recording-of-biren-singh-for-forensic-analysis-532414
-
-[Read on Telegram](https://t.me/livelawindia/110034)
+[Read on Telegram](https://t.me/livelawindia/110051)
 
 ---
-### 2026-04-30T13:48:29+00:00
-Karnataka High Court Rejects Filmmaker Santosh Kumar's Plea To Cancel 'Dhurandhar 2' Certification Over Alleged Plagiarism By Aditya Dhar
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-plea-cancel-cbfc-certificate-dhurandhar2-plagiarism-allegations-532416
+### 2026-05-01T05:02:51+00:00
+One Dead, Two Served Life Sentence: 14 Years On, MP High Court Acquits Murder Convicts; Orders FIR Against IO For Fabricating Evidence
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-registration-of-fir-false-evidence-submission-532447
 
-[Read on Telegram](https://t.me/livelawindia/110035)
-
----
-### 2026-04-30T14:22:39+00:00
-'Ya Allah! Rasgulla!' Remark Without Malicious Intent Doesn't Insult Religion: Bombay HC Quashes FIR Against Bharati Singh, Shekhar Suman
-https://www.livelaw.in/high-court/bombay-high-court/bharti-singh-shekhar-suman-fir-quashed-ya-allah-rasgulla-dahi-bhalla-comedy-532420
-
-[Read on Telegram](https://t.me/livelawindia/110036)
+[Read on Telegram](https://t.me/livelawindia/110052)
 
 ---
-### 2026-04-30T14:32:40+00:00
-When Should A Judge Step Aside? India Has No Answer !
-https://www.livelaw.in/articles/judge-step-aside-532349
+### 2026-05-01T05:17:23+00:00
+After SC Stay On UGC Equity Regulations, MP High Court To Examine Circular Excluding General Category Students From Discrimination Complaints
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-university-grants-commission-regulations-2026-discriminatory-complaint-policy-532448
 
-[Read on Telegram](https://t.me/livelawindia/110037)
-
----
-### 2026-04-30T16:07:40+00:00
-BREAKING | No Illegality In Appointing Central Govt Or PSU Employees, Excluding State Employees For WB Poll Counting Duties: Calcutta HC
-https://www.livelaw.in/high-court/calcutta-high-court/breaking-no-illegality-in-appointing-central-govt-or-psu-employees-excluding-state-employees-for-wb-poll-counting-duties-calcutta-hc-532425
-
-[Read on Telegram](https://t.me/livelawindia/110038)
+[Read on Telegram](https://t.me/livelawindia/110053)
 
 ---
-### 2026-04-30T17:01:52+00:00
-“Goa Is Part Of India”: Bombay High Court Says Orders Of Indian Courts Not 'Foreign Judgments' Under Portuguese Civil Code
-https://www.livelaw.in/high-court/bombay-high-court/indian-court-order-not-foreign-under-portuguese-civil-code-goa-part-of-india-532430
+### 2026-05-01T05:24:03+00:00
+Legal Director Vacancy At Police Training Centres, Maharashtra [Apply Now]
+https://www.livelaw.in/job-updates/legal-director-vacancy-at-police-training-centres-maharashtra-532466
 
-[Read on Telegram](https://t.me/livelawindia/110039)
-
----
-### 2026-05-01T02:10:20+00:00
-Supreme Court To Hear Kannur Corporation's Challenge To Kerala High Court Order Silencing Its Siren
-https://www.livelaw.in/top-stories/supreme-court-to-hear-kannur-corporations-challenge-to-kerala-high-court-order-silencing-its-siren-532451
-
-[Read on Telegram](https://t.me/livelawindia/110040)
+[Read on Telegram](https://t.me/livelawindia/110054)
 
 ---
-### 2026-05-01T02:32:10+00:00
-Madras High Court Paves Way For Release Of 'Dhruva Natchathiram' Movie, Orders Escrow Account To Safeguard Creditors' Dues
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-dhruva-natchathiram-movie-release-separate-bank-account-532444
+### 2026-05-01T05:27:23+00:00
+Rajasthan High Court Extends Asaram's Interim Bail In 2013 Rape Case Till May 25
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-asaram-interim-bail-extension-may-25-532468
 
-[Read on Telegram](https://t.me/livelawindia/110041)
-
----
-### 2026-05-01T03:02:30+00:00
-Advocates Must Desist From Making Unfounded & Scandalous Allegations In Pleadings Against Judicial Officers: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-advocates-must-desist-from-making-unfounded-and-scandalous-allegations-in-pleadings-against-judicial-officers-532439
-
-[Read on Telegram](https://t.me/livelawindia/110042)
+[Read on Telegram](https://t.me/livelawindia/110055)
 
 ---
-### 2026-05-01T03:33:00+00:00
-Service Dispute With Private Trust Not Maintainable Under Writ Jurisdiction: Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-service-dispute-with-private-trust-not-maintainable-under-writ-jurisdiction-532431
+### 2026-05-01T05:37:43+00:00
+Legal Counsel (M&A) Vacancy At Tata Consultancy Services Limited
+https://www.livelaw.in/job-updates/legal-counsel-ma-vacancy-at-tata-consultancy-services-limited-532470
 
-[Read on Telegram](https://t.me/livelawindia/110043)
+[Read on Telegram](https://t.me/livelawindia/110056)
 
 ---
-### 2026-05-01T03:42:40+00:00
-Supreme Court Daily Round-Up : April 30, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-april-30-2026-532428
+### 2026-05-01T05:42:44+00:00
+Karnataka High Court Quashes FIR Against Ranveer Singh Over 'Kantara' Mimicry; Orders Him To Visit Chamundeshwari Temple Within 4 Weeks
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-fir-ranveer-singh-kantara-mimicry-532472
 
-[Read on Telegram](https://t.me/livelawindia/110044)
+[Read on Telegram](https://t.me/livelawindia/110057)
+
+---
+### 2026-05-01T06:02:07+00:00
+Consultant (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP [Bengaluru; Apply Now]
+https://www.livelaw.in/job-updates/consultant-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-bengaluru-532476
+
+[Read on Telegram](https://t.me/livelawindia/110058)
+
+---
+### 2026-05-01T06:02:47+00:00
+Punjab & Haryana High Court Quashes Rape FIR Filed With 16-Year Delay, Says Relationship Was Consensual
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-fir-found-ingredients-missing-16-year-delay-in-filing-rape-case-532450
+
+[Read on Telegram](https://t.me/livelawindia/110059)
+
+---
+### 2026-05-01T06:07:27+00:00
+BREAKING | Supreme Court Grants Anticipatory Bail To Pawan Khera In Assam Police FIR
+https://www.livelaw.in/top-stories/supreme-court-grants-anticipatory-bail-to-pawan-khera-in-assam-police-fir-532477
+
+[Read on Telegram](https://t.me/livelawindia/110060)
+
+---
+### 2026-05-01T06:17:47+00:00
+“Cryptic & Bereft Of Reasons”: J&K&L High Court Sets Aside Order Granting Bail In Rape Case Over False Promise Of Marriage
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-cryptic-bereft-of-reasons-hc-sets-aside-bail-in-rape-case-involving-false-promise-of-marriage-observes-grant-of-bail-must-be-supported-by-cogent-reasons-532433
+
+[Read on Telegram](https://t.me/livelawindia/110061)
+
+---
+### 2026-05-01T06:40:37+00:00
+In Defence of “Constitutional Morality”: How It Can Aid Adjudication
+https://www.livelaw.in/articles/constitutional-morality-and-sabarimala-reference-case-analysis-532480
+
+[Read on Telegram](https://t.me/livelawindia/110062)
+
+---
+### 2026-05-01T06:57:17+00:00
+Only NCLT Allahabad Registry To Scrutinize Fresh Filings As Allahabad HC Stays Principal Bench's 'Joint Scrutiny' Order
+https://www.livelaw.in/high-court/allahabad-high-court/nclt-allahabad-registry-scrutinize-fresh-filings-allahabad-hc-stays-principal-bench-joint-scrutiny-532481
+
+[Read on Telegram](https://t.me/livelawindia/110063)
+
+---
+### 2026-05-01T07:02:37+00:00
+Bombay High Court Grants Interim Bail To Rape Accused To Allow Him To Get Married
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-grants-interim-bail-rape-accused-performing-marriage-532434
+
+[Read on Telegram](https://t.me/livelawindia/110064)
+
+---
+### 2026-05-01T07:35:07+00:00
+Assam CM Himanta Biswa Sarma Made Unparliamentary Remarks Against Pawan Khera, Case Influenced By Politics: Supreme Court In Bail Order
+https://www.livelaw.in/top-stories/assam-cm-himanta-biswa-sarma-made-unparliamentary-remarks-against-pawan-khera-case-influenced-by-politics-supreme-court-in-bail-order-532486
+
+[Read on Telegram](https://t.me/livelawindia/110065)
+
+---
+### 2026-05-01T07:49:07+00:00
+'Fighting Indian State' Remark | Allahabad HC Rejects Plea Against Sambhal Court Order Refusing FIR Against LoP Rahul Gandhi
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-fighting-indian-state-remark-rejects-sambhal-court-fir-lop-rahul-gandhi-532489
+
+[Read on Telegram](https://t.me/livelawindia/110066)
 
 ---
