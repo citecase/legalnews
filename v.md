@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-04-30T16:02:42+00:00*
+*Last Updated: 2026-05-01T04:33:06+00:00*
+
+---
+
+### 2026-05-01T04:33:06+00:00
+'Living Separately' U/S.13(B) Of Hindu Marriage Act Means Complete Cessation Of Marital Obligations Regardless Of Physical Residence: Patna High Court
+https://www.verdictum.in/patna-high-court/a-v-b-living-separately-section-13b-hma-marital-obligations-physical-residence-1613147
+
+[Source Link](https://t.me/verdictumlegalupdates/26810)
 
 ---
 
@@ -153,14 +161,6 @@ Breaking: Innocent's Victimization Should Not Become Scar For Life: Apex Court R
 https://www.verdictum.in/supreme-court/curative-petition-unwanted-pregnancy-termination-aiims-1613111
 
 [Source Link](https://t.me/verdictumlegalupdates/26791)
-
----
-
-### 2026-04-30T06:12:55+00:00
-Railway Claims Tribunal Cannot Deny Compensation Citing Inconsistent Testimony On Distance & Timing Of Accident: Delhi High Court
-https://www.verdictum.in/delhi-high-court/smt-raj-kumari-ors-v-union-of-india-2026dhc3569-railway-tribunal-1613106
-
-[Source Link](https://t.me/verdictumlegalupdates/26790)
 
 ---
 
