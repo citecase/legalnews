@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-01T09:08:18+00:00*
+*Last Updated: 2026-05-01T09:33:09+00:00*
 
 ---
 
-### 2026-05-01T09:08:18+00:00
-Defence Of Coercion In Issuance Of Cheque Cannot Be Proved Through Forensic Exam; Must Be Established By Witnesses: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-defence-of-coercion-in-issuance-of-cheques-cannot-be-proved-through-forensic-examination-must-be-established-by-witnesses-532435
-
-[Read on Telegram](https://t.me/livelawindia/110068)
-
----
-### 2026-05-01T09:17:38+00:00
-Gujarat High Court Extends Asaram's Temporary Bail In Rape Case Till June 15
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-extends-asarams-temporary-bail-till-june-15-532500
-
-[Read on Telegram](https://t.me/livelawindia/110069)
-
----
-### 2026-05-01T09:32:30+00:00
-Ticking POSH Boxes Won't Stop Harassment. Here's The Real Fix
-https://www.livelaw.in/articles/ticking-posh-boxes-harassment-532413
-
-[Read on Telegram](https://t.me/livelawindia/110070)
-
----
 ### 2026-05-01T09:33:09+00:00
 Patna High Court Directs State To Comply With SOP Barring Arbitrary Raising Of Road Level, Contractor To Face Penalty For Violation
 https://www.livelaw.in/high-court/patna-high-court/patna-high-court-state-sop-arbitrary-raising-of-road-level-532487
@@ -142,5 +121,26 @@ Co-Convict Being On Parole No Bar To Furlough: Delhi High Court Orders Release O
 https://www.livelaw.in/high-court/delhi-high-court/co-convict-being-on-parole-no-bar-to-furlough-delhi-high-court-orders-release-of-life-convict-for-daughters-school-admission-532440
 
 [Read on Telegram](https://t.me/livelawindia/110087)
+
+---
+### 2026-05-01T13:52:47+00:00
+Trinamool Congress Moves Supreme Court Against ECI Appointing Only Central Employees As Counting Supervisors For Bengal Elections
+https://www.livelaw.in/top-stories/trinamool-congress-moves-supreme-court-against-eci-appointing-only-central-employees-as-counting-supervisors-for-bengal-elections-532529
+
+[Read on Telegram](https://t.me/livelawindia/110088)
+
+---
+### 2026-05-01T14:51:37+00:00
+Bengal Polls : Supreme Court's Special Sitting Tomorrow For Trinamool Congress Plea Against ECI's Decision On Counting Officers
+https://www.livelaw.in/top-stories/bengal-polls-supreme-courts-special-sitting-tomorrow-for-trinamool-congress-plea-against-ecis-decision-on-counting-officers-532533
+
+[Read on Telegram](https://t.me/livelawindia/110089)
+
+---
+### 2026-05-01T15:32:23+00:00
+Reconciling Advocate's Dual Duties To Client And Court In Indian Legal Ethics
+https://www.livelaw.in/articles/reconciling-advocate-dual-duties-client-court-indian-legal-ethics-532422
+
+[Read on Telegram](https://t.me/livelawindia/110090)
 
 ---
