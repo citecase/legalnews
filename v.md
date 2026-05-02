@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-02T13:32:26+00:00*
+*Last Updated: 2026-05-02T15:03:09+00:00*
+
+---
+
+### 2026-05-02T15:03:09+00:00
+Legal Consultant Vacancy At Delhi State Health Mission (DSHM)
+https://www.verdictum.in/job-updates/delhi-state-health-mission-1613266
+
+[Source Link](https://t.me/verdictumlegalupdates/26847)
+
+---
+
+### 2026-05-02T14:12:47+00:00
+Can't Object To Maintainability Of Sec.11 Application After Suggesting Name Of Another Arbitrator: Bombay High Court
+https://www.verdictum.in/bombay-high-court/fintree-finance-private-ltd-v-embifi-global-services-2026bhc-os11277-section-11-application-arbitrator-1613276
+
+[Source Link](https://t.me/verdictumlegalupdates/26846)
 
 ---
 
@@ -145,22 +161,6 @@ Matter Of Maintenance U/S.24 Of Hindu Marriage Act Is Summary Enquiry & Not Full
 https://www.verdictum.in/karnataka-high-court/ab-v-pq-neutral-citation-2026khc21864-section-24-maintenance-summary-enquiry-1613213
 
 [Source Link](https://t.me/verdictumlegalupdates/26828)
-
----
-
-### 2026-05-01T13:32:50+00:00
-Merely Mentioning Food Items In Comic Act Not Insult Of Religion: Bombay High Court Quashes FIR In “Ya Allah! Rasgulla! Dahi Bhalla!” Controversy
-https://www.verdictum.in/bombay-high-court/shekhar-suman-v-the-state-of-maharashtra-food-items-comic-act-not-insult-of-religion-bharati-singh-1613208
-
-[Source Link](https://t.me/verdictumlegalupdates/26827)
-
----
-
-### 2026-05-01T12:53:09+00:00
-Registrar Cannot Treat Indian Court Judgement As "Foreign" Under Portuguese Civil Procedure Law: Bombay High Court
-https://www.verdictum.in/bombay-high-court/2026bhcgoa954db-h-v-w-1613207
-
-[Source Link](https://t.me/verdictumlegalupdates/26826)
 
 ---
 
