@@ -1,147 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-01T13:27:47+00:00*
+*Last Updated: 2026-05-02T09:11:44+00:00*
 
 ---
 
-### 2026-05-01T13:27:47+00:00
-Co-Convict Being On Parole No Bar To Furlough: Delhi High Court Orders Release Of Life Convict For Daughter's School Admission
-https://www.livelaw.in/high-court/delhi-high-court/co-convict-being-on-parole-no-bar-to-furlough-delhi-high-court-orders-release-of-life-convict-for-daughters-school-admission-532440
+### 2026-05-02T09:11:44+00:00
+Order XXI Rule 97 CPC | Decree Execution Can't Be Stalled By Raising Belated Objection : Supreme Court
+https://www.livelaw.in/supreme-court/order-xxi-rule-97-cpc-decree-execution-cant-be-stalled-by-raising-belated-objection-supreme-court-532585
 
-[Read on Telegram](https://t.me/livelawindia/110087)
-
----
-### 2026-05-01T13:52:47+00:00
-Trinamool Congress Moves Supreme Court Against ECI Appointing Only Central Employees As Counting Supervisors For Bengal Elections
-https://www.livelaw.in/top-stories/trinamool-congress-moves-supreme-court-against-eci-appointing-only-central-employees-as-counting-supervisors-for-bengal-elections-532529
-
-[Read on Telegram](https://t.me/livelawindia/110088)
+[Read on Telegram](https://t.me/livelawindia/110110)
 
 ---
-### 2026-05-01T14:51:37+00:00
-Bengal Polls : Supreme Court's Special Sitting Tomorrow For Trinamool Congress Plea Against ECI's Decision On Counting Officers
-https://www.livelaw.in/top-stories/bengal-polls-supreme-courts-special-sitting-tomorrow-for-trinamool-congress-plea-against-ecis-decision-on-counting-officers-532533
+### 2026-05-02T09:12:43+00:00
+2026 LiveLaw (SC) 444 |  Challani Ginning and Pressing Factory Versus Kamal
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-444-challani-ginning-and-pressing-factory-versus-kamal-532586
 
-[Read on Telegram](https://t.me/livelawindia/110089)
-
----
-### 2026-05-01T15:32:23+00:00
-Reconciling Advocate's Dual Duties To Client And Court In Indian Legal Ethics
-https://www.livelaw.in/articles/reconciling-advocate-dual-duties-client-court-indian-legal-ethics-532422
-
-[Read on Telegram](https://t.me/livelawindia/110090)
+[Read on Telegram](https://t.me/livelawindia/110111)
 
 ---
-### 2026-05-02T04:16:07+00:00
-Regular Congregational Religious Activities On Private Land Not Immune From State Regulations: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-regular-congregational-religious-activities-private-land-immune-state-regulation-532542
+### 2026-05-02T09:32:49+00:00
+Punjab & Haryana High Court Acquits Rape Accused After Prosecutrix 'Shamelessly' Lied About Her Identity, Finds Testimony Unreliable
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-acquits-man-in-rape-case-woman-shamelessly-assumed-identity-of-dead-wife-532561
 
-[Read on Telegram](https://t.me/livelawindia/110091)
-
----
-### 2026-05-02T04:33:07+00:00
-Gujarat High Court Monthly Digest: April 2026
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-monthly-digest-april-2026-532459
-
-[Read on Telegram](https://t.me/livelawindia/110092)
+[Read on Telegram](https://t.me/livelawindia/110112)
 
 ---
-### 2026-05-02T04:51:37+00:00
-Introduction Or Expansion Of Religious Practices Which Disrupt Social Balance Not Protected U/Art 25, 26: Allahabad HC
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-religious-practices-disrupt-social-balance-not-protected-articles-25-26-532547
+### 2026-05-02T10:01:09+00:00
+TLH Advocates & Solicitors Opens Delhi-NCR Office To Expand National Presence
+https://www.livelaw.in/law-firms/professional-announcement/tlh-advocates-solicitors-opens-delhi-ncr-office-to-expand-national-presence-532593
 
-[Read on Telegram](https://t.me/livelawindia/110093)
-
----
-### 2026-05-02T04:52:58+00:00
-Consultant Vacancy At Bharat Heavy Electricals Limited (BHEL)
-https://www.livelaw.in/job-updates/consultant-vacancy-at-bharat-heavy-electricals-limited-532548
-
-[Read on Telegram](https://t.me/livelawindia/110094)
+[Read on Telegram](https://t.me/livelawindia/110113)
 
 ---
-### 2026-05-02T04:54:17+00:00
-Intern Vacancy At National Law Institute University, Bhopal
-https://www.livelaw.in/job-updates/intern-vacancy-at-national-law-institute-university-bhopal-532549
+### 2026-05-02T10:07:09+00:00
+Delhi High Court Upholds Nominal Damages In Arbitration, Reiterates Proof Of Actual Loss Under Section 73 Contract Act
+https://www.livelaw.in/law-firms/litigation/delhi-high-court-upholds-nominal-damages-in-arbitration-reiterates-proof-of-actual-loss-under-section-73-contract-act-532595
 
-[Read on Telegram](https://t.me/livelawindia/110095)
-
----
-### 2026-05-02T04:57:37+00:00
-Techno Legal (IPR) Vacancy At Tata Consultancy Services Limited [Apply Now]
-https://www.livelaw.in/job-updates/techno-legal-ipr-vacancy-at-tata-consultancy-services-limited-532550
-
-[Read on Telegram](https://t.me/livelawindia/110096)
+[Read on Telegram](https://t.me/livelawindia/110114)
 
 ---
-### 2026-05-02T05:00:58+00:00
-Project Associate-I Vacancy At Indian Institute Of Technology, Gandhinagar
-https://www.livelaw.in/job-updates/project-associate-i-vacancy-at-indian-institute-of-technology-gandhinagar-532552
+### 2026-05-02T10:32:39+00:00
+Delhi High Court Monthly Digest: April 2026 [Citations 328 - 436]
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-monthly-digest-april-2026-citations-328-436-532484
 
-[Read on Telegram](https://t.me/livelawindia/110097)
-
----
-### 2026-05-02T05:02:58+00:00
-Gujarat High Court Directs Aeronautical Study Before Demolition Of Buildings Near Ahmedabad Airport Over Height Violations
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-aeronautical-survey-buildings-ahmedabad-international-airport-prescribed-height-532551
-
-[Read on Telegram](https://t.me/livelawindia/110098)
+[Read on Telegram](https://t.me/livelawindia/110115)
 
 ---
-### 2026-05-02T05:33:08+00:00
-Rajasthan High Court Weekly Round-Up: April 20 to April 26, 2026
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-weekly-roundup2026-532546
+### 2026-05-02T10:59:59+00:00
+DBRANLU Sonepat To Organise Commemorative Series On 50 Years Of Justice H.R. Khanna's Constitutional Dissent
+https://www.livelaw.in/lawschool/news/dbranlu-sonepat-to-organise-commemorative-series-on-50-years-of-justice-hr-khannas-constitutional-dissent-532599
 
-[Read on Telegram](https://t.me/livelawindia/110099)
-
----
-### 2026-05-02T05:38:08+00:00
-“No Further Orders Necessary”: Supreme Court Closes TMC Plea On Centre-Appointed Counting Officers In Bengal Elections
-https://www.livelaw.in/top-stories/supreme-court-west-bengal-elections-trinamool-congress-central-officers-appointment-eci-state-govt-nominee-will-be-part-of-counting-process-532554
-
-[Read on Telegram](https://t.me/livelawindia/110100)
+[Read on Telegram](https://t.me/livelawindia/110116)
 
 ---
-### 2026-05-02T06:02:08+00:00
-Bombay High Court Dismisses Review Petition Against Judgment Upholding Constitutional Validity Of UAPA
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-dismisses-review-petition-against-judgment-upholding-constitutional-validity-of-uapa-532553
+### 2026-05-02T11:18:20+00:00
+Once Status Of Property Becomes A Triable Issue, Plaint Cannot Be Rejected Under Order VII Rule 11 CPC: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-once-status-of-property-as-joint-holding-or-partitioned-becomes-triable-issue-plaint-cannot-be-rejected-under-order-vii-rule-11-cpc-532589
 
-[Read on Telegram](https://t.me/livelawindia/110101)
-
----
-### 2026-05-02T06:08:08+00:00
-Justice K.K. Mathew-Lest We Forget
-https://www.livelaw.in/articles/remembering-justice-kk-mathew-532560
-
-[Read on Telegram](https://t.me/livelawindia/110102)
+[Read on Telegram](https://t.me/livelawindia/110117)
 
 ---
-### 2026-05-02T06:17:33+00:00
-Merely Driving Car With Contraband Not 'Possession' Under NDPS Act, No Direct Nexus: Calcutta High Court Grants Bail
-https://www.livelaw.in/high-court/calcutta-high-court/merely-driving-car-with-contraband-not-possession-under-ndps-act-no-direct-nexus-calcutta-high-court-grants-bail-532540
+### 2026-05-02T11:18:49+00:00
+The Man Who Paid It All Back - And Then Some
+https://www.livelaw.in/tech-law/the-man-who-paid-it-all-back-and-then-some-532601
 
-[Read on Telegram](https://t.me/livelawindia/110103)
-
----
-### 2026-05-02T06:32:38+00:00
-2002 Post-Godhra Riots: Gujarat High Court Upholds Acquittal Of 5 In Vadodara Mob Killing, Says Rioters Were Not Identified
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-post-godhra-riots-acquittal-throwing-victim-into-fire-identification-532558
-
-[Read on Telegram](https://t.me/livelawindia/110104)
+[Read on Telegram](https://t.me/livelawindia/110118)
 
 ---
-### 2026-05-02T07:17:38+00:00
-Supreme Court Quarterly Digest 2026 - Bharatiya Nagarik Suraksha Sanhita
-(BNSS)
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-quarterly-digest-bnss-2026-532575
+### 2026-05-02T11:20:09+00:00
+Jana Nayagan Movie Leak | Chennai Court Rejects Bail To Nine Accused, Says Investigation Necessary To Unearth Entire Network Of Conspiracy
+https://www.livelaw.in/news-updates/jana-nayagan-movie-bail-petition-of-nine-accused-rejected-532602
 
-[Read on Telegram](https://t.me/livelawindia/110105)
+[Read on Telegram](https://t.me/livelawindia/110119)
 
 ---
-### 2026-05-02T07:32:28+00:00
-Gujarat High Court Warns Of Contempt Action Against Police Officers, State Authorities For Not Implementing 10 PM–6 AM Loudspeaker Ban
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-contempt-action-police-officers-state-authorities-noise-pollution-532563
+### 2026-05-02T11:21:29+00:00
+Supreme Court Issues Notice On PIL Seeking Separate Revenue Judicial Cadre Of Trained Professionals For Land Disputes
+https://www.livelaw.in/top-stories/supreme-court-ashwini-upadhyay-pil-revenue-judicial-cadre-of-trained-professionals-for-land-disputes-notice-issued-union-states-law-commission-532603
 
-[Read on Telegram](https://t.me/livelawindia/110106)
+[Read on Telegram](https://t.me/livelawindia/110120)
+
+---
+### 2026-05-02T11:23:09+00:00
+Supreme Court Summarises Principles For Exercise Of Article 227 Jurisdiction
+https://www.livelaw.in/supreme-court/supreme-court-summarises-principles-for-exercise-of-article-227-jurisdiction-532604
+
+[Read on Telegram](https://t.me/livelawindia/110121)
+
+---
+### 2026-05-02T11:25:29+00:00
+2026 LiveLaw (SC) 445 | NANDI INFRASTRUCTURE CORRIDOR ENTERPRISES LTD. & ANR. VERSUS B. GURAPPA NAIDU & ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-445-nandi-infrastructure-corridor-enterprises-ltd-anr-versus-b-gurappa-naidu-ors-532605
+
+[Read on Telegram](https://t.me/livelawindia/110122)
+
+---
+### 2026-05-02T11:33:09+00:00
+Cheque Dishonour | S.138 NI Act Not Attracted If Part Payment Is Not Endorsed On Cheque Presented: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-part-payment-cheque-present-dishonour-532564
+
+[Read on Telegram](https://t.me/livelawindia/110123)
+
+---
+### 2026-05-02T11:59:49+00:00
+Savarkar Filed Mercy Petitions Before British 5 Times, Treated Cow As Useful Animal Not God: Grandnephew Tells Court
+https://www.livelaw.in/news-updates/savarkar-mercy-petitions-five-times-treated-cow-useful-animal-god-532607
+
+[Read on Telegram](https://t.me/livelawindia/110124)
+
+---
+### 2026-05-02T12:18:00+00:00
+Repair Permissions From BMC Do Not Prove Legality Of Structure: Bombay High Court Refuses Relief Against Demolition
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-bmc-repair-permissions-unauthorized-structures-532583
+
+[Read on Telegram](https://t.me/livelawindia/110125)
+
+---
+### 2026-05-02T12:21:39+00:00
+TCS Nashik Case: Sessions Court Denies Anticipatory Bail To Nida Khan
+https://www.livelaw.in/news-updates/anticipatory-bail-main-accused-nida-khan-tcs-nashik-case-532613
+
+[Read on Telegram](https://t.me/livelawindia/110126)
+
+---
+### 2026-05-02T12:22:40+00:00
+Bombay High Court Directs Probe Into Illegal Land Allotments For Temghar Dam Project; Orders Action Against Erring Officials
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-directs-probe-illegal-land-allotments-temghar-dam-project-532590
+
+[Read on Telegram](https://t.me/livelawindia/110127)
+
+---
+### 2026-05-02T12:30:40+00:00
+Accused Must Be Released Immediately After Bail, Cannot Be Forced To File Habeas Corpus Plea: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/accused-must-be-released-immediately-after-bail-cannot-be-forced-to-file-habeas-corpus-plea-calcutta-high-court-532614
+
+[Read on Telegram](https://t.me/livelawindia/110128)
+
+---
+### 2026-05-02T12:32:20+00:00
+Demand & Acceptance Of Bribe Sufficient To Attract PC Act Even If Public Servant Lacks Authority To Do Favour: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-quash-fir-prevention-of-corruption-act-bribery-offence-532567
+
+[Read on Telegram](https://t.me/livelawindia/110129)
 
 ---
