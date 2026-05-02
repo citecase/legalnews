@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-02T07:53:03+00:00*
+*Last Updated: 2026-05-02T13:32:26+00:00*
+
+---
+
+### 2026-05-02T13:32:26+00:00
+Bombay High Court Enhances Motor Accident Compensation From ₹10 Lakhs To ₹1.31 Crores For Family Of Deceased Maritime Engineer
+https://www.verdictum.in/bombay-high-court/2026bhcas19850-dr-dhanashri-rajesh-deshmukh-v-saroj-kumar-behera-1613270
+
+[Source Link](https://t.me/verdictumlegalupdates/26845)
+
+---
+
+### 2026-05-02T12:52:44+00:00
+Termination Of Regular Employee By Public Authority Must Satisfy Article 14 Even If Origin Of Relationship Is Contractual In Nature: Delhi High Court
+https://www.verdictum.in/delhi-high-court/avinash-kumar-v-union-of-india-ors-2026dhc3717-article-14-public-employment-1613264
+
+[Source Link](https://t.me/verdictumlegalupdates/26844)
+
+---
+
+### 2026-05-02T12:14:03+00:00
+Confession Made To Doctor In Police Custody Inadmissible: Bombay High Court Sets Aside Conviction U/S 6 POCSO Act
+https://www.verdictum.in/bombay-high-court/amol-jayram-landge-v-state-of-maharashtra-anr-2026bhc-aug18109-1613263
+
+[Source Link](https://t.me/verdictumlegalupdates/26843)
+
+---
+
+### 2026-05-02T11:12:20+00:00
+Validity Of Administrative Action To Be Adjudged On Facts When Such Decision Was Taken; Subsequent Developments Can’t Be Relied Upon: Patna High Court
+https://www.verdictum.in/patna-high-court/ramesh-prasad-gupta-v-the-state-of-bihar-administrative-action-subsequent-developments-1613260
+
+[Source Link](https://t.me/verdictumlegalupdates/26842)
+
+---
+
+### 2026-05-02T10:32:49+00:00
+Supreme Court Invokes Article 142 To Protect Merit-Holders Affected By Closure Of Rehbar-E-Taleem Scheme In J&K: Mandates TET/NCTE
+https://www.verdictum.in/supreme-court/union-territory-of-jammu-and-kashmir-v-saba-wani-2026-insc-439-rehbar-e-taleem-scheme-1613257
+
+[Source Link](https://t.me/verdictumlegalupdates/26841)
+
+---
+
+### 2026-05-02T09:52:27+00:00
+Bombay High Court Grants Permanent Injunction To Ultratech, Rules That Negligent Conduct By Defendant Merits Punitive Costs
+https://www.verdictum.in/bombay-high-court/2026bhcos11103-ultra-tech-cement-v-shiv-cement-co-1613255
+
+[Source Link](https://t.me/verdictumlegalupdates/26840)
+
+---
+
+### 2026-05-02T09:13:05+00:00
+Minimum Wages Only Guiding Benchmark: Delhi High Court Issues Guidelines For Income Assessment In MACT Cases
+https://www.verdictum.in/delhi-high-court/savita-v-national-insurance-company-ltd-2026dhc3626-not-confined-to-lowest-minimum-wages-1613253
+
+[Source Link](https://t.me/verdictumlegalupdates/26839)
+
+---
+
+### 2026-05-02T08:32:44+00:00
+Writ Of Habeas Corpus Maintainable Where Detention Of Minor By Parent Is Illegal: Bombay High Court
+https://www.verdictum.in/bombay-high-court/shri-sunil-patiram-parteti-v-state-of-maharashtra-ors-2026bhc-nag6720-db-1613252
+
+[Source Link](https://t.me/verdictumlegalupdates/26838)
 
 ---
 
@@ -97,70 +161,6 @@ Registrar Cannot Treat Indian Court Judgement As "Foreign" Under Portuguese Civi
 https://www.verdictum.in/bombay-high-court/2026bhcgoa954db-h-v-w-1613207
 
 [Source Link](https://t.me/verdictumlegalupdates/26826)
-
----
-
-### 2026-05-01T12:03:07+00:00
-Calcutta High Court Dismisses TMC Petition Challenging Appointment Of Counting Supervisors From Central Govt/PSU Employees
-https://www.verdictum.in/calcutta-high-court/all-india-trinamool-congress-v-election-commission-of-india-tmc-petition-appointment-counting-supervisors-1613203
-
-[Source Link](https://t.me/verdictumlegalupdates/26825)
-
----
-
-### 2026-05-01T11:33:05+00:00
-He Could Maintain Second Wife & Children: Karnataka High Court Upholds Maintenance To First Wife & Family
-https://www.verdictum.in/karnataka-high-court/x-v-y-2026khc-d5958-husband-maintenance-rigorous-proof-of-desertion-or-non-paternity-1613202
-
-[Source Link](https://t.me/verdictumlegalupdates/26824)
-
----
-
-### 2026-05-01T11:03:24+00:00
-Not Necessary That Grounds Of Arrest Must Be Recorded On Separate Document Distinct From Arrest Memo: Uttarakhand High Court Upholds Remand Order
-https://www.verdictum.in/uttarakhand-high-court/ravi-kant-v-central-bureau-of-investigation-2026uhc1846-grounds-of-arrest-remand-1613201
-
-[Source Link](https://t.me/verdictumlegalupdates/26823)
-
----
-
-### 2026-05-01T10:33:02+00:00
-Registered Sale Deed Without Consideration Is A Void & Sham Transaction: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/2026-khc-d-6231-kg-laxmidevi-v-hampamma-1613200
-
-[Source Link](https://t.me/verdictumlegalupdates/26822)
-
----
-
-### 2026-05-01T10:02:21+00:00
-Allahabad High Court Imposes ₹25,000 Costs On Advocate For Suppressing His Identity & Pending Criminal Cases In PIL
-https://www.verdictum.in/allahabad-high-court/ravindra-ahlawat-ravindra-kumar-v-state-of-up-ahc96025-db-advocates-passer-by-claim-25000-costs-1613199
-
-[Source Link](https://t.me/verdictumlegalupdates/26821)
-
----
-
-### 2026-05-01T09:32:40+00:00
-“Grasp The Nettle And Decide”: Supreme Court Issues Guidelines On Passing Summary Judgment Under Order XIII-A CPC In Commercial Suits
-https://www.verdictum.in/supreme-court/reliance-eminent-trading-and-commercial-private-limited-v-dda-2026-insc-436-summary-judgment-under-order-xiii-a-cpc-1613197
-
-[Source Link](https://t.me/verdictumlegalupdates/26820)
-
----
-
-### 2026-05-01T09:02:48+00:00
-High Court’s Supervisory Powers Under Article 227 Cannot Be Used To Substitute Plausible Views Of Execution Courts: Supreme Court
-https://www.verdictum.in/supreme-court/nandi-infrastructure-corridor-enterprises-ltd-v-b-gurappa-naidu-2026-insc-434-cannot-substitute-plausible-views-1613194
-
-[Source Link](https://t.me/verdictumlegalupdates/26819)
-
----
-
-### 2026-05-01T08:33:07+00:00
-“Allegations Appear Politically Motivated, Influenced By Political Rivalry”: Supreme Court Grants Anticipatory Bail To Pawan Khera
-https://www.verdictum.in/supreme-court/pawan-khera-v-state-of-assam-2026-insc-437-anticipatory-bail-to-pawan-khera-1613193
-
-[Source Link](https://t.me/verdictumlegalupdates/26818)
 
 ---
 
