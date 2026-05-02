@@ -1,121 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-01T09:33:09+00:00*
+*Last Updated: 2026-05-01T13:27:47+00:00*
 
 ---
 
-### 2026-05-01T09:33:09+00:00
-Patna High Court Directs State To Comply With SOP Barring Arbitrary Raising Of Road Level, Contractor To Face Penalty For Violation
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-state-sop-arbitrary-raising-of-road-level-532487
-
-[Read on Telegram](https://t.me/livelawindia/110071)
-
----
-### 2026-05-01T10:33:23+00:00
-Punjab & Haryana High Court Quarterly Digest: January - March, 2026
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quarterly-digest-january-march-2026-532449
-
-[Read on Telegram](https://t.me/livelawindia/110072)
-
----
-### 2026-05-01T10:47:24+00:00
-Delhi High Court Closes ANI's ₹2 Crore Copyright Infringement Suit Against PTI After Settlement
-https://www.livelaw.in/high-court/delhi-high-court/ani-pti-2-crore-copyright-infringement-suit-settled-532509
-
-[Read on Telegram](https://t.me/livelawindia/110073)
-
----
-### 2026-05-01T11:02:44+00:00
-Post-Conviction NDPS Bail Can't Be Granted On Long Incarceration Alone; Twin Conditions U/S 37 Must Be Strictly Met: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-post-conviction-ndps-bail-cant-be-granted-on-long-incarceration-alone-twin-conditions-under-section-37-must-be-strictly-met-532491
-
-[Read on Telegram](https://t.me/livelawindia/110074)
-
----
-### 2026-05-01T11:05:04+00:00
-'Work With Love Or Sit Outside Temple': Orissa High Court Cites Khalil Gibran, Upholds Bank Employee's Removal For Defying Transfer
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-court-denies-relief-bank-employee-removed-unauthorized-absence-532512
-
-[Read on Telegram](https://t.me/livelawindia/110075)
-
----
-### 2026-05-01T11:13:05+00:00
-'Lawrence Of Punjab' Row: High Court Seeks Centre, State's Response On Zee's Plea Alleging "Pre-Publication Restraint On Speech"
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/lawrence-of-punjab-censor-zee5-challenge-notice-issued-532513
-
-[Read on Telegram](https://t.me/livelawindia/110076)
-
----
-### 2026-05-01T11:17:44+00:00
-Uttarakhand High Court Directs Stoppage Of Using Heavy Machinery To Mine In Ramganga-Saryu River Area
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-directs-stopping-heavy-machinery-mining-ramganga-saryu-river-area-532436
-
-[Read on Telegram](https://t.me/livelawindia/110077)
-
----
-### 2026-05-01T11:33:01+00:00
-'Administrative Action Must Be Judged On Material Available At Relevant Time; Subsequent Developments Cannot Invalidate It': Patna HC
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-administrative-action-judged-material-available-532510
-
-[Read on Telegram](https://t.me/livelawindia/110078)
-
----
-### 2026-05-01T11:37:40+00:00
-No Deemed Confirmation On Completion Of Probation; Written Order Mandatory Under Model Standing Orders: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-completion-probation-period-model-standing-orders-532437
-
-[Read on Telegram](https://t.me/livelawindia/110079)
-
----
-### 2026-05-01T12:02:40+00:00
-Govt Criticism No Offence; 'Fight' Against Ideology Different From Inciting Rebellion: Allahabad HC Grants Relief To Rahul Gandhi
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-criticism-govt-action-offence-rahul-gandhi-fight-remark-ideological-opposition-not-rebellion-532516
-
-[Read on Telegram](https://t.me/livelawindia/110080)
-
----
-### 2026-05-01T12:16:03+00:00
-CJI Declares Sikkim As The Declared First Paperless State Judiciary At National Conclave On Technology And Judicial Education
-https://www.livelaw.in/top-stories/sikkim-as-the-declared-first-paperless-state-judiciary-532520
-
-[Read on Telegram](https://t.me/livelawindia/110081)
-
----
-### 2026-05-01T12:31:23+00:00
-Order XIII-A CPC | Supreme Court Lays Down Guidelines For Summary Judgment In Commercial Suits
-https://www.livelaw.in/supreme-court/order-xiii-a-cpc-supreme-court-lays-down-guidelines-for-summary-judgment-in-commercial-suits-532522
-
-[Read on Telegram](https://t.me/livelawindia/110082)
-
----
-### 2026-05-01T12:32:23+00:00
-2026 LiveLaw (SC) 442 | RELIANCE EMINENT TRADING AND COMMERCIAL PRIVATE LIMITED VERSUS DELHI DEVELOPMENT AUTHORITY
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-442-reliance-eminent-trading-and-commercial-private-limited-versus-delhi-development-authority-532524
-
-[Read on Telegram](https://t.me/livelawindia/110083)
-
----
-### 2026-05-01T12:32:34+00:00
-Ambedkar – Enigma Of Fire, Unshackling India's Soul
-https://www.livelaw.in/articles/ambedkar-unshackling-india-soul-532506
-
-[Read on Telegram](https://t.me/livelawindia/110084)
-
----
-### 2026-05-01T12:34:23+00:00
-2026 LiveLaw (SC) 443 | Pawan Khera v State of Assam
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-443-pawan-khera-v-state-of-assam-532525
-
-[Read on Telegram](https://t.me/livelawindia/110085)
-
----
-### 2026-05-01T13:23:13+00:00
-'Unsigned Employment Contract Can Be Considered For Assessing Notional Income': Bombay High Court Enhances Motor Accident Compensation
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-enhances-motor-accident-compensation-unsigned-employment-contract-532438
-
-[Read on Telegram](https://t.me/livelawindia/110086)
-
----
 ### 2026-05-01T13:27:47+00:00
 Co-Convict Being On Parole No Bar To Furlough: Delhi High Court Orders Release Of Life Convict For Daughter's School Admission
 https://www.livelaw.in/high-court/delhi-high-court/co-convict-being-on-parole-no-bar-to-furlough-delhi-high-court-orders-release-of-life-convict-for-daughters-school-admission-532440
@@ -142,5 +30,118 @@ Reconciling Advocate's Dual Duties To Client And Court In Indian Legal Ethics
 https://www.livelaw.in/articles/reconciling-advocate-dual-duties-client-court-indian-legal-ethics-532422
 
 [Read on Telegram](https://t.me/livelawindia/110090)
+
+---
+### 2026-05-02T04:16:07+00:00
+Regular Congregational Religious Activities On Private Land Not Immune From State Regulations: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-regular-congregational-religious-activities-private-land-immune-state-regulation-532542
+
+[Read on Telegram](https://t.me/livelawindia/110091)
+
+---
+### 2026-05-02T04:33:07+00:00
+Gujarat High Court Monthly Digest: April 2026
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-monthly-digest-april-2026-532459
+
+[Read on Telegram](https://t.me/livelawindia/110092)
+
+---
+### 2026-05-02T04:51:37+00:00
+Introduction Or Expansion Of Religious Practices Which Disrupt Social Balance Not Protected U/Art 25, 26: Allahabad HC
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-religious-practices-disrupt-social-balance-not-protected-articles-25-26-532547
+
+[Read on Telegram](https://t.me/livelawindia/110093)
+
+---
+### 2026-05-02T04:52:58+00:00
+Consultant Vacancy At Bharat Heavy Electricals Limited (BHEL)
+https://www.livelaw.in/job-updates/consultant-vacancy-at-bharat-heavy-electricals-limited-532548
+
+[Read on Telegram](https://t.me/livelawindia/110094)
+
+---
+### 2026-05-02T04:54:17+00:00
+Intern Vacancy At National Law Institute University, Bhopal
+https://www.livelaw.in/job-updates/intern-vacancy-at-national-law-institute-university-bhopal-532549
+
+[Read on Telegram](https://t.me/livelawindia/110095)
+
+---
+### 2026-05-02T04:57:37+00:00
+Techno Legal (IPR) Vacancy At Tata Consultancy Services Limited [Apply Now]
+https://www.livelaw.in/job-updates/techno-legal-ipr-vacancy-at-tata-consultancy-services-limited-532550
+
+[Read on Telegram](https://t.me/livelawindia/110096)
+
+---
+### 2026-05-02T05:00:58+00:00
+Project Associate-I Vacancy At Indian Institute Of Technology, Gandhinagar
+https://www.livelaw.in/job-updates/project-associate-i-vacancy-at-indian-institute-of-technology-gandhinagar-532552
+
+[Read on Telegram](https://t.me/livelawindia/110097)
+
+---
+### 2026-05-02T05:02:58+00:00
+Gujarat High Court Directs Aeronautical Study Before Demolition Of Buildings Near Ahmedabad Airport Over Height Violations
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-aeronautical-survey-buildings-ahmedabad-international-airport-prescribed-height-532551
+
+[Read on Telegram](https://t.me/livelawindia/110098)
+
+---
+### 2026-05-02T05:33:08+00:00
+Rajasthan High Court Weekly Round-Up: April 20 to April 26, 2026
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-weekly-roundup2026-532546
+
+[Read on Telegram](https://t.me/livelawindia/110099)
+
+---
+### 2026-05-02T05:38:08+00:00
+“No Further Orders Necessary”: Supreme Court Closes TMC Plea On Centre-Appointed Counting Officers In Bengal Elections
+https://www.livelaw.in/top-stories/supreme-court-west-bengal-elections-trinamool-congress-central-officers-appointment-eci-state-govt-nominee-will-be-part-of-counting-process-532554
+
+[Read on Telegram](https://t.me/livelawindia/110100)
+
+---
+### 2026-05-02T06:02:08+00:00
+Bombay High Court Dismisses Review Petition Against Judgment Upholding Constitutional Validity Of UAPA
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-dismisses-review-petition-against-judgment-upholding-constitutional-validity-of-uapa-532553
+
+[Read on Telegram](https://t.me/livelawindia/110101)
+
+---
+### 2026-05-02T06:08:08+00:00
+Justice K.K. Mathew-Lest We Forget
+https://www.livelaw.in/articles/remembering-justice-kk-mathew-532560
+
+[Read on Telegram](https://t.me/livelawindia/110102)
+
+---
+### 2026-05-02T06:17:33+00:00
+Merely Driving Car With Contraband Not 'Possession' Under NDPS Act, No Direct Nexus: Calcutta High Court Grants Bail
+https://www.livelaw.in/high-court/calcutta-high-court/merely-driving-car-with-contraband-not-possession-under-ndps-act-no-direct-nexus-calcutta-high-court-grants-bail-532540
+
+[Read on Telegram](https://t.me/livelawindia/110103)
+
+---
+### 2026-05-02T06:32:38+00:00
+2002 Post-Godhra Riots: Gujarat High Court Upholds Acquittal Of 5 In Vadodara Mob Killing, Says Rioters Were Not Identified
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-post-godhra-riots-acquittal-throwing-victim-into-fire-identification-532558
+
+[Read on Telegram](https://t.me/livelawindia/110104)
+
+---
+### 2026-05-02T07:17:38+00:00
+Supreme Court Quarterly Digest 2026 - Bharatiya Nagarik Suraksha Sanhita
+(BNSS)
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-quarterly-digest-bnss-2026-532575
+
+[Read on Telegram](https://t.me/livelawindia/110105)
+
+---
+### 2026-05-02T07:32:28+00:00
+Gujarat High Court Warns Of Contempt Action Against Police Officers, State Authorities For Not Implementing 10 PM–6 AM Loudspeaker Ban
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-contempt-action-police-officers-state-authorities-noise-pollution-532563
+
+[Read on Telegram](https://t.me/livelawindia/110106)
 
 ---
