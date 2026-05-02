@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-02T09:11:44+00:00*
+*Last Updated: 2026-05-02T10:32:39+00:00*
 
 ---
 
-### 2026-05-02T09:11:44+00:00
-Order XXI Rule 97 CPC | Decree Execution Can't Be Stalled By Raising Belated Objection : Supreme Court
-https://www.livelaw.in/supreme-court/order-xxi-rule-97-cpc-decree-execution-cant-be-stalled-by-raising-belated-objection-supreme-court-532585
-
-[Read on Telegram](https://t.me/livelawindia/110110)
-
----
-### 2026-05-02T09:12:43+00:00
-2026 LiveLaw (SC) 444 |  Challani Ginning and Pressing Factory Versus Kamal
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-444-challani-ginning-and-pressing-factory-versus-kamal-532586
-
-[Read on Telegram](https://t.me/livelawindia/110111)
-
----
-### 2026-05-02T09:32:49+00:00
-Punjab & Haryana High Court Acquits Rape Accused After Prosecutrix 'Shamelessly' Lied About Her Identity, Finds Testimony Unreliable
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-acquits-man-in-rape-case-woman-shamelessly-assumed-identity-of-dead-wife-532561
-
-[Read on Telegram](https://t.me/livelawindia/110112)
-
----
-### 2026-05-02T10:01:09+00:00
-TLH Advocates & Solicitors Opens Delhi-NCR Office To Expand National Presence
-https://www.livelaw.in/law-firms/professional-announcement/tlh-advocates-solicitors-opens-delhi-ncr-office-to-expand-national-presence-532593
-
-[Read on Telegram](https://t.me/livelawindia/110113)
-
----
-### 2026-05-02T10:07:09+00:00
-Delhi High Court Upholds Nominal Damages In Arbitration, Reiterates Proof Of Actual Loss Under Section 73 Contract Act
-https://www.livelaw.in/law-firms/litigation/delhi-high-court-upholds-nominal-damages-in-arbitration-reiterates-proof-of-actual-loss-under-section-73-contract-act-532595
-
-[Read on Telegram](https://t.me/livelawindia/110114)
-
----
 ### 2026-05-02T10:32:39+00:00
 Delhi High Court Monthly Digest: April 2026 [Citations 328 - 436]
 https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-monthly-digest-april-2026-citations-328-436-532484
@@ -142,5 +107,40 @@ Demand & Acceptance Of Bribe Sufficient To Attract PC Act Even If Public Servant
 https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-quash-fir-prevention-of-corruption-act-bribery-offence-532567
 
 [Read on Telegram](https://t.me/livelawindia/110129)
+
+---
+### 2026-05-02T13:32:31+00:00
+Promotion Can't Be Denied Due To Pending Investigation Without Chargesheet: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-directs-reconsideration-confirmation-promotion-si-no-charge-sheet-filed-532568
+
+[Read on Telegram](https://t.me/livelawindia/110130)
+
+---
+### 2026-05-02T14:33:03+00:00
+NDPS Act | S.37 Rigours For Bail Not Attracted To Offence For Cultivation Of 'Ganja' In Absence Of Commercial Quantity: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/ndps-act-s37-rigours-for-bail-not-attracted-to-offence-for-cultivation-of-ganja-in-absence-of-commercial-quantity-calcutta-high-court-532591
+
+[Read on Telegram](https://t.me/livelawindia/110131)
+
+---
+### 2026-05-02T14:33:13+00:00
+Mere Participation In Seminar On Islamic Literature By Itself Not Ground To Deny Bail Under UAPA: MP High Court Directs Release Of Three
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bail-participation-in-islamic-literature-seminar-not-offence-unlawful-activities-prevention-act-532569
+
+[Read on Telegram](https://t.me/livelawindia/110132)
+
+---
+### 2026-05-02T15:26:53+00:00
+Delhi Judge Dies By Suicide
+https://www.livelaw.in/news-updates/delhi-judge-dies-by-suicide-532629
+
+[Read on Telegram](https://t.me/livelawindia/110133)
+
+---
+### 2026-05-02T15:33:13+00:00
+Punjab & Haryana High Court Monthly Digest: February 2026
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-monthly-digest-february-532565
+
+[Read on Telegram](https://t.me/livelawindia/110134)
 
 ---
