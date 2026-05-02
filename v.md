@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-01T16:02:08+00:00*
+*Last Updated: 2026-05-02T07:53:03+00:00*
+
+---
+
+### 2026-05-02T07:53:03+00:00
+“Family Tree & Maps Common To Multi-Generational Sagas”: Delhi High Court Dismisses Author Sivasundari Bose’s Infringement Suit Against David Davidar
+https://www.verdictum.in/delhi-high-court/david-davidar-v-sivassundari-bose-2026dhc3666-author-sivasundari-boses-infringement-suit-against-david-davidar-1613247
+
+[Source Link](https://t.me/verdictumlegalupdates/26837)
+
+---
+
+### 2026-05-02T07:02:41+00:00
+Membership In Organised Crime Syndicate Essential U/S 111 BNS: Madhya Pradesh High Court Sets Aside Charge Against Law Graduate
+https://www.verdictum.in/madhya-pradesh-high-court/hiralal-v-state-of-mp-2026mphc-ind12370-organised-crime-syndicate-us-111-bns-1613244
+
+[Source Link](https://t.me/verdictumlegalupdates/26836)
+
+---
+
+### 2026-05-02T06:12:39+00:00
+Courts Must Strive To Preserve Child’s Emotional Stability: Karnataka High Court Upholds Unsupervised Visitation Rights For Father
+https://www.verdictum.in/karnataka-high-court/anjali-menon-v-roshan-elias-john-father-visitation-rights-minor-daughter-1613240
+
+[Source Link](https://t.me/verdictumlegalupdates/26835)
+
+---
+
+### 2026-05-02T05:32:57+00:00
+"No Further Orders Are Necessary": Supreme Court Asks ECI To Follow Circular On Central Staff Appointments For West Bengal Vote Counting In TMC Plea
+https://www.verdictum.in/supreme-court/eci-central-staff-appointments-west-bengal-vote-counting-tmc-1613237
+
+[Source Link](https://t.me/verdictumlegalupdates/26834)
+
+---
+
+### 2026-05-02T04:33:26+00:00
+Allegations Of Extra-Marital Relationship If Proved Have Direct & Substantial Bearing On Issue Of Desertion: Karnataka High Court Sets Aside Divorce Decree
+https://www.verdictum.in/karnataka-high-court/2026khck3775db-w-v-h-1613212
+
+[Source Link](https://t.me/verdictumlegalupdates/26833)
 
 ---
 
@@ -121,46 +161,6 @@ https://www.verdictum.in/supreme-court/nandi-infrastructure-corridor-enterprises
 https://www.verdictum.in/supreme-court/pawan-khera-v-state-of-assam-2026-insc-437-anticipatory-bail-to-pawan-khera-1613193
 
 [Source Link](https://t.me/verdictumlegalupdates/26818)
-
----
-
-### 2026-05-01T08:02:46+00:00
-POA Holder Had No Express Authorisation: Bombay High Court Dismisses Complaint Under SC-ST Act As It Was Not Filed 'By' Victim
-https://www.verdictum.in/bombay-high-court/nijamoddin-mohamad-khan-v-the-state-of-maharashtra-2026bhc-aug18086-word-by-denotes-immediate-agency-1613192
-
-[Source Link](https://t.me/verdictumlegalupdates/26817)
-
----
-
-### 2026-05-01T07:33:04+00:00
-Jammu & Kashmir And Ladakh High Court Cautions Litigants & Bar Members Against Making Unfounded, Scandalous Allegations Against Judicial Officers
-https://www.verdictum.in/jammu-ladakh-high-court/assadullah-bhat-v-gul-dar-caution-litigants-bar-members-refrain-allegations-judicial-officers-1613184
-
-[Source Link](https://t.me/verdictumlegalupdates/26816)
-
----
-
-### 2026-05-01T07:02:43+00:00
-Writ Court Cannot Adjudicate Issues Concerning Title Or Ownership Of Property Under PIL Jurisdiction: Supreme Court
-https://www.verdictum.in/supreme-court/2026-insc-435-prem-porwal-v-jagdeesh-chandra-prajapati-1613181
-
-[Source Link](https://t.me/verdictumlegalupdates/26815)
-
----
-
-### 2026-05-01T06:33:01+00:00
-Delhi High Court Clarifies Delhi Prison Rules On Simultaneous Release Of Co-Accused; Holds No Absolute Prohibition On Joint Parole
-https://www.verdictum.in/delhi-high-court/sandeep-alias-sandy-v-state-govt-of-nct-of-delhi-2026dhc3601-db-delhi-prison-rules-on-simultaneous-release-1613177
-
-[Source Link](https://t.me/verdictumlegalupdates/26814)
-
----
-
-### 2026-05-01T06:06:20+00:00
-Honey Trap Designed To Extort Money: Gujarat High Court Quashes Rape Case
-https://www.verdictum.in/gujarat-high-court/x-v-state-of-gujarat-2026gujhc26565-manifest-honey-trap-designed-to-extort-money-1613176
-
-[Source Link](https://t.me/verdictumlegalupdates/26813)
 
 ---
 
