@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-03T13:32:21+00:00*
+*Last Updated: 2026-05-03T15:02:43+00:00*
+
+---
+
+### 2026-05-03T15:02:43+00:00
+Deputy Counsel Vacancy At Delhi International Arbitration Centre (DIAC)
+https://www.verdictum.in/job-updates/delhi-international-arbitration-centre-1613267
+
+[Source Link](https://t.me/verdictumlegalupdates/26856)
 
 ---
 
@@ -153,14 +161,6 @@ https://www.verdictum.in/bombay-high-court/shri-sunil-patiram-parteti-v-state-of
 https://www.verdictum.in/delhi-high-court/david-davidar-v-sivassundari-bose-2026dhc3666-author-sivasundari-boses-infringement-suit-against-david-davidar-1613247
 
 [Source Link](https://t.me/verdictumlegalupdates/26837)
-
----
-
-### 2026-05-02T07:02:41+00:00
-Membership In Organised Crime Syndicate Essential U/S 111 BNS: Madhya Pradesh High Court Sets Aside Charge Against Law Graduate
-https://www.verdictum.in/madhya-pradesh-high-court/hiralal-v-state-of-mp-2026mphc-ind12370-organised-crime-syndicate-us-111-bns-1613244
-
-[Source Link](https://t.me/verdictumlegalupdates/26836)
 
 ---
 
