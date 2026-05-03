@@ -1,107 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-02T10:32:39+00:00*
+*Last Updated: 2026-05-02T12:32:20+00:00*
 
 ---
 
-### 2026-05-02T10:32:39+00:00
-Delhi High Court Monthly Digest: April 2026 [Citations 328 - 436]
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-monthly-digest-april-2026-citations-328-436-532484
-
-[Read on Telegram](https://t.me/livelawindia/110115)
-
----
-### 2026-05-02T10:59:59+00:00
-DBRANLU Sonepat To Organise Commemorative Series On 50 Years Of Justice H.R. Khanna's Constitutional Dissent
-https://www.livelaw.in/lawschool/news/dbranlu-sonepat-to-organise-commemorative-series-on-50-years-of-justice-hr-khannas-constitutional-dissent-532599
-
-[Read on Telegram](https://t.me/livelawindia/110116)
-
----
-### 2026-05-02T11:18:20+00:00
-Once Status Of Property Becomes A Triable Issue, Plaint Cannot Be Rejected Under Order VII Rule 11 CPC: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-once-status-of-property-as-joint-holding-or-partitioned-becomes-triable-issue-plaint-cannot-be-rejected-under-order-vii-rule-11-cpc-532589
-
-[Read on Telegram](https://t.me/livelawindia/110117)
-
----
-### 2026-05-02T11:18:49+00:00
-The Man Who Paid It All Back - And Then Some
-https://www.livelaw.in/tech-law/the-man-who-paid-it-all-back-and-then-some-532601
-
-[Read on Telegram](https://t.me/livelawindia/110118)
-
----
-### 2026-05-02T11:20:09+00:00
-Jana Nayagan Movie Leak | Chennai Court Rejects Bail To Nine Accused, Says Investigation Necessary To Unearth Entire Network Of Conspiracy
-https://www.livelaw.in/news-updates/jana-nayagan-movie-bail-petition-of-nine-accused-rejected-532602
-
-[Read on Telegram](https://t.me/livelawindia/110119)
-
----
-### 2026-05-02T11:21:29+00:00
-Supreme Court Issues Notice On PIL Seeking Separate Revenue Judicial Cadre Of Trained Professionals For Land Disputes
-https://www.livelaw.in/top-stories/supreme-court-ashwini-upadhyay-pil-revenue-judicial-cadre-of-trained-professionals-for-land-disputes-notice-issued-union-states-law-commission-532603
-
-[Read on Telegram](https://t.me/livelawindia/110120)
-
----
-### 2026-05-02T11:23:09+00:00
-Supreme Court Summarises Principles For Exercise Of Article 227 Jurisdiction
-https://www.livelaw.in/supreme-court/supreme-court-summarises-principles-for-exercise-of-article-227-jurisdiction-532604
-
-[Read on Telegram](https://t.me/livelawindia/110121)
-
----
-### 2026-05-02T11:25:29+00:00
-2026 LiveLaw (SC) 445 | NANDI INFRASTRUCTURE CORRIDOR ENTERPRISES LTD. & ANR. VERSUS B. GURAPPA NAIDU & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-445-nandi-infrastructure-corridor-enterprises-ltd-anr-versus-b-gurappa-naidu-ors-532605
-
-[Read on Telegram](https://t.me/livelawindia/110122)
-
----
-### 2026-05-02T11:33:09+00:00
-Cheque Dishonour | S.138 NI Act Not Attracted If Part Payment Is Not Endorsed On Cheque Presented: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-part-payment-cheque-present-dishonour-532564
-
-[Read on Telegram](https://t.me/livelawindia/110123)
-
----
-### 2026-05-02T11:59:49+00:00
-Savarkar Filed Mercy Petitions Before British 5 Times, Treated Cow As Useful Animal Not God: Grandnephew Tells Court
-https://www.livelaw.in/news-updates/savarkar-mercy-petitions-five-times-treated-cow-useful-animal-god-532607
-
-[Read on Telegram](https://t.me/livelawindia/110124)
-
----
-### 2026-05-02T12:18:00+00:00
-Repair Permissions From BMC Do Not Prove Legality Of Structure: Bombay High Court Refuses Relief Against Demolition
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-bmc-repair-permissions-unauthorized-structures-532583
-
-[Read on Telegram](https://t.me/livelawindia/110125)
-
----
-### 2026-05-02T12:21:39+00:00
-TCS Nashik Case: Sessions Court Denies Anticipatory Bail To Nida Khan
-https://www.livelaw.in/news-updates/anticipatory-bail-main-accused-nida-khan-tcs-nashik-case-532613
-
-[Read on Telegram](https://t.me/livelawindia/110126)
-
----
-### 2026-05-02T12:22:40+00:00
-Bombay High Court Directs Probe Into Illegal Land Allotments For Temghar Dam Project; Orders Action Against Erring Officials
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-directs-probe-illegal-land-allotments-temghar-dam-project-532590
-
-[Read on Telegram](https://t.me/livelawindia/110127)
-
----
-### 2026-05-02T12:30:40+00:00
-Accused Must Be Released Immediately After Bail, Cannot Be Forced To File Habeas Corpus Plea: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/accused-must-be-released-immediately-after-bail-cannot-be-forced-to-file-habeas-corpus-plea-calcutta-high-court-532614
-
-[Read on Telegram](https://t.me/livelawindia/110128)
-
----
 ### 2026-05-02T12:32:20+00:00
 Demand & Acceptance Of Bribe Sufficient To Attract PC Act Even If Public Servant Lacks Authority To Do Favour: Rajasthan High Court
 https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-quash-fir-prevention-of-corruption-act-bribery-offence-532567
@@ -142,5 +44,103 @@ Punjab & Haryana High Court Monthly Digest: February 2026
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-monthly-digest-february-532565
 
 [Read on Telegram](https://t.me/livelawindia/110134)
+
+---
+### 2026-05-03T04:17:53+00:00
+Telangana School Education Dept & TSLSA Sign MoU To Promote Legal Awareness, Child Rights In Schools
+https://www.livelaw.in/news-updates/telangana-school-education-dept-tslsa-sign-mou-to-promote-legal-awareness-child-rights-in-schools-532634
+
+[Read on Telegram](https://t.me/livelawindia/110135)
+
+---
+### 2026-05-03T04:33:13+00:00
+Madras High Court Monthly Digest: April 2026 [Citation 136 to 194]
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-monthly-digest-april-2026-532501
+
+[Read on Telegram](https://t.me/livelawindia/110136)
+
+---
+### 2026-05-03T05:08:03+00:00
+Right Of Foetus v. Woman's Autonomy : Contrasting Judicial Approaches
+https://www.livelaw.in/top-stories/right-of-foetus-v-womans-autonomy-contrasting-judicial-approaches-532610
+
+[Read on Telegram](https://t.me/livelawindia/110137)
+
+---
+### 2026-05-03T05:32:48+00:00
+MACT | Insurer Must Prove Breach Of Policy Condition To Avoid Liability: Gauhati High Court Enhances Compensation By Over ₹15 Lakh
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-insurer-must-prove-breach-policy-condition-avoid-liability-532571
+
+[Read on Telegram](https://t.me/livelawindia/110138)
+
+---
+### 2026-05-03T05:41:28+00:00
+IPAC, Law Centre–I, Faculty of Law, Delhi University Hosts Mentoring Session On Interview Skills
+https://www.livelaw.in/lawschool/news/ipac-law-centrei-faculty-law-delhi-university-hosts-mentoring-session-interview-skills-532635
+
+[Read on Telegram](https://t.me/livelawindia/110139)
+
+---
+### 2026-05-03T06:12:36+00:00
+IMAGE Supreme Court Quarterly Digest 2026 - Bharatiya Nyaya Sanhita (BNS)
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-bharatiya-nyaya-sanhita-quarterly-digest-2026-532638
+
+[Read on Telegram](https://t.me/livelawindia/110140)
+
+---
+### 2026-05-03T06:14:56+00:00
+Testimony Of Differently-Abled Rape Survivor Cannot Be Discarded For Inability To Name Accused: Sikkim High Court
+https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-upholds-rape-conviction-532641
+
+[Read on Telegram](https://t.me/livelawindia/110141)
+
+---
+### 2026-05-03T06:32:26+00:00
+MP High Court Directs State To Publicise Free Hearse Van Helpline For Dignified Transport Of Deceased
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-mp-mukti-vahan-yojna-public-interest-litigation-532573
+
+[Read on Telegram](https://t.me/livelawindia/110142)
+
+---
+### 2026-05-03T06:44:06+00:00
+'First Judgment Allowing Rape Victim To Terminate Pregnancy Was Authored By Me, Unfortunately SC Reversed It' : CJI Surya Kant
+https://www.livelaw.in/top-stories/supreme-court-cji-surya-kant-15-year-old-girl-rape-case-abortion-unwanted-pregnancy-burden-nari-niketan-rape-case-stay-532642
+
+[Read on Telegram](https://t.me/livelawindia/110143)
+
+---
+### 2026-05-03T07:13:27+00:00
+Kerala High Court Questions Circular Mandating Local Body Approval For Introducing Co-Education In Single Gender Schools
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-circular-local-body-approval-co-education-single-gender-school-532643
+
+[Read on Telegram](https://t.me/livelawindia/110144)
+
+---
+### 2026-05-03T07:14:47+00:00
+Madras High Court Asks TN Govt To Include Life Of Dr. Ambedkar In School Curriculum
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ambedkar-teaching-school-curiculum-532644
+
+[Read on Telegram](https://t.me/livelawindia/110145)
+
+---
+### 2026-05-03T07:20:06+00:00
+'Govt Must Consider Detenu's Representation At Earliest Point Of Time' : Supreme Court Sets Aside Detention Under NSA
+https://www.livelaw.in/top-stories/supreme-court-preventive-detention-under-nsa-act-set-aside-detenu-representation-considered-belatedly-532645
+
+[Read on Telegram](https://t.me/livelawindia/110146)
+
+---
+### 2026-05-03T07:32:37+00:00
+Drying Rubber Sheets In Smoke House Not 'Manufacture', No Panchayat Licence Needed: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-manufacture-smoke-house-latex-rubber-panchayat-licence-532577
+
+[Read on Telegram](https://t.me/livelawindia/110147)
+
+---
+### 2026-05-03T08:02:58+00:00
+S.125 CrPC | Objective Of Provision Defeated As Exploitation Of Women Continues Due To Legal Loopholes: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-second-wife-void-marriage-maintenance-sec125-crpc-532636
+
+[Read on Telegram](https://t.me/livelawindia/110148)
 
 ---
