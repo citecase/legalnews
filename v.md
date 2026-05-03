@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-02T15:03:09+00:00*
+*Last Updated: 2026-05-03T07:32:53+00:00*
+
+---
+
+### 2026-05-03T07:32:53+00:00
+Bombay High Court Grants Interim Relief From Arrest To Rape Accused For His Marriage Despite Pendency Of Anticipatory Bail Plea
+https://www.verdictum.in/bombay-high-court/a-v-the-state-of-maharashtra-interim-relief-arrest-rape-accused-marriage-anticipatory-bail-plea-1613274
+
+[Source Link](https://t.me/verdictumlegalupdates/26850)
+
+---
+
+### 2026-05-03T06:02:11+00:00
+Daughter-In-Law Cannot Insist On Residing In Senior Citizens’ Property Where Ill-Treatment Is Established & Alternate Accommodation Offered: Delhi High Court
+https://www.verdictum.in/delhi-high-court/ritika-kalra-v-government-of-nct-of-delhi-ors-2026dhc3704-d-v-act-1613273
+
+[Source Link](https://t.me/verdictumlegalupdates/26849)
+
+---
+
+### 2026-05-03T04:32:40+00:00
+Extending Use Of Private Property For Organized Religious Congregational Activity May Attract Regulatory Control: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/aseen-vstate-of-up-and-3-others-2026ahc74259-db-private-property-congregational-activity-control-1613272
+
+[Source Link](https://t.me/verdictumlegalupdates/26848)
 
 ---
 
@@ -137,30 +161,6 @@ Allahabad High Court Directs Mahakumbh Mela Authority To Decide Claims For Compe
 https://www.verdictum.in/allahabad-high-court/sanjay-kumar-sharma-v-state-of-up-ex-gratia-compensation-mahakumbh-mela-stampede-1613215
 
 [Source Link](https://t.me/verdictumlegalupdates/26831)
-
----
-
-### 2026-05-01T15:03:05+00:00
-Unexplained Money Transfer By Itself Does Not Sustain A Bribery Charge: Delhi High Court Sets Aside Removal Of CWC Manager
-https://www.verdictum.in/delhi-high-court/rajesh-choudhary-v-union-of-india-2026dhc3651-finding-of-bribery-sleeping-on-duty-1613210
-
-[Source Link](https://t.me/verdictumlegalupdates/26830)
-
----
-
-### 2026-05-01T14:32:43+00:00
-Special Appeal Not Maintainable Where Single Judge Refuses To Initiate Contempt Without Examining Merits: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/x-v-y-2026ahc-lko30452-db-chapter-viii-rule-5-high-court-rules-1952-1613209
-
-[Source Link](https://t.me/verdictumlegalupdates/26829)
-
----
-
-### 2026-05-01T14:02:32+00:00
-Matter Of Maintenance U/S.24 Of Hindu Marriage Act Is Summary Enquiry & Not Full Fledged Trial: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/ab-v-pq-neutral-citation-2026khc21864-section-24-maintenance-summary-enquiry-1613213
-
-[Source Link](https://t.me/verdictumlegalupdates/26828)
 
 ---
 
