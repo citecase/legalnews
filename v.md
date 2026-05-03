@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-03T07:32:53+00:00*
+*Last Updated: 2026-05-03T13:32:21+00:00*
+
+---
+
+### 2026-05-03T13:32:21+00:00
+Not Under Exception Of Larger Public Interest: Delhi High Court Sets Aside Order For Disclosure Of Husband’s Income Under RTI Act For Maintenance Claim
+https://www.verdictum.in/delhi-high-court/ab-v-cpio-income-tax-officer-moradabad-2026dhc3705-not-larger-public-interest-income-rti-maintenance-1613278
+
+[Source Link](https://t.me/verdictumlegalupdates/26855)
+
+---
+
+### 2026-05-03T12:03:19+00:00
+Merely Driving Car While Contraband Is Recovered From Passenger Doesn’t Constitute Possession: Calcutta High Court Grants Bail In NDPS Case
+https://www.verdictum.in/calcutta-high-court/saw-herald-v-the-state-driving-car-contraband-passenger-possession-bail-ndps-accused-1613277
+
+[Source Link](https://t.me/verdictumlegalupdates/26854)
+
+---
+
+### 2026-05-03T10:32:37+00:00
+“Administrator Had No Authority To Promise":  Bombay High Court Dismisses Hotel The Deltin Plea For Casino Licenses In Daman
+https://www.verdictum.in/bombay-high-court/delta-corp-limited-and-another-v-ut-administration-of-daman-and-diu-2026bhc-as20375-db-hotel-the-deltin-plea-casino-licenses-1613303
+
+[Source Link](https://t.me/verdictumlegalupdates/26853)
+
+---
+
+### 2026-05-03T10:32:16+00:00
+Pendency Of Criminal Proceeding Can't Be Invoked To Indefinitely Prolong Suspension In Absence Of Departmental Enquiry: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/shankar-yamanappa-talawar-v-chief-executive-officer-writ-petition-101210-of-2025-1613271
+
+[Source Link](https://t.me/verdictumlegalupdates/26852)
+
+---
+
+### 2026-05-03T09:02:54+00:00
+Mandatory Centralised Approval For New Drugs: Delhi High Court Affirms CDSCO’s Power To Review State-Issued FDC Licenses
+https://www.verdictum.in/delhi-high-court/2026-dhc-3690-maxford-healthcare-v-union-of-india-1613275
+
+[Source Link](https://t.me/verdictumlegalupdates/26851)
 
 ---
 
@@ -121,46 +161,6 @@ Membership In Organised Crime Syndicate Essential U/S 111 BNS: Madhya Pradesh Hi
 https://www.verdictum.in/madhya-pradesh-high-court/hiralal-v-state-of-mp-2026mphc-ind12370-organised-crime-syndicate-us-111-bns-1613244
 
 [Source Link](https://t.me/verdictumlegalupdates/26836)
-
----
-
-### 2026-05-02T06:12:39+00:00
-Courts Must Strive To Preserve Child’s Emotional Stability: Karnataka High Court Upholds Unsupervised Visitation Rights For Father
-https://www.verdictum.in/karnataka-high-court/anjali-menon-v-roshan-elias-john-father-visitation-rights-minor-daughter-1613240
-
-[Source Link](https://t.me/verdictumlegalupdates/26835)
-
----
-
-### 2026-05-02T05:32:57+00:00
-"No Further Orders Are Necessary": Supreme Court Asks ECI To Follow Circular On Central Staff Appointments For West Bengal Vote Counting In TMC Plea
-https://www.verdictum.in/supreme-court/eci-central-staff-appointments-west-bengal-vote-counting-tmc-1613237
-
-[Source Link](https://t.me/verdictumlegalupdates/26834)
-
----
-
-### 2026-05-02T04:33:26+00:00
-Allegations Of Extra-Marital Relationship If Proved Have Direct & Substantial Bearing On Issue Of Desertion: Karnataka High Court Sets Aside Divorce Decree
-https://www.verdictum.in/karnataka-high-court/2026khck3775db-w-v-h-1613212
-
-[Source Link](https://t.me/verdictumlegalupdates/26833)
-
----
-
-### 2026-05-01T16:02:08+00:00
-Legal Director Vacancy At Maharashtra Police
-https://www.verdictum.in/job-updates/maharashtra-police-1613205
-
-[Source Link](https://t.me/verdictumlegalupdates/26832)
-
----
-
-### 2026-05-01T15:32:27+00:00
-Allahabad High Court Directs Mahakumbh Mela Authority To Decide Claims For Compensation For Deaths In Stampede Within 30 Days
-https://www.verdictum.in/allahabad-high-court/sanjay-kumar-sharma-v-state-of-up-ex-gratia-compensation-mahakumbh-mela-stampede-1613215
-
-[Source Link](https://t.me/verdictumlegalupdates/26831)
 
 ---
 
