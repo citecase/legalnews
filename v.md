@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-03T15:02:43+00:00*
+*Last Updated: 2026-05-04T09:02:27+00:00*
+
+---
+
+### 2026-05-04T09:02:27+00:00
+Supreme Court Quashes "Obnoxious" Bail Conditions Imposed By Orissa High Court; Slams Odisha Judiciary For Regressive And Caste-Based Bias
+https://www.verdictum.in/supreme-court/obnoxious-bail-condition-imposed-orissa-high-court-odisha-judiciary-1613354
+
+[Source Link](https://t.me/verdictumlegalupdates/26864)
+
+---
+
+### 2026-05-04T08:33:05+00:00
+“Too Often Reduced To Sectional Emblem”: Madras High Court Directs State To Include Dr. B.R. Ambedkar’s Life In School Curriculum
+https://www.verdictum.in/madras-high-court/g-rajesh-rajeshkumar-v-the-state-of-tamil-nadu-crlopmd-no22813-of-2025-dr-br-ambedkars-life-in-school-curriculum-1613343
+
+[Source Link](https://t.me/verdictumlegalupdates/26863)
+
+---
+
+### 2026-05-04T07:52:44+00:00
+‘Very Nasty’, Each One Sitting Here Considers Themselves Super CJI: Supreme Court Slams Registry For Not Issuing Notice To ED
+https://www.verdictum.in/supreme-court/very-nasty-each-one-sitting-here-considers-themselves-super-cji-supreme-court-slams-registry-for-not-issuing-notice-to-ed-1613346
+
+[Source Link](https://t.me/verdictumlegalupdates/26862)
+
+---
+
+### 2026-05-04T07:23:22+00:00
+Supreme Court Seeks Response From Centre On Pleas Seeking Filling Vacant Posts In Armed Forces Tribunal
+https://www.verdictum.in/supreme-court/supreme-court-seeks-response-from-centre-on-pleas-seeking-filling-vacant-posts-in-armed-forces-tribunal-1613345
+
+[Source Link](https://t.me/verdictumlegalupdates/26861)
+
+---
+
+### 2026-05-04T06:52:20+00:00
+Supreme Court Refuses Urgent Hearing Of Plea Seeking Continuance Of CAPF In Bengal To Curb Post-Poll Violence
+https://www.verdictum.in/supreme-court/supreme-court-refuses-urgent-hearing-of-plea-seeking-continuance-of-capf-in-bengal-to-curb-post-poll-violence-1613334
+
+[Source Link](https://t.me/verdictumlegalupdates/26860)
+
+---
+
+### 2026-05-04T06:15:19+00:00
+Breaking: Supreme Court To Examine Validity Of 2026 Transgender Amendment Act; Issues Notice To Centre And States
+https://www.verdictum.in/supreme-court/2026-transgender-amendment-act-issues-notice-1613333
+
+[Source Link](https://t.me/verdictumlegalupdates/26859)
+
+---
+
+### 2026-05-04T05:46:58+00:00
+No Charge Sheet Filed: Gauhati High Court Asks Authorities To Reconsider Sub-Inspector’s Case For Promotion Despite Criminal Case Pendency
+https://www.verdictum.in/guwahati-high-court/smt-dipali-baruah-v-the-state-of-assam-2026gau-as5946-no-charge-sheet-sub-inspector-promotion-1613331
+
+[Source Link](https://t.me/verdictumlegalupdates/26858)
+
+---
+
+### 2026-05-04T04:32:26+00:00
+BMC Alteration Or Repair Permissions Cannot Conclusively Prove Existence Of Pre-Datum Structure Without Independent Evidence: Bombay High Court
+https://www.verdictum.in/bombay-high-court/siesta-industrial-trading-corporation-ors-v-municipal-corporation-of-greater-mumbai-ors-2026bhc-os11078-db-1613304
+
+[Source Link](https://t.me/verdictumlegalupdates/26857)
 
 ---
 
@@ -97,70 +161,6 @@ Bombay High Court Enhances Motor Accident Compensation From ₹10 Lakhs To ₹1.
 https://www.verdictum.in/bombay-high-court/2026bhcas19850-dr-dhanashri-rajesh-deshmukh-v-saroj-kumar-behera-1613270
 
 [Source Link](https://t.me/verdictumlegalupdates/26845)
-
----
-
-### 2026-05-02T12:52:44+00:00
-Termination Of Regular Employee By Public Authority Must Satisfy Article 14 Even If Origin Of Relationship Is Contractual In Nature: Delhi High Court
-https://www.verdictum.in/delhi-high-court/avinash-kumar-v-union-of-india-ors-2026dhc3717-article-14-public-employment-1613264
-
-[Source Link](https://t.me/verdictumlegalupdates/26844)
-
----
-
-### 2026-05-02T12:14:03+00:00
-Confession Made To Doctor In Police Custody Inadmissible: Bombay High Court Sets Aside Conviction U/S 6 POCSO Act
-https://www.verdictum.in/bombay-high-court/amol-jayram-landge-v-state-of-maharashtra-anr-2026bhc-aug18109-1613263
-
-[Source Link](https://t.me/verdictumlegalupdates/26843)
-
----
-
-### 2026-05-02T11:12:20+00:00
-Validity Of Administrative Action To Be Adjudged On Facts When Such Decision Was Taken; Subsequent Developments Can’t Be Relied Upon: Patna High Court
-https://www.verdictum.in/patna-high-court/ramesh-prasad-gupta-v-the-state-of-bihar-administrative-action-subsequent-developments-1613260
-
-[Source Link](https://t.me/verdictumlegalupdates/26842)
-
----
-
-### 2026-05-02T10:32:49+00:00
-Supreme Court Invokes Article 142 To Protect Merit-Holders Affected By Closure Of Rehbar-E-Taleem Scheme In J&K: Mandates TET/NCTE
-https://www.verdictum.in/supreme-court/union-territory-of-jammu-and-kashmir-v-saba-wani-2026-insc-439-rehbar-e-taleem-scheme-1613257
-
-[Source Link](https://t.me/verdictumlegalupdates/26841)
-
----
-
-### 2026-05-02T09:52:27+00:00
-Bombay High Court Grants Permanent Injunction To Ultratech, Rules That Negligent Conduct By Defendant Merits Punitive Costs
-https://www.verdictum.in/bombay-high-court/2026bhcos11103-ultra-tech-cement-v-shiv-cement-co-1613255
-
-[Source Link](https://t.me/verdictumlegalupdates/26840)
-
----
-
-### 2026-05-02T09:13:05+00:00
-Minimum Wages Only Guiding Benchmark: Delhi High Court Issues Guidelines For Income Assessment In MACT Cases
-https://www.verdictum.in/delhi-high-court/savita-v-national-insurance-company-ltd-2026dhc3626-not-confined-to-lowest-minimum-wages-1613253
-
-[Source Link](https://t.me/verdictumlegalupdates/26839)
-
----
-
-### 2026-05-02T08:32:44+00:00
-Writ Of Habeas Corpus Maintainable Where Detention Of Minor By Parent Is Illegal: Bombay High Court
-https://www.verdictum.in/bombay-high-court/shri-sunil-patiram-parteti-v-state-of-maharashtra-ors-2026bhc-nag6720-db-1613252
-
-[Source Link](https://t.me/verdictumlegalupdates/26838)
-
----
-
-### 2026-05-02T07:53:03+00:00
-“Family Tree & Maps Common To Multi-Generational Sagas”: Delhi High Court Dismisses Author Sivasundari Bose’s Infringement Suit Against David Davidar
-https://www.verdictum.in/delhi-high-court/david-davidar-v-sivassundari-bose-2026dhc3666-author-sivasundari-boses-infringement-suit-against-david-davidar-1613247
-
-[Source Link](https://t.me/verdictumlegalupdates/26837)
 
 ---
 
