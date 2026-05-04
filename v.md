@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-04T09:02:27+00:00*
+*Last Updated: 2026-05-04T14:32:52+00:00*
+
+---
+
+### 2026-05-04T14:32:52+00:00
+Bombay High Court Issues Guidelines On Renewal & Re-Issue Of Passports Of Persons Facing Pending Criminal Proceedings
+https://www.verdictum.in/bombay-high-court/sagar-pradeep-oak-v-state-of-maharashtra-ors-2026bhc-as20892-passport-1613377
+
+[Source Link](https://t.me/verdictumlegalupdates/26875)
+
+---
+
+### 2026-05-04T14:02:11+00:00
+Receiving Amount In INR From NRE Account Without Allegation Of Dealing In Foreign Exchange Not Violation Of Sec.8(1) FERA: Delhi High Court
+https://www.verdictum.in/delhi-high-court/prakash-chandra-yadav-v-directorate-of-enforcement-2026dhc3746-db-inr-nre-account-sec81-fera-1613376
+
+[Source Link](https://t.me/verdictumlegalupdates/26874)
+
+---
+
+### 2026-05-04T13:33:09+00:00
+Eviction Proceedings & Termination Of SEZ Lease Under Gujarat Public Premises Act Impermissible During IBC Moratorium: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/gujarat-industrial-development-corporation-v-gujarat-hydrocarbons-and-power-sez-limited-ors-1613375
+
+[Source Link](https://t.me/verdictumlegalupdates/26873)
+
+---
+
+### 2026-05-04T13:02:28+00:00
+Require Legislative Intervention & Amendments In Existing Law: Apex Court Disposes Of Plea Seeking Direction To Issue New Aadhaar Cards Only To Citizens Upto Age 6 Yrs
+https://www.verdictum.in/supreme-court/require-legislative-intervention-amendments-in-existing-law-apex-court-disposes-of-plea-seeking-direction-to-issue-new-aadhaar-cards-only-to-citizens-upto-age-6-yrs-1613374
+
+[Source Link](https://t.me/verdictumlegalupdates/26872)
+
+---
+
+### 2026-05-04T12:32:47+00:00
+Apex Court Declines To Grant Relief To Dubai-Based Indian Alleging Harassment By Authorities; Asks Him To Approach Embassy For Travel Ban
+https://www.verdictum.in/supreme-court/apex-court-declines-to-grant-relief-to-dubai-based-indian-alleging-harassment-by-authorities-asks-him-to-approach-embassy-for-travel-ban-1613372
+
+[Source Link](https://t.me/verdictumlegalupdates/26871)
+
+---
+
+### 2026-05-04T12:02:55+00:00
+Weekly Overview| Supreme Court Judgments: April 27 – May 01, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-april-27-may-01-2026-1613371
+
+[Source Link](https://t.me/verdictumlegalupdates/26870)
+
+---
+
+### 2026-05-04T11:32:48+00:00
+Supreme Courts Asks Karnataka Govt To Respond On Plea By Actor Darshan Alleging Lack Of Basic Amenities In Prison
+https://www.verdictum.in/supreme-court/supreme-courts-asks-karnataka-govt-to-respond-on-plea-by-actor-darshan-alleging-lack-of-basic-amenities-in-prison-1613358
+
+[Source Link](https://t.me/verdictumlegalupdates/26869)
+
+---
+
+### 2026-05-04T11:02:16+00:00
+Apex Court Asks MP Pappu Yadav To Approach Patna HC For Upgradation Of Security Cover From ‘Y’ To ‘Z’ Category
+https://www.verdictum.in/supreme-court/apex-court-asks-mp-pappu-yadav-to-approach-patna-hc-for-upgradation-of-security-cover-from-y-to-z-category-1613359
+
+[Source Link](https://t.me/verdictumlegalupdates/26868)
+
+---
+
+### 2026-05-04T10:32:21+00:00
+Supreme Court Expands Definition Of ‘Acid Attack Victims’ In Rights Of Persons With Disabilities Act To Include Forced Ingestion
+https://www.verdictum.in/supreme-court/rights-of-persons-with-disabilities-act-acid-attack-forced-ingestion-1613362
+
+[Source Link](https://t.me/verdictumlegalupdates/26867)
+
+---
+
+### 2026-05-04T10:03:00+00:00
+Supreme Court To Hear Plea Of Alleged Middleman Christian Michel James In AgustaWestland Chopper Scam
+https://www.verdictum.in/supreme-court/supreme-court-to-hear-plea-of-alleged-middleman-christian-michel-james-in-agustawestland-chopper-scam-1613357
+
+[Source Link](https://t.me/verdictumlegalupdates/26866)
+
+---
+
+### 2026-05-04T09:32:50+00:00
+Licence Holder On Government Land Cannot Be Treated As Encroacher: Kerala High Court Directs Grant Of Rehabilitation Compensation Upon Displacement
+https://www.verdictum.in/kerala-high-court/laiju-ms-v-the-district-collector-ors-2026ker29986-land-compensation-1613353
+
+[Source Link](https://t.me/verdictumlegalupdates/26865)
 
 ---
 
@@ -73,94 +161,6 @@ Deputy Counsel Vacancy At Delhi International Arbitration Centre (DIAC)
 https://www.verdictum.in/job-updates/delhi-international-arbitration-centre-1613267
 
 [Source Link](https://t.me/verdictumlegalupdates/26856)
-
----
-
-### 2026-05-03T13:32:21+00:00
-Not Under Exception Of Larger Public Interest: Delhi High Court Sets Aside Order For Disclosure Of Husband’s Income Under RTI Act For Maintenance Claim
-https://www.verdictum.in/delhi-high-court/ab-v-cpio-income-tax-officer-moradabad-2026dhc3705-not-larger-public-interest-income-rti-maintenance-1613278
-
-[Source Link](https://t.me/verdictumlegalupdates/26855)
-
----
-
-### 2026-05-03T12:03:19+00:00
-Merely Driving Car While Contraband Is Recovered From Passenger Doesn’t Constitute Possession: Calcutta High Court Grants Bail In NDPS Case
-https://www.verdictum.in/calcutta-high-court/saw-herald-v-the-state-driving-car-contraband-passenger-possession-bail-ndps-accused-1613277
-
-[Source Link](https://t.me/verdictumlegalupdates/26854)
-
----
-
-### 2026-05-03T10:32:37+00:00
-“Administrator Had No Authority To Promise":  Bombay High Court Dismisses Hotel The Deltin Plea For Casino Licenses In Daman
-https://www.verdictum.in/bombay-high-court/delta-corp-limited-and-another-v-ut-administration-of-daman-and-diu-2026bhc-as20375-db-hotel-the-deltin-plea-casino-licenses-1613303
-
-[Source Link](https://t.me/verdictumlegalupdates/26853)
-
----
-
-### 2026-05-03T10:32:16+00:00
-Pendency Of Criminal Proceeding Can't Be Invoked To Indefinitely Prolong Suspension In Absence Of Departmental Enquiry: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/shankar-yamanappa-talawar-v-chief-executive-officer-writ-petition-101210-of-2025-1613271
-
-[Source Link](https://t.me/verdictumlegalupdates/26852)
-
----
-
-### 2026-05-03T09:02:54+00:00
-Mandatory Centralised Approval For New Drugs: Delhi High Court Affirms CDSCO’s Power To Review State-Issued FDC Licenses
-https://www.verdictum.in/delhi-high-court/2026-dhc-3690-maxford-healthcare-v-union-of-india-1613275
-
-[Source Link](https://t.me/verdictumlegalupdates/26851)
-
----
-
-### 2026-05-03T07:32:53+00:00
-Bombay High Court Grants Interim Relief From Arrest To Rape Accused For His Marriage Despite Pendency Of Anticipatory Bail Plea
-https://www.verdictum.in/bombay-high-court/a-v-the-state-of-maharashtra-interim-relief-arrest-rape-accused-marriage-anticipatory-bail-plea-1613274
-
-[Source Link](https://t.me/verdictumlegalupdates/26850)
-
----
-
-### 2026-05-03T06:02:11+00:00
-Daughter-In-Law Cannot Insist On Residing In Senior Citizens’ Property Where Ill-Treatment Is Established & Alternate Accommodation Offered: Delhi High Court
-https://www.verdictum.in/delhi-high-court/ritika-kalra-v-government-of-nct-of-delhi-ors-2026dhc3704-d-v-act-1613273
-
-[Source Link](https://t.me/verdictumlegalupdates/26849)
-
----
-
-### 2026-05-03T04:32:40+00:00
-Extending Use Of Private Property For Organized Religious Congregational Activity May Attract Regulatory Control: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/aseen-vstate-of-up-and-3-others-2026ahc74259-db-private-property-congregational-activity-control-1613272
-
-[Source Link](https://t.me/verdictumlegalupdates/26848)
-
----
-
-### 2026-05-02T15:03:09+00:00
-Legal Consultant Vacancy At Delhi State Health Mission (DSHM)
-https://www.verdictum.in/job-updates/delhi-state-health-mission-1613266
-
-[Source Link](https://t.me/verdictumlegalupdates/26847)
-
----
-
-### 2026-05-02T14:12:47+00:00
-Can't Object To Maintainability Of Sec.11 Application After Suggesting Name Of Another Arbitrator: Bombay High Court
-https://www.verdictum.in/bombay-high-court/fintree-finance-private-ltd-v-embifi-global-services-2026bhc-os11277-section-11-application-arbitrator-1613276
-
-[Source Link](https://t.me/verdictumlegalupdates/26846)
-
----
-
-### 2026-05-02T13:32:26+00:00
-Bombay High Court Enhances Motor Accident Compensation From ₹10 Lakhs To ₹1.31 Crores For Family Of Deceased Maritime Engineer
-https://www.verdictum.in/bombay-high-court/2026bhcas19850-dr-dhanashri-rajesh-deshmukh-v-saroj-kumar-behera-1613270
-
-[Source Link](https://t.me/verdictumlegalupdates/26845)
 
 ---
 
