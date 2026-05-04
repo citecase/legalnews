@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-03T07:13:27+00:00*
+*Last Updated: 2026-05-03T08:02:58+00:00*
 
 ---
 
-### 2026-05-03T07:13:27+00:00
-Kerala High Court Questions Circular Mandating Local Body Approval For Introducing Co-Education In Single Gender Schools
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-circular-local-body-approval-co-education-single-gender-school-532643
-
-[Read on Telegram](https://t.me/livelawindia/110144)
-
----
-### 2026-05-03T07:14:47+00:00
-Madras High Court Asks TN Govt To Include Life Of Dr. Ambedkar In School Curriculum
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ambedkar-teaching-school-curiculum-532644
-
-[Read on Telegram](https://t.me/livelawindia/110145)
-
----
-### 2026-05-03T07:20:06+00:00
-'Govt Must Consider Detenu's Representation At Earliest Point Of Time' : Supreme Court Sets Aside Detention Under NSA
-https://www.livelaw.in/top-stories/supreme-court-preventive-detention-under-nsa-act-set-aside-detenu-representation-considered-belatedly-532645
-
-[Read on Telegram](https://t.me/livelawindia/110146)
-
----
-### 2026-05-03T07:32:37+00:00
-Drying Rubber Sheets In Smoke House Not 'Manufacture', No Panchayat Licence Needed: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-manufacture-smoke-house-latex-rubber-panchayat-licence-532577
-
-[Read on Telegram](https://t.me/livelawindia/110147)
-
----
 ### 2026-05-03T08:02:58+00:00
 S.125 CrPC | Objective Of Provision Defeated As Exploitation Of Women Continues Due To Legal Loopholes: Rajasthan High Court
 https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-second-wife-void-marriage-maintenance-sec125-crpc-532636
@@ -142,5 +114,33 @@ Internet Is Boundless, Judges Must Be Equipped With Knowledge To Handle Evolving
 https://www.livelaw.in/news-updates/justice-moushumi-bhattacharya-judicial-curriculum-internet-cyber-crime-knowledge-532657
 
 [Read on Telegram](https://t.me/livelawindia/110163)
+
+---
+### 2026-05-04T02:36:46+00:00
+BREAKING| Supreme Court Takes Suo Motu Cognisance Of Odisha Courts' Bail Conditions Requiring Accused To Clean Police Stations
+https://www.livelaw.in/top-stories/supreme-court-takes-suo-motu-cognisance-of-odisha-courts-bail-conditions-requiring-accused-to-clean-police-stations-532676
+
+[Read on Telegram](https://t.me/livelawindia/110164)
+
+---
+### 2026-05-04T03:05:56+00:00
+From Rigid Law To Lived Reality: Delhi High Courts' Guidelines On Quashing Consensual POCSO Cases
+https://www.livelaw.in/articles/delhi-high-courts-guidelines-pocso-addressing-consensual-relationships-532677
+
+[Read on Telegram](https://t.me/livelawindia/110165)
+
+---
+### 2026-05-04T03:32:16+00:00
+Madras High Court Weekly Round-Up: April 27 - May 03, 2026
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-april-27-to-may-3-2026-532670
+
+[Read on Telegram](https://t.me/livelawindia/110166)
+
+---
+### 2026-05-04T03:32:26+00:00
+Supreme Court Quarterly Digest 2026 - Bharatiya Sakshya Adhiniyam (BSA)
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-bharatiya-sakshya-adhiniyam-quarterly-digest-2026-532640
+
+[Read on Telegram](https://t.me/livelawindia/110167)
 
 ---
