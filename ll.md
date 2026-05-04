@@ -1,93 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-04T11:50:40+00:00*
+*Last Updated: 2026-05-04T13:10:30+00:00*
 
 ---
 
-### 2026-05-04T11:50:40+00:00
-Deployment For Permanent Absorption Is Distinct From Deputation; Employee Can't Be Arbitrarily Repatriated: Orissa HC
-https://www.livelaw.in/high-court/orissa-high-court/deployment-for-permanent-absorption-is-distinct-from-deputation-employee-cant-be-arbitrarily-repatriated-orissa-hc-532788
-
-[Read on Telegram](https://t.me/livelawindia/110217)
-
----
-### 2026-05-04T11:53:20+00:00
-'Unwanted Pregnancies On Rise', Says Supreme Court Dropping Contempt Proceedings Against AIIMS
-https://www.livelaw.in/top-stories/unwanted-pregnancies-on-rise-says-supreme-court-dropping-contempt-proceedings-against-aiims-532791
-
-[Read on Telegram](https://t.me/livelawindia/110218)
-
----
-### 2026-05-04T11:54:20+00:00
-'Unprecedented': Telangana High Court Quashes Restraint Order Against Wife, Says Filing Criminal Cases Against Husband Don't Justify Curbs
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-sets-aside-order-restraining-woman-going-near-husband-532792
-
-[Read on Telegram](https://t.me/livelawindia/110219)
-
----
-### 2026-05-04T11:58:00+00:00
-Supreme Court Quashes Bail Condition Requiring Accused To Vacate Home Solely To Prevent Alleged Offence Against Complainant
-https://www.livelaw.in/supreme-court/supreme-court-quashes-bail-condition-requiring-accused-to-vacate-home-solely-to-prevent-alleged-offence-against-complainant-532793
-
-[Read on Telegram](https://t.me/livelawindia/110220)
-
----
-### 2026-05-04T12:00:00+00:00
-2026 LiveLaw (SC) 451 | SACHIN YADAV VERSUS STATE (NCT of DELHI) & ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-451-sachin-yadav-versus-state-nct-of-delhi-anr-532794
-
-[Read on Telegram](https://t.me/livelawindia/110221)
-
----
-### 2026-05-04T12:07:40+00:00
-Bhojshala Temple-Kamal Maula Mosque Dispute: Centre Tells MP High Court 1935 Notification Permitting Namaz At Site Not Valid
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bhojshala-temple-kamal-maula-mosque-dispute-1935-notification-not-valid-tells-union-532797
-
-[Read on Telegram](https://t.me/livelawindia/110222)
-
----
-### 2026-05-04T12:07:50+00:00
-'Freedom On Trial' Book Review - Gripping Account Of Freedom Fighters' Encounters With Colonial Courts
-https://www.livelaw.in/book-reviews/freedom-on-trial-book-review-gripping-account-of-freedom-fighters-encounters-with-colonial-courts-532798
-
-[Read on Telegram](https://t.me/livelawindia/110223)
-
----
-### 2026-05-04T12:32:30+00:00
-Madhya Pradesh High Court Weekly Roundup: April 27 - May 03, 2026
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-weekly-digest-april-27-to-may-3-2026-532730
-
-[Read on Telegram](https://t.me/livelawindia/110224)
-
----
-### 2026-05-04T12:40:10+00:00
-Bhima-Koregaon Case: Bombay High Court Grants Bail To Surendra Gadling After 8 Years In Jail
-https://www.livelaw.in/high-court/bombay-high-court/surendra-gadling-bail-granted-8-years-prison-bhima-koregaon-case-532801
-
-[Read on Telegram](https://t.me/livelawindia/110225)
-
----
-### 2026-05-04T13:02:30+00:00
-Courts Least Equipped To Infer 'Psychiatric Disorder' From Marital Incidents Without Expert Medical Evidence: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-couple-divorce-mental-disorder-wife-husband-532800
-
-[Read on Telegram](https://t.me/livelawindia/110226)
-
----
-### 2026-05-04T13:02:40+00:00
-Exemption From Minimum Qualification For Promotion Arbitrary, Violates UGC Norms & Awards “Premium" To Illegality: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/exemption-from-minimum-qualification-for-promotion-arbitrary-violates-ugc-norms-awards-premium-to-illegality-calcutta-high-court-532756
-
-[Read on Telegram](https://t.me/livelawindia/110227)
-
----
-### 2026-05-04T13:08:10+00:00
-Dowry Deaths 'Serious Social Problem', Particularly In UP, Bihar & Karnataka : Supreme Court
-https://www.livelaw.in/supreme-court/dowry-deaths-serious-social-problem-particularly-in-up-bihar-karnataka-supreme-court-532806
-
-[Read on Telegram](https://t.me/livelawindia/110228)
-
----
 ### 2026-05-04T13:10:30+00:00
 2026 LiveLaw (SC) 452 | MAHESH CHAND VERSUS STATE OF UTTAR PRADESH & ANR.
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-452-mahesh-chand-versus-state-of-uttar-pradesh-anr-532807
@@ -142,5 +58,89 @@ https://www.livelaw.in/sc-judgments/2026-livelaw-sc-453-sujal-vishwas-attavar-an
 https://www.livelaw.in/news-updates/nida-khan-burqa-trained-victim-offer-namaz-systematic-brainwashing-victim-532820
 
 [Read on Telegram](https://t.me/livelawindia/110236)
+
+---
+### 2026-05-04T14:26:44+00:00
+Doctor's Legal Heirs Liable For Medical Negligence Under Consumer Protection : Supreme Court
+https://www.livelaw.in/supreme-court/doctors-legal-heirs-liable-for-medical-negligence-under-consumer-protection-supreme-court-532825
+
+[Read on Telegram](https://t.me/livelawindia/110237)
+
+---
+### 2026-05-04T14:29:04+00:00
+2026 LiveLaw (SC) 454 | Kumud Lall VERSUS Suresh Chandra Roy (Dead) Through LRs and Others (with connected matter)
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-454-kumud-lall-versus-suresh-chandra-roy-dead-through-lrs-and-others-with-connected-matter-532828
+
+[Read on Telegram](https://t.me/livelawindia/110238)
+
+---
+### 2026-05-04T14:47:55+00:00
+Where Allegations Are Against Cops, Investigation By Same Agency Raises Reasonable Apprehension Of Bias: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-allegations-police-officer-independent-probe-532826
+
+[Read on Telegram](https://t.me/livelawindia/110239)
+
+---
+### 2026-05-04T15:13:55+00:00
+Patna HC Declines Interference In BIADA Plot Cancellation, Says Disputed Facts Not Amenable To Writ Jurisdiction
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-refuses-interfere-cancellation-industrial-plot-allotment-532834
+
+[Read on Telegram](https://t.me/livelawindia/110240)
+
+---
+### 2026-05-04T15:17:55+00:00
+Property Attachment, Auction Part Of Quasi-Judicial Duties Of Tehsildar; Disciplinary Action Unsustainable Absent Malafide: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-revenue-officer-quasi-judicial-duty-disciplinary-proceedings-judges-protection-act-532830
+
+[Read on Telegram](https://t.me/livelawindia/110241)
+
+---
+### 2026-05-04T15:18:15+00:00
+Selective Cancellation Of Recruitment Without Strong Justification Violates Article 14: Manipur High Court
+https://www.livelaw.in/high-court/manipur-high-court/manipur-high-court-selective-cancellation-recruitment-violates-article14-532832
+
+[Read on Telegram](https://t.me/livelawindia/110242)
+
+---
+### 2026-05-04T15:19:35+00:00
+'Perfect Order' : Supreme Court Dismisses Byju Raveendran's Appeal Against NCLT Restoring Original CoC In Think & Learn CIRP
+https://www.livelaw.in/top-stories/perfect-order-supreme-court-dismisses-byju-raveendrans-appeal-against-nclt-restoring-original-coc-in-think-learn-cirp-532836
+
+[Read on Telegram](https://t.me/livelawindia/110243)
+
+---
+### 2026-05-04T15:38:55+00:00
+Telangana High Court Protects Actress Ashu Reddy From 'Irreversible Digital Harm', Bars Publication Of 'Defamatory' Content
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-restrains-media-platforms-defamatory-publications-actress-532839
+
+[Read on Telegram](https://t.me/livelawindia/110244)
+
+---
+### 2026-05-04T15:48:05+00:00
+No Conflict Between J&K Development Act & Panchayati Raj Act On Building Regulation: High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-holds-panchayati-raj-act-does-not-override-development-act-lcma-retains-building-permission-jurisdiction-over-notified-areas-532835
+
+[Read on Telegram](https://t.me/livelawindia/110245)
+
+---
+### 2026-05-04T16:50:31+00:00
+Plea To Limit Aadhaar Enrolment Only For Children Below 6 : Supreme Court Asks Petitioner To Approach Authorities
+https://www.livelaw.in/top-stories/supreme-court-ashwini-upadhyay-pil-against-weak-aadhaar-issuance-framework-closed-writ-be-treated-as-representation-to-states-532843
+
+[Read on Telegram](https://t.me/livelawindia/110246)
+
+---
+### 2026-05-04T17:07:11+00:00
+Supreme Court Daily Round-Up : May 4, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-4-2026-532837
+
+[Read on Telegram](https://t.me/livelawindia/110247)
+
+---
+### 2026-05-04T18:17:11+00:00
+Delhi High Court Flags 'Deeply Disturbing' Coverage Of PMLA Bail Hearing By Indian Express, Cautions Against Media Influence
+https://www.livelaw.in/high-court/delhi-high-court/indian-express-money-laundering-bail-hearing-coverage-deeply-disturbing-532850
+
+[Read on Telegram](https://t.me/livelawindia/110248)
 
 ---
