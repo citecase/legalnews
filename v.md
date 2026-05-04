@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-04T14:32:52+00:00*
+*Last Updated: 2026-05-04T16:02:57+00:00*
+
+---
+
+### 2026-05-04T16:02:57+00:00
+Law Officer Vacancy At Tamilnad Mercantile Bank (TMB)
+https://www.verdictum.in/job-updates/tamilnad-mercantile-bank-1613380
+
+[Source Link](https://t.me/verdictumlegalupdates/26878)
+
+---
+
+### 2026-05-04T15:32:35+00:00
+Mere Drying Of Rubber Sheets Doesn’t Amount To Manufacture Requiring License From Panchayat: Kerala High Court
+https://www.verdictum.in/kerala-high-court/mini-sunny-v-thuravoor-grama-panchayat-2026ker13005-drying-rubber-sheets-license-panchayat-1613379
+
+[Source Link](https://t.me/verdictumlegalupdates/26877)
+
+---
+
+### 2026-05-04T15:03:14+00:00
+Delhi High Court Orders Xiaomi To Deposit $28.7 Million In Patent Dispute With Blackberry And Malikie Over Unlicensed Use Of Cellular SEPs
+https://www.verdictum.in/delhi-high-court/malikie-innovations-ltd-v-xiaomi-corporation-2026dhc3671-unlicensed-use-of-cellular-seps-1613378
+
+[Source Link](https://t.me/verdictumlegalupdates/26876)
 
 ---
 
@@ -137,30 +161,6 @@ Breaking: Supreme Court To Examine Validity Of 2026 Transgender Amendment Act; I
 https://www.verdictum.in/supreme-court/2026-transgender-amendment-act-issues-notice-1613333
 
 [Source Link](https://t.me/verdictumlegalupdates/26859)
-
----
-
-### 2026-05-04T05:46:58+00:00
-No Charge Sheet Filed: Gauhati High Court Asks Authorities To Reconsider Sub-Inspector’s Case For Promotion Despite Criminal Case Pendency
-https://www.verdictum.in/guwahati-high-court/smt-dipali-baruah-v-the-state-of-assam-2026gau-as5946-no-charge-sheet-sub-inspector-promotion-1613331
-
-[Source Link](https://t.me/verdictumlegalupdates/26858)
-
----
-
-### 2026-05-04T04:32:26+00:00
-BMC Alteration Or Repair Permissions Cannot Conclusively Prove Existence Of Pre-Datum Structure Without Independent Evidence: Bombay High Court
-https://www.verdictum.in/bombay-high-court/siesta-industrial-trading-corporation-ors-v-municipal-corporation-of-greater-mumbai-ors-2026bhc-os11078-db-1613304
-
-[Source Link](https://t.me/verdictumlegalupdates/26857)
-
----
-
-### 2026-05-03T15:02:43+00:00
-Deputy Counsel Vacancy At Delhi International Arbitration Centre (DIAC)
-https://www.verdictum.in/job-updates/delhi-international-arbitration-centre-1613267
-
-[Source Link](https://t.me/verdictumlegalupdates/26856)
 
 ---
 
