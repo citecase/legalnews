@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-04T16:02:57+00:00*
+*Last Updated: 2026-05-05T08:32:28+00:00*
+
+---
+
+### 2026-05-05T08:32:28+00:00
+Prevention Detention Order Would Be Vitiated If It Is Based On Offences Committed By Detenue When He Was Juvenile: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/smt-marry-usha-v-state-of-karnataka-2026khc23865-db-prevention-detention-juvenile-1613410
+
+[Source Link](https://t.me/verdictumlegalupdates/26887)
+
+---
+
+### 2026-05-05T08:02:47+00:00
+Suspicious Circumstances Around Unregistered Will Cannot Be Overlooked: Delhi High Court Grants Interim Relief To Karisma Kapoor’s Children, Orders Status Quo
+https://www.verdictum.in/delhi-high-court/samaira-kapur-v-priya-kapur-2026dhc3660-karisma-kapoors-children-interim-relief-1613402
+
+[Source Link](https://t.me/verdictumlegalupdates/26886)
+
+---
+
+### 2026-05-05T07:33:05+00:00
+Absence Of Name In Register Entry Not Conclusive Of “Member” Status For Purpose Of Sections 397 & 398 Companies Act: Supreme Court
+https://www.verdictum.in/supreme-court/dr-bais-surgical-and-medical-institute-pvt-ltd-ors-v-dhananjay-pande-2026-insc-447-1613399
+
+[Source Link](https://t.me/verdictumlegalupdates/26885)
+
+---
+
+### 2026-05-05T07:03:24+00:00
+Economic Benefit Alone Does Not Suffice To Establish "Unfair Advantage": Delhi High Court Declines Injunction Against Jigra Over "Doctors Without Borders" Scene
+https://www.verdictum.in/delhi-high-court/medecins-sans-frontieres-international-v-dharma-productions-private-limited-2026dhc3670-jigra-dharma-productions-1613396
+
+[Source Link](https://t.me/verdictumlegalupdates/26884)
+
+---
+
+### 2026-05-05T06:33:03+00:00
+Eligibility Of Candidate Is Assessed Based On Particulars & Documents Furnished At Time Of Application: Supreme Court Allows RPSC Appeal
+https://www.verdictum.in/supreme-court/rajasthan-public-service-commission-v-lavanshu-sankhla-ors-2026-insc-444-eligibility-candidate-1613394
+
+[Source Link](https://t.me/verdictumlegalupdates/26883)
+
+---
+
+### 2026-05-05T06:02:41+00:00
+Writ Petition Not A Substitute For Statutory Remedies Under BNSS For FIR Registration Absent Imminent Threat To Life Or Liberty: Supreme Court
+https://www.verdictum.in/supreme-court/sujal-vishwas-attavar-anr-v-state-of-maharashtra-ors-2026-insc-442-1613392
+
+[Source Link](https://t.me/verdictumlegalupdates/26882)
+
+---
+
+### 2026-05-05T05:32:40+00:00
+Writ Petition By Employee Challenging Dismissal Order Maintainable When It Is Highly Disproportionate: Kerala High Court
+https://www.verdictum.in/kerala-high-court/sudeep-kt-v-malabar-cancer-centre-2026ker21664-remedy-article-226-constitution-1613391
+
+[Source Link](https://t.me/verdictumlegalupdates/26881)
+
+---
+
+### 2026-05-05T05:02:58+00:00
+Mere Participation In Seminars Can’t Constitute Offence Under UAPA: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/sheikh-juned-v-the-national-investigation-agency-nia-2026mphc-jbp33049-seminars-bail-uapa-1613385
+
+[Source Link](https://t.me/verdictumlegalupdates/26880)
+
+---
+
+### 2026-05-05T04:33:07+00:00
+Failure Of Differently-Abled Rape Victim To Name Accused Not Fatal If Evidence Inspires Confidence And Is Corroborated: Sikkim High Court
+https://www.verdictum.in/sikkim-high-court/rinzing-sherpa-v-state-of-sikkim-differently-abled-victim-sexual-assault-section-376-ipc-1613381
+
+[Source Link](https://t.me/verdictumlegalupdates/26879)
 
 ---
 
@@ -89,78 +161,6 @@ Apex Court Asks MP Pappu Yadav To Approach Patna HC For Upgradation Of Security 
 https://www.verdictum.in/supreme-court/apex-court-asks-mp-pappu-yadav-to-approach-patna-hc-for-upgradation-of-security-cover-from-y-to-z-category-1613359
 
 [Source Link](https://t.me/verdictumlegalupdates/26868)
-
----
-
-### 2026-05-04T10:32:21+00:00
-Supreme Court Expands Definition Of ‘Acid Attack Victims’ In Rights Of Persons With Disabilities Act To Include Forced Ingestion
-https://www.verdictum.in/supreme-court/rights-of-persons-with-disabilities-act-acid-attack-forced-ingestion-1613362
-
-[Source Link](https://t.me/verdictumlegalupdates/26867)
-
----
-
-### 2026-05-04T10:03:00+00:00
-Supreme Court To Hear Plea Of Alleged Middleman Christian Michel James In AgustaWestland Chopper Scam
-https://www.verdictum.in/supreme-court/supreme-court-to-hear-plea-of-alleged-middleman-christian-michel-james-in-agustawestland-chopper-scam-1613357
-
-[Source Link](https://t.me/verdictumlegalupdates/26866)
-
----
-
-### 2026-05-04T09:32:50+00:00
-Licence Holder On Government Land Cannot Be Treated As Encroacher: Kerala High Court Directs Grant Of Rehabilitation Compensation Upon Displacement
-https://www.verdictum.in/kerala-high-court/laiju-ms-v-the-district-collector-ors-2026ker29986-land-compensation-1613353
-
-[Source Link](https://t.me/verdictumlegalupdates/26865)
-
----
-
-### 2026-05-04T09:02:27+00:00
-Supreme Court Quashes "Obnoxious" Bail Conditions Imposed By Orissa High Court; Slams Odisha Judiciary For Regressive And Caste-Based Bias
-https://www.verdictum.in/supreme-court/obnoxious-bail-condition-imposed-orissa-high-court-odisha-judiciary-1613354
-
-[Source Link](https://t.me/verdictumlegalupdates/26864)
-
----
-
-### 2026-05-04T08:33:05+00:00
-“Too Often Reduced To Sectional Emblem”: Madras High Court Directs State To Include Dr. B.R. Ambedkar’s Life In School Curriculum
-https://www.verdictum.in/madras-high-court/g-rajesh-rajeshkumar-v-the-state-of-tamil-nadu-crlopmd-no22813-of-2025-dr-br-ambedkars-life-in-school-curriculum-1613343
-
-[Source Link](https://t.me/verdictumlegalupdates/26863)
-
----
-
-### 2026-05-04T07:52:44+00:00
-‘Very Nasty’, Each One Sitting Here Considers Themselves Super CJI: Supreme Court Slams Registry For Not Issuing Notice To ED
-https://www.verdictum.in/supreme-court/very-nasty-each-one-sitting-here-considers-themselves-super-cji-supreme-court-slams-registry-for-not-issuing-notice-to-ed-1613346
-
-[Source Link](https://t.me/verdictumlegalupdates/26862)
-
----
-
-### 2026-05-04T07:23:22+00:00
-Supreme Court Seeks Response From Centre On Pleas Seeking Filling Vacant Posts In Armed Forces Tribunal
-https://www.verdictum.in/supreme-court/supreme-court-seeks-response-from-centre-on-pleas-seeking-filling-vacant-posts-in-armed-forces-tribunal-1613345
-
-[Source Link](https://t.me/verdictumlegalupdates/26861)
-
----
-
-### 2026-05-04T06:52:20+00:00
-Supreme Court Refuses Urgent Hearing Of Plea Seeking Continuance Of CAPF In Bengal To Curb Post-Poll Violence
-https://www.verdictum.in/supreme-court/supreme-court-refuses-urgent-hearing-of-plea-seeking-continuance-of-capf-in-bengal-to-curb-post-poll-violence-1613334
-
-[Source Link](https://t.me/verdictumlegalupdates/26860)
-
----
-
-### 2026-05-04T06:15:19+00:00
-Breaking: Supreme Court To Examine Validity Of 2026 Transgender Amendment Act; Issues Notice To Centre And States
-https://www.verdictum.in/supreme-court/2026-transgender-amendment-act-issues-notice-1613333
-
-[Source Link](https://t.me/verdictumlegalupdates/26859)
 
 ---
 
