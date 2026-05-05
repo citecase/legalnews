@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-05T14:32:26+00:00*
+*Last Updated: 2026-05-05T16:02:55+00:00*
+
+---
+
+### 2026-05-05T16:02:55+00:00
+Junior Consultant (Law) Vacancy At Warehousing Development and Regulatory Authority (WDRA)
+https://www.verdictum.in/job-updates/warehousing-development-and-regulatory-authority-1613428
+
+[Source Link](https://t.me/verdictumlegalupdates/26902)
+
+---
+
+### 2026-05-05T15:32:33+00:00
+No Illegality In Substituting Courts With District Magistrate To Expedite Adoption Process: Bombay High Court Dismisses Plea Challenging Constitutional Validity Of 2021 Amendment To Juvenile Justice Act
+https://www.verdictum.in/bombay-high-court/nisha-pradeep-pandya-v-union-of-india-ors-2026bhc-os11417-db-jj-act-1613431
+
+[Source Link](https://t.me/verdictumlegalupdates/26901)
+
+---
+
+### 2026-05-05T15:02:52+00:00
+Departure From Natural Justice Principle An Exception, Not The Rule While Exercising Power To Clear Illegal Encroachments U/S 405 AP Municipal Corporations Act : Andhra Pradesh High Court
+https://www.verdictum.in/andhra-pradesh-high-court/k-sreenivasulu-v-the-state-of-andhra-pradesh-3506-of-2026-illegal-encroachments-us-405-ap-municipal-corporation-act-1613425
+
+[Source Link](https://t.me/verdictumlegalupdates/26900)
 
 ---
 
@@ -137,30 +161,6 @@ Eligibility Of Candidate Is Assessed Based On Particulars & Documents Furnished 
 https://www.verdictum.in/supreme-court/rajasthan-public-service-commission-v-lavanshu-sankhla-ors-2026-insc-444-eligibility-candidate-1613394
 
 [Source Link](https://t.me/verdictumlegalupdates/26883)
-
----
-
-### 2026-05-05T06:02:41+00:00
-Writ Petition Not A Substitute For Statutory Remedies Under BNSS For FIR Registration Absent Imminent Threat To Life Or Liberty: Supreme Court
-https://www.verdictum.in/supreme-court/sujal-vishwas-attavar-anr-v-state-of-maharashtra-ors-2026-insc-442-1613392
-
-[Source Link](https://t.me/verdictumlegalupdates/26882)
-
----
-
-### 2026-05-05T05:32:40+00:00
-Writ Petition By Employee Challenging Dismissal Order Maintainable When It Is Highly Disproportionate: Kerala High Court
-https://www.verdictum.in/kerala-high-court/sudeep-kt-v-malabar-cancer-centre-2026ker21664-remedy-article-226-constitution-1613391
-
-[Source Link](https://t.me/verdictumlegalupdates/26881)
-
----
-
-### 2026-05-05T05:02:58+00:00
-Mere Participation In Seminars Can’t Constitute Offence Under UAPA: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/sheikh-juned-v-the-national-investigation-agency-nia-2026mphc-jbp33049-seminars-bail-uapa-1613385
-
-[Source Link](https://t.me/verdictumlegalupdates/26880)
 
 ---
 
