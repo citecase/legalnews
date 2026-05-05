@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-05T05:33:39+00:00*
+*Last Updated: 2026-05-05T12:36:19+00:00*
 
 ---
 
-### 2026-05-05T05:33:39+00:00
-Delhi High Court Weekly Round-Up: April 27 To May 03, 2026
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-weekly-round-up-april-27-to-may-03-2026-532886
+### 2026-05-05T12:36:19+00:00
+Calcutta High Court Weekly Round-Up: 27th April To 3rd May, 2026
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-weekly-round-up-27th-april-to-3rd-may-2026-532993
 
-[Read on Telegram](https://t.me/livelawindia/110276)
-
----
-### 2026-05-05T05:48:02+00:00
-Every Success Or Milestone Can't Be Elevated To 'Personality Right', Expanding Doctrine Would Lead To Absurdity: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-personality-rights-every-success-expanding-doctrine-absurdity-532876
-
-[Read on Telegram](https://t.me/livelawindia/110277)
+[Read on Telegram](https://t.me/livelawindia/110334)
 
 ---
-### 2026-05-05T05:48:32+00:00
-Claims Of Salary Withholding & Harassment Do Not Amuont To Defamation Without Reputational Harm: Calcutta HC
-https://www.livelaw.in/high-court/calcutta-high-court/claims-of-salary-withholding-harassment-do-not-amuont-to-defamation-without-reputational-harm-calcutta-hc-532891
+### 2026-05-05T12:47:19+00:00
+Even If Inquiry Is Vitated, Punishment Can Stand If Misconduct Is Independently Established: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-disciplinary-authority-role-of-inquiry-officer-532980
 
-[Read on Telegram](https://t.me/livelawindia/110278)
-
----
-### 2026-05-05T06:02:52+00:00
-Karnataka HC Rejects Transport Corporation's Plea Against ₹1.1 Crore Accident Compensation, Says Can't Blame Deceased After Disciplining Driver
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-kkrtc-appeal-contradictory-stands-bus-accident-death-532885
-
-[Read on Telegram](https://t.me/livelawindia/110279)
+[Read on Telegram](https://t.me/livelawindia/110335)
 
 ---
-### 2026-05-05T06:10:12+00:00
-Survival Of 'Right To Sue' On Legal Representatives Of Deceased Litigant : Supreme Court Explains Principles
-https://www.livelaw.in/top-stories/survival-of-right-to-sue-on-legal-representatives-of-deceased-litigant-supreme-court-explains-principles-532896
+### 2026-05-05T13:03:09+00:00
+Punjab & Haryana High Court Weekly Round-Up: April 27 - May 03
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-weekly-round-up-april-27-may-02-532964
 
-[Read on Telegram](https://t.me/livelawindia/110280)
-
----
-### 2026-05-05T06:18:12+00:00
-Assam Service Rules | Officer Voluntarily Resigning Without Taking Another Govt Appointment Barred From Claiming Pension: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-voluntary-resignation-not-taking-up-govt-job-leads-forfeiture-past-service-pension-gratuity-denied-532887
-
-[Read on Telegram](https://t.me/livelawindia/110281)
+[Read on Telegram](https://t.me/livelawindia/110336)
 
 ---
-### 2026-05-05T06:28:52+00:00
-'Fence Sitters' Can't Be Permitted To Raise Seniority Disputes After Third Party Rights Are Crystallised : Supreme Court
-https://www.livelaw.in/supreme-court/fence-sitters-cant-be-permitted-to-raise-seniority-disputes-after-third-party-rights-are-crystallised-supreme-court-532899
+### 2026-05-05T13:25:49+00:00
+NEET- PG : Supreme Court Seeks Institutional Mechanism To Address Recurring NEET-PG Cut-Off Issues
+https://www.livelaw.in/top-stories/neet-pg-supreme-court-seeks-institutional-mechanism-to-address-recurring-neet-pg-cut-off-issues-533000
 
-[Read on Telegram](https://t.me/livelawindia/110282)
-
----
-### 2026-05-05T06:30:12+00:00
-2026 LiveLaw (SC) 457  | T. GNANAVEL VERSUS R. SASIPRIYA AND OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-457-t-gnanavel-versus-r-sasipriya-and-others-532900
-
-[Read on Telegram](https://t.me/livelawindia/110283)
+[Read on Telegram](https://t.me/livelawindia/110337)
 
 ---
-### 2026-05-05T06:32:13+00:00
-Dental Student Suicide: Kerala High Court Issues Notice On College HOD's Appeal For Anticipatory Bail In Abetment FIR
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-dental-student-suicide-nithin-raj-dr-ram-532898
+### 2026-05-05T13:32:29+00:00
+'Prima Facie Adopted Delay Tactics': Gujarat High Court Refuses To Suspend Narayan Sai's Life Sentence In Rape Case
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-narayan-sai-suspension-of-sentence-rape-case-533001
 
-[Read on Telegram](https://t.me/livelawindia/110284)
-
----
-### 2026-05-05T06:41:22+00:00
-Assistant Legal Advisor Vacancy At Indian Council Of Agricultural Research
-https://www.livelaw.in/job-updates/assistant-legal-advisor-vacancy-at-indian-council-of-agricultural-research-532901
-
-[Read on Telegram](https://t.me/livelawindia/110285)
+[Read on Telegram](https://t.me/livelawindia/110338)
 
 ---
-### 2026-05-05T06:47:42+00:00
-Mere Registration Of Will Doesn't Prove Genuineness, Beneficiary Must Dispel Suspicious Circumstances Through Evidence: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-will-registration-genuineness-beneficiary-dispel-suscipious-circumstances-532890
+### 2026-05-05T13:47:50+00:00
+Anticipatory Bail Not Maintainable After Grant Of Regular Bail, Even If Graver Offence Added: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-anticipatory-bail-not-maintainable-after-grant-of-regular-bail-even-if-graver-offence-added-533003
 
-[Read on Telegram](https://t.me/livelawindia/110286)
-
----
-### 2026-05-05T07:02:42+00:00
-Delhi High Court Allows Jailed MP Engineer Rashid To Visit Ailing Father At AIIMS Under Police Escort
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-allows-jailed-mp-engineer-rashid-to-visit-ailing-father-at-aiims-under-police-escort-532904
-
-[Read on Telegram](https://t.me/livelawindia/110287)
+[Read on Telegram](https://t.me/livelawindia/110339)
 
 ---
-### 2026-05-05T07:18:05+00:00
-Delhi High Court Restrains YouTubers From Publishing 'Disparaging' Content Against AI  Smartphones And Its Founder
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-restrains-youtubers-from-publishing-disparaging-content-against-ai-smartphones-and-its-founder-532872
+### 2026-05-05T14:09:20+00:00
+Union Cabinet Accepts Proposal To Increase Strength Of Supreme Court Judges To 38
+https://www.livelaw.in/top-stories/union-cabinet-accepts-proposal-to-increase-strength-of-supreme-court-judges-to-38-533006
 
-[Read on Telegram](https://t.me/livelawindia/110288)
-
----
-### 2026-05-05T07:32:29+00:00
-Sending Abortion Pills Through Courier Not Offence U/S 312 IPC Unless Forcefully Given To Cause Miscarriage: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-quashes-fir-ipc-abortion-pills-offence-532902
-
-[Read on Telegram](https://t.me/livelawindia/110289)
+[Read on Telegram](https://t.me/livelawindia/110340)
 
 ---
-### 2026-05-05T07:38:09+00:00
-'Prima Facie Motivated': Karnataka High Court Stays FIR Against BJP's Sringeri MLA DN Jeevaraja In Postal Ballot Tampering Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-fir-bjp-mla-dn-jeevaraja-postal-ballot-tampering-case-532912
+### 2026-05-05T14:11:40+00:00
+Delhi High Court Permits 100% Visually Impaired Woman To Live With Partner Despite Father's Objection, Says Adult Free To Decide Residence
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-permits-100-visually-impaired-woman-to-live-with-partner-despite-fathers-objection-says-adult-free-to-decide-residence-533007
 
-[Read on Telegram](https://t.me/livelawindia/110290)
-
----
-### 2026-05-05T07:47:59+00:00
-Non-Disclosure Of Exact Occurrence Date In Earlier Statements Not Necessarily Fatal If POCSO Victim Clarifies In Deposition: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-pocso-victim-occurrence-date-discrepancy-532907
-
-[Read on Telegram](https://t.me/livelawindia/110291)
+[Read on Telegram](https://t.me/livelawindia/110341)
 
 ---
-### 2026-05-05T07:58:33+00:00
-'What Good Came Out Of Your PIL?' : Supreme Court Questions NGO Which Filed Plea For Sabarimala Women Entry
-https://www.livelaw.in/top-stories/what-good-came-out-of-your-pil-supreme-court-questions-ngo-which-filed-plea-for-sabarimala-women-entry-532914
+### 2026-05-05T14:18:00+00:00
+Complete Exclusion Of Mother From Child's Life Needs Compelling Circumstances: Karnataka High Court Quashes Blanket Denial Of Visitation
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-blanket-injunction-custody-battle-533009
 
-[Read on Telegram](https://t.me/livelawindia/110292)
-
----
-### 2026-05-05T08:01:53+00:00
-Constitutional Functionaries Like MPs, Judges, Ministers Entitled To 'Hon'ble' Honorific, Civil Servants Are Not: Allahabad HC
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-constitutional-functionaries-mps-judges-ministers-honble-honorific-civil-servants-not-532915
-
-[Read on Telegram](https://t.me/livelawindia/110293)
+[Read on Telegram](https://t.me/livelawindia/110342)
 
 ---
-### 2026-05-05T08:11:43+00:00
-Police Failure To Suo Motu Register FIR Against Hate Speech Not Automatically Contempt : Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-hate-speech-batch-non-registration-of-suo-motu-fir-no-contempt-if-complaint-not-made-to-police-failure-to-act-necessary-532917
+### 2026-05-05T14:32:20+00:00
+Call Logs Alone Cannot Prove Criminal Conspiracy Under NDPS Act In Absence Of Voice Recording Or Transcripts: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-call-logs-alone-cannot-prove-criminal-conspiracy-under-ndps-act-in-absence-of-voice-recording-or-transcripts-533008
 
-[Read on Telegram](https://t.me/livelawindia/110294)
+[Read on Telegram](https://t.me/livelawindia/110343)
 
 ---
-### 2026-05-05T08:18:03+00:00
-Deceased Railway Employee's Widow Entitled To Challenge Penalty Imposed On Him To Remove Stigma: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-widow-can-challenge-penalty-imposed-against-deceased-railway-employee-532916
+### 2026-05-05T14:33:00+00:00
+J&K Private Universities Act, 2026: Expansion Or Transformation?
+https://www.livelaw.in/articles/jammu-kashmir-private-universities-act2026-532953
 
-[Read on Telegram](https://t.me/livelawindia/110295)
+[Read on Telegram](https://t.me/livelawindia/110344)
+
+---
+### 2026-05-05T14:48:00+00:00
+MP High Court Issues Notice On PIL Seeking Regulation Of E-Rickshaws, Restriction On Their Plying On Highways
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-e-rickshaw-regulation-public-interest-litigation-533015
+
+[Read on Telegram](https://t.me/livelawindia/110345)
+
+---
+### 2026-05-05T15:02:30+00:00
+Illegal Bangladeshi Hawkers Will Be Removed, Need Time To Verify Identity: BMC Tells Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-bangladeshi-nationals-hawking-mumbai-bmc-533017
+
+[Read on Telegram](https://t.me/livelawindia/110346)
+
+---
+### 2026-05-05T15:06:50+00:00
+Use Of AI-Generated Fake Judgments : Supreme Court Urges BCI To Form Expert Panel To Examine Issue
+https://www.livelaw.in/top-stories/use-of-ai-generated-fake-judgments-supreme-court-urges-bci-to-form-expert-panel-to-examine-issue-533023
+
+[Read on Telegram](https://t.me/livelawindia/110347)
+
+---
+### 2026-05-05T15:07:00+00:00
+Allahabad High Court Allows Withdrawal Of 2012 Riot Case Against Sitting BJP MLA RC Yadav
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-public-prosecutor-good-faith-allows-withdrawal-2012-riot-bjp-mla-rc-yadav-533024
+
+[Read on Telegram](https://t.me/livelawindia/110348)
+
+---
+### 2026-05-05T15:08:10+00:00
+'Permissions Obtained By Misrepresentation Are Void': Bombay High Court Upholds Revocation Of Building Approval
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-upholds-revocation-permissions-misrepresentation-533010
+
+[Read on Telegram](https://t.me/livelawindia/110349)
+
+---
+### 2026-05-05T15:17:31+00:00
+“Bihar Police's Circular On Girls Hostel Safety Lacks Consequences For Non-Compliance; Must Be Strictly Enforced”: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-pil-safety-female-students-circular-girls-hostel-533022
+
+[Read on Telegram](https://t.me/livelawindia/110350)
+
+---
+### 2026-05-05T15:17:51+00:00
+Industrial Dispute Deemed 'Pending' U/S Till 30 Days Post-Award; S.33(2)(B) Approval Mandatory: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-industrial-dispute-pending-sec203-id-act-approval-mandatory-dismissal-533011
+
+[Read on Telegram](https://t.me/livelawindia/110351)
+
+---
+### 2026-05-05T15:38:37+00:00
+Supreme Court Asks Sambhal Mosque Committee Factions To Resolve Dispute After 2 Petitions Filed Against Same HC Order
+https://www.livelaw.in/top-stories/supreme-court-asks-sambhal-mosque-committee-factions-to-resolve-dispute-after-2-petitions-filed-against-same-hc-order-533025
+
+[Read on Telegram](https://t.me/livelawindia/110352)
+
+---
+### 2026-05-05T17:07:47+00:00
+Supreme Court Daily Round-Up : May 5, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-5-2026-533026
+
+[Read on Telegram](https://t.me/livelawindia/110353)
 
 ---
