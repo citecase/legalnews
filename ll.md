@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-04T13:10:30+00:00*
+*Last Updated: 2026-05-04T14:03:24+00:00*
 
 ---
 
-### 2026-05-04T13:10:30+00:00
-2026 LiveLaw (SC) 452 | MAHESH CHAND VERSUS STATE OF UTTAR PRADESH & ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-452-mahesh-chand-versus-state-of-uttar-pradesh-anr-532807
-
-[Read on Telegram](https://t.me/livelawindia/110229)
-
----
-### 2026-05-04T13:14:50+00:00
-'5-7 Yrs Punishment No Deterrant' : Supreme Court Calls For Harsher Punishment In Acid Attack Cases & Making Illegal Sellers Liable
-https://www.livelaw.in/top-stories/supreme-court-shaheen-malik-acid-attack-open-sale-of-acid-sellers-vicarious-liability-accused-property-attachment-532808
-
-[Read on Telegram](https://t.me/livelawindia/110230)
-
----
-### 2026-05-04T13:32:54+00:00
-Illegal Mining | Police Can Probe Theft Under IPC, But MMDR Offences Require Authorised Complaint: HP High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-mmdr-offences-require-authorised-complaint-illegal-mining-532669
-
-[Read on Telegram](https://t.me/livelawindia/110231)
-
----
 ### 2026-05-04T14:03:24+00:00
 Authority Can't Reclaim Recreational Land In Housing Scheme By Citing Expiry Of Lease: Kerala High Court
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-recreation-eviction-housing-scheme-532772
@@ -142,5 +121,26 @@ Delhi High Court Flags 'Deeply Disturbing' Coverage Of PMLA Bail Hearing By Indi
 https://www.livelaw.in/high-court/delhi-high-court/indian-express-money-laundering-bail-hearing-coverage-deeply-disturbing-532850
 
 [Read on Telegram](https://t.me/livelawindia/110248)
+
+---
+### 2026-05-05T01:57:23+00:00
+Supreme Court Issues Notice On CBI Challenge To HC's Clean Chit To Bhupinder Hooda & AJL In Panchkula Land Allotment Case
+https://www.livelaw.in/top-stories/supreme-court-issues-notice-on-cbi-challenge-to-hcs-clean-chit-to-bhupinder-hooda-ajl-in-panchkula-land-allotment-case-532851
+
+[Read on Telegram](https://t.me/livelawindia/110249)
+
+---
+### 2026-05-05T02:32:53+00:00
+Dhurandhar Script Row: Bombay High Court Closes Aditya Dhar's Defamation Suit After Santosh Kumar Tenders Apology
+https://www.livelaw.in/high-court/bombay-high-court/aditya-dhar-defamation-dhurandhar-script-plagiarism-santosh-kumar-tenders-apology-532848
+
+[Read on Telegram](https://t.me/livelawindia/110250)
+
+---
+### 2026-05-05T03:18:53+00:00
+Young Professional Vacancy At Controller General Of Defence Accounts
+https://www.livelaw.in/job-updates/young-professional-vacancy-at-controller-general-of-defence-accounts-532852
+
+[Read on Telegram](https://t.me/livelawindia/110251)
 
 ---
