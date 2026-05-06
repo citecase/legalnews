@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-06T08:33:18+00:00*
+*Last Updated: 2026-05-06T15:03:00+00:00*
+
+---
+
+### 2026-05-06T15:03:00+00:00
+Will Behead Or Be Beheaded For Mohammed: Allahabad High Court Grants Bail To Muslim Man In FIR Over Instagram Post
+https://www.verdictum.in/allahabad-high-court/2026ahc100731-nadeem-v-state-of-up-1613497
+
+[Source Link](https://t.me/verdictumlegalupdates/26919)
+
+---
+
+### 2026-05-06T14:33:19+00:00
+Minority Educational Institution’s Choice Of Principal Cannot Be Tested On Merits Or Rationality Once Candidate Is Chosen: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/the-chairman-v-state-of-madhya-pradesh-and-others-2026mphc-gwl13979-1613495
+
+[Source Link](https://t.me/verdictumlegalupdates/26918)
+
+---
+
+### 2026-05-06T14:02:17+00:00
+Opportunity Of Hearing Cannot Be Reduced To A Mere Ritual: Delhi High Court Quashes CACLB Decision Directing Inquiry Against Standard Chartered Bank
+https://www.verdictum.in/delhi-high-court/standard-chartered-bank-v-union-of-india-and-others-2026dhc3755-scb-1613494
+
+[Source Link](https://t.me/verdictumlegalupdates/26917)
+
+---
+
+### 2026-05-06T13:32:46+00:00
+Sub Registrar Can’t Insist On NOC From Embassy For Marrying Foreign National Under Special Marriage Act: Kerala High Court
+https://www.verdictum.in/kerala-high-court/a-v-state-of-kerala-2026ker33547-sub-registrar-noc-embassy-foreign-national-1613493
+
+[Source Link](https://t.me/verdictumlegalupdates/26916)
+
+---
+
+### 2026-05-06T13:03:04+00:00
+Supreme Court Sets Aside Default Bail Granted To Haldwani Riots Accused; Cites Factual Errors In High Court's Order
+https://www.verdictum.in/supreme-court/cancel-default-bail-haldwani-riots-accused-uttarakhand-high-court-1613492
+
+[Source Link](https://t.me/verdictumlegalupdates/26915)
+
+---
+
+### 2026-05-06T12:33:03+00:00
+Supreme Court Refuses Centre’s Request To Adjourn Pleas Against Election Commissioners’ Appointment Case
+https://www.verdictum.in/supreme-court/supreme-court-refuses-centres-request-to-adjourn-pleas-against-election-commissioners-appointment-case-1613488
+
+[Source Link](https://t.me/verdictumlegalupdates/26914)
+
+---
+
+### 2026-05-06T12:02:21+00:00
+Workman Can't Be Denied Reinstatement Once Dismissal Is Rendered Inoperative For Non-Compliance Of Section 33(2)(b) ID Act: Bombay High Court
+https://www.verdictum.in/bombay-high-court/santosh-chandrkant-potdar-v-bajaj-auto-limited-2026bhc-as20592-id-act-1613482
+
+[Source Link](https://t.me/verdictumlegalupdates/26913)
+
+---
+
+### 2026-05-06T11:13:19+00:00
+Throwing Chappals At Devotees Desecration Of Secular Fraternity: Madras High Court Orders Police Security For Lord Kallazhagar Procession
+https://www.verdictum.in/madras-high-court/psundaravadivel-v-the-district-collector-devotees-security-lord-kallazhagar-procession-1613481
+
+[Source Link](https://t.me/verdictumlegalupdates/26912)
+
+---
+
+### 2026-05-06T10:12:22+00:00
+Public Sector Banks Cannot Seek Curtailment Of Right To Travel Abroad Through Routine Use Of LOCs: Delhi High Court
+https://www.verdictum.in/delhi-high-court/ritu-singal-v-bureau-of-immigration-ors-and-connected-matters-2026dhc3806-1613478
+
+[Source Link](https://t.me/verdictumlegalupdates/26911)
+
+---
+
+### 2026-05-06T09:22:00+00:00
+Criminal Case A 'Counterblast' To Debt Recovery: Bombay High Court Quashes FIR By Lilavati Trust Against HDFC Bank CEO
+https://www.verdictum.in/bombay-high-court/sashidhar-jagdishan-v-state-of-maharashtra-2026bhc-as21240-db-1613477
+
+[Source Link](https://t.me/verdictumlegalupdates/26910)
 
 ---
 
@@ -81,86 +161,6 @@ Departure From Natural Justice Principle An Exception, Not The Rule While Exerci
 https://www.verdictum.in/andhra-pradesh-high-court/k-sreenivasulu-v-the-state-of-andhra-pradesh-3506-of-2026-illegal-encroachments-us-405-ap-municipal-corporation-act-1613425
 
 [Source Link](https://t.me/verdictumlegalupdates/26900)
-
----
-
-### 2026-05-05T14:32:26+00:00
-Trial Court Cannot Restrain Spouse On Assumed "Psychopathic Behaviour": Telangana High Court Sets Aside “Unprecedented” Injunction Against Wife
-https://www.verdictum.in/telangana-high-court/x-v-y-cma-no-494-of-2025-sets-aside-unprecedented-injunction-against-wife-1613427
-
-[Source Link](https://t.me/verdictumlegalupdates/26899)
-
----
-
-### 2026-05-05T14:03:05+00:00
-When To Use Honorific ‘Hon'ble’- Allahabad High Court Answers
-https://www.verdictum.in/allahabad-high-court/harshit-sharma-v-state-of-up-honorific-honble-1613435
-
-[Source Link](https://t.me/verdictumlegalupdates/26898)
-
----
-
-### 2026-05-05T13:32:23+00:00
-Naushad Khan Should Have Attempted To Put His House In Order First: Apex Court To Sabarimala PIL Petitioner Organisation's President
-https://www.verdictum.in/supreme-court/sabarimala-indian-young-lawyers-association-president-advocate-naushad-ahmed-khan-1613434
-
-[Source Link](https://t.me/verdictumlegalupdates/26897)
-
----
-
-### 2026-05-05T13:02:52+00:00
-Accused Officer Belongs To Same Department Conducting Investigation: Telangana High Court Transfers Cop’s Suicide Case To CBCID
-https://www.verdictum.in/telangana-high-court/pinninti-rachana-reddy-v-the-state-of-telangana-accused-officer-cop-suicide-cbcid-1613424
-
-[Source Link](https://t.me/verdictumlegalupdates/26896)
-
----
-
-### 2026-05-05T12:32:30+00:00
-Revenue Officer Discharging Quasi-Judicial Functions Protected Under Judges' Protection Act: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/virendra-kumar-katare-v-general-administration-department-ors-2026mphc-ind12617-1613423
-
-[Source Link](https://t.me/verdictumlegalupdates/26895)
-
----
-
-### 2026-05-05T12:03:09+00:00
-"Fence-Sitters" Barred From Disputing Seniority, Consequential Promotions & Validity Of Order Once Matter Concluded: Supreme Court
-https://www.verdictum.in/supreme-court/state-of-tamil-nadu-v-r-sasipriya-2026-insc-446-valid-service-rule-relaxations-protect-settled-seniority-1613419
-
-[Source Link](https://t.me/verdictumlegalupdates/26894)
-
----
-
-### 2026-05-05T11:32:07+00:00
-It Should Have Been Thrown Into Dustbin: Apex Court Asks How Sabarimala PIL Was Entertained Based On News Report About Sexual Misconduct By Head Priest
-https://www.verdictum.in/supreme-court/sabarimala-indian-young-lawyers-association-9-judge-bench-reference-1613420
-
-[Source Link](https://t.me/verdictumlegalupdates/26893)
-
----
-
-### 2026-05-05T11:03:06+00:00
-Complainant Under MRTU & PULP Act Has To Prove Employer-Employee Relationship If Management Denies Same: Supreme Court
-https://www.verdictum.in/supreme-court/bonatrans-india-pvt-ltd-v-bonatrans-employees-union-2026-insc-445-mrtu-pulp-act-1613418
-
-[Source Link](https://t.me/verdictumlegalupdates/26892)
-
----
-
-### 2026-05-05T10:32:24+00:00
-Upon Death Of Alleged Medically Negligent Doctor, His Legal Heirs Can Be Impleaded: Supreme Court Clarifies Survival Of Claims Under Consumer Protection Act
-https://www.verdictum.in/supreme-court/kumud-lall-v-suresh-chandra-roy-dead-through-lrs-2026-insc-443-death-of-medically-negligent-doctor-1613417
-
-[Source Link](https://t.me/verdictumlegalupdates/26891)
-
----
-
-### 2026-05-05T10:03:03+00:00
-Supreme Court Asks NLUs To Undertake Detailed Assessment Of Implementation Of RPwD Act Across All States & UTs Under "Project Ability Empowerment"
-https://www.verdictum.in/supreme-court/justice-sunanda-bhandare-foundation-v-union-of-india-2026-insc-441-nlus-rpwd-act-1613416
-
-[Source Link](https://t.me/verdictumlegalupdates/26890)
 
 ---
 
