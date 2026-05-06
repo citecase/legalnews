@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-06T06:02:59+00:00*
+*Last Updated: 2026-05-06T09:03:37+00:00*
 
 ---
 
-### 2026-05-06T06:02:59+00:00
-'Child Last Seen With Accused, Found Dead Within 10 Hours': Patna High Court Upholds Rape-Murder Conviction
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-upholds-conviction-rapemurder-case-recovery-body-shifts-burden-accused-533018
+### 2026-05-06T09:03:37+00:00
+How Should Courts Try Proclaimed Offenders? Allahabad High Court Explains 'Trial In Absentia' Procedure U/S 356 BNSS
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-proclaimed-offenders-trial-in-absentia-procedure-356-bnss-533099
 
-[Read on Telegram](https://t.me/livelawindia/110377)
-
----
-### 2026-05-06T06:17:43+00:00
-Reference To Prior Events In State, Allegations Not Integral To Relief Sought Can't Confer Territorial Jurisdiction: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-prior-proceedings-territorial-jurisdiction-533059
-
-[Read on Telegram](https://t.me/livelawindia/110378)
+[Read on Telegram](https://t.me/livelawindia/110400)
 
 ---
-### 2026-05-06T06:18:43+00:00
-NDPS Act | Supreme Court Grants Bail To Man Accused Of Possessing 22 KG Ganja On Sole Ground Of Trial Delay
-https://www.livelaw.in/supreme-court/ndps-act-supreme-court-grants-bail-to-man-accused-of-possessing-22-kg-ganja-on-sole-ground-of-trial-delay-533065
+### 2026-05-06T09:05:57+00:00
+SCBA Expresses Shock Over AP HC Judge Ordering Police Custody Of Young Advocate, Seeks CJI's Intervention
+https://www.livelaw.in/top-stories/scba-expresses-shock-over-ap-hc-judge-ordering-police-custody-of-young-advocate-seeks-cjis-intervention-533100
 
-[Read on Telegram](https://t.me/livelawindia/110379)
-
----
-### 2026-05-06T06:20:03+00:00
-2026 LiveLaw (SC) 462 | RAJADURAI VERSUS THE STATE OF TAMIL NADU
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-462-rajadurai-versus-the-state-of-tamil-nadu-533066
-
-[Read on Telegram](https://t.me/livelawindia/110380)
+[Read on Telegram](https://t.me/livelawindia/110401)
 
 ---
-### 2026-05-06T06:32:33+00:00
-BCI Seeks Withdrawal Of Judicial Work, Transfer Of AP High Court Judge Who Threatened Young Advocate With Police Custody
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/bci-seeks-withdrawal-of-judicial-work-transfer-of-ap-high-court-judge-who-threatened-young-advocate-with-police-custody-533070
+### 2026-05-06T09:07:37+00:00
+Challenge To Election Commissioners' Law : Live Updates From Supreme Court
+https://www.livelaw.in/top-stories/challenge-to-election-commissioners-law-live-updates-from-supreme-court-533102
 
-[Read on Telegram](https://t.me/livelawindia/110381)
-
----
-### 2026-05-06T06:32:53+00:00
-No Intra-Court Appeal Against Contempt Court's Refusal To Initiate Proceedings: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-intracourt-appeal-contempt-court-order-533061
-
-[Read on Telegram](https://t.me/livelawindia/110382)
+[Read on Telegram](https://t.me/livelawindia/110402)
 
 ---
-### 2026-05-06T06:40:53+00:00
-Allahabad HC Grants Anticipatory Bail To Schoolgirl Accused Of Forcing Minor Student To Wear Burka, Convert Religion
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-grants-anticipatory-bail-schoolgirl-compel-minor-burka-convert-religion-533073
+### 2026-05-06T09:42:40+00:00
+Delhi High Court Quashes Contract Labour Board's Action On Standard Chartered Bank, Cites Failure To Decide Jurisdictional Objection
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-quashes-contract-labour-boards-action-on-standard-chartered-bank-cites-failure-to-decide-jurisdictional-objection-533069
 
-[Read on Telegram](https://t.me/livelawindia/110383)
-
----
-### 2026-05-06T06:53:32+00:00
-Transfer Of Adoption Powers To District Magistrates Valid: Bombay High Court Upholds 2021 Juvenile Justice Act Amendment
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-transferring-power-issue-adoption-orders-533014
-
-[Read on Telegram](https://t.me/livelawindia/110384)
+[Read on Telegram](https://t.me/livelawindia/110403)
 
 ---
-### 2026-05-06T07:02:34+00:00
-“Earning Capacity Cannot Be Ignored At Ad-Interim Stage”: Calcutta HC Sets Aside Maintenance Granted To Wife Without Financial Disclosure
-https://www.livelaw.in/high-court/calcutta-high-court/earning-capacity-cannot-be-ignored-at-ad-interim-stage-calcutta-hc-sets-aside-maintenance-granted-to-wife-without-financial-disclosure-533056
+### 2026-05-06T09:44:20+00:00
+Delhi High Court Denies Bail To 'Faith Healer' Accused Of Sexually Assaulting Minor Under Pretext Of Removing 'Jinn'
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-denies-bail-to-faith-healer-accused-of-sexually-assaulting-minor-under-pretext-of-removing-jinn-533111
 
-[Read on Telegram](https://t.me/livelawindia/110385)
-
----
-### 2026-05-06T07:16:14+00:00
-Maharashtra National Law University Nagpur Organises Two-Day International Seminar On Women & Child Rights
-https://www.livelaw.in/lawschool/seminars/maharashtra-national-law-university-nagpur-organises-two-day-international-seminar-on-women-child-rights-533076
-
-[Read on Telegram](https://t.me/livelawindia/110386)
+[Read on Telegram](https://t.me/livelawindia/110404)
 
 ---
-### 2026-05-06T07:26:54+00:00
-Rajasthan High Court Permits Passport Renewal Despite 23 Pending Criminal Cases, Cites Fundamental Right To Travel Abroad
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-denying-right-passport-renewal-article21-533078
+### 2026-05-06T10:21:31+00:00
+EPF Act | Employees Of Exempted Establishments Entitled To Higher Pension If PF Contributions Were On Actual Wages: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-employees-exempted-establishments-higher-pension-533114
 
-[Read on Telegram](https://t.me/livelawindia/110387)
-
----
-### 2026-05-06T07:42:54+00:00
-'This Matter More Important' : Supreme Court Refuses Union's Adjournment Request In Plea Challenging Election Commissioners' Law
-https://www.livelaw.in/top-stories/this-matter-more-important-supreme-court-refuses-unions-adjournment-request-in-plea-challenging-election-commissioners-law-533084
-
-[Read on Telegram](https://t.me/livelawindia/110388)
+[Read on Telegram](https://t.me/livelawindia/110405)
 
 ---
-### 2026-05-06T07:44:14+00:00
-Savukku Shankar Moves Madras High Court For Bail In Attempt To Murder Case, Alleges False Implication By TN Police
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-savukku-shankar-plea-bail-attempt-to-murder-case-533085
+### 2026-05-06T10:44:11+00:00
+Constitution Didn't Intend To Give Religious Denomination Higher Rights Than Believer : Darius Khambata In Sabarimala Reference
+https://www.livelaw.in/top-stories/constitution-didnt-intend-to-give-religious-denomination-higher-right-than-believer-darius-khambata-in-sabarimala-reference-533117
 
-[Read on Telegram](https://t.me/livelawindia/110389)
-
----
-### 2026-05-06T08:02:24+00:00
-Supreme Court Cancels Default Bail Of 2 Accused In Haldwani Riots UAPA Case, Disapproves HC's Adverse Comments On Probe
-https://www.livelaw.in/top-stories/supreme-court-uttarakhand-haldwani-riots-default-bail-of-accused-cancelled-not-prompt-in-challenging-extension-of-time-for-investigation-533086
-
-[Read on Telegram](https://t.me/livelawindia/110390)
+[Read on Telegram](https://t.me/livelawindia/110406)
 
 ---
-### 2026-05-06T08:06:04+00:00
-TLH, Advocates & Solicitors Strengthens Corporate Practice With Appointment Of Partner Swapnil Phadnis
-https://www.livelaw.in/law-firms/professional-announcement/tlh-advocates-solicitors-strengthens-corporate-practice-with-appointment-of-partner-swapnil-phadnis-533087
+### 2026-05-06T10:44:51+00:00
+Even If Recognised In Two States, Migrants Can't Carry Scheduled Caste Status Across States: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-scheduled-caste-status-migrating-across-states-533118
 
-[Read on Telegram](https://t.me/livelawindia/110391)
-
----
-### 2026-05-06T08:12:24+00:00
-Gauhati High Court Stays Felling Of 100-Year-Old Trees In Heart Of Aizawl City
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-issue-cutting-old-big-trees-vacated-assam-rifle-land-533088
-
-[Read on Telegram](https://t.me/livelawindia/110392)
+[Read on Telegram](https://t.me/livelawindia/110407)
 
 ---
-### 2026-05-06T08:17:44+00:00
-Where Witness Version Forms Basis Of FIR, It Becomes Relevant Fact U/S 11 Evidence Act: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-witness-version-forms-fir-entire-prosecution-section11-evidence-act-533021
+### 2026-05-06T10:57:51+00:00
+Calcutta High Court Acquits Husband In 30-Year-Old Dowry Death Case, Finds No Proof Of Abetment To Suicide Or Cruelty
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-acquits-husband-in-30-year-old-dowry-death-case-finds-no-proof-of-abetment-to-suicide-or-cruelty-533060
 
-[Read on Telegram](https://t.me/livelawindia/110393)
-
----
-### 2026-05-06T08:20:04+00:00
-Mere Exercise Of Supervisory Role Over Temple & Appointment Of Pujaris Won't Confer Title Upon It : Supreme Court
-https://www.livelaw.in/supreme-court/mere-exercise-supervisory-role-over-temple-appointment-of-pujaris-wont-confer-title-upon-it-supreme-court-533089
-
-[Read on Telegram](https://t.me/livelawindia/110394)
+[Read on Telegram](https://t.me/livelawindia/110408)
 
 ---
-### 2026-05-06T08:23:24+00:00
-2026 LiveLaw (SC) 463 | KISHAN CHAND (DEAD) THROUGH LRS. VERSUS GAUTAM GAUR HITKARAK SABHA, KOTA & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-463-kishan-chand-dead-through-lrs-versus-gautam-gaur-hitkarak-sabha-kota-ors-533090
+### 2026-05-06T11:16:21+00:00
+S.361 IPC | Merely Accompanying Minor Who Left Home Voluntarily Not Kidnapping From Lawful Guardianship: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-indian-penal-code-essential-ingredients-of-kidnapping-section-361-533123
 
-[Read on Telegram](https://t.me/livelawindia/110395)
+[Read on Telegram](https://t.me/livelawindia/110409)
 
 ---
-### 2026-05-06T08:29:04+00:00
-Breaking | Humayun Kabir's AJUP Moves Calcutta High Court Over Alleged Large-Scale Post-Poll Violence In Murshidabad
-https://www.livelaw.in/high-court/calcutta-high-court/breaking-humayun-kabirs-ajup-approaches-calcutta-high-court-over-alleged-large-scale-post-poll-violence-in-murshidabad-533092
+### 2026-05-06T11:17:01+00:00
+Ensure Persons With Disabilities Scoring Above General Cut-Off Are Considered In Unreserved Vacancies : Supreme Court To Centre, States
+https://www.livelaw.in/top-stories/supreme-court-union-clarifies-persons-with-benchmark-disability-scoring-more-than-general-cutoff-on-own-merit-entitled-to-upward-movement-533124
 
-[Read on Telegram](https://t.me/livelawindia/110396)
+[Read on Telegram](https://t.me/livelawindia/110410)
+
+---
+### 2026-05-06T11:18:22+00:00
+2026 LiveLaw (SC) 464 | JUSTICE SUNANDA BHANDARE FOUNDATION Versus UNION OF INDIA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-464-justice-sunanda-bhandare-foundation-versus-union-of-india-533125
+
+[Read on Telegram](https://t.me/livelawindia/110411)
+
+---
+### 2026-05-06T11:26:01+00:00
+MP Bar Council Election : Supreme Court Gives Time To Advocates Excluded From Voters' List To Rectify Defects
+https://www.livelaw.in/top-stories/supreme-court-right-to-vote-madhya-pradesh-bar-council-elections-excluded-advocates-to-clear-deficiencies-revised-list-to-be-issued-533126
+
+[Read on Telegram](https://t.me/livelawindia/110412)
+
+---
+### 2026-05-06T11:53:05+00:00
+Delhi High Court Rejects Plea To Increase Retirement Age Of BRO Medical Officers From 60 To 65 Years
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-rejects-plea-to-increase-retirement-age-of-bro-medical-officers-to-65-533068
+
+[Read on Telegram](https://t.me/livelawindia/110413)
+
+---
+### 2026-05-06T12:24:35+00:00
+Madras High Court Directs Registry To List Plea Seeking FIR, PMLA Probe Against TVK Chief Vijay Over Alleged Suppression Of Income
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-registry-list-plea-tvk-vijay-probe-suppression-of-income-533138
+
+[Read on Telegram](https://t.me/livelawindia/110414)
+
+---
+### 2026-05-06T13:15:16+00:00
+Madras High Court Issues Notice On Plea Challenging Rajiv Gandhi Assassination Convict Perarivalan's Enrolment As Advocate
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-perarivalan-enrolment-challenged-533141
+
+[Read on Telegram](https://t.me/livelawindia/110415)
+
+---
+### 2026-05-06T13:20:46+00:00
+Present Law Ensures 'Prime Minister's Man' Is Appointed As Chief Election Commissioner : Petitioners Challenging CEC Act Tell Supreme Court
+https://www.livelaw.in/top-stories/present-law-ensures-prime-ministers-man-is-appointed-as-chief-election-commissioner-petitioners-challenging-cec-act-tell-supreme-court-533142
+
+[Read on Telegram](https://t.me/livelawindia/110416)
+
+---
+### 2026-05-06T13:27:26+00:00
+Supreme Court Empowers District Collectors To Enforce Solid Waste Management Rules 2026, Issues Directives
+https://www.livelaw.in/supreme-court/supreme-court-empowers-district-collectors-to-enforce-solid-waste-management-rules-2026-issues-directives-533143
+
+[Read on Telegram](https://t.me/livelawindia/110417)
+
+---
+### 2026-05-06T13:28:26+00:00
+2026 LiveLaw (SC) 465 | BHOPAL MUNICIPAL CORPORATION VERSUS DR SUBHASH C. PANDEY & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-465-bhopal-municipal-corporation-versus-dr-subhash-c-pandey-ors-533144
+
+[Read on Telegram](https://t.me/livelawindia/110418)
+
+---
+### 2026-05-06T13:37:46+00:00
+Maternal Grandmother Taking Care Of Child Can Maintain Minor's Plea Under Sec 125 CrPC: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-maternal-grandmother-taking-care-of-child-can-maintain-minors-plea-under-sec-125-crpc-533145
+
+[Read on Telegram](https://t.me/livelawindia/110419)
 
 ---
