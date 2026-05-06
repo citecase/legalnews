@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-05T12:36:19+00:00*
+*Last Updated: 2026-05-05T13:03:09+00:00*
 
 ---
 
-### 2026-05-05T12:36:19+00:00
-Calcutta High Court Weekly Round-Up: 27th April To 3rd May, 2026
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-weekly-round-up-27th-april-to-3rd-may-2026-532993
-
-[Read on Telegram](https://t.me/livelawindia/110334)
-
----
-### 2026-05-05T12:47:19+00:00
-Even If Inquiry Is Vitated, Punishment Can Stand If Misconduct Is Independently Established: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-disciplinary-authority-role-of-inquiry-officer-532980
-
-[Read on Telegram](https://t.me/livelawindia/110335)
-
----
 ### 2026-05-05T13:03:09+00:00
 Punjab & Haryana High Court Weekly Round-Up: April 27 - May 03
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-weekly-round-up-april-27-may-02-532964
@@ -142,5 +128,19 @@ Supreme Court Daily Round-Up : May 5, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-5-2026-533026
 
 [Read on Telegram](https://t.me/livelawindia/110353)
+
+---
+### 2026-05-06T03:32:30+00:00
+Madras High Court Quashes YouTuber Varaaki's Preventive Detention, Imposes ₹50K Costs On State For 'Targeting' Him
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-varaaki-preventive-detention-set-aside-state-targeted-533019
+
+[Read on Telegram](https://t.me/livelawindia/110354)
+
+---
+### 2026-05-06T03:33:10+00:00
+Supreme Court Quarterly Digest 2026 - Constitutional Law
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-quarterly-digest-constitutional-law-2026-532735
+
+[Read on Telegram](https://t.me/livelawindia/110355)
 
 ---
