@@ -1,93 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-06T09:03:37+00:00*
+*Last Updated: 2026-05-06T11:26:01+00:00*
 
 ---
 
-### 2026-05-06T09:03:37+00:00
-How Should Courts Try Proclaimed Offenders? Allahabad High Court Explains 'Trial In Absentia' Procedure U/S 356 BNSS
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-proclaimed-offenders-trial-in-absentia-procedure-356-bnss-533099
-
-[Read on Telegram](https://t.me/livelawindia/110400)
-
----
-### 2026-05-06T09:05:57+00:00
-SCBA Expresses Shock Over AP HC Judge Ordering Police Custody Of Young Advocate, Seeks CJI's Intervention
-https://www.livelaw.in/top-stories/scba-expresses-shock-over-ap-hc-judge-ordering-police-custody-of-young-advocate-seeks-cjis-intervention-533100
-
-[Read on Telegram](https://t.me/livelawindia/110401)
-
----
-### 2026-05-06T09:07:37+00:00
-Challenge To Election Commissioners' Law : Live Updates From Supreme Court
-https://www.livelaw.in/top-stories/challenge-to-election-commissioners-law-live-updates-from-supreme-court-533102
-
-[Read on Telegram](https://t.me/livelawindia/110402)
-
----
-### 2026-05-06T09:42:40+00:00
-Delhi High Court Quashes Contract Labour Board's Action On Standard Chartered Bank, Cites Failure To Decide Jurisdictional Objection
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-quashes-contract-labour-boards-action-on-standard-chartered-bank-cites-failure-to-decide-jurisdictional-objection-533069
-
-[Read on Telegram](https://t.me/livelawindia/110403)
-
----
-### 2026-05-06T09:44:20+00:00
-Delhi High Court Denies Bail To 'Faith Healer' Accused Of Sexually Assaulting Minor Under Pretext Of Removing 'Jinn'
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-denies-bail-to-faith-healer-accused-of-sexually-assaulting-minor-under-pretext-of-removing-jinn-533111
-
-[Read on Telegram](https://t.me/livelawindia/110404)
-
----
-### 2026-05-06T10:21:31+00:00
-EPF Act | Employees Of Exempted Establishments Entitled To Higher Pension If PF Contributions Were On Actual Wages: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-employees-exempted-establishments-higher-pension-533114
-
-[Read on Telegram](https://t.me/livelawindia/110405)
-
----
-### 2026-05-06T10:44:11+00:00
-Constitution Didn't Intend To Give Religious Denomination Higher Rights Than Believer : Darius Khambata In Sabarimala Reference
-https://www.livelaw.in/top-stories/constitution-didnt-intend-to-give-religious-denomination-higher-right-than-believer-darius-khambata-in-sabarimala-reference-533117
-
-[Read on Telegram](https://t.me/livelawindia/110406)
-
----
-### 2026-05-06T10:44:51+00:00
-Even If Recognised In Two States, Migrants Can't Carry Scheduled Caste Status Across States: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-scheduled-caste-status-migrating-across-states-533118
-
-[Read on Telegram](https://t.me/livelawindia/110407)
-
----
-### 2026-05-06T10:57:51+00:00
-Calcutta High Court Acquits Husband In 30-Year-Old Dowry Death Case, Finds No Proof Of Abetment To Suicide Or Cruelty
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-acquits-husband-in-30-year-old-dowry-death-case-finds-no-proof-of-abetment-to-suicide-or-cruelty-533060
-
-[Read on Telegram](https://t.me/livelawindia/110408)
-
----
-### 2026-05-06T11:16:21+00:00
-S.361 IPC | Merely Accompanying Minor Who Left Home Voluntarily Not Kidnapping From Lawful Guardianship: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-indian-penal-code-essential-ingredients-of-kidnapping-section-361-533123
-
-[Read on Telegram](https://t.me/livelawindia/110409)
-
----
-### 2026-05-06T11:17:01+00:00
-Ensure Persons With Disabilities Scoring Above General Cut-Off Are Considered In Unreserved Vacancies : Supreme Court To Centre, States
-https://www.livelaw.in/top-stories/supreme-court-union-clarifies-persons-with-benchmark-disability-scoring-more-than-general-cutoff-on-own-merit-entitled-to-upward-movement-533124
-
-[Read on Telegram](https://t.me/livelawindia/110410)
-
----
-### 2026-05-06T11:18:22+00:00
-2026 LiveLaw (SC) 464 | JUSTICE SUNANDA BHANDARE FOUNDATION Versus UNION OF INDIA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-464-justice-sunanda-bhandare-foundation-versus-union-of-india-533125
-
-[Read on Telegram](https://t.me/livelawindia/110411)
-
----
 ### 2026-05-06T11:26:01+00:00
 MP Bar Council Election : Supreme Court Gives Time To Advocates Excluded From Voters' List To Rectify Defects
 https://www.livelaw.in/top-stories/supreme-court-right-to-vote-madhya-pradesh-bar-council-elections-excluded-advocates-to-clear-deficiencies-revised-list-to-be-issued-533126
@@ -142,5 +58,89 @@ Maternal Grandmother Taking Care Of Child Can Maintain Minor's Plea Under Sec 12
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-maternal-grandmother-taking-care-of-child-can-maintain-minors-plea-under-sec-125-crpc-533145
 
 [Read on Telegram](https://t.me/livelawindia/110419)
+
+---
+### 2026-05-06T14:26:52+00:00
+“Vexatious Claim To Grab Property”: Madras High Court Rejects Suit Against Boney Kapoor, Daughters Over Sridevi's Property
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-land-suit-against-boney-kapoor-sridevi-property-rejected-533149
+
+[Read on Telegram](https://t.me/livelawindia/110420)
+
+---
+### 2026-05-06T14:29:53+00:00
+'Both Sides Moved On' : AP HC Advocates Association Says Issue Of Judge Threatening Young Lawyer Amicably Settled
+https://www.livelaw.in/top-stories/both-sides-moved-on-ap-hc-advocates-association-says-issue-of-judge-threatening-young-lawyer-amicably-settled-533150
+
+[Read on Telegram](https://t.me/livelawindia/110421)
+
+---
+### 2026-05-06T14:36:52+00:00
+S.28 Specific Relief Act | Separate Application Not Needed To Rescind Agreement To Sell For Buyer's Default  : Suprme Court
+https://www.livelaw.in/supreme-court/s28-specific-relief-act-separate-application-not-needed-to-rescind-agreement-to-sell-for-buyers-default-suprme-court-533152
+
+[Read on Telegram](https://t.me/livelawindia/110422)
+
+---
+### 2026-05-06T14:38:32+00:00
+2026 LiveLaw (SC) 466 | HABBAN SHAH VERSUS SHERUDDIN
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-466-habban-shah-versus-sheruddin-533153
+
+[Read on Telegram](https://t.me/livelawindia/110423)
+
+---
+### 2026-05-06T14:53:22+00:00
+'Interest Of Justice' Doesn't Mean Burying Serious Charges Of Sexual Misconduct: Delhi High Court Refuses To Quash FIR Despite Settlement
+https://www.livelaw.in/high-court/delhi-high-court/interest-of-justice-doesnt-mean-burying-serious-charges-of-sexual-misconduct-delhi-high-court-refuses-to-quash-fir-despite-settlement-533156
+
+[Read on Telegram](https://t.me/livelawindia/110424)
+
+---
+### 2026-05-06T14:54:02+00:00
+Luxury Brands Vs Counterfeit Markets In India
+https://www.livelaw.in/law-firms/law-firm-articles-/luxury-brands-counterfeit-markets-india-533157
+
+[Read on Telegram](https://t.me/livelawindia/110425)
+
+---
+### 2026-05-06T14:57:02+00:00
+“Why Step-Motherly Treatment?”: HP High Court Questions Centre Over Shimla's Exclusion From UDAN Scheme
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-questions-centre-shimla-exclusion-udan-533160
+
+[Read on Telegram](https://t.me/livelawindia/110426)
+
+---
+### 2026-05-06T15:17:22+00:00
+Organised Crime Syndicates Exploiting Juveniles, Abusing Juvenile Justice Law To Commit Heinous Crimes: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/organised-crime-syndicates-exploiting-juveniles-abusing-juvenile-justice-law-to-commit-heinous-crimes-delhi-high-court-533159
+
+[Read on Telegram](https://t.me/livelawindia/110427)
+
+---
+### 2026-05-06T15:24:44+00:00
+NHRC Closes Case Against Journalist Omar Rashid As Delhi Police Drops Investigation Into Anonymous Social Media Rape Allegations
+https://www.livelaw.in/news-updates/nhrc-closes-case-against-journalist-omar-rashid-as-delhi-police-drops-investigation-into-anonymous-social-media-rape-allegations-533163
+
+[Read on Telegram](https://t.me/livelawindia/110428)
+
+---
+### 2026-05-06T15:47:52+00:00
+Family Use Of Property Doesn't Give Sister Ownership Rights Over Brother's Property Without Challenging Sale Deed: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/family-use-of-property-doesnt-give-sister-ownership-rights-over-brothers-property-without-challenging-sale-deed-delhi-high-court-533158
+
+[Read on Telegram](https://t.me/livelawindia/110429)
+
+---
+### 2026-05-06T16:12:52+00:00
+Delhi High Court Upholds Conviction Of Ex-Cop In 33-Year-Old Fake Passport Verification Case
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-upholds-conviction-of-ex-cop-in-33-year-old-fake-passport-verification-case-533161
+
+[Read on Telegram](https://t.me/livelawindia/110430)
+
+---
+### 2026-05-06T16:45:22+00:00
+Supreme Court Daily Round-Up : May 6, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-6-2026-533167
+
+[Read on Telegram](https://t.me/livelawindia/110431)
 
 ---
