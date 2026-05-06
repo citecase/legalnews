@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-06T15:03:00+00:00*
+*Last Updated: 2026-05-06T16:02:44+00:00*
+
+---
+
+### 2026-05-06T16:02:44+00:00
+Central Bureau of Investigation (CBI) Invites Applications For The Post Of Special Public Prosecutor
+https://www.verdictum.in/job-updates/central-bureau-of-investigation-1613496
+
+[Source Link](https://t.me/verdictumlegalupdates/26921)
+
+---
+
+### 2026-05-06T15:33:02+00:00
+Exploited Victim Under Guise Of Treatment: Delhi High Court Denies Bail To Maulvi Accused Of Raping Minor Girl
+https://www.verdictum.in/delhi-high-court/mohd-mubarak-v-state-nct-of-delhi-exploited-victim-maulvi-raping-minor-girl-1613498
+
+[Source Link](https://t.me/verdictumlegalupdates/26920)
 
 ---
 
@@ -145,22 +161,6 @@ Junior Consultant (Law) Vacancy At Warehousing Development and Regulatory Author
 https://www.verdictum.in/job-updates/warehousing-development-and-regulatory-authority-1613428
 
 [Source Link](https://t.me/verdictumlegalupdates/26902)
-
----
-
-### 2026-05-05T15:32:33+00:00
-No Illegality In Substituting Courts With District Magistrate To Expedite Adoption Process: Bombay High Court Dismisses Plea Challenging Constitutional Validity Of 2021 Amendment To Juvenile Justice Act
-https://www.verdictum.in/bombay-high-court/nisha-pradeep-pandya-v-union-of-india-ors-2026bhc-os11417-db-jj-act-1613431
-
-[Source Link](https://t.me/verdictumlegalupdates/26901)
-
----
-
-### 2026-05-05T15:02:52+00:00
-Departure From Natural Justice Principle An Exception, Not The Rule While Exercising Power To Clear Illegal Encroachments U/S 405 AP Municipal Corporations Act : Andhra Pradesh High Court
-https://www.verdictum.in/andhra-pradesh-high-court/k-sreenivasulu-v-the-state-of-andhra-pradesh-3506-of-2026-illegal-encroachments-us-405-ap-municipal-corporation-act-1613425
-
-[Source Link](https://t.me/verdictumlegalupdates/26900)
 
 ---
 
