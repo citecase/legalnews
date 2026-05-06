@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-05T16:02:55+00:00*
+*Last Updated: 2026-05-06T08:33:18+00:00*
+
+---
+
+### 2026-05-06T08:33:18+00:00
+Postal Department Can’t Indefinitely Withhold Account Operation Merely On Legal Notice Raising Allegations Without Further Determination: Telangana High Court
+https://www.verdictum.in/telangana-high-court/girigalla-sriniva-v-the-union-of-india-postal-department-notice-allegations-1613470
+
+[Source Link](https://t.me/verdictumlegalupdates/26909)
+
+---
+
+### 2026-05-06T07:53:17+00:00
+Corporate Veil Must Be Lifted When Group Companies Are ‘Inextricably Connected’ & Form One Concern: Supreme Court Grants Relief To Over 4000 Buyers
+https://www.verdictum.in/supreme-court/alpha-corp-development-private-limited-v-greater-noida-industrial-development-authority-2026-insc-449-cirp-1613466
+
+[Source Link](https://t.me/verdictumlegalupdates/26908)
+
+---
+
+### 2026-05-06T07:13:15+00:00
+Natural Parent Cannot Be Denied Access To Child At Interlocutory Stage Absent Prima Facie Unfitness Or Welfare Risk: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/abc-v-xyz-guardianship-custody-visitation-natural-guardian-mother-minor-child-1613462
+
+[Source Link](https://t.me/verdictumlegalupdates/26907)
+
+---
+
+### 2026-05-06T06:32:34+00:00
+Mere Fact That A Society Exercised Supervisory Or Managerial Functions Over Temple Won’t Confer Title Upon It: Supreme Court
+https://www.verdictum.in/supreme-court/kishan-chand-v-gautam-gaur-hitkarak-sabha-kota-2026-insc-448-society-temple-title-1613458
+
+[Source Link](https://t.me/verdictumlegalupdates/26906)
+
+---
+
+### 2026-05-06T05:43:12+00:00
+Disciplinary Authority Cannot Direct Inquiry Officer To Submit Fresh Report On Same Evidence: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/sanjay-bansal-v-madhya-pradesh-gramin-bank-ors-1613452
+
+[Source Link](https://t.me/verdictumlegalupdates/26905)
+
+---
+
+### 2026-05-06T05:02:11+00:00
+Single Judge Ruling Holding Field For Significant Duration Shouldn’t Be Unsettled Unless It Is Per Incuriam: Jammu & Kashmir and Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/union-territory-of-jammu-kashmir-and-others-v-ravinder-kanta-2026jklhc-jmu122-single-judge-ruling-1613448
+
+[Source Link](https://t.me/verdictumlegalupdates/26904)
+
+---
+
+### 2026-05-06T04:32:59+00:00
+Delhi High Court Raps Indian Express For “Deplorable” Reporting On Spurious Cancer Drug Racket Case, Grants Bail To Accused
+https://www.verdictum.in/delhi-high-court/pravez-khan-v-directorate-of-enforcement-connected-matters-2026dhc3773-1613426
+
+[Source Link](https://t.me/verdictumlegalupdates/26903)
 
 ---
 
@@ -105,62 +161,6 @@ Supreme Court Asks NLUs To Undertake Detailed Assessment Of Implementation Of RP
 https://www.verdictum.in/supreme-court/justice-sunanda-bhandare-foundation-v-union-of-india-2026-insc-441-nlus-rpwd-act-1613416
 
 [Source Link](https://t.me/verdictumlegalupdates/26890)
-
----
-
-### 2026-05-05T09:32:21+00:00
-Supreme Court Collegium Recommends Advocates, Judicial Officers As Judges Of Two High Courts
-https://www.verdictum.in/supreme-court/supreme-court-collegium-recommends-advocates-judicial-officers-as-judges-of-two-high-courts-1613414
-
-[Source Link](https://t.me/verdictumlegalupdates/26889)
-
----
-
-### 2026-05-05T09:03:10+00:00
-Insurance Company Must Prove Policy Breach To Avoid Liability To Indemnify In Motor Accident Claims: Gauhati High Court
-https://www.verdictum.in/guwahati-high-court/the-oriental-insurance-co-ltd-v-mrs-sushila-devi-2026gau-as5379-invalid-license-defense-in-mact-claims-1613413
-
-[Source Link](https://t.me/verdictumlegalupdates/26888)
-
----
-
-### 2026-05-05T08:32:28+00:00
-Prevention Detention Order Would Be Vitiated If It Is Based On Offences Committed By Detenue When He Was Juvenile: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/smt-marry-usha-v-state-of-karnataka-2026khc23865-db-prevention-detention-juvenile-1613410
-
-[Source Link](https://t.me/verdictumlegalupdates/26887)
-
----
-
-### 2026-05-05T08:02:47+00:00
-Suspicious Circumstances Around Unregistered Will Cannot Be Overlooked: Delhi High Court Grants Interim Relief To Karisma Kapoor’s Children, Orders Status Quo
-https://www.verdictum.in/delhi-high-court/samaira-kapur-v-priya-kapur-2026dhc3660-karisma-kapoors-children-interim-relief-1613402
-
-[Source Link](https://t.me/verdictumlegalupdates/26886)
-
----
-
-### 2026-05-05T07:33:05+00:00
-Absence Of Name In Register Entry Not Conclusive Of “Member” Status For Purpose Of Sections 397 & 398 Companies Act: Supreme Court
-https://www.verdictum.in/supreme-court/dr-bais-surgical-and-medical-institute-pvt-ltd-ors-v-dhananjay-pande-2026-insc-447-1613399
-
-[Source Link](https://t.me/verdictumlegalupdates/26885)
-
----
-
-### 2026-05-05T07:03:24+00:00
-Economic Benefit Alone Does Not Suffice To Establish "Unfair Advantage": Delhi High Court Declines Injunction Against Jigra Over "Doctors Without Borders" Scene
-https://www.verdictum.in/delhi-high-court/medecins-sans-frontieres-international-v-dharma-productions-private-limited-2026dhc3670-jigra-dharma-productions-1613396
-
-[Source Link](https://t.me/verdictumlegalupdates/26884)
-
----
-
-### 2026-05-05T06:33:03+00:00
-Eligibility Of Candidate Is Assessed Based On Particulars & Documents Furnished At Time Of Application: Supreme Court Allows RPSC Appeal
-https://www.verdictum.in/supreme-court/rajasthan-public-service-commission-v-lavanshu-sankhla-ors-2026-insc-444-eligibility-candidate-1613394
-
-[Source Link](https://t.me/verdictumlegalupdates/26883)
 
 ---
 
