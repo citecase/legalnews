@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-07T10:24:00+00:00*
+*Last Updated: 2026-05-07T12:53:47+00:00*
 
 ---
 
-### 2026-05-07T10:24:00+00:00
-'Police's Sensitivity To Protect Life Continues To Be Low': Why Allahabad High Court Pulled Up Budaun SSP
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-budaun-ssp-up-police-sensitivity-protect-life-threat-perception-533271
-
-[Read on Telegram](https://t.me/livelawindia/110486)
-
----
-### 2026-05-07T10:32:00+00:00
-Supreme Court Questions Delhi HC Ruling Against Debarring Law Students Over Low Attendance, Asks BCI Why It's Not Challenged
-https://www.livelaw.in/top-stories/supreme-court-bar-council-of-india-delhi-high-court-decision-questioned-law-students-low-attendance-no-bar-nlu-serious-concern-533273
-
-[Read on Telegram](https://t.me/livelawindia/110487)
-
----
-### 2026-05-07T10:38:00+00:00
-Husband Can't Seek To Strike Off Wife's Defence In Matrimonial Proceedings After Failing To Pay Litigation Expenses: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/husband-cant-seek-to-strike-off-wifes-defence-after-failing-to-pay-litigation-expenses-delhi-high-court-533174
-
-[Read on Telegram](https://t.me/livelawindia/110488)
-
----
-### 2026-05-07T10:40:40+00:00
-Dispute Over Burial Rights Between Two Muslim Communities Not Maintainable As PIL: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-burial-rights-muslim-community-533275
-
-[Read on Telegram](https://t.me/livelawindia/110489)
-
----
-### 2026-05-07T10:53:00+00:00
-Supreme Court Directs NLU Delhi To Assess Union' Compliance With Rights Of Persons With Disabilities Act
-https://www.livelaw.in/top-stories/supreme-court-directs-nlu-delhi-to-assess-union-compliance-with-rights-of-persons-with-disabilities-act-project-ability-empowment-533279
-
-[Read on Telegram](https://t.me/livelawindia/110490)
-
----
-### 2026-05-07T10:58:40+00:00
-Female Genital Mutilation Affects Health; Can't Be Compared With Circumcision : Supreme Court In Sabarimala Reference Hearing
-https://www.livelaw.in/top-stories/female-genital-mutilation-affects-health-cant-be-compared-with-circumcision-supreme-court-in-sabarimala-reference-hearing-533281
-
-[Read on Telegram](https://t.me/livelawindia/110491)
-
----
-### 2026-05-07T12:13:01+00:00
-Mandatory Injunction Not Automatic Even If Encroachment Proved; Can Be Denied For Plaintiff's Unfair Conduct: HP High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-mandatory-injunction-encroachment-proof-533175
-
-[Read on Telegram](https://t.me/livelawindia/110492)
-
----
-### 2026-05-07T12:37:11+00:00
-SC Shouldn't Have Totally Struck Down Law Banning Excommunication : Supreme Court In Sabarimala Reference Hearing
-https://www.livelaw.in/top-stories/sc-shouldnt-have-totally-struck-down-law-banning-excommunication-supreme-court-in-sabarimala-reference-hearing-533299
-
-[Read on Telegram](https://t.me/livelawindia/110493)
-
----
 ### 2026-05-07T12:53:47+00:00
 Allahabad High Court Directs UP Govt To Pay ₹10 Lakh Compensation To Man Over 3-Month Illegal Detention
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-up-govt-10-lakh-compensation-3-month-illegal-detention-533301
@@ -142,5 +86,61 @@ Sharing Urdu Poetry Without Commentary Or Incitement Doesn't Promote Enmity Betw
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/sharing-urdu-poetry-not-enmity-between-religious-groups-533322
 
 [Read on Telegram](https://t.me/livelawindia/110505)
+
+---
+### 2026-05-07T14:47:07+00:00
+Minor Prosecutrix Possessed Sufficient Maturity To Understand Consequences Of Her Actions: Uttarakhand HC Grants Bail In POCSO Case
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-grants-bail-pocso-case-533277
+
+[Read on Telegram](https://t.me/livelawindia/110506)
+
+---
+### 2026-05-07T14:53:27+00:00
+Kurnool Consumer Commission Holds HDFC ERGO, Continental Hospitals Liable For Wrongful Mediclaim Rejection
+https://www.livelaw.in/consumer-cases/kurnool-consumer-commission-holds-hdfc-ergo-continental-hospitals-liable-for-wrongful-mediclaim-rejection-533327
+
+[Read on Telegram](https://t.me/livelawindia/110507)
+
+---
+### 2026-05-07T15:41:08+00:00
+Bombay High Court Imposes ₹50,000 Costs On Son For Dragging Aged Mother Into 'Protracted' Litigation Over Property
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-imposes-50000-costs-on-son-for-dragging-aged-mother-into-protracted-litigation-over-property-533329
+
+[Read on Telegram](https://t.me/livelawindia/110508)
+
+---
+### 2026-05-07T15:48:08+00:00
+“Advocate May Persuade, But Not Pressurize”: Madras High Court Refuses To Quash Misconduct Proceedings Against Madurai Lawyers
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-misconduct-proceeding-lawyers-refused-to-quash-533330
+
+[Read on Telegram](https://t.me/livelawindia/110509)
+
+---
+### 2026-05-07T15:48:48+00:00
+Gomchu Yekar Suicide: Supreme Court Upholds Arunachal Pradesh IAS Officer Talo Potom's Bail In Abetment Case
+https://www.livelaw.in/top-stories/supreme-court-gomchu-yekar-death-case-arunachal-pradesh-ias-officer-talo-potom-bail-upheld-abetment-of-suicide-533331
+
+[Read on Telegram](https://t.me/livelawindia/110510)
+
+---
+### 2026-05-07T15:49:28+00:00
+P&H High Court Dismisses PIL Challenging ₹2500 Crore Transfer To GMADA, Upholds State's Power Under Punjab Town Planning Act
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-dismisses-pil-challenging-2500-crore-transfer-to-gmada-upholds-state-power-under-punjab-town-planning-act-533332
+
+[Read on Telegram](https://t.me/livelawindia/110511)
+
+---
+### 2026-05-07T16:36:18+00:00
+Supreme Court Rejects Plea Relating To AIIMS' Allotment Of PG Medical Seats On Institutional Preference
+https://www.livelaw.in/top-stories/supreme-court-dismisses-plea-alleging-allotment-of-over-50-percent-post-graduate-medical-seats-by-aiims-through-institutional-preference-533341
+
+[Read on Telegram](https://t.me/livelawindia/110512)
+
+---
+### 2026-05-07T17:07:28+00:00
+Supreme Court Daily Round-Up : May 7, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-7-2026-533335
+
+[Read on Telegram](https://t.me/livelawindia/110513)
 
 ---
