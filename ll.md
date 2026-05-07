@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-06T11:26:01+00:00*
+*Last Updated: 2026-05-06T13:20:46+00:00*
 
 ---
 
-### 2026-05-06T11:26:01+00:00
-MP Bar Council Election : Supreme Court Gives Time To Advocates Excluded From Voters' List To Rectify Defects
-https://www.livelaw.in/top-stories/supreme-court-right-to-vote-madhya-pradesh-bar-council-elections-excluded-advocates-to-clear-deficiencies-revised-list-to-be-issued-533126
-
-[Read on Telegram](https://t.me/livelawindia/110412)
-
----
-### 2026-05-06T11:53:05+00:00
-Delhi High Court Rejects Plea To Increase Retirement Age Of BRO Medical Officers From 60 To 65 Years
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-rejects-plea-to-increase-retirement-age-of-bro-medical-officers-to-65-533068
-
-[Read on Telegram](https://t.me/livelawindia/110413)
-
----
-### 2026-05-06T12:24:35+00:00
-Madras High Court Directs Registry To List Plea Seeking FIR, PMLA Probe Against TVK Chief Vijay Over Alleged Suppression Of Income
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-registry-list-plea-tvk-vijay-probe-suppression-of-income-533138
-
-[Read on Telegram](https://t.me/livelawindia/110414)
-
----
-### 2026-05-06T13:15:16+00:00
-Madras High Court Issues Notice On Plea Challenging Rajiv Gandhi Assassination Convict Perarivalan's Enrolment As Advocate
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-perarivalan-enrolment-challenged-533141
-
-[Read on Telegram](https://t.me/livelawindia/110415)
-
----
 ### 2026-05-06T13:20:46+00:00
 Present Law Ensures 'Prime Minister's Man' Is Appointed As Chief Election Commissioner : Petitioners Challenging CEC Act Tell Supreme Court
 https://www.livelaw.in/top-stories/present-law-ensures-prime-ministers-man-is-appointed-as-chief-election-commissioner-petitioners-challenging-cec-act-tell-supreme-court-533142
@@ -142,5 +114,33 @@ Supreme Court Daily Round-Up : May 6, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-6-2026-533167
 
 [Read on Telegram](https://t.me/livelawindia/110431)
+
+---
+### 2026-05-07T02:32:52+00:00
+Issue QR ID Cards To 'Surveyed' Hawkers In 5 Weeks, Evict Illegal Vendors: Bombay High Court Directs BMC, Maharashtra Govt
+https://www.livelaw.in/high-court/bombay-high-court/bmc-issue-qr-id-cards-to-surveyed-hawkers-evict-illegal-vendors-533170
+
+[Read on Telegram](https://t.me/livelawindia/110432)
+
+---
+### 2026-05-07T03:02:32+00:00
+Accused Can't Seek Quashing Of FIR After Failing To Secure Anticipatory Bail Without Surrender Or Change In Circumstances: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-after-bail-rejection-accused-cannot-seek-quashing-without-surrender-or-change-in-circumstances-533178
+
+[Read on Telegram](https://t.me/livelawindia/110433)
+
+---
+### 2026-05-07T03:32:17+00:00
+Supreme Court Quarterly Digest 2026 - Code of Civil Procedure (CPC)
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-quarterly-digest-civil-procedure-code-2026-532736
+
+[Read on Telegram](https://t.me/livelawindia/110434)
+
+---
+### 2026-05-07T03:32:37+00:00
+Bhojshala Temple-Kamal Maula Mosque Dispute: Jain Community Also Seeks Right To Offer Prayers At Disputed Site
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bhojshala-temple-kamal-maula-mosque-dispute-architectural-similarities-with-jain-temples-at-mount-abu-533168
+
+[Read on Telegram](https://t.me/livelawindia/110435)
 
 ---
