@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-07T08:32:38+00:00*
+*Last Updated: 2026-05-07T15:12:27+00:00*
+
+---
+
+### 2026-05-07T15:12:27+00:00
+Vague Remarks Not Criminal Intimidation: Delhi High Court Upholds Acquittal Of Advocates Accused Of Threatening Woman In Court Premises
+https://www.verdictum.in/delhi-high-court/monika-aggarwal-ors-v-the-state-govt-of-nct-of-delhi-ors-2026dhc3798-1613559
+
+[Source Link](https://t.me/verdictumlegalupdates/26938)
+
+---
+
+### 2026-05-07T14:32:25+00:00
+Reverse Onus U/S 16 Immigration & Foreigners Act Is Absolute: Calcutta HC Denies Relief To Bangladeshi Hindu Woman Accused of Overstaying Visa
+https://www.verdictum.in/calcutta-high-court/sampa-sarkar-v-the-state-of-west-bengal-crr-1121-of-2026-bangladeshi-hindu-woman-overstaying-visa-1613558
+
+[Source Link](https://t.me/verdictumlegalupdates/26937)
+
+---
+
+### 2026-05-07T13:52:24+00:00
+Call Logs Alone Cannot Establish Role: J&K And Ladakh High Court Grants Bail To Accused In Cross-LOC Drug Trafficking Case
+https://www.verdictum.in/jammu-ladakh-high-court/abdul-rashid-kohli-v-union-territory-of-jammu-kashmir-ndps-drg-trafficking-1613557
+
+[Source Link](https://t.me/verdictumlegalupdates/26936)
+
+---
+
+### 2026-05-07T13:13:02+00:00
+Andhra Pradesh High Court's Order Against Junior Advocate: The Stand Of Bar Bodies Across Country
+https://www.verdictum.in/news/custody-order-junior-advocate-justice-tarlada-rajasekhar-rao-1613566
+
+[Source Link](https://t.me/verdictumlegalupdates/26935)
+
+---
+
+### 2026-05-07T12:32:21+00:00
+High Court Rules Framed Under Article 227 Cannot Override Law Declared By Supreme Court: Andhra Pradesh High Court
+https://www.verdictum.in/andhra-pradesh-high-court/bheemisetti-suryanarayana-v-bheemisetti-mrudula-naga-rules-high-article-227-1613552
+
+[Source Link](https://t.me/verdictumlegalupdates/26934)
+
+---
+
+### 2026-05-07T11:52:19+00:00
+Application U/S 28 Specific Relief Act Not Mandatory; Court Not Powerless To Treat Contract As Rescinded For Non-Compliance Of Condition: Supreme Court
+https://www.verdictum.in/supreme-court/habban-shah-v-sheruddin-2026-insc-451-decree-becomes-inexecutable-1613551
+
+[Source Link](https://t.me/verdictumlegalupdates/26933)
+
+---
+
+### 2026-05-07T11:12:55+00:00
+Only  ‘Chancellor’ Can Annul Earlier Decisions Of University, Not ‘Syndicate’: Manipur High Court Upholds DMU Assistant Professor Selection
+https://www.verdictum.in/manipur-high-court/dr-thongram-kamala-devi-v-the-dhanamanjuri-university-wpc-no-633-of-2024-dmu-assistant-professor-selection-1613550
+
+[Source Link](https://t.me/verdictumlegalupdates/26932)
+
+---
+
+### 2026-05-07T10:33:03+00:00
+"Vexatious Claim To Grab Property": Madras High Court Rejects Plaint Filed Against Boney Kapoor, Jhanvi Kapoor In Sridevi Property Case
+https://www.verdictum.in/madras-high-court/boney-kapoor-ors-v-mc-sivakami-ors-jhanvi-kapoor-sridevi-khushi-1613549
+
+[Source Link](https://t.me/verdictumlegalupdates/26931)
+
+---
+
+### 2026-05-07T09:52:42+00:00
+Supreme Court Appoints Former CJI DY Chandrachud As Mediator In Rani Kapur And Priya Kapur Dispute
+https://www.verdictum.in/supreme-court/supreme-court-appoints-former-cji-dy-chandrachud-as-mediator-in-rani-kapur-and-priya-kapur-dispute-1613547
+
+[Source Link](https://t.me/verdictumlegalupdates/26930)
+
+---
+
+### 2026-05-07T09:13:00+00:00
+Accused Should Not Be Subjected To Public Condemnation Through Media Exposure & Staged Photographs: Rajasthan High Court Issues Guidelines
+https://www.verdictum.in/rajasthan-high-court/islam-khan-v-state-of-rajasthan-sb-criminal-writ-petition-no-2242026-issues-guidelines-as-dos-donts-police-1613545
+
+[Source Link](https://t.me/verdictumlegalupdates/26929)
 
 ---
 
@@ -81,86 +161,6 @@ Will Behead Or Be Beheaded For Mohammed: Allahabad High Court Grants Bail To Mus
 https://www.verdictum.in/allahabad-high-court/2026ahc100731-nadeem-v-state-of-up-1613497
 
 [Source Link](https://t.me/verdictumlegalupdates/26919)
-
----
-
-### 2026-05-06T14:33:19+00:00
-Minority Educational Institution’s Choice Of Principal Cannot Be Tested On Merits Or Rationality Once Candidate Is Chosen: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/the-chairman-v-state-of-madhya-pradesh-and-others-2026mphc-gwl13979-1613495
-
-[Source Link](https://t.me/verdictumlegalupdates/26918)
-
----
-
-### 2026-05-06T14:02:17+00:00
-Opportunity Of Hearing Cannot Be Reduced To A Mere Ritual: Delhi High Court Quashes CACLB Decision Directing Inquiry Against Standard Chartered Bank
-https://www.verdictum.in/delhi-high-court/standard-chartered-bank-v-union-of-india-and-others-2026dhc3755-scb-1613494
-
-[Source Link](https://t.me/verdictumlegalupdates/26917)
-
----
-
-### 2026-05-06T13:32:46+00:00
-Sub Registrar Can’t Insist On NOC From Embassy For Marrying Foreign National Under Special Marriage Act: Kerala High Court
-https://www.verdictum.in/kerala-high-court/a-v-state-of-kerala-2026ker33547-sub-registrar-noc-embassy-foreign-national-1613493
-
-[Source Link](https://t.me/verdictumlegalupdates/26916)
-
----
-
-### 2026-05-06T13:03:04+00:00
-Supreme Court Sets Aside Default Bail Granted To Haldwani Riots Accused; Cites Factual Errors In High Court's Order
-https://www.verdictum.in/supreme-court/cancel-default-bail-haldwani-riots-accused-uttarakhand-high-court-1613492
-
-[Source Link](https://t.me/verdictumlegalupdates/26915)
-
----
-
-### 2026-05-06T12:33:03+00:00
-Supreme Court Refuses Centre’s Request To Adjourn Pleas Against Election Commissioners’ Appointment Case
-https://www.verdictum.in/supreme-court/supreme-court-refuses-centres-request-to-adjourn-pleas-against-election-commissioners-appointment-case-1613488
-
-[Source Link](https://t.me/verdictumlegalupdates/26914)
-
----
-
-### 2026-05-06T12:02:21+00:00
-Workman Can't Be Denied Reinstatement Once Dismissal Is Rendered Inoperative For Non-Compliance Of Section 33(2)(b) ID Act: Bombay High Court
-https://www.verdictum.in/bombay-high-court/santosh-chandrkant-potdar-v-bajaj-auto-limited-2026bhc-as20592-id-act-1613482
-
-[Source Link](https://t.me/verdictumlegalupdates/26913)
-
----
-
-### 2026-05-06T11:13:19+00:00
-Throwing Chappals At Devotees Desecration Of Secular Fraternity: Madras High Court Orders Police Security For Lord Kallazhagar Procession
-https://www.verdictum.in/madras-high-court/psundaravadivel-v-the-district-collector-devotees-security-lord-kallazhagar-procession-1613481
-
-[Source Link](https://t.me/verdictumlegalupdates/26912)
-
----
-
-### 2026-05-06T10:12:22+00:00
-Public Sector Banks Cannot Seek Curtailment Of Right To Travel Abroad Through Routine Use Of LOCs: Delhi High Court
-https://www.verdictum.in/delhi-high-court/ritu-singal-v-bureau-of-immigration-ors-and-connected-matters-2026dhc3806-1613478
-
-[Source Link](https://t.me/verdictumlegalupdates/26911)
-
----
-
-### 2026-05-06T09:22:00+00:00
-Criminal Case A 'Counterblast' To Debt Recovery: Bombay High Court Quashes FIR By Lilavati Trust Against HDFC Bank CEO
-https://www.verdictum.in/bombay-high-court/sashidhar-jagdishan-v-state-of-maharashtra-2026bhc-as21240-db-1613477
-
-[Source Link](https://t.me/verdictumlegalupdates/26910)
-
----
-
-### 2026-05-06T08:33:18+00:00
-Postal Department Can’t Indefinitely Withhold Account Operation Merely On Legal Notice Raising Allegations Without Further Determination: Telangana High Court
-https://www.verdictum.in/telangana-high-court/girigalla-sriniva-v-the-union-of-india-postal-department-notice-allegations-1613470
-
-[Source Link](https://t.me/verdictumlegalupdates/26909)
 
 ---
 
