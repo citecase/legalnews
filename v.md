@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-07T15:12:27+00:00*
+*Last Updated: 2026-05-07T16:02:19+00:00*
+
+---
+
+### 2026-05-07T16:02:19+00:00
+Legal Assistant Vacancy At Bhavnagar Municipal Corporation (BMC)
+https://www.verdictum.in/job-updates/bhavnagar-municipal-corporation-1613560
+
+[Source Link](https://t.me/verdictumlegalupdates/26939)
 
 ---
 
@@ -153,14 +161,6 @@ Exploited Victim Under Guise Of Treatment: Delhi High Court Denies Bail To Maulv
 https://www.verdictum.in/delhi-high-court/mohd-mubarak-v-state-nct-of-delhi-exploited-victim-maulvi-raping-minor-girl-1613498
 
 [Source Link](https://t.me/verdictumlegalupdates/26920)
-
----
-
-### 2026-05-06T15:03:00+00:00
-Will Behead Or Be Beheaded For Mohammed: Allahabad High Court Grants Bail To Muslim Man In FIR Over Instagram Post
-https://www.verdictum.in/allahabad-high-court/2026ahc100731-nadeem-v-state-of-up-1613497
-
-[Source Link](https://t.me/verdictumlegalupdates/26919)
 
 ---
 
