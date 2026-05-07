@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-07T06:32:27+00:00*
+*Last Updated: 2026-05-07T10:24:00+00:00*
 
 ---
 
-### 2026-05-07T06:32:27+00:00
-Delhi High Court Upholds Acquittal Of Lawyer Who Told Litigant She 'Won't Be Spared' If She Comes To Court Again, Calls It “Mere Outburst”
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-upholds-acquittal-of-lawyer-who-told-litigant-she-wont-be-spared-if-she-comes-to-court-again-calls-it-mere-outburst-533171
+### 2026-05-07T10:24:00+00:00
+'Police's Sensitivity To Protect Life Continues To Be Low': Why Allahabad High Court Pulled Up Budaun SSP
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-budaun-ssp-up-police-sensitivity-protect-life-threat-perception-533271
 
-[Read on Telegram](https://t.me/livelawindia/110460)
-
----
-### 2026-05-07T06:42:37+00:00
-Delhi High Court To Pass Order Protecting Personality Rights Of Shark Tank Judge And Entrepreneur Aman Gupta
-https://www.livelaw.in/high-court/delhi-high-court/aman-gupta-personality-rights-protection-shark-tank-boat-lifestyle-hum-bhi-bana-lenge-remark-533222
-
-[Read on Telegram](https://t.me/livelawindia/110461)
+[Read on Telegram](https://t.me/livelawindia/110486)
 
 ---
-### 2026-05-07T06:48:17+00:00
-Rupture Of Hymen Not Necessary To Prove Penetrative Sexual Assault Under POCSO Act: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/rupture-of-hymen-not-necessary-to-prove-penetrative-sexual-assault-under-pocso-act-delhi-high-court-533173
+### 2026-05-07T10:32:00+00:00
+Supreme Court Questions Delhi HC Ruling Against Debarring Law Students Over Low Attendance, Asks BCI Why It's Not Challenged
+https://www.livelaw.in/top-stories/supreme-court-bar-council-of-india-delhi-high-court-decision-questioned-law-students-low-attendance-no-bar-nlu-serious-concern-533273
 
-[Read on Telegram](https://t.me/livelawindia/110462)
-
----
-### 2026-05-07T06:59:17+00:00
-Maruti Suzuki Service Centre Directed To Pay ₹1.79 Lakh Repair Cost And ₹1 Lakh Compensation For Negligent Servicing: Kurnool Consumer Commission
-https://www.livelaw.in/consumer-cases/maruti-suzuki-service-centre-directed-to-pay-179-lakh-repair-cost-and-1-lakh-compensation-for-negligent-servicing-kurnool-consumer-commission-533224
-
-[Read on Telegram](https://t.me/livelawindia/110463)
+[Read on Telegram](https://t.me/livelawindia/110487)
 
 ---
-### 2026-05-07T07:02:37+00:00
-Prolonged Pre-Trial Incarceration In Circumstantial Evidence Case Violates Article 21: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/prolonged-pre-trial-incarceration-in-circumstantial-evidence-case-violates-article-21-delhi-high-court-533186
+### 2026-05-07T10:38:00+00:00
+Husband Can't Seek To Strike Off Wife's Defence In Matrimonial Proceedings After Failing To Pay Litigation Expenses: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/husband-cant-seek-to-strike-off-wifes-defence-after-failing-to-pay-litigation-expenses-delhi-high-court-533174
 
-[Read on Telegram](https://t.me/livelawindia/110464)
-
----
-### 2026-05-07T07:03:37+00:00
-Consumer Law Monthly Digest: April 2026
-https://www.livelaw.in/consumer-cases/consumer-law-monthly-digest-april-2026-533227
-
-[Read on Telegram](https://t.me/livelawindia/110465)
+[Read on Telegram](https://t.me/livelawindia/110488)
 
 ---
-### 2026-05-07T07:17:38+00:00
-Malabar Devaswom Board Can't Use Supervisory Powers To Indirectly Take Over Temple Administration: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/devaswom-board-general-supervisory-powers-section-20-hr-ce-act-take-over-temples-533220
+### 2026-05-07T10:40:40+00:00
+Dispute Over Burial Rights Between Two Muslim Communities Not Maintainable As PIL: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-burial-rights-muslim-community-533275
 
-[Read on Telegram](https://t.me/livelawindia/110466)
-
----
-### 2026-05-07T07:22:58+00:00
-What Happens To Indian Civilisation If Every Religious Practice Is Questioned In Courts? Supreme Court In Sabarimala Reference
-https://www.livelaw.in/top-stories/what-happens-to-indian-civilisation-if-every-religious-practice-is-questioned-in-courts-supreme-court-in-sabarimala-reference-533232
-
-[Read on Telegram](https://t.me/livelawindia/110467)
+[Read on Telegram](https://t.me/livelawindia/110489)
 
 ---
-### 2026-05-07T07:27:58+00:00
-'No Advocate Deserves To Be Threatened': Young AP Bar Members Oppose High Court Advocates' Association Stand
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/no-advocate-deserves-to-be-threatened-young-ap-bar-members-oppose-high-court-advocates-association-stand-533233
+### 2026-05-07T10:53:00+00:00
+Supreme Court Directs NLU Delhi To Assess Union' Compliance With Rights Of Persons With Disabilities Act
+https://www.livelaw.in/top-stories/supreme-court-directs-nlu-delhi-to-assess-union-compliance-with-rights-of-persons-with-disabilities-act-project-ability-empowment-533279
 
-[Read on Telegram](https://t.me/livelawindia/110468)
-
----
-### 2026-05-07T07:31:38+00:00
-'Revenue Record Doesn't Confer Title' : Supreme Court Summarises Principles On Revenue Entries & Land Ownership
-https://www.livelaw.in/supreme-court/revenue-record-doesnt-confer-title-supreme-court-summarises-principles-on-revenue-entries-land-ownership-533234
-
-[Read on Telegram](https://t.me/livelawindia/110469)
+[Read on Telegram](https://t.me/livelawindia/110490)
 
 ---
-### 2026-05-07T07:32:38+00:00
-2026 LiveLaw (SC) 469 | VADIYALA PRABHAKAR RAO & ORS. VERSUS THE GOVERNMENT OF ANDHRA PRADESH & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-469-vadiyala-prabhakar-rao-ors-versus-the-government-of-andhra-pradesh-ors-533235
+### 2026-05-07T10:58:40+00:00
+Female Genital Mutilation Affects Health; Can't Be Compared With Circumcision : Supreme Court In Sabarimala Reference Hearing
+https://www.livelaw.in/top-stories/female-genital-mutilation-affects-health-cant-be-compared-with-circumcision-supreme-court-in-sabarimala-reference-hearing-533281
 
-[Read on Telegram](https://t.me/livelawindia/110470)
-
----
-### 2026-05-07T07:33:08+00:00
-Orissa High Court Issues Standing Order To Protect Identity Of Sexual Offence Victims In Court Records
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-issues-standing-order-nondisclosure-sexual-offence-victim-identities-533221
-
-[Read on Telegram](https://t.me/livelawindia/110471)
+[Read on Telegram](https://t.me/livelawindia/110491)
 
 ---
-### 2026-05-07T07:39:59+00:00
-Supreme Court Appoints Ex-CJI DY Chandrachud As Mediator In Rani Kapur-Priya Kapur Dispute Over Sunjay Kapur's Estate
-https://www.livelaw.in/top-stories/supreme-court-rani-kapur-family-estate-dispute-sunjay-kapur-priya-kapur-karishma-kapoor-children-mediation-ex-cji-dy-chandrachud-533239
+### 2026-05-07T12:13:01+00:00
+Mandatory Injunction Not Automatic Even If Encroachment Proved; Can Be Denied For Plaintiff's Unfair Conduct: HP High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-mandatory-injunction-encroachment-proof-533175
 
-[Read on Telegram](https://t.me/livelawindia/110472)
-
----
-### 2026-05-07T07:45:49+00:00
-“Giving Free Food To Foreigners”: Calcutta High Court Orally Remarks On Custody Of Foreign Nationals After Completion Of Sentence
-https://www.livelaw.in/high-court/calcutta-high-court/giving-free-food-to-foreigners-calcutta-high-court-orally-remarks-in-plea-against-custody-of-foreign-nationals-after-sentence-completion-533240
-
-[Read on Telegram](https://t.me/livelawindia/110473)
+[Read on Telegram](https://t.me/livelawindia/110492)
 
 ---
-### 2026-05-07T07:46:49+00:00
-Karnataka High Court Seeks State's Reply On Congress MLA Vinay Kulkarni's Plea Against Conviction, Life Term In Yogesh Goudar Murder Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-congress-mla-vinay-kulkarni-appeal-conviction-yogesh-goudar-murder-case-533241
+### 2026-05-07T12:37:11+00:00
+SC Shouldn't Have Totally Struck Down Law Banning Excommunication : Supreme Court In Sabarimala Reference Hearing
+https://www.livelaw.in/top-stories/sc-shouldnt-have-totally-struck-down-law-banning-excommunication-supreme-court-in-sabarimala-reference-hearing-533299
 
-[Read on Telegram](https://t.me/livelawindia/110474)
-
----
-### 2026-05-07T08:03:09+00:00
-Donee Of Undivided Share In Joint Property Is Entitled To Partition & Registration By Paying Stamp Duty For Partition Deeds: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-donee-undivided-share-co-owner-partition-stamp-duty-533238
-
-[Read on Telegram](https://t.me/livelawindia/110475)
+[Read on Telegram](https://t.me/livelawindia/110493)
 
 ---
-### 2026-05-07T08:04:30+00:00
-Allahabad High Court Grants Bail To Accused Who Spent About 7 Months In Jail Over 'Abusive' Songs On Hindu Deities
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-grants-bail-accused-7-months-abusive-songs-hindu-deities-533244
+### 2026-05-07T12:53:47+00:00
+Allahabad High Court Directs UP Govt To Pay ₹10 Lakh Compensation To Man Over 3-Month Illegal Detention
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-up-govt-10-lakh-compensation-3-month-illegal-detention-533301
 
-[Read on Telegram](https://t.me/livelawindia/110476)
-
----
-### 2026-05-07T08:08:30+00:00
-Wish Judges Were Appointed As Speedily As Election Commissioners : Supreme Court
-https://www.livelaw.in/top-stories/wish-judges-were-appointed-as-speedily-as-election-commissioners-supreme-court-533247
-
-[Read on Telegram](https://t.me/livelawindia/110477)
+[Read on Telegram](https://t.me/livelawindia/110494)
 
 ---
-### 2026-05-07T08:18:10+00:00
-Video Conferencing Not Permissible At Reconciliation Stage In Matrimonial Disputes: Andhra Pradesh High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-video-conferencing-reconciliation-stage-matrimonial-disputes-533236
+### 2026-05-07T13:02:37+00:00
+Preliminary Verification Closure Not Equivalent To Closure Report Under CrPC: J&K&L High Court Refuses To Quash FIR
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-preliminary-verification-closure-does-not-bar-subsequent-fir-if-fresh-material-discloses-cognizable-offence-533274
 
-[Read on Telegram](https://t.me/livelawindia/110478)
+[Read on Telegram](https://t.me/livelawindia/110495)
 
 ---
-### 2026-05-07T08:30:50+00:00
-Madras High Court Reserves Orders On Savukku Shankar's Bail Plea In Attempt To Murder Case
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-savukku-shankar-attempt-to-murder-case-bail-orders-reserved-533250
+### 2026-05-07T13:03:07+00:00
+Former Calcutta High Court Chief Justice TS Sivagnanam Resigns From SIR Appellate Tribunal
+https://www.livelaw.in/news-updates/former-calcutta-high-court-chief-justice-ts-sivagnanam-resigns-from-sir-appellate-tribunal-533302
 
-[Read on Telegram](https://t.me/livelawindia/110479)
+[Read on Telegram](https://t.me/livelawindia/110496)
+
+---
+### 2026-05-07T13:08:27+00:00
+“I Did Not Sing It”: Honey Singh Denies Performing Controversial Song 'Volume 1' Before Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/honey-singh-volume-1-song-controversy-obscenity-533303
+
+[Read on Telegram](https://t.me/livelawindia/110497)
+
+---
+### 2026-05-07T13:33:17+00:00
+SC Judgment Didn't Say Law On Election Commissioners Must Be Made In A Particular Manner : Supreme Court During Hearing
+https://www.livelaw.in/top-stories/sc-judgment-didnt-say-law-on-election-commissioners-must-be-made-in-a-particular-manner-supreme-court-during-hearing-533308
+
+[Read on Telegram](https://t.me/livelawindia/110498)
+
+---
+### 2026-05-07T13:42:37+00:00
+Shashi Tharoor Moves Delhi High Court Seeking Protection Of His Personality Rights, Hearing Tomorrow
+https://www.livelaw.in/high-court/delhi-high-court/shashi-tharoor-moves-delhi-high-court-seeking-protection-of-his-personality-rights-hearing-tomorrow-533311
+
+[Read on Telegram](https://t.me/livelawindia/110499)
+
+---
+### 2026-05-07T14:00:27+00:00
+Para-Teachers' Claim For Regularisation Subject To Educational Standards Set By State : Supreme Court
+https://www.livelaw.in/supreme-court/para-teachers-claim-for-regularisation-subject-to-educational-standards-set-by-state-supreme-court-533315
+
+[Read on Telegram](https://t.me/livelawindia/110500)
+
+---
+### 2026-05-07T14:01:08+00:00
+Jana Nayagan Movie Leak: Accused Persons Approach Madras High Court Seeking Bail
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-jana-nayagan-leak-accused-seek-bail-533317
+
+[Read on Telegram](https://t.me/livelawindia/110501)
+
+---
+### 2026-05-07T14:01:47+00:00
+2026 LiveLaw (SC) 470 | SUNIL KUMAR YADAV AND OTHERS VERSUS THE STATE OF JHARKHAND AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-470-sunil-kumar-yadav-and-others-versus-the-state-of-jharkhand-and-others-533318
+
+[Read on Telegram](https://t.me/livelawindia/110502)
+
+---
+### 2026-05-07T14:08:07+00:00
+Delhi High Court Denies Interim Bail To PFI Leader Seeking Release To Meet Family Before Haj
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-denies-interim-bail-to-pfi-leader-seeking-release-to-meet-family-before-haj-533319
+
+[Read on Telegram](https://t.me/livelawindia/110503)
+
+---
+### 2026-05-07T14:17:27+00:00
+Claim That Body Remained At Spot For Two Days Due To Religious Practice Doesn't Explain Police Inaction: Meghalaya HC Acquits 3 In Murder Case
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-acquits-1991murder-case-533276
+
+[Read on Telegram](https://t.me/livelawindia/110504)
+
+---
+### 2026-05-07T14:19:47+00:00
+Sharing Urdu Poetry Without Commentary Or Incitement Doesn't Promote Enmity Between Religious Groups: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/sharing-urdu-poetry-not-enmity-between-religious-groups-533322
+
+[Read on Telegram](https://t.me/livelawindia/110505)
 
 ---
