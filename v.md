@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-06T16:02:44+00:00*
+*Last Updated: 2026-05-07T08:32:38+00:00*
+
+---
+
+### 2026-05-07T08:32:38+00:00
+Nothing Which Goes Against Grain Of Constitution Can Be Countenanced In Civilized Society: Raju Ramachandran On Limits Of Judicial Review In Sabarimala Reference
+https://www.verdictum.in/supreme-court/senior-advocate-raju-ramachandran-sabarimala-reference-temple-entry-1613546
+
+[Source Link](https://t.me/verdictumlegalupdates/26928)
+
+---
+
+### 2026-05-07T07:52:37+00:00
+Malicious Product Reviews Without Technical Basis Constitute Commercial Disparagement: Delhi High Court Restrains YouTubers From Targeting AI  Smartphones
+https://www.verdictum.in/delhi-high-court/nxtquantum-shift-technologies-india-private-limited-v-john-doe-cscomm-4292026-1613536
+
+[Source Link](https://t.me/verdictumlegalupdates/26927)
+
+---
+
+### 2026-05-07T07:12:55+00:00
+Granting Extension To File Chargesheet Not A Mere Formality: Supreme Court Grants Bail To UAPA Accused
+https://www.verdictum.in/supreme-court/md-ariz-hasnain-ariz-hasnain-v-state-of-jharkhand-2026-insc-456-uapa-1613532
+
+[Source Link](https://t.me/verdictumlegalupdates/26926)
+
+---
+
+### 2026-05-07T06:32:34+00:00
+Supreme Court Sets Aside NGT Orders Directing Closure Of Formaldehyde Units Operating Without Prior Environmental Clearance
+https://www.verdictum.in/supreme-court/neetu-solvents-v-vineet-nagar-ors-and-connected-matters-2026-insc-455-1613527
+
+[Source Link](https://t.me/verdictumlegalupdates/26925)
+
+---
+
+### 2026-05-07T05:52:52+00:00
+Revenue Records Do Not Confer Ownership Or Title; Serve Only Fiscal Purpose: Supreme Court
+https://www.verdictum.in/supreme-court/vadiyala-prabhakar-rao-v-the-government-of-andhra-pradesh-2026-insc-450-writ-jurisdiction-not-appropriate-declaring-land-title-1613522
+
+[Source Link](https://t.me/verdictumlegalupdates/26924)
+
+---
+
+### 2026-05-07T05:13:11+00:00
+Disciplinary Authority Cannot Punish Employee On Completely Different Charge Which Was Not Framed Without Issuing Fresh Show-Cause Notice: Supreme Court
+https://www.verdictum.in/supreme-court/dr-nigam-prakash-narain-v-national-medical-commission-2026-insc-453-suspension-of-76-year-old-doctor-1613520
+
+[Source Link](https://t.me/verdictumlegalupdates/26923)
+
+---
+
+### 2026-05-07T04:32:40+00:00
+Right To Life Has Priority Over Right To Celebrate: Bombay High Court Issues Notice To Organizers Over Noisy Ambedkar Jayanti Celebrations
+https://www.verdictum.in/bombay-high-court/dr-bhupendrakumar-k-wasnik-anr-vs-the-secretary-ministry-of-environment-forest-and-climate-change-1613499
+
+[Source Link](https://t.me/verdictumlegalupdates/26922)
 
 ---
 
@@ -105,62 +161,6 @@ Postal Department Can’t Indefinitely Withhold Account Operation Merely On Lega
 https://www.verdictum.in/telangana-high-court/girigalla-sriniva-v-the-union-of-india-postal-department-notice-allegations-1613470
 
 [Source Link](https://t.me/verdictumlegalupdates/26909)
-
----
-
-### 2026-05-06T07:53:17+00:00
-Corporate Veil Must Be Lifted When Group Companies Are ‘Inextricably Connected’ & Form One Concern: Supreme Court Grants Relief To Over 4000 Buyers
-https://www.verdictum.in/supreme-court/alpha-corp-development-private-limited-v-greater-noida-industrial-development-authority-2026-insc-449-cirp-1613466
-
-[Source Link](https://t.me/verdictumlegalupdates/26908)
-
----
-
-### 2026-05-06T07:13:15+00:00
-Natural Parent Cannot Be Denied Access To Child At Interlocutory Stage Absent Prima Facie Unfitness Or Welfare Risk: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/abc-v-xyz-guardianship-custody-visitation-natural-guardian-mother-minor-child-1613462
-
-[Source Link](https://t.me/verdictumlegalupdates/26907)
-
----
-
-### 2026-05-06T06:32:34+00:00
-Mere Fact That A Society Exercised Supervisory Or Managerial Functions Over Temple Won’t Confer Title Upon It: Supreme Court
-https://www.verdictum.in/supreme-court/kishan-chand-v-gautam-gaur-hitkarak-sabha-kota-2026-insc-448-society-temple-title-1613458
-
-[Source Link](https://t.me/verdictumlegalupdates/26906)
-
----
-
-### 2026-05-06T05:43:12+00:00
-Disciplinary Authority Cannot Direct Inquiry Officer To Submit Fresh Report On Same Evidence: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/sanjay-bansal-v-madhya-pradesh-gramin-bank-ors-1613452
-
-[Source Link](https://t.me/verdictumlegalupdates/26905)
-
----
-
-### 2026-05-06T05:02:11+00:00
-Single Judge Ruling Holding Field For Significant Duration Shouldn’t Be Unsettled Unless It Is Per Incuriam: Jammu & Kashmir and Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/union-territory-of-jammu-kashmir-and-others-v-ravinder-kanta-2026jklhc-jmu122-single-judge-ruling-1613448
-
-[Source Link](https://t.me/verdictumlegalupdates/26904)
-
----
-
-### 2026-05-06T04:32:59+00:00
-Delhi High Court Raps Indian Express For “Deplorable” Reporting On Spurious Cancer Drug Racket Case, Grants Bail To Accused
-https://www.verdictum.in/delhi-high-court/pravez-khan-v-directorate-of-enforcement-connected-matters-2026dhc3773-1613426
-
-[Source Link](https://t.me/verdictumlegalupdates/26903)
-
----
-
-### 2026-05-05T16:02:55+00:00
-Junior Consultant (Law) Vacancy At Warehousing Development and Regulatory Authority (WDRA)
-https://www.verdictum.in/job-updates/warehousing-development-and-regulatory-authority-1613428
-
-[Source Link](https://t.me/verdictumlegalupdates/26902)
 
 ---
 
