@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-07T12:53:47+00:00*
+*Last Updated: 2026-05-07T13:02:37+00:00*
 
 ---
 
-### 2026-05-07T12:53:47+00:00
-Allahabad High Court Directs UP Govt To Pay ₹10 Lakh Compensation To Man Over 3-Month Illegal Detention
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-up-govt-10-lakh-compensation-3-month-illegal-detention-533301
-
-[Read on Telegram](https://t.me/livelawindia/110494)
-
----
 ### 2026-05-07T13:02:37+00:00
 Preliminary Verification Closure Not Equivalent To Closure Report Under CrPC: J&K&L High Court Refuses To Quash FIR
 https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-preliminary-verification-closure-does-not-bar-subsequent-fir-if-fresh-material-discloses-cognizable-offence-533274
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : May 7, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-7-2026-533335
 
 [Read on Telegram](https://t.me/livelawindia/110513)
+
+---
+### 2026-05-08T03:33:00+00:00
+Mentioning Grounds Of Arrest In Remand Report Without Service To Arrestee Not Valid Communication: Andhra Pradesh High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-service-remand-report-grounds-arrest-533333
+
+[Read on Telegram](https://t.me/livelawindia/110514)
 
 ---
