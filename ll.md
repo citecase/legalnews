@@ -1,107 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-08T09:32:28+00:00*
+*Last Updated: 2026-05-08T13:03:57+00:00*
 
 ---
 
-### 2026-05-08T09:32:28+00:00
-Competent Authority Under Maharashtra Rent Act Cannot Examine Documents Beyond Leave & License Agreement In Eviction Proceedings: Bombay HC
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-competent-authority-leave-and-license-agreement-533340
-
-[Read on Telegram](https://t.me/livelawindia/110560)
-
----
-### 2026-05-08T09:47:48+00:00
-Permanent Lok Adalat Can't Adjudicate Disputes Without Mandatory Conciliation Under Legal Services Authorities Act: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-permanent-lok-adalat-mandatory-conciliation-adjudicate-533395
-
-[Read on Telegram](https://t.me/livelawindia/110561)
-
----
-### 2026-05-08T10:02:19+00:00
-Minority Commission Can't Bypass Civil Court's Jurisdiction To Pass Eviction Orders: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-minority-commission-eviction-order-533424
-
-[Read on Telegram](https://t.me/livelawindia/110562)
-
----
-### 2026-05-08T10:32:04+00:00
-Punjab Drug Menace Terrible, Police Only Catching Small Peddlers: CJI Surya Kant
-https://www.livelaw.in/top-stories/supreme-court-pulls-up-punjab-failure-to-tackle-drug-abuse-attempt-to-seek-publicity-non-arrest-of-influential-persons-533430
-
-[Read on Telegram](https://t.me/livelawindia/110563)
-
----
-### 2026-05-08T10:40:44+00:00
-SCBA Election | Supreme Court Suggests Creation Of Second Vice President Post From 2027 Onwards For Women
-https://www.livelaw.in/top-stories/scba-election-supreme-court-suggests-creation-of-second-vice-president-post-from-2027-onwards-for-women-533431
-
-[Read on Telegram](https://t.me/livelawindia/110564)
-
----
-### 2026-05-08T10:43:24+00:00
-'92 Witnesses Turned Hostile, No Evidence Of Politician-Police Nexus': Bombay High Court While Acquitting 22 Cops In Fake Encounter Case
-https://www.livelaw.in/high-court/bombay-high-court/sohrabuddin-fake-encounter-22-cops-acquittal-no-political-nexus-92-hostile-witnesses-533433
-
-[Read on Telegram](https://t.me/livelawindia/110565)
-
----
-### 2026-05-08T10:58:14+00:00
-Plea In Supreme Court Challenges Mizoram Inheritance Law For Excluding Mizo Women Marrying Non-Mizo Men
-https://www.livelaw.in/top-stories/plea-in-supreme-court-challenges-mizoram-inheritance-law-for-excluding-mizo-women-marrying-non-mizo-men-533434
-
-[Read on Telegram](https://t.me/livelawindia/110566)
-
----
-### 2026-05-08T11:10:14+00:00
-Bombay HC Rejects Plea Against Amit Shah's Discharge In Sohrabuddin Fake Encounter Case; Says May Have Been Filed By “Political Adversary”
-https://www.livelaw.in/high-court/bombay-high-court/amit-shah-discharge-upheld-sohrabuddin-fake-encounter-533438
-
-[Read on Telegram](https://t.me/livelawindia/110567)
-
----
-### 2026-05-08T11:28:34+00:00
-Great Nicobar Project: Calcutta HC Upholds Maintainability Of PILs Alleging Forest Rights Act Violations, Calls Tribals 'Very Vulnerable'
-https://www.livelaw.in/high-court/calcutta-high-court/great-nicobar-project-calcutta-hc-upholds-maintainability-of-pils-alleging-forest-rights-act-violations-calls-tribal-people-very-vulnerable-533443
-
-[Read on Telegram](https://t.me/livelawindia/110568)
-
----
-### 2026-05-08T12:29:45+00:00
-Maharashtra Can't Deny Financial Aid To Child Care NGOs While Funding Welfare Schemes Like Ladki Bahin: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/state-fund-ladki-bahin-yojana-but-deny-financial-aid-to-child-institutions-533448
-
-[Read on Telegram](https://t.me/livelawindia/110569)
-
----
-### 2026-05-08T12:46:55+00:00
-Supreme Court Takes Cognisance Of SCBA Resolution Against AP HC Judge Ordering Custody Of Young Lawyer Mid-Hearing
-https://www.livelaw.in/top-stories/supreme-court-takes-cognisance-of-scba-resolution-against-ap-hc-judge-ordering-custody-of-young-lawyer-mid-hearing-533451
-
-[Read on Telegram](https://t.me/livelawindia/110570)
-
----
-### 2026-05-08T12:47:35+00:00
-Disaster Management Act | District Authority Can't Issue Memo To Stop Construction Over Ground Water Depletion: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-disaster-management-act-stop-memo-533449
-
-[Read on Telegram](https://t.me/livelawindia/110571)
-
----
-### 2026-05-08T12:52:47+00:00
-2026 CLAT-UG | Allahabad High Court Restores Final Answer Key, Sets Aside Single Judge Direction To Revise Merit List
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-2026-clat-ug-restores-final-answer-key-single-judge-direction-revise-merit-list-533452
-
-[Read on Telegram](https://t.me/livelawindia/110572)
-
----
-### 2026-05-08T13:03:27+00:00
-Chhattisgarh High Court Upholds Acquittal In 2010 Dantewada Naxal Attack Which Killed 76 Security Personnel, Laments State's 'Flawed Probe'
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-upholds-acquittals-dantewada-tadmetla-naxal-attack-533450
-
-[Read on Telegram](https://t.me/livelawindia/110573)
-
----
 ### 2026-05-08T13:03:57+00:00
 Extending Time To File Chargesheet Without Hearing Accused Illegal : Supreme Court Grants Default Bail To UAPA Accused
 https://www.livelaw.in/supreme-court/extending-time-to-file-chargesheet-without-hearing-accused-illegal-supreme-court-grants-default-bail-to-uapa-accused-533454
@@ -142,5 +44,103 @@ LiveLaw All High Courts 2025 Digests In One Place
 https://www.livelaw.in/top-stories/indian-high-courts-2025-important-judgments-digest-533464
 
 [Read on Telegram](https://t.me/livelawindia/110579)
+
+---
+### 2026-05-08T14:02:28+00:00
+Genuine Residents Can't Be Left Remediless Due To Aadhaar Deactivation, Biometric Mismatch: Bombay High Court Issues Guidelines
+https://www.livelaw.in/high-court/bombay-high-court/aadhar-deactivation-biometric-mismatch-remedy-uidai-humane-approach-533462
+
+[Read on Telegram](https://t.me/livelawindia/110580)
+
+---
+### 2026-05-08T14:17:18+00:00
+Railways 'Consumer' Under Electricity Act, Not Deemed Distribution Licensee : Supreme Court
+https://www.livelaw.in/supreme-court/railways-consumer-under-electricity-act-not-deemed-distribution-licensee-supreme-court-533465
+
+[Read on Telegram](https://t.me/livelawindia/110581)
+
+---
+### 2026-05-08T14:17:38+00:00
+Punjab & Haryana High Court Grants Bail To Rapido Cab Driver Whose Customer Was Apprehended With Drugs
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-ndps-grants-bail-to-rapido-cab-driver-whose-customer-apprehended-with-contraband-533461
+
+[Read on Telegram](https://t.me/livelawindia/110582)
+
+---
+### 2026-05-08T14:18:38+00:00
+2026 LiveLaw (SC) 476 | INDIAN RAILWAYS VERSUS WEST BENGAL STATE ELECTRICITY DISTRIBUTION COMPANY LIMITED & ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-476-indian-railways-versus-west-bengal-state-electricity-distribution-company-limited-ors-533466
+
+[Read on Telegram](https://t.me/livelawindia/110583)
+
+---
+### 2026-05-08T14:22:18+00:00
+Supreme Court Closes Case Over West Bengal VC Appointments, Approves Candidates For Remaining 3 Universities
+https://www.livelaw.in/top-stories/supreme-court-west-bengal-universities-vice-chancellor-appointment-candidates-for-remaining-3-approved-justice-uu-lalit-committee-533467
+
+[Read on Telegram](https://t.me/livelawindia/110584)
+
+---
+### 2026-05-08T14:32:38+00:00
+"Vindictive": MP High Court Quashes Suspension Of Cop Who Raided IAS Officer's Farmhouse Over Gambling Allegations
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-quashes-suspension-illegal-gambling-racket-iass-farmhouse-533460
+
+[Read on Telegram](https://t.me/livelawindia/110585)
+
+---
+### 2026-05-08T14:47:58+00:00
+MP High Court Constitutes Committee To Protect Gwalior Hillocks From Encroachment, Illegal Excavation By Land Mafia
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-gwalior-hillocks-illegal-encroachment-land-mafia-public-interest-litigation-533463
+
+[Read on Telegram](https://t.me/livelawindia/110586)
+
+---
+### 2026-05-08T14:55:58+00:00
+“Administrative Lethargy Can Never Be Sufficient Cause”: Delhi High Court Refuses To Condone DDA's 1600-Days Delay
+https://www.livelaw.in/high-court/delhi-high-court/administrative-lethargy-can-never-be-sufficient-cause-delhi-high-court-refuses-to-condone-ddas-1600-days-delay-533474
+
+[Read on Telegram](https://t.me/livelawindia/110587)
+
+---
+### 2026-05-08T14:57:18+00:00
+'143 Premature Release Applications Pending Before Remission Board; Delay Defeats Reformative Objective': Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-143-premature-release-applications-pending-remission-board-533477
+
+[Read on Telegram](https://t.me/livelawindia/110588)
+
+---
+### 2026-05-08T15:19:28+00:00
+2026 LiveLaw (SC) 477 | Anand Narayan Shukla v Jagat Dhari
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-477-anand-narayan-shukla-v-jagat-dhari-533492
+
+[Read on Telegram](https://t.me/livelawindia/110589)
+
+---
+### 2026-05-08T15:32:29+00:00
+Employee Resigning In Breach Of Service Bond Cannot Force Employer To Issue Relieving Letter Or Experience Certificate: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-employee-resigning-breach-service-bond-relieving-letter-experience-certificate-533475
+
+[Read on Telegram](https://t.me/livelawindia/110590)
+
+---
+### 2026-05-08T15:32:38+00:00
+Inherent Powers U/S 151 CPC Can Be Exercised Post-Award To Prevent Unjust Enrichment In Land Acquisition Cases: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-inherent-powers-under-section-151-cpc-can-be-exercised-post-award-to-prevent-unjust-enrichment-in-land-acquisition-cases-533484
+
+[Read on Telegram](https://t.me/livelawindia/110591)
+
+---
+### 2026-05-08T16:02:48+00:00
+'Ruse To Avoid Conviction': Delhi High Court Refuses To Quash POCSO Case Despite Marriage Between Accused, Prosecutrix
+https://www.livelaw.in/high-court/delhi-high-court/ruse-to-avoid-conviction-delhi-high-court-refuses-to-quash-pocso-case-despite-marriage-between-accused-prosecutrix-533478
+
+[Read on Telegram](https://t.me/livelawindia/110592)
+
+---
+### 2026-05-08T17:08:02+00:00
+Supreme Court Daily Round-Up : May 8, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-8-2026-533496
+
+[Read on Telegram](https://t.me/livelawindia/110593)
 
 ---
