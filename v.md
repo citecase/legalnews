@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-08T08:03:02+00:00*
+*Last Updated: 2026-05-08T11:52:45+00:00*
+
+---
+
+### 2026-05-08T11:52:45+00:00
+Subsequent Payment Of Maintenance Does Not Cure Breach That Triggered Revocation Of Property Transfer U/S 23 Senior Citizens Act: Bombay High Court
+https://www.verdictum.in/bombay-high-court/shambhaji-balakrishna-zambre-v-chayya-balakrishna-zambre-2026bhc-kol3563-1613628
+
+[Source Link](https://t.me/verdictumlegalupdates/26954)
+
+---
+
+### 2026-05-08T11:13:02+00:00
+Supreme Court Seeks  Response On Gujarat AAP’s Plea Challenging Suspension Of Its Social Media Accounts
+https://www.verdictum.in/supreme-court/supreme-court-seeks-response-on-gujarat-aaps-plea-challenging-suspension-of-its-social-media-accounts-1613626
+
+[Source Link](https://t.me/verdictumlegalupdates/26953)
+
+---
+
+### 2026-05-08T10:42:41+00:00
+Section 14 Limitation Act Can Apply To Time Spent In Bona Fide Proceedings U/S. 9 IBC Rejected Over "Pre-Existing Dispute": Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/jones-lang-lasalle-property-consultants-india-private-limited-v-m-a-leasing-and-construction-pvt-ltd-cs-com-1712025-us-141-limitation-act-1613625
+
+[Source Link](https://t.me/verdictumlegalupdates/26952)
+
+---
+
+### 2026-05-08T10:03:19+00:00
+“Non-Application Of Mind At The Highest Level”: Allahabad High Court Imposes ₹10L Costs On State For Prolonging Illegal Incarceration
+https://www.verdictum.in/allahabad-high-court/manoj-kumar-through-mudit-kumar-v-state-of-up-through-principal-secretary-home-department-2026ahc-lko31073-db-1613624
+
+[Source Link](https://t.me/verdictumlegalupdates/26951)
+
+---
+
+### 2026-05-08T09:34:37+00:00
+False Averments In Plaint Disentitle Plaintiff To Mandatory Injunction, Even If Encroachment Established: Himachal Pradesh High Court
+https://www.verdictum.in/himachal-high-court/ravinder-panwar-v-varinder-2026hhc13032-false-averments-discretionary-relief-of-mandatory-injunction-1613620
+
+[Source Link](https://t.me/verdictumlegalupdates/26950)
+
+---
+
+### 2026-05-08T09:02:35+00:00
+State Cannot Deny Aid To Child Care Institutions Without Justification While It Runs Schemes Like Ladki Bahin Yojana: Bombay High Court
+https://www.verdictum.in/bombay-high-court/yuvraj-santrao-bhole-ors-v-state-of-maharashtra-ors-and-connected-matters-2026bhc-aug20588-db-1613618
+
+[Source Link](https://t.me/verdictumlegalupdates/26949)
+
+---
+
+### 2026-05-08T08:32:34+00:00
+Can't Expect Teachers Without Job Security To Guarantee A Child’s Future: Supreme Court Directs Exclusive Selection For SSA Para-Teachers
+https://www.verdictum.in/supreme-court/sunil-kumar-yadav-v-the-state-of-jharkhand-2026-insc-462-exclusive-selection-for-ssa-para-teachers-1613617
+
+[Source Link](https://t.me/verdictumlegalupdates/26948)
 
 ---
 
@@ -105,62 +161,6 @@ Andhra Pradesh High Court's Order Against Junior Advocate: The Stand Of Bar Bodi
 https://www.verdictum.in/news/custody-order-junior-advocate-justice-tarlada-rajasekhar-rao-1613566
 
 [Source Link](https://t.me/verdictumlegalupdates/26935)
-
----
-
-### 2026-05-07T12:32:21+00:00
-High Court Rules Framed Under Article 227 Cannot Override Law Declared By Supreme Court: Andhra Pradesh High Court
-https://www.verdictum.in/andhra-pradesh-high-court/bheemisetti-suryanarayana-v-bheemisetti-mrudula-naga-rules-high-article-227-1613552
-
-[Source Link](https://t.me/verdictumlegalupdates/26934)
-
----
-
-### 2026-05-07T11:52:19+00:00
-Application U/S 28 Specific Relief Act Not Mandatory; Court Not Powerless To Treat Contract As Rescinded For Non-Compliance Of Condition: Supreme Court
-https://www.verdictum.in/supreme-court/habban-shah-v-sheruddin-2026-insc-451-decree-becomes-inexecutable-1613551
-
-[Source Link](https://t.me/verdictumlegalupdates/26933)
-
----
-
-### 2026-05-07T11:12:55+00:00
-Only  ‘Chancellor’ Can Annul Earlier Decisions Of University, Not ‘Syndicate’: Manipur High Court Upholds DMU Assistant Professor Selection
-https://www.verdictum.in/manipur-high-court/dr-thongram-kamala-devi-v-the-dhanamanjuri-university-wpc-no-633-of-2024-dmu-assistant-professor-selection-1613550
-
-[Source Link](https://t.me/verdictumlegalupdates/26932)
-
----
-
-### 2026-05-07T10:33:03+00:00
-"Vexatious Claim To Grab Property": Madras High Court Rejects Plaint Filed Against Boney Kapoor, Jhanvi Kapoor In Sridevi Property Case
-https://www.verdictum.in/madras-high-court/boney-kapoor-ors-v-mc-sivakami-ors-jhanvi-kapoor-sridevi-khushi-1613549
-
-[Source Link](https://t.me/verdictumlegalupdates/26931)
-
----
-
-### 2026-05-07T09:52:42+00:00
-Supreme Court Appoints Former CJI DY Chandrachud As Mediator In Rani Kapur And Priya Kapur Dispute
-https://www.verdictum.in/supreme-court/supreme-court-appoints-former-cji-dy-chandrachud-as-mediator-in-rani-kapur-and-priya-kapur-dispute-1613547
-
-[Source Link](https://t.me/verdictumlegalupdates/26930)
-
----
-
-### 2026-05-07T09:13:00+00:00
-Accused Should Not Be Subjected To Public Condemnation Through Media Exposure & Staged Photographs: Rajasthan High Court Issues Guidelines
-https://www.verdictum.in/rajasthan-high-court/islam-khan-v-state-of-rajasthan-sb-criminal-writ-petition-no-2242026-issues-guidelines-as-dos-donts-police-1613545
-
-[Source Link](https://t.me/verdictumlegalupdates/26929)
-
----
-
-### 2026-05-07T08:32:38+00:00
-Nothing Which Goes Against Grain Of Constitution Can Be Countenanced In Civilized Society: Raju Ramachandran On Limits Of Judicial Review In Sabarimala Reference
-https://www.verdictum.in/supreme-court/senior-advocate-raju-ramachandran-sabarimala-reference-temple-entry-1613546
-
-[Source Link](https://t.me/verdictumlegalupdates/26928)
 
 ---
 
