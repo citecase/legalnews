@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-08T05:18:00+00:00*
+*Last Updated: 2026-05-08T09:32:28+00:00*
 
 ---
 
-### 2026-05-08T05:18:00+00:00
-“Not An Explanation But A Lame Excuse”: Delhi High Court Rejects State's Plea To Condon 541-Day Delay In POCSO Appeal
-https://www.livelaw.in/high-court/delhi-high-court/not-an-explanation-but-a-lame-excuse-delhi-high-court-rejects-states-plea-to-condon-541-day-delay-in-pocso-appeal-533347
+### 2026-05-08T09:32:28+00:00
+Competent Authority Under Maharashtra Rent Act Cannot Examine Documents Beyond Leave & License Agreement In Eviction Proceedings: Bombay HC
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-competent-authority-leave-and-license-agreement-533340
 
-[Read on Telegram](https://t.me/livelawindia/110530)
-
----
-### 2026-05-08T05:23:39+00:00
-WB Polls: PIL In Calcutta High Court Seeks Action Against Alleged 'Bulldozer Demolition' At Kolkata's New Market
-https://www.livelaw.in/high-court/calcutta-high-court/wb-polls-plea-in-calcutta-high-court-seeks-action-against-alleged-bulldozer-demolition-near-kolkatas-new-market-533374
-
-[Read on Telegram](https://t.me/livelawindia/110531)
+[Read on Telegram](https://t.me/livelawindia/110560)
 
 ---
-### 2026-05-08T05:33:19+00:00
-Hindu Widow's Limited Estate Under Will Ripens Into Absolute Ownership Under Section 14 Of Hindu Succession Act: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/hindu-widows-limited-estate-will-absolute-ownership-section-14-hindu-succession-act-533359
+### 2026-05-08T09:47:48+00:00
+Permanent Lok Adalat Can't Adjudicate Disputes Without Mandatory Conciliation Under Legal Services Authorities Act: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-permanent-lok-adalat-mandatory-conciliation-adjudicate-533395
 
-[Read on Telegram](https://t.me/livelawindia/110532)
-
----
-### 2026-05-08T05:33:29+00:00
-Delhi High Court To Pass Order Protecting Personality Rights Of Congress MP Shashi Tharoor
-https://www.livelaw.in/high-court/delhi-high-court/shashi-tharoor-personality-rights-interim-protection-533375
-
-[Read on Telegram](https://t.me/livelawindia/110533)
+[Read on Telegram](https://t.me/livelawindia/110561)
 
 ---
-### 2026-05-08T05:44:10+00:00
-Sringeri Votes Recount Row Reaches Supreme Court; Raje Gowda Moves Supreme Court Against Karnataka High Court Order
-https://www.livelaw.in/top-stories/sringeri-votes-recount-row-reaches-supreme-court-raje-gowda-moves-supreme-court-against-karnataka-high-court-order-533377
+### 2026-05-08T10:02:19+00:00
+Minority Commission Can't Bypass Civil Court's Jurisdiction To Pass Eviction Orders: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-minority-commission-eviction-order-533424
 
-[Read on Telegram](https://t.me/livelawindia/110534)
-
----
-### 2026-05-08T05:47:50+00:00
-Karnataka High Court Permits Continuation Of Hormone Replacement Therapy For Two Transgender Persons Challenging 2026 Amendment Act
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-permits-hormone-replacement-therapy-transwomen-533378
-
-[Read on Telegram](https://t.me/livelawindia/110535)
+[Read on Telegram](https://t.me/livelawindia/110562)
 
 ---
-### 2026-05-08T06:03:30+00:00
-Bombay High Court Refuses Bail In Former State Minister Baba Siddique Murder Case, Says Co-Accused Confession Admissible Under MCOCA
-https://www.livelaw.in/high-court/bombay-high-court/baba-siddique-murder-accused-denied-bail-mcoca-confession-533380
+### 2026-05-08T10:32:04+00:00
+Punjab Drug Menace Terrible, Police Only Catching Small Peddlers: CJI Surya Kant
+https://www.livelaw.in/top-stories/supreme-court-pulls-up-punjab-failure-to-tackle-drug-abuse-attempt-to-seek-publicity-non-arrest-of-influential-persons-533430
 
-[Read on Telegram](https://t.me/livelawindia/110536)
-
----
-### 2026-05-08T06:04:10+00:00
-Supreme Court Seeks Union's Response On AAP Plea Against Suspension Of Gujarat Unit's Instagram & Facebook Accounts
-https://www.livelaw.in/top-stories/supreme-court-seeks-unions-response-on-aap-plea-against-suspension-of-gujarat-units-instagram-facebook-accounts-533381
-
-[Read on Telegram](https://t.me/livelawindia/110537)
+[Read on Telegram](https://t.me/livelawindia/110563)
 
 ---
-### 2026-05-08T06:18:10+00:00
-Summary Procedure Under Protection Of Depositors' Interest Act Self Contained, Plea For Rejection Of Plaint Not Maintainable: Karnataka HC
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-order7rule11-cpc-kpidfe-act-533336
+### 2026-05-08T10:40:44+00:00
+SCBA Election | Supreme Court Suggests Creation Of Second Vice President Post From 2027 Onwards For Women
+https://www.livelaw.in/top-stories/scba-election-supreme-court-suggests-creation-of-second-vice-president-post-from-2027-onwards-for-women-533431
 
-[Read on Telegram](https://t.me/livelawindia/110538)
-
----
-### 2026-05-08T06:33:00+00:00
-Unregistered Agreement To Sell Can Be Used For Purpose Of Assessing Nature Of Possession At Interim Stage: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-unregistered-agreement-to-sell-can-be-used-for-collateral-purpose-of-assessing-nature-of-possession-at-interim-injunction-stage-533339
-
-[Read on Telegram](https://t.me/livelawindia/110539)
+[Read on Telegram](https://t.me/livelawindia/110564)
 
 ---
-### 2026-05-08T06:38:01+00:00
-Didn't Go For Judicial Service At Career Start As A Judge Advised  ''Bar Is Waiting For You" : CJI Surya Kant Recalls
-https://www.livelaw.in/top-stories/didnt-go-for-judicial-service-at-career-start-as-a-judge-advised-bar-is-waiting-for-you-cji-surya-kant-recalls-533386
+### 2026-05-08T10:43:24+00:00
+'92 Witnesses Turned Hostile, No Evidence Of Politician-Police Nexus': Bombay High Court While Acquitting 22 Cops In Fake Encounter Case
+https://www.livelaw.in/high-court/bombay-high-court/sohrabuddin-fake-encounter-22-cops-acquittal-no-political-nexus-92-hostile-witnesses-533433
 
-[Read on Telegram](https://t.me/livelawindia/110540)
-
----
-### 2026-05-08T06:47:21+00:00
-MP High Court Refuses To Quash FIR Under Anti-Conversion Law, Says Minor's Statement Prima Facie Implicates Accused
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-mp-freedom-of-religion-act-forcing-family-to-convert-to-islam-533365
-
-[Read on Telegram](https://t.me/livelawindia/110541)
+[Read on Telegram](https://t.me/livelawindia/110565)
 
 ---
-### 2026-05-08T06:54:17+00:00
-Lakhimpur Kheri Case : Supreme Court Expresses Disappointment At Non-Examination Of Witnesses, Asks Trial Judge To Ensure Their Presence
-https://www.livelaw.in/top-stories/lakhimpur-kheri-case-supreme-court-expresses-disappointment-at-non-examination-of-witnesses-asks-trial-judge-to-ensure-their-presence-533393
+### 2026-05-08T10:58:14+00:00
+Plea In Supreme Court Challenges Mizoram Inheritance Law For Excluding Mizo Women Marrying Non-Mizo Men
+https://www.livelaw.in/top-stories/plea-in-supreme-court-challenges-mizoram-inheritance-law-for-excluding-mizo-women-marrying-non-mizo-men-533434
 
-[Read on Telegram](https://t.me/livelawindia/110542)
-
----
-### 2026-05-08T07:02:37+00:00
-Family Court Can't Refuse Mutual Consent Divorce Merely Because Couple Gives No Reason For Living Separately: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-inquiry-mutual-consent-divorce-section-10a-divorce-act-533373
-
-[Read on Telegram](https://t.me/livelawindia/110543)
+[Read on Telegram](https://t.me/livelawindia/110566)
 
 ---
-### 2026-05-08T07:06:37+00:00
-'Very Disturbing', Supreme Court Grants Bail To Convict In Jail For 22 Years, Faults Orissa HC For Rejecting Appeal On Delay
-https://www.livelaw.in/supreme-court/very-disturbing-supreme-court-grants-bail-to-convict-in-jail-for-22-years-faults-orissa-hc-for-rejecting-appeal-on-delay-533397
+### 2026-05-08T11:10:14+00:00
+Bombay HC Rejects Plea Against Amit Shah's Discharge In Sohrabuddin Fake Encounter Case; Says May Have Been Filed By “Political Adversary”
+https://www.livelaw.in/high-court/bombay-high-court/amit-shah-discharge-upheld-sohrabuddin-fake-encounter-533438
 
-[Read on Telegram](https://t.me/livelawindia/110544)
-
----
-### 2026-05-08T07:07:38+00:00
-2026 LiveLaw (SC) 473 | ARJUN JANI @ TUNTUN VERSUS STATE OF ORISSA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-473-arjun-jani-tuntun-versus-state-of-orissa-533398
-
-[Read on Telegram](https://t.me/livelawindia/110545)
+[Read on Telegram](https://t.me/livelawindia/110567)
 
 ---
-### 2026-05-08T07:17:17+00:00
-Delhi High Court Orders Perjury Proceedings Against Company Over Prima Facie False Pleadings, Fabricated NDAs
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-orders-perjury-proceedings-against-company-over-prima-facie-false-pleadings-fabricated-ndas-533350
+### 2026-05-08T11:28:34+00:00
+Great Nicobar Project: Calcutta HC Upholds Maintainability Of PILs Alleging Forest Rights Act Violations, Calls Tribals 'Very Vulnerable'
+https://www.livelaw.in/high-court/calcutta-high-court/great-nicobar-project-calcutta-hc-upholds-maintainability-of-pils-alleging-forest-rights-act-violations-calls-tribal-people-very-vulnerable-533443
 
-[Read on Telegram](https://t.me/livelawindia/110546)
-
----
-### 2026-05-08T07:32:30+00:00
-Fatal Accident Claims Under 1855 Act To Be Registered As Original Suits; Appeal Under S.96 CPC Maintainable Against Decree: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-fatal-accident-original-petitions-appeallable-under-cpc-533364
-
-[Read on Telegram](https://t.me/livelawindia/110547)
+[Read on Telegram](https://t.me/livelawindia/110568)
 
 ---
-### 2026-05-08T07:41:50+00:00
-MP Minister Vijay Shah Probably Wanted To Praise Colonel Sofiya Qureshi, But Ended Up Saying Something Else : SG Tells Supreme Court
-https://www.livelaw.in/top-stories/mp-minister-vijay-shah-probably-wanted-to-praise-colonel-sofiya-qureshi-but-ended-up-saying-something-else-sg-tells-supreme-court-533401
+### 2026-05-08T12:29:45+00:00
+Maharashtra Can't Deny Financial Aid To Child Care NGOs While Funding Welfare Schemes Like Ladki Bahin: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/state-fund-ladki-bahin-yojana-but-deny-financial-aid-to-child-institutions-533448
 
-[Read on Telegram](https://t.me/livelawindia/110548)
+[Read on Telegram](https://t.me/livelawindia/110569)
 
 ---
-### 2026-05-08T07:47:50+00:00
-Cyber Crimes Affect Society At Large, Can't Be Quashed Solely Based On Compromise Between Parties: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-cyber-crimes-quashed-compromise-between-parties-533360
+### 2026-05-08T12:46:55+00:00
+Supreme Court Takes Cognisance Of SCBA Resolution Against AP HC Judge Ordering Custody Of Young Lawyer Mid-Hearing
+https://www.livelaw.in/top-stories/supreme-court-takes-cognisance-of-scba-resolution-against-ap-hc-judge-ordering-custody-of-young-lawyer-mid-hearing-533451
 
-[Read on Telegram](https://t.me/livelawindia/110549)
+[Read on Telegram](https://t.me/livelawindia/110570)
+
+---
+### 2026-05-08T12:47:35+00:00
+Disaster Management Act | District Authority Can't Issue Memo To Stop Construction Over Ground Water Depletion: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-disaster-management-act-stop-memo-533449
+
+[Read on Telegram](https://t.me/livelawindia/110571)
+
+---
+### 2026-05-08T12:52:47+00:00
+2026 CLAT-UG | Allahabad High Court Restores Final Answer Key, Sets Aside Single Judge Direction To Revise Merit List
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-2026-clat-ug-restores-final-answer-key-single-judge-direction-revise-merit-list-533452
+
+[Read on Telegram](https://t.me/livelawindia/110572)
+
+---
+### 2026-05-08T13:03:27+00:00
+Chhattisgarh High Court Upholds Acquittal In 2010 Dantewada Naxal Attack Which Killed 76 Security Personnel, Laments State's 'Flawed Probe'
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-upholds-acquittals-dantewada-tadmetla-naxal-attack-533450
+
+[Read on Telegram](https://t.me/livelawindia/110573)
+
+---
+### 2026-05-08T13:03:57+00:00
+Extending Time To File Chargesheet Without Hearing Accused Illegal : Supreme Court Grants Default Bail To UAPA Accused
+https://www.livelaw.in/supreme-court/extending-time-to-file-chargesheet-without-hearing-accused-illegal-supreme-court-grants-default-bail-to-uapa-accused-533454
+
+[Read on Telegram](https://t.me/livelawindia/110574)
+
+---
+### 2026-05-08T13:05:37+00:00
+2026 LiveLaw (SC) 475 | Md. ARIZ HASNAIN @ ARIZ HASNAIN VERSUS STATE OF JHARKHAND
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-475-md-ariz-hasnain-ariz-hasnain-versus-state-of-jharkhand-533455
+
+[Read on Telegram](https://t.me/livelawindia/110575)
+
+---
+### 2026-05-08T13:08:37+00:00
+BREAKING| TVK Member Moves Supreme Court Seeking To Direct TN Governor To Invite Vijay's Party To Form Government
+https://www.livelaw.in/top-stories/tvk-member-moves-supreme-court-seeking-to-direct-tn-governor-to-invite-vijays-party-to-fom-government-533456
+
+[Read on Telegram](https://t.me/livelawindia/110576)
+
+---
+### 2026-05-08T13:29:37+00:00
+Bhojshala Temple-Kamal Maula Mosque Row | ASI Records, Inscriptions Show Temple Existed At Site: Hindu Petitioners Tell MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bhojshala-temple-kamal-maula-mosque-dispute-site-remains-is-a-temple-kuldeep-tiwari-533458
+
+[Read on Telegram](https://t.me/livelawindia/110577)
+
+---
+### 2026-05-08T13:48:08+00:00
+'Matru Devo Bhava': Punjab & Haryana High Court Upholds ₹30,000 Interim Maintenance To Aged Mother, Directs Deduction From Son's Salary
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-upholds-30000-interim-maintenance-to-aged-mother-issues-salary-deduction-directions-533459
+
+[Read on Telegram](https://t.me/livelawindia/110578)
+
+---
+### 2026-05-08T13:58:08+00:00
+LiveLaw All High Courts 2025 Digests In One Place
+https://www.livelaw.in/top-stories/indian-high-courts-2025-important-judgments-digest-533464
+
+[Read on Telegram](https://t.me/livelawindia/110579)
 
 ---
