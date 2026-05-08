@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-07T16:02:19+00:00*
+*Last Updated: 2026-05-08T08:03:02+00:00*
+
+---
+
+### 2026-05-08T08:03:02+00:00
+Power Generating Utility Cannot Recover Depreciation From Consumers Beyond Approved PPA Period: Supreme Court
+https://www.verdictum.in/supreme-court/delhi-electricity-regulatory-commission-v-tata-power-delhi-distribution-limited-2026-insc-461-1613613
+
+[Source Link](https://t.me/verdictumlegalupdates/26947)
+
+---
+
+### 2026-05-08T07:32:59+00:00
+Supreme Court Refuses To Grant Bail To Student Accused Of Inciting Violence In Noida During Workers’ Protest; Says 93k Cases Pending In Apex Court
+https://www.verdictum.in/supreme-court/supreme-court-refuses-to-grant-bail-to-student-accused-of-inciting-violence-in-noida-during-workers-protest-says-93k-cases-pending-in-apex-court-1613607
+
+[Source Link](https://t.me/verdictumlegalupdates/26946)
+
+---
+
+### 2026-05-08T07:02:58+00:00
+IBC Not Forum For Adjudication Of Individual Contractual Claims; Can’t Be Used As Tool For Coercion & Debt Recovery: Supreme Court
+https://www.verdictum.in/supreme-court/dhanlaxmi-bank-limited-v-mohammed-javed-sultan-ors-2026-insc-460-ibc-individual-contractual-claims-1613605
+
+[Source Link](https://t.me/verdictumlegalupdates/26945)
+
+---
+
+### 2026-05-08T06:32:16+00:00
+Supreme Court Expresses Disappointment Over Non-Production Of Witnesses In 2021 Lakhimpur Kheri Violence Case
+https://www.verdictum.in/supreme-court/supreme-court-expresses-disappointment-over-non-production-of-witnesses-in-2021-lakhimpur-kheri-violence-case-1613597
+
+[Source Link](https://t.me/verdictumlegalupdates/26944)
+
+---
+
+### 2026-05-08T06:02:55+00:00
+Patna High Court Lauds "One Time Traffic Challan Settlement Scheme" To Expedite Resolution Of Long-Standing Traffic Violations
+https://www.verdictum.in/patna-high-court/rani-rani-tiwari-v-the-state-of-bihar-cwjc-no-20071-of-2025-one-time-traffic-challan-settlement-scheme-1613594
+
+[Source Link](https://t.me/verdictumlegalupdates/26943)
+
+---
+
+### 2026-05-08T05:34:34+00:00
+Bar Association Membership Voluntary; Non-Membership Cannot Restrict Advocate's Right To Practice Law: Telangana High Court Reads Down BCI Rules
+https://www.verdictum.in/telangana-high-court/vijay-gopal-v-bar-council-of-india-anr-bar-council-of-india-membership-1613590
+
+[Source Link](https://t.me/verdictumlegalupdates/26942)
+
+---
+
+### 2026-05-08T05:03:11+00:00
+Allahabad High Court Issues Comprehensive Guidelines On Mandatory Trial In Absentia Of Proclaimed Offenders U/S 356 BNSS
+https://www.verdictum.in/allahabad-high-court/ravi-alias-ravindra-singh-v-state-of-up-2026ahc101857-mandatory-trial-in-absentia-1613587
+
+[Source Link](https://t.me/verdictumlegalupdates/26941)
+
+---
+
+### 2026-05-08T04:33:00+00:00
+Court Must Act As "Doctor" Rather Than "Coroner": Delhi HC Grants Bail To Murder Accused In Custody For Over 5 Years
+https://www.verdictum.in/delhi-high-court/ranjit-mehto-v-state-nct-of-delhi-2026dhc3784-grants-bail-to-murder-accused-in-custody-for-over-5-years-1613556
+
+[Source Link](https://t.me/verdictumlegalupdates/26940)
 
 ---
 
@@ -97,70 +161,6 @@ Nothing Which Goes Against Grain Of Constitution Can Be Countenanced In Civilize
 https://www.verdictum.in/supreme-court/senior-advocate-raju-ramachandran-sabarimala-reference-temple-entry-1613546
 
 [Source Link](https://t.me/verdictumlegalupdates/26928)
-
----
-
-### 2026-05-07T07:52:37+00:00
-Malicious Product Reviews Without Technical Basis Constitute Commercial Disparagement: Delhi High Court Restrains YouTubers From Targeting AI  Smartphones
-https://www.verdictum.in/delhi-high-court/nxtquantum-shift-technologies-india-private-limited-v-john-doe-cscomm-4292026-1613536
-
-[Source Link](https://t.me/verdictumlegalupdates/26927)
-
----
-
-### 2026-05-07T07:12:55+00:00
-Granting Extension To File Chargesheet Not A Mere Formality: Supreme Court Grants Bail To UAPA Accused
-https://www.verdictum.in/supreme-court/md-ariz-hasnain-ariz-hasnain-v-state-of-jharkhand-2026-insc-456-uapa-1613532
-
-[Source Link](https://t.me/verdictumlegalupdates/26926)
-
----
-
-### 2026-05-07T06:32:34+00:00
-Supreme Court Sets Aside NGT Orders Directing Closure Of Formaldehyde Units Operating Without Prior Environmental Clearance
-https://www.verdictum.in/supreme-court/neetu-solvents-v-vineet-nagar-ors-and-connected-matters-2026-insc-455-1613527
-
-[Source Link](https://t.me/verdictumlegalupdates/26925)
-
----
-
-### 2026-05-07T05:52:52+00:00
-Revenue Records Do Not Confer Ownership Or Title; Serve Only Fiscal Purpose: Supreme Court
-https://www.verdictum.in/supreme-court/vadiyala-prabhakar-rao-v-the-government-of-andhra-pradesh-2026-insc-450-writ-jurisdiction-not-appropriate-declaring-land-title-1613522
-
-[Source Link](https://t.me/verdictumlegalupdates/26924)
-
----
-
-### 2026-05-07T05:13:11+00:00
-Disciplinary Authority Cannot Punish Employee On Completely Different Charge Which Was Not Framed Without Issuing Fresh Show-Cause Notice: Supreme Court
-https://www.verdictum.in/supreme-court/dr-nigam-prakash-narain-v-national-medical-commission-2026-insc-453-suspension-of-76-year-old-doctor-1613520
-
-[Source Link](https://t.me/verdictumlegalupdates/26923)
-
----
-
-### 2026-05-07T04:32:40+00:00
-Right To Life Has Priority Over Right To Celebrate: Bombay High Court Issues Notice To Organizers Over Noisy Ambedkar Jayanti Celebrations
-https://www.verdictum.in/bombay-high-court/dr-bhupendrakumar-k-wasnik-anr-vs-the-secretary-ministry-of-environment-forest-and-climate-change-1613499
-
-[Source Link](https://t.me/verdictumlegalupdates/26922)
-
----
-
-### 2026-05-06T16:02:44+00:00
-Central Bureau of Investigation (CBI) Invites Applications For The Post Of Special Public Prosecutor
-https://www.verdictum.in/job-updates/central-bureau-of-investigation-1613496
-
-[Source Link](https://t.me/verdictumlegalupdates/26921)
-
----
-
-### 2026-05-06T15:33:02+00:00
-Exploited Victim Under Guise Of Treatment: Delhi High Court Denies Bail To Maulvi Accused Of Raping Minor Girl
-https://www.verdictum.in/delhi-high-court/mohd-mubarak-v-state-nct-of-delhi-exploited-victim-maulvi-raping-minor-girl-1613498
-
-[Source Link](https://t.me/verdictumlegalupdates/26920)
 
 ---
 
