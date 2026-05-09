@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-08T13:03:57+00:00*
+*Last Updated: 2026-05-08T13:08:37+00:00*
 
 ---
 
-### 2026-05-08T13:03:57+00:00
-Extending Time To File Chargesheet Without Hearing Accused Illegal : Supreme Court Grants Default Bail To UAPA Accused
-https://www.livelaw.in/supreme-court/extending-time-to-file-chargesheet-without-hearing-accused-illegal-supreme-court-grants-default-bail-to-uapa-accused-533454
-
-[Read on Telegram](https://t.me/livelawindia/110574)
-
----
-### 2026-05-08T13:05:37+00:00
-2026 LiveLaw (SC) 475 | Md. ARIZ HASNAIN @ ARIZ HASNAIN VERSUS STATE OF JHARKHAND
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-475-md-ariz-hasnain-ariz-hasnain-versus-state-of-jharkhand-533455
-
-[Read on Telegram](https://t.me/livelawindia/110575)
-
----
 ### 2026-05-08T13:08:37+00:00
 BREAKING| TVK Member Moves Supreme Court Seeking To Direct TN Governor To Invite Vijay's Party To Form Government
 https://www.livelaw.in/top-stories/tvk-member-moves-supreme-court-seeking-to-direct-tn-governor-to-invite-vijays-party-to-fom-government-533456
@@ -142,5 +128,19 @@ Supreme Court Daily Round-Up : May 8, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-8-2026-533496
 
 [Read on Telegram](https://t.me/livelawindia/110593)
+
+---
+### 2026-05-09T01:32:20+00:00
+Bombay High Court Calls For Performance Audit Of 1971 Slum Law To Achieve 'Distant Dream' Of Slum-Free Mumbai
+https://www.livelaw.in/high-court/bombay-high-court/maharashta-slum-act-1971-audit-slum-free-mumbai-533501
+
+[Read on Telegram](https://t.me/livelawindia/110594)
+
+---
+### 2026-05-09T03:32:40+00:00
+Ceiling On Agricultural Holdings Act | MP High Court Directs Authority To Decide 14-Yr-Old Case, Says Pendency Defeats Purpose Of Remand
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/agricultural-holdings-act-prolonged-period-defeats-purpose-of-remand-in-14-year-old-case-533502
+
+[Read on Telegram](https://t.me/livelawindia/110595)
 
 ---
