@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-09T04:02:41+00:00*
+*Last Updated: 2026-05-09T08:39:27+00:00*
 
 ---
 
-### 2026-05-09T04:02:41+00:00
-Karnataka High Court Orders Defreezing Of Advocate's Bank Account; Says Police Increasingly Freezing Accounts Without Adequate Material
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-advocate-freezing-bank-account-fundamental-rights-533503
+### 2026-05-09T08:39:27+00:00
+Supreme Court Orders Criminal Action Against Constable Who Joined Bihar & Jharkhand Police In Different Names
+https://www.livelaw.in/supreme-court/supreme-court-orders-criminal-action-against-constable-who-joined-bihar-jharkhand-police-in-different-names-533562
 
-[Read on Telegram](https://t.me/livelawindia/110596)
-
----
-### 2026-05-09T04:12:50+00:00
-Madras High Court Dismisses Plea Challenging Appointment Of 23 District Judges In 2013
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-district-judge-appointment-challenge-dismissed-533506
-
-[Read on Telegram](https://t.me/livelawindia/110597)
+[Read on Telegram](https://t.me/livelawindia/110620)
 
 ---
-### 2026-05-09T04:17:50+00:00
-Supreme Court Grants Bail To Alleged Bangladeshi Man Accused Of Transborder Human Trafficking
-https://www.livelaw.in/top-stories/supreme-court-nia-man-accused-under-uapa-ipc-for-trafficking-into-india-from-bangladesh-myanmar-granted-bail-custody-period-533468
+### 2026-05-09T08:40:46+00:00
+2026 LiveLaw (SC) 479  | THE STATE OF JHARKHAND & ORS. VERSUS RANJAN KUMAR & ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-479-the-state-of-jharkhand-ors-versus-ranjan-kumar-ors-533564
 
-[Read on Telegram](https://t.me/livelawindia/110598)
-
----
-### 2026-05-09T04:19:51+00:00
-“Indeed Women Have Very Large Heart”: As Wife Forgives Husband & In-Laws Who Attempted To Burn Her, Delhi High Court Reduces Sentence
-https://www.livelaw.in/high-court/delhi-high-court/as-wife-forgives-husband-in-laws-who-attempted-to-burn-her-delhi-high-court-reduces-sentence-533508
-
-[Read on Telegram](https://t.me/livelawindia/110599)
+[Read on Telegram](https://t.me/livelawindia/110621)
 
 ---
-### 2026-05-09T04:52:32+00:00
-Merely Belonging To Reserved Category Does Not Confer Benefit, Caste Certificate Must Be Submitted Before Cut-Off Date: Jharkhand HC
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-candidate-reserved-category-caste-certificate-533479
+### 2026-05-09T08:53:06+00:00
+Right To Property Under Article 300-A Cannot Be Defeated By Erroneous Revenue Entries: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-right-to-property-article-300a-revenue-entries-consolidation-scheme-533551
 
-[Read on Telegram](https://t.me/livelawindia/110600)
-
----
-### 2026-05-09T05:07:21+00:00
-Jammu & Kashmir And Ladakh High Court Monthly Digest April 2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-monthly-digest-april-2026-532833
-
-[Read on Telegram](https://t.me/livelawindia/110601)
+[Read on Telegram](https://t.me/livelawindia/110622)
 
 ---
-### 2026-05-09T05:08:01+00:00
-'No Automatic Recission Of Contract For Non-Deposit Within Time' : Supreme Court Summarises Principles On S.28 Specific Relief Act
-https://www.livelaw.in/top-stories/supreme-court-summarises-principles-on-s28-specific-relief-act-533491
+### 2026-05-09T08:57:46+00:00
+Air India Privatization Won't Bar Challenges To Labour Tribunal Awards Under Article 226: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/air-india-privatization-wont-bar-challenges-to-labour-tribunal-awards-under-article-226-delhi-high-court-533548
 
-[Read on Telegram](https://t.me/livelawindia/110602)
-
----
-### 2026-05-09T05:20:41+00:00
-WBNUJS Team Emerges Quarter-Finalist At LawInSport's 7th Sports Law Arbitration Moot Held At CAS, Lausanne
-https://www.livelaw.in/lawschool/news/wbnujs-team-emerges-quarter-finalist-at-lawinsports-7th-sports-law-arbitration-moot-held-at-cas-lausanne-533523
-
-[Read on Telegram](https://t.me/livelawindia/110603)
+[Read on Telegram](https://t.me/livelawindia/110623)
 
 ---
-### 2026-05-09T05:52:41+00:00
-S.81 IPC | Bus Driver Cannot Claim 'Necessity' Defence After Crushing Two Persons To Save Cyclist: HP High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-section-81ipc-caused-avoiding-lesser-harm-533476
+### 2026-05-09T09:02:36+00:00
+Patna High Court Bar Associations Calls For Abstention From Work, Alleges “Abusive” Conduct By Certain Judges
+https://www.livelaw.in/news-updates/patna-high-court-bar-associations-abstain-work-allege-judges-abusive-behaviour-533553
 
-[Read on Telegram](https://t.me/livelawindia/110604)
-
----
-### 2026-05-09T06:06:07+00:00
-Rajinder Gupta's Factory Raided By Punjab PCB Soon After He Switched To BJP From AAP : P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-flags-palpable-apprehension-of-political-vendetta-directs-30-days-notice-before-action-533526
-
-[Read on Telegram](https://t.me/livelawindia/110605)
+[Read on Telegram](https://t.me/livelawindia/110624)
 
 ---
-### 2026-05-09T06:12:47+00:00
-J&K CSR | Employee On Deputation Can Choose Either Deputation Post Pay Or Parent Cadre Pay: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-jk-csr-deputationist-has-option-to-draw-pay-of-deputation-post-or-parent-cadre-pay-borrowing-agency-must-obtain-option-within-one-year-533472
+### 2026-05-09T09:27:37+00:00
+Candidates Not Entitled To 'Free Marks' For Dropped Out-Of-Syllabus Questions: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/candidates-not-entitled-to-free-marks-for-dropped-out-of-syllabus-questions-delhi-high-court-533487
 
-[Read on Telegram](https://t.me/livelawindia/110606)
-
----
-### 2026-05-09T06:18:47+00:00
-Property Purchased In Benami Transaction Can't Be Claimed By Real Owner On Basis Of Will Executed By Benamidar: Supreme Court
-https://www.livelaw.in/supreme-court/property-purchased-in-benami-transaction-cant-be-claimed-by-real-owner-on-basis-of-will-executed-by-benamidar-supreme-court-533528
-
-[Read on Telegram](https://t.me/livelawindia/110607)
+[Read on Telegram](https://t.me/livelawindia/110625)
 
 ---
-### 2026-05-09T06:22:28+00:00
-Legal Consultant Vacancy At Delhi State Health Mission (DSHM)
-https://www.livelaw.in/job-updates/legal-consultant-vacancy-at-delhi-state-health-mission-533529
+### 2026-05-09T09:52:40+00:00
+TET Qualification Must Exist On Date Of Initiation Of Promotion Process; Subsequent Clearance Cannot Be Applied Retrospectively: Bombay HC
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-rules-tet-ctet-qualification-must-exist-promotion-start-date-no-retrospective-application-533550
 
-[Read on Telegram](https://t.me/livelawindia/110608)
-
----
-### 2026-05-09T06:23:47+00:00
-Chief Legal Aid Defense Counsel, Deputy Chief Legal Aid Defense Counsel, And Assistant Legal Aid Defense Counsel Vacancy At District Legal Services Authority, Virudhunagar district @ Srivilliputtur
-https://www.livelaw.in/job-updates/chief-legal-aid-defense-counsel-deputy-chief-legal-aid-defense-counsel-and-assistant-legal-aid-defense-counsel-vacancy-at-district-legal-services-authority-virudhunagar-district-srivilliputtur-533531
-
-[Read on Telegram](https://t.me/livelawindia/110609)
+[Read on Telegram](https://t.me/livelawindia/110626)
 
 ---
-### 2026-05-09T06:25:47+00:00
-IPR Chair Professor Vacancy At Hidayatullah National Law University, Raipur
-https://www.livelaw.in/job-updates/ipr-chair-professor-vacancy-at-hidayatullah-national-law-university-raipur-533534
+### 2026-05-09T10:02:40+00:00
+Illegal Mining In Hazaribagh Amounts To Assault On Environment, Right To Clean Air Can't Be Sacrificed: Jharkhand HC
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-illegal-mining-hazaribagh-stone-crusher-article-21-533555
 
-[Read on Telegram](https://t.me/livelawindia/110610)
-
----
-### 2026-05-09T06:36:38+00:00
-POCSO Act | Lack Of Documentary Proof Of Victim's Age Not Fatal If Oral Testimony Goes Unchallenged: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/documentary-proof-of-age-pocso-case-oral-testimony-victims-age-unchallenged-533536
-
-[Read on Telegram](https://t.me/livelawindia/110611)
+[Read on Telegram](https://t.me/livelawindia/110627)
 
 ---
-### 2026-05-09T06:52:57+00:00
-ASHA Workers Cannot Be Disqualified From Panchayat Posts Merely For Receiving Incentives: HP High Court Stays Govt Clarification
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-asha-workers-disqualified-panchayat-office-bearer-posts-533483
+### 2026-05-09T10:32:30+00:00
+Telangana High Court Issues Mandatory Directions To Ensure Compliance Of Judicial Orders Stalled Due To Ineffective Communication
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-contempt-against-police-officer-communication-of-stay-order-533539
 
-[Read on Telegram](https://t.me/livelawindia/110612)
-
----
-### 2026-05-09T07:08:12+00:00
-Assistant Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP [Mumbai; Apply Now]
-https://www.livelaw.in/job-updates/assistant-manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-mumbai-533540
-
-[Read on Telegram](https://t.me/livelawindia/110613)
+[Read on Telegram](https://t.me/livelawindia/110628)
 
 ---
-### 2026-05-09T07:26:52+00:00
-Legal Associate Vacancy At MCO Legals (Meharia And Company) [Apply Now]
-https://www.livelaw.in/job-updates/legal-associate-vacancy-at-mco-legals-meharia-and-company-533545
+### 2026-05-09T10:34:50+00:00
+Supreme Court Directs Formation Of 1 Exclusive NIA Court For Every 10-15 Cases, Urges To Complete At Least 1 Trial Per Month
+https://www.livelaw.in/top-stories/supreme-court-green-signals-exclusive-courts-for-pending-nia-trials-1-court-for-every-10-to-15-trials-union-to-fund-states-533583
 
-[Read on Telegram](https://t.me/livelawindia/110614)
+[Read on Telegram](https://t.me/livelawindia/110629)
 
 ---
-### 2026-05-09T07:52:32+00:00
-Disclosure Statement Of Co-Accused Alone Insufficient To Deny Bail Under UAPA: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-disclosure-statement-of-co-accused-as-sole-material-against-appellant-sufficient-to-cross-hurdle-of-section-43-d5-uapa-for-grant-of-bail-533485
+### 2026-05-09T10:42:30+00:00
+Policing The Soul: Anti-Conversion Laws, Quiet Unravelling Of Constitutional Freedom
+https://www.livelaw.in/articles/anticonversion-laws-unravelling-constitutional-freedom-533584
 
-[Read on Telegram](https://t.me/livelawindia/110615)
+[Read on Telegram](https://t.me/livelawindia/110630)
+
+---
+### 2026-05-09T10:42:50+00:00
+Geo-Blocking Beyond Copyright: Can Territorial Licensing Become Anti-Competitive?
+https://www.livelaw.in/lawschool/articles/geoblocking-copyright-territorial-licensing-anticompetitive-533585
+
+[Read on Telegram](https://t.me/livelawindia/110631)
+
+---
+### 2026-05-09T10:43:10+00:00
+“Brazen Acts Of Lawlessness”: Delhi High Court Refuses To Quash Air-Firing Case Despite Compromise Between Parties
+https://www.livelaw.in/high-court/delhi-high-court/brazen-acts-of-lawlessness-delhi-high-court-refuses-to-quash-air-firing-case-despite-compromise-between-parties-533552
+
+[Read on Telegram](https://t.me/livelawindia/110632)
+
+---
+### 2026-05-09T10:58:50+00:00
+Supreme Court Expresses Surprise At Delhi Heritage Sites Being Leased To Private Parties; Directs Police To Ensure Monuments' Protection
+https://www.livelaw.in/top-stories/supreme-court-expresses-surprise-at-delhi-heritage-sites-being-leased-to-private-parties-directs-police-to-ensure-monuments-protection-533588
+
+[Read on Telegram](https://t.me/livelawindia/110633)
+
+---
+### 2026-05-09T11:12:20+00:00
+Patna High Court Refuses Divorce On “Vague” Adultery Allegations; Says Evidence Beyond Pleadings Cannot Be Considered
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-refuses-divorce-vague-adultery-allegations-evidence-pleadings-533556
+
+[Read on Telegram](https://t.me/livelawindia/110634)
+
+---
+### 2026-05-09T11:32:20+00:00
+Road Accident Victims Can't Be Left Remediless Due To Disputes Between Insurer And Insured: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-road-accident-victims-should-not-be-left-remediless-due-to-insurer-insured-dispute-533542
+
+[Read on Telegram](https://t.me/livelawindia/110635)
+
+---
+### 2026-05-09T12:02:30+00:00
+HP Govt Can Create Separate Sub-Cadre For CBSE Schools, Select Teachers Through Written Test & Counselling: High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-high-court-upholds-cbse-teacher-selection-government-policy-533557
+
+[Read on Telegram](https://t.me/livelawindia/110636)
+
+---
+### 2026-05-09T12:22:54+00:00
+Lawful Lessees Cannot Be Treated As Unauthorized Occupants Merely Because Roshni Act Was Struck Down: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-lawful-lessees-cannot-be-treated-as-unauthorized-occupants-merely-because-roshni-act-was-struck-down-533549
+
+[Read on Telegram](https://t.me/livelawindia/110637)
+
+---
+### 2026-05-09T12:42:54+00:00
+Accused Can't Complain Family Wasn't Informed Of Arrest After Choosing To Inform Counsel Instead: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/accused-cant-complain-family-wasnt-informed-of-arrest-after-choosing-to-inform-counsel-instead-delhi-high-court-533558
+
+[Read on Telegram](https://t.me/livelawindia/110638)
+
+---
+### 2026-05-09T12:57:34+00:00
+Second Wife Not Necessary Party In First Wife's Maintenance Case Under Section 125 CrPC: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/second-wife-not-necessary-party-in-first-wifes-maintenance-case-under-section-125-crpc-delhi-high-court-533559
+
+[Read on Telegram](https://t.me/livelawindia/110639)
 
 ---
