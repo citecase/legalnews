@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-09T08:39:27+00:00*
+*Last Updated: 2026-05-09T08:40:46+00:00*
 
 ---
 
-### 2026-05-09T08:39:27+00:00
-Supreme Court Orders Criminal Action Against Constable Who Joined Bihar & Jharkhand Police In Different Names
-https://www.livelaw.in/supreme-court/supreme-court-orders-criminal-action-against-constable-who-joined-bihar-jharkhand-police-in-different-names-533562
-
-[Read on Telegram](https://t.me/livelawindia/110620)
-
----
 ### 2026-05-09T08:40:46+00:00
 2026 LiveLaw (SC) 479  | THE STATE OF JHARKHAND & ORS. VERSUS RANJAN KUMAR & ORS
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-479-the-state-of-jharkhand-ors-versus-ranjan-kumar-ors-533564
@@ -142,5 +135,12 @@ Second Wife Not Necessary Party In First Wife's Maintenance Case Under Section 1
 https://www.livelaw.in/high-court/delhi-high-court/second-wife-not-necessary-party-in-first-wifes-maintenance-case-under-section-125-crpc-delhi-high-court-533559
 
 [Read on Telegram](https://t.me/livelawindia/110639)
+
+---
+### 2026-05-09T13:32:45+00:00
+Delhi Rent Control Act, A Case for Reference To A Larger Bench
+https://www.livelaw.in/articles/delhi-rent-control-act-reference-to-a-larger-bench-533586
+
+[Read on Telegram](https://t.me/livelawindia/110640)
 
 ---
