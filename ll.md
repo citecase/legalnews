@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-09T08:53:06+00:00*
+*Last Updated: 2026-05-09T11:32:20+00:00*
 
 ---
 
-### 2026-05-09T08:53:06+00:00
-Right To Property Under Article 300-A Cannot Be Defeated By Erroneous Revenue Entries: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-right-to-property-article-300a-revenue-entries-consolidation-scheme-533551
-
-[Read on Telegram](https://t.me/livelawindia/110622)
-
----
-### 2026-05-09T08:57:46+00:00
-Air India Privatization Won't Bar Challenges To Labour Tribunal Awards Under Article 226: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/air-india-privatization-wont-bar-challenges-to-labour-tribunal-awards-under-article-226-delhi-high-court-533548
-
-[Read on Telegram](https://t.me/livelawindia/110623)
-
----
-### 2026-05-09T09:02:36+00:00
-Patna High Court Bar Associations Calls For Abstention From Work, Alleges “Abusive” Conduct By Certain Judges
-https://www.livelaw.in/news-updates/patna-high-court-bar-associations-abstain-work-allege-judges-abusive-behaviour-533553
-
-[Read on Telegram](https://t.me/livelawindia/110624)
-
----
-### 2026-05-09T09:27:37+00:00
-Candidates Not Entitled To 'Free Marks' For Dropped Out-Of-Syllabus Questions: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/candidates-not-entitled-to-free-marks-for-dropped-out-of-syllabus-questions-delhi-high-court-533487
-
-[Read on Telegram](https://t.me/livelawindia/110625)
-
----
-### 2026-05-09T09:52:40+00:00
-TET Qualification Must Exist On Date Of Initiation Of Promotion Process; Subsequent Clearance Cannot Be Applied Retrospectively: Bombay HC
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-rules-tet-ctet-qualification-must-exist-promotion-start-date-no-retrospective-application-533550
-
-[Read on Telegram](https://t.me/livelawindia/110626)
-
----
-### 2026-05-09T10:02:40+00:00
-Illegal Mining In Hazaribagh Amounts To Assault On Environment, Right To Clean Air Can't Be Sacrificed: Jharkhand HC
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-illegal-mining-hazaribagh-stone-crusher-article-21-533555
-
-[Read on Telegram](https://t.me/livelawindia/110627)
-
----
-### 2026-05-09T10:32:30+00:00
-Telangana High Court Issues Mandatory Directions To Ensure Compliance Of Judicial Orders Stalled Due To Ineffective Communication
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-contempt-against-police-officer-communication-of-stay-order-533539
-
-[Read on Telegram](https://t.me/livelawindia/110628)
-
----
-### 2026-05-09T10:34:50+00:00
-Supreme Court Directs Formation Of 1 Exclusive NIA Court For Every 10-15 Cases, Urges To Complete At Least 1 Trial Per Month
-https://www.livelaw.in/top-stories/supreme-court-green-signals-exclusive-courts-for-pending-nia-trials-1-court-for-every-10-to-15-trials-union-to-fund-states-533583
-
-[Read on Telegram](https://t.me/livelawindia/110629)
-
----
-### 2026-05-09T10:42:30+00:00
-Policing The Soul: Anti-Conversion Laws, Quiet Unravelling Of Constitutional Freedom
-https://www.livelaw.in/articles/anticonversion-laws-unravelling-constitutional-freedom-533584
-
-[Read on Telegram](https://t.me/livelawindia/110630)
-
----
-### 2026-05-09T10:42:50+00:00
-Geo-Blocking Beyond Copyright: Can Territorial Licensing Become Anti-Competitive?
-https://www.livelaw.in/lawschool/articles/geoblocking-copyright-territorial-licensing-anticompetitive-533585
-
-[Read on Telegram](https://t.me/livelawindia/110631)
-
----
-### 2026-05-09T10:43:10+00:00
-“Brazen Acts Of Lawlessness”: Delhi High Court Refuses To Quash Air-Firing Case Despite Compromise Between Parties
-https://www.livelaw.in/high-court/delhi-high-court/brazen-acts-of-lawlessness-delhi-high-court-refuses-to-quash-air-firing-case-despite-compromise-between-parties-533552
-
-[Read on Telegram](https://t.me/livelawindia/110632)
-
----
-### 2026-05-09T10:58:50+00:00
-Supreme Court Expresses Surprise At Delhi Heritage Sites Being Leased To Private Parties; Directs Police To Ensure Monuments' Protection
-https://www.livelaw.in/top-stories/supreme-court-expresses-surprise-at-delhi-heritage-sites-being-leased-to-private-parties-directs-police-to-ensure-monuments-protection-533588
-
-[Read on Telegram](https://t.me/livelawindia/110633)
-
----
-### 2026-05-09T11:12:20+00:00
-Patna High Court Refuses Divorce On “Vague” Adultery Allegations; Says Evidence Beyond Pleadings Cannot Be Considered
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-refuses-divorce-vague-adultery-allegations-evidence-pleadings-533556
-
-[Read on Telegram](https://t.me/livelawindia/110634)
-
----
 ### 2026-05-09T11:32:20+00:00
 Road Accident Victims Can't Be Left Remediless Due To Disputes Between Insurer And Insured: Gauhati High Court
 https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-road-accident-victims-should-not-be-left-remediless-due-to-insurer-insured-dispute-533542
@@ -142,5 +51,96 @@ Once Officer's Conviction Is Quashed, Employer Can't Check If Acquittal Was Hono
 https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-absence-parallel-departmental-proceedings-authorities-533543
 
 [Read on Telegram](https://t.me/livelawindia/110641)
+
+---
+### 2026-05-10T04:32:32+00:00
+PwD Employees Can't Be Denied Reservation In Promotion Due To Absence Of Rules: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-slams-state-as-reluctant-roadblock-orders-reconsideration-of-pwd-employees-promotion-to-deputy-forest-ranger-533538
+
+[Read on Telegram](https://t.me/livelawindia/110642)
+
+---
+### 2026-05-10T04:45:57+00:00
+TN Assembly Elections: Madras High Court To Hold Special Sunday Sitting To Hear DMK Candidate Who Lost To TVK Candidate By One Vote
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-dmk-periakaruppan-petition-tvk-seenivasa-sethupathi-533617
+
+[Read on Telegram](https://t.me/livelawindia/110643)
+
+---
+### 2026-05-10T05:24:18+00:00
+'Malicious' : CJI Surya Kant Denies False Casteist Remark Attributed To Him, Warns Strict Action
+https://www.livelaw.in/top-stories/malicious-cji-surya-kant-denies-false-casteist-remark-attributed-to-him-warns-strict-action-533618
+
+[Read on Telegram](https://t.me/livelawindia/110644)
+
+---
+### 2026-05-10T05:32:38+00:00
+Ex-Parte Foreign Decree Can Be Enforced In India If Based On Evidence And Merits: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-uae-money-decree-executable-india-foreign-decree-execution-533609
+
+[Read on Telegram](https://t.me/livelawindia/110645)
+
+---
+### 2026-05-10T05:32:58+00:00
+Punjab & Haryana High Court National Lok Adalat Settles 182 Cases, Awards Over ₹7.83 Crore
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-national-lok-adalat-settles-182-cases-awards-over-783-crore-533587
+
+[Read on Telegram](https://t.me/livelawindia/110646)
+
+---
+### 2026-05-10T05:56:28+00:00
+'Custom Inconsistent With Constitution Must Be Quashed' : Brahmin Scholar Seeks Intervention In Supreme Court Sabarimala Reference
+https://www.livelaw.in/top-stories/custom-inconsistent-with-constitution-must-be-quashed-brahmin-scholar-seeks-intervention-in-supreme-court-sabarimala-reference-533619
+
+[Read on Telegram](https://t.me/livelawindia/110647)
+
+---
+### 2026-05-10T06:17:48+00:00
+Delhi High Court Protects Entrepreneur Aman Gupta's Personality Rights; Orders Takedown Of AI, Obscene Content
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-protects-entrepreneur-aman-guptas-personality-rights-orders-takedown-of-ai-obscene-content-533620
+
+[Read on Telegram](https://t.me/livelawindia/110648)
+
+---
+### 2026-05-10T06:32:28+00:00
+Where Statue Does Not Provide Express Bar, Delay Can Be Condoned By Taking Aid Of Limitation Act: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-limitation-act-indian-stamp-act-533608
+
+[Read on Telegram](https://t.me/livelawindia/110649)
+
+---
+### 2026-05-10T06:50:38+00:00
+2.07 Crore Cases Settled In 2nd National Lok Adalat 2026; ₹3,440 Crore Settlement Recorded
+https://www.livelaw.in/news-updates/207-crore-cases-settled-in-2nd-national-lok-adalat-2026-3440-crore-settlement-recorded-533622
+
+[Read on Telegram](https://t.me/livelawindia/110650)
+
+---
+### 2026-05-10T07:21:18+00:00
+Analyst (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
+https://www.livelaw.in/job-updates/analyst-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-533623
+
+[Read on Telegram](https://t.me/livelawindia/110651)
+
+---
+### 2026-05-10T07:32:38+00:00
+Human-Wildlife Conflict: Kerala High Court Directs Strict Surveillance Of Rogue Elephant 'KM1', Says Authorities Must Prevent Further Mishaps
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-vigil-elephant-aralam-farm-533610
+
+[Read on Telegram](https://t.me/livelawindia/110652)
+
+---
+### 2026-05-10T07:35:00+00:00
+S. 25 Hindu Succession Act | Murder Accused Cannot Claim Inheritance Of Murdered Person's Property : Supreme Court
+https://www.livelaw.in/supreme-court/s-25-hindu-succession-act-murder-accused-cannot-claim-inheritance-of-murdered-persons-property-supreme-court-533624
+
+[Read on Telegram](https://t.me/livelawindia/110653)
+
+---
+### 2026-05-10T08:12:30+00:00
+Order VII Rule 11 CPC | Plaint Must Be Meaningfully Read To See If  Statutory Bar Is Veiled By Clever Drafting: Supreme Court
+https://www.livelaw.in/supreme-court/order-vii-rule-11-cpc-plaint-must-be-meaningfully-read-to-see-if-statutory-bar-is-veiled-by-clever-drafting-supreme-court-533625
+
+[Read on Telegram](https://t.me/livelawindia/110654)
 
 ---
