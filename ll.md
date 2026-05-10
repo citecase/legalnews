@@ -1,93 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-09T11:32:20+00:00*
+*Last Updated: 2026-05-10T05:56:28+00:00*
 
 ---
 
-### 2026-05-09T11:32:20+00:00
-Road Accident Victims Can't Be Left Remediless Due To Disputes Between Insurer And Insured: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-road-accident-victims-should-not-be-left-remediless-due-to-insurer-insured-dispute-533542
-
-[Read on Telegram](https://t.me/livelawindia/110635)
-
----
-### 2026-05-09T12:02:30+00:00
-HP Govt Can Create Separate Sub-Cadre For CBSE Schools, Select Teachers Through Written Test & Counselling: High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-high-court-upholds-cbse-teacher-selection-government-policy-533557
-
-[Read on Telegram](https://t.me/livelawindia/110636)
-
----
-### 2026-05-09T12:22:54+00:00
-Lawful Lessees Cannot Be Treated As Unauthorized Occupants Merely Because Roshni Act Was Struck Down: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-lawful-lessees-cannot-be-treated-as-unauthorized-occupants-merely-because-roshni-act-was-struck-down-533549
-
-[Read on Telegram](https://t.me/livelawindia/110637)
-
----
-### 2026-05-09T12:42:54+00:00
-Accused Can't Complain Family Wasn't Informed Of Arrest After Choosing To Inform Counsel Instead: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/accused-cant-complain-family-wasnt-informed-of-arrest-after-choosing-to-inform-counsel-instead-delhi-high-court-533558
-
-[Read on Telegram](https://t.me/livelawindia/110638)
-
----
-### 2026-05-09T12:57:34+00:00
-Second Wife Not Necessary Party In First Wife's Maintenance Case Under Section 125 CrPC: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/second-wife-not-necessary-party-in-first-wifes-maintenance-case-under-section-125-crpc-delhi-high-court-533559
-
-[Read on Telegram](https://t.me/livelawindia/110639)
-
----
-### 2026-05-09T13:32:45+00:00
-Delhi Rent Control Act, A Case for Reference To A Larger Bench
-https://www.livelaw.in/articles/delhi-rent-control-act-reference-to-a-larger-bench-533586
-
-[Read on Telegram](https://t.me/livelawindia/110640)
-
----
-### 2026-05-10T03:33:01+00:00
-Once Officer's Conviction Is Quashed, Employer Can't Check If Acquittal Was Honorable Before Considering Reinstatement: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-absence-parallel-departmental-proceedings-authorities-533543
-
-[Read on Telegram](https://t.me/livelawindia/110641)
-
----
-### 2026-05-10T04:32:32+00:00
-PwD Employees Can't Be Denied Reservation In Promotion Due To Absence Of Rules: Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-slams-state-as-reluctant-roadblock-orders-reconsideration-of-pwd-employees-promotion-to-deputy-forest-ranger-533538
-
-[Read on Telegram](https://t.me/livelawindia/110642)
-
----
-### 2026-05-10T04:45:57+00:00
-TN Assembly Elections: Madras High Court To Hold Special Sunday Sitting To Hear DMK Candidate Who Lost To TVK Candidate By One Vote
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-dmk-periakaruppan-petition-tvk-seenivasa-sethupathi-533617
-
-[Read on Telegram](https://t.me/livelawindia/110643)
-
----
-### 2026-05-10T05:24:18+00:00
-'Malicious' : CJI Surya Kant Denies False Casteist Remark Attributed To Him, Warns Strict Action
-https://www.livelaw.in/top-stories/malicious-cji-surya-kant-denies-false-casteist-remark-attributed-to-him-warns-strict-action-533618
-
-[Read on Telegram](https://t.me/livelawindia/110644)
-
----
-### 2026-05-10T05:32:38+00:00
-Ex-Parte Foreign Decree Can Be Enforced In India If Based On Evidence And Merits: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-uae-money-decree-executable-india-foreign-decree-execution-533609
-
-[Read on Telegram](https://t.me/livelawindia/110645)
-
----
-### 2026-05-10T05:32:58+00:00
-Punjab & Haryana High Court National Lok Adalat Settles 182 Cases, Awards Over ₹7.83 Crore
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-national-lok-adalat-settles-182-cases-awards-over-783-crore-533587
-
-[Read on Telegram](https://t.me/livelawindia/110646)
-
----
 ### 2026-05-10T05:56:28+00:00
 'Custom Inconsistent With Constitution Must Be Quashed' : Brahmin Scholar Seeks Intervention In Supreme Court Sabarimala Reference
 https://www.livelaw.in/top-stories/custom-inconsistent-with-constitution-must-be-quashed-brahmin-scholar-seeks-intervention-in-supreme-court-sabarimala-reference-533619
@@ -142,5 +58,89 @@ Order VII Rule 11 CPC | Plaint Must Be Meaningfully Read To See If  Statutory Ba
 https://www.livelaw.in/supreme-court/order-vii-rule-11-cpc-plaint-must-be-meaningfully-read-to-see-if-statutory-bar-is-veiled-by-clever-drafting-supreme-court-533625
 
 [Read on Telegram](https://t.me/livelawindia/110654)
+
+---
+### 2026-05-10T08:16:50+00:00
+Never Lose Hope: Rahul Agarwal Interacts With Students At Dr. Rajendra Prasad National Law University
+https://www.livelaw.in/lawschool/news/never-lose-hope-rahul-agarwal-interacts-students-dr-rajendra-prasad-national-law-university-533626
+
+[Read on Telegram](https://t.me/livelawindia/110655)
+
+---
+### 2026-05-10T08:30:41+00:00
+Madras High Court Seeks ECI's Response To DMK Candidate's Plea Who Lost TN Elections By One Vote Allegedly Due To Postal Ballot Mix-Up
+https://www.livelaw.in/high-court/madras-high-court/tn-assembly-elections-dmk-tvk-kr-periakaruppan-seenivasa-sethupathi-tiruppattur-constituency-vote-recount-533627
+
+[Read on Telegram](https://t.me/livelawindia/110656)
+
+---
+### 2026-05-10T09:13:21+00:00
+RTE Act Mandate On Reservation Of Private School Seats For Poor Students Enforced? Supreme Court Asks States, UTs
+https://www.livelaw.in/top-stories/rte-act-mandate-on-reservation-of-private-school-seats-for-poor-students-enforced-supreme-court-asks-states-uts-533629
+
+[Read on Telegram](https://t.me/livelawindia/110657)
+
+---
+### 2026-05-10T09:32:31+00:00
+Bombay High Court Upholds State's Power To Re-Verify Disability Certificates Of Govt Employees; Says Fake Claims Amount To Moral Turpitude
+https://www.livelaw.in/high-court/bombay-high-court/securing-govt-employment-fake-disability-certificate-moral-turpitude-533628
+
+[Read on Telegram](https://t.me/livelawindia/110658)
+
+---
+### 2026-05-10T10:16:11+00:00
+Legal Manager Vacancy At Kotak Mahindra Bank Limited [Chennai; Apply Now]
+https://www.livelaw.in/job-updates/legal-manager-vacancy-at-kotak-mahindra-bank-limited-chennai-533630
+
+[Read on Telegram](https://t.me/livelawindia/110659)
+
+---
+### 2026-05-10T10:33:21+00:00
+Renewal Of Arms Licence Can't Be Denied For Not Owning Agricultural Land: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-rules-firearm-license-renewal-agricultural-land-not-needed-arms-act-533613
+
+[Read on Telegram](https://t.me/livelawindia/110660)
+
+---
+### 2026-05-10T11:32:44+00:00
+Teacher's Disciplinary Action Against Students Can't Be Criminalised Under POCSO Act, Will Corrode Educational Institutions: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-teacher-disciplinary-action-no-criminal-act-pocso-533614
+
+[Read on Telegram](https://t.me/livelawindia/110661)
+
+---
+### 2026-05-10T12:24:55+00:00
+National Lok Adalat Restores Family Harmony Between Senior Citizens and Sons
+https://www.livelaw.in/news-updates/national-lok-adalat-haryana-senior-citizens-sons-maintenance-family-harmony-533631
+
+[Read on Telegram](https://t.me/livelawindia/110662)
+
+---
+### 2026-05-10T12:32:15+00:00
+Multiple FIRs Alone Not Enough To Invoke 'Organised Crime' Charge Under BNS: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bharatiya-nyaya-sanhita-section-111-organised-crime-533615
+
+[Read on Telegram](https://t.me/livelawindia/110663)
+
+---
+### 2026-05-10T12:34:15+00:00
+Gavel And Court: Analyzing Judicial Review In Speaker Rulings
+https://www.livelaw.in/articles/judicial-review-speaker-powers-tenth-schedule-anti-defection-law-533632
+
+[Read on Telegram](https://t.me/livelawindia/110664)
+
+---
+### 2026-05-10T13:28:48+00:00
+Rajasthan Admits Prima Facie Inaction On Illegal Mining Complaints In Dausa, Forms High-Level Committee After Supreme Court Warning
+https://www.livelaw.in/top-stories/rajasthan-admits-prima-facie-inaction-on-illegal-mining-complaints-in-dausa-forms-high-level-committee-after-supreme-court-warning-533635
+
+[Read on Telegram](https://t.me/livelawindia/110665)
+
+---
+### 2026-05-10T13:32:28+00:00
+Access To Justice | Courts Can't Conduct 'Mini Trial' At Stage Of Numbering Claim Petition: Andhra Pradesh High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-registry-mini-trial-claim-petition-order-21-rule-58-cpc-533616
+
+[Read on Telegram](https://t.me/livelawindia/110666)
 
 ---
