@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-09T08:40:46+00:00*
+*Last Updated: 2026-05-09T08:53:06+00:00*
 
 ---
 
-### 2026-05-09T08:40:46+00:00
-2026 LiveLaw (SC) 479  | THE STATE OF JHARKHAND & ORS. VERSUS RANJAN KUMAR & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-479-the-state-of-jharkhand-ors-versus-ranjan-kumar-ors-533564
-
-[Read on Telegram](https://t.me/livelawindia/110621)
-
----
 ### 2026-05-09T08:53:06+00:00
 Right To Property Under Article 300-A Cannot Be Defeated By Erroneous Revenue Entries: Bombay High Court
 https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-right-to-property-article-300a-revenue-entries-consolidation-scheme-533551
@@ -142,5 +135,12 @@ Delhi Rent Control Act, A Case for Reference To A Larger Bench
 https://www.livelaw.in/articles/delhi-rent-control-act-reference-to-a-larger-bench-533586
 
 [Read on Telegram](https://t.me/livelawindia/110640)
+
+---
+### 2026-05-10T03:33:01+00:00
+Once Officer's Conviction Is Quashed, Employer Can't Check If Acquittal Was Honorable Before Considering Reinstatement: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-absence-parallel-departmental-proceedings-authorities-533543
+
+[Read on Telegram](https://t.me/livelawindia/110641)
 
 ---
