@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-11T12:17:59+00:00*
+*Last Updated: 2026-05-11T12:50:25+00:00*
 
 ---
 
-### 2026-05-11T12:17:59+00:00
-No 'Concrete Proof' Of Temple At Bhojshala Site, 1935 Notification Permitting Namaz Valid: Muslim Side Tells MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/bhojshala-temple-kamal-maula-mosque-1935-granting-namaz-rights-valid-533772
-
-[Read on Telegram](https://t.me/livelawindia/110729)
-
----
-### 2026-05-11T12:27:39+00:00
-Madras High Court Quashes Hate Speech Case Against VCK Chief Thol Thirumavalavan
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-thol-thirumavalavan-hate-speech-case-quashed-533778
-
-[Read on Telegram](https://t.me/livelawindia/110730)
-
----
-### 2026-05-11T12:27:59+00:00
-[Uttarakhand Zamindari Abolition Act] Prior Sanction Mandatory For Transferring Land To Society For Non-Agricultural Purposes: High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-prior-sanction-mandatory-land-gift-deed-up-zamindari-act-533762
-
-[Read on Telegram](https://t.me/livelawindia/110731)
-
----
-### 2026-05-11T12:32:15+00:00
-Karnataka High Court Weekly Round-Up: May 04 – May 10, 2026
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-roundup-may-2026-533689
-
-[Read on Telegram](https://t.me/livelawindia/110732)
-
----
-### 2026-05-11T12:34:15+00:00
-Advocates Re-using Same Welfare Stamp In Multiple Vakalatnamas : Registry Tells Supreme Court
-https://www.livelaw.in/top-stories/advocates-re-using-same-welfare-stamp-in-multiple-vakalatnamas-registry-tells-supreme-court-533780
-
-[Read on Telegram](https://t.me/livelawindia/110733)
-
----
 ### 2026-05-11T12:50:25+00:00
 Coaching Institute Liable For Deficiency In Service For Failing To Issue Proper Fee Receipts: Thrissur Consumer Commission
 https://www.livelaw.in/consumer-cases/coaching-institute-liable-for-deficiency-in-service-for-failing-to-issue-proper-fee-receipts-thrissur-consumer-commission-533782
@@ -142,5 +107,40 @@ Delhi High Court Orders Restoration Of '4PM' YouTube Channel, Directs Temporary 
 https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-orders-restoration-of-4pm-youtube-channel-directs-temporary-blocking-of-objectionable-videos-533799
 
 [Read on Telegram](https://t.me/livelawindia/110748)
+
+---
+### 2026-05-11T15:45:55+00:00
+'Lawrence Of Punjab' Row: P&H High Court Quashes Centre Advisory Against Movie's Release, Directs Change Of Title
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-centre-advisory-against-its-release-asks-to-change-movies-name-533800
+
+[Read on Telegram](https://t.me/livelawindia/110749)
+
+---
+### 2026-05-11T15:56:25+00:00
+S. 138 NI Act | Joint Account Holder Who Hasn't Signed Bounced Cheque Can't Be Prosecuted: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-138-ni-act-joint-account-holder-signed-bounced-cheque-prosecute-533803
+
+[Read on Telegram](https://t.me/livelawindia/110750)
+
+---
+### 2026-05-11T15:57:45+00:00
+Bombay High Court Slams Mumbai Police Over Midnight Demolition Of Historic Printing Press Founded By Dr BR Ambedkar
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-mumbai-police-ambedkar-printing-press-demolition-prakash-ambedkar-533804
+
+[Read on Telegram](https://t.me/livelawindia/110751)
+
+---
+### 2026-05-11T16:07:46+00:00
+2026 LiveLaw (SC) 485 | Yatin Narendra Oza v. Suo Motu, High Court of Gujarat and Anr
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-485-yatin-narendra-oza-v-suo-motu-high-court-of-gujarat-and-anr-533807
+
+[Read on Telegram](https://t.me/livelawindia/110752)
+
+---
+### 2026-05-11T17:07:16+00:00
+Supreme Court Daily Round-Up : May 11, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-11-2026-533808
+
+[Read on Telegram](https://t.me/livelawindia/110753)
 
 ---
