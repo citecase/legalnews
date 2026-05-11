@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-10T05:56:28+00:00*
+*Last Updated: 2026-05-10T07:21:18+00:00*
 
 ---
 
-### 2026-05-10T05:56:28+00:00
-'Custom Inconsistent With Constitution Must Be Quashed' : Brahmin Scholar Seeks Intervention In Supreme Court Sabarimala Reference
-https://www.livelaw.in/top-stories/custom-inconsistent-with-constitution-must-be-quashed-brahmin-scholar-seeks-intervention-in-supreme-court-sabarimala-reference-533619
-
-[Read on Telegram](https://t.me/livelawindia/110647)
-
----
-### 2026-05-10T06:17:48+00:00
-Delhi High Court Protects Entrepreneur Aman Gupta's Personality Rights; Orders Takedown Of AI, Obscene Content
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-protects-entrepreneur-aman-guptas-personality-rights-orders-takedown-of-ai-obscene-content-533620
-
-[Read on Telegram](https://t.me/livelawindia/110648)
-
----
-### 2026-05-10T06:32:28+00:00
-Where Statue Does Not Provide Express Bar, Delay Can Be Condoned By Taking Aid Of Limitation Act: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-limitation-act-indian-stamp-act-533608
-
-[Read on Telegram](https://t.me/livelawindia/110649)
-
----
-### 2026-05-10T06:50:38+00:00
-2.07 Crore Cases Settled In 2nd National Lok Adalat 2026; ₹3,440 Crore Settlement Recorded
-https://www.livelaw.in/news-updates/207-crore-cases-settled-in-2nd-national-lok-adalat-2026-3440-crore-settlement-recorded-533622
-
-[Read on Telegram](https://t.me/livelawindia/110650)
-
----
 ### 2026-05-10T07:21:18+00:00
 Analyst (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
 https://www.livelaw.in/job-updates/analyst-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-533623
@@ -142,5 +114,33 @@ Access To Justice | Courts Can't Conduct 'Mini Trial' At Stage Of Numbering Clai
 https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-registry-mini-trial-claim-petition-order-21-rule-58-cpc-533616
 
 [Read on Telegram](https://t.me/livelawindia/110666)
+
+---
+### 2026-05-11T03:28:00+00:00
+Legal And Public Information Officer Vacancy At Tata Institute Of Social Sciences
+https://www.livelaw.in/job-updates/legal-and-public-information-officer-vacancy-at-tata-institute-of-social-sciences-533648
+
+[Read on Telegram](https://t.me/livelawindia/110667)
+
+---
+### 2026-05-11T03:29:00+00:00
+Principal Judge Vacancy At Family Court, Calcutta
+https://www.livelaw.in/job-updates/principal-judge-vacancy-at-family-court-calcutta-533649
+
+[Read on Telegram](https://t.me/livelawindia/110668)
+
+---
+### 2026-05-11T03:30:40+00:00
+Assistant (Public Law) And Assistant Professor (Technology Law) Vacancy At National Law University, Delhi
+https://www.livelaw.in/job-updates/assistant-public-law-and-assistant-professor-technology-law-vacancy-at-national-law-university-delhi-533650
+
+[Read on Telegram](https://t.me/livelawindia/110669)
+
+---
+### 2026-05-11T03:32:20+00:00
+EPFO Can't Recover Provident Fund Settlement From Employee On Account Of Employer's Alleged Post-Surrender Violation: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-epfo-cannot-recover-pf-settlement-employee-natural-justice-533611
+
+[Read on Telegram](https://t.me/livelawindia/110670)
 
 ---
