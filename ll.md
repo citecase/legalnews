@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-11T06:42:26+00:00*
+*Last Updated: 2026-05-11T12:17:59+00:00*
 
 ---
 
-### 2026-05-11T06:42:26+00:00
-"Final Act Of Forgiveness" :  Supreme Court Keeps Senior Advocate Yatin Oza's Contempt Conviction In Abeyance Indefinitely
-https://www.livelaw.in/top-stories/supreme-court-keeps-senior-advocate-yatin-ozas-contempt-conviction-in-abeyance-indefinitely-533686
+### 2026-05-11T12:17:59+00:00
+No 'Concrete Proof' Of Temple At Bhojshala Site, 1935 Notification Permitting Namaz Valid: Muslim Side Tells MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/bhojshala-temple-kamal-maula-mosque-1935-granting-namaz-rights-valid-533772
 
-[Read on Telegram](https://t.me/livelawindia/110691)
-
----
-### 2026-05-11T06:53:26+00:00
-Plea To Regulate Institutions Imparting Religious Education | Supreme Court Asks Petitioner To Await Centre's Decision
-https://www.livelaw.in/top-stories/plea-to-regulate-institutions-imparting-religious-education-supreme-court-asks-petitioner-to-await-centres-decision-533691
-
-[Read on Telegram](https://t.me/livelawindia/110692)
+[Read on Telegram](https://t.me/livelawindia/110729)
 
 ---
-### 2026-05-11T07:11:46+00:00
-Stabbing Husband During Sudden Fight Falls Under Exception To Murder: Telangana High Court Modifies Wife's Sentence To Fine
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-wife-stabbed-husband-conviction-reduced-to-fine-533693
+### 2026-05-11T12:27:39+00:00
+Madras High Court Quashes Hate Speech Case Against VCK Chief Thol Thirumavalavan
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-thol-thirumavalavan-hate-speech-case-quashed-533778
 
-[Read on Telegram](https://t.me/livelawindia/110693)
-
----
-### 2026-05-11T07:17:06+00:00
-'Don't Treat Your Wife Like An Animal': Supreme Court Denies Anticipatory Bail To Husband In Domestic Violence Case
-https://www.livelaw.in/top-stories/dont-treat-your-wife-like-an-animal-supreme-court-denies-anticipatory-bail-to-husband-in-domestic-violence-case-533697
-
-[Read on Telegram](https://t.me/livelawindia/110694)
+[Read on Telegram](https://t.me/livelawindia/110730)
 
 ---
-### 2026-05-11T07:33:18+00:00
-BREAKING| AOR Exam Cancellation : Supreme Court Asks Aggreived Lawyers To Submit Representation To CJI
-https://www.livelaw.in/top-stories/supreme-court-asks-lawyers-challenging-aor-exam-cancellation-to-submit-representation-to-cji-533701
+### 2026-05-11T12:27:59+00:00
+[Uttarakhand Zamindari Abolition Act] Prior Sanction Mandatory For Transferring Land To Society For Non-Agricultural Purposes: High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-prior-sanction-mandatory-land-gift-deed-up-zamindari-act-533762
 
-[Read on Telegram](https://t.me/livelawindia/110695)
-
----
-### 2026-05-11T07:33:28+00:00
-Delay In Depositing Balance Sale Consideration No Bar When Seller Lets Specific Performance Decree Attain Finality: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-condones-3358-day-delay-specific-performance-balance-sale-consideration-533695
-
-[Read on Telegram](https://t.me/livelawindia/110696)
+[Read on Telegram](https://t.me/livelawindia/110731)
 
 ---
-### 2026-05-11T07:44:32+00:00
-State & Police To Blame For 'Tarikh Pe Tarikh', Not Just Judges: Allahabad HC Directs Reforms To Tackle Criminal Case Delays
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-state-police-blame-tarikh-pe-tarikh-judges-reforms-criminal-case-delays-533704
+### 2026-05-11T12:32:15+00:00
+Karnataka High Court Weekly Round-Up: May 04 – May 10, 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-roundup-may-2026-533689
 
-[Read on Telegram](https://t.me/livelawindia/110697)
-
----
-### 2026-05-11T07:46:12+00:00
-Supreme Court Dismisses Plea Against HC Order For CBI Probe Into Transformer Procurement During Senthil Balaji's Tenure As TN Minister
-https://www.livelaw.in/top-stories/supreme-court-dismisses-plea-against-hc-order-for-cbi-probe-into-transformer-procurement-during-senthil-balajis-tenure-as-tn-minister-533705
-
-[Read on Telegram](https://t.me/livelawindia/110698)
+[Read on Telegram](https://t.me/livelawindia/110732)
 
 ---
-### 2026-05-11T08:02:53+00:00
-Family Member Being Declared Foreigner Can't Automatically Make Others Foreigners, Separate Proceedings Necessary: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/foreigners-tribunal-cant-declare-womans-children-foreigners-without-specific-reference-533696
+### 2026-05-11T12:34:15+00:00
+Advocates Re-using Same Welfare Stamp In Multiple Vakalatnamas : Registry Tells Supreme Court
+https://www.livelaw.in/top-stories/advocates-re-using-same-welfare-stamp-in-multiple-vakalatnamas-registry-tells-supreme-court-533780
 
-[Read on Telegram](https://t.me/livelawindia/110699)
-
----
-### 2026-05-11T08:05:35+00:00
-BCI Cannot Issue Warning To Advocate When Misconduct Complaint Was Found Baseless : Supreme Court
-https://www.livelaw.in/supreme-court/bci-cannot-issue-warning-to-advocate-when-misconduct-complaint-was-found-baseless-supreme-court-533706
-
-[Read on Telegram](https://t.me/livelawindia/110700)
+[Read on Telegram](https://t.me/livelawindia/110733)
 
 ---
-### 2026-05-11T08:07:15+00:00
-2026 LiveLaw (SC) 482 |  PREM PAL SINGH v DISCIPLINARY COMMITTEE OF THE BAR COUNCIL OF INDIA & OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-482-prem-pal-singh-v-disciplinary-committee-of-the-bar-council-of-india-others-533707
+### 2026-05-11T12:50:25+00:00
+Coaching Institute Liable For Deficiency In Service For Failing To Issue Proper Fee Receipts: Thrissur Consumer Commission
+https://www.livelaw.in/consumer-cases/coaching-institute-liable-for-deficiency-in-service-for-failing-to-issue-proper-fee-receipts-thrissur-consumer-commission-533782
 
-[Read on Telegram](https://t.me/livelawindia/110701)
-
----
-### 2026-05-11T08:32:26+00:00
-Madras High Court Weekly Roundup: May 04 to May 10, 2026
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weeky-roundup-may-4-to-may-10-2026-533681
-
-[Read on Telegram](https://t.me/livelawindia/110702)
+[Read on Telegram](https://t.me/livelawindia/110734)
 
 ---
-### 2026-05-11T08:41:45+00:00
-'No Arrests To Be Made Without Providing Grounds & Reasons': UP Govt Assures Allahabad HC Of Strict Compliance With BNSS
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-no-arrests-grounds-reasons-up-govt-assures-of-strict-compliance-bnss-533712
+### 2026-05-11T13:28:55+00:00
+'Madras High Court Fastest In Disposing Criminal Cases, Allahabad & Patna HCs Experiencing Difficulty': CJI Surya Kant
+https://www.livelaw.in/top-stories/supreme-court-bail-matters-delay-cji-surya-kant-madras-high-court-fastest-in-disposing-criminal-matters-allahabad-and-patna-hc-problematic-533785
 
-[Read on Telegram](https://t.me/livelawindia/110703)
-
----
-### 2026-05-11T08:47:25+00:00
-MP High Court Bar Association Writes To Chief Justice Raising Concern Over Handling Of Bail Matters, Procedural Difficulties
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bar-association-chief-justice-bail-jurisprudence-533710
-
-[Read on Telegram](https://t.me/livelawindia/110704)
+[Read on Telegram](https://t.me/livelawindia/110735)
 
 ---
-### 2026-05-11T09:02:43+00:00
-AP High Court Fines Litigant ₹25K For Submitting False Medical Certificate To Get Over Inordinate Delay In Filing Appeal
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-refuses-condone-delay-medical-certificate-533698
+### 2026-05-11T13:32:15+00:00
+Calcutta High Court Monthly Digest: April 2026
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-monthly-digest-april-2026-533647
 
-[Read on Telegram](https://t.me/livelawindia/110705)
-
----
-### 2026-05-11T09:09:43+00:00
-West Bengal SIR | Vote Gap With BJP Less Than Pending Appeals : Trinamool Congress Tells Supreme Court
-https://www.livelaw.in/top-stories/west-bengal-sir-vote-gap-with-bjp-less-than-pending-appeals-trinamool-congress-tells-supreme-court-533717
-
-[Read on Telegram](https://t.me/livelawindia/110706)
+[Read on Telegram](https://t.me/livelawindia/110736)
 
 ---
-### 2026-05-11T09:09:53+00:00
-UAPA | Right To Default Bail Can't Be Denied Solely On Technical Grounds: Gujarat High Court Condones 146-Day Delay In NIA Appeal
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-delay-appeal-order-extending-judicial-custody-non-completion-nia-probe-90-days-533718
+### 2026-05-11T13:48:15+00:00
+Wife Staying At Parents' House After Childbirth While Husband Is Abroad Can't Be Treated As Desertion: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-no-desertion-wife-parents-house-after-childbirth-533787
 
-[Read on Telegram](https://t.me/livelawindia/110707)
-
----
-### 2026-05-11T09:21:03+00:00
-Judges Must Show Patience & Encouragement Towards Young Advocates : Supreme Court Says After AP HC Judge-Lawyer Exchange
-https://www.livelaw.in/top-stories/supreme-court-andhra-pradesh-hc-judge-order-for-custody-of-young-advocate-mid-hearing-533720
-
-[Read on Telegram](https://t.me/livelawindia/110708)
+[Read on Telegram](https://t.me/livelawindia/110737)
 
 ---
-### 2026-05-11T09:32:43+00:00
-Criminal Liability Under NI Act Cannot Be Inherited: Calcutta High Court Quashes Cheque Bounce Case Against Deceased Drawer's Brother
-https://www.livelaw.in/high-court/calcutta-high-court/criminal-liability-under-ni-act-cannot-be-inherited-calcutta-high-court-quashes-cheque-bounce-case-against-deceased-drawers-brother-533678
+### 2026-05-11T14:03:25+00:00
+Gujarat High Court Refuses Passport To Woman Born In Mozambique To Indian Parents, Says Citizenship By Descent Not Established
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-mozambique-born-woman-plea-for-issuance-of-indian-passport-failure-to-prove-citizenship-533788
 
-[Read on Telegram](https://t.me/livelawindia/110709)
+[Read on Telegram](https://t.me/livelawindia/110738)
 
 ---
-### 2026-05-11T09:46:03+00:00
-Call For Papers: The Indian Journal Of Intellectual Property Law (Vol.16)
-https://www.livelaw.in/lawschool/call-for-papers/indian-journal-of-intellectual-property-law-vol16-533724
+### 2026-05-11T14:13:05+00:00
+Bombay High Court Flags 'Casual Probe' Into Alleged Fabrication Of Court Orders, Seeks Further Investigation
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-orders-investigation-fabricated-court-orders-case-533760
 
-[Read on Telegram](https://t.me/livelawindia/110710)
+[Read on Telegram](https://t.me/livelawindia/110739)
+
+---
+### 2026-05-11T14:16:05+00:00
+No Medical Evidence, Vague FIR: Allahabad HC Acquits 3 Men In 1983 'Gang-Rape' Case Involving 7-Month Pregnant Woman
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-acquits-no-medical-evidence-vague-fir-1983-gang-rape-7-month-pregnant-woman-533792
+
+[Read on Telegram](https://t.me/livelawindia/110740)
+
+---
+### 2026-05-11T14:32:05+00:00
+Order XII Rule 6 CPC | Admission Made In Criminal Case Can Be Used In Civil Proceedings: Supreme Court
+https://www.livelaw.in/supreme-court/order-xii-rule-6-cpc-admission-made-in-criminal-case-can-be-used-in-civil-proceedings-supreme-court-533795
+
+[Read on Telegram](https://t.me/livelawindia/110741)
+
+---
+### 2026-05-11T14:32:35+00:00
+Kerala High Court Weekly Roundup: May 04 - May 10, 2026
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-weekly-roundup-may-2026-533699
+
+[Read on Telegram](https://t.me/livelawindia/110742)
+
+---
+### 2026-05-11T14:33:05+00:00
+2026 LiveLaw (SC) 483 | SHEIKH ABEDIN VERSUS IQBAL AHMED & ANR.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-483-sheikh-abedin-versus-iqbal-ahmed-anr-533796
+
+[Read on Telegram](https://t.me/livelawindia/110743)
+
+---
+### 2026-05-11T14:37:45+00:00
+No SC/ST Act Offence If Alleged Casteist Abuse Occurred Inside Private House : Supreme Court
+https://www.livelaw.in/supreme-court/no-scst-act-offence-if-alleged-casteist-abuse-occurred-inside-private-house-supreme-court-533797
+
+[Read on Telegram](https://t.me/livelawindia/110744)
+
+---
+### 2026-05-11T14:37:55+00:00
+Jammu & Kashmir And Ladakh High Court Weekly Round-Up May 4 - May 10, 2026
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-weekly-round-up-may-4-may-10-2026-533758
+
+[Read on Telegram](https://t.me/livelawindia/110745)
+
+---
+### 2026-05-11T14:38:45+00:00
+2026 LiveLaw (SC) 484 |  GUNJAN @ GIRIJA KUMARI AND OTHERS VERSUS STATE (NCT OF DELHI) AND ANOTHER
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-484-gunjan-girija-kumari-and-others-versus-state-nct-of-delhi-and-another-533798
+
+[Read on Telegram](https://t.me/livelawindia/110746)
+
+---
+### 2026-05-11T15:02:35+00:00
+Preventive Measures Causing Restraint Do Not Amount To Punishment; Objective Only To Prevent Future Acts: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-preventive-measures-causing-restraint-or-hardship-do-not-amount-to-punishment-objective-of-preventive-detention-only-to-prevent-future-acts-533759
+
+[Read on Telegram](https://t.me/livelawindia/110747)
+
+---
+### 2026-05-11T15:08:55+00:00
+Delhi High Court Orders Restoration Of '4PM' YouTube Channel, Directs Temporary Blocking Of 'Objectionable' Videos
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-orders-restoration-of-4pm-youtube-channel-directs-temporary-blocking-of-objectionable-videos-533799
+
+[Read on Telegram](https://t.me/livelawindia/110748)
 
 ---
