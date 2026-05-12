@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-11T12:50:25+00:00*
+*Last Updated: 2026-05-11T14:03:25+00:00*
 
 ---
 
-### 2026-05-11T12:50:25+00:00
-Coaching Institute Liable For Deficiency In Service For Failing To Issue Proper Fee Receipts: Thrissur Consumer Commission
-https://www.livelaw.in/consumer-cases/coaching-institute-liable-for-deficiency-in-service-for-failing-to-issue-proper-fee-receipts-thrissur-consumer-commission-533782
-
-[Read on Telegram](https://t.me/livelawindia/110734)
-
----
-### 2026-05-11T13:28:55+00:00
-'Madras High Court Fastest In Disposing Criminal Cases, Allahabad & Patna HCs Experiencing Difficulty': CJI Surya Kant
-https://www.livelaw.in/top-stories/supreme-court-bail-matters-delay-cji-surya-kant-madras-high-court-fastest-in-disposing-criminal-matters-allahabad-and-patna-hc-problematic-533785
-
-[Read on Telegram](https://t.me/livelawindia/110735)
-
----
-### 2026-05-11T13:32:15+00:00
-Calcutta High Court Monthly Digest: April 2026
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-monthly-digest-april-2026-533647
-
-[Read on Telegram](https://t.me/livelawindia/110736)
-
----
-### 2026-05-11T13:48:15+00:00
-Wife Staying At Parents' House After Childbirth While Husband Is Abroad Can't Be Treated As Desertion: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-no-desertion-wife-parents-house-after-childbirth-533787
-
-[Read on Telegram](https://t.me/livelawindia/110737)
-
----
 ### 2026-05-11T14:03:25+00:00
 Gujarat High Court Refuses Passport To Woman Born In Mozambique To Indian Parents, Says Citizenship By Descent Not Established
 https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-mozambique-born-woman-plea-for-issuance-of-indian-passport-failure-to-prove-citizenship-533788
@@ -142,5 +114,33 @@ Supreme Court Daily Round-Up : May 11, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-11-2026-533808
 
 [Read on Telegram](https://t.me/livelawindia/110753)
+
+---
+### 2026-05-12T03:03:10+00:00
+'Cannot Face Adverse Consequences Over Choice Of Faith': Calcutta High Court Sets Aside Bank Employee's Premature Retirement
+https://www.livelaw.in/high-court/calcutta-high-court/cannot-face-adverse-consequences-over-choice-of-faith-calcutta-high-court-sets-aside-bank-officers-premature-retirement-533815
+
+[Read on Telegram](https://t.me/livelawindia/110754)
+
+---
+### 2026-05-12T03:08:50+00:00
+Manager Vacancy At Deloitte Touche Tohmatsu India LLP [Delhi; Apply Now]
+https://www.livelaw.in/job-updates/manager-vacancy-at-deloitte-touche-tohmatsu-india-llp-delhi-533819
+
+[Read on Telegram](https://t.me/livelawindia/110755)
+
+---
+### 2026-05-12T03:09:50+00:00
+Research Associate (Health and Digital Rights) Vacancy At National Law University, Delhi
+https://www.livelaw.in/job-updates/research-associate-health-and-digital-rights-vacancy-at-national-law-university-delhi-533820
+
+[Read on Telegram](https://t.me/livelawindia/110756)
+
+---
+### 2026-05-12T03:33:20+00:00
+Kerala High Court Asks Adjacent Land Owners Seeking Gate On Govt Land To Apply Under Land Conservancy Act & Rules
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-land-conservancy-act-rules-erect-government-property-533768
+
+[Read on Telegram](https://t.me/livelawindia/110757)
 
 ---
