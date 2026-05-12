@@ -1,86 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-12T11:37:27+00:00*
+*Last Updated: 2026-05-12T13:45:49+00:00*
 
 ---
 
-### 2026-05-12T11:37:27+00:00
-TMC Moves Calcutta High Court Alleging Widespread Post-Poll Violence After 2026 Assembly Election Results
-https://www.livelaw.in/high-court/calcutta-high-court/trinamool-congress-moves-calcutta-high-court-alleging-widespread-post-poll-violence-after-assembly-election-results-533914
-
-[Read on Telegram](https://t.me/livelawindia/110805)
-
----
-### 2026-05-12T11:42:27+00:00
-Industrial Dispute | Employer's Head Office In Delhi Not Enough To Confer Territorial Jurisdiction In Delhi Labour Courts: High Court
-https://www.livelaw.in/high-court/delhi-high-court/industrial-dispute-employers-head-office-in-delhi-not-enough-to-confer-territorial-jurisdiction-in-delhi-labour-courts-high-court-533818
-
-[Read on Telegram](https://t.me/livelawindia/110806)
-
----
-### 2026-05-12T11:51:27+00:00
-Child Tried As Adult For Murder Can't Be Awarded Fixed 10-Year Sentence; Life Term Must Carry Possibility Of Release: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-sets-aside-illegal-sentence-in-murder-case-of-juvenile-tried-as-adult-533917
-
-[Read on Telegram](https://t.me/livelawindia/110807)
-
----
-### 2026-05-12T12:02:07+00:00
-P&H High Court Dismisses PIL Seeking Disqualification Of Punjab CM Bhagwant Mann, Ministers
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/pil-seeking-disqualification-of-punjab-cm-ministers-dismissed-quo-warranto-533918
-
-[Read on Telegram](https://t.me/livelawindia/110808)
-
----
-### 2026-05-12T12:05:07+00:00
-Gauhati HC: Ongoing Recruitment Cannot Be Expanded To Include Future Vacancies
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-hc-ongoing-recruitment-cannot-be-expanded-to-include-future-vacancies-533923
-
-[Read on Telegram](https://t.me/livelawindia/110809)
-
----
-### 2026-05-12T12:12:29+00:00
-Public Shaming Of Accused Violates Article 21: MP High Court Orders Inquiry Into Alleged 'Deliberate And Malicious' Parading By Cops
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-article-21-right-to-live-with-dignity-public-parading-of-accused-533920
-
-[Read on Telegram](https://t.me/livelawindia/110810)
-
----
-### 2026-05-12T12:27:59+00:00
-Bengaluru Stampede: Karnataka High Court Permits Two DNA Entertainment Officials To Travel Abroad For Business Meeting In June
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dna-entertainment-foreign-travel-bengaluru-stampede-case-533925
-
-[Read on Telegram](https://t.me/livelawindia/110811)
-
----
-### 2026-05-12T12:32:39+00:00
-“Questioning Husband's Manhood Does Not Amount To Abetment Of Suicide”: Calcutta High Court Quashes Case Against Wife
-https://www.livelaw.in/high-court/calcutta-high-court/questioning-husbands-manhood-does-not-amount-to-abetment-of-suicide-calcutta-high-court-quashes-case-against-wife-533916
-
-[Read on Telegram](https://t.me/livelawindia/110812)
-
----
-### 2026-05-12T13:13:49+00:00
-Gujarat High Court Asks State To Notify Schemes For Dependants Of Deceased, Surviving Silicosis-Affected Workers Who Are Unemployed
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-state-notify-schemes-dependants-of-deceased-surviving-silicosis-affected-workers-533932
-
-[Read on Telegram](https://t.me/livelawindia/110813)
-
----
-### 2026-05-12T13:29:49+00:00
-MP High Court Accepts Apology Of Lawyer Who Said Only Clients Of Senior Advocates Get Bail; Issues Caution
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-advocates-apology-over-comment-client-of-senior-advocate-get-bail-533934
-
-[Read on Telegram](https://t.me/livelawindia/110814)
-
----
-### 2026-05-12T13:40:49+00:00
-Tamil Nadu Advocate General PS Raman Resigns
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-advocate-general-ps-raman-resigns-533936
-
-[Read on Telegram](https://t.me/livelawindia/110815)
-
----
 ### 2026-05-12T13:45:49+00:00
 Kolkata Court Orders 10-Day ED Custody For Former Bengal Minister, TMC Leader Sujit Bose
 https://www.livelaw.in/news-updates/kolkata-court-orders-10-day-ed-custody-for-former-bengal-minister-tmc-leader-sujit-bose-533937
@@ -142,5 +65,82 @@ Wife's Pursuit Of Career Can't Be Branded Cruelty Just Because It Hurt Husband's
 https://www.livelaw.in/top-stories/wifes-pursuit-of-career-cant-be-branded-cruelty-just-because-it-hurt-husbands-sentiments-supreme-court-533958
 
 [Read on Telegram](https://t.me/livelawindia/110824)
+
+---
+### 2026-05-12T14:40:22+00:00
+2026 LiveLaw (SC) 489 | Ann Saurabh Dutt v. Lieutenant Colonel Saurabh Iqbal Bahadur Dutt
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-489-ann-saurabh-dutt-v-lieutenant-colonel-saurabh-iqbal-bahadur-dutt-533960
+
+[Read on Telegram](https://t.me/livelawindia/110825)
+
+---
+### 2026-05-12T14:47:22+00:00
+“Elite Form Of Coercion”: Bombay HC Says Courts Cannot Be Used By Tenants To Pressure Landlords Into Recognising Developer's Rights
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-tenants-implead-developer-no-privity-contract-redevelopment-5-lakh-cost-533949
+
+[Read on Telegram](https://t.me/livelawindia/110826)
+
+---
+### 2026-05-12T14:47:42+00:00
+Labour Court Cannot Adjudicate Disputed Service Entitlements Like TA/DA Under Section 33C(2) ID Act: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/labour-court-cannot-adjudicate-disputed-service-entitlements-like-tada-under-section-33c2-id-act-delhi-high-court-533939
+
+[Read on Telegram](https://t.me/livelawindia/110827)
+
+---
+### 2026-05-12T15:08:02+00:00
+Delhi High Court Dismisses Gang Rape Convict's Repeated Interim Bail Pleas For Mother's Surgery, Imposes Costs
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-dismisses-gang-rape-convicts-repeated-interim-bail-pleas-for-mothers-surgery-imposes-costs-533940
+
+[Read on Telegram](https://t.me/livelawindia/110828)
+
+---
+### 2026-05-12T15:22:52+00:00
+Small Recoveries In FIRs Without Final Report Can't Establish “Continuous Drug Peddling” For Preventive Detention: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-small-recoveries-in-firs-under-investigation-without-final-report-cant-establish-continuous-drug-peddling-for-preventive-detention-533945
+
+[Read on Telegram](https://t.me/livelawindia/110829)
+
+---
+### 2026-05-12T15:38:15+00:00
+Mere Rejection Of Representation Does Not Give Fresh Cause Of Action In Service Matters: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-mere-representations-to-department-cannot-cure-delay-in-filing-writ-petition-rejected-representation-does-not-give-fresh-cause-of-action-533941
+
+[Read on Telegram](https://t.me/livelawindia/110830)
+
+---
+### 2026-05-12T15:55:45+00:00
+Rajasthan High Court Seizes Mobile Phone After Litigant's Driver Found Recording Court Proceedings, Issues Contempt Notice
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-contempt-mobile-recording-court-proceedings-533966
+
+[Read on Telegram](https://t.me/livelawindia/110831)
+
+---
+### 2026-05-12T16:02:25+00:00
+DNA Report Cannot Be Relied Upon To Convict Accused If Not Put To Him During S.313 CrPC Examination: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-dna-report-section-313-crpc-examination-conviction-533946
+
+[Read on Telegram](https://t.me/livelawindia/110832)
+
+---
+### 2026-05-12T16:14:45+00:00
+“Breathtaking Irony”: Rajasthan High Court Bars Felling Of Rare Desert Tree 'Khejri' For Solar Projects Without Prior Approval
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-khejri-trees-solar-projects-tree-cutting-environmental-protection-533969
+
+[Read on Telegram](https://t.me/livelawindia/110833)
+
+---
+### 2026-05-12T16:18:05+00:00
+'Morality Has To Be Kept Separate From Offence In Matters Of Liberty': Delhi High Court While Granting Bail To Rape Accused
+https://www.livelaw.in/high-court/delhi-high-court/morality-has-to-be-kept-separate-from-offence-in-matters-of-liberty-delhi-high-court-while-granting-bail-to-rape-accused-533970
+
+[Read on Telegram](https://t.me/livelawindia/110834)
+
+---
+### 2026-05-12T17:13:15+00:00
+Supreme Court Daily Round-Up : May 12, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-12-2026-533962
+
+[Read on Telegram](https://t.me/livelawindia/110835)
 
 ---
