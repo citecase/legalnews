@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-12T05:52:20+00:00*
+*Last Updated: 2026-05-12T11:37:27+00:00*
 
 ---
 
-### 2026-05-12T05:52:20+00:00
-Delhi High Court Quashes Centre's Decision Refusing OCI Card To The Wire's Siddharth Varadarajan
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-quashes-centres-decision-refusing-oci-card-to-the-wires-siddharth-varadarajan-533844
+### 2026-05-12T11:37:27+00:00
+TMC Moves Calcutta High Court Alleging Widespread Post-Poll Violence After 2026 Assembly Election Results
+https://www.livelaw.in/high-court/calcutta-high-court/trinamool-congress-moves-calcutta-high-court-alleging-widespread-post-poll-violence-after-assembly-election-results-533914
 
-[Read on Telegram](https://t.me/livelawindia/110776)
-
----
-### 2026-05-12T05:53:00+00:00
-Baramulla Consumer Commission Holds J&K Bank Liable For Deducting Insurance Premium Without Consent
-https://www.livelaw.in/consumer-cases/baramulla-consumer-commission-holds-jk-bank-liable-for-deducting-insurance-premium-without-consent-533845
-
-[Read on Telegram](https://t.me/livelawindia/110777)
+[Read on Telegram](https://t.me/livelawindia/110805)
 
 ---
-### 2026-05-12T06:03:00+00:00
-NRC Extracts Not Admissible To Prove Citizenship: Gauhati High Court Upholds Foreigner Tribunal Order
-https://www.livelaw.in/high-court/gauhati-high-court/nrc-extracts-not-admissible-to-prove-citizenship-foreigner-tribunal-533836
+### 2026-05-12T11:42:27+00:00
+Industrial Dispute | Employer's Head Office In Delhi Not Enough To Confer Territorial Jurisdiction In Delhi Labour Courts: High Court
+https://www.livelaw.in/high-court/delhi-high-court/industrial-dispute-employers-head-office-in-delhi-not-enough-to-confer-territorial-jurisdiction-in-delhi-labour-courts-high-court-533818
 
-[Read on Telegram](https://t.me/livelawindia/110778)
-
----
-### 2026-05-12T06:10:10+00:00
-Majoritarian Notions Will Prevail If 'Morality' In Articles 25/26 Is Read As 'Public Morality : Raju Ramachandran In Sabarimala Reference
-https://www.livelaw.in/top-stories/majoritarian-notions-will-prevail-if-morality-in-articles-2526-is-read-as-public-morality-raju-ramachandran-in-sabarimala-reference-533847
-
-[Read on Telegram](https://t.me/livelawindia/110779)
+[Read on Telegram](https://t.me/livelawindia/110806)
 
 ---
-### 2026-05-12T06:17:10+00:00
-BREAKING | Supreme Court Directs Rajasthan Govt To Include Rajasthani Language As Subject In All Govt And Private Schools
-https://www.livelaw.in/top-stories/supreme-court-directs-rajasthan-to-provide-rajasthani-language-as-subject-in-all-government-private-schools-mothertongue-based-education-533851
+### 2026-05-12T11:51:27+00:00
+Child Tried As Adult For Murder Can't Be Awarded Fixed 10-Year Sentence; Life Term Must Carry Possibility Of Release: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-sets-aside-illegal-sentence-in-murder-case-of-juvenile-tried-as-adult-533917
 
-[Read on Telegram](https://t.me/livelawindia/110780)
-
----
-### 2026-05-12T06:17:30+00:00
-High Court Stays Delhi Government's SOP Allowing Tree Pruning Without Prior Permission
-https://www.livelaw.in/high-court/delhi-high-court/high-court-stays-delhi-governments-sop-allowing-tree-pruning-without-prior-permission-533849
-
-[Read on Telegram](https://t.me/livelawindia/110781)
+[Read on Telegram](https://t.me/livelawindia/110807)
 
 ---
-### 2026-05-12T06:32:50+00:00
-Parties Must First Oppose Pre-Judgment Property Attachment Notice Before Trial Court Instead Of Invoking Article 227: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-order-38-rule-5-cpc-notice-article-227-supervisory-jurisdiction-bypassing-remedy-533852
+### 2026-05-12T12:02:07+00:00
+P&H High Court Dismisses PIL Seeking Disqualification Of Punjab CM Bhagwant Mann, Ministers
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/pil-seeking-disqualification-of-punjab-cm-ministers-dismissed-quo-warranto-533918
 
-[Read on Telegram](https://t.me/livelawindia/110782)
-
----
-### 2026-05-12T06:49:50+00:00
-Chandigarh Consumer Commission Holds Air India Express Liable For Wrongfully Denying Boarding To IAS Officer And Family
-https://www.livelaw.in/consumer-cases/chandigarh-consumer-commission-holds-air-india-express-liable-for-wrongfully-denying-boarding-to-ias-officer-and-family-533857
-
-[Read on Telegram](https://t.me/livelawindia/110783)
+[Read on Telegram](https://t.me/livelawindia/110808)
 
 ---
-### 2026-05-12T06:56:30+00:00
-Constitutional Courts Cannot Be Silent When Single Disputed Vote May Decide Fate Of Government: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-single-vote-decide-fate-of-govt-court-can-interfere-dmk-tvk-ballot-dispute-533858
+### 2026-05-12T12:05:07+00:00
+Gauhati HC: Ongoing Recruitment Cannot Be Expanded To Include Future Vacancies
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-hc-ongoing-recruitment-cannot-be-expanded-to-include-future-vacancies-533923
 
-[Read on Telegram](https://t.me/livelawindia/110784)
-
----
-### 2026-05-12T07:13:30+00:00
-Judicial Misbehaviour
-https://www.livelaw.in/articles/judicial-misbehaviour-533860
-
-[Read on Telegram](https://t.me/livelawindia/110785)
+[Read on Telegram](https://t.me/livelawindia/110809)
 
 ---
-### 2026-05-12T07:13:50+00:00
-Delhi High Court Weekly Round-Up: May 04 To May 10, 2026
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-weekly-round-up-may-04-to-may-10-2026-533862
+### 2026-05-12T12:12:29+00:00
+Public Shaming Of Accused Violates Article 21: MP High Court Orders Inquiry Into Alleged 'Deliberate And Malicious' Parading By Cops
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-article-21-right-to-live-with-dignity-public-parading-of-accused-533920
 
-[Read on Telegram](https://t.me/livelawindia/110786)
-
----
-### 2026-05-12T07:14:00+00:00
-Delhi High Court Issues Notice On Plea Seeking Free-To-Air Broadcast Of FIFA World Cup 2026 On Doordarshan
-https://www.livelaw.in/high-court/delhi-high-court/plea-for-free-to-air-broadcast-of-fifa-world-cup-2026-on-doordarshan-533861
-
-[Read on Telegram](https://t.me/livelawindia/110787)
+[Read on Telegram](https://t.me/livelawindia/110810)
 
 ---
-### 2026-05-12T07:22:40+00:00
-Punjab Minister Sanjeev Arora Moves High Court Challenging ED Arrest In Money Laundering Case, Seeks Quashing Of Remand Order
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-minister-sanjeev-arora-moves-high-court-challenging-ed-arrest-under-pmla-533864
+### 2026-05-12T12:27:59+00:00
+Bengaluru Stampede: Karnataka High Court Permits Two DNA Entertainment Officials To Travel Abroad For Business Meeting In June
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dna-entertainment-foreign-travel-bengaluru-stampede-case-533925
 
-[Read on Telegram](https://t.me/livelawindia/110788)
-
----
-### 2026-05-12T07:32:20+00:00
-Delhi High Court Sets Aside TTFI Order Suspending Olympian Kamlesh Mehta From Post Of Secretary General Without Hearing
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-sets-aside-ttfi-order-suspending-olympian-kamlesh-mehta-from-post-of-secretary-general-without-hearing-533817
-
-[Read on Telegram](https://t.me/livelawindia/110789)
+[Read on Telegram](https://t.me/livelawindia/110811)
 
 ---
-### 2026-05-12T07:48:00+00:00
-Allahabad High Court Refuses Extraordinary Pension To UP Police Support Staff Killed In Road Accident While Going For Duty
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-road-accident-victim-not-entitled-police-pension-up-rules-533865
+### 2026-05-12T12:32:39+00:00
+“Questioning Husband's Manhood Does Not Amount To Abetment Of Suicide”: Calcutta High Court Quashes Case Against Wife
+https://www.livelaw.in/high-court/calcutta-high-court/questioning-husbands-manhood-does-not-amount-to-abetment-of-suicide-calcutta-high-court-quashes-case-against-wife-533916
 
-[Read on Telegram](https://t.me/livelawindia/110790)
-
----
-### 2026-05-12T08:03:11+00:00
-'No Mens Rea': Gujarat High Court Discharges Financier Of Collapsed Building Which Claimed 11 Lives In 2001 Earthquake
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-financier-collapsed-building-claimed-11-lives-2001-earthquake-533868
-
-[Read on Telegram](https://t.me/livelawindia/110791)
+[Read on Telegram](https://t.me/livelawindia/110812)
 
 ---
-### 2026-05-12T08:05:31+00:00
-Wife's Education Or Capacity To Earn Alone No Bar To Claiming Maintenance U/S 125 CrPC: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-wife-education-capacity-earn-no-bar-maintenance-125-crpc-533876
+### 2026-05-12T13:13:49+00:00
+Gujarat High Court Asks State To Notify Schemes For Dependants Of Deceased, Surviving Silicosis-Affected Workers Who Are Unemployed
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-state-notify-schemes-dependants-of-deceased-surviving-silicosis-affected-workers-533932
 
-[Read on Telegram](https://t.me/livelawindia/110792)
-
----
-### 2026-05-12T08:17:11+00:00
-Employee Must First Comply With Transfer Order Before Challenging It; Non-Compliance Is Misconduct, Removal Not Disproportionate: Orissa HC
-https://www.livelaw.in/high-court/orissa-high-court/employee-must-first-comply-with-transfer-order-before-challenging-it-non-compliance-is-misconduct-removal-not-disproportionate-orissa-hc-533879
-
-[Read on Telegram](https://t.me/livelawindia/110793)
+[Read on Telegram](https://t.me/livelawindia/110813)
 
 ---
-### 2026-05-12T08:18:11+00:00
-Forest Staff Involved In Neutralising Bandit Veerappan Entitled To Parity In Reward Consideration With STF Personnel: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-veerappan-reward-forest-personnel-special-task-force-533870
+### 2026-05-12T13:29:49+00:00
+MP High Court Accepts Apology Of Lawyer Who Said Only Clients Of Senior Advocates Get Bail; Issues Caution
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-advocates-apology-over-comment-client-of-senior-advocate-get-bail-533934
 
-[Read on Telegram](https://t.me/livelawindia/110794)
+[Read on Telegram](https://t.me/livelawindia/110814)
 
 ---
-### 2026-05-12T08:24:09+00:00
-Case Of Political Victimisation, Give Same Relief Granted To BJP MPs: Punjab Minister Sanjeev To High Court In Plea Challenging ED Arrest
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/case-of-political-vendetta-punjab-minister-sanjeev-to-high-court-in-plea-challenging-ed-arrest-533880
+### 2026-05-12T13:40:49+00:00
+Tamil Nadu Advocate General PS Raman Resigns
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-advocate-general-ps-raman-resigns-533936
 
-[Read on Telegram](https://t.me/livelawindia/110795)
+[Read on Telegram](https://t.me/livelawindia/110815)
+
+---
+### 2026-05-12T13:45:49+00:00
+Kolkata Court Orders 10-Day ED Custody For Former Bengal Minister, TMC Leader Sujit Bose
+https://www.livelaw.in/news-updates/kolkata-court-orders-10-day-ed-custody-for-former-bengal-minister-tmc-leader-sujit-bose-533937
+
+[Read on Telegram](https://t.me/livelawindia/110816)
+
+---
+### 2026-05-12T13:49:09+00:00
+'Quick Justice Sine Qua Non Of Art 21' : Supreme Court Quashes 35-Year-Old Simple Hurt Case For Violation Of Speedy Trial Right
+https://www.livelaw.in/top-stories/quick-justice-sine-qua-non-of-art-21-supreme-court-quashes-35-year-old-simple-hurt-case-for-violation-of-speedy-trial-right-533942
+
+[Read on Telegram](https://t.me/livelawindia/110817)
+
+---
+### 2026-05-12T13:50:09+00:00
+2026 LiveLaw (SC) 487 | Kailash Chandra Kapri v. State of Uttar Pradesh & Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-487-kailash-chandra-kapri-v-state-of-uttar-pradesh-ors-533944
+
+[Read on Telegram](https://t.me/livelawindia/110818)
+
+---
+### 2026-05-12T13:59:32+00:00
+Access To Potable Water Is Part Of Article 21, State Can't Evade Responsibility: MP High Court Directs Pipeline Connectivity For Gwalior Colony
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/right-to-clean-drinking-water-article-21-pipeline-connectivity-to-colony-in-gwalior-mp-jal-nigam-533952
+
+[Read on Telegram](https://t.me/livelawindia/110819)
+
+---
+### 2026-05-12T14:02:32+00:00
+S.167 B(2) IT Act | Fixed Share Given To Member Of 'Association Of Persons' Regardless Of Profit Will Be Taxed As Income : Supreme Court
+https://www.livelaw.in/supreme-court/s167-b2-it-act-fixed-share-given-to-member-of-association-of-persons-regardless-of-profit-will-be-taxed-as-income-supreme-court-533953
+
+[Read on Telegram](https://t.me/livelawindia/110820)
+
+---
+### 2026-05-12T14:03:52+00:00
+2026 LiveLaw (SC) 488 | COMMISSIONER OF INCOME TAX III VS. M/S. SANAND PROPERTIES PVT. LTD
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-488-commissioner-of-income-tax-iii-vs-ms-sanand-properties-pvt-ltd-533954
+
+[Read on Telegram](https://t.me/livelawindia/110821)
+
+---
+### 2026-05-12T14:12:32+00:00
+State Cannot Debar Contractor For Delay After Extending Time During COVID Period: Patna High Court Quashes Debarment
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-contractor-debarment-covid-extension-natural-justice-show-cause-notice-533938
+
+[Read on Telegram](https://t.me/livelawindia/110822)
+
+---
+### 2026-05-12T14:16:32+00:00
+Supreme Court Seeks Data From Allahabad High Court On Pending Criminal Cases, Undetrial Custody In UP
+https://www.livelaw.in/top-stories/supreme-court-seeks-data-from-allahabad-high-court-on-pending-criminal-cases-undetrial-custody-in-up-533956
+
+[Read on Telegram](https://t.me/livelawindia/110823)
+
+---
+### 2026-05-12T14:35:02+00:00
+Wife's Pursuit Of Career Can't Be Branded Cruelty Just Because It Hurt Husband's Sentiments : Supreme Court
+https://www.livelaw.in/top-stories/wifes-pursuit-of-career-cant-be-branded-cruelty-just-because-it-hurt-husbands-sentiments-supreme-court-533958
+
+[Read on Telegram](https://t.me/livelawindia/110824)
 
 ---
