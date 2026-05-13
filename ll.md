@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-13T11:20:35+00:00*
+*Last Updated: 2026-05-13T12:12:35+00:00*
 
 ---
 
-### 2026-05-13T11:20:35+00:00
-2026 LiveLaw (SC) 494 | Project Director, National Highways Authority of India versus Alfa Remidis Ltd. and others
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-494-project-director-national-highways-authority-of-india-versus-alfa-remidis-ltd-and-others-534077
-
-[Read on Telegram](https://t.me/livelawindia/110899)
-
----
-### 2026-05-13T11:39:55+00:00
-Arrest Memo Containing Mere 'Reasons For Arrest' Can't Substitute Person-Specific 'Grounds Of Arrest': Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/arrest-memo-mere-reasons-for-arrest-cant-substitute-person-specific-grounds-of-arrest-534080
-
-[Read on Telegram](https://t.me/livelawindia/110900)
-
----
-### 2026-05-13T11:44:55+00:00
-Law College Hostels Will Become Boarding & Lodging Facilities If There's No Attendance Mandate : Supreme Court
-https://www.livelaw.in/top-stories/law-college-hostels-will-become-boarding-lodging-facilities-if-theres-no-attendance-mandate-supreme-court-534082
-
-[Read on Telegram](https://t.me/livelawindia/110901)
-
----
-### 2026-05-13T11:52:55+00:00
-S. 13 Public Gambling Act Is A Non-Cognizable Offence; Police Can't Investigate Without Magistrate's Order: Allahabad HC
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-section-13-public-gambling-act-non-cognizable-offence-police-investigate-534087
-
-[Read on Telegram](https://t.me/livelawindia/110902)
-
----
-### 2026-05-13T11:53:05+00:00
-P&H High Court Flags 'Mechanical Approach' In Monitoring CCTV Compliance At Police Stations
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-flags-gaps-in-cctv-oversight-mechanism-seeks-detailed-report-from-punjab-haryana-chandigarh-534081
-
-[Read on Telegram](https://t.me/livelawindia/110903)
-
----
-### 2026-05-13T12:06:15+00:00
-When Does An Independent 'Join' A Party? Tenth Schedule's Unanswered Question
-https://www.livelaw.in/articles/tenth-schedule-independent-mp-joins-party-disqualification-anti-defection-law-534091
-
-[Read on Telegram](https://t.me/livelawindia/110904)
-
----
 ### 2026-05-13T12:12:35+00:00
 Driver Accidentally Falling From Bus Roof While Sleeping In Absence Of Rest-Rooms Is Entitled To Compensation: Gujarat High Court
 https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-compensation-driver-accidental-fall-bus-roof-no-rest-room-534083
@@ -142,5 +100,47 @@ https://www.livelaw.in/supreme-court/contractual-appointment-against-regular-pos
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-495-lokendra-kumar-tiwari-versus-union-of-india-and-others-534118
 
 [Read on Telegram](https://t.me/livelawindia/110918)
+
+---
+### 2026-05-13T14:47:50+00:00
+'Hostile Witness Testimony Can Be Used To Acquit Also, Not Just Convict' : Supreme Court Sets Aside Murder Conviction
+https://www.livelaw.in/supreme-court/hostile-witness-testimony-can-be-used-to-acquit-also-not-just-convict-supreme-court-sets-aside-murder-conviction-534123
+
+[Read on Telegram](https://t.me/livelawindia/110919)
+
+---
+### 2026-05-13T14:49:30+00:00
+2026 LiveLaw (SC) 496 | TALARI NARESH VERSUS THE STATE OF TELANGANA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-496-talari-naresh-versus-the-state-of-telangana-534124
+
+[Read on Telegram](https://t.me/livelawindia/110920)
+
+---
+### 2026-05-13T14:53:14+00:00
+Dying Declaration Recorded Minutes Before Death Is Substantial Evidence; Minor Contradictions Cannot Be Scrutinised At Bail Stage: J&K&L HC
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-dying-declaration-recorded-on-mobile-phone-minutes-before-death-is-substantial-evidence-minor-contradictions-cannot-be-scrutinized-at-bail-stage-534101
+
+[Read on Telegram](https://t.me/livelawindia/110921)
+
+---
+### 2026-05-13T15:08:15+00:00
+Allahabad High Court Grants Interim Protection To YouTuber Gautam Khattar In FIR Over Remarks On 'Karauli Shankar Baba'
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-interim-protection-youtuber-gautam-khattar-fir-karauli-shankar-baba-534129
+
+[Read on Telegram](https://t.me/livelawindia/110922)
+
+---
+### 2026-05-13T16:49:15+00:00
+From Intelligence To Empathy: Reimagining Role Of Emotional Intelligence (EQ) In Legal Profession
+https://www.livelaw.in/articles/emotional-intelligence-mental-health-lawyers-judges-stress-legal-profession-india-534132
+
+[Read on Telegram](https://t.me/livelawindia/110923)
+
+---
+### 2026-05-13T17:07:40+00:00
+Supreme Court Daily Round-Up : May 13, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-13-2026-534126
+
+[Read on Telegram](https://t.me/livelawindia/110924)
 
 ---
