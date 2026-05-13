@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-08T11:52:45+00:00*
+*Last Updated: 2026-05-13T09:02:53+00:00*
+
+---
+
+### 2026-05-13T09:02:53+00:00
+Signed Order Alone Reflects Court’s Final Opinion; Draft Dictation Can Be Corrected Before Signing: Supreme Court
+https://www.verdictum.in/supreme-court/fakir-mamad-suleman-sameja-v-adani-ports-and-special-economic-zones-ltd-2026-insc-483-signed-order-dictation-imposes-costs-1613918
+
+[Source Link](https://t.me/verdictumlegalupdates/26961)
+
+---
+
+### 2026-05-13T08:32:12+00:00
+Delhi High Court Restricts Commercial, Religious Activities On Yamuna Flood Plains; Asks DDA To Make Alternative Parking Arrangements
+https://www.verdictum.in/delhi-high-court/suresh-kumar-v-delhi-development-authority-anr-dda-yamuna-flood-plains-1613917
+
+[Source Link](https://t.me/verdictumlegalupdates/26960)
+
+---
+
+### 2026-05-13T08:02:30+00:00
+“Amount Wholly Inadequate”: Supreme Court Enhances Compensation For Family Of Engineering Student Who Died In 2000 Road Accident
+https://www.verdictum.in/supreme-court/mohinder-kaur-d-through-lr-v-brij-lal-arora-ors-2026-insc-477-mact-1613915
+
+[Source Link](https://t.me/verdictumlegalupdates/26959)
+
+---
+
+### 2026-05-13T07:32:29+00:00
+“No Court Bothers To Follow Guidelines”: Supreme Court Quashes 35-Year-Old Criminal Case Citing Enormous Delay
+https://www.verdictum.in/supreme-court/kailash-chandra-kapri-v-state-of-uttar-pradesh-2026-insc-473-35-year-old-criminal-case-pending-cases-1613907
+
+[Source Link](https://t.me/verdictumlegalupdates/26958)
+
+---
+
+### 2026-05-13T06:52:47+00:00
+Supreme Court Stays High Court Order Barring TVK MLA From Floor Test Amid Election Dispute
+https://www.verdictum.in/supreme-court/tamilaga-vettri-kazhagam-mla-from-floor-test-1613905
+
+[Source Link](https://t.me/verdictumlegalupdates/26957)
+
+---
+
+### 2026-05-13T06:32:46+00:00
+Right To Receive Education In One's Own Mother Language Part Of Fundamental Right To Speech & Expression: Supreme Court
+https://www.verdictum.in/supreme-court/padam-mehta-v-state-of-rajasthan-2026-insc-476-rajasthani-regional-language-policy-1613902
+
+[Source Link](https://t.me/verdictumlegalupdates/26956)
+
+---
+
+### 2026-05-13T06:02:25+00:00
+Supreme Court Directs SIT Probe Into Alleged Fraudulent Sale Of Spiritual Regeneration Movement Foundation Of India Lands
+https://www.verdictum.in/supreme-court/shrikant-ojha-v-state-of-uttar-pradesh-ors-2026-insc-482-sit-probe-1613900
+
+[Source Link](https://t.me/verdictumlegalupdates/26955)
 
 ---
 
@@ -105,62 +161,6 @@ Bar Association Membership Voluntary; Non-Membership Cannot Restrict Advocate's 
 https://www.verdictum.in/telangana-high-court/vijay-gopal-v-bar-council-of-india-anr-bar-council-of-india-membership-1613590
 
 [Source Link](https://t.me/verdictumlegalupdates/26942)
-
----
-
-### 2026-05-08T05:03:11+00:00
-Allahabad High Court Issues Comprehensive Guidelines On Mandatory Trial In Absentia Of Proclaimed Offenders U/S 356 BNSS
-https://www.verdictum.in/allahabad-high-court/ravi-alias-ravindra-singh-v-state-of-up-2026ahc101857-mandatory-trial-in-absentia-1613587
-
-[Source Link](https://t.me/verdictumlegalupdates/26941)
-
----
-
-### 2026-05-08T04:33:00+00:00
-Court Must Act As "Doctor" Rather Than "Coroner": Delhi HC Grants Bail To Murder Accused In Custody For Over 5 Years
-https://www.verdictum.in/delhi-high-court/ranjit-mehto-v-state-nct-of-delhi-2026dhc3784-grants-bail-to-murder-accused-in-custody-for-over-5-years-1613556
-
-[Source Link](https://t.me/verdictumlegalupdates/26940)
-
----
-
-### 2026-05-07T16:02:19+00:00
-Legal Assistant Vacancy At Bhavnagar Municipal Corporation (BMC)
-https://www.verdictum.in/job-updates/bhavnagar-municipal-corporation-1613560
-
-[Source Link](https://t.me/verdictumlegalupdates/26939)
-
----
-
-### 2026-05-07T15:12:27+00:00
-Vague Remarks Not Criminal Intimidation: Delhi High Court Upholds Acquittal Of Advocates Accused Of Threatening Woman In Court Premises
-https://www.verdictum.in/delhi-high-court/monika-aggarwal-ors-v-the-state-govt-of-nct-of-delhi-ors-2026dhc3798-1613559
-
-[Source Link](https://t.me/verdictumlegalupdates/26938)
-
----
-
-### 2026-05-07T14:32:25+00:00
-Reverse Onus U/S 16 Immigration & Foreigners Act Is Absolute: Calcutta HC Denies Relief To Bangladeshi Hindu Woman Accused of Overstaying Visa
-https://www.verdictum.in/calcutta-high-court/sampa-sarkar-v-the-state-of-west-bengal-crr-1121-of-2026-bangladeshi-hindu-woman-overstaying-visa-1613558
-
-[Source Link](https://t.me/verdictumlegalupdates/26937)
-
----
-
-### 2026-05-07T13:52:24+00:00
-Call Logs Alone Cannot Establish Role: J&K And Ladakh High Court Grants Bail To Accused In Cross-LOC Drug Trafficking Case
-https://www.verdictum.in/jammu-ladakh-high-court/abdul-rashid-kohli-v-union-territory-of-jammu-kashmir-ndps-drg-trafficking-1613557
-
-[Source Link](https://t.me/verdictumlegalupdates/26936)
-
----
-
-### 2026-05-07T13:13:02+00:00
-Andhra Pradesh High Court's Order Against Junior Advocate: The Stand Of Bar Bodies Across Country
-https://www.verdictum.in/news/custody-order-junior-advocate-justice-tarlada-rajasekhar-rao-1613566
-
-[Source Link](https://t.me/verdictumlegalupdates/26935)
 
 ---
 
