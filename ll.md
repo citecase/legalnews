@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-12T13:45:49+00:00*
+*Last Updated: 2026-05-12T13:50:09+00:00*
 
 ---
 
-### 2026-05-12T13:45:49+00:00
-Kolkata Court Orders 10-Day ED Custody For Former Bengal Minister, TMC Leader Sujit Bose
-https://www.livelaw.in/news-updates/kolkata-court-orders-10-day-ed-custody-for-former-bengal-minister-tmc-leader-sujit-bose-533937
-
-[Read on Telegram](https://t.me/livelawindia/110816)
-
----
-### 2026-05-12T13:49:09+00:00
-'Quick Justice Sine Qua Non Of Art 21' : Supreme Court Quashes 35-Year-Old Simple Hurt Case For Violation Of Speedy Trial Right
-https://www.livelaw.in/top-stories/quick-justice-sine-qua-non-of-art-21-supreme-court-quashes-35-year-old-simple-hurt-case-for-violation-of-speedy-trial-right-533942
-
-[Read on Telegram](https://t.me/livelawindia/110817)
-
----
 ### 2026-05-12T13:50:09+00:00
 2026 LiveLaw (SC) 487 | Kailash Chandra Kapri v. State of Uttar Pradesh & Ors.
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-487-kailash-chandra-kapri-v-state-of-uttar-pradesh-ors-533944
@@ -142,5 +128,19 @@ Supreme Court Daily Round-Up : May 12, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-12-2026-533962
 
 [Read on Telegram](https://t.me/livelawindia/110835)
+
+---
+### 2026-05-13T03:30:40+00:00
+Legal Cum Probation Officer And Child Welfare Officer/Case Worker Vacancy At Women And Child Development, Raipur
+https://www.livelaw.in/job-updates/legal-cum-probation-officer-and-child-welfare-officercase-worker-vacancy-at-women-and-child-development-raipur-533979
+
+[Read on Telegram](https://t.me/livelawindia/110836)
+
+---
+### 2026-05-13T03:33:20+00:00
+Unregulated Deposits Act | Provisional Attachment Can't Survive Beyond Statutory Period For Filing Confirmation Plea: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-buds-act-provisional-attachment-confirmation-application-533921
+
+[Read on Telegram](https://t.me/livelawindia/110837)
 
 ---
