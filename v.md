@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-13T15:02:31+00:00*
+*Last Updated: 2026-05-13T16:02:54+00:00*
+
+---
+
+### 2026-05-13T16:02:54+00:00
+Consultant (Legal) Vacancy At Educational Consultants India Limited (EdCIL India)
+https://www.verdictum.in/job-updates/educational-consultants-india-limited-1613933
+
+[Source Link](https://t.me/verdictumlegalupdates/26975)
+
+---
+
+### 2026-05-13T15:32:12+00:00
+Identification Of Perpetrator Doubtful Owing To Darkness At Time Of Incident: Uttarakhand High Court Acquits POCSO Accused
+https://www.verdictum.in/uttarakhand-high-court/mohit-tyagi-v-state-of-uttarakhand-pocso-penetrative-sexual-assault-acquittal-1613942
+
+[Source Link](https://t.me/verdictumlegalupdates/26974)
 
 ---
 
@@ -145,22 +161,6 @@ Right To Receive Education In One's Own Mother Language Part Of Fundamental Righ
 https://www.verdictum.in/supreme-court/padam-mehta-v-state-of-rajasthan-2026-insc-476-rajasthani-regional-language-policy-1613902
 
 [Source Link](https://t.me/verdictumlegalupdates/26956)
-
----
-
-### 2026-05-13T06:02:25+00:00
-Supreme Court Directs SIT Probe Into Alleged Fraudulent Sale Of Spiritual Regeneration Movement Foundation Of India Lands
-https://www.verdictum.in/supreme-court/shrikant-ojha-v-state-of-uttar-pradesh-ors-2026-insc-482-sit-probe-1613900
-
-[Source Link](https://t.me/verdictumlegalupdates/26955)
-
----
-
-### 2026-05-08T11:52:45+00:00
-Subsequent Payment Of Maintenance Does Not Cure Breach That Triggered Revocation Of Property Transfer U/S 23 Senior Citizens Act: Bombay High Court
-https://www.verdictum.in/bombay-high-court/shambhaji-balakrishna-zambre-v-chayya-balakrishna-zambre-2026bhc-kol3563-1613628
-
-[Source Link](https://t.me/verdictumlegalupdates/26954)
 
 ---
 
