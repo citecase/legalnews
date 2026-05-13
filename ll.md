@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-12T13:50:09+00:00*
+*Last Updated: 2026-05-13T05:52:53+00:00*
 
 ---
 
-### 2026-05-12T13:50:09+00:00
-2026 LiveLaw (SC) 487 | Kailash Chandra Kapri v. State of Uttar Pradesh & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-487-kailash-chandra-kapri-v-state-of-uttar-pradesh-ors-533944
+### 2026-05-13T05:52:53+00:00
+Merely Taking Away Seized Tractor From Police Custody Doesn't Make One A 'Sand Smuggler': Bombay High Court Quashes Detention
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-quashes-preventive-detention-mpda-act-sand-smuggler-tractor-police-custody-533951
 
-[Read on Telegram](https://t.me/livelawindia/110818)
-
----
-### 2026-05-12T13:59:32+00:00
-Access To Potable Water Is Part Of Article 21, State Can't Evade Responsibility: MP High Court Directs Pipeline Connectivity For Gwalior Colony
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/right-to-clean-drinking-water-article-21-pipeline-connectivity-to-colony-in-gwalior-mp-jal-nigam-533952
-
-[Read on Telegram](https://t.me/livelawindia/110819)
+[Read on Telegram](https://t.me/livelawindia/110861)
 
 ---
-### 2026-05-12T14:02:32+00:00
-S.167 B(2) IT Act | Fixed Share Given To Member Of 'Association Of Persons' Regardless Of Profit Will Be Taxed As Income : Supreme Court
-https://www.livelaw.in/supreme-court/s167-b2-it-act-fixed-share-given-to-member-of-association-of-persons-regardless-of-profit-will-be-taxed-as-income-supreme-court-533953
+### 2026-05-13T06:12:33+00:00
+Licensed Occupant Of Govt 'Puramboke' Land Can't Be Treated As Encroacher For Denying Rehabilitation Benefits: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/licensed-occupant-puramboke-land-encroacher-rehabilitation-benefits-533993
 
-[Read on Telegram](https://t.me/livelawindia/110820)
-
----
-### 2026-05-12T14:03:52+00:00
-2026 LiveLaw (SC) 488 | COMMISSIONER OF INCOME TAX III VS. M/S. SANAND PROPERTIES PVT. LTD
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-488-commissioner-of-income-tax-iii-vs-ms-sanand-properties-pvt-ltd-533954
-
-[Read on Telegram](https://t.me/livelawindia/110821)
+[Read on Telegram](https://t.me/livelawindia/110862)
 
 ---
-### 2026-05-12T14:12:32+00:00
-State Cannot Debar Contractor For Delay After Extending Time During COVID Period: Patna High Court Quashes Debarment
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-contractor-debarment-covid-extension-natural-justice-show-cause-notice-533938
+### 2026-05-13T06:21:53+00:00
+BREAKING| 'Atrocious' : Supreme Court Stays Madras HC Order Restraining TVK MLA Sethupathi From Voting In TN Floor Test
+https://www.livelaw.in/top-stories/atrocious-supreme-court-stays-madras-hc-order-restraining-tvk-mla-sethupathi-from-voting-in-tn-floor-test-534016
 
-[Read on Telegram](https://t.me/livelawindia/110822)
-
----
-### 2026-05-12T14:16:32+00:00
-Supreme Court Seeks Data From Allahabad High Court On Pending Criminal Cases, Undetrial Custody In UP
-https://www.livelaw.in/top-stories/supreme-court-seeks-data-from-allahabad-high-court-on-pending-criminal-cases-undetrial-custody-in-up-533956
-
-[Read on Telegram](https://t.me/livelawindia/110823)
+[Read on Telegram](https://t.me/livelawindia/110863)
 
 ---
-### 2026-05-12T14:35:02+00:00
-Wife's Pursuit Of Career Can't Be Branded Cruelty Just Because It Hurt Husband's Sentiments : Supreme Court
-https://www.livelaw.in/top-stories/wifes-pursuit-of-career-cant-be-branded-cruelty-just-because-it-hurt-husbands-sentiments-supreme-court-533958
+### 2026-05-13T06:32:23+00:00
+Chit Funds Act | Deputy Registrar Can Issue Recovery Certificate Executable As Civil Court Decree: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-deputy-registrar-powers-recovery-certificate-civil-court-decree-chit-funds-act-533998
 
-[Read on Telegram](https://t.me/livelawindia/110824)
-
----
-### 2026-05-12T14:40:22+00:00
-2026 LiveLaw (SC) 489 | Ann Saurabh Dutt v. Lieutenant Colonel Saurabh Iqbal Bahadur Dutt
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-489-ann-saurabh-dutt-v-lieutenant-colonel-saurabh-iqbal-bahadur-dutt-533960
-
-[Read on Telegram](https://t.me/livelawindia/110825)
+[Read on Telegram](https://t.me/livelawindia/110864)
 
 ---
-### 2026-05-12T14:47:22+00:00
-“Elite Form Of Coercion”: Bombay HC Says Courts Cannot Be Used By Tenants To Pressure Landlords Into Recognising Developer's Rights
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-tenants-implead-developer-no-privity-contract-redevelopment-5-lakh-cost-533949
+### 2026-05-13T06:38:43+00:00
+IDIA-IC RegFin Legal Essay Writing Competition
+https://www.livelaw.in/lawschool/competitions/idia-ic-regfin-legal-essay-writing-competition-534019
 
-[Read on Telegram](https://t.me/livelawindia/110826)
-
----
-### 2026-05-12T14:47:42+00:00
-Labour Court Cannot Adjudicate Disputed Service Entitlements Like TA/DA Under Section 33C(2) ID Act: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/labour-court-cannot-adjudicate-disputed-service-entitlements-like-tada-under-section-33c2-id-act-delhi-high-court-533939
-
-[Read on Telegram](https://t.me/livelawindia/110827)
+[Read on Telegram](https://t.me/livelawindia/110865)
 
 ---
-### 2026-05-12T15:08:02+00:00
-Delhi High Court Dismisses Gang Rape Convict's Repeated Interim Bail Pleas For Mother's Surgery, Imposes Costs
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-dismisses-gang-rape-convicts-repeated-interim-bail-pleas-for-mothers-surgery-imposes-costs-533940
+### 2026-05-13T06:47:43+00:00
+Bombay High Court Weekly Round-Up: May 04 - May 10, 2026
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-weekly-round-up-533994
 
-[Read on Telegram](https://t.me/livelawindia/110828)
-
----
-### 2026-05-12T15:22:52+00:00
-Small Recoveries In FIRs Without Final Report Can't Establish “Continuous Drug Peddling” For Preventive Detention: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-small-recoveries-in-firs-under-investigation-without-final-report-cant-establish-continuous-drug-peddling-for-preventive-detention-533945
-
-[Read on Telegram](https://t.me/livelawindia/110829)
+[Read on Telegram](https://t.me/livelawindia/110866)
 
 ---
-### 2026-05-12T15:38:15+00:00
-Mere Rejection Of Representation Does Not Give Fresh Cause Of Action In Service Matters: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-mere-representations-to-department-cannot-cure-delay-in-filing-writ-petition-rejected-representation-does-not-give-fresh-cause-of-action-533941
+### 2026-05-13T07:01:08+00:00
+Child Has Fundamental Right Under Art 19(1)(a) To Receive Education In Mother Tongue : Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-article-19-includes-child-freedom-of-choice-on-medium-of-instruction-for-primary-education-534025
 
-[Read on Telegram](https://t.me/livelawindia/110830)
-
----
-### 2026-05-12T15:55:45+00:00
-Rajasthan High Court Seizes Mobile Phone After Litigant's Driver Found Recording Court Proceedings, Issues Contempt Notice
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-contempt-mobile-recording-court-proceedings-533966
-
-[Read on Telegram](https://t.me/livelawindia/110831)
+[Read on Telegram](https://t.me/livelawindia/110867)
 
 ---
-### 2026-05-12T16:02:25+00:00
-DNA Report Cannot Be Relied Upon To Convict Accused If Not Put To Him During S.313 CrPC Examination: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-dna-report-section-313-crpc-examination-conviction-533946
+### 2026-05-13T07:03:08+00:00
+Wife Strangulated For Protesting Against Husband's Extramarital Affair: Calcutta High Court Upholds Murder Conviction
+https://www.livelaw.in/high-court/calcutta-high-court/wife-strangulated-for-protesting-against-husbands-extramarital-affairs-calcutta-high-court-upholds-conviction-534011
 
-[Read on Telegram](https://t.me/livelawindia/110832)
-
----
-### 2026-05-12T16:14:45+00:00
-“Breathtaking Irony”: Rajasthan High Court Bars Felling Of Rare Desert Tree 'Khejri' For Solar Projects Without Prior Approval
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-khejri-trees-solar-projects-tree-cutting-environmental-protection-533969
-
-[Read on Telegram](https://t.me/livelawindia/110833)
+[Read on Telegram](https://t.me/livelawindia/110868)
 
 ---
-### 2026-05-12T16:18:05+00:00
-'Morality Has To Be Kept Separate From Offence In Matters Of Liberty': Delhi High Court While Granting Bail To Rape Accused
-https://www.livelaw.in/high-court/delhi-high-court/morality-has-to-be-kept-separate-from-offence-in-matters-of-liberty-delhi-high-court-while-granting-bail-to-rape-accused-533970
+### 2026-05-13T07:10:28+00:00
+South Delhi Consumer Commission Holds Tata AIA Liable For Cancelling Insurance Policies After Policyholder's Death On Frivolous Grounds
+https://www.livelaw.in/consumer-cases/south-delhi-consumer-commission-holds-tata-aia-liable-for-cancelling-insurance-policies-after-policyholders-death-on-frivolous-grounds-534027
 
-[Read on Telegram](https://t.me/livelawindia/110834)
-
----
-### 2026-05-12T17:13:15+00:00
-Supreme Court Daily Round-Up : May 12, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-12-2026-533962
-
-[Read on Telegram](https://t.me/livelawindia/110835)
+[Read on Telegram](https://t.me/livelawindia/110869)
 
 ---
-### 2026-05-13T03:30:40+00:00
-Legal Cum Probation Officer And Child Welfare Officer/Case Worker Vacancy At Women And Child Development, Raipur
-https://www.livelaw.in/job-updates/legal-cum-probation-officer-and-child-welfare-officercase-worker-vacancy-at-women-and-child-development-raipur-533979
+### 2026-05-13T07:17:52+00:00
+Allahabad High Court Bar Association Objects To Appointment Of Delhi-Based Lawyers As Judges Of Allahabad HC
+https://www.livelaw.in/news-updates/allahabad-high-court-bar-association-objects-delhi-advocates-appointments-534028
 
-[Read on Telegram](https://t.me/livelawindia/110836)
+[Read on Telegram](https://t.me/livelawindia/110870)
 
 ---
-### 2026-05-13T03:33:20+00:00
-Unregulated Deposits Act | Provisional Attachment Can't Survive Beyond Statutory Period For Filing Confirmation Plea: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-buds-act-provisional-attachment-confirmation-application-533921
+### 2026-05-13T07:32:32+00:00
+'Highly Misconceived': Delhi High Court Dismisses PIL To Impose Tax On Agricultural Income
+https://www.livelaw.in/high-court/delhi-high-court/pil-to-impose-tax-on-agricultural-income-dismissed-misconceived-534029
 
-[Read on Telegram](https://t.me/livelawindia/110837)
+[Read on Telegram](https://t.me/livelawindia/110871)
+
+---
+### 2026-05-13T07:44:52+00:00
+[Advertisement] Into Legal World  Presents: Legal Drafting For Law Firms & Litigation Practice – 12 Courses, 8K  Editable Drafts & 500 Hours Of Practical Video Lectures At ₹499/- Only ( GST)
+https://www.livelaw.in/law-firms/advertisement-into-legal-world-legal-drafting-law-firms-litigation-practice-534033
+
+[Read on Telegram](https://t.me/livelawindia/110872)
+
+---
+### 2026-05-13T07:47:12+00:00
+Supreme Court Quarterly Digest 2026 - Service Law
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-quarterly-digest-2026-service-law-534034
+
+[Read on Telegram](https://t.me/livelawindia/110873)
+
+---
+### 2026-05-13T07:47:52+00:00
+Possible Misuse Of Domestic Water Connection No Ground To Deny Benefit Under Statute: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-multistoried-building-water-supply-act-534018
+
+[Read on Telegram](https://t.me/livelawindia/110874)
+
+---
+### 2026-05-13T08:07:22+00:00
+Only Prima Facie Satisfaction Required U/S 23 Domestic Violence Act; Meticulous Evidence Analysis To Be Avoided: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-only-prima-facie-satisfaction-required-under-section-23-dv-act-meticulous-evidence-analysis-to-be-avoided-533947
+
+[Read on Telegram](https://t.me/livelawindia/110875)
+
+---
+### 2026-05-13T08:17:42+00:00
+Congress MP R Sudha Moves Madras High Court Against Rajiv Gandhi Assassination Convict's Enrolment As Advocate, Notice Issued
+https://www.livelaw.in/high-court/madras-high-court/rajiv-gandhi-assassination-convict-perarivalan-enrolment-challenge-r-sudha-congress-mp-advocates-act-534038
+
+[Read on Telegram](https://t.me/livelawindia/110876)
+
+---
+### 2026-05-13T08:33:12+00:00
+[Mines & Minerals Act] 'Fresh Auction Not Required For Disposing Of Mining Dumps Created Under Approved Plan': Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-allows-ex-lessees-remove-mining-dumps-without-fresh-auction-goa-533950
+
+[Read on Telegram](https://t.me/livelawindia/110877)
+
+---
+### 2026-05-13T08:33:23+00:00
+Avoid Interpretation Silencing Reformist Voices Within Religion : Mohan Gopal In Sabarimala Reference
+https://www.livelaw.in/top-stories/avoid-interpretation-silencing-reformist-voices-within-religion-mohan-gopal-in-sabarimala-reference-534042
+
+[Read on Telegram](https://t.me/livelawindia/110878)
+
+---
+### 2026-05-13T08:47:43+00:00
+Strictly Check Dissemination Of Obscene Content Through Play Store Apps: Delhi High Court To Google, Apple
+https://www.livelaw.in/high-court/delhi-high-court/strictly-check-dissemination-of-obscene-content-through-play-store-apps-delhi-high-court-to-google-apple-534043
+
+[Read on Telegram](https://t.me/livelawindia/110879)
+
+---
+### 2026-05-13T08:47:53+00:00
+Calcutta High Court Denies Relief To Convict In 2010 Maoist Attack At EFR Camp Which Killed 24 Security Personnel
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-denies-relief-to-convict-in-2010-maoist-attack-at-efr-camp-which-killed-24-security-personnel-534014
+
+[Read on Telegram](https://t.me/livelawindia/110880)
 
 ---
