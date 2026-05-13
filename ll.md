@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-13T05:52:53+00:00*
+*Last Updated: 2026-05-13T11:20:35+00:00*
 
 ---
 
-### 2026-05-13T05:52:53+00:00
-Merely Taking Away Seized Tractor From Police Custody Doesn't Make One A 'Sand Smuggler': Bombay High Court Quashes Detention
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-quashes-preventive-detention-mpda-act-sand-smuggler-tractor-police-custody-533951
+### 2026-05-13T11:20:35+00:00
+2026 LiveLaw (SC) 494 | Project Director, National Highways Authority of India versus Alfa Remidis Ltd. and others
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-494-project-director-national-highways-authority-of-india-versus-alfa-remidis-ltd-and-others-534077
 
-[Read on Telegram](https://t.me/livelawindia/110861)
-
----
-### 2026-05-13T06:12:33+00:00
-Licensed Occupant Of Govt 'Puramboke' Land Can't Be Treated As Encroacher For Denying Rehabilitation Benefits: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/licensed-occupant-puramboke-land-encroacher-rehabilitation-benefits-533993
-
-[Read on Telegram](https://t.me/livelawindia/110862)
+[Read on Telegram](https://t.me/livelawindia/110899)
 
 ---
-### 2026-05-13T06:21:53+00:00
-BREAKING| 'Atrocious' : Supreme Court Stays Madras HC Order Restraining TVK MLA Sethupathi From Voting In TN Floor Test
-https://www.livelaw.in/top-stories/atrocious-supreme-court-stays-madras-hc-order-restraining-tvk-mla-sethupathi-from-voting-in-tn-floor-test-534016
+### 2026-05-13T11:39:55+00:00
+Arrest Memo Containing Mere 'Reasons For Arrest' Can't Substitute Person-Specific 'Grounds Of Arrest': Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/arrest-memo-mere-reasons-for-arrest-cant-substitute-person-specific-grounds-of-arrest-534080
 
-[Read on Telegram](https://t.me/livelawindia/110863)
-
----
-### 2026-05-13T06:32:23+00:00
-Chit Funds Act | Deputy Registrar Can Issue Recovery Certificate Executable As Civil Court Decree: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-deputy-registrar-powers-recovery-certificate-civil-court-decree-chit-funds-act-533998
-
-[Read on Telegram](https://t.me/livelawindia/110864)
+[Read on Telegram](https://t.me/livelawindia/110900)
 
 ---
-### 2026-05-13T06:38:43+00:00
-IDIA-IC RegFin Legal Essay Writing Competition
-https://www.livelaw.in/lawschool/competitions/idia-ic-regfin-legal-essay-writing-competition-534019
+### 2026-05-13T11:44:55+00:00
+Law College Hostels Will Become Boarding & Lodging Facilities If There's No Attendance Mandate : Supreme Court
+https://www.livelaw.in/top-stories/law-college-hostels-will-become-boarding-lodging-facilities-if-theres-no-attendance-mandate-supreme-court-534082
 
-[Read on Telegram](https://t.me/livelawindia/110865)
-
----
-### 2026-05-13T06:47:43+00:00
-Bombay High Court Weekly Round-Up: May 04 - May 10, 2026
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-weekly-round-up-533994
-
-[Read on Telegram](https://t.me/livelawindia/110866)
+[Read on Telegram](https://t.me/livelawindia/110901)
 
 ---
-### 2026-05-13T07:01:08+00:00
-Child Has Fundamental Right Under Art 19(1)(a) To Receive Education In Mother Tongue : Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-article-19-includes-child-freedom-of-choice-on-medium-of-instruction-for-primary-education-534025
+### 2026-05-13T11:52:55+00:00
+S. 13 Public Gambling Act Is A Non-Cognizable Offence; Police Can't Investigate Without Magistrate's Order: Allahabad HC
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-section-13-public-gambling-act-non-cognizable-offence-police-investigate-534087
 
-[Read on Telegram](https://t.me/livelawindia/110867)
-
----
-### 2026-05-13T07:03:08+00:00
-Wife Strangulated For Protesting Against Husband's Extramarital Affair: Calcutta High Court Upholds Murder Conviction
-https://www.livelaw.in/high-court/calcutta-high-court/wife-strangulated-for-protesting-against-husbands-extramarital-affairs-calcutta-high-court-upholds-conviction-534011
-
-[Read on Telegram](https://t.me/livelawindia/110868)
+[Read on Telegram](https://t.me/livelawindia/110902)
 
 ---
-### 2026-05-13T07:10:28+00:00
-South Delhi Consumer Commission Holds Tata AIA Liable For Cancelling Insurance Policies After Policyholder's Death On Frivolous Grounds
-https://www.livelaw.in/consumer-cases/south-delhi-consumer-commission-holds-tata-aia-liable-for-cancelling-insurance-policies-after-policyholders-death-on-frivolous-grounds-534027
+### 2026-05-13T11:53:05+00:00
+P&H High Court Flags 'Mechanical Approach' In Monitoring CCTV Compliance At Police Stations
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-flags-gaps-in-cctv-oversight-mechanism-seeks-detailed-report-from-punjab-haryana-chandigarh-534081
 
-[Read on Telegram](https://t.me/livelawindia/110869)
-
----
-### 2026-05-13T07:17:52+00:00
-Allahabad High Court Bar Association Objects To Appointment Of Delhi-Based Lawyers As Judges Of Allahabad HC
-https://www.livelaw.in/news-updates/allahabad-high-court-bar-association-objects-delhi-advocates-appointments-534028
-
-[Read on Telegram](https://t.me/livelawindia/110870)
+[Read on Telegram](https://t.me/livelawindia/110903)
 
 ---
-### 2026-05-13T07:32:32+00:00
-'Highly Misconceived': Delhi High Court Dismisses PIL To Impose Tax On Agricultural Income
-https://www.livelaw.in/high-court/delhi-high-court/pil-to-impose-tax-on-agricultural-income-dismissed-misconceived-534029
+### 2026-05-13T12:06:15+00:00
+When Does An Independent 'Join' A Party? Tenth Schedule's Unanswered Question
+https://www.livelaw.in/articles/tenth-schedule-independent-mp-joins-party-disqualification-anti-defection-law-534091
 
-[Read on Telegram](https://t.me/livelawindia/110871)
-
----
-### 2026-05-13T07:44:52+00:00
-[Advertisement] Into Legal World  Presents: Legal Drafting For Law Firms & Litigation Practice – 12 Courses, 8K  Editable Drafts & 500 Hours Of Practical Video Lectures At ₹499/- Only ( GST)
-https://www.livelaw.in/law-firms/advertisement-into-legal-world-legal-drafting-law-firms-litigation-practice-534033
-
-[Read on Telegram](https://t.me/livelawindia/110872)
+[Read on Telegram](https://t.me/livelawindia/110904)
 
 ---
-### 2026-05-13T07:47:12+00:00
-Supreme Court Quarterly Digest 2026 - Service Law
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-quarterly-digest-2026-service-law-534034
+### 2026-05-13T12:12:35+00:00
+Driver Accidentally Falling From Bus Roof While Sleeping In Absence Of Rest-Rooms Is Entitled To Compensation: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-compensation-driver-accidental-fall-bus-roof-no-rest-room-534083
 
-[Read on Telegram](https://t.me/livelawindia/110873)
-
----
-### 2026-05-13T07:47:52+00:00
-Possible Misuse Of Domestic Water Connection No Ground To Deny Benefit Under Statute: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-multistoried-building-water-supply-act-534018
-
-[Read on Telegram](https://t.me/livelawindia/110874)
+[Read on Telegram](https://t.me/livelawindia/110905)
 
 ---
-### 2026-05-13T08:07:22+00:00
-Only Prima Facie Satisfaction Required U/S 23 Domestic Violence Act; Meticulous Evidence Analysis To Be Avoided: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-only-prima-facie-satisfaction-required-under-section-23-dv-act-meticulous-evidence-analysis-to-be-avoided-533947
+### 2026-05-13T12:32:51+00:00
+Candidate Can't Change Reserved Sub-Category After Declaration Of Recruitment Result: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/category-change-after-recruitment-exam-result-denied-534084
 
-[Read on Telegram](https://t.me/livelawindia/110875)
-
----
-### 2026-05-13T08:17:42+00:00
-Congress MP R Sudha Moves Madras High Court Against Rajiv Gandhi Assassination Convict's Enrolment As Advocate, Notice Issued
-https://www.livelaw.in/high-court/madras-high-court/rajiv-gandhi-assassination-convict-perarivalan-enrolment-challenge-r-sudha-congress-mp-advocates-act-534038
-
-[Read on Telegram](https://t.me/livelawindia/110876)
+[Read on Telegram](https://t.me/livelawindia/110906)
 
 ---
-### 2026-05-13T08:33:12+00:00
-[Mines & Minerals Act] 'Fresh Auction Not Required For Disposing Of Mining Dumps Created Under Approved Plan': Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-allows-ex-lessees-remove-mining-dumps-without-fresh-auction-goa-533950
+### 2026-05-13T12:36:11+00:00
+Delhi High Court Upholds Life Sentence Of Man Who Called Cops After Attacking Wife & Daughter With Hammer
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-upholds-life-sentence-of-man-who-called-cops-after-attacking-wife-daughter-with-hammer-534099
 
-[Read on Telegram](https://t.me/livelawindia/110877)
-
----
-### 2026-05-13T08:33:23+00:00
-Avoid Interpretation Silencing Reformist Voices Within Religion : Mohan Gopal In Sabarimala Reference
-https://www.livelaw.in/top-stories/avoid-interpretation-silencing-reformist-voices-within-religion-mohan-gopal-in-sabarimala-reference-534042
-
-[Read on Telegram](https://t.me/livelawindia/110878)
+[Read on Telegram](https://t.me/livelawindia/110907)
 
 ---
-### 2026-05-13T08:47:43+00:00
-Strictly Check Dissemination Of Obscene Content Through Play Store Apps: Delhi High Court To Google, Apple
-https://www.livelaw.in/high-court/delhi-high-court/strictly-check-dissemination-of-obscene-content-through-play-store-apps-delhi-high-court-to-google-apple-534043
+### 2026-05-13T12:48:11+00:00
+Blackbucks Death Case | Habeas Corpus Plea Not Maintainable After Bail Rejection: MP High Court Reiterates
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-habeas-corpus-blackbucks-death-534086
 
-[Read on Telegram](https://t.me/livelawindia/110879)
+[Read on Telegram](https://t.me/livelawindia/110908)
 
 ---
-### 2026-05-13T08:47:53+00:00
-Calcutta High Court Denies Relief To Convict In 2010 Maoist Attack At EFR Camp Which Killed 24 Security Personnel
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-denies-relief-to-convict-in-2010-maoist-attack-at-efr-camp-which-killed-24-security-personnel-534014
+### 2026-05-13T12:53:51+00:00
+Role Of Police Is Not To Just 'Arrest And Dump' People In Jail: Delhi High Court Calls For Cooperation During Prosecutions
+https://www.livelaw.in/high-court/delhi-high-court/police-arrest-and-bail-prosecution-cooperation-534106
 
-[Read on Telegram](https://t.me/livelawindia/110880)
+[Read on Telegram](https://t.me/livelawindia/110909)
+
+---
+### 2026-05-13T13:03:31+00:00
+Telangana High Court To Hear Tomorrow BJP Leader Bandi Sanjay's Son Sai Bageerath's Anticipatory Bail Plea In POCSO Case
+https://www.livelaw.in/high-court/telangana-high-court/bandi-sai-bageerath-moves-telangana-high-court-anticipatory-bail-pocso-case-534107
+
+[Read on Telegram](https://t.me/livelawindia/110910)
+
+---
+### 2026-05-13T13:18:22+00:00
+Calcutta High Court Upholds Misconduct Finding Against SAIL Employee For Encroaching On Company Land
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-upholds-misconduct-finding-against-sail-employee-for-encroaching-on-company-land-534013
+
+[Read on Telegram](https://t.me/livelawindia/110911)
+
+---
+### 2026-05-13T13:32:42+00:00
+MP High Court Slams Police For 'Casual Investigation' In Road Accident Which Claimed 5 Lives, Grants Bail To Driver For Lack Of Evidence
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bail-application-road-accident-in-jabalpur-killing-5-labourers-534108
+
+[Read on Telegram](https://t.me/livelawindia/110912)
+
+---
+### 2026-05-13T13:42:20+00:00
+Insurance Company Cannot Reject Cattle Insurance Claim On Basis Of Undisclosed Cooling Period Clause: Baramulla Consumer Commission
+https://www.livelaw.in/consumer-cases/insurance-company-cannot-reject-cattle-insurance-claim-on-basis-of-undisclosed-cooling-period-clause-baramulla-consumer-commission-534110
+
+[Read on Telegram](https://t.me/livelawindia/110913)
+
+---
+### 2026-05-13T13:42:30+00:00
+'Classic Case Of Abuse Of Procedural Law': Delhi High Court Slaps ₹50,000 Costs On Accused For Delaying Trial Since 2016
+https://www.livelaw.in/high-court/delhi-high-court/classic-case-of-abuse-of-procedural-law-delhi-high-court-slaps-50000-costs-on-accused-for-delaying-trial-since-2016-534100
+
+[Read on Telegram](https://t.me/livelawindia/110914)
+
+---
+### 2026-05-13T14:07:40+00:00
+Police Cannot Seize Bank Accounts Under Section 102 CrPC Without Direct Link To Offence: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-rules-police-cannot-freeze-bank-accounts-section-102-crpc-534098
+
+[Read on Telegram](https://t.me/livelawindia/110915)
+
+---
+### 2026-05-13T14:17:20+00:00
+Delhi High Court Upholds Eviction Of Daughter-In-Law From In-Laws' House To Protect Their Right To Peaceful Residence
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-upholds-eviction-of-daughter-in-law-from-in-laws-house-to-protect-their-right-to-peaceful-residence-534104
+
+[Read on Telegram](https://t.me/livelawindia/110916)
+
+---
+### 2026-05-13T14:32:50+00:00
+Contractual Appointment Against Regular Post Advertisement Is 'Patently Illegal': Supreme Court
+https://www.livelaw.in/supreme-court/contractual-appointment-against-regular-post-advertisement-is-patently-illegal-supreme-court-534117
+
+[Read on Telegram](https://t.me/livelawindia/110917)
+
+---
+### 2026-05-13T14:34:30+00:00
+2026 LiveLaw (SC) 495 |  LOKENDRA KUMAR TIWARI VERSUS UNION OF INDIA AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-495-lokendra-kumar-tiwari-versus-union-of-india-and-others-534118
+
+[Read on Telegram](https://t.me/livelawindia/110918)
 
 ---
