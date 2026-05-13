@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-13T09:02:53+00:00*
+*Last Updated: 2026-05-13T15:02:31+00:00*
+
+---
+
+### 2026-05-13T15:02:31+00:00
+Billing Discrepancies & Non-Supply Of Medical Records Fall Short Of Criminal Offence: Supreme Court Quashes Complaint Against Hospital
+https://www.verdictum.in/supreme-court/narayana-health-ors-v-the-state-of-west-bengal-ors-2026-insc-481-billing-discrepancies-offence-1613940
+
+[Source Link](https://t.me/verdictumlegalupdates/26973)
+
+---
+
+### 2026-05-13T14:32:29+00:00
+Denying Regular Appointment To Candidate Despite Being Found Suitable After Regular Selection Process Is Patently Illegal & Unconstitutional: Supreme Court
+https://www.verdictum.in/supreme-court/lokendra-kumar-tiwari-v-union-of-india-ors-2026-insc-487-regular-appointment-1613939
+
+[Source Link](https://t.me/verdictumlegalupdates/26972)
+
+---
+
+### 2026-05-13T14:02:48+00:00
+Appeal Filed Before NCLAT Without Certified Copy Of NCLT Order Ought To Be Rejected At Threshold: Supreme Court
+https://www.verdictum.in/supreme-court/angelwoods-apartment-allottees-association-v-m-lalitha-2026-insc-479-appeal-nclat-1613938
+
+[Source Link](https://t.me/verdictumlegalupdates/26971)
+
+---
+
+### 2026-05-13T13:32:36+00:00
+Delhi High Court Restrains Rogue Websites Exploiting IMDb URL Structure To Stream Pirated Films Of Universal Studios
+https://www.verdictum.in/delhi-high-court/universal-city-studios-productions-lllp-v-playimdbcom-cscomm-4922026-imdb-url-structure-stream-pirated-films-1613929
+
+[Source Link](https://t.me/verdictumlegalupdates/26970)
+
+---
+
+### 2026-05-13T13:02:35+00:00
+Investigating Agency Cannot Freeze Any Property Of Accused U/S 102 CrPC Which Has No Direct Link With Alleged Offence: Bombay High Court
+https://www.verdictum.in/bombay-high-court/geeta-kampani-v-state-of-maharashtra-anr-with-connected-matter-2026bhc-as21940-1613932
+
+[Source Link](https://t.me/verdictumlegalupdates/26969)
+
+---
+
+### 2026-05-13T12:33:14+00:00
+Madras High Court Issues Notice On Congress MP R Sudha's Plea Challenging Rajiv Gandhi Assassin’s Enrolment As Advocate
+https://www.verdictum.in/madras-high-court/congress-mp-r-sudha-ag-perarivalan-rajiv-gandhi-assassin-advocate-act-1613935
+
+[Source Link](https://t.me/verdictumlegalupdates/26968)
+
+---
+
+### 2026-05-13T12:03:12+00:00
+Apex Court To Hear Plea Challenging Verdict Which Says No Law College Can Bar Students To Appear In Exams Due To Lack Of Minimum Attendance
+https://www.verdictum.in/supreme-court/apex-court-to-hear-plea-challenging-verdict-which-says-no-law-college-can-bar-students-to-appear-in-exams-due-to-lack-of-minimum-attendance-1613930
+
+[Source Link](https://t.me/verdictumlegalupdates/26967)
+
+---
+
+### 2026-05-13T11:32:51+00:00
+UP Panchayat Raj Act| Prescribed Authority Becomes Functus Officio After Passing Final Order In Election Petition: Supreme Court
+https://www.verdictum.in/supreme-court/urmila-devi-v-state-of-uttar-pradesh-ors-2026-insc-471-uttar-pradesh-1613928
+
+[Source Link](https://t.me/verdictumlegalupdates/26966)
+
+---
+
+### 2026-05-13T11:02:29+00:00
+Section 26(1)(b) RFCTLARR Act Doesn’t Permit Reliance On Single Sale Deed For Computing Average Sale Price Of Dissimilar Land: Supreme Court
+https://www.verdictum.in/supreme-court/project-director-national-highways-authority-of-india-v-alfa-remidis-ltd-2026-insc-480-land-acquisition-act-1613926
+
+[Source Link](https://t.me/verdictumlegalupdates/26965)
+
+---
+
+### 2026-05-13T10:32:28+00:00
+Wife Pursuing Her Career Goals Cannot Be Treated As Cruelty Merely Because It Hurt Sentiments Of Husband Or In-Laws: Supreme Court
+https://www.verdictum.in/supreme-court/asd-v-lcsibd-2026-insc-475-army-wife-career-dentist-divorce-desertion-1613924
+
+[Source Link](https://t.me/verdictumlegalupdates/26964)
+
+---
+
+### 2026-05-13T10:02:46+00:00
+Mere Administrative Displeasure Or Frustration Not A Valid Ground To Invoke Power Of Premature Retirement: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/md-shams-biswas-tapan-biswas-v-united-bank-of-india-wpa-16800-of-2016-administrative-frustration-disciplinary-action-1613922
+
+[Source Link](https://t.me/verdictumlegalupdates/26963)
+
+---
+
+### 2026-05-13T09:32:25+00:00
+Assessee Can Claim Allowance Of Interest On Borrowed Funds Invested In Sister Concern For Acquiring Controlling Interest: Supreme Court
+https://www.verdictum.in/supreme-court/lk-trust-v-commissioner-of-income-tax-anr-assessee-allowance-borrowed-funds-1613921
+
+[Source Link](https://t.me/verdictumlegalupdates/26962)
 
 ---
 
@@ -65,102 +161,6 @@ Subsequent Payment Of Maintenance Does Not Cure Breach That Triggered Revocation
 https://www.verdictum.in/bombay-high-court/shambhaji-balakrishna-zambre-v-chayya-balakrishna-zambre-2026bhc-kol3563-1613628
 
 [Source Link](https://t.me/verdictumlegalupdates/26954)
-
----
-
-### 2026-05-08T11:13:02+00:00
-Supreme Court Seeks  Response On Gujarat AAP’s Plea Challenging Suspension Of Its Social Media Accounts
-https://www.verdictum.in/supreme-court/supreme-court-seeks-response-on-gujarat-aaps-plea-challenging-suspension-of-its-social-media-accounts-1613626
-
-[Source Link](https://t.me/verdictumlegalupdates/26953)
-
----
-
-### 2026-05-08T10:42:41+00:00
-Section 14 Limitation Act Can Apply To Time Spent In Bona Fide Proceedings U/S. 9 IBC Rejected Over "Pre-Existing Dispute": Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/jones-lang-lasalle-property-consultants-india-private-limited-v-m-a-leasing-and-construction-pvt-ltd-cs-com-1712025-us-141-limitation-act-1613625
-
-[Source Link](https://t.me/verdictumlegalupdates/26952)
-
----
-
-### 2026-05-08T10:03:19+00:00
-“Non-Application Of Mind At The Highest Level”: Allahabad High Court Imposes ₹10L Costs On State For Prolonging Illegal Incarceration
-https://www.verdictum.in/allahabad-high-court/manoj-kumar-through-mudit-kumar-v-state-of-up-through-principal-secretary-home-department-2026ahc-lko31073-db-1613624
-
-[Source Link](https://t.me/verdictumlegalupdates/26951)
-
----
-
-### 2026-05-08T09:34:37+00:00
-False Averments In Plaint Disentitle Plaintiff To Mandatory Injunction, Even If Encroachment Established: Himachal Pradesh High Court
-https://www.verdictum.in/himachal-high-court/ravinder-panwar-v-varinder-2026hhc13032-false-averments-discretionary-relief-of-mandatory-injunction-1613620
-
-[Source Link](https://t.me/verdictumlegalupdates/26950)
-
----
-
-### 2026-05-08T09:02:35+00:00
-State Cannot Deny Aid To Child Care Institutions Without Justification While It Runs Schemes Like Ladki Bahin Yojana: Bombay High Court
-https://www.verdictum.in/bombay-high-court/yuvraj-santrao-bhole-ors-v-state-of-maharashtra-ors-and-connected-matters-2026bhc-aug20588-db-1613618
-
-[Source Link](https://t.me/verdictumlegalupdates/26949)
-
----
-
-### 2026-05-08T08:32:34+00:00
-Can't Expect Teachers Without Job Security To Guarantee A Child’s Future: Supreme Court Directs Exclusive Selection For SSA Para-Teachers
-https://www.verdictum.in/supreme-court/sunil-kumar-yadav-v-the-state-of-jharkhand-2026-insc-462-exclusive-selection-for-ssa-para-teachers-1613617
-
-[Source Link](https://t.me/verdictumlegalupdates/26948)
-
----
-
-### 2026-05-08T08:03:02+00:00
-Power Generating Utility Cannot Recover Depreciation From Consumers Beyond Approved PPA Period: Supreme Court
-https://www.verdictum.in/supreme-court/delhi-electricity-regulatory-commission-v-tata-power-delhi-distribution-limited-2026-insc-461-1613613
-
-[Source Link](https://t.me/verdictumlegalupdates/26947)
-
----
-
-### 2026-05-08T07:32:59+00:00
-Supreme Court Refuses To Grant Bail To Student Accused Of Inciting Violence In Noida During Workers’ Protest; Says 93k Cases Pending In Apex Court
-https://www.verdictum.in/supreme-court/supreme-court-refuses-to-grant-bail-to-student-accused-of-inciting-violence-in-noida-during-workers-protest-says-93k-cases-pending-in-apex-court-1613607
-
-[Source Link](https://t.me/verdictumlegalupdates/26946)
-
----
-
-### 2026-05-08T07:02:58+00:00
-IBC Not Forum For Adjudication Of Individual Contractual Claims; Can’t Be Used As Tool For Coercion & Debt Recovery: Supreme Court
-https://www.verdictum.in/supreme-court/dhanlaxmi-bank-limited-v-mohammed-javed-sultan-ors-2026-insc-460-ibc-individual-contractual-claims-1613605
-
-[Source Link](https://t.me/verdictumlegalupdates/26945)
-
----
-
-### 2026-05-08T06:32:16+00:00
-Supreme Court Expresses Disappointment Over Non-Production Of Witnesses In 2021 Lakhimpur Kheri Violence Case
-https://www.verdictum.in/supreme-court/supreme-court-expresses-disappointment-over-non-production-of-witnesses-in-2021-lakhimpur-kheri-violence-case-1613597
-
-[Source Link](https://t.me/verdictumlegalupdates/26944)
-
----
-
-### 2026-05-08T06:02:55+00:00
-Patna High Court Lauds "One Time Traffic Challan Settlement Scheme" To Expedite Resolution Of Long-Standing Traffic Violations
-https://www.verdictum.in/patna-high-court/rani-rani-tiwari-v-the-state-of-bihar-cwjc-no-20071-of-2025-one-time-traffic-challan-settlement-scheme-1613594
-
-[Source Link](https://t.me/verdictumlegalupdates/26943)
-
----
-
-### 2026-05-08T05:34:34+00:00
-Bar Association Membership Voluntary; Non-Membership Cannot Restrict Advocate's Right To Practice Law: Telangana High Court Reads Down BCI Rules
-https://www.verdictum.in/telangana-high-court/vijay-gopal-v-bar-council-of-india-anr-bar-council-of-india-membership-1613590
-
-[Source Link](https://t.me/verdictumlegalupdates/26942)
 
 ---
 
