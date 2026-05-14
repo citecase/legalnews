@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-13T12:12:35+00:00*
+*Last Updated: 2026-05-13T13:18:22+00:00*
 
 ---
 
-### 2026-05-13T12:12:35+00:00
-Driver Accidentally Falling From Bus Roof While Sleeping In Absence Of Rest-Rooms Is Entitled To Compensation: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-compensation-driver-accidental-fall-bus-roof-no-rest-room-534083
-
-[Read on Telegram](https://t.me/livelawindia/110905)
-
----
-### 2026-05-13T12:32:51+00:00
-Candidate Can't Change Reserved Sub-Category After Declaration Of Recruitment Result: Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/category-change-after-recruitment-exam-result-denied-534084
-
-[Read on Telegram](https://t.me/livelawindia/110906)
-
----
-### 2026-05-13T12:36:11+00:00
-Delhi High Court Upholds Life Sentence Of Man Who Called Cops After Attacking Wife & Daughter With Hammer
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-upholds-life-sentence-of-man-who-called-cops-after-attacking-wife-daughter-with-hammer-534099
-
-[Read on Telegram](https://t.me/livelawindia/110907)
-
----
-### 2026-05-13T12:48:11+00:00
-Blackbucks Death Case | Habeas Corpus Plea Not Maintainable After Bail Rejection: MP High Court Reiterates
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-habeas-corpus-blackbucks-death-534086
-
-[Read on Telegram](https://t.me/livelawindia/110908)
-
----
-### 2026-05-13T12:53:51+00:00
-Role Of Police Is Not To Just 'Arrest And Dump' People In Jail: Delhi High Court Calls For Cooperation During Prosecutions
-https://www.livelaw.in/high-court/delhi-high-court/police-arrest-and-bail-prosecution-cooperation-534106
-
-[Read on Telegram](https://t.me/livelawindia/110909)
-
----
-### 2026-05-13T13:03:31+00:00
-Telangana High Court To Hear Tomorrow BJP Leader Bandi Sanjay's Son Sai Bageerath's Anticipatory Bail Plea In POCSO Case
-https://www.livelaw.in/high-court/telangana-high-court/bandi-sai-bageerath-moves-telangana-high-court-anticipatory-bail-pocso-case-534107
-
-[Read on Telegram](https://t.me/livelawindia/110910)
-
----
 ### 2026-05-13T13:18:22+00:00
 Calcutta High Court Upholds Misconduct Finding Against SAIL Employee For Encroaching On Company Land
 https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-upholds-misconduct-finding-against-sail-employee-for-encroaching-on-company-land-534013
@@ -142,5 +100,47 @@ Supreme Court Daily Round-Up : May 13, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-13-2026-534126
 
 [Read on Telegram](https://t.me/livelawindia/110924)
+
+---
+### 2026-05-14T01:33:20+00:00
+Karnataka Govt Withdraws 2022 Hijab Ban Order; Permits Religious Symbols Including Hijab, Turban, Rudraksha With Prescribed Uniform
+https://www.livelaw.in/top-stories/karnataka-government-withdraws-hijab-ban-order-permits-religious-symbols-schools-colleges-534140
+
+[Read on Telegram](https://t.me/livelawindia/110925)
+
+---
+### 2026-05-14T02:32:51+00:00
+Senior Advocate Vijay Narayanan Appointed New Advocate General Of Tamil Nadu
+https://www.livelaw.in/high-court/madras-high-court/vijay-narayan-appointed-new-ag-of-tamil-nadu-534141
+
+[Read on Telegram](https://t.me/livelawindia/110926)
+
+---
+### 2026-05-14T03:32:30+00:00
+MP High Court Orders Probe Into Coal India Rehabilitation Jobs Allegedly Secured Through 'Marriage' With Landowners' Daughters
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-land-acquisition-rehabilitation-scheme-misused-by-marriage-for-job-arrangement-534142
+
+[Read on Telegram](https://t.me/livelawindia/110927)
+
+---
+### 2026-05-14T03:32:50+00:00
+From Intelligence To Empathy: Reimagining Role Of Emotional Intelligence (EQ) In Legal Profession
+https://www.livelaw.in/articles/emotional-intelligence-mental-health-lawyers-judges-legal-profession-534133
+
+[Read on Telegram](https://t.me/livelawindia/110928)
+
+---
+### 2026-05-14T03:35:10+00:00
+Research Assistant Vacancy At Indian Institute Of Management, Kozhikode [Apply Now]
+https://www.livelaw.in/job-updates/research-assistant-vacancy-at-indian-institute-of-management-kozhikode-534147
+
+[Read on Telegram](https://t.me/livelawindia/110929)
+
+---
+### 2026-05-14T03:37:50+00:00
+Law Officer Vacancy At Tamilnad Mercantile Bank Limited
+https://www.livelaw.in/job-updates/law-officer-vacancy-at-tamilnad-mercantile-bank-limited-534148
+
+[Read on Telegram](https://t.me/livelawindia/110930)
 
 ---
