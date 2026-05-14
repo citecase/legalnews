@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-14T15:02:47+00:00*
+*Last Updated: 2026-05-14T16:03:10+00:00*
+
+---
+
+### 2026-05-14T16:03:10+00:00
+Law Clerk Vacancy At Gauhati High Court
+https://www.verdictum.in/job-updates/gauhati-high-court-1614000
+
+[Source Link](https://t.me/verdictumlegalupdates/26999)
+
+---
+
+### 2026-05-14T15:32:28+00:00
+Court Can Refuse To Summon Defence Witness U/s. 233 CrPC Only If Sought For Vexation Or Delay: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/inderpal-singh-v-state-of-up-and-another-2026ahc99318-right-defence-witnesses-crpc-accused-1614001
+
+[Source Link](https://t.me/verdictumlegalupdates/26998)
 
 ---
 
@@ -145,22 +161,6 @@ Deductions Arising Out Of Loan Repayments For Acquisition Of Assets Or Vehicles 
 https://www.verdictum.in/delhi-high-court/a-v-the-state-nct-of-delhi-2026dhc3850-dependency-husband-mother-pension-1613963
 
 [Source Link](https://t.me/verdictumlegalupdates/26980)
-
----
-
-### 2026-05-14T06:01:43+00:00
-Testimony Of Hostile Witnesses Can Be Utilized To Support Acquittal If It Inspires Credibility: Supreme Court
-https://www.verdictum.in/supreme-court/talari-naresh-v-the-state-of-telangana-2026-insc-486-testimony-of-hostile-witnesses-support-acquittal-1613961
-
-[Source Link](https://t.me/verdictumlegalupdates/26979)
-
----
-
-### 2026-05-14T05:32:42+00:00
-Regulation 10 Of Canara Bank Officer Employees’ Regulations Is Directory In Deciding Common Cause Of Action Against More Than One Employee: Supreme Court
-https://www.verdictum.in/supreme-court/canara-bank-v-prem-latha-uppal-dead-through-lrs-2026-insc-478-officer-employees-regulations-1613958
-
-[Source Link](https://t.me/verdictumlegalupdates/26978)
 
 ---
 
