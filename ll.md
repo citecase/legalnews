@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-14T10:45:59+00:00*
+*Last Updated: 2026-05-14T11:27:50+00:00*
 
 ---
 
-### 2026-05-14T10:45:59+00:00
-Disproportionate Assets Complaint Against Rahul Gandhi: Allahabad HC Asks CBI & ED To Verify Allegations, File Progress Report
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-disproportionate-assets-complaint-rahul-gandhi-cbi-ed-verify-allegations-progress-report-534214
-
-[Read on Telegram](https://t.me/livelawindia/110965)
-
----
-### 2026-05-14T10:53:09+00:00
-Disputes Over Financial Settlements, Plot Transfers Are Matters For Civil Court: Madhya Pradesh High Court Quashes FIR
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-quashment-of-fir-commerical-dispute-matters-of-civil-court-534212
-
-[Read on Telegram](https://t.me/livelawindia/110966)
-
----
-### 2026-05-14T10:57:29+00:00
-Bar Council Of India Seeks Details On Mamata Banerjee's Enrollment Status After Her Appearance Before Calcutta HC In Lawyer's Robes
-https://www.livelaw.in/news-updates/bar-council-of-india-seeks-details-on-mamata-banerjees-enrollment-status-after-her-appearance-before-calcutta-hc-in-lawyers-robes-534218
-
-[Read on Telegram](https://t.me/livelawindia/110967)
-
----
-### 2026-05-14T10:58:09+00:00
-Arms Licence Renewal Can't Be Denied On Vague Fears Of Maoists Snatching Weapon: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-arms-licence-renewal-maoists-snatching-weapon-534219
-
-[Read on Telegram](https://t.me/livelawindia/110968)
-
----
 ### 2026-05-14T11:27:50+00:00
 'Police Duty Is To Protect, Not Be Hand In Glove With Accused': Karnataka HC Remarks In Convicted IO's Plea In Yogesh Goudar Murder Case
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-investigating-officer-let-real-assailants-escape-yogesh-goudar-murder-534224
@@ -142,5 +114,33 @@ https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-contempt-act
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-497-canara-bank-versus-prem-latha-uppal-dead-through-lrs-534258
 
 [Read on Telegram](https://t.me/livelawindia/110984)
+
+---
+### 2026-05-14T14:32:30+00:00
+BREAKING Justice Swarana Kanta Sharma Transfers CBI's Excise Policy Case Against Arvind Kejriwal To Another Bench
+https://www.livelaw.in/high-court/delhi-high-court/justice-swarana-kanta-sharma-recuse-arvind-kejriwal-cbi-excise-policy-case-534260
+
+[Read on Telegram](https://t.me/livelawindia/110985)
+
+---
+### 2026-05-14T14:55:20+00:00
+J&K&L High Court Constitutes Ad-Hoc Managing Body For Registration Of Judicial Officers Association
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-constitutes-ad-hoc-managing-body-for-registration-of-judicial-officers-association-534263
+
+[Read on Telegram](https://t.me/livelawindia/110986)
+
+---
+### 2026-05-14T15:35:10+00:00
+Delhi High Court May Initiate Contempt Against YouTubers For Circulating Edited Video Targeting Justice Swarana Kanta Sharma
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-may-initiate-contempt-against-youtubers-for-circulating-edited-video-targeting-justice-swarana-kanta-sharma-534264
+
+[Read on Telegram](https://t.me/livelawindia/110987)
+
+---
+### 2026-05-14T16:16:30+00:00
+Delhi High Court Refuses To Stall OTT Release Of Dhurandhar Film In Copyright Dispute Over 'Tirchi Topiwale'
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-to-stall-ott-release-of-dhurandhar-film-in-copyright-dispute-over-tirchi-topiwale-534265
+
+[Read on Telegram](https://t.me/livelawindia/110988)
 
 ---
