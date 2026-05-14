@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-14T09:02:22+00:00*
+*Last Updated: 2026-05-14T15:02:47+00:00*
+
+---
+
+### 2026-05-14T15:02:47+00:00
+Clause In Settlement Deed Providing Daughter Will Lose Property Rights If She Marries Is Void And Against Public Policy: Kerala High Court
+https://www.verdictum.in/kerala-high-court/varkey-verghese-v-kathreena-2026ker28575-conditional-settlement-deed-1613999
+
+[Source Link](https://t.me/verdictumlegalupdates/26997)
+
+---
+
+### 2026-05-14T14:32:35+00:00
+Mother By Reason Of Biological Considerations Is Ordinarily Best Positioned To Secure Minor’s Welfare: Allahabad High Court Grants Custody Of Child To Wife
+https://www.verdictum.in/allahabad-high-court/a-v-state-of-up-2026ahc99586-mother-minor-welfare-constable-son-wife-1613998
+
+[Source Link](https://t.me/verdictumlegalupdates/26996)
+
+---
+
+### 2026-05-14T14:02:34+00:00
+Child Will Grow Up With Stigma: Madras High Court Denies Leave To Triple Murder Convict To Undergo Fertility Treatment
+https://www.verdictum.in/madras-high-court/jalani-v-the-deputy-inspector-general-of-prisons-child-stigma-convict-fertility-treatment-1613996
+
+[Source Link](https://t.me/verdictumlegalupdates/26995)
+
+---
+
+### 2026-05-14T13:32:12+00:00
+Madras High Court Grants Bail To Savukku Shankar In Alleged Stone Pelting And Threat Case Registered During Police Custody
+https://www.verdictum.in/madras-high-court/shankar-savukku-shankar-v-the-inspector-of-police-bail-stone-pelting-1613995
+
+[Source Link](https://t.me/verdictumlegalupdates/26994)
+
+---
+
+### 2026-05-14T13:03:11+00:00
+Post Poll Violence: Calcutta High Court Asks Police To Maintain Law & Order, Give Safe Return To People Irrespective Of Party Affiliation
+https://www.verdictum.in/calcutta-high-court/sirsanya-bandopadhyay-vs-union-of-india-post-poll-violence-police-law-order-1614003
+
+[Source Link](https://t.me/verdictumlegalupdates/26993)
+
+---
+
+### 2026-05-14T12:33:09+00:00
+BCI Asks West Bengal Bar Council To Furnish Practice Records Of Mamata Banerjee After Her Appearance Before High Court
+https://www.verdictum.in/news/bar-council-of-india-west-bengal-bar-council-mamata-banerjee-1613994
+
+[Source Link](https://t.me/verdictumlegalupdates/26992)
+
+---
+
+### 2026-05-14T12:03:08+00:00
+Joint Account Holder Who Is Not Signatory To Dishonoured Cheque Not Liable U/S 138 NI Act: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/madhu-singh-v-state-of-up-2026ahc104853-1613991
+
+[Source Link](https://t.me/verdictumlegalupdates/26991)
+
+---
+
+### 2026-05-14T11:32:26+00:00
+Sabarimala Reference|Supreme Court Reserves Verdict After Amicus Curiae Frames Religious Freedom As ‘Swaraj’ And Challenges ‘Elitist’ Doctrine Of Essentiality
+https://www.verdictum.in/supreme-court/sabarimala-reference-reserves-verdict-amicus-curiae-k-parameshwar-1613992
+
+[Source Link](https://t.me/verdictumlegalupdates/26990)
+
+---
+
+### 2026-05-14T11:02:05+00:00
+Magistrate Can’t Impose More Than Six Months’ Imprisonment In Default Of Compensation Payment In Cheque Bounce Cases: Bombay High Court
+https://www.verdictum.in/bombay-high-court/cyrus-noshirwan-kartak-v-state-of-maharashtra-anr-2026bhc-as21287-1613990
+
+[Source Link](https://t.me/verdictumlegalupdates/26989)
+
+---
+
+### 2026-05-14T10:32:53+00:00
+U.P. Panchayat Raj Election Disputes| Party Entitled To Make Claim For Cross-examination Of Witness By Giving Sufficient & Justifiable Reasons: Supreme Court
+https://www.verdictum.in/supreme-court/dinesh-kumar-v-surta-nath-surat-nath-ors-2026-insc-485-cross-examination-election-tribunal-1613989
+
+[Source Link](https://t.me/verdictumlegalupdates/26988)
+
+---
+
+### 2026-05-14T10:02:51+00:00
+Delay During COVID-Era Cannot Be Attributed To Court Or Prosecution: J&K And Ladakh High Court Dismisses Bail Plea In Murder Case
+https://www.verdictum.in/jammu-ladakh-high-court/basharat-ahmad-abbasi-alias-bashir-and-another-v-ut-of-jk-and-others-2026jklhc-sgr99-1613988
+
+[Source Link](https://t.me/verdictumlegalupdates/26987)
+
+---
+
+### 2026-05-14T09:32:44+00:00
+Parties Intended To Import "Body & Soul" Of Development Agreement Into Later Agreements: Supreme Court Appoints Arbitrator
+https://www.verdictum.in/supreme-court/hirani-developers-v-nehru-nagar-samruddhi-chs-ltd-2026-insc-484-arbitration-clause-incorporation-1613983
+
+[Source Link](https://t.me/verdictumlegalupdates/26986)
 
 ---
 
@@ -65,102 +161,6 @@ Regulation 10 Of Canara Bank Officer Employees’ Regulations Is Directory In De
 https://www.verdictum.in/supreme-court/canara-bank-v-prem-latha-uppal-dead-through-lrs-2026-insc-478-officer-employees-regulations-1613958
 
 [Source Link](https://t.me/verdictumlegalupdates/26978)
-
----
-
-### 2026-05-14T05:02:40+00:00
-“Liberty Is Not Cosmetic”: Punjab & Haryana High Court Grants Bail To Accused Despite Continued Custody In Separate Murder Case
-https://www.verdictum.in/punjab-and-haryana-high-court/state-of-haryana-v-surinder-singh-ors-bail-murder-accused-acquittal-1613952
-
-[Source Link](https://t.me/verdictumlegalupdates/26977)
-
----
-
-### 2026-05-14T04:33:09+00:00
-Labour Court Cannot Adjudicate Disputed Industrial Claims Under Guise of Computation U/S 33C(2) ID Act: Delhi High Court
-https://www.verdictum.in/delhi-high-court/allahabad-bank-v-rs-saini-2026dhc4175-labour-court-cannot-adjudicate-disputed-industrial-claims-1613941
-
-[Source Link](https://t.me/verdictumlegalupdates/26976)
-
----
-
-### 2026-05-13T16:02:54+00:00
-Consultant (Legal) Vacancy At Educational Consultants India Limited (EdCIL India)
-https://www.verdictum.in/job-updates/educational-consultants-india-limited-1613933
-
-[Source Link](https://t.me/verdictumlegalupdates/26975)
-
----
-
-### 2026-05-13T15:32:12+00:00
-Identification Of Perpetrator Doubtful Owing To Darkness At Time Of Incident: Uttarakhand High Court Acquits POCSO Accused
-https://www.verdictum.in/uttarakhand-high-court/mohit-tyagi-v-state-of-uttarakhand-pocso-penetrative-sexual-assault-acquittal-1613942
-
-[Source Link](https://t.me/verdictumlegalupdates/26974)
-
----
-
-### 2026-05-13T15:02:31+00:00
-Billing Discrepancies & Non-Supply Of Medical Records Fall Short Of Criminal Offence: Supreme Court Quashes Complaint Against Hospital
-https://www.verdictum.in/supreme-court/narayana-health-ors-v-the-state-of-west-bengal-ors-2026-insc-481-billing-discrepancies-offence-1613940
-
-[Source Link](https://t.me/verdictumlegalupdates/26973)
-
----
-
-### 2026-05-13T14:32:29+00:00
-Denying Regular Appointment To Candidate Despite Being Found Suitable After Regular Selection Process Is Patently Illegal & Unconstitutional: Supreme Court
-https://www.verdictum.in/supreme-court/lokendra-kumar-tiwari-v-union-of-india-ors-2026-insc-487-regular-appointment-1613939
-
-[Source Link](https://t.me/verdictumlegalupdates/26972)
-
----
-
-### 2026-05-13T14:02:48+00:00
-Appeal Filed Before NCLAT Without Certified Copy Of NCLT Order Ought To Be Rejected At Threshold: Supreme Court
-https://www.verdictum.in/supreme-court/angelwoods-apartment-allottees-association-v-m-lalitha-2026-insc-479-appeal-nclat-1613938
-
-[Source Link](https://t.me/verdictumlegalupdates/26971)
-
----
-
-### 2026-05-13T13:32:36+00:00
-Delhi High Court Restrains Rogue Websites Exploiting IMDb URL Structure To Stream Pirated Films Of Universal Studios
-https://www.verdictum.in/delhi-high-court/universal-city-studios-productions-lllp-v-playimdbcom-cscomm-4922026-imdb-url-structure-stream-pirated-films-1613929
-
-[Source Link](https://t.me/verdictumlegalupdates/26970)
-
----
-
-### 2026-05-13T13:02:35+00:00
-Investigating Agency Cannot Freeze Any Property Of Accused U/S 102 CrPC Which Has No Direct Link With Alleged Offence: Bombay High Court
-https://www.verdictum.in/bombay-high-court/geeta-kampani-v-state-of-maharashtra-anr-with-connected-matter-2026bhc-as21940-1613932
-
-[Source Link](https://t.me/verdictumlegalupdates/26969)
-
----
-
-### 2026-05-13T12:33:14+00:00
-Madras High Court Issues Notice On Congress MP R Sudha's Plea Challenging Rajiv Gandhi Assassin’s Enrolment As Advocate
-https://www.verdictum.in/madras-high-court/congress-mp-r-sudha-ag-perarivalan-rajiv-gandhi-assassin-advocate-act-1613935
-
-[Source Link](https://t.me/verdictumlegalupdates/26968)
-
----
-
-### 2026-05-13T12:03:12+00:00
-Apex Court To Hear Plea Challenging Verdict Which Says No Law College Can Bar Students To Appear In Exams Due To Lack Of Minimum Attendance
-https://www.verdictum.in/supreme-court/apex-court-to-hear-plea-challenging-verdict-which-says-no-law-college-can-bar-students-to-appear-in-exams-due-to-lack-of-minimum-attendance-1613930
-
-[Source Link](https://t.me/verdictumlegalupdates/26967)
-
----
-
-### 2026-05-13T11:32:51+00:00
-UP Panchayat Raj Act| Prescribed Authority Becomes Functus Officio After Passing Final Order In Election Petition: Supreme Court
-https://www.verdictum.in/supreme-court/urmila-devi-v-state-of-uttar-pradesh-ors-2026-insc-471-uttar-pradesh-1613928
-
-[Source Link](https://t.me/verdictumlegalupdates/26966)
 
 ---
 
