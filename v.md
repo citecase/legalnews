@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-13T16:02:54+00:00*
+*Last Updated: 2026-05-14T09:02:22+00:00*
+
+---
+
+### 2026-05-14T09:02:22+00:00
+It Will Be A Long-Drawn Battle: Supreme Court Asks Sunjay Kapur's Mother Rani Kapur & Wife Priya Kapur To End Dispute Amicably
+https://www.verdictum.in/supreme-court/it-will-be-a-long-drawn-battle-supreme-court-asks-sunjay-kapurs-mother-rani-kapur-wife-priya-kapur-to-end-dispute-amicably-1613985
+
+[Source Link](https://t.me/verdictumlegalupdates/26985)
+
+---
+
+### 2026-05-14T08:32:51+00:00
+Supreme Court Impleads NHAI In Case On Rampant Illegal Sand Mining In National Chambal Sanctuary
+https://www.verdictum.in/supreme-court/nhai-illegal-mining-in-national-chambal-sanctuary-1613976
+
+[Source Link](https://t.me/verdictumlegalupdates/26984)
+
+---
+
+### 2026-05-14T08:02:10+00:00
+Sabarimala Reference| Rejoinder Submissions By Petitioners Call For Minimalist Judicial Approach To Traditions; Court To Now Hear Amicus
+https://www.verdictum.in/supreme-court/sabarimala-reference-arguments-concluded-9-judge-bench-1613979
+
+[Source Link](https://t.me/verdictumlegalupdates/26983)
+
+---
+
+### 2026-05-14T07:31:28+00:00
+Wife’s Refusal To Resume Relationship Or Remarks On Husband’s Manhood Do Not Amount To Abetment Of Suicide: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/shreya-basak-anr-v-the-state-of-west-bengal-anr-2026chc-as699-1613971
+
+[Source Link](https://t.me/verdictumlegalupdates/26982)
+
+---
+
+### 2026-05-14T07:03:06+00:00
+Mining Dumps Cannot Be Treated At Par With Mining Leases U/S 10B Of MMDR Act: Bombay High Court Upholds Goa Iron Ore Dump Policy
+https://www.verdictum.in/bombay-high-court/the-goa-foundation-v-the-state-of-goa-2026bhc-goa1022-db-goa-iron-ore-dump-policy-mining-dumps-1613966
+
+[Source Link](https://t.me/verdictumlegalupdates/26981)
+
+---
+
+### 2026-05-14T06:33:05+00:00
+Deductions Arising Out Of Loan Repayments For Acquisition Of Assets Or Vehicles Can't Dilute  Obligation To Pay Maintenance: Delhi High Court
+https://www.verdictum.in/delhi-high-court/a-v-the-state-nct-of-delhi-2026dhc3850-dependency-husband-mother-pension-1613963
+
+[Source Link](https://t.me/verdictumlegalupdates/26980)
+
+---
+
+### 2026-05-14T06:01:43+00:00
+Testimony Of Hostile Witnesses Can Be Utilized To Support Acquittal If It Inspires Credibility: Supreme Court
+https://www.verdictum.in/supreme-court/talari-naresh-v-the-state-of-telangana-2026-insc-486-testimony-of-hostile-witnesses-support-acquittal-1613961
+
+[Source Link](https://t.me/verdictumlegalupdates/26979)
+
+---
+
+### 2026-05-14T05:32:42+00:00
+Regulation 10 Of Canara Bank Officer Employees’ Regulations Is Directory In Deciding Common Cause Of Action Against More Than One Employee: Supreme Court
+https://www.verdictum.in/supreme-court/canara-bank-v-prem-latha-uppal-dead-through-lrs-2026-insc-478-officer-employees-regulations-1613958
+
+[Source Link](https://t.me/verdictumlegalupdates/26978)
+
+---
+
+### 2026-05-14T05:02:40+00:00
+“Liberty Is Not Cosmetic”: Punjab & Haryana High Court Grants Bail To Accused Despite Continued Custody In Separate Murder Case
+https://www.verdictum.in/punjab-and-haryana-high-court/state-of-haryana-v-surinder-singh-ors-bail-murder-accused-acquittal-1613952
+
+[Source Link](https://t.me/verdictumlegalupdates/26977)
+
+---
+
+### 2026-05-14T04:33:09+00:00
+Labour Court Cannot Adjudicate Disputed Industrial Claims Under Guise of Computation U/S 33C(2) ID Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/allahabad-bank-v-rs-saini-2026dhc4175-labour-court-cannot-adjudicate-disputed-industrial-claims-1613941
+
+[Source Link](https://t.me/verdictumlegalupdates/26976)
 
 ---
 
@@ -81,86 +161,6 @@ UP Panchayat Raj Act| Prescribed Authority Becomes Functus Officio After Passing
 https://www.verdictum.in/supreme-court/urmila-devi-v-state-of-uttar-pradesh-ors-2026-insc-471-uttar-pradesh-1613928
 
 [Source Link](https://t.me/verdictumlegalupdates/26966)
-
----
-
-### 2026-05-13T11:02:29+00:00
-Section 26(1)(b) RFCTLARR Act Doesn’t Permit Reliance On Single Sale Deed For Computing Average Sale Price Of Dissimilar Land: Supreme Court
-https://www.verdictum.in/supreme-court/project-director-national-highways-authority-of-india-v-alfa-remidis-ltd-2026-insc-480-land-acquisition-act-1613926
-
-[Source Link](https://t.me/verdictumlegalupdates/26965)
-
----
-
-### 2026-05-13T10:32:28+00:00
-Wife Pursuing Her Career Goals Cannot Be Treated As Cruelty Merely Because It Hurt Sentiments Of Husband Or In-Laws: Supreme Court
-https://www.verdictum.in/supreme-court/asd-v-lcsibd-2026-insc-475-army-wife-career-dentist-divorce-desertion-1613924
-
-[Source Link](https://t.me/verdictumlegalupdates/26964)
-
----
-
-### 2026-05-13T10:02:46+00:00
-Mere Administrative Displeasure Or Frustration Not A Valid Ground To Invoke Power Of Premature Retirement: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/md-shams-biswas-tapan-biswas-v-united-bank-of-india-wpa-16800-of-2016-administrative-frustration-disciplinary-action-1613922
-
-[Source Link](https://t.me/verdictumlegalupdates/26963)
-
----
-
-### 2026-05-13T09:32:25+00:00
-Assessee Can Claim Allowance Of Interest On Borrowed Funds Invested In Sister Concern For Acquiring Controlling Interest: Supreme Court
-https://www.verdictum.in/supreme-court/lk-trust-v-commissioner-of-income-tax-anr-assessee-allowance-borrowed-funds-1613921
-
-[Source Link](https://t.me/verdictumlegalupdates/26962)
-
----
-
-### 2026-05-13T09:02:53+00:00
-Signed Order Alone Reflects Court’s Final Opinion; Draft Dictation Can Be Corrected Before Signing: Supreme Court
-https://www.verdictum.in/supreme-court/fakir-mamad-suleman-sameja-v-adani-ports-and-special-economic-zones-ltd-2026-insc-483-signed-order-dictation-imposes-costs-1613918
-
-[Source Link](https://t.me/verdictumlegalupdates/26961)
-
----
-
-### 2026-05-13T08:32:12+00:00
-Delhi High Court Restricts Commercial, Religious Activities On Yamuna Flood Plains; Asks DDA To Make Alternative Parking Arrangements
-https://www.verdictum.in/delhi-high-court/suresh-kumar-v-delhi-development-authority-anr-dda-yamuna-flood-plains-1613917
-
-[Source Link](https://t.me/verdictumlegalupdates/26960)
-
----
-
-### 2026-05-13T08:02:30+00:00
-“Amount Wholly Inadequate”: Supreme Court Enhances Compensation For Family Of Engineering Student Who Died In 2000 Road Accident
-https://www.verdictum.in/supreme-court/mohinder-kaur-d-through-lr-v-brij-lal-arora-ors-2026-insc-477-mact-1613915
-
-[Source Link](https://t.me/verdictumlegalupdates/26959)
-
----
-
-### 2026-05-13T07:32:29+00:00
-“No Court Bothers To Follow Guidelines”: Supreme Court Quashes 35-Year-Old Criminal Case Citing Enormous Delay
-https://www.verdictum.in/supreme-court/kailash-chandra-kapri-v-state-of-uttar-pradesh-2026-insc-473-35-year-old-criminal-case-pending-cases-1613907
-
-[Source Link](https://t.me/verdictumlegalupdates/26958)
-
----
-
-### 2026-05-13T06:52:47+00:00
-Supreme Court Stays High Court Order Barring TVK MLA From Floor Test Amid Election Dispute
-https://www.verdictum.in/supreme-court/tamilaga-vettri-kazhagam-mla-from-floor-test-1613905
-
-[Source Link](https://t.me/verdictumlegalupdates/26957)
-
----
-
-### 2026-05-13T06:32:46+00:00
-Right To Receive Education In One's Own Mother Language Part Of Fundamental Right To Speech & Expression: Supreme Court
-https://www.verdictum.in/supreme-court/padam-mehta-v-state-of-rajasthan-2026-insc-476-rajasthani-regional-language-policy-1613902
-
-[Source Link](https://t.me/verdictumlegalupdates/26956)
 
 ---
 
