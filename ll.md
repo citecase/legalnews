@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-13T13:18:22+00:00*
+*Last Updated: 2026-05-14T04:33:00+00:00*
 
 ---
 
-### 2026-05-13T13:18:22+00:00
-Calcutta High Court Upholds Misconduct Finding Against SAIL Employee For Encroaching On Company Land
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-upholds-misconduct-finding-against-sail-employee-for-encroaching-on-company-land-534013
+### 2026-05-14T04:33:00+00:00
+Number Of Convictions, Acquittals Obtained By Prosecutors Can't Be Sole Basis For Adverse Entries Against Them: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-prosecution-officers-appraisal-form-adverse-entries-acquittals-convictions-534144
 
-[Read on Telegram](https://t.me/livelawindia/110911)
-
----
-### 2026-05-13T13:32:42+00:00
-MP High Court Slams Police For 'Casual Investigation' In Road Accident Which Claimed 5 Lives, Grants Bail To Driver For Lack Of Evidence
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bail-application-road-accident-in-jabalpur-killing-5-labourers-534108
-
-[Read on Telegram](https://t.me/livelawindia/110912)
+[Read on Telegram](https://t.me/livelawindia/110932)
 
 ---
-### 2026-05-13T13:42:20+00:00
-Insurance Company Cannot Reject Cattle Insurance Claim On Basis Of Undisclosed Cooling Period Clause: Baramulla Consumer Commission
-https://www.livelaw.in/consumer-cases/insurance-company-cannot-reject-cattle-insurance-claim-on-basis-of-undisclosed-cooling-period-clause-baramulla-consumer-commission-534110
+### 2026-05-14T04:48:00+00:00
+Candidate Cannot Be Faulted For Not Producing Eligibility Certificate Which Department Was Bound To Obtain: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-quashes-charge-sheet-nationality-certificate-kenyan-engineer-case-534145
 
-[Read on Telegram](https://t.me/livelawindia/110913)
-
----
-### 2026-05-13T13:42:30+00:00
-'Classic Case Of Abuse Of Procedural Law': Delhi High Court Slaps ₹50,000 Costs On Accused For Delaying Trial Since 2016
-https://www.livelaw.in/high-court/delhi-high-court/classic-case-of-abuse-of-procedural-law-delhi-high-court-slaps-50000-costs-on-accused-for-delaying-trial-since-2016-534100
-
-[Read on Telegram](https://t.me/livelawindia/110914)
+[Read on Telegram](https://t.me/livelawindia/110933)
 
 ---
-### 2026-05-13T14:07:40+00:00
-Police Cannot Seize Bank Accounts Under Section 102 CrPC Without Direct Link To Offence: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-rules-police-cannot-freeze-bank-accounts-section-102-crpc-534098
+### 2026-05-14T05:03:16+00:00
+Post-Mortem Report Cannot Prevail Over PAN Card, Driving Licence To Determine Age Of Deceased: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-motor-accident-compensation-driving-licence-pan-income-tax-534146
 
-[Read on Telegram](https://t.me/livelawindia/110915)
-
----
-### 2026-05-13T14:17:20+00:00
-Delhi High Court Upholds Eviction Of Daughter-In-Law From In-Laws' House To Protect Their Right To Peaceful Residence
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-upholds-eviction-of-daughter-in-law-from-in-laws-house-to-protect-their-right-to-peaceful-residence-534104
-
-[Read on Telegram](https://t.me/livelawindia/110916)
+[Read on Telegram](https://t.me/livelawindia/110934)
 
 ---
-### 2026-05-13T14:32:50+00:00
-Contractual Appointment Against Regular Post Advertisement Is 'Patently Illegal': Supreme Court
-https://www.livelaw.in/supreme-court/contractual-appointment-against-regular-post-advertisement-is-patently-illegal-supreme-court-534117
+### 2026-05-14T05:12:00+00:00
+Sabarimala Reference : Live Updates From Supreme Court 9-Judge Bench [Day 16]
+https://www.livelaw.in/top-stories/supreme-court-hearing-sabarimala-reference-case-live-updates-534160
 
-[Read on Telegram](https://t.me/livelawindia/110917)
-
----
-### 2026-05-13T14:34:30+00:00
-2026 LiveLaw (SC) 495 |  LOKENDRA KUMAR TIWARI VERSUS UNION OF INDIA AND OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-495-lokendra-kumar-tiwari-versus-union-of-india-and-others-534118
-
-[Read on Telegram](https://t.me/livelawindia/110918)
+[Read on Telegram](https://t.me/livelawindia/110935)
 
 ---
-### 2026-05-13T14:47:50+00:00
-'Hostile Witness Testimony Can Be Used To Acquit Also, Not Just Convict' : Supreme Court Sets Aside Murder Conviction
-https://www.livelaw.in/supreme-court/hostile-witness-testimony-can-be-used-to-acquit-also-not-just-convict-supreme-court-sets-aside-murder-conviction-534123
+### 2026-05-14T05:27:32+00:00
+Repeated Preventive Arrests U/S 107 CrPC After Bail In UAPA Cases Are Fresh Grounds For PSA Detention: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-five-preventive-arrests-under-section-107-crpc-after-bail-in-uapa-cases-constitutes-fresh-material-for-psa-detention-534102
 
-[Read on Telegram](https://t.me/livelawindia/110919)
-
----
-### 2026-05-13T14:49:30+00:00
-2026 LiveLaw (SC) 496 | TALARI NARESH VERSUS THE STATE OF TELANGANA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-496-talari-naresh-versus-the-state-of-telangana-534124
-
-[Read on Telegram](https://t.me/livelawindia/110920)
+[Read on Telegram](https://t.me/livelawindia/110936)
 
 ---
-### 2026-05-13T14:53:14+00:00
-Dying Declaration Recorded Minutes Before Death Is Substantial Evidence; Minor Contradictions Cannot Be Scrutinised At Bail Stage: J&K&L HC
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-dying-declaration-recorded-on-mobile-phone-minutes-before-death-is-substantial-evidence-minor-contradictions-cannot-be-scrutinized-at-bail-stage-534101
+### 2026-05-14T05:56:30+00:00
+Delhi High Court Issues Notice On Indian National Congress' Plea Seeking Conveyance Deed For Jantar Mantar Property
+https://www.livelaw.in/high-court/delhi-high-court/congress-plea-for-conveyance-deed-for-jantar-mantar-property-notice-issued-534164
 
-[Read on Telegram](https://t.me/livelawindia/110921)
-
----
-### 2026-05-13T15:08:15+00:00
-Allahabad High Court Grants Interim Protection To YouTuber Gautam Khattar In FIR Over Remarks On 'Karauli Shankar Baba'
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-interim-protection-youtuber-gautam-khattar-fir-karauli-shankar-baba-534129
-
-[Read on Telegram](https://t.me/livelawindia/110922)
+[Read on Telegram](https://t.me/livelawindia/110937)
 
 ---
-### 2026-05-13T16:49:15+00:00
-From Intelligence To Empathy: Reimagining Role Of Emotional Intelligence (EQ) In Legal Profession
-https://www.livelaw.in/articles/emotional-intelligence-mental-health-lawyers-judges-stress-legal-profession-india-534132
+### 2026-05-14T06:10:46+00:00
+Internship Opportunity At Directorate Of Sports, Panjab University, Chandigarh
+https://www.livelaw.in/job-updates/internship-opportunity-at-directorate-of-sports-panjab-university-chandigarh-534166
 
-[Read on Telegram](https://t.me/livelawindia/110923)
-
----
-### 2026-05-13T17:07:40+00:00
-Supreme Court Daily Round-Up : May 13, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-13-2026-534126
-
-[Read on Telegram](https://t.me/livelawindia/110924)
+[Read on Telegram](https://t.me/livelawindia/110938)
 
 ---
-### 2026-05-14T01:33:20+00:00
-Karnataka Govt Withdraws 2022 Hijab Ban Order; Permits Religious Symbols Including Hijab, Turban, Rudraksha With Prescribed Uniform
-https://www.livelaw.in/top-stories/karnataka-government-withdraws-hijab-ban-order-permits-religious-symbols-schools-colleges-534140
+### 2026-05-14T06:11:46+00:00
+Deputy Project Manager Vacancy At Indian Institute Of Technology, Jodhpur
+https://www.livelaw.in/job-updates/deputy-project-manager-vacancy-at-indian-institute-of-technology-jodhpur-534167
 
-[Read on Telegram](https://t.me/livelawindia/110925)
-
----
-### 2026-05-14T02:32:51+00:00
-Senior Advocate Vijay Narayanan Appointed New Advocate General Of Tamil Nadu
-https://www.livelaw.in/high-court/madras-high-court/vijay-narayan-appointed-new-ag-of-tamil-nadu-534141
-
-[Read on Telegram](https://t.me/livelawindia/110926)
+[Read on Telegram](https://t.me/livelawindia/110939)
 
 ---
-### 2026-05-14T03:32:30+00:00
-MP High Court Orders Probe Into Coal India Rehabilitation Jobs Allegedly Secured Through 'Marriage' With Landowners' Daughters
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-land-acquisition-rehabilitation-scheme-misused-by-marriage-for-job-arrangement-534142
+### 2026-05-14T06:25:26+00:00
+Delhi High Court Recalls Order Quashing Rejection Of Siddharth Varadarajan's OCI Card Plea, Flags Suppression Of Material Facts
+https://www.livelaw.in/high-court/delhi-high-court/siddharth-varadarajan-oci-card-suppression-of-material-facts-bail-conditions-passport-surrender-the-wire-534171
 
-[Read on Telegram](https://t.me/livelawindia/110927)
-
----
-### 2026-05-14T03:32:50+00:00
-From Intelligence To Empathy: Reimagining Role Of Emotional Intelligence (EQ) In Legal Profession
-https://www.livelaw.in/articles/emotional-intelligence-mental-health-lawyers-judges-legal-profession-534133
-
-[Read on Telegram](https://t.me/livelawindia/110928)
+[Read on Telegram](https://t.me/livelawindia/110940)
 
 ---
-### 2026-05-14T03:35:10+00:00
-Research Assistant Vacancy At Indian Institute Of Management, Kozhikode [Apply Now]
-https://www.livelaw.in/job-updates/research-assistant-vacancy-at-indian-institute-of-management-kozhikode-534147
+### 2026-05-14T06:47:46+00:00
+Supreme Court Quarterly Digest 2026 - Motor Vehicles Act
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-quarterly-digest-motor-vehicles-act-2026-534173
 
-[Read on Telegram](https://t.me/livelawindia/110929)
+[Read on Telegram](https://t.me/livelawindia/110941)
 
 ---
-### 2026-05-14T03:37:50+00:00
-Law Officer Vacancy At Tamilnad Mercantile Bank Limited
-https://www.livelaw.in/job-updates/law-officer-vacancy-at-tamilnad-mercantile-bank-limited-534148
+### 2026-05-14T06:53:06+00:00
+'West Bengal Not A Bulldozer State, Police Not Lodging FIRs': Ex-CM Mamata Banerjee Tells High Court In Post-Poll Violence PILs
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-west-bengal-post-poll-violence-pil-mamata-banerjee-534174
 
-[Read on Telegram](https://t.me/livelawindia/110930)
+[Read on Telegram](https://t.me/livelawindia/110942)
+
+---
+### 2026-05-14T07:11:36+00:00
+'Why Should I Suffer If Arrest Is Illegal?' Gameskraft Founder Tells Karnataka High Court; ED Gets Time Till Tuesday To Respond
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-gameskraft-founder-ed-534176
+
+[Read on Telegram](https://t.me/livelawindia/110943)
+
+---
+### 2026-05-14T07:27:08+00:00
+Settlement Deed Clause Divesting Daughter Of Property Upon Marriage Is Void: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/marriage-restrictive-clause-settlement-deed-public-policy-534177
+
+[Read on Telegram](https://t.me/livelawindia/110944)
+
+---
+### 2026-05-14T07:32:48+00:00
+Third Pregnancy Penalty: Madras High Court Strikes Down Tamil Nadu's Discriminatory Maternity Leave Order
+https://www.livelaw.in/articles/madras-high-court-strikes-down-discriminatory-maternity-leave-third-pregnancy-order-analysis-534136
+
+[Read on Telegram](https://t.me/livelawindia/110945)
+
+---
+### 2026-05-14T07:34:28+00:00
+'File Petition First': Calcutta High Court Declines Urgent Relief Against "Bulldozer Action" On Fire-Hit 'Illegal' Tiljala Factory
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-tiljala-factory-demolition-suvendu-adhikari-bullozer-justice-534179
+
+[Read on Telegram](https://t.me/livelawindia/110946)
+
+---
+### 2026-05-14T07:53:08+00:00
+Court Can't Protect Live-In Relationships Where Partner Is Below Marriageable Age: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-grant-protection-underage-livein-couple-writ-jurisdiction-534181
+
+[Read on Telegram](https://t.me/livelawindia/110947)
+
+---
+### 2026-05-14T08:07:28+00:00
+Delhi High Court Acquits Man Convicted For Adultery, Says Section 497 IPC Unconstitutional With Retrospective Effect
+https://www.livelaw.in/high-court/delhi-high-court/adultery-struck-off-retrospectively-man-acquitted-joseph-shine-section-497-ipc-534185
+
+[Read on Telegram](https://t.me/livelawindia/110948)
+
+---
+### 2026-05-14T08:22:38+00:00
+POCSO Act | AP High Court Criticizes Trial Court For Making Observations On Mental Condition Of Autistic Victim, Doubting Her Testimony
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-cancels-bail-pocso-case-autistic-minor-534186
+
+[Read on Telegram](https://t.me/livelawindia/110949)
+
+---
+### 2026-05-14T08:26:38+00:00
+Karnataka High Court Upholds Tender Clause Mandating In-State Recycling Facility For EVM Disposal, Says 'Sensitivity' Of EVMs Justify Condition
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-tender-clause-mandating-recycling-facility-evm-disposal-534188
+
+[Read on Telegram](https://t.me/livelawindia/110950)
+
+---
+### 2026-05-14T08:32:58+00:00
+Courts Cannot Direct Regularisation Of Seasonal Labourers Amid Govt's Blanket Ban On Such Engagements: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-domain-of-executive-policy-court-cannot-direct-permanent-casual-labour-status-when-over-3000-seasonal-labourers-await-similar-relief-under-government-ban-534103
+
+[Read on Telegram](https://t.me/livelawindia/110951)
 
 ---
