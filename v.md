@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-15T14:32:22+00:00*
+*Last Updated: 2026-05-15T15:53:05+00:00*
+
+---
+
+### 2026-05-15T15:53:05+00:00
+Condition Applies Uniformly To All Bidders: Karnataka High Court Upholds Tender Clause Restricting EVM Recycling Bids To Karnataka-Based Facilities
+https://www.verdictum.in/karnataka-high-court/evergreen-recyclekaro-india-limited-v-bharat-electronics-limited-anr-wp-no-935-of-2026-neutral-citation-2026khc24464-1614056
+
+[Source Link](https://t.me/verdictumlegalupdates/27016)
+
+---
+
+### 2026-05-15T15:12:43+00:00
+No Proximate Link Between Alleged Molestation & Suicide: Allahabad High Court Quashes Student's Suicide Abetment Case Against Teacher
+https://www.verdictum.in/allahabad-high-court/rahul-kushwaha-v-state-of-uttar-pradesh-anr-2026ahc109098-abetment-suicide-1614055
+
+[Source Link](https://t.me/verdictumlegalupdates/27015)
 
 ---
 
@@ -145,22 +161,6 @@ Clause In Settlement Deed Providing Daughter Will Lose Property Rights If She Ma
 https://www.verdictum.in/kerala-high-court/varkey-verghese-v-kathreena-2026ker28575-conditional-settlement-deed-1613999
 
 [Source Link](https://t.me/verdictumlegalupdates/26997)
-
----
-
-### 2026-05-14T14:32:35+00:00
-Mother By Reason Of Biological Considerations Is Ordinarily Best Positioned To Secure Minor’s Welfare: Allahabad High Court Grants Custody Of Child To Wife
-https://www.verdictum.in/allahabad-high-court/a-v-state-of-up-2026ahc99586-mother-minor-welfare-constable-son-wife-1613998
-
-[Source Link](https://t.me/verdictumlegalupdates/26996)
-
----
-
-### 2026-05-14T14:02:34+00:00
-Child Will Grow Up With Stigma: Madras High Court Denies Leave To Triple Murder Convict To Undergo Fertility Treatment
-https://www.verdictum.in/madras-high-court/jalani-v-the-deputy-inspector-general-of-prisons-child-stigma-convict-fertility-treatment-1613996
-
-[Source Link](https://t.me/verdictumlegalupdates/26995)
 
 ---
 
