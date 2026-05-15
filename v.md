@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-14T16:03:10+00:00*
+*Last Updated: 2026-05-15T04:33:01+00:00*
+
+---
+
+### 2026-05-15T04:33:01+00:00
+Driving Licence & PAN Card More Reliable Than Post-Mortem Report For Determining Age In Motor Accident Compensation Claims: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/united-india-insurance-company-limited-v-mamta-sharma-2026rj-jp18711-driving-licence-pan-card-over-post-mortem-report-1613997
+
+[Source Link](https://t.me/verdictumlegalupdates/27000)
 
 ---
 
@@ -153,14 +161,6 @@ Mining Dumps Cannot Be Treated At Par With Mining Leases U/S 10B Of MMDR Act: Bo
 https://www.verdictum.in/bombay-high-court/the-goa-foundation-v-the-state-of-goa-2026bhc-goa1022-db-goa-iron-ore-dump-policy-mining-dumps-1613966
 
 [Source Link](https://t.me/verdictumlegalupdates/26981)
-
----
-
-### 2026-05-14T06:33:05+00:00
-Deductions Arising Out Of Loan Repayments For Acquisition Of Assets Or Vehicles Can't Dilute  Obligation To Pay Maintenance: Delhi High Court
-https://www.verdictum.in/delhi-high-court/a-v-the-state-nct-of-delhi-2026dhc3850-dependency-husband-mother-pension-1613963
-
-[Source Link](https://t.me/verdictumlegalupdates/26980)
 
 ---
 
