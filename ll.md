@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-15T09:06:01+00:00*
+*Last Updated: 2026-05-15T11:38:10+00:00*
 
 ---
 
-### 2026-05-15T09:06:01+00:00
-Shiv Sena Dispute : Supreme Court Cautions UBT Side Over Comments Blaming Court For Delay In Decision
-https://www.livelaw.in/top-stories/shiv-sena-dispute-supreme-court-cautions-ubt-side-over-comments-blaming-court-for-delay-in-decision-534332
-
-[Read on Telegram](https://t.me/livelawindia/111028)
-
----
-### 2026-05-15T09:18:01+00:00
-S.480 BNSS | Merely Being A Woman Is No Ground For Bail In Serious Offences Like Murder: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-denies-bail-mother-in-law-daughter-in-law-strangulation-murder-case-534325
-
-[Read on Telegram](https://t.me/livelawindia/111029)
-
----
-### 2026-05-15T09:23:01+00:00
-BREAKING MP High Court Declares Bhojshala Site As Temple, Quashes ASI Circular Allowing Muslims To Offer Namaz
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bhojshala-temple-kamal-maula-mosque-row-534335
-
-[Read on Telegram](https://t.me/livelawindia/111030)
-
----
-### 2026-05-15T09:33:01+00:00
-To Protect Octogenarian Parents, Rajasthan High Court Upholds Eviction Of Their Senior Citizen Son And Daughter-In-Law
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-harassment-of-octogenarian-parents-protect-senior-citizens-534327
-
-[Read on Telegram](https://t.me/livelawindia/111031)
-
----
-### 2026-05-15T09:36:41+00:00
-Allahabad HC Directs MHA To Decide In 3 Weeks Application By Karnataka BJP Worker Seeking Z  Security Cover
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-mha-karnataka-bjp-z-security-cover-534336
-
-[Read on Telegram](https://t.me/livelawindia/111032)
-
----
-### 2026-05-15T10:13:51+00:00
-MP High Court Orders CBI Probe Into Liquor Trader's Suicide Alleging Bribe Demands By Excise Officer, Slams Police For Delaying FIR
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-central-bureau-of-investigation-role-of-excise-officer-in-liquor-contractors-suicide-534347
-
-[Read on Telegram](https://t.me/livelawindia/111033)
-
----
-### 2026-05-15T10:32:31+00:00
-Karnataka High Court Dismisses Plea Against Additional Haj Airfare Charge Amid Rising Fuel Prices, Says Non-Pilgrim Has No Locus
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-haj-committee-additional-airfare-demand-middle-east-conflict-534351
-
-[Read on Telegram](https://t.me/livelawindia/111034)
-
----
-### 2026-05-15T10:33:11+00:00
-Sacrilege And The State: Three Constitutional Questions Punjab's Anti-Sacrilege Law Has Not Answered
-https://www.livelaw.in/articles/punjab-sacrilege-law-guru-granth-sahib-constitutional-questions-534138
-
-[Read on Telegram](https://t.me/livelawindia/111035)
-
----
-### 2026-05-15T11:35:10+00:00
-Supreme Court Introduces Fuel-Saving Measures : Only VC Hearing On Misc Days; Judges To Carpool; WFH For Staff
-https://www.livelaw.in/top-stories/supreme-court-introduces-fuel-saving-measures-only-vc-hearing-on-misc-days-judges-to-carpool-wfh-for-staff-534356
-
-[Read on Telegram](https://t.me/livelawindia/111036)
-
----
 ### 2026-05-15T11:38:10+00:00
 Bombay High Court Upholds Goa Law Giving Surviving Spouse Priority Over Parents In Intestate Succession
 https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-goa-succession-amendment-act-534346
@@ -142,5 +79,68 @@ Madras HC Asks Authorities To Consider Woman's Plea To Add Foster Parents' Name 
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-foster-parents-birth-certificate-part-of-dignity-534382
 
 [Read on Telegram](https://t.me/livelawindia/111047)
+
+---
+### 2026-05-15T14:32:13+00:00
+Bhojshala Case: MP High Court Rejects Arguments Claiming Disputed Site Is Jain Temple
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bhojshala-temple-kamal-maula-mosque-row-jain-temple-argument-rejected-534387
+
+[Read on Telegram](https://t.me/livelawindia/111048)
+
+---
+### 2026-05-15T14:37:23+00:00
+Bar Association Cannot Penalise Lawyers For Attending Court Despite Boycott Calls: Tripura High Court
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-bar-association-penalise-lawyers-attending-courts-boycott-calls-534383
+
+[Read on Telegram](https://t.me/livelawindia/111049)
+
+---
+### 2026-05-15T15:02:43+00:00
+National Highways Acquisition | P&H High Court Grants Higher Interest On Enhanced Compensation, Modifies Arbitral Award
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-grants-higher-interest-on-enhanced-compensation-modifies-arbitral-award-534389
+
+[Read on Telegram](https://t.me/livelawindia/111050)
+
+---
+### 2026-05-15T15:07:23+00:00
+Reliance's Supply Of Gas From KG Basin To UP Is Inter-State Sale; VAT Not Applicable : Supreme Court
+https://www.livelaw.in/supreme-court/reliances-supply-of-gas-from-kg-basin-to-up-is-inter-state-sale-vat-not-applicable-supreme-court-534390
+
+[Read on Telegram](https://t.me/livelawindia/111051)
+
+---
+### 2026-05-15T15:08:43+00:00
+2026 LiveLaw (SC) 502 |  STATE OF UTTAR PRADESH & ORS. VERSUS RELIANCE INDUSTRIES LIMITED & ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-502-state-of-uttar-pradesh-ors-versus-reliance-industries-limited-ors-534391
+
+[Read on Telegram](https://t.me/livelawindia/111052)
+
+---
+### 2026-05-15T15:45:53+00:00
+10 Reasons Why Madhya Pradesh High Court Declared Disputed Bhojshala Site As Hindu Temple
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/bhojshala-reasons-temple-destroyed-structure-built-on-remains-534393
+
+[Read on Telegram](https://t.me/livelawindia/111053)
+
+---
+### 2026-05-15T17:38:13+00:00
+'They're Not Terrorists, Only Demanding Basic Wages' : Supreme Court Orders Production Of Two Arrested Over Noida Workers' Protest
+https://www.livelaw.in/top-stories/theyre-not-terrorists-only-demanding-basic-wages-supreme-court-orders-production-of-two-arrested-over-noida-workers-protest-534396
+
+[Read on Telegram](https://t.me/livelawindia/111054)
+
+---
+### 2026-05-15T17:50:33+00:00
+'His Life Continues In Others' : Supreme Court Appreciates Harish Rana's Family For Donating His Organs After Life Support Withdrawal
+https://www.livelaw.in/top-stories/his-life-continues-in-others-supreme-court-appreciates-harish-ranas-family-for-donating-his-organs-after-life-support-withdrawal-534397
+
+[Read on Telegram](https://t.me/livelawindia/111055)
+
+---
+### 2026-05-15T18:19:03+00:00
+BREAKING | Telangana High Court Declines Interim Anticipatory Bail To Bandi Bageerath In POCSO Case
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-bandi-sai-bageerath-interim-anticipatory-bail-pocso-case-534398
+
+[Read on Telegram](https://t.me/livelawindia/111056)
 
 ---
