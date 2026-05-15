@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-14T11:27:50+00:00*
+*Last Updated: 2026-05-14T11:38:50+00:00*
 
 ---
 
-### 2026-05-14T11:27:50+00:00
-'Police Duty Is To Protect, Not Be Hand In Glove With Accused': Karnataka HC Remarks In Convicted IO's Plea In Yogesh Goudar Murder Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-investigating-officer-let-real-assailants-escape-yogesh-goudar-murder-534224
-
-[Read on Telegram](https://t.me/livelawindia/110969)
-
----
 ### 2026-05-14T11:38:50+00:00
 Muslim Personal Law Permitting Marriage After Puberty Doesn't Apply To Live-In Relationships: Allahabad High Court
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-muslim-personal-law-live-in-relationship-puberty-534226
@@ -142,5 +135,12 @@ Delhi High Court Refuses To Stall OTT Release Of Dhurandhar Film In Copyright Di
 https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-to-stall-ott-release-of-dhurandhar-film-in-copyright-dispute-over-tirchi-topiwale-534265
 
 [Read on Telegram](https://t.me/livelawindia/110988)
+
+---
+### 2026-05-15T03:33:20+00:00
+Rethinking Abortion Law: A Rights-Based Approach For Rape Survivors
+https://www.livelaw.in/articles/supreme-court-of-india-abortion-law-gestational-limits-for-rape-survivors-analysis-534134
+
+[Read on Telegram](https://t.me/livelawindia/110989)
 
 ---
