@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-14T11:38:50+00:00*
+*Last Updated: 2026-05-15T06:09:10+00:00*
 
 ---
 
-### 2026-05-14T11:38:50+00:00
-Muslim Personal Law Permitting Marriage After Puberty Doesn't Apply To Live-In Relationships: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-muslim-personal-law-live-in-relationship-puberty-534226
+### 2026-05-15T06:09:10+00:00
+Unnao Rape | Supreme Court Sets Aside Delhi HC Order Suspending Kuldeep Sengar's Sentence, Remits Matter For Fresh Decision
+https://www.livelaw.in/top-stories/unnao-rape-supreme-court-sets-aside-delhi-hc-order-suspending-kuldeep-sengars-sentence-remits-matter-for-fresh-decision-534302
 
-[Read on Telegram](https://t.me/livelawindia/110970)
-
----
-### 2026-05-14T11:46:40+00:00
-Sabarimala Reference: Supreme Court Reserves Verdict After 16 Days Hearing
-https://www.livelaw.in/top-stories/supreme-court-sabarimala-reference-verdict-reserved-534228
-
-[Read on Telegram](https://t.me/livelawindia/110971)
+[Read on Telegram](https://t.me/livelawindia/111007)
 
 ---
-### 2026-05-14T11:57:49+00:00
-Forcing Citizens To Wait For Bus Without Shelter In Extreme Weather Denies Dignified Life Under Article 21: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/forcing-citizens-to-wait-for-bus-without-shelter-in-extreme-weather-denies-dignified-life-under-article-21-bombay-high-court-534229
+### 2026-05-15T06:13:10+00:00
+Bombay High Court Questions State's Decision Disqualifying 757 Marathi Schools From Grant-In-Aid, Says Move Undermines Push For Language
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-questions-states-decision-disqualifying-757-schools-from-grant-in-aid-says-move-undermines-push-for-marathi-language-534295
 
-[Read on Telegram](https://t.me/livelawindia/110972)
-
----
-### 2026-05-14T12:07:49+00:00
-Elderly Parents Can't Be Casually Restrained From Alienating Property; Children Must Show Prima Facie Coparcenary Rights: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/senior-citizens-right-to-enjoyment-of-property-children-show-coparcenary-right-534235
-
-[Read on Telegram](https://t.me/livelawindia/110973)
+[Read on Telegram](https://t.me/livelawindia/111008)
 
 ---
-### 2026-05-14T12:21:09+00:00
-NUSRL's Kautilya Society Awarded 'Best Society Of The Year' At Kautilya Society Conclave
-https://www.livelaw.in/lawschool/news/nusrls-kautilya-society-awarded-best-society-of-the-year-at-kautilya-society-conclave-534237
+### 2026-05-15T06:14:10+00:00
+2026 LiveLaw (SC) 500 | BAR COUNCIL OF INDIA Versus HIGH COURT OF ANDHRA PRADESH
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-500-bar-council-of-india-versus-high-court-of-andhra-pradesh-534305
 
-[Read on Telegram](https://t.me/livelawindia/110974)
-
----
-### 2026-05-14T12:26:50+00:00
-'Essential Religious Practice' Doctrine Is Elitist: Supreme Court In Sabarimala Reference
-https://www.livelaw.in/top-stories/sabarimala-reference-essential-religious-practice-elitist-article-25-26-534238
-
-[Read on Telegram](https://t.me/livelawindia/110975)
+[Read on Telegram](https://t.me/livelawindia/111009)
 
 ---
-### 2026-05-14T12:41:50+00:00
-'Frivolous, Vexatious': MP High Court Rejects Muslim Man's Plea Seeking Validation Of Triple Talaq Pronounced To Wife
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-husbands-petition-for-validation-of-triple-talaq-dismissed-534240
+### 2026-05-15T06:28:31+00:00
+'Trial By Headlines': Karnataka HC Orders Action Against Media Coverage In Darshan Case, Says Press Can't Become Judge, Jury & Executioner
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-channels-airing-staged-courtroom-proceedings-actor-darshan-case-534308
 
-[Read on Telegram](https://t.me/livelawindia/110976)
-
----
-### 2026-05-14T12:46:20+00:00
-India–Denmark Arbitration Corridor Launched To Strengthen Indo-Nordic Dispute Resolution Framework
-https://www.livelaw.in/law-firms/professional-announcement/indiadenmark-arbitration-corridor-launched-strengthen-indo-nordic-dispute-resolution-framework-534244
-
-[Read on Telegram](https://t.me/livelawindia/110977)
+[Read on Telegram](https://t.me/livelawindia/111010)
 
 ---
-### 2026-05-14T12:57:40+00:00
-Punjab & Haryana High Court Weekly Round-Up: May 04 - May 10, 2026
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-weekly-round-up-may-534242
+### 2026-05-15T06:32:30+00:00
+Recovery Of Contraband From Vehicle Parked Near 'Premises' Not Enough To Prosecute Owner For Allowing Drug Use On Property: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-section-25ndps-act-drug-use-on-property-recovery-from-vehicle-534298
 
-[Read on Telegram](https://t.me/livelawindia/110978)
-
----
-### 2026-05-14T13:59:30+00:00
-No Slaughter Of Cows, Buffaloes Without Certification; Only Elderly Or Permanently Incapacitated Animals Eligible: WB Govt
-https://www.livelaw.in/news-updates/no-slaughter-of-cows-buffaloes-without-certification-only-elderly-or-permanently-incapacitated-animals-eligible-wb-govt-534252
-
-[Read on Telegram](https://t.me/livelawindia/110979)
+[Read on Telegram](https://t.me/livelawindia/111011)
 
 ---
-### 2026-05-14T14:07:10+00:00
-'Labour Law Is Charter Of Human Rights At Workplace, Govt Cannot Play “Hide & Seek” With Employees': Patna HC Restores Back Wages
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-restores-back-wages-award-dismissed-conductor-534253
+### 2026-05-15T06:47:30+00:00
+PITNDPS Detention Unsustainable Without Commercial Quantity; Reliance On Pending FIRs Shows Non-Application Of Mind: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-pitndps-detention-unsustainable-where-no-commercial-quantity-recovered-reliance-on-pending-firs-alone-shows-non-application-of-mind-534266
 
-[Read on Telegram](https://t.me/livelawindia/110980)
-
----
-### 2026-05-14T14:09:30+00:00
-Why Should Selection Panel For Election Commissioners Include Cabinet Minister? Third Person Must Be Neutral : Supreme Court
-https://www.livelaw.in/top-stories/why-should-selection-panel-for-election-commissioners-include-cabinet-minister-third-person-must-be-neutral-supreme-court-534254
-
-[Read on Telegram](https://t.me/livelawindia/110981)
+[Read on Telegram](https://t.me/livelawindia/111012)
 
 ---
-### 2026-05-14T14:17:50+00:00
-Canara Bank Regulations | Joint Disciplinary Proceedings Not Necessary When Multiple Officers Involved In Same Case : Supreme Court
-https://www.livelaw.in/supreme-court/canara-bank-regulations-joint-disciplinary-proceedings-not-necessary-when-multiple-officers-involved-in-same-case-supreme-court-534256
+### 2026-05-15T06:50:51+00:00
+'If HC Makes You Senior, We Will Set It Aside' : Supreme Court Pulls Up Lawyer For Repeated Pleas Over Delhi HC Senior Designations
+https://www.livelaw.in/top-stories/if-hc-makes-you-senior-we-will-set-it-aside-supreme-court-pulls-up-lawyer-for-repeated-pleas-over-delhi-hc-senior-designations-534311
 
-[Read on Telegram](https://t.me/livelawindia/110982)
-
----
-### 2026-05-14T14:18:30+00:00
-Delhi High Court Initiates Contempt Action Against Arvind Kejriwal, Manish Sisodia, Sanjay Singh, Vinay Mishra & Saurabh Bharadwaj
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-contempt-action-arvind-kejriwal-manish-sisodia-sanjay-singh-vinay-mishra-saurabh-bharadwaj-534257
-
-[Read on Telegram](https://t.me/livelawindia/110983)
+[Read on Telegram](https://t.me/livelawindia/111013)
 
 ---
-### 2026-05-14T14:18:50+00:00
-2026 LiveLaw (SC) 497 | CANARA BANK VERSUS PREM LATHA UPPAL (DEAD) THROUGH LRS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-497-canara-bank-versus-prem-latha-uppal-dead-through-lrs-534258
+### 2026-05-15T07:03:01+00:00
+'Fouler The Crime, Higher The Proof': Punjab & Haryana High Court Acquits Woman Convicted For Criminal Conspiracy In Rape Case
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-acquits-woman-in-2002-rape-case-says-mere-suspicion-cannot-prove-criminal-conspiracy-534300
 
-[Read on Telegram](https://t.me/livelawindia/110984)
-
----
-### 2026-05-14T14:32:30+00:00
-BREAKING Justice Swarana Kanta Sharma Transfers CBI's Excise Policy Case Against Arvind Kejriwal To Another Bench
-https://www.livelaw.in/high-court/delhi-high-court/justice-swarana-kanta-sharma-recuse-arvind-kejriwal-cbi-excise-policy-case-534260
-
-[Read on Telegram](https://t.me/livelawindia/110985)
+[Read on Telegram](https://t.me/livelawindia/111014)
 
 ---
-### 2026-05-14T14:55:20+00:00
-J&K&L High Court Constitutes Ad-Hoc Managing Body For Registration Of Judicial Officers Association
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-constitutes-ad-hoc-managing-body-for-registration-of-judicial-officers-association-534263
+### 2026-05-15T07:10:01+00:00
+Kannada Actor Darshan Can Seek Bail If No Substantial Progress In Trial In 1 Year : Supreme Court In Renukaswamy Murder Case
+https://www.livelaw.in/top-stories/kannada-actor-darshan-can-seek-bail-if-no-substantial-progress-in-trial-in-1-year-supreme-court-in-renukaswamy-murder-case-534314
 
-[Read on Telegram](https://t.me/livelawindia/110986)
-
----
-### 2026-05-14T15:35:10+00:00
-Delhi High Court May Initiate Contempt Against YouTubers For Circulating Edited Video Targeting Justice Swarana Kanta Sharma
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-may-initiate-contempt-against-youtubers-for-circulating-edited-video-targeting-justice-swarana-kanta-sharma-534264
-
-[Read on Telegram](https://t.me/livelawindia/110987)
+[Read on Telegram](https://t.me/livelawindia/111015)
 
 ---
-### 2026-05-14T16:16:30+00:00
-Delhi High Court Refuses To Stall OTT Release Of Dhurandhar Film In Copyright Dispute Over 'Tirchi Topiwale'
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-to-stall-ott-release-of-dhurandhar-film-in-copyright-dispute-over-tirchi-topiwale-534265
+### 2026-05-15T07:17:21+00:00
+'Treated Himself Above Law': Rajasthan High Court Fines Ayurveda Dept Director ₹50,000 For Defying Orders Halting Pension Benefit Recovery
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-imposes-personal-cost-ayurveda-director-defying-court-orders-534301
 
-[Read on Telegram](https://t.me/livelawindia/110988)
+[Read on Telegram](https://t.me/livelawindia/111016)
 
 ---
-### 2026-05-15T03:33:20+00:00
-Rethinking Abortion Law: A Rights-Based Approach For Rape Survivors
-https://www.livelaw.in/articles/supreme-court-of-india-abortion-law-gestational-limits-for-rape-survivors-analysis-534134
+### 2026-05-15T07:32:21+00:00
+Spouses Living Separately Due To Government Service Postings Doesn't Amount To Desertion: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/spouses-living-separately-government-postings-not-desertion-534303
 
-[Read on Telegram](https://t.me/livelawindia/110989)
+[Read on Telegram](https://t.me/livelawindia/111017)
+
+---
+### 2026-05-15T07:32:41+00:00
+Corporations In The Dock: Unraveling Criminal Liability
+https://www.livelaw.in/articles/corporate-criminal-liability-in-india-analysis-534135
+
+[Read on Telegram](https://t.me/livelawindia/111018)
+
+---
+### 2026-05-15T07:42:41+00:00
+Allahabad High Court Dismisses Contempt Plea Against Swami Avimukteshwaranand Saraswati
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-dismisses-contempt-swami-avimukteshwaranand-saraswati-534317
+
+[Read on Telegram](https://t.me/livelawindia/111019)
+
+---
+### 2026-05-15T07:47:21+00:00
+Kerala High Court Upholds POCSO Act Conviction Despite Non-Seizure Of Mobile Used To Show Sexually Explicit Videos To Child
+https://www.livelaw.in/high-court/kerala-high-court/pocso-act-non-seizure-mobile-sexually-explicit-content-child-534304
+
+[Read on Telegram](https://t.me/livelawindia/111020)
+
+---
+### 2026-05-15T07:58:51+00:00
+Thousands Of Fraudulent Lawyers, BCI Won't Do Anything; Need CBI To Verify Law Degrees : CJI Surya Kant
+https://www.livelaw.in/top-stories/thousands-of-fraudulent-lawyers-bci-wont-do-anything-need-cbi-to-verify-law-degrees-cji-surya-kant-534320
+
+[Read on Telegram](https://t.me/livelawindia/111021)
+
+---
+### 2026-05-15T08:02:31+00:00
+AP High Court Allows Unauthorized RO Plant To Continue In Public Interest, Says Access To Clean Potable Water Is Part Of Right To Life
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-allows-unauthorized-ro-plant-public-interest-534318
+
+[Read on Telegram](https://t.me/livelawindia/111022)
+
+---
+### 2026-05-15T08:17:31+00:00
+S.125 CrPC Maintenance | Magistrate Can't Presume High Income Merely Because Husband Failed To Produce Employment Documents: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/section-125-crpc-maintenance-husband-income-proof-534306
+
+[Read on Telegram](https://t.me/livelawindia/111023)
+
+---
+### 2026-05-15T08:39:31+00:00
+Varanasi Ganga Boat Iftar Row | Allahabad High Court Grants Bail To 8 Accused
+https://www.livelaw.in/high-court/allahabad-high-court/ganga-boat-iftar-allahabad-high-court-grants-bail-8-accused-varanasi-534329
+
+[Read on Telegram](https://t.me/livelawindia/111024)
+
+---
+### 2026-05-15T08:42:51+00:00
+J&K&L High Court Denies Bail To Man Accused Of Facilitating Safe Movement Of Hizbul Mujahideen Militants To Jammu
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-accused-acted-as-intermediary-between-hizbul-mujahideen-militants-and-police-officer-transferred-funds-for-exfiltration-to-pakistan-534268
+
+[Read on Telegram](https://t.me/livelawindia/111025)
+
+---
+### 2026-05-15T08:51:41+00:00
+Kerala High Court Allows Transgender Man To Preserve His Eggs
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-transman-cryopreserving-eggs-art-act-534331
+
+[Read on Telegram](https://t.me/livelawindia/111026)
 
 ---
