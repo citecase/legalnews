@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-15T04:33:01+00:00*
+*Last Updated: 2026-05-15T09:22:40+00:00*
+
+---
+
+### 2026-05-15T09:22:40+00:00
+There Should Be Some Rationalisation Of Airfares: Supreme Court
+https://www.verdictum.in/supreme-court/there-should-be-some-rationalisation-of-airfares-supreme-court-1614041
+
+[Source Link](https://t.me/verdictumlegalupdates/27006)
+
+---
+
+### 2026-05-15T08:53:19+00:00
+Delegated Legislation Also Protected Under Article 33 Of Constitution: J&K&L High Court Upholds Constitutional Validity Of Rule 147-A Army Rules
+https://www.verdictum.in/jammu-ladakh-high-court/mushtaq-ahmad-malik-v-union-of-india-ors-wpc-no-19452024-2026jklhc-sgr112-db-1614039
+
+[Source Link](https://t.me/verdictumlegalupdates/27005)
+
+---
+
+### 2026-05-15T08:08:38+00:00
+Supreme Court Sets Aside Suspension Of Life Sentence Of Kuldeep Sengar In Unnao Rape Case, Asks High Court To Decide Afresh
+https://www.verdictum.in/supreme-court/supreme-court-sets-aside-suspension-of-life-sentence-of-kuldeep-sengar-in-unnao-rape-case-1614036
+
+[Source Link](https://t.me/verdictumlegalupdates/27004)
+
+---
+
+### 2026-05-15T07:23:16+00:00
+Waiver Of Statutory Rights In Agricultural Land Cannot Be Inferred Merely From Silence Or Longstanding Mutation Entry: Delhi High Court
+https://www.verdictum.in/delhi-high-court/dhanpat-aflatoon-through-satbir-v-financial-commissioner-ors-2026dhc4090-1614029
+
+[Source Link](https://t.me/verdictumlegalupdates/27003)
+
+---
+
+### 2026-05-15T06:22:34+00:00
+Delhi High Court Refuses Injunction Over Tridev Song Remix In Dhurandhar: The Revenge
+https://www.verdictum.in/delhi-high-court/trimurti-films-private-limited-v-b62-studios-private-limited-2026dhc-4280-ott-release-of-dhurandhar-tirchi-topi-1614024
+
+[Source Link](https://t.me/verdictumlegalupdates/27002)
+
+---
+
+### 2026-05-15T05:22:53+00:00
+TDS Deductions Impermissible From Compensation Awarded Under Section 3G(5) National Highways Act: Bombay High Court
+https://www.verdictum.in/bombay-high-court/tukaram-kana-pawara-through-legal-heirs-v-the-project-director-project-implementation-unit-anr-2026bhc-aug20365-1614018
+
+[Source Link](https://t.me/verdictumlegalupdates/27001)
 
 ---
 
@@ -113,54 +161,6 @@ Delay During COVID-Era Cannot Be Attributed To Court Or Prosecution: J&K And Lad
 https://www.verdictum.in/jammu-ladakh-high-court/basharat-ahmad-abbasi-alias-bashir-and-another-v-ut-of-jk-and-others-2026jklhc-sgr99-1613988
 
 [Source Link](https://t.me/verdictumlegalupdates/26987)
-
----
-
-### 2026-05-14T09:32:44+00:00
-Parties Intended To Import "Body & Soul" Of Development Agreement Into Later Agreements: Supreme Court Appoints Arbitrator
-https://www.verdictum.in/supreme-court/hirani-developers-v-nehru-nagar-samruddhi-chs-ltd-2026-insc-484-arbitration-clause-incorporation-1613983
-
-[Source Link](https://t.me/verdictumlegalupdates/26986)
-
----
-
-### 2026-05-14T09:02:22+00:00
-It Will Be A Long-Drawn Battle: Supreme Court Asks Sunjay Kapur's Mother Rani Kapur & Wife Priya Kapur To End Dispute Amicably
-https://www.verdictum.in/supreme-court/it-will-be-a-long-drawn-battle-supreme-court-asks-sunjay-kapurs-mother-rani-kapur-wife-priya-kapur-to-end-dispute-amicably-1613985
-
-[Source Link](https://t.me/verdictumlegalupdates/26985)
-
----
-
-### 2026-05-14T08:32:51+00:00
-Supreme Court Impleads NHAI In Case On Rampant Illegal Sand Mining In National Chambal Sanctuary
-https://www.verdictum.in/supreme-court/nhai-illegal-mining-in-national-chambal-sanctuary-1613976
-
-[Source Link](https://t.me/verdictumlegalupdates/26984)
-
----
-
-### 2026-05-14T08:02:10+00:00
-Sabarimala Reference| Rejoinder Submissions By Petitioners Call For Minimalist Judicial Approach To Traditions; Court To Now Hear Amicus
-https://www.verdictum.in/supreme-court/sabarimala-reference-arguments-concluded-9-judge-bench-1613979
-
-[Source Link](https://t.me/verdictumlegalupdates/26983)
-
----
-
-### 2026-05-14T07:31:28+00:00
-Wife’s Refusal To Resume Relationship Or Remarks On Husband’s Manhood Do Not Amount To Abetment Of Suicide: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/shreya-basak-anr-v-the-state-of-west-bengal-anr-2026chc-as699-1613971
-
-[Source Link](https://t.me/verdictumlegalupdates/26982)
-
----
-
-### 2026-05-14T07:03:06+00:00
-Mining Dumps Cannot Be Treated At Par With Mining Leases U/S 10B Of MMDR Act: Bombay High Court Upholds Goa Iron Ore Dump Policy
-https://www.verdictum.in/bombay-high-court/the-goa-foundation-v-the-state-of-goa-2026bhc-goa1022-db-goa-iron-ore-dump-policy-mining-dumps-1613966
-
-[Source Link](https://t.me/verdictumlegalupdates/26981)
 
 ---
 
