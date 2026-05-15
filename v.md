@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-15T09:22:40+00:00*
+*Last Updated: 2026-05-15T14:32:22+00:00*
+
+---
+
+### 2026-05-15T14:32:22+00:00
+Courts Expected To Adopt Greater Sensitivity & Care: Andhra Pradesh High Court Cancels Bail Of School Principal Accused Of Sexually Abusing Autistic Student
+https://www.verdictum.in/andhra-pradesh-high-court/maternal-grandmother-of-victim-v-the-state-of-andhra-pradesh-criminal-petition-no-3825-2026-1614054
+
+[Source Link](https://t.me/verdictumlegalupdates/27014)
+
+---
+
+### 2026-05-15T13:42:20+00:00
+Right In Inheritance Vests Immediately On Death Of Estate Leaver; Inventory Proceedings Only Crystallise Shares: Bombay High Court Upholds Amendments To Goa Succession & Inventory Act
+https://www.verdictum.in/bombay-high-court/xavier-agnelo-minguel-jose-gracias-v-state-of-goa-2026bhc-goa1046-db-right-in-inheritance-death-of-estate-leaver-1614047
+
+[Source Link](https://t.me/verdictumlegalupdates/27013)
+
+---
+
+### 2026-05-15T13:02:19+00:00
+"Bhojshala Complex And Kamal Maula Mosque Is Held To Be Bhojshala With Temple Of Goddess Vagdevi": MP High Court Quashes ASI Circular Permitting Namaz
+https://www.verdictum.in/madhya-pradesh-high-court/2026mphcind-8805-hindu-front-for-justice-v-union-of-india-bhojshala-temple-1614059
+
+[Source Link](https://t.me/verdictumlegalupdates/27012)
+
+---
+
+### 2026-05-15T12:32:17+00:00
+Supreme Court Shifts To Hybrid Working Model After Recent Directives From Centre; Judges To Have Car-pooling Arrangements
+https://www.verdictum.in/news/hybrid-work-model-green-initiatives-work-from-home-1614053
+
+[Source Link](https://t.me/verdictumlegalupdates/27011)
+
+---
+
+### 2026-05-15T11:53:06+00:00
+Unemployed Youngsters Like Cockroaches Become Media, Social Media & Activists: Apex Court Pulls Up Lawyer Seeking Senior Designation
+https://www.verdictum.in/supreme-court/apex-court-pulls-up-lawyer-seeking-senior-designation-1614044
+
+[Source Link](https://t.me/verdictumlegalupdates/27010)
+
+---
+
+### 2026-05-15T11:22:44+00:00
+You Take A Date Here & Say We Are Not Deciding: Supreme Court Rebukes UBT Shiv Sena Over Remarks Before Media
+https://www.verdictum.in/supreme-court/shiv-sena-dispute-ubt-side-irresponsible-eknath-shinde-1614046
+
+[Source Link](https://t.me/verdictumlegalupdates/27009)
+
+---
+
+### 2026-05-15T10:52:43+00:00
+Non-Verification Of Probate Petition By Attesting Witness Is Curable Irregularity, Not Ground For Dismissal: Bombay High Court
+https://www.verdictum.in/bombay-high-court/sunil-ijjatrai-shah-v-bina-samir-telivala-interim-application-no1592-of-2026-non-verification-of-probate-petition-curable-1614043
+
+[Source Link](https://t.me/verdictumlegalupdates/27008)
+
+---
+
+### 2026-05-15T10:12:42+00:00
+Supreme Court Asks Bengaluru Court To Expedite Trial In Renukaswamy Murder Case
+https://www.verdictum.in/supreme-court/supreme-court-asks-bengaluru-court-to-expedite-trial-in-renukaswamy-murder-case-1614042
+
+[Source Link](https://t.me/verdictumlegalupdates/27007)
 
 ---
 
@@ -97,70 +161,6 @@ Child Will Grow Up With Stigma: Madras High Court Denies Leave To Triple Murder 
 https://www.verdictum.in/madras-high-court/jalani-v-the-deputy-inspector-general-of-prisons-child-stigma-convict-fertility-treatment-1613996
 
 [Source Link](https://t.me/verdictumlegalupdates/26995)
-
----
-
-### 2026-05-14T13:32:12+00:00
-Madras High Court Grants Bail To Savukku Shankar In Alleged Stone Pelting And Threat Case Registered During Police Custody
-https://www.verdictum.in/madras-high-court/shankar-savukku-shankar-v-the-inspector-of-police-bail-stone-pelting-1613995
-
-[Source Link](https://t.me/verdictumlegalupdates/26994)
-
----
-
-### 2026-05-14T13:03:11+00:00
-Post Poll Violence: Calcutta High Court Asks Police To Maintain Law & Order, Give Safe Return To People Irrespective Of Party Affiliation
-https://www.verdictum.in/calcutta-high-court/sirsanya-bandopadhyay-vs-union-of-india-post-poll-violence-police-law-order-1614003
-
-[Source Link](https://t.me/verdictumlegalupdates/26993)
-
----
-
-### 2026-05-14T12:33:09+00:00
-BCI Asks West Bengal Bar Council To Furnish Practice Records Of Mamata Banerjee After Her Appearance Before High Court
-https://www.verdictum.in/news/bar-council-of-india-west-bengal-bar-council-mamata-banerjee-1613994
-
-[Source Link](https://t.me/verdictumlegalupdates/26992)
-
----
-
-### 2026-05-14T12:03:08+00:00
-Joint Account Holder Who Is Not Signatory To Dishonoured Cheque Not Liable U/S 138 NI Act: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/madhu-singh-v-state-of-up-2026ahc104853-1613991
-
-[Source Link](https://t.me/verdictumlegalupdates/26991)
-
----
-
-### 2026-05-14T11:32:26+00:00
-Sabarimala Reference|Supreme Court Reserves Verdict After Amicus Curiae Frames Religious Freedom As ‘Swaraj’ And Challenges ‘Elitist’ Doctrine Of Essentiality
-https://www.verdictum.in/supreme-court/sabarimala-reference-reserves-verdict-amicus-curiae-k-parameshwar-1613992
-
-[Source Link](https://t.me/verdictumlegalupdates/26990)
-
----
-
-### 2026-05-14T11:02:05+00:00
-Magistrate Can’t Impose More Than Six Months’ Imprisonment In Default Of Compensation Payment In Cheque Bounce Cases: Bombay High Court
-https://www.verdictum.in/bombay-high-court/cyrus-noshirwan-kartak-v-state-of-maharashtra-anr-2026bhc-as21287-1613990
-
-[Source Link](https://t.me/verdictumlegalupdates/26989)
-
----
-
-### 2026-05-14T10:32:53+00:00
-U.P. Panchayat Raj Election Disputes| Party Entitled To Make Claim For Cross-examination Of Witness By Giving Sufficient & Justifiable Reasons: Supreme Court
-https://www.verdictum.in/supreme-court/dinesh-kumar-v-surta-nath-surat-nath-ors-2026-insc-485-cross-examination-election-tribunal-1613989
-
-[Source Link](https://t.me/verdictumlegalupdates/26988)
-
----
-
-### 2026-05-14T10:02:51+00:00
-Delay During COVID-Era Cannot Be Attributed To Court Or Prosecution: J&K And Ladakh High Court Dismisses Bail Plea In Murder Case
-https://www.verdictum.in/jammu-ladakh-high-court/basharat-ahmad-abbasi-alias-bashir-and-another-v-ut-of-jk-and-others-2026jklhc-sgr99-1613988
-
-[Source Link](https://t.me/verdictumlegalupdates/26987)
 
 ---
 
