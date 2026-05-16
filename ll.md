@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-15T11:38:10+00:00*
+*Last Updated: 2026-05-15T12:36:47+00:00*
 
 ---
 
-### 2026-05-15T11:38:10+00:00
-Bombay High Court Upholds Goa Law Giving Surviving Spouse Priority Over Parents In Intestate Succession
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-goa-succession-amendment-act-534346
-
-[Read on Telegram](https://t.me/livelawindia/111037)
-
----
-### 2026-05-15T11:42:55+00:00
-Delhi High Court Quashes ED Attachment Orders In PACL Case, Refers Matter To Justice Lodha Committee
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-quashes-ed-attachment-orders-in-pacl-case-relegates-matter-to-justice-lodha-committee-534340
-
-[Read on Telegram](https://t.me/livelawindia/111038)
-
----
 ### 2026-05-15T12:36:47+00:00
 Calcutta High Court Restrains Further Demolition Of Fire-Hit Tiljala Building, Bars Leather Business From Premises
 https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-restrains-further-demolition-of-fire-hit-tiljala-building-bars-leather-business-from-premises-534368
@@ -142,5 +128,19 @@ BREAKING | Telangana High Court Declines Interim Anticipatory Bail To Bandi Bage
 https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-bandi-sai-bageerath-interim-anticipatory-bail-pocso-case-534398
 
 [Read on Telegram](https://t.me/livelawindia/111056)
+
+---
+### 2026-05-16T03:18:19+00:00
+Supreme Court Agrees To Hear Plea Challenging UGC Students' Grievances Redressal Regulations 2023
+https://www.livelaw.in/top-stories/supreme-court-plea-against-university-grants-commission-2023-and-2026-regulations-no-notice-on-challenge-to-2012-regulations-534386
+
+[Read on Telegram](https://t.me/livelawindia/111057)
+
+---
+### 2026-05-16T03:29:19+00:00
+Institute Of Military Law To Celebrate 36th Raising Day On May 16
+https://www.livelaw.in/lawschool/news/institute-military-law-celebrate-36th-raising-day-may-16-534399
+
+[Read on Telegram](https://t.me/livelawindia/111058)
 
 ---
