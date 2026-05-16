@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-16T06:53:18+00:00*
+*Last Updated: 2026-05-16T07:03:18+00:00*
 
 ---
 
-### 2026-05-16T06:53:18+00:00
-Call For Applications: IPR Chair Professor Under DPIIT IPR Chair, NLU Delhi
-https://www.livelaw.in/job-updates/call-for-applications-ipr-chair-professor-under-dpiit-ipr-chair-nlu-delhi-534429
-
-[Read on Telegram](https://t.me/livelawindia/111070)
-
----
-### 2026-05-16T06:53:28+00:00
-Article 226 Cannot Be Invoked On Mere Apprehension Of Tender Disqualification Without Actual Legal Injury: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-article-226-tender-disqualification-without-legal-injury-534421
-
-[Read on Telegram](https://t.me/livelawindia/111071)
-
----
-### 2026-05-16T06:57:38+00:00
-Civil Judge Junior Division And Judicial Magistrate First Class Preliminary Examination 2024, Maharashtra
-https://www.livelaw.in/job-updates/civil-judge-junior-division-and-judicial-magistrate-first-class-preliminary-examination-2024-maharashtra-534431
-
-[Read on Telegram](https://t.me/livelawindia/111072)
-
----
 ### 2026-05-16T07:03:18+00:00
 Consultant (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP [Bengaluru; Apply Now]
 https://www.livelaw.in/job-updates/consultant-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-bengaluru-534432
@@ -142,5 +121,26 @@ https://www.livelaw.in/supreme-court/state-cannot-deny-benefits-under-final-orde
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-505-b-yerraji-ors-verus-the-state-of-andhra-pradesh-ors-534465
 
 [Read on Telegram](https://t.me/livelawindia/111089)
+
+---
+### 2026-05-16T14:27:46+00:00
+Lawyers Must Also Bring To Court's Notice Judgments Which Do Not Support Their Case : Supreme Court
+https://www.livelaw.in/top-stories/lawyers-must-also-bring-to-courts-notice-judgments-which-do-not-support-their-case-supreme-court-534469
+
+[Read on Telegram](https://t.me/livelawindia/111090)
+
+---
+### 2026-05-16T14:36:06+00:00
+Patna HC Flags 'Human Rights Violation' In Keeping Recovered Mental Health Patients In Hospitals Due To Lack Of Half-Way Homes
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-flags-human-rights-violation-recovered-mental-health-patients-hospitals-534483
+
+[Read on Telegram](https://t.me/livelawindia/111091)
+
+---
+### 2026-05-16T15:28:36+00:00
+From Litigants Asking 'File Kahan Hai' To 'Link Bhej Dijiye': CJI Surya Kant On Digital Transformation Of Judiciary
+https://www.livelaw.in/top-stories/from-litigants-asking-file-kahan-hai-to-link-bhej-dijiye-cji-surya-kant-on-digital-transformation-of-judiciary-534484
+
+[Read on Telegram](https://t.me/livelawindia/111092)
 
 ---
