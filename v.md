@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-16T13:32:28+00:00*
+*Last Updated: 2026-05-16T15:03:11+00:00*
+
+---
+
+### 2026-05-16T15:03:11+00:00
+Legal Research Consultants Vacancy At National Human Rights Commission (NHRC)
+https://www.verdictum.in/job-updates/national-human-rights-commission-1614118
+
+[Source Link](https://t.me/verdictumlegalupdates/27032)
+
+---
+
+### 2026-05-16T14:13:10+00:00
+Bar Association Can’t Initiate Action Against Lawyer Representing Matter Before Court Amid Boycott: Tripura High Court
+https://www.verdictum.in/tripura-high-court/sri-sampad-choudhury-v-the-state-of-tripura-bar-council-bar-association-boycott-1614115
+
+[Source Link](https://t.me/verdictumlegalupdates/27031)
 
 ---
 
@@ -145,22 +161,6 @@ Right In Inheritance Vests Immediately On Death Of Estate Leaver; Inventory Proc
 https://www.verdictum.in/bombay-high-court/xavier-agnelo-minguel-jose-gracias-v-state-of-goa-2026bhc-goa1046-db-right-in-inheritance-death-of-estate-leaver-1614047
 
 [Source Link](https://t.me/verdictumlegalupdates/27013)
-
----
-
-### 2026-05-15T13:02:19+00:00
-"Bhojshala Complex And Kamal Maula Mosque Is Held To Be Bhojshala With Temple Of Goddess Vagdevi": MP High Court Quashes ASI Circular Permitting Namaz
-https://www.verdictum.in/madhya-pradesh-high-court/2026mphcind-8805-hindu-front-for-justice-v-union-of-india-bhojshala-temple-1614059
-
-[Source Link](https://t.me/verdictumlegalupdates/27012)
-
----
-
-### 2026-05-15T12:32:17+00:00
-Supreme Court Shifts To Hybrid Working Model After Recent Directives From Centre; Judges To Have Car-pooling Arrangements
-https://www.verdictum.in/news/hybrid-work-model-green-initiatives-work-from-home-1614053
-
-[Source Link](https://t.me/verdictumlegalupdates/27011)
 
 ---
 
