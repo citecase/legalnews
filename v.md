@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-15T15:53:05+00:00*
+*Last Updated: 2026-05-16T08:12:46+00:00*
+
+---
+
+### 2026-05-16T08:12:46+00:00
+Reliance’s Contractual Natural Gas Movement Via Common Carrier Is Inter-State Sale: UP Cannot Levy VAT: Supreme Court
+https://www.verdictum.in/supreme-court/state-of-uttar-pradesh-v-reliance-industries-limited-2026-insc-491-up-cannot-levy-vat-contractual-gas-movement-1614101
+
+[Source Link](https://t.me/verdictumlegalupdates/27022)
+
+---
+
+### 2026-05-16T07:33:05+00:00
+Mediclaim Amount Cannot Be Deducted From Motor Accident Compensation Under MV Act: Supreme Court
+https://www.verdictum.in/supreme-court/new-india-assurance-company-limited-v-dolly-satish-gandhi-anr-2026-insc-498-1614098
+
+[Source Link](https://t.me/verdictumlegalupdates/27021)
+
+---
+
+### 2026-05-16T06:52:43+00:00
+Attempted To Poison The Fountain Of Justice: Delhi High Court Initiates Criminal Contempt Proceedings Against Arvind Kejriwal & Others
+https://www.verdictum.in/delhi-high-court/central-bureau-of-investigation-v-kuldeep-singh-2026dhc4293-arvind-kejriwal-others-contempt-1614090
+
+[Source Link](https://t.me/verdictumlegalupdates/27020)
+
+---
+
+### 2026-05-16T06:02:02+00:00
+Criminal Law Can’t Be Used to Further Cause In Purely Civil Dispute: Supreme Court Quashes FIR In Land Dispute
+https://www.verdictum.in/supreme-court/sunisha-anand-v-state-of-haryana-2026-insc-494-criminal-law-civil-dispute-fir-1614088
+
+[Source Link](https://t.me/verdictumlegalupdates/27019)
+
+---
+
+### 2026-05-16T05:13:00+00:00
+Can’t Sanction Marriage-Like Union Barred By Law: Allahabad High Court Refuses Protection To Live-In Relationship Involving Male Partner Aged Below 21
+https://www.verdictum.in/allahabad-high-court/sp-anr-v-state-of-up-ors-2025ahc100410-live-in-relationship-1614081
+
+[Source Link](https://t.me/verdictumlegalupdates/27018)
+
+---
+
+### 2026-05-16T04:32:49+00:00
+High Court Cannot Interfere With Section 33C(2) ID Act Computation Order By Effectively Nullifying Unchallenged Labour Award: Patna High Court
+https://www.verdictum.in/patna-high-court/siya-singh-v-the-state-of-bihar-ors-2026phhclpa827-2025-labour-award-1614051
+
+[Source Link](https://t.me/verdictumlegalupdates/27017)
 
 ---
 
@@ -113,54 +161,6 @@ Waiver Of Statutory Rights In Agricultural Land Cannot Be Inferred Merely From S
 https://www.verdictum.in/delhi-high-court/dhanpat-aflatoon-through-satbir-v-financial-commissioner-ors-2026dhc4090-1614029
 
 [Source Link](https://t.me/verdictumlegalupdates/27003)
-
----
-
-### 2026-05-15T06:22:34+00:00
-Delhi High Court Refuses Injunction Over Tridev Song Remix In Dhurandhar: The Revenge
-https://www.verdictum.in/delhi-high-court/trimurti-films-private-limited-v-b62-studios-private-limited-2026dhc-4280-ott-release-of-dhurandhar-tirchi-topi-1614024
-
-[Source Link](https://t.me/verdictumlegalupdates/27002)
-
----
-
-### 2026-05-15T05:22:53+00:00
-TDS Deductions Impermissible From Compensation Awarded Under Section 3G(5) National Highways Act: Bombay High Court
-https://www.verdictum.in/bombay-high-court/tukaram-kana-pawara-through-legal-heirs-v-the-project-director-project-implementation-unit-anr-2026bhc-aug20365-1614018
-
-[Source Link](https://t.me/verdictumlegalupdates/27001)
-
----
-
-### 2026-05-15T04:33:01+00:00
-Driving Licence & PAN Card More Reliable Than Post-Mortem Report For Determining Age In Motor Accident Compensation Claims: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/united-india-insurance-company-limited-v-mamta-sharma-2026rj-jp18711-driving-licence-pan-card-over-post-mortem-report-1613997
-
-[Source Link](https://t.me/verdictumlegalupdates/27000)
-
----
-
-### 2026-05-14T16:03:10+00:00
-Law Clerk Vacancy At Gauhati High Court
-https://www.verdictum.in/job-updates/gauhati-high-court-1614000
-
-[Source Link](https://t.me/verdictumlegalupdates/26999)
-
----
-
-### 2026-05-14T15:32:28+00:00
-Court Can Refuse To Summon Defence Witness U/s. 233 CrPC Only If Sought For Vexation Or Delay: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/inderpal-singh-v-state-of-up-and-another-2026ahc99318-right-defence-witnesses-crpc-accused-1614001
-
-[Source Link](https://t.me/verdictumlegalupdates/26998)
-
----
-
-### 2026-05-14T15:02:47+00:00
-Clause In Settlement Deed Providing Daughter Will Lose Property Rights If She Marries Is Void And Against Public Policy: Kerala High Court
-https://www.verdictum.in/kerala-high-court/varkey-verghese-v-kathreena-2026ker28575-conditional-settlement-deed-1613999
-
-[Source Link](https://t.me/verdictumlegalupdates/26997)
 
 ---
 
