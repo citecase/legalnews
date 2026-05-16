@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-16T08:12:46+00:00*
+*Last Updated: 2026-05-16T13:32:28+00:00*
+
+---
+
+### 2026-05-16T13:32:28+00:00
+J&K And Ladakh High Court Denies Bail To Accused In Hizbul Mujahideen Conspiracy Case Involving Now Terminated DSP Devender Singh
+https://www.verdictum.in/jammu-ladakh-high-court/syed-irfan-ahmad-v-nia-jammu-2026jklhc-jmu1514-db-hizbul-mujahideen-devender-singh-1614116
+
+[Source Link](https://t.me/verdictumlegalupdates/27030)
+
+---
+
+### 2026-05-16T12:52:27+00:00
+File Response Within 8 Weeks: Allahabad High Court Asks CBI, ED To Verify Disproportionate Assets Complaint Against Rahul Gandhi
+https://www.verdictum.in/allahabad-high-court/s-vignesh-shishir-v-director-central-bureau-investigation-response-ed-rahul-gandhi-1614123
+
+[Source Link](https://t.me/verdictumlegalupdates/27029)
+
+---
+
+### 2026-05-16T12:02:25+00:00
+Power To Strike Off Defence Under Order XV Rule 5 CPC Cannot Be Invoked Without Determination Of "First Date Of Hearing": Supreme Court
+https://www.verdictum.in/supreme-court/dharmendra-kalra-ors-v-kulvinder-singh-bhatia-2026-insc-492-order-xv-rule-5-cpc-1614111
+
+[Source Link](https://t.me/verdictumlegalupdates/27028)
+
+---
+
+### 2026-05-16T11:32:54+00:00
+Chief Justice Surya Kant Clarifies His ‘Parasites’ Remarks, Says He Was Pained By Misquoted Media Reports
+https://www.verdictum.in/supreme-court/chief-justice-surya-kant-clarifies-his-parasites-remarks-says-he-was-pained-by-misquoted-media-reports-1614112
+
+[Source Link](https://t.me/verdictumlegalupdates/27027)
+
+---
+
+### 2026-05-16T11:12:52+00:00
+Heinousness Of Crime Cannot Be Sole Ground To Deny Remission: Supreme Court
+https://www.verdictum.in/supreme-court/rohit-chaturvedi-v-state-of-uttarakhand-ors-2026-insc-490-co-accused-1614110
+
+[Source Link](https://t.me/verdictumlegalupdates/27026)
+
+---
+
+### 2026-05-16T10:33:11+00:00
+Press Is A Watchdog; Cannot Become Judge, Jury & Executioner: Karnataka High Court On Media Trial Against Actor Darshan
+https://www.verdictum.in/karnataka-high-court/2026khc24468-darshan-srinivas-v-union-of-india-1614108
+
+[Source Link](https://t.me/verdictumlegalupdates/27025)
+
+---
+
+### 2026-05-16T09:52:49+00:00
+"Deposit" Under MPID Act Includes Transactions Termed As “Loan”: Supreme Court
+https://www.verdictum.in/supreme-court/alka-agrawal-ors-v-state-of-maharashtra-ors-2026-insc-489-investors-1614107
+
+[Source Link](https://t.me/verdictumlegalupdates/27024)
+
+---
+
+### 2026-05-16T09:02:08+00:00
+State Authorities Cannot Evade Judicial Orders In Service Matters Merely Because Their Employees Didn't Take Execution Steps: Supreme Court
+https://www.verdictum.in/supreme-court/2026-insc-495-b-yerraji-v-state-of-andhra-pradesh-1614103
+
+[Source Link](https://t.me/verdictumlegalupdates/27023)
 
 ---
 
@@ -97,70 +161,6 @@ Supreme Court Shifts To Hybrid Working Model After Recent Directives From Centre
 https://www.verdictum.in/news/hybrid-work-model-green-initiatives-work-from-home-1614053
 
 [Source Link](https://t.me/verdictumlegalupdates/27011)
-
----
-
-### 2026-05-15T11:53:06+00:00
-Unemployed Youngsters Like Cockroaches Become Media, Social Media & Activists: Apex Court Pulls Up Lawyer Seeking Senior Designation
-https://www.verdictum.in/supreme-court/apex-court-pulls-up-lawyer-seeking-senior-designation-1614044
-
-[Source Link](https://t.me/verdictumlegalupdates/27010)
-
----
-
-### 2026-05-15T11:22:44+00:00
-You Take A Date Here & Say We Are Not Deciding: Supreme Court Rebukes UBT Shiv Sena Over Remarks Before Media
-https://www.verdictum.in/supreme-court/shiv-sena-dispute-ubt-side-irresponsible-eknath-shinde-1614046
-
-[Source Link](https://t.me/verdictumlegalupdates/27009)
-
----
-
-### 2026-05-15T10:52:43+00:00
-Non-Verification Of Probate Petition By Attesting Witness Is Curable Irregularity, Not Ground For Dismissal: Bombay High Court
-https://www.verdictum.in/bombay-high-court/sunil-ijjatrai-shah-v-bina-samir-telivala-interim-application-no1592-of-2026-non-verification-of-probate-petition-curable-1614043
-
-[Source Link](https://t.me/verdictumlegalupdates/27008)
-
----
-
-### 2026-05-15T10:12:42+00:00
-Supreme Court Asks Bengaluru Court To Expedite Trial In Renukaswamy Murder Case
-https://www.verdictum.in/supreme-court/supreme-court-asks-bengaluru-court-to-expedite-trial-in-renukaswamy-murder-case-1614042
-
-[Source Link](https://t.me/verdictumlegalupdates/27007)
-
----
-
-### 2026-05-15T09:22:40+00:00
-There Should Be Some Rationalisation Of Airfares: Supreme Court
-https://www.verdictum.in/supreme-court/there-should-be-some-rationalisation-of-airfares-supreme-court-1614041
-
-[Source Link](https://t.me/verdictumlegalupdates/27006)
-
----
-
-### 2026-05-15T08:53:19+00:00
-Delegated Legislation Also Protected Under Article 33 Of Constitution: J&K&L High Court Upholds Constitutional Validity Of Rule 147-A Army Rules
-https://www.verdictum.in/jammu-ladakh-high-court/mushtaq-ahmad-malik-v-union-of-india-ors-wpc-no-19452024-2026jklhc-sgr112-db-1614039
-
-[Source Link](https://t.me/verdictumlegalupdates/27005)
-
----
-
-### 2026-05-15T08:08:38+00:00
-Supreme Court Sets Aside Suspension Of Life Sentence Of Kuldeep Sengar In Unnao Rape Case, Asks High Court To Decide Afresh
-https://www.verdictum.in/supreme-court/supreme-court-sets-aside-suspension-of-life-sentence-of-kuldeep-sengar-in-unnao-rape-case-1614036
-
-[Source Link](https://t.me/verdictumlegalupdates/27004)
-
----
-
-### 2026-05-15T07:23:16+00:00
-Waiver Of Statutory Rights In Agricultural Land Cannot Be Inferred Merely From Silence Or Longstanding Mutation Entry: Delhi High Court
-https://www.verdictum.in/delhi-high-court/dhanpat-aflatoon-through-satbir-v-financial-commissioner-ors-2026dhc4090-1614029
-
-[Source Link](https://t.me/verdictumlegalupdates/27003)
 
 ---
 
