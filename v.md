@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-16T15:03:11+00:00*
+*Last Updated: 2026-05-17T04:33:08+00:00*
+
+---
+
+### 2026-05-17T04:33:08+00:00
+Husband's Failure To Furnish Documents Regarding Informal Employment Won’t Discredit His Evidence Regarding Income: Gauhati High Court
+https://www.verdictum.in/guwahati-high-court/a-v-the-state-of-assam-mere-failure-husband-documents-employment-evidence-income-1614120
+
+[Source Link](https://t.me/verdictumlegalupdates/27033)
 
 ---
 
@@ -153,14 +161,6 @@ Courts Expected To Adopt Greater Sensitivity & Care: Andhra Pradesh High Court C
 https://www.verdictum.in/andhra-pradesh-high-court/maternal-grandmother-of-victim-v-the-state-of-andhra-pradesh-criminal-petition-no-3825-2026-1614054
 
 [Source Link](https://t.me/verdictumlegalupdates/27014)
-
----
-
-### 2026-05-15T13:42:20+00:00
-Right In Inheritance Vests Immediately On Death Of Estate Leaver; Inventory Proceedings Only Crystallise Shares: Bombay High Court Upholds Amendments To Goa Succession & Inventory Act
-https://www.verdictum.in/bombay-high-court/xavier-agnelo-minguel-jose-gracias-v-state-of-goa-2026bhc-goa1046-db-right-in-inheritance-death-of-estate-leaver-1614047
-
-[Source Link](https://t.me/verdictumlegalupdates/27013)
 
 ---
 
