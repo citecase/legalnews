@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-17T13:32:27+00:00*
+*Last Updated: 2026-05-17T15:02:29+00:00*
+
+---
+
+### 2026-05-17T15:02:29+00:00
+Bombay High Court Invites Applications For The Post Of Judicial Research Assistant
+https://www.verdictum.in/job-updates/bombay-high-court-1614119
+
+[Source Link](https://t.me/verdictumlegalupdates/27040)
 
 ---
 
@@ -153,14 +161,6 @@ Mediclaim Amount Cannot Be Deducted From Motor Accident Compensation Under MV Ac
 https://www.verdictum.in/supreme-court/new-india-assurance-company-limited-v-dolly-satish-gandhi-anr-2026-insc-498-1614098
 
 [Source Link](https://t.me/verdictumlegalupdates/27021)
-
----
-
-### 2026-05-16T06:52:43+00:00
-Attempted To Poison The Fountain Of Justice: Delhi High Court Initiates Criminal Contempt Proceedings Against Arvind Kejriwal & Others
-https://www.verdictum.in/delhi-high-court/central-bureau-of-investigation-v-kuldeep-singh-2026dhc4293-arvind-kejriwal-others-contempt-1614090
-
-[Source Link](https://t.me/verdictumlegalupdates/27020)
 
 ---
 
