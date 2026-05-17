@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-17T04:26:30+00:00*
+*Last Updated: 2026-05-17T05:34:40+00:00*
 
 ---
 
-### 2026-05-17T04:26:30+00:00
-Senior Legal Counsel Vacancy At Ather Energy Private Limited [Apply Now]
-https://www.livelaw.in/job-updates/senior-legal-counsel-vacancy-at-ather-energy-private-limited-534504
-
-[Read on Telegram](https://t.me/livelawindia/111100)
-
----
-### 2026-05-17T05:13:00+00:00
-Hindu Succession Act | 2005 Amendment Does Not Limit Daughters' Pre-Existing Inheritance Rights : Supreme Court
-https://www.livelaw.in/supreme-court/hindu-succession-act-2005-amendment-does-not-limit-daughters-pre-existing-inheritance-rights-supreme-court-534496
-
-[Read on Telegram](https://t.me/livelawindia/111101)
-
----
 ### 2026-05-17T05:34:40+00:00
 When Finality Fails: Res Judicata After Setting Aside Of Awards
 https://www.livelaw.in/articles/res-judicata-setting-aside-arbitral-awards-arbitration-act-analysis-534505
@@ -142,5 +128,19 @@ https://www.livelaw.in/sc-judgments/2026-livelaw-sc-511-all-india-institute-of-m
 https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-calls-aatasatta-marriages-morally-legally-bankrupt-534518
 
 [Read on Telegram](https://t.me/livelawindia/111119)
+
+---
+### 2026-05-17T15:07:01+00:00
+Allahabad HC Grants Interim Protection From Arrest To Woman Accused Of Falsely Posing As 'Aaj Tak' Reporter
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-interim-protection-arrest-accused-falsely-posing-aaj-tak-reporter-534519
+
+[Read on Telegram](https://t.me/livelawindia/111120)
+
+---
+### 2026-05-17T15:42:51+00:00
+Delhi Judge Shifted After Video Of Heated Exchange With Lawyer Goes Viral
+https://www.livelaw.in/news-updates/delhi-judge-shifted-after-video-of-heated-exchange-with-lawyer-goes-viral-534528
+
+[Read on Telegram](https://t.me/livelawindia/111121)
 
 ---
