@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-16T07:03:18+00:00*
+*Last Updated: 2026-05-16T08:42:59+00:00*
 
 ---
 
-### 2026-05-16T07:03:18+00:00
-Consultant (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP [Bengaluru; Apply Now]
-https://www.livelaw.in/job-updates/consultant-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-bengaluru-534432
-
-[Read on Telegram](https://t.me/livelawindia/111073)
-
----
-### 2026-05-16T07:17:18+00:00
-MP High Court Exempts Defence, Security Infrastructure Projects From Prior Permission For Cutting Trees
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-clarifies-the-extent-of-tree-cutting-ban-order-on-security-project-of-indian-army-534428
-
-[Read on Telegram](https://t.me/livelawindia/111074)
-
----
-### 2026-05-16T07:57:28+00:00
-Corrigendum Clarifying Tribunal's Original Order Cannot Create New Cause Of Action: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-clarificatory-corrigendum-does-not-create-fresh-cause-of-action-unchallenged-rejection-of-impleadment-bars-indirect-challenge-to-final-order-534416
-
-[Read on Telegram](https://t.me/livelawindia/111075)
-
----
-### 2026-05-16T08:32:39+00:00
-Gujarat High Court Recommends Contempt Action Against Judicial Officer For Assertions Made Against HC Judge
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-contempt-judicial-officer-assertions-hc-judge-534430
-
-[Read on Telegram](https://t.me/livelawindia/111076)
-
----
 ### 2026-05-16T08:42:59+00:00
 Supreme Court Quarterly Digest 2026 - Contract Law
 https://www.livelaw.in/supreme-court/supreme-court-judgements-and-orders-quarterly-digest-contract-law-2026-534442
@@ -142,5 +114,33 @@ From Litigants Asking 'File Kahan Hai' To 'Link Bhej Dijiye': CJI Surya Kant On 
 https://www.livelaw.in/top-stories/from-litigants-asking-file-kahan-hai-to-link-bhej-dijiye-cji-surya-kant-on-digital-transformation-of-judiciary-534484
 
 [Read on Telegram](https://t.me/livelawindia/111092)
+
+---
+### 2026-05-17T02:06:00+00:00
+BREAKING| President Promulgates Ordinance To Raise Number Of Supreme Court Judges By 4
+https://www.livelaw.in/top-stories/president-promulgates-ordinance-to-raise-number-of-supreme-court-judges-by-4-534492
+
+[Read on Telegram](https://t.me/livelawindia/111093)
+
+---
+### 2026-05-17T03:09:50+00:00
+Delhi High Court Issues Notice On PIL Challenging Consumer Protection Act Provisions Relating To  'Substantial Question Of Law'
+https://www.livelaw.in/consumer-cases/delhi-high-court-issues-notice-on-pil-challenging-consumer-protection-act-provisions-relating-to-substantial-question-of-law-534495
+
+[Read on Telegram](https://t.me/livelawindia/111094)
+
+---
+### 2026-05-17T03:32:40+00:00
+Supreme Court Quarterly Digest 2026 - Labour Law
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-labour-law-quarterly-digest-2026-534490
+
+[Read on Telegram](https://t.me/livelawindia/111095)
+
+---
+### 2026-05-17T03:42:20+00:00
+Supreme Court Weekly Round-up: May 4, 2026 To May 10, 2026
+https://www.livelaw.in/round-ups/weekly/supreme-court-weekly-round-up-may-4-2026-to-may-10-2026-534470
+
+[Read on Telegram](https://t.me/livelawindia/111096)
 
 ---
