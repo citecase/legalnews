@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-17T04:33:08+00:00*
+*Last Updated: 2026-05-17T07:32:41+00:00*
+
+---
+
+### 2026-05-17T07:32:41+00:00
+Didn’t Obtain Benefit Of Wrongly Claimed Scheduled Tribe Status: Supreme Court Quashes FIR Against Retired Employee
+https://www.verdictum.in/supreme-court/madan-gopal-v-the-state-of-up-2026-insc-501benefit-wrong-scheduled-tribe-status-fir-1614124
+
+[Source Link](https://t.me/verdictumlegalupdates/27035)
+
+---
+
+### 2026-05-17T06:02:39+00:00
+Disputes Relating To ESI Contribution & Liability Should Be Decided By Employees’ Insurance Court & Not In Writ Jurisdiction: Gauhati High Court
+https://www.verdictum.in/guwahati-high-court/ms-hotel-brideway-anr-v-union-of-india-ors-2026gau-as6561-esi-act-1614117
+
+[Source Link](https://t.me/verdictumlegalupdates/27034)
 
 ---
 
@@ -145,22 +161,6 @@ Condition Applies Uniformly To All Bidders: Karnataka High Court Upholds Tender 
 https://www.verdictum.in/karnataka-high-court/evergreen-recyclekaro-india-limited-v-bharat-electronics-limited-anr-wp-no-935-of-2026-neutral-citation-2026khc24464-1614056
 
 [Source Link](https://t.me/verdictumlegalupdates/27016)
-
----
-
-### 2026-05-15T15:12:43+00:00
-No Proximate Link Between Alleged Molestation & Suicide: Allahabad High Court Quashes Student's Suicide Abetment Case Against Teacher
-https://www.verdictum.in/allahabad-high-court/rahul-kushwaha-v-state-of-uttar-pradesh-anr-2026ahc109098-abetment-suicide-1614055
-
-[Source Link](https://t.me/verdictumlegalupdates/27015)
-
----
-
-### 2026-05-15T14:32:22+00:00
-Courts Expected To Adopt Greater Sensitivity & Care: Andhra Pradesh High Court Cancels Bail Of School Principal Accused Of Sexually Abusing Autistic Student
-https://www.verdictum.in/andhra-pradesh-high-court/maternal-grandmother-of-victim-v-the-state-of-andhra-pradesh-criminal-petition-no-3825-2026-1614054
-
-[Source Link](https://t.me/verdictumlegalupdates/27014)
 
 ---
 
