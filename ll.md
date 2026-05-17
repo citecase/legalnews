@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-16T08:42:59+00:00*
+*Last Updated: 2026-05-16T14:27:46+00:00*
 
 ---
 
-### 2026-05-16T08:42:59+00:00
-Supreme Court Quarterly Digest 2026 - Contract Law
-https://www.livelaw.in/supreme-court/supreme-court-judgements-and-orders-quarterly-digest-contract-law-2026-534442
-
-[Read on Telegram](https://t.me/livelawindia/111077)
-
----
-### 2026-05-16T10:04:10+00:00
-Call For Papers: LIJDLR Invites Submissions For Vol 4 Issue 2; Get Free CrossRef DOI, E-Certificate & Indexing In 350  International Libraries And Databases
-https://www.livelaw.in/lawschool/call-for-papers/lijdlr-invites-submissions-vol-4-issue-2-get-free-crossref-doi-e-certificate-indexing-in-350-international-libraries-databases-534447
-
-[Read on Telegram](https://t.me/livelawindia/111078)
-
----
-### 2026-05-16T10:06:00+00:00
-Section Of Media Misquoted Me, Criticised Only Those Who Join Professions With Fake Degrees: CJI Surya Kant Clarifies Remarks On Youth
-https://www.livelaw.in/top-stories/section-of-media-misquoted-me-criticised-only-those-who-join-professions-with-fake-degrees-cji-surya-kant-clarifies-remarks-on-youth-534448
-
-[Read on Telegram](https://t.me/livelawindia/111079)
-
----
-### 2026-05-16T10:30:40+00:00
-HPNLU Shimla To Organise Webinar On “Right To Information” In Collaboration With Vidhi Vimarsh Initiative On May 30-31
-https://www.livelaw.in/lawschool/seminars/hpnlu-shimla-organise-webinar-right-to-information-collaboration-vidhi-vimarsh-initiative-534452
-
-[Read on Telegram](https://t.me/livelawindia/111080)
-
----
-### 2026-05-16T10:32:40+00:00
-High Court Refuses To Quash FIR Against Former J&K Bank Executives In IFFCO TOKIO Insurance Deal Case
-https://www.livelaw.in/high-court/jammu-kashmir/jk-bank-insurance-deal-corruption-case-high-court-refuses-to-quash-fir-against-senior-bank-officials-who-evaluated-bids-holds-deeper-probe-needed-into-their-role-534417
-
-[Read on Telegram](https://t.me/livelawindia/111081)
-
----
-### 2026-05-16T10:33:00+00:00
-NEET UG 2026 Cancellation : United Doctors Front Moves Supreme Court Seeking NTA Dissolution
-https://www.livelaw.in/top-stories/neet-ug-2026-cancellation-united-doctors-front-moves-supreme-court-seeking-nta-dissolution-534449
-
-[Read on Telegram](https://t.me/livelawindia/111082)
-
----
-### 2026-05-16T10:59:20+00:00
-2026 LiveLaw (SC) 503 |  MARIETTA D' SILVA VERSUS RUDOLF CLOTHAN LACERDA & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-503-marietta-d-silva-versus-rudolf-clothan-lacerda-ors-534456
-
-[Read on Telegram](https://t.me/livelawindia/111083)
-
----
-### 2026-05-16T11:14:30+00:00
-Mediclaim Reimbursement Cannot Be Deducted From Motor Accident Compensation : Supreme Court
-https://www.livelaw.in/top-stories/mediclaim-reimbursement-cannot-be-deducted-from-motor-accident-compensation-supreme-court-534457
-
-[Read on Telegram](https://t.me/livelawindia/111084)
-
----
-### 2026-05-16T11:16:11+00:00
-2026 LiveLaw (SC) 504 | New India Assurance Company v Dolly Satish Gandhi and another
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-504-new-india-assurance-company-v-dolly-satish-gandhi-and-another-534459
-
-[Read on Telegram](https://t.me/livelawindia/111085)
-
----
-### 2026-05-16T11:50:16+00:00
-Lawyer Brings To Supreme Court's Notice Udhayanidhi Stalin's Remarks Against Sanatana Dharma In TN Assembly
-https://www.livelaw.in/top-stories/lawyer-brings-to-supreme-courts-notice-udhayanidhi-stalins-remarks-against-sanatana-dharma-in-tn-assembly-534461
-
-[Read on Telegram](https://t.me/livelawindia/111086)
-
----
-### 2026-05-16T11:57:56+00:00
-J&K&L High Court Grants Bail To Doctor Accused Of Attempting To Commit Rape On Patient During Medical Exam
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-bail-is-rule-jail-exception-court-grants-bail-to-a-doctor-accused-of-attempt-to-commit-rape-during-medical-examination-534418
-
-[Read on Telegram](https://t.me/livelawindia/111087)
-
----
-### 2026-05-16T12:02:36+00:00
-State Cannot Deny Benefits Under Final Order Merely Because Employees Delayed Seeking Its Implementation : Supreme Court
-https://www.livelaw.in/supreme-court/state-cannot-deny-benefits-under-final-order-merely-because-employees-delayed-seeking-its-implementation-supreme-court-534464
-
-[Read on Telegram](https://t.me/livelawindia/111088)
-
----
-### 2026-05-16T12:03:36+00:00
-2026 LiveLaw (SC) 505  | B. YERRAJI & ORS. VERUS THE STATE OF ANDHRA PRADESH & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-505-b-yerraji-ors-verus-the-state-of-andhra-pradesh-ors-534465
-
-[Read on Telegram](https://t.me/livelawindia/111089)
-
----
 ### 2026-05-16T14:27:46+00:00
 Lawyers Must Also Bring To Court's Notice Judgments Which Do Not Support Their Case : Supreme Court
 https://www.livelaw.in/top-stories/lawyers-must-also-bring-to-courts-notice-judgments-which-do-not-support-their-case-supreme-court-534469
@@ -142,5 +51,96 @@ Supreme Court Weekly Round-up: May 4, 2026 To May 10, 2026
 https://www.livelaw.in/round-ups/weekly/supreme-court-weekly-round-up-may-4-2026-to-may-10-2026-534470
 
 [Read on Telegram](https://t.me/livelawindia/111096)
+
+---
+### 2026-05-17T04:11:50+00:00
+Associate Legal Counsel Vacancy At Ather Energy Private Limited [Apply Now]
+https://www.livelaw.in/job-updates/associate-legal-counsel-vacancy-at-ather-energy-private-limited-534501
+
+[Read on Telegram](https://t.me/livelawindia/111097)
+
+---
+### 2026-05-17T04:17:50+00:00
+Consultant Vacancy At Ernst & Young [Gurugram; Apply Now]
+https://www.livelaw.in/job-updates/consultant-vacancy-at-ernst-young-gurugram-534502
+
+[Read on Telegram](https://t.me/livelawindia/111098)
+
+---
+### 2026-05-17T04:24:30+00:00
+Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
+https://www.livelaw.in/job-updates/manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-534503
+
+[Read on Telegram](https://t.me/livelawindia/111099)
+
+---
+### 2026-05-17T04:26:30+00:00
+Senior Legal Counsel Vacancy At Ather Energy Private Limited [Apply Now]
+https://www.livelaw.in/job-updates/senior-legal-counsel-vacancy-at-ather-energy-private-limited-534504
+
+[Read on Telegram](https://t.me/livelawindia/111100)
+
+---
+### 2026-05-17T05:13:00+00:00
+Hindu Succession Act | 2005 Amendment Does Not Limit Daughters' Pre-Existing Inheritance Rights : Supreme Court
+https://www.livelaw.in/supreme-court/hindu-succession-act-2005-amendment-does-not-limit-daughters-pre-existing-inheritance-rights-supreme-court-534496
+
+[Read on Telegram](https://t.me/livelawindia/111101)
+
+---
+### 2026-05-17T05:34:40+00:00
+When Finality Fails: Res Judicata After Setting Aside Of Awards
+https://www.livelaw.in/articles/res-judicata-setting-aside-arbitral-awards-arbitration-act-analysis-534505
+
+[Read on Telegram](https://t.me/livelawindia/111102)
+
+---
+### 2026-05-17T05:38:20+00:00
+2026 LiveLaw (SC) 506 | B.S. LALITHA AND OTHERS VERSUS BHUVANESH AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-506-bs-lalitha-and-others-versus-bhuvanesh-and-others-534497
+
+[Read on Telegram](https://t.me/livelawindia/111103)
+
+---
+### 2026-05-17T06:02:50+00:00
+Karnataka State Consumer Commission Dismisses Compensation Plea Over Demolished Property, Says Civil Dispute Not Maintainable Under Consumer Law
+https://www.livelaw.in/consumer-cases/karnataka-state-consumer-commission-dismisses-compensation-plea-over-demolished-property-says-civil-dispute-not-maintainable-under-consumer-law-534498
+
+[Read on Telegram](https://t.me/livelawindia/111104)
+
+---
+### 2026-05-17T06:17:50+00:00
+Even 'Loan' Can Qualify As 'Deposit' Under MPID Act; Private Individual Can Be 'Financial Establishment' : Supreme Court
+https://www.livelaw.in/supreme-court/even-loan-can-qualify-as-deposit-under-mpid-act-private-individual-can-be-financial-establishment-supreme-court-534499
+
+[Read on Telegram](https://t.me/livelawindia/111105)
+
+---
+### 2026-05-17T06:27:30+00:00
+2026 LiveLaw (SC) 507 | ALKA AGRAWAL AND OTHERS VERSUS STATE OF MAHARASHTRA AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-507-alka-agrawal-and-others-versus-state-of-maharashtra-and-others-534500
+
+[Read on Telegram](https://t.me/livelawindia/111106)
+
+---
+### 2026-05-17T06:30:30+00:00
+Preventive Detention Unwarranted When Material There's No Breach Of Public Order & Ordinary Law Can Be Applied: Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-invocation-of-preventive-detention-law-unwarranted-material-does-not-show-breach-of-public-order-ordinary-law-can-be-applied-534506
+
+[Read on Telegram](https://t.me/livelawindia/111107)
+
+---
+### 2026-05-17T08:11:10+00:00
+Ganga Iftar Row | Alleged Act Could Hurt Sentiments Of Hindus But Remorse Shown Is Genuine: Allahabad HC In Bail Order
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-ganga-iftar-row-hurt-sentiments-hindus-remorse-genuine-bail-extortion-claim-doubt-534507
+
+[Read on Telegram](https://t.me/livelawindia/111108)
+
+---
+### 2026-05-17T08:22:50+00:00
+Mahindra University, HNLU Sign MoU To Promote Legal Education & Interdisciplinary Research
+https://www.livelaw.in/lawschool/news/mahindra-university-hnlu-sign-mou-promote-legal-education-interdisciplinary-research-534508
+
+[Read on Telegram](https://t.me/livelawindia/111109)
 
 ---
