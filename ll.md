@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-16T14:27:46+00:00*
+*Last Updated: 2026-05-17T04:26:30+00:00*
 
 ---
 
-### 2026-05-16T14:27:46+00:00
-Lawyers Must Also Bring To Court's Notice Judgments Which Do Not Support Their Case : Supreme Court
-https://www.livelaw.in/top-stories/lawyers-must-also-bring-to-courts-notice-judgments-which-do-not-support-their-case-supreme-court-534469
-
-[Read on Telegram](https://t.me/livelawindia/111090)
-
----
-### 2026-05-16T14:36:06+00:00
-Patna HC Flags 'Human Rights Violation' In Keeping Recovered Mental Health Patients In Hospitals Due To Lack Of Half-Way Homes
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-flags-human-rights-violation-recovered-mental-health-patients-hospitals-534483
-
-[Read on Telegram](https://t.me/livelawindia/111091)
-
----
-### 2026-05-16T15:28:36+00:00
-From Litigants Asking 'File Kahan Hai' To 'Link Bhej Dijiye': CJI Surya Kant On Digital Transformation Of Judiciary
-https://www.livelaw.in/top-stories/from-litigants-asking-file-kahan-hai-to-link-bhej-dijiye-cji-surya-kant-on-digital-transformation-of-judiciary-534484
-
-[Read on Telegram](https://t.me/livelawindia/111092)
-
----
-### 2026-05-17T02:06:00+00:00
-BREAKING| President Promulgates Ordinance To Raise Number Of Supreme Court Judges By 4
-https://www.livelaw.in/top-stories/president-promulgates-ordinance-to-raise-number-of-supreme-court-judges-by-4-534492
-
-[Read on Telegram](https://t.me/livelawindia/111093)
-
----
-### 2026-05-17T03:09:50+00:00
-Delhi High Court Issues Notice On PIL Challenging Consumer Protection Act Provisions Relating To  'Substantial Question Of Law'
-https://www.livelaw.in/consumer-cases/delhi-high-court-issues-notice-on-pil-challenging-consumer-protection-act-provisions-relating-to-substantial-question-of-law-534495
-
-[Read on Telegram](https://t.me/livelawindia/111094)
-
----
-### 2026-05-17T03:32:40+00:00
-Supreme Court Quarterly Digest 2026 - Labour Law
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-labour-law-quarterly-digest-2026-534490
-
-[Read on Telegram](https://t.me/livelawindia/111095)
-
----
-### 2026-05-17T03:42:20+00:00
-Supreme Court Weekly Round-up: May 4, 2026 To May 10, 2026
-https://www.livelaw.in/round-ups/weekly/supreme-court-weekly-round-up-may-4-2026-to-may-10-2026-534470
-
-[Read on Telegram](https://t.me/livelawindia/111096)
-
----
-### 2026-05-17T04:11:50+00:00
-Associate Legal Counsel Vacancy At Ather Energy Private Limited [Apply Now]
-https://www.livelaw.in/job-updates/associate-legal-counsel-vacancy-at-ather-energy-private-limited-534501
-
-[Read on Telegram](https://t.me/livelawindia/111097)
-
----
-### 2026-05-17T04:17:50+00:00
-Consultant Vacancy At Ernst & Young [Gurugram; Apply Now]
-https://www.livelaw.in/job-updates/consultant-vacancy-at-ernst-young-gurugram-534502
-
-[Read on Telegram](https://t.me/livelawindia/111098)
-
----
-### 2026-05-17T04:24:30+00:00
-Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-534503
-
-[Read on Telegram](https://t.me/livelawindia/111099)
-
----
 ### 2026-05-17T04:26:30+00:00
 Senior Legal Counsel Vacancy At Ather Energy Private Limited [Apply Now]
 https://www.livelaw.in/job-updates/senior-legal-counsel-vacancy-at-ather-energy-private-limited-534504
@@ -142,5 +72,75 @@ Mahindra University, HNLU Sign MoU To Promote Legal Education & Interdisciplinar
 https://www.livelaw.in/lawschool/news/mahindra-university-hnlu-sign-mou-promote-legal-education-interdisciplinary-research-534508
 
 [Read on Telegram](https://t.me/livelawindia/111109)
+
+---
+### 2026-05-17T08:31:10+00:00
+Supreme Court Sets Aside Delhi HC Order For New Sewer Line Across AIIMS To Tackle Waterlogging In Green Park Extension Area
+https://www.livelaw.in/top-stories/supreme-court-sets-aside-delhi-hc-order-for-new-sewer-line-across-aiims-waterlogging-green-park-extension-not-for-court-to-devise-solution-534509
+
+[Read on Telegram](https://t.me/livelawindia/111110)
+
+---
+### 2026-05-17T11:32:20+00:00
+Lawyers, Police Clash In Lucknow Over Demolition Of 'Illegal' Advocate Chambers Following High Court Directions
+https://www.livelaw.in/news-updates/lawyers-police-clash-lucknow-demolition-illegal-advocate-chambers-allahabad-hc-534510
+
+[Read on Telegram](https://t.me/livelawindia/111111)
+
+---
+### 2026-05-17T11:32:40+00:00
+Supreme Court Quarterly Digest 2026 - Environmental Law
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-environmental-law-quarterly-digest-2026-534491
+
+[Read on Telegram](https://t.me/livelawindia/111112)
+
+---
+### 2026-05-17T12:50:01+00:00
+'Govt Servant Not Expected To Take Stand Against Govt' : Supreme Court Quashes Rs 25 Lakh Penalty On Officer Who Exectued Govt Order
+https://www.livelaw.in/supreme-court/govt-servant-not-expected-to-take-stand-against-govt-supreme-court-quashes-rs-25-lakh-penalty-on-officer-who-exectued-govt-order-534511
+
+[Read on Telegram](https://t.me/livelawindia/111113)
+
+---
+### 2026-05-17T12:51:41+00:00
+2026 LiveLaw (SC) 508 | C. POORNA CHANDRAN VERSUS THE GOVERNMENT OF TAMIL NADU & ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-508-c-poorna-chandran-versus-the-government-of-tamil-nadu-ors-534512
+
+[Read on Telegram](https://t.me/livelawindia/111114)
+
+---
+### 2026-05-17T13:06:21+00:00
+Order XV Rule 5 CPC | Tenant's Defence Cannot Be Struck Off Without Examining If Default In Rent Deposit Was Wilful : Supreme Court
+https://www.livelaw.in/supreme-court/order-xv-rule-5-cpc-tenants-defence-cannot-be-struck-off-without-examining-if-default-in-rent-deposit-was-wilful-supreme-court-534514
+
+[Read on Telegram](https://t.me/livelawindia/111115)
+
+---
+### 2026-05-17T13:07:41+00:00
+2026 LiveLaw (SC) 509 | DHARMENDRA KALRA & ORS. VERSUS KULVINDER SINGH BHATIA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-509-dharmendra-kalra-ors-versus-kulvinder-singh-bhatia-534515
+
+[Read on Telegram](https://t.me/livelawindia/111116)
+
+---
+### 2026-05-17T13:10:01+00:00
+2026 LiveLaw (SC) 510 | VIDYAWANT v. THE STATE OF MAHARASHTRA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-510-vidyawant-v-the-state-of-maharashtra-534516
+
+[Read on Telegram](https://t.me/livelawindia/111117)
+
+---
+### 2026-05-17T13:13:21+00:00
+2026 LiveLaw (SC) 511 | ALL INDIA INSTITUTE OF MEDICAL SCIENCES v. SHAILENDRA BHATNAGAR
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-511-all-india-institute-of-medical-sciences-v-shailendra-bhatnagar-534517
+
+[Read on Telegram](https://t.me/livelawindia/111118)
+
+---
+### 2026-05-17T13:27:01+00:00
+'Aata-Satta' Marriages Morally & Legally Bankrupt, Girl Child Made Bargaining Instrument : Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-calls-aatasatta-marriages-morally-legally-bankrupt-534518
+
+[Read on Telegram](https://t.me/livelawindia/111119)
 
 ---
