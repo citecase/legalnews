@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-17T07:32:41+00:00*
+*Last Updated: 2026-05-17T13:32:27+00:00*
+
+---
+
+### 2026-05-17T13:32:27+00:00
+Abuse Of Process Of Law: Rajasthan High Court Quashes "Rape Case" Against Husband
+https://www.verdictum.in/rajasthan-high-court/xxxx-v-state-of-rajasthan-criminal-miscellaneous-petition-4245-2021-1614143
+
+[Source Link](https://t.me/verdictumlegalupdates/27039)
+
+---
+
+### 2026-05-17T12:02:26+00:00
+Scope of Interference Wider In Writ Petitions Against Arbitration Awards Under National Highways Act: Punjab & Haryana High Court
+https://www.verdictum.in/punjab-and-haryana-high-court/kuldeep-singh-v-union-of-india-cwp-38070-of-2025-1614146
+
+[Source Link](https://t.me/verdictumlegalupdates/27038)
+
+---
+
+### 2026-05-17T10:32:44+00:00
+Requisites Of Good & Sufficient Pleading; Distinction Between Pleading & Proof: Supreme Court Explains
+https://www.verdictum.in/supreme-court/marietta-d-silva-v-rudolf-clothan-lacerda-2026-insc-496-pleading-proof-tests-satisfied-eviction-suits-1614142
+
+[Source Link](https://t.me/verdictumlegalupdates/27037)
+
+---
+
+### 2026-05-17T09:03:03+00:00
+Mischievous Attempt At Protracting Trial Court Proceedings Endlessly: Delhi High Court Imposes ₹50k Cost On Accused
+https://www.verdictum.in/delhi-high-court/azad-saifi-v-akhtar-ali-2026dhc4182-mischievous-attempt-protracting-trial-1614126
+
+[Source Link](https://t.me/verdictumlegalupdates/27036)
 
 ---
 
@@ -129,38 +161,6 @@ Attempted To Poison The Fountain Of Justice: Delhi High Court Initiates Criminal
 https://www.verdictum.in/delhi-high-court/central-bureau-of-investigation-v-kuldeep-singh-2026dhc4293-arvind-kejriwal-others-contempt-1614090
 
 [Source Link](https://t.me/verdictumlegalupdates/27020)
-
----
-
-### 2026-05-16T06:02:02+00:00
-Criminal Law Can’t Be Used to Further Cause In Purely Civil Dispute: Supreme Court Quashes FIR In Land Dispute
-https://www.verdictum.in/supreme-court/sunisha-anand-v-state-of-haryana-2026-insc-494-criminal-law-civil-dispute-fir-1614088
-
-[Source Link](https://t.me/verdictumlegalupdates/27019)
-
----
-
-### 2026-05-16T05:13:00+00:00
-Can’t Sanction Marriage-Like Union Barred By Law: Allahabad High Court Refuses Protection To Live-In Relationship Involving Male Partner Aged Below 21
-https://www.verdictum.in/allahabad-high-court/sp-anr-v-state-of-up-ors-2025ahc100410-live-in-relationship-1614081
-
-[Source Link](https://t.me/verdictumlegalupdates/27018)
-
----
-
-### 2026-05-16T04:32:49+00:00
-High Court Cannot Interfere With Section 33C(2) ID Act Computation Order By Effectively Nullifying Unchallenged Labour Award: Patna High Court
-https://www.verdictum.in/patna-high-court/siya-singh-v-the-state-of-bihar-ors-2026phhclpa827-2025-labour-award-1614051
-
-[Source Link](https://t.me/verdictumlegalupdates/27017)
-
----
-
-### 2026-05-15T15:53:05+00:00
-Condition Applies Uniformly To All Bidders: Karnataka High Court Upholds Tender Clause Restricting EVM Recycling Bids To Karnataka-Based Facilities
-https://www.verdictum.in/karnataka-high-court/evergreen-recyclekaro-india-limited-v-bharat-electronics-limited-anr-wp-no-935-of-2026-neutral-citation-2026khc24464-1614056
-
-[Source Link](https://t.me/verdictumlegalupdates/27016)
 
 ---
 
