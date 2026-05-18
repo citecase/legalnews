@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-17T05:34:40+00:00*
+*Last Updated: 2026-05-17T06:27:30+00:00*
 
 ---
 
-### 2026-05-17T05:34:40+00:00
-When Finality Fails: Res Judicata After Setting Aside Of Awards
-https://www.livelaw.in/articles/res-judicata-setting-aside-arbitral-awards-arbitration-act-analysis-534505
-
-[Read on Telegram](https://t.me/livelawindia/111102)
-
----
-### 2026-05-17T05:38:20+00:00
-2026 LiveLaw (SC) 506 | B.S. LALITHA AND OTHERS VERSUS BHUVANESH AND OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-506-bs-lalitha-and-others-versus-bhuvanesh-and-others-534497
-
-[Read on Telegram](https://t.me/livelawindia/111103)
-
----
-### 2026-05-17T06:02:50+00:00
-Karnataka State Consumer Commission Dismisses Compensation Plea Over Demolished Property, Says Civil Dispute Not Maintainable Under Consumer Law
-https://www.livelaw.in/consumer-cases/karnataka-state-consumer-commission-dismisses-compensation-plea-over-demolished-property-says-civil-dispute-not-maintainable-under-consumer-law-534498
-
-[Read on Telegram](https://t.me/livelawindia/111104)
-
----
-### 2026-05-17T06:17:50+00:00
-Even 'Loan' Can Qualify As 'Deposit' Under MPID Act; Private Individual Can Be 'Financial Establishment' : Supreme Court
-https://www.livelaw.in/supreme-court/even-loan-can-qualify-as-deposit-under-mpid-act-private-individual-can-be-financial-establishment-supreme-court-534499
-
-[Read on Telegram](https://t.me/livelawindia/111105)
-
----
 ### 2026-05-17T06:27:30+00:00
 2026 LiveLaw (SC) 507 | ALKA AGRAWAL AND OTHERS VERSUS STATE OF MAHARASHTRA AND OTHERS
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-507-alka-agrawal-and-others-versus-state-of-maharashtra-and-others-534500
@@ -142,5 +114,33 @@ Delhi Judge Shifted After Video Of Heated Exchange With Lawyer Goes Viral
 https://www.livelaw.in/news-updates/delhi-judge-shifted-after-video-of-heated-exchange-with-lawyer-goes-viral-534528
 
 [Read on Telegram](https://t.me/livelawindia/111121)
+
+---
+### 2026-05-18T03:35:02+00:00
+Project Associate II Vacancy At Indian Institute Of Technology, Gandhinagar
+https://www.livelaw.in/job-updates/project-associate-ii-vacancy-at-indian-institute-of-technology-gandhinagar-534545
+
+[Read on Telegram](https://t.me/livelawindia/111122)
+
+---
+### 2026-05-18T03:39:02+00:00
+Consultant (Legal) Vacancy At EdCIL India Limited
+https://www.livelaw.in/job-updates/consultant-legal-vacancy-at-edcil-india-limited-534546
+
+[Read on Telegram](https://t.me/livelawindia/111123)
+
+---
+### 2026-05-18T03:40:42+00:00
+Special Public Prosecutor Vacancy At Central Bureau Of Investigation Anti-Corruption Branch, Dhanbad
+https://www.livelaw.in/job-updates/special-public-prosecutor-vacancy-at-central-bureau-of-investigation-anti-corruption-branch-dhanbad-534547
+
+[Read on Telegram](https://t.me/livelawindia/111124)
+
+---
+### 2026-05-18T03:45:22+00:00
+CBI Law Internship Scheme-2026 [Apply Now]
+https://www.livelaw.in/job-updates/cbi-law-internship-scheme-2026-534548
+
+[Read on Telegram](https://t.me/livelawindia/111125)
 
 ---
