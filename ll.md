@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-18T07:56:37+00:00*
+*Last Updated: 2026-05-18T12:32:31+00:00*
 
 ---
 
-### 2026-05-18T07:56:37+00:00
-Bail Is Rule, Jail Exception Even Under UAPA: Supreme Court
-https://www.livelaw.in/top-stories/bail-is-rule-jail-exception-even-under-uapa-supreme-court-534593
+### 2026-05-18T12:32:31+00:00
+Tenant Claiming Protection Under UP Rent Control Act Must Prove Applicability Of Statute: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-tenant-prove-applicability-up-urban-buildings-act-claim-protection-534625
 
-[Read on Telegram](https://t.me/livelawindia/111149)
-
----
-### 2026-05-18T08:02:37+00:00
-Rajasthan High Court Halts Construction, Mining In Jawai To Protect Leopard Habitat; Asks State To Consider Declaring Area As Sanctuary
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-halts-new-constructions-tourism-expansion-534573
-
-[Read on Telegram](https://t.me/livelawindia/111150)
+[Read on Telegram](https://t.me/livelawindia/111184)
 
 ---
-### 2026-05-18T08:09:21+00:00
-Judiciary Needs To Function Like Hospitals 24x7 To Deliver Immediate Justice To Common Citizens”: CJI Surya Kant
-https://www.livelaw.in/news-updates/judiciary-needs-to-function-like-hospitals-24x7-to-deliver-immediate-justice-to-common-citizens-cji-surya-kant-534594
+### 2026-05-18T12:43:31+00:00
+Defective Paint Supply: Baramulla Consumer Commission Holds Indigo Paints Liable
+https://www.livelaw.in/consumer-cases/district-consumer-commission-baramulla-indigo-paints-defective-products-534668
 
-[Read on Telegram](https://t.me/livelawindia/111151)
-
----
-### 2026-05-18T08:18:41+00:00
-Supreme Court Stays Counting In Delhi Bar Council Elections Till Delhi High Court's Decision On Alleged Irregularities
-https://www.livelaw.in/top-stories/supreme-court-stays-counting-in-delhi-bar-council-elections-till-delhi-high-courts-decision-on-alleged-irregularities-534595
-
-[Read on Telegram](https://t.me/livelawindia/111152)
+[Read on Telegram](https://t.me/livelawindia/111185)
 
 ---
-### 2026-05-18T08:22:01+00:00
-Supreme Court Quarterly Digest 2026 - Tax Law
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-quarterly-digest-2026-tax-laws-534596
+### 2026-05-18T12:47:11+00:00
+Kerala High Court Denies Bail To Astrologer Accused Of Sexually Assaulting Minor Girl On Pretext Of Conducting 'Exorcism'
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-astrologer-pocso-sexual-assault-exorcism-534663
 
-[Read on Telegram](https://t.me/livelawindia/111153)
-
----
-### 2026-05-18T08:33:02+00:00
-Karnataka High Court Weekly Round-Up: May 11 – May 17, 2026
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-round-up-2026-534562
-
-[Read on Telegram](https://t.me/livelawindia/111154)
+[Read on Telegram](https://t.me/livelawindia/111186)
 
 ---
-### 2026-05-18T08:36:22+00:00
-Supreme Court Grants Bail To Chhattisgarh's Ex-IAS Officer Anil Tuteja In Corruption Case Over DMF Scam
-https://www.livelaw.in/top-stories/supreme-court-grants-bail-to-chhattisgarh-ex-ias-officer-anil-tuteja-in-corruption-case-over-dmf-scam-534599
+### 2026-05-18T13:03:16+00:00
+“What After Us?”: Delhi HC Chief Justice Addresses Event On Future Of Adults With Autism & IDD
+https://www.livelaw.in/events/what-after-us-delhi-hc-chief-justice-addresses-event-on-future-of-adults-with-autism-idd-534673
 
-[Read on Telegram](https://t.me/livelawindia/111155)
-
----
-### 2026-05-18T08:43:22+00:00
-Senior Adv Jaju Babu Appointed As Kerala Advocate General; T Asaf Ali Director General Prosecution
-https://www.livelaw.in/high-court/kerala-high-court/senior-adv-jaju-babu-appointed-as-kerala-advocate-general-t-asaf-ali-director-general-prosecution-534601
-
-[Read on Telegram](https://t.me/livelawindia/111156)
+[Read on Telegram](https://t.me/livelawindia/111187)
 
 ---
-### 2026-05-18T09:03:12+00:00
-AP High Court Quashes Seizure Of Vehicle Allegedly Used For Transporting Drugs Over Non-Compliance Of Procedure Under NDPS Act
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-confiscation-vehicle-ndps-act-mandatory-procedure-534567
+### 2026-05-18T13:27:36+00:00
+'Why Take So Much Time?': Supreme Court Asks Maharashtra Govt To Expedite Handover Of 10 Acres For Bombay HC New Building
+https://www.livelaw.in/top-stories/supreme-court-bombay-high-court-new-building-additional-land-handed-over-court-calls-for-expeditious-handing-over-of-remaining-land-534676
 
-[Read on Telegram](https://t.me/livelawindia/111157)
-
----
-### 2026-05-18T09:08:55+00:00
-Supreme Court Dismisses Plea Against Slaughter Of Buffaloes Inside Gujarat Zoo To Feed Animals
-https://www.livelaw.in/top-stories/supreme-court-dismisses-plea-against-slaughter-of-buffaloes-inside-gujarat-zoo-to-feed-animals-534607
-
-[Read on Telegram](https://t.me/livelawindia/111158)
+[Read on Telegram](https://t.me/livelawindia/111188)
 
 ---
-### 2026-05-18T09:12:55+00:00
-No Constitutional Embargo: Allahabad HC Upholds Validity Of UP Law Providing Allowances, Benefits To Sitting & Ex-MLAs/MLCs
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-upholds-validity-up-law-allowances-benefits-sitting-ex-mlas-mlcs-534608
+### 2026-05-18T13:32:36+00:00
+Madras High Court Weekly Round-Up: May 11 to May 17, 2026
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-may-11-to-may-17-2026-534631
 
-[Read on Telegram](https://t.me/livelawindia/111159)
-
----
-### 2026-05-18T09:13:35+00:00
-Delhi High Court Grants Interim Bail To Jailed MP Engineer Rashid Following Father's Demise
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-grants-interim-bail-jailed-mp-engineer-rashid-fathers-demise-534609
-
-[Read on Telegram](https://t.me/livelawindia/111160)
+[Read on Telegram](https://t.me/livelawindia/111189)
 
 ---
-### 2026-05-18T09:15:15+00:00
-Gurugram Court Extends Punjab Minister Sanjeev Arora's Judicial Custody In ED Case Till June 01
-https://www.livelaw.in/news-updates/gurugram-court-allows-ed-plea-to-extend-punjab-ministers-judicial-custody-till-1-june-534610
+### 2026-05-18T13:35:56+00:00
+LiveLaw Daily | KA Najeeb| TMC's Jahangir Khan| Umar Khalid| Delhi Bar Council Elections| BCCI
+https://www.livelaw.in/podcast/livelaw-daily-livelaw-podcast-tmc-delhi-bar-council-delhi-high-court-supreme-court-umar-khalid-bcci-jahangir-khan-india-news-legal-news-breaking-534678
 
-[Read on Telegram](https://t.me/livelawindia/111161)
-
----
-### 2026-05-18T09:15:26+00:00
-High Court Registrar General Cannot Suo Motu Initiate Disciplinary Action Against Judicial Officer : Supreme Court
-https://www.livelaw.in/top-stories/high-court-registrar-general-cannot-suo-motu-initiate-disciplinary-action-against-judicial-officer-supreme-court-534611
-
-[Read on Telegram](https://t.me/livelawindia/111162)
+[Read on Telegram](https://t.me/livelawindia/111190)
 
 ---
-### 2026-05-18T09:24:15+00:00
-Umar Khalid's Release On Interim Bail May Have Implications On Public Order: Delhi Police Tells Court In Delhi Riots Case
-https://www.livelaw.in/news-updates/delhi-riots-umar-khalid-interim-bail-affect-public-order-delhi-police-claims-534614
+### 2026-05-18T13:46:26+00:00
+Sabarimala Gold Theft: Kerala High Court Grants SIT Two More Weeks To Complete Investigation
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sabarimala-gold-theft-534683
 
-[Read on Telegram](https://t.me/livelawindia/111163)
-
----
-### 2026-05-18T09:27:35+00:00
-Failure To Hold Joint Enquiry Under CRPF Rules Does Not By Itself Vitiate Disciplinary Proceedings: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-crpf-rules-1955-rule-27d-is-directory-confers-no-vested-right-to-joint-enquiry-failure-to-hold-common-proceedings-does-not-vitiate-departmental-enquiry-534523
-
-[Read on Telegram](https://t.me/livelawindia/111164)
+[Read on Telegram](https://t.me/livelawindia/111191)
 
 ---
-### 2026-05-18T09:39:55+00:00
-Transgender Persons Must Be Made Aware Of Fertility Preservation Options Before Gender Reassignment Surgery: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-transgenders-awareness-egg-sperm-preservation-before-sex-change-treatment-534616
+### 2026-05-18T14:01:26+00:00
+Twisha Sharma Dowry Death Case  : Bhopal Court Grants Anticipatory Bail To Ex-Judge; Denies Bail To Advocate-Husband
+https://www.livelaw.in/news-updates/bhopal-district-court-anticipatory-bail-retired-district-judge-giribala-singh-advocate-samarth-singh-dowry-harassment-case-534686
 
-[Read on Telegram](https://t.me/livelawindia/111165)
-
----
-### 2026-05-18T09:57:15+00:00
-Truthful Reporting Of FIR Not Defamation: Himachal Pradesh High Court Quashes Complaint Against Journalist
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-truthful-reporting-fir-defamation-534522
-
-[Read on Telegram](https://t.me/livelawindia/111166)
+[Read on Telegram](https://t.me/livelawindia/111192)
 
 ---
-### 2026-05-18T10:02:05+00:00
-BCCI Not A 'Public Authority', Not Subject To RTI Act: Central Information Commission
-https://www.livelaw.in/news-updates/bcci-not-a-public-authority-not-subject-to-rti-act-central-information-commission-534627
+### 2026-05-18T14:02:46+00:00
+LPG Distributors Don't Have Vested Legal Right Over Customer Base, Oil Companies Can Shift Consumers Between Distributors: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/lpg-distributors-legal-right-over-customer-base-kerala-high-court-534667
 
-[Read on Telegram](https://t.me/livelawindia/111167)
+[Read on Telegram](https://t.me/livelawindia/111193)
 
 ---
-### 2026-05-18T10:03:25+00:00
-Supreme Court Grants Bail To Man Accused Of Money Laundering  After Posing As PM's Aide
-https://www.livelaw.in/top-stories/supreme-court-grants-bail-to-man-accused-of-money-laundering-after-posing-as-pms-aide-534629
+### 2026-05-18T14:08:46+00:00
+2026 LiveLaw (SC) 512 | Syed Iftikhar Andrabi v. National Investigation Agency, Jammu
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-512-syed-iftikhar-andrabi-v-national-investigation-agency-jammu-534687
 
-[Read on Telegram](https://t.me/livelawindia/111168)
+[Read on Telegram](https://t.me/livelawindia/111194)
+
+---
+### 2026-05-18T14:17:46+00:00
+Final Decree Application Not Necessary When Preliminary Decree Specifies Option If Physical Partition Was Impractical : Supreme Court
+https://www.livelaw.in/supreme-court/final-decree-application-not-necessary-when-preliminary-decree-specifies-option-if-physical-partition-was-impractical-supreme-court-534690
+
+[Read on Telegram](https://t.me/livelawindia/111195)
+
+---
+### 2026-05-18T14:19:06+00:00
+2026 LiveLaw (SC) 513 | JENNIFER MESSIAS VERSUS LEONARD G LOBO
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-513-jennifer-messias-versus-leonard-g-lobo-534692
+
+[Read on Telegram](https://t.me/livelawindia/111196)
+
+---
+### 2026-05-18T14:29:26+00:00
+Res Judicata Principle Applies Also Between Two Stages Of Same Litigation : Supreme Court Explains 'Interlocutory Res Judicata'
+https://www.livelaw.in/supreme-court/res-judicata-principle-applies-also-between-two-stages-of-same-litigation-supreme-court-explains-interlocutory-res-judicata-534695
+
+[Read on Telegram](https://t.me/livelawindia/111197)
+
+---
+### 2026-05-18T14:32:16+00:00
+Political Opinion Can't Be Removed Merely Because It's Inconvenient: Madras HC Stays TN Police's Notice Blocking “X" Posts
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-x-url-block-order-stayed-political-opinion-inconvenient-534697
+
+[Read on Telegram](https://t.me/livelawindia/111198)
+
+---
+### 2026-05-18T14:32:27+00:00
+Kolkata Pride And Constitutional Crossroads: LGBTQ  Rights Amid Legislative Silence And A Changing Political Landscape
+https://www.livelaw.in/articles/kolkata-pride-constitutional-crossroads-lgbtq-rights-534670
+
+[Read on Telegram](https://t.me/livelawindia/111199)
+
+---
+### 2026-05-18T14:41:56+00:00
+High Court Can't Enhance Or Reduce Maintenance Amount In Revisional Jurisdiction; Remedy Lies U/S 146 BNSS: Allahabad HC
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-enhance-reduce-maintenance-amount-revisional-jurisdiction-146-bnss-127-crpc-534699
+
+[Read on Telegram](https://t.me/livelawindia/111200)
+
+---
+### 2026-05-18T15:17:56+00:00
+Appellate Court Must Examine Merits Of Conviction While Considering Bail; Cannot Merely Interpret S.430 BNSS As Directory: Uttarakhand HC
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-appellate-court-examine-conviction-merits-bail-application-534529
+
+[Read on Telegram](https://t.me/livelawindia/111201)
+
+---
+### 2026-05-18T15:32:46+00:00
+Supreme Court Issues Notice On PIL Seeking Directions To Delhi Govt For Regular Appointments To DERC
+https://www.livelaw.in/top-stories/supreme-court-energy-watchdog-pil-seeking-directions-to-delhi-government-for-regular-appointments-to-derc-notice-issued-534701
+
+[Read on Telegram](https://t.me/livelawindia/111202)
+
+---
+### 2026-05-18T15:33:06+00:00
+MP High Court Refuses To Quash FIR Against Journalist For Allegedly Extorting Money From Doctor
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-dismisses-petition-of-journalist-to-quash-extortion-fir-filed-by-private-doctor-534681
+
+[Read on Telegram](https://t.me/livelawindia/111203)
 
 ---
