@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-18T10:32:19+00:00*
+*Last Updated: 2026-05-18T16:02:45+00:00*
+
+---
+
+### 2026-05-18T16:02:45+00:00
+Serious Fraud Investigation Office (SFIO) Invites Applications For The Posts Of Junior Consultants & Young Professionals
+https://www.verdictum.in/job-updates/serious-fraud-investigation-office-1614213
+
+[Source Link](https://t.me/verdictumlegalupdates/27064)
+
+---
+
+### 2026-05-18T15:32:24+00:00
+High Court Can Initiate Disciplinary Inquiry Against Judicial Officer Without Formal Complaint Or Affidavit: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/xyz-v-high-court-of-gujarat-through-registrar-general-2026gujhc32318-db-1614212
+
+[Source Link](https://t.me/verdictumlegalupdates/27063)
+
+---
+
+### 2026-05-18T15:03:03+00:00
+Suppression Of First Dying Declaration Contradicting Later Statements Fatal: Andhra Pradesh High Court Acquits Man Accused Of Setting Wife On Fire
+https://www.verdictum.in/andhra-pradesh-high-court/dudekula-somaiah-v-state-of-andhra-pradesh-aphc010632442009-dying-declaration-1614211
+
+[Source Link](https://t.me/verdictumlegalupdates/27062)
+
+---
+
+### 2026-05-18T14:32:41+00:00
+Private Expert Reports Can Be Relied Upon In Commercial Suits; Court-Appointed Expert Not Mandatory: Andhra Pradesh High Court
+https://www.verdictum.in/andhra-pradesh-high-court/isgec-heavy-engineering-limited-v-ms-fe-engineering-crp-nos1209-private-expert-reports-can-be-relied-1614210
+
+[Source Link](https://t.me/verdictumlegalupdates/27061)
+
+---
+
+### 2026-05-18T14:02:20+00:00
+Similarity Between "Reasons To Believe" & "Grounds Of Arrest" Does Not By Itself Show Non-Application Of Mind Under PMLA: Telangana High Court
+https://www.verdictum.in/telangana-high-court/dr-pachipala-namratha-athaluri-namratha-v-union-of-india-pmla-arrest-1614209
+
+[Source Link](https://t.me/verdictumlegalupdates/27060)
+
+---
+
+### 2026-05-18T13:33:08+00:00
+Weekly Overview| Supreme Court Judgments: May 11-May 15, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-may-11-may-15-2026-1614208
+
+[Source Link](https://t.me/verdictumlegalupdates/27059)
+
+---
+
+### 2026-05-18T13:02:47+00:00
+Supreme Court Restrains Authorities From Cutting Trees In Eco-Sensitive Zone Of Kasu Brahmananda Reddy National Park
+https://www.verdictum.in/supreme-court/supreme-court-restrains-authorities-from-cutting-trees-in-eco-sensitive-zone-of-kasu-brahmananda-reddy-national-park-1614207
+
+[Source Link](https://t.me/verdictumlegalupdates/27058)
+
+---
+
+### 2026-05-18T12:32:45+00:00
+Supreme Court Orders Setting Up Of Two Election Tribunals To Adjudicate Issues Of State Bar Council Elections
+https://www.verdictum.in/supreme-court/supreme-court-orders-setting-up-of-two-election-tribunals-to-adjudicate-issues-of-state-bar-council-elections-1614205
+
+[Source Link](https://t.me/verdictumlegalupdates/27057)
+
+---
+
+### 2026-05-18T12:02:44+00:00
+Relocated Private Medical Students Cannot Claim "Windfall" Of Government Fees: Supreme Court Directs Recovery Of Fee Deficit
+https://www.verdictum.in/supreme-court/soumya-ranjan-panda-v-subhalaxmi-dash-2026-insc-488-relocated-medical-students-private-rate-liability-1614206
+
+[Source Link](https://t.me/verdictumlegalupdates/27056)
+
+---
+
+### 2026-05-18T11:32:22+00:00
+Supreme Court Refuses To Interfere With High Court’s Order Dismissing PIL Against Slaughter Of Buffaloes In Gujarat’s Zoos
+https://www.verdictum.in/supreme-court/supreme-court-refuses-to-interfere-with-high-courts-order-dismissing-pil-against-slaughter-of-buffaloes-in-gujarats-zoos-1614204
+
+[Source Link](https://t.me/verdictumlegalupdates/27055)
+
+---
+
+### 2026-05-18T11:03:21+00:00
+Retrospective Reduction Of Promotion Age Limit Violates Legitimate Expectation Doctrine: Bombay High Court Strikes Down ICDS Rule 7(1)(c)
+https://www.verdictum.in/bombay-high-court/chaya-tulshiram-kharat-ors-v-state-of-maharashtra-ors-2026bhc-nag7324-db-1614203
+
+[Source Link](https://t.me/verdictumlegalupdates/27054)
 
 ---
 
@@ -73,94 +161,6 @@ https://www.verdictum.in/supreme-court/supreme-court-stays-counting-of-votes-for
 https://www.verdictum.in/allahabad-high-court/mohd-azad-ali-and-2-others-v-state-of-up-2026ahc113234-bail-consuming-non-veg-food-1614181
 
 [Source Link](https://t.me/verdictumlegalupdates/27045)
-
----
-
-### 2026-05-18T05:53:37+00:00
-We Have Serious Reservations On Gulfisha Fatima Judgment: Supreme Court Grants Bail To Narco-Terror Accused After 5 Years In Custody
-https://www.verdictum.in/supreme-court/gulfisha-fatima-judgment-grants-bail-in-narco-terror-accused-jammu-kashmir-high-court-1614180
-
-[Source Link](https://t.me/verdictumlegalupdates/27044)
-
----
-
-### 2026-05-18T05:42:35+00:00
-Section 482 CrPC Inherent Powers Can Override Functus Officio Bar to Accept Post-Revision Offence Compounding: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/2026chcas359-goutam-saha-ors-v-state-of-west-bengal-1614177
-
-[Source Link](https://t.me/verdictumlegalupdates/27043)
-
----
-
-### 2026-05-18T05:01:54+00:00
-“Administrative Lawlessness”: Jharkhand High Court Orders Enquiry Into State’s Failure To Conduct Judicial Probes In 262 Custodial Death Cases
-https://www.verdictum.in/jharkhand-high-court/md-mumtaz-ansari-v-state-of-jharkhand-ors-2026jhhc14765-db-probe-1614176
-
-[Source Link](https://t.me/verdictumlegalupdates/27042)
-
----
-
-### 2026-05-18T04:33:02+00:00
-Administration Of Tramadol Raises Serious Doubt About Dying Declaration: Bombay High Court Acquits Man Accused Of Wife's Murder
-https://www.verdictum.in/bombay-high-court/piraji-madhav-kumbhargave-v-state-of-maharashtra-2026bhc-aug20714-db-1614147
-
-[Source Link](https://t.me/verdictumlegalupdates/27041)
-
----
-
-### 2026-05-17T15:02:29+00:00
-Bombay High Court Invites Applications For The Post Of Judicial Research Assistant
-https://www.verdictum.in/job-updates/bombay-high-court-1614119
-
-[Source Link](https://t.me/verdictumlegalupdates/27040)
-
----
-
-### 2026-05-17T13:32:27+00:00
-Abuse Of Process Of Law: Rajasthan High Court Quashes "Rape Case" Against Husband
-https://www.verdictum.in/rajasthan-high-court/xxxx-v-state-of-rajasthan-criminal-miscellaneous-petition-4245-2021-1614143
-
-[Source Link](https://t.me/verdictumlegalupdates/27039)
-
----
-
-### 2026-05-17T12:02:26+00:00
-Scope of Interference Wider In Writ Petitions Against Arbitration Awards Under National Highways Act: Punjab & Haryana High Court
-https://www.verdictum.in/punjab-and-haryana-high-court/kuldeep-singh-v-union-of-india-cwp-38070-of-2025-1614146
-
-[Source Link](https://t.me/verdictumlegalupdates/27038)
-
----
-
-### 2026-05-17T10:32:44+00:00
-Requisites Of Good & Sufficient Pleading; Distinction Between Pleading & Proof: Supreme Court Explains
-https://www.verdictum.in/supreme-court/marietta-d-silva-v-rudolf-clothan-lacerda-2026-insc-496-pleading-proof-tests-satisfied-eviction-suits-1614142
-
-[Source Link](https://t.me/verdictumlegalupdates/27037)
-
----
-
-### 2026-05-17T09:03:03+00:00
-Mischievous Attempt At Protracting Trial Court Proceedings Endlessly: Delhi High Court Imposes ₹50k Cost On Accused
-https://www.verdictum.in/delhi-high-court/azad-saifi-v-akhtar-ali-2026dhc4182-mischievous-attempt-protracting-trial-1614126
-
-[Source Link](https://t.me/verdictumlegalupdates/27036)
-
----
-
-### 2026-05-17T07:32:41+00:00
-Didn’t Obtain Benefit Of Wrongly Claimed Scheduled Tribe Status: Supreme Court Quashes FIR Against Retired Employee
-https://www.verdictum.in/supreme-court/madan-gopal-v-the-state-of-up-2026-insc-501benefit-wrong-scheduled-tribe-status-fir-1614124
-
-[Source Link](https://t.me/verdictumlegalupdates/27035)
-
----
-
-### 2026-05-17T06:02:39+00:00
-Disputes Relating To ESI Contribution & Liability Should Be Decided By Employees’ Insurance Court & Not In Writ Jurisdiction: Gauhati High Court
-https://www.verdictum.in/guwahati-high-court/ms-hotel-brideway-anr-v-union-of-india-ors-2026gau-as6561-esi-act-1614117
-
-[Source Link](https://t.me/verdictumlegalupdates/27034)
 
 ---
 
