@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-18T12:32:31+00:00*
+*Last Updated: 2026-05-18T13:03:16+00:00*
 
 ---
 
-### 2026-05-18T12:32:31+00:00
-Tenant Claiming Protection Under UP Rent Control Act Must Prove Applicability Of Statute: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-tenant-prove-applicability-up-urban-buildings-act-claim-protection-534625
-
-[Read on Telegram](https://t.me/livelawindia/111184)
-
----
-### 2026-05-18T12:43:31+00:00
-Defective Paint Supply: Baramulla Consumer Commission Holds Indigo Paints Liable
-https://www.livelaw.in/consumer-cases/district-consumer-commission-baramulla-indigo-paints-defective-products-534668
-
-[Read on Telegram](https://t.me/livelawindia/111185)
-
----
-### 2026-05-18T12:47:11+00:00
-Kerala High Court Denies Bail To Astrologer Accused Of Sexually Assaulting Minor Girl On Pretext Of Conducting 'Exorcism'
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-astrologer-pocso-sexual-assault-exorcism-534663
-
-[Read on Telegram](https://t.me/livelawindia/111186)
-
----
 ### 2026-05-18T13:03:16+00:00
 “What After Us?”: Delhi HC Chief Justice Addresses Event On Future Of Adults With Autism & IDD
 https://www.livelaw.in/events/what-after-us-delhi-hc-chief-justice-addresses-event-on-future-of-adults-with-autism-idd-534673
@@ -142,5 +121,26 @@ MP High Court Refuses To Quash FIR Against Journalist For Allegedly Extorting Mo
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-dismisses-petition-of-journalist-to-quash-extortion-fir-filed-by-private-doctor-534681
 
 [Read on Telegram](https://t.me/livelawindia/111203)
+
+---
+### 2026-05-18T16:20:06+00:00
+Supreme Court Constitutes 2 New Election Tribunals For Speedy Resolution Of State Bar Council Election Disputes
+https://www.livelaw.in/top-stories/supreme-court-constitutes-two-new-election-tribunals-for-speedy-adjudication-of-state-bar-council-election-disputes-534704
+
+[Read on Telegram](https://t.me/livelawindia/111204)
+
+---
+### 2026-05-18T17:12:27+00:00
+Supreme Court Daily Round-Up : May 18, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-18-2026-534700
+
+[Read on Telegram](https://t.me/livelawindia/111205)
+
+---
+### 2026-05-18T19:15:08+00:00
+TMC MP Abhishek Banerjee Moves Calcutta High Court To Quash FIR Over Allegedly Objectionable Remarks At Poll Rally
+https://www.livelaw.in/high-court/calcutta-high-court/tmc-mp-abhishek-banerjee-moves-calcutta-high-court-to-quash-fir-over-allegedly-objectionable-remarks-at-poll-rally-534707
+
+[Read on Telegram](https://t.me/livelawindia/111206)
 
 ---
