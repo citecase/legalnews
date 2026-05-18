@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-17T15:02:29+00:00*
+*Last Updated: 2026-05-18T04:33:02+00:00*
+
+---
+
+### 2026-05-18T04:33:02+00:00
+Administration Of Tramadol Raises Serious Doubt About Dying Declaration: Bombay High Court Acquits Man Accused Of Wife's Murder
+https://www.verdictum.in/bombay-high-court/piraji-madhav-kumbhargave-v-state-of-maharashtra-2026bhc-aug20714-db-1614147
+
+[Source Link](https://t.me/verdictumlegalupdates/27041)
 
 ---
 
@@ -153,14 +161,6 @@ Reliance’s Contractual Natural Gas Movement Via Common Carrier Is Inter-State 
 https://www.verdictum.in/supreme-court/state-of-uttar-pradesh-v-reliance-industries-limited-2026-insc-491-up-cannot-levy-vat-contractual-gas-movement-1614101
 
 [Source Link](https://t.me/verdictumlegalupdates/27022)
-
----
-
-### 2026-05-16T07:33:05+00:00
-Mediclaim Amount Cannot Be Deducted From Motor Accident Compensation Under MV Act: Supreme Court
-https://www.verdictum.in/supreme-court/new-india-assurance-company-limited-v-dolly-satish-gandhi-anr-2026-insc-498-1614098
-
-[Source Link](https://t.me/verdictumlegalupdates/27021)
 
 ---
 
