@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-19T09:34:26+00:00*
+*Last Updated: 2026-05-19T15:33:08+00:00*
+
+---
+
+### 2026-05-19T15:33:08+00:00
+Can’t Have Multiple FIRs In Respect Of Same Transaction: Supreme Court Allows Clubbing Of FIRs In Gurugram Real Estate Fraud Case
+https://www.verdictum.in/supreme-court/amit-katyal-v-state-of-haryana-2026-insc-509-multiple-firs-clubbing-firs-real-estate-fraud-1614283
+
+[Source Link](https://t.me/verdictumlegalupdates/27086)
+
+---
+
+### 2026-05-19T15:03:07+00:00
+Law Student Not Attending Any Class In A Semester Can’t Claim Progression To Next Semester: Delhi High Court
+https://www.verdictum.in/delhi-high-court/aman-bansal-v-university-of-delhi-2026dhc4398-db-law-students-semester-progression-1614282
+
+[Source Link](https://t.me/verdictumlegalupdates/27085)
+
+---
+
+### 2026-05-19T14:32:35+00:00
+Writ Jurisdiction Can't Be Converted Into Forum For Pursuing Personal Grudges Under Guise Of Legal Proceedings:  J&K and Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/hajira-v-jammu-kashmir-special-tribunal-clarificatory-corrigendum-tribunal-original-order-1614271
+
+[Source Link](https://t.me/verdictumlegalupdates/27084)
+
+---
+
+### 2026-05-19T14:03:13+00:00
+Bank Cannot Freeze Account On Its Own By Invoking PMLA Without Order From Competent Authority: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/ms-s-a-enterprises-v-reserve-bank-of-india-ors-2026ahc-lko30793-db-1614277
+
+[Source Link](https://t.me/verdictumlegalupdates/27083)
+
+---
+
+### 2026-05-19T13:32:52+00:00
+Defendant Father Cannot Seek DNA Test In Partition Suit To Disprove Plaintiff Daughter’s Paternity: Andhra Pradesh High Court
+https://www.verdictum.in/andhra-pradesh-high-court/saradaga-narasayya-reddy-v-dingu-kanaka-mahalakshmi-aphc010204952026-1614276
+
+[Source Link](https://t.me/verdictumlegalupdates/27082)
+
+---
+
+### 2026-05-19T13:02:50+00:00
+Did Supreme Court Misinterpret UAPA "Conviction Rate" Statistics To Mean Possibility Of Acquittal?
+https://www.verdictum.in/columns/supreme-court-uapa-conviction-rate-acquittal-possibility-1614281
+
+[Source Link](https://t.me/verdictumlegalupdates/27081)
+
+---
+
+### 2026-05-19T12:32:49+00:00
+“Very Sensitive Legislative Policy Issue”: Supreme Court Says While Hearing Plea Challenging Provisions Of SHANTI Act
+https://www.verdictum.in/supreme-court/very-sensitive-legislative-policy-issue-supreme-court-says-while-hearing-plea-challenging-provisions-of-shanti-act-1614273
+
+[Source Link](https://t.me/verdictumlegalupdates/27080)
+
+---
+
+### 2026-05-19T12:02:47+00:00
+Fundamental Right To Live With Dignity Includes Citizens' Freedom To Move Freely Without Apprehension From Dog Bites In Public Places: Supreme Court
+https://www.verdictum.in/supreme-court/2026-insc-506-in-re-city-hounded-by-strays-kids-pay-price-vs-the-state-of-andhra-pradesh-1614275
+
+[Source Link](https://t.me/verdictumlegalupdates/27079)
+
+---
+
+### 2026-05-19T11:32:26+00:00
+Allegation Of Impotency Raised In Matrimonial Dispute Is Not Defamation: Allahabad High Court Quashes Summoning Order Against Wife
+https://www.verdictum.in/allahabad-high-court/a-v-state-of-up-and-2-others-2026ahc112914-impotency-defamation-summoning-order-1614270
+
+[Source Link](https://t.me/verdictumlegalupdates/27078)
+
+---
+
+### 2026-05-19T11:02:49+00:00
+Biological Sex & Self-Perceived Gender Identity Distinct For Reproductive Rights: Kerala High Court Permits Transman's Egg Cryopreservation
+https://www.verdictum.in/kerala-high-court/hari-devageeth-v-union-of-india-2026ker33711-transman-oocyte-cryopreservation-art-1614269
+
+[Source Link](https://t.me/verdictumlegalupdates/27077)
 
 ---
 
@@ -81,86 +161,6 @@ Mere Fact That Nikahnama Appears Suspicious Won't Deprive Couple Of Their Fundam
 https://www.verdictum.in/allahabad-high-court/smt-sidra-parveen-v-state-of-up-2026ahc11927-nikahnama-couple-article-21-1614237
 
 [Source Link](https://t.me/verdictumlegalupdates/27067)
-
----
-
-### 2026-05-19T05:02:40+00:00
-SDM Alone Can Pass Order For Death Certificate Issuance Under Registration Of Birth & Death Act If Registration Is Delayed: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/naval-kishore-srivastava-v-state-of-up-2026ahc112844-db-sdm-death-certificate-1614231
-
-[Source Link](https://t.me/verdictumlegalupdates/27066)
-
----
-
-### 2026-05-19T04:33:09+00:00
-Teachers/Staff Cannot Be Blamed For Systemic Flaws When They Had No Role To Play: Bombay High Court Quashes Vague Approval Cancellation Orders
-https://www.verdictum.in/bombay-high-court/badri-kondu-chavhan-v-the-state-of-maharashtra-2026bhc-nag6455-db-teachersstaff-vague-approval-cancellation-orders-1614214
-
-[Source Link](https://t.me/verdictumlegalupdates/27065)
-
----
-
-### 2026-05-18T16:02:45+00:00
-Serious Fraud Investigation Office (SFIO) Invites Applications For The Posts Of Junior Consultants & Young Professionals
-https://www.verdictum.in/job-updates/serious-fraud-investigation-office-1614213
-
-[Source Link](https://t.me/verdictumlegalupdates/27064)
-
----
-
-### 2026-05-18T15:32:24+00:00
-High Court Can Initiate Disciplinary Inquiry Against Judicial Officer Without Formal Complaint Or Affidavit: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/xyz-v-high-court-of-gujarat-through-registrar-general-2026gujhc32318-db-1614212
-
-[Source Link](https://t.me/verdictumlegalupdates/27063)
-
----
-
-### 2026-05-18T15:03:03+00:00
-Suppression Of First Dying Declaration Contradicting Later Statements Fatal: Andhra Pradesh High Court Acquits Man Accused Of Setting Wife On Fire
-https://www.verdictum.in/andhra-pradesh-high-court/dudekula-somaiah-v-state-of-andhra-pradesh-aphc010632442009-dying-declaration-1614211
-
-[Source Link](https://t.me/verdictumlegalupdates/27062)
-
----
-
-### 2026-05-18T14:32:41+00:00
-Private Expert Reports Can Be Relied Upon In Commercial Suits; Court-Appointed Expert Not Mandatory: Andhra Pradesh High Court
-https://www.verdictum.in/andhra-pradesh-high-court/isgec-heavy-engineering-limited-v-ms-fe-engineering-crp-nos1209-private-expert-reports-can-be-relied-1614210
-
-[Source Link](https://t.me/verdictumlegalupdates/27061)
-
----
-
-### 2026-05-18T14:02:20+00:00
-Similarity Between "Reasons To Believe" & "Grounds Of Arrest" Does Not By Itself Show Non-Application Of Mind Under PMLA: Telangana High Court
-https://www.verdictum.in/telangana-high-court/dr-pachipala-namratha-athaluri-namratha-v-union-of-india-pmla-arrest-1614209
-
-[Source Link](https://t.me/verdictumlegalupdates/27060)
-
----
-
-### 2026-05-18T13:33:08+00:00
-Weekly Overview| Supreme Court Judgments: May 11-May 15, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-may-11-may-15-2026-1614208
-
-[Source Link](https://t.me/verdictumlegalupdates/27059)
-
----
-
-### 2026-05-18T13:02:47+00:00
-Supreme Court Restrains Authorities From Cutting Trees In Eco-Sensitive Zone Of Kasu Brahmananda Reddy National Park
-https://www.verdictum.in/supreme-court/supreme-court-restrains-authorities-from-cutting-trees-in-eco-sensitive-zone-of-kasu-brahmananda-reddy-national-park-1614207
-
-[Source Link](https://t.me/verdictumlegalupdates/27058)
-
----
-
-### 2026-05-18T12:32:45+00:00
-Supreme Court Orders Setting Up Of Two Election Tribunals To Adjudicate Issues Of State Bar Council Elections
-https://www.verdictum.in/supreme-court/supreme-court-orders-setting-up-of-two-election-tribunals-to-adjudicate-issues-of-state-bar-council-elections-1614205
-
-[Source Link](https://t.me/verdictumlegalupdates/27057)
 
 ---
 
