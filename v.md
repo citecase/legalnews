@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-18T16:02:45+00:00*
+*Last Updated: 2026-05-19T04:33:09+00:00*
+
+---
+
+### 2026-05-19T04:33:09+00:00
+Teachers/Staff Cannot Be Blamed For Systemic Flaws When They Had No Role To Play: Bombay High Court Quashes Vague Approval Cancellation Orders
+https://www.verdictum.in/bombay-high-court/badri-kondu-chavhan-v-the-state-of-maharashtra-2026bhc-nag6455-db-teachersstaff-vague-approval-cancellation-orders-1614214
+
+[Source Link](https://t.me/verdictumlegalupdates/27065)
 
 ---
 
@@ -153,14 +161,6 @@ Supreme Court Stays Counting Of Votes For Bar Council Of Delhi Elections After T
 https://www.verdictum.in/supreme-court/supreme-court-stays-counting-of-votes-for-bar-council-of-delhi-elections-after-tampering-allegations-asks-high-court-to-conduct-day-to-day-hearing-1614186
 
 [Source Link](https://t.me/verdictumlegalupdates/27046)
-
----
-
-### 2026-05-18T06:31:38+00:00
-"Expressed Their Regrets": Allahabad High Court Grants Bail To Men Accused Of Consuming Non-Veg Food On Ganga River During Iftar
-https://www.verdictum.in/allahabad-high-court/mohd-azad-ali-and-2-others-v-state-of-up-2026ahc113234-bail-consuming-non-veg-food-1614181
-
-[Source Link](https://t.me/verdictumlegalupdates/27045)
 
 ---
 
