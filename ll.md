@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-18T13:03:16+00:00*
+*Last Updated: 2026-05-18T14:01:26+00:00*
 
 ---
 
-### 2026-05-18T13:03:16+00:00
-“What After Us?”: Delhi HC Chief Justice Addresses Event On Future Of Adults With Autism & IDD
-https://www.livelaw.in/events/what-after-us-delhi-hc-chief-justice-addresses-event-on-future-of-adults-with-autism-idd-534673
-
-[Read on Telegram](https://t.me/livelawindia/111187)
-
----
-### 2026-05-18T13:27:36+00:00
-'Why Take So Much Time?': Supreme Court Asks Maharashtra Govt To Expedite Handover Of 10 Acres For Bombay HC New Building
-https://www.livelaw.in/top-stories/supreme-court-bombay-high-court-new-building-additional-land-handed-over-court-calls-for-expeditious-handing-over-of-remaining-land-534676
-
-[Read on Telegram](https://t.me/livelawindia/111188)
-
----
-### 2026-05-18T13:32:36+00:00
-Madras High Court Weekly Round-Up: May 11 to May 17, 2026
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-may-11-to-may-17-2026-534631
-
-[Read on Telegram](https://t.me/livelawindia/111189)
-
----
-### 2026-05-18T13:35:56+00:00
-LiveLaw Daily | KA Najeeb| TMC's Jahangir Khan| Umar Khalid| Delhi Bar Council Elections| BCCI
-https://www.livelaw.in/podcast/livelaw-daily-livelaw-podcast-tmc-delhi-bar-council-delhi-high-court-supreme-court-umar-khalid-bcci-jahangir-khan-india-news-legal-news-breaking-534678
-
-[Read on Telegram](https://t.me/livelawindia/111190)
-
----
-### 2026-05-18T13:46:26+00:00
-Sabarimala Gold Theft: Kerala High Court Grants SIT Two More Weeks To Complete Investigation
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sabarimala-gold-theft-534683
-
-[Read on Telegram](https://t.me/livelawindia/111191)
-
----
 ### 2026-05-18T14:01:26+00:00
 Twisha Sharma Dowry Death Case  : Bhopal Court Grants Anticipatory Bail To Ex-Judge; Denies Bail To Advocate-Husband
 https://www.livelaw.in/news-updates/bhopal-district-court-anticipatory-bail-retired-district-judge-giribala-singh-advocate-samarth-singh-dowry-harassment-case-534686
@@ -142,5 +107,40 @@ TMC MP Abhishek Banerjee Moves Calcutta High Court To Quash FIR Over Allegedly O
 https://www.livelaw.in/high-court/calcutta-high-court/tmc-mp-abhishek-banerjee-moves-calcutta-high-court-to-quash-fir-over-allegedly-objectionable-remarks-at-poll-rally-534707
 
 [Read on Telegram](https://t.me/livelawindia/111206)
+
+---
+### 2026-05-19T01:08:50+00:00
+Inquiry Committee Submits Report To Lok Sabha Speaker In Justice Yashwant Varma Matter
+https://www.livelaw.in/top-stories/inquiry-committee-submits-report-to-lok-sabha-speaker-in-justice-yashwant-varma-matter-534708
+
+[Read on Telegram](https://t.me/livelawindia/111207)
+
+---
+### 2026-05-19T01:20:30+00:00
+Stray Dog Case Judgment Pronouncement : Live Updates From Supreme Court
+https://www.livelaw.in/top-stories/stray-dog-case-judgment-pronouncement-live-updates-from-supreme-court-534709
+
+[Read on Telegram](https://t.me/livelawindia/111208)
+
+---
+### 2026-05-19T03:32:19+00:00
+Supreme Court Quarterly Digest 2026 - Property Law
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-quarterly-digest-2026-property-law-534602
+
+[Read on Telegram](https://t.me/livelawindia/111209)
+
+---
+### 2026-05-19T03:32:39+00:00
+Death Of 11 Girls After Staircase Collapsed In Hostel: Gujarat High Court Discharges Engineers Of Culpable Homicide, Adds Negligence Charge
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-discharge-engineers-culpable-homicide-staircase-collapse-11-girls-534618
+
+[Read on Telegram](https://t.me/livelawindia/111210)
+
+---
+### 2026-05-19T03:33:39+00:00
+Law Clerk Vacancy At Gauhati High Court At Guwahati
+https://www.livelaw.in/job-updates/law-clerk-vacancy-at-gauhati-high-court-at-guwahati-534710
+
+[Read on Telegram](https://t.me/livelawindia/111211)
 
 ---
