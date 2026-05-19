@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-19T04:33:09+00:00*
+*Last Updated: 2026-05-19T09:34:26+00:00*
+
+---
+
+### 2026-05-19T09:34:26+00:00
+Supreme Court Collegium Recommends Judicial Officers, Advocates To Be Appointed As Judges Of Madras High Court
+https://www.verdictum.in/supreme-court/supreme-court-collegium-recommends-judicial-officers-advocates-to-be-appointed-as-judges-of-madras-high-court-1614264
+
+[Source Link](https://t.me/verdictumlegalupdates/27076)
+
+---
+
+### 2026-05-19T09:32:30+00:00
+Supreme Court Asks Centre To Examine Cyber Security Consultant’s Plea For Protection, Recovery & Destruction Of Stolen Personal Data Of Indian Citizens
+https://www.verdictum.in/supreme-court/cyber-security-consultant-plea-destruction-stolen-personal-data-indian-citizens-1614263
+
+[Source Link](https://t.me/verdictumlegalupdates/27075)
+
+---
+
+### 2026-05-19T09:02:45+00:00
+Supreme Court Asks SpiceJet To Approach Delhi HC To Seek Extension To Deposit Rs 144 Crore In Dispute With Kalanithi Maran & Kal Airways
+https://www.verdictum.in/supreme-court/supreme-court-asks-spicejet-to-approach-delhi-hc-to-seek-extension-to-deposit-rs-144-crore-in-dispute-with-kalanithi-maran-kal-airways-1614261
+
+[Source Link](https://t.me/verdictumlegalupdates/27074)
+
+---
+
+### 2026-05-19T08:32:23+00:00
+Sympathy Cannot Override Constitutional Mandate: Delhi High Court Rejects Delayed Compassionate Appointment Plea
+https://www.verdictum.in/delhi-high-court/ms-bses-yamuna-power-ltd-v-vinod-kumar-2026dhc4405-alternate-mode-of-public-employment-compassionate-appointment-1614259
+
+[Source Link](https://t.me/verdictumlegalupdates/27073)
+
+---
+
+### 2026-05-19T08:03:10+00:00
+Bar Council Can Deny Enrolment As Advocate To Applicant “Entitled” To Practice Another Profession: Kerala High Court
+https://www.verdictum.in/kerala-high-court/tm-manju-v-bar-council-of-kerala-ors-2026ker33781-bar-council-advocate-1614256
+
+[Source Link](https://t.me/verdictumlegalupdates/27072)
+
+---
+
+### 2026-05-19T07:32:28+00:00
+Political Criticism Cannot Be Silenced Through Omnibus Orders: Madras High Court Stays Notice Blocking VHP’s Post on X
+https://www.verdictum.in/madras-high-court/p-chockalingam-v-additional-chief-secretary-ors-tamil-nadu-north-vhp-1614254
+
+[Source Link](https://t.me/verdictumlegalupdates/27071)
+
+---
+
+### 2026-05-19T07:02:26+00:00
+No Legal Bar U/S 475 BNSS On Considering Premature Release Of Convicts After 14 Years Actual Imprisonment: Patna High Court
+https://www.verdictum.in/patna-high-court/jagarnath-thakur-v-the-state-of-bihar-premature-release-convict-14-years-1614250
+
+[Source Link](https://t.me/verdictumlegalupdates/27070)
+
+---
+
+### 2026-05-19T06:33:04+00:00
+Employee Has No Vested Right To Compel Government To Fill Vacancies Through Promotion After Cadre Restructuring: Supreme Court
+https://www.verdictum.in/supreme-court/state-of-odisha-ors-v-sreepati-ranjan-dash-2026-insc-505-promotion-rights-1614248
+
+[Source Link](https://t.me/verdictumlegalupdates/27069)
+
+---
+
+### 2026-05-19T05:56:03+00:00
+Breaking: Supreme Court Directs High Courts To Monitor Pan-India Stray Animal Crisis, Permits Euthanasia For Rabid Dogs
+https://www.verdictum.in/supreme-court/stray-animal-crisis-rabid-dogs-euthanasia-pan-india-1614243
+
+[Source Link](https://t.me/verdictumlegalupdates/27068)
+
+---
+
+### 2026-05-19T05:32:41+00:00
+Mere Fact That Nikahnama Appears Suspicious Won't Deprive Couple Of Their Fundamental Right Under Article 21: Allahabad High Court Grants Protection
+https://www.verdictum.in/allahabad-high-court/smt-sidra-parveen-v-state-of-up-2026ahc11927-nikahnama-couple-article-21-1614237
+
+[Source Link](https://t.me/verdictumlegalupdates/27067)
+
+---
+
+### 2026-05-19T05:02:40+00:00
+SDM Alone Can Pass Order For Death Certificate Issuance Under Registration Of Birth & Death Act If Registration Is Delayed: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/naval-kishore-srivastava-v-state-of-up-2026ahc112844-db-sdm-death-certificate-1614231
+
+[Source Link](https://t.me/verdictumlegalupdates/27066)
 
 ---
 
@@ -73,94 +161,6 @@ Supreme Court Orders Setting Up Of Two Election Tribunals To Adjudicate Issues O
 https://www.verdictum.in/supreme-court/supreme-court-orders-setting-up-of-two-election-tribunals-to-adjudicate-issues-of-state-bar-council-elections-1614205
 
 [Source Link](https://t.me/verdictumlegalupdates/27057)
-
----
-
-### 2026-05-18T12:02:44+00:00
-Relocated Private Medical Students Cannot Claim "Windfall" Of Government Fees: Supreme Court Directs Recovery Of Fee Deficit
-https://www.verdictum.in/supreme-court/soumya-ranjan-panda-v-subhalaxmi-dash-2026-insc-488-relocated-medical-students-private-rate-liability-1614206
-
-[Source Link](https://t.me/verdictumlegalupdates/27056)
-
----
-
-### 2026-05-18T11:32:22+00:00
-Supreme Court Refuses To Interfere With High Court’s Order Dismissing PIL Against Slaughter Of Buffaloes In Gujarat’s Zoos
-https://www.verdictum.in/supreme-court/supreme-court-refuses-to-interfere-with-high-courts-order-dismissing-pil-against-slaughter-of-buffaloes-in-gujarats-zoos-1614204
-
-[Source Link](https://t.me/verdictumlegalupdates/27055)
-
----
-
-### 2026-05-18T11:03:21+00:00
-Retrospective Reduction Of Promotion Age Limit Violates Legitimate Expectation Doctrine: Bombay High Court Strikes Down ICDS Rule 7(1)(c)
-https://www.verdictum.in/bombay-high-court/chaya-tulshiram-kharat-ors-v-state-of-maharashtra-ors-2026bhc-nag7324-db-1614203
-
-[Source Link](https://t.me/verdictumlegalupdates/27054)
-
----
-
-### 2026-05-18T10:32:19+00:00
-Second Application Under Order VII Rule 11 CPC Barred By Res Judicata If Earlier Plea Decided & Attained Finality: Supreme Court
-https://www.verdictum.in/supreme-court/bs-lalitha-v-bhuvanesh-2026-insc-499-second-application-under-order-vii-rule-11-cpc-1614202
-
-[Source Link](https://t.me/verdictumlegalupdates/27053)
-
----
-
-### 2026-05-18T10:03:18+00:00
-Supreme Court Grants Bail To Man Accused Of Extortion By Impersonating As A Close Aide Of Prime Minister Narender Modi
-https://www.verdictum.in/supreme-court/supreme-court-grants-bail-to-man-accused-of-extortion-by-impersonating-as-a-close-aide-of-prime-minister-narender-modi-1614199
-
-[Source Link](https://t.me/verdictumlegalupdates/27052)
-
----
-
-### 2026-05-18T09:32:57+00:00
-Supreme Court Grants Bail To Retired IAS Officer Anil Tuteja In Chhattisgarh DMF Scam After Prolonged Custody
-https://www.verdictum.in/supreme-court/bail-retired-ias-officer-anil-tuteja-chhattisgarh-dmf-scam-1614200
-
-[Source Link](https://t.me/verdictumlegalupdates/27051)
-
----
-
-### 2026-05-18T09:03:25+00:00
-J&K And Ladakh High Court Dismisses Plea Challenging Continuation of Public Safety Act After Reorganisation Of State Into UT
-https://www.verdictum.in/jammu-ladakh-high-court/tanveer-ahmad-mir-v-union-territory-of-jk-2026jklhc-sr1587-jk-psa-1614198
-
-[Source Link](https://t.me/verdictumlegalupdates/27050)
-
----
-
-### 2026-05-18T08:32:44+00:00
-Section 6(5) Hindu Succession Act Doesn't Create Jurisdictional Bar To Institution Of Partition Suit: Supreme Court
-https://www.verdictum.in/supreme-court/bs-lalitha-v-bhuvanesh-2026-insc-499-partition-claims-us-65-hindu-succession-act-1614196
-
-[Source Link](https://t.me/verdictumlegalupdates/27049)
-
----
-
-### 2026-05-18T08:02:42+00:00
-A Daughter Is Not Security For Another Son’s Marriage; Practice Of Atta-Satta Involving Minors Is Familial Extortion Disguised As Custom: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/kb-v-sk-2026rj-jd16834-db-atta-satta-child-marriage-muklawa-hindu-marriage-act-1614191
-
-[Source Link](https://t.me/verdictumlegalupdates/27048)
-
----
-
-### 2026-05-18T07:33:21+00:00
-Supreme Court Refuses To Entertain PIL Seeking Constitution Of Committee To Review Wages Of Priests & Temple Staff
-https://www.verdictum.in/supreme-court/supreme-court-refuses-to-entertain-pil-seeking-constitution-of-committee-to-review-wages-of-priests-temple-staff-1614189
-
-[Source Link](https://t.me/verdictumlegalupdates/27047)
-
----
-
-### 2026-05-18T07:02:39+00:00
-Supreme Court Stays Counting Of Votes For Bar Council Of Delhi Elections After Tampering Allegations, Asks High Court To Conduct Day-to-Day Hearing
-https://www.verdictum.in/supreme-court/supreme-court-stays-counting-of-votes-for-bar-council-of-delhi-elections-after-tampering-allegations-asks-high-court-to-conduct-day-to-day-hearing-1614186
-
-[Source Link](https://t.me/verdictumlegalupdates/27046)
 
 ---
 
