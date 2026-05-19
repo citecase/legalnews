@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-19T15:33:08+00:00*
+*Last Updated: 2026-05-19T16:02:29+00:00*
+
+---
+
+### 2026-05-19T16:02:29+00:00
+Legal Officer Vacancy At District Collector's Office, Nashik
+https://www.verdictum.in/job-updates/district-collectors-office-1614278
+
+[Source Link](https://t.me/verdictumlegalupdates/27087)
 
 ---
 
@@ -153,14 +161,6 @@ Breaking: Supreme Court Directs High Courts To Monitor Pan-India Stray Animal Cr
 https://www.verdictum.in/supreme-court/stray-animal-crisis-rabid-dogs-euthanasia-pan-india-1614243
 
 [Source Link](https://t.me/verdictumlegalupdates/27068)
-
----
-
-### 2026-05-19T05:32:41+00:00
-Mere Fact That Nikahnama Appears Suspicious Won't Deprive Couple Of Their Fundamental Right Under Article 21: Allahabad High Court Grants Protection
-https://www.verdictum.in/allahabad-high-court/smt-sidra-parveen-v-state-of-up-2026ahc11927-nikahnama-couple-article-21-1614237
-
-[Source Link](https://t.me/verdictumlegalupdates/27067)
 
 ---
 
