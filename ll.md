@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-18T14:01:26+00:00*
+*Last Updated: 2026-05-19T07:36:33+00:00*
 
 ---
 
-### 2026-05-18T14:01:26+00:00
-Twisha Sharma Dowry Death Case  : Bhopal Court Grants Anticipatory Bail To Ex-Judge; Denies Bail To Advocate-Husband
-https://www.livelaw.in/news-updates/bhopal-district-court-anticipatory-bail-retired-district-judge-giribala-singh-advocate-samarth-singh-dowry-harassment-case-534686
+### 2026-05-19T07:36:33+00:00
+Calcutta HC Declines Urgent Relief To RG Kar Victim's Neighbour Over Alleged Vandalism At His House After Poll Results
+https://www.livelaw.in/high-court/calcutta-high-court/rg-kar-victims-neighbour-moves-calcutta-high-court-over-alleged-vandalism-at-his-house-after-election-results-534767
 
-[Read on Telegram](https://t.me/livelawindia/111192)
-
----
-### 2026-05-18T14:02:46+00:00
-LPG Distributors Don't Have Vested Legal Right Over Customer Base, Oil Companies Can Shift Consumers Between Distributors: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/lpg-distributors-legal-right-over-customer-base-kerala-high-court-534667
-
-[Read on Telegram](https://t.me/livelawindia/111193)
+[Read on Telegram](https://t.me/livelawindia/111241)
 
 ---
-### 2026-05-18T14:08:46+00:00
-2026 LiveLaw (SC) 512 | Syed Iftikhar Andrabi v. National Investigation Agency, Jammu
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-512-syed-iftikhar-andrabi-v-national-investigation-agency-jammu-534687
+### 2026-05-19T07:38:13+00:00
+Ganga Boat Iftar Row | Allahabad High Court Grants Bail To Remaining 6 Accused
+https://www.livelaw.in/high-court/allahabad-high-court/varanasi-ganga-boat-iftar-row-allahabad-high-court-grants-bail-remaining-accused-534768
 
-[Read on Telegram](https://t.me/livelawindia/111194)
-
----
-### 2026-05-18T14:17:46+00:00
-Final Decree Application Not Necessary When Preliminary Decree Specifies Option If Physical Partition Was Impractical : Supreme Court
-https://www.livelaw.in/supreme-court/final-decree-application-not-necessary-when-preliminary-decree-specifies-option-if-physical-partition-was-impractical-supreme-court-534690
-
-[Read on Telegram](https://t.me/livelawindia/111195)
+[Read on Telegram](https://t.me/livelawindia/111242)
 
 ---
-### 2026-05-18T14:19:06+00:00
-2026 LiveLaw (SC) 513 | JENNIFER MESSIAS VERSUS LEONARD G LOBO
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-513-jennifer-messias-versus-leonard-g-lobo-534692
+### 2026-05-19T07:50:23+00:00
+Govt Servant Has No Vested Right To Seek Promotion As Per Old Rules Merely Because Vacancies Arose Earlier: Supreme Court
+https://www.livelaw.in/supreme-court/govt-servant-has-no-vested-right-to-seek-promotion-as-per-old-rules-merely-because-vacancies-arose-earlier-supreme-court-534770
 
-[Read on Telegram](https://t.me/livelawindia/111196)
-
----
-### 2026-05-18T14:29:26+00:00
-Res Judicata Principle Applies Also Between Two Stages Of Same Litigation : Supreme Court Explains 'Interlocutory Res Judicata'
-https://www.livelaw.in/supreme-court/res-judicata-principle-applies-also-between-two-stages-of-same-litigation-supreme-court-explains-interlocutory-res-judicata-534695
-
-[Read on Telegram](https://t.me/livelawindia/111197)
+[Read on Telegram](https://t.me/livelawindia/111243)
 
 ---
-### 2026-05-18T14:32:16+00:00
-Political Opinion Can't Be Removed Merely Because It's Inconvenient: Madras HC Stays TN Police's Notice Blocking “X" Posts
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-x-url-block-order-stayed-political-opinion-inconvenient-534697
+### 2026-05-19T07:52:15+00:00
+2026 LiveLaw (SC) 514 | STATE OF ODISHA & ORS. VERSUS SREEPATI RANJAN DASH
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-514-state-of-odisha-ors-versus-sreepati-ranjan-dash-534772
 
-[Read on Telegram](https://t.me/livelawindia/111198)
-
----
-### 2026-05-18T14:32:27+00:00
-Kolkata Pride And Constitutional Crossroads: LGBTQ  Rights Amid Legislative Silence And A Changing Political Landscape
-https://www.livelaw.in/articles/kolkata-pride-constitutional-crossroads-lgbtq-rights-534670
-
-[Read on Telegram](https://t.me/livelawindia/111199)
+[Read on Telegram](https://t.me/livelawindia/111244)
 
 ---
-### 2026-05-18T14:41:56+00:00
-High Court Can't Enhance Or Reduce Maintenance Amount In Revisional Jurisdiction; Remedy Lies U/S 146 BNSS: Allahabad HC
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-enhance-reduce-maintenance-amount-revisional-jurisdiction-146-bnss-127-crpc-534699
+### 2026-05-19T07:52:25+00:00
+LawStrings Pickleball Premier League Season 2 Concludes In Delhi; Pahwa Panthers Win Gold Cup
+https://www.livelaw.in/law-firms/events/lawstrings-pickleball-premier-league-season-2-concludes-in-delhi-pahwa-panthers-win-gold-cup-534773
 
-[Read on Telegram](https://t.me/livelawindia/111200)
-
----
-### 2026-05-18T15:17:56+00:00
-Appellate Court Must Examine Merits Of Conviction While Considering Bail; Cannot Merely Interpret S.430 BNSS As Directory: Uttarakhand HC
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-appellate-court-examine-conviction-merits-bail-application-534529
-
-[Read on Telegram](https://t.me/livelawindia/111201)
+[Read on Telegram](https://t.me/livelawindia/111245)
 
 ---
-### 2026-05-18T15:32:46+00:00
-Supreme Court Issues Notice On PIL Seeking Directions To Delhi Govt For Regular Appointments To DERC
-https://www.livelaw.in/top-stories/supreme-court-energy-watchdog-pil-seeking-directions-to-delhi-government-for-regular-appointments-to-derc-notice-issued-534701
+### 2026-05-19T08:01:45+00:00
+Doctor Can't Enrol As Advocate Unless Registration As Medical Practitioner Is Cancelled : Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/registered-medical-practitioner-enrol-advocate-cancelled-kerala-high-court-534774
 
-[Read on Telegram](https://t.me/livelawindia/111202)
-
----
-### 2026-05-18T15:33:06+00:00
-MP High Court Refuses To Quash FIR Against Journalist For Allegedly Extorting Money From Doctor
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-dismisses-petition-of-journalist-to-quash-extortion-fir-filed-by-private-doctor-534681
-
-[Read on Telegram](https://t.me/livelawindia/111203)
+[Read on Telegram](https://t.me/livelawindia/111246)
 
 ---
-### 2026-05-18T16:20:06+00:00
-Supreme Court Constitutes 2 New Election Tribunals For Speedy Resolution Of State Bar Council Election Disputes
-https://www.livelaw.in/top-stories/supreme-court-constitutes-two-new-election-tribunals-for-speedy-adjudication-of-state-bar-council-election-disputes-534704
+### 2026-05-19T08:02:45+00:00
+Delay Of 502 Days Remained “Unexplained”: J&K&L High Court Rejects Review Plea Against Judicial Officer's Termination
+https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-refuses-to-condone-502-day-delay-dismisses-ex-judicial-officers-review-plea-terminated-for-securing-appointment-on-fabricated-rba-certificate-534722
 
-[Read on Telegram](https://t.me/livelawindia/111204)
-
----
-### 2026-05-18T17:12:27+00:00
-Supreme Court Daily Round-Up : May 18, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-18-2026-534700
-
-[Read on Telegram](https://t.me/livelawindia/111205)
+[Read on Telegram](https://t.me/livelawindia/111247)
 
 ---
-### 2026-05-18T19:15:08+00:00
-TMC MP Abhishek Banerjee Moves Calcutta High Court To Quash FIR Over Allegedly Objectionable Remarks At Poll Rally
-https://www.livelaw.in/high-court/calcutta-high-court/tmc-mp-abhishek-banerjee-moves-calcutta-high-court-to-quash-fir-over-allegedly-objectionable-remarks-at-poll-rally-534707
+### 2026-05-19T08:17:26+00:00
+DNA Test Cannot Be Sought To Deny Daughter's Paternity In Partition Suit; Other Evidence Must Be Led: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-refuses-dna-test-partition-suit-paternity-disproved-independent-evidence-534771
 
-[Read on Telegram](https://t.me/livelawindia/111206)
-
----
-### 2026-05-19T01:08:50+00:00
-Inquiry Committee Submits Report To Lok Sabha Speaker In Justice Yashwant Varma Matter
-https://www.livelaw.in/top-stories/inquiry-committee-submits-report-to-lok-sabha-speaker-in-justice-yashwant-varma-matter-534708
-
-[Read on Telegram](https://t.me/livelawindia/111207)
+[Read on Telegram](https://t.me/livelawindia/111248)
 
 ---
-### 2026-05-19T01:20:30+00:00
-Stray Dog Case Judgment Pronouncement : Live Updates From Supreme Court
-https://www.livelaw.in/top-stories/stray-dog-case-judgment-pronouncement-live-updates-from-supreme-court-534709
+### 2026-05-19T08:21:25+00:00
+Drafting Law To Ban Sale & Use Of Lethal 'Chinese Manjha', Compensate Victims: UP Govt Informs Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-up-lethal-manjha-prohibition-act-victim-compensation-534778
 
-[Read on Telegram](https://t.me/livelawindia/111208)
-
----
-### 2026-05-19T03:32:19+00:00
-Supreme Court Quarterly Digest 2026 - Property Law
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-quarterly-digest-2026-property-law-534602
-
-[Read on Telegram](https://t.me/livelawindia/111209)
+[Read on Telegram](https://t.me/livelawindia/111249)
 
 ---
-### 2026-05-19T03:32:39+00:00
-Death Of 11 Girls After Staircase Collapsed In Hostel: Gujarat High Court Discharges Engineers Of Culpable Homicide, Adds Negligence Charge
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-discharge-engineers-culpable-homicide-staircase-collapse-11-girls-534618
+### 2026-05-19T08:32:45+00:00
+Magistrate Becomes 'Functus Officio' After Order On Final Report, Can't Pass Separate Order On Protest Petition: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-magistrate-functus-officio-separate-order-protest-petition-534750
 
-[Read on Telegram](https://t.me/livelawindia/111210)
+[Read on Telegram](https://t.me/livelawindia/111250)
 
 ---
-### 2026-05-19T03:33:39+00:00
-Law Clerk Vacancy At Gauhati High Court At Guwahati
-https://www.livelaw.in/job-updates/law-clerk-vacancy-at-gauhati-high-court-at-guwahati-534710
+### 2026-05-19T08:42:25+00:00
+Gujarat Court Recognises iCloud Data As Inheritable Property, Directs Apple To Help Daughter Recover Dead Father's Locked iPhone Contents
+https://www.livelaw.in/news-updates/gujarat-civil-court-icloud-data-digital-asset-estate-indian-succession-act-534785
 
-[Read on Telegram](https://t.me/livelawindia/111211)
+[Read on Telegram](https://t.me/livelawindia/111251)
+
+---
+### 2026-05-19T08:47:45+00:00
+'Direct Evidence Of Adultery Extremely Difficult': Madras High Court Grants Divorce Citing Wife's Close Proximity With Another Man
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-divorce-adultery-evidence-sexual-intercourse-impossible-534769
+
+[Read on Telegram](https://t.me/livelawindia/111252)
+
+---
+### 2026-05-19T08:50:55+00:00
+'Everyone Has Right To Protest Peacefully, But Don't Come On Streets & Cause Problems For Others' : CJI Surya Kant
+https://www.livelaw.in/top-stories/supreme-court-navi-mumbai-international-airport-naming-plea-seeking-timebound-decision-on-maharashtra-govt-disposed-of-534786
+
+[Read on Telegram](https://t.me/livelawindia/111253)
+
+---
+### 2026-05-19T09:09:55+00:00
+Viral Kumbh Mela Star Approaches MP High Court Alleging Forged Birth Certificate Used To Criminalise Her Interfaith Marriage
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-viral-kumbh-mela-star-restoration-of-birth-certificate-534787
+
+[Read on Telegram](https://t.me/livelawindia/111254)
+
+---
+### 2026-05-19T09:13:35+00:00
+Supreme Court Refuses To Interfere With Delhi HC Order In 'MARC' Vs 'MARQ By Flipkart' Trademark Dispute; Grants 8 Weeks To Exhaust Inventory
+https://www.livelaw.in/law-firms/litigation/supreme-court-refuses-interfere-delhi-hc-order-marc-vs-marq-flipkart-trademark-dispute-534788
+
+[Read on Telegram](https://t.me/livelawindia/111255)
+
+---
+### 2026-05-19T09:21:15+00:00
+RG Kar Case: Calcutta High Court To Examine Scope For Further Probe On Victim's Family's Plea
+https://www.livelaw.in/high-court/calcutta-high-court/rg-kar-case-calcutta-high-court-to-examine-scope-for-further-probe-on-victims-familys-plea-534790
+
+[Read on Telegram](https://t.me/livelawindia/111256)
+
+---
+### 2026-05-19T09:32:19+00:00
+J&K Govt Can Appoint Interim Managing Director Of Cooperative Bank Under Supervisory Powers: High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-government-can-make-interim-arrangement-for-managing-director-of-cooperative-bank-in-exercise-of-supervisory-powers-under-section-32a-534525
+
+[Read on Telegram](https://t.me/livelawindia/111257)
+
+---
+### 2026-05-19T09:32:59+00:00
+Competition Commission Of India's Enforcement Zeal And Cost Of Overlooking Due Process
+https://www.livelaw.in/articles/competition-commission-of-india-enforcement-zeal-nclat-534779
+
+[Read on Telegram](https://t.me/livelawindia/111258)
+
+---
+### 2026-05-19T09:36:39+00:00
+Supreme Court Collegium Recommends Names Of 9 Judicial Officers, 10 Advocates As Judges Of Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/supreme-court-collegium-madras-high-court-9-judicial-officers-10-advocates-534792
+
+[Read on Telegram](https://t.me/livelawindia/111259)
+
+---
+### 2026-05-19T09:47:19+00:00
+Govt Cannot Interfere In Management Of Private Temples: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-directs-status-check-of-temples-across-state-534789
+
+[Read on Telegram](https://t.me/livelawindia/111260)
 
 ---
