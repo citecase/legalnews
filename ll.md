@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-20T12:15:00+00:00*
+*Last Updated: 2026-05-20T13:07:21+00:00*
 
 ---
 
-### 2026-05-20T12:15:00+00:00
-Former Gujarat High Court Judge Justice Biren Vaishnav Takes Oath As State's Lokayukta
-https://www.livelaw.in/news-updates/retired-gujarat-high-court-judge-justice-biren-vaishnav-takes-oath-as-states-lokayukta-534986
-
-[Read on Telegram](https://t.me/livelawindia/111360)
-
----
-### 2026-05-20T12:22:20+00:00
-Telangana High Court Weekly Round-Up : May 11 – May 17, 2026
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-weekly-roundup-2026-534985
-
-[Read on Telegram](https://t.me/livelawindia/111361)
-
----
-### 2026-05-20T12:38:30+00:00
-“Good Decision”: Madras High Court Dismisses Plea Challenging TN Govt's Move To Close 717 TASMAC Shops
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-717-liquor-shop-close-govt-decision-challenge-dismissed-534990
-
-[Read on Telegram](https://t.me/livelawindia/111362)
-
----
-### 2026-05-20T12:52:11+00:00
-UAPA Accused Not Entitled To Repeated Interim Bail For Family Rituals Without Cogent Reasons: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-nia-accused-plea-second-interim-bail-534994
-
-[Read on Telegram](https://t.me/livelawindia/111363)
-
----
-### 2026-05-20T13:07:11+00:00
-"Met On Tinder, Stayed In Relationship For Over 3 Years": Calcutta High Court Acquits Army Officer In False Promise To Marry Case
-https://www.livelaw.in/high-court/calcutta-high-court/met-on-tinder-stayed-in-relationship-for-over-3-years-calcutta-high-court-acquits-army-officer-in-false-promise-to-marry-case-534997
-
-[Read on Telegram](https://t.me/livelawindia/111364)
-
----
 ### 2026-05-20T13:07:21+00:00
 'Involves Larger Public Interest': Gujarat High Court Denies Anticipatory Bail To Weapons Clerk Accused Of Issuing Bogus Arms Licenses
 https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-denies-anticipatory-bail-to-weapons-clerk-accused-of-issuing-bogus-arms-licenses-534995
@@ -142,5 +107,40 @@ Plea In Supreme Court Seeks CBI Into Alleged Corruption Behind TVK's Trust Vote 
 https://www.livelaw.in/top-stories/plea-in-supreme-court-seeks-cbi-into-alleged-corruption-behind-tvks-trust-vote-win-in-tn-assembly-535019
 
 [Read on Telegram](https://t.me/livelawindia/111379)
+
+---
+### 2026-05-20T16:11:06+00:00
+Delhi High Court Issues Summons To Meta, Others In Satirist Sanjay Rajoura's Defamation Suit Over 'Malicious' Posts
+https://www.livelaw.in/high-court/delhi-high-court/delhi-hc-summons-meta-reddit-satirist-sanjay-rajoura-defamation-suit-535025
+
+[Read on Telegram](https://t.me/livelawindia/111380)
+
+---
+### 2026-05-20T16:53:56+00:00
+Rajiv K. Luthra – NLUJ Accessibility Lab Inaugurated At National Law University, Jodhpur
+https://www.livelaw.in/lawschool/news/national-law-university-jodhpur-accessibility-lab-inaugurated-disability-rights-535028
+
+[Read on Telegram](https://t.me/livelawindia/111381)
+
+---
+### 2026-05-20T16:56:16+00:00
+'Karauli Baba' Remarks Row | Allahabad HC Extends Interim Protection Granted To YouTuber In UP Police FIR Till July 14
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-interim-protection-arrest-youtuber-gautam-khattar-july-14-535029
+
+[Read on Telegram](https://t.me/livelawindia/111382)
+
+---
+### 2026-05-20T17:33:56+00:00
+Patna HC Restores 'Y ' Security To MP Pappu Yadav, Says Downgrading Order Was 'Arbitrary And Whimsical'
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-restores-ysecurity-mp-pappu-yadav-535041
+
+[Read on Telegram](https://t.me/livelawindia/111383)
+
+---
+### 2026-05-20T17:34:16+00:00
+Husband Can't Avoid Paying Maintenance To Wife, Children By Claiming Lack Of Regular Income: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/husband-cant-avoid-paying-maintenance-to-wife-children-by-claiming-lack-of-regular-income-delhi-high-court-535043
+
+[Read on Telegram](https://t.me/livelawindia/111384)
 
 ---
