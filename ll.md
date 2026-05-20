@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-19T15:28:17+00:00*
+*Last Updated: 2026-05-20T06:47:51+00:00*
 
 ---
 
-### 2026-05-19T15:28:17+00:00
-2026 LiveLaw (SC) 516 | AMIT KATYAL & ANR. VERSUS STATE OF HARYANA & ANR
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-516-amit-katyal-anr-versus-state-of-haryana-anr-534857
+### 2026-05-20T06:47:51+00:00
+Bengaluru Court Remands Gameskraft Founders To 14-Day Judicial Custody In Money Laundering Case
+https://www.livelaw.in/news-updates/gameskraft-founders-remanded-judicial-custody-ed-arrest-laundering-allegations-534915
 
-[Read on Telegram](https://t.me/livelawindia/111288)
-
----
-### 2026-05-19T15:35:37+00:00
-NDPS Act | No 'Commercial Quantity' In Poppy Cultivation: P&H High Court Calls 20-Year NDPS Sentence 'Patently Illegal'
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-finds-patent-illegality-in-20-year-sentence-for-opium-poppy-plants-case-remands-matter-for-re-sentencing-534858
-
-[Read on Telegram](https://t.me/livelawindia/111289)
+[Read on Telegram](https://t.me/livelawindia/111324)
 
 ---
-### 2026-05-19T15:35:57+00:00
-Bombay High Court Recuses From Hearing Mumbai Press Club Plea, Cites His Appearance As Prosecutor In Bhima Koregaon Case
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-recuses-from-hearing-mumbai-press-club-plea-cites-his-appearance-as-prosecutor-in-bhima-koregaon-case-534859
+### 2026-05-20T07:00:21+00:00
+Delhi High Court Sets Aside Stay On FIR Against Abhijit Iyer Mitra For Posts Against Manisha Pande; Directs Fresh Hearing
+https://www.livelaw.in/high-court/delhi-high-court/abhijit-iyer-mitra-fir-stay-set-aside-posts-against-newslaundry-manisha-pande-534917
 
-[Read on Telegram](https://t.me/livelawindia/111290)
-
----
-### 2026-05-19T15:39:47+00:00
-What Prevented ED From Summoning Instead Of Outright Arrest?: Gameskraft Founder To Karnataka High Court In Plea Against PMLA Arrest
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-ed-summoned-gameskraft-founders-slam-ed-534860
-
-[Read on Telegram](https://t.me/livelawindia/111291)
+[Read on Telegram](https://t.me/livelawindia/111325)
 
 ---
-### 2026-05-19T16:01:07+00:00
-Wives Are Not 'Deemed Maids': Bombay High Court Says Refusal To Perform Domestic Chores Like Cooking, Cleaning Is Not Cruelty
-https://www.livelaw.in/high-court/bombay-high-court/wife-not-maid-denying-cooking-cleaning-not-cruelty-534865
+### 2026-05-20T07:01:21+00:00
+Stray Dogs Can Be Maintained In Campuses Only If Student Bodies Accept Liability : Supreme Court Allows Exemption For NALSAR
+https://www.livelaw.in/top-stories/stray-dogs-can-be-maintained-in-campuses-only-if-student-bodies-accept-liability-supreme-court-allows-exemption-for-nalsar-534918
 
-[Read on Telegram](https://t.me/livelawindia/111292)
-
----
-### 2026-05-19T16:13:47+00:00
-Man Booked For Sharing Sensitive Military Info With Pakistan Gets Bail From Rajasthan High Court Over Non-Supply Of Grounds Of Arrest
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-grants-bail-sending-intel-pakistan-furnish-written-grounds-arrest-534866
-
-[Read on Telegram](https://t.me/livelawindia/111293)
+[Read on Telegram](https://t.me/livelawindia/111326)
 
 ---
-### 2026-05-19T16:32:47+00:00
-Karnataka High Court Restrains Transport Unions From Going On Indefinite Strike, Directs State To Hold Meeting With Representatives
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-restrains-transport-unions-indefinite-strike-534861
+### 2026-05-20T07:03:21+00:00
+Criminal Law Cannot Be Used To Settle Internal Disputes: J&K&L High Court Quashes FIR Against Ex-Ranji Cricketer Majid Dar
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-criminal-law-cannot-be-used-to-harass-when-complainant-association-itself-declares-allegations-baseless-court-quashes-fir-against-former-ranji-cricketer-534879
 
-[Read on Telegram](https://t.me/livelawindia/111294)
-
----
-### 2026-05-19T16:37:57+00:00
-Supreme Court Daily Round-Up : May 19, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-19-2026-534868
-
-[Read on Telegram](https://t.me/livelawindia/111295)
+[Read on Telegram](https://t.me/livelawindia/111327)
 
 ---
-### 2026-05-19T16:47:57+00:00
-Rajasthan High Court Quashes Teacher's Suspension For Criticising Minister Online, Says 'Executive Displeasure' Cannot Override Law
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-quashes-teacher-suspension-criticising-minister-online-534871
+### 2026-05-20T07:08:21+00:00
+Madras High Court To Hear Tomorrow Habeas Corpus Plea Challenging Savukku Shankar's Detention Under Goondas Act
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-savukku-shankar-detention-habeas-plea-hearing-tomorrow-534920
 
-[Read on Telegram](https://t.me/livelawindia/111296)
-
----
-### 2026-05-19T17:02:37+00:00
-Madras High Court Grants Divorce To Husband After Wife Arranged Daughter's Marriage Without Informing Him
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-secret-marriage-daughter-uncle-no-information-father-mental-cruelty-534872
-
-[Read on Telegram](https://t.me/livelawindia/111297)
+[Read on Telegram](https://t.me/livelawindia/111328)
 
 ---
-### 2026-05-19T17:27:37+00:00
-CPI-ML Moves Calcutta HC Against Bengal Govt's Enforcement Of 1950 Animal Slaughter Law, Calls It Attempt To Curb 'Ritualistic Sacrifice'
-https://www.livelaw.in/high-court/calcutta-high-court/cpi-ml-moves-calcutta-hc-against-bengal-govts-enforcement-of-1950-slaughter-law-calls-it-attempt-to-curb-ritualistic-sacrifice-534873
+### 2026-05-20T07:10:21+00:00
+Hindu Woman Married Under Muslim Rites Entitled To Interim Maintenance Till Marriage Declared Void: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/hindu-woman-married-under-muslim-rites-entitled-to-interim-maintenance-till-marriage-declared-void-calcutta-high-court-534921
 
-[Read on Telegram](https://t.me/livelawindia/111298)
-
----
-### 2026-05-19T17:30:37+00:00
-Builder Can't Forfeit Homebuyer's Money Without Proving Actual Loss: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/builder-cant-forfeit-homebuyers-money-without-proving-actual-loss-delhi-high-court-534876
-
-[Read on Telegram](https://t.me/livelawindia/111299)
+[Read on Telegram](https://t.me/livelawindia/111329)
 
 ---
-### 2026-05-20T02:32:30+00:00
-Punjab & Haryana High Court Quashes 24-Year-Old Proclaimed Offender Order, Notes Accused Was Unaware Of Proceedings
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-24-year-old-proclaimed-offender-order-notes-accused-was-unaware-of-proceedings-534864
+### 2026-05-20T07:22:41+00:00
+Delhi High Court Criticizes Lawyer For Filing Criminal Writ Without Examining Legal Position On FIR Registration
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-criticizes-lawyer-for-filing-criminal-writ-without-examining-legal-position-on-fir-registration-534874
 
-[Read on Telegram](https://t.me/livelawindia/111300)
-
----
-### 2026-05-20T03:20:20+00:00
-Assistant Manager (Legal) Vacancy At Meesho Limited
-https://www.livelaw.in/job-updates/assistant-manager-legal-vacancy-at-meesho-limited-534880
-
-[Read on Telegram](https://t.me/livelawindia/111301)
+[Read on Telegram](https://t.me/livelawindia/111330)
 
 ---
-### 2026-05-20T03:21:20+00:00
-Chief Of Personnel & Administration Vacancy At AI Assets Holding Limited (AIAHL)
-https://www.livelaw.in/job-updates/chief-of-personnel-administration-vacancy-at-ai-assets-holding-limited-534881
+### 2026-05-20T07:30:31+00:00
+'Against Institutional Hierarchy': Kerala High Court Holds University Syndicate Can't Challenge Chancellor's Orders, Carves Out Exceptions
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-syndicate-disciplinary-proceeding-chancellor-534923
 
-[Read on Telegram](https://t.me/livelawindia/111302)
-
----
-### 2026-05-20T03:22:20+00:00
-Junior Consultant (Law) Vacancy At Warehousing Development And Regulatory Authority Government Of India
-https://www.livelaw.in/job-updates/junior-consultant-law-vacancy-at-warehousing-development-and-regulatory-authority-government-of-india-534882
-
-[Read on Telegram](https://t.me/livelawindia/111303)
+[Read on Telegram](https://t.me/livelawindia/111331)
 
 ---
-### 2026-05-20T03:32:20+00:00
-Supreme Court Quarterly Digest 2026 - NDPS Act
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-quarterly-digest-2026-ndps-act-534603
+### 2026-05-20T07:31:11+00:00
+Supreme Court Issues Notice To Union & States On Plea Against Sale Of Alcohol In Tetra Packs, Sachets Resembling Fruit Juice Packs
+https://www.livelaw.in/top-stories/supreme-court-issues-notice-to-union-states-on-plea-against-sale-of-alcohol-in-tetra-packs-sachets-resembling-fruit-juice-packs-534924
 
-[Read on Telegram](https://t.me/livelawindia/111304)
-
----
-### 2026-05-20T03:32:40+00:00
-Orissa High Court Grants Relief To 90-Year-Old Deprived Of Retiral Benefits Due To Disciplinary Proceedings Pending Since 1998
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-retiral-benefits-employee-withheld-indefinitely-caused-disciplinary-authority-534825
-
-[Read on Telegram](https://t.me/livelawindia/111305)
+[Read on Telegram](https://t.me/livelawindia/111332)
 
 ---
-### 2026-05-20T03:50:20+00:00
-Associate Analyst Vacancy At Ernst & Young [New Delhi; Apply Now]
-https://www.livelaw.in/job-updates/associate-analyst-vacancy-at-ernst-young-new-delhi-534884
+### 2026-05-20T07:40:14+00:00
+Filing Anticipatory Bail Petitions In Quick Successions Abuse Of Process, Reduces Litigation To Mere Gamble : Supreme Court
+https://www.livelaw.in/supreme-court/filing-anticipatory-bail-petitions-in-quick-successions-abuse-of-process-reduces-litigation-to-mere-gamble-supreme-court-534927
 
-[Read on Telegram](https://t.me/livelawindia/111306)
+[Read on Telegram](https://t.me/livelawindia/111333)
 
 ---
-### 2026-05-20T04:02:40+00:00
-Punjab & Haryana High Court Cracks Down On Empanelled Hospitals For 'Artificially' Lowering Package Rates To Attract Patients
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-directs-haryana-for-audit-of-empanelled-hospitals-orders-full-reimbursement-for-life-saving-treatment-534870
+### 2026-05-20T07:41:14+00:00
+2026 LiveLaw (SC) 520 | Vasantha versus State of Tamil Nadu and others
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-520-vasantha-versus-state-of-tamil-nadu-and-others-534928
 
-[Read on Telegram](https://t.me/livelawindia/111307)
+[Read on Telegram](https://t.me/livelawindia/111334)
+
+---
+### 2026-05-20T08:20:54+00:00
+Right To Dissent Must Be Protected Against Intolerant, Fanatical Groups: Justice Ujjal Bhuyan
+https://www.livelaw.in/top-stories/right-to-dissent-must-be-protected-against-intolerant-fanatical-groups-justice-ujjal-bhuyan-534934
+
+[Read on Telegram](https://t.me/livelawindia/111335)
+
+---
+### 2026-05-20T08:38:04+00:00
+“Hospital Is Not A Shelter Home”: Calcutta High Court Orders Husband To Take Home Accident-Survivor Wife After 4 Years
+https://www.livelaw.in/high-court/calcutta-high-court/hospital-is-not-a-shelter-home-calcutta-high-court-orders-husband-to-take-home-accident-survivor-wife-after-4-years-534919
+
+[Read on Telegram](https://t.me/livelawindia/111336)
+
+---
+### 2026-05-20T08:46:44+00:00
+Delhi High Court Asks CBFC, Centre To Decide Plea Alleging 'Dhurandhar' Reveals Sensitive Military Information
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-asks-cbfc-centre-to-decide-plea-alleging-dhurandhar-reveals-sensitive-military-information-534937
+
+[Read on Telegram](https://t.me/livelawindia/111337)
+
+---
+### 2026-05-20T08:59:44+00:00
+Punjab & Haryana High Court Takes Suo-Motu Cognizance Of Gun Firing At Former Bar Secretary, Orders Protection & Expeditious Probe
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/gagandeep-jammu-protection-order-gun-shots-fired-former-punjab-bar-secretary-534939
+
+[Read on Telegram](https://t.me/livelawindia/111338)
+
+---
+### 2026-05-20T09:00:24+00:00
+Supreme Court Issues Notice On PIL Seeking Minimum 30% Reservation For Women Lawyers In Govt Legal Panels
+https://www.livelaw.in/top-stories/supreme-court-pil-for-30-percent-reservation-women-lawyers-government-and-high-court-panels-gender-imbalance-higher-judiciary-scba-534940
+
+[Read on Telegram](https://t.me/livelawindia/111339)
+
+---
+### 2026-05-20T09:07:04+00:00
+'Right To Live In Matrimonial Home': Calcutta HC Directs Police To Escort Disabled Woman Back Home After Husband Refuses To Take Her
+https://www.livelaw.in/high-court/calcutta-high-court/right-to-live-in-matrimonial-home-calcutta-hc-directs-police-to-escort-disabled-woman-back-home-after-husband-refuses-to-take-her-534943
+
+[Read on Telegram](https://t.me/livelawindia/111340)
+
+---
+### 2026-05-20T09:17:04+00:00
+Calling Judge Biased Because Order Didn't Reflect Certain Arguments Of Party Unjustified: MP High Court Rejects Transfer Plea
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-quashes-transfer-of-case-over-alleged-judicial-bias-534944
+
+[Read on Telegram](https://t.me/livelawindia/111341)
+
+---
+### 2026-05-20T09:33:04+00:00
+Jharkhand RTI Row: Appointment Process Contravenes Section 15(6) And Dilutes Legislative Intent
+https://www.livelaw.in/articles/jharkhand-rti-row-appointment-process-534739
+
+[Read on Telegram](https://t.me/livelawindia/111342)
+
+---
+### 2026-05-20T09:33:14+00:00
+Supreme Court Directs Delhi Govt To Frame SOP To Enforce Free EWS Treatment In Delhi Private Hospitals
+https://www.livelaw.in/top-stories/supreme-court-directs-delhi-govt-to-frame-sop-to-enforce-free-ews-treatment-in-delhi-private-hospitals-534945
+
+[Read on Telegram](https://t.me/livelawindia/111343)
 
 ---
