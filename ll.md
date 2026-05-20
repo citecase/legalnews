@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-19T13:32:26+00:00*
+*Last Updated: 2026-05-19T15:28:17+00:00*
 
 ---
 
-### 2026-05-19T13:32:26+00:00
-S.138 NI Act | Power Of Attorney Holder's Incompetence To File Complaint No Ground To Assail Conviction At Revision Stage: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-complaint-power-of-attorney-competence-objection-534824
-
-[Read on Telegram](https://t.me/livelawindia/111280)
-
----
-### 2026-05-19T13:32:36+00:00
-Dogs Don't Have Absolute Right To Occupy Institutional Premises; ABC Rules Don't Mandate Their Release At Same Spot : Supreme Court
-https://www.livelaw.in/top-stories/dogs-dont-have-absolute-right-to-occupy-institutional-premises-abc-rules-dont-mandate-their-release-at-same-spot-supreme-court-534840
-
-[Read on Telegram](https://t.me/livelawindia/111281)
-
----
-### 2026-05-19T13:45:16+00:00
-Delhi Police To Seek Larger Bench Reference Over Conflicting Supreme Court Judgments On UAPA Bail
-https://www.livelaw.in/top-stories/delhi-police-to-seek-larger-bench-reference-over-conflicting-supreme-court-judgments-on-uapa-bail-534842
-
-[Read on Telegram](https://t.me/livelawindia/111282)
-
----
-### 2026-05-19T13:47:36+00:00
-Police Torturing Relatives Of Accused Is A 'Colonial Practice', Violates Article 21: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-police-torturing-relatives-accused-colonial-practice-violates-article-21-534843
-
-[Read on Telegram](https://t.me/livelawindia/111283)
-
----
-### 2026-05-19T13:48:08+00:00
-LiveLaw Daily | Stray Dog Verdict | Umar Khalid Bail | Kejriwal Contempt | Inheritance in iCloud & more
-https://www.livelaw.in/podcast/livelaw-daily-livelaw-supreme-court-umar-khalid-kejriwal-aap-delhi-high-court-stray-dogs-article-21-icloud-legal-news-india-breaking-podcast-courts-534844
-
-[Read on Telegram](https://t.me/livelawindia/111284)
-
----
-### 2026-05-19T14:32:26+00:00
-Lifting Corporate Veil In Real Estate Insolvency: Supreme Court's Ruling In Alpha Corp V. Gnida
-https://www.livelaw.in/articles/lifting-corporate-veil-real-estate-insolvency-alpha-corpvgnida-534793
-
-[Read on Telegram](https://t.me/livelawindia/111285)
-
----
-### 2026-05-19T15:12:36+00:00
-'Institutional Failures': Allahabad High Court Rebukes NHRC & UP Police, Admits Own Inertia In 2009 Custodial Death Case
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-institutional-failures-nhrc-up-police-2009-custodial-death-case-534855
-
-[Read on Telegram](https://t.me/livelawindia/111286)
-
----
-### 2026-05-19T15:26:37+00:00
-'Parallel FIRs On Same Allegations Impermissible', Supreme Court Directs Clubbing Of FIRs Linked To Brahma City/Krrish World Project
-https://www.livelaw.in/supreme-court/parallel-firs-on-same-allegations-impermissible-supreme-court-directs-clubbing-of-firs-linked-to-brahma-citykrrish-world-project-534856
-
-[Read on Telegram](https://t.me/livelawindia/111287)
-
----
 ### 2026-05-19T15:28:17+00:00
 2026 LiveLaw (SC) 516 | AMIT KATYAL & ANR. VERSUS STATE OF HARYANA & ANR
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-516-amit-katyal-anr-versus-state-of-haryana-anr-534857
@@ -142,5 +86,61 @@ Builder Can't Forfeit Homebuyer's Money Without Proving Actual Loss: Delhi High 
 https://www.livelaw.in/high-court/delhi-high-court/builder-cant-forfeit-homebuyers-money-without-proving-actual-loss-delhi-high-court-534876
 
 [Read on Telegram](https://t.me/livelawindia/111299)
+
+---
+### 2026-05-20T02:32:30+00:00
+Punjab & Haryana High Court Quashes 24-Year-Old Proclaimed Offender Order, Notes Accused Was Unaware Of Proceedings
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-24-year-old-proclaimed-offender-order-notes-accused-was-unaware-of-proceedings-534864
+
+[Read on Telegram](https://t.me/livelawindia/111300)
+
+---
+### 2026-05-20T03:20:20+00:00
+Assistant Manager (Legal) Vacancy At Meesho Limited
+https://www.livelaw.in/job-updates/assistant-manager-legal-vacancy-at-meesho-limited-534880
+
+[Read on Telegram](https://t.me/livelawindia/111301)
+
+---
+### 2026-05-20T03:21:20+00:00
+Chief Of Personnel & Administration Vacancy At AI Assets Holding Limited (AIAHL)
+https://www.livelaw.in/job-updates/chief-of-personnel-administration-vacancy-at-ai-assets-holding-limited-534881
+
+[Read on Telegram](https://t.me/livelawindia/111302)
+
+---
+### 2026-05-20T03:22:20+00:00
+Junior Consultant (Law) Vacancy At Warehousing Development And Regulatory Authority Government Of India
+https://www.livelaw.in/job-updates/junior-consultant-law-vacancy-at-warehousing-development-and-regulatory-authority-government-of-india-534882
+
+[Read on Telegram](https://t.me/livelawindia/111303)
+
+---
+### 2026-05-20T03:32:20+00:00
+Supreme Court Quarterly Digest 2026 - NDPS Act
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-quarterly-digest-2026-ndps-act-534603
+
+[Read on Telegram](https://t.me/livelawindia/111304)
+
+---
+### 2026-05-20T03:32:40+00:00
+Orissa High Court Grants Relief To 90-Year-Old Deprived Of Retiral Benefits Due To Disciplinary Proceedings Pending Since 1998
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-retiral-benefits-employee-withheld-indefinitely-caused-disciplinary-authority-534825
+
+[Read on Telegram](https://t.me/livelawindia/111305)
+
+---
+### 2026-05-20T03:50:20+00:00
+Associate Analyst Vacancy At Ernst & Young [New Delhi; Apply Now]
+https://www.livelaw.in/job-updates/associate-analyst-vacancy-at-ernst-young-new-delhi-534884
+
+[Read on Telegram](https://t.me/livelawindia/111306)
+
+---
+### 2026-05-20T04:02:40+00:00
+Punjab & Haryana High Court Cracks Down On Empanelled Hospitals For 'Artificially' Lowering Package Rates To Attract Patients
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-directs-haryana-for-audit-of-empanelled-hospitals-orders-full-reimbursement-for-life-saving-treatment-534870
+
+[Read on Telegram](https://t.me/livelawindia/111307)
 
 ---
