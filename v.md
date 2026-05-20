@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-19T16:02:29+00:00*
+*Last Updated: 2026-05-20T04:32:28+00:00*
+
+---
+
+### 2026-05-20T04:32:28+00:00
+“Counterblast To Section 498A IPC Case”: Patna High Court Quashes SC-ST Act Case Lodged By Husband’s Domestic Help Against Wife’s Family
+https://www.verdictum.in/patna-high-court/ankit-kumar-sharma-ors-v-the-state-of-bihar-anr-scst-act-498a-proceedings-1614297
+
+[Source Link](https://t.me/verdictumlegalupdates/27088)
 
 ---
 
@@ -153,14 +161,6 @@ Employee Has No Vested Right To Compel Government To Fill Vacancies Through Prom
 https://www.verdictum.in/supreme-court/state-of-odisha-ors-v-sreepati-ranjan-dash-2026-insc-505-promotion-rights-1614248
 
 [Source Link](https://t.me/verdictumlegalupdates/27069)
-
----
-
-### 2026-05-19T05:56:03+00:00
-Breaking: Supreme Court Directs High Courts To Monitor Pan-India Stray Animal Crisis, Permits Euthanasia For Rabid Dogs
-https://www.verdictum.in/supreme-court/stray-animal-crisis-rabid-dogs-euthanasia-pan-india-1614243
-
-[Source Link](https://t.me/verdictumlegalupdates/27068)
 
 ---
 
