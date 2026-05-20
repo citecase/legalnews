@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-20T04:32:28+00:00*
+*Last Updated: 2026-05-20T09:32:22+00:00*
+
+---
+
+### 2026-05-20T09:32:22+00:00
+Supreme Court Refuses To Entertain Plea Seeking Protection, Audit & Regulation Of Sikh religious properties
+https://www.verdictum.in/supreme-court/sikh-religious-properties-audit-1614332
+
+[Source Link](https://t.me/verdictumlegalupdates/27098)
+
+---
+
+### 2026-05-20T09:02:51+00:00
+Wife Secretly Marrying Off Daughter Without Informing Father Amounts To Mental Cruelty: Madras High Court Grants Divorce To Husband
+https://www.verdictum.in/madras-high-court/g-sridhar-v-s-komala-kumari-mental-cruelty-father-mother-daughter-marriage-1614330
+
+[Source Link](https://t.me/verdictumlegalupdates/27097)
+
+---
+
+### 2026-05-20T08:32:49+00:00
+Should Not Support Any Party Contrary To The Law: Supreme Court Pulls Up Uttar Pradesh State Authorities For Filing Affidavits To Support Waitlisted Candidate
+https://www.verdictum.in/supreme-court/dr-manoj-kumar-rawat-v-state-of-up-2026-insc-508-affidavits-to-support-waitlisted-candidate-1614328
+
+[Source Link](https://t.me/verdictumlegalupdates/27096)
+
+---
+
+### 2026-05-20T08:02:28+00:00
+Criminal Proceedings Against Accused Cannot Continue When Similarly Situated Co-Accused Stands Discharged: Supreme Court
+https://www.verdictum.in/supreme-court/susanta-kumar-dalei-susanta-kumar-dalai-v-state-of-odisha-vigilance-2026-insc-510-1614322
+
+[Source Link](https://t.me/verdictumlegalupdates/27095)
+
+---
+
+### 2026-05-20T07:33:07+00:00
+Supreme Court Sets Aside Allahabad High Court Order Issuing Far Reaching Directions While Exercising Bail Jurisdiction U/S 483 Of BNSS
+https://www.verdictum.in/supreme-court/rambalak-v-state-of-up-2026-insc-511allahabad-hc-directions-bail-jurisdiction-bnss-1614318
+
+[Source Link](https://t.me/verdictumlegalupdates/27094)
+
+---
+
+### 2026-05-20T07:03:05+00:00
+Job Of A Criminal Court Is Not To Order Loose Acquittals: Supreme Court Upholds Conviction In Dr Subbiah Murder Case
+https://www.verdictum.in/supreme-court/the-state-of-tamil-nadu-v-ponnusamy-2026-insc-507-dr-subbiah-murder-case-1614316
+
+[Source Link](https://t.me/verdictumlegalupdates/27093)
+
+---
+
+### 2026-05-20T06:32:24+00:00
+"Full & Final Settlement" Accepted Under Coercion Does Not Extinguish Original Claim: Delhi High Court Upholds ₹18L Refund to Homebuyers
+https://www.verdictum.in/delhi-high-court/ms-r-c-sood-co-developers-pvt-ltd-v-sharad-maheshwari-2026dhc4422-18-lakh-refund-to-homebuyers-1614310
+
+[Source Link](https://t.me/verdictumlegalupdates/27092)
+
+---
+
+### 2026-05-20T06:03:02+00:00
+Political Campaign Ideas Sourced From Public Records Cannot Qualify As Theft Of Intellectual Property: Patna High Court Quashes FIR Against Prashant Kishor
+https://www.verdictum.in/patna-high-court/prashant-kishor-v-the-state-of-bihar-ors-cr-wjc-no-271-of-2020-theft-of-intellectual-property-political-campaign-ideas-1614307
+
+[Source Link](https://t.me/verdictumlegalupdates/27091)
+
+---
+
+### 2026-05-20T05:33:01+00:00
+J&K and Ladakh High Court Grants Bail To Accused In Attempted Rape Case; Takes Note Of His Social Position As Doctor
+https://www.verdictum.in/jammu-ladakh-high-court/dr-abdul-majeed-bhat-v-union-territory-of-jk-2026jklhc-sgr119-concession-doctor-bail-1614306
+
+[Source Link](https://t.me/verdictumlegalupdates/27090)
+
+---
+
+### 2026-05-20T05:02:39+00:00
+Adultery Is An Act Of Secrecy; Difficult To Produce Direct Evidence Of Sexual Intercourse: Madras High Court Grants Divorce To Husband
+https://www.verdictum.in/madras-high-court/x-v-y-cma-no-2264-of-2022-adultery-is-an-act-of-secrecy-direct-evidence-of-sexual-intercourse-1614304
+
+[Source Link](https://t.me/verdictumlegalupdates/27089)
 
 ---
 
@@ -81,86 +161,6 @@ Fundamental Right To Live With Dignity Includes Citizens' Freedom To Move Freely
 https://www.verdictum.in/supreme-court/2026-insc-506-in-re-city-hounded-by-strays-kids-pay-price-vs-the-state-of-andhra-pradesh-1614275
 
 [Source Link](https://t.me/verdictumlegalupdates/27079)
-
----
-
-### 2026-05-19T11:32:26+00:00
-Allegation Of Impotency Raised In Matrimonial Dispute Is Not Defamation: Allahabad High Court Quashes Summoning Order Against Wife
-https://www.verdictum.in/allahabad-high-court/a-v-state-of-up-and-2-others-2026ahc112914-impotency-defamation-summoning-order-1614270
-
-[Source Link](https://t.me/verdictumlegalupdates/27078)
-
----
-
-### 2026-05-19T11:02:49+00:00
-Biological Sex & Self-Perceived Gender Identity Distinct For Reproductive Rights: Kerala High Court Permits Transman's Egg Cryopreservation
-https://www.verdictum.in/kerala-high-court/hari-devageeth-v-union-of-india-2026ker33711-transman-oocyte-cryopreservation-art-1614269
-
-[Source Link](https://t.me/verdictumlegalupdates/27077)
-
----
-
-### 2026-05-19T09:34:26+00:00
-Supreme Court Collegium Recommends Judicial Officers, Advocates To Be Appointed As Judges Of Madras High Court
-https://www.verdictum.in/supreme-court/supreme-court-collegium-recommends-judicial-officers-advocates-to-be-appointed-as-judges-of-madras-high-court-1614264
-
-[Source Link](https://t.me/verdictumlegalupdates/27076)
-
----
-
-### 2026-05-19T09:32:30+00:00
-Supreme Court Asks Centre To Examine Cyber Security Consultant’s Plea For Protection, Recovery & Destruction Of Stolen Personal Data Of Indian Citizens
-https://www.verdictum.in/supreme-court/cyber-security-consultant-plea-destruction-stolen-personal-data-indian-citizens-1614263
-
-[Source Link](https://t.me/verdictumlegalupdates/27075)
-
----
-
-### 2026-05-19T09:02:45+00:00
-Supreme Court Asks SpiceJet To Approach Delhi HC To Seek Extension To Deposit Rs 144 Crore In Dispute With Kalanithi Maran & Kal Airways
-https://www.verdictum.in/supreme-court/supreme-court-asks-spicejet-to-approach-delhi-hc-to-seek-extension-to-deposit-rs-144-crore-in-dispute-with-kalanithi-maran-kal-airways-1614261
-
-[Source Link](https://t.me/verdictumlegalupdates/27074)
-
----
-
-### 2026-05-19T08:32:23+00:00
-Sympathy Cannot Override Constitutional Mandate: Delhi High Court Rejects Delayed Compassionate Appointment Plea
-https://www.verdictum.in/delhi-high-court/ms-bses-yamuna-power-ltd-v-vinod-kumar-2026dhc4405-alternate-mode-of-public-employment-compassionate-appointment-1614259
-
-[Source Link](https://t.me/verdictumlegalupdates/27073)
-
----
-
-### 2026-05-19T08:03:10+00:00
-Bar Council Can Deny Enrolment As Advocate To Applicant “Entitled” To Practice Another Profession: Kerala High Court
-https://www.verdictum.in/kerala-high-court/tm-manju-v-bar-council-of-kerala-ors-2026ker33781-bar-council-advocate-1614256
-
-[Source Link](https://t.me/verdictumlegalupdates/27072)
-
----
-
-### 2026-05-19T07:32:28+00:00
-Political Criticism Cannot Be Silenced Through Omnibus Orders: Madras High Court Stays Notice Blocking VHP’s Post on X
-https://www.verdictum.in/madras-high-court/p-chockalingam-v-additional-chief-secretary-ors-tamil-nadu-north-vhp-1614254
-
-[Source Link](https://t.me/verdictumlegalupdates/27071)
-
----
-
-### 2026-05-19T07:02:26+00:00
-No Legal Bar U/S 475 BNSS On Considering Premature Release Of Convicts After 14 Years Actual Imprisonment: Patna High Court
-https://www.verdictum.in/patna-high-court/jagarnath-thakur-v-the-state-of-bihar-premature-release-convict-14-years-1614250
-
-[Source Link](https://t.me/verdictumlegalupdates/27070)
-
----
-
-### 2026-05-19T06:33:04+00:00
-Employee Has No Vested Right To Compel Government To Fill Vacancies Through Promotion After Cadre Restructuring: Supreme Court
-https://www.verdictum.in/supreme-court/state-of-odisha-ors-v-sreepati-ranjan-dash-2026-insc-505-promotion-rights-1614248
-
-[Source Link](https://t.me/verdictumlegalupdates/27069)
 
 ---
 
