@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-21T07:40:58+00:00*
+*Last Updated: 2026-05-21T12:19:23+00:00*
 
 ---
 
-### 2026-05-21T07:40:58+00:00
-Calcutta High Court Restrains Police Action Against TMC's Abhishek Banerjee Over 'Objectionable Remarks' On Amit Shah
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-no-coercive-against-abhishek-banerjee-in-fir-objectionable-remarks-against-amit-shah-in-poll-rally-535104
+### 2026-05-21T12:19:23+00:00
+Plea In Madras High Court Seeks To Abolish Special & VIP Darshan In Temples
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-against-vip-special-darshan-temple-535174
 
-[Read on Telegram](https://t.me/livelawindia/111425)
-
----
-### 2026-05-21T07:48:58+00:00
-'Infructuous': Kerala High Court Closes Challenge To Film Allegedly Inspired By Venjaramoodu Mass Murder Case After Its Release
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kaalam-paranja-kadha-venjaramoodu-mass-murder-case-535108
-
-[Read on Telegram](https://t.me/livelawindia/111426)
+[Read on Telegram](https://t.me/livelawindia/111462)
 
 ---
-### 2026-05-21T07:53:58+00:00
-Calcutta High Court Reserves Order On Challenge To Bengal Govt's Cattle Slaughter Restrictions Ahead Of Eid
-https://www.livelaw.in/high-court/calcutta-high-court/eid-cow-slaughter-west-bengal-restrictions-mahua-moitra-535109
+### 2026-05-21T12:35:33+00:00
+National Green Tribunal Allows Ayodhya Bypass Expansion Project In Bhopal With Strict Environmental Safeguards
+https://www.livelaw.in/news-updates/national-green-tribunal-allows-ayodhya-bypass-expansion-project-in-bhopal-with-strict-environmental-safeguards-535178
 
-[Read on Telegram](https://t.me/livelawindia/111427)
-
----
-### 2026-05-21T07:55:38+00:00
-'One HC Judge Had To Sit Till 7 PM To Hear SC-Expedited Case' : CJI Says Routine Directions Can't Be Issued To Fast-Track Hearing
-https://www.livelaw.in/top-stories/supreme-court-cji-surya-kant-on-expediting-high-court-matters-allahabad-high-court-hearing-till-evening-hungry-incapacitated-need-to-introspect-535110
-
-[Read on Telegram](https://t.me/livelawindia/111428)
+[Read on Telegram](https://t.me/livelawindia/111463)
 
 ---
-### 2026-05-21T07:57:58+00:00
-Updated OBC-NCL Certificate Can Be Submitted After Cut-Off Date In Central University Recruitment: Tripura High Court
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-updated-obc-ncl-certificate-cutoff-date-central-university-recruitment-535031
+### 2026-05-21T12:49:53+00:00
+Karnataka HC Stays FSSAI Advisory, AYUSH Directive Restricting Use Of Ashwagandha Leaves
+https://www.livelaw.in/law-firms/litigation/karnataka-hc-stays-fssai-advisory-ayush-directive-restricting-use-ashwagandha-leaves-535180
 
-[Read on Telegram](https://t.me/livelawindia/111429)
-
----
-### 2026-05-21T08:02:58+00:00
-Advs Rini Mehra & Tanvi Sharma Win Kapila & Nirmal Hingorani Foundation Pegasus Scholarship 2026
-https://www.livelaw.in/news-updates/advs-rini-mehra-tanvi-sharma-win-kapila-nirmal-hingorani-foundation-pegasus-scholarship-2026-535111
-
-[Read on Telegram](https://t.me/livelawindia/111430)
+[Read on Telegram](https://t.me/livelawindia/111464)
 
 ---
-### 2026-05-21T08:09:38+00:00
-Allahabad High Court Grants Interim Relief To Reliance Bio Energy In Complaint Under Air Quality Management Act
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-grants-interim-relief-reliance-bio-energy-commission-air-quality-management-535112
+### 2026-05-21T13:23:23+00:00
+Umar Khalid Moves High Court Seeking Interim Bail In Delhi Riots Case, Hearing Tomorrow
+https://www.livelaw.in/high-court/delhi-high-court/umar-khalid-moves-high-court-seeking-interim-bail-in-delhi-riots-case-hearing-tomorrow-535182
 
-[Read on Telegram](https://t.me/livelawindia/111431)
-
----
-### 2026-05-21T08:30:28+00:00
-Sedition | Courts Can Proceed With Trials/Appeals Involving S.124A IPC If Accused Doesn't Object : Supreme Court Clarifies
-https://www.livelaw.in/top-stories/supreme-court-sedition-section-124a-ipc-clarification-high-courts-can-hear-appeals-on-merits-where-accused-have-no-objection-535114
-
-[Read on Telegram](https://t.me/livelawindia/111432)
+[Read on Telegram](https://t.me/livelawindia/111465)
 
 ---
-### 2026-05-21T08:37:28+00:00
-Patna HC Quashes ₹22 Lakh Recovery From Retd University Employee, Says Pay Scale Cannot Be Reduced 12 Years After Retirement Without Notice
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-recovery-retired-university-employee-pay-scale-retirement-535035
+### 2026-05-21T13:27:23+00:00
+Calcutta High Court Refuses To Stall Bengal's Cattle Slaughter Rules Ahead Of Eid, Orders State To Clarify 'Cow Sacrifice Not Religious Requirement'
+https://www.livelaw.in/top-stories/calcutta-high-court-refuses-to-stall-bengals-cattle-slaughter-rules-ahead-of-eid-orders-state-to-clarify-cow-sacrifice-not-religious-requirement-535183
 
-[Read on Telegram](https://t.me/livelawindia/111433)
-
----
-### 2026-05-21T08:43:28+00:00
-Supreme Court Weekly Digest April 16 - 24, 2026
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-weekly-digest-april-2026-535116
-
-[Read on Telegram](https://t.me/livelawindia/111434)
+[Read on Telegram](https://t.me/livelawindia/111466)
 
 ---
-### 2026-05-21T08:59:51+00:00
-Creditors Approach Madras High Court Against Single Judge Order Allowing Release Of "Dhruva Natchathiram" Movie
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-dhruva-natchathiram-single-judge-order-appeal-535122
+### 2026-05-21T13:38:23+00:00
+P&H High Court Imposes ₹6 Lakh Costs On Congress MLA Sukhpal Singh Khaira For Misusing Contempt Jurisdiction In Encroachment Dispute
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-imposes-6-lakh-costs-on-congress-mp-sukhpal-singh-khaira-535184
 
-[Read on Telegram](https://t.me/livelawindia/111435)
-
----
-### 2026-05-21T09:05:31+00:00
-BNSS S.223(1) Proviso Mandatory; Cognizance Without Hearing Accused Void Ab Initio: Supreme Court
-https://www.livelaw.in/top-stories/bnss-s2231-proviso-mandatory-cognizance-without-hearing-accused-void-ab-initio-supreme-court-535124
-
-[Read on Telegram](https://t.me/livelawindia/111436)
+[Read on Telegram](https://t.me/livelawindia/111467)
 
 ---
-### 2026-05-21T09:06:11+00:00
-Kerala High Court Allows Neighbouring Schools To Challenge Order Permitting Co-Education In Erattupetta Muslim Girls' School
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-erattupetta-muslim-girls-school-co-education-535125
+### 2026-05-21T13:47:33+00:00
+Court Can't Order, Monitor Inquiry Against Cops For Delay In Investigation After Deciding Bail Plea: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/court-cant-order-monitor-inquiry-against-cops-for-delay-in-investigation-after-deciding-bail-plea-delhi-high-court-535042
 
-[Read on Telegram](https://t.me/livelawindia/111437)
-
----
-### 2026-05-21T09:07:11+00:00
-Calcutta High Court Stays Coercive Action Against TMC MLA Paresh Ram Das After 6 FIRs Registered On Same Day
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-stays-coercive-action-against-tmc-mla-paresh-ram-das-after-6-firs-registered-on-same-day-535126
-
-[Read on Telegram](https://t.me/livelawindia/111438)
+[Read on Telegram](https://t.me/livelawindia/111468)
 
 ---
-### 2026-05-21T09:13:11+00:00
-Imprisonment For Non-Payment Of Fine Must Be Proportionate To Amount Unpaid: Punjab & Haryana High Court In NI Act Case
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/ni-act-imprisonment-for-non-payment-of-fine-proportionate-to-amount-unpaid-535128
+### 2026-05-21T13:48:03+00:00
+Karnataka High Court Releases Gameskraft Founders' Plea Against ED Arrest From Vacation Bench, Posts Matter To June 03
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-declines-hearing-gameskraft-founders-arrest-challenge-535185
 
-[Read on Telegram](https://t.me/livelawindia/111439)
-
----
-### 2026-05-21T09:18:11+00:00
-Friendly Loan Not Legally Enforceable Debt U/S 138 NI Act If There Is No Consideration To Form Contract: Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-friendly-loan-legally-enforceable-section138ni-act-535037
-
-[Read on Telegram](https://t.me/livelawindia/111440)
+[Read on Telegram](https://t.me/livelawindia/111469)
 
 ---
-### 2026-05-21T09:32:21+00:00
-Attendance In Legal Education: A Debate Beyond Examinations
-https://www.livelaw.in/articles/attendance-legal-education-debate-beyond-examinations-534966
+### 2026-05-21T13:52:23+00:00
+Bengaluru Advocates Association Writes To Karnataka High Court CJ Opposing State Govt's Proposal To Establish Circuit Bench At Manguluru
+https://www.livelaw.in/news-updates/bengaluru-advocates-association-opposing-mangaluru-bench-state-government-rallies-circuit-bench-serve-coastal-districts-535187
 
-[Read on Telegram](https://t.me/livelawindia/111441)
-
----
-### 2026-05-21T09:33:01+00:00
-12 Years On Gujarat High Court Discharges Man In Kidnapping Case Noting Victim 'Voluntarily' Left Home
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-discharge-kidnapping-victim-voluntarily-left-parental-home-535131
-
-[Read on Telegram](https://t.me/livelawindia/111442)
+[Read on Telegram](https://t.me/livelawindia/111470)
 
 ---
-### 2026-05-21T09:45:21+00:00
-Twisha Sharma Dowry Death Case: Lawyer-Husband Samarth Singh Moves Madhya Pradesh High Court Seeking Anticipatory Bail
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-anticipatory-bail-samarth-singh-twisha-sharma-dowry-death-535139
+### 2026-05-21T14:00:23+00:00
+Husband's Failure To Explain Wife's Death In Matrimonial Home Draws Adverse Inference u/s 106 Evidence Act: Supreme Court Upholds Conviction
+https://www.livelaw.in/supreme-court/husbands-failure-to-explain-wifes-death-in-matrimonial-home-draws-adverse-inference-us-106-evidence-act-supreme-court-upholds-conviction-535190
 
-[Read on Telegram](https://t.me/livelawindia/111443)
+[Read on Telegram](https://t.me/livelawindia/111471)
 
 ---
-### 2026-05-21T09:47:21+00:00
-J&K&L High Court Grants Anticipatory Bail To Army Personnel In POCSO Case After Complainant Marries Him, Drops Allegations
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-woman-retracts-pocso-allegations-marries-accused-army-man-court-grants-anticipatory-bail-in-pocso-case-535038
+### 2026-05-21T14:01:43+00:00
+2026 LiveLaw (SC) 526 |  CHETAN DASHRATH GADE v. THE STATE OF MAHARASHTRA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-526-chetan-dashrath-gade-v-the-state-of-maharashtra-535191
 
-[Read on Telegram](https://t.me/livelawindia/111444)
+[Read on Telegram](https://t.me/livelawindia/111472)
+
+---
+### 2026-05-21T14:12:13+00:00
+LiveLaw Daily | SC On BNSS Safeguards| Raghav Chadha Plea| Bengal Eid Slaughter Row and more
+https://www.livelaw.in/podcast/supreme-court-chief-justice-of-india-cji-surya-kant-judiciary-case-load-cases-lawyers-allahabad-high-court-india-news-535194
+
+[Read on Telegram](https://t.me/livelawindia/111473)
+
+---
+### 2026-05-21T14:18:33+00:00
+Ganga Iftar | Allahabad HC Grants Bail As Accused Apologise To Hindu Community, Vow Lifelong Respect For 'Maa Ganga'
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-grants-bail-ganga-boat-iftar-row-apology-hindu-community-535196
+
+[Read on Telegram](https://t.me/livelawindia/111474)
+
+---
+### 2026-05-21T14:32:53+00:00
+More Judges, More Justice: Addressing The Needs Of Apex Court
+https://www.livelaw.in/lawschool/articles/addressing-needs-apex-court-534967
+
+[Read on Telegram](https://t.me/livelawindia/111475)
+
+---
+### 2026-05-21T14:41:13+00:00
+Supreme Court Questions P&H High Court Order Quashing Chargesheet Over Forgery Allegations In 2002 Haryana Civil Service Recruitment
+https://www.livelaw.in/top-stories/supreme-court-calls-for-material-in-cheating-forgery-case-against-8-haryana-civil-service-officers-over-2002-recruitment-process-535199
+
+[Read on Telegram](https://t.me/livelawindia/111476)
+
+---
+### 2026-05-21T14:49:33+00:00
+Preventive Detention | P&H High Court Quashes Confirmation Order For 'Non-Application Of Mind', Directs Release Of Detenue
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-confirmation-order-for-non-application-of-mind-directs-release-of-detenue-535200
+
+[Read on Telegram](https://t.me/livelawindia/111477)
+
+---
+### 2026-05-21T15:04:33+00:00
+'Bail Jurisdiction Can't Be Used To Issue General Directions' : Supreme Court Sets Aside Allahabad HC Directives On Summons Service
+https://www.livelaw.in/supreme-court/bail-jurisdiction-cant-be-used-to-issue-general-directions-supreme-court-sets-aside-allahabad-hc-directives-on-summons-service-535201
+
+[Read on Telegram](https://t.me/livelawindia/111478)
+
+---
+### 2026-05-21T15:05:33+00:00
+2026 LiveLaw (SC) 527 | Rambalak v State of UP
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-527-rambalak-v-state-of-up-535202
+
+[Read on Telegram](https://t.me/livelawindia/111479)
+
+---
+### 2026-05-21T15:16:43+00:00
+Protection Of Life Prevails Over Reproductive Choice: J&KL High Court Declines Termination Of 27-Week Pregnancy Of Minor Rape Survivor
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-preservation-and-protection-of-life-prevails-over-reproductive-choice-court-declines-termination-of-27-week-pregnancy-of-minor-rape-survivor-535203
+
+[Read on Telegram](https://t.me/livelawindia/111480)
+
+---
+### 2026-05-21T15:33:43+00:00
+UAPA | J&K&L High Court Denies Bail To Baramulla Society Office Bearers Accused Of Promoting Secessionist Ideology Through Donations
+https://www.livelaw.in/high-court/jammu-kashmir/need-to-conduct-further-investigation-to-unearth-larger-conspiracy-jk-high-court-upholds-rejection-of-bail-for-president-and-secretary-of-idar-e-falah-u-darien-in-uapa-case-535204
+
+[Read on Telegram](https://t.me/livelawindia/111481)
 
 ---
