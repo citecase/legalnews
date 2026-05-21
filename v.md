@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-20T16:03:10+00:00*
+*Last Updated: 2026-05-21T04:33:03+00:00*
+
+---
+
+### 2026-05-21T04:33:03+00:00
+‘Institutional Failures’: Allahabad High Court Slams NHRC, Asks CBI To Intervene In Custodial Death Case Pending For 16 Years
+https://www.verdictum.in/allahabad-high-court/association-for-advocacy-and-legal-initiatives-lko-v-state-of-up-custodial-death-1614354
+
+[Source Link](https://t.me/verdictumlegalupdates/27112)
 
 ---
 
@@ -153,14 +161,6 @@ Job Of A Criminal Court Is Not To Order Loose Acquittals: Supreme Court Upholds 
 https://www.verdictum.in/supreme-court/the-state-of-tamil-nadu-v-ponnusamy-2026-insc-507-dr-subbiah-murder-case-1614316
 
 [Source Link](https://t.me/verdictumlegalupdates/27093)
-
----
-
-### 2026-05-20T06:32:24+00:00
-"Full & Final Settlement" Accepted Under Coercion Does Not Extinguish Original Claim: Delhi High Court Upholds ₹18L Refund to Homebuyers
-https://www.verdictum.in/delhi-high-court/ms-r-c-sood-co-developers-pvt-ltd-v-sharad-maheshwari-2026dhc4422-18-lakh-refund-to-homebuyers-1614310
-
-[Source Link](https://t.me/verdictumlegalupdates/27092)
 
 ---
 
