@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-21T12:19:23+00:00*
+*Last Updated: 2026-05-21T13:23:23+00:00*
 
 ---
 
-### 2026-05-21T12:19:23+00:00
-Plea In Madras High Court Seeks To Abolish Special & VIP Darshan In Temples
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-against-vip-special-darshan-temple-535174
-
-[Read on Telegram](https://t.me/livelawindia/111462)
-
----
-### 2026-05-21T12:35:33+00:00
-National Green Tribunal Allows Ayodhya Bypass Expansion Project In Bhopal With Strict Environmental Safeguards
-https://www.livelaw.in/news-updates/national-green-tribunal-allows-ayodhya-bypass-expansion-project-in-bhopal-with-strict-environmental-safeguards-535178
-
-[Read on Telegram](https://t.me/livelawindia/111463)
-
----
-### 2026-05-21T12:49:53+00:00
-Karnataka HC Stays FSSAI Advisory, AYUSH Directive Restricting Use Of Ashwagandha Leaves
-https://www.livelaw.in/law-firms/litigation/karnataka-hc-stays-fssai-advisory-ayush-directive-restricting-use-ashwagandha-leaves-535180
-
-[Read on Telegram](https://t.me/livelawindia/111464)
-
----
 ### 2026-05-21T13:23:23+00:00
 Umar Khalid Moves High Court Seeking Interim Bail In Delhi Riots Case, Hearing Tomorrow
 https://www.livelaw.in/high-court/delhi-high-court/umar-khalid-moves-high-court-seeking-interim-bail-in-delhi-riots-case-hearing-tomorrow-535182
@@ -142,5 +121,26 @@ UAPA | J&K&L High Court Denies Bail To Baramulla Society Office Bearers Accused 
 https://www.livelaw.in/high-court/jammu-kashmir/need-to-conduct-further-investigation-to-unearth-larger-conspiracy-jk-high-court-upholds-rejection-of-bail-for-president-and-secretary-of-idar-e-falah-u-darien-in-uapa-case-535204
 
 [Read on Telegram](https://t.me/livelawindia/111481)
+
+---
+### 2026-05-21T16:59:03+00:00
+Advocate Devvrat Elected As SCAORA President; Nikhil Jain Vice President
+https://www.livelaw.in/top-stories/advocate-devvrat-elected-as-scaora-president-nikhil-jain-vice-president-535207
+
+[Read on Telegram](https://t.me/livelawindia/111482)
+
+---
+### 2026-05-21T17:17:44+00:00
+Supreme Court Daily Round-Up : May 21, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-21-2026-535205
+
+[Read on Telegram](https://t.me/livelawindia/111483)
+
+---
+### 2026-05-21T17:18:14+00:00
+Constitution Belongs Equally To All Citizens, Not A Privileged Few: CJI Surya Kant
+https://www.livelaw.in/top-stories/constitution-belongs-equally-to-all-citizens-not-a-privileged-few-cji-surya-kant-535210
+
+[Read on Telegram](https://t.me/livelawindia/111484)
 
 ---
