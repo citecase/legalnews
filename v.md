@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-21T10:02:40+00:00*
+*Last Updated: 2026-05-21T15:33:06+00:00*
+
+---
+
+### 2026-05-21T15:33:06+00:00
+“Master-Servant Relationship Ended On Retirement”: Patna High Court Sets Aside Recovery Of Employee’s Excess Salary Ordered After 12 Years Without Notice
+https://www.verdictum.in/patna-high-court/pitamber-jha-v-the-state-of-bihar-ors-pay-excess-recovery-retired-employee-1614418
+
+[Source Link](https://t.me/verdictumlegalupdates/27134)
+
+---
+
+### 2026-05-21T15:03:04+00:00
+Karnataka High Court Refuses Interim Bail To UAPA Accused In RSS Worker Rudresh Murder Case
+https://www.verdictum.in/karnataka-high-court/irfan-pasha-rudresh-r-2026khc24644-db-interim-bail-uapa-1614422
+
+[Source Link](https://t.me/verdictumlegalupdates/27133)
+
+---
+
+### 2026-05-21T14:33:03+00:00
+Copyright Vested With Saregama: Delhi High Court Upholds Injunction Against Recreation Of Tamil Song "En Iniya Pon Nilave"
+https://www.verdictum.in/delhi-high-court/mr-ilaiyaraaja-v-saregama-india-limited-2026dhc4556-db-en-iniya-pon-nilave-1614416
+
+[Source Link](https://t.me/verdictumlegalupdates/27132)
+
+---
+
+### 2026-05-21T14:02:41+00:00
+Hostel Staircase Collapse Case: Gujarat HC Discharges Engineers From Culpable Homicide Charge, Says Structural Defects Amount To Negligence In Absence Of Mens Rea
+https://www.verdictum.in/gujarat-high-court/anilkumar-chimanlal-dixit-v-state-of-gujarat-cr-ra-381-2019-1614415
+
+[Source Link](https://t.me/verdictumlegalupdates/27131)
+
+---
+
+### 2026-05-21T13:32:20+00:00
+Muslim Man Liable To Pay Maintenance To Wife Until Marriage Declared Void: Calcutta High Court Grants Relief to Hindu Woman
+https://www.verdictum.in/calcutta-high-court/a-v-the-state-of-west-bengal-anr-muslim-man-maintenance-wife-1614414
+
+[Source Link](https://t.me/verdictumlegalupdates/27130)
+
+---
+
+### 2026-05-21T13:02:29+00:00
+Supreme Court Designates Seven Former High Court Judges As Senior Advocates
+https://www.verdictum.in/supreme-court/seven-retired-high-court-judges-senior-advocates-1614421
+
+[Source Link](https://t.me/verdictumlegalupdates/27129)
+
+---
+
+### 2026-05-21T12:33:07+00:00
+Delhi High Court Protects Street Vendors From Eviction Until Town Vending Committees Formulate Final Plan
+https://www.verdictum.in/delhi-high-court/2026-dhc-4504-db-sumit-verma-v-state-of-nct-of-delhi-1614411
+
+[Source Link](https://t.me/verdictumlegalupdates/27128)
+
+---
+
+### 2026-05-21T12:02:26+00:00
+Principle Of Comity Of Courts Can’t Be Invoked To Seek Execution Of Foreign Court Orders Through Child Custody Habeas Corpus Petitions: Bombay High Court
+https://www.verdictum.in/bombay-high-court/ab-v-state-of-goa-ors-2026bhc-goa1021-db-vhild-custody-habeas-corpus-1614408
+
+[Source Link](https://t.me/verdictumlegalupdates/27127)
+
+---
+
+### 2026-05-21T11:33:04+00:00
+Mere Mention Of Place Of Arbitration Does Not Confer Seat Status Or Territorial Jurisdiction: Andhra Pradesh High Court
+https://www.verdictum.in/andhra-pradesh-high-court/carloyn-joyce-tadamala-v-royal-city-developer-private-limited-comcano27-of-2025-mere-mention-of-place-does-not-confer-seat-1614407
+
+[Source Link](https://t.me/verdictumlegalupdates/27126)
+
+---
+
+### 2026-05-21T11:03:03+00:00
+Punjab & Haryana HC Pulls Up State For Hyper-Technical Denial Of Medical Reimbursement, Orders DG Health Services To Identify Hospitals Violating Policy Framework
+https://www.verdictum.in/punjab-and-haryana-high-court/2026-phhc-69346-hukam-singh-v-state-of-haryana-1614405
+
+[Source Link](https://t.me/verdictumlegalupdates/27125)
+
+---
+
+### 2026-05-21T10:32:42+00:00
+Supreme Court Clarifies That Courts Can Hold Sedition Trials If Accused Has No Objection
+https://www.verdictum.in/supreme-court/trial-court-sedition-objection-1614406
+
+[Source Link](https://t.me/verdictumlegalupdates/27124)
 
 ---
 
@@ -73,94 +161,6 @@ Statutory Compensation Under MRTP Act Cannot Be Waived By Contract: Supreme Cour
 https://www.verdictum.in/supreme-court/brihanmumbai-municipal-corporation-v-vijay-nagar-apartments-2026-insc-517-statutory-compensation-cannot-be-waived-mrtp-1614383
 
 [Source Link](https://t.me/verdictumlegalupdates/27115)
-
----
-
-### 2026-05-21T05:32:56+00:00
-Director Of Institution Is "Employee" Under PoSH Act If Management Vests With Governing Body; Can Be Probed For Sexual Harassment By ICC: Kerala High Court
-https://www.verdictum.in/kerala-high-court/dr-j-sundaresan-pillai-v-dr-kk-seethalakshmi-2026ker33013-director-posh-act-1614376
-
-[Source Link](https://t.me/verdictumlegalupdates/27114)
-
----
-
-### 2026-05-21T05:03:15+00:00
-Ensure Filing Of Necessary Affidavit Of Assets & Liabilities In Maintenance Cases: Allahabad High Court Directs Trial Courts
-https://www.verdictum.in/allahabad-high-court/a-v-state-of-up-and-another-2026ahc115457-trial-courts-affidavit-maintenance-1614375
-
-[Source Link](https://t.me/verdictumlegalupdates/27113)
-
----
-
-### 2026-05-21T04:33:03+00:00
-‘Institutional Failures’: Allahabad High Court Slams NHRC, Asks CBI To Intervene In Custodial Death Case Pending For 16 Years
-https://www.verdictum.in/allahabad-high-court/association-for-advocacy-and-legal-initiatives-lko-v-state-of-up-custodial-death-1614354
-
-[Source Link](https://t.me/verdictumlegalupdates/27112)
-
----
-
-### 2026-05-20T16:03:10+00:00
-Law Officer Vacancy At Maharashtra Public Service Commission (MPSC)
-https://www.verdictum.in/job-updates/maharashtra-public-service-commission-1614348
-
-[Source Link](https://t.me/verdictumlegalupdates/27111)
-
----
-
-### 2026-05-20T15:32:09+00:00
-Supreme Court Raps Madhya Pradesh Government Counsels Over Chronic Absence
-https://www.verdictum.in/supreme-court/madhya-pradesh-government-counsels-absent-from-court-1614353
-
-[Source Link](https://t.me/verdictumlegalupdates/27110)
-
----
-
-### 2026-05-20T15:02:48+00:00
-Supreme Court Orders Formulation Of SOP For Free Treatment To EWS In Delhi's Private Hospitals Built On Concessional Land
-https://www.verdictum.in/supreme-court/economicall-weaker-section-high-level-meeting-sop-free-treatment-delhi-private-hospitals-1614352
-
-[Source Link](https://t.me/verdictumlegalupdates/27109)
-
----
-
-### 2026-05-20T14:32:26+00:00
-No Convincing Evidence To Show Penetration To Attract Rape Offence On The Date Of Occurrence: Kerala High Court Modifies Conviction To Attempt To Rape
-https://www.verdictum.in/kerala-high-court/suresh-kadakam-v-state-of-kerala-2026ker33900-injury-around-vaginal-orifice-not-rape-us-376-pre-2013-ipc-1614347
-
-[Source Link](https://t.me/verdictumlegalupdates/27108)
-
----
-
-### 2026-05-20T14:02:45+00:00
-Mere Failure To Sign First Information Statement Not Fatal If Informant Supports Prosecution Case Before Court: Kerala High Court Upholds POCSO Conviction
-https://www.verdictum.in/kerala-high-court/rahiman-v-state-of-kerala-2026ker34071-unsigned-first-information-statement-not-fatal-1614346
-
-[Source Link](https://t.me/verdictumlegalupdates/27107)
-
----
-
-### 2026-05-20T13:32:33+00:00
-Mere Existence Of Civil Dispute Between Parties Doesn't Bar Prosecution For Allegations Of Commission Of Offences: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/baburam-v-state-of-up-thru-prin-secy-home-lko-2026ahc-lko33434-discharge-application-1614345
-
-[Source Link](https://t.me/verdictumlegalupdates/27106)
-
----
-
-### 2026-05-20T13:03:12+00:00
-"Against Institutional Discipline": Kerala High Court Holds University Syndicate Cannot Litigate Against Chancellor’s Appellate Orders
-https://www.verdictum.in/kerala-high-court/mb-faisal-v-state-of-kerala-2025ker99000-university-syndicate-cannot-litigate-against-chancellor-1614344
-
-[Source Link](https://t.me/verdictumlegalupdates/27105)
-
----
-
-### 2026-05-20T12:32:51+00:00
-Departmental Corrigendum Cannot Curtail Stipend Granted Under Original Government Policy Without Governor’s Approval: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/ashwani-kumar-awasthi-v-state-of-uttar-pradesh-2026ahc112897-stipend-1614343
-
-[Source Link](https://t.me/verdictumlegalupdates/27104)
 
 ---
 
