@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-21T04:33:03+00:00*
+*Last Updated: 2026-05-21T10:02:40+00:00*
+
+---
+
+### 2026-05-21T10:02:40+00:00
+Magistrate Not Bound To Order FIR In Every Application U/S 175(3) BNSS; Can Treat Matter As Complaint Case Depending On Nature Of Evidence: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/roli-v-state-of-up-ors-2026ahc-lko39241-magistrate-fir-complaint-bnss-1614404
+
+[Source Link](https://t.me/verdictumlegalupdates/27123)
+
+---
+
+### 2026-05-21T09:32:59+00:00
+Pre-Cognizance Hearing Must Be Given To Accused Even If PMLA Complaint Was Filed Before BNSS Came Into Force: Supreme Court
+https://www.verdictum.in/supreme-court/parvinder-singh-v-directorate-of-enforcement-2026-insc-519-pmla-complaints-filed-before-bnss-1614403
+
+[Source Link](https://t.me/verdictumlegalupdates/27122)
+
+---
+
+### 2026-05-21T09:07:07+00:00
+Mere Allegation Of Cyber Fraud Involving Multiple Accused Cannot Be Mechanically Elevated Into Organised Crime U/S 111 BNS: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/vinay-baghla-ors-v-state-of-rajasthan-2026rj-jd21961-section-111-bns-1614402
+
+[Source Link](https://t.me/verdictumlegalupdates/27121)
+
+---
+
+### 2026-05-21T08:32:25+00:00
+Wife Cannot Be Denied Maintenance Solely For Being Postgraduate; Mere Non-Compliance Of Decree Of Restitution Of Conjugal Rights Not Enough To Reject Claim: Bombay High Court
+https://www.verdictum.in/bombay-high-court/x-v-y-anr-2026bhc-nag5952-1614399
+
+[Source Link](https://t.me/verdictumlegalupdates/27120)
+
+---
+
+### 2026-05-21T08:02:43+00:00
+Concurrent Conviction U/S.138 NI Act Can’t Be Overturned Merely Due To Absence Of Contention About Direct Personal Knowledge Of PoA Holder: Kerala High Court
+https://www.verdictum.in/karnataka-high-court/kannan-v-ms-adisiva-enterprises-2026ker33347-conviction-section-138-ni-act-1614397
+
+[Source Link](https://t.me/verdictumlegalupdates/27119)
+
+---
+
+### 2026-05-21T07:32:42+00:00
+Punjab State Grid Code| Strict Liability Penalty For Failure To Demonstrate Declared Power Capacity Does Not Require Mens Rea: Supreme Court
+https://www.verdictum.in/supreme-court/punjab-state-power-corporation-limited-v-talwandi-sabo-power-limited-2026-insc-515-strict-liability-penalty-mens-rea-1614391
+
+[Source Link](https://t.me/verdictumlegalupdates/27118)
+
+---
+
+### 2026-05-21T07:02:40+00:00
+Supreme Court Refuses To Modify Stay Order On Counting Of Votes For Bar Council Of Delhi Elections
+https://www.verdictum.in/supreme-court/stay-order-vote-counting-bar-council-of-delhi-election-1614389
+
+[Source Link](https://t.me/verdictumlegalupdates/27117)
+
+---
+
+### 2026-05-21T06:41:59+00:00
+"Mistaken Identity": Supreme Court Acquits Sri Lankan Refugee In UAPA Case Wrongly Identified As Absconding LTTE-Accused
+https://www.verdictum.in/supreme-court/sri-v-state-rep-by-the-inspector-of-police-q-branch-ramanathapuram-tamil-nadu-2026-insc-516-1614387
+
+[Source Link](https://t.me/verdictumlegalupdates/27116)
+
+---
+
+### 2026-05-21T06:02:17+00:00
+Statutory Compensation Under MRTP Act Cannot Be Waived By Contract: Supreme Court Reaffirms Landowners’ Right To Additional TDR
+https://www.verdictum.in/supreme-court/brihanmumbai-municipal-corporation-v-vijay-nagar-apartments-2026-insc-517-statutory-compensation-cannot-be-waived-mrtp-1614383
+
+[Source Link](https://t.me/verdictumlegalupdates/27115)
+
+---
+
+### 2026-05-21T05:32:56+00:00
+Director Of Institution Is "Employee" Under PoSH Act If Management Vests With Governing Body; Can Be Probed For Sexual Harassment By ICC: Kerala High Court
+https://www.verdictum.in/kerala-high-court/dr-j-sundaresan-pillai-v-dr-kk-seethalakshmi-2026ker33013-director-posh-act-1614376
+
+[Source Link](https://t.me/verdictumlegalupdates/27114)
+
+---
+
+### 2026-05-21T05:03:15+00:00
+Ensure Filing Of Necessary Affidavit Of Assets & Liabilities In Maintenance Cases: Allahabad High Court Directs Trial Courts
+https://www.verdictum.in/allahabad-high-court/a-v-state-of-up-and-another-2026ahc115457-trial-courts-affidavit-maintenance-1614375
+
+[Source Link](https://t.me/verdictumlegalupdates/27113)
 
 ---
 
@@ -73,94 +161,6 @@ Departmental Corrigendum Cannot Curtail Stipend Granted Under Original Governmen
 https://www.verdictum.in/allahabad-high-court/ashwani-kumar-awasthi-v-state-of-uttar-pradesh-2026ahc112897-stipend-1614343
 
 [Source Link](https://t.me/verdictumlegalupdates/27104)
-
----
-
-### 2026-05-20T12:02:29+00:00
-Filing Anticipatory Bail Petitions In Quick Succession Reduces Legal Process To Mere Gamble: Supreme Court Sets Aside Madras High Court Order
-https://www.verdictum.in/supreme-court/vasantha-v-state-of-tamil-nadu-2026-insc-513-anticipatory-bail-petition-legal-process-1614340
-
-[Source Link](https://t.me/verdictumlegalupdates/27103)
-
----
-
-### 2026-05-20T11:33:08+00:00
-Crime Scene Re-Enactment Not Per Se Testimonial Compulsion; Expert Analysis Based On It Admissible As Corroborative Evidence: Supreme Court
-https://www.verdictum.in/supreme-court/the-state-of-tamil-nadu-v-ponnusamy-2026-insc-507-crime-scene-re-enactment-not-testimonial-compulsion-1614339
-
-[Source Link](https://t.me/verdictumlegalupdates/27102)
-
----
-
-### 2026-05-20T11:02:26+00:00
-Filial Consortium Can Be Granted To Children For Having Lost Father’s Company: Supreme Court Enhances Motor Accident Compensation
-https://www.verdictum.in/supreme-court/smt-neelam-and-ors-v-ganga-singh-and-ors-2026-insc-512-filial-consortium-accident-compensation-1614338
-
-[Source Link](https://t.me/verdictumlegalupdates/27101)
-
----
-
-### 2026-05-20T10:32:25+00:00
-Apex Court Seeks Response From Centre & States On PIL Seeking 30% Quota For Women Lawyers In Government Panels & Law Officer Positions
-https://www.verdictum.in/supreme-court/30-reservation-women-lawyers-panel-law-officer-1614337
-
-[Source Link](https://t.me/verdictumlegalupdates/27100)
-
----
-
-### 2026-05-20T10:02:24+00:00
-Supreme Court Seeks Centre’s Response On Plea To Ban Sale Of Liquor In Tetra Packs
-https://www.verdictum.in/supreme-court/ban-sale-of-liquor-in-tetra-packs-1614333
-
-[Source Link](https://t.me/verdictumlegalupdates/27099)
-
----
-
-### 2026-05-20T09:32:22+00:00
-Supreme Court Refuses To Entertain Plea Seeking Protection, Audit & Regulation Of Sikh religious properties
-https://www.verdictum.in/supreme-court/sikh-religious-properties-audit-1614332
-
-[Source Link](https://t.me/verdictumlegalupdates/27098)
-
----
-
-### 2026-05-20T09:02:51+00:00
-Wife Secretly Marrying Off Daughter Without Informing Father Amounts To Mental Cruelty: Madras High Court Grants Divorce To Husband
-https://www.verdictum.in/madras-high-court/g-sridhar-v-s-komala-kumari-mental-cruelty-father-mother-daughter-marriage-1614330
-
-[Source Link](https://t.me/verdictumlegalupdates/27097)
-
----
-
-### 2026-05-20T08:32:49+00:00
-Should Not Support Any Party Contrary To The Law: Supreme Court Pulls Up Uttar Pradesh State Authorities For Filing Affidavits To Support Waitlisted Candidate
-https://www.verdictum.in/supreme-court/dr-manoj-kumar-rawat-v-state-of-up-2026-insc-508-affidavits-to-support-waitlisted-candidate-1614328
-
-[Source Link](https://t.me/verdictumlegalupdates/27096)
-
----
-
-### 2026-05-20T08:02:28+00:00
-Criminal Proceedings Against Accused Cannot Continue When Similarly Situated Co-Accused Stands Discharged: Supreme Court
-https://www.verdictum.in/supreme-court/susanta-kumar-dalei-susanta-kumar-dalai-v-state-of-odisha-vigilance-2026-insc-510-1614322
-
-[Source Link](https://t.me/verdictumlegalupdates/27095)
-
----
-
-### 2026-05-20T07:33:07+00:00
-Supreme Court Sets Aside Allahabad High Court Order Issuing Far Reaching Directions While Exercising Bail Jurisdiction U/S 483 Of BNSS
-https://www.verdictum.in/supreme-court/rambalak-v-state-of-up-2026-insc-511allahabad-hc-directions-bail-jurisdiction-bnss-1614318
-
-[Source Link](https://t.me/verdictumlegalupdates/27094)
-
----
-
-### 2026-05-20T07:03:05+00:00
-Job Of A Criminal Court Is Not To Order Loose Acquittals: Supreme Court Upholds Conviction In Dr Subbiah Murder Case
-https://www.verdictum.in/supreme-court/the-state-of-tamil-nadu-v-ponnusamy-2026-insc-507-dr-subbiah-murder-case-1614316
-
-[Source Link](https://t.me/verdictumlegalupdates/27093)
 
 ---
 
