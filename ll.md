@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-20T13:07:21+00:00*
+*Last Updated: 2026-05-20T14:40:27+00:00*
 
 ---
 
-### 2026-05-20T13:07:21+00:00
-'Involves Larger Public Interest': Gujarat High Court Denies Anticipatory Bail To Weapons Clerk Accused Of Issuing Bogus Arms Licenses
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-denies-anticipatory-bail-to-weapons-clerk-accused-of-issuing-bogus-arms-licenses-534995
-
-[Read on Telegram](https://t.me/livelawindia/111365)
-
----
-### 2026-05-20T13:08:31+00:00
-Telangana SLSA Conducts Rescue Operation; Over 500 Bonded Labourers Rescued From Brick Kilns In Nizamabad
-https://www.livelaw.in/news-updates/telangana-slsa-conducts-rescue-operation-over-500-bonded-labourers-rescued-from-brick-kilns-in-nizamabad-534998
-
-[Read on Telegram](https://t.me/livelawindia/111366)
-
----
-### 2026-05-20T13:10:11+00:00
-Advocate Mohammed Shah Appointed As Additional Advocate General Of Kerala
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-additional-advocate-general-534999
-
-[Read on Telegram](https://t.me/livelawindia/111367)
-
----
-### 2026-05-20T13:12:51+00:00
-Delhi High Court To Hear BJP MP Raghav Chadha's Suit For Protection Of Personality Rights Tomorrow
-https://www.livelaw.in/high-court/delhi-high-court/raghav-chadha-personality-rights-suit-hearing-may-21-535000
-
-[Read on Telegram](https://t.me/livelawindia/111368)
-
----
-### 2026-05-20T13:21:31+00:00
-Court Acquits Four Men In Delhi Riots Case, Says “Dangerous” To Rely On Police Witnesses
-https://www.livelaw.in/news-updates/court-acquits-four-men-in-delhi-riots-case-says-dangerous-to-rely-on-police-witnesses-535002
-
-[Read on Telegram](https://t.me/livelawindia/111369)
-
----
-### 2026-05-20T13:21:41+00:00
-Call For Papers: IJCL, NALSAR University Of Law Invites Submissions For Volume XIV & Special Issue; Deadline May 31
-https://www.livelaw.in/lawschool/call-for-papers/call-for-papers-ijcl-nalsar-university-law-invites-submissions-volume-xiv-special-issue-535003
-
-[Read on Telegram](https://t.me/livelawindia/111370)
-
----
-### 2026-05-20T13:42:41+00:00
-Calcutta High Court Weekly Round-Up: May 11 To May 17, 2026
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-weekly-round-up-may-11-to-may-17-2026-534922
-
-[Read on Telegram](https://t.me/livelawindia/111371)
-
----
-### 2026-05-20T14:06:07+00:00
-Pre-Cognizance Hearing Of Accused Mandatory For PMLA Complaint When Cognizance Taken After BNSS : Supreme Court
-https://www.livelaw.in/supreme-court/pre-cognizance-hearing-of-accused-mandatory-for-pmla-complaint-when-cognizance-taken-after-bnss-supreme-court-535010
-
-[Read on Telegram](https://t.me/livelawindia/111372)
-
----
-### 2026-05-20T14:11:27+00:00
-LiveLaw Daily | AAP PIL Dismissed | Women Lawyers Reservation | Savukku Shankar Bail | Mahua Moitra & more
-https://www.livelaw.in/podcast/livelaw-daily-livelaw-delhi-high-court-supreme-court-aap-arvind-kejriwal-manish-sisodia-contempt-case-women-lawyers-reservation-ladli-foundation-trust-savukku-shankar-madras-high-court-mahua-moitra-calcutta-high-court-caste-census-supreme-court-hearing-alcohol-tetra-packs-cadd-jk-high-court-virtual-hearings-dhurandhar-film-535011
-
-[Read on Telegram](https://t.me/livelawindia/111373)
-
----
-### 2026-05-20T14:32:47+00:00
-From Deference To Scrutiny: Standard of Care, Informed Consent And Regulatory Classification Of Stem Cell Therapies
-https://www.livelaw.in/articles/standard-of-care-informed-consent-regulatory-classification-stem-cell-therapies-534962
-
-[Read on Telegram](https://t.me/livelawindia/111374)
-
----
 ### 2026-05-20T14:40:27+00:00
 Landowners Can't Be Forced To Forgo Statutory Compensation To Receive Other Statutory Benefits : Supreme Court
 https://www.livelaw.in/supreme-court/landowners-cant-be-forced-to-forgo-statutory-compensation-to-receive-other-statutory-benefits-supreme-court-535014
@@ -142,5 +72,75 @@ Husband Can't Avoid Paying Maintenance To Wife, Children By Claiming Lack Of Reg
 https://www.livelaw.in/high-court/delhi-high-court/husband-cant-avoid-paying-maintenance-to-wife-children-by-claiming-lack-of-regular-income-delhi-high-court-535043
 
 [Read on Telegram](https://t.me/livelawindia/111384)
+
+---
+### 2026-05-21T02:19:21+00:00
+Supreme Court Daily Round-Up : May 20, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-20-2026-535052
+
+[Read on Telegram](https://t.me/livelawindia/111385)
+
+---
+### 2026-05-21T02:23:51+00:00
+'No New Dams In Uttarakhand's Upper River Ganga Basin; Only Ongoing 7 Hydel Projects Will Be Allowed': Union To Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-hydro-electric-projects-uttarakhand-upper-river-ganga-basin-union-affidavit-no-new-dams-allow-7-projects-535053
+
+[Read on Telegram](https://t.me/livelawindia/111386)
+
+---
+### 2026-05-21T03:19:54+00:00
+Assistant Professor (Law), Assistant Professor (Law), Visiting Faculty (Law) And Placement Officer Vacancy At Army Law College, Pune
+https://www.livelaw.in/job-updates/assistant-professor-law-assistant-professor-law-visiting-faculty-law-and-placement-officer-vacancy-at-army-law-college-pune-535054
+
+[Read on Telegram](https://t.me/livelawindia/111387)
+
+---
+### 2026-05-21T03:21:14+00:00
+Legal Cum Probation Officer Vacancy At District Child Protection Unit Mayiladuthurai
+https://www.livelaw.in/job-updates/legal-cum-probation-officer-vacancy-at-district-child-protection-unit-mayiladuthurai-535055
+
+[Read on Telegram](https://t.me/livelawindia/111388)
+
+---
+### 2026-05-21T03:32:14+00:00
+S.69 BNS | Refusal To Marry Citing Mother's Disapproval Prima Facie Smacks Of Mala Fides: Gujarat High Court Refuses To Quash FIR
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-refuses-to-quash-false-promise-of-marriage-fir-against-zambia-based-man-535044
+
+[Read on Telegram](https://t.me/livelawindia/111389)
+
+---
+### 2026-05-21T03:32:34+00:00
+Supreme Court Quarterly Digest 2026 - Negotiable Instruments Act
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-quarterly-digest-2026-negotiable-instruments-act-534604
+
+[Read on Telegram](https://t.me/livelawindia/111390)
+
+---
+### 2026-05-21T03:47:24+00:00
+Even Highly Qualified Persons Not Getting Jobs Due To Rising Unemployment: Bombay High Court Says Educated Wife Can't Be Denied Maintenance
+https://www.livelaw.in/high-court/bombay-high-court/educated-wife-maintenance-unemployment-prevanlent-535048
+
+[Read on Telegram](https://t.me/livelawindia/111391)
+
+---
+### 2026-05-21T04:02:24+00:00
+Social Resistance To Consensual Inter-Faith Relationship Led Prosecutrix To Shift Blame On Accused: Delhi High Court Acquits Man In Rape Case
+https://www.livelaw.in/high-court/delhi-high-court/rape-acquittal-consensual-inter-faith-relationship-social-resistance-535045
+
+[Read on Telegram](https://t.me/livelawindia/111392)
+
+---
+### 2026-05-21T04:04:24+00:00
+Delhi Consumer Commission Holds TATA AIA's Repudiation Of Life Insurance Claim Valid Over KYC Verification Failure
+https://www.livelaw.in/consumer-cases/delhi-consumer-commission-upholds-tata-aia-life-insurance-claim-repudiation-kyc-failure-535058
+
+[Read on Telegram](https://t.me/livelawindia/111393)
+
+---
+### 2026-05-21T04:07:04+00:00
+Chandigarh Consumer Commission Holds LIC Liable For Reduced Maturity Payout Under Jeevan Saral Policy
+https://www.livelaw.in/consumer-cases/chandigarh-consumer-commission-lic-jeevan-saral-policy-reduced-maturity-payout-535059
+
+[Read on Telegram](https://t.me/livelawindia/111394)
 
 ---
