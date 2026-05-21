@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-21T15:33:06+00:00*
+*Last Updated: 2026-05-21T16:02:27+00:00*
+
+---
+
+### 2026-05-21T16:02:27+00:00
+Haryana Public Service Commission (HPSC) Invites Applications For The Post Of Superintendent (Legal)
+https://www.verdictum.in/job-updates/haryana-public-service-commission-1614419
+
+[Source Link](https://t.me/verdictumlegalupdates/27135)
 
 ---
 
@@ -153,14 +161,6 @@ https://www.verdictum.in/supreme-court/stay-order-vote-counting-bar-council-of-d
 https://www.verdictum.in/supreme-court/sri-v-state-rep-by-the-inspector-of-police-q-branch-ramanathapuram-tamil-nadu-2026-insc-516-1614387
 
 [Source Link](https://t.me/verdictumlegalupdates/27116)
-
----
-
-### 2026-05-21T06:02:17+00:00
-Statutory Compensation Under MRTP Act Cannot Be Waived By Contract: Supreme Court Reaffirms Landowners’ Right To Additional TDR
-https://www.verdictum.in/supreme-court/brihanmumbai-municipal-corporation-v-vijay-nagar-apartments-2026-insc-517-statutory-compensation-cannot-be-waived-mrtp-1614383
-
-[Source Link](https://t.me/verdictumlegalupdates/27115)
 
 ---
 
