@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-21T16:02:27+00:00*
+*Last Updated: 2026-05-22T04:32:42+00:00*
+
+---
+
+### 2026-05-22T04:32:42+00:00
+Friendly Transactions Without Commercial Consideration Do Not Constitute Legally Enforceable Debt U/S 138 NI Act: Jharkhand High Court
+https://www.verdictum.in/jharkhand-high-court/md-masudul-haque-ansari-mh-ansari-v-the-state-of-jharkhand-ors-2026jhhc13634-1614420
+
+[Source Link](https://t.me/verdictumlegalupdates/27136)
 
 ---
 
@@ -153,14 +161,6 @@ Supreme Court Refuses To Modify Stay Order On Counting Of Votes For Bar Council 
 https://www.verdictum.in/supreme-court/stay-order-vote-counting-bar-council-of-delhi-election-1614389
 
 [Source Link](https://t.me/verdictumlegalupdates/27117)
-
----
-
-### 2026-05-21T06:41:59+00:00
-"Mistaken Identity": Supreme Court Acquits Sri Lankan Refugee In UAPA Case Wrongly Identified As Absconding LTTE-Accused
-https://www.verdictum.in/supreme-court/sri-v-state-rep-by-the-inspector-of-police-q-branch-ramanathapuram-tamil-nadu-2026-insc-516-1614387
-
-[Source Link](https://t.me/verdictumlegalupdates/27116)
 
 ---
 
