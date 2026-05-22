@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-22T10:56:07+00:00*
+*Last Updated: 2026-05-22T12:17:40+00:00*
 
 ---
 
-### 2026-05-22T10:56:07+00:00
-Punjab & Haryana High Court Grants Parole To Life Convict To Prepare Documents Lost In Fire Incident
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-grants-parole-to-life-convict-to-prepare-documents-lost-in-fire-incident-535318
-
-[Read on Telegram](https://t.me/livelawindia/111541)
-
----
-### 2026-05-22T11:01:56+00:00
-'If Both Parents Are IAS Officers, Why Should Children Have Reservation?' : Supreme Court
-https://www.livelaw.in/top-stories/if-both-parents-are-ias-officers-why-should-children-have-reservation-supreme-court-535320
-
-[Read on Telegram](https://t.me/livelawindia/111542)
-
----
-### 2026-05-22T11:13:16+00:00
-Refusal To Conduct Social Wedding After Notarized Marriage Does Not Convert Consensual Relationship Into Rape: Tripura High Court
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-refusal-conduct-social-wedding-convert-consensual-relationship-rape-535213
-
-[Read on Telegram](https://t.me/livelawindia/111543)
-
----
-### 2026-05-22T11:21:10+00:00
-Delhi Court Orders Protection For Witnesses, Homebuyers Allegedly Threatened In Money Laundering Case Against Swaraj Singh Yadav
-https://www.livelaw.in/news-updates/delhi-court-orders-protection-for-witnesses-homebuyers-allegedly-threatened-in-money-laundering-case-against-swaraj-singh-yadav-535323
-
-[Read on Telegram](https://t.me/livelawindia/111544)
-
----
-### 2026-05-22T11:22:10+00:00
-In Child Missing Cases, Proceed On Presumption Of Kidnapping : Supreme Court Issues Directions To Combat Child Trafficking
-https://www.livelaw.in/top-stories/in-child-missing-cases-proceed-on-presumption-of-kidnapping-supreme-court-issues-directions-to-combat-child-trafficking-535324
-
-[Read on Telegram](https://t.me/livelawindia/111545)
-
----
-### 2026-05-22T11:32:20+00:00
-Periodic Replacement, Maintenance Cost Of Prosthetic Limb Must Be Factored Into Motor Accident Compensation: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-motor-accident-prosthetic-leg-maintenance-replacement-535325
-
-[Read on Telegram](https://t.me/livelawindia/111546)
-
----
-### 2026-05-22T11:39:00+00:00
-Supreme Court Flags Shortage Of Public Prosecutors, Says It Causes Delays In Trials
-https://www.livelaw.in/top-stories/supreme-court-flags-shortage-of-public-prosecutors-says-it-causes-delays-in-trials-535326
-
-[Read on Telegram](https://t.me/livelawindia/111547)
-
----
-### 2026-05-22T11:44:20+00:00
-POSH Complaints Can't Be Probed By Parallel Inquiry Authority Outside ICC/LCC Mechanism: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-disciplinary-authority-sexual-harassment-posh-act-mp-civil-services-rules-535329
-
-[Read on Telegram](https://t.me/livelawindia/111548)
-
----
-### 2026-05-22T11:53:20+00:00
-Video Surveillance Of Village Lake Excessively Intrusive: Madras High Court Declines Installation Of CCTV To Prevent Illegal Fishing
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-cctv-surveillance-village-lake-excessive-intrusion-535330
-
-[Read on Telegram](https://t.me/livelawindia/111549)
-
----
 ### 2026-05-22T12:17:40+00:00
 'Objections Raised By Intervener Cannot Defeat Right Of Decree Holder To Withdraw Execution Proceedings': Uttarakhand High Court
 https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-objections-raised-right-decree-holder-withdraw-execution-proceedings-535214
@@ -142,5 +79,68 @@ Ballot Paper Option Retained In Law To Address Ground Realities; Authorities May
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-ballot-paper-option-retained-in-law-to-address-ground-realities-authorities-may-revert-from-evms-when-needed-535359
 
 [Read on Telegram](https://t.me/livelawindia/111560)
+
+---
+### 2026-05-22T14:57:37+00:00
+LiveLaw Daily | UAPA Bail Referred To Larger Bench | Umar Khalid Interim Bail | Twisha Sharma & More
+https://www.livelaw.in/podcast/livelaw-daily-livelaw-supreme-court-uapa-bail-ka-najeeb-umar-khalid-delhi-riots-larger-bench-reference-ncert-chapter-judiciary-michel-danino-alok-prasanna-kumar-suparna-diwakar-twisha-sharma-dowry-death-giribala-singh-bhojshala-kamal-maula-bhagwant-mann-chandigarh-bangladesh-deportation-sunali-khatun-kerala-nurses-strike-essential-service-legal-news-india-court-updates-535360
+
+[Read on Telegram](https://t.me/livelawindia/111561)
+
+---
+### 2026-05-22T15:02:17+00:00
+Once Probate Is Granted, Will Need Not Be Proved Afresh Under Section 68 Of Evidence Act: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/once-probate-granted-will-need-not-be-proved-afresh-under-section-68-of-evidence-act-delhi-high-court-535350
+
+[Read on Telegram](https://t.me/livelawindia/111562)
+
+---
+### 2026-05-22T15:23:47+00:00
+BCI Suspends License Of Advocate Samarth Singh Over Twisha Sharma Dowry Death Case
+https://www.livelaw.in/news-updates/bci-suspends-license-of-advocate-samarth-singh-over-twisha-sharma-dowry-death-case-535361
+
+[Read on Telegram](https://t.me/livelawindia/111563)
+
+---
+### 2026-05-22T15:29:07+00:00
+Supreme Court Clarifies 2025 Decision On Pension Of Retired HC Chief Justices, Judges; To Apply From Oct 2016 Onwards
+https://www.livelaw.in/top-stories/supreme-court-clarifies-2025-decision-on-pension-of-retired-hc-chief-justices-judges-to-apply-from-oct-2016-pay-commission-535362
+
+[Read on Telegram](https://t.me/livelawindia/111564)
+
+---
+### 2026-05-22T15:58:07+00:00
+Having Public Witnesses Who Turn Hostile May Do More Harm Than Good: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/having-public-witnesses-who-turn-hostile-may-do-more-harm-than-good-delhi-high-court-535352
+
+[Read on Telegram](https://t.me/livelawindia/111565)
+
+---
+### 2026-05-22T16:12:07+00:00
+“Right To Shelter Part Of Right To Life”: Calcutta High Court Directs Rehabilitation Of Tenant Before Demolition In Howrah
+https://www.livelaw.in/high-court/calcutta-high-court/right-to-shelter-part-of-right-to-life-calcutta-high-court-directs-rehabilitation-of-tenant-before-demolition-535364
+
+[Read on Telegram](https://t.me/livelawindia/111566)
+
+---
+### 2026-05-22T16:12:17+00:00
+'Child Marriages On Rise In UP': Allahabad HC Blames UP Police Failure To Book Grooms, Facilitators Under PCMA
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-blames-up-police-failure-grooms-facilitators-child-marriage-pcma-535365
+
+[Read on Telegram](https://t.me/livelawindia/111567)
+
+---
+### 2026-05-22T16:12:47+00:00
+Cattle Smuggling Cases Do Not Warrant Preventive Detention: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-bovine-smuggling-cases-do-not-warrant-preventive-detention-for-maintenance-of-public-order-court-quashes-psa-detention-535366
+
+[Read on Telegram](https://t.me/livelawindia/111568)
+
+---
+### 2026-05-22T18:36:42+00:00
+Jana Nayagan Movie Leak: Madras High Court Dismisses Bail Pleas Of Nine Accused Persons
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-jana-nayagan-movie-leak-bail-plea-dismissed-535367
+
+[Read on Telegram](https://t.me/livelawindia/111569)
 
 ---
