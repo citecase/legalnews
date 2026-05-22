@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-21T13:23:23+00:00*
+*Last Updated: 2026-05-21T13:48:03+00:00*
 
 ---
 
-### 2026-05-21T13:23:23+00:00
-Umar Khalid Moves High Court Seeking Interim Bail In Delhi Riots Case, Hearing Tomorrow
-https://www.livelaw.in/high-court/delhi-high-court/umar-khalid-moves-high-court-seeking-interim-bail-in-delhi-riots-case-hearing-tomorrow-535182
-
-[Read on Telegram](https://t.me/livelawindia/111465)
-
----
-### 2026-05-21T13:27:23+00:00
-Calcutta High Court Refuses To Stall Bengal's Cattle Slaughter Rules Ahead Of Eid, Orders State To Clarify 'Cow Sacrifice Not Religious Requirement'
-https://www.livelaw.in/top-stories/calcutta-high-court-refuses-to-stall-bengals-cattle-slaughter-rules-ahead-of-eid-orders-state-to-clarify-cow-sacrifice-not-religious-requirement-535183
-
-[Read on Telegram](https://t.me/livelawindia/111466)
-
----
-### 2026-05-21T13:38:23+00:00
-P&H High Court Imposes ₹6 Lakh Costs On Congress MLA Sukhpal Singh Khaira For Misusing Contempt Jurisdiction In Encroachment Dispute
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-imposes-6-lakh-costs-on-congress-mp-sukhpal-singh-khaira-535184
-
-[Read on Telegram](https://t.me/livelawindia/111467)
-
----
-### 2026-05-21T13:47:33+00:00
-Court Can't Order, Monitor Inquiry Against Cops For Delay In Investigation After Deciding Bail Plea: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/court-cant-order-monitor-inquiry-against-cops-for-delay-in-investigation-after-deciding-bail-plea-delhi-high-court-535042
-
-[Read on Telegram](https://t.me/livelawindia/111468)
-
----
 ### 2026-05-21T13:48:03+00:00
 Karnataka High Court Releases Gameskraft Founders' Plea Against ED Arrest From Vacation Bench, Posts Matter To June 03
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-declines-hearing-gameskraft-founders-arrest-challenge-535185
@@ -142,5 +114,33 @@ Constitution Belongs Equally To All Citizens, Not A Privileged Few: CJI Surya Ka
 https://www.livelaw.in/top-stories/constitution-belongs-equally-to-all-citizens-not-a-privileged-few-cji-surya-kant-535210
 
 [Read on Telegram](https://t.me/livelawindia/111484)
+
+---
+### 2026-05-22T02:09:40+00:00
+Bhojshala-Kamal Maula Dispute : Muslim Party Approaches Supreme Court Against MP HC Order Declaring Disputed Site Temple
+https://www.livelaw.in/top-stories/bhojshala-kamal-maula-dispute-muslim-party-approaches-supreme-court-against-mp-hc-order-declaring-disputed-site-temple-535222
+
+[Read on Telegram](https://t.me/livelawindia/111485)
+
+---
+### 2026-05-22T02:32:37+00:00
+Rajasthan High Court Takes Suo Motu Cognisance Of Acute Water Crisis In Jodhpur; Issues Interim Directions
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-suo-motu-cognizance-jodhpur-water-crisis-pollution-encroachment-traditional-water-bodies-535216
+
+[Read on Telegram](https://t.me/livelawindia/111486)
+
+---
+### 2026-05-22T03:32:47+00:00
+Bombay High Court Grants Parole To POCSO Convict To Construct New House After Old One Demolished For Navi Mumbai Airport Project
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-grants-parole-to-pocso-convict-to-construct-new-house-after-old-one-demolished-for-navi-mumbai-airport-project-535217
+
+[Read on Telegram](https://t.me/livelawindia/111487)
+
+---
+### 2026-05-22T04:02:07+00:00
+S.138 NI Act | Complainant Discharges Initial Burden Through Credible Testimony Unless Discredited In Cross-Examination: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/complainant-discharges-section-138-ni-act-discredited-cross-examination-kerala-high-court-535218
+
+[Read on Telegram](https://t.me/livelawindia/111488)
 
 ---
