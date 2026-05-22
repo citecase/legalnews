@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-22T15:33:04+00:00*
+*Last Updated: 2026-05-22T16:02:25+00:00*
+
+---
+
+### 2026-05-22T16:02:25+00:00
+Assistant Law Officer, Legal Assistant Vacancy At Delhi Pollution Control Committee (DPCC)
+https://www.verdictum.in/job-updates/delhi-pollution-control-committee-1614480
+
+[Source Link](https://t.me/verdictumlegalupdates/27159)
 
 ---
 
@@ -153,14 +161,6 @@ When Cheque Was Found To Be Wrote & Signed By Payer, Entries Showing Cheque In C
 https://www.verdictum.in/kerala-high-court/wilfred-jose-v-jayapal-2026ker33932-magistrate-cheque-payer-complainant-1614451
 
 [Source Link](https://t.me/verdictumlegalupdates/27140)
-
----
-
-### 2026-05-22T06:02:16+00:00
-Sacrifice Of Cow Is No Part Of Festival Of Id-Uz-Zuha: Calcutta High Court Upholds West Bengal Animal Slaughter Control Compliance Notice
-https://www.verdictum.in/calcutta-high-court/ramkrishna-pal-v-the-state-of-west-bengal-wpa-p-236-of-2026-bengals-animal-slaughter-compliance-notice-1614450
-
-[Source Link](https://t.me/verdictumlegalupdates/27139)
 
 ---
 
