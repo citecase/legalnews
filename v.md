@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-22T09:32:36+00:00*
+*Last Updated: 2026-05-22T15:33:04+00:00*
+
+---
+
+### 2026-05-22T15:33:04+00:00
+Allahabad High Court Suspends Administrative & Financial Powers Of Lucknow Mayor For Not Administering Oath To Elected Corporator
+https://www.verdictum.in/allahabad-high-court/lalit-tiwari-alias-lalit-kishore-tiwari-v-state-of-up-administrative-financial-powers-lucknow-mayor-1614490
+
+[Source Link](https://t.me/verdictumlegalupdates/27158)
+
+---
+
+### 2026-05-22T15:02:42+00:00
+Police Cannot Investigate Alleged Professional Misconduct Of An Advocate; Such Powers Vest With Bar Council: Bombay High Court
+https://www.verdictum.in/bombay-high-court/shekhar-kakasaheb-jagtap-v-state-of-maharashtra-anr-and-connected-matters-1614487
+
+[Source Link](https://t.me/verdictumlegalupdates/27157)
+
+---
+
+### 2026-05-22T14:33:01+00:00
+Time Frame Quite Large To Term Death As Proximate To Attract Last Seen Theory: Supreme Court Acquits Murder Accused
+https://www.verdictum.in/supreme-court/papan-sarkar-pranab-v-state-of-west-bengal-2026-insc-528-time-frame-death-proximate-1614486
+
+[Source Link](https://t.me/verdictumlegalupdates/27156)
+
+---
+
+### 2026-05-22T14:03:09+00:00
+“Exclusion Of Wife & Children Not A Suspicious Circumstance By Itself”: Supreme Court Upholds Unregistered Will In Favour Of Testator’s Sister
+https://www.verdictum.in/supreme-court/parvathi-nairthi-dead-ors-v-laxmi-nairthy-dead-through-lrs-ors-2026-insc-521-1614485
+
+[Source Link](https://t.me/verdictumlegalupdates/27155)
+
+---
+
+### 2026-05-22T13:33:07+00:00
+Bogus PwD Certificates Amount To Moral Turpitude: Bombay High Court Upholds Re-Assessment Of Employees’ Disability Status Amid Suspicious Surge
+https://www.verdictum.in/bombay-high-court/santosh-hiraman-lashkare-v-state-2026bhc-as22080-db-states-power-to-re-verify-disability-status-hearing-impairment-1614479
+
+[Source Link](https://t.me/verdictumlegalupdates/27154)
+
+---
+
+### 2026-05-22T13:02:46+00:00
+Supreme Court Questions Quota To Children Of Economically, Educationally Advanced Families In Backward Classes
+https://www.verdictum.in/supreme-court/supreme-court-questions-quota-to-children-of-economically-educationally-advanced-families-in-backward-classes-1614478
+
+[Source Link](https://t.me/verdictumlegalupdates/27153)
+
+---
+
+### 2026-05-22T12:33:05+00:00
+“Not The Manner In Which Tribunal Is To Decide An Appeal”: Kerala High Court Sets Aside LSG Tribunal’s Cryptic, Non-Speaking Order
+https://www.verdictum.in/kerala-high-court/renjini-kk-v-mannancherry-grama-panchayat-2026ker33874-tribunals-cryptic-non-speaking-order-1614476
+
+[Source Link](https://t.me/verdictumlegalupdates/27152)
+
+---
+
+### 2026-05-22T12:02:23+00:00
+“Right To Seek Termination Not Absolute”: J&K And Ladakh High Court Refuses Minor Rape Survivor's Plea To Terminate 27-Week Pregnancy
+https://www.verdictum.in/jammu-ladakh-high-court/self-x-v-union-territory-of-jammu-kashmir-ors-pregnancy-termination-1614474
+
+[Source Link](https://t.me/verdictumlegalupdates/27151)
+
+---
+
+### 2026-05-22T11:32:22+00:00
+Incorrect Accounting Practice Not Sufficient To Deprive Him Of Liberty: Delhi High Court Grants Anticipatory Bail To 71-Yr-Old Man In LLP Fraud Case
+https://www.verdictum.in/delhi-high-court/ghisulal-jain-v-state-of-nct-of-delhi-2026dhc4458-incorrect-accounting-practice-llp-fraud-1614473
+
+[Source Link](https://t.me/verdictumlegalupdates/27150)
+
+---
+
+### 2026-05-22T11:02:40+00:00
+Cannot Deny Regularization To Similarly Placed Employees After Regularizing 30,000 Workers: Supreme Court Grants Relief To Left-Out Muster Roll Workers In Assam
+https://www.verdictum.in/supreme-court/sukhendu-bhattacharjee-v-the-state-of-assam-2026-insc-523-umadevi-cant-defeat-equality-rights-regularizing-30000-workers-1614472
+
+[Source Link](https://t.me/verdictumlegalupdates/27149)
+
+---
+
+### 2026-05-22T10:32:59+00:00
+“Motive Is Irrelevant”: Supreme Court Upholds Conviction Of Husband Accused Of Murdering Wife By Strangulating Her
+https://www.verdictum.in/supreme-court/chetan-dashrath-gade-v-state-of-maharashtra-2026-insc-522-suicide-homicide-1614471
+
+[Source Link](https://t.me/verdictumlegalupdates/27148)
+
+---
+
+### 2026-05-22T10:02:38+00:00
+No Major Distinction: Delhi High Court Grants Bail To Delhi Riots Case Accused Salim Malik On Parity Ground
+https://www.verdictum.in/delhi-high-court/salim-malik-munna-v-state-through-sho-ps-special-cell-2026dhc4570-db-1614469
+
+[Source Link](https://t.me/verdictumlegalupdates/27147)
 
 ---
 
@@ -65,102 +161,6 @@ Sacrifice Of Cow Is No Part Of Festival Of Id-Uz-Zuha: Calcutta High Court Uphol
 https://www.verdictum.in/calcutta-high-court/ramkrishna-pal-v-the-state-of-west-bengal-wpa-p-236-of-2026-bengals-animal-slaughter-compliance-notice-1614450
 
 [Source Link](https://t.me/verdictumlegalupdates/27139)
-
----
-
-### 2026-05-22T05:32:35+00:00
-Wife Obtaining Government Job Would Constitute Change In Circumstances To Limit Maintenance Amount: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/a-v-state-of-up-and-another-2026ahc113439-wife-government-job-maintenance-1614417
-
-[Source Link](https://t.me/verdictumlegalupdates/27138)
-
----
-
-### 2026-05-22T05:03:13+00:00
-Anticipatory Bail Continues Even After Filing Of Charge Sheet: Karnataka High Court Reiterates
-https://www.verdictum.in/karnataka-high-court/nikhil-krishna-kankonkar-v-the-state-of-karnataka-2026khc-d6547-bail-1614413
-
-[Source Link](https://t.me/verdictumlegalupdates/27137)
-
----
-
-### 2026-05-22T04:32:42+00:00
-Friendly Transactions Without Commercial Consideration Do Not Constitute Legally Enforceable Debt U/S 138 NI Act: Jharkhand High Court
-https://www.verdictum.in/jharkhand-high-court/md-masudul-haque-ansari-mh-ansari-v-the-state-of-jharkhand-ors-2026jhhc13634-1614420
-
-[Source Link](https://t.me/verdictumlegalupdates/27136)
-
----
-
-### 2026-05-21T16:02:27+00:00
-Haryana Public Service Commission (HPSC) Invites Applications For The Post Of Superintendent (Legal)
-https://www.verdictum.in/job-updates/haryana-public-service-commission-1614419
-
-[Source Link](https://t.me/verdictumlegalupdates/27135)
-
----
-
-### 2026-05-21T15:33:06+00:00
-“Master-Servant Relationship Ended On Retirement”: Patna High Court Sets Aside Recovery Of Employee’s Excess Salary Ordered After 12 Years Without Notice
-https://www.verdictum.in/patna-high-court/pitamber-jha-v-the-state-of-bihar-ors-pay-excess-recovery-retired-employee-1614418
-
-[Source Link](https://t.me/verdictumlegalupdates/27134)
-
----
-
-### 2026-05-21T15:03:04+00:00
-Karnataka High Court Refuses Interim Bail To UAPA Accused In RSS Worker Rudresh Murder Case
-https://www.verdictum.in/karnataka-high-court/irfan-pasha-rudresh-r-2026khc24644-db-interim-bail-uapa-1614422
-
-[Source Link](https://t.me/verdictumlegalupdates/27133)
-
----
-
-### 2026-05-21T14:33:03+00:00
-Copyright Vested With Saregama: Delhi High Court Upholds Injunction Against Recreation Of Tamil Song "En Iniya Pon Nilave"
-https://www.verdictum.in/delhi-high-court/mr-ilaiyaraaja-v-saregama-india-limited-2026dhc4556-db-en-iniya-pon-nilave-1614416
-
-[Source Link](https://t.me/verdictumlegalupdates/27132)
-
----
-
-### 2026-05-21T14:02:41+00:00
-Hostel Staircase Collapse Case: Gujarat HC Discharges Engineers From Culpable Homicide Charge, Says Structural Defects Amount To Negligence In Absence Of Mens Rea
-https://www.verdictum.in/gujarat-high-court/anilkumar-chimanlal-dixit-v-state-of-gujarat-cr-ra-381-2019-1614415
-
-[Source Link](https://t.me/verdictumlegalupdates/27131)
-
----
-
-### 2026-05-21T13:32:20+00:00
-Muslim Man Liable To Pay Maintenance To Wife Until Marriage Declared Void: Calcutta High Court Grants Relief to Hindu Woman
-https://www.verdictum.in/calcutta-high-court/a-v-the-state-of-west-bengal-anr-muslim-man-maintenance-wife-1614414
-
-[Source Link](https://t.me/verdictumlegalupdates/27130)
-
----
-
-### 2026-05-21T13:02:29+00:00
-Supreme Court Designates Seven Former High Court Judges As Senior Advocates
-https://www.verdictum.in/supreme-court/seven-retired-high-court-judges-senior-advocates-1614421
-
-[Source Link](https://t.me/verdictumlegalupdates/27129)
-
----
-
-### 2026-05-21T12:33:07+00:00
-Delhi High Court Protects Street Vendors From Eviction Until Town Vending Committees Formulate Final Plan
-https://www.verdictum.in/delhi-high-court/2026-dhc-4504-db-sumit-verma-v-state-of-nct-of-delhi-1614411
-
-[Source Link](https://t.me/verdictumlegalupdates/27128)
-
----
-
-### 2026-05-21T12:02:26+00:00
-Principle Of Comity Of Courts Can’t Be Invoked To Seek Execution Of Foreign Court Orders Through Child Custody Habeas Corpus Petitions: Bombay High Court
-https://www.verdictum.in/bombay-high-court/ab-v-state-of-goa-ors-2026bhc-goa1021-db-vhild-custody-habeas-corpus-1614408
-
-[Source Link](https://t.me/verdictumlegalupdates/27127)
 
 ---
 
