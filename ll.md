@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-21T13:48:03+00:00*
+*Last Updated: 2026-05-22T06:33:04+00:00*
 
 ---
 
-### 2026-05-21T13:48:03+00:00
-Karnataka High Court Releases Gameskraft Founders' Plea Against ED Arrest From Vacation Bench, Posts Matter To June 03
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-declines-hearing-gameskraft-founders-arrest-challenge-535185
+### 2026-05-22T06:33:04+00:00
+Karnataka High Court Seeks State's Response On Alleged Non-Disbursal Of ₹2,000 Monthly Assistance Under 'Griha Lakshmi' Scheme
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-seeks-release-arrears-griha-lakshmi-yojana-535257
 
-[Read on Telegram](https://t.me/livelawindia/111469)
-
----
-### 2026-05-21T13:52:23+00:00
-Bengaluru Advocates Association Writes To Karnataka High Court CJ Opposing State Govt's Proposal To Establish Circuit Bench At Manguluru
-https://www.livelaw.in/news-updates/bengaluru-advocates-association-opposing-mangaluru-bench-state-government-rallies-circuit-bench-serve-coastal-districts-535187
-
-[Read on Telegram](https://t.me/livelawindia/111470)
+[Read on Telegram](https://t.me/livelawindia/111510)
 
 ---
-### 2026-05-21T14:00:23+00:00
-Husband's Failure To Explain Wife's Death In Matrimonial Home Draws Adverse Inference u/s 106 Evidence Act: Supreme Court Upholds Conviction
-https://www.livelaw.in/supreme-court/husbands-failure-to-explain-wifes-death-in-matrimonial-home-draws-adverse-inference-us-106-evidence-act-supreme-court-upholds-conviction-535190
+### 2026-05-22T06:34:44+00:00
+Chandigarh Admin Moves Supreme Court Against HC Judgment Quashing Rioting Case Against Punjab CM Bhagwant Mann
+https://www.livelaw.in/top-stories/supreme-court-aap-leaders-punjab-cm-bhagwant-mann-high-court-quashing-of-rioting-case-535264
 
-[Read on Telegram](https://t.me/livelawindia/111471)
-
----
-### 2026-05-21T14:01:43+00:00
-2026 LiveLaw (SC) 526 |  CHETAN DASHRATH GADE v. THE STATE OF MAHARASHTRA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-526-chetan-dashrath-gade-v-the-state-of-maharashtra-535191
-
-[Read on Telegram](https://t.me/livelawindia/111472)
+[Read on Telegram](https://t.me/livelawindia/111511)
 
 ---
-### 2026-05-21T14:12:13+00:00
-LiveLaw Daily | SC On BNSS Safeguards| Raghav Chadha Plea| Bengal Eid Slaughter Row and more
-https://www.livelaw.in/podcast/supreme-court-chief-justice-of-india-cji-surya-kant-judiciary-case-load-cases-lawyers-allahabad-high-court-india-news-535194
+### 2026-05-22T06:40:44+00:00
+BREAKING Delhi High Court Grants 3 Days Interim Bail To Umar Khalid Ahead Of Mother's Surgery
+https://www.livelaw.in/high-court/delhi-high-court/umar-khalid-delhi-riots-interim-bail-attend-mother-surgery-535266
 
-[Read on Telegram](https://t.me/livelawindia/111473)
-
----
-### 2026-05-21T14:18:33+00:00
-Ganga Iftar | Allahabad HC Grants Bail As Accused Apologise To Hindu Community, Vow Lifelong Respect For 'Maa Ganga'
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-grants-bail-ganga-boat-iftar-row-apology-hindu-community-535196
-
-[Read on Telegram](https://t.me/livelawindia/111474)
+[Read on Telegram](https://t.me/livelawindia/111512)
 
 ---
-### 2026-05-21T14:32:53+00:00
-More Judges, More Justice: Addressing The Needs Of Apex Court
-https://www.livelaw.in/lawschool/articles/addressing-needs-apex-court-534967
+### 2026-05-22T06:52:17+00:00
+Supreme Court Recalls Order Sending Petitions Challenging Hindu Religious Endowments Acts Of TN, AP & Telangana To High Courts
+https://www.livelaw.in/top-stories/supreme-court-recalls-order-sending-petitions-challenging-hindu-religious-endowments-acts-of-tn-ap-telangana-to-high-courts-535267
 
-[Read on Telegram](https://t.me/livelawindia/111475)
-
----
-### 2026-05-21T14:41:13+00:00
-Supreme Court Questions P&H High Court Order Quashing Chargesheet Over Forgery Allegations In 2002 Haryana Civil Service Recruitment
-https://www.livelaw.in/top-stories/supreme-court-calls-for-material-in-cheating-forgery-case-against-8-haryana-civil-service-officers-over-2002-recruitment-process-535199
-
-[Read on Telegram](https://t.me/livelawindia/111476)
+[Read on Telegram](https://t.me/livelawindia/111513)
 
 ---
-### 2026-05-21T14:49:33+00:00
-Preventive Detention | P&H High Court Quashes Confirmation Order For 'Non-Application Of Mind', Directs Release Of Detenue
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-confirmation-order-for-non-application-of-mind-directs-release-of-detenue-535200
+### 2026-05-22T07:02:24+00:00
+Punjab & Haryana High Court Weekly Round-Up: May11 - May 17, 2026
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-weekly-round-up-may11-may-17-2026-535242
 
-[Read on Telegram](https://t.me/livelawindia/111477)
-
----
-### 2026-05-21T15:04:33+00:00
-'Bail Jurisdiction Can't Be Used To Issue General Directions' : Supreme Court Sets Aside Allahabad HC Directives On Summons Service
-https://www.livelaw.in/supreme-court/bail-jurisdiction-cant-be-used-to-issue-general-directions-supreme-court-sets-aside-allahabad-hc-directives-on-summons-service-535201
-
-[Read on Telegram](https://t.me/livelawindia/111478)
+[Read on Telegram](https://t.me/livelawindia/111514)
 
 ---
-### 2026-05-21T15:05:33+00:00
-2026 LiveLaw (SC) 527 | Rambalak v State of UP
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-527-rambalak-v-state-of-up-535202
+### 2026-05-22T07:10:04+00:00
+Fire Breaks Out In Allahabad HC Courtroom; No One Injured
+https://www.livelaw.in/news-updates/fire-breaks-out-at-allahabad-high-court-no-one-injured-535271
 
-[Read on Telegram](https://t.me/livelawindia/111479)
-
----
-### 2026-05-21T15:16:43+00:00
-Protection Of Life Prevails Over Reproductive Choice: J&KL High Court Declines Termination Of 27-Week Pregnancy Of Minor Rape Survivor
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-preservation-and-protection-of-life-prevails-over-reproductive-choice-court-declines-termination-of-27-week-pregnancy-of-minor-rape-survivor-535203
-
-[Read on Telegram](https://t.me/livelawindia/111480)
+[Read on Telegram](https://t.me/livelawindia/111515)
 
 ---
-### 2026-05-21T15:33:43+00:00
-UAPA | J&K&L High Court Denies Bail To Baramulla Society Office Bearers Accused Of Promoting Secessionist Ideology Through Donations
-https://www.livelaw.in/high-court/jammu-kashmir/need-to-conduct-further-investigation-to-unearth-larger-conspiracy-jk-high-court-upholds-rejection-of-bail-for-president-and-secretary-of-idar-e-falah-u-darien-in-uapa-case-535204
+### 2026-05-22T07:17:24+00:00
+“Nurses Have No Right To Strike”: Kerala High Court Questions Why Nursing Services Aren't Declared 'Essential Service'
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-services-nurses-essential-service-535270
 
-[Read on Telegram](https://t.me/livelawindia/111481)
-
----
-### 2026-05-21T16:59:03+00:00
-Advocate Devvrat Elected As SCAORA President; Nikhil Jain Vice President
-https://www.livelaw.in/top-stories/advocate-devvrat-elected-as-scaora-president-nikhil-jain-vice-president-535207
-
-[Read on Telegram](https://t.me/livelawindia/111482)
+[Read on Telegram](https://t.me/livelawindia/111516)
 
 ---
-### 2026-05-21T17:17:44+00:00
-Supreme Court Daily Round-Up : May 21, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-21-2026-535205
+### 2026-05-22T07:32:44+00:00
+BREAKING| Supreme Court Recalls Order Blacklisting 3 Academics For NCERT Chapter On Judiciary, Removes Adverse Comments
+https://www.livelaw.in/top-stories/supreme-court-recalls-order-blacklisting-3-academics-involved-in-ncert-chapter-on-judiciary-removes-adverse-comments-535273
 
-[Read on Telegram](https://t.me/livelawindia/111483)
-
----
-### 2026-05-21T17:18:14+00:00
-Constitution Belongs Equally To All Citizens, Not A Privileged Few: CJI Surya Kant
-https://www.livelaw.in/top-stories/constitution-belongs-equally-to-all-citizens-not-a-privileged-few-cji-surya-kant-535210
-
-[Read on Telegram](https://t.me/livelawindia/111484)
+[Read on Telegram](https://t.me/livelawindia/111517)
 
 ---
-### 2026-05-22T02:09:40+00:00
-Bhojshala-Kamal Maula Dispute : Muslim Party Approaches Supreme Court Against MP HC Order Declaring Disputed Site Temple
-https://www.livelaw.in/top-stories/bhojshala-kamal-maula-dispute-muslim-party-approaches-supreme-court-against-mp-hc-order-declaring-disputed-site-temple-535222
+### 2026-05-22T07:32:54+00:00
+CrPC | Accused Has Absolute Right To Use Section 161 Statements To Contradict Witnesses During Cross-Examination: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-accused-cross-examination-previous-statement-535221
 
-[Read on Telegram](https://t.me/livelawindia/111485)
-
----
-### 2026-05-22T02:32:37+00:00
-Rajasthan High Court Takes Suo Motu Cognisance Of Acute Water Crisis In Jodhpur; Issues Interim Directions
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-suo-motu-cognizance-jodhpur-water-crisis-pollution-encroachment-traditional-water-bodies-535216
-
-[Read on Telegram](https://t.me/livelawindia/111486)
+[Read on Telegram](https://t.me/livelawindia/111518)
 
 ---
-### 2026-05-22T03:32:47+00:00
-Bombay High Court Grants Parole To POCSO Convict To Construct New House After Old One Demolished For Navi Mumbai Airport Project
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-grants-parole-to-pocso-convict-to-construct-new-house-after-old-one-demolished-for-navi-mumbai-airport-project-535217
+### 2026-05-22T07:48:04+00:00
+Foreign Nationals Have Right To Speedy Trial: Rajasthan High Court Grants Bail To Bangladeshi Approvers In 'Illegal Kidney Transplant' Case
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-bail-bangladeshi-approvers-illegal-kidney-transplant-case-535272
 
-[Read on Telegram](https://t.me/livelawindia/111487)
+[Read on Telegram](https://t.me/livelawindia/111519)
 
 ---
-### 2026-05-22T04:02:07+00:00
-S.138 NI Act | Complainant Discharges Initial Burden Through Credible Testimony Unless Discredited In Cross-Examination: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/complainant-discharges-section-138-ni-act-discredited-cross-examination-kerala-high-court-535218
+### 2026-05-22T08:10:14+00:00
+Centre Agrees In Supreme Court To Bring Back Some Persons Deported To Bangladesh & To Verify Citizenship Claim
+https://www.livelaw.in/top-stories/centre-agrees-in-supreme-court-to-bring-back-some-persons-deported-to-bangladesh-to-verify-citizenship-claim-535279
 
-[Read on Telegram](https://t.me/livelawindia/111488)
+[Read on Telegram](https://t.me/livelawindia/111520)
+
+---
+### 2026-05-22T08:16:16+00:00
+Regularisation Cannot Be Denied Solely Because Initial Appointment Was Not Against Sanctioned Post: Supreme Court
+https://www.livelaw.in/supreme-court/regularisation-cannot-be-denied-solely-because-initial-appointment-was-not-against-sanctioned-post-supreme-court-535280
+
+[Read on Telegram](https://t.me/livelawindia/111521)
+
+---
+### 2026-05-22T08:17:34+00:00
+2026 LiveLaw (SC) 529  | SUKHENDU BHATTACHARJEE AND OTHERS VERSUS THE STATE OF ASSAM AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-529-sukhendu-bhattacharjee-and-others-versus-the-state-of-assam-and-others-535281
+
+[Read on Telegram](https://t.me/livelawindia/111522)
+
+---
+### 2026-05-22T08:17:45+00:00
+Non-Installation Of CT Scan Machines In Doctor's Chamber Over Power Constraints Raises Serious Concern: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-non-installation-of-ct-scan-machines-due-to-lack-of-power-supply-court-impleads-power-corporations-seeks-probe-into-doctors-private-practice-535211
+
+[Read on Telegram](https://t.me/livelawindia/111523)
+
+---
+### 2026-05-22T08:24:40+00:00
+Supreme Court Faults HC Reading Of 'May' In Tender Document As 'Shall', Grants Relief To Contractor
+https://www.livelaw.in/supreme-court/supreme-court-faults-hc-reading-of-may-in-tender-document-as-shall-grants-relief-to-contractor-535285
+
+[Read on Telegram](https://t.me/livelawindia/111524)
+
+---
+### 2026-05-22T08:26:20+00:00
+2026 LiveLaw (SC) 530 |  RR CONSTRUCTIONS AND INFRASTRUCTURE INDIA PVT. LTD. Versus GAYATRI VENTURES AND ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-530-rr-constructions-and-infrastructure-india-pvt-ltd-versus-gayatri-ventures-and-ors-535286
+
+[Read on Telegram](https://t.me/livelawindia/111525)
+
+---
+### 2026-05-22T09:07:21+00:00
+Contempt Action Against Politicians No Ground To Deregister Their Political Party: Delhi High Court On AAP
+https://www.livelaw.in/high-court/delhi-high-court/aam-aadmi-party-no-de-registration-over-contempt-against-arvind-kejriwal-other-politicians-535291
+
+[Read on Telegram](https://t.me/livelawindia/111526)
+
+---
+### 2026-05-22T09:33:05+00:00
+False Promise To Marry
+https://www.livelaw.in/lawschool/articles/false-promise-section69-535247
+
+[Read on Telegram](https://t.me/livelawindia/111527)
+
+---
+### 2026-05-22T09:36:05+00:00
+After Over 4.5 Yrs In Custody, Supreme Court Grants Bail To UAPA Accused In Jammu & Kashmir Larger Conspiracy Case
+https://www.livelaw.in/top-stories/supreme-court-grants-bail-to-uapa-accused-suhail-ahmad-thokar-jammu-and-kashmir-larger-conspiracy-case-parity-trial-to-take-time-custody-period-535296
+
+[Read on Telegram](https://t.me/livelawindia/111528)
+
+---
+### 2026-05-22T09:36:15+00:00
+Twish Sharma Dowry Death Case: Madhya Pradesh High Court Directs Second Post Mortem By AIIMS Delhi Team
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-directs-second-post-mortem-by-aiims-delhi-team-535297
+
+[Read on Telegram](https://t.me/livelawindia/111529)
 
 ---
