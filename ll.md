@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-22T12:17:40+00:00*
+*Last Updated: 2026-05-22T14:03:07+00:00*
 
 ---
 
-### 2026-05-22T12:17:40+00:00
-'Objections Raised By Intervener Cannot Defeat Right Of Decree Holder To Withdraw Execution Proceedings': Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-objections-raised-right-decree-holder-withdraw-execution-proceedings-535214
-
-[Read on Telegram](https://t.me/livelawindia/111550)
-
----
-### 2026-05-22T12:43:10+00:00
-Tribunals Can't Dispose Appeals Through 'Cryptic Orders', Must Record Reasons: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/quasi-judicial-tribunals-dispose-of-appeals-cryptic-conclusions-535339
-
-[Read on Telegram](https://t.me/livelawindia/111551)
-
----
-### 2026-05-22T13:38:07+00:00
-'Intelligible Differentia': High Court Upholds Haryana Notification Removing Extended Retirement Age Benefit For Certain Disabled Employees
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/haryana-rule-disabled-employees-different-retirement-ages-distinct-category-service-535342
-
-[Read on Telegram](https://t.me/livelawindia/111552)
-
----
 ### 2026-05-22T14:03:07+00:00
 Backdoor Appointments Cannot Be Regularised: J&K&L High Court Dismisses Plea Of Junior Engineers Engaged On 'Hire & Fire' Basis For 9 Years
 https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-backdoor-appointments-cannot-be-regularised-court-dismisses-plea-of-junior-engineers-engaged-on-hire-and-fire-basis-for-9-years-535348
@@ -142,5 +121,26 @@ Jana Nayagan Movie Leak: Madras High Court Dismisses Bail Pleas Of Nine Accused 
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-jana-nayagan-movie-leak-bail-plea-dismissed-535367
 
 [Read on Telegram](https://t.me/livelawindia/111569)
+
+---
+### 2026-05-23T01:33:00+00:00
+Madras High Court Grants Anticipatory Bail To Ponraj For Remarks On TVK Women Supporters But Says He Should Have Exercised Caution
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ponraj-anticipatory-bail-granted-derogatory-remark-tvk-women-535368
+
+[Read on Telegram](https://t.me/livelawindia/111570)
+
+---
+### 2026-05-23T02:32:30+00:00
+Bombay High Court Stays Deployment Of Private Unaided, Minority School Teachers For Census Duties
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-stays-deployment-of-private-unaided-minority-school-teachers-for-census-duties-535369
+
+[Read on Telegram](https://t.me/livelawindia/111571)
+
+---
+### 2026-05-23T03:32:44+00:00
+BCI Rules Do Not Prohibit Advocate-Accused From Representing Co-Accused: MP High Court Quashes Cheating Case
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bar-council-of-india-rules-advocate-act-accused-counsel-permitted-to-representing-co-accused-535370
+
+[Read on Telegram](https://t.me/livelawindia/111572)
 
 ---
