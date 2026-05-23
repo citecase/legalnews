@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-23T07:20:58+00:00*
+*Last Updated: 2026-05-23T09:32:28+00:00*
 
 ---
 
-### 2026-05-23T07:20:58+00:00
-2026 LiveLaw (SC) 535 | BHAGAT SINGH VERSUS THE STATE OF UTTAR PRADESH AND ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-535-bhagat-singh-versus-the-state-of-uttar-pradesh-and-anr-535413
-
-[Read on Telegram](https://t.me/livelawindia/111592)
-
----
-### 2026-05-23T07:32:28+00:00
-Persons Acquitted Due To 'Unsound Mind' Can't Languish Indefinitely In Mental Institutions For Want Of Rehab Facilities: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-rehabilitation-unsoundness-mind-acquittal-535400
-
-[Read on Telegram](https://t.me/livelawindia/111593)
-
----
-### 2026-05-23T08:00:28+00:00
-Patna HC Refuses To Interfere With Packaging Of Rural Road Tenders, Says Courts Cannot Direct State To Structure Tender Conditions
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-refuses-interfere-packaging-rural-road-tenders-535424
-
-[Read on Telegram](https://t.me/livelawindia/111594)
-
----
-### 2026-05-23T08:02:48+00:00
-'Adverse Entry In Record Of Govt Employee Not Penalty, Does Not Require Issuing Showcause Notice': Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-adverse-entry-government-service-rules-show-cause-notice-535418
-
-[Read on Telegram](https://t.me/livelawindia/111595)
-
----
-### 2026-05-23T08:17:28+00:00
-Public Health Prevails Over Commercial Interests: J&K&L High Court Refuses To Quash Prosecution Against Amul Officials In Unsafe Milk Case
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-public-health-must-prevail-over-commercial-interests-court-refuses-to-quash-prosecution-against-amul-milk-officials-in-unsafe-milk-case-535425
-
-[Read on Telegram](https://t.me/livelawindia/111596)
-
----
-### 2026-05-23T08:32:58+00:00
-Popular Finance Scam: Kerala High Court Closes Plea Seeking Action On SFIO Investigation After Centre Says Criminal Complaints Already Filed
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-popular-finance-scam-winding-up-535404
-
-[Read on Telegram](https://t.me/livelawindia/111597)
-
----
-### 2026-05-23T08:47:58+00:00
-Substantial Compliance With Display Of Notice Under Land Acquisition Act Sufficient If Regional Language Newspaper Unavailable: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-substantial-compliance-with-section-41-land-acquisition-act-sufficient-if-regional-language-newspaper-not-available-court-reviews-earlier-judgment-quashing-acquisition-for-iust-535417
-
-[Read on Telegram](https://t.me/livelawindia/111598)
-
----
-### 2026-05-23T09:07:38+00:00
-Law Doesn't Require Registration Of Will; Non-Registration No Ground To Doubt Will's Genuineness: Supreme Court
-https://www.livelaw.in/top-stories/law-doesnt-require-registration-of-will-non-registration-no-ground-to-doubt-wills-genuineness-supreme-court-535358
-
-[Read on Telegram](https://t.me/livelawindia/111599)
-
----
-### 2026-05-23T09:31:08+00:00
-Refresher Training Programme For Mediators Held At Punjab & Haryana High Court's Mediation Centre
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-courts-mediation-centre-refresher-training-programme-for-mediators-535434
-
-[Read on Telegram](https://t.me/livelawindia/111600)
-
----
 ### 2026-05-23T09:32:28+00:00
 Absence Of Magistrate's Signature, Seal On Contraband Inventory Vitiates Prosecution Under Abkari Act: Kerala High Court
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-abkari-act-magistrate-inventory-sign-seal-535405
@@ -142,5 +79,68 @@ Repeated Brick Blows During Sudden Fight Between Intoxicated Friends Does Not At
 https://www.livelaw.in/high-court/delhi-high-court/repeated-brick-blows-during-sudden-fight-between-intoxicated-friends-does-not-attract-murder-charges-delhi-high-court-535422
 
 [Read on Telegram](https://t.me/livelawindia/111611)
+
+---
+### 2026-05-23T14:07:16+00:00
+Courts In Exercise Of Judicial Review Cannot Supply 'Deeming Fiction' Missing From Tender Conditions: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/courts-in-exercise-of-judicial-review-cannot-supply-deeming-fiction-missing-from-tender-conditions-delhi-high-court-535423
+
+[Read on Telegram](https://t.me/livelawindia/111612)
+
+---
+### 2026-05-23T14:33:06+00:00
+Pedagogy Of Power: How NCERT's 'Rationalisation' Fails Constitutional Test
+https://www.livelaw.in/articles/ncert-rationalisation-fails-constitutional-test-535346
+
+[Read on Telegram](https://t.me/livelawindia/111613)
+
+---
+### 2026-05-23T14:41:46+00:00
+Bombay High Court Stays Order Halting Journalist's Expulsion From Mumbai Press Club Over Inviting Bhima Koregaon Case Accused
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-expulsion-senior-journalist-mumbai-press-club-bhima-koregaon-elgar-parishad-535454
+
+[Read on Telegram](https://t.me/livelawindia/111614)
+
+---
+### 2026-05-23T14:43:26+00:00
+Mediation For The Nation: Lessons Learnt And Road Ahead
+https://www.livelaw.in/articles/mediation-for-the-nation-lessons-learnt-535455
+
+[Read on Telegram](https://t.me/livelawindia/111615)
+
+---
+### 2026-05-23T14:50:06+00:00
+'Hardcore Naxalite, Can't Be Welcomed With Bouquet' : Supreme Court Dismisses Plea Seeking Probe Into Maoist's Death In Encounter
+https://www.livelaw.in/top-stories/hardcore-naxalite-cant-be-welcomed-with-bouquet-supreme-court-dismisses-plea-seeking-probe-into-maoists-death-in-encounter-535459
+
+[Read on Telegram](https://t.me/livelawindia/111616)
+
+---
+### 2026-05-23T14:56:46+00:00
+Supreme Court To List Over 7,300 Cases During Partial Court Working Days; Fresh Matters Including Bail Pleas To Be Taken Up
+https://www.livelaw.in/top-stories/supreme-court-to-list-over-7300-cases-during-partial-court-working-days-fresh-matters-including-bail-pleas-to-be-taken-up-535460
+
+[Read on Telegram](https://t.me/livelawindia/111617)
+
+---
+### 2026-05-23T15:52:17+00:00
+High Court of Jammu & Kashmir And Ladakh Designates 15 Lawyers As Senior Advocates
+https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-designates-15-advocates-as-senior-advocates-535466
+
+[Read on Telegram](https://t.me/livelawindia/111618)
+
+---
+### 2026-05-23T16:23:28+00:00
+BREAKING | Supreme Court Takes Suo Motu Cognisance Over Twisha Sharma Dowry Death Case
+https://www.livelaw.in/top-stories/supreme-court-takes-suo-motu-cognisance-over-twisha-sharma-dowry-death-case-535468
+
+[Read on Telegram](https://t.me/livelawindia/111619)
+
+---
+### 2026-05-23T16:28:48+00:00
+SC Collegium Recommends Appointment Of Sikkim HC Judge Meenakshi Rai As Patna HC Chief Justice
+https://www.livelaw.in/high-court/patna-high-court/sc-collegium-recommends-appointment-of-sikkim-hc-judge-meenakshi-rai-as-patna-hc-chief-justice-535469
+
+[Read on Telegram](https://t.me/livelawindia/111620)
 
 ---
