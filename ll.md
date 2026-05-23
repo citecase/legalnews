@@ -1,114 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-23T04:39:34+00:00*
+*Last Updated: 2026-05-23T07:20:58+00:00*
 
 ---
 
-### 2026-05-23T04:39:34+00:00
-35-40% Advocates Are Fake : Bar Council Of India Chairperson
-https://www.livelaw.in/top-stories/35-40-advocates-are-fake-bar-council-of-india-chairperson-535382
-
-[Read on Telegram](https://t.me/livelawindia/111577)
-
----
-### 2026-05-23T04:47:14+00:00
-Allahabad HC Grants Interim Protection From Arrest To Bhim Army Leader Accused Of Calling CM Yogi 'Moorkmantri'
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-interim-protection-arrest-bhim-army-leader-accused-cm-yogi-moorkmantri-535385
-
-[Read on Telegram](https://t.me/livelawindia/111578)
-
----
-### 2026-05-23T05:02:34+00:00
-Disciplinary Proceedings Beyond Court-Fixed Timeline Can Be Interdicted If No Bona Fide Attempt Made To Seek Extension: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-disciplinary-order-beyond-time-limit-extension-535373
-
-[Read on Telegram](https://t.me/livelawindia/111579)
-
----
-### 2026-05-23T05:06:14+00:00
-Statement Of Accused Absolving Himself & Incriminating Co-Accused Not Reliable  : Supreme Court
-https://www.livelaw.in/supreme-court/statement-of-accused-absolving-himself-incriminating-co-accused-not-reliable-supreme-court-535389
-
-[Read on Telegram](https://t.me/livelawindia/111580)
-
----
-### 2026-05-23T05:07:54+00:00
-2026 LiveLaw (SC) 532 |  Papan Sarkar @ Pranab Versus State of West Bengal
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-532-papan-sarkar-pranab-versus-state-of-west-bengal-535391
-
-[Read on Telegram](https://t.me/livelawindia/111581)
-
----
-### 2026-05-23T05:09:34+00:00
-Assistant Law Officer And Legal Assistant Vacancy At Delhi Pollution Control Committee (DPCC), Government Of NCT Of Delhi
-https://www.livelaw.in/job-updates/assistant-law-officer-and-legal-assistant-vacancy-at-delhi-pollution-control-committee-dpcc-government-of-nct-of-delhi-535392
-
-[Read on Telegram](https://t.me/livelawindia/111582)
-
----
-### 2026-05-23T05:10:34+00:00
-2026 LiveLaw (SC) 533 | TASLEEM AHMED v STATE GOVT. OF NCT OF DELH
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-533-tasleem-ahmed-v-state-govt-of-nct-of-delh-535393
-
-[Read on Telegram](https://t.me/livelawindia/111583)
-
----
-### 2026-05-23T05:13:14+00:00
-Judicial Research Assistant Vacancy At High Court Of Judicature At Bombay
-https://www.livelaw.in/job-updates/judicial-research-assistant-vacancy-at-high-court-of-judicature-at-bombay-535394
-
-[Read on Telegram](https://t.me/livelawindia/111584)
-
----
-### 2026-05-23T05:14:34+00:00
-Senior Associate (Legal) Vacancy At Meesho Limited
-https://www.livelaw.in/job-updates/senior-associate-legal-vacancy-at-meesho-limited-535395
-
-[Read on Telegram](https://t.me/livelawindia/111585)
-
----
-### 2026-05-23T05:48:27+00:00
-Intermediary Can't Decide If Online Content Is Defamatory; Duty To Takedown Arises Only On Court Order Or Govt Notification: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/intermediaries-not-bound-to-remove-allegedly-defamatory-content-without-court-order-535396
-
-[Read on Telegram](https://t.me/livelawindia/111586)
-
----
-### 2026-05-23T06:16:47+00:00
-Consultant (Tax) Vacancy At Ernst & Young [New Delhi; Apply Now]
-https://www.livelaw.in/job-updates/consultant-tax-vacancy-at-ernst-young-new-delhi-apply-now-535398
-
-[Read on Telegram](https://t.me/livelawindia/111587)
-
----
-### 2026-05-23T06:32:48+00:00
-Allahabad High Court Imposes ₹20,000 Costs Each On Lucknow DM, ADM (Judicial) For Acting Without Jurisdiction
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-imposes-cost-dm-adm-acting-without-jurisdiction-up-revenue-code-535397
-
-[Read on Telegram](https://t.me/livelawindia/111588)
-
----
-### 2026-05-23T07:07:18+00:00
-Burden To Prove GPA Transactions Were Loan Security, Not Sale, On Plaintiff; Mere Fraud Allegations Insufficient : Supreme Court
-https://www.livelaw.in/top-stories/burden-to-prove-gpa-transactions-were-loan-security-not-sale-on-plaintiff-mere-fraud-allegations-insufficient-supreme-court-535409
-
-[Read on Telegram](https://t.me/livelawindia/111589)
-
----
-### 2026-05-23T07:08:18+00:00
-2026 LiveLaw (SC) 534 | Mallika v. R. Nallathambi & Ors
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-534-mallika-v-r-nallathambi-ors-535410
-
-[Read on Telegram](https://t.me/livelawindia/111590)
-
----
-### 2026-05-23T07:19:58+00:00
-Non-Mention Of Accused In Inquest Report Does Not By Itself Suggest Innocence: Supreme Court
-https://www.livelaw.in/supreme-court/non-mention-of-accused-in-inquest-report-does-not-by-itself-suggest-innocence-supreme-court-535412
-
-[Read on Telegram](https://t.me/livelawindia/111591)
-
----
 ### 2026-05-23T07:20:58+00:00
 2026 LiveLaw (SC) 535 | BHAGAT SINGH VERSUS THE STATE OF UTTAR PRADESH AND ANR.
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-535-bhagat-singh-versus-the-state-of-uttar-pradesh-and-anr-535413
@@ -142,5 +37,110 @@ Public Health Prevails Over Commercial Interests: J&K&L High Court Refuses To Qu
 https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-public-health-must-prevail-over-commercial-interests-court-refuses-to-quash-prosecution-against-amul-milk-officials-in-unsafe-milk-case-535425
 
 [Read on Telegram](https://t.me/livelawindia/111596)
+
+---
+### 2026-05-23T08:32:58+00:00
+Popular Finance Scam: Kerala High Court Closes Plea Seeking Action On SFIO Investigation After Centre Says Criminal Complaints Already Filed
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-popular-finance-scam-winding-up-535404
+
+[Read on Telegram](https://t.me/livelawindia/111597)
+
+---
+### 2026-05-23T08:47:58+00:00
+Substantial Compliance With Display Of Notice Under Land Acquisition Act Sufficient If Regional Language Newspaper Unavailable: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-substantial-compliance-with-section-41-land-acquisition-act-sufficient-if-regional-language-newspaper-not-available-court-reviews-earlier-judgment-quashing-acquisition-for-iust-535417
+
+[Read on Telegram](https://t.me/livelawindia/111598)
+
+---
+### 2026-05-23T09:07:38+00:00
+Law Doesn't Require Registration Of Will; Non-Registration No Ground To Doubt Will's Genuineness: Supreme Court
+https://www.livelaw.in/top-stories/law-doesnt-require-registration-of-will-non-registration-no-ground-to-doubt-wills-genuineness-supreme-court-535358
+
+[Read on Telegram](https://t.me/livelawindia/111599)
+
+---
+### 2026-05-23T09:31:08+00:00
+Refresher Training Programme For Mediators Held At Punjab & Haryana High Court's Mediation Centre
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-courts-mediation-centre-refresher-training-programme-for-mediators-535434
+
+[Read on Telegram](https://t.me/livelawindia/111600)
+
+---
+### 2026-05-23T09:32:28+00:00
+Absence Of Magistrate's Signature, Seal On Contraband Inventory Vitiates Prosecution Under Abkari Act: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-abkari-act-magistrate-inventory-sign-seal-535405
+
+[Read on Telegram](https://t.me/livelawindia/111601)
+
+---
+### 2026-05-23T09:32:38+00:00
+Illusion Of Digital Convenience
+https://www.livelaw.in/articles/illusion-digital-convenience-535345
+
+[Read on Telegram](https://t.me/livelawindia/111602)
+
+---
+### 2026-05-23T10:02:08+00:00
+Declaring Person History-Sheeter Must Be Based On Reasonable Belief Due To Objective Material: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-subjective-satisfaction-for-declaring-person-history-sheeter-must-be-based-on-reasonable-belief-founded-on-objective-material-535419
+
+[Read on Telegram](https://t.me/livelawindia/111603)
+
+---
+### 2026-05-23T10:32:18+00:00
+Employees Of Aided, Unaided Private Institutions Prima Facie Not Liable For Any Task Under Census Act: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-employees-aided-unaided-institutions-liable-task-census-act1948-535406
+
+[Read on Telegram](https://t.me/livelawindia/111604)
+
+---
+### 2026-05-23T10:57:49+00:00
+Property Disputes Between In-Laws & Daughter-In-Law Not Within Exclusive Jurisdiction Of Family Court: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/property-disputes-between-in-laws-daughter-in-law-not-within-exclusive-jurisdiction-of-family-court-delhi-high-court-535420
+
+[Read on Telegram](https://t.me/livelawindia/111605)
+
+---
+### 2026-05-23T11:32:48+00:00
+Order VI Rule17 CPC | Mere Delay In Seeking Amendment Of Pleadings Not Ground To Reject It: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-delay-reject-pleading-amendment-order6rule17-cpc-535408
+
+[Read on Telegram](https://t.me/livelawindia/111606)
+
+---
+### 2026-05-23T11:45:59+00:00
+Twisha Sharma Dowry Death Case: Bhopal Court Remands Husband Samarth Singh To 7-Day Police Custody
+https://www.livelaw.in/news-updates/twisha-sharma-dowry-death-case-bhopal-court-remands-samarth-singh-to-7-day-police-custody-535446
+
+[Read on Telegram](https://t.me/livelawindia/111607)
+
+---
+### 2026-05-23T11:58:18+00:00
+“Requires Courage To Report Sexual Assault Even Today, What About 25 Yrs Back”: Delhi High Court On Omission In Survivor's Testimony
+https://www.livelaw.in/high-court/delhi-high-court/requires-courage-to-report-sexual-assault-even-today-what-about-25-yrs-back-delhi-high-court-on-omission-in-survivors-testimony-535421
+
+[Read on Telegram](https://t.me/livelawindia/111608)
+
+---
+### 2026-05-23T12:06:38+00:00
+Delhi High Court Permits Wrestler Vinesh Phogat To Participate In Asian Games Selection Trials, Says WFI's Policy 'Exclusionary'
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-permits-wrestler-vinesh-phogat-to-participate-in-2026-asian-games-selection-trials-535448
+
+[Read on Telegram](https://t.me/livelawindia/111609)
+
+---
+### 2026-05-23T12:32:26+00:00
+Road Accident | Driver's Conduct In Immediately Taking Victim To Hospital Merits Leniency In Sentence: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-modifies-sentence-accident-victim-hospital-imposes-enhanced-compensation-535432
+
+[Read on Telegram](https://t.me/livelawindia/111610)
+
+---
+### 2026-05-23T12:57:46+00:00
+Repeated Brick Blows During Sudden Fight Between Intoxicated Friends Does Not Attract Murder Charges: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/repeated-brick-blows-during-sudden-fight-between-intoxicated-friends-does-not-attract-murder-charges-delhi-high-court-535422
+
+[Read on Telegram](https://t.me/livelawindia/111611)
 
 ---
