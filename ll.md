@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-22T14:03:07+00:00*
+*Last Updated: 2026-05-23T04:39:34+00:00*
 
 ---
 
-### 2026-05-22T14:03:07+00:00
-Backdoor Appointments Cannot Be Regularised: J&K&L High Court Dismisses Plea Of Junior Engineers Engaged On 'Hire & Fire' Basis For 9 Years
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-backdoor-appointments-cannot-be-regularised-court-dismisses-plea-of-junior-engineers-engaged-on-hire-and-fire-basis-for-9-years-535348
+### 2026-05-23T04:39:34+00:00
+35-40% Advocates Are Fake : Bar Council Of India Chairperson
+https://www.livelaw.in/top-stories/35-40-advocates-are-fake-bar-council-of-india-chairperson-535382
 
-[Read on Telegram](https://t.me/livelawindia/111553)
-
----
-### 2026-05-22T14:17:07+00:00
-Supreme Court Expands Meaning Of 'Unchastity', Says Threat To Leak Woman's Bathing Video Punishable Under S.506 IPC
-https://www.livelaw.in/supreme-court/supreme-court-expands-meaning-of-unchastity-says-threat-to-leak-womans-bathing-video-punishable-under-s506-ipc-535353
-
-[Read on Telegram](https://t.me/livelawindia/111554)
+[Read on Telegram](https://t.me/livelawindia/111577)
 
 ---
-### 2026-05-22T14:18:27+00:00
-Allahabad HC Again Takes Aim At UP's Gun Culture; Seeks Details Of Arms Licences Held By Brij Bhushan, Others
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-takes-aim-up-gun-culture-details-arms-licences-brij-bhushan-raja-bhaiya-535354
+### 2026-05-23T04:47:14+00:00
+Allahabad HC Grants Interim Protection From Arrest To Bhim Army Leader Accused Of Calling CM Yogi 'Moorkmantri'
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-interim-protection-arrest-bhim-army-leader-accused-cm-yogi-moorkmantri-535385
 
-[Read on Telegram](https://t.me/livelawindia/111555)
-
----
-### 2026-05-22T14:19:07+00:00
-2026 LiveLaw (SC) 531 | VIJAYAKUMAR VERSUS STATE OF TAMIL NADU
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-531-vijayakumar-versus-state-of-tamil-nadu-535355
-
-[Read on Telegram](https://t.me/livelawindia/111556)
+[Read on Telegram](https://t.me/livelawindia/111578)
 
 ---
-### 2026-05-22T14:26:58+00:00
-49 Of 217 Indians Who Joined Russian Forces To Fight Ukraine War Dead : Union To Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-russia-ukraine-war-union-informs-mortal-remains-of-8-persons-brought-back-several-dead-missing-dna-match-underway-535356
+### 2026-05-23T05:02:34+00:00
+Disciplinary Proceedings Beyond Court-Fixed Timeline Can Be Interdicted If No Bona Fide Attempt Made To Seek Extension: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-disciplinary-order-beyond-time-limit-extension-535373
 
-[Read on Telegram](https://t.me/livelawindia/111557)
-
----
-### 2026-05-22T14:27:37+00:00
-“No Effort Was Made By Trial Judge To Analyse Evidence”: Calcutta High Court Acquits College Professor In POCSO Case
-https://www.livelaw.in/high-court/calcutta-high-court/no-effort-was-made-by-trial-judge-to-analyse-evidence-calcutta-high-court-acquits-college-professor-in-pocso-case-535357
-
-[Read on Telegram](https://t.me/livelawindia/111558)
+[Read on Telegram](https://t.me/livelawindia/111579)
 
 ---
-### 2026-05-22T14:32:37+00:00
-Labour, Legality And Illusion Of Equality
-https://www.livelaw.in/articles/labour-legality-illusion-equality-535319
+### 2026-05-23T05:06:14+00:00
+Statement Of Accused Absolving Himself & Incriminating Co-Accused Not Reliable  : Supreme Court
+https://www.livelaw.in/supreme-court/statement-of-accused-absolving-himself-incriminating-co-accused-not-reliable-supreme-court-535389
 
-[Read on Telegram](https://t.me/livelawindia/111559)
-
----
-### 2026-05-22T14:44:37+00:00
-Ballot Paper Option Retained In Law To Address Ground Realities; Authorities May Revert From EVMs When Needed: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-ballot-paper-option-retained-in-law-to-address-ground-realities-authorities-may-revert-from-evms-when-needed-535359
-
-[Read on Telegram](https://t.me/livelawindia/111560)
+[Read on Telegram](https://t.me/livelawindia/111580)
 
 ---
-### 2026-05-22T14:57:37+00:00
-LiveLaw Daily | UAPA Bail Referred To Larger Bench | Umar Khalid Interim Bail | Twisha Sharma & More
-https://www.livelaw.in/podcast/livelaw-daily-livelaw-supreme-court-uapa-bail-ka-najeeb-umar-khalid-delhi-riots-larger-bench-reference-ncert-chapter-judiciary-michel-danino-alok-prasanna-kumar-suparna-diwakar-twisha-sharma-dowry-death-giribala-singh-bhojshala-kamal-maula-bhagwant-mann-chandigarh-bangladesh-deportation-sunali-khatun-kerala-nurses-strike-essential-service-legal-news-india-court-updates-535360
+### 2026-05-23T05:07:54+00:00
+2026 LiveLaw (SC) 532 |  Papan Sarkar @ Pranab Versus State of West Bengal
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-532-papan-sarkar-pranab-versus-state-of-west-bengal-535391
 
-[Read on Telegram](https://t.me/livelawindia/111561)
-
----
-### 2026-05-22T15:02:17+00:00
-Once Probate Is Granted, Will Need Not Be Proved Afresh Under Section 68 Of Evidence Act: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/once-probate-granted-will-need-not-be-proved-afresh-under-section-68-of-evidence-act-delhi-high-court-535350
-
-[Read on Telegram](https://t.me/livelawindia/111562)
+[Read on Telegram](https://t.me/livelawindia/111581)
 
 ---
-### 2026-05-22T15:23:47+00:00
-BCI Suspends License Of Advocate Samarth Singh Over Twisha Sharma Dowry Death Case
-https://www.livelaw.in/news-updates/bci-suspends-license-of-advocate-samarth-singh-over-twisha-sharma-dowry-death-case-535361
+### 2026-05-23T05:09:34+00:00
+Assistant Law Officer And Legal Assistant Vacancy At Delhi Pollution Control Committee (DPCC), Government Of NCT Of Delhi
+https://www.livelaw.in/job-updates/assistant-law-officer-and-legal-assistant-vacancy-at-delhi-pollution-control-committee-dpcc-government-of-nct-of-delhi-535392
 
-[Read on Telegram](https://t.me/livelawindia/111563)
-
----
-### 2026-05-22T15:29:07+00:00
-Supreme Court Clarifies 2025 Decision On Pension Of Retired HC Chief Justices, Judges; To Apply From Oct 2016 Onwards
-https://www.livelaw.in/top-stories/supreme-court-clarifies-2025-decision-on-pension-of-retired-hc-chief-justices-judges-to-apply-from-oct-2016-pay-commission-535362
-
-[Read on Telegram](https://t.me/livelawindia/111564)
+[Read on Telegram](https://t.me/livelawindia/111582)
 
 ---
-### 2026-05-22T15:58:07+00:00
-Having Public Witnesses Who Turn Hostile May Do More Harm Than Good: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/having-public-witnesses-who-turn-hostile-may-do-more-harm-than-good-delhi-high-court-535352
+### 2026-05-23T05:10:34+00:00
+2026 LiveLaw (SC) 533 | TASLEEM AHMED v STATE GOVT. OF NCT OF DELH
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-533-tasleem-ahmed-v-state-govt-of-nct-of-delh-535393
 
-[Read on Telegram](https://t.me/livelawindia/111565)
-
----
-### 2026-05-22T16:12:07+00:00
-“Right To Shelter Part Of Right To Life”: Calcutta High Court Directs Rehabilitation Of Tenant Before Demolition In Howrah
-https://www.livelaw.in/high-court/calcutta-high-court/right-to-shelter-part-of-right-to-life-calcutta-high-court-directs-rehabilitation-of-tenant-before-demolition-535364
-
-[Read on Telegram](https://t.me/livelawindia/111566)
+[Read on Telegram](https://t.me/livelawindia/111583)
 
 ---
-### 2026-05-22T16:12:17+00:00
-'Child Marriages On Rise In UP': Allahabad HC Blames UP Police Failure To Book Grooms, Facilitators Under PCMA
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-blames-up-police-failure-grooms-facilitators-child-marriage-pcma-535365
+### 2026-05-23T05:13:14+00:00
+Judicial Research Assistant Vacancy At High Court Of Judicature At Bombay
+https://www.livelaw.in/job-updates/judicial-research-assistant-vacancy-at-high-court-of-judicature-at-bombay-535394
 
-[Read on Telegram](https://t.me/livelawindia/111567)
-
----
-### 2026-05-22T16:12:47+00:00
-Cattle Smuggling Cases Do Not Warrant Preventive Detention: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-bovine-smuggling-cases-do-not-warrant-preventive-detention-for-maintenance-of-public-order-court-quashes-psa-detention-535366
-
-[Read on Telegram](https://t.me/livelawindia/111568)
+[Read on Telegram](https://t.me/livelawindia/111584)
 
 ---
-### 2026-05-22T18:36:42+00:00
-Jana Nayagan Movie Leak: Madras High Court Dismisses Bail Pleas Of Nine Accused Persons
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-jana-nayagan-movie-leak-bail-plea-dismissed-535367
+### 2026-05-23T05:14:34+00:00
+Senior Associate (Legal) Vacancy At Meesho Limited
+https://www.livelaw.in/job-updates/senior-associate-legal-vacancy-at-meesho-limited-535395
 
-[Read on Telegram](https://t.me/livelawindia/111569)
-
----
-### 2026-05-23T01:33:00+00:00
-Madras High Court Grants Anticipatory Bail To Ponraj For Remarks On TVK Women Supporters But Says He Should Have Exercised Caution
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ponraj-anticipatory-bail-granted-derogatory-remark-tvk-women-535368
-
-[Read on Telegram](https://t.me/livelawindia/111570)
+[Read on Telegram](https://t.me/livelawindia/111585)
 
 ---
-### 2026-05-23T02:32:30+00:00
-Bombay High Court Stays Deployment Of Private Unaided, Minority School Teachers For Census Duties
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-stays-deployment-of-private-unaided-minority-school-teachers-for-census-duties-535369
+### 2026-05-23T05:48:27+00:00
+Intermediary Can't Decide If Online Content Is Defamatory; Duty To Takedown Arises Only On Court Order Or Govt Notification: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/intermediaries-not-bound-to-remove-allegedly-defamatory-content-without-court-order-535396
 
-[Read on Telegram](https://t.me/livelawindia/111571)
+[Read on Telegram](https://t.me/livelawindia/111586)
 
 ---
-### 2026-05-23T03:32:44+00:00
-BCI Rules Do Not Prohibit Advocate-Accused From Representing Co-Accused: MP High Court Quashes Cheating Case
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bar-council-of-india-rules-advocate-act-accused-counsel-permitted-to-representing-co-accused-535370
+### 2026-05-23T06:16:47+00:00
+Consultant (Tax) Vacancy At Ernst & Young [New Delhi; Apply Now]
+https://www.livelaw.in/job-updates/consultant-tax-vacancy-at-ernst-young-new-delhi-apply-now-535398
 
-[Read on Telegram](https://t.me/livelawindia/111572)
+[Read on Telegram](https://t.me/livelawindia/111587)
+
+---
+### 2026-05-23T06:32:48+00:00
+Allahabad High Court Imposes ₹20,000 Costs Each On Lucknow DM, ADM (Judicial) For Acting Without Jurisdiction
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-imposes-cost-dm-adm-acting-without-jurisdiction-up-revenue-code-535397
+
+[Read on Telegram](https://t.me/livelawindia/111588)
+
+---
+### 2026-05-23T07:07:18+00:00
+Burden To Prove GPA Transactions Were Loan Security, Not Sale, On Plaintiff; Mere Fraud Allegations Insufficient : Supreme Court
+https://www.livelaw.in/top-stories/burden-to-prove-gpa-transactions-were-loan-security-not-sale-on-plaintiff-mere-fraud-allegations-insufficient-supreme-court-535409
+
+[Read on Telegram](https://t.me/livelawindia/111589)
+
+---
+### 2026-05-23T07:08:18+00:00
+2026 LiveLaw (SC) 534 | Mallika v. R. Nallathambi & Ors
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-534-mallika-v-r-nallathambi-ors-535410
+
+[Read on Telegram](https://t.me/livelawindia/111590)
+
+---
+### 2026-05-23T07:19:58+00:00
+Non-Mention Of Accused In Inquest Report Does Not By Itself Suggest Innocence: Supreme Court
+https://www.livelaw.in/supreme-court/non-mention-of-accused-in-inquest-report-does-not-by-itself-suggest-innocence-supreme-court-535412
+
+[Read on Telegram](https://t.me/livelawindia/111591)
+
+---
+### 2026-05-23T07:20:58+00:00
+2026 LiveLaw (SC) 535 | BHAGAT SINGH VERSUS THE STATE OF UTTAR PRADESH AND ANR.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-535-bhagat-singh-versus-the-state-of-uttar-pradesh-and-anr-535413
+
+[Read on Telegram](https://t.me/livelawindia/111592)
+
+---
+### 2026-05-23T07:32:28+00:00
+Persons Acquitted Due To 'Unsound Mind' Can't Languish Indefinitely In Mental Institutions For Want Of Rehab Facilities: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-rehabilitation-unsoundness-mind-acquittal-535400
+
+[Read on Telegram](https://t.me/livelawindia/111593)
+
+---
+### 2026-05-23T08:00:28+00:00
+Patna HC Refuses To Interfere With Packaging Of Rural Road Tenders, Says Courts Cannot Direct State To Structure Tender Conditions
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-refuses-interfere-packaging-rural-road-tenders-535424
+
+[Read on Telegram](https://t.me/livelawindia/111594)
+
+---
+### 2026-05-23T08:02:48+00:00
+'Adverse Entry In Record Of Govt Employee Not Penalty, Does Not Require Issuing Showcause Notice': Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-adverse-entry-government-service-rules-show-cause-notice-535418
+
+[Read on Telegram](https://t.me/livelawindia/111595)
+
+---
+### 2026-05-23T08:17:28+00:00
+Public Health Prevails Over Commercial Interests: J&K&L High Court Refuses To Quash Prosecution Against Amul Officials In Unsafe Milk Case
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-public-health-must-prevail-over-commercial-interests-court-refuses-to-quash-prosecution-against-amul-milk-officials-in-unsafe-milk-case-535425
+
+[Read on Telegram](https://t.me/livelawindia/111596)
 
 ---
