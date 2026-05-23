@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-22T16:02:25+00:00*
+*Last Updated: 2026-05-23T08:12:46+00:00*
+
+---
+
+### 2026-05-23T08:12:46+00:00
+Threat To Upload Intimate Video Can Constitute Criminal Intimidation Even Without Recovery Of Device Or Recording: Supreme Court
+https://www.verdictum.in/supreme-court/vijayakumar-v-state-of-tamilnadu-2026-insc-525-threat-to-upload-intimate-video-criminal-intimidation-1614530
+
+[Source Link](https://t.me/verdictumlegalupdates/27165)
+
+---
+
+### 2026-05-23T07:32:25+00:00
+Specific Loan Details Absent; Parties' Involvement in Ponzi Scheme Rebuts Presumption U/S 139 NI Act: Calcutta High Court Affirms Acquittal In Cheque Bounce Case
+https://www.verdictum.in/calcutta-high-court/anup-agarwala-v-piyotosh-biswas-cra-94-of-20214-1614522
+
+[Source Link](https://t.me/verdictumlegalupdates/27164)
+
+---
+
+### 2026-05-23T06:53:03+00:00
+Non-Mentioning Of Author Of Crime In Inquest Report Can’t Be Reason To Doubt Subsequently Named Accused’s Involvement: Supreme Court
+https://www.verdictum.in/supreme-court/bhagat-singh-v-the-state-of-uttar-pradesh-2026-insc-527-author-crime-inquest-report-1614518
+
+[Source Link](https://t.me/verdictumlegalupdates/27163)
+
+---
+
+### 2026-05-23T06:04:02+00:00
+Seriousness Of Injury Alone Cannot Attract Attempt To Murder Charge Without Proof Of Intention To Kill: Supreme Court
+https://www.verdictum.in/supreme-court/roshan-lal-v-state-of-haryana-anr-2026-insc-524-attempt-to-murder-307-1614514
+
+[Source Link](https://t.me/verdictumlegalupdates/27162)
+
+---
+
+### 2026-05-23T05:12:21+00:00
+Delhi High Court Delivers Split Verdict On De-Reservation Of Vacant OBC Medical Seat: Refers To Chief Justice
+https://www.verdictum.in/delhi-high-court/national-board-of-examinations-in-medical-sciences-v-dr-aditi-panwar-ors-2026dhc4414-db-1614506
+
+[Source Link](https://t.me/verdictumlegalupdates/27161)
+
+---
+
+### 2026-05-23T04:32:49+00:00
+Accused Has Absolute Right To Use Previous Statements During Cross-Examination For Contradiction To Shake Veracity of Maker’s Evidence: Kerala High Court
+https://www.verdictum.in/kerala-high-court/lawrence-v-state-of-kerala-2026ker34799-accused-cross-examination-1614489
+
+[Source Link](https://t.me/verdictumlegalupdates/27160)
 
 ---
 
@@ -113,54 +161,6 @@ Supreme Court Recalls Remarks Against Three NCERT Experts Over Class 8 Textbook 
 https://www.verdictum.in/supreme-court/ncert-recall-three-experts-professor-order-blacklisting-1614470
 
 [Source Link](https://t.me/verdictumlegalupdates/27146)
-
----
-
-### 2026-05-22T09:03:25+00:00
-Non-Compliance With Order XLI Rule 31 CPC Can’t Invalidate First Appellate Court Judgment Where Evidence Has Been Properly Scrutinised: Supreme Court
-https://www.verdictum.in/supreme-court/parvathi-nairthi-dead-ors-v-laxmi-nairthy-dead-through-lrs-ors-2026-insc-521-1614465
-
-[Source Link](https://t.me/verdictumlegalupdates/27145)
-
----
-
-### 2026-05-22T08:32:43+00:00
-Change In Central Govt's Stand Leads To Supreme Court Agreeing To Hear Challenge To Validity Of State Temple Control Laws
-https://www.verdictum.in/supreme-court/centre-concurs-supreme-court-hear-state-hindu-temple-control-laws-1614466
-
-[Source Link](https://t.me/verdictumlegalupdates/27144)
-
----
-
-### 2026-05-22T08:03:22+00:00
-Supreme Court To Hear Plea Challenging CBSE’s Policy Mandating Three Languages For Class 9
-https://www.verdictum.in/supreme-court/cbses-policy-mandating-three-languages-for-class-9-1614458
-
-[Source Link](https://t.me/verdictumlegalupdates/27143)
-
----
-
-### 2026-05-22T07:32:40+00:00
-Supreme Court Grants Bail To Suhail Thokar In J&K Larger Conspiracy Post Revocation Of Article 370 Case
-https://www.verdictum.in/supreme-court/bail-suhail-thokar-j-k-larger-conspiracy-article-370-1614456
-
-[Source Link](https://t.me/verdictumlegalupdates/27142)
-
----
-
-### 2026-05-22T07:02:39+00:00
-Supreme Court Upholds Visitor’s Power To Take Disciplinary Action Against First Registrar Of Rajiv Gandhi National Aviation University
-https://www.verdictum.in/supreme-court/vice-chancellor-rajiv-gandhi-national-aviation-university-v-jitendra-singh-2026-insc-520-visitors-power-to-act-against-first-registrar-1614452
-
-[Source Link](https://t.me/verdictumlegalupdates/27141)
-
----
-
-### 2026-05-22T06:32:58+00:00
-When Cheque Was Found To Be Wrote & Signed By Payer, Entries Showing Cheque In Complainant’s Name Also Stands Established: Kerala High Court
-https://www.verdictum.in/kerala-high-court/wilfred-jose-v-jayapal-2026ker33932-magistrate-cheque-payer-complainant-1614451
-
-[Source Link](https://t.me/verdictumlegalupdates/27140)
 
 ---
 
