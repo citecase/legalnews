@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-23T13:33:06+00:00*
+*Last Updated: 2026-05-23T15:02:49+00:00*
+
+---
+
+### 2026-05-23T15:02:49+00:00
+Staff Selection Commission Western Region Invites Applications For The Post Of Young Professional (Legal Consultant)
+https://www.verdictum.in/job-updates/staff-selection-commission-western-region-1614546
+
+[Source Link](https://t.me/verdictumlegalupdates/27174)
+
+---
+
+### 2026-05-23T14:12:48+00:00
+Converts To Christianity Not To Perform Niam Khasi Religious Ceremony: Meghalaya High Court
+https://www.verdictum.in/meghalaya-high-court/kyrshon-marbaniang-v-state-of-meghalaya-ka-leh-niam-raid-mylliem-christian-1614558
+
+[Source Link](https://t.me/verdictumlegalupdates/27173)
 
 ---
 
@@ -145,22 +161,6 @@ https://www.verdictum.in/supreme-court/papan-sarkar-pranab-v-state-of-west-benga
 https://www.verdictum.in/supreme-court/parvathi-nairthi-dead-ors-v-laxmi-nairthy-dead-through-lrs-ors-2026-insc-521-1614485
 
 [Source Link](https://t.me/verdictumlegalupdates/27155)
-
----
-
-### 2026-05-22T13:33:07+00:00
-Bogus PwD Certificates Amount To Moral Turpitude: Bombay High Court Upholds Re-Assessment Of Employees’ Disability Status Amid Suspicious Surge
-https://www.verdictum.in/bombay-high-court/santosh-hiraman-lashkare-v-state-2026bhc-as22080-db-states-power-to-re-verify-disability-status-hearing-impairment-1614479
-
-[Source Link](https://t.me/verdictumlegalupdates/27154)
-
----
-
-### 2026-05-22T13:02:46+00:00
-Supreme Court Questions Quota To Children Of Economically, Educationally Advanced Families In Backward Classes
-https://www.verdictum.in/supreme-court/supreme-court-questions-quota-to-children-of-economically-educationally-advanced-families-in-backward-classes-1614478
-
-[Source Link](https://t.me/verdictumlegalupdates/27153)
 
 ---
 
