@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-23T08:12:46+00:00*
+*Last Updated: 2026-05-23T13:33:06+00:00*
+
+---
+
+### 2026-05-23T13:33:06+00:00
+BCI Rules Do Not Bar Accused Advocate From Representing Co-Accused Son As Counsel: Madhya Pradesh High Court Quashes Cheating Case
+https://www.verdictum.in/madhya-pradesh-high-court/2026mphcjbp-40235-suresh-prasad-khare-v-the-high-court-of-madhya-pradesh-1614550
+
+[Source Link](https://t.me/verdictumlegalupdates/27172)
+
+---
+
+### 2026-05-23T12:52:55+00:00
+Section 6 Of Probation Of Offenders Act Applies When Accused Is Under 21 Years Of Age On Date Of Imposition Of Punishment: Delhi High Court
+https://www.verdictum.in/delhi-high-court/state-of-nct-of-delhi-v-deepak-2026dhc4523-db-probation-of-offenders-act-21-years-1614549
+
+[Source Link](https://t.me/verdictumlegalupdates/27171)
+
+---
+
+### 2026-05-23T12:02:53+00:00
+Denial Of Adequate Compensation For Advanced Prosthetic Devices Would Compel Motor Accident Victim To Live With Inferior Mobility & Diminished Dignity: Kerala High Court
+https://www.verdictum.in/kerala-high-court/2026-ker-35025-ummer-ck-v-the-oriental-insurance-company-ltd-1614542
+
+[Source Link](https://t.me/verdictumlegalupdates/27170)
+
+---
+
+### 2026-05-23T11:13:12+00:00
+High Court Cannot Grant Fresh Bail After Supreme Court Cancels Bail Without Showing Change In Circumstances: Supreme Court
+https://www.verdictum.in/supreme-court/mohseen-v-state-of-uttar-pradesh-anr-2026-insc-526-bail-high-court-order-1614539
+
+[Source Link](https://t.me/verdictumlegalupdates/27169)
+
+---
+
+### 2026-05-23T10:31:31+00:00
+Government Circular Discouraging FIR On Civil Disputes Cannot Justify Nine-Year Delay In FIR: Supreme Court Quashes FIR
+https://www.verdictum.in/supreme-court/bhikhubhai-govindbhai-patel-v-the-state-of-gujarat-2026-insc-532-civil-disputes-cannot-justify-eight-year-delay-in-fir-1614538
+
+[Source Link](https://t.me/verdictumlegalupdates/27168)
+
+---
+
+### 2026-05-23T09:52:29+00:00
+Foreign Nationals Also Have Fundamental Right To Life, Personal Liberty & Speedy Trial: Rajasthan High Court Grants Bail To Bangladeshi Nationals In Kidney Racket Case
+https://www.verdictum.in/rajasthan-high-court/nurul-islam-v-state-of-rajasthan-sb-criminal-miscellaneous-petition-no-2038-2026-1614535
+
+[Source Link](https://t.me/verdictumlegalupdates/27167)
+
+---
+
+### 2026-05-23T09:03:08+00:00
+Allahabad High Court Clarifies Powers Of Elders Committees In Bar Associations; Restrains Registrar, UP Bar Council From Interfering In Elections
+https://www.verdictum.in/allahabad-high-court/chandrashekhar-upadhyay-v-state-of-up-2026ahc116231-db-up-bar-council-clarifies-powers-of-elders-committees-1614534
+
+[Source Link](https://t.me/verdictumlegalupdates/27166)
 
 ---
 
@@ -105,62 +161,6 @@ Supreme Court Questions Quota To Children Of Economically, Educationally Advance
 https://www.verdictum.in/supreme-court/supreme-court-questions-quota-to-children-of-economically-educationally-advanced-families-in-backward-classes-1614478
 
 [Source Link](https://t.me/verdictumlegalupdates/27153)
-
----
-
-### 2026-05-22T12:33:05+00:00
-“Not The Manner In Which Tribunal Is To Decide An Appeal”: Kerala High Court Sets Aside LSG Tribunal’s Cryptic, Non-Speaking Order
-https://www.verdictum.in/kerala-high-court/renjini-kk-v-mannancherry-grama-panchayat-2026ker33874-tribunals-cryptic-non-speaking-order-1614476
-
-[Source Link](https://t.me/verdictumlegalupdates/27152)
-
----
-
-### 2026-05-22T12:02:23+00:00
-“Right To Seek Termination Not Absolute”: J&K And Ladakh High Court Refuses Minor Rape Survivor's Plea To Terminate 27-Week Pregnancy
-https://www.verdictum.in/jammu-ladakh-high-court/self-x-v-union-territory-of-jammu-kashmir-ors-pregnancy-termination-1614474
-
-[Source Link](https://t.me/verdictumlegalupdates/27151)
-
----
-
-### 2026-05-22T11:32:22+00:00
-Incorrect Accounting Practice Not Sufficient To Deprive Him Of Liberty: Delhi High Court Grants Anticipatory Bail To 71-Yr-Old Man In LLP Fraud Case
-https://www.verdictum.in/delhi-high-court/ghisulal-jain-v-state-of-nct-of-delhi-2026dhc4458-incorrect-accounting-practice-llp-fraud-1614473
-
-[Source Link](https://t.me/verdictumlegalupdates/27150)
-
----
-
-### 2026-05-22T11:02:40+00:00
-Cannot Deny Regularization To Similarly Placed Employees After Regularizing 30,000 Workers: Supreme Court Grants Relief To Left-Out Muster Roll Workers In Assam
-https://www.verdictum.in/supreme-court/sukhendu-bhattacharjee-v-the-state-of-assam-2026-insc-523-umadevi-cant-defeat-equality-rights-regularizing-30000-workers-1614472
-
-[Source Link](https://t.me/verdictumlegalupdates/27149)
-
----
-
-### 2026-05-22T10:32:59+00:00
-“Motive Is Irrelevant”: Supreme Court Upholds Conviction Of Husband Accused Of Murdering Wife By Strangulating Her
-https://www.verdictum.in/supreme-court/chetan-dashrath-gade-v-state-of-maharashtra-2026-insc-522-suicide-homicide-1614471
-
-[Source Link](https://t.me/verdictumlegalupdates/27148)
-
----
-
-### 2026-05-22T10:02:38+00:00
-No Major Distinction: Delhi High Court Grants Bail To Delhi Riots Case Accused Salim Malik On Parity Ground
-https://www.verdictum.in/delhi-high-court/salim-malik-munna-v-state-through-sho-ps-special-cell-2026dhc4570-db-1614469
-
-[Source Link](https://t.me/verdictumlegalupdates/27147)
-
----
-
-### 2026-05-22T09:32:36+00:00
-Supreme Court Recalls Remarks Against Three NCERT Experts Over Class 8 Textbook Row; Asks Committee To Review Cartoons In Class 11 Textbook
-https://www.verdictum.in/supreme-court/ncert-recall-three-experts-professor-order-blacklisting-1614470
-
-[Source Link](https://t.me/verdictumlegalupdates/27146)
 
 ---
 
