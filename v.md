@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-24T04:33:09+00:00*
+*Last Updated: 2026-05-24T09:02:23+00:00*
+
+---
+
+### 2026-05-24T09:02:23+00:00
+Amicus Must Be Granted Adequate Opportunity To Confer With Convict: Supreme Court Reiterates
+https://www.verdictum.in/supreme-court/nandkishore-mishra-v-the-state-of-madhya-pradesh-2026-insc-531-amicus-convict-1614556
+
+[Source Link](https://t.me/verdictumlegalupdates/27178)
+
+---
+
+### 2026-05-24T07:33:02+00:00
+Tenant’s Grievance Regarding Parking Of Vehicles By Another Tenant In Front Of His Shop Doesn’t Come Within Purview Of Public Law Remedy: Kerala High Court
+https://www.verdictum.in/kerala-high-court/rajesh-babu-v-state-of-kerala-2026ker3448-tenant-grievance-parking-vehicles-public-law-1614555
+
+[Source Link](https://t.me/verdictumlegalupdates/27177)
+
+---
+
+### 2026-05-24T06:03:00+00:00
+Married To Accused & Wants To Live With Him: Jammu & Kashmir and Ladakh High Court Grants Bail To Army Official In POCSO Case
+https://www.verdictum.in/jammu-ladakh-high-court/a-v-ut-of-jk-2026jklhc-jmu1542-married-accused-bail-army-official-pocso-case-1614554
+
+[Source Link](https://t.me/verdictumlegalupdates/27176)
 
 ---
 
@@ -137,30 +161,6 @@ Assistant Law Officer, Legal Assistant Vacancy At Delhi Pollution Control Commit
 https://www.verdictum.in/job-updates/delhi-pollution-control-committee-1614480
 
 [Source Link](https://t.me/verdictumlegalupdates/27159)
-
----
-
-### 2026-05-22T15:33:04+00:00
-Allahabad High Court Suspends Administrative & Financial Powers Of Lucknow Mayor For Not Administering Oath To Elected Corporator
-https://www.verdictum.in/allahabad-high-court/lalit-tiwari-alias-lalit-kishore-tiwari-v-state-of-up-administrative-financial-powers-lucknow-mayor-1614490
-
-[Source Link](https://t.me/verdictumlegalupdates/27158)
-
----
-
-### 2026-05-22T15:02:42+00:00
-Police Cannot Investigate Alleged Professional Misconduct Of An Advocate; Such Powers Vest With Bar Council: Bombay High Court
-https://www.verdictum.in/bombay-high-court/shekhar-kakasaheb-jagtap-v-state-of-maharashtra-anr-and-connected-matters-1614487
-
-[Source Link](https://t.me/verdictumlegalupdates/27157)
-
----
-
-### 2026-05-22T14:33:01+00:00
-Time Frame Quite Large To Term Death As Proximate To Attract Last Seen Theory: Supreme Court Acquits Murder Accused
-https://www.verdictum.in/supreme-court/papan-sarkar-pranab-v-state-of-west-bengal-2026-insc-528-time-frame-death-proximate-1614486
-
-[Source Link](https://t.me/verdictumlegalupdates/27156)
 
 ---
 
