@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-24T13:42:13+00:00*
+*Last Updated: 2026-05-24T15:02:34+00:00*
+
+---
+
+### 2026-05-24T15:02:34+00:00
+Senior Public Prosecutor, Public Prosecutor Vacancy At National Investigation Agency (NIA)
+https://www.verdictum.in/job-updates/national-investigation-agency-1614547
+
+[Source Link](https://t.me/verdictumlegalupdates/27183)
 
 ---
 
@@ -153,14 +161,6 @@ Specific Loan Details Absent; Parties' Involvement in Ponzi Scheme Rebuts Presum
 https://www.verdictum.in/calcutta-high-court/anup-agarwala-v-piyotosh-biswas-cra-94-of-20214-1614522
 
 [Source Link](https://t.me/verdictumlegalupdates/27164)
-
----
-
-### 2026-05-23T06:53:03+00:00
-Non-Mentioning Of Author Of Crime In Inquest Report Can’t Be Reason To Doubt Subsequently Named Accused’s Involvement: Supreme Court
-https://www.verdictum.in/supreme-court/bhagat-singh-v-the-state-of-uttar-pradesh-2026-insc-527-author-crime-inquest-report-1614518
-
-[Source Link](https://t.me/verdictumlegalupdates/27163)
 
 ---
 
