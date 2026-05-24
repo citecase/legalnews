@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-23T14:41:46+00:00*
+*Last Updated: 2026-05-23T14:50:06+00:00*
 
 ---
 
-### 2026-05-23T14:41:46+00:00
-Bombay High Court Stays Order Halting Journalist's Expulsion From Mumbai Press Club Over Inviting Bhima Koregaon Case Accused
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-expulsion-senior-journalist-mumbai-press-club-bhima-koregaon-elgar-parishad-535454
-
-[Read on Telegram](https://t.me/livelawindia/111614)
-
----
-### 2026-05-23T14:43:26+00:00
-Mediation For The Nation: Lessons Learnt And Road Ahead
-https://www.livelaw.in/articles/mediation-for-the-nation-lessons-learnt-535455
-
-[Read on Telegram](https://t.me/livelawindia/111615)
-
----
 ### 2026-05-23T14:50:06+00:00
 'Hardcore Naxalite, Can't Be Welcomed With Bouquet' : Supreme Court Dismisses Plea Seeking Probe Into Maoist's Death In Encounter
 https://www.livelaw.in/top-stories/hardcore-naxalite-cant-be-welcomed-with-bouquet-supreme-court-dismisses-plea-seeking-probe-into-maoists-death-in-encounter-535459
@@ -142,5 +128,20 @@ Plea In Supreme Court Seeks CBI Investigation Against 'Cockroach Janta Party' & 
 https://www.livelaw.in/top-stories/plea-in-supreme-court-seeks-cbi-investigation-against-cockroach-janta-party-fake-advocates-535481
 
 [Read on Telegram](https://t.me/livelawindia/111633)
+
+---
+### 2026-05-24T14:12:55+00:00
+#TheLawChallenge
+ : A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
+https://www.livelaw.in/top-stories/livelaw-and-qshala-weekly-quiz-535482
+
+[Read on Telegram](https://t.me/livelawindia/111634)
+
+---
+### 2026-05-24T14:32:25+00:00
+Hash Value For Electronic Evidences
+https://www.livelaw.in/articles/hash-value-electronic-evidences-535457
+
+[Read on Telegram](https://t.me/livelawindia/111635)
 
 ---
