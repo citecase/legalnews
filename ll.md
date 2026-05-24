@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-23T11:58:18+00:00*
+*Last Updated: 2026-05-23T14:41:46+00:00*
 
 ---
 
-### 2026-05-23T11:58:18+00:00
-“Requires Courage To Report Sexual Assault Even Today, What About 25 Yrs Back”: Delhi High Court On Omission In Survivor's Testimony
-https://www.livelaw.in/high-court/delhi-high-court/requires-courage-to-report-sexual-assault-even-today-what-about-25-yrs-back-delhi-high-court-on-omission-in-survivors-testimony-535421
-
-[Read on Telegram](https://t.me/livelawindia/111608)
-
----
-### 2026-05-23T12:06:38+00:00
-Delhi High Court Permits Wrestler Vinesh Phogat To Participate In Asian Games Selection Trials, Says WFI's Policy 'Exclusionary'
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-permits-wrestler-vinesh-phogat-to-participate-in-2026-asian-games-selection-trials-535448
-
-[Read on Telegram](https://t.me/livelawindia/111609)
-
----
-### 2026-05-23T12:32:26+00:00
-Road Accident | Driver's Conduct In Immediately Taking Victim To Hospital Merits Leniency In Sentence: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-modifies-sentence-accident-victim-hospital-imposes-enhanced-compensation-535432
-
-[Read on Telegram](https://t.me/livelawindia/111610)
-
----
-### 2026-05-23T12:57:46+00:00
-Repeated Brick Blows During Sudden Fight Between Intoxicated Friends Does Not Attract Murder Charges: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/repeated-brick-blows-during-sudden-fight-between-intoxicated-friends-does-not-attract-murder-charges-delhi-high-court-535422
-
-[Read on Telegram](https://t.me/livelawindia/111611)
-
----
-### 2026-05-23T14:07:16+00:00
-Courts In Exercise Of Judicial Review Cannot Supply 'Deeming Fiction' Missing From Tender Conditions: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/courts-in-exercise-of-judicial-review-cannot-supply-deeming-fiction-missing-from-tender-conditions-delhi-high-court-535423
-
-[Read on Telegram](https://t.me/livelawindia/111612)
-
----
-### 2026-05-23T14:33:06+00:00
-Pedagogy Of Power: How NCERT's 'Rationalisation' Fails Constitutional Test
-https://www.livelaw.in/articles/ncert-rationalisation-fails-constitutional-test-535346
-
-[Read on Telegram](https://t.me/livelawindia/111613)
-
----
 ### 2026-05-23T14:41:46+00:00
 Bombay High Court Stays Order Halting Journalist's Expulsion From Mumbai Press Club Over Inviting Bhima Koregaon Case Accused
 https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-expulsion-senior-journalist-mumbai-press-club-bhima-koregaon-elgar-parishad-535454
@@ -142,5 +100,47 @@ Jharkhand High Court Takes Suo Motu Cognisance Of Alleged Sexual Assault Of Inma
 https://www.livelaw.in/high-court/patna-high-court/jharkhand-high-court-535471
 
 [Read on Telegram](https://t.me/livelawindia/111627)
+
+---
+### 2026-05-24T08:43:01+00:00
+Bank Can Dismiss Employee Even After Retirement If Departmental Enquiry Began During Service: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-bank-can-dismiss-employee-even-after-retirement-if-departmental-enquiry-began-during-service-court-restores-dismissal-of-former-branch-head-535473
+
+[Read on Telegram](https://t.me/livelawindia/111628)
+
+---
+### 2026-05-24T09:32:31+00:00
+How India's Labour Laws Fail To Protect Workers Behind AI Content Moderation
+https://www.livelaw.in/articles/india-labour-laws-fail-protect-workers-ai-content-moderation-535451
+
+[Read on Telegram](https://t.me/livelawindia/111629)
+
+---
+### 2026-05-24T10:30:41+00:00
+Supreme Court Quarterly Digest 2026 - Civil Minor Acts
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-quarterly-digest-2026-civil-minor-acts-535480
+
+[Read on Telegram](https://t.me/livelawindia/111630)
+
+---
+### 2026-05-24T10:38:21+00:00
+“Serious Issues On Functioning Of Roller Skating Association”: J&K&L High Court Takes Cognizance Of PIL Alleging Irregularities In Selection, Fees
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-allegations-of-irregularities-in-roller-skating-association-and-unaccounted-participation-fees-reach-court-through-pil-notice-issued-535474
+
+[Read on Telegram](https://t.me/livelawindia/111631)
+
+---
+### 2026-05-24T11:47:52+00:00
+Opportunity To Lead Pre-Summoning Evidence Must Be Given Even In Criminal Cases Appearing 'Civil': Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/opportunity-to-lead-pre-summoning-evidence-must-be-given-even-in-criminal-cases-appearing-civil-delhi-high-court-535475
+
+[Read on Telegram](https://t.me/livelawindia/111632)
+
+---
+### 2026-05-24T13:38:15+00:00
+Plea In Supreme Court Seeks CBI Investigation Against 'Cockroach Janta Party' & Fake Advocates
+https://www.livelaw.in/top-stories/plea-in-supreme-court-seeks-cbi-investigation-against-cockroach-janta-party-fake-advocates-535481
+
+[Read on Telegram](https://t.me/livelawindia/111633)
 
 ---
