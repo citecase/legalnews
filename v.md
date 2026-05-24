@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-23T15:02:49+00:00*
+*Last Updated: 2026-05-24T04:33:09+00:00*
+
+---
+
+### 2026-05-24T04:33:09+00:00
+Mother Can’t Be Asked To Undergo DNA Test To Prove Maternity To Donate Kidney To Son: Madras High Court
+https://www.verdictum.in/madras-high-court/rita-chaurasiya-v-the-state-of-tamil-nadu-mother-dna-test-maternity-kidney-son-1614553
+
+[Source Link](https://t.me/verdictumlegalupdates/27175)
 
 ---
 
@@ -153,14 +161,6 @@ Time Frame Quite Large To Term Death As Proximate To Attract Last Seen Theory: S
 https://www.verdictum.in/supreme-court/papan-sarkar-pranab-v-state-of-west-bengal-2026-insc-528-time-frame-death-proximate-1614486
 
 [Source Link](https://t.me/verdictumlegalupdates/27156)
-
----
-
-### 2026-05-22T14:03:09+00:00
-“Exclusion Of Wife & Children Not A Suspicious Circumstance By Itself”: Supreme Court Upholds Unregistered Will In Favour Of Testator’s Sister
-https://www.verdictum.in/supreme-court/parvathi-nairthi-dead-ors-v-laxmi-nairthy-dead-through-lrs-ors-2026-insc-521-1614485
-
-[Source Link](https://t.me/verdictumlegalupdates/27155)
 
 ---
 
