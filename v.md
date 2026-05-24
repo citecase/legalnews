@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-24T09:02:23+00:00*
+*Last Updated: 2026-05-24T13:42:13+00:00*
+
+---
+
+### 2026-05-24T13:42:13+00:00
+Requirement Of Publishing Notification U/S 4 Land Acquisition Act In Regional Language Newspaper Can Be Dispensed With If No Such Widely Circulated Newspaper Exists: J&K And Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/ut-of-jammu-kashmir-ors-v-khalid-jehangir-bhat-ors-section-4-land-act-1614563
+
+[Source Link](https://t.me/verdictumlegalupdates/27182)
+
+---
+
+### 2026-05-24T12:02:48+00:00
+No Census Duty For Private Unaided School Teachers: Bombay High Court Stays Requisition Orders
+https://www.verdictum.in/bombay-high-court/unaided-school-forum-v-state-of-maharashtra-writ-petition-lodging-no-15009-of-2026-1614564
+
+[Source Link](https://t.me/verdictumlegalupdates/27181)
+
+---
+
+### 2026-05-24T10:32:26+00:00
+Intermediary Not Obligated To Remove Allegedly Defamatory Content Without Court Order Or Government Notification: Kerala High Court
+https://www.verdictum.in/kerala-high-court/anto-augustine-ors-v-union-of-india-ors-2026ker33754-social-media-1614562
+
+[Source Link](https://t.me/verdictumlegalupdates/27180)
+
+---
+
+### 2026-05-24T10:32:05+00:00
+Private Unaided Schools Need No Prior Approval From DoE For Fee Hike At Commencement Of Academic Session Under DSE Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/delhi-public-school-vasant-kunj-anr-v-government-of-nct-of-delhi-anr-and-connected-matters-2026dhc4590-1614552
+
+[Source Link](https://t.me/verdictumlegalupdates/27179)
 
 ---
 
@@ -129,38 +161,6 @@ Non-Mentioning Of Author Of Crime In Inquest Report Can’t Be Reason To Doubt S
 https://www.verdictum.in/supreme-court/bhagat-singh-v-the-state-of-uttar-pradesh-2026-insc-527-author-crime-inquest-report-1614518
 
 [Source Link](https://t.me/verdictumlegalupdates/27163)
-
----
-
-### 2026-05-23T06:04:02+00:00
-Seriousness Of Injury Alone Cannot Attract Attempt To Murder Charge Without Proof Of Intention To Kill: Supreme Court
-https://www.verdictum.in/supreme-court/roshan-lal-v-state-of-haryana-anr-2026-insc-524-attempt-to-murder-307-1614514
-
-[Source Link](https://t.me/verdictumlegalupdates/27162)
-
----
-
-### 2026-05-23T05:12:21+00:00
-Delhi High Court Delivers Split Verdict On De-Reservation Of Vacant OBC Medical Seat: Refers To Chief Justice
-https://www.verdictum.in/delhi-high-court/national-board-of-examinations-in-medical-sciences-v-dr-aditi-panwar-ors-2026dhc4414-db-1614506
-
-[Source Link](https://t.me/verdictumlegalupdates/27161)
-
----
-
-### 2026-05-23T04:32:49+00:00
-Accused Has Absolute Right To Use Previous Statements During Cross-Examination For Contradiction To Shake Veracity of Maker’s Evidence: Kerala High Court
-https://www.verdictum.in/kerala-high-court/lawrence-v-state-of-kerala-2026ker34799-accused-cross-examination-1614489
-
-[Source Link](https://t.me/verdictumlegalupdates/27160)
-
----
-
-### 2026-05-22T16:02:25+00:00
-Assistant Law Officer, Legal Assistant Vacancy At Delhi Pollution Control Committee (DPCC)
-https://www.verdictum.in/job-updates/delhi-pollution-control-committee-1614480
-
-[Source Link](https://t.me/verdictumlegalupdates/27159)
 
 ---
 
