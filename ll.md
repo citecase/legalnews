@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-23T09:32:28+00:00*
+*Last Updated: 2026-05-23T09:32:38+00:00*
 
 ---
 
-### 2026-05-23T09:32:28+00:00
-Absence Of Magistrate's Signature, Seal On Contraband Inventory Vitiates Prosecution Under Abkari Act: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-abkari-act-magistrate-inventory-sign-seal-535405
-
-[Read on Telegram](https://t.me/livelawindia/111601)
-
----
 ### 2026-05-23T09:32:38+00:00
 Illusion Of Digital Convenience
 https://www.livelaw.in/articles/illusion-digital-convenience-535345
@@ -142,5 +135,12 @@ SC Collegium Recommends Appointment Of Sikkim HC Judge Meenakshi Rai As Patna HC
 https://www.livelaw.in/high-court/patna-high-court/sc-collegium-recommends-appointment-of-sikkim-hc-judge-meenakshi-rai-as-patna-hc-chief-justice-535469
 
 [Read on Telegram](https://t.me/livelawindia/111620)
+
+---
+### 2026-05-24T03:52:40+00:00
+NGO Moves Supreme Court Against 'Indiscriminate Culling Of Stray Dogs', Says SC Direction Being Misunderstood
+https://www.livelaw.in/top-stories/ngo-moves-supreme-court-against-indiscriminate-culling-of-stray-dogs-says-sc-direction-being-misunderstood-535477
+
+[Read on Telegram](https://t.me/livelawindia/111621)
 
 ---
