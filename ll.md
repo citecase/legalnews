@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-23T14:50:06+00:00*
+*Last Updated: 2026-05-24T04:57:50+00:00*
 
 ---
 
-### 2026-05-23T14:50:06+00:00
-'Hardcore Naxalite, Can't Be Welcomed With Bouquet' : Supreme Court Dismisses Plea Seeking Probe Into Maoist's Death In Encounter
-https://www.livelaw.in/top-stories/hardcore-naxalite-cant-be-welcomed-with-bouquet-supreme-court-dismisses-plea-seeking-probe-into-maoists-death-in-encounter-535459
-
-[Read on Telegram](https://t.me/livelawindia/111616)
-
----
-### 2026-05-23T14:56:46+00:00
-Supreme Court To List Over 7,300 Cases During Partial Court Working Days; Fresh Matters Including Bail Pleas To Be Taken Up
-https://www.livelaw.in/top-stories/supreme-court-to-list-over-7300-cases-during-partial-court-working-days-fresh-matters-including-bail-pleas-to-be-taken-up-535460
-
-[Read on Telegram](https://t.me/livelawindia/111617)
-
----
-### 2026-05-23T15:52:17+00:00
-High Court of Jammu & Kashmir And Ladakh Designates 15 Lawyers As Senior Advocates
-https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-designates-15-advocates-as-senior-advocates-535466
-
-[Read on Telegram](https://t.me/livelawindia/111618)
-
----
-### 2026-05-23T16:23:28+00:00
-BREAKING | Supreme Court Takes Suo Motu Cognisance Over Twisha Sharma Dowry Death Case
-https://www.livelaw.in/top-stories/supreme-court-takes-suo-motu-cognisance-over-twisha-sharma-dowry-death-case-535468
-
-[Read on Telegram](https://t.me/livelawindia/111619)
-
----
-### 2026-05-23T16:28:48+00:00
-SC Collegium Recommends Appointment Of Sikkim HC Judge Meenakshi Rai As Patna HC Chief Justice
-https://www.livelaw.in/high-court/patna-high-court/sc-collegium-recommends-appointment-of-sikkim-hc-judge-meenakshi-rai-as-patna-hc-chief-justice-535469
-
-[Read on Telegram](https://t.me/livelawindia/111620)
-
----
-### 2026-05-24T03:52:40+00:00
-NGO Moves Supreme Court Against 'Indiscriminate Culling Of Stray Dogs', Says SC Direction Being Misunderstood
-https://www.livelaw.in/top-stories/ngo-moves-supreme-court-against-indiscriminate-culling-of-stray-dogs-says-sc-direction-being-misunderstood-535477
-
-[Read on Telegram](https://t.me/livelawindia/111621)
-
----
-### 2026-05-24T04:32:30+00:00
-Interim Profits In CIRP: EBITDA Allocation Dilemma
-https://www.livelaw.in/articles/interim-profits-cirp-ebitda-allocation-dilemma-535450
-
-[Read on Telegram](https://t.me/livelawindia/111622)
-
----
 ### 2026-05-24T04:57:50+00:00
 J&K&L High Court Quashes Preventive Detention Order Against Teen, Says JJ Act Excludes Preventive Detention Mechanisms Meant For Adults
 https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-psa-order-against-teen-quashed-court-says-juvenile-justice-framework-excludes-preventive-detention-mechanisms-meant-for-adults-535470
@@ -143,5 +94,54 @@ Hash Value For Electronic Evidences
 https://www.livelaw.in/articles/hash-value-electronic-evidences-535457
 
 [Read on Telegram](https://t.me/livelawindia/111635)
+
+---
+### 2026-05-24T19:27:57+00:00
+Allahabad High Court Suspends Lucknow Mayor's Powers Over Failure To Administer Oath To Elected Corporator
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-suspends-mayor-powers-noncompliance-judicial-order-535495
+
+[Read on Telegram](https://t.me/livelawindia/111636)
+
+---
+### 2026-05-25T03:33:05+00:00
+'No Prima-Facie Evidence Of Gross Dereliction Of Duty': Karnataka High Court Quashes Suspension Of Engineer Over Hospital Wall Collapse
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-set-aside-engineer-suspension-bowring-hospital-tragedy-535494
+
+[Read on Telegram](https://t.me/livelawindia/111637)
+
+---
+### 2026-05-25T03:38:05+00:00
+Special Public Prosecutor Vacancy At Central Bureau Of Investigation
+https://www.livelaw.in/job-updates/special-public-prosecutor-vacancy-at-central-bureau-of-investigation-535502
+
+[Read on Telegram](https://t.me/livelawindia/111638)
+
+---
+### 2026-05-25T03:39:25+00:00
+Consent Manager And Data Auditor Vacancy At Small Industries Development Bank Of India (SIDBI)
+https://www.livelaw.in/job-updates/consent-manager-and-data-auditor-vacancy-at-small-industries-development-bank-of-india-535503
+
+[Read on Telegram](https://t.me/livelawindia/111639)
+
+---
+### 2026-05-25T03:41:05+00:00
+Legal Research Consultants Vacancy At National Human Rights Commission
+https://www.livelaw.in/job-updates/legal-research-consultants-vacancy-at-national-human-rights-commission-535504
+
+[Read on Telegram](https://t.me/livelawindia/111640)
+
+---
+### 2026-05-25T03:46:05+00:00
+HNLU Signs MoU With National Chi Nan University Of Taiwan
+https://www.livelaw.in/lawschool/news/hnlu-signs-mou-national-chi-nan-university-taiwan-535505
+
+[Read on Telegram](https://t.me/livelawindia/111641)
+
+---
+### 2026-05-25T04:02:45+00:00
+Rajasthan High Court Upholds Constitutional Validity Of Pension For Ex-MLAs, Dismisses PIL Challenging 1956 Law
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-upholds-mla-pension-law-constitutional-validity-1956act-535497
+
+[Read on Telegram](https://t.me/livelawindia/111642)
 
 ---
