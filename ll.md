@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-25T10:43:30+00:00*
+*Last Updated: 2026-05-25T12:39:35+00:00*
 
 ---
 
-### 2026-05-25T10:43:30+00:00
-Kerala High Court Refuses CBI Probe Against ED Officer In Alleged Bribery Case, Calls Plea 'Premature'
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-cbi-probe-preliminary-stage-corruption-case-ed-officer-complete-investigation-within-90-days-535591
-
-[Read on Telegram](https://t.me/livelawindia/111683)
-
----
-### 2026-05-25T11:02:50+00:00
-Kerala High Court Weekly Round Up: May 18 - May 24, 2026
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-weekly-may-2026-535549
-
-[Read on Telegram](https://t.me/livelawindia/111684)
-
----
-### 2026-05-25T11:35:20+00:00
-Supreme Court Notifies Bench Composition For Partial Working Days From June 1 To July 12
-https://www.livelaw.in/top-stories/supreme-court-notifies-bench-composition-for-partial-working-days-from-june-1-to-july-12-535603
-
-[Read on Telegram](https://t.me/livelawindia/111685)
-
----
-### 2026-05-25T12:23:15+00:00
-'Officers Blaming Each Other For Chottanikkara Temple's Plight': Kerala High Court Warns Of Action If Hygiene Not Improved
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-chottanikkara-temple-unhygienic-535607
-
-[Read on Telegram](https://t.me/livelawindia/111686)
-
----
-### 2026-05-25T12:28:56+00:00
-P&H High Court Refuses To Entertain Congress MLA Partap Singh Bajwa's PIL Alleging Threat To Free Municipal Polls, Imposes Costs
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-refuses-to-entertain-pil-by-lop-partap-singh-bajwa-alleging-threat-to-free-fair-municipal-elections-535608
-
-[Read on Telegram](https://t.me/livelawindia/111687)
-
----
 ### 2026-05-25T12:39:35+00:00
 PIL Moved In Allahabad High Court Seeks Cancellation Of Rahul Gandhi's Indian Citizenship
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-pil-cancellation-rahul-gandhi-indian-citizenship-535609
@@ -142,5 +107,40 @@ Karnataka High Court Weekly Round-Up: May 18 – May 24, 2026
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-roundup2026-535616
 
 [Read on Telegram](https://t.me/livelawindia/111702)
+
+---
+### 2026-05-25T15:26:43+00:00
+In-Laws Can't Be Prosecuted Merely For Asking Wife To Adjust : Supreme Court Quashes Dowry Harassment, 498A Case
+https://www.livelaw.in/supreme-court/in-laws-cant-be-prosecuted-merely-for-asking-wife-to-adjust-supreme-court-quashes-dowry-harassment-498a-case-535639
+
+[Read on Telegram](https://t.me/livelawindia/111703)
+
+---
+### 2026-05-25T15:28:03+00:00
+2026 LiveLaw (SC) 539  |  ARTI MEHTA & ORS. VERSUS THE STATE OF MADHYA PRADESH & ANR
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-539-arti-mehta-ors-versus-the-state-of-madhya-pradesh-anr-535640
+
+[Read on Telegram](https://t.me/livelawindia/111704)
+
+---
+### 2026-05-25T16:00:23+00:00
+After BCI Chairperson's Remarks On Fake Advocates, Plea Filed In Supreme Court To Verify Law Degrees
+https://www.livelaw.in/top-stories/after-bci-chairpersons-remarks-on-fake-advocates-plea-filed-in-supreme-court-to-verify-law-degrees-535642
+
+[Read on Telegram](https://t.me/livelawindia/111705)
+
+---
+### 2026-05-25T16:55:04+00:00
+Supreme Court Daily Round-Up : May 25, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-25-2026-535646
+
+[Read on Telegram](https://t.me/livelawindia/111706)
+
+---
+### 2026-05-25T18:31:24+00:00
+Delhi High Court Asks NCDRC To Examine Claim That Web Copy Of Its Order Differed From Certified Copy Supplied Later
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-asks-ncdrc-to-examine-claim-that-web-copy-of-its-order-differed-from-certified-copy-supplied-later-535649
+
+[Read on Telegram](https://t.me/livelawindia/111707)
 
 ---
