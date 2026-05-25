@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-24T15:02:34+00:00*
+*Last Updated: 2026-05-25T05:03:13+00:00*
+
+---
+
+### 2026-05-25T05:03:13+00:00
+Supreme Court Collegium Recommends Appointment Of New Chief Justice For Patna High Court
+https://www.verdictum.in/supreme-court/collegium-chief-justice-patna-high-court-1614609
+
+[Source Link](https://t.me/verdictumlegalupdates/27185)
+
+---
+
+### 2026-05-25T04:33:02+00:00
+Adverse Inference Can Be Drawn Against A Party Possessing Special Knowledge Of Facts If He Fails To Enter Witness Box: Supreme Court
+https://www.verdictum.in/supreme-court/mallika-v-r-nallathambi-2026-insc-529-registered-gpa-holder-delay-of-nearly-10-years-fatal-1614603
+
+[Source Link](https://t.me/verdictumlegalupdates/27184)
 
 ---
 
@@ -145,22 +161,6 @@ Allahabad High Court Clarifies Powers Of Elders Committees In Bar Associations; 
 https://www.verdictum.in/allahabad-high-court/chandrashekhar-upadhyay-v-state-of-up-2026ahc116231-db-up-bar-council-clarifies-powers-of-elders-committees-1614534
 
 [Source Link](https://t.me/verdictumlegalupdates/27166)
-
----
-
-### 2026-05-23T08:12:46+00:00
-Threat To Upload Intimate Video Can Constitute Criminal Intimidation Even Without Recovery Of Device Or Recording: Supreme Court
-https://www.verdictum.in/supreme-court/vijayakumar-v-state-of-tamilnadu-2026-insc-525-threat-to-upload-intimate-video-criminal-intimidation-1614530
-
-[Source Link](https://t.me/verdictumlegalupdates/27165)
-
----
-
-### 2026-05-23T07:32:25+00:00
-Specific Loan Details Absent; Parties' Involvement in Ponzi Scheme Rebuts Presumption U/S 139 NI Act: Calcutta High Court Affirms Acquittal In Cheque Bounce Case
-https://www.verdictum.in/calcutta-high-court/anup-agarwala-v-piyotosh-biswas-cra-94-of-20214-1614522
-
-[Source Link](https://t.me/verdictumlegalupdates/27164)
 
 ---
 
