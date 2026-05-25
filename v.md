@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-25T05:03:13+00:00*
+*Last Updated: 2026-05-25T10:32:57+00:00*
+
+---
+
+### 2026-05-25T10:32:57+00:00
+Weekly Overview| Supreme Court Judgments: May 18 – May 22, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-may-18-may-22-2026-1614640
+
+[Source Link](https://t.me/verdictumlegalupdates/27195)
+
+---
+
+### 2026-05-25T10:02:26+00:00
+One-Year Imprisonment Requirement For Grant Of Parole Under Rule 14(1) Maharashtra Prisons Rules Unconstitutional: Bombay High Court
+https://www.verdictum.in/bombay-high-court/vinodkumar-chellappan-pillai-v-the-state-of-maharashtra-ors-2026bhc-kol3781-db-1614636
+
+[Source Link](https://t.me/verdictumlegalupdates/27194)
+
+---
+
+### 2026-05-25T09:33:04+00:00
+Not Learnt Their Lessons From Earlier NEET Paper Leak: Supreme Court Seeks Response From Centre, NTA & CBI On Pleas Seeking Replacement Of Testing Agency
+https://www.verdictum.in/supreme-court/neet-paper-leak-nta-cbi-replacement-testing-agency-1614639
+
+[Source Link](https://t.me/verdictumlegalupdates/27193)
+
+---
+
+### 2026-05-25T09:03:23+00:00
+Reverting To Ballot Papers A 'Regressive Step', But Can't Injunct Election: Supreme Court Refuses To Stay Punjab Municipal Polls
+https://www.verdictum.in/supreme-court/punjab-municipal-election-evm-ballot-paper-regressive-step-1614638
+
+[Source Link](https://t.me/verdictumlegalupdates/27192)
+
+---
+
+### 2026-05-25T08:32:42+00:00
+2020 Delhi Riots| Supreme Court Refers Scope Of Bail Under UAPA To Larger Bench; Grants Interim Bail To Tasleem Ahmed & Khalid Saifi
+https://www.verdictum.in/supreme-court/tasleem-ahmed-v-state-govt-of-nct-of-delhi-slp-crl-no28672026-refers-scope-of-bail-under-uapa-to-larger-bench-1614635
+
+[Source Link](https://t.me/verdictumlegalupdates/27191)
+
+---
+
+### 2026-05-25T08:03:00+00:00
+Supreme Court Grants Bail To Former Excise Commissioner Niranjan Das In Two Multi-Crore Rupees Chhattisgarh Liquor Policy Scam Case
+https://www.verdictum.in/supreme-court/bail-to-former-excise-commissioner-niranjan-das-in-two-multi-crore-rupees-chhattisgarh-liquor-policy-scam-case-1614634
+
+[Source Link](https://t.me/verdictumlegalupdates/27190)
+
+---
+
+### 2026-05-25T07:32:59+00:00
+Supreme Court Refuses Urgent Hearing On Plea Seeking Probe Into Allegations Regarding Fake Advocates With Cockroach Janta Party
+https://www.verdictum.in/supreme-court/urgent-hearing-probe-allegations-fake-advocates-cockroach-janta-party-1614627
+
+[Source Link](https://t.me/verdictumlegalupdates/27189)
+
+---
+
+### 2026-05-25T07:02:37+00:00
+Won't Change Order Just Because CM Made A Statement: Apex Court Refuses Plea Over Bhagwant Mann’s Stray Dog Remark
+https://www.verdictum.in/supreme-court/cm-bhagwant-manns-stray-dog-remark-1614617
+
+[Source Link](https://t.me/verdictumlegalupdates/27188)
+
+---
+
+### 2026-05-25T06:21:17+00:00
+Supreme Court Directs CBI To Take Over Twisha Sharma's Dowry Death Probe, Calls For Media Restraint
+https://www.verdictum.in/supreme-court/twisha-sharma-dowry-death-bhopal-media-restraint-1614620
+
+[Source Link](https://t.me/verdictumlegalupdates/27187)
+
+---
+
+### 2026-05-25T05:52:35+00:00
+Plaint Cannot Be Rejected Under Order VII Rule 11 CPC Based On Deemed Notice From Registered Documents In Specific Performance Suit: Andhra Pradesh High Court
+https://www.verdictum.in/andhra-pradesh-high-court/st-katwal-abubakar-v-abbavaram-subba-reddy-ors-order-vii-rule-11-cpc-1614614
+
+[Source Link](https://t.me/verdictumlegalupdates/27186)
 
 ---
 
@@ -81,86 +161,6 @@ Married To Accused & Wants To Live With Him: Jammu & Kashmir and Ladakh High Cou
 https://www.verdictum.in/jammu-ladakh-high-court/a-v-ut-of-jk-2026jklhc-jmu1542-married-accused-bail-army-official-pocso-case-1614554
 
 [Source Link](https://t.me/verdictumlegalupdates/27176)
-
----
-
-### 2026-05-24T04:33:09+00:00
-Mother Can’t Be Asked To Undergo DNA Test To Prove Maternity To Donate Kidney To Son: Madras High Court
-https://www.verdictum.in/madras-high-court/rita-chaurasiya-v-the-state-of-tamil-nadu-mother-dna-test-maternity-kidney-son-1614553
-
-[Source Link](https://t.me/verdictumlegalupdates/27175)
-
----
-
-### 2026-05-23T15:02:49+00:00
-Staff Selection Commission Western Region Invites Applications For The Post Of Young Professional (Legal Consultant)
-https://www.verdictum.in/job-updates/staff-selection-commission-western-region-1614546
-
-[Source Link](https://t.me/verdictumlegalupdates/27174)
-
----
-
-### 2026-05-23T14:12:48+00:00
-Converts To Christianity Not To Perform Niam Khasi Religious Ceremony: Meghalaya High Court
-https://www.verdictum.in/meghalaya-high-court/kyrshon-marbaniang-v-state-of-meghalaya-ka-leh-niam-raid-mylliem-christian-1614558
-
-[Source Link](https://t.me/verdictumlegalupdates/27173)
-
----
-
-### 2026-05-23T13:33:06+00:00
-BCI Rules Do Not Bar Accused Advocate From Representing Co-Accused Son As Counsel: Madhya Pradesh High Court Quashes Cheating Case
-https://www.verdictum.in/madhya-pradesh-high-court/2026mphcjbp-40235-suresh-prasad-khare-v-the-high-court-of-madhya-pradesh-1614550
-
-[Source Link](https://t.me/verdictumlegalupdates/27172)
-
----
-
-### 2026-05-23T12:52:55+00:00
-Section 6 Of Probation Of Offenders Act Applies When Accused Is Under 21 Years Of Age On Date Of Imposition Of Punishment: Delhi High Court
-https://www.verdictum.in/delhi-high-court/state-of-nct-of-delhi-v-deepak-2026dhc4523-db-probation-of-offenders-act-21-years-1614549
-
-[Source Link](https://t.me/verdictumlegalupdates/27171)
-
----
-
-### 2026-05-23T12:02:53+00:00
-Denial Of Adequate Compensation For Advanced Prosthetic Devices Would Compel Motor Accident Victim To Live With Inferior Mobility & Diminished Dignity: Kerala High Court
-https://www.verdictum.in/kerala-high-court/2026-ker-35025-ummer-ck-v-the-oriental-insurance-company-ltd-1614542
-
-[Source Link](https://t.me/verdictumlegalupdates/27170)
-
----
-
-### 2026-05-23T11:13:12+00:00
-High Court Cannot Grant Fresh Bail After Supreme Court Cancels Bail Without Showing Change In Circumstances: Supreme Court
-https://www.verdictum.in/supreme-court/mohseen-v-state-of-uttar-pradesh-anr-2026-insc-526-bail-high-court-order-1614539
-
-[Source Link](https://t.me/verdictumlegalupdates/27169)
-
----
-
-### 2026-05-23T10:31:31+00:00
-Government Circular Discouraging FIR On Civil Disputes Cannot Justify Nine-Year Delay In FIR: Supreme Court Quashes FIR
-https://www.verdictum.in/supreme-court/bhikhubhai-govindbhai-patel-v-the-state-of-gujarat-2026-insc-532-civil-disputes-cannot-justify-eight-year-delay-in-fir-1614538
-
-[Source Link](https://t.me/verdictumlegalupdates/27168)
-
----
-
-### 2026-05-23T09:52:29+00:00
-Foreign Nationals Also Have Fundamental Right To Life, Personal Liberty & Speedy Trial: Rajasthan High Court Grants Bail To Bangladeshi Nationals In Kidney Racket Case
-https://www.verdictum.in/rajasthan-high-court/nurul-islam-v-state-of-rajasthan-sb-criminal-miscellaneous-petition-no-2038-2026-1614535
-
-[Source Link](https://t.me/verdictumlegalupdates/27167)
-
----
-
-### 2026-05-23T09:03:08+00:00
-Allahabad High Court Clarifies Powers Of Elders Committees In Bar Associations; Restrains Registrar, UP Bar Council From Interfering In Elections
-https://www.verdictum.in/allahabad-high-court/chandrashekhar-upadhyay-v-state-of-up-2026ahc116231-db-up-bar-council-clarifies-powers-of-elders-committees-1614534
-
-[Source Link](https://t.me/verdictumlegalupdates/27166)
 
 ---
 
