@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-25T15:33:01+00:00*
+*Last Updated: 2026-05-25T16:02:22+00:00*
+
+---
+
+### 2026-05-25T16:02:22+00:00
+Legal Executive Vacancy At  Sagarmala Finance Corporation Limited (SMFCL)
+https://www.verdictum.in/job-updates/sagarmala-finance-corporation-limited-1614655
+
+[Source Link](https://t.me/verdictumlegalupdates/27206)
 
 ---
 
@@ -153,14 +161,6 @@ Supreme Court Directs CBI To Take Over Twisha Sharma's Dowry Death Probe, Calls 
 https://www.verdictum.in/supreme-court/twisha-sharma-dowry-death-bhopal-media-restraint-1614620
 
 [Source Link](https://t.me/verdictumlegalupdates/27187)
-
----
-
-### 2026-05-25T05:52:35+00:00
-Plaint Cannot Be Rejected Under Order VII Rule 11 CPC Based On Deemed Notice From Registered Documents In Specific Performance Suit: Andhra Pradesh High Court
-https://www.verdictum.in/andhra-pradesh-high-court/st-katwal-abubakar-v-abbavaram-subba-reddy-ors-order-vii-rule-11-cpc-1614614
-
-[Source Link](https://t.me/verdictumlegalupdates/27186)
 
 ---
 
