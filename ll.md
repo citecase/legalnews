@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-26T12:53:34+00:00*
+*Last Updated: 2026-05-26T13:24:20+00:00*
 
 ---
 
-### 2026-05-26T12:53:34+00:00
-2026 LiveLaw (SC) 544 |  COMMISSIONER OF CUSTOMS, KANDLA, GUJARAT VERSUS M/S RELIANCE INDUSTRIES LIMITED
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-544-commissioner-of-customs-kandla-gujarat-versus-ms-reliance-industries-limited-535781
-
-[Read on Telegram](https://t.me/livelawindia/111778)
-
----
-### 2026-05-26T13:01:54+00:00
-State Can't Keep Workers In Perpetual Contractual Limbo: P&H High Court Calls Out 'Exploitation' Of NHM Staff, Orders Regularisation
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-calls-out-exploitation-of-nhm-staff-orders-regularisation-state-cannot-keep-workers-in-perpetual-contractual-limbo-535785
-
-[Read on Telegram](https://t.me/livelawindia/111779)
-
----
-### 2026-05-26T13:16:20+00:00
-Call For Chapters | Edited Book On “Environment And Energy Law: Contemporary Issues, Legal Frameworks And Sustainable Solutions”
-https://www.livelaw.in/lawschool/call-for-papers/edited-book-environment-energy-law-contemporary-issues-legal-frameworks-sustainable-solutions-535787
-
-[Read on Telegram](https://t.me/livelawindia/111780)
-
----
-### 2026-05-26T13:22:40+00:00
-Judicial Service Recruitment | Is Cut-Off For Viva-Voce Arbitrary? Supreme Court Hears Candidates' Plea
-https://www.livelaw.in/top-stories/supreme-court-judicial-service-recruitment-consider-candidates-vivavoce-535789
-
-[Read on Telegram](https://t.me/livelawindia/111781)
-
----
 ### 2026-05-26T13:24:20+00:00
 SLS Noida Wins 1st LC-1 R.N. Mittal National Memorial Moot Court Competition
 https://www.livelaw.in/lawschool/news/sls-noida-wins-1st-lc-1-rn-mittal-national-memorial-moot-court-competition-535790
@@ -142,5 +114,33 @@ https://www.livelaw.in/sc-judgments/2026-livelaw-sc-545-vickki-yadav-vikas-yadav
 https://www.livelaw.in/top-stories/supreme-court-maharashtra-bombay-hc-order-scam-land-valuation-535815
 
 [Read on Telegram](https://t.me/livelawindia/111797)
+
+---
+### 2026-05-26T15:54:00+00:00
+Prosecuting Advocates For Professional Acts Means 'End Of The Bar': Allahabad HC Quashes Conspiracy FIR Against Lawyer
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-prosecuting-advocates-professional-acts-end-bar-quashes-conspiracy-fir-lawyer-535817
+
+[Read on Telegram](https://t.me/livelawindia/111798)
+
+---
+### 2026-05-26T15:57:01+00:00
+'MPID Courts Acting Daredevil; High Court Must See What Corruption Going On There': CJI Surya Kant
+https://www.livelaw.in/top-stories/mpid-courts-acting-daredevil-high-court-must-see-what-corruption-going-on-there-cji-surya-kant-535818
+
+[Read on Telegram](https://t.me/livelawindia/111799)
+
+---
+### 2026-05-26T16:35:43+00:00
+BREAKING| Supreme Court To Pronounce Judgment Tomorrow On Legality Of SIR Carried Out By Election Commission Of India
+https://www.livelaw.in/top-stories/supreme-court-to-pronounce-judgment-tomorrow-on-legality-of-sir-carried-out-by-election-commission-of-india-535821
+
+[Read on Telegram](https://t.me/livelawindia/111800)
+
+---
+### 2026-05-26T17:07:13+00:00
+Supreme Court Daily Round-Up : May 26, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-26-2026-535819
+
+[Read on Telegram](https://t.me/livelawindia/111801)
 
 ---
