@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-25T13:38:23+00:00*
+*Last Updated: 2026-05-26T07:28:10+00:00*
 
 ---
 
-### 2026-05-25T13:38:23+00:00
-Permitting Law Students With Low Attendance To Take Exams Will Bring Lawlessness In Colleges: Uttarakhand HC
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-hc-permit-law-students-low-attendance-exams-lawlessness-colleges-535621
+### 2026-05-26T07:28:10+00:00
+Lawyer Running Office From Residence Can't Be Charged Commercial Electricity Tariff: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-lawyers-office-in-residence-cannot-be-charged-commercial-electricity-tariff-535712
 
-[Read on Telegram](https://t.me/livelawindia/111695)
-
----
-### 2026-05-25T13:42:23+00:00
-“Her Story An Eye-Opener”: Convicting Husband For Wife's Murder, Supreme Court Warns Against Forcing Women Back Into Abusive Marriages
-https://www.livelaw.in/supreme-court/her-story-an-eye-opener-convicting-husband-for-wifes-murder-supreme-court-warns-against-forcing-women-back-into-abusive-marriages-535622
-
-[Read on Telegram](https://t.me/livelawindia/111696)
+[Read on Telegram](https://t.me/livelawindia/111742)
 
 ---
-### 2026-05-25T13:43:43+00:00
-2026 LiveLaw (SC) 538 | Gour Acharjee Versus The State of Tripura & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-538-gour-acharjee-versus-the-state-of-tripura-ors-535623
+### 2026-05-26T07:29:33+00:00
+Supreme Court Agrees To Examine If Definition Of 'Wetland' In Wetland Conservation Rules 2017 Is Vague
+https://www.livelaw.in/top-stories/supreme-court-agrees-to-examine-if-definition-of-wetland-in-wetland-conservation-rules-2017-is-vague-535713
 
-[Read on Telegram](https://t.me/livelawindia/111697)
-
----
-### 2026-05-25T13:58:03+00:00
-Abhijeet Dipke Moves Delhi High Court Against Blocking Of Cockroach Janta Party's X Account
-https://www.livelaw.in/high-court/delhi-high-court/cockroach-janta-party-founder-moves-delhi-high-court-against-takedown-of-x-account-535624
-
-[Read on Telegram](https://t.me/livelawindia/111698)
+[Read on Telegram](https://t.me/livelawindia/111743)
 
 ---
-### 2026-05-25T14:14:03+00:00
-Supreme Court Questions Centre's Delay In Notifying Commercial Court Rules 2021, Says HCs May Consider Setting Up District Execution Cells
-https://www.livelaw.in/supreme-court/supreme-court-questions-centres-delay-in-notifying-commercial-court-rules-2021-says-hcs-may-consider-setting-up-district-execution-cells-535628
+### 2026-05-26T08:11:13+00:00
+Terror Funding Case: Delhi High Court Grants Interim Bail To MP Engineer Rashid To Attend Late Father's 40th Day Ceremony
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-engineer-rashid-bail-uapa-535719
 
-[Read on Telegram](https://t.me/livelawindia/111699)
-
----
-### 2026-05-25T14:32:53+00:00
-Deepfakes & Deception
-https://www.livelaw.in/articles/deepfakes-deception-535501
-
-[Read on Telegram](https://t.me/livelawindia/111700)
+[Read on Telegram](https://t.me/livelawindia/111744)
 
 ---
-### 2026-05-25T14:59:13+00:00
-LiveLaw Daily| Child labour in bars and spas| Stray dogs| Cockroach Janta Party| NEET update & more
-https://www.livelaw.in/podcast/livelaw-daily-livelaw-neet-ug-2026-nta-dissolution-justice-ps-narasimha-madhu-lynching-case-scst-act-cockroach-janata-party-cji-surya-kant-child-labour-dance-bars-just-rights-for-children-alliance-stray-dogs-euthanasia-animals-are-people-too-bhagwant-mann-siddharth-varadarajan-oci-card-punjab-municipal-elections-ballot-paper-evm-gujarat-high-court-junagadh-panchayat-election-legal-news-india-court-updates-535635
+### 2026-05-26T08:12:13+00:00
+[Advertisement] Certificate Course On Corporate Law By IDIA Odisha Chapter
+https://www.livelaw.in/lawschool/diploma-certificate-courses/advertisement-certificate-course-corporate-law-idia-odisha-chapter-535720
 
-[Read on Telegram](https://t.me/livelawindia/111701)
-
----
-### 2026-05-25T15:02:34+00:00
-Karnataka High Court Weekly Round-Up: May 18 – May 24, 2026
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-roundup2026-535616
-
-[Read on Telegram](https://t.me/livelawindia/111702)
+[Read on Telegram](https://t.me/livelawindia/111745)
 
 ---
-### 2026-05-25T15:26:43+00:00
-In-Laws Can't Be Prosecuted Merely For Asking Wife To Adjust : Supreme Court Quashes Dowry Harassment, 498A Case
-https://www.livelaw.in/supreme-court/in-laws-cant-be-prosecuted-merely-for-asking-wife-to-adjust-supreme-court-quashes-dowry-harassment-498a-case-535639
+### 2026-05-26T08:16:53+00:00
+Sabarimala Gold Theft: Kerala High Court Expresses Disinclination To Cancel Thantri Kandararu Rajeevaru's Bail
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kandararu-rajeevaru-sabarimala-gold-theft-case-535721
 
-[Read on Telegram](https://t.me/livelawindia/111703)
-
----
-### 2026-05-25T15:28:03+00:00
-2026 LiveLaw (SC) 539  |  ARTI MEHTA & ORS. VERSUS THE STATE OF MADHYA PRADESH & ANR
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-539-arti-mehta-ors-versus-the-state-of-madhya-pradesh-anr-535640
-
-[Read on Telegram](https://t.me/livelawindia/111704)
+[Read on Telegram](https://t.me/livelawindia/111746)
 
 ---
-### 2026-05-25T16:00:23+00:00
-After BCI Chairperson's Remarks On Fake Advocates, Plea Filed In Supreme Court To Verify Law Degrees
-https://www.livelaw.in/top-stories/after-bci-chairpersons-remarks-on-fake-advocates-plea-filed-in-supreme-court-to-verify-law-degrees-535642
+### 2026-05-26T08:17:33+00:00
+Appointment Of Commissioner Is Neither Adjudication Of Title Nor Determination Of Possession, But Mere Procedural Aid: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-appointment-of-commissioner-is-neither-adjudication-of-title-nor-determination-of-possession-but-mere-procedural-aid-to-court-535702
 
-[Read on Telegram](https://t.me/livelawindia/111705)
-
----
-### 2026-05-25T16:55:04+00:00
-Supreme Court Daily Round-Up : May 25, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-25-2026-535646
-
-[Read on Telegram](https://t.me/livelawindia/111706)
+[Read on Telegram](https://t.me/livelawindia/111747)
 
 ---
-### 2026-05-25T18:31:24+00:00
-Delhi High Court Asks NCDRC To Examine Claim That Web Copy Of Its Order Differed From Certified Copy Supplied Later
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-asks-ncdrc-to-examine-claim-that-web-copy-of-its-order-differed-from-certified-copy-supplied-later-535649
+### 2026-05-26T08:28:53+00:00
+Freezing Entire Salary Account Over Suspicious Transactions Violates Right To Livelihood: MP High Court Grants Relief To Armed Force Personnel
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-special-armed-force-personnel-salary-account-535723
 
-[Read on Telegram](https://t.me/livelawindia/111707)
-
----
-### 2026-05-26T01:32:41+00:00
-'Pivotal In Fueling Protest To Aggressive Level': Delhi Court Convicts Alka Lamba For Assault During 2024 Women's Reservation Bill Protest
-https://www.livelaw.in/news-updates/delhi-court-alka-lamba-womens-reservation-protest-police-personnel-assault-535658
-
-[Read on Telegram](https://t.me/livelawindia/111708)
+[Read on Telegram](https://t.me/livelawindia/111748)
 
 ---
-### 2026-05-26T03:19:23+00:00
-Assistant Manager/ Deputy Manager (Data Protection) Vacancy At Maruti Suzuki India Limited
-https://www.livelaw.in/job-updates/assistant-manager-deputy-manager-data-protection-vacancy-at-maruti-suzuki-india-limited-535662
+### 2026-05-26T08:32:13+00:00
+TMC MP Abhishek Banerjee's Wife Moves Calcutta High Court Seeking Permission To Travel Abroad
+https://www.livelaw.in/high-court/calcutta-high-court/tmc-mp-abhishek-banerjees-wife-moves-calcutta-high-court-seeking-permission-to-travel-abroad-535724
 
-[Read on Telegram](https://t.me/livelawindia/111709)
-
----
-### 2026-05-26T03:20:04+00:00
-Deputy General Manager (P&IR) Vacancy At Jawaharlal Nehru Port Authority (JNPA)
-https://www.livelaw.in/job-updates/deputy-general-manager-pir-vacancy-at-jawaharlal-nehru-port-authority-535663
-
-[Read on Telegram](https://t.me/livelawindia/111710)
+[Read on Telegram](https://t.me/livelawindia/111749)
 
 ---
-### 2026-05-26T03:21:24+00:00
-Program Manager-I Vacancy At Indian Institute Of Technology, Gandhinagar
-https://www.livelaw.in/job-updates/program-manager-i-vacancy-at-indian-institute-of-technology-gandhinagar-535664
+### 2026-05-26T08:38:04+00:00
+Quashed Rape FIR Can't Be Revived Merely Because Marriage Later Fails Or Husband Abandons Wife: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/quashed-rape-fir-cant-be-revived-merely-because-marriage-later-fails-or-husband-abandons-wife-delhi-high-court-535650
 
-[Read on Telegram](https://t.me/livelawindia/111711)
-
----
-### 2026-05-26T03:27:24+00:00
-Program Associate I Vacancy At Indian Institute Of Technology, Gandhinagar
-https://www.livelaw.in/job-updates/program-associate-i-vacancy-at-indian-institute-of-technology-gandhinagar-535665
-
-[Read on Telegram](https://t.me/livelawindia/111712)
+[Read on Telegram](https://t.me/livelawindia/111750)
 
 ---
-### 2026-05-26T03:32:44+00:00
-No Unrestricted 'Right To Information' Merely Because Legislature May Seek It; DPDP Act Strengthens Privacy Framework: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-rti-act-disciplinary-proceedings-file-note-535659
+### 2026-05-26T08:40:03+00:00
+Delhi High Court Issues Notice On Priya Kapur's Plea To Use Sunjay Kapur's EPF Funds For School Fees Of Karisma Kapoor's Children
+https://www.livelaw.in/high-court/delhi-high-court/background-delhi-high-court-karisma-kapoors-children-priya-kapur-sunjay-kapur-535727
 
-[Read on Telegram](https://t.me/livelawindia/111713)
+[Read on Telegram](https://t.me/livelawindia/111751)
 
 ---
-### 2026-05-26T04:02:14+00:00
-Appeal U/S 37 Advocates Act Maintainable Only Against Orders Of Disciplinary Committee, Not State Bar Council Resolutions: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/appeal-us-37-advocates-act-maintainable-only-against-orders-of-disciplinary-committee-not-state-bar-council-resolutions-delhi-high-court-535655
+### 2026-05-26T08:52:23+00:00
+Motherhood Cannot Become Grounds For Economic Disadvantage: J&K&L High Court Upholds Maternity Leave Period As Continuous Service
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-motherhood-cannot-become-a-ground-for-economic-disadvantage-court-upholds-maternity-leave-period-as-continuous-service-for-women-bank-employees-535651
 
-[Read on Telegram](https://t.me/livelawindia/111714)
+[Read on Telegram](https://t.me/livelawindia/111752)
+
+---
+### 2026-05-26T08:57:24+00:00
+Delhi High Court Directs Police To Trace Untraceable Employers For Recovery Of Rescued Child Labourers' Back Wages
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-police-to-trace-untraceable-employers-for-recovery-of-rescued-child-labourers-back-wages-535653
+
+[Read on Telegram](https://t.me/livelawindia/111753)
+
+---
+### 2026-05-26T09:13:43+00:00
+'All NLUs Suffering' : Supreme Court Stays Delhi HC Judgment Against Debarring Law Students For Low Attendance
+https://www.livelaw.in/top-stories/all-nlus-suffering-supreme-court-stays-delhi-hc-judgment-against-debarring-law-students-for-low-attendance-535730
+
+[Read on Telegram](https://t.me/livelawindia/111754)
+
+---
+### 2026-05-26T09:28:53+00:00
+Future-Ready Or Constrained? TRAI's Role In Digital India”
+https://www.livelaw.in/law-firms/law-firm-articles-/future-ready-constrained-trais-role-digital-india-535731
+
+[Read on Telegram](https://t.me/livelawindia/111755)
+
+---
+### 2026-05-26T09:32:33+00:00
+Regulating Love? Assam's UCC And Constitutional Limits Of State Control Over Live-In Relationships
+https://www.livelaw.in/articles/assam-ucc-constitutional-limits-state-control-livein-relationships-535599
+
+[Read on Telegram](https://t.me/livelawindia/111756)
+
+---
+### 2026-05-26T09:44:33+00:00
+High Court Exercising Probate Jurisdiction Has Constitutional Power To Order Investigation Into Irregularities In Estate : Supreme Court
+https://www.livelaw.in/supreme-court/high-court-exercising-probate-jurisdiction-has-constitutional-power-to-order-investigation-into-irregularities-in-estate-supreme-court-535736
+
+[Read on Telegram](https://t.me/livelawindia/111757)
+
+---
+### 2026-05-26T09:45:13+00:00
+Shuhaib Murder Case: All 17 Accused Move Kerala High Court After Sessions Court Cancelled Their Bail For 'Delaying' Trial
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-shuhaib-murder-case-bail-accused-535737
+
+[Read on Telegram](https://t.me/livelawindia/111758)
+
+---
+### 2026-05-26T09:45:33+00:00
+2026 LiveLaw (SC) 542 |  BAI AVABAI HORMUSJI TATA TRUST VERSUS SHERNAZ FAROUKH LAWYER & ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-542-bai-avabai-hormusji-tata-trust-versus-shernaz-faroukh-lawyer-ors-535739
+
+[Read on Telegram](https://t.me/livelawindia/111759)
+
+---
+### 2026-05-26T09:53:34+00:00
+'Arrest Memo Mentioned Murder Offence Even Before Body Was Recovered' : Supreme Court Upholds Acquittals
+https://www.livelaw.in/supreme-court/arrest-memo-mentioned-murder-offence-even-before-body-was-recovered-supreme-court-upholds-acquittals-535741
+
+[Read on Telegram](https://t.me/livelawindia/111760)
+
+---
+### 2026-05-26T09:54:34+00:00
+2026 LiveLaw (SC) 543 | PAWAN KUMAR SHARMA VERSUS MANOJ KUMAR & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-543-pawan-kumar-sharma-versus-manoj-kumar-ors-535742
+
+[Read on Telegram](https://t.me/livelawindia/111761)
 
 ---
