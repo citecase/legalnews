@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-25T12:39:35+00:00*
+*Last Updated: 2026-05-25T13:38:23+00:00*
 
 ---
 
-### 2026-05-25T12:39:35+00:00
-PIL Moved In Allahabad High Court Seeks Cancellation Of Rahul Gandhi's Indian Citizenship
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-pil-cancellation-rahul-gandhi-indian-citizenship-535609
-
-[Read on Telegram](https://t.me/livelawindia/111688)
-
----
-### 2026-05-25T12:44:07+00:00
-Objectionable Remarks Against Community By Public Servant Have Greater Social Impact: P&H High Court Denies Anticipatory Bail
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/hate-speech-against-community-public-servant-no-anticipatory-bail-535611
-
-[Read on Telegram](https://t.me/livelawindia/111689)
-
----
-### 2026-05-25T13:02:25+00:00
-Madhya Pradesh High Court Weekly Roundup: May 18 - May 24, 2026
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-weekly-digest-may-18-to-may-24-2026-535556
-
-[Read on Telegram](https://t.me/livelawindia/111690)
-
----
-### 2026-05-25T13:10:06+00:00
-Supreme Court Asks Nagpur Parsi Panchayat If Woman Who Married Outside Community Can Be Permitted To Offer Prayers At Aghyari
-https://www.livelaw.in/top-stories/supreme-court-asks-nagpur-parsi-panchayat-if-woman-who-married-outside-community-can-be-permitted-to-offer-prayers-at-aghyari-535618
-
-[Read on Telegram](https://t.me/livelawindia/111691)
-
----
-### 2026-05-25T13:17:13+00:00
-Supreme Court Chides Delhi Govt Over Delay In Constituting Selection Committee For DERC Appointments, Seeks Timeline In 2 Days
-https://www.livelaw.in/top-stories/supreme-court-chides-delhi-govt-over-delay-in-constituting-selection-committee-for-derc-appointments-seeks-timeline-in-2-days-535619
-
-[Read on Telegram](https://t.me/livelawindia/111692)
-
----
-### 2026-05-25T13:17:53+00:00
-Punjab & Haryana High Court Pulls Up Police For Declaring Family Members Of Cheating Accused “Innocent” Despite Money Trail
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-seeks-ssps-affidavit-in-bail-plea-shocking-that-family-members-receiving-cheated-money-declared-innocent-535614
-
-[Read on Telegram](https://t.me/livelawindia/111693)
-
----
-### 2026-05-25T13:33:03+00:00
-Interfaith Couples Must Show Clear Proof Of Threat To Seek Continuous Police Protection, General Apprehensions Not Enough: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-interfaith-couples-round-the-clock-police-protection-clear-proof-of-threat-535615
-
-[Read on Telegram](https://t.me/livelawindia/111694)
-
----
 ### 2026-05-25T13:38:23+00:00
 Permitting Law Students With Low Attendance To Take Exams Will Bring Lawlessness In Colleges: Uttarakhand HC
 https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-hc-permit-law-students-low-attendance-exams-lawlessness-colleges-535621
@@ -142,5 +93,54 @@ Delhi High Court Asks NCDRC To Examine Claim That Web Copy Of Its Order Differed
 https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-asks-ncdrc-to-examine-claim-that-web-copy-of-its-order-differed-from-certified-copy-supplied-later-535649
 
 [Read on Telegram](https://t.me/livelawindia/111707)
+
+---
+### 2026-05-26T01:32:41+00:00
+'Pivotal In Fueling Protest To Aggressive Level': Delhi Court Convicts Alka Lamba For Assault During 2024 Women's Reservation Bill Protest
+https://www.livelaw.in/news-updates/delhi-court-alka-lamba-womens-reservation-protest-police-personnel-assault-535658
+
+[Read on Telegram](https://t.me/livelawindia/111708)
+
+---
+### 2026-05-26T03:19:23+00:00
+Assistant Manager/ Deputy Manager (Data Protection) Vacancy At Maruti Suzuki India Limited
+https://www.livelaw.in/job-updates/assistant-manager-deputy-manager-data-protection-vacancy-at-maruti-suzuki-india-limited-535662
+
+[Read on Telegram](https://t.me/livelawindia/111709)
+
+---
+### 2026-05-26T03:20:04+00:00
+Deputy General Manager (P&IR) Vacancy At Jawaharlal Nehru Port Authority (JNPA)
+https://www.livelaw.in/job-updates/deputy-general-manager-pir-vacancy-at-jawaharlal-nehru-port-authority-535663
+
+[Read on Telegram](https://t.me/livelawindia/111710)
+
+---
+### 2026-05-26T03:21:24+00:00
+Program Manager-I Vacancy At Indian Institute Of Technology, Gandhinagar
+https://www.livelaw.in/job-updates/program-manager-i-vacancy-at-indian-institute-of-technology-gandhinagar-535664
+
+[Read on Telegram](https://t.me/livelawindia/111711)
+
+---
+### 2026-05-26T03:27:24+00:00
+Program Associate I Vacancy At Indian Institute Of Technology, Gandhinagar
+https://www.livelaw.in/job-updates/program-associate-i-vacancy-at-indian-institute-of-technology-gandhinagar-535665
+
+[Read on Telegram](https://t.me/livelawindia/111712)
+
+---
+### 2026-05-26T03:32:44+00:00
+No Unrestricted 'Right To Information' Merely Because Legislature May Seek It; DPDP Act Strengthens Privacy Framework: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-rti-act-disciplinary-proceedings-file-note-535659
+
+[Read on Telegram](https://t.me/livelawindia/111713)
+
+---
+### 2026-05-26T04:02:14+00:00
+Appeal U/S 37 Advocates Act Maintainable Only Against Orders Of Disciplinary Committee, Not State Bar Council Resolutions: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/appeal-us-37-advocates-act-maintainable-only-against-orders-of-disciplinary-committee-not-state-bar-council-resolutions-delhi-high-court-535655
+
+[Read on Telegram](https://t.me/livelawindia/111714)
 
 ---
