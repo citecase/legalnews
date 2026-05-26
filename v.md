@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-26T10:32:48+00:00*
+*Last Updated: 2026-05-26T16:02:54+00:00*
+
+---
+
+### 2026-05-26T16:02:54+00:00
+Young Professional (Legal) Vacancy At Indian Institute of Geomagnetism (IIGM)
+https://www.verdictum.in/job-updates/indian-institute-of-geomagnetism-1614726
+
+[Source Link](https://t.me/verdictumlegalupdates/27230)
+
+---
+
+### 2026-05-26T15:32:53+00:00
+Internal Disciplinary File Notings Of Public Service Commission Cannot Be Mechanically Disclosed Under RTI Act: Kerala High Court
+https://www.verdictum.in/kerala-high-court/public-information-officer-ors-v-kerala-state-information-commission-anr-2026ker34827-1614735
+
+[Source Link](https://t.me/verdictumlegalupdates/27229)
+
+---
+
+### 2026-05-26T15:02:31+00:00
+Witnesses Complaining Of Police Detention Raise Doubt That They Were "Set Up" By Police: Supreme Court Acquits 2008 Murder Conspiracy Accused
+https://www.verdictum.in/supreme-court/pulkit-monu-v-the-state-of-madhya-pradesh-2026-insc-543-aise-doubt-they-were-set-up-by-police-murder-conspiracy-accused-1614734
+
+[Source Link](https://t.me/verdictumlegalupdates/27228)
+
+---
+
+### 2026-05-26T14:33:19+00:00
+Constitutional Courts Can Intervene Where UAPA Accused Remained In Custody for Long Period: Jammu & Kashmir and Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/constitutional-courts-can-intervene-where-uapa-accused-remained-in-custody-for-long-period-jammu-kashmir-and-ladakh-high-court-1614733
+
+[Source Link](https://t.me/verdictumlegalupdates/27227)
+
+---
+
+### 2026-05-26T14:02:38+00:00
+Retraction Of Earlier Stand & Introduction Of Contradictory Stand In Guise Of Filing Additional Written Statement Contrary To Order 6 Rule 7 CPC Mandate: Supreme Court
+https://www.verdictum.in/supreme-court/mondira-ghosh-v-chaitali-ghosh-2026-insc-545-retraction-earlier-stand-order-6-rule-7-cpc-1614732
+
+[Source Link](https://t.me/verdictumlegalupdates/27226)
+
+---
+
+### 2026-05-26T13:32:37+00:00
+Demolition After 17 Years Would Be Contrary To Public Interest: Supreme Court Directs Regularisation Of Commercial Complex
+https://www.verdictum.in/supreme-court/k-raheja-corp-private-limited-v-state-of-maharashtra-ors-2026-insc-551-1614731
+
+[Source Link](https://t.me/verdictumlegalupdates/27225)
+
+---
+
+### 2026-05-26T13:02:15+00:00
+Courts Can Modify Arbitral Awards Instead Of Setting Them Aside Where It Would Cause Significant Hardship & Delay: Supreme Court Ends 14-Year-Old Dispute
+https://www.verdictum.in/supreme-court/bhupesh-bhayana-v-kunal-seth-2026-insc-546-ends-14-year-old-dispute-courts-may-modify-arbitral-awards-1614724
+
+[Source Link](https://t.me/verdictumlegalupdates/27224)
+
+---
+
+### 2026-05-26T12:33:14+00:00
+Demand Of Dowry Not Needed To Attract Offence U/S 498A IPC; Any Unlawful Demand Made By Husband Or His Family Sufficient: Supreme Court
+https://www.verdictum.in/supreme-court/a-v-state-of-odisha-ors-2026-insc-544-dowry-sec498-a-ipc-unlawful-demand-1614723
+
+[Source Link](https://t.me/verdictumlegalupdates/27223)
+
+---
+
+### 2026-05-26T12:02:32+00:00
+Decision Of DGFT On Classification Of Items Under ITC (HS) Final And Binding; Hexane Not Petroleum Oil Or Motor Spirit: Supreme Court
+https://www.verdictum.in/supreme-court/commissioner-of-customs-kandla-gujarat-v-ms-reliance-industries-limited-2026-insc-536-1614717
+
+[Source Link](https://t.me/verdictumlegalupdates/27222)
+
+---
+
+### 2026-05-26T11:32:11+00:00
+Supreme Court Stays Delhi High Court Order That Prohibited Law Colleges Barring Law Students Over Low Attendance
+https://www.verdictum.in/supreme-court/law-colleges-barring-law-students-over-low-attendance-1614718
+
+[Source Link](https://t.me/verdictumlegalupdates/27221)
+
+---
+
+### 2026-05-26T11:04:30+00:00
+Eradicate Perception That Only Sanitary Workers Must Handle Waste: Supreme Court Calls For Public Participation For SWM Rules Compliance
+https://www.verdictum.in/supreme-court/solid-waste-managment-compliance-sanitary-mahatama-gandhi-waste-1614716
+
+[Source Link](https://t.me/verdictumlegalupdates/27220)
 
 ---
 
@@ -73,94 +161,6 @@ Doctrine Of Promissory Estoppel Can’t Be Invoked To Create Entitlement Contrar
 https://www.verdictum.in/supreme-court/state-of-himachal-pradesh-ors-v-ms-kundlas-loh-udyog-2026-insc-534-1614694
 
 [Source Link](https://t.me/verdictumlegalupdates/27211)
-
----
-
-### 2026-05-26T06:03:06+00:00
-Recovery Of Dead Body At Accused’s Pointing Formidable Evidence; Failure To Explain Knowledge Of It Strengthens Presumption Of Guilt: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/dr-vinod-alias-ram-vinod-alias-ram-niwas-v-state-of-uttar-pradesh-2026ahc114643-db-1614690
-
-[Source Link](https://t.me/verdictumlegalupdates/27210)
-
----
-
-### 2026-05-26T05:34:44+00:00
-Negligence Need Not Be Proved In Claim U/S.163A MV Act; Discrepancies Which Don’t Go To Root Of Occurrence Can’t Defeat Motor Accident Compensation Claim: Supreme Court
-https://www.verdictum.in/supreme-court/raj-kumar-das-d-thr-lrs-v-national-insurance-co-ltd-2026-insc-541-negligence-motor-vehicles-act-1614689
-
-[Source Link](https://t.me/verdictumlegalupdates/27209)
-
----
-
-### 2026-05-26T05:02:23+00:00
-Consensual Relationship Within Marriage Can’t Be Treated As Rape: Tripura High Court Acquits Man
-https://www.verdictum.in/tripura-high-court/a-v-the-state-of-tripura-2026thc618-db-consensual-relationship-marriage-rape-1614686
-
-[Source Link](https://t.me/verdictumlegalupdates/27208)
-
----
-
-### 2026-05-26T04:32:31+00:00
-Absence Of Cash Book Entries Alone Can't Prove Misappropriation Without Proof of Lawful Entrustment: Supreme Court Acquits Co-operative Society Secretary
-https://www.verdictum.in/supreme-court/misappropriation-409-ips-society-secretary-acquitted-cash-book-lawful-entrustment-1614660
-
-[Source Link](https://t.me/verdictumlegalupdates/27207)
-
----
-
-### 2026-05-25T16:02:22+00:00
-Legal Executive Vacancy At  Sagarmala Finance Corporation Limited (SMFCL)
-https://www.verdictum.in/job-updates/sagarmala-finance-corporation-limited-1614655
-
-[Source Link](https://t.me/verdictumlegalupdates/27206)
-
----
-
-### 2026-05-25T15:33:01+00:00
-Mere Dismissal From Service Pursuant To Departmental Enquiry Can’t Result In Automatic Forfeiture Of Gratuity: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/central-madhya-pradesh-gramin-bank-v-babita-mor-2026mphc-jbp38002-departmental-enquiry-1614654
-
-[Source Link](https://t.me/verdictumlegalupdates/27205)
-
----
-
-### 2026-05-25T15:02:49+00:00
-"Dismissal" Of Employee After Retirement Based On Previously Initiated Disciplinary Proceedings Valid Where Rules Permit: J&K And Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/jammu-kashmir-bank-ltd-ors-v-naseer-ahmad-sheikh-disciplinary-proceedings-1614653
-
-[Source Link](https://t.me/verdictumlegalupdates/27204)
-
----
-
-### 2026-05-25T14:33:28+00:00
-Independent Public Witnesses Turning Hostile Would Do More Harm Than Good; Emphasis Should Be On Having Truthful Witnesses In Criminal Cases: Delhi High Court
-https://www.verdictum.in/delhi-high-court/rajinder-kumar-v-the-state-2026dhc4479-independent-public-witnesses-1614652
-
-[Source Link](https://t.me/verdictumlegalupdates/27203)
-
----
-
-### 2026-05-25T14:02:46+00:00
-Motherhood Cannot Be Treated As Professional Impediment: Delhi High Court Allows Vinesh Phogat To Participate In Asian Games Trials
-https://www.verdictum.in/delhi-high-court/vinesh-phogat-v-wrestling-federation-of-india-ors-2026dhc4661-db-1614651
-
-[Source Link](https://t.me/verdictumlegalupdates/27202)
-
----
-
-### 2026-05-25T13:32:25+00:00
-Detention Order Vitiated If Juvenility Of Detenue On Date Of Alleged Activities Is Not Considered: Jammu & Kashmir and Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/fariz-gulzar-v-union-territory-of-jk-detention-order-vitiated-juvenility-detenue-1614650
-
-[Source Link](https://t.me/verdictumlegalupdates/27201)
-
----
-
-### 2026-05-25T13:03:04+00:00
-Apex Court Issues Notice To Centre, NCPCR & NHRC On Plea Seeking Ban On Employment Of Children In Orchestras, Spas
-https://www.verdictum.in/supreme-court/notice-to-centre-ncpcr-nhrc-ban-on-employment-of-children-in-orchestras-spas-1614648
-
-[Source Link](https://t.me/verdictumlegalupdates/27200)
 
 ---
 
