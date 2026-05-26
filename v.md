@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-25T16:02:22+00:00*
+*Last Updated: 2026-05-26T04:32:31+00:00*
+
+---
+
+### 2026-05-26T04:32:31+00:00
+Absence Of Cash Book Entries Alone Can't Prove Misappropriation Without Proof of Lawful Entrustment: Supreme Court Acquits Co-operative Society Secretary
+https://www.verdictum.in/supreme-court/misappropriation-409-ips-society-secretary-acquitted-cash-book-lawful-entrustment-1614660
+
+[Source Link](https://t.me/verdictumlegalupdates/27207)
 
 ---
 
@@ -153,14 +161,6 @@ Won't Change Order Just Because CM Made A Statement: Apex Court Refuses Plea Ove
 https://www.verdictum.in/supreme-court/cm-bhagwant-manns-stray-dog-remark-1614617
 
 [Source Link](https://t.me/verdictumlegalupdates/27188)
-
----
-
-### 2026-05-25T06:21:17+00:00
-Supreme Court Directs CBI To Take Over Twisha Sharma's Dowry Death Probe, Calls For Media Restraint
-https://www.verdictum.in/supreme-court/twisha-sharma-dowry-death-bhopal-media-restraint-1614620
-
-[Source Link](https://t.me/verdictumlegalupdates/27187)
 
 ---
 
