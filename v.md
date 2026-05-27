@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-26T16:02:54+00:00*
+*Last Updated: 2026-05-27T04:36:51+00:00*
+
+---
+
+### 2026-05-27T04:36:51+00:00
+Injured Witness Speaks of Occurrence With Seal of Injuries Suffered & His Evidence Carries More Credibility: Kerala High Court
+https://www.verdictum.in/kerala-high-court/unnikrishnan-v-state-of-kerala-2026ker34413-injured-witness-evidence-1614753
+
+[Source Link](https://t.me/verdictumlegalupdates/27231)
 
 ---
 
@@ -153,14 +161,6 @@ Supreme Court Asks Centre To Respond On Plea Highlighting Vacancies In Income Ta
 https://www.verdictum.in/supreme-court/vacancies-in-income-tax-appellate-tribunal-1614697
 
 [Source Link](https://t.me/verdictumlegalupdates/27212)
-
----
-
-### 2026-05-26T06:32:47+00:00
-Doctrine Of Promissory Estoppel Can’t Be Invoked To Create Entitlement Contrary To True Scope & Intent Of State Policy: Supreme Court
-https://www.verdictum.in/supreme-court/state-of-himachal-pradesh-ors-v-ms-kundlas-loh-udyog-2026-insc-534-1614694
-
-[Source Link](https://t.me/verdictumlegalupdates/27211)
 
 ---
 
