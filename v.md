@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-27T10:12:54+00:00*
+*Last Updated: 2026-05-27T16:02:39+00:00*
+
+---
+
+### 2026-05-27T16:02:39+00:00
+State Cannot Arbitrarily Stop Recruitment After Preparing Eligibility List: Supreme Court Orders Appointment Of Left-Out Himachal Pradesh Medical Officers
+https://www.verdictum.in/supreme-court/state-of-himachal-pradesh-v-aishwarya-thakur-civil-appeal-nos7949-7950-of-2026-appoint-left-out-medical-officers-stop-recruitment-1614804
+
+[Source Link](https://t.me/verdictumlegalupdates/27250)
+
+---
+
+### 2026-05-27T15:12:57+00:00
+Every Entry In ACR Has To Be Communicated To Public Servant: Supreme Court Holds Retired IRMS Medical Officer Entitled To Promotional Pensionary Benefits
+https://www.verdictum.in/supreme-court/dr-indira-saranath-appellant-v-union-of-india-2026-insc-553-entry-acr-public-servant-1614802
+
+[Source Link](https://t.me/verdictumlegalupdates/27249)
+
+---
+
+### 2026-05-27T14:32:36+00:00
+Supreme Court Agrees To Consider Centre's Plea For Transfer Of Petitions Pending Before High Courts Challenging 2026 Transgender Act Amendment
+https://www.verdictum.in/supreme-court/transfer-petitions-pending-before-high-courts-challenging-2026-transgender-act-amendment-1614801
+
+[Source Link](https://t.me/verdictumlegalupdates/27248)
+
+---
+
+### 2026-05-27T14:02:54+00:00
+Assam Assembly Passes UCC Bill| It Focuses On Registration, Documentation & Legal Traceability Of Family Relationships
+https://www.verdictum.in/news/assam-assembly-passes-ucc-bill-it-focuses-on-registration-documentation-legal-traceability-of-family-relationships-1614800
+
+[Source Link](https://t.me/verdictumlegalupdates/27247)
+
+---
+
+### 2026-05-27T13:32:52+00:00
+Complainant Seeking Restitution Of Amount Paid Doesn’t Make It Civil Dispute Or Efface Allegations Of Cheating: Supreme Court
+https://www.verdictum.in/supreme-court/saurabh-agrawal-v-state-of-uttar-pradesh-2026-insc-548-restitution-amount-paid-cheating-1614798
+
+[Source Link](https://t.me/verdictumlegalupdates/27246)
+
+---
+
+### 2026-05-27T12:52:51+00:00
+Permission From Magistrate Required For Further Investigation After Filing Of Closure Reports: Supreme Court
+https://www.verdictum.in/supreme-court/paliniswamy-veeraraja-ors-v-the-state-of-karnataka-2026-insc-561-permission-magistrate-1614795
+
+[Source Link](https://t.me/verdictumlegalupdates/27245)
+
+---
+
+### 2026-05-27T12:12:30+00:00
+Double Murder By Terminated Employee Fueled By Frustration: Supreme Court Commutes Death Sentence To 25-Year Jail Term Without Remission
+https://www.verdictum.in/supreme-court/shahjad-ali-ali-ur-rehman-v-the-state-of-uttarakhand-2026-insc-557-double-murder-by-dismissed-employee-25-year-jail-term-without-remission-1614793
+
+[Source Link](https://t.me/verdictumlegalupdates/27244)
+
+---
+
+### 2026-05-27T11:42:48+00:00
+Supreme Court Appeals To Lawyers To Appear Online Due To Soaring Heat
+https://www.verdictum.in/supreme-court/appeals-lawyers-appear-online-due-to-soaring-heat-1614789
+
+[Source Link](https://t.me/verdictumlegalupdates/27243)
+
+---
+
+### 2026-05-27T11:12:27+00:00
+Rampant Illegal Sand Mining Cannot Brook Prolonged “Administrative Delays”: Supreme Court Directs States Of MP, UP, Rajasthan To Fast-Track Enforcement In Chambal Sanctuary
+https://www.verdictum.in/supreme-court/in-re-illegal-sand-mining-in-the-national-chambal-sanctuary-and-threat-to-endangered-aquatic-wildlife-2026-insc-549-mp-up-rajasthan-1614786
+
+[Source Link](https://t.me/verdictumlegalupdates/27242)
+
+---
+
+### 2026-05-27T10:43:15+00:00
+Supreme Court Says Ongoing Trial In 2023 Manipur Ethnic Violence Needs To Be Expedited, Seeks Status Report From Authorities
+https://www.verdictum.in/supreme-court/manipur-ethnic-violence-trial-expedition-1614788
+
+[Source Link](https://t.me/verdictumlegalupdates/27241)
 
 ---
 
@@ -81,86 +161,6 @@ Injured Witness Speaks of Occurrence With Seal of Injuries Suffered & His Eviden
 https://www.verdictum.in/kerala-high-court/unnikrishnan-v-state-of-kerala-2026ker34413-injured-witness-evidence-1614753
 
 [Source Link](https://t.me/verdictumlegalupdates/27231)
-
----
-
-### 2026-05-26T16:02:54+00:00
-Young Professional (Legal) Vacancy At Indian Institute of Geomagnetism (IIGM)
-https://www.verdictum.in/job-updates/indian-institute-of-geomagnetism-1614726
-
-[Source Link](https://t.me/verdictumlegalupdates/27230)
-
----
-
-### 2026-05-26T15:32:53+00:00
-Internal Disciplinary File Notings Of Public Service Commission Cannot Be Mechanically Disclosed Under RTI Act: Kerala High Court
-https://www.verdictum.in/kerala-high-court/public-information-officer-ors-v-kerala-state-information-commission-anr-2026ker34827-1614735
-
-[Source Link](https://t.me/verdictumlegalupdates/27229)
-
----
-
-### 2026-05-26T15:02:31+00:00
-Witnesses Complaining Of Police Detention Raise Doubt That They Were "Set Up" By Police: Supreme Court Acquits 2008 Murder Conspiracy Accused
-https://www.verdictum.in/supreme-court/pulkit-monu-v-the-state-of-madhya-pradesh-2026-insc-543-aise-doubt-they-were-set-up-by-police-murder-conspiracy-accused-1614734
-
-[Source Link](https://t.me/verdictumlegalupdates/27228)
-
----
-
-### 2026-05-26T14:33:19+00:00
-Constitutional Courts Can Intervene Where UAPA Accused Remained In Custody for Long Period: Jammu & Kashmir and Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/constitutional-courts-can-intervene-where-uapa-accused-remained-in-custody-for-long-period-jammu-kashmir-and-ladakh-high-court-1614733
-
-[Source Link](https://t.me/verdictumlegalupdates/27227)
-
----
-
-### 2026-05-26T14:02:38+00:00
-Retraction Of Earlier Stand & Introduction Of Contradictory Stand In Guise Of Filing Additional Written Statement Contrary To Order 6 Rule 7 CPC Mandate: Supreme Court
-https://www.verdictum.in/supreme-court/mondira-ghosh-v-chaitali-ghosh-2026-insc-545-retraction-earlier-stand-order-6-rule-7-cpc-1614732
-
-[Source Link](https://t.me/verdictumlegalupdates/27226)
-
----
-
-### 2026-05-26T13:32:37+00:00
-Demolition After 17 Years Would Be Contrary To Public Interest: Supreme Court Directs Regularisation Of Commercial Complex
-https://www.verdictum.in/supreme-court/k-raheja-corp-private-limited-v-state-of-maharashtra-ors-2026-insc-551-1614731
-
-[Source Link](https://t.me/verdictumlegalupdates/27225)
-
----
-
-### 2026-05-26T13:02:15+00:00
-Courts Can Modify Arbitral Awards Instead Of Setting Them Aside Where It Would Cause Significant Hardship & Delay: Supreme Court Ends 14-Year-Old Dispute
-https://www.verdictum.in/supreme-court/bhupesh-bhayana-v-kunal-seth-2026-insc-546-ends-14-year-old-dispute-courts-may-modify-arbitral-awards-1614724
-
-[Source Link](https://t.me/verdictumlegalupdates/27224)
-
----
-
-### 2026-05-26T12:33:14+00:00
-Demand Of Dowry Not Needed To Attract Offence U/S 498A IPC; Any Unlawful Demand Made By Husband Or His Family Sufficient: Supreme Court
-https://www.verdictum.in/supreme-court/a-v-state-of-odisha-ors-2026-insc-544-dowry-sec498-a-ipc-unlawful-demand-1614723
-
-[Source Link](https://t.me/verdictumlegalupdates/27223)
-
----
-
-### 2026-05-26T12:02:32+00:00
-Decision Of DGFT On Classification Of Items Under ITC (HS) Final And Binding; Hexane Not Petroleum Oil Or Motor Spirit: Supreme Court
-https://www.verdictum.in/supreme-court/commissioner-of-customs-kandla-gujarat-v-ms-reliance-industries-limited-2026-insc-536-1614717
-
-[Source Link](https://t.me/verdictumlegalupdates/27222)
-
----
-
-### 2026-05-26T11:32:11+00:00
-Supreme Court Stays Delhi High Court Order That Prohibited Law Colleges Barring Law Students Over Low Attendance
-https://www.verdictum.in/supreme-court/law-colleges-barring-law-students-over-low-attendance-1614718
-
-[Source Link](https://t.me/verdictumlegalupdates/27221)
 
 ---
 
