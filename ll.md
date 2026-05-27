@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-27T12:01:10+00:00*
+*Last Updated: 2026-05-27T12:21:40+00:00*
 
 ---
 
-### 2026-05-27T12:01:10+00:00
-Madras High Court Directs Chief Secretary To Ensure Cow Slaughter Is Not Allowed On Roads & Non-Designated Areas During Bakrid
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-chief-secretary-cow-slaughter-not-permitted-bakrid-535933
-
-[Read on Telegram](https://t.me/livelawindia/111856)
-
----
-### 2026-05-27T12:02:30+00:00
-Employer Best Suited To Determine Eligibility Of Candidates, Courts Ordinarily Don't Substitute Their View: Gauhati High Court Reiterates
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-employer-best-suited-determine-eligibility-suitability-candidate-post-courts-dont-substitute-view-535876
-
-[Read on Telegram](https://t.me/livelawindia/111857)
-
----
-### 2026-05-27T12:11:20+00:00
-Twisha Sharma Dowry Death: MP High Court Reserves Order Pleas Against Anticipatory Bail Granted To Mother-In-Law Giribala Singh
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-twisha-sharma-dowry-death-535936
-
-[Read on Telegram](https://t.me/livelawindia/111858)
-
----
 ### 2026-05-27T12:21:40+00:00
 Supreme Court Allows Appointment Of Manipur DGP From Outside Manipur Cadre, Notes Peculiar Circumstance In State
 https://www.livelaw.in/top-stories/supreme-court-allows-appointment-of-manipur-dgp-from-outside-manipur-cadre-notes-peculiar-circumstance-in-state-535937
@@ -144,5 +123,26 @@ BREAKING| SC Collegium Recommends Elevation of Four HC Chief Justices, Senior Ad
 https://www.livelaw.in/top-stories/sc-collegium-recommends-elevation-of-four-hc-chief-justices-senior-advocate-v-mohana-to-supreme-court-535969
 
 [Read on Telegram](https://t.me/livelawindia/111875)
+
+---
+### 2026-05-27T17:07:11+00:00
+Supreme Court Daily Round-Up : May 27, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-27-2026-535967
+
+[Read on Telegram](https://t.me/livelawindia/111876)
+
+---
+### 2026-05-27T17:29:02+00:00
+NALSA Launches 'E-Prisons Early Release Processing Module' For Timely Processing Of Remission Cases
+https://www.livelaw.in/news-updates/nalsa-launches-e-prisons-early-release-processing-module-for-timely-processing-of-remission-cases-535974
+
+[Read on Telegram](https://t.me/livelawindia/111877)
+
+---
+### 2026-05-27T20:05:45+00:00
+Twisha Sharma Dowry Death Case | MP High Court Quashes Anticipatory Bail Granted To Mother-In-Law Giribala Singh
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-twisha-sharma-dowry-death-giribala-singhs-anticipatory-bail-quashed-535977
+
+[Read on Telegram](https://t.me/livelawindia/111878)
 
 ---
