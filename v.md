@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-27T04:36:51+00:00*
+*Last Updated: 2026-05-27T10:12:54+00:00*
+
+---
+
+### 2026-05-27T10:12:54+00:00
+Unreasonable When There Are No Teachers & Books In Schools: Supreme Court Issues Notice On PIL Challenging CBSE’s Three-Language Mandate For Class 9
+https://www.verdictum.in/supreme-court/pil-challenging-cbse-mid-session-three-language-mandate-for-class-9-1614787
+
+[Source Link](https://t.me/verdictumlegalupdates/27240)
+
+---
+
+### 2026-05-27T09:33:13+00:00
+Appellate Court Must Itself Hear Convict On Sentence After Reversing Acquittal, Cannot Relegate Matter To Trial Court: Supreme Court
+https://www.verdictum.in/supreme-court/mukesh-kumar-yadav-v-the-state-ut-of-andaman-nicobar-islands-2026-insc-559-must-hear-convict-on-sentence-after-reversing-acquittal-1614784
+
+[Source Link](https://t.me/verdictumlegalupdates/27239)
+
+---
+
+### 2026-05-27T08:52:31+00:00
+ECI Can Conduct "Limited Enquiry" On Citizenship For Voter List Verifications; It Will Not Amount To Determination Of Citizenship: Supreme Court
+https://www.verdictum.in/supreme-court/2026-insc-564-association-for-democratic-reforms-v-election-commission-of-india-1614782
+
+[Source Link](https://t.me/verdictumlegalupdates/27238)
+
+---
+
+### 2026-05-27T08:12:50+00:00
+Central Govt. Has Last Word On VRS Of All India Services Officers: Supreme Court Directs Reconsideration Of IPS Officer Abdur Rahman’s VRS Plea
+https://www.verdictum.in/supreme-court/abdur-rahman-v-union-of-india-2026-insc-550-ips-officer-abdur-rahmans-plea-amid-caa-protest-related-charges-1614781
+
+[Source Link](https://t.me/verdictumlegalupdates/27237)
+
+---
+
+### 2026-05-27T07:33:08+00:00
+Modifying Life Imprisonment & Imposing Fixed Sentence Is Permissible When Period Imposed Exceeds 14 Years Of Imprisonment: Supreme Court
+https://www.verdictum.in/supreme-court/munna-moyuddin-shaikh-v-state-of-gujarat-2026-insc-558-life-imprisonment-fixed-sentence-1614773
+
+[Source Link](https://t.me/verdictumlegalupdates/27236)
+
+---
+
+### 2026-05-27T06:52:27+00:00
+No Deemed Liability U/S 141 NI Act Merely By Virtue Of Office In Company Or Society; Designation Alone Insufficient: Supreme Court
+https://www.verdictum.in/supreme-court/ms-mansi-finance-chennai-ltd-v-m-lalitha-2026-insc-547-no-deemed-liability-us-141-ni-act-1614768
+
+[Source Link](https://t.me/verdictumlegalupdates/27235)
+
+---
+
+### 2026-05-27T06:01:06+00:00
+Breaking: Supreme Court Upholds Election Commission’s Power To Conduct Special Intensive Voter Revision In Bihar SIR Matter
+https://www.verdictum.in/supreme-court/election-commission-power-conduct-special-intensive-voter-revision-bihar-sir-matter-1614764
+
+[Source Link](https://t.me/verdictumlegalupdates/27234)
+
+---
+
+### 2026-05-27T05:54:05+00:00
+Courts Cannot Substitute "Simple Interest" With "Compound Interest" By Invoking Power U/S 33 A&C Act: Supreme Court Restores Arbitral Award
+https://www.verdictum.in/supreme-court/gujarat-water-supply-and-sewerage-board-v-saryu-plastics-pvt-ltd-2026-insc-552-simple-interest-with-compound-interest-us-33-ac-act-1614763
+
+[Source Link](https://t.me/verdictumlegalupdates/27233)
+
+---
+
+### 2026-05-27T05:12:23+00:00
+Subsequent Matrimonial Discord Cannot Render Settlement Finality Illusory: Delhi High Court Dismisses Wife's Plea To Recall FIR Quashing Order
+https://www.verdictum.in/delhi-high-court/2026-dhc-4598-1614757
+
+[Source Link](https://t.me/verdictumlegalupdates/27232)
 
 ---
 
@@ -89,78 +161,6 @@ Supreme Court Stays Delhi High Court Order That Prohibited Law Colleges Barring 
 https://www.verdictum.in/supreme-court/law-colleges-barring-law-students-over-low-attendance-1614718
 
 [Source Link](https://t.me/verdictumlegalupdates/27221)
-
----
-
-### 2026-05-26T11:04:30+00:00
-Eradicate Perception That Only Sanitary Workers Must Handle Waste: Supreme Court Calls For Public Participation For SWM Rules Compliance
-https://www.verdictum.in/supreme-court/solid-waste-managment-compliance-sanitary-mahatama-gandhi-waste-1614716
-
-[Source Link](https://t.me/verdictumlegalupdates/27220)
-
----
-
-### 2026-05-26T10:32:48+00:00
-High Court Can Order Criminal Probe In Probate Dispute To Protect Estate From Fraud: Supreme Court Upholds Bombay HC Order In ₹100-Crore Parsi Estate Case
-https://www.verdictum.in/supreme-court/bai-avabai-hormusji-tata-trust-v-shernaz-faroukh-lawyer-2026-insc-540-high-court-can-order-probate-dispute-protect-estate-fraud-1614715
-
-[Source Link](https://t.me/verdictumlegalupdates/27219)
-
----
-
-### 2026-05-26T10:02:47+00:00
-Failure To Examine Independent Witness To Recovery Of Dead Body Creates Doubt About Recovery At Accused’s Instance: Supreme Court
-https://www.verdictum.in/supreme-court/pawan-kumar-sharma-v-manoj-kumar-ors-2026-insc-539-recovery-proceedings-1614714
-
-[Source Link](https://t.me/verdictumlegalupdates/27218)
-
----
-
-### 2026-05-26T09:32:35+00:00
-Can’t Discard Evidence Merely On Account Of Panch Witnesses Turning Hostile If Recovery Is Proved Through Investigating Officer: Supreme Court
-https://www.verdictum.in/supreme-court/uperndra-khare-v-the-state-of-madhya-pradesh-evidence-panch-witnesses-hostile-1614713
-
-[Source Link](https://t.me/verdictumlegalupdates/27217)
-
----
-
-### 2026-05-26T09:02:54+00:00
-Peer Specialist In Expert Medical Panel Absent:  Supreme Court Quashes Criminal Case Against Anaesthetist Accused Of Medical Negligence
-https://www.verdictum.in/supreme-court/supriya-kumari-mc-v-state-of-kerala-ors-2026-insc-537-medical-negligence-1614709
-
-[Source Link](https://t.me/verdictumlegalupdates/27216)
-
----
-
-### 2026-05-26T08:32:53+00:00
-"Story Of Her Life Will Be An Eye-Opener For Many”: Supreme Court Upholds Husband’s Conviction In Dowry Death Case Involving "Simulated Hanging"
-https://www.verdictum.in/supreme-court/gour-acharjee-v-the-state-of-tripura-2026-insc-535-signs-of-assault-on-wifes-body-later-found-hanging-1614708
-
-[Source Link](https://t.me/verdictumlegalupdates/27215)
-
----
-
-### 2026-05-26T08:02:31+00:00
-Supreme Court Refuses To Entertain Plea Challenging Decision To Grant Cabinet Rank To MLAs, MLCs In Karnataka
-https://www.verdictum.in/supreme-court/decision-to-grant-cabinet-rank-to-mlas-mlcs-in-karnataka-1614706
-
-[Source Link](https://t.me/verdictumlegalupdates/27214)
-
----
-
-### 2026-05-26T07:33:10+00:00
-Quashing U/S. 482 CrPC Is Not Acquittal; Double Jeopardy Doctrine Will Not Bar Later Summoning U/S 319 CrPC: Supreme Court
-https://www.verdictum.in/supreme-court/x-v-state-of-madhya-pradesh-2026-insc-533-quashing-us-482-crpc-is-not-acquittal-1614704
-
-[Source Link](https://t.me/verdictumlegalupdates/27213)
-
----
-
-### 2026-05-26T07:02:28+00:00
-Supreme Court Asks Centre To Respond On Plea Highlighting Vacancies In Income Tax Appellate Tribunal
-https://www.verdictum.in/supreme-court/vacancies-in-income-tax-appellate-tribunal-1614697
-
-[Source Link](https://t.me/verdictumlegalupdates/27212)
 
 ---
 
