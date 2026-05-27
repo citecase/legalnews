@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-26T13:24:20+00:00*
+*Last Updated: 2026-05-26T13:34:40+00:00*
 
 ---
 
-### 2026-05-26T13:24:20+00:00
-SLS Noida Wins 1st LC-1 R.N. Mittal National Memorial Moot Court Competition
-https://www.livelaw.in/lawschool/news/sls-noida-wins-1st-lc-1-rn-mittal-national-memorial-moot-court-competition-535790
-
-[Read on Telegram](https://t.me/livelawindia/111782)
-
----
-### 2026-05-26T13:28:20+00:00
-WB Polls: Calcutta High Court Withdraws Interim Protection Granted To TMC Leader Jahangir Khan
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-withraws-interim-protection-granted-to-tmc-leader-jahangir-khan-535791
-
-[Read on Telegram](https://t.me/livelawindia/111783)
-
----
 ### 2026-05-26T13:34:40+00:00
 Kolkata Court Grants 2-Week NIA Custody For 15 Accused Of Attacking Judicial Officers In Malda Over SIR-Related Grievances
 https://www.livelaw.in/news-updates/kolkata-court-directs-2-week-nia-custody-for-15-accused-of-attacking-judicial-officers-in-malda-over-sir-related-grievances-535792
@@ -142,5 +128,19 @@ Supreme Court Daily Round-Up : May 26, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-26-2026-535819
 
 [Read on Telegram](https://t.me/livelawindia/111801)
+
+---
+### 2026-05-27T03:32:20+00:00
+Bombay High Court Weekly Round-Up: May 18 to May 24, 2026
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-weekly-round-up-may-18-to-may-24-2026-535822
+
+[Read on Telegram](https://t.me/livelawindia/111802)
+
+---
+### 2026-05-27T03:32:30+00:00
+Technical Members In Judicial Robes: Dress Code Controversy In NCLT
+https://www.livelaw.in/articles/technical-members-judicial-robes-dress-code-controversy-nclt-535733
+
+[Read on Telegram](https://t.me/livelawindia/111803)
 
 ---
