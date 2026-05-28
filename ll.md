@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-28T08:56:02+00:00*
+*Last Updated: 2026-05-28T11:23:14+00:00*
 
 ---
 
-### 2026-05-28T08:56:02+00:00
-Supreme Court Requests Delhi High Court To Expedite Hearing Of Plea Challenging Bar Council Transfer Fee
-https://www.livelaw.in/top-stories/supreme-court-requests-delhi-high-court-to-expedite-hearing-of-plea-challenging-bar-council-transfer-fee-536023
-
-[Read on Telegram](https://t.me/livelawindia/111906)
-
----
-### 2026-05-28T10:05:34+00:00
-'Serious Infirmities In Prosecution' : Suprem Court Acquits 2 Death Row Convicts In Rape-Murder Case
-https://www.livelaw.in/supreme-court/serious-infirmities-in-prosecution-suprem-court-acquits-2-death-row-convicts-in-rape-murder-case-536031
-
-[Read on Telegram](https://t.me/livelawindia/111907)
-
----
-### 2026-05-28T10:06:54+00:00
-2026 LiveLaw (SC) 560 | MEHTAB VERSUS STATE OF UTTARAKHAND (with connected matter)
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-560-mehtab-versus-state-of-uttarakhand-with-connected-matter-536033
-
-[Read on Telegram](https://t.me/livelawindia/111908)
-
----
-### 2026-05-28T10:23:05+00:00
-S.33(1)(a) Arbitration Act Only To Correct Clerical Errors In Award; Can't Be Invoked To Change Nature Of Interest : Supreme Court
-https://www.livelaw.in/top-stories/s331a-arbitration-act-only-to-correct-clerical-errors-in-award-cant-be-invoked-to-change-nature-of-interest-supreme-court-535972
-
-[Read on Telegram](https://t.me/livelawindia/111909)
-
----
-### 2026-05-28T10:27:24+00:00
-Can't Brush Aside Compensation Claim Merely Because Person Is A Sanyasi: Supreme Court
-https://www.livelaw.in/top-stories/cant-brush-aside-compensation-claim-merely-because-person-is-a-sanyasi-supreme-court-536010
-
-[Read on Telegram](https://t.me/livelawindia/111910)
-
----
 ### 2026-05-28T11:23:14+00:00
 Arbitration | Writ Jurisdiction Can't Be Invoked To Challenge Arbitrator's Decision Under Section 16 : Supreme Court
 https://www.livelaw.in/supreme-court/arbitration-writ-jurisdiction-cant-be-invoked-to-challenge-arbitrators-decision-under-section-16-supreme-court-536040
@@ -142,5 +107,40 @@ Rajasthan High Court Asks State To Consider Establishing Well-Equipped Investiga
 https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-establish-investigation-labs-violates-fair-investigation-speedy-trial-rights-536056
 
 [Read on Telegram](https://t.me/livelawindia/111925)
+
+---
+### 2026-05-28T16:25:46+00:00
+Dua Associates Elevates Seven Principal Associates As Non-Equity Partners
+https://www.livelaw.in/law-firms/professional-announcement/dua-associates-elevates-seven-principal-associates-as-non-equity-partners-536071
+
+[Read on Telegram](https://t.me/livelawindia/111926)
+
+---
+### 2026-05-28T16:27:46+00:00
+Food Safety Appellate Tribunal Cannot Entertain Appeals Against CEO, FSSAI Orders Under Import Regulations: Delhi FSAT
+https://www.livelaw.in/law-firms/litigation/food-safety-appellate-tribunal-cannot-entertain-appeals-against-ceo-fssai-orders-under-import-regulations-delhi-fsat-536072
+
+[Read on Telegram](https://t.me/livelawindia/111927)
+
+---
+### 2026-05-28T16:32:06+00:00
+S.223 BNSS | Opportunity Of Hearing To Accused Does Not Mean They Must Be Given Entire Evidence Prior To Cognizance: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-section-223-bnss-opportunity-of-hearing-to-accused-536057
+
+[Read on Telegram](https://t.me/livelawindia/111928)
+
+---
+### 2026-05-28T16:34:36+00:00
+Call For Blog Submissions: Centre For Labour Law And Research (CLLR), NUSRL Invites Contributions On Contemporary Labour Law Issues
+https://www.livelaw.in/lawschool/call-for-papers/call-for-blog-submissions-centre-for-labour-law-and-research-cllr-nusrl-invites-contributions-on-contemporary-labour-law-issues-536073
+
+[Read on Telegram](https://t.me/livelawindia/111929)
+
+---
+### 2026-05-28T17:02:16+00:00
+Kerala HC Upholds Validity Of Industrial Relations Code Amendment Allowing Existing Labour Forums To Continue Till New Tribunals Are Set Up
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-upholds-industrial-relations-code-amendment-tribunal-under-section-104a-536058
+
+[Read on Telegram](https://t.me/livelawindia/111930)
 
 ---
