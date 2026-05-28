@@ -1,128 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-28T05:39:39+00:00*
+*Last Updated: 2026-05-28T08:56:02+00:00*
 
 ---
 
-### 2026-05-28T05:39:39+00:00
-Legal Associate Vacancy At MCO Legals (Meharia And Company)
-https://www.livelaw.in/job-updates/legal-associate-vacancy-at-mco-legals-meharia-and-company-535987
-
-[Read on Telegram](https://t.me/livelawindia/111889)
-
----
-### 2026-05-28T05:44:21+00:00
-Honeymoon Murder Case | State Moves Meghalaya High Court Seeking Cancellation Of Bail Granted To Sonam Raghuwanshi
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-hc-honeymoon-murder-cancellation-bail-sonam-raghuwanshi-535989
-
-[Read on Telegram](https://t.me/livelawindia/111890)
-
----
-### 2026-05-28T06:08:12+00:00
-'S.138 NI Act Quasi-Criminal' : Supreme Court Refers To Larger Bench Whether IBC Moratorium Totally Bars Cheque Dishonour Case Against Company Director
-https://www.livelaw.in/supreme-court/s138-ni-act-quasi-criminal-supreme-court-refers-to-larger-bench-whether-ibc-moratorium-totally-bars-cheque-dishonour-case-against-company-director-535991
-
-[Read on Telegram](https://t.me/livelawindia/111891)
-
----
-### 2026-05-28T06:08:21+00:00
-Bus Driver Not Expected To Turn Back & Check If Passengers Alighted : Supreme Court Sets Aside Conviction For Death By Negligence
-https://www.livelaw.in/supreme-court/bus-driver-not-expected-to-turn-back-check-if-passengers-alighted-supreme-court-sets-aside-conviction-for-death-by-negligence-535954
-
-[Read on Telegram](https://t.me/livelawindia/111892)
-
----
-### 2026-05-28T06:10:11+00:00
-2026 LiveLaw (SC) 555 | Dineshchand Surana v. UCO Bank (with connected case)
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-555-dineshchand-surana-v-uco-bank-with-connected-case-535992
-
-[Read on Telegram](https://t.me/livelawindia/111893)
-
----
-### 2026-05-28T06:17:51+00:00
-2026 LiveLaw (SC) 552 | MOHAMMAD HANIF JAINUM KHALIFA VERSUS THE STATE OF KARNATAKA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-552-mohammad-hanif-jainum-khalifa-versus-the-state-of-karnataka-535955
-
-[Read on Telegram](https://t.me/livelawindia/111894)
-
----
-### 2026-05-28T06:33:31+00:00
-FIR For Scheduled Offence Not Necessary For ED Investigation : Kerala High Court In CMRL Case
-https://www.livelaw.in/high-court/kerala-high-court/fir-for-scheduled-offence-not-necessary-for-ed-investigation-kerala-high-court-in-cmrl-case-535995
-
-[Read on Telegram](https://t.me/livelawindia/111895)
-
----
-### 2026-05-28T07:04:21+00:00
-'Trauma Care Part Of Right To Life' : Supreme Court Directs To Integrate Emergency Helplines Into 112, Implement PM RAHAT & Good Samaritan Scheme
-https://www.livelaw.in/top-stories/trauma-care-part-of-right-to-life-supreme-court-directs-to-integrate-emergency-helplines-into-112-implement-pm-rahat-good-samaritan-scheme-536001
-
-[Read on Telegram](https://t.me/livelawindia/111896)
-
----
-### 2026-05-28T07:05:41+00:00
-2026 LiveLaw (SC) 556 | SAVELIFE FOUNDATION AND ANOTHER v UOI
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-556-savelife-foundation-and-another-v-uoi-536002
-
-[Read on Telegram](https://t.me/livelawindia/111897)
-
----
-### 2026-05-28T07:22:01+00:00
-Permission From Magistrate Necessary For Police To Conduct Further Investigation: Supreme Court Reiterates
-https://www.livelaw.in/supreme-court/permission-from-magistrate-necessary-for-police-to-conduct-further-investigation-supreme-court-reiterates-536006
-
-[Read on Telegram](https://t.me/livelawindia/111898)
-
----
-### 2026-05-28T07:23:21+00:00
-2026 LiveLaw (SC) 557 | PALINISWAMY VEERARAJA & ORS. VERSUS THE STATE OF KARNATAKA & ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-557-paliniswamy-veeraraja-ors-versus-the-state-of-karnataka-anr-536007
-
-[Read on Telegram](https://t.me/livelawindia/111899)
-
----
-### 2026-05-28T07:34:21+00:00
-2026 LiveLaw (SC) 558 | Satya Narayan Shukla v.State of Uttar Pradesh
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-558-satya-narayan-shukla-vstate-of-uttar-pradesh-536011
-
-[Read on Telegram](https://t.me/livelawindia/111900)
-
----
-### 2026-05-28T07:43:01+00:00
-NI Act | Office Bearer Of Society Not Liable For Cheque Dishonour Unless Active Role In Conduct Of Business Shown : Supreme Court
-https://www.livelaw.in/supreme-court/ni-act-office-bearer-of-society-not-liable-for-cheque-dishonour-unless-active-role-in-conduct-of-business-shown-supreme-court-536014
-
-[Read on Telegram](https://t.me/livelawindia/111901)
-
----
-### 2026-05-28T07:44:02+00:00
-2026 LiveLaw (SC) 559 | M/S MANSI FINANCE (CHENNAI) LTD. VERSUS M. LALITHA AND OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-559-ms-mansi-finance-chennai-ltd-versus-m-lalitha-and-others-536015
-
-[Read on Telegram](https://t.me/livelawindia/111902)
-
----
-### 2026-05-28T07:47:52+00:00
-'Giving Utmost Priority To Crimes Against Women & Children, Will Develop Mechanisms For Speedy Trial': State Tells Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tn-govt-crime-against-women-and-children-utmost-priority-535976
-
-[Read on Telegram](https://t.me/livelawindia/111903)
-
----
-### 2026-05-28T08:35:12+00:00
-Alleging Diversion Of Jaypee Funds, Homebuyer Moves Supreme Court Seeking ED Probe, RBI Audit Of Banks' Exposure To Real Estate Projects
-https://www.livelaw.in/top-stories/alleging-diversion-of-jaypee-funds-homebuyer-moves-supreme-court-seeking-ed-probe-rbi-audit-of-banks-exposure-to-real-estate-projects-536020
-
-[Read on Telegram](https://t.me/livelawindia/111904)
-
----
-### 2026-05-28T08:41:42+00:00
-Intend To File Curative Petition Against Dashwanth's Acquittal In Minor Girl's Rape & Murder Case: State Tells Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-2017-chennai-rape-murder-case-dashwanth-acquittal-no-mandamus-curative-petition-536022
-
-[Read on Telegram](https://t.me/livelawindia/111905)
-
----
 ### 2026-05-28T08:56:02+00:00
 Supreme Court Requests Delhi High Court To Expedite Hearing Of Plea Challenging Bar Council Transfer Fee
 https://www.livelaw.in/top-stories/supreme-court-requests-delhi-high-court-to-expedite-hearing-of-plea-challenging-bar-council-transfer-fee-536023
@@ -142,5 +23,124 @@ https://www.livelaw.in/supreme-court/serious-infirmities-in-prosecution-suprem-c
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-560-mehtab-versus-state-of-uttarakhand-with-connected-matter-536033
 
 [Read on Telegram](https://t.me/livelawindia/111908)
+
+---
+### 2026-05-28T10:23:05+00:00
+S.33(1)(a) Arbitration Act Only To Correct Clerical Errors In Award; Can't Be Invoked To Change Nature Of Interest : Supreme Court
+https://www.livelaw.in/top-stories/s331a-arbitration-act-only-to-correct-clerical-errors-in-award-cant-be-invoked-to-change-nature-of-interest-supreme-court-535972
+
+[Read on Telegram](https://t.me/livelawindia/111909)
+
+---
+### 2026-05-28T10:27:24+00:00
+Can't Brush Aside Compensation Claim Merely Because Person Is A Sanyasi: Supreme Court
+https://www.livelaw.in/top-stories/cant-brush-aside-compensation-claim-merely-because-person-is-a-sanyasi-supreme-court-536010
+
+[Read on Telegram](https://t.me/livelawindia/111910)
+
+---
+### 2026-05-28T11:23:14+00:00
+Arbitration | Writ Jurisdiction Can't Be Invoked To Challenge Arbitrator's Decision Under Section 16 : Supreme Court
+https://www.livelaw.in/supreme-court/arbitration-writ-jurisdiction-cant-be-invoked-to-challenge-arbitrators-decision-under-section-16-supreme-court-536040
+
+[Read on Telegram](https://t.me/livelawindia/111911)
+
+---
+### 2026-05-28T11:24:35+00:00
+2026 LiveLaw (SC) 561 |  M/S TARINI PRASAD MOHANTY VERSUS M/S SUNFLAG IRON AND STEEL COMPANY LIMITED
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-561-ms-tarini-prasad-mohanty-versus-ms-sunflag-iron-and-steel-company-limited-536041
+
+[Read on Telegram](https://t.me/livelawindia/111912)
+
+---
+### 2026-05-28T11:33:14+00:00
+Wrestling Federation Moves Supreme Court Against Delhi HC Order Allowing Vinesh Phogat To Participate In Asian Games Selection Trials
+https://www.livelaw.in/top-stories/wrestling-federation-moves-supreme-court-against-delhi-hc-order-allowing-vinesh-phogat-to-participate-in-asian-games-selection-trials-536043
+
+[Read on Telegram](https://t.me/livelawindia/111913)
+
+---
+### 2026-05-28T11:38:14+00:00
+[Advertisement] Legal Zems: 3- Month Advanced Triple Certification Programme In Civil Trial, Criminal Trial & Contract Drafting – 2026
+https://www.livelaw.in/lawschool/diploma-certificate-courses/legal-zems-3-month-advanced-triple-certification-programme-civil-trial-criminal-trial-contract-drafting-536044
+
+[Read on Telegram](https://t.me/livelawindia/111914)
+
+---
+### 2026-05-28T11:56:54+00:00
+How Regulatory Compliance Shapes Company Formation Strategies In India
+https://www.livelaw.in/law-firms/law-firm-articles-/how-regulatory-compliance-shapes-company-formation-strategies-india-536046
+
+[Read on Telegram](https://t.me/livelawindia/111915)
+
+---
+### 2026-05-28T12:36:24+00:00
+Within Four Walls, No Disturbance Of Public Peace: Why Allahabad HC Quashed NSA Detention Over Alleged Cow Slaughter
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-quashes-nsa-alleged-cow-slaughter-public-peace-536049
+
+[Read on Telegram](https://t.me/livelawindia/111916)
+
+---
+### 2026-05-28T13:02:34+00:00
+Income Tax Case :  Bengaluru Court Gives Two-Year Permission For DK Shivakumar For Foreign Travel
+https://www.livelaw.in/news-updates/income-tax-case-bengaluru-court-gives-two-year-permission-for-dk-shivakumar-for-foreign-travel-536050
+
+[Read on Telegram](https://t.me/livelawindia/111917)
+
+---
+### 2026-05-28T14:21:05+00:00
+'Hate Speech' PILs | Selective Parts From Interviews Can Distort True Meaning: Assam CM Tells Gauhati HC, Seeks Full Transcripts
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-hc-hate-speech-pils-distort-true-meaning-assam-cm-himanta-biswa-sarma-536060
+
+[Read on Telegram](https://t.me/livelawindia/111918)
+
+---
+### 2026-05-28T14:32:25+00:00
+Aadhaar Info Can Be Disclosed In Serious Forgery Cases With Safeguards; Accused Cannot Use Privacy As Shield: Andhra Pradesh High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-disclosure-aadhaar-data-forgery-case-536052
+
+[Read on Telegram](https://t.me/livelawindia/111919)
+
+---
+### 2026-05-28T14:34:05+00:00
+Actor Parambrata Chatterjee Moves Calcutta High Court Seeking Ancipatory Bail Over Alleged Social Media Posts On 2021 Post-Poll Violence
+https://www.livelaw.in/high-court/calcutta-high-court/actor-parambrata-chatterjee-moves-calcutta-high-court-seeking-ancipatory-bail-over-alleged-2021-post-poll-violence-social-media-posts-536063
+
+[Read on Telegram](https://t.me/livelawindia/111920)
+
+---
+### 2026-05-28T15:02:55+00:00
+MP High Court Declines To Quash FIR Against Preschool Director Booked For Violating Order To Disclose Book Prices, Sellers On Website
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-section-223a-of-the-bharatiya-nyaya-sanhita-536053
+
+[Read on Telegram](https://t.me/livelawindia/111921)
+
+---
+### 2026-05-28T15:14:55+00:00
+Primogeniture Rule Won't Govern Inheritance Of Ex-Royal's Private Estate, Succession Law Applies : Supreme Court
+https://www.livelaw.in/supreme-court/primogeniture-rule-wont-govern-inheritance-of-ex-royals-private-estate-succession-law-applies-supreme-court-535964
+
+[Read on Telegram](https://t.me/livelawindia/111922)
+
+---
+### 2026-05-28T15:17:55+00:00
+2026 LiveLaw (SC) 554 | TIKKA SHATRUJIT SINGH & ORS. VERSUS SUKJIT SINGH & ANR.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-554-tikka-shatrujit-singh-ors-versus-sukjit-singh-anr-535965
+
+[Read on Telegram](https://t.me/livelawindia/111923)
+
+---
+### 2026-05-28T15:32:55+00:00
+'Filing Indecent Photos Invades Her Privacy': Rajasthan HC Issues Guidelines To Protect Sexual Offence Victim's Identity In Court Filings
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-protect-victim-identity-sexual-offence-cases-obscene-photos-videos-536054
+
+[Read on Telegram](https://t.me/livelawindia/111924)
+
+---
+### 2026-05-28T16:03:05+00:00
+Rajasthan High Court Asks State To Consider Establishing Well-Equipped Investigation Labs For Expeditious Criminal Probes
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-establish-investigation-labs-violates-fair-investigation-speedy-trial-rights-536056
+
+[Read on Telegram](https://t.me/livelawindia/111925)
 
 ---
