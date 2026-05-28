@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-27T16:02:39+00:00*
+*Last Updated: 2026-05-28T04:32:51+00:00*
+
+---
+
+### 2026-05-28T04:32:51+00:00
+He Was Its Front Face Authorized To Sign All Negotiable Instruments & To Make Payments: Supreme Court Upholds Conviction Of NGO Treasurer U/S 138 NI Act
+https://www.verdictum.in/supreme-court/k-ranganayakulu-v-state-of-telangana-ors-2026-insc-555-company-mou-fine-ni-act-1614805
+
+[Source Link](https://t.me/verdictumlegalupdates/27251)
 
 ---
 
@@ -153,14 +161,6 @@ Subsequent Matrimonial Discord Cannot Render Settlement Finality Illusory: Delhi
 https://www.verdictum.in/delhi-high-court/2026-dhc-4598-1614757
 
 [Source Link](https://t.me/verdictumlegalupdates/27232)
-
----
-
-### 2026-05-27T04:36:51+00:00
-Injured Witness Speaks of Occurrence With Seal of Injuries Suffered & His Evidence Carries More Credibility: Kerala High Court
-https://www.verdictum.in/kerala-high-court/unnikrishnan-v-state-of-kerala-2026ker34413-injured-witness-evidence-1614753
-
-[Source Link](https://t.me/verdictumlegalupdates/27231)
 
 ---
 
