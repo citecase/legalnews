@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-29T09:52:13+00:00*
+*Last Updated: 2026-05-29T16:02:37+00:00*
+
+---
+
+### 2026-05-29T16:02:37+00:00
+Legal Expert Vacancy At Advanced Weapons & Equipment India Limited (AWEIL)
+https://www.verdictum.in/job-updates/advanced-weapons-equipment-india-limited-1614934
+
+[Source Link](https://t.me/verdictumlegalupdates/27289)
+
+---
+
+### 2026-05-29T15:12:55+00:00
+Stray Dog Not Public Or Personal Property U/S 429 IPC: Calcutta High Court Quashes FIR
+https://www.verdictum.in/calcutta-high-court/emon-roy-v-the-state-of-west-bengal-stray-dog-section-429-ipc-1614933
+
+[Source Link](https://t.me/verdictumlegalupdates/27288)
+
+---
+
+### 2026-05-29T14:32:33+00:00
+Law Doesn’t Permit Use Of ‘Unsatisfactory Performance’ As Disguise To Bypass Formal Disciplinary Proceedings: Supreme Court
+https://www.verdictum.in/supreme-court/general-manager-bank-of-baroda-v-ashok-kumar-singh-2026-insc-589-disciplinary-proceedings-1614938
+
+[Source Link](https://t.me/verdictumlegalupdates/27287)
+
+---
+
+### 2026-05-29T13:52:11+00:00
+Antilia Bomb Scare Case: Supreme Court Dismisses Ex-Cop Pradeep Sharma's Discharge Plea
+https://www.verdictum.in/supreme-court/ex-cop-pradeep-sharmas-discharge-plea-dismissed-antilia-bomb-scare-1614932
+
+[Source Link](https://t.me/verdictumlegalupdates/27286)
+
+---
+
+### 2026-05-29T13:12:30+00:00
+Supreme Court Grants Relief To RIL; Sets Aside SEBI’s Fraud Finding & ₹447 Crore Disgorgement In 2007 RPL Futures Trading Case
+https://www.verdictum.in/supreme-court/reliance-industries-limited-v-the-securities-and-exchange-board-of-india-2026-insc-585-447-crore-disgorgement-2007-rpl-1614931
+
+[Source Link](https://t.me/verdictumlegalupdates/27285)
+
+---
+
+### 2026-05-29T12:32:08+00:00
+Supreme Court Orders Appointment Of DERC Chairperson, Two Members Within Two Months
+https://www.verdictum.in/supreme-court/appointment-of-derc-chairperson-two-members-within-two-months-1614928
+
+[Source Link](https://t.me/verdictumlegalupdates/27284)
+
+---
+
+### 2026-05-29T11:53:17+00:00
+Supreme Court Refuses To Interfere With Anticipatory Bail To Swami Avimukteshwaranand In POCSO Case
+https://www.verdictum.in/supreme-court/anticipatory-bail-to-swami-avimukteshwaranand-in-pocso-case-1614927
+
+[Source Link](https://t.me/verdictumlegalupdates/27283)
+
+---
+
+### 2026-05-29T11:12:35+00:00
+We Aren’t Stopping You, Go And Participate: Supreme Court Allows Wrestler Vinesh Phogat To Participate In Asian Games 2026 Trials
+https://www.verdictum.in/supreme-court/wrestler-vinesh-phogat-to-participate-in-asian-games-2026-trials-1614926
+
+[Source Link](https://t.me/verdictumlegalupdates/27282)
+
+---
+
+### 2026-05-29T10:32:54+00:00
+ACP Panel Cutting, Grooving For Cladding Not ‘Manufacture’: Supreme Court Explains Transformation & Marketability Test For Excise Duty
+https://www.verdictum.in/supreme-court/ms-alupro-building-systems-pvt-ltd-v-commissioner-of-central-excise-bangalore-ii-2026-insc-582-acp-panel-cutting-grooving-1614923
+
+[Source Link](https://t.me/verdictumlegalupdates/27281)
 
 ---
 
@@ -89,78 +161,6 @@ Husband Should Provide Financial Support To Wife & Minor Children Even By Doing 
 https://www.verdictum.in/delhi-high-court/a-v-b-2026dhc4517-issues-revision-family-court-petition-section-127-crpc-1614872
 
 [Source Link](https://t.me/verdictumlegalupdates/27270)
-
----
-
-### 2026-05-28T14:32:17+00:00
-Immaterial Whether Advantage Is Sought For Another Person Or Directly Or Through Third Party: Supreme Court Restores Corruption Case Against Police Officer
-https://www.verdictum.in/supreme-court/2026-insc-574-state-by-lokayukta-police-v-k-rangayya-1614870
-
-[Source Link](https://t.me/verdictumlegalupdates/27269)
-
----
-
-### 2026-05-28T13:53:15+00:00
-Illegal Gratification Demand Is Gravamen Of Offence Under Prevention Of Corruption Act: Supreme Court Upholds Acquittal Of Central Excise Officers
-https://www.verdictum.in/supreme-court/state-of-uttar-pradesh-v-ak-gaba-2026-insc-568-demand-illegal-gratification-1614869
-
-[Source Link](https://t.me/verdictumlegalupdates/27268)
-
----
-
-### 2026-05-28T13:12:34+00:00
-Supreme Court Acquits Bus Driver In Death By Negligence Case; Applies Dictum Of Common Sense
-https://www.verdictum.in/supreme-court/mohammad-hanif-jainum-khalifa-v-the-state-of-karnataka-2026-insc-565-death-by-negligence-1614867
-
-[Source Link](https://t.me/verdictumlegalupdates/27267)
-
----
-
-### 2026-05-28T12:32:12+00:00
-Use Of Lethal Firearm To Abduct Child Perfectly Satisfies Offence U/S 364A IPC: Supreme Court Confirms Conviction In Kidnapping Case
-https://www.verdictum.in/supreme-court/harjindra-singh-v-the-state-of-up-2026-insc-569-lethal-firearm-section-364a-ipc-1614866
-
-[Source Link](https://t.me/verdictumlegalupdates/27266)
-
----
-
-### 2026-05-28T11:52:51+00:00
-Expert In Computer Science & Cyber Forensics Competent To Sign Section 63(4) BSA Certificate: Supreme Court
-https://www.verdictum.in/supreme-court/qualification-section-39-bsa-not-restricted-section-79a-it-act-examiners-forensics-sign-part-b-certificate-1614860
-
-[Source Link](https://t.me/verdictumlegalupdates/27265)
-
----
-
-### 2026-05-28T11:12:30+00:00
-No Absolute Requirement Of Unanimity In Every Case U/S 48 Trusts Act; Effect Must Be Given To Governing Instrument: Supreme Court
-https://www.verdictum.in/supreme-court/hindustan-medical-institution-v-birla-corporation-limited-2026-insc-554-first-vote-prevails-societys-vote-1614858
-
-[Source Link](https://t.me/verdictumlegalupdates/27264)
-
----
-
-### 2026-05-28T10:31:28+00:00
-Right To Trauma Care Is Part Of Right To Life: Apex Court Mandates Good Samaritan Grievance Redressal Systems In Every State
-https://www.verdictum.in/supreme-court/wpc-no-726-of-2024-savelife-foundation-v-union-of-india-1614859
-
-[Source Link](https://t.me/verdictumlegalupdates/27263)
-
----
-
-### 2026-05-28T10:02:07+00:00
-‘Jurisdiction To Decide Cannot Mean To Decide In Particular Manner: Supreme Court Says Arbitral Tribunal’s Error On Nature Of Agreement Not Exceptional Case For Writ Interference
-https://www.verdictum.in/supreme-court/ms-tarini-prasad-mohanty-appellant-v-ms-sunflag-iron-and-steel-respondent-company-limited-2026-insc-566-not-exceptional-case-for-writ-interference-1614856
-
-[Source Link](https://t.me/verdictumlegalupdates/27262)
-
----
-
-### 2026-05-28T09:32:35+00:00
-Primogeniture Ends With “Gaddi”, Not Private Property: Supreme Court Holds Former Ruler’s Personal Estates Devolve Under Personal Law
-https://www.verdictum.in/supreme-court/tikka-shatrujit-singh-v-sukjit-singh-2026-insc-571-primogeniture-ends-with-gaddi-former-rulers-personal-estates-1614854
-
-[Source Link](https://t.me/verdictumlegalupdates/27261)
 
 ---
 
