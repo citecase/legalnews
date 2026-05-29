@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-29T05:33:43+00:00*
+*Last Updated: 2026-05-29T12:38:06+00:00*
 
 ---
 
-### 2026-05-29T05:33:43+00:00
-Calcutta High Court Directs No Coercive Steps Against Actor Parambrata Chatterjee Over 'Social Media Posts' On 2021 Post-Poll Violence
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-actor-parambrata-chatterjee-ancipatory-bail-536095
+### 2026-05-29T12:38:06+00:00
+2026 LiveLaw (SC) 565 | VIJAY KUMAR KELA & ANR. VERSUS CENTRAL BUREAU OF INVESTIGATION & ANR
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-565-vijay-kumar-kela-anr-versus-central-bureau-of-investigation-anr-536174
 
-[Read on Telegram](https://t.me/livelawindia/111945)
-
----
-### 2026-05-29T05:35:23+00:00
-BREAKING| Supreme Court Issues Guidelines To High Courts To Avoid Delay In Delivering Reserved Judgments; Sets 3 Month Timelimit
-https://www.livelaw.in/top-stories/breaking-supreme-court-issues-guidelines-to-high-courts-to-avoid-delay-in-delivering-reserved-judgments-sets-3-month-timelimit-536096
-
-[Read on Telegram](https://t.me/livelawindia/111946)
+[Read on Telegram](https://t.me/livelawindia/111982)
 
 ---
-### 2026-05-29T05:40:23+00:00
-Supreme Court Dismisses Plea Challenging Anticipatory Bail Granted To Swami Avimukteshwaranand Saraswati In POCSO Case
-https://www.livelaw.in/top-stories/supreme-court-dismisses-plea-challenging-anticipatory-bail-granted-to-swami-avimukteshwaranand-saraswati-in-pocso-case-536098
+### 2026-05-29T12:44:46+00:00
+Prayagraj ADM Clears Muslim Man's 'Voluntary' Conversion To Hinduism After Allahabad High Court Rap
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-rap-prayagraj-adm-muslim-man-conversion-hinduism-plea-disposed-536175
 
-[Read on Telegram](https://t.me/livelawindia/111947)
-
----
-### 2026-05-29T05:54:03+00:00
-Delhi High Court Directs MeiTY's Review Committee To Examine Abhijeet Dipke's Plea For Unblocking Cockroach Janta Party's X Account
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-issues-notice-on-abhijeet-dipkes-plea-against-blocking-of-cockroach-janta-partys-x-account-536099
-
-[Read on Telegram](https://t.me/livelawindia/111948)
+[Read on Telegram](https://t.me/livelawindia/111983)
 
 ---
-### 2026-05-29T06:00:23+00:00
-Supreme Court Grants Relief To Reliance Industries In 2007 RPL Futures Trading Case, Sets Aside SEBI's ₹447 Crore Disgorgement Order
-https://www.livelaw.in/supreme-court/supreme-court-grants-relief-to-reliance-industries-in-2007-rpl-futures-trading-case-sets-aside-sebis-447-crore-disgorgement-order-536100
+### 2026-05-29T12:50:26+00:00
+'Have Endeavoured To Uphold Litigants' Sacred Trust In Courts With Integrity': Kerala High Court Justice MB Snehalatha In Farewell Address
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-justice-snehalatha-farewell-536176
 
-[Read on Telegram](https://t.me/livelawindia/111949)
-
----
-### 2026-05-29T06:44:13+00:00
-Delhi District Commission Holds India Cakes Liable For Deficiency In Service Over Failure To Deliver Birthday Cake After Collecting Additional Delivery Charges
-https://www.livelaw.in/consumer-cases/delhi-district-commission-india-cakes-deficiency-service-online-delivery-refund-536101
-
-[Read on Telegram](https://t.me/livelawindia/111950)
+[Read on Telegram](https://t.me/livelawindia/111984)
 
 ---
-### 2026-05-29T07:12:53+00:00
-Supreme Court Asks States To Consider Using Software For Automatic Consideration Of Prisoners' Premature Release
-https://www.livelaw.in/supreme-court/supreme-court-asks-states-to-consider-using-software-for-automatic-consideration-of-prisoners-premature-release-536104
+### 2026-05-29T13:20:32+00:00
+In Farewell Speech, Justice Pankaj Mithal Flags Judicial Pendency, Warns Against Unchecked AI Use
+https://www.livelaw.in/top-stories/in-farewell-speech-justice-pankaj-mithal-flags-judicial-pendency-warns-against-unchecked-ai-use-536181
 
-[Read on Telegram](https://t.me/livelawindia/111951)
-
----
-### 2026-05-29T07:13:33+00:00
-2026 LiveLaw (SC) 563 | Surendra @ Sunda v. State of Uttar Pradesh
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-563-surendra-sunda-v-state-of-uttar-pradesh-536105
-
-[Read on Telegram](https://t.me/livelawindia/111952)
+[Read on Telegram](https://t.me/livelawindia/111985)
 
 ---
-### 2026-05-29T07:26:03+00:00
-Noida Protest | Allahabad HC Seeks State's Response On Habeas Corpus Plea Of Journalist Arrested For 'Inciting' Workers
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-noida-protest-habeas-corpus-plea-journalist-satyam-verma-inciting-workers-536109
+### 2026-05-29T13:32:31+00:00
+Kupwara Consumer Commission Holds Bajaj Allianz Liable For Inadequate Assessment Of Fire Loss In Insured Poultry Farm
+https://www.livelaw.in/consumer-cases/kupwara-consumer-commission-holds-bajaj-allianz-liable-inadequate-fire-loss-assessment-536183
 
-[Read on Telegram](https://t.me/livelawindia/111953)
-
----
-### 2026-05-29T07:30:04+00:00
-Sulur Girl Sexual Assault-Murder Case | 'Investigation Prima-Facie In Right Direction': Madras High Court Closes Plea For SIT Probe
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-coimbatore-sexual-assault-case-sit-plea-closed-536113
-
-[Read on Telegram](https://t.me/livelawindia/111954)
+[Read on Telegram](https://t.me/livelawindia/111986)
 
 ---
-### 2026-05-29T08:02:23+00:00
-Delhi High Court To Pass Order Protecting Personality Rights Of Actor Varun Dhawan
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-to-pass-order-protecting-personality-rights-of-actor-varun-dhawan-536117
+### 2026-05-29T13:32:41+00:00
+From Meme To Movement; Constitutional Anxiety Beneath India's “Cockroach Janta Party”
+https://www.livelaw.in/articles/constitutional-anxiety-beneath-india-cockroach-janta-party-535838
 
-[Read on Telegram](https://t.me/livelawindia/111955)
-
----
-### 2026-05-29T08:11:24+00:00
-BREAKING| Supreme Court Allows Wrestler Vinesh Phogat To Participate In Asian Games Selection Trials
-https://www.livelaw.in/top-stories/supreme-court-allows-vinesh-phogat-to-participate-in-asian-games-selection-trials-expresses-reservations-about-delhi-hc-approach-536118
-
-[Read on Telegram](https://t.me/livelawindia/111956)
+[Read on Telegram](https://t.me/livelawindia/111987)
 
 ---
-### 2026-05-29T08:14:24+00:00
-'Using Children For Election Campaign Bad': Madras High Court Orally Remarks In PIL Alleging Use Of Children By TVK, Others In Assemly Polls
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-use-of-children-election-campaign-bad-536119
+### 2026-05-29T13:33:11+00:00
+Karnataka High Court Declines Anticipatory Bail To Movie Theatre Owner Accused Of Stalking, Sexually Harassing Minor Student
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-rejects-anticipatory-52yearold-stalking-sexual-harassing-536155
 
-[Read on Telegram](https://t.me/livelawindia/111957)
-
----
-### 2026-05-29T08:34:58+00:00
-'Why Do We Need VIP Darshan? All Are Equal Before God': Madras High Court Remarks In Plea Against Special Darshan In Temples
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-why-vip-darshan-all-equal-before-god-536121
-
-[Read on Telegram](https://t.me/livelawindia/111958)
+[Read on Telegram](https://t.me/livelawindia/111988)
 
 ---
-### 2026-05-29T09:17:48+00:00
-Thrissur Consumer Commission Holds Reliance Digital, Service Centre Liable For Failure To Repair Defective TV During Extended Warranty Period
-https://www.livelaw.in/consumer-law/consumer-commission-order-defective-tv-warranty-reliance-digital-536124
+### 2026-05-29T13:36:11+00:00
+Senior Advocate Surojit Nath Mitra Appointed As Advocate General For West Bengal
+https://www.livelaw.in/news-updates/senior-advocate-surojit-nath-mitra-appointed-as-advocate-general-for-west-bengal-536184
 
-[Read on Telegram](https://t.me/livelawindia/111959)
-
----
-### 2026-05-29T09:21:28+00:00
-'Instigating Youth To Wage War': PIL In Allahabad HC Seeks NIA-ED Probe Against Abhijit Dipke, Blocking Of 'Cockroach Janta Party'
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-pil-nia-ed-probe-cockroach-janta-party-abhijit-dipke-social-media-ban-536126
-
-[Read on Telegram](https://t.me/livelawindia/111960)
+[Read on Telegram](https://t.me/livelawindia/111989)
 
 ---
-### 2026-05-29T09:32:28+00:00
-After Article 370: Has Justice Reached Kashmir's Forgotten Detainees?
-https://www.livelaw.in/articles/article-370-justice-kashmir-forgotten-detainees-535837
+### 2026-05-29T13:37:51+00:00
+Karnataka High Court Refuses To Stay State Bar Council Election Process In Contesting Candidate's Plea Alleging Malpractices
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-ksbc-election-counting-plea-alleging-malpractices-536180
 
-[Read on Telegram](https://t.me/livelawindia/111961)
-
----
-### 2026-05-29T09:39:08+00:00
-NEET-UG 2026 Cancellation : 'UPSC Never Had Paper Leak, NTA Needs To Learn' : Supreme Court Seeks Union's Affidavit On Reforms
-https://www.livelaw.in/top-stories/neet-ug-2026-cancellation-upsc-never-had-paper-leak-nta-needs-to-learn-supreme-court-seeks-unions-affidavit-on-reforms-536128
-
-[Read on Telegram](https://t.me/livelawindia/111962)
+[Read on Telegram](https://t.me/livelawindia/111990)
 
 ---
-### 2026-05-29T09:50:08+00:00
-'Ensure Pilgrims Don't Dump Clothes In River Pamba': Kerala High Court Directs Devaswom Board To Take Necessary Steps, Closes Suo Motu Plea
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sabarimala-pamba-clothes-dump-536129
+### 2026-05-29T13:44:31+00:00
+Complete Selection Of DERC Chairperson And Members Within Two Months: Supreme Court Directs Selection Committee
+https://www.livelaw.in/top-stories/complete-selection-of-derc-chairperson-and-members-within-two-months-supreme-court-directs-selection-committee-536186
 
-[Read on Telegram](https://t.me/livelawindia/111963)
+[Read on Telegram](https://t.me/livelawindia/111991)
 
 ---
-### 2026-05-29T09:57:28+00:00
-Supreme Court Refuses To Entertain Cobrapost's Plea Against Trial Court Allowing Anil Ambani To File Fresh Defamation Suit
-https://www.livelaw.in/top-stories/supreme-court-refuses-to-entertain-cobraposts-plea-against-trial-court-allowing-anil-ambani-to-file-fresh-defamation-suit-536131
+### 2026-05-29T14:15:01+00:00
+Advocates Must Advice Their Clients Against Filing Frivolous Cases In Matrimonial Disputes : Supreme Court
+https://www.livelaw.in/supreme-court/advocates-must-advice-their-clients-against-filing-frivolous-cases-in-matrimonial-disputes-supreme-court-536193
 
-[Read on Telegram](https://t.me/livelawindia/111964)
+[Read on Telegram](https://t.me/livelawindia/111992)
+
+---
+### 2026-05-29T14:16:41+00:00
+2026 LiveLaw (SC) 566 |  ISHWAR CHAND SHARMA & OTHERS VERSUS STATE OF UTTAR PRADESH & ANOTHER
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-566-ishwar-chand-sharma-others-versus-state-of-uttar-pradesh-another-536195
+
+[Read on Telegram](https://t.me/livelawindia/111993)
+
+---
+### 2026-05-29T14:20:01+00:00
+Participation In Protest No Ground To Deny Bail In PMLA Case: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/participation-in-protest-no-ground-to-deny-bail-in-pmla-case-delhi-high-court-536196
+
+[Read on Telegram](https://t.me/livelawindia/111994)
+
+---
+### 2026-05-29T14:24:21+00:00
+Policy Protecting Near-Retirement Employees Doesn't Apply If Over 1 Year Of Service Remains: Chhattisgarh High Court
+https://www.livelaw.in/labour-service/chhattisgarh-high-court-transfer-policy-over-one-year-service-no-protection-536197
+
+[Read on Telegram](https://t.me/livelawindia/111995)
+
+---
+### 2026-05-29T14:25:21+00:00
+Call For Blogs: Kautilya's Take By Kautilya Society, NUSRL Ranchi
+https://www.livelaw.in/lawschool/call-for-papers/kautilyas-take-kautilya-society-nusrl-ranchi-536199
+
+[Read on Telegram](https://t.me/livelawindia/111996)
+
+---
+### 2026-05-29T14:26:41+00:00
+'Individual Liberty Not Trivial Matter' : Supreme Court Awards Rs 11 Lakh Compensation To Prisoner For 24 Day Illegal Detention
+https://www.livelaw.in/supreme-court/individual-liberty-not-trivial-matter-supreme-court-awards-rs-11-lakh-compensation-to-prisoner-for-24-day-illegal-detention-536200
+
+[Read on Telegram](https://t.me/livelawindia/111997)
+
+---
+### 2026-05-29T14:27:41+00:00
+2026 LiveLaw (SC) 567 | DAUDAYAL Versus THE STATE OF RAJASTHAN & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-567-daudayal-versus-the-state-of-rajasthan-ors-536201
+
+[Read on Telegram](https://t.me/livelawindia/111998)
+
+---
+### 2026-05-29T14:31:01+00:00
+LiveLaw Daily | SC On Judicial Delays, Twisha Sharma Probe, NEET Leak & Reliance Cases and more
+https://www.livelaw.in/podcast/livelaw-daily-supreme-court-india-judicial-delays-twisha-sharma-case-cbi-investigation-cockroach-janta-party-neet-paper-leak-national-testing-agency-reliance-vs-sebi-anil-ambani-cobrapost-indian-legal-news-536204
+
+[Read on Telegram](https://t.me/livelawindia/111999)
+
+---
+### 2026-05-29T15:12:51+00:00
+Adarsh Cooperative Society 'Scam': Rajasthan High Court Revokes Default Bail Granted To Co-Accused On Ground Of Incomplete Charge Sheet
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-cancels-default-bail-loan-scam-536206
+
+[Read on Telegram](https://t.me/livelawindia/112000)
+
+---
+### 2026-05-29T15:27:51+00:00
+Calcutta High Court Directs 'Status Quo' Over Demolition Of Alleged Illegal Constructions Across Kolkata
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-status-quo-demolition-alleged-illegal-construction-kolkata-536209
+
+[Read on Telegram](https://t.me/livelawindia/112001)
 
 ---
