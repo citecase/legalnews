@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-29T12:38:06+00:00*
+*Last Updated: 2026-05-29T13:33:11+00:00*
 
 ---
 
-### 2026-05-29T12:38:06+00:00
-2026 LiveLaw (SC) 565 | VIJAY KUMAR KELA & ANR. VERSUS CENTRAL BUREAU OF INVESTIGATION & ANR
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-565-vijay-kumar-kela-anr-versus-central-bureau-of-investigation-anr-536174
-
-[Read on Telegram](https://t.me/livelawindia/111982)
-
----
-### 2026-05-29T12:44:46+00:00
-Prayagraj ADM Clears Muslim Man's 'Voluntary' Conversion To Hinduism After Allahabad High Court Rap
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-rap-prayagraj-adm-muslim-man-conversion-hinduism-plea-disposed-536175
-
-[Read on Telegram](https://t.me/livelawindia/111983)
-
----
-### 2026-05-29T12:50:26+00:00
-'Have Endeavoured To Uphold Litigants' Sacred Trust In Courts With Integrity': Kerala High Court Justice MB Snehalatha In Farewell Address
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-justice-snehalatha-farewell-536176
-
-[Read on Telegram](https://t.me/livelawindia/111984)
-
----
-### 2026-05-29T13:20:32+00:00
-In Farewell Speech, Justice Pankaj Mithal Flags Judicial Pendency, Warns Against Unchecked AI Use
-https://www.livelaw.in/top-stories/in-farewell-speech-justice-pankaj-mithal-flags-judicial-pendency-warns-against-unchecked-ai-use-536181
-
-[Read on Telegram](https://t.me/livelawindia/111985)
-
----
-### 2026-05-29T13:32:31+00:00
-Kupwara Consumer Commission Holds Bajaj Allianz Liable For Inadequate Assessment Of Fire Loss In Insured Poultry Farm
-https://www.livelaw.in/consumer-cases/kupwara-consumer-commission-holds-bajaj-allianz-liable-inadequate-fire-loss-assessment-536183
-
-[Read on Telegram](https://t.me/livelawindia/111986)
-
----
-### 2026-05-29T13:32:41+00:00
-From Meme To Movement; Constitutional Anxiety Beneath India's “Cockroach Janta Party”
-https://www.livelaw.in/articles/constitutional-anxiety-beneath-india-cockroach-janta-party-535838
-
-[Read on Telegram](https://t.me/livelawindia/111987)
-
----
 ### 2026-05-29T13:33:11+00:00
 Karnataka High Court Declines Anticipatory Bail To Movie Theatre Owner Accused Of Stalking, Sexually Harassing Minor Student
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-rejects-anticipatory-52yearold-stalking-sexual-harassing-536155
@@ -142,5 +100,47 @@ Calcutta High Court Directs 'Status Quo' Over Demolition Of Alleged Illegal Cons
 https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-status-quo-demolition-alleged-illegal-construction-kolkata-536209
 
 [Read on Telegram](https://t.me/livelawindia/112001)
+
+---
+### 2026-05-29T16:03:41+00:00
+Centre Notifies Appointment Of Three Judicial Officers As Additional Judges Of Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/centre-notifies-appointment-of-three-judicial-officers-as-judges-of-karnataka-high-court-536215
+
+[Read on Telegram](https://t.me/livelawindia/112002)
+
+---
+### 2026-05-29T16:18:41+00:00
+'Disturbing Trend Of Dragging Advocates': Karnataka HC Quashes FIR Against Accused's Lawyer Who Filed RTI Seeking Info On Complainant
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-fir-lawyer-rti-ascertain-complainant-caste-536216
+
+[Read on Telegram](https://t.me/livelawindia/112003)
+
+---
+### 2026-05-29T16:22:21+00:00
+'Bar Is The Mother Of Legal Profession' : Justice JK Maheshwari In Farewell Speech
+https://www.livelaw.in/top-stories/bar-is-the-mother-of-legal-profession-justice-jk-maheshwari-in-farewell-speech-536217
+
+[Read on Telegram](https://t.me/livelawindia/112004)
+
+---
+### 2026-05-29T16:51:25+00:00
+Madras High Court Censures IPS Officer A Arun For Passing 'Reckless' Detention Order Against Realtor, Says He Habitually Passes Such Orders
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-detention-order-against-realtor-arun-ips-censures-536218
+
+[Read on Telegram](https://t.me/livelawindia/112005)
+
+---
+### 2026-05-29T17:12:55+00:00
+Supreme Court Daily Round-Up : May 29, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-29-2026-536212
+
+[Read on Telegram](https://t.me/livelawindia/112006)
+
+---
+### 2026-05-29T17:17:35+00:00
+Punjab & Haryana High Court Refuses Anticipatory Bail To Author Madhu Kishwar In Defamation FIR Over Social Media Video On PM Modi
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-refuses-anticipatory-bail-to-author-madhu-kishwar-in-fir-over-social-media-posts-against-pm-modi-536220
+
+[Read on Telegram](https://t.me/livelawindia/112007)
 
 ---
