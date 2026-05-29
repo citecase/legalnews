@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-28T16:02:59+00:00*
+*Last Updated: 2026-05-29T04:40:21+00:00*
+
+---
+
+### 2026-05-29T04:40:21+00:00
+“Flimsy Prosecution Story”: Supreme Court Acquits Two on Death Row In 2012 Gang Rape-Murder Case
+https://www.verdictum.in/supreme-court/mehtab-v-state-of-uttarakhand-2026-insc-578-acquits-two-on-death-row-in-rape-murder-case-1614894
+
+[Source Link](https://t.me/verdictumlegalupdates/27272)
 
 ---
 
@@ -153,14 +161,6 @@ Railway Servants Are Members Of Civil Service Of Central Government: Supreme Cou
 https://www.verdictum.in/supreme-court/bency-v-john-kerala-state-electricity-board-ltd-2026-insc-562-railway-servants-are-central-government-employees-1614829
 
 [Source Link](https://t.me/verdictumlegalupdates/27253)
-
----
-
-### 2026-05-28T05:03:02+00:00
-Supreme Court Collegium Recommends Elevation Of Four Chief Justices & Senior Advocate As Judges Of The Supreme Court
-https://www.verdictum.in/supreme-court/four-chief-justices-senior-advocate-as-judges-of-the-supreme-court-1614828
-
-[Source Link](https://t.me/verdictumlegalupdates/27252)
 
 ---
 
