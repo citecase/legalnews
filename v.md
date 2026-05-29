@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-29T04:40:21+00:00*
+*Last Updated: 2026-05-29T09:52:13+00:00*
+
+---
+
+### 2026-05-29T09:52:13+00:00
+NEET UG Paper Leak| Cannot Disappoint Students: Supreme Court Asks Centre To Establish Institutional Memory & Plurality To Ensure No Such Incident Occurs
+https://www.verdictum.in/supreme-court/neet-ug-paper-leak-institutional-memory-plurality-centre-nta-testing-1614925
+
+[Source Link](https://t.me/verdictumlegalupdates/27280)
+
+---
+
+### 2026-05-29T09:13:11+00:00
+Supreme Court Questions P. Mohanraj Precedent On Nature Of Cheque Bounce Case Proceedings; Refers Part III IBC Moratorium Issue To Larger Bench
+https://www.verdictum.in/supreme-court/dineshchand-surana-v-uco-bank-2026-insc-579-part-iii-ibc-moratorium-conflict-to-larger-bench-1614920
+
+[Source Link](https://t.me/verdictumlegalupdates/27279)
+
+---
+
+### 2026-05-29T08:32:30+00:00
+Torture Or Ill-Treatment In Husband's House Sufficient For Refusal To Live With Him: Bombay High Court Upholds Grant Of Maintenance To Wife
+https://www.verdictum.in/bombay-high-court/a-v-b-2026bhc-nag6553-torture-ill-treatment-husband-maintenance-1614919
+
+[Source Link](https://t.me/verdictumlegalupdates/27278)
+
+---
+
+### 2026-05-29T07:52:48+00:00
+CCI Cannot Convert Penal Adjunct U/S 45(2) Competition Act Into General Power Of Review: Supreme Court Quashes Regulatory Suspension Of Amazon Merger
+https://www.verdictum.in/supreme-court/amazoncom-nv-investment-holdings-llc-v-cci-2026-insc-576-penal-adjunct-us-452-competition-act-2002-1614915
+
+[Source Link](https://t.me/verdictumlegalupdates/27277)
+
+---
+
+### 2026-05-29T07:13:07+00:00
+IBC| Successful Resolution Applicant Prohibited From Negotiating Further Once CoC Approves Resolution Plan: Supreme Court
+https://www.verdictum.in/supreme-court/sanjay-dave-v-andhra-bank-ltd-2026-insc-580-successful-resolution-applicant-coc-1614911
+
+[Source Link](https://t.me/verdictumlegalupdates/27276)
+
+---
+
+### 2026-05-29T06:32:45+00:00
+"Tax-Fee Distinction May Have Blurred, But Continues To Remain": Supreme Court Upholds NMMC’s Power To Levy Property Tax In MIDC Area
+https://www.verdictum.in/supreme-court/small-scale-enterpreneurs-association-v-the-state-of-maharashtra-2026-insc-570-nmmc-power-over-ttc-midc-transfer-of-civic-amenities-1614901
+
+[Source Link](https://t.me/verdictumlegalupdates/27275)
+
+---
+
+### 2026-05-29T05:45:24+00:00
+Breaking: Supreme Court Issues Binding Guidelines Formulating Strict Timelines For High Courts To Pronounce Reserved Judgments & Expedite Bail Orders
+https://www.verdictum.in/supreme-court/binding-guidelines-strict-timelines-high-courts-pronounce-reserved-judgments-expedite-bail-orders-1614900
+
+[Source Link](https://t.me/verdictumlegalupdates/27274)
+
+---
+
+### 2026-05-29T05:12:42+00:00
+State Compassionate Assistance To Widow Can't Negate Mother's Independent Claims: Supreme Court Restores Motor Accident Compensation For Dependent Mother
+https://www.verdictum.in/supreme-court/2026-insc-575-sarla-devi-v-reliance-general-insurance-company-limited-1614897
+
+[Source Link](https://t.me/verdictumlegalupdates/27273)
 
 ---
 
@@ -97,70 +161,6 @@ Primogeniture Ends With “Gaddi”, Not Private Property: Supreme Court Holds F
 https://www.verdictum.in/supreme-court/tikka-shatrujit-singh-v-sukjit-singh-2026-insc-571-primogeniture-ends-with-gaddi-former-rulers-personal-estates-1614854
 
 [Source Link](https://t.me/verdictumlegalupdates/27261)
-
----
-
-### 2026-05-28T09:02:34+00:00
-There Were & Are Corrupt Judges; Portrayal Of Fictional Corrupt Court Not Criminal Contempt: Madras High Court Dismisses Plea Seeking Ban Of Film Karuppu
-https://www.verdictum.in/madras-high-court/rs-tamilvendan-v-the-secretary-to-the-state-of-tamil-nadu-ors-wp-no-20286-of-2026-refuses-to-ban-film-karuppu-corrupt-court-1614852
-
-[Source Link](https://t.me/verdictumlegalupdates/27260)
-
----
-
-### 2026-05-28T08:32:52+00:00
-Upper Qualification Limits In Public Employment Protect Underprivileged Candidates From Unequal Competition: Supreme Court
-https://www.verdictum.in/supreme-court/2026-insc-581-general-manager-v-k-poovarasan-1614849
-
-[Source Link](https://t.me/verdictumlegalupdates/27259)
-
----
-
-### 2026-05-28T08:02:31+00:00
-Readiness & Willingness Of Plaintiff In Specific Performance Suit Can Be Gathered From Prior & Subsequent Conduct Of Parties: Supreme Court
-https://www.verdictum.in/supreme-court/a-shahul-hameed-v-n-malligarjuna-2026-insc-573-readiness-willingness-plaintiff-specific-performance-1614847
-
-[Source Link](https://t.me/verdictumlegalupdates/27258)
-
----
-
-### 2026-05-28T07:32:29+00:00
-The Perpetrator Hid Behind Cloak Of Self- Styled Godman: Rajasthan Hc Upholds Life Sentence For Asaram Bapu In Rape Case, Acquits Him Of Gang Rape
-https://www.verdictum.in/rajasthan-high-court/2026-rj-jd-26201-db-asha-ram-ashumal-v-state-1614846
-
-[Source Link](https://t.me/verdictumlegalupdates/27257)
-
----
-
-### 2026-05-28T07:02:28+00:00
-Shocks Judicial Conscience; Leaves No Room For Misplaced Sympathy: Supreme Court Upholds  Conviction In 1983 Muzaffarpur Mass Violence Case
-https://www.verdictum.in/supreme-court/mahendra-rai-harendra-narain-singh-v-the-state-of-bihar-2026-insc-560-common-object-unlawful-assembly-1614841
-
-[Source Link](https://t.me/verdictumlegalupdates/27256)
-
----
-
-### 2026-05-28T06:33:07+00:00
-Ensure That No Cow Or Calf Is Slaughtered On Bakrid Or On Any Other Day: Madras High Court To State
-https://www.verdictum.in/madras-high-court/k-surya-v-the-secretary-to-the-government-ensure-no-cow-or-calf-is-slaughtered-1614836
-
-[Source Link](https://t.me/verdictumlegalupdates/27255)
-
----
-
-### 2026-05-28T06:02:25+00:00
-Would Open Floodgates: Delhi High Court Dismisses Lawyer’s Petition for Reimbursement Of Insurance Claim Under CM Advocates Welfare Scheme
-https://www.verdictum.in/delhi-high-court/prithipal-singh-v-government-of-nct-of-delhi-2026dhc4550-reimbursement-insurance-claim-1614832
-
-[Source Link](https://t.me/verdictumlegalupdates/27254)
-
----
-
-### 2026-05-28T05:33:04+00:00
-Railway Servants Are Members Of Civil Service Of Central Government: Supreme Court
-https://www.verdictum.in/supreme-court/bency-v-john-kerala-state-electricity-board-ltd-2026-insc-562-railway-servants-are-central-government-employees-1614829
-
-[Source Link](https://t.me/verdictumlegalupdates/27253)
 
 ---
 
