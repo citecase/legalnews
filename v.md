@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-30T14:12:47+00:00*
+*Last Updated: 2026-05-30T15:02:48+00:00*
+
+---
+
+### 2026-05-30T15:02:48+00:00
+National Commission for Women (NCW) Invites Applications For The Posts Of Assistant Law Officer, Legal Assistant
+https://www.verdictum.in/job-updates/national-commission-for-women-1614995
+
+[Source Link](https://t.me/verdictumlegalupdates/27304)
 
 ---
 
@@ -153,14 +161,6 @@ Supreme Court Grants Relief To RIL; Sets Aside SEBI’s Fraud Finding & ₹447 C
 https://www.verdictum.in/supreme-court/reliance-industries-limited-v-the-securities-and-exchange-board-of-india-2026-insc-585-447-crore-disgorgement-2007-rpl-1614931
 
 [Source Link](https://t.me/verdictumlegalupdates/27285)
-
----
-
-### 2026-05-29T12:32:08+00:00
-Supreme Court Orders Appointment Of DERC Chairperson, Two Members Within Two Months
-https://www.verdictum.in/supreme-court/appointment-of-derc-chairperson-two-members-within-two-months-1614928
-
-[Source Link](https://t.me/verdictumlegalupdates/27284)
 
 ---
 
