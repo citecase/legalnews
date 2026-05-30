@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-30T09:03:44+00:00*
+*Last Updated: 2026-05-30T10:32:34+00:00*
 
 ---
 
-### 2026-05-30T09:03:44+00:00
-2026 LiveLaw (SC) 572 | DIRECTORATE GENERAL OF GOODS AND SERVICES TAX INTELLIGENCE HQS Vs GAMESKRAFT TECHNOLOGIES PRIVATE LIMITED
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-572-directorate-general-of-goods-and-services-tax-intelligence-hqs-vs-gameskraft-technologies-private-limited-536279
-
-[Read on Telegram](https://t.me/livelawindia/112042)
-
----
-### 2026-05-30T09:20:24+00:00
-'GST Is Tax On Supply, Not Profits' : Why Supreme Court Rejected Casino's Plea That Tax Liability Is On Net Outcome After Games
-https://www.livelaw.in/supreme-court/gst-is-tax-on-supply-not-profits-why-supreme-court-rejected-casinos-plea-that-tax-liability-is-on-net-outcome-after-games-536281
-
-[Read on Telegram](https://t.me/livelawindia/112043)
-
----
-### 2026-05-30T09:32:54+00:00
-Before Passing Laws, India Must Forecast Court Burden—Starting With Tribunals
-https://www.livelaw.in/articles/judicial-impact-assessment-tribunal-reform-536239
-
-[Read on Telegram](https://t.me/livelawindia/112044)
-
----
-### 2026-05-30T09:33:14+00:00
-Rajasthan High Court Imposes One-Year Social Media Ban On POCSO Accused Held For Allegedly Cyber-Stalking Minor
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-imposes-social-media-ban-pocso-accused-cyber-stalking-minor-536228
-
-[Read on Telegram](https://t.me/livelawindia/112045)
-
----
-### 2026-05-30T09:44:14+00:00
-Uttarakhand HC Dismisses State's Appeal As 'Not Pressed' Against Single-Judge Order Permitting Eid Namaz At Nainital Ground
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-hc-appeal-not-pressed-single-judge-order-eid-namaz-nainital-ground-536283
-
-[Read on Telegram](https://t.me/livelawindia/112046)
-
----
-### 2026-05-30T10:25:04+00:00
-MP High Court Asks Centre, State To Inform On Preventive Steps Taken Over Tiger Deaths In Kanha National Park
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-kanha-national-park-death-of-tigers-536286
-
-[Read on Telegram](https://t.me/livelawindia/112047)
-
----
 ### 2026-05-30T10:32:34+00:00
 Govt Employees Can't Be Victimised Through Transfer Or Attachment Orders: MP High Court
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-government-employee-transfer-cannot-be-punitive-general-administration-department-circular-536229
@@ -142,5 +100,47 @@ Supreme Court Directs Removal Of Encroachments & Stopping Of Illegal Resorts In 
 https://www.livelaw.in/supreme-court/supreme-court-directs-removal-of-encroachments-stopping-of-illegal-resorts-in-srivilliputhur-megamalai-tiger-reserve-536313
 
 [Read on Telegram](https://t.me/livelawindia/112061)
+
+---
+### 2026-05-30T13:50:55+00:00
+2026 LiveLaw (SC) 573 | A. JOHN KENNEDY AND OTHERS VERSUS STATE OF TAMIL NADU AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-573-a-john-kennedy-and-others-versus-state-of-tamil-nadu-and-others-536314
+
+[Read on Telegram](https://t.me/livelawindia/112062)
+
+---
+### 2026-05-30T14:32:45+00:00
+GST Arrests Post Radhika Agarwal V. Union of India: Has Supreme Court Redefined Tax Investigations?
+https://www.livelaw.in/articles/gst-arrests-radhika-agarwal-supreme-court-tax-investigations-536240
+
+[Read on Telegram](https://t.me/livelawindia/112063)
+
+---
+### 2026-05-30T15:02:35+00:00
+S.17 CPC | Partition Suit For Different Properties Can Be Filed In Any Jurisdictional Court If Cause Of Action Is Same: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-partition-suit-property-different-states-536306
+
+[Read on Telegram](https://t.me/livelawindia/112064)
+
+---
+### 2026-05-30T15:22:35+00:00
+Denial Of Disability Pension To Army Personnel Based On Medical Opinion Unsupported By Full Reasons Invalid: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-disability-pension-medical-opinion-full-reason-536323
+
+[Read on Telegram](https://t.me/livelawindia/112065)
+
+---
+### 2026-05-30T15:31:55+00:00
+2026 LiveLaw (SC) 574 |  PRAJWALA Versus UNION OF INDIA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-574-prajwala-versus-union-of-india-536328
+
+[Read on Telegram](https://t.me/livelawindia/112066)
+
+---
+### 2026-05-30T15:32:55+00:00
+O.7 R.3 CPC | Not Mandatory To Include Defendant's Property In Schedule To Suit For Determination Of Boundary: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-suit-fixation-boundary-defendant-property-schedule-536309
+
+[Read on Telegram](https://t.me/livelawindia/112067)
 
 ---
