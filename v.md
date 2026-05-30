@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-30T04:32:35+00:00*
+*Last Updated: 2026-05-30T08:12:45+00:00*
+
+---
+
+### 2026-05-30T08:12:45+00:00
+Non-Release Of Convict After Grant Of Parole And Furnishing Of Sureties Amounts To Illegal Detention: Supreme Court
+https://www.verdictum.in/supreme-court/daudayal-v-state-of-rajasthan-ors-2026-insc-599-permanent-parole-convict-1614982
+
+[Source Link](https://t.me/verdictumlegalupdates/27295)
+
+---
+
+### 2026-05-30T07:33:01+00:00
+Advocates Must Not Advise Filing Vexatious "Matrimonial Bouquet" And Frivolous POCSO Cases To Secure Settlements: Supreme Court
+https://www.verdictum.in/supreme-court/ishwar-chand-sharma-ors-v-state-of-uttar-pradesh-another-2026-insc-587-1614977
+
+[Source Link](https://t.me/verdictumlegalupdates/27294)
+
+---
+
+### 2026-05-30T06:52:59+00:00
+Reflects Disturbing Reality Of Society: Delhi High Court Dismisses Bail Application Of Mother-In-Law In Dowry Death Case
+https://www.verdictum.in/delhi-high-court/ayodhya-devi-alias-jyoti-v-state-govt-of-nct-of-delhi-2026dhc4705-unlawful-demand-dowry-1614968
+
+[Source Link](https://t.me/verdictumlegalupdates/27293)
+
+---
+
+### 2026-05-30T06:02:18+00:00
+PFUTP Regulations| Fraud Cannot Be Inferred From Every Regulatory Breach; SEBI Cannot Exercise “Unfettered Powers” To Decide Fraud: Supreme Court
+https://www.verdictum.in/supreme-court/reliance-industries-limited-v-sebi-2026-insc-585-pfutp-fraud-1614966
+
+[Source Link](https://t.me/verdictumlegalupdates/27292)
+
+---
+
+### 2026-05-30T05:12:56+00:00
+Delhi High Court Directs Digital Authentication Via Aadhaar QR Codes To Curtail Delays By Jail Superintendents In Prisoner Release Over Bail Bond
+https://www.verdictum.in/delhi-high-court/court-on-its-own-motion-v-director-general-of-prisons-govt-of-nct-of-delhi-2026dhc4739-db-via-aadhaar-qr-codes-prisoner-release-1614963
+
+[Source Link](https://t.me/verdictumlegalupdates/27291)
 
 ---
 
@@ -121,46 +161,6 @@ IBC| Successful Resolution Applicant Prohibited From Negotiating Further Once Co
 https://www.verdictum.in/supreme-court/sanjay-dave-v-andhra-bank-ltd-2026-insc-580-successful-resolution-applicant-coc-1614911
 
 [Source Link](https://t.me/verdictumlegalupdates/27276)
-
----
-
-### 2026-05-29T06:32:45+00:00
-"Tax-Fee Distinction May Have Blurred, But Continues To Remain": Supreme Court Upholds NMMC’s Power To Levy Property Tax In MIDC Area
-https://www.verdictum.in/supreme-court/small-scale-enterpreneurs-association-v-the-state-of-maharashtra-2026-insc-570-nmmc-power-over-ttc-midc-transfer-of-civic-amenities-1614901
-
-[Source Link](https://t.me/verdictumlegalupdates/27275)
-
----
-
-### 2026-05-29T05:45:24+00:00
-Breaking: Supreme Court Issues Binding Guidelines Formulating Strict Timelines For High Courts To Pronounce Reserved Judgments & Expedite Bail Orders
-https://www.verdictum.in/supreme-court/binding-guidelines-strict-timelines-high-courts-pronounce-reserved-judgments-expedite-bail-orders-1614900
-
-[Source Link](https://t.me/verdictumlegalupdates/27274)
-
----
-
-### 2026-05-29T05:12:42+00:00
-State Compassionate Assistance To Widow Can't Negate Mother's Independent Claims: Supreme Court Restores Motor Accident Compensation For Dependent Mother
-https://www.verdictum.in/supreme-court/2026-insc-575-sarla-devi-v-reliance-general-insurance-company-limited-1614897
-
-[Source Link](https://t.me/verdictumlegalupdates/27273)
-
----
-
-### 2026-05-29T04:40:21+00:00
-“Flimsy Prosecution Story”: Supreme Court Acquits Two on Death Row In 2012 Gang Rape-Murder Case
-https://www.verdictum.in/supreme-court/mehtab-v-state-of-uttarakhand-2026-insc-578-acquits-two-on-death-row-in-rape-murder-case-1614894
-
-[Source Link](https://t.me/verdictumlegalupdates/27272)
-
----
-
-### 2026-05-28T16:02:59+00:00
-Panel Advocate Vacancy At Rajasthan State Legal Services Authority (RSLSA)
-https://www.verdictum.in/job-updates/rajasthan-state-legal-services-authority-1614865
-
-[Source Link](https://t.me/verdictumlegalupdates/27271)
 
 ---
 
