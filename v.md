@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-29T16:02:37+00:00*
+*Last Updated: 2026-05-30T04:32:35+00:00*
+
+---
+
+### 2026-05-30T04:32:35+00:00
+Victims of Heinous Crimes Cannot Be Repeatedly Subjected To Trauma of Cross-Examination: Supreme Court
+https://www.verdictum.in/supreme-court/state-of-tripura-v-panna-ahmed-2026-insc-584-1614958
+
+[Source Link](https://t.me/verdictumlegalupdates/27290)
 
 ---
 
@@ -153,14 +161,6 @@ Panel Advocate Vacancy At Rajasthan State Legal Services Authority (RSLSA)
 https://www.verdictum.in/job-updates/rajasthan-state-legal-services-authority-1614865
 
 [Source Link](https://t.me/verdictumlegalupdates/27271)
-
----
-
-### 2026-05-28T15:12:58+00:00
-Husband Should Provide Financial Support To Wife & Minor Children Even By Doing Physical Labour: Delhi High Court
-https://www.verdictum.in/delhi-high-court/a-v-b-2026dhc4517-issues-revision-family-court-petition-section-127-crpc-1614872
-
-[Source Link](https://t.me/verdictumlegalupdates/27270)
 
 ---
 
