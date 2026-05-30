@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-30T08:12:45+00:00*
+*Last Updated: 2026-05-30T14:12:47+00:00*
+
+---
+
+### 2026-05-30T14:12:47+00:00
+Bank Cannot Belatedly Initiate Criminal Proceedings After Approving Loan Settlement & Withdrawing DRT Proceedings: Supreme Court Quashes Criminal Case Against Borrowers
+https://www.verdictum.in/supreme-court/vijay-kumar-kela-anr-v-central-bureau-of-investigation-anr-2026-insc-588-1615001
+
+[Source Link](https://t.me/verdictumlegalupdates/27303)
+
+---
+
+### 2026-05-30T13:32:45+00:00
+Question Of Paternity Is Directly In Issue; No Other Evidence Could Provide Categorical Answer: Supreme Court Upholds DNA Test Order In A Suit For Declaration
+https://www.verdictum.in/supreme-court/cp-v-ap-2026-insc-600-question-paternity-issue-dna-test-1615000
+
+[Source Link](https://t.me/verdictumlegalupdates/27302)
+
+---
+
+### 2026-05-30T12:52:24+00:00
+Judgment On Admission Under Order XII Rule 6 CPC Cannot Be Passed Where Triable Issues Require Adjudication: Supreme Court
+https://www.verdictum.in/supreme-court/pushpa-ors-v-dayawati-ors-2026-insc-603-order-xii-rule-6-cpc-decree-admission-1614994
+
+[Source Link](https://t.me/verdictumlegalupdates/27301)
+
+---
+
+### 2026-05-30T12:03:02+00:00
+Supreme Court Orders Time-Bound Clearance Of Encroachments Across Agasthyamalai Landscape; Directs Closure Of Resorts, Deployment Of Forces
+https://www.verdictum.in/supreme-court/a-john-kennedy-ors-v-state-of-tamil-nadu-ors-2026-insc-605-agasthyamalai-landscape-1614990
+
+[Source Link](https://t.me/verdictumlegalupdates/27300)
+
+---
+
+### 2026-05-30T11:12:41+00:00
+Substantive Compliance Of Audi Alteram Partem Is Non-Negotiable : Supreme Court Sets Aside Removal Of Mathadhipati Of Tirupathi's Hathiramji Mutt
+https://www.verdictum.in/supreme-court/arjun-dass-v-the-state-of-andhra-pradesh-2026-insc-592-removal-of-mathadhipati-of-tirupathis-hathiramji-mutt-1614989
+
+[Source Link](https://t.me/verdictumlegalupdates/27299)
+
+---
+
+### 2026-05-30T10:32:49+00:00
+Conviction Can Be Based On Uncorroborated Approver Testimony If Court Finds It Safe To Rely Upon: Supreme Court
+https://www.verdictum.in/supreme-court/gopi-chand-pappu-v-state-nct-of-delhi-2026-insc-598-approver-testimony-1614988
+
+[Source Link](https://t.me/verdictumlegalupdates/27298)
+
+---
+
+### 2026-05-30T09:52:28+00:00
+Betting On Games Of Skill Is A Gambling Enterprise, Not A Protected Trade: Supreme Court Upholds Tamil Nadu & Karnataka Laws Banning Online Rummy & Poker
+https://www.verdictum.in/supreme-court/state-of-tamil-nadu-v-junglee-games-india-pvt-ltd-2026-insc-594-banning-online-rummy-poker-betting-gambling-1614987
+
+[Source Link](https://t.me/verdictumlegalupdates/27297)
+
+---
+
+### 2026-05-30T09:02:46+00:00
+TET Qualification Mandatory For All In-Service Teachers: Supreme Court Refuses Plea Seeking Review Of Its Judgment
+https://www.verdictum.in/supreme-court/state-of-up-v-anjuman-ishaat-e-taleem-trust-2026-insc-597-tet-qualification-mandatory-for-all-in-service-teachers-1614983
+
+[Source Link](https://t.me/verdictumlegalupdates/27296)
 
 ---
 
@@ -97,70 +161,6 @@ Supreme Court Orders Appointment Of DERC Chairperson, Two Members Within Two Mon
 https://www.verdictum.in/supreme-court/appointment-of-derc-chairperson-two-members-within-two-months-1614928
 
 [Source Link](https://t.me/verdictumlegalupdates/27284)
-
----
-
-### 2026-05-29T11:53:17+00:00
-Supreme Court Refuses To Interfere With Anticipatory Bail To Swami Avimukteshwaranand In POCSO Case
-https://www.verdictum.in/supreme-court/anticipatory-bail-to-swami-avimukteshwaranand-in-pocso-case-1614927
-
-[Source Link](https://t.me/verdictumlegalupdates/27283)
-
----
-
-### 2026-05-29T11:12:35+00:00
-We Aren’t Stopping You, Go And Participate: Supreme Court Allows Wrestler Vinesh Phogat To Participate In Asian Games 2026 Trials
-https://www.verdictum.in/supreme-court/wrestler-vinesh-phogat-to-participate-in-asian-games-2026-trials-1614926
-
-[Source Link](https://t.me/verdictumlegalupdates/27282)
-
----
-
-### 2026-05-29T10:32:54+00:00
-ACP Panel Cutting, Grooving For Cladding Not ‘Manufacture’: Supreme Court Explains Transformation & Marketability Test For Excise Duty
-https://www.verdictum.in/supreme-court/ms-alupro-building-systems-pvt-ltd-v-commissioner-of-central-excise-bangalore-ii-2026-insc-582-acp-panel-cutting-grooving-1614923
-
-[Source Link](https://t.me/verdictumlegalupdates/27281)
-
----
-
-### 2026-05-29T09:52:13+00:00
-NEET UG Paper Leak| Cannot Disappoint Students: Supreme Court Asks Centre To Establish Institutional Memory & Plurality To Ensure No Such Incident Occurs
-https://www.verdictum.in/supreme-court/neet-ug-paper-leak-institutional-memory-plurality-centre-nta-testing-1614925
-
-[Source Link](https://t.me/verdictumlegalupdates/27280)
-
----
-
-### 2026-05-29T09:13:11+00:00
-Supreme Court Questions P. Mohanraj Precedent On Nature Of Cheque Bounce Case Proceedings; Refers Part III IBC Moratorium Issue To Larger Bench
-https://www.verdictum.in/supreme-court/dineshchand-surana-v-uco-bank-2026-insc-579-part-iii-ibc-moratorium-conflict-to-larger-bench-1614920
-
-[Source Link](https://t.me/verdictumlegalupdates/27279)
-
----
-
-### 2026-05-29T08:32:30+00:00
-Torture Or Ill-Treatment In Husband's House Sufficient For Refusal To Live With Him: Bombay High Court Upholds Grant Of Maintenance To Wife
-https://www.verdictum.in/bombay-high-court/a-v-b-2026bhc-nag6553-torture-ill-treatment-husband-maintenance-1614919
-
-[Source Link](https://t.me/verdictumlegalupdates/27278)
-
----
-
-### 2026-05-29T07:52:48+00:00
-CCI Cannot Convert Penal Adjunct U/S 45(2) Competition Act Into General Power Of Review: Supreme Court Quashes Regulatory Suspension Of Amazon Merger
-https://www.verdictum.in/supreme-court/amazoncom-nv-investment-holdings-llc-v-cci-2026-insc-576-penal-adjunct-us-452-competition-act-2002-1614915
-
-[Source Link](https://t.me/verdictumlegalupdates/27277)
-
----
-
-### 2026-05-29T07:13:07+00:00
-IBC| Successful Resolution Applicant Prohibited From Negotiating Further Once CoC Approves Resolution Plan: Supreme Court
-https://www.verdictum.in/supreme-court/sanjay-dave-v-andhra-bank-ltd-2026-insc-580-successful-resolution-applicant-coc-1614911
-
-[Source Link](https://t.me/verdictumlegalupdates/27276)
 
 ---
 
