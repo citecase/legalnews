@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-29T13:33:11+00:00*
+*Last Updated: 2026-05-29T14:20:01+00:00*
 
 ---
 
-### 2026-05-29T13:33:11+00:00
-Karnataka High Court Declines Anticipatory Bail To Movie Theatre Owner Accused Of Stalking, Sexually Harassing Minor Student
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-rejects-anticipatory-52yearold-stalking-sexual-harassing-536155
-
-[Read on Telegram](https://t.me/livelawindia/111988)
-
----
-### 2026-05-29T13:36:11+00:00
-Senior Advocate Surojit Nath Mitra Appointed As Advocate General For West Bengal
-https://www.livelaw.in/news-updates/senior-advocate-surojit-nath-mitra-appointed-as-advocate-general-for-west-bengal-536184
-
-[Read on Telegram](https://t.me/livelawindia/111989)
-
----
-### 2026-05-29T13:37:51+00:00
-Karnataka High Court Refuses To Stay State Bar Council Election Process In Contesting Candidate's Plea Alleging Malpractices
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-ksbc-election-counting-plea-alleging-malpractices-536180
-
-[Read on Telegram](https://t.me/livelawindia/111990)
-
----
-### 2026-05-29T13:44:31+00:00
-Complete Selection Of DERC Chairperson And Members Within Two Months: Supreme Court Directs Selection Committee
-https://www.livelaw.in/top-stories/complete-selection-of-derc-chairperson-and-members-within-two-months-supreme-court-directs-selection-committee-536186
-
-[Read on Telegram](https://t.me/livelawindia/111991)
-
----
-### 2026-05-29T14:15:01+00:00
-Advocates Must Advice Their Clients Against Filing Frivolous Cases In Matrimonial Disputes : Supreme Court
-https://www.livelaw.in/supreme-court/advocates-must-advice-their-clients-against-filing-frivolous-cases-in-matrimonial-disputes-supreme-court-536193
-
-[Read on Telegram](https://t.me/livelawindia/111992)
-
----
-### 2026-05-29T14:16:41+00:00
-2026 LiveLaw (SC) 566 |  ISHWAR CHAND SHARMA & OTHERS VERSUS STATE OF UTTAR PRADESH & ANOTHER
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-566-ishwar-chand-sharma-others-versus-state-of-uttar-pradesh-another-536195
-
-[Read on Telegram](https://t.me/livelawindia/111993)
-
----
 ### 2026-05-29T14:20:01+00:00
 Participation In Protest No Ground To Deny Bail In PMLA Case: Delhi High Court
 https://www.livelaw.in/high-court/delhi-high-court/participation-in-protest-no-ground-to-deny-bail-in-pmla-case-delhi-high-court-536196
@@ -142,5 +100,47 @@ Punjab & Haryana High Court Refuses Anticipatory Bail To Author Madhu Kishwar In
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-refuses-anticipatory-bail-to-author-madhu-kishwar-in-fir-over-social-media-posts-against-pm-modi-536220
 
 [Read on Telegram](https://t.me/livelawindia/112007)
+
+---
+### 2026-05-30T02:36:50+00:00
+Karnataka High Court Gets Three Additional Judges
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-gets-three-additional-judges-536232
+
+[Read on Telegram](https://t.me/livelawindia/112008)
+
+---
+### 2026-05-30T02:42:30+00:00
+Supreme Court Refuses To Review Judgment Mandating TET, Extends Deadline For In-Service Teachers
+https://www.livelaw.in/supreme-court/supreme-court-refuses-to-review-judgment-mandating-tet-extends-deadline-for-in-service-teachers-536233
+
+[Read on Telegram](https://t.me/livelawindia/112009)
+
+---
+### 2026-05-30T02:44:10+00:00
+2026 LiveLaw (SC) 568 | State of UP v Anjuman Ishaat-E-Taleem Trust and others
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-568-state-of-up-v-anjuman-ishaat-e-taleem-trust-and-others-536234
+
+[Read on Telegram](https://t.me/livelawindia/112010)
+
+---
+### 2026-05-30T03:32:20+00:00
+Supreme Court Monthly Digest: April 2026
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-monthly-digest-april-2026-536134
+
+[Read on Telegram](https://t.me/livelawindia/112011)
+
+---
+### 2026-05-30T03:32:30+00:00
+Acquittal On Merits Doesn't Automatically Confer Right To Full Back Wages: Chhattisgarh HC
+https://www.livelaw.in/labour-service/chhattisgarh-high-court-back-wages-dismissal-acquittal-no-work-no-pay-536203
+
+[Read on Telegram](https://t.me/livelawindia/112012)
+
+---
+### 2026-05-30T03:32:40+00:00
+In-Laws' Failure To Take Wife's Side In Marital Dispute Doesn't Constitute Cruelty Under Section 498A IPC: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/in-laws-failure-to-take-wifes-side-in-marital-dispute-doesnt-constitute-cruelty-under-section-498a-ipc-bombay-high-court-536223
+
+[Read on Telegram](https://t.me/livelawindia/112013)
 
 ---
