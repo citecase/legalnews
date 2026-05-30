@@ -1,146 +1,147 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-29T14:20:01+00:00*
+*Last Updated: 2026-05-30T05:02:31+00:00*
 
 ---
 
-### 2026-05-29T14:20:01+00:00
-Participation In Protest No Ground To Deny Bail In PMLA Case: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/participation-in-protest-no-ground-to-deny-bail-in-pmla-case-delhi-high-court-536196
+### 2026-05-30T05:02:31+00:00
+Poverty Can't Defeat Right To Bail; Accused Can't Be Kept In Jail For Want Of Sureties: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-removes-surety-condition-indigent-accused-violates-article21-536225
 
-[Read on Telegram](https://t.me/livelawindia/111994)
-
----
-### 2026-05-29T14:24:21+00:00
-Policy Protecting Near-Retirement Employees Doesn't Apply If Over 1 Year Of Service Remains: Chhattisgarh High Court
-https://www.livelaw.in/labour-service/chhattisgarh-high-court-transfer-policy-over-one-year-service-no-protection-536197
-
-[Read on Telegram](https://t.me/livelawindia/111995)
+[Read on Telegram](https://t.me/livelawindia/112017)
 
 ---
-### 2026-05-29T14:25:21+00:00
-Call For Blogs: Kautilya's Take By Kautilya Society, NUSRL Ranchi
-https://www.livelaw.in/lawschool/call-for-papers/kautilyas-take-kautilya-society-nusrl-ranchi-536199
+### 2026-05-30T05:20:21+00:00
+Permanently Vesting Secular Functions Of Mathadhipati In Govt Officer Denies Concept Of Mahantship; Violates Article 26: Supreme Court
+https://www.livelaw.in/top-stories/permanently-vesting-secular-functions-of-mathadhipati-in-govt-officer-denies-concept-of-mahantship-violates-article-26-supreme-court-536246
 
-[Read on Telegram](https://t.me/livelawindia/111996)
-
----
-### 2026-05-29T14:26:41+00:00
-'Individual Liberty Not Trivial Matter' : Supreme Court Awards Rs 11 Lakh Compensation To Prisoner For 24 Day Illegal Detention
-https://www.livelaw.in/supreme-court/individual-liberty-not-trivial-matter-supreme-court-awards-rs-11-lakh-compensation-to-prisoner-for-24-day-illegal-detention-536200
-
-[Read on Telegram](https://t.me/livelawindia/111997)
+[Read on Telegram](https://t.me/livelawindia/112018)
 
 ---
-### 2026-05-29T14:27:41+00:00
-2026 LiveLaw (SC) 567 | DAUDAYAL Versus THE STATE OF RAJASTHAN & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-567-daudayal-versus-the-state-of-rajasthan-ors-536201
+### 2026-05-30T05:21:41+00:00
+2026 LiveLaw (SC) 569 | Arjun Dass v State of Andhra Pradesh
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-569-arjun-dass-v-state-of-andhra-pradesh-536247
 
-[Read on Telegram](https://t.me/livelawindia/111998)
-
----
-### 2026-05-29T14:31:01+00:00
-LiveLaw Daily | SC On Judicial Delays, Twisha Sharma Probe, NEET Leak & Reliance Cases and more
-https://www.livelaw.in/podcast/livelaw-daily-supreme-court-india-judicial-delays-twisha-sharma-case-cbi-investigation-cockroach-janta-party-neet-paper-leak-national-testing-agency-reliance-vs-sebi-anil-ambani-cobrapost-indian-legal-news-536204
-
-[Read on Telegram](https://t.me/livelawindia/111999)
+[Read on Telegram](https://t.me/livelawindia/112019)
 
 ---
-### 2026-05-29T15:12:51+00:00
-Adarsh Cooperative Society 'Scam': Rajasthan High Court Revokes Default Bail Granted To Co-Accused On Ground Of Incomplete Charge Sheet
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-cancels-default-bail-loan-scam-536206
+### 2026-05-30T05:29:01+00:00
+Revisiting Age, Consent And Criminalisation Under POCSO Act, 2012
+https://www.livelaw.in/articles/revisiting-age-consent-criminalisation-pocso-act2012-536248
 
-[Read on Telegram](https://t.me/livelawindia/112000)
-
----
-### 2026-05-29T15:27:51+00:00
-Calcutta High Court Directs 'Status Quo' Over Demolition Of Alleged Illegal Constructions Across Kolkata
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-status-quo-demolition-alleged-illegal-construction-kolkata-536209
-
-[Read on Telegram](https://t.me/livelawindia/112001)
+[Read on Telegram](https://t.me/livelawindia/112020)
 
 ---
-### 2026-05-29T16:03:41+00:00
-Centre Notifies Appointment Of Three Judicial Officers As Additional Judges Of Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/centre-notifies-appointment-of-three-judicial-officers-as-judges-of-karnataka-high-court-536215
+### 2026-05-30T05:32:41+00:00
+Rajasthan High Court Asks NLU Jodhpur To Inform On Issuance Of Mark-Sheet To Student Alleging Denial Of Gold-Medal During 2025 Convocation
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-nlu-jodhpur-mark-sheet-student-gold-medal-dispute-536221
 
-[Read on Telegram](https://t.me/livelawindia/112002)
-
----
-### 2026-05-29T16:18:41+00:00
-'Disturbing Trend Of Dragging Advocates': Karnataka HC Quashes FIR Against Accused's Lawyer Who Filed RTI Seeking Info On Complainant
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-fir-lawyer-rti-ascertain-complainant-caste-536216
-
-[Read on Telegram](https://t.me/livelawindia/112003)
+[Read on Telegram](https://t.me/livelawindia/112021)
 
 ---
-### 2026-05-29T16:22:21+00:00
-'Bar Is The Mother Of Legal Profession' : Justice JK Maheshwari In Farewell Speech
-https://www.livelaw.in/top-stories/bar-is-the-mother-of-legal-profession-justice-jk-maheshwari-in-farewell-speech-536217
+### 2026-05-30T05:32:51+00:00
+Mere Presence Of Husband's Relatives At Marriage Ceremony Does Not By Itself Prove Instigation, Abetment To Commit Bigamy: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-refuses-acquittal-relatives-bigamy-case-abetment-536236
 
-[Read on Telegram](https://t.me/livelawindia/112004)
-
----
-### 2026-05-29T16:51:25+00:00
-Madras High Court Censures IPS Officer A Arun For Passing 'Reckless' Detention Order Against Realtor, Says He Habitually Passes Such Orders
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-detention-order-against-realtor-arun-ips-censures-536218
-
-[Read on Telegram](https://t.me/livelawindia/112005)
+[Read on Telegram](https://t.me/livelawindia/112022)
 
 ---
-### 2026-05-29T17:12:55+00:00
-Supreme Court Daily Round-Up : May 29, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-may-29-2026-536212
+### 2026-05-30T05:43:01+00:00
+A Flawed Interpretation Of Section 468 Cr.P.C. By The Apex Court In Roma Ahuja's Case And An Equally Flawed Provision In The “Explanation” To Section 514(3) BNSS
+https://www.livelaw.in/articles/supreme-court-flawed-interpretation-roma-ahuja-case-crpc-bnss-536249
 
-[Read on Telegram](https://t.me/livelawindia/112006)
-
----
-### 2026-05-29T17:17:35+00:00
-Punjab & Haryana High Court Refuses Anticipatory Bail To Author Madhu Kishwar In Defamation FIR Over Social Media Video On PM Modi
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-refuses-anticipatory-bail-to-author-madhu-kishwar-in-fir-over-social-media-posts-against-pm-modi-536220
-
-[Read on Telegram](https://t.me/livelawindia/112007)
+[Read on Telegram](https://t.me/livelawindia/112023)
 
 ---
-### 2026-05-30T02:36:50+00:00
-Karnataka High Court Gets Three Additional Judges
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-gets-three-additional-judges-536232
+### 2026-05-30T05:44:21+00:00
+ICA To Hold 4th International Conference On Arbitrating Indo-UK Commercial Disputes In London On June 5; CJI Justice Surya Kant To Inaugurate
+https://www.livelaw.in/news-updates/ica-to-hold-4th-international-conference-on-arbitrating-indo-uk-commercial-disputes-in-london-on-june-5-cji-justice-surya-kant-to-inaugurate-536251
 
-[Read on Telegram](https://t.me/livelawindia/112008)
-
----
-### 2026-05-30T02:42:30+00:00
-Supreme Court Refuses To Review Judgment Mandating TET, Extends Deadline For In-Service Teachers
-https://www.livelaw.in/supreme-court/supreme-court-refuses-to-review-judgment-mandating-tet-extends-deadline-for-in-service-teachers-536233
-
-[Read on Telegram](https://t.me/livelawindia/112009)
+[Read on Telegram](https://t.me/livelawindia/112024)
 
 ---
-### 2026-05-30T02:44:10+00:00
-2026 LiveLaw (SC) 568 | State of UP v Anjuman Ishaat-E-Taleem Trust and others
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-568-state-of-up-v-anjuman-ishaat-e-taleem-trust-and-others-536234
+### 2026-05-30T05:46:01+00:00
+'Uglier Side Of Matrimonial Litigation' : Supreme Court Flags Trend Of Wives Filing False POCSO Cases Against Husbands
+https://www.livelaw.in/top-stories/uglier-side-of-matrimonial-litigation-supreme-court-flags-trend-of-wives-filing-false-pocso-cases-against-husbands-536252
 
-[Read on Telegram](https://t.me/livelawindia/112010)
-
----
-### 2026-05-30T03:32:20+00:00
-Supreme Court Monthly Digest: April 2026
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-monthly-digest-april-2026-536134
-
-[Read on Telegram](https://t.me/livelawindia/112011)
+[Read on Telegram](https://t.me/livelawindia/112025)
 
 ---
-### 2026-05-30T03:32:30+00:00
-Acquittal On Merits Doesn't Automatically Confer Right To Full Back Wages: Chhattisgarh HC
-https://www.livelaw.in/labour-service/chhattisgarh-high-court-back-wages-dismissal-acquittal-no-work-no-pay-536203
+### 2026-05-30T06:03:11+00:00
+Pendency Of Civil Dispute No Ground To Discharge Accused If Allegations Disclose Criminal Offence: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-criminal-prosecution-pendency-civil-dispute-535557
 
-[Read on Telegram](https://t.me/livelawindia/112012)
+[Read on Telegram](https://t.me/livelawindia/112026)
 
 ---
-### 2026-05-30T03:32:40+00:00
-In-Laws' Failure To Take Wife's Side In Marital Dispute Doesn't Constitute Cruelty Under Section 498A IPC: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/in-laws-failure-to-take-wifes-side-in-marital-dispute-doesnt-constitute-cruelty-under-section-498a-ipc-bombay-high-court-536223
+### 2026-05-30T06:32:55+00:00
+Revenue Authorities Can't Decide Title Disputes In Partition Proceedings: Madhya Pradesh High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-land-revenue-code-bhumiswami-title-dispute-tehsildar-revenue-authority-not-authorised-535561
 
-[Read on Telegram](https://t.me/livelawindia/112013)
+[Read on Telegram](https://t.me/livelawindia/112027)
+
+---
+### 2026-05-30T06:34:55+00:00
+#TheLawChallenge
+: A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
+https://www.livelaw.in/top-stories/livelaw-and-qshala-law-trivia-quiz-536257
+
+[Read on Telegram](https://t.me/livelawindia/112028)
+
+---
+### 2026-05-30T07:02:35+00:00
+Kerala High Court Upholds Disability Pension For Army Veteran Discharged Due To Schizophrenia, Faults Unreasoned Medical Board Opinion
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-disability-pension-army-personnel-invalided-out-schizophrenia-536222
+
+[Read on Telegram](https://t.me/livelawindia/112029)
+
+---
+### 2026-05-30T07:32:33+00:00
+'Astonishing Recklessness': Karnataka High Court Orders Probe Against Cop For Charging Husband With Abetment To Suicide Though Wife Was Alive
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-abetment-suicide-case-probe-against-io-536226
+
+[Read on Telegram](https://t.me/livelawindia/112030)
+
+---
+### 2026-05-30T07:33:13+00:00
+Corruption In Judiciary Cannot Be Whistled Away
+https://www.livelaw.in/articles/corruption-judiciary-536256
+
+[Read on Telegram](https://t.me/livelawindia/112031)
+
+---
+### 2026-05-30T07:45:54+00:00
+'Striking Aspect': J&K&L High Court Notes FIR In Arms Recovery Case Preceded Occurrence Of Alleged Offence, Asks IO To Appear
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-registration-of-fir-appears-to-have-preceded-occurrence-of-alleged-offence-court-seeks-explanation-from-investigating-officer-in-arms-recovery-case-536260
+
+[Read on Telegram](https://t.me/livelawindia/112032)
+
+---
+### 2026-05-30T08:30:04+00:00
+Allahabad HC Directs UP Govt To Pay ₹5 Lakh Compensation To Man Arrested & Detained 'Illegally' Despite Stay Order
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-up-govt-5-lakh-compensation-man-arrest-detain-illegally-despite-stay-order-536263
+
+[Read on Telegram](https://t.me/livelawindia/112033)
+
+---
+### 2026-05-30T08:32:34+00:00
+Cashew Corp Scam: Kerala High Court Defers Industries Dept Secretary's Personal Appearance In Contempt Case Till Disposal Of Appeal
+https://www.livelaw.in/high-court/kerala-high-court/cashew-corp-scam-personal-appearance-industries-department-secretary-contempt-case-536227
+
+[Read on Telegram](https://t.me/livelawindia/112034)
+
+---
+### 2026-05-30T08:32:44+00:00
+MRTP Act | Property Tax Exemption Applies To All MIDC Units Till Transfer Of Services To Navi Mumbai Municipal Corp.:  Supreme Court
+https://www.livelaw.in/supreme-court/mrtp-act-property-tax-exemption-applies-to-all-midc-units-till-transfer-of-services-to-navi-mumbai-municipal-corp-supreme-court-536264
+
+[Read on Telegram](https://t.me/livelawindia/112035)
+
+---
+### 2026-05-30T08:33:14+00:00
+'Despicable': Bombay High Laments 'Assault' On Court Receiver During Execution Of Ex-Parte Order Against Counterfeit Products In Haryana
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-court-receiver-assaulted-execution-ex-parte-order-counterfeit-products-536262
+
+[Read on Telegram](https://t.me/livelawindia/112036)
 
 ---
