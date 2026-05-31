@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-30T11:32:54+00:00*
+*Last Updated: 2026-05-30T13:49:35+00:00*
 
 ---
 
-### 2026-05-30T11:32:54+00:00
-Increase In Supreme Court Strength Through Ordinance-A Critique
-https://www.livelaw.in/articles/increase-supreme-court-strength-ordinance-536292
-
-[Read on Telegram](https://t.me/livelawindia/112057)
-
----
-### 2026-05-30T11:33:15+00:00
-MP High Court Flags 'Lack Of Coordination' Between Police, Prosecution; Says If IO Can't Be Served Summons, Status Of Other Witnesses Imaginable
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-police-department-and-prosecution-unable-to-summon-sub-inspector-536230
-
-[Read on Telegram](https://t.me/livelawindia/112058)
-
----
-### 2026-05-30T12:32:44+00:00
-Father Can't Discriminate Between Educational Expenses Of Son And Daughter: Madhya Pradesh High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-maintenance-of-minor-father-discrimination-between-education-expenses-of-son-and-daughter-536231
-
-[Read on Telegram](https://t.me/livelawindia/112059)
-
----
-### 2026-05-30T13:46:55+00:00
-Prashant Bhushan on AI Judges, Future of Judiciary, Godi Media & “Cockroach Janta Party” | LiveLaw
-https://www.livelaw.in/videos/prashant-bhushan-livelaw-indian-judiciary-ai-judges-supreme-court-of-india-future-of-law-legal-system-india-godi-media-lawyers-of-india-judicial-reform-artificial-intelligence-pil-law-interview-law-students-india-activism-cockroach-janta-party-legal-news-indian-judiciary-corruption-in-judiciary-536312
-
-[Read on Telegram](https://t.me/livelawindia/112060)
-
----
 ### 2026-05-30T13:49:35+00:00
 Supreme Court Directs Removal Of Encroachments & Stopping Of Illegal Resorts In Srivilliputhur-Megamalai Tiger Reserve
 https://www.livelaw.in/supreme-court/supreme-court-directs-removal-of-encroachments-stopping-of-illegal-resorts-in-srivilliputhur-megamalai-tiger-reserve-536313
@@ -142,5 +114,33 @@ Lok Adalats Can't Grant Divorce; Have No Adjudicatory Jurisdiction: Allahabad HC
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-lok-adalats-grant-divorce-decrees-adjudicatory-family-court-536341
 
 [Read on Telegram](https://t.me/livelawindia/112076)
+
+---
+### 2026-05-31T09:28:53+00:00
+Deputy General Manager (Legal Litigation) Vacancy At One97 Communications Limited
+https://www.livelaw.in/job-updates/deputy-general-manager-legal-litigation-vacancy-at-one97-communications-limited-536342
+
+[Read on Telegram](https://t.me/livelawindia/112077)
+
+---
+### 2026-05-31T09:30:33+00:00
+Manager (Tax) Vacancy At KPMG India [Gurgaon; Apply Now]
+https://www.livelaw.in/job-updates/manager-tax-vacancy-at-kpmg-india-gurgaon-536343
+
+[Read on Telegram](https://t.me/livelawindia/112078)
+
+---
+### 2026-05-31T09:33:13+00:00
+Power Always Must Be Accompanied With Grace
+https://www.livelaw.in/articles/power-accompanied-grace-536244
+
+[Read on Telegram](https://t.me/livelawindia/112079)
+
+---
+### 2026-05-31T12:28:06+00:00
+Important MCQs Based On Latest Supreme Court Judgments For Law Examination
+https://www.livelaw.in/law-exams/important-mcqs-based-on-latest-supreme-court-judgments-for-law-examination-536344
+
+[Read on Telegram](https://t.me/livelawindia/112080)
 
 ---
