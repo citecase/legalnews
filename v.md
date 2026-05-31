@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-31T04:32:23+00:00*
+*Last Updated: 2026-05-31T09:02:58+00:00*
+
+---
+
+### 2026-05-31T09:02:58+00:00
+Suicides & Starvation Deaths: Supreme Court Directs Bihar, Jharkhand To Clear Dues Of Defunct Corporation Employees After 25-Year-Delay
+https://www.verdictum.in/supreme-court/bihar-state-ardh-sarkari-araj-karamchari-maha-sangh-v-state-of-bihar-2026-insc-607-1615036
+
+[Source Link](https://t.me/verdictumlegalupdates/27308)
+
+---
+
+### 2026-05-31T07:32:37+00:00
+Courts Must Uphold Contractual Interest Rates Unless It Shocks Judicial Conscience; Party Autonomy In Arbitration Sacrosanct: Supreme Court
+https://www.verdictum.in/supreme-court/madhya-pradesh-road-development-corporation-ltd-through-its-managing-director-v-ms-jabalpur-corridor-pvt-ltd-through-its-managing-director-2026-insc-590-1615026
+
+[Source Link](https://t.me/verdictumlegalupdates/27307)
+
+---
+
+### 2026-05-31T06:02:55+00:00
+Online Gaming Platforms Are Suppliers Of Actionable Claims In Betting & Gambling, Not Mere Intermediaries: Supreme Court Upholds 28% GST On Full Stakes
+https://www.verdictum.in/supreme-court/directorate-general-of-goods-and-services-tax-intelligence-hqs-v-gameskraft-technologies-private-limited-2026-insc-595-28-gst-1615025
+
+[Source Link](https://t.me/verdictumlegalupdates/27306)
 
 ---
 
@@ -137,30 +161,6 @@ Legal Expert Vacancy At Advanced Weapons & Equipment India Limited (AWEIL)
 https://www.verdictum.in/job-updates/advanced-weapons-equipment-india-limited-1614934
 
 [Source Link](https://t.me/verdictumlegalupdates/27289)
-
----
-
-### 2026-05-29T15:12:55+00:00
-Stray Dog Not Public Or Personal Property U/S 429 IPC: Calcutta High Court Quashes FIR
-https://www.verdictum.in/calcutta-high-court/emon-roy-v-the-state-of-west-bengal-stray-dog-section-429-ipc-1614933
-
-[Source Link](https://t.me/verdictumlegalupdates/27288)
-
----
-
-### 2026-05-29T14:32:33+00:00
-Law Doesn’t Permit Use Of ‘Unsatisfactory Performance’ As Disguise To Bypass Formal Disciplinary Proceedings: Supreme Court
-https://www.verdictum.in/supreme-court/general-manager-bank-of-baroda-v-ashok-kumar-singh-2026-insc-589-disciplinary-proceedings-1614938
-
-[Source Link](https://t.me/verdictumlegalupdates/27287)
-
----
-
-### 2026-05-29T13:52:11+00:00
-Antilia Bomb Scare Case: Supreme Court Dismisses Ex-Cop Pradeep Sharma's Discharge Plea
-https://www.verdictum.in/supreme-court/ex-cop-pradeep-sharmas-discharge-plea-dismissed-antilia-bomb-scare-1614932
-
-[Source Link](https://t.me/verdictumlegalupdates/27286)
 
 ---
 
