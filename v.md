@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-31T09:02:58+00:00*
+*Last Updated: 2026-05-31T12:32:23+00:00*
+
+---
+
+### 2026-05-31T12:32:23+00:00
+Madras High Court Censures IPS Officer; Quashes Detention Order Passed By Him Against Builder
+https://www.verdictum.in/madras-high-court/varsha-sharma-v-the-additional-chief-secretary-censures-ips-officer-a-arun-1615038
+
+[Source Link](https://t.me/verdictumlegalupdates/27310)
+
+---
+
+### 2026-05-31T10:33:00+00:00
+Magistrate Doesn’t Possess Powers To Modify Bail Conditions Once Granted; Power U/S.439(1)(b) CrPC Expressly Vested In High Court Or Court Of Session: Delhi High Court
+https://www.verdictum.in/delhi-high-court/shabir-momin-v-state-nct-of-delhi-2026dhc4866-magistrate-modify-bail-conditions-1615037
+
+[Source Link](https://t.me/verdictumlegalupdates/27309)
 
 ---
 
@@ -145,22 +161,6 @@ Delhi High Court Directs Digital Authentication Via Aadhaar QR Codes To Curtail 
 https://www.verdictum.in/delhi-high-court/court-on-its-own-motion-v-director-general-of-prisons-govt-of-nct-of-delhi-2026dhc4739-db-via-aadhaar-qr-codes-prisoner-release-1614963
 
 [Source Link](https://t.me/verdictumlegalupdates/27291)
-
----
-
-### 2026-05-30T04:32:35+00:00
-Victims of Heinous Crimes Cannot Be Repeatedly Subjected To Trauma of Cross-Examination: Supreme Court
-https://www.verdictum.in/supreme-court/state-of-tripura-v-panna-ahmed-2026-insc-584-1614958
-
-[Source Link](https://t.me/verdictumlegalupdates/27290)
-
----
-
-### 2026-05-29T16:02:37+00:00
-Legal Expert Vacancy At Advanced Weapons & Equipment India Limited (AWEIL)
-https://www.verdictum.in/job-updates/advanced-weapons-equipment-india-limited-1614934
-
-[Source Link](https://t.me/verdictumlegalupdates/27289)
 
 ---
 
