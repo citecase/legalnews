@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-30T13:49:35+00:00*
+*Last Updated: 2026-05-30T14:32:45+00:00*
 
 ---
 
-### 2026-05-30T13:49:35+00:00
-Supreme Court Directs Removal Of Encroachments & Stopping Of Illegal Resorts In Srivilliputhur-Megamalai Tiger Reserve
-https://www.livelaw.in/supreme-court/supreme-court-directs-removal-of-encroachments-stopping-of-illegal-resorts-in-srivilliputhur-megamalai-tiger-reserve-536313
-
-[Read on Telegram](https://t.me/livelawindia/112061)
-
----
-### 2026-05-30T13:50:55+00:00
-2026 LiveLaw (SC) 573 | A. JOHN KENNEDY AND OTHERS VERSUS STATE OF TAMIL NADU AND OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-573-a-john-kennedy-and-others-versus-state-of-tamil-nadu-and-others-536314
-
-[Read on Telegram](https://t.me/livelawindia/112062)
-
----
 ### 2026-05-30T14:32:45+00:00
 GST Arrests Post Radhika Agarwal V. Union of India: Has Supreme Court Redefined Tax Investigations?
 https://www.livelaw.in/articles/gst-arrests-radhika-agarwal-supreme-court-tax-investigations-536240
@@ -142,5 +128,19 @@ Important MCQs Based On Latest Supreme Court Judgments For Law Examination
 https://www.livelaw.in/law-exams/important-mcqs-based-on-latest-supreme-court-judgments-for-law-examination-536344
 
 [Read on Telegram](https://t.me/livelawindia/112080)
+
+---
+### 2026-05-31T14:32:58+00:00
+Why Attendance In Law Schools Reflects A Civilisational Crisis And Demands Structural Intervention
+https://www.livelaw.in/articles/attendance-law-schools-civilisational-crisis-structural-intervention-536245
+
+[Read on Telegram](https://t.me/livelawindia/112081)
+
+---
+### 2026-05-31T16:22:54+00:00
+Conviction Can't Be Based On Evidence Recorded Prior To Summoning Accused U/S 319 CrPC: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-conviction-evidence-recorded-prior-summoning-accused-319-crpc-536348
+
+[Read on Telegram](https://t.me/livelawindia/112082)
 
 ---
