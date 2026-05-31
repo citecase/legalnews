@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-30T10:32:34+00:00*
+*Last Updated: 2026-05-30T10:34:44+00:00*
 
 ---
 
-### 2026-05-30T10:32:34+00:00
-Govt Employees Can't Be Victimised Through Transfer Or Attachment Orders: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-government-employee-transfer-cannot-be-punitive-general-administration-department-circular-536229
-
-[Read on Telegram](https://t.me/livelawindia/112048)
-
----
-### 2026-05-30T10:32:44+00:00
-Consultant (Techno-Legal) Vacancy At Digital India Corporation
-https://www.livelaw.in/job-updates/consultant-techno-legal-vacancy-at-digital-india-corporation-536288
-
-[Read on Telegram](https://t.me/livelawindia/112049)
-
----
 ### 2026-05-30T10:34:44+00:00
 Project Co-Ordinator Vacancy At District Child Protection Unit, Tiruchirappalli District
 https://www.livelaw.in/job-updates/project-co-ordinator-vacancy-at-district-child-protection-unit-tiruchirappalli-district-536289
@@ -142,5 +128,19 @@ O.7 R.3 CPC | Not Mandatory To Include Defendant's Property In Schedule To Suit 
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-suit-fixation-boundary-defendant-property-schedule-536309
 
 [Read on Telegram](https://t.me/livelawindia/112067)
+
+---
+### 2026-05-31T03:10:38+00:00
+Voluntary Adult Sex Workers Cannot Be 'Rescued' Or Detained Against Their Will : Supreme Court
+https://www.livelaw.in/supreme-court/voluntary-adult-sex-workers-cannot-be-rescued-or-detained-against-their-will-supreme-court-536334
+
+[Read on Telegram](https://t.me/livelawindia/112068)
+
+---
+### 2026-05-31T03:30:59+00:00
+Supreme Court Monthly Criminal Law Digest: April 2026
+https://www.livelaw.in/supreme-court/supreme-court-monthly-criminal-law-digest-april-2026-536336
+
+[Read on Telegram](https://t.me/livelawindia/112069)
 
 ---
