@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-31T12:32:23+00:00*
+*Last Updated: 2026-05-31T15:03:05+00:00*
+
+---
+
+### 2026-05-31T15:03:05+00:00
+Assistant (Enforcement and Legal) Vacancy At WDRA
+https://www.verdictum.in/job-updates/warehousing-development-and-regulatory-authority-1614997
+
+[Source Link](https://t.me/verdictumlegalupdates/27311)
 
 ---
 
@@ -153,14 +161,6 @@ PFUTP Regulations| Fraud Cannot Be Inferred From Every Regulatory Breach; SEBI C
 https://www.verdictum.in/supreme-court/reliance-industries-limited-v-sebi-2026-insc-585-pfutp-fraud-1614966
 
 [Source Link](https://t.me/verdictumlegalupdates/27292)
-
----
-
-### 2026-05-30T05:12:56+00:00
-Delhi High Court Directs Digital Authentication Via Aadhaar QR Codes To Curtail Delays By Jail Superintendents In Prisoner Release Over Bail Bond
-https://www.verdictum.in/delhi-high-court/court-on-its-own-motion-v-director-general-of-prisons-govt-of-nct-of-delhi-2026dhc4739-db-via-aadhaar-qr-codes-prisoner-release-1614963
-
-[Source Link](https://t.me/verdictumlegalupdates/27291)
 
 ---
 
