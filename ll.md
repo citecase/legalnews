@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-30T10:34:44+00:00*
+*Last Updated: 2026-05-30T11:32:54+00:00*
 
 ---
 
-### 2026-05-30T10:34:44+00:00
-Project Co-Ordinator Vacancy At District Child Protection Unit, Tiruchirappalli District
-https://www.livelaw.in/job-updates/project-co-ordinator-vacancy-at-district-child-protection-unit-tiruchirappalli-district-536289
-
-[Read on Telegram](https://t.me/livelawindia/112050)
-
----
-### 2026-05-30T10:36:24+00:00
-Electricity Ombudsman Vacancy At Himachal Pradesh Electricity Regulatory Commission
-https://www.livelaw.in/job-updates/electricity-ombudsman-vacancy-at-himachal-pradesh-electricity-regulatory-commission-536290
-
-[Read on Telegram](https://t.me/livelawindia/112051)
-
----
-### 2026-05-30T10:45:44+00:00
-Consultant (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP [Mumbai; Apply Now]
-https://www.livelaw.in/job-updates/consultant-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-mumbai-536293
-
-[Read on Telegram](https://t.me/livelawindia/112052)
-
----
-### 2026-05-30T10:50:24+00:00
-'Broadcast Fell Short Of Neutrality & Impartiality': NBDSA On Aaj Tak Programme Claiming Taj Mahal Was Once Hindu Temple
-https://www.livelaw.in/news-updates/nbdsa-aaj-tak-taj-mahal-sudhir-choudhary-536294
-
-[Read on Telegram](https://t.me/livelawindia/112053)
-
----
-### 2026-05-30T10:56:44+00:00
-Executive (Risk Management) Vacancy At KPMG India [Gurgaon; Apply Now]
-https://www.livelaw.in/job-updates/executive-risk-management-vacancy-at-kpmg-india-gurgaon-536295
-
-[Read on Telegram](https://t.me/livelawindia/112054)
-
----
-### 2026-05-30T11:02:04+00:00
-Senior (Data Privacy & Ethics) Vacancy At KPMG India [Gurgaon; Apply Now]
-https://www.livelaw.in/job-updates/senior-data-privacy-ethics-vacancy-at-kpmg-india-gurgaon-536297
-
-[Read on Telegram](https://t.me/livelawindia/112055)
-
----
-### 2026-05-30T11:27:14+00:00
-Custodial Death | Lalita Kumari Judgment Doesn't Say Deceased's Kin Can Directly Invoke A.226 Over Failure In Lodging FIR: Gujarat HC
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-rejects-article-226-plea-registration-of-fir-custodial-death-alternative-remedy-under-bnss-536300
-
-[Read on Telegram](https://t.me/livelawindia/112056)
-
----
 ### 2026-05-30T11:32:54+00:00
 Increase In Supreme Court Strength Through Ordinance-A Critique
 https://www.livelaw.in/articles/increase-supreme-court-strength-ordinance-536292
@@ -142,5 +93,54 @@ Supreme Court Monthly Criminal Law Digest: April 2026
 https://www.livelaw.in/supreme-court/supreme-court-monthly-criminal-law-digest-april-2026-536336
 
 [Read on Telegram](https://t.me/livelawindia/112069)
+
+---
+### 2026-05-31T04:32:09+00:00
+Court Culture As A Missing Variable In Judicial Reform
+https://www.livelaw.in/articles/court-culture-missing-variable-judcial-reform-536242
+
+[Read on Telegram](https://t.me/livelawindia/112070)
+
+---
+### 2026-05-31T04:33:09+00:00
+Doctors Consciously Engaged In Private Practice Can't Seek Non-Practicing Allowance Given To Doctors Who Don't: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-pay-difference-medical-officers-npa-536271
+
+[Read on Telegram](https://t.me/livelawindia/112071)
+
+---
+### 2026-05-31T05:36:09+00:00
+Consultant (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP [Bangalore; Apply Now]
+https://www.livelaw.in/job-updates/consultant-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-bangalore-536337
+
+[Read on Telegram](https://t.me/livelawindia/112072)
+
+---
+### 2026-05-31T05:37:09+00:00
+Empanelment Of Advocates At District Legal Service Authority, Jaipur Metropolitan I
+https://www.livelaw.in/job-updates/empanelment-of-advocates-at-district-legal-service-authority-jaipur-metropolitan-i-536338
+
+[Read on Telegram](https://t.me/livelawindia/112073)
+
+---
+### 2026-05-31T05:46:09+00:00
+Legal Manager (Loan Against Property) Vacancy At Kotak Mahindra Bank Limited [Delhi; Apply Now]
+https://www.livelaw.in/job-updates/legal-manager-loan-against-property-vacancy-at-kotak-mahindra-bank-limited-delhi-536339
+
+[Read on Telegram](https://t.me/livelawindia/112074)
+
+---
+### 2026-05-31T05:51:29+00:00
+Team Member (Legal) Vacancy At Cipla Limited [Apply Now]
+https://www.livelaw.in/job-updates/team-member-legal-vacancy-at-cipla-limited-536340
+
+[Read on Telegram](https://t.me/livelawindia/112075)
+
+---
+### 2026-05-31T07:44:33+00:00
+Lok Adalats Can't Grant Divorce; Have No Adjudicatory Jurisdiction: Allahabad HC Slams DLSA For Usurping Family Court Powers
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-lok-adalats-grant-divorce-decrees-adjudicatory-family-court-536341
+
+[Read on Telegram](https://t.me/livelawindia/112076)
 
 ---
