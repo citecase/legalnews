@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-30T15:02:48+00:00*
+*Last Updated: 2026-05-31T04:32:23+00:00*
+
+---
+
+### 2026-05-31T04:32:23+00:00
+Delhi High Court Upholds Acquittal Of Two Alleged IB Informers In 2006 Arms And Explosives Case; Dismisses State Appeal
+https://www.verdictum.in/delhi-high-court/state-of-nct-of-delhi-v-muraif-qamar-2026dhc4847-db-2006-arms-and-explosives-case-1615024
+
+[Source Link](https://t.me/verdictumlegalupdates/27305)
 
 ---
 
@@ -153,14 +161,6 @@ Antilia Bomb Scare Case: Supreme Court Dismisses Ex-Cop Pradeep Sharma's Dischar
 https://www.verdictum.in/supreme-court/ex-cop-pradeep-sharmas-discharge-plea-dismissed-antilia-bomb-scare-1614932
 
 [Source Link](https://t.me/verdictumlegalupdates/27286)
-
----
-
-### 2026-05-29T13:12:30+00:00
-Supreme Court Grants Relief To RIL; Sets Aside SEBI’s Fraud Finding & ₹447 Crore Disgorgement In 2007 RPL Futures Trading Case
-https://www.verdictum.in/supreme-court/reliance-industries-limited-v-the-securities-and-exchange-board-of-india-2026-insc-585-447-crore-disgorgement-2007-rpl-1614931
-
-[Source Link](https://t.me/verdictumlegalupdates/27285)
 
 ---
 
