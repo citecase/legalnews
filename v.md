@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-01T12:03:09+00:00*
+*Last Updated: 2026-06-01T16:02:52+00:00*
+
+---
+
+### 2026-06-01T16:02:52+00:00
+Manager (Legal) Vacancy At J&K Development Finance Corporation Ltd.
+https://www.verdictum.in/job-updates/jk-development-finance-corporation-ltd-1615104
+
+[Source Link](https://t.me/verdictumlegalupdates/27333)
+
+---
+
+### 2026-06-01T15:12:10+00:00
+Customer’s Mere Denial Of Sharing OTP Cannot Automatically Fasten Liability On Bank In Cyber Fraud Cases: Delhi High Court
+https://www.verdictum.in/delhi-high-court/state-bank-of-india-v-hare-ram-singh-anr-2026dhc4833-db-cuber-fraud-1615109
+
+[Source Link](https://t.me/verdictumlegalupdates/27332)
+
+---
+
+### 2026-06-01T14:32:08+00:00
+Loan Recovery Action By Bank Officials Or Creditors By Itself Not Abetment Of Suicide U/S 306 IPC: Bombay High Court
+https://www.verdictum.in/bombay-high-court/amit-padmakar-more-ors-v-state-of-maharashtra-anr-2026bhc-kol3840-db-1615103
+
+[Source Link](https://t.me/verdictumlegalupdates/27331)
+
+---
+
+### 2026-06-01T14:02:36+00:00
+Where "Wards" Is Undefined, Siblings Of Unmarried Battle Casualty Cannot Be Excluded From Defence Reservation: Delhi High Court Upholds Siblings’ MBBS Admission
+https://www.verdictum.in/delhi-high-court/guru-gobind-singh-indraprastha-university-v-kumar-saurabh-2026dhc4832-db-defence-reservation-mbbs-admission-sailor-1615100
+
+[Source Link](https://t.me/verdictumlegalupdates/27330)
+
+---
+
+### 2026-06-01T13:32:35+00:00
+Advocate Seeking Information Under RTI Act To Defend Client Cannot Be Dragged Into Criminal Case: Karnataka High Court Quashes FIR
+https://www.verdictum.in/karnataka-high-court/2026-khc-21597-sri-pradeep-kumar-v-state-1615099
+
+[Source Link](https://t.me/verdictumlegalupdates/27329)
+
+---
+
+### 2026-06-01T13:03:13+00:00
+Supreme Court Issues Notice To Centre On Plea Seeking Compliance With Recommendations Of Disability Commissions
+https://www.verdictum.in/supreme-court/compliance-with-recommendations-of-disability-commissions-notice-issued-1615098
+
+[Source Link](https://t.me/verdictumlegalupdates/27328)
+
+---
+
+### 2026-06-01T12:32:51+00:00
+Supreme Court Questions Legal Basis For Exempting Waqf Institutions From Payment Of Court Fees In Proceedings Before State Tribunals
+https://www.verdictum.in/supreme-court/legal-basis-for-exempting-waqf-institutions-from-payment-of-court-fees-state-tribunals-1615097
+
+[Source Link](https://t.me/verdictumlegalupdates/27327)
 
 ---
 
@@ -105,62 +161,6 @@ Pensioner Cannot Seek Alteration Of Restoration Period While Retaining Benefits 
 https://www.verdictum.in/delhi-high-court/union-of-india-v-sub-trilok-chand-retd-2026dhc-4843-db-pensioner-alteration-of-restoration-period-15-year-rule-1615062
 
 [Source Link](https://t.me/verdictumlegalupdates/27314)
-
----
-
-### 2026-06-01T05:02:21+00:00
-Centre Notifies Elevation Of Four Chief Justices & One Senior Advocate As Judges Of The Supreme Court
-https://www.verdictum.in/supreme-court/four-chief-justices-one-senior-advocate-as-judges-of-the-supreme-court-1615057
-
-[Source Link](https://t.me/verdictumlegalupdates/27313)
-
----
-
-### 2026-06-01T04:33:29+00:00
-No Constitutional Right To Unlimited Monetisation Of Public Spectrum: Delhi High Court Upholds 12-Minute Per Hour Advertisement Cap On Broadcasters
-https://www.verdictum.in/delhi-high-court/9x-media-pvt-ltd-v-telecom-regulatory-authority-of-india-2026dhc4845-db-12-minute-per-hour-advertisement-cap-monetisation-1615051
-
-[Source Link](https://t.me/verdictumlegalupdates/27312)
-
----
-
-### 2026-05-31T15:03:05+00:00
-Assistant (Enforcement and Legal) Vacancy At WDRA
-https://www.verdictum.in/job-updates/warehousing-development-and-regulatory-authority-1614997
-
-[Source Link](https://t.me/verdictumlegalupdates/27311)
-
----
-
-### 2026-05-31T12:32:23+00:00
-Madras High Court Censures IPS Officer; Quashes Detention Order Passed By Him Against Builder
-https://www.verdictum.in/madras-high-court/varsha-sharma-v-the-additional-chief-secretary-censures-ips-officer-a-arun-1615038
-
-[Source Link](https://t.me/verdictumlegalupdates/27310)
-
----
-
-### 2026-05-31T10:33:00+00:00
-Magistrate Doesn’t Possess Powers To Modify Bail Conditions Once Granted; Power U/S.439(1)(b) CrPC Expressly Vested In High Court Or Court Of Session: Delhi High Court
-https://www.verdictum.in/delhi-high-court/shabir-momin-v-state-nct-of-delhi-2026dhc4866-magistrate-modify-bail-conditions-1615037
-
-[Source Link](https://t.me/verdictumlegalupdates/27309)
-
----
-
-### 2026-05-31T09:02:58+00:00
-Suicides & Starvation Deaths: Supreme Court Directs Bihar, Jharkhand To Clear Dues Of Defunct Corporation Employees After 25-Year-Delay
-https://www.verdictum.in/supreme-court/bihar-state-ardh-sarkari-araj-karamchari-maha-sangh-v-state-of-bihar-2026-insc-607-1615036
-
-[Source Link](https://t.me/verdictumlegalupdates/27308)
-
----
-
-### 2026-05-31T07:32:37+00:00
-Courts Must Uphold Contractual Interest Rates Unless It Shocks Judicial Conscience; Party Autonomy In Arbitration Sacrosanct: Supreme Court
-https://www.verdictum.in/supreme-court/madhya-pradesh-road-development-corporation-ltd-through-its-managing-director-v-ms-jabalpur-corridor-pvt-ltd-through-its-managing-director-2026-insc-590-1615026
-
-[Source Link](https://t.me/verdictumlegalupdates/27307)
 
 ---
 
