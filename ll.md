@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-31T09:33:13+00:00*
+*Last Updated: 2026-06-01T07:03:24+00:00*
 
 ---
 
-### 2026-05-31T09:33:13+00:00
-Power Always Must Be Accompanied With Grace
-https://www.livelaw.in/articles/power-accompanied-grace-536244
+### 2026-06-01T07:03:24+00:00
+Madras High Court Weekly Round-Up: May 25 - May 31, 2026
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-may-25-to-may-31-2026-536394
 
-[Read on Telegram](https://t.me/livelawindia/112079)
-
----
-### 2026-05-31T12:28:06+00:00
-Important MCQs Based On Latest Supreme Court Judgments For Law Examination
-https://www.livelaw.in/law-exams/important-mcqs-based-on-latest-supreme-court-judgments-for-law-examination-536344
-
-[Read on Telegram](https://t.me/livelawindia/112080)
+[Read on Telegram](https://t.me/livelawindia/112116)
 
 ---
-### 2026-05-31T14:32:58+00:00
-Why Attendance In Law Schools Reflects A Civilisational Crisis And Demands Structural Intervention
-https://www.livelaw.in/articles/attendance-law-schools-civilisational-crisis-structural-intervention-536245
+### 2026-06-01T07:21:44+00:00
+NEET-UG 2026 : Supreme Court Declines Plea Seeking Computer-Based Test For NEET Re-Exam
+https://www.livelaw.in/top-stories/neet-ug-2026-supreme-court-declines-plea-seeking-computer-based-test-for-neet-re-exam-536407
 
-[Read on Telegram](https://t.me/livelawindia/112081)
-
----
-### 2026-05-31T16:22:54+00:00
-Conviction Can't Be Based On Evidence Recorded Prior To Summoning Accused U/S 319 CrPC: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-conviction-evidence-recorded-prior-summoning-accused-319-crpc-536348
-
-[Read on Telegram](https://t.me/livelawindia/112082)
+[Read on Telegram](https://t.me/livelawindia/112117)
 
 ---
-### 2026-06-01T02:23:03+00:00
-NCLT Reaffirms SWAMIH Fund's Power To Shield Real Estate Projects; Dismisses Insolvency Plea Against Developer
-https://www.livelaw.in/law-firms/litigation/nclt-reaffirms-swamih-funds-power-to-shield-real-estate-projects-dismisses-insolvency-plea-against-developer-536354
+### 2026-06-01T07:32:24+00:00
+Justice Sanjay Karol Also Bars Senior Advocates From Appearing During Partial Court Working Days
+https://www.livelaw.in/top-stories/justice-sanjay-karol-also-bars-senior-advocates-from-appearing-during-partial-court-working-days-536409
 
-[Read on Telegram](https://t.me/livelawindia/112083)
-
----
-### 2026-06-01T02:28:33+00:00
-NCLT Kolkata: Interest Cannot Be Clubbed With Operational Debt To Meet ₹1 Crore Threshold For Initiating CIRP
-https://www.livelaw.in/law-firms/litigation/nclt-kolkata-interest-cannot-be-clubbed-with-operational-debt-to-meet-1-crore-threshold-for-initiating-cirp-536355
-
-[Read on Telegram](https://t.me/livelawindia/112084)
+[Read on Telegram](https://t.me/livelawindia/112118)
 
 ---
-### 2026-06-01T02:28:53+00:00
-Centre Notifies Appointment Of 5 Supreme Court Judges : 4 HC CJs & Sr Adv V Mohana
-https://www.livelaw.in/top-stories/centre-notifies-appointment-of-5-supreme-court-judges-4-hc-cjs-sr-adv-v-mohana-536356
+### 2026-06-01T07:43:24+00:00
+Supreme Court Questions Waqf Institutions' Claim For Court Fee Exemption In Waqf Tribunal
+https://www.livelaw.in/top-stories/supreme-court-questions-waqf-institutions-claim-for-court-fee-exemption-in-waqf-tribunal-536410
 
-[Read on Telegram](https://t.me/livelawindia/112085)
-
----
-### 2026-06-01T02:34:53+00:00
-Calcutta High Court: WBLRTT Cannot Be Bypassed Merely By Alleging Wrongful Assumption Of Jurisdiction Under Thika Tenancy Act
-https://www.livelaw.in/law-firms/litigation/calcutta-high-court-wblrtt-cannot-be-bypassed-merely-by-alleging-wrongful-assumption-of-jurisdiction-under-thika-tenancy-act-536357
-
-[Read on Telegram](https://t.me/livelawindia/112086)
+[Read on Telegram](https://t.me/livelawindia/112119)
 
 ---
-### 2026-06-01T03:30:03+00:00
-Kerala Court Denies Bail To 5 Accused Of Attacking ED Officials After Search At Former CM Pinarayi Vijayan's Residence
-https://www.livelaw.in/news-updates/ed-attack-case-thiruvananthapuram-court-denies-bail-to-five-accused-536359
+### 2026-06-01T07:52:50+00:00
+Dental Student Suicide | 'Medical Colleges Are Cruelly Treating Students': Kerala HC Orally Remarks In College HOD's Anticipatory Bail Plea
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-anticipatory-bail-plea-of-college-hod-in-dental-student-suicide-536411
 
-[Read on Telegram](https://t.me/livelawindia/112087)
-
----
-### 2026-06-01T03:37:43+00:00
-Jammu & Kashmir And Ladakh High Court To Hold Full Court Reference On Chief Justice Arun Palli's Elevation To Supreme Court
-https://www.livelaw.in/high-court/jammu-kashmir/k-high-court-to-hold-full-court-reference-for-chief-justice-arun-palli-on-elevation-to-supreme-court-536360
-
-[Read on Telegram](https://t.me/livelawindia/112088)
+[Read on Telegram](https://t.me/livelawindia/112120)
 
 ---
-### 2026-06-01T03:46:43+00:00
-Employment Of Family Member On Low-Paid Post Can't Be Ground To Deny Compassionate Appointment: Chhattisgarh HC
-https://www.livelaw.in/labour-service/chhattisgarh-high-court-compassionate-appointment-financial-distress-family-employment-536363
+### 2026-06-01T08:05:50+00:00
+CPC | Defendant Cannot Retract Pleadings By Filing Additional Written Statement : Supreme Court
+https://www.livelaw.in/top-stories/cpc-defendant-cannot-retract-pleadings-by-filing-additional-written-statement-supreme-court-536412
 
-[Read on Telegram](https://t.me/livelawindia/112089)
-
----
-### 2026-06-01T03:49:24+00:00
-Ad Hoc Promotion Made In Excess Of Quota, As Stop-Gap Arrangement, Doesn't Confer Any Right To Claim Seniority: Himachal Pradesh High Court
-https://www.livelaw.in/labour-service/himachal-pradesh-high-court-ad-hoc-promotion-seniority-claim-quota-stop-gap-536366
-
-[Read on Telegram](https://t.me/livelawindia/112090)
+[Read on Telegram](https://t.me/livelawindia/112121)
 
 ---
-### 2026-06-01T03:52:43+00:00
-Young Professional (Legal) Vacancy At Indian Institute Of Geomagnetism
-https://www.livelaw.in/job-updates/young-professional-legal-vacancy-at-indian-institute-of-geomagnetism-536367
+### 2026-06-01T08:07:10+00:00
+2026 LiveLaw (SC) 579 | Mondira Ghosh v. Chaitali Ghosh
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-579-mondira-ghosh-v-chaitali-ghosh-536413
 
-[Read on Telegram](https://t.me/livelawindia/112091)
-
----
-### 2026-06-01T03:53:43+00:00
-Project Coordinator And Project Manager Vacancy At Tamil Nadu National Law University (TNNLU)
-https://www.livelaw.in/job-updates/project-coordinator-and-project-manager-vacancy-at-tamil-nadu-national-law-university-536368
-
-[Read on Telegram](https://t.me/livelawindia/112092)
+[Read on Telegram](https://t.me/livelawindia/112122)
 
 ---
-### 2026-06-01T03:55:23+00:00
-Empanelment Of Advocates At District Legal Service Authority, Tonk
-https://www.livelaw.in/job-updates/empanelment-of-advocates-at-district-legal-service-authority-tonk-536369
+### 2026-06-01T08:28:00+00:00
+Kerala High Court Asks ED Not To Act Against CMRL Until Verdict On Appeal Challenging Refusal To Quash PMLA Case, Order On June 5
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-cmrl-ed-probe-536414
 
-[Read on Telegram](https://t.me/livelawindia/112093)
-
----
-### 2026-06-01T03:56:43+00:00
-Civil Judges (Junior Division) At Odisha Judicial Service, 2025
-https://www.livelaw.in/job-updates/civil-judges-junior-division-at-odisha-judicial-service-2025-536370
-
-[Read on Telegram](https://t.me/livelawindia/112094)
+[Read on Telegram](https://t.me/livelawindia/112123)
 
 ---
-### 2026-06-01T03:57:23+00:00
-Supreme Court Quarterly Digest 2026 - Criminal Minor Acts
-https://www.livelaw.in/supreme-court/supreme-court-judgments-quarterly-digest-criminal-law-2026-536371
+### 2026-06-01T08:33:02+00:00
+Karnataka High Court Weekly Round Up: May 25 - May 31, 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-roundup2026-536398
 
-[Read on Telegram](https://t.me/livelawindia/112095)
-
----
-### 2026-06-01T04:20:54+00:00
-Delhi State Consumer Commission Sets Aside Reimbursement Order, Upholds Mediclaim Repudiation Over Fabricated Hospital Records
-https://www.livelaw.in/consumer-cases/delhi-state-consumer-commission-sets-aside-reimbursement-order-upholds-mediclaim-repudiation-over-fabricated-hospital-records-536373
-
-[Read on Telegram](https://t.me/livelawindia/112096)
+[Read on Telegram](https://t.me/livelawindia/112124)
 
 ---
-### 2026-06-01T04:33:13+00:00
-Reproductive Autonomy And State Negligence: A Legal Analysis Of Women Bodily Rights In India
-https://www.livelaw.in/articles/reproductive-autonomy-state-negligence-legal-analysis-women-bodily-rights-india-536361
+### 2026-06-01T09:20:42+00:00
+'Attempt To Stop Police Search For Murder Accused Brother-In-Law' MP High Court Fines Man ₹50K For Filing Fake Plea Over Sister's Detention
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-imposes-cost-for-false-illegal-detention-case-habeas-corpus-536420
 
-[Read on Telegram](https://t.me/livelawindia/112097)
+[Read on Telegram](https://t.me/livelawindia/112125)
 
 ---
-### 2026-06-01T04:45:33+00:00
-Delhi High Court Recognises Right To Be Forgotten, Lays Down Framework For De-Indexing Judicial Records
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-recognises-right-to-be-forgotten-lays-down-framework-for-de-indexing-judicial-records-536376
+### 2026-06-01T09:28:12+00:00
+Courts Have Sometimes Failed Arbitration In India; Judicial Interference Often A Cure Without A Disease: Supreme Court
+https://www.livelaw.in/supreme-court/courts-have-sometimes-failed-arbitration-in-india-judicial-interference-often-a-cure-without-a-disease-supreme-court-536422
 
-[Read on Telegram](https://t.me/livelawindia/112098)
+[Read on Telegram](https://t.me/livelawindia/112126)
+
+---
+### 2026-06-01T09:29:52+00:00
+2026 LiveLaw (SC) 580 | MADHYA PRADESH ROAD DEVELOPMENT CORPORATION LTD v M/S JABALPUR CORRIDOR PVT. LTD.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-580-madhya-pradesh-road-development-corporation-ltd-v-ms-jabalpur-corridor-pvt-ltd-536423
+
+[Read on Telegram](https://t.me/livelawindia/112127)
+
+---
+### 2026-06-01T09:32:32+00:00
+Difference Between Mortgage By Conditional Sale And Sale With An Option To Repurchase
+https://www.livelaw.in/articles/mortgage-conditional-sale-option-repurchase-536364
+
+[Read on Telegram](https://t.me/livelawindia/112128)
+
+---
+### 2026-06-01T10:02:52+00:00
+Meghalaya High Court Legal Services Committee Forms Panel For Handling Death Sentence Reference Matters
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-legal-services-committee-panel-handling-death-sentence-reference-cases-536427
+
+[Read on Telegram](https://t.me/livelawindia/112129)
+
+---
+### 2026-06-01T10:15:52+00:00
+2nd IDIA–CBCL National Essay Writing Competition Announced; Registrations Open Till June 30
+https://www.livelaw.in/lawschool/competitions/2nd-idiacbcl-national-essay-writing-competition-announced-registrations-open-till-june-30-536431
+
+[Read on Telegram](https://t.me/livelawindia/112130)
+
+---
+### 2026-06-01T10:16:02+00:00
+Karnataka High Court Refuses To Quash Arrest Of Photocopy Shop-Owner Accused Of Making Fake Aadhaar Cards For Bangladeshi Nationals
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-quash-arrest-dtp-fake-aadhaar-cards-bangladeshi-nationals-536432
+
+[Read on Telegram](https://t.me/livelawindia/112131)
+
+---
+### 2026-06-01T10:22:42+00:00
+GNLU SRDC ADR Magazine Invites Submissions For Volume VI, Issue III
+https://www.livelaw.in/lawschool/call-for-papers/gnlu-srdc-adr-magazine-invites-submissions-for-volume-vi-issue-iii-536434
+
+[Read on Telegram](https://t.me/livelawindia/112132)
+
+---
+### 2026-06-01T10:24:22+00:00
+Supreme Court Upholds Delhi High Court Ruling That Bar Association Is Not Amenable To Writ Jurisdiction
+https://www.livelaw.in/top-stories/supreme-court-upholds-delhi-high-court-ruling-that-bar-association-is-not-amenable-to-writ-jurisdiction-536436
+
+[Read on Telegram](https://t.me/livelawindia/112133)
+
+---
+### 2026-06-01T11:02:42+00:00
+Kerala High Court Weekly Round-Up: May 25 - May 31, 2026
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-weekly-round-up-may-2026-536441
+
+[Read on Telegram](https://t.me/livelawindia/112134)
+
+---
+### 2026-06-01T11:40:12+00:00
+Gujarat High Court Monthly Digest: May 2026
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-monthly-digest-536445
+
+[Read on Telegram](https://t.me/livelawindia/112135)
 
 ---
