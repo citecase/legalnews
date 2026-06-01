@@ -1,121 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-05-30T14:32:45+00:00*
+*Last Updated: 2026-05-31T09:33:13+00:00*
 
 ---
 
-### 2026-05-30T14:32:45+00:00
-GST Arrests Post Radhika Agarwal V. Union of India: Has Supreme Court Redefined Tax Investigations?
-https://www.livelaw.in/articles/gst-arrests-radhika-agarwal-supreme-court-tax-investigations-536240
-
-[Read on Telegram](https://t.me/livelawindia/112063)
-
----
-### 2026-05-30T15:02:35+00:00
-S.17 CPC | Partition Suit For Different Properties Can Be Filed In Any Jurisdictional Court If Cause Of Action Is Same: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-partition-suit-property-different-states-536306
-
-[Read on Telegram](https://t.me/livelawindia/112064)
-
----
-### 2026-05-30T15:22:35+00:00
-Denial Of Disability Pension To Army Personnel Based On Medical Opinion Unsupported By Full Reasons Invalid: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-disability-pension-medical-opinion-full-reason-536323
-
-[Read on Telegram](https://t.me/livelawindia/112065)
-
----
-### 2026-05-30T15:31:55+00:00
-2026 LiveLaw (SC) 574 |  PRAJWALA Versus UNION OF INDIA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-574-prajwala-versus-union-of-india-536328
-
-[Read on Telegram](https://t.me/livelawindia/112066)
-
----
-### 2026-05-30T15:32:55+00:00
-O.7 R.3 CPC | Not Mandatory To Include Defendant's Property In Schedule To Suit For Determination Of Boundary: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-suit-fixation-boundary-defendant-property-schedule-536309
-
-[Read on Telegram](https://t.me/livelawindia/112067)
-
----
-### 2026-05-31T03:10:38+00:00
-Voluntary Adult Sex Workers Cannot Be 'Rescued' Or Detained Against Their Will : Supreme Court
-https://www.livelaw.in/supreme-court/voluntary-adult-sex-workers-cannot-be-rescued-or-detained-against-their-will-supreme-court-536334
-
-[Read on Telegram](https://t.me/livelawindia/112068)
-
----
-### 2026-05-31T03:30:59+00:00
-Supreme Court Monthly Criminal Law Digest: April 2026
-https://www.livelaw.in/supreme-court/supreme-court-monthly-criminal-law-digest-april-2026-536336
-
-[Read on Telegram](https://t.me/livelawindia/112069)
-
----
-### 2026-05-31T04:32:09+00:00
-Court Culture As A Missing Variable In Judicial Reform
-https://www.livelaw.in/articles/court-culture-missing-variable-judcial-reform-536242
-
-[Read on Telegram](https://t.me/livelawindia/112070)
-
----
-### 2026-05-31T04:33:09+00:00
-Doctors Consciously Engaged In Private Practice Can't Seek Non-Practicing Allowance Given To Doctors Who Don't: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-pay-difference-medical-officers-npa-536271
-
-[Read on Telegram](https://t.me/livelawindia/112071)
-
----
-### 2026-05-31T05:36:09+00:00
-Consultant (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP [Bangalore; Apply Now]
-https://www.livelaw.in/job-updates/consultant-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-bangalore-536337
-
-[Read on Telegram](https://t.me/livelawindia/112072)
-
----
-### 2026-05-31T05:37:09+00:00
-Empanelment Of Advocates At District Legal Service Authority, Jaipur Metropolitan I
-https://www.livelaw.in/job-updates/empanelment-of-advocates-at-district-legal-service-authority-jaipur-metropolitan-i-536338
-
-[Read on Telegram](https://t.me/livelawindia/112073)
-
----
-### 2026-05-31T05:46:09+00:00
-Legal Manager (Loan Against Property) Vacancy At Kotak Mahindra Bank Limited [Delhi; Apply Now]
-https://www.livelaw.in/job-updates/legal-manager-loan-against-property-vacancy-at-kotak-mahindra-bank-limited-delhi-536339
-
-[Read on Telegram](https://t.me/livelawindia/112074)
-
----
-### 2026-05-31T05:51:29+00:00
-Team Member (Legal) Vacancy At Cipla Limited [Apply Now]
-https://www.livelaw.in/job-updates/team-member-legal-vacancy-at-cipla-limited-536340
-
-[Read on Telegram](https://t.me/livelawindia/112075)
-
----
-### 2026-05-31T07:44:33+00:00
-Lok Adalats Can't Grant Divorce; Have No Adjudicatory Jurisdiction: Allahabad HC Slams DLSA For Usurping Family Court Powers
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-lok-adalats-grant-divorce-decrees-adjudicatory-family-court-536341
-
-[Read on Telegram](https://t.me/livelawindia/112076)
-
----
-### 2026-05-31T09:28:53+00:00
-Deputy General Manager (Legal Litigation) Vacancy At One97 Communications Limited
-https://www.livelaw.in/job-updates/deputy-general-manager-legal-litigation-vacancy-at-one97-communications-limited-536342
-
-[Read on Telegram](https://t.me/livelawindia/112077)
-
----
-### 2026-05-31T09:30:33+00:00
-Manager (Tax) Vacancy At KPMG India [Gurgaon; Apply Now]
-https://www.livelaw.in/job-updates/manager-tax-vacancy-at-kpmg-india-gurgaon-536343
-
-[Read on Telegram](https://t.me/livelawindia/112078)
-
----
 ### 2026-05-31T09:33:13+00:00
 Power Always Must Be Accompanied With Grace
 https://www.livelaw.in/articles/power-accompanied-grace-536244
@@ -142,5 +30,117 @@ Conviction Can't Be Based On Evidence Recorded Prior To Summoning Accused U/S 31
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-conviction-evidence-recorded-prior-summoning-accused-319-crpc-536348
 
 [Read on Telegram](https://t.me/livelawindia/112082)
+
+---
+### 2026-06-01T02:23:03+00:00
+NCLT Reaffirms SWAMIH Fund's Power To Shield Real Estate Projects; Dismisses Insolvency Plea Against Developer
+https://www.livelaw.in/law-firms/litigation/nclt-reaffirms-swamih-funds-power-to-shield-real-estate-projects-dismisses-insolvency-plea-against-developer-536354
+
+[Read on Telegram](https://t.me/livelawindia/112083)
+
+---
+### 2026-06-01T02:28:33+00:00
+NCLT Kolkata: Interest Cannot Be Clubbed With Operational Debt To Meet ₹1 Crore Threshold For Initiating CIRP
+https://www.livelaw.in/law-firms/litigation/nclt-kolkata-interest-cannot-be-clubbed-with-operational-debt-to-meet-1-crore-threshold-for-initiating-cirp-536355
+
+[Read on Telegram](https://t.me/livelawindia/112084)
+
+---
+### 2026-06-01T02:28:53+00:00
+Centre Notifies Appointment Of 5 Supreme Court Judges : 4 HC CJs & Sr Adv V Mohana
+https://www.livelaw.in/top-stories/centre-notifies-appointment-of-5-supreme-court-judges-4-hc-cjs-sr-adv-v-mohana-536356
+
+[Read on Telegram](https://t.me/livelawindia/112085)
+
+---
+### 2026-06-01T02:34:53+00:00
+Calcutta High Court: WBLRTT Cannot Be Bypassed Merely By Alleging Wrongful Assumption Of Jurisdiction Under Thika Tenancy Act
+https://www.livelaw.in/law-firms/litigation/calcutta-high-court-wblrtt-cannot-be-bypassed-merely-by-alleging-wrongful-assumption-of-jurisdiction-under-thika-tenancy-act-536357
+
+[Read on Telegram](https://t.me/livelawindia/112086)
+
+---
+### 2026-06-01T03:30:03+00:00
+Kerala Court Denies Bail To 5 Accused Of Attacking ED Officials After Search At Former CM Pinarayi Vijayan's Residence
+https://www.livelaw.in/news-updates/ed-attack-case-thiruvananthapuram-court-denies-bail-to-five-accused-536359
+
+[Read on Telegram](https://t.me/livelawindia/112087)
+
+---
+### 2026-06-01T03:37:43+00:00
+Jammu & Kashmir And Ladakh High Court To Hold Full Court Reference On Chief Justice Arun Palli's Elevation To Supreme Court
+https://www.livelaw.in/high-court/jammu-kashmir/k-high-court-to-hold-full-court-reference-for-chief-justice-arun-palli-on-elevation-to-supreme-court-536360
+
+[Read on Telegram](https://t.me/livelawindia/112088)
+
+---
+### 2026-06-01T03:46:43+00:00
+Employment Of Family Member On Low-Paid Post Can't Be Ground To Deny Compassionate Appointment: Chhattisgarh HC
+https://www.livelaw.in/labour-service/chhattisgarh-high-court-compassionate-appointment-financial-distress-family-employment-536363
+
+[Read on Telegram](https://t.me/livelawindia/112089)
+
+---
+### 2026-06-01T03:49:24+00:00
+Ad Hoc Promotion Made In Excess Of Quota, As Stop-Gap Arrangement, Doesn't Confer Any Right To Claim Seniority: Himachal Pradesh High Court
+https://www.livelaw.in/labour-service/himachal-pradesh-high-court-ad-hoc-promotion-seniority-claim-quota-stop-gap-536366
+
+[Read on Telegram](https://t.me/livelawindia/112090)
+
+---
+### 2026-06-01T03:52:43+00:00
+Young Professional (Legal) Vacancy At Indian Institute Of Geomagnetism
+https://www.livelaw.in/job-updates/young-professional-legal-vacancy-at-indian-institute-of-geomagnetism-536367
+
+[Read on Telegram](https://t.me/livelawindia/112091)
+
+---
+### 2026-06-01T03:53:43+00:00
+Project Coordinator And Project Manager Vacancy At Tamil Nadu National Law University (TNNLU)
+https://www.livelaw.in/job-updates/project-coordinator-and-project-manager-vacancy-at-tamil-nadu-national-law-university-536368
+
+[Read on Telegram](https://t.me/livelawindia/112092)
+
+---
+### 2026-06-01T03:55:23+00:00
+Empanelment Of Advocates At District Legal Service Authority, Tonk
+https://www.livelaw.in/job-updates/empanelment-of-advocates-at-district-legal-service-authority-tonk-536369
+
+[Read on Telegram](https://t.me/livelawindia/112093)
+
+---
+### 2026-06-01T03:56:43+00:00
+Civil Judges (Junior Division) At Odisha Judicial Service, 2025
+https://www.livelaw.in/job-updates/civil-judges-junior-division-at-odisha-judicial-service-2025-536370
+
+[Read on Telegram](https://t.me/livelawindia/112094)
+
+---
+### 2026-06-01T03:57:23+00:00
+Supreme Court Quarterly Digest 2026 - Criminal Minor Acts
+https://www.livelaw.in/supreme-court/supreme-court-judgments-quarterly-digest-criminal-law-2026-536371
+
+[Read on Telegram](https://t.me/livelawindia/112095)
+
+---
+### 2026-06-01T04:20:54+00:00
+Delhi State Consumer Commission Sets Aside Reimbursement Order, Upholds Mediclaim Repudiation Over Fabricated Hospital Records
+https://www.livelaw.in/consumer-cases/delhi-state-consumer-commission-sets-aside-reimbursement-order-upholds-mediclaim-repudiation-over-fabricated-hospital-records-536373
+
+[Read on Telegram](https://t.me/livelawindia/112096)
+
+---
+### 2026-06-01T04:33:13+00:00
+Reproductive Autonomy And State Negligence: A Legal Analysis Of Women Bodily Rights In India
+https://www.livelaw.in/articles/reproductive-autonomy-state-negligence-legal-analysis-women-bodily-rights-india-536361
+
+[Read on Telegram](https://t.me/livelawindia/112097)
+
+---
+### 2026-06-01T04:45:33+00:00
+Delhi High Court Recognises Right To Be Forgotten, Lays Down Framework For De-Indexing Judicial Records
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-recognises-right-to-be-forgotten-lays-down-framework-for-de-indexing-judicial-records-536376
+
+[Read on Telegram](https://t.me/livelawindia/112098)
 
 ---
