@@ -1,6 +1,110 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-01T05:02:21+00:00*
+*Last Updated: 2026-06-01T12:03:09+00:00*
+
+---
+
+### 2026-06-01T12:03:09+00:00
+Self-Claimed Sanyasi Has Become Chronic Litigant: Supreme Court Dismisses Miscellaneous Application Filed In Land Dispute Matter
+https://www.verdictum.in/supreme-court/satya-narayan-shukla-v-the-state-of-uttar-pradesh-2026-insc-583-land-compensation-sanyasi-1615096
+
+[Source Link](https://t.me/verdictumlegalupdates/27326)
+
+---
+
+### 2026-06-01T11:33:08+00:00
+Supreme Court Cancels Anticipatory Bail Of Railway Police Officials Accused Of Extorting Money From Passengers Carrying Gold Bar
+https://www.verdictum.in/supreme-court/the-state-of-maharashtra-v-rahul-datta-bhosale-2026-insc-596-anticipatory-bail-railway-police-1615093
+
+[Source Link](https://t.me/verdictumlegalupdates/27325)
+
+---
+
+### 2026-06-01T11:02:26+00:00
+Arbitration Act 1940| Award Obtained During Suit Pendency Without Court's Leave Unenforceable Against Non-Consenting Party: Supreme Court
+https://www.verdictum.in/supreme-court/ashok-v-padam-chand-2026-insc-591-section-21-reference-post-award-consent-under-section-47-non-consenting-party-1615092
+
+[Source Link](https://t.me/verdictumlegalupdates/27324)
+
+---
+
+### 2026-06-01T10:33:05+00:00
+Supreme Court Refuses To Accept Plea To Conduct NEET-UG Retest In CBT Mode
+https://www.verdictum.in/supreme-court/refuses-to-accept-plea-to-conduct-neet-ug-retest-in-cbt-mode-1615091
+
+[Source Link](https://t.me/verdictumlegalupdates/27323)
+
+---
+
+### 2026-06-01T10:02:53+00:00
+Limitation Period For Probate Revocation Begins From Date Of Knowledge: Supreme Court
+https://www.verdictum.in/supreme-court/dhiraj-dutta-v-anirban-sen-2026-insc-602-article-137-of-limitation-act-probate-1615090
+
+[Source Link](https://t.me/verdictumlegalupdates/27322)
+
+---
+
+### 2026-06-01T09:32:52+00:00
+High Court Can Exercise Supervisory Power In Exceptional Circumstances In Matters Arising Out Of Rent Control Legislation: Supreme Court
+https://www.verdictum.in/supreme-court/state-of-up-v-srivastava-2026-insc-601-high-court-supervisory-power-rent-control-1615089
+
+[Source Link](https://t.me/verdictumlegalupdates/27321)
+
+---
+
+### 2026-06-01T09:02:30+00:00
+Conflating Adult Sex Work With Sex Trafficking Undermines Dignity: Supreme Court Issues Nationwide Guidelines For Rescue, Post Rescue & Rehabilitation of Victims
+https://www.verdictum.in/supreme-court/prajwala-union-v-of-india-2026-insc-609-issues-nationwide-guidelines-for-rescue-victims-adult-sex-work-with-sex-trafficking-1615088
+
+[Source Link](https://t.me/verdictumlegalupdates/27320)
+
+---
+
+### 2026-06-01T08:33:09+00:00
+No Senior Advocate Will Be Allowed In My Court: Supreme Court Says For Urgent Listing Of Matters During Partial Working Days
+https://www.verdictum.in/supreme-court/no-senior-advocate-will-be-allowed-in-my-court-partial-working-days-1615082
+
+[Source Link](https://t.me/verdictumlegalupdates/27319)
+
+---
+
+### 2026-06-01T08:13:08+00:00
+"Deliberate Disregard": Supreme Court Expresses Displeasure Over Jaipur Civic Officials Not Complying With De-sealing Orders; Accepts Their Apologies
+https://www.verdictum.in/supreme-court/bharat-kumar-badlani-v-seema-chaudhary-2026-insc-606-jaipur-civic-officials-de-sealing-1615081
+
+[Source Link](https://t.me/verdictumlegalupdates/27318)
+
+---
+
+### 2026-06-01T07:32:07+00:00
+"Right To Be Forgotten" Facet Of Privacy Under Article 21: Delhi High Court Directs De-Indexing, Delinking And Masking Of Judicial Records
+https://www.verdictum.in/delhi-high-court/laksh-vir-singh-yadav-v-union-of-india-connected-matters-2026dhc4891-1615077
+
+[Source Link](https://t.me/verdictumlegalupdates/27317)
+
+---
+
+### 2026-06-01T06:53:05+00:00
+Mere Seniority Does Not Guarantee Equal Pay If Juniors Receive Lawful Non-Practicing Allowance Benefits: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/2026-rj-jp-21986-state-of-rajasthan-v-dr-dinesh-kumar-sharma-1615071
+
+[Source Link](https://t.me/verdictumlegalupdates/27316)
+
+---
+
+### 2026-06-01T06:12:43+00:00
+Section 42 NDPS Act Safeguard Requires Contemporaneous Recording & Transmission Of Information: Delhi High Court Grants Bail
+https://www.verdictum.in/delhi-high-court/yusuf-aajam-v-state-govt-of-nct-of-delhi-2026dhc4966-section-42-ndps-1615068
+
+[Source Link](https://t.me/verdictumlegalupdates/27315)
+
+---
+
+### 2026-06-01T05:32:22+00:00
+Pensioner Cannot Seek Alteration Of Restoration Period While Retaining Benefits Of Commutation Scheme: Delhi High Court Upholds 15-Year Rule
+https://www.verdictum.in/delhi-high-court/union-of-india-v-sub-trilok-chand-retd-2026dhc-4843-db-pensioner-alteration-of-restoration-period-15-year-rule-1615062
+
+[Source Link](https://t.me/verdictumlegalupdates/27314)
 
 ---
 
@@ -57,110 +161,6 @@ Courts Must Uphold Contractual Interest Rates Unless It Shocks Judicial Conscien
 https://www.verdictum.in/supreme-court/madhya-pradesh-road-development-corporation-ltd-through-its-managing-director-v-ms-jabalpur-corridor-pvt-ltd-through-its-managing-director-2026-insc-590-1615026
 
 [Source Link](https://t.me/verdictumlegalupdates/27307)
-
----
-
-### 2026-05-31T06:02:55+00:00
-Online Gaming Platforms Are Suppliers Of Actionable Claims In Betting & Gambling, Not Mere Intermediaries: Supreme Court Upholds 28% GST On Full Stakes
-https://www.verdictum.in/supreme-court/directorate-general-of-goods-and-services-tax-intelligence-hqs-v-gameskraft-technologies-private-limited-2026-insc-595-28-gst-1615025
-
-[Source Link](https://t.me/verdictumlegalupdates/27306)
-
----
-
-### 2026-05-31T04:32:23+00:00
-Delhi High Court Upholds Acquittal Of Two Alleged IB Informers In 2006 Arms And Explosives Case; Dismisses State Appeal
-https://www.verdictum.in/delhi-high-court/state-of-nct-of-delhi-v-muraif-qamar-2026dhc4847-db-2006-arms-and-explosives-case-1615024
-
-[Source Link](https://t.me/verdictumlegalupdates/27305)
-
----
-
-### 2026-05-30T15:02:48+00:00
-National Commission for Women (NCW) Invites Applications For The Posts Of Assistant Law Officer, Legal Assistant
-https://www.verdictum.in/job-updates/national-commission-for-women-1614995
-
-[Source Link](https://t.me/verdictumlegalupdates/27304)
-
----
-
-### 2026-05-30T14:12:47+00:00
-Bank Cannot Belatedly Initiate Criminal Proceedings After Approving Loan Settlement & Withdrawing DRT Proceedings: Supreme Court Quashes Criminal Case Against Borrowers
-https://www.verdictum.in/supreme-court/vijay-kumar-kela-anr-v-central-bureau-of-investigation-anr-2026-insc-588-1615001
-
-[Source Link](https://t.me/verdictumlegalupdates/27303)
-
----
-
-### 2026-05-30T13:32:45+00:00
-Question Of Paternity Is Directly In Issue; No Other Evidence Could Provide Categorical Answer: Supreme Court Upholds DNA Test Order In A Suit For Declaration
-https://www.verdictum.in/supreme-court/cp-v-ap-2026-insc-600-question-paternity-issue-dna-test-1615000
-
-[Source Link](https://t.me/verdictumlegalupdates/27302)
-
----
-
-### 2026-05-30T12:52:24+00:00
-Judgment On Admission Under Order XII Rule 6 CPC Cannot Be Passed Where Triable Issues Require Adjudication: Supreme Court
-https://www.verdictum.in/supreme-court/pushpa-ors-v-dayawati-ors-2026-insc-603-order-xii-rule-6-cpc-decree-admission-1614994
-
-[Source Link](https://t.me/verdictumlegalupdates/27301)
-
----
-
-### 2026-05-30T12:03:02+00:00
-Supreme Court Orders Time-Bound Clearance Of Encroachments Across Agasthyamalai Landscape; Directs Closure Of Resorts, Deployment Of Forces
-https://www.verdictum.in/supreme-court/a-john-kennedy-ors-v-state-of-tamil-nadu-ors-2026-insc-605-agasthyamalai-landscape-1614990
-
-[Source Link](https://t.me/verdictumlegalupdates/27300)
-
----
-
-### 2026-05-30T11:12:41+00:00
-Substantive Compliance Of Audi Alteram Partem Is Non-Negotiable : Supreme Court Sets Aside Removal Of Mathadhipati Of Tirupathi's Hathiramji Mutt
-https://www.verdictum.in/supreme-court/arjun-dass-v-the-state-of-andhra-pradesh-2026-insc-592-removal-of-mathadhipati-of-tirupathis-hathiramji-mutt-1614989
-
-[Source Link](https://t.me/verdictumlegalupdates/27299)
-
----
-
-### 2026-05-30T10:32:49+00:00
-Conviction Can Be Based On Uncorroborated Approver Testimony If Court Finds It Safe To Rely Upon: Supreme Court
-https://www.verdictum.in/supreme-court/gopi-chand-pappu-v-state-nct-of-delhi-2026-insc-598-approver-testimony-1614988
-
-[Source Link](https://t.me/verdictumlegalupdates/27298)
-
----
-
-### 2026-05-30T09:52:28+00:00
-Betting On Games Of Skill Is A Gambling Enterprise, Not A Protected Trade: Supreme Court Upholds Tamil Nadu & Karnataka Laws Banning Online Rummy & Poker
-https://www.verdictum.in/supreme-court/state-of-tamil-nadu-v-junglee-games-india-pvt-ltd-2026-insc-594-banning-online-rummy-poker-betting-gambling-1614987
-
-[Source Link](https://t.me/verdictumlegalupdates/27297)
-
----
-
-### 2026-05-30T09:02:46+00:00
-TET Qualification Mandatory For All In-Service Teachers: Supreme Court Refuses Plea Seeking Review Of Its Judgment
-https://www.verdictum.in/supreme-court/state-of-up-v-anjuman-ishaat-e-taleem-trust-2026-insc-597-tet-qualification-mandatory-for-all-in-service-teachers-1614983
-
-[Source Link](https://t.me/verdictumlegalupdates/27296)
-
----
-
-### 2026-05-30T08:12:45+00:00
-Non-Release Of Convict After Grant Of Parole And Furnishing Of Sureties Amounts To Illegal Detention: Supreme Court
-https://www.verdictum.in/supreme-court/daudayal-v-state-of-rajasthan-ors-2026-insc-599-permanent-parole-convict-1614982
-
-[Source Link](https://t.me/verdictumlegalupdates/27295)
-
----
-
-### 2026-05-30T07:33:01+00:00
-Advocates Must Not Advise Filing Vexatious "Matrimonial Bouquet" And Frivolous POCSO Cases To Secure Settlements: Supreme Court
-https://www.verdictum.in/supreme-court/ishwar-chand-sharma-ors-v-state-of-uttar-pradesh-another-2026-insc-587-1614977
-
-[Source Link](https://t.me/verdictumlegalupdates/27294)
 
 ---
 
