@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-05-31T15:03:05+00:00*
+*Last Updated: 2026-06-01T05:02:21+00:00*
+
+---
+
+### 2026-06-01T05:02:21+00:00
+Centre Notifies Elevation Of Four Chief Justices & One Senior Advocate As Judges Of The Supreme Court
+https://www.verdictum.in/supreme-court/four-chief-justices-one-senior-advocate-as-judges-of-the-supreme-court-1615057
+
+[Source Link](https://t.me/verdictumlegalupdates/27313)
+
+---
+
+### 2026-06-01T04:33:29+00:00
+No Constitutional Right To Unlimited Monetisation Of Public Spectrum: Delhi High Court Upholds 12-Minute Per Hour Advertisement Cap On Broadcasters
+https://www.verdictum.in/delhi-high-court/9x-media-pvt-ltd-v-telecom-regulatory-authority-of-india-2026dhc4845-db-12-minute-per-hour-advertisement-cap-monetisation-1615051
+
+[Source Link](https://t.me/verdictumlegalupdates/27312)
 
 ---
 
@@ -145,22 +161,6 @@ Advocates Must Not Advise Filing Vexatious "Matrimonial Bouquet" And Frivolous P
 https://www.verdictum.in/supreme-court/ishwar-chand-sharma-ors-v-state-of-uttar-pradesh-another-2026-insc-587-1614977
 
 [Source Link](https://t.me/verdictumlegalupdates/27294)
-
----
-
-### 2026-05-30T06:52:59+00:00
-Reflects Disturbing Reality Of Society: Delhi High Court Dismisses Bail Application Of Mother-In-Law In Dowry Death Case
-https://www.verdictum.in/delhi-high-court/ayodhya-devi-alias-jyoti-v-state-govt-of-nct-of-delhi-2026dhc4705-unlawful-demand-dowry-1614968
-
-[Source Link](https://t.me/verdictumlegalupdates/27293)
-
----
-
-### 2026-05-30T06:02:18+00:00
-PFUTP Regulations| Fraud Cannot Be Inferred From Every Regulatory Breach; SEBI Cannot Exercise “Unfettered Powers” To Decide Fraud: Supreme Court
-https://www.verdictum.in/supreme-court/reliance-industries-limited-v-sebi-2026-insc-585-pfutp-fraud-1614966
-
-[Source Link](https://t.me/verdictumlegalupdates/27292)
 
 ---
 
