@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-01T16:02:52+00:00*
+*Last Updated: 2026-06-02T05:03:01+00:00*
+
+---
+
+### 2026-06-02T05:03:01+00:00
+Weekly Overview| Supreme Court Judgments: May 25 – May 29, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-may-25-may-29-2026-1615130
+
+[Source Link](https://t.me/verdictumlegalupdates/27335)
+
+---
+
+### 2026-06-02T04:32:49+00:00
+Divorce Related Matters Cannot Be Referred To Lok Adalat: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/a-v-state-of-up-2026ahc-lko31501-db-divorce-lok-adalat-dlsa-regular-courts-1615110
+
+[Source Link](https://t.me/verdictumlegalupdates/27334)
 
 ---
 
@@ -145,22 +161,6 @@ Mere Seniority Does Not Guarantee Equal Pay If Juniors Receive Lawful Non-Practi
 https://www.verdictum.in/rajasthan-high-court/2026-rj-jp-21986-state-of-rajasthan-v-dr-dinesh-kumar-sharma-1615071
 
 [Source Link](https://t.me/verdictumlegalupdates/27316)
-
----
-
-### 2026-06-01T06:12:43+00:00
-Section 42 NDPS Act Safeguard Requires Contemporaneous Recording & Transmission Of Information: Delhi High Court Grants Bail
-https://www.verdictum.in/delhi-high-court/yusuf-aajam-v-state-govt-of-nct-of-delhi-2026dhc4966-section-42-ndps-1615068
-
-[Source Link](https://t.me/verdictumlegalupdates/27315)
-
----
-
-### 2026-06-01T05:32:22+00:00
-Pensioner Cannot Seek Alteration Of Restoration Period While Retaining Benefits Of Commutation Scheme: Delhi High Court Upholds 15-Year Rule
-https://www.verdictum.in/delhi-high-court/union-of-india-v-sub-trilok-chand-retd-2026dhc-4843-db-pensioner-alteration-of-restoration-period-15-year-rule-1615062
-
-[Source Link](https://t.me/verdictumlegalupdates/27314)
 
 ---
 
