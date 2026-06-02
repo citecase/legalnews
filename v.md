@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-02T10:33:06+00:00*
+*Last Updated: 2026-06-02T16:02:56+00:00*
+
+---
+
+### 2026-06-02T16:02:56+00:00
+Young Professional Vacancy At Indian National Space Promotion and Authorization Centre (IN-SPACe)
+https://www.verdictum.in/job-updates/indian-national-space-promotion-and-authorization-centre-1615167
+
+[Source Link](https://t.me/verdictumlegalupdates/27355)
+
+---
+
+### 2026-06-02T15:32:54+00:00
+Applying Inflation Factor Of 1.5 Over Parent's Income Is Not Double Benefit: Delhi High Court Enhances Motor Accident Compensation
+https://www.verdictum.in/delhi-high-court/pravesh-kumar-v-delhi-jal-board-2026dhc4832-db-applying-inflation-factor-of-15-over-parents-income-died-after-falling-in-open-pit-1615179
+
+[Source Link](https://t.me/verdictumlegalupdates/27354)
+
+---
+
+### 2026-06-02T15:02:53+00:00
+Limitation For Application U/s.34 Of Arbitration Act To Be Reckoned From Date On Which Request U/s.33 Is Disposed Of: Supreme Court
+https://www.verdictum.in/supreme-court/national-highway-authority-of-india-v-t-younis-2026-insc-616-limitation-arbitration-act-1615178
+
+[Source Link](https://t.me/verdictumlegalupdates/27353)
+
+---
+
+### 2026-06-02T14:32:31+00:00
+1-Yr-Waiting Period For Filing Divorce Petition U/S.29 Of Special Marriage Act Can Be Waived Off Where There Is Exceptional Hardship: Delhi High Court
+https://www.verdictum.in/delhi-high-court/ab-v-cd-2026dhc4767-db-divorce-petition-special-marriage-act-exceptional-hardship-1615169
+
+[Source Link](https://t.me/verdictumlegalupdates/27352)
+
+---
+
+### 2026-06-02T14:02:30+00:00
+Sometimes More Than 800 Cases Are Listed Every Day Before Judges; Parties Can’t Openly Defy Operative Directions: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/radhey-shyam-yadav-v-sri-ashok-nath-tiwari-the-district-inspector-of-schools-contempt-application-1615166
+
+[Source Link](https://t.me/verdictumlegalupdates/27351)
+
+---
+
+### 2026-06-02T13:33:11+00:00
+Oral Or Unwritten Tenancy Not Excluded From UP Tenancy Act, 2021; Rent Authority Has Jurisdiction: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/akhilesh-kumar-v-sanjay-sahgal-2026ahc116349-oral-or-unwritten-tenancy-up-tenancy-act-2021-1615165
+
+[Source Link](https://t.me/verdictumlegalupdates/27350)
+
+---
+
+### 2026-06-02T13:02:54+00:00
+LIC Employees Legally Bound To Perform Census Duties, Requisition Of Staff From Commercial Establishments Valid: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/2026ahc12327-north-central-zone-v-union-of-india-1615164
+
+[Source Link](https://t.me/verdictumlegalupdates/27349)
+
+---
+
+### 2026-06-02T12:32:32+00:00
+Delhi High Court Directs SBI To Reconsider Promotion Policy for Visually Impaired Officers, Seek Practical Accommodation Measures
+https://www.verdictum.in/delhi-high-court/visually-impaired-bank-employees-welfare-association-v-state-bank-of-india-2026dhc4838-db-sbi-reconsider-promotion-policy-for-visually-impaired-officers-1615162
+
+[Source Link](https://t.me/verdictumlegalupdates/27348)
+
+---
+
+### 2026-06-02T11:42:50+00:00
+Madras High Court Quashes Criminal Case Against RSS Members Booked For 100th Year Vijayadasami Celebration Without Permission
+https://www.verdictum.in/madras-high-court/v-jayapal-v-the-state-crl-op-no-10849-of-2026-rss-members-booked-on-vijayadasami-during-100-year-celebration-1615159
+
+[Source Link](https://t.me/verdictumlegalupdates/27347)
+
+---
+
+### 2026-06-02T11:09:07+00:00
+Extent Of Burn Injuries Not Determinative Of Reliability Of Dying Declaration If Declarant Was Conscious And Mentally Fit: Madras High Court
+https://www.verdictum.in/madras-high-court/m-vigneshwaran-v-the-state-2026mhc1796-dying-declaration-fitness-injuries-1615158
+
+[Source Link](https://t.me/verdictumlegalupdates/27346)
 
 ---
 
@@ -81,86 +161,6 @@ Evidence Recorded In Absence Of Accused For Summoning Him U/s. 319 CrPC Can’t 
 https://www.verdictum.in/allahabad-high-court/pramod-kumar-singh-alias-guddu-singh-v-state-of-up-2026ahc-lko37345-db-evidence-1615131
 
 [Source Link](https://t.me/verdictumlegalupdates/27336)
-
----
-
-### 2026-06-02T05:03:01+00:00
-Weekly Overview| Supreme Court Judgments: May 25 – May 29, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-may-25-may-29-2026-1615130
-
-[Source Link](https://t.me/verdictumlegalupdates/27335)
-
----
-
-### 2026-06-02T04:32:49+00:00
-Divorce Related Matters Cannot Be Referred To Lok Adalat: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/a-v-state-of-up-2026ahc-lko31501-db-divorce-lok-adalat-dlsa-regular-courts-1615110
-
-[Source Link](https://t.me/verdictumlegalupdates/27334)
-
----
-
-### 2026-06-01T16:02:52+00:00
-Manager (Legal) Vacancy At J&K Development Finance Corporation Ltd.
-https://www.verdictum.in/job-updates/jk-development-finance-corporation-ltd-1615104
-
-[Source Link](https://t.me/verdictumlegalupdates/27333)
-
----
-
-### 2026-06-01T15:12:10+00:00
-Customer’s Mere Denial Of Sharing OTP Cannot Automatically Fasten Liability On Bank In Cyber Fraud Cases: Delhi High Court
-https://www.verdictum.in/delhi-high-court/state-bank-of-india-v-hare-ram-singh-anr-2026dhc4833-db-cuber-fraud-1615109
-
-[Source Link](https://t.me/verdictumlegalupdates/27332)
-
----
-
-### 2026-06-01T14:32:08+00:00
-Loan Recovery Action By Bank Officials Or Creditors By Itself Not Abetment Of Suicide U/S 306 IPC: Bombay High Court
-https://www.verdictum.in/bombay-high-court/amit-padmakar-more-ors-v-state-of-maharashtra-anr-2026bhc-kol3840-db-1615103
-
-[Source Link](https://t.me/verdictumlegalupdates/27331)
-
----
-
-### 2026-06-01T14:02:36+00:00
-Where "Wards" Is Undefined, Siblings Of Unmarried Battle Casualty Cannot Be Excluded From Defence Reservation: Delhi High Court Upholds Siblings’ MBBS Admission
-https://www.verdictum.in/delhi-high-court/guru-gobind-singh-indraprastha-university-v-kumar-saurabh-2026dhc4832-db-defence-reservation-mbbs-admission-sailor-1615100
-
-[Source Link](https://t.me/verdictumlegalupdates/27330)
-
----
-
-### 2026-06-01T13:32:35+00:00
-Advocate Seeking Information Under RTI Act To Defend Client Cannot Be Dragged Into Criminal Case: Karnataka High Court Quashes FIR
-https://www.verdictum.in/karnataka-high-court/2026-khc-21597-sri-pradeep-kumar-v-state-1615099
-
-[Source Link](https://t.me/verdictumlegalupdates/27329)
-
----
-
-### 2026-06-01T13:03:13+00:00
-Supreme Court Issues Notice To Centre On Plea Seeking Compliance With Recommendations Of Disability Commissions
-https://www.verdictum.in/supreme-court/compliance-with-recommendations-of-disability-commissions-notice-issued-1615098
-
-[Source Link](https://t.me/verdictumlegalupdates/27328)
-
----
-
-### 2026-06-01T12:32:51+00:00
-Supreme Court Questions Legal Basis For Exempting Waqf Institutions From Payment Of Court Fees In Proceedings Before State Tribunals
-https://www.verdictum.in/supreme-court/legal-basis-for-exempting-waqf-institutions-from-payment-of-court-fees-state-tribunals-1615097
-
-[Source Link](https://t.me/verdictumlegalupdates/27327)
-
----
-
-### 2026-06-01T12:03:09+00:00
-Self-Claimed Sanyasi Has Become Chronic Litigant: Supreme Court Dismisses Miscellaneous Application Filed In Land Dispute Matter
-https://www.verdictum.in/supreme-court/satya-narayan-shukla-v-the-state-of-uttar-pradesh-2026-insc-583-land-compensation-sanyasi-1615096
-
-[Source Link](https://t.me/verdictumlegalupdates/27326)
 
 ---
 
