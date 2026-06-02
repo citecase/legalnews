@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-02T11:38:08+00:00*
+*Last Updated: 2026-06-02T12:26:04+00:00*
 
 ---
 
-### 2026-06-02T11:38:08+00:00
-Approach Karnataka HC: Allahabad HC Refuses To Entertain BJP Worker's PIL Seeking Probe Against 'Cockroach Janta Party'
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-bjp-worker-pil-probe-cockroach-janta-party-abhijit-dipke-536574
-
-[Read on Telegram](https://t.me/livelawindia/112211)
-
----
-### 2026-06-02T11:52:08+00:00
-“Ordinary Citizen Not Supposed To Know Full Form Of BNSS”: J&KL High Court Quashes Preventive Detention Order
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-ordinary-citizen-not-supposed-to-know-full-form-of-bnss-court-quashes-preventive-detention-order-using-abbreviation-without-explaining-meaning-536577
-
-[Read on Telegram](https://t.me/livelawindia/112212)
-
----
-### 2026-06-02T12:12:08+00:00
-Accused Entitled To Default Bail If Final Report E-Filed After 5 PM On Last Day Of Prescribed Statutory Period: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-statutory-bail-final-report-e-filing-536511
-
-[Read on Telegram](https://t.me/livelawindia/112213)
-
----
 ### 2026-06-02T12:26:04+00:00
 Prevention Of Corruption Act |  Public Servant Asking Bribe For Subordinates Liable; Demand Need Not Be Direct : Supreme Court
 https://www.livelaw.in/top-stories/prevention-of-corruption-act-public-servant-asking-bribe-for-subordinates-liable-demand-need-not-be-direct-supreme-court-536589
@@ -142,5 +121,26 @@ Court Can't Take Cognizance Of Offence Under Water Act Without Valid Authorizati
 https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-criminal-court-cognizance-valid-authorization-section49-water-act-536616
 
 [Read on Telegram](https://t.me/livelawindia/112230)
+
+---
+### 2026-06-02T16:48:36+00:00
+Prashanto Chandra Sen & Haripriya Padmanabhan Appointed Tamil Nadu Additional Advocate Generals For Supreme Court
+https://www.livelaw.in/news-updates/prashanto-chandra-sen-haripriya-padmanabhan-appointed-tamil-nadu-additional-advocate-generals-for-supreme-court-536617
+
+[Read on Telegram](https://t.me/livelawindia/112231)
+
+---
+### 2026-06-02T17:07:36+00:00
+Supreme Court Daily Round-Up : June 2, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-june-2-2026-536615
+
+[Read on Telegram](https://t.me/livelawindia/112232)
+
+---
+### 2026-06-02T18:57:46+00:00
+LiveLaw Student Subscription, 3-12 June 2026 | Apply Now
+https://www.livelaw.in/top-stories/livelaw-student-subscription-3-12-june-2026-apply-now-536618
+
+[Read on Telegram](https://t.me/livelawindia/112233)
 
 ---
