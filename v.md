@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-02T05:03:01+00:00*
+*Last Updated: 2026-06-02T10:33:06+00:00*
+
+---
+
+### 2026-06-02T10:33:06+00:00
+Madras High Court Initiates Suo Motu Proceedings To Guard Coastal Environment, Quashes NGT Order On Shrimp Hatcheries For Lack Of Jurisdiction
+https://www.verdictum.in/madras-high-court/2026-mhc-1814-ms-golden-marine-harvest-v-national-green-tribunal-1615157
+
+[Source Link](https://t.me/verdictumlegalupdates/27345)
+
+---
+
+### 2026-06-02T10:02:34+00:00
+Defamatory Complaints Made By Spouse To Employer Or Superiors Can Constitute Mental Cruelty To Grant Divorce: Madras High Court
+https://www.verdictum.in/madras-high-court/v-v-a-2026mhc1807-divorce-mentacruelty-hindu-marriage-act-defamation-army-officer-1615156
+
+[Source Link](https://t.me/verdictumlegalupdates/27344)
+
+---
+
+### 2026-06-02T09:32:33+00:00
+"Bail Is The Rule And Jail Is An Exception" Is Not Absolute Rule, Statutory Restrictions Must Be Kept In Mind: Supreme Court
+https://www.verdictum.in/supreme-court/2026-insc-611-sheikh-mehmood-v-union-territory-of-jammu-kashmir-1615152
+
+[Source Link](https://t.me/verdictumlegalupdates/27343)
+
+---
+
+### 2026-06-02T09:02:31+00:00
+Madras High Court Halts Construction Of Church On Aided School Land
+https://www.verdictum.in/madras-high-court/s-jaishankar-v-state-wp-no-31584-of-2024-1615153
+
+[Source Link](https://t.me/verdictumlegalupdates/27342)
+
+---
+
+### 2026-06-02T08:33:10+00:00
+Merely Not Talking To Wife For Some Days Not Sufficient To Construe Act Of Cruelty: Supreme Court Sets Aside Conviction U/S.498A IPC
+https://www.verdictum.in/supreme-court/jayesh-kanna-v-the-assistant-commissioner-law-and-order-west-2026-insc-615-section-498a-ipc-1615150
+
+[Source Link](https://t.me/verdictumlegalupdates/27341)
+
+---
+
+### 2026-06-02T08:02:48+00:00
+Centre Notifies Appointment Of Acting Chief Justices To Four High Courts Following Recent Supreme Court Elevations
+https://www.verdictum.in/court-updates/high-courts/appointment-of-acting-chief-justices-to-four-high-courts-1615148
+
+[Source Link](https://t.me/verdictumlegalupdates/27340)
+
+---
+
+### 2026-06-02T07:35:47+00:00
+Official Secrets Act Cannot Deprive Accused To Documents Forming Part Of Chargesheet: Supreme Court Directs Supply Of Classified Papers To Major General V.K. Singh
+https://www.verdictum.in/supreme-court/vk-singh-v-central-bureau-of-investigation-2026-insc-614-official-secrets-act-raw-207-crpc-chargesheet-1615142
+
+[Source Link](https://t.me/verdictumlegalupdates/27339)
+
+---
+
+### 2026-06-02T06:52:25+00:00
+Long Serving Temporary Status Casual Labourers Entitled To Pension Even Without Regularisation: Supreme Court Grants Relief To Former Postal Dept. Employees
+https://www.verdictum.in/supreme-court/bhikhani-devi-etc-v-union-of-india-ors-2026-insc-612-pension-casual-labourers-1615135
+
+[Source Link](https://t.me/verdictumlegalupdates/27338)
+
+---
+
+### 2026-06-02T06:12:44+00:00
+Trial Courts Should Direct Filing Of Income Affidavits In Maintenance Cases, Draw Adverse Inference Against Defaulting Party: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/2026ahc123920-hhhh-v-state-of-up-1615133
+
+[Source Link](https://t.me/verdictumlegalupdates/27337)
+
+---
+
+### 2026-06-02T05:32:42+00:00
+Evidence Recorded In Absence Of Accused For Summoning Him U/s. 319 CrPC Can’t Form Basis Of His Conviction: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/pramod-kumar-singh-alias-guddu-singh-v-state-of-up-2026ahc-lko37345-db-evidence-1615131
+
+[Source Link](https://t.me/verdictumlegalupdates/27336)
 
 ---
 
@@ -81,86 +161,6 @@ Self-Claimed Sanyasi Has Become Chronic Litigant: Supreme Court Dismisses Miscel
 https://www.verdictum.in/supreme-court/satya-narayan-shukla-v-the-state-of-uttar-pradesh-2026-insc-583-land-compensation-sanyasi-1615096
 
 [Source Link](https://t.me/verdictumlegalupdates/27326)
-
----
-
-### 2026-06-01T11:33:08+00:00
-Supreme Court Cancels Anticipatory Bail Of Railway Police Officials Accused Of Extorting Money From Passengers Carrying Gold Bar
-https://www.verdictum.in/supreme-court/the-state-of-maharashtra-v-rahul-datta-bhosale-2026-insc-596-anticipatory-bail-railway-police-1615093
-
-[Source Link](https://t.me/verdictumlegalupdates/27325)
-
----
-
-### 2026-06-01T11:02:26+00:00
-Arbitration Act 1940| Award Obtained During Suit Pendency Without Court's Leave Unenforceable Against Non-Consenting Party: Supreme Court
-https://www.verdictum.in/supreme-court/ashok-v-padam-chand-2026-insc-591-section-21-reference-post-award-consent-under-section-47-non-consenting-party-1615092
-
-[Source Link](https://t.me/verdictumlegalupdates/27324)
-
----
-
-### 2026-06-01T10:33:05+00:00
-Supreme Court Refuses To Accept Plea To Conduct NEET-UG Retest In CBT Mode
-https://www.verdictum.in/supreme-court/refuses-to-accept-plea-to-conduct-neet-ug-retest-in-cbt-mode-1615091
-
-[Source Link](https://t.me/verdictumlegalupdates/27323)
-
----
-
-### 2026-06-01T10:02:53+00:00
-Limitation Period For Probate Revocation Begins From Date Of Knowledge: Supreme Court
-https://www.verdictum.in/supreme-court/dhiraj-dutta-v-anirban-sen-2026-insc-602-article-137-of-limitation-act-probate-1615090
-
-[Source Link](https://t.me/verdictumlegalupdates/27322)
-
----
-
-### 2026-06-01T09:32:52+00:00
-High Court Can Exercise Supervisory Power In Exceptional Circumstances In Matters Arising Out Of Rent Control Legislation: Supreme Court
-https://www.verdictum.in/supreme-court/state-of-up-v-srivastava-2026-insc-601-high-court-supervisory-power-rent-control-1615089
-
-[Source Link](https://t.me/verdictumlegalupdates/27321)
-
----
-
-### 2026-06-01T09:02:30+00:00
-Conflating Adult Sex Work With Sex Trafficking Undermines Dignity: Supreme Court Issues Nationwide Guidelines For Rescue, Post Rescue & Rehabilitation of Victims
-https://www.verdictum.in/supreme-court/prajwala-union-v-of-india-2026-insc-609-issues-nationwide-guidelines-for-rescue-victims-adult-sex-work-with-sex-trafficking-1615088
-
-[Source Link](https://t.me/verdictumlegalupdates/27320)
-
----
-
-### 2026-06-01T08:33:09+00:00
-No Senior Advocate Will Be Allowed In My Court: Supreme Court Says For Urgent Listing Of Matters During Partial Working Days
-https://www.verdictum.in/supreme-court/no-senior-advocate-will-be-allowed-in-my-court-partial-working-days-1615082
-
-[Source Link](https://t.me/verdictumlegalupdates/27319)
-
----
-
-### 2026-06-01T08:13:08+00:00
-"Deliberate Disregard": Supreme Court Expresses Displeasure Over Jaipur Civic Officials Not Complying With De-sealing Orders; Accepts Their Apologies
-https://www.verdictum.in/supreme-court/bharat-kumar-badlani-v-seema-chaudhary-2026-insc-606-jaipur-civic-officials-de-sealing-1615081
-
-[Source Link](https://t.me/verdictumlegalupdates/27318)
-
----
-
-### 2026-06-01T07:32:07+00:00
-"Right To Be Forgotten" Facet Of Privacy Under Article 21: Delhi High Court Directs De-Indexing, Delinking And Masking Of Judicial Records
-https://www.verdictum.in/delhi-high-court/laksh-vir-singh-yadav-v-union-of-india-connected-matters-2026dhc4891-1615077
-
-[Source Link](https://t.me/verdictumlegalupdates/27317)
-
----
-
-### 2026-06-01T06:53:05+00:00
-Mere Seniority Does Not Guarantee Equal Pay If Juniors Receive Lawful Non-Practicing Allowance Benefits: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/2026-rj-jp-21986-state-of-rajasthan-v-dr-dinesh-kumar-sharma-1615071
-
-[Source Link](https://t.me/verdictumlegalupdates/27316)
 
 ---
 
