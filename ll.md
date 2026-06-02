@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-01T13:32:14+00:00*
+*Last Updated: 2026-06-01T14:04:44+00:00*
 
 ---
 
-### 2026-06-01T13:32:14+00:00
-'Time For Women Lawyers To Break Every Glass Ceiling': J&K&L Chief Justice Arun Palli In Farewell Address Ahead Of SC Elevation
-https://www.livelaw.in/high-court/jammu-kashmir/spread-your-wings-and-take-flight-justice-arun-palli-urges-women-lawyers-to-break-every-glass-ceiling-in-farewell-address-ahead-of-supreme-court-elevation-536458
-
-[Read on Telegram](https://t.me/livelawindia/112143)
-
----
-### 2026-06-01T13:32:54+00:00
-Jammu & Kashmir And Ladakh High Court Monthly Digest: May 2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-monthly-digest-may-2026-536377
-
-[Read on Telegram](https://t.me/livelawindia/112144)
-
----
-### 2026-06-01T13:43:34+00:00
-[Advertisement] Courtroom-Oriented Family Law Drafting & Litigation Certification Course
-https://www.livelaw.in/lawschool/diploma-certificate-courses/advertisement-courtroom-oriented-family-law-drafting-litigation-certification-course-536460
-
-[Read on Telegram](https://t.me/livelawindia/112145)
-
----
-### 2026-06-01T13:48:04+00:00
-Madras High Court Issues Notice On Plea Seeking 'Income Ceiling' For Disadvantaged Group Students Under Right To Education Act
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-rte-act-income-ceiling-disadvantaged-group-536461
-
-[Read on Telegram](https://t.me/livelawindia/112146)
-
----
-### 2026-06-01T13:52:44+00:00
-'Audience With The Gavel': Memoir On Justice Pankaj Mithal Released At Supreme Court
-https://www.livelaw.in/news-updates/audience-with-the-gavel-memoir-justice-pankaj-mithal-released-supreme-court-536462
-
-[Read on Telegram](https://t.me/livelawindia/112147)
-
----
-### 2026-06-01T13:59:44+00:00
-Supreme Court Issues Notice To Union On PIL Seeking Stronger Enforcement Of Disability Commissioners' Recommendations
-https://www.livelaw.in/top-stories/supreme-court-issues-notice-to-union-on-pil-seeking-stronger-enforcement-of-disability-commissioners-recommendations-536465
-
-[Read on Telegram](https://t.me/livelawindia/112148)
-
----
-### 2026-06-01T14:02:24+00:00
-Kerala High Court Directs Immediate Disbursal Of Victim Compensation From Allocated Funds, Seeks Report On Status Of Mediators' Remuneration
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-directs-expedited-disbursal-of-victim-compensation-seeks-status-report-on-mediators-remuneration-536463
-
-[Read on Telegram](https://t.me/livelawindia/112149)
-
----
 ### 2026-06-01T14:04:44+00:00
 Call For Contributing Authors For Book: 'Lex Indica: Critical Essays On Contemporary Law' (ISBN: 978-81-69342-12-4): Register By June 21
 https://www.livelaw.in/lawschool/news/call-contributing-authors-book-lex-indica-critical-essays-contemporary-law-536466
@@ -142,5 +93,54 @@ Supreme Court Daily Round-Up : June 1, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-june-1-2026-536479
 
 [Read on Telegram](https://t.me/livelawindia/112162)
+
+---
+### 2026-06-02T03:32:24+00:00
+Supreme Court Quarterly Digest 2026: Subject-Wise Index [January–March]
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-quarterly-digest-2026-536469
+
+[Read on Telegram](https://t.me/livelawindia/112163)
+
+---
+### 2026-06-02T03:34:44+00:00
+Associate Director Vacancy At Deloitte Touche Tohmatsu India LLP
+https://www.livelaw.in/job-updates/associate-director-vacancy-at-deloitte-touche-tohmatsu-india-llp-536485
+
+[Read on Telegram](https://t.me/livelawindia/112164)
+
+---
+### 2026-06-02T03:41:24+00:00
+Junior Research Consultants Vacancy At National Human Rights Commission
+https://www.livelaw.in/job-updates/junior-research-consultants-vacancy-at-national-human-rights-commission-536487
+
+[Read on Telegram](https://t.me/livelawindia/112165)
+
+---
+### 2026-06-02T03:50:34+00:00
+Thrissur Consumer Commission Holds Central Bank Liable For Loss Of Original Pattayam Deposited For Loan; Awards ₹2.5 Lakh Compensation
+https://www.livelaw.in/consumer-cases/thrissur-consumer-commission-holds-central-bank-liable-for-loss-of-original-pattayam-deposited-for-loan-awards-25-lakh-compensation-536490
+
+[Read on Telegram](https://t.me/livelawindia/112166)
+
+---
+### 2026-06-02T03:55:14+00:00
+Joint Registrar Vacancy At National Company Law Appellate Tribunal, Chennai Bench
+https://www.livelaw.in/job-updates/joint-registrar-vacancy-at-national-company-law-appellate-tribunal-chennai-bench-536492
+
+[Read on Telegram](https://t.me/livelawindia/112167)
+
+---
+### 2026-06-02T04:12:34+00:00
+Company Secretary Vacancy At Uttar Pradesh Power Corporation Limited
+https://www.livelaw.in/job-updates/company-secretary-vacancy-at-uttar-pradesh-power-corporation-limited-536497
+
+[Read on Telegram](https://t.me/livelawindia/112168)
+
+---
+### 2026-06-02T04:13:34+00:00
+Empanelment Of Advocates At District Legal Service Authority, Barmer
+https://www.livelaw.in/job-updates/empanelment-of-advocates-at-district-legal-service-authority-barmer-536498
+
+[Read on Telegram](https://t.me/livelawindia/112169)
 
 ---
