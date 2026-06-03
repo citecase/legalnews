@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-03T11:32:21+00:00*
+*Last Updated: 2026-06-03T11:55:03+00:00*
 
 ---
 
-### 2026-06-03T11:32:21+00:00
-S.138 NI Act | Cheque Bouncing Offence Can't Be Invoked Unless Demand Notice Mentions Specific Dishonoured Amount: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/criminal-liability-section-138-ni-act-specific-mentioning-amount-in-demand-notice-536711
-
-[Read on Telegram](https://t.me/livelawindia/112283)
-
----
-### 2026-06-03T11:38:23+00:00
-Recovery From Store Room Behind Shop Not Enough To Infer Criminality: P&H High Court Discharges Licensed Chemist In NDPS Case
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-discharges-licensed-chemist-in-ndps-case-536712
-
-[Read on Telegram](https://t.me/livelawindia/112284)
-
----
 ### 2026-06-03T11:55:03+00:00
 Inadequate Stamp Duty On Bank Guarantee A Curable Defect; Rejection Of Bid On This Ground 'Arbitrary': Allahabad HC
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-inadequate-stamp-duty-bank-guarantee-curable-defect-rejection-bid-arbitrary-536714
@@ -142,5 +128,19 @@ https://www.livelaw.in/sc-judgments/2026-livelaw-sc-594-sonal-talpada-v-veerbhan
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-595-general-manager-hr-anr-versus-k-poovarasan-536744
 
 [Read on Telegram](https://t.me/livelawindia/112302)
+
+---
+### 2026-06-03T17:02:53+00:00
+Supreme Court Daily Round-Up : June 3, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-june-3-2026-536739
+
+[Read on Telegram](https://t.me/livelawindia/112303)
+
+---
+### 2026-06-03T17:59:23+00:00
+Supreme Court Publishes Draft Regulations On AI Use In Judiciary, Invites Feedback
+https://www.livelaw.in/top-stories/supreme-court-publishes-draft-regulations-on-ai-use-in-judiciary-invites-feedback-536746
+
+[Read on Telegram](https://t.me/livelawindia/112304)
 
 ---
