@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-02T16:02:56+00:00*
+*Last Updated: 2026-06-03T05:02:55+00:00*
+
+---
+
+### 2026-06-03T05:02:55+00:00
+Not Merely An Error Of Judgment: Karnataka HC Directs Inquiry After Police Charged Man With Abetment Of Suicide When His Wife Was Still Alive
+https://www.verdictum.in/karnataka-high-court/2026khc-21203-mr-nixon-v-state-1615207
+
+[Source Link](https://t.me/verdictumlegalupdates/27357)
+
+---
+
+### 2026-06-03T04:32:24+00:00
+Export Promotion Council For Leather Is "State" Under Article 12; Amenable To Writ Jurisdiction: Delhi High Court
+https://www.verdictum.in/delhi-high-court/ali-ahmad-khan-v-council-for-leather-exports-2026dhc4994-state-under-article-12-constitution-disciplinary-proceedings-1615204
+
+[Source Link](https://t.me/verdictumlegalupdates/27356)
 
 ---
 
@@ -145,22 +161,6 @@ Long Serving Temporary Status Casual Labourers Entitled To Pension Even Without 
 https://www.verdictum.in/supreme-court/bhikhani-devi-etc-v-union-of-india-ors-2026-insc-612-pension-casual-labourers-1615135
 
 [Source Link](https://t.me/verdictumlegalupdates/27338)
-
----
-
-### 2026-06-02T06:12:44+00:00
-Trial Courts Should Direct Filing Of Income Affidavits In Maintenance Cases, Draw Adverse Inference Against Defaulting Party: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/2026ahc123920-hhhh-v-state-of-up-1615133
-
-[Source Link](https://t.me/verdictumlegalupdates/27337)
-
----
-
-### 2026-06-02T05:32:42+00:00
-Evidence Recorded In Absence Of Accused For Summoning Him U/s. 319 CrPC Can’t Form Basis Of His Conviction: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/pramod-kumar-singh-alias-guddu-singh-v-state-of-up-2026ahc-lko37345-db-evidence-1615131
-
-[Source Link](https://t.me/verdictumlegalupdates/27336)
 
 ---
 
