@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-02T15:07:40+00:00*
+*Last Updated: 2026-06-03T08:10:37+00:00*
 
 ---
 
-### 2026-06-02T15:07:40+00:00
-'Speak Without Venom': Karnataka High Court Tells Activist Dr Prabhakar Bhat Over Alleged Comments On Muslim Women
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-right-wing-activist-prabhakar-bhat-deriding-muslim-women-giving-birth-multiple-children-536607
+### 2026-06-03T08:10:37+00:00
+Madras High Court Grants Over ₹57 Lakh Compensation To Accident Victim, Says Lawyer 'Failed In His Duty' By Not Pursuing Enhancement Plea
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-motor-accident-compensation-enhanced-advocate-failure-536672
 
-[Read on Telegram](https://t.me/livelawindia/112223)
-
----
-### 2026-06-02T15:23:20+00:00
-Daughter Doesn't Lose Ties With Natal Family On Marriage; Such Gender Stereotype Incompatible With Constitution : Supreme Court
-https://www.livelaw.in/top-stories/daughter-doesnt-lose-ties-with-natal-family-on-marriage-such-gender-stereotype-incompatible-with-constitution-supreme-court-536608
-
-[Read on Telegram](https://t.me/livelawindia/112224)
+[Read on Telegram](https://t.me/livelawindia/112262)
 
 ---
-### 2026-06-02T15:25:20+00:00
-2026 LiveLaw (SC) 588 | KULSUM NISHA Vs STATE OF U.P
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-588-kulsum-nisha-vs-state-of-up-536609
+### 2026-06-03T08:12:17+00:00
+Witnesses Informed By Police About Accused Before Statements Recorded: J&K&L High Court Acquits Murder Convicts
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-witnesses-told-in-advance-who-the-police-believed-was-guilty-cannot-lend-credibility-to-prosecution-story-court-acquits-duo-in-murder-case-536579
 
-[Read on Telegram](https://t.me/livelawindia/112225)
-
----
-### 2026-06-02T15:30:00+00:00
-Arbitration | Limitation For S. 34 Appeal Runs From Disposal Of S.33 Application Whether Allowed Or Rejected: Supreme Court
-https://www.livelaw.in/supreme-court/arbitration-limitation-for-s-34-appeal-runs-from-disposal-of-s33-application-whether-allowed-or-rejected-supreme-court-536611
-
-[Read on Telegram](https://t.me/livelawindia/112226)
+[Read on Telegram](https://t.me/livelawindia/112263)
 
 ---
-### 2026-06-02T15:31:00+00:00
-2026 LiveLaw (SC) 589 | NATIONAL HIGHWAY AUTHORITY OF INDIA VERSUS T. YOUNIS & ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-589-national-highway-authority-of-india-versus-t-younis-anr-536612
+### 2026-06-03T08:29:17+00:00
+Supreme Court Collegium Approves Appointment Of Three Judicial Officers As Judges Of Himachal Pradesh High Court
+https://www.livelaw.in/top-stories/supreme-court-collegium-approves-appointment-of-three-judicial-officers-as-judges-of-himachal-pradesh-high-court-536675
 
-[Read on Telegram](https://t.me/livelawindia/112227)
-
----
-### 2026-06-02T15:48:20+00:00
-Sovereignty Prevails Over Personal Liberty When Nation Is Threatened By Drug Trade: Supreme Court
-https://www.livelaw.in/top-stories/sovereignty-prevails-over-personal-liberty-when-nation-is-threatened-by-drug-trade-supreme-court-536613
-
-[Read on Telegram](https://t.me/livelawindia/112228)
+[Read on Telegram](https://t.me/livelawindia/112264)
 
 ---
-### 2026-06-02T15:49:40+00:00
-2026 LiveLaw (SC) 590  | State of Punjab v. Balraj Singh @ Billa
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-590-state-of-punjab-v-balraj-singh-billa-536614
+### 2026-06-03T08:31:57+00:00
+Supreme Court Collegium Recommends Appointment of Six Advocates as Karnataka High Court Judges
+https://www.livelaw.in/top-stories/supreme-court-collegium-recommends-appointment-of-six-advocates-as-karnataka-high-court-judges-536676
 
-[Read on Telegram](https://t.me/livelawindia/112229)
-
----
-### 2026-06-02T15:56:40+00:00
-Court Can't Take Cognizance Of Offence Under Water Act Without Valid Authorization By Pollution Control Board: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-criminal-court-cognizance-valid-authorization-section49-water-act-536616
-
-[Read on Telegram](https://t.me/livelawindia/112230)
+[Read on Telegram](https://t.me/livelawindia/112265)
 
 ---
-### 2026-06-02T16:48:36+00:00
-Prashanto Chandra Sen & Haripriya Padmanabhan Appointed Tamil Nadu Additional Advocate Generals For Supreme Court
-https://www.livelaw.in/news-updates/prashanto-chandra-sen-haripriya-padmanabhan-appointed-tamil-nadu-additional-advocate-generals-for-supreme-court-536617
+### 2026-06-03T08:55:27+00:00
+POCSO | Success Of Protection Laws Depends On Child's Emotional Well Being: Madras High Court Moots State-Wide Sensitisation Programme
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-sensitisation-workshop-pocso-cases-child-emotional-wellbeing-536678
 
-[Read on Telegram](https://t.me/livelawindia/112231)
-
----
-### 2026-06-02T17:07:36+00:00
-Supreme Court Daily Round-Up : June 2, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-june-2-2026-536615
-
-[Read on Telegram](https://t.me/livelawindia/112232)
+[Read on Telegram](https://t.me/livelawindia/112266)
 
 ---
-### 2026-06-02T18:57:46+00:00
-LiveLaw Student Subscription, 3-12 June 2026 | Apply Now
-https://www.livelaw.in/top-stories/livelaw-student-subscription-3-12-june-2026-apply-now-536618
+### 2026-06-03T09:17:47+00:00
+Calcutta High Court Allows TMC MP Abhishek Banerjee To Move Plea Seeking Protection From Coercive Action In MLA Signature Forgery Probe
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-allows-tmc-mp-abhishek-banerjee-to-move-plea-seeking-protection-from-coercive-action-in-mla-signature-forgery-probe-536680
 
-[Read on Telegram](https://t.me/livelawindia/112233)
-
----
-### 2026-06-03T03:43:20+00:00
-Research Associate Of Law Vacancy At Himachal Pradesh National Law University Shimla
-https://www.livelaw.in/job-updates/research-associate-of-law-vacancy-at-himachal-pradesh-national-law-university-shimla-536624
-
-[Read on Telegram](https://t.me/livelawindia/112234)
+[Read on Telegram](https://t.me/livelawindia/112267)
 
 ---
-### 2026-06-03T03:47:40+00:00
-'Ruined Her Life' Bombay High Court Denies Anticipatory Bail To Man Accused Of Rape On False Promise Of Film Role, Posting Pvt Photos Online
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-anticipatory-bail-booked-raping-woman-on-promise-of-offering-film-role-536621
+### 2026-06-03T09:19:47+00:00
+Every Mobile Phone Has Become A 'Virtual Gambling House', Online Gaming Addiction Threat To Public Health: Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-online-gaming-addiction-suicides-threat-public-health-536681
 
-[Read on Telegram](https://t.me/livelawindia/112235)
-
----
-### 2026-06-03T03:59:02+00:00
-Bihar Court Sentences 85-Year-Old Man To 3 Yrs In Jail In 1992 Attempt To Murder Case; Gets Provisional Bail
-https://www.livelaw.in/news-updates/bihar-court-sentences-85-year-old-man-1992-attempt-murder-case-provisional-bail-536626
-
-[Read on Telegram](https://t.me/livelawindia/112236)
+[Read on Telegram](https://t.me/livelawindia/112268)
 
 ---
-### 2026-06-03T04:03:02+00:00
-Bharat Mata Portrait Row: High Court Closes Contempt Plea Against Kerala University VC For Defying Order To Reinstate Registrar
-https://www.livelaw.in/high-court/kerala-high-court/bharat-mata-portrait-row-kerala-high-court-contempt-petition-kerala-university-vice-chancellor-536625
+### 2026-06-03T09:28:37+00:00
+Karnataka High Court Issues Notice On Plea By Employers' Association Against State Govt's Minimum Wage Hike Notification
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-state-response-employers-challenge-minimum-wage-revision-536684
 
-[Read on Telegram](https://t.me/livelawindia/112237)
-
----
-### 2026-06-03T04:05:02+00:00
-Supreme Court Constitutes High-Powered Expert Committee To Reassess Definition Of Aravalli Hills
-https://www.livelaw.in/top-stories/supreme-court-constitutes-high-powered-expert-committee-to-reassess-definition-of-aravalli-hills-536629
-
-[Read on Telegram](https://t.me/livelawindia/112238)
+[Read on Telegram](https://t.me/livelawindia/112269)
 
 ---
-### 2026-06-03T04:08:02+00:00
-Delhi High Court Urges Courts To Fast-Track FIR Registration Pleas In Cases Concerning 'Unnatural Death' Of Young Bride
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-urges-courts-to-fast-track-fir-registration-pleas-in-young-bride-death-cases-536630
+### 2026-06-03T09:32:57+00:00
+Section 22 CPC | Mandatory To Issue Prior Notice To Opposite Party In Plea Seeking Transfer Of Suit To Different Court: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-section-22-cpc-transfer-of-suit-to-different-court-issuance-of-notice-mandatory-536679
 
-[Read on Telegram](https://t.me/livelawindia/112239)
-
----
-### 2026-06-03T04:13:02+00:00
-TMC MP Abhishek Banerjee's Parents Move Calcutta High Court Against KMC Notice Alleging Unauthorised Construction At Residence
-https://www.livelaw.in/high-court/calcutta-high-court/abhishek-banerjees-parents-move-calcutta-high-court-challenging-kmc-notice-alleging-unauthorised-construction-at-residence-536632
-
-[Read on Telegram](https://t.me/livelawindia/112240)
+[Read on Telegram](https://t.me/livelawindia/112270)
 
 ---
-### 2026-06-03T04:18:04+00:00
-The More Judges Realise Courts' Duty To Enforce Accountability, The Better Our Country Will Be : Sr Adv S Muralidhar.
-https://www.livelaw.in/top-stories/the-more-judges-realise-courts-duty-to-enforce-accountability-the-better-our-country-will-be-sr-adv-s-muralidhar-536634
+### 2026-06-03T09:33:27+00:00
+Remove The Predator, Not The Prey
+https://www.livelaw.in/articles/remove-predator-536644
 
-[Read on Telegram](https://t.me/livelawindia/112241)
+[Read on Telegram](https://t.me/livelawindia/112271)
 
 ---
-### 2026-06-03T04:25:45+00:00
-IPR Chair Vacancy At Gujarat National Law University Gandhinagar, Gujarat
-https://www.livelaw.in/job-updates/ipr-chair-vacancy-at-gujarat-national-law-university-gandhinagar-gujarat-536637
+### 2026-06-03T09:33:57+00:00
+Plea In Calcutta High Court Challenges Police's Practice Of Parading Accused With Ropes Tied Around Their Waists
+https://www.livelaw.in/high-court/calcutta-high-court/plea-in-calcutta-high-court-challenges-polices-practice-of-parading-accused-with-ropes-tied-around-their-waists-536685
 
-[Read on Telegram](https://t.me/livelawindia/112242)
+[Read on Telegram](https://t.me/livelawindia/112272)
+
+---
+### 2026-06-03T09:40:17+00:00
+ART Act Is Regulatory, Not Meant To Create Insurmountable Barriers To Parenthood: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/art-act-is-regulatory-not-meant-to-create-insurmountable-barriers-to-parenthood-delhi-high-court-536688
+
+[Read on Telegram](https://t.me/livelawindia/112273)
+
+---
+### 2026-06-03T09:42:57+00:00
+Grievous Hurt Charge Cannot Be Framed Without Supporting Medical Evidence: P&H High Court Modifies Charges In Assault Case
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-modifies-charges-in-assault-case-grievous-hurt-charge-cannot-be-framed-without-supporting-medical-evidence-536635
+
+[Read on Telegram](https://t.me/livelawindia/112274)
+
+---
+### 2026-06-03T09:44:37+00:00
+Centre, CBFC Move High Court Questioning Order Upholding Maintainability Of Pleas Against Certification Granted To 'Kerala Story 2' Movie
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kerala-story-2-union-appeal-536689
+
+[Read on Telegram](https://t.me/livelawindia/112275)
+
+---
+### 2026-06-03T09:49:41+00:00
+Court Staff Injured In Attempted Attack On Kerala Munsiff-Magistrate
+https://www.livelaw.in/news-updates/kerala-munsiff-court-chengannur-attack-536691
+
+[Read on Telegram](https://t.me/livelawindia/112276)
+
+---
+### 2026-06-03T09:52:01+00:00
+Kurnool Consumer Commission Directs FirstCry To Refund Order Amount, Pay ₹50,000 Compensation For Unfair Trade Practice
+https://www.livelaw.in/consumer-cases/kurnool-consumer-commission-directs-firstcry-to-refund-order-amount-pay-50000-compensation-for-unfair-trade-practice-536692
+
+[Read on Telegram](https://t.me/livelawindia/112277)
+
+---
+### 2026-06-03T10:09:41+00:00
+2nd Edition One-Week Faculty Development Programme On Integrating Indian Knowledge System And Law By RGNUL Punjab
+https://www.livelaw.in/lawschool/news/2nd-edition-one-week-faculty-development-programme-rgnul-punjab-536695
+
+[Read on Telegram](https://t.me/livelawindia/112278)
+
+---
+### 2026-06-03T10:19:01+00:00
+Call For Editors: The Society For Constitutional Law Discussion (Academic Year 2026–27)
+https://www.livelaw.in/lawschool/news/call-editors-society-for-constitutional-law-discussion-academic-year-202627-536698
+
+[Read on Telegram](https://t.me/livelawindia/112279)
+
+---
+### 2026-06-03T10:27:21+00:00
+Madras HC Directs Approval For Bangladeshi Mother's Kidney Donation To Minor Son, Says Authorisation Committee Considered Irrelevant Factors
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-bangladeshi-minor-kidney-donation-authorisation-committee-criticised-536702
+
+[Read on Telegram](https://t.me/livelawindia/112280)
+
+---
+### 2026-06-03T11:02:31+00:00
+Karnataka High Court Asks Law College To Accept Application Of Transgender Student Claiming Absence Of Gender Option In Admission Form
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-accept-application-form-transgender-student-536699
+
+[Read on Telegram](https://t.me/livelawindia/112281)
 
 ---
