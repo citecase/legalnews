@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-02T12:26:04+00:00*
+*Last Updated: 2026-06-02T15:07:40+00:00*
 
 ---
 
-### 2026-06-02T12:26:04+00:00
-Prevention Of Corruption Act |  Public Servant Asking Bribe For Subordinates Liable; Demand Need Not Be Direct : Supreme Court
-https://www.livelaw.in/top-stories/prevention-of-corruption-act-public-servant-asking-bribe-for-subordinates-liable-demand-need-not-be-direct-supreme-court-536589
-
-[Read on Telegram](https://t.me/livelawindia/112214)
-
----
-### 2026-06-02T12:27:44+00:00
-2026 LiveLaw (SC) 587 | THE STATE BY LOKAYUKTHA POLICE v. SRI K. RANGAYYA & ANR
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-587-the-state-by-lokayuktha-police-v-sri-k-rangayya-anr-536590
-
-[Read on Telegram](https://t.me/livelawindia/112215)
-
----
-### 2026-06-02T12:38:44+00:00
-Centre Notifies Appointment Of Justice Meenakshi Madan Rai As Patna High Court Chief Justice
-https://www.livelaw.in/high-court/all-high-courts/justice-meenakshi-madan-rai-patna-high-court-chief-justice-536592
-
-[Read on Telegram](https://t.me/livelawindia/112216)
-
----
-### 2026-06-02T13:07:45+00:00
-Provision To Extend Investigation Time Under NDPS Act Applies Even In Narco-Terror Cases Under UAPA: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-ndps-act-and-uapa-must-be-harmoniously-construed-section-36a-ndps-not-ousted-by-section-48-uapa-536506
-
-[Read on Telegram](https://t.me/livelawindia/112217)
-
----
-### 2026-06-02T13:12:24+00:00
-Ante-Dated FIR Renders Investigation Tainted & Unsafe To Rely Upon: J&K&L High Court Upholds Acquittal In Murder Case
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/jammu-and-kashmir-high-court-ante-dated-fir-prepared-after-deliberation-renders-investigation-tainted-and-unsafe-to-rely-upon-court-upholds-acquittal-in-murder-case-536576
-
-[Read on Telegram](https://t.me/livelawindia/112218)
-
----
-### 2026-06-02T13:40:14+00:00
-Delhi Riots: Court Acquits 5 In Murder Case, Finds 'Serious Contradictions' In Prosecution Evidence
-https://www.livelaw.in/news-updates/delhi-riots-delhi-court-acquits-5-murder-case-serious-contradictions-in-prosecution-evidence-536597
-
-[Read on Telegram](https://t.me/livelawindia/112219)
-
----
-### 2026-06-02T14:23:04+00:00
-Invoking Wrong Provision No Bar To Challenge Curtailment Of Liberty: P&H High Court Grants Man Bail Accused Of Putting Pro-Khalistan Posters
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-grants-bail-to-man-accused-of-putting-pro-khalistan-posters-says-invoking-wrong-provision-cant-deprive-him-of-rights-536602
-
-[Read on Telegram](https://t.me/livelawindia/112220)
-
----
-### 2026-06-02T14:33:04+00:00
-'Eye Witnesses Turned Hostile': Vijay Kulkarni Tells Karnataka High Court In Plea Against Conviction, Life Term In Yogesh Gouda Murder Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-political-transfer-investigation-yogesh-goudar-murder-case-536594
-
-[Read on Telegram](https://t.me/livelawindia/112221)
-
----
-### 2026-06-02T14:44:04+00:00
-Unlawful Assembly By Itself Not An Offence: Madras High Court Quashes Case Against 15 Who Assembled To Celebrate 100 Years Of RSS
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-rss-members-unlawful-assembly-case-quashed-536606
-
-[Read on Telegram](https://t.me/livelawindia/112222)
-
----
 ### 2026-06-02T15:07:40+00:00
 'Speak Without Venom': Karnataka High Court Tells Activist Dr Prabhakar Bhat Over Alleged Comments On Muslim Women
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-right-wing-activist-prabhakar-bhat-deriding-muslim-women-giving-birth-multiple-children-536607
@@ -142,5 +79,68 @@ LiveLaw Student Subscription, 3-12 June 2026 | Apply Now
 https://www.livelaw.in/top-stories/livelaw-student-subscription-3-12-june-2026-apply-now-536618
 
 [Read on Telegram](https://t.me/livelawindia/112233)
+
+---
+### 2026-06-03T03:43:20+00:00
+Research Associate Of Law Vacancy At Himachal Pradesh National Law University Shimla
+https://www.livelaw.in/job-updates/research-associate-of-law-vacancy-at-himachal-pradesh-national-law-university-shimla-536624
+
+[Read on Telegram](https://t.me/livelawindia/112234)
+
+---
+### 2026-06-03T03:47:40+00:00
+'Ruined Her Life' Bombay High Court Denies Anticipatory Bail To Man Accused Of Rape On False Promise Of Film Role, Posting Pvt Photos Online
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-anticipatory-bail-booked-raping-woman-on-promise-of-offering-film-role-536621
+
+[Read on Telegram](https://t.me/livelawindia/112235)
+
+---
+### 2026-06-03T03:59:02+00:00
+Bihar Court Sentences 85-Year-Old Man To 3 Yrs In Jail In 1992 Attempt To Murder Case; Gets Provisional Bail
+https://www.livelaw.in/news-updates/bihar-court-sentences-85-year-old-man-1992-attempt-murder-case-provisional-bail-536626
+
+[Read on Telegram](https://t.me/livelawindia/112236)
+
+---
+### 2026-06-03T04:03:02+00:00
+Bharat Mata Portrait Row: High Court Closes Contempt Plea Against Kerala University VC For Defying Order To Reinstate Registrar
+https://www.livelaw.in/high-court/kerala-high-court/bharat-mata-portrait-row-kerala-high-court-contempt-petition-kerala-university-vice-chancellor-536625
+
+[Read on Telegram](https://t.me/livelawindia/112237)
+
+---
+### 2026-06-03T04:05:02+00:00
+Supreme Court Constitutes High-Powered Expert Committee To Reassess Definition Of Aravalli Hills
+https://www.livelaw.in/top-stories/supreme-court-constitutes-high-powered-expert-committee-to-reassess-definition-of-aravalli-hills-536629
+
+[Read on Telegram](https://t.me/livelawindia/112238)
+
+---
+### 2026-06-03T04:08:02+00:00
+Delhi High Court Urges Courts To Fast-Track FIR Registration Pleas In Cases Concerning 'Unnatural Death' Of Young Bride
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-urges-courts-to-fast-track-fir-registration-pleas-in-young-bride-death-cases-536630
+
+[Read on Telegram](https://t.me/livelawindia/112239)
+
+---
+### 2026-06-03T04:13:02+00:00
+TMC MP Abhishek Banerjee's Parents Move Calcutta High Court Against KMC Notice Alleging Unauthorised Construction At Residence
+https://www.livelaw.in/high-court/calcutta-high-court/abhishek-banerjees-parents-move-calcutta-high-court-challenging-kmc-notice-alleging-unauthorised-construction-at-residence-536632
+
+[Read on Telegram](https://t.me/livelawindia/112240)
+
+---
+### 2026-06-03T04:18:04+00:00
+The More Judges Realise Courts' Duty To Enforce Accountability, The Better Our Country Will Be : Sr Adv S Muralidhar.
+https://www.livelaw.in/top-stories/the-more-judges-realise-courts-duty-to-enforce-accountability-the-better-our-country-will-be-sr-adv-s-muralidhar-536634
+
+[Read on Telegram](https://t.me/livelawindia/112241)
+
+---
+### 2026-06-03T04:25:45+00:00
+IPR Chair Vacancy At Gujarat National Law University Gandhinagar, Gujarat
+https://www.livelaw.in/job-updates/ipr-chair-vacancy-at-gujarat-national-law-university-gandhinagar-gujarat-536637
+
+[Read on Telegram](https://t.me/livelawindia/112242)
 
 ---
