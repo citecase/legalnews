@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-03T11:03:04+00:00*
+*Last Updated: 2026-06-03T16:03:09+00:00*
+
+---
+
+### 2026-06-03T16:03:09+00:00
+Research Associate Vacancy At Allahabad High Court
+https://www.verdictum.in/job-updates/allahabad-high-court-1615243
+
+[Source Link](https://t.me/verdictumlegalupdates/27379)
+
+---
+
+### 2026-06-03T15:32:48+00:00
+Marital Status Cannot Constitute Valid Ground To Deny Welfare Measures Benefits To Otherwise Eligible Daughter: Supreme Court
+https://www.verdictum.in/supreme-court/kulsum-nisha-v-state-of-up-ors-2026-insc-617-fair-price-shop-daughter-1615252
+
+[Source Link](https://t.me/verdictumlegalupdates/27378)
+
+---
+
+### 2026-06-03T15:02:46+00:00
+Can’t Force Husband-Wife Relationship By Judicial Proceedings: Supreme Court Grants Divorce Under Article 142 Of Constitution
+https://www.verdictum.in/supreme-court/a-v-b-2026-insc-623-husband-wife-relationship-judicial-proceedings-divorce-article-142-1615251
+
+[Source Link](https://t.me/verdictumlegalupdates/27377)
+
+---
+
+### 2026-06-03T14:33:05+00:00
+Transitory Provisions Prevent Complete Cessation Of Judicial Functions: Kerala High Court Upholds Validity Of 2026 Industrial Relations Code Amendment Act
+https://www.verdictum.in/kerala-high-court/mk-suresh-kumar-v-union-of-india-industrial-relations-code-amendment-act-upheld-1615250
+
+[Source Link](https://t.me/verdictumlegalupdates/27376)
+
+---
+
+### 2026-06-03T14:02:43+00:00
+‘Committee Should Have Been Little More Sensitive’: Madras High Court Permits Bangladeshi Woman To Donate Her Kidney To Minor Son
+https://www.verdictum.in/madras-high-court/minor-atonu-saha-v-the-state-of-tamil-nadu-wp-no-20140-of-2026-bangladeshi-woman-donate-kidney-1615249
+
+[Source Link](https://t.me/verdictumlegalupdates/27375)
+
+---
+
+### 2026-06-03T13:32:32+00:00
+Failure To Mention Amount In Demand Notice U/s.138 (b) Of NI Act Would Make It Incomplete: Kerala High Court
+https://www.verdictum.in/kerala-high-court/rajesh-k-v-asokan-pk-2026ker36763-demand-notice-section-138-ni-act-1615245
+
+[Source Link](https://t.me/verdictumlegalupdates/27374)
+
+---
+
+### 2026-06-03T13:02:30+00:00
+Non Supplying Ground Of Arrest And Non Preparation Of Disclosure Memo At Police Station Has Become Routine Practice: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/2026-ahc-11988-sandeep-baisoya-v-state-1615244
+
+[Source Link](https://t.me/verdictumlegalupdates/27373)
+
+---
+
+### 2026-06-03T12:32:29+00:00
+Chargesheet E-filed After 5PM On Last Day Of Limitation Must Be Deemed As Instituted On Next Working Day: Kerala High Court Grants Default Bail To NDPS Accused
+https://www.verdictum.in/kerala-high-court/2026-ker-37508-aboobacker-siddique-v-state-of-kerala-1615241
+
+[Source Link](https://t.me/verdictumlegalupdates/27372)
+
+---
+
+### 2026-06-03T12:03:07+00:00
+Madras High Court Directs Construction Of Permanent Ramps In Routinely Notified Polling Booths For Persons With Disabilities
+https://www.verdictum.in/madras-high-court/vaishnavi-jayakumar-v-the-election-commission-of-india-ors-2026mhc1751-1615236
+
+[Source Link](https://t.me/verdictumlegalupdates/27371)
+
+---
+
+### 2026-06-03T11:33:06+00:00
+“Start Line Of Copyright Registration Journey Was Incorrect”: Delhi High Court Cancels Gujarat Pesticides’ ‘ZOOOK’ Label Copyright
+https://www.verdictum.in/delhi-high-court/fortune-marketing-pvt-ltd-v-gujarat-pesticides-2026dhc4850-pesticides-zoook-label-copyright-1615235
+
+[Source Link](https://t.me/verdictumlegalupdates/27370)
 
 ---
 
@@ -81,86 +161,6 @@ Merely Stating That HUF Is Existing, Without Material Facts, Not Sufficient: Del
 https://www.verdictum.in/delhi-high-court/santra-devi-v-santosh-kaushik-2026dhc4990-hindu-succession-act-delhi-land-reforms-1615213
 
 [Source Link](https://t.me/verdictumlegalupdates/27360)
-
----
-
-### 2026-06-03T06:02:38+00:00
-Mere Criticism Of Government Not A Crime: Andhra Pradesh High Court Quashes Criminal Case Over Social Media Post Against Ex-MLA's Son
-https://www.verdictum.in/andhra-pradesh-high-court/lagadapati-praveen-kumar-v-state-of-andhra-pradesh-anrsection-153153a-ipc-1615211
-
-[Source Link](https://t.me/verdictumlegalupdates/27359)
-
----
-
-### 2026-06-03T05:32:17+00:00
-Operational Hardship Totally Irrelevant Consideration: Delhi High Court Dismisses Plea Challenging 2015 Amendment Of Payment Of Bonus Act
-https://www.verdictum.in/delhi-high-court/aviva-life-insurance-company-india-ltd-v-union-of-india-2026dhc4853-db-2015-payment-of-bonus-act-amendment-1615210
-
-[Source Link](https://t.me/verdictumlegalupdates/27358)
-
----
-
-### 2026-06-03T05:02:55+00:00
-Not Merely An Error Of Judgment: Karnataka HC Directs Inquiry After Police Charged Man With Abetment Of Suicide When His Wife Was Still Alive
-https://www.verdictum.in/karnataka-high-court/2026khc-21203-mr-nixon-v-state-1615207
-
-[Source Link](https://t.me/verdictumlegalupdates/27357)
-
----
-
-### 2026-06-03T04:32:24+00:00
-Export Promotion Council For Leather Is "State" Under Article 12; Amenable To Writ Jurisdiction: Delhi High Court
-https://www.verdictum.in/delhi-high-court/ali-ahmad-khan-v-council-for-leather-exports-2026dhc4994-state-under-article-12-constitution-disciplinary-proceedings-1615204
-
-[Source Link](https://t.me/verdictumlegalupdates/27356)
-
----
-
-### 2026-06-02T16:02:56+00:00
-Young Professional Vacancy At Indian National Space Promotion and Authorization Centre (IN-SPACe)
-https://www.verdictum.in/job-updates/indian-national-space-promotion-and-authorization-centre-1615167
-
-[Source Link](https://t.me/verdictumlegalupdates/27355)
-
----
-
-### 2026-06-02T15:32:54+00:00
-Applying Inflation Factor Of 1.5 Over Parent's Income Is Not Double Benefit: Delhi High Court Enhances Motor Accident Compensation
-https://www.verdictum.in/delhi-high-court/pravesh-kumar-v-delhi-jal-board-2026dhc4832-db-applying-inflation-factor-of-15-over-parents-income-died-after-falling-in-open-pit-1615179
-
-[Source Link](https://t.me/verdictumlegalupdates/27354)
-
----
-
-### 2026-06-02T15:02:53+00:00
-Limitation For Application U/s.34 Of Arbitration Act To Be Reckoned From Date On Which Request U/s.33 Is Disposed Of: Supreme Court
-https://www.verdictum.in/supreme-court/national-highway-authority-of-india-v-t-younis-2026-insc-616-limitation-arbitration-act-1615178
-
-[Source Link](https://t.me/verdictumlegalupdates/27353)
-
----
-
-### 2026-06-02T14:32:31+00:00
-1-Yr-Waiting Period For Filing Divorce Petition U/S.29 Of Special Marriage Act Can Be Waived Off Where There Is Exceptional Hardship: Delhi High Court
-https://www.verdictum.in/delhi-high-court/ab-v-cd-2026dhc4767-db-divorce-petition-special-marriage-act-exceptional-hardship-1615169
-
-[Source Link](https://t.me/verdictumlegalupdates/27352)
-
----
-
-### 2026-06-02T14:02:30+00:00
-Sometimes More Than 800 Cases Are Listed Every Day Before Judges; Parties Can’t Openly Defy Operative Directions: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/radhey-shyam-yadav-v-sri-ashok-nath-tiwari-the-district-inspector-of-schools-contempt-application-1615166
-
-[Source Link](https://t.me/verdictumlegalupdates/27351)
-
----
-
-### 2026-06-02T13:33:11+00:00
-Oral Or Unwritten Tenancy Not Excluded From UP Tenancy Act, 2021; Rent Authority Has Jurisdiction: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/akhilesh-kumar-v-sanjay-sahgal-2026ahc116349-oral-or-unwritten-tenancy-up-tenancy-act-2021-1615165
-
-[Source Link](https://t.me/verdictumlegalupdates/27350)
 
 ---
 
