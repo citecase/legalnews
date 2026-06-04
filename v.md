@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-03T16:03:09+00:00*
+*Last Updated: 2026-06-04T05:03:01+00:00*
+
+---
+
+### 2026-06-04T05:03:01+00:00
+Forcing A Relationship Of Husband & Wife Cannot Be Done By Judicial Proceedings: Supreme Court Grants Divorce After 22 Years Of Separation
+https://www.verdictum.in/supreme-court/x-v-y-civil-appeal-nos-8212-8213-of-2026-article-142-to-dissolve-marriage-of-couple-1615279
+
+[Source Link](https://t.me/verdictumlegalupdates/27381)
+
+---
+
+### 2026-06-04T04:33:10+00:00
+FIR Filed 23 Years After Civil Suit On Same Facts Raises Doubts Over Bona Fides: Supreme Court Quashes Forgery Case
+https://www.verdictum.in/supreme-court/nazibul-rahim-khan-v-state-of-uttar-pradesh-2026-insc-619-fir-filed-23-years-after-civil-suit-forgery-1615277
+
+[Source Link](https://t.me/verdictumlegalupdates/27380)
 
 ---
 
@@ -145,22 +161,6 @@ https://www.verdictum.in/delhi-high-court/levi-strauss-and-co-v-kewal-kiran-clot
 https://www.verdictum.in/delhi-high-court/sandeep-sunny-v-the-state-of-nct-of-delhi-2026dhc5004-young-girl-losing-her-life-within-six-months-anticipatory-bail-fir-took-longer-1615222
 
 [Source Link](https://t.me/verdictumlegalupdates/27362)
-
----
-
-### 2026-06-03T07:02:21+00:00
-Prior Electoral Participation Does Not Render A Person Ineligible For Rajya Sabha Nomination Under Article 80(3): Delhi High Court
-https://www.verdictum.in/delhi-high-court/subhash-theekkadan-v-union-of-india-ors-2026dhc4836-db-rajya-sabha-nomination-1615218
-
-[Source Link](https://t.me/verdictumlegalupdates/27361)
-
----
-
-### 2026-06-03T06:32:40+00:00
-Merely Stating That HUF Is Existing, Without Material Facts, Not Sufficient: Delhi High Court Rejects Plaint In Partition Suit
-https://www.verdictum.in/delhi-high-court/santra-devi-v-santosh-kaushik-2026dhc4990-hindu-succession-act-delhi-land-reforms-1615213
-
-[Source Link](https://t.me/verdictumlegalupdates/27360)
 
 ---
 
