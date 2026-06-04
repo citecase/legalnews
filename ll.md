@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-04T09:48:07+00:00*
+*Last Updated: 2026-06-04T11:04:57+00:00*
 
 ---
 
-### 2026-06-04T09:48:07+00:00
-Land Revenue Act | Revisional Powers U/S 15 Must Be Exercised Within Reasonable Time; Unexplained 20-Year Delay Impermissible: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-land-revenue-act-revisional-powers-under-section-15-must-be-exercised-within-reasonable-time-20-year-delay-without-explanation-impermissible-536768
-
-[Read on Telegram](https://t.me/livelawindia/112346)
-
----
-### 2026-06-04T09:54:47+00:00
-Malviya Nagar Fire: Delhi Court Remands Hotel Owner To 4-Days Police Custody
-https://www.livelaw.in/news-updates/delhi-court-hotel-owner-four-days-of-police-custody-malviya-nagar-fire-536816
-
-[Read on Telegram](https://t.me/livelawindia/112347)
-
----
-### 2026-06-04T09:55:27+00:00
-S.35L Central Excise Act | Only Supreme Court Can Decide Appeals On Question Of Excisability; Not High Courts: SC
-https://www.livelaw.in/top-stories/supreme-court-central-excise-act-excisability-goods-manufacture-jurisdiction-536817
-
-[Read on Telegram](https://t.me/livelawindia/112348)
-
----
-### 2026-06-04T09:56:47+00:00
-2026 LiveLaw (SC) 599 |  M/S Alupro Building Systems Pvt. Ltd v. Commissioner of Central Excise Bangalore-II
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-599-ms-alupro-building-systems-pvt-ltd-v-commissioner-of-central-excise-bangalore-ii-536818
-
-[Read on Telegram](https://t.me/livelawindia/112349)
-
----
-### 2026-06-04T09:57:47+00:00
-Orissa High Court Refuses Interim Relief In Plea Against April 1 Cut-Off Date To Calculate 3-Yrs Practice For Judicial Services Exam
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-ruling-odisha-judicial-service-three-year-practice-cut-off-date-536811
-
-[Read on Telegram](https://t.me/livelawindia/112350)
-
----
-### 2026-06-04T10:46:57+00:00
-Amicus Flags Child Trafficking Through IVF, Surrogacy Centres; Supreme Court Seeks Union's Response
-https://www.livelaw.in/top-stories/amicus-flags-child-trafficking-through-ivf-surrogacy-centres-supreme-court-seeks-unions-response-536826
-
-[Read on Telegram](https://t.me/livelawindia/112351)
-
----
 ### 2026-06-04T11:04:57+00:00
 Homestay Owner Moves Karnataka High Court In Plea For Quashing FIR Over Alleged Rape Of US Woman
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-homestay-owner-seeks-fir-quashing-sexual-assault-case-536830
@@ -142,5 +100,47 @@ P&H High Court Grants Anticipatory Bail In Excise Case, Says Custodial Interroga
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-grants-anticipatory-bail-in-excise-case-says-custodial-interrogation-cannot-be-used-to-extract-information-after-recovery-536848
 
 [Read on Telegram](https://t.me/livelawindia/112365)
+
+---
+### 2026-06-04T15:32:27+00:00
+Appointment Under Sports Quota Can't Be Denied For Representing University Outside State: Rajasthan High Court Grants Relief To Candidate
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-sports-quota-denied-representing-university-536824
+
+[Read on Telegram](https://t.me/livelawindia/112366)
+
+---
+### 2026-06-04T15:33:47+00:00
+'Dignity Extends Beyond Death': Allahabad HC Steps In As Stray Animals Desecrate Human Remains At Lucknow Crematorium
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-dignity-death-steps-stray-animals-desecrate-human-remains-lucknow-crematorium-536852
+
+[Read on Telegram](https://t.me/livelawindia/112367)
+
+---
+### 2026-06-04T15:53:07+00:00
+MP High Court Upholds TB Screening Guidelines, Says Radiographers' Body's Subjective Aprrehension Can't Substitute Administrative Findings
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-dismisses-plea-of-pragatisheel-radiographers-sangh-over-tb-screening-policy-536851
+
+[Read on Telegram](https://t.me/livelawindia/112368)
+
+---
+### 2026-06-04T16:00:48+00:00
+Script Copy Row: Mumbai Court Refuses To Stay OTT Release Of Dhurandhar In Filmmaker Santosh Kumar's Suit
+https://www.livelaw.in/news-updates/mumbai-civil-court-refuses-to-stay-ott-release-dhurandhar-script-plagiarism-536855
+
+[Read on Telegram](https://t.me/livelawindia/112369)
+
+---
+### 2026-06-04T16:02:37+00:00
+'Against Karnataka Industrial Area Development Act': High Court Sets Aside Land Acquisition, Says It Was Done For Private Entity's Expansion
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-land-acquisition-public-purpose-indian-machine-tool-manufacturers-association-536843
+
+[Read on Telegram](https://t.me/livelawindia/112370)
+
+---
+### 2026-06-04T16:03:07+00:00
+Supreme Court Daily Round-Up : June 4, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-june-4-2026-536856
+
+[Read on Telegram](https://t.me/livelawindia/112371)
 
 ---
