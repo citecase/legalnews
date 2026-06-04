@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-03T11:55:03+00:00*
+*Last Updated: 2026-06-03T12:47:33+00:00*
 
 ---
 
-### 2026-06-03T11:55:03+00:00
-Inadequate Stamp Duty On Bank Guarantee A Curable Defect; Rejection Of Bid On This Ground 'Arbitrary': Allahabad HC
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-inadequate-stamp-duty-bank-guarantee-curable-defect-rejection-bid-arbitrary-536714
-
-[Read on Telegram](https://t.me/livelawindia/112285)
-
----
-### 2026-06-03T12:28:13+00:00
-Patna High Court Disposes Over 1000 Long Pending Criminal Appeals
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-chief-justice-sangam-kumar-sahoo-536717
-
-[Read on Telegram](https://t.me/livelawindia/112286)
-
----
-### 2026-06-03T12:46:53+00:00
-'Don't Go On Strike In Between': Karnataka HC Extends Interim Stay On Strike By Transport Unions, Conciliation On June 10
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-extends-interim-stay-indefinite-strike-transport-unions-536718
-
-[Read on Telegram](https://t.me/livelawindia/112287)
-
----
 ### 2026-06-03T12:47:33+00:00
 'Prosecution Examined Barely Two Witnesses Per Annum': J&K&L High Court Grants Bail To Murder Accused After 11 Years In Custody
 https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-prosecution-examined-barely-two-witnesses-per-annum-court-grants-bail-to-murder-accused-after-11-years-in-custody-536686
@@ -142,5 +121,26 @@ Supreme Court Publishes Draft Regulations On AI Use In Judiciary, Invites Feedba
 https://www.livelaw.in/top-stories/supreme-court-publishes-draft-regulations-on-ai-use-in-judiciary-invites-feedback-536746
 
 [Read on Telegram](https://t.me/livelawindia/112304)
+
+---
+### 2026-06-04T03:28:04+00:00
+Maharashtra State Commission: Pre-Printed Consent Form Without Disclosure Of Surgical Risks Is Not Valid Informed Consent; Doctor Liable For Deficiency In Service
+https://www.livelaw.in/consumer-cases/maharashtra-state-commission-pre-printed-consent-form-without-disclosure-of-surgical-risks-is-not-valid-informed-consent-doctor-liable-for-deficiency-in-service-536747
+
+[Read on Telegram](https://t.me/livelawindia/112305)
+
+---
+### 2026-06-04T04:13:15+00:00
+Person Entitled To 'Posthumous Bodily Integrity': Kerala High Court Upholds Deceased Woman's Body Donation, Rejects Heirs' Objections
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-upholds-deceased-womans-body-donation-posthumous-autonomy-family-objections-536751
+
+[Read on Telegram](https://t.me/livelawindia/112306)
+
+---
+### 2026-06-04T04:15:35+00:00
+Research Associate And Field Investigator Vacancy At Maharashtra National Law University, Mumbai
+https://www.livelaw.in/job-updates/research-associate-and-field-investigator-vacancy-at-maharashtra-national-law-university-mumbai-536752
+
+[Read on Telegram](https://t.me/livelawindia/112307)
 
 ---
