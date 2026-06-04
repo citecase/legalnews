@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-04T14:52:55+00:00*
+*Last Updated: 2026-06-04T16:02:17+00:00*
+
+---
+
+### 2026-06-04T16:02:17+00:00
+Legal Officer Vacancy At IIM Bodh Gaya
+https://www.verdictum.in/job-updates/iim-bodh-gaya-1615314
+
+[Source Link](https://t.me/verdictumlegalupdates/27397)
 
 ---
 
@@ -153,14 +161,6 @@ Marital Status Cannot Constitute Valid Ground To Deny Welfare Measures Benefits 
 https://www.verdictum.in/supreme-court/kulsum-nisha-v-state-of-up-ors-2026-insc-617-fair-price-shop-daughter-1615252
 
 [Source Link](https://t.me/verdictumlegalupdates/27378)
-
----
-
-### 2026-06-03T15:02:46+00:00
-Can’t Force Husband-Wife Relationship By Judicial Proceedings: Supreme Court Grants Divorce Under Article 142 Of Constitution
-https://www.verdictum.in/supreme-court/a-v-b-2026-insc-623-husband-wife-relationship-judicial-proceedings-divorce-article-142-1615251
-
-[Source Link](https://t.me/verdictumlegalupdates/27377)
 
 ---
 
