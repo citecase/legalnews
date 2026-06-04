@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-04T05:03:01+00:00*
+*Last Updated: 2026-06-04T09:51:32+00:00*
+
+---
+
+### 2026-06-04T09:51:32+00:00
+Allahabad High Court Urges Chief Minister To Consider Doctrine Of “Superior Responsibility” For Holding Senior Officers Accountable
+https://www.verdictum.in/allahabad-high-court/avnesh-kumar-agarwal-v-union-of-india-ors-2026ahc98214-chief-minister-up-1615302
+
+[Source Link](https://t.me/verdictumlegalupdates/27389)
+
+---
+
+### 2026-06-04T09:13:11+00:00
+Down Syndrome Falls Within Purview Of National Trust Act: Kerala High Court Directs Reconsideration Of Guardianship Application
+https://www.verdictum.in/kerala-high-court/vksk-v-the-district-collector-ors-2026ker37272-down-syndrome-guardianship-national-trust-act-1615300
+
+[Source Link](https://t.me/verdictumlegalupdates/27388)
+
+---
+
+### 2026-06-04T08:31:30+00:00
+Courts Must Independently Safeguard Minor’s Welfare Even Where Guardian Consents To Property Alienation: Supreme Court
+https://www.verdictum.in/supreme-court/shephali-chakraborty-v-the-state-of-west-bengal-2026-insc-621-minor-guardianship-1615298
+
+[Source Link](https://t.me/verdictumlegalupdates/27387)
+
+---
+
+### 2026-06-04T07:52:28+00:00
+Madras High Court Directs State To Consider “SINGAPEN Sensitisation Workshop” For Trauma-Sensitive Implementation Of POCSO Act
+https://www.verdictum.in/madras-high-court/mikavel-v-state-of-tamil-nadu-ors-and-connected-matters-2026-pocso-1615293
+
+[Source Link](https://t.me/verdictumlegalupdates/27386)
+
+---
+
+### 2026-06-04T07:12:47+00:00
+Prolonged Separation Can Be Treated As An Indicator Of Mental Cruelty To Grant Divorce Under Hindu Marriage Act: Supreme Court
+https://www.verdictum.in/supreme-court/st-v-vs-2026-insc-620-divorce-proceedings-mental-cruelty-desertion-hma-1615292
+
+[Source Link](https://t.me/verdictumlegalupdates/27385)
+
+---
+
+### 2026-06-04T06:33:05+00:00
+Section 17 CPC| Mere Existence Of One Item Or Portion Out Of Several Items Of Properties Within Territorial Limits Would Be Sufficient To Confer Jurisdiction: Kerala High Court
+https://www.verdictum.in/kerala-high-court/pv-surendran-v-kavitha-rajendrandied-2026ker35893-section-17-cpc-immovable-property-1615287
+
+[Source Link](https://t.me/verdictumlegalupdates/27384)
+
+---
+
+### 2026-06-04T06:02:24+00:00
+Delhi High Court Grants Bail To HIV-Positive Woman Accused Of Carrying 10 Kg Ganja With Fake NIA Credentials
+https://www.verdictum.in/delhi-high-court/x-v-state-nct-of-delhi-2026dhc4945-hiv-positive-woman-accused-of-carrying-10-kg-ganj-fake-nia-credentials-ndps-1615283
+
+[Source Link](https://t.me/verdictumlegalupdates/27383)
+
+---
+
+### 2026-06-04T05:32:23+00:00
+Section 48 UAPA Won’t Render Section 36A NDPS Act Inapplicable: Jammu & Kashmir And Ladakh High Court Refuses Default Bail In Narco-Terror Financing Case
+https://www.verdictum.in/jammu-ladakh-high-court/riyaz-ahmad-hajam-v-union-territory-2026jklhc-sgr184-uapa-ndps-narco-terror-financing-1615281
+
+[Source Link](https://t.me/verdictumlegalupdates/27382)
 
 ---
 
@@ -97,70 +161,6 @@ https://www.verdictum.in/madras-high-court/vaishnavi-jayakumar-v-the-election-co
 https://www.verdictum.in/delhi-high-court/fortune-marketing-pvt-ltd-v-gujarat-pesticides-2026dhc4850-pesticides-zoook-label-copyright-1615235
 
 [Source Link](https://t.me/verdictumlegalupdates/27370)
-
----
-
-### 2026-06-03T11:03:04+00:00
-Inseparable Eyewitness Testimony Cannot Be Accepted In Part & Rejected In Part: Madras High Court Acquits 3 Accused In Politician's Murder Case
-https://www.verdictum.in/madras-high-court/rajesh-v-the-state-2026mhc1826-three-accused-in-scst-act-murder-case-2021-1615234
-
-[Source Link](https://t.me/verdictumlegalupdates/27369)
-
----
-
-### 2026-06-03T10:33:03+00:00
-Property Inherited U/S 8 HSA Doesn't Automatically Assume Coparcenary Property Character; Inheritance Is Individual & Statutory In Nature: Supreme Court
-https://www.verdictum.in/supreme-court/darubai-anr-v-kamalabai-2026-insc-613-karta-ship-section-8-hindu-succession-act-property-1615232
-
-[Source Link](https://t.me/verdictumlegalupdates/27368)
-
----
-
-### 2026-06-03T10:02:21+00:00
-Personal Liberty Should Be Curtailed Only When It Becomes Imperative: Punjab & Haryana HC Grants Bail To UAPA Accused Who Allegedly Affixed Pro-Khalistan Posters
-https://www.verdictum.in/punjab-and-haryana-high-court/2026phhc-086085-db-sukhdev-singh-rinku-v-state-of-punjab-1615231
-
-[Source Link](https://t.me/verdictumlegalupdates/27367)
-
----
-
-### 2026-06-03T09:32:48+00:00
-Consideration Of Twin Conditions U/S 37 NDPS Act In Cases Involving Commercial Quantity Of Narcotics Mandatory: Supreme Court
-https://www.verdictum.in/supreme-court/state-of-punjab-v-balraj-singh-billa-2026-insc-618-bail-twin-conditions-section-37-ndps-act-1615228
-
-[Source Link](https://t.me/verdictumlegalupdates/27366)
-
----
-
-### 2026-06-03T09:03:07+00:00
-Supreme Court Collegium Recommends Advocates & Judicial Officers For Appointment As Judges Of Four High Courts
-https://www.verdictum.in/supreme-court/collegium-recommends-advocates-judicial-officers-for-appointment-as-judges-1615230
-
-[Source Link](https://t.me/verdictumlegalupdates/27365)
-
----
-
-### 2026-06-03T08:32:45+00:00
-Failure To File Cross Appeal Cannot Prevent Appellate Court From Enhancing Motor Accident Compensation In Exceptional Cases: Madras High Court
-https://www.verdictum.in/madras-high-court/the-divisional-manager-united-india-insurance-co-ltd-v-kathiresan-ors-2026mhc1797-1615227
-
-[Source Link](https://t.me/verdictumlegalupdates/27364)
-
----
-
-### 2026-06-03T08:02:44+00:00
-Two Arcs Meeting At Centre Of Back Pocket Prima Facie Infringe Levi’s Arcuate Stitching Mark; Delhi High Court Restrains Killer, Integriti Jeans
-https://www.verdictum.in/delhi-high-court/levi-strauss-and-co-v-kewal-kiran-clothing-ltd-2026dhc4894-killer-integriti-jeans-two-arcs-meeting-at-centre-of-back-pocket-1615225
-
-[Source Link](https://t.me/verdictumlegalupdates/27363)
-
----
-
-### 2026-06-03T07:32:43+00:00
-"Yet Another Young Girl Lost Her Life Within Six Months": Delhi High Court Refuses Anticipatory Bail To Husband, In-Laws
-https://www.verdictum.in/delhi-high-court/sandeep-sunny-v-the-state-of-nct-of-delhi-2026dhc5004-young-girl-losing-her-life-within-six-months-anticipatory-bail-fir-took-longer-1615222
-
-[Source Link](https://t.me/verdictumlegalupdates/27362)
 
 ---
 
