@@ -1,114 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-04T07:32:56+00:00*
+*Last Updated: 2026-06-04T09:48:07+00:00*
 
 ---
 
-### 2026-06-04T07:32:56+00:00
-Passengers Forced To Travel Standing Despite Confirmed Tickets: Bhojpur Consumer Commission Holds Railways Liable For Deficiency In Service
-https://www.livelaw.in/consumer-cases/passengers-forced-to-travel-standing-despite-confirmed-tickets-bhojpur-consumer-commission-holds-railways-liable-for-deficiency-in-service-536792
-
-[Read on Telegram](https://t.me/livelawindia/112331)
-
----
-### 2026-06-04T07:35:16+00:00
-Unilaterally Revoking Building Permission After Substantial Construction Without Proof Of Fraud Violates Right To Property: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-building-permission-municipal-corporation-act-article-300a-constitution-demolition-orders-quashed-536793
-
-[Read on Telegram](https://t.me/livelawindia/112332)
-
----
-### 2026-06-04T07:44:16+00:00
-'Allegations Are Unpardonable': Karnataka High Court Refuses To Quash POCSO FIR Against Teacher Accused Of Sexually Assaulting Student
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-to-quash-pocso-case-headmaster-sexual-assault-536794
-
-[Read on Telegram](https://t.me/livelawindia/112333)
-
----
-### 2026-06-04T07:44:56+00:00
-MBBS Stipend Dispute : NMC Tells Supreme Court Only 7 Medical Colleges Found Not Paying Interns, Resident Doctors
-https://www.livelaw.in/top-stories/mbbs-stipend-dispute-nmc-tells-supreme-court-only-7-medical-colleges-found-not-paying-interns-resident-doctors-536796
-
-[Read on Telegram](https://t.me/livelawindia/112334)
-
----
-### 2026-06-04T07:46:56+00:00
-[Advertisement] MNLU Mumbai Announces 15-Hour Online Certificate Course On Mediation; Registrations Open Till June 18
-https://www.livelaw.in/lawschool/diploma-certificate-courses/mnlu-mumbai-announces-15-hour-online-certificate-course-mediation-536797
-
-[Read on Telegram](https://t.me/livelawindia/112335)
-
----
-### 2026-06-04T07:47:36+00:00
-J&K&L High Court Quashes FIR Over Alleged Encroachment On Evacuee Property, Says Cognisance Barred Without Complaint By Competent Authority
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-prosecution-for-offences-under-section-186-ipc-and-section-18-of-jk-evacuees-act-cannot-be-initiated-on-police-report-536760
-
-[Read on Telegram](https://t.me/livelawindia/112336)
-
----
-### 2026-06-04T08:19:47+00:00
-Why Supreme Court Held State Laws Banning Online Gaming Are Traceable To 'Public Order' Entry
-https://www.livelaw.in/top-stories/supreme-court-ingredients-public-order-state-list-seventh-schedule-536800
-
-[Read on Telegram](https://t.me/livelawindia/112337)
-
----
-### 2026-06-04T08:32:47+00:00
-CCPA Fines PhysicsWallah ₹5 Lakh For 'Basket Sneaking', 'Confirm Shaming' And 'Forced Action'; Imposes ₹1 Lakh Penalty On McAfee Over Dark Patterns
-https://www.livelaw.in/consumer-cases/ccpa-fines-physicswallah-5-lakh-for-basket-sneaking-confirm-shaming-and-forced-action-imposes-1-lakh-penalty-on-mcafee-over-dark-patterns-536775
-
-[Read on Telegram](https://t.me/livelawindia/112338)
-
----
-### 2026-06-04T08:33:07+00:00
-Kerala High Court Monthly Digest: May 2026
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-monthly-may-2026-536456
-
-[Read on Telegram](https://t.me/livelawindia/112339)
-
----
-### 2026-06-04T08:45:27+00:00
-Can't Use Criminal Law To Silence Citizen For Questioning Legality Of Police Action: Madras HC Quashes FIR Against 2 Accused Of Abusing Cop
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-criminal-law-no-use-silence-citizen-questioning-police-action-536803
-
-[Read on Telegram](https://t.me/livelawindia/112340)
-
----
-### 2026-06-04T09:15:17+00:00
-'If Procedure Not Satisfied Liberty Can't Be Sacrified': Gameskraft Founder Tells Karnataka High Court That ED By-Passed Arrest Procedure
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-hearing-ed-illegal-arrest-gameskraft-founders-pmla-case-536808
-
-[Read on Telegram](https://t.me/livelawindia/112341)
-
----
-### 2026-06-04T09:29:17+00:00
-'Corruption Of Mind & Purse': Allahabad HC Tells UP CM Time Has Come To Make Top Bureaucrats Criminally Liable; Here's Why
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-up-cm-bureaucrats-criminal-liability-superior-responsibility-corruption-delays-536809
-
-[Read on Telegram](https://t.me/livelawindia/112342)
-
----
-### 2026-06-04T09:30:37+00:00
-Kerala High Court's District Court Case Management System Wins National Award For E-Governance For AI- Driven Citizen-Centric Services
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-district-case-management-system-ai-citizen-centric-service-e-governance-536810
-
-[Read on Telegram](https://t.me/livelawindia/112343)
-
----
-### 2026-06-04T09:39:07+00:00
-Rajya Sabha Election Bribery Row | 'No Cognizable Offence Remains, S140(1) BNS Deleted': Accused Challenging FIR Tells Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-fir-registration-legality-odisha-rajya-sabha-bribery-case-536813
-
-[Read on Telegram](https://t.me/livelawindia/112344)
-
----
-### 2026-06-04T09:43:07+00:00
-Disability Developed After 14 Years Of Army Service Presumed Attributable To Service Absent Cogent Rebuttal: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-disability-developed-after-14-years-of-army-service-cannot-be-denied-attributability-without-adequate-reasoning-536763
-
-[Read on Telegram](https://t.me/livelawindia/112345)
-
----
 ### 2026-06-04T09:48:07+00:00
 Land Revenue Act | Revisional Powers U/S 15 Must Be Exercised Within Reasonable Time; Unexplained 20-Year Delay Impermissible: J&K&L High Court
 https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-land-revenue-act-revisional-powers-under-section-15-must-be-exercised-within-reasonable-time-20-year-delay-without-explanation-impermissible-536768
@@ -142,5 +37,110 @@ Orissa High Court Refuses Interim Relief In Plea Against April 1 Cut-Off Date To
 https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-ruling-odisha-judicial-service-three-year-practice-cut-off-date-536811
 
 [Read on Telegram](https://t.me/livelawindia/112350)
+
+---
+### 2026-06-04T10:46:57+00:00
+Amicus Flags Child Trafficking Through IVF, Surrogacy Centres; Supreme Court Seeks Union's Response
+https://www.livelaw.in/top-stories/amicus-flags-child-trafficking-through-ivf-surrogacy-centres-supreme-court-seeks-unions-response-536826
+
+[Read on Telegram](https://t.me/livelawindia/112351)
+
+---
+### 2026-06-04T11:04:57+00:00
+Homestay Owner Moves Karnataka High Court In Plea For Quashing FIR Over Alleged Rape Of US Woman
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-homestay-owner-seeks-fir-quashing-sexual-assault-case-536830
+
+[Read on Telegram](https://t.me/livelawindia/112352)
+
+---
+### 2026-06-04T11:20:07+00:00
+Kerala High Court Rejects Jolly Joseph's Plea Against Order Allowing Examination Of Expert Who Gave Opinion On Allegedly Forged Will
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-koodathayi-murder-jolly-joseph-will-forged-536832
+
+[Read on Telegram](https://t.me/livelawindia/112353)
+
+---
+### 2026-06-04T11:48:27+00:00
+Accurate Reporting Of Orally Dictated Order Before Signing Not Contempt : P&H High Court Drops Proceedings Against Media
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-fair-accurate-reporting-not-contempt-drops-contempt-proceedings-against-media-over-report-on-unsigned-judgment-536836
+
+[Read on Telegram](https://t.me/livelawindia/112354)
+
+---
+### 2026-06-04T12:22:37+00:00
+Invoking Kautilya, Allahabad High Court Flags IAS Officer's Conduct To DoPT For Resisting HC Directives On Police Reforms
+https://www.livelaw.in/high-court/allahabad-high-court/kautilya-allahabad-high-court-ias-sanjay-prasad-conduct-dopt-police-reforms-536839
+
+[Read on Telegram](https://t.me/livelawindia/112355)
+
+---
+### 2026-06-04T12:32:37+00:00
+Mere Assertion That Accused Opted For Search Before Gazetted Officer Does Not Establish Compliance With S.50 NDPS Act: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-ndps-act-search-before-gazetted-officer-must-be-proved-when-accused-exercises-right-under-section-50-contradictory-police-testimony-vitiates-recovery-536770
+
+[Read on Telegram](https://t.me/livelawindia/112356)
+
+---
+### 2026-06-04T12:37:37+00:00
+ECTA Has A Dispute Architecture Problem. CECA Should Fix It
+https://www.livelaw.in/articles/india-australia-economic-cooperation-and-trade-agreement-dispute-settlement-architecture-mediation-536842
+
+[Read on Telegram](https://t.me/livelawindia/112357)
+
+---
+### 2026-06-04T13:03:27+00:00
+Contractual Professionals Not Entitled To Remuneration Beyond Contract Period Without Proof Of Work Performed: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/concerted-effort-to-defraud-public-exchequer-jk-hc-sets-aside-payment-order-to-contractual-professionals-labels-experience-certificates-issued-after-termination-as-managed-in-connivance-536765
+
+[Read on Telegram](https://t.me/livelawindia/112358)
+
+---
+### 2026-06-04T13:22:47+00:00
+Persons With Down Syndrome Entitled To Protections Under National Trust Act 1999, Including Appointment Of Guardians: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-down-syndrome-national-trust-guardian-536840
+
+[Read on Telegram](https://t.me/livelawindia/112359)
+
+---
+### 2026-06-04T13:35:27+00:00
+CBSE Boards : Saudi Student Moves Supreme Court Over Failure To Declare Class XII Improvement Result After Exam Cancellations In Gulf
+https://www.livelaw.in/top-stories/supreme-court-cbse-class-12-improvement-exam-result-saudi-arabia-student-536845
+
+[Read on Telegram](https://t.me/livelawindia/112360)
+
+---
+### 2026-06-04T13:41:47+00:00
+Supreme Court Rejects Plea Seeking Guidelines Regulating Adjournments, Timelines For Case Disposals
+https://www.livelaw.in/top-stories/supreme-court-rejects-plea-national-guidelines-adjournments-case-timelines-536846
+
+[Read on Telegram](https://t.me/livelawindia/112361)
+
+---
+### 2026-06-04T14:04:37+00:00
+A Judgment On Electronic Evidence
+https://www.livelaw.in/articles/kerala-high-court-madhu-lynching-case-judgment-and-electronic-evidence-analysis-536849
+
+[Read on Telegram](https://t.me/livelawindia/112362)
+
+---
+### 2026-06-04T14:16:18+00:00
+Allahabad High Court Seeks Judicial Officer's Explanation For Remanding 'Juvenile' To Jail, Summons Arresting Cops
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-magistrate-explanation-remanding-juvenile-jail-summons-cops-536850
+
+[Read on Telegram](https://t.me/livelawindia/112363)
+
+---
+### 2026-06-04T14:17:38+00:00
+Even In Absence Of Express Provision In Notice Inviting Tender, State Retains Inherent Power To Blacklist Contractor: Patna HC
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-inherent-power-blacklist-contractor-absence-express-provision-natural-justice-536841
+
+[Read on Telegram](https://t.me/livelawindia/112364)
+
+---
+### 2026-06-04T14:27:38+00:00
+P&H High Court Grants Anticipatory Bail In Excise Case, Says Custodial Interrogation Cannot Be Used To Extract Information After Recovery
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-grants-anticipatory-bail-in-excise-case-says-custodial-interrogation-cannot-be-used-to-extract-information-after-recovery-536848
+
+[Read on Telegram](https://t.me/livelawindia/112365)
 
 ---
