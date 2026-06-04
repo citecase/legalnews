@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-04T09:51:32+00:00*
+*Last Updated: 2026-06-04T14:52:55+00:00*
+
+---
+
+### 2026-06-04T14:52:55+00:00
+Offence U/S 324 IPC Can’t Be Regarded As Minor Offence To Offence U/S 332 IPC Within Meaning Of Section 222 CrPC: Kerala High Court
+https://www.verdictum.in/kerala-high-court/babu-avarachan-v-state-of-kerala-2026ker35293-sec324-ipc-sec332-constable-1615313
+
+[Source Link](https://t.me/verdictumlegalupdates/27396)
+
+---
+
+### 2026-06-04T14:12:13+00:00
+Copy-Pasting Statutory Language Without Application of Mind Not Sufficient: Karnataka High Court Sets Aside Provisional Attachment Of A Widow's Property Under PMLA
+https://www.verdictum.in/karnataka-high-court/jayamma-v-directorate-of-enforcement-2026khc25829-copy-pasting-statutory-language-1615312
+
+[Source Link](https://t.me/verdictumlegalupdates/27395)
+
+---
+
+### 2026-06-04T13:32:31+00:00
+Constitutional Courts Can't Remain Mute Spectators: SC Seeks Action Against Officer For Two-Decade Delay In Criminal Investigation
+https://www.verdictum.in/supreme-court/sahil-abdulsattar-mansuri-v-safimahamad-fafirbhai-mansuri-2026-insc-626-delay-investigation-1615319
+
+[Source Link](https://t.me/verdictumlegalupdates/27394)
+
+---
+
+### 2026-06-04T12:52:49+00:00
+Subsequent Property Purchasers Step Into Shoes Of Judgment Debtor, Can’t Be Treated As Third Parties To Avoid Bar U/S 47 CPC: Kerala High Court
+https://www.verdictum.in/kerala-high-court/k-geetha-v-s-varadharajan-ors-2026ker38215-section-47-order-xxi-cpc-1615310
+
+[Source Link](https://t.me/verdictumlegalupdates/27393)
+
+---
+
+### 2026-06-04T12:02:47+00:00
+All Precedents In Motor Accident Cases Only Persuasive In Nature, Each Case Should Be Dealt Independently: Supreme Court
+https://www.verdictum.in/supreme-court/reliance-general-insurance-company-ltd-v-avtar-singh-2026-insc-625-precedents-persuasive-1615305
+
+[Source Link](https://t.me/verdictumlegalupdates/27392)
+
+---
+
+### 2026-06-04T11:13:15+00:00
+"Presumption In Favour Of Responsible AI Adoption": Supreme Court Invites Public Feedback On Draft AI Regulations For Courts
+https://www.verdictum.in/supreme-court/regulations-for-use-of-artificial-intelligence-in-courts-2026-1615304
+
+[Source Link](https://t.me/verdictumlegalupdates/27391)
+
+---
+
+### 2026-06-04T10:32:54+00:00
+Criminal Law Can’t Be Used To Silence Citizen Merely Because He Questions Legality Of Police Action: Madras High Court Quashes Proceedings
+https://www.verdictum.in/madras-high-court/thomas-dhamas-v-the-state-of-tamilnadu-criminal-law-citizen-police-action-1615303
+
+[Source Link](https://t.me/verdictumlegalupdates/27390)
 
 ---
 
@@ -105,62 +161,6 @@ Can’t Force Husband-Wife Relationship By Judicial Proceedings: Supreme Court G
 https://www.verdictum.in/supreme-court/a-v-b-2026-insc-623-husband-wife-relationship-judicial-proceedings-divorce-article-142-1615251
 
 [Source Link](https://t.me/verdictumlegalupdates/27377)
-
----
-
-### 2026-06-03T14:33:05+00:00
-Transitory Provisions Prevent Complete Cessation Of Judicial Functions: Kerala High Court Upholds Validity Of 2026 Industrial Relations Code Amendment Act
-https://www.verdictum.in/kerala-high-court/mk-suresh-kumar-v-union-of-india-industrial-relations-code-amendment-act-upheld-1615250
-
-[Source Link](https://t.me/verdictumlegalupdates/27376)
-
----
-
-### 2026-06-03T14:02:43+00:00
-‘Committee Should Have Been Little More Sensitive’: Madras High Court Permits Bangladeshi Woman To Donate Her Kidney To Minor Son
-https://www.verdictum.in/madras-high-court/minor-atonu-saha-v-the-state-of-tamil-nadu-wp-no-20140-of-2026-bangladeshi-woman-donate-kidney-1615249
-
-[Source Link](https://t.me/verdictumlegalupdates/27375)
-
----
-
-### 2026-06-03T13:32:32+00:00
-Failure To Mention Amount In Demand Notice U/s.138 (b) Of NI Act Would Make It Incomplete: Kerala High Court
-https://www.verdictum.in/kerala-high-court/rajesh-k-v-asokan-pk-2026ker36763-demand-notice-section-138-ni-act-1615245
-
-[Source Link](https://t.me/verdictumlegalupdates/27374)
-
----
-
-### 2026-06-03T13:02:30+00:00
-Non Supplying Ground Of Arrest And Non Preparation Of Disclosure Memo At Police Station Has Become Routine Practice: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/2026-ahc-11988-sandeep-baisoya-v-state-1615244
-
-[Source Link](https://t.me/verdictumlegalupdates/27373)
-
----
-
-### 2026-06-03T12:32:29+00:00
-Chargesheet E-filed After 5PM On Last Day Of Limitation Must Be Deemed As Instituted On Next Working Day: Kerala High Court Grants Default Bail To NDPS Accused
-https://www.verdictum.in/kerala-high-court/2026-ker-37508-aboobacker-siddique-v-state-of-kerala-1615241
-
-[Source Link](https://t.me/verdictumlegalupdates/27372)
-
----
-
-### 2026-06-03T12:03:07+00:00
-Madras High Court Directs Construction Of Permanent Ramps In Routinely Notified Polling Booths For Persons With Disabilities
-https://www.verdictum.in/madras-high-court/vaishnavi-jayakumar-v-the-election-commission-of-india-ors-2026mhc1751-1615236
-
-[Source Link](https://t.me/verdictumlegalupdates/27371)
-
----
-
-### 2026-06-03T11:33:06+00:00
-“Start Line Of Copyright Registration Journey Was Incorrect”: Delhi High Court Cancels Gujarat Pesticides’ ‘ZOOOK’ Label Copyright
-https://www.verdictum.in/delhi-high-court/fortune-marketing-pvt-ltd-v-gujarat-pesticides-2026dhc4850-pesticides-zoook-label-copyright-1615235
-
-[Source Link](https://t.me/verdictumlegalupdates/27370)
 
 ---
 
