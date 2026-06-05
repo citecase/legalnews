@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-05T11:23:22+00:00*
+*Last Updated: 2026-06-05T12:02:52+00:00*
 
 ---
 
-### 2026-06-05T11:23:22+00:00
-Kurnool Consumer Commission Directs HDFC Life To Pay ₹50 Lakh Insurance Claim; Holds Ambiguity In Proposal Form Questions Must Be Construed Against Insurer
-https://www.livelaw.in/consumer-cases/kurnool-consumer-commission-directs-hdfc-life-to-pay-50-lakh-insurance-claim-holds-ambiguity-in-proposal-form-questions-must-be-construed-against-insurer-536950
-
-[Read on Telegram](https://t.me/livelawindia/112413)
-
----
-### 2026-06-05T11:27:22+00:00
-Jharkhand HC Vacation Bench Led By Justice Rongon Mukhopadhyay Disposes 853 Cases During Summer Break
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-vacation-bench-cases-disposed-summer-break-536945
-
-[Read on Telegram](https://t.me/livelawindia/112414)
-
----
-### 2026-06-05T11:33:02+00:00
-Karnataka High Court Refuses To Pass Interim Order Permitting KSAT Member To Continue In Office After Expiry Of Tenure Next Week
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-declines-ksat-member-tenure-extension-government-notification-536949
-
-[Read on Telegram](https://t.me/livelawindia/112415)
-
----
-### 2026-06-05T11:42:22+00:00
-Tamil Thaai Vaazhthu Row: Plea Against Moving Of Song To Third Place During CM Vijay's Swearing-In Ceremony Withdrawn From Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-tamil-thai-vaazhthu-third-place-cm-swearing-in-withdrawn-536952
-
-[Read on Telegram](https://t.me/livelawindia/112416)
-
----
-### 2026-06-05T11:57:12+00:00
-'Heard For 25 Days': Kerala High Court Questions Independent Candidate For Seeking Review Of Order Upholding Suresh Gopi's Election
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-review-petition-suresh-gopi-election-536955
-
-[Read on Telegram](https://t.me/livelawindia/112417)
-
----
-### 2026-06-05T12:01:32+00:00
-BJP Leader Moves PIL Before Kerala High Court Alleging That State Waqf Board Functioning Without Mandatory Non-Muslim Members
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-waqf-board-non-muslim-members-536956
-
-[Read on Telegram](https://t.me/livelawindia/112418)
-
----
-### 2026-06-05T12:02:12+00:00
-Consumer Failed To Rebut Investigator's Findings; Delhi State Commission Sets Aside Mediclaim Reimbursement Order
-https://www.livelaw.in/consumer-cases/consumer-failed-to-rebut-investigators-findings-delhi-state-commission-sets-aside-mediclaim-reimbursement-order-536953
-
-[Read on Telegram](https://t.me/livelawindia/112419)
-
----
 ### 2026-06-05T12:02:52+00:00
 Kerala High Court Directs Addition Of Father's Name In Birth Certificate Of Child Conceived Through IVF When Parents Were Living Together
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-living-together-parents-birth-certificate-536944
@@ -142,5 +93,54 @@ CPC Cannot Override RP Act In Election Petitions; Only Parties Specified Under S
 https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-provisions-of-cpc-contrary-to-section-82-of-representation-of-people-act-cannot-be-invoked-to-implead-parties-to-election-petition-536947
 
 [Read on Telegram](https://t.me/livelawindia/112432)
+
+---
+### 2026-06-05T15:18:14+00:00
+Franchise Dispute Cannot Be Given Criminal Colour; Madras High Court Quashes FIR Against 5K Car Care Owner
+https://www.livelaw.in/law-firms/litigation/franchise-dispute-cannot-be-given-criminal-colour-madras-high-court-quashes-fir-against-5k-car-care-owner-536976
+
+[Read on Telegram](https://t.me/livelawindia/112433)
+
+---
+### 2026-06-05T15:30:34+00:00
+Rajasthan HC Takes Suo Motu Cognizance of Threats to State Wetlands, Orders Immediate Protective Measures
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-takes-suo-motu-cognizance-wetlands-conservation-protection-536977
+
+[Read on Telegram](https://t.me/livelawindia/112434)
+
+---
+### 2026-06-05T15:36:14+00:00
+2026 LiveLaw (SC) 602 | V K Singh v. CBI
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-602-v-k-singh-v-cbi-536979
+
+[Read on Telegram](https://t.me/livelawindia/112435)
+
+---
+### 2026-06-05T16:57:15+00:00
+'Encounter Killings, Selective Crackdowns': Allahabad HC Slams UP Police Over Targeted Actions; Flags Misuse Of Gangsters Act
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-encounter-killings-up-police-misuse-gangsters-act-536982
+
+[Read on Telegram](https://t.me/livelawindia/112436)
+
+---
+### 2026-06-05T17:04:55+00:00
+India High Commission In London Condemns 'Indecorous Audience Behaviour' During Event Attended By CJI Surya Kant
+https://www.livelaw.in/top-stories/india-high-commission-in-london-condemns-indecorous-audience-behaviour-during-event-attended-by-cji-surya-kant-536983
+
+[Read on Telegram](https://t.me/livelawindia/112437)
+
+---
+### 2026-06-05T17:13:16+00:00
+Supreme Court Daily Round-Up : June 5, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-june-5-2026-536981
+
+[Read on Telegram](https://t.me/livelawindia/112438)
+
+---
+### 2026-06-05T17:45:25+00:00
+'Loyalty Towards Rulers, Not Constitution; Rule Of Law Treated As Inconvenience': Allahabad HC Tears Into UP Bureaucracy
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-loyalty-rulers-not-constitution-rule-of-law-up-bureaucracy-536984
+
+[Read on Telegram](https://t.me/livelawindia/112439)
 
 ---
