@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-04T16:02:17+00:00*
+*Last Updated: 2026-06-05T04:33:26+00:00*
+
+---
+
+### 2026-06-05T04:33:26+00:00
+Unilateral Revocation Of Validly Granted Building Permission Sans Proof Of Fraud Violates Article 300-A Constitution: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/smt-manju-chawla-and-others-v-indore-municipal-corporation-2026mphc-ind15157-article-300-a-1615311
+
+[Source Link](https://t.me/verdictumlegalupdates/27398)
 
 ---
 
@@ -153,14 +161,6 @@ Research Associate Vacancy At Allahabad High Court
 https://www.verdictum.in/job-updates/allahabad-high-court-1615243
 
 [Source Link](https://t.me/verdictumlegalupdates/27379)
-
----
-
-### 2026-06-03T15:32:48+00:00
-Marital Status Cannot Constitute Valid Ground To Deny Welfare Measures Benefits To Otherwise Eligible Daughter: Supreme Court
-https://www.verdictum.in/supreme-court/kulsum-nisha-v-state-of-up-ors-2026-insc-617-fair-price-shop-daughter-1615252
-
-[Source Link](https://t.me/verdictumlegalupdates/27378)
 
 ---
 
