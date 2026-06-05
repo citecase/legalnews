@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-05T04:33:26+00:00*
+*Last Updated: 2026-06-05T10:12:27+00:00*
+
+---
+
+### 2026-06-05T10:12:27+00:00
+Supreme Court Refuses To Entertain Plea To Fill Vacant Posts In State Human Rights Commissions
+https://www.verdictum.in/supreme-court/supreme-court-refuses-to-entertain-plea-to-fill-vacant-posts-in-state-human-rights-commissions-1615367
+
+[Source Link](https://t.me/verdictumlegalupdates/27405)
+
+---
+
+### 2026-06-05T09:32:24+00:00
+State Can't Acquire Land For Individual Entity Of Its Choice At Expense Of Poor Landowners By Invoking Eminent Domain: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/mukesh-kumar-v-the-state-of-karnataka-connected-matters-land-eminent-domain-1615366
+
+[Source Link](https://t.me/verdictumlegalupdates/27404)
+
+---
+
+### 2026-06-05T08:33:07+00:00
+Delhi High Court Refuses Urgent Hearing On Plea Against Cockroach Janta Party’s June 6 Protest
+https://www.verdictum.in/delhi-high-court/delhi-high-court-refuses-urgent-hearing-on-plea-against-cockroach-janta-partys-june-6-protest-1615361
+
+[Source Link](https://t.me/verdictumlegalupdates/27403)
+
+---
+
+### 2026-06-05T07:52:42+00:00
+Approached DGP First Instead of Local SHO: Himachal Pradesh High Court Quashes FIR For Not Following Mandatory Procedure U/S 154 CrPC
+https://www.verdictum.in/himachal-high-court/sanjeev-kumar-sharma-v-state-of-hp-2026hhc21234-approached-dgp-instead-of-local-sho-section-154-crpc-1615359
+
+[Source Link](https://t.me/verdictumlegalupdates/27402)
+
+---
+
+### 2026-06-05T07:03:00+00:00
+Statutory Amendment Overrides Contractual Clause: Supreme Court Upholds Deduction Of Enhanced Royalty From Security Deposit
+https://www.verdictum.in/supreme-court/the-director-of-mines-and-geology-v-ms-bmm-ispat-ltd-anr-2026-insc-627-1615356
+
+[Source Link](https://t.me/verdictumlegalupdates/27401)
+
+---
+
+### 2026-06-05T06:12:19+00:00
+Suit By Worshipper Maintainable In Cases Where Trustee Acts Prejudicially To Temple Deity's Interest: Kerala High Court
+https://www.verdictum.in/kerala-high-court/vijayakumaran-ors-v-govindapuram-temple-ors-2026ker33749-1615348
+
+[Source Link](https://t.me/verdictumlegalupdates/27400)
+
+---
+
+### 2026-06-05T05:22:37+00:00
+Kerala High Court Orders Child Access & Custody Guidelines Issued By Calcutta High Court To Be Followed By Family Courts
+https://www.verdictum.in/kerala-high-court/a-v-the-director-general-of-police-2026ker37511-child-access-custody-family-courts-1615341
+
+[Source Link](https://t.me/verdictumlegalupdates/27399)
 
 ---
 
@@ -105,62 +161,6 @@ Madras High Court Directs State To Consider “SINGAPEN Sensitisation Workshop�
 https://www.verdictum.in/madras-high-court/mikavel-v-state-of-tamil-nadu-ors-and-connected-matters-2026-pocso-1615293
 
 [Source Link](https://t.me/verdictumlegalupdates/27386)
-
----
-
-### 2026-06-04T07:12:47+00:00
-Prolonged Separation Can Be Treated As An Indicator Of Mental Cruelty To Grant Divorce Under Hindu Marriage Act: Supreme Court
-https://www.verdictum.in/supreme-court/st-v-vs-2026-insc-620-divorce-proceedings-mental-cruelty-desertion-hma-1615292
-
-[Source Link](https://t.me/verdictumlegalupdates/27385)
-
----
-
-### 2026-06-04T06:33:05+00:00
-Section 17 CPC| Mere Existence Of One Item Or Portion Out Of Several Items Of Properties Within Territorial Limits Would Be Sufficient To Confer Jurisdiction: Kerala High Court
-https://www.verdictum.in/kerala-high-court/pv-surendran-v-kavitha-rajendrandied-2026ker35893-section-17-cpc-immovable-property-1615287
-
-[Source Link](https://t.me/verdictumlegalupdates/27384)
-
----
-
-### 2026-06-04T06:02:24+00:00
-Delhi High Court Grants Bail To HIV-Positive Woman Accused Of Carrying 10 Kg Ganja With Fake NIA Credentials
-https://www.verdictum.in/delhi-high-court/x-v-state-nct-of-delhi-2026dhc4945-hiv-positive-woman-accused-of-carrying-10-kg-ganj-fake-nia-credentials-ndps-1615283
-
-[Source Link](https://t.me/verdictumlegalupdates/27383)
-
----
-
-### 2026-06-04T05:32:23+00:00
-Section 48 UAPA Won’t Render Section 36A NDPS Act Inapplicable: Jammu & Kashmir And Ladakh High Court Refuses Default Bail In Narco-Terror Financing Case
-https://www.verdictum.in/jammu-ladakh-high-court/riyaz-ahmad-hajam-v-union-territory-2026jklhc-sgr184-uapa-ndps-narco-terror-financing-1615281
-
-[Source Link](https://t.me/verdictumlegalupdates/27382)
-
----
-
-### 2026-06-04T05:03:01+00:00
-Forcing A Relationship Of Husband & Wife Cannot Be Done By Judicial Proceedings: Supreme Court Grants Divorce After 22 Years Of Separation
-https://www.verdictum.in/supreme-court/x-v-y-civil-appeal-nos-8212-8213-of-2026-article-142-to-dissolve-marriage-of-couple-1615279
-
-[Source Link](https://t.me/verdictumlegalupdates/27381)
-
----
-
-### 2026-06-04T04:33:10+00:00
-FIR Filed 23 Years After Civil Suit On Same Facts Raises Doubts Over Bona Fides: Supreme Court Quashes Forgery Case
-https://www.verdictum.in/supreme-court/nazibul-rahim-khan-v-state-of-uttar-pradesh-2026-insc-619-fir-filed-23-years-after-civil-suit-forgery-1615277
-
-[Source Link](https://t.me/verdictumlegalupdates/27380)
-
----
-
-### 2026-06-03T16:03:09+00:00
-Research Associate Vacancy At Allahabad High Court
-https://www.verdictum.in/job-updates/allahabad-high-court-1615243
-
-[Source Link](https://t.me/verdictumlegalupdates/27379)
 
 ---
 
