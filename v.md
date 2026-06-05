@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-05T15:02:54+00:00*
+*Last Updated: 2026-06-05T15:52:17+00:00*
+
+---
+
+### 2026-06-05T15:52:17+00:00
+Repossession Of Financed Vehicle Through Recovery Agents Without Following Due Process Violates Article 300A: Uttarakhand High Court
+https://www.verdictum.in/uttarakhand-high-court/savitri-devi-v-icici-bank-limited-ors-2026uhc3157-bank-finance-recovery-agents-1615379
+
+[Source Link](https://t.me/verdictumlegalupdates/27412)
 
 ---
 
@@ -153,14 +161,6 @@ Subsequent Property Purchasers Step Into Shoes Of Judgment Debtor, Can’t Be Tr
 https://www.verdictum.in/kerala-high-court/k-geetha-v-s-varadharajan-ors-2026ker38215-section-47-order-xxi-cpc-1615310
 
 [Source Link](https://t.me/verdictumlegalupdates/27393)
-
----
-
-### 2026-06-04T12:02:47+00:00
-All Precedents In Motor Accident Cases Only Persuasive In Nature, Each Case Should Be Dealt Independently: Supreme Court
-https://www.verdictum.in/supreme-court/reliance-general-insurance-company-ltd-v-avtar-singh-2026-insc-625-precedents-persuasive-1615305
-
-[Source Link](https://t.me/verdictumlegalupdates/27392)
 
 ---
 
