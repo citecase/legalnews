@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-04T11:04:57+00:00*
+*Last Updated: 2026-06-04T11:20:07+00:00*
 
 ---
 
-### 2026-06-04T11:04:57+00:00
-Homestay Owner Moves Karnataka High Court In Plea For Quashing FIR Over Alleged Rape Of US Woman
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-homestay-owner-seeks-fir-quashing-sexual-assault-case-536830
-
-[Read on Telegram](https://t.me/livelawindia/112352)
-
----
 ### 2026-06-04T11:20:07+00:00
 Kerala High Court Rejects Jolly Joseph's Plea Against Order Allowing Examination Of Expert Who Gave Opinion On Allegedly Forged Will
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-koodathayi-murder-jolly-joseph-will-forged-536832
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : June 4, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-june-4-2026-536856
 
 [Read on Telegram](https://t.me/livelawindia/112371)
+
+---
+### 2026-06-05T04:14:16+00:00
+10 Years After Election, Madras High Court Declares Defeated Candidate Winner; Raises Concerns Over Delay In Election Petitions
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-appavu-delcared-winner-after-10-years-expeditious-trial-rp-act-536868
+
+[Read on Telegram](https://t.me/livelawindia/112372)
 
 ---
