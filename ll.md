@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-05T06:05:21+00:00*
+*Last Updated: 2026-06-05T11:23:22+00:00*
 
 ---
 
-### 2026-06-05T06:05:21+00:00
-Uttarakhand HC Upholds 2 FIRs Against Suresh Rathore Over Social Media Posts Linking BJP Leader To Ankita Bhandari's Murder
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-suresh-rathore-fir-ankita-bhandari-murder-caseankita-bhandari-murder-case-uttarakhand-high-court-quashes-two-firs-against-ex-mla-suresh-rathore-over-objectionable-social-media-posts-536897
+### 2026-06-05T11:23:22+00:00
+Kurnool Consumer Commission Directs HDFC Life To Pay ₹50 Lakh Insurance Claim; Holds Ambiguity In Proposal Form Questions Must Be Construed Against Insurer
+https://www.livelaw.in/consumer-cases/kurnool-consumer-commission-directs-hdfc-life-to-pay-50-lakh-insurance-claim-holds-ambiguity-in-proposal-form-questions-must-be-construed-against-insurer-536950
 
-[Read on Telegram](https://t.me/livelawindia/112388)
-
----
-### 2026-06-05T06:06:41+00:00
-Team E-Mediation Writings (EMW) Marks Its 6th Anniversary With Launch Of E-Mediation Initiatives
-https://www.livelaw.in/events/emediation-writings-launches-online-mediation-education-series-and-magazine-536898
-
-[Read on Telegram](https://t.me/livelawindia/112389)
+[Read on Telegram](https://t.me/livelawindia/112413)
 
 ---
-### 2026-06-05T06:10:01+00:00
-"You May Arrest, But You Cannot Humiliate": Calcutta High Court Orally Remarks On Police Parading Accused With Ropes Around Waists
-https://www.livelaw.in/high-court/calcutta-high-court/you-may-arrest-but-you-cannot-humiliate-them-calcutta-high-court-orally-remarks-on-police-parading-accused-with-ropes-around-waists-536899
+### 2026-06-05T11:27:22+00:00
+Jharkhand HC Vacation Bench Led By Justice Rongon Mukhopadhyay Disposes 853 Cases During Summer Break
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-vacation-bench-cases-disposed-summer-break-536945
 
-[Read on Telegram](https://t.me/livelawindia/112390)
-
----
-### 2026-06-05T06:11:41+00:00
-Product Manager Vacancy At Kotak Mahindra Bank Limited [Apply Now]
-https://www.livelaw.in/job-updates/product-manager-vacancy-at-kotak-mahindra-bank-limited-536900
-
-[Read on Telegram](https://t.me/livelawindia/112391)
+[Read on Telegram](https://t.me/livelawindia/112414)
 
 ---
-### 2026-06-05T06:14:21+00:00
-Professor Of Practice Vacancy At Government Higher Education Institutions, Gujarat
-https://www.livelaw.in/job-updates/professor-of-practice-vacancy-at-government-higher-education-institutions-gujarat-536902
+### 2026-06-05T11:33:02+00:00
+Karnataka High Court Refuses To Pass Interim Order Permitting KSAT Member To Continue In Office After Expiry Of Tenure Next Week
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-declines-ksat-member-tenure-extension-government-notification-536949
 
-[Read on Telegram](https://t.me/livelawindia/112392)
-
----
-### 2026-06-05T06:15:41+00:00
-In A First, Four Women High Court Chief Justices In India
-https://www.livelaw.in/top-stories/in-a-first-four-women-high-court-chief-justices-in-india-536903
-
-[Read on Telegram](https://t.me/livelawindia/112393)
+[Read on Telegram](https://t.me/livelawindia/112415)
 
 ---
-### 2026-06-05T06:16:01+00:00
-High Court Rejects Centre's Appeal Against Order In Pleas Challenging 'Kerala Story 2' Movie Certification, Keeps Maintainability Issue Open
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kerala-story-2-cbfc-union-appeal-536904
+### 2026-06-05T11:42:22+00:00
+Tamil Thaai Vaazhthu Row: Plea Against Moving Of Song To Third Place During CM Vijay's Swearing-In Ceremony Withdrawn From Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-tamil-thai-vaazhthu-third-place-cm-swearing-in-withdrawn-536952
 
-[Read on Telegram](https://t.me/livelawindia/112394)
-
----
-### 2026-06-05T06:23:01+00:00
-Delhi High Court Refuses Urgent Hearing Of PIL Seeking Preventive Action Against Cockroach Janta Party's Protest
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-urgent-hearing-of-pil-seeking-preventive-action-against-cockroach-janta-partys-protest-536906
-
-[Read on Telegram](https://t.me/livelawindia/112395)
+[Read on Telegram](https://t.me/livelawindia/112416)
 
 ---
-### 2026-06-05T06:32:21+00:00
-Justice Meenakshi Madan Rai Sworn-In As Patna High Court's First Woman Chief Justice
-https://www.livelaw.in/high-court/patna-high-court/justice-meenakshi-madan-rai-sworn-in-as-patna-high-court-chief-justice-536907
+### 2026-06-05T11:57:12+00:00
+'Heard For 25 Days': Kerala High Court Questions Independent Candidate For Seeking Review Of Order Upholding Suresh Gopi's Election
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-review-petition-suresh-gopi-election-536955
 
-[Read on Telegram](https://t.me/livelawindia/112396)
-
----
-### 2026-06-05T06:52:21+00:00
-Approaching DGP Instead Of Officer-In-Charge Of Police Station Does Not Satisfy Section 154 CrPC: Himachal Pradesh High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-section-154-crpc-fir-registration-magistrate-order-quashed-536862
-
-[Read on Telegram](https://t.me/livelawindia/112397)
+[Read on Telegram](https://t.me/livelawindia/112417)
 
 ---
-### 2026-06-05T07:03:51+00:00
-Allahabad HC Grants Bail In Rape & Murder Case With 'Heavy Heart', Slams UP Govt Over Poor Forensic Lab Infra
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-bail-rape-murder-heavy-heart-up-govt-poor-forensic-lab-infra-536911
+### 2026-06-05T12:01:32+00:00
+BJP Leader Moves PIL Before Kerala High Court Alleging That State Waqf Board Functioning Without Mandatory Non-Muslim Members
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-waqf-board-non-muslim-members-536956
 
-[Read on Telegram](https://t.me/livelawindia/112398)
-
----
-### 2026-06-05T07:16:31+00:00
-Supreme Court Issues Contempt Notice To AIIMS Acting Director Over Failure To File Affidavit
-https://www.livelaw.in/top-stories/supreme-court-issues-contempt-notice-to-aiims-acting-director-over-failure-to-file-affidavit-536913
-
-[Read on Telegram](https://t.me/livelawindia/112399)
+[Read on Telegram](https://t.me/livelawindia/112418)
 
 ---
-### 2026-06-05T07:17:51+00:00
-Rape Conviction Can Rest On Victim's Testimony Despite Failed Test Identification Parade, Negative Forensic Report: Sikkim High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/sikkim-high-court-upholds-rape-conviction-victim-testimony-medical-evidence-failed-tip-536860
+### 2026-06-05T12:02:12+00:00
+Consumer Failed To Rebut Investigator's Findings; Delhi State Commission Sets Aside Mediclaim Reimbursement Order
+https://www.livelaw.in/consumer-cases/consumer-failed-to-rebut-investigators-findings-delhi-state-commission-sets-aside-mediclaim-reimbursement-order-536953
 
-[Read on Telegram](https://t.me/livelawindia/112400)
-
----
-### 2026-06-05T07:32:11+00:00
-Delhi Riots: High Court Vacates Interim Order Restraining Trial Court From Passing Final Orders On Framing Of Charge
-https://www.livelaw.in/high-court/delhi-high-court/delhi-riots-high-court-vacates-order-restraining-trial-court-final-orders-framing-of-charge-536915
-
-[Read on Telegram](https://t.me/livelawindia/112401)
+[Read on Telegram](https://t.me/livelawindia/112419)
 
 ---
-### 2026-06-05T08:07:42+00:00
-Mere Receipt Of Money Without Evidence Of Utilisation For Financing Illicit Trafficking Does Not Attract S.27A NDPS Act: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/mere-receipt-of-money-without-evidence-of-utilisation-for-financing-illicit-trafficking-does-not-attract-section-27-a-ndps-act-jk-high-court-sets-aside-bail-cancellation-536859
+### 2026-06-05T12:02:52+00:00
+Kerala High Court Directs Addition Of Father's Name In Birth Certificate Of Child Conceived Through IVF When Parents Were Living Together
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-living-together-parents-birth-certificate-536944
 
-[Read on Telegram](https://t.me/livelawindia/112402)
-
----
-### 2026-06-05T08:32:22+00:00
-Delhi High Court Monthly Digest: May 2026 [Citations 437 - 551]
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-monthly-digest-536544
-
-[Read on Telegram](https://t.me/livelawindia/112403)
+[Read on Telegram](https://t.me/livelawindia/112420)
 
 ---
-### 2026-06-05T08:52:52+00:00
-Madras High Court Quashes FIR Against 6 Accused Of Canvassing At Polling Booth Citing Vague, Generalised Allegations
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-guardian-against-misuse-of-criminal-process-election-offence-quashed-536922
+### 2026-06-05T12:26:22+00:00
+Supreme Court Stays Deportation Of Four Women Declared As Foreingers By Assam Tribunal
+https://www.livelaw.in/top-stories/supreme-court-stays-deportation-of-four-women-declared-as-foreingers-by-assam-tribunal-536958
 
-[Read on Telegram](https://t.me/livelawindia/112404)
-
----
-### 2026-06-05T09:03:12+00:00
-'If This Permitted, Tomorrow HC Building Not Safe: Karnataka High Court Remarks On Man's Claim Over Alleged Land Sale Housing Police Quarter
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-stay-probe-malleshwaram-police-quarters-land-sale-536921
-
-[Read on Telegram](https://t.me/livelawindia/112405)
+[Read on Telegram](https://t.me/livelawindia/112421)
 
 ---
-### 2026-06-05T09:19:42+00:00
-Madras High Court Upholds POCSO Conviction Relying On Child's DNA Report Despite Survivor Turning Hostile; Modifies Sentence To 20 Yrs
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-dna-report-conviction-upheld-victim-parents-hostile-536924
+### 2026-06-05T12:42:42+00:00
+Arbitration Now Acquiring Failings Of Formal Litigation : CJI Surya Kant
+https://www.livelaw.in/top-stories/arbitration-now-acquiring-failings-of-formal-litigation-cji-surya-kant-536960
 
-[Read on Telegram](https://t.me/livelawindia/112406)
+[Read on Telegram](https://t.me/livelawindia/112422)
 
 ---
-### 2026-06-05T09:47:42+00:00
-Love Affair, Not Statutory Rape: J&K&L High Court Acquits Man After Finding Prosecutrix's Minority Not Proved
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-father-cant-recall-dob-sister-unaware-teacher-unsure-of-school-entry-basis-court-holds-minority-not-proved-acquits-man-in-consensual-teenage-relationship-536863
+### 2026-06-05T12:43:02+00:00
+Failure Of Bail Cancellation Followed By Preventive Detention Is 'Antithetical'; J&K&L High Court Quashes PIT-NDPS Detention
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-failure-of-bail-cancellation-followed-by-preventive-detention-is-antithetical-court-quashes-pit-ndps-detention-536939
 
-[Read on Telegram](https://t.me/livelawindia/112407)
+[Read on Telegram](https://t.me/livelawindia/112423)
+
+---
+### 2026-06-05T12:49:53+00:00
+2017 Actress Assault Case: Survivor Moves Kerala High Court Seeking Fresh, Comprehensive Probe Into 'Memory Card Leak'
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-actress-assault-case-memory-card-leak-536961
+
+[Read on Telegram](https://t.me/livelawindia/112424)
+
+---
+### 2026-06-05T13:09:32+00:00
+Madras High Court Restrains Vigilance Action Against Ex-Minister KN Nehru, Others In Bribery FIR Till June 23
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-kn-nehru-cash-for-job-scam-no-further-action-till-hearing-536963
+
+[Read on Telegram](https://t.me/livelawindia/112425)
+
+---
+### 2026-06-05T13:18:04+00:00
+NDPS Act| Vehicles Turn To Junk, Value Goes Down The Drain: P&H High Court Slams Idle Confiscation, Orders Release
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-ndps-act-slams-idle-confiscation-orders-release-vehicles-turn-to-junk-value-goes-down-the-drain-536943
+
+[Read on Telegram](https://t.me/livelawindia/112426)
+
+---
+### 2026-06-05T13:18:14+00:00
+NIC Launches 'E-Prison' Software To Process Early Release Of Prisoners, Supreme Court Notes
+https://www.livelaw.in/top-stories/supreme-court-nic-launches-premature-release-software-eprisons-module-536965
+
+[Read on Telegram](https://t.me/livelawindia/112427)
+
+---
+### 2026-06-05T13:26:54+00:00
+Future Of Tort Law In India: Opportunities And Challenges
+https://www.livelaw.in/lawschool/articles/tort-law-in-india-future-challenges-access-to-justice-reforms-536967
+
+[Read on Telegram](https://t.me/livelawindia/112428)
+
+---
+### 2026-06-05T13:28:34+00:00
+Why Most People Don't Write A Will Until It's Too Late: Why Inheritance Planning Is Necessary
+https://www.livelaw.in/articles/inheritance-planning-and-why-most-people-do-not-write-will-536968
+
+[Read on Telegram](https://t.me/livelawindia/112429)
+
+---
+### 2026-06-05T13:42:54+00:00
+Executive Magistrate Can Order Removal Of Obstruction From Long-Used Village Path Without Deciding Title Dispute: HP High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-sdm-obstruction-removal-village-path-147-crpc-536942
+
+[Read on Telegram](https://t.me/livelawindia/112430)
+
+---
+### 2026-06-05T14:23:04+00:00
+Kahcharai Land Is State Property, No Individual Right To Claim Compensation For Its Acquisition For Public Purpose: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-kahcharai-land-is-state-property-no-individual-right-to-claim-compensation-for-its-acquisition-for-public-purpose-536940
+
+[Read on Telegram](https://t.me/livelawindia/112431)
+
+---
+### 2026-06-05T15:12:54+00:00
+CPC Cannot Override RP Act In Election Petitions; Only Parties Specified Under Section 82 Can Be Impleaded: J&&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-provisions-of-cpc-contrary-to-section-82-of-representation-of-people-act-cannot-be-invoked-to-implead-parties-to-election-petition-536947
+
+[Read on Telegram](https://t.me/livelawindia/112432)
 
 ---
