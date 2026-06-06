@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-06T09:02:42+00:00*
+*Last Updated: 2026-06-06T14:12:24+00:00*
+
+---
+
+### 2026-06-06T14:12:24+00:00
+Power Exercised By Magistrate U/s.14 Of SARFAESI Act Is Ministerial & Not Quasi-Judicial: Kerala High Court
+https://www.verdictum.in/kerala-high-court/the-authorized-officer-axis-bank-ltd-v-reji-paulose-2026ker37390-section-14-sarfaesi-act-1615440
+
+[Source Link](https://t.me/verdictumlegalupdates/27426)
+
+---
+
+### 2026-06-06T13:32:22+00:00
+Police Officers’ Loyalty Runs Toward Ruling Dispensation Instead Of Constitution: Allahabad High Court Warns Against Politicised Use Of Gangsters Act
+https://www.verdictum.in/allahabad-high-court/rajendra-tyagi-ors-v-state-of-up-anr-2026ahc125175-uttar-pradesh-police-1615438
+
+[Source Link](https://t.me/verdictumlegalupdates/27425)
+
+---
+
+### 2026-06-06T12:54:02+00:00
+Alteration Of Date Not Authenticated By Drawer’s Full Signature Makes Cheque Void: Kerala High Court
+https://www.verdictum.in/kerala-high-court/mary-james-v-gigi-jose-alteration-date-signature-cheque-void-1615437
+
+[Source Link](https://t.me/verdictumlegalupdates/27424)
+
+---
+
+### 2026-06-06T12:02:48+00:00
+Kerala Administrative Tribunal Must Entertain Challenges To Vires Of Statutory Recruitment Rules As Court Of First Instance: Kerala High Court
+https://www.verdictum.in/kerala-high-court/dr-sumith-s-pillai-ors-v-state-of-kerala-ors-2026ker34420-administrative-tribunal-1615436
+
+[Source Link](https://t.me/verdictumlegalupdates/27423)
+
+---
+
+### 2026-06-06T11:13:07+00:00
+Recklessly Violated Most Fundamental Essence Of Article 21: Allahabad High Court Asks State To Pay Rs 35,000 For Illegal Detention In Police Custody
+https://www.verdictum.in/allahabad-high-court/matambar-mishra-v-the-state-of-up-2026ahc123415-db-article-21-police-custody-1615435
+
+[Source Link](https://t.me/verdictumlegalupdates/27422)
+
+---
+
+### 2026-06-06T10:33:25+00:00
+Potency Test Of Accused Conducted Without Consent In POCSO Case Does Not Violate Article 21: Kerala High Court
+https://www.verdictum.in/kerala-high-court/ebin-av-v-state-of-kerala-2026ker38285-potency-test-accused-pocso-1615434
+
+[Source Link](https://t.me/verdictumlegalupdates/27421)
+
+---
+
+### 2026-06-06T09:52:44+00:00
+Some Legal Provisions Are Like An Ass: Kerala High Court Directs Inclusion Of Biological Father’s Name In Birth Certificate Of IVF-Conceived Child
+https://www.verdictum.in/kerala-high-court/x-v-state-of-kerala-2026ker37687-fathers-name-in-birth-certificate-of-ivf-conceived-child-charles-dickens-mahabharat-1615432
+
+[Source Link](https://t.me/verdictumlegalupdates/27420)
 
 ---
 
@@ -105,62 +161,6 @@ When In Doubt, Do Refer: J&K And Ladakh High Court Refers Contract Dispute To Ar
 https://www.verdictum.in/jammu-ladakh-high-court/ms-hassan-roads-construction-company-pvt-ltd-v-jk-economic-reconstruction-agency-era-2026jklhc-sgr157-arbitration-despite-non-invocation-1615369
 
 [Source Link](https://t.me/verdictumlegalupdates/27407)
-
----
-
-### 2026-06-05T11:02:29+00:00
-Delhi High Court Grants Dynamic Injunction To Protect Zee's FIFA World Cup 2026 Broadcasting Rights Against Rogue Websites & Mobile Apps
-https://www.verdictum.in/delhi-high-court/zee-entertainment-enterprises-limited-v-https-soccerboxme-cs-comm-657-2026-1615368
-
-[Source Link](https://t.me/verdictumlegalupdates/27406)
-
----
-
-### 2026-06-05T10:12:27+00:00
-Supreme Court Refuses To Entertain Plea To Fill Vacant Posts In State Human Rights Commissions
-https://www.verdictum.in/supreme-court/supreme-court-refuses-to-entertain-plea-to-fill-vacant-posts-in-state-human-rights-commissions-1615367
-
-[Source Link](https://t.me/verdictumlegalupdates/27405)
-
----
-
-### 2026-06-05T09:32:24+00:00
-State Can't Acquire Land For Individual Entity Of Its Choice At Expense Of Poor Landowners By Invoking Eminent Domain: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/mukesh-kumar-v-the-state-of-karnataka-connected-matters-land-eminent-domain-1615366
-
-[Source Link](https://t.me/verdictumlegalupdates/27404)
-
----
-
-### 2026-06-05T08:33:07+00:00
-Delhi High Court Refuses Urgent Hearing On Plea Against Cockroach Janta Party’s June 6 Protest
-https://www.verdictum.in/delhi-high-court/delhi-high-court-refuses-urgent-hearing-on-plea-against-cockroach-janta-partys-june-6-protest-1615361
-
-[Source Link](https://t.me/verdictumlegalupdates/27403)
-
----
-
-### 2026-06-05T07:52:42+00:00
-Approached DGP First Instead of Local SHO: Himachal Pradesh High Court Quashes FIR For Not Following Mandatory Procedure U/S 154 CrPC
-https://www.verdictum.in/himachal-high-court/sanjeev-kumar-sharma-v-state-of-hp-2026hhc21234-approached-dgp-instead-of-local-sho-section-154-crpc-1615359
-
-[Source Link](https://t.me/verdictumlegalupdates/27402)
-
----
-
-### 2026-06-05T07:03:00+00:00
-Statutory Amendment Overrides Contractual Clause: Supreme Court Upholds Deduction Of Enhanced Royalty From Security Deposit
-https://www.verdictum.in/supreme-court/the-director-of-mines-and-geology-v-ms-bmm-ispat-ltd-anr-2026-insc-627-1615356
-
-[Source Link](https://t.me/verdictumlegalupdates/27401)
-
----
-
-### 2026-06-05T06:12:19+00:00
-Suit By Worshipper Maintainable In Cases Where Trustee Acts Prejudicially To Temple Deity's Interest: Kerala High Court
-https://www.verdictum.in/kerala-high-court/vijayakumaran-ors-v-govindapuram-temple-ors-2026ker33749-1615348
-
-[Source Link](https://t.me/verdictumlegalupdates/27400)
 
 ---
 
