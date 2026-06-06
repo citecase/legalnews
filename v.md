@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-05T15:52:17+00:00*
+*Last Updated: 2026-06-06T04:32:43+00:00*
+
+---
+
+### 2026-06-06T04:32:43+00:00
+Sole Testimony Of Child Victim Is Sufficient If It Inspires Confidence: Allahabad High Court Upholds POCSO Conviction
+https://www.verdictum.in/allahabad-high-court/2026ahc124835db-kiranpal-alias-kiran-v-state-of-up-1615382
+
+[Source Link](https://t.me/verdictumlegalupdates/27413)
 
 ---
 
@@ -153,14 +161,6 @@ Constitutional Courts Can't Remain Mute Spectators: SC Seeks Action Against Offi
 https://www.verdictum.in/supreme-court/sahil-abdulsattar-mansuri-v-safimahamad-fafirbhai-mansuri-2026-insc-626-delay-investigation-1615319
 
 [Source Link](https://t.me/verdictumlegalupdates/27394)
-
----
-
-### 2026-06-04T12:52:49+00:00
-Subsequent Property Purchasers Step Into Shoes Of Judgment Debtor, Can’t Be Treated As Third Parties To Avoid Bar U/S 47 CPC: Kerala High Court
-https://www.verdictum.in/kerala-high-court/k-geetha-v-s-varadharajan-ors-2026ker38215-section-47-order-xxi-cpc-1615310
-
-[Source Link](https://t.me/verdictumlegalupdates/27393)
 
 ---
 
