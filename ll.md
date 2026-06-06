@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-06T06:01:15+00:00*
+*Last Updated: 2026-06-06T10:32:45+00:00*
 
 ---
 
-### 2026-06-06T06:01:15+00:00
-Consultant (Forensics - Investigations & Compliance) Vacancy At Ernst & Young [Apply Now]
-https://www.livelaw.in/job-updates/consultant-forensics-investigations-compliance-vacancy-at-ernst-young-537010
-
-[Read on Telegram](https://t.me/livelawindia/112452)
-
----
-### 2026-06-06T06:32:35+00:00
-Accused Can't Be Made To Sit At Police Station All Day Without Concrete Evidence: Rajasthan High Court Asks SP To Monitor 5-Yr Murder Probe
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-police-investigation-accused-harassment-murder-probe-536996
-
-[Read on Telegram](https://t.me/livelawindia/112453)
-
----
-### 2026-06-06T06:47:55+00:00
-'Bound By Supreme Court Order': Oudh Bar Association To Decide On 30% Women's Quota At July AGM, Allahabad HC Told
-https://www.livelaw.in/high-court/allahabad-high-court/supreme-court-order-oudh-bar-association-30-women-quota-july-agm-allahabad-hc-informed-537014
-
-[Read on Telegram](https://t.me/livelawindia/112454)
-
----
-### 2026-06-06T06:53:45+00:00
-Plea In Supreme Court Challenges Re-Appointment Of Deepak Prakash As Bihar Minister Without Membership Of Legislature
-https://www.livelaw.in/top-stories/plea-in-supreme-court-challenges-re-appointment-of-deepak-prakash-as-bihar-minister-without-membership-of-legislature-537016
-
-[Read on Telegram](https://t.me/livelawindia/112455)
-
----
-### 2026-06-06T06:58:25+00:00
-Creditors Can Recover Deposits From Co-operative Societies By Invoking Consumer Protection Act: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-cooperative-societies-creditors-consumer-protection-act-537018
-
-[Read on Telegram](https://t.me/livelawindia/112456)
-
----
-### 2026-06-06T07:33:25+00:00
-Empanelment Of Advocates At District Legal Service Authority, Bundi
-https://www.livelaw.in/job-updates/empanelment-of-advocates-at-district-legal-service-authority-bundi-537026
-
-[Read on Telegram](https://t.me/livelawindia/112457)
-
----
-### 2026-06-06T07:46:55+00:00
-AMS Legal Advises VGP Group on Multiple Retail Leasing Transactions Across Tamil Nadu
-https://www.livelaw.in/law-firms/deals/ams-legal-advises-vgp-group-on-multiple-retail-leasing-transactions-across-tamil-nadu-537028
-
-[Read on Telegram](https://t.me/livelawindia/112458)
-
----
-### 2026-06-06T07:55:15+00:00
-Specific Relief Act | Buyer's Delay In Issuing Legal Notice To Seller Not Ground To Deny Specific Performance : Supreme Court
-https://www.livelaw.in/supreme-court/specific-relief-act-buyers-delay-in-issuing-legal-notice-to-seller-not-ground-to-deny-specific-performance-supreme-court-537030
-
-[Read on Telegram](https://t.me/livelawindia/112459)
-
----
-### 2026-06-06T08:23:35+00:00
-Preliminary Assessment Or Problematic Estimation: Section 15 of Juvenile Justice (Care and Protection Of Children) Act, 2015
-https://www.livelaw.in/articles/juvenile-justice-act-2015-preliminary-assessment-section-15-and-juveniles-analysis-537033
-
-[Read on Telegram](https://t.me/livelawindia/112460)
-
----
-### 2026-06-06T09:43:35+00:00
-MNLU Nagpur Organises National Conference On Environmental Law, Forensic Science And Justice; Invites Abstracts and Research Paper
-https://www.livelaw.in/lawschool/seminars/mnlu-nagpur-organises-national-conference-environmental-law-forensic-science-and-justice-537044
-
-[Read on Telegram](https://t.me/livelawindia/112461)
-
----
 ### 2026-06-06T10:32:45+00:00
 Cut-Off Date In Recruitment Not Arbitrary, Candidates Must Possess Qualification By Last Date Of Application: P&H High Court
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-cut-off-date-536997
@@ -142,5 +72,75 @@ Delhi High Court Refuses To Order Fresh Elections For Delhi Bar Council Over Bal
 https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-to-order-fresh-elections-for-delhi-bar-council-over-ballot-tampering-allegations-537063
 
 [Read on Telegram](https://t.me/livelawindia/112471)
+
+---
+### 2026-06-06T14:17:28+00:00
+'Approached Court With Unclean Hands': AP High Court Rejects Review Plea After Finding Bidders Obtained Interim Orders By Suppressing Facts
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-dismisses-review-petition-suppression-facts-contempt-537031
+
+[Read on Telegram](https://t.me/livelawindia/112472)
+
+---
+### 2026-06-06T14:26:08+00:00
+'Prescribed Banned Compound': MP High Court Denies Bail To Doctor Booked In Coldrif Cough Syrup Death Case
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-denies-bail-to-pediatrician-in-coldrif-cough-syrup-deaths-537065
+
+[Read on Telegram](https://t.me/livelawindia/112473)
+
+---
+### 2026-06-06T14:32:28+00:00
+AP High Court Remands Plea Seeking Enforcement Of Circular Barring Foreign-Returned Priests From Performing Temple Duties
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-remands-plea-endowments-circular-foreign-travelled-archakas-537051
+
+[Read on Telegram](https://t.me/livelawindia/112474)
+
+---
+### 2026-06-06T14:32:48+00:00
+No Room For Bystanders In A Constitution That Outlawed Untouchability
+https://www.livelaw.in/articles/supreme-court-public-view-caste-discrimination-sc-st-act-judgment-537038
+
+[Read on Telegram](https://t.me/livelawindia/112475)
+
+---
+### 2026-06-06T15:02:58+00:00
+Wrong Batch Numbers On Liquor Bottles Due To Labelling Error Can't Attract Illegal Transport Charge Under Excise Act: HP High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-liquor-transport-valid-permit-batch-labels-excise-act-537067
+
+[Read on Telegram](https://t.me/livelawindia/112476)
+
+---
+### 2026-06-06T15:37:18+00:00
+Delay In Challenging Family Court Orders In Matrimonial Disputes Is Fatal As Parties May Alter Marital Status: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-matrimonial-dispute-family-court-delay-537068
+
+[Read on Telegram](https://t.me/livelawindia/112477)
+
+---
+### 2026-06-06T15:47:18+00:00
+Why Allahabad HC Said SC Rulings In 'Vihaan Kumar' & Others Opened 'Floodgates', Led To 'Chaotic Situation'
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-supreme-court-vihaan-kumar-mihir-rajesh-shah-floodgates-chaotic-situation-not-binding-537071
+
+[Read on Telegram](https://t.me/livelawindia/112478)
+
+---
+### 2026-06-06T16:03:08+00:00
+'Used & Discarded Her As Though She Were A Mere Commodity': J&K&L High Court Upholds Abetment To Suicide Charge Against Boyfriend
+https://www.livelaw.in/high-court/jammu-kashmir/used-and-discarded-deceased-like-a-mere-commodity-jk-high-court-upholds-abetment-charges-against-boyfriend-quashes-against-grandfather-for-lack-of-specific-role-537066
+
+[Read on Telegram](https://t.me/livelawindia/112479)
+
+---
+### 2026-06-06T16:31:08+00:00
+In A First, Five Women Lawyers Elected To Bar Council Of Maharashtra & Goa
+https://www.livelaw.in/news-updates/bar-council-of-maharashtra-goa-five-women-lawyers-elected-supreme-court-reservation-537075
+
+[Read on Telegram](https://t.me/livelawindia/112480)
+
+---
+### 2026-06-06T17:23:34+00:00
+NALSA, Himachal Pradesh SLSA Organise Mega Legal Literacy Camp On Constitutional Values And Legal Awareness In Dharamshala
+https://www.livelaw.in/news-updates/nalsa-himachal-pradesh-slsa-organise-mega-legal-literacy-camp-on-constitutional-values-and-legal-awareness-in-dharamshala-537081
+
+[Read on Telegram](https://t.me/livelawindia/112481)
 
 ---
