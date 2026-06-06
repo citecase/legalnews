@@ -1,146 +1,147 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-05T12:42:42+00:00*
+*Last Updated: 2026-06-06T03:56:43+00:00*
 
 ---
 
-### 2026-06-05T12:42:42+00:00
-Arbitration Now Acquiring Failings Of Formal Litigation : CJI Surya Kant
-https://www.livelaw.in/top-stories/arbitration-now-acquiring-failings-of-formal-litigation-cji-surya-kant-536960
-
-[Read on Telegram](https://t.me/livelawindia/112422)
-
----
-### 2026-06-05T12:43:02+00:00
-Failure Of Bail Cancellation Followed By Preventive Detention Is 'Antithetical'; J&K&L High Court Quashes PIT-NDPS Detention
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-failure-of-bail-cancellation-followed-by-preventive-detention-is-antithetical-court-quashes-pit-ndps-detention-536939
-
-[Read on Telegram](https://t.me/livelawindia/112423)
-
----
-### 2026-06-05T12:49:53+00:00
-2017 Actress Assault Case: Survivor Moves Kerala High Court Seeking Fresh, Comprehensive Probe Into 'Memory Card Leak'
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-actress-assault-case-memory-card-leak-536961
-
-[Read on Telegram](https://t.me/livelawindia/112424)
-
----
-### 2026-06-05T13:09:32+00:00
-Madras High Court Restrains Vigilance Action Against Ex-Minister KN Nehru, Others In Bribery FIR Till June 23
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-kn-nehru-cash-for-job-scam-no-further-action-till-hearing-536963
-
-[Read on Telegram](https://t.me/livelawindia/112425)
-
----
-### 2026-06-05T13:18:04+00:00
-NDPS Act| Vehicles Turn To Junk, Value Goes Down The Drain: P&H High Court Slams Idle Confiscation, Orders Release
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-ndps-act-slams-idle-confiscation-orders-release-vehicles-turn-to-junk-value-goes-down-the-drain-536943
-
-[Read on Telegram](https://t.me/livelawindia/112426)
-
----
-### 2026-06-05T13:18:14+00:00
-NIC Launches 'E-Prison' Software To Process Early Release Of Prisoners, Supreme Court Notes
-https://www.livelaw.in/top-stories/supreme-court-nic-launches-premature-release-software-eprisons-module-536965
-
-[Read on Telegram](https://t.me/livelawindia/112427)
-
----
-### 2026-06-05T13:26:54+00:00
-Future Of Tort Law In India: Opportunities And Challenges
-https://www.livelaw.in/lawschool/articles/tort-law-in-india-future-challenges-access-to-justice-reforms-536967
-
-[Read on Telegram](https://t.me/livelawindia/112428)
-
----
-### 2026-06-05T13:28:34+00:00
-Why Most People Don't Write A Will Until It's Too Late: Why Inheritance Planning Is Necessary
-https://www.livelaw.in/articles/inheritance-planning-and-why-most-people-do-not-write-will-536968
-
-[Read on Telegram](https://t.me/livelawindia/112429)
-
----
-### 2026-06-05T13:42:54+00:00
-Executive Magistrate Can Order Removal Of Obstruction From Long-Used Village Path Without Deciding Title Dispute: HP High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-sdm-obstruction-removal-village-path-147-crpc-536942
-
-[Read on Telegram](https://t.me/livelawindia/112430)
-
----
-### 2026-06-05T14:23:04+00:00
-Kahcharai Land Is State Property, No Individual Right To Claim Compensation For Its Acquisition For Public Purpose: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-kahcharai-land-is-state-property-no-individual-right-to-claim-compensation-for-its-acquisition-for-public-purpose-536940
-
-[Read on Telegram](https://t.me/livelawindia/112431)
-
----
-### 2026-06-05T15:12:54+00:00
-CPC Cannot Override RP Act In Election Petitions; Only Parties Specified Under Section 82 Can Be Impleaded: J&&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-provisions-of-cpc-contrary-to-section-82-of-representation-of-people-act-cannot-be-invoked-to-implead-parties-to-election-petition-536947
-
-[Read on Telegram](https://t.me/livelawindia/112432)
-
----
-### 2026-06-05T15:18:14+00:00
-Franchise Dispute Cannot Be Given Criminal Colour; Madras High Court Quashes FIR Against 5K Car Care Owner
-https://www.livelaw.in/law-firms/litigation/franchise-dispute-cannot-be-given-criminal-colour-madras-high-court-quashes-fir-against-5k-car-care-owner-536976
-
-[Read on Telegram](https://t.me/livelawindia/112433)
-
----
-### 2026-06-05T15:30:34+00:00
-Rajasthan HC Takes Suo Motu Cognizance of Threats to State Wetlands, Orders Immediate Protective Measures
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-takes-suo-motu-cognizance-wetlands-conservation-protection-536977
-
-[Read on Telegram](https://t.me/livelawindia/112434)
-
----
-### 2026-06-05T15:36:14+00:00
-2026 LiveLaw (SC) 602 | V K Singh v. CBI
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-602-v-k-singh-v-cbi-536979
-
-[Read on Telegram](https://t.me/livelawindia/112435)
-
----
-### 2026-06-05T16:57:15+00:00
-'Encounter Killings, Selective Crackdowns': Allahabad HC Slams UP Police Over Targeted Actions; Flags Misuse Of Gangsters Act
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-encounter-killings-up-police-misuse-gangsters-act-536982
-
-[Read on Telegram](https://t.me/livelawindia/112436)
-
----
-### 2026-06-05T17:04:55+00:00
-India High Commission In London Condemns 'Indecorous Audience Behaviour' During Event Attended By CJI Surya Kant
-https://www.livelaw.in/top-stories/india-high-commission-in-london-condemns-indecorous-audience-behaviour-during-event-attended-by-cji-surya-kant-536983
-
-[Read on Telegram](https://t.me/livelawindia/112437)
-
----
-### 2026-06-05T17:13:16+00:00
-Supreme Court Daily Round-Up : June 5, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-june-5-2026-536981
-
-[Read on Telegram](https://t.me/livelawindia/112438)
-
----
-### 2026-06-05T17:45:25+00:00
-'Loyalty Towards Rulers, Not Constitution; Rule Of Law Treated As Inconvenience': Allahabad HC Tears Into UP Bureaucracy
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-loyalty-rulers-not-constitution-rule-of-law-up-bureaucracy-536984
-
-[Read on Telegram](https://t.me/livelawindia/112439)
-
----
-### 2026-06-06T02:58:53+00:00
-Supreme Court Denies Bail To YouTuber Jyoti Rani Accused Of Spying For Pakistan
-https://www.livelaw.in/top-stories/supreme-court-denies-bail-to-youtuber-jyoti-rani-accused-of-spying-for-pakistan-536985
-
-[Read on Telegram](https://t.me/livelawindia/112440)
-
----
 ### 2026-06-06T03:56:43+00:00
 AMS Legal Advises CBRE Group On Tamil Nadu Government Tender Mandates Valued At ₹683.18 Crores
 https://www.livelaw.in/law-firms/deals/ams-legal-advises-cbre-group-on-tamil-nadu-government-tender-536988
 
 [Read on Telegram](https://t.me/livelawindia/112441)
+
+---
+### 2026-06-06T04:22:33+00:00
+After Amazon V. CCI: A Second Life For India's Green Channel Route
+https://www.livelaw.in/articles/supreme-court-amazon-cci-judgment-green-channel-route-merger-control-reforms-536994
+
+[Read on Telegram](https://t.me/livelawindia/112442)
+
+---
+### 2026-06-06T04:32:33+00:00
+Karnataka High Court Monthly Digest: May 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-monthly-round-up-may-2026-536894
+
+[Read on Telegram](https://t.me/livelawindia/112443)
+
+---
+### 2026-06-06T04:32:54+00:00
+Bombay High Court Monthly Digest: May 2026
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-monthly-digest-536619
+
+[Read on Telegram](https://t.me/livelawindia/112444)
+
+---
+### 2026-06-06T04:47:14+00:00
+Accused Booked Under Official Secrets Act Entitled To Supply Of Documents Relied Upon In Chargesheet : Supreme Court
+https://www.livelaw.in/supreme-court/accused-booked-under-official-secrets-act-entitled-to-supply-of-documents-relied-upon-in-chargesheet-supreme-court-536978
+
+[Read on Telegram](https://t.me/livelawindia/112445)
+
+---
+### 2026-06-06T04:58:55+00:00
+Interview With The Author Of The Book 'MN Rao : The Renaissance Man Of Law'
+https://www.livelaw.in/news-updates/justice-mn-rao-biography-amita-dhanda-renaissance-man-of-law-book-537002
+
+[Read on Telegram](https://t.me/livelawindia/112446)
+
+---
+### 2026-06-06T04:59:15+00:00
+No Expert Evidence To Prove Negligence In Cosmetic Treatment, Bengaluru Consumer Commission Dismisses Complaint Against Oliva Clinic
+https://www.livelaw.in/consumer-cases/no-expert-evidence-to-prove-negligence-in-cosmetic-treatment-bengaluru-consumer-commission-dismisses-complaint-against-oliva-clinic-537003
+
+[Read on Telegram](https://t.me/livelawindia/112447)
+
+---
+### 2026-06-06T05:00:15+00:00
+Assistant Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
+https://www.livelaw.in/job-updates/assistant-manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-537004
+
+[Read on Telegram](https://t.me/livelawindia/112448)
+
+---
+### 2026-06-06T05:25:25+00:00
+Potency Test Conducted On POCSO Accused Without Consent Does Not Violate Right To Privacy Or Bodily Integrity : Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-pocso-accused-potency-test-537005
+
+[Read on Telegram](https://t.me/livelawindia/112449)
+
+---
+### 2026-06-06T05:35:05+00:00
+#TheLawChallenge
+: A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
+https://www.livelaw.in/top-stories/livelaw-and-qshala-law-trivia-quiz-537006
+
+[Read on Telegram](https://t.me/livelawindia/112450)
+
+---
+### 2026-06-06T05:49:25+00:00
+Assistant General Manager (Recovery) Vacancy At NKGSB Co-operative Bank Limited
+https://www.livelaw.in/job-updates/assistant-general-manager-recovery-vacancy-at-nkgsb-co-operative-bank-limited-537009
+
+[Read on Telegram](https://t.me/livelawindia/112451)
+
+---
+### 2026-06-06T06:01:15+00:00
+Consultant (Forensics - Investigations & Compliance) Vacancy At Ernst & Young [Apply Now]
+https://www.livelaw.in/job-updates/consultant-forensics-investigations-compliance-vacancy-at-ernst-young-537010
+
+[Read on Telegram](https://t.me/livelawindia/112452)
+
+---
+### 2026-06-06T06:32:35+00:00
+Accused Can't Be Made To Sit At Police Station All Day Without Concrete Evidence: Rajasthan High Court Asks SP To Monitor 5-Yr Murder Probe
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-police-investigation-accused-harassment-murder-probe-536996
+
+[Read on Telegram](https://t.me/livelawindia/112453)
+
+---
+### 2026-06-06T06:47:55+00:00
+'Bound By Supreme Court Order': Oudh Bar Association To Decide On 30% Women's Quota At July AGM, Allahabad HC Told
+https://www.livelaw.in/high-court/allahabad-high-court/supreme-court-order-oudh-bar-association-30-women-quota-july-agm-allahabad-hc-informed-537014
+
+[Read on Telegram](https://t.me/livelawindia/112454)
+
+---
+### 2026-06-06T06:53:45+00:00
+Plea In Supreme Court Challenges Re-Appointment Of Deepak Prakash As Bihar Minister Without Membership Of Legislature
+https://www.livelaw.in/top-stories/plea-in-supreme-court-challenges-re-appointment-of-deepak-prakash-as-bihar-minister-without-membership-of-legislature-537016
+
+[Read on Telegram](https://t.me/livelawindia/112455)
+
+---
+### 2026-06-06T06:58:25+00:00
+Creditors Can Recover Deposits From Co-operative Societies By Invoking Consumer Protection Act: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-cooperative-societies-creditors-consumer-protection-act-537018
+
+[Read on Telegram](https://t.me/livelawindia/112456)
+
+---
+### 2026-06-06T07:33:25+00:00
+Empanelment Of Advocates At District Legal Service Authority, Bundi
+https://www.livelaw.in/job-updates/empanelment-of-advocates-at-district-legal-service-authority-bundi-537026
+
+[Read on Telegram](https://t.me/livelawindia/112457)
+
+---
+### 2026-06-06T07:46:55+00:00
+AMS Legal Advises VGP Group on Multiple Retail Leasing Transactions Across Tamil Nadu
+https://www.livelaw.in/law-firms/deals/ams-legal-advises-vgp-group-on-multiple-retail-leasing-transactions-across-tamil-nadu-537028
+
+[Read on Telegram](https://t.me/livelawindia/112458)
+
+---
+### 2026-06-06T07:55:15+00:00
+Specific Relief Act | Buyer's Delay In Issuing Legal Notice To Seller Not Ground To Deny Specific Performance : Supreme Court
+https://www.livelaw.in/supreme-court/specific-relief-act-buyers-delay-in-issuing-legal-notice-to-seller-not-ground-to-deny-specific-performance-supreme-court-537030
+
+[Read on Telegram](https://t.me/livelawindia/112459)
+
+---
+### 2026-06-06T08:23:35+00:00
+Preliminary Assessment Or Problematic Estimation: Section 15 of Juvenile Justice (Care and Protection Of Children) Act, 2015
+https://www.livelaw.in/articles/juvenile-justice-act-2015-preliminary-assessment-section-15-and-juveniles-analysis-537033
+
+[Read on Telegram](https://t.me/livelawindia/112460)
 
 ---
