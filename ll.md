@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-05T12:02:52+00:00*
+*Last Updated: 2026-06-05T12:42:42+00:00*
 
 ---
 
-### 2026-06-05T12:02:52+00:00
-Kerala High Court Directs Addition Of Father's Name In Birth Certificate Of Child Conceived Through IVF When Parents Were Living Together
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-living-together-parents-birth-certificate-536944
-
-[Read on Telegram](https://t.me/livelawindia/112420)
-
----
-### 2026-06-05T12:26:22+00:00
-Supreme Court Stays Deportation Of Four Women Declared As Foreingers By Assam Tribunal
-https://www.livelaw.in/top-stories/supreme-court-stays-deportation-of-four-women-declared-as-foreingers-by-assam-tribunal-536958
-
-[Read on Telegram](https://t.me/livelawindia/112421)
-
----
 ### 2026-06-05T12:42:42+00:00
 Arbitration Now Acquiring Failings Of Formal Litigation : CJI Surya Kant
 https://www.livelaw.in/top-stories/arbitration-now-acquiring-failings-of-formal-litigation-cji-surya-kant-536960
@@ -142,5 +128,19 @@ https://www.livelaw.in/top-stories/supreme-court-daily-round-up-june-5-2026-5369
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-loyalty-rulers-not-constitution-rule-of-law-up-bureaucracy-536984
 
 [Read on Telegram](https://t.me/livelawindia/112439)
+
+---
+### 2026-06-06T02:58:53+00:00
+Supreme Court Denies Bail To YouTuber Jyoti Rani Accused Of Spying For Pakistan
+https://www.livelaw.in/top-stories/supreme-court-denies-bail-to-youtuber-jyoti-rani-accused-of-spying-for-pakistan-536985
+
+[Read on Telegram](https://t.me/livelawindia/112440)
+
+---
+### 2026-06-06T03:56:43+00:00
+AMS Legal Advises CBRE Group On Tamil Nadu Government Tender Mandates Valued At ₹683.18 Crores
+https://www.livelaw.in/law-firms/deals/ams-legal-advises-cbre-group-on-tamil-nadu-government-tender-536988
+
+[Read on Telegram](https://t.me/livelawindia/112441)
 
 ---
