@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-06T04:32:43+00:00*
+*Last Updated: 2026-06-06T09:02:42+00:00*
+
+---
+
+### 2026-06-06T09:02:42+00:00
+Concept Of "Proper Parties" Is Alien To Election Dispute Under Representation Of People Act: Jammu & Kashmir And Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/harsh-dev-singh-v-ut-of-jk-sec82-rp-act-cpc-implead-party-election-petition-1615427
+
+[Source Link](https://t.me/verdictumlegalupdates/27419)
+
+---
+
+### 2026-06-06T08:13:21+00:00
+FCI Cannot Recover Excess Payments From Retirees After Decades While Withholding Benefits Under Same CDA–IDA Regime: Delhi High Court
+https://www.verdictum.in/delhi-high-court/food-corporation-of-india-v-jagneshwar-prasad-gupta-2026dhc5063-db-withholding-benefits-under-same-cdaida-retirees-1615423
+
+[Source Link](https://t.me/verdictumlegalupdates/27418)
+
+---
+
+### 2026-06-06T07:33:00+00:00
+Pre-Marital Relationships Are Common Today: Supreme Court Restores Police Constable’s Selection Cancelled Over Cheating Allegations In Consensual Relationship
+https://www.verdictum.in/supreme-court/gajula-thirupathi-v-the-telangana-state-level-police-recruitment-board-2026-insc-493-compromise-in-failed-relationship-police-service-1615419
+
+[Source Link](https://t.me/verdictumlegalupdates/27417)
+
+---
+
+### 2026-06-06T06:52:38+00:00
+Section 164 CrPC Statement Can Be Used For POCSO Conviction Where Victim Turns Hostile But Admits Signature & Does Not Allege Coercion: Madras High Court
+https://www.verdictum.in/madras-high-court/murugan-v-state-rep-by-inspector-of-police-2026mhc1907-pocso-section-164-1615412
+
+[Source Link](https://t.me/verdictumlegalupdates/27416)
+
+---
+
+### 2026-06-06T06:02:57+00:00
+Financing Illicit Traffic U/S 27A NDPS Act Is Distinct From Mere Receipt Of Money For Sale Of Narcotics: J&K&L High Court
+https://www.verdictum.in/jammu-ladakh-high-court/kamran-mushtaq-lone-v-union-territory-of-jk-bail-app172026-financing-illicit-traffic-us-27a-ndps-act-1615406
+
+[Source Link](https://t.me/verdictumlegalupdates/27415)
+
+---
+
+### 2026-06-06T05:13:04+00:00
+Documents Sourced From Official Records Must Still Be Proved Through Witnesses In Departmental Inquiries: Delhi High Court Upholds Relief To Former Jamia Professor
+https://www.verdictum.in/delhi-high-court/jamia-millia-islamia-v-m-g-hussain-2026dhc5059-db-documents-sourced-from-official-records-be-proved-1615405
+
+[Source Link](https://t.me/verdictumlegalupdates/27414)
 
 ---
 
@@ -113,54 +161,6 @@ Suit By Worshipper Maintainable In Cases Where Trustee Acts Prejudicially To Tem
 https://www.verdictum.in/kerala-high-court/vijayakumaran-ors-v-govindapuram-temple-ors-2026ker33749-1615348
 
 [Source Link](https://t.me/verdictumlegalupdates/27400)
-
----
-
-### 2026-06-05T05:22:37+00:00
-Kerala High Court Orders Child Access & Custody Guidelines Issued By Calcutta High Court To Be Followed By Family Courts
-https://www.verdictum.in/kerala-high-court/a-v-the-director-general-of-police-2026ker37511-child-access-custody-family-courts-1615341
-
-[Source Link](https://t.me/verdictumlegalupdates/27399)
-
----
-
-### 2026-06-05T04:33:26+00:00
-Unilateral Revocation Of Validly Granted Building Permission Sans Proof Of Fraud Violates Article 300-A Constitution: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/smt-manju-chawla-and-others-v-indore-municipal-corporation-2026mphc-ind15157-article-300-a-1615311
-
-[Source Link](https://t.me/verdictumlegalupdates/27398)
-
----
-
-### 2026-06-04T16:02:17+00:00
-Legal Officer Vacancy At IIM Bodh Gaya
-https://www.verdictum.in/job-updates/iim-bodh-gaya-1615314
-
-[Source Link](https://t.me/verdictumlegalupdates/27397)
-
----
-
-### 2026-06-04T14:52:55+00:00
-Offence U/S 324 IPC Can’t Be Regarded As Minor Offence To Offence U/S 332 IPC Within Meaning Of Section 222 CrPC: Kerala High Court
-https://www.verdictum.in/kerala-high-court/babu-avarachan-v-state-of-kerala-2026ker35293-sec324-ipc-sec332-constable-1615313
-
-[Source Link](https://t.me/verdictumlegalupdates/27396)
-
----
-
-### 2026-06-04T14:12:13+00:00
-Copy-Pasting Statutory Language Without Application of Mind Not Sufficient: Karnataka High Court Sets Aside Provisional Attachment Of A Widow's Property Under PMLA
-https://www.verdictum.in/karnataka-high-court/jayamma-v-directorate-of-enforcement-2026khc25829-copy-pasting-statutory-language-1615312
-
-[Source Link](https://t.me/verdictumlegalupdates/27395)
-
----
-
-### 2026-06-04T13:32:31+00:00
-Constitutional Courts Can't Remain Mute Spectators: SC Seeks Action Against Officer For Two-Decade Delay In Criminal Investigation
-https://www.verdictum.in/supreme-court/sahil-abdulsattar-mansuri-v-safimahamad-fafirbhai-mansuri-2026-insc-626-delay-investigation-1615319
-
-[Source Link](https://t.me/verdictumlegalupdates/27394)
 
 ---
 
