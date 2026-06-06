@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-06T14:12:24+00:00*
+*Last Updated: 2026-06-06T15:02:45+00:00*
+
+---
+
+### 2026-06-06T15:02:45+00:00
+District Collectorate Tiruvallur Invites Applications For The Post Of Eminent Senior Advocates
+https://www.verdictum.in/job-updates/district-collectorate-tiruvallur-1615439
+
+[Source Link](https://t.me/verdictumlegalupdates/27427)
 
 ---
 
@@ -153,14 +161,6 @@ Employee Can Be Treated As “Aggrieved Person” To Invoke Writ Jurisdiction Se
 https://www.verdictum.in/madras-high-court/s-murugesan-v-additional-chief-secretary-to-government-ors-2026mhc1860-1615374
 
 [Source Link](https://t.me/verdictumlegalupdates/27408)
-
----
-
-### 2026-06-05T11:53:03+00:00
-When In Doubt, Do Refer: J&K And Ladakh High Court Refers Contract Dispute To Arbitration Despite Non-Invocation Of DRE Mechanism
-https://www.verdictum.in/jammu-ladakh-high-court/ms-hassan-roads-construction-company-pvt-ltd-v-jk-economic-reconstruction-agency-era-2026jklhc-sgr157-arbitration-despite-non-invocation-1615369
-
-[Source Link](https://t.me/verdictumlegalupdates/27407)
 
 ---
 
