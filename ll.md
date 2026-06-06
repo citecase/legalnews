@@ -1,87 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-06T03:56:43+00:00*
+*Last Updated: 2026-06-06T06:01:15+00:00*
 
 ---
 
-### 2026-06-06T03:56:43+00:00
-AMS Legal Advises CBRE Group On Tamil Nadu Government Tender Mandates Valued At ₹683.18 Crores
-https://www.livelaw.in/law-firms/deals/ams-legal-advises-cbre-group-on-tamil-nadu-government-tender-536988
-
-[Read on Telegram](https://t.me/livelawindia/112441)
-
----
-### 2026-06-06T04:22:33+00:00
-After Amazon V. CCI: A Second Life For India's Green Channel Route
-https://www.livelaw.in/articles/supreme-court-amazon-cci-judgment-green-channel-route-merger-control-reforms-536994
-
-[Read on Telegram](https://t.me/livelawindia/112442)
-
----
-### 2026-06-06T04:32:33+00:00
-Karnataka High Court Monthly Digest: May 2026
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-monthly-round-up-may-2026-536894
-
-[Read on Telegram](https://t.me/livelawindia/112443)
-
----
-### 2026-06-06T04:32:54+00:00
-Bombay High Court Monthly Digest: May 2026
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-monthly-digest-536619
-
-[Read on Telegram](https://t.me/livelawindia/112444)
-
----
-### 2026-06-06T04:47:14+00:00
-Accused Booked Under Official Secrets Act Entitled To Supply Of Documents Relied Upon In Chargesheet : Supreme Court
-https://www.livelaw.in/supreme-court/accused-booked-under-official-secrets-act-entitled-to-supply-of-documents-relied-upon-in-chargesheet-supreme-court-536978
-
-[Read on Telegram](https://t.me/livelawindia/112445)
-
----
-### 2026-06-06T04:58:55+00:00
-Interview With The Author Of The Book 'MN Rao : The Renaissance Man Of Law'
-https://www.livelaw.in/news-updates/justice-mn-rao-biography-amita-dhanda-renaissance-man-of-law-book-537002
-
-[Read on Telegram](https://t.me/livelawindia/112446)
-
----
-### 2026-06-06T04:59:15+00:00
-No Expert Evidence To Prove Negligence In Cosmetic Treatment, Bengaluru Consumer Commission Dismisses Complaint Against Oliva Clinic
-https://www.livelaw.in/consumer-cases/no-expert-evidence-to-prove-negligence-in-cosmetic-treatment-bengaluru-consumer-commission-dismisses-complaint-against-oliva-clinic-537003
-
-[Read on Telegram](https://t.me/livelawindia/112447)
-
----
-### 2026-06-06T05:00:15+00:00
-Assistant Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/assistant-manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-537004
-
-[Read on Telegram](https://t.me/livelawindia/112448)
-
----
-### 2026-06-06T05:25:25+00:00
-Potency Test Conducted On POCSO Accused Without Consent Does Not Violate Right To Privacy Or Bodily Integrity : Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-pocso-accused-potency-test-537005
-
-[Read on Telegram](https://t.me/livelawindia/112449)
-
----
-### 2026-06-06T05:35:05+00:00
-#TheLawChallenge
-: A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
-https://www.livelaw.in/top-stories/livelaw-and-qshala-law-trivia-quiz-537006
-
-[Read on Telegram](https://t.me/livelawindia/112450)
-
----
-### 2026-06-06T05:49:25+00:00
-Assistant General Manager (Recovery) Vacancy At NKGSB Co-operative Bank Limited
-https://www.livelaw.in/job-updates/assistant-general-manager-recovery-vacancy-at-nkgsb-co-operative-bank-limited-537009
-
-[Read on Telegram](https://t.me/livelawindia/112451)
-
----
 ### 2026-06-06T06:01:15+00:00
 Consultant (Forensics - Investigations & Compliance) Vacancy At Ernst & Young [Apply Now]
 https://www.livelaw.in/job-updates/consultant-forensics-investigations-compliance-vacancy-at-ernst-young-537010
@@ -143,5 +65,82 @@ Preliminary Assessment Or Problematic Estimation: Section 15 of Juvenile Justice
 https://www.livelaw.in/articles/juvenile-justice-act-2015-preliminary-assessment-section-15-and-juveniles-analysis-537033
 
 [Read on Telegram](https://t.me/livelawindia/112460)
+
+---
+### 2026-06-06T09:43:35+00:00
+MNLU Nagpur Organises National Conference On Environmental Law, Forensic Science And Justice; Invites Abstracts and Research Paper
+https://www.livelaw.in/lawschool/seminars/mnlu-nagpur-organises-national-conference-environmental-law-forensic-science-and-justice-537044
+
+[Read on Telegram](https://t.me/livelawindia/112461)
+
+---
+### 2026-06-06T10:32:45+00:00
+Cut-Off Date In Recruitment Not Arbitrary, Candidates Must Possess Qualification By Last Date Of Application: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-cut-off-date-536997
+
+[Read on Telegram](https://t.me/livelawindia/112462)
+
+---
+### 2026-06-06T11:28:38+00:00
+Custodial Death | Gauhati HC Awards ₹25 Lakh Compensation To Businessman's Widow, Says Pending Trial Against Cops No Bar
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-hc-awards-25-lakh-custodial-death-compensation-assam-police-pending-trial-537054
+
+[Read on Telegram](https://t.me/livelawindia/112463)
+
+---
+### 2026-06-06T11:32:58+00:00
+The Structural Hole In India's Data Protection Law
+https://www.livelaw.in/articles/digital-personal-data-protection-act-state-processing-without-consent-proportionality-537036
+
+[Read on Telegram](https://t.me/livelawindia/112464)
+
+---
+### 2026-06-06T12:11:58+00:00
+Can't Punish Employee For Delay Over Employer's Inaction: MP High Court Rejects State's Review Against Order Granting Pay-Hike Under Scheme
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-order-47-rule-11-review-proceedings-maintainable-over-omissions-or-patent-error-537057
+
+[Read on Telegram](https://t.me/livelawindia/112465)
+
+---
+### 2026-06-06T12:18:18+00:00
+AI Cannot Replace Judicial Verification; J&K&L High Court Directs Judicial Officers To Verify AI-Generated Citations Before Use
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-ai-cannot-replace-judicial-verification-court-directs-judicial-officers-to-independently-verify-all-ai-generated-citations-before-using-them-in-orders-537058
+
+[Read on Telegram](https://t.me/livelawindia/112466)
+
+---
+### 2026-06-06T12:32:28+00:00
+Rajasthan High Court Partly Allows Accused's Plea To Summon Document On POCSO Victim's Age, Says No Delay In Filing S.91 CrPC Plea
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-allows-section-91-crpc-application-age-determination-pocso-case-537007
+
+[Read on Telegram](https://t.me/livelawindia/112467)
+
+---
+### 2026-06-06T12:48:28+00:00
+'Medical Facilities In India Comparable To Any Foreign Country', Supreme Court Restrains Accused From Travelling To USA For Treatment
+https://www.livelaw.in/supreme-court/medical-facilities-in-india-comparable-to-any-foreign-country-supreme-court-restrains-accused-from-travelling-to-usa-for-treatment-537060
+
+[Read on Telegram](https://t.me/livelawindia/112468)
+
+---
+### 2026-06-06T12:49:48+00:00
+2026 LiveLaw (SC) 603 | SEESA SANTOSH VERSUS THE STATE OF TELANGANA AND ANR.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-603-seesa-santosh-versus-the-state-of-telangana-and-anr-537061
+
+[Read on Telegram](https://t.me/livelawindia/112469)
+
+---
+### 2026-06-06T12:51:48+00:00
+2026 LiveLaw (SC) 604 | A. SHAHUL HAMEED Versus N. MALLIGARJUNA AND ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-604-a-shahul-hameed-versus-n-malligarjuna-and-ors-537062
+
+[Read on Telegram](https://t.me/livelawindia/112470)
+
+---
+### 2026-06-06T12:59:28+00:00
+Delhi High Court Refuses To Order Fresh Elections For Delhi Bar Council Over Ballot Tampering Allegations
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-to-order-fresh-elections-for-delhi-bar-council-over-ballot-tampering-allegations-537063
+
+[Read on Telegram](https://t.me/livelawindia/112471)
 
 ---
