@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-07T12:32:56+00:00*
+*Last Updated: 2026-06-07T14:33:20+00:00*
+
+---
+
+### 2026-06-07T14:33:20+00:00
+Law Officer Vacancy At District and Subordinate Court Tiruvallur
+https://www.verdictum.in/job-updates/district-and-subordinate-court-tiruvallur-1615443
+
+[Source Link](https://t.me/verdictumlegalupdates/27432)
 
 ---
 
@@ -153,14 +161,6 @@ Sole Testimony Of Child Victim Is Sufficient If It Inspires Confidence: Allahaba
 https://www.verdictum.in/allahabad-high-court/2026ahc124835db-kiranpal-alias-kiran-v-state-of-up-1615382
 
 [Source Link](https://t.me/verdictumlegalupdates/27413)
-
----
-
-### 2026-06-05T15:52:17+00:00
-Repossession Of Financed Vehicle Through Recovery Agents Without Following Due Process Violates Article 300A: Uttarakhand High Court
-https://www.verdictum.in/uttarakhand-high-court/savitri-devi-v-icici-bank-limited-ors-2026uhc3157-bank-finance-recovery-agents-1615379
-
-[Source Link](https://t.me/verdictumlegalupdates/27412)
 
 ---
 
