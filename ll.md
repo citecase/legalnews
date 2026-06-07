@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-06T11:28:38+00:00*
+*Last Updated: 2026-06-06T12:51:48+00:00*
 
 ---
 
-### 2026-06-06T11:28:38+00:00
-Custodial Death | Gauhati HC Awards ₹25 Lakh Compensation To Businessman's Widow, Says Pending Trial Against Cops No Bar
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-hc-awards-25-lakh-custodial-death-compensation-assam-police-pending-trial-537054
-
-[Read on Telegram](https://t.me/livelawindia/112463)
-
----
-### 2026-06-06T11:32:58+00:00
-The Structural Hole In India's Data Protection Law
-https://www.livelaw.in/articles/digital-personal-data-protection-act-state-processing-without-consent-proportionality-537036
-
-[Read on Telegram](https://t.me/livelawindia/112464)
-
----
-### 2026-06-06T12:11:58+00:00
-Can't Punish Employee For Delay Over Employer's Inaction: MP High Court Rejects State's Review Against Order Granting Pay-Hike Under Scheme
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-order-47-rule-11-review-proceedings-maintainable-over-omissions-or-patent-error-537057
-
-[Read on Telegram](https://t.me/livelawindia/112465)
-
----
-### 2026-06-06T12:18:18+00:00
-AI Cannot Replace Judicial Verification; J&K&L High Court Directs Judicial Officers To Verify AI-Generated Citations Before Use
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-ai-cannot-replace-judicial-verification-court-directs-judicial-officers-to-independently-verify-all-ai-generated-citations-before-using-them-in-orders-537058
-
-[Read on Telegram](https://t.me/livelawindia/112466)
-
----
-### 2026-06-06T12:32:28+00:00
-Rajasthan High Court Partly Allows Accused's Plea To Summon Document On POCSO Victim's Age, Says No Delay In Filing S.91 CrPC Plea
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-allows-section-91-crpc-application-age-determination-pocso-case-537007
-
-[Read on Telegram](https://t.me/livelawindia/112467)
-
----
-### 2026-06-06T12:48:28+00:00
-'Medical Facilities In India Comparable To Any Foreign Country', Supreme Court Restrains Accused From Travelling To USA For Treatment
-https://www.livelaw.in/supreme-court/medical-facilities-in-india-comparable-to-any-foreign-country-supreme-court-restrains-accused-from-travelling-to-usa-for-treatment-537060
-
-[Read on Telegram](https://t.me/livelawindia/112468)
-
----
-### 2026-06-06T12:49:48+00:00
-2026 LiveLaw (SC) 603 | SEESA SANTOSH VERSUS THE STATE OF TELANGANA AND ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-603-seesa-santosh-versus-the-state-of-telangana-and-anr-537061
-
-[Read on Telegram](https://t.me/livelawindia/112469)
-
----
 ### 2026-06-06T12:51:48+00:00
 2026 LiveLaw (SC) 604 | A. SHAHUL HAMEED Versus N. MALLIGARJUNA AND ORS.
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-604-a-shahul-hameed-versus-n-malligarjuna-and-ors-537062
@@ -142,5 +93,54 @@ Advocates Act And Politicians Returning To The Bar
 https://www.livelaw.in/articles/bar-council-of-india-mamata-banerjee-advocates-act-chief-minister-practice-537039
 
 [Read on Telegram](https://t.me/livelawindia/112482)
+
+---
+### 2026-06-07T05:37:03+00:00
+The Devil Claims Jhumkas, And India Cannot Defend It! Why Traditional Cultural Expressions Need Serious Legal Attention
+https://www.livelaw.in/articles/india-traditional-cultural-expressions-legal-framework-protection-need-537083
+
+[Read on Telegram](https://t.me/livelawindia/112483)
+
+---
+### 2026-06-07T05:40:13+00:00
+Cops Sitting & Twiddling Thumbs: Allahabad HC Slams Quality Of UP Police Investigations, Raps ACS (Home); Here's Why
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-cops-twiddling-thumbs-up-police-investigations-acs-home-537084
+
+[Read on Telegram](https://t.me/livelawindia/112484)
+
+---
+### 2026-06-07T08:17:34+00:00
+Karnataka Governor Extends Tenure of Advocate General K. Shashi Kiran Shetty
+https://www.livelaw.in/news-updates/karnataka-government-advocate-general-extension-537086
+
+[Read on Telegram](https://t.me/livelawindia/112485)
+
+---
+### 2026-06-07T08:23:34+00:00
+S. 138 NI Act | Authorised Signatory Who Signed Cheque On NGO's Behalf Deemed As 'Drawer', Liable For Dishonour : Supreme Court
+https://www.livelaw.in/supreme-court/s-138-ni-act-authorised-signatory-who-signed-cheque-on-ngos-behalf-deemed-as-drawer-liable-for-dishonour-supreme-court-537087
+
+[Read on Telegram](https://t.me/livelawindia/112486)
+
+---
+### 2026-06-07T08:24:34+00:00
+2026 LiveLaw (SC) 605 |  K RANGANAYAKULU VERSUS STATE OF TELANGANA & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-605-k-ranganayakulu-versus-state-of-telangana-ors-537088
+
+[Read on Telegram](https://t.me/livelawindia/112487)
+
+---
+### 2026-06-07T08:27:04+00:00
+Supreme Court Weekly Roundup: May 25, 2026 To May 31, 2026
+https://www.livelaw.in/round-ups/weekly/supreme-court-weekly-roundup-may-25-2026-to-may-31-2026-537089
+
+[Read on Telegram](https://t.me/livelawindia/112488)
+
+---
+### 2026-06-07T09:02:44+00:00
+Leaked Chats, Media Trials And Growing Privacy Debate In India
+https://www.livelaw.in/articles/supreme-court-leaked-digital-communications-privacy-media-trials-537040
+
+[Read on Telegram](https://t.me/livelawindia/112489)
 
 ---
