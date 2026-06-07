@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-06T14:26:08+00:00*
+*Last Updated: 2026-06-06T14:32:28+00:00*
 
 ---
 
-### 2026-06-06T14:26:08+00:00
-'Prescribed Banned Compound': MP High Court Denies Bail To Doctor Booked In Coldrif Cough Syrup Death Case
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-denies-bail-to-pediatrician-in-coldrif-cough-syrup-deaths-537065
-
-[Read on Telegram](https://t.me/livelawindia/112473)
-
----
 ### 2026-06-06T14:32:28+00:00
 AP High Court Remands Plea Seeking Enforcement Of Circular Barring Foreign-Returned Priests From Performing Temple Duties
 https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-remands-plea-endowments-circular-foreign-travelled-archakas-537051
@@ -142,5 +135,12 @@ Calcutta High Court Monthly Digest: May 2026
 https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-monthly-digest-may-2026-537085
 
 [Read on Telegram](https://t.me/livelawindia/112492)
+
+---
+### 2026-06-07T14:51:56+00:00
+Incited Mob In Prophet Mohammad's Name: Allahabad HC Denies Bail To Bareilly Violence 'Main Conspirator'
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-denies-bail-bareilly-violence-main-conspirator-tauqeer-raja-khan-537092
+
+[Read on Telegram](https://t.me/livelawindia/112493)
 
 ---
