@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-07T04:32:31+00:00*
+*Last Updated: 2026-06-07T09:32:55+00:00*
+
+---
+
+### 2026-06-07T09:32:55+00:00
+Imagination Test Fails Where Mark Reflects Intended Purpose Of Cosmetics: Delhi High Court Cancels GLASS SKIN Registration In Renee Dispute
+https://www.verdictum.in/delhi-high-court/renee-cosmetics-private-limited-v-rupali-sharma-2026dhc5075-glass-skin-registration-renee-1615474
+
+[Source Link](https://t.me/verdictumlegalupdates/27430)
+
+---
+
+### 2026-06-07T06:32:33+00:00
+Executive Magistrate Can Prohibit Interference With Exercise Of Right Of User Of Land Including Removal Of Obstruction U/S.147 CrPC: Himachal Pradesh High Court
+https://www.verdictum.in/himachal-high-court/pramod-kumar-v-hir-chand-2026hhc14733-executive-magistrate-right-land-sec147-crpc-1615470
+
+[Source Link](https://t.me/verdictumlegalupdates/27429)
 
 ---
 
@@ -145,22 +161,6 @@ Prior Registration Of FIR Is Not Prerequisite For ED To Initiate Civil Attachmen
 https://www.verdictum.in/kerala-high-court/2026ker38687-cochin-minerals-and-rutile-limited-v-directorate-of-enforcement-1615375
 
 [Source Link](https://t.me/verdictumlegalupdates/27411)
-
----
-
-### 2026-06-05T14:23:11+00:00
-Right To Travel Abroad Not Absolute: Supreme Court Sets Aside Order Allowing Accused To Travel To USA Despite Availability Of Medical Facilities In India
-https://www.verdictum.in/supreme-court/seesa-santosh-v-the-state-of-telangana-2026-insc-628-accused-to-travel-to-usa-despite-availability-of-medical-facilities-in-india-1615376
-
-[Source Link](https://t.me/verdictumlegalupdates/27410)
-
----
-
-### 2026-06-05T13:32:47+00:00
-Madras High Court Censures Supreme Court's Decision To Remit 2016 Assembly Election Petition To High Court After Stay For Six Years
-https://www.verdictum.in/madras-high-court/m-appavu-v-isinbadurai-election-petition-delay-1615378
-
-[Source Link](https://t.me/verdictumlegalupdates/27409)
 
 ---
 
