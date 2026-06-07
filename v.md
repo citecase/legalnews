@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-07T09:32:55+00:00*
+*Last Updated: 2026-06-07T12:32:56+00:00*
+
+---
+
+### 2026-06-07T12:32:56+00:00
+“Can’t Be Treated Arbitrary Merely Because Of Demanding Work Schedules”: Madhya Pradesh High Court Rejects Challenge To TB Screening Policy
+https://www.verdictum.in/madhya-pradesh-high-court/pragatisheel-radiographers-sangh-madhya-pradesh-v-union-of-india-ors-2026mphc-ind15164-1615478
+
+[Source Link](https://t.me/verdictumlegalupdates/27431)
 
 ---
 
@@ -153,14 +161,6 @@ Repossession Of Financed Vehicle Through Recovery Agents Without Following Due P
 https://www.verdictum.in/uttarakhand-high-court/savitri-devi-v-icici-bank-limited-ors-2026uhc3157-bank-finance-recovery-agents-1615379
 
 [Source Link](https://t.me/verdictumlegalupdates/27412)
-
----
-
-### 2026-06-05T15:02:54+00:00
-Prior Registration Of FIR Is Not Prerequisite For ED To Initiate Civil Attachment Or Issue Summons Under PMLA: Kerala High Court
-https://www.verdictum.in/kerala-high-court/2026ker38687-cochin-minerals-and-rutile-limited-v-directorate-of-enforcement-1615375
-
-[Source Link](https://t.me/verdictumlegalupdates/27411)
 
 ---
 
