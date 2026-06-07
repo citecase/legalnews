@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-06T12:51:48+00:00*
+*Last Updated: 2026-06-06T14:26:08+00:00*
 
 ---
 
-### 2026-06-06T12:51:48+00:00
-2026 LiveLaw (SC) 604 | A. SHAHUL HAMEED Versus N. MALLIGARJUNA AND ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-604-a-shahul-hameed-versus-n-malligarjuna-and-ors-537062
-
-[Read on Telegram](https://t.me/livelawindia/112470)
-
----
-### 2026-06-06T12:59:28+00:00
-Delhi High Court Refuses To Order Fresh Elections For Delhi Bar Council Over Ballot Tampering Allegations
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-to-order-fresh-elections-for-delhi-bar-council-over-ballot-tampering-allegations-537063
-
-[Read on Telegram](https://t.me/livelawindia/112471)
-
----
-### 2026-06-06T14:17:28+00:00
-'Approached Court With Unclean Hands': AP High Court Rejects Review Plea After Finding Bidders Obtained Interim Orders By Suppressing Facts
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-dismisses-review-petition-suppression-facts-contempt-537031
-
-[Read on Telegram](https://t.me/livelawindia/112472)
-
----
 ### 2026-06-06T14:26:08+00:00
 'Prescribed Banned Compound': MP High Court Denies Bail To Doctor Booked In Coldrif Cough Syrup Death Case
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-denies-bail-to-pediatrician-in-coldrif-cough-syrup-deaths-537065
@@ -142,5 +121,26 @@ Leaked Chats, Media Trials And Growing Privacy Debate In India
 https://www.livelaw.in/articles/supreme-court-leaked-digital-communications-privacy-media-trials-537040
 
 [Read on Telegram](https://t.me/livelawindia/112489)
+
+---
+### 2026-06-07T09:37:34+00:00
+Indian Supreme Court Developing 'Swadeshi Jurisprudence' Than Relying Only On Imported Concepts : CJI Surya Kant At Oxford
+https://www.livelaw.in/top-stories/indian-supreme-court-developing-swadeshi-jurisprudence-than-relying-only-on-imported-concepts-cji-surya-kant-at-oxford-537090
+
+[Read on Telegram](https://t.me/livelawindia/112490)
+
+---
+### 2026-06-07T10:23:06+00:00
+'Star Teachers' Remark: Journalist Anjana Om Kashyap Files Defamation Suit Against Khan Sir Before Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/journalist-anjana-om-kashyap-files-defamation-suit-against-khan-sir-before-delhi-high-court-537091
+
+[Read on Telegram](https://t.me/livelawindia/112491)
+
+---
+### 2026-06-07T11:33:16+00:00
+Calcutta High Court Monthly Digest: May 2026
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-monthly-digest-may-2026-537085
+
+[Read on Telegram](https://t.me/livelawindia/112492)
 
 ---
