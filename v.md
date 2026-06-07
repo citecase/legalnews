@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-06T15:02:45+00:00*
+*Last Updated: 2026-06-07T04:32:31+00:00*
+
+---
+
+### 2026-06-07T04:32:31+00:00
+Co-Operative Societies Act Doesn’t Oust Right Of Creditors To Recover Amount By Invoking Consumer Protection Act: Kerala High Court
+https://www.verdictum.in/kerala-high-court/puthur-service-co-operative-bank-v-sethumadhavan-2026ker38148-co-operative-societies-act-1615447
+
+[Source Link](https://t.me/verdictumlegalupdates/27428)
 
 ---
 
@@ -153,14 +161,6 @@ Madras High Court Censures Supreme Court's Decision To Remit 2016 Assembly Elect
 https://www.verdictum.in/madras-high-court/m-appavu-v-isinbadurai-election-petition-delay-1615378
 
 [Source Link](https://t.me/verdictumlegalupdates/27409)
-
----
-
-### 2026-06-05T12:42:25+00:00
-Employee Can Be Treated As “Aggrieved Person” To Invoke Writ Jurisdiction Seeking Vigilance Action: Madras High Court
-https://www.verdictum.in/madras-high-court/s-murugesan-v-additional-chief-secretary-to-government-ors-2026mhc1860-1615374
-
-[Source Link](https://t.me/verdictumlegalupdates/27408)
 
 ---
 
