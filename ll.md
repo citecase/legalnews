@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-06T10:32:45+00:00*
+*Last Updated: 2026-06-06T11:28:38+00:00*
 
 ---
 
-### 2026-06-06T10:32:45+00:00
-Cut-Off Date In Recruitment Not Arbitrary, Candidates Must Possess Qualification By Last Date Of Application: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-cut-off-date-536997
-
-[Read on Telegram](https://t.me/livelawindia/112462)
-
----
 ### 2026-06-06T11:28:38+00:00
 Custodial Death | Gauhati HC Awards ₹25 Lakh Compensation To Businessman's Widow, Says Pending Trial Against Cops No Bar
 https://www.livelaw.in/high-court/gauhati-high-court/gauhati-hc-awards-25-lakh-custodial-death-compensation-assam-police-pending-trial-537054
@@ -142,5 +135,12 @@ NALSA, Himachal Pradesh SLSA Organise Mega Legal Literacy Camp On Constitutional
 https://www.livelaw.in/news-updates/nalsa-himachal-pradesh-slsa-organise-mega-legal-literacy-camp-on-constitutional-values-and-legal-awareness-in-dharamshala-537081
 
 [Read on Telegram](https://t.me/livelawindia/112481)
+
+---
+### 2026-06-07T03:33:03+00:00
+Advocates Act And Politicians Returning To The Bar
+https://www.livelaw.in/articles/bar-council-of-india-mamata-banerjee-advocates-act-chief-minister-practice-537039
+
+[Read on Telegram](https://t.me/livelawindia/112482)
 
 ---
