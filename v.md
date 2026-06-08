@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-08T10:53:02+00:00*
+*Last Updated: 2026-06-08T16:03:05+00:00*
+
+---
+
+### 2026-06-08T16:03:05+00:00
+Research Associate Vacancy At Insolvency and Bankruptcy Board of India (IBBI)
+https://www.verdictum.in/job-updates/insolvency-and-bankruptcy-board-of-india-1615544
+
+[Source Link](https://t.me/verdictumlegalupdates/27449)
+
+---
+
+### 2026-06-08T15:22:33+00:00
+Divorcee Daughter To Be Treated Equally With Daughters Mentioned In Rule 44(5) Of MP Civil Services (Pension) Rules: Madhya Pradesh HC
+https://www.verdictum.in/madhya-pradesh-high-court/smt-jyoti-shrivastava-v-the-state-of-madhya-pradesh-divorcee-daughter-pension-1615549
+
+[Source Link](https://t.me/verdictumlegalupdates/27448)
+
+---
+
+### 2026-06-08T14:52:51+00:00
+Bail In Heinous Crimes Against Women At Threshold Of Trial Has Chilling Effect On Their Safety: J&K High Court Cancels Bail Of Rape Accused
+https://www.verdictum.in/jammu-ladakh-high-court/bail-heinous-crimes-women-threshold-trial-chilling-effect-safety-1615547
+
+[Source Link](https://t.me/verdictumlegalupdates/27447)
+
+---
+
+### 2026-06-08T14:12:50+00:00
+Right To Posthumous Bodily Integrity Exemplified Through Will: Kerala HC Rejects Family’s Objections To Use Of Body For Anatomical Purposes
+https://www.verdictum.in/kerala-high-court/greeny-tomy-v-state-of-kerala-2026ker36320-posthumous-bodily-integrity-1615546
+
+[Source Link](https://t.me/verdictumlegalupdates/27446)
+
+---
+
+### 2026-06-08T13:32:48+00:00
+"Lawyer’s Duty Extends Beyond Client": Kerala High Court Condemns Courtroom Interference By Advocate Who Unauthorizedly Approached 6-year-old Child
+https://www.verdictum.in/kerala-high-court/condemns-courtroom-interference-advocate-grants-interim-custody-1615543
+
+[Source Link](https://t.me/verdictumlegalupdates/27445)
+
+---
+
+### 2026-06-08T12:52:27+00:00
+Government Must Record Reasons Before Granting Sanction U/S 34 ID Act; Mere Allegation Of Violation Not Sufficient For Prosecution: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/ms-international-trimmings-and-labels-india-pvt-ltd-v-additional-chief-secretary-to-department-of-labour-wp-no-229-of-2021-government-must-record-reasons-1615542
+
+[Source Link](https://t.me/verdictumlegalupdates/27444)
+
+---
+
+### 2026-06-08T12:12:25+00:00
+Karnataka High Court Holds BSNL Liable For Enabling Bank Fraud; Directs Compensation Of ₹50 Lakh; Urges Strict Duty Of Care In Digital Banking Operations
+https://www.verdictum.in/karnataka-high-court/sri-basaveshwara-pattana-sahakara-bank-niyamittha-v-canara-bank-connected-matter-2026khc25587-1615535
+
+[Source Link](https://t.me/verdictumlegalupdates/27443)
+
+---
+
+### 2026-06-08T11:32:23+00:00
+Supreme Court Notice To CBSE On Plea To Declare Class 12 Improvement Examination Result
+https://www.verdictum.in/supreme-court/notice-to-cbse-on-plea-to-declare-class-12-improvement-examination-result-1615537
+
+[Source Link](https://t.me/verdictumlegalupdates/27442)
 
 ---
 
@@ -97,70 +161,6 @@ Imagination Test Fails Where Mark Reflects Intended Purpose Of Cosmetics: Delhi 
 https://www.verdictum.in/delhi-high-court/renee-cosmetics-private-limited-v-rupali-sharma-2026dhc5075-glass-skin-registration-renee-1615474
 
 [Source Link](https://t.me/verdictumlegalupdates/27430)
-
----
-
-### 2026-06-07T06:32:33+00:00
-Executive Magistrate Can Prohibit Interference With Exercise Of Right Of User Of Land Including Removal Of Obstruction U/S.147 CrPC: Himachal Pradesh High Court
-https://www.verdictum.in/himachal-high-court/pramod-kumar-v-hir-chand-2026hhc14733-executive-magistrate-right-land-sec147-crpc-1615470
-
-[Source Link](https://t.me/verdictumlegalupdates/27429)
-
----
-
-### 2026-06-07T04:32:31+00:00
-Co-Operative Societies Act Doesn’t Oust Right Of Creditors To Recover Amount By Invoking Consumer Protection Act: Kerala High Court
-https://www.verdictum.in/kerala-high-court/puthur-service-co-operative-bank-v-sethumadhavan-2026ker38148-co-operative-societies-act-1615447
-
-[Source Link](https://t.me/verdictumlegalupdates/27428)
-
----
-
-### 2026-06-06T15:02:45+00:00
-District Collectorate Tiruvallur Invites Applications For The Post Of Eminent Senior Advocates
-https://www.verdictum.in/job-updates/district-collectorate-tiruvallur-1615439
-
-[Source Link](https://t.me/verdictumlegalupdates/27427)
-
----
-
-### 2026-06-06T14:12:24+00:00
-Power Exercised By Magistrate U/s.14 Of SARFAESI Act Is Ministerial & Not Quasi-Judicial: Kerala High Court
-https://www.verdictum.in/kerala-high-court/the-authorized-officer-axis-bank-ltd-v-reji-paulose-2026ker37390-section-14-sarfaesi-act-1615440
-
-[Source Link](https://t.me/verdictumlegalupdates/27426)
-
----
-
-### 2026-06-06T13:32:22+00:00
-Police Officers’ Loyalty Runs Toward Ruling Dispensation Instead Of Constitution: Allahabad High Court Warns Against Politicised Use Of Gangsters Act
-https://www.verdictum.in/allahabad-high-court/rajendra-tyagi-ors-v-state-of-up-anr-2026ahc125175-uttar-pradesh-police-1615438
-
-[Source Link](https://t.me/verdictumlegalupdates/27425)
-
----
-
-### 2026-06-06T12:54:02+00:00
-Alteration Of Date Not Authenticated By Drawer’s Full Signature Makes Cheque Void: Kerala High Court
-https://www.verdictum.in/kerala-high-court/mary-james-v-gigi-jose-alteration-date-signature-cheque-void-1615437
-
-[Source Link](https://t.me/verdictumlegalupdates/27424)
-
----
-
-### 2026-06-06T12:02:48+00:00
-Kerala Administrative Tribunal Must Entertain Challenges To Vires Of Statutory Recruitment Rules As Court Of First Instance: Kerala High Court
-https://www.verdictum.in/kerala-high-court/dr-sumith-s-pillai-ors-v-state-of-kerala-ors-2026ker34420-administrative-tribunal-1615436
-
-[Source Link](https://t.me/verdictumlegalupdates/27423)
-
----
-
-### 2026-06-06T11:13:07+00:00
-Recklessly Violated Most Fundamental Essence Of Article 21: Allahabad High Court Asks State To Pay Rs 35,000 For Illegal Detention In Police Custody
-https://www.verdictum.in/allahabad-high-court/matambar-mishra-v-the-state-of-up-2026ahc123415-db-article-21-police-custody-1615435
-
-[Source Link](https://t.me/verdictumlegalupdates/27422)
 
 ---
 
