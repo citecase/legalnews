@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-07T14:33:20+00:00*
+*Last Updated: 2026-06-08T04:37:15+00:00*
+
+---
+
+### 2026-06-08T04:37:15+00:00
+Confiscated Vehicles Under NDPS Act Can Be Released On Financial Bonds: Punjab & Haryana High Court Asks Trial Courts Not To Reject Applications Mechanically
+https://www.verdictum.in/punjab-and-haryana-high-court/gurjinder-singh-v-state-of-punjab-anr-state-ndps-act-vehicle-confiscation-1615502
+
+[Source Link](https://t.me/verdictumlegalupdates/27433)
 
 ---
 
@@ -153,14 +161,6 @@ Documents Sourced From Official Records Must Still Be Proved Through Witnesses I
 https://www.verdictum.in/delhi-high-court/jamia-millia-islamia-v-m-g-hussain-2026dhc5059-db-documents-sourced-from-official-records-be-proved-1615405
 
 [Source Link](https://t.me/verdictumlegalupdates/27414)
-
----
-
-### 2026-06-06T04:32:43+00:00
-Sole Testimony Of Child Victim Is Sufficient If It Inspires Confidence: Allahabad High Court Upholds POCSO Conviction
-https://www.verdictum.in/allahabad-high-court/2026ahc124835db-kiranpal-alias-kiran-v-state-of-up-1615382
-
-[Source Link](https://t.me/verdictumlegalupdates/27413)
 
 ---
 
