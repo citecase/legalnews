@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-08T07:27:24+00:00*
+*Last Updated: 2026-06-08T11:33:31+00:00*
 
 ---
 
-### 2026-06-08T07:27:24+00:00
-HP High Court Bars MLAs From Voting In Municipal President, Vice-President Elections; Says They Have No Such Right Under Law
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-election-rules-exclude-mlas-voting-municipal-president-537116
+### 2026-06-08T11:33:31+00:00
+Every Grave Or Dargah Not Automatically Waqf Property; Waqf Board Can't Take Control Merely Because It Has Muslim Religious Use : Madras HC
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-every-dargah-not-automatically-waqf-property-537180
 
-[Read on Telegram](https://t.me/livelawindia/112514)
-
----
-### 2026-06-08T07:48:38+00:00
-'How Can You Enter A Plot Without Completing Formalities?' Gujarat HC Asks Cricketer Yusuf Pathan Over Encroachment In Vadodara
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-yusuf-pathan-encroachment-allotment-possession-537139
-
-[Read on Telegram](https://t.me/livelawindia/112515)
+[Read on Telegram](https://t.me/livelawindia/112537)
 
 ---
-### 2026-06-08T07:53:38+00:00
-AMS Legal Concludes Title Due Diligence For Land Parcels Worth ₹1,000 Crores
-https://www.livelaw.in/law-firms/deals/ams-legal-concludes-title-due-diligence-for-land-parcels-worth-1000-crores-537145
+### 2026-06-08T11:47:31+00:00
+'Delhi Will Choke, God Save Us All': High Court Questions Centre's Move To Evict Indian Polo Association
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-questions-centres-move-to-evict-indian-polo-association-537183
 
-[Read on Telegram](https://t.me/livelawindia/112516)
-
----
-### 2026-06-08T07:54:58+00:00
-Delhi High Court Weekly Round-Up: June 01 To June 07, 2026
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-weekly-round-up-june-01-to-june-07-2026-537148
-
-[Read on Telegram](https://t.me/livelawindia/112517)
+[Read on Telegram](https://t.me/livelawindia/112538)
 
 ---
-### 2026-06-08T07:59:48+00:00
-'Whimsical Matters' Karnataka High Court Rejects PIL For Enquiry Into Delay In Probe Over Mahatma Gandhi's Assassination, Imposes ₹10K Cost
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-delay-gandhi-assassination-missing-volume-autobiography-537149
+### 2026-06-08T11:55:51+00:00
+Malviya Nagar Fire: Delhi Court Denies Bail To Cook, Extends Hotel Owner's Remand To Police Custody By 2 Days
+https://www.livelaw.in/news-updates/delhi-court-denies-bail-to-cook-extends-hotel-owners-police-remand-malviya-nagar-fire-537185
 
-[Read on Telegram](https://t.me/livelawindia/112518)
-
----
-### 2026-06-08T08:13:08+00:00
-Jammu & Kashmir And Ladakh High Court Weekly Round-Up: June 1 - June 7, 2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-weekly-roundup-june-1-june-7-2026-537095
-
-[Read on Telegram](https://t.me/livelawindia/112519)
+[Read on Telegram](https://t.me/livelawindia/112539)
 
 ---
-### 2026-06-08T08:18:08+00:00
-CBSE Exam | 'This Is About Child's Career' : Supreme Court Seeks CBSE Response On Gulf Student's Plea To Declare Class XII Improvement Result
-https://www.livelaw.in/top-stories/cbse-exam-supreme-court-seeks-cbse-response-on-gulf-students-plea-to-declare-class-xii-improvement-result-537150
+### 2026-06-08T12:27:21+00:00
+Karnataka High Court Weekly Round Up- June 1 – June 7, 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-roundup2026-537141
 
-[Read on Telegram](https://t.me/livelawindia/112520)
-
----
-### 2026-06-08T08:18:18+00:00
-Madras High Court Weekly Round-Up: June 1 to June 7, 2026
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-june-1-to-june-7-2026-537140
-
-[Read on Telegram](https://t.me/livelawindia/112521)
+[Read on Telegram](https://t.me/livelawindia/112540)
 
 ---
-### 2026-06-08T08:30:48+00:00
-Ashtamudi Wetland Conservation: Environment Secretary Tenders Unconditional Apology Before Kerala HC Over Delay In Implementing Directions
-https://www.livelaw.in/high-court/kerala-high-court/environment-special-secretary-ashtamudi-lake-contempt-of-court-case-537153
+### 2026-06-08T12:32:41+00:00
+Contractual Employee Cannot Claim Protection Under Article 311; J&K&L High Court Upholds Termination Over Unsatisfactory Performance
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-contractual-employee-cannot-claim-protection-of-article-311-court-upholds-termination-for-unsatisfactory-performance-537142
 
-[Read on Telegram](https://t.me/livelawindia/112522)
-
----
-### 2026-06-08T08:32:28+00:00
-Pursue Civil Remedies First: Uttarakhand HC Sets Aside FIR Alleging Demolition, Theft & Encroachment Of Mussoorie's Modi Bhawan
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-fir-quashed-radha-swami-satsang-beas-modi-bhawan-civil-suits-537118
-
-[Read on Telegram](https://t.me/livelawindia/112523)
+[Read on Telegram](https://t.me/livelawindia/112541)
 
 ---
-### 2026-06-08T08:43:08+00:00
-'No Blanket Stay Straight Away': Karnataka High Court Refuses To Halt Probe In FIR Against Homestay Owner Over US National's Alleged Rape
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-investigation-papers-us-national-alleged-rape-kodagu-homestay-537154
+### 2026-06-08T12:43:21+00:00
+Delhi High Court Issues Notice On Anjana Om Kashyap's Plea Against Defamatory Remarks By Khan Sir, Others; Refuses Interim Relief For Now
+https://www.livelaw.in/high-court/delhi-high-court/anjana-om-kashyap-khan-sir-delhi-high-court-537191
 
-[Read on Telegram](https://t.me/livelawindia/112524)
-
----
-### 2026-06-08T08:44:28+00:00
-Madras High Court Directs State To Pay Rs 10 Lakh Compensation To 3 Boys Sexually Assaulted By Father And Uncle
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-state-directed-compensation-10-lakh-minor-boys-sexual-assault-537155
-
-[Read on Telegram](https://t.me/livelawindia/112525)
+[Read on Telegram](https://t.me/livelawindia/112542)
 
 ---
-### 2026-06-08T08:57:51+00:00
-MP High Court Grants Anticipatory Bail To 'Lucky' Film Producer Over Alleged Violation Of Financing Agreement
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-anticipatory-bail-to-film-producer-over-violation-of-financing-agreement-537147
+### 2026-06-08T13:02:31+00:00
+Cheque Bouncing | Complainant Can't Question Nexus Of Document To Transaction After Denying His Signature, Handwriting On It: Rajasthan HC
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-cheque-dishonour-complainant-handwriting-fsl-examination-537171
 
-[Read on Telegram](https://t.me/livelawindia/112526)
-
----
-### 2026-06-08T09:12:01+00:00
-Supreme Court Weekly Digest May 11 - 17, 2026
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-weekly-digest-may-2026-537158
-
-[Read on Telegram](https://t.me/livelawindia/112527)
+[Read on Telegram](https://t.me/livelawindia/112543)
 
 ---
-### 2026-06-08T09:32:41+00:00
-Amazon's Pyrrhic Approval: Rewriting Merger Disclosure Rules
-https://www.livelaw.in/lawschool/articles/supreme-court-amazon-merger-disclosure-rules-competition-commission-of-india-powers-537159
+### 2026-06-08T13:02:41+00:00
+MSC Elsa 3 Sinkage: Kerala High Court Seeks Report On Formal Investigation Under Merchant Shipping Act In Crew's Plea To Return Home
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-msc-elsa-3-crew-home-countries-537194
 
-[Read on Telegram](https://t.me/livelawindia/112528)
-
----
-### 2026-06-08T09:38:41+00:00
-2017 Actress Assault Case: Kerala High Court Judge Recuses From Hearing Survivor's Plea For Fresh Probe Into 'Memory Card Leak'
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-actress-assault-memory-card-leak-sit-probe-537161
-
-[Read on Telegram](https://t.me/livelawindia/112529)
+[Read on Telegram](https://t.me/livelawindia/112544)
 
 ---
-### 2026-06-08T09:59:31+00:00
-Madras High Court Closes Plea Challenging TN Police's Notice Blocking “X” URLs After Users Delete Posts
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-x-post-url-removal-tn-notice-challenge-plea-closed-537165
+### 2026-06-08T13:36:51+00:00
+'No Evidence': Karnataka High Court Quashes FIR Against BJP MLA Yashpal Suvarna, Others Accused Of Burning Ex-CM's Effigy During Protest
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-fir-udupi-mla-burning-former-cm-effigy-537199
 
-[Read on Telegram](https://t.me/livelawindia/112530)
-
----
-### 2026-06-08T10:02:51+00:00
-Kerala High Court Weekly Round-Up: June 1 to June 7, 2026
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-weekly-june-2026-537164
-
-[Read on Telegram](https://t.me/livelawindia/112531)
+[Read on Telegram](https://t.me/livelawindia/112545)
 
 ---
-### 2026-06-08T10:43:21+00:00
-TMC Moves Calcutta High Court Challenging WB Assembly Speaker's Recognition Of Rebel TMC Leader Ritabrata Banerjee As LoP
-https://www.livelaw.in/high-court/calcutta-high-court/tmc-moves-calcutta-high-court-challenging-wb-assembly-speakers-recognition-of-rebel-tmc-leader-ritabrata-banerjee-as-lop-537170
+### 2026-06-08T14:02:21+00:00
+Individual Landowners Cannot Claim Compensation From State For Overhead Lines: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-aerial-right-of-way-for-transmission-lines-vests-with-state-individual-landowners-cannot-claim-compensation-for-overhead-lines-537143
 
-[Read on Telegram](https://t.me/livelawindia/112532)
+[Read on Telegram](https://t.me/livelawindia/112546)
 
 ---
-### 2026-06-08T10:58:41+00:00
-Bombay Bar Association Condemns Threats & Attacks On Justice Gautam Patel's Family Over Judgment
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-bombay-bar-association-condemns-threats-attacks-on-justice-gautam-patels-family-537175
+### 2026-06-08T14:08:32+00:00
+High Court Allows Eviction Proceedings Against Former J&K Congress President; Says Exchange Of Proprietary Land Impermissible
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-allows-eviction-proceedings-against-former-jk-congress-president-holds-exchange-of-proprietary-land-impermissible-537168
 
-[Read on Telegram](https://t.me/livelawindia/112533)
+[Read on Telegram](https://t.me/livelawindia/112547)
+
+---
+### 2026-06-08T14:08:41+00:00
+RTI Applicant Entitled To Recruitment Exam Merit List, Marks Subject To No Social Media Publication: Sikkim High Court
+https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-rti-applicant-entitled-recruitment-merit-list-537202
+
+[Read on Telegram](https://t.me/livelawindia/112548)
+
+---
+### 2026-06-08T14:16:01+00:00
+Punjab & Haryana High Court Imposes ₹50,000 Cost On Party For  Suppressing Foreign Citizenship, Denies Permission To Travel Abroad
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-imposes-50000-cost-on-petitioner-for-suppressing-citizenship-denies-foreign-travel-permission-537207
+
+[Read on Telegram](https://t.me/livelawindia/112549)
+
+---
+### 2026-06-08T14:17:21+00:00
+MP High Court Grants Maintenance To Woman & Child; Draws Adverse Inference Against Man For Refusing DNA Test
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-maintenance-section-125-crpc-adverse-interference-against-man-for-refusing-dna-test-537200
+
+[Read on Telegram](https://t.me/livelawindia/112550)
+
+---
+### 2026-06-08T14:32:22+00:00
+Mihir Rajesh Shah : Did Supreme Court Create Two Classes Of Arrestees?
+https://www.livelaw.in/articles/mihir-rajesh-shah-two-classes-arrestees-537172
+
+[Read on Telegram](https://t.me/livelawindia/112551)
+
+---
+### 2026-06-08T14:32:32+00:00
+P&H High Court Refuses To Quash FIR In Dera Samadh Trust Misappropriation Case, Orders Expeditious Probe
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-refuses-to-quash-fir-in-dera-trust-misappropriation-case-orders-expeditious-probe-537212
+
+[Read on Telegram](https://t.me/livelawindia/112552)
+
+---
+### 2026-06-08T15:17:12+00:00
+'Preventive Detention Not Sustainable Upon Mere Suspicion': P&H High Court Quashes Detention Under PIT-NDPS Act
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-preventive-detention-under-pit-ndps-act-over-unexplained-delay-orders-release-of-detenue-537210
+
+[Read on Telegram](https://t.me/livelawindia/112553)
+
+---
+### 2026-06-08T15:27:42+00:00
+MP High Court Directs Father To Pay Over ₹46 Lakh Towards Daughters' Education In Maintenance Case, Calls It His Obligation
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-maintenance-case-section-125-crpc-father-obligated-to-fund-daughters-education-537206
+
+[Read on Telegram](https://t.me/livelawindia/112554)
+
+---
+### 2026-06-08T15:54:22+00:00
+Sabarimala Gold Theft: Kerala High Court Allows Dismantling Of Prabhamandalam Plates & Sample Collection For Forensic Examination
+https://www.livelaw.in/high-court/kerala-high-court/sabarimala-gold-theft-kerala-high-court-forensic-examination-prabhamandalam-plates-537219
+
+[Read on Telegram](https://t.me/livelawindia/112555)
+
+---
+### 2026-06-08T15:56:22+00:00
+Rajasthan High Court Weekly Round-Up: June 1 - June 7, 2026
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-weekly-roundup2026-537220
+
+[Read on Telegram](https://t.me/livelawindia/112556)
 
 ---
