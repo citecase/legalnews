@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-08T04:37:15+00:00*
+*Last Updated: 2026-06-08T10:53:02+00:00*
+
+---
+
+### 2026-06-08T10:53:02+00:00
+Inherent Jurisdiction Of Court Can't Be Invoked In Relation To Custody Or Return Of Documents Except In Exceptional Situations: Kerala High Court
+https://www.verdictum.in/kerala-high-court/sambasivan-v-shylaja-kumari-2026ker38603-limitation-section-151-cpc-1615534
+
+[Source Link](https://t.me/verdictumlegalupdates/27441)
+
+---
+
+### 2026-06-08T10:03:20+00:00
+Used Proposed Supreme Court Challenge As Pretext To Avoid Implementing Police Investigation Reforms: Allahabad High Court Pulls Up ACS (Home)
+https://www.verdictum.in/allahabad-high-court/megha-raikwar-v-state-of-up-2026ahc124916-acs-home-used-proposed-supreme-court-challenge-dopt-1615533
+
+[Source Link](https://t.me/verdictumlegalupdates/27440)
+
+---
+
+### 2026-06-08T09:12:39+00:00
+Weekly Overview| Supreme Court Judgments: June 01 – June 05, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-june-01-june-05-2026-1615531
+
+[Source Link](https://t.me/verdictumlegalupdates/27439)
+
+---
+
+### 2026-06-08T08:32:27+00:00
+Designated Authority Can’t Adjudicate Borrower Disputes: Madras High Court Directs Speedy Disposal Of Section 14 SARFAESI Act Applications
+https://www.verdictum.in/madras-high-court/vijayanand-srinivasan-v-punjab-national-bank-2026mhc1947-1615528
+
+[Source Link](https://t.me/verdictumlegalupdates/27438)
+
+---
+
+### 2026-06-08T07:52:01+00:00
+Distant Relatives Not Related To Husband By Blood, Marriage Or Adoption Cannot Be Prosecuted In Dowry Death Cases: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/vinay-kumar-s-v-state-of-karnataka-writ-petition-no18828-of-2025-gm-res-distant-relatives-us-80-85-bns-in-dowry-death-cases-1615525
+
+[Source Link](https://t.me/verdictumlegalupdates/27437)
+
+---
+
+### 2026-06-08T07:02:59+00:00
+Candidates In Rank List Have No Indefeasible  Right To Appointment: Kerala High Court Upholds Abolition Of 34 Office Attendant Posts
+https://www.verdictum.in/kerala-high-court/sreeparvathy-rs-v-high-court-of-kerala-2026ker35338-34-office-attendant-posts-1615517
+
+[Source Link](https://t.me/verdictumlegalupdates/27436)
+
+---
+
+### 2026-06-08T06:12:37+00:00
+Non-Conduct Of Test Identification Parade Not Fatal If Accused Is Duly Identified By Victim, Eyewitness: Kerala High Court Upholds POCSO Conviction
+https://www.verdictum.in/kerala-high-court/2026ker34958-ayoob-v-state-of-kerala-1615510
+
+[Source Link](https://t.me/verdictumlegalupdates/27435)
+
+---
+
+### 2026-06-08T05:22:56+00:00
+Recovery From Bag Carried By Accused Does Not Attract Mandatory Compliance Of Section 50 NDPS Act: Kerala High Court
+https://www.verdictum.in/kerala-high-court/bichathu-v-state-of-kerala-2026ker39133-ndps-act-brown-sugar-seizure-body-bag-1615507
+
+[Source Link](https://t.me/verdictumlegalupdates/27434)
 
 ---
 
@@ -97,70 +161,6 @@ Recklessly Violated Most Fundamental Essence Of Article 21: Allahabad High Court
 https://www.verdictum.in/allahabad-high-court/matambar-mishra-v-the-state-of-up-2026ahc123415-db-article-21-police-custody-1615435
 
 [Source Link](https://t.me/verdictumlegalupdates/27422)
-
----
-
-### 2026-06-06T10:33:25+00:00
-Potency Test Of Accused Conducted Without Consent In POCSO Case Does Not Violate Article 21: Kerala High Court
-https://www.verdictum.in/kerala-high-court/ebin-av-v-state-of-kerala-2026ker38285-potency-test-accused-pocso-1615434
-
-[Source Link](https://t.me/verdictumlegalupdates/27421)
-
----
-
-### 2026-06-06T09:52:44+00:00
-Some Legal Provisions Are Like An Ass: Kerala High Court Directs Inclusion Of Biological Father’s Name In Birth Certificate Of IVF-Conceived Child
-https://www.verdictum.in/kerala-high-court/x-v-state-of-kerala-2026ker37687-fathers-name-in-birth-certificate-of-ivf-conceived-child-charles-dickens-mahabharat-1615432
-
-[Source Link](https://t.me/verdictumlegalupdates/27420)
-
----
-
-### 2026-06-06T09:02:42+00:00
-Concept Of "Proper Parties" Is Alien To Election Dispute Under Representation Of People Act: Jammu & Kashmir And Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/harsh-dev-singh-v-ut-of-jk-sec82-rp-act-cpc-implead-party-election-petition-1615427
-
-[Source Link](https://t.me/verdictumlegalupdates/27419)
-
----
-
-### 2026-06-06T08:13:21+00:00
-FCI Cannot Recover Excess Payments From Retirees After Decades While Withholding Benefits Under Same CDA–IDA Regime: Delhi High Court
-https://www.verdictum.in/delhi-high-court/food-corporation-of-india-v-jagneshwar-prasad-gupta-2026dhc5063-db-withholding-benefits-under-same-cdaida-retirees-1615423
-
-[Source Link](https://t.me/verdictumlegalupdates/27418)
-
----
-
-### 2026-06-06T07:33:00+00:00
-Pre-Marital Relationships Are Common Today: Supreme Court Restores Police Constable’s Selection Cancelled Over Cheating Allegations In Consensual Relationship
-https://www.verdictum.in/supreme-court/gajula-thirupathi-v-the-telangana-state-level-police-recruitment-board-2026-insc-493-compromise-in-failed-relationship-police-service-1615419
-
-[Source Link](https://t.me/verdictumlegalupdates/27417)
-
----
-
-### 2026-06-06T06:52:38+00:00
-Section 164 CrPC Statement Can Be Used For POCSO Conviction Where Victim Turns Hostile But Admits Signature & Does Not Allege Coercion: Madras High Court
-https://www.verdictum.in/madras-high-court/murugan-v-state-rep-by-inspector-of-police-2026mhc1907-pocso-section-164-1615412
-
-[Source Link](https://t.me/verdictumlegalupdates/27416)
-
----
-
-### 2026-06-06T06:02:57+00:00
-Financing Illicit Traffic U/S 27A NDPS Act Is Distinct From Mere Receipt Of Money For Sale Of Narcotics: J&K&L High Court
-https://www.verdictum.in/jammu-ladakh-high-court/kamran-mushtaq-lone-v-union-territory-of-jk-bail-app172026-financing-illicit-traffic-us-27a-ndps-act-1615406
-
-[Source Link](https://t.me/verdictumlegalupdates/27415)
-
----
-
-### 2026-06-06T05:13:04+00:00
-Documents Sourced From Official Records Must Still Be Proved Through Witnesses In Departmental Inquiries: Delhi High Court Upholds Relief To Former Jamia Professor
-https://www.verdictum.in/delhi-high-court/jamia-millia-islamia-v-m-g-hussain-2026dhc5059-db-documents-sourced-from-official-records-be-proved-1615405
-
-[Source Link](https://t.me/verdictumlegalupdates/27414)
 
 ---
 
