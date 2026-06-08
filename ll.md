@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-08T11:33:31+00:00*
+*Last Updated: 2026-06-08T11:47:31+00:00*
 
 ---
 
-### 2026-06-08T11:33:31+00:00
-Every Grave Or Dargah Not Automatically Waqf Property; Waqf Board Can't Take Control Merely Because It Has Muslim Religious Use : Madras HC
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-every-dargah-not-automatically-waqf-property-537180
-
-[Read on Telegram](https://t.me/livelawindia/112537)
-
----
 ### 2026-06-08T11:47:31+00:00
 'Delhi Will Choke, God Save Us All': High Court Questions Centre's Move To Evict Indian Polo Association
 https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-questions-centres-move-to-evict-indian-polo-association-537183
@@ -142,5 +135,12 @@ Rajasthan High Court Weekly Round-Up: June 1 - June 7, 2026
 https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-weekly-roundup2026-537220
 
 [Read on Telegram](https://t.me/livelawindia/112556)
+
+---
+### 2026-06-08T16:23:12+00:00
+'No One Has Right To Obstruct Public-Way: AP High Court Directs Adoni Municipality To Remove Encroachments From Layout Road In 5 Weeks
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-adoni-municipality-remove-encroachments-537222
+
+[Read on Telegram](https://t.me/livelawindia/112557)
 
 ---
