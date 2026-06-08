@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-06T14:32:28+00:00*
+*Last Updated: 2026-06-07T05:40:13+00:00*
 
 ---
 
-### 2026-06-06T14:32:28+00:00
-AP High Court Remands Plea Seeking Enforcement Of Circular Barring Foreign-Returned Priests From Performing Temple Duties
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-remands-plea-endowments-circular-foreign-travelled-archakas-537051
-
-[Read on Telegram](https://t.me/livelawindia/112474)
-
----
-### 2026-06-06T14:32:48+00:00
-No Room For Bystanders In A Constitution That Outlawed Untouchability
-https://www.livelaw.in/articles/supreme-court-public-view-caste-discrimination-sc-st-act-judgment-537038
-
-[Read on Telegram](https://t.me/livelawindia/112475)
-
----
-### 2026-06-06T15:02:58+00:00
-Wrong Batch Numbers On Liquor Bottles Due To Labelling Error Can't Attract Illegal Transport Charge Under Excise Act: HP High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-liquor-transport-valid-permit-batch-labels-excise-act-537067
-
-[Read on Telegram](https://t.me/livelawindia/112476)
-
----
-### 2026-06-06T15:37:18+00:00
-Delay In Challenging Family Court Orders In Matrimonial Disputes Is Fatal As Parties May Alter Marital Status: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-matrimonial-dispute-family-court-delay-537068
-
-[Read on Telegram](https://t.me/livelawindia/112477)
-
----
-### 2026-06-06T15:47:18+00:00
-Why Allahabad HC Said SC Rulings In 'Vihaan Kumar' & Others Opened 'Floodgates', Led To 'Chaotic Situation'
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-supreme-court-vihaan-kumar-mihir-rajesh-shah-floodgates-chaotic-situation-not-binding-537071
-
-[Read on Telegram](https://t.me/livelawindia/112478)
-
----
-### 2026-06-06T16:03:08+00:00
-'Used & Discarded Her As Though She Were A Mere Commodity': J&K&L High Court Upholds Abetment To Suicide Charge Against Boyfriend
-https://www.livelaw.in/high-court/jammu-kashmir/used-and-discarded-deceased-like-a-mere-commodity-jk-high-court-upholds-abetment-charges-against-boyfriend-quashes-against-grandfather-for-lack-of-specific-role-537066
-
-[Read on Telegram](https://t.me/livelawindia/112479)
-
----
-### 2026-06-06T16:31:08+00:00
-In A First, Five Women Lawyers Elected To Bar Council Of Maharashtra & Goa
-https://www.livelaw.in/news-updates/bar-council-of-maharashtra-goa-five-women-lawyers-elected-supreme-court-reservation-537075
-
-[Read on Telegram](https://t.me/livelawindia/112480)
-
----
-### 2026-06-06T17:23:34+00:00
-NALSA, Himachal Pradesh SLSA Organise Mega Legal Literacy Camp On Constitutional Values And Legal Awareness In Dharamshala
-https://www.livelaw.in/news-updates/nalsa-himachal-pradesh-slsa-organise-mega-legal-literacy-camp-on-constitutional-values-and-legal-awareness-in-dharamshala-537081
-
-[Read on Telegram](https://t.me/livelawindia/112481)
-
----
-### 2026-06-07T03:33:03+00:00
-Advocates Act And Politicians Returning To The Bar
-https://www.livelaw.in/articles/bar-council-of-india-mamata-banerjee-advocates-act-chief-minister-practice-537039
-
-[Read on Telegram](https://t.me/livelawindia/112482)
-
----
-### 2026-06-07T05:37:03+00:00
-The Devil Claims Jhumkas, And India Cannot Defend It! Why Traditional Cultural Expressions Need Serious Legal Attention
-https://www.livelaw.in/articles/india-traditional-cultural-expressions-legal-framework-protection-need-537083
-
-[Read on Telegram](https://t.me/livelawindia/112483)
-
----
 ### 2026-06-07T05:40:13+00:00
 Cops Sitting & Twiddling Thumbs: Allahabad HC Slams Quality Of UP Police Investigations, Raps ACS (Home); Here's Why
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-cops-twiddling-thumbs-up-police-investigations-acs-home-537084
@@ -142,5 +72,75 @@ Incited Mob In Prophet Mohammad's Name: Allahabad HC Denies Bail To Bareilly Vio
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-denies-bail-bareilly-violence-main-conspirator-tauqeer-raja-khan-537092
 
 [Read on Telegram](https://t.me/livelawindia/112493)
+
+---
+### 2026-06-08T03:36:44+00:00
+Madras High Court Upholds 2015 Order Directing Sun TV To Pay Compensation To Actress Sukanya Over Defamatory Remarks In Veerappan Interview
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-sun-tv-compensation-actress-defamation-interview-veerappan-537101
+
+[Read on Telegram](https://t.me/livelawindia/112494)
+
+---
+### 2026-06-08T03:45:24+00:00
+Kerala High Court Directs Probe To Identify Lawyer Who Caused Distress To Child In Court Hall
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-probe-lawyer-child-custody-dispute-537102
+
+[Read on Telegram](https://t.me/livelawindia/112495)
+
+---
+### 2026-06-08T03:45:44+00:00
+Legal Expert Vacancy At Advanced Weapons & Equipment India Limited
+https://www.livelaw.in/job-updates/legal-expert-vacancy-at-advanced-weapons-equipment-india-limited-537103
+
+[Read on Telegram](https://t.me/livelawindia/112496)
+
+---
+### 2026-06-08T03:47:24+00:00
+Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
+https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-537104
+
+[Read on Telegram](https://t.me/livelawindia/112497)
+
+---
+### 2026-06-08T03:48:24+00:00
+Empanelment Of Advocates At District Legal Service Authority, Rajsamand
+https://www.livelaw.in/job-updates/empanelment-of-advocates-at-district-legal-service-authority-rajsamand-537105
+
+[Read on Telegram](https://t.me/livelawindia/112498)
+
+---
+### 2026-06-08T03:54:24+00:00
+Retired Bombay HC Judge GS Patel, Family Face Threats And Attack Over Dawoodi Bohra Succession Verdict
+https://www.livelaw.in/top-stories/retired-bombay-hc-judge-gs-patel-family-face-threats-and-attack-over-dawoodi-bohra-succession-verdict-537106
+
+[Read on Telegram](https://t.me/livelawindia/112499)
+
+---
+### 2026-06-08T03:56:25+00:00
+Analyst (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP [Bangalore; Apply Now]
+https://www.livelaw.in/job-updates/analyst-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-bangalore-537107
+
+[Read on Telegram](https://t.me/livelawindia/112500)
+
+---
+### 2026-06-08T04:14:54+00:00
+Rule Of Law As Economic Infrastructure: Why The Bar Remains Its Most Immediate Guardian
+https://www.livelaw.in/articles/bar-council-of-india-rule-of-law-economic-infrastructure-advocates-537110
+
+[Read on Telegram](https://t.me/livelawindia/112501)
+
+---
+### 2026-06-08T04:26:14+00:00
+Police Assume Abuses Will Go Unnoticed: Allahabad HC Awards 25K Compensation To Man Over 24-Hour Illegal Detention
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-awards-25k-compensation-24-hour-illegal-detention-537111
+
+[Read on Telegram](https://t.me/livelawindia/112502)
+
+---
+### 2026-06-08T04:37:14+00:00
+Dock Identification For First Time In Court Without Test Identification Parade Not Fatal To Prosecution's Case Always : Supreme Court
+https://www.livelaw.in/supreme-court/dock-identification-for-first-time-in-court-without-test-identification-parade-not-fatal-to-prosecutions-case-always-supreme-court-537114
+
+[Read on Telegram](https://t.me/livelawindia/112503)
 
 ---
