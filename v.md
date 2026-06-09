@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-09T09:52:35+00:00*
+*Last Updated: 2026-06-09T15:12:15+00:00*
+
+---
+
+### 2026-06-09T15:12:15+00:00
+Minor Errors In Examination Systems No Ground For Judicial Interference: Kerala High Court Rejects CBSE Students' Plea, Upholds New Engineering Admission Normalization Formula
+https://www.verdictum.in/kerala-high-court/jomon-jaison-v-the-state-of-kerala-2026ker39956-cbse-students-new-engineering-admission-normalization-formula-1615611
+
+[Source Link](https://t.me/verdictumlegalupdates/27466)
+
+---
+
+### 2026-06-09T14:32:51+00:00
+Can Delay In Landlord’s Revision Under Maharashtra Rent Control Act Can Be Condoned? Bombay High Court Refers Matter To Larger Bench
+https://www.verdictum.in/bombay-high-court/lt-col-retd-jaigopal-nagarajan-v-mrs-vasudeva-mariwala-ors-2026bhc-as22809-1615610
+
+[Source Link](https://t.me/verdictumlegalupdates/27465)
+
+---
+
+### 2026-06-09T13:52:18+00:00
+DGCA Cannot Suspend Pilot Licence In Public Interest Without Hearing: Bombay High Court Restores Air India Pilot's ATPL After 15 Years
+https://www.verdictum.in/bombay-high-court/jeetendra-krishna-varma-v-director-general-of-civil-aviation-writ-petition-no-3360-of-2011-air-india-pilots-atpl-after-15-years-licences-1615609
+
+[Source Link](https://t.me/verdictumlegalupdates/27464)
+
+---
+
+### 2026-06-09T13:12:56+00:00
+Kerala High Court Permits SIT To Dismantle Prabhamandalam Plates & Collect Samples In Sabrimala Gold Heist Case
+https://www.verdictum.in/kerala-high-court/heist-and-plundering-of-gold-from-the-gold-cladded-dwarapalakas-sabarimala-1615615
+
+[Source Link](https://t.me/verdictumlegalupdates/27463)
+
+---
+
+### 2026-06-09T12:32:33+00:00
+Jharkhand High Court Suggests Integration Of Women Helpline 181 With 112; Directs Compliance With Mandatory Zero FIR Provisions In Sexual Offence Cases
+https://www.verdictum.in/jharkhand-high-court/court-on-its-own-motion-v-state-of-jharkhand-orssexual-offence-victims-helpline-1615607
+
+[Source Link](https://t.me/verdictumlegalupdates/27462)
+
+---
+
+### 2026-06-09T11:52:31+00:00
+Applicant Not Shown As Accused: Gujarat High Court Asks Bank To De-freeze Account
+https://www.verdictum.in/gujarat-high-court/arjun-kuruveetil-peethambaran-v-the-police-inspector-2026gujhc32081-applicant-bank-de-freeze-account-1615603
+
+[Source Link](https://t.me/verdictumlegalupdates/27461)
+
+---
+
+### 2026-06-09T11:12:29+00:00
+No Exceptions Attracted: Allahabad High Court Upholds Murder Conviction Of Man For Burning Pregnant Wife Alive
+https://www.verdictum.in/allahabad-high-court/manish-v-state-of-up-2026ahc-lko40009-db-burning-pregnant-wife-alive-1615602
+
+[Source Link](https://t.me/verdictumlegalupdates/27460)
+
+---
+
+### 2026-06-09T10:32:27+00:00
+Incestuous Sexual Violence By Parent Distinct Category Of Offence Mandating Compensation To Victim Children: Madras High Court
+https://www.verdictum.in/madras-high-court/xxx-v-state-ors-pocso-sexual-violence-children-parent-father-compensation-1615599
+
+[Source Link](https://t.me/verdictumlegalupdates/27459)
 
 ---
 
@@ -97,70 +161,6 @@ Bail In Heinous Crimes Against Women At Threshold Of Trial Has Chilling Effect O
 https://www.verdictum.in/jammu-ladakh-high-court/bail-heinous-crimes-women-threshold-trial-chilling-effect-safety-1615547
 
 [Source Link](https://t.me/verdictumlegalupdates/27447)
-
----
-
-### 2026-06-08T14:12:50+00:00
-Right To Posthumous Bodily Integrity Exemplified Through Will: Kerala HC Rejects Family’s Objections To Use Of Body For Anatomical Purposes
-https://www.verdictum.in/kerala-high-court/greeny-tomy-v-state-of-kerala-2026ker36320-posthumous-bodily-integrity-1615546
-
-[Source Link](https://t.me/verdictumlegalupdates/27446)
-
----
-
-### 2026-06-08T13:32:48+00:00
-"Lawyer’s Duty Extends Beyond Client": Kerala High Court Condemns Courtroom Interference By Advocate Who Unauthorizedly Approached 6-year-old Child
-https://www.verdictum.in/kerala-high-court/condemns-courtroom-interference-advocate-grants-interim-custody-1615543
-
-[Source Link](https://t.me/verdictumlegalupdates/27445)
-
----
-
-### 2026-06-08T12:52:27+00:00
-Government Must Record Reasons Before Granting Sanction U/S 34 ID Act; Mere Allegation Of Violation Not Sufficient For Prosecution: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/ms-international-trimmings-and-labels-india-pvt-ltd-v-additional-chief-secretary-to-department-of-labour-wp-no-229-of-2021-government-must-record-reasons-1615542
-
-[Source Link](https://t.me/verdictumlegalupdates/27444)
-
----
-
-### 2026-06-08T12:12:25+00:00
-Karnataka High Court Holds BSNL Liable For Enabling Bank Fraud; Directs Compensation Of ₹50 Lakh; Urges Strict Duty Of Care In Digital Banking Operations
-https://www.verdictum.in/karnataka-high-court/sri-basaveshwara-pattana-sahakara-bank-niyamittha-v-canara-bank-connected-matter-2026khc25587-1615535
-
-[Source Link](https://t.me/verdictumlegalupdates/27443)
-
----
-
-### 2026-06-08T11:32:23+00:00
-Supreme Court Notice To CBSE On Plea To Declare Class 12 Improvement Examination Result
-https://www.verdictum.in/supreme-court/notice-to-cbse-on-plea-to-declare-class-12-improvement-examination-result-1615537
-
-[Source Link](https://t.me/verdictumlegalupdates/27442)
-
----
-
-### 2026-06-08T10:53:02+00:00
-Inherent Jurisdiction Of Court Can't Be Invoked In Relation To Custody Or Return Of Documents Except In Exceptional Situations: Kerala High Court
-https://www.verdictum.in/kerala-high-court/sambasivan-v-shylaja-kumari-2026ker38603-limitation-section-151-cpc-1615534
-
-[Source Link](https://t.me/verdictumlegalupdates/27441)
-
----
-
-### 2026-06-08T10:03:20+00:00
-Used Proposed Supreme Court Challenge As Pretext To Avoid Implementing Police Investigation Reforms: Allahabad High Court Pulls Up ACS (Home)
-https://www.verdictum.in/allahabad-high-court/megha-raikwar-v-state-of-up-2026ahc124916-acs-home-used-proposed-supreme-court-challenge-dopt-1615533
-
-[Source Link](https://t.me/verdictumlegalupdates/27440)
-
----
-
-### 2026-06-08T09:12:39+00:00
-Weekly Overview| Supreme Court Judgments: June 01 – June 05, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-june-01-june-05-2026-1615531
-
-[Source Link](https://t.me/verdictumlegalupdates/27439)
 
 ---
 
