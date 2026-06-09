@@ -1,114 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-09T05:32:44+00:00*
+*Last Updated: 2026-06-09T08:52:14+00:00*
 
 ---
 
-### 2026-06-09T05:32:44+00:00
-S.27 Evidence Act | Panch Witness Turning Hostile Not Fatal If Recovery Proved By Other Evidence: Supreme Court
-https://www.livelaw.in/supreme-court/s27-evidence-act-panch-witness-turning-hostile-not-fatal-if-recovery-proved-by-other-evidence-supreme-court-537247
-
-[Read on Telegram](https://t.me/livelawindia/112574)
-
----
-### 2026-06-09T05:34:24+00:00
-2026 LiveLaw (SC) 607 | UPERNDRA KHARE VERSUS THE STATE OF MADHYA PRADESH
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-607-uperndra-khare-versus-the-state-of-madhya-pradesh-537248
-
-[Read on Telegram](https://t.me/livelawindia/112575)
-
----
-### 2026-06-09T05:42:24+00:00
-Sub-Registrar Cannot Stall Registration Of Sale Deed Over Pending Clarifications From Higher Authorities: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-registration-act-1908-sub-registrar-cannot-keep-registration-of-sale-deed-in-suspended-animation-pending-clarifications-from-higher-authorities-jkl-high-court-537203
-
-[Read on Telegram](https://t.me/livelawindia/112576)
-
----
-### 2026-06-09T05:45:14+00:00
-P&H High Court Directs Centre To Treat Ex-IAS Ashok Khema As Empanelled Addl Secretary, Holds Denial Arbitrary
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-grants-notional-empanelment-relief-to-retired-ias-officer-ashok-khemka-holds-denial-arbitrary-537249
-
-[Read on Telegram](https://t.me/livelawindia/112577)
-
----
-### 2026-06-09T05:48:54+00:00
-Kerala High Court Grants Bail To Mother Booked In Balaramapuram Child Murder Case
-https://www.livelaw.in/high-court/kerala-high-court/balaramapuram-child-murder-kerala-high-court-bail-mother-accused-daughters-murder-537251
-
-[Read on Telegram](https://t.me/livelawindia/112578)
-
----
-### 2026-06-09T05:52:54+00:00
-Patna Court Stays Arrest Of Khan Sir In Coaching Centre Firing Case
-https://www.livelaw.in/news-updates/patna-court-stays-arrest-of-khan-sir-in-coaching-centre-firing-case-537252
-
-[Read on Telegram](https://t.me/livelawindia/112579)
-
----
-### 2026-06-09T06:08:34+00:00
-Civil & Criminal Remedies Can Be Invoked For Same Cause, But There Shouldn't Be Inordinate Time Gap Between Them: Supreme Court
-https://www.livelaw.in/supreme-court/civil-criminal-remedies-can-be-invoked-for-same-cause-but-there-shouldnt-be-inordinate-time-gap-between-them-supreme-court-537256
-
-[Read on Telegram](https://t.me/livelawindia/112580)
-
----
-### 2026-06-09T06:10:34+00:00
-2026 LiveLaw (SC) 608 | NAZIBUL RAHIM KHAN & ORS. VERSUS STATE OF UTTAR PRADESH & ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-608-nazibul-rahim-khan-ors-versus-state-of-uttar-pradesh-anr-537257
-
-[Read on Telegram](https://t.me/livelawindia/112581)
-
----
-### 2026-06-09T06:37:48+00:00
-Freezing Bank Account Without Proving Account Holder's Involvement In Criminal Case Adversely Affects Fundamental Rights: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-bank-account-freeze-holder-involvement-criminal-activity-fundamental-rights-537262
-
-[Read on Telegram](https://t.me/livelawindia/112582)
-
----
-### 2026-06-09T07:18:13+00:00
-Madras High Court Seeks State Response On Plea For Increasing Compensation To Fishermen During Fishing-Ban Period
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-state-response-plea-enhances-compensation-fishermen-fishing-ban-period-537266
-
-[Read on Telegram](https://t.me/livelawindia/112583)
-
----
-### 2026-06-09T07:29:33+00:00
-MCD's Negligence Led To Saket Building Collapse : Amicus Tells Supreme Court, Seeks Action Against Officials
-https://www.livelaw.in/top-stories/mcds-negligence-led-to-saket-building-collapse-amicus-tells-supreme-court-seeks-action-against-officials-537267
-
-[Read on Telegram](https://t.me/livelawindia/112584)
-
----
-### 2026-06-09T07:31:53+00:00
--graphic Six Additional Judges Sworn-In As Permanent Judges Of Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-six-new-permanent-judges-537268
-
-[Read on Telegram](https://t.me/livelawindia/112585)
-
----
-### 2026-06-09T08:03:24+00:00
-Lawyer Writes To Delhi High Court Chief Justice Seeking Suo-Motu Cognizance Of Malviya Nagar Fire Tragedy
-https://www.livelaw.in/high-court/delhi-high-court/lawyer-writes-to-delhi-high-court-chief-justice-seeking-suo-motu-cognisance-of-malviya-nagar-fire-tragedy-537271
-
-[Read on Telegram](https://t.me/livelawindia/112586)
-
----
-### 2026-06-09T08:11:44+00:00
-Karnataka High Court Permits Impleadment Of Workers' Associations In Plea Challenging State's Minimum Wage Hike Notification
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-impleading-additional-workers-associations-minimum-wage-hike-notification-537273
-
-[Read on Telegram](https://t.me/livelawindia/112587)
-
----
-### 2026-06-09T08:50:34+00:00
-Madras High Court Issues Notice On Plea By Lottery Baron Santiago Martin & Kin Against Provisional Attachment Of Properties By ED
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-santiago-martin-challenge-provisional-attachment-ed-notice-537278
-
-[Read on Telegram](https://t.me/livelawindia/112588)
-
----
 ### 2026-06-09T08:52:14+00:00
 Supreme Court Summarises Law On Approver's Testimony, Says Corroboration Not Mandatory For Accomplice's Evidence
 https://www.livelaw.in/supreme-court/supreme-court-summarises-law-on-approvers-testimony-says-corroboration-not-mandatory-for-accomplices-evidence-537279
@@ -142,5 +37,110 @@ Sabarimala Ashtabhishekam Case: Kerala High Court Seeks 10-Year Record On Conduc
 https://www.livelaw.in/high-court/kerala-high-court/sabarimala-ashtabhishekam-fund-misappropriation-case-kerala-high-court-records-relating-material-procurement-practices-537276
 
 [Read on Telegram](https://t.me/livelawindia/112593)
+
+---
+### 2026-06-09T10:17:04+00:00
+MSC Elsa 3 Sinkage: Kerala High Court Permits 3 Out Of 7 Foreign Crew Members To Return To Their Home Countries
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-msc-elsa-3-crew-home-countries-537298
+
+[Read on Telegram](https://t.me/livelawindia/112594)
+
+---
+### 2026-06-09T10:25:44+00:00
+'Where Is Fraud To Order CBI Probe?': Madras HC Says CBI Not Necessary Party In Plea Challenging AG Perarivalan's Enrolment As Advocate
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-mp-sudha-plea-enrolment-perarivalan-cbi-not-necessary-party-537300
+
+[Read on Telegram](https://t.me/livelawindia/112595)
+
+---
+### 2026-06-09T10:45:34+00:00
+Madras High Court Issues Notice On Plea To Bring In SOP For Appointing Law Officers By State To Ensure Transparency And Merit
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-law-officer-appointment-sop-notice-issued-537305
+
+[Read on Telegram](https://t.me/livelawindia/112596)
+
+---
+### 2026-06-09T11:03:14+00:00
+33 Years On Rajasthan High Court Acquits Man Of Attempt to Murder, Says Grievous Injuries, Dangerous Weapon Insufficient Without Intention
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-attempt-murder-conviction-grievous-injuries-dangerous-weapons-537238
+
+[Read on Telegram](https://t.me/livelawindia/112597)
+
+---
+### 2026-06-09T11:11:54+00:00
+Kogilu Layout Demolition | 'As Per Photos Not Even 1 Person Has Gone': Karnataka HC Questions Claim On Lack Of Facilities At Rehab Centres
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-rehabilitation-facility-displaced-kogilu-demolition-537307
+
+[Read on Telegram](https://t.me/livelawindia/112598)
+
+---
+### 2026-06-09T11:32:44+00:00
+'How Can He Tamper When Entire Thing Is In EC's Custody?' Karnataka High Court Orally Asks In BJP Leader's Plea Against Ballot Tampering FIR
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-continues-interim-stay-bjp-leader-jeevaraja-ballot-tampering-case-537292
+
+[Read on Telegram](https://t.me/livelawindia/112599)
+
+---
+### 2026-06-09T11:54:07+00:00
+Local Commissioner's Report Can Form Basis Of Decree In Trademark Infringement Suit: Delhi Commercial Court
+https://www.livelaw.in/law-firms/litigation/local-commissioners-report-can-form-basis-decree-trademark-infringement-suit-delhi-commercial-court-537311
+
+[Read on Telegram](https://t.me/livelawindia/112600)
+
+---
+### 2026-06-09T12:01:07+00:00
+DBRANLU Invites Papers For First International Conference On Public Policy And Public Law; Submit Abstracts By June 30
+https://www.livelaw.in/lawschool/call-for-papers/dbranlu-invites-papers-first-international-conference-public-policy-public-law-537312
+
+[Read on Telegram](https://t.me/livelawindia/112601)
+
+---
+### 2026-06-09T12:19:57+00:00
+HDFC Bank's Press Statement Not Defamatory Against Lilavati Trust: Bombay High Court Imposes Rs 5 Lakh Cost On Lilavati Trust
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-hdfc-bank-media-allegations-lilavati-trust-defamation-537317
+
+[Read on Telegram](https://t.me/livelawindia/112602)
+
+---
+### 2026-06-09T12:32:57+00:00
+MP High Court Grants Bail To Minor Accused Of Murder, Says Probation Officer's Report Indicates Possibility Of Improvement Under Proper Care
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bail-child-in-conflict-with-law-jj-act-537316
+
+[Read on Telegram](https://t.me/livelawindia/112603)
+
+---
+### 2026-06-09T14:02:47+00:00
+MP High Court Grants Anticipatory Bail To Man Booked In Kidnapping FIR, Slams State For Failing To Produce CCTV Report Despite Grant Of Time
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-anticipatory-bail-kidnapping-case-state-failure-to-produce-cctv-exam-report-537322
+
+[Read on Telegram](https://t.me/livelawindia/112604)
+
+---
+### 2026-06-09T14:32:37+00:00
+Banking On Takeovers: RBI's New Acquisition Finance Regime In India
+https://www.livelaw.in/articles/banking-takeovers-rbi-acquisition-finance-regime-india-537244
+
+[Read on Telegram](https://t.me/livelawindia/112605)
+
+---
+### 2026-06-09T14:32:57+00:00
+Workmen's Compensation Act | Taking Deceased To Hospital On Humanitarian Ground Not Enough To Assume Employment Relationship: Rajasthan HC
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-refund-workmen-compensation-award-537283
+
+[Read on Telegram](https://t.me/livelawindia/112606)
+
+---
+### 2026-06-09T15:02:27+00:00
+Karnataka High Court Fines Woman Cop ₹1 Lakh Who Suppressed Order Directing FIR Over Allegedly Kicking Lady Advocate To Secure Stay On Probe
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-police-officer-plea-fir-kicking-lady-advocate-537326
+
+[Read on Telegram](https://t.me/livelawindia/112607)
+
+---
+### 2026-06-09T15:08:07+00:00
+Gold Medal Claim Raised After Nine Years Cannot Be Entertained: J&K&L High Court Dismisses Doctor's Appeal Against Kashmir University
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-delay-and-laches-bars-relief-where-appellant-takes-vacillating-stands-over-nine-years-court-dismisses-gold-medal-claim-537293
+
+[Read on Telegram](https://t.me/livelawindia/112608)
 
 ---
