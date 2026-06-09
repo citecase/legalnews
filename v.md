@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-09T15:12:15+00:00*
+*Last Updated: 2026-06-09T16:02:38+00:00*
+
+---
+
+### 2026-06-09T16:02:38+00:00
+Law Officer Vacancy At Principal District Court, Madurai
+https://www.verdictum.in/job-updates/madurai-principal-district-court-1615612
+
+[Source Link](https://t.me/verdictumlegalupdates/27467)
 
 ---
 
@@ -153,14 +161,6 @@ Divorcee Daughter To Be Treated Equally With Daughters Mentioned In Rule 44(5) O
 https://www.verdictum.in/madhya-pradesh-high-court/smt-jyoti-shrivastava-v-the-state-of-madhya-pradesh-divorcee-daughter-pension-1615549
 
 [Source Link](https://t.me/verdictumlegalupdates/27448)
-
----
-
-### 2026-06-08T14:52:51+00:00
-Bail In Heinous Crimes Against Women At Threshold Of Trial Has Chilling Effect On Their Safety: J&K High Court Cancels Bail Of Rape Accused
-https://www.verdictum.in/jammu-ladakh-high-court/bail-heinous-crimes-women-threshold-trial-chilling-effect-safety-1615547
-
-[Source Link](https://t.me/verdictumlegalupdates/27447)
 
 ---
 
