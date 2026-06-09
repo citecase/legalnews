@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-08T16:03:05+00:00*
+*Last Updated: 2026-06-09T04:32:32+00:00*
+
+---
+
+### 2026-06-09T04:32:32+00:00
+No Absolute Bar On Release Of Aadhaar Biometric Information; Forgery Accused Can’t Get Away On Ground Of Privacy: Andhra Pradesh High Court
+https://www.verdictum.in/andhra-pradesh-high-court/shri-sitaramanjaneyulu-elaprolu-v-the-union-of-india-biometric-information-1615550
+
+[Source Link](https://t.me/verdictumlegalupdates/27450)
 
 ---
 
@@ -153,14 +161,6 @@ https://www.verdictum.in/job-updates/district-and-subordinate-court-tiruvallur-1
 https://www.verdictum.in/madhya-pradesh-high-court/pragatisheel-radiographers-sangh-madhya-pradesh-v-union-of-india-ors-2026mphc-ind15164-1615478
 
 [Source Link](https://t.me/verdictumlegalupdates/27431)
-
----
-
-### 2026-06-07T09:32:55+00:00
-Imagination Test Fails Where Mark Reflects Intended Purpose Of Cosmetics: Delhi High Court Cancels GLASS SKIN Registration In Renee Dispute
-https://www.verdictum.in/delhi-high-court/renee-cosmetics-private-limited-v-rupali-sharma-2026dhc5075-glass-skin-registration-renee-1615474
-
-[Source Link](https://t.me/verdictumlegalupdates/27430)
 
 ---
 
