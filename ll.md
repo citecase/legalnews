@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-08T14:08:32+00:00*
+*Last Updated: 2026-06-09T05:32:44+00:00*
 
 ---
 
-### 2026-06-08T14:08:32+00:00
-High Court Allows Eviction Proceedings Against Former J&K Congress President; Says Exchange Of Proprietary Land Impermissible
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-allows-eviction-proceedings-against-former-jk-congress-president-holds-exchange-of-proprietary-land-impermissible-537168
+### 2026-06-09T05:32:44+00:00
+S.27 Evidence Act | Panch Witness Turning Hostile Not Fatal If Recovery Proved By Other Evidence: Supreme Court
+https://www.livelaw.in/supreme-court/s27-evidence-act-panch-witness-turning-hostile-not-fatal-if-recovery-proved-by-other-evidence-supreme-court-537247
 
-[Read on Telegram](https://t.me/livelawindia/112547)
-
----
-### 2026-06-08T14:08:41+00:00
-RTI Applicant Entitled To Recruitment Exam Merit List, Marks Subject To No Social Media Publication: Sikkim High Court
-https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-rti-applicant-entitled-recruitment-merit-list-537202
-
-[Read on Telegram](https://t.me/livelawindia/112548)
+[Read on Telegram](https://t.me/livelawindia/112574)
 
 ---
-### 2026-06-08T14:16:01+00:00
-Punjab & Haryana High Court Imposes ₹50,000 Cost On Party For  Suppressing Foreign Citizenship, Denies Permission To Travel Abroad
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-imposes-50000-cost-on-petitioner-for-suppressing-citizenship-denies-foreign-travel-permission-537207
+### 2026-06-09T05:34:24+00:00
+2026 LiveLaw (SC) 607 | UPERNDRA KHARE VERSUS THE STATE OF MADHYA PRADESH
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-607-uperndra-khare-versus-the-state-of-madhya-pradesh-537248
 
-[Read on Telegram](https://t.me/livelawindia/112549)
-
----
-### 2026-06-08T14:17:21+00:00
-MP High Court Grants Maintenance To Woman & Child; Draws Adverse Inference Against Man For Refusing DNA Test
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-maintenance-section-125-crpc-adverse-interference-against-man-for-refusing-dna-test-537200
-
-[Read on Telegram](https://t.me/livelawindia/112550)
+[Read on Telegram](https://t.me/livelawindia/112575)
 
 ---
-### 2026-06-08T14:32:22+00:00
-Mihir Rajesh Shah : Did Supreme Court Create Two Classes Of Arrestees?
-https://www.livelaw.in/articles/mihir-rajesh-shah-two-classes-arrestees-537172
+### 2026-06-09T05:42:24+00:00
+Sub-Registrar Cannot Stall Registration Of Sale Deed Over Pending Clarifications From Higher Authorities: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-registration-act-1908-sub-registrar-cannot-keep-registration-of-sale-deed-in-suspended-animation-pending-clarifications-from-higher-authorities-jkl-high-court-537203
 
-[Read on Telegram](https://t.me/livelawindia/112551)
-
----
-### 2026-06-08T14:32:32+00:00
-P&H High Court Refuses To Quash FIR In Dera Samadh Trust Misappropriation Case, Orders Expeditious Probe
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-refuses-to-quash-fir-in-dera-trust-misappropriation-case-orders-expeditious-probe-537212
-
-[Read on Telegram](https://t.me/livelawindia/112552)
+[Read on Telegram](https://t.me/livelawindia/112576)
 
 ---
-### 2026-06-08T15:17:12+00:00
-'Preventive Detention Not Sustainable Upon Mere Suspicion': P&H High Court Quashes Detention Under PIT-NDPS Act
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-preventive-detention-under-pit-ndps-act-over-unexplained-delay-orders-release-of-detenue-537210
+### 2026-06-09T05:45:14+00:00
+P&H High Court Directs Centre To Treat Ex-IAS Ashok Khema As Empanelled Addl Secretary, Holds Denial Arbitrary
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-grants-notional-empanelment-relief-to-retired-ias-officer-ashok-khemka-holds-denial-arbitrary-537249
 
-[Read on Telegram](https://t.me/livelawindia/112553)
-
----
-### 2026-06-08T15:27:42+00:00
-MP High Court Directs Father To Pay Over ₹46 Lakh Towards Daughters' Education In Maintenance Case, Calls It His Obligation
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-maintenance-case-section-125-crpc-father-obligated-to-fund-daughters-education-537206
-
-[Read on Telegram](https://t.me/livelawindia/112554)
+[Read on Telegram](https://t.me/livelawindia/112577)
 
 ---
-### 2026-06-08T15:54:22+00:00
-Sabarimala Gold Theft: Kerala High Court Allows Dismantling Of Prabhamandalam Plates & Sample Collection For Forensic Examination
-https://www.livelaw.in/high-court/kerala-high-court/sabarimala-gold-theft-kerala-high-court-forensic-examination-prabhamandalam-plates-537219
+### 2026-06-09T05:48:54+00:00
+Kerala High Court Grants Bail To Mother Booked In Balaramapuram Child Murder Case
+https://www.livelaw.in/high-court/kerala-high-court/balaramapuram-child-murder-kerala-high-court-bail-mother-accused-daughters-murder-537251
 
-[Read on Telegram](https://t.me/livelawindia/112555)
-
----
-### 2026-06-08T15:56:22+00:00
-Rajasthan High Court Weekly Round-Up: June 1 - June 7, 2026
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-weekly-roundup2026-537220
-
-[Read on Telegram](https://t.me/livelawindia/112556)
+[Read on Telegram](https://t.me/livelawindia/112578)
 
 ---
-### 2026-06-08T16:23:12+00:00
-'No One Has Right To Obstruct Public-Way: AP High Court Directs Adoni Municipality To Remove Encroachments From Layout Road In 5 Weeks
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-adoni-municipality-remove-encroachments-537222
+### 2026-06-09T05:52:54+00:00
+Patna Court Stays Arrest Of Khan Sir In Coaching Centre Firing Case
+https://www.livelaw.in/news-updates/patna-court-stays-arrest-of-khan-sir-in-coaching-centre-firing-case-537252
 
-[Read on Telegram](https://t.me/livelawindia/112557)
-
----
-### 2026-06-09T03:08:03+00:00
-Project Analyst (Investigations & Compliance) Vacancy At Ernst & Young [Mumbai; Apply Now]
-https://www.livelaw.in/job-updates/project-analyst-investigations-compliance-vacancy-at-ernst-young-mumbai-537224
-
-[Read on Telegram](https://t.me/livelawindia/112558)
+[Read on Telegram](https://t.me/livelawindia/112579)
 
 ---
-### 2026-06-09T03:10:23+00:00
-Empanelment Of Advocates At District Legal Service Authority, Pali
-https://www.livelaw.in/job-updates/empanelment-of-advocates-at-district-legal-service-authority-pali-537225
+### 2026-06-09T06:08:34+00:00
+Civil & Criminal Remedies Can Be Invoked For Same Cause, But There Shouldn't Be Inordinate Time Gap Between Them: Supreme Court
+https://www.livelaw.in/supreme-court/civil-criminal-remedies-can-be-invoked-for-same-cause-but-there-shouldnt-be-inordinate-time-gap-between-them-supreme-court-537256
 
-[Read on Telegram](https://t.me/livelawindia/112559)
-
----
-### 2026-06-09T03:11:23+00:00
-Consultant (Law) Vacancy At Delhi Electricity Regulatory Commission
-https://www.livelaw.in/job-updates/consultant-law-vacancy-at-delhi-electricity-regulatory-commission-537226
-
-[Read on Telegram](https://t.me/livelawindia/112560)
+[Read on Telegram](https://t.me/livelawindia/112580)
 
 ---
-### 2026-06-09T03:18:43+00:00
-Force Majeure Must Be Proved By Cogent Evidence, Not Mere Newspaper Reports: Delhi Commercial Court Refuses To Set Aside Arbitral Award
-https://www.livelaw.in/law-firms/litigation/force-majeure-cogent-evidence-delhi-commercial-court-refuses-set-aside-arbitral-award-537227
+### 2026-06-09T06:10:34+00:00
+2026 LiveLaw (SC) 608 | NAZIBUL RAHIM KHAN & ORS. VERSUS STATE OF UTTAR PRADESH & ANR.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-608-nazibul-rahim-khan-ors-versus-state-of-uttar-pradesh-anr-537257
 
-[Read on Telegram](https://t.me/livelawindia/112561)
-
----
-### 2026-06-09T03:21:03+00:00
-Senior Manager (Legal - Corporate and SME Finance) Vacancy At Tata Capital
-https://www.livelaw.in/job-updates/senior-manager-legal-corporate-and-sme-finance-vacancy-at-tata-capital-537228
-
-[Read on Telegram](https://t.me/livelawindia/112562)
+[Read on Telegram](https://t.me/livelawindia/112581)
 
 ---
-### 2026-06-09T03:32:43+00:00
-AP High Court Refuses To Interfere With Proposed Construction Of Public Toilet On Municipal Land, Directs Maintenance Of Hygiene
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-gvmc-sanitation-initiative-public-toilet-residence-537221
+### 2026-06-09T06:37:48+00:00
+Freezing Bank Account Without Proving Account Holder's Involvement In Criminal Case Adversely Affects Fundamental Rights: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-bank-account-freeze-holder-involvement-criminal-activity-fundamental-rights-537262
 
-[Read on Telegram](https://t.me/livelawindia/112563)
-
----
-### 2026-06-09T03:34:43+00:00
-Call For Contributing Authors For Book: 'Lex Indica: Critical Essays On Contemporary Law' (ISBN: 978-81-69342-12-4): Register By June 21
-https://www.livelaw.in/lawschool/news/call-for-contributing-authors-for-book-lex-indica-critical-essays-contemporary-law-537229
-
-[Read on Telegram](https://t.me/livelawindia/112564)
+[Read on Telegram](https://t.me/livelawindia/112582)
 
 ---
-### 2026-06-09T03:45:43+00:00
-NCDRC Refuses To Condon 179-Day Delay In Filing Appeal, Says Appellant Failed To Show Sufficient Cause
-https://www.livelaw.in/consumer-cases/ncdrc-refuses-to-condon-179-day-delay-in-filing-appeal-says-appellant-failed-to-show-sufficient-cause-537230
+### 2026-06-09T07:18:13+00:00
+Madras High Court Seeks State Response On Plea For Increasing Compensation To Fishermen During Fishing-Ban Period
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-state-response-plea-enhances-compensation-fishermen-fishing-ban-period-537266
 
-[Read on Telegram](https://t.me/livelawindia/112565)
+[Read on Telegram](https://t.me/livelawindia/112583)
 
 ---
-### 2026-06-09T03:53:03+00:00
-Rajasthan High Court Restores Appeal Dismissed For Non-Removal Of Defects, Says Party Can't Suffer For 'Procedural Abdication' By Lawyer
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-advocate-procedural-lapses-litigant-penalty-appeal-dismissal-537232
+### 2026-06-09T07:29:33+00:00
+MCD's Negligence Led To Saket Building Collapse : Amicus Tells Supreme Court, Seeks Action Against Officials
+https://www.livelaw.in/top-stories/mcds-negligence-led-to-saket-building-collapse-amicus-tells-supreme-court-seeks-action-against-officials-537267
 
-[Read on Telegram](https://t.me/livelawindia/112566)
+[Read on Telegram](https://t.me/livelawindia/112584)
+
+---
+### 2026-06-09T07:31:53+00:00
+-graphic Six Additional Judges Sworn-In As Permanent Judges Of Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-six-new-permanent-judges-537268
+
+[Read on Telegram](https://t.me/livelawindia/112585)
+
+---
+### 2026-06-09T08:03:24+00:00
+Lawyer Writes To Delhi High Court Chief Justice Seeking Suo-Motu Cognizance Of Malviya Nagar Fire Tragedy
+https://www.livelaw.in/high-court/delhi-high-court/lawyer-writes-to-delhi-high-court-chief-justice-seeking-suo-motu-cognisance-of-malviya-nagar-fire-tragedy-537271
+
+[Read on Telegram](https://t.me/livelawindia/112586)
+
+---
+### 2026-06-09T08:11:44+00:00
+Karnataka High Court Permits Impleadment Of Workers' Associations In Plea Challenging State's Minimum Wage Hike Notification
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-impleading-additional-workers-associations-minimum-wage-hike-notification-537273
+
+[Read on Telegram](https://t.me/livelawindia/112587)
+
+---
+### 2026-06-09T08:50:34+00:00
+Madras High Court Issues Notice On Plea By Lottery Baron Santiago Martin & Kin Against Provisional Attachment Of Properties By ED
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-santiago-martin-challenge-provisional-attachment-ed-notice-537278
+
+[Read on Telegram](https://t.me/livelawindia/112588)
+
+---
+### 2026-06-09T08:52:14+00:00
+Supreme Court Summarises Law On Approver's Testimony, Says Corroboration Not Mandatory For Accomplice's Evidence
+https://www.livelaw.in/supreme-court/supreme-court-summarises-law-on-approvers-testimony-says-corroboration-not-mandatory-for-accomplices-evidence-537279
+
+[Read on Telegram](https://t.me/livelawindia/112589)
+
+---
+### 2026-06-09T08:53:34+00:00
+2026 LiveLaw (SC) 609 | GOPI CHAND @ PAPPU VERSUS STATE (NCT OF DELHI)
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-609-gopi-chand-pappu-versus-state-nct-of-delhi-537280
+
+[Read on Telegram](https://t.me/livelawindia/112590)
+
+---
+### 2026-06-09T09:21:34+00:00
+Kerala High Court Rejects CBSE Students' Challenge To State's 2026 Standardisation Formula For Professional Courses Admission
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-cbse-2026-prospectus-537285
+
+[Read on Telegram](https://t.me/livelawindia/112591)
+
+---
+### 2026-06-09T09:32:54+00:00
+Dead Do Not Log Out
+https://www.livelaw.in/articles/dead-log-out-juridical-recognition-digital-estates-india-537243
+
+[Read on Telegram](https://t.me/livelawindia/112592)
+
+---
+### 2026-06-09T09:33:14+00:00
+Sabarimala Ashtabhishekam Case: Kerala High Court Seeks 10-Year Record On Conduct Of Major Temple Rituals, Details Of Materials Supplied
+https://www.livelaw.in/high-court/kerala-high-court/sabarimala-ashtabhishekam-fund-misappropriation-case-kerala-high-court-records-relating-material-procurement-practices-537276
+
+[Read on Telegram](https://t.me/livelawindia/112593)
 
 ---
