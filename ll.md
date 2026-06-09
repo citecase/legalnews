@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-08T11:47:31+00:00*
+*Last Updated: 2026-06-08T14:08:32+00:00*
 
 ---
 
-### 2026-06-08T11:47:31+00:00
-'Delhi Will Choke, God Save Us All': High Court Questions Centre's Move To Evict Indian Polo Association
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-questions-centres-move-to-evict-indian-polo-association-537183
-
-[Read on Telegram](https://t.me/livelawindia/112538)
-
----
-### 2026-06-08T11:55:51+00:00
-Malviya Nagar Fire: Delhi Court Denies Bail To Cook, Extends Hotel Owner's Remand To Police Custody By 2 Days
-https://www.livelaw.in/news-updates/delhi-court-denies-bail-to-cook-extends-hotel-owners-police-remand-malviya-nagar-fire-537185
-
-[Read on Telegram](https://t.me/livelawindia/112539)
-
----
-### 2026-06-08T12:27:21+00:00
-Karnataka High Court Weekly Round Up- June 1 – June 7, 2026
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-roundup2026-537141
-
-[Read on Telegram](https://t.me/livelawindia/112540)
-
----
-### 2026-06-08T12:32:41+00:00
-Contractual Employee Cannot Claim Protection Under Article 311; J&K&L High Court Upholds Termination Over Unsatisfactory Performance
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-contractual-employee-cannot-claim-protection-of-article-311-court-upholds-termination-for-unsatisfactory-performance-537142
-
-[Read on Telegram](https://t.me/livelawindia/112541)
-
----
-### 2026-06-08T12:43:21+00:00
-Delhi High Court Issues Notice On Anjana Om Kashyap's Plea Against Defamatory Remarks By Khan Sir, Others; Refuses Interim Relief For Now
-https://www.livelaw.in/high-court/delhi-high-court/anjana-om-kashyap-khan-sir-delhi-high-court-537191
-
-[Read on Telegram](https://t.me/livelawindia/112542)
-
----
-### 2026-06-08T13:02:31+00:00
-Cheque Bouncing | Complainant Can't Question Nexus Of Document To Transaction After Denying His Signature, Handwriting On It: Rajasthan HC
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-cheque-dishonour-complainant-handwriting-fsl-examination-537171
-
-[Read on Telegram](https://t.me/livelawindia/112543)
-
----
-### 2026-06-08T13:02:41+00:00
-MSC Elsa 3 Sinkage: Kerala High Court Seeks Report On Formal Investigation Under Merchant Shipping Act In Crew's Plea To Return Home
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-msc-elsa-3-crew-home-countries-537194
-
-[Read on Telegram](https://t.me/livelawindia/112544)
-
----
-### 2026-06-08T13:36:51+00:00
-'No Evidence': Karnataka High Court Quashes FIR Against BJP MLA Yashpal Suvarna, Others Accused Of Burning Ex-CM's Effigy During Protest
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-fir-udupi-mla-burning-former-cm-effigy-537199
-
-[Read on Telegram](https://t.me/livelawindia/112545)
-
----
-### 2026-06-08T14:02:21+00:00
-Individual Landowners Cannot Claim Compensation From State For Overhead Lines: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-aerial-right-of-way-for-transmission-lines-vests-with-state-individual-landowners-cannot-claim-compensation-for-overhead-lines-537143
-
-[Read on Telegram](https://t.me/livelawindia/112546)
-
----
 ### 2026-06-08T14:08:32+00:00
 High Court Allows Eviction Proceedings Against Former J&K Congress President; Says Exchange Of Proprietary Land Impermissible
 https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-allows-eviction-proceedings-against-former-jk-congress-president-holds-exchange-of-proprietary-land-impermissible-537168
@@ -142,5 +79,68 @@ https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-week
 https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-adoni-municipality-remove-encroachments-537222
 
 [Read on Telegram](https://t.me/livelawindia/112557)
+
+---
+### 2026-06-09T03:08:03+00:00
+Project Analyst (Investigations & Compliance) Vacancy At Ernst & Young [Mumbai; Apply Now]
+https://www.livelaw.in/job-updates/project-analyst-investigations-compliance-vacancy-at-ernst-young-mumbai-537224
+
+[Read on Telegram](https://t.me/livelawindia/112558)
+
+---
+### 2026-06-09T03:10:23+00:00
+Empanelment Of Advocates At District Legal Service Authority, Pali
+https://www.livelaw.in/job-updates/empanelment-of-advocates-at-district-legal-service-authority-pali-537225
+
+[Read on Telegram](https://t.me/livelawindia/112559)
+
+---
+### 2026-06-09T03:11:23+00:00
+Consultant (Law) Vacancy At Delhi Electricity Regulatory Commission
+https://www.livelaw.in/job-updates/consultant-law-vacancy-at-delhi-electricity-regulatory-commission-537226
+
+[Read on Telegram](https://t.me/livelawindia/112560)
+
+---
+### 2026-06-09T03:18:43+00:00
+Force Majeure Must Be Proved By Cogent Evidence, Not Mere Newspaper Reports: Delhi Commercial Court Refuses To Set Aside Arbitral Award
+https://www.livelaw.in/law-firms/litigation/force-majeure-cogent-evidence-delhi-commercial-court-refuses-set-aside-arbitral-award-537227
+
+[Read on Telegram](https://t.me/livelawindia/112561)
+
+---
+### 2026-06-09T03:21:03+00:00
+Senior Manager (Legal - Corporate and SME Finance) Vacancy At Tata Capital
+https://www.livelaw.in/job-updates/senior-manager-legal-corporate-and-sme-finance-vacancy-at-tata-capital-537228
+
+[Read on Telegram](https://t.me/livelawindia/112562)
+
+---
+### 2026-06-09T03:32:43+00:00
+AP High Court Refuses To Interfere With Proposed Construction Of Public Toilet On Municipal Land, Directs Maintenance Of Hygiene
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-gvmc-sanitation-initiative-public-toilet-residence-537221
+
+[Read on Telegram](https://t.me/livelawindia/112563)
+
+---
+### 2026-06-09T03:34:43+00:00
+Call For Contributing Authors For Book: 'Lex Indica: Critical Essays On Contemporary Law' (ISBN: 978-81-69342-12-4): Register By June 21
+https://www.livelaw.in/lawschool/news/call-for-contributing-authors-for-book-lex-indica-critical-essays-contemporary-law-537229
+
+[Read on Telegram](https://t.me/livelawindia/112564)
+
+---
+### 2026-06-09T03:45:43+00:00
+NCDRC Refuses To Condon 179-Day Delay In Filing Appeal, Says Appellant Failed To Show Sufficient Cause
+https://www.livelaw.in/consumer-cases/ncdrc-refuses-to-condon-179-day-delay-in-filing-appeal-says-appellant-failed-to-show-sufficient-cause-537230
+
+[Read on Telegram](https://t.me/livelawindia/112565)
+
+---
+### 2026-06-09T03:53:03+00:00
+Rajasthan High Court Restores Appeal Dismissed For Non-Removal Of Defects, Says Party Can't Suffer For 'Procedural Abdication' By Lawyer
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-advocate-procedural-lapses-litigant-penalty-appeal-dismissal-537232
+
+[Read on Telegram](https://t.me/livelawindia/112566)
 
 ---
