@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-09T04:32:32+00:00*
+*Last Updated: 2026-06-09T09:52:35+00:00*
+
+---
+
+### 2026-06-09T09:52:35+00:00
+Ballot Tampering  Does Not Vitiate Entire Electoral Process; Doubtful Ballots To Be Placed Before ASG For Final Decision: Delhi High Court While Refusing BCD Election Re-Poll
+https://www.verdictum.in/delhi-high-court/raman-gandhi-v-bar-council-of-delhi-2026dhc5082-db-ballot-tampering-during-bcd-election-1615600
+
+[Source Link](https://t.me/verdictumlegalupdates/27458)
+
+---
+
+### 2026-06-09T09:12:13+00:00
+Allahabad High Court Flags Statewide “Systematic Violation” Of Child Rape Victims’ Rights; Directs Constitution Of Expert Committee
+https://www.verdictum.in/allahabad-high-court/baru-singh-and-another-v-state-of-up-and-4-others-2026ahc124160-pocso-1615597
+
+[Source Link](https://t.me/verdictumlegalupdates/27457)
+
+---
+
+### 2026-06-09T08:32:31+00:00
+Habeas Corpus Petition Not Maintainable Post-Cognizance: Allahabad High Court Finds Recent Supreme Court Judgments Non-Binding & Hit By Principles Of Stare Decisis
+https://www.verdictum.in/allahabad-high-court/2026ahc123102db-neeraj-v-state-of-up-1615596
+
+[Source Link](https://t.me/verdictumlegalupdates/27456)
+
+---
+
+### 2026-06-09T07:52:29+00:00
+Curing Of Defects Arising Out Of Defectively Filed Appeal U/S.62 Of IBC Is Permissible Only Within 28 Days Of Notification Thereof: Supreme Court
+https://www.verdictum.in/supreme-court/ca-ramchandra-dallaram-choudhary-v-adani-infrastructure-and-developers-private-limited-2026-insc-629-1615591
+
+[Source Link](https://t.me/verdictumlegalupdates/27455)
+
+---
+
+### 2026-06-09T07:12:48+00:00
+Himachal Pradesh High Court Bars Ex-Officio Member MLAs From Voting In Municipal Chief Elections To Preserve Autonomy Of Local Self-Government
+https://www.verdictum.in/himachal-high-court/bars-mlas-voting-municipal-chief-elections-autonomy-local-self-government-1615585
+
+[Source Link](https://t.me/verdictumlegalupdates/27454)
+
+---
+
+### 2026-06-09T06:32:26+00:00
+Mere Religious Use Or Existence Of Tomb Or Shrine Not Sufficient To Declare Property As Waqf: Madras High Court
+https://www.verdictum.in/madras-high-court/sarkar-syed-habibullah-sha-kahdari-arif-rabbani-hazarat-dargha-v-the-tamil-nadu-waqf-board-ors-1615581
+
+[Source Link](https://t.me/verdictumlegalupdates/27453)
+
+---
+
+### 2026-06-09T05:52:25+00:00
+Equating "Offered" With "Accepted And Paid For" In Non-Compete Clause Amounts To Rewriting The Contract: Bombay High Court
+https://www.verdictum.in/bombay-high-court/oil-field-instrumentation-india-pvt-ltd-v-xcalibur-multiphysics-group-sl-2026bhc-os12502-non-compete-clause-amounts-to-rewriting-1615578
+
+[Source Link](https://t.me/verdictumlegalupdates/27452)
+
+---
+
+### 2026-06-09T05:13:03+00:00
+Citizens Can’t Be Left In Lurch Due To Failure Of System: Punjab & Haryana HC Orders Temporary Electricity Connection To Residents Of Abandoned Project
+https://www.verdictum.in/punjab-and-haryana-high-court/sushma-valencia-apartment-owners-association-v-state-of-punjab-cm-9761-cwp-2026-citizens-electricity-connection-1615572
+
+[Source Link](https://t.me/verdictumlegalupdates/27451)
 
 ---
 
@@ -97,70 +161,6 @@ Weekly Overview| Supreme Court Judgments: June 01 – June 05, 2026
 https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-june-01-june-05-2026-1615531
 
 [Source Link](https://t.me/verdictumlegalupdates/27439)
-
----
-
-### 2026-06-08T08:32:27+00:00
-Designated Authority Can’t Adjudicate Borrower Disputes: Madras High Court Directs Speedy Disposal Of Section 14 SARFAESI Act Applications
-https://www.verdictum.in/madras-high-court/vijayanand-srinivasan-v-punjab-national-bank-2026mhc1947-1615528
-
-[Source Link](https://t.me/verdictumlegalupdates/27438)
-
----
-
-### 2026-06-08T07:52:01+00:00
-Distant Relatives Not Related To Husband By Blood, Marriage Or Adoption Cannot Be Prosecuted In Dowry Death Cases: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/vinay-kumar-s-v-state-of-karnataka-writ-petition-no18828-of-2025-gm-res-distant-relatives-us-80-85-bns-in-dowry-death-cases-1615525
-
-[Source Link](https://t.me/verdictumlegalupdates/27437)
-
----
-
-### 2026-06-08T07:02:59+00:00
-Candidates In Rank List Have No Indefeasible  Right To Appointment: Kerala High Court Upholds Abolition Of 34 Office Attendant Posts
-https://www.verdictum.in/kerala-high-court/sreeparvathy-rs-v-high-court-of-kerala-2026ker35338-34-office-attendant-posts-1615517
-
-[Source Link](https://t.me/verdictumlegalupdates/27436)
-
----
-
-### 2026-06-08T06:12:37+00:00
-Non-Conduct Of Test Identification Parade Not Fatal If Accused Is Duly Identified By Victim, Eyewitness: Kerala High Court Upholds POCSO Conviction
-https://www.verdictum.in/kerala-high-court/2026ker34958-ayoob-v-state-of-kerala-1615510
-
-[Source Link](https://t.me/verdictumlegalupdates/27435)
-
----
-
-### 2026-06-08T05:22:56+00:00
-Recovery From Bag Carried By Accused Does Not Attract Mandatory Compliance Of Section 50 NDPS Act: Kerala High Court
-https://www.verdictum.in/kerala-high-court/bichathu-v-state-of-kerala-2026ker39133-ndps-act-brown-sugar-seizure-body-bag-1615507
-
-[Source Link](https://t.me/verdictumlegalupdates/27434)
-
----
-
-### 2026-06-08T04:37:15+00:00
-Confiscated Vehicles Under NDPS Act Can Be Released On Financial Bonds: Punjab & Haryana High Court Asks Trial Courts Not To Reject Applications Mechanically
-https://www.verdictum.in/punjab-and-haryana-high-court/gurjinder-singh-v-state-of-punjab-anr-state-ndps-act-vehicle-confiscation-1615502
-
-[Source Link](https://t.me/verdictumlegalupdates/27433)
-
----
-
-### 2026-06-07T14:33:20+00:00
-Law Officer Vacancy At District and Subordinate Court Tiruvallur
-https://www.verdictum.in/job-updates/district-and-subordinate-court-tiruvallur-1615443
-
-[Source Link](https://t.me/verdictumlegalupdates/27432)
-
----
-
-### 2026-06-07T12:32:56+00:00
-“Can’t Be Treated Arbitrary Merely Because Of Demanding Work Schedules”: Madhya Pradesh High Court Rejects Challenge To TB Screening Policy
-https://www.verdictum.in/madhya-pradesh-high-court/pragatisheel-radiographers-sangh-madhya-pradesh-v-union-of-india-ors-2026mphc-ind15164-1615478
-
-[Source Link](https://t.me/verdictumlegalupdates/27431)
 
 ---
 
