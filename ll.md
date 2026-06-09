@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-09T08:52:14+00:00*
+*Last Updated: 2026-06-09T09:32:54+00:00*
 
 ---
 
-### 2026-06-09T08:52:14+00:00
-Supreme Court Summarises Law On Approver's Testimony, Says Corroboration Not Mandatory For Accomplice's Evidence
-https://www.livelaw.in/supreme-court/supreme-court-summarises-law-on-approvers-testimony-says-corroboration-not-mandatory-for-accomplices-evidence-537279
-
-[Read on Telegram](https://t.me/livelawindia/112589)
-
----
-### 2026-06-09T08:53:34+00:00
-2026 LiveLaw (SC) 609 | GOPI CHAND @ PAPPU VERSUS STATE (NCT OF DELHI)
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-609-gopi-chand-pappu-versus-state-nct-of-delhi-537280
-
-[Read on Telegram](https://t.me/livelawindia/112590)
-
----
-### 2026-06-09T09:21:34+00:00
-Kerala High Court Rejects CBSE Students' Challenge To State's 2026 Standardisation Formula For Professional Courses Admission
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-cbse-2026-prospectus-537285
-
-[Read on Telegram](https://t.me/livelawindia/112591)
-
----
 ### 2026-06-09T09:32:54+00:00
 Dead Do Not Log Out
 https://www.livelaw.in/articles/dead-log-out-juridical-recognition-digital-estates-india-537243
@@ -142,5 +121,26 @@ Gold Medal Claim Raised After Nine Years Cannot Be Entertained: J&K&L High Court
 https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-delay-and-laches-bars-relief-where-appellant-takes-vacillating-stands-over-nine-years-court-dismisses-gold-medal-claim-537293
 
 [Read on Telegram](https://t.me/livelawindia/112608)
+
+---
+### 2026-06-09T15:17:07+00:00
+Magistrates, Cops Personally Liable To Compensate For Illegal Preventive Detention : Allahabad High Court Issues Guidelines
+https://www.livelaw.in/high-court/allahabad-high-court/cops-magistrates-to-pay-for-illegal-detentions-allahabad-hc-cracks-down-on-preventive-arrest-abuse-537327
+
+[Read on Telegram](https://t.me/livelawindia/112609)
+
+---
+### 2026-06-09T15:38:37+00:00
+2026 LiveLaw (SC) 610 | PUSHPA & ORS. versus DAYAWATI & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-610-pushpa-ors-versus-dayawati-ors-537331
+
+[Read on Telegram](https://t.me/livelawindia/112610)
+
+---
+### 2026-06-09T15:47:47+00:00
+Abhijit Iyer Mitra's Post Was In 'Shayari' Form : Delhi Court Stays Order For FIR For Post Against Manisha Pande
+https://www.livelaw.in/news-updates/delhi-court-stays-order-for-fir-against-abhijit-iyer-mitra-for-posts-against-manisha-pande-537334
+
+[Read on Telegram](https://t.me/livelawindia/112611)
 
 ---
