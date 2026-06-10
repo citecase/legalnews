@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-09T16:02:38+00:00*
+*Last Updated: 2026-06-10T04:33:03+00:00*
+
+---
+
+### 2026-06-10T04:33:03+00:00
+State Failed In Its Duty To Take Sufficient Care: Bombay High Court Awards ₹22 Lakh Compensation For Death Of Schizophrenic Patient In Yerwada Mental Hospital
+https://www.verdictum.in/bombay-high-court/ns-v-the-state-of-maharashtra-2026bhc-as22841-db-22-lakh-compensation-for-death-of-schizophrenic-patient-1615613
+
+[Source Link](https://t.me/verdictumlegalupdates/27468)
 
 ---
 
@@ -153,14 +161,6 @@ Research Associate Vacancy At Insolvency and Bankruptcy Board of India (IBBI)
 https://www.verdictum.in/job-updates/insolvency-and-bankruptcy-board-of-india-1615544
 
 [Source Link](https://t.me/verdictumlegalupdates/27449)
-
----
-
-### 2026-06-08T15:22:33+00:00
-Divorcee Daughter To Be Treated Equally With Daughters Mentioned In Rule 44(5) Of MP Civil Services (Pension) Rules: Madhya Pradesh HC
-https://www.verdictum.in/madhya-pradesh-high-court/smt-jyoti-shrivastava-v-the-state-of-madhya-pradesh-divorcee-daughter-pension-1615549
-
-[Source Link](https://t.me/verdictumlegalupdates/27448)
 
 ---
 
