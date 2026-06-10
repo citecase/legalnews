@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-10T10:32:21+00:00*
+*Last Updated: 2026-06-10T16:03:09+00:00*
+
+---
+
+### 2026-06-10T16:03:09+00:00
+Law Officer Vacancy At Coimbatore District Court
+https://www.verdictum.in/job-updates/coimbatore-district-court-1615677
+
+[Source Link](https://t.me/verdictumlegalupdates/27486)
+
+---
+
+### 2026-06-10T15:12:45+00:00
+Omission Of Deceased’s Name Or Defects In Framing Charge Not Fatal Unless It Causes Prejudice Or Failure Of Justice: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/santosh-and-others-v-state-of-up-2026ahc108314-db-framing-charge-1615685
+
+[Source Link](https://t.me/verdictumlegalupdates/27485)
+
+---
+
+### 2026-06-10T14:33:12+00:00
+Witness Not Examined U/s. 244 CrPC Can't Be Examined U/s. 246 Invoking Section 311 CrPC: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/dilawar-singh-v-state-of-up-and-3-others-2026ahc125388-complainant-witness-section-246-crpc-1615683
+
+[Source Link](https://t.me/verdictumlegalupdates/27484)
+
+---
+
+### 2026-06-10T14:02:29+00:00
+No Person Can Be Charged Merely On Imagination; Prima Facie Dowry Demand Necessary To Invoke Presumption U/S 113B Evidence Act: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/meena-devi-v-state-of-up-2026ahc110819-dowry-demand-necessary-presumption-us-113-b-evidence-act-1615676
+
+[Source Link](https://t.me/verdictumlegalupdates/27483)
+
+---
+
+### 2026-06-10T13:33:11+00:00
+Will Not Be Treated As Precedent: Supreme Court Sets Aside POCSO Conviction After Victim Marries Accused Upon Attaining Majority
+https://www.verdictum.in/supreme-court/article-142-quash-pocso-conviction-accused-victim-married-1615680
+
+[Source Link](https://t.me/verdictumlegalupdates/27482)
+
+---
+
+### 2026-06-10T13:02:48+00:00
+No Material Showing Disturbance Of Public Order Or Pecuniary Gain: Allahabad High Court Quashes Proceedings Under Gangsters Act
+https://www.verdictum.in/allahabad-high-court/rameez-nemat-v-state-of-up-2026ahc-lko39285-gangsters-act-cannot-invoked-public-order-pecuniary-gain-1615675
+
+[Source Link](https://t.me/verdictumlegalupdates/27481)
+
+---
+
+### 2026-06-10T12:32:26+00:00
+Major Unmarried Sister Who Was Residing With Deceased Entitled To Motor Accident Compensation Towards Loss Of Dependency: Kerala High Court
+https://www.verdictum.in/kerala-high-court/the-new-india-assurance-company-limited-v-devaki-2026ker38133-unmarried-sister-compensation-1615673
+
+[Source Link](https://t.me/verdictumlegalupdates/27480)
+
+---
+
+### 2026-06-10T11:52:42+00:00
+16 Year Old Girl Was Set Ablaze During Sudden Scuffle With No Prior Bad Intention Or Planning: Allahabad High Court Converts Murder Conviction To Culpable Homicide
+https://www.verdictum.in/allahabad-high-court/pawan-kumar-v-state-of-up-2026ahc120629-db-setting-woman-ablaze-during-sudden-scuffle-1615671
+
+[Source Link](https://t.me/verdictumlegalupdates/27479)
+
+---
+
+### 2026-06-10T11:12:26+00:00
+Confirmed Auction Sale Under SARFAESI Act Can Be Set Aside If Process Adopted Is Legally Infirm Or Violates Statutory Rules: Supreme Court
+https://www.verdictum.in/supreme-court/m-r-vasumathi-v-the-authorised-officer-ors-2026-insc-633-sarfaesi-1615670
+
+[Source Link](https://t.me/verdictumlegalupdates/27478)
 
 ---
 
@@ -89,78 +161,6 @@ Law Officer Vacancy At Principal District Court, Madurai
 https://www.verdictum.in/job-updates/madurai-principal-district-court-1615612
 
 [Source Link](https://t.me/verdictumlegalupdates/27467)
-
----
-
-### 2026-06-09T15:12:15+00:00
-Minor Errors In Examination Systems No Ground For Judicial Interference: Kerala High Court Rejects CBSE Students' Plea, Upholds New Engineering Admission Normalization Formula
-https://www.verdictum.in/kerala-high-court/jomon-jaison-v-the-state-of-kerala-2026ker39956-cbse-students-new-engineering-admission-normalization-formula-1615611
-
-[Source Link](https://t.me/verdictumlegalupdates/27466)
-
----
-
-### 2026-06-09T14:32:51+00:00
-Can Delay In Landlord’s Revision Under Maharashtra Rent Control Act Can Be Condoned? Bombay High Court Refers Matter To Larger Bench
-https://www.verdictum.in/bombay-high-court/lt-col-retd-jaigopal-nagarajan-v-mrs-vasudeva-mariwala-ors-2026bhc-as22809-1615610
-
-[Source Link](https://t.me/verdictumlegalupdates/27465)
-
----
-
-### 2026-06-09T13:52:18+00:00
-DGCA Cannot Suspend Pilot Licence In Public Interest Without Hearing: Bombay High Court Restores Air India Pilot's ATPL After 15 Years
-https://www.verdictum.in/bombay-high-court/jeetendra-krishna-varma-v-director-general-of-civil-aviation-writ-petition-no-3360-of-2011-air-india-pilots-atpl-after-15-years-licences-1615609
-
-[Source Link](https://t.me/verdictumlegalupdates/27464)
-
----
-
-### 2026-06-09T13:12:56+00:00
-Kerala High Court Permits SIT To Dismantle Prabhamandalam Plates & Collect Samples In Sabrimala Gold Heist Case
-https://www.verdictum.in/kerala-high-court/heist-and-plundering-of-gold-from-the-gold-cladded-dwarapalakas-sabarimala-1615615
-
-[Source Link](https://t.me/verdictumlegalupdates/27463)
-
----
-
-### 2026-06-09T12:32:33+00:00
-Jharkhand High Court Suggests Integration Of Women Helpline 181 With 112; Directs Compliance With Mandatory Zero FIR Provisions In Sexual Offence Cases
-https://www.verdictum.in/jharkhand-high-court/court-on-its-own-motion-v-state-of-jharkhand-orssexual-offence-victims-helpline-1615607
-
-[Source Link](https://t.me/verdictumlegalupdates/27462)
-
----
-
-### 2026-06-09T11:52:31+00:00
-Applicant Not Shown As Accused: Gujarat High Court Asks Bank To De-freeze Account
-https://www.verdictum.in/gujarat-high-court/arjun-kuruveetil-peethambaran-v-the-police-inspector-2026gujhc32081-applicant-bank-de-freeze-account-1615603
-
-[Source Link](https://t.me/verdictumlegalupdates/27461)
-
----
-
-### 2026-06-09T11:12:29+00:00
-No Exceptions Attracted: Allahabad High Court Upholds Murder Conviction Of Man For Burning Pregnant Wife Alive
-https://www.verdictum.in/allahabad-high-court/manish-v-state-of-up-2026ahc-lko40009-db-burning-pregnant-wife-alive-1615602
-
-[Source Link](https://t.me/verdictumlegalupdates/27460)
-
----
-
-### 2026-06-09T10:32:27+00:00
-Incestuous Sexual Violence By Parent Distinct Category Of Offence Mandating Compensation To Victim Children: Madras High Court
-https://www.verdictum.in/madras-high-court/xxx-v-state-ors-pocso-sexual-violence-children-parent-father-compensation-1615599
-
-[Source Link](https://t.me/verdictumlegalupdates/27459)
-
----
-
-### 2026-06-09T09:52:35+00:00
-Ballot Tampering  Does Not Vitiate Entire Electoral Process; Doubtful Ballots To Be Placed Before ASG For Final Decision: Delhi High Court While Refusing BCD Election Re-Poll
-https://www.verdictum.in/delhi-high-court/raman-gandhi-v-bar-council-of-delhi-2026dhc5082-db-ballot-tampering-during-bcd-election-1615600
-
-[Source Link](https://t.me/verdictumlegalupdates/27458)
 
 ---
 
