@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-09T11:32:44+00:00*
+*Last Updated: 2026-06-10T05:47:28+00:00*
 
 ---
 
-### 2026-06-09T11:32:44+00:00
-'How Can He Tamper When Entire Thing Is In EC's Custody?' Karnataka High Court Orally Asks In BJP Leader's Plea Against Ballot Tampering FIR
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-continues-interim-stay-bjp-leader-jeevaraja-ballot-tampering-case-537292
+### 2026-06-10T05:47:28+00:00
+2026 LiveLaw (SC) 612 | CHATURBHUJ PRADHAN v AMAR PRADHAN & ANR.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-612-chaturbhuj-pradhan-v-amar-pradhan-anr-537354
 
-[Read on Telegram](https://t.me/livelawindia/112599)
-
----
-### 2026-06-09T11:54:07+00:00
-Local Commissioner's Report Can Form Basis Of Decree In Trademark Infringement Suit: Delhi Commercial Court
-https://www.livelaw.in/law-firms/litigation/local-commissioners-report-can-form-basis-decree-trademark-infringement-suit-delhi-commercial-court-537311
-
-[Read on Telegram](https://t.me/livelawindia/112600)
+[Read on Telegram](https://t.me/livelawindia/112626)
 
 ---
-### 2026-06-09T12:01:07+00:00
-DBRANLU Invites Papers For First International Conference On Public Policy And Public Law; Submit Abstracts By June 30
-https://www.livelaw.in/lawschool/call-for-papers/dbranlu-invites-papers-first-international-conference-public-policy-public-law-537312
+### 2026-06-10T06:15:38+00:00
+Cashew Corp 'Scam': Kerala High Court Directs Compliance Of Order On Re-Considering Sanction To Prosecute Allegedly Corrupt Ex-Officials
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-cashew-corp-scam-contempt-sanction-cbi-537356
 
-[Read on Telegram](https://t.me/livelawindia/112601)
-
----
-### 2026-06-09T12:19:57+00:00
-HDFC Bank's Press Statement Not Defamatory Against Lilavati Trust: Bombay High Court Imposes Rs 5 Lakh Cost On Lilavati Trust
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-hdfc-bank-media-allegations-lilavati-trust-defamation-537317
-
-[Read on Telegram](https://t.me/livelawindia/112602)
+[Read on Telegram](https://t.me/livelawindia/112627)
 
 ---
-### 2026-06-09T12:32:57+00:00
-MP High Court Grants Bail To Minor Accused Of Murder, Says Probation Officer's Report Indicates Possibility Of Improvement Under Proper Care
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bail-child-in-conflict-with-law-jj-act-537316
+### 2026-06-10T06:17:38+00:00
+Delhi Riots: High Court Seeks Police Response On Tahir Hussain's Bail Plea
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-police-response-tahir-hussain-bail-plea-537357
 
-[Read on Telegram](https://t.me/livelawindia/112603)
-
----
-### 2026-06-09T14:02:47+00:00
-MP High Court Grants Anticipatory Bail To Man Booked In Kidnapping FIR, Slams State For Failing To Produce CCTV Report Despite Grant Of Time
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-anticipatory-bail-kidnapping-case-state-failure-to-produce-cctv-exam-report-537322
-
-[Read on Telegram](https://t.me/livelawindia/112604)
+[Read on Telegram](https://t.me/livelawindia/112628)
 
 ---
-### 2026-06-09T14:32:37+00:00
-Banking On Takeovers: RBI's New Acquisition Finance Regime In India
-https://www.livelaw.in/articles/banking-takeovers-rbi-acquisition-finance-regime-india-537244
+### 2026-06-10T06:41:38+00:00
+'Filing Election Petition Is Statutory Right': Madras High Court Asks ECI To Furnish Udayanidhi Stalin's Election Papers To Losing Candidate
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-eci-direction-election-document-udayanidhi-furnish-537359
 
-[Read on Telegram](https://t.me/livelawindia/112605)
-
----
-### 2026-06-09T14:32:57+00:00
-Workmen's Compensation Act | Taking Deceased To Hospital On Humanitarian Ground Not Enough To Assume Employment Relationship: Rajasthan HC
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-refund-workmen-compensation-award-537283
-
-[Read on Telegram](https://t.me/livelawindia/112606)
+[Read on Telegram](https://t.me/livelawindia/112629)
 
 ---
-### 2026-06-09T15:02:27+00:00
-Karnataka High Court Fines Woman Cop ₹1 Lakh Who Suppressed Order Directing FIR Over Allegedly Kicking Lady Advocate To Secure Stay On Probe
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-police-officer-plea-fir-kicking-lady-advocate-537326
+### 2026-06-10T06:58:38+00:00
+CAPF Personnel Can Approach Delhi High Court For Service Disputes Though Cause Of Action Arose Outside : Supreme Court
+https://www.livelaw.in/top-stories/capf-personnel-can-approach-delhi-high-court-for-service-disputes-though-cause-of-action-arose-outside-supreme-court-537360
 
-[Read on Telegram](https://t.me/livelawindia/112607)
-
----
-### 2026-06-09T15:08:07+00:00
-Gold Medal Claim Raised After Nine Years Cannot Be Entertained: J&K&L High Court Dismisses Doctor's Appeal Against Kashmir University
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-delay-and-laches-bars-relief-where-appellant-takes-vacillating-stands-over-nine-years-court-dismisses-gold-medal-claim-537293
-
-[Read on Telegram](https://t.me/livelawindia/112608)
+[Read on Telegram](https://t.me/livelawindia/112630)
 
 ---
-### 2026-06-09T15:17:07+00:00
-Magistrates, Cops Personally Liable To Compensate For Illegal Preventive Detention : Allahabad High Court Issues Guidelines
-https://www.livelaw.in/high-court/allahabad-high-court/cops-magistrates-to-pay-for-illegal-detentions-allahabad-hc-cracks-down-on-preventive-arrest-abuse-537327
+### 2026-06-10T07:13:28+00:00
+Intermediary Liability And Data Responsibility: Balancing Innovation With Accountability In Digital India
+https://www.livelaw.in/lawschool/articles/intermediary-liability-data-responsibility-balancing-innovation-accountability-digital-india-537362
 
-[Read on Telegram](https://t.me/livelawindia/112609)
-
----
-### 2026-06-09T15:38:37+00:00
-2026 LiveLaw (SC) 610 | PUSHPA & ORS. versus DAYAWATI & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-610-pushpa-ors-versus-dayawati-ors-537331
-
-[Read on Telegram](https://t.me/livelawindia/112610)
+[Read on Telegram](https://t.me/livelawindia/112631)
 
 ---
-### 2026-06-09T15:47:47+00:00
-Abhijit Iyer Mitra's Post Was In 'Shayari' Form : Delhi Court Stays Order For FIR For Post Against Manisha Pande
-https://www.livelaw.in/news-updates/delhi-court-stays-order-for-fir-against-abhijit-iyer-mitra-for-posts-against-manisha-pande-537334
+### 2026-06-10T07:24:28+00:00
+2017 Actress Assault Case: Another Kerala High Court Judge Recuses From Hearing Survivor's Plea For Fresh Probe Into 'Memory Card Leak'
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-memory-card-leak-actress-assault-case-537364
 
-[Read on Telegram](https://t.me/livelawindia/112611)
-
----
-### 2026-06-10T03:18:23+00:00
-Administrative Officer Vacancy At Centre For Management Development (CMD)
-https://www.livelaw.in/job-updates/administrative-officer-vacancy-at-centre-for-management-development-537337
-
-[Read on Telegram](https://t.me/livelawindia/112612)
+[Read on Telegram](https://t.me/livelawindia/112632)
 
 ---
-### 2026-06-10T03:34:03+00:00
-Consultant (Risk Management) Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/consultant-risk-management-vacancy-at-deloitte-touche-tohmatsu-india-llp-537338
+### 2026-06-10T07:30:08+00:00
+Khan Sir Moves Patna High Court To Quash FIR Over Coaching Centre Firing Incident, Seeks Reopening Of Institute
+https://www.livelaw.in/top-stories/khan-sir-moves-patna-high-court-to-quash-fir-over-coaching-centre-firing-incident-seeks-reopening-of-institute-537366
 
-[Read on Telegram](https://t.me/livelawindia/112613)
-
----
-### 2026-06-10T03:35:23+00:00
-Empanelment Of Advocates At District Legal Service Authority, Alwar
-https://www.livelaw.in/job-updates/empanelment-of-advocates-at-district-legal-service-authority-alwar-537339
-
-[Read on Telegram](https://t.me/livelawindia/112614)
+[Read on Telegram](https://t.me/livelawindia/112633)
 
 ---
-### 2026-06-10T03:45:13+00:00
-Nava Kerala Sadas Assault: Kerala Court Grants Pre-Arrest Bail To 5 Members Of Ex-CM's Security Team
-https://www.livelaw.in/news-updates/kerala-alappuzha-sessions-court-nava-kerala-sadas-assault-bail-537340
+### 2026-06-10T07:38:28+00:00
+UAPA | Delhi High Court Grants Bail To Activist Khurram Parvez In Alleged Terror Funding Case
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-grants-bail-to-human-rights-activist-khurram-parvez-in-terror-funding-case-537367
 
-[Read on Telegram](https://t.me/livelawindia/112615)
-
----
-### 2026-06-10T03:45:23+00:00
-Rajasthan High Court Takes Suo-Motu Cognizance Of Reports On Encroachment, Pollution Caused To Udaipur's Lakes And Water Bodies
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-suo-motu-cognizance-threats-udaipur-lakes-537341
-
-[Read on Telegram](https://t.me/livelawindia/112616)
+[Read on Telegram](https://t.me/livelawindia/112634)
 
 ---
-### 2026-06-10T03:45:33+00:00
-Recovery Executive Vacancy At Kotak Mahindra Bank Limited [Apply Now]
-https://www.livelaw.in/job-updates/recovery-executive-vacancy-at-kotak-mahindra-bank-limited-537342
+### 2026-06-10T07:45:08+00:00
+Varanasi Court Sets Aside Magistrate's Order Refusing FIR Against Rahul Gandhi Over 'Lord Ram Mythological Figure' Remark; Directs Fresh Hearing
+https://www.livelaw.in/news-updates/varanasi-court-sets-aside-magistrates-order-refusing-fir-against-rahul-gandhi-over-lord-ram-mythological-figure-remark-directs-fresh-hearing-537368
 
-[Read on Telegram](https://t.me/livelawindia/112617)
+[Read on Telegram](https://t.me/livelawindia/112635)
 
 ---
-### 2026-06-10T04:02:43+00:00
-Kerala High Court Directs Formulation Of New Scheme For Effective Administration Of Sree Thirumandhankunnu Bhagavathy Temple
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sree-thirumandhankunnu-bhagavathy-temple-537345
+### 2026-06-10T07:48:08+00:00
+Advocate Anoop V Nair Appointed As Kerala State Attorney
+https://www.livelaw.in/news-updates/kerala-state-attorney-anoop-v-nair-537369
 
-[Read on Telegram](https://t.me/livelawindia/112618)
+[Read on Telegram](https://t.me/livelawindia/112636)
+
+---
+### 2026-06-10T07:49:08+00:00
+Comment On Ranya Rao | 'Was Using North Kannada Dialect' : BJP MLA Tells Karnataka High Court In Plea To Quash FIR
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-bjp-mla-yatnal-allegedly-vulgar-remarks-actress-ranya-rao-537370
+
+[Read on Telegram](https://t.me/livelawindia/112637)
+
+---
+### 2026-06-10T08:32:38+00:00
+Karnataka High Court Issues 'Universal Accessibility' SOP, Mandates Govt & Private Buildings To Become Fully Accessible To Disabled Persons
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-issues-landmark-sop-universal-accessibility-537372
+
+[Read on Telegram](https://t.me/livelawindia/112638)
+
+---
+### 2026-06-10T08:32:48+00:00
+Depriving Candidate Public Employment Over FIR 'Dispelled' By Negative Final Report Violates Article 14: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-citizen-career-false-complaints-violates-article14-537346
+
+[Read on Telegram](https://t.me/livelawindia/112639)
+
+---
+### 2026-06-10T08:46:58+00:00
+DMSK Party Moves Madras High Court Against Acceptance Of Resignation Of 3 MLAs Who Quit AIADMK To Join TVK
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-challenge-resignation-3-mla-aiadmk-join-tvk-537374
+
+[Read on Telegram](https://t.me/livelawindia/112640)
+
+---
+### 2026-06-10T08:48:58+00:00
+Allahabad High Court Stays Kanpur Nagar Nigam Order Requisitioning LIC Employees For Census Duty
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-stays-requisitioning-lic-employees-census-duty-537375
+
+[Read on Telegram](https://t.me/livelawindia/112641)
+
+---
+### 2026-06-10T09:18:49+00:00
+Bombay High Court Orders No Coercive Action Against Anil Ambani Under Black Money Act Over Alleged Tax Evasion Of Rs 420 Crores
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-orders-no-coercive-action-against-anil-ambani-under-black-money-act-over-alleged-tax-evasion-of-rs-420-crores-537379
+
+[Read on Telegram](https://t.me/livelawindia/112642)
+
+---
+### 2026-06-10T09:32:29+00:00
+Withdrawal Of Riot-Related Prosecutions In Karnataka: Reconciling Prosecutorial Discretion With Constitutional Accountability
+https://www.livelaw.in/lawschool/articles/withdrawal-riot-prosecutions-karnataka-reconciling-prosecutorial-discretion-537365
+
+[Read on Telegram](https://t.me/livelawindia/112643)
+
+---
+### 2026-06-10T09:32:39+00:00
+Karnataka High Court Upholds ₹10 Lakh Compensation To Teacher Who Became Disabled While Saving Student From Jumping Off School Building
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-school-teacher-disability-compensation-537376
+
+[Read on Telegram](https://t.me/livelawindia/112644)
+
+---
+### 2026-06-10T09:59:39+00:00
+'We Feel Ashamed': Calcutta High Court On Messi Event Fiasco, Grants Interim Relief To TMC's Aroop Biswas In Extortion Case By Organiser
+https://www.livelaw.in/high-court/calcutta-high-court/we-feel-ashamed-calcutta-high-court-on-messi-event-fiasco-grants-interim-relief-to-tmcs-aroop-biswas-in-extortion-case-by-organiser-537388
+
+[Read on Telegram](https://t.me/livelawindia/112645)
 
 ---
