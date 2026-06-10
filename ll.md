@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-09T09:32:54+00:00*
+*Last Updated: 2026-06-09T11:32:44+00:00*
 
 ---
 
-### 2026-06-09T09:32:54+00:00
-Dead Do Not Log Out
-https://www.livelaw.in/articles/dead-log-out-juridical-recognition-digital-estates-india-537243
-
-[Read on Telegram](https://t.me/livelawindia/112592)
-
----
-### 2026-06-09T09:33:14+00:00
-Sabarimala Ashtabhishekam Case: Kerala High Court Seeks 10-Year Record On Conduct Of Major Temple Rituals, Details Of Materials Supplied
-https://www.livelaw.in/high-court/kerala-high-court/sabarimala-ashtabhishekam-fund-misappropriation-case-kerala-high-court-records-relating-material-procurement-practices-537276
-
-[Read on Telegram](https://t.me/livelawindia/112593)
-
----
-### 2026-06-09T10:17:04+00:00
-MSC Elsa 3 Sinkage: Kerala High Court Permits 3 Out Of 7 Foreign Crew Members To Return To Their Home Countries
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-msc-elsa-3-crew-home-countries-537298
-
-[Read on Telegram](https://t.me/livelawindia/112594)
-
----
-### 2026-06-09T10:25:44+00:00
-'Where Is Fraud To Order CBI Probe?': Madras HC Says CBI Not Necessary Party In Plea Challenging AG Perarivalan's Enrolment As Advocate
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-mp-sudha-plea-enrolment-perarivalan-cbi-not-necessary-party-537300
-
-[Read on Telegram](https://t.me/livelawindia/112595)
-
----
-### 2026-06-09T10:45:34+00:00
-Madras High Court Issues Notice On Plea To Bring In SOP For Appointing Law Officers By State To Ensure Transparency And Merit
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-law-officer-appointment-sop-notice-issued-537305
-
-[Read on Telegram](https://t.me/livelawindia/112596)
-
----
-### 2026-06-09T11:03:14+00:00
-33 Years On Rajasthan High Court Acquits Man Of Attempt to Murder, Says Grievous Injuries, Dangerous Weapon Insufficient Without Intention
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-attempt-murder-conviction-grievous-injuries-dangerous-weapons-537238
-
-[Read on Telegram](https://t.me/livelawindia/112597)
-
----
-### 2026-06-09T11:11:54+00:00
-Kogilu Layout Demolition | 'As Per Photos Not Even 1 Person Has Gone': Karnataka HC Questions Claim On Lack Of Facilities At Rehab Centres
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-rehabilitation-facility-displaced-kogilu-demolition-537307
-
-[Read on Telegram](https://t.me/livelawindia/112598)
-
----
 ### 2026-06-09T11:32:44+00:00
 'How Can He Tamper When Entire Thing Is In EC's Custody?' Karnataka High Court Orally Asks In BJP Leader's Plea Against Ballot Tampering FIR
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-continues-interim-stay-bjp-leader-jeevaraja-ballot-tampering-case-537292
@@ -142,5 +93,54 @@ Abhijit Iyer Mitra's Post Was In 'Shayari' Form : Delhi Court Stays Order For FI
 https://www.livelaw.in/news-updates/delhi-court-stays-order-for-fir-against-abhijit-iyer-mitra-for-posts-against-manisha-pande-537334
 
 [Read on Telegram](https://t.me/livelawindia/112611)
+
+---
+### 2026-06-10T03:18:23+00:00
+Administrative Officer Vacancy At Centre For Management Development (CMD)
+https://www.livelaw.in/job-updates/administrative-officer-vacancy-at-centre-for-management-development-537337
+
+[Read on Telegram](https://t.me/livelawindia/112612)
+
+---
+### 2026-06-10T03:34:03+00:00
+Consultant (Risk Management) Vacancy At Deloitte Touche Tohmatsu India LLP
+https://www.livelaw.in/job-updates/consultant-risk-management-vacancy-at-deloitte-touche-tohmatsu-india-llp-537338
+
+[Read on Telegram](https://t.me/livelawindia/112613)
+
+---
+### 2026-06-10T03:35:23+00:00
+Empanelment Of Advocates At District Legal Service Authority, Alwar
+https://www.livelaw.in/job-updates/empanelment-of-advocates-at-district-legal-service-authority-alwar-537339
+
+[Read on Telegram](https://t.me/livelawindia/112614)
+
+---
+### 2026-06-10T03:45:13+00:00
+Nava Kerala Sadas Assault: Kerala Court Grants Pre-Arrest Bail To 5 Members Of Ex-CM's Security Team
+https://www.livelaw.in/news-updates/kerala-alappuzha-sessions-court-nava-kerala-sadas-assault-bail-537340
+
+[Read on Telegram](https://t.me/livelawindia/112615)
+
+---
+### 2026-06-10T03:45:23+00:00
+Rajasthan High Court Takes Suo-Motu Cognizance Of Reports On Encroachment, Pollution Caused To Udaipur's Lakes And Water Bodies
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-suo-motu-cognizance-threats-udaipur-lakes-537341
+
+[Read on Telegram](https://t.me/livelawindia/112616)
+
+---
+### 2026-06-10T03:45:33+00:00
+Recovery Executive Vacancy At Kotak Mahindra Bank Limited [Apply Now]
+https://www.livelaw.in/job-updates/recovery-executive-vacancy-at-kotak-mahindra-bank-limited-537342
+
+[Read on Telegram](https://t.me/livelawindia/112617)
+
+---
+### 2026-06-10T04:02:43+00:00
+Kerala High Court Directs Formulation Of New Scheme For Effective Administration Of Sree Thirumandhankunnu Bhagavathy Temple
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sree-thirumandhankunnu-bhagavathy-temple-537345
+
+[Read on Telegram](https://t.me/livelawindia/112618)
 
 ---
