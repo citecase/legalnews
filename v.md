@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-10T16:03:09+00:00*
+*Last Updated: 2026-06-11T05:02:23+00:00*
+
+---
+
+### 2026-06-11T05:02:23+00:00
+Centre Notifies Appointment Of Seven Advocates To Be Judges Of Patna High Court
+https://www.verdictum.in/court-updates/high-courts/appointment-of-seven-advocates-to-be-judges-of-patna-high-court-1615710
+
+[Source Link](https://t.me/verdictumlegalupdates/27488)
+
+---
+
+### 2026-06-11T04:32:31+00:00
+Material Facts Omitted From Protest Petition Cannot Later Be Introduced Through Oral Statements To Supply Motive: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/lala-and-another-v-state-of-up-and-another-2026ahc124829-proest-petition-1615686
+
+[Source Link](https://t.me/verdictumlegalupdates/27487)
 
 ---
 
@@ -145,22 +161,6 @@ Andhra Pradesh HC Dismisses Challenge Against Construction Of Public Toilets Opp
 https://www.verdictum.in/andhra-pradesh-high-court/kapuganti-china-swamy-setty-v-the-state-of-andhra-pradesh-construction-public-toilets-municipal-administration-1615608
 
 [Source Link](https://t.me/verdictumlegalupdates/27469)
-
----
-
-### 2026-06-10T04:33:03+00:00
-State Failed In Its Duty To Take Sufficient Care: Bombay High Court Awards ₹22 Lakh Compensation For Death Of Schizophrenic Patient In Yerwada Mental Hospital
-https://www.verdictum.in/bombay-high-court/ns-v-the-state-of-maharashtra-2026bhc-as22841-db-22-lakh-compensation-for-death-of-schizophrenic-patient-1615613
-
-[Source Link](https://t.me/verdictumlegalupdates/27468)
-
----
-
-### 2026-06-09T16:02:38+00:00
-Law Officer Vacancy At Principal District Court, Madurai
-https://www.verdictum.in/job-updates/madurai-principal-district-court-1615612
-
-[Source Link](https://t.me/verdictumlegalupdates/27467)
 
 ---
 
