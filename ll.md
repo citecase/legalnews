@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-11T11:32:25+00:00*
+*Last Updated: 2026-06-11T11:58:35+00:00*
 
 ---
 
-### 2026-06-11T11:32:25+00:00
-Mere Pendency Of Criminal Case No Bar For Renewal Of Passport: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-pendency-criminal-case-renewal-of-passport-537522
-
-[Read on Telegram](https://t.me/livelawindia/112715)
-
----
-### 2026-06-11T11:33:05+00:00
-Denying Maternity Leave To mother For Third Child, What Madras High Court Said ?
-https://www.livelaw.in/articles/woman-denied-maternity-leave-third-child-537501
-
-[Read on Telegram](https://t.me/livelawindia/112716)
-
----
-### 2026-06-11T11:54:15+00:00
-2026 LiveLaw (SC) 618 | Sheetal Vasant Thakur v. Chirag Arora
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-618-sheetal-vasant-thakur-v-chirag-arora-537531
-
-[Read on Telegram](https://t.me/livelawindia/112717)
-
----
 ### 2026-06-11T11:58:35+00:00
 Supreme Court Stays Allahabad HC Order To Centre To Assess Suitability Of UP Home Secretary Sanjay Prasad
 https://www.livelaw.in/top-stories/supreme-court-stays-allahabad-hc-order-to-centre-to-assess-suitability-of-up-home-secretary-sanjay-prasad-537532
@@ -142,5 +121,26 @@ Rajasthan High Court Passes Standing Order Directing Reflection Of Adjournments 
 https://www.livelaw.in/high-court/rajasthan-high-court/number-adjournments-cause-list-case-code-537572
 
 [Read on Telegram](https://t.me/livelawindia/112734)
+
+---
+### 2026-06-11T16:17:18+00:00
+'Actuated By Malafide At Many Levels': Patna High Court Quashes S.319 CrPC Order Passed By ADJ Accused Of Seeking Money
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-sets-aside-section319-order-adj-accused-taking-money-through-app-537552
+
+[Read on Telegram](https://t.me/livelawindia/112735)
+
+---
+### 2026-06-11T16:18:18+00:00
+Supreme Court Lays Down Principles For Psychological Evaluation Of Children In Custody Disputes
+https://www.livelaw.in/top-stories/supreme-court-lays-down-principles-for-psychological-evaluation-of-children-in-custody-disputes-537574
+
+[Read on Telegram](https://t.me/livelawindia/112736)
+
+---
+### 2026-06-11T16:25:08+00:00
+Kerala High Court Warns Officials of Personal Liability Over Monsoon-Damaged Roads
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-warns-officials-of-personal-liability-damaged-roads-537575
+
+[Read on Telegram](https://t.me/livelawindia/112737)
 
 ---
