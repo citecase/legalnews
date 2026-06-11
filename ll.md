@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-11T05:05:25+00:00*
+*Last Updated: 2026-06-11T11:32:25+00:00*
 
 ---
 
-### 2026-06-11T05:05:25+00:00
-2026 LiveLaw (SC) 616 | Baksish Ahmad v. Union of India & Anr.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-616-baksish-ahmad-v-union-of-india-anr-537478
+### 2026-06-11T11:32:25+00:00
+Mere Pendency Of Criminal Case No Bar For Renewal Of Passport: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-pendency-criminal-case-renewal-of-passport-537522
 
-[Read on Telegram](https://t.me/livelawindia/112692)
-
----
-### 2026-06-11T05:31:05+00:00
-Assistant (Enforcement And Legal) Vacancy At Warehousing Development and Regulatory Authority (WDRA)
-https://www.livelaw.in/job-updates/assistant-enforcement-and-legal-vacancy-at-warehousing-development-and-regulatory-authority-537480
-
-[Read on Telegram](https://t.me/livelawindia/112693)
+[Read on Telegram](https://t.me/livelawindia/112715)
 
 ---
-### 2026-06-11T05:33:05+00:00
-Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
-https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-537481
+### 2026-06-11T11:33:05+00:00
+Denying Maternity Leave To mother For Third Child, What Madras High Court Said ?
+https://www.livelaw.in/articles/woman-denied-maternity-leave-third-child-537501
 
-[Read on Telegram](https://t.me/livelawindia/112694)
-
----
-### 2026-06-11T05:48:05+00:00
-BREAKING| 'Homemakers Are Nation Builders' : Supreme Court Quantifies Homemaker Contribution As Rs 30K Per Month
-https://www.livelaw.in/top-stories/homemakers-are-nation-builders-supreme-court-quantifies-homemaker-contribution-as-rs-30k-per-month-537483
-
-[Read on Telegram](https://t.me/livelawindia/112695)
+[Read on Telegram](https://t.me/livelawindia/112716)
 
 ---
-### 2026-06-11T06:02:15+00:00
-Contractual Employees Can't Be Replaced By Another Set Of Contractual Employees: Rajasthan High Court Grants Relief To Vocational Trainers
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-vocational-trainers-replaced-contractors-537428
+### 2026-06-11T11:54:15+00:00
+2026 LiveLaw (SC) 618 | Sheetal Vasant Thakur v. Chirag Arora
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-618-sheetal-vasant-thakur-v-chirag-arora-537531
 
-[Read on Telegram](https://t.me/livelawindia/112696)
-
----
-### 2026-06-11T06:13:35+00:00
-BREAKING| Supreme Court To Hear Congress's Meenakshi Natarajan Plea Against Rejection Of Rajya Sabha Candidature Tomorrow, Questions Maintainability
-https://www.livelaw.in/top-stories/supreme-court-to-hear-congresss-meenakshi-natarajan-plea-against-rejection-of-rajya-sabha-candidature-tomorrow-537487
-
-[Read on Telegram](https://t.me/livelawindia/112697)
+[Read on Telegram](https://t.me/livelawindia/112717)
 
 ---
-### 2026-06-11T06:47:38+00:00
-State Cannot Profit From Its Own Failure To Maintain Service Records: Rajasthan High Court Orders Release Of Retiral Dues, ₹50K Cost
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-pension-delay-incomplete-service-book-537429
+### 2026-06-11T11:58:35+00:00
+Supreme Court Stays Allahabad HC Order To Centre To Assess Suitability Of UP Home Secretary Sanjay Prasad
+https://www.livelaw.in/top-stories/supreme-court-stays-allahabad-hc-order-to-centre-to-assess-suitability-of-up-home-secretary-sanjay-prasad-537532
 
-[Read on Telegram](https://t.me/livelawindia/112698)
-
----
-### 2026-06-11T06:57:48+00:00
-Calcutta High Court Protects TMC MP Abhishek Banerjee From Coercive Steps In MLA Sign Forgery Case, Asks Him To Appear Before CID
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-protects-tmc-mla-abhishek-banerjee-from-coercive-steps-in-mla-sign-forgery-case-asks-him-to-appear-before-cid-537490
-
-[Read on Telegram](https://t.me/livelawindia/112699)
+[Read on Telegram](https://t.me/livelawindia/112718)
 
 ---
-### 2026-06-11T07:00:08+00:00
-'My Son Appeared For Govt' : Justice PK Mishra Recuses From Hearing Jacqueline Fernandez Plea In ED Case
-https://www.livelaw.in/top-stories/my-son-appeared-for-govt-justice-pk-mishra-recuses-from-hearing-jacqueline-fernandez-plea-in-ed-case-537491
+### 2026-06-11T12:05:36+00:00
+Kerala High Court Seeks Detailed Status Report On Flood-Mitigation Measures In Kochi
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-detailed-status-report-flood-mitigation-measures-kochi-537533
 
-[Read on Telegram](https://t.me/livelawindia/112700)
-
----
-### 2026-06-11T07:02:48+00:00
-Karnataka State Bar Council Election Result Subject To Outcome Of Pleas Alleging Malpractices: High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-keeps-in-abeyance-declaration-of-state-bar-council-election-result-537492
-
-[Read on Telegram](https://t.me/livelawindia/112701)
+[Read on Telegram](https://t.me/livelawindia/112719)
 
 ---
-### 2026-06-11T07:08:28+00:00
-'Can't Defame Anybody On Social Media' : Bombay High Court Asks Salman Khan's Neighbour To Consider Deleting Posts Against Him
-https://www.livelaw.in/high-court/bombay-high-court/cant-defame-anybody-on-social-media-bombay-high-court-asks-salman-khans-neighbour-to-consider-deleting-posts-against-him-537494
+### 2026-06-11T12:20:56+00:00
+Kerala High Court Summons Audit Director To Explain 17-Year Delay In Finalising Audit Of Travancore Devaswom Board Administration
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-audit-delay-travancore-devaswom-board-537535
 
-[Read on Telegram](https://t.me/livelawindia/112702)
-
----
-### 2026-06-11T07:48:01+00:00
-Date Of Birth Recorded In Service Book Is Final If Employee Had Not Passed High School At Time Of Appointment: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-date-birth-service-records-employee-passed-high-school-537431
-
-[Read on Telegram](https://t.me/livelawindia/112703)
+[Read on Telegram](https://t.me/livelawindia/112720)
 
 ---
-### 2026-06-11T07:50:41+00:00
-Kerala High Court Seeks State's Response On BJP Leader's Plea Against Waqf Board Functioning Without Non-Muslims
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-seeks-states-response-in-bjp-leaders-pil-against-functioning-of-waqf-board-without-non-muslims-537497
+### 2026-06-11T12:29:36+00:00
+'Patriarchal Preference For Male Child Continues' : Supreme Court Calls For Strict Enforcement Of Sex-Selection Prohibition
+https://www.livelaw.in/top-stories/patriarchal-preference-for-male-child-continues-supreme-court-calls-for-strict-enforcement-of-sex-selection-prohibition-537537
 
-[Read on Telegram](https://t.me/livelawindia/112704)
-
----
-### 2026-06-11T08:32:31+00:00
-Regulating Artificial Intelligence In Indian Judiciary: From Institutional Experimentation To A National Framework
-https://www.livelaw.in/articles/regulating-artificial-intelligence-indian-judiciary-537485
-
-[Read on Telegram](https://t.me/livelawindia/112705)
+[Read on Telegram](https://t.me/livelawindia/112721)
 
 ---
-### 2026-06-11T08:42:11+00:00
-Tacit Approval Of Minor Not Consent In Law But Has Bearing On Bail: J&K&L High Court Grants Bail In POCSO Matter
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-tacit-approval-of-minor-not-consent-in-law-but-has-bearing-on-bail-court-grants-bail-to-accused-in-pocso-matter-537459
+### 2026-06-11T12:30:56+00:00
+2026 LiveLaw (SC) 619 |  Dr. Ramesh v. State of Maharashtra & Anr
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-619-dr-ramesh-v-state-of-maharashtra-anr-537538
 
-[Read on Telegram](https://t.me/livelawindia/112706)
-
----
-### 2026-06-11T09:29:24+00:00
-'Brazen Violation Of Article 21': MP Court Directs FIR Against 4 Cops For Allegedly Trespassing Complainant's Home, Assaulting Women & Minor
-https://www.livelaw.in/news-updates/datia-court-registration-of-fir-against-police-for-assault-section-1563-crpc-537510
-
-[Read on Telegram](https://t.me/livelawindia/112707)
+[Read on Telegram](https://t.me/livelawindia/112722)
 
 ---
-### 2026-06-11T09:33:43+00:00
-2026 LiveLaw (SC) 617  | SHISHUPAL @ SHISH RAM AND ORS. v. SURJEET AND ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-617-shishupal-shish-ram-and-ors-v-surjeet-and-ors-537511
+### 2026-06-11T13:32:16+00:00
+Wrong Date Of Birth In Matrimonial Profile Leading To Horoscope Mismatch Amounts To Fraud: Telangana HC Grants Divorce
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-wrong-date-of-birth-matrimonial-profile-horoscope-mismatch-fraud-537548
 
-[Read on Telegram](https://t.me/livelawindia/112708)
-
----
-### 2026-06-11T09:40:03+00:00
-Karnataka High Court Asks State To Form Policy For Regulating Homestays, Grants Relief To Owner Whose License Was Cancelled After Rape FIR
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-homestay-regulations-license-cancellation-537513
-
-[Read on Telegram](https://t.me/livelawindia/112709)
+[Read on Telegram](https://t.me/livelawindia/112723)
 
 ---
-### 2026-06-11T09:40:23+00:00
-Courts Must Order Psychological Assessment Of Child Only If Necessary; Minimum Intrusion Should Be Norm: Supreme Court
-https://www.livelaw.in/top-stories/courts-must-order-psychological-assessment-of-child-only-if-necessary-minimum-intrusion-should-be-norm-supreme-court-537514
+### 2026-06-11T13:32:36+00:00
+Public Servant's Financial Affairs Exempted From Disclosure Under RTI, Unless Justified By Overriding Public Interest: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-denies-rti-plea-private-dispute-537546
 
-[Read on Telegram](https://t.me/livelawindia/112710)
+[Read on Telegram](https://t.me/livelawindia/112724)
 
 ---
-### 2026-06-11T09:52:14+00:00
-'Average Pendency Of 6 Yrs In MACTs' : Supreme Court Issues Directions To Expedite Motor Accident Compensation Claims
-https://www.livelaw.in/supreme-court/supreme-court-issues-directions-to-expedite-motor-accident-compensation-claims-537516
+### 2026-06-11T13:32:56+00:00
+Court Does Not Become 'Functus Officio' After Directing Probe Under S.156(3) CrPC, Must Call For Progress Reports: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-criminal-courts-functus-officio-section1563-seek-progress-reports-537529
 
-[Read on Telegram](https://t.me/livelawindia/112711)
+[Read on Telegram](https://t.me/livelawindia/112725)
+
+---
+### 2026-06-11T13:57:56+00:00
+Lokayukta's Core Adjudicatory Functions Cannot Be Delegated Even In Complaint Against His Brother: Jharkhand HC
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-upholds-lokayukta-order-brother-doctrine-of-necessity-537550
+
+[Read on Telegram](https://t.me/livelawindia/112726)
+
+---
+### 2026-06-11T14:11:36+00:00
+In Judgment On Homemakers, Supreme Court Cites 2023 Handbook Which CJI Surya Kant Called 'Too Harvard-Oriented'
+https://www.livelaw.in/top-stories/in-judgment-on-homemakers-supreme-court-cites-2023-handbook-which-cji-surya-kant-called-too-harvard-oriented-537558
+
+[Read on Telegram](https://t.me/livelawindia/112727)
+
+---
+### 2026-06-11T14:28:26+00:00
+'What Action Have You Taken?': Gujarat High Court Questions State Authorities In Plea Alleging Illegal Sand Mining On Govt Land
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-illegal-sand-mining-government-waste-land-537553
+
+[Read on Telegram](https://t.me/livelawindia/112728)
+
+---
+### 2026-06-11T14:29:46+00:00
+'Misleading Ad' Case: NCDRC Stays District Commission Proceedings Over Forensic Examination Of Actor Salman Khan's Signatures
+https://www.livelaw.in/news-updates/ncdrc-stays-order-forensic-examination-salman-khan-signature-537560
+
+[Read on Telegram](https://t.me/livelawindia/112729)
+
+---
+### 2026-06-11T14:48:46+00:00
+Proposed Amendment To Contract Terms Doesn't Constitute Anticipatory Breach Unless There Is Refusal To Perform Entire Contract: Calcutta High Court
+https://www.livelaw.in/law-firms/litigation/proposed-amendment-contract-terms-doesnt-constitute-anticipatory-breach-calcutta-high-court-537562
+
+[Read on Telegram](https://t.me/livelawindia/112730)
+
+---
+### 2026-06-11T15:08:06+00:00
+Posting Objectionable Messages On WhatsApp Group Against Local Leader May Threaten Public Peace: Telangana HC Refuses To Quash Case
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-whatsapp-group-messages-threaten-public-peace-537549
+
+[Read on Telegram](https://t.me/livelawindia/112731)
+
+---
+### 2026-06-11T15:32:38+00:00
+Problem With CFCFRMS: Reading MHA's New Account-Freeze SOP
+https://www.livelaw.in/articles/cfcfrms-reading-mha-new-account-freeze-sop-537503
+
+[Read on Telegram](https://t.me/livelawindia/112732)
+
+---
+### 2026-06-11T15:54:58+00:00
+Madras High Court Remits Matter To Trial Court After Noting Judgment Was Pronounced Without Hearing Defence's Oral Arguments
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-judgment-without-oral-argument-remitted-back-537570
+
+[Read on Telegram](https://t.me/livelawindia/112733)
+
+---
+### 2026-06-11T15:59:18+00:00
+Rajasthan High Court Passes Standing Order Directing Reflection Of Adjournments In Each Case In Cause List
+https://www.livelaw.in/high-court/rajasthan-high-court/number-adjournments-cause-list-case-code-537572
+
+[Read on Telegram](https://t.me/livelawindia/112734)
 
 ---
