@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-10T12:34:12+00:00*
+*Last Updated: 2026-06-10T13:12:36+00:00*
 
 ---
 
-### 2026-06-10T12:34:12+00:00
-Can Prisoners Be Granted Ordinary Or Emergency Leave During Pendency Of Criminal Appeal? Madras High Court Full Bench To Decide
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-prisoner-leave-criminal-appeal-pending-full-bench-537424
-
-[Read on Telegram](https://t.me/livelawindia/112659)
-
----
-### 2026-06-10T12:46:36+00:00
-Threats Against Justice Gautam Patel's Family : Bar Bodies File PIL In High Court Seeking SIT Probe
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-seeks-probe-justice-gautam-patel-threats-incident-537432
-
-[Read on Telegram](https://t.me/livelawindia/112660)
-
----
-### 2026-06-10T12:47:56+00:00
-Professionally Active Wife's Plea Of Inability To Travel Doesn't Inspire Confidence: P&H High Court Declines Transfer Of Divorce Case
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-rejects-transfer-plea-professionally-active-wife-cant-take-plea-she-is-incapable-of-travelling-to-three-hrs-to-court-537425
-
-[Read on Telegram](https://t.me/livelawindia/112661)
-
----
-### 2026-06-10T12:51:36+00:00
-Bombay High Court Refuses To Quash MCOCA Case Against 2 Developers Accused Of Conspiring With Gangster Ravi Pujari To Commit Extortion
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-mcoca-case-developers-gangster-ravi-pujari-537433
-
-[Read on Telegram](https://t.me/livelawindia/112662)
-
----
-### 2026-06-10T13:07:16+00:00
-Cross Border Insolvency In India: What Rules Must Say
-https://www.livelaw.in/articles/cross-border-insolvency-india-537437
-
-[Read on Telegram](https://t.me/livelawindia/112663)
-
----
-### 2026-06-10T13:08:16+00:00
-Govt Employees Cannot Claim Hostel Subsidy Under Children's Education Allowance Scheme Merely Because School Mandates Hostel: Kerala HC
-https://www.livelaw.in/high-court/kerala-high-court/government-employees-hostel-subsidy-children-education-allowance-scheme-school-hostel-accommodation-537423
-
-[Read on Telegram](https://t.me/livelawindia/112664)
-
----
 ### 2026-06-10T13:12:36+00:00
 AP High Court Quashes Atrocity FIR, Says Private Monetary Dispute Can't Be Camouflaged As Caste‑Based Offences In Absence Of Ingredients
 https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-quashes-proceedings-caste-abuse-case-537351
@@ -142,5 +100,47 @@ Constitutional Pathology Of Delayed Adjudication: Reservation Without Preservati
 https://www.livelaw.in/articles/constitutional-pathology-delayed-adjudication-reservation-537449
 
 [Read on Telegram](https://t.me/livelawindia/112678)
+
+---
+### 2026-06-11T03:25:03+00:00
+BREAKING| Congress Member Meenakshi Natarajan Moves Supreme Court Against Rejection Of Rajya Sabha Candidature
+https://www.livelaw.in/top-stories/congress-member-meenakshi-natarajan-moves-supreme-court-against-rejection-of-rajya-sabha-candidature-537464
+
+[Read on Telegram](https://t.me/livelawindia/112679)
+
+---
+### 2026-06-11T03:38:03+00:00
+Supreme Court Monthly Roundup: April 2026
+https://www.livelaw.in/round-ups/monthly/supreme-court-monthly-roundup-april-2026-537451
+
+[Read on Telegram](https://t.me/livelawindia/112680)
+
+---
+### 2026-06-11T04:02:53+00:00
+'Right To Health Integral To Article 21': P&H High Court Flags Need To Revisit Medical Reimbursement Policies
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-flags-need-to-revisit-medical-reimbursement-policies-right-to-health-integral-to-article-21-537458
+
+[Read on Telegram](https://t.me/livelawindia/112681)
+
+---
+### 2026-06-11T04:10:13+00:00
+Kerala High Court Stays Trial Proceedings In Shuhaib Murder Case
+https://www.livelaw.in/high-court/kerala-high-court/shuhaib-murder-case-accused-trial-stay-kerala-high-court-transfer-537469
+
+[Read on Telegram](https://t.me/livelawindia/112682)
+
+---
+### 2026-06-11T04:14:13+00:00
+[Advertisement] CUSAT's Inter University Centre For IPR Studies To Organise Refresher Course On 'Intellectual Property Rights, Access, And Justice'
+https://www.livelaw.in/lawschool/diploma-certificate-courses/cusats-inter-university-centre-ipr-studies-organise-refresher-course-537470
+
+[Read on Telegram](https://t.me/livelawindia/112683)
+
+---
+### 2026-06-11T04:15:53+00:00
+Empanelment Of Advocates At District Legal Service Authority, Hanumangarh
+https://www.livelaw.in/job-updates/empanelment-of-advocates-at-district-legal-service-authority-hanumangarh-537471
+
+[Read on Telegram](https://t.me/livelawindia/112684)
 
 ---
