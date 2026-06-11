@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-11T05:02:23+00:00*
+*Last Updated: 2026-06-11T11:03:10+00:00*
+
+---
+
+### 2026-06-11T11:03:10+00:00
+Social Media Platforms Can’t Be Silent Spectators & Wait For Court Directions; Intermediary Must Remove Information Used To Commit Unlawful Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/delhi-high-court-bar-association-v-dr-kapil-kakar-social-media-platforms-court-directions-1615737
+
+[Source Link](https://t.me/verdictumlegalupdates/27499)
+
+---
+
+### 2026-06-11T10:32:36+00:00
+Homemakers Are “Nation Builders”; Invisible Contribution Should Be Made Visible: Supreme Court Adds "Loss Of Domestic Care" As Additional Head In Motor Accident Compensation Matters
+https://www.verdictum.in/supreme-court/shishu-pal-shish-ram-v-surjeet-2026-insc-634-homemakers-are-called-grihaswaminis-economic-status-to-unpaid-domestic-care-1615736
+
+[Source Link](https://t.me/verdictumlegalupdates/27498)
+
+---
+
+### 2026-06-11T10:02:53+00:00
+Bank's Bona Fide Clarifications To Counter Media Campaign Not Retaliatory Defamation: Bombay High Court Refuses to Gag HDFC Bank, Imposes ₹5L Costs On Lilavati Trust
+https://www.verdictum.in/bombay-high-court/lilavati-kirtilal-mehta-trust-v-hdfc-bank-limited-interim-application-no3095-of-2025-media-campaign-not-retaliatory-defamation-1615735
+
+[Source Link](https://t.me/verdictumlegalupdates/27497)
+
+---
+
+### 2026-06-11T09:33:10+00:00
+Public Servants Retain Privacy Rights; Asset Declarations Furnished To Authorities Not Automatically Disclosable Under RTI: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/s-savithramma-v-the-karnataka-information-commission-2026khc25434-1615734
+
+[Source Link](https://t.me/verdictumlegalupdates/27496)
+
+---
+
+### 2026-06-11T09:02:28+00:00
+Supreme Court To Hear Plea By Congress Leader Meenakshi Natarajan Against Rejection Of Her Nomination Papers For Rajya Sabha
+https://www.verdictum.in/supreme-court/congress-leader-meenakshi-natarajan-against-rejection-of-her-nomination-papers-for-rajya-sabha-1615733
+
+[Source Link](https://t.me/verdictumlegalupdates/27495)
+
+---
+
+### 2026-06-11T08:33:15+00:00
+Proceeding On Conjecture Would Covert Process Of Court To Instrument Of Oppression: Patna High Court Quashes FIR Against Lawyer
+https://www.verdictum.in/patna-high-court/sakaldeo-kumar-mandal-sakaldeo-mandal-v-the-state-of-bihar-fir-lawyer-sent-substitute-accuseds-place-1615731
+
+[Source Link](https://t.me/verdictumlegalupdates/27494)
+
+---
+
+### 2026-06-11T08:02:33+00:00
+Supreme Court Judge Recuses Himself From Hearing Jacqueline Fernandez’s Plea In Rs 200-Crore Money Laundering Case
+https://www.verdictum.in/supreme-court/judge-recuses-himself-jacqueline-fernandezs-plea-in-rs-200-crore-money-laundering-case-1615730
+
+[Source Link](https://t.me/verdictumlegalupdates/27493)
+
+---
+
+### 2026-06-11T07:32:11+00:00
+“Arbitrary Attack On Free & Impartial Journalism”: Delhi High Court Quashes FIR And ECIR Against NewsClick
+https://www.verdictum.in/delhi-high-court/ppk-newsclick-studio-pvt-ltd-v-state-nct-of-delhi-and-union-of-india-2026dhc5098-1615726
+
+[Source Link](https://t.me/verdictumlegalupdates/27492)
+
+---
+
+### 2026-06-11T07:02:48+00:00
+Scope Of Reference To Third Judge U/S 392 CrPC Limited To Points Of Dissent? Supreme Court Refers Sajjan Singh Judgment To Larger Bench
+https://www.verdictum.in/supreme-court/dr-rakesh-kumar-gupta-v-state-of-uttar-pradesh-2026-insc-632-refers-sajjan-singh-judgment-to-larger-bench-1615725
+
+[Source Link](https://t.me/verdictumlegalupdates/27491)
+
+---
+
+### 2026-06-11T06:33:06+00:00
+Omission To Include Forensic Expert In Witness List Is Not An Attempt To Fill Inherent Lacuna If Reports Are Part Of Judicial Record: Kerala High Court
+https://www.verdictum.in/kerala-high-court/2026ker39029-jollyamma-joseph-jolly-v-state-of-kerala-1615722
+
+[Source Link](https://t.me/verdictumlegalupdates/27490)
+
+---
+
+### 2026-06-11T05:52:44+00:00
+Planning & Management Unit functions For Court Purposes: Kerala High Court Upholds Employee’s Appointment To Senior System Officer Post Under E-Court Project
+https://www.verdictum.in/kerala-high-court/the-high-court-of-kerala-v-aneena-joseph-2026ker37899-e-court-project-1615718
+
+[Source Link](https://t.me/verdictumlegalupdates/27489)
 
 ---
 
@@ -73,94 +161,6 @@ Major Unmarried Sister Who Was Residing With Deceased Entitled To Motor Accident
 https://www.verdictum.in/kerala-high-court/the-new-india-assurance-company-limited-v-devaki-2026ker38133-unmarried-sister-compensation-1615673
 
 [Source Link](https://t.me/verdictumlegalupdates/27480)
-
----
-
-### 2026-06-10T11:52:42+00:00
-16 Year Old Girl Was Set Ablaze During Sudden Scuffle With No Prior Bad Intention Or Planning: Allahabad High Court Converts Murder Conviction To Culpable Homicide
-https://www.verdictum.in/allahabad-high-court/pawan-kumar-v-state-of-up-2026ahc120629-db-setting-woman-ablaze-during-sudden-scuffle-1615671
-
-[Source Link](https://t.me/verdictumlegalupdates/27479)
-
----
-
-### 2026-06-10T11:12:26+00:00
-Confirmed Auction Sale Under SARFAESI Act Can Be Set Aside If Process Adopted Is Legally Infirm Or Violates Statutory Rules: Supreme Court
-https://www.verdictum.in/supreme-court/m-r-vasumathi-v-the-authorised-officer-ors-2026-insc-633-sarfaesi-1615670
-
-[Source Link](https://t.me/verdictumlegalupdates/27478)
-
----
-
-### 2026-06-10T10:32:21+00:00
-Specially-Abled Advocate Illegally Detained For 3 Days: Allahabad High Court Issues Strict Preventive Detention Guidelines, Orders ₹75K Compensation
-https://www.verdictum.in/allahabad-high-court/chander-pal-singh-v-state-of-up-habeas-corpus-writ-petition-no-214-of-2026-specially-abled-advocate-illegally-detained-for-3-days-1615667
-
-[Source Link](https://t.me/verdictumlegalupdates/27477)
-
----
-
-### 2026-06-10T09:52:20+00:00
-“Accused Threw Children Into Well Without Premeditated Intent To Kill”: Allahabad High Court Converts Murder Conviction To Culpable Homicide
-https://www.verdictum.in/allahabad-high-court/jag-prasad-yadav-jaggu-v-state-of-up-2026ahc-lko38830-db-section-304-1615666
-
-[Source Link](https://t.me/verdictumlegalupdates/27476)
-
----
-
-### 2026-06-10T09:13:05+00:00
-Rajasthan High Court Takes Suo Motu Cognizance Of Degradation Of Udaipur Lakes, Issues Interim Directions On Encroachment Issues
-https://www.verdictum.in/rajasthan-high-court/suo-motu-cognizance-degradation-udaipur-lakes-issues-sweeping-interim-directions-arrest-encroachments-1615665
-
-[Source Link](https://t.me/verdictumlegalupdates/27475)
-
----
-
-### 2026-06-10T08:33:03+00:00
-Supreme Court Holds Caretaker Guilty Of Contempt For Exploiting Kerala's Tallest Elephant 'Raman', Directs State To Seize Temporary Custody
-https://www.verdictum.in/supreme-court/2026-insc-631-jayakrishna-menon-v-krishnankutty-1615661
-
-[Source Link](https://t.me/verdictumlegalupdates/27474)
-
----
-
-### 2026-06-10T07:53:01+00:00
-Order II Rule 2 CPC Must Not Be Applied Hyper-Technically Where Relief Was Impossible To Claim In Earlier Suit: Bombay High Court
-https://www.verdictum.in/bombay-high-court/lt-asian-realty-project-llp-now-known-as-elevated-avenue-realty-llp-anr-v-ks-chamankar-enterprises-ors-1615655
-
-[Source Link](https://t.me/verdictumlegalupdates/27473)
-
----
-
-### 2026-06-10T07:12:39+00:00
-Doctrine Of Forum Non Conveniens Rarely Applies When Writ Jurisdiction Is Invoked For Pursuing Constitutional Remedies: Supreme Court
-https://www.verdictum.in/supreme-court/baksish-ahmad-v-union-of-india-2026-insc-630-forum-non-conveniens-article-226-1615652
-
-[Source Link](https://t.me/verdictumlegalupdates/27472)
-
----
-
-### 2026-06-10T06:32:38+00:00
-Husband's Claims That He Was Legally Married To Another Woman Can’t Be Ground To Deny Maintenance: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/a-v-b-2026mphc-ind14727-husband-married-another-woman-maintenance-1615648
-
-[Source Link](https://t.me/verdictumlegalupdates/27471)
-
----
-
-### 2026-06-10T05:52:56+00:00
-Aerial Right Of Way Over Transmission Lines Vests With State; Landowners Can’t Claim Compensation: J&K High Court
-https://www.verdictum.in/jammu-ladakh-high-court/ghulam-mohi-uddin-sheikh-v-ut-of-jk-and-others-electricity-towers-transmission-1615644
-
-[Source Link](https://t.me/verdictumlegalupdates/27470)
-
----
-
-### 2026-06-10T05:12:35+00:00
-Andhra Pradesh HC Dismisses Challenge Against Construction Of Public Toilets Opposite Residence, Asks Administration To Ensure Cleanliness
-https://www.verdictum.in/andhra-pradesh-high-court/kapuganti-china-swamy-setty-v-the-state-of-andhra-pradesh-construction-public-toilets-municipal-administration-1615608
-
-[Source Link](https://t.me/verdictumlegalupdates/27469)
 
 ---
 
