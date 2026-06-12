@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-12T05:12:24+00:00*
+*Last Updated: 2026-06-12T10:11:54+00:00*
+
+---
+
+### 2026-06-12T10:11:54+00:00
+Right To Advance Oral Arguments U/S 234 CrPC A Fundamental Right; Trial Court Must Appoint Amicus If Defence Counsel Fails To Argue: Madras High Court
+https://www.verdictum.in/madras-high-court/chinnavan-govindaraj-anr-v-state-section-234-criminal-procedure-1615800
+
+[Source Link](https://t.me/verdictumlegalupdates/27518)
+
+---
+
+### 2026-06-12T09:33:12+00:00
+Appointees Need Not Suffer On Account Of Irregularity By Officials: Supreme Court Directs Cooperative Society To Consider Appointments Afresh
+https://www.verdictum.in/supreme-court/gaurav-mehla-ors-v-state-of-haryana-ors-2026-insc-641-reappointment-1615798
+
+[Source Link](https://t.me/verdictumlegalupdates/27517)
+
+---
+
+### 2026-06-12T08:52:11+00:00
+Prisoner Does Not Cease To Be A Human Being: Rajasthan High Court Directs To Provide Bed & Alkaline Water For Asaram Bapu, Rejects Prayer For “Special Arrangements”
+https://www.verdictum.in/rajasthan-high-court/asharam-alias-ashumal-v-state-of-rajasthan-2026rj-jd26707-orders-bed-and-alkaline-water-for-pocso-convict-1615796
+
+[Source Link](https://t.me/verdictumlegalupdates/27516)
+
+---
+
+### 2026-06-12T08:05:29+00:00
+Breaking: Supreme Court Dismisses Congress Leader Meenakshi Natarajan’s Plea Against Rejection Of Rajya Sabha Nomination
+https://www.verdictum.in/supreme-court/meenakshi-natarajan-congress-rajya-sabha-nomiantion-papers-1615792
+
+[Source Link](https://t.me/verdictumlegalupdates/27515)
+
+---
+
+### 2026-06-12T07:53:08+00:00
+Psychological, Psychiatric Evaluation Of Children In Custody, Visitation Disputes Not Barred; Supreme Court Lays Down Guidelines
+https://www.verdictum.in/supreme-court/svt-v-ca-2026-insc-638-psychological-evaluation-child-custody-disputes-1615786
+
+[Source Link](https://t.me/verdictumlegalupdates/27514)
+
+---
+
+### 2026-06-12T07:02:26+00:00
+Labour Court Decides Whether Misconduct Is Proved; Competent Disciplinary Authority Decides What Punishment Follows: Supreme Court
+https://www.verdictum.in/supreme-court/surekha-domaji-bele-v-executive-engineer-testing-division-msedcl-2026-insc-639-evidence-post-remand-dismissal-without-fresh-application-of-min-1615783
+
+[Source Link](https://t.me/verdictumlegalupdates/27513)
+
+---
+
+### 2026-06-12T06:01:45+00:00
+Application Of Constructive Res Judicata Dependent On Facts And Circumstances: Supreme Court In Family Property Dispute Matter
+https://www.verdictum.in/supreme-court/makardhwaj-ram-v-jagdish-rai-dead-th-lrs-2026-insc-636-constructive-res-judicata-is-article-226-1615779
+
+[Source Link](https://t.me/verdictumlegalupdates/27512)
 
 ---
 
@@ -105,62 +161,6 @@ Social Media Platforms Can’t Be Silent Spectators & Wait For Court Directions;
 https://www.verdictum.in/delhi-high-court/delhi-high-court-bar-association-v-dr-kapil-kakar-social-media-platforms-court-directions-1615737
 
 [Source Link](https://t.me/verdictumlegalupdates/27499)
-
----
-
-### 2026-06-11T10:32:36+00:00
-Homemakers Are “Nation Builders”; Invisible Contribution Should Be Made Visible: Supreme Court Adds "Loss Of Domestic Care" As Additional Head In Motor Accident Compensation Matters
-https://www.verdictum.in/supreme-court/shishu-pal-shish-ram-v-surjeet-2026-insc-634-homemakers-are-called-grihaswaminis-economic-status-to-unpaid-domestic-care-1615736
-
-[Source Link](https://t.me/verdictumlegalupdates/27498)
-
----
-
-### 2026-06-11T10:02:53+00:00
-Bank's Bona Fide Clarifications To Counter Media Campaign Not Retaliatory Defamation: Bombay High Court Refuses to Gag HDFC Bank, Imposes ₹5L Costs On Lilavati Trust
-https://www.verdictum.in/bombay-high-court/lilavati-kirtilal-mehta-trust-v-hdfc-bank-limited-interim-application-no3095-of-2025-media-campaign-not-retaliatory-defamation-1615735
-
-[Source Link](https://t.me/verdictumlegalupdates/27497)
-
----
-
-### 2026-06-11T09:33:10+00:00
-Public Servants Retain Privacy Rights; Asset Declarations Furnished To Authorities Not Automatically Disclosable Under RTI: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/s-savithramma-v-the-karnataka-information-commission-2026khc25434-1615734
-
-[Source Link](https://t.me/verdictumlegalupdates/27496)
-
----
-
-### 2026-06-11T09:02:28+00:00
-Supreme Court To Hear Plea By Congress Leader Meenakshi Natarajan Against Rejection Of Her Nomination Papers For Rajya Sabha
-https://www.verdictum.in/supreme-court/congress-leader-meenakshi-natarajan-against-rejection-of-her-nomination-papers-for-rajya-sabha-1615733
-
-[Source Link](https://t.me/verdictumlegalupdates/27495)
-
----
-
-### 2026-06-11T08:33:15+00:00
-Proceeding On Conjecture Would Covert Process Of Court To Instrument Of Oppression: Patna High Court Quashes FIR Against Lawyer
-https://www.verdictum.in/patna-high-court/sakaldeo-kumar-mandal-sakaldeo-mandal-v-the-state-of-bihar-fir-lawyer-sent-substitute-accuseds-place-1615731
-
-[Source Link](https://t.me/verdictumlegalupdates/27494)
-
----
-
-### 2026-06-11T08:02:33+00:00
-Supreme Court Judge Recuses Himself From Hearing Jacqueline Fernandez’s Plea In Rs 200-Crore Money Laundering Case
-https://www.verdictum.in/supreme-court/judge-recuses-himself-jacqueline-fernandezs-plea-in-rs-200-crore-money-laundering-case-1615730
-
-[Source Link](https://t.me/verdictumlegalupdates/27493)
-
----
-
-### 2026-06-11T07:32:11+00:00
-“Arbitrary Attack On Free & Impartial Journalism”: Delhi High Court Quashes FIR And ECIR Against NewsClick
-https://www.verdictum.in/delhi-high-court/ppk-newsclick-studio-pvt-ltd-v-state-nct-of-delhi-and-union-of-india-2026dhc5098-1615726
-
-[Source Link](https://t.me/verdictumlegalupdates/27492)
 
 ---
 
