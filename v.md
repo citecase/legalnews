@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-11T16:02:37+00:00*
+*Last Updated: 2026-06-12T05:12:24+00:00*
+
+---
+
+### 2026-06-12T05:12:24+00:00
+Tree Branch Falling On Vehicle Not Ground & Injuring Passenger For MACT Claim: Supreme Court Grants ₹25L Relief To Claimant On Humane Grounds
+https://www.verdictum.in/supreme-court/2026-insc-637-commissioner-bruhat-bangalore-mahanagara-palike-v-kk-umesh-kumar-1615777
+
+[Source Link](https://t.me/verdictumlegalupdates/27511)
+
+---
+
+### 2026-06-12T04:32:32+00:00
+Obligation To Furnish Drug Analysis Reports Lies With Drug Inspectorate, Not KSMSCL: Karnataka High Court Upholds Blacklisting Of Pharma Company
+https://www.verdictum.in/karnataka-high-court/biogenetic-drugs-private-limited-v-karnataka-state-medical-supplies-corporation-limited-2026khc27591-1615775
+
+[Source Link](https://t.me/verdictumlegalupdates/27510)
 
 ---
 
@@ -145,22 +161,6 @@ https://www.verdictum.in/supreme-court/judge-recuses-himself-jacqueline-fernande
 https://www.verdictum.in/delhi-high-court/ppk-newsclick-studio-pvt-ltd-v-state-nct-of-delhi-and-union-of-india-2026dhc5098-1615726
 
 [Source Link](https://t.me/verdictumlegalupdates/27492)
-
----
-
-### 2026-06-11T07:02:48+00:00
-Scope Of Reference To Third Judge U/S 392 CrPC Limited To Points Of Dissent? Supreme Court Refers Sajjan Singh Judgment To Larger Bench
-https://www.verdictum.in/supreme-court/dr-rakesh-kumar-gupta-v-state-of-uttar-pradesh-2026-insc-632-refers-sajjan-singh-judgment-to-larger-bench-1615725
-
-[Source Link](https://t.me/verdictumlegalupdates/27491)
-
----
-
-### 2026-06-11T06:33:06+00:00
-Omission To Include Forensic Expert In Witness List Is Not An Attempt To Fill Inherent Lacuna If Reports Are Part Of Judicial Record: Kerala High Court
-https://www.verdictum.in/kerala-high-court/2026ker39029-jollyamma-joseph-jolly-v-state-of-kerala-1615722
-
-[Source Link](https://t.me/verdictumlegalupdates/27490)
 
 ---
 
