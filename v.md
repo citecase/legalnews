@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-12T10:11:54+00:00*
+*Last Updated: 2026-06-12T14:52:32+00:00*
+
+---
+
+### 2026-06-12T14:52:32+00:00
+Separate Application U/s. 25 HMA Mandatory For Seeking Permanent Alimony: Telangana High Court Declines Relief In Absence Of Plea
+https://www.verdictum.in/telangana-high-court/abc-v-xyz-permanent-alimony-section-25-hindu-marriage-act-divorce-separate-plea-1615809
+
+[Source Link](https://t.me/verdictumlegalupdates/27525)
+
+---
+
+### 2026-06-12T14:12:18+00:00
+Reproductive Choice Includes Right To Procreate And Not To Procreate: Karnataka High Court Allows Termination Of Foetus With Brain Abnormalities
+https://www.verdictum.in/karnataka-high-court/xxx-v-state-of-karnataka-anr-2026khc25550-medical-termination-of-pregnancy-1615808
+
+[Source Link](https://t.me/verdictumlegalupdates/27524)
+
+---
+
+### 2026-06-12T13:33:14+00:00
+“Shocking State Of Affairs” : Allahabad High Court Orders ₹2L Compensation For 8-Day Illegal Detention, Directs Recovery From Police Officer
+https://www.verdictum.in/allahabad-high-court/mansoor-ahmad-lallu-v-state-of-up-habeas-corpus-writ-petition-no-317-of-2026-2-lakh-compensation-illegal-detention-prayagraj-commissionerate-1615807
+
+[Source Link](https://t.me/verdictumlegalupdates/27523)
+
+---
+
+### 2026-06-12T12:52:52+00:00
+Recent Election Shows People Can Vote Without Considering Caste; Now State Must Lead Drive To Eradicate It From Their Minds: Madras HC
+https://www.verdictum.in/madras-high-court/tamil-nadu-assembly-elections-people-can-vote-without-considering-caste-1615806
+
+[Source Link](https://t.me/verdictumlegalupdates/27522)
+
+---
+
+### 2026-06-12T12:12:50+00:00
+Supreme Court Asks State Of UP & Centre To Conclude Disciplinary Proceedings Against Ex-IPS Officer Amitabh Thakur Within 6 Months
+https://www.verdictum.in/supreme-court/up-centre-to-conclude-disciplinary-proceedings-against-ex-ips-officer-amitabh-thakur-within-6-months-1615803
+
+[Source Link](https://t.me/verdictumlegalupdates/27521)
+
+---
+
+### 2026-06-12T11:32:28+00:00
+“Judicial Directions Not A Burden To Be Resisted”: Supreme Court Imposes Costs On Uttar Pradesh Government For 13-Year Delay In Compliance
+https://www.verdictum.in/supreme-court/reena-kumari-ors-v-praveer-kumar-ors-2026-insc-642-non-compliance-1615802
+
+[Source Link](https://t.me/verdictumlegalupdates/27520)
+
+---
+
+### 2026-06-12T10:52:37+00:00
+Rule 23(1) Of Haryana Civil Services Rules Applies To Compassionate Financial Assistance & Not Compassionate Appointment: Supreme Court
+https://www.verdictum.in/supreme-court/2026-insc-640-atul-chauhan-v-state-of-haryana-1615801
+
+[Source Link](https://t.me/verdictumlegalupdates/27519)
 
 ---
 
@@ -105,62 +161,6 @@ Cannot Retain Seized Cash Beyond Six Months Without Valid Extension Order Record
 https://www.verdictum.in/allahabad-high-court/shalabh-agarwal-and-another-v-additional-director-general-and-another-2026ahc124246-db-1615749
 
 [Source Link](https://t.me/verdictumlegalupdates/27506)
-
----
-
-### 2026-06-11T14:13:21+00:00
-Government Lakes And Community Natural Resources Cannot Be Alienated To Private Individuals: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/government-lakes-community-natural-resources-cannot-alienate-private-individuals-1615748
-
-[Source Link](https://t.me/verdictumlegalupdates/27505)
-
----
-
-### 2026-06-11T13:42:57+00:00
-MACT Appeals Pending For Years: Supreme Court Issues Directions To Reduce Adjournments, Directs Claimants To File Proof With Claims To Curb Delays
-https://www.verdictum.in/supreme-court/shishu-pal-shish-ram-v-surjeet-2026-insc-634-mact-appeals-pending-for-8-years-on-average-1615747
-
-[Source Link](https://t.me/verdictumlegalupdates/27504)
-
----
-
-### 2026-06-11T13:12:13+00:00
-She Is My Temple, My Mosque, My Kaaba & Kashi: Supreme Court Quotes Hindi Poem To Denounce Female Foeticide; Calls For Strict Enforcement Of PCPNDT Act
-https://www.verdictum.in/supreme-court/dr-ramesh-v-state-of-maharashtra-2026-insc-635-denounce-female-foeticide-calls-for-strict-enforcement-of-pcpndt-act-1615746
-
-[Source Link](https://t.me/verdictumlegalupdates/27503)
-
----
-
-### 2026-06-11T12:32:58+00:00
-Wife Cannot Invoke Senior Citizens Act To Seek Maintenance Against Husband Who Is Himself A Senior Citizen: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/hv-lingappa-v-the-deputy-commissioner-others-2026khc17880-senior-citizen-1615745
-
-[Source Link](https://t.me/verdictumlegalupdates/27502)
-
----
-
-### 2026-06-11T12:02:54+00:00
-Twin Conditions U/S 45 PMLA Not Satisfied: Delhi High Court Denies Bail To Former Reliance Power CFO In SECI Tender Fraud Case
-https://www.verdictum.in/delhi-high-court/2026dhc5099-ashok-kumar-pal-v-directorate-of-enforcement-1615740
-
-[Source Link](https://t.me/verdictumlegalupdates/27501)
-
----
-
-### 2026-06-11T11:32:32+00:00
-Presence Of Public To Witness Occurrence In Private Place Would Come Under Public View For Offence Under SC/ST Act: Kerala High Court
-https://www.verdictum.in/kerala-high-court/santhosh-kumar-v-state-of-kerala-2026ker35838-public-private-place-scst-act-1615739
-
-[Source Link](https://t.me/verdictumlegalupdates/27500)
-
----
-
-### 2026-06-11T11:03:10+00:00
-Social Media Platforms Can’t Be Silent Spectators & Wait For Court Directions; Intermediary Must Remove Information Used To Commit Unlawful Act: Delhi High Court
-https://www.verdictum.in/delhi-high-court/delhi-high-court-bar-association-v-dr-kapil-kakar-social-media-platforms-court-directions-1615737
-
-[Source Link](https://t.me/verdictumlegalupdates/27499)
 
 ---
 
