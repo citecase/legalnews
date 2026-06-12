@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-12T14:52:32+00:00*
+*Last Updated: 2026-06-12T16:02:16+00:00*
+
+---
+
+### 2026-06-12T16:02:16+00:00
+Chief Law Officer Vacancy At Pune People's Co-operative Bank Ltd.
+https://www.verdictum.in/job-updates/pune-peoples-co-operative-bank-ltd-1615810
+
+[Source Link](https://t.me/verdictumlegalupdates/27526)
 
 ---
 
@@ -153,14 +161,6 @@ Merely Because Credit Facility Was Availed From Kerala, Delhi NCLT's Order Under
 https://www.verdictum.in/kerala-high-court/kn-marzook-v-dhanlaxmi-bank-limited-2026ker36249-ibc-proceedings-corporate-person-office-1615753
 
 [Source Link](https://t.me/verdictumlegalupdates/27507)
-
----
-
-### 2026-06-11T14:43:11+00:00
-Cannot Retain Seized Cash Beyond Six Months Without Valid Extension Order Recording Reasons: Allahabad High Court Imposes Costs On DRI
-https://www.verdictum.in/allahabad-high-court/shalabh-agarwal-and-another-v-additional-director-general-and-another-2026ahc124246-db-1615749
-
-[Source Link](https://t.me/verdictumlegalupdates/27506)
 
 ---
 
