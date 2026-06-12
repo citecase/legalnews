@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-12T10:34:06+00:00*
+*Last Updated: 2026-06-12T11:04:09+00:00*
 
 ---
 
-### 2026-06-12T10:34:06+00:00
-Karnataka High Court Stays JJ Act Case Against Murugha Mutt's Seer Accused Of Concealing Info About Minors Residing In Orphanages
-https://www.livelaw.in/minor-acts/karnataka-high-court-stays-proceedings-murugha-mutt-seer-shivamurthy-537654
-
-[Read on Telegram](https://t.me/livelawindia/112779)
-
----
-### 2026-06-12T11:02:49+00:00
-Repeated Defaults In Appearance, Possibility Of Evading Trial Justify Interim Compensation Under NI Act: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-ni-act-repeated-defaults-in-appearance-possibility-of-evading-trial-justify-interim-compensation-under-ni-act-537615
-
-[Read on Telegram](https://t.me/livelawindia/112780)
-
----
-### 2026-06-12T11:03:09+00:00
-FCI Can Recover Amounts For Delay In Completing Black-Topping Of PEG Godown Roads: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-fci-entitled-to-recover-amounts-for-non-completion-of-essential-infrastructure-in-peg-godowns-delay-in-black-topping-internal-roads-justified-recovery-537617
-
-[Read on Telegram](https://t.me/livelawindia/112781)
-
----
 ### 2026-06-12T11:04:09+00:00
 Delhi District Commission Holds MG Motors Liable For Manufacturing Defects And Failure To Honour Warranty Repairs
 https://www.livelaw.in/consumer-cases/delhi-district-commission-holds-mg-motors-liable-for-manufacturing-defects-and-failure-to-honour-warranty-repairs-537658
@@ -142,5 +121,26 @@ Misdeclaration, Grid Discipline, And Strict Liability
 https://www.livelaw.in/lawschool/articles/misdeclaration-grid-discipline-strict-liability-537578
 
 [Read on Telegram](https://t.me/livelawindia/112798)
+
+---
+### 2026-06-12T15:27:25+00:00
+Rajasthan High Court Asks Centre, State To Inform On Formulation Of SOP On Recall Of LOCs After Bail To Accused Who Seeks To Travel Abroad
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-seeks-sop-withdrawal-lookout-circulars-queries-airport-detentions-accused-537677
+
+[Read on Telegram](https://t.me/livelawindia/112799)
+
+---
+### 2026-06-12T15:33:05+00:00
+'Deprived Of Legitimate Right To Maintenance': MP High Court Grants ₹10 Lakh Compensation To Woman In Domestic Violence Case
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-protection-of-women-from-domestic-violence-act-537644
+
+[Read on Telegram](https://t.me/livelawindia/112800)
+
+---
+### 2026-06-12T16:00:35+00:00
+Right To Liberty Not Absolute, Bail Cannot Be Granted If Accused Has Serious Criminal Antecedents: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/right-to-liberty-not-absolute-bail-cannot-be-granted-if-accused-has-serious-criminal-antecedents-bombay-high-court-537681
+
+[Read on Telegram](https://t.me/livelawindia/112801)
 
 ---
