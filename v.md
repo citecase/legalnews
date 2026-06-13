@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-13T09:33:09+00:00*
+*Last Updated: 2026-06-13T14:32:56+00:00*
+
+---
+
+### 2026-06-13T14:32:56+00:00
+Assistant Legal Officer Vacancy At Karnataka Power Corporation (KPCL)
+https://www.verdictum.in/job-updates/karnataka-power-corporation-1615867
+
+[Source Link](https://t.me/verdictumlegalupdates/27537)
+
+---
+
+### 2026-06-13T13:32:35+00:00
+Bombay High Court Directs Implementation Of Shetty Commission Pay Scale Recommendations For District Court Stenographers From 2003
+https://www.verdictum.in/bombay-high-court/rajendra-ramaji-dhawale-ors-v-state-of-maharashtra-ors-shetty-commission-1615866
+
+[Source Link](https://t.me/verdictumlegalupdates/27536)
+
+---
+
+### 2026-06-13T12:33:13+00:00
+High Court Cannot Indirectly Neutralise A Lok Adalat Award In Collateral Proceedings Where Its Validity Is Not Under Challenge: Supreme Court
+https://www.verdictum.in/supreme-court/high-court-indirectly-neutralise-lok-adalat-award-collateral-proceedings-challenge-1615864
+
+[Source Link](https://t.me/verdictumlegalupdates/27535)
+
+---
+
+### 2026-06-13T11:32:32+00:00
+Failed To Consider Video Conferencing Rules & Technological Infrastructure: Punjab & Haryana HC Allows 78-Year-Old Attesting Witness To A Will To Depose Through VC
+https://www.verdictum.in/punjab-and-haryana-high-court/ashwani-kumar-sharma-v-rama-rani-sharma-2026phhc084538-allows-78-year-old-attesting-witness-vc-1615863
+
+[Source Link](https://t.me/verdictumlegalupdates/27534)
+
+---
+
+### 2026-06-13T10:32:30+00:00
+Several Judges Are Living In Rented Accommodation: Karnataka High Court Dismisses PIL Against Re-Allotment Of Land For Judges' Residences
+https://www.verdictum.in/karnataka-high-court/karnataka-veterinary-association-ors-v-the-state-of-karnataka-ors-1615861
+
+[Source Link](https://t.me/verdictumlegalupdates/27533)
 
 ---
 
@@ -121,46 +161,6 @@ Right To Advance Oral Arguments U/S 234 CrPC A Fundamental Right; Trial Court Mu
 https://www.verdictum.in/madras-high-court/chinnavan-govindaraj-anr-v-state-section-234-criminal-procedure-1615800
 
 [Source Link](https://t.me/verdictumlegalupdates/27518)
-
----
-
-### 2026-06-12T09:33:12+00:00
-Appointees Need Not Suffer On Account Of Irregularity By Officials: Supreme Court Directs Cooperative Society To Consider Appointments Afresh
-https://www.verdictum.in/supreme-court/gaurav-mehla-ors-v-state-of-haryana-ors-2026-insc-641-reappointment-1615798
-
-[Source Link](https://t.me/verdictumlegalupdates/27517)
-
----
-
-### 2026-06-12T08:52:11+00:00
-Prisoner Does Not Cease To Be A Human Being: Rajasthan High Court Directs To Provide Bed & Alkaline Water For Asaram Bapu, Rejects Prayer For “Special Arrangements”
-https://www.verdictum.in/rajasthan-high-court/asharam-alias-ashumal-v-state-of-rajasthan-2026rj-jd26707-orders-bed-and-alkaline-water-for-pocso-convict-1615796
-
-[Source Link](https://t.me/verdictumlegalupdates/27516)
-
----
-
-### 2026-06-12T08:05:29+00:00
-Breaking: Supreme Court Dismisses Congress Leader Meenakshi Natarajan’s Plea Against Rejection Of Rajya Sabha Nomination
-https://www.verdictum.in/supreme-court/meenakshi-natarajan-congress-rajya-sabha-nomiantion-papers-1615792
-
-[Source Link](https://t.me/verdictumlegalupdates/27515)
-
----
-
-### 2026-06-12T07:53:08+00:00
-Psychological, Psychiatric Evaluation Of Children In Custody, Visitation Disputes Not Barred; Supreme Court Lays Down Guidelines
-https://www.verdictum.in/supreme-court/svt-v-ca-2026-insc-638-psychological-evaluation-child-custody-disputes-1615786
-
-[Source Link](https://t.me/verdictumlegalupdates/27514)
-
----
-
-### 2026-06-12T07:02:26+00:00
-Labour Court Decides Whether Misconduct Is Proved; Competent Disciplinary Authority Decides What Punishment Follows: Supreme Court
-https://www.verdictum.in/supreme-court/surekha-domaji-bele-v-executive-engineer-testing-division-msedcl-2026-insc-639-evidence-post-remand-dismissal-without-fresh-application-of-min-1615783
-
-[Source Link](https://t.me/verdictumlegalupdates/27513)
 
 ---
 
