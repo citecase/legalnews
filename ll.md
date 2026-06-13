@@ -1,146 +1,147 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-12T12:07:12+00:00*
+*Last Updated: 2026-06-13T04:32:37+00:00*
 
 ---
 
-### 2026-06-12T12:07:12+00:00
-Delhi High Court Issues Notice On Actor Salman Khan's Plea Against Release Of 'Kala Hiran' Movie
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-actor-salman-khan-kala-hiran-movie-537664
+### 2026-06-13T04:32:37+00:00
+No 'Honour' In 'Honour Killing', It's A Shameful Act And Extreme Reflection Of Casteism: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-no-honour-in-honour-killing-shameful-act-537705
 
-[Read on Telegram](https://t.me/livelawindia/112785)
-
----
-### 2026-06-12T12:08:12+00:00
-Person Awarded Work Through Quotation Process Can Still Be 'Employee' Under Employees Compensation Act If He Personally Executes Work: Kerala HC
-https://www.livelaw.in/high-court/kerala-high-court/employees-compensation-act-tender-or-quotation-qualify-employee-execution-of-work-kerala-high-court-537620
-
-[Read on Telegram](https://t.me/livelawindia/112786)
+[Read on Telegram](https://t.me/livelawindia/112806)
 
 ---
-### 2026-06-12T12:33:12+00:00
-PNB Housing Finance Liable For Delaying Loan Foreclosure Statement, Cannot Charge Interest For Delay Caused By Itself: Thrissur Consumer Commission
-https://www.livelaw.in/consumer-cases/pnb-housing-finance-liable-for-delaying-loan-foreclosure-statement-cannot-charge-interest-for-delay-caused-by-itself-thrissur-consumer-commission-537659
+### 2026-06-13T04:32:57+00:00
+'Serious Allegations': MP High Court Denies Anticipatory Bail To Husband Accused Of Trying To Commit Unnatural Sexual Acts With Wife
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-anticipatory-bail-husband-attempt-unnatural-sexual-acts-537693
 
-[Read on Telegram](https://t.me/livelawindia/112787)
-
----
-### 2026-06-12T12:58:04+00:00
-Telangana High Court Refuses To Shift 12-Year-Old Mobile Tower, Directs Technology Upgrade To Reduce Radiation Levels
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-ghmc-seek-technology-upgrade-reduce-radiation-537611
-
-[Read on Telegram](https://t.me/livelawindia/112788)
+[Read on Telegram](https://t.me/livelawindia/112807)
 
 ---
-### 2026-06-12T13:04:05+00:00
-Kerala High Court Mulls Visit New Bio-Mining Plant At Brahmapuram
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-waste-management-brahmapuram-537667
+### 2026-06-13T04:52:37+00:00
+'Criminal Law Can't Invoked Against Every Relative Of Husband Due To Matrimonial Discord': Madras HC Quashes S.498A IPC Case Against In-Laws
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-section-498a-no-prosecution-matrimonial-discord-537686
 
-[Read on Telegram](https://t.me/livelawindia/112789)
-
----
-### 2026-06-12T13:09:02+00:00
-KSBC Polls: Karnataka High Court Asks State Bar Council To Inform On Total Number Of Malpractice Complaints, Action Taken By Election Panel
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-state-bar-council-election-elections-complaints-537668
-
-[Read on Telegram](https://t.me/livelawindia/112790)
+[Read on Telegram](https://t.me/livelawindia/112808)
 
 ---
-### 2026-06-12T13:09:22+00:00
-Processus Conveniens For Indo-Oman CEPA Corridor
-https://www.livelaw.in/articles/processus-conveniens-indo-oman-cepa-corridor-537669
+### 2026-06-13T05:08:57+00:00
+Graduate Law Trainee At Ernst & Young [Mumbai; Apply Now]
+https://www.livelaw.in/job-updates/graduate-law-trainee-at-ernst-young-mumbai-537706
 
-[Read on Telegram](https://t.me/livelawindia/112791)
-
----
-### 2026-06-12T13:17:04+00:00
-Telangana Court Returns Complaint Which Led To Rejection Of Meenakshi Natarajan's Rajya Sabha Candidature
-https://www.livelaw.in/news-updates/telegana-court-sexual-assault-meenakshi-natarajan-against-kumbhan-shiva-kumar-reddy-537671
-
-[Read on Telegram](https://t.me/livelawindia/112792)
+[Read on Telegram](https://t.me/livelawindia/112809)
 
 ---
-### 2026-06-12T13:18:04+00:00
-Civil Services Candidates Require Impeccable Character; Acquittal On Benefit Of Doubt Not Automatic Clean Chit: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-rejection-civil-services-candidate-acquitted-537607
+### 2026-06-13T05:09:57+00:00
+Consultant (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
+https://www.livelaw.in/job-updates/consultant-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-537707
 
-[Read on Telegram](https://t.me/livelawindia/112793)
-
----
-### 2026-06-12T13:32:44+00:00
-'Gave Clean Chit To Accused': Kerala High Court Expunges Trial Court's Remarks On SIT Probe Against Thantri Rajeev In Gold Theft Case
-https://www.livelaw.in/high-court/kerala-high-court/sabarimala-gold-theft-expunge-remarks-special-court-thanthri-rajeev-537640
-
-[Read on Telegram](https://t.me/livelawindia/112794)
+[Read on Telegram](https://t.me/livelawindia/112810)
 
 ---
-### 2026-06-12T13:42:25+00:00
-Karnataka High Court Quashes Case Against JDS MLA Sharada Purya Naik Accused Of Employing Children In 2023 Political Rally
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-case-janata-dal-mla-sharada-purya-children-political-rally-case-537674
+### 2026-06-13T05:17:17+00:00
+Executive (Data Privacy & Ethics) Vacancy At KPMG India [Gurgaon; Apply Now]
+https://www.livelaw.in/job-updates/executive-data-privacy-ethics-vacancy-at-kpmg-india-gurgaon-537708
 
-[Read on Telegram](https://t.me/livelawindia/112795)
-
----
-### 2026-06-12T13:46:24+00:00
-Janhavi Gadkar Drunk Driving Case |  Not Inclined To Permit Sale Of Offending Audi Car: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/janhavi-gadkar-drunk-driving-case-not-inclined-to-permit-sale-of-offending-audi-car-bombay-high-court-537675
-
-[Read on Telegram](https://t.me/livelawindia/112796)
+[Read on Telegram](https://t.me/livelawindia/112811)
 
 ---
-### 2026-06-12T13:53:54+00:00
-'No One Can Impose His Understanding Of Religion On Others': J&K Court Rejects Self-Styled Godman's 'Vexatious Complaint' On Temple Rituals
-https://www.livelaw.in/news-updates/hinduism-not-a-fragile-faith-requiring-protection-from-frivolous-litigants-jk-court-jails-self-styled-godman-for-30-days-orders-compensation-for-vexatious-complaint-on-temple-rituals-537676
+### 2026-06-13T05:18:37+00:00
+Manager (Legal) Vacancy At J&K Development Finance Corporation Limited
+https://www.livelaw.in/job-updates/manager-legal-vacancy-at-jk-development-finance-corporation-limited-537709
 
-[Read on Telegram](https://t.me/livelawindia/112797)
-
----
-### 2026-06-12T14:32:36+00:00
-Misdeclaration, Grid Discipline, And Strict Liability
-https://www.livelaw.in/lawschool/articles/misdeclaration-grid-discipline-strict-liability-537578
-
-[Read on Telegram](https://t.me/livelawindia/112798)
+[Read on Telegram](https://t.me/livelawindia/112812)
 
 ---
-### 2026-06-12T15:27:25+00:00
-Rajasthan High Court Asks Centre, State To Inform On Formulation Of SOP On Recall Of LOCs After Bail To Accused Who Seeks To Travel Abroad
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-seeks-sop-withdrawal-lookout-circulars-queries-airport-detentions-accused-537677
+### 2026-06-13T05:21:37+00:00
+#TheLawChallenge
+: A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
+https://www.livelaw.in/top-stories/livelaw-and-qshala-weekly-quiz-537710
 
-[Read on Telegram](https://t.me/livelawindia/112799)
-
----
-### 2026-06-12T15:33:05+00:00
-'Deprived Of Legitimate Right To Maintenance': MP High Court Grants ₹10 Lakh Compensation To Woman In Domestic Violence Case
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-protection-of-women-from-domestic-violence-act-537644
-
-[Read on Telegram](https://t.me/livelawindia/112800)
+[Read on Telegram](https://t.me/livelawindia/112813)
 
 ---
-### 2026-06-12T16:00:35+00:00
-Right To Liberty Not Absolute, Bail Cannot Be Granted If Accused Has Serious Criminal Antecedents: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/right-to-liberty-not-absolute-bail-cannot-be-granted-if-accused-has-serious-criminal-antecedents-bombay-high-court-537681
+### 2026-06-13T05:29:27+00:00
+Deceased Victim's Legal Heirs Fall Under Ambit Of Section 2(wa) CrPC, Entitled To Continue Appeal Against Acquittal: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-legal-heirs-deceased-victim-right-to-continue-criminal-appeal-537711
 
-[Read on Telegram](https://t.me/livelawindia/112801)
-
----
-### 2026-06-13T00:49:15+00:00
-LiveLaw Celebrates 13 Years With Special Anniversary Subscription Offers
-https://www.livelaw.in/top-stories/livelaw-celebrates-13-years-with-special-anniversary-subscription-offers-537697
-
-[Read on Telegram](https://t.me/livelawindia/112802)
+[Read on Telegram](https://t.me/livelawindia/112814)
 
 ---
-### 2026-06-13T04:01:45+00:00
-Are TMC Rebel MPs Liable To Be Disqualified Under Anti-Defection Law?
-https://www.livelaw.in/articles/are-tmc-rebel-mps-liable-to-be-disqualified-under-anti-defection-law-537699
+### 2026-06-13T05:32:47+00:00
+'Premature': Rajasthan High Court Rejects Estranged Wife's Plea For Inclusion As Nominee In Family Pension During Lifetime Of Husband
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-wife-cannot-seek-family-pension-nominee-husband-alive-537694
 
-[Read on Telegram](https://t.me/livelawindia/112803)
+[Read on Telegram](https://t.me/livelawindia/112815)
 
 ---
-### 2026-06-13T04:04:45+00:00
-HP High Court Affirms 2-Year Service Extension For Indira Gandhi NSS National Awardee Teachers In Himachal Pradesh
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-affirms-2-year-service-extension-for-indira-gandhi-nss-national-awardee-teachers-in-himachal-pradesh-537701
+### 2026-06-13T05:32:57+00:00
+POCSO Prosecution Cannot Be Quashed Merely Because Minor Victim Refuses To Continue Case: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-pocso-prosecution-quashed-merely-minor-victim-refuses-continue-537683
 
-[Read on Telegram](https://t.me/livelawindia/112804)
+[Read on Telegram](https://t.me/livelawindia/112816)
+
+---
+### 2026-06-13T06:02:27+00:00
+Workman With  240 Days Of Continuous Service, Termination Without Notice Is Illegal : HP HC
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/workman-with-240-days-of-continuous-service-termination-without-notice-is-illegal-hp-hc-537702
+
+[Read on Telegram](https://t.me/livelawindia/112817)
+
+---
+### 2026-06-13T06:06:47+00:00
+Retiral Benefits Can't Be Withheld Merely Due To Pending FIR; Loss Must Be Established In Departmental Proceedings: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-recovery-from-pension-for-loss-caused-by-employee-subject-to-article-168-a-of-jk-csr-loss-must-be-determined-in-judicial-or-departmental-proceedings-537621
+
+[Read on Telegram](https://t.me/livelawindia/112818)
+
+---
+### 2026-06-13T07:12:54+00:00
+Umar Khalid, Sharjeel Imam Move Court Seeking Bail In Delhi Riots Larger Conspiracy Case
+https://www.livelaw.in/news-updates/umar-khalid-sharjeel-imam-move-court-seeking-bail-in-delhi-riots-larger-conspiracy-case-537719
+
+[Read on Telegram](https://t.me/livelawindia/112819)
+
+---
+### 2026-06-13T07:44:54+00:00
+PIL In Allahabad High Court Seeks CBI Probe Into Alleged Embezzlement Of Ayodhya Ram Mandir Donation Funds
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-ayodhya-ram-mandir-donation-pil-cbi-embezzlement-trust-employees-537728
+
+[Read on Telegram](https://t.me/livelawindia/112820)
+
+---
+### 2026-06-13T07:45:34+00:00
+31 Yrs On Rajasthan HC Grants Disability Pension To Ex-Sepoy; Says Army Didn't Conduct Medical Exam Or Disclose Disease In Discharge Order
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-exsepoy-disability-pension-battle-army-serious-lapse-537729
+
+[Read on Telegram](https://t.me/livelawindia/112821)
+
+---
+### 2026-06-13T07:57:24+00:00
+Jharkhand High Court Closes PIL Seeking Health Insurance For Advocates After State Assures Annual Premium Of ₹6000
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-pil-seeking-health-insurance-advocates-state-assures-annual-premium-537687
+
+[Read on Telegram](https://t.me/livelawindia/112822)
+
+---
+### 2026-06-13T08:19:24+00:00
+Sexual Offence Victims Take Time To Muster Courage, Fear 'Uncomfortable Questions' : Bombay High Court Refuses To Quash  FIR For Delay
+https://www.livelaw.in/high-court/bombay-high-court/sexual-offence-victims-take-time-to-muster-courage-fear-uncomfortable-questions-bombay-high-court-refuses-to-quash-fir-for-delay-537730
+
+[Read on Telegram](https://t.me/livelawindia/112823)
+
+---
+### 2026-06-13T09:09:14+00:00
+Woman Occupies District Judge's Chair In Varanasi Court, Attempts To Conduct Hearings; Removed By Police
+https://www.livelaw.in/news-updates/woman-occupies-district-judges-chair-in-varanasi-court-attempts-to-conduct-hearings-removed-by-police-537737
+
+[Read on Telegram](https://t.me/livelawindia/112824)
+
+---
+### 2026-06-13T09:14:34+00:00
+MP High Court Grants Bail To Man Accused Of Videographing Women In Maternity Ward, Says State Could Not Show Incriminating Material
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bail-to-man-videographing-maternitylabour-ward-women-537740
+
+[Read on Telegram](https://t.me/livelawindia/112825)
 
 ---
