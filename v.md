@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-12T16:02:16+00:00*
+*Last Updated: 2026-06-13T04:33:12+00:00*
+
+---
+
+### 2026-06-13T04:33:12+00:00
+Complainant Must Prove Cheque Execution Through Person Having Direct Knowledge Of Transaction Before Availing NI Act Presumptions: Kerala High Court
+https://www.verdictum.in/kerala-high-court/shijosh-k-v-state-of-kerala-anr-2026ker40471-negotiable-instruments-1615817
+
+[Source Link](https://t.me/verdictumlegalupdates/27527)
 
 ---
 
@@ -153,14 +161,6 @@ Medical Reimbursement Being Instrument Of Social Welfare Should Receive Purposiv
 https://www.verdictum.in/punjab-and-haryana-high-court/swati-yadav-v-state-of-haryana-reimbursement-non-empanelment-hospital-1615752
 
 [Source Link](https://t.me/verdictumlegalupdates/27508)
-
----
-
-### 2026-06-11T15:12:33+00:00
-Merely Because Credit Facility Was Availed From Kerala, Delhi NCLT's Order Under IBC Can't Be Challenged Before It: Kerala High Court
-https://www.verdictum.in/kerala-high-court/kn-marzook-v-dhanlaxmi-bank-limited-2026ker36249-ibc-proceedings-corporate-person-office-1615753
-
-[Source Link](https://t.me/verdictumlegalupdates/27507)
 
 ---
 
