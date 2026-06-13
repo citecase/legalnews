@@ -1,73 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-13T04:32:37+00:00*
+*Last Updated: 2026-06-13T05:32:47+00:00*
 
 ---
 
-### 2026-06-13T04:32:37+00:00
-No 'Honour' In 'Honour Killing', It's A Shameful Act And Extreme Reflection Of Casteism: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-no-honour-in-honour-killing-shameful-act-537705
-
-[Read on Telegram](https://t.me/livelawindia/112806)
-
----
-### 2026-06-13T04:32:57+00:00
-'Serious Allegations': MP High Court Denies Anticipatory Bail To Husband Accused Of Trying To Commit Unnatural Sexual Acts With Wife
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-anticipatory-bail-husband-attempt-unnatural-sexual-acts-537693
-
-[Read on Telegram](https://t.me/livelawindia/112807)
-
----
-### 2026-06-13T04:52:37+00:00
-'Criminal Law Can't Invoked Against Every Relative Of Husband Due To Matrimonial Discord': Madras HC Quashes S.498A IPC Case Against In-Laws
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-section-498a-no-prosecution-matrimonial-discord-537686
-
-[Read on Telegram](https://t.me/livelawindia/112808)
-
----
-### 2026-06-13T05:08:57+00:00
-Graduate Law Trainee At Ernst & Young [Mumbai; Apply Now]
-https://www.livelaw.in/job-updates/graduate-law-trainee-at-ernst-young-mumbai-537706
-
-[Read on Telegram](https://t.me/livelawindia/112809)
-
----
-### 2026-06-13T05:09:57+00:00
-Consultant (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/consultant-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-537707
-
-[Read on Telegram](https://t.me/livelawindia/112810)
-
----
-### 2026-06-13T05:17:17+00:00
-Executive (Data Privacy & Ethics) Vacancy At KPMG India [Gurgaon; Apply Now]
-https://www.livelaw.in/job-updates/executive-data-privacy-ethics-vacancy-at-kpmg-india-gurgaon-537708
-
-[Read on Telegram](https://t.me/livelawindia/112811)
-
----
-### 2026-06-13T05:18:37+00:00
-Manager (Legal) Vacancy At J&K Development Finance Corporation Limited
-https://www.livelaw.in/job-updates/manager-legal-vacancy-at-jk-development-finance-corporation-limited-537709
-
-[Read on Telegram](https://t.me/livelawindia/112812)
-
----
-### 2026-06-13T05:21:37+00:00
-#TheLawChallenge
-: A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
-https://www.livelaw.in/top-stories/livelaw-and-qshala-weekly-quiz-537710
-
-[Read on Telegram](https://t.me/livelawindia/112813)
-
----
-### 2026-06-13T05:29:27+00:00
-Deceased Victim's Legal Heirs Fall Under Ambit Of Section 2(wa) CrPC, Entitled To Continue Appeal Against Acquittal: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-legal-heirs-deceased-victim-right-to-continue-criminal-appeal-537711
-
-[Read on Telegram](https://t.me/livelawindia/112814)
-
----
 ### 2026-06-13T05:32:47+00:00
 'Premature': Rajasthan High Court Rejects Estranged Wife's Plea For Inclusion As Nominee In Family Pension During Lifetime Of Husband
 https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-wife-cannot-seek-family-pension-nominee-husband-alive-537694
@@ -143,5 +79,68 @@ MP High Court Grants Bail To Man Accused Of Videographing Women In Maternity War
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bail-to-man-videographing-maternitylabour-ward-women-537740
 
 [Read on Telegram](https://t.me/livelawindia/112825)
+
+---
+### 2026-06-13T09:32:24+00:00
+Latent Bars To Justice: An Empirical Analysis Of Bail
+https://www.livelaw.in/articles/latent-bars-justice-empirical-analysis-bail-537650
+
+[Read on Telegram](https://t.me/livelawindia/112826)
+
+---
+### 2026-06-13T10:32:14+00:00
+Jharkhand HC Directs Circle Officers To Verify, Digitally Authenticate Online Land Records To Eliminate Mismatches With Physical Registers
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-circle-officers-digitally-verify-online-land-records-537688
+
+[Read on Telegram](https://t.me/livelawindia/112827)
+
+---
+### 2026-06-13T11:02:24+00:00
+Dismissal Is Severest Punishment; Must Be Imposed Only For Grave Misconduct : Supreme Court
+https://www.livelaw.in/labour-service/dismissal-is-severest-punishment-must-be-imposed-only-for-grave-misconduct-supreme-court-537751
+
+[Read on Telegram](https://t.me/livelawindia/112828)
+
+---
+### 2026-06-13T11:05:05+00:00
+2026 LiveLaw (SC) 624 | SUREKHA DOMAJI BELE v EXECUTIVE ENGINEER, TESTING DIVISION, MSEDCL|
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-624-surekha-domaji-bele-v-executive-engineer-testing-division-msedcl-537752
+
+[Read on Telegram](https://t.me/livelawindia/112829)
+
+---
+### 2026-06-13T11:18:44+00:00
+'We Can't Be Mute Spectator In Matters Of Voiceless Animals': Supreme Court Orders Protection Of Kerala's Tallest Elephant
+https://www.livelaw.in/top-stories/we-cant-be-mute-spectator-in-matters-of-voiceless-animals-supreme-court-orders-protection-of-keralas-tallest-elephant-537754
+
+[Read on Telegram](https://t.me/livelawindia/112830)
+
+---
+### 2026-06-13T11:20:44+00:00
+2026 LiveLaw (SC) 625 | Jayakrishna Menon v. Krishnankutty & Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-625-jayakrishna-menon-v-krishnankutty-ors-537755
+
+[Read on Telegram](https://t.me/livelawindia/112831)
+
+---
+### 2026-06-13T11:57:34+00:00
+Delhi Consumer Commission Holds Deccan Clap Liable For Deficiency In Service And Unilateral Revision Of Estimates
+https://www.livelaw.in/consumer-cases/delhi-consumer-commission-holds-deccan-clap-liable-for-deficiency-in-service-and-unilateral-revision-of-estimates-537756
+
+[Read on Telegram](https://t.me/livelawindia/112832)
+
+---
+### 2026-06-13T12:32:17+00:00
+Dharmasthala Burial Case: Karnataka High Court Issues Notice On Ex-Sanitation Worker's Plea Seeking Expeditious Completion Of SIT Probe
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-seeking-final-report-alleged-masterminds-537761
+
+[Read on Telegram](https://t.me/livelawindia/112833)
+
+---
+### 2026-06-13T14:06:37+00:00
+'Revision Power Can't Be Exercised Suo Motu': Calcutta HC Reinstates SSB Constable Dismissed After Punishment Was Reopened
+https://www.livelaw.in/high-court/calcutta-high-court/revision-power-cant-be-exercised-suo-motu-calcutta-hc-reinstates-ssb-constable-dismissed-after-punishment-was-reopened-537762
+
+[Read on Telegram](https://t.me/livelawindia/112834)
 
 ---
