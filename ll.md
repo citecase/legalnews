@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-13T05:32:47+00:00*
+*Last Updated: 2026-06-13T07:12:54+00:00*
 
 ---
 
-### 2026-06-13T05:32:47+00:00
-'Premature': Rajasthan High Court Rejects Estranged Wife's Plea For Inclusion As Nominee In Family Pension During Lifetime Of Husband
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-wife-cannot-seek-family-pension-nominee-husband-alive-537694
-
-[Read on Telegram](https://t.me/livelawindia/112815)
-
----
-### 2026-06-13T05:32:57+00:00
-POCSO Prosecution Cannot Be Quashed Merely Because Minor Victim Refuses To Continue Case: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-pocso-prosecution-quashed-merely-minor-victim-refuses-continue-537683
-
-[Read on Telegram](https://t.me/livelawindia/112816)
-
----
-### 2026-06-13T06:02:27+00:00
-Workman With  240 Days Of Continuous Service, Termination Without Notice Is Illegal : HP HC
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/workman-with-240-days-of-continuous-service-termination-without-notice-is-illegal-hp-hc-537702
-
-[Read on Telegram](https://t.me/livelawindia/112817)
-
----
-### 2026-06-13T06:06:47+00:00
-Retiral Benefits Can't Be Withheld Merely Due To Pending FIR; Loss Must Be Established In Departmental Proceedings: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-recovery-from-pension-for-loss-caused-by-employee-subject-to-article-168-a-of-jk-csr-loss-must-be-determined-in-judicial-or-departmental-proceedings-537621
-
-[Read on Telegram](https://t.me/livelawindia/112818)
-
----
 ### 2026-06-13T07:12:54+00:00
 Umar Khalid, Sharjeel Imam Move Court Seeking Bail In Delhi Riots Larger Conspiracy Case
 https://www.livelaw.in/news-updates/umar-khalid-sharjeel-imam-move-court-seeking-bail-in-delhi-riots-larger-conspiracy-case-537719
@@ -142,5 +114,33 @@ https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-seek
 https://www.livelaw.in/high-court/calcutta-high-court/revision-power-cant-be-exercised-suo-motu-calcutta-hc-reinstates-ssb-constable-dismissed-after-punishment-was-reopened-537762
 
 [Read on Telegram](https://t.me/livelawindia/112834)
+
+---
+### 2026-06-13T14:32:16+00:00
+A Successful Resolution Applicant Cannot Escape Through A 'Conditional' Letter Of Intent
+https://www.livelaw.in/articles/successful-resolution-applicant-escape-conditional-letter-intent-537651
+
+[Read on Telegram](https://t.me/livelawindia/112835)
+
+---
+### 2026-06-13T14:53:06+00:00
+'Gross Abuse Of Law': Rajasthan High Court Sets Aside Revenue Board's Order Directing Impleadment Of Party In Absence Of Prayer
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-slams-revenue-board-exparte-impleadment-order-537744
+
+[Read on Telegram](https://t.me/livelawindia/112836)
+
+---
+### 2026-06-13T15:02:26+00:00
+Post-Mortem Report Must Prevail Over Presumptions On Age In Motor Accident Claims: Calcutta HC Enhances Compensation By ₹13.8 Lakh
+https://www.livelaw.in/high-court/calcutta-high-court/post-mortem-report-must-prevail-over-presumptions-on-age-in-motor-accident-claims-calcutta-hc-enhances-compensation-by-138-lakh-537763
+
+[Read on Telegram](https://t.me/livelawindia/112837)
+
+---
+### 2026-06-13T15:02:46+00:00
+'No Mala Fides Shown In Order': Rajasthan High Court Refuses To Quash Clerk's Transfer From Defence Canteen Stores Dept To Head Office
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-ldc-posted-defense-csd-stores-transferred-administrative-wing-537747
+
+[Read on Telegram](https://t.me/livelawindia/112838)
 
 ---
