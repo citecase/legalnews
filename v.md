@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-13T04:33:12+00:00*
+*Last Updated: 2026-06-13T09:33:09+00:00*
+
+---
+
+### 2026-06-13T09:33:09+00:00
+“Investigation By District Administration Would Be A Sham”: Allahabad High Court Orders Judicial Probe Into Death Of Advocate Jagrati Shukla At SRN Hospital
+https://www.verdictum.in/allahabad-high-court/amit-kumar-singh-sonu-singh-v-state-of-up-s-public-interest-litigation-pil-no-1493-of-2026-judicial-probe-into-death-of-advocate-jagrati-shukla-1615859
+
+[Source Link](https://t.me/verdictumlegalupdates/27532)
+
+---
+
+### 2026-06-13T08:32:27+00:00
+Courts Must Monitor Investigation Under Section 156(3) CrPC & Call For Progress Reports If Delayed: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/2026rjjd23857-sumann-mundhara-v-state-of-rajasthan-1615857
+
+[Source Link](https://t.me/verdictumlegalupdates/27531)
+
+---
+
+### 2026-06-13T07:33:06+00:00
+Mere Plea That Offending Vehicle Was Stationary Does Not Absolve Owner From Liability If Improper Parking Caused Accident: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/bajaj-allianz-general-insurance-co-ltd-v-saanvi-samanta-anr-2026chc-as841-1615846
+
+[Source Link](https://t.me/verdictumlegalupdates/27530)
+
+---
+
+### 2026-06-13T06:32:44+00:00
+Messages Prima Facie Affecting Public Harmony: Telangana High Court Refuses To Quash Proceedings Against WhatsApp Group Admin
+https://www.verdictum.in/telangana-high-court/lakakula-ayappa-v-the-state-of-telangana-2023-scc-online-bom-1515-whatsapp-group-admin-objectionable-whatsapp-messages-1615842
+
+[Source Link](https://t.me/verdictumlegalupdates/27529)
+
+---
+
+### 2026-06-13T05:32:23+00:00
+Repeated Defaults By Accused In Appearance & Permission Obtained To Travel Abroad Relevant Factors For Grant Of Interim Compensation U/S 143A NI Act: J&K And Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/mohammed-ashraf-mir-v-wazira-reshi-negotiable-instruments-act-section-143-1615840
+
+[Source Link](https://t.me/verdictumlegalupdates/27528)
 
 ---
 
@@ -121,46 +161,6 @@ Labour Court Decides Whether Misconduct Is Proved; Competent Disciplinary Author
 https://www.verdictum.in/supreme-court/surekha-domaji-bele-v-executive-engineer-testing-division-msedcl-2026-insc-639-evidence-post-remand-dismissal-without-fresh-application-of-min-1615783
 
 [Source Link](https://t.me/verdictumlegalupdates/27513)
-
----
-
-### 2026-06-12T06:01:45+00:00
-Application Of Constructive Res Judicata Dependent On Facts And Circumstances: Supreme Court In Family Property Dispute Matter
-https://www.verdictum.in/supreme-court/makardhwaj-ram-v-jagdish-rai-dead-th-lrs-2026-insc-636-constructive-res-judicata-is-article-226-1615779
-
-[Source Link](https://t.me/verdictumlegalupdates/27512)
-
----
-
-### 2026-06-12T05:12:24+00:00
-Tree Branch Falling On Vehicle Not Ground & Injuring Passenger For MACT Claim: Supreme Court Grants ₹25L Relief To Claimant On Humane Grounds
-https://www.verdictum.in/supreme-court/2026-insc-637-commissioner-bruhat-bangalore-mahanagara-palike-v-kk-umesh-kumar-1615777
-
-[Source Link](https://t.me/verdictumlegalupdates/27511)
-
----
-
-### 2026-06-12T04:32:32+00:00
-Obligation To Furnish Drug Analysis Reports Lies With Drug Inspectorate, Not KSMSCL: Karnataka High Court Upholds Blacklisting Of Pharma Company
-https://www.verdictum.in/karnataka-high-court/biogenetic-drugs-private-limited-v-karnataka-state-medical-supplies-corporation-limited-2026khc27591-1615775
-
-[Source Link](https://t.me/verdictumlegalupdates/27510)
-
----
-
-### 2026-06-11T16:02:37+00:00
-Law Officer Vacancy At Ariyalur District Court
-https://www.verdictum.in/job-updates/ariyalur-district-court-1615744
-
-[Source Link](https://t.me/verdictumlegalupdates/27509)
-
----
-
-### 2026-06-11T15:12:54+00:00
-Medical Reimbursement Being Instrument Of Social Welfare Should Receive Purposive Interpretation: Punjab & Haryana High Court
-https://www.verdictum.in/punjab-and-haryana-high-court/swati-yadav-v-state-of-haryana-reimbursement-non-empanelment-hospital-1615752
-
-[Source Link](https://t.me/verdictumlegalupdates/27508)
 
 ---
 
