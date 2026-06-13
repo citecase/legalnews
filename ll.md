@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-12T11:04:09+00:00*
+*Last Updated: 2026-06-12T12:07:12+00:00*
 
 ---
 
-### 2026-06-12T11:04:09+00:00
-Delhi District Commission Holds MG Motors Liable For Manufacturing Defects And Failure To Honour Warranty Repairs
-https://www.livelaw.in/consumer-cases/delhi-district-commission-holds-mg-motors-liable-for-manufacturing-defects-and-failure-to-honour-warranty-repairs-537658
-
-[Read on Telegram](https://t.me/livelawindia/112782)
-
----
-### 2026-06-12T11:45:22+00:00
-Writ Court Can't Grant Interim Relief After Relegating Party To Alternative Forum: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-writ-court-cannot-grant-interim-order-once-asked-to-seek-alternative-remedy-537661
-
-[Read on Telegram](https://t.me/livelawindia/112783)
-
----
-### 2026-06-12T11:52:22+00:00
-Victim's Birth Certificate Registered 17 Years After Birth Cannot Automatically Establish Minority: Sikkim HC Acquits Man In POCSO Case
-https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-rejects-presumption-of-correctness-of-certificate-over-non-complaince-with-registration-of-births-and-deaths-act-537624
-
-[Read on Telegram](https://t.me/livelawindia/112784)
-
----
 ### 2026-06-12T12:07:12+00:00
 Delhi High Court Issues Notice On Actor Salman Khan's Plea Against Release Of 'Kala Hiran' Movie
 https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-actor-salman-khan-kala-hiran-movie-537664
@@ -142,5 +121,26 @@ Right To Liberty Not Absolute, Bail Cannot Be Granted If Accused Has Serious Cri
 https://www.livelaw.in/high-court/bombay-high-court/right-to-liberty-not-absolute-bail-cannot-be-granted-if-accused-has-serious-criminal-antecedents-bombay-high-court-537681
 
 [Read on Telegram](https://t.me/livelawindia/112801)
+
+---
+### 2026-06-13T00:49:15+00:00
+LiveLaw Celebrates 13 Years With Special Anniversary Subscription Offers
+https://www.livelaw.in/top-stories/livelaw-celebrates-13-years-with-special-anniversary-subscription-offers-537697
+
+[Read on Telegram](https://t.me/livelawindia/112802)
+
+---
+### 2026-06-13T04:01:45+00:00
+Are TMC Rebel MPs Liable To Be Disqualified Under Anti-Defection Law?
+https://www.livelaw.in/articles/are-tmc-rebel-mps-liable-to-be-disqualified-under-anti-defection-law-537699
+
+[Read on Telegram](https://t.me/livelawindia/112803)
+
+---
+### 2026-06-13T04:04:45+00:00
+HP High Court Affirms 2-Year Service Extension For Indira Gandhi NSS National Awardee Teachers In Himachal Pradesh
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-affirms-2-year-service-extension-for-indira-gandhi-nss-national-awardee-teachers-in-himachal-pradesh-537701
+
+[Read on Telegram](https://t.me/livelawindia/112804)
 
 ---
