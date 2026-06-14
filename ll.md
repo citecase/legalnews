@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-13T11:02:24+00:00*
+*Last Updated: 2026-06-13T11:05:05+00:00*
 
 ---
 
-### 2026-06-13T11:02:24+00:00
-Dismissal Is Severest Punishment; Must Be Imposed Only For Grave Misconduct : Supreme Court
-https://www.livelaw.in/labour-service/dismissal-is-severest-punishment-must-be-imposed-only-for-grave-misconduct-supreme-court-537751
-
-[Read on Telegram](https://t.me/livelawindia/112828)
-
----
 ### 2026-06-13T11:05:05+00:00
 2026 LiveLaw (SC) 624 | SUREKHA DOMAJI BELE v EXECUTIVE ENGINEER, TESTING DIVISION, MSEDCL|
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-624-surekha-domaji-bele-v-executive-engineer-testing-division-msedcl-537752
@@ -142,5 +135,12 @@ Whether Draft AI Rules Apply To High Courts ?
 https://www.livelaw.in/articles/draft-ai-rules-apply-high-courts-537713
 
 [Read on Telegram](https://t.me/livelawindia/112847)
+
+---
+### 2026-06-14T14:09:16+00:00
+Himachal Pradesh High Court Takes Note Of News Report On 'Rave Party' In Kasol, Orders Spot Inspection
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-media-report-kasol-rave-party-spot-inspection-report-537780
+
+[Read on Telegram](https://t.me/livelawindia/112848)
 
 ---
