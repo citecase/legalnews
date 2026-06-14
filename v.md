@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-14T13:32:24+00:00*
+*Last Updated: 2026-06-14T15:02:26+00:00*
+
+---
+
+### 2026-06-14T15:02:26+00:00
+Perambalur District Recruitment 2026 Invites Applications For The Post Of Law Officers
+https://www.verdictum.in/job-updates/perambalur-district-recruitment-1615873
+
+[Source Link](https://t.me/verdictumlegalupdates/27545)
 
 ---
 
@@ -153,14 +161,6 @@ Chief Law Officer Vacancy At Pune People's Co-operative Bank Ltd.
 https://www.verdictum.in/job-updates/pune-peoples-co-operative-bank-ltd-1615810
 
 [Source Link](https://t.me/verdictumlegalupdates/27526)
-
----
-
-### 2026-06-12T14:52:32+00:00
-Separate Application U/s. 25 HMA Mandatory For Seeking Permanent Alimony: Telangana High Court Declines Relief In Absence Of Plea
-https://www.verdictum.in/telangana-high-court/abc-v-xyz-permanent-alimony-section-25-hindu-marriage-act-divorce-separate-plea-1615809
-
-[Source Link](https://t.me/verdictumlegalupdates/27525)
 
 ---
 
