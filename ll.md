@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-13T07:57:24+00:00*
+*Last Updated: 2026-06-13T11:02:24+00:00*
 
 ---
 
-### 2026-06-13T07:57:24+00:00
-Jharkhand High Court Closes PIL Seeking Health Insurance For Advocates After State Assures Annual Premium Of ₹6000
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-pil-seeking-health-insurance-advocates-state-assures-annual-premium-537687
-
-[Read on Telegram](https://t.me/livelawindia/112822)
-
----
-### 2026-06-13T08:19:24+00:00
-Sexual Offence Victims Take Time To Muster Courage, Fear 'Uncomfortable Questions' : Bombay High Court Refuses To Quash  FIR For Delay
-https://www.livelaw.in/high-court/bombay-high-court/sexual-offence-victims-take-time-to-muster-courage-fear-uncomfortable-questions-bombay-high-court-refuses-to-quash-fir-for-delay-537730
-
-[Read on Telegram](https://t.me/livelawindia/112823)
-
----
-### 2026-06-13T09:09:14+00:00
-Woman Occupies District Judge's Chair In Varanasi Court, Attempts To Conduct Hearings; Removed By Police
-https://www.livelaw.in/news-updates/woman-occupies-district-judges-chair-in-varanasi-court-attempts-to-conduct-hearings-removed-by-police-537737
-
-[Read on Telegram](https://t.me/livelawindia/112824)
-
----
-### 2026-06-13T09:14:34+00:00
-MP High Court Grants Bail To Man Accused Of Videographing Women In Maternity Ward, Says State Could Not Show Incriminating Material
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-bail-to-man-videographing-maternitylabour-ward-women-537740
-
-[Read on Telegram](https://t.me/livelawindia/112825)
-
----
-### 2026-06-13T09:32:24+00:00
-Latent Bars To Justice: An Empirical Analysis Of Bail
-https://www.livelaw.in/articles/latent-bars-justice-empirical-analysis-bail-537650
-
-[Read on Telegram](https://t.me/livelawindia/112826)
-
----
-### 2026-06-13T10:32:14+00:00
-Jharkhand HC Directs Circle Officers To Verify, Digitally Authenticate Online Land Records To Eliminate Mismatches With Physical Registers
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-circle-officers-digitally-verify-online-land-records-537688
-
-[Read on Telegram](https://t.me/livelawindia/112827)
-
----
 ### 2026-06-13T11:02:24+00:00
 Dismissal Is Severest Punishment; Must Be Imposed Only For Grave Misconduct : Supreme Court
 https://www.livelaw.in/labour-service/dismissal-is-severest-punishment-must-be-imposed-only-for-grave-misconduct-supreme-court-537751
@@ -142,5 +100,47 @@ Bharatiya Nagarik Suraksha Sanhita (BNSS) And Bhartiya Nyaya Sanhita (BNS) Month
 https://www.livelaw.in/digests/monthly-digests/bnss-bns-monthly-digest-may-2026-537770
 
 [Read on Telegram](https://t.me/livelawindia/112841)
+
+---
+### 2026-06-14T05:11:03+00:00
+Compliance Analyst Vacancy At CapFloat Financial Service Pvt Limited
+https://www.livelaw.in/job-updates/compliance-analyst-vacancy-at-capfloat-financial-service-pvt-limited-537773
+
+[Read on Telegram](https://t.me/livelawindia/112842)
+
+---
+### 2026-06-14T05:11:43+00:00
+Meenakshi Natarajan Case : Was Rejection Of Nomination Valid? Law On Disclosure Of Criminal Antecedents Explained
+https://www.livelaw.in/top-stories/meenakshi-natarajan-case-law-on-disclosure-of-criminal-antenendents-returning-officer-537774
+
+[Read on Telegram](https://t.me/livelawindia/112843)
+
+---
+### 2026-06-14T08:44:43+00:00
+Counsel Vacancy At Aditya Birla Capital Limited [Apply Now]
+https://www.livelaw.in/job-updates/counsel-vacancy-at-aditya-birla-capital-limited-537775
+
+[Read on Telegram](https://t.me/livelawindia/112844)
+
+---
+### 2026-06-14T08:46:43+00:00
+Deputy General Manager (Chief Law Officer) Vacancy At Pune People's Co-operative Bank Limited
+https://www.livelaw.in/job-updates/deputy-general-manager-chief-law-officer-vacancy-at-pune-peoples-co-operative-bank-limited-537776
+
+[Read on Telegram](https://t.me/livelawindia/112845)
+
+---
+### 2026-06-14T08:48:03+00:00
+Law Officer Vacancy At All India Institute Of Medical Sciences, Deoghar
+https://www.livelaw.in/job-updates/law-officer-vacancy-at-all-india-institute-of-medical-sciences-deoghar-537777
+
+[Read on Telegram](https://t.me/livelawindia/112846)
+
+---
+### 2026-06-14T09:32:05+00:00
+Whether Draft AI Rules Apply To High Courts ?
+https://www.livelaw.in/articles/draft-ai-rules-apply-high-courts-537713
+
+[Read on Telegram](https://t.me/livelawindia/112847)
 
 ---
