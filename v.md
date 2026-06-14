@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-14T04:32:25+00:00*
+*Last Updated: 2026-06-14T09:02:40+00:00*
+
+---
+
+### 2026-06-14T09:02:40+00:00
+Delay Alone Cannot Be Ground To Quash Criminal Cases Alleging Sexual Offence Against Women: Bombay High Court
+https://www.verdictum.in/bombay-high-court/nandakumar-sukumar-panicker-v-state-of-maharashtra-2026bhc-as23432-db-delay-alone-cannot-quash-sexual-offence-cases-1615871
+
+[Source Link](https://t.me/verdictumlegalupdates/27541)
+
+---
+
+### 2026-06-14T07:33:18+00:00
+Liberty Must Give Way When It Threatens Societies' Collective Interests: Bombay High Court Denies Bail To History Sheeter Having Serious Criminal Antecedents
+https://www.verdictum.in/bombay-high-court/2026bhcnag7555-swapnil-v-state-of-maharashtra-1615870
+
+[Source Link](https://t.me/verdictumlegalupdates/27540)
+
+---
+
+### 2026-06-14T06:02:37+00:00
+Dismissal Of Charge Sheet By Criminal Court Removes Basis For Withholding Retiral Benefits: J&K And Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/vikar-mustafa-shonthu-v-union-territory-of-jk-and-others-retiral-benefits-1615869
+
+[Source Link](https://t.me/verdictumlegalupdates/27539)
 
 ---
 
@@ -137,30 +161,6 @@ Recent Election Shows People Can Vote Without Considering Caste; Now State Must 
 https://www.verdictum.in/madras-high-court/tamil-nadu-assembly-elections-people-can-vote-without-considering-caste-1615806
 
 [Source Link](https://t.me/verdictumlegalupdates/27522)
-
----
-
-### 2026-06-12T12:12:50+00:00
-Supreme Court Asks State Of UP & Centre To Conclude Disciplinary Proceedings Against Ex-IPS Officer Amitabh Thakur Within 6 Months
-https://www.verdictum.in/supreme-court/up-centre-to-conclude-disciplinary-proceedings-against-ex-ips-officer-amitabh-thakur-within-6-months-1615803
-
-[Source Link](https://t.me/verdictumlegalupdates/27521)
-
----
-
-### 2026-06-12T11:32:28+00:00
-“Judicial Directions Not A Burden To Be Resisted”: Supreme Court Imposes Costs On Uttar Pradesh Government For 13-Year Delay In Compliance
-https://www.verdictum.in/supreme-court/reena-kumari-ors-v-praveer-kumar-ors-2026-insc-642-non-compliance-1615802
-
-[Source Link](https://t.me/verdictumlegalupdates/27520)
-
----
-
-### 2026-06-12T10:52:37+00:00
-Rule 23(1) Of Haryana Civil Services Rules Applies To Compassionate Financial Assistance & Not Compassionate Appointment: Supreme Court
-https://www.verdictum.in/supreme-court/2026-insc-640-atul-chauhan-v-state-of-haryana-1615801
-
-[Source Link](https://t.me/verdictumlegalupdates/27519)
 
 ---
 
