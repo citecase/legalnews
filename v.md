@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-13T14:32:56+00:00*
+*Last Updated: 2026-06-14T04:32:25+00:00*
+
+---
+
+### 2026-06-14T04:32:25+00:00
+Criminal Law Cannot Be Set In Motion Against Every Husband’s Relative Merely Due To Matrimonial Discord: Madras High Court Quashes Case U/S 498A IPC Against In-Laws
+https://www.verdictum.in/madras-high-court/x-v-the-state-of-tamil-nadu-crlopmdno2451-of-2024-every-husbands-relative-merely-due-to-matrimonial-discord-1615868
+
+[Source Link](https://t.me/verdictumlegalupdates/27538)
 
 ---
 
@@ -153,14 +161,6 @@ Rule 23(1) Of Haryana Civil Services Rules Applies To Compassionate Financial As
 https://www.verdictum.in/supreme-court/2026-insc-640-atul-chauhan-v-state-of-haryana-1615801
 
 [Source Link](https://t.me/verdictumlegalupdates/27519)
-
----
-
-### 2026-06-12T10:11:54+00:00
-Right To Advance Oral Arguments U/S 234 CrPC A Fundamental Right; Trial Court Must Appoint Amicus If Defence Counsel Fails To Argue: Madras High Court
-https://www.verdictum.in/madras-high-court/chinnavan-govindaraj-anr-v-state-section-234-criminal-procedure-1615800
-
-[Source Link](https://t.me/verdictumlegalupdates/27518)
 
 ---
 
