@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-13T11:05:05+00:00*
+*Last Updated: 2026-06-13T11:18:44+00:00*
 
 ---
 
-### 2026-06-13T11:05:05+00:00
-2026 LiveLaw (SC) 624 | SUREKHA DOMAJI BELE v EXECUTIVE ENGINEER, TESTING DIVISION, MSEDCL|
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-624-surekha-domaji-bele-v-executive-engineer-testing-division-msedcl-537752
-
-[Read on Telegram](https://t.me/livelawindia/112829)
-
----
 ### 2026-06-13T11:18:44+00:00
 'We Can't Be Mute Spectator In Matters Of Voiceless Animals': Supreme Court Orders Protection Of Kerala's Tallest Elephant
 https://www.livelaw.in/top-stories/we-cant-be-mute-spectator-in-matters-of-voiceless-animals-supreme-court-orders-protection-of-keralas-tallest-elephant-537754
@@ -142,5 +135,12 @@ Himachal Pradesh High Court Takes Note Of News Report On 'Rave Party' In Kasol, 
 https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-media-report-kasol-rave-party-spot-inspection-report-537780
 
 [Read on Telegram](https://t.me/livelawindia/112848)
+
+---
+### 2026-06-14T14:32:46+00:00
+Prajwala's Consent Is Sovereign Until Someone Doubts It
+https://www.livelaw.in/lawschool/articles/prajwala-consent-sovereign-537714
+
+[Read on Telegram](https://t.me/livelawindia/112849)
 
 ---
