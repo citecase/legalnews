@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-14T09:02:40+00:00*
+*Last Updated: 2026-06-14T13:32:24+00:00*
+
+---
+
+### 2026-06-14T13:32:24+00:00
+Punishment Of Pension Reduction Disproportionate When Incident Is Alleged Against Employee Just Before Retirement: Kerala High Court Relief To Retired Post Master
+https://www.verdictum.in/kerala-high-court/ek-narayanan-v-union-of-india-2026ker37705-punishment-pension-1615905
+
+[Source Link](https://t.me/verdictumlegalupdates/27544)
+
+---
+
+### 2026-06-14T12:03:03+00:00
+Jharkhand High Court Mandates Digital Signatures Of Circle Officers To Verify Online Land Records, Orders Eradication Of Data Entry Discrepancies
+https://www.verdictum.in/jharkhand-high-court/2026-jhhc-16661-ram-prakash-bhagat-v-the-state-of-jharkhand-1615879
+
+[Source Link](https://t.me/verdictumlegalupdates/27543)
+
+---
+
+### 2026-06-14T10:33:01+00:00
+Action Actuated By Malafide At Many Levels: Patna High Court Quashes Summoning Order U/S. 319 CrPC
+https://www.verdictum.in/patna-high-court/slams-trial-judge-accused-bribery-quashes-summoning-order-corruption-1615872
+
+[Source Link](https://t.me/verdictumlegalupdates/27542)
 
 ---
 
@@ -137,30 +161,6 @@ Separate Application U/s. 25 HMA Mandatory For Seeking Permanent Alimony: Telang
 https://www.verdictum.in/telangana-high-court/abc-v-xyz-permanent-alimony-section-25-hindu-marriage-act-divorce-separate-plea-1615809
 
 [Source Link](https://t.me/verdictumlegalupdates/27525)
-
----
-
-### 2026-06-12T14:12:18+00:00
-Reproductive Choice Includes Right To Procreate And Not To Procreate: Karnataka High Court Allows Termination Of Foetus With Brain Abnormalities
-https://www.verdictum.in/karnataka-high-court/xxx-v-state-of-karnataka-anr-2026khc25550-medical-termination-of-pregnancy-1615808
-
-[Source Link](https://t.me/verdictumlegalupdates/27524)
-
----
-
-### 2026-06-12T13:33:14+00:00
-“Shocking State Of Affairs” : Allahabad High Court Orders ₹2L Compensation For 8-Day Illegal Detention, Directs Recovery From Police Officer
-https://www.verdictum.in/allahabad-high-court/mansoor-ahmad-lallu-v-state-of-up-habeas-corpus-writ-petition-no-317-of-2026-2-lakh-compensation-illegal-detention-prayagraj-commissionerate-1615807
-
-[Source Link](https://t.me/verdictumlegalupdates/27523)
-
----
-
-### 2026-06-12T12:52:52+00:00
-Recent Election Shows People Can Vote Without Considering Caste; Now State Must Lead Drive To Eradicate It From Their Minds: Madras HC
-https://www.verdictum.in/madras-high-court/tamil-nadu-assembly-elections-people-can-vote-without-considering-caste-1615806
-
-[Source Link](https://t.me/verdictumlegalupdates/27522)
 
 ---
 
