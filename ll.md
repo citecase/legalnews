@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-13T07:12:54+00:00*
+*Last Updated: 2026-06-13T07:57:24+00:00*
 
 ---
 
-### 2026-06-13T07:12:54+00:00
-Umar Khalid, Sharjeel Imam Move Court Seeking Bail In Delhi Riots Larger Conspiracy Case
-https://www.livelaw.in/news-updates/umar-khalid-sharjeel-imam-move-court-seeking-bail-in-delhi-riots-larger-conspiracy-case-537719
-
-[Read on Telegram](https://t.me/livelawindia/112819)
-
----
-### 2026-06-13T07:44:54+00:00
-PIL In Allahabad High Court Seeks CBI Probe Into Alleged Embezzlement Of Ayodhya Ram Mandir Donation Funds
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-ayodhya-ram-mandir-donation-pil-cbi-embezzlement-trust-employees-537728
-
-[Read on Telegram](https://t.me/livelawindia/112820)
-
----
-### 2026-06-13T07:45:34+00:00
-31 Yrs On Rajasthan HC Grants Disability Pension To Ex-Sepoy; Says Army Didn't Conduct Medical Exam Or Disclose Disease In Discharge Order
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-exsepoy-disability-pension-battle-army-serious-lapse-537729
-
-[Read on Telegram](https://t.me/livelawindia/112821)
-
----
 ### 2026-06-13T07:57:24+00:00
 Jharkhand High Court Closes PIL Seeking Health Insurance For Advocates After State Assures Annual Premium Of ₹6000
 https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-pil-seeking-health-insurance-advocates-state-assures-annual-premium-537687
@@ -142,5 +121,26 @@ https://www.livelaw.in/high-court/calcutta-high-court/post-mortem-report-must-pr
 https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-ldc-posted-defense-csd-stores-transferred-administrative-wing-537747
 
 [Read on Telegram](https://t.me/livelawindia/112838)
+
+---
+### 2026-06-14T02:55:33+00:00
+'Extreme Brutality': MP Court Gives Life Sentence To 7 Cow Vigilantes In 2022 Mob Lynching Case
+https://www.livelaw.in/news-updates/extreme-brutality-mp-court-gives-life-sentence-to-7-cow-vigilantes-in-2022-mob-lynching-case-537771
+
+[Read on Telegram](https://t.me/livelawindia/112839)
+
+---
+### 2026-06-14T04:32:53+00:00
+Need For Thermal And Ergonomic Mandates In India's New Labour Codes
+https://www.livelaw.in/articles/thermal-ergonomic-mandates-new-labour-codes-537712
+
+[Read on Telegram](https://t.me/livelawindia/112840)
+
+---
+### 2026-06-14T04:33:03+00:00
+Bharatiya Nagarik Suraksha Sanhita (BNSS) And Bhartiya Nyaya Sanhita (BNS) Monthly Digest: May 2026
+https://www.livelaw.in/digests/monthly-digests/bnss-bns-monthly-digest-may-2026-537770
+
+[Read on Telegram](https://t.me/livelawindia/112841)
 
 ---
