@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-13T14:06:37+00:00*
+*Last Updated: 2026-06-15T07:28:50+00:00*
 
 ---
 
-### 2026-06-13T14:06:37+00:00
-'Revision Power Can't Be Exercised Suo Motu': Calcutta HC Reinstates SSB Constable Dismissed After Punishment Was Reopened
-https://www.livelaw.in/high-court/calcutta-high-court/revision-power-cant-be-exercised-suo-motu-calcutta-hc-reinstates-ssb-constable-dismissed-after-punishment-was-reopened-537762
+### 2026-06-15T07:28:50+00:00
+Supreme Court Issues Notice On Plea Challenging Re-Appointment Of Bihar Minster Deepak Prakash Without Election As MLA
+https://www.livelaw.in/top-stories/supreme-court-issues-notice-on-plea-challenging-re-appointment-of-bihar-minster-deepak-prakash-without-election-as-mla-537815
 
-[Read on Telegram](https://t.me/livelawindia/112834)
-
----
-### 2026-06-13T14:32:16+00:00
-A Successful Resolution Applicant Cannot Escape Through A 'Conditional' Letter Of Intent
-https://www.livelaw.in/articles/successful-resolution-applicant-escape-conditional-letter-intent-537651
-
-[Read on Telegram](https://t.me/livelawindia/112835)
+[Read on Telegram](https://t.me/livelawindia/112876)
 
 ---
-### 2026-06-13T14:53:06+00:00
-'Gross Abuse Of Law': Rajasthan High Court Sets Aside Revenue Board's Order Directing Impleadment Of Party In Absence Of Prayer
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-slams-revenue-board-exparte-impleadment-order-537744
+### 2026-06-15T07:32:30+00:00
+Madhya Pradesh High Court Weekly Roundup: June 08 to June 14, 2026
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-weekly-digest-june-8-to-june-14-2026-537809
 
-[Read on Telegram](https://t.me/livelawindia/112836)
-
----
-### 2026-06-13T15:02:26+00:00
-Post-Mortem Report Must Prevail Over Presumptions On Age In Motor Accident Claims: Calcutta HC Enhances Compensation By ₹13.8 Lakh
-https://www.livelaw.in/high-court/calcutta-high-court/post-mortem-report-must-prevail-over-presumptions-on-age-in-motor-accident-claims-calcutta-hc-enhances-compensation-by-138-lakh-537763
-
-[Read on Telegram](https://t.me/livelawindia/112837)
+[Read on Telegram](https://t.me/livelawindia/112877)
 
 ---
-### 2026-06-13T15:02:46+00:00
-'No Mala Fides Shown In Order': Rajasthan High Court Refuses To Quash Clerk's Transfer From Defence Canteen Stores Dept To Head Office
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-ldc-posted-defense-csd-stores-transferred-administrative-wing-537747
+### 2026-06-15T07:40:10+00:00
+RTI Activism Has Become New Business, Says Supreme Court Denying Bail
+https://www.livelaw.in/top-stories/rti-activism-has-become-new-business-says-supreme-court-denying-bail-537817
 
-[Read on Telegram](https://t.me/livelawindia/112838)
-
----
-### 2026-06-14T02:55:33+00:00
-'Extreme Brutality': MP Court Gives Life Sentence To 7 Cow Vigilantes In 2022 Mob Lynching Case
-https://www.livelaw.in/news-updates/extreme-brutality-mp-court-gives-life-sentence-to-7-cow-vigilantes-in-2022-mob-lynching-case-537771
-
-[Read on Telegram](https://t.me/livelawindia/112839)
+[Read on Telegram](https://t.me/livelawindia/112878)
 
 ---
-### 2026-06-14T04:32:53+00:00
-Need For Thermal And Ergonomic Mandates In India's New Labour Codes
-https://www.livelaw.in/articles/thermal-ergonomic-mandates-new-labour-codes-537712
+### 2026-06-15T07:48:10+00:00
+Kerala High Court Judge Recuses From Hearing Plea Against 'Kerala Story 2' Certification
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kerala-story-2-writ-petition-537816
 
-[Read on Telegram](https://t.me/livelawindia/112840)
-
----
-### 2026-06-14T04:33:03+00:00
-Bharatiya Nagarik Suraksha Sanhita (BNSS) And Bhartiya Nyaya Sanhita (BNS) Monthly Digest: May 2026
-https://www.livelaw.in/digests/monthly-digests/bnss-bns-monthly-digest-may-2026-537770
-
-[Read on Telegram](https://t.me/livelawindia/112841)
+[Read on Telegram](https://t.me/livelawindia/112879)
 
 ---
-### 2026-06-14T05:11:03+00:00
-Compliance Analyst Vacancy At CapFloat Financial Service Pvt Limited
-https://www.livelaw.in/job-updates/compliance-analyst-vacancy-at-capfloat-financial-service-pvt-limited-537773
+### 2026-06-15T08:02:30+00:00
+Land Encroachment Case: Yusuf Pathan Seeks Time From Gujarat High Court To Pursue Plot Claim Under State Policy
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-yusuf-pathan-vadodara-encroachment-state-537820
 
-[Read on Telegram](https://t.me/livelawindia/112842)
-
----
-### 2026-06-14T05:11:43+00:00
-Meenakshi Natarajan Case : Was Rejection Of Nomination Valid? Law On Disclosure Of Criminal Antecedents Explained
-https://www.livelaw.in/top-stories/meenakshi-natarajan-case-law-on-disclosure-of-criminal-antenendents-returning-officer-537774
-
-[Read on Telegram](https://t.me/livelawindia/112843)
+[Read on Telegram](https://t.me/livelawindia/112880)
 
 ---
-### 2026-06-14T08:44:43+00:00
-Counsel Vacancy At Aditya Birla Capital Limited [Apply Now]
-https://www.livelaw.in/job-updates/counsel-vacancy-at-aditya-birla-capital-limited-537775
+### 2026-06-15T08:18:20+00:00
+Can A Person Be Jailed For More Than 6 Months For Non-Payment Of Fine In Cheque Bounce Case? Karnataka High Court Explains
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-releases-accused-jailed-6-months-non-payment-fine-537818
 
-[Read on Telegram](https://t.me/livelawindia/112844)
-
----
-### 2026-06-14T08:46:43+00:00
-Deputy General Manager (Chief Law Officer) Vacancy At Pune People's Co-operative Bank Limited
-https://www.livelaw.in/job-updates/deputy-general-manager-chief-law-officer-vacancy-at-pune-peoples-co-operative-bank-limited-537776
-
-[Read on Telegram](https://t.me/livelawindia/112845)
+[Read on Telegram](https://t.me/livelawindia/112881)
 
 ---
-### 2026-06-14T08:48:03+00:00
-Law Officer Vacancy At All India Institute Of Medical Sciences, Deoghar
-https://www.livelaw.in/job-updates/law-officer-vacancy-at-all-india-institute-of-medical-sciences-deoghar-537777
+### 2026-06-15T09:24:15+00:00
+Safe Kerala Project: High Court Seeks State's Response To Contractor's Plea Alleging Non-Payment For AI Traffic Cameras
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ai-traffic-camera-payment-537825
 
-[Read on Telegram](https://t.me/livelawindia/112846)
-
----
-### 2026-06-14T09:32:05+00:00
-Whether Draft AI Rules Apply To High Courts ?
-https://www.livelaw.in/articles/draft-ai-rules-apply-high-courts-537713
-
-[Read on Telegram](https://t.me/livelawindia/112847)
+[Read on Telegram](https://t.me/livelawindia/112882)
 
 ---
-### 2026-06-14T14:09:16+00:00
-Himachal Pradesh High Court Takes Note Of News Report On 'Rave Party' In Kasol, Orders Spot Inspection
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-media-report-kasol-rave-party-spot-inspection-report-537780
+### 2026-06-15T09:29:16+00:00
+Supreme Court Issues Notice On Plea Alleging Failure Of State Of Punjab To Implement RTE Act Provisions For EWS Admissions
+https://www.livelaw.in/top-stories/supreme-court-issues-notice-on-plea-alleging-failure-of-state-of-punjab-to-implement-rte-act-provisions-for-ews-admissions-537826
 
-[Read on Telegram](https://t.me/livelawindia/112848)
-
----
-### 2026-06-14T14:32:46+00:00
-Prajwala's Consent Is Sovereign Until Someone Doubts It
-https://www.livelaw.in/lawschool/articles/prajwala-consent-sovereign-537714
-
-[Read on Telegram](https://t.me/livelawindia/112849)
+[Read on Telegram](https://t.me/livelawindia/112883)
 
 ---
-### 2026-06-15T03:54:22+00:00
-Kaithal Consumer Commission Holds ICICI Bank Liable For Arbitrarily Imposing Lien On Customer's Savings Account Without Due Process
-https://www.livelaw.in/consumer-cases/kaithal-consumer-commission-holds-icici-bank-liable-for-arbitrarily-imposing-lien-on-customers-savings-account-without-due-process-537784
+### 2026-06-15T09:32:15+00:00
+Passport Impounding In Criminal And Matrimonial Cases: Legal Guide
+https://www.livelaw.in/know-the-law/passport-impounding-criminal-matrimonial-cases-legal-guide-537782
 
-[Read on Telegram](https://t.me/livelawindia/112850)
-
----
-### 2026-06-15T04:32:51+00:00
-Forget Me, Or Forget Me Not? Implementing Right To Be Forgotten
-https://www.livelaw.in/articles/implementing-right-to-be-forgotten-537781
-
-[Read on Telegram](https://t.me/livelawindia/112851)
+[Read on Telegram](https://t.me/livelawindia/112884)
 
 ---
-### 2026-06-15T04:39:11+00:00
-Orissa High Court Quashes Penalty Against Ex-Registrar (Judicial) Over Allegedly Missing File Pages, Finds No Evidence Of Malafide
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-annuls-disciplinary-action-exregistrar-judicial-misplacing-pages-administrative-file-537785
+### 2026-06-15T09:47:56+00:00
+Major Woman's Choice To Live With Partner Must Be Protected From External Forces: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/major-women-choice-to-live-with-partner-police-protection-537824
 
-[Read on Telegram](https://t.me/livelawindia/112852)
+[Read on Telegram](https://t.me/livelawindia/112885)
 
 ---
-### 2026-06-15T04:47:51+00:00
-Trial Court Can't Summon Doctor In Medical Negligence Case Without Awaiting Expert Opinion It Sought: Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-summoning-doctor-in-medical-negligence-case-without-awaiting-expert-opinion-is-perverse-537786
+### 2026-06-15T10:03:06+00:00
+Gujarat High Court Judge Recuses From Hearing St Xavier's College Plea Against Common Admission System
+https://www.livelaw.in/high-court/gujarat-high-court/st-xaviers-college-gujarat-common-admission-services-system-537828
 
-[Read on Telegram](https://t.me/livelawindia/112853)
+[Read on Telegram](https://t.me/livelawindia/112886)
+
+---
+### 2026-06-15T10:17:49+00:00
+Delay In Forming Apartment Associations Weaken Buyers' Rights; Occupying Flats Without OC Compounds Risks: Retd Justice Ashok Hinchigeri
+https://www.livelaw.in/news-updates/homebuyers-rights-against-developers-apartment-owners-association-occupancy-certificate-537832
+
+[Read on Telegram](https://t.me/livelawindia/112887)
+
+---
+### 2026-06-15T10:29:09+00:00
+Call For Contributing Authors For Book: 'Lex Indica: Critical Essays On Contemporary Law' : Register By June 21
+https://www.livelaw.in/lawschool/news/call-contributing-authors-book-lex-indica-critical-essays-contemporary-law-537833
+
+[Read on Telegram](https://t.me/livelawindia/112888)
+
+---
+### 2026-06-15T11:28:21+00:00
+Seven Advocates Sworn-In As Judges Of Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/seven-advocates-sworn-in-as-judges-of-patna-high-court-537838
+
+[Read on Telegram](https://t.me/livelawindia/112889)
+
+---
+### 2026-06-15T11:29:21+00:00
+Patna Court Grants Bail To Rival Educator Raushan Anand Booked Over Vandalism Of Khan Sir's Coaching Institute
+https://www.livelaw.in/news-updates/patna-court-rival-educator-raushan-anand-vandalism-khan-sirs-coaching-institute-537839
+
+[Read on Telegram](https://t.me/livelawindia/112890)
+
+---
+### 2026-06-15T11:46:01+00:00
+[Advertisement] Register Now | Two-Credit/Certificate Course On Legal Tech & Digital Dispute Resolution | Apply Before 15 June 2026 | Limited Seats
+https://www.livelaw.in/lawschool/diploma-certificate-courses/register-now-two-creditcertificate-course-on-legal-tech-digital-dispute-resolution-apply-before-15-june-2026-limited-seats-537842
+
+[Read on Telegram](https://t.me/livelawindia/112891)
+
+---
+### 2026-06-15T11:50:21+00:00
+Bombay High Court Directs State To Ensure Protection For Justice Gautam Patel Facing Threats Over Dawoodi Bohra Succession Verdict
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-justice-gautam-patel-protection-threat-dawoodi-bohra-case-537843
+
+[Read on Telegram](https://t.me/livelawindia/112892)
+
+---
+### 2026-06-15T11:59:01+00:00
+PIL Filed In Kerala High Court Challenging KSRTC's Free Bus Travel Scheme For Women, Transgender Persons
+https://www.livelaw.in/high-court/kerala-high-court/ksrtc-free-bus-travel-scheme-for-women-transgender-challenged-pil-537844
+
+[Read on Telegram](https://t.me/livelawindia/112893)
+
+---
+### 2026-06-15T12:09:31+00:00
+Cashew Corp Scam: Kerala High Court Dismisses Appeal By Industries Department Secretary, Asks Him To Appear Before Single Judge
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-cashew-corp-scam-secretary-contempt-appeal-dismissed-537847
+
+[Read on Telegram](https://t.me/livelawindia/112894)
+
+---
+### 2026-06-15T12:24:31+00:00
+One Land, One Heart: How Faith And Freedom United My India
+https://www.livelaw.in/articles/faith-freedom-united-oindia-537852
+
+[Read on Telegram](https://t.me/livelawindia/112895)
 
 ---
