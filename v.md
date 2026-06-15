@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-15T12:32:46+00:00*
+*Last Updated: 2026-06-15T16:23:06+00:00*
+
+---
+
+### 2026-06-15T16:23:06+00:00
+Law Officer Vacancy At Gujarat Panchayat Service Selection Board (GPSSB)
+https://www.verdictum.in/job-updates/gujarat-panchayat-service-selection-board-1615971
+
+[Source Link](https://t.me/verdictumlegalupdates/27568)
+
+---
+
+### 2026-06-15T15:52:45+00:00
+Jharkhand High Court Closes PIL Seeking Health Insurance For Advocates After State Assures Payment Of ₹6k Annual Premium Per Advocate
+https://www.verdictum.in/jharkhand-high-court/bidesh-kumar-dan-v-union-of-india-2026jhhc16211-db-health-insurance-advocates-1615981
+
+[Source Link](https://t.me/verdictumlegalupdates/27567)
+
+---
+
+### 2026-06-15T15:22:54+00:00
+Police Cannot Decide Job Suitability: Kerala High Court Quashes Adverse Verification Report Arising From Motor Vehicle Accident Case
+https://www.verdictum.in/kerala-high-court/2026-ker-36571-midhun-m-v-hindustan-latex-limited-lifecare-1615979
+
+[Source Link](https://t.me/verdictumlegalupdates/27566)
+
+---
+
+### 2026-06-15T14:52:32+00:00
+Once Man’s Right Is Terminated In His Sister’s Premises, His Wife’s Status Also Becomes No Better Than That Of Trespasser: Delhi High Court
+https://www.verdictum.in/delhi-high-court/shalu-v-meera-batra-2026dhc5085-man-right-terminated-sister-premises-wife-trespasser-1615978
+
+[Source Link](https://t.me/verdictumlegalupdates/27565)
+
+---
+
+### 2026-06-15T14:13:11+00:00
+Unsuccessful Party Cannot Seek Continuation Of Interim Arrangement Merely Because It Has Challenged Arbitral Award: Bombay High Court
+https://www.verdictum.in/bombay-high-court/oil-and-natural-gas-corporation-limited-v-swiber-offshore-construction-pte-limited-2026bhc-os13025-1615977
+
+[Source Link](https://t.me/verdictumlegalupdates/27564)
+
+---
+
+### 2026-06-15T13:32:49+00:00
+Findings Affecting Reputation Of Senior Judicial Officer Can't Rest On Rhetorical Inferences: Orissa High Court Grants Relief To Former Registrar
+https://www.verdictum.in/orissa-high-court/lalit-kumar-dash-v-state-of-orissa-ors-registrar-promotion-district-judge-1615970
+
+[Source Link](https://t.me/verdictumlegalupdates/27563)
+
+---
+
+### 2026-06-15T13:02:28+00:00
+Humanitarian Dimension Of Criminal Justice: Rajasthan High Court Suspends Life Sentence Of Convict Suffering From Guillain-Barré Syndrome
+https://www.verdictum.in/rajasthan-high-court/k-v-state-of-rajasthan-2026rj-jd27105-db-life-sentence-of-convict-suffering-from-guillain-barr-syndrome-1615969
+
+[Source Link](https://t.me/verdictumlegalupdates/27562)
 
 ---
 
@@ -105,62 +161,6 @@ Mere Defence That Cheques Were Misused Doesn’t Automatically Exclude Complaina
 https://www.verdictum.in/allahabad-high-court/rahul-yadav-v-state-of-up-2026ahc124646-accuseds-defence-complainant-compensation-ni-act-1615938
 
 [Source Link](https://t.me/verdictumlegalupdates/27549)
-
----
-
-### 2026-06-15T05:32:38+00:00
-Company Restructuring Disputes Cannot Be Decided Through Arbitration; NCLT Has Exclusive Jurisdiction: Kerala High Court
-https://www.verdictum.in/kerala-high-court/purushothaman-thitta-v-pothan-rajan-2026ker37218-nclt-exclusive-jurisdiction-companies-act-company-restructuring-1615931
-
-[Source Link](https://t.me/verdictumlegalupdates/27548)
-
----
-
-### 2026-06-15T05:03:56+00:00
-Sanction U/S.19 Of PC Act For Carrying Out Investigation Against MLAs Should Be Obtained From Speaker Of House Before Filing Of Charge-Sheet: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/abraham-tj-v-the-honble-speaker-2026khc28594-sanction-section-19-prevention-of-corruption-act-1615929
-
-[Source Link](https://t.me/verdictumlegalupdates/27547)
-
----
-
-### 2026-06-15T04:32:25+00:00
-Possibility Of Receiving Additional Freezing Requests From Investigating Agencies No Legal Basis For Freezing Amounts Not Covered By Existing Directions: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/madhu-v-the-indusind-bank-ltd-2026khc27735-additional-freezing-requests-directions-1615923
-
-[Source Link](https://t.me/verdictumlegalupdates/27546)
-
----
-
-### 2026-06-14T15:02:26+00:00
-Perambalur District Recruitment 2026 Invites Applications For The Post Of Law Officers
-https://www.verdictum.in/job-updates/perambalur-district-recruitment-1615873
-
-[Source Link](https://t.me/verdictumlegalupdates/27545)
-
----
-
-### 2026-06-14T13:32:24+00:00
-Punishment Of Pension Reduction Disproportionate When Incident Is Alleged Against Employee Just Before Retirement: Kerala High Court Relief To Retired Post Master
-https://www.verdictum.in/kerala-high-court/ek-narayanan-v-union-of-india-2026ker37705-punishment-pension-1615905
-
-[Source Link](https://t.me/verdictumlegalupdates/27544)
-
----
-
-### 2026-06-14T12:03:03+00:00
-Jharkhand High Court Mandates Digital Signatures Of Circle Officers To Verify Online Land Records, Orders Eradication Of Data Entry Discrepancies
-https://www.verdictum.in/jharkhand-high-court/2026-jhhc-16661-ram-prakash-bhagat-v-the-state-of-jharkhand-1615879
-
-[Source Link](https://t.me/verdictumlegalupdates/27543)
-
----
-
-### 2026-06-14T10:33:01+00:00
-Action Actuated By Malafide At Many Levels: Patna High Court Quashes Summoning Order U/S. 319 CrPC
-https://www.verdictum.in/patna-high-court/slams-trial-judge-accused-bribery-quashes-summoning-order-corruption-1615872
-
-[Source Link](https://t.me/verdictumlegalupdates/27542)
 
 ---
 
