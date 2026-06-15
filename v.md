@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-14T15:02:26+00:00*
+*Last Updated: 2026-06-15T05:32:38+00:00*
+
+---
+
+### 2026-06-15T05:32:38+00:00
+Company Restructuring Disputes Cannot Be Decided Through Arbitration; NCLT Has Exclusive Jurisdiction: Kerala High Court
+https://www.verdictum.in/kerala-high-court/purushothaman-thitta-v-pothan-rajan-2026ker37218-nclt-exclusive-jurisdiction-companies-act-company-restructuring-1615931
+
+[Source Link](https://t.me/verdictumlegalupdates/27548)
+
+---
+
+### 2026-06-15T05:03:56+00:00
+Sanction U/S.19 Of PC Act For Carrying Out Investigation Against MLAs Should Be Obtained From Speaker Of House Before Filing Of Charge-Sheet: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/abraham-tj-v-the-honble-speaker-2026khc28594-sanction-section-19-prevention-of-corruption-act-1615929
+
+[Source Link](https://t.me/verdictumlegalupdates/27547)
+
+---
+
+### 2026-06-15T04:32:25+00:00
+Possibility Of Receiving Additional Freezing Requests From Investigating Agencies No Legal Basis For Freezing Amounts Not Covered By Existing Directions: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/madhu-v-the-indusind-bank-ltd-2026khc27735-additional-freezing-requests-directions-1615923
+
+[Source Link](https://t.me/verdictumlegalupdates/27546)
 
 ---
 
@@ -137,30 +161,6 @@ Messages Prima Facie Affecting Public Harmony: Telangana High Court Refuses To Q
 https://www.verdictum.in/telangana-high-court/lakakula-ayappa-v-the-state-of-telangana-2023-scc-online-bom-1515-whatsapp-group-admin-objectionable-whatsapp-messages-1615842
 
 [Source Link](https://t.me/verdictumlegalupdates/27529)
-
----
-
-### 2026-06-13T05:32:23+00:00
-Repeated Defaults By Accused In Appearance & Permission Obtained To Travel Abroad Relevant Factors For Grant Of Interim Compensation U/S 143A NI Act: J&K And Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/mohammed-ashraf-mir-v-wazira-reshi-negotiable-instruments-act-section-143-1615840
-
-[Source Link](https://t.me/verdictumlegalupdates/27528)
-
----
-
-### 2026-06-13T04:33:12+00:00
-Complainant Must Prove Cheque Execution Through Person Having Direct Knowledge Of Transaction Before Availing NI Act Presumptions: Kerala High Court
-https://www.verdictum.in/kerala-high-court/shijosh-k-v-state-of-kerala-anr-2026ker40471-negotiable-instruments-1615817
-
-[Source Link](https://t.me/verdictumlegalupdates/27527)
-
----
-
-### 2026-06-12T16:02:16+00:00
-Chief Law Officer Vacancy At Pune People's Co-operative Bank Ltd.
-https://www.verdictum.in/job-updates/pune-peoples-co-operative-bank-ltd-1615810
-
-[Source Link](https://t.me/verdictumlegalupdates/27526)
 
 ---
 
