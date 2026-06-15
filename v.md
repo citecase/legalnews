@@ -1,6 +1,110 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-15T05:32:38+00:00*
+*Last Updated: 2026-06-15T12:32:46+00:00*
+
+---
+
+### 2026-06-15T12:32:46+00:00
+RTI Activism Has Become New Business, Yellow Journalism: Supreme Court While Refusing Anticipatory Bail To Activist
+https://www.verdictum.in/supreme-court/anticipatory-bail-to-activist-refused-1615967
+
+[Source Link](https://t.me/verdictumlegalupdates/27561)
+
+---
+
+### 2026-06-15T11:52:45+00:00
+Land Owner Entitled To Get Compensation Even For Area Of Service Road In Acquisition Matter: Bombay High Court
+https://www.verdictum.in/bombay-high-court/youvraj-v-the-national-highways-authority-of-india-2026bhc-aug22966-db-land-compensation-1615964
+
+[Source Link](https://t.me/verdictumlegalupdates/27560)
+
+---
+
+### 2026-06-15T11:02:44+00:00
+Supreme Court Issues Notice To Centre, Punjab On Plea Alleging Non-Implementation Of RTE Act In State
+https://www.verdictum.in/supreme-court/notice-to-centre-punjab-alleging-non-implementation-of-rte-act-in-state-1615963
+
+[Source Link](https://t.me/verdictumlegalupdates/27559)
+
+---
+
+### 2026-06-15T10:32:22+00:00
+Vehicle Carrying Illegal Forest Produce Need Not Be Seized On Government Land To Attract Confiscation Under Forest Act: Bombay High Court
+https://www.verdictum.in/bombay-high-court/mahendra-dharmaji-papal-v-state-of-maharashtra-ors-2026bhc-as22912-1615962
+
+[Source Link](https://t.me/verdictumlegalupdates/27558)
+
+---
+
+### 2026-06-15T10:02:41+00:00
+Ex Parte Interim Order Not Vulnerable Under Article 226(3) Of Constitution Where Party Was Served & Given Opportunity To Be Heard: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/bharat-kumar-choudhary-v-state-of-rajasthan-ors-2026rj-jd26988-wp-1615960
+
+[Source Link](https://t.me/verdictumlegalupdates/27557)
+
+---
+
+### 2026-06-15T09:32:29+00:00
+Supreme Court Seeks Responses From State On Plea Challenging Re-Appointment Of Deepak Prakash As Minister In Bihar
+https://www.verdictum.in/supreme-court/responses-from-state-on-plea-challenging-re-appointment-of-deepak-prakash-as-minister-in-bihar-1615961
+
+[Source Link](https://t.me/verdictumlegalupdates/27556)
+
+---
+
+### 2026-06-15T09:02:48+00:00
+Doctrine Of Joint Family Nucleus Or Spillover Can’t Apply Absent Proof Of Surplus Family Income: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/s-umesh-v-yellamma-ors-2026khc25907-joint-family-property-self-acquired-property-1615957
+
+[Source Link](https://t.me/verdictumlegalupdates/27555)
+
+---
+
+### 2026-06-15T08:32:26+00:00
+Supreme Court Issues Notice On Centre's Transfer Plea; Stays High Courts' Proceedings In Challenges To Transgender Rights Amendment Act
+https://www.verdictum.in/supreme-court/stays-challenges-transgender-rights-amendment-act-high-courts-1615953
+
+[Source Link](https://t.me/verdictumlegalupdates/27554)
+
+---
+
+### 2026-06-15T08:02:45+00:00
+Allegations Of Demand & Acceptance Of Illegal Gratification Can’t Be Lightly Interdicted At Threshold When Circumstances Warrant Thorough Judicial Examination: Orissa High Court
+https://www.verdictum.in/orissa-high-court/akhaya-kumar-rout-v-state-of-odisha-vigilance-allegations-lllegal-gratification-judicial-exam-1615952
+
+[Source Link](https://t.me/verdictumlegalupdates/27553)
+
+---
+
+### 2026-06-15T07:33:04+00:00
+Concealment Of Foreign Court Orders: Delhi High Court Dismisses Mother's Habeas Corpus Plea For Child Suffering From ASD
+https://www.verdictum.in/delhi-high-court/2026-dhc-5093-db-somya-goel-v-the-state-of-nct-of-delhi-1615946
+
+[Source Link](https://t.me/verdictumlegalupdates/27552)
+
+---
+
+### 2026-06-15T07:02:22+00:00
+Postmortem Report On Deceased’s Age Can Be Relied On In Motor Accident Cases In Absence Of Any Unimpeachable Contrary Evidence: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/tara-sharma-and-ors-v-national-insurance-company-limited-postmortem-report-deceased-age-1615942
+
+[Source Link](https://t.me/verdictumlegalupdates/27551)
+
+---
+
+### 2026-06-15T06:32:21+00:00
+Weekly Overview| Supreme Court Judgments: June 09 – June 12, 2026
+https://www.verdictum.in/weekly-summary/supreme-court-judgments-june-09-june-12-2026-1615930
+
+[Source Link](https://t.me/verdictumlegalupdates/27550)
+
+---
+
+### 2026-06-15T06:03:20+00:00
+Mere Defence That Cheques Were Misused Doesn’t Automatically Exclude Complainant From Seeking Interim Compensation U/S.143A NI Act: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/rahul-yadav-v-state-of-up-2026ahc124646-accuseds-defence-complainant-compensation-ni-act-1615938
+
+[Source Link](https://t.me/verdictumlegalupdates/27549)
 
 ---
 
@@ -57,110 +161,6 @@ Action Actuated By Malafide At Many Levels: Patna High Court Quashes Summoning O
 https://www.verdictum.in/patna-high-court/slams-trial-judge-accused-bribery-quashes-summoning-order-corruption-1615872
 
 [Source Link](https://t.me/verdictumlegalupdates/27542)
-
----
-
-### 2026-06-14T09:02:40+00:00
-Delay Alone Cannot Be Ground To Quash Criminal Cases Alleging Sexual Offence Against Women: Bombay High Court
-https://www.verdictum.in/bombay-high-court/nandakumar-sukumar-panicker-v-state-of-maharashtra-2026bhc-as23432-db-delay-alone-cannot-quash-sexual-offence-cases-1615871
-
-[Source Link](https://t.me/verdictumlegalupdates/27541)
-
----
-
-### 2026-06-14T07:33:18+00:00
-Liberty Must Give Way When It Threatens Societies' Collective Interests: Bombay High Court Denies Bail To History Sheeter Having Serious Criminal Antecedents
-https://www.verdictum.in/bombay-high-court/2026bhcnag7555-swapnil-v-state-of-maharashtra-1615870
-
-[Source Link](https://t.me/verdictumlegalupdates/27540)
-
----
-
-### 2026-06-14T06:02:37+00:00
-Dismissal Of Charge Sheet By Criminal Court Removes Basis For Withholding Retiral Benefits: J&K And Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/vikar-mustafa-shonthu-v-union-territory-of-jk-and-others-retiral-benefits-1615869
-
-[Source Link](https://t.me/verdictumlegalupdates/27539)
-
----
-
-### 2026-06-14T04:32:25+00:00
-Criminal Law Cannot Be Set In Motion Against Every Husband’s Relative Merely Due To Matrimonial Discord: Madras High Court Quashes Case U/S 498A IPC Against In-Laws
-https://www.verdictum.in/madras-high-court/x-v-the-state-of-tamil-nadu-crlopmdno2451-of-2024-every-husbands-relative-merely-due-to-matrimonial-discord-1615868
-
-[Source Link](https://t.me/verdictumlegalupdates/27538)
-
----
-
-### 2026-06-13T14:32:56+00:00
-Assistant Legal Officer Vacancy At Karnataka Power Corporation (KPCL)
-https://www.verdictum.in/job-updates/karnataka-power-corporation-1615867
-
-[Source Link](https://t.me/verdictumlegalupdates/27537)
-
----
-
-### 2026-06-13T13:32:35+00:00
-Bombay High Court Directs Implementation Of Shetty Commission Pay Scale Recommendations For District Court Stenographers From 2003
-https://www.verdictum.in/bombay-high-court/rajendra-ramaji-dhawale-ors-v-state-of-maharashtra-ors-shetty-commission-1615866
-
-[Source Link](https://t.me/verdictumlegalupdates/27536)
-
----
-
-### 2026-06-13T12:33:13+00:00
-High Court Cannot Indirectly Neutralise A Lok Adalat Award In Collateral Proceedings Where Its Validity Is Not Under Challenge: Supreme Court
-https://www.verdictum.in/supreme-court/high-court-indirectly-neutralise-lok-adalat-award-collateral-proceedings-challenge-1615864
-
-[Source Link](https://t.me/verdictumlegalupdates/27535)
-
----
-
-### 2026-06-13T11:32:32+00:00
-Failed To Consider Video Conferencing Rules & Technological Infrastructure: Punjab & Haryana HC Allows 78-Year-Old Attesting Witness To A Will To Depose Through VC
-https://www.verdictum.in/punjab-and-haryana-high-court/ashwani-kumar-sharma-v-rama-rani-sharma-2026phhc084538-allows-78-year-old-attesting-witness-vc-1615863
-
-[Source Link](https://t.me/verdictumlegalupdates/27534)
-
----
-
-### 2026-06-13T10:32:30+00:00
-Several Judges Are Living In Rented Accommodation: Karnataka High Court Dismisses PIL Against Re-Allotment Of Land For Judges' Residences
-https://www.verdictum.in/karnataka-high-court/karnataka-veterinary-association-ors-v-the-state-of-karnataka-ors-1615861
-
-[Source Link](https://t.me/verdictumlegalupdates/27533)
-
----
-
-### 2026-06-13T09:33:09+00:00
-“Investigation By District Administration Would Be A Sham”: Allahabad High Court Orders Judicial Probe Into Death Of Advocate Jagrati Shukla At SRN Hospital
-https://www.verdictum.in/allahabad-high-court/amit-kumar-singh-sonu-singh-v-state-of-up-s-public-interest-litigation-pil-no-1493-of-2026-judicial-probe-into-death-of-advocate-jagrati-shukla-1615859
-
-[Source Link](https://t.me/verdictumlegalupdates/27532)
-
----
-
-### 2026-06-13T08:32:27+00:00
-Courts Must Monitor Investigation Under Section 156(3) CrPC & Call For Progress Reports If Delayed: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/2026rjjd23857-sumann-mundhara-v-state-of-rajasthan-1615857
-
-[Source Link](https://t.me/verdictumlegalupdates/27531)
-
----
-
-### 2026-06-13T07:33:06+00:00
-Mere Plea That Offending Vehicle Was Stationary Does Not Absolve Owner From Liability If Improper Parking Caused Accident: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/bajaj-allianz-general-insurance-co-ltd-v-saanvi-samanta-anr-2026chc-as841-1615846
-
-[Source Link](https://t.me/verdictumlegalupdates/27530)
-
----
-
-### 2026-06-13T06:32:44+00:00
-Messages Prima Facie Affecting Public Harmony: Telangana High Court Refuses To Quash Proceedings Against WhatsApp Group Admin
-https://www.verdictum.in/telangana-high-court/lakakula-ayappa-v-the-state-of-telangana-2023-scc-online-bom-1515-whatsapp-group-admin-objectionable-whatsapp-messages-1615842
-
-[Source Link](https://t.me/verdictumlegalupdates/27529)
 
 ---
 
