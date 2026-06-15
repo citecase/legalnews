@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-13T11:18:44+00:00*
+*Last Updated: 2026-06-13T14:06:37+00:00*
 
 ---
 
-### 2026-06-13T11:18:44+00:00
-'We Can't Be Mute Spectator In Matters Of Voiceless Animals': Supreme Court Orders Protection Of Kerala's Tallest Elephant
-https://www.livelaw.in/top-stories/we-cant-be-mute-spectator-in-matters-of-voiceless-animals-supreme-court-orders-protection-of-keralas-tallest-elephant-537754
-
-[Read on Telegram](https://t.me/livelawindia/112830)
-
----
-### 2026-06-13T11:20:44+00:00
-2026 LiveLaw (SC) 625 | Jayakrishna Menon v. Krishnankutty & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-625-jayakrishna-menon-v-krishnankutty-ors-537755
-
-[Read on Telegram](https://t.me/livelawindia/112831)
-
----
-### 2026-06-13T11:57:34+00:00
-Delhi Consumer Commission Holds Deccan Clap Liable For Deficiency In Service And Unilateral Revision Of Estimates
-https://www.livelaw.in/consumer-cases/delhi-consumer-commission-holds-deccan-clap-liable-for-deficiency-in-service-and-unilateral-revision-of-estimates-537756
-
-[Read on Telegram](https://t.me/livelawindia/112832)
-
----
-### 2026-06-13T12:32:17+00:00
-Dharmasthala Burial Case: Karnataka High Court Issues Notice On Ex-Sanitation Worker's Plea Seeking Expeditious Completion Of SIT Probe
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-seeking-final-report-alleged-masterminds-537761
-
-[Read on Telegram](https://t.me/livelawindia/112833)
-
----
 ### 2026-06-13T14:06:37+00:00
 'Revision Power Can't Be Exercised Suo Motu': Calcutta HC Reinstates SSB Constable Dismissed After Punishment Was Reopened
 https://www.livelaw.in/high-court/calcutta-high-court/revision-power-cant-be-exercised-suo-motu-calcutta-hc-reinstates-ssb-constable-dismissed-after-punishment-was-reopened-537762
@@ -142,5 +114,33 @@ Prajwala's Consent Is Sovereign Until Someone Doubts It
 https://www.livelaw.in/lawschool/articles/prajwala-consent-sovereign-537714
 
 [Read on Telegram](https://t.me/livelawindia/112849)
+
+---
+### 2026-06-15T03:54:22+00:00
+Kaithal Consumer Commission Holds ICICI Bank Liable For Arbitrarily Imposing Lien On Customer's Savings Account Without Due Process
+https://www.livelaw.in/consumer-cases/kaithal-consumer-commission-holds-icici-bank-liable-for-arbitrarily-imposing-lien-on-customers-savings-account-without-due-process-537784
+
+[Read on Telegram](https://t.me/livelawindia/112850)
+
+---
+### 2026-06-15T04:32:51+00:00
+Forget Me, Or Forget Me Not? Implementing Right To Be Forgotten
+https://www.livelaw.in/articles/implementing-right-to-be-forgotten-537781
+
+[Read on Telegram](https://t.me/livelawindia/112851)
+
+---
+### 2026-06-15T04:39:11+00:00
+Orissa High Court Quashes Penalty Against Ex-Registrar (Judicial) Over Allegedly Missing File Pages, Finds No Evidence Of Malafide
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-annuls-disciplinary-action-exregistrar-judicial-misplacing-pages-administrative-file-537785
+
+[Read on Telegram](https://t.me/livelawindia/112852)
+
+---
+### 2026-06-15T04:47:51+00:00
+Trial Court Can't Summon Doctor In Medical Negligence Case Without Awaiting Expert Opinion It Sought: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-summoning-doctor-in-medical-negligence-case-without-awaiting-expert-opinion-is-perverse-537786
+
+[Read on Telegram](https://t.me/livelawindia/112853)
 
 ---
