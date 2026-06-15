@@ -1,93 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-15T07:28:50+00:00*
+*Last Updated: 2026-06-15T10:29:09+00:00*
 
 ---
 
-### 2026-06-15T07:28:50+00:00
-Supreme Court Issues Notice On Plea Challenging Re-Appointment Of Bihar Minster Deepak Prakash Without Election As MLA
-https://www.livelaw.in/top-stories/supreme-court-issues-notice-on-plea-challenging-re-appointment-of-bihar-minster-deepak-prakash-without-election-as-mla-537815
-
-[Read on Telegram](https://t.me/livelawindia/112876)
-
----
-### 2026-06-15T07:32:30+00:00
-Madhya Pradesh High Court Weekly Roundup: June 08 to June 14, 2026
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-weekly-digest-june-8-to-june-14-2026-537809
-
-[Read on Telegram](https://t.me/livelawindia/112877)
-
----
-### 2026-06-15T07:40:10+00:00
-RTI Activism Has Become New Business, Says Supreme Court Denying Bail
-https://www.livelaw.in/top-stories/rti-activism-has-become-new-business-says-supreme-court-denying-bail-537817
-
-[Read on Telegram](https://t.me/livelawindia/112878)
-
----
-### 2026-06-15T07:48:10+00:00
-Kerala High Court Judge Recuses From Hearing Plea Against 'Kerala Story 2' Certification
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kerala-story-2-writ-petition-537816
-
-[Read on Telegram](https://t.me/livelawindia/112879)
-
----
-### 2026-06-15T08:02:30+00:00
-Land Encroachment Case: Yusuf Pathan Seeks Time From Gujarat High Court To Pursue Plot Claim Under State Policy
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-yusuf-pathan-vadodara-encroachment-state-537820
-
-[Read on Telegram](https://t.me/livelawindia/112880)
-
----
-### 2026-06-15T08:18:20+00:00
-Can A Person Be Jailed For More Than 6 Months For Non-Payment Of Fine In Cheque Bounce Case? Karnataka High Court Explains
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-releases-accused-jailed-6-months-non-payment-fine-537818
-
-[Read on Telegram](https://t.me/livelawindia/112881)
-
----
-### 2026-06-15T09:24:15+00:00
-Safe Kerala Project: High Court Seeks State's Response To Contractor's Plea Alleging Non-Payment For AI Traffic Cameras
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ai-traffic-camera-payment-537825
-
-[Read on Telegram](https://t.me/livelawindia/112882)
-
----
-### 2026-06-15T09:29:16+00:00
-Supreme Court Issues Notice On Plea Alleging Failure Of State Of Punjab To Implement RTE Act Provisions For EWS Admissions
-https://www.livelaw.in/top-stories/supreme-court-issues-notice-on-plea-alleging-failure-of-state-of-punjab-to-implement-rte-act-provisions-for-ews-admissions-537826
-
-[Read on Telegram](https://t.me/livelawindia/112883)
-
----
-### 2026-06-15T09:32:15+00:00
-Passport Impounding In Criminal And Matrimonial Cases: Legal Guide
-https://www.livelaw.in/know-the-law/passport-impounding-criminal-matrimonial-cases-legal-guide-537782
-
-[Read on Telegram](https://t.me/livelawindia/112884)
-
----
-### 2026-06-15T09:47:56+00:00
-Major Woman's Choice To Live With Partner Must Be Protected From External Forces: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/major-women-choice-to-live-with-partner-police-protection-537824
-
-[Read on Telegram](https://t.me/livelawindia/112885)
-
----
-### 2026-06-15T10:03:06+00:00
-Gujarat High Court Judge Recuses From Hearing St Xavier's College Plea Against Common Admission System
-https://www.livelaw.in/high-court/gujarat-high-court/st-xaviers-college-gujarat-common-admission-services-system-537828
-
-[Read on Telegram](https://t.me/livelawindia/112886)
-
----
-### 2026-06-15T10:17:49+00:00
-Delay In Forming Apartment Associations Weaken Buyers' Rights; Occupying Flats Without OC Compounds Risks: Retd Justice Ashok Hinchigeri
-https://www.livelaw.in/news-updates/homebuyers-rights-against-developers-apartment-owners-association-occupancy-certificate-537832
-
-[Read on Telegram](https://t.me/livelawindia/112887)
-
----
 ### 2026-06-15T10:29:09+00:00
 Call For Contributing Authors For Book: 'Lex Indica: Critical Essays On Contemporary Law' : Register By June 21
 https://www.livelaw.in/lawschool/news/call-contributing-authors-book-lex-indica-critical-essays-contemporary-law-537833
@@ -142,5 +58,89 @@ One Land, One Heart: How Faith And Freedom United My India
 https://www.livelaw.in/articles/faith-freedom-united-oindia-537852
 
 [Read on Telegram](https://t.me/livelawindia/112895)
+
+---
+### 2026-06-15T12:27:31+00:00
+Banks Can't Freeze Entire Account Anticipating Future Directions From Probe Agencies: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-banks-cannot-freeze-entire-amounts-account-537848
+
+[Read on Telegram](https://t.me/livelawindia/112896)
+
+---
+### 2026-06-15T12:53:11+00:00
+Can Cop's Life-Threatening Rescue Operation Be Dismissed As Routine Police Duty? MP High Court Explains
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/mp-police-promotion-rescue-in-life-threatening-operation-routine-duty-537857
+
+[Read on Telegram](https://t.me/livelawindia/112897)
+
+---
+### 2026-06-15T14:32:54+00:00
+DNA Tests, Privacy, And Paternity: Supreme Court Clarifies The Law
+https://www.livelaw.in/articles/dna-tests-privacy-paternity-supreme-court-clarifies-law-537783
+
+[Read on Telegram](https://t.me/livelawindia/112898)
+
+---
+### 2026-06-15T15:11:23+00:00
+Karnataka Govt Notifies Appointments For New Law Officers Including 13 Additional Advocate Generals
+https://www.livelaw.in/news-updates/karnataka-government-appoints-spp-addl-spp-advocate-generals-537877
+
+[Read on Telegram](https://t.me/livelawindia/112899)
+
+---
+### 2026-06-15T15:20:23+00:00
+MNLU Mumbai Invites Submissions For LHSS Legislative Review Competition 2026; Cash Prizes Up To ₹3,000
+https://www.livelaw.in/lawschool/competitions/mnlu-mumbai-invites-submissions-for-lhss-legislative-review-competition-2026-cash-prizes-up-to-3000-537878
+
+[Read on Telegram](https://t.me/livelawindia/112900)
+
+---
+### 2026-06-15T15:26:43+00:00
+Accused Must Rebut Presumption Under NI Act, Mere Claim Of 'Blank Security Cheque' Not Enough: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-accused-must-rebut-presumption-under-ni-act-mere-claim-of-blank-security-cheque-not-enough-537879
+
+[Read on Telegram](https://t.me/livelawindia/112901)
+
+---
+### 2026-06-15T15:29:03+00:00
+Madhya Pradesh State Legal Services Authority Organises 'Anugoonj', Statewide Legal Literacy Programme For Hearing And Speech-Impaired Community
+https://www.livelaw.in/news-updates/madhya-pradesh-state-legal-services-authority-organises-anugoonj-statewide-legal-literacy-programme-for-hearing-and-speech-impaired-community-537880
+
+[Read on Telegram](https://t.me/livelawindia/112902)
+
+---
+### 2026-06-15T15:29:14+00:00
+Savarkar Filed 10 Mercy Petitions Before British, Revolutionaries Like Bhagat Singh Refused To Compromise : Grandnephew Tells Pune Court
+https://www.livelaw.in/news-updates/savarkar-filed-10-mercy-petitions-before-british-revolutionaries-like-bhagat-singh-refused-to-compromise-grandnephew-tells-pune-court-537881
+
+[Read on Telegram](https://t.me/livelawindia/112903)
+
+---
+### 2026-06-15T15:34:46+00:00
+NEET- SS | Supreme Court Directs Tamil Nadu To Surrender 151 Vacant Super Speciality Medical Seats To All India Quota
+https://www.livelaw.in/top-stories/neet-ss-supreme-court-directs-tamil-nadu-to-surrender-151-vacant-super-speciality-medical-seats-to-all-india-quota-537884
+
+[Read on Telegram](https://t.me/livelawindia/112904)
+
+---
+### 2026-06-15T15:37:46+00:00
+DNLU Jabalpur Holds Third Convocation; Justice J.K. Maheshwari Calls On Graduates To Cultivate 'Constitutional Imagination'
+https://www.livelaw.in/lawschool/news/dnlu-jabalpur-holds-third-convocation-justice-jk-maheshwari-537885
+
+[Read on Telegram](https://t.me/livelawindia/112905)
+
+---
+### 2026-06-15T15:46:57+00:00
+Lokayukta Special Police Not 'Intelligence & Security Organisation' Exempt From RTI Act : Supreme Court
+https://www.livelaw.in/top-stories/lokayukta-special-police-not-intelligence-security-organisation-exempt-from-rti-act-supreme-court-537887
+
+[Read on Telegram](https://t.me/livelawindia/112906)
+
+---
+### 2026-06-15T15:48:57+00:00
+2026 LiveLaw (SC) 629 | Special Police Establishment v. Kamta Prasad Mishra & Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-629-special-police-establishment-v-kamta-prasad-mishra-ors-537888
+
+[Read on Telegram](https://t.me/livelawindia/112907)
 
 ---
