@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-16T11:32:43+00:00*
+*Last Updated: 2026-06-16T14:02:50+00:00*
+
+---
+
+### 2026-06-16T14:02:50+00:00
+Candidates Not At Fault: Supreme Court Orders TNPSC To Finalize Motor Vehicle Inspector Recruitment After Workshop Re-Verification
+https://www.verdictum.in/supreme-court/2026-insc-645-s-senthil-kumaran-bose-v-state-of-tamil-nadu-1616046
+
+[Source Link](https://t.me/verdictumlegalupdates/27584)
+
+---
+
+### 2026-06-16T13:32:29+00:00
+Mere Pendency Of Criminal Proceeding No Reason For Withholding Of Final MBBS Pass Certificate: Gauhati High Court
+https://www.verdictum.in/guwahati-high-court/walia-murshida-huda-v-the-state-of-assam-2026gau-as8358-pendency-mbbs-pass-certificate-1616044
+
+[Source Link](https://t.me/verdictumlegalupdates/27583)
+
+---
+
+### 2026-06-16T13:02:28+00:00
+Cancelling Entire Examination Doesn’t Pass Muster Of Wednesbury Principles: Gauhati High Court In Chief Law Assistant Recruitment Case
+https://www.verdictum.in/guwahati-high-court/shri-ranjeet-kumar-v-the-union-of-india-2026gau-as7343-db-examination-wednesbury-principles-1616039
+
+[Source Link](https://t.me/verdictumlegalupdates/27582)
+
+---
+
+### 2026-06-16T12:33:06+00:00
+Supreme Court Directs Odisha Govt To Ensure Social Security Benefits To Visually Impaired Man & His 80-Yr-Old Mother
+https://www.verdictum.in/supreme-court/odisha-govt-to-ensure-social-security-benefits-to-visually-impaired-man-his-80-yr-old-mother-1616036
+
+[Source Link](https://t.me/verdictumlegalupdates/27581)
+
+---
+
+### 2026-06-16T12:02:25+00:00
+If Woman Knows Of Man’s Existing Marriage, His Promise To Marry Cannot Amount To "Deceitful Means" U/S 69 BNS: Kerala High Court
+https://www.verdictum.in/kerala-high-court/akhil-n-r-v-state-of-kerala-2026ker41967-where-woman-is-aware-of-mans-existing-marriage-not-deceitful-means-us-69-bns-1616034
+
+[Source Link](https://t.me/verdictumlegalupdates/27580)
 
 ---
 
@@ -121,46 +161,6 @@ Once Man’s Right Is Terminated In His Sister’s Premises, His Wife’s Status
 https://www.verdictum.in/delhi-high-court/shalu-v-meera-batra-2026dhc5085-man-right-terminated-sister-premises-wife-trespasser-1615978
 
 [Source Link](https://t.me/verdictumlegalupdates/27565)
-
----
-
-### 2026-06-15T14:13:11+00:00
-Unsuccessful Party Cannot Seek Continuation Of Interim Arrangement Merely Because It Has Challenged Arbitral Award: Bombay High Court
-https://www.verdictum.in/bombay-high-court/oil-and-natural-gas-corporation-limited-v-swiber-offshore-construction-pte-limited-2026bhc-os13025-1615977
-
-[Source Link](https://t.me/verdictumlegalupdates/27564)
-
----
-
-### 2026-06-15T13:32:49+00:00
-Findings Affecting Reputation Of Senior Judicial Officer Can't Rest On Rhetorical Inferences: Orissa High Court Grants Relief To Former Registrar
-https://www.verdictum.in/orissa-high-court/lalit-kumar-dash-v-state-of-orissa-ors-registrar-promotion-district-judge-1615970
-
-[Source Link](https://t.me/verdictumlegalupdates/27563)
-
----
-
-### 2026-06-15T13:02:28+00:00
-Humanitarian Dimension Of Criminal Justice: Rajasthan High Court Suspends Life Sentence Of Convict Suffering From Guillain-Barré Syndrome
-https://www.verdictum.in/rajasthan-high-court/k-v-state-of-rajasthan-2026rj-jd27105-db-life-sentence-of-convict-suffering-from-guillain-barr-syndrome-1615969
-
-[Source Link](https://t.me/verdictumlegalupdates/27562)
-
----
-
-### 2026-06-15T12:32:46+00:00
-RTI Activism Has Become New Business, Yellow Journalism: Supreme Court While Refusing Anticipatory Bail To Activist
-https://www.verdictum.in/supreme-court/anticipatory-bail-to-activist-refused-1615967
-
-[Source Link](https://t.me/verdictumlegalupdates/27561)
-
----
-
-### 2026-06-15T11:52:45+00:00
-Land Owner Entitled To Get Compensation Even For Area Of Service Road In Acquisition Matter: Bombay High Court
-https://www.verdictum.in/bombay-high-court/youvraj-v-the-national-highways-authority-of-india-2026bhc-aug22966-db-land-compensation-1615964
-
-[Source Link](https://t.me/verdictumlegalupdates/27560)
 
 ---
 
