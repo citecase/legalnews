@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-15T10:29:09+00:00*
+*Last Updated: 2026-06-15T12:27:31+00:00*
 
 ---
 
-### 2026-06-15T10:29:09+00:00
-Call For Contributing Authors For Book: 'Lex Indica: Critical Essays On Contemporary Law' : Register By June 21
-https://www.livelaw.in/lawschool/news/call-contributing-authors-book-lex-indica-critical-essays-contemporary-law-537833
-
-[Read on Telegram](https://t.me/livelawindia/112888)
-
----
-### 2026-06-15T11:28:21+00:00
-Seven Advocates Sworn-In As Judges Of Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/seven-advocates-sworn-in-as-judges-of-patna-high-court-537838
-
-[Read on Telegram](https://t.me/livelawindia/112889)
-
----
-### 2026-06-15T11:29:21+00:00
-Patna Court Grants Bail To Rival Educator Raushan Anand Booked Over Vandalism Of Khan Sir's Coaching Institute
-https://www.livelaw.in/news-updates/patna-court-rival-educator-raushan-anand-vandalism-khan-sirs-coaching-institute-537839
-
-[Read on Telegram](https://t.me/livelawindia/112890)
-
----
-### 2026-06-15T11:46:01+00:00
-[Advertisement] Register Now | Two-Credit/Certificate Course On Legal Tech & Digital Dispute Resolution | Apply Before 15 June 2026 | Limited Seats
-https://www.livelaw.in/lawschool/diploma-certificate-courses/register-now-two-creditcertificate-course-on-legal-tech-digital-dispute-resolution-apply-before-15-june-2026-limited-seats-537842
-
-[Read on Telegram](https://t.me/livelawindia/112891)
-
----
-### 2026-06-15T11:50:21+00:00
-Bombay High Court Directs State To Ensure Protection For Justice Gautam Patel Facing Threats Over Dawoodi Bohra Succession Verdict
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-justice-gautam-patel-protection-threat-dawoodi-bohra-case-537843
-
-[Read on Telegram](https://t.me/livelawindia/112892)
-
----
-### 2026-06-15T11:59:01+00:00
-PIL Filed In Kerala High Court Challenging KSRTC's Free Bus Travel Scheme For Women, Transgender Persons
-https://www.livelaw.in/high-court/kerala-high-court/ksrtc-free-bus-travel-scheme-for-women-transgender-challenged-pil-537844
-
-[Read on Telegram](https://t.me/livelawindia/112893)
-
----
-### 2026-06-15T12:09:31+00:00
-Cashew Corp Scam: Kerala High Court Dismisses Appeal By Industries Department Secretary, Asks Him To Appear Before Single Judge
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-cashew-corp-scam-secretary-contempt-appeal-dismissed-537847
-
-[Read on Telegram](https://t.me/livelawindia/112894)
-
----
-### 2026-06-15T12:24:31+00:00
-One Land, One Heart: How Faith And Freedom United My India
-https://www.livelaw.in/articles/faith-freedom-united-oindia-537852
-
-[Read on Telegram](https://t.me/livelawindia/112895)
-
----
 ### 2026-06-15T12:27:31+00:00
 Banks Can't Freeze Entire Account Anticipating Future Directions From Probe Agencies: Karnataka High Court
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-banks-cannot-freeze-entire-amounts-account-537848
@@ -142,5 +86,61 @@ https://www.livelaw.in/top-stories/lokayukta-special-police-not-intelligence-sec
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-629-special-police-establishment-v-kamta-prasad-mishra-ors-537888
 
 [Read on Telegram](https://t.me/livelawindia/112907)
+
+---
+### 2026-06-16T03:32:41+00:00
+Is Sole Surviving Widow Entitled To Full Family Pension Despite Being 'Second Wife'? P&H High Court Answers
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/second-wife-family-pension-first-wife-predeceased-employee-537883
+
+[Read on Telegram](https://t.me/livelawindia/112908)
+
+---
+### 2026-06-16T04:02:21+00:00
+Allowing Officer To Oversee Department Handling Disciplinary Proceedings Against Him Is Impermissible: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-delinquent-officer-cannot-be-allowed-to-oversee-departmental-handling-his-proceedings-537891
+
+[Read on Telegram](https://t.me/livelawindia/112909)
+
+---
+### 2026-06-16T04:13:51+00:00
+Young Professional (Legal Directorate) Vacancy At Indian National Space Promotion And Authorization Centre (IN-SPACe)
+https://www.livelaw.in/job-updates/young-professional-legal-directorate-vacancy-at-indian-national-space-promotion-and-authorization-centre-537900
+
+[Read on Telegram](https://t.me/livelawindia/112910)
+
+---
+### 2026-06-16T04:15:11+00:00
+Research Associates Vacancy At High Court Of Judicature At Allahabad (Prayagraj And Lucknow)
+https://www.livelaw.in/job-updates/research-associates-vacancy-at-high-court-of-judicature-at-allahabad-prayagraj-and-lucknow-537901
+
+[Read on Telegram](https://t.me/livelawindia/112911)
+
+---
+### 2026-06-16T04:24:51+00:00
+Joint Advisor Vacancy At Telecom Regulatory Authority Of India
+https://www.livelaw.in/job-updates/joint-advisor-vacancy-at-telecom-regulatory-authority-of-india-537902
+
+[Read on Telegram](https://t.me/livelawindia/112912)
+
+---
+### 2026-06-16T04:31:31+00:00
+Manager (Legal-Housing) Vacancy At Tata Capital [Bengaluru; Apply Now]
+https://www.livelaw.in/job-updates/manager-legal-housing-vacancy-at-tata-capital-bengaluru-537903
+
+[Read on Telegram](https://t.me/livelawindia/112913)
+
+---
+### 2026-06-16T04:32:11+00:00
+Outsourced Workers Have No Right To Promotion; Designation Upgrade Without Authority Can Be Corrected: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-outsourced-employees-regular-state-employees-long-term-service-537876
+
+[Read on Telegram](https://t.me/livelawindia/112914)
+
+---
+### 2026-06-16T04:33:11+00:00
+The Rise Of Techno-Legal Professionals In India's Digital Economy
+https://www.livelaw.in/lawschool/articles/rise-technolegal-professionals-india-digital-economy-537849
+
+[Read on Telegram](https://t.me/livelawindia/112915)
 
 ---
