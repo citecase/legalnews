@@ -1,114 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-16T04:32:11+00:00*
+*Last Updated: 2026-06-16T09:34:03+00:00*
 
 ---
 
-### 2026-06-16T04:32:11+00:00
-Outsourced Workers Have No Right To Promotion; Designation Upgrade Without Authority Can Be Corrected: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-outsourced-employees-regular-state-employees-long-term-service-537876
-
-[Read on Telegram](https://t.me/livelawindia/112914)
-
----
-### 2026-06-16T04:33:11+00:00
-The Rise Of Techno-Legal Professionals In India's Digital Economy
-https://www.livelaw.in/lawschool/articles/rise-technolegal-professionals-india-digital-economy-537849
-
-[Read on Telegram](https://t.me/livelawindia/112915)
-
----
-### 2026-06-16T05:03:01+00:00
-KSBC Polls: Karnataka High Court Directs State Bar Council To Place Remaining Malpractice Complaints Before Election Panel
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-directs-state-bar-council-bar-council-election-dispute-537905
-
-[Read on Telegram](https://t.me/livelawindia/112916)
-
----
-### 2026-06-16T05:14:01+00:00
-Supreme Court Upholds Validity of Haryana Rule Deferring Compassionate Assistance For Kin Accused Of Murdering Govt Employee
-https://www.livelaw.in/top-stories/supreme-court-upholds-validity-of-haryana-rule-deferring-compassionate-assistance-for-kin-accused-of-murdering-govt-employee-537907
-
-[Read on Telegram](https://t.me/livelawindia/112917)
-
----
-### 2026-06-16T05:15:21+00:00
-2026 LiveLaw (SC) 630 | Atul Chauhan v. State of Haryana & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-630-atul-chauhan-v-state-of-haryana-ors-537908
-
-[Read on Telegram](https://t.me/livelawindia/112918)
-
----
-### 2026-06-16T05:37:42+00:00
-FIR Number Allegedly Prepared Before FIR Registration Raises Material Doubt About Recovery: Uttarakhand HC Grants Bail In NDPS Case
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-fir-number-documents-prepared-fir-registration-537875
-
-[Read on Telegram](https://t.me/livelawindia/112919)
-
----
-### 2026-06-16T06:02:54+00:00
-Mere Pendency Of Criminal Case Can't Justify Indefinite Withholding Of MBBS Pass Certificate After Course Completion: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/pending-criminal-case-cant-indefinite-withhold-mbbs-pass-certificate-537911
-
-[Read on Telegram](https://t.me/livelawindia/112920)
-
----
-### 2026-06-16T06:20:34+00:00
-'No Material To Show Foul Play': Madras High Court Orally Remarks In Plea Seeking CBI Probe Into AIADMK MLAs' Switch To TVK
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-cbi-probe-resignation-4-aiadmk-mla-tvk-orders-reserved-537913
-
-[Read on Telegram](https://t.me/livelawindia/112921)
-
----
-### 2026-06-16T06:23:14+00:00
-'Accused Not Named In FIR, Remand Report Or Chargesheet': Telangana HC Probe Into Alleged Illegal Detention By Police
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-orders-sit-probe-alleged-illegal-detention-police-537895
-
-[Read on Telegram](https://t.me/livelawindia/112922)
-
----
-### 2026-06-16T06:32:55+00:00
-Malayodamthurthu Land Dispute: Kerala High Court Continues Stay On Eviction Proceedings As Parties Near Settlement
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-malayodamthurth-eviction-stay-extended-settlement-537915
-
-[Read on Telegram](https://t.me/livelawindia/112923)
-
----
-### 2026-06-16T06:36:55+00:00
-Cancellation Of Exam Is Justified Only When Sanctity Of Process Is Compromised At Systemic Level & Its Impossible To Separate Tainted Candidates From Untainted Ones: Gauhati HC
-https://www.livelaw.in/high-court/gauhati-high-court/cancellation-of-exam-is-justified-only-when-sanctity-of-process-is-compromised-at-systemic-level-its-impossible-to-separate-tainted-candidates-from-untainted-ones-gauhati-hc-537916
-
-[Read on Telegram](https://t.me/livelawindia/112924)
-
----
-### 2026-06-16T06:42:35+00:00
-'Publicity Stunt': Karnataka High Court Rejects Plea Against DK Shivakumar Cabinet, Imposes ₹50,000 Costs
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-pil-challenging-new-dk-shivakumar-cabinet-537918
-
-[Read on Telegram](https://t.me/livelawindia/112925)
-
----
-### 2026-06-16T06:50:55+00:00
-Karnataka Govt Appoints 42 Additional Government Advocates, 27 High Court Government Pleaders
-https://www.livelaw.in/news-updates/karnataka-govt-appoints-additional-government-advocates-high-court-government-pleaders-537919
-
-[Read on Telegram](https://t.me/livelawindia/112926)
-
----
-### 2026-06-16T06:52:25+00:00
-Administrative Enquiry Mandatory Before FIR Against Public Servants Under SC/ST Act: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-administrative-enquiry-mandatory-fir-public-servants-section4-scst-act-537896
-
-[Read on Telegram](https://t.me/livelawindia/112927)
-
----
-### 2026-06-16T07:13:45+00:00
-NEET Re-Exam: Centre Restricts Access To Telegram Till June 22 To Prevent Paper Leak
-https://www.livelaw.in/news-updates/neet-re-exam-telegram-access-blocked-june-22-nta-537921
-
-[Read on Telegram](https://t.me/livelawindia/112928)
-
----
 ### 2026-06-16T09:34:03+00:00
 Forensic Bedroom: How Ghost Of Section 497 Leaped From Court Files To OTT Screens
 https://www.livelaw.in/articles/section497-leaped-court-files-iott-screens-537850
@@ -142,5 +37,110 @@ Can Speaker Suo Moto Ignore Majority Party's LoP Proposal? Calcutta High Court Q
 https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-ritabrata-banerjee-lop-537952
 
 [Read on Telegram](https://t.me/livelawindia/112933)
+
+---
+### 2026-06-16T11:22:02+00:00
+Political Commentator Ponraj Moves Madras High Court To Quash FIR Over Remarks On TVK Women Supporters
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ponraj-fir-tvk-women-supporters-comment-quash-petition-537956
+
+[Read on Telegram](https://t.me/livelawindia/112934)
+
+---
+### 2026-06-16T11:49:12+00:00
+DTC Conductor's Dismissal Invalid: Charge Of Collecting Fare Without Issuing Tickets Not Established Without Cash Verification : Delhi HC
+https://www.livelaw.in/high-court/delhi-high-court/dtc-conductors-dismissal-invalid-charge-of-collecting-fare-without-issuing-tickets-not-established-without-cash-verification-delhi-hc-537961
+
+[Read on Telegram](https://t.me/livelawindia/112935)
+
+---
+### 2026-06-16T12:40:04+00:00
+Karnataka High Court Closes Pleas Alleging Malpractices In State Bar Council Elections, Asks Candidates To Approach Supervisory Committee
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-disposes-pleas-alleging-malpractices-bar-council-elections-537964
+
+[Read on Telegram](https://t.me/livelawindia/112936)
+
+---
+### 2026-06-16T12:58:04+00:00
+Karnataka High Court Declares ED Arrest Of Gameskraft Founders Illegal, Orders Release From Jail Forthwith
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-declares-arrest-gameskraft-founders-illegal-537968
+
+[Read on Telegram](https://t.me/livelawindia/112937)
+
+---
+### 2026-06-16T13:32:54+00:00
+Does A Recruitment Freeze Apply To Compassionate Appointments? Kerala High Court Answers
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-regular-recruitment-bar-compassionate-appointments-537967
+
+[Read on Telegram](https://t.me/livelawindia/112938)
+
+---
+### 2026-06-16T13:54:34+00:00
+Sudden Change In Political Loyalty Not Offence Sans Evidence: Madras High Court Dismisses Plea For CBI Probe Into AIADMK MLAs Joining TVK
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-sudden-political-realignment-not-criminal-misconduct-aiadmk-mla-to-tvk-537984
+
+[Read on Telegram](https://t.me/livelawindia/112939)
+
+---
+### 2026-06-16T14:02:34+00:00
+Kerala High Court Asks Centre, DGS About Timeline For Independent Study On Long-Term Environmental Impact Of MSC Elsa 3 Wreck
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-msc-elsa-3-sinkage-environment-hazard-537970
+
+[Read on Telegram](https://t.me/livelawindia/112940)
+
+---
+### 2026-06-16T14:19:44+00:00
+Madras High Court Rejects Flipkart Founders' Review Plea Against ED Show-Cause Notice In FEMA Case
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-review-application-sachin-binny-bansal-fema-case-dismissed-537985
+
+[Read on Telegram](https://t.me/livelawindia/112941)
+
+---
+### 2026-06-16T14:26:24+00:00
+Jammu And Kashmir & Ladakh High Court Weekly Round-Up June 08 - June 14, 2026
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-weekly-roundup-june-08-june-14-2026-537986
+
+[Read on Telegram](https://t.me/livelawindia/112942)
+
+---
+### 2026-06-16T14:33:04+00:00
+Legality Of Regularisation: What Courts Say About Contract Employees
+https://www.livelaw.in/articles/legality-regularisation-contract-employees-537851
+
+[Read on Telegram](https://t.me/livelawindia/112943)
+
+---
+### 2026-06-16T15:15:54+00:00
+Can Live-In Couples Seek Police Protection Without Fulfilling Legal Pre-Conditions?: P&H High Court Answers
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/live-in-couples-seek-police-protection-without-fulfilling-legal-preconditions-538005
+
+[Read on Telegram](https://t.me/livelawindia/112944)
+
+---
+### 2026-06-16T15:17:54+00:00
+Wife Cannot Continue To Occupy Sister-In-Law's Property After Husband Vacates: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/wife-cannot-continue-to-occupy-sister-in-laws-property-after-husband-vacates-delhi-high-court-538002
+
+[Read on Telegram](https://t.me/livelawindia/112945)
+
+---
+### 2026-06-16T15:37:34+00:00
+'Reformative Approach Over Retribution': Delhi High Court Orders Premature Release Of 1993 Bowbazar Blast Life Convict
+https://www.livelaw.in/high-court/delhi-high-court/reformative-approach-over-retribution-delhi-high-court-orders-premature-release-of-1993-bowbazar-blast-life-convict-538004
+
+[Read on Telegram](https://t.me/livelawindia/112946)
+
+---
+### 2026-06-16T16:01:14+00:00
+Plea In Madras High Court Challenges Election Win Of CM Vijay From Trichy East Constituency
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-cm-vijay-trichy-east-win-election-petition-challenge-538007
+
+[Read on Telegram](https://t.me/livelawindia/112947)
+
+---
+### 2026-06-16T16:43:44+00:00
+Manamadurai Custodial Death: Madras High Court Asks State To Ensure Dignified Disposal Of Mortal Remains After Family Refuses To Receive Body
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-manamadurai-custodial-death-state-dignified-disposal-mortal-remains-538014
+
+[Read on Telegram](https://t.me/livelawindia/112948)
 
 ---
