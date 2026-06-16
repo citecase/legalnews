@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-15T16:23:06+00:00*
+*Last Updated: 2026-06-16T05:52:17+00:00*
+
+---
+
+### 2026-06-16T05:52:17+00:00
+Motive Appears To Be A Bogey; ConvictionBased On Inadmissible Case Diaries & Fabricated Memos: Allahabad High Court Acquits 7 Men Accused Of Murdering 14 Year Old Boy
+https://www.verdictum.in/allahabad-high-court/sanjay-rai-v-state-of-up-2026ahc-lko40399-db-conviction-on-inadmissible-case-diaries-fabricated-memos-acquits-7-1616005
+
+[Source Link](https://t.me/verdictumlegalupdates/27571)
+
+---
+
+### 2026-06-16T05:12:36+00:00
+Bombay HC Invokes Doctrine Of Indoor Management; Says Contractor Justified In Assuming Federation Secretary's Authority To Sign Commercial Agreement
+https://www.verdictum.in/bombay-high-court/2026bhcos12549-adtrack-media-llp-v-happy-valley-homes-chs-federation-1616004
+
+[Source Link](https://t.me/verdictumlegalupdates/27570)
+
+---
+
+### 2026-06-16T04:32:24+00:00
+Court Should Issue Notice To Bailer Or Bailable Warrant Against Accused Before Issuing NBW For Non Appearance: Orissa High Court
+https://www.verdictum.in/orissa-high-court/trinath-guru-and-another-v-state-of-orissa-magistrate-court-notice-nbwa-1615980
+
+[Source Link](https://t.me/verdictumlegalupdates/27569)
 
 ---
 
@@ -137,30 +161,6 @@ Concealment Of Foreign Court Orders: Delhi High Court Dismisses Mother's Habeas 
 https://www.verdictum.in/delhi-high-court/2026-dhc-5093-db-somya-goel-v-the-state-of-nct-of-delhi-1615946
 
 [Source Link](https://t.me/verdictumlegalupdates/27552)
-
----
-
-### 2026-06-15T07:02:22+00:00
-Postmortem Report On Deceased’s Age Can Be Relied On In Motor Accident Cases In Absence Of Any Unimpeachable Contrary Evidence: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/tara-sharma-and-ors-v-national-insurance-company-limited-postmortem-report-deceased-age-1615942
-
-[Source Link](https://t.me/verdictumlegalupdates/27551)
-
----
-
-### 2026-06-15T06:32:21+00:00
-Weekly Overview| Supreme Court Judgments: June 09 – June 12, 2026
-https://www.verdictum.in/weekly-summary/supreme-court-judgments-june-09-june-12-2026-1615930
-
-[Source Link](https://t.me/verdictumlegalupdates/27550)
-
----
-
-### 2026-06-15T06:03:20+00:00
-Mere Defence That Cheques Were Misused Doesn’t Automatically Exclude Complainant From Seeking Interim Compensation U/S.143A NI Act: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/rahul-yadav-v-state-of-up-2026ahc124646-accuseds-defence-complainant-compensation-ni-act-1615938
-
-[Source Link](https://t.me/verdictumlegalupdates/27549)
 
 ---
 
