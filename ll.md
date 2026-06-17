@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-17T11:52:37+00:00*
+*Last Updated: 2026-06-17T12:52:47+00:00*
 
 ---
 
-### 2026-06-17T11:52:37+00:00
-Calcutta HC Reserves Orders In TMC's Challenge To Speaker's Recognition Of Rebel MLA Ritabrata Banerjee As Leader Of Opposition
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-hc-reserves-orders-in-tmcs-challenge-to-speakers-recognition-of-rebel-mla-ritabrata-banerjee-as-leader-of-opposition-538113
-
-[Read on Telegram](https://t.me/livelawindia/113007)
-
----
-### 2026-06-17T12:02:17+00:00
-Ex Parte Decree Can't Be Set Aside On Mere Irregularity In Service If Defendant Had Notice And Opportunity To Appear: Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-test-orderixrule13-cpc-defendant-honestly-537994
-
-[Read on Telegram](https://t.me/livelawindia/113008)
-
----
-### 2026-06-17T12:30:47+00:00
-Kerala High Court Seeks State's Response On Action Against Illegal Display Of Flags, Emblems On Vehicles
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-unauthorised-state-emblems-on-vehicles-538120
-
-[Read on Telegram](https://t.me/livelawindia/113009)
-
----
 ### 2026-06-17T12:52:47+00:00
 Tenant Seeking Restoration Of Possession From Landlord Must Approach Small Causes Court: Bombay High Court
 https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-section28-bombay-rent-act-enough-cover-suit-repossession-537997
@@ -142,5 +121,26 @@ https://www.livelaw.in/top-stories/supreme-court-seeks-delhi-police-response-on-
 https://www.livelaw.in/high-court/madras-high-court/coimbatore-communally-sensitive-madras-high-court-stops-construction-of-chruch-near-temple-538145
 
 [Read on Telegram](https://t.me/livelawindia/113026)
+
+---
+### 2026-06-17T15:53:21+00:00
+Advocate Entitled To Adjust Unpaid Professional Fees From Compensation Recovered For Client If Such Adjustment Was Agreed: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/advocate-entitled-to-adjust-unpaid-professional-fees-from-compensation-recovered-for-client-if-such-adjustment-was-agreed-delhi-high-court-538001
+
+[Read on Telegram](https://t.me/livelawindia/113027)
+
+---
+### 2026-06-17T15:58:01+00:00
+Confirmation Of Accounts Signed By Debtor Sufficient To Sustain Summary Suit Under Order 37 CPC: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/confirmation-of-accounts-signed-by-debtor-sufficient-to-sustain-summary-suit-under-order-37-cpc-delhi-high-court-538003
+
+[Read on Telegram](https://t.me/livelawindia/113028)
+
+---
+### 2026-06-17T16:03:41+00:00
+Jharkhand High Court Designates 10 Lawyers As Senior Advocates
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-senior-advocate-designation-538147
+
+[Read on Telegram](https://t.me/livelawindia/113029)
 
 ---
