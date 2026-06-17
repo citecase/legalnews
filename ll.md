@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-16T09:34:03+00:00*
+*Last Updated: 2026-06-16T11:49:12+00:00*
 
 ---
 
-### 2026-06-16T09:34:03+00:00
-Forensic Bedroom: How Ghost Of Section 497 Leaped From Court Files To OTT Screens
-https://www.livelaw.in/articles/section497-leaped-court-files-iott-screens-537850
-
-[Read on Telegram](https://t.me/livelawindia/112929)
-
----
-### 2026-06-16T10:05:31+00:00
-Supreme Court Acts Suo Motu For Welfare Of Visually Impaired Man & Mother Living In Poverty; Issues Directions To Odisha Govt
-https://www.livelaw.in/top-stories/supreme-court-acts-suo-motu-for-welfare-of-visually-impaired-man-mother-living-in-poverty-issues-directions-to-odisha-govt-537944
-
-[Read on Telegram](https://t.me/livelawindia/112930)
-
----
-### 2026-06-16T10:08:31+00:00
-Do Section 50 NDPS Act Safeguards Apply To Search Of Bags Carried By Accused? Kerala High Court Answers
-https://www.livelaw.in/high-court/kerala-high-court/safeguards-under-section-50-of-ndps-act-personal-searches-not-bags-kerala-high-court-537946
-
-[Read on Telegram](https://t.me/livelawindia/112931)
-
----
-### 2026-06-16T11:02:22+00:00
-Delayed Justice, Defeated Democracy: A Decade-Long Verdict On Supreme Court's Failings
-https://www.livelaw.in/top-stories/delayed-justice-defeated-democracy-long-verdict-supreme-court-hhfailings-537951
-
-[Read on Telegram](https://t.me/livelawindia/112932)
-
----
-### 2026-06-16T11:05:22+00:00
-Can Speaker Suo Moto Ignore Majority Party's LoP Proposal? Calcutta High Court Questions Ritabrata Banerjee's Appointment As LoP
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-ritabrata-banerjee-lop-537952
-
-[Read on Telegram](https://t.me/livelawindia/112933)
-
----
-### 2026-06-16T11:22:02+00:00
-Political Commentator Ponraj Moves Madras High Court To Quash FIR Over Remarks On TVK Women Supporters
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ponraj-fir-tvk-women-supporters-comment-quash-petition-537956
-
-[Read on Telegram](https://t.me/livelawindia/112934)
-
----
 ### 2026-06-16T11:49:12+00:00
 DTC Conductor's Dismissal Invalid: Charge Of Collecting Fare Without Issuing Tickets Not Established Without Cash Verification : Delhi HC
 https://www.livelaw.in/high-court/delhi-high-court/dtc-conductors-dismissal-invalid-charge-of-collecting-fare-without-issuing-tickets-not-established-without-cash-verification-delhi-hc-537961
@@ -142,5 +100,47 @@ Manamadurai Custodial Death: Madras High Court Asks State To Ensure Dignified Di
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-manamadurai-custodial-death-state-dignified-disposal-mortal-remains-538014
 
 [Read on Telegram](https://t.me/livelawindia/112948)
+
+---
+### 2026-06-17T03:32:43+00:00
+LiveLaw Rajasthan High Court Weekly Round-Up: June 08 to June 14, 2026
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-weekly-roundup2026-538008
+
+[Read on Telegram](https://t.me/livelawindia/112949)
+
+---
+### 2026-06-17T04:07:53+00:00
+'Bidder Cannot Be Disqualified On Basis Of Condition Not Forming Part Of Tender': Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-quashes-bsfc-order-cancelling-tender-forfeiting-security-blacklisting-contractor-537995
+
+[Read on Telegram](https://t.me/livelawindia/112950)
+
+---
+### 2026-06-17T04:12:53+00:00
+Assistant Law Officer Vacancy At Karnataka Power Cooperation Limited
+https://www.livelaw.in/job-updates/assistant-law-officer-vacancy-at-karnataka-power-cooperation-limited-538017
+
+[Read on Telegram](https://t.me/livelawindia/112951)
+
+---
+### 2026-06-17T04:14:33+00:00
+Legal Officer Vacancy At Indian Institute Of Management (IIM), Bodh Gaya
+https://www.livelaw.in/job-updates/legal-officer-vacancy-at-indian-institute-of-management-iim-bodh-gaya-538018
+
+[Read on Telegram](https://t.me/livelawindia/112952)
+
+---
+### 2026-06-17T04:32:33+00:00
+Gauhati High Court Admits PIL Over Assam's Growing Debt, But Flags Judicial Limits In Fiscal Matters
+https://www.livelaw.in/high-court/gauhati-high-court/pil-assams-rising-debt-fiscal-responsibility-and-budget-management-act-violations-538010
+
+[Read on Telegram](https://t.me/livelawindia/112953)
+
+---
+### 2026-06-17T04:39:53+00:00
+Taxing Entry: H-1B Surcharge And Constitutional Limits On Executive Revenue Power
+https://www.livelaw.in/articles/taxing-entry-h-1b-surcharge-constitutional-limits-executive-revenue-power-538019
+
+[Read on Telegram](https://t.me/livelawindia/112954)
 
 ---
