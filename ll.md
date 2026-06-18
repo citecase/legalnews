@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-17T12:52:47+00:00*
+*Last Updated: 2026-06-17T13:32:30+00:00*
 
 ---
 
-### 2026-06-17T12:52:47+00:00
-Tenant Seeking Restoration Of Possession From Landlord Must Approach Small Causes Court: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-section28-bombay-rent-act-enough-cover-suit-repossession-537997
-
-[Read on Telegram](https://t.me/livelawindia/113010)
-
----
-### 2026-06-17T12:54:07+00:00
-Karnataka High Court Asks State To Form Comprehensive Policy For Regulating Homestays, Suggests 10-Point Framework
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-homestays-guidelines-regulation-538123
-
-[Read on Telegram](https://t.me/livelawindia/113011)
-
----
-### 2026-06-17T13:00:47+00:00
-Orissa High Court Holds Sensitization Program On “Samadhan Samaroh” For Promoting Mediation & Conciliation
-https://www.livelaw.in/events/orissa-high-court-holds-sensitization-program-samadhan-samaroh-promoting-mediation-conciliation-538125
-
-[Read on Telegram](https://t.me/livelawindia/113012)
-
----
-### 2026-06-17T13:18:10+00:00
-Prosecutrix's Testimony Not 'Gospel'; Evidence Negating Penetration Justifies Conviction For Attempt To Rape Instead Of Rape: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-prosecutrixs-testimony-requires-greater-scrutiny-where-medical-evidence-rules-out-penetration-hc-converts-rape-conviction-into-attempt-to-rape-537998
-
-[Read on Telegram](https://t.me/livelawindia/113013)
-
----
 ### 2026-06-17T13:32:30+00:00
 Electricity Company 'Absolutely Liable' In Electrocution Death Case, Can't Escape By Blaming Deceased's Negligence: Gujarat High Court
 https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-electricity-company-absolute-liability-injury-death-contact-wires-538091
@@ -142,5 +114,33 @@ Jharkhand High Court Designates 10 Lawyers As Senior Advocates
 https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-senior-advocate-designation-538147
 
 [Read on Telegram](https://t.me/livelawindia/113029)
+
+---
+### 2026-06-18T02:55:15+00:00
+Eminent Senior Advocates Vacancy At Special Courts And Exclusive Special Courts, Tamil Nadu
+https://www.livelaw.in/job-updates/eminent-senior-advocates-vacancy-at-special-courts-and-exclusive-special-courts-tamil-nadu-538149
+
+[Read on Telegram](https://t.me/livelawindia/113030)
+
+---
+### 2026-06-18T02:57:55+00:00
+Law Officers Vacancy At Various District Courts And Subordinate Courts, Tiruvallur District
+https://www.livelaw.in/job-updates/law-officers-vacancy-at-various-district-courts-and-subordinate-courts-tiruvallur-district-538150
+
+[Read on Telegram](https://t.me/livelawindia/113031)
+
+---
+### 2026-06-18T02:59:55+00:00
+Law Officer Vacancy At Perambalur District, Tamil Nadu
+https://www.livelaw.in/job-updates/law-officer-vacancy-at-perambalur-district-tamil-nadu-538151
+
+[Read on Telegram](https://t.me/livelawindia/113032)
+
+---
+### 2026-06-18T03:18:15+00:00
+Consultant (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP [Mumbai; Apply Now]
+https://www.livelaw.in/job-updates/consultant-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-mumbai-538152
+
+[Read on Telegram](https://t.me/livelawindia/113033)
 
 ---
