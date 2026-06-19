@@ -1,86 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-18T12:03:00+00:00*
+*Last Updated: 2026-06-18T14:06:22+00:00*
 
 ---
 
-### 2026-06-18T12:03:00+00:00
-Tenant Cannot Claim Ownership On Basis Of Unexecuted Agreement To Sell: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/tenant-cannot-claim-ownership-on-basis-of-unexecuted-agreement-to-sell-delhi-high-court-538206
-
-[Read on Telegram](https://t.me/livelawindia/113082)
-
----
-### 2026-06-18T12:18:10+00:00
-Victim Must Be Heard Even Before Rejection Of Closure Report: Madhya Pradesh High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/tribal-youth-unnatural-death-victim-hearing-closure-report-rejection-538264
-
-[Read on Telegram](https://t.me/livelawindia/113083)
-
----
-### 2026-06-18T12:18:20+00:00
-'Judicial Orders Not Being Given Importance': Orissa High Court Raps Police Over 8-Month Delay In FIR Registration Despite Magistrate's Order
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-delay-fir-registration-despite-magistrate-order-538260
-
-[Read on Telegram](https://t.me/livelawindia/113084)
-
----
-### 2026-06-18T12:37:11+00:00
-Considering Teenage Hormonal Changes, Madras High Court Reduces Life Sentence In POCSO Case To 10 Years
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-life-imprisonment-modified-pocso-act-hormonal-change-538266
-
-[Read on Telegram](https://t.me/livelawindia/113085)
-
----
-### 2026-06-18T12:47:51+00:00
-Kerala Court Refuses To Refer Nivin Pauly's 'Ramachandra Boss & Co' & 'Malayali From India' Film Disputes To Arbitration
-https://www.livelaw.in/news-updates/kerala-munsiff-court-nivin-pauly-listin-stephen-film-dispute-no-arbitration-538268
-
-[Read on Telegram](https://t.me/livelawindia/113086)
-
----
-### 2026-06-18T13:06:52+00:00
-Article 300A Doesn't Protect Property Values From Policy-Induced Fluctuations: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/property-value-loss-not-300a-violation-property-rights-change-economic-policy-538271
-
-[Read on Telegram](https://t.me/livelawindia/113087)
-
----
-### 2026-06-18T13:17:52+00:00
-Can Electro-Homeopathy Be Practised Without Registration Under Medical Laws? Kerala High Court Answers
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-electro-homeopathy-regulated-or-unregulated-538272
-
-[Read on Telegram](https://t.me/livelawindia/113088)
-
----
-### 2026-06-18T13:32:42+00:00
-MP High Court Upholds Digital Evaluation Of Answer Sheets By Medical University But Suggests Improvements To Enhance Transparency
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/answer-sheet-reevaluation-rejected-university-digital-evaluation-system-upheld-538274
-
-[Read on Telegram](https://t.me/livelawindia/113089)
-
----
-### 2026-06-18T13:39:22+00:00
-Ambassador Hotel Moves Delhi High Court Against Centre's Eviction Notice Under Public Premises Act
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-ambassador-hotel-eviction-notice-centre-challenged-538276
-
-[Read on Telegram](https://t.me/livelawindia/113090)
-
----
-### 2026-06-18T13:52:22+00:00
-Fractional Figure Cannot Be Ignored While Calculating 2/3rd Majority For No-Confidence Motion Against Co-Op Society Officer: Bombay HC
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-fraction-ignored-computing-cooperative-society-officer-538204
-
-[Read on Telegram](https://t.me/livelawindia/113091)
-
----
-### 2026-06-18T13:54:42+00:00
-Gratuity Received As High Court Judge No Bar To Separate Gratuity For Service As Lokayukta: Madhya Pradesh High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/lokayukts-entitled-to-gratuity-despite-receiving-benefits-as-hc-judges-538277
-
-[Read on Telegram](https://t.me/livelawindia/113092)
-
----
 ### 2026-06-18T14:06:22+00:00
 Legal Heirs Can't Continue Suit Filed By Deceased Trustee In Representative Capacity, Right Vests In Surviving Trustee: P&H High Court
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-legal-heirs-cannot-continue-suit-filed-by-deceased-trustee-in-representative-capacity-538278
@@ -142,5 +65,82 @@ Compensatory Afforestation Must Be In Same Or Nearby Locality; Trees Planted Els
 https://www.livelaw.in/high-court/bombay-high-court/tree-felling-compensatory-afforestation-in-same-nearby-locality-538290
 
 [Read on Telegram](https://t.me/livelawindia/113101)
+
+---
+### 2026-06-19T03:02:14+00:00
+Habeas Corpus Can't Be Granted Despite Non-Communication Of Grounds Of Arrest After Judicial Remand: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-refuses-habeas-corpus-illegal-arrest-grounds-of-arrest-538309
+
+[Read on Telegram](https://t.me/livelawindia/113102)
+
+---
+### 2026-06-19T03:02:54+00:00
+Supreme Court Allows BCD Election Vote Counting To Continue But Says Result Cannot Be Declared Without Its Permission
+https://www.livelaw.in/top-stories/supreme-court-allows-bcd-election-vote-counting-to-continue-but-says-result-cannot-be-declared-without-its-permission-538310
+
+[Read on Telegram](https://t.me/livelawindia/113103)
+
+---
+### 2026-06-19T03:32:24+00:00
+Telangana High Court Refuses To Quash Suicide Abetment FIR Against Journalist, Advocate Over Allegedly Defamatory YouTube Interview
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-defamatory-social-media-interview-led-suicide-538293
+
+[Read on Telegram](https://t.me/livelawindia/113104)
+
+---
+### 2026-06-19T04:01:06+00:00
+Multiple Vacancies At State Child Protection Society Child Welfare Committees (CWCS), Juvenile Justice Boards (JJBS), Special Juvenile Police Units (SJPUS) & District Child Protection Units (DCPUS) Under Mission Vatsalya Scheme, Delhi
+https://www.livelaw.in/job-updates/multiple-vacancies-at-state-child-protection-society-child-welfare-committees-cwcs-juvenile-justice-boards-jjbs-special-juvenile-police-units-sjpus-district-child-protection-units-dcpus-under-mission-vatsalya-scheme-delhi-538311
+
+[Read on Telegram](https://t.me/livelawindia/113105)
+
+---
+### 2026-06-19T04:02:26+00:00
+If Officials Can Pay Costs For Disobedience, Frivolous Litigants Must Pay For Abuse Of Contempt Jurisdiction: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/frivolous-contempt-plea-costs-imposed-538294
+
+[Read on Telegram](https://t.me/livelawindia/113106)
+
+---
+### 2026-06-19T04:07:06+00:00
+Legal Officer Vacancy At Directorate Of Mines And Geology
+https://www.livelaw.in/job-updates/legal-officer-vacancy-at-directorate-of-mines-and-geology-538313
+
+[Read on Telegram](https://t.me/livelawindia/113107)
+
+---
+### 2026-06-19T04:14:46+00:00
+Assistant Project Manager Vacancy At Indian Institute Of Technology, Kanpur
+https://www.livelaw.in/job-updates/assistant-project-manager-vacancy-at-indian-institute-of-technology-kanpur-538316
+
+[Read on Telegram](https://t.me/livelawindia/113108)
+
+---
+### 2026-06-19T04:32:37+00:00
+Telegram Ban Challenged : Live Updates From Delhi High Court Hearing
+https://www.livelaw.in/top-stories/telegram-ban-challenged-live-updates-from-delhi-high-court-hearing-538320
+
+[Read on Telegram](https://t.me/livelawindia/113109)
+
+---
+### 2026-06-19T04:32:47+00:00
+AIBE: A Predictable Script: Confidence Before, Chaos Later!
+https://www.livelaw.in/articles/aibe-predictable-script-538237
+
+[Read on Telegram](https://t.me/livelawindia/113110)
+
+---
+### 2026-06-19T04:32:57+00:00
+Customer Of Sex Worker Can't Be Prosecuted For Trafficking, Can Face S.370A IPC If Aware Victim Was Trafficked: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-customer-sex-worker-prosecuted-trafficking-s370-ipc-538307
+
+[Read on Telegram](https://t.me/livelawindia/113111)
+
+---
+### 2026-06-19T04:47:57+00:00
+Rajasthan High Court Orders Tehsildar To Personally Pay ₹2 Lakh Compensation For 53-Day Illegal Detention, Directs Inquiry
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-slams-illegal-detention-hiv-man-despite-release-order-538308
+
+[Read on Telegram](https://t.me/livelawindia/113112)
 
 ---
