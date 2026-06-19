@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-18T14:06:22+00:00*
+*Last Updated: 2026-06-19T07:03:53+00:00*
 
 ---
 
-### 2026-06-18T14:06:22+00:00
-Legal Heirs Can't Continue Suit Filed By Deceased Trustee In Representative Capacity, Right Vests In Surviving Trustee: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-legal-heirs-cannot-continue-suit-filed-by-deceased-trustee-in-representative-capacity-538278
+### 2026-06-19T07:03:53+00:00
+Govt Employees' Participation In Yoga Day Program Optional, No Punitive Action For Non-Attendance: State Tells Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/govt-employees-participation-in-yoga-day-program-optional-no-punitive-action-for-non-attendance-state-tells-calcutta-high-court-538340
 
-[Read on Telegram](https://t.me/livelawindia/113093)
-
----
-### 2026-06-18T14:32:12+00:00
-Payment Of 'Pagri' Doesn't Make Tenancy Non-Terminable, Landlord Can Still Seek Eviction: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/payment-of-pagri-doesnt-make-tenancy-non-terminable-landlord-can-still-seek-eviction-delhi-high-court-538211
-
-[Read on Telegram](https://t.me/livelawindia/113094)
+[Read on Telegram](https://t.me/livelawindia/113125)
 
 ---
-### 2026-06-18T14:33:02+00:00
-Danger Of Judge Made Intra-Court Appeals
-https://www.livelaw.in/articles/danger-judge-made-intra-court-appeals-538194
+### 2026-06-19T07:09:33+00:00
+Child Of Present Indian Citizen Eligible For Citizenship By Registration U/S 5(1)(f): Telangana HC Rejects Centre's 'Former Citizen' Interpretation
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-rejects-centre-former-citizen-interpretation-538341
 
-[Read on Telegram](https://t.me/livelawindia/113095)
-
----
-### 2026-06-18T14:33:32+00:00
-NDPS Act | Separate Contraband Recoveries Can't Be Treated As Commercial Quantity Absent Proof Of Joint Possession: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/cant-club-separate-ganja-recoveries-commercial-quantity-without-joint-possession-538283
-
-[Read on Telegram](https://t.me/livelawindia/113096)
+[Read on Telegram](https://t.me/livelawindia/113126)
 
 ---
-### 2026-06-18T14:47:32+00:00
-Rajasthan High Court Rejects Husband's Plea Seeking Wife's Narco, Polygraph & DNA Tests To Rebut Impotency Allegations
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-court-rejects-husband-bid-narco-dna-tests-divorce-case-538286
+### 2026-06-19T07:32:53+00:00
+'No Ladies' Bar Rooms In Most Trial Courts': Supreme Court Says Basic Facilities For Women Advocates Integral To Dignity
+https://www.livelaw.in/top-stories/no-ladies-bar-rooms-in-most-trial-courts-supreme-court-says-basic-facilities-for-women-advocates-integral-to-dignity-538347
 
-[Read on Telegram](https://t.me/livelawindia/113097)
-
----
-### 2026-06-18T15:02:35+00:00
-Membership Of Bar Associations Voluntary, Can't Restrict Lawyer From Practicing: Telangana High Court Reads Down BCI Rule
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-bar-associations-exercise-regulatory-control-advocate-right-to-practice-538287
-
-[Read on Telegram](https://t.me/livelawindia/113098)
+[Read on Telegram](https://t.me/livelawindia/113127)
 
 ---
-### 2026-06-18T15:11:35+00:00
-How Can CID Question Lawyer On Case Being Argued By Him? Kalyan Bandopadhyay Writes To Calcutta HC Bar Association Over Cop's Call
-https://www.livelaw.in/news-updates/senior-advocate-kalyan-bandopadhyay-writes-to-calcutta-hc-bar-association-over-cid-call-labels-it-direct-attack-on-advocate-arguing-case-538298
+### 2026-06-19T07:40:33+00:00
+Safe Kerala Project: High Court Orders Release Of Quarterly Payments Due To Contractor Who Installed AI Cameras
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-safe-kerala-project-ai-camera-payment-538349
 
-[Read on Telegram](https://t.me/livelawindia/113099)
-
----
-### 2026-06-18T15:22:25+00:00
-Revocation Of Sanction Under Maharashtra Public Trusts Act Permissible Only On Proof Of Fraud: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-revocation-sanction-requires-strict-proof-fraud-538205
-
-[Read on Telegram](https://t.me/livelawindia/113100)
+[Read on Telegram](https://t.me/livelawindia/113128)
 
 ---
-### 2026-06-18T15:32:45+00:00
-Compensatory Afforestation Must Be In Same Or Nearby Locality; Trees Planted Elsewhere Can't Compensate Residents: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/tree-felling-compensatory-afforestation-in-same-nearby-locality-538290
+### 2026-06-19T07:59:24+00:00
+Law Clerk-Cum-Research Assistant For The Year 2026-27 Vacancy At Office Of The Advocate General, Karnataka
+https://www.livelaw.in/job-updates/law-clerk-cum-research-assistant-for-the-year-2026-27-vacancy-at-office-of-the-advocate-general-karnataka-538350
 
-[Read on Telegram](https://t.me/livelawindia/113101)
-
----
-### 2026-06-19T03:02:14+00:00
-Habeas Corpus Can't Be Granted Despite Non-Communication Of Grounds Of Arrest After Judicial Remand: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-refuses-habeas-corpus-illegal-arrest-grounds-of-arrest-538309
-
-[Read on Telegram](https://t.me/livelawindia/113102)
+[Read on Telegram](https://t.me/livelawindia/113129)
 
 ---
-### 2026-06-19T03:02:54+00:00
-Supreme Court Allows BCD Election Vote Counting To Continue But Says Result Cannot Be Declared Without Its Permission
-https://www.livelaw.in/top-stories/supreme-court-allows-bcd-election-vote-counting-to-continue-but-says-result-cannot-be-declared-without-its-permission-538310
+### 2026-06-19T08:00:24+00:00
+Law Internship Program Vacancy At Karnataka Appellate Tribunal [Apply Now]
+https://www.livelaw.in/job-updates/law-internship-program-vacancy-at-karnataka-appellate-tribunal-538351
 
-[Read on Telegram](https://t.me/livelawindia/113103)
-
----
-### 2026-06-19T03:32:24+00:00
-Telangana High Court Refuses To Quash Suicide Abetment FIR Against Journalist, Advocate Over Allegedly Defamatory YouTube Interview
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-defamatory-social-media-interview-led-suicide-538293
-
-[Read on Telegram](https://t.me/livelawindia/113104)
+[Read on Telegram](https://t.me/livelawindia/113130)
 
 ---
-### 2026-06-19T04:01:06+00:00
-Multiple Vacancies At State Child Protection Society Child Welfare Committees (CWCS), Juvenile Justice Boards (JJBS), Special Juvenile Police Units (SJPUS) & District Child Protection Units (DCPUS) Under Mission Vatsalya Scheme, Delhi
-https://www.livelaw.in/job-updates/multiple-vacancies-at-state-child-protection-society-child-welfare-committees-cwcs-juvenile-justice-boards-jjbs-special-juvenile-police-units-sjpus-district-child-protection-units-dcpus-under-mission-vatsalya-scheme-delhi-538311
+### 2026-06-19T08:14:04+00:00
+Senior Legal Consultant And Legal Consultant Vacancy At Custodian Of Enemy Property For India [Apply Now]
+https://www.livelaw.in/job-updates/senior-legal-consultant-and-legal-consultant-vacancy-at-custodian-of-enemy-property-for-india-538352
 
-[Read on Telegram](https://t.me/livelawindia/113105)
-
----
-### 2026-06-19T04:02:26+00:00
-If Officials Can Pay Costs For Disobedience, Frivolous Litigants Must Pay For Abuse Of Contempt Jurisdiction: Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/frivolous-contempt-plea-costs-imposed-538294
-
-[Read on Telegram](https://t.me/livelawindia/113106)
+[Read on Telegram](https://t.me/livelawindia/113131)
 
 ---
-### 2026-06-19T04:07:06+00:00
-Legal Officer Vacancy At Directorate Of Mines And Geology
-https://www.livelaw.in/job-updates/legal-officer-vacancy-at-directorate-of-mines-and-geology-538313
+### 2026-06-19T08:17:44+00:00
+Delhi High Court To Hear Salman Khan's Plea Against Film Inspired By Blackbuck Case On July 1; No Interim Relief For Now
+https://www.livelaw.in/high-court/delhi-high-court/salman-khan-blackbuck-case-kala-hiran-film-no-interim-relief-538354
 
-[Read on Telegram](https://t.me/livelawindia/113107)
-
----
-### 2026-06-19T04:14:46+00:00
-Assistant Project Manager Vacancy At Indian Institute Of Technology, Kanpur
-https://www.livelaw.in/job-updates/assistant-project-manager-vacancy-at-indian-institute-of-technology-kanpur-538316
-
-[Read on Telegram](https://t.me/livelawindia/113108)
+[Read on Telegram](https://t.me/livelawindia/113132)
 
 ---
-### 2026-06-19T04:32:37+00:00
-Telegram Ban Challenged : Live Updates From Delhi High Court Hearing
-https://www.livelaw.in/top-stories/telegram-ban-challenged-live-updates-from-delhi-high-court-hearing-538320
+### 2026-06-19T08:46:54+00:00
+2026 LiveLAw (SC) 632 | MANIYAR ILIYAZ SHAIK RIYAZ Vs P. AYYAPPAN
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-632-maniyar-iliyaz-shaik-riyaz-vs-p-ayyappan-538358
 
-[Read on Telegram](https://t.me/livelawindia/113109)
-
----
-### 2026-06-19T04:32:47+00:00
-AIBE: A Predictable Script: Confidence Before, Chaos Later!
-https://www.livelaw.in/articles/aibe-predictable-script-538237
-
-[Read on Telegram](https://t.me/livelawindia/113110)
+[Read on Telegram](https://t.me/livelawindia/113133)
 
 ---
-### 2026-06-19T04:32:57+00:00
-Customer Of Sex Worker Can't Be Prosecuted For Trafficking, Can Face S.370A IPC If Aware Victim Was Trafficked: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-customer-sex-worker-prosecuted-trafficking-s370-ipc-538307
+### 2026-06-19T08:51:35+00:00
+West Bengal SIR | Supreme Court Says Advocate Deleted From Roll Seemed To Be Genuine Citizen, Asks Appellate Tribunal To Decide
+https://www.livelaw.in/top-stories/supreme-court-directs-appellate-tribunal-decide-advocate-appeal-west-bengal-sir-538359
 
-[Read on Telegram](https://t.me/livelawindia/113111)
+[Read on Telegram](https://t.me/livelawindia/113134)
 
 ---
-### 2026-06-19T04:47:57+00:00
-Rajasthan High Court Orders Tehsildar To Personally Pay ₹2 Lakh Compensation For 53-Day Illegal Detention, Directs Inquiry
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-slams-illegal-detention-hiv-man-despite-release-order-538308
+### 2026-06-19T09:02:15+00:00
+Dental Student Suicide: Kerala High Court Denies Anticipatory Bail To College HOD Dr. Kodanda Ram In Abetment Case
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-dental-student-suicide-dr-ram-bail-538361
 
-[Read on Telegram](https://t.me/livelawindia/113112)
+[Read on Telegram](https://t.me/livelawindia/113135)
+
+---
+### 2026-06-19T09:15:35+00:00
+S.69A IT Act Empowers Centre To Block Entire Intermediary Platform, Not Just Specific Content: Delhi High Court In Telegram Case
+https://www.livelaw.in/high-court/delhi-high-court/telegram-ban-section-69a-it-act-platform-blocking-allowed-538364
+
+[Read on Telegram](https://t.me/livelawindia/113136)
+
+---
+### 2026-06-19T09:24:15+00:00
+Motive Loses Significance When Crime Proved By Ocular Evidence: Allahabad High Court Upholds Conviction In 2015 Murder Case
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-motive-crime-proved-ocular-evidence-conviction-in-2015-murder-case-538366
+
+[Read on Telegram](https://t.me/livelawindia/113137)
+
+---
+### 2026-06-19T09:29:55+00:00
+Law Needed To Protect Right To Walk On Footpaths : Supreme Court Tells Centre
+https://www.livelaw.in/top-stories/law-needed-to-protect-right-to-walk-on-footpaths-supreme-court-tells-centre-538367
+
+[Read on Telegram](https://t.me/livelawindia/113138)
+
+---
+### 2026-06-19T09:32:25+00:00
+Soldier At The Gate of Justice
+https://www.livelaw.in/articles/soldier-justice-538238
+
+[Read on Telegram](https://t.me/livelawindia/113139)
+
+---
+### 2026-06-19T10:01:45+00:00
+Delhi High Court Says Centre Can Issue Directions To Intermediaries Over Fake Posts On CJI's London Visit
+https://www.livelaw.in/high-court/delhi-high-court/fake-news-on-judges-ministers-playing-badminton-on-london-vacation-538370
+
+[Read on Telegram](https://t.me/livelawindia/113140)
+
+---
+### 2026-06-19T10:12:05+00:00
+Congress, CPI Move Bombay High Court Against Maharashtra Special Public Security Act; Allege Chilling Effect On Free Speech
+https://www.livelaw.in/high-court/bombay-high-court/congress-challenged-maharashtra-special-public-security-act-free-speech-538371
+
+[Read on Telegram](https://t.me/livelawindia/113141)
+
+---
+### 2026-06-19T10:20:25+00:00
+Unfounded Allegations Of Mental Illness Against Wife Amount To Cruelty, Violate Dignity & Privacy: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-wife-portrayed-mentally-unsound-cruelty-intrusion-privacy-538375
+
+[Read on Telegram](https://t.me/livelawindia/113142)
+
+---
+### 2026-06-19T10:25:05+00:00
+Punjab & Haryana High Court Upholds Facebook's Removal Of Copyrighted Song From User's Page
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/facebook-content-removal-justified-song-copyright-complaint-538376
+
+[Read on Telegram](https://t.me/livelawindia/113143)
+
+---
+### 2026-06-19T10:38:35+00:00
+Food Adulteration Act | Failure To Inform Accused Of Right To Get Food Sample Tested By Central Lab Vitiates Prosecution: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/food-adulteration-act-section-132-accused-right-sample-testing-central-lab-538380
+
+[Read on Telegram](https://t.me/livelawindia/113144)
 
 ---
