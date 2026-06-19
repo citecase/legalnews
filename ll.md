@@ -1,107 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-19T07:03:53+00:00*
+*Last Updated: 2026-06-19T09:32:25+00:00*
 
 ---
 
-### 2026-06-19T07:03:53+00:00
-Govt Employees' Participation In Yoga Day Program Optional, No Punitive Action For Non-Attendance: State Tells Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/govt-employees-participation-in-yoga-day-program-optional-no-punitive-action-for-non-attendance-state-tells-calcutta-high-court-538340
-
-[Read on Telegram](https://t.me/livelawindia/113125)
-
----
-### 2026-06-19T07:09:33+00:00
-Child Of Present Indian Citizen Eligible For Citizenship By Registration U/S 5(1)(f): Telangana HC Rejects Centre's 'Former Citizen' Interpretation
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-rejects-centre-former-citizen-interpretation-538341
-
-[Read on Telegram](https://t.me/livelawindia/113126)
-
----
-### 2026-06-19T07:32:53+00:00
-'No Ladies' Bar Rooms In Most Trial Courts': Supreme Court Says Basic Facilities For Women Advocates Integral To Dignity
-https://www.livelaw.in/top-stories/no-ladies-bar-rooms-in-most-trial-courts-supreme-court-says-basic-facilities-for-women-advocates-integral-to-dignity-538347
-
-[Read on Telegram](https://t.me/livelawindia/113127)
-
----
-### 2026-06-19T07:40:33+00:00
-Safe Kerala Project: High Court Orders Release Of Quarterly Payments Due To Contractor Who Installed AI Cameras
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-safe-kerala-project-ai-camera-payment-538349
-
-[Read on Telegram](https://t.me/livelawindia/113128)
-
----
-### 2026-06-19T07:59:24+00:00
-Law Clerk-Cum-Research Assistant For The Year 2026-27 Vacancy At Office Of The Advocate General, Karnataka
-https://www.livelaw.in/job-updates/law-clerk-cum-research-assistant-for-the-year-2026-27-vacancy-at-office-of-the-advocate-general-karnataka-538350
-
-[Read on Telegram](https://t.me/livelawindia/113129)
-
----
-### 2026-06-19T08:00:24+00:00
-Law Internship Program Vacancy At Karnataka Appellate Tribunal [Apply Now]
-https://www.livelaw.in/job-updates/law-internship-program-vacancy-at-karnataka-appellate-tribunal-538351
-
-[Read on Telegram](https://t.me/livelawindia/113130)
-
----
-### 2026-06-19T08:14:04+00:00
-Senior Legal Consultant And Legal Consultant Vacancy At Custodian Of Enemy Property For India [Apply Now]
-https://www.livelaw.in/job-updates/senior-legal-consultant-and-legal-consultant-vacancy-at-custodian-of-enemy-property-for-india-538352
-
-[Read on Telegram](https://t.me/livelawindia/113131)
-
----
-### 2026-06-19T08:17:44+00:00
-Delhi High Court To Hear Salman Khan's Plea Against Film Inspired By Blackbuck Case On July 1; No Interim Relief For Now
-https://www.livelaw.in/high-court/delhi-high-court/salman-khan-blackbuck-case-kala-hiran-film-no-interim-relief-538354
-
-[Read on Telegram](https://t.me/livelawindia/113132)
-
----
-### 2026-06-19T08:46:54+00:00
-2026 LiveLAw (SC) 632 | MANIYAR ILIYAZ SHAIK RIYAZ Vs P. AYYAPPAN
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-632-maniyar-iliyaz-shaik-riyaz-vs-p-ayyappan-538358
-
-[Read on Telegram](https://t.me/livelawindia/113133)
-
----
-### 2026-06-19T08:51:35+00:00
-West Bengal SIR | Supreme Court Says Advocate Deleted From Roll Seemed To Be Genuine Citizen, Asks Appellate Tribunal To Decide
-https://www.livelaw.in/top-stories/supreme-court-directs-appellate-tribunal-decide-advocate-appeal-west-bengal-sir-538359
-
-[Read on Telegram](https://t.me/livelawindia/113134)
-
----
-### 2026-06-19T09:02:15+00:00
-Dental Student Suicide: Kerala High Court Denies Anticipatory Bail To College HOD Dr. Kodanda Ram In Abetment Case
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-dental-student-suicide-dr-ram-bail-538361
-
-[Read on Telegram](https://t.me/livelawindia/113135)
-
----
-### 2026-06-19T09:15:35+00:00
-S.69A IT Act Empowers Centre To Block Entire Intermediary Platform, Not Just Specific Content: Delhi High Court In Telegram Case
-https://www.livelaw.in/high-court/delhi-high-court/telegram-ban-section-69a-it-act-platform-blocking-allowed-538364
-
-[Read on Telegram](https://t.me/livelawindia/113136)
-
----
-### 2026-06-19T09:24:15+00:00
-Motive Loses Significance When Crime Proved By Ocular Evidence: Allahabad High Court Upholds Conviction In 2015 Murder Case
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-motive-crime-proved-ocular-evidence-conviction-in-2015-murder-case-538366
-
-[Read on Telegram](https://t.me/livelawindia/113137)
-
----
-### 2026-06-19T09:29:55+00:00
-Law Needed To Protect Right To Walk On Footpaths : Supreme Court Tells Centre
-https://www.livelaw.in/top-stories/law-needed-to-protect-right-to-walk-on-footpaths-supreme-court-tells-centre-538367
-
-[Read on Telegram](https://t.me/livelawindia/113138)
-
----
 ### 2026-06-19T09:32:25+00:00
 Soldier At The Gate of Justice
 https://www.livelaw.in/articles/soldier-justice-538238
@@ -142,5 +44,103 @@ Food Adulteration Act | Failure To Inform Accused Of Right To Get Food Sample Te
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/food-adulteration-act-section-132-accused-right-sample-testing-central-lab-538380
 
 [Read on Telegram](https://t.me/livelawindia/113144)
+
+---
+### 2026-06-19T11:07:15+00:00
+Rape Convict Can Be Charged With Abetment Of Suicide If Victim Ends Life Due To Trauma Of Assault: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-upholds-abetment-suicide-charge-rape-convict-538387
+
+[Read on Telegram](https://t.me/livelawindia/113145)
+
+---
+### 2026-06-19T11:24:06+00:00
+Land Acquisition | Courts Deciding Compensation References Not Bound By Section 26 Market Value Parameters: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/land-acquisition-section-26-fair-compensation-act-2013-market-value-not-binding-538389
+
+[Read on Telegram](https://t.me/livelawindia/113146)
+
+---
+### 2026-06-19T11:37:26+00:00
+S.47A Excise Act | Confiscation Has Serious Consequences On Constitutional Rights; Can't Stand After Acquittal: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/mp-excise-act-confiscation-invalid-after-accused-acquitted-538390
+
+[Read on Telegram](https://t.me/livelawindia/113147)
+
+---
+### 2026-06-19T11:48:06+00:00
+Chhattisgarh High Court Permits Undertrial To Take NEET Exam Under Police Custody, Declines Temporary Bail
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-accused-appear-neet-ug-police-escort-538391
+
+[Read on Telegram](https://t.me/livelawindia/113148)
+
+---
+### 2026-06-19T11:59:06+00:00
+P&H High Court Holds Chandigarh Golf Club Falls Within RTI Act, Cites Indirect Substantial Govt Financing
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/chandigarh-golf-club-rti-act-indirect-govt-funding-538399
+
+[Read on Telegram](https://t.me/livelawindia/113149)
+
+---
+### 2026-06-19T12:12:16+00:00
+After High Court's Strictures, Savukku Shankar Seeks CBI Probe Against Tamil Nadu Vigilance Chief Arun IPS
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-savukku-shankar-arun-ips-cbi-probe-538403
+
+[Read on Telegram](https://t.me/livelawindia/113150)
+
+---
+### 2026-06-19T12:17:16+00:00
+Law Doesn't Compel Motherhood, Court Duty Bound To Protect Woman's Autonomy: Madras High Court Allows Pregnancy Termination
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-law-no-compel-pregnancy-protect-woman-autonomy-538393
+
+[Read on Telegram](https://t.me/livelawindia/113151)
+
+---
+### 2026-06-19T12:32:36+00:00
+MP High Court Quashes 'Stigmatic' Termination Of Govt Pleader, Says Due Process Not Followed
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/govt-pleader-termination-quashed-order-cryptic-non-speaking-stigmatic-538398
+
+[Read on Telegram](https://t.me/livelawindia/113152)
+
+---
+### 2026-06-19T12:38:36+00:00
+Conviction Can't Rest On 'Last Seen' Alone Without Complete Chain Of Circumstances: Allahabad HC Acquits Man In 1986 Murder Case
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-conviction-last-seen-alone-complete-chain-circumstances-acquits-1986-murder-case-538407
+
+[Read on Telegram](https://t.me/livelawindia/113153)
+
+---
+### 2026-06-19T12:52:16+00:00
+Academic Timelines Can't Be Applied Strictly To Pregnant Women: Madras High Court Allows LLM Student To Submit Delayed Dissertation
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-academic-timeline-not-strict-applied-woman-pregnancy-childbirth-538409
+
+[Read on Telegram](https://t.me/livelawindia/113154)
+
+---
+### 2026-06-19T13:10:08+00:00
+'Banks Sell Loans To ARCs For Peanuts': Supreme Court Flags Nexus Between Banks, Borrowers & Asset Reconstruction Companies
+https://www.livelaw.in/top-stories/banks-sell-loans-to-arcs-for-peanuts-supreme-court-flags-nexus-between-banks-borrowers-asset-reconstruction-companies-538411
+
+[Read on Telegram](https://t.me/livelawindia/113155)
+
+---
+### 2026-06-19T13:33:49+00:00
+Consumer Forum's Jurisdiction Not Ousted By Mere Existence Of Arbitration Clause : Supreme Court
+https://www.livelaw.in/supreme-court/consumer-forums-jurisdiction-not-ousted-by-mere-existence-of-arbitration-clause-supreme-court-538416
+
+[Read on Telegram](https://t.me/livelawindia/113156)
+
+---
+### 2026-06-19T14:07:59+00:00
+Supreme Court Dismisses Tamil Nadu Businessman's Challenge To ED Search In TASMAC Money Laundering Case
+https://www.livelaw.in/top-stories/supreme-court-dismisses-tamil-nadu-businessmans-challenge-to-ed-search-in-tasmac-money-laundering-case-538419
+
+[Read on Telegram](https://t.me/livelawindia/113157)
+
+---
+### 2026-06-19T14:32:59+00:00
+Preventive Detention And Constitution: Fifty Years Of Jurisprudential Reckoning With UAPA, NSA, And MCOCA
+https://www.livelaw.in/articles/preventive-detention-constitution-fifty-years-jurisprudential-reckoning-538239
+
+[Read on Telegram](https://t.me/livelawindia/113158)
 
 ---
