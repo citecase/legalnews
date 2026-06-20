@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-20T06:42:39+00:00*
+*Last Updated: 2026-06-20T08:12:21+00:00*
 
 ---
 
-### 2026-06-20T06:42:39+00:00
-Child Protection Principles Under POCSO Act Should Guide Custody Proceedings Too: Supreme Court
-https://www.livelaw.in/top-stories/child-protection-principles-under-pocso-act-should-guide-custody-proceedings-too-supreme-court-538383
-
-[Read on Telegram](https://t.me/livelawindia/113174)
-
----
-### 2026-06-20T07:12:10+00:00
-Delinquent Officer Who Skipped Departmental Enquiry Can't Challenge Ex Parte Dismissal: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/delinquent-officer-who-skipped-departmental-enquiry-cant-challenge-ex-parte-dismissal-delhi-high-court-538430
-
-[Read on Telegram](https://t.me/livelawindia/113175)
-
----
-### 2026-06-20T08:03:01+00:00
-Policy Analyst Vacancy At Kotak Mahindra Bank Limited
-https://www.livelaw.in/job-updates/policy-analyst-vacancy-at-kotak-mahindra-bank-limited-538464
-
-[Read on Telegram](https://t.me/livelawindia/113176)
-
----
 ### 2026-06-20T08:12:21+00:00
 Karate Athletes' International Opportunities Can't Be Compromised Due To Governance Disputes: Delhi High Court
 https://www.livelaw.in/high-court/delhi-high-court/karate-athletes-international-opportunities-cant-be-compromised-due-to-governance-disputes-delhi-high-court-538426
@@ -142,5 +121,26 @@ Oral Statements U/S 200 & 202 CrPC Can't Cure Material Omissions In Protest Peti
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-oral-statements-200-202-crpc-material-omissions-protest-petition-allegations-doubtful-538493
 
 [Read on Telegram](https://t.me/livelawindia/113193)
+
+---
+### 2026-06-20T14:30:07+00:00
+Supreme Court Imposes ₹2 Lakh Cost On Chhattisgarh For Challenging Compensation To Landowners After Decades-Long Illegal Occupation
+https://www.livelaw.in/supreme-court/supreme-court-imposes-2-lakh-cost-on-chhattisgarh-for-challenging-compensation-to-landowners-after-decades-long-illegal-occupation-538496
+
+[Read on Telegram](https://t.me/livelawindia/113194)
+
+---
+### 2026-06-20T14:31:07+00:00
+2026 LiveLaw (SC) 635 | STATE OF CHHATTISGARH & ORS. VERSUS PARIKSHIT SINGH GUPTA & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-635-state-of-chhattisgarh-ors-versus-parikshit-singh-gupta-ors-538498
+
+[Read on Telegram](https://t.me/livelawindia/113195)
+
+---
+### 2026-06-20T14:47:57+00:00
+Debarred Bidder Can't Participate In Tender Even If Contract Period Begins After Debarment Ends: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/debarred-bidder-cant-participate-in-tender-even-if-contract-period-begins-after-debarment-ends-delhi-high-court-538429
+
+[Read on Telegram](https://t.me/livelawindia/113196)
 
 ---
