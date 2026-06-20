@@ -1,146 +1,148 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-19T09:32:25+00:00*
+*Last Updated: 2026-06-20T04:12:56+00:00*
 
 ---
 
-### 2026-06-19T09:32:25+00:00
-Soldier At The Gate of Justice
-https://www.livelaw.in/articles/soldier-justice-538238
+### 2026-06-20T04:12:56+00:00
+Election Commission's Ban On Political Advertisements In Delhi Metro During Model Code Valid: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/election-commissions-ban-on-political-advertisements-in-delhi-metro-during-model-code-valid-delhi-high-court-538425
 
-[Read on Telegram](https://t.me/livelawindia/113139)
-
----
-### 2026-06-19T10:01:45+00:00
-Delhi High Court Says Centre Can Issue Directions To Intermediaries Over Fake Posts On CJI's London Visit
-https://www.livelaw.in/high-court/delhi-high-court/fake-news-on-judges-ministers-playing-badminton-on-london-vacation-538370
-
-[Read on Telegram](https://t.me/livelawindia/113140)
+[Read on Telegram](https://t.me/livelawindia/113159)
 
 ---
-### 2026-06-19T10:12:05+00:00
-Congress, CPI Move Bombay High Court Against Maharashtra Special Public Security Act; Allege Chilling Effect On Free Speech
-https://www.livelaw.in/high-court/bombay-high-court/congress-challenged-maharashtra-special-public-security-act-free-speech-538371
+### 2026-06-20T04:17:16+00:00
+Call For Papers | Solventia – Journal Of Insolvency & Bankruptcy Laws
+[Vol. Iii, Issue 2]
+https://www.livelaw.in/lawschool/call-for-papers/call-for-papers-solventia-journal-of-insolvency-bankruptcy-lawsvol-iii-issue-2-538435
 
-[Read on Telegram](https://t.me/livelawindia/113141)
-
----
-### 2026-06-19T10:20:25+00:00
-Unfounded Allegations Of Mental Illness Against Wife Amount To Cruelty, Violate Dignity & Privacy: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-wife-portrayed-mentally-unsound-cruelty-intrusion-privacy-538375
-
-[Read on Telegram](https://t.me/livelawindia/113142)
+[Read on Telegram](https://t.me/livelawindia/113160)
 
 ---
-### 2026-06-19T10:25:05+00:00
-Punjab & Haryana High Court Upholds Facebook's Removal Of Copyrighted Song From User's Page
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/facebook-content-removal-justified-song-copyright-complaint-538376
+### 2026-06-20T04:34:56+00:00
+Manager (Data Privacy) Vacancy At Deloitte India LLP
+https://www.livelaw.in/job-updates/manager-data-privacy-vacancy-at-deloitte-india-llp-538437
 
-[Read on Telegram](https://t.me/livelawindia/113143)
-
----
-### 2026-06-19T10:38:35+00:00
-Food Adulteration Act | Failure To Inform Accused Of Right To Get Food Sample Tested By Central Lab Vitiates Prosecution: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/food-adulteration-act-section-132-accused-right-sample-testing-central-lab-538380
-
-[Read on Telegram](https://t.me/livelawindia/113144)
+[Read on Telegram](https://t.me/livelawindia/113161)
 
 ---
-### 2026-06-19T11:07:15+00:00
-Rape Convict Can Be Charged With Abetment Of Suicide If Victim Ends Life Due To Trauma Of Assault: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-upholds-abetment-suicide-charge-rape-convict-538387
+### 2026-06-20T04:35:07+00:00
+2026 LiveLaw (SC) 633 | T.K.A. PADMANABHAN VERSUS ABHIYAN COOPERATIVE GROUP HOUSING SOCIETY LTD
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-633-tka-padmanabhan-versus-abhiyan-cooperative-group-housing-society-ltd-538438
 
-[Read on Telegram](https://t.me/livelawindia/113145)
-
----
-### 2026-06-19T11:24:06+00:00
-Land Acquisition | Courts Deciding Compensation References Not Bound By Section 26 Market Value Parameters: Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/land-acquisition-section-26-fair-compensation-act-2013-market-value-not-binding-538389
-
-[Read on Telegram](https://t.me/livelawindia/113146)
+[Read on Telegram](https://t.me/livelawindia/113162)
 
 ---
-### 2026-06-19T11:37:26+00:00
-S.47A Excise Act | Confiscation Has Serious Consequences On Constitutional Rights; Can't Stand After Acquittal: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/mp-excise-act-confiscation-invalid-after-accused-acquitted-538390
+### 2026-06-20T04:42:17+00:00
+Breaking Green Patent Bottleneck: Is it Time For A “Climate TRIPS Waiver”?
+https://www.livelaw.in/articles/breaking-green-patent-bottleneck-climate-trips-waiver-538440
 
-[Read on Telegram](https://t.me/livelawindia/113147)
-
----
-### 2026-06-19T11:48:06+00:00
-Chhattisgarh High Court Permits Undertrial To Take NEET Exam Under Police Custody, Declines Temporary Bail
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-accused-appear-neet-ug-police-escort-538391
-
-[Read on Telegram](https://t.me/livelawindia/113148)
+[Read on Telegram](https://t.me/livelawindia/113163)
 
 ---
-### 2026-06-19T11:59:06+00:00
-P&H High Court Holds Chandigarh Golf Club Falls Within RTI Act, Cites Indirect Substantial Govt Financing
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/chandigarh-golf-club-rti-act-indirect-govt-funding-538399
+### 2026-06-20T05:06:47+00:00
+AP High Court Upholds Daughters' Share In Ancestral Property, Rejects Brother's Challenge To Their Legitimacy
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-upholds-daughter-equal-share-second-marriage-ancestral-property-538441
 
-[Read on Telegram](https://t.me/livelawindia/113149)
-
----
-### 2026-06-19T12:12:16+00:00
-After High Court's Strictures, Savukku Shankar Seeks CBI Probe Against Tamil Nadu Vigilance Chief Arun IPS
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-savukku-shankar-arun-ips-cbi-probe-538403
-
-[Read on Telegram](https://t.me/livelawindia/113150)
+[Read on Telegram](https://t.me/livelawindia/113164)
 
 ---
-### 2026-06-19T12:17:16+00:00
-Law Doesn't Compel Motherhood, Court Duty Bound To Protect Woman's Autonomy: Madras High Court Allows Pregnancy Termination
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-law-no-compel-pregnancy-protect-woman-autonomy-538393
+### 2026-06-20T05:12:27+00:00
+Plaintiff Who Fails To Perform Essential Terms Of Contract Cannot Seek Specific Performance U/S 16(c) Specific Relief Act: Patna HC
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-fails-perform-essential-terms-contract-seek-specific-performance-specific-relief-act-538424
 
-[Read on Telegram](https://t.me/livelawindia/113151)
-
----
-### 2026-06-19T12:32:36+00:00
-MP High Court Quashes 'Stigmatic' Termination Of Govt Pleader, Says Due Process Not Followed
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/govt-pleader-termination-quashed-order-cryptic-non-speaking-stigmatic-538398
-
-[Read on Telegram](https://t.me/livelawindia/113152)
+[Read on Telegram](https://t.me/livelawindia/113165)
 
 ---
-### 2026-06-19T12:38:36+00:00
-Conviction Can't Rest On 'Last Seen' Alone Without Complete Chain Of Circumstances: Allahabad HC Acquits Man In 1986 Murder Case
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-conviction-last-seen-alone-complete-chain-circumstances-acquits-1986-murder-case-538407
+### 2026-06-20T05:16:07+00:00
+Bringing Police To Workplace Over 'Routine Transfer', Complaining To External Authorities Amount To Misconduct: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/service-misconduct-calling-police-over-transfer-airing-grievance-externally-538442
 
-[Read on Telegram](https://t.me/livelawindia/113153)
-
----
-### 2026-06-19T12:52:16+00:00
-Academic Timelines Can't Be Applied Strictly To Pregnant Women: Madras High Court Allows LLM Student To Submit Delayed Dissertation
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-academic-timeline-not-strict-applied-woman-pregnancy-childbirth-538409
-
-[Read on Telegram](https://t.me/livelawindia/113154)
+[Read on Telegram](https://t.me/livelawindia/113166)
 
 ---
-### 2026-06-19T13:10:08+00:00
-'Banks Sell Loans To ARCs For Peanuts': Supreme Court Flags Nexus Between Banks, Borrowers & Asset Reconstruction Companies
-https://www.livelaw.in/top-stories/banks-sell-loans-to-arcs-for-peanuts-supreme-court-flags-nexus-between-banks-borrowers-asset-reconstruction-companies-538411
+### 2026-06-20T05:19:27+00:00
+Reimagining Legal Education: A Letter To A Marginalised Law Student On Merit, Barriers, And Belonging
+https://www.livelaw.in/articles/reimagining-legal-education-letter-marginalised-law-student-538444
 
-[Read on Telegram](https://t.me/livelawindia/113155)
-
----
-### 2026-06-19T13:33:49+00:00
-Consumer Forum's Jurisdiction Not Ousted By Mere Existence Of Arbitration Clause : Supreme Court
-https://www.livelaw.in/supreme-court/consumer-forums-jurisdiction-not-ousted-by-mere-existence-of-arbitration-clause-supreme-court-538416
-
-[Read on Telegram](https://t.me/livelawindia/113156)
+[Read on Telegram](https://t.me/livelawindia/113167)
 
 ---
-### 2026-06-19T14:07:59+00:00
-Supreme Court Dismisses Tamil Nadu Businessman's Challenge To ED Search In TASMAC Money Laundering Case
-https://www.livelaw.in/top-stories/supreme-court-dismisses-tamil-nadu-businessmans-challenge-to-ed-search-in-tasmac-money-laundering-case-538419
+### 2026-06-20T05:34:47+00:00
+#TheLawChallenge
+ : A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
+https://www.livelaw.in/top-stories/livelaw-and-qshala-legal-quiz-538445
 
-[Read on Telegram](https://t.me/livelawindia/113157)
+[Read on Telegram](https://t.me/livelawindia/113168)
 
 ---
-### 2026-06-19T14:32:59+00:00
-Preventive Detention And Constitution: Fifty Years Of Jurisprudential Reckoning With UAPA, NSA, And MCOCA
-https://www.livelaw.in/articles/preventive-detention-constitution-fifty-years-jurisprudential-reckoning-538239
+### 2026-06-20T05:49:27+00:00
+Kerala High Court Seeks Chief Minister VD Satheesan's Response In Police Protection Plea By Expelled Congress Leader Simi Bell Rose John
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-vd-satheeshan-police-protection-simi-bell-rose-538447
 
-[Read on Telegram](https://t.me/livelawindia/113158)
+[Read on Telegram](https://t.me/livelawindia/113169)
+
+---
+### 2026-06-20T06:03:17+00:00
+Citing Immigration Concerns, Delhi High Court Asks Father To Exercise Visitation Right In US, Not Bring Child To India
+https://www.livelaw.in/high-court/delhi-high-court/citing-immigration-concerns-delhi-high-court-asks-father-to-exercise-visitation-right-in-us-not-bring-child-to-india-538428
+
+[Read on Telegram](https://t.me/livelawindia/113170)
+
+---
+### 2026-06-20T06:10:57+00:00
+Justice Administration Not Divorced From Human Dignity: Rajasthan High Court Suspends Life Convict's Sentence On Severe Medical Condition
+https://www.livelaw.in/high-court/rajasthan-high-court/life-convict-sentence-suspended-medical-condition-human-dignity-538448
+
+[Read on Telegram](https://t.me/livelawindia/113171)
+
+---
+### 2026-06-20T06:23:07+00:00
+LiveLaw  Explainer| Key Principles Of Constructive Res Judicata
+https://www.livelaw.in/know-the-law/livelaw-explainer-key-principles-of-constructive-res-judicata-538379
+
+[Read on Telegram](https://t.me/livelawindia/113172)
+
+---
+### 2026-06-20T06:23:37+00:00
+Administrative Decisions Must Be Tested On Legality, Not Political Identity Of Person Who Raised Issue: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-political-representation-dont-vitiate-administrative-decision-538450
+
+[Read on Telegram](https://t.me/livelawindia/113173)
+
+---
+### 2026-06-20T06:42:39+00:00
+Child Protection Principles Under POCSO Act Should Guide Custody Proceedings Too: Supreme Court
+https://www.livelaw.in/top-stories/child-protection-principles-under-pocso-act-should-guide-custody-proceedings-too-supreme-court-538383
+
+[Read on Telegram](https://t.me/livelawindia/113174)
+
+---
+### 2026-06-20T07:12:10+00:00
+Delinquent Officer Who Skipped Departmental Enquiry Can't Challenge Ex Parte Dismissal: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/delinquent-officer-who-skipped-departmental-enquiry-cant-challenge-ex-parte-dismissal-delhi-high-court-538430
+
+[Read on Telegram](https://t.me/livelawindia/113175)
+
+---
+### 2026-06-20T08:03:01+00:00
+Policy Analyst Vacancy At Kotak Mahindra Bank Limited
+https://www.livelaw.in/job-updates/policy-analyst-vacancy-at-kotak-mahindra-bank-limited-538464
+
+[Read on Telegram](https://t.me/livelawindia/113176)
+
+---
+### 2026-06-20T08:12:21+00:00
+Karate Athletes' International Opportunities Can't Be Compromised Due To Governance Disputes: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/karate-athletes-international-opportunities-cant-be-compromised-due-to-governance-disputes-delhi-high-court-538426
+
+[Read on Telegram](https://t.me/livelawindia/113177)
+
+---
+### 2026-06-20T09:07:32+00:00
+Contempt Court Can't Test Legality Of Decision Taken In Compliance With Underlying Judicial Order: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/contempt-court-cant-test-legality-of-decision-taken-in-compliance-with-underlying-judicial-order-delhi-high-court-538431
+
+[Read on Telegram](https://t.me/livelawindia/113178)
 
 ---
