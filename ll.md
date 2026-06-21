@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-20T08:12:21+00:00*
+*Last Updated: 2026-06-20T09:07:32+00:00*
 
 ---
 
-### 2026-06-20T08:12:21+00:00
-Karate Athletes' International Opportunities Can't Be Compromised Due To Governance Disputes: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/karate-athletes-international-opportunities-cant-be-compromised-due-to-governance-disputes-delhi-high-court-538426
-
-[Read on Telegram](https://t.me/livelawindia/113177)
-
----
 ### 2026-06-20T09:07:32+00:00
 Contempt Court Can't Test Legality Of Decision Taken In Compliance With Underlying Judicial Order: Delhi High Court
 https://www.livelaw.in/high-court/delhi-high-court/contempt-court-cant-test-legality-of-decision-taken-in-compliance-with-underlying-judicial-order-delhi-high-court-538431
@@ -142,5 +135,12 @@ Debarred Bidder Can't Participate In Tender Even If Contract Period Begins After
 https://www.livelaw.in/high-court/delhi-high-court/debarred-bidder-cant-participate-in-tender-even-if-contract-period-begins-after-debarment-ends-delhi-high-court-538429
 
 [Read on Telegram](https://t.me/livelawindia/113196)
+
+---
+### 2026-06-21T04:32:10+00:00
+LiveLaw Punjab & Haryana High Court Monthly Digest: May 2026
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-monthly-round-up-may-2026-538296
+
+[Read on Telegram](https://t.me/livelawindia/113197)
 
 ---
