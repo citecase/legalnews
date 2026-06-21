@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-20T09:07:32+00:00*
+*Last Updated: 2026-06-20T09:36:33+00:00*
 
 ---
 
-### 2026-06-20T09:07:32+00:00
-Contempt Court Can't Test Legality Of Decision Taken In Compliance With Underlying Judicial Order: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/contempt-court-cant-test-legality-of-decision-taken-in-compliance-with-underlying-judicial-order-delhi-high-court-538431
-
-[Read on Telegram](https://t.me/livelawindia/113178)
-
----
-### 2026-06-20T09:32:33+00:00
-Bombay High Court Quashes Rape FIR, Orders Preliminary Inquiry On Woman's Future Complaints After Noting Pattern Of Similar Cases
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-woman-filing-multiple-fake-rape-cases-538468
-
-[Read on Telegram](https://t.me/livelawindia/113179)
-
----
 ### 2026-06-20T09:36:33+00:00
 Kerala High Court Orders Police Protection For Viral Kumbh Mela Star
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-police-protection-kumb-mela-538471
@@ -142,5 +128,19 @@ LiveLaw Punjab & Haryana High Court Monthly Digest: May 2026
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-monthly-round-up-may-2026-538296
 
 [Read on Telegram](https://t.me/livelawindia/113197)
+
+---
+### 2026-06-21T05:32:21+00:00
+Magistrate Can't Reject Negative Final Report Solely Based On Protest Petition: Rajasthan High Court Quashes Cognizance In Rape Case
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-cognizance-rape-case-nonconsideration-final-report-538452
+
+[Read on Telegram](https://t.me/livelawindia/113198)
+
+---
+### 2026-06-21T06:52:34+00:00
+Microfinance Fraud Case: Kerala High Court Warns Of Change In Investigating Officer Noting Delay In Completing Probe
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sndp-microfinance-case-538510
+
+[Read on Telegram](https://t.me/livelawindia/113199)
 
 ---
