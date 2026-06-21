@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-20T09:36:33+00:00*
+*Last Updated: 2026-06-20T10:22:44+00:00*
 
 ---
 
-### 2026-06-20T09:36:33+00:00
-Kerala High Court Orders Police Protection For Viral Kumbh Mela Star
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-police-protection-kumb-mela-538471
-
-[Read on Telegram](https://t.me/livelawindia/113180)
-
----
-### 2026-06-20T09:43:13+00:00
-Andhra Pradesh High Court Issues Notice On YSR Congress Party's Plea Against Blocking Of Facebook Page In India
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-ysr-congress-party-blocking-facebook-page-jagan-mohan-reddy-538474
-
-[Read on Telegram](https://t.me/livelawindia/113181)
-
----
-### 2026-06-20T10:02:43+00:00
-Orissa High Court Directs DGP To Ensure Arrest Memos Mention Written Grounds Of Arrest In Language Understood By Arrestee
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-arrest-memo-contain-arrest-grounds-in-understandable-language-538475
-
-[Read on Telegram](https://t.me/livelawindia/113182)
-
----
 ### 2026-06-20T10:22:44+00:00
 Manipur HC Quashes Preventive Detention Order, Says Fixing Time Limit For Making Representation Violates Article 22(5) Of Constitution
 https://www.livelaw.in/high-court/manipur-high-court/manipur-high-court-quashes-nsa-detention-order-time-limit-538427
@@ -142,5 +121,26 @@ Microfinance Fraud Case: Kerala High Court Warns Of Change In Investigating Offi
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sndp-microfinance-case-538510
 
 [Read on Telegram](https://t.me/livelawindia/113199)
+
+---
+### 2026-06-21T11:36:29+00:00
+NALSA Organises Mega Awareness Programme In Srinagar; Justice Vikram Nath Calls For Strengthening Women's Access To Justice
+https://www.livelaw.in/news-updates/nalsa-organises-mega-awareness-programme-srinagar-justice-vikram-nath-womens-access-justice-538511
+
+[Read on Telegram](https://t.me/livelawindia/113200)
+
+---
+### 2026-06-21T11:53:02+00:00
+NLU Delhi Organises Interactive Session With Ravi Shankar Prasad On New Criminal Laws
+https://www.livelaw.in/lawschool/news/nlu-delhi-organises-interactive-session-with-ravi-shankar-prasad-new-criminal-laws-538512
+
+[Read on Telegram](https://t.me/livelawindia/113201)
+
+---
+### 2026-06-21T13:17:54+00:00
+Tushar Mehta Reappointed As Solicitor General For Three More Years; Centre Extends Tenure Of ASGs
+https://www.livelaw.in/top-stories/tushar-mehta-reappointed-as-solicitor-general-for-three-more-years-centre-extends-tenure-of-asgs-538513
+
+[Read on Telegram](https://t.me/livelawindia/113202)
 
 ---
