@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-20T11:33:15+00:00*
+*Last Updated: 2026-06-22T08:32:58+00:00*
 
 ---
 
-### 2026-06-20T11:33:15+00:00
-S. 457 CrPC | Magistrate Can't Unilaterally Cancel Interim Release Of Seized Property Without Giving Opportunity Of Hearing: Orissa High Court
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-magistrate-unilaterally-cancel-interim-release-vehicle-538477
+### 2026-06-22T08:32:58+00:00
+LiveLaw Rajasthan High Court Weekly Round-Up: June 15 to June 21, 2026
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-weekly-roundup2026-538522
 
-[Read on Telegram](https://t.me/livelawindia/113189)
-
----
-### 2026-06-20T13:31:37+00:00
-Delhi High Court Orders Removal Of Online Fake News On Judges & Law Minister Going To London Badminton Event
-https://www.livelaw.in/top-stories/delhi-high-court-orders-removal-of-online-fake-news-on-judges-law-minister-going-to-london-badminton-event-538490
-
-[Read on Telegram](https://t.me/livelawindia/113190)
+[Read on Telegram](https://t.me/livelawindia/113229)
 
 ---
-### 2026-06-20T13:49:07+00:00
-Financier Can't Claim Insurance Over Theft Of Vehicle Surrendered By Insured Owner : Supreme Court
-https://www.livelaw.in/supreme-court/financier-cant-claim-insurance-over-theft-of-vehicle-surrendered-by-insured-owner-supreme-court-538491
+### 2026-06-22T08:44:08+00:00
+Calcutta High Court Weekly Round-Up: 08 June To 14 June, 2026
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-weekly-round-up-08-june-to-14-june-2026-538560
 
-[Read on Telegram](https://t.me/livelawindia/113191)
-
----
-### 2026-06-20T13:50:07+00:00
-2026 LiveLaw (SC) 634 |  K. PRAKASHCHAND VERSUS ORIENTAL INSURANCE CO. LTD.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-634-k-prakashchand-versus-oriental-insurance-co-ltd-538492
-
-[Read on Telegram](https://t.me/livelawindia/113192)
+[Read on Telegram](https://t.me/livelawindia/113230)
 
 ---
-### 2026-06-20T13:50:47+00:00
-Oral Statements U/S 200 & 202 CrPC Can't Cure Material Omissions In Protest Petition, Rendering Allegations Doubtful: Allahabad HC
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-oral-statements-200-202-crpc-material-omissions-protest-petition-allegations-doubtful-538493
+### 2026-06-22T09:08:28+00:00
+Ram Mandir Donation Row | Allahabad HC Refuses Urgent Hearing Of PILs Seeking Probe Into 'Misappropriation Of Funds'
+https://www.livelaw.in/high-court/allahabad-high-court/ram-mandir-donation-row-allahabad-hc-refuses-urgent-hearing-fund-embezzlement-pil-538565
 
-[Read on Telegram](https://t.me/livelawindia/113193)
-
----
-### 2026-06-20T14:30:07+00:00
-Supreme Court Imposes ₹2 Lakh Cost On Chhattisgarh For Challenging Compensation To Landowners After Decades-Long Illegal Occupation
-https://www.livelaw.in/supreme-court/supreme-court-imposes-2-lakh-cost-on-chhattisgarh-for-challenging-compensation-to-landowners-after-decades-long-illegal-occupation-538496
-
-[Read on Telegram](https://t.me/livelawindia/113194)
+[Read on Telegram](https://t.me/livelawindia/113231)
 
 ---
-### 2026-06-20T14:31:07+00:00
-2026 LiveLaw (SC) 635 | STATE OF CHHATTISGARH & ORS. VERSUS PARIKSHIT SINGH GUPTA & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-635-state-of-chhattisgarh-ors-versus-parikshit-singh-gupta-ors-538498
+### 2026-06-22T09:16:29+00:00
+Trinamool Congress Moves Calcutta High Court Over Recent Attacks, Egg-Pelting Incidents Against MLAs, MPs
+https://www.livelaw.in/high-court/calcutta-high-court/trinamool-congress-moves-calcutta-high-court-over-recent-attacks-egg-pelting-incidents-against-mlas-mps-538567
 
-[Read on Telegram](https://t.me/livelawindia/113195)
-
----
-### 2026-06-20T14:47:57+00:00
-Debarred Bidder Can't Participate In Tender Even If Contract Period Begins After Debarment Ends: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/debarred-bidder-cant-participate-in-tender-even-if-contract-period-begins-after-debarment-ends-delhi-high-court-538429
-
-[Read on Telegram](https://t.me/livelawindia/113196)
+[Read on Telegram](https://t.me/livelawindia/113232)
 
 ---
-### 2026-06-21T04:32:10+00:00
-LiveLaw Punjab & Haryana High Court Monthly Digest: May 2026
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-monthly-round-up-may-2026-538296
+### 2026-06-22T09:22:49+00:00
+Gujarat High Court Quashes FIR Against Advocate, Finds He Was Falsely Implicated For Representing One Of The Accused
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-lawyer-fir-threatening-complainant-538568
 
-[Read on Telegram](https://t.me/livelawindia/113197)
-
----
-### 2026-06-21T05:32:21+00:00
-Magistrate Can't Reject Negative Final Report Solely Based On Protest Petition: Rajasthan High Court Quashes Cognizance In Rape Case
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-cognizance-rape-case-nonconsideration-final-report-538452
-
-[Read on Telegram](https://t.me/livelawindia/113198)
+[Read on Telegram](https://t.me/livelawindia/113233)
 
 ---
-### 2026-06-21T06:52:34+00:00
-Microfinance Fraud Case: Kerala High Court Warns Of Change In Investigating Officer Noting Delay In Completing Probe
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sndp-microfinance-case-538510
+### 2026-06-22T09:27:29+00:00
+Courts Cannot Compel Plaintiff To Accept Compensation In Lieu Of Injunction When No Such Prayer Made : Supreme Court
+https://www.livelaw.in/supreme-court/courts-cannot-compel-plaintiff-to-accept-compensation-in-lieu-of-injunction-when-no-such-prayer-made-supreme-court-538570
 
-[Read on Telegram](https://t.me/livelawindia/113199)
-
----
-### 2026-06-21T11:36:29+00:00
-NALSA Organises Mega Awareness Programme In Srinagar; Justice Vikram Nath Calls For Strengthening Women's Access To Justice
-https://www.livelaw.in/news-updates/nalsa-organises-mega-awareness-programme-srinagar-justice-vikram-nath-womens-access-justice-538511
-
-[Read on Telegram](https://t.me/livelawindia/113200)
+[Read on Telegram](https://t.me/livelawindia/113234)
 
 ---
-### 2026-06-21T11:53:02+00:00
-NLU Delhi Organises Interactive Session With Ravi Shankar Prasad On New Criminal Laws
-https://www.livelaw.in/lawschool/news/nlu-delhi-organises-interactive-session-with-ravi-shankar-prasad-new-criminal-laws-538512
+### 2026-06-22T09:28:49+00:00
+2026 LiveLaw (SC) 637 | RAJAT KUMAR AND OTHERS v. S D ADARSH JAIN KANYA MAHA VIDYALAYA SADHAURA AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-637-rajat-kumar-and-others-v-s-d-adarsh-jain-kanya-maha-vidyalaya-sadhaura-and-others-538571
 
-[Read on Telegram](https://t.me/livelawindia/113201)
-
----
-### 2026-06-21T13:17:54+00:00
-Tushar Mehta Reappointed As Solicitor General For Three More Years; Centre Extends Tenure Of ASGs
-https://www.livelaw.in/top-stories/tushar-mehta-reappointed-as-solicitor-general-for-three-more-years-centre-extends-tenure-of-asgs-538513
-
-[Read on Telegram](https://t.me/livelawindia/113202)
+[Read on Telegram](https://t.me/livelawindia/113235)
 
 ---
-### 2026-06-22T04:19:15+00:00
-Senior Associate Vacancy At UnitedLex India Private Limited
-https://www.livelaw.in/job-updates/senior-associate-vacancy-at-unitedlex-india-private-limited-538515
+### 2026-06-22T09:29:49+00:00
+Calcutta High Court Declines Urgent Hearing To Trinamool Congress In Plea Challenging Freezing Of Bank Accounts
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-declines-urgent-hearing-to-trinamool-congress-in-plea-challenging-freezing-of-bank-accounts-538572
 
-[Read on Telegram](https://t.me/livelawindia/113203)
-
----
-### 2026-06-22T04:20:55+00:00
-Multiple Vacancies At The Department Of Social Welfare And Women And Child Development, DNH & DD [Apply Now]
-https://www.livelaw.in/job-updates/multiple-vacancies-at-the-department-of-social-welfare-and-women-and-child-development-dnh-dd-538516
-
-[Read on Telegram](https://t.me/livelawindia/113204)
+[Read on Telegram](https://t.me/livelawindia/113236)
 
 ---
-### 2026-06-22T04:28:15+00:00
-Law Officers Vacancy At Various Courts In Coimbatore District
-https://www.livelaw.in/job-updates/law-officers-vacancy-at-various-courts-in-coimbatore-district-538517
+### 2026-06-22T09:31:49+00:00
+"Give Quietus To This": Madras High Court Suggests Mediation To Resolve Thiruparankundram Karthigai Deepam Dispute
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-thiruparankundram-deepam-quietus-why-keep-matter-alive-538573
 
-[Read on Telegram](https://t.me/livelawindia/113205)
-
----
-### 2026-06-22T04:31:35+00:00
-Project Assistant Vacancy At Indian Institute Of Technology, Kanpur
-https://www.livelaw.in/job-updates/project-assistant-vacancy-at-indian-institute-of-technology-kanpur-538518
-
-[Read on Telegram](https://t.me/livelawindia/113206)
+[Read on Telegram](https://t.me/livelawindia/113237)
 
 ---
-### 2026-06-22T04:37:15+00:00
-LiveLaw Kerala High Court Weekly Roundup: June 15 to June 21, 2026
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-weekly-roundup-june-2026-538520
+### 2026-06-22T10:01:39+00:00
+Defective Appeals, Extinguished Rights: Supreme Court's New Limitation Doctrine Under IBC
+https://www.livelaw.in/lawschool/articles/defective-appeals-extinguished-rights-supreme-court-new-limitation-doctrine-3ibc-538576
 
-[Read on Telegram](https://t.me/livelawindia/113207)
+[Read on Telegram](https://t.me/livelawindia/113238)
 
 ---
-### 2026-06-22T04:45:35+00:00
-Hyderabad Court Grants Interim Bail To Bandi Bageerath In POCSO Case To Appear For Exams
-https://www.livelaw.in/news-updates/bandi-bageerath-interim-bail-pocso-case-538523
+### 2026-06-22T10:23:59+00:00
+Insurance Claim Cannot Be Repudiated Solely On Basis Of Unsubstantiated Surveyor's Report: Kupwara District Commission
+https://www.livelaw.in/consumer-cases/insurance-claim-cannot-be-repudiated-solely-on-basis-of-unsubstantiated-surveyors-report-kupwara-district-commission-538581
 
-[Read on Telegram](https://t.me/livelawindia/113208)
+[Read on Telegram](https://t.me/livelawindia/113239)
+
+---
+### 2026-06-22T10:31:49+00:00
+MP High Court Makes SC/ST Act Compensation Conditional On Victim's Undertaking Not To Compromise With Accused
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/scst-atrocities-rules-victim-turn-hostile-after-receiving-compensation-538582
+
+[Read on Telegram](https://t.me/livelawindia/113240)
+
+---
+### 2026-06-22T10:33:09+00:00
+LiveLaw Madras High Court Weekly Roundup: June 15 to June 21, 2026
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-june-15-to-june-21-2026-538539
+
+[Read on Telegram](https://t.me/livelawindia/113241)
+
+---
+### 2026-06-22T11:13:09+00:00
+Supreme Court Stays Order Granting Rs. 10 Lakh Compensation To Man Illegally Arrested By UP Police
+https://www.livelaw.in/top-stories/supreme-court-stays-order-granting-rs-10-lakh-compensation-to-man-illegally-arrested-by-up-police-538590
+
+[Read on Telegram](https://t.me/livelawindia/113242)
+
+---
+### 2026-06-22T11:14:49+00:00
+Police Acted In Biased Manner: Madras High Court Orders CBCID Probe Into Attack On Senior Advocate By Quarry Operators' Representatives
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-cbcid-probe-attack-senior-advocate-quarry-operators-representatives-538592
+
+[Read on Telegram](https://t.me/livelawindia/113243)
+
+---
+### 2026-06-22T11:32:40+00:00
+Kerala High Court Upholds Drugs Controller's Power To Restrict Misleading Discount Boards At Medical Shops
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-drugs-controller-curb-misleading-discount-advertisements-pharmacies-538593
+
+[Read on Telegram](https://t.me/livelawindia/113244)
+
+---
+### 2026-06-22T11:41:40+00:00
+Allahabad HC Acquits Rape Accused Who Spent 9 Yrs In Jail; Cites Inconsistencies In 8 Y/O Victim's Testimony, No Medical Evidence
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-acquits-rape-accused-9-years-jail-inconsistencies-child-victim-testimony-no-medical-evidence-538599
+
+[Read on Telegram](https://t.me/livelawindia/113245)
+
+---
+### 2026-06-22T11:47:20+00:00
+Woman Married In MP Can't Rely On Caste Certificate Issued By Native State To Claim Reservation In Public Employment: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/women-reservation-after-marriage-in-another-state-caste-certificate-538595
+
+[Read on Telegram](https://t.me/livelawindia/113246)
+
+---
+### 2026-06-22T12:03:00+00:00
+Bomb Blast In Passenger Train Is An 'Accident' Under Railways Act; Railways Liable To Pay Compensation: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/railways-liable-compensation-passenger-train-bomb-blast-538597
+
+[Read on Telegram](https://t.me/livelawindia/113247)
+
+---
+### 2026-06-22T12:10:20+00:00
+Kerala High Court Bars Construction Of Commercial Kiosks On Kochi's Queen's Walkway, Cites Pedestrians' Right To Unobstructed Access
+https://www.livelaw.in/high-court/kerala-high-court/pedestrians-right-to-footpath-kochi-queens-walkway-commercial-kiosks-gida-marine-drive-538602
+
+[Read on Telegram](https://t.me/livelawindia/113248)
 
 ---
