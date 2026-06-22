@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-20T10:22:44+00:00*
+*Last Updated: 2026-06-20T11:33:15+00:00*
 
 ---
 
-### 2026-06-20T10:22:44+00:00
-Manipur HC Quashes Preventive Detention Order, Says Fixing Time Limit For Making Representation Violates Article 22(5) Of Constitution
-https://www.livelaw.in/high-court/manipur-high-court/manipur-high-court-quashes-nsa-detention-order-time-limit-538427
-
-[Read on Telegram](https://t.me/livelawindia/113183)
-
----
-### 2026-06-20T10:34:04+00:00
-Associate Advocate (Civil & Criminal Litigation) Vacancy At GDC Legal Consultants LLP [Apply Now]
-https://www.livelaw.in/job-updates/associate-advocate-civil-criminal-litigation-vacancy-at-gdc-legal-consultants-llp-538480
-
-[Read on Telegram](https://t.me/livelawindia/113184)
-
----
-### 2026-06-20T10:37:25+00:00
-Failure To Check Police Brutality Could Make It 'Like Nazi Germany': Patna HC Orders FIR Against SHO For Alleged Custodial Torture
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-police-brutality-orders-fir-against-sho-538432
-
-[Read on Telegram](https://t.me/livelawindia/113185)
-
----
-### 2026-06-20T10:52:25+00:00
-Dowry Deaths : How Supreme Court Has Repeatedly Raised Concerns Over Continuing Dowry Menace
-https://www.livelaw.in/top-stories/dowry-deaths-how-supreme-court-has-repeatedly-raised-concerns-over-continuing-dowry-menace-538381
-
-[Read on Telegram](https://t.me/livelawindia/113186)
-
----
-### 2026-06-20T11:02:15+00:00
-AP High Court Quashes ₹5 Crore Demand Against PSU, Says Dispute Over Meter Recording Must Be Referred To Electricity Inspector
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-quashes-demand-raised-apepdcl-against-rinl-psu-538476
-
-[Read on Telegram](https://t.me/livelawindia/113187)
-
----
-### 2026-06-20T11:18:55+00:00
-High Court Advocates' Association Seek Elevation Of Telangana Origin Advocates As Judges
-https://www.livelaw.in/news-updates/telangana-high-court-advocates-association-elevation-of-judges-protest-538482
-
-[Read on Telegram](https://t.me/livelawindia/113188)
-
----
 ### 2026-06-20T11:33:15+00:00
 S. 457 CrPC | Magistrate Can't Unilaterally Cancel Interim Release Of Seized Property Without Giving Opportunity Of Hearing: Orissa High Court
 https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-magistrate-unilaterally-cancel-interim-release-vehicle-538477
@@ -142,5 +100,47 @@ Tushar Mehta Reappointed As Solicitor General For Three More Years; Centre Exten
 https://www.livelaw.in/top-stories/tushar-mehta-reappointed-as-solicitor-general-for-three-more-years-centre-extends-tenure-of-asgs-538513
 
 [Read on Telegram](https://t.me/livelawindia/113202)
+
+---
+### 2026-06-22T04:19:15+00:00
+Senior Associate Vacancy At UnitedLex India Private Limited
+https://www.livelaw.in/job-updates/senior-associate-vacancy-at-unitedlex-india-private-limited-538515
+
+[Read on Telegram](https://t.me/livelawindia/113203)
+
+---
+### 2026-06-22T04:20:55+00:00
+Multiple Vacancies At The Department Of Social Welfare And Women And Child Development, DNH & DD [Apply Now]
+https://www.livelaw.in/job-updates/multiple-vacancies-at-the-department-of-social-welfare-and-women-and-child-development-dnh-dd-538516
+
+[Read on Telegram](https://t.me/livelawindia/113204)
+
+---
+### 2026-06-22T04:28:15+00:00
+Law Officers Vacancy At Various Courts In Coimbatore District
+https://www.livelaw.in/job-updates/law-officers-vacancy-at-various-courts-in-coimbatore-district-538517
+
+[Read on Telegram](https://t.me/livelawindia/113205)
+
+---
+### 2026-06-22T04:31:35+00:00
+Project Assistant Vacancy At Indian Institute Of Technology, Kanpur
+https://www.livelaw.in/job-updates/project-assistant-vacancy-at-indian-institute-of-technology-kanpur-538518
+
+[Read on Telegram](https://t.me/livelawindia/113206)
+
+---
+### 2026-06-22T04:37:15+00:00
+LiveLaw Kerala High Court Weekly Roundup: June 15 to June 21, 2026
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-weekly-roundup-june-2026-538520
+
+[Read on Telegram](https://t.me/livelawindia/113207)
+
+---
+### 2026-06-22T04:45:35+00:00
+Hyderabad Court Grants Interim Bail To Bandi Bageerath In POCSO Case To Appear For Exams
+https://www.livelaw.in/news-updates/bandi-bageerath-interim-bail-pocso-case-538523
+
+[Read on Telegram](https://t.me/livelawindia/113208)
 
 ---
