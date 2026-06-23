@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-22T12:03:00+00:00*
+*Last Updated: 2026-06-23T05:33:47+00:00*
 
 ---
 
-### 2026-06-22T12:03:00+00:00
-Bomb Blast In Passenger Train Is An 'Accident' Under Railways Act; Railways Liable To Pay Compensation: Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/railways-liable-compensation-passenger-train-bomb-blast-538597
+### 2026-06-23T05:33:47+00:00
+'Go To Calcutta HC' : Supreme Court In Plea Against West Bengal Govt Move To Deny Ration For SIR-Excluded
+https://www.livelaw.in/top-stories/go-to-calcutta-hc-supreme-court-in-plea-against-west-bengal-govt-move-to-deny-ration-for-sir-excluded-538663
 
-[Read on Telegram](https://t.me/livelawindia/113247)
-
----
-### 2026-06-22T12:10:20+00:00
-Kerala High Court Bars Construction Of Commercial Kiosks On Kochi's Queen's Walkway, Cites Pedestrians' Right To Unobstructed Access
-https://www.livelaw.in/high-court/kerala-high-court/pedestrians-right-to-footpath-kochi-queens-walkway-commercial-kiosks-gida-marine-drive-538602
-
-[Read on Telegram](https://t.me/livelawindia/113248)
+[Read on Telegram](https://t.me/livelawindia/113278)
 
 ---
-### 2026-06-22T12:22:50+00:00
-Bringing SOP For Expediting Prosecution In Crimes Against Women And Children: State Informs Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-state-sop-expediting-prosecution-crime-against-women-children-538603
+### 2026-06-23T05:40:48+00:00
+Rajasthan High Court Orders Inquiry Into Alleged Record Manipulation At Service Tribunal
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-alleged-manipulation-tribunal-records-538664
 
-[Read on Telegram](https://t.me/livelawindia/113249)
-
----
-### 2026-06-22T12:43:50+00:00
-Transfer To Accommodate Another Employee Doesn't Establish Malafide; Employee Can Be Transferred While On Study Leave: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/service-transfer-accommodate-another-employee-on-study-leave-538605
-
-[Read on Telegram](https://t.me/livelawindia/113250)
+[Read on Telegram](https://t.me/livelawindia/113279)
 
 ---
-### 2026-06-22T13:09:10+00:00
-Madras High Court Directs Tamil Nadu, Puducherry Govts To Report Steps Taken To Remove Stray Dogs From Public Places
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-stray-dog-suo-motu-case-report-tamil-nadu-puducherry-538608
+### 2026-06-23T05:56:49+00:00
+NLSIR Institutes Chief Justice E.S. Venkataramiah Memorial Best Essay Prize
+https://www.livelaw.in/events/national-law-school-of-india-university-chief-justice-es-venkataramiah-essay-prize-538665
 
-[Read on Telegram](https://t.me/livelawindia/113251)
-
----
-### 2026-06-22T13:27:40+00:00
-"Why Are You Opposing Adoption By Family Members?" Supreme Court Questions CARA Over Objection To US-Based Aunt Adopting Child
-https://www.livelaw.in/top-stories/why-are-you-opposing-adoption-by-family-members-supreme-court-questions-cara-over-objection-to-us-based-aunt-adopting-child-538611
-
-[Read on Telegram](https://t.me/livelawindia/113252)
+[Read on Telegram](https://t.me/livelawindia/113280)
 
 ---
-### 2026-06-22T13:29:00+00:00
-LiveLaw Punjab & Haryana High Court Weekly Round-Up: June 15 to June 21, 2026
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-weekly-round-up-june-15-june-21-2026-538612
+### 2026-06-23T06:26:39+00:00
+Pension Is A Proprietary Right; Can't Be Withheld Without Proven Grave Misconduct: Madhya Pradesh High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/mp-civil-services-rules-misconduct-must-for-withholding-pension-538666
 
-[Read on Telegram](https://t.me/livelawindia/113253)
-
----
-### 2026-06-22T13:41:40+00:00
-Bombay High Court Pulls Up Maharashtra Govt Over Drinking Water Crisis, Says Progressive State Cannot Give Excuses
-https://www.livelaw.in/high-court/bombay-high-court/drinking-water-shortage-maharashtra-govt-melghat-tribal-area-538613
-
-[Read on Telegram](https://t.me/livelawindia/113254)
+[Read on Telegram](https://t.me/livelawindia/113281)
 
 ---
-### 2026-06-22T14:02:40+00:00
-P&H High Court Directs 7th Pay Commission Benefits For National Health Mission Contractual Employees In Haryana
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/haryana-national-health-mission-contractual-employees-7th-pay-commission-benefits-538616
+### 2026-06-23T06:32:59+00:00
+Speedy Justice Requires All Stakeholders To Act With Due Diligence: Uttarakhand HC Directs State To Assist Trial Courts In Long-Pending Trials
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-hc-prolonged-delay-criminal-trials-prejudice-538632
 
-[Read on Telegram](https://t.me/livelawindia/113255)
-
----
-### 2026-06-22T14:33:11+00:00
-When Does Electoral Supervision Become Electoral Lawmaking? Shrinking Space Of Article 327
-https://www.livelaw.in/lawschool/articles/electoral-supervision-electoral-lawmaking-shrinking-space-article-327-538591
-
-[Read on Telegram](https://t.me/livelawindia/113256)
+[Read on Telegram](https://t.me/livelawindia/113282)
 
 ---
-### 2026-06-22T15:04:31+00:00
-P&H High Court Quashes EPFO Circular Mandating Pro-Rata Pension For Higher Wage Employees, Holds It Contrary To EPS Scheme
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/provident-fund-epfo-pro-rata-pension-higher-wage-employees-contrary-to-pension-scheme-538622
+### 2026-06-23T06:48:19+00:00
+Zubeen Garg Death Case : Supreme Court Issues Notice On Bail Plea Of Event Organiser
+https://www.livelaw.in/top-stories/zubeen-garg-death-case-supreme-court-issues-notice-on-bail-plea-of-event-organiser-538667
 
-[Read on Telegram](https://t.me/livelawindia/113257)
-
----
-### 2026-06-22T15:07:41+00:00
-Calcutta High Court Weekly Round-Up 16 June To 21 June, 2026
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-weekly-round-up-16-june-to-21-june-2026-538623
-
-[Read on Telegram](https://t.me/livelawindia/113258)
+[Read on Telegram](https://t.me/livelawindia/113283)
 
 ---
-### 2026-06-22T15:11:01+00:00
-CPIM(L) Moves Calcutta High Court Challenging WB Govt's 'Blanket Re-Verification' Of 1.69 Crore Caste Certificates
-https://www.livelaw.in/high-court/calcutta-high-court/cpim-challenges-blanket-re-verification-of-169-crore-caste-certificates-before-calcutta-high-court-alleges-illegal-link-to-sir-538626
+### 2026-06-23T06:52:19+00:00
+Plea Of Private Partition Pursuant To Arbitral Award Raises Triable Issue; Plaint Cannot Be Rejected Under Order VII Rule 11 CPC: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-plea-of-private-partition-pursuant-to-arbitral-award-raises-triable-issue-plaint-cannot-be-rejected-under-order-vii-rule-11-cpc-538629
 
-[Read on Telegram](https://t.me/livelawindia/113259)
-
----
-### 2026-06-22T15:18:41+00:00
-'Street Vendors May Lose Sole Means Of Livelihood': PIL In Calcutta High Court Seeks Action Against Alleged Illegal Evictions
-https://www.livelaw.in/high-court/calcutta-high-court/street-vendors-may-lose-sole-means-of-livelihood-pil-in-calcutta-high-court-seeks-action-against-alleged-illegal-evictions-538628
-
-[Read on Telegram](https://t.me/livelawindia/113260)
+[Read on Telegram](https://t.me/livelawindia/113284)
 
 ---
-### 2026-06-22T15:28:51+00:00
-Election Petition Cannot Be Rejected Under Order VII Rule 11 CPC Merely Because Accompanying Affidavit Is Defective: Uttarakhand HC
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-election-petition-rejected-orderviirule11-cpc-538637
+### 2026-06-23T06:52:29+00:00
+Delhi High Court Refuses To Quash Show Cause Notice Proposing CAG Audit Of BSES Discoms
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-to-quash-show-cause-notice-proposing-cag-audit-of-bses-discoms-538635
 
-[Read on Telegram](https://t.me/livelawindia/113261)
-
----
-### 2026-06-22T15:29:41+00:00
-'Child Needs More Time To Acclimatise': Delhi High Court Sets Aside Family Court Order Granting Father Overnight Custody Of Minor
-https://www.livelaw.in/high-court/delhi-high-court/child-needs-more-time-to-acclimatise-delhi-high-court-sets-aside-family-court-order-granting-father-overnight-custody-of-minor-538638
-
-[Read on Telegram](https://t.me/livelawindia/113262)
+[Read on Telegram](https://t.me/livelawindia/113285)
 
 ---
-### 2026-06-22T15:38:01+00:00
-Govt Doctors Engaging In Private Practice Serious Issue : Supreme Court Refuses To Interfere With Probe
-https://www.livelaw.in/top-stories/govt-doctors-engaging-in-private-practice-serious-issue-supreme-court-refuses-to-interfere-with-probe-538642
+### 2026-06-23T07:02:59+00:00
+Social Media Must Regulate Intimidating Posts: Karnataka High Court While Denying Bail To 4 Over 'Obscene Posts' Against Darshan's Wife
+https://www.livelaw.in/high-court/karnataka-high-court/darshans-wife-obscene-posts-social-media-no-bail-538670
 
-[Read on Telegram](https://t.me/livelawindia/113263)
-
----
-### 2026-06-22T17:02:02+00:00
-Child's Future Not Safe With Mother Who Fails In “Pious Duties” Towards Husband: Pune Court
-https://www.livelaw.in/news-updates/child-custody-unsafe-with-mother-failed-duties-towards-husband-538644
-
-[Read on Telegram](https://t.me/livelawindia/113264)
+[Read on Telegram](https://t.me/livelawindia/113286)
 
 ---
-### 2026-06-23T03:32:24+00:00
-Review Petition Seeking Mere Clarification To Prevent Procedural Ambiguity Can Be Entertained: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-review-application-seeking-clarification-allowed-538609
+### 2026-06-23T07:03:10+00:00
+Supreme Court Stays Premature Release Of TADA Convict In 1993 Bowbazar Blast Case
+https://www.livelaw.in/top-stories/supreme-court-stays-premature-release-of-tada-convict-in-1993-bowbazar-blast-case-538669
 
-[Read on Telegram](https://t.me/livelawindia/113265)
+[Read on Telegram](https://t.me/livelawindia/113287)
 
 ---
-### 2026-06-23T03:52:45+00:00
-No Trade Licence Needed To Register Partnership Firm Of Advocates Under Partnership Act: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/no-trade-licence-needed-to-register-partnership-firm-of-advocates-under-partnership-act-calcutta-high-court-538645
+### 2026-06-23T07:10:09+00:00
+MP High Court Slams 'Poor Functioning' Of Cyber Crime Cells, Orders De-Freezing Of Bank Account
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/defreeze-bank-account-cyber-fraud-irresponsible-conduct-of-cybercrime-cells-538675
 
-[Read on Telegram](https://t.me/livelawindia/113266)
+[Read on Telegram](https://t.me/livelawindia/113288)
+
+---
+### 2026-06-23T07:26:09+00:00
+Karnataka High Court Directs Oil Marketing Companies To Consider Distillery's Plea For Enhanced Ethanol Supply Allocation
+https://www.livelaw.in/high-court/delhi-high-court/bharat-petroleum-hindustan-petroleum-indian-oil-corporation-limited-consider-ethanol-allocation-enhancement-538677
+
+[Read on Telegram](https://t.me/livelawindia/113289)
+
+---
+### 2026-06-23T07:43:30+00:00
+Promise To Marry After Initial Sexual Assault Cannot Shield Accused: Calcutta High Court Upholds Rape Conviction
+https://www.livelaw.in/high-court/calcutta-high-court/promise-to-marry-after-initial-sexual-assault-cannot-shield-accused-calcutta-high-court-upholds-rape-conviction-538678
+
+[Read on Telegram](https://t.me/livelawindia/113290)
+
+---
+### 2026-06-23T07:47:10+00:00
+Authority Determining Compensation Under NH Act Cannot Question Correctness Of Circle Rate Fixed By Collector: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-authority-determining-compensation-national-highway-act-538634
+
+[Read on Telegram](https://t.me/livelawindia/113291)
+
+---
+### 2026-06-23T07:56:40+00:00
+Family Courts Are Duty Bound To Accept 'Mubarat' Divorce Of Muslim Couple: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-muslim-couple-divorce-mubaraat-538680
+
+[Read on Telegram](https://t.me/livelawindia/113292)
+
+---
+### 2026-06-23T08:34:40+00:00
+'Wind Can't Change With Change In Govt': Former Minister KN Nehru Opposes TN Govt's Move To Withdraw Review Of Order Directing FIR Against Him
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-kn-nehru-state-cant-approbate-reprobate-dmk-tvk-538684
+
+[Read on Telegram](https://t.me/livelawindia/113293)
+
+---
+### 2026-06-23T08:47:50+00:00
+Printing "Maha Value" On Pepsi Bottles Not 'Misbranding' Under Food Safety Act Unless Proven To Be Misleading: Uttarakhand HC
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-quashes-penalty-pepsico-printing-maha-value-snack-packets-538636
+
+[Read on Telegram](https://t.me/livelawindia/113294)
+
+---
+### 2026-06-23T08:50:10+00:00
+Calcutta High Court Admits Mamata Banerjee's Plea Against Suvendu Adhikari's Poll Win; Orders Preservation Of EVMs, VVPATs & CCTV Footage
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-admits-mamata-banerjees-plea-against-suvendu-adhikaris-poll-win-orders-preservation-of-evms-vvpats-cctv-footage-538688
+
+[Read on Telegram](https://t.me/livelawindia/113295)
+
+---
+### 2026-06-23T08:52:10+00:00
+Law Doesn't Require Eyewitnesses To Sign Inquest Report; Testimony Unaffected If Their Names Absent From Police Papers: Allahabad HC
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-law-eyewitnesses-sign-inquest-report-testimony-unaffected-police-papers-murder-conviction-538689
+
+[Read on Telegram](https://t.me/livelawindia/113296)
+
+---
+### 2026-06-23T09:31:12+00:00
+Criminal Justice System In India With A Special Reference To Investigative Mechanisms
+https://www.livelaw.in/articles/criminal-justice-system-india-special-reference-investigative-mechanisms-538691
+
+[Read on Telegram](https://t.me/livelawindia/113297)
 
 ---
