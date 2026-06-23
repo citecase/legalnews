@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-23T09:31:12+00:00*
+*Last Updated: 2026-06-23T12:32:43+00:00*
 
 ---
 
-### 2026-06-23T09:31:12+00:00
-Criminal Justice System In India With A Special Reference To Investigative Mechanisms
-https://www.livelaw.in/articles/criminal-justice-system-india-special-reference-investigative-mechanisms-538691
-
-[Read on Telegram](https://t.me/livelawindia/113297)
-
----
-### 2026-06-23T09:53:22+00:00
-Suspension From Business Dealings Cannot Be Ordered Without Hearing: Delhi High Court Sets Aside NTPC Action Against Solar Company
-https://www.livelaw.in/high-court/delhi-high-court/suspension-from-business-dealings-cannot-be-ordered-without-hearing-delhi-high-court-sets-aside-ntpc-action-against-solar-company-538639
-
-[Read on Telegram](https://t.me/livelawindia/113298)
-
----
-### 2026-06-23T10:20:42+00:00
-After 47 Years, Gujarat High Court Holds Baroda's Narsinhji Temple As Public Trust; Rejects Claim By Late Priest's Son Over Temple Properties
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-narsinhji-temple-public-trust-late-priest-property-538694
-
-[Read on Telegram](https://t.me/livelawindia/113299)
-
----
-### 2026-06-23T11:16:32+00:00
-M.P. State Legal Services Authority Launches Week-long Yoga Campaign For Inmate Well-being Ahead Of International Day Of Yoga 2026
-https://www.livelaw.in/events/mp-state-legal-services-authority-launches-week-long-yoga-campaign-538702
-
-[Read on Telegram](https://t.me/livelawindia/113300)
-
----
-### 2026-06-23T11:35:12+00:00
-Plea In MP High Court Seeks CBI Probe Into Woman Advocate's Alleged Dowry Death
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-female-advocate-father-plea-cbi-probe-dowry-harassment-death-538706
-
-[Read on Telegram](https://t.me/livelawindia/113301)
-
----
-### 2026-06-23T11:47:42+00:00
-Private Criminal Contempt Plea Without AG Consent Can Be Placed Before Chief Justice As 'Information' For Suo Motu Action: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/private-criminal-contempt-plea-without-ag-consent-before-chief-justice-538707
-
-[Read on Telegram](https://t.me/livelawindia/113302)
-
----
-### 2026-06-23T12:03:03+00:00
-'We Can't Shut Our Eyes': Kerala High Court Seeks Centre's Plan To Tackle Environmental Impact Of MSC Elsa 3 Wreckage
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-msc-elsa-3-wreckage-oil-spill-pil-centre-environment-action-plan-538709
-
-[Read on Telegram](https://t.me/livelawindia/113303)
-
----
-### 2026-06-23T12:17:23+00:00
-Kerala High Court Sets Aside KAT Order Allowing Dr Reena KJ To Continue As Director Of Health Services Despite Transfer
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-dr-reena-kj-health-dhs-538711
-
-[Read on Telegram](https://t.me/livelawindia/113304)
-
----
 ### 2026-06-23T12:32:43+00:00
 Family Of Authorised Catering Hawker Who Fell From Train Entitled To Compensation Under Railways Act: Gujarat High Court
 https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-authorised-hawker-catering-service-compensation-railways-538714
@@ -142,5 +86,61 @@ Messi Fiasco: Calcutta High Court Adjourns Hearing On Challenge To Aroop Biswas'
 https://www.livelaw.in/high-court/calcutta-high-court/messi-fiasco-calcutta-high-court-adjourns-hearing-on-challenge-to-aroop-biswas-interim-protection-extends-relief-till-july-2-538734
 
 [Read on Telegram](https://t.me/livelawindia/113316)
+
+---
+### 2026-06-23T15:12:35+00:00
+[Goa Municipalities Act] Power To Remove Councillor Exclusively With Govt, Cannot Be Delegated To Director Of Municipality: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-quasi-judicial-power-remove-municipal-councillor-538723
+
+[Read on Telegram](https://t.me/livelawindia/113317)
+
+---
+### 2026-06-23T15:33:05+00:00
+Jammu & Kashmir And Ladakh High Court Weekly Roundup June 15 - June 21, 2026
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-weekly-roundup-june-15-june-21-2026-538640
+
+[Read on Telegram](https://t.me/livelawindia/113318)
+
+---
+### 2026-06-23T15:34:25+00:00
+Supreme Courts Of India & Russia Sign MoU On Judicial Cooperation
+https://www.livelaw.in/top-stories/supreme-courts-of-india-russia-sign-mou-on-judicial-cooperation-538738
+
+[Read on Telegram](https://t.me/livelawindia/113319)
+
+---
+### 2026-06-23T15:52:25+00:00
+Assistant Charity Commissioner Cannot Interfere With Ongoing Trust Elections U/S 41A Of Maharashtra Public Trusts Act: High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-assistant-charity-commissioner-trust-elections-section41a-maharashtra-public-trusts-act-538724
+
+[Read on Telegram](https://t.me/livelawindia/113320)
+
+---
+### 2026-06-23T15:59:25+00:00
+Bombay High Court Allows Termination Of 26-Week Pregnancy Considering Severe Fetal Anomalies, Mother's Financial Hardship
+https://www.livelaw.in/high-court/bombay-high-court/26-weeks-pregnancy-termination-fetal-anomalies-mother-financial-hardship-538740
+
+[Read on Telegram](https://t.me/livelawindia/113321)
+
+---
+### 2026-06-23T16:22:15+00:00
+Claimant's Guilty Plea To Rash Driving Acts As Admission Of Negligence, Disentitles Him To Accident Compensation: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-rash-driving-negligence-disentitles-motor-accident-compensation-538727
+
+[Read on Telegram](https://t.me/livelawindia/113322)
+
+---
+### 2026-06-23T18:41:56+00:00
+ASM Law Chambers Expands Presence With New Office In Mumbai
+https://www.livelaw.in/law-firms/deals/asm-law-chambers-expands-presence-with-new-office-mumbai-538741
+
+[Read on Telegram](https://t.me/livelawindia/113323)
+
+---
+### 2026-06-23T19:02:16+00:00
+Allahabad High Court's Lucknow Bench Organises Special Yoga Session To Mark 12th International Yoga Day
+https://www.livelaw.in/events/allahabad-high-courts-lucknow-bench-organises-special-yoga-session-to-mark-12th-international-yoga-day-538742
+
+[Read on Telegram](https://t.me/livelawindia/113324)
 
 ---
