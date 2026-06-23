@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-22T11:41:40+00:00*
+*Last Updated: 2026-06-22T12:03:00+00:00*
 
 ---
 
-### 2026-06-22T11:41:40+00:00
-Allahabad HC Acquits Rape Accused Who Spent 9 Yrs In Jail; Cites Inconsistencies In 8 Y/O Victim's Testimony, No Medical Evidence
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-acquits-rape-accused-9-years-jail-inconsistencies-child-victim-testimony-no-medical-evidence-538599
-
-[Read on Telegram](https://t.me/livelawindia/113245)
-
----
-### 2026-06-22T11:47:20+00:00
-Woman Married In MP Can't Rely On Caste Certificate Issued By Native State To Claim Reservation In Public Employment: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/women-reservation-after-marriage-in-another-state-caste-certificate-538595
-
-[Read on Telegram](https://t.me/livelawindia/113246)
-
----
 ### 2026-06-22T12:03:00+00:00
 Bomb Blast In Passenger Train Is An 'Accident' Under Railways Act; Railways Liable To Pay Compensation: Punjab & Haryana High Court
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/railways-liable-compensation-passenger-train-bomb-blast-538597
@@ -142,5 +128,19 @@ Child's Future Not Safe With Mother Who Fails In “Pious Duties” Towards Husb
 https://www.livelaw.in/news-updates/child-custody-unsafe-with-mother-failed-duties-towards-husband-538644
 
 [Read on Telegram](https://t.me/livelawindia/113264)
+
+---
+### 2026-06-23T03:32:24+00:00
+Review Petition Seeking Mere Clarification To Prevent Procedural Ambiguity Can Be Entertained: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-review-application-seeking-clarification-allowed-538609
+
+[Read on Telegram](https://t.me/livelawindia/113265)
+
+---
+### 2026-06-23T03:52:45+00:00
+No Trade Licence Needed To Register Partnership Firm Of Advocates Under Partnership Act: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/no-trade-licence-needed-to-register-partnership-firm-of-advocates-under-partnership-act-calcutta-high-court-538645
+
+[Read on Telegram](https://t.me/livelawindia/113266)
 
 ---
