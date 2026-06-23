@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-16T14:02:50+00:00*
+*Last Updated: 2026-06-23T15:32:57+00:00*
+
+---
+
+### 2026-06-23T15:32:57+00:00
+Licensing Authority Can Require Pharmacies To Undertake Not To Display Misleading Discount Boards While Seeking Drug Licence: Kerala High Court
+https://www.verdictum.in/kerala-high-court/ms-pharmadude-pharmacy-connected-cases-v-state-of-kerala-ors-2026ker44187-1616492
+
+[Source Link](https://t.me/verdictumlegalupdates/27587)
+
+---
+
+### 2026-06-23T14:43:16+00:00
+Classification Based On Sex Permissible If Founded On Additional Considerations: Kerala High Court Upholds Free KSRTC Travel Scheme For Women, Transgender Persons
+https://www.verdictum.in/kerala-high-court/muhammed-firdouz-v-state-of-kerala-anr-2026ker44884-free-travel-women-1616483
+
+[Source Link](https://t.me/verdictumlegalupdates/27586)
+
+---
+
+### 2026-06-23T13:52:34+00:00
+Bombay High Court Orders Cyber Cell Probe Into "Extremely Grave" Allegations Of Forged Court Orders
+https://www.verdictum.in/bombay-high-court/cyber-cell-probe-extremely-grave-allegations-forged-court-orders-1616482
+
+[Source Link](https://t.me/verdictumlegalupdates/27585)
 
 ---
 
@@ -137,30 +161,6 @@ Law Officer Vacancy At Gujarat Panchayat Service Selection Board (GPSSB)
 https://www.verdictum.in/job-updates/gujarat-panchayat-service-selection-board-1615971
 
 [Source Link](https://t.me/verdictumlegalupdates/27568)
-
----
-
-### 2026-06-15T15:52:45+00:00
-Jharkhand High Court Closes PIL Seeking Health Insurance For Advocates After State Assures Payment Of ₹6k Annual Premium Per Advocate
-https://www.verdictum.in/jharkhand-high-court/bidesh-kumar-dan-v-union-of-india-2026jhhc16211-db-health-insurance-advocates-1615981
-
-[Source Link](https://t.me/verdictumlegalupdates/27567)
-
----
-
-### 2026-06-15T15:22:54+00:00
-Police Cannot Decide Job Suitability: Kerala High Court Quashes Adverse Verification Report Arising From Motor Vehicle Accident Case
-https://www.verdictum.in/kerala-high-court/2026-ker-36571-midhun-m-v-hindustan-latex-limited-lifecare-1615979
-
-[Source Link](https://t.me/verdictumlegalupdates/27566)
-
----
-
-### 2026-06-15T14:52:32+00:00
-Once Man’s Right Is Terminated In His Sister’s Premises, His Wife’s Status Also Becomes No Better Than That Of Trespasser: Delhi High Court
-https://www.verdictum.in/delhi-high-court/shalu-v-meera-batra-2026dhc5085-man-right-terminated-sister-premises-wife-trespasser-1615978
-
-[Source Link](https://t.me/verdictumlegalupdates/27565)
 
 ---
 
