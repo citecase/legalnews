@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-24T09:32:36+00:00*
+*Last Updated: 2026-06-24T15:12:37+00:00*
+
+---
+
+### 2026-06-24T15:12:37+00:00
+All Steps Must Be Taken For Reformation & Rehabilitation: Patna High Court Grants Bail To 14-Yr-Old Boy In POCSO Case
+https://www.verdictum.in/patna-high-court/xxx-v-state-of-bihar-reformation-rehabilitation-child-in-conflict-with-law-pocso-1616565
+
+[Source Link](https://t.me/verdictumlegalupdates/27609)
+
+---
+
+### 2026-06-24T14:43:15+00:00
+Compassionate Circumstances Cannot Override Operational Exigencies Of Armed Forces In Transfer Matters: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/union-of-india-and-others-v-sqn-ldr-deepak-sindhu-2026rj-jd25774-db-operational-exigencies-of-armed-forces-in-transfer-matters-1616564
+
+[Source Link](https://t.me/verdictumlegalupdates/27608)
+
+---
+
+### 2026-06-24T14:12:54+00:00
+High Court Under Article 226 Cannot Rewrite CrPC: Apex Court Sets Aside Guideline Issued To Examine Sanctioning Authority Before Framing Charge
+https://www.verdictum.in/supreme-court/the-state-of-madhya-pradesh-v-ravi-shankar-singh-2026-insc-650-sanctioning-authority-pc-act-1616566
+
+[Source Link](https://t.me/verdictumlegalupdates/27607)
+
+---
+
+### 2026-06-24T13:51:42+00:00
+Presence Of Third Parties To Overhear Abusive Words Makes A Private Place Within Public View Under SC-ST Act: Kerala High Court
+https://www.verdictum.in/kerala-high-court/2026-ker-44540-bhageesh-pooradan-v-state-of-kerala-1616563
+
+[Source Link](https://t.me/verdictumlegalupdates/27606)
+
+---
+
+### 2026-06-24T13:02:36+00:00
+Catering Worker Crossing Train Compartments Not Self-Inflicted Injury To Deprive Bona Fide Passenger Status: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/union-of-india-v-meenadevi-wo-hariprasad-gupta-2026gujhc37610-no-fault-liability-regime-of-section-124-a-railways-act-1616559
+
+[Source Link](https://t.me/verdictumlegalupdates/27605)
+
+---
+
+### 2026-06-24T12:32:14+00:00
+Sentencing Must Be Proportionate To Factual Matrix & Degree Of Criminality: Supreme Court Reduces Sentence In Revenue Document Forgery Case
+https://www.verdictum.in/supreme-court/israfil-pappu-naimuddin-khan-v-state-of-madhya-pradesh-2026-insc-654-sentence-1616557
+
+[Source Link](https://t.me/verdictumlegalupdates/27604)
+
+---
+
+### 2026-06-24T12:03:13+00:00
+Beer & Whisky Are Cognate Goods; 'GODFATHER' Remains Dominant Feature In Composite Mark: Delhi High Court Restrains Cartel Bros Whisky Use
+https://www.verdictum.in/delhi-high-court/devans-modern-breweries-limited-v-cartel-bros-private-limited-2026dhc5156-beer-whisky-cognate-goods-godfather-1616554
+
+[Source Link](https://t.me/verdictumlegalupdates/27603)
+
+---
+
+### 2026-06-24T11:32:32+00:00
+Need Doctors In This Country: Apex Court Refuses To Entertain Plea Alleging Exorbitant Fee Structure In Rajasthan Private Medical Colleges
+https://www.verdictum.in/supreme-court/exorbitant-fee-structure-in-rajasthan-private-medical-colleges-1616553
+
+[Source Link](https://t.me/verdictumlegalupdates/27602)
+
+---
+
+### 2026-06-24T11:03:10+00:00
+Supreme Court To Hear Plea Seeking To Restrain Authorities From Surrendering 152 Vacant In-service Super Speciality Medical Seats
+https://www.verdictum.in/supreme-court/restrain-authorities-from-surrendering-152-vacant-in-service-super-speciality-medical-seats-1616551
+
+[Source Link](https://t.me/verdictumlegalupdates/27601)
+
+---
+
+### 2026-06-24T10:33:09+00:00
+Functional Disability Affecting Earning Capacity May Be Assessed At Higher Percentage Including 100%: Supreme Court Enhances Mason’s Motor Accident Compensation
+https://www.verdictum.in/supreme-court/m-paramesh-v-vrl-logistics-ltd-2026-insc-655-functional-disability-accident-compensation-1616550
+
+[Source Link](https://t.me/verdictumlegalupdates/27600)
+
+---
+
+### 2026-06-24T10:02:47+00:00
+My Elder Brother Is BJP Spokesperson, It Is My Duty To Tell: Calcutta High Court Judge In Mamata Banerjee’s Election Petition; Her Lawyer Expresses Full Faith In Bench
+https://www.verdictum.in/calcutta-high-court/justice-gaurang-kanth-kalayan-banerjee-mamata-banerjee-election-petition-suvendu-adkhikari-1616547
+
+[Source Link](https://t.me/verdictumlegalupdates/27599)
 
 ---
 
@@ -73,94 +161,6 @@ IBC Moratorium Cannot Override MOFA Deemed Conveyance; Developer Has No Title Af
 https://www.verdictum.in/bombay-high-court/darshan-mandir-co-operative-housing-society-limited-v-district-deputy-registrar-co-operative-society-mumbai-writ-petition-no-16318-of-2025-1616520
 
 [Source Link](https://t.me/verdictumlegalupdates/27590)
-
----
-
-### 2026-06-24T05:02:23+00:00
-Arbitrariness Can Never Masquerade As Discretion: Karnataka High Court Orders Against Ethanol Procurement By Oil Marketing Companies
-https://www.verdictum.in/karnataka-high-court/ethanol-procurement-by-oil-marketing-companies-1616515
-
-[Source Link](https://t.me/verdictumlegalupdates/27589)
-
----
-
-### 2026-06-24T04:32:32+00:00
-Parliament Alone Can Amend Scheduled Castes List; Courts Cannot Declare Castes As Synonyms: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/chandra-shekhar-nishad-v-union-of-india-2026ahc-lko41629-db-nishad-kewat-mallah-bind-being-synonyms-of-majhwar-1616509
-
-[Source Link](https://t.me/verdictumlegalupdates/27588)
-
----
-
-### 2026-06-23T15:32:57+00:00
-Licensing Authority Can Require Pharmacies To Undertake Not To Display Misleading Discount Boards While Seeking Drug Licence: Kerala High Court
-https://www.verdictum.in/kerala-high-court/ms-pharmadude-pharmacy-connected-cases-v-state-of-kerala-ors-2026ker44187-1616492
-
-[Source Link](https://t.me/verdictumlegalupdates/27587)
-
----
-
-### 2026-06-23T14:43:16+00:00
-Classification Based On Sex Permissible If Founded On Additional Considerations: Kerala High Court Upholds Free KSRTC Travel Scheme For Women, Transgender Persons
-https://www.verdictum.in/kerala-high-court/muhammed-firdouz-v-state-of-kerala-anr-2026ker44884-free-travel-women-1616483
-
-[Source Link](https://t.me/verdictumlegalupdates/27586)
-
----
-
-### 2026-06-23T13:52:34+00:00
-Bombay High Court Orders Cyber Cell Probe Into "Extremely Grave" Allegations Of Forged Court Orders
-https://www.verdictum.in/bombay-high-court/cyber-cell-probe-extremely-grave-allegations-forged-court-orders-1616482
-
-[Source Link](https://t.me/verdictumlegalupdates/27585)
-
----
-
-### 2026-06-16T14:02:50+00:00
-Candidates Not At Fault: Supreme Court Orders TNPSC To Finalize Motor Vehicle Inspector Recruitment After Workshop Re-Verification
-https://www.verdictum.in/supreme-court/2026-insc-645-s-senthil-kumaran-bose-v-state-of-tamil-nadu-1616046
-
-[Source Link](https://t.me/verdictumlegalupdates/27584)
-
----
-
-### 2026-06-16T13:32:29+00:00
-Mere Pendency Of Criminal Proceeding No Reason For Withholding Of Final MBBS Pass Certificate: Gauhati High Court
-https://www.verdictum.in/guwahati-high-court/walia-murshida-huda-v-the-state-of-assam-2026gau-as8358-pendency-mbbs-pass-certificate-1616044
-
-[Source Link](https://t.me/verdictumlegalupdates/27583)
-
----
-
-### 2026-06-16T13:02:28+00:00
-Cancelling Entire Examination Doesn’t Pass Muster Of Wednesbury Principles: Gauhati High Court In Chief Law Assistant Recruitment Case
-https://www.verdictum.in/guwahati-high-court/shri-ranjeet-kumar-v-the-union-of-india-2026gau-as7343-db-examination-wednesbury-principles-1616039
-
-[Source Link](https://t.me/verdictumlegalupdates/27582)
-
----
-
-### 2026-06-16T12:33:06+00:00
-Supreme Court Directs Odisha Govt To Ensure Social Security Benefits To Visually Impaired Man & His 80-Yr-Old Mother
-https://www.verdictum.in/supreme-court/odisha-govt-to-ensure-social-security-benefits-to-visually-impaired-man-his-80-yr-old-mother-1616036
-
-[Source Link](https://t.me/verdictumlegalupdates/27581)
-
----
-
-### 2026-06-16T12:02:25+00:00
-If Woman Knows Of Man’s Existing Marriage, His Promise To Marry Cannot Amount To "Deceitful Means" U/S 69 BNS: Kerala High Court
-https://www.verdictum.in/kerala-high-court/akhil-n-r-v-state-of-kerala-2026ker41967-where-woman-is-aware-of-mans-existing-marriage-not-deceitful-means-us-69-bns-1616034
-
-[Source Link](https://t.me/verdictumlegalupdates/27580)
-
----
-
-### 2026-06-16T11:32:43+00:00
-Supreme Court Refuses To Entertain Plea Seeking Regulations To Control Urban Infra Around Airports & Alleging infrastructure Hazard
-https://www.verdictum.in/supreme-court/plea-seeking-regulations-to-control-urban-infra-around-airports-refused-1616033
-
-[Source Link](https://t.me/verdictumlegalupdates/27579)
 
 ---
 
