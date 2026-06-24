@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-24T10:47:40+00:00*
+*Last Updated: 2026-06-24T12:14:51+00:00*
 
 ---
 
-### 2026-06-24T10:47:40+00:00
-Attachment Of Accused's Property U/S 107 BNSS Requires Strict Judicial Scrutiny, Cannot Be Recovery Mechanism: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/attachment-of-property-us-107-bnss-requires-strict-judicial-scrutiny-cannot-become-recovery-mechanism-calcutta-high-court-538818
-
-[Read on Telegram](https://t.me/livelawindia/113366)
-
----
-### 2026-06-24T11:31:00+00:00
-Article 300A | State Can't Deprive Citizen Of Property Merely Because Old Revenue Records Are Missing: Madhya Pradesh High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/lost-government-records-cant-deprive-citizen-property-rights-article-300a-constitution-538823
-
-[Read on Telegram](https://t.me/livelawindia/113367)
-
----
-### 2026-06-24T11:41:21+00:00
-Elected Representatives Must Swear Only In Name Of God Or Solemnly Affirm; Can't Invoke Specific Deities: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/statutory-oath-cannot-be-expanded-beyond-god-cant-name-religious-deities-538824
-
-[Read on Telegram](https://t.me/livelawindia/113368)
-
----
-### 2026-06-24T11:51:31+00:00
-Section 66E IT Act | Clicking Photos Of Question Paper During Exam & Sending It Via WhatsApp Not Violation Of Privacy: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/sending-question-paper-photos-whatsapp-not-privacy-violation-section-66e-it-act-538827
-
-[Read on Telegram](https://t.me/livelawindia/113369)
-
----
-### 2026-06-24T12:02:31+00:00
-Can State Minority Commission Pass Eviction Orders? Kerala High Court Answers
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-minority-commission-eviction-order-538828
-
-[Read on Telegram](https://t.me/livelawindia/113370)
-
----
-### 2026-06-24T12:10:31+00:00
-Research Fellow (Law) Vacancy At Lal Bahadur Shastri National Academy Of Administration, Mussoorie [Apply Now]
-https://www.livelaw.in/job-updates/research-fellow-law-vacancy-at-lal-bahadur-shastri-national-academy-of-administration-mussoorie-538831
-
-[Read on Telegram](https://t.me/livelawindia/113371)
-
----
-### 2026-06-24T12:11:31+00:00
-Central Zoo Authority Forms Expert Panel On Zoo Safety After Hippopotamus Kills Trainee Veterinarian; Karnataka High Court Closes PIL
-https://www.livelaw.in/high-court/karnataka-high-court/wild-animal-attacks-staff-doctors-zoo-safety-sop-expert-committee-538832
-
-[Read on Telegram](https://t.me/livelawindia/113372)
-
----
 ### 2026-06-24T12:14:51+00:00
 'Duty To Disclose Brother Is BJP Spokesperson': Calcutta High Court Judge In Mamata Banerjee's Election Petition, TMC Expresses Full Faith
 https://www.livelaw.in/high-court/calcutta-high-court/duty-to-disclose-brother-is-bjp-spokesperson-calcutta-high-court-judge-in-mamata-banerjees-election-petition-tmc-expresses-full-faith-538833
@@ -142,5 +93,54 @@ A Legislative Commentary On 2026 Delimitation Framework
 https://www.livelaw.in/articles/legislative-commentary-2026delimitation-framework-538811
 
 [Read on Telegram](https://t.me/livelawindia/113385)
+
+---
+### 2026-06-24T14:42:32+00:00
+District Courts Have No Power To Direct CBI Investigation: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-district-courts-direct-cbi-investigation-disagrees-contrary-gujarat-hc-538846
+
+[Read on Telegram](https://t.me/livelawindia/113386)
+
+---
+### 2026-06-24T14:52:12+00:00
+Absence Of Sperm On Seized Pants Does Not Make Rape Victim's Statement Unreliable: J&K&L High Court Cancels Bail
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-absence-of-spermatozoa-on-seized-trouser-does-not-make-prosecutrixs-statement-unreliable-if-it-is-otherwise-of-sterling-quality-court-cancels-bail-in-rape-case-538840
+
+[Read on Telegram](https://t.me/livelawindia/113387)
+
+---
+### 2026-06-24T15:00:32+00:00
+Can Delay Defeat Statutory Remedies? Re Examining Open Offer Directions Under SEBI Takeover Code
+https://www.livelaw.in/articles/delay-defeat-statutory-remedies-reexamining-open-offer-directions-sebi-takeover-code-538872
+
+[Read on Telegram](https://t.me/livelawindia/113388)
+
+---
+### 2026-06-24T15:01:12+00:00
+Haryana Civil Services: Punjab & Haryana High Court Refuses To Interfere With Preliminary Exam Result, Upholds Final Answer Key
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/haryana-civil-services-preliminary-exam-result-final-answer-key-upheld-538873
+
+[Read on Telegram](https://t.me/livelawindia/113389)
+
+---
+### 2026-06-24T15:32:33+00:00
+Preventive Detention Cannot Be Invoked Without Explaining Why Section 129 BNSS Proceedings Are Insufficient: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-preventive-detention-cannot-be-invoked-without-explaining-why-section-129-bnss-proceedings-are-insufficient-538844
+
+[Read on Telegram](https://t.me/livelawindia/113390)
+
+---
+### 2026-06-24T15:56:23+00:00
+Only Parliament Can Modify SC List: Allahabad High Court Rejects Plea To Treat Nishad, Kevat As Synonyms Of 'Majhwar' Caste
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-parliament-scheduled-castes-list-nishad-kevat-mallah-bind-synonyms-majhwar-538882
+
+[Read on Telegram](https://t.me/livelawindia/113391)
+
+---
+### 2026-06-24T16:02:43+00:00
+Absconding Accused Declared As 'Proclaimed Offender' Cannot Maintain Quashing Petition Through Power Of Attorney: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-absconding-accused-proclaimed-offender-section482-crpc-538845
+
+[Read on Telegram](https://t.me/livelawindia/113392)
 
 ---
