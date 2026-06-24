@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-23T15:32:57+00:00*
+*Last Updated: 2026-06-24T04:32:32+00:00*
+
+---
+
+### 2026-06-24T04:32:32+00:00
+Parliament Alone Can Amend Scheduled Castes List; Courts Cannot Declare Castes As Synonyms: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/chandra-shekhar-nishad-v-union-of-india-2026ahc-lko41629-db-nishad-kewat-mallah-bind-being-synonyms-of-majhwar-1616509
+
+[Source Link](https://t.me/verdictumlegalupdates/27588)
 
 ---
 
@@ -153,14 +161,6 @@ Court Should Issue Notice To Bailer Or Bailable Warrant Against Accused Before I
 https://www.verdictum.in/orissa-high-court/trinath-guru-and-another-v-state-of-orissa-magistrate-court-notice-nbwa-1615980
 
 [Source Link](https://t.me/verdictumlegalupdates/27569)
-
----
-
-### 2026-06-15T16:23:06+00:00
-Law Officer Vacancy At Gujarat Panchayat Service Selection Board (GPSSB)
-https://www.verdictum.in/job-updates/gujarat-panchayat-service-selection-board-1615971
-
-[Source Link](https://t.me/verdictumlegalupdates/27568)
 
 ---
 
