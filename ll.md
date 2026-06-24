@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-24T05:57:52+00:00*
+*Last Updated: 2026-06-24T10:47:40+00:00*
 
 ---
 
-### 2026-06-24T05:57:52+00:00
-Long Lapse Of Time Without Similar Criminal Conduct Relevant While Moulding Sentence: Supreme Court
-https://www.livelaw.in/supreme-court/long-lapse-of-time-without-similar-criminal-conduct-relevant-while-moulding-sentence-supreme-court-538773
+### 2026-06-24T10:47:40+00:00
+Attachment Of Accused's Property U/S 107 BNSS Requires Strict Judicial Scrutiny, Cannot Be Recovery Mechanism: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/attachment-of-property-us-107-bnss-requires-strict-judicial-scrutiny-cannot-become-recovery-mechanism-calcutta-high-court-538818
 
-[Read on Telegram](https://t.me/livelawindia/113341)
-
----
-### 2026-06-24T05:58:52+00:00
-2026 LiveLaw (SC) 638 | ISRAFIL @ PAPPU @ NAIMUDDIN KHAN VERSUS STATE OF MADHYA PRADESH
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-638-israfil-pappu-naimuddin-khan-versus-state-of-madhya-pradesh-538774
-
-[Read on Telegram](https://t.me/livelawindia/113342)
+[Read on Telegram](https://t.me/livelawindia/113366)
 
 ---
-### 2026-06-24T06:19:32+00:00
-Disha Salian Death: Bombay High Court's Justice Ashish Chavan Recuses From Hearing Father's Plea For 'Murder' FIR
-https://www.livelaw.in/high-court/bombay-high-court/disha-salian-death-murder-probe-justice-ashish-chavan-recusal-538775
+### 2026-06-24T11:31:00+00:00
+Article 300A | State Can't Deprive Citizen Of Property Merely Because Old Revenue Records Are Missing: Madhya Pradesh High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/lost-government-records-cant-deprive-citizen-property-rights-article-300a-constitution-538823
 
-[Read on Telegram](https://t.me/livelawindia/113343)
-
----
-### 2026-06-24T06:27:12+00:00
-'Minor Boys Not Safe': Karnataka High Court Says It Will Cancel Vachanananda Swami's Anticipatory Bail In POCSO Case
-https://www.livelaw.in/high-court/karnataka-high-court/vachanananda-swami-pocso-case-anticipatory-bail-cancellation-538776
-
-[Read on Telegram](https://t.me/livelawindia/113344)
+[Read on Telegram](https://t.me/livelawindia/113367)
 
 ---
-### 2026-06-24T07:01:22+00:00
-Karnataka High Court Orders Status Quo On Civic Amenity Site Allotted To Educational Trust Purportedly Linked To MLA
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-status-quo-civic-amenity-site-allotment-congress-mla-pradeep-eshwar-linked-educational-trust-538780
+### 2026-06-24T11:41:21+00:00
+Elected Representatives Must Swear Only In Name Of God Or Solemnly Affirm; Can't Invoke Specific Deities: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/statutory-oath-cannot-be-expanded-beyond-god-cant-name-religious-deities-538824
 
-[Read on Telegram](https://t.me/livelawindia/113345)
-
----
-### 2026-06-24T07:11:22+00:00
-Presence Of Multiple Accused Can Make Private Place 'Within Public View' Under SC/ST Act: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/caste-based-abuse-multiple-person-private-property-public-view-scst-act-538782
-
-[Read on Telegram](https://t.me/livelawindia/113346)
+[Read on Telegram](https://t.me/livelawindia/113368)
 
 ---
-### 2026-06-24T07:23:22+00:00
-Ketan Agarwal Murder Case: Pune Court Remands Accused Fiance, Friend To 7-Day Police Custody
-https://www.livelaw.in/news-updates/pune-court-ketan-agarwal-murder-case-police-custody-remand-7-day-538788
+### 2026-06-24T11:51:31+00:00
+Section 66E IT Act | Clicking Photos Of Question Paper During Exam & Sending It Via WhatsApp Not Violation Of Privacy: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/sending-question-paper-photos-whatsapp-not-privacy-violation-section-66e-it-act-538827
 
-[Read on Telegram](https://t.me/livelawindia/113347)
-
----
-### 2026-06-24T07:38:14+00:00
-Existence Of Regulation Cannot Fetter Legislature's Power To Amend Statute & Override Regulation: Supreme Court
-https://www.livelaw.in/supreme-court/existence-of-regulation-cannot-fetter-legislatures-power-to-amend-statute-override-regulation-supreme-court-538790
-
-[Read on Telegram](https://t.me/livelawindia/113348)
+[Read on Telegram](https://t.me/livelawindia/113369)
 
 ---
-### 2026-06-24T07:39:34+00:00
-2026 LiveLaw (SC) 639 | RAJESH SHARMA v NORTH DELHI MUNICIPAL CORPORATION AND ANR
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-639-rajesh-sharma-v-north-delhi-municipal-corporation-and-anr-538791
+### 2026-06-24T12:02:31+00:00
+Can State Minority Commission Pass Eviction Orders? Kerala High Court Answers
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-minority-commission-eviction-order-538828
 
-[Read on Telegram](https://t.me/livelawindia/113349)
-
----
-### 2026-06-24T07:45:54+00:00
-Motor Accident Claim | Loss Of Right Leg Must Be Treated As 100% Functional Disability For Mason : Supreme Court
-https://www.livelaw.in/supreme-court/motor-accident-claim-loss-of-right-leg-must-be-treated-as-100-functional-disability-for-mason-supreme-court-538792
-
-[Read on Telegram](https://t.me/livelawindia/113350)
+[Read on Telegram](https://t.me/livelawindia/113370)
 
 ---
-### 2026-06-24T07:46:54+00:00
-2026 LiveLaw (SC) 641 | M. Paramesh v. VRL Logistics Ltd. & Anr.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-641-m-paramesh-v-vrl-logistics-ltd-anr-538793
+### 2026-06-24T12:10:31+00:00
+Research Fellow (Law) Vacancy At Lal Bahadur Shastri National Academy Of Administration, Mussoorie [Apply Now]
+https://www.livelaw.in/job-updates/research-fellow-law-vacancy-at-lal-bahadur-shastri-national-academy-of-administration-mussoorie-538831
 
-[Read on Telegram](https://t.me/livelawindia/113351)
-
----
-### 2026-06-24T08:06:14+00:00
-Can Remarriage During Pendency Of A Delay-Condoned Divorce Appeal Be Treated As Void? Kerala High Court Explains
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-bigamy-subsequent-marriage-appeal-pendency-538794
-
-[Read on Telegram](https://t.me/livelawindia/113352)
+[Read on Telegram](https://t.me/livelawindia/113371)
 
 ---
-### 2026-06-24T08:43:24+00:00
-Renukaswamy Murder Case: Karnataka High Court To Decide Whether Prosecution Can Cross-Examine Own Witness Without Declaring Her Hostile
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-renukaswamy-murder-state-cross-examining-prosecution-538795
+### 2026-06-24T12:11:31+00:00
+Central Zoo Authority Forms Expert Panel On Zoo Safety After Hippopotamus Kills Trainee Veterinarian; Karnataka High Court Closes PIL
+https://www.livelaw.in/high-court/karnataka-high-court/wild-animal-attacks-staff-doctors-zoo-safety-sop-expert-committee-538832
 
-[Read on Telegram](https://t.me/livelawindia/113353)
-
----
-### 2026-06-24T08:58:04+00:00
-MBBS | 'Private Medical Colleges Will Close If Forced To Charge Only Govt Fee' : Supreme Court Rejects EWS Student's Plea
-https://www.livelaw.in/top-stories/supreme-court-neet-ug-ews-candidate-plea-against-high-tuition-fees-in-rajasthan-private-medical-colleges-dismissed-asked-to-get-scholarship-538796
-
-[Read on Telegram](https://t.me/livelawindia/113354)
+[Read on Telegram](https://t.me/livelawindia/113372)
 
 ---
-### 2026-06-24T09:14:54+00:00
-Kerala High Court Rejects Election Petition Filed By CPI(M)'s AM Ariff Against Congress MP KC Venugopal's Lok Sabha Win From Alappuzha
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-election-petition-congress-kc-venugopal-538799
+### 2026-06-24T12:14:51+00:00
+'Duty To Disclose Brother Is BJP Spokesperson': Calcutta High Court Judge In Mamata Banerjee's Election Petition, TMC Expresses Full Faith
+https://www.livelaw.in/high-court/calcutta-high-court/duty-to-disclose-brother-is-bjp-spokesperson-calcutta-high-court-judge-in-mamata-banerjees-election-petition-tmc-expresses-full-faith-538833
 
-[Read on Telegram](https://t.me/livelawindia/113355)
-
----
-### 2026-06-24T09:20:34+00:00
-Supreme Court Allows Petitioner To Approach Calcutta High Court Against West Bengal Govt Move To Deny Ration To SIR-Excluded Persons
-https://www.livelaw.in/top-stories/supreme-court-allows-petitioner-to-approach-calcutta-high-court-against-west-bengal-govt-move-to-deny-ration-to-sir-excluded-persons-538801
-
-[Read on Telegram](https://t.me/livelawindia/113356)
+[Read on Telegram](https://t.me/livelawindia/113373)
 
 ---
-### 2026-06-24T09:32:34+00:00
-Ecofeminism And Climate Justice: Why Environmental Law Must Centre Women's Voices
-https://www.livelaw.in/articles/ecofeminism-climate-justice-environmental-law-women-voices-538802
+### 2026-06-24T12:22:52+00:00
+'Animals Are Not Chattels': Karnataka High Court Quashes Order Returning Rescued Dogs To Alleged Abuser
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-order-returning-dogs-to-perpetrator-animal-cruelty-538835
 
-[Read on Telegram](https://t.me/livelawindia/113357)
-
----
-### 2026-06-24T09:32:44+00:00
-Madhya Pradesh High Court Grants Bail To CRPF Constable In Govt Job Scam Case, Orders ₹15 Lakh Deposit
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/crpf-constable-bail-false-promise-of-government-job-15-lakh-deposit-538800
-
-[Read on Telegram](https://t.me/livelawindia/113358)
+[Read on Telegram](https://t.me/livelawindia/113374)
 
 ---
-### 2026-06-24T09:36:14+00:00
-Registered Sale Deed Presumed  Valid; Minor Discrepancy In Attestation Witness Details Won't Invalidate Execution : Supreme Court
-https://www.livelaw.in/supreme-court/registered-sale-deed-presumed-valid-minor-discrepancy-in-attestation-witness-details-wont-invalidate-execution-supreme-court-538805
+### 2026-06-24T12:30:32+00:00
+Delay In Deciding Custody Matters Causes Prejudice To Child: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/delay-in-child-custody-matters-causes-prejudice-to-child-delhi-high-court-538838
 
-[Read on Telegram](https://t.me/livelawindia/113359)
+[Read on Telegram](https://t.me/livelawindia/113375)
 
 ---
-### 2026-06-24T09:37:54+00:00
-2026 LiveLaw (SC) 642 | Sarafat Ali (Dead) Through LRs & Ors. v. Deputy Director of Consolidation, Haridwar & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-642-sarafat-ali-dead-through-lrs-ors-v-deputy-director-of-consolidation-haridwar-ors-538806
+### 2026-06-24T12:32:12+00:00
+Calcutta High Court Directs Dental College To Refund ₹9.5 Lakh, Return Documents To Student Who Left Course After 6 Days
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-directs-college-to-refund-95-lakh-return-documents-to-student-who-left-course-after-6-days-538821
 
-[Read on Telegram](https://t.me/livelawindia/113360)
+[Read on Telegram](https://t.me/livelawindia/113376)
+
+---
+### 2026-06-24T12:35:12+00:00
+Railways Cannot Evict Unauthorised Encroachers Through General Notice, Without Due Process Of Law: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-railways-evict-unauthorised-general-administrative-notices-538842
+
+[Read on Telegram](https://t.me/livelawindia/113377)
+
+---
+### 2026-06-24T12:43:02+00:00
+MP High Court Upholds Cop's Demotion Under Whom Minor Was Illegally Held & Later Released After Subordinates Took Bribes
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/mp-police-sho-demotion-upheld-negligence-illegal-custodial-detention-of-minor-538836
+
+[Read on Telegram](https://t.me/livelawindia/113378)
+
+---
+### 2026-06-24T13:02:19+00:00
+AP High Court Quashes Cruelty FIR Against Husband, Says Same Evidence That Led To In-Laws' Acquittal Can't Subject Him To Ordeal Of Trial
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-husband-cruelty-498a-ipc-case-quashed-538837
+
+[Read on Telegram](https://t.me/livelawindia/113379)
+
+---
+### 2026-06-24T13:33:09+00:00
+AP High Court Transfers Cheque Bounce Case For 'Convenience' Of Female Accused
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-cheque-bounce-case-transfer-female-accused-convenience-538839
+
+[Read on Telegram](https://t.me/livelawindia/113380)
+
+---
+### 2026-06-24T13:38:09+00:00
+NEET-SS | 'Cut-Off For In-Service Candidates Should Be Lesser': Supreme Court Urges Reduction In Percentile For Govt Doctors
+https://www.livelaw.in/top-stories/supreme-court-tamil-nadu-super-speciality-medical-seats-cutoff-in-service-candidates-should-be-lesser-public-health-service-538856
+
+[Read on Telegram](https://t.me/livelawindia/113381)
+
+---
+### 2026-06-24T13:47:21+00:00
+'No Prima Facie Case Under SC/ST Act': MP High Court Grants Anticipatory Bail To Narmadapuram Bar Association President In Assault Case
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-anticipatory-bail-assault-case-narmadapuram-district-bar-association-president-538857
+
+[Read on Telegram](https://t.me/livelawindia/113382)
+
+---
+### 2026-06-24T14:03:02+00:00
+MP High Court Allows Criminal, Departmental Action Against Revenue Officials For Sleeping Over Govt Land Case For 12 Years
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/govt-land-dispute-state-delay-condonation-12-years-not-allowed-action-against-revenue-officials-538859
+
+[Read on Telegram](https://t.me/livelawindia/113383)
+
+---
+### 2026-06-24T14:17:42+00:00
+Exoneration From Malpractice In Cancelled Exam Does Not Create Vested Right To Appointment In Subsequent Vacancies: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-exoneration-malpractice-cancelled-exam-right-appointment-538843
+
+[Read on Telegram](https://t.me/livelawindia/113384)
+
+---
+### 2026-06-24T14:33:02+00:00
+A Legislative Commentary On 2026 Delimitation Framework
+https://www.livelaw.in/articles/legislative-commentary-2026delimitation-framework-538811
+
+[Read on Telegram](https://t.me/livelawindia/113385)
 
 ---
