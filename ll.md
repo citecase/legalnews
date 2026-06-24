@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-23T13:18:34+00:00*
+*Last Updated: 2026-06-24T05:57:52+00:00*
 
 ---
 
-### 2026-06-23T13:18:34+00:00
-Manager (Human Resource) And Deputy Project Officer (Human Resource) Vacancy At Hindustan Shipyard Limited [Apply Now]
-https://www.livelaw.in/job-updates/manager-human-resource-and-deputy-project-officer-human-resource-hindustan-shipyard-limited-538726
+### 2026-06-24T05:57:52+00:00
+Long Lapse Of Time Without Similar Criminal Conduct Relevant While Moulding Sentence: Supreme Court
+https://www.livelaw.in/supreme-court/long-lapse-of-time-without-similar-criminal-conduct-relevant-while-moulding-sentence-supreme-court-538773
 
-[Read on Telegram](https://t.me/livelawindia/113310)
-
----
-### 2026-06-23T13:22:34+00:00
-Supreme Court Weekly Roundup: June 08, 2026 To June 14, 2026
-https://www.livelaw.in/round-ups/weekly/supreme-court-weekly-roundup-june-08-2026-to-june-14-2026-538728
-
-[Read on Telegram](https://t.me/livelawindia/113311)
+[Read on Telegram](https://t.me/livelawindia/113341)
 
 ---
-### 2026-06-23T13:43:44+00:00
-Principal Private Secretary, Assistant Director, And Hindi Translator Vacancy At National Commission For Protection Of Child Rights
-https://www.livelaw.in/job-updates/principal-private-secretary-assistant-director-and-hindi-translator-vacancy-at-national-commission-for-protection-of-child-rights-538729
+### 2026-06-24T05:58:52+00:00
+2026 LiveLaw (SC) 638 | ISRAFIL @ PAPPU @ NAIMUDDIN KHAN VERSUS STATE OF MADHYA PRADESH
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-638-israfil-pappu-naimuddin-khan-versus-state-of-madhya-pradesh-538774
 
-[Read on Telegram](https://t.me/livelawindia/113312)
-
----
-### 2026-06-23T14:05:24+00:00
-Section 348 BNSS | Power To Recall Witness Should Not Be Used To Confer Second Innings To Negligent Litigant: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-section-348-bnss-recall-witness-no-second-inning-negligent-litigant-538732
-
-[Read on Telegram](https://t.me/livelawindia/113313)
+[Read on Telegram](https://t.me/livelawindia/113342)
 
 ---
-### 2026-06-23T14:22:44+00:00
-Delay In Investigation Not A Ground To Quash Corruption FIR Unless Accused Shows Prejudice To Fair Trial: HP High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-delay-investigation-ground-quash-corruption-fir-538722
+### 2026-06-24T06:19:32+00:00
+Disha Salian Death: Bombay High Court's Justice Ashish Chavan Recuses From Hearing Father's Plea For 'Murder' FIR
+https://www.livelaw.in/high-court/bombay-high-court/disha-salian-death-murder-probe-justice-ashish-chavan-recusal-538775
 
-[Read on Telegram](https://t.me/livelawindia/113314)
-
----
-### 2026-06-23T14:33:04+00:00
-Insurers Without Insurance: OSH Code's Paradox
-https://www.livelaw.in/articles/insurers-insurance-osh-code-paradox-538710
-
-[Read on Telegram](https://t.me/livelawindia/113315)
+[Read on Telegram](https://t.me/livelawindia/113343)
 
 ---
-### 2026-06-23T14:33:34+00:00
-Messi Fiasco: Calcutta High Court Adjourns Hearing On Challenge To Aroop Biswas' Interim Protection, Extends Relief Till July 2
-https://www.livelaw.in/high-court/calcutta-high-court/messi-fiasco-calcutta-high-court-adjourns-hearing-on-challenge-to-aroop-biswas-interim-protection-extends-relief-till-july-2-538734
+### 2026-06-24T06:27:12+00:00
+'Minor Boys Not Safe': Karnataka High Court Says It Will Cancel Vachanananda Swami's Anticipatory Bail In POCSO Case
+https://www.livelaw.in/high-court/karnataka-high-court/vachanananda-swami-pocso-case-anticipatory-bail-cancellation-538776
 
-[Read on Telegram](https://t.me/livelawindia/113316)
-
----
-### 2026-06-23T15:12:35+00:00
-[Goa Municipalities Act] Power To Remove Councillor Exclusively With Govt, Cannot Be Delegated To Director Of Municipality: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-quasi-judicial-power-remove-municipal-councillor-538723
-
-[Read on Telegram](https://t.me/livelawindia/113317)
+[Read on Telegram](https://t.me/livelawindia/113344)
 
 ---
-### 2026-06-23T15:33:05+00:00
-Jammu & Kashmir And Ladakh High Court Weekly Roundup June 15 - June 21, 2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-weekly-roundup-june-15-june-21-2026-538640
+### 2026-06-24T07:01:22+00:00
+Karnataka High Court Orders Status Quo On Civic Amenity Site Allotted To Educational Trust Purportedly Linked To MLA
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-status-quo-civic-amenity-site-allotment-congress-mla-pradeep-eshwar-linked-educational-trust-538780
 
-[Read on Telegram](https://t.me/livelawindia/113318)
-
----
-### 2026-06-23T15:34:25+00:00
-Supreme Courts Of India & Russia Sign MoU On Judicial Cooperation
-https://www.livelaw.in/top-stories/supreme-courts-of-india-russia-sign-mou-on-judicial-cooperation-538738
-
-[Read on Telegram](https://t.me/livelawindia/113319)
+[Read on Telegram](https://t.me/livelawindia/113345)
 
 ---
-### 2026-06-23T15:52:25+00:00
-Assistant Charity Commissioner Cannot Interfere With Ongoing Trust Elections U/S 41A Of Maharashtra Public Trusts Act: High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-assistant-charity-commissioner-trust-elections-section41a-maharashtra-public-trusts-act-538724
+### 2026-06-24T07:11:22+00:00
+Presence Of Multiple Accused Can Make Private Place 'Within Public View' Under SC/ST Act: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/caste-based-abuse-multiple-person-private-property-public-view-scst-act-538782
 
-[Read on Telegram](https://t.me/livelawindia/113320)
-
----
-### 2026-06-23T15:59:25+00:00
-Bombay High Court Allows Termination Of 26-Week Pregnancy Considering Severe Fetal Anomalies, Mother's Financial Hardship
-https://www.livelaw.in/high-court/bombay-high-court/26-weeks-pregnancy-termination-fetal-anomalies-mother-financial-hardship-538740
-
-[Read on Telegram](https://t.me/livelawindia/113321)
+[Read on Telegram](https://t.me/livelawindia/113346)
 
 ---
-### 2026-06-23T16:22:15+00:00
-Claimant's Guilty Plea To Rash Driving Acts As Admission Of Negligence, Disentitles Him To Accident Compensation: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-rash-driving-negligence-disentitles-motor-accident-compensation-538727
+### 2026-06-24T07:23:22+00:00
+Ketan Agarwal Murder Case: Pune Court Remands Accused Fiance, Friend To 7-Day Police Custody
+https://www.livelaw.in/news-updates/pune-court-ketan-agarwal-murder-case-police-custody-remand-7-day-538788
 
-[Read on Telegram](https://t.me/livelawindia/113322)
-
----
-### 2026-06-23T18:41:56+00:00
-ASM Law Chambers Expands Presence With New Office In Mumbai
-https://www.livelaw.in/law-firms/deals/asm-law-chambers-expands-presence-with-new-office-mumbai-538741
-
-[Read on Telegram](https://t.me/livelawindia/113323)
+[Read on Telegram](https://t.me/livelawindia/113347)
 
 ---
-### 2026-06-23T19:02:16+00:00
-Allahabad High Court's Lucknow Bench Organises Special Yoga Session To Mark 12th International Yoga Day
-https://www.livelaw.in/events/allahabad-high-courts-lucknow-bench-organises-special-yoga-session-to-mark-12th-international-yoga-day-538742
+### 2026-06-24T07:38:14+00:00
+Existence Of Regulation Cannot Fetter Legislature's Power To Amend Statute & Override Regulation: Supreme Court
+https://www.livelaw.in/supreme-court/existence-of-regulation-cannot-fetter-legislatures-power-to-amend-statute-override-regulation-supreme-court-538790
 
-[Read on Telegram](https://t.me/livelawindia/113324)
-
----
-### 2026-06-24T02:59:49+00:00
-Joint Advisor Vacancy At Telecom Regulatory Authority Of India, New Delhi
-https://www.livelaw.in/job-updates/joint-advisor-vacancy-at-telecom-regulatory-authority-of-india-new-delhi-538744
-
-[Read on Telegram](https://t.me/livelawindia/113325)
+[Read on Telegram](https://t.me/livelawindia/113348)
 
 ---
-### 2026-06-24T03:06:19+00:00
-Public Prosecutor, Additional Public Prosecutor And Other Law Officers Vacancy At Various Courts, Krishnagiri District
-https://www.livelaw.in/job-updates/public-prosecutor-additional-public-prosecutor-and-other-law-officers-vacancy-at-various-courts-krishnagiri-district-538745
+### 2026-06-24T07:39:34+00:00
+2026 LiveLaw (SC) 639 | RAJESH SHARMA v NORTH DELHI MUNICIPAL CORPORATION AND ANR
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-639-rajesh-sharma-v-north-delhi-municipal-corporation-and-anr-538791
 
-[Read on Telegram](https://t.me/livelawindia/113326)
-
----
-### 2026-06-24T03:07:40+00:00
-Manager And Deputy Manager Vacancy At Telecommunications Consultants India Limited
-https://www.livelaw.in/job-updates/manager-and-deputy-manager-vacancy-at-telecommunications-consultants-india-limited-538746
-
-[Read on Telegram](https://t.me/livelawindia/113327)
+[Read on Telegram](https://t.me/livelawindia/113349)
 
 ---
-### 2026-06-24T03:12:20+00:00
-Executive (Data Privacy And Ethics) Vacancy At KPMG India [Bangalore; Apply Now]
-https://www.livelaw.in/job-updates/executive-data-privacy-and-ethics-vacancy-at-kpmg-india-bangalore-538747
+### 2026-06-24T07:45:54+00:00
+Motor Accident Claim | Loss Of Right Leg Must Be Treated As 100% Functional Disability For Mason : Supreme Court
+https://www.livelaw.in/supreme-court/motor-accident-claim-loss-of-right-leg-must-be-treated-as-100-functional-disability-for-mason-supreme-court-538792
 
-[Read on Telegram](https://t.me/livelawindia/113328)
+[Read on Telegram](https://t.me/livelawindia/113350)
 
 ---
-### 2026-06-24T03:32:20+00:00
-National Interest Prevail Over Individual Convenience: Rajasthan High Court Upholds IAF Officer's Transfer Despite Parents' Medical Hardship
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-national-interest-armed-forces-transfers-538739
+### 2026-06-24T07:46:54+00:00
+2026 LiveLaw (SC) 641 | M. Paramesh v. VRL Logistics Ltd. & Anr.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-641-m-paramesh-v-vrl-logistics-ltd-anr-538793
 
-[Read on Telegram](https://t.me/livelawindia/113329)
+[Read on Telegram](https://t.me/livelawindia/113351)
+
+---
+### 2026-06-24T08:06:14+00:00
+Can Remarriage During Pendency Of A Delay-Condoned Divorce Appeal Be Treated As Void? Kerala High Court Explains
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-bigamy-subsequent-marriage-appeal-pendency-538794
+
+[Read on Telegram](https://t.me/livelawindia/113352)
+
+---
+### 2026-06-24T08:43:24+00:00
+Renukaswamy Murder Case: Karnataka High Court To Decide Whether Prosecution Can Cross-Examine Own Witness Without Declaring Her Hostile
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-renukaswamy-murder-state-cross-examining-prosecution-538795
+
+[Read on Telegram](https://t.me/livelawindia/113353)
+
+---
+### 2026-06-24T08:58:04+00:00
+MBBS | 'Private Medical Colleges Will Close If Forced To Charge Only Govt Fee' : Supreme Court Rejects EWS Student's Plea
+https://www.livelaw.in/top-stories/supreme-court-neet-ug-ews-candidate-plea-against-high-tuition-fees-in-rajasthan-private-medical-colleges-dismissed-asked-to-get-scholarship-538796
+
+[Read on Telegram](https://t.me/livelawindia/113354)
+
+---
+### 2026-06-24T09:14:54+00:00
+Kerala High Court Rejects Election Petition Filed By CPI(M)'s AM Ariff Against Congress MP KC Venugopal's Lok Sabha Win From Alappuzha
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-election-petition-congress-kc-venugopal-538799
+
+[Read on Telegram](https://t.me/livelawindia/113355)
+
+---
+### 2026-06-24T09:20:34+00:00
+Supreme Court Allows Petitioner To Approach Calcutta High Court Against West Bengal Govt Move To Deny Ration To SIR-Excluded Persons
+https://www.livelaw.in/top-stories/supreme-court-allows-petitioner-to-approach-calcutta-high-court-against-west-bengal-govt-move-to-deny-ration-to-sir-excluded-persons-538801
+
+[Read on Telegram](https://t.me/livelawindia/113356)
+
+---
+### 2026-06-24T09:32:34+00:00
+Ecofeminism And Climate Justice: Why Environmental Law Must Centre Women's Voices
+https://www.livelaw.in/articles/ecofeminism-climate-justice-environmental-law-women-voices-538802
+
+[Read on Telegram](https://t.me/livelawindia/113357)
+
+---
+### 2026-06-24T09:32:44+00:00
+Madhya Pradesh High Court Grants Bail To CRPF Constable In Govt Job Scam Case, Orders ₹15 Lakh Deposit
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/crpf-constable-bail-false-promise-of-government-job-15-lakh-deposit-538800
+
+[Read on Telegram](https://t.me/livelawindia/113358)
+
+---
+### 2026-06-24T09:36:14+00:00
+Registered Sale Deed Presumed  Valid; Minor Discrepancy In Attestation Witness Details Won't Invalidate Execution : Supreme Court
+https://www.livelaw.in/supreme-court/registered-sale-deed-presumed-valid-minor-discrepancy-in-attestation-witness-details-wont-invalidate-execution-supreme-court-538805
+
+[Read on Telegram](https://t.me/livelawindia/113359)
+
+---
+### 2026-06-24T09:37:54+00:00
+2026 LiveLaw (SC) 642 | Sarafat Ali (Dead) Through LRs & Ors. v. Deputy Director of Consolidation, Haridwar & Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-642-sarafat-ali-dead-through-lrs-ors-v-deputy-director-of-consolidation-haridwar-ors-538806
+
+[Read on Telegram](https://t.me/livelawindia/113360)
 
 ---
