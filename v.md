@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-24T15:12:37+00:00*
+*Last Updated: 2026-06-24T16:02:58+00:00*
+
+---
+
+### 2026-06-24T16:02:58+00:00
+Panel Advocate Vacancy At Rajkot Municipal Corporation (RMC)
+https://www.verdictum.in/job-updates/rajkot-municipal-corporation-1616560
+
+[Source Link](https://t.me/verdictumlegalupdates/27610)
 
 ---
 
@@ -153,14 +161,6 @@ https://www.verdictum.in/supreme-court/sarafat-ali-v-deputy-director-of-consolid
 https://www.verdictum.in/supreme-court/mohammed-khaleel-d-through-lrs-ors-v-jayamma-2026-insc-651-specific-relief-1616522
 
 [Source Link](https://t.me/verdictumlegalupdates/27591)
-
----
-
-### 2026-06-24T05:32:44+00:00
-IBC Moratorium Cannot Override MOFA Deemed Conveyance; Developer Has No Title After Selling Flats: Bombay High Court
-https://www.verdictum.in/bombay-high-court/darshan-mandir-co-operative-housing-society-limited-v-district-deputy-registrar-co-operative-society-mumbai-writ-petition-no-16318-of-2025-1616520
-
-[Source Link](https://t.me/verdictumlegalupdates/27590)
 
 ---
 
