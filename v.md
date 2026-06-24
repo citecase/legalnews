@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-24T04:32:32+00:00*
+*Last Updated: 2026-06-24T09:32:36+00:00*
+
+---
+
+### 2026-06-24T09:32:36+00:00
+Oaths Taken By Councillors In Names Of Political Martyrs & Leaders, Local Deities And Other Persons Invalid: Kerala High Court
+https://www.verdictum.in/kerala-high-court/sp-deepak-v-kerala-state-election-commissioner-ors-and-connected-matter-2026ker45209-1616546
+
+[Source Link](https://t.me/verdictumlegalupdates/27598)
+
+---
+
+### 2026-06-24T09:03:14+00:00
+Junior Officer Cannot Be Given Graver Punishment Than His Superior Who Forced Him Into Misdemeanour: Himachal Pradesh High Court
+https://www.verdictum.in/himachal-high-court/a-v-union-of-india-lpa-no24-of-2018-junior-cannot-be-given-graver-punishment-than-superior-officer-itbp-illicit-1616544
+
+[Source Link](https://t.me/verdictumlegalupdates/27597)
+
+---
+
+### 2026-06-24T08:32:33+00:00
+"Hymen Absent" Equivalent To "Hymen Ruptured" To Establish Penetrative Sexual Assault: Kerala High Court Upholds POCSO Conviction
+https://www.verdictum.in/kerala-high-court/ashin-chacko-v-state-of-kerala-2026ker45786-hymen-absent-legally-equivalent-to-hymen-ruptured-consensual-inter-faith-relationship-pocso-1616539
+
+[Source Link](https://t.me/verdictumlegalupdates/27596)
+
+---
+
+### 2026-06-24T08:02:52+00:00
+Motor Accident Compensation Can't Be Founded On Assumptions Of Assured Professional Success: Supreme Court
+https://www.verdictum.in/supreme-court/2026-insc-653-oriental-insurance-company-ltd-v-kalu-ram-1616533
+
+[Source Link](https://t.me/verdictumlegalupdates/27595)
+
+---
+
+### 2026-06-24T07:32:30+00:00
+Eyewitness Need Not Sign Inquest Report Or Recovery Memos To Prove Presence At Crime Scene: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/lila-and-another-v-state-of-up2026ahc123155-db-eye-witness-recovery-memo-1616531
+
+[Source Link](https://t.me/verdictumlegalupdates/27594)
+
+---
+
+### 2026-06-24T07:02:49+00:00
+Pension A Proprietary Right; Can't Be Withheld On Grounds Of Grave Misconduct Without Specific Findings: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/ram-avtar-sharma-v-the-state-of-madhya-pradesh-ors-2026mphc-gwl17532-1616530
+
+[Source Link](https://t.me/verdictumlegalupdates/27593)
+
+---
+
+### 2026-06-24T06:33:07+00:00
+Registered Sale Deed U/S 154 Of Unamended UPZA Not Void Ab Initio For Ceiling Violations; Consolidation Authorities Cannot Disregard It: Supreme Court
+https://www.verdictum.in/supreme-court/sarafat-ali-v-deputy-director-of-consolidation-haridwar-2026-insc-652-registered-sale-deed-us-154-of-unamended-upza-1616523
+
+[Source Link](https://t.me/verdictumlegalupdates/27592)
+
+---
+
+### 2026-06-24T06:01:26+00:00
+"Readiness" In Specific Performance Suits Must Be Proved With Reference To Relevant Period; Subsequent FDRs Insufficient: Supreme Court
+https://www.verdictum.in/supreme-court/mohammed-khaleel-d-through-lrs-ors-v-jayamma-2026-insc-651-specific-relief-1616522
+
+[Source Link](https://t.me/verdictumlegalupdates/27591)
+
+---
+
+### 2026-06-24T05:32:44+00:00
+IBC Moratorium Cannot Override MOFA Deemed Conveyance; Developer Has No Title After Selling Flats: Bombay High Court
+https://www.verdictum.in/bombay-high-court/darshan-mandir-co-operative-housing-society-limited-v-district-deputy-registrar-co-operative-society-mumbai-writ-petition-no-16318-of-2025-1616520
+
+[Source Link](https://t.me/verdictumlegalupdates/27590)
+
+---
+
+### 2026-06-24T05:02:23+00:00
+Arbitrariness Can Never Masquerade As Discretion: Karnataka High Court Orders Against Ethanol Procurement By Oil Marketing Companies
+https://www.verdictum.in/karnataka-high-court/ethanol-procurement-by-oil-marketing-companies-1616515
+
+[Source Link](https://t.me/verdictumlegalupdates/27589)
 
 ---
 
@@ -81,86 +161,6 @@ Supreme Court Refuses To Entertain Plea Seeking Regulations To Control Urban Inf
 https://www.verdictum.in/supreme-court/plea-seeking-regulations-to-control-urban-infra-around-airports-refused-1616033
 
 [Source Link](https://t.me/verdictumlegalupdates/27579)
-
----
-
-### 2026-06-16T11:03:02+00:00
-Supreme Court Directs Tripura SEC To Conduct Elections To Village Committees In Single Phase
-https://www.verdictum.in/supreme-court/tripura-sec-to-conduct-elections-to-village-committees-in-single-phase-1616032
-
-[Source Link](https://t.me/verdictumlegalupdates/27578)
-
----
-
-### 2026-06-16T10:32:20+00:00
-Romantic Relationship Not Exception Under POCSO Act; Child Below 18 Is Incapable Of Giving Consent In Eyes Of Law: Madras High Court
-https://www.verdictum.in/madras-high-court/arumugam-v-the-deputy-superintendent-of-police-2026mhc2112-pocso-act-not-romantic-relationship-as-exception-1616031
-
-[Source Link](https://t.me/verdictumlegalupdates/27577)
-
----
-
-### 2026-06-16T10:03:09+00:00
-Special Police Establishment Not An "Intelligence & Security Organisation": Supreme Court Strikes Down MP Notification Granting It Exemption From RTI
-https://www.verdictum.in/supreme-court/special-police-establishment-v-kamta-prasad-mishra-ors-2026-insc-644-1616030
-
-[Source Link](https://t.me/verdictumlegalupdates/27576)
-
----
-
-### 2026-06-16T09:35:09+00:00
-Kerala High Court Upholds POCSO Conviction Of Madrassa Usthad; Rejects His Plea Raising "Muslim Sectarian Rivalry" Angle
-https://www.verdictum.in/court-updates/high-courts/rasheed-v-state-of-kerala-2026ker42007-madrassa-usthad-for-sexual-assault-of-9-year-old-student-1616029
-
-[Source Link](https://t.me/verdictumlegalupdates/27575)
-
----
-
-### 2026-06-16T09:02:46+00:00
-Supreme Court Issues Notice In PIL Flagging Systemic Violations At Child Disability Rehab Centres
-https://www.verdictum.in/supreme-court/pil-flagging-systemic-violations-child-disability-rehab-centres-1616027
-
-[Source Link](https://t.me/verdictumlegalupdates/27574)
-
----
-
-### 2026-06-16T07:02:20+00:00
-Supreme Court Issues Notice On PIL Seeking Restriction On Aadhaar Use For Voter Registration To Curb Illegal Immigration
-https://www.verdictum.in/supreme-court/pil-seeking-restriction-aadhaar-use-voter-registration-curb-illegal-immigration-1616016
-
-[Source Link](https://t.me/verdictumlegalupdates/27573)
-
----
-
-### 2026-06-16T06:31:59+00:00
-Bald Plea Of Signing Blank Papers Can't Rebut Presumption U/S. 139 NI Act: Punjab & Haryana High Court Upholds Conviction In Cheque Bounce Case
-https://www.verdictum.in/punjab-and-haryana-high-court/narender-kumar-state-of-haryana-2026phc081800-accused-presumption-sec138-ni-act-1616013
-
-[Source Link](https://t.me/verdictumlegalupdates/27572)
-
----
-
-### 2026-06-16T05:52:17+00:00
-Motive Appears To Be A Bogey; ConvictionBased On Inadmissible Case Diaries & Fabricated Memos: Allahabad High Court Acquits 7 Men Accused Of Murdering 14 Year Old Boy
-https://www.verdictum.in/allahabad-high-court/sanjay-rai-v-state-of-up-2026ahc-lko40399-db-conviction-on-inadmissible-case-diaries-fabricated-memos-acquits-7-1616005
-
-[Source Link](https://t.me/verdictumlegalupdates/27571)
-
----
-
-### 2026-06-16T05:12:36+00:00
-Bombay HC Invokes Doctrine Of Indoor Management; Says Contractor Justified In Assuming Federation Secretary's Authority To Sign Commercial Agreement
-https://www.verdictum.in/bombay-high-court/2026bhcos12549-adtrack-media-llp-v-happy-valley-homes-chs-federation-1616004
-
-[Source Link](https://t.me/verdictumlegalupdates/27570)
-
----
-
-### 2026-06-16T04:32:24+00:00
-Court Should Issue Notice To Bailer Or Bailable Warrant Against Accused Before Issuing NBW For Non Appearance: Orissa High Court
-https://www.verdictum.in/orissa-high-court/trinath-guru-and-another-v-state-of-orissa-magistrate-court-notice-nbwa-1615980
-
-[Source Link](https://t.me/verdictumlegalupdates/27569)
 
 ---
 
