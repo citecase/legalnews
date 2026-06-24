@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-23T12:32:43+00:00*
+*Last Updated: 2026-06-23T13:18:34+00:00*
 
 ---
 
-### 2026-06-23T12:32:43+00:00
-Family Of Authorised Catering Hawker Who Fell From Train Entitled To Compensation Under Railways Act: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-authorised-hawker-catering-service-compensation-railways-538714
-
-[Read on Telegram](https://t.me/livelawindia/113305)
-
----
-### 2026-06-23T12:57:33+00:00
-Specific Relief Act | Readiness Must Be Proved From Time For Agreement Execution & Not Just After Filing Suit : Supreme Court
-https://www.livelaw.in/supreme-court/specific-relief-act-readiness-must-be-proved-from-time-for-agreement-execution-not-just-after-filing-suit-supreme-court-538718
-
-[Read on Telegram](https://t.me/livelawindia/113306)
-
----
-### 2026-06-23T12:58:13+00:00
-Judge's Job Is Not To Please Anyone, Satisfaction Lies In Doing Justice: Bombay High Court Justice Vibha Kankanwadi In Farewell Speech
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-justice-vibha-kankanwadi-retires-538719
-
-[Read on Telegram](https://t.me/livelawindia/113307)
-
----
-### 2026-06-23T13:01:34+00:00
-2026 LiveLaw (SC) 638 | MOHAMMED KHALEEL (D) THROUGH LRs & ORS. VERSUS JAYAMMA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-638-mohammed-khaleel-d-through-lrs-ors-versus-jayamma-538720
-
-[Read on Telegram](https://t.me/livelawindia/113308)
-
----
-### 2026-06-23T13:10:34+00:00
-Delhi High Court Directs Fresh Elections To All India Tennis Association By September 30, Lays Down Timeline For Constitutional Amendments
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-fresh-elections-to-all-india-tennis-association-by-september-30-lays-down-timeline-for-constitutional-amendments-538721
-
-[Read on Telegram](https://t.me/livelawindia/113309)
-
----
 ### 2026-06-23T13:18:34+00:00
 Manager (Human Resource) And Deputy Project Officer (Human Resource) Vacancy At Hindustan Shipyard Limited [Apply Now]
 https://www.livelaw.in/job-updates/manager-human-resource-and-deputy-project-officer-human-resource-hindustan-shipyard-limited-538726
@@ -142,5 +107,40 @@ Allahabad High Court's Lucknow Bench Organises Special Yoga Session To Mark 12th
 https://www.livelaw.in/events/allahabad-high-courts-lucknow-bench-organises-special-yoga-session-to-mark-12th-international-yoga-day-538742
 
 [Read on Telegram](https://t.me/livelawindia/113324)
+
+---
+### 2026-06-24T02:59:49+00:00
+Joint Advisor Vacancy At Telecom Regulatory Authority Of India, New Delhi
+https://www.livelaw.in/job-updates/joint-advisor-vacancy-at-telecom-regulatory-authority-of-india-new-delhi-538744
+
+[Read on Telegram](https://t.me/livelawindia/113325)
+
+---
+### 2026-06-24T03:06:19+00:00
+Public Prosecutor, Additional Public Prosecutor And Other Law Officers Vacancy At Various Courts, Krishnagiri District
+https://www.livelaw.in/job-updates/public-prosecutor-additional-public-prosecutor-and-other-law-officers-vacancy-at-various-courts-krishnagiri-district-538745
+
+[Read on Telegram](https://t.me/livelawindia/113326)
+
+---
+### 2026-06-24T03:07:40+00:00
+Manager And Deputy Manager Vacancy At Telecommunications Consultants India Limited
+https://www.livelaw.in/job-updates/manager-and-deputy-manager-vacancy-at-telecommunications-consultants-india-limited-538746
+
+[Read on Telegram](https://t.me/livelawindia/113327)
+
+---
+### 2026-06-24T03:12:20+00:00
+Executive (Data Privacy And Ethics) Vacancy At KPMG India [Bangalore; Apply Now]
+https://www.livelaw.in/job-updates/executive-data-privacy-and-ethics-vacancy-at-kpmg-india-bangalore-538747
+
+[Read on Telegram](https://t.me/livelawindia/113328)
+
+---
+### 2026-06-24T03:32:20+00:00
+National Interest Prevail Over Individual Convenience: Rajasthan High Court Upholds IAF Officer's Transfer Despite Parents' Medical Hardship
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-national-interest-armed-forces-transfers-538739
+
+[Read on Telegram](https://t.me/livelawindia/113329)
 
 ---
