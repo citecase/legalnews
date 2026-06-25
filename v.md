@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-25T15:02:16+00:00*
+*Last Updated: 2026-06-25T15:32:57+00:00*
+
+---
+
+### 2026-06-25T15:32:57+00:00
+National Financial Reporting Authority (NFRA) Invites Applications For Post Of Young Professional (Legal)
+https://www.verdictum.in/job-updates/national-financial-reporting-authority-1616603
+
+[Source Link](https://t.me/verdictumlegalupdates/27632)
 
 ---
 
@@ -153,14 +161,6 @@ Rotational Reservation For Assemblies Lies Within Legislative Domain: Allahabad 
 https://www.verdictum.in/allahabad-high-court/2026-ahclko41628db-jagdish-singh-v-election-commission-1616576
 
 [Source Link](https://t.me/verdictumlegalupdates/27613)
-
----
-
-### 2026-06-25T05:03:04+00:00
-Delhi High Court Issues Interim Directions For Amendment Of All India Tennis Association Constitution, Directs Fresh Elections By September
-https://www.verdictum.in/delhi-high-court/all-india-tennis-association-v-somdev-kishore-devvarman-ors-connected-with-somdev-kishore-devvarman-v-union-of-india-20265158-db-1616573
-
-[Source Link](https://t.me/verdictumlegalupdates/27612)
 
 ---
 
