@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-24T12:14:51+00:00*
+*Last Updated: 2026-06-24T13:02:19+00:00*
 
 ---
 
-### 2026-06-24T12:14:51+00:00
-'Duty To Disclose Brother Is BJP Spokesperson': Calcutta High Court Judge In Mamata Banerjee's Election Petition, TMC Expresses Full Faith
-https://www.livelaw.in/high-court/calcutta-high-court/duty-to-disclose-brother-is-bjp-spokesperson-calcutta-high-court-judge-in-mamata-banerjees-election-petition-tmc-expresses-full-faith-538833
-
-[Read on Telegram](https://t.me/livelawindia/113373)
-
----
-### 2026-06-24T12:22:52+00:00
-'Animals Are Not Chattels': Karnataka High Court Quashes Order Returning Rescued Dogs To Alleged Abuser
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-order-returning-dogs-to-perpetrator-animal-cruelty-538835
-
-[Read on Telegram](https://t.me/livelawindia/113374)
-
----
-### 2026-06-24T12:30:32+00:00
-Delay In Deciding Custody Matters Causes Prejudice To Child: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/delay-in-child-custody-matters-causes-prejudice-to-child-delhi-high-court-538838
-
-[Read on Telegram](https://t.me/livelawindia/113375)
-
----
-### 2026-06-24T12:32:12+00:00
-Calcutta High Court Directs Dental College To Refund ₹9.5 Lakh, Return Documents To Student Who Left Course After 6 Days
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-directs-college-to-refund-95-lakh-return-documents-to-student-who-left-course-after-6-days-538821
-
-[Read on Telegram](https://t.me/livelawindia/113376)
-
----
-### 2026-06-24T12:35:12+00:00
-Railways Cannot Evict Unauthorised Encroachers Through General Notice, Without Due Process Of Law: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-railways-evict-unauthorised-general-administrative-notices-538842
-
-[Read on Telegram](https://t.me/livelawindia/113377)
-
----
-### 2026-06-24T12:43:02+00:00
-MP High Court Upholds Cop's Demotion Under Whom Minor Was Illegally Held & Later Released After Subordinates Took Bribes
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/mp-police-sho-demotion-upheld-negligence-illegal-custodial-detention-of-minor-538836
-
-[Read on Telegram](https://t.me/livelawindia/113378)
-
----
 ### 2026-06-24T13:02:19+00:00
 AP High Court Quashes Cruelty FIR Against Husband, Says Same Evidence That Led To In-Laws' Acquittal Can't Subject Him To Ordeal Of Trial
 https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-husband-cruelty-498a-ipc-case-quashed-538837
@@ -142,5 +100,47 @@ Absconding Accused Declared As 'Proclaimed Offender' Cannot Maintain Quashing Pe
 https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-absconding-accused-proclaimed-offender-section482-crpc-538845
 
 [Read on Telegram](https://t.me/livelawindia/113392)
+
+---
+### 2026-06-25T02:21:12+00:00
+Special Public Prosecutor (Retainer Counsel) Vacancy At Central Bureau Of Investigation, Kolkata
+https://www.livelaw.in/job-updates/special-public-prosecutor-retainer-counsel-vacancy-at-central-bureau-of-investigation-kolkata-538887
+
+[Read on Telegram](https://t.me/livelawindia/113393)
+
+---
+### 2026-06-25T02:22:32+00:00
+Law officers Vacancy At Various Districts/ Subordinate Courts In Pudukkottai District
+https://www.livelaw.in/job-updates/law-officers-vacancy-at-various-districts-subordinate-courts-in-pudukkottai-district-538888
+
+[Read on Telegram](https://t.me/livelawindia/113394)
+
+---
+### 2026-06-25T02:24:12+00:00
+Company Secretary Vacancy At Bangalore Metro Rail Corporation Limited
+https://www.livelaw.in/job-updates/company-secretary-vacancy-at-bangalore-metro-rail-corporation-limited-538889
+
+[Read on Telegram](https://t.me/livelawindia/113395)
+
+---
+### 2026-06-25T02:31:32+00:00
+Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP [Pune; Apply Now]
+https://www.livelaw.in/job-updates/manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-pune-538890
+
+[Read on Telegram](https://t.me/livelawindia/113396)
+
+---
+### 2026-06-25T03:32:23+00:00
+Ward Delimitation Must Be Based On Population, Not Number Of Voters: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-article14-violation-voter-disparity-municipal-delimitation-538869
+
+[Read on Telegram](https://t.me/livelawindia/113397)
+
+---
+### 2026-06-25T03:36:24+00:00
+NLSIU To Host Justice A.M. Ahmadi Distinguished Lecture By Gopalkrishna Gandhi On 'Human Instincts And The Law'
+https://www.livelaw.in/events/nlsiu-host-justice-am-ahmadi-distinguished-lecture-gopalkrishna-gandhi-538891
+
+[Read on Telegram](https://t.me/livelawindia/113398)
 
 ---
