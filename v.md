@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-25T04:31:32+00:00*
+*Last Updated: 2026-06-25T09:33:17+00:00*
+
+---
+
+### 2026-06-25T09:33:17+00:00
+District Courts Cannot Direct Change Of Investigating Agency Or Order A CBI Enquiry: Patna High Court
+https://www.verdictum.in/patna-high-court/the-central-bureau-of-investigation-v-state-of-bihar-ors-district-courts-1616591
+
+[Source Link](https://t.me/verdictumlegalupdates/27620)
+
+---
+
+### 2026-06-25T09:02:56+00:00
+Posture & Dexterity Indispensable To Artisan Trades: Supreme Court Grants 10 Lakh For Prosthetic Leg To Carpenter As Motor Accident Compensation
+https://www.verdictum.in/supreme-court/shankar-dutt-v-united-india-insurance-co-ltd-2026-insc-656-posture-dexterity-indispensable-artisan-trades-1616589
+
+[Source Link](https://t.me/verdictumlegalupdates/27619)
+
+---
+
+### 2026-06-25T08:32:54+00:00
+Mere Exoneration From Allegations Of Malpractice Doesn’t Confer Vested Right To Appointment: Uttarakhand High Court
+https://www.verdictum.in/uttarakhand-high-court/madhu-bala-v-state-of-uttarakhand-2026uhc4896-exoneration-malpractice-appointment-1616586
+
+[Source Link](https://t.me/verdictumlegalupdates/27618)
+
+---
+
+### 2026-06-25T07:53:12+00:00
+Sending Exam Paper Via WhatsApp Does Not Violate Privacy Under Section 66-E Of IT Act: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/2026-gujhc-35987-rahul-babulal-purohit-v-state-of-gujarat-1616585
+
+[Source Link](https://t.me/verdictumlegalupdates/27617)
+
+---
+
+### 2026-06-25T07:03:50+00:00
+Section 5 Limitation Act Applies To Special Statutes Unless Excluded Expressly Or By Necessary Implication: Supreme Court
+https://www.verdictum.in/supreme-court/jittu-yadav-v-state-of-chhattisgarh-others-2026-insc-657-limitation-act-1616584
+
+[Source Link](https://t.me/verdictumlegalupdates/27616)
+
+---
+
+### 2026-06-25T06:31:49+00:00
+Multiple Layers Of Scrutiny Provided U/S 107 BNSS To Ensure Property Attachment Is Not Done At Whims & Fancies Of Investigating Officer: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/2026-chc-as-897-puja-hari-v-state-of-west-bengal-1616578
+
+[Source Link](https://t.me/verdictumlegalupdates/27615)
+
+---
+
+### 2026-06-25T06:03:07+00:00
+Pattern Of Approaching Courts On Eve Of Vacation Periods To Stall Handover Of Child Detrimental To Her Welfare: Delhi High Court Dismisses Mother’s Appeal
+https://www.verdictum.in/delhi-high-court/ab-v-cd-2026dhc5133-db-approaching-courts-vacation-handover-child-mother-1616577
+
+[Source Link](https://t.me/verdictumlegalupdates/27614)
+
+---
+
+### 2026-06-25T05:33:05+00:00
+Rotational Reservation For Assemblies Lies Within Legislative Domain: Allahabad High Court Upholds Constitutional Validity Of Section 9(1)(c) Of Delimitation Act
+https://www.verdictum.in/allahabad-high-court/2026-ahclko41628db-jagdish-singh-v-election-commission-1616576
+
+[Source Link](https://t.me/verdictumlegalupdates/27613)
+
+---
+
+### 2026-06-25T05:03:04+00:00
+Delhi High Court Issues Interim Directions For Amendment Of All India Tennis Association Constitution, Directs Fresh Elections By September
+https://www.verdictum.in/delhi-high-court/all-india-tennis-association-v-somdev-kishore-devvarman-ors-connected-with-somdev-kishore-devvarman-v-union-of-india-20265158-db-1616573
+
+[Source Link](https://t.me/verdictumlegalupdates/27612)
 
 ---
 
@@ -89,78 +161,6 @@ Supreme Court To Hear Plea Seeking To Restrain Authorities From Surrendering 152
 https://www.verdictum.in/supreme-court/restrain-authorities-from-surrendering-152-vacant-in-service-super-speciality-medical-seats-1616551
 
 [Source Link](https://t.me/verdictumlegalupdates/27601)
-
----
-
-### 2026-06-24T10:33:09+00:00
-Functional Disability Affecting Earning Capacity May Be Assessed At Higher Percentage Including 100%: Supreme Court Enhances Mason’s Motor Accident Compensation
-https://www.verdictum.in/supreme-court/m-paramesh-v-vrl-logistics-ltd-2026-insc-655-functional-disability-accident-compensation-1616550
-
-[Source Link](https://t.me/verdictumlegalupdates/27600)
-
----
-
-### 2026-06-24T10:02:47+00:00
-My Elder Brother Is BJP Spokesperson, It Is My Duty To Tell: Calcutta High Court Judge In Mamata Banerjee’s Election Petition; Her Lawyer Expresses Full Faith In Bench
-https://www.verdictum.in/calcutta-high-court/justice-gaurang-kanth-kalayan-banerjee-mamata-banerjee-election-petition-suvendu-adkhikari-1616547
-
-[Source Link](https://t.me/verdictumlegalupdates/27599)
-
----
-
-### 2026-06-24T09:32:36+00:00
-Oaths Taken By Councillors In Names Of Political Martyrs & Leaders, Local Deities And Other Persons Invalid: Kerala High Court
-https://www.verdictum.in/kerala-high-court/sp-deepak-v-kerala-state-election-commissioner-ors-and-connected-matter-2026ker45209-1616546
-
-[Source Link](https://t.me/verdictumlegalupdates/27598)
-
----
-
-### 2026-06-24T09:03:14+00:00
-Junior Officer Cannot Be Given Graver Punishment Than His Superior Who Forced Him Into Misdemeanour: Himachal Pradesh High Court
-https://www.verdictum.in/himachal-high-court/a-v-union-of-india-lpa-no24-of-2018-junior-cannot-be-given-graver-punishment-than-superior-officer-itbp-illicit-1616544
-
-[Source Link](https://t.me/verdictumlegalupdates/27597)
-
----
-
-### 2026-06-24T08:32:33+00:00
-"Hymen Absent" Equivalent To "Hymen Ruptured" To Establish Penetrative Sexual Assault: Kerala High Court Upholds POCSO Conviction
-https://www.verdictum.in/kerala-high-court/ashin-chacko-v-state-of-kerala-2026ker45786-hymen-absent-legally-equivalent-to-hymen-ruptured-consensual-inter-faith-relationship-pocso-1616539
-
-[Source Link](https://t.me/verdictumlegalupdates/27596)
-
----
-
-### 2026-06-24T08:02:52+00:00
-Motor Accident Compensation Can't Be Founded On Assumptions Of Assured Professional Success: Supreme Court
-https://www.verdictum.in/supreme-court/2026-insc-653-oriental-insurance-company-ltd-v-kalu-ram-1616533
-
-[Source Link](https://t.me/verdictumlegalupdates/27595)
-
----
-
-### 2026-06-24T07:32:30+00:00
-Eyewitness Need Not Sign Inquest Report Or Recovery Memos To Prove Presence At Crime Scene: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/lila-and-another-v-state-of-up2026ahc123155-db-eye-witness-recovery-memo-1616531
-
-[Source Link](https://t.me/verdictumlegalupdates/27594)
-
----
-
-### 2026-06-24T07:02:49+00:00
-Pension A Proprietary Right; Can't Be Withheld On Grounds Of Grave Misconduct Without Specific Findings: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/ram-avtar-sharma-v-the-state-of-madhya-pradesh-ors-2026mphc-gwl17532-1616530
-
-[Source Link](https://t.me/verdictumlegalupdates/27593)
-
----
-
-### 2026-06-24T06:33:07+00:00
-Registered Sale Deed U/S 154 Of Unamended UPZA Not Void Ab Initio For Ceiling Violations; Consolidation Authorities Cannot Disregard It: Supreme Court
-https://www.verdictum.in/supreme-court/sarafat-ali-v-deputy-director-of-consolidation-haridwar-2026-insc-652-registered-sale-deed-us-154-of-unamended-upza-1616523
-
-[Source Link](https://t.me/verdictumlegalupdates/27592)
 
 ---
 
