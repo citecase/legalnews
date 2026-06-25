@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-25T11:04:28+00:00*
+*Last Updated: 2026-06-25T12:01:39+00:00*
 
 ---
 
-### 2026-06-25T11:04:28+00:00
-DMK MLA Sekar Babu Withdraws Plea For Quashing FIR In Attempt To Murder Case For Allegedly Assaulting TVK Candidate
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-dmk-mla-sekar-babu-fir-quash-plea-tvk-candidate-assault-withdrawn-538946
-
-[Read on Telegram](https://t.me/livelawindia/113424)
-
----
-### 2026-06-25T11:20:08+00:00
-'Even Apology Won't Wipe Away What You Said': Karnataka High Court Pulls Up BJP MLA Basangouda Yatnal Over Comments On Ranya Rao
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-pulls-up-bjp-mla-yatnal-remarks-ranya-rao-gold-sumuggling-538947
-
-[Read on Telegram](https://t.me/livelawindia/113425)
-
----
-### 2026-06-25T11:33:08+00:00
-Madras High Court Reserves Order On Former Minister Ponmudi's Plea Against Magistrate Taking Cognisance Of Hate Speech Complaint
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ponmudi-hate-speech-magistrate-cognisance-orders-reserved-538948
-
-[Read on Telegram](https://t.me/livelawindia/113426)
-
----
-### 2026-06-25T11:47:29+00:00
-'Wife Can't Be Treated As Chattel': Orissa High Court Imposes ₹50K Costs On Husband For Filing Habeas Corpus Plea In Matrimonial Dispute
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-imposes-costs-husband-filing-habeas-corpus-matrimonial-dispute-538949
-
-[Read on Telegram](https://t.me/livelawindia/113427)
-
----
 ### 2026-06-25T12:01:39+00:00
 Delay In Filing Appeal Against Externment Under Chhattisgarh Public Security Act Can Be Condoned Under S. 5 Limitation Act: Supreme Court
 https://www.livelaw.in/supreme-court/supreme-court-special-laws-delay-condonation-limitation-act-not-excluded-538954
@@ -142,5 +114,33 @@ Plaintiff Not Required To Pay Court Fee Till Permission To Sue As An Indignant P
 https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-plaintiff-pay-court-fee-indignant-person-orderxxxiii-rule9-cpc-538963
 
 [Read on Telegram](https://t.me/livelawindia/113443)
+
+---
+### 2026-06-25T14:47:54+00:00
+Possession Of Cough Syrup With Less Than 2.5% Codeine Attracts NDPS Act If Held Without Authorisation: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-cough-syrup-codeine-attracts-ndps-act-538971
+
+[Read on Telegram](https://t.me/livelawindia/113444)
+
+---
+### 2026-06-25T15:13:24+00:00
+Third Party Cannot Be Directed To Pay Compensation Under Employees' Compensation Act Due To Alleged Negligence: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-employees-compensation-act1923-tortious-liability-538964
+
+[Read on Telegram](https://t.me/livelawindia/113445)
+
+---
+### 2026-06-25T15:45:24+00:00
+Bombay High Court Restores Producer's Appeal Against Actor Sunny Deol In Decade-Old Arbitration Dispute, Imposes ₹15K Costs
+https://www.livelaw.in/high-court/bombay-high-court/sunny-deol-arbitration-good-morning-india-film-producer-suneel-darshan-appeal-restored-538996
+
+[Read on Telegram](https://t.me/livelawindia/113446)
+
+---
+### 2026-06-25T17:00:36+00:00
+MP High Court Closes Defamation Case Against Rahul Gandhi After He Expresses Regret
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-kartikey-singh-rahul-gandhi-defamation-538997
+
+[Read on Telegram](https://t.me/livelawindia/113447)
 
 ---
