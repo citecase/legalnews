@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-24T16:02:58+00:00*
+*Last Updated: 2026-06-25T04:31:32+00:00*
+
+---
+
+### 2026-06-25T04:31:32+00:00
+Legal Representative Under Motor Vehicles Act Not Confined Merely To Spouse, Parent, Children: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/2026-khc-29484-db-asha-v-ramakrishna-s-ghatge-1616567
+
+[Source Link](https://t.me/verdictumlegalupdates/27611)
 
 ---
 
@@ -153,14 +161,6 @@ Registered Sale Deed U/S 154 Of Unamended UPZA Not Void Ab Initio For Ceiling Vi
 https://www.verdictum.in/supreme-court/sarafat-ali-v-deputy-director-of-consolidation-haridwar-2026-insc-652-registered-sale-deed-us-154-of-unamended-upza-1616523
 
 [Source Link](https://t.me/verdictumlegalupdates/27592)
-
----
-
-### 2026-06-24T06:01:26+00:00
-"Readiness" In Specific Performance Suits Must Be Proved With Reference To Relevant Period; Subsequent FDRs Insufficient: Supreme Court
-https://www.verdictum.in/supreme-court/mohammed-khaleel-d-through-lrs-ors-v-jayamma-2026-insc-651-specific-relief-1616522
-
-[Source Link](https://t.me/verdictumlegalupdates/27591)
 
 ---
 
