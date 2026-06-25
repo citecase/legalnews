@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-25T04:32:14+00:00*
+*Last Updated: 2026-06-25T11:04:28+00:00*
 
 ---
 
-### 2026-06-25T04:32:14+00:00
-Service By WhatsApp Is Not Service: Section 35 BNSS And Limits Of Informal Electronic Notice
-https://www.livelaw.in/articles/whatsapp-service-section35-bnss-limits-informal-electronic-notice-538875
+### 2026-06-25T11:04:28+00:00
+DMK MLA Sekar Babu Withdraws Plea For Quashing FIR In Attempt To Murder Case For Allegedly Assaulting TVK Candidate
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-dmk-mla-sekar-babu-fir-quash-plea-tvk-candidate-assault-withdrawn-538946
 
-[Read on Telegram](https://t.me/livelawindia/113401)
-
----
-### 2026-06-25T04:47:34+00:00
-'Medical Evidence Alone Can't Prove Authorship Of Crime': Orissa High Court Acquits Man In 2002 Witchcraft Murder
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-acquits-man-witchcraft-murder-538900
-
-[Read on Telegram](https://t.me/livelawindia/113402)
+[Read on Telegram](https://t.me/livelawindia/113424)
 
 ---
-### 2026-06-25T05:02:44+00:00
-'Even Jailed Convict Entitled To Fair Wages': Orissa High Court Orders Release Of Lecturer's Salary Withheld Pending Disciplinary Action
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-release-salary-denied-pay-pending-disciplinary-action-538901
+### 2026-06-25T11:20:08+00:00
+'Even Apology Won't Wipe Away What You Said': Karnataka High Court Pulls Up BJP MLA Basangouda Yatnal Over Comments On Ranya Rao
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-pulls-up-bjp-mla-yatnal-remarks-ranya-rao-gold-sumuggling-538947
 
-[Read on Telegram](https://t.me/livelawindia/113403)
-
----
-### 2026-06-25T05:23:44+00:00
-Supreme Court Criminal Law Digest: May 2026
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-criminal-law-monthly-digest-538903
-
-[Read on Telegram](https://t.me/livelawindia/113404)
+[Read on Telegram](https://t.me/livelawindia/113425)
 
 ---
-### 2026-06-25T05:23:54+00:00
-Rajasthan High Court Criticizes State For Forming Panel To Examine Land Dispute Despite Final Adjudication By Revenue Court In 1978
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-beri-commission-cant-revisit-adjudicated-land-dispute-538904
+### 2026-06-25T11:33:08+00:00
+Madras High Court Reserves Order On Former Minister Ponmudi's Plea Against Magistrate Taking Cognisance Of Hate Speech Complaint
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ponmudi-hate-speech-magistrate-cognisance-orders-reserved-538948
 
-[Read on Telegram](https://t.me/livelawindia/113405)
-
----
-### 2026-06-25T06:28:34+00:00
-Courts Cannot Re-Evaluate Technical Eligibility Determined By Expert Bodies Absent Mala Fides Or Patent Perversity: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-upholds-disqualification-joint-venture-bidder-538908
-
-[Read on Telegram](https://t.me/livelawindia/113406)
+[Read on Telegram](https://t.me/livelawindia/113426)
 
 ---
-### 2026-06-25T06:40:34+00:00
-LiveLaw Is Hiring Supreme Court Reporters- Apply Today- Work With India's Number 1 Legal News Portal
-https://www.livelaw.in/top-stories/livelaw-hiring-legal-journalism-jobs-supreme-court-vacancies-538909
+### 2026-06-25T11:47:29+00:00
+'Wife Can't Be Treated As Chattel': Orissa High Court Imposes ₹50K Costs On Husband For Filing Habeas Corpus Plea In Matrimonial Dispute
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-imposes-costs-husband-filing-habeas-corpus-matrimonial-dispute-538949
 
-[Read on Telegram](https://t.me/livelawindia/113407)
-
----
-### 2026-06-25T06:44:14+00:00
-London Court Orders Nirav Modi To Pay Bank Of India Over USD 11.5 Million
-https://www.livelaw.in/more/international/nirav-modi-pay-bank-of-india-100-crore-london-high-court-order-538910
-
-[Read on Telegram](https://t.me/livelawindia/113408)
+[Read on Telegram](https://t.me/livelawindia/113427)
 
 ---
-### 2026-06-25T06:54:24+00:00
-Sagus Legal Expands With Second Gurgaon Office At Cyber Hub And Welcomes Aashima Shrivastava As Partner And Head Of Gurgaon
-https://www.livelaw.in/law-firms/professional-announcement/sagus-legal-expands-second-gurgaon-office-aashima-shrivastava-partner-538911
+### 2026-06-25T12:01:39+00:00
+Delay In Filing Appeal Against Externment Under Chhattisgarh Public Security Act Can Be Condoned Under S. 5 Limitation Act: Supreme Court
+https://www.livelaw.in/supreme-court/supreme-court-special-laws-delay-condonation-limitation-act-not-excluded-538954
 
-[Read on Telegram](https://t.me/livelawindia/113409)
-
----
-### 2026-06-25T07:07:24+00:00
-MP High Court Stays Arrest Warrant Against TMC MP Abhishek Banerjee In BJP Leader's Defamation Case
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-restores-abhishek-banerjee-plea-against-bjp-defamation-case-538913
-
-[Read on Telegram](https://t.me/livelawindia/113410)
+[Read on Telegram](https://t.me/livelawindia/113428)
 
 ---
-### 2026-06-25T07:17:24+00:00
-Karnataka High Court Permits Proposed Basavakalyan Hindu Convention But Says Seer Adrushya Kadeshwara Swami Can't Give Speech
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-conditionally-allows-basavakalyan-hindu-convention-adrushya-swamiji-538914
+### 2026-06-25T12:02:39+00:00
+Can Production Warrant Override A Subsisting 'No Coercive Action' Order? Orissa High Court Says No
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-production-warrant-violating-stay-order-accused-judicial-custody-538951
 
-[Read on Telegram](https://t.me/livelawindia/113411)
-
----
-### 2026-06-25T07:20:44+00:00
-Substance Over Form: How The Delhi And Madras High Courts Are Rewriting The Rules For Global Patent Applicants In India
-https://www.livelaw.in/law-firms/law-firm-articles-/substance-over-form-how-the-delhi-and-madras-high-courts-are-rewriting-the-rules-for-global-patent-applicants-in-india-538915
-
-[Read on Telegram](https://t.me/livelawindia/113412)
+[Read on Telegram](https://t.me/livelawindia/113429)
 
 ---
-### 2026-06-25T07:27:04+00:00
-M.P. State Legal Services Authority Signs MoU With DNLU Jabalpur, Launches Certificate Course On Mediation
-https://www.livelaw.in/lawschool/news/mp-state-legal-services-authority-signs-mou-with-dnlu-jabalpur-launches-certificate-course-on-mediation-538916
+### 2026-06-25T12:51:59+00:00
+Matrimonial Courts Must Attempt Reconciliation Before Adjudication; Routine Procedure Not Applicable In Divorce Petitions: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-matrimonial-courts-must-first-attempt-reconciliation-before-proceeding-to-adjudication-routine-civil-procedure-not-applicable-in-divorce-petitions-538966
 
-[Read on Telegram](https://t.me/livelawindia/113413)
-
----
-### 2026-06-25T07:41:25+00:00
-Grant Of Higher Pay To Specific Employees By Court Order Doesn't Give Future Appointees Vested Right To Claim Parity: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-grant-higher-pay-specific-employees-right-claim-parity-538919
-
-[Read on Telegram](https://t.me/livelawindia/113414)
+[Read on Telegram](https://t.me/livelawindia/113430)
 
 ---
-### 2026-06-25T07:49:35+00:00
-Actor Jacqueline Fernandez Withdraws From Supreme Court Plea Against Order Framing Charge In 200-Crore Money Laundering Case
-https://www.livelaw.in/top-stories/supreme-court-jacqueline-fernandez-withdraws-plea-charge-in-200-crore-money-laundering-case-sukesh-chandrasekhar-538921
+### 2026-06-25T12:54:59+00:00
+Jharkhand High Court Directs Judicial Probe Into Alleged Custodial Death In Palamu, Seeks Inquiry Under BNSS
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-directs-judicial-inquiry-custodial-death-case-538969
 
-[Read on Telegram](https://t.me/livelawindia/113415)
-
----
-### 2026-06-25T07:57:15+00:00
-Punjab & Haryana High Court Denies Bail To Accused In NIA Case Relating To Murder Of Shaurya Chakra Awardee Balwinder Singh Sandhu
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/shaurya-chakra-awardee-balwinder-singh-sandhu-murder-nia-probe-no-bail-uapa-538922
-
-[Read on Telegram](https://t.me/livelawindia/113416)
+[Read on Telegram](https://t.me/livelawindia/113431)
 
 ---
-### 2026-06-25T07:59:35+00:00
-'Prima Facie Mala Fide': Allahabad High Court Stays LDA's Selective Demolition Action During Pending Appeal, Mulls Penal Proceedings Against OSD
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-mala-fide-lucknow-development-authority-demolition-action-osd-538923
+### 2026-06-25T12:57:09+00:00
+Jharkhand High Court Suggests Amending Compensation Scheme For Male Acid Attack Victims, Enhances Survivor's Compensation To ₹15 Lakh
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-suggests-amending-compensation-scheme-male-acid-attack-victims-538970
 
-[Read on Telegram](https://t.me/livelawindia/113417)
-
----
-### 2026-06-25T08:07:15+00:00
-17-Yr-Old Victim Had 'Worldly Knowledge Of Consequences': Karnataka High Court Grants Bail In POCSO Case, Notes She Married Accused
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-grants-bail-pocso-case-17-yr-old-married-accused-consent-538924
-
-[Read on Telegram](https://t.me/livelawindia/113418)
+[Read on Telegram](https://t.me/livelawindia/113432)
 
 ---
-### 2026-06-25T08:36:55+00:00
-Gujarat High Court Quashes Abetment Of Suicide FIR, Says Accused Lodging Land Grab Case Against Deceased Not Enough To Invoke Offence
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-abetment-of-suicide-fir-land-grab-case-deceased-538926
+### 2026-06-25T13:16:12+00:00
+RG Kar Case | Calcutta High Court Expresses Dissatisfaction With SIT Probe, Directs Production Of Case Diary & Investigation Material
+https://www.livelaw.in/high-court/calcutta-high-court/rg-kar-case-calcutta-high-court-expresses-dissatisfaction-with-sit-probe-directs-production-of-case-diary-material-538973
 
-[Read on Telegram](https://t.me/livelawindia/113419)
+[Read on Telegram](https://t.me/livelawindia/113433)
 
 ---
-### 2026-06-25T08:48:05+00:00
-MP High Court Directs Correction Of Student's Date Of Birth In Class 10 Marksheet, Says Limitation Can't Defeat Legitimate Claim
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/education-board-correct-student-date-of-birth-class-10-marksheet-despite-delay-limitation-538928
+### 2026-06-25T13:17:32+00:00
+Eviction Under MHADA Act Not Automatic; Authority Must Examine Legality Of Dues Claimed By Housing Board: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-competent-authority-jurisdiction-scrutinize-dues-538957
 
-[Read on Telegram](https://t.me/livelawindia/113420)
+[Read on Telegram](https://t.me/livelawindia/113434)
+
+---
+### 2026-06-25T13:22:32+00:00
+Failure To Hold Joint Enquiry Under CRPF Rules Does Not Confer Vested Right, Distinct Charges Justify Separate Proceedings: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-failure-to-hold-joint-enquiry-under-crpf-rules-does-not-confer-vested-right-distinct-charges-justify-separate-proceedings-538965
+
+[Read on Telegram](https://t.me/livelawindia/113435)
+
+---
+### 2026-06-25T13:23:52+00:00
+'Law Without Equality Is Merely Organized Will Of The Stronger Party' : CJI Surya Kant At Russia Event
+https://www.livelaw.in/top-stories/cji-surya-kant-russia-forum-speech-equal-law-equal-justice-foundation-of-international-law-origins-in-arthashastra-538974
+
+[Read on Telegram](https://t.me/livelawindia/113436)
+
+---
+### 2026-06-25T13:39:32+00:00
+Cognizance Taken Despite B Report: HD Kumaraswamy Tells Karnataka High Court In Plea Against FIR For 'False Statement' In Election Speech
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-union-minister-hd-kumaraswamy-election-speech-case-538976
+
+[Read on Telegram](https://t.me/livelawindia/113437)
+
+---
+### 2026-06-25T13:53:02+00:00
+Summoning Under POCSO Act Impermissible When Allegations In Complaint Are Absent From Pre-Summoning Evidence: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-summoning-pocso-act-sec354a-ipc-538959
+
+[Read on Telegram](https://t.me/livelawindia/113438)
+
+---
+### 2026-06-25T14:09:02+00:00
+No Material To Show Congress MLA Nirmala Sapre Joined BJP: MP High Court Refuses To Expedite Defection Proceedings
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/congress-mla-nirmala-sapre-bjp-defection-plea-disqualification-umang-singhar-538981
+
+[Read on Telegram](https://t.me/livelawindia/113439)
+
+---
+### 2026-06-25T14:17:34+00:00
+Gujarat High Court Asks State To Decide In 6 Months Haren Pandya Murder Convict's Remission Plea
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-state-haren-pandya-murder-convicts-remission-plea-538984
+
+[Read on Telegram](https://t.me/livelawindia/113440)
+
+---
+### 2026-06-25T14:27:54+00:00
+Principle Of 'Forum Conveniens' Can't Override CAT Rules Giving Primacy To Applicant's Location To Decide Jurisdiction: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/principle-of-forum-conveniens-cant-override-cat-rules-giving-primacy-to-applicants-location-to-decide-jurisdiction-delhi-high-court-538960
+
+[Read on Telegram](https://t.me/livelawindia/113441)
+
+---
+### 2026-06-25T14:32:34+00:00
+Why India's Anti-Defection Law Is Fractured
+https://www.livelaw.in/lawschool/articles/india-antidefection-law-fractured-538878
+
+[Read on Telegram](https://t.me/livelawindia/113442)
+
+---
+### 2026-06-25T14:38:14+00:00
+Plaintiff Not Required To Pay Court Fee Till Permission To Sue As An Indignant Person Under O.33 R.9 CPC Is Withdrawn: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-plaintiff-pay-court-fee-indignant-person-orderxxxiii-rule9-cpc-538963
+
+[Read on Telegram](https://t.me/livelawindia/113443)
 
 ---
