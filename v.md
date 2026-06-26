@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-26T15:02:34+00:00*
+*Last Updated: 2026-06-26T16:02:18+00:00*
+
+---
+
+### 2026-06-26T16:02:18+00:00
+Special Public Prosecutor Vacancy At Tiruvallur District Court
+https://www.verdictum.in/job-updates/tiruvallur-district-court-1616672
+
+[Source Link](https://t.me/verdictumlegalupdates/27656)
+
+---
+
+### 2026-06-26T15:32:16+00:00
+Proof Of Vehicle Ownership Not Needed To Establish Possession Of Contraband If Accused Found Inside Vehicle: Kerala High Court
+https://www.verdictum.in/kerala-high-court/2026-ker-45583-sahid-k-v-state-of-kerala-1616674
+
+[Source Link](https://t.me/verdictumlegalupdates/27655)
 
 ---
 
@@ -145,22 +161,6 @@ Brothers Of Deceased Can Maintain Motor Accident Compensation Claim As Legal Rep
 https://www.verdictum.in/gujarat-high-court/ahmedbhai-sharafatali-sai-anr-v-keshubhai-mohanbhai-parmar-ors-1616641
 
 [Source Link](https://t.me/verdictumlegalupdates/27637)
-
----
-
-### 2026-06-26T06:03:47+00:00
-Indirect, Oblique Reference To Worthlessness Of Husband Can Be Sudden & Grave Provocation: Madhya Pradesh HC Alters Conviction To Section 304 Part-II IPC
-https://www.verdictum.in/madhya-pradesh-high-court/2026-mphc-jbp-42572-shiva-v-state-of-madhya-pradesh-1616637
-
-[Source Link](https://t.me/verdictumlegalupdates/27636)
-
----
-
-### 2026-06-26T05:32:44+00:00
-Courts Cannot Undertake Fresh Bid Evaluation On Bidder’s Disagreement With Experts; Eligibility Conditions Cannot Be Diluted: Patna High Court
-https://www.verdictum.in/patna-high-court/ms-uks-lokaditya-construction-pvt-ltd-v-state-of-bihar-cwjp-13745-of-2025-fresh-bid-evaluation-on-bidders-disagreement-with-experts-1616635
-
-[Source Link](https://t.me/verdictumlegalupdates/27635)
 
 ---
 
