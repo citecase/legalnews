@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-25T12:01:39+00:00*
+*Last Updated: 2026-06-25T13:23:52+00:00*
 
 ---
 
-### 2026-06-25T12:01:39+00:00
-Delay In Filing Appeal Against Externment Under Chhattisgarh Public Security Act Can Be Condoned Under S. 5 Limitation Act: Supreme Court
-https://www.livelaw.in/supreme-court/supreme-court-special-laws-delay-condonation-limitation-act-not-excluded-538954
-
-[Read on Telegram](https://t.me/livelawindia/113428)
-
----
-### 2026-06-25T12:02:39+00:00
-Can Production Warrant Override A Subsisting 'No Coercive Action' Order? Orissa High Court Says No
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-production-warrant-violating-stay-order-accused-judicial-custody-538951
-
-[Read on Telegram](https://t.me/livelawindia/113429)
-
----
-### 2026-06-25T12:51:59+00:00
-Matrimonial Courts Must Attempt Reconciliation Before Adjudication; Routine Procedure Not Applicable In Divorce Petitions: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-matrimonial-courts-must-first-attempt-reconciliation-before-proceeding-to-adjudication-routine-civil-procedure-not-applicable-in-divorce-petitions-538966
-
-[Read on Telegram](https://t.me/livelawindia/113430)
-
----
-### 2026-06-25T12:54:59+00:00
-Jharkhand High Court Directs Judicial Probe Into Alleged Custodial Death In Palamu, Seeks Inquiry Under BNSS
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-directs-judicial-inquiry-custodial-death-case-538969
-
-[Read on Telegram](https://t.me/livelawindia/113431)
-
----
-### 2026-06-25T12:57:09+00:00
-Jharkhand High Court Suggests Amending Compensation Scheme For Male Acid Attack Victims, Enhances Survivor's Compensation To ₹15 Lakh
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-suggests-amending-compensation-scheme-male-acid-attack-victims-538970
-
-[Read on Telegram](https://t.me/livelawindia/113432)
-
----
-### 2026-06-25T13:16:12+00:00
-RG Kar Case | Calcutta High Court Expresses Dissatisfaction With SIT Probe, Directs Production Of Case Diary & Investigation Material
-https://www.livelaw.in/high-court/calcutta-high-court/rg-kar-case-calcutta-high-court-expresses-dissatisfaction-with-sit-probe-directs-production-of-case-diary-material-538973
-
-[Read on Telegram](https://t.me/livelawindia/113433)
-
----
-### 2026-06-25T13:17:32+00:00
-Eviction Under MHADA Act Not Automatic; Authority Must Examine Legality Of Dues Claimed By Housing Board: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-competent-authority-jurisdiction-scrutinize-dues-538957
-
-[Read on Telegram](https://t.me/livelawindia/113434)
-
----
-### 2026-06-25T13:22:32+00:00
-Failure To Hold Joint Enquiry Under CRPF Rules Does Not Confer Vested Right, Distinct Charges Justify Separate Proceedings: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-failure-to-hold-joint-enquiry-under-crpf-rules-does-not-confer-vested-right-distinct-charges-justify-separate-proceedings-538965
-
-[Read on Telegram](https://t.me/livelawindia/113435)
-
----
 ### 2026-06-25T13:23:52+00:00
 'Law Without Equality Is Merely Organized Will Of The Stronger Party' : CJI Surya Kant At Russia Event
 https://www.livelaw.in/top-stories/cji-surya-kant-russia-forum-speech-equal-law-equal-justice-foundation-of-international-law-origins-in-arthashastra-538974
@@ -142,5 +86,61 @@ MP High Court Closes Defamation Case Against Rahul Gandhi After He Expresses Reg
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-kartikey-singh-rahul-gandhi-defamation-538997
 
 [Read on Telegram](https://t.me/livelawindia/113447)
+
+---
+### 2026-06-26T02:32:55+00:00
+Conversion To Islam Doesn't Entitle Person To BC (Muslim) Reservation: Madras High Court Declares GO Unconstitutional
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-go-reservation-converted-muslims-unconstitutional-539000
+
+[Read on Telegram](https://t.me/livelawindia/113448)
+
+---
+### 2026-06-26T03:32:26+00:00
+Can State Mining Rules Prescribe Higher Fine Than Parent MMDR Act? MP High Court To Examine
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/illegal-mining-rules-mines-and-minerals-development-and-regulation-act-fine-amount-538983
+
+[Read on Telegram](https://t.me/livelawindia/113449)
+
+---
+### 2026-06-26T03:47:26+00:00
+Madras High Court Strikes Down Tamil Nadu Law Requiring Registrar To Verify Title Before Registration
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-section-34c-registration-act-unconstitutional-538998
+
+[Read on Telegram](https://t.me/livelawindia/113450)
+
+---
+### 2026-06-26T03:58:26+00:00
+Law Officers Vacancy At Various Subordinate Courts, Dharmapuri District, Tamil Nadu
+https://www.livelaw.in/job-updates/law-officers-vacancy-at-various-subordinate-courts-dharmapuri-district-tamil-nadu-539012
+
+[Read on Telegram](https://t.me/livelawindia/113451)
+
+---
+### 2026-06-26T04:00:06+00:00
+Manager (Legal) Vacancy At Uttar Pradesh Medical Supplies Corporation Limited
+https://www.livelaw.in/job-updates/manager-legal-vacancy-at-uttar-pradesh-medical-supplies-corporation-limited-539014
+
+[Read on Telegram](https://t.me/livelawindia/113452)
+
+---
+### 2026-06-26T04:03:06+00:00
+S.311 CrPC Meant To Elicit Truth, Not Favour Either Side: Rajasthan High Court Allows Summoning Of Prosecutrix's School Record In POCSO Case
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-recall-school-records-pocso-case-section311-crpc-538995
+
+[Read on Telegram](https://t.me/livelawindia/113453)
+
+---
+### 2026-06-26T04:07:06+00:00
+Protection Of Pre-Existing Service Conditions Justifies Separate Promotion Criteria For Absorbed Employees: Uttarakhand HC
+https://www.livelaw.in/high-court/uttarakhand-high-court/protection-of-pre-existing-service-conditions-justifies-separate-promotion-criteria-for-absorbed-employees-uttarakhand-hc-539017
+
+[Read on Telegram](https://t.me/livelawindia/113454)
+
+---
+### 2026-06-26T04:07:46+00:00
+Consultant (Investigations & Compliance) Vacancy At Ernst & Young [Bangalore: Apply Now]
+https://www.livelaw.in/job-updates/consultant-investigations-compliance-vacancy-at-ernst-young-bangalore-539019
+
+[Read on Telegram](https://t.me/livelawindia/113455)
 
 ---
