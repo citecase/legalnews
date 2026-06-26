@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-26T04:32:36+00:00*
+*Last Updated: 2026-06-26T05:32:27+00:00*
 
 ---
 
-### 2026-06-26T04:32:36+00:00
-India's AI Governance Crisis Isn't A Lack Of Law
-https://www.livelaw.in/lawschool/articles/india-debates-ai-act-three-ai-regimes-taking-shape-538991
-
-[Read on Telegram](https://t.me/livelawindia/113459)
-
----
-### 2026-06-26T04:42:57+00:00
-Karnataka High Court Cancels Vachanananda Swami's Anticipatory Bail In POCSO Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-vachanananda-swami-anticipatory-bail-pocso-case-539026
-
-[Read on Telegram](https://t.me/livelawindia/113460)
-
----
-### 2026-06-26T04:48:17+00:00
-Residence Proof Is Essential Requirement For Admission Under RTE's Neighbourhood Schools Quota: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/rte-act-neighbourhood-schools-quota-admission-residence-proof-539001
-
-[Read on Telegram](https://t.me/livelawindia/113461)
-
----
-### 2026-06-26T04:59:37+00:00
-Call For Blogs: The Policy Chronicle By Centre For Policies, Laws And Agenda, NUSRL (CPLAN) Ranchi: Submission On Rolling Basis
-https://www.livelaw.in/lawschool/call-for-papers/call-for-blogs-the-policy-chronicle-by-centre-for-policies-laws-and-agenda-nusrl-cplan-ranchi-submission-on-rolling-basis-539027
-
-[Read on Telegram](https://t.me/livelawindia/113462)
-
----
-### 2026-06-26T05:02:57+00:00
-SARFAESI Act | Rajasthan High Court Orders Police To Restore Bank's Possession Of Mortgaged Property Allegedly Reoccupied By Borrowers
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-police-obligated-restore-possession-mortgaged-property-539002
-
-[Read on Telegram](https://t.me/livelawindia/113463)
-
----
-### 2026-06-26T05:18:07+00:00
-'Such Petitions Burden Our Docket': Delhi High Court Refuses To Entertain Plea Against CAT Adjournment Order
-https://www.livelaw.in/high-court/delhi-high-court/such-petitions-burden-our-docket-delhi-high-court-refuses-to-entertain-plea-against-cat-adjournment-order-538961
-
-[Read on Telegram](https://t.me/livelawindia/113464)
-
----
-### 2026-06-26T05:31:47+00:00
-Don't Blame The Judges
-https://www.livelaw.in/law-firms/dont-blame-the-judges-539028
-
-[Read on Telegram](https://t.me/livelawindia/113465)
-
----
 ### 2026-06-26T05:32:27+00:00
 Writ Maintainable Against Co-op Society If Employee's Termination Results From Statutory Registrar's Directive: Uttarakhand High Court
 https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-writ-maintainable-cooperative-society-538962
@@ -142,5 +93,54 @@ Can AI Companies Rely On Section 52 Of Copyright Act To Train Large Language Mod
 https://www.livelaw.in/articles/ai-companies-rely-section52-copyright-act-train-large-language-models-538992
 
 [Read on Telegram](https://t.me/livelawindia/113478)
+
+---
+### 2026-06-26T10:29:01+00:00
+Caste Certificate Retains Legal Sanctity Until Cancelled By Competent Authority: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-caste-certificate-retains-legal-sanctity-cancelled-competent-authority-539046
+
+[Read on Telegram](https://t.me/livelawindia/113479)
+
+---
+### 2026-06-26T11:02:51+00:00
+Patna High Court Restrains Media From Portraying Bihar Tender Scam Accused Rishu Shree As Guilty Before Trial
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-restrains-media-portraying-bihar-tender-scam-accused-rishu-shree-539045
+
+[Read on Telegram](https://t.me/livelawindia/113480)
+
+---
+### 2026-06-26T11:22:31+00:00
+No Fundamental Right To Use Particular Road For Religious Rites: Allahabad High Court Rejects Plea For Particular Muharram Procession Route
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-sambhal-muharram-fundamental-right-religious-rites-new-route-539050
+
+[Read on Telegram](https://t.me/livelawindia/113481)
+
+---
+### 2026-06-26T11:30:31+00:00
+Darjeeling Consumer Commission Holds Amazon, Seller Liable For Delivering Wrong Product And Refusing Refund
+https://www.livelaw.in/consumer-cases/darjeeling-consumer-commission-holds-amazon-seller-liable-delivering-wrong-product-refusing-refund-539055
+
+[Read on Telegram](https://t.me/livelawindia/113482)
+
+---
+### 2026-06-26T12:43:11+00:00
+LiveLaw Academy Launches Data Protection Law Course by Vrinda Bhandari
+https://www.livelaw.in/top-stories/livelaw-academy-launches-data-protection-law-course-vrinda-bhandari-539074
+
+[Read on Telegram](https://t.me/livelawindia/113483)
+
+---
+### 2026-06-26T12:59:31+00:00
+Into Legal World Presents: Professional Diploma In Insurance Litigation, Dispute Resolution & Claims Strategy — Online Certificate Course For Law Students & Advocates In India
+https://www.livelaw.in/lawschool/diploma-certificate-courses/into-legal-world-presents-professional-diploma-in-insurance-litigation-dispute-resolution-claims-strategy-539076
+
+[Read on Telegram](https://t.me/livelawindia/113484)
+
+---
+### 2026-06-26T14:32:32+00:00
+Yes, A Celebrity Must Be Protected, But To What Extent?
+https://www.livelaw.in/lawschool/articles/celebrity-must-be-protected-538993
+
+[Read on Telegram](https://t.me/livelawindia/113485)
 
 ---
