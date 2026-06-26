@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-26T05:32:27+00:00*
+*Last Updated: 2026-06-26T06:02:37+00:00*
 
 ---
 
-### 2026-06-26T05:32:27+00:00
-Writ Maintainable Against Co-op Society If Employee's Termination Results From Statutory Registrar's Directive: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-writ-maintainable-cooperative-society-538962
-
-[Read on Telegram](https://t.me/livelawindia/113466)
-
----
-### 2026-06-26T05:43:47+00:00
-Assistant Manager (Legal & Compliance) Vacancy At Deloitte Touche Tohmatsu India LLP [Mumbai; Apply Now]
-https://www.livelaw.in/job-updates/assistant-manager-legal-compliance-vacancy-at-deloitte-touche-tohmatsu-india-llp-mumbai-539029
-
-[Read on Telegram](https://t.me/livelawindia/113467)
-
----
 ### 2026-06-26T06:02:37+00:00
 State Can't Claim Adverse Possession Over Citizens' Land: P&H High Court Directs Compensation For Land Used Without Acquisition
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/land-acquisition-govt-cant-claim-adverse-possession-over-citizens-land-539004
@@ -142,5 +128,19 @@ Yes, A Celebrity Must Be Protected, But To What Extent?
 https://www.livelaw.in/lawschool/articles/celebrity-must-be-protected-538993
 
 [Read on Telegram](https://t.me/livelawindia/113485)
+
+---
+### 2026-06-26T15:24:42+00:00
+Bombay High Court Rejects Challenge To Recruitment Process For Appointment Of District Judges In Maharashtra
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-rejects-challenge-recruitment-process-appointment-district-judge-539080
+
+[Read on Telegram](https://t.me/livelawindia/113486)
+
+---
+### 2026-06-26T15:47:42+00:00
+Challenge To Correctness Of Model Answer Key Maintainable, Not Same As Seeking Re-Evaluation: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/challenge-to-correctness-of-model-answer-key-maintainable-not-same-as-seeking-re-evaluation-delhi-high-court-539081
+
+[Read on Telegram](https://t.me/livelawindia/113487)
 
 ---
