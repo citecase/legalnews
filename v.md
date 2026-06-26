@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-25T15:32:57+00:00*
+*Last Updated: 2026-06-26T04:32:31+00:00*
+
+---
+
+### 2026-06-26T04:32:31+00:00
+Grounds Of Belief As Mandated U/S.42 NDPS Act Didn’t Contain Reasons For Searching Conveyance Without Warrant: Kerala High Court Grants Bail
+https://www.verdictum.in/kerala-high-court/muhammed-sahal-v-state-of-kerala-2026ker45819-grounds-belief-ndps-act-1616625
+
+[Source Link](https://t.me/verdictumlegalupdates/27633)
 
 ---
 
@@ -153,14 +161,6 @@ Pattern Of Approaching Courts On Eve Of Vacation Periods To Stall Handover Of Ch
 https://www.verdictum.in/delhi-high-court/ab-v-cd-2026dhc5133-db-approaching-courts-vacation-handover-child-mother-1616577
 
 [Source Link](https://t.me/verdictumlegalupdates/27614)
-
----
-
-### 2026-06-25T05:33:05+00:00
-Rotational Reservation For Assemblies Lies Within Legislative Domain: Allahabad High Court Upholds Constitutional Validity Of Section 9(1)(c) Of Delimitation Act
-https://www.verdictum.in/allahabad-high-court/2026-ahclko41628db-jagdish-singh-v-election-commission-1616576
-
-[Source Link](https://t.me/verdictumlegalupdates/27613)
 
 ---
 
