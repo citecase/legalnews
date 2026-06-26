@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-25T13:23:52+00:00*
+*Last Updated: 2026-06-26T04:32:36+00:00*
 
 ---
 
-### 2026-06-25T13:23:52+00:00
-'Law Without Equality Is Merely Organized Will Of The Stronger Party' : CJI Surya Kant At Russia Event
-https://www.livelaw.in/top-stories/cji-surya-kant-russia-forum-speech-equal-law-equal-justice-foundation-of-international-law-origins-in-arthashastra-538974
+### 2026-06-26T04:32:36+00:00
+India's AI Governance Crisis Isn't A Lack Of Law
+https://www.livelaw.in/lawschool/articles/india-debates-ai-act-three-ai-regimes-taking-shape-538991
 
-[Read on Telegram](https://t.me/livelawindia/113436)
-
----
-### 2026-06-25T13:39:32+00:00
-Cognizance Taken Despite B Report: HD Kumaraswamy Tells Karnataka High Court In Plea Against FIR For 'False Statement' In Election Speech
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-union-minister-hd-kumaraswamy-election-speech-case-538976
-
-[Read on Telegram](https://t.me/livelawindia/113437)
+[Read on Telegram](https://t.me/livelawindia/113459)
 
 ---
-### 2026-06-25T13:53:02+00:00
-Summoning Under POCSO Act Impermissible When Allegations In Complaint Are Absent From Pre-Summoning Evidence: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-summoning-pocso-act-sec354a-ipc-538959
+### 2026-06-26T04:42:57+00:00
+Karnataka High Court Cancels Vachanananda Swami's Anticipatory Bail In POCSO Case
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-vachanananda-swami-anticipatory-bail-pocso-case-539026
 
-[Read on Telegram](https://t.me/livelawindia/113438)
-
----
-### 2026-06-25T14:09:02+00:00
-No Material To Show Congress MLA Nirmala Sapre Joined BJP: MP High Court Refuses To Expedite Defection Proceedings
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/congress-mla-nirmala-sapre-bjp-defection-plea-disqualification-umang-singhar-538981
-
-[Read on Telegram](https://t.me/livelawindia/113439)
+[Read on Telegram](https://t.me/livelawindia/113460)
 
 ---
-### 2026-06-25T14:17:34+00:00
-Gujarat High Court Asks State To Decide In 6 Months Haren Pandya Murder Convict's Remission Plea
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-state-haren-pandya-murder-convicts-remission-plea-538984
+### 2026-06-26T04:48:17+00:00
+Residence Proof Is Essential Requirement For Admission Under RTE's Neighbourhood Schools Quota: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/rte-act-neighbourhood-schools-quota-admission-residence-proof-539001
 
-[Read on Telegram](https://t.me/livelawindia/113440)
-
----
-### 2026-06-25T14:27:54+00:00
-Principle Of 'Forum Conveniens' Can't Override CAT Rules Giving Primacy To Applicant's Location To Decide Jurisdiction: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/principle-of-forum-conveniens-cant-override-cat-rules-giving-primacy-to-applicants-location-to-decide-jurisdiction-delhi-high-court-538960
-
-[Read on Telegram](https://t.me/livelawindia/113441)
+[Read on Telegram](https://t.me/livelawindia/113461)
 
 ---
-### 2026-06-25T14:32:34+00:00
-Why India's Anti-Defection Law Is Fractured
-https://www.livelaw.in/lawschool/articles/india-antidefection-law-fractured-538878
+### 2026-06-26T04:59:37+00:00
+Call For Blogs: The Policy Chronicle By Centre For Policies, Laws And Agenda, NUSRL (CPLAN) Ranchi: Submission On Rolling Basis
+https://www.livelaw.in/lawschool/call-for-papers/call-for-blogs-the-policy-chronicle-by-centre-for-policies-laws-and-agenda-nusrl-cplan-ranchi-submission-on-rolling-basis-539027
 
-[Read on Telegram](https://t.me/livelawindia/113442)
-
----
-### 2026-06-25T14:38:14+00:00
-Plaintiff Not Required To Pay Court Fee Till Permission To Sue As An Indignant Person Under O.33 R.9 CPC Is Withdrawn: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-plaintiff-pay-court-fee-indignant-person-orderxxxiii-rule9-cpc-538963
-
-[Read on Telegram](https://t.me/livelawindia/113443)
+[Read on Telegram](https://t.me/livelawindia/113462)
 
 ---
-### 2026-06-25T14:47:54+00:00
-Possession Of Cough Syrup With Less Than 2.5% Codeine Attracts NDPS Act If Held Without Authorisation: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-cough-syrup-codeine-attracts-ndps-act-538971
+### 2026-06-26T05:02:57+00:00
+SARFAESI Act | Rajasthan High Court Orders Police To Restore Bank's Possession Of Mortgaged Property Allegedly Reoccupied By Borrowers
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-police-obligated-restore-possession-mortgaged-property-539002
 
-[Read on Telegram](https://t.me/livelawindia/113444)
-
----
-### 2026-06-25T15:13:24+00:00
-Third Party Cannot Be Directed To Pay Compensation Under Employees' Compensation Act Due To Alleged Negligence: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-employees-compensation-act1923-tortious-liability-538964
-
-[Read on Telegram](https://t.me/livelawindia/113445)
+[Read on Telegram](https://t.me/livelawindia/113463)
 
 ---
-### 2026-06-25T15:45:24+00:00
-Bombay High Court Restores Producer's Appeal Against Actor Sunny Deol In Decade-Old Arbitration Dispute, Imposes ₹15K Costs
-https://www.livelaw.in/high-court/bombay-high-court/sunny-deol-arbitration-good-morning-india-film-producer-suneel-darshan-appeal-restored-538996
+### 2026-06-26T05:18:07+00:00
+'Such Petitions Burden Our Docket': Delhi High Court Refuses To Entertain Plea Against CAT Adjournment Order
+https://www.livelaw.in/high-court/delhi-high-court/such-petitions-burden-our-docket-delhi-high-court-refuses-to-entertain-plea-against-cat-adjournment-order-538961
 
-[Read on Telegram](https://t.me/livelawindia/113446)
-
----
-### 2026-06-25T17:00:36+00:00
-MP High Court Closes Defamation Case Against Rahul Gandhi After He Expresses Regret
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-kartikey-singh-rahul-gandhi-defamation-538997
-
-[Read on Telegram](https://t.me/livelawindia/113447)
+[Read on Telegram](https://t.me/livelawindia/113464)
 
 ---
-### 2026-06-26T02:32:55+00:00
-Conversion To Islam Doesn't Entitle Person To BC (Muslim) Reservation: Madras High Court Declares GO Unconstitutional
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-go-reservation-converted-muslims-unconstitutional-539000
+### 2026-06-26T05:31:47+00:00
+Don't Blame The Judges
+https://www.livelaw.in/law-firms/dont-blame-the-judges-539028
 
-[Read on Telegram](https://t.me/livelawindia/113448)
-
----
-### 2026-06-26T03:32:26+00:00
-Can State Mining Rules Prescribe Higher Fine Than Parent MMDR Act? MP High Court To Examine
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/illegal-mining-rules-mines-and-minerals-development-and-regulation-act-fine-amount-538983
-
-[Read on Telegram](https://t.me/livelawindia/113449)
+[Read on Telegram](https://t.me/livelawindia/113465)
 
 ---
-### 2026-06-26T03:47:26+00:00
-Madras High Court Strikes Down Tamil Nadu Law Requiring Registrar To Verify Title Before Registration
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-section-34c-registration-act-unconstitutional-538998
+### 2026-06-26T05:32:27+00:00
+Writ Maintainable Against Co-op Society If Employee's Termination Results From Statutory Registrar's Directive: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-writ-maintainable-cooperative-society-538962
 
-[Read on Telegram](https://t.me/livelawindia/113450)
-
----
-### 2026-06-26T03:58:26+00:00
-Law Officers Vacancy At Various Subordinate Courts, Dharmapuri District, Tamil Nadu
-https://www.livelaw.in/job-updates/law-officers-vacancy-at-various-subordinate-courts-dharmapuri-district-tamil-nadu-539012
-
-[Read on Telegram](https://t.me/livelawindia/113451)
+[Read on Telegram](https://t.me/livelawindia/113466)
 
 ---
-### 2026-06-26T04:00:06+00:00
-Manager (Legal) Vacancy At Uttar Pradesh Medical Supplies Corporation Limited
-https://www.livelaw.in/job-updates/manager-legal-vacancy-at-uttar-pradesh-medical-supplies-corporation-limited-539014
+### 2026-06-26T05:43:47+00:00
+Assistant Manager (Legal & Compliance) Vacancy At Deloitte Touche Tohmatsu India LLP [Mumbai; Apply Now]
+https://www.livelaw.in/job-updates/assistant-manager-legal-compliance-vacancy-at-deloitte-touche-tohmatsu-india-llp-mumbai-539029
 
-[Read on Telegram](https://t.me/livelawindia/113452)
-
----
-### 2026-06-26T04:03:06+00:00
-S.311 CrPC Meant To Elicit Truth, Not Favour Either Side: Rajasthan High Court Allows Summoning Of Prosecutrix's School Record In POCSO Case
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-recall-school-records-pocso-case-section311-crpc-538995
-
-[Read on Telegram](https://t.me/livelawindia/113453)
+[Read on Telegram](https://t.me/livelawindia/113467)
 
 ---
-### 2026-06-26T04:07:06+00:00
-Protection Of Pre-Existing Service Conditions Justifies Separate Promotion Criteria For Absorbed Employees: Uttarakhand HC
-https://www.livelaw.in/high-court/uttarakhand-high-court/protection-of-pre-existing-service-conditions-justifies-separate-promotion-criteria-for-absorbed-employees-uttarakhand-hc-539017
+### 2026-06-26T06:02:37+00:00
+State Can't Claim Adverse Possession Over Citizens' Land: P&H High Court Directs Compensation For Land Used Without Acquisition
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/land-acquisition-govt-cant-claim-adverse-possession-over-citizens-land-539004
 
-[Read on Telegram](https://t.me/livelawindia/113454)
+[Read on Telegram](https://t.me/livelawindia/113468)
 
 ---
-### 2026-06-26T04:07:46+00:00
-Consultant (Investigations & Compliance) Vacancy At Ernst & Young [Bangalore: Apply Now]
-https://www.livelaw.in/job-updates/consultant-investigations-compliance-vacancy-at-ernst-young-bangalore-539019
+### 2026-06-26T06:37:18+00:00
+Mere Assertion Of Title Dispute During Acquisition Doesn't Mandate Civil Court Reference Under National Highways Act: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-mere-assertion-of-title-dispute-doesnt-mandate-civil-court-reference-under-section-3h4-of-national-highways-act-dispute-must-be-legally-cognizable-538968
 
-[Read on Telegram](https://t.me/livelawindia/113455)
+[Read on Telegram](https://t.me/livelawindia/113469)
+
+---
+### 2026-06-26T06:49:58+00:00
+Misleading JEE Advanced Ads: CCPA Imposes ₹8 Lakh Penalty On Narayana Educational Institutions
+https://www.livelaw.in/consumer-cases/misleading-jee-advanced-ads-ccpa-imposes-8-lakh-penalty-on-narayana-educational-institutions-539031
+
+[Read on Telegram](https://t.me/livelawindia/113470)
+
+---
+### 2026-06-26T06:52:18+00:00
+'BOSS' Producer Undertakes Not To Release Film Till June 30 In Darshan's Appeal Alleging Resemblance To Renukaswamy Murder Case
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-siri-productions-oral-undertaking-boss-film-dispute-539032
+
+[Read on Telegram](https://t.me/livelawindia/113471)
+
+---
+### 2026-06-26T07:02:28+00:00
+Rajasthan High Court Orders Release Of Ex-Serviceman's Licensed Rifle, Says Continued Seizure May Affect Livelihood
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-release-licensed-rifle-exarmy-man-539005
+
+[Read on Telegram](https://t.me/livelawindia/113472)
+
+---
+### 2026-06-26T07:12:28+00:00
+Married Daughter Entitled To Compassionate Appointment If She Was Dependent On & Living With Deceased : Karnataka HC
+https://www.livelaw.in/high-court/karnataka-high-court/married-daughter-entitled-to-compassionate-appointment-if-she-was-dependent-on-living-with-deceased-karnataka-hc-539020
+
+[Read on Telegram](https://t.me/livelawindia/113473)
+
+---
+### 2026-06-26T07:52:28+00:00
+Juvenile Justice Act Prioritises Reform Over Punishment; Seriousness Of Alleged Offence Not Ground To Refuse Bail: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-jj-act-prioritises-reform-538972
+
+[Read on Telegram](https://t.me/livelawindia/113474)
+
+---
+### 2026-06-26T08:08:38+00:00
+'Individual Interest Must Yield': Allahabad High Court Refuses To Halt UP Govt's '24 Kosi' Pilgrimage Route For Proposed Cold Storage
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-up-govt-24-kosi-parikrama-project-for-proposed-cold-storage-539034
+
+[Read on Telegram](https://t.me/livelawindia/113475)
+
+---
+### 2026-06-26T08:14:58+00:00
+Belated POSH Complaints Can't Be Rejected At Threshold Without Considering Reasons For Delay: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-sexual-harassment-complaints-rejected-specific-consideration-539035
+
+[Read on Telegram](https://t.me/livelawindia/113476)
+
+---
+### 2026-06-26T09:03:09+00:00
+Employees Selected Before The Cut-off Date Get Old Pension Scheme, Even If Their Actual Appointment Was Delayed: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/employees-selected-before-the-cut-off-date-get-old-pension-scheme-even-if-their-actual-appointment-was-delayed-madras-high-court-539022
+
+[Read on Telegram](https://t.me/livelawindia/113477)
+
+---
+### 2026-06-26T09:33:10+00:00
+Can AI Companies Rely On Section 52 Of Copyright Act To Train Large Language Models?
+https://www.livelaw.in/articles/ai-companies-rely-section52-copyright-act-train-large-language-models-538992
+
+[Read on Telegram](https://t.me/livelawindia/113478)
 
 ---
