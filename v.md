@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-26T09:32:48+00:00*
+*Last Updated: 2026-06-26T15:02:34+00:00*
+
+---
+
+### 2026-06-26T15:02:34+00:00
+Mere Inclusion In Select List Confers No Right To Appointment Against Future Vacancies: J&K&L High Court Rejects Subordinate Judges' Seniority Claim
+https://www.verdictum.in/jammu-ladakh-high-court/tabassum-qadir-parray-ors-v-high-court-of-jammu-kashmir-ors-2026jklhc-sgr87-db-1616673
+
+[Source Link](https://t.me/verdictumlegalupdates/27654)
+
+---
+
+### 2026-06-26T14:32:53+00:00
+Though MTP Act Doesn’t Provide For Termination Of Pregnancy Over 24 Weeks Extraordinary Jurisdiction Can Be Invoked In Rape Cases Involving Minors: Delhi High Court
+https://www.verdictum.in/delhi-high-court/minor-r-thr-her-father-r-v-state-nct-of-delhi-2026-dhc5164-mtp-act-pregnancy-1616671
+
+[Source Link](https://t.me/verdictumlegalupdates/27653)
+
+---
+
+### 2026-06-26T14:02:31+00:00
+Married Daughter Entitled To Fair Price Shop Dealership Under Dependent Quota: Allahabad High Court Sets Aside Rejection Of Compassionate Allotment
+https://www.verdictum.in/allahabad-high-court/2026-ahc-lko-41494-reena-devi-patel-v-state-of-up-1616670
+
+[Source Link](https://t.me/verdictumlegalupdates/27652)
+
+---
+
+### 2026-06-26T13:32:10+00:00
+No Bar On Challenge To Correctness Of Suggested Answers In UPSC Model Answer Key When Same Is Demonstrably Unacceptable: Delhi High Court
+https://www.verdictum.in/delhi-high-court/bisen-anshul-kumar-v-union-of-india-2026dhc5160-db-challenge-answers-upsc-1616669
+
+[Source Link](https://t.me/verdictumlegalupdates/27651)
+
+---
+
+### 2026-06-26T13:03:18+00:00
+“No Purpose Will Be Served In Sailing The Dead Wood”: Jharkhand High Court Grants ₹40L Permanent Alimony To Wife After 36 Years Of Separation
+https://www.verdictum.in/jharkhand-high-court/2026jhhc17922-db-dead-wood-marriage-40-lakh-permanent-alimony-to-wife-after-36-years-1616667
+
+[Source Link](https://t.me/verdictumlegalupdates/27650)
+
+---
+
+### 2026-06-26T12:32:37+00:00
+Mere Suggestions In Cross-Examination Cannot Create Reasonable Doubt Without Supporting Evidence: Madras High Court
+https://www.verdictum.in/madras-high-court/chandrasekar-v-the-state-2026mhc2291-alternative-theory-reasonable-doubt-1616666
+
+[Source Link](https://t.me/verdictumlegalupdates/27649)
+
+---
+
+### 2026-06-26T12:02:15+00:00
+"Google Address Error” Claim Cannot Replace Proof Of Actual Residence: Bombay High Court Rejects RTE Admission Plea
+https://www.verdictum.in/bombay-high-court/manas-sandip-sathe-v-state-of-maharashtra-writ-petition-no7601-of-2026-google-address-error-residence-rte-admission-plea-1616665
+
+[Source Link](https://t.me/verdictumlegalupdates/27648)
+
+---
+
+### 2026-06-26T11:33:14+00:00
+NBA Approval Under Biological Diversity Act Does Not Determine Patentability Of Inventions Under Patents Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/shaafi-naturcure-llp-v-assistant-controller-of-patents-and-designs-2026dhc5157-1616663
+
+[Source Link](https://t.me/verdictumlegalupdates/27647)
+
+---
+
+### 2026-06-26T11:02:32+00:00
+Delay Alone No Ground to Quash Corruption Cases: Himachal Pradesh High Court Rejects Plea To Quash FIR Despite 10-Year Delay In Filing Chargesheet
+https://www.verdictum.in/himachal-high-court/2026-hhc-21223-rajesh-kakar-v-state-1616662
+
+[Source Link](https://t.me/verdictumlegalupdates/27646)
+
+---
+
+### 2026-06-26T10:32:31+00:00
+Dismissal Of SLP Or Writ Appeal Cannot Be Used As A Ground To Enlarge Ratio Of Earlier Judgment Beyond Its Facts: Chhattisgarh High Court
+https://www.verdictum.in/chhattisgarh-high-court/kanchan-rahul-kanchan-kaur-rajput-v-state-of-chhattisgarh-ors-2026cghc25983-1616661
+
+[Source Link](https://t.me/verdictumlegalupdates/27645)
+
+---
+
+### 2026-06-26T10:03:09+00:00
+Delhi High Court Restrains Counterfeit Sellers Of 'Jockey' Products; Directs Meesho To Block Infringing URLs
+https://www.verdictum.in/delhi-high-court/counterfeit-sellers-jockey-meesho-block-infringing-url-1616659
+
+[Source Link](https://t.me/verdictumlegalupdates/27644)
 
 ---
 
@@ -73,94 +161,6 @@ Courts Cannot Undertake Fresh Bid Evaluation On Bidder’s Disagreement With Exp
 https://www.verdictum.in/patna-high-court/ms-uks-lokaditya-construction-pvt-ltd-v-state-of-bihar-cwjp-13745-of-2025-fresh-bid-evaluation-on-bidders-disagreement-with-experts-1616635
 
 [Source Link](https://t.me/verdictumlegalupdates/27635)
-
----
-
-### 2026-06-26T05:03:03+00:00
-Second Marriage During Pendency Of Divorce Appeal Not Void Merely Because Appeal Was Filed Within Time: Kerala High Court
-https://www.verdictum.in/kerala-high-court/vrn-v-l-2026ker42087-hindu-marriage-act-remarriage-pending-appeal-prohibition-1616627
-
-[Source Link](https://t.me/verdictumlegalupdates/27634)
-
----
-
-### 2026-06-26T04:32:31+00:00
-Grounds Of Belief As Mandated U/S.42 NDPS Act Didn’t Contain Reasons For Searching Conveyance Without Warrant: Kerala High Court Grants Bail
-https://www.verdictum.in/kerala-high-court/muhammed-sahal-v-state-of-kerala-2026ker45819-grounds-belief-ndps-act-1616625
-
-[Source Link](https://t.me/verdictumlegalupdates/27633)
-
----
-
-### 2026-06-25T15:32:57+00:00
-National Financial Reporting Authority (NFRA) Invites Applications For Post Of Young Professional (Legal)
-https://www.verdictum.in/job-updates/national-financial-reporting-authority-1616603
-
-[Source Link](https://t.me/verdictumlegalupdates/27632)
-
----
-
-### 2026-06-25T15:02:16+00:00
-Death Due To Cardiac Arrest After Being Pushed: Kerala High Court Upholds Dismissal Of Discharge Application, Says Culpability Is Matter Of Evidence
-https://www.verdictum.in/kerala-high-court/2026-ker-40140-rajesh-r-v-state-of-kerala-1616604
-
-[Source Link](https://t.me/verdictumlegalupdates/27631)
-
----
-
-### 2026-06-25T14:32:14+00:00
-Registrar Can’t Insist Upon Production Of Trade Licence For Registration Of Partnership Firm Of Advocates: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/dr-arjun-chowdhury-v-the-state-of-west-bengal-trade-licence-partnership-firm-1616602
-
-[Source Link](https://t.me/verdictumlegalupdates/27630)
-
----
-
-### 2026-06-25T14:03:22+00:00
-Sanction U/S 188 CrPC Not Required As Part Offence Occurred In India: Kerala High Court Upholds Conviction In Sharjah Job Visa Fraud, Rape & Prostitution Case
-https://www.verdictum.in/kerala-high-court/ashraf-v-state-of-kerala-2026ker45787-sanction-us-188-crpc-not-required-as-part-offence-sharjah-job-visa-fraud-rape-prostitution-case-1616601
-
-[Source Link](https://t.me/verdictumlegalupdates/27629)
-
----
-
-### 2026-06-25T13:33:01+00:00
-Proclaimed Offender Cannot Seek Quashing Of FIR Through Power Of Attorney Without Surrendering: Uttarakhand High Court
-https://www.verdictum.in/uttarakhand-high-court/self-rakesh-mehra-v-state-of-uttarakhand-ors-procalimed-offender-attorney-1616600
-
-[Source Link](https://t.me/verdictumlegalupdates/27628)
-
----
-
-### 2026-06-25T13:02:39+00:00
-Pension Cannot Be Excluded From Deceased’s Income While Calculating Motor Accident Compensation: Supreme Court
-https://www.verdictum.in/supreme-court/pension-cannot-excluded-deceased-income-calculating-motor-accident-compensation-1616599
-
-[Source Link](https://t.me/verdictumlegalupdates/27627)
-
----
-
-### 2026-06-25T12:32:37+00:00
-Mere Non-Mentioning Of Crime Number Insignificant When Notices Under BNSS Contain Ground For Arrest & Contraband Quantity: Kerala High Court
-https://www.verdictum.in/kerala-high-court/sreelakshmy-v-state-of-kerala-2026ker44974-crime-number-ndps-arrest-1616598
-
-[Source Link](https://t.me/verdictumlegalupdates/27626)
-
----
-
-### 2026-06-25T12:02:36+00:00
-In Absence Of Corroboration From Independent Sources, Disclosure Statement Relating To Recovery Of Weapon Can't Be Relied Upon: Orissa HC
-https://www.verdictum.in/orissa-high-court/absence-corroboration-independent-sources-disclosure-statement-recovery-weapon-1616597
-
-[Source Link](https://t.me/verdictumlegalupdates/27625)
-
----
-
-### 2026-06-25T11:31:14+00:00
-Suo Motu Raising Sentence To Statutory Minimum Is Correction of Error, Not Enhancement: Supreme Court Clarifies Section 386(b) CrPC Prohibition
-https://www.verdictum.in/supreme-court/karan-chettri-v-state-of-sikkim-2026-insc-659-accused-no-right-insist-continuance-illegal-sentence-substituting-sentence-1616596
-
-[Source Link](https://t.me/verdictumlegalupdates/27624)
 
 ---
 
