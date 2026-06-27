@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-27T04:32:56+00:00*
+*Last Updated: 2026-06-27T04:44:36+00:00*
 
 ---
 
-### 2026-06-27T04:32:56+00:00
-'Unspeakable Betrayal Of Trust': Odisha POCSO Court Sentences Father To 20 Years Rigorous Imprisonment For Repeated Rape Of Minor Daughter
-https://www.livelaw.in/news-updates/pocso-court-sentences-father-20years-imprisonment-rape-minor-daughter-539092
-
-[Read on Telegram](https://t.me/livelawindia/113493)
-
----
-### 2026-06-27T04:33:06+00:00
-When IVF Goes Wrong: India Needs Better Safeguards Against Embryo Mix-Ups
-https://www.livelaw.in/articles/ivf-goes-wrong-india-needs-better-safeguards-embryo-mixups-539049
-
-[Read on Telegram](https://t.me/livelawindia/113494)
-
----
-### 2026-06-27T04:42:56+00:00
-Trial Court Cannot Mechanically Halt NDPS Trial Because Supplementary Complaint Against Co-Accused Is Pending: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-trial-court-cannot-mechanically-keep-ndps-trial-in-abeyance-merely-because-supplementary-complaint-against-co-accused-is-pending-539083
-
-[Read on Telegram](https://t.me/livelawindia/113495)
-
----
 ### 2026-06-27T04:44:36+00:00
 Allahabad High Court Grants Last Opportunity To UP Govt To Submit OBC Commission Report On Panchayat Reservation
 https://www.livelaw.in/high-court/allahabad-high-court/up-government-submit-obc-commission-report-gram-panchayat-reservation-539093
@@ -143,5 +122,26 @@ Allahabad High Court Seeks Judge's Explanation For Denying Bail To One Accused W
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-judge-explanation-denying-bail-identically-placed-coaccused-disparity-539133
 
 [Read on Telegram](https://t.me/livelawindia/113512)
+
+---
+### 2026-06-27T14:32:52+00:00
+Participation Without Accountability: Limits Of India's Pre-Legislative Consultation Policy
+https://www.livelaw.in/lawschool/articles/participation-accountability-india-prelegislative-consultation-policy-limits-539054
+
+[Read on Telegram](https://t.me/livelawindia/113513)
+
+---
+### 2026-06-27T15:35:02+00:00
+Call For Papers: DNLU Journal Of Legal Studies Invites Submissions For Volume IV (2026)
+https://www.livelaw.in/lawschool/call-for-papers/dnlu-journal-legal-studies-invites-submissions-539138
+
+[Read on Telegram](https://t.me/livelawindia/113514)
+
+---
+### 2026-06-27T16:28:13+00:00
+NLU Jodhpur And USIEF To Host International Symposium On Comparative Legislative Governance
+https://www.livelaw.in/lawschool/news/nlu-jodhpur-usief-host-international-symposium-comparative-legislative-governance-539140
+
+[Read on Telegram](https://t.me/livelawindia/113515)
 
 ---
