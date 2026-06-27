@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-27T09:03:11+00:00*
+*Last Updated: 2026-06-27T14:12:50+00:00*
+
+---
+
+### 2026-06-27T14:12:50+00:00
+Delayed Production Of Counterfeit Notes Fatal To Prosecution: Kerala High Court Overturns Conviction
+https://www.verdictum.in/kerala-high-court/sathyan-so-sankaran-v-state-of-kerala-2026ker43955-counterfeit-notes-1616738
+
+[Source Link](https://t.me/verdictumlegalupdates/27670)
+
+---
+
+### 2026-06-27T13:32:59+00:00
+Heinous Nature Of Offence Cannot Be Sole Ground To Deny Remission: Gauhati High Court Sets Aside Review Board’s Bulk Rejection Of 89 Life Convicts' Remission Proposals
+https://www.verdictum.in/guwahati-high-court/ganesh-bhumij-v-state-of-assam-2026gau-as9422-review-boards-bulk-rejection-of-89-life-convict-proposals-1616737
+
+[Source Link](https://t.me/verdictumlegalupdates/27669)
+
+---
+
+### 2026-06-27T12:52:38+00:00
+Action Backed By Disaster Management Act Does Not Violate Article 300A Protection Against Deprivation Of Property: Bombay High Court
+https://www.verdictum.in/bombay-high-court/netaji-shekumbar-bhopale-v-the-commissioner-solapur-municipal-corporation-ors-2026bhc-kol4442-db-1616736
+
+[Source Link](https://t.me/verdictumlegalupdates/27668)
+
+---
+
+### 2026-06-27T12:02:36+00:00
+Complaint In 2004, Still Pending In 2026: Kerala High Court Expresses Concern After Noticing Two Decades Delay In Section 138 NI Act Trial
+https://www.verdictum.in/kerala-high-court/2026-ker-41451-sheelarani-v-s-raveendran-nair-1616734
+
+[Source Link](https://t.me/verdictumlegalupdates/27667)
+
+---
+
+### 2026-06-27T11:12:35+00:00
+Madhya Pradesh High Court Grants Bail To Tehelka Journalist In Extortion Case Allegedly For Exposing Female Foeticide Racket
+https://www.verdictum.in/madhya-pradesh-high-court/2026-mphc-ind-16869-rajini-v-state-of-madhya-pradesh-1616732
+
+[Source Link](https://t.me/verdictumlegalupdates/27666)
+
+---
+
+### 2026-06-27T10:32:53+00:00
+Res Judicata Can’t Be Applied With Same Rigidity To Interlocutory Procedural Orders: Uttarakhand High Court
+https://www.verdictum.in/uttarakhand-high-court/a-v-b-res-judicata-interlocutory-procedural-orders-family-court-cross-examination-1616730
+
+[Source Link](https://t.me/verdictumlegalupdates/27665)
+
+---
+
+### 2026-06-27T09:52:52+00:00
+Employer’s Inability To Produce Old Enquiry Records Cannot Undo Dismissal: Bombay High Court Rejects Employee’s Belated Challenge After 13 Years
+https://www.verdictum.in/bombay-high-court/bank-of-india-v-sharad-rajaram-khadtare-writ-petition-no-15893-of-2025-employers-inability-to-produce-old-enquiry-record-13-years-1616728
+
+[Source Link](https://t.me/verdictumlegalupdates/27664)
 
 ---
 
@@ -105,62 +161,6 @@ No Bar On Challenge To Correctness Of Suggested Answers In UPSC Model Answer Key
 https://www.verdictum.in/delhi-high-court/bisen-anshul-kumar-v-union-of-india-2026dhc5160-db-challenge-answers-upsc-1616669
 
 [Source Link](https://t.me/verdictumlegalupdates/27651)
-
----
-
-### 2026-06-26T13:03:18+00:00
-“No Purpose Will Be Served In Sailing The Dead Wood”: Jharkhand High Court Grants ₹40L Permanent Alimony To Wife After 36 Years Of Separation
-https://www.verdictum.in/jharkhand-high-court/2026jhhc17922-db-dead-wood-marriage-40-lakh-permanent-alimony-to-wife-after-36-years-1616667
-
-[Source Link](https://t.me/verdictumlegalupdates/27650)
-
----
-
-### 2026-06-26T12:32:37+00:00
-Mere Suggestions In Cross-Examination Cannot Create Reasonable Doubt Without Supporting Evidence: Madras High Court
-https://www.verdictum.in/madras-high-court/chandrasekar-v-the-state-2026mhc2291-alternative-theory-reasonable-doubt-1616666
-
-[Source Link](https://t.me/verdictumlegalupdates/27649)
-
----
-
-### 2026-06-26T12:02:15+00:00
-"Google Address Error” Claim Cannot Replace Proof Of Actual Residence: Bombay High Court Rejects RTE Admission Plea
-https://www.verdictum.in/bombay-high-court/manas-sandip-sathe-v-state-of-maharashtra-writ-petition-no7601-of-2026-google-address-error-residence-rte-admission-plea-1616665
-
-[Source Link](https://t.me/verdictumlegalupdates/27648)
-
----
-
-### 2026-06-26T11:33:14+00:00
-NBA Approval Under Biological Diversity Act Does Not Determine Patentability Of Inventions Under Patents Act: Delhi High Court
-https://www.verdictum.in/delhi-high-court/shaafi-naturcure-llp-v-assistant-controller-of-patents-and-designs-2026dhc5157-1616663
-
-[Source Link](https://t.me/verdictumlegalupdates/27647)
-
----
-
-### 2026-06-26T11:02:32+00:00
-Delay Alone No Ground to Quash Corruption Cases: Himachal Pradesh High Court Rejects Plea To Quash FIR Despite 10-Year Delay In Filing Chargesheet
-https://www.verdictum.in/himachal-high-court/2026-hhc-21223-rajesh-kakar-v-state-1616662
-
-[Source Link](https://t.me/verdictumlegalupdates/27646)
-
----
-
-### 2026-06-26T10:32:31+00:00
-Dismissal Of SLP Or Writ Appeal Cannot Be Used As A Ground To Enlarge Ratio Of Earlier Judgment Beyond Its Facts: Chhattisgarh High Court
-https://www.verdictum.in/chhattisgarh-high-court/kanchan-rahul-kanchan-kaur-rajput-v-state-of-chhattisgarh-ors-2026cghc25983-1616661
-
-[Source Link](https://t.me/verdictumlegalupdates/27645)
-
----
-
-### 2026-06-26T10:03:09+00:00
-Delhi High Court Restrains Counterfeit Sellers Of 'Jockey' Products; Directs Meesho To Block Infringing URLs
-https://www.verdictum.in/delhi-high-court/counterfeit-sellers-jockey-meesho-block-infringing-url-1616659
-
-[Source Link](https://t.me/verdictumlegalupdates/27644)
 
 ---
 
