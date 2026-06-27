@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-27T00:32:32+00:00*
+*Last Updated: 2026-06-27T04:32:56+00:00*
 
 ---
 
-### 2026-06-27T00:32:32+00:00
-MP High Court Restores Permission For Muharram Procession And Fair In Indore
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-taazia-procession-and-mela-permission-restored-539086
-
-[Read on Telegram](https://t.me/livelawindia/113488)
-
----
-### 2026-06-27T04:03:05+00:00
-Experience As Principal Can Be Counted  For Appointment As Vice Chancellor : Uttarakhand HC
-https://www.livelaw.in/high-court/uttarakhand-high-court/experience-as-principal-can-be-counted-for-appointment-as-vice-chancellor-uttarakhand-hc-539024
-
-[Read on Telegram](https://t.me/livelawindia/113489)
-
----
-### 2026-06-27T04:17:15+00:00
-Wife's Remark That She Could Have '1000 Husbands' Amounted To Grave And Sudden Provocation: MP High Court Alters Man's Conviction
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/204-part-1-ipc-conviction-altered-to-section-304-ii-ipc-wife-1000-husbands-grave-sudden-provocation-539088
-
-[Read on Telegram](https://t.me/livelawindia/113490)
-
----
-### 2026-06-27T04:17:25+00:00
-Memoir Of Constitutional Lawyering & Feminist Resistance : On Indira Jaising's 'Constitution Is My Home'
-https://www.livelaw.in/book-reviews/memoir-of-constitutional-lawyering-feminist-resistance-on-indira-jaisings-constitution-is-my-home-539089
-
-[Read on Telegram](https://t.me/livelawindia/113491)
-
----
-### 2026-06-27T04:19:16+00:00
-Supreme Court Weekly Roundup: June 15, 2026 To June 21, 2026
-https://www.livelaw.in/round-ups/weekly/supreme-court-weekly-roundup-june-15-2026-to-june-21-2026-539091
-
-[Read on Telegram](https://t.me/livelawindia/113492)
-
----
 ### 2026-06-27T04:32:56+00:00
 'Unspeakable Betrayal Of Trust': Odisha POCSO Court Sentences Father To 20 Years Rigorous Imprisonment For Repeated Rape Of Minor Daughter
 https://www.livelaw.in/news-updates/pocso-court-sentences-father-20years-imprisonment-rape-minor-daughter-539092
@@ -143,5 +108,40 @@ https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-smal
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-old-torn-hymen-rape-conviction-survivor-testimony-539114
 
 [Read on Telegram](https://t.me/livelawindia/113507)
+
+---
+### 2026-06-27T09:03:08+00:00
+Gauhati High Court Asks Assam Govt To Create Separate Cadre For Community Health Professionals, Expedite Process For Service Benefits
+https://www.livelaw.in/high-court/gauhati-high-court/assam-rural-health-community-health-professionals-cadre-service-benefits-539111
+
+[Read on Telegram](https://t.me/livelawindia/113508)
+
+---
+### 2026-06-27T09:18:08+00:00
+J&K CSR | Borrowing Organisation Must Release Leave Salary To Deputationist Before Seeking Reimbursement From Parent Department: High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jk-csr-borrowing-organisation-must-release-leave-salary-to-deputationist-before-seeking-reimbursement-from-parent-department-high-court-539085
+
+[Read on Telegram](https://t.me/livelawindia/113509)
+
+---
+### 2026-06-27T09:33:09+00:00
+How Word 'Advertising' Stripped Google Of Safe Harbour
+https://www.livelaw.in/lawschool/articles/advertising-stripped-google-safe-harbour-539051
+
+[Read on Telegram](https://t.me/livelawindia/113510)
+
+---
+### 2026-06-27T10:12:19+00:00
+Gauhati High Court Upholds Closure Of Plaintiffs' Evidence After 11 Adjournments, Lack Of Due Diligence
+https://www.livelaw.in/high-court/gauhati-high-court/evidence-closed-due-to-delay-repeated-adjournments-no-due-diligence-539112
+
+[Read on Telegram](https://t.me/livelawindia/113511)
+
+---
+### 2026-06-27T13:25:01+00:00
+Allahabad High Court Seeks Judge's Explanation For Denying Bail To One Accused While Granting It To Identically Placed Co-Accused
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-judge-explanation-denying-bail-identically-placed-coaccused-disparity-539133
+
+[Read on Telegram](https://t.me/livelawindia/113512)
 
 ---
