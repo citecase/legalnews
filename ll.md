@@ -1,146 +1,147 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-26T06:37:18+00:00*
+*Last Updated: 2026-06-27T00:32:32+00:00*
 
 ---
 
-### 2026-06-26T06:37:18+00:00
-Mere Assertion Of Title Dispute During Acquisition Doesn't Mandate Civil Court Reference Under National Highways Act: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-mere-assertion-of-title-dispute-doesnt-mandate-civil-court-reference-under-section-3h4-of-national-highways-act-dispute-must-be-legally-cognizable-538968
-
-[Read on Telegram](https://t.me/livelawindia/113469)
-
----
-### 2026-06-26T06:49:58+00:00
-Misleading JEE Advanced Ads: CCPA Imposes ₹8 Lakh Penalty On Narayana Educational Institutions
-https://www.livelaw.in/consumer-cases/misleading-jee-advanced-ads-ccpa-imposes-8-lakh-penalty-on-narayana-educational-institutions-539031
-
-[Read on Telegram](https://t.me/livelawindia/113470)
-
----
-### 2026-06-26T06:52:18+00:00
-'BOSS' Producer Undertakes Not To Release Film Till June 30 In Darshan's Appeal Alleging Resemblance To Renukaswamy Murder Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-siri-productions-oral-undertaking-boss-film-dispute-539032
-
-[Read on Telegram](https://t.me/livelawindia/113471)
-
----
-### 2026-06-26T07:02:28+00:00
-Rajasthan High Court Orders Release Of Ex-Serviceman's Licensed Rifle, Says Continued Seizure May Affect Livelihood
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-release-licensed-rifle-exarmy-man-539005
-
-[Read on Telegram](https://t.me/livelawindia/113472)
-
----
-### 2026-06-26T07:12:28+00:00
-Married Daughter Entitled To Compassionate Appointment If She Was Dependent On & Living With Deceased : Karnataka HC
-https://www.livelaw.in/high-court/karnataka-high-court/married-daughter-entitled-to-compassionate-appointment-if-she-was-dependent-on-living-with-deceased-karnataka-hc-539020
-
-[Read on Telegram](https://t.me/livelawindia/113473)
-
----
-### 2026-06-26T07:52:28+00:00
-Juvenile Justice Act Prioritises Reform Over Punishment; Seriousness Of Alleged Offence Not Ground To Refuse Bail: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-jj-act-prioritises-reform-538972
-
-[Read on Telegram](https://t.me/livelawindia/113474)
-
----
-### 2026-06-26T08:08:38+00:00
-'Individual Interest Must Yield': Allahabad High Court Refuses To Halt UP Govt's '24 Kosi' Pilgrimage Route For Proposed Cold Storage
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-up-govt-24-kosi-parikrama-project-for-proposed-cold-storage-539034
-
-[Read on Telegram](https://t.me/livelawindia/113475)
-
----
-### 2026-06-26T08:14:58+00:00
-Belated POSH Complaints Can't Be Rejected At Threshold Without Considering Reasons For Delay: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-sexual-harassment-complaints-rejected-specific-consideration-539035
-
-[Read on Telegram](https://t.me/livelawindia/113476)
-
----
-### 2026-06-26T09:03:09+00:00
-Employees Selected Before The Cut-off Date Get Old Pension Scheme, Even If Their Actual Appointment Was Delayed: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/employees-selected-before-the-cut-off-date-get-old-pension-scheme-even-if-their-actual-appointment-was-delayed-madras-high-court-539022
-
-[Read on Telegram](https://t.me/livelawindia/113477)
-
----
-### 2026-06-26T09:33:10+00:00
-Can AI Companies Rely On Section 52 Of Copyright Act To Train Large Language Models?
-https://www.livelaw.in/articles/ai-companies-rely-section52-copyright-act-train-large-language-models-538992
-
-[Read on Telegram](https://t.me/livelawindia/113478)
-
----
-### 2026-06-26T10:29:01+00:00
-Caste Certificate Retains Legal Sanctity Until Cancelled By Competent Authority: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-caste-certificate-retains-legal-sanctity-cancelled-competent-authority-539046
-
-[Read on Telegram](https://t.me/livelawindia/113479)
-
----
-### 2026-06-26T11:02:51+00:00
-Patna High Court Restrains Media From Portraying Bihar Tender Scam Accused Rishu Shree As Guilty Before Trial
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-restrains-media-portraying-bihar-tender-scam-accused-rishu-shree-539045
-
-[Read on Telegram](https://t.me/livelawindia/113480)
-
----
-### 2026-06-26T11:22:31+00:00
-No Fundamental Right To Use Particular Road For Religious Rites: Allahabad High Court Rejects Plea For Particular Muharram Procession Route
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-sambhal-muharram-fundamental-right-religious-rites-new-route-539050
-
-[Read on Telegram](https://t.me/livelawindia/113481)
-
----
-### 2026-06-26T11:30:31+00:00
-Darjeeling Consumer Commission Holds Amazon, Seller Liable For Delivering Wrong Product And Refusing Refund
-https://www.livelaw.in/consumer-cases/darjeeling-consumer-commission-holds-amazon-seller-liable-delivering-wrong-product-refusing-refund-539055
-
-[Read on Telegram](https://t.me/livelawindia/113482)
-
----
-### 2026-06-26T12:43:11+00:00
-LiveLaw Academy Launches Data Protection Law Course by Vrinda Bhandari
-https://www.livelaw.in/top-stories/livelaw-academy-launches-data-protection-law-course-vrinda-bhandari-539074
-
-[Read on Telegram](https://t.me/livelawindia/113483)
-
----
-### 2026-06-26T12:59:31+00:00
-Into Legal World Presents: Professional Diploma In Insurance Litigation, Dispute Resolution & Claims Strategy — Online Certificate Course For Law Students & Advocates In India
-https://www.livelaw.in/lawschool/diploma-certificate-courses/into-legal-world-presents-professional-diploma-in-insurance-litigation-dispute-resolution-claims-strategy-539076
-
-[Read on Telegram](https://t.me/livelawindia/113484)
-
----
-### 2026-06-26T14:32:32+00:00
-Yes, A Celebrity Must Be Protected, But To What Extent?
-https://www.livelaw.in/lawschool/articles/celebrity-must-be-protected-538993
-
-[Read on Telegram](https://t.me/livelawindia/113485)
-
----
-### 2026-06-26T15:24:42+00:00
-Bombay High Court Rejects Challenge To Recruitment Process For Appointment Of District Judges In Maharashtra
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-rejects-challenge-recruitment-process-appointment-district-judge-539080
-
-[Read on Telegram](https://t.me/livelawindia/113486)
-
----
-### 2026-06-26T15:47:42+00:00
-Challenge To Correctness Of Model Answer Key Maintainable, Not Same As Seeking Re-Evaluation: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/challenge-to-correctness-of-model-answer-key-maintainable-not-same-as-seeking-re-evaluation-delhi-high-court-539081
-
-[Read on Telegram](https://t.me/livelawindia/113487)
-
----
 ### 2026-06-27T00:32:32+00:00
 MP High Court Restores Permission For Muharram Procession And Fair In Indore
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-taazia-procession-and-mela-permission-restored-539086
 
 [Read on Telegram](https://t.me/livelawindia/113488)
+
+---
+### 2026-06-27T04:03:05+00:00
+Experience As Principal Can Be Counted  For Appointment As Vice Chancellor : Uttarakhand HC
+https://www.livelaw.in/high-court/uttarakhand-high-court/experience-as-principal-can-be-counted-for-appointment-as-vice-chancellor-uttarakhand-hc-539024
+
+[Read on Telegram](https://t.me/livelawindia/113489)
+
+---
+### 2026-06-27T04:17:15+00:00
+Wife's Remark That She Could Have '1000 Husbands' Amounted To Grave And Sudden Provocation: MP High Court Alters Man's Conviction
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/204-part-1-ipc-conviction-altered-to-section-304-ii-ipc-wife-1000-husbands-grave-sudden-provocation-539088
+
+[Read on Telegram](https://t.me/livelawindia/113490)
+
+---
+### 2026-06-27T04:17:25+00:00
+Memoir Of Constitutional Lawyering & Feminist Resistance : On Indira Jaising's 'Constitution Is My Home'
+https://www.livelaw.in/book-reviews/memoir-of-constitutional-lawyering-feminist-resistance-on-indira-jaisings-constitution-is-my-home-539089
+
+[Read on Telegram](https://t.me/livelawindia/113491)
+
+---
+### 2026-06-27T04:19:16+00:00
+Supreme Court Weekly Roundup: June 15, 2026 To June 21, 2026
+https://www.livelaw.in/round-ups/weekly/supreme-court-weekly-roundup-june-15-2026-to-june-21-2026-539091
+
+[Read on Telegram](https://t.me/livelawindia/113492)
+
+---
+### 2026-06-27T04:32:56+00:00
+'Unspeakable Betrayal Of Trust': Odisha POCSO Court Sentences Father To 20 Years Rigorous Imprisonment For Repeated Rape Of Minor Daughter
+https://www.livelaw.in/news-updates/pocso-court-sentences-father-20years-imprisonment-rape-minor-daughter-539092
+
+[Read on Telegram](https://t.me/livelawindia/113493)
+
+---
+### 2026-06-27T04:33:06+00:00
+When IVF Goes Wrong: India Needs Better Safeguards Against Embryo Mix-Ups
+https://www.livelaw.in/articles/ivf-goes-wrong-india-needs-better-safeguards-embryo-mixups-539049
+
+[Read on Telegram](https://t.me/livelawindia/113494)
+
+---
+### 2026-06-27T04:42:56+00:00
+Trial Court Cannot Mechanically Halt NDPS Trial Because Supplementary Complaint Against Co-Accused Is Pending: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-trial-court-cannot-mechanically-keep-ndps-trial-in-abeyance-merely-because-supplementary-complaint-against-co-accused-is-pending-539083
+
+[Read on Telegram](https://t.me/livelawindia/113495)
+
+---
+### 2026-06-27T04:44:36+00:00
+Allahabad High Court Grants Last Opportunity To UP Govt To Submit OBC Commission Report On Panchayat Reservation
+https://www.livelaw.in/high-court/allahabad-high-court/up-government-submit-obc-commission-report-gram-panchayat-reservation-539093
+
+[Read on Telegram](https://t.me/livelawindia/113496)
+
+---
+### 2026-06-27T05:30:46+00:00
+#TheLawChallenge
+ : A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
+https://www.livelaw.in/top-stories/livelaw-and-qshala-weekly-quiz-539095
+
+[Read on Telegram](https://t.me/livelawindia/113497)
+
+---
+### 2026-06-27T05:44:26+00:00
+General Manager (Company Secretary) Vacancy At PNB MetLife India Insurance Company Limited
+https://www.livelaw.in/job-updates/general-manager-company-secretary-vacancy-at-pnb-metlife-india-insurance-company-limited-539097
+
+[Read on Telegram](https://t.me/livelawindia/113498)
+
+---
+### 2026-06-27T05:45:46+00:00
+Legal Cum Probation Officer Vacancy At District Child Protection Unit, Dharmapuri District, Tamil Nadu
+https://www.livelaw.in/job-updates/legal-cum-probation-officer-vacancy-at-district-child-protection-unit-dharmapuri-district-tamil-nadu-539098
+
+[Read on Telegram](https://t.me/livelawindia/113499)
+
+---
+### 2026-06-27T05:49:26+00:00
+Junior Superintendent (Legal) Vacancy At Indian Institute Of Technology, Kanpur
+https://www.livelaw.in/job-updates/junior-superintendent-legal-vacancy-at-indian-institute-of-technology-kanpur-539099
+
+[Read on Telegram](https://t.me/livelawindia/113500)
+
+---
+### 2026-06-27T05:50:06+00:00
+Andhra Pradesh High Court Acquits Accused In ACB Trap Case, Says FIR Lodged After Investigation Began
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-anticorruption-bureau-trap-convictions-539100
+
+[Read on Telegram](https://t.me/livelawindia/113501)
+
+---
+### 2026-06-27T05:57:47+00:00
+'Res Judicata Cannot Be Applied Rigidly To Interlocutory Procedural Orders Like Restoring Cross-Examination': Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-rejects-challenge-allowing-cross-examination-second-application-539084
+
+[Read on Telegram](https://t.me/livelawindia/113502)
+
+---
+### 2026-06-27T06:02:47+00:00
+Corporate Counsel Vacancy At Amazon's Legal Department
+https://www.livelaw.in/job-updates/corporate-counsel-vacancy-at-amazons-legal-department-539102
+
+[Read on Telegram](https://t.me/livelawindia/113503)
+
+---
+### 2026-06-27T06:17:37+00:00
+Supreme Court Weekly Digest May 24 - 31, 2026
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-weekly-digest-may-2026-539103
+
+[Read on Telegram](https://t.me/livelawindia/113504)
+
+---
+### 2026-06-27T07:25:27+00:00
+Young Professional (Legal) Vacancy At Department Of Promotion Of Industry And Internal Trade Salt Commissioner Organization
+https://www.livelaw.in/job-updates/young-professional-legal-vacancy-at-department-of-promotion-of-industry-and-internal-trade-salt-commissioner-organization-539106
+
+[Read on Telegram](https://t.me/livelawindia/113505)
+
+---
+### 2026-06-27T08:03:57+00:00
+Small Cause Court Should Return Plaint Where Bona Fide Title Dispute Can't Be Summarily Decided: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-small-causes-court-return-plaint-dispute-of-title-539110
+
+[Read on Telegram](https://t.me/livelawindia/113506)
+
+---
+### 2026-06-27T08:38:18+00:00
+'Old Torn Hymen' Can't Give Benefit Of Doubt In Rape Case If Victim's Testimony Reliable: Allahabad High Court Upholds 1983 Conviction
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-old-torn-hymen-rape-conviction-survivor-testimony-539114
+
+[Read on Telegram](https://t.me/livelawindia/113507)
 
 ---
