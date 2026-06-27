@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-26T06:02:37+00:00*
+*Last Updated: 2026-06-26T06:37:18+00:00*
 
 ---
 
-### 2026-06-26T06:02:37+00:00
-State Can't Claim Adverse Possession Over Citizens' Land: P&H High Court Directs Compensation For Land Used Without Acquisition
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/land-acquisition-govt-cant-claim-adverse-possession-over-citizens-land-539004
-
-[Read on Telegram](https://t.me/livelawindia/113468)
-
----
 ### 2026-06-26T06:37:18+00:00
 Mere Assertion Of Title Dispute During Acquisition Doesn't Mandate Civil Court Reference Under National Highways Act: J&K&L High Court
 https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-mere-assertion-of-title-dispute-doesnt-mandate-civil-court-reference-under-section-3h4-of-national-highways-act-dispute-must-be-legally-cognizable-538968
@@ -142,5 +135,12 @@ Challenge To Correctness Of Model Answer Key Maintainable, Not Same As Seeking R
 https://www.livelaw.in/high-court/delhi-high-court/challenge-to-correctness-of-model-answer-key-maintainable-not-same-as-seeking-re-evaluation-delhi-high-court-539081
 
 [Read on Telegram](https://t.me/livelawindia/113487)
+
+---
+### 2026-06-27T00:32:32+00:00
+MP High Court Restores Permission For Muharram Procession And Fair In Indore
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-taazia-procession-and-mela-permission-restored-539086
+
+[Read on Telegram](https://t.me/livelawindia/113488)
 
 ---
