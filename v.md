@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-27T14:12:50+00:00*
+*Last Updated: 2026-06-27T15:02:15+00:00*
+
+---
+
+### 2026-06-27T15:02:15+00:00
+Executive (Law) Vacancy At North Eastern Electric Power Corporation Limited (NEEPCO)
+https://www.verdictum.in/job-updates/north-eastern-electric-power-corporation-limited-1616739
+
+[Source Link](https://t.me/verdictumlegalupdates/27671)
 
 ---
 
@@ -153,14 +161,6 @@ Married Daughter Entitled To Fair Price Shop Dealership Under Dependent Quota: A
 https://www.verdictum.in/allahabad-high-court/2026-ahc-lko-41494-reena-devi-patel-v-state-of-up-1616670
 
 [Source Link](https://t.me/verdictumlegalupdates/27652)
-
----
-
-### 2026-06-26T13:32:10+00:00
-No Bar On Challenge To Correctness Of Suggested Answers In UPSC Model Answer Key When Same Is Demonstrably Unacceptable: Delhi High Court
-https://www.verdictum.in/delhi-high-court/bisen-anshul-kumar-v-union-of-india-2026dhc5160-db-challenge-answers-upsc-1616669
-
-[Source Link](https://t.me/verdictumlegalupdates/27651)
 
 ---
 
