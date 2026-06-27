@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-26T16:02:18+00:00*
+*Last Updated: 2026-06-27T04:32:31+00:00*
+
+---
+
+### 2026-06-27T04:32:31+00:00
+Cannot Challenge The Very Process In Which They Competed: Bombay HC Dismisses 8 Advocates' Challenge To District Judge Recruitment After Failing In Preliminary Exam
+https://www.verdictum.in/bombay-high-court/suraj-deepak-mane-v-state-of-maharashtra-writ-petition-no7604-of-2026-advocates-challenge-district-judge-recruitment-after-failing-in-preliminary-exam-1616676
+
+[Source Link](https://t.me/verdictumlegalupdates/27657)
 
 ---
 
@@ -153,14 +161,6 @@ Woman Aged 50 Years Eligible For Surrogacy Until She Turns 51; Magistrate Has No
 https://www.verdictum.in/madras-high-court/nandhini-devi-v-the-state-of-tamil-nadu-crl-rc-no-950-of-2026-magistrate-has-no-appellate-power-woman-aged-50-years-eligible-for-surrogacy-1616642
 
 [Source Link](https://t.me/verdictumlegalupdates/27638)
-
----
-
-### 2026-06-26T06:31:28+00:00
-Brothers Of Deceased Can Maintain Motor Accident Compensation Claim As Legal Representatives U/S 166 MV Act: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/ahmedbhai-sharafatali-sai-anr-v-keshubhai-mohanbhai-parmar-ors-1616641
-
-[Source Link](https://t.me/verdictumlegalupdates/27637)
 
 ---
 
