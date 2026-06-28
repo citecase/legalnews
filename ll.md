@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-27T09:18:08+00:00*
+*Last Updated: 2026-06-27T09:33:09+00:00*
 
 ---
 
-### 2026-06-27T09:18:08+00:00
-J&K CSR | Borrowing Organisation Must Release Leave Salary To Deputationist Before Seeking Reimbursement From Parent Department: High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jk-csr-borrowing-organisation-must-release-leave-salary-to-deputationist-before-seeking-reimbursement-from-parent-department-high-court-539085
-
-[Read on Telegram](https://t.me/livelawindia/113509)
-
----
 ### 2026-06-27T09:33:09+00:00
 How Word 'Advertising' Stripped Google Of Safe Harbour
 https://www.livelaw.in/lawschool/articles/advertising-stripped-google-safe-harbour-539051
@@ -142,5 +135,12 @@ Parents Supporting Wife During Distress Doesn't Absolve Husband Of Legal Obligat
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-wife-maintenance-125-crpc-parents-support-distress-539153
 
 [Read on Telegram](https://t.me/livelawindia/113528)
+
+---
+### 2026-06-28T14:32:32+00:00
+AI In Courtroom And Classroom: Beyond Hype
+https://www.livelaw.in/articles/ai-courtroom-classroom-beyond-hype-539131
+
+[Read on Telegram](https://t.me/livelawindia/113529)
 
 ---
