@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-28T09:02:07+00:00*
+*Last Updated: 2026-06-28T13:33:12+00:00*
+
+---
+
+### 2026-06-28T13:33:12+00:00
+GIS Mapping Valid Aid To Identify Encroachment: Gauhati High Court Upholds Eviction Of Taungya Settlers From Assam’s Reserved Forest Areas
+https://www.verdictum.in/guwahati-high-court/abdul-khalek-v-the-state-of-assam-gahc010129002026-taungya-settlers-eviction-1616779
+
+[Source Link](https://t.me/verdictumlegalupdates/27678)
+
+---
+
+### 2026-06-28T12:02:10+00:00
+Maintenance Can Be Granted Only When Wife Cannot Maintain Herself to Husband's Standard: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/r-v-s-2026khc30140-courts-cannot-award-maintenance-because-wife-files-petition-1616773
+
+[Source Link](https://t.me/verdictumlegalupdates/27677)
+
+---
+
+### 2026-06-28T10:32:29+00:00
+Remission Philosophy Is Reformative, Not Retributive: Chhattisgarh HC Quashes State's Rejection Of Life Convict's Plea For Premature Release
+https://www.verdictum.in/chhattisgarh-high-court/2026-cghc-26180-db-manish-kumar-ratre-v-state-of-chhattisgarh-1616746
+
+[Source Link](https://t.me/verdictumlegalupdates/27676)
 
 ---
 
@@ -137,30 +161,6 @@ KPTCL Cannot Revise Supervision Charges Beyond KERC Ceiling; Observation To "Tak
 https://www.verdictum.in/karnataka-high-court/ms-anushka-realty-inc-v-state-of-karnataka-2026khc25466-kptcl-cannot-revise-supervision-charges-beyond-kerc-ceiling-1616706
 
 [Source Link](https://t.me/verdictumlegalupdates/27659)
-
----
-
-### 2026-06-27T05:12:23+00:00
-Maharashtra Co-operative Societies Act| Deputy Registrar Cannot Adjudicate Member's Complaint U/S 83; May Only Use Them As Information For Suo Motu Action: Bombay High Court
-https://www.verdictum.in/bombay-high-court/raghuleela-megamall-kandivali-west-v-divisional-joint-registrar-co-operative-society-wp-2980-of-2021-deputy-registrar-us-83-mcs-act-suo-motu-1616703
-
-[Source Link](https://t.me/verdictumlegalupdates/27658)
-
----
-
-### 2026-06-27T04:32:31+00:00
-Cannot Challenge The Very Process In Which They Competed: Bombay HC Dismisses 8 Advocates' Challenge To District Judge Recruitment After Failing In Preliminary Exam
-https://www.verdictum.in/bombay-high-court/suraj-deepak-mane-v-state-of-maharashtra-writ-petition-no7604-of-2026-advocates-challenge-district-judge-recruitment-after-failing-in-preliminary-exam-1616676
-
-[Source Link](https://t.me/verdictumlegalupdates/27657)
-
----
-
-### 2026-06-26T16:02:18+00:00
-Special Public Prosecutor Vacancy At Tiruvallur District Court
-https://www.verdictum.in/job-updates/tiruvallur-district-court-1616672
-
-[Source Link](https://t.me/verdictumlegalupdates/27656)
 
 ---
 
