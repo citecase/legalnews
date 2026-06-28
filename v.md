@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-27T15:02:15+00:00*
+*Last Updated: 2026-06-28T04:32:52+00:00*
+
+---
+
+### 2026-06-28T04:32:52+00:00
+MEPS Act| Non-Payment Of Notice Pay Does Not Invalidate Termination; Early Acceptance Of Resignation Not Illegal Per Se: Bombay High Court
+https://www.verdictum.in/bombay-high-court/susheela-srinivasan-v-vidya-prasarak-mandal-writ-petition-no-3028-of-2003-rejects-teachers-challenge-to-termination-1616740
+
+[Source Link](https://t.me/verdictumlegalupdates/27672)
 
 ---
 
@@ -153,14 +161,6 @@ Though MTP Act Doesn’t Provide For Termination Of Pregnancy Over 24 Weeks Extr
 https://www.verdictum.in/delhi-high-court/minor-r-thr-her-father-r-v-state-nct-of-delhi-2026-dhc5164-mtp-act-pregnancy-1616671
 
 [Source Link](https://t.me/verdictumlegalupdates/27653)
-
----
-
-### 2026-06-26T14:02:31+00:00
-Married Daughter Entitled To Fair Price Shop Dealership Under Dependent Quota: Allahabad High Court Sets Aside Rejection Of Compassionate Allotment
-https://www.verdictum.in/allahabad-high-court/2026-ahc-lko-41494-reena-devi-patel-v-state-of-up-1616670
-
-[Source Link](https://t.me/verdictumlegalupdates/27652)
 
 ---
 
