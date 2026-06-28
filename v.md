@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-28T04:32:52+00:00*
+*Last Updated: 2026-06-28T09:02:07+00:00*
+
+---
+
+### 2026-06-28T09:02:07+00:00
+Mere Filing Of Chargesheet No Bar To Grant Of Anticipatory Bail: Jharkhand High Court
+https://www.verdictum.in/jharkhand-high-court/abhay-kumar-mishra-v-the-state-of-jharkhand-2026jhhc18476-anticipatory-bail-1616745
+
+[Source Link](https://t.me/verdictumlegalupdates/27675)
+
+---
+
+### 2026-06-28T07:32:06+00:00
+Absorbed Employees Of UPCL Constitute Distinct Class From Directly Appointed Employees: Uttarakhand High Court Upholds Validity Of Clause 20(B) Of Junior Engineer Service Bye-laws
+https://www.verdictum.in/uttarakhand-high-court/rahul-giri-v-state-of-uttarakhand-absorbed-employees-upcl-service-bye-laws-1616742
+
+[Source Link](https://t.me/verdictumlegalupdates/27674)
+
+---
+
+### 2026-06-28T06:03:04+00:00
+Failure To Record Complainants' Statements Or Permit Cross-Examination Can Vitiate ICC Inquiry Under POSH Act: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/dr-tapas-kumar-das-v-harish-chandra-research-institute-and-others-2026ahc85796-1616741
+
+[Source Link](https://t.me/verdictumlegalupdates/27673)
 
 ---
 
@@ -137,30 +161,6 @@ Special Public Prosecutor Vacancy At Tiruvallur District Court
 https://www.verdictum.in/job-updates/tiruvallur-district-court-1616672
 
 [Source Link](https://t.me/verdictumlegalupdates/27656)
-
----
-
-### 2026-06-26T15:32:16+00:00
-Proof Of Vehicle Ownership Not Needed To Establish Possession Of Contraband If Accused Found Inside Vehicle: Kerala High Court
-https://www.verdictum.in/kerala-high-court/2026-ker-45583-sahid-k-v-state-of-kerala-1616674
-
-[Source Link](https://t.me/verdictumlegalupdates/27655)
-
----
-
-### 2026-06-26T15:02:34+00:00
-Mere Inclusion In Select List Confers No Right To Appointment Against Future Vacancies: J&K&L High Court Rejects Subordinate Judges' Seniority Claim
-https://www.verdictum.in/jammu-ladakh-high-court/tabassum-qadir-parray-ors-v-high-court-of-jammu-kashmir-ors-2026jklhc-sgr87-db-1616673
-
-[Source Link](https://t.me/verdictumlegalupdates/27654)
-
----
-
-### 2026-06-26T14:32:53+00:00
-Though MTP Act Doesn’t Provide For Termination Of Pregnancy Over 24 Weeks Extraordinary Jurisdiction Can Be Invoked In Rape Cases Involving Minors: Delhi High Court
-https://www.verdictum.in/delhi-high-court/minor-r-thr-her-father-r-v-state-nct-of-delhi-2026-dhc5164-mtp-act-pregnancy-1616671
-
-[Source Link](https://t.me/verdictumlegalupdates/27653)
 
 ---
 
