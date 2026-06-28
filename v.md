@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-28T13:33:12+00:00*
+*Last Updated: 2026-06-28T15:02:33+00:00*
+
+---
+
+### 2026-06-28T15:02:33+00:00
+State Bank of India Invites Applications For The Post Of Assistant & Deputy Manager (Law)
+https://www.verdictum.in/job-updates/state-bank-of-india-1616744
+
+[Source Link](https://t.me/verdictumlegalupdates/27679)
 
 ---
 
@@ -153,14 +161,6 @@ High Court Alone Has Control Over Posting Of Judicial Officers & Ministerial Sta
 https://www.verdictum.in/guwahati-high-court/quashes-labour-department-transfer-notification-staff-industrial-tribunal-article-235-1616709
 
 [Source Link](https://t.me/verdictumlegalupdates/27660)
-
----
-
-### 2026-06-27T06:02:24+00:00
-KPTCL Cannot Revise Supervision Charges Beyond KERC Ceiling; Observation To "Take Suitable Decision" Not Approval: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/ms-anushka-realty-inc-v-state-of-karnataka-2026khc25466-kptcl-cannot-revise-supervision-charges-beyond-kerc-ceiling-1616706
-
-[Source Link](https://t.me/verdictumlegalupdates/27659)
 
 ---
 
