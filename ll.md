@@ -1,24 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-27T04:44:36+00:00*
+*Last Updated: 2026-06-27T05:44:26+00:00*
 
 ---
 
-### 2026-06-27T04:44:36+00:00
-Allahabad High Court Grants Last Opportunity To UP Govt To Submit OBC Commission Report On Panchayat Reservation
-https://www.livelaw.in/high-court/allahabad-high-court/up-government-submit-obc-commission-report-gram-panchayat-reservation-539093
-
-[Read on Telegram](https://t.me/livelawindia/113496)
-
----
-### 2026-06-27T05:30:46+00:00
-#TheLawChallenge
- : A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
-https://www.livelaw.in/top-stories/livelaw-and-qshala-weekly-quiz-539095
-
-[Read on Telegram](https://t.me/livelawindia/113497)
-
----
 ### 2026-06-27T05:44:26+00:00
 General Manager (Company Secretary) Vacancy At PNB MetLife India Insurance Company Limited
 https://www.livelaw.in/job-updates/general-manager-company-secretary-vacancy-at-pnb-metlife-india-insurance-company-limited-539097
@@ -143,5 +128,19 @@ NLU Jodhpur And USIEF To Host International Symposium On Comparative Legislative
 https://www.livelaw.in/lawschool/news/nlu-jodhpur-usief-host-international-symposium-comparative-legislative-governance-539140
 
 [Read on Telegram](https://t.me/livelawindia/113515)
+
+---
+### 2026-06-28T04:05:45+00:00
+P&H High Court Judge Justice Mahabir Singh Sindhu Passes Away
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-justice-mahabir-singh-sindhu-passes-away-539141
+
+[Read on Telegram](https://t.me/livelawindia/113516)
+
+---
+### 2026-06-28T04:09:05+00:00
+CCPA Imposes ₹1 Lakh Penalty On Mrs. Bector's For Misleading '100% Atta Bread' And '100% Whole Wheat Bread' Claims
+https://www.livelaw.in/consumer-cases/ccpa-imposes-1-lakh-penalty-on-mrs-bector-misleading-100-atta-bread-100-whole-wheat-bread-claims-539142
+
+[Read on Telegram](https://t.me/livelawindia/113517)
 
 ---
