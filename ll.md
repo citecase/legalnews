@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-27T05:44:26+00:00*
+*Last Updated: 2026-06-27T08:38:18+00:00*
 
 ---
 
-### 2026-06-27T05:44:26+00:00
-General Manager (Company Secretary) Vacancy At PNB MetLife India Insurance Company Limited
-https://www.livelaw.in/job-updates/general-manager-company-secretary-vacancy-at-pnb-metlife-india-insurance-company-limited-539097
-
-[Read on Telegram](https://t.me/livelawindia/113498)
-
----
-### 2026-06-27T05:45:46+00:00
-Legal Cum Probation Officer Vacancy At District Child Protection Unit, Dharmapuri District, Tamil Nadu
-https://www.livelaw.in/job-updates/legal-cum-probation-officer-vacancy-at-district-child-protection-unit-dharmapuri-district-tamil-nadu-539098
-
-[Read on Telegram](https://t.me/livelawindia/113499)
-
----
-### 2026-06-27T05:49:26+00:00
-Junior Superintendent (Legal) Vacancy At Indian Institute Of Technology, Kanpur
-https://www.livelaw.in/job-updates/junior-superintendent-legal-vacancy-at-indian-institute-of-technology-kanpur-539099
-
-[Read on Telegram](https://t.me/livelawindia/113500)
-
----
-### 2026-06-27T05:50:06+00:00
-Andhra Pradesh High Court Acquits Accused In ACB Trap Case, Says FIR Lodged After Investigation Began
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-anticorruption-bureau-trap-convictions-539100
-
-[Read on Telegram](https://t.me/livelawindia/113501)
-
----
-### 2026-06-27T05:57:47+00:00
-'Res Judicata Cannot Be Applied Rigidly To Interlocutory Procedural Orders Like Restoring Cross-Examination': Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-rejects-challenge-allowing-cross-examination-second-application-539084
-
-[Read on Telegram](https://t.me/livelawindia/113502)
-
----
-### 2026-06-27T06:02:47+00:00
-Corporate Counsel Vacancy At Amazon's Legal Department
-https://www.livelaw.in/job-updates/corporate-counsel-vacancy-at-amazons-legal-department-539102
-
-[Read on Telegram](https://t.me/livelawindia/113503)
-
----
-### 2026-06-27T06:17:37+00:00
-Supreme Court Weekly Digest May 24 - 31, 2026
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-weekly-digest-may-2026-539103
-
-[Read on Telegram](https://t.me/livelawindia/113504)
-
----
-### 2026-06-27T07:25:27+00:00
-Young Professional (Legal) Vacancy At Department Of Promotion Of Industry And Internal Trade Salt Commissioner Organization
-https://www.livelaw.in/job-updates/young-professional-legal-vacancy-at-department-of-promotion-of-industry-and-internal-trade-salt-commissioner-organization-539106
-
-[Read on Telegram](https://t.me/livelawindia/113505)
-
----
-### 2026-06-27T08:03:57+00:00
-Small Cause Court Should Return Plaint Where Bona Fide Title Dispute Can't Be Summarily Decided: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-small-causes-court-return-plaint-dispute-of-title-539110
-
-[Read on Telegram](https://t.me/livelawindia/113506)
-
----
 ### 2026-06-27T08:38:18+00:00
 'Old Torn Hymen' Can't Give Benefit Of Doubt In Rape Case If Victim's Testimony Reliable: Allahabad High Court Upholds 1983 Conviction
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-old-torn-hymen-rape-conviction-survivor-testimony-539114
@@ -142,5 +79,68 @@ CCPA Imposes ₹1 Lakh Penalty On Mrs. Bector's For Misleading '100% Atta Bread'
 https://www.livelaw.in/consumer-cases/ccpa-imposes-1-lakh-penalty-on-mrs-bector-misleading-100-atta-bread-100-whole-wheat-bread-claims-539142
 
 [Read on Telegram](https://t.me/livelawindia/113517)
+
+---
+### 2026-06-28T04:33:16+00:00
+How 'Commercial Wisdom' Eclipsed Law In Bhushan Steel Saga
+https://www.livelaw.in/articles/commercial-wisdom-eclipsed-law-bhushan-steel-saga-539129
+
+[Read on Telegram](https://t.me/livelawindia/113518)
+
+---
+### 2026-06-28T04:38:36+00:00
+Supreme Court Monthly Digest: May 2026
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-monthly-digest-may-2026-539145
+
+[Read on Telegram](https://t.me/livelawindia/113519)
+
+---
+### 2026-06-28T05:03:56+00:00
+Assistant Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP [Mumbai; Apply Now]
+https://www.livelaw.in/job-updates/assistant-manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-mumbai-539147
+
+[Read on Telegram](https://t.me/livelawindia/113520)
+
+---
+### 2026-06-28T05:58:47+00:00
+School Management Dispute Between Two Lawyers: Jharkhand High Court Grants Anticipatory Bail To Advocate
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-grants-anticipatory-bail-school-management-dispute-two-lawyers-539148
+
+[Read on Telegram](https://t.me/livelawindia/113521)
+
+---
+### 2026-06-28T06:32:37+00:00
+Restaurant Can't Force Customers To Pay Service Charge: Chandigarh Consumer Commission Holds Caper Rooftop Bistro Liable
+https://www.livelaw.in/consumer-cases/restaurant-cant-force-customers-to-pay-service-charge-chandigarh-consumer-commission-holds-caper-rooftop-bistro-liable-539143
+
+[Read on Telegram](https://t.me/livelawindia/113522)
+
+---
+### 2026-06-28T06:40:37+00:00
+Justice Mahabir Singh Sindhu Passes Away: Punjab & Haryana High Court Loses A Compassionate And Fearless Voice
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-justice-mahabir-singh-sindhu-loses-a-compassionate-and-fearless-voice-539149
+
+[Read on Telegram](https://t.me/livelawindia/113523)
+
+---
+### 2026-06-28T07:18:28+00:00
+Welfare Scheme House Allotment To Wife Doesn't Disentitle Her From Claiming Maintenance U/S 125 CrPC: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-welfare-scheme-house-allotment-wife-maintenance-section-125-crpc-539150
+
+[Read on Telegram](https://t.me/livelawindia/113524)
+
+---
+### 2026-06-28T07:44:48+00:00
+CCPA Fines Storia ₹1 Lakh; Says '100% Tender Coconut Water' Claim Misled Consumers
+https://www.livelaw.in/consumer-cases/ccpa-fines-storia-1-lakh-says-100-tender-coconut-water-claim-misled-consumers-539151
+
+[Read on Telegram](https://t.me/livelawindia/113525)
+
+---
+### 2026-06-28T08:32:38+00:00
+Share Trading For Additional Income Is Commercial Activity, Investor Not A 'Consumer': Uttarakhand State Commission
+https://www.livelaw.in/consumer-cases/share-trading-for-additional-income-commercial-activity-investor-not-consumer-uttarakhand-state-commission-539146
+
+[Read on Telegram](https://t.me/livelawindia/113526)
 
 ---
