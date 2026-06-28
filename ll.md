@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-27T08:38:18+00:00*
+*Last Updated: 2026-06-27T09:18:08+00:00*
 
 ---
 
-### 2026-06-27T08:38:18+00:00
-'Old Torn Hymen' Can't Give Benefit Of Doubt In Rape Case If Victim's Testimony Reliable: Allahabad High Court Upholds 1983 Conviction
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-old-torn-hymen-rape-conviction-survivor-testimony-539114
-
-[Read on Telegram](https://t.me/livelawindia/113507)
-
----
-### 2026-06-27T09:03:08+00:00
-Gauhati High Court Asks Assam Govt To Create Separate Cadre For Community Health Professionals, Expedite Process For Service Benefits
-https://www.livelaw.in/high-court/gauhati-high-court/assam-rural-health-community-health-professionals-cadre-service-benefits-539111
-
-[Read on Telegram](https://t.me/livelawindia/113508)
-
----
 ### 2026-06-27T09:18:08+00:00
 J&K CSR | Borrowing Organisation Must Release Leave Salary To Deputationist Before Seeking Reimbursement From Parent Department: High Court
 https://www.livelaw.in/high-court/jammu-kashmir/jk-csr-borrowing-organisation-must-release-leave-salary-to-deputationist-before-seeking-reimbursement-from-parent-department-high-court-539085
@@ -142,5 +128,19 @@ Share Trading For Additional Income Is Commercial Activity, Investor Not A 'Cons
 https://www.livelaw.in/consumer-cases/share-trading-for-additional-income-commercial-activity-investor-not-consumer-uttarakhand-state-commission-539146
 
 [Read on Telegram](https://t.me/livelawindia/113526)
+
+---
+### 2026-06-28T09:33:09+00:00
+Zombie Trademarks In Metaverse
+https://www.livelaw.in/lawschool/articles/zombie-trademarks-metaverse-539130
+
+[Read on Telegram](https://t.me/livelawindia/113527)
+
+---
+### 2026-06-28T09:37:09+00:00
+Parents Supporting Wife During Distress Doesn't Absolve Husband Of Legal Obligation To Maintain Her: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-wife-maintenance-125-crpc-parents-support-distress-539153
+
+[Read on Telegram](https://t.me/livelawindia/113528)
 
 ---
