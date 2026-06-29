@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-29T11:07:10+00:00*
+*Last Updated: 2026-06-29T12:26:11+00:00*
 
 ---
 
-### 2026-06-29T11:07:10+00:00
-Kerala High Court Seeks Files On Appointment Of Bodybuilders Shinu Chova & Chitharesh Natesan As Police Inspectors Amid 'Backdoor Entry' Claims
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-shinu-chova-chitharesh-natesan-police-officers-539223
-
-[Read on Telegram](https://t.me/livelawindia/113566)
-
----
-### 2026-06-29T11:17:10+00:00
-Can Single Women Below 35 Undergo Surrogacy? Karnataka High Court Seeks Centre's Reply, Declines Interim Relief To 32-Year-Old
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-single-women-surrogacy-age-restrictions-challenged-539225
-
-[Read on Telegram](https://t.me/livelawindia/113567)
-
----
-### 2026-06-29T11:33:20+00:00
-LiveLaw Madhya Pradesh High Court Weekly Roundup: June 22 - June 28, 2026
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-weekly-digest-june-22-to-june-28-2026-539191
-
-[Read on Telegram](https://t.me/livelawindia/113568)
-
----
-### 2026-06-29T11:47:40+00:00
-Kerala High Court Upholds Kerala Water Authority's 80% Interim Payment Clause For Jal Jeevan Mission Material Supplies Contracts
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kwa-interim-payment-clause-jal-jeevan-mission-contracts-539226
-
-[Read on Telegram](https://t.me/livelawindia/113569)
-
----
-### 2026-06-29T12:20:51+00:00
-Sabarimala Gold Theft: SIT Informs Kerala High Court About Completion Of Probe On 'Doorframes', Seeks Time To Investigate On Dwarapalakas
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sabarimala-gold-theft-539232
-
-[Read on Telegram](https://t.me/livelawindia/113570)
-
----
-### 2026-06-29T12:21:11+00:00
-Calcutta High Court Orders Preservation Of CCTV Footage In Plea Challenging 5 AM Raid At Abhishek Banerjee's Residence
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-orders-preservation-of-cctv-footage-in-plea-challenging-5am-raid-at-abhishek-banerjees-residence-539233
-
-[Read on Telegram](https://t.me/livelawindia/113571)
-
----
-### 2026-06-29T12:24:31+00:00
-Telangana SIR | Consider Giving Urdu Forms In Constituencies With Above 20% Urdu-Knowing Voters  : High Court To ECI
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-telugu-only-enumeration-forms-for-sir-539234
-
-[Read on Telegram](https://t.me/livelawindia/113572)
-
----
 ### 2026-06-29T12:26:11+00:00
 'Conditions Shouldn't Be Illusory': Kerala High Court Sets Aside ₹75 Lakh Security Imposed On Mother Taking Child Abroad For Education
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-custody-case-onerous-condition-539235
@@ -142,5 +93,54 @@ Memorandum Recording Past Oral Family Settlement Doesn't Require Registration If
 https://www.livelaw.in/high-court/delhi-high-court/memorandum-recording-past-oral-family-settlement-doesnt-require-registration-if-it-doesnt-create-rights-afresh-delhi-high-court-539264
 
 [Read on Telegram](https://t.me/livelawindia/113585)
+
+---
+### 2026-06-29T16:03:06+00:00
+Source Of Father's Vacation Expenses Can't Be Basis To Deny Interim Custody Of Child: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/source-of-fathers-vacation-expenses-cant-be-basis-to-deny-interim-custody-of-child-delhi-high-court-539265
+
+[Read on Telegram](https://t.me/livelawindia/113586)
+
+---
+### 2026-06-29T16:17:36+00:00
+State Cannot Dissolve Municipality Without Fair Hearing: Calcutta High Court Sets Aside Purulia Civic Board's Dissolution
+https://www.livelaw.in/high-court/calcutta-high-court/state-cannot-dissolve-municipality-without-fair-hearing-calcutta-high-court-sets-aside-purulia-civic-boards-dissolution-539267
+
+[Read on Telegram](https://t.me/livelawindia/113587)
+
+---
+### 2026-06-29T16:27:56+00:00
+Calcutta High Court Weekly Round-Up: June 22 To June 28, 2026
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-weekly-round-up-june-22-to-june-28-2026-539266
+
+[Read on Telegram](https://t.me/livelawindia/113588)
+
+---
+### 2026-06-29T16:37:16+00:00
+"Its Been Two Decades, Wake Up Now" Bombay High Court Criticises BMC Over Potholed Roads In Mumbai
+https://www.livelaw.in/high-court/bombay-high-court/mumbai-road-safety-potholes-open-manholes-bmc-539269
+
+[Read on Telegram](https://t.me/livelawindia/113589)
+
+---
+### 2026-06-29T16:46:36+00:00
+LiveLaw Allahabad High Court Weekly Round-Up: June 22 - June 28, 2026
+https://www.livelaw.in/high-court/allahabad-high-court/livelaw-allahabad-high-court-weekly-round-up-june-22-june-28-2026-539271
+
+[Read on Telegram](https://t.me/livelawindia/113590)
+
+---
+### 2026-06-29T17:20:06+00:00
+Delhi High Court Declines To Interfere With Asian Games Dressage Team Selection, Upholds EFI's Selection Criteria
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-declines-to-interfere-with-asian-games-dressage-team-selection-upholds-efis-selection-criteria-539272
+
+[Read on Telegram](https://t.me/livelawindia/113591)
+
+---
+### 2026-06-29T17:27:26+00:00
+Indian Concept Of 'Dharma' Predates Common Law; Rule Of Law & Judicial Independence Not Western Imports : CJI Surya Kant
+https://www.livelaw.in/top-stories/indian-concept-of-dharma-predates-common-law-rule-of-law-judicial-independence-not-western-imports-cji-surya-kant-539273
+
+[Read on Telegram](https://t.me/livelawindia/113592)
 
 ---
