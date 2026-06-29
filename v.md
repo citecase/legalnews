@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-29T10:43:16+00:00*
+*Last Updated: 2026-06-29T15:32:37+00:00*
+
+---
+
+### 2026-06-29T15:32:37+00:00
+Grade-I of Tripura Judicial Service Vacancy At Tripura High Court
+https://www.verdictum.in/job-updates/tripura-high-court-1616831
+
+[Source Link](https://t.me/verdictumlegalupdates/27696)
+
+---
+
+### 2026-06-29T14:52:55+00:00
+Maligning Image Of Person Yet To Be Held Guilty May Come Within Defamatory Act: Patna High Court Prohibits Media Trial In Tender Scam Case
+https://www.verdictum.in/patna-high-court/rishu-shree-v-the-state-of-bihar-maligning-image-guilty-defamatory-act-tender-scam-1616838
+
+[Source Link](https://t.me/verdictumlegalupdates/27695)
+
+---
+
+### 2026-06-29T14:12:34+00:00
+Litigant Not To Be Penalized For Fault Of His Counsel: Chhattisgarh High Court Condones Delay Of 3558 Days In Filing Motor Accident Compensation Case
+https://www.verdictum.in/chhattisgarh-high-court/smt-lalmuni-yadav-v-punnulal-upadhyay-2026cghc26087-litigant-counsel-delay-1616837
+
+[Source Link](https://t.me/verdictumlegalupdates/27694)
+
+---
+
+### 2026-06-29T13:35:52+00:00
+Bank Operating As Group Insurance Master Policyholder Cannot Absolve Itself Of Liability By Terming Insurer Solely Responsible: Chhattisgarh High Court
+https://www.verdictum.in/chhattisgarh-high-court/2026-cghc-26160-branch-manager-state-bank-of-india-v-rashmi-shrivastava-1616835
+
+[Source Link](https://t.me/verdictumlegalupdates/27693)
+
+---
+
+### 2026-06-29T12:53:10+00:00
+Courts Answerable To Victims Of Crimes Too: Madras High Court Refuses To Suspend Sentence Of A  Category History Sheeter
+https://www.verdictum.in/madras-high-court/2026mhc2302-saba-v-state-of-tamil-nadu-1616830
+
+[Source Link](https://t.me/verdictumlegalupdates/27692)
+
+---
+
+### 2026-06-29T12:12:59+00:00
+Weekly Overview| Supreme Court Judgments: June 22 – June 26, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-june-22-june-26-2026-1616827
+
+[Source Link](https://t.me/verdictumlegalupdates/27691)
+
+---
+
+### 2026-06-29T11:32:57+00:00
+Compensation Claims U/S 56 ICA Require Proof of Knowledge & Empirical Evidence; Cannot Be Decided Summarily: Bombay High Court
+https://www.verdictum.in/bombay-high-court/mahaguj-collieries-ltd-v-adani-enterprises-ltd-commercial-arbitration-petition-no-483-of-2018-1616824
+
+[Source Link](https://t.me/verdictumlegalupdates/27690)
 
 ---
 
@@ -105,62 +161,6 @@ Maintenance Can Be Granted Only When Wife Cannot Maintain Herself to Husband's S
 https://www.verdictum.in/karnataka-high-court/r-v-s-2026khc30140-courts-cannot-award-maintenance-because-wife-files-petition-1616773
 
 [Source Link](https://t.me/verdictumlegalupdates/27677)
-
----
-
-### 2026-06-28T10:32:29+00:00
-Remission Philosophy Is Reformative, Not Retributive: Chhattisgarh HC Quashes State's Rejection Of Life Convict's Plea For Premature Release
-https://www.verdictum.in/chhattisgarh-high-court/2026-cghc-26180-db-manish-kumar-ratre-v-state-of-chhattisgarh-1616746
-
-[Source Link](https://t.me/verdictumlegalupdates/27676)
-
----
-
-### 2026-06-28T09:02:07+00:00
-Mere Filing Of Chargesheet No Bar To Grant Of Anticipatory Bail: Jharkhand High Court
-https://www.verdictum.in/jharkhand-high-court/abhay-kumar-mishra-v-the-state-of-jharkhand-2026jhhc18476-anticipatory-bail-1616745
-
-[Source Link](https://t.me/verdictumlegalupdates/27675)
-
----
-
-### 2026-06-28T07:32:06+00:00
-Absorbed Employees Of UPCL Constitute Distinct Class From Directly Appointed Employees: Uttarakhand High Court Upholds Validity Of Clause 20(B) Of Junior Engineer Service Bye-laws
-https://www.verdictum.in/uttarakhand-high-court/rahul-giri-v-state-of-uttarakhand-absorbed-employees-upcl-service-bye-laws-1616742
-
-[Source Link](https://t.me/verdictumlegalupdates/27674)
-
----
-
-### 2026-06-28T06:03:04+00:00
-Failure To Record Complainants' Statements Or Permit Cross-Examination Can Vitiate ICC Inquiry Under POSH Act: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/dr-tapas-kumar-das-v-harish-chandra-research-institute-and-others-2026ahc85796-1616741
-
-[Source Link](https://t.me/verdictumlegalupdates/27673)
-
----
-
-### 2026-06-28T04:32:52+00:00
-MEPS Act| Non-Payment Of Notice Pay Does Not Invalidate Termination; Early Acceptance Of Resignation Not Illegal Per Se: Bombay High Court
-https://www.verdictum.in/bombay-high-court/susheela-srinivasan-v-vidya-prasarak-mandal-writ-petition-no-3028-of-2003-rejects-teachers-challenge-to-termination-1616740
-
-[Source Link](https://t.me/verdictumlegalupdates/27672)
-
----
-
-### 2026-06-27T15:02:15+00:00
-Executive (Law) Vacancy At North Eastern Electric Power Corporation Limited (NEEPCO)
-https://www.verdictum.in/job-updates/north-eastern-electric-power-corporation-limited-1616739
-
-[Source Link](https://t.me/verdictumlegalupdates/27671)
-
----
-
-### 2026-06-27T14:12:50+00:00
-Delayed Production Of Counterfeit Notes Fatal To Prosecution: Kerala High Court Overturns Conviction
-https://www.verdictum.in/kerala-high-court/sathyan-so-sankaran-v-state-of-kerala-2026ker43955-counterfeit-notes-1616738
-
-[Source Link](https://t.me/verdictumlegalupdates/27670)
 
 ---
 
