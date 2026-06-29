@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-29T06:43:17+00:00*
+*Last Updated: 2026-06-29T11:07:10+00:00*
 
 ---
 
-### 2026-06-29T06:43:17+00:00
-Bengaluru Court Summons Home Minister Priyank Kharge In Defamation Case Over Remarks Against RSS
-https://www.livelaw.in/news-updates/bengaluru-court-state-home-minister-priyank-kharge-rss-remarks-539182
-
-[Read on Telegram](https://t.me/livelawindia/113547)
-
----
-### 2026-06-29T06:43:57+00:00
-Restaurant Liable For Levying Service Charge Without Consumer's Consent; Lawyer Awarded ₹15,000 Compensation
-https://www.livelaw.in/consumer-cases/restaurant-liable-levying-service-charge-without-consumer-consent-lawyer-awarded-15000-compensation-539183
-
-[Read on Telegram](https://t.me/livelawindia/113548)
-
----
-### 2026-06-29T06:47:57+00:00
-Kerala High Court Rejects Plea Against Withdrawal Of Twin Girls' Admission Benefit In Kendriya Vidyalaya Schools
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kendriya-vidyalaya-twin-girl-children-admission-539181
-
-[Read on Telegram](https://t.me/livelawindia/113549)
-
----
-### 2026-06-29T07:03:07+00:00
-Law University Cannot Force Repeater Students To Appear For New Syllabus Not Taught To Them: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-law-university-force-repeater-students-new-syllabus-539184
-
-[Read on Telegram](https://t.me/livelawindia/113550)
-
----
-### 2026-06-29T07:25:48+00:00
-Kerala High Court Orders Vigilance Inspection Into Alleged Gold Misappropriation At Ettumanoor Mahadeva Temple
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ettumanoor-mahadeva-temple-gold-misappropriation-tdb-vigilance-report-539190
-
-[Read on Telegram](https://t.me/livelawindia/113551)
-
----
-### 2026-06-29T07:32:28+00:00
-LiveLaw Madras High Court Weekly Roundup: June 22 - June 28, 2026
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-june-22-to-june-28-2026-539168
-
-[Read on Telegram](https://t.me/livelawindia/113552)
-
----
-### 2026-06-29T08:10:18+00:00
-'Child's Dignity Was Shattered': Odisha Court Sentences Tutor To 20-Years Imprisonment For Sexually Abusing Minor Boy
-https://www.livelaw.in/news-updates/odisha-pocso-court-sentences-urdu-tutor-repeated-oral-sex-male-student-539194
-
-[Read on Telegram](https://t.me/livelawindia/113553)
-
----
-### 2026-06-29T08:41:08+00:00
-Ayodhya Ram Mandir Donation Row | Faizabad Bar Association Resolves Against Representing Accused
-https://www.livelaw.in/news-updates/ayodhya-ram-mandir-donations-row-faizabad-bar-association-resolves-representing-accused-539200
-
-[Read on Telegram](https://t.me/livelawindia/113554)
-
----
-### 2026-06-29T08:43:48+00:00
-Karnataka High Court Refuses To Quash IT Act Case Against Rape Accused's Wife Over Alleged Circulation Of Survivor's Explicit Videos
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-wife-sharing-obscene-videos-husband-alleged-sexual-assault-539201
-
-[Read on Telegram](https://t.me/livelawindia/113555)
-
----
-### 2026-06-29T08:59:48+00:00
-2017 Actress Assault Case: Kerala High Court Warns State Of Contempt Over Delay In Probing Dileep's Media Trial FIRs
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-dileep-media-trial-investigation-delayed-contempt-warning-539202
-
-[Read on Telegram](https://t.me/livelawindia/113556)
-
----
-### 2026-06-29T09:08:08+00:00
-MP High Court Grants Bail To Tehelka Journalist In Extortion Case, Notes He Was Implicated After Exposing Female Foeticide Racket
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/tehelka-journalist-bail-false-extortion-case-for-exposing-female-foeticide-racket-539203
-
-[Read on Telegram](https://t.me/livelawindia/113557)
-
----
-### 2026-06-29T09:12:08+00:00
-Honeymoon Murder Case | Meghalaya High Court Upholds Shillong Court Order Granting Bail To Sonam Raghuwanshi
-https://www.livelaw.in/top-stories/meghalaya-high-court-honeymoon-murder-case-upholds-bail-sonam-raghuwanshi-539207
-
-[Read on Telegram](https://t.me/livelawindia/113558)
-
----
-### 2026-06-29T09:17:28+00:00
-MP High Court Directs State To Airlift Gas Pipeline Blast Victim To Ahmedabad, Bear Entire Treatment Cost
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-airlift-injured-gas-pipeline-blast-to-ahmedabad-for-treatment-539204
-
-[Read on Telegram](https://t.me/livelawindia/113559)
-
----
-### 2026-06-29T09:23:08+00:00
-Financially Independent Wife Earning More Than Husband Can't Claim Maintenance Merely Because She Is A Woman: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/wife-income-higher-than-husband-no-maintenance-unless-wife-unable-to-maintain-herself-539208
-
-[Read on Telegram](https://t.me/livelawindia/113560)
-
----
-### 2026-06-29T09:32:38+00:00
-Losing Side Finally Gets To Fight Back: How Supreme Court Rewrote Rules On Interim Relief In Arbitration
-https://www.livelaw.in/articles/supreme-court-rewrote-rules-interim-relief-arbitration-539193
-
-[Read on Telegram](https://t.me/livelawindia/113561)
-
----
-### 2026-06-29T09:32:58+00:00
-LiveLaw Gujarat High Court Weekly Round-Up: June 22 - June 28, 2026
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-weekly-round-up-june-2026-539169
-
-[Read on Telegram](https://t.me/livelawindia/113562)
-
----
-### 2026-06-29T10:12:39+00:00
-Passenger Paid For Business Class, Got Defective Seat: NCDRC Upholds Compensation Against Air India
-https://www.livelaw.in/consumer-cases/passenger-paid-for-business-class-got-defective-seat-ncdrc-upholds-compensation-against-air-india-539215
-
-[Read on Telegram](https://t.me/livelawindia/113563)
-
----
-### 2026-06-29T10:32:29+00:00
-ED Officers Attack: Kerala High Court Issues Notice On Plea Seeking Cancellation Of Bail Granted To Accused Harishkumar
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ed-officers-attack-harishkumar-539217
-
-[Read on Telegram](https://t.me/livelawindia/113564)
-
----
-### 2026-06-29T10:40:09+00:00
-'Mere Eye-Wash': Chhattisgarh High Court Slams ₹500 Fine On Cop For Submitting False Report, Seeks Explanation From SSP
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-slams-fine-submitting-false-report-criminal-antecedents-539219
-
-[Read on Telegram](https://t.me/livelawindia/113565)
-
----
 ### 2026-06-29T11:07:10+00:00
 Kerala High Court Seeks Files On Appointment Of Bodybuilders Shinu Chova & Chitharesh Natesan As Police Inspectors Amid 'Backdoor Entry' Claims
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-shinu-chova-chitharesh-natesan-police-officers-539223
 
 [Read on Telegram](https://t.me/livelawindia/113566)
+
+---
+### 2026-06-29T11:17:10+00:00
+Can Single Women Below 35 Undergo Surrogacy? Karnataka High Court Seeks Centre's Reply, Declines Interim Relief To 32-Year-Old
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-single-women-surrogacy-age-restrictions-challenged-539225
+
+[Read on Telegram](https://t.me/livelawindia/113567)
+
+---
+### 2026-06-29T11:33:20+00:00
+LiveLaw Madhya Pradesh High Court Weekly Roundup: June 22 - June 28, 2026
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-weekly-digest-june-22-to-june-28-2026-539191
+
+[Read on Telegram](https://t.me/livelawindia/113568)
+
+---
+### 2026-06-29T11:47:40+00:00
+Kerala High Court Upholds Kerala Water Authority's 80% Interim Payment Clause For Jal Jeevan Mission Material Supplies Contracts
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kwa-interim-payment-clause-jal-jeevan-mission-contracts-539226
+
+[Read on Telegram](https://t.me/livelawindia/113569)
+
+---
+### 2026-06-29T12:20:51+00:00
+Sabarimala Gold Theft: SIT Informs Kerala High Court About Completion Of Probe On 'Doorframes', Seeks Time To Investigate On Dwarapalakas
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sabarimala-gold-theft-539232
+
+[Read on Telegram](https://t.me/livelawindia/113570)
+
+---
+### 2026-06-29T12:21:11+00:00
+Calcutta High Court Orders Preservation Of CCTV Footage In Plea Challenging 5 AM Raid At Abhishek Banerjee's Residence
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-orders-preservation-of-cctv-footage-in-plea-challenging-5am-raid-at-abhishek-banerjees-residence-539233
+
+[Read on Telegram](https://t.me/livelawindia/113571)
+
+---
+### 2026-06-29T12:24:31+00:00
+Telangana SIR | Consider Giving Urdu Forms In Constituencies With Above 20% Urdu-Knowing Voters  : High Court To ECI
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-telugu-only-enumeration-forms-for-sir-539234
+
+[Read on Telegram](https://t.me/livelawindia/113572)
+
+---
+### 2026-06-29T12:26:11+00:00
+'Conditions Shouldn't Be Illusory': Kerala High Court Sets Aside ₹75 Lakh Security Imposed On Mother Taking Child Abroad For Education
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-custody-case-onerous-condition-539235
+
+[Read on Telegram](https://t.me/livelawindia/113573)
+
+---
+### 2026-06-29T12:41:13+00:00
+Karnataka High Court Upholds Penalty Under RTI Act, Says Successor Officer Can't Blame Predecessor For Pending Matters
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-bda-secretary-plea-rti-penalty-kic-539239
+
+[Read on Telegram](https://t.me/livelawindia/113574)
+
+---
+### 2026-06-29T12:43:13+00:00
+'Voice Recording Of Bribe Demand Inadmissible Without S.65B Evidence Act Certificate & Voice Sample Authentication': Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-acquits-public-servants-voice-recording-bribe-demand-539220
+
+[Read on Telegram](https://t.me/livelawindia/113575)
+
+---
+### 2026-06-29T13:14:54+00:00
+CATALYST 3.0: Startup Law And Policy Summit 2026 At CNLU Patna; Register By July 15
+https://www.livelaw.in/lawschool/news/catalyst-30-startup-law-policy-summit-2026-cnlu-patna-register-by-july-15-539244
+
+[Read on Telegram](https://t.me/livelawindia/113576)
+
+---
+### 2026-06-29T13:29:24+00:00
+Ketan Agarwal Murder Case: Pune Court Extends Police Custody Of Fiance, Friend Till July 03
+https://www.livelaw.in/news-updates/lohagad-fort-ketan-agarwal-murder-siya-goyal-police-custody-extended-539247
+
+[Read on Telegram](https://t.me/livelawindia/113577)
+
+---
+### 2026-06-29T13:32:04+00:00
+Private School Not Subject To RTI Merely Because PSU Paid Fees For Its Employees' Wards: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-private-school-rti-psu-paid-fees-employees-539248
+
+[Read on Telegram](https://t.me/livelawindia/113578)
+
+---
+### 2026-06-29T13:32:14+00:00
+Madhya Pradesh High Court Refuses To Close Village's Only School, Calls For Constructive Measures To Remove Deficiencies
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-directs-gram-panchayat-to-fix-infrastructure-539249
+
+[Read on Telegram](https://t.me/livelawindia/113579)
+
+---
+### 2026-06-29T13:36:24+00:00
+AI Should Assist Judges, Not Replace Human Decision-Making: Justice N. Kotiswar Singh At CIEC Brussels Dialogue
+https://www.livelaw.in/news-updates/ai-should-assist-judges-not-replace-human-decision-making-justice-n-kotiswar-singh-at-ciec-brussels-dialogue-539250
+
+[Read on Telegram](https://t.me/livelawindia/113580)
+
+---
+### 2026-06-29T14:22:54+00:00
+MSME Council Award Passed Without Terminating Conciliation & Following Arbitral Procedure Is A Nullity: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-msme-council-award-terminating-conciliation-539221
+
+[Read on Telegram](https://t.me/livelawindia/113581)
+
+---
+### 2026-06-29T14:32:15+00:00
+When Anti-Defection Law Starts Defending Defectors
+https://www.livelaw.in/lawschool/articles/antidefection-law-defending-defectors-539195
+
+[Read on Telegram](https://t.me/livelawindia/113582)
+
+---
+### 2026-06-29T14:33:35+00:00
+Disqualification Proceedings Against Ex-AIADMK MLAs Who Joined TVK Continue Despite Resignation: TN Assembly Tells Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-resigation-mla-does-not-absolve-disqualification-aiadmk-tvk-539258
+
+[Read on Telegram](https://t.me/livelawindia/113583)
+
+---
+### 2026-06-29T14:47:15+00:00
+Jammu & Kashmir And Ladakh High Court Weekly Round-Up: June 22 - June 28, 2026
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-weekly-roundup-june-22-june-28-2026-539263
+
+[Read on Telegram](https://t.me/livelawindia/113584)
+
+---
+### 2026-06-29T15:12:55+00:00
+Memorandum Recording Past Oral Family Settlement Doesn't Require Registration If No Fresh Rights Created: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/memorandum-recording-past-oral-family-settlement-doesnt-require-registration-if-it-doesnt-create-rights-afresh-delhi-high-court-539264
+
+[Read on Telegram](https://t.me/livelawindia/113585)
 
 ---
