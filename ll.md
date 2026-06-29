@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-28T04:09:05+00:00*
+*Last Updated: 2026-06-29T06:43:17+00:00*
 
 ---
 
-### 2026-06-28T04:09:05+00:00
-CCPA Imposes ₹1 Lakh Penalty On Mrs. Bector's For Misleading '100% Atta Bread' And '100% Whole Wheat Bread' Claims
-https://www.livelaw.in/consumer-cases/ccpa-imposes-1-lakh-penalty-on-mrs-bector-misleading-100-atta-bread-100-whole-wheat-bread-claims-539142
+### 2026-06-29T06:43:17+00:00
+Bengaluru Court Summons Home Minister Priyank Kharge In Defamation Case Over Remarks Against RSS
+https://www.livelaw.in/news-updates/bengaluru-court-state-home-minister-priyank-kharge-rss-remarks-539182
 
-[Read on Telegram](https://t.me/livelawindia/113517)
-
----
-### 2026-06-28T04:33:16+00:00
-How 'Commercial Wisdom' Eclipsed Law In Bhushan Steel Saga
-https://www.livelaw.in/articles/commercial-wisdom-eclipsed-law-bhushan-steel-saga-539129
-
-[Read on Telegram](https://t.me/livelawindia/113518)
+[Read on Telegram](https://t.me/livelawindia/113547)
 
 ---
-### 2026-06-28T04:38:36+00:00
-Supreme Court Monthly Digest: May 2026
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-monthly-digest-may-2026-539145
+### 2026-06-29T06:43:57+00:00
+Restaurant Liable For Levying Service Charge Without Consumer's Consent; Lawyer Awarded ₹15,000 Compensation
+https://www.livelaw.in/consumer-cases/restaurant-liable-levying-service-charge-without-consumer-consent-lawyer-awarded-15000-compensation-539183
 
-[Read on Telegram](https://t.me/livelawindia/113519)
-
----
-### 2026-06-28T05:03:56+00:00
-Assistant Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP [Mumbai; Apply Now]
-https://www.livelaw.in/job-updates/assistant-manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-mumbai-539147
-
-[Read on Telegram](https://t.me/livelawindia/113520)
+[Read on Telegram](https://t.me/livelawindia/113548)
 
 ---
-### 2026-06-28T05:58:47+00:00
-School Management Dispute Between Two Lawyers: Jharkhand High Court Grants Anticipatory Bail To Advocate
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-grants-anticipatory-bail-school-management-dispute-two-lawyers-539148
+### 2026-06-29T06:47:57+00:00
+Kerala High Court Rejects Plea Against Withdrawal Of Twin Girls' Admission Benefit In Kendriya Vidyalaya Schools
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kendriya-vidyalaya-twin-girl-children-admission-539181
 
-[Read on Telegram](https://t.me/livelawindia/113521)
-
----
-### 2026-06-28T06:32:37+00:00
-Restaurant Can't Force Customers To Pay Service Charge: Chandigarh Consumer Commission Holds Caper Rooftop Bistro Liable
-https://www.livelaw.in/consumer-cases/restaurant-cant-force-customers-to-pay-service-charge-chandigarh-consumer-commission-holds-caper-rooftop-bistro-liable-539143
-
-[Read on Telegram](https://t.me/livelawindia/113522)
+[Read on Telegram](https://t.me/livelawindia/113549)
 
 ---
-### 2026-06-28T06:40:37+00:00
-Justice Mahabir Singh Sindhu Passes Away: Punjab & Haryana High Court Loses A Compassionate And Fearless Voice
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-justice-mahabir-singh-sindhu-loses-a-compassionate-and-fearless-voice-539149
+### 2026-06-29T07:03:07+00:00
+Law University Cannot Force Repeater Students To Appear For New Syllabus Not Taught To Them: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-law-university-force-repeater-students-new-syllabus-539184
 
-[Read on Telegram](https://t.me/livelawindia/113523)
-
----
-### 2026-06-28T07:18:28+00:00
-Welfare Scheme House Allotment To Wife Doesn't Disentitle Her From Claiming Maintenance U/S 125 CrPC: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-welfare-scheme-house-allotment-wife-maintenance-section-125-crpc-539150
-
-[Read on Telegram](https://t.me/livelawindia/113524)
+[Read on Telegram](https://t.me/livelawindia/113550)
 
 ---
-### 2026-06-28T07:44:48+00:00
-CCPA Fines Storia ₹1 Lakh; Says '100% Tender Coconut Water' Claim Misled Consumers
-https://www.livelaw.in/consumer-cases/ccpa-fines-storia-1-lakh-says-100-tender-coconut-water-claim-misled-consumers-539151
+### 2026-06-29T07:25:48+00:00
+Kerala High Court Orders Vigilance Inspection Into Alleged Gold Misappropriation At Ettumanoor Mahadeva Temple
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ettumanoor-mahadeva-temple-gold-misappropriation-tdb-vigilance-report-539190
 
-[Read on Telegram](https://t.me/livelawindia/113525)
-
----
-### 2026-06-28T08:32:38+00:00
-Share Trading For Additional Income Is Commercial Activity, Investor Not A 'Consumer': Uttarakhand State Commission
-https://www.livelaw.in/consumer-cases/share-trading-for-additional-income-commercial-activity-investor-not-consumer-uttarakhand-state-commission-539146
-
-[Read on Telegram](https://t.me/livelawindia/113526)
+[Read on Telegram](https://t.me/livelawindia/113551)
 
 ---
-### 2026-06-28T09:33:09+00:00
-Zombie Trademarks In Metaverse
-https://www.livelaw.in/lawschool/articles/zombie-trademarks-metaverse-539130
+### 2026-06-29T07:32:28+00:00
+LiveLaw Madras High Court Weekly Roundup: June 22 - June 28, 2026
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-june-22-to-june-28-2026-539168
 
-[Read on Telegram](https://t.me/livelawindia/113527)
-
----
-### 2026-06-28T09:37:09+00:00
-Parents Supporting Wife During Distress Doesn't Absolve Husband Of Legal Obligation To Maintain Her: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-wife-maintenance-125-crpc-parents-support-distress-539153
-
-[Read on Telegram](https://t.me/livelawindia/113528)
+[Read on Telegram](https://t.me/livelawindia/113552)
 
 ---
-### 2026-06-28T14:32:32+00:00
-AI In Courtroom And Classroom: Beyond Hype
-https://www.livelaw.in/articles/ai-courtroom-classroom-beyond-hype-539131
+### 2026-06-29T08:10:18+00:00
+'Child's Dignity Was Shattered': Odisha Court Sentences Tutor To 20-Years Imprisonment For Sexually Abusing Minor Boy
+https://www.livelaw.in/news-updates/odisha-pocso-court-sentences-urdu-tutor-repeated-oral-sex-male-student-539194
 
-[Read on Telegram](https://t.me/livelawindia/113529)
-
----
-### 2026-06-29T01:56:24+00:00
-Call For Applications: Academic Fellow Under The K.L. Arora Chair On Criminal Law, NLUD
-https://www.livelaw.in/job-updates/call-for-applications-academic-fellow-under-the-kl-arora-chair-on-criminal-law-nlud-539160
-
-[Read on Telegram](https://t.me/livelawindia/113530)
+[Read on Telegram](https://t.me/livelawindia/113553)
 
 ---
-### 2026-06-29T01:57:44+00:00
-Consultant (Legal) Vacancy At Indian Council Of Social Science Research (ICSSR)
-https://www.livelaw.in/job-updates/consultant-legal-vacancy-at-indian-council-of-social-science-research-539161
+### 2026-06-29T08:41:08+00:00
+Ayodhya Ram Mandir Donation Row | Faizabad Bar Association Resolves Against Representing Accused
+https://www.livelaw.in/news-updates/ayodhya-ram-mandir-donations-row-faizabad-bar-association-resolves-representing-accused-539200
 
-[Read on Telegram](https://t.me/livelawindia/113531)
-
----
-### 2026-06-29T02:07:44+00:00
-Young Professional (Legal) Vacancy At National Financial Reporting Authority (NFRA)
-https://www.livelaw.in/job-updates/young-professional-legal-vacancy-at-national-financial-reporting-authority-539162
-
-[Read on Telegram](https://t.me/livelawindia/113532)
+[Read on Telegram](https://t.me/livelawindia/113554)
 
 ---
-### 2026-06-29T02:19:14+00:00
-Associate Corporate Counsel Vacancy At Amazon Development Centre (India) Private Limited
-https://www.livelaw.in/job-updates/associate-corporate-counsel-vacancy-at-amazon-development-centre-india-private-limited-539163
+### 2026-06-29T08:43:48+00:00
+Karnataka High Court Refuses To Quash IT Act Case Against Rape Accused's Wife Over Alleged Circulation Of Survivor's Explicit Videos
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-wife-sharing-obscene-videos-husband-alleged-sexual-assault-539201
 
-[Read on Telegram](https://t.me/livelawindia/113533)
-
----
-### 2026-06-29T03:33:25+00:00
-LiveLaw Kerala High Court Weekly Roundup: June 22 - June 28, 2026
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-weekly-roundup-june-2026-539157
-
-[Read on Telegram](https://t.me/livelawindia/113534)
+[Read on Telegram](https://t.me/livelawindia/113555)
 
 ---
-### 2026-06-29T03:39:25+00:00
-Sunday 6 AM Hearing: Allahabad High Court Provisionally Allows Candidate To Write APO Mains Exam After Technical Rejection By UPPSC
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-sunday-hearing-uppsc-apo-mains-rejection-uppsc-539165
+### 2026-06-29T08:59:48+00:00
+2017 Actress Assault Case: Kerala High Court Warns State Of Contempt Over Delay In Probing Dileep's Media Trial FIRs
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-dileep-media-trial-investigation-delayed-contempt-warning-539202
 
-[Read on Telegram](https://t.me/livelawindia/113535)
+[Read on Telegram](https://t.me/livelawindia/113556)
 
 ---
-### 2026-06-29T04:02:45+00:00
-AP High Court Enhances Motor Accident Compensation To ₹10 Lakh Despite No Appeal By Claimants, Cites Future Prospects & Deceased's Age
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-enhances-motor-accident-compensation-adds-future-prospects-539158
+### 2026-06-29T09:08:08+00:00
+MP High Court Grants Bail To Tehelka Journalist In Extortion Case, Notes He Was Implicated After Exposing Female Foeticide Racket
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/tehelka-journalist-bail-false-extortion-case-for-exposing-female-foeticide-racket-539203
 
-[Read on Telegram](https://t.me/livelawindia/113536)
+[Read on Telegram](https://t.me/livelawindia/113557)
+
+---
+### 2026-06-29T09:12:08+00:00
+Honeymoon Murder Case | Meghalaya High Court Upholds Shillong Court Order Granting Bail To Sonam Raghuwanshi
+https://www.livelaw.in/top-stories/meghalaya-high-court-honeymoon-murder-case-upholds-bail-sonam-raghuwanshi-539207
+
+[Read on Telegram](https://t.me/livelawindia/113558)
+
+---
+### 2026-06-29T09:17:28+00:00
+MP High Court Directs State To Airlift Gas Pipeline Blast Victim To Ahmedabad, Bear Entire Treatment Cost
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-airlift-injured-gas-pipeline-blast-to-ahmedabad-for-treatment-539204
+
+[Read on Telegram](https://t.me/livelawindia/113559)
+
+---
+### 2026-06-29T09:23:08+00:00
+Financially Independent Wife Earning More Than Husband Can't Claim Maintenance Merely Because She Is A Woman: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/wife-income-higher-than-husband-no-maintenance-unless-wife-unable-to-maintain-herself-539208
+
+[Read on Telegram](https://t.me/livelawindia/113560)
+
+---
+### 2026-06-29T09:32:38+00:00
+Losing Side Finally Gets To Fight Back: How Supreme Court Rewrote Rules On Interim Relief In Arbitration
+https://www.livelaw.in/articles/supreme-court-rewrote-rules-interim-relief-arbitration-539193
+
+[Read on Telegram](https://t.me/livelawindia/113561)
+
+---
+### 2026-06-29T09:32:58+00:00
+LiveLaw Gujarat High Court Weekly Round-Up: June 22 - June 28, 2026
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-weekly-round-up-june-2026-539169
+
+[Read on Telegram](https://t.me/livelawindia/113562)
+
+---
+### 2026-06-29T10:12:39+00:00
+Passenger Paid For Business Class, Got Defective Seat: NCDRC Upholds Compensation Against Air India
+https://www.livelaw.in/consumer-cases/passenger-paid-for-business-class-got-defective-seat-ncdrc-upholds-compensation-against-air-india-539215
+
+[Read on Telegram](https://t.me/livelawindia/113563)
+
+---
+### 2026-06-29T10:32:29+00:00
+ED Officers Attack: Kerala High Court Issues Notice On Plea Seeking Cancellation Of Bail Granted To Accused Harishkumar
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ed-officers-attack-harishkumar-539217
+
+[Read on Telegram](https://t.me/livelawindia/113564)
+
+---
+### 2026-06-29T10:40:09+00:00
+'Mere Eye-Wash': Chhattisgarh High Court Slams ₹500 Fine On Cop For Submitting False Report, Seeks Explanation From SSP
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-slams-fine-submitting-false-report-criminal-antecedents-539219
+
+[Read on Telegram](https://t.me/livelawindia/113565)
+
+---
+### 2026-06-29T11:07:10+00:00
+Kerala High Court Seeks Files On Appointment Of Bodybuilders Shinu Chova & Chitharesh Natesan As Police Inspectors Amid 'Backdoor Entry' Claims
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-shinu-chova-chitharesh-natesan-police-officers-539223
+
+[Read on Telegram](https://t.me/livelawindia/113566)
 
 ---
