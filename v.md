@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-28T15:02:33+00:00*
+*Last Updated: 2026-06-29T05:02:44+00:00*
+
+---
+
+### 2026-06-29T05:02:44+00:00
+MOFA| Proportionate Land Division Permissible Despite TDR Use If Allocation Extends Across Entire Layout: Bombay High Court
+https://www.verdictum.in/bombay-high-court/neelkanth-mansions-infrastructure-private-limited-v-the-district-deputy-registrar-co-operative-societies-thane-writ-petition-no-3530-of-2026-land-division-1616799
+
+[Source Link](https://t.me/verdictumlegalupdates/27681)
+
+---
+
+### 2026-06-29T04:33:12+00:00
+Sec.42(1) NDPS Act Applicable In Case Of Search Of Private Vehicle On Public Road: Kerala High Court Grants Bail Citing Non-Compliance
+https://www.verdictum.in/kerala-high-court/sudin-babu-v-state-of-kerala-2026ker43659-sec421-ndps-act-private-vehicle-1616780
+
+[Source Link](https://t.me/verdictumlegalupdates/27680)
 
 ---
 
@@ -145,22 +161,6 @@ Disciplinary Authority's Finding Alone Cannot Prove Foundational Facts Without S
 https://www.verdictum.in/patna-high-court/bihar-gramin-bank-ors-v-madhusudan-prasad-tantidisciplinary-proceedings-1616721
 
 [Source Link](https://t.me/verdictumlegalupdates/27662)
-
----
-
-### 2026-06-27T07:33:07+00:00
-Married Daughters Entitled To Compassionate Appointment; Mother Receiving Pension No Ground To Deny Same: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/savithar-v-state-of-karnataka-2026khc28803-db-married-daughters-compassionate-appointment-1616715
-
-[Source Link](https://t.me/verdictumlegalupdates/27661)
-
----
-
-### 2026-06-27T06:52:06+00:00
-High Court Alone Has Control Over Posting Of Judicial Officers & Ministerial Staff Of Labour Courts & Industrial Tribunals: Gauhati High Court
-https://www.verdictum.in/guwahati-high-court/quashes-labour-department-transfer-notification-staff-industrial-tribunal-article-235-1616709
-
-[Source Link](https://t.me/verdictumlegalupdates/27660)
 
 ---
 
