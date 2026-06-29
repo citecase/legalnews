@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-27T09:33:09+00:00*
+*Last Updated: 2026-06-28T04:09:05+00:00*
 
 ---
 
-### 2026-06-27T09:33:09+00:00
-How Word 'Advertising' Stripped Google Of Safe Harbour
-https://www.livelaw.in/lawschool/articles/advertising-stripped-google-safe-harbour-539051
-
-[Read on Telegram](https://t.me/livelawindia/113510)
-
----
-### 2026-06-27T10:12:19+00:00
-Gauhati High Court Upholds Closure Of Plaintiffs' Evidence After 11 Adjournments, Lack Of Due Diligence
-https://www.livelaw.in/high-court/gauhati-high-court/evidence-closed-due-to-delay-repeated-adjournments-no-due-diligence-539112
-
-[Read on Telegram](https://t.me/livelawindia/113511)
-
----
-### 2026-06-27T13:25:01+00:00
-Allahabad High Court Seeks Judge's Explanation For Denying Bail To One Accused While Granting It To Identically Placed Co-Accused
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-judge-explanation-denying-bail-identically-placed-coaccused-disparity-539133
-
-[Read on Telegram](https://t.me/livelawindia/113512)
-
----
-### 2026-06-27T14:32:52+00:00
-Participation Without Accountability: Limits Of India's Pre-Legislative Consultation Policy
-https://www.livelaw.in/lawschool/articles/participation-accountability-india-prelegislative-consultation-policy-limits-539054
-
-[Read on Telegram](https://t.me/livelawindia/113513)
-
----
-### 2026-06-27T15:35:02+00:00
-Call For Papers: DNLU Journal Of Legal Studies Invites Submissions For Volume IV (2026)
-https://www.livelaw.in/lawschool/call-for-papers/dnlu-journal-legal-studies-invites-submissions-539138
-
-[Read on Telegram](https://t.me/livelawindia/113514)
-
----
-### 2026-06-27T16:28:13+00:00
-NLU Jodhpur And USIEF To Host International Symposium On Comparative Legislative Governance
-https://www.livelaw.in/lawschool/news/nlu-jodhpur-usief-host-international-symposium-comparative-legislative-governance-539140
-
-[Read on Telegram](https://t.me/livelawindia/113515)
-
----
-### 2026-06-28T04:05:45+00:00
-P&H High Court Judge Justice Mahabir Singh Sindhu Passes Away
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-justice-mahabir-singh-sindhu-passes-away-539141
-
-[Read on Telegram](https://t.me/livelawindia/113516)
-
----
 ### 2026-06-28T04:09:05+00:00
 CCPA Imposes ₹1 Lakh Penalty On Mrs. Bector's For Misleading '100% Atta Bread' And '100% Whole Wheat Bread' Claims
 https://www.livelaw.in/consumer-cases/ccpa-imposes-1-lakh-penalty-on-mrs-bector-misleading-100-atta-bread-100-whole-wheat-bread-claims-539142
@@ -142,5 +93,54 @@ AI In Courtroom And Classroom: Beyond Hype
 https://www.livelaw.in/articles/ai-courtroom-classroom-beyond-hype-539131
 
 [Read on Telegram](https://t.me/livelawindia/113529)
+
+---
+### 2026-06-29T01:56:24+00:00
+Call For Applications: Academic Fellow Under The K.L. Arora Chair On Criminal Law, NLUD
+https://www.livelaw.in/job-updates/call-for-applications-academic-fellow-under-the-kl-arora-chair-on-criminal-law-nlud-539160
+
+[Read on Telegram](https://t.me/livelawindia/113530)
+
+---
+### 2026-06-29T01:57:44+00:00
+Consultant (Legal) Vacancy At Indian Council Of Social Science Research (ICSSR)
+https://www.livelaw.in/job-updates/consultant-legal-vacancy-at-indian-council-of-social-science-research-539161
+
+[Read on Telegram](https://t.me/livelawindia/113531)
+
+---
+### 2026-06-29T02:07:44+00:00
+Young Professional (Legal) Vacancy At National Financial Reporting Authority (NFRA)
+https://www.livelaw.in/job-updates/young-professional-legal-vacancy-at-national-financial-reporting-authority-539162
+
+[Read on Telegram](https://t.me/livelawindia/113532)
+
+---
+### 2026-06-29T02:19:14+00:00
+Associate Corporate Counsel Vacancy At Amazon Development Centre (India) Private Limited
+https://www.livelaw.in/job-updates/associate-corporate-counsel-vacancy-at-amazon-development-centre-india-private-limited-539163
+
+[Read on Telegram](https://t.me/livelawindia/113533)
+
+---
+### 2026-06-29T03:33:25+00:00
+LiveLaw Kerala High Court Weekly Roundup: June 22 - June 28, 2026
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-weekly-roundup-june-2026-539157
+
+[Read on Telegram](https://t.me/livelawindia/113534)
+
+---
+### 2026-06-29T03:39:25+00:00
+Sunday 6 AM Hearing: Allahabad High Court Provisionally Allows Candidate To Write APO Mains Exam After Technical Rejection By UPPSC
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-sunday-hearing-uppsc-apo-mains-rejection-uppsc-539165
+
+[Read on Telegram](https://t.me/livelawindia/113535)
+
+---
+### 2026-06-29T04:02:45+00:00
+AP High Court Enhances Motor Accident Compensation To ₹10 Lakh Despite No Appeal By Claimants, Cites Future Prospects & Deceased's Age
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-enhances-motor-accident-compensation-adds-future-prospects-539158
+
+[Read on Telegram](https://t.me/livelawindia/113536)
 
 ---
