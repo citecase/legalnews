@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-30T09:52:38+00:00*
+*Last Updated: 2026-06-30T15:12:11+00:00*
+
+---
+
+### 2026-06-30T15:12:11+00:00
+Promotion Deferment Based On Complaint That Never Led To Action Cannot Prejudice Judicial Officer: Chhattisgarh High Court Restores CJM’s Claim For 2014 Promotion
+https://www.verdictum.in/chhattisgarh-high-court/chhaya-singh-v-high-court-of-chhattisgarh-2026cghc26195-promotion-deferment-restores-cjms-claim-for-2014-promotion-1616890
+
+[Source Link](https://t.me/verdictumlegalupdates/27714)
+
+---
+
+### 2026-06-30T14:32:50+00:00
+Prescription Alone Cannot Prove Mental Illness; Past Hospitalization Not Sufficient To Declare Person As Psychiatric Patient: Gauhati High Court
+https://www.verdictum.in/guwahati-high-court/farjul-haque-md-faizul-fazlul-hoque-v-union-of-india-2026gau-as9359-mental-illness-past-hospitalization-not-sufficient-1616889
+
+[Source Link](https://t.me/verdictumlegalupdates/27713)
+
+---
+
+### 2026-06-30T13:52:28+00:00
+Daughter Entitled To Equal Coparcenary Share Even If Father's Demise Was Prior To Commencement Of 2005 HSA Amendment Act : Madras High Court
+https://www.verdictum.in/madras-high-court/2026-mhc-2303-murugammal-v-andi-1616888
+
+[Source Link](https://t.me/verdictumlegalupdates/27712)
+
+---
+
+### 2026-06-30T13:12:47+00:00
+Enticing Married Woman For Illicit Sexual Intercourse Attracts Offence U/S 84 BNS: J&K&L High Court Refuses To Quash FIR Despite Woman Denying Abduction
+https://www.verdictum.in/delhi-high-court/r-and-another-v-union-territory-of-jammu-kashmir-crm-m-no-252026-enticing-married-woman-for-illicit-intercourse-s-84-82-bns-1616887
+
+[Source Link](https://t.me/verdictumlegalupdates/27711)
+
+---
+
+### 2026-06-30T12:33:05+00:00
+IO Didn't Know Basic Principles Of Investigation Or Purposefully Withheld The Evidence To Save Accused: Patna High Court Sets Aside Murder Conviction
+https://www.verdictum.in/patna-high-court/sets-aside-life-sentence-302-ipc-due-gross-investigative-lapses-1616886
+
+[Source Link](https://t.me/verdictumlegalupdates/27710)
+
+---
+
+### 2026-06-30T11:53:04+00:00
+Negligently Parked TATA Ace Was Root Cause Of Fatal Accident: Madras High Court Upholds ₹2.92 Crore Compensation To ISRO Scientist's Family
+https://www.verdictum.in/madras-high-court/tata-aig-general-insurance-co-ltd-v-pammu-2026mhc2304-road-accident-isro-scientist-compensation-1616882
+
+[Source Link](https://t.me/verdictumlegalupdates/27709)
+
+---
+
+### 2026-06-30T11:12:52+00:00
+Merely Challenging AFMS Training Rules Is No Ground For Interim Relief: Delhi High Court Rejects Army Medical Officers’ Plea For NEET PG Eligibility
+https://www.verdictum.in/delhi-high-court/major-jayati-chandra-v-union-of-india-2026dhc5186-db-afms-training-rules-army-medical-officer-neet-pg-eligibility-1616881
+
+[Source Link](https://t.me/verdictumlegalupdates/27708)
+
+---
+
+### 2026-06-30T10:33:11+00:00
+Supreme Court Directs Status Quo On Order Against Ethanol Procurement By Oil Marketing Companies
+https://www.verdictum.in/supreme-court/status-quo-on-order-against-ethanol-procurement-by-oil-marketing-companies-1616878
+
+[Source Link](https://t.me/verdictumlegalupdates/27707)
 
 ---
 
@@ -97,70 +161,6 @@ Maligning Image Of Person Yet To Be Held Guilty May Come Within Defamatory Act: 
 https://www.verdictum.in/patna-high-court/rishu-shree-v-the-state-of-bihar-maligning-image-guilty-defamatory-act-tender-scam-1616838
 
 [Source Link](https://t.me/verdictumlegalupdates/27695)
-
----
-
-### 2026-06-29T14:12:34+00:00
-Litigant Not To Be Penalized For Fault Of His Counsel: Chhattisgarh High Court Condones Delay Of 3558 Days In Filing Motor Accident Compensation Case
-https://www.verdictum.in/chhattisgarh-high-court/smt-lalmuni-yadav-v-punnulal-upadhyay-2026cghc26087-litigant-counsel-delay-1616837
-
-[Source Link](https://t.me/verdictumlegalupdates/27694)
-
----
-
-### 2026-06-29T13:35:52+00:00
-Bank Operating As Group Insurance Master Policyholder Cannot Absolve Itself Of Liability By Terming Insurer Solely Responsible: Chhattisgarh High Court
-https://www.verdictum.in/chhattisgarh-high-court/2026-cghc-26160-branch-manager-state-bank-of-india-v-rashmi-shrivastava-1616835
-
-[Source Link](https://t.me/verdictumlegalupdates/27693)
-
----
-
-### 2026-06-29T12:53:10+00:00
-Courts Answerable To Victims Of Crimes Too: Madras High Court Refuses To Suspend Sentence Of A  Category History Sheeter
-https://www.verdictum.in/madras-high-court/2026mhc2302-saba-v-state-of-tamil-nadu-1616830
-
-[Source Link](https://t.me/verdictumlegalupdates/27692)
-
----
-
-### 2026-06-29T12:12:59+00:00
-Weekly Overview| Supreme Court Judgments: June 22 – June 26, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-june-22-june-26-2026-1616827
-
-[Source Link](https://t.me/verdictumlegalupdates/27691)
-
----
-
-### 2026-06-29T11:32:57+00:00
-Compensation Claims U/S 56 ICA Require Proof of Knowledge & Empirical Evidence; Cannot Be Decided Summarily: Bombay High Court
-https://www.verdictum.in/bombay-high-court/mahaguj-collieries-ltd-v-adani-enterprises-ltd-commercial-arbitration-petition-no-483-of-2018-1616824
-
-[Source Link](https://t.me/verdictumlegalupdates/27690)
-
----
-
-### 2026-06-29T10:43:16+00:00
-House Allotment Under Welfare Scheme Not Source Of Livelihood Disentitling Wife From Claiming Maintenance: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/a-v-state-of-up-2026ahc127679-house-allotment-welfare-scheme-maintenance-1616823
-
-[Source Link](https://t.me/verdictumlegalupdates/27689)
-
----
-
-### 2026-06-29T09:52:14+00:00
-Strict Proof Of Cruelty Not Required To Claim Maintenance U/S 125 CrPC: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/2026-ahc-127674-proof-cruelty-not-required-claim-maintenance-1616822
-
-[Source Link](https://t.me/verdictumlegalupdates/27688)
-
----
-
-### 2026-06-29T09:14:13+00:00
-Gujarat High Court Dismisses PIL Seeking Archaeological Survey Of Somnath Temple; Imposes ₹2L Penalty On Petitioner
-https://www.verdictum.in/gujarat-high-court/2026-gujhc-38938-db-dr-vilas-tukaram-kharat-v-union-of-india-1616818
-
-[Source Link](https://t.me/verdictumlegalupdates/27687)
 
 ---
 
