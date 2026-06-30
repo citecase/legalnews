@@ -1,93 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-30T10:11:09+00:00*
+*Last Updated: 2026-06-30T13:34:31+00:00*
 
 ---
 
-### 2026-06-30T10:11:09+00:00
-Kerala High Court Gives State 2 Weeks To Constitute Prison Monitoring Committee After Retired Judge Withdraws Consent Over Delay
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-constitute-prison-monitoring-committee-two-weeks-539339
-
-[Read on Telegram](https://t.me/livelawindia/113644)
-
----
-### 2026-06-30T10:17:59+00:00
-Lease Of Kunigul Stud Farm To Bangalore Turf Club Challenged In Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/lease-of-kunigul-stud-farm-to-bangalore-turf-club-challenged-in-karnataka-high-court-539341
-
-[Read on Telegram](https://t.me/livelawindia/113645)
-
----
-### 2026-06-30T10:33:20+00:00
-Registry Can't Refuse To Register Contempt Petition Citing Limitation Which Only Court Can Adjudicate: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-registry-reject-contempt-plea-limitation-grounds-539340
-
-[Read on Telegram](https://t.me/livelawindia/113646)
-
----
-### 2026-06-30T10:48:00+00:00
-MP Judge Faces Communal Attack After Convicting Cow Vigilantes In Lynching Case
-https://www.livelaw.in/news-updates/madhya-pradesh-high-court-social-media-smear-against-judge-tabassum-khan-539345
-
-[Read on Telegram](https://t.me/livelawindia/113647)
-
----
-### 2026-06-30T10:48:10+00:00
-Govt Can't Arbitrarily Scrap Panel For Appointment Of Law Officers Without Justification: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-govt-arbitrarily-scrap-panel-appointment-law-officers-539343
-
-[Read on Telegram](https://t.me/livelawindia/113648)
-
----
-### 2026-06-30T11:33:10+00:00
-Veena George Assault Case: Accused Withdraws From Kerala High Court Plea Seeking Investigation By Senior Police Officer
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-veena-george-assault-case-539348
-
-[Read on Telegram](https://t.me/livelawindia/113649)
-
----
-### 2026-06-30T11:54:10+00:00
-Calcutta High Court Declines Relief To Abhishek Banerjee Against Magistrate's Order For Recording Voice Sample In 'DJ Remark' Case
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-declines-relief-to-abhishek-banerjee-against-magistrates-order-for-recording-voice-sample-in-dj-remark-probe-539350
-
-[Read on Telegram](https://t.me/livelawindia/113650)
-
----
-### 2026-06-30T12:19:41+00:00
-2026 LiveLaw (SC) 646 |  SHAHEEN MALIK Vs UNION OF INDIA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-646-shaheen-malik-vs-union-of-india-539357
-
-[Read on Telegram](https://t.me/livelawindia/113651)
-
----
-### 2026-06-30T12:25:00+00:00
-2026 LiveLaw (SC) 647 | State of Madhya Pradesh v. Ravi Shankar Singh
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-647-state-of-madhya-pradesh-v-ravi-shankar-singh-539359
-
-[Read on Telegram](https://t.me/livelawindia/113652)
-
----
-### 2026-06-30T12:46:21+00:00
-State Can't Claim Title Or Mark Land As 'Government Property' Solely Based On Town Survey Register: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-title-land-town-survey-records-erect-government-land-board-539361
-
-[Read on Telegram](https://t.me/livelawindia/113653)
-
----
-### 2026-06-30T13:27:51+00:00
-Christian Organisation Moves Kerala High Court Challenging Waqf Board's Constitution, Upload Of Munambam Land On UMEED Portal
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-waqf-board-munambam-umeed-property-539365
-
-[Read on Telegram](https://t.me/livelawindia/113654)
-
----
-### 2026-06-30T13:32:51+00:00
-State Backward Class Commission Is Advisory Body, Cannot Pass Recovery Orders In Commercial Disputes: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-state-backward-class-commission-advisory-body-539366
-
-[Read on Telegram](https://t.me/livelawindia/113655)
-
----
 ### 2026-06-30T13:34:31+00:00
 Himachal Pradesh Water Cess Revived? High Court Stays Coercive Action On ₹16.32 Crore Demand Against Punjab Power Corporation
 https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-grants-interim-stay-against-recovery-1634-crore-from-punjab-power-corporation-in-land-revenue-amendment-plea-539367
@@ -142,5 +58,89 @@ https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-cour
 https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-lawyer-bail-forgery-land-fraud-539383
 
 [Read on Telegram](https://t.me/livelawindia/113663)
+
+---
+### 2026-06-30T14:29:22+00:00
+PIL In Madras High Court To Keep Schools, Colleges Free Of Political Activities; Flags Students' Involvement In CM Vijay's Birthday Celebrations
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-using-school-political-glorification-cm-vijay-birthday-celebration-539387
+
+[Read on Telegram](https://t.me/livelawindia/113664)
+
+---
+### 2026-06-30T14:32:22+00:00
+Constitutional Critique Of Foreign Contribution (Regulation) Amendment Bill, 2026
+https://www.livelaw.in/lawschool/articles/constitutional-critique-foreign-contribution-regulation-amendment-bill2026-539316
+
+[Read on Telegram](https://t.me/livelawindia/113665)
+
+---
+### 2026-06-30T14:33:02+00:00
+State Cannot Summarily Cancel Longstanding Jamabandi, Civil Suit Only Remedy: Patna High Court Flags State's 'Autocratic' Action
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-reiterates-longstanding-jamabandi-cancelled-summary-proceedings-539370
+
+[Read on Telegram](https://t.me/livelawindia/113666)
+
+---
+### 2026-06-30T15:01:33+00:00
+NEET PG 2026 : Delhi High Court Declines Two Army Doctors Plea To Appear In Exam Pending Challenge To Eligibility Rule
+https://www.livelaw.in/high-court/delhi-high-court/neet-pg-2026-delhi-high-court-declines-two-army-doctors-plea-to-appear-in-exam-pending-challenge-to-eligibility-rule-539389
+
+[Read on Telegram](https://t.me/livelawindia/113667)
+
+---
+### 2026-06-30T15:02:33+00:00
+Husband Chatting With Sister-In-Law, Engraving Her Son's Name On His Hand Is Not 'Cruelty' Without Requisite Intent: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/cruelty-husband-chat-with-sister-in-law-engraved-nephew-name-on-body-498a-ipc-539390
+
+[Read on Telegram](https://t.me/livelawindia/113668)
+
+---
+### 2026-06-30T15:13:13+00:00
+Mother Can't Consent To Son's DNA Test Once He Attains Majority During Pendency Of Matrimonial Case: Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-mother-consent-dna-test-pendency-matrimonial-case-539372
+
+[Read on Telegram](https://t.me/livelawindia/113669)
+
+---
+### 2026-06-30T15:30:13+00:00
+Rajasthan High Court Refuses To Void MLA's Election Over Alleged Defects In Asset Disclosure But Imposes ₹1 Lakh Costs For Evading Summons
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-upholds-bayana-mla-ritu-banawat-election-cost-evading-summons-539400
+
+[Read on Telegram](https://t.me/livelawindia/113670)
+
+---
+### 2026-06-30T15:39:23+00:00
+US Supreme Court Upholds Birthright Citizenship, Strikes Down Trump's Executive Order
+https://www.livelaw.in/foreign-international/us-supreme-court-upholds-birthright-citizenship-strikes-down-trumps-executive-order-539405
+
+[Read on Telegram](https://t.me/livelawindia/113671)
+
+---
+### 2026-06-30T15:43:03+00:00
+Period Of Limitation For Execution Of Partition Decrees Is Independent Of Engrossment: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-period-limitation-execution-partition-decrees-independent-of-engrossment-539396
+
+[Read on Telegram](https://t.me/livelawindia/113672)
+
+---
+### 2026-06-30T16:04:24+00:00
+Allahabad High Court Stays Arrest Of Man Accused Of Hurting Sentiments By Throwing Liquor Bottle Into Mosque In Inebriated State
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-stays-arrest-hurting-sentiments-liquor-bottle-mosque-inebriated-539407
+
+[Read on Telegram](https://t.me/livelawindia/113673)
+
+---
+### 2026-06-30T16:15:44+00:00
+Calcutta High Court To Hear TMC Leader Atin Ghosh's Plea For Anticipatory Bail In Alleged Land Corruption Case
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-to-hear-tmc-leader-atin-ghoshs-plea-for-anticipatory-bail-in-alleged-land-corruption-case-539409
+
+[Read on Telegram](https://t.me/livelawindia/113674)
+
+---
+### 2026-06-30T16:46:14+00:00
+Is Arrest Illegal If Person Isn't Supplied Earlier Charge Sheet Filed Against Co-Accused? Bombay High Court Answers
+https://www.livelaw.in/high-court/bombay-high-court/arrest-copy-of-chargesheet-against-co-accused-207-crpc-scope-section-50-crpc-grounds-of-arrest-539411
+
+[Read on Telegram](https://t.me/livelawindia/113675)
 
 ---
