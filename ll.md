@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-29T12:26:11+00:00*
+*Last Updated: 2026-06-29T14:22:54+00:00*
 
 ---
 
-### 2026-06-29T12:26:11+00:00
-'Conditions Shouldn't Be Illusory': Kerala High Court Sets Aside ₹75 Lakh Security Imposed On Mother Taking Child Abroad For Education
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-custody-case-onerous-condition-539235
-
-[Read on Telegram](https://t.me/livelawindia/113573)
-
----
-### 2026-06-29T12:41:13+00:00
-Karnataka High Court Upholds Penalty Under RTI Act, Says Successor Officer Can't Blame Predecessor For Pending Matters
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-bda-secretary-plea-rti-penalty-kic-539239
-
-[Read on Telegram](https://t.me/livelawindia/113574)
-
----
-### 2026-06-29T12:43:13+00:00
-'Voice Recording Of Bribe Demand Inadmissible Without S.65B Evidence Act Certificate & Voice Sample Authentication': Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-acquits-public-servants-voice-recording-bribe-demand-539220
-
-[Read on Telegram](https://t.me/livelawindia/113575)
-
----
-### 2026-06-29T13:14:54+00:00
-CATALYST 3.0: Startup Law And Policy Summit 2026 At CNLU Patna; Register By July 15
-https://www.livelaw.in/lawschool/news/catalyst-30-startup-law-policy-summit-2026-cnlu-patna-register-by-july-15-539244
-
-[Read on Telegram](https://t.me/livelawindia/113576)
-
----
-### 2026-06-29T13:29:24+00:00
-Ketan Agarwal Murder Case: Pune Court Extends Police Custody Of Fiance, Friend Till July 03
-https://www.livelaw.in/news-updates/lohagad-fort-ketan-agarwal-murder-siya-goyal-police-custody-extended-539247
-
-[Read on Telegram](https://t.me/livelawindia/113577)
-
----
-### 2026-06-29T13:32:04+00:00
-Private School Not Subject To RTI Merely Because PSU Paid Fees For Its Employees' Wards: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-private-school-rti-psu-paid-fees-employees-539248
-
-[Read on Telegram](https://t.me/livelawindia/113578)
-
----
-### 2026-06-29T13:32:14+00:00
-Madhya Pradesh High Court Refuses To Close Village's Only School, Calls For Constructive Measures To Remove Deficiencies
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-directs-gram-panchayat-to-fix-infrastructure-539249
-
-[Read on Telegram](https://t.me/livelawindia/113579)
-
----
-### 2026-06-29T13:36:24+00:00
-AI Should Assist Judges, Not Replace Human Decision-Making: Justice N. Kotiswar Singh At CIEC Brussels Dialogue
-https://www.livelaw.in/news-updates/ai-should-assist-judges-not-replace-human-decision-making-justice-n-kotiswar-singh-at-ciec-brussels-dialogue-539250
-
-[Read on Telegram](https://t.me/livelawindia/113580)
-
----
 ### 2026-06-29T14:22:54+00:00
 MSME Council Award Passed Without Terminating Conciliation & Following Arbitral Procedure Is A Nullity: Chhattisgarh High Court
 https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-msme-council-award-terminating-conciliation-539221
@@ -142,5 +86,61 @@ Indian Concept Of 'Dharma' Predates Common Law; Rule Of Law & Judicial Independe
 https://www.livelaw.in/top-stories/indian-concept-of-dharma-predates-common-law-rule-of-law-judicial-independence-not-western-imports-cji-surya-kant-539273
 
 [Read on Telegram](https://t.me/livelawindia/113592)
+
+---
+### 2026-06-30T02:05:03+00:00
+Chairperson And Member Vacancy At Delhi Electricity Regulatory Commission
+https://www.livelaw.in/job-updates/chairperson-and-member-vacancy-at-delhi-electricity-regulatory-commission-539277
+
+[Read on Telegram](https://t.me/livelawindia/113593)
+
+---
+### 2026-06-30T02:30:24+00:00
+Assistant Manager (Commercial Contracting) Vacancy At Ernst & Young
+https://www.livelaw.in/job-updates/assistant-manager-commercial-contracting-vacancy-at-ernst-young-539278
+
+[Read on Telegram](https://t.me/livelawindia/113594)
+
+---
+### 2026-06-30T02:31:44+00:00
+Departmental Inquiry Officer Vacancy At Surat Municipal Corporation
+https://www.livelaw.in/job-updates/departmental-inquiry-officer-vacancy-at-surat-municipal-corporation-539279
+
+[Read on Telegram](https://t.me/livelawindia/113595)
+
+---
+### 2026-06-30T02:33:04+00:00
+"Even Death Penalty Would Not Be Adequate": Pune Court Awards Death Sentence To 65-Yr-Old For Rape, Murder Of 3 Yr-Old Girl
+https://www.livelaw.in/news-updates/pune-court-death-sentence-65-yr-old-for-rape-murder-3-yr-old-girl-nasrapur-539274
+
+[Read on Telegram](https://t.me/livelawindia/113596)
+
+---
+### 2026-06-30T02:34:04+00:00
+Chief Manager (Corporate Legal) And Manager (Corporate Legal) Vacancy At Mumbai Port Authority
+https://www.livelaw.in/job-updates/chief-manager-corporate-legal-and-manager-corporate-legal-vacancy-at-mumbai-port-authority-539280
+
+[Read on Telegram](https://t.me/livelawindia/113597)
+
+---
+### 2026-06-30T03:29:34+00:00
+Educated Wife Not Earning Sufficient Income Entitled To Maintenance; Parents' Property Or Pension Does Not Count: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-educated-wife-sufficient-income-maintenance-parents-property-pension-539281
+
+[Read on Telegram](https://t.me/livelawindia/113598)
+
+---
+### 2026-06-30T03:32:54+00:00
+BSF Must Assess Nature And Gravity Of Criminal Charges Before Declaring Candidate 'Permanently Unfit' For Service: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/border-security-force-nature-of-criminal-case-candidate-unfit-539261
+
+[Read on Telegram](https://t.me/livelawindia/113599)
+
+---
+### 2026-06-30T04:03:04+00:00
+Designated Authority Can't Review Order Regularising Unauthorised Construction Absent Express Statutory Power: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-designated-authority-revoke-regularisation-539262
+
+[Read on Telegram](https://t.me/livelawindia/113600)
 
 ---
