@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-30T04:32:46+00:00*
+*Last Updated: 2026-06-30T09:52:38+00:00*
+
+---
+
+### 2026-06-30T09:52:38+00:00
+No Offence Of Rape If Live-In Partners Are In Long-Drawn Consensual Relationship: Chhattisgarh High Court Upholds Acquittal Of Rape Accused
+https://www.verdictum.in/chhattisgarh-high-court/2026-cghc-26186-db-xyz-v-siddharth-sarangi-1616875
+
+[Source Link](https://t.me/verdictumlegalupdates/27706)
+
+---
+
+### 2026-06-30T09:52:28+00:00
+Delhi High Court Allows 17-Year-Old Minor To Donate Part Of Liver To Ailing Father
+https://www.verdictum.in/delhi-high-court/pratik-shaw-union-of-india-2026dhc5187-minor-donate-liver-aliling-father-1616877
+
+[Source Link](https://t.me/verdictumlegalupdates/27705)
+
+---
+
+### 2026-06-30T09:02:47+00:00
+Registration of Hindu Marriage Does Not Make It Valid If Essential Ceremonies U/S 7 HMA Were Never Performed: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/kaushal-pramodbhai-sonar-v-khushi-sanjay-shah-2026gujhc38968-db-registration-of-marriage-us-8-hindu-marriage-act-essential-ceremonies-1616874
+
+[Source Link](https://t.me/verdictumlegalupdates/27704)
+
+---
+
+### 2026-06-30T08:23:05+00:00
+National Security Is Equally Endangered By Those Who Facilitate: Karnataka High Court Refuses To Quash Case Against Travel Agent Who Renewed Terror Accused Passport
+https://www.verdictum.in/karnataka-high-court/um-haidar-v-state-public-prosecutor-2026khc30068-terror-accused-passport-renewed-travel-agent-1616869
+
+[Source Link](https://t.me/verdictumlegalupdates/27703)
+
+---
+
+### 2026-06-30T07:43:04+00:00
+Go To High Court As They Are Monitoring Better: Supreme Court Refuses To Entertain PIL On Alleged Encounter Of Bharat Bhushan Tiwari
+https://www.verdictum.in/supreme-court/refuses-entertain-pil-alleged-encounter-bharat-bhushan-tiwari-1616870
+
+[Source Link](https://t.me/verdictumlegalupdates/27702)
+
+---
+
+### 2026-06-30T07:02:42+00:00
+Supreme Court Refuses Interim Bail To Asaram; Remarks That Only 'Danger To Life' May Warrant Consideration
+https://www.verdictum.in/supreme-court/refuses-interim-bail-asaram-remarks-danger-to-life-warrant-relief-1616867
+
+[Source Link](https://t.me/verdictumlegalupdates/27701)
+
+---
+
+### 2026-06-30T06:32:41+00:00
+No Additional Trials Among Probables Does Not Vitiate Selection: Delhi High Court Upholds Equestrian Federation's Dressage Team Selection For Asian Games 2026
+https://www.verdictum.in/delhi-high-court/sudipti-hajela-v-equestrian-federation-of-india-2026dhc5180-equestrian-federations-dressage-team-selection-for-asian-games-2026-1616863
+
+[Source Link](https://t.me/verdictumlegalupdates/27700)
+
+---
+
+### 2026-06-30T05:51:39+00:00
+Three-Year-Old Child’s Incoherent & Illogical Statement Does Not Mean It Is Incorrect: Delhi High Court Sets Aside Bail Granted To POCSO Accused School Caretaker
+https://www.verdictum.in/delhi-high-court/state-v-lalit-kumar-2026dhc5174-caretaker-accused-of-sexual-assault-on-toddler-incoherent-illogical-statement-3-year-old-1616862
+
+[Source Link](https://t.me/verdictumlegalupdates/27699)
+
+---
+
+### 2026-06-30T05:12:38+00:00
+Term “Sexually Explicit” U/S 67A IT Act Cannot Be Restricted Only To Showing Activity Of Being Indulging In Sex: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/jayanthi-g-v-state-of-karnataka-and-2026khc27535-67a-it-act-issue-triable-sexually-explicit-videos-1616856
+
+[Source Link](https://t.me/verdictumlegalupdates/27698)
 
 ---
 
@@ -89,78 +161,6 @@ Gujarat High Court Dismisses PIL Seeking Archaeological Survey Of Somnath Temple
 https://www.verdictum.in/gujarat-high-court/2026-gujhc-38938-db-dr-vilas-tukaram-kharat-v-union-of-india-1616818
 
 [Source Link](https://t.me/verdictumlegalupdates/27687)
-
----
-
-### 2026-06-29T08:32:51+00:00
-Plaintiffs Not Allowed To File Evidence-On-Affidavit As Matter Of Right At Belated Stage After Repeated Adjournments: Gauhati High Court
-https://www.verdictum.in/guwahati-high-court/legal-heirs-namely-mumtaz-begum-v-khurshid-ali-ahmed-2026gau-as8714-evidence-on-affidavit-1616817
-
-[Source Link](https://t.me/verdictumlegalupdates/27686)
-
----
-
-### 2026-06-29T07:52:29+00:00
-Imposition Of Fine U/S 376 IPC In Rape Cases Mandatory And Integral To Sentencing: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/rakesh-v-state-2026ahc109391-dine-rape-section-376-ipc-sentencing-trial-1616814
-
-[Source Link](https://t.me/verdictumlegalupdates/27685)
-
----
-
-### 2026-06-29T07:03:08+00:00
-Six-Month Limitation U/S 471 DMC Act Applies Only To Filing Of Complaint Before Municipal Magistrate, Not Investigation Or Chargesheet: Delhi High Court
-https://www.verdictum.in/delhi-high-court/court-on-its-own-motion-v-state-of-delhi-2026dhc5135-db-six-month-limitation-us-471-dmc-act-municipal-magistrate-1616811
-
-[Source Link](https://t.me/verdictumlegalupdates/27684)
-
----
-
-### 2026-06-29T06:13:06+00:00
-Supreme Court To Hear Matter Concerning Ayodhya Ram Mandir Donation Row Immediately After Reopening
-https://www.verdictum.in/supreme-court/hear-ayodhya-ram-mandir-donation-row-after-reopening-1616806
-
-[Source Link](https://t.me/verdictumlegalupdates/27683)
-
----
-
-### 2026-06-29T05:52:25+00:00
-Sympathy Cannot Be A Substitute For Legal Entitlement; Writ Court Cannot Re-Write Academic Regulations: Bombay High Court Upholds Student's Low Attendance Debarment
-https://www.verdictum.in/bombay-high-court/k-v-university-grants-commission-writ-petition-l-no-18476-of-2026-students-low-attendance-debarment-psychology-1616801
-
-[Source Link](https://t.me/verdictumlegalupdates/27682)
-
----
-
-### 2026-06-29T05:02:44+00:00
-MOFA| Proportionate Land Division Permissible Despite TDR Use If Allocation Extends Across Entire Layout: Bombay High Court
-https://www.verdictum.in/bombay-high-court/neelkanth-mansions-infrastructure-private-limited-v-the-district-deputy-registrar-co-operative-societies-thane-writ-petition-no-3530-of-2026-land-division-1616799
-
-[Source Link](https://t.me/verdictumlegalupdates/27681)
-
----
-
-### 2026-06-29T04:33:12+00:00
-Sec.42(1) NDPS Act Applicable In Case Of Search Of Private Vehicle On Public Road: Kerala High Court Grants Bail Citing Non-Compliance
-https://www.verdictum.in/kerala-high-court/sudin-babu-v-state-of-kerala-2026ker43659-sec421-ndps-act-private-vehicle-1616780
-
-[Source Link](https://t.me/verdictumlegalupdates/27680)
-
----
-
-### 2026-06-28T15:02:33+00:00
-State Bank of India Invites Applications For The Post Of Assistant & Deputy Manager (Law)
-https://www.verdictum.in/job-updates/state-bank-of-india-1616744
-
-[Source Link](https://t.me/verdictumlegalupdates/27679)
-
----
-
-### 2026-06-28T13:33:12+00:00
-GIS Mapping Valid Aid To Identify Encroachment: Gauhati High Court Upholds Eviction Of Taungya Settlers From Assam’s Reserved Forest Areas
-https://www.verdictum.in/guwahati-high-court/abdul-khalek-v-the-state-of-assam-gahc010129002026-taungya-settlers-eviction-1616779
-
-[Source Link](https://t.me/verdictumlegalupdates/27678)
 
 ---
 
