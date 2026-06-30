@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-29T15:32:37+00:00*
+*Last Updated: 2026-06-30T04:32:46+00:00*
+
+---
+
+### 2026-06-30T04:32:46+00:00
+Sarpanch Owes Public Duty To Facilitate Education: Madhya Pradesh HC Directs Gram Panchayat To Rectify Infrastructural Deficiencies Of Sole Village School
+https://www.verdictum.in/madhya-pradesh-high-court/2026-mphc-jbp-43331-manggi-bai-kole-v-state-of-madhya-pradesh-1616839
+
+[Source Link](https://t.me/verdictumlegalupdates/27697)
 
 ---
 
@@ -153,14 +161,6 @@ GIS Mapping Valid Aid To Identify Encroachment: Gauhati High Court Upholds Evict
 https://www.verdictum.in/guwahati-high-court/abdul-khalek-v-the-state-of-assam-gahc010129002026-taungya-settlers-eviction-1616779
 
 [Source Link](https://t.me/verdictumlegalupdates/27678)
-
----
-
-### 2026-06-28T12:02:10+00:00
-Maintenance Can Be Granted Only When Wife Cannot Maintain Herself to Husband's Standard: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/r-v-s-2026khc30140-courts-cannot-award-maintenance-because-wife-files-petition-1616773
-
-[Source Link](https://t.me/verdictumlegalupdates/27677)
 
 ---
 
