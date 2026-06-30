@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-30T15:12:11+00:00*
+*Last Updated: 2026-06-30T15:52:33+00:00*
+
+---
+
+### 2026-06-30T15:52:33+00:00
+Legal Assistant Vacancy At Gujarat High Court
+https://www.verdictum.in/job-updates/gujarat-high-court-1616891
+
+[Source Link](https://t.me/verdictumlegalupdates/27715)
 
 ---
 
@@ -153,14 +161,6 @@ Grade-I of Tripura Judicial Service Vacancy At Tripura High Court
 https://www.verdictum.in/job-updates/tripura-high-court-1616831
 
 [Source Link](https://t.me/verdictumlegalupdates/27696)
-
----
-
-### 2026-06-29T14:52:55+00:00
-Maligning Image Of Person Yet To Be Held Guilty May Come Within Defamatory Act: Patna High Court Prohibits Media Trial In Tender Scam Case
-https://www.verdictum.in/patna-high-court/rishu-shree-v-the-state-of-bihar-maligning-image-guilty-defamatory-act-tender-scam-1616838
-
-[Source Link](https://t.me/verdictumlegalupdates/27695)
 
 ---
 
