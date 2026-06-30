@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-29T14:22:54+00:00*
+*Last Updated: 2026-06-30T06:40:56+00:00*
 
 ---
 
-### 2026-06-29T14:22:54+00:00
-MSME Council Award Passed Without Terminating Conciliation & Following Arbitral Procedure Is A Nullity: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-msme-council-award-terminating-conciliation-539221
+### 2026-06-30T06:40:56+00:00
+Madras High Court Stays Inspector's Suspension, Finds DVAC Order Prima Facie 'Motivated'
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-dvac-suspension-order-motivated-stay-on-suspension-539306
 
-[Read on Telegram](https://t.me/livelawindia/113581)
-
----
-### 2026-06-29T14:32:15+00:00
-When Anti-Defection Law Starts Defending Defectors
-https://www.livelaw.in/lawschool/articles/antidefection-law-defending-defectors-539195
-
-[Read on Telegram](https://t.me/livelawindia/113582)
+[Read on Telegram](https://t.me/livelawindia/113624)
 
 ---
-### 2026-06-29T14:33:35+00:00
-Disqualification Proceedings Against Ex-AIADMK MLAs Who Joined TVK Continue Despite Resignation: TN Assembly Tells Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-resigation-mla-does-not-absolve-disqualification-aiadmk-tvk-539258
+### 2026-06-30T06:42:16+00:00
+Supreme Court Refuses To Entertain PIL For Probe Into Bharat Bhushan Tiwari Encounter Killing In Bihar
+https://www.livelaw.in/top-stories/supreme-court-pil-for-cbi-probe-bharat-bhushan-tiwari-encounter-in-bhojpur-bihar-539307
 
-[Read on Telegram](https://t.me/livelawindia/113583)
-
----
-### 2026-06-29T14:47:15+00:00
-Jammu & Kashmir And Ladakh High Court Weekly Round-Up: June 22 - June 28, 2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-weekly-roundup-june-22-june-28-2026-539263
-
-[Read on Telegram](https://t.me/livelawindia/113584)
+[Read on Telegram](https://t.me/livelawindia/113625)
 
 ---
-### 2026-06-29T15:12:55+00:00
-Memorandum Recording Past Oral Family Settlement Doesn't Require Registration If No Fresh Rights Created: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/memorandum-recording-past-oral-family-settlement-doesnt-require-registration-if-it-doesnt-create-rights-afresh-delhi-high-court-539264
+### 2026-06-30T06:50:36+00:00
+Calcutta High Court Calls For Action-Taken Report On Incidents Of Egg-Pelting Against TMC Workers, MPs & MLAs
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-calls-for-states-report-on-incidents-of-egg-pelting-against-tmc-workers-mps-mlas-539310
 
-[Read on Telegram](https://t.me/livelawindia/113585)
-
----
-### 2026-06-29T16:03:06+00:00
-Source Of Father's Vacation Expenses Can't Be Basis To Deny Interim Custody Of Child: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/source-of-fathers-vacation-expenses-cant-be-basis-to-deny-interim-custody-of-child-delhi-high-court-539265
-
-[Read on Telegram](https://t.me/livelawindia/113586)
+[Read on Telegram](https://t.me/livelawindia/113626)
 
 ---
-### 2026-06-29T16:17:36+00:00
-State Cannot Dissolve Municipality Without Fair Hearing: Calcutta High Court Sets Aside Purulia Civic Board's Dissolution
-https://www.livelaw.in/high-court/calcutta-high-court/state-cannot-dissolve-municipality-without-fair-hearing-calcutta-high-court-sets-aside-purulia-civic-boards-dissolution-539267
+### 2026-06-30T06:52:36+00:00
+'Absolutely No Evidence': Madras High Court Quashes Case Against Three HR&CE Officials For Alleged Misappropriation Of Temple Fund
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-temple-fund-misapproriation-case-quashed-3-hr-ce-officials-539308
 
-[Read on Telegram](https://t.me/livelawindia/113587)
-
----
-### 2026-06-29T16:27:56+00:00
-Calcutta High Court Weekly Round-Up: June 22 To June 28, 2026
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-weekly-round-up-june-22-to-june-28-2026-539266
-
-[Read on Telegram](https://t.me/livelawindia/113588)
+[Read on Telegram](https://t.me/livelawindia/113627)
 
 ---
-### 2026-06-29T16:37:16+00:00
-"Its Been Two Decades, Wake Up Now" Bombay High Court Criticises BMC Over Potholed Roads In Mumbai
-https://www.livelaw.in/high-court/bombay-high-court/mumbai-road-safety-potholes-open-manholes-bmc-539269
+### 2026-06-30T07:02:17+00:00
+Order Asking Alleged Contemnor To Explain Why Charges Shouldn't Be Framed Not Appealable Under Contempt Act: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-contempt-appeal-not-maintainable-order-directing-appearance-539311
 
-[Read on Telegram](https://t.me/livelawindia/113589)
-
----
-### 2026-06-29T16:46:36+00:00
-LiveLaw Allahabad High Court Weekly Round-Up: June 22 - June 28, 2026
-https://www.livelaw.in/high-court/allahabad-high-court/livelaw-allahabad-high-court-weekly-round-up-june-22-june-28-2026-539271
-
-[Read on Telegram](https://t.me/livelawindia/113590)
+[Read on Telegram](https://t.me/livelawindia/113628)
 
 ---
-### 2026-06-29T17:20:06+00:00
-Delhi High Court Declines To Interfere With Asian Games Dressage Team Selection, Upholds EFI's Selection Criteria
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-declines-to-interfere-with-asian-games-dressage-team-selection-upholds-efis-selection-criteria-539272
+### 2026-06-30T07:20:37+00:00
+Supreme Court Directs Status Quo On Ethanol Supply Allocation For 2025-26, As BPCL Says HC Order Will Affect E20 Policy
+https://www.livelaw.in/top-stories/supreme-court-bharat-petroleum-plea-against-reopening-ethanol-supply-allocation-for-2025-26-notice-status-quo-539313
 
-[Read on Telegram](https://t.me/livelawindia/113591)
-
----
-### 2026-06-29T17:27:26+00:00
-Indian Concept Of 'Dharma' Predates Common Law; Rule Of Law & Judicial Independence Not Western Imports : CJI Surya Kant
-https://www.livelaw.in/top-stories/indian-concept-of-dharma-predates-common-law-rule-of-law-judicial-independence-not-western-imports-cji-surya-kant-539273
-
-[Read on Telegram](https://t.me/livelawindia/113592)
+[Read on Telegram](https://t.me/livelawindia/113629)
 
 ---
-### 2026-06-30T02:05:03+00:00
-Chairperson And Member Vacancy At Delhi Electricity Regulatory Commission
-https://www.livelaw.in/job-updates/chairperson-and-member-vacancy-at-delhi-electricity-regulatory-commission-539277
+### 2026-06-30T07:55:08+00:00
+Surat Demolition Row: Gujarat High Court Says Police Should Have Intervened When Municipal Corporation's Demarcation Turned Into Demolition
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-surat-demolition-drive-police-municipal-corporation-539317
 
-[Read on Telegram](https://t.me/livelawindia/113593)
-
----
-### 2026-06-30T02:30:24+00:00
-Assistant Manager (Commercial Contracting) Vacancy At Ernst & Young
-https://www.livelaw.in/job-updates/assistant-manager-commercial-contracting-vacancy-at-ernst-young-539278
-
-[Read on Telegram](https://t.me/livelawindia/113594)
+[Read on Telegram](https://t.me/livelawindia/113630)
 
 ---
-### 2026-06-30T02:31:44+00:00
-Departmental Inquiry Officer Vacancy At Surat Municipal Corporation
-https://www.livelaw.in/job-updates/departmental-inquiry-officer-vacancy-at-surat-municipal-corporation-539279
+### 2026-06-30T07:58:08+00:00
+Sudha Kongara Approaches Madras High Court Over ₹8.39 Crore Unpaid Dues For Parasakthi Movie
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-sudha-kongara-plea-unpaid-dues-parasakthi-movie-539318
 
-[Read on Telegram](https://t.me/livelawindia/113595)
-
----
-### 2026-06-30T02:33:04+00:00
-"Even Death Penalty Would Not Be Adequate": Pune Court Awards Death Sentence To 65-Yr-Old For Rape, Murder Of 3 Yr-Old Girl
-https://www.livelaw.in/news-updates/pune-court-death-sentence-65-yr-old-for-rape-murder-3-yr-old-girl-nasrapur-539274
-
-[Read on Telegram](https://t.me/livelawindia/113596)
+[Read on Telegram](https://t.me/livelawindia/113631)
 
 ---
-### 2026-06-30T02:34:04+00:00
-Chief Manager (Corporate Legal) And Manager (Corporate Legal) Vacancy At Mumbai Port Authority
-https://www.livelaw.in/job-updates/chief-manager-corporate-legal-and-manager-corporate-legal-vacancy-at-mumbai-port-authority-539280
+### 2026-06-30T08:01:48+00:00
+Kerala High Court Paves Way For Three Foreign Crew Of MSC Elsa 3 To Return Home, Modifies Condition To Furnish ₹1 Lakh Bank Guarantee
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-msc-elsa-3-foreign-crew-return-home-countries-539319
 
-[Read on Telegram](https://t.me/livelawindia/113597)
-
----
-### 2026-06-30T03:29:34+00:00
-Educated Wife Not Earning Sufficient Income Entitled To Maintenance; Parents' Property Or Pension Does Not Count: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-educated-wife-sufficient-income-maintenance-parents-property-pension-539281
-
-[Read on Telegram](https://t.me/livelawindia/113598)
+[Read on Telegram](https://t.me/livelawindia/113632)
 
 ---
-### 2026-06-30T03:32:54+00:00
-BSF Must Assess Nature And Gravity Of Criminal Charges Before Declaring Candidate 'Permanently Unfit' For Service: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/border-security-force-nature-of-criminal-case-candidate-unfit-539261
+### 2026-06-30T08:17:48+00:00
+Mere Relationship With Accused Can't Justify Attachment Of Third Party's Property In DA Case Without 'Clear Money Trail': Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-accused-relative-third-party-property-attachment-disproportionate-assets-benami-539320
 
-[Read on Telegram](https://t.me/livelawindia/113599)
+[Read on Telegram](https://t.me/livelawindia/113633)
 
 ---
-### 2026-06-30T04:03:04+00:00
-Designated Authority Can't Review Order Regularising Unauthorised Construction Absent Express Statutory Power: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-designated-authority-revoke-regularisation-539262
+### 2026-06-30T08:32:58+00:00
+Marriage Invalid Due To Husband Concealing Religious Identity Doesn't Bar Woman's Maintenance Claim: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/wife-entitled-to-maintenance-invalid-marriage-husband-hid-religious-identity-539321
 
-[Read on Telegram](https://t.me/livelawindia/113600)
+[Read on Telegram](https://t.me/livelawindia/113634)
+
+---
+### 2026-06-30T08:41:58+00:00
+Telangana High Court Monthly Round-Up : May 1 - May 31, 2026
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-monthly-roundup-may2026-539325
+
+[Read on Telegram](https://t.me/livelawindia/113635)
+
+---
+### 2026-06-30T08:47:58+00:00
+Telangana High Court Refers Disputes Over Demolition & Reconstruction Of Kanyaka Parameshwari Temple To Endowments Authority
+https://www.livelaw.in/high-court/telangana-high-court/kanyaka-parameshwari-temple-demolition-reconstruction-dispute-endowment-539322
+
+[Read on Telegram](https://t.me/livelawindia/113636)
+
+---
+### 2026-06-30T09:09:59+00:00
+NLSIU Attendance Row: Karnataka High Court Declines Interim Relief To Students Facing Year-Loss, Suggests Them To Approach Bar Council
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-nlsiu-students-challenging-attendance-shortage-539330
+
+[Read on Telegram](https://t.me/livelawindia/113637)
+
+---
+### 2026-06-30T09:22:49+00:00
+Delhi Consumer Commission Holds TVS Electronics Liable For Failing To Repair Laptop Despite Charging Service Fees
+https://www.livelaw.in/consumer-cases/delhi-consumer-commission-holds-tvs-electronics-liable-for-failing-repair-laptop-despite-charging-service-fees-539332
+
+[Read on Telegram](https://t.me/livelawindia/113638)
+
+---
+### 2026-06-30T09:28:09+00:00
+2026 LiveLaw (SC) 645 | JITTU YADAV VERSUS STATE OF CHHATTISGARH & OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-645-jittu-yadav-versus-state-of-chhattisgarh-others-539333
+
+[Read on Telegram](https://t.me/livelawindia/113639)
+
+---
+### 2026-06-30T09:32:49+00:00
+LiveLaw Punjab & Haryana High Court Weekly Round-Up: June 22 - June 28, 2026
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-weekly-round-up-june-22-june-28-2026-539331
+
+[Read on Telegram](https://t.me/livelawindia/113640)
+
+---
+### 2026-06-30T09:32:59+00:00
+Great Indian Defection Circus: How Tenth Schedule Became A Shield For 'Wholesale' Betrayals
+https://www.livelaw.in/articles/great-indian-defection-circus-tenth-schedule-shield-wholesale-betrayals-539315
+
+[Read on Telegram](https://t.me/livelawindia/113641)
+
+---
+### 2026-06-30T09:42:09+00:00
+Kerala High Court Directs Time-Bound Disposal Of Prisoners' Remission & Premature Release Pleas, Orders Strict Adherence To NALSA SOP
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-time-bound-disposal-remission-of-sentence-and-premature-release-of-eligible-prisoners-539335
+
+[Read on Telegram](https://t.me/livelawindia/113642)
+
+---
+### 2026-06-30T09:46:09+00:00
+Hindu Marriage Without Performance Of Essential Ceremonies Like Saptapadi Is Void Despite Registration Certificate: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-hindu-marriage-rites-ceremonies-performance-saptapadi-valid-539336
+
+[Read on Telegram](https://t.me/livelawindia/113643)
 
 ---
