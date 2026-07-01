@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-01T10:02:35+00:00*
+*Last Updated: 2026-07-01T15:13:17+00:00*
+
+---
+
+### 2026-07-01T15:13:17+00:00
+Stop Salaries Of Police Personnel If Witnesses Fail To Appear In Court: Chhattisgarh High Court Directs DGP Over NDPS Trial Delay
+https://www.verdictum.in/chhattisgarh-high-court/2026-cghc-26299-nehal-singh-v-state-of-chhattisgarh-1616948
+
+[Source Link](https://t.me/verdictumlegalupdates/27737)
+
+---
+
+### 2026-07-01T14:33:16+00:00
+Apex Court Quashes COVID-Era Vendor Relaxations; Orders Swift Rehabilitation & CCTV Installation In Chandigarh Vending Zones
+https://www.verdictum.in/supreme-court/covid-vendor-relaxations-rehabilitation-cctv-installation-chandigarh-vending-zones-1616947
+
+[Source Link](https://t.me/verdictumlegalupdates/27736)
+
+---
+
+### 2026-07-01T14:02:54+00:00
+Lack Of Communication Or Refusal To Cohabit Does Not Amount To Cruelty Under Section 498A IPC: Jharkhand High Court
+https://www.verdictum.in/jharkhand-high-court/2026-jhhc-18898-matrimonial-discord-lack-of-communication-not-cruelty-1616946
+
+[Source Link](https://t.me/verdictumlegalupdates/27735)
+
+---
+
+### 2026-07-01T13:32:53+00:00
+Protection U/S 28(3) Trade Marks Act Available Only Where Concurrent Registrations Exist In Same Class: Kerala High Court Upholds Malabar Gold's TM Rights
+https://www.verdictum.in/kerala-high-court/m-manuel-malabar-fashion-jewellery-v-malabar-gold-private-limited-2026ker46835-trademark-rights-protection-us-283-1616940
+
+[Source Link](https://t.me/verdictumlegalupdates/27734)
+
+---
+
+### 2026-07-01T13:02:12+00:00
+Is It Confidential In Character Or Nor?: Gauhati High Court Refers "Reason To Believe" Disclosure Under PMLA To Larger Bench
+https://www.verdictum.in/guwahati-high-court/mrig-mrinal-dhawan-v-union-of-india-2026gau-as9425-attached-under-pmla-if-equivalent-to-proceeds-of-crime-larger-bench-1616936
+
+[Source Link](https://t.me/verdictumlegalupdates/27733)
+
+---
+
+### 2026-07-01T12:33:11+00:00
+Funding Is The Oxygen For Extremism: Karnataka High Court Refuses To Quash UAPA Case Over Alleged Siphoning US Funds In Left-Wing Extremism Funding Case
+https://www.verdictum.in/karnataka-high-court/refuses-quash-uapa-case-over-alleged-siphoning-us-funds-camouflaged-debit-cards-1616939
+
+[Source Link](https://t.me/verdictumlegalupdates/27732)
+
+---
+
+### 2026-07-01T12:02:30+00:00
+‘Voluntary’ Aspect Mandated By Order XXIII Rule 3 CPC Not Established: Supreme Court Upholds Setting Aside Of Compromise Decree After 25 Years
+https://www.verdictum.in/supreme-court/krishna-kumar-ojha-jitendra-chaudhary-ors-2026-insc-662-order-xxiii-rule-3-cpc-compromise-1616938
+
+[Source Link](https://t.me/verdictumlegalupdates/27731)
+
+---
+
+### 2026-07-01T11:32:28+00:00
+Family Settlement Over 33 Years Cannot Be Terminated Like Commercial License: Bombay High Court Grants Interim Protection To Vadilal Brand Rights Pending Arbitration
+https://www.verdictum.in/bombay-high-court/shailesh-r-gandhi-v-late-ramchandra-r-gandhi-comm-arbitration-petition-l-no18386-of-2026-vadilal-brand-rights-1616934
+
+[Source Link](https://t.me/verdictumlegalupdates/27730)
+
+---
+
+### 2026-07-01T11:02:27+00:00
+No Obscene Depiction Of Women; Attire Of Dancers Should Be Modest: Madras High Court While Permiting Temple Program
+https://www.verdictum.in/madras-high-court/pichai-raja-v-the-district-superintendent-of-police-temple-program-1616933
+
+[Source Link](https://t.me/verdictumlegalupdates/27729)
+
+---
+
+### 2026-07-01T10:32:36+00:00
+Concealing Existing Marriage Indicates Intention To Deceive From Inception & Take Undue Advantage Of Sexual Lust: Jharkhand High Court Upholds Rape Conviction
+https://www.verdictum.in/jharkhand-high-court/ramesh-sahu-v-the-state-of-jharkhand-2026jhhc18889-rape-conviction-for-false-promise-of-marriage-1616931
+
+[Source Link](https://t.me/verdictumlegalupdates/27728)
 
 ---
 
@@ -81,86 +161,6 @@ School Bus Is An Extension Of The School Itself: Karnataka High Court Refuses To
 https://www.verdictum.in/karnataka-high-court/divyajyothi-school-management-v-state-of-karnataka-2026khc31211-bus-extension-of-the-school-child-losing-eye-1616912
 
 [Source Link](https://t.me/verdictumlegalupdates/27718)
-
----
-
-### 2026-07-01T05:02:22+00:00
-Protection Of Animal Life Is Not An Act Of Charity But An Affirmation Of Constitutional Morality: Karnataka High Court Directs PETA To Retain Custody Of Sexually Abused Dogs
-https://www.verdictum.in/karnataka-high-court/2026-khc-31535-peta-v-state-of-karnataka-1616910
-
-[Source Link](https://t.me/verdictumlegalupdates/27717)
-
----
-
-### 2026-07-01T04:32:31+00:00
-Cow Is Regarded As Sacred & Worthy Of Protection; Repeated Cow Progeny Slaughter Offences Show Misuse Of Bail: Gujarat HC Denies Bail To Accused
-https://www.verdictum.in/gujarat-high-court/mohammad-aarif-abdul-razak-samol-v-state-of-gujarat-2026gujhc36716-cow-sacred-worthy-of-protection-1616892
-
-[Source Link](https://t.me/verdictumlegalupdates/27716)
-
----
-
-### 2026-06-30T15:52:33+00:00
-Legal Assistant Vacancy At Gujarat High Court
-https://www.verdictum.in/job-updates/gujarat-high-court-1616891
-
-[Source Link](https://t.me/verdictumlegalupdates/27715)
-
----
-
-### 2026-06-30T15:12:11+00:00
-Promotion Deferment Based On Complaint That Never Led To Action Cannot Prejudice Judicial Officer: Chhattisgarh High Court Restores CJM’s Claim For 2014 Promotion
-https://www.verdictum.in/chhattisgarh-high-court/chhaya-singh-v-high-court-of-chhattisgarh-2026cghc26195-promotion-deferment-restores-cjms-claim-for-2014-promotion-1616890
-
-[Source Link](https://t.me/verdictumlegalupdates/27714)
-
----
-
-### 2026-06-30T14:32:50+00:00
-Prescription Alone Cannot Prove Mental Illness; Past Hospitalization Not Sufficient To Declare Person As Psychiatric Patient: Gauhati High Court
-https://www.verdictum.in/guwahati-high-court/farjul-haque-md-faizul-fazlul-hoque-v-union-of-india-2026gau-as9359-mental-illness-past-hospitalization-not-sufficient-1616889
-
-[Source Link](https://t.me/verdictumlegalupdates/27713)
-
----
-
-### 2026-06-30T13:52:28+00:00
-Daughter Entitled To Equal Coparcenary Share Even If Father's Demise Was Prior To Commencement Of 2005 HSA Amendment Act : Madras High Court
-https://www.verdictum.in/madras-high-court/2026-mhc-2303-murugammal-v-andi-1616888
-
-[Source Link](https://t.me/verdictumlegalupdates/27712)
-
----
-
-### 2026-06-30T13:12:47+00:00
-Enticing Married Woman For Illicit Sexual Intercourse Attracts Offence U/S 84 BNS: J&K&L High Court Refuses To Quash FIR Despite Woman Denying Abduction
-https://www.verdictum.in/delhi-high-court/r-and-another-v-union-territory-of-jammu-kashmir-crm-m-no-252026-enticing-married-woman-for-illicit-intercourse-s-84-82-bns-1616887
-
-[Source Link](https://t.me/verdictumlegalupdates/27711)
-
----
-
-### 2026-06-30T12:33:05+00:00
-IO Didn't Know Basic Principles Of Investigation Or Purposefully Withheld The Evidence To Save Accused: Patna High Court Sets Aside Murder Conviction
-https://www.verdictum.in/patna-high-court/sets-aside-life-sentence-302-ipc-due-gross-investigative-lapses-1616886
-
-[Source Link](https://t.me/verdictumlegalupdates/27710)
-
----
-
-### 2026-06-30T11:53:04+00:00
-Negligently Parked TATA Ace Was Root Cause Of Fatal Accident: Madras High Court Upholds ₹2.92 Crore Compensation To ISRO Scientist's Family
-https://www.verdictum.in/madras-high-court/tata-aig-general-insurance-co-ltd-v-pammu-2026mhc2304-road-accident-isro-scientist-compensation-1616882
-
-[Source Link](https://t.me/verdictumlegalupdates/27709)
-
----
-
-### 2026-06-30T11:12:52+00:00
-Merely Challenging AFMS Training Rules Is No Ground For Interim Relief: Delhi High Court Rejects Army Medical Officers’ Plea For NEET PG Eligibility
-https://www.verdictum.in/delhi-high-court/major-jayati-chandra-v-union-of-india-2026dhc5186-db-afms-training-rules-army-medical-officer-neet-pg-eligibility-1616881
-
-[Source Link](https://t.me/verdictumlegalupdates/27708)
 
 ---
 
