@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-06-30T13:34:31+00:00*
+*Last Updated: 2026-06-30T13:49:02+00:00*
 
 ---
 
-### 2026-06-30T13:34:31+00:00
-Himachal Pradesh Water Cess Revived? High Court Stays Coercive Action On ₹16.32 Crore Demand Against Punjab Power Corporation
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-grants-interim-stay-against-recovery-1634-crore-from-punjab-power-corporation-in-land-revenue-amendment-plea-539367
-
-[Read on Telegram](https://t.me/livelawindia/113656)
-
----
-### 2026-06-30T13:35:11+00:00
-'Sparing His Life Would Be Misplaced Mercy': Madras High Court Confirms Death Penalty Of Man For Sexual Assault On Three Minor Girls
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-death-sentence-pocso-case-upheld-6-7-8-year-old-minor-girls-539368
-
-[Read on Telegram](https://t.me/livelawindia/113657)
-
----
-### 2026-06-30T13:45:21+00:00
-“Taking Tea And Biscuits Home Didn't Warrant Dismissal After 17 Years' Service”: Jharkhand High Court Orders Reinstatement Of Peon
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-orders-reinstatement-peon-back-wages-539371
-
-[Read on Telegram](https://t.me/livelawindia/113658)
-
----
 ### 2026-06-30T13:49:02+00:00
 Resignation Tendered Over Alleged Harassment Not 'Voluntary': P&H High Court Permits IIT Ropar PhD Scholar To Continue Studies
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-iit-ropar-must-reinstate-phd-scholar-who-resigned-over-alleged-harassment-539373
@@ -142,5 +121,26 @@ Is Arrest Illegal If Person Isn't Supplied Earlier Charge Sheet Filed Against Co
 https://www.livelaw.in/high-court/bombay-high-court/arrest-copy-of-chargesheet-against-co-accused-207-crpc-scope-section-50-crpc-grounds-of-arrest-539411
 
 [Read on Telegram](https://t.me/livelawindia/113675)
+
+---
+### 2026-07-01T02:32:33+00:00
+2016 Yogesh Goudar Murder Case: CBI Tells Karnataka High Court Dharwad Trial Was 'Hogwash', Witnesses Were Tutored By Ex-MLA Vinay Kulkarni
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-cbi-vinay-kulkarni-murder-appeal-539412
+
+[Read on Telegram](https://t.me/livelawindia/113676)
+
+---
+### 2026-07-01T03:33:23+00:00
+State Can't Indefinitely Reserve Private Land Without Commencing Acquisition Or Timely Development Plan Revision: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-indefinitely-reserve-private-land-without-acquisition-539392
+
+[Read on Telegram](https://t.me/livelawindia/113677)
+
+---
+### 2026-07-01T04:02:43+00:00
+Sole Proprietor Who Personally Executes Work Covered Under Employees' Compensation Act: Karnataka High Court Holds Insurer Liable
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-sole-proprietor-personally-executes-work-employees-compensation-act-539398
+
+[Read on Telegram](https://t.me/livelawindia/113678)
 
 ---
