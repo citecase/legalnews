@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-01T05:02:22+00:00*
+*Last Updated: 2026-07-01T10:02:35+00:00*
+
+---
+
+### 2026-07-01T10:02:35+00:00
+Public Figures Must Not Be Thin-Skinned To Satire: Delhi HC Refuses To Blanket-Ban Deepfakes Against Raghav Chadha; Orders Takedown Of 'Vulgar' AI Content
+https://www.verdictum.in/delhi-high-court/2026dhc5252-raghav-chadha-v-ashok-kumar-john-doe-1616930
+
+[Source Link](https://t.me/verdictumlegalupdates/27727)
+
+---
+
+### 2026-07-01T09:32:14+00:00
+Arbitral Tribunals Competent To Decide Inter Se Claims Between Co-Respondents Under Tripartite Agreements: Kerala High Court
+https://www.verdictum.in/kerala-high-court/ms-karthik-exports-v-krishna-kumar-agarwal-2026ker46677-arbitral-tribunals-inter-se-claims-1616927
+
+[Source Link](https://t.me/verdictumlegalupdates/27726)
+
+---
+
+### 2026-07-01T09:02:52+00:00
+Claim Of Being Deaf & Dumb Cannot Shield Accused Who Understands Consequences Of Act: Madhya Pradesh HC Remands POCSO Case For Fresh Examination U/S 313 CrPC
+https://www.verdictum.in/madhya-pradesh-high-court/in-reference-of-state-of-madhya-pradesh-v-kalyan-raikwar-criminal-reference-no-01-of-2024-deaf-dumb-fresh-examination-us-313-crpc-1616925
+
+[Source Link](https://t.me/verdictumlegalupdates/27725)
+
+---
+
+### 2026-07-01T08:33:11+00:00
+Zero Marks In Transcription, Yet Selected: Madras High Court Quashes Appointment Of 17 Personal Assistants To Judges
+https://www.verdictum.in/madras-high-court/suo-motu-writ-petition-the-registrar-general-high-court-madras-2026mhc2406-1616924
+
+[Source Link](https://t.me/verdictumlegalupdates/27724)
+
+---
+
+### 2026-07-01T08:02:29+00:00
+Dignity Of A Woman Cannot Be Left At Mercy Of Fake Profiles; Law Must Move At Same Speed As Unlawful Content: Madras High Court
+https://www.verdictum.in/madras-high-court/r-ramesh-kumar-v-the-superintendent-of-police-wpcrl-md-no-2027-of-2026-preserve-ip-logs-and-block-offending-urls-1616923
+
+[Source Link](https://t.me/verdictumlegalupdates/27723)
+
+---
+
+### 2026-07-01T07:32:48+00:00
+PAN Card & Voter ID Not Proof Of Citizenship; NRC Legacy Data Without Certificate U/S 65B Evidence Act Has No Evidentiary Value: Gauhati High Court
+https://www.verdictum.in/guwahati-high-court/aminul-hoque-v-union-of-india-2026gau-as9434-nrc-legacy-data-pan-card-voter-id-1616922
+
+[Source Link](https://t.me/verdictumlegalupdates/27722)
+
+---
+
+### 2026-07-01T07:02:47+00:00
+Registrar Of Trade Marks Can Be Treated As Subordinate To High Court For Transfer Of Rectification Proceedings U/S 24 CPC: Bombay High Court
+https://www.verdictum.in/bombay-high-court/institute-for-technology-and-management-trust-v-putch-venkata-ramana-interim-application-no-3128-of-2025-court-subordinate-to-high-court-us-24-cpc-1616920
+
+[Source Link](https://t.me/verdictumlegalupdates/27721)
+
+---
+
+### 2026-07-01T06:32:26+00:00
+“Not Fit To Live In The Society”: Madras High Court Confirms Death Sentence Of POCSO Convict For Committing Aggravated Penetrative Sexual Assault On 3 Minor Kids
+https://www.verdictum.in/madras-high-court/state-of-tamil-nadu-v-anandhasekar-rt-mdno4-of-2026-and-crlamd-no616-of-2026-death-sentence-for-pocso-convict-neighbour-1616915
+
+[Source Link](https://t.me/verdictumlegalupdates/27720)
+
+---
+
+### 2026-07-01T06:01:45+00:00
+Merely Because State Has Power Over Liquor Business Does Not Make Every Demand Legal: Bombay High Court Sets Aside Excess Fee Demand
+https://www.verdictum.in/bombay-high-court/john-distilleries-private-lilmited-v-the-state-of-maharashtra-writ-petition-no2391-of-2019-liquor-business-excess-fee-demand-legal-1616914
+
+[Source Link](https://t.me/verdictumlegalupdates/27719)
+
+---
+
+### 2026-07-01T05:31:24+00:00
+School Bus Is An Extension Of The School Itself: Karnataka High Court Refuses To Quash FIR Against School Over Child Losing Eye In School Bus Accident
+https://www.verdictum.in/karnataka-high-court/divyajyothi-school-management-v-state-of-karnataka-2026khc31211-bus-extension-of-the-school-child-losing-eye-1616912
+
+[Source Link](https://t.me/verdictumlegalupdates/27718)
 
 ---
 
@@ -81,86 +161,6 @@ Merely Challenging AFMS Training Rules Is No Ground For Interim Relief: Delhi Hi
 https://www.verdictum.in/delhi-high-court/major-jayati-chandra-v-union-of-india-2026dhc5186-db-afms-training-rules-army-medical-officer-neet-pg-eligibility-1616881
 
 [Source Link](https://t.me/verdictumlegalupdates/27708)
-
----
-
-### 2026-06-30T10:33:11+00:00
-Supreme Court Directs Status Quo On Order Against Ethanol Procurement By Oil Marketing Companies
-https://www.verdictum.in/supreme-court/status-quo-on-order-against-ethanol-procurement-by-oil-marketing-companies-1616878
-
-[Source Link](https://t.me/verdictumlegalupdates/27707)
-
----
-
-### 2026-06-30T09:52:38+00:00
-No Offence Of Rape If Live-In Partners Are In Long-Drawn Consensual Relationship: Chhattisgarh High Court Upholds Acquittal Of Rape Accused
-https://www.verdictum.in/chhattisgarh-high-court/2026-cghc-26186-db-xyz-v-siddharth-sarangi-1616875
-
-[Source Link](https://t.me/verdictumlegalupdates/27706)
-
----
-
-### 2026-06-30T09:52:28+00:00
-Delhi High Court Allows 17-Year-Old Minor To Donate Part Of Liver To Ailing Father
-https://www.verdictum.in/delhi-high-court/pratik-shaw-union-of-india-2026dhc5187-minor-donate-liver-aliling-father-1616877
-
-[Source Link](https://t.me/verdictumlegalupdates/27705)
-
----
-
-### 2026-06-30T09:02:47+00:00
-Registration of Hindu Marriage Does Not Make It Valid If Essential Ceremonies U/S 7 HMA Were Never Performed: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/kaushal-pramodbhai-sonar-v-khushi-sanjay-shah-2026gujhc38968-db-registration-of-marriage-us-8-hindu-marriage-act-essential-ceremonies-1616874
-
-[Source Link](https://t.me/verdictumlegalupdates/27704)
-
----
-
-### 2026-06-30T08:23:05+00:00
-National Security Is Equally Endangered By Those Who Facilitate: Karnataka High Court Refuses To Quash Case Against Travel Agent Who Renewed Terror Accused Passport
-https://www.verdictum.in/karnataka-high-court/um-haidar-v-state-public-prosecutor-2026khc30068-terror-accused-passport-renewed-travel-agent-1616869
-
-[Source Link](https://t.me/verdictumlegalupdates/27703)
-
----
-
-### 2026-06-30T07:43:04+00:00
-Go To High Court As They Are Monitoring Better: Supreme Court Refuses To Entertain PIL On Alleged Encounter Of Bharat Bhushan Tiwari
-https://www.verdictum.in/supreme-court/refuses-entertain-pil-alleged-encounter-bharat-bhushan-tiwari-1616870
-
-[Source Link](https://t.me/verdictumlegalupdates/27702)
-
----
-
-### 2026-06-30T07:02:42+00:00
-Supreme Court Refuses Interim Bail To Asaram; Remarks That Only 'Danger To Life' May Warrant Consideration
-https://www.verdictum.in/supreme-court/refuses-interim-bail-asaram-remarks-danger-to-life-warrant-relief-1616867
-
-[Source Link](https://t.me/verdictumlegalupdates/27701)
-
----
-
-### 2026-06-30T06:32:41+00:00
-No Additional Trials Among Probables Does Not Vitiate Selection: Delhi High Court Upholds Equestrian Federation's Dressage Team Selection For Asian Games 2026
-https://www.verdictum.in/delhi-high-court/sudipti-hajela-v-equestrian-federation-of-india-2026dhc5180-equestrian-federations-dressage-team-selection-for-asian-games-2026-1616863
-
-[Source Link](https://t.me/verdictumlegalupdates/27700)
-
----
-
-### 2026-06-30T05:51:39+00:00
-Three-Year-Old Child’s Incoherent & Illogical Statement Does Not Mean It Is Incorrect: Delhi High Court Sets Aside Bail Granted To POCSO Accused School Caretaker
-https://www.verdictum.in/delhi-high-court/state-v-lalit-kumar-2026dhc5174-caretaker-accused-of-sexual-assault-on-toddler-incoherent-illogical-statement-3-year-old-1616862
-
-[Source Link](https://t.me/verdictumlegalupdates/27699)
-
----
-
-### 2026-06-30T05:12:38+00:00
-Term “Sexually Explicit” U/S 67A IT Act Cannot Be Restricted Only To Showing Activity Of Being Indulging In Sex: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/jayanthi-g-v-state-of-karnataka-and-2026khc27535-67a-it-act-issue-triable-sexually-explicit-videos-1616856
-
-[Source Link](https://t.me/verdictumlegalupdates/27698)
 
 ---
 
