@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-01T15:13:17+00:00*
+*Last Updated: 2026-07-01T16:02:58+00:00*
+
+---
+
+### 2026-07-01T16:02:58+00:00
+Legal Officer Vacancy At Union Public Service Commission (DGCA, Ministry of Civil Aviation)
+https://www.verdictum.in/job-updates/union-public-service-commission-1616941
+
+[Source Link](https://t.me/verdictumlegalupdates/27738)
 
 ---
 
@@ -153,14 +161,6 @@ Merely Because State Has Power Over Liquor Business Does Not Make Every Demand L
 https://www.verdictum.in/bombay-high-court/john-distilleries-private-lilmited-v-the-state-of-maharashtra-writ-petition-no2391-of-2019-liquor-business-excess-fee-demand-legal-1616914
 
 [Source Link](https://t.me/verdictumlegalupdates/27719)
-
----
-
-### 2026-07-01T05:31:24+00:00
-School Bus Is An Extension Of The School Itself: Karnataka High Court Refuses To Quash FIR Against School Over Child Losing Eye In School Bus Accident
-https://www.verdictum.in/karnataka-high-court/divyajyothi-school-management-v-state-of-karnataka-2026khc31211-bus-extension-of-the-school-child-losing-eye-1616912
-
-[Source Link](https://t.me/verdictumlegalupdates/27718)
 
 ---
 
