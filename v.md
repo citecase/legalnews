@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-06-30T15:52:33+00:00*
+*Last Updated: 2026-07-01T05:02:22+00:00*
+
+---
+
+### 2026-07-01T05:02:22+00:00
+Protection Of Animal Life Is Not An Act Of Charity But An Affirmation Of Constitutional Morality: Karnataka High Court Directs PETA To Retain Custody Of Sexually Abused Dogs
+https://www.verdictum.in/karnataka-high-court/2026-khc-31535-peta-v-state-of-karnataka-1616910
+
+[Source Link](https://t.me/verdictumlegalupdates/27717)
+
+---
+
+### 2026-07-01T04:32:31+00:00
+Cow Is Regarded As Sacred & Worthy Of Protection; Repeated Cow Progeny Slaughter Offences Show Misuse Of Bail: Gujarat HC Denies Bail To Accused
+https://www.verdictum.in/gujarat-high-court/mohammad-aarif-abdul-razak-samol-v-state-of-gujarat-2026gujhc36716-cow-sacred-worthy-of-protection-1616892
+
+[Source Link](https://t.me/verdictumlegalupdates/27716)
 
 ---
 
@@ -145,22 +161,6 @@ Term “Sexually Explicit” U/S 67A IT Act Cannot Be Restricted Only To Showing
 https://www.verdictum.in/karnataka-high-court/jayanthi-g-v-state-of-karnataka-and-2026khc27535-67a-it-act-issue-triable-sexually-explicit-videos-1616856
 
 [Source Link](https://t.me/verdictumlegalupdates/27698)
-
----
-
-### 2026-06-30T04:32:46+00:00
-Sarpanch Owes Public Duty To Facilitate Education: Madhya Pradesh HC Directs Gram Panchayat To Rectify Infrastructural Deficiencies Of Sole Village School
-https://www.verdictum.in/madhya-pradesh-high-court/2026-mphc-jbp-43331-manggi-bai-kole-v-state-of-madhya-pradesh-1616839
-
-[Source Link](https://t.me/verdictumlegalupdates/27697)
-
----
-
-### 2026-06-29T15:32:37+00:00
-Grade-I of Tripura Judicial Service Vacancy At Tripura High Court
-https://www.verdictum.in/job-updates/tripura-high-court-1616831
-
-[Source Link](https://t.me/verdictumlegalupdates/27696)
 
 ---
 
