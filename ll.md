@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-01T12:11:00+00:00*
+*Last Updated: 2026-07-01T12:51:51+00:00*
 
 ---
 
-### 2026-07-01T12:11:00+00:00
-2026 LiveLaw (SC) 650 | CHANDRIKABEN KISHOR DAFDA VERSUS STATE OF GUJARAT & ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-650-chandrikaben-kishor-dafda-versus-state-of-gujarat-anr-539525
-
-[Read on Telegram](https://t.me/livelawindia/113739)
-
----
-### 2026-07-01T12:17:20+00:00
-Lawyer Accused Of Threatening NCB Officer Moves Kerala High Court For Quashing FIR
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-lawyer-fir-quash-intimidation-ncb-539528
-
-[Read on Telegram](https://t.me/livelawindia/113740)
-
----
-### 2026-07-01T12:29:00+00:00
-SCAORA Condemns Threats Against MP Judge Who Punished Cow Vigilantes In Lynching Case
-https://www.livelaw.in/top-stories/scaora-condemns-threats-against-mp-judge-who-punished-cow-vigilantes-in-lynching-case-539530
-
-[Read on Telegram](https://t.me/livelawindia/113741)
-
----
-### 2026-07-01T12:34:01+00:00
-'No Finding I Was Part Of Conspiracy, Yet I Was Convicted': Vinay Kulkarni's Uncle Tells Karnataka High Court In Yogesh Goudar Murder Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-chandrasekhar-indi-sentence-suspension-539531
-
-[Read on Telegram](https://t.me/livelawindia/113742)
-
----
-### 2026-07-01T12:35:51+00:00
-The Judge Who Did Her Duty
-https://www.livelaw.in/articles/madhya-pradesh-high-court-judicial-protection-judge-tabassum-khan-threats-539532
-
-[Read on Telegram](https://t.me/livelawindia/113743)
-
----
-### 2026-07-01T12:44:51+00:00
-Magistrate Must Not Record Prosecution Evidence In Complaint Cases Exclusively Triable By Sessions Court : Supreme Court
-https://www.livelaw.in/supreme-court/magistrate-must-not-record-prosecution-evidence-in-complaint-cases-exclusively-triable-by-sessions-court-supreme-court-539534
-
-[Read on Telegram](https://t.me/livelawindia/113744)
-
----
-### 2026-07-01T12:46:51+00:00
-2026 LiveLaw (SC) 651 | NEERAJ GUPTA Versus PARDEEP KUMAR BANSAL & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-651-neeraj-gupta-versus-pardeep-kumar-bansal-ors-539536
-
-[Read on Telegram](https://t.me/livelawindia/113745)
-
----
 ### 2026-07-01T12:51:51+00:00
 Representation Of People Act Doesn't Apply To Municipal Elections : Supreme Court
 https://www.livelaw.in/top-stories/representation-of-people-act-doesnt-apply-to-municipal-elections-supreme-court-539537
@@ -142,5 +93,54 @@ MP High Court Suspects POCSO Convict Faked Deafness To Vitiate Trial
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/mp-high-court-suspects-pocso-convict-faked-deafness-to-vitiate-trial-539575
 
 [Read on Telegram](https://t.me/livelawindia/113758)
+
+---
+### 2026-07-01T14:57:12+00:00
+Delhi High Court Awards ₹18 Lakh Compensation In Custodial Death Case, Cites State's 'Heightened Duty Of Care'
+https://www.livelaw.in/high-court/delhi-high-court/state-bound-to-compensate-next-of-kin-in-custodial-death-cases-539576
+
+[Read on Telegram](https://t.me/livelawindia/113759)
+
+---
+### 2026-07-01T14:58:52+00:00
+Exploring Legal Nature Of Passports And Citizenship
+https://www.livelaw.in/articles/exploring-legal-nature-passports-citizenship-539581
+
+[Read on Telegram](https://t.me/livelawindia/113760)
+
+---
+### 2026-07-01T15:12:12+00:00
+Rajasthan High Court Stays RUHS-CUET 2026 Counselling & Allotment Schedule For Nursing, Pharma & Physiotherapy Courses
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-ruhs-cuet2026-nursing-dpharm-bpt-counselling-amid-state-inaction-539577
+
+[Read on Telegram](https://t.me/livelawindia/113761)
+
+---
+### 2026-07-01T15:22:43+00:00
+Woman Can't Invoke S.498A IPC Against Family Of Second Husband If First Marriage Subsists: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/498a-ipc-second-husband-family-not-relatives-first-marriage-exists-539583
+
+[Read on Telegram](https://t.me/livelawindia/113762)
+
+---
+### 2026-07-01T16:04:23+00:00
+Human Dignity Extends To Every Accused, State Must Prevent Egg-Throwing, Mob Violence: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/state-must-protect-accused-from-barbarity-mob-violence-calcutta-high-court-on-egg-hurling-incidents-539586
+
+[Read on Telegram](https://t.me/livelawindia/113763)
+
+---
+### 2026-07-01T16:24:53+00:00
+Exemption To Sikhs From Wearing Helmets Is A Reasonable Classification Under Article 14, Not Based On Religion: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/sikh-helmet-exemption-upheld-reasonable-classification-539588
+
+[Read on Telegram](https://t.me/livelawindia/113764)
+
+---
+### 2026-07-01T17:29:03+00:00
+Delhi High Court Declines Contempt Action Against Husband, Lawyers For Filing Wife's Intimate Photos In Divorce Case; Calls It 'Grave Lapse'
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-declines-contempt-action-against-husband-lawyers-for-filing-wifes-intimate-photos-in-divorce-case-calls-it-grave-lapse-539589
+
+[Read on Telegram](https://t.me/livelawindia/113765)
 
 ---
