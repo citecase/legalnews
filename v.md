@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-02T14:13:18+00:00*
+*Last Updated: 2026-07-02T15:32:50+00:00*
+
+---
+
+### 2026-07-02T15:32:50+00:00
+Assistant Prosecution Officer Vacancy At Rajasthan Public Service Commission
+https://www.verdictum.in/job-updates/rajasthan-public-service-commission-1617005
+
+[Source Link](https://t.me/verdictumlegalupdates/27755)
+
+---
+
+### 2026-07-02T14:52:39+00:00
+Holding Equivalent Civil Post Does Not Confer Right to Substantive Military Rank; Army Promotion Norms Prevail: Delhi High Court
+https://www.verdictum.in/delhi-high-court/union-of-india-v-col-amardeep-singh-2026dhc5204-db-equivalent-civil-post-military-rank-army-brigadier-major-general-1617004
+
+[Source Link](https://t.me/verdictumlegalupdates/27754)
 
 ---
 
@@ -145,22 +161,6 @@ Apex Court Quashes COVID-Era Vendor Relaxations; Orders Swift Rehabilitation & C
 https://www.verdictum.in/supreme-court/covid-vendor-relaxations-rehabilitation-cctv-installation-chandigarh-vending-zones-1616947
 
 [Source Link](https://t.me/verdictumlegalupdates/27736)
-
----
-
-### 2026-07-01T14:02:54+00:00
-Lack Of Communication Or Refusal To Cohabit Does Not Amount To Cruelty Under Section 498A IPC: Jharkhand High Court
-https://www.verdictum.in/jharkhand-high-court/2026-jhhc-18898-matrimonial-discord-lack-of-communication-not-cruelty-1616946
-
-[Source Link](https://t.me/verdictumlegalupdates/27735)
-
----
-
-### 2026-07-01T13:32:53+00:00
-Protection U/S 28(3) Trade Marks Act Available Only Where Concurrent Registrations Exist In Same Class: Kerala High Court Upholds Malabar Gold's TM Rights
-https://www.verdictum.in/kerala-high-court/m-manuel-malabar-fashion-jewellery-v-malabar-gold-private-limited-2026ker46835-trademark-rights-protection-us-283-1616940
-
-[Source Link](https://t.me/verdictumlegalupdates/27734)
 
 ---
 
