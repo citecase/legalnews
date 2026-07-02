@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-02T10:39:49+00:00*
+*Last Updated: 2026-07-02T11:56:40+00:00*
 
 ---
 
-### 2026-07-02T10:39:49+00:00
-One-Time Settlement Does Not Wipe Out Criminal Liability: J&K&L High Court Refuses To Quash ₹289 Crore Bank Loan Fraud Case
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-ots-does-not-wipe-out-criminal-liability-court-refuses-to-quash-289-crore-jk-bank-loan-fraud-case-against-ambience-group-promoter-539670
-
-[Read on Telegram](https://t.me/livelawindia/113809)
-
----
-### 2026-07-02T11:19:10+00:00
-Punjab & Haryana High Court Refuses Relief To YouTuber Rattandeep Singh Dhaliwal Challenging AAP MLAs' Complaints
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/journalist-rattandeep-dhaliwal-no-relief-complaints-by-aap-mla-539679
-
-[Read on Telegram](https://t.me/livelawindia/113810)
-
----
-### 2026-07-02T11:32:20+00:00
-LiveLaw Andhra Pradesh High Court Half Yearly Digest: January - June, 2026
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-half-yearly-digest-539497
-
-[Read on Telegram](https://t.me/livelawindia/113811)
-
----
-### 2026-07-02T11:48:00+00:00
-Madhya Pradesh High Court Allows Woman's Plea For Abortion Despite Estranged Husband Remaining Unrepresented
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/medical-termination-of-pregnancy-father-consent-woman-autonomy-539683
-
-[Read on Telegram](https://t.me/livelawindia/113812)
-
----
-### 2026-07-02T11:55:40+00:00
-Kasol Rave Party: HP High Court Orders Transfer Of Kullu Deputy Commissioner, SP, SDM For Granting Silent Permission; Orders SIT Probe
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/kullu-deputy-commissioner-sp-sdm-transfer-collusion-kasol-rave-parties-539689
-
-[Read on Telegram](https://t.me/livelawindia/113813)
-
----
 ### 2026-07-02T11:56:40+00:00
 Delhi Court Reserves Verdict In Wrestlers' Sexual Harassment Case Against BJP's Brij Bhushan Saran Singh, Order Likely On August 3
 https://www.livelaw.in/news-updates/delhi-court-reserves-verdict-in-wrestlers-sexual-harassment-case-against-bjps-brij-bhushan-saran-singh-order-likely-on-august-3-539690
@@ -142,5 +107,40 @@ Ponmudi's Speech Reveals Deliberate Intention To Wound Hindus' Religious Beliefs
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ponmudi-hate-speech-deliberate-intention-to-wound-hindu-sentiment-539727
 
 [Read on Telegram](https://t.me/livelawindia/113828)
+
+---
+### 2026-07-02T14:13:32+00:00
+Karnataka High Court Grants Bail To Former MUDA Commissioner In PMLA Case, Recognizes 'Changed Circumstances' And Delay In Trial
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-grants-bail-former-muda-commissioner-pmla-case-539733
+
+[Read on Telegram](https://t.me/livelawindia/113829)
+
+---
+### 2026-07-02T14:28:12+00:00
+No Vested Right To Appointment Merely By Topping Merit List; Recruitment Can Be Cancelled For Bona Fide Administrative Reasons: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/no-vested-right-to-appointment-merely-by-topping-merit-list-recruitment-can-be-cancelled-for-bona-fide-administrative-reasons-delhi-high-court-539714
+
+[Read on Telegram](https://t.me/livelawindia/113830)
+
+---
+### 2026-07-02T14:32:52+00:00
+Compensation In Motor Accidental Death Cases: How It Is Calculated
+https://www.livelaw.in/know-the-law/compensation-motor-accidental-death-cases-539633
+
+[Read on Telegram](https://t.me/livelawindia/113831)
+
+---
+### 2026-07-02T15:07:42+00:00
+Calcutta High Court Monthly Digest: June 2026
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-monthly-digest-june-2026-539720
+
+[Read on Telegram](https://t.me/livelawindia/113832)
+
+---
+### 2026-07-02T15:57:55+00:00
+Uttarakhand High Court Grants Couple Protection Despite Objection That Groom Had Not Attained 21 Years Age At Time Of Marriage
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-grants-couple-protection-539715
+
+[Read on Telegram](https://t.me/livelawindia/113833)
 
 ---
