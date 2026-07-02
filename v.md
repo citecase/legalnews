@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-01T16:02:58+00:00*
+*Last Updated: 2026-07-02T04:32:50+00:00*
+
+---
+
+### 2026-07-02T04:32:50+00:00
+Bhang Specifically Excluded From Purview Of NDPS Act: Jharkhand High Court Sets Aside Conviction
+https://www.verdictum.in/jharkhand-high-court/sunil-kumar-singh-v-state-of-jharkhand-2026jhhc19082-bhang-ndps-act-1616949
+
+[Source Link](https://t.me/verdictumlegalupdates/27739)
 
 ---
 
@@ -153,14 +161,6 @@ https://www.verdictum.in/bombay-high-court/institute-for-technology-and-manageme
 https://www.verdictum.in/madras-high-court/state-of-tamil-nadu-v-anandhasekar-rt-mdno4-of-2026-and-crlamd-no616-of-2026-death-sentence-for-pocso-convict-neighbour-1616915
 
 [Source Link](https://t.me/verdictumlegalupdates/27720)
-
----
-
-### 2026-07-01T06:01:45+00:00
-Merely Because State Has Power Over Liquor Business Does Not Make Every Demand Legal: Bombay High Court Sets Aside Excess Fee Demand
-https://www.verdictum.in/bombay-high-court/john-distilleries-private-lilmited-v-the-state-of-maharashtra-writ-petition-no2391-of-2019-liquor-business-excess-fee-demand-legal-1616914
-
-[Source Link](https://t.me/verdictumlegalupdates/27719)
 
 ---
 
