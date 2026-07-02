@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-01T12:51:51+00:00*
+*Last Updated: 2026-07-01T13:37:22+00:00*
 
 ---
 
-### 2026-07-01T12:51:51+00:00
-Representation Of People Act Doesn't Apply To Municipal Elections : Supreme Court
-https://www.livelaw.in/top-stories/representation-of-people-act-doesnt-apply-to-municipal-elections-supreme-court-539537
-
-[Read on Telegram](https://t.me/livelawindia/113746)
-
----
-### 2026-07-01T12:58:51+00:00
-Delhi High Court Upholds Order Directing TV Today To Pay ₹5 Lakh Compensation For Breach Of Child Sexual Abuse Victim's Privacy
-https://www.livelaw.in/high-court/delhi-high-court/tv-today-aaj-tak-pay-5-lakh-compensation-disclosed-minor-rape-victim-identity-details-539539
-
-[Read on Telegram](https://t.me/livelawindia/113747)
-
----
-### 2026-07-01T13:23:12+00:00
-Private Media Houses Perform 'Public Function', Amenable To Writ Jurisdiction: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/media-house-private-writ-jurisdiction-public-function-news-public-rights-and-interests-539541
-
-[Read on Telegram](https://t.me/livelawindia/113748)
-
----
 ### 2026-07-01T13:37:22+00:00
 High Court Rejects Former Punjab Congress Minister's Plea For Fresh Probe In ₹50 Lakh Bribery Case, Calls It An Afterthought
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/former-punjab-minister-bribery-case-fresh-probe-plea-afterthought-539545
@@ -142,5 +121,26 @@ Delhi High Court Declines Contempt Action Against Husband, Lawyers For Filing Wi
 https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-declines-contempt-action-against-husband-lawyers-for-filing-wifes-intimate-photos-in-divorce-case-calls-it-grave-lapse-539589
 
 [Read on Telegram](https://t.me/livelawindia/113765)
+
+---
+### 2026-07-02T02:52:35+00:00
+Assistant Manager (Corporate Legal) Vacancy At Tata Communications Limited
+https://www.livelaw.in/job-updates/assistant-manager-corporate-legal-vacancy-at-tata-communications-limited-539592
+
+[Read on Telegram](https://t.me/livelawindia/113766)
+
+---
+### 2026-07-02T02:55:15+00:00
+Support Person Vacancy At District Child Protection Unit, District  Darbhanga
+https://www.livelaw.in/job-updates/support-person-vacancy-at-district-child-protection-unit-district-darbhanga-539593
+
+[Read on Telegram](https://t.me/livelawindia/113767)
+
+---
+### 2026-07-02T03:00:55+00:00
+Assistant Prosecution Officer Vacancy At Home Department (Prosecution), Rajasthan
+https://www.livelaw.in/job-updates/assistant-prosecution-officer-vacancy-at-home-department-prosecution-rajasthan-539594
+
+[Read on Telegram](https://t.me/livelawindia/113768)
 
 ---
