@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-02T04:32:50+00:00*
+*Last Updated: 2026-07-02T09:33:09+00:00*
+
+---
+
+### 2026-07-02T09:33:09+00:00
+Litigant Who Has Remained Silent For Decades Can't File Suit As Afterthought: Supreme Court On Specific Performance Suit Filed With 38 Years Delay
+https://www.verdictum.in/supreme-court/shobha-vasant-bhoir-ors-v-soni-vandana-gurumukhdas-jagiasi-2026-insc-664-limitation-1616994
+
+[Source Link](https://t.me/verdictumlegalupdates/27746)
+
+---
+
+### 2026-07-02T08:52:48+00:00
+Supreme Court Dismisses Plea Against Manipur High Court Order Extending Panchayat Polls Deadline
+https://www.verdictum.in/supreme-court/manipur-high-court-order-extending-panchayat-polls-deadline-1616991
+
+[Source Link](https://t.me/verdictumlegalupdates/27745)
+
+---
+
+### 2026-07-02T08:12:26+00:00
+Non-Filing Of Additional Copies Of Charge-Sheet Is No Ground For Default Bail If Final Report Is Filed Within Timeline: Supreme Court
+https://www.verdictum.in/supreme-court/2026-insc-666-shaurya-sunil-kumar-singh-v-cbi-1616990
+
+[Source Link](https://t.me/verdictumlegalupdates/27744)
+
+---
+
+### 2026-07-02T07:33:05+00:00
+Last ITR Sufficient For Salaried; Average of Up To 3 ITRs For Self-Employed: Supreme Court Settles Deceased's Income Computation Formula For Motor Accident Compensation
+https://www.verdictum.in/supreme-court/rashmirekha-tripathy-v-the-branch-manager-legal-claims-sriram-general-insurance-company-ltd-2026-insc-661-income-computation-formula-motor-accident-compensation-1616982
+
+[Source Link](https://t.me/verdictumlegalupdates/27743)
+
+---
+
+### 2026-07-02T06:52:44+00:00
+You May Be Critical, But Criticism Can't Be At That Level: Delhi High Court Refers Anjana Om Kashyap & Khan Sir To Mediation
+https://www.verdictum.in/delhi-high-court/directs-anjana-om-kashyap-khan-sir-senior-mediator-in-defamation-case-1616978
+
+[Source Link](https://t.me/verdictumlegalupdates/27742)
+
+---
+
+### 2026-07-02T06:02:23+00:00
+Magistrate Need Not Record Evidence U/S 244 CrPC Before Committing Case Exclusively Triable by Sessions Court: Supreme Court
+https://www.verdictum.in/supreme-court/neeraj-gupta-v-pardeep-kumar-bansal-2026-insc-660-evidence-us-244-crpc-before-committing-1616976
+
+[Source Link](https://t.me/verdictumlegalupdates/27741)
+
+---
+
+### 2026-07-02T05:13:02+00:00
+Right Of Woman Employee Can’t Be Curtailed On Basis Of Gender: Tripura High Court Orders Female Petitioner To Be Considered For Promotion
+https://www.verdictum.in/tripura-high-court/smti-bela-datta-v-the-state-of-tripura-2026thc794-woman-jailor-promotion-1616962
+
+[Source Link](https://t.me/verdictumlegalupdates/27740)
 
 ---
 
@@ -105,62 +161,6 @@ Public Figures Must Not Be Thin-Skinned To Satire: Delhi HC Refuses To Blanket-B
 https://www.verdictum.in/delhi-high-court/2026dhc5252-raghav-chadha-v-ashok-kumar-john-doe-1616930
 
 [Source Link](https://t.me/verdictumlegalupdates/27727)
-
----
-
-### 2026-07-01T09:32:14+00:00
-Arbitral Tribunals Competent To Decide Inter Se Claims Between Co-Respondents Under Tripartite Agreements: Kerala High Court
-https://www.verdictum.in/kerala-high-court/ms-karthik-exports-v-krishna-kumar-agarwal-2026ker46677-arbitral-tribunals-inter-se-claims-1616927
-
-[Source Link](https://t.me/verdictumlegalupdates/27726)
-
----
-
-### 2026-07-01T09:02:52+00:00
-Claim Of Being Deaf & Dumb Cannot Shield Accused Who Understands Consequences Of Act: Madhya Pradesh HC Remands POCSO Case For Fresh Examination U/S 313 CrPC
-https://www.verdictum.in/madhya-pradesh-high-court/in-reference-of-state-of-madhya-pradesh-v-kalyan-raikwar-criminal-reference-no-01-of-2024-deaf-dumb-fresh-examination-us-313-crpc-1616925
-
-[Source Link](https://t.me/verdictumlegalupdates/27725)
-
----
-
-### 2026-07-01T08:33:11+00:00
-Zero Marks In Transcription, Yet Selected: Madras High Court Quashes Appointment Of 17 Personal Assistants To Judges
-https://www.verdictum.in/madras-high-court/suo-motu-writ-petition-the-registrar-general-high-court-madras-2026mhc2406-1616924
-
-[Source Link](https://t.me/verdictumlegalupdates/27724)
-
----
-
-### 2026-07-01T08:02:29+00:00
-Dignity Of A Woman Cannot Be Left At Mercy Of Fake Profiles; Law Must Move At Same Speed As Unlawful Content: Madras High Court
-https://www.verdictum.in/madras-high-court/r-ramesh-kumar-v-the-superintendent-of-police-wpcrl-md-no-2027-of-2026-preserve-ip-logs-and-block-offending-urls-1616923
-
-[Source Link](https://t.me/verdictumlegalupdates/27723)
-
----
-
-### 2026-07-01T07:32:48+00:00
-PAN Card & Voter ID Not Proof Of Citizenship; NRC Legacy Data Without Certificate U/S 65B Evidence Act Has No Evidentiary Value: Gauhati High Court
-https://www.verdictum.in/guwahati-high-court/aminul-hoque-v-union-of-india-2026gau-as9434-nrc-legacy-data-pan-card-voter-id-1616922
-
-[Source Link](https://t.me/verdictumlegalupdates/27722)
-
----
-
-### 2026-07-01T07:02:47+00:00
-Registrar Of Trade Marks Can Be Treated As Subordinate To High Court For Transfer Of Rectification Proceedings U/S 24 CPC: Bombay High Court
-https://www.verdictum.in/bombay-high-court/institute-for-technology-and-management-trust-v-putch-venkata-ramana-interim-application-no-3128-of-2025-court-subordinate-to-high-court-us-24-cpc-1616920
-
-[Source Link](https://t.me/verdictumlegalupdates/27721)
-
----
-
-### 2026-07-01T06:32:26+00:00
-“Not Fit To Live In The Society”: Madras High Court Confirms Death Sentence Of POCSO Convict For Committing Aggravated Penetrative Sexual Assault On 3 Minor Kids
-https://www.verdictum.in/madras-high-court/state-of-tamil-nadu-v-anandhasekar-rt-mdno4-of-2026-and-crlamd-no616-of-2026-death-sentence-for-pocso-convict-neighbour-1616915
-
-[Source Link](https://t.me/verdictumlegalupdates/27720)
 
 ---
 
