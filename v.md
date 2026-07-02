@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-02T09:33:09+00:00*
+*Last Updated: 2026-07-02T14:13:18+00:00*
+
+---
+
+### 2026-07-02T14:13:18+00:00
+E-Court Case Status Or Adjournment Order Doesn’t Possess Traits Of Judgment; Writ Appeal Against It Not Maintainable: Madras High Court
+https://www.verdictum.in/madras-high-court/rnaresh-v-the-principal-secretary-to-government-2026mhc2328-e-court-case-status-writ-appeal-1617003
+
+[Source Link](https://t.me/verdictumlegalupdates/27753)
+
+---
+
+### 2026-07-02T13:32:56+00:00
+Bench Strength Determines Binding Precedent Over Numerical Majority: Supreme Court Explains Doctrine Of Per Incuriam
+https://www.verdictum.in/supreme-court/2026-insc-667-parveen-kumar-v-state-of-haryana-1617002
+
+[Source Link](https://t.me/verdictumlegalupdates/27752)
+
+---
+
+### 2026-07-02T12:52:55+00:00
+CAT Ordered Salary For A Post That Employee Never Held Or Worked In: Delhi High Court Holds "Equal Pay" Flawed Absent Functional Parity
+https://www.verdictum.in/delhi-high-court/national-institute-of-public-co-operation-child-development-v-tejinder-kaur-dhc5210-db-equal-pay-inapplicable-absent-functional-parity-1617001
+
+[Source Link](https://t.me/verdictumlegalupdates/27751)
+
+---
+
+### 2026-07-02T12:13:14+00:00
+Statutory Policy Cannot Supersede Constitutional Power: Supreme Court Holds 2008 Haryana Guidelines Untenable Against 2002 Remission Policy
+https://www.verdictum.in/supreme-court/2026-insc-667-parveen-kumar-v-state-of-haryana-1616999
+
+[Source Link](https://t.me/verdictumlegalupdates/27750)
+
+---
+
+### 2026-07-02T11:33:13+00:00
+Zero-Tolerance For Using AI-Generated Precedents Without Verification: Supreme Court Sets Aside NCLT, NCLAT Orders Citing Fake Judgments
+https://www.verdictum.in/supreme-court/pooja-ramesh-singh-v-jammu-and-kashmir-bank-ltd-2026-insc-668-ai-generated-precedents-1616998
+
+[Source Link](https://t.me/verdictumlegalupdates/27749)
+
+---
+
+### 2026-07-02T10:52:51+00:00
+National Stock Exchange Is A Public Authority Under RTI Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/national-stock-exchange-of-india-ltd-v-central-information-commission-2026dhc5170-db-us-43-scra-constitutes-nse-an-authority-of-self-government-1616997
+
+[Source Link](https://t.me/verdictumlegalupdates/27748)
+
+---
+
+### 2026-07-02T10:12:50+00:00
+Gujarat Municipalities Act| Election Affidavits Must Disclose Spouse's Self-Owned Properties: Supreme Court
+https://www.verdictum.in/supreme-court/chandrikaben-kishor-dafda-v-state-of-gujarat-2026-insc-665-election-affidavits-candidate-spouse-dependents-1616995
+
+[Source Link](https://t.me/verdictumlegalupdates/27747)
 
 ---
 
@@ -105,62 +161,6 @@ Protection U/S 28(3) Trade Marks Act Available Only Where Concurrent Registratio
 https://www.verdictum.in/kerala-high-court/m-manuel-malabar-fashion-jewellery-v-malabar-gold-private-limited-2026ker46835-trademark-rights-protection-us-283-1616940
 
 [Source Link](https://t.me/verdictumlegalupdates/27734)
-
----
-
-### 2026-07-01T13:02:12+00:00
-Is It Confidential In Character Or Nor?: Gauhati High Court Refers "Reason To Believe" Disclosure Under PMLA To Larger Bench
-https://www.verdictum.in/guwahati-high-court/mrig-mrinal-dhawan-v-union-of-india-2026gau-as9425-attached-under-pmla-if-equivalent-to-proceeds-of-crime-larger-bench-1616936
-
-[Source Link](https://t.me/verdictumlegalupdates/27733)
-
----
-
-### 2026-07-01T12:33:11+00:00
-Funding Is The Oxygen For Extremism: Karnataka High Court Refuses To Quash UAPA Case Over Alleged Siphoning US Funds In Left-Wing Extremism Funding Case
-https://www.verdictum.in/karnataka-high-court/refuses-quash-uapa-case-over-alleged-siphoning-us-funds-camouflaged-debit-cards-1616939
-
-[Source Link](https://t.me/verdictumlegalupdates/27732)
-
----
-
-### 2026-07-01T12:02:30+00:00
-‘Voluntary’ Aspect Mandated By Order XXIII Rule 3 CPC Not Established: Supreme Court Upholds Setting Aside Of Compromise Decree After 25 Years
-https://www.verdictum.in/supreme-court/krishna-kumar-ojha-jitendra-chaudhary-ors-2026-insc-662-order-xxiii-rule-3-cpc-compromise-1616938
-
-[Source Link](https://t.me/verdictumlegalupdates/27731)
-
----
-
-### 2026-07-01T11:32:28+00:00
-Family Settlement Over 33 Years Cannot Be Terminated Like Commercial License: Bombay High Court Grants Interim Protection To Vadilal Brand Rights Pending Arbitration
-https://www.verdictum.in/bombay-high-court/shailesh-r-gandhi-v-late-ramchandra-r-gandhi-comm-arbitration-petition-l-no18386-of-2026-vadilal-brand-rights-1616934
-
-[Source Link](https://t.me/verdictumlegalupdates/27730)
-
----
-
-### 2026-07-01T11:02:27+00:00
-No Obscene Depiction Of Women; Attire Of Dancers Should Be Modest: Madras High Court While Permiting Temple Program
-https://www.verdictum.in/madras-high-court/pichai-raja-v-the-district-superintendent-of-police-temple-program-1616933
-
-[Source Link](https://t.me/verdictumlegalupdates/27729)
-
----
-
-### 2026-07-01T10:32:36+00:00
-Concealing Existing Marriage Indicates Intention To Deceive From Inception & Take Undue Advantage Of Sexual Lust: Jharkhand High Court Upholds Rape Conviction
-https://www.verdictum.in/jharkhand-high-court/ramesh-sahu-v-the-state-of-jharkhand-2026jhhc18889-rape-conviction-for-false-promise-of-marriage-1616931
-
-[Source Link](https://t.me/verdictumlegalupdates/27728)
-
----
-
-### 2026-07-01T10:02:35+00:00
-Public Figures Must Not Be Thin-Skinned To Satire: Delhi HC Refuses To Blanket-Ban Deepfakes Against Raghav Chadha; Orders Takedown Of 'Vulgar' AI Content
-https://www.verdictum.in/delhi-high-court/2026dhc5252-raghav-chadha-v-ashok-kumar-john-doe-1616930
-
-[Source Link](https://t.me/verdictumlegalupdates/27727)
 
 ---
 
