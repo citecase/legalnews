@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-03T09:03:08+00:00*
+*Last Updated: 2026-07-03T14:32:28+00:00*
+
+---
+
+### 2026-07-03T14:32:28+00:00
+Two Crucial Dates For Promotion Discriminatory: Delhi High Court Upholds Quashing Of DANIPS, DANICS Amendment Rules 2022
+https://www.verdictum.in/delhi-high-court/union-of-india-v-sanjeev-kumar-yadav-2026dhc5215-db-quashing-of-danips-danics-amendment-rules-2022-1617067
+
+[Source Link](https://t.me/verdictumlegalupdates/27771)
+
+---
+
+### 2026-07-03T13:52:57+00:00
+Ex-Employee Claiming Gratuity Does Not Qualify As "Consumer": Kerala High Court Quashes Consumer Commission Order Citing Lack Of Jurisdiction
+https://www.verdictum.in/kerala-high-court/2026-ker-47052-tirur-services-co-operative-bank-v-moideen-m-1617066
+
+[Source Link](https://t.me/verdictumlegalupdates/27770)
+
+---
+
+### 2026-07-03T13:12:36+00:00
+Mere Telephonic Communication Cannot Attract Offence U/S 498A IPC: Karnataka High Court Quashes Proceedings Against Sister-In-Law
+https://www.verdictum.in/karnataka-high-court/x-v-state-of-karnataka-2026khc31937-mere-telephonic-calls-by-an-in-law-to-daughter-in-law-us-498a-ipc-1617065
+
+[Source Link](https://t.me/verdictumlegalupdates/27769)
+
+---
+
+### 2026-07-03T12:32:35+00:00
+Testimony Of Injured Informant Can't Be Discarded Due To Prior Enmity: Patna High Court Upholds Conviction Of Retired Judicial Officer & Lawyer For Simple Hurt
+https://www.verdictum.in/patna-high-court/conviction-retired-judicial-officer-lawyer-simple-hurt-1617064
+
+[Source Link](https://t.me/verdictumlegalupdates/27768)
+
+---
+
+### 2026-07-03T11:52:53+00:00
+Can’t Hold Him Guilty Merely Because He Was Father-In-Law Of Deceased Woman: Allahabad High Court Sets Aside Conviction U/S 498A IPC
+https://www.verdictum.in/allahabad-high-court/deshraj-v-state-of-up-2026ahc130327-db-accused-section-498a-ipc-father-in-law-deceased-woman-1617062
+
+[Source Link](https://t.me/verdictumlegalupdates/27767)
+
+---
+
+### 2026-07-03T11:12:32+00:00
+Supreme Court Halts Delhi Government's CAG Audit Of Private Discoms
+https://www.verdictum.in/supreme-court/delhi-governments-cag-audit-private-discoms-halt-1617060
+
+[Source Link](https://t.me/verdictumlegalupdates/27766)
+
+---
+
+### 2026-07-03T10:32:31+00:00
+Madras High Court Orders US National Laura Frances To Be Treated As Hindu For Temple Entry
+https://www.verdictum.in/madras-high-court/2026-mhc-2316-laura-frances-iyengar-v-tn-hr-and-ce-department-1617059
+
+[Source Link](https://t.me/verdictumlegalupdates/27765)
+
+---
+
+### 2026-07-03T09:52:29+00:00
+Chatting With Husband Not Cruelty: Bombay High Court Quashes Wife’s S. 498A IPC Case Against Sister-In-Law
+https://www.verdictum.in/bombay-high-court/a-v-the-state-of-maharashtra-sister-in-law-name-nephew-cruelty-section-498-a-ipc-1617058
+
+[Source Link](https://t.me/verdictumlegalupdates/27764)
 
 ---
 
@@ -97,70 +161,6 @@ Bench Strength Determines Binding Precedent Over Numerical Majority: Supreme Cou
 https://www.verdictum.in/supreme-court/2026-insc-667-parveen-kumar-v-state-of-haryana-1617002
 
 [Source Link](https://t.me/verdictumlegalupdates/27752)
-
----
-
-### 2026-07-02T12:52:55+00:00
-CAT Ordered Salary For A Post That Employee Never Held Or Worked In: Delhi High Court Holds "Equal Pay" Flawed Absent Functional Parity
-https://www.verdictum.in/delhi-high-court/national-institute-of-public-co-operation-child-development-v-tejinder-kaur-dhc5210-db-equal-pay-inapplicable-absent-functional-parity-1617001
-
-[Source Link](https://t.me/verdictumlegalupdates/27751)
-
----
-
-### 2026-07-02T12:13:14+00:00
-Statutory Policy Cannot Supersede Constitutional Power: Supreme Court Holds 2008 Haryana Guidelines Untenable Against 2002 Remission Policy
-https://www.verdictum.in/supreme-court/2026-insc-667-parveen-kumar-v-state-of-haryana-1616999
-
-[Source Link](https://t.me/verdictumlegalupdates/27750)
-
----
-
-### 2026-07-02T11:33:13+00:00
-Zero-Tolerance For Using AI-Generated Precedents Without Verification: Supreme Court Sets Aside NCLT, NCLAT Orders Citing Fake Judgments
-https://www.verdictum.in/supreme-court/pooja-ramesh-singh-v-jammu-and-kashmir-bank-ltd-2026-insc-668-ai-generated-precedents-1616998
-
-[Source Link](https://t.me/verdictumlegalupdates/27749)
-
----
-
-### 2026-07-02T10:52:51+00:00
-National Stock Exchange Is A Public Authority Under RTI Act: Delhi High Court
-https://www.verdictum.in/delhi-high-court/national-stock-exchange-of-india-ltd-v-central-information-commission-2026dhc5170-db-us-43-scra-constitutes-nse-an-authority-of-self-government-1616997
-
-[Source Link](https://t.me/verdictumlegalupdates/27748)
-
----
-
-### 2026-07-02T10:12:50+00:00
-Gujarat Municipalities Act| Election Affidavits Must Disclose Spouse's Self-Owned Properties: Supreme Court
-https://www.verdictum.in/supreme-court/chandrikaben-kishor-dafda-v-state-of-gujarat-2026-insc-665-election-affidavits-candidate-spouse-dependents-1616995
-
-[Source Link](https://t.me/verdictumlegalupdates/27747)
-
----
-
-### 2026-07-02T09:33:09+00:00
-Litigant Who Has Remained Silent For Decades Can't File Suit As Afterthought: Supreme Court On Specific Performance Suit Filed With 38 Years Delay
-https://www.verdictum.in/supreme-court/shobha-vasant-bhoir-ors-v-soni-vandana-gurumukhdas-jagiasi-2026-insc-664-limitation-1616994
-
-[Source Link](https://t.me/verdictumlegalupdates/27746)
-
----
-
-### 2026-07-02T08:52:48+00:00
-Supreme Court Dismisses Plea Against Manipur High Court Order Extending Panchayat Polls Deadline
-https://www.verdictum.in/supreme-court/manipur-high-court-order-extending-panchayat-polls-deadline-1616991
-
-[Source Link](https://t.me/verdictumlegalupdates/27745)
-
----
-
-### 2026-07-02T08:12:26+00:00
-Non-Filing Of Additional Copies Of Charge-Sheet Is No Ground For Default Bail If Final Report Is Filed Within Timeline: Supreme Court
-https://www.verdictum.in/supreme-court/2026-insc-666-shaurya-sunil-kumar-singh-v-cbi-1616990
-
-[Source Link](https://t.me/verdictumlegalupdates/27744)
 
 ---
 
