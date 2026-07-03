@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-03T14:32:28+00:00*
+*Last Updated: 2026-07-03T15:53:11+00:00*
+
+---
+
+### 2026-07-03T15:53:11+00:00
+Para Legal Personnel (Women) Vacancy At DWCWEO West Godavari
+https://www.verdictum.in/job-updates/district-women-child-welfare-empowerment-office-1617071
+
+[Source Link](https://t.me/verdictumlegalupdates/27773)
+
+---
+
+### 2026-07-03T15:12:49+00:00
+Not Willful: Delhi High Court Absolves Lawyers, Husband Of Contempt For Filing Intimate Photos In Divorce Petition
+https://www.verdictum.in/delhi-high-court/a-v-b-2026dhc5224-disobedience-general-directions-sensitive-information-matrimonial-cases-1617070
+
+[Source Link](https://t.me/verdictumlegalupdates/27772)
 
 ---
 
@@ -145,22 +161,6 @@ Holding Equivalent Civil Post Does Not Confer Right to Substantive Military Rank
 https://www.verdictum.in/delhi-high-court/union-of-india-v-col-amardeep-singh-2026dhc5204-db-equivalent-civil-post-military-rank-army-brigadier-major-general-1617004
 
 [Source Link](https://t.me/verdictumlegalupdates/27754)
-
----
-
-### 2026-07-02T14:13:18+00:00
-E-Court Case Status Or Adjournment Order Doesn’t Possess Traits Of Judgment; Writ Appeal Against It Not Maintainable: Madras High Court
-https://www.verdictum.in/madras-high-court/rnaresh-v-the-principal-secretary-to-government-2026mhc2328-e-court-case-status-writ-appeal-1617003
-
-[Source Link](https://t.me/verdictumlegalupdates/27753)
-
----
-
-### 2026-07-02T13:32:56+00:00
-Bench Strength Determines Binding Precedent Over Numerical Majority: Supreme Court Explains Doctrine Of Per Incuriam
-https://www.verdictum.in/supreme-court/2026-insc-667-parveen-kumar-v-state-of-haryana-1617002
-
-[Source Link](https://t.me/verdictumlegalupdates/27752)
 
 ---
 
