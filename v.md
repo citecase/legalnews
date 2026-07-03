@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-02T15:32:50+00:00*
+*Last Updated: 2026-07-03T09:03:08+00:00*
+
+---
+
+### 2026-07-03T09:03:08+00:00
+Pending Trial Doesn't Divest Undertrial Of His Ownership Over Properties: Karnataka High Court Directs Authorities To Facilitate Sub-Registrar's Visit To Prison
+https://www.verdictum.in/karnataka-high-court/2026-khc-d-8208-shri-basavaraj-shankrappa-avvannavar-v-the-superintendent-1617056
+
+[Source Link](https://t.me/verdictumlegalupdates/27763)
+
+---
+
+### 2026-07-03T08:12:27+00:00
+Strict Liability Lies On Person Dealing With Dangerous Commodity: Madhya Pradesh Upholds Order Directing Electricity Board To Pay Compensation For Electrocution Death
+https://www.verdictum.in/madhya-pradesh-high-court/mp-electricity-board-v-anju-kori-and-others-2026mphc-jbp44575-strict-liability-electrocution-death-1617050
+
+[Source Link](https://t.me/verdictumlegalupdates/27762)
+
+---
+
+### 2026-07-03T07:33:06+00:00
+Centre Notifies Appointment Of Three Judicial Officers As Judges Of Andhra Pradesh High Court
+https://www.verdictum.in/court-updates/high-courts/three-judicial-officers-as-judges-of-andhra-pradesh-high-court-1617046
+
+[Source Link](https://t.me/verdictumlegalupdates/27761)
+
+---
+
+### 2026-07-03T07:02:44+00:00
+Unnatural Death In Custody Even If By Suicide, Not A Private Act: Delhi High Court Awards ₹18.44 Lakh Compensation To Father For Death Of 19-Year-Old Son
+https://www.verdictum.in/delhi-high-court/shyam-sundar-v-state-nct-of-delhi-2026dhc5226-unnatural-death-in-custody-suicide-awards-1844-lakh-1617042
+
+[Source Link](https://t.me/verdictumlegalupdates/27760)
+
+---
+
+### 2026-07-03T06:25:04+00:00
+Breaking: Supreme Court Refuses To Stay Order Granting Bail To Sonam Raghuvanshi In Honeymoon Murder Case
+https://www.verdictum.in/supreme-court/refuses-cancel-bail-granted-sonam-raghuvanshi-1617039
+
+[Source Link](https://t.me/verdictumlegalupdates/27759)
+
+---
+
+### 2026-07-03T05:53:02+00:00
+Public Authority Cannot Settle Service Tenure By Hindsight: Delhi High Court Directs Delhi University To Treat Professor As Retired With Consequential Benefits
+https://www.verdictum.in/delhi-high-court/dr-asha-gupta-v-university-of-delhi-2026dhc5262-professor-retired-with-consequential-benefits-hindsight-1617036
+
+[Source Link](https://t.me/verdictumlegalupdates/27758)
+
+---
+
+### 2026-07-03T05:13:21+00:00
+Elderly Litigants Cannot Be Blamed For Failing To Track Case Stages On Court Websites: Tripura High Court
+https://www.verdictum.in/tripura-high-court/2026-thc-801-sukesh-chandra-saha-v-parimal-saha-1617032
+
+[Source Link](https://t.me/verdictumlegalupdates/27757)
+
+---
+
+### 2026-07-03T04:33:10+00:00
+Reinstatement With Continuity Of Service Entitles Notional Pay Fixation But Excludes Arrears For Ousted Period: Delhi High Court
+https://www.verdictum.in/delhi-high-court/gaurav-kumar-v-high-court-of-delhi-through-its-registrar-general-2026dhc5169-db-reinstatement-with-continuity-of-service-drivers-plea-1617006
+
+[Source Link](https://t.me/verdictumlegalupdates/27756)
 
 ---
 
@@ -97,70 +161,6 @@ Non-Filing Of Additional Copies Of Charge-Sheet Is No Ground For Default Bail If
 https://www.verdictum.in/supreme-court/2026-insc-666-shaurya-sunil-kumar-singh-v-cbi-1616990
 
 [Source Link](https://t.me/verdictumlegalupdates/27744)
-
----
-
-### 2026-07-02T07:33:05+00:00
-Last ITR Sufficient For Salaried; Average of Up To 3 ITRs For Self-Employed: Supreme Court Settles Deceased's Income Computation Formula For Motor Accident Compensation
-https://www.verdictum.in/supreme-court/rashmirekha-tripathy-v-the-branch-manager-legal-claims-sriram-general-insurance-company-ltd-2026-insc-661-income-computation-formula-motor-accident-compensation-1616982
-
-[Source Link](https://t.me/verdictumlegalupdates/27743)
-
----
-
-### 2026-07-02T06:52:44+00:00
-You May Be Critical, But Criticism Can't Be At That Level: Delhi High Court Refers Anjana Om Kashyap & Khan Sir To Mediation
-https://www.verdictum.in/delhi-high-court/directs-anjana-om-kashyap-khan-sir-senior-mediator-in-defamation-case-1616978
-
-[Source Link](https://t.me/verdictumlegalupdates/27742)
-
----
-
-### 2026-07-02T06:02:23+00:00
-Magistrate Need Not Record Evidence U/S 244 CrPC Before Committing Case Exclusively Triable by Sessions Court: Supreme Court
-https://www.verdictum.in/supreme-court/neeraj-gupta-v-pardeep-kumar-bansal-2026-insc-660-evidence-us-244-crpc-before-committing-1616976
-
-[Source Link](https://t.me/verdictumlegalupdates/27741)
-
----
-
-### 2026-07-02T05:13:02+00:00
-Right Of Woman Employee Can’t Be Curtailed On Basis Of Gender: Tripura High Court Orders Female Petitioner To Be Considered For Promotion
-https://www.verdictum.in/tripura-high-court/smti-bela-datta-v-the-state-of-tripura-2026thc794-woman-jailor-promotion-1616962
-
-[Source Link](https://t.me/verdictumlegalupdates/27740)
-
----
-
-### 2026-07-02T04:32:50+00:00
-Bhang Specifically Excluded From Purview Of NDPS Act: Jharkhand High Court Sets Aside Conviction
-https://www.verdictum.in/jharkhand-high-court/sunil-kumar-singh-v-state-of-jharkhand-2026jhhc19082-bhang-ndps-act-1616949
-
-[Source Link](https://t.me/verdictumlegalupdates/27739)
-
----
-
-### 2026-07-01T16:02:58+00:00
-Legal Officer Vacancy At Union Public Service Commission (DGCA, Ministry of Civil Aviation)
-https://www.verdictum.in/job-updates/union-public-service-commission-1616941
-
-[Source Link](https://t.me/verdictumlegalupdates/27738)
-
----
-
-### 2026-07-01T15:13:17+00:00
-Stop Salaries Of Police Personnel If Witnesses Fail To Appear In Court: Chhattisgarh High Court Directs DGP Over NDPS Trial Delay
-https://www.verdictum.in/chhattisgarh-high-court/2026-cghc-26299-nehal-singh-v-state-of-chhattisgarh-1616948
-
-[Source Link](https://t.me/verdictumlegalupdates/27737)
-
----
-
-### 2026-07-01T14:33:16+00:00
-Apex Court Quashes COVID-Era Vendor Relaxations; Orders Swift Rehabilitation & CCTV Installation In Chandigarh Vending Zones
-https://www.verdictum.in/supreme-court/covid-vendor-relaxations-rehabilitation-cctv-installation-chandigarh-vending-zones-1616947
-
-[Source Link](https://t.me/verdictumlegalupdates/27736)
 
 ---
 
