@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-03T09:41:38+00:00*
+*Last Updated: 2026-07-03T10:43:09+00:00*
 
 ---
 
-### 2026-07-03T09:41:38+00:00
-23 Opposition Parties Write To CJI Alleging Electoral Malpractices Under BJP Rule; Say ED, CBI Used To Topple Elected Govts
-https://www.livelaw.in/top-stories/opposition-parties-write-to-chief-justice-of-india-assailing-electoral-irregularities-under-bjp-flag-bihar-west-bengal-sir-targeting-of-opposition-by-ed-cbi-nia-539816
-
-[Read on Telegram](https://t.me/livelawindia/113878)
-
----
-### 2026-07-03T09:58:19+00:00
-'Prima Facie Key Conspirator Of Money Laundering': Gujarat High Court Denies Bail To IAS Officer In Alleged Land Conversion Bribery Case
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-ias-officer-land-conversion-bribes-539822
-
-[Read on Telegram](https://t.me/livelawindia/113879)
-
----
-### 2026-07-03T10:17:19+00:00
-Objections By Apartment Association Can't Override Consent Of Individual Flat Owners For Additional Development: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-objections-apartment-owner-association-consent-individual-flat-owners-539825
-
-[Read on Telegram](https://t.me/livelawindia/113880)
-
----
-### 2026-07-03T10:17:39+00:00
-Disciplinary Authority Must Exercise Independent Judgment, Not Act Under Dictates Of Other Authorities: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-disciplinary-authority-independent-judgment-539805
-
-[Read on Telegram](https://t.me/livelawindia/113881)
-
----
-### 2026-07-03T10:17:59+00:00
-Compassionate Appointment Can't Be Rejected For Financial Reasons If Not Stated In The Original Order:Calcutta HC
-https://www.livelaw.in/high-court/calcutta-high-court/compassionate-appointment-cant-be-rejected-for-financial-reasons-if-not-stated-in-the-original-ordercalcutta-hc-539779
-
-[Read on Telegram](https://t.me/livelawindia/113882)
-
----
 ### 2026-07-03T10:43:09+00:00
 Supreme Court Orders Status Quo On Audit Of Delhi's Electricity Distribution Companies
 https://www.livelaw.in/top-stories/supreme-court-aptel-order-status-quo-cag-audit-of-delhi-electricity-distribution-companies-appointment-of-ca-stayed-539831
@@ -142,5 +107,40 @@ Karnataka High Court Refuses To Stay State Gig Workers Act, Asks Platforms To De
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-interim-order-challenge-platform-gig-workers-act-539865
 
 [Read on Telegram](https://t.me/livelawindia/113897)
+
+---
+### 2026-07-03T14:32:53+00:00
+Stock Witnesses – Imperative Need For Procedural Reform
+https://www.livelaw.in/articles/stock-witnesses-imperative-need-procedural-reform-539695
+
+[Read on Telegram](https://t.me/livelawindia/113898)
+
+---
+### 2026-07-03T14:47:33+00:00
+Adult's Reputation Can't Override Child's Right To Know Parentage: Delhi High Court Upholds DNA Test
+https://www.livelaw.in/high-court/delhi-high-court/adults-reputation-cant-override-childs-right-to-know-parentage-delhi-high-court-upholds-dna-test-539872
+
+[Read on Telegram](https://t.me/livelawindia/113899)
+
+---
+### 2026-07-03T15:07:34+00:00
+No Matter What SC Says, Police Act On Their Own Whims: Allahabad High Court Orally Slams Cop For Ignoring 'Satender Antil' Verdict
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-up-police-act-whims-supreme-court-orally-ignore-satender-antil-539875
+
+[Read on Telegram](https://t.me/livelawindia/113900)
+
+---
+### 2026-07-03T15:38:04+00:00
+Ram Mandir Donation Theft : RJD MP Moves Supreme Court Seeking Audit Of Ayodhya Trust Finances, CBI Probe
+https://www.livelaw.in/top-stories/ram-mandir-donation-theft-rjd-mp-moves-supreme-court-seeking-audit-of-ayodhya-trust-finances-cbi-probe-539882
+
+[Read on Telegram](https://t.me/livelawindia/113901)
+
+---
+### 2026-07-03T18:03:55+00:00
+CISF Personnel Held To High Standards Of Conduct; Public Drinking, Violent Altercation Warrant Dismissal: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/cisf-personnel-held-to-high-standards-of-conduct-public-drinking-violent-altercation-warrant-dismissal-delhi-high-court-539885
+
+[Read on Telegram](https://t.me/livelawindia/113902)
 
 ---
