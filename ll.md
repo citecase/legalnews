@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-02T12:12:01+00:00*
+*Last Updated: 2026-07-03T05:58:05+00:00*
 
 ---
 
-### 2026-07-02T12:12:01+00:00
-Can't Say If Savarkar Was Released By British On Condition Not To Participate In Political Movements : Grandnephew To Court
-https://www.livelaw.in/news-updates/cant-say-if-savarkar-was-released-by-british-on-condition-not-to-participate-in-political-movements-grandnephew-to-court-539701
+### 2026-07-03T05:58:05+00:00
+"Have To Respect The Chief Minister": Madras High Court Denies Anticipatory Bail To  Anitha Radhakrishnan Over Remarks On CM Joseph Vijay
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-anitha-radhakrishnan-cm-joseph-vijay-anticipatory-bail-dismissed-539768
 
-[Read on Telegram](https://t.me/livelawindia/113819)
-
----
-### 2026-07-02T12:20:11+00:00
-Gauhati High Court Upholds Order Declaring Assam Man A Foreigner, Says 15 Documents Failed To Prove Citizenship
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-citizenship-foreigner-15-documents-failed-nrc-data-539703
-
-[Read on Telegram](https://t.me/livelawindia/113820)
+[Read on Telegram](https://t.me/livelawindia/113856)
 
 ---
-### 2026-07-02T12:24:11+00:00
-Compliance With S.50 NDPS Act Mandatory Even If Accused Himself Produces Contraband From Pocket During Body Search: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/compliance-section-50-ndps-act-mandatory-accused-contraband-pocket-body-search-539705
+### 2026-07-03T06:00:25+00:00
+Appointment To New Post After Abolition Of Old One, Not 'Promotion' For MACP Benefits: Meghalaya HC
+https://www.livelaw.in/high-court/meghalaya-high-court/appointment-to-new-post-after-abolition-of-old-one-not-promotion-for-macp-benefits-meghalaya-hc-539769
 
-[Read on Telegram](https://t.me/livelawindia/113821)
-
----
-### 2026-07-02T12:40:11+00:00
-Madras High Court Keeps In Abeyance Order Staying Suspension Of DVAC Inspector Accused Of Seeking Bribe
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-motivated-inspector-suspension-order-stay-kept-in-abeyance-539707
-
-[Read on Telegram](https://t.me/livelawindia/113822)
+[Read on Telegram](https://t.me/livelawindia/113857)
 
 ---
-### 2026-07-02T12:55:01+00:00
-'Citizens Being Made Slaves Of Indian Govt; If People Protest, Cases Slapped', Says Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/citizens-being-made-slaves-of-indian-govt-if-people-protest-cases-slapped-says-bombay-high-court-539709
+### 2026-07-03T06:16:55+00:00
+BREAKING| Supreme Court Refuses To Stay Sonam Raghuvanshi's Bail In Honeymoon Murder Case
+https://www.livelaw.in/top-stories/supreme-court-refuses-to-stay-sonam-raghuvanshis-bail-in-honeymoon-murder-case-539778
 
-[Read on Telegram](https://t.me/livelawindia/113823)
-
----
-### 2026-07-02T13:17:22+00:00
-Inter-Country Adoptions | Delhi High Court Grants Relief To OCI Couple, Directs CARA To Issue NOC For Child's Adoption
-https://www.livelaw.in/high-court/delhi-high-court/inter-country-adoptions-delhi-high-court-grants-relief-to-oci-couple-directs-cara-to-issue-noc-for-childs-adoption-under-hama-539712
-
-[Read on Telegram](https://t.me/livelawindia/113824)
+[Read on Telegram](https://t.me/livelawindia/113858)
 
 ---
-### 2026-07-02T13:18:02+00:00
-Places Of Worship Act Only Prohibits 'Conversion' Of Religious Character, No Bar On State Acquisition For Public Purpose: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-places-of-worship-act-conversion-acquisition-dalmandi-varanasi-kashi-corridor-539713
+### 2026-07-03T06:33:15+00:00
+PIL Alleges 40% Teacher Vacancies, Dilapidated Schools In Madhya Pradesh; High Court Seeks State's Response
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/pil-deteriorating-school-infrastructure-teacher-vacancies-madhya-pradesh-539780
 
-[Read on Telegram](https://t.me/livelawindia/113825)
-
----
-### 2026-07-02T13:47:32+00:00
-Motor Accident Claims | Supreme Court Lays Down Law On Using ITRs To Assess Victim's Income
-https://www.livelaw.in/supreme-court/motor-accident-claims-supreme-court-lays-down-law-on-using-itrs-to-assess-victims-income-539724
-
-[Read on Telegram](https://t.me/livelawindia/113826)
+[Read on Telegram](https://t.me/livelawindia/113859)
 
 ---
-### 2026-07-02T13:49:12+00:00
-2026 LiveLaw (SC) 654 | RASHMIREKHA TRIPATHY AND ANR. v THE BRANCH MANAGER (LEGAL CLAIMS), SRIRAM GENERAL INSURANCE COMPANY LIMITED AND ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-654-rashmirekha-tripathy-and-anr-v-the-branch-manager-legal-claims-sriram-general-insurance-company-limited-and-ors-539725
+### 2026-07-03T06:51:16+00:00
+Delhi High Court Asks Centre To Expeditiously Decide Plea Seeking Removal Of Dhruv Rathee's YouTube Video On Hindu Deities
+https://www.livelaw.in/high-court/delhi-high-court/dhruv-rathee-beef-video-removal-hindu-deities-governments-grievance-appellate-committee-539782
 
-[Read on Telegram](https://t.me/livelawindia/113827)
-
----
-### 2026-07-02T13:52:52+00:00
-Ponmudi's Speech Reveals Deliberate Intention To Wound Hindus' Religious Beliefs: Madras High Court While Refusing To Quash Hate Speech Case
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ponmudi-hate-speech-deliberate-intention-to-wound-hindu-sentiment-539727
-
-[Read on Telegram](https://t.me/livelawindia/113828)
+[Read on Telegram](https://t.me/livelawindia/113860)
 
 ---
-### 2026-07-02T14:13:32+00:00
-Karnataka High Court Grants Bail To Former MUDA Commissioner In PMLA Case, Recognizes 'Changed Circumstances' And Delay In Trial
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-grants-bail-former-muda-commissioner-pmla-case-539733
+### 2026-07-03T07:03:06+00:00
+Supreme Court Bar Association Condemns Threats Against MP Judge Tabassum Khan After Cow Vigilantes' Conviction
+https://www.livelaw.in/top-stories/supreme-court-bar-association-condemns-threats-against-mp-judge-tabassum-khan-after-cow-vigilantes-conviction-539784
 
-[Read on Telegram](https://t.me/livelawindia/113829)
-
----
-### 2026-07-02T14:28:12+00:00
-No Vested Right To Appointment Merely By Topping Merit List; Recruitment Can Be Cancelled For Bona Fide Administrative Reasons: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/no-vested-right-to-appointment-merely-by-topping-merit-list-recruitment-can-be-cancelled-for-bona-fide-administrative-reasons-delhi-high-court-539714
-
-[Read on Telegram](https://t.me/livelawindia/113830)
+[Read on Telegram](https://t.me/livelawindia/113861)
 
 ---
-### 2026-07-02T14:32:52+00:00
-Compensation In Motor Accidental Death Cases: How It Is Calculated
-https://www.livelaw.in/know-the-law/compensation-motor-accidental-death-cases-539633
+### 2026-07-03T07:24:46+00:00
+Protesting Govt Policies Can't Be Ground For Passing Externment Order: Bombay High Court Quashes Police Action
+https://www.livelaw.in/high-court/bombay-high-court/protesting-govt-policies-cant-be-ground-for-passing-externment-order-bombay-high-court-quashes-police-action-539786
 
-[Read on Telegram](https://t.me/livelawindia/113831)
-
----
-### 2026-07-02T15:07:42+00:00
-Calcutta High Court Monthly Digest: June 2026
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-monthly-digest-june-2026-539720
-
-[Read on Telegram](https://t.me/livelawindia/113832)
+[Read on Telegram](https://t.me/livelawindia/113862)
 
 ---
-### 2026-07-02T15:57:55+00:00
-Uttarakhand High Court Grants Couple Protection Despite Objection That Groom Had Not Attained 21 Years Age At Time Of Marriage
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-grants-couple-protection-539715
+### 2026-07-03T07:30:06+00:00
+Dressing Pet Dog As Lord Krishna Out Of Devotion Not Offence Under S.298 BNS: P&H High Court Quashes FIR
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/dressing-up-pet-dog-as-lord-krishna-not-offence-section-298-bns-desecration-insult-to-religion-539788
 
-[Read on Telegram](https://t.me/livelawindia/113833)
-
----
-### 2026-07-03T02:44:33+00:00
-Advisory Manager Vacancy At Maruti Suzuki India Limited
-https://www.livelaw.in/job-updates/advisory-manager-vacancy-at-maruti-suzuki-india-limited-539743
-
-[Read on Telegram](https://t.me/livelawindia/113834)
+[Read on Telegram](https://t.me/livelawindia/113863)
 
 ---
-### 2026-07-03T02:45:53+00:00
-Manager (Legal) Vacancy At Tata Capital Limited
-https://www.livelaw.in/job-updates/manager-legal-vacancy-at-tata-capital-limited-539744
+### 2026-07-03T07:33:06+00:00
+NCDRC Holds Builder Liable For Delayed Possession, Grants Refund Or Possession To Homebuyers
+https://www.livelaw.in/consumer-cases/ncdrc-holds-builder-liable-for-delayed-possession-grants-refund-or-possession-to-homebuyers-539773
 
-[Read on Telegram](https://t.me/livelawindia/113835)
-
----
-### 2026-07-03T02:47:33+00:00
-Empanelment Of Advocates At Rajkot Municipal Corporation
-https://www.livelaw.in/job-updates/empanelment-of-advocates-at-rajkot-municipal-corporation-539745
-
-[Read on Telegram](https://t.me/livelawindia/113836)
+[Read on Telegram](https://t.me/livelawindia/113864)
 
 ---
-### 2026-07-03T02:55:53+00:00
-Delhi Higher Judicial Service Examination – 2026
-https://www.livelaw.in/job-updates/delhi-higher-judicial-service-examination-2026-539746
+### 2026-07-03T07:43:07+00:00
+Kerala High Court Closes PIL For CBI Inquiry Into 'Attack' On ED Officials After Search At Ex-CM's Home, Cites Satisfactory Progress In Probe
+https://www.livelaw.in/high-court/kerala-high-court/ed-officials-attack-search-at-ex-cm-pinarayi-vijayans-home-cbi-investigation-pil-closed-539791
 
-[Read on Telegram](https://t.me/livelawindia/113837)
+[Read on Telegram](https://t.me/livelawindia/113865)
 
 ---
-### 2026-07-03T03:32:24+00:00
-Modified Buses Causing Fatal Accidents, Authorities Must Strictly Enforce MV Act Norms Irrespective Of State Of Registration: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-directs-strict-enforcement-bus-safety-norms-539740
+### 2026-07-03T07:45:27+00:00
+Centre Notifies Appointment Of Three Judicial Officers As Andhra Pradesh High Court Judges
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/centre-appointment-judicial-officers-judges-ap-high-court-539792
 
-[Read on Telegram](https://t.me/livelawindia/113838)
+[Read on Telegram](https://t.me/livelawindia/113866)
+
+---
+### 2026-07-03T07:48:07+00:00
+Dismissal On Technical Grounds Means Employee Remains 'In Service' For Subsistence Allowance, Rules Gauhati HC
+https://www.livelaw.in/high-court/gauhati-high-court/dismissal-on-technical-grounds-means-employee-remains-in-service-for-subsistence-allowance-rules-gauhati-hc-539775
+
+[Read on Telegram](https://t.me/livelawindia/113867)
+
+---
+### 2026-07-03T07:52:07+00:00
+DMK Moves Supreme Court Against TN Minister's Statements On Karur Stampede, Objects To CM Vijay Meeting Families
+https://www.livelaw.in/top-stories/dmk-moves-supreme-court-against-tn-ministers-statements-on-karur-stampede-objects-to-cm-vijay-meeting-families-539793
+
+[Read on Telegram](https://t.me/livelawindia/113868)
+
+---
+### 2026-07-03T07:57:17+00:00
+Ram Mandir Donation Theft Row | Faizabad Bar Files Police Complaint Seeking FIR Against Champat Rai, Trustee
+https://www.livelaw.in/news-updates/ram-mandir-donation-theft-faizabad-bar-complaint-champat-rai-fir-539794
+
+[Read on Telegram](https://t.me/livelawindia/113869)
+
+---
+### 2026-07-03T08:21:37+00:00
+'100 Families Left Homeless, Complete Illegality': Gujarat High Court Questions State, Police Inaction Over Surat Demolition Drive
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-surat-demolition-drive-families-homeless-police-inaction-539803
+
+[Read on Telegram](https://t.me/livelawindia/113870)
+
+---
+### 2026-07-03T08:32:57+00:00
+Delhi High Court Asks ZEE5 To Make Streaming Platform Accessible To Persons With Disabilities
+https://www.livelaw.in/high-court/delhi-high-court/zee5-ott-platform-comply-disabled-person-accessibility-539804
+
+[Read on Telegram](https://t.me/livelawindia/113871)
+
+---
+### 2026-07-03T08:35:37+00:00
+"Compensation Can't Be Viewed Through Patriarchal Lens": Delhi High Court Upholds Husband's Claim Over Wife's Death In Accident
+https://www.livelaw.in/high-court/delhi-high-court/compensation-cant-be-viewed-through-patriarchal-lens-delhi-hc-upholds-husbands-claim-over-wifes-death-in-accident-539806
+
+[Read on Telegram](https://t.me/livelawindia/113872)
+
+---
+### 2026-07-03T08:44:37+00:00
+POCSO Act Prevails Over Personal Law: Allahabad High Court Refuses To Quash FIR Over 'Repeated Rape' Under Guise Of Nikah Halala
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-refuses-to-quash-fir-nikah-halala-minor-rape-539807
+
+[Read on Telegram](https://t.me/livelawindia/113873)
+
+---
+### 2026-07-03T09:04:48+00:00
+Calcutta High Court Declines To Hear Anticipatory Bail Plea By TMC MP Abhishek Banerjee's PA Sumit Roy
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-declines-to-hear-anticipatory-bail-plea-by-tmc-mp-abhishek-banerjees-pa-sumit-roy-539811
+
+[Read on Telegram](https://t.me/livelawindia/113874)
+
+---
+### 2026-07-03T09:23:48+00:00
+Kerala High Court Directs Home Secretary To Decide Plea Seeking Vigilance Probe Against Top Officials Over Bodybuilders' Police Appointments
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-home-secretary-vigilance-enquiry-bodybuilders-police-appointment-539813
+
+[Read on Telegram](https://t.me/livelawindia/113875)
 
 ---
