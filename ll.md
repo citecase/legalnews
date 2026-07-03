@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-03T05:58:05+00:00*
+*Last Updated: 2026-07-03T09:41:38+00:00*
 
 ---
 
-### 2026-07-03T05:58:05+00:00
-"Have To Respect The Chief Minister": Madras High Court Denies Anticipatory Bail To  Anitha Radhakrishnan Over Remarks On CM Joseph Vijay
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-anitha-radhakrishnan-cm-joseph-vijay-anticipatory-bail-dismissed-539768
+### 2026-07-03T09:41:38+00:00
+23 Opposition Parties Write To CJI Alleging Electoral Malpractices Under BJP Rule; Say ED, CBI Used To Topple Elected Govts
+https://www.livelaw.in/top-stories/opposition-parties-write-to-chief-justice-of-india-assailing-electoral-irregularities-under-bjp-flag-bihar-west-bengal-sir-targeting-of-opposition-by-ed-cbi-nia-539816
 
-[Read on Telegram](https://t.me/livelawindia/113856)
-
----
-### 2026-07-03T06:00:25+00:00
-Appointment To New Post After Abolition Of Old One, Not 'Promotion' For MACP Benefits: Meghalaya HC
-https://www.livelaw.in/high-court/meghalaya-high-court/appointment-to-new-post-after-abolition-of-old-one-not-promotion-for-macp-benefits-meghalaya-hc-539769
-
-[Read on Telegram](https://t.me/livelawindia/113857)
+[Read on Telegram](https://t.me/livelawindia/113878)
 
 ---
-### 2026-07-03T06:16:55+00:00
-BREAKING| Supreme Court Refuses To Stay Sonam Raghuvanshi's Bail In Honeymoon Murder Case
-https://www.livelaw.in/top-stories/supreme-court-refuses-to-stay-sonam-raghuvanshis-bail-in-honeymoon-murder-case-539778
+### 2026-07-03T09:58:19+00:00
+'Prima Facie Key Conspirator Of Money Laundering': Gujarat High Court Denies Bail To IAS Officer In Alleged Land Conversion Bribery Case
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-ias-officer-land-conversion-bribes-539822
 
-[Read on Telegram](https://t.me/livelawindia/113858)
-
----
-### 2026-07-03T06:33:15+00:00
-PIL Alleges 40% Teacher Vacancies, Dilapidated Schools In Madhya Pradesh; High Court Seeks State's Response
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/pil-deteriorating-school-infrastructure-teacher-vacancies-madhya-pradesh-539780
-
-[Read on Telegram](https://t.me/livelawindia/113859)
+[Read on Telegram](https://t.me/livelawindia/113879)
 
 ---
-### 2026-07-03T06:51:16+00:00
-Delhi High Court Asks Centre To Expeditiously Decide Plea Seeking Removal Of Dhruv Rathee's YouTube Video On Hindu Deities
-https://www.livelaw.in/high-court/delhi-high-court/dhruv-rathee-beef-video-removal-hindu-deities-governments-grievance-appellate-committee-539782
+### 2026-07-03T10:17:19+00:00
+Objections By Apartment Association Can't Override Consent Of Individual Flat Owners For Additional Development: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-objections-apartment-owner-association-consent-individual-flat-owners-539825
 
-[Read on Telegram](https://t.me/livelawindia/113860)
-
----
-### 2026-07-03T07:03:06+00:00
-Supreme Court Bar Association Condemns Threats Against MP Judge Tabassum Khan After Cow Vigilantes' Conviction
-https://www.livelaw.in/top-stories/supreme-court-bar-association-condemns-threats-against-mp-judge-tabassum-khan-after-cow-vigilantes-conviction-539784
-
-[Read on Telegram](https://t.me/livelawindia/113861)
+[Read on Telegram](https://t.me/livelawindia/113880)
 
 ---
-### 2026-07-03T07:24:46+00:00
-Protesting Govt Policies Can't Be Ground For Passing Externment Order: Bombay High Court Quashes Police Action
-https://www.livelaw.in/high-court/bombay-high-court/protesting-govt-policies-cant-be-ground-for-passing-externment-order-bombay-high-court-quashes-police-action-539786
+### 2026-07-03T10:17:39+00:00
+Disciplinary Authority Must Exercise Independent Judgment, Not Act Under Dictates Of Other Authorities: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-disciplinary-authority-independent-judgment-539805
 
-[Read on Telegram](https://t.me/livelawindia/113862)
-
----
-### 2026-07-03T07:30:06+00:00
-Dressing Pet Dog As Lord Krishna Out Of Devotion Not Offence Under S.298 BNS: P&H High Court Quashes FIR
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/dressing-up-pet-dog-as-lord-krishna-not-offence-section-298-bns-desecration-insult-to-religion-539788
-
-[Read on Telegram](https://t.me/livelawindia/113863)
+[Read on Telegram](https://t.me/livelawindia/113881)
 
 ---
-### 2026-07-03T07:33:06+00:00
-NCDRC Holds Builder Liable For Delayed Possession, Grants Refund Or Possession To Homebuyers
-https://www.livelaw.in/consumer-cases/ncdrc-holds-builder-liable-for-delayed-possession-grants-refund-or-possession-to-homebuyers-539773
+### 2026-07-03T10:17:59+00:00
+Compassionate Appointment Can't Be Rejected For Financial Reasons If Not Stated In The Original Order:Calcutta HC
+https://www.livelaw.in/high-court/calcutta-high-court/compassionate-appointment-cant-be-rejected-for-financial-reasons-if-not-stated-in-the-original-ordercalcutta-hc-539779
 
-[Read on Telegram](https://t.me/livelawindia/113864)
-
----
-### 2026-07-03T07:43:07+00:00
-Kerala High Court Closes PIL For CBI Inquiry Into 'Attack' On ED Officials After Search At Ex-CM's Home, Cites Satisfactory Progress In Probe
-https://www.livelaw.in/high-court/kerala-high-court/ed-officials-attack-search-at-ex-cm-pinarayi-vijayans-home-cbi-investigation-pil-closed-539791
-
-[Read on Telegram](https://t.me/livelawindia/113865)
+[Read on Telegram](https://t.me/livelawindia/113882)
 
 ---
-### 2026-07-03T07:45:27+00:00
-Centre Notifies Appointment Of Three Judicial Officers As Andhra Pradesh High Court Judges
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/centre-appointment-judicial-officers-judges-ap-high-court-539792
+### 2026-07-03T10:43:09+00:00
+Supreme Court Orders Status Quo On Audit Of Delhi's Electricity Distribution Companies
+https://www.livelaw.in/top-stories/supreme-court-aptel-order-status-quo-cag-audit-of-delhi-electricity-distribution-companies-appointment-of-ca-stayed-539831
 
-[Read on Telegram](https://t.me/livelawindia/113866)
-
----
-### 2026-07-03T07:48:07+00:00
-Dismissal On Technical Grounds Means Employee Remains 'In Service' For Subsistence Allowance, Rules Gauhati HC
-https://www.livelaw.in/high-court/gauhati-high-court/dismissal-on-technical-grounds-means-employee-remains-in-service-for-subsistence-allowance-rules-gauhati-hc-539775
-
-[Read on Telegram](https://t.me/livelawindia/113867)
+[Read on Telegram](https://t.me/livelawindia/113883)
 
 ---
-### 2026-07-03T07:52:07+00:00
-DMK Moves Supreme Court Against TN Minister's Statements On Karur Stampede, Objects To CM Vijay Meeting Families
-https://www.livelaw.in/top-stories/dmk-moves-supreme-court-against-tn-ministers-statements-on-karur-stampede-objects-to-cm-vijay-meeting-families-539793
+### 2026-07-03T11:07:10+00:00
+S. 362 CrPC No Bar To Altering Bail Conditions: Allahabad High Court Revokes 'Onerous' ₹64 Lakh Deposit Condition After 12 Yrs
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-rules-section-362-crpc-no-bar-modifying-bail-conditions-interlocutory-order-539835
 
-[Read on Telegram](https://t.me/livelawindia/113868)
-
----
-### 2026-07-03T07:57:17+00:00
-Ram Mandir Donation Theft Row | Faizabad Bar Files Police Complaint Seeking FIR Against Champat Rai, Trustee
-https://www.livelaw.in/news-updates/ram-mandir-donation-theft-faizabad-bar-complaint-champat-rai-fir-539794
-
-[Read on Telegram](https://t.me/livelawindia/113869)
+[Read on Telegram](https://t.me/livelawindia/113884)
 
 ---
-### 2026-07-03T08:21:37+00:00
-'100 Families Left Homeless, Complete Illegality': Gujarat High Court Questions State, Police Inaction Over Surat Demolition Drive
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-surat-demolition-drive-families-homeless-police-inaction-539803
+### 2026-07-03T11:19:50+00:00
+Kerala High Court Suggests Parliament To Amend Divorce Act To Enable Christian Women File Cases At Place Of Residence
+https://www.livelaw.in/high-court/kerala-high-court/christian-women-divorce-place-of-residence-amend-divorce-act-jurisdiction-539836
 
-[Read on Telegram](https://t.me/livelawindia/113870)
-
----
-### 2026-07-03T08:32:57+00:00
-Delhi High Court Asks ZEE5 To Make Streaming Platform Accessible To Persons With Disabilities
-https://www.livelaw.in/high-court/delhi-high-court/zee5-ott-platform-comply-disabled-person-accessibility-539804
-
-[Read on Telegram](https://t.me/livelawindia/113871)
+[Read on Telegram](https://t.me/livelawindia/113885)
 
 ---
-### 2026-07-03T08:35:37+00:00
-"Compensation Can't Be Viewed Through Patriarchal Lens": Delhi High Court Upholds Husband's Claim Over Wife's Death In Accident
-https://www.livelaw.in/high-court/delhi-high-court/compensation-cant-be-viewed-through-patriarchal-lens-delhi-hc-upholds-husbands-claim-over-wifes-death-in-accident-539806
+### 2026-07-03T11:27:50+00:00
+Senthil Balaji's Brother Moves Madras High Court Seeking Anticipatory Bail In Case Alleging He Offered ₹35 Lakh Bribe To TVK MLA
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-senthil-balaji-brother-anticipatory-bail-horse-trading-tvk-mla-539837
 
-[Read on Telegram](https://t.me/livelawindia/113872)
-
----
-### 2026-07-03T08:44:37+00:00
-POCSO Act Prevails Over Personal Law: Allahabad High Court Refuses To Quash FIR Over 'Repeated Rape' Under Guise Of Nikah Halala
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-refuses-to-quash-fir-nikah-halala-minor-rape-539807
-
-[Read on Telegram](https://t.me/livelawindia/113873)
+[Read on Telegram](https://t.me/livelawindia/113886)
 
 ---
-### 2026-07-03T09:04:48+00:00
-Calcutta High Court Declines To Hear Anticipatory Bail Plea By TMC MP Abhishek Banerjee's PA Sumit Roy
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-declines-to-hear-anticipatory-bail-plea-by-tmc-mp-abhishek-banerjees-pa-sumit-roy-539811
+### 2026-07-03T11:32:20+00:00
+LiveLaw Gujarat High Court Half Yearly Digest: January - June, 2026
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-half-yearly-digest-539502
 
-[Read on Telegram](https://t.me/livelawindia/113874)
+[Read on Telegram](https://t.me/livelawindia/113887)
 
 ---
-### 2026-07-03T09:23:48+00:00
-Kerala High Court Directs Home Secretary To Decide Plea Seeking Vigilance Probe Against Top Officials Over Bodybuilders' Police Appointments
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-home-secretary-vigilance-enquiry-bodybuilders-police-appointment-539813
+### 2026-07-03T12:11:40+00:00
+Madras High Court Directs Police Protection For AIADMK Leader CV Shanmugam, Notes Continuous Life Threats
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-dgp-order-police-protection-cv-shanmugam-539850
 
-[Read on Telegram](https://t.me/livelawindia/113875)
+[Read on Telegram](https://t.me/livelawindia/113888)
+
+---
+### 2026-07-03T12:21:01+00:00
+Ketan Agarwal Murder Case: Pune Court Remands Fiance, Friend To Judicial Custody Till July 16
+https://www.livelaw.in/news-updates/ketan-agarwal-lohagad-fort-fiance-friend-judicial-custody-july-16-539853
+
+[Read on Telegram](https://t.me/livelawindia/113889)
+
+---
+### 2026-07-03T13:09:11+00:00
+Allahabad High Court Refuses To Intervene In UP ATS Probe Into Funding Of 4,000  Unaided Madrassas
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-refuses-intervene-up-ats-probe-4000-madrassas-funding-539855
+
+[Read on Telegram](https://t.me/livelawindia/113890)
+
+---
+### 2026-07-03T13:13:11+00:00
+Woman Govt Employee Entitled To Only 12 Weeks' Maternity Leave For Third Child: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-maternity-leave-third-child-12-weeks-539856
+
+[Read on Telegram](https://t.me/livelawindia/113891)
+
+---
+### 2026-07-03T13:30:23+00:00
+Supreme Court Pulls Us Pharmacy Council For Not Adhering To Timeline For Approval & Admissions
+https://www.livelaw.in/top-stories/supreme-court-pulls-us-pharmacy-council-for-not-adhering-to-timeline-for-approval-admissions-539858
+
+[Read on Telegram](https://t.me/livelawindia/113892)
+
+---
+### 2026-07-03T13:32:03+00:00
+'How Can ECI's Seal On Postal Ballots Be Broken?': Karnataka High Court Questions Tampering Allegation Against BJP's DN Jeevaraja
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-continues-interim-stay-fir-mla-jeevaraja-ballot-tampering-case-539859
+
+[Read on Telegram](https://t.me/livelawindia/113893)
+
+---
+### 2026-07-03T13:33:03+00:00
+Employee Cannot Invoke Consumer Forum For Gratuity Claims Against Employer: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/employee-consumer-forum-gratuity-claims-employer-539860
+
+[Read on Telegram](https://t.me/livelawindia/113894)
+
+---
+### 2026-07-03T13:59:03+00:00
+Publication Of Call For Separate Tamil Nadu Nation Not Sedition; Public Will Doubt Speaker's Mental Health: Supreme Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tamil-nadu-separate-nation-not-sedition-539863
+
+[Read on Telegram](https://t.me/livelawindia/113895)
+
+---
+### 2026-07-03T13:59:23+00:00
+Delhi High Court Issues Notice On IPS Officer's Plea To Remove Matrimonial Dispute Reports From Digital Platforms
+https://www.livelaw.in/high-court/delhi-high-court/right-to-be-forgotten-ips-officer-remove-matrimonial-dispute-reports-539864
+
+[Read on Telegram](https://t.me/livelawindia/113896)
+
+---
+### 2026-07-03T14:08:23+00:00
+Karnataka High Court Refuses To Stay State Gig Workers Act, Asks Platforms To Deposit Welfare Fund With Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-interim-order-challenge-platform-gig-workers-act-539865
+
+[Read on Telegram](https://t.me/livelawindia/113897)
 
 ---
