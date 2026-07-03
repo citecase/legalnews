@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-02T11:56:40+00:00*
+*Last Updated: 2026-07-02T12:12:01+00:00*
 
 ---
 
-### 2026-07-02T11:56:40+00:00
-Delhi Court Reserves Verdict In Wrestlers' Sexual Harassment Case Against BJP's Brij Bhushan Saran Singh, Order Likely On August 3
-https://www.livelaw.in/news-updates/delhi-court-reserves-verdict-in-wrestlers-sexual-harassment-case-against-bjps-brij-bhushan-saran-singh-order-likely-on-august-3-539690
-
-[Read on Telegram](https://t.me/livelawindia/113814)
-
----
-### 2026-07-02T11:59:00+00:00
-Shia Body Moves Allahabad High Court Against UP Police's 'Forced' Removal Of Khamenei Portraits, FIRs Against Mourners
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-shia-body-up-police-khamenei-portraits-firs-mourners-539693
-
-[Read on Telegram](https://t.me/livelawindia/113815)
-
----
-### 2026-07-02T12:03:21+00:00
-Justice BV Nagarathna Appointed Chairperson Of Supreme Court Legal Services Committee
-https://www.livelaw.in/top-stories/justice-bv-nagarathna-appointed-chairperson-of-supreme-court-legal-services-committee-539697
-
-[Read on Telegram](https://t.me/livelawindia/113816)
-
----
-### 2026-07-02T12:05:41+00:00
-Delhi High Court To Pass Order For Removal Of Objectionable Content Against Actor And BJP MP Ravi Kishan
-https://www.livelaw.in/high-court/delhi-high-court/ravi-kishan-personality-rights-defamatory-content-take-down-539698
-
-[Read on Telegram](https://t.me/livelawindia/113817)
-
----
-### 2026-07-02T12:09:21+00:00
-TVK Lawyer Moves Madras High Court Alleging Bribery In Appointment Of Government Advocates
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tvk-lawyer-plea-illegality-appointment-government-advocate-539699
-
-[Read on Telegram](https://t.me/livelawindia/113818)
-
----
 ### 2026-07-02T12:12:01+00:00
 Can't Say If Savarkar Was Released By British On Condition Not To Participate In Political Movements : Grandnephew To Court
 https://www.livelaw.in/news-updates/cant-say-if-savarkar-was-released-by-british-on-condition-not-to-participate-in-political-movements-grandnephew-to-court-539701
@@ -142,5 +107,40 @@ Uttarakhand High Court Grants Couple Protection Despite Objection That Groom Had
 https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-grants-couple-protection-539715
 
 [Read on Telegram](https://t.me/livelawindia/113833)
+
+---
+### 2026-07-03T02:44:33+00:00
+Advisory Manager Vacancy At Maruti Suzuki India Limited
+https://www.livelaw.in/job-updates/advisory-manager-vacancy-at-maruti-suzuki-india-limited-539743
+
+[Read on Telegram](https://t.me/livelawindia/113834)
+
+---
+### 2026-07-03T02:45:53+00:00
+Manager (Legal) Vacancy At Tata Capital Limited
+https://www.livelaw.in/job-updates/manager-legal-vacancy-at-tata-capital-limited-539744
+
+[Read on Telegram](https://t.me/livelawindia/113835)
+
+---
+### 2026-07-03T02:47:33+00:00
+Empanelment Of Advocates At Rajkot Municipal Corporation
+https://www.livelaw.in/job-updates/empanelment-of-advocates-at-rajkot-municipal-corporation-539745
+
+[Read on Telegram](https://t.me/livelawindia/113836)
+
+---
+### 2026-07-03T02:55:53+00:00
+Delhi Higher Judicial Service Examination – 2026
+https://www.livelaw.in/job-updates/delhi-higher-judicial-service-examination-2026-539746
+
+[Read on Telegram](https://t.me/livelawindia/113837)
+
+---
+### 2026-07-03T03:32:24+00:00
+Modified Buses Causing Fatal Accidents, Authorities Must Strictly Enforce MV Act Norms Irrespective Of State Of Registration: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-directs-strict-enforcement-bus-safety-norms-539740
+
+[Read on Telegram](https://t.me/livelawindia/113838)
 
 ---
