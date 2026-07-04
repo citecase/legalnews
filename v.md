@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-03T15:53:11+00:00*
+*Last Updated: 2026-07-04T08:32:46+00:00*
+
+---
+
+### 2026-07-04T08:32:46+00:00
+Insurance Company Can’t Escape Liability By Contending That Two-Wheeler Bundled Policy Doesn’t Cover Pillion Rider: Madras High Court
+https://www.verdictum.in/madras-high-court/ms-icici-lombard-gic-ltd-v-s-barkathulla-insurance-company-liability-policy-pillion-rider-1617114
+
+[Source Link](https://t.me/verdictumlegalupdates/27779)
+
+---
+
+### 2026-07-04T07:43:05+00:00
+No Place For Pleading Personal Laws: Allahabad High Court Refuses To Quash FIR Against  Man Accused Of Committing Rape Under Guise Of Triple Talaq & Nikah Halala
+https://www.verdictum.in/allahabad-high-court/tayyab-v-state-of-up-and-others-2026ahc129754-db-fir-rape-triple-talaq-nikah-halala-1617107
+
+[Source Link](https://t.me/verdictumlegalupdates/27778)
+
+---
+
+### 2026-07-04T06:57:24+00:00
+Dog Is A Perfect Companion To Divine Power: Punjab & Haryana HC Quashes FIR Against Woman Displaying Pet Dog Dressed As Lord Krishna On Whatsapp Status
+https://www.verdictum.in/punjab-and-haryana-high-court/ranjanni-gaur-v-state-of-punjab-2026phhc088828-pet-dog-dressed-as-lord-krishna-on-whatsapp-status-1617103
+
+[Source Link](https://t.me/verdictumlegalupdates/27777)
+
+---
+
+### 2026-07-04T06:03:03+00:00
+UGC's Modified Guidelines Recognise Pre-2022 Simultaneous Degrees: Delhi HC Directs National Education Society For Tribal Students To Reconsider Cancelled PGT Candidatures
+https://www.verdictum.in/delhi-high-court/mohammad-anees-v-national-education-society-for-tribal-students-2026dhc5303-db-ugcs-modified-guidelines-recognise-pre-2022-simultaneous-degrees-1617095
+
+[Source Link](https://t.me/verdictumlegalupdates/27776)
+
+---
+
+### 2026-07-04T05:12:41+00:00
+Married Woman Govt Servant Eligible For 12-Week Maternity Leave For Third Child: Madras High Court Rejects Woman’s Plea Seeking Payment For 1 Year Leave
+https://www.verdictum.in/madras-high-court/sdivya-v-the-registrar-general-2026mhc2429-govt-servant-maternity-leave-1617093
+
+[Source Link](https://t.me/verdictumlegalupdates/27775)
+
+---
+
+### 2026-07-04T04:32:30+00:00
+Streedhana Remains Exclusive Property Of Wife With Full Decision-Making Autonomy: Madras High Court Directs Husband To Return Jewellery & Articles
+https://www.verdictum.in/madras-high-court/v-v-s-2026mhc2431-streedhana-remains-exclusive-property-of-wife-husband-return-jewellery-1617089
+
+[Source Link](https://t.me/verdictumlegalupdates/27774)
 
 ---
 
@@ -113,54 +161,6 @@ Unnatural Death In Custody Even If By Suicide, Not A Private Act: Delhi High Cou
 https://www.verdictum.in/delhi-high-court/shyam-sundar-v-state-nct-of-delhi-2026dhc5226-unnatural-death-in-custody-suicide-awards-1844-lakh-1617042
 
 [Source Link](https://t.me/verdictumlegalupdates/27760)
-
----
-
-### 2026-07-03T06:25:04+00:00
-Breaking: Supreme Court Refuses To Stay Order Granting Bail To Sonam Raghuvanshi In Honeymoon Murder Case
-https://www.verdictum.in/supreme-court/refuses-cancel-bail-granted-sonam-raghuvanshi-1617039
-
-[Source Link](https://t.me/verdictumlegalupdates/27759)
-
----
-
-### 2026-07-03T05:53:02+00:00
-Public Authority Cannot Settle Service Tenure By Hindsight: Delhi High Court Directs Delhi University To Treat Professor As Retired With Consequential Benefits
-https://www.verdictum.in/delhi-high-court/dr-asha-gupta-v-university-of-delhi-2026dhc5262-professor-retired-with-consequential-benefits-hindsight-1617036
-
-[Source Link](https://t.me/verdictumlegalupdates/27758)
-
----
-
-### 2026-07-03T05:13:21+00:00
-Elderly Litigants Cannot Be Blamed For Failing To Track Case Stages On Court Websites: Tripura High Court
-https://www.verdictum.in/tripura-high-court/2026-thc-801-sukesh-chandra-saha-v-parimal-saha-1617032
-
-[Source Link](https://t.me/verdictumlegalupdates/27757)
-
----
-
-### 2026-07-03T04:33:10+00:00
-Reinstatement With Continuity Of Service Entitles Notional Pay Fixation But Excludes Arrears For Ousted Period: Delhi High Court
-https://www.verdictum.in/delhi-high-court/gaurav-kumar-v-high-court-of-delhi-through-its-registrar-general-2026dhc5169-db-reinstatement-with-continuity-of-service-drivers-plea-1617006
-
-[Source Link](https://t.me/verdictumlegalupdates/27756)
-
----
-
-### 2026-07-02T15:32:50+00:00
-Assistant Prosecution Officer Vacancy At Rajasthan Public Service Commission
-https://www.verdictum.in/job-updates/rajasthan-public-service-commission-1617005
-
-[Source Link](https://t.me/verdictumlegalupdates/27755)
-
----
-
-### 2026-07-02T14:52:39+00:00
-Holding Equivalent Civil Post Does Not Confer Right to Substantive Military Rank; Army Promotion Norms Prevail: Delhi High Court
-https://www.verdictum.in/delhi-high-court/union-of-india-v-col-amardeep-singh-2026dhc5204-db-equivalent-civil-post-military-rank-army-brigadier-major-general-1617004
-
-[Source Link](https://t.me/verdictumlegalupdates/27754)
 
 ---
 
