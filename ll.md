@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-03T11:07:10+00:00*
+*Last Updated: 2026-07-04T05:03:58+00:00*
 
 ---
 
-### 2026-07-03T11:07:10+00:00
-S. 362 CrPC No Bar To Altering Bail Conditions: Allahabad High Court Revokes 'Onerous' ₹64 Lakh Deposit Condition After 12 Yrs
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-rules-section-362-crpc-no-bar-modifying-bail-conditions-interlocutory-order-539835
+### 2026-07-04T05:03:58+00:00
+Madras High Court Imposes Cost On Joint Secretaries Of External And Home Affairs Ministry For Failing To Assist Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-cost-imposed-external-home-affairs-ministry-failure-assist-court-539898
 
-[Read on Telegram](https://t.me/livelawindia/113884)
-
----
-### 2026-07-03T11:19:50+00:00
-Kerala High Court Suggests Parliament To Amend Divorce Act To Enable Christian Women File Cases At Place Of Residence
-https://www.livelaw.in/high-court/kerala-high-court/christian-women-divorce-place-of-residence-amend-divorce-act-jurisdiction-539836
-
-[Read on Telegram](https://t.me/livelawindia/113885)
+[Read on Telegram](https://t.me/livelawindia/113911)
 
 ---
-### 2026-07-03T11:27:50+00:00
-Senthil Balaji's Brother Moves Madras High Court Seeking Anticipatory Bail In Case Alleging He Offered ₹35 Lakh Bribe To TVK MLA
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-senthil-balaji-brother-anticipatory-bail-horse-trading-tvk-mla-539837
+### 2026-07-04T05:11:28+00:00
+Assistant Manager Vacancy At EY Global Delivery Services [Bengaluru; Apply Now]
+https://www.livelaw.in/job-updates/assistant-manager-vacancy-at-ey-global-delivery-services-bengaluru-539899
 
-[Read on Telegram](https://t.me/livelawindia/113886)
-
----
-### 2026-07-03T11:32:20+00:00
-LiveLaw Gujarat High Court Half Yearly Digest: January - June, 2026
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-half-yearly-digest-539502
-
-[Read on Telegram](https://t.me/livelawindia/113887)
+[Read on Telegram](https://t.me/livelawindia/113912)
 
 ---
-### 2026-07-03T12:11:40+00:00
-Madras High Court Directs Police Protection For AIADMK Leader CV Shanmugam, Notes Continuous Life Threats
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-dgp-order-police-protection-cv-shanmugam-539850
+### 2026-07-04T05:16:28+00:00
+MP High Court Denies Bail To 'Journalist' Accused Of Extorting Govt Official With Defamatory Posts Over Rejection Of GST Application
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-denies-anticipatory-bail-to-alleged-journalist-for-extorting-assistant-commissioner-of-gst-539900
 
-[Read on Telegram](https://t.me/livelawindia/113888)
-
----
-### 2026-07-03T12:21:01+00:00
-Ketan Agarwal Murder Case: Pune Court Remands Fiance, Friend To Judicial Custody Till July 16
-https://www.livelaw.in/news-updates/ketan-agarwal-lohagad-fort-fiance-friend-judicial-custody-july-16-539853
-
-[Read on Telegram](https://t.me/livelawindia/113889)
+[Read on Telegram](https://t.me/livelawindia/113913)
 
 ---
-### 2026-07-03T13:09:11+00:00
-Allahabad High Court Refuses To Intervene In UP ATS Probe Into Funding Of 4,000  Unaided Madrassas
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-refuses-intervene-up-ats-probe-4000-madrassas-funding-539855
+### 2026-07-04T05:33:08+00:00
+Department Of Education Cannot Impose Recruitment Restrictions On Aided Minority Schools: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/department-of-education-cannot-impose-recruitment-restrictions-on-aided-minority-schools-delhi-high-court-539887
 
-[Read on Telegram](https://t.me/livelawindia/113890)
-
----
-### 2026-07-03T13:13:11+00:00
-Woman Govt Employee Entitled To Only 12 Weeks' Maternity Leave For Third Child: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-maternity-leave-third-child-12-weeks-539856
-
-[Read on Telegram](https://t.me/livelawindia/113891)
+[Read on Telegram](https://t.me/livelawindia/113914)
 
 ---
-### 2026-07-03T13:30:23+00:00
-Supreme Court Pulls Us Pharmacy Council For Not Adhering To Timeline For Approval & Admissions
-https://www.livelaw.in/top-stories/supreme-court-pulls-us-pharmacy-council-for-not-adhering-to-timeline-for-approval-admissions-539858
+### 2026-07-04T05:45:48+00:00
+Delhi  Consumer Commission Holds Tata AIG Liable For Wrongfully Repudiating Insurance Claim
+https://www.livelaw.in/consumer-cases/delhi-consumer-commission-holds-tata-aig-liable-for-wrongfully-repudiating-insurance-claim-539903
 
-[Read on Telegram](https://t.me/livelawindia/113892)
-
----
-### 2026-07-03T13:32:03+00:00
-'How Can ECI's Seal On Postal Ballots Be Broken?': Karnataka High Court Questions Tampering Allegation Against BJP's DN Jeevaraja
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-continues-interim-stay-fir-mla-jeevaraja-ballot-tampering-case-539859
-
-[Read on Telegram](https://t.me/livelawindia/113893)
+[Read on Telegram](https://t.me/livelawindia/113915)
 
 ---
-### 2026-07-03T13:33:03+00:00
-Employee Cannot Invoke Consumer Forum For Gratuity Claims Against Employer: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/employee-consumer-forum-gratuity-claims-employer-539860
+### 2026-07-04T05:50:48+00:00
+Consumer Law Monthly Round-Up: June 2026
+https://www.livelaw.in/consumer-cases/consumer-law-monthly-round-up-june-2026-539904
 
-[Read on Telegram](https://t.me/livelawindia/113894)
-
----
-### 2026-07-03T13:59:03+00:00
-Publication Of Call For Separate Tamil Nadu Nation Not Sedition; Public Will Doubt Speaker's Mental Health: Supreme Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tamil-nadu-separate-nation-not-sedition-539863
-
-[Read on Telegram](https://t.me/livelawindia/113895)
+[Read on Telegram](https://t.me/livelawindia/113916)
 
 ---
-### 2026-07-03T13:59:23+00:00
-Delhi High Court Issues Notice On IPS Officer's Plea To Remove Matrimonial Dispute Reports From Digital Platforms
-https://www.livelaw.in/high-court/delhi-high-court/right-to-be-forgotten-ips-officer-remove-matrimonial-dispute-reports-539864
+### 2026-07-04T06:02:49+00:00
+Senior Citizens Act Can't Be Invoked To Decide Title Dispute Unless Transfer Is Challengeable Under Section 23: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-section23-senior-citizen-act-title-disputes-scope-of-provision-539901
 
-[Read on Telegram](https://t.me/livelawindia/113896)
-
----
-### 2026-07-03T14:08:23+00:00
-Karnataka High Court Refuses To Stay State Gig Workers Act, Asks Platforms To Deposit Welfare Fund With Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-interim-order-challenge-platform-gig-workers-act-539865
-
-[Read on Telegram](https://t.me/livelawindia/113897)
+[Read on Telegram](https://t.me/livelawindia/113917)
 
 ---
-### 2026-07-03T14:32:53+00:00
-Stock Witnesses – Imperative Need For Procedural Reform
-https://www.livelaw.in/articles/stock-witnesses-imperative-need-procedural-reform-539695
+### 2026-07-04T06:13:39+00:00
+J&K&L High Court Orders Survey Of Hotels, Coaching Centres & Commercial Establishments For Building & Fire Safety Violations
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-orders-jmc-to-survey-hotels-coaching-centres-commercial-establishments-for-building-parking-fire-safety-violations-539910
 
-[Read on Telegram](https://t.me/livelawindia/113898)
-
----
-### 2026-07-03T14:47:33+00:00
-Adult's Reputation Can't Override Child's Right To Know Parentage: Delhi High Court Upholds DNA Test
-https://www.livelaw.in/high-court/delhi-high-court/adults-reputation-cant-override-childs-right-to-know-parentage-delhi-high-court-upholds-dna-test-539872
-
-[Read on Telegram](https://t.me/livelawindia/113899)
+[Read on Telegram](https://t.me/livelawindia/113918)
 
 ---
-### 2026-07-03T15:07:34+00:00
-No Matter What SC Says, Police Act On Their Own Whims: Allahabad High Court Orally Slams Cop For Ignoring 'Satender Antil' Verdict
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-up-police-act-whims-supreme-court-orally-ignore-satender-antil-539875
+### 2026-07-04T06:19:39+00:00
+'Vague Allegations': Patna High Court Dismisses PIL Challenging Award Of ₹28,000-Crore Pirpainti Thermal Power Project To Adani Group
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-dismisses-pil-award-pirpainti-thermal-power-project-adani-group-539916
 
-[Read on Telegram](https://t.me/livelawindia/113900)
-
----
-### 2026-07-03T15:38:04+00:00
-Ram Mandir Donation Theft : RJD MP Moves Supreme Court Seeking Audit Of Ayodhya Trust Finances, CBI Probe
-https://www.livelaw.in/top-stories/ram-mandir-donation-theft-rjd-mp-moves-supreme-court-seeking-audit-of-ayodhya-trust-finances-cbi-probe-539882
-
-[Read on Telegram](https://t.me/livelawindia/113901)
+[Read on Telegram](https://t.me/livelawindia/113919)
 
 ---
-### 2026-07-03T18:03:55+00:00
-CISF Personnel Held To High Standards Of Conduct; Public Drinking, Violent Altercation Warrant Dismissal: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/cisf-personnel-held-to-high-standards-of-conduct-public-drinking-violent-altercation-warrant-dismissal-delhi-high-court-539885
+### 2026-07-04T06:32:19+00:00
+Mere Pendency Of Criminal Cases Does Not Bar Preventive Detention If Material Indicates Threat To Public Order: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-mere-pendency-of-criminal-cases-does-not-bar-preventive-detention-if-material-indicates-threat-to-public-order-539886
 
-[Read on Telegram](https://t.me/livelawindia/113902)
+[Read on Telegram](https://t.me/livelawindia/113920)
 
 ---
-### 2026-07-04T02:49:56+00:00
-Rajasthan High Court Takes Suo Motu Cognizance Of Dacoit's Death Inside Ajmer Central Jail, Seeks Report On 'Inoperative CCTV Cameras'
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-suo-motu-cognizance-dacoit-death-ajmer-central-jail-539889
+### 2026-07-04T06:32:39+00:00
+Subsequent Omission Of "Two-Child" Eligibility Rule Does Not Invalidate Terminations Made While Rule Was In Force: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-twochild-eligibility-rule-invalidate-terminations-539906
 
-[Read on Telegram](https://t.me/livelawindia/113903)
+[Read on Telegram](https://t.me/livelawindia/113921)
+
+---
+### 2026-07-04T06:36:59+00:00
+Misleading Ad Row: NCDRC Criticises District Commission For Issuing Bailable Warrants Against Salman Khan Without Hearing Him
+https://www.livelaw.in/news-updates/ncdrc-district-commission-salman-khan-bailable-warrants-alleged-misleading-ad-539917
+
+[Read on Telegram](https://t.me/livelawindia/113922)
+
+---
+### 2026-07-04T07:02:49+00:00
+Homestay Owner Where US National Was Allegedly Raped Moves Karnataka High Court To Quash Chargesheet Filed Under Repealed Foreigners Act
+https://www.livelaw.in/high-court/karnataka-high-court/homestay-us-national-rape-repealed-foreigners-act-invoked-539902
+
+[Read on Telegram](https://t.me/livelawindia/113923)
+
+---
+### 2026-07-04T07:32:50+00:00
+12-Year Possession Before Santhal Pargana Tenancy Act 1949 Act Must Be Proved To Resist Eviction: Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-possession-proved-resist-eviction-santhal-pargana-tenancy-act-539907
+
+[Read on Telegram](https://t.me/livelawindia/113924)
+
+---
+### 2026-07-04T07:34:50+00:00
+Delhi Riots: Court Reserves Verdict On Bail Pleas By Umar Khalid, Sharjeel Imam In 'Larger Conspiracy' Case
+https://www.livelaw.in/news-updates/delhi-court-umar-khalid-sharjeel-imam-bail-539919
+
+[Read on Telegram](https://t.me/livelawindia/113925)
+
+---
+### 2026-07-04T07:42:50+00:00
+When Can A Judgment Be Declared 'Per Incuriam'? Supreme Court Explains
+https://www.livelaw.in/supreme-court/when-can-a-judgment-be-declared-per-incuriam-supreme-court-explains-539862
+
+[Read on Telegram](https://t.me/livelawindia/113926)
+
+---
+### 2026-07-04T07:52:10+00:00
+Taj Mahal Is 'Tejo Mahalaya' Temple: Plea In High Court Against Agra Court's Refusal To Appoint Advocate-Commissioner For Survey
+https://www.livelaw.in/high-court/allahabad-high-court/taj-mahal-tejo-mahalaya-temple-allahabad-high-court-advocate-commissioner-survey-539920
+
+[Read on Telegram](https://t.me/livelawindia/113927)
+
+---
+### 2026-07-04T08:02:40+00:00
+MP High Court Refuses To Quash FIR Against Three Accused Of Providing Equipment Used For Advertising Religious Conversion
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-dismisses-mans-plea-over-quashing-fir-under-freedom-of-religion-act-539918
+
+[Read on Telegram](https://t.me/livelawindia/113928)
+
+---
+### 2026-07-04T08:32:40+00:00
+'Disrespectful': Rajasthan High Court Orders Suspension Of Tehsildar, Patwari For Failing To Remove Encroachments Despite Judicial Orders
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-orders-departmental-proceedings-tehsildar-suspension-539905
+
+[Read on Telegram](https://t.me/livelawindia/113929)
+
+---
+### 2026-07-04T08:40:21+00:00
+Important MCQs Based On Latest Supreme Court Judgments For Law Examinations
+https://www.livelaw.in/law-exams/important-mcqs-based-on-latest-supreme-court-judgments-for-law-examinations-539921
+
+[Read on Telegram](https://t.me/livelawindia/113930)
 
 ---
