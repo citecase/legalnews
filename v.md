@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-04T13:52:56+00:00*
+*Last Updated: 2026-07-04T14:33:17+00:00*
+
+---
+
+### 2026-07-04T14:33:17+00:00
+Tripura High Court Invites Applications For Post Of Grade-I of Tripura Judicial Service
+https://www.verdictum.in/job-updates/tripura-high-court-1617125
+
+[Source Link](https://t.me/verdictumlegalupdates/27788)
 
 ---
 
@@ -153,14 +161,6 @@ Mere Telephonic Communication Cannot Attract Offence U/S 498A IPC: Karnataka Hig
 https://www.verdictum.in/karnataka-high-court/x-v-state-of-karnataka-2026khc31937-mere-telephonic-calls-by-an-in-law-to-daughter-in-law-us-498a-ipc-1617065
 
 [Source Link](https://t.me/verdictumlegalupdates/27769)
-
----
-
-### 2026-07-03T12:32:35+00:00
-Testimony Of Injured Informant Can't Be Discarded Due To Prior Enmity: Patna High Court Upholds Conviction Of Retired Judicial Officer & Lawyer For Simple Hurt
-https://www.verdictum.in/patna-high-court/conviction-retired-judicial-officer-lawyer-simple-hurt-1617064
-
-[Source Link](https://t.me/verdictumlegalupdates/27768)
 
 ---
 
