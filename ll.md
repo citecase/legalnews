@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-04T07:42:50+00:00*
+*Last Updated: 2026-07-04T09:02:51+00:00*
 
 ---
 
-### 2026-07-04T07:42:50+00:00
-When Can A Judgment Be Declared 'Per Incuriam'? Supreme Court Explains
-https://www.livelaw.in/supreme-court/when-can-a-judgment-be-declared-per-incuriam-supreme-court-explains-539862
-
-[Read on Telegram](https://t.me/livelawindia/113926)
-
----
-### 2026-07-04T07:52:10+00:00
-Taj Mahal Is 'Tejo Mahalaya' Temple: Plea In High Court Against Agra Court's Refusal To Appoint Advocate-Commissioner For Survey
-https://www.livelaw.in/high-court/allahabad-high-court/taj-mahal-tejo-mahalaya-temple-allahabad-high-court-advocate-commissioner-survey-539920
-
-[Read on Telegram](https://t.me/livelawindia/113927)
-
----
-### 2026-07-04T08:02:40+00:00
-MP High Court Refuses To Quash FIR Against Three Accused Of Providing Equipment Used For Advertising Religious Conversion
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-dismisses-mans-plea-over-quashing-fir-under-freedom-of-religion-act-539918
-
-[Read on Telegram](https://t.me/livelawindia/113928)
-
----
-### 2026-07-04T08:32:40+00:00
-'Disrespectful': Rajasthan High Court Orders Suspension Of Tehsildar, Patwari For Failing To Remove Encroachments Despite Judicial Orders
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-orders-departmental-proceedings-tehsildar-suspension-539905
-
-[Read on Telegram](https://t.me/livelawindia/113929)
-
----
-### 2026-07-04T08:40:21+00:00
-Important MCQs Based On Latest Supreme Court Judgments For Law Examinations
-https://www.livelaw.in/law-exams/important-mcqs-based-on-latest-supreme-court-judgments-for-law-examinations-539921
-
-[Read on Telegram](https://t.me/livelawindia/113930)
-
----
 ### 2026-07-04T09:02:51+00:00
 'Merely Giving Inaccurate Information Not Misrepresentation': Bombay High Court Quashes De-Registration Of 45-Year-Old Housing Society
 https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-quashes-deregistration-45yearold-housing-society-539915
@@ -142,5 +107,40 @@ Bombay High Court Upholds Disqualification Of Co-operative Housing Society Manag
 https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-disqualification-cooperative-housing-society-managing-committee-members-539914
 
 [Read on Telegram](https://t.me/livelawindia/113945)
+
+---
+### 2026-07-04T14:32:55+00:00
+Institution-Routed, Not Institution-Neutral: Arbitration's Quiet Return To Unilateral Control
+https://www.livelaw.in/articles/institution-routed-arbitration-return-unilateral-control-539843
+
+[Read on Telegram](https://t.me/livelawindia/113946)
+
+---
+### 2026-07-04T16:01:46+00:00
+Unbridled Discretion: Why Allahabad High Court Wants Software-Based, QR Code-Enabled Caste Certification In UP
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-software-qr-code-caste-certificates-up-539960
+
+[Read on Telegram](https://t.me/livelawindia/113947)
+
+---
+### 2026-07-04T16:16:47+00:00
+To Say Passport Is Only A Travel Document Is Complete Misreading Of Law: Justice Lokur Criticises MEA Stand
+https://www.livelaw.in/top-stories/to-say-passport-is-only-a-travel-document-is-complete-misreading-of-law-justice-lokur-criticises-mea-stand-539961
+
+[Read on Telegram](https://t.me/livelawindia/113948)
+
+---
+### 2026-07-04T18:16:58+00:00
+DNLU Jabalpur To Host National Conference On Tribal Custom, Law, Rights And Reforms
+https://www.livelaw.in/lawschool/call-for-papers/dnlu-jabalpur-to-host-national-conference-on-tribal-custom-law-rights-and-reforms-539962
+
+[Read on Telegram](https://t.me/livelawindia/113949)
+
+---
+### 2026-07-04T18:29:18+00:00
+Parul University's Law Conclave 2026 Brings Supreme Court, High Court Judges And Legal Experts Together To Discuss Justice In Digital Age
+https://www.livelaw.in/lawschool/news/parul-universitys-law-conclave-brings-supreme-court-high-court-judges-justice-digital-age-539963
+
+[Read on Telegram](https://t.me/livelawindia/113950)
 
 ---
