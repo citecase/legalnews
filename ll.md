@@ -1,114 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-04T05:03:58+00:00*
+*Last Updated: 2026-07-04T07:42:50+00:00*
 
 ---
 
-### 2026-07-04T05:03:58+00:00
-Madras High Court Imposes Cost On Joint Secretaries Of External And Home Affairs Ministry For Failing To Assist Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-cost-imposed-external-home-affairs-ministry-failure-assist-court-539898
-
-[Read on Telegram](https://t.me/livelawindia/113911)
-
----
-### 2026-07-04T05:11:28+00:00
-Assistant Manager Vacancy At EY Global Delivery Services [Bengaluru; Apply Now]
-https://www.livelaw.in/job-updates/assistant-manager-vacancy-at-ey-global-delivery-services-bengaluru-539899
-
-[Read on Telegram](https://t.me/livelawindia/113912)
-
----
-### 2026-07-04T05:16:28+00:00
-MP High Court Denies Bail To 'Journalist' Accused Of Extorting Govt Official With Defamatory Posts Over Rejection Of GST Application
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-denies-anticipatory-bail-to-alleged-journalist-for-extorting-assistant-commissioner-of-gst-539900
-
-[Read on Telegram](https://t.me/livelawindia/113913)
-
----
-### 2026-07-04T05:33:08+00:00
-Department Of Education Cannot Impose Recruitment Restrictions On Aided Minority Schools: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/department-of-education-cannot-impose-recruitment-restrictions-on-aided-minority-schools-delhi-high-court-539887
-
-[Read on Telegram](https://t.me/livelawindia/113914)
-
----
-### 2026-07-04T05:45:48+00:00
-Delhi  Consumer Commission Holds Tata AIG Liable For Wrongfully Repudiating Insurance Claim
-https://www.livelaw.in/consumer-cases/delhi-consumer-commission-holds-tata-aig-liable-for-wrongfully-repudiating-insurance-claim-539903
-
-[Read on Telegram](https://t.me/livelawindia/113915)
-
----
-### 2026-07-04T05:50:48+00:00
-Consumer Law Monthly Round-Up: June 2026
-https://www.livelaw.in/consumer-cases/consumer-law-monthly-round-up-june-2026-539904
-
-[Read on Telegram](https://t.me/livelawindia/113916)
-
----
-### 2026-07-04T06:02:49+00:00
-Senior Citizens Act Can't Be Invoked To Decide Title Dispute Unless Transfer Is Challengeable Under Section 23: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-section23-senior-citizen-act-title-disputes-scope-of-provision-539901
-
-[Read on Telegram](https://t.me/livelawindia/113917)
-
----
-### 2026-07-04T06:13:39+00:00
-J&K&L High Court Orders Survey Of Hotels, Coaching Centres & Commercial Establishments For Building & Fire Safety Violations
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-orders-jmc-to-survey-hotels-coaching-centres-commercial-establishments-for-building-parking-fire-safety-violations-539910
-
-[Read on Telegram](https://t.me/livelawindia/113918)
-
----
-### 2026-07-04T06:19:39+00:00
-'Vague Allegations': Patna High Court Dismisses PIL Challenging Award Of ₹28,000-Crore Pirpainti Thermal Power Project To Adani Group
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-dismisses-pil-award-pirpainti-thermal-power-project-adani-group-539916
-
-[Read on Telegram](https://t.me/livelawindia/113919)
-
----
-### 2026-07-04T06:32:19+00:00
-Mere Pendency Of Criminal Cases Does Not Bar Preventive Detention If Material Indicates Threat To Public Order: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-mere-pendency-of-criminal-cases-does-not-bar-preventive-detention-if-material-indicates-threat-to-public-order-539886
-
-[Read on Telegram](https://t.me/livelawindia/113920)
-
----
-### 2026-07-04T06:32:39+00:00
-Subsequent Omission Of "Two-Child" Eligibility Rule Does Not Invalidate Terminations Made While Rule Was In Force: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-twochild-eligibility-rule-invalidate-terminations-539906
-
-[Read on Telegram](https://t.me/livelawindia/113921)
-
----
-### 2026-07-04T06:36:59+00:00
-Misleading Ad Row: NCDRC Criticises District Commission For Issuing Bailable Warrants Against Salman Khan Without Hearing Him
-https://www.livelaw.in/news-updates/ncdrc-district-commission-salman-khan-bailable-warrants-alleged-misleading-ad-539917
-
-[Read on Telegram](https://t.me/livelawindia/113922)
-
----
-### 2026-07-04T07:02:49+00:00
-Homestay Owner Where US National Was Allegedly Raped Moves Karnataka High Court To Quash Chargesheet Filed Under Repealed Foreigners Act
-https://www.livelaw.in/high-court/karnataka-high-court/homestay-us-national-rape-repealed-foreigners-act-invoked-539902
-
-[Read on Telegram](https://t.me/livelawindia/113923)
-
----
-### 2026-07-04T07:32:50+00:00
-12-Year Possession Before Santhal Pargana Tenancy Act 1949 Act Must Be Proved To Resist Eviction: Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-possession-proved-resist-eviction-santhal-pargana-tenancy-act-539907
-
-[Read on Telegram](https://t.me/livelawindia/113924)
-
----
-### 2026-07-04T07:34:50+00:00
-Delhi Riots: Court Reserves Verdict On Bail Pleas By Umar Khalid, Sharjeel Imam In 'Larger Conspiracy' Case
-https://www.livelaw.in/news-updates/delhi-court-umar-khalid-sharjeel-imam-bail-539919
-
-[Read on Telegram](https://t.me/livelawindia/113925)
-
----
 ### 2026-07-04T07:42:50+00:00
 When Can A Judgment Be Declared 'Per Incuriam'? Supreme Court Explains
 https://www.livelaw.in/supreme-court/when-can-a-judgment-be-declared-per-incuriam-supreme-court-explains-539862
@@ -142,5 +37,110 @@ Important MCQs Based On Latest Supreme Court Judgments For Law Examinations
 https://www.livelaw.in/law-exams/important-mcqs-based-on-latest-supreme-court-judgments-for-law-examinations-539921
 
 [Read on Telegram](https://t.me/livelawindia/113930)
+
+---
+### 2026-07-04T09:02:51+00:00
+'Merely Giving Inaccurate Information Not Misrepresentation': Bombay High Court Quashes De-Registration Of 45-Year-Old Housing Society
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-quashes-deregistration-45yearold-housing-society-539915
+
+[Read on Telegram](https://t.me/livelawindia/113931)
+
+---
+### 2026-07-04T09:17:31+00:00
+Mere Execution Of Family Arrangement Does Not Constitute Admission Of Suit Properties Being HUF Properties: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-mere-execution-family-arrangement-huf-properties-539908
+
+[Read on Telegram](https://t.me/livelawindia/113932)
+
+---
+### 2026-07-04T09:32:51+00:00
+India's Child Marriage Framework: While Permitting Union Criminalizing Its Consummation
+https://www.livelaw.in/articles/india-child-marriage-framework-permitting-union-criminalizing-consummation-539842
+
+[Read on Telegram](https://t.me/livelawindia/113933)
+
+---
+### 2026-07-04T09:53:01+00:00
+Bihar Agricultural University Statutes Operate Prospectively, Can't Convert 2011 Direct Recruitment Into Tenure Appointment: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-bihar-agricultural-university-statutes-operate-prospectively-539909
+
+[Read on Telegram](https://t.me/livelawindia/113934)
+
+---
+### 2026-07-04T09:59:01+00:00
+Sub-Registrars Aren't Liable For Revenue Loss If Relied On District Registrar's  Verification:AP HC
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/sub-registrars-arent-liable-for-revenue-loss-if-relied-on-district-registrars-verificationap-hc-539925
+
+[Read on Telegram](https://t.me/livelawindia/113935)
+
+---
+### 2026-07-04T10:24:01+00:00
+Bhang Doesn't Fall Within Definition Of 'Cannabis (Hemp)' Under NDPS Act: Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-bhang-cannabis-ndps-act-539932
+
+[Read on Telegram](https://t.me/livelawindia/113936)
+
+---
+### 2026-07-04T10:42:23+00:00
+Can Borrowed Vehicle Driver Maintain Claim Before MACT Under Comprehensive Insurance Policy? Delhi High Court Answers
+https://www.livelaw.in/high-court/delhi-high-court/can-borrowed-vehicle-driver-maintain-claim-before-mact-under-comprehensive-insurance-policy-delhi-high-court-answers-539911
+
+[Read on Telegram](https://t.me/livelawindia/113937)
+
+---
+### 2026-07-04T10:43:22+00:00
+Supreme Court Refuses To Interfere With Delhi HC Order Allowing Wife To Seek Husband's Hotel, CDR Records To Prove Adultery
+https://www.livelaw.in/supreme-court/supreme-court-refuses-to-interfere-with-delhi-hc-order-allowing-wife-to-seek-husbands-hotel-cdr-records-to-prove-adultery-539935
+
+[Read on Telegram](https://t.me/livelawindia/113938)
+
+---
+### 2026-07-04T11:03:13+00:00
+Breaking | Court Denies Bail To Umar Khalid, Sharjeel Imam In Delhi Riots Larger Conspiracy Case
+https://www.livelaw.in/top-stories/umar-khalid-sharjeel-imam-bail-denied-delhi-riots-uapa-539937
+
+[Read on Telegram](https://t.me/livelawindia/113939)
+
+---
+### 2026-07-04T11:08:13+00:00
+[Advertisement] NLU Delhi, Mentblue Launch Certificate Course On "Contract And Commercial Drafting: Strategy And Negotiation" – Register Now!
+https://www.livelaw.in/lawschool/diploma-certificate-courses/nlu-delhi-mentblue-launch-certificate-course-contract-and-commercial-drafting-539938
+
+[Read on Telegram](https://t.me/livelawindia/113940)
+
+---
+### 2026-07-04T11:32:53+00:00
+LiveLaw Madras High Court Half Yearly Digest: January - June, 2026
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-half-yearly-digest-january-to-june-539503
+
+[Read on Telegram](https://t.me/livelawindia/113941)
+
+---
+### 2026-07-04T11:52:43+00:00
+Allowances Benefiting Family Must Be Included While Computing Deceased MLA's Income For MACT Compensation: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/allowances-benefiting-family-must-be-included-while-computing-deceased-mlas-income-for-mact-compensation-delhi-high-court-539912
+
+[Read on Telegram](https://t.me/livelawindia/113942)
+
+---
+### 2026-07-04T12:06:03+00:00
+Based On Delay Can't Quash  Dept Enquiry Into Grave Charges If Employer Not Fully At Fault: AP HC
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/based-on-delay-cant-quash-dept-enquiry-into-grave-charges-if-employer-not-fully-at-fault-ap-hc-539943
+
+[Read on Telegram](https://t.me/livelawindia/113943)
+
+---
+### 2026-07-04T12:47:34+00:00
+Discharging Duties Of Higher Post Doesn't Entitle Employee To Higher Pay Without Formal Appointment: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/discharging-duties-of-higher-post-doesnt-entitle-employee-to-higher-pay-without-formal-appointment-delhi-high-court-539913
+
+[Read on Telegram](https://t.me/livelawindia/113944)
+
+---
+### 2026-07-04T13:12:34+00:00
+Bombay High Court Upholds Disqualification Of Co-operative Housing Society Managing Committee Members For Deliberate Failure To Supply Documents
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-disqualification-cooperative-housing-society-managing-committee-members-539914
+
+[Read on Telegram](https://t.me/livelawindia/113945)
 
 ---
