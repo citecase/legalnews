@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-03T10:43:09+00:00*
+*Last Updated: 2026-07-03T11:07:10+00:00*
 
 ---
 
-### 2026-07-03T10:43:09+00:00
-Supreme Court Orders Status Quo On Audit Of Delhi's Electricity Distribution Companies
-https://www.livelaw.in/top-stories/supreme-court-aptel-order-status-quo-cag-audit-of-delhi-electricity-distribution-companies-appointment-of-ca-stayed-539831
-
-[Read on Telegram](https://t.me/livelawindia/113883)
-
----
 ### 2026-07-03T11:07:10+00:00
 S. 362 CrPC No Bar To Altering Bail Conditions: Allahabad High Court Revokes 'Onerous' ₹64 Lakh Deposit Condition After 12 Yrs
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-rules-section-362-crpc-no-bar-modifying-bail-conditions-interlocutory-order-539835
@@ -142,5 +135,12 @@ CISF Personnel Held To High Standards Of Conduct; Public Drinking, Violent Alter
 https://www.livelaw.in/high-court/delhi-high-court/cisf-personnel-held-to-high-standards-of-conduct-public-drinking-violent-altercation-warrant-dismissal-delhi-high-court-539885
 
 [Read on Telegram](https://t.me/livelawindia/113902)
+
+---
+### 2026-07-04T02:49:56+00:00
+Rajasthan High Court Takes Suo Motu Cognizance Of Dacoit's Death Inside Ajmer Central Jail, Seeks Report On 'Inoperative CCTV Cameras'
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-suo-motu-cognizance-dacoit-death-ajmer-central-jail-539889
+
+[Read on Telegram](https://t.me/livelawindia/113903)
 
 ---
