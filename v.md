@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-04T14:33:17+00:00*
+*Last Updated: 2026-07-05T04:32:44+00:00*
+
+---
+
+### 2026-07-05T04:32:44+00:00
+Delhi High Court Flags "Chaos" In GNCTD OBC Recruitment Notifications, Says Ambiguous Conditions Leave Candidates And Courts In Uncertainty
+https://www.verdictum.in/delhi-high-court/shashi-v-delhi-subordinate-services-selection-board-ors-2026dhc5291-db-1617126
+
+[Source Link](https://t.me/verdictumlegalupdates/27789)
 
 ---
 
@@ -153,14 +161,6 @@ Ex-Employee Claiming Gratuity Does Not Qualify As "Consumer": Kerala High Court 
 https://www.verdictum.in/kerala-high-court/2026-ker-47052-tirur-services-co-operative-bank-v-moideen-m-1617066
 
 [Source Link](https://t.me/verdictumlegalupdates/27770)
-
----
-
-### 2026-07-03T13:12:36+00:00
-Mere Telephonic Communication Cannot Attract Offence U/S 498A IPC: Karnataka High Court Quashes Proceedings Against Sister-In-Law
-https://www.verdictum.in/karnataka-high-court/x-v-state-of-karnataka-2026khc31937-mere-telephonic-calls-by-an-in-law-to-daughter-in-law-us-498a-ipc-1617065
-
-[Source Link](https://t.me/verdictumlegalupdates/27769)
 
 ---
 
