@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-05T09:02:58+00:00*
+*Last Updated: 2026-07-05T13:32:42+00:00*
+
+---
+
+### 2026-07-05T13:32:42+00:00
+Divorce Can’t Take Place Merely On Execution Of Notarized Agreement Of Divorce: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/ram-kripal-singh-v-the-state-of-madhya-pradesh-2026mphc-gwl19161-divorce-deceased-govt-employee-1617138
+
+[Source Link](https://t.me/verdictumlegalupdates/27795)
+
+---
+
+### 2026-07-05T12:02:41+00:00
+Claims Under Personal Accident Cover Not Maintainable Before MACT, Must Be Decided As Per Insurance Contract: Delhi High Court
+https://www.verdictum.in/delhi-high-court/simbal-singh-v-amarjit-singh-anr-2026dhc5185-personal-insurance-claims-mact-1617137
+
+[Source Link](https://t.me/verdictumlegalupdates/27794)
+
+---
+
+### 2026-07-05T10:32:40+00:00
+Public Premises Act Overrides Maharashtra Rent Control Act Even For Tenancies Predating It: Bombay High Court Rejects Tenancy Suit
+https://www.verdictum.in/bombay-high-court/lic-v-abhishek-vasant-chavan-civil-revision-application-no-24-of-2022-public-premises-act-1971-rent-control-act-1617136
+
+[Source Link](https://t.me/verdictumlegalupdates/27793)
 
 ---
 
@@ -137,30 +161,6 @@ UGC's Modified Guidelines Recognise Pre-2022 Simultaneous Degrees: Delhi HC Dire
 https://www.verdictum.in/delhi-high-court/mohammad-anees-v-national-education-society-for-tribal-students-2026dhc5303-db-ugcs-modified-guidelines-recognise-pre-2022-simultaneous-degrees-1617095
 
 [Source Link](https://t.me/verdictumlegalupdates/27776)
-
----
-
-### 2026-07-04T05:12:41+00:00
-Married Woman Govt Servant Eligible For 12-Week Maternity Leave For Third Child: Madras High Court Rejects Woman’s Plea Seeking Payment For 1 Year Leave
-https://www.verdictum.in/madras-high-court/sdivya-v-the-registrar-general-2026mhc2429-govt-servant-maternity-leave-1617093
-
-[Source Link](https://t.me/verdictumlegalupdates/27775)
-
----
-
-### 2026-07-04T04:32:30+00:00
-Streedhana Remains Exclusive Property Of Wife With Full Decision-Making Autonomy: Madras High Court Directs Husband To Return Jewellery & Articles
-https://www.verdictum.in/madras-high-court/v-v-s-2026mhc2431-streedhana-remains-exclusive-property-of-wife-husband-return-jewellery-1617089
-
-[Source Link](https://t.me/verdictumlegalupdates/27774)
-
----
-
-### 2026-07-03T15:53:11+00:00
-Para Legal Personnel (Women) Vacancy At DWCWEO West Godavari
-https://www.verdictum.in/job-updates/district-women-child-welfare-empowerment-office-1617071
-
-[Source Link](https://t.me/verdictumlegalupdates/27773)
 
 ---
 
