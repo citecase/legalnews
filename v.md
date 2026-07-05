@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-05T13:32:42+00:00*
+*Last Updated: 2026-07-05T15:02:03+00:00*
+
+---
+
+### 2026-07-05T15:02:03+00:00
+Delhi Higher Judicial Service (HJS) Vacancy At Delhi High Court
+https://www.verdictum.in/job-updates/delhi-high-court-1617128
+
+[Source Link](https://t.me/verdictumlegalupdates/27796)
 
 ---
 
@@ -153,14 +161,6 @@ Dog Is A Perfect Companion To Divine Power: Punjab & Haryana HC Quashes FIR Agai
 https://www.verdictum.in/punjab-and-haryana-high-court/ranjanni-gaur-v-state-of-punjab-2026phhc088828-pet-dog-dressed-as-lord-krishna-on-whatsapp-status-1617103
 
 [Source Link](https://t.me/verdictumlegalupdates/27777)
-
----
-
-### 2026-07-04T06:03:03+00:00
-UGC's Modified Guidelines Recognise Pre-2022 Simultaneous Degrees: Delhi HC Directs National Education Society For Tribal Students To Reconsider Cancelled PGT Candidatures
-https://www.verdictum.in/delhi-high-court/mohammad-anees-v-national-education-society-for-tribal-students-2026dhc5303-db-ugcs-modified-guidelines-recognise-pre-2022-simultaneous-degrees-1617095
-
-[Source Link](https://t.me/verdictumlegalupdates/27776)
 
 ---
 
