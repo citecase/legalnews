@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-05T04:32:44+00:00*
+*Last Updated: 2026-07-05T09:02:58+00:00*
+
+---
+
+### 2026-07-05T09:02:58+00:00
+Jammu & Kashmir And Ladakh HC Asks Municipal Commissioner To Undertake Survey Of Commercial Establishments For Effective Implementation Of Municipal Laws
+https://www.verdictum.in/jammu-ladakh-high-court/adm-jammu-municipality-v-surat-singh-municipal-commissioner-commercial-establishments-1617134
+
+[Source Link](https://t.me/verdictumlegalupdates/27792)
+
+---
+
+### 2026-07-05T07:33:17+00:00
+Trying To Play Dilatory Tactics; Made Inconsistent Statements In Pleadings: Madhya Pradesh HC Imposes Cost on Petitioner Who Is Lawyer
+https://www.verdictum.in/madhya-pradesh-high-court/divyaprakash-v-brijesh-kumar-2026mphc-ind17448-dilatory-tactics-practicing-lawyer-1617132
+
+[Source Link](https://t.me/verdictumlegalupdates/27791)
+
+---
+
+### 2026-07-05T06:02:56+00:00
+Motor Accident Compensation| Surviving Earning Husband Entitled To "Loss Of Dependency" Upon Death Of Earning Wife: Delhi High Court
+https://www.verdictum.in/delhi-high-court/oriental-insurance-co-ltd-v-vinay-jain-2026dhc5198-surviving-earning-husband-entitled-in-motor-accident-claim-1617127
+
+[Source Link](https://t.me/verdictumlegalupdates/27790)
 
 ---
 
@@ -137,30 +161,6 @@ Para Legal Personnel (Women) Vacancy At DWCWEO West Godavari
 https://www.verdictum.in/job-updates/district-women-child-welfare-empowerment-office-1617071
 
 [Source Link](https://t.me/verdictumlegalupdates/27773)
-
----
-
-### 2026-07-03T15:12:49+00:00
-Not Willful: Delhi High Court Absolves Lawyers, Husband Of Contempt For Filing Intimate Photos In Divorce Petition
-https://www.verdictum.in/delhi-high-court/a-v-b-2026dhc5224-disobedience-general-directions-sensitive-information-matrimonial-cases-1617070
-
-[Source Link](https://t.me/verdictumlegalupdates/27772)
-
----
-
-### 2026-07-03T14:32:28+00:00
-Two Crucial Dates For Promotion Discriminatory: Delhi High Court Upholds Quashing Of DANIPS, DANICS Amendment Rules 2022
-https://www.verdictum.in/delhi-high-court/union-of-india-v-sanjeev-kumar-yadav-2026dhc5215-db-quashing-of-danips-danics-amendment-rules-2022-1617067
-
-[Source Link](https://t.me/verdictumlegalupdates/27771)
-
----
-
-### 2026-07-03T13:52:57+00:00
-Ex-Employee Claiming Gratuity Does Not Qualify As "Consumer": Kerala High Court Quashes Consumer Commission Order Citing Lack Of Jurisdiction
-https://www.verdictum.in/kerala-high-court/2026-ker-47052-tirur-services-co-operative-bank-v-moideen-m-1617066
-
-[Source Link](https://t.me/verdictumlegalupdates/27770)
 
 ---
 
