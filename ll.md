@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-04T12:06:03+00:00*
+*Last Updated: 2026-07-04T14:32:55+00:00*
 
 ---
 
-### 2026-07-04T12:06:03+00:00
-Based On Delay Can't Quash  Dept Enquiry Into Grave Charges If Employer Not Fully At Fault: AP HC
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/based-on-delay-cant-quash-dept-enquiry-into-grave-charges-if-employer-not-fully-at-fault-ap-hc-539943
-
-[Read on Telegram](https://t.me/livelawindia/113943)
-
----
-### 2026-07-04T12:47:34+00:00
-Discharging Duties Of Higher Post Doesn't Entitle Employee To Higher Pay Without Formal Appointment: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/discharging-duties-of-higher-post-doesnt-entitle-employee-to-higher-pay-without-formal-appointment-delhi-high-court-539913
-
-[Read on Telegram](https://t.me/livelawindia/113944)
-
----
-### 2026-07-04T13:12:34+00:00
-Bombay High Court Upholds Disqualification Of Co-operative Housing Society Managing Committee Members For Deliberate Failure To Supply Documents
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-disqualification-cooperative-housing-society-managing-committee-members-539914
-
-[Read on Telegram](https://t.me/livelawindia/113945)
-
----
 ### 2026-07-04T14:32:55+00:00
 Institution-Routed, Not Institution-Neutral: Arbitration's Quiet Return To Unilateral Control
 https://www.livelaw.in/articles/institution-routed-arbitration-return-unilateral-control-539843
@@ -142,5 +121,26 @@ What Mamla Legal Hai Gets Right And Misses About Death Penalty
 https://www.livelaw.in/articles/mamla-legal-hai-gets-right-misses-death-penalty-539975
 
 [Read on Telegram](https://t.me/livelawindia/113962)
+
+---
+### 2026-07-05T09:32:49+00:00
+Beyond Boilerplate: GST Indemnities In Commercial Contracts And Allocation Of Tax Risk
+https://www.livelaw.in/articles/gst-indemnities-commercial-contracts-allocation-tax-risk-539846
+
+[Read on Telegram](https://t.me/livelawindia/113963)
+
+---
+### 2026-07-05T10:09:39+00:00
+Lucknow Fire Tragedy | Loss Of Lives Was Preventable: High Court Flags Inaction Of Authorities, Regulatory Failures; Seeks Safety SOP
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-lucknow-fire-tragedy-inaction-regulatory-failures-safety-sop-539983
+
+[Read on Telegram](https://t.me/livelawindia/113964)
+
+---
+### 2026-07-05T11:33:20+00:00
+LiveLaw Madhya Pradesh High Court Monthly Digest: June 2026
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-monthly-digest-june-2026-539535
+
+[Read on Telegram](https://t.me/livelawindia/113965)
 
 ---
