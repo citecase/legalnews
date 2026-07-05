@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-04T14:32:55+00:00*
+*Last Updated: 2026-07-04T16:16:47+00:00*
 
 ---
 
-### 2026-07-04T14:32:55+00:00
-Institution-Routed, Not Institution-Neutral: Arbitration's Quiet Return To Unilateral Control
-https://www.livelaw.in/articles/institution-routed-arbitration-return-unilateral-control-539843
-
-[Read on Telegram](https://t.me/livelawindia/113946)
-
----
-### 2026-07-04T16:01:46+00:00
-Unbridled Discretion: Why Allahabad High Court Wants Software-Based, QR Code-Enabled Caste Certification In UP
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-software-qr-code-caste-certificates-up-539960
-
-[Read on Telegram](https://t.me/livelawindia/113947)
-
----
 ### 2026-07-04T16:16:47+00:00
 To Say Passport Is Only A Travel Document Is Complete Misreading Of Law: Justice Lokur Criticises MEA Stand
 https://www.livelaw.in/top-stories/to-say-passport-is-only-a-travel-document-is-complete-misreading-of-law-justice-lokur-criticises-mea-stand-539961
@@ -142,5 +128,19 @@ LiveLaw Madhya Pradesh High Court Monthly Digest: June 2026
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-monthly-digest-june-2026-539535
 
 [Read on Telegram](https://t.me/livelawindia/113965)
+
+---
+### 2026-07-05T14:32:32+00:00
+From US–EU Divergence To Global Approach In AI Governance
+https://www.livelaw.in/articles/us-eu-divergence-global-approach-ai-governance-539847
+
+[Read on Telegram](https://t.me/livelawindia/113966)
+
+---
+### 2026-07-05T15:26:03+00:00
+Supreme Court's Judgment Expanding UAPA To Make Speech 'Terrorist Act' Puts Political Dissent At Risk : Rebecca John
+https://www.livelaw.in/top-stories/supreme-courts-judgment-expanding-uapa-to-make-speech-terrorist-act-puts-political-dissent-at-risk-rebecca-john-539984
+
+[Read on Telegram](https://t.me/livelawindia/113967)
 
 ---
