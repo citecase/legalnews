@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-06T11:02:47+00:00*
+*Last Updated: 2026-07-06T15:02:57+00:00*
+
+---
+
+### 2026-07-06T15:02:57+00:00
+Can’t Sell Tobacco Products Close To School: Delhi High Court Prohibits Vendor From Selling Products Harmful To Children
+https://www.verdictum.in/delhi-high-court/noor-alam-v-municipal-corporation-of-delhi-2026dhc5295-db-tobacco-products-vendor-1617238
+
+[Source Link](https://t.me/verdictumlegalupdates/27817)
+
+---
+
+### 2026-07-06T14:33:16+00:00
+Reliance On Newspaper Clippings Or YouTube References Doesn’t Meet Threshold Of Sufficient Research For Filing PIL: Madras High Court
+https://www.verdictum.in/madras-high-court/dradhakrishnan-v-union-of-india-reliance-digital-gossip-research-mandated-for-pil-1617237
+
+[Source Link](https://t.me/verdictumlegalupdates/27816)
+
+---
+
+### 2026-07-06T14:02:35+00:00
+Provided Equipment For Advertising Inducement For Religious Conversion: Madhya Pradesh High Court Upholds Order Framing Charge
+https://www.verdictum.in/madhya-pradesh-high-court/jagram-v-the-state-of-madhya-pradesh-2026mphc-ind16889-religious-conversion-charge-1617236
+
+[Source Link](https://t.me/verdictumlegalupdates/27815)
+
+---
+
+### 2026-07-06T13:32:53+00:00
+Husband Can’t Disobey Family Court’s Order To Pay Maintenance On Ground That He Is Negotiating Settlement: Delhi High Court
+https://www.verdictum.in/delhi-high-court/a-v-b-2026dhc5337-db-husband-family-court-order-maintenance-settlement-1617235
+
+[Source Link](https://t.me/verdictumlegalupdates/27814)
+
+---
+
+### 2026-07-06T13:03:12+00:00
+Patna High Court Criticizes Arbitrary Road Construction On Private Raiyati Land; Directs District Magistrate To Personally Ensure Lawful Acquisition
+https://www.verdictum.in/patna-high-court/arbitrary-road-construction-private-raiyati-land-district-magistrate-lawful-acquisition-1617229
+
+[Source Link](https://t.me/verdictumlegalupdates/27813)
+
+---
+
+### 2026-07-06T12:32:51+00:00
+Former Director Not Liable U/S 138 NI Act For Cheque Issued In Name Of Dissolved Company; Such Instrument Is Void Ab Initio: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/rakesh-ramakanth-v-somashekara-gowda-rg-negotiable-instruments-cheque-1617228
+
+[Source Link](https://t.me/verdictumlegalupdates/27812)
+
+---
+
+### 2026-07-06T12:03:10+00:00
+Serving Arrest Notice On Advocate Nominated By Accused Satisfies Section 48 BNSS Mandate: Kerala High Court
+https://www.verdictum.in/kerala-high-court/2026-ker-46863-nithin-ka-v-state-of-kerala-1617226
+
+[Source Link](https://t.me/verdictumlegalupdates/27811)
+
+---
+
+### 2026-07-06T11:32:49+00:00
+Commercial Partnership Dissolution Deed Cannot By Itself Establish Existence Of Ancestral Nucleus Or Joint Family Property: Bombay High Court
+https://www.verdictum.in/bombay-high-court/arti-varun-kejriwal-ors-v-vandana-vinay-awatramani-ors-hindu-undivided-family-1617223
+
+[Source Link](https://t.me/verdictumlegalupdates/27810)
 
 ---
 
@@ -97,70 +161,6 @@ Officer Didn’t Clean Bottle Before Taking Samples: Gujarat High Court Upholds 
 https://www.verdictum.in/gujarat-high-court/state-of-gujarat-v-chimanbhai-bhanubhai-chaudhari-2026gujhc40381-officer-acquittal-accused-1617194
 
 [Source Link](https://t.me/verdictumlegalupdates/27798)
-
----
-
-### 2026-07-06T04:32:51+00:00
-Co-Accused Lacks Legal Right To Be Heard At Pre-Trial Stage Of Tender Of Pardon U/S 306 CrPC: Delhi High Court
-https://www.verdictum.in/delhi-high-court/tajinder-pal-singh-v-directorate-of-enforcement-2026dhc5353-pre-trial-stage-of-tender-of-pardon-us-306-crpc-1617139
-
-[Source Link](https://t.me/verdictumlegalupdates/27797)
-
----
-
-### 2026-07-05T15:02:03+00:00
-Delhi Higher Judicial Service (HJS) Vacancy At Delhi High Court
-https://www.verdictum.in/job-updates/delhi-high-court-1617128
-
-[Source Link](https://t.me/verdictumlegalupdates/27796)
-
----
-
-### 2026-07-05T13:32:42+00:00
-Divorce Can’t Take Place Merely On Execution Of Notarized Agreement Of Divorce: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/ram-kripal-singh-v-the-state-of-madhya-pradesh-2026mphc-gwl19161-divorce-deceased-govt-employee-1617138
-
-[Source Link](https://t.me/verdictumlegalupdates/27795)
-
----
-
-### 2026-07-05T12:02:41+00:00
-Claims Under Personal Accident Cover Not Maintainable Before MACT, Must Be Decided As Per Insurance Contract: Delhi High Court
-https://www.verdictum.in/delhi-high-court/simbal-singh-v-amarjit-singh-anr-2026dhc5185-personal-insurance-claims-mact-1617137
-
-[Source Link](https://t.me/verdictumlegalupdates/27794)
-
----
-
-### 2026-07-05T10:32:40+00:00
-Public Premises Act Overrides Maharashtra Rent Control Act Even For Tenancies Predating It: Bombay High Court Rejects Tenancy Suit
-https://www.verdictum.in/bombay-high-court/lic-v-abhishek-vasant-chavan-civil-revision-application-no-24-of-2022-public-premises-act-1971-rent-control-act-1617136
-
-[Source Link](https://t.me/verdictumlegalupdates/27793)
-
----
-
-### 2026-07-05T09:02:58+00:00
-Jammu & Kashmir And Ladakh HC Asks Municipal Commissioner To Undertake Survey Of Commercial Establishments For Effective Implementation Of Municipal Laws
-https://www.verdictum.in/jammu-ladakh-high-court/adm-jammu-municipality-v-surat-singh-municipal-commissioner-commercial-establishments-1617134
-
-[Source Link](https://t.me/verdictumlegalupdates/27792)
-
----
-
-### 2026-07-05T07:33:17+00:00
-Trying To Play Dilatory Tactics; Made Inconsistent Statements In Pleadings: Madhya Pradesh HC Imposes Cost on Petitioner Who Is Lawyer
-https://www.verdictum.in/madhya-pradesh-high-court/divyaprakash-v-brijesh-kumar-2026mphc-ind17448-dilatory-tactics-practicing-lawyer-1617132
-
-[Source Link](https://t.me/verdictumlegalupdates/27791)
-
----
-
-### 2026-07-05T06:02:56+00:00
-Motor Accident Compensation| Surviving Earning Husband Entitled To "Loss Of Dependency" Upon Death Of Earning Wife: Delhi High Court
-https://www.verdictum.in/delhi-high-court/oriental-insurance-co-ltd-v-vinay-jain-2026dhc5198-surviving-earning-husband-entitled-in-motor-accident-claim-1617127
-
-[Source Link](https://t.me/verdictumlegalupdates/27790)
 
 ---
 
