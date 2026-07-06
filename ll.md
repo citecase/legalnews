@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-06T07:32:28+00:00*
+*Last Updated: 2026-07-06T11:33:01+00:00*
 
 ---
 
-### 2026-07-06T07:32:28+00:00
-Delhi Govt Has Created 'Utter Chaos' In OBC Reservation Rules Through Confusing Notifications: High Court
-https://www.livelaw.in/high-court/delhi-high-court/delhi-govt-has-created-utter-chaos-in-obc-reservation-rules-through-confusing-notifications-high-court-540054
+### 2026-07-06T11:33:01+00:00
+A Fraudster's Best Friend
+https://www.livelaw.in/articles/fraudster-best-friend-540102
 
-[Read on Telegram](https://t.me/livelawindia/114004)
-
----
-### 2026-07-06T07:48:18+00:00
-Karnataka High Court Grants Bail To Persons Booked For Defacing Dr BR Ambedkar's Portrait With Cow Dung
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-grants-bail-allegedly-defacing-ambedkar-portrait-cow-dung-540070
-
-[Read on Telegram](https://t.me/livelawindia/114005)
+[Read on Telegram](https://t.me/livelawindia/114031)
 
 ---
-### 2026-07-06T08:02:19+00:00
-PMLA | Assets From Unknown Sources Can't Be Presumed To Be Derived From Scheduled Offence Constituting 'Proceeds Of Crime': Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/pmla-assets-derived-unknown-sources-not-proceeds-of-crime-scheduled-offence-540040
+### 2026-07-06T11:47:41+00:00
+No Legal Bar To Re-Arrest After First Arrest Declared Illegal, But Investigating Agency Must Obtain Prior Judicial Approval: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/fresh-arrest-after-illegal-arrest-permissible-judicial-scrutiny-540116
 
-[Read on Telegram](https://t.me/livelawindia/114006)
-
----
-### 2026-07-06T08:17:59+00:00
-Railways Can't Deny Accident Compensation Merely By Disputing Recovery Of Deceased's Ticket: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/railways-cant-deny-accident-compensation-merely-by-disputing-recovery-of-deceaseds-ticket-calcutta-high-court-540031
-
-[Read on Telegram](https://t.me/livelawindia/114007)
+[Read on Telegram](https://t.me/livelawindia/114032)
 
 ---
-### 2026-07-06T08:26:19+00:00
-SBI Liable For Disclosing Customer's Savings Account Details To Employer Without Consent: Lakhimpur Kheri Consumer Commission
-https://www.livelaw.in/consumer-cases/sbi-liable-for-disclosing-customers-savings-account-details-to-employer-without-consent-lakhimpur-kheri-consumer-commission-540076
+### 2026-07-06T12:03:01+00:00
+Adultery No Longer A Crime: Jharkhand High Court Quashes Constable's Dismissal Over Alleged Adulterous Relationship
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-quashes-constable-dismissal-alleged-adulterous-relationship-540060
 
-[Read on Telegram](https://t.me/livelawindia/114008)
-
----
-### 2026-07-06T08:33:29+00:00
-Promotion On Day  Of Superannuation, Employee Entitled To All Promotional Benefits: Karnataka HC
-https://www.livelaw.in/high-court/karnataka-high-court/promotion-on-day-of-superannuation-employee-entitled-to-all-promotional-benefits-karnataka-hc-540033
-
-[Read on Telegram](https://t.me/livelawindia/114009)
+[Read on Telegram](https://t.me/livelawindia/114033)
 
 ---
-### 2026-07-06T08:33:59+00:00
-Ram Mandir Donation Row: High Court Refuses To Entertain PIL For CBI Probe, Says Similar Matter Already Reached SC
-https://www.livelaw.in/high-court/allahabad-high-court/ram-mandir-donation-allahabad-high-court-pil-cbi-probe-supreme-court-540078
+### 2026-07-06T12:17:31+00:00
+Rajasthan High Court Flags 'Intentional' Police Lapse In Murder Probe, Refuses Bail To Juvenile Accused
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-rejects-bail-minor-accused-police-investigation-intentional-lapse-540101
 
-[Read on Telegram](https://t.me/livelawindia/114010)
-
----
-### 2026-07-06T08:47:29+00:00
-'Go To Police, Have Faith In System': Supreme Court On Plea Seeking Action Over Comments Against Prophet
-https://www.livelaw.in/top-stories/supreme-court-declines-urgent-listing-of-pil-assailing-derogatory-comments-against-prophet-muhammad-go-to-police-first-have-faith-in-system-540080
-
-[Read on Telegram](https://t.me/livelawindia/114011)
+[Read on Telegram](https://t.me/livelawindia/114034)
 
 ---
-### 2026-07-06T08:47:49+00:00
-Job Aspirants Can't Insist On Retention Of Faculty Posts: Andhra Pradesh High Court Upholds GO Reducing Posts At Sri Venkateswara University
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-upholds-faculty-rationalisation-sri-venkateswara-university-540051
+### 2026-07-06T12:32:51+00:00
+'Population Explosion More Dangerous Than Hydrogen Bomb': Orissa High Court Upholds Disqualification For Having More Than Two Children
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-upholds-cooperative-society-president-disqualification-540104
 
-[Read on Telegram](https://t.me/livelawindia/114012)
-
----
-### 2026-07-06T09:02:29+00:00
-Mere Omission Or Misplacement Of Document Page Doesn't Warrant Review Of Judgment Unless It Caused Manifest Injustice: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-mere-omission-misplacement-nontagging-page-sufficient-ground-review-540039
-
-[Read on Telegram](https://t.me/livelawindia/114013)
+[Read on Telegram](https://t.me/livelawindia/114035)
 
 ---
-### 2026-07-06T09:13:09+00:00
-'Classic Example Of Improper, Lackadaisical Investigation': Patna High Court Acquits Murder Convict, Orders Probe Against Investigating Officer
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-acquits-murder-convict-orders-probe-investigating-officer-540055
+### 2026-07-06T12:36:11+00:00
+Caught Red-Handed With ₹300 In 1977, Allahabad High Court Upholds Lekhpal's Conviction After 49 Years
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-non-examination-complainant-not-fatal-bribery-trap-upholds-1985-conviction-540127
 
-[Read on Telegram](https://t.me/livelawindia/114014)
-
----
-### 2026-07-06T09:21:49+00:00
-Prosecution Sanction And Jurisdictional Contours Of The High Courts In The Exercise Of Writ Jurisdiction
-https://www.livelaw.in/articles/high-courts-writ-jurisdiction-prosecution-sanction-judicial-discipline-540088
-
-[Read on Telegram](https://t.me/livelawindia/114015)
+[Read on Telegram](https://t.me/livelawindia/114036)
 
 ---
-### 2026-07-06T09:25:09+00:00
-E20 Petrol Debate: A Look At Supreme Court Proceedings
-https://www.livelaw.in/top-stories/e20-petrol-debate-a-look-at-supreme-court-proceedings-540089
+### 2026-07-06T12:47:31+00:00
+Addressing Panchayat Secy As 'Tum-Tam' Or 'Mere-Tere' Is Not Instigation To Commit Suicide: Jharkhand High Court Quashes FIR Against BDO
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-quashes-fir-bdo-abetting-panchayat-secretary-suicide-540059
 
-[Read on Telegram](https://t.me/livelawindia/114016)
-
----
-### 2026-07-06T09:27:29+00:00
-JHALSA Holds State-Level Workshop To Strengthen Financial Management In District Legal Services Authorities
-https://www.livelaw.in/news-updates/jhalsa-state-level-workshop-strengthen-financial-management-district-legal-services-authorities-540063
-
-[Read on Telegram](https://t.me/livelawindia/114017)
+[Read on Telegram](https://t.me/livelawindia/114037)
 
 ---
-### 2026-07-06T09:32:19+00:00
-Reclaiming Peaceful Death Through Living Will
-https://www.livelaw.in/top-stories/peaceful-death-living-will-540007
+### 2026-07-06T13:02:11+00:00
+Karnataka High Court Slams Police For Making Lawyer Accused In Murder Case Allegedly To Examine CCTV Footage From His Adjoining Premises
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-advocate-accused-murder-case-residence-cctv-footage-540132
 
-[Read on Telegram](https://t.me/livelawindia/114018)
-
----
-### 2026-07-06T09:32:59+00:00
-LiveLaw Kerala High Court Weekly Roundup: June 29 - July 05, 2026
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-weekly-round-up-june-july-2026-540006
-
-[Read on Telegram](https://t.me/livelawindia/114019)
+[Read on Telegram](https://t.me/livelawindia/114038)
 
 ---
-### 2026-07-06T09:48:00+00:00
-Kerala High Court Closes Plea Against Proposed Eviction At Malayodamthuruthu After Parties Reach Settlement
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-malayidomthuruthu-eviction-settlement-540072
+### 2026-07-06T13:12:22+00:00
+Electricity Theft | Inspection Report Prepared By Officials Carries Presumption Of Correctness Unless Rebutted: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-official-panchnama-discarded-lack-of-independent-witnesses-540062
 
-[Read on Telegram](https://t.me/livelawindia/114020)
-
----
-### 2026-07-06T09:52:00+00:00
-O.P. Jindal Global University Hosts 3rd India–Japan Higher Education Forum 2026 In Tokyo
-https://www.livelaw.in/lawschool/news/op-jindal-global-university-hosts-3rd-indiajapan-higher-education-forum-2026-tokyo-540097
-
-[Read on Telegram](https://t.me/livelawindia/114021)
+[Read on Telegram](https://t.me/livelawindia/114039)
 
 ---
-### 2026-07-06T10:03:20+00:00
-J&K&L High Court Declines To Fix 45-Day Timeline For Disposal Of RTI Appeals, Directs CIC To Improve Mechanism For Clearing Pendency
-https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-declines-to-fix-45-day-timeline-for-disposal-of-rti-appeals-directs-cic-to-improve-mechanism-for-clearing-pendency-540056
+### 2026-07-06T13:15:02+00:00
+Collegium System Turned Out Total Disaster : Dushyant Dave; Sibal Says He Regrets Appearing In 'Second Judges Case'
+https://www.livelaw.in/top-stories/kapil-sibal-dushyant-dave-interview-collegium-system-disaster-appointment-of-judges-less-merit-executive-interference-judges-targeted-for-decisions-540135
 
-[Read on Telegram](https://t.me/livelawindia/114022)
+[Read on Telegram](https://t.me/livelawindia/114040)
 
 ---
-### 2026-07-06T10:17:40+00:00
-Wife's Claim To Share In Ancestral Property Can Constitute Dowry Demand If Made Under Husband's Pressure: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/wifes-demand-for-share-in-parents-ancestral-property-can-become-dowry-demand-if-made-under-husbands-pressure-calcutta-high-court-540036
+### 2026-07-06T13:32:42+00:00
+Vendors Can't Verify Every UPI Customer's Credentials; Their Bank Account Can't Be Frozen Over Buyer's Involvement In Cybercrime: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-vendors-verify-upi-customer-antecedents-540137
 
-[Read on Telegram](https://t.me/livelawindia/114023)
+[Read on Telegram](https://t.me/livelawindia/114041)
+
+---
+### 2026-07-06T13:48:02+00:00
+LiveLaw Punjab & Haryana High Court Weekly Round-Up: June 29 - July 05, 2026
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-weekly-round-up-29-june-5-july-540087
+
+[Read on Telegram](https://t.me/livelawindia/114042)
+
+---
+### 2026-07-06T14:03:12+00:00
+Immoral Trafficking Act | Safeguards Under Section 15(2) Not Mandatory For Search In Commercial Premises Like Spas: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-immoral-trafficking-act-search-mandatory-condition-not-for-commercial-premises-540126
+
+[Read on Telegram](https://t.me/livelawindia/114043)
+
+---
+### 2026-07-06T14:17:52+00:00
+'Can't Stigmatize Over Medical Condition': Karnataka High Court Permits Priest Having Vitiligo To Perform Rituals At Chamundeshwari Temple
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-allows-hereditary-priest-perform-pujas-chamundeshwari-temple-540096
+
+[Read on Telegram](https://t.me/livelawindia/114044)
+
+---
+### 2026-07-06T14:32:32+00:00
+'Can't Get Rights After Avoiding Duty': Karnataka High Court Denies Visitation To Father Who Gave Up Rights In Divorce Settlement
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-denies-visitation-rights-absentee-father-540120
+
+[Read on Telegram](https://t.me/livelawindia/114045)
+
+---
+### 2026-07-06T14:33:12+00:00
+Analysing Bank Guarantee And Special Equities - Murky Line Between Pre-2019 And Post-2019 Ruling
+https://www.livelaw.in/lawschool/articles/bank-guarantee-special-equities-539959
+
+[Read on Telegram](https://t.me/livelawindia/114046)
+
+---
+### 2026-07-06T14:47:52+00:00
+25 Yrs After Conviction, P&H High Court Declares Rape Convict Was 'Juvenile', Modifies Sentence
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/rape-convict-juvenile-after-25-years-sentence-reduced-540138
+
+[Read on Telegram](https://t.me/livelawindia/114047)
+
+---
+### 2026-07-06T15:02:42+00:00
+Kerala High Court Stays Criminal Proceedings Against Businessman Boby Chemmanur In Sexual Harassment Case
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-boby-chemannur-sexual-harassment-stay-540139
+
+[Read on Telegram](https://t.me/livelawindia/114048)
+
+---
+### 2026-07-06T15:18:22+00:00
+Positive DNA Report Not Sufficient To Sustain POCSO Conviction If Complainant's Age Is Not Proved: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/pocso-conviction-based-on-positive-dna-report-insufficient-540140
+
+[Read on Telegram](https://t.me/livelawindia/114049)
+
+---
+### 2026-07-06T15:32:42+00:00
+Can Absconding Accused Claim Default Bail If Police Doesn't File Supplementary Chargesheet After His Arrest? MP High Court Answers
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/default-bail-no-supplementary-chargesheet-absconding-accused-arrest-540143
+
+[Read on Telegram](https://t.me/livelawindia/114050)
 
 ---
