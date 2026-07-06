@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-06T04:32:51+00:00*
+*Last Updated: 2026-07-06T11:02:47+00:00*
+
+---
+
+### 2026-07-06T11:02:47+00:00
+"No Means No": Delhi High Court Upholds ₹5L Compensation Against Aaj Tak for Telecasting Child Sexual Abuse Victim's Identity Despite Mother's Express Refusal
+https://www.verdictum.in/delhi-high-court/tv-today-network-limited-v-abc-2026dhc5173-db-child-sexual-abuse-victims-identity-despite-mothers-express-refusal-1617222
+
+[Source Link](https://t.me/verdictumlegalupdates/27809)
+
+---
+
+### 2026-07-06T10:32:56+00:00
+Hostility Of Prosecution Witnesses Not Germane Consideration To Grant Of Bail: Patna High Court
+https://www.verdictum.in/patna-high-court/birendra-yadav-v-the-state-of-bihar-anr-bail-hostile-witness-irrelevant-1617220
+
+[Source Link](https://t.me/verdictumlegalupdates/27808)
+
+---
+
+### 2026-07-06T10:02:52+00:00
+Executive Magistrate Cannot Initiate Section 145 CrPC Proceedings Against Person Having Possession Of Disputed Property For More Than Two Months: Gauhati HC
+https://www.verdictum.in/guwahati-high-court/2026-gau-as-9381-zahirul-haque-laskar-v-state-of-assam-1617219
+
+[Source Link](https://t.me/verdictumlegalupdates/27807)
+
+---
+
+### 2026-07-06T09:32:31+00:00
+Bribe Demand By Public Servant Not Necessary U/S 7 PC Act If Offer & Acceptance Of Illegal Gratification Are Proved: Kerala High Court
+https://www.verdictum.in/kerala-high-court/d-jayanarayana-v-the-state-of-kerala-2026ker44468-prevention-of-corruption-1617218
+
+[Source Link](https://t.me/verdictumlegalupdates/27806)
+
+---
+
+### 2026-07-06T09:02:30+00:00
+Separate Punishments Under IPC & POCSO For Same Act Of Penetrative Sexual Assault Upon Child Is Illegal: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/2025-ahc-lko-42623-db-anku-parshuram-v-state-of-up-1617216
+
+[Source Link](https://t.me/verdictumlegalupdates/27805)
+
+---
+
+### 2026-07-06T08:32:29+00:00
+Christian Wives Should Not Be Denied The Right To File Divorce Petition At Place Of Residence: Kerala High Court Urges Parliament To Amend Divorce Act
+https://www.verdictum.in/kerala-high-court/p-v-union-of-india-2026ker47197-christian-wives-to-file-divorce-at-place-of-residence-divorce-act-1617215
+
+[Source Link](https://t.me/verdictumlegalupdates/27804)
+
+---
+
+### 2026-07-06T08:02:48+00:00
+Child's Right To Know Parentage Prevails Over Alleged Father's Reputational Concerns: Delhi High Court Permits DNA Test To Determine Paternity
+https://www.verdictum.in/delhi-high-court/rv-v-gd-2026-dhc-5340-dna-paternity-test-right-to-know-parentage-reputational-harm-1617212
+
+[Source Link](https://t.me/verdictumlegalupdates/27803)
+
+---
+
+### 2026-07-06T07:32:26+00:00
+Weekly Overview| Supreme Court Judgments: June 29 – July 03, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-june-29-july-03-2026-1617210
+
+[Source Link](https://t.me/verdictumlegalupdates/27802)
+
+---
+
+### 2026-07-06T07:02:25+00:00
+Immoral Trafficking Is An Offence Against Humanity; Minor Contradictions Cannot Defeat Prosecution Case: Bombay High Court Upholds Brothel Operator’s Conviction
+https://www.verdictum.in/bombay-high-court/rita-dilip-ghosh-v-state-of-maharashtra-revision-application-no-227-of-2003-immoral-trafficking-offence-against-humanity-brothel-operator-1617207
+
+[Source Link](https://t.me/verdictumlegalupdates/27801)
+
+---
+
+### 2026-07-06T06:33:07+00:00
+Supreme Court Agrees To Hear Plea Alleging "Active Influencing" Of Witnesses By Tamil Nadu Ministers In Karur Stampede Case
+https://www.verdictum.in/supreme-court/active-influencing-of-witnesses-by-tamil-nadu-ministers-karur-stampede-case-1617202
+
+[Source Link](https://t.me/verdictumlegalupdates/27800)
+
+---
+
+### 2026-07-06T05:52:43+00:00
+Land Acquisition Lapses For Non-Compliance With Timeline U/S 6 Land Acquisition Act: Bombay High Court While Shifting Notification Date To Protect Land Already Put To Public Use
+https://www.verdictum.in/bombay-high-court/manak-yeshwant-patil-v-municipal-corporation-of-greater-mumbai-writ-petition-no-1755-of-2011-land-acquisition-protect-land-already-put-to-public-use-1617195
+
+[Source Link](https://t.me/verdictumlegalupdates/27799)
+
+---
+
+### 2026-07-06T05:13:02+00:00
+Officer Didn’t Clean Bottle Before Taking Samples: Gujarat High Court Upholds Acquittal Of Man Accused Of Selling Kaju Katli Coated With Aluminium Foil
+https://www.verdictum.in/gujarat-high-court/state-of-gujarat-v-chimanbhai-bhanubhai-chaudhari-2026gujhc40381-officer-acquittal-accused-1617194
+
+[Source Link](https://t.me/verdictumlegalupdates/27798)
 
 ---
 
@@ -65,102 +161,6 @@ Motor Accident Compensation| Surviving Earning Husband Entitled To "Loss Of Depe
 https://www.verdictum.in/delhi-high-court/oriental-insurance-co-ltd-v-vinay-jain-2026dhc5198-surviving-earning-husband-entitled-in-motor-accident-claim-1617127
 
 [Source Link](https://t.me/verdictumlegalupdates/27790)
-
----
-
-### 2026-07-05T04:32:44+00:00
-Delhi High Court Flags "Chaos" In GNCTD OBC Recruitment Notifications, Says Ambiguous Conditions Leave Candidates And Courts In Uncertainty
-https://www.verdictum.in/delhi-high-court/shashi-v-delhi-subordinate-services-selection-board-ors-2026dhc5291-db-1617126
-
-[Source Link](https://t.me/verdictumlegalupdates/27789)
-
----
-
-### 2026-07-04T14:33:17+00:00
-Tripura High Court Invites Applications For Post Of Grade-I of Tripura Judicial Service
-https://www.verdictum.in/job-updates/tripura-high-court-1617125
-
-[Source Link](https://t.me/verdictumlegalupdates/27788)
-
----
-
-### 2026-07-04T13:52:56+00:00
-Homemaker's Notional Income Need Not Be Based On Lowest Minimum Wage In Absence Of Documentary Proof: Delhi High Court
-https://www.verdictum.in/delhi-high-court/uma-rani-through-spa-pankaj-thakur-v-simranjeet-singh-ors-2026dhc5183-1617124
-
-[Source Link](https://t.me/verdictumlegalupdates/27787)
-
----
-
-### 2026-07-04T13:12:35+00:00
-Juvenile Can’t Be Denied Bail In Heinous Crimes Even If Aged Above 16 Unless Detention Is Necessary For Rehabilitation: Patna High Court
-https://www.verdictum.in/patna-high-court/bittu-kumar-bittu-yadav-v-the-state-of-bihar-juvenile-justice-act-bail-1617123
-
-[Source Link](https://t.me/verdictumlegalupdates/27786)
-
----
-
-### 2026-07-04T12:32:13+00:00
-Delhi High Court Sentences UK-Based Businessman To Six Months' Imprisonment For Contempt In Child Maintenance Case; Directs CBI To Seek INTERPOL Red Corner Notice
-https://www.verdictum.in/delhi-high-court/s-v-t-2026dhc5225-interpol-red-corner-notice-uk-based-businessman-to-six-months-imprisonment-1617122
-
-[Source Link](https://t.me/verdictumlegalupdates/27785)
-
----
-
-### 2026-07-04T11:53:12+00:00
-Demanding Separate Nationhood For Tamil Nadu Will Not Be Sedition In Today’s Scenario: Madras High Court
-https://www.verdictum.in/madras-high-court/keera-v-the-state-2026mhc2483-recording-book-separate-tamil-nadu-1617121
-
-[Source Link](https://t.me/verdictumlegalupdates/27784)
-
----
-
-### 2026-07-04T11:13:11+00:00
-Places of Worship Act Does Not Curtail State's Power To Acquire Religious Places For Public Purpose: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/syed-rashid-ali-ors-v-state-of-up-ors-2026ahc130818-db-places-of-worship-1617119
-
-[Source Link](https://t.me/verdictumlegalupdates/27783)
-
----
-
-### 2026-07-04T10:32:50+00:00
-Delhi High Court Upholds Validity Of 10% Management Quota Admission Rules For Professional Colleges
-https://www.verdictum.in/delhi-high-court/2026dhc5243db-justice-for-all-v-honble-lieutenant-governor-1617118
-
-[Source Link](https://t.me/verdictumlegalupdates/27782)
-
----
-
-### 2026-07-04T09:53:08+00:00
-Civil Court Can Restore Original Identity: Karnataka High Court Directs School Records To Correct Hindu Boy's Name & Religion Erroneously Entered As Muslim
-https://www.verdictum.in/karnataka-high-court/kumar-arush-v-the-state-of-karnataka-2026khc-d8405-hindu-boys-name-religion-erroneously-entered-as-muslim-1617117
-
-[Source Link](https://t.me/verdictumlegalupdates/27781)
-
----
-
-### 2026-07-04T09:12:27+00:00
-Motor Accident Compensation| Original Wrongdoer Liable For Entire Injury Despite Intervening Act Contributing To Final Damage: Delhi High Court
-https://www.verdictum.in/delhi-high-court/united-india-insurance-co-ltd-v-mamta-rani-ors-2026dhc5200-mv-act-1617115
-
-[Source Link](https://t.me/verdictumlegalupdates/27780)
-
----
-
-### 2026-07-04T08:32:46+00:00
-Insurance Company Can’t Escape Liability By Contending That Two-Wheeler Bundled Policy Doesn’t Cover Pillion Rider: Madras High Court
-https://www.verdictum.in/madras-high-court/ms-icici-lombard-gic-ltd-v-s-barkathulla-insurance-company-liability-policy-pillion-rider-1617114
-
-[Source Link](https://t.me/verdictumlegalupdates/27779)
-
----
-
-### 2026-07-04T07:43:05+00:00
-No Place For Pleading Personal Laws: Allahabad High Court Refuses To Quash FIR Against  Man Accused Of Committing Rape Under Guise Of Triple Talaq & Nikah Halala
-https://www.verdictum.in/allahabad-high-court/tayyab-v-state-of-up-and-others-2026ahc129754-db-fir-rape-triple-talaq-nikah-halala-1617107
-
-[Source Link](https://t.me/verdictumlegalupdates/27778)
 
 ---
 
