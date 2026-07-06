@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-06T11:33:01+00:00*
+*Last Updated: 2026-07-06T11:47:41+00:00*
 
 ---
 
-### 2026-07-06T11:33:01+00:00
-A Fraudster's Best Friend
-https://www.livelaw.in/articles/fraudster-best-friend-540102
-
-[Read on Telegram](https://t.me/livelawindia/114031)
-
----
 ### 2026-07-06T11:47:41+00:00
 No Legal Bar To Re-Arrest After First Arrest Declared Illegal, But Investigating Agency Must Obtain Prior Judicial Approval: Kerala High Court
 https://www.livelaw.in/high-court/kerala-high-court/fresh-arrest-after-illegal-arrest-permissible-judicial-scrutiny-540116
@@ -142,5 +135,12 @@ Can Absconding Accused Claim Default Bail If Police Doesn't File Supplementary C
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/default-bail-no-supplementary-chargesheet-absconding-accused-arrest-540143
 
 [Read on Telegram](https://t.me/livelawindia/114050)
+
+---
+### 2026-07-06T16:24:53+00:00
+TCS Nashik Case: Sessions Court Grants Bail To Prime Accused Nida Khan
+https://www.livelaw.in/news-updates/nashik-court-grants-bail-prime-accused-nida-khan-540154
+
+[Read on Telegram](https://t.me/livelawindia/114051)
 
 ---
