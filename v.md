@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-06T15:02:57+00:00*
+*Last Updated: 2026-07-06T16:02:58+00:00*
+
+---
+
+### 2026-07-06T16:02:58+00:00
+Law Officer Vacancy At Institute of Banking Personnel Selection (IBPS)
+https://www.verdictum.in/job-updates/institute-of-banking-personnel-selection-1617231
+
+[Source Link](https://t.me/verdictumlegalupdates/27818)
 
 ---
 
@@ -153,14 +161,6 @@ Land Acquisition Lapses For Non-Compliance With Timeline U/S 6 Land Acquisition 
 https://www.verdictum.in/bombay-high-court/manak-yeshwant-patil-v-municipal-corporation-of-greater-mumbai-writ-petition-no-1755-of-2011-land-acquisition-protect-land-already-put-to-public-use-1617195
 
 [Source Link](https://t.me/verdictumlegalupdates/27799)
-
----
-
-### 2026-07-06T05:13:02+00:00
-Officer Didn’t Clean Bottle Before Taking Samples: Gujarat High Court Upholds Acquittal Of Man Accused Of Selling Kaju Katli Coated With Aluminium Foil
-https://www.verdictum.in/gujarat-high-court/state-of-gujarat-v-chimanbhai-bhanubhai-chaudhari-2026gujhc40381-officer-acquittal-accused-1617194
-
-[Source Link](https://t.me/verdictumlegalupdates/27798)
 
 ---
 
