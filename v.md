@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-05T15:02:03+00:00*
+*Last Updated: 2026-07-06T04:32:51+00:00*
+
+---
+
+### 2026-07-06T04:32:51+00:00
+Co-Accused Lacks Legal Right To Be Heard At Pre-Trial Stage Of Tender Of Pardon U/S 306 CrPC: Delhi High Court
+https://www.verdictum.in/delhi-high-court/tajinder-pal-singh-v-directorate-of-enforcement-2026dhc5353-pre-trial-stage-of-tender-of-pardon-us-306-crpc-1617139
+
+[Source Link](https://t.me/verdictumlegalupdates/27797)
 
 ---
 
@@ -153,14 +161,6 @@ No Place For Pleading Personal Laws: Allahabad High Court Refuses To Quash FIR A
 https://www.verdictum.in/allahabad-high-court/tayyab-v-state-of-up-and-others-2026ahc129754-db-fir-rape-triple-talaq-nikah-halala-1617107
 
 [Source Link](https://t.me/verdictumlegalupdates/27778)
-
----
-
-### 2026-07-04T06:57:24+00:00
-Dog Is A Perfect Companion To Divine Power: Punjab & Haryana HC Quashes FIR Against Woman Displaying Pet Dog Dressed As Lord Krishna On Whatsapp Status
-https://www.verdictum.in/punjab-and-haryana-high-court/ranjanni-gaur-v-state-of-punjab-2026phhc088828-pet-dog-dressed-as-lord-krishna-on-whatsapp-status-1617103
-
-[Source Link](https://t.me/verdictumlegalupdates/27777)
 
 ---
 
