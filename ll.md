@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-06T12:17:31+00:00*
+*Last Updated: 2026-07-07T07:22:56+00:00*
 
 ---
 
-### 2026-07-06T12:17:31+00:00
-Rajasthan High Court Flags 'Intentional' Police Lapse In Murder Probe, Refuses Bail To Juvenile Accused
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-rejects-bail-minor-accused-police-investigation-intentional-lapse-540101
+### 2026-07-07T07:22:56+00:00
+AMMA Row: Hill Palace Police Registers FIR Against Lakshmipriya and Two Others on Actor Ansiba Hassan's Complaint
+https://www.livelaw.in/news-updates/amma-row-hill-palace-lakshmipriya-ansiba-hassan-540191
 
-[Read on Telegram](https://t.me/livelawindia/114034)
-
----
-### 2026-07-06T12:32:51+00:00
-'Population Explosion More Dangerous Than Hydrogen Bomb': Orissa High Court Upholds Disqualification For Having More Than Two Children
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-upholds-cooperative-society-president-disqualification-540104
-
-[Read on Telegram](https://t.me/livelawindia/114035)
+[Read on Telegram](https://t.me/livelawindia/114079)
 
 ---
-### 2026-07-06T12:36:11+00:00
-Caught Red-Handed With ₹300 In 1977, Allahabad High Court Upholds Lekhpal's Conviction After 49 Years
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-non-examination-complainant-not-fatal-bribery-trap-upholds-1985-conviction-540127
+### 2026-07-07T07:23:06+00:00
+Delhi High Court Denies Bail To Accused Athar Khan In Delhi Riots Larger Conspiracy Case
+https://www.livelaw.in/high-court/delhi-high-court/delhi-riots-athar-khan-bail-denied-uapa-540192
 
-[Read on Telegram](https://t.me/livelawindia/114036)
-
----
-### 2026-07-06T12:47:31+00:00
-Addressing Panchayat Secy As 'Tum-Tam' Or 'Mere-Tere' Is Not Instigation To Commit Suicide: Jharkhand High Court Quashes FIR Against BDO
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-quashes-fir-bdo-abetting-panchayat-secretary-suicide-540059
-
-[Read on Telegram](https://t.me/livelawindia/114037)
+[Read on Telegram](https://t.me/livelawindia/114080)
 
 ---
-### 2026-07-06T13:02:11+00:00
-Karnataka High Court Slams Police For Making Lawyer Accused In Murder Case Allegedly To Examine CCTV Footage From His Adjoining Premises
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-advocate-accused-murder-case-residence-cctv-footage-540132
+### 2026-07-07T07:31:46+00:00
+Proof Of Attestation Not Proof Of Will's Genuineness When There Are Suspicious Circumstances: Supreme Court
+https://www.livelaw.in/supreme-court/proof-of-attestation-not-proof-of-wills-genuineness-supreme-court-540193
 
-[Read on Telegram](https://t.me/livelawindia/114038)
-
----
-### 2026-07-06T13:12:22+00:00
-Electricity Theft | Inspection Report Prepared By Officials Carries Presumption Of Correctness Unless Rebutted: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-official-panchnama-discarded-lack-of-independent-witnesses-540062
-
-[Read on Telegram](https://t.me/livelawindia/114039)
+[Read on Telegram](https://t.me/livelawindia/114081)
 
 ---
-### 2026-07-06T13:15:02+00:00
-Collegium System Turned Out Total Disaster : Dushyant Dave; Sibal Says He Regrets Appearing In 'Second Judges Case'
-https://www.livelaw.in/top-stories/kapil-sibal-dushyant-dave-interview-collegium-system-disaster-appointment-of-judges-less-merit-executive-interference-judges-targeted-for-decisions-540135
+### 2026-07-07T07:33:46+00:00
+2026 LiveLaw (SC) 655 |  Sardari Lal v. Bishan Dass & Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-655-sardari-lal-v-bishan-dass-ors-540194
 
-[Read on Telegram](https://t.me/livelawindia/114040)
-
----
-### 2026-07-06T13:32:42+00:00
-Vendors Can't Verify Every UPI Customer's Credentials; Their Bank Account Can't Be Frozen Over Buyer's Involvement In Cybercrime: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-vendors-verify-upi-customer-antecedents-540137
-
-[Read on Telegram](https://t.me/livelawindia/114041)
+[Read on Telegram](https://t.me/livelawindia/114082)
 
 ---
-### 2026-07-06T13:48:02+00:00
-LiveLaw Punjab & Haryana High Court Weekly Round-Up: June 29 - July 05, 2026
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-weekly-round-up-29-june-5-july-540087
+### 2026-07-07T07:45:36+00:00
+Arrestee Who Refuses To Accept Grounds Of Arrest Can't Seek Bail Solely On Plea Of Non-Communication: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/bail-non-intimation-of-arrest-arrestee-refuses-accept-grounds-of-arrest-intimated-540195
 
-[Read on Telegram](https://t.me/livelawindia/114042)
-
----
-### 2026-07-06T14:03:12+00:00
-Immoral Trafficking Act | Safeguards Under Section 15(2) Not Mandatory For Search In Commercial Premises Like Spas: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-immoral-trafficking-act-search-mandatory-condition-not-for-commercial-premises-540126
-
-[Read on Telegram](https://t.me/livelawindia/114043)
+[Read on Telegram](https://t.me/livelawindia/114083)
 
 ---
-### 2026-07-06T14:17:52+00:00
-'Can't Stigmatize Over Medical Condition': Karnataka High Court Permits Priest Having Vitiligo To Perform Rituals At Chamundeshwari Temple
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-allows-hereditary-priest-perform-pujas-chamundeshwari-temple-540096
+### 2026-07-07T07:55:56+00:00
+Asian Games 2026: Supreme Court Allows Urgent Listing Of Plea Challenging Dressage Team Selection
+https://www.livelaw.in/top-stories/supreme-court-allows-urgent-listing-equestrian-federation-selection-criteria-dressage-event-asian-games-540196
 
-[Read on Telegram](https://t.me/livelawindia/114044)
-
----
-### 2026-07-06T14:32:32+00:00
-'Can't Get Rights After Avoiding Duty': Karnataka High Court Denies Visitation To Father Who Gave Up Rights In Divorce Settlement
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-denies-visitation-rights-absentee-father-540120
-
-[Read on Telegram](https://t.me/livelawindia/114045)
+[Read on Telegram](https://t.me/livelawindia/114084)
 
 ---
-### 2026-07-06T14:33:12+00:00
-Analysing Bank Guarantee And Special Equities - Murky Line Between Pre-2019 And Post-2019 Ruling
-https://www.livelaw.in/lawschool/articles/bank-guarantee-special-equities-539959
+### 2026-07-07T07:58:56+00:00
+Hindu Marriage Can't Be Solemnised Or Dissolved Through Notarised Agreements: Madhya Pradesh High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-hindu-marriage-divorce-notarised-agreement-540197
 
-[Read on Telegram](https://t.me/livelawindia/114046)
-
----
-### 2026-07-06T14:47:52+00:00
-25 Yrs After Conviction, P&H High Court Declares Rape Convict Was 'Juvenile', Modifies Sentence
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/rape-convict-juvenile-after-25-years-sentence-reduced-540138
-
-[Read on Telegram](https://t.me/livelawindia/114047)
+[Read on Telegram](https://t.me/livelawindia/114085)
 
 ---
-### 2026-07-06T15:02:42+00:00
-Kerala High Court Stays Criminal Proceedings Against Businessman Boby Chemmanur In Sexual Harassment Case
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-boby-chemannur-sexual-harassment-stay-540139
+### 2026-07-07T08:09:56+00:00
+Documentary Evidence Can't Be Basis Of Guilt In Departmental Proceedings Unless Proved Through Oral Evidence: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-documentary-evidence-annexed-chargesheet-not-proved-oral-evidence-540198
 
-[Read on Telegram](https://t.me/livelawindia/114048)
-
----
-### 2026-07-06T15:18:22+00:00
-Positive DNA Report Not Sufficient To Sustain POCSO Conviction If Complainant's Age Is Not Proved: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/pocso-conviction-based-on-positive-dna-report-insufficient-540140
-
-[Read on Telegram](https://t.me/livelawindia/114049)
+[Read on Telegram](https://t.me/livelawindia/114086)
 
 ---
-### 2026-07-06T15:32:42+00:00
-Can Absconding Accused Claim Default Bail If Police Doesn't File Supplementary Chargesheet After His Arrest? MP High Court Answers
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/default-bail-no-supplementary-chargesheet-absconding-accused-arrest-540143
+### 2026-07-07T08:27:16+00:00
+Pregnancy Termination Cases Are 'Urgent', Authorities Can't Waste Time By Seeking Court's Permission When Not Required: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-medical-termination-of-pregnancy-urgent-matter-needing-prompt-action-540201
 
-[Read on Telegram](https://t.me/livelawindia/114050)
-
----
-### 2026-07-06T16:24:53+00:00
-TCS Nashik Case: Sessions Court Grants Bail To Prime Accused Nida Khan
-https://www.livelaw.in/news-updates/nashik-court-grants-bail-prime-accused-nida-khan-540154
-
-[Read on Telegram](https://t.me/livelawindia/114051)
+[Read on Telegram](https://t.me/livelawindia/114087)
 
 ---
-### 2026-07-07T03:32:24+00:00
-Rajasthan High Court Refuses Bail To 'Myanmar Nationals' Accused Of Trafficking Rohingya Girls Under Guise Of Marriage
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-refuses-bail-myanmar-nationals-trafficking-rohingya-girls-540155
+### 2026-07-07T08:32:36+00:00
+LiveLaw Karnataka High Court Weekly Round Up: June 29 - July 05, 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-round-up-540179
 
-[Read on Telegram](https://t.me/livelawindia/114052)
+[Read on Telegram](https://t.me/livelawindia/114088)
 
 ---
-### 2026-07-07T03:33:44+00:00
-Assistant Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP [Mumbai; Apply Now]
-https://www.livelaw.in/job-updates/assistant-manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-540159
+### 2026-07-07T08:45:06+00:00
+Delhi High Court Grants Bail To Two Accused In PFI Money Laundering Case, Says ED Failed To Establish Payments Were 'Proceeds Of Crime'
+https://www.livelaw.in/high-court/delhi-high-court/pfi-money-laundering-bail-ed-proceeds-of-crime-scheduled-offence-540204
 
-[Read on Telegram](https://t.me/livelawindia/114053)
+[Read on Telegram](https://t.me/livelawindia/114089)
+
+---
+### 2026-07-07T08:49:46+00:00
+DMK MLA Senthil Balaji Approaches Madras High Court Seeking Anticipatory Bail In Case Alleging He Offered ₹35 Crore Bribe To TVK MLA
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tvk-mla-horse-trading-senthil-balaji-anticipatory-bail-540205
+
+[Read on Telegram](https://t.me/livelawindia/114090)
+
+---
+### 2026-07-07T09:00:26+00:00
+Preventive Detention Of Person Already In Jail Vitiated If Detaining Authority Doesn't Know Case In Which He Is Incarcerated: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-preventive-detention-person-already-in-jail-detaining-authority-satisfaction-540207
+
+[Read on Telegram](https://t.me/livelawindia/114091)
+
+---
+### 2026-07-07T09:02:46+00:00
+2008 Delhi Serial Bomb Blasts: High Court Denies Bail To 'Indian Mujahideen' Operative Mansoor Asghar Peerbhoy
+https://www.livelaw.in/high-court/delhi-high-court/2008-delhi-serial-bomb-blasts-mansoor-asghar-peerbhoy-bail-denied-540208
+
+[Read on Telegram](https://t.me/livelawindia/114092)
+
+---
+### 2026-07-07T09:12:06+00:00
+Gujarat High Court Grants Bail To Man Booked For Extorting Complainant With AI-Generated 'Defamatory Videos'
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-bail-extortion-ai-defamatory-videos-540211
+
+[Read on Telegram](https://t.me/livelawindia/114093)
+
+---
+### 2026-07-07T09:22:06+00:00
+Contents Of FIR Inadmissible, Cannot Be Proved Through Scribe If Informant Dies Natural Death Before Testifying: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-contents-fir-inadmissible-cant-prove-scribe-informant-dies-natural-death-testify-540217
+
+[Read on Telegram](https://t.me/livelawindia/114094)
+
+---
+### 2026-07-07T09:22:46+00:00
+Courts Can't Read 'Equivalent Qualification' Into Recruitment Advertisement After Selection Process Begins: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/recruitment-eligibility-criteria-equivalent-qualification-selection-process-commenced-540214
+
+[Read on Telegram](https://t.me/livelawindia/114095)
+
+---
+### 2026-07-07T09:27:26+00:00
+Vehicle Cannot Be Kept In Police Custody Throughout NDPS Trial Merely Because It May Be Confiscated: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-liable-for-confiscation-does-not-mean-liable-to-remain-in-police-custody-till-trial-ends-confiscation-is-a-matter-to-be-decided-only-at-the-conclusion-of-trial-540153
+
+[Read on Telegram](https://t.me/livelawindia/114096)
+
+---
+### 2026-07-07T09:32:26+00:00
+Revisiting Section 56 CPC: Does Article 15(3) Still Justify Civil Arrest Immunity For Women?
+https://www.livelaw.in/articles/revisiting-section56-cpc-justify-civil-arrest-immunity-women-540131
+
+[Read on Telegram](https://t.me/livelawindia/114097)
+
+---
+### 2026-07-07T09:47:36+00:00
+'We Cannot Shut Our Eyes To Article 19': Calcutta High Court Allows Trinamool Youth Congress Rally With Revised Timings
+https://www.livelaw.in/high-court/calcutta-high-court/we-cannot-shut-our-eyes-to-article-19-calcutta-high-court-allows-trinamool-youth-congress-rally-with-revised-timings-540218
+
+[Read on Telegram](https://t.me/livelawindia/114098)
 
 ---
