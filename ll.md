@@ -1,73 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-07T11:32:37+00:00*
+*Last Updated: 2026-07-07T13:07:37+00:00*
 
 ---
 
-### 2026-07-07T11:32:37+00:00
-LiveLaw Bombay High Court Monthly Digest: June 2026
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-monthly-digest-june-2026-539986
-
-[Read on Telegram](https://t.me/livelawindia/114106)
-
----
-### 2026-07-07T11:34:37+00:00
-Shariat Law Allowing Marriage At Puberty Violates POCSO; Marriageable Age Same For All Irrespective Of Religion: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/pcma-pocso-override-shariat-law-age-of-marriage-allahabad-high-court-540243
-
-[Read on Telegram](https://t.me/livelawindia/114107)
-
----
-### 2026-07-07T11:54:17+00:00
-MP High Court Refuses Relief To Judge Accused Of Preparing Acquittal Judgment Before Trial Concluded
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-denies-relief-to-judge-preparing-acquittal-for-accused-before-his-trial-was-over-540244
-
-[Read on Telegram](https://t.me/livelawindia/114108)
-
----
-### 2026-07-07T12:24:47+00:00
-Delhi High Court Orders Surprise Audit Of 38 Govt Hospitals After Patient Denied ICU Bed Despite Portal Showing Availability
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-orders-surprise-audit-of-38-govt-hospitals-after-patient-denied-icu-bed-despite-portal-showing-availability-540251
-
-[Read on Telegram](https://t.me/livelawindia/114109)
-
----
-### 2026-07-07T12:30:07+00:00
-'If I Get Death Sentence, Can It Be Reversed?': Darshan Opposes 'BOSS' Release, Says It Will Prejudice Fair Trial In Renukawamy Murder Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-actor-fights-boss-release-producer-defends-film-fictional-540256
-
-[Read on Telegram](https://t.me/livelawindia/114110)
-
----
-### 2026-07-07T12:43:07+00:00
-"Personal Liberty Not A Plaything For District Police And District Magistracy": J&K&L High Court Quashes Preventive Detention
-https://www.livelaw.in/high-court/jammu-kashmir/personal-liberty-is-not-a-plaything-for-district-police-and-district-magistracy-jk-high-court-quashes-psa-detention-based-on-barren-police-dossier-540257
-
-[Read on Telegram](https://t.me/livelawindia/114111)
-
----
-### 2026-07-07T12:52:37+00:00
-Writ Maintainable Against Minority Aided School Where Breach Of Statutory Service Safeguards Is Alleged: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-writ-maintainable-minority-aided-school-breach-statutory-service-safeguards-alleged-540254
-
-[Read on Telegram](https://t.me/livelawindia/114112)
-
----
-### 2026-07-07T12:53:07+00:00
-2026 LiveLaw (SC) 656 |  Ajay Vijh v. Indian Banks Association
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-656-ajay-vijh-v-indian-banks-association-540259
-
-[Read on Telegram](https://t.me/livelawindia/114113)
-
----
-### 2026-07-07T12:59:07+00:00
-#TheLawChallenge
- : A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
-https://www.livelaw.in/top-stories/livelaw-and-qshala-weekly-legal-quiz-540260
-
-[Read on Telegram](https://t.me/livelawindia/114114)
-
----
 ### 2026-07-07T13:07:37+00:00
 Gauhati High Court Upholds Foreigner Declaration, Says Contradictory Testimony Can't Be Excused On Basis Of Unproven Mental Illness
 https://www.livelaw.in/high-court/gauhati-high-court/foreigners-case-medical-illness-prescription-not-enough-proceedee-psychiatric-patient-540262
@@ -143,5 +79,68 @@ Delhi High Court Weekly Round-Up: June 29 To July 05, 2026
 https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-weekly-round-up-june-29-to-july-05-2026-540280
 
 [Read on Telegram](https://t.me/livelawindia/114125)
+
+---
+### 2026-07-07T14:57:17+00:00
+Cannot Ignore Steps By Accused To Save Himself From False Allegations Before Lodging Of FIR: Chhattisgarh High Court Quashes Rape Conviction
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-ignore-proactive-legal-steps-false-allegations-prior-lodging-rape-fir-540252
+
+[Read on Telegram](https://t.me/livelawindia/114126)
+
+---
+### 2026-07-07T15:11:58+00:00
+Can't Say If Savarkar Is Called 'Mafiveer' Or 'British Agent' For Filing Mercy Petitions : Grandnephew Tells Pune Court
+https://www.livelaw.in/top-stories/cant-say-if-savarkar-is-called-mafiveer-or-british-agent-for-filing-mercy-petitions-grandnephew-tells-pune-court-540284
+
+[Read on Telegram](https://t.me/livelawindia/114127)
+
+---
+### 2026-07-07T15:26:58+00:00
+PIL In Delhi High Court Seeks Court-Monitored Measures To Prevent Recurring Waterlogging, Disclosure Of Monsoon Preparedness
+https://www.livelaw.in/high-court/delhi-high-court/delhi-rains-roads-waterlogging-monsoon-preparedness-mcd-540289
+
+[Read on Telegram](https://t.me/livelawindia/114128)
+
+---
+### 2026-07-07T15:32:18+00:00
+Bhima Koregaon Case: Accused Mahesh Raut Moves Bombay High Court Seeking Permission To Travel To Kerala For Treatment
+https://www.livelaw.in/high-court/bombay-high-court/bhima-koregaon-mahesh-raut-permission-to-travel-kerala-medical-treatment-540291
+
+[Read on Telegram](https://t.me/livelawindia/114129)
+
+---
+### 2026-07-07T15:58:08+00:00
+Suit For Redemption Of Mortgage Sold Pursuant To Award Under UP Co-operative Societies Act Barred U/S 111(d): Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-redemption-of-mortgage-suit-sold-pursuant-up-cooperative-societies-act-540255
+
+[Read on Telegram](https://t.me/livelawindia/114130)
+
+---
+### 2026-07-07T16:15:48+00:00
+Mumbai Consumer Forum Admits Plaint Against PVR Over Technical Glitches, Delayed Screening Of 'Dhurandhar: The Revenge' Film
+https://www.livelaw.in/news-updates/pvr-cinema-dhurandhar-screening-glitches-consumer-dispute-540294
+
+[Read on Telegram](https://t.me/livelawindia/114131)
+
+---
+### 2026-07-07T16:22:48+00:00
+Anticipatory Bail Denied To Ex-Police Officer In Corruption Case: P&H High Court Flags Risk To Investigation
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-anticipatory-bail-denied-to-ex-police-officer-in-corruption-case-540295
+
+[Read on Telegram](https://t.me/livelawindia/114132)
+
+---
+### 2026-07-07T17:04:58+00:00
+Delhi High Court Grants Bail To Sukesh Chandrashekhar's Alleged Associates In Extortion Case, Cites Long Incarceration And Protracted Trial
+https://www.livelaw.in/high-court/delhi-high-court/sukesh-chandrashekhar-associates-bail-extortion-long-incarceration-540297
+
+[Read on Telegram](https://t.me/livelawindia/114133)
+
+---
+### 2026-07-07T17:15:58+00:00
+'Highly Disrespectful' To Past Order: High Court Summons Top Secy Over Failure To Fill 'UP Minorities Commission' Vacancies Since 2024
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-summons-top-official-over-vacant-up-minorities-commission-posts-since-2024-540298
+
+[Read on Telegram](https://t.me/livelawindia/114134)
 
 ---
