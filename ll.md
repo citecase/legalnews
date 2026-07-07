@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-06T11:47:41+00:00*
+*Last Updated: 2026-07-06T12:17:31+00:00*
 
 ---
 
-### 2026-07-06T11:47:41+00:00
-No Legal Bar To Re-Arrest After First Arrest Declared Illegal, But Investigating Agency Must Obtain Prior Judicial Approval: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/fresh-arrest-after-illegal-arrest-permissible-judicial-scrutiny-540116
-
-[Read on Telegram](https://t.me/livelawindia/114032)
-
----
-### 2026-07-06T12:03:01+00:00
-Adultery No Longer A Crime: Jharkhand High Court Quashes Constable's Dismissal Over Alleged Adulterous Relationship
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-quashes-constable-dismissal-alleged-adulterous-relationship-540060
-
-[Read on Telegram](https://t.me/livelawindia/114033)
-
----
 ### 2026-07-06T12:17:31+00:00
 Rajasthan High Court Flags 'Intentional' Police Lapse In Murder Probe, Refuses Bail To Juvenile Accused
 https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-rejects-bail-minor-accused-police-investigation-intentional-lapse-540101
@@ -142,5 +128,19 @@ TCS Nashik Case: Sessions Court Grants Bail To Prime Accused Nida Khan
 https://www.livelaw.in/news-updates/nashik-court-grants-bail-prime-accused-nida-khan-540154
 
 [Read on Telegram](https://t.me/livelawindia/114051)
+
+---
+### 2026-07-07T03:32:24+00:00
+Rajasthan High Court Refuses Bail To 'Myanmar Nationals' Accused Of Trafficking Rohingya Girls Under Guise Of Marriage
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-refuses-bail-myanmar-nationals-trafficking-rohingya-girls-540155
+
+[Read on Telegram](https://t.me/livelawindia/114052)
+
+---
+### 2026-07-07T03:33:44+00:00
+Assistant Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP [Mumbai; Apply Now]
+https://www.livelaw.in/job-updates/assistant-manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-540159
+
+[Read on Telegram](https://t.me/livelawindia/114053)
 
 ---
