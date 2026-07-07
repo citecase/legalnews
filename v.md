@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-06T16:02:58+00:00*
+*Last Updated: 2026-07-07T10:03:12+00:00*
+
+---
+
+### 2026-07-07T10:03:12+00:00
+Fresh Competition Among Probables Impracticable Before Deadline: Delhi High Court Refuses To Disturb Asian Games Dressage Selection List
+https://www.verdictum.in/delhi-high-court/anush-agarwalla-v-ad-hoc-committee-for-governance-of-equestrian-federation-of-india-and-ors-2026dhc5375-db-1617291
+
+[Source Link](https://t.me/verdictumlegalupdates/27828)
+
+---
+
+### 2026-07-07T09:32:31+00:00
+Long-Standing Revenue Entries Cannot Be Disturbed In Summary Proceedings Without Notice To Affected Parties: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/sunbeam-school-v-state-of-up-2026ahc132093-long-standing-revenue-entries-cannot-disturbed-without-notice-1617288
+
+[Source Link](https://t.me/verdictumlegalupdates/27827)
+
+---
+
+### 2026-07-07T09:02:30+00:00
+Apex Court Agrees To Hear Plea Against HC Order On Non-Selection Of Equestrian Athletes For Asian Games
+https://www.verdictum.in/supreme-court/non-selection-of-equestrian-athletes-for-asian-games-1617286
+
+[Source Link](https://t.me/verdictumlegalupdates/27826)
+
+---
+
+### 2026-07-07T08:31:48+00:00
+Knowingly Importing Solid Waste Into India Aggravated Form Of “Deshdroh” & Endangers Sovereignty: Madras High Court
+https://www.verdictum.in/madras-high-court/ms-sripathi-paper-and-boards-private-limited-v-the-commissioner-of-customs-2026mhc2215-1617283
+
+[Source Link](https://t.me/verdictumlegalupdates/27825)
+
+---
+
+### 2026-07-07T07:52:27+00:00
+Issuance Of Notice U/S 21 Arbitration Act Necessary To Mark Commencement Of Fresh Arbitration & Compute Limitation After Award Is Set Aside: Bombay High Court
+https://www.verdictum.in/bombay-high-court/hemant-d-shah-huf-v-chittaranjan-d-shah-huf-commercial-arbitration-application-no-184-of-2026-issuance-of-notice-us-21-arbitration-act-1617280
+
+[Source Link](https://t.me/verdictumlegalupdates/27824)
+
+---
+
+### 2026-07-07T07:02:46+00:00
+Disposition In Favour Of Distant Relatives While Disinheriting Widow Unnatural And Raises Suspicion Over Will: Supreme Court
+https://www.verdictum.in/supreme-court/2026-insc-669-sardari-lal-v-bishan-dass-1617279
+
+[Source Link](https://t.me/verdictumlegalupdates/27823)
+
+---
+
+### 2026-07-07T06:23:05+00:00
+Supreme Court Refuses To Entertain Application Seeking To Restrain Tamil Nadu CM Vijay From Meeting Karur Stampede Victims
+https://www.verdictum.in/supreme-court/refuses-application-seeking-restrain-tamil-nadu-cm-vijay-meeting-karur-stampede-victims-1617274
+
+[Source Link](https://t.me/verdictumlegalupdates/27822)
+
+---
+
+### 2026-07-07T05:52:24+00:00
+Re-Arrest Of Accused After His Release For Violation Of Article 22 Of Constitution: Kerala High Court Lays Down Guidelines
+https://www.verdictum.in/kerala-high-court/re-arrest-of-accused-after-his-release-for-violation-of-article-22-of-constitution-kerala-high-court-lays-down-guidelines-1617269
+
+[Source Link](https://t.me/verdictumlegalupdates/27821)
+
+---
+
+### 2026-07-07T05:12:23+00:00
+Licensee Who Enters Contract With Open Eyes Cannot Wriggle Out Of Contractual Obligations On Cancellation Of Liquor Licence: Himachal Pradesh High Court
+https://www.verdictum.in/himachal-high-court/ms-kanda-wine-v-state-of-himachal-pradesh-2026hhc26633-1617265
+
+[Source Link](https://t.me/verdictumlegalupdates/27820)
+
+---
+
+### 2026-07-07T04:33:41+00:00
+Daughter’s Registered Divorce Agreement Executed During Parents’ Lifetime Must Be Honoured For Family Pension Claim: Kerala High Court
+https://www.verdictum.in/kerala-high-court/union-of-india-v-smt-saraswati-2026ker45798-divorced-daughter-pension-1617261
+
+[Source Link](https://t.me/verdictumlegalupdates/27819)
 
 ---
 
@@ -81,86 +161,6 @@ https://www.verdictum.in/bombay-high-court/arti-varun-kejriwal-ors-v-vandana-vin
 https://www.verdictum.in/delhi-high-court/tv-today-network-limited-v-abc-2026dhc5173-db-child-sexual-abuse-victims-identity-despite-mothers-express-refusal-1617222
 
 [Source Link](https://t.me/verdictumlegalupdates/27809)
-
----
-
-### 2026-07-06T10:32:56+00:00
-Hostility Of Prosecution Witnesses Not Germane Consideration To Grant Of Bail: Patna High Court
-https://www.verdictum.in/patna-high-court/birendra-yadav-v-the-state-of-bihar-anr-bail-hostile-witness-irrelevant-1617220
-
-[Source Link](https://t.me/verdictumlegalupdates/27808)
-
----
-
-### 2026-07-06T10:02:52+00:00
-Executive Magistrate Cannot Initiate Section 145 CrPC Proceedings Against Person Having Possession Of Disputed Property For More Than Two Months: Gauhati HC
-https://www.verdictum.in/guwahati-high-court/2026-gau-as-9381-zahirul-haque-laskar-v-state-of-assam-1617219
-
-[Source Link](https://t.me/verdictumlegalupdates/27807)
-
----
-
-### 2026-07-06T09:32:31+00:00
-Bribe Demand By Public Servant Not Necessary U/S 7 PC Act If Offer & Acceptance Of Illegal Gratification Are Proved: Kerala High Court
-https://www.verdictum.in/kerala-high-court/d-jayanarayana-v-the-state-of-kerala-2026ker44468-prevention-of-corruption-1617218
-
-[Source Link](https://t.me/verdictumlegalupdates/27806)
-
----
-
-### 2026-07-06T09:02:30+00:00
-Separate Punishments Under IPC & POCSO For Same Act Of Penetrative Sexual Assault Upon Child Is Illegal: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/2025-ahc-lko-42623-db-anku-parshuram-v-state-of-up-1617216
-
-[Source Link](https://t.me/verdictumlegalupdates/27805)
-
----
-
-### 2026-07-06T08:32:29+00:00
-Christian Wives Should Not Be Denied The Right To File Divorce Petition At Place Of Residence: Kerala High Court Urges Parliament To Amend Divorce Act
-https://www.verdictum.in/kerala-high-court/p-v-union-of-india-2026ker47197-christian-wives-to-file-divorce-at-place-of-residence-divorce-act-1617215
-
-[Source Link](https://t.me/verdictumlegalupdates/27804)
-
----
-
-### 2026-07-06T08:02:48+00:00
-Child's Right To Know Parentage Prevails Over Alleged Father's Reputational Concerns: Delhi High Court Permits DNA Test To Determine Paternity
-https://www.verdictum.in/delhi-high-court/rv-v-gd-2026-dhc-5340-dna-paternity-test-right-to-know-parentage-reputational-harm-1617212
-
-[Source Link](https://t.me/verdictumlegalupdates/27803)
-
----
-
-### 2026-07-06T07:32:26+00:00
-Weekly Overview| Supreme Court Judgments: June 29 – July 03, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-june-29-july-03-2026-1617210
-
-[Source Link](https://t.me/verdictumlegalupdates/27802)
-
----
-
-### 2026-07-06T07:02:25+00:00
-Immoral Trafficking Is An Offence Against Humanity; Minor Contradictions Cannot Defeat Prosecution Case: Bombay High Court Upholds Brothel Operator’s Conviction
-https://www.verdictum.in/bombay-high-court/rita-dilip-ghosh-v-state-of-maharashtra-revision-application-no-227-of-2003-immoral-trafficking-offence-against-humanity-brothel-operator-1617207
-
-[Source Link](https://t.me/verdictumlegalupdates/27801)
-
----
-
-### 2026-07-06T06:33:07+00:00
-Supreme Court Agrees To Hear Plea Alleging "Active Influencing" Of Witnesses By Tamil Nadu Ministers In Karur Stampede Case
-https://www.verdictum.in/supreme-court/active-influencing-of-witnesses-by-tamil-nadu-ministers-karur-stampede-case-1617202
-
-[Source Link](https://t.me/verdictumlegalupdates/27800)
-
----
-
-### 2026-07-06T05:52:43+00:00
-Land Acquisition Lapses For Non-Compliance With Timeline U/S 6 Land Acquisition Act: Bombay High Court While Shifting Notification Date To Protect Land Already Put To Public Use
-https://www.verdictum.in/bombay-high-court/manak-yeshwant-patil-v-municipal-corporation-of-greater-mumbai-writ-petition-no-1755-of-2011-land-acquisition-protect-land-already-put-to-public-use-1617195
-
-[Source Link](https://t.me/verdictumlegalupdates/27799)
 
 ---
 
