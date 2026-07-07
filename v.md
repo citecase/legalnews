@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-07T15:13:14+00:00*
+*Last Updated: 2026-07-07T16:02:18+00:00*
+
+---
+
+### 2026-07-07T16:02:18+00:00
+Junior Legal Consultant Vacancy At Maharashtra Real Estate Regulatory Authority (MahaRERA)
+https://www.verdictum.in/job-updates/maharashtra-real-estate-regulatory-authority-1617302
+
+[Source Link](https://t.me/verdictumlegalupdates/27840)
+
+---
+
+### 2026-07-07T15:42:36+00:00
+Notarized Agreement For 99-Year Lease Bearing Only Thumb Impression Has No Evidentiary Value: Bombay High Court
+https://www.verdictum.in/bombay-high-court/suka-mahadu-khade-v-bababai-tukaram-shevre-notarized-agreement-lease-evidentiary-value-1617295
+
+[Source Link](https://t.me/verdictumlegalupdates/27839)
 
 ---
 
@@ -145,22 +161,6 @@ Re-Arrest Of Accused After His Release For Violation Of Article 22 Of Constituti
 https://www.verdictum.in/kerala-high-court/re-arrest-of-accused-after-his-release-for-violation-of-article-22-of-constitution-kerala-high-court-lays-down-guidelines-1617269
 
 [Source Link](https://t.me/verdictumlegalupdates/27821)
-
----
-
-### 2026-07-07T05:12:23+00:00
-Licensee Who Enters Contract With Open Eyes Cannot Wriggle Out Of Contractual Obligations On Cancellation Of Liquor Licence: Himachal Pradesh High Court
-https://www.verdictum.in/himachal-high-court/ms-kanda-wine-v-state-of-himachal-pradesh-2026hhc26633-1617265
-
-[Source Link](https://t.me/verdictumlegalupdates/27820)
-
----
-
-### 2026-07-07T04:33:41+00:00
-Daughter’s Registered Divorce Agreement Executed During Parents’ Lifetime Must Be Honoured For Family Pension Claim: Kerala High Court
-https://www.verdictum.in/kerala-high-court/union-of-india-v-smt-saraswati-2026ker45798-divorced-daughter-pension-1617261
-
-[Source Link](https://t.me/verdictumlegalupdates/27819)
 
 ---
 
