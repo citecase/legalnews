@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-07T10:03:12+00:00*
+*Last Updated: 2026-07-07T15:13:14+00:00*
+
+---
+
+### 2026-07-07T15:13:14+00:00
+Lawyer’s Service Rendered On Legal Side Not Covered Under Consumer Protection Act: Andhra Pradesh High Court
+https://www.verdictum.in/andhra-pradesh-high-court/asskdurga-prasad-v-national-consumer-disputes-redressal-commission-lawyer-consumer-protection-1617313
+
+[Source Link](https://t.me/verdictumlegalupdates/27838)
+
+---
+
+### 2026-07-07T14:42:53+00:00
+Madhya Pradesh HC Refuses To Stay Departmental Inquiry Against Judicial Officer Accused Of Fabricating Acquittal Judgment
+https://www.verdictum.in/madhya-pradesh-high-court/2026mphc-jbp-46884-vijendra-singh-rawat-v-state-of-madhya-pradesh-1617312
+
+[Source Link](https://t.me/verdictumlegalupdates/27837)
+
+---
+
+### 2026-07-07T14:13:12+00:00
+Persisted With Engaging In Violent Protests To The Extent Of Causing Deaths: Delhi High Court Denies Bail To Athar Khan In 2020 Riots Case
+https://www.verdictum.in/delhi-high-court/athar-khan-v-state-of-nct-of-delhi-2026dhc5408-db-deaths-bail-plea-dismissal-2020-riots-1617311
+
+[Source Link](https://t.me/verdictumlegalupdates/27836)
+
+---
+
+### 2026-07-07T13:42:10+00:00
+Mere Failure To Join Investigation In Compliance Of Notices Not A Relevant Factor To Deny Bail If Accused Was Not Arrested Prior To Charge-Sheet: Delhi High Court
+https://www.verdictum.in/delhi-high-court/2026-dhc-5392-raju-kumar-manjhi-v-cbi-1617310
+
+[Source Link](https://t.me/verdictumlegalupdates/27835)
+
+---
+
+### 2026-07-07T13:12:49+00:00
+Victim's Expectation of Imminent Death Essential For Treating Her Statement as Dying Declaration: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/mahnaz-and-another-v-state-of-up-and-connected-appeals-2026ahc132590-db-1617305
+
+[Source Link](https://t.me/verdictumlegalupdates/27834)
+
+---
+
+### 2026-07-07T12:32:58+00:00
+Election Tribunal Cannot Examine Validity Of Caste Certificates; Such Challenge Lies Only Before Scrutiny Committees: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/radha-charan-v-state-of-up-and-others-ahc133415-caste-certificate-election-petition-1617304
+
+[Source Link](https://t.me/verdictumlegalupdates/27833)
+
+---
+
+### 2026-07-07T12:02:57+00:00
+RBI-IBA Caution List Cannot Be Used To Blacklist Advocates For Alleged Negligence: Supreme Court Directs BCI To Audit Disciplinary Mechanism
+https://www.verdictum.in/supreme-court/ajay-vijh-v-indian-banks-association-ors-2026-insc-670-rbi-caution-list-bci-1617301
+
+[Source Link](https://t.me/verdictumlegalupdates/27832)
+
+---
+
+### 2026-07-07T11:33:16+00:00
+Mere Physical Appearance Or Non-Contagious Medical Condition Not Impairing Discharge Of Duties Can’t Be Basis For Differential Treatment In Employment: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/n-anil-kumar-v-state-of-karnataka-2026khc32814-non-contagious-medical-condition-1617297
+
+[Source Link](https://t.me/verdictumlegalupdates/27831)
+
+---
+
+### 2026-07-07T11:01:54+00:00
+Appointments To Public Offices Should Be Guided By Competence And Not By Recommendations: Madras High Court
+https://www.verdictum.in/madras-high-court/2026-mhc-2534-chinnadurai-v-state-of-tamil-nadu-1617296
+
+[Source Link](https://t.me/verdictumlegalupdates/27830)
+
+---
+
+### 2026-07-07T10:32:33+00:00
+Section 141 NI Act| Cheque Bounce Complaint Must Show Director Was In Charge Of Company Affairs To Attract Vicarious Liability: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/kavitha-chopra-v-ms-63ideas-infolabs-pvt-ltd-section-141-negiotiable-instruments-1617292
+
+[Source Link](https://t.me/verdictumlegalupdates/27829)
 
 ---
 
@@ -81,86 +161,6 @@ Daughter’s Registered Divorce Agreement Executed During Parents’ Lifetime Mu
 https://www.verdictum.in/kerala-high-court/union-of-india-v-smt-saraswati-2026ker45798-divorced-daughter-pension-1617261
 
 [Source Link](https://t.me/verdictumlegalupdates/27819)
-
----
-
-### 2026-07-06T16:02:58+00:00
-Law Officer Vacancy At Institute of Banking Personnel Selection (IBPS)
-https://www.verdictum.in/job-updates/institute-of-banking-personnel-selection-1617231
-
-[Source Link](https://t.me/verdictumlegalupdates/27818)
-
----
-
-### 2026-07-06T15:02:57+00:00
-Can’t Sell Tobacco Products Close To School: Delhi High Court Prohibits Vendor From Selling Products Harmful To Children
-https://www.verdictum.in/delhi-high-court/noor-alam-v-municipal-corporation-of-delhi-2026dhc5295-db-tobacco-products-vendor-1617238
-
-[Source Link](https://t.me/verdictumlegalupdates/27817)
-
----
-
-### 2026-07-06T14:33:16+00:00
-Reliance On Newspaper Clippings Or YouTube References Doesn’t Meet Threshold Of Sufficient Research For Filing PIL: Madras High Court
-https://www.verdictum.in/madras-high-court/dradhakrishnan-v-union-of-india-reliance-digital-gossip-research-mandated-for-pil-1617237
-
-[Source Link](https://t.me/verdictumlegalupdates/27816)
-
----
-
-### 2026-07-06T14:02:35+00:00
-Provided Equipment For Advertising Inducement For Religious Conversion: Madhya Pradesh High Court Upholds Order Framing Charge
-https://www.verdictum.in/madhya-pradesh-high-court/jagram-v-the-state-of-madhya-pradesh-2026mphc-ind16889-religious-conversion-charge-1617236
-
-[Source Link](https://t.me/verdictumlegalupdates/27815)
-
----
-
-### 2026-07-06T13:32:53+00:00
-Husband Can’t Disobey Family Court’s Order To Pay Maintenance On Ground That He Is Negotiating Settlement: Delhi High Court
-https://www.verdictum.in/delhi-high-court/a-v-b-2026dhc5337-db-husband-family-court-order-maintenance-settlement-1617235
-
-[Source Link](https://t.me/verdictumlegalupdates/27814)
-
----
-
-### 2026-07-06T13:03:12+00:00
-Patna High Court Criticizes Arbitrary Road Construction On Private Raiyati Land; Directs District Magistrate To Personally Ensure Lawful Acquisition
-https://www.verdictum.in/patna-high-court/arbitrary-road-construction-private-raiyati-land-district-magistrate-lawful-acquisition-1617229
-
-[Source Link](https://t.me/verdictumlegalupdates/27813)
-
----
-
-### 2026-07-06T12:32:51+00:00
-Former Director Not Liable U/S 138 NI Act For Cheque Issued In Name Of Dissolved Company; Such Instrument Is Void Ab Initio: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/rakesh-ramakanth-v-somashekara-gowda-rg-negotiable-instruments-cheque-1617228
-
-[Source Link](https://t.me/verdictumlegalupdates/27812)
-
----
-
-### 2026-07-06T12:03:10+00:00
-Serving Arrest Notice On Advocate Nominated By Accused Satisfies Section 48 BNSS Mandate: Kerala High Court
-https://www.verdictum.in/kerala-high-court/2026-ker-46863-nithin-ka-v-state-of-kerala-1617226
-
-[Source Link](https://t.me/verdictumlegalupdates/27811)
-
----
-
-### 2026-07-06T11:32:49+00:00
-Commercial Partnership Dissolution Deed Cannot By Itself Establish Existence Of Ancestral Nucleus Or Joint Family Property: Bombay High Court
-https://www.verdictum.in/bombay-high-court/arti-varun-kejriwal-ors-v-vandana-vinay-awatramani-ors-hindu-undivided-family-1617223
-
-[Source Link](https://t.me/verdictumlegalupdates/27810)
-
----
-
-### 2026-07-06T11:02:47+00:00
-"No Means No": Delhi High Court Upholds ₹5L Compensation Against Aaj Tak for Telecasting Child Sexual Abuse Victim's Identity Despite Mother's Express Refusal
-https://www.verdictum.in/delhi-high-court/tv-today-network-limited-v-abc-2026dhc5173-db-child-sexual-abuse-victims-identity-despite-mothers-express-refusal-1617222
-
-[Source Link](https://t.me/verdictumlegalupdates/27809)
 
 ---
 
