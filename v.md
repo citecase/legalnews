@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-07T16:02:18+00:00*
+*Last Updated: 2026-07-08T08:52:46+00:00*
+
+---
+
+### 2026-07-08T08:52:46+00:00
+Escape Of Accused From DRI Office During Investigation Reflects Complete Collapse Of Vigilance, Supervision: Chhattisgarh High Court While Acquitting Five In 833-Kg Ganja Seizure Case
+https://www.verdictum.in/chhattisgarh-high-court/dorilal-v-directorate-of-revenue-intelligence-2026cghc26821-db-escape-of-accused-from-dri-office-five-in-833-kg-ganja-seizure-case-1617353
+
+[Source Link](https://t.me/verdictumlegalupdates/27846)
+
+---
+
+### 2026-07-08T08:03:05+00:00
+Prohibition Of Child Marriage Act & POCSO Act Apply To All Citizens Irrespective Of Religion: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/r-v-state-of-up-2026ahc130283-db-shariat-law-prohibition-of-child-marriage-act-pocso-act-religion-1617349
+
+[Source Link](https://t.me/verdictumlegalupdates/27845)
+
+---
+
+### 2026-07-08T07:13:03+00:00
+Specific Performance No Longer Discretionary After 2018 Amendment To Specific Relief Act, Court Obliged To Enforce Contract: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/tushar-agrawal-v-ganesh-prasad-2026ahc133431-specific-performance-no-longer-discretionary-2018-amendment-1617343
+
+[Source Link](https://t.me/verdictumlegalupdates/27844)
+
+---
+
+### 2026-07-08T06:13:02+00:00
+Consistency & Uniformity Needed In Nextgen E-Hospital Management Information System: Delhi High Court Asks NIC To Conduct Surprise Audits
+https://www.verdictum.in/delhi-high-court/court-on-its-own-motion-v-union-of-india-2026dhc5377-db-nextgen-e-hospital-management-system-1617339
+
+[Source Link](https://t.me/verdictumlegalupdates/27843)
+
+---
+
+### 2026-07-08T05:22:41+00:00
+Seller Can't Verify Credentials Of Purchasers Making Payments Through UPI:  Andhra Pradesh HC Orders Defreezing Of Seller's Bank Account
+https://www.verdictum.in/andhra-pradesh-high-court/verifying-credentials-authorities-cannot-freeze-bank-account-1617335
+
+[Source Link](https://t.me/verdictumlegalupdates/27842)
+
+---
+
+### 2026-07-08T04:33:10+00:00
+Individual Litigant Or Advocate Has No Vested Or Fundamental Right To Demand Out Of Turn Listing Of Matter: Madras High Court
+https://www.verdictum.in/madras-high-court/individual-litigant-counsel-no-vested-fundamental-right-out-of-turn-listing-matter-1617314
+
+[Source Link](https://t.me/verdictumlegalupdates/27841)
 
 ---
 
@@ -113,54 +161,6 @@ Long-Standing Revenue Entries Cannot Be Disturbed In Summary Proceedings Without
 https://www.verdictum.in/allahabad-high-court/sunbeam-school-v-state-of-up-2026ahc132093-long-standing-revenue-entries-cannot-disturbed-without-notice-1617288
 
 [Source Link](https://t.me/verdictumlegalupdates/27827)
-
----
-
-### 2026-07-07T09:02:30+00:00
-Apex Court Agrees To Hear Plea Against HC Order On Non-Selection Of Equestrian Athletes For Asian Games
-https://www.verdictum.in/supreme-court/non-selection-of-equestrian-athletes-for-asian-games-1617286
-
-[Source Link](https://t.me/verdictumlegalupdates/27826)
-
----
-
-### 2026-07-07T08:31:48+00:00
-Knowingly Importing Solid Waste Into India Aggravated Form Of “Deshdroh” & Endangers Sovereignty: Madras High Court
-https://www.verdictum.in/madras-high-court/ms-sripathi-paper-and-boards-private-limited-v-the-commissioner-of-customs-2026mhc2215-1617283
-
-[Source Link](https://t.me/verdictumlegalupdates/27825)
-
----
-
-### 2026-07-07T07:52:27+00:00
-Issuance Of Notice U/S 21 Arbitration Act Necessary To Mark Commencement Of Fresh Arbitration & Compute Limitation After Award Is Set Aside: Bombay High Court
-https://www.verdictum.in/bombay-high-court/hemant-d-shah-huf-v-chittaranjan-d-shah-huf-commercial-arbitration-application-no-184-of-2026-issuance-of-notice-us-21-arbitration-act-1617280
-
-[Source Link](https://t.me/verdictumlegalupdates/27824)
-
----
-
-### 2026-07-07T07:02:46+00:00
-Disposition In Favour Of Distant Relatives While Disinheriting Widow Unnatural And Raises Suspicion Over Will: Supreme Court
-https://www.verdictum.in/supreme-court/2026-insc-669-sardari-lal-v-bishan-dass-1617279
-
-[Source Link](https://t.me/verdictumlegalupdates/27823)
-
----
-
-### 2026-07-07T06:23:05+00:00
-Supreme Court Refuses To Entertain Application Seeking To Restrain Tamil Nadu CM Vijay From Meeting Karur Stampede Victims
-https://www.verdictum.in/supreme-court/refuses-application-seeking-restrain-tamil-nadu-cm-vijay-meeting-karur-stampede-victims-1617274
-
-[Source Link](https://t.me/verdictumlegalupdates/27822)
-
----
-
-### 2026-07-07T05:52:24+00:00
-Re-Arrest Of Accused After His Release For Violation Of Article 22 Of Constitution: Kerala High Court Lays Down Guidelines
-https://www.verdictum.in/kerala-high-court/re-arrest-of-accused-after-his-release-for-violation-of-article-22-of-constitution-kerala-high-court-lays-down-guidelines-1617269
-
-[Source Link](https://t.me/verdictumlegalupdates/27821)
 
 ---
 
