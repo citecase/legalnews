@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-07T13:07:37+00:00*
+*Last Updated: 2026-07-08T05:37:53+00:00*
 
 ---
 
-### 2026-07-07T13:07:37+00:00
-Gauhati High Court Upholds Foreigner Declaration, Says Contradictory Testimony Can't Be Excused On Basis Of Unproven Mental Illness
-https://www.livelaw.in/high-court/gauhati-high-court/foreigners-case-medical-illness-prescription-not-enough-proceedee-psychiatric-patient-540262
+### 2026-07-08T05:37:53+00:00
+Long Stagnation In Small Cadres Doesn't Create Right To Promotion Or Cadre Expansion: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-sro-28-is-constitutionally-valid-long-stagnation-in-small-cadres-cannot-justify-judicial-rewriting-of-service-rules-540330
 
-[Read on Telegram](https://t.me/livelawindia/114115)
-
----
-### 2026-07-07T13:19:37+00:00
-US Tourist Rape Case: Karnataka High Court Stays Proceedings Against Kodagu Homestay Owner Booked Under Repealed Foreigners Act
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-kodagu-homestay-owner-interim-relief-us-national-rape-case-540266
-
-[Read on Telegram](https://t.me/livelawindia/114116)
+[Read on Telegram](https://t.me/livelawindia/114152)
 
 ---
-### 2026-07-07T13:21:37+00:00
-Continuing Legal Education For Advocates Necessary : Supreme Court Urges BCI To Establish National Legal Academy
-https://www.livelaw.in/top-stories/continuing-legal-education-for-advocates-necessary-supreme-court-urges-bci-to-establish-national-legal-academy-540267
+### 2026-07-08T05:42:26+00:00
+Private School Employee's Suspension Automatically Ends If DOE Approval Isn't Received Within 15 Days: Delhi High Court Full Bench
+https://www.livelaw.in/high-court/delhi-high-court/private-school-employees-suspension-automatically-ends-if-doe-approval-isnt-received-within-15-days-delhi-high-court-full-bench-540334
 
-[Read on Telegram](https://t.me/livelawindia/114117)
-
----
-### 2026-07-07T13:28:37+00:00
-Electricity Workers Supplying Power To Hospitals, Oxygen Plants Are 'COVID Warriors': Allahabad High Court Orders ₹50 Lakh Ex-Gratia
-https://www.livelaw.in/high-court/allahabad-high-court/electricity-workers-supplying-power-hospitals-covid-warriors-allahabad-hc-ex-gratia-540270
-
-[Read on Telegram](https://t.me/livelawindia/114118)
+[Read on Telegram](https://t.me/livelawindia/114153)
 
 ---
-### 2026-07-07T13:32:37+00:00
-Magistrate Cannot Order Further Investigation On Protest Petition Without Explaining Why Police Investigation Was Deficient: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-magistrate-cannot-order-further-investigation-on-protest-petition-without-explaining-why-police-investigation-was-deficient-540253
+### 2026-07-08T05:44:06+00:00
+'State Cannot Fix Prices': Multiplex Body, Others Tell Karnataka High Court In Plea Against Rules Capping Movie Ticket Price At ₹200
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-hears-plea-challenging-cap-movie-tickets-540336
 
-[Read on Telegram](https://t.me/livelawindia/114119)
-
----
-### 2026-07-07T13:33:37+00:00
-Calcutta High Court Declines Urgent Relief In TMC MP Mahua Moitra's Plea Against Alleged Mob Attack
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-declines-urgent-relief-in-tmc-mp-mahua-moitras-plea-against-alleged-mob-attack-540271
-
-[Read on Telegram](https://t.me/livelawindia/114120)
+[Read on Telegram](https://t.me/livelawindia/114154)
 
 ---
-### 2026-07-07T13:53:17+00:00
-'People Robbed Their Own Motherland': Bombay High Court Says Citizens Equally Responsible For Mumbai's Waterlogging, Can't Blame BMC
-https://www.livelaw.in/high-court/bombay-high-court/mumbai-rains-road-waterlogging-citizens-encroachment-drain-blockage-bmc-540273
+### 2026-07-08T06:04:56+00:00
+Late-Night DJ Events Linked To Drugs, Violence & Crimes Against Women: Kerala Police Defends 11 PM Restriction Before High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-police-late-night-dj-restriction-drug-cases-public-safety-540342
 
-[Read on Telegram](https://t.me/livelawindia/114121)
-
----
-### 2026-07-07T14:06:07+00:00
-Delhi High Court Protects Actor Ravi Kishan's Personality Rights; Orders Takedown Of AI-Generated, Obscene Content
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-protects-actor-ravi-kishans-personality-rights-orders-takedown-of-ai-generated-obscene-content-540275
-
-[Read on Telegram](https://t.me/livelawindia/114122)
+[Read on Telegram](https://t.me/livelawindia/114155)
 
 ---
-### 2026-07-07T14:09:27+00:00
-Seized ₹599 Crore Ahead Of 2026 Tamil Nadu Elections: ECI Tells Madras High Court In Plea Alleging Corruption By Political Parties
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-election-malpractice-pil-599-crore-seized-flying-squad-540277
+### 2026-07-08T06:14:36+00:00
+Tamil Nadu Moves Supreme Court Against Madras High Court  Quashing Backward Class Reservation For Islam Converts
+https://www.livelaw.in/top-stories/tamil-nadu-moves-supreme-court-against-madras-high-court-quashing-backward-class-reservation-for-islam-converts-540344
 
-[Read on Telegram](https://t.me/livelawindia/114123)
-
----
-### 2026-07-07T14:32:47+00:00
-Crypto's Regulatory Vacuum: India's ₹2,500 Crore Problem
-https://www.livelaw.in/articles/crypto-regulatory-vacuum-540134
-
-[Read on Telegram](https://t.me/livelawindia/114124)
+[Read on Telegram](https://t.me/livelawindia/114156)
 
 ---
-### 2026-07-07T14:39:27+00:00
-Delhi High Court Weekly Round-Up: June 29 To July 05, 2026
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-weekly-round-up-june-29-to-july-05-2026-540280
+### 2026-07-08T06:18:36+00:00
+'Menace Of Egg-Pelting, Public Parading Needs To Stop': Calcutta High Court Orally Remarks In Aroop Biswas's Quashing Plea
+https://www.livelaw.in/high-court/calcutta-high-court/menace-of-egg-pelting-public-parading-needs-to-stop-calcutta-high-court-orally-remarks-in-aroop-biswass-plea-540345
 
-[Read on Telegram](https://t.me/livelawindia/114125)
-
----
-### 2026-07-07T14:57:17+00:00
-Cannot Ignore Steps By Accused To Save Himself From False Allegations Before Lodging Of FIR: Chhattisgarh High Court Quashes Rape Conviction
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-ignore-proactive-legal-steps-false-allegations-prior-lodging-rape-fir-540252
-
-[Read on Telegram](https://t.me/livelawindia/114126)
+[Read on Telegram](https://t.me/livelawindia/114157)
 
 ---
-### 2026-07-07T15:11:58+00:00
-Can't Say If Savarkar Is Called 'Mafiveer' Or 'British Agent' For Filing Mercy Petitions : Grandnephew Tells Pune Court
-https://www.livelaw.in/top-stories/cant-say-if-savarkar-is-called-mafiveer-or-british-agent-for-filing-mercy-petitions-grandnephew-tells-pune-court-540284
+### 2026-07-08T06:24:56+00:00
+Justice Ashok Bhushan Says Public Confidence Is The True Foundation Of Judicial Institutions, Calls NCLAT Bar Equal Partner In Administration Of Justice
+https://www.livelaw.in/news-updates/justice-ashok-bhushan-nclat-public-confidence-true-foundation-judicial-institutions-540346
 
-[Read on Telegram](https://t.me/livelawindia/114127)
-
----
-### 2026-07-07T15:26:58+00:00
-PIL In Delhi High Court Seeks Court-Monitored Measures To Prevent Recurring Waterlogging, Disclosure Of Monsoon Preparedness
-https://www.livelaw.in/high-court/delhi-high-court/delhi-rains-roads-waterlogging-monsoon-preparedness-mcd-540289
-
-[Read on Telegram](https://t.me/livelawindia/114128)
+[Read on Telegram](https://t.me/livelawindia/114158)
 
 ---
-### 2026-07-07T15:32:18+00:00
-Bhima Koregaon Case: Accused Mahesh Raut Moves Bombay High Court Seeking Permission To Travel To Kerala For Treatment
-https://www.livelaw.in/high-court/bombay-high-court/bhima-koregaon-mahesh-raut-permission-to-travel-kerala-medical-treatment-540291
+### 2026-07-08T06:33:56+00:00
+UGC Can't Restrict State From Prescribing Essential Educational Qualifications For Public Services: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-ugc-state-essential-qualification-public-service-540348
 
-[Read on Telegram](https://t.me/livelawindia/114129)
-
----
-### 2026-07-07T15:58:08+00:00
-Suit For Redemption Of Mortgage Sold Pursuant To Award Under UP Co-operative Societies Act Barred U/S 111(d): Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-redemption-of-mortgage-suit-sold-pursuant-up-cooperative-societies-act-540255
-
-[Read on Telegram](https://t.me/livelawindia/114130)
+[Read on Telegram](https://t.me/livelawindia/114159)
 
 ---
-### 2026-07-07T16:15:48+00:00
-Mumbai Consumer Forum Admits Plaint Against PVR Over Technical Glitches, Delayed Screening Of 'Dhurandhar: The Revenge' Film
-https://www.livelaw.in/news-updates/pvr-cinema-dhurandhar-screening-glitches-consumer-dispute-540294
+### 2026-07-08T06:53:06+00:00
+JJ Act | FIR Against School Principal For Calling Student 'Thief' Can't Be Quashed Merely Due To Absence Of Trauma In Child: HP High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-fir-quashed-clinical-psychologist-trauma-sign-540333
 
-[Read on Telegram](https://t.me/livelawindia/114131)
-
----
-### 2026-07-07T16:22:48+00:00
-Anticipatory Bail Denied To Ex-Police Officer In Corruption Case: P&H High Court Flags Risk To Investigation
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-anticipatory-bail-denied-to-ex-police-officer-in-corruption-case-540295
-
-[Read on Telegram](https://t.me/livelawindia/114132)
+[Read on Telegram](https://t.me/livelawindia/114160)
 
 ---
-### 2026-07-07T17:04:58+00:00
-Delhi High Court Grants Bail To Sukesh Chandrashekhar's Alleged Associates In Extortion Case, Cites Long Incarceration And Protracted Trial
-https://www.livelaw.in/high-court/delhi-high-court/sukesh-chandrashekhar-associates-bail-extortion-long-incarceration-540297
+### 2026-07-08T07:01:57+00:00
+Registration Act | Presence Of Buyer & Seller Not Mandatory For Registration Of Sale Deed In Uttar Pradesh : Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-buyer-presence-not-mandatory-registration-sale-deed-up-540351
 
-[Read on Telegram](https://t.me/livelawindia/114133)
+[Read on Telegram](https://t.me/livelawindia/114161)
 
 ---
-### 2026-07-07T17:15:58+00:00
-'Highly Disrespectful' To Past Order: High Court Summons Top Secy Over Failure To Fill 'UP Minorities Commission' Vacancies Since 2024
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-summons-top-official-over-vacant-up-minorities-commission-posts-since-2024-540298
+### 2026-07-08T07:14:37+00:00
+Reliable Testimony Of Witness Cannot Be Discarded Solely Over Relationship With Victim: Allahabad High Court Affirms Murder Conviction
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-reliable-testimony-witness-relationship-victim-murder-conviction-540353
 
-[Read on Telegram](https://t.me/livelawindia/114134)
+[Read on Telegram](https://t.me/livelawindia/114162)
+
+---
+### 2026-07-08T07:22:57+00:00
+Madras High Court Issues Notice On PIL Seeking UGC Intervention For Appointment Of Vice-Chancellors In Tamil Nadu Universities
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-government-universities-vc-appointment-pil-notice-issued-540354
+
+[Read on Telegram](https://t.me/livelawindia/114163)
+
+---
+### 2026-07-08T07:24:17+00:00
+'No Decision Taken Yet': State Tells Calcutta High Court On Proposed Move To Entrust Mid-Day Meal Scheme To ISKCON
+https://www.livelaw.in/high-court/calcutta-high-court/no-decision-taken-yet-state-tells-calcutta-high-court-on-proposed-move-to-entrust-mid-day-meal-scheme-to-iskcon-540355
+
+[Read on Telegram](https://t.me/livelawindia/114164)
+
+---
+### 2026-07-08T07:43:57+00:00
+Matrimonial Dispute Resulting In Acquittal Can't Be Sole Ground To Deny Compassionate Appointment As Constable: Madhya Pradesh High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/compassionate-appointment-candidate-acquitted-498a-ipc-case-540360
+
+[Read on Telegram](https://t.me/livelawindia/114165)
+
+---
+### 2026-07-08T07:47:37+00:00
+Threat To Witness Not Grounds For Transferring Trial, Witness Protection Act Applicable: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-witness-threat-ground-trial-transfer-statutory-protection-uttarakhand-witness-protection-act2020-540331
+
+[Read on Telegram](https://t.me/livelawindia/114166)
+
+---
+### 2026-07-08T07:52:47+00:00
+'Uttarakhand State Did Not Exist In 1996': High Court Upholds Disqualification Of Gram Pradhan For Forged Education Certificate
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-upholds-disqualification-gram-pradhan-forged-education-certificate-540328
+
+[Read on Telegram](https://t.me/livelawindia/114167)
+
+---
+### 2026-07-08T07:53:17+00:00
+CBSE Class XII : Supreme Court Seeks CBSE Response On Gulf Students' Plea Challenging Assessment Formula After Exam Cancellation
+https://www.livelaw.in/top-stories/cbse-class-xii-supreme-court-seeks-cbse-response-on-gulf-students-plea-challenging-assessment-formula-after-exam-cancellation-540362
+
+[Read on Telegram](https://t.me/livelawindia/114168)
+
+---
+### 2026-07-08T08:04:07+00:00
+'Police Can't Be Doctoring': Karnataka High Court Slams State Over Notices To Women Hospital Staff In Unnatural Death Case, Stays Probe
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-slams-harassment-hospital-staff-stays-udr-proceedings-540363
+
+[Read on Telegram](https://t.me/livelawindia/114169)
+
+---
+### 2026-07-08T08:12:07+00:00
+Election Petition Challenging Victory On Grounds Except Corruption Becomes Infructuous After Expiry Of Assembly Term: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-election-petition-infructuous-expiry-term-ground-except-corruption-540365
+
+[Read on Telegram](https://t.me/livelawindia/114170)
+
+---
+### 2026-07-08T08:26:47+00:00
+Failure To Explain Wife's Death In Home Completes Chain Of Guilt: Allahabad High Court Affirms Murder Conviction Of Husband, In-Laws
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-failure-explain-wife-death-home-completes-chain-guiltaffirms-murder-conviction-540367
+
+[Read on Telegram](https://t.me/livelawindia/114171)
 
 ---
