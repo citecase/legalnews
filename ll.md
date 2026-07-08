@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-08T10:48:59+00:00*
+*Last Updated: 2026-07-08T12:27:19+00:00*
 
 ---
 
-### 2026-07-08T10:48:59+00:00
-Delhi High Court Dismisses Broadcasters' Challenge To TRAI's 12-Minute Per Hour Cap On TV Advertisements
-https://www.livelaw.in/high-court/delhi-high-court/trai-tv-advertisements-12-minute-per-hour-cap-upheld-540401
-
-[Read on Telegram](https://t.me/livelawindia/114188)
-
----
-### 2026-07-08T10:49:39+00:00
-S. 34 IPC | Proof Of 'Prior Concert' Essential To Convict With Aid Of 'Common Intention': Allahabad High Court Acquits Man In 1987 Murder Case
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-s-34-ipc-proof-prior-concert-convict-common-intention-acquits-1987-murder-case-540402
-
-[Read on Telegram](https://t.me/livelawindia/114189)
-
----
-### 2026-07-08T11:22:39+00:00
-Victim's Denial Of Abduction Does Not Warrant Quashing Of Kidnapping FIR If Surrounding Circumstances Require Probe: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-womans-denial-of-abduction-does-not-by-itself-warrant-quashing-of-kidnapping-fir-if-the-surrounding-circumstances-require-investigation-540338
-
-[Read on Telegram](https://t.me/livelawindia/114190)
-
----
-### 2026-07-08T11:32:39+00:00
-LiveLaw Rajasthan High Court Half Yearly Digest: January - June, 2026
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-half-yearly-digest2026-539988
-
-[Read on Telegram](https://t.me/livelawindia/114191)
-
----
-### 2026-07-08T11:37:09+00:00
-BREAKING | Madras High Court Grants Anticipatory Bail To DMK's Senthil Balaji Accused Of Offering ₹35 Crore Bribe To TVK MLA
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-anticipatory-bail-senthil-balaji-bribe-tvk-mla-540409
-
-[Read on Telegram](https://t.me/livelawindia/114192)
-
----
-### 2026-07-08T11:37:29+00:00
-"5-Acre Rule" Applies Only To Coercive Attachment, Not Voluntary Sale Of Tribal Land U/S 165(6) Land Revenue Code: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-5acre-rule-applies-coercive-attachments-land-revenue-code-540329
-
-[Read on Telegram](https://t.me/livelawindia/114193)
-
----
-### 2026-07-08T11:49:49+00:00
-Kerala High Court Closes Film Producer's Contempt Plea After Police Inquiry Clears DySP Of Misbehaviour Allegations
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sheela-kurian-film-producer-dysp-madhu-babu-540410
-
-[Read on Telegram](https://t.me/livelawindia/114194)
-
----
-### 2026-07-08T12:20:09+00:00
-Karnataka High Court Upholds Land Grabbing FIR Against Ex-Minister Chowda Reddy, Asks Why Sons Not Made Accused Despite Material
-https://www.livelaw.in/high-court/karnataka-high-court/exminister-chowdareddy-land-grabbing-fir-upheld-congress-mla-mc-sudhakar-mc-balaji-540414
-
-[Read on Telegram](https://t.me/livelawindia/114195)
-
----
-### 2026-07-08T12:22:49+00:00
-Calcutta High Court Half-Yearly Digest: January To June 2026
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-half-yearly-digest-january-to-june-2026-540335
-
-[Read on Telegram](https://t.me/livelawindia/114196)
-
----
 ### 2026-07-08T12:27:19+00:00
 Call For Blogs | The Family Law Chronicle, Centre For Family Law, National Law University, Jodhpur
 https://www.livelaw.in/lawschool/call-for-papers/national-law-university-jodhpur-family-law-chronicle-centre-family-law-540415
@@ -142,5 +79,68 @@ Kerala High Court Closes Contempt Proceedings Against Congress MP K Sudhakaran O
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-contempt-case-k-sudhakaran-high-court-judgment-unconditional-apology-540434
 
 [Read on Telegram](https://t.me/livelawindia/114207)
+
+---
+### 2026-07-08T14:26:20+00:00
+Call For Applications: Project Fellow At Rajiv Gandhi National University Of Law, Punjab [Walk-In-Interview; Apply Now]
+https://www.livelaw.in/job-updates/call-for-applications-project-fellow-at-rajiv-gandhi-national-university-of-law-punjab-walk-in-interview-540435
+
+[Read on Telegram](https://t.me/livelawindia/114208)
+
+---
+### 2026-07-08T14:32:30+00:00
+Blocking Telegram Won't Fix Leak
+https://www.livelaw.in/lawschool/articles/blocking-telegram-leak-540286
+
+[Read on Telegram](https://t.me/livelawindia/114209)
+
+---
+### 2026-07-08T14:33:00+00:00
+Private Schools Are Not 'Public Authority' Under RTI Act, But Must Display Fee Structure As Per State Rules: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-private-school-display-fee-structure-entrance-540438
+
+[Read on Telegram](https://t.me/livelawindia/114210)
+
+---
+### 2026-07-08T14:33:10+00:00
+Himachal Pradesh High Court Monthly Digest : June 2026
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-monthly-digest-june2026-540300
+
+[Read on Telegram](https://t.me/livelawindia/114211)
+
+---
+### 2026-07-08T14:50:01+00:00
+'Disturbing State Of Affairs': Allahabad High Court Questions Remission To Life Convict After Serving Less Than 6 Years
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-disturbing-grant-remission-life-convict-540441
+
+[Read on Telegram](https://t.me/livelawindia/114212)
+
+---
+### 2026-07-08T14:55:21+00:00
+MNLU Nagpur To Host 'The Orange Capital Debate 3.0' From July 31–August 2; Register By July 20
+https://www.livelaw.in/lawschool/competitions/mnlu-nagpur-host-orange-capital-debate-30-540442
+
+[Read on Telegram](https://t.me/livelawindia/114213)
+
+---
+### 2026-07-08T15:16:52+00:00
+Gurugram Court Working From Guest House: High Court Raps Haryana Govt Over Delay In 'Tower of Justice' Project
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/delay-in-constructing-gurugram-court-working-from-guest-house-540443
+
+[Read on Telegram](https://t.me/livelawindia/114214)
+
+---
+### 2026-07-08T15:48:52+00:00
+Delhi High Court To Decide Next Week Mahua Moitra's Plea For Visitation Rights To Pet Dog Henry
+https://www.livelaw.in/high-court/delhi-high-court/mahua-moitra-jai-anant-dehadrai-pet-dog-custody-dispute-visitation-540447
+
+[Read on Telegram](https://t.me/livelawindia/114215)
+
+---
+### 2026-07-08T16:40:23+00:00
+Same-Sex Couples Can't Claim 'Spouse' Benefits Under Income Tax Act Without Legal Recognition Of Marriage: IT Dept Tells Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/same-sex-couple-spouse-income-tax-exemption-marriage-recognition-540448
+
+[Read on Telegram](https://t.me/livelawindia/114216)
 
 ---
