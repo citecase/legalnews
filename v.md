@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-08T14:22:08+00:00*
+*Last Updated: 2026-07-08T16:02:52+00:00*
+
+---
+
+### 2026-07-08T16:02:52+00:00
+Executive Decisions Operate Prospectively Unless Expressly Stated Otherwise: Bombay High Court Restores Land Conversion Order Set Aside By Revenue Minister
+https://www.verdictum.in/bombay-high-court/dharampal-sharma-ors-v-state-of-maharashtra-ors-ravenume-minister-land-conversion-1617377
+
+[Source Link](https://t.me/verdictumlegalupdates/27859)
+
+---
+
+### 2026-07-08T15:33:11+00:00
+Financial Facilitator, Not Participant In Extortion: Delhi High Court Grants Bail To 4 Accused In Sukesh Chandrasekhar Extortion Case
+https://www.verdictum.in/delhi-high-court/arun-muthu-v-state-of-nct-of-delhi-2026dhc5431-practical-approach-pending-larger-bench-reference-tasleem-ahmad-extortion-1617379
+
+[Source Link](https://t.me/verdictumlegalupdates/27858)
+
+---
+
+### 2026-07-08T15:03:10+00:00
+Adult Woman’s Right To Choose Residence, Higher Education Facet Of Article 21; Parents Cannot Compel Her Return: Bombay High Court
+https://www.verdictum.in/bombay-high-court/2026-bhc-as-27664-db-safia-sultana-v-state-of-maharashtra-1617375
+
+[Source Link](https://t.me/verdictumlegalupdates/27857)
 
 ---
 
@@ -137,30 +161,6 @@ Junior Legal Consultant Vacancy At Maharashtra Real Estate Regulatory Authority 
 https://www.verdictum.in/job-updates/maharashtra-real-estate-regulatory-authority-1617302
 
 [Source Link](https://t.me/verdictumlegalupdates/27840)
-
----
-
-### 2026-07-07T15:42:36+00:00
-Notarized Agreement For 99-Year Lease Bearing Only Thumb Impression Has No Evidentiary Value: Bombay High Court
-https://www.verdictum.in/bombay-high-court/suka-mahadu-khade-v-bababai-tukaram-shevre-notarized-agreement-lease-evidentiary-value-1617295
-
-[Source Link](https://t.me/verdictumlegalupdates/27839)
-
----
-
-### 2026-07-07T15:13:14+00:00
-Lawyer’s Service Rendered On Legal Side Not Covered Under Consumer Protection Act: Andhra Pradesh High Court
-https://www.verdictum.in/andhra-pradesh-high-court/asskdurga-prasad-v-national-consumer-disputes-redressal-commission-lawyer-consumer-protection-1617313
-
-[Source Link](https://t.me/verdictumlegalupdates/27838)
-
----
-
-### 2026-07-07T14:42:53+00:00
-Madhya Pradesh HC Refuses To Stay Departmental Inquiry Against Judicial Officer Accused Of Fabricating Acquittal Judgment
-https://www.verdictum.in/madhya-pradesh-high-court/2026mphc-jbp-46884-vijendra-singh-rawat-v-state-of-madhya-pradesh-1617312
-
-[Source Link](https://t.me/verdictumlegalupdates/27837)
 
 ---
 
