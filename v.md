@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-08T16:02:52+00:00*
+*Last Updated: 2026-07-09T04:32:51+00:00*
+
+---
+
+### 2026-07-09T04:32:51+00:00
+Property Acquired A Decade Before Predicate Offence FIR Can’t Be Termed "Proceeds Of Crime": Allahabad High Court Quashes  PMLA Proceedings
+https://www.verdictum.in/allahabad-high-court/2026-ahc-lko-43154-tulsiani-construction-dev-ltd-v-state-of-up-1617378
+
+[Source Link](https://t.me/verdictumlegalupdates/27860)
 
 ---
 
@@ -153,14 +161,6 @@ Individual Litigant Or Advocate Has No Vested Or Fundamental Right To Demand Out
 https://www.verdictum.in/madras-high-court/individual-litigant-counsel-no-vested-fundamental-right-out-of-turn-listing-matter-1617314
 
 [Source Link](https://t.me/verdictumlegalupdates/27841)
-
----
-
-### 2026-07-07T16:02:18+00:00
-Junior Legal Consultant Vacancy At Maharashtra Real Estate Regulatory Authority (MahaRERA)
-https://www.verdictum.in/job-updates/maharashtra-real-estate-regulatory-authority-1617302
-
-[Source Link](https://t.me/verdictumlegalupdates/27840)
 
 ---
 
