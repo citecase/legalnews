@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-09T10:02:32+00:00*
+*Last Updated: 2026-07-09T15:32:56+00:00*
+
+---
+
+### 2026-07-09T15:32:56+00:00
+"Noted Thanks" Acknowledgement Of Arbitral Award On WhatsApp Group Is Acceptance: Delhi High Court Dismisses Section 34 Petition As Time-Barred
+https://www.verdictum.in/delhi-high-court/2026-dhc-5380-vinay-mawandia-v-bimal-mawandia-1617450
+
+[Source Link](https://t.me/verdictumlegalupdates/27880)
+
+---
+
+### 2026-07-09T15:02:55+00:00
+Delhi High Court Issues Summons In Suit Over Meta's 'Edit Post' Loophole Used To Steal Content & For Fake Copyright Strikes
+https://www.verdictum.in/delhi-high-court/pushkar-raj-thakur-meta-edit-post-loophole-fake-copyright-strikes-1617437
+
+[Source Link](https://t.me/verdictumlegalupdates/27879)
+
+---
+
+### 2026-07-09T14:32:53+00:00
+Recalcitrant Defaulters Cannot Seek Same Instalment Facility As Auction Purchaser: Supreme Court Upholds BSFC Auction Sale
+https://www.verdictum.in/supreme-court/bihar-state-financial-corporation-anr-v-bhushan-singh-ors-2026-insc-673-1617435
+
+[Source Link](https://t.me/verdictumlegalupdates/27878)
+
+---
+
+### 2026-07-09T14:02:32+00:00
+Step-Son Ineligible To Receive Family Pension Under Railway Services (Pension) Rules: Madras High Court
+https://www.verdictum.in/madras-high-court/union-of-india-v-the-registrar-step-son-family-pension-railway-services-pension-rules-1617436
+
+[Source Link](https://t.me/verdictumlegalupdates/27877)
+
+---
+
+### 2026-07-09T13:32:31+00:00
+Proceedings Against Deceased Person Void Ab Initio: Patna High Court Quashes Certificate Proceedings Initiated After Debtor's Death
+https://www.verdictum.in/patna-high-court/manju-devi-v-the-state-of-bihar-ors-2026pathc57908-certificate-proceedings-1617438
+
+[Source Link](https://t.me/verdictumlegalupdates/27876)
+
+---
+
+### 2026-07-09T13:02:10+00:00
+Commercial Courts Act Is Meant For Expediency In Deciding Commercial Disputes; Voluminous Evidence Can’t Water Down Rigours Of Statute: Supreme Court
+https://www.verdictum.in/supreme-court/ms-levitate-mobile-technologies-pvt-ltd-v-standard-chartered-bank-2026-insc-674-commercial-courts-1617441
+
+[Source Link](https://t.me/verdictumlegalupdates/27875)
+
+---
+
+### 2026-07-09T12:32:08+00:00
+Supreme Court Judge Recuses From Hearing Plea Against HC's Refusal To Interfere With Equestrian Team Selection
+https://www.verdictum.in/supreme-court/judge-recuses-refusal-to-interfere-with-equestrian-team-selection-1617439
+
+[Source Link](https://t.me/verdictumlegalupdates/27874)
+
+---
+
+### 2026-07-09T12:02:37+00:00
+Apex Court Takes Note Of Recent Fire Incident In Delhi NCR & Lucknow, Pulls Up Civic Bodies For Non Compliance Of Orders
+https://www.verdictum.in/supreme-court/recent-fire-incident-in-delhi-ncr-lucknow-1617440
+
+[Source Link](https://t.me/verdictumlegalupdates/27873)
+
+---
+
+### 2026-07-09T11:33:15+00:00
+One Who Alleges A Custom Must Prove It; Uncle-In-Law Cannot Adopt Niece's Husband As "Ghardamad" Under Oraon Tribal Custom: Supreme Court
+https://www.verdictum.in/supreme-court/bejla-oraon-v-kali-das-oraon-2026-insc-672-alleges-custom-uncle-in-law-cannot-adopt-nieces-husband-ghardamad-1617434
+
+[Source Link](https://t.me/verdictumlegalupdates/27872)
+
+---
+
+### 2026-07-09T11:02:54+00:00
+RBI Bank Merger Scheme Cannot Override Section 14(1)(b) DRC Act: Supreme Court Restores Eviction Decree Against PNB
+https://www.verdictum.in/supreme-court/british-motor-car-company-ltd-v-ms-hindustan-commercial-bank-ltd-punjab-national-bank-anr-2026-insc-671-1617429
+
+[Source Link](https://t.me/verdictumlegalupdates/27871)
+
+---
+
+### 2026-07-09T10:32:53+00:00
+"Use Of Temple By Members Of Public As Of Right" Determines Whether It Is A Public Trust When Origin Of Endowment Cannot Be Ascertained: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/mallari-so-ramchandra-nimbalkar-v-laxman-raju-poojari-2026khc-d8167-public-trust-when-origin-of-endowment-use-of-temple-public-1617428
+
+[Source Link](https://t.me/verdictumlegalupdates/27870)
 
 ---
 
@@ -73,94 +161,6 @@ Recitation Of Saraswati Vandana & Gayatri Mantra In Schools’ Morning Assembly 
 https://www.verdictum.in/chhattisgarh-high-court/abdul-salam-rizvi-v-state-of-chhattisgarh-2026cghc27135-ex-waqf-board-chairman-saraswati-vandana-gayatri-mantra-schools-morning-assembly-1617402
 
 [Source Link](https://t.me/verdictumlegalupdates/27861)
-
----
-
-### 2026-07-09T04:32:51+00:00
-Property Acquired A Decade Before Predicate Offence FIR Can’t Be Termed "Proceeds Of Crime": Allahabad High Court Quashes  PMLA Proceedings
-https://www.verdictum.in/allahabad-high-court/2026-ahc-lko-43154-tulsiani-construction-dev-ltd-v-state-of-up-1617378
-
-[Source Link](https://t.me/verdictumlegalupdates/27860)
-
----
-
-### 2026-07-08T16:02:52+00:00
-Executive Decisions Operate Prospectively Unless Expressly Stated Otherwise: Bombay High Court Restores Land Conversion Order Set Aside By Revenue Minister
-https://www.verdictum.in/bombay-high-court/dharampal-sharma-ors-v-state-of-maharashtra-ors-ravenume-minister-land-conversion-1617377
-
-[Source Link](https://t.me/verdictumlegalupdates/27859)
-
----
-
-### 2026-07-08T15:33:11+00:00
-Financial Facilitator, Not Participant In Extortion: Delhi High Court Grants Bail To 4 Accused In Sukesh Chandrasekhar Extortion Case
-https://www.verdictum.in/delhi-high-court/arun-muthu-v-state-of-nct-of-delhi-2026dhc5431-practical-approach-pending-larger-bench-reference-tasleem-ahmad-extortion-1617379
-
-[Source Link](https://t.me/verdictumlegalupdates/27858)
-
----
-
-### 2026-07-08T15:03:10+00:00
-Adult Woman’s Right To Choose Residence, Higher Education Facet Of Article 21; Parents Cannot Compel Her Return: Bombay High Court
-https://www.verdictum.in/bombay-high-court/2026-bhc-as-27664-db-safia-sultana-v-state-of-maharashtra-1617375
-
-[Source Link](https://t.me/verdictumlegalupdates/27857)
-
----
-
-### 2026-07-08T14:22:08+00:00
-Government Doctor Cannot Claim Motor Accident Compensation For Private Practice Without Proof Of Actual Earnings: Bombay High Court
-https://www.verdictum.in/bombay-high-court/bajaj-alliance-insurance-co-ltd-v-rohidas-ambadas-chavan-anr-mact-1617373
-
-[Source Link](https://t.me/verdictumlegalupdates/27856)
-
----
-
-### 2026-07-08T13:52:37+00:00
-SC Seeks Response On Plea By Students Affected By Cancellation Of Class XII Board Exam In Gulf Countries Due To War
-https://www.verdictum.in/supreme-court/sc-seeks-response-on-plea-by-students-affected-by-cancellation-of-class-xii-board-exam-in-gulf-countries-due-to-war-1617372
-
-[Source Link](https://t.me/verdictumlegalupdates/27855)
-
----
-
-### 2026-07-08T13:33:16+00:00
-Personality, Publicity & Moral Rights Violated: Bombay High Court Directs Takedown Of Priety Zinta Deepfakes
-https://www.verdictum.in/bombay-high-court/personality-publicity-moral-rights-violated-bombay-high-court-directs-takedown-of-priety-zinta-deepfakes-1617367
-
-[Source Link](https://t.me/verdictumlegalupdates/27854)
-
----
-
-### 2026-07-08T13:12:34+00:00
-Parents' Financial Independence No Bar To Cancellation Of Gift Deed If Child Fails To Maintain Them: Bombay High Court
-https://www.verdictum.in/bombay-high-court/ashwin-ramesh-soni-v-ramesh-bachaulal-soni-writ-petition-stamp-no-13629-of-2026-parents-financial-independence-cancellation-of-gift-deed-son-1617361
-
-[Source Link](https://t.me/verdictumlegalupdates/27853)
-
----
-
-### 2026-07-08T12:43:13+00:00
-Rajasthan High Court Seeks Report On Production Of Synthetic Milk & Vegetable Cultivation Using Dirty Wastewater
-https://www.verdictum.in/rajasthan-high-court/state-to-inspect-against-synthetic-milk-illegal-cultivation-using-dirty-city-waste-water-1617366
-
-[Source Link](https://t.me/verdictumlegalupdates/27852)
-
----
-
-### 2026-07-08T12:21:32+00:00
-Kerala High Court Issues Contempt Notice To Bureaucrat Over Order Granting Sanction In KSCDC Graft Case
-https://www.verdictum.in/kerala-high-court/kadakampally-manoj-v-mohammed-hanish-contempt-notice-bureaucrat-sanction-kscdc-graft-1617364
-
-[Source Link](https://t.me/verdictumlegalupdates/27851)
-
----
-
-### 2026-07-08T12:03:11+00:00
-Nomenclature Assigned By Employer Not Conclusive Of True Nature Of Employment Relationship: Delhi High Court
-https://www.verdictum.in/delhi-high-court/state-bank-of-india-v-umed-singh-2026dhc5414-branch-managers-signature-recorded-as-bills-for-water-supply-1617360
-
-[Source Link](https://t.me/verdictumlegalupdates/27850)
 
 ---
 
