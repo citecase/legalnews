@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-09T04:32:51+00:00*
+*Last Updated: 2026-07-09T10:02:32+00:00*
+
+---
+
+### 2026-07-09T10:02:32+00:00
+BCI Hails 'Historic' Judgment Of Apex Court In Ajay Vijh v. Indian Banks Association, Proposes Establishment Of National Legal Academy
+https://www.verdictum.in/latest-news/bar-council-of-india-proposes-establishment-of-national-legal-academy-1617427
+
+[Source Link](https://t.me/verdictumlegalupdates/27869)
+
+---
+
+### 2026-07-09T09:32:31+00:00
+Knowledge Of Victim's Pre-Existing Heart Disease Essential: Himachal Pradesh High Court Sets Aside Conviction U/S 304 Part II IPC
+https://www.verdictum.in/himachal-high-court/nirmala-devi-v-state-of-hp-cr-appeal-nos-475-and-476-of-2012-knowledge-of-victims-pre-existing-heart-disease-us-304-part-ii-ipc-1617426
+
+[Source Link](https://t.me/verdictumlegalupdates/27868)
+
+---
+
+### 2026-07-09T09:03:09+00:00
+Publishing Pleadings, Orders On PSC Website Is Not Valid Service Of Notice On Ranked List Candidates: Kerala High Court
+https://www.verdictum.in/kerala-high-court/henna-pk-ors-v-state-of-kerala-ors-2026ker45238-kerala-psc-notice-1617424
+
+[Source Link](https://t.me/verdictumlegalupdates/27867)
+
+---
+
+### 2026-07-09T08:32:48+00:00
+TN Private Schools (Regulations) Act| No Statutory Bar On Deploying Woman Teacher To Boys' School: Madras High Court
+https://www.verdictum.in/madras-high-court/saratha-v-the-chief-educational-officer-writ-petition-md-no-3755-of-2026-woman-teacher-to-boys-school-1617422
+
+[Source Link](https://t.me/verdictumlegalupdates/27866)
+
+---
+
+### 2026-07-09T07:52:47+00:00
+No Vested Right For Proposed Accused To Pre-Cognizance Hearing In SFIO Proceedings: Punjab & Haryana High Court
+https://www.verdictum.in/punjab-and-haryana-high-court/2026phhc091677-vivo-india-pvt-ltd-v-serious-fraud-investigation-office-1617419
+
+[Source Link](https://t.me/verdictumlegalupdates/27865)
+
+---
+
+### 2026-07-09T07:12:26+00:00
+Power Of Revision Doesn’t Confer Unrestricted Authority To Repeatedly Reopen Matters That Have Attained Finality: Madhya Pradesh High Court Quashes Collector’s Order
+https://www.verdictum.in/madhya-pradesh-high-court/dr-ganesh-ram-jain-v-the-state-of-madhya-pradesh-2026mphc-gwl19722-revision-collector-1617418
+
+[Source Link](https://t.me/verdictumlegalupdates/27864)
+
+---
+
+### 2026-07-09T06:32:44+00:00
+Statutory Mandate Of Section 42A Arbitration Act Cannot Be Diluted Or Overridden By Institutional Rules: Delhi High Court
+https://www.verdictum.in/delhi-high-court/2026-dhc-5370-jpc-infrastructure-and-constructions-private-limited-v-alstom-transport-india-1617415
+
+[Source Link](https://t.me/verdictumlegalupdates/27863)
+
+---
+
+### 2026-07-09T05:52:23+00:00
+Sovereignty & Security Of Nation Must Prevail Over Personal Liberty: Delhi High Court Denies Bail To 2008 Delhi Serial Blasts Accused
+https://www.verdictum.in/delhi-high-court/mansoor-asghar-peerbhoy-v-state-govt-of-nct-of-delhi-2026dhc5407-db-indian-mujahideen-media-cell-head-after-17-years-in-custody-1617404
+
+[Source Link](https://t.me/verdictumlegalupdates/27862)
+
+---
+
+### 2026-07-09T05:13:02+00:00
+Recitation Of Saraswati Vandana & Gayatri Mantra In Schools’ Morning Assembly Does Not Violate Any Fundamental Right: Chhattisgarh High Court Dismisses Ex-Waqf Board Chairman's Plea
+https://www.verdictum.in/chhattisgarh-high-court/abdul-salam-rizvi-v-state-of-chhattisgarh-2026cghc27135-ex-waqf-board-chairman-saraswati-vandana-gayatri-mantra-schools-morning-assembly-1617402
+
+[Source Link](https://t.me/verdictumlegalupdates/27861)
 
 ---
 
@@ -89,78 +161,6 @@ Nomenclature Assigned By Employer Not Conclusive Of True Nature Of Employment Re
 https://www.verdictum.in/delhi-high-court/state-bank-of-india-v-umed-singh-2026dhc5414-branch-managers-signature-recorded-as-bills-for-water-supply-1617360
 
 [Source Link](https://t.me/verdictumlegalupdates/27850)
-
----
-
-### 2026-07-08T11:22:30+00:00
-Writ Maintainable Against Minority Aided School If Teacher’s Suspension Or Dismissal Violates Statutory Requirements: Patna High Court
-https://www.verdictum.in/patna-high-court/abha-rani-v-the-state-of-bihar-writ-petition-public-aided-school-employee-suspension-1617358
-
-[Source Link](https://t.me/verdictumlegalupdates/27849)
-
----
-
-### 2026-07-08T10:32:48+00:00
-Personal Liberty Not A Plaything For District Police & Magistracy To “Flirt With”: J&K&L High Court Quashes Preventive Detention Under PSA
-https://www.verdictum.in/jammu-ladakh-high-court/fayaz-ahmad-lone-v-ut-of-jk-hcp-no-1622025-preventive-detention-under-psa-district-police-magistracy-flirt-with-1617357
-
-[Source Link](https://t.me/verdictumlegalupdates/27848)
-
----
-
-### 2026-07-08T09:43:07+00:00
-Private Crypto Exchange Dispute Does Not Warrant CBI/SIT Probe Merely Because Many Investors Are Affected: Delhi High Court
-https://www.verdictum.in/delhi-high-court/amit-ranjan-ors-v-union-of-india-and-others-2026dhc5442-db-crypto-1617356
-
-[Source Link](https://t.me/verdictumlegalupdates/27847)
-
----
-
-### 2026-07-08T08:52:46+00:00
-Escape Of Accused From DRI Office During Investigation Reflects Complete Collapse Of Vigilance, Supervision: Chhattisgarh High Court While Acquitting Five In 833-Kg Ganja Seizure Case
-https://www.verdictum.in/chhattisgarh-high-court/dorilal-v-directorate-of-revenue-intelligence-2026cghc26821-db-escape-of-accused-from-dri-office-five-in-833-kg-ganja-seizure-case-1617353
-
-[Source Link](https://t.me/verdictumlegalupdates/27846)
-
----
-
-### 2026-07-08T08:03:05+00:00
-Prohibition Of Child Marriage Act & POCSO Act Apply To All Citizens Irrespective Of Religion: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/r-v-state-of-up-2026ahc130283-db-shariat-law-prohibition-of-child-marriage-act-pocso-act-religion-1617349
-
-[Source Link](https://t.me/verdictumlegalupdates/27845)
-
----
-
-### 2026-07-08T07:13:03+00:00
-Specific Performance No Longer Discretionary After 2018 Amendment To Specific Relief Act, Court Obliged To Enforce Contract: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/tushar-agrawal-v-ganesh-prasad-2026ahc133431-specific-performance-no-longer-discretionary-2018-amendment-1617343
-
-[Source Link](https://t.me/verdictumlegalupdates/27844)
-
----
-
-### 2026-07-08T06:13:02+00:00
-Consistency & Uniformity Needed In Nextgen E-Hospital Management Information System: Delhi High Court Asks NIC To Conduct Surprise Audits
-https://www.verdictum.in/delhi-high-court/court-on-its-own-motion-v-union-of-india-2026dhc5377-db-nextgen-e-hospital-management-system-1617339
-
-[Source Link](https://t.me/verdictumlegalupdates/27843)
-
----
-
-### 2026-07-08T05:22:41+00:00
-Seller Can't Verify Credentials Of Purchasers Making Payments Through UPI:  Andhra Pradesh HC Orders Defreezing Of Seller's Bank Account
-https://www.verdictum.in/andhra-pradesh-high-court/verifying-credentials-authorities-cannot-freeze-bank-account-1617335
-
-[Source Link](https://t.me/verdictumlegalupdates/27842)
-
----
-
-### 2026-07-08T04:33:10+00:00
-Individual Litigant Or Advocate Has No Vested Or Fundamental Right To Demand Out Of Turn Listing Of Matter: Madras High Court
-https://www.verdictum.in/madras-high-court/individual-litigant-counsel-no-vested-fundamental-right-out-of-turn-listing-matter-1617314
-
-[Source Link](https://t.me/verdictumlegalupdates/27841)
 
 ---
 
