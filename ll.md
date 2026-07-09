@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-08T12:27:19+00:00*
+*Last Updated: 2026-07-08T12:47:39+00:00*
 
 ---
 
-### 2026-07-08T12:27:19+00:00
-Call For Blogs | The Family Law Chronicle, Centre For Family Law, National Law University, Jodhpur
-https://www.livelaw.in/lawschool/call-for-papers/national-law-university-jodhpur-family-law-chronicle-centre-family-law-540415
-
-[Read on Telegram](https://t.me/livelawindia/114197)
-
----
-### 2026-07-08T12:37:39+00:00
-Kerala High Court Gives Investigating Officer Final Opportunity To Complete ₹15.85 Crore SNDP Microfinance Scam Probe
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-microfinance-fraud-case-sanction-540416
-
-[Read on Telegram](https://t.me/livelawindia/114198)
-
----
 ### 2026-07-08T12:47:39+00:00
 Authorities Cannot Rely Solely On Web Portals For Recruitment Notices When Prior Physical Notice Is Mandatory: Chhattisgarh High Court
 https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-authorities-rely-web-portals-recruitment-notices-540339
@@ -142,5 +128,19 @@ Same-Sex Couples Can't Claim 'Spouse' Benefits Under Income Tax Act Without Lega
 https://www.livelaw.in/high-court/bombay-high-court/same-sex-couple-spouse-income-tax-exemption-marriage-recognition-540448
 
 [Read on Telegram](https://t.me/livelawindia/114216)
+
+---
+### 2026-07-09T03:31:05+00:00
+Limitation Period Cannot Be Extended By 'One-Way Traffic' Of Letters Or Belated Representations: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-limitation-period-not-extended-one-way-traffic-letters-belated-representations-540450
+
+[Read on Telegram](https://t.me/livelawindia/114217)
+
+---
+### 2026-07-09T03:33:05+00:00
+'Impulsive Young Men Lured By Wealth, Not Professional Killers': Bombay High Court Commutes Death Penalty In Kidnap-Murder Case
+https://www.livelaw.in/high-court/bombay-high-court/death-penalty-commuted-friend-kidnap-murder-for-ransom-wealth-lured-not-rarest-of-rare-540449
+
+[Read on Telegram](https://t.me/livelawindia/114218)
 
 ---
