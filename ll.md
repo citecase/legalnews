@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-09T06:51:06+00:00*
+*Last Updated: 2026-07-09T12:06:58+00:00*
 
 ---
 
-### 2026-07-09T06:51:06+00:00
-2020 Bengaluru Riots: Karnataka High Court Grants Bail To Fairoz Pasha After 5 Years In Jail, Cites Parity With Co-Accused
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-grants-bail-2020bengaluru-riots-accused-fairoz-pasha-540494
+### 2026-07-09T12:06:58+00:00
+Parul University Invites Registrations For Samvidhan Pe Charcha 4.0 – 4th Inter-University Moot Court Competition 2026; Register By August 26
+https://www.livelaw.in/lawschool/competitions/parul-university-invites-registrations-samvidhan-pe-charcha-40-4th-inter-university-moot-court-competition-540562
 
-[Read on Telegram](https://t.me/livelawindia/114244)
-
----
-### 2026-07-09T07:02:46+00:00
-Kerala High Court Mourns Demise Of Former Justice R Bhaskaran, Recalls His 'Life Devoted To Justice And Public Service'
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-justice-r-bhaskaran-condole-demise-540486
-
-[Read on Telegram](https://t.me/livelawindia/114245)
+[Read on Telegram](https://t.me/livelawindia/114278)
 
 ---
-### 2026-07-09T07:13:46+00:00
-Calcutta High Court Allows TMC To Incur Daily Expenses From Frozen Bank Accounts Under Supervision Of Special Officer
-https://www.livelaw.in/top-stories/calcutta-high-court-allows-tmc-to-incur-daily-expenses-from-frozen-bank-accounts-under-supervision-of-special-officer-540498
+### 2026-07-09T12:10:08+00:00
+'Unwanted Nuisance': Karnataka High Court Slaps ₹1 Lakh Costs On BDA For Selling Same Site Twice, Directs Recovery From Erring Officer
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-cost-bda-double-allotment-same-site-different-beneficiaries-540564
 
-[Read on Telegram](https://t.me/livelawindia/114246)
-
----
-### 2026-07-09T07:32:06+00:00
-IBC| 'Mere Settlement Talks Can't Defer CIRP Admission Once Debt & Default Is Established', Supreme Court Affirms Revival Of CIRP
-https://www.livelaw.in/top-stories/ibc-mere-settlement-talks-cant-defer-cirp-admission-once-debt-default-is-established-supreme-court-affirms-revival-of-cirp-540501
-
-[Read on Telegram](https://t.me/livelawindia/114247)
+[Read on Telegram](https://t.me/livelawindia/114279)
 
 ---
-### 2026-07-09T07:33:06+00:00
-Orissa High Court Refuses To Quash FIR Against Doctor Accused Of Helping Husband Cheat Women Through Sham Marriages
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-denies-quash-case-wife-helping-husband-monetarily-dupe-women-540496
+### 2026-07-09T12:14:28+00:00
+Kerala High Court Grants 30 Days' Interim Bail To PFI Member Sentenced To Death In BJP's Ranjith Sreenivasan Murder Case
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ranjith-sreenivasan-murder-navas-interim-bail-540565
 
-[Read on Telegram](https://t.me/livelawindia/114248)
-
----
-### 2026-07-09T07:37:46+00:00
-Must Arrest Grounds Be Given In Writing? Supreme Court Says Judgments Are Conflicting, Mulls Larger Bench Reference
-https://www.livelaw.in/top-stories/must-arrest-grounds-be-given-in-writing-supreme-court-says-judgments-are-conflicting-mulls-larger-bench-reference-540502
-
-[Read on Telegram](https://t.me/livelawindia/114249)
+[Read on Telegram](https://t.me/livelawindia/114280)
 
 ---
-### 2026-07-09T07:47:56+00:00
-Exhibit Marking Of Documents Already On Record Causes No Prejudice: Rajasthan High Court Upholds Amendment Of Pleadings
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-hyper-technical-objections-defeat-adjudication-merits-540500
+### 2026-07-09T12:32:48+00:00
+CM Vijay Birthday Celebration Row: Madras High Court Issues Notice On Plea To Keep Educational Institutions Free From Political Activities
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-educational-institution-without-politics-notice-issued-540568
 
-[Read on Telegram](https://t.me/livelawindia/114250)
-
----
-### 2026-07-09T07:57:36+00:00
-PSC Recruitment Dispute | Pleadings, Orders Can't Be Published On PSC Website As Substitute For Notice To Candidates: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kat-serving-notice-psc-publish-pleadings-orders-website-candidate-dashboard-540504
-
-[Read on Telegram](https://t.me/livelawindia/114251)
+[Read on Telegram](https://t.me/livelawindia/114281)
 
 ---
-### 2026-07-09T08:03:16+00:00
-Karnataka High Court Quashes FIR Over Allegedly Anti-National Social Media Post After Woman Undertakes Not To Make Similar Posts
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-fir-woman-antinational-social-media-post-540506
+### 2026-07-09T12:35:48+00:00
+PIL In Punjab & Haryana High Court Seeks Restoration Of Diljit Dosanjh Starrer 'Satluj', Challenges Takedown Of Film
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/diljit-dosanjh-satluj-restoration-zee5-takedown-challenged-540569
 
-[Read on Telegram](https://t.me/livelawindia/114252)
-
----
-### 2026-07-09T08:13:17+00:00
-Delhi High Court Issues Notice On Ambassador Hotel's Plea Against Centre's Eviction Notice
-https://www.livelaw.in/high-court/delhi-high-court/ambassador-hotel-challenge-centres-eviction-notice-issued-540511
-
-[Read on Telegram](https://t.me/livelawindia/114253)
+[Read on Telegram](https://t.me/livelawindia/114282)
 
 ---
-### 2026-07-09T08:26:37+00:00
-S. 145 Evidence Act | Allahabad High Court Clarifies Procedure To Contradict Witnesses Using Omissions In S. 161 CrPC Statements
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-procedure-contradict-witness-omissions-section-161-crpc-section-145-evidence-act-540513
+### 2026-07-09T12:52:48+00:00
+'Dismissal Shockingly Disproportionate For 240 Day-Absence': Bombay High Court Awards ₹15 Lakhs Compensation
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-awards-15lakhs-compensation-industrial-worker-540543
 
-[Read on Telegram](https://t.me/livelawindia/114254)
-
----
-### 2026-07-09T08:32:57+00:00
-“Insensitive”: Allahabad High Court Summons Power Corporation MD Over Denial Of Electrocution Compensation To Deceased Worker's Family
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-summons-purvanchal-vidyut-vitran-nigam-denying-compensation-claim-deceased-worker-540509
-
-[Read on Telegram](https://t.me/livelawindia/114255)
+[Read on Telegram](https://t.me/livelawindia/114283)
 
 ---
-### 2026-07-09T09:13:07+00:00
-Calcutta High Court Adjourns TMC Leader Sujit Bose's Bail Plea In ED Case Till July 14
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-adjourns-tmc-leader-sujit-boses-bail-plea-in-ed-case-till-july-14-540521
+### 2026-07-09T13:00:08+00:00
+'Judicial Work Severely Curtailed': High Court Permits Shifting Of Gurugram District Courts To 'Tower Of Justice' Pending Formal Clearances
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/haryana-government-shift-gurugram-court-to-tower-of-justice-clearances-pending-540572
 
-[Read on Telegram](https://t.me/livelawindia/114256)
-
----
-### 2026-07-09T09:14:27+00:00
-Madras High Court Stays Look Out Circular Against Former Minister EV Velu, Asks Vigilance Dept To Not Take Coercive Action Till July 28
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ev-velu-lookout-circular-stayed-no-coercive-action-till-july-28-540522
-
-[Read on Telegram](https://t.me/livelawindia/114257)
+[Read on Telegram](https://t.me/livelawindia/114284)
 
 ---
-### 2026-07-09T09:27:37+00:00
-2017 Actress Assault Case: Kerala High Court Reserves Verdict In Pulsar Suni's Sentence Suspension Plea
-https://www.livelaw.in/high-court/kerala-high-court/actress-assault-sentence-suspension-pulsar-suni-verdict-reserved-540523
+### 2026-07-09T13:17:38+00:00
+Karnataka High Court Stays Demolition Of KR Market Shops But Bars Business Over 'Forged Licences'; Says Right To Footpaths Must Be Protected
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-stays-demolition-kr-market-shops-forged-licenses-right-to-footpaths-540579
 
-[Read on Telegram](https://t.me/livelawindia/114258)
-
----
-### 2026-07-09T09:28:17+00:00
-Uncle-In-Law Can't Adopt Niece's Husband As 'Ghar damad' Under Oraon Tribe Custom : Supreme Court
-https://www.livelaw.in/supreme-court/uncle-in-law-cant-adopt-nieces-husband-as-ghar-damad-under-oraon-tribe-custom-supreme-court-540524
-
-[Read on Telegram](https://t.me/livelawindia/114259)
+[Read on Telegram](https://t.me/livelawindia/114285)
 
 ---
-### 2026-07-09T09:31:37+00:00
-2026 LiveLaw (SC) 657 | BEJLA ORAON VERSUS KALI DAS ORAON & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-657-bejla-oraon-versus-kali-das-oraon-ors-540525
+### 2026-07-09T13:17:48+00:00
+Delhi High Court Asks SBI To Pay ₹1 Lakh To Worker For Illegal Termination, Sets Aside Regularisation Order
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-asks-sbi-to-pay-1-lakh-to-worker-for-illegal-termination-sets-aside-regularisation-order-540546
 
-[Read on Telegram](https://t.me/livelawindia/114260)
-
----
-### 2026-07-09T09:32:37+00:00
-Beyond Modicum Of Creativity: Human Agency And Future Of Copyright Authorship
-https://www.livelaw.in/articles/human-agency-future-copyright-authorship-540288
-
-[Read on Telegram](https://t.me/livelawindia/114261)
+[Read on Telegram](https://t.me/livelawindia/114286)
 
 ---
-### 2026-07-09T09:39:17+00:00
-'How Dare You?': Supreme Court Raps AIIMS' Acting Director For Filing 'Affidavit' Instead Of 'Explanation'
-https://www.livelaw.in/top-stories/supreme-court-raps-aiims-acting-director-over-filing-of-affidavit-instead-of-explanation-dna-test-not-conducted-on-time-540527
+### 2026-07-09T13:33:38+00:00
+Supreme Court Orders Survey Of Delhi's Malviya Nagar & Saket Areas To Tackle Unauthorized Constructions
+https://www.livelaw.in/top-stories/supreme-court-unauthorized-construction-illegal-land-use-gurugram-fire-safety-survey-of-malviya-nagar-saket-ordered-540584
 
-[Read on Telegram](https://t.me/livelawindia/114262)
+[Read on Telegram](https://t.me/livelawindia/114287)
 
 ---
-### 2026-07-09T09:41:57+00:00
-Kerala High Court Approves State's Revised Framework For Appointment Of Public Prosecutors, But District Judge's Opinion To Get "Due Primacy"
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-approves-revised-framework-for-appointment-of-public-prosecutors-540528
+### 2026-07-09T13:39:38+00:00
+“Shakes Conscience”: Allahabad High Court Orders Inquiry After Litigant Contests Vakalatnama, Says He Never Authorised Advocate To Appear
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-client-contesting-vakalatnama-caveat-lawyer-540588
 
-[Read on Telegram](https://t.me/livelawindia/114263)
+[Read on Telegram](https://t.me/livelawindia/114288)
+
+---
+### 2026-07-09T13:50:38+00:00
+Delhi High Court Quashes Recognition Of Yogasana Bharat As National Sports Federation, Says Sports Ministry 'Surrendered' To AYUSH
+https://www.livelaw.in/high-court/delhi-high-court/yogasana-bharat-national-sports-federation-recognition-quahsed-sports-ministry-540589
+
+[Read on Telegram](https://t.me/livelawindia/114289)
+
+---
+### 2026-07-09T14:01:08+00:00
+Bonafide Purchaser Of Court-Auctioned Property Can't Be Prosecuted For Cheating Without Proof Of Conspiracy: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-bona-fide-purchaser-cheating-forgery-prosecution-540595
+
+[Read on Telegram](https://t.me/livelawindia/114290)
+
+---
+### 2026-07-09T14:12:48+00:00
+Elections | Reservation Of Seats In Constituencies With Comparatively Larger SC/ST Population Is Constitutional: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/delimitation-sc-st-constituency-reservation-constitutional-large-population-540598
+
+[Read on Telegram](https://t.me/livelawindia/114291)
+
+---
+### 2026-07-09T14:16:48+00:00
+'Intent Is To Wreak Vengeance': Allahabad High Court Discards Dying Declaration, Acquits Husband & In-Laws In Murder Case
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-acquits-husband-murder-case-dying-declaration-wreak-vengeance-540599
+
+[Read on Telegram](https://t.me/livelawindia/114292)
+
+---
+### 2026-07-09T14:19:48+00:00
+Rajasthan High Court Imposes 3-Year Social Media Ban On Youth Booked For Morphing Minor's Photos
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-imposes-social-media-ban-bail-condition-minor-image-morphing-case-540601
+
+[Read on Telegram](https://t.me/livelawindia/114293)
+
+---
+### 2026-07-09T14:28:28+00:00
+Madhya Pradesh High Court Seeks State's Response To PIL Seeking NIA Probe Into 'Mock Blast' During Muharram Procession In Ujjain
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-seeks-states-reply-in-case-over-explosions-occured-muharram-procession-in-ujjain-540603
+
+[Read on Telegram](https://t.me/livelawindia/114294)
+
+---
+### 2026-07-09T14:32:28+00:00
+From Post To Platform: Section 69A After Telegram Order
+https://www.livelaw.in/articles/section69a-telegram-order-540290
+
+[Read on Telegram](https://t.me/livelawindia/114295)
+
+---
+### 2026-07-09T15:01:19+00:00
+UP Goondas Act | Appellate Authority Cannot Remand Matters To District Magistrate For Fresh Decision: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-rules-appellate-authority-cannot-remand-cases-up-goondas-act-section-6-540609
+
+[Read on Telegram](https://t.me/livelawindia/114296)
+
+---
+### 2026-07-09T15:15:19+00:00
+MP High Court Refuses To Quash Criminal Case Against Govt Doctor Accused Of Refusing Treatment Over Non-Payment
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-doctor-cognizance-order-refusal-treatment-deceased-540610
+
+[Read on Telegram](https://t.me/livelawindia/114297)
 
 ---
