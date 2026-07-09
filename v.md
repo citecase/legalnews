@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-09T15:32:56+00:00*
+*Last Updated: 2026-07-09T16:02:17+00:00*
+
+---
+
+### 2026-07-09T16:02:17+00:00
+Consultant Vacancy At Adjudicatory Board for Major Ports (ABMP)
+https://www.verdictum.in/job-updates/adjudicatory-board-for-major-ports-1617444
+
+[Source Link](https://t.me/verdictumlegalupdates/27881)
 
 ---
 
@@ -153,14 +161,6 @@ Sovereignty & Security Of Nation Must Prevail Over Personal Liberty: Delhi High 
 https://www.verdictum.in/delhi-high-court/mansoor-asghar-peerbhoy-v-state-govt-of-nct-of-delhi-2026dhc5407-db-indian-mujahideen-media-cell-head-after-17-years-in-custody-1617404
 
 [Source Link](https://t.me/verdictumlegalupdates/27862)
-
----
-
-### 2026-07-09T05:13:02+00:00
-Recitation Of Saraswati Vandana & Gayatri Mantra In Schools’ Morning Assembly Does Not Violate Any Fundamental Right: Chhattisgarh High Court Dismisses Ex-Waqf Board Chairman's Plea
-https://www.verdictum.in/chhattisgarh-high-court/abdul-salam-rizvi-v-state-of-chhattisgarh-2026cghc27135-ex-waqf-board-chairman-saraswati-vandana-gayatri-mantra-schools-morning-assembly-1617402
-
-[Source Link](https://t.me/verdictumlegalupdates/27861)
 
 ---
 
