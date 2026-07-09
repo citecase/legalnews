@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-09T12:06:58+00:00*
+*Last Updated: 2026-07-09T13:33:38+00:00*
 
 ---
 
-### 2026-07-09T12:06:58+00:00
-Parul University Invites Registrations For Samvidhan Pe Charcha 4.0 – 4th Inter-University Moot Court Competition 2026; Register By August 26
-https://www.livelaw.in/lawschool/competitions/parul-university-invites-registrations-samvidhan-pe-charcha-40-4th-inter-university-moot-court-competition-540562
-
-[Read on Telegram](https://t.me/livelawindia/114278)
-
----
-### 2026-07-09T12:10:08+00:00
-'Unwanted Nuisance': Karnataka High Court Slaps ₹1 Lakh Costs On BDA For Selling Same Site Twice, Directs Recovery From Erring Officer
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-cost-bda-double-allotment-same-site-different-beneficiaries-540564
-
-[Read on Telegram](https://t.me/livelawindia/114279)
-
----
-### 2026-07-09T12:14:28+00:00
-Kerala High Court Grants 30 Days' Interim Bail To PFI Member Sentenced To Death In BJP's Ranjith Sreenivasan Murder Case
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ranjith-sreenivasan-murder-navas-interim-bail-540565
-
-[Read on Telegram](https://t.me/livelawindia/114280)
-
----
-### 2026-07-09T12:32:48+00:00
-CM Vijay Birthday Celebration Row: Madras High Court Issues Notice On Plea To Keep Educational Institutions Free From Political Activities
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-educational-institution-without-politics-notice-issued-540568
-
-[Read on Telegram](https://t.me/livelawindia/114281)
-
----
-### 2026-07-09T12:35:48+00:00
-PIL In Punjab & Haryana High Court Seeks Restoration Of Diljit Dosanjh Starrer 'Satluj', Challenges Takedown Of Film
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/diljit-dosanjh-satluj-restoration-zee5-takedown-challenged-540569
-
-[Read on Telegram](https://t.me/livelawindia/114282)
-
----
-### 2026-07-09T12:52:48+00:00
-'Dismissal Shockingly Disproportionate For 240 Day-Absence': Bombay High Court Awards ₹15 Lakhs Compensation
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-awards-15lakhs-compensation-industrial-worker-540543
-
-[Read on Telegram](https://t.me/livelawindia/114283)
-
----
-### 2026-07-09T13:00:08+00:00
-'Judicial Work Severely Curtailed': High Court Permits Shifting Of Gurugram District Courts To 'Tower Of Justice' Pending Formal Clearances
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/haryana-government-shift-gurugram-court-to-tower-of-justice-clearances-pending-540572
-
-[Read on Telegram](https://t.me/livelawindia/114284)
-
----
-### 2026-07-09T13:17:38+00:00
-Karnataka High Court Stays Demolition Of KR Market Shops But Bars Business Over 'Forged Licences'; Says Right To Footpaths Must Be Protected
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-stays-demolition-kr-market-shops-forged-licenses-right-to-footpaths-540579
-
-[Read on Telegram](https://t.me/livelawindia/114285)
-
----
-### 2026-07-09T13:17:48+00:00
-Delhi High Court Asks SBI To Pay ₹1 Lakh To Worker For Illegal Termination, Sets Aside Regularisation Order
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-asks-sbi-to-pay-1-lakh-to-worker-for-illegal-termination-sets-aside-regularisation-order-540546
-
-[Read on Telegram](https://t.me/livelawindia/114286)
-
----
 ### 2026-07-09T13:33:38+00:00
 Supreme Court Orders Survey Of Delhi's Malviya Nagar & Saket Areas To Tackle Unauthorized Constructions
 https://www.livelaw.in/top-stories/supreme-court-unauthorized-construction-illegal-land-use-gurugram-fire-safety-survey-of-malviya-nagar-saket-ordered-540584
@@ -142,5 +79,68 @@ MP High Court Refuses To Quash Criminal Case Against Govt Doctor Accused Of Refu
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-doctor-cognizance-order-refusal-treatment-deceased-540610
 
 [Read on Telegram](https://t.me/livelawindia/114297)
+
+---
+### 2026-07-09T15:29:19+00:00
+Commercial Courts Act | Documents Being Voluminous No Excuse For Their Belated Production : Supreme Court
+https://www.livelaw.in/supreme-court/commercial-courts-act-documents-being-voluminous-no-excuse-for-their-belated-production-supreme-court-540616
+
+[Read on Telegram](https://t.me/livelawindia/114298)
+
+---
+### 2026-07-09T15:30:39+00:00
+UP Goondas Act Should Not Be Misused As 'Tool Of Oppression': Allahabad High Court Quashes Proceedings Based On 2 Criminal Cases
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-quashes-goonda-act-proceedings-two-firs-tool-of-oppression-540617
+
+[Read on Telegram](https://t.me/livelawindia/114299)
+
+---
+### 2026-07-09T15:31:19+00:00
+2026 LiveLaw (SC) 658 | M/S. LEVITATE MOBILE TECHNOLOGIES PVT. LTD. VERSUS M/S. STANDARD CHARTERED BANK & ANR.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-658-ms-levitate-mobile-technologies-pvt-ltd-versus-ms-standard-chartered-bank-anr-540618
+
+[Read on Telegram](https://t.me/livelawindia/114300)
+
+---
+### 2026-07-09T15:32:19+00:00
+'No Concept Of Criminal Writ Petition Under Constitution': Rajasthan High Court Directs Registry To Register Them As 'Writ Petitions'
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-directs-registry-register-cases-criminal-writ-petitions-540615
+
+[Read on Telegram](https://t.me/livelawindia/114301)
+
+---
+### 2026-07-09T15:32:59+00:00
+'Sad State Of Affairs': Rajasthan High Court Slams State's Inaction On Pollution From Illegal Dyeing Units In Jodhpur
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-slams-state-inaction-pollution-illegal-dyeing-units-540614
+
+[Read on Telegram](https://t.me/livelawindia/114302)
+
+---
+### 2026-07-09T15:37:39+00:00
+Delhi High Court Upholds Grade Pay-Based Financial Upgradation Under Centre's Modified Assured Career Progression Scheme
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-upholds-grade-pay-based-financial-upgradation-under-centres-modified-assured-career-progression-scheme-540594
+
+[Read on Telegram](https://t.me/livelawindia/114303)
+
+---
+### 2026-07-09T15:49:09+00:00
+Voter Can't Claim Right To Vote For General Category Candidate By Seeking De-Reservation Of Constituency: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-voter-claim-right-to-vote-general-category-candidate-540619
+
+[Read on Telegram](https://t.me/livelawindia/114304)
+
+---
+### 2026-07-09T16:39:39+00:00
+'Exposing Minors To Sexual Grooming': Allahabad High Court Issues Notice On PIL Seeking Ban On 'Roblox', Other Gaming Platforms
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-issues-notice-pil-seeking-ban-roblox-gaming-platform-minors-540620
+
+[Read on Telegram](https://t.me/livelawindia/114305)
+
+---
+### 2026-07-09T16:54:59+00:00
+Delhi High Court Clears Proposal To Designate 85 Lawyers As Senior Advocates, 11 Women Among Those [Read Names]
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-clears-proposal-to-designate-85-lawyers-as-senior-advocates-11-women-among-those-read-names-540621
+
+[Read on Telegram](https://t.me/livelawindia/114306)
 
 ---
