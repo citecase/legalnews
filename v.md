@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-10T04:33:05+00:00*
+*Last Updated: 2026-07-10T09:52:44+00:00*
+
+---
+
+### 2026-07-10T09:52:44+00:00
+Second FIR Cannot Be Lodged For Same Transaction Merely Due To Omission Of Certain Penal Provisions: Kerala High Court
+https://www.verdictum.in/kerala-high-court/savan-vasanthan-v-station-house-officer-2026ker46163-criminal-law-second-fir-1617472
+
+[Source Link](https://t.me/verdictumlegalupdates/27889)
+
+---
+
+### 2026-07-10T09:12:22+00:00
+No Particular Form Of Medical Certificate Required To Treat Dying Declaration As Valid If It Is Truthful & Voluntary: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/tilluka-manoj-v-state-of-up-2026ahc130820-db-dying-declaration-validity-1617474
+
+[Source Link](https://t.me/verdictumlegalupdates/27888)
+
+---
+
+### 2026-07-10T08:32:41+00:00
+2021 BJP Leader Murder| Kerala High Court Grants 30-Day Interim Bail To Death Row Convict On Medical Grounds
+https://www.verdictum.in/kerala-high-court/navas-v-state-of-kerala-crlmappl-no-12025-30-day-interim-bail-death-row-convict-medical-grounds-1617475
+
+[Source Link](https://t.me/verdictumlegalupdates/27887)
+
+---
+
+### 2026-07-10T08:02:40+00:00
+Stop Unnecessary Court Referrals; Permission Not Needed For Terminating Pregnancy Below 24 Weeks If MTP Act Conditions Are Met: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/prosecutrix-x-v-the-state-of-madhya-pradesh-2026mphc-jbp48177-terminating-pregnancy-below-24-weeks-if-mtp-act-1617473
+
+[Source Link](https://t.me/verdictumlegalupdates/27886)
+
+---
+
+### 2026-07-10T07:32:19+00:00
+Supreme Court Slams Maharashtra Govt., Says State Opposes Bail Tooth And Nail But Fails To Conduct Trial Without Delay
+https://www.verdictum.in/supreme-court/slams-maharashtra-police-state-opposes-bail-tooth-nail-trial-delay-1617476
+
+[Source Link](https://t.me/verdictumlegalupdates/27885)
+
+---
+
+### 2026-07-10T07:02:37+00:00
+Posters Attempting To Alienate J&K Residents From India Sufficient To Frame UAPA Charges: J&K And Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/adan-bashir-bangroo-anr-v-ut-of-jk-through-police-station-shaheed-gunj-srinagar-2026jklhc-sgr213-db-1617471
+
+[Source Link](https://t.me/verdictumlegalupdates/27884)
+
+---
+
+### 2026-07-10T06:34:06+00:00
+Lack Of Harmony With In-Laws Or Husband's Attention Towards Parents Cannot Justify Wife's Separate Living U/S 125(4) CrPC: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/l-v-a-2026mphc-ind18129-wifes-lack-of-harmony-with-in-laws-cannot-justify-separate-living-1617470
+
+[Source Link](https://t.me/verdictumlegalupdates/27883)
 
 ---
 
@@ -105,62 +161,6 @@ https://www.verdictum.in/supreme-court/british-motor-car-company-ltd-v-ms-hindus
 https://www.verdictum.in/karnataka-high-court/mallari-so-ramchandra-nimbalkar-v-laxman-raju-poojari-2026khc-d8167-public-trust-when-origin-of-endowment-use-of-temple-public-1617428
 
 [Source Link](https://t.me/verdictumlegalupdates/27870)
-
----
-
-### 2026-07-09T10:02:32+00:00
-BCI Hails 'Historic' Judgment Of Apex Court In Ajay Vijh v. Indian Banks Association, Proposes Establishment Of National Legal Academy
-https://www.verdictum.in/latest-news/bar-council-of-india-proposes-establishment-of-national-legal-academy-1617427
-
-[Source Link](https://t.me/verdictumlegalupdates/27869)
-
----
-
-### 2026-07-09T09:32:31+00:00
-Knowledge Of Victim's Pre-Existing Heart Disease Essential: Himachal Pradesh High Court Sets Aside Conviction U/S 304 Part II IPC
-https://www.verdictum.in/himachal-high-court/nirmala-devi-v-state-of-hp-cr-appeal-nos-475-and-476-of-2012-knowledge-of-victims-pre-existing-heart-disease-us-304-part-ii-ipc-1617426
-
-[Source Link](https://t.me/verdictumlegalupdates/27868)
-
----
-
-### 2026-07-09T09:03:09+00:00
-Publishing Pleadings, Orders On PSC Website Is Not Valid Service Of Notice On Ranked List Candidates: Kerala High Court
-https://www.verdictum.in/kerala-high-court/henna-pk-ors-v-state-of-kerala-ors-2026ker45238-kerala-psc-notice-1617424
-
-[Source Link](https://t.me/verdictumlegalupdates/27867)
-
----
-
-### 2026-07-09T08:32:48+00:00
-TN Private Schools (Regulations) Act| No Statutory Bar On Deploying Woman Teacher To Boys' School: Madras High Court
-https://www.verdictum.in/madras-high-court/saratha-v-the-chief-educational-officer-writ-petition-md-no-3755-of-2026-woman-teacher-to-boys-school-1617422
-
-[Source Link](https://t.me/verdictumlegalupdates/27866)
-
----
-
-### 2026-07-09T07:52:47+00:00
-No Vested Right For Proposed Accused To Pre-Cognizance Hearing In SFIO Proceedings: Punjab & Haryana High Court
-https://www.verdictum.in/punjab-and-haryana-high-court/2026phhc091677-vivo-india-pvt-ltd-v-serious-fraud-investigation-office-1617419
-
-[Source Link](https://t.me/verdictumlegalupdates/27865)
-
----
-
-### 2026-07-09T07:12:26+00:00
-Power Of Revision Doesn’t Confer Unrestricted Authority To Repeatedly Reopen Matters That Have Attained Finality: Madhya Pradesh High Court Quashes Collector’s Order
-https://www.verdictum.in/madhya-pradesh-high-court/dr-ganesh-ram-jain-v-the-state-of-madhya-pradesh-2026mphc-gwl19722-revision-collector-1617418
-
-[Source Link](https://t.me/verdictumlegalupdates/27864)
-
----
-
-### 2026-07-09T06:32:44+00:00
-Statutory Mandate Of Section 42A Arbitration Act Cannot Be Diluted Or Overridden By Institutional Rules: Delhi High Court
-https://www.verdictum.in/delhi-high-court/2026-dhc-5370-jpc-infrastructure-and-constructions-private-limited-v-alstom-transport-india-1617415
-
-[Source Link](https://t.me/verdictumlegalupdates/27863)
 
 ---
 
