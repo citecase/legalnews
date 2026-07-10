@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-09T14:16:48+00:00*
+*Last Updated: 2026-07-10T06:53:45+00:00*
 
 ---
 
-### 2026-07-09T14:16:48+00:00
-'Intent Is To Wreak Vengeance': Allahabad High Court Discards Dying Declaration, Acquits Husband & In-Laws In Murder Case
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-acquits-husband-murder-case-dying-declaration-wreak-vengeance-540599
+### 2026-07-10T06:53:45+00:00
+Ayodhya Ram Mandir Donation Theft | Matter Now Before SC: Allahabad High Court Refuses To Entertain Two More PILs Seeking Probe
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-refuses-pils-judicial-commission-sit-probe-ayodhya-ram-mandir-donations-540665
 
-[Read on Telegram](https://t.me/livelawindia/114292)
-
----
-### 2026-07-09T14:19:48+00:00
-Rajasthan High Court Imposes 3-Year Social Media Ban On Youth Booked For Morphing Minor's Photos
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-imposes-social-media-ban-bail-condition-minor-image-morphing-case-540601
-
-[Read on Telegram](https://t.me/livelawindia/114293)
+[Read on Telegram](https://t.me/livelawindia/114334)
 
 ---
-### 2026-07-09T14:28:28+00:00
-Madhya Pradesh High Court Seeks State's Response To PIL Seeking NIA Probe Into 'Mock Blast' During Muharram Procession In Ujjain
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-seeks-states-reply-in-case-over-explosions-occured-muharram-procession-in-ujjain-540603
+### 2026-07-10T07:00:05+00:00
+Karnataka High Court Upholds Law Transferring First Appeals Against Senior Civil Judges' Decrees To District Courts
+https://www.livelaw.in/high-court/karnataka-high-court/law-transferring-first-appeals-against-senior-civil-judges-decrees-to-district-courts-upheld-540666
 
-[Read on Telegram](https://t.me/livelawindia/114294)
-
----
-### 2026-07-09T14:32:28+00:00
-From Post To Platform: Section 69A After Telegram Order
-https://www.livelaw.in/articles/section69a-telegram-order-540290
-
-[Read on Telegram](https://t.me/livelawindia/114295)
+[Read on Telegram](https://t.me/livelawindia/114335)
 
 ---
-### 2026-07-09T15:01:19+00:00
-UP Goondas Act | Appellate Authority Cannot Remand Matters To District Magistrate For Fresh Decision: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-rules-appellate-authority-cannot-remand-cases-up-goondas-act-section-6-540609
+### 2026-07-10T07:17:25+00:00
+Trial Court Not Bound To Incorporate Questions Suggested By Prosecution Or Accused Under Section 313(5) CrPC: Orissa High Court
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-not-mandated-discretion-seek-help-prosecution-defence-preparing-questions-540668
 
-[Read on Telegram](https://t.me/livelawindia/114296)
-
----
-### 2026-07-09T15:15:19+00:00
-MP High Court Refuses To Quash Criminal Case Against Govt Doctor Accused Of Refusing Treatment Over Non-Payment
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-doctor-cognizance-order-refusal-treatment-deceased-540610
-
-[Read on Telegram](https://t.me/livelawindia/114297)
+[Read on Telegram](https://t.me/livelawindia/114336)
 
 ---
-### 2026-07-09T15:29:19+00:00
-Commercial Courts Act | Documents Being Voluminous No Excuse For Their Belated Production : Supreme Court
-https://www.livelaw.in/supreme-court/commercial-courts-act-documents-being-voluminous-no-excuse-for-their-belated-production-supreme-court-540616
+### 2026-07-10T07:18:25+00:00
+'Vague Averments': Allahabad High Court Refuses To Entertain PIL Alleging 'Arbitrary' Removal Of Ali Khamenei Portraits By UP Police
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-disposes-pil-restraining-police-removing-religious-portraits-ali-khamenei-540669
 
-[Read on Telegram](https://t.me/livelawindia/114298)
-
----
-### 2026-07-09T15:30:39+00:00
-UP Goondas Act Should Not Be Misused As 'Tool Of Oppression': Allahabad High Court Quashes Proceedings Based On 2 Criminal Cases
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-quashes-goonda-act-proceedings-two-firs-tool-of-oppression-540617
-
-[Read on Telegram](https://t.me/livelawindia/114299)
+[Read on Telegram](https://t.me/livelawindia/114337)
 
 ---
-### 2026-07-09T15:31:19+00:00
-2026 LiveLaw (SC) 658 | M/S. LEVITATE MOBILE TECHNOLOGIES PVT. LTD. VERSUS M/S. STANDARD CHARTERED BANK & ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-658-ms-levitate-mobile-technologies-pvt-ltd-versus-ms-standard-chartered-bank-anr-540618
+### 2026-07-10T07:30:05+00:00
+Specific Performance Relief Mandatory After 2018 Amendment, Court Bound To Enforce Registered Agreement To Sell: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-specific-performance-contract-mandatory-after-2018amendment-540670
 
-[Read on Telegram](https://t.me/livelawindia/114300)
-
----
-### 2026-07-09T15:32:19+00:00
-'No Concept Of Criminal Writ Petition Under Constitution': Rajasthan High Court Directs Registry To Register Them As 'Writ Petitions'
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-directs-registry-register-cases-criminal-writ-petitions-540615
-
-[Read on Telegram](https://t.me/livelawindia/114301)
+[Read on Telegram](https://t.me/livelawindia/114338)
 
 ---
-### 2026-07-09T15:32:59+00:00
-'Sad State Of Affairs': Rajasthan High Court Slams State's Inaction On Pollution From Illegal Dyeing Units In Jodhpur
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-slams-state-inaction-pollution-illegal-dyeing-units-540614
+### 2026-07-10T07:35:35+00:00
+Kerala High Court Vacates Protection Granted To Viral Kumbh Mela Star Monalisa Bhosle After Police Fail To Trace Her
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kumbh-mela-star-monalisa-police-protection-vacated-540671
 
-[Read on Telegram](https://t.me/livelawindia/114302)
-
----
-### 2026-07-09T15:37:39+00:00
-Delhi High Court Upholds Grade Pay-Based Financial Upgradation Under Centre's Modified Assured Career Progression Scheme
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-upholds-grade-pay-based-financial-upgradation-under-centres-modified-assured-career-progression-scheme-540594
-
-[Read on Telegram](https://t.me/livelawindia/114303)
+[Read on Telegram](https://t.me/livelawindia/114339)
 
 ---
-### 2026-07-09T15:49:09+00:00
-Voter Can't Claim Right To Vote For General Category Candidate By Seeking De-Reservation Of Constituency: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-voter-claim-right-to-vote-general-category-candidate-540619
+### 2026-07-10T07:54:15+00:00
+High Court Directs Expeditious Decision On Parole Plea Of Former Punjab CM Beant Singh Assassination Convict
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/jagtar-singh-hawara-parole-plea-punjab-cm-beant-singh-assassin-540677
 
-[Read on Telegram](https://t.me/livelawindia/114304)
-
----
-### 2026-07-09T16:39:39+00:00
-'Exposing Minors To Sexual Grooming': Allahabad High Court Issues Notice On PIL Seeking Ban On 'Roblox', Other Gaming Platforms
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-issues-notice-pil-seeking-ban-roblox-gaming-platform-minors-540620
-
-[Read on Telegram](https://t.me/livelawindia/114305)
+[Read on Telegram](https://t.me/livelawindia/114340)
 
 ---
-### 2026-07-09T16:54:59+00:00
-Delhi High Court Clears Proposal To Designate 85 Lawyers As Senior Advocates, 11 Women Among Those [Read Names]
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-clears-proposal-to-designate-85-lawyers-as-senior-advocates-11-women-among-those-read-names-540621
+### 2026-07-10T08:27:35+00:00
+Accused Has No Statutory Right To File Protest Petition Against Charge Sheet: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/accused-no-right-file-protest-petition-positive-chargesheet-mini-trial-540679
 
-[Read on Telegram](https://t.me/livelawindia/114306)
-
----
-### 2026-07-10T03:24:43+00:00
-Officer (Legal) Vacancy At Rashtriya Chemicals And Fertilizers Limited
-https://www.livelaw.in/job-updates/officer-legal-vacancy-at-rashtriya-chemicals-and-fertilizers-limited-540624
-
-[Read on Telegram](https://t.me/livelawindia/114307)
+[Read on Telegram](https://t.me/livelawindia/114341)
 
 ---
-### 2026-07-10T03:28:03+00:00
-Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
-https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-540625
+### 2026-07-10T08:42:25+00:00
+Govt Employees Can't Claim Right To Purchase Official Quarters Allotted During Service: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-government-employees-quarters-vacate-cant-purchase-540680
 
-[Read on Telegram](https://t.me/livelawindia/114308)
-
----
-### 2026-07-10T03:29:43+00:00
-Manipur Judicial Service Grade – III Vacancy At The High Court Of Manipur At Imphal
-https://www.livelaw.in/job-updates/manipur-judicial-service-grade-iii-vacancy-at-the-high-court-of-manipur-at-imphal-540626
-
-[Read on Telegram](https://t.me/livelawindia/114309)
+[Read on Telegram](https://t.me/livelawindia/114342)
 
 ---
-### 2026-07-10T03:32:03+00:00
-Assistant Manager (Law) And Deputy Manager (Law) Vacancy At State Bank Of India
-https://www.livelaw.in/job-updates/assistant-manager-law-and-deputy-manager-law-vacancy-at-state-bank-of-india-540627
+### 2026-07-10T08:43:45+00:00
+Unruly Litigant Creates Ruckus In Supreme Court, Throws Papers & Hurls Abuse
+https://www.livelaw.in/top-stories/unruly-litigant-creates-ruckus-in-supreme-court-throws-papers-abuses-cji-540684
 
-[Read on Telegram](https://t.me/livelawindia/114310)
+[Read on Telegram](https://t.me/livelawindia/114343)
 
 ---
-### 2026-07-10T03:33:03+00:00
-No Blanket Exemption From Royalty Payable For Earth Excavated And Reused At Project Site: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-declines-interfere-forest-royalty-demand-disputed-technical-questions-cant-be-decided-in-writ-jurisdiction-540622
+### 2026-07-10T08:52:45+00:00
+Political Criticism On Social Media Without Coercion Or Interference With Voting Not 'Undue Influence': Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-political-criticism-social-media-undue-influence-540682
 
-[Read on Telegram](https://t.me/livelawindia/114311)
+[Read on Telegram](https://t.me/livelawindia/114344)
+
+---
+### 2026-07-10T08:56:45+00:00
+Centre Notifies Appointment Of Justice Sudhir Singh As Acting Chief Justice Of Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/centre-appointment-justice-sudhir-singh-acting-chief-justice-of-patna-high-court-540686
+
+[Read on Telegram](https://t.me/livelawindia/114345)
+
+---
+### 2026-07-10T09:02:45+00:00
+Poverty, Illiteracy And Ignorance Of Law Not 'Sufficient Cause' To Condoned Four-Year Delay In Compensation Claim: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/limitation-act-condonation-not-allowed-poverty-illiteracy-ignorance-of-law-540683
+
+[Read on Telegram](https://t.me/livelawindia/114346)
+
+---
+### 2026-07-10T09:08:46+00:00
+Breaking | Delhi High Court Sentences Actor Rajpal Yadav To Three Months Imprisonment In Cheque Bounce Cases
+https://www.livelaw.in/high-court/delhi-high-court/rajpal-yadav-cheque-bounce-conviction-upheld-three-months-jail-540689
+
+[Read on Telegram](https://t.me/livelawindia/114347)
+
+---
+### 2026-07-10T09:08:56+00:00
+Thrissur Consumer Commission Holds Mother Hospital Liable For Colonoscopy Without Patient's Informed Consent
+https://www.livelaw.in/consumer-cases/thrissur-consumer-commission-holds-mother-hospital-liable-for-colonoscopy-without-patients-informed-consent-540690
+
+[Read on Telegram](https://t.me/livelawindia/114348)
+
+---
+### 2026-07-10T09:23:16+00:00
+Wildlife Board Expert Panel Recommends Against Proposed Sharavathi Hydropower Project Inside Sanctuary: Centre Informs Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-sharavathi-project-expert-committee-national-wildlife-board-540685
+
+[Read on Telegram](https://t.me/livelawindia/114349)
+
+---
+### 2026-07-10T09:29:56+00:00
+'Double Standards' : Supreme Court Questions States For Opposing Bail Without Ensuring Speedy Trial
+https://www.livelaw.in/top-stories/supreme-court-questions-states-for-opposing-bail-without-ensuring-speedy-trial-540695
+
+[Read on Telegram](https://t.me/livelawindia/114350)
+
+---
+### 2026-07-10T09:32:36+00:00
+Primary Stakeholders, Functionaries Are Women: Telangana High Court Upholds Reservation Of Anganwadi Supervisor Post For Women
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-upholds-women-reservation-anganwadi-supervisor-540687
+
+[Read on Telegram](https://t.me/livelawindia/114351)
+
+---
+### 2026-07-10T09:32:46+00:00
+2026 FCRA Amendments: Where Regulation Ends And Restriction Begins
+https://www.livelaw.in/articles/2026-fcra-amendments-regulation-ends-restriction-begins-540429
+
+[Read on Telegram](https://t.me/livelawindia/114352)
+
+---
+### 2026-07-10T09:42:36+00:00
+No Legal Bar On Deploying Female Teachers To Govt Aided Boys School: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-private-school-no-prohibition-woman-teacher-boys-school-540693
+
+[Read on Telegram](https://t.me/livelawindia/114353)
 
 ---
