@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-09T13:33:38+00:00*
+*Last Updated: 2026-07-09T14:16:48+00:00*
 
 ---
 
-### 2026-07-09T13:33:38+00:00
-Supreme Court Orders Survey Of Delhi's Malviya Nagar & Saket Areas To Tackle Unauthorized Constructions
-https://www.livelaw.in/top-stories/supreme-court-unauthorized-construction-illegal-land-use-gurugram-fire-safety-survey-of-malviya-nagar-saket-ordered-540584
-
-[Read on Telegram](https://t.me/livelawindia/114287)
-
----
-### 2026-07-09T13:39:38+00:00
-“Shakes Conscience”: Allahabad High Court Orders Inquiry After Litigant Contests Vakalatnama, Says He Never Authorised Advocate To Appear
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-client-contesting-vakalatnama-caveat-lawyer-540588
-
-[Read on Telegram](https://t.me/livelawindia/114288)
-
----
-### 2026-07-09T13:50:38+00:00
-Delhi High Court Quashes Recognition Of Yogasana Bharat As National Sports Federation, Says Sports Ministry 'Surrendered' To AYUSH
-https://www.livelaw.in/high-court/delhi-high-court/yogasana-bharat-national-sports-federation-recognition-quahsed-sports-ministry-540589
-
-[Read on Telegram](https://t.me/livelawindia/114289)
-
----
-### 2026-07-09T14:01:08+00:00
-Bonafide Purchaser Of Court-Auctioned Property Can't Be Prosecuted For Cheating Without Proof Of Conspiracy: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-bona-fide-purchaser-cheating-forgery-prosecution-540595
-
-[Read on Telegram](https://t.me/livelawindia/114290)
-
----
-### 2026-07-09T14:12:48+00:00
-Elections | Reservation Of Seats In Constituencies With Comparatively Larger SC/ST Population Is Constitutional: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/delimitation-sc-st-constituency-reservation-constitutional-large-population-540598
-
-[Read on Telegram](https://t.me/livelawindia/114291)
-
----
 ### 2026-07-09T14:16:48+00:00
 'Intent Is To Wreak Vengeance': Allahabad High Court Discards Dying Declaration, Acquits Husband & In-Laws In Murder Case
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-acquits-husband-murder-case-dying-declaration-wreak-vengeance-540599
@@ -142,5 +107,40 @@ Delhi High Court Clears Proposal To Designate 85 Lawyers As Senior Advocates, 11
 https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-clears-proposal-to-designate-85-lawyers-as-senior-advocates-11-women-among-those-read-names-540621
 
 [Read on Telegram](https://t.me/livelawindia/114306)
+
+---
+### 2026-07-10T03:24:43+00:00
+Officer (Legal) Vacancy At Rashtriya Chemicals And Fertilizers Limited
+https://www.livelaw.in/job-updates/officer-legal-vacancy-at-rashtriya-chemicals-and-fertilizers-limited-540624
+
+[Read on Telegram](https://t.me/livelawindia/114307)
+
+---
+### 2026-07-10T03:28:03+00:00
+Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
+https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-540625
+
+[Read on Telegram](https://t.me/livelawindia/114308)
+
+---
+### 2026-07-10T03:29:43+00:00
+Manipur Judicial Service Grade – III Vacancy At The High Court Of Manipur At Imphal
+https://www.livelaw.in/job-updates/manipur-judicial-service-grade-iii-vacancy-at-the-high-court-of-manipur-at-imphal-540626
+
+[Read on Telegram](https://t.me/livelawindia/114309)
+
+---
+### 2026-07-10T03:32:03+00:00
+Assistant Manager (Law) And Deputy Manager (Law) Vacancy At State Bank Of India
+https://www.livelaw.in/job-updates/assistant-manager-law-and-deputy-manager-law-vacancy-at-state-bank-of-india-540627
+
+[Read on Telegram](https://t.me/livelawindia/114310)
+
+---
+### 2026-07-10T03:33:03+00:00
+No Blanket Exemption From Royalty Payable For Earth Excavated And Reused At Project Site: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-declines-interfere-forest-royalty-demand-disputed-technical-questions-cant-be-decided-in-writ-jurisdiction-540622
+
+[Read on Telegram](https://t.me/livelawindia/114311)
 
 ---
