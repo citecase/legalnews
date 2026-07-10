@@ -1,86 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-10T10:37:46+00:00*
+*Last Updated: 2026-07-10T13:02:49+00:00*
 
 ---
 
-### 2026-07-10T10:37:46+00:00
-'Highly Contemptuous': Jharkhand High Court Slams Officer For Terming Benefits Given Under Court Order As 'Wrongly Granted'
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-grants-macp-benefits-clerk-540699
-
-[Read on Telegram](https://t.me/livelawindia/114359)
-
----
-### 2026-07-10T11:02:06+00:00
-'Tripling On Motorcycle Not Automatically Contributory Negligence': Chhattisgarh High Court Enhances Accident Compensation
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-tripling-motorcycle-automatic-evidence-contributory-negligence-540697
-
-[Read on Telegram](https://t.me/livelawindia/114360)
-
----
-### 2026-07-10T11:21:37+00:00
-Karnataka High Court Stays Resolution By State Public Service Commission Calling For Chairman's Resignation
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-grants-interim-stay-karnataka-psc-resolution-chairman-resignation-540721
-
-[Read on Telegram](https://t.me/livelawindia/114361)
-
----
-### 2026-07-10T11:27:18+00:00
-Technical Shortfall In One Month's Wages Under S.33(2)(b) ID Act Can't Shield Employee Guilty Of Corruption, Forgery: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-sets-aside-industrial-court-order-540698
-
-[Read on Telegram](https://t.me/livelawindia/114362)
-
----
-### 2026-07-10T11:43:58+00:00
-Delhi High Court Rejects Disqualified Congress MLA Rajendra Bharti's Plea To Suspend Conviction In Rural Development Bank Fraud Case
-https://www.livelaw.in/high-court/delhi-high-court/rajendra-bharti-disqualification-conviction-suspension-rejected-rural-development-bank-cheating-540727
-
-[Read on Telegram](https://t.me/livelawindia/114363)
-
----
-### 2026-07-10T11:53:58+00:00
-Madras High Court Restrains ECI From Conducting Bye-Election In Five Constituencies, Including Seat Vacated By CM Joseph Vijay
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-eci-no-bye-election-five-constituency-till-july-31-cm-vijay-joseph-trichy-east-540728
-
-[Read on Telegram](https://t.me/livelawindia/114364)
-
----
-### 2026-07-10T12:27:08+00:00
-'In Teeth Of Division Bench Verdict': High Court Questions UP Govt Over Appointing Gram Pradhans As Administrators Beyond 5-Yr Term
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-questions-up-govt-appointing-gram-pradhans-administrators-expiry-panchayat-term-540733
-
-[Read on Telegram](https://t.me/livelawindia/114365)
-
----
-### 2026-07-10T12:27:48+00:00
-Appellate Court Can Enhance Interest Rate On Award Under Order 41 Rule 33 CPC Even Without Cross-Objection By Plaintiff: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-appellate-court-interest-rate-order41rule33-cpc-cross-objection-plaintiff-540694
-
-[Read on Telegram](https://t.me/livelawindia/114366)
-
----
-### 2026-07-10T12:33:08+00:00
-Magistrate Must Disclose 'Substance Of Information' While Issuing S.126 BNSS Notice To Execute Bond For Keeping Peace: Orissa High Court
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-executive-magistrate-show-cause-s126-bnss-keeping-peace-540734
-
-[Read on Telegram](https://t.me/livelawindia/114367)
-
----
-### 2026-07-10T12:37:48+00:00
-Show Cause Lost Its Validity After Authority Executed Agreement Six Days Later: Patna High Court Sets Aside Contractor's Blacklisting
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-aside-contractor-blacklisting-540701
-
-[Read on Telegram](https://t.me/livelawindia/114368)
-
----
-### 2026-07-10T12:40:48+00:00
-Supreme Court Seeks Centre's Response On Plea Challenging Navy Recruitment Rules For Non-Gazetted Group B Officers
-https://www.livelaw.in/top-stories/supreme-court-seeks-centres-response-on-plea-challenging-navy-recruitment-rules-for-non-gazetted-group-b-officers-540735
-
-[Read on Telegram](https://t.me/livelawindia/114369)
-
----
 ### 2026-07-10T13:02:49+00:00
 Supreme Court Upholds Bombay HC Decision Refusing To Reopen Goa Mining E-Auction Over Alleged MSTC Glitch
 https://www.livelaw.in/top-stories/supreme-court-upholds-bombay-hc-decision-refusing-to-reopen-goa-mining-e-auction-over-alleged-mstc-glitch-540736
@@ -142,5 +65,82 @@ Algorithmic Masquerade: Personality Rights And Deceptive Horizon Of AI Safe Harb
 https://www.livelaw.in/articles/algorithmic-masquerade-personality-rights-deceptive-horizon-ai-safe-harbor-540431
 
 [Read on Telegram](https://t.me/livelawindia/114378)
+
+---
+### 2026-07-10T14:42:49+00:00
+Kerala High Court Questions State On Monitoring Of Waste Collection Agencies, Suggests Stronger Audit And CSR Coordination
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-monitoring-of-waste-collection-agencies-audit-and-csr-coordination-540751
+
+[Read on Telegram](https://t.me/livelawindia/114379)
+
+---
+### 2026-07-10T14:47:29+00:00
+Executive Instructions Can't Retrospectively Override Statutory Land Conversion Rules: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-sets-aside-revenue-minister-order-contractual-rights-540705
+
+[Read on Telegram](https://t.me/livelawindia/114380)
+
+---
+### 2026-07-10T14:52:29+00:00
+Karnataka High Court Relaxes VC Rules, Allows Senior Citizen Widow In USA To Record Evidence From Her Home In Probate Case
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-relaxes-video-conferencing-rules-record-evidence-home-probate-case-540752
+
+[Read on Telegram](https://t.me/livelawindia/114381)
+
+---
+### 2026-07-10T14:57:59+00:00
+Will Be 'Spoiled' By Mother: Allahabad High Court Gives Father Temporary Custody Of 5-Y/O Girl 'Tutored' To Accuse Him Of Sexual Abuse
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-gives-father-temporary-custody-5-year-old-girl-tutored-mother-allege-sexual-abuse-540754
+
+[Read on Telegram](https://t.me/livelawindia/114382)
+
+---
+### 2026-07-10T15:02:59+00:00
+Punjab & Haryana High Court Stays Trial Against Cop Accused Of Selling Drugs In Jail
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-stays-trial-against-cop-accused-of-selling-drugs-in-jail-540753
+
+[Read on Telegram](https://t.me/livelawindia/114383)
+
+---
+### 2026-07-10T15:11:19+00:00
+Jindal Global Law School (JGLS) Announces Early Admissions For 2027: LNAT-UK Test Mandatory Entrance Exam
+https://www.livelaw.in/lawschool/law-school-admission/jindal-global-law-school-jgls-announces-early-admissions-2027-lnat-uk-test-mandatory-entrance-exam-540755
+
+[Read on Telegram](https://t.me/livelawindia/114384)
+
+---
+### 2026-07-10T15:27:59+00:00
+Karnataka High Court Grants ₹20 Lakh Towards 'Lifetime Caretaker' Expenses To Woman Left Permanently Disabled In Road Accident
+https://www.livelaw.in/high-court/karnataka-high-court/lifetime-caretaker-expenses-permanent-disability-motor-accident-540758
+
+[Read on Telegram](https://t.me/livelawindia/114385)
+
+---
+### 2026-07-10T15:43:00+00:00
+Custodial Assault To Extract Confession Not Official Duty, No Prior Sanction Needed To Prosecute Police Officers: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/police-custodial-assault-not-official-duty-sanction-not-needed-540761
+
+[Read on Telegram](https://t.me/livelawindia/114386)
+
+---
+### 2026-07-10T15:47:20+00:00
+Jharkhand High Court Refuses To Interfere With Administrative Order Passed To Maintain Law & Order Amid Land Dispute
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-article226-invoked-resolve-disputed-questions-land-encroachment-dispute-540757
+
+[Read on Telegram](https://t.me/livelawindia/114387)
+
+---
+### 2026-07-10T16:03:10+00:00
+Experience In Govt Hospitals Can't Be Ignored Merely Because Salary Was Paid By NGO Under PPP Model: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-experience-government-institutions-salary-paid-by-ngo-ppp-model-540762
+
+[Read on Telegram](https://t.me/livelawindia/114388)
+
+---
+### 2026-07-10T16:18:10+00:00
+Madhya Pradesh High Court Asks Authorities To Safeguard Tiger Reserves From Canine Distemper Outbreak
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-provides-cdv-vaccination-in-pil-over-tiger-deaths-in-kanha-tiger-reserve-540763
+
+[Read on Telegram](https://t.me/livelawindia/114389)
 
 ---
