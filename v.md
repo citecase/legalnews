@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-09T16:02:17+00:00*
+*Last Updated: 2026-07-10T04:33:05+00:00*
+
+---
+
+### 2026-07-10T04:33:05+00:00
+District Judge's Opinion Must Get Due Primacy In Selection Of Public Prosecutors: Kerala High Court Approves Revised Appointment Circular
+https://www.verdictum.in/kerala-high-court/adv-sudheer-ps-v-state-of-kerala-2026ker49961-district-judges-opinion-must-get-due-primacy-public-prosecutors-1617449
+
+[Source Link](https://t.me/verdictumlegalupdates/27882)
 
 ---
 
@@ -153,14 +161,6 @@ Statutory Mandate Of Section 42A Arbitration Act Cannot Be Diluted Or Overridden
 https://www.verdictum.in/delhi-high-court/2026-dhc-5370-jpc-infrastructure-and-constructions-private-limited-v-alstom-transport-india-1617415
 
 [Source Link](https://t.me/verdictumlegalupdates/27863)
-
----
-
-### 2026-07-09T05:52:23+00:00
-Sovereignty & Security Of Nation Must Prevail Over Personal Liberty: Delhi High Court Denies Bail To 2008 Delhi Serial Blasts Accused
-https://www.verdictum.in/delhi-high-court/mansoor-asghar-peerbhoy-v-state-govt-of-nct-of-delhi-2026dhc5407-db-indian-mujahideen-media-cell-head-after-17-years-in-custody-1617404
-
-[Source Link](https://t.me/verdictumlegalupdates/27862)
 
 ---
 
