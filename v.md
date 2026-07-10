@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-10T15:03:07+00:00*
+*Last Updated: 2026-07-10T16:02:50+00:00*
+
+---
+
+### 2026-07-10T16:02:50+00:00
+Non-Supply Of Grounds Of Arrest Without Prejudice Is At Best A Curable Defect: Delhi High Court Denies Bail To NDPS Accused
+https://www.verdictum.in/delhi-high-court/amar-thapa-v-state-of-nct-of-delhi-2026dhc5520-non-supply-of-grounds-of-arrest-ndps-curable-defect-1617497
+
+[Source Link](https://t.me/verdictumlegalupdates/27901)
+
+---
+
+### 2026-07-10T15:32:28+00:00
+U.P. Goondas Act| Appellate Authority Has No Power To Remand Case To District Magistrate: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/anil-chaudhary-v-state-of-uttar-pradesh-2026ahc134574-up-goondas-act-externment-proceedings-1617496
+
+[Source Link](https://t.me/verdictumlegalupdates/27900)
 
 ---
 
@@ -145,22 +161,6 @@ District Judge's Opinion Must Get Due Primacy In Selection Of Public Prosecutors
 https://www.verdictum.in/kerala-high-court/adv-sudheer-ps-v-state-of-kerala-2026ker49961-district-judges-opinion-must-get-due-primacy-public-prosecutors-1617449
 
 [Source Link](https://t.me/verdictumlegalupdates/27882)
-
----
-
-### 2026-07-09T16:02:17+00:00
-Consultant Vacancy At Adjudicatory Board for Major Ports (ABMP)
-https://www.verdictum.in/job-updates/adjudicatory-board-for-major-ports-1617444
-
-[Source Link](https://t.me/verdictumlegalupdates/27881)
-
----
-
-### 2026-07-09T15:32:56+00:00
-"Noted Thanks" Acknowledgement Of Arbitral Award On WhatsApp Group Is Acceptance: Delhi High Court Dismisses Section 34 Petition As Time-Barred
-https://www.verdictum.in/delhi-high-court/2026-dhc-5380-vinay-mawandia-v-bimal-mawandia-1617450
-
-[Source Link](https://t.me/verdictumlegalupdates/27880)
 
 ---
 
