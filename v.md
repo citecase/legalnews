@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-10T09:52:44+00:00*
+*Last Updated: 2026-07-10T15:03:07+00:00*
+
+---
+
+### 2026-07-10T15:03:07+00:00
+Rajasthan High Court  Imposes Three-Year Social Media Ban On Youth Accused Of Circulating Morphed Images Of Minor
+https://www.verdictum.in/rajasthan-high-court/2026-rj-jp-30041-tulsa-ram-v-state-of-rajasthan-1617495
+
+[Source Link](https://t.me/verdictumlegalupdates/27899)
+
+---
+
+### 2026-07-10T14:32:45+00:00
+Same Relief Can’t Be Re-Agitated Without Changed Circumstances: Delhi High Court Dismisses Second Injunction Application Filed By Audio Devices Brand ‘boAt’
+https://www.verdictum.in/delhi-high-court/imagine-marketing-pvt-ltd-v-exotic-mile-2026dhc5374-injunction-trademark-dispute-1617494
+
+[Source Link](https://t.me/verdictumlegalupdates/27898)
+
+---
+
+### 2026-07-10T14:02:26+00:00
+Personal Liberty Cannot Be Placed Over National Security: Allahabad High Court Denies Bail To Man Accused Of Harbouring ISI Agent
+https://www.verdictum.in/allahabad-high-court/mohd-ashfaque-ansari-alias-ashfaque-ansari-v-state-of-up-2026ahc129123-1617501
+
+[Source Link](https://t.me/verdictumlegalupdates/27897)
+
+---
+
+### 2026-07-10T13:32:54+00:00
+Appeal U/S 19 Contempt Of Courts Act Is Maintainable Only Against Order Imposing Punishment: Andhra Pradesh High Court
+https://www.verdictum.in/andhra-pradesh-high-court/kasi-raju-died-v-arun-kumar-contempt-appeal-sr-no-4482-of-2026-appeal-us-19-contempt-of-courts-act-1617492
+
+[Source Link](https://t.me/verdictumlegalupdates/27896)
+
+---
+
+### 2026-07-10T12:53:11+00:00
+Gold Coins With Engraved Pictures Lose Character Of Bullion & Are Taxable As Gold Articles: Madras High Court
+https://www.verdictum.in/madras-high-court/the-state-of-tamil-nadu-v-ms-hdfc-bank-ltd-gold-coins-bullion-jewellery-tax-1617490
+
+[Source Link](https://t.me/verdictumlegalupdates/27895)
+
+---
+
+### 2026-07-10T12:13:10+00:00
+Husband’s Source Of Income May Be Concealed But Not His Status: Madhya Pradesh High Court While Granting Maintenance To Wife & Child
+https://www.verdictum.in/madhya-pradesh-high-court/a-v-b-2026mphc-ind17382-husband-income-status-maintenance-wife-child-1617485
+
+[Source Link](https://t.me/verdictumlegalupdates/27894)
+
+---
+
+### 2026-07-10T11:32:29+00:00
+Calcutta High Court Directs Abhishek Banerjee To Give His Voice Sample In Intimidatory Speech Case
+https://www.verdictum.in/calcutta-high-court/calcutta-high-court-directs-abhishek-banerjee-to-give-his-voice-sample-in-intimidatory-speech-case-1617484
+
+[Source Link](https://t.me/verdictumlegalupdates/27893)
+
+---
+
+### 2026-07-10T11:02:48+00:00
+Kerala High Court Directs State To Disburse Ex-Gratia To Deceased And Injured In Wayanad Landslide On Time
+https://www.verdictum.in/kerala-high-court/kerala-high-court-directs-state-to-disburse-ex-gratia-to-deceased-and-injured-in-wayanad-landslide-on-time-1617483
+
+[Source Link](https://t.me/verdictumlegalupdates/27892)
+
+---
+
+### 2026-07-10T10:32:46+00:00
+1.20 Crore People Watched Pirated Jan Nayagan After Leaked Portions Were Merged Into Full-Length Film: Madras High Court Denies Bail To Accused
+https://www.verdictum.in/madras-high-court/s-rajini-v-the-state-rep-by-the-inspector-of-police-crlopnos16715-16786-of-2026-jan-nayagan-leaked-footage-1617481
+
+[Source Link](https://t.me/verdictumlegalupdates/27891)
+
+---
+
+### 2026-07-10T10:27:06+00:00
+Delhi High Court Upholds Rajpal Yadav's Conviction In Cheque Bounce Cases, Sentences Him To 3 Months' Imprisonment
+https://www.verdictum.in/delhi-high-court/delhi-high-court-upholds-rajpal-yadavs-conviction-in-cheque-bounce-cases-1617482
+
+[Source Link](https://t.me/verdictumlegalupdates/27890)
 
 ---
 
@@ -81,86 +161,6 @@ https://www.verdictum.in/job-updates/adjudicatory-board-for-major-ports-1617444
 https://www.verdictum.in/delhi-high-court/2026-dhc-5380-vinay-mawandia-v-bimal-mawandia-1617450
 
 [Source Link](https://t.me/verdictumlegalupdates/27880)
-
----
-
-### 2026-07-09T15:02:55+00:00
-Delhi High Court Issues Summons In Suit Over Meta's 'Edit Post' Loophole Used To Steal Content & For Fake Copyright Strikes
-https://www.verdictum.in/delhi-high-court/pushkar-raj-thakur-meta-edit-post-loophole-fake-copyright-strikes-1617437
-
-[Source Link](https://t.me/verdictumlegalupdates/27879)
-
----
-
-### 2026-07-09T14:32:53+00:00
-Recalcitrant Defaulters Cannot Seek Same Instalment Facility As Auction Purchaser: Supreme Court Upholds BSFC Auction Sale
-https://www.verdictum.in/supreme-court/bihar-state-financial-corporation-anr-v-bhushan-singh-ors-2026-insc-673-1617435
-
-[Source Link](https://t.me/verdictumlegalupdates/27878)
-
----
-
-### 2026-07-09T14:02:32+00:00
-Step-Son Ineligible To Receive Family Pension Under Railway Services (Pension) Rules: Madras High Court
-https://www.verdictum.in/madras-high-court/union-of-india-v-the-registrar-step-son-family-pension-railway-services-pension-rules-1617436
-
-[Source Link](https://t.me/verdictumlegalupdates/27877)
-
----
-
-### 2026-07-09T13:32:31+00:00
-Proceedings Against Deceased Person Void Ab Initio: Patna High Court Quashes Certificate Proceedings Initiated After Debtor's Death
-https://www.verdictum.in/patna-high-court/manju-devi-v-the-state-of-bihar-ors-2026pathc57908-certificate-proceedings-1617438
-
-[Source Link](https://t.me/verdictumlegalupdates/27876)
-
----
-
-### 2026-07-09T13:02:10+00:00
-Commercial Courts Act Is Meant For Expediency In Deciding Commercial Disputes; Voluminous Evidence Can’t Water Down Rigours Of Statute: Supreme Court
-https://www.verdictum.in/supreme-court/ms-levitate-mobile-technologies-pvt-ltd-v-standard-chartered-bank-2026-insc-674-commercial-courts-1617441
-
-[Source Link](https://t.me/verdictumlegalupdates/27875)
-
----
-
-### 2026-07-09T12:32:08+00:00
-Supreme Court Judge Recuses From Hearing Plea Against HC's Refusal To Interfere With Equestrian Team Selection
-https://www.verdictum.in/supreme-court/judge-recuses-refusal-to-interfere-with-equestrian-team-selection-1617439
-
-[Source Link](https://t.me/verdictumlegalupdates/27874)
-
----
-
-### 2026-07-09T12:02:37+00:00
-Apex Court Takes Note Of Recent Fire Incident In Delhi NCR & Lucknow, Pulls Up Civic Bodies For Non Compliance Of Orders
-https://www.verdictum.in/supreme-court/recent-fire-incident-in-delhi-ncr-lucknow-1617440
-
-[Source Link](https://t.me/verdictumlegalupdates/27873)
-
----
-
-### 2026-07-09T11:33:15+00:00
-One Who Alleges A Custom Must Prove It; Uncle-In-Law Cannot Adopt Niece's Husband As "Ghardamad" Under Oraon Tribal Custom: Supreme Court
-https://www.verdictum.in/supreme-court/bejla-oraon-v-kali-das-oraon-2026-insc-672-alleges-custom-uncle-in-law-cannot-adopt-nieces-husband-ghardamad-1617434
-
-[Source Link](https://t.me/verdictumlegalupdates/27872)
-
----
-
-### 2026-07-09T11:02:54+00:00
-RBI Bank Merger Scheme Cannot Override Section 14(1)(b) DRC Act: Supreme Court Restores Eviction Decree Against PNB
-https://www.verdictum.in/supreme-court/british-motor-car-company-ltd-v-ms-hindustan-commercial-bank-ltd-punjab-national-bank-anr-2026-insc-671-1617429
-
-[Source Link](https://t.me/verdictumlegalupdates/27871)
-
----
-
-### 2026-07-09T10:32:53+00:00
-"Use Of Temple By Members Of Public As Of Right" Determines Whether It Is A Public Trust When Origin Of Endowment Cannot Be Ascertained: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/mallari-so-ramchandra-nimbalkar-v-laxman-raju-poojari-2026khc-d8167-public-trust-when-origin-of-endowment-use-of-temple-public-1617428
-
-[Source Link](https://t.me/verdictumlegalupdates/27870)
 
 ---
 
