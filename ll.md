@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-10T13:02:49+00:00*
+*Last Updated: 2026-07-10T13:55:19+00:00*
 
 ---
 
-### 2026-07-10T13:02:49+00:00
-Supreme Court Upholds Bombay HC Decision Refusing To Reopen Goa Mining E-Auction Over Alleged MSTC Glitch
-https://www.livelaw.in/top-stories/supreme-court-upholds-bombay-hc-decision-refusing-to-reopen-goa-mining-e-auction-over-alleged-mstc-glitch-540736
-
-[Read on Telegram](https://t.me/livelawindia/114370)
-
----
-### 2026-07-10T13:07:59+00:00
-Compassionate Employment To Dependent Of Deceased Not 'Pecuniary Advantage' For Calculating Accident Compensation: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-compassionate-appointment-pecuniary-advantage-compensation-deduction-540696
-
-[Read on Telegram](https://t.me/livelawindia/114371)
-
----
-### 2026-07-10T13:47:59+00:00
-Consequential Arrears Can't Be Denied Once Pay Parity Is Restored: Delhi High Court Grants Relief To Prasar Bharati Technicians
-https://www.livelaw.in/high-court/delhi-high-court/consequential-arrears-cant-be-denied-once-pay-parity-is-restored-delhi-high-court-grants-relief-to-prasar-bharati-technicians-540703
-
-[Read on Telegram](https://t.me/livelawindia/114372)
-
----
 ### 2026-07-10T13:55:19+00:00
 After Kerala High Court Flak, IAS Officer Tenders Unconditional Apology Over 'Contemptuous Remarks' In Cashew Corp Scam Case
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ias-officer-apology-cashew-corp-scam-540741
@@ -142,5 +121,26 @@ Madhya Pradesh High Court Asks Authorities To Safeguard Tiger Reserves From Cani
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-provides-cdv-vaccination-in-pil-over-tiger-deaths-in-kanha-tiger-reserve-540763
 
 [Read on Telegram](https://t.me/livelawindia/114389)
+
+---
+### 2026-07-11T02:29:54+00:00
+Director (Data Privacy & Trust) Vacancy At Deloitte Touche Tohmatsu India LLP
+https://www.livelaw.in/job-updates/director-data-privacy-trust-vacancy-at-deloitte-touche-tohmatsu-india-llp-540768
+
+[Read on Telegram](https://t.me/livelawindia/114390)
+
+---
+### 2026-07-11T02:34:54+00:00
+Ombudsman (I&II) Vacancy At Odisha Electricity Regulatory Commission
+https://www.livelaw.in/job-updates/ombudsman-iii-vacancy-at-odisha-electricity-regulatory-commission-540769
+
+[Read on Telegram](https://t.me/livelawindia/114391)
+
+---
+### 2026-07-11T02:51:14+00:00
+Senior Associate Vacancy At Ernst & Young [Apply Now]
+https://www.livelaw.in/job-updates/senior-associate-vacancy-at-ernst-young-apply-now-540770
+
+[Read on Telegram](https://t.me/livelawindia/114392)
 
 ---
