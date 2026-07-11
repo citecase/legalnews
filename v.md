@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-10T16:02:50+00:00*
+*Last Updated: 2026-07-11T08:02:47+00:00*
+
+---
+
+### 2026-07-11T08:02:47+00:00
+Punjab & Haryana High Court Directs Time-Bound Decision On Beant Singh Assassination Convict's Parole Plea
+https://www.verdictum.in/punjab-and-haryana-high-court/jagtar-singh-hawara-v-union-territory-chandigarh-administration-2026phhc090833-db-chandigarh-ut-parole-beant-singh-assassination-1617540
+
+[Source Link](https://t.me/verdictumlegalupdates/27907)
+
+---
+
+### 2026-07-11T07:23:06+00:00
+Forum Of Appeal Is Procedural Law: Karnataka High Court Upholds Separate Appellate Classification For Bengaluru City Civil Courts
+https://www.verdictum.in/karnataka-high-court/upholds-separate-appellate-classification-bengaluru-city-civil-courts-article-14-1617536
+
+[Source Link](https://t.me/verdictumlegalupdates/27906)
+
+---
+
+### 2026-07-11T06:42:25+00:00
+Bombay Public Trust Act Does Not Bar Archaks From Becoming Temple Trustees: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/mallari-v-laxman-raju-poojari-ors-2026khc-d8167-sri-yallamma-devi-temple-1617532
+
+[Source Link](https://t.me/verdictumlegalupdates/27905)
+
+---
+
+### 2026-07-11T06:02:23+00:00
+Sitting Silent For 20 Years Reflects Abandonment Of Agreement To Sell, Disentitles Plaintiff To Specific Performance: Delhi High Court
+https://www.verdictum.in/delhi-high-court/rattan-singh-v-akhtar-islam-2026dhc5495-agreement-to-sell-disentitles-plaintiff-to-specific-performance-1617524
+
+[Source Link](https://t.me/verdictumlegalupdates/27904)
+
+---
+
+### 2026-07-11T05:13:02+00:00
+Subsequent Divorce Decree Does Not Absolve Husband Of Liability For Domestic Violence Once Committed: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/pr-v-state-of-up-through-principal-secretary-home-lucknow-and-another-2026ahc-lko43629-1617493
+
+[Source Link](https://t.me/verdictumlegalupdates/27903)
+
+---
+
+### 2026-07-11T04:33:11+00:00
+Family Courts Must Endorse Valid, Uncontested Talaq Without Rigorous Adversarial Procedures To Secure Clear Marital Status: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/2026-ahc-lko-42505-db-xxx-v-yyyy-1617498
+
+[Source Link](https://t.me/verdictumlegalupdates/27902)
 
 ---
 
@@ -113,54 +161,6 @@ No Particular Form Of Medical Certificate Required To Treat Dying Declaration As
 https://www.verdictum.in/allahabad-high-court/tilluka-manoj-v-state-of-up-2026ahc130820-db-dying-declaration-validity-1617474
 
 [Source Link](https://t.me/verdictumlegalupdates/27888)
-
----
-
-### 2026-07-10T08:32:41+00:00
-2021 BJP Leader Murder| Kerala High Court Grants 30-Day Interim Bail To Death Row Convict On Medical Grounds
-https://www.verdictum.in/kerala-high-court/navas-v-state-of-kerala-crlmappl-no-12025-30-day-interim-bail-death-row-convict-medical-grounds-1617475
-
-[Source Link](https://t.me/verdictumlegalupdates/27887)
-
----
-
-### 2026-07-10T08:02:40+00:00
-Stop Unnecessary Court Referrals; Permission Not Needed For Terminating Pregnancy Below 24 Weeks If MTP Act Conditions Are Met: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/prosecutrix-x-v-the-state-of-madhya-pradesh-2026mphc-jbp48177-terminating-pregnancy-below-24-weeks-if-mtp-act-1617473
-
-[Source Link](https://t.me/verdictumlegalupdates/27886)
-
----
-
-### 2026-07-10T07:32:19+00:00
-Supreme Court Slams Maharashtra Govt., Says State Opposes Bail Tooth And Nail But Fails To Conduct Trial Without Delay
-https://www.verdictum.in/supreme-court/slams-maharashtra-police-state-opposes-bail-tooth-nail-trial-delay-1617476
-
-[Source Link](https://t.me/verdictumlegalupdates/27885)
-
----
-
-### 2026-07-10T07:02:37+00:00
-Posters Attempting To Alienate J&K Residents From India Sufficient To Frame UAPA Charges: J&K And Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/adan-bashir-bangroo-anr-v-ut-of-jk-through-police-station-shaheed-gunj-srinagar-2026jklhc-sgr213-db-1617471
-
-[Source Link](https://t.me/verdictumlegalupdates/27884)
-
----
-
-### 2026-07-10T06:34:06+00:00
-Lack Of Harmony With In-Laws Or Husband's Attention Towards Parents Cannot Justify Wife's Separate Living U/S 125(4) CrPC: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/l-v-a-2026mphc-ind18129-wifes-lack-of-harmony-with-in-laws-cannot-justify-separate-living-1617470
-
-[Source Link](https://t.me/verdictumlegalupdates/27883)
-
----
-
-### 2026-07-10T04:33:05+00:00
-District Judge's Opinion Must Get Due Primacy In Selection Of Public Prosecutors: Kerala High Court Approves Revised Appointment Circular
-https://www.verdictum.in/kerala-high-court/adv-sudheer-ps-v-state-of-kerala-2026ker49961-district-judges-opinion-must-get-due-primacy-public-prosecutors-1617449
-
-[Source Link](https://t.me/verdictumlegalupdates/27882)
 
 ---
 
