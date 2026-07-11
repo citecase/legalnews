@@ -1,146 +1,147 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-10T13:55:19+00:00*
+*Last Updated: 2026-07-11T03:33:04+00:00*
 
 ---
 
-### 2026-07-10T13:55:19+00:00
-After Kerala High Court Flak, IAS Officer Tenders Unconditional Apology Over 'Contemptuous Remarks' In Cashew Corp Scam Case
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ias-officer-apology-cashew-corp-scam-540741
+### 2026-07-11T03:33:04+00:00
+Legal Researcher Vacancy At National Green Tribunal, Western Zone Bench, Pune
+https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-national-green-tribunal-western-zone-bench-pune-540747
 
-[Read on Telegram](https://t.me/livelawindia/114373)
-
----
-### 2026-07-10T14:10:09+00:00
-Settlement Without Closure: Section 138 As Leverage In Commercial Lease Defaults
-https://www.livelaw.in/articles/settlement-without-closure-section138-leverage-commercial-lease-defaults-540743
-
-[Read on Telegram](https://t.me/livelawindia/114374)
+[Read on Telegram](https://t.me/livelawindia/114394)
 
 ---
-### 2026-07-10T14:11:29+00:00
-After Threats To Judge In Lynching Case, MP High Court Flags Security Risks Of Judges Living In Rented Houses; Seeks State's Housing Plan
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/tabassum-khan-threats-mob-lynching-judges-govt-accommodation-rented-housing-540744
+### 2026-07-11T04:02:25+00:00
+Appeal Against Conviction Can't Be Dismissed Merely Because Party Or Counsel Is Absent, Must Be Adjudicated On Merits: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-criminal-appeal-dismissed-appellant-absent-540759
 
-[Read on Telegram](https://t.me/livelawindia/114375)
-
----
-### 2026-07-10T14:24:29+00:00
-'OK Not To Be OK': Sikkim High Court Cites Demi Lovato Song, Urges State To Strengthen Children's Mental Health Measures After Teen's Suicide
-https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-improve-child-mental-health-16-year-old-rape-suicide-540749
-
-[Read on Telegram](https://t.me/livelawindia/114376)
+[Read on Telegram](https://t.me/livelawindia/114395)
 
 ---
-### 2026-07-10T14:29:09+00:00
-Anil Ambani Withdraw's From Bombay High Court Plea Challenging Bank Of Baroda Order Classifying Reliance Account As 'Fraud'
-https://www.livelaw.in/high-court/bombay-high-court/anil-ambani-withdraw-plea-against-bank-of-baroda-fraud-account-540750
+### 2026-07-11T04:04:05+00:00
+#TheLawChallenge
+ : A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
+https://www.livelaw.in/top-stories/livelaw-qshala-weekly-quiz-540772
 
-[Read on Telegram](https://t.me/livelawindia/114377)
-
----
-### 2026-07-10T14:33:09+00:00
-Algorithmic Masquerade: Personality Rights And Deceptive Horizon Of AI Safe Harbor
-https://www.livelaw.in/articles/algorithmic-masquerade-personality-rights-deceptive-horizon-ai-safe-harbor-540431
-
-[Read on Telegram](https://t.me/livelawindia/114378)
+[Read on Telegram](https://t.me/livelawindia/114396)
 
 ---
-### 2026-07-10T14:42:49+00:00
-Kerala High Court Questions State On Monitoring Of Waste Collection Agencies, Suggests Stronger Audit And CSR Coordination
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-monitoring-of-waste-collection-agencies-audit-and-csr-coordination-540751
+### 2026-07-11T04:32:15+00:00
+Rajasthan High Court Denies Bail To Foreign MBBS Graduates Accused Of Securing Internships With Fake Clearance Certificates
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-denies-bail-foreign-mbbs-graduates-fake-fmge-clearance-certificates-540760
 
-[Read on Telegram](https://t.me/livelawindia/114379)
-
----
-### 2026-07-10T14:47:29+00:00
-Executive Instructions Can't Retrospectively Override Statutory Land Conversion Rules: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-sets-aside-revenue-minister-order-contractual-rights-540705
-
-[Read on Telegram](https://t.me/livelawindia/114380)
+[Read on Telegram](https://t.me/livelawindia/114397)
 
 ---
-### 2026-07-10T14:52:29+00:00
-Karnataka High Court Relaxes VC Rules, Allows Senior Citizen Widow In USA To Record Evidence From Her Home In Probate Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-relaxes-video-conferencing-rules-record-evidence-home-probate-case-540752
+### 2026-07-11T04:32:55+00:00
+LiveLaw Delhi High Court Half Yearly Digest: January To June, 2026
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-latest-judgments-half-yearly-digest-2026-539504
 
-[Read on Telegram](https://t.me/livelawindia/114381)
-
----
-### 2026-07-10T14:57:59+00:00
-Will Be 'Spoiled' By Mother: Allahabad High Court Gives Father Temporary Custody Of 5-Y/O Girl 'Tutored' To Accuse Him Of Sexual Abuse
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-gives-father-temporary-custody-5-year-old-girl-tutored-mother-allege-sexual-abuse-540754
-
-[Read on Telegram](https://t.me/livelawindia/114382)
+[Read on Telegram](https://t.me/livelawindia/114398)
 
 ---
-### 2026-07-10T15:02:59+00:00
-Punjab & Haryana High Court Stays Trial Against Cop Accused Of Selling Drugs In Jail
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-stays-trial-against-cop-accused-of-selling-drugs-in-jail-540753
+### 2026-07-11T04:33:15+00:00
+Who Counts As A “Member”?
+https://www.livelaw.in/lawschool/articles/who-counts-member-540611
 
-[Read on Telegram](https://t.me/livelawindia/114383)
-
----
-### 2026-07-10T15:11:19+00:00
-Jindal Global Law School (JGLS) Announces Early Admissions For 2027: LNAT-UK Test Mandatory Entrance Exam
-https://www.livelaw.in/lawschool/law-school-admission/jindal-global-law-school-jgls-announces-early-admissions-2027-lnat-uk-test-mandatory-entrance-exam-540755
-
-[Read on Telegram](https://t.me/livelawindia/114384)
+[Read on Telegram](https://t.me/livelawindia/114399)
 
 ---
-### 2026-07-10T15:27:59+00:00
-Karnataka High Court Grants ₹20 Lakh Towards 'Lifetime Caretaker' Expenses To Woman Left Permanently Disabled In Road Accident
-https://www.livelaw.in/high-court/karnataka-high-court/lifetime-caretaker-expenses-permanent-disability-motor-accident-540758
+### 2026-07-11T05:03:06+00:00
+Discord Between Parents And Wife Not A Ground To Deny Monthly Maintenance To Elderly Parents: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/wife-in-laws-discord-husband-stop-maintaining-old-parents-540767
 
-[Read on Telegram](https://t.me/livelawindia/114385)
-
----
-### 2026-07-10T15:43:00+00:00
-Custodial Assault To Extract Confession Not Official Duty, No Prior Sanction Needed To Prosecute Police Officers: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/police-custodial-assault-not-official-duty-sanction-not-needed-540761
-
-[Read on Telegram](https://t.me/livelawindia/114386)
+[Read on Telegram](https://t.me/livelawindia/114400)
 
 ---
-### 2026-07-10T15:47:20+00:00
-Jharkhand High Court Refuses To Interfere With Administrative Order Passed To Maintain Law & Order Amid Land Dispute
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-article226-invoked-resolve-disputed-questions-land-encroachment-dispute-540757
+### 2026-07-11T05:05:46+00:00
+Allahabad High Court Stays Arrest Of Man Booked For FB Post Saying 'Govt-Recognized Terrorists In Saffron' Creating Chaos
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-stays-arrest-fb-post-govt-recognized-terrorists-saffron-chaos-540785
 
-[Read on Telegram](https://t.me/livelawindia/114387)
-
----
-### 2026-07-10T16:03:10+00:00
-Experience In Govt Hospitals Can't Be Ignored Merely Because Salary Was Paid By NGO Under PPP Model: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-experience-government-institutions-salary-paid-by-ngo-ppp-model-540762
-
-[Read on Telegram](https://t.me/livelawindia/114388)
+[Read on Telegram](https://t.me/livelawindia/114401)
 
 ---
-### 2026-07-10T16:18:10+00:00
-Madhya Pradesh High Court Asks Authorities To Safeguard Tiger Reserves From Canine Distemper Outbreak
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-provides-cdv-vaccination-in-pil-over-tiger-deaths-in-kanha-tiger-reserve-540763
+### 2026-07-11T05:27:46+00:00
+Accident Compensation | No Presumption On Govt Doctor's Having Private Practice; Burden On Claimant To Show Earnings: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-government-doctors-private-practice-income-540702
 
-[Read on Telegram](https://t.me/livelawindia/114389)
-
----
-### 2026-07-11T02:29:54+00:00
-Director (Data Privacy & Trust) Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/director-data-privacy-trust-vacancy-at-deloitte-touche-tohmatsu-india-llp-540768
-
-[Read on Telegram](https://t.me/livelawindia/114390)
+[Read on Telegram](https://t.me/livelawindia/114402)
 
 ---
-### 2026-07-11T02:34:54+00:00
-Ombudsman (I&II) Vacancy At Odisha Electricity Regulatory Commission
-https://www.livelaw.in/job-updates/ombudsman-iii-vacancy-at-odisha-electricity-regulatory-commission-540769
+### 2026-07-11T06:02:36+00:00
+Rajasthan High Court Issues Notice On Law Student's Plea Alleging Misbehaviour By Principal, Non-Functional Grievance Redressal Committee
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-issues-notice-subodh-law-college-alleging-harassment-principal-540766
 
-[Read on Telegram](https://t.me/livelawindia/114391)
+[Read on Telegram](https://t.me/livelawindia/114403)
 
 ---
-### 2026-07-11T02:51:14+00:00
-Senior Associate Vacancy At Ernst & Young [Apply Now]
-https://www.livelaw.in/job-updates/senior-associate-vacancy-at-ernst-young-apply-now-540770
+### 2026-07-11T06:02:56+00:00
+Calcutta High Court Weekly Round-Up: June 29 To July 05, 2026
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-weekly-round-up-june-29-to-july-05-2026-540789
 
-[Read on Telegram](https://t.me/livelawindia/114392)
+[Read on Telegram](https://t.me/livelawindia/114404)
+
+---
+### 2026-07-11T06:32:37+00:00
+Detained Kerala Councillor Sugathan R Moves High Court Seeking Direction To Prison Authorities To Facilitate Fresh Oath-Taking
+https://www.livelaw.in/high-court/kerala-high-court/thiruvananthapuram-councillor-kerala-high-court-retake-oath-540792
+
+[Read on Telegram](https://t.me/livelawindia/114405)
+
+---
+### 2026-07-11T06:37:17+00:00
+Know The Law | Does Delayed Payment By Auction Purchaser Invalidate Sale Under SARFAESI Act?
+https://www.livelaw.in/know-the-law/know-the-law-does-delayed-payment-by-auction-purchaser-invalidate-sale-under-sarfaesi-act-540488
+
+[Read on Telegram](https://t.me/livelawindia/114406)
+
+---
+### 2026-07-11T06:53:47+00:00
+S. 125 CrPC | Strict Proof Of Marriage Not Required If Cohabitation As Husband & Wife Is Established: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-strict-proof-marriage-not-required-section-125-crpc-maintenance-cohabitation-540795
+
+[Read on Telegram](https://t.me/livelawindia/114407)
+
+---
+### 2026-07-11T06:54:07+00:00
+SCBA Condemns Litigant's Abusive Conduct In Supreme Court, Seeks Guidelines On Circulation Of Courtroom Videos
+https://www.livelaw.in/top-stories/scba-condemns-litigants-abusive-conduct-in-supreme-court-seeks-guidelines-on-circulation-of-courtroom-videos-540796
+
+[Read on Telegram](https://t.me/livelawindia/114408)
+
+---
+### 2026-07-11T07:02:47+00:00
+Voter's Choice Can't Be Ignored Merely Because Ballot Carried Tick Mark, Instead Of Prescribed Swastik Symbol: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-declares-bodhan-bar-association-candidate-elected-540786
+
+[Read on Telegram](https://t.me/livelawindia/114409)
+
+---
+### 2026-07-11T07:32:47+00:00
+Secretly Recording Spouse's Calls Without Consent Violates Right To Privacy, Inadmissible In Divorce Proceedings: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-secretly-recording-spouse-calls-right-to-privacy-540791
+
+[Read on Telegram](https://t.me/livelawindia/114410)
+
+---
+### 2026-07-11T07:40:37+00:00
+Bengaluru Court Grants Bail To Actor Prakash Raj Accused Of Holding Multiple Voter-IDs
+https://www.livelaw.in/news-updates/prakash-raj-granted-bail-multiple-voter-id-case-540798
+
+[Read on Telegram](https://t.me/livelawindia/114411)
+
+---
+### 2026-07-11T07:46:17+00:00
+Delhi Court Rejects Muslim Man's Plea Against Re-Use Of Wife's Grave, Says No Proof Body Hasn't Decomposed
+https://www.livelaw.in/news-updates/re-use-muslim-grave-public-graveyard-no-proof-non-decomposition-540799
+
+[Read on Telegram](https://t.me/livelawindia/114412)
+
+---
+### 2026-07-11T07:48:57+00:00
+'Rape Is A Legal Conclusion, Not A Medical Condition': Allahabad High Court Relies On Victim's Sole Testimony To Uphold 1985 Conviction
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-rape-legal-conclusion-victim-sole-testimony-upholds-1985-conviction-540800
+
+[Read on Telegram](https://t.me/livelawindia/114413)
 
 ---
