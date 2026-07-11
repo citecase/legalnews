@@ -1,108 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-11T03:33:04+00:00*
+*Last Updated: 2026-07-11T06:54:07+00:00*
 
 ---
 
-### 2026-07-11T03:33:04+00:00
-Legal Researcher Vacancy At National Green Tribunal, Western Zone Bench, Pune
-https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-national-green-tribunal-western-zone-bench-pune-540747
-
-[Read on Telegram](https://t.me/livelawindia/114394)
-
----
-### 2026-07-11T04:02:25+00:00
-Appeal Against Conviction Can't Be Dismissed Merely Because Party Or Counsel Is Absent, Must Be Adjudicated On Merits: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-criminal-appeal-dismissed-appellant-absent-540759
-
-[Read on Telegram](https://t.me/livelawindia/114395)
-
----
-### 2026-07-11T04:04:05+00:00
-#TheLawChallenge
- : A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
-https://www.livelaw.in/top-stories/livelaw-qshala-weekly-quiz-540772
-
-[Read on Telegram](https://t.me/livelawindia/114396)
-
----
-### 2026-07-11T04:32:15+00:00
-Rajasthan High Court Denies Bail To Foreign MBBS Graduates Accused Of Securing Internships With Fake Clearance Certificates
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-denies-bail-foreign-mbbs-graduates-fake-fmge-clearance-certificates-540760
-
-[Read on Telegram](https://t.me/livelawindia/114397)
-
----
-### 2026-07-11T04:32:55+00:00
-LiveLaw Delhi High Court Half Yearly Digest: January To June, 2026
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-latest-judgments-half-yearly-digest-2026-539504
-
-[Read on Telegram](https://t.me/livelawindia/114398)
-
----
-### 2026-07-11T04:33:15+00:00
-Who Counts As A “Member”?
-https://www.livelaw.in/lawschool/articles/who-counts-member-540611
-
-[Read on Telegram](https://t.me/livelawindia/114399)
-
----
-### 2026-07-11T05:03:06+00:00
-Discord Between Parents And Wife Not A Ground To Deny Monthly Maintenance To Elderly Parents: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/wife-in-laws-discord-husband-stop-maintaining-old-parents-540767
-
-[Read on Telegram](https://t.me/livelawindia/114400)
-
----
-### 2026-07-11T05:05:46+00:00
-Allahabad High Court Stays Arrest Of Man Booked For FB Post Saying 'Govt-Recognized Terrorists In Saffron' Creating Chaos
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-stays-arrest-fb-post-govt-recognized-terrorists-saffron-chaos-540785
-
-[Read on Telegram](https://t.me/livelawindia/114401)
-
----
-### 2026-07-11T05:27:46+00:00
-Accident Compensation | No Presumption On Govt Doctor's Having Private Practice; Burden On Claimant To Show Earnings: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-government-doctors-private-practice-income-540702
-
-[Read on Telegram](https://t.me/livelawindia/114402)
-
----
-### 2026-07-11T06:02:36+00:00
-Rajasthan High Court Issues Notice On Law Student's Plea Alleging Misbehaviour By Principal, Non-Functional Grievance Redressal Committee
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-issues-notice-subodh-law-college-alleging-harassment-principal-540766
-
-[Read on Telegram](https://t.me/livelawindia/114403)
-
----
-### 2026-07-11T06:02:56+00:00
-Calcutta High Court Weekly Round-Up: June 29 To July 05, 2026
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-weekly-round-up-june-29-to-july-05-2026-540789
-
-[Read on Telegram](https://t.me/livelawindia/114404)
-
----
-### 2026-07-11T06:32:37+00:00
-Detained Kerala Councillor Sugathan R Moves High Court Seeking Direction To Prison Authorities To Facilitate Fresh Oath-Taking
-https://www.livelaw.in/high-court/kerala-high-court/thiruvananthapuram-councillor-kerala-high-court-retake-oath-540792
-
-[Read on Telegram](https://t.me/livelawindia/114405)
-
----
-### 2026-07-11T06:37:17+00:00
-Know The Law | Does Delayed Payment By Auction Purchaser Invalidate Sale Under SARFAESI Act?
-https://www.livelaw.in/know-the-law/know-the-law-does-delayed-payment-by-auction-purchaser-invalidate-sale-under-sarfaesi-act-540488
-
-[Read on Telegram](https://t.me/livelawindia/114406)
-
----
-### 2026-07-11T06:53:47+00:00
-S. 125 CrPC | Strict Proof Of Marriage Not Required If Cohabitation As Husband & Wife Is Established: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-strict-proof-marriage-not-required-section-125-crpc-maintenance-cohabitation-540795
-
-[Read on Telegram](https://t.me/livelawindia/114407)
-
----
 ### 2026-07-11T06:54:07+00:00
 SCBA Condemns Litigant's Abusive Conduct In Supreme Court, Seeks Guidelines On Circulation Of Courtroom Videos
 https://www.livelaw.in/top-stories/scba-condemns-litigants-abusive-conduct-in-supreme-court-seeks-guidelines-on-circulation-of-courtroom-videos-540796
@@ -143,5 +44,103 @@ https://www.livelaw.in/news-updates/re-use-muslim-grave-public-graveyard-no-proo
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-rape-legal-conclusion-victim-sole-testimony-upholds-1985-conviction-540800
 
 [Read on Telegram](https://t.me/livelawindia/114413)
+
+---
+### 2026-07-11T08:03:18+00:00
+Orissa High Court Grants Relief To Selected Legislative Assembly Reporters, Says Can't Cancel Appointment Arbitrarily When Posts Are Vacant
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-state-arbitrarily-deny-appointment-selected-candidates-540788
+
+[Read on Telegram](https://t.me/livelawindia/114414)
+
+---
+### 2026-07-11T08:12:58+00:00
+Authorised Maruti Dealer Liable For Failing To Repair Accident-Damaged Vehicle Within Promised Time: MP State Consumer Commission
+https://www.livelaw.in/consumer-cases/authorised-maruti-dealer-liable-for-failing-to-repair-accident-damaged-vehicle-within-promised-time-mp-state-consumer-commission-540804
+
+[Read on Telegram](https://t.me/livelawindia/114415)
+
+---
+### 2026-07-11T08:32:18+00:00
+Advocates Can't Be Sued For 'Deficiency' In Service Under Consumer Protection Act: Andhra Pradesh High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/advocates-deficiency-in-service-consumer-protection-act-540787
+
+[Read on Telegram](https://t.me/livelawindia/114416)
+
+---
+### 2026-07-11T09:02:48+00:00
+Rajasthan High Court Directs Release Of Retiral Benefits To 81-Year-Old Former District Judge; Slaps ₹1 Lakh Costs On State, HC Admin For Delay
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-withholding-retiral-dues-former-judge-540793
+
+[Read on Telegram](https://t.me/livelawindia/114417)
+
+---
+### 2026-07-11T09:27:09+00:00
+No Scope For Internal Inquiry Or Image Management In POCSO Cases: Karnataka High Court Upholds FIR Against School Staff For Suppressing Abuse
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-slams-school-betrayal-trust-pocso-coverup-540809
+
+[Read on Telegram](https://t.me/livelawindia/114418)
+
+---
+### 2026-07-11T09:32:59+00:00
+Scope Of Challenge To An Order Under Section 175(3) BNSS
+https://www.livelaw.in/articles/scope-of-challenge-order-section1753-bnss-540612
+
+[Read on Telegram](https://t.me/livelawindia/114419)
+
+---
+### 2026-07-11T10:02:19+00:00
+Relative Allowed To Stay Gratuitously In House Can't Claim Tenancy Rights After Expiry Of Licence: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-relative-claim-possession-oral-evidence-540802
+
+[Read on Telegram](https://t.me/livelawindia/114420)
+
+---
+### 2026-07-11T10:32:29+00:00
+State Can't Compel Minority School To Provide Free Education To Journalists' Children Under RTE Act: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-direct-schools-provide-free-education-journalists-children-540803
+
+[Read on Telegram](https://t.me/livelawindia/114421)
+
+---
+### 2026-07-11T11:02:49+00:00
+Does Refusal By Family Members To Accept Court Notice Amount To Valid Service? Orissa High Court Answers
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-family-refuse-service-deemed-notice-540806
+
+[Read on Telegram](https://t.me/livelawindia/114422)
+
+---
+### 2026-07-11T11:32:20+00:00
+LiveLaw Karnataka High Court Half Yearly Digest- January To June, 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-half-yearly-digest-january2026-june2026-539991
+
+[Read on Telegram](https://t.me/livelawindia/114423)
+
+---
+### 2026-07-11T11:47:40+00:00
+Dua Associates Advises Piramal Finance Limited  In Its Financing Of Nimbus Projects Limited
+https://www.livelaw.in/law-firms/deals/dua-associates-advises-piramal-finance-limited-financing-nimbus-projects-limited-540825
+
+[Read on Telegram](https://t.me/livelawindia/114424)
+
+---
+### 2026-07-11T12:03:20+00:00
+Allahabad High Court Restores Tata Projects' ₹940-Crore Highway Contract, Says NHAI Termination Was 'Pre-Determined'
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-grants-relief-tata-nhai-terminate-contract-540801
+
+[Read on Telegram](https://t.me/livelawindia/114425)
+
+---
+### 2026-07-11T12:33:30+00:00
+Passport Dispute From UP Can't Be Filed In Delhi Merely Because Ministry Of External Affairs Is Located Here: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/passport-dispute-from-up-cant-be-filed-in-delhi-merely-because-ministry-of-external-affairs-is-located-here-delhi-high-court-540831
+
+[Read on Telegram](https://t.me/livelawindia/114426)
+
+---
+### 2026-07-11T13:03:10+00:00
+Revenue Officers Cannot Adjudicate Caste Status For Removing Tribal Land Protections: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-revenue-officers-adjudicate-caste-status-remove-tribal-land-protections-540832
+
+[Read on Telegram](https://t.me/livelawindia/114427)
 
 ---
