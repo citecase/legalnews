@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-11T06:54:07+00:00*
+*Last Updated: 2026-07-11T07:02:47+00:00*
 
 ---
 
-### 2026-07-11T06:54:07+00:00
-SCBA Condemns Litigant's Abusive Conduct In Supreme Court, Seeks Guidelines On Circulation Of Courtroom Videos
-https://www.livelaw.in/top-stories/scba-condemns-litigants-abusive-conduct-in-supreme-court-seeks-guidelines-on-circulation-of-courtroom-videos-540796
-
-[Read on Telegram](https://t.me/livelawindia/114408)
-
----
 ### 2026-07-11T07:02:47+00:00
 Voter's Choice Can't Be Ignored Merely Because Ballot Carried Tick Mark, Instead Of Prescribed Swastik Symbol: Telangana High Court
 https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-declares-bodhan-bar-association-candidate-elected-540786
@@ -142,5 +135,12 @@ Revenue Officers Cannot Adjudicate Caste Status For Removing Tribal Land Protect
 https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-revenue-officers-adjudicate-caste-status-remove-tribal-land-protections-540832
 
 [Read on Telegram](https://t.me/livelawindia/114427)
+
+---
+### 2026-07-11T14:32:11+00:00
+Your God, Not Your Oath: Kerala High Court's Reality Check on Creative Oath-Taking
+https://www.livelaw.in/articles/kerala-high-court-reality-check-creative-oath-taking-540613
+
+[Read on Telegram](https://t.me/livelawindia/114428)
 
 ---
