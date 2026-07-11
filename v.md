@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-11T13:12:35+00:00*
+*Last Updated: 2026-07-11T15:32:39+00:00*
+
+---
+
+### 2026-07-11T15:32:39+00:00
+Karnataka High Court Allows Senior Citizen To Record Probate Evidence From Residence In USA
+https://www.verdictum.in/karnataka-high-court/rekha-gupta-v-nil-2026khc33394-video-conferencing-rules-overseas-evidence-indian-embassy-1617559
+
+[Source Link](https://t.me/verdictumlegalupdates/27917)
+
+---
+
+### 2026-07-11T14:52:38+00:00
+Disputed Questions On Enforceable Debt & Endorsements Post Part-Payments Cannot Be Conclusively Adjudicated At Revisional Stage: Delhi High Court
+https://www.verdictum.in/delhi-high-court/ms-pharmaceuticals-v-nityam-pharma-2026dhc5511-disputed-questions-enforceable-debt-endorsements-us-56-negotiable-instrument-act-1617558
+
+[Source Link](https://t.me/verdictumlegalupdates/27916)
+
+---
+
+### 2026-07-11T14:02:17+00:00
+Delhi High Court Notes Rising Trend Of False Rape & Molestation Charges In Matrimonial Disputes To Coerce Hefty Settlements
+https://www.verdictum.in/delhi-high-court/notes-rising-trend-false-rape-molestation-charges-matrimonial-disputes-coerce-hefty-settlements-1617561
+
+[Source Link](https://t.me/verdictumlegalupdates/27915)
 
 ---
 
@@ -137,30 +161,6 @@ Same Relief Can’t Be Re-Agitated Without Changed Circumstances: Delhi High Cou
 https://www.verdictum.in/delhi-high-court/imagine-marketing-pvt-ltd-v-exotic-mile-2026dhc5374-injunction-trademark-dispute-1617494
 
 [Source Link](https://t.me/verdictumlegalupdates/27898)
-
----
-
-### 2026-07-10T14:02:26+00:00
-Personal Liberty Cannot Be Placed Over National Security: Allahabad High Court Denies Bail To Man Accused Of Harbouring ISI Agent
-https://www.verdictum.in/allahabad-high-court/mohd-ashfaque-ansari-alias-ashfaque-ansari-v-state-of-up-2026ahc129123-1617501
-
-[Source Link](https://t.me/verdictumlegalupdates/27897)
-
----
-
-### 2026-07-10T13:32:54+00:00
-Appeal U/S 19 Contempt Of Courts Act Is Maintainable Only Against Order Imposing Punishment: Andhra Pradesh High Court
-https://www.verdictum.in/andhra-pradesh-high-court/kasi-raju-died-v-arun-kumar-contempt-appeal-sr-no-4482-of-2026-appeal-us-19-contempt-of-courts-act-1617492
-
-[Source Link](https://t.me/verdictumlegalupdates/27896)
-
----
-
-### 2026-07-10T12:53:11+00:00
-Gold Coins With Engraved Pictures Lose Character Of Bullion & Are Taxable As Gold Articles: Madras High Court
-https://www.verdictum.in/madras-high-court/the-state-of-tamil-nadu-v-ms-hdfc-bank-ltd-gold-coins-bullion-jewellery-tax-1617490
-
-[Source Link](https://t.me/verdictumlegalupdates/27895)
 
 ---
 
