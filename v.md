@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-11T08:02:47+00:00*
+*Last Updated: 2026-07-11T13:12:35+00:00*
+
+---
+
+### 2026-07-11T13:12:35+00:00
+False Promise of Marriage Inducing Sexual Intercourse Can Constitute Tortious Conduct; Criminal Acquittal No Bar to Civil Damages: Madras High Court
+https://www.verdictum.in/madras-high-court/v-v-r-sa-no-340-of-2013-tortious-liability-for-inducing-sexual-intercourse-1617553
+
+[Source Link](https://t.me/verdictumlegalupdates/27914)
+
+---
+
+### 2026-07-11T12:33:14+00:00
+Candidates With Multiple Sclerosis Eligible For Reservation Under RPWD Act If Benchmark Disability Threshold Met: Delhi High Court
+https://www.verdictum.in/delhi-high-court/union-of-india-v-preeti-vaid-and-anr-2026dhc5491-db-rpwd-act-multiple-sclerosis-1617552
+
+[Source Link](https://t.me/verdictumlegalupdates/27913)
+
+---
+
+### 2026-07-11T11:52:33+00:00
+Offence Involves Moral Turpitude: Delhi High Court Refuses To Stay Congress Leader Rajendra Bharti’s Conviction In Co-Operative Bank Fraud Case
+https://www.verdictum.in/delhi-high-court/2026-dhc-5546-rajendra-bharti-v-state-of-nct-of-delhi-1617551
+
+[Source Link](https://t.me/verdictumlegalupdates/27912)
+
+---
+
+### 2026-07-11T11:02:12+00:00
+Delhi High Court Quashes National Sports Federation Status Of "Yogasana Bharat" Over National Sports Code Violations
+https://www.verdictum.in/delhi-high-court/yoga-federation-of-india-v-union-of-india-2026dhc-5515-1617550
+
+[Source Link](https://t.me/verdictumlegalupdates/27911)
+
+---
+
+### 2026-07-11T10:13:31+00:00
+Madhya Pradesh High Court Asks State For Response On Providing Official Accommodation To District Judges
+https://www.verdictum.in/madhya-pradesh-high-court/madhya-pradesh-high-court-asks-state-for-response-on-providing-official-accommodation-to-district-judges-1617548
+
+[Source Link](https://t.me/verdictumlegalupdates/27910)
+
+---
+
+### 2026-07-11T09:42:49+00:00
+Contributory Negligence Cannot Be Inferred Solely Because Three People Were Travelling On Two-Wheeler: Chhattisgarh High Court Reiterates
+https://www.verdictum.in/chhattisgarh-high-court/fhulmati-v-nikhil-yadav-2026chc26530-contributory-negligence-tripling-on-a-two-wheeler-1617544
+
+[Source Link](https://t.me/verdictumlegalupdates/27909)
+
+---
+
+### 2026-07-11T08:52:28+00:00
+Allahabad High Court Questions Appointment Of Panchayat Administrators Post Expiry Of Five-Year Term, Seeks State’s Response
+https://www.verdictum.in/allahabad-high-court/questions-appointment-panchayat-administrators-post-expiry-five-year-term-1617543
+
+[Source Link](https://t.me/verdictumlegalupdates/27908)
 
 ---
 
@@ -105,62 +161,6 @@ Gold Coins With Engraved Pictures Lose Character Of Bullion & Are Taxable As Gol
 https://www.verdictum.in/madras-high-court/the-state-of-tamil-nadu-v-ms-hdfc-bank-ltd-gold-coins-bullion-jewellery-tax-1617490
 
 [Source Link](https://t.me/verdictumlegalupdates/27895)
-
----
-
-### 2026-07-10T12:13:10+00:00
-Husband’s Source Of Income May Be Concealed But Not His Status: Madhya Pradesh High Court While Granting Maintenance To Wife & Child
-https://www.verdictum.in/madhya-pradesh-high-court/a-v-b-2026mphc-ind17382-husband-income-status-maintenance-wife-child-1617485
-
-[Source Link](https://t.me/verdictumlegalupdates/27894)
-
----
-
-### 2026-07-10T11:32:29+00:00
-Calcutta High Court Directs Abhishek Banerjee To Give His Voice Sample In Intimidatory Speech Case
-https://www.verdictum.in/calcutta-high-court/calcutta-high-court-directs-abhishek-banerjee-to-give-his-voice-sample-in-intimidatory-speech-case-1617484
-
-[Source Link](https://t.me/verdictumlegalupdates/27893)
-
----
-
-### 2026-07-10T11:02:48+00:00
-Kerala High Court Directs State To Disburse Ex-Gratia To Deceased And Injured In Wayanad Landslide On Time
-https://www.verdictum.in/kerala-high-court/kerala-high-court-directs-state-to-disburse-ex-gratia-to-deceased-and-injured-in-wayanad-landslide-on-time-1617483
-
-[Source Link](https://t.me/verdictumlegalupdates/27892)
-
----
-
-### 2026-07-10T10:32:46+00:00
-1.20 Crore People Watched Pirated Jan Nayagan After Leaked Portions Were Merged Into Full-Length Film: Madras High Court Denies Bail To Accused
-https://www.verdictum.in/madras-high-court/s-rajini-v-the-state-rep-by-the-inspector-of-police-crlopnos16715-16786-of-2026-jan-nayagan-leaked-footage-1617481
-
-[Source Link](https://t.me/verdictumlegalupdates/27891)
-
----
-
-### 2026-07-10T10:27:06+00:00
-Delhi High Court Upholds Rajpal Yadav's Conviction In Cheque Bounce Cases, Sentences Him To 3 Months' Imprisonment
-https://www.verdictum.in/delhi-high-court/delhi-high-court-upholds-rajpal-yadavs-conviction-in-cheque-bounce-cases-1617482
-
-[Source Link](https://t.me/verdictumlegalupdates/27890)
-
----
-
-### 2026-07-10T09:52:44+00:00
-Second FIR Cannot Be Lodged For Same Transaction Merely Due To Omission Of Certain Penal Provisions: Kerala High Court
-https://www.verdictum.in/kerala-high-court/savan-vasanthan-v-station-house-officer-2026ker46163-criminal-law-second-fir-1617472
-
-[Source Link](https://t.me/verdictumlegalupdates/27889)
-
----
-
-### 2026-07-10T09:12:22+00:00
-No Particular Form Of Medical Certificate Required To Treat Dying Declaration As Valid If It Is Truthful & Voluntary: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/tilluka-manoj-v-state-of-up-2026ahc130820-db-dying-declaration-validity-1617474
-
-[Source Link](https://t.me/verdictumlegalupdates/27888)
 
 ---
 
