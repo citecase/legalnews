@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-11T15:32:39+00:00*
+*Last Updated: 2026-07-12T07:33:01+00:00*
+
+---
+
+### 2026-07-12T07:33:01+00:00
+Major Woman Free To Live With Person Of Her Choice; Can't Be Compelled To Reside With Mother: Madhya Pradesh High Court In Habeas Corpus Plea
+https://www.verdictum.in/madhya-pradesh-high-court/urmila-jharia-v-the-state-of-madhya-pradesh-and-others-2026mphc-jbp48504-1617560
+
+[Source Link](https://t.me/verdictumlegalupdates/27920)
+
+---
+
+### 2026-07-12T06:02:20+00:00
+Gram Panchayat's Consent Not Required To Divert Gairan Land For PMAY; State Has Near-Absolute Power U/S 40 Maharashtra Land Revenue Code: Bombay High Court
+https://www.verdictum.in/bombay-high-court/gram-panchayat-nere-v-state-of-maharashtra-writ-petition-no972-of-2026-sarpanch-gram-panchayat-pmay-1617562
+
+[Source Link](https://t.me/verdictumlegalupdates/27919)
+
+---
+
+### 2026-07-12T04:33:09+00:00
+"What Could Not Legally Be Owned Appears To Be Bartered Within The Family": Karnataka High Court Refuses To Quash Land-Grab Case Against Ex-MLA
+https://www.verdictum.in/karnataka-high-court/bh-narayanappa-v-state-of-karnataka-wp-no24242-of-2017-land-grab-case-against-ex-mla-hullu-banni-kharab-1617557
+
+[Source Link](https://t.me/verdictumlegalupdates/27918)
 
 ---
 
@@ -137,30 +161,6 @@ Non-Supply Of Grounds Of Arrest Without Prejudice Is At Best A Curable Defect: D
 https://www.verdictum.in/delhi-high-court/amar-thapa-v-state-of-nct-of-delhi-2026dhc5520-non-supply-of-grounds-of-arrest-ndps-curable-defect-1617497
 
 [Source Link](https://t.me/verdictumlegalupdates/27901)
-
----
-
-### 2026-07-10T15:32:28+00:00
-U.P. Goondas Act| Appellate Authority Has No Power To Remand Case To District Magistrate: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/anil-chaudhary-v-state-of-uttar-pradesh-2026ahc134574-up-goondas-act-externment-proceedings-1617496
-
-[Source Link](https://t.me/verdictumlegalupdates/27900)
-
----
-
-### 2026-07-10T15:03:07+00:00
-Rajasthan High Court  Imposes Three-Year Social Media Ban On Youth Accused Of Circulating Morphed Images Of Minor
-https://www.verdictum.in/rajasthan-high-court/2026-rj-jp-30041-tulsa-ram-v-state-of-rajasthan-1617495
-
-[Source Link](https://t.me/verdictumlegalupdates/27899)
-
----
-
-### 2026-07-10T14:32:45+00:00
-Same Relief Can’t Be Re-Agitated Without Changed Circumstances: Delhi High Court Dismisses Second Injunction Application Filed By Audio Devices Brand ‘boAt’
-https://www.verdictum.in/delhi-high-court/imagine-marketing-pvt-ltd-v-exotic-mile-2026dhc5374-injunction-trademark-dispute-1617494
-
-[Source Link](https://t.me/verdictumlegalupdates/27898)
 
 ---
 
