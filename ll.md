@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-11T09:02:48+00:00*
+*Last Updated: 2026-07-11T11:02:49+00:00*
 
 ---
 
-### 2026-07-11T09:02:48+00:00
-Rajasthan High Court Directs Release Of Retiral Benefits To 81-Year-Old Former District Judge; Slaps ₹1 Lakh Costs On State, HC Admin For Delay
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-withholding-retiral-dues-former-judge-540793
-
-[Read on Telegram](https://t.me/livelawindia/114417)
-
----
-### 2026-07-11T09:27:09+00:00
-No Scope For Internal Inquiry Or Image Management In POCSO Cases: Karnataka High Court Upholds FIR Against School Staff For Suppressing Abuse
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-slams-school-betrayal-trust-pocso-coverup-540809
-
-[Read on Telegram](https://t.me/livelawindia/114418)
-
----
-### 2026-07-11T09:32:59+00:00
-Scope Of Challenge To An Order Under Section 175(3) BNSS
-https://www.livelaw.in/articles/scope-of-challenge-order-section1753-bnss-540612
-
-[Read on Telegram](https://t.me/livelawindia/114419)
-
----
-### 2026-07-11T10:02:19+00:00
-Relative Allowed To Stay Gratuitously In House Can't Claim Tenancy Rights After Expiry Of Licence: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-relative-claim-possession-oral-evidence-540802
-
-[Read on Telegram](https://t.me/livelawindia/114420)
-
----
-### 2026-07-11T10:32:29+00:00
-State Can't Compel Minority School To Provide Free Education To Journalists' Children Under RTE Act: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-direct-schools-provide-free-education-journalists-children-540803
-
-[Read on Telegram](https://t.me/livelawindia/114421)
-
----
 ### 2026-07-11T11:02:49+00:00
 Does Refusal By Family Members To Accept Court Notice Amount To Valid Service? Orissa High Court Answers
 https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-family-refuse-service-deemed-notice-540806
@@ -142,5 +107,40 @@ S.8 Evidence Act | From False NCR To Absconding: Allahabad High Court Weighs Acc
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-sec-8-evidence-act-false-ncr-absconding-wife-murder-conviction-540856
 
 [Read on Telegram](https://t.me/livelawindia/114436)
+
+---
+### 2026-07-12T08:32:19+00:00
+Lawyer Gautam Bhatia Wins CS' Ran Hirschl Prize For Best Article In Constitutional Studies
+https://www.livelaw.in/news-updates/lawyer-gautam-bhatia-wins-cs-ran-hirschl-prize-for-best-article-in-constitutional-studies-540857
+
+[Read on Telegram](https://t.me/livelawindia/114437)
+
+---
+### 2026-07-12T09:32:29+00:00
+Regulating App Based Taxi Services
+https://www.livelaw.in/articles/regulating-app-taxi-services-540745
+
+[Read on Telegram](https://t.me/livelawindia/114438)
+
+---
+### 2026-07-12T12:29:31+00:00
+Punjab National Bank Liable To Compensate Farmers After Crop Insurance Failed Due To Its Negligence: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/punjab-national-bank-liable-to-compensate-farmers-after-crop-insurance-failed-due-to-its-negligence-calcutta-high-court-540864
+
+[Read on Telegram](https://t.me/livelawindia/114439)
+
+---
+### 2026-07-12T12:42:51+00:00
+No Prescribed Format For Providing Written Grounds Of Arrest: Delhi High Court Upholds NDPS Accused's Custody
+https://www.livelaw.in/high-court/delhi-high-court/no-prescribed-format-for-providing-written-grounds-of-arrest-delhi-high-court-upholds-ndps-accuseds-custody-540860
+
+[Read on Telegram](https://t.me/livelawindia/114440)
+
+---
+### 2026-07-12T13:07:31+00:00
+Joint Settlement Of Liquor Licence Permissible Where Multiple Heirs Are Willing And Eligible: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/joint-settlement-of-liquor-licence-permissible-where-multiple-heirs-are-willing-and-eligible-calcutta-high-court-540863
+
+[Read on Telegram](https://t.me/livelawindia/114441)
 
 ---
