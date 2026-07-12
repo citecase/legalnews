@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-12T07:33:01+00:00*
+*Last Updated: 2026-07-12T13:32:55+00:00*
+
+---
+
+### 2026-07-12T13:32:55+00:00
+Direct Information From Child Victim Amounts To "Knowledge" U/S 19 POCSO Act; Persons Receiving It Can’t Conduct Own Verification Before Reporting: Supreme Court
+https://www.verdictum.in/delhi-high-court/aaa-v-linda-sema-ors-2026-insc-675-pocso-child-victim-information-knowledge-1617569
+
+[Source Link](https://t.me/verdictumlegalupdates/27923)
+
+---
+
+### 2026-07-12T11:32:34+00:00
+NHM Contractual Dental Surgeons Are "In the Service of Government"; Eligible for Age Relaxation Under MPSC Recruitment Rules: Bombay High Court
+https://www.verdictum.in/bombay-high-court/maharashtra-public-service-commission-v-dr-jagdish-anandrao-bhalerao-wp-1208-2025-contractual-dental-surgeons-mpsc-recruitment-rules-1617568
+
+[Source Link](https://t.me/verdictumlegalupdates/27922)
+
+---
+
+### 2026-07-12T09:32:52+00:00
+Recording Calls Without Consent Of Spouse Constitutes Breach Of Right To Privacy Guaranteed Under Article 21: Telangana High Court
+https://www.verdictum.in/telangana-high-court/recording-calls-without-consent-spouse-breach-privacy-article-21-1617565
+
+[Source Link](https://t.me/verdictumlegalupdates/27921)
 
 ---
 
@@ -137,30 +161,6 @@ Sitting Silent For 20 Years Reflects Abandonment Of Agreement To Sell, Disentitl
 https://www.verdictum.in/delhi-high-court/rattan-singh-v-akhtar-islam-2026dhc5495-agreement-to-sell-disentitles-plaintiff-to-specific-performance-1617524
 
 [Source Link](https://t.me/verdictumlegalupdates/27904)
-
----
-
-### 2026-07-11T05:13:02+00:00
-Subsequent Divorce Decree Does Not Absolve Husband Of Liability For Domestic Violence Once Committed: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/pr-v-state-of-up-through-principal-secretary-home-lucknow-and-another-2026ahc-lko43629-1617493
-
-[Source Link](https://t.me/verdictumlegalupdates/27903)
-
----
-
-### 2026-07-11T04:33:11+00:00
-Family Courts Must Endorse Valid, Uncontested Talaq Without Rigorous Adversarial Procedures To Secure Clear Marital Status: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/2026-ahc-lko-42505-db-xxx-v-yyyy-1617498
-
-[Source Link](https://t.me/verdictumlegalupdates/27902)
-
----
-
-### 2026-07-10T16:02:50+00:00
-Non-Supply Of Grounds Of Arrest Without Prejudice Is At Best A Curable Defect: Delhi High Court Denies Bail To NDPS Accused
-https://www.verdictum.in/delhi-high-court/amar-thapa-v-state-of-nct-of-delhi-2026dhc5520-non-supply-of-grounds-of-arrest-ndps-curable-defect-1617497
-
-[Source Link](https://t.me/verdictumlegalupdates/27901)
 
 ---
 
