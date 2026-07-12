@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-11T07:02:47+00:00*
+*Last Updated: 2026-07-11T09:02:48+00:00*
 
 ---
 
-### 2026-07-11T07:02:47+00:00
-Voter's Choice Can't Be Ignored Merely Because Ballot Carried Tick Mark, Instead Of Prescribed Swastik Symbol: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-declares-bodhan-bar-association-candidate-elected-540786
-
-[Read on Telegram](https://t.me/livelawindia/114409)
-
----
-### 2026-07-11T07:32:47+00:00
-Secretly Recording Spouse's Calls Without Consent Violates Right To Privacy, Inadmissible In Divorce Proceedings: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-secretly-recording-spouse-calls-right-to-privacy-540791
-
-[Read on Telegram](https://t.me/livelawindia/114410)
-
----
-### 2026-07-11T07:40:37+00:00
-Bengaluru Court Grants Bail To Actor Prakash Raj Accused Of Holding Multiple Voter-IDs
-https://www.livelaw.in/news-updates/prakash-raj-granted-bail-multiple-voter-id-case-540798
-
-[Read on Telegram](https://t.me/livelawindia/114411)
-
----
-### 2026-07-11T07:46:17+00:00
-Delhi Court Rejects Muslim Man's Plea Against Re-Use Of Wife's Grave, Says No Proof Body Hasn't Decomposed
-https://www.livelaw.in/news-updates/re-use-muslim-grave-public-graveyard-no-proof-non-decomposition-540799
-
-[Read on Telegram](https://t.me/livelawindia/114412)
-
----
-### 2026-07-11T07:48:57+00:00
-'Rape Is A Legal Conclusion, Not A Medical Condition': Allahabad High Court Relies On Victim's Sole Testimony To Uphold 1985 Conviction
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-rape-legal-conclusion-victim-sole-testimony-upholds-1985-conviction-540800
-
-[Read on Telegram](https://t.me/livelawindia/114413)
-
----
-### 2026-07-11T08:03:18+00:00
-Orissa High Court Grants Relief To Selected Legislative Assembly Reporters, Says Can't Cancel Appointment Arbitrarily When Posts Are Vacant
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-state-arbitrarily-deny-appointment-selected-candidates-540788
-
-[Read on Telegram](https://t.me/livelawindia/114414)
-
----
-### 2026-07-11T08:12:58+00:00
-Authorised Maruti Dealer Liable For Failing To Repair Accident-Damaged Vehicle Within Promised Time: MP State Consumer Commission
-https://www.livelaw.in/consumer-cases/authorised-maruti-dealer-liable-for-failing-to-repair-accident-damaged-vehicle-within-promised-time-mp-state-consumer-commission-540804
-
-[Read on Telegram](https://t.me/livelawindia/114415)
-
----
-### 2026-07-11T08:32:18+00:00
-Advocates Can't Be Sued For 'Deficiency' In Service Under Consumer Protection Act: Andhra Pradesh High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/advocates-deficiency-in-service-consumer-protection-act-540787
-
-[Read on Telegram](https://t.me/livelawindia/114416)
-
----
 ### 2026-07-11T09:02:48+00:00
 Rajasthan High Court Directs Release Of Retiral Benefits To 81-Year-Old Former District Judge; Slaps ₹1 Lakh Costs On State, HC Admin For Delay
 https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-withholding-retiral-dues-former-judge-540793
@@ -142,5 +86,61 @@ Your God, Not Your Oath: Kerala High Court's Reality Check on Creative Oath-Taki
 https://www.livelaw.in/articles/kerala-high-court-reality-check-creative-oath-taking-540613
 
 [Read on Telegram](https://t.me/livelawindia/114428)
+
+---
+### 2026-07-12T03:32:26+00:00
+Consultant (Data Privacy) Vacancy At KPMG India [Apply Now]
+https://www.livelaw.in/job-updates/consultant-data-privacy-vacancy-at-kpmg-india-540847
+
+[Read on Telegram](https://t.me/livelawindia/114429)
+
+---
+### 2026-07-12T03:46:46+00:00
+Supreme Court Weekly Digest: June 11 - 30, 2026
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-weekly-digest-june-2026-540852
+
+[Read on Telegram](https://t.me/livelawindia/114430)
+
+---
+### 2026-07-12T03:48:06+00:00
+Senior Legal Counsel (M&A) Vacancy At Tata Consultancy Services Limited [Apply Now]
+https://www.livelaw.in/job-updates/senior-legal-counsel-ma-vacancy-at-tata-consultancy-services-limited-540848
+
+[Read on Telegram](https://t.me/livelawindia/114431)
+
+---
+### 2026-07-12T04:02:26+00:00
+Manager Vacancy At Tata Capital Limited [Apply Now]
+https://www.livelaw.in/job-updates/manager-vacancy-at-tata-capital-limited-540849
+
+[Read on Telegram](https://t.me/livelawindia/114432)
+
+---
+### 2026-07-12T04:31:57+00:00
+Absurd To Say Passport Not Citizenship Proof; If You're Living In India, Presumption Is That You're Indian : Justice Dhulia
+https://www.livelaw.in/top-stories/absurd-to-say-passport-not-citizenship-proof-if-youre-living-in-india-presumption-is-that-youre-indian-justice-dhulia-540853
+
+[Read on Telegram](https://t.me/livelawindia/114433)
+
+---
+### 2026-07-12T04:32:37+00:00
+Deputy General Manager (Legal) Vacancy At Godrej Properties Limited [Apply Now]
+https://www.livelaw.in/job-updates/deputy-general-manager-legal-vacancy-at-godrej-properties-limited-540850
+
+[Read on Telegram](https://t.me/livelawindia/114434)
+
+---
+### 2026-07-12T04:32:57+00:00
+Kerala High Court Half Yearly Digest: January To June, 2026 [Citations 1 - 352]
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-half-yearly-january-june-2026-539990
+
+[Read on Telegram](https://t.me/livelawindia/114435)
+
+---
+### 2026-07-12T08:10:58+00:00
+S.8 Evidence Act | From False NCR To Absconding: Allahabad High Court Weighs Accused's 'Conduct' To Uphold Conviction For Wife's Murder
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-sec-8-evidence-act-false-ncr-absconding-wife-murder-conviction-540856
+
+[Read on Telegram](https://t.me/livelawindia/114436)
 
 ---
