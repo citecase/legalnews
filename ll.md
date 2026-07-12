@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-11T11:02:49+00:00*
+*Last Updated: 2026-07-12T03:48:06+00:00*
 
 ---
 
-### 2026-07-11T11:02:49+00:00
-Does Refusal By Family Members To Accept Court Notice Amount To Valid Service? Orissa High Court Answers
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-family-refuse-service-deemed-notice-540806
-
-[Read on Telegram](https://t.me/livelawindia/114422)
-
----
-### 2026-07-11T11:32:20+00:00
-LiveLaw Karnataka High Court Half Yearly Digest- January To June, 2026
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-half-yearly-digest-january2026-june2026-539991
-
-[Read on Telegram](https://t.me/livelawindia/114423)
-
----
-### 2026-07-11T11:47:40+00:00
-Dua Associates Advises Piramal Finance Limited  In Its Financing Of Nimbus Projects Limited
-https://www.livelaw.in/law-firms/deals/dua-associates-advises-piramal-finance-limited-financing-nimbus-projects-limited-540825
-
-[Read on Telegram](https://t.me/livelawindia/114424)
-
----
-### 2026-07-11T12:03:20+00:00
-Allahabad High Court Restores Tata Projects' ₹940-Crore Highway Contract, Says NHAI Termination Was 'Pre-Determined'
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-grants-relief-tata-nhai-terminate-contract-540801
-
-[Read on Telegram](https://t.me/livelawindia/114425)
-
----
-### 2026-07-11T12:33:30+00:00
-Passport Dispute From UP Can't Be Filed In Delhi Merely Because Ministry Of External Affairs Is Located Here: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/passport-dispute-from-up-cant-be-filed-in-delhi-merely-because-ministry-of-external-affairs-is-located-here-delhi-high-court-540831
-
-[Read on Telegram](https://t.me/livelawindia/114426)
-
----
-### 2026-07-11T13:03:10+00:00
-Revenue Officers Cannot Adjudicate Caste Status For Removing Tribal Land Protections: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-revenue-officers-adjudicate-caste-status-remove-tribal-land-protections-540832
-
-[Read on Telegram](https://t.me/livelawindia/114427)
-
----
-### 2026-07-11T14:32:11+00:00
-Your God, Not Your Oath: Kerala High Court's Reality Check on Creative Oath-Taking
-https://www.livelaw.in/articles/kerala-high-court-reality-check-creative-oath-taking-540613
-
-[Read on Telegram](https://t.me/livelawindia/114428)
-
----
-### 2026-07-12T03:32:26+00:00
-Consultant (Data Privacy) Vacancy At KPMG India [Apply Now]
-https://www.livelaw.in/job-updates/consultant-data-privacy-vacancy-at-kpmg-india-540847
-
-[Read on Telegram](https://t.me/livelawindia/114429)
-
----
-### 2026-07-12T03:46:46+00:00
-Supreme Court Weekly Digest: June 11 - 30, 2026
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-weekly-digest-june-2026-540852
-
-[Read on Telegram](https://t.me/livelawindia/114430)
-
----
 ### 2026-07-12T03:48:06+00:00
 Senior Legal Counsel (M&A) Vacancy At Tata Consultancy Services Limited [Apply Now]
 https://www.livelaw.in/job-updates/senior-legal-counsel-ma-vacancy-at-tata-consultancy-services-limited-540848
@@ -142,5 +79,68 @@ Joint Settlement Of Liquor Licence Permissible Where Multiple Heirs Are Willing 
 https://www.livelaw.in/high-court/calcutta-high-court/joint-settlement-of-liquor-licence-permissible-where-multiple-heirs-are-willing-and-eligible-calcutta-high-court-540863
 
 [Read on Telegram](https://t.me/livelawindia/114441)
+
+---
+### 2026-07-12T13:57:41+00:00
+Calcutta High Court Quashes Case Against Former Mead Johnson MD Over Alleged Insect Found In Baby Food
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-quashes-case-against-former-mead-johnson-md-over-alleged-insect-found-in-baby-food-540866
+
+[Read on Telegram](https://t.me/livelawindia/114442)
+
+---
+### 2026-07-12T13:58:01+00:00
+Multiple Sclerosis Qualifies As 'Specified Disability' Under RPWD Act, Delhi High Court Upholds PwD Reservation In SSC Recruitment
+https://www.livelaw.in/high-court/delhi-high-court/multiple-sclerosis-qualifies-as-specified-disability-under-rpwd-act-delhi-high-court-upholds-pwd-reservation-in-ssc-recruitment-540862
+
+[Read on Telegram](https://t.me/livelawindia/114443)
+
+---
+### 2026-07-12T14:32:51+00:00
+Examining OCD Under Labour Law
+https://www.livelaw.in/articles/examining-ocd-labour-law-540746
+
+[Read on Telegram](https://t.me/livelawindia/114444)
+
+---
+### 2026-07-12T15:11:41+00:00
+'Plea Of Alibi' Must Be Proved In Trial, IO Cannot Unilaterally Accept It To Be True To File Final Report: Allahabad HC
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-plea-of-alibi-proved-trial-io-cant-unilaterally-accept-final-report-540869
+
+[Read on Telegram](https://t.me/livelawindia/114445)
+
+---
+### 2026-07-12T15:12:42+00:00
+Calcutta High Court Quashes Termination Of Road Contract, Says State Decided To Foreclose Project After Admitting Flood Damage
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-quashes-termination-of-road-contract-says-state-decided-to-foreclose-project-after-admitting-flood-damage-540865
+
+[Read on Telegram](https://t.me/livelawindia/114446)
+
+---
+### 2026-07-12T15:38:21+00:00
+Sunday Sitting | Demolition 'Threat' To 150-Yr-Old Methodist School: Allahabad High Court Orders Status Quo Over Alleged 'Nazool' Land
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-sunday-sitting-demolition-threat-sitapur-methodist-school-nazool-land-status-quo-540870
+
+[Read on Telegram](https://t.me/livelawindia/114447)
+
+---
+### 2026-07-12T16:48:52+00:00
+Can Woman Claim Maintenance U/S 125 CrPC From Man She 'Married' Without Divorcing First Husband? Allahabad High Court Answers
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-woman-cant-claim-maintenance-section-125-crpc-partner-without-divorcing-first-husband-540873
+
+[Read on Telegram](https://t.me/livelawindia/114448)
+
+---
+### 2026-07-12T17:14:02+00:00
+'Hell-Bent On Ousting Legitimate Bidder': Allahabad High Court Slams North Eastern Rly, Quashes Rejection Of Konkan Railway's Bid
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-slams-north-eastern-railway-quashes-rejection-konkan-railway-bid-540874
+
+[Read on Telegram](https://t.me/livelawindia/114449)
+
+---
+### 2026-07-12T17:50:03+00:00
+Allahabad High Court Weekly Round-Up: July 6 To July 12, 2026
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-weekly-round-up-july-6-to-july-12-2026-540875
+
+[Read on Telegram](https://t.me/livelawindia/114450)
 
 ---
