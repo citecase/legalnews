@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-12T03:48:06+00:00*
+*Last Updated: 2026-07-12T04:32:37+00:00*
 
 ---
 
-### 2026-07-12T03:48:06+00:00
-Senior Legal Counsel (M&A) Vacancy At Tata Consultancy Services Limited [Apply Now]
-https://www.livelaw.in/job-updates/senior-legal-counsel-ma-vacancy-at-tata-consultancy-services-limited-540848
-
-[Read on Telegram](https://t.me/livelawindia/114431)
-
----
-### 2026-07-12T04:02:26+00:00
-Manager Vacancy At Tata Capital Limited [Apply Now]
-https://www.livelaw.in/job-updates/manager-vacancy-at-tata-capital-limited-540849
-
-[Read on Telegram](https://t.me/livelawindia/114432)
-
----
-### 2026-07-12T04:31:57+00:00
-Absurd To Say Passport Not Citizenship Proof; If You're Living In India, Presumption Is That You're Indian : Justice Dhulia
-https://www.livelaw.in/top-stories/absurd-to-say-passport-not-citizenship-proof-if-youre-living-in-india-presumption-is-that-youre-indian-justice-dhulia-540853
-
-[Read on Telegram](https://t.me/livelawindia/114433)
-
----
 ### 2026-07-12T04:32:37+00:00
 Deputy General Manager (Legal) Vacancy At Godrej Properties Limited [Apply Now]
 https://www.livelaw.in/job-updates/deputy-general-manager-legal-vacancy-at-godrej-properties-limited-540850
@@ -142,5 +121,26 @@ Allahabad High Court Weekly Round-Up: July 6 To July 12, 2026
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-weekly-round-up-july-6-to-july-12-2026-540875
 
 [Read on Telegram](https://t.me/livelawindia/114450)
+
+---
+### 2026-07-13T03:11:15+00:00
+Custodial Trial Versus Statutory Approval
+https://www.livelaw.in/articles/custodial-trial-versus-statutory-approval-540880
+
+[Read on Telegram](https://t.me/livelawindia/114451)
+
+---
+### 2026-07-13T03:16:25+00:00
+On citizenship, the Indian passport, and the relationship between them | Dil Se with Kapil Sibal
+https://www.livelaw.in/videos/indian-citizenship-passport-kapil-sibal-dil-se-with-kapil-sibal-the-wire-varadarajan-vivek-katju-justice-sudhanshu-dhulia-supreme-court-india-news-international-relations-government-uoi-540881
+
+[Read on Telegram](https://t.me/livelawindia/114452)
+
+---
+### 2026-07-13T03:24:05+00:00
+Assistant Research Scholar Vacancy At Bihar Judicial Academy, Patna
+https://www.livelaw.in/job-updates/assistant-research-scholar-vacancy-at-bihar-judicial-academy-patna-540882
+
+[Read on Telegram](https://t.me/livelawindia/114453)
 
 ---
