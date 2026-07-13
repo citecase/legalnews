@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-13T07:17:28+00:00*
+*Last Updated: 2026-07-13T12:28:33+00:00*
 
 ---
 
-### 2026-07-13T07:17:28+00:00
-LiveLaw Madras High Court Weekly Roundup: July 06 to July 12, 2026
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-july-6-to-july-12-2026-540914
+### 2026-07-13T12:28:33+00:00
+Supreme Court Upholds Rule Allowing Inclusion Of Royalty In Iron Ore's Average Sale Price To Determine Royalty
+https://www.livelaw.in/supreme-court/supreme-court-upholds-rule-allowing-inclusion-of-royalty-in-iron-ores-average-sale-price-to-determine-royalty-541004
 
-[Read on Telegram](https://t.me/livelawindia/114488)
-
----
-### 2026-07-13T07:22:08+00:00
-Ayodhya Ram Mandir Donation Theft : Supreme Court Issues Notice To Union, UP & Temple Trust On Pleas Seeking CBI Probe
-https://www.livelaw.in/top-stories/supreme-court-ayodhya-ram-mandir-trust-donation-theft-plea-for-court-monitored-cbi-probe-540931
-
-[Read on Telegram](https://t.me/livelawindia/114489)
+[Read on Telegram](https://t.me/livelawindia/114530)
 
 ---
-### 2026-07-13T07:27:08+00:00
-Delhi High Court Directs Take Down Of Facebook Links Unauthorizedly Hosting Zee Content
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-take-down-of-facebook-links-unauthorizedly-hosting-zee-content-540934
+### 2026-07-13T12:29:33+00:00
+2026 LiveLaw (SC) 664 | Kirloskar Ferrous Industries Ltd. and Anr. Versus Union of India & Anr
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-664-kirloskar-ferrous-industries-ltd-and-anr-versus-union-of-india-anr-541005
 
-[Read on Telegram](https://t.me/livelawindia/114490)
-
----
-### 2026-07-13T07:33:08+00:00
-Calcutta High Court Upholds Termination Of Probationary CISF Constable For Suppressing Criminal Cases In Attestation Form
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-upholds-termination-of-probationary-cisf-constable-for-suppressing-criminal-cases-in-attestation-form-540868
-
-[Read on Telegram](https://t.me/livelawindia/114491)
+[Read on Telegram](https://t.me/livelawindia/114531)
 
 ---
-### 2026-07-13T07:36:28+00:00
-Century Club Is 'Public Authority' Under RTI Act, Land Grant By Mysuru Maharaja Amounts To 'Substantial Financing': Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-century-club-public-authority-rti-substantial-financing-540936
+### 2026-07-13T12:33:54+00:00
+Courts Cannot Presume Bride Entrusts Gold To Husband Or In-Laws Based On Social Customs Alone: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-matrimonial-cases-proof-entrustment-practice-gold-cash-541006
 
-[Read on Telegram](https://t.me/livelawindia/114492)
-
----
-### 2026-07-13T07:44:28+00:00
-Madras High Court Reserves Orders On V Ponraj's Plea To Quash FIR Over Remarks Against TVK Women Supporters
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ponraj-tvk-women-remark-fir-quash-plea-orders-reserved-540940
-
-[Read on Telegram](https://t.me/livelawindia/114493)
+[Read on Telegram](https://t.me/livelawindia/114532)
 
 ---
-### 2026-07-13T07:47:18+00:00
-LiveLaw Kerala High Court Weekly Round-Up: July 06 - July 13, 2026
-https://www.livelaw.in/high-court/kerala-high-court/livelaw-kerala-high-court-weekly-round-up-july-540919
+### 2026-07-13T12:39:14+00:00
+Delhi Riots: Court Convicts Tahir Hussain, Others In IB Staffer Ankit Sharma Murder Case
+https://www.livelaw.in/news-updates/delhi-riots-court-convicts-tahir-hussain-others-in-ib-staffer-ankit-sharma-murder-case-541007
 
-[Read on Telegram](https://t.me/livelawindia/114494)
-
----
-### 2026-07-13T07:52:38+00:00
-LiveLaw Supreme Court Monthly Digest: June 2026
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-monthly-digest-june-2026-540941
-
-[Read on Telegram](https://t.me/livelawindia/114495)
+[Read on Telegram](https://t.me/livelawindia/114533)
 
 ---
-### 2026-07-13T08:02:18+00:00
-'Homebuyers' 20 Year Plight!' : Supreme Court Issues Warrants To Haryana Builder's Directors; Flags State Inaction
-https://www.livelaw.in/top-stories/homebuyers-20-year-plight-forces-supreme-court-to-question-rera-mechanisms-efficacy-540942
+### 2026-07-13T12:47:34+00:00
+Long Continuous Consensual Relationship Not 'Rape': Allahabad High Court Discharges Man, Notes Financial Dispute Between Parties
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-long-continuous-consensual-relationship-not-rape-discharges-man-notes-financial-dispute-541009
 
-[Read on Telegram](https://t.me/livelawindia/114496)
-
----
-### 2026-07-13T08:02:58+00:00
-Interest On Wrongly Withheld Gratuity Should Be Recovered From Erring Officer's Salary: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-interest-wrongly-withheld-gratuity-recovered-salary-officer-540918
-
-[Read on Telegram](https://t.me/livelawindia/114497)
+[Read on Telegram](https://t.me/livelawindia/114534)
 
 ---
-### 2026-07-13T08:22:19+00:00
-J&K&L High Court Quashes Preventive Detention, Pulls Up Home Department For Failing To Produce Complete Detention Record
-https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-home-department-cannot-treat-production-of-detention-record-before-high-court-as-a-mere-formality-failure-to-place-complete-record-vitiates-preventive-detention-jk-high-court-540894
+### 2026-07-13T12:47:44+00:00
+J&K&L High Court Closes PIL As Ladakh Administration Establishes Recruitment Framework For Gazetted Posts
+https://www.livelaw.in/high-court/jammu-kashmir/jkl-high-court-closes-pil-as-ladakh-administration-establishes-recruitment-framework-for-gazetted-posts-540998
 
-[Read on Telegram](https://t.me/livelawindia/114498)
-
----
-### 2026-07-13T08:47:49+00:00
-Petrol Pump Dealership Can't Be Cancelled On Mere Suspicion Of Tampering With Fuel Dispensing Unit: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-petrol-pump-dealership-termination-fuel-dispensing-unit-tampering-540933
-
-[Read on Telegram](https://t.me/livelawindia/114499)
+[Read on Telegram](https://t.me/livelawindia/114535)
 
 ---
-### 2026-07-13T08:51:29+00:00
-Former Advocates' Association President Urges Karnataka High Court To Commence Senior Advocate Designation Process After Five-Year Gap
-https://www.livelaw.in/news-updates/former-aab-president-urges-karnataka-high-court-senior-advocate-designations-540950
+### 2026-07-13T12:49:54+00:00
+Pre-2016 DRT Recovery Certificates Cannot Form Basis For Insolvency Notice Under Presidency Towns Insolvency Act: Supreme Court
+https://www.livelaw.in/supreme-court/pre-2016-drt-recovery-certificates-cannot-form-basis-for-insolvency-notice-under-presidency-towns-insolvency-act-supreme-court-541010
 
-[Read on Telegram](https://t.me/livelawindia/114500)
-
----
-### 2026-07-13T08:58:09+00:00
-Supreme Court Orders SIT Probe Into 2023 Death Of Congress Candidate's Driver In Madhya Pradesh
-https://www.livelaw.in/top-stories/supreme-court-orders-sit-probe-into-2023-death-of-congress-candidates-driver-in-madhya-pradesh-540952
-
-[Read on Telegram](https://t.me/livelawindia/114501)
+[Read on Telegram](https://t.me/livelawindia/114536)
 
 ---
-### 2026-07-13T09:02:29+00:00
-LiveLaw Madhya Pradesh High Court Weekly Roundup: July 06 to July 12, 2026
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-weekly-digest-july-6-to-july-12-2026-540921
+### 2026-07-13T12:51:14+00:00
+2026 LiveLaw (SC) 665 | H.D.F.C. BANK LIMITED VERSUS KISHORE K. MEHTA (DEAD) THR. LRS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-665-hdfc-bank-limited-versus-kishore-k-mehta-dead-thr-lrs-541011
 
-[Read on Telegram](https://t.me/livelawindia/114502)
-
----
-### 2026-07-13T09:12:29+00:00
-Kerala High Court Permits Detained Thiruvananthapuram Councillor To Take Oath From Prison
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-thiruvananthapuram-councillor-oath-jail-540955
-
-[Read on Telegram](https://t.me/livelawindia/114503)
+[Read on Telegram](https://t.me/livelawindia/114537)
 
 ---
-### 2026-07-13T09:24:09+00:00
-Supreme Court Issues Notice To HD Revanna In Karnataka's Challenge To His Discharge In Outraging Modesty Case
-https://www.livelaw.in/top-stories/supreme-court-issues-notice-to-hd-revanna-in-karnatakas-challenge-to-his-discharge-in-outraging-modesty-case-540956
+### 2026-07-13T12:59:54+00:00
+"Which Advocate Discloses True Income?" Supreme Court Questions Scrutiny Of Lawyer's Earnings In Civil Judge Recruitment Case
+https://www.livelaw.in/top-stories/which-advocate-discloses-true-income-supreme-court-questions-scrutiny-of-lawyers-earnings-in-civil-judge-recruitment-case-541013
 
-[Read on Telegram](https://t.me/livelawindia/114504)
-
----
-### 2026-07-13T09:27:29+00:00
-Section 354 IPC Not Covered By Section 42 POCSO Act, Trial Court Erred In Not Awarding Separate Sentence: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/section-354-ipc-not-covered-by-section-42-pocso-act-separate-sentence-must-be-awarded-for-offence-delhi-high-court-540861
-
-[Read on Telegram](https://t.me/livelawindia/114505)
+[Read on Telegram](https://t.me/livelawindia/114538)
 
 ---
-### 2026-07-13T09:32:49+00:00
-Written Statements And Limitation: A Tale Of Two Regimes Under Civil And Commercial Law
-https://www.livelaw.in/articles/written-statements-limitation-two-regimes-civil-commercial-law-540840
+### 2026-07-13T13:19:35+00:00
+Empanelment Of Legal Counsels At Sports Authority Of India [Apply Now]
+https://www.livelaw.in/job-updates/empanelment-of-legal-counsels-at-sports-authority-of-india-541016
 
-[Read on Telegram](https://t.me/livelawindia/114506)
+[Read on Telegram](https://t.me/livelawindia/114539)
 
 ---
-### 2026-07-13T09:34:39+00:00
-Victim Not A 'Sterling Witness', Her Family Was Present In House: Why Allahabad High Court Upheld Acquittal In 2014 Rape Case
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-victim-sterling-witness-family-house-upheld-acquittal-2014-rape-case-540960
+### 2026-07-13T13:32:35+00:00
+Kerala High Court's Obsession With Removing Lines And Shades From Court Documents
+https://www.livelaw.in/articles/kerala-high-court-obsession-removing-lines-shades-court-documents-540967
 
-[Read on Telegram](https://t.me/livelawindia/114507)
+[Read on Telegram](https://t.me/livelawindia/114540)
+
+---
+### 2026-07-13T13:33:05+00:00
+Delhi High Court Bar Association To Abstain From Work Against Proposal To Raise District Courts' Pecuniary Jurisdiction
+https://www.livelaw.in/news-updates/delhi-high-court-bar-association-to-abstain-from-work-against-proposal-to-raise-district-courts-pecuniary-jurisdiction-541018
+
+[Read on Telegram](https://t.me/livelawindia/114541)
+
+---
+### 2026-07-13T13:40:45+00:00
+LiveLaw Daily| Ram Mandir Donation Row| Cow Slaughter Ban | Ambani Group Loan Fraud Case & More
+https://www.livelaw.in/videos/ram-mandir-cow-slaughter-ambani-group-loan-fraud-kerala-student-ipc-indian-penal-code-bns-bharatiya-nyaya-sanhita-supreme-court-news-students-livelawdaily-india-541020
+
+[Read on Telegram](https://t.me/livelawindia/114542)
+
+---
+### 2026-07-13T13:49:45+00:00
+S. 19 JJ Act | Children's Court Must Pass Reasoned Order Before Trying Child As Adult: Supreme Court
+https://www.livelaw.in/supreme-court/s-19-jj-act-childrens-court-must-pass-reasoned-order-before-trying-child-as-adult-supreme-court-541024
+
+[Read on Telegram](https://t.me/livelawindia/114543)
+
+---
+### 2026-07-13T13:50:45+00:00
+2026 LiveLaw (SC) 666 | SAGAR VERSUS THE STATE OF HARYANA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-666-sagar-versus-the-state-of-haryana-541026
+
+[Read on Telegram](https://t.me/livelawindia/114544)
+
+---
+### 2026-07-13T14:02:45+00:00
+Fixing Maintenance For Wife At 25% Of Husband's Net Income Not Mandatory; Court May Grant More Or Less: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-fixing-maintenance-wife-25-percent-husband-net-income-not-mandatory-541031
+
+[Read on Telegram](https://t.me/livelawindia/114545)
+
+---
+### 2026-07-13T14:04:05+00:00
+Advocate Moves Supreme Court Seeking Police Protection After Alleged Assault At Delhi Home
+https://www.livelaw.in/top-stories/advocate-moves-supreme-court-seeking-police-protection-after-alleged-assault-at-delhi-home-541034
+
+[Read on Telegram](https://t.me/livelawindia/114546)
+
+---
+### 2026-07-13T14:15:25+00:00
+Delhi High Court Protects Cricketer Abhishek Sharma's Personality Rights, Orders Takedown Of Deepfakes And Unauthorized Merchandise
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-protects-cricketer-abhishek-sharmas-personality-rights-orders-takedown-of-deepfakes-and-unauthorized-merchandise-541037
+
+[Read on Telegram](https://t.me/livelawindia/114547)
+
+---
+### 2026-07-13T14:36:56+00:00
+Supreme Court Stays Madras High Court Order Quashing Appointment Of 17 Personal Assistants To Judges
+https://www.livelaw.in/top-stories/supreme-court-stays-madras-high-court-order-quashing-appointment-of-17-personal-assistants-to-judges-541043
+
+[Read on Telegram](https://t.me/livelawindia/114548)
+
+---
+### 2026-07-13T14:39:16+00:00
+Supreme Court Appoints Justice L Nageswara Rao To Mediate Dispute Between Industrialist Babasaheb Kalyani, Sister Sugandha Hiremath
+https://www.livelaw.in/top-stories/supreme-court-appoints-justice-l-nageswara-rao-as-mediator-for-babasaheb-kalyani-sugandha-hiremath-family-dispute-541044
+
+[Read on Telegram](https://t.me/livelawindia/114549)
 
 ---
