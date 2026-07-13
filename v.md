@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-13T09:32:46+00:00*
+*Last Updated: 2026-07-13T15:02:34+00:00*
+
+---
+
+### 2026-07-13T15:02:34+00:00
+Sikkim High Court Urges Scientific Review Of Child Mental Health Schemes; Flags Prison Rehabilitation Failure As Convict Commits "More Heinous" Second Crime
+https://www.verdictum.in/sikkim-high-court/chewang-sherpa-v-state-of-sikkim-crl-a-no-19-of-2023-scientific-review-of-child-mental-health-schemes-1617670
+
+[Source Link](https://t.me/verdictumlegalupdates/27941)
+
+---
+
+### 2026-07-13T14:33:16+00:00
+Use Of Fake FMGE Certificates To Obtain Internship Cannot Be Taken Lightly: Rajasthan High Court Denies Bail To Foreign Medical Graduates
+https://www.verdictum.in/rajasthan-high-court/shubham-gurjar-v-state-of-rajasthan-2026rj-jp23597-fake-fmge-certificates-foreign-medical-graduates-mbbs-1617669
+
+[Source Link](https://t.me/verdictumlegalupdates/27940)
+
+---
+
+### 2026-07-13T14:03:00+00:00
+Prayer For Electoral Success Is Not Appeal For Votes On Ground Of Religion: Bombay High Court Upholds Election Of AIMIM MLA
+https://www.verdictum.in/bombay-high-court/mufti-mohammad-ismail-abdul-khalique-v-shaikh-asif-shaikh-rashid-asif-shaikh-rasheed-2026bhc-os12567-prayer-for-electoral-success-mla-1617667
+
+[Source Link](https://t.me/verdictumlegalupdates/27939)
+
+---
+
+### 2026-07-13T13:32:35+00:00
+Extraordinary Situations Demand Extraordinary Decisions: Kerala HC Allows BJP Councillor Under Preventive Detention To Take Oath Inside Prison
+https://www.verdictum.in/kerala-high-court/sugathan-r-v-state-of-kerala-2026ker51348-councillor-under-kaapa-detention-to-take-oath-inside-prison-1617666
+
+[Source Link](https://t.me/verdictumlegalupdates/27938)
+
+---
+
+### 2026-07-13T13:03:14+00:00
+Supreme Court Directs Madhya Pradesh DGP To Form Independent SIT To Probe Congress Candidate’s Driver’s Murder Case
+https://www.verdictum.in/supreme-court/directs-madhya-pradesh-dgp-form-sit-congress-candidate-driver-murder-1617665
+
+[Source Link](https://t.me/verdictumlegalupdates/27937)
+
+---
+
+### 2026-07-13T12:32:53+00:00
+Reluctant To Interfere In Sports: Supreme Court Dismisses Pleas Against Equestrian Selection For Asian Games
+https://www.verdictum.in/supreme-court/dismisses-pleas-against-equestrian-selection-for-asian-games-1617663
+
+[Source Link](https://t.me/verdictumlegalupdates/27936)
+
+---
+
+### 2026-07-13T12:03:12+00:00
+Supreme Court Refuses To Stay SAT Order In Bombay Dyeing Case, Says Split Verdict Won't Act As Precedent
+https://www.verdictum.in/supreme-court/bombay-dyeing-case-split-verdict-wont-act-as-precedent-1617657
+
+[Source Link](https://t.me/verdictumlegalupdates/27935)
+
+---
+
+### 2026-07-13T11:32:50+00:00
+Religious Practices Cannot Pollute Rivers Or Harm Ecology: Madras High Court On Tamirabarani River Pollution
+https://www.verdictum.in/madras-high-court/sivanupandian-v-district-collector-wpmd-no-18560-of-2026-religious-practices-cannot-pollute-rivers-tamirabarani-1617642
+
+[Source Link](https://t.me/verdictumlegalupdates/27934)
+
+---
+
+### 2026-07-13T11:02:49+00:00
+Supreme Court Directs Centre To Submit New Aviation Rules Within Two Weeks Amid Airfare Surge Plea
+https://www.verdictum.in/supreme-court/centre-to-submit-new-aviation-rules-within-two-weeks-amid-airfare-surge-plea-1617660
+
+[Source Link](https://t.me/verdictumlegalupdates/27933)
+
+---
+
+### 2026-07-13T10:31:28+00:00
+Supreme Court Refuses To Entertain PIL Seeking Ban On Viewing Pornography In Public Places
+https://www.verdictum.in/supreme-court/refuses-to-entertain-pil-seeking-ban-on-viewing-pornography-in-public-places-1617656
+
+[Source Link](https://t.me/verdictumlegalupdates/27932)
+
+---
+
+### 2026-07-13T10:02:27+00:00
+Weekly Overview| Supreme Court Judgments: July 06 – July 10, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-july-06-july-10-2026-1617655
+
+[Source Link](https://t.me/verdictumlegalupdates/27931)
 
 ---
 
@@ -73,94 +161,6 @@ NHM Contractual Dental Surgeons Are "In the Service of Government"; Eligible for
 https://www.verdictum.in/bombay-high-court/maharashtra-public-service-commission-v-dr-jagdish-anandrao-bhalerao-wp-1208-2025-contractual-dental-surgeons-mpsc-recruitment-rules-1617568
 
 [Source Link](https://t.me/verdictumlegalupdates/27922)
-
----
-
-### 2026-07-12T09:32:52+00:00
-Recording Calls Without Consent Of Spouse Constitutes Breach Of Right To Privacy Guaranteed Under Article 21: Telangana High Court
-https://www.verdictum.in/telangana-high-court/recording-calls-without-consent-spouse-breach-privacy-article-21-1617565
-
-[Source Link](https://t.me/verdictumlegalupdates/27921)
-
----
-
-### 2026-07-12T07:33:01+00:00
-Major Woman Free To Live With Person Of Her Choice; Can't Be Compelled To Reside With Mother: Madhya Pradesh High Court In Habeas Corpus Plea
-https://www.verdictum.in/madhya-pradesh-high-court/urmila-jharia-v-the-state-of-madhya-pradesh-and-others-2026mphc-jbp48504-1617560
-
-[Source Link](https://t.me/verdictumlegalupdates/27920)
-
----
-
-### 2026-07-12T06:02:20+00:00
-Gram Panchayat's Consent Not Required To Divert Gairan Land For PMAY; State Has Near-Absolute Power U/S 40 Maharashtra Land Revenue Code: Bombay High Court
-https://www.verdictum.in/bombay-high-court/gram-panchayat-nere-v-state-of-maharashtra-writ-petition-no972-of-2026-sarpanch-gram-panchayat-pmay-1617562
-
-[Source Link](https://t.me/verdictumlegalupdates/27919)
-
----
-
-### 2026-07-12T04:33:09+00:00
-"What Could Not Legally Be Owned Appears To Be Bartered Within The Family": Karnataka High Court Refuses To Quash Land-Grab Case Against Ex-MLA
-https://www.verdictum.in/karnataka-high-court/bh-narayanappa-v-state-of-karnataka-wp-no24242-of-2017-land-grab-case-against-ex-mla-hullu-banni-kharab-1617557
-
-[Source Link](https://t.me/verdictumlegalupdates/27918)
-
----
-
-### 2026-07-11T15:32:39+00:00
-Karnataka High Court Allows Senior Citizen To Record Probate Evidence From Residence In USA
-https://www.verdictum.in/karnataka-high-court/rekha-gupta-v-nil-2026khc33394-video-conferencing-rules-overseas-evidence-indian-embassy-1617559
-
-[Source Link](https://t.me/verdictumlegalupdates/27917)
-
----
-
-### 2026-07-11T14:52:38+00:00
-Disputed Questions On Enforceable Debt & Endorsements Post Part-Payments Cannot Be Conclusively Adjudicated At Revisional Stage: Delhi High Court
-https://www.verdictum.in/delhi-high-court/ms-pharmaceuticals-v-nityam-pharma-2026dhc5511-disputed-questions-enforceable-debt-endorsements-us-56-negotiable-instrument-act-1617558
-
-[Source Link](https://t.me/verdictumlegalupdates/27916)
-
----
-
-### 2026-07-11T14:02:17+00:00
-Delhi High Court Notes Rising Trend Of False Rape & Molestation Charges In Matrimonial Disputes To Coerce Hefty Settlements
-https://www.verdictum.in/delhi-high-court/notes-rising-trend-false-rape-molestation-charges-matrimonial-disputes-coerce-hefty-settlements-1617561
-
-[Source Link](https://t.me/verdictumlegalupdates/27915)
-
----
-
-### 2026-07-11T13:12:35+00:00
-False Promise of Marriage Inducing Sexual Intercourse Can Constitute Tortious Conduct; Criminal Acquittal No Bar to Civil Damages: Madras High Court
-https://www.verdictum.in/madras-high-court/v-v-r-sa-no-340-of-2013-tortious-liability-for-inducing-sexual-intercourse-1617553
-
-[Source Link](https://t.me/verdictumlegalupdates/27914)
-
----
-
-### 2026-07-11T12:33:14+00:00
-Candidates With Multiple Sclerosis Eligible For Reservation Under RPWD Act If Benchmark Disability Threshold Met: Delhi High Court
-https://www.verdictum.in/delhi-high-court/union-of-india-v-preeti-vaid-and-anr-2026dhc5491-db-rpwd-act-multiple-sclerosis-1617552
-
-[Source Link](https://t.me/verdictumlegalupdates/27913)
-
----
-
-### 2026-07-11T11:52:33+00:00
-Offence Involves Moral Turpitude: Delhi High Court Refuses To Stay Congress Leader Rajendra Bharti’s Conviction In Co-Operative Bank Fraud Case
-https://www.verdictum.in/delhi-high-court/2026-dhc-5546-rajendra-bharti-v-state-of-nct-of-delhi-1617551
-
-[Source Link](https://t.me/verdictumlegalupdates/27912)
-
----
-
-### 2026-07-11T11:02:12+00:00
-Delhi High Court Quashes National Sports Federation Status Of "Yogasana Bharat" Over National Sports Code Violations
-https://www.verdictum.in/delhi-high-court/yoga-federation-of-india-v-union-of-india-2026dhc-5515-1617550
-
-[Source Link](https://t.me/verdictumlegalupdates/27911)
 
 ---
 
