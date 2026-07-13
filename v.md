@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-12T13:32:55+00:00*
+*Last Updated: 2026-07-13T09:32:46+00:00*
+
+---
+
+### 2026-07-13T09:32:46+00:00
+Supreme Court Freezes Parsvnath Developers Bank Accounts, Issues Bailable Warrants Against Directors Over 20-Year Homebuyer Delay
+https://www.verdictum.in/supreme-court/freezes-parsvnath-developers-bank-accounts-issues-bailable-warrants-1617652
+
+[Source Link](https://t.me/verdictumlegalupdates/27930)
+
+---
+
+### 2026-07-13T09:03:05+00:00
+Ayodhya Ram Mandir Donation Row: Supreme Court Directs SIT To File Status Report, Issues Notice To Ram Temple Trust
+https://www.verdictum.in/supreme-court/directs-sit-to-file-status-report-notice-ram-temple-trust-donation-row-1617649
+
+[Source Link](https://t.me/verdictumlegalupdates/27929)
+
+---
+
+### 2026-07-13T08:32:43+00:00
+Supreme Court Stays Madras HC Order Banning Cow & Calf Slaughter In Tamil Nadu
+https://www.verdictum.in/supreme-court/madras-hc-order-banning-cow-calf-slaughter-in-tamil-nadu-stayed-1617648
+
+[Source Link](https://t.me/verdictumlegalupdates/27928)
+
+---
+
+### 2026-07-13T08:02:22+00:00
+Supreme Court Agrees To Hear Plea Assailing HC Order Holding Bhojshala Complex As Goddess Saraswati Temple
+https://www.verdictum.in/supreme-court/bhojshala-complex-as-goddess-saraswati-temple-1617646
+
+[Source Link](https://t.me/verdictumlegalupdates/27927)
+
+---
+
+### 2026-07-13T07:03:01+00:00
+Motherhood Cannot Be Penalized: J&K&L High Court Quashes Order Denying Maternity Leave Pay To Senior Residents, Tutors
+https://www.verdictum.in/jammu-ladakh-high-court/dr-sonakshi-gupta-v-ut-of-jk-2026jklhc-jmu2020-maternity-leave-senior-residents-1617632
+
+[Source Link](https://t.me/verdictumlegalupdates/27926)
+
+---
+
+### 2026-07-13T05:24:20+00:00
+Assessment Committee Not Bound To Average APR/PMS Marks With "Work Report" Score To Determine Promotion Eligibility: Supreme Court
+https://www.verdictum.in/supreme-court/the-director-general-council-of-scientific-and-industrial-research-v-anil-earnest-2026-insc-677-assessment-committee-average-aprpms-1617628
+
+[Source Link](https://t.me/verdictumlegalupdates/27925)
+
+---
+
+### 2026-07-13T04:32:49+00:00
+Attempting To Remove Salwar & Physical Molestation Amounts To Outraging Of Modesty Of A Woman And Not  Attempt To Rape: Patna High Court
+https://www.verdictum.in/patna-high-court/unclothening-molestation-outraging-modesty-and-not-rape-1617570
+
+[Source Link](https://t.me/verdictumlegalupdates/27924)
 
 ---
 
@@ -105,62 +161,6 @@ Delhi High Court Quashes National Sports Federation Status Of "Yogasana Bharat" 
 https://www.verdictum.in/delhi-high-court/yoga-federation-of-india-v-union-of-india-2026dhc-5515-1617550
 
 [Source Link](https://t.me/verdictumlegalupdates/27911)
-
----
-
-### 2026-07-11T10:13:31+00:00
-Madhya Pradesh High Court Asks State For Response On Providing Official Accommodation To District Judges
-https://www.verdictum.in/madhya-pradesh-high-court/madhya-pradesh-high-court-asks-state-for-response-on-providing-official-accommodation-to-district-judges-1617548
-
-[Source Link](https://t.me/verdictumlegalupdates/27910)
-
----
-
-### 2026-07-11T09:42:49+00:00
-Contributory Negligence Cannot Be Inferred Solely Because Three People Were Travelling On Two-Wheeler: Chhattisgarh High Court Reiterates
-https://www.verdictum.in/chhattisgarh-high-court/fhulmati-v-nikhil-yadav-2026chc26530-contributory-negligence-tripling-on-a-two-wheeler-1617544
-
-[Source Link](https://t.me/verdictumlegalupdates/27909)
-
----
-
-### 2026-07-11T08:52:28+00:00
-Allahabad High Court Questions Appointment Of Panchayat Administrators Post Expiry Of Five-Year Term, Seeks State’s Response
-https://www.verdictum.in/allahabad-high-court/questions-appointment-panchayat-administrators-post-expiry-five-year-term-1617543
-
-[Source Link](https://t.me/verdictumlegalupdates/27908)
-
----
-
-### 2026-07-11T08:02:47+00:00
-Punjab & Haryana High Court Directs Time-Bound Decision On Beant Singh Assassination Convict's Parole Plea
-https://www.verdictum.in/punjab-and-haryana-high-court/jagtar-singh-hawara-v-union-territory-chandigarh-administration-2026phhc090833-db-chandigarh-ut-parole-beant-singh-assassination-1617540
-
-[Source Link](https://t.me/verdictumlegalupdates/27907)
-
----
-
-### 2026-07-11T07:23:06+00:00
-Forum Of Appeal Is Procedural Law: Karnataka High Court Upholds Separate Appellate Classification For Bengaluru City Civil Courts
-https://www.verdictum.in/karnataka-high-court/upholds-separate-appellate-classification-bengaluru-city-civil-courts-article-14-1617536
-
-[Source Link](https://t.me/verdictumlegalupdates/27906)
-
----
-
-### 2026-07-11T06:42:25+00:00
-Bombay Public Trust Act Does Not Bar Archaks From Becoming Temple Trustees: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/mallari-v-laxman-raju-poojari-ors-2026khc-d8167-sri-yallamma-devi-temple-1617532
-
-[Source Link](https://t.me/verdictumlegalupdates/27905)
-
----
-
-### 2026-07-11T06:02:23+00:00
-Sitting Silent For 20 Years Reflects Abandonment Of Agreement To Sell, Disentitles Plaintiff To Specific Performance: Delhi High Court
-https://www.verdictum.in/delhi-high-court/rattan-singh-v-akhtar-islam-2026dhc5495-agreement-to-sell-disentitles-plaintiff-to-specific-performance-1617524
-
-[Source Link](https://t.me/verdictumlegalupdates/27904)
 
 ---
 
