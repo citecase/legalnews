@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-13T12:28:33+00:00*
+*Last Updated: 2026-07-13T13:49:45+00:00*
 
 ---
 
-### 2026-07-13T12:28:33+00:00
-Supreme Court Upholds Rule Allowing Inclusion Of Royalty In Iron Ore's Average Sale Price To Determine Royalty
-https://www.livelaw.in/supreme-court/supreme-court-upholds-rule-allowing-inclusion-of-royalty-in-iron-ores-average-sale-price-to-determine-royalty-541004
-
-[Read on Telegram](https://t.me/livelawindia/114530)
-
----
-### 2026-07-13T12:29:33+00:00
-2026 LiveLaw (SC) 664 | Kirloskar Ferrous Industries Ltd. and Anr. Versus Union of India & Anr
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-664-kirloskar-ferrous-industries-ltd-and-anr-versus-union-of-india-anr-541005
-
-[Read on Telegram](https://t.me/livelawindia/114531)
-
----
-### 2026-07-13T12:33:54+00:00
-Courts Cannot Presume Bride Entrusts Gold To Husband Or In-Laws Based On Social Customs Alone: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-matrimonial-cases-proof-entrustment-practice-gold-cash-541006
-
-[Read on Telegram](https://t.me/livelawindia/114532)
-
----
-### 2026-07-13T12:39:14+00:00
-Delhi Riots: Court Convicts Tahir Hussain, Others In IB Staffer Ankit Sharma Murder Case
-https://www.livelaw.in/news-updates/delhi-riots-court-convicts-tahir-hussain-others-in-ib-staffer-ankit-sharma-murder-case-541007
-
-[Read on Telegram](https://t.me/livelawindia/114533)
-
----
-### 2026-07-13T12:47:34+00:00
-Long Continuous Consensual Relationship Not 'Rape': Allahabad High Court Discharges Man, Notes Financial Dispute Between Parties
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-long-continuous-consensual-relationship-not-rape-discharges-man-notes-financial-dispute-541009
-
-[Read on Telegram](https://t.me/livelawindia/114534)
-
----
-### 2026-07-13T12:47:44+00:00
-J&K&L High Court Closes PIL As Ladakh Administration Establishes Recruitment Framework For Gazetted Posts
-https://www.livelaw.in/high-court/jammu-kashmir/jkl-high-court-closes-pil-as-ladakh-administration-establishes-recruitment-framework-for-gazetted-posts-540998
-
-[Read on Telegram](https://t.me/livelawindia/114535)
-
----
-### 2026-07-13T12:49:54+00:00
-Pre-2016 DRT Recovery Certificates Cannot Form Basis For Insolvency Notice Under Presidency Towns Insolvency Act: Supreme Court
-https://www.livelaw.in/supreme-court/pre-2016-drt-recovery-certificates-cannot-form-basis-for-insolvency-notice-under-presidency-towns-insolvency-act-supreme-court-541010
-
-[Read on Telegram](https://t.me/livelawindia/114536)
-
----
-### 2026-07-13T12:51:14+00:00
-2026 LiveLaw (SC) 665 | H.D.F.C. BANK LIMITED VERSUS KISHORE K. MEHTA (DEAD) THR. LRS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-665-hdfc-bank-limited-versus-kishore-k-mehta-dead-thr-lrs-541011
-
-[Read on Telegram](https://t.me/livelawindia/114537)
-
----
-### 2026-07-13T12:59:54+00:00
-"Which Advocate Discloses True Income?" Supreme Court Questions Scrutiny Of Lawyer's Earnings In Civil Judge Recruitment Case
-https://www.livelaw.in/top-stories/which-advocate-discloses-true-income-supreme-court-questions-scrutiny-of-lawyers-earnings-in-civil-judge-recruitment-case-541013
-
-[Read on Telegram](https://t.me/livelawindia/114538)
-
----
-### 2026-07-13T13:19:35+00:00
-Empanelment Of Legal Counsels At Sports Authority Of India [Apply Now]
-https://www.livelaw.in/job-updates/empanelment-of-legal-counsels-at-sports-authority-of-india-541016
-
-[Read on Telegram](https://t.me/livelawindia/114539)
-
----
-### 2026-07-13T13:32:35+00:00
-Kerala High Court's Obsession With Removing Lines And Shades From Court Documents
-https://www.livelaw.in/articles/kerala-high-court-obsession-removing-lines-shades-court-documents-540967
-
-[Read on Telegram](https://t.me/livelawindia/114540)
-
----
-### 2026-07-13T13:33:05+00:00
-Delhi High Court Bar Association To Abstain From Work Against Proposal To Raise District Courts' Pecuniary Jurisdiction
-https://www.livelaw.in/news-updates/delhi-high-court-bar-association-to-abstain-from-work-against-proposal-to-raise-district-courts-pecuniary-jurisdiction-541018
-
-[Read on Telegram](https://t.me/livelawindia/114541)
-
----
-### 2026-07-13T13:40:45+00:00
-LiveLaw Daily| Ram Mandir Donation Row| Cow Slaughter Ban | Ambani Group Loan Fraud Case & More
-https://www.livelaw.in/videos/ram-mandir-cow-slaughter-ambani-group-loan-fraud-kerala-student-ipc-indian-penal-code-bns-bharatiya-nyaya-sanhita-supreme-court-news-students-livelawdaily-india-541020
-
-[Read on Telegram](https://t.me/livelawindia/114542)
-
----
 ### 2026-07-13T13:49:45+00:00
 S. 19 JJ Act | Children's Court Must Pass Reasoned Order Before Trying Child As Adult: Supreme Court
 https://www.livelaw.in/supreme-court/s-19-jj-act-childrens-court-must-pass-reasoned-order-before-trying-child-as-adult-supreme-court-541024
@@ -142,5 +51,96 @@ Supreme Court Appoints Justice L Nageswara Rao To Mediate Dispute Between Indust
 https://www.livelaw.in/top-stories/supreme-court-appoints-justice-l-nageswara-rao-as-mediator-for-babasaheb-kalyani-sugandha-hiremath-family-dispute-541044
 
 [Read on Telegram](https://t.me/livelawindia/114549)
+
+---
+### 2026-07-13T14:45:36+00:00
+Research Associate Vacancy At National Law School Of India University
+https://www.livelaw.in/job-updates/research-associate-vacancy-at-national-law-school-of-india-university-541047
+
+[Read on Telegram](https://t.me/livelawindia/114550)
+
+---
+### 2026-07-13T15:17:27+00:00
+MP High Court Grants Interim Protection To Viral Kumbh Mela Star & Husband In FIR Alleging Juvenile Marriage
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-monalisa-bhosle-farman-khan-grants-interim-relief-from-coercive-action-over-forged-birth-certificate-plea-541048
+
+[Read on Telegram](https://t.me/livelawindia/114551)
+
+---
+### 2026-07-13T15:18:07+00:00
+Himachal Pradesh High Court Designates 15 Lawyers As Senior Advocates
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-appoints-senior-advocates-541049
+
+[Read on Telegram](https://t.me/livelawindia/114552)
+
+---
+### 2026-07-13T15:25:07+00:00
+2026 LiveLaw (SC) 667 | NAJMA KHATUN AND ORS.v THE STATE OF WEST BENGAL AND ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-667-najma-khatun-and-orsv-the-state-of-west-bengal-and-ors-541050
+
+[Read on Telegram](https://t.me/livelawindia/114553)
+
+---
+### 2026-07-13T15:48:47+00:00
+Supreme Court Criticises CRPF For Removing Driver Who Developed Disability, Awards Him Rs 1.25 Crore
+https://www.livelaw.in/supreme-court/supreme-court-criticises-crpf-for-removing-driver-who-developed-disability-awards-him-rs-125-crore-541052
+
+[Read on Telegram](https://t.me/livelawindia/114554)
+
+---
+### 2026-07-13T15:50:27+00:00
+2026 LiveLaw (SC) 668 | UNION OF INDIA & ORS. v. BALI RAM NO.850808321
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-668-union-of-india-ors-v-bali-ram-no850808321-541053
+
+[Read on Telegram](https://t.me/livelawindia/114555)
+
+---
+### 2026-07-13T15:53:27+00:00
+Children Have Fundamental Right To Play: Karnataka High Court Directs Apartment Association To Reconsider Ban On Football In Play Area
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-holds-apartment-owners-right-to-safe-common-areas-541055
+
+[Read on Telegram](https://t.me/livelawindia/114556)
+
+---
+### 2026-07-13T16:04:17+00:00
+Right To Be Forgotten: Bombay High Court Directs Masking Of Litigant's Name In Online Court Records After Quashing Of FIR
+https://www.livelaw.in/high-court/bombay-high-court/right-to-be-forgotten-mask-litigant-name-online-court-records-fir-quashed-541056
+
+[Read on Telegram](https://t.me/livelawindia/114557)
+
+---
+### 2026-07-13T16:04:27+00:00
+Police Entering Woman's Bedroom Without Lady Constable Violates Privacy : Bombay High Court Declares Mobile Seizure Illegal
+https://www.livelaw.in/high-court/bombay-high-court/police-entering-womans-bedroom-without-lady-constable-violates-privacy-bombay-high-court-declares-mobile-seizure-illegal-541057
+
+[Read on Telegram](https://t.me/livelawindia/114558)
+
+---
+### 2026-07-13T16:13:37+00:00
+Custom Permits Issueless Jat To Bequeath Ancestral Property To Person Who Rendered Him Services: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/custom-permits-sonless-jat-will-ancestral-property-person-who-rendered-services-541059
+
+[Read on Telegram](https://t.me/livelawindia/114559)
+
+---
+### 2026-07-13T16:55:47+00:00
+Presence Of Accused's Semen On Victim's Clothes Insufficient To Sustain Rape Conviction Absent Proof Of Penetration: Sikkim High Court
+https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-alters-rape-conviction-to-attempt-to-rape-semen-but-no-penetration-evidence-541060
+
+[Read on Telegram](https://t.me/livelawindia/114560)
+
+---
+### 2026-07-13T17:09:27+00:00
+2017 Dera Violence: P&H High Court Upholds Acquittal Of Ram Rahim Followers, Says Prosecution Failed To Prove Sedition, Arson & Vandalism
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/ram-rahim-2017-dera-violence-acquittal-prosecution-failed-sedition-arson-vandalism-charges-541061
+
+[Read on Telegram](https://t.me/livelawindia/114561)
+
+---
+### 2026-07-13T17:18:07+00:00
+Supreme Court Daily Round-Up : July 13, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-july-13-2026-541058
+
+[Read on Telegram](https://t.me/livelawindia/114562)
 
 ---
