@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-14T14:02:54+00:00*
+*Last Updated: 2026-07-14T16:02:59+00:00*
+
+---
+
+### 2026-07-14T16:02:59+00:00
+Engineering Projects India Limited (EPI) Invites Applications For The Post Of Manager (Legal)
+https://www.verdictum.in/job-updates/engineering-projects-india-limited-1617735
+
+[Source Link](https://t.me/verdictumlegalupdates/27965)
+
+---
+
+### 2026-07-14T15:32:58+00:00
+Police Opinion In Final Report Not Binding On Cognizance; Court Alone Decides Whether Trial Should Be Joint Or Separate: Supreme Court
+https://www.verdictum.in/supreme-court/brajesh-kumar-birjesh-kumar-singh-v-the-state-of-bihar-2026-insc-695-1617744
+
+[Source Link](https://t.me/verdictumlegalupdates/27964)
+
+---
+
+### 2026-07-14T15:02:17+00:00
+Tribunal Is Not Merely A Forwarding Authority But The Primary Adjudicatory Forum: Supreme Court Sets Aside "Mechanical" Foreigner Declarations
+https://www.verdictum.in/supreme-court/sabitri-dey-swasthi-dey-v-union-of-india-2026-insc-694-tribunal-is-not-merely-a-forwarding-authority-1617739
+
+[Source Link](https://t.me/verdictumlegalupdates/27963)
+
+---
+
+### 2026-07-14T14:33:15+00:00
+Can’t Deny Refund Of Premium For Unutilized Additional FSI In Case Of Residential Construction: Supreme Court While Granting Relief To Landowners
+https://www.verdictum.in/supreme-court/prasad-pandurang-tapkir-v-the-assistant-director-of-town-planning-2026-insc-683-premium-fsi-1617738
+
+[Source Link](https://t.me/verdictumlegalupdates/27962)
 
 ---
 
@@ -129,38 +161,6 @@ Right To Privacy Incorporates Right To Be Forgotten; No Public Interest Served B
 https://www.verdictum.in/bombay-high-court/abc-v-state-of-maharashtra-2026bhc-nag8407-db-right-to-privacy-right-to-be-forgotten-1617705
 
 [Source Link](https://t.me/verdictumlegalupdates/27946)
-
----
-
-### 2026-07-14T05:43:03+00:00
-Supreme Court Orders Immediate Police Protection To Advocate Who Was Beaten At His Residence
-https://www.verdictum.in/supreme-court/brutal-assault-senior-bar-member-orders-immediate-police-protection-1617708
-
-[Source Link](https://t.me/verdictumlegalupdates/27945)
-
----
-
-### 2026-07-14T05:12:21+00:00
-Delhi High Court Upholds DHJS 2026 Notification, Says No Separate Examination Was Required In 2025; Refuses Age Relaxation To Overaged Aspirant
-https://www.verdictum.in/delhi-high-court/ajay-kumar-sharma-v-high-court-of-delhi-through-registrar-general-2026dhc5530-db-dhjs-2026-notification-overaged-aspirant-1617698
-
-[Source Link](https://t.me/verdictumlegalupdates/27944)
-
----
-
-### 2026-07-14T04:33:10+00:00
-Profit Or Loss To Investors Is Immaterial In Case Of Regulatory Infraction: Supreme Court Affirms SEBI Penalties On Kotak AMC Over Unauthorized Extension Of Scheme Maturity
-https://www.verdictum.in/supreme-court/2026-insc-681-mr-nilesh-shah-v-sebi-1617679
-
-[Source Link](https://t.me/verdictumlegalupdates/27943)
-
----
-
-### 2026-07-13T16:02:30+00:00
-Special Public Prosecutor Vacancy At CBI
-https://www.verdictum.in/job-updates/central-bureau-of-investigation-1617671
-
-[Source Link](https://t.me/verdictumlegalupdates/27942)
 
 ---
 
