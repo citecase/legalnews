@@ -1,166 +1,166 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-13T15:02:34+00:00*
+*Last Updated: 2026-07-14T14:02:54+00:00*
 
 ---
 
-### 2026-07-13T15:02:34+00:00
-Sikkim High Court Urges Scientific Review Of Child Mental Health Schemes; Flags Prison Rehabilitation Failure As Convict Commits "More Heinous" Second Crime
-https://www.verdictum.in/sikkim-high-court/chewang-sherpa-v-state-of-sikkim-crl-a-no-19-of-2023-scientific-review-of-child-mental-health-schemes-1617670
+### 2026-07-14T14:02:54+00:00
+Plaintiff Must File Written Statement To Counter-Claim In Commercial Suit Within 120 Days: Supreme Court
+https://www.verdictum.in/supreme-court/ak-ghosh-company-and-others-v-biman-bose-and-others-2026-insc-684-1617737
 
-[Source Link](https://t.me/verdictumlegalupdates/27941)
-
----
-
-### 2026-07-13T14:33:16+00:00
-Use Of Fake FMGE Certificates To Obtain Internship Cannot Be Taken Lightly: Rajasthan High Court Denies Bail To Foreign Medical Graduates
-https://www.verdictum.in/rajasthan-high-court/shubham-gurjar-v-state-of-rajasthan-2026rj-jp23597-fake-fmge-certificates-foreign-medical-graduates-mbbs-1617669
-
-[Source Link](https://t.me/verdictumlegalupdates/27940)
+[Source Link](https://t.me/verdictumlegalupdates/27961)
 
 ---
 
-### 2026-07-13T14:03:00+00:00
-Prayer For Electoral Success Is Not Appeal For Votes On Ground Of Religion: Bombay High Court Upholds Election Of AIMIM MLA
-https://www.verdictum.in/bombay-high-court/mufti-mohammad-ismail-abdul-khalique-v-shaikh-asif-shaikh-rashid-asif-shaikh-rasheed-2026bhc-os12567-prayer-for-electoral-success-mla-1617667
+### 2026-07-14T13:33:13+00:00
+Appointments “Are A Blot” On The System: Supreme Court Dismisses West Bengal Madrasah Staff Pleas, Terms Post-March 2016 Recruitments Without Judicial Leave Ex Facie Illegal
+https://www.verdictum.in/supreme-court/najma-khatun-v-the-state-of-west-bengal-2026-insc-691-appointments-are-a-blot-judicial-leave-ex-facie-illegal-1617736
 
-[Source Link](https://t.me/verdictumlegalupdates/27939)
-
----
-
-### 2026-07-13T13:32:35+00:00
-Extraordinary Situations Demand Extraordinary Decisions: Kerala HC Allows BJP Councillor Under Preventive Detention To Take Oath Inside Prison
-https://www.verdictum.in/kerala-high-court/sugathan-r-v-state-of-kerala-2026ker51348-councillor-under-kaapa-detention-to-take-oath-inside-prison-1617666
-
-[Source Link](https://t.me/verdictumlegalupdates/27938)
+[Source Link](https://t.me/verdictumlegalupdates/27960)
 
 ---
 
-### 2026-07-13T13:03:14+00:00
-Supreme Court Directs Madhya Pradesh DGP To Form Independent SIT To Probe Congress Candidate’s Driver’s Murder Case
-https://www.verdictum.in/supreme-court/directs-madhya-pradesh-dgp-form-sit-congress-candidate-driver-murder-1617665
+### 2026-07-14T13:02:31+00:00
+Mere Telephone Records Do Not Prove Illicit Affair Or Motive For Murder: Supreme Court Upholds Acquittal Of Wife, Alleged Lover In 2007 ICICI Employee Murder Case
+https://www.verdictum.in/supreme-court/state-of-maharashtra-v-monika-kiran-suryawanshi-2026-insc-685-2007-icici-employee-murder-case-illicit-affair-or-motive-for-murder-1617734
 
-[Source Link](https://t.me/verdictumlegalupdates/27937)
-
----
-
-### 2026-07-13T12:32:53+00:00
-Reluctant To Interfere In Sports: Supreme Court Dismisses Pleas Against Equestrian Selection For Asian Games
-https://www.verdictum.in/supreme-court/dismisses-pleas-against-equestrian-selection-for-asian-games-1617663
-
-[Source Link](https://t.me/verdictumlegalupdates/27936)
+[Source Link](https://t.me/verdictumlegalupdates/27959)
 
 ---
 
-### 2026-07-13T12:03:12+00:00
-Supreme Court Refuses To Stay SAT Order In Bombay Dyeing Case, Says Split Verdict Won't Act As Precedent
-https://www.verdictum.in/supreme-court/bombay-dyeing-case-split-verdict-wont-act-as-precedent-1617657
+### 2026-07-14T12:32:29+00:00
+Nomenclature "Native Indian Language" May Require Relook: Supreme Court Issues Notice On Fresh Pleas Challenging CBSE's Mandatory Language Policy
+https://www.verdictum.in/supreme-court/issues-notice-fresh-pleas-challenging-cbse-mandatory-language-policy-1617733
 
-[Source Link](https://t.me/verdictumlegalupdates/27935)
-
----
-
-### 2026-07-13T11:32:50+00:00
-Religious Practices Cannot Pollute Rivers Or Harm Ecology: Madras High Court On Tamirabarani River Pollution
-https://www.verdictum.in/madras-high-court/sivanupandian-v-district-collector-wpmd-no-18560-of-2026-religious-practices-cannot-pollute-rivers-tamirabarani-1617642
-
-[Source Link](https://t.me/verdictumlegalupdates/27934)
+[Source Link](https://t.me/verdictumlegalupdates/27958)
 
 ---
 
-### 2026-07-13T11:02:49+00:00
-Supreme Court Directs Centre To Submit New Aviation Rules Within Two Weeks Amid Airfare Surge Plea
-https://www.verdictum.in/supreme-court/centre-to-submit-new-aviation-rules-within-two-weeks-amid-airfare-surge-plea-1617660
+### 2026-07-14T12:02:48+00:00
+Recovery Certificate Issued Before 2016 Amendment Of RDB Act Can't Be Basis For Initiating Insolvency Proceedings Under Presidency Towns Insolvency Act: Supreme Court
+https://www.verdictum.in/supreme-court/hdfc-bank-limited-v-kishore-k-mehta-dead-thr-lrs-2026-insc-688-recovery-certificate-rdb-act-1617731
 
-[Source Link](https://t.me/verdictumlegalupdates/27933)
-
----
-
-### 2026-07-13T10:31:28+00:00
-Supreme Court Refuses To Entertain PIL Seeking Ban On Viewing Pornography In Public Places
-https://www.verdictum.in/supreme-court/refuses-to-entertain-pil-seeking-ban-on-viewing-pornography-in-public-places-1617656
-
-[Source Link](https://t.me/verdictumlegalupdates/27932)
+[Source Link](https://t.me/verdictumlegalupdates/27957)
 
 ---
 
-### 2026-07-13T10:02:27+00:00
-Weekly Overview| Supreme Court Judgments: July 06 – July 10, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-july-06-july-10-2026-1617655
+### 2026-07-14T11:16:26+00:00
+He Has Taken Court For A Ride: Supreme Court Imposes ₹3 Lakhs Costs On Comedian Samay Raina For Violation Of Judicial Undertaking
+https://www.verdictum.in/supreme-court/imposes-costs-3-lakhs-comedian-samay-raina-violation-judicial-undertaking-1617728
 
-[Source Link](https://t.me/verdictumlegalupdates/27931)
-
----
-
-### 2026-07-13T09:32:46+00:00
-Supreme Court Freezes Parsvnath Developers Bank Accounts, Issues Bailable Warrants Against Directors Over 20-Year Homebuyer Delay
-https://www.verdictum.in/supreme-court/freezes-parsvnath-developers-bank-accounts-issues-bailable-warrants-1617652
-
-[Source Link](https://t.me/verdictumlegalupdates/27930)
+[Source Link](https://t.me/verdictumlegalupdates/27956)
 
 ---
 
-### 2026-07-13T09:03:05+00:00
-Ayodhya Ram Mandir Donation Row: Supreme Court Directs SIT To File Status Report, Issues Notice To Ram Temple Trust
-https://www.verdictum.in/supreme-court/directs-sit-to-file-status-report-notice-ram-temple-trust-donation-row-1617649
+### 2026-07-14T11:02:35+00:00
+Later Exemption Notifications Cannot Retrospectively Validate Void Ouster Orders: Supreme Court Dismisses Appeal, Grants ₹1.25 Crore To CRPF Constable
+https://www.verdictum.in/supreme-court/union-of-india-v-bali-ram-2026-insc-689-later-exemption-notifications-125-crore-to-crpf-constable-1617727
 
-[Source Link](https://t.me/verdictumlegalupdates/27929)
-
----
-
-### 2026-07-13T08:32:43+00:00
-Supreme Court Stays Madras HC Order Banning Cow & Calf Slaughter In Tamil Nadu
-https://www.verdictum.in/supreme-court/madras-hc-order-banning-cow-calf-slaughter-in-tamil-nadu-stayed-1617648
-
-[Source Link](https://t.me/verdictumlegalupdates/27928)
+[Source Link](https://t.me/verdictumlegalupdates/27955)
 
 ---
 
-### 2026-07-13T08:02:22+00:00
-Supreme Court Agrees To Hear Plea Assailing HC Order Holding Bhojshala Complex As Goddess Saraswati Temple
-https://www.verdictum.in/supreme-court/bhojshala-complex-as-goddess-saraswati-temple-1617646
+### 2026-07-14T10:32:54+00:00
+Supreme Court Closes Contempt Against AIIMS Acting Director For Failing To Execute Court-Mandated DNA Test In Matrimonial Case
+https://www.verdictum.in/supreme-court/closes-contempt-aiims-acting-director-failing-execute-court-mandated-dna-test-matrimonial-case-1617726
 
-[Source Link](https://t.me/verdictumlegalupdates/27927)
-
----
-
-### 2026-07-13T07:03:01+00:00
-Motherhood Cannot Be Penalized: J&K&L High Court Quashes Order Denying Maternity Leave Pay To Senior Residents, Tutors
-https://www.verdictum.in/jammu-ladakh-high-court/dr-sonakshi-gupta-v-ut-of-jk-2026jklhc-jmu2020-maternity-leave-senior-residents-1617632
-
-[Source Link](https://t.me/verdictumlegalupdates/27926)
+[Source Link](https://t.me/verdictumlegalupdates/27954)
 
 ---
 
-### 2026-07-13T05:24:20+00:00
-Assessment Committee Not Bound To Average APR/PMS Marks With "Work Report" Score To Determine Promotion Eligibility: Supreme Court
-https://www.verdictum.in/supreme-court/the-director-general-council-of-scientific-and-industrial-research-v-anil-earnest-2026-insc-677-assessment-committee-average-aprpms-1617628
+### 2026-07-14T10:02:32+00:00
+Supreme Court Asks Centre To Respond To Plea Challenging Validity Of NIA Act
+https://www.verdictum.in/supreme-court/plea-challenging-validity-of-nia-act-1617725
 
-[Source Link](https://t.me/verdictumlegalupdates/27925)
-
----
-
-### 2026-07-13T04:32:49+00:00
-Attempting To Remove Salwar & Physical Molestation Amounts To Outraging Of Modesty Of A Woman And Not  Attempt To Rape: Patna High Court
-https://www.verdictum.in/patna-high-court/unclothening-molestation-outraging-modesty-and-not-rape-1617570
-
-[Source Link](https://t.me/verdictumlegalupdates/27924)
+[Source Link](https://t.me/verdictumlegalupdates/27953)
 
 ---
 
-### 2026-07-12T13:32:55+00:00
-Direct Information From Child Victim Amounts To "Knowledge" U/S 19 POCSO Act; Persons Receiving It Can’t Conduct Own Verification Before Reporting: Supreme Court
-https://www.verdictum.in/delhi-high-court/aaa-v-linda-sema-ors-2026-insc-675-pocso-child-victim-information-knowledge-1617569
+### 2026-07-14T09:32:31+00:00
+Supreme Court Upholds "No Interest" Clause On Security Deposits In Mining Contracts; Interest Payable Only If State Retains Amount Beyond Contractual Refund Period
+https://www.verdictum.in/supreme-court/state-of-haryana-v-ms-jai-durgaa-finvest-p-ltd-2026-insc-678-no-interest-clause-on-security-deposits-1617720
 
-[Source Link](https://t.me/verdictumlegalupdates/27923)
+[Source Link](https://t.me/verdictumlegalupdates/27952)
 
 ---
 
-### 2026-07-12T11:32:34+00:00
-NHM Contractual Dental Surgeons Are "In the Service of Government"; Eligible for Age Relaxation Under MPSC Recruitment Rules: Bombay High Court
-https://www.verdictum.in/bombay-high-court/maharashtra-public-service-commission-v-dr-jagdish-anandrao-bhalerao-wp-1208-2025-contractual-dental-surgeons-mpsc-recruitment-rules-1617568
+### 2026-07-14T09:03:10+00:00
+Supreme Court Refuses To Interfere With HC Order Granting Bail To Lalu Yadav In Fodder Scam Case
+https://www.verdictum.in/supreme-court/bail-to-lalu-yadav-in-fodder-scam-case-1617722
 
-[Source Link](https://t.me/verdictumlegalupdates/27922)
+[Source Link](https://t.me/verdictumlegalupdates/27951)
+
+---
+
+### 2026-07-14T08:23:09+00:00
+Breaking|Supreme Court Directs Separate Adjacent Space For Friday Namaz In Bhojshala Mosque Dispute, Agrees To Hear Appeals Against MP HC Verdict
+https://www.verdictum.in/supreme-court/directs-separate-adjacent-space-friday-namaz-bhojshala-mosque-dispute-1617721
+
+[Source Link](https://t.me/verdictumlegalupdates/27950)
+
+---
+
+### 2026-07-14T08:02:48+00:00
+Photographs Taken 12 Hours After Accident Not Accurate Representation: Supreme Court Grants Compensation To Kin Of 3 Deceased Teachers
+https://www.verdictum.in/supreme-court/manju-singh-v-avinash-singh-2026-insc-696-photographs-accident-compensation-teachers-1617718
+
+[Source Link](https://t.me/verdictumlegalupdates/27949)
+
+---
+
+### 2026-07-14T07:32:46+00:00
+We Will Ensure Access To Justice: Supreme Court Issues Notice To High Courts On Formulating SOP For Urgent After-Hours Listings
+https://www.verdictum.in/supreme-court/issues-notice-high-courts-formulating-sop-urgent-after-hours-listings-1617713
+
+[Source Link](https://t.me/verdictumlegalupdates/27948)
+
+---
+
+### 2026-07-14T07:02:26+00:00
+Comparing Coal & Iron Ore Is Like Apples & Oranges: Supreme Court Upholds Rule Barring Deduction Of Royalty, DMF, NMET Payments
+https://www.verdictum.in/supreme-court/kirloskar-ferrous-industries-ltd-v-union-of-india-2026-insc-679-royalty-dmf-nmet-payments-coal-iron-ore-1617711
+
+[Source Link](https://t.me/verdictumlegalupdates/27947)
+
+---
+
+### 2026-07-14T06:32:44+00:00
+Right To Privacy Incorporates Right To Be Forgotten; No Public Interest Served By Keeping Litigant’s Information On Internet After Proceedings Are Quashed: Bombay High Court
+https://www.verdictum.in/bombay-high-court/abc-v-state-of-maharashtra-2026bhc-nag8407-db-right-to-privacy-right-to-be-forgotten-1617705
+
+[Source Link](https://t.me/verdictumlegalupdates/27946)
+
+---
+
+### 2026-07-14T05:43:03+00:00
+Supreme Court Orders Immediate Police Protection To Advocate Who Was Beaten At His Residence
+https://www.verdictum.in/supreme-court/brutal-assault-senior-bar-member-orders-immediate-police-protection-1617708
+
+[Source Link](https://t.me/verdictumlegalupdates/27945)
+
+---
+
+### 2026-07-14T05:12:21+00:00
+Delhi High Court Upholds DHJS 2026 Notification, Says No Separate Examination Was Required In 2025; Refuses Age Relaxation To Overaged Aspirant
+https://www.verdictum.in/delhi-high-court/ajay-kumar-sharma-v-high-court-of-delhi-through-registrar-general-2026dhc5530-db-dhjs-2026-notification-overaged-aspirant-1617698
+
+[Source Link](https://t.me/verdictumlegalupdates/27944)
+
+---
+
+### 2026-07-14T04:33:10+00:00
+Profit Or Loss To Investors Is Immaterial In Case Of Regulatory Infraction: Supreme Court Affirms SEBI Penalties On Kotak AMC Over Unauthorized Extension Of Scheme Maturity
+https://www.verdictum.in/supreme-court/2026-insc-681-mr-nilesh-shah-v-sebi-1617679
+
+[Source Link](https://t.me/verdictumlegalupdates/27943)
+
+---
+
+### 2026-07-13T16:02:30+00:00
+Special Public Prosecutor Vacancy At CBI
+https://www.verdictum.in/job-updates/central-bureau-of-investigation-1617671
+
+[Source Link](https://t.me/verdictumlegalupdates/27942)
 
 ---
 
