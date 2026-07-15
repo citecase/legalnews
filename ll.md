@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-14T14:17:40+00:00*
+*Last Updated: 2026-07-15T06:32:59+00:00*
 
 ---
 
-### 2026-07-14T14:17:40+00:00
-West Bengal Govt Constitutes Expert Committee To Examine Draft Uniform Civil Code Bill
-https://www.livelaw.in/news-updates/west-bengal-govt-constitutes-expert-committee-to-examine-draft-uniform-civil-code-bill-541223
+### 2026-07-15T06:32:59+00:00
+LiveLaw Andhra Pradesh High Court Weekly Round-Up: July 06 - July 12, 2026
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-weekly-round-up-2026-541280
 
-[Read on Telegram](https://t.me/livelawindia/114656)
-
----
-### 2026-07-14T14:22:39+00:00
-P&H High Court Takes Suo Motu Cognizance Of Report On 9 Girls Going Missing In 48 Hours In Ludhiana
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/suo-moto-cognizance-9-girls-missing-from-ludhiana-541224
-
-[Read on Telegram](https://t.me/livelawindia/114657)
+[Read on Telegram](https://t.me/livelawindia/114711)
 
 ---
-### 2026-07-14T14:27:19+00:00
-Brinda Karat Seeks Review Of Supreme Court's Clean Chit To Anurag Thakur, Parvesh Verma In Hate Speech Case
-https://www.livelaw.in/top-stories/brinda-karat-seeks-review-of-supreme-courts-clean-chit-to-anurag-thakur-parvesh-verma-in-hate-speech-case-541225
+### 2026-07-15T06:34:59+00:00
+Delhi High Court Issues Notice On PIL To Ban UPSC Coaches, Former Aspirants Acting As Scribes In Civil Services Exam
+https://www.livelaw.in/high-court/delhi-high-court/ban-upsc-coaches-former-aspirants-acting-as-scribes-in-civil-services-exam-541304
 
-[Read on Telegram](https://t.me/livelawindia/114658)
-
----
-### 2026-07-14T14:28:19+00:00
-SFI Activist Abhimanyu Murder Case: Kerala High Court Refuses To Halt Trial Till Completion Of Probe Against Harbouring Accused
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-abhimanyu-murder-sfi-political-trial-541226
-
-[Read on Telegram](https://t.me/livelawindia/114659)
+[Read on Telegram](https://t.me/livelawindia/114712)
 
 ---
-### 2026-07-14T14:33:00+00:00
-Can Monetary Compensation Restore Dignity Lost Due To Illegal Detentions?
-https://www.livelaw.in/articles/preventive-arrest-monetary-compensation-restore-dignity-illegal-detentions-540992
+### 2026-07-15T06:52:09+00:00
+'Cybercrime Investigations Must Move Faster Than Offenders': MP High Court Seeks Real-Time Coordination Among Police, Banks & Telecom Authorities
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/cyber-fraud-probe-coordination-among-police-banks-telecom-authorities-541307
 
-[Read on Telegram](https://t.me/livelawindia/114660)
-
----
-### 2026-07-14T14:34:39+00:00
-MSC Elsa 3 Sinkage: Kerala High Court Asks Centre If Navy Can Be Deployed To Assess Environmental Impact Of Wreckage On Seabed
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-msc-elsa-3-sinkage-pil-indian-navy-assess-environmental-impact-541227
-
-[Read on Telegram](https://t.me/livelawindia/114661)
+[Read on Telegram](https://t.me/livelawindia/114713)
 
 ---
-### 2026-07-14T14:47:59+00:00
-Partition Of Joint Family Property Not 'Transfer' Under Senior Citizens Act, Can't Be Cancelled For Failure To Maintain Parents: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-maintenance-dispute-partition-deed-senior-citizens-act-541228
+### 2026-07-15T06:59:09+00:00
+Delhi High Court Dismisses PIL Seeking FIR Against Amit Shah, Rahul Gandhi For Not Notifying BNS 'Hit-And-Run' Provision
+https://www.livelaw.in/high-court/delhi-high-court/pil-for-fir-against-amit-shah-rahul-gandhi-dismissed-bns-hit-and-run-provision-541309
 
-[Read on Telegram](https://t.me/livelawindia/114662)
-
----
-### 2026-07-14T14:50:39+00:00
-Savarkar Would Have Been India's First Prime Minister Had He Compromised With British: Grandnephew Tells Pune Court
-https://www.livelaw.in/news-updates/savarkar-would-have-been-indias-first-prime-minister-had-he-compromised-with-british-grandnephew-tells-pune-court-541230
-
-[Read on Telegram](https://t.me/livelawindia/114663)
+[Read on Telegram](https://t.me/livelawindia/114714)
 
 ---
-### 2026-07-14T14:52:40+00:00
-Court Using Phrase 'Take Action In Accordance With Law' Doesn't Permit Fresh Adjudication Of Concluded Issues: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-permit-fresh-adjudication-concluded-issues-541199
+### 2026-07-15T07:01:30+00:00
+Land Acquisition Act | Landowners Who Failed To Avail Hearing Cannot Later Allege Denial Of Hearing : Supreme Court
+https://www.livelaw.in/supreme-court/land-acquisition-act-landowners-who-failed-to-avail-hearing-cannot-later-allege-denial-of-hearing-supreme-court-541310
 
-[Read on Telegram](https://t.me/livelawindia/114664)
-
----
-### 2026-07-14T14:57:40+00:00
-Supreme Court Seeks BCI Response On Plea To Regulate Advocates' Use Of Social Media For Advertising And Solicitation
-https://www.livelaw.in/top-stories/supreme-court-seeks-bci-response-on-plea-to-regulate-advocates-use-of-social-media-for-advertising-and-solicitation-541232
-
-[Read on Telegram](https://t.me/livelawindia/114665)
+[Read on Telegram](https://t.me/livelawindia/114715)
 
 ---
-### 2026-07-14T14:58:00+00:00
-Telangana High Court Rejects Man's Allegation Of Third-Degree Torture During ED Interrogation, Says No Material Linking Injuries To Proceedings
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-rejects-third-degree-torture-allegation-against-ed-541231
+### 2026-07-15T07:02:30+00:00
+2026 LiveLaw (SC) 678 | Alok Kotahwala & Ors. v. Jaipur Metro Rail Corporation Ltd. & Ors
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-678-alok-kotahwala-ors-v-jaipur-metro-rail-corporation-ltd-ors-541311
 
-[Read on Telegram](https://t.me/livelawindia/114666)
-
----
-### 2026-07-14T15:24:11+00:00
-Supreme Court Approves Guidelines On Judicial Sensitivity In Sexual Offence Cases; Directs All Courts To Follow
-https://www.livelaw.in/top-stories/supreme-court-approves-guidelines-prepared-by-nja-expert-committee-judicial-sensitivity-in-sexual-offense-cases-all-courts-to-follow-541238
-
-[Read on Telegram](https://t.me/livelawindia/114667)
+[Read on Telegram](https://t.me/livelawindia/114716)
 
 ---
-### 2026-07-14T15:32:51+00:00
-Telangana High Court Halts Priest Recruitment At Palakurthi Temple Till State Decides Dispute Over Change In Ritual Procedure
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-halts-priest-recruitment-palakurthi-temple-dispute-541157
+### 2026-07-15T07:02:50+00:00
+Wife Entitled To Interim Maintenance Under Hindu Marriage Act During Pendency Of Appeal Against Divorce Decree: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/wife-entitled-to-interim-maintenance-under-hindu-marriage-act-during-pendency-of-appeal-against-divorce-decree-delhi-high-court-541286
 
-[Read on Telegram](https://t.me/livelawindia/114668)
-
----
-### 2026-07-14T15:47:51+00:00
-Rajasthan High Court Expresses Concern Over Sharp Decline In Camel Population, Summons Animal Husbandry Director
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-camel-conservation-measures-animal-husbandry-541240
-
-[Read on Telegram](https://t.me/livelawindia/114669)
+[Read on Telegram](https://t.me/livelawindia/114717)
 
 ---
-### 2026-07-14T16:00:11+00:00
-Aadhaar Card Not Reliable Proof Of Age In Motor Accident Claims: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-aadhar-card-reliable-document-age-determination-541241
+### 2026-07-15T07:21:10+00:00
+Delhi High Court's Justice Tejas Karia Recuses From Hearing PIL Against 'Copyright Strike Extortion Racket' On Instagram
+https://www.livelaw.in/high-court/delhi-high-court/justice-tejas-karia-recuses-pil-against-instagram-copyright-strike-extortion-racket-541317
 
-[Read on Telegram](https://t.me/livelawindia/114670)
-
----
-### 2026-07-14T16:02:31+00:00
-Section 138 NI Act Settlement Can't Be Enforced Through CrPC Recovery Unless Incorporated In Court Order: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-high-court-settlement-in-section-138-ni-act-cases-can-be-enforced-through-sections-421-431-crpc-only-if-incorporated-into-courts-final-order-541200
-
-[Read on Telegram](https://t.me/livelawindia/114671)
+[Read on Telegram](https://t.me/livelawindia/114718)
 
 ---
-### 2026-07-14T16:24:21+00:00
-Madras High Court Cautions Young Women Against Sharing Intimate Photos Online, Issues Appeal In English, Hindi And Tamil
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-intimate-image-not-shared-online-appeal-young-women-541242
+### 2026-07-15T07:23:50+00:00
+Passenger Forced To Purchase Last-Minute Tickets After Flight Disruption: Chandigarh Consumer Commission Holds IndiGo, Turkish Airlines Liable
+https://www.livelaw.in/consumer-cases/passenger-forced-to-purchase-last-minute-tickets-after-flight-disruption-chandigarh-consumer-commission-holds-indigo-turkish-airlines-liable-541319
 
-[Read on Telegram](https://t.me/livelawindia/114672)
-
----
-### 2026-07-14T17:15:32+00:00
-Law Officer Vacancy At National Anti-Doping Agency
-https://www.livelaw.in/job-updates/law-officer-vacancy-at-national-anti-doping-agency-541246
-
-[Read on Telegram](https://t.me/livelawindia/114673)
+[Read on Telegram](https://t.me/livelawindia/114719)
 
 ---
-### 2026-07-14T17:17:52+00:00
-Supreme Court Daily Round-Up : July 14, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-july-14-2026-541239
+### 2026-07-15T07:31:30+00:00
+UP Apartment Act | Writ Petitions Not Maintainable For RWA Disputes: Allahabad High Court Directs UP Govt To Frame Grievance Mechanism
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-up-apartment-act-writ-petitions-not-maintainable-rwa-disputes-directs-grievance-mechanism-541323
 
-[Read on Telegram](https://t.me/livelawindia/114674)
+[Read on Telegram](https://t.me/livelawindia/114720)
 
 ---
-### 2026-07-15T02:32:36+00:00
-Highest Ever Death Penalties Confirmed By A High Court : Read Reasons In 2008 Ahmedabad Blast Verdict
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-2008-ahmedabad-blast-death-penalty-terrorism-541243
+### 2026-07-15T07:37:30+00:00
+Uttarakhand High Court Quashes DM's Order Directing Issuance Of Fire NOC Despite Being Alive To Deficiencies In Construction
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-dehradun-dm-fire-noc-construction-deficiency-541326
 
-[Read on Telegram](https://t.me/livelawindia/114675)
+[Read on Telegram](https://t.me/livelawindia/114721)
+
+---
+### 2026-07-15T07:42:20+00:00
+Gameskraft Case | Karnataka High Court Questions ED's Argument That PMLA Freezing Proceedings Are Civil In Nature
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-ed-assailing-section528-bnss-freezing-gameskraft-crores-541328
+
+[Read on Telegram](https://t.me/livelawindia/114722)
+
+---
+### 2026-07-15T07:57:00+00:00
+Property Conveyed In Sale Deed Cannot Be Changed Through Rectification Deed Without Original Transferor's Consent: Supreme Court
+https://www.livelaw.in/supreme-court/supreme-court-rectification-deed-cannot-change-property-identity-nemo-dat-quod-non-habet-541333
+
+[Read on Telegram](https://t.me/livelawindia/114723)
+
+---
+### 2026-07-15T07:58:20+00:00
+2026 LiveLaw (SC) 679 | VENKATESHA AND ANR. VS. K.M. VENKATAMUNIYAPPA (D) THR. LRS. & Ors
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-679-venkatesha-and-anr-vs-km-venkatamuniyappa-d-thr-lrs-ors-541335
+
+[Read on Telegram](https://t.me/livelawindia/114724)
+
+---
+### 2026-07-15T07:58:30+00:00
+'Affront To Judiciary': Jharkhand High Court Upholds Conviction In Dhanbad Judge Uttam Anand Murder Case
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-upholds-conviction-dhanbad-judge-uttam-anand-murder-case-541289
+
+[Read on Telegram](https://t.me/livelawindia/114725)
+
+---
+### 2026-07-15T08:02:40+00:00
+AICTE's Annual Approval No Bar To Permanent University Affiliation; Registrar Can't Override Statutory Bodies' Decision: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-quashes-patliputra-university-registrar-affiliation-recommendation-541287
+
+[Read on Telegram](https://t.me/livelawindia/114726)
+
+---
+### 2026-07-15T08:07:00+00:00
+Calcutta High Court Allows TMC To Hold 'Shahid Divas' Meeting On 21 July Near Birla Planetarium After State Refuses Victoria House Venue
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-allows-tmc-to-hold-shahid-divas-meeting-on-21-july-near-birla-planetarium-after-state-refuses-victoria-house-venue-541339
+
+[Read on Telegram](https://t.me/livelawindia/114727)
+
+---
+### 2026-07-15T08:09:00+00:00
+Supreme Court Directs AIIMS To Assess IIT Kharagpur Student Seeking Transfer To IIT Roorkee On Medical Grounds
+https://www.livelaw.in/top-stories/supreme-court-directs-aiims-to-assess-iit-kharagpur-student-seeking-transfer-to-iit-roorkee-on-medical-grounds-541340
+
+[Read on Telegram](https://t.me/livelawindia/114728)
+
+---
+### 2026-07-15T08:12:40+00:00
+S.125 CrPC | Mother Being Maintained By Real Son Cannot Claim 'Another Maintenance' From Step-Son: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-mother-maintained-real-son-cannot-claim-another-maintenance-from-stepson-541342
+
+[Read on Telegram](https://t.me/livelawindia/114729)
+
+---
+### 2026-07-15T08:18:00+00:00
+Bus Operator Liable For Loss Of Passenger's Suitcase Due To Staff Negligence: Bastar Consumer Commission
+https://www.livelaw.in/consumer-cases/bus-operator-liable-for-loss-of-passengers-suitcase-due-to-staff-negligence-bastar-consumer-commission-541329
+
+[Read on Telegram](https://t.me/livelawindia/114730)
 
 ---
