@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-15T14:02:15+00:00*
+*Last Updated: 2026-07-15T15:43:18+00:00*
+
+---
+
+### 2026-07-15T15:43:18+00:00
+Specialist (Legal) Vacancy At IDBI Bank
+https://www.verdictum.in/job-updates/idbi-bank-1617805
+
+[Source Link](https://t.me/verdictumlegalupdates/27987)
+
+---
+
+### 2026-07-15T14:52:36+00:00
+Easy For Authorities To Knock Out Genuine Bidder On Flimsy Grounds: Supreme Court Asks High Courts To Ensure There Is No Misuse Of Geotagging Clause In Tender Cases
+https://www.verdictum.in/supreme-court/vidyasagar-vijaykumar-kamboj-v-the-state-of-maharashtra-2026-insc-697-bidder-geotagging-1617811
+
+[Source Link](https://t.me/verdictumlegalupdates/27986)
 
 ---
 
@@ -145,22 +161,6 @@ Rule Prescribing Minimum Cut-Off In Interview Is Within State’s Legislative Co
 https://www.verdictum.in/supreme-court/manoj-goyal-v-rajasthan-high-court-2026-insc-699-rule-district-judge-appointment-1617771
 
 [Source Link](https://t.me/verdictumlegalupdates/27968)
-
----
-
-### 2026-07-15T05:02:42+00:00
-Children’s Court Cannot Try Child As Adult Without Reasoned Order U/S 19(1) Juvenile Justice Act : Supreme Court
-https://www.verdictum.in/supreme-court/sagar-v-the-state-of-haryana-2026-insc-692-section-191-juvenile-justice-act-1617767
-
-[Source Link](https://t.me/verdictumlegalupdates/27967)
-
----
-
-### 2026-07-15T04:33:11+00:00
-Mere Recovery Of Firearm Without Evidence To Show Conscious Possession & Dominion Can’t Support Conviction Under Arms Act: Supreme Court
-https://www.verdictum.in/supreme-court/the-state-of-jharkhand-v-jagdish-lakra-2026-insc-686-recovery-arms-act-1617745
-
-[Source Link](https://t.me/verdictumlegalupdates/27966)
 
 ---
 
