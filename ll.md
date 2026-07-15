@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-14T14:17:29+00:00*
+*Last Updated: 2026-07-14T14:17:40+00:00*
 
 ---
 
-### 2026-07-14T14:17:29+00:00
-'Grave Cruelty': P&H High Court Rejects In-Laws Plea That Pregnant Mother Can't Care For Firstborn Child, Orders Return Of Custody
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/return-3-year-old-to-mother-cruelty-if-pregnant-womans-first-born-taken-away-541222
-
-[Read on Telegram](https://t.me/livelawindia/114655)
-
----
 ### 2026-07-14T14:17:40+00:00
 West Bengal Govt Constitutes Expert Committee To Examine Draft Uniform Civil Code Bill
 https://www.livelaw.in/news-updates/west-bengal-govt-constitutes-expert-committee-to-examine-draft-uniform-civil-code-bill-541223
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : July 14, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-july-14-2026-541239
 
 [Read on Telegram](https://t.me/livelawindia/114674)
+
+---
+### 2026-07-15T02:32:36+00:00
+Highest Ever Death Penalties Confirmed By A High Court : Read Reasons In 2008 Ahmedabad Blast Verdict
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-2008-ahmedabad-blast-death-penalty-terrorism-541243
+
+[Read on Telegram](https://t.me/livelawindia/114675)
 
 ---
