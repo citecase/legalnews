@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-15T08:33:10+00:00*
+*Last Updated: 2026-07-15T14:02:15+00:00*
+
+---
+
+### 2026-07-15T14:02:15+00:00
+Supreme Court Clears Deck For Kukrail Night Safari In Lucknow; Mandates Strict Environmental Compliance
+https://www.verdictum.in/supreme-court/deck-for-kukrail-night-safari-lucknow-mandates-strict-environmental-compliance-1617809
+
+[Source Link](https://t.me/verdictumlegalupdates/27985)
+
+---
+
+### 2026-07-15T14:01:13+00:00
+Tahsildar Entitled To Receive Additional Protection Under Judges (Protection) Act: Madhya Pradesh High Court Quashes Order Withholding Pension
+https://www.verdictum.in/madhya-pradesh-high-court/shri-dk-kamthan-v-state-of-madhya-pradesh-2026mphc-gwl18517-tahsildar-pension-1617810
+
+[Source Link](https://t.me/verdictumlegalupdates/27984)
+
+---
+
+### 2026-07-15T13:12:52+00:00
+Repeated Physical Intimacy Does Not By Itself Prove Consent Where Circumstances Show Deception Or Coercion: Madras High Court
+https://www.verdictum.in/madras-high-court/suji-kasi-v-state-consent-misconception-of-fact-rape-by-deception-romantic-fraud-1617806
+
+[Source Link](https://t.me/verdictumlegalupdates/27983)
+
+---
+
+### 2026-07-15T12:32:50+00:00
+Section 68 Evidence Act And Its Proviso Inapplicable To Registered Sale Deeds: Supreme Court
+https://www.verdictum.in/supreme-court/r-veronica-v-rudrayani-devaki-d-through-lrs-2026-insc-703-section-68-evidence-act-marginal-witnesses-1617804
+
+[Source Link](https://t.me/verdictumlegalupdates/27982)
+
+---
+
+### 2026-07-15T12:02:49+00:00
+Can’t Claim Maintenance From Step Son When Real Son Is Directed To Pay Same: Allahabad High Court Dismisses Woman’s Revision Petition
+https://www.verdictum.in/allahabad-high-court/a-v-state-of-up-and-2-others-2026ahc142142-maintenance-son-mother-1617803
+
+[Source Link](https://t.me/verdictumlegalupdates/27981)
+
+---
+
+### 2026-07-15T11:32:27+00:00
+Arbitral Tribunal Can Rule On Its Own Jurisdiction U/S 16 A&C Act; Remedy Against Rejection Lies U/S 34 After Final Award: Supreme Court
+https://www.verdictum.in/supreme-court/manash-kamal-bezboruah-v-ms-bokahola-tea-company-private-limited-2026-insc-701-arbitral-tribunal-can-rule-on-its-own-jurisdiction-1617801
+
+[Source Link](https://t.me/verdictumlegalupdates/27980)
+
+---
+
+### 2026-07-15T11:02:46+00:00
+Supreme Court Directs Uttarakhand Govt To Grant Possession Of Land In Haldwani For Construction Of New High Court Building
+https://www.verdictum.in/supreme-court/possession-of-land-in-haldwani-for-construction-of-new-high-court-building-1617800
+
+[Source Link](https://t.me/verdictumlegalupdates/27979)
+
+---
+
+### 2026-07-15T10:32:55+00:00
+Rectification Deed Cannot Substitute Subject Matter Of Prior Conveyance Without Original Transferor’s Participation: Supreme Court
+https://www.verdictum.in/supreme-court/venkatesha-and-anr-v-km-venkatamuniyappa-d-thr-lrs-ors-2026-insc-705-1617799
+
+[Source Link](https://t.me/verdictumlegalupdates/27978)
+
+---
+
+### 2026-07-15T10:02:14+00:00
+Prior Comprehensive Survey Not A Condition Precedent To Notification U/S 4 Land Acquisition Act: Supreme Court
+https://www.verdictum.in/supreme-court/alok-kotahwala-ors-v-jaipur-metro-rail-corporation-limited-ors-2026-insc-682-la-act-1617797
+
+[Source Link](https://t.me/verdictumlegalupdates/27977)
+
+---
+
+### 2026-07-15T09:32:52+00:00
+Earnest Money Refund Clause In Agreement To Sell Does Not Bar Specific Performance Unless Intended As Substitute For Sale: Supreme Court
+https://www.verdictum.in/supreme-court/jaspal-singh-v-ashwani-kumar-2026-insc-700-specific-performance-act-1617796
+
+[Source Link](https://t.me/verdictumlegalupdates/27976)
+
+---
+
+### 2026-07-15T09:02:51+00:00
+Section 22 Hindu Succession Act Applicable To Agricultural Land, Distinguishable From Punjab Pre-emption Act Struck Down In Atam Prakash: Supreme Court
+https://www.verdictum.in/supreme-court/mahinder-others-v-puran-singh-2026-insc-698-section-22-hindu-succession-act-1617794
+
+[Source Link](https://t.me/verdictumlegalupdates/27975)
 
 ---
 
@@ -73,94 +161,6 @@ Mere Recovery Of Firearm Without Evidence To Show Conscious Possession & Dominio
 https://www.verdictum.in/supreme-court/the-state-of-jharkhand-v-jagdish-lakra-2026-insc-686-recovery-arms-act-1617745
 
 [Source Link](https://t.me/verdictumlegalupdates/27966)
-
----
-
-### 2026-07-14T16:02:59+00:00
-Engineering Projects India Limited (EPI) Invites Applications For The Post Of Manager (Legal)
-https://www.verdictum.in/job-updates/engineering-projects-india-limited-1617735
-
-[Source Link](https://t.me/verdictumlegalupdates/27965)
-
----
-
-### 2026-07-14T15:32:58+00:00
-Police Opinion In Final Report Not Binding On Cognizance; Court Alone Decides Whether Trial Should Be Joint Or Separate: Supreme Court
-https://www.verdictum.in/supreme-court/brajesh-kumar-birjesh-kumar-singh-v-the-state-of-bihar-2026-insc-695-1617744
-
-[Source Link](https://t.me/verdictumlegalupdates/27964)
-
----
-
-### 2026-07-14T15:02:17+00:00
-Tribunal Is Not Merely A Forwarding Authority But The Primary Adjudicatory Forum: Supreme Court Sets Aside "Mechanical" Foreigner Declarations
-https://www.verdictum.in/supreme-court/sabitri-dey-swasthi-dey-v-union-of-india-2026-insc-694-tribunal-is-not-merely-a-forwarding-authority-1617739
-
-[Source Link](https://t.me/verdictumlegalupdates/27963)
-
----
-
-### 2026-07-14T14:33:15+00:00
-Can’t Deny Refund Of Premium For Unutilized Additional FSI In Case Of Residential Construction: Supreme Court While Granting Relief To Landowners
-https://www.verdictum.in/supreme-court/prasad-pandurang-tapkir-v-the-assistant-director-of-town-planning-2026-insc-683-premium-fsi-1617738
-
-[Source Link](https://t.me/verdictumlegalupdates/27962)
-
----
-
-### 2026-07-14T14:02:54+00:00
-Plaintiff Must File Written Statement To Counter-Claim In Commercial Suit Within 120 Days: Supreme Court
-https://www.verdictum.in/supreme-court/ak-ghosh-company-and-others-v-biman-bose-and-others-2026-insc-684-1617737
-
-[Source Link](https://t.me/verdictumlegalupdates/27961)
-
----
-
-### 2026-07-14T13:33:13+00:00
-Appointments “Are A Blot” On The System: Supreme Court Dismisses West Bengal Madrasah Staff Pleas, Terms Post-March 2016 Recruitments Without Judicial Leave Ex Facie Illegal
-https://www.verdictum.in/supreme-court/najma-khatun-v-the-state-of-west-bengal-2026-insc-691-appointments-are-a-blot-judicial-leave-ex-facie-illegal-1617736
-
-[Source Link](https://t.me/verdictumlegalupdates/27960)
-
----
-
-### 2026-07-14T13:02:31+00:00
-Mere Telephone Records Do Not Prove Illicit Affair Or Motive For Murder: Supreme Court Upholds Acquittal Of Wife, Alleged Lover In 2007 ICICI Employee Murder Case
-https://www.verdictum.in/supreme-court/state-of-maharashtra-v-monika-kiran-suryawanshi-2026-insc-685-2007-icici-employee-murder-case-illicit-affair-or-motive-for-murder-1617734
-
-[Source Link](https://t.me/verdictumlegalupdates/27959)
-
----
-
-### 2026-07-14T12:32:29+00:00
-Nomenclature "Native Indian Language" May Require Relook: Supreme Court Issues Notice On Fresh Pleas Challenging CBSE's Mandatory Language Policy
-https://www.verdictum.in/supreme-court/issues-notice-fresh-pleas-challenging-cbse-mandatory-language-policy-1617733
-
-[Source Link](https://t.me/verdictumlegalupdates/27958)
-
----
-
-### 2026-07-14T12:02:48+00:00
-Recovery Certificate Issued Before 2016 Amendment Of RDB Act Can't Be Basis For Initiating Insolvency Proceedings Under Presidency Towns Insolvency Act: Supreme Court
-https://www.verdictum.in/supreme-court/hdfc-bank-limited-v-kishore-k-mehta-dead-thr-lrs-2026-insc-688-recovery-certificate-rdb-act-1617731
-
-[Source Link](https://t.me/verdictumlegalupdates/27957)
-
----
-
-### 2026-07-14T11:16:26+00:00
-He Has Taken Court For A Ride: Supreme Court Imposes ₹3 Lakhs Costs On Comedian Samay Raina For Violation Of Judicial Undertaking
-https://www.verdictum.in/supreme-court/imposes-costs-3-lakhs-comedian-samay-raina-violation-judicial-undertaking-1617728
-
-[Source Link](https://t.me/verdictumlegalupdates/27956)
-
----
-
-### 2026-07-14T11:02:35+00:00
-Later Exemption Notifications Cannot Retrospectively Validate Void Ouster Orders: Supreme Court Dismisses Appeal, Grants ₹1.25 Crore To CRPF Constable
-https://www.verdictum.in/supreme-court/union-of-india-v-bali-ram-2026-insc-689-later-exemption-notifications-125-crore-to-crpf-constable-1617727
-
-[Source Link](https://t.me/verdictumlegalupdates/27955)
 
 ---
 
