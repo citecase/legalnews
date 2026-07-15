@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-14T16:02:59+00:00*
+*Last Updated: 2026-07-15T08:33:10+00:00*
+
+---
+
+### 2026-07-15T08:33:10+00:00
+Supreme Court Expresses Concern Over Students ‘Frustration’ In CBSE’s Digital Marking System
+https://www.verdictum.in/supreme-court/students-frustration-in-cbses-digital-marking-system-1617793
+
+[Source Link](https://t.me/verdictumlegalupdates/27974)
+
+---
+
+### 2026-07-15T08:02:29+00:00
+Supreme Court Grants Bail To Alleged Kingpin Involved In District Mineral Fund Scam In Chhattisgarh
+https://www.verdictum.in/supreme-court/bail-to-alleged-kingpin-involved-in-district-mineral-fund-scam-1617788
+
+[Source Link](https://t.me/verdictumlegalupdates/27973)
+
+---
+
+### 2026-07-15T07:32:48+00:00
+State’s Statutory Power To Revise Royalty Under MMDR Act Survives Even In Absence Of Express Enhancement Clause In Mining Lease: Supreme Court
+https://www.verdictum.in/supreme-court/state-of-haryana-ors-v-ms-faridabad-gurgaon-minerals-anr-with-state-of-haryana-ors-v-ms-ganpati-enterprises-slate-mines-2026-insc-690-1617782
+
+[Source Link](https://t.me/verdictumlegalupdates/27972)
+
+---
+
+### 2026-07-15T07:02:07+00:00
+State Can't Be Lethargic In Appointments: Apex Court Refuses To Extend SCDRC Member’s Tenure, Says Protection Granted Earlier Is Limited To Central Tribunals
+https://www.verdictum.in/supreme-court/refuses-extend-scdrc-member-tenure-protection-granted-court-limited-central-tribunals-1617785
+
+[Source Link](https://t.me/verdictumlegalupdates/27971)
+
+---
+
+### 2026-07-15T06:32:45+00:00
+Withdrawing Sales Tax Exemption From Imported Sugar Retrospectively Not Unconstitutional But No Penalty Can Be Imposed For Pre-Amendment Period: Supreme Court
+https://www.verdictum.in/supreme-court/asia-sugar-chemical-co-v-the-state-of-karnataka-2026-insc-693-sales-tax-1617778
+
+[Source Link](https://t.me/verdictumlegalupdates/27970)
+
+---
+
+### 2026-07-15T06:02:24+00:00
+Mere Existence Of Trees Does Not Make Land “Forest” Or “Deemed Forest” To Invalidate Acquisition For Duly Sanctioned Projects: Supreme Court
+https://www.verdictum.in/supreme-court/alok-kotahwala-ors-v-jaipur-metro-rail-corporation-limited-ors-2026-insc-682-1617772
+
+[Source Link](https://t.me/verdictumlegalupdates/27969)
+
+---
+
+### 2026-07-15T05:33:03+00:00
+Rule Prescribing Minimum Cut-Off In Interview Is Within State’s Legislative Competence: Supreme Court Dismisses Appeal Of District Judge Aspirant
+https://www.verdictum.in/supreme-court/manoj-goyal-v-rajasthan-high-court-2026-insc-699-rule-district-judge-appointment-1617771
+
+[Source Link](https://t.me/verdictumlegalupdates/27968)
+
+---
+
+### 2026-07-15T05:02:42+00:00
+Children’s Court Cannot Try Child As Adult Without Reasoned Order U/S 19(1) Juvenile Justice Act : Supreme Court
+https://www.verdictum.in/supreme-court/sagar-v-the-state-of-haryana-2026-insc-692-section-191-juvenile-justice-act-1617767
+
+[Source Link](https://t.me/verdictumlegalupdates/27967)
+
+---
+
+### 2026-07-15T04:33:11+00:00
+Mere Recovery Of Firearm Without Evidence To Show Conscious Possession & Dominion Can’t Support Conviction Under Arms Act: Supreme Court
+https://www.verdictum.in/supreme-court/the-state-of-jharkhand-v-jagdish-lakra-2026-insc-686-recovery-arms-act-1617745
+
+[Source Link](https://t.me/verdictumlegalupdates/27966)
 
 ---
 
@@ -89,78 +161,6 @@ Later Exemption Notifications Cannot Retrospectively Validate Void Ouster Orders
 https://www.verdictum.in/supreme-court/union-of-india-v-bali-ram-2026-insc-689-later-exemption-notifications-125-crore-to-crpf-constable-1617727
 
 [Source Link](https://t.me/verdictumlegalupdates/27955)
-
----
-
-### 2026-07-14T10:32:54+00:00
-Supreme Court Closes Contempt Against AIIMS Acting Director For Failing To Execute Court-Mandated DNA Test In Matrimonial Case
-https://www.verdictum.in/supreme-court/closes-contempt-aiims-acting-director-failing-execute-court-mandated-dna-test-matrimonial-case-1617726
-
-[Source Link](https://t.me/verdictumlegalupdates/27954)
-
----
-
-### 2026-07-14T10:02:32+00:00
-Supreme Court Asks Centre To Respond To Plea Challenging Validity Of NIA Act
-https://www.verdictum.in/supreme-court/plea-challenging-validity-of-nia-act-1617725
-
-[Source Link](https://t.me/verdictumlegalupdates/27953)
-
----
-
-### 2026-07-14T09:32:31+00:00
-Supreme Court Upholds "No Interest" Clause On Security Deposits In Mining Contracts; Interest Payable Only If State Retains Amount Beyond Contractual Refund Period
-https://www.verdictum.in/supreme-court/state-of-haryana-v-ms-jai-durgaa-finvest-p-ltd-2026-insc-678-no-interest-clause-on-security-deposits-1617720
-
-[Source Link](https://t.me/verdictumlegalupdates/27952)
-
----
-
-### 2026-07-14T09:03:10+00:00
-Supreme Court Refuses To Interfere With HC Order Granting Bail To Lalu Yadav In Fodder Scam Case
-https://www.verdictum.in/supreme-court/bail-to-lalu-yadav-in-fodder-scam-case-1617722
-
-[Source Link](https://t.me/verdictumlegalupdates/27951)
-
----
-
-### 2026-07-14T08:23:09+00:00
-Breaking|Supreme Court Directs Separate Adjacent Space For Friday Namaz In Bhojshala Mosque Dispute, Agrees To Hear Appeals Against MP HC Verdict
-https://www.verdictum.in/supreme-court/directs-separate-adjacent-space-friday-namaz-bhojshala-mosque-dispute-1617721
-
-[Source Link](https://t.me/verdictumlegalupdates/27950)
-
----
-
-### 2026-07-14T08:02:48+00:00
-Photographs Taken 12 Hours After Accident Not Accurate Representation: Supreme Court Grants Compensation To Kin Of 3 Deceased Teachers
-https://www.verdictum.in/supreme-court/manju-singh-v-avinash-singh-2026-insc-696-photographs-accident-compensation-teachers-1617718
-
-[Source Link](https://t.me/verdictumlegalupdates/27949)
-
----
-
-### 2026-07-14T07:32:46+00:00
-We Will Ensure Access To Justice: Supreme Court Issues Notice To High Courts On Formulating SOP For Urgent After-Hours Listings
-https://www.verdictum.in/supreme-court/issues-notice-high-courts-formulating-sop-urgent-after-hours-listings-1617713
-
-[Source Link](https://t.me/verdictumlegalupdates/27948)
-
----
-
-### 2026-07-14T07:02:26+00:00
-Comparing Coal & Iron Ore Is Like Apples & Oranges: Supreme Court Upholds Rule Barring Deduction Of Royalty, DMF, NMET Payments
-https://www.verdictum.in/supreme-court/kirloskar-ferrous-industries-ltd-v-union-of-india-2026-insc-679-royalty-dmf-nmet-payments-coal-iron-ore-1617711
-
-[Source Link](https://t.me/verdictumlegalupdates/27947)
-
----
-
-### 2026-07-14T06:32:44+00:00
-Right To Privacy Incorporates Right To Be Forgotten; No Public Interest Served By Keeping Litigant’s Information On Internet After Proceedings Are Quashed: Bombay High Court
-https://www.verdictum.in/bombay-high-court/abc-v-state-of-maharashtra-2026bhc-nag8407-db-right-to-privacy-right-to-be-forgotten-1617705
-
-[Source Link](https://t.me/verdictumlegalupdates/27946)
 
 ---
 
