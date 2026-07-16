@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-16T06:08:35+00:00*
+*Last Updated: 2026-07-16T11:57:57+00:00*
 
 ---
 
-### 2026-07-16T06:08:35+00:00
-Bombay High Court Gives Centre Till July 29 To Respond To Kunal Kamra's Challenge To Sahyog Portal, IT Rules Amendment On Content Blocking
-https://www.livelaw.in/high-court/bombay-high-court/kunal-kamra-it-rules-amendment-challenge-sahyog-portal-centre-content-blocking-power-541500
+### 2026-07-16T11:57:57+00:00
+Long-Running Jamabandi Can't Be Cancelled By Revenue Authorities; Remedy Lies Before Civil Court: Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-long-running-jamabandi-cancelled-revenue-authorities-541491
 
-[Read on Telegram](https://t.me/livelawindia/114815)
-
----
-### 2026-07-16T06:13:15+00:00
-Don't Introduce Third Language In Class 9, It's Stressful To Students: Justice BV Nagarathna To Centre
-https://www.livelaw.in/top-stories/dont-introduce-third-language-in-class-9-its-stressful-to-students-justice-bv-nagarathna-to-centre-541501
-
-[Read on Telegram](https://t.me/livelawindia/114816)
+[Read on Telegram](https://t.me/livelawindia/114859)
 
 ---
-### 2026-07-16T06:20:55+00:00
-Justice Ujjal Bhuyan To Deliver Keynote Address At The Law Forum's Discussion On Arbitration Reforms
-https://www.livelaw.in/events/justice-ujjal-bhuyan-to-deliver-keynote-address-at-the-law-forums-discussion-on-arbitration-reforms-541503
+### 2026-07-16T12:14:27+00:00
+Following Bihar SIR Judgment, Supreme Court Closes Tamil Nadu SIR Cases
+https://www.livelaw.in/top-stories/supreme-court-tamil-nadu-sir-batch-closed-following-bihar-sir-judgment-petitioners-at-liberty-to-avail-other-remedies-under-law-541583
 
-[Read on Telegram](https://t.me/livelawindia/114817)
-
----
-### 2026-07-16T06:31:15+00:00
-'May Affect Peace In Society': Orissa High Court Stays Release Of Animated Movie 'Mahaprabhu Jagannath' Ahead Of Rath Yatra
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-stays-release-animated-movie-mahaprabhu-jagannath-541507
-
-[Read on Telegram](https://t.me/livelawindia/114818)
+[Read on Telegram](https://t.me/livelawindia/114860)
 
 ---
-### 2026-07-16T06:35:55+00:00
-Suicide Abetment | 'Persistent Humiliation Touching Domestic Life & Dignity Can Amount To Instigation': Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-suicide-abetment-persistent-humiliation-domestic-life-dignity-instigation-541509
+### 2026-07-16T12:16:27+00:00
+Immigration Consultant Liable For Misrepresenting Canadian College Admission, Chandigarh Consumer Commission Orders ₹12.35 Lakh Refund
+https://www.livelaw.in/consumer-cases/immigration-consultant-liable-for-misrepresenting-canadian-college-admission-chandigarh-consumer-commission-orders-1235-lakh-refund-541584
 
-[Read on Telegram](https://t.me/livelawindia/114819)
-
----
-### 2026-07-16T06:41:55+00:00
-Twisha Sharma Dowry Death Case: MP Court Extends Judicial Custody Of Giribala Singh, Samarth Singh Till July 28
-https://www.livelaw.in/news-updates/twisha-sharma-dowry-death-giribala-singh-samarth-singh-judicial-custody-extended-541510
-
-[Read on Telegram](https://t.me/livelawindia/114820)
+[Read on Telegram](https://t.me/livelawindia/114861)
 
 ---
-### 2026-07-16T06:45:05+00:00
-Supreme Court Criticises Delhi Police For Not Invoking Attempt to Murder Charge In Attack On Advocate, Transfers Probe To Crime Branch
-https://www.livelaw.in/top-stories/supreme-court-criticises-delhi-police-for-not-invoking-attempt-to-murder-charge-in-attack-on-advocate-transfers-probe-to-crime-branch-541511
+### 2026-07-16T12:29:07+00:00
+Gujarat High Court Denies Bail To Woman Accused Of Forcing Minor Into Flesh Trade, Says Being A Lady Not Ground For Release
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-bail-woman-pocso-minor-girl-flesh-trade-541589
 
-[Read on Telegram](https://t.me/livelawindia/114821)
-
----
-### 2026-07-16T06:48:25+00:00
-Kerala High Court Orders Prison Department To Set Up Office For Committee Overseeing Supreme Court's Prison Reforms Directions
-https://www.livelaw.in/high-court/kerala-high-court/prison-reforms-establish-monitoring-committee-office-in-ernakulam-541512
-
-[Read on Telegram](https://t.me/livelawindia/114822)
+[Read on Telegram](https://t.me/livelawindia/114862)
 
 ---
-### 2026-07-16T06:53:05+00:00
-'Mere Failure To Produce Bills Or Receipts Does Not Disprove That In-Laws Were Given Stridhan During Marriage': Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-produce-bills-receipts-stridhan-articles-proof-541489
+### 2026-07-16T12:32:47+00:00
+Release Of Bank Guarantee Is Admission Of Unblemished Completion Of Work: Jharkhand High Court Directs Payment Of Contractor's Dues
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-release-bank-guarantee-conduct-unblemished-completion-work-541492
 
-[Read on Telegram](https://t.me/livelawindia/114823)
-
----
-### 2026-07-16T06:57:45+00:00
-Wife Who Voluntarily Left Matrimonial Home, Engaged In Extramarital Relationship Not Entitled To Divorce: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/extramarital-relationship-wife-voluntarily-left-home-not-entitled-to-divorce-541514
-
-[Read on Telegram](https://t.me/livelawindia/114824)
+[Read on Telegram](https://t.me/livelawindia/114863)
 
 ---
-### 2026-07-16T07:03:25+00:00
-'Can't Be Tried As Adult': Karnataka High Court Stays POCSO Case Against Youth Challenging Chargesheet Filed Without JJ Board Assessment
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-teenager-stay-pocso-proceedings-541515
+### 2026-07-16T12:34:28+00:00
+Delhi High Court Bar Association Suspends Strike Call After Assurance From Chief Justice
+https://www.livelaw.in/news-updates/delhi-high-court-lawyers-strike-suspended-chief-justice-assurance-pecuniary-jurisdiction-541592
 
-[Read on Telegram](https://t.me/livelawindia/114825)
-
----
-### 2026-07-16T07:03:35+00:00
-Supreme Court Orders States/UTs To Frame Policy For Early Release Of Elderly And Terminally Ill Prisoners
-https://www.livelaw.in/top-stories/supreme-court-orders-statesuts-to-frame-policy-for-early-release-of-elderly-and-terminally-ill-prisoners-541516
-
-[Read on Telegram](https://t.me/livelawindia/114826)
+[Read on Telegram](https://t.me/livelawindia/114864)
 
 ---
-### 2026-07-16T07:18:05+00:00
-Procedural Interim Orders Not Appealable Under Section 5 Of Kerala High Court Act: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/procedural-interim-orders-not-appealable-section-5-high-court-act-541518
+### 2026-07-16T12:34:38+00:00
+SCBA Expresses Solidarity With Sonam Wangchuk, Laments Lack Of Govt Response To His Demands
+https://www.livelaw.in/top-stories/scba-expresses-solidarity-with-sonam-wangchuk-laments-lack-of-govt-response-to-his-demands-541593
 
-[Read on Telegram](https://t.me/livelawindia/114827)
-
----
-### 2026-07-16T07:35:55+00:00
-'Effortless Practice And Assured Orders': Kerala High Court Flags Young Lawyers' Role In Pleas To Unfreeze Accounts Linked To Cyber Fraud
-https://www.livelaw.in/high-court/kerala-high-court/young-lawyers-supporting-cyber-crime-unfreezing-pleas-541520
-
-[Read on Telegram](https://t.me/livelawindia/114828)
+[Read on Telegram](https://t.me/livelawindia/114865)
 
 ---
-### 2026-07-16T07:47:15+00:00
-'Complaint By Embassy Can't Barter Fundamental Rights': Karnataka High Court On Homestay Owner's Illegal Arrest In US National Rape Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-declares-kodagu-homestay-owner-arrest-illegal-541522
+### 2026-07-16T12:44:28+00:00
+Supreme Court Judges Unveil Plans For Faster Disposal Of Old Matters, Better Case Management
+https://www.livelaw.in/top-stories/supreme-court-judges-unveil-plans-for-faster-disposal-of-old-matters-better-case-management-541595
 
-[Read on Telegram](https://t.me/livelawindia/114829)
-
----
-### 2026-07-16T07:55:55+00:00
-Consumer Court Directs Maruti Suzuki To Replace Car With E-20 Compliant Model
-https://www.livelaw.in/consumer-cases/raipur-consumer-commission-maruti-suzuki-grand-vitara-e20-fuel-compatibility-order-541525
-
-[Read on Telegram](https://t.me/livelawindia/114830)
+[Read on Telegram](https://t.me/livelawindia/114866)
 
 ---
-### 2026-07-16T07:57:15+00:00
-Advocate Commissioner's Report Only Assists Court, Does Not Determine Rights Of Parties: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-commissioner-report-assists-court-collect-evidence-541524
+### 2026-07-16T12:47:48+00:00
+P&H High Court Grants Bail In NDPS Case, Says Marriage With POCSO Victim Indicates Scope For Rehabilitation
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/bail-in-drugs-case-ndps-act-accused-rehabilitation-married-pocso-victim-541596
 
-[Read on Telegram](https://t.me/livelawindia/114831)
-
----
-### 2026-07-16T08:07:16+00:00
-'Mere Cyclostyled Documents': Rajasthan High Court Seeks District-Wise Requirement Of Shelter Homes For Women And Children
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-orders-requirement-photographs-nari-niketan-balika-grah-foster-homes-541526
-
-[Read on Telegram](https://t.me/livelawindia/114832)
+[Read on Telegram](https://t.me/livelawindia/114867)
 
 ---
-### 2026-07-16T08:09:56+00:00
-Supreme Court Refuses To Hear Contempt Pleas Alleging Violation Of 'Bulldozer' Judgment, Sends Matters To High Courts
-https://www.livelaw.in/top-stories/supreme-court-refuses-to-hear-contempt-pleas-alleging-violation-of-bulldozer-judgment-sends-matters-to-high-courts-541532
+### 2026-07-16T12:55:08+00:00
+Solar Scam: Kerala High Court Quashes Criminal Case Against Former Chief Minister's Personal Staff Tenny Joppen
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-solar-scam-tenny-joppen-oommen-chandy-541598
 
-[Read on Telegram](https://t.me/livelawindia/114833)
+[Read on Telegram](https://t.me/livelawindia/114868)
 
 ---
-### 2026-07-16T08:17:36+00:00
-AP High Court Questions 50-Year Delay In Releasing Land Acquisition Compensation, Says State's Role Not Limited To Passing Award
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-directs-state-land-acquisition-compensation-50-years-delay-541529
+### 2026-07-16T13:02:28+00:00
+'Exceptional Circumstances': Kerala High Court Permits 3 CBSE Students To Upload Revalued Marks On KEAM Portal
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-keam-cbse-students-ranklist-541599
 
-[Read on Telegram](https://t.me/livelawindia/114834)
+[Read on Telegram](https://t.me/livelawindia/114869)
+
+---
+### 2026-07-16T13:08:18+00:00
+PDS Contractor Accused Of Diverting Foodgrains For Black Marketing Can Be Blacklisted Without Awaiting Trial: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-pds-contractor-accused-diverting-foodgrains-black-marketing-541493
+
+[Read on Telegram](https://t.me/livelawindia/114870)
+
+---
+### 2026-07-16T13:09:58+00:00
+Bengaluru Twin Tunnel Contracts Will Be Subject To Outcome Of PILs Challenging Project: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-challenge-bengaluru-twin-tunnel-road-541600
+
+[Read on Telegram](https://t.me/livelawindia/114871)
+
+---
+### 2026-07-16T13:13:18+00:00
+Sharjeel Imam Moves High Court Seeking Bail In Delhi Riots Larger Conspiracy Case, Hearing Tomorrow
+https://www.livelaw.in/high-court/delhi-high-court/sharjeel-imam-seeks-bail-delhi-riots-uapa-case-541601
+
+[Read on Telegram](https://t.me/livelawindia/114872)
+
+---
+### 2026-07-16T13:13:29+00:00
+Supreme Court Deplores Wives' Practice Of Complaining To Husbands' Employers Over Matrimonial Disputes
+https://www.livelaw.in/top-stories/supreme-court-deplores-practice-of-wives-complaining-to-husbands-employers-over-matrimonial-disputes-541575
+
+[Read on Telegram](https://t.me/livelawindia/114873)
+
+---
+### 2026-07-16T13:17:28+00:00
+Confirmed Booking, No Check-In: Consumer Commission Holds OYO Liable For Deficiency In Service
+https://www.livelaw.in/consumer-cases/confirmed-booking-no-check-in-consumer-commission-holds-oyo-liable-for-deficiency-in-service-541587
+
+[Read on Telegram](https://t.me/livelawindia/114874)
+
+---
+### 2026-07-16T13:17:38+00:00
+'Issuing Passport Does Not Give Right To Travel Abroad': Srinagar Court Paves Way For Passport Renewal Of Dr. Farooq Abdullah Accused In JKCA Case
+https://www.livelaw.in/news-updates/court-clears-way-for-passport-renewal-of-dr-farooq-abdullah-in-jkca-case-says-issuance-of-passport-does-not-automatically-confer-right-to-travel-abroad-541602
+
+[Read on Telegram](https://t.me/livelawindia/114875)
+
+---
+### 2026-07-16T13:23:39+00:00
+Press Freedom Can't Shield Irresponsible Journalism By 'Self-Styled' Reporters: Delhi High Court Calls For Media Regulation
+https://www.livelaw.in/high-court/delhi-high-court/press-freedom-irresponsible-journalism-legislature-consider-media-regulation-541603
+
+[Read on Telegram](https://t.me/livelawindia/114876)
+
+---
+### 2026-07-16T13:23:49+00:00
+Allahabad High Court Grants Bail To Man Jailed Since May 2025 Over Alleged PM Modi 'Apologising To Pakistan' Post
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-grants-bail-may-2025-pm-modi-apologising-pakistan-541604
+
+[Read on Telegram](https://t.me/livelawindia/114877)
+
+---
+### 2026-07-16T13:50:39+00:00
+LiveLaw Daily | Vineet Jain | Kunal Kamra | Sonam Wangchuk | Lakhimpur Kheri | Jagannath Film
+https://www.livelaw.in/podcast/students-clat-upsc-sonam-wangchuk-neet-times-of-india-vineet-jain-e20-petrol-ethanol-bjp-judiciary-students-news-india-advocates-lawyers-541611
+
+[Read on Telegram](https://t.me/livelawindia/114878)
 
 ---
