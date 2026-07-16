@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-15T15:43:18+00:00*
+*Last Updated: 2026-07-16T08:23:08+00:00*
+
+---
+
+### 2026-07-16T08:23:08+00:00
+Supreme Court Relegates "Bulldozer Justice" Contempt Petitions To High Courts; Directs HCs To Decide Within Four Months
+https://www.verdictum.in/supreme-court/bulldozer-justice-contempt-petitions-high-courts-factual-inquiry-four-months-1617854
+
+[Source Link](https://t.me/verdictumlegalupdates/27995)
+
+---
+
+### 2026-07-16T08:12:27+00:00
+Unexplained Delay In Disposal Of Detenue's Representation Would Render Continued Detention Impermissible & Illegal: Andhra Pradesh High Court
+https://www.verdictum.in/andhra-pradesh-high-court/cheemparthi-shaheen-v-the-state-of-andhra-pradesh-delay-detenue-representation-1617845
+
+[Source Link](https://t.me/verdictumlegalupdates/27994)
+
+---
+
+### 2026-07-16T07:32:07+00:00
+Supreme Court Asks Police To Add Attempt To Murder Charges, Transfer Probe To Crime Branch In Advocate Assault Case
+https://www.verdictum.in/supreme-court/police-add-attempt-murder-charges-transfer-probe-crime-branch-advocate-assault-case-1617846
+
+[Source Link](https://t.me/verdictumlegalupdates/27993)
+
+---
+
+### 2026-07-16T07:02:45+00:00
+FIR Was A “Post-Investigation Document”: Supreme Court Acquits 3 Accused In 1977 Murder Case
+https://www.verdictum.in/supreme-court/deo-prasad-v-state-of-uttar-pradesh-2026-insc-707-fir-was-a-post-investigation-document-1977-murder-case-1617838
+
+[Source Link](https://t.me/verdictumlegalupdates/27992)
+
+---
+
+### 2026-07-16T06:23:04+00:00
+Supreme Court To Hear Plea Against HC Order Restraining Release Of Animated Movie ‘Mahaprabhu Jagannath'
+https://www.verdictum.in/supreme-court/order-restraining-release-of-animated-movie-mahaprabhu-jagannath-1617837
+
+[Source Link](https://t.me/verdictumlegalupdates/27991)
+
+---
+
+### 2026-07-16T05:28:43+00:00
+Breaking: Supreme Court Issues Guidelines For Uniform Premature Release Policy; Directs States To Fast-Track Release Of Terminally Ill & Elderly Prisoners Via E-Prisons Integration
+https://www.verdictum.in/supreme-court/mandate-uniform-premature-release-policy-states-release-terminally-ill-elderly-prisoners-1617833
+
+[Source Link](https://t.me/verdictumlegalupdates/27990)
+
+---
+
+### 2026-07-16T05:12:41+00:00
+Mere Non-Use Of Spy Pen Camera Not Mitigating Circumstance: Calcutta High Court Sets Aside Order Reducing Punishment Of CISF Constable
+https://www.verdictum.in/calcutta-high-court/union-of-india-others-v-sanjit-sahu-spy-pen-camera-cisf-constable-1617832
+
+[Source Link](https://t.me/verdictumlegalupdates/27989)
+
+---
+
+### 2026-07-16T04:32:30+00:00
+Part Of Offence U/S.4 Of PMLA Occurred By Concealment Of Crime Proceeds Attached At Delhi: Supreme Court Transfers Real Estate Fraud Case Involving Lalu Yadav’s Aide
+https://www.verdictum.in/supreme-court/amit-katyal-v-union-of-india-2026-insc-702-pmla-real-estate-fraud-1617812
+
+[Source Link](https://t.me/verdictumlegalupdates/27988)
 
 ---
 
@@ -97,70 +161,6 @@ Earnest Money Refund Clause In Agreement To Sell Does Not Bar Specific Performan
 https://www.verdictum.in/supreme-court/jaspal-singh-v-ashwani-kumar-2026-insc-700-specific-performance-act-1617796
 
 [Source Link](https://t.me/verdictumlegalupdates/27976)
-
----
-
-### 2026-07-15T09:02:51+00:00
-Section 22 Hindu Succession Act Applicable To Agricultural Land, Distinguishable From Punjab Pre-emption Act Struck Down In Atam Prakash: Supreme Court
-https://www.verdictum.in/supreme-court/mahinder-others-v-puran-singh-2026-insc-698-section-22-hindu-succession-act-1617794
-
-[Source Link](https://t.me/verdictumlegalupdates/27975)
-
----
-
-### 2026-07-15T08:33:10+00:00
-Supreme Court Expresses Concern Over Students ‘Frustration’ In CBSE’s Digital Marking System
-https://www.verdictum.in/supreme-court/students-frustration-in-cbses-digital-marking-system-1617793
-
-[Source Link](https://t.me/verdictumlegalupdates/27974)
-
----
-
-### 2026-07-15T08:02:29+00:00
-Supreme Court Grants Bail To Alleged Kingpin Involved In District Mineral Fund Scam In Chhattisgarh
-https://www.verdictum.in/supreme-court/bail-to-alleged-kingpin-involved-in-district-mineral-fund-scam-1617788
-
-[Source Link](https://t.me/verdictumlegalupdates/27973)
-
----
-
-### 2026-07-15T07:32:48+00:00
-State’s Statutory Power To Revise Royalty Under MMDR Act Survives Even In Absence Of Express Enhancement Clause In Mining Lease: Supreme Court
-https://www.verdictum.in/supreme-court/state-of-haryana-ors-v-ms-faridabad-gurgaon-minerals-anr-with-state-of-haryana-ors-v-ms-ganpati-enterprises-slate-mines-2026-insc-690-1617782
-
-[Source Link](https://t.me/verdictumlegalupdates/27972)
-
----
-
-### 2026-07-15T07:02:07+00:00
-State Can't Be Lethargic In Appointments: Apex Court Refuses To Extend SCDRC Member’s Tenure, Says Protection Granted Earlier Is Limited To Central Tribunals
-https://www.verdictum.in/supreme-court/refuses-extend-scdrc-member-tenure-protection-granted-court-limited-central-tribunals-1617785
-
-[Source Link](https://t.me/verdictumlegalupdates/27971)
-
----
-
-### 2026-07-15T06:32:45+00:00
-Withdrawing Sales Tax Exemption From Imported Sugar Retrospectively Not Unconstitutional But No Penalty Can Be Imposed For Pre-Amendment Period: Supreme Court
-https://www.verdictum.in/supreme-court/asia-sugar-chemical-co-v-the-state-of-karnataka-2026-insc-693-sales-tax-1617778
-
-[Source Link](https://t.me/verdictumlegalupdates/27970)
-
----
-
-### 2026-07-15T06:02:24+00:00
-Mere Existence Of Trees Does Not Make Land “Forest” Or “Deemed Forest” To Invalidate Acquisition For Duly Sanctioned Projects: Supreme Court
-https://www.verdictum.in/supreme-court/alok-kotahwala-ors-v-jaipur-metro-rail-corporation-limited-ors-2026-insc-682-1617772
-
-[Source Link](https://t.me/verdictumlegalupdates/27969)
-
----
-
-### 2026-07-15T05:33:03+00:00
-Rule Prescribing Minimum Cut-Off In Interview Is Within State’s Legislative Competence: Supreme Court Dismisses Appeal Of District Judge Aspirant
-https://www.verdictum.in/supreme-court/manoj-goyal-v-rajasthan-high-court-2026-insc-699-rule-district-judge-appointment-1617771
-
-[Source Link](https://t.me/verdictumlegalupdates/27968)
 
 ---
 
