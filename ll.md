@@ -1,86 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-16T11:57:57+00:00*
+*Last Updated: 2026-07-16T13:08:18+00:00*
 
 ---
 
-### 2026-07-16T11:57:57+00:00
-Long-Running Jamabandi Can't Be Cancelled By Revenue Authorities; Remedy Lies Before Civil Court: Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-long-running-jamabandi-cancelled-revenue-authorities-541491
-
-[Read on Telegram](https://t.me/livelawindia/114859)
-
----
-### 2026-07-16T12:14:27+00:00
-Following Bihar SIR Judgment, Supreme Court Closes Tamil Nadu SIR Cases
-https://www.livelaw.in/top-stories/supreme-court-tamil-nadu-sir-batch-closed-following-bihar-sir-judgment-petitioners-at-liberty-to-avail-other-remedies-under-law-541583
-
-[Read on Telegram](https://t.me/livelawindia/114860)
-
----
-### 2026-07-16T12:16:27+00:00
-Immigration Consultant Liable For Misrepresenting Canadian College Admission, Chandigarh Consumer Commission Orders ₹12.35 Lakh Refund
-https://www.livelaw.in/consumer-cases/immigration-consultant-liable-for-misrepresenting-canadian-college-admission-chandigarh-consumer-commission-orders-1235-lakh-refund-541584
-
-[Read on Telegram](https://t.me/livelawindia/114861)
-
----
-### 2026-07-16T12:29:07+00:00
-Gujarat High Court Denies Bail To Woman Accused Of Forcing Minor Into Flesh Trade, Says Being A Lady Not Ground For Release
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-bail-woman-pocso-minor-girl-flesh-trade-541589
-
-[Read on Telegram](https://t.me/livelawindia/114862)
-
----
-### 2026-07-16T12:32:47+00:00
-Release Of Bank Guarantee Is Admission Of Unblemished Completion Of Work: Jharkhand High Court Directs Payment Of Contractor's Dues
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-release-bank-guarantee-conduct-unblemished-completion-work-541492
-
-[Read on Telegram](https://t.me/livelawindia/114863)
-
----
-### 2026-07-16T12:34:28+00:00
-Delhi High Court Bar Association Suspends Strike Call After Assurance From Chief Justice
-https://www.livelaw.in/news-updates/delhi-high-court-lawyers-strike-suspended-chief-justice-assurance-pecuniary-jurisdiction-541592
-
-[Read on Telegram](https://t.me/livelawindia/114864)
-
----
-### 2026-07-16T12:34:38+00:00
-SCBA Expresses Solidarity With Sonam Wangchuk, Laments Lack Of Govt Response To His Demands
-https://www.livelaw.in/top-stories/scba-expresses-solidarity-with-sonam-wangchuk-laments-lack-of-govt-response-to-his-demands-541593
-
-[Read on Telegram](https://t.me/livelawindia/114865)
-
----
-### 2026-07-16T12:44:28+00:00
-Supreme Court Judges Unveil Plans For Faster Disposal Of Old Matters, Better Case Management
-https://www.livelaw.in/top-stories/supreme-court-judges-unveil-plans-for-faster-disposal-of-old-matters-better-case-management-541595
-
-[Read on Telegram](https://t.me/livelawindia/114866)
-
----
-### 2026-07-16T12:47:48+00:00
-P&H High Court Grants Bail In NDPS Case, Says Marriage With POCSO Victim Indicates Scope For Rehabilitation
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/bail-in-drugs-case-ndps-act-accused-rehabilitation-married-pocso-victim-541596
-
-[Read on Telegram](https://t.me/livelawindia/114867)
-
----
-### 2026-07-16T12:55:08+00:00
-Solar Scam: Kerala High Court Quashes Criminal Case Against Former Chief Minister's Personal Staff Tenny Joppen
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-solar-scam-tenny-joppen-oommen-chandy-541598
-
-[Read on Telegram](https://t.me/livelawindia/114868)
-
----
-### 2026-07-16T13:02:28+00:00
-'Exceptional Circumstances': Kerala High Court Permits 3 CBSE Students To Upload Revalued Marks On KEAM Portal
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-keam-cbse-students-ranklist-541599
-
-[Read on Telegram](https://t.me/livelawindia/114869)
-
----
 ### 2026-07-16T13:08:18+00:00
 PDS Contractor Accused Of Diverting Foodgrains For Black Marketing Can Be Blacklisted Without Awaiting Trial: Patna High Court
 https://www.livelaw.in/high-court/patna-high-court/patna-high-court-pds-contractor-accused-diverting-foodgrains-black-marketing-541493
@@ -142,5 +65,82 @@ LiveLaw Daily | Vineet Jain | Kunal Kamra | Sonam Wangchuk | Lakhimpur Kheri | J
 https://www.livelaw.in/podcast/students-clat-upsc-sonam-wangchuk-neet-times-of-india-vineet-jain-e20-petrol-ethanol-bjp-judiciary-students-news-india-advocates-lawyers-541611
 
 [Read on Telegram](https://t.me/livelawindia/114878)
+
+---
+### 2026-07-16T14:16:09+00:00
+Supreme Court Asks Union To Consider Rail Fare Concessions, Emergency Quota For Acid Attack Survivors
+https://www.livelaw.in/top-stories/supreme-court-asks-union-railways-to-consider-concessions-reservation-emergency-quota-for-acid-attack-survivors-541615
+
+[Read on Telegram](https://t.me/livelawindia/114879)
+
+---
+### 2026-07-16T14:16:49+00:00
+₹20,000 Maintenance To Wife & Child Not Excessive For Man Maintaining Mercedes Car: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-husband-plea-reduce-maintenance-541616
+
+[Read on Telegram](https://t.me/livelawindia/114880)
+
+---
+### 2026-07-16T14:27:09+00:00
+Master's Candidates Lacking Prescribed Bachelor's Degree Not Eligible For Recruitment As Govt School Teachers: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/masters-candidates-lacking-prescribed-bachelors-degree-not-eligible-for-recruitment-as-govt-school-teachers-delhi-high-court-541484
+
+[Read on Telegram](https://t.me/livelawindia/114881)
+
+---
+### 2026-07-16T14:27:29+00:00
+WBPSC Violated Rules, Conducted Interview Unfairly: Calcutta High Court Quashes Museum Keeper Appointment
+https://www.livelaw.in/high-court/calcutta-high-court/wbpsc-violated-rules-conducted-interview-unfairly-calcutta-high-court-quashes-archaeological-keeper-appointment-541549
+
+[Read on Telegram](https://t.me/livelawindia/114882)
+
+---
+### 2026-07-16T14:32:29+00:00
+Let's Talk About Menstrual Leaves In India
+https://www.livelaw.in/articles/menstrual-leaves-india-541183
+
+[Read on Telegram](https://t.me/livelawindia/114883)
+
+---
+### 2026-07-16T15:10:19+00:00
+Is Application For Probate Of Will Time-Barred If Not Filed Within 3 Years Of Testator's Death? Supreme Court Answers
+https://www.livelaw.in/supreme-court/supreme-court-judgment-probate-of-will-limitation-period-541622
+
+[Read on Telegram](https://t.me/livelawindia/114884)
+
+---
+### 2026-07-16T15:11:39+00:00
+2026 LiveLaw (SC) 683 | SANJAY SHARMA @ SANJAY BHARDWAJ VERSUS KRISHNADHAN KHAWARE AND ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-683-sanjay-sharma-sanjay-bhardwaj-versus-krishnadhan-khaware-and-ors-541623
+
+[Read on Telegram](https://t.me/livelawindia/114885)
+
+---
+### 2026-07-16T15:12:39+00:00
+Filing Vakalatnama Is Not Waiver Of Service Of Summons; Limitation To File Written Statement Starts After Proper Service: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-filing-vakalatnama-reply-interim-application-541445
+
+[Read on Telegram](https://t.me/livelawindia/114886)
+
+---
+### 2026-07-16T17:10:00+00:00
+Can Your Commercial Interests Trump Environmental Protection? Bombay High Court Asks PoP Ganesh Idol Makers
+https://www.livelaw.in/high-court/bombay-high-court/pop-ganesh-idol-immersion-in-natural-water-society-interest-environment-concerns-541626
+
+[Read on Telegram](https://t.me/livelawindia/114887)
+
+---
+### 2026-07-16T17:12:40+00:00
+Supreme Court Daily Round-Up : July 16, 2026
+https://www.livelaw.in/supreme-court/supreme-court-daily-round-up-july-16-2026-541621
+
+[Read on Telegram](https://t.me/livelawindia/114888)
+
+---
+### 2026-07-16T18:15:30+00:00
+NUALS Welcomes New Batch With Induction Programme; Launches Publications And Research Initiatives
+https://www.livelaw.in/lawschool/news/nuals-welcomes-new-batch-induction-programme-launches-publications-research-initiatives-541630
+
+[Read on Telegram](https://t.me/livelawindia/114889)
 
 ---
