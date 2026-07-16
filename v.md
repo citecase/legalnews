@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-16T14:32:54+00:00*
+*Last Updated: 2026-07-16T16:02:57+00:00*
+
+---
+
+### 2026-07-16T16:02:57+00:00
+Superintendent (Legal) Vacancy At Union Public Service Commission (UPSC)
+https://www.verdictum.in/job-updates/union-public-service-commission-1617871
+
+[Source Link](https://t.me/verdictumlegalupdates/28010)
+
+---
+
+### 2026-07-16T15:32:16+00:00
+Penetration Not Established: Sikkim High Court Alters Conviction In 90-Year-Old Woman's Rape Case
+https://www.verdictum.in/sikkim-high-court/chenga-thsering-bhutia-v-state-of-sikkim-rape-attempt-90-year-old-woman-1617876
+
+[Source Link](https://t.me/verdictumlegalupdates/28009)
+
+---
+
+### 2026-07-16T15:02:35+00:00
+Playing Games Is A Fundamental Right Of Children: Karnataka High Court Directs Apartment Association To Remove Flower Pots From Common Stairways & Flat Corridors
+https://www.verdictum.in/karnataka-high-court/sangeetha-agrawal-v-esteem-gardenia-apartment-owners-association-2026khc30529-fundamental-right-of-children-playing-games-i-1617875
+
+[Source Link](https://t.me/verdictumlegalupdates/28008)
 
 ---
 
@@ -137,30 +161,6 @@ Supreme Court To Hear Plea Against HC Order Restraining Release Of Animated Movi
 https://www.verdictum.in/supreme-court/order-restraining-release-of-animated-movie-mahaprabhu-jagannath-1617837
 
 [Source Link](https://t.me/verdictumlegalupdates/27991)
-
----
-
-### 2026-07-16T05:28:43+00:00
-Breaking: Supreme Court Issues Guidelines For Uniform Premature Release Policy; Directs States To Fast-Track Release Of Terminally Ill & Elderly Prisoners Via E-Prisons Integration
-https://www.verdictum.in/supreme-court/mandate-uniform-premature-release-policy-states-release-terminally-ill-elderly-prisoners-1617833
-
-[Source Link](https://t.me/verdictumlegalupdates/27990)
-
----
-
-### 2026-07-16T05:12:41+00:00
-Mere Non-Use Of Spy Pen Camera Not Mitigating Circumstance: Calcutta High Court Sets Aside Order Reducing Punishment Of CISF Constable
-https://www.verdictum.in/calcutta-high-court/union-of-india-others-v-sanjit-sahu-spy-pen-camera-cisf-constable-1617832
-
-[Source Link](https://t.me/verdictumlegalupdates/27989)
-
----
-
-### 2026-07-16T04:32:30+00:00
-Part Of Offence U/S.4 Of PMLA Occurred By Concealment Of Crime Proceeds Attached At Delhi: Supreme Court Transfers Real Estate Fraud Case Involving Lalu Yadav’s Aide
-https://www.verdictum.in/supreme-court/amit-katyal-v-union-of-india-2026-insc-702-pmla-real-estate-fraud-1617812
-
-[Source Link](https://t.me/verdictumlegalupdates/27988)
 
 ---
 
