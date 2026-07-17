@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-17T08:22:29+00:00*
+*Last Updated: 2026-07-17T14:02:32+00:00*
+
+---
+
+### 2026-07-17T14:02:32+00:00
+Assets Acquired By Bhakthajana Samithi While Functioning As Temple Advisory Committee Vest In Deity Absent Proof Of Independent Funds: Kerala High Court
+https://www.verdictum.in/kerala-high-court/thuravoor-mahakshethra-upadeshaka-samithy-v-travancore-devaswom-board-2026ker49660-1617940
+
+[Source Link](https://t.me/verdictumlegalupdates/28028)
+
+---
+
+### 2026-07-17T13:33:10+00:00
+Longstanding Jamabandi Can’t Be Cancelled By State In Summary Proceeding: Patna High Court Grants Relief To Landowners
+https://www.verdictum.in/patna-high-court/chandra-kishore-yadav-v-the-state-of-bihar-jamabandi-state-landowners-1617939
+
+[Source Link](https://t.me/verdictumlegalupdates/28027)
+
+---
+
+### 2026-07-17T13:02:49+00:00
+Railways Not Liable For Short Delivery Of Owner’s Risk Consignment Unless Consignor Proves Quantity And Negligence: Supreme Court
+https://www.verdictum.in/supreme-court/ms-bajaj-trading-company-v-union-of-india-2026-insc-711-railway-tribunal-1617938
+
+[Source Link](https://t.me/verdictumlegalupdates/28026)
+
+---
+
+### 2026-07-17T12:32:38+00:00
+We Don’t Want Any Untoward Thing To Happen: Apex Court Asks Rajasthan Govt To Report On Asaram's Health Amid Interim Bail Plea
+https://www.verdictum.in/supreme-court/rajasthan-govt-to-report-on-asarams-health-amid-interim-bail-plea-1617934
+
+[Source Link](https://t.me/verdictumlegalupdates/28025)
+
+---
+
+### 2026-07-17T12:03:17+00:00
+Supreme Court Seeks Responses Of EC, Bengal Govt On Plea For Data On Claims Of Voters Deleted Under SIR
+https://www.verdictum.in/supreme-court/ec-bengal-govt-on-plea-for-data-on-claims-of-voters-deleted-under-sir-1617933
+
+[Source Link](https://t.me/verdictumlegalupdates/28024)
+
+---
+
+### 2026-07-17T11:32:36+00:00
+You Have No Business Of Writing 'Doctor' If You Don't Do Your Duty": Supreme Court Slams Doctors For Denying Care To Rape Victim
+https://www.verdictum.in/supreme-court/slams-doctors-for-denying-care-to-rape-victim-1617932
+
+[Source Link](https://t.me/verdictumlegalupdates/28023)
+
+---
+
+### 2026-07-17T11:02:35+00:00
+Supreme Court Extends Deadline For Bengaluru Five City Corporation Elections To December 2026 Due To Ongoing SIR
+https://www.verdictum.in/supreme-court/deadline-for-bengaluru-five-city-corporation-election-extended-1617929
+
+[Source Link](https://t.me/verdictumlegalupdates/28022)
+
+---
+
+### 2026-07-17T10:32:33+00:00
+No Plea Of Lack Of Funds Shall Be Entertained: Supreme Court Directs Immediate Construction Of Washrooms For Women Lawyers Across All Courts
+https://www.verdictum.in/supreme-court/directs-immediate-construction-washrooms-women-lawyers-courts-1617931
+
+[Source Link](https://t.me/verdictumlegalupdates/28021)
+
+---
+
+### 2026-07-17T10:03:12+00:00
+Electrohomeopathy Certificate Does Not Entitle Practitioner To Practice Allopathy: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/santosh-kumar-sharma-v-state-of-up-and-5-others-2026ahc138560-db-1617928
+
+[Source Link](https://t.me/verdictumlegalupdates/28020)
+
+---
+
+### 2026-07-17T09:23:11+00:00
+Supreme Court To Hear Centre’s Plea Against HC Verdict Nullifying Tenders For Visa Services At Indian Missions
+https://www.verdictum.in/supreme-court/plea-against-hc-verdict-nullifying-tenders-for-visa-services-at-indian-missions-1617923
+
+[Source Link](https://t.me/verdictumlegalupdates/28019)
+
+---
+
+### 2026-07-17T08:52:50+00:00
+Supreme Court Agrees To Hear Somnath Bharti's Plea Challenging Election Of BJP's Satish Upadhyay In 2025 Assembly Polls
+https://www.verdictum.in/supreme-court/somnath-bhartis-plea-challenging-election-of-bjps-satish-upadhyay-in-2025-assembly-polls-1617916
+
+[Source Link](https://t.me/verdictumlegalupdates/28018)
 
 ---
 
@@ -73,94 +161,6 @@ Penetration Not Established: Sikkim High Court Alters Conviction In 90-Year-Old 
 https://www.verdictum.in/sikkim-high-court/chenga-thsering-bhutia-v-state-of-sikkim-rape-attempt-90-year-old-woman-1617876
 
 [Source Link](https://t.me/verdictumlegalupdates/28009)
-
----
-
-### 2026-07-16T15:02:35+00:00
-Playing Games Is A Fundamental Right Of Children: Karnataka High Court Directs Apartment Association To Remove Flower Pots From Common Stairways & Flat Corridors
-https://www.verdictum.in/karnataka-high-court/sangeetha-agrawal-v-esteem-gardenia-apartment-owners-association-2026khc30529-fundamental-right-of-children-playing-games-i-1617875
-
-[Source Link](https://t.me/verdictumlegalupdates/28008)
-
----
-
-### 2026-07-16T14:32:54+00:00
-Goonda Act Should Be Used Sparingly For Maintenance Of Public Order & Not As Tool Of Oppression: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/rahul-rahul-saroj-v-state-of-up-2026ahc-lko44291-goonda-act-public-order-1617872
-
-[Source Link](https://t.me/verdictumlegalupdates/28007)
-
----
-
-### 2026-07-16T14:02:52+00:00
-Persistent Humiliation Touching Upon Domestic Life & Dignity Can Amount To Instigation For Suicide: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/chandrajeet-singh-v-state-of-up-2026ahc137745-suicide-note-humiliation-instigation-1617870
-
-[Source Link](https://t.me/verdictumlegalupdates/28006)
-
----
-
-### 2026-07-16T13:32:30+00:00
-Daughter Adopted Pre-1956 Cannot Claim Inheritance From Adoptive Father After Inheriting From Biological Family: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/hiruben-pparbatbhai-satasiya-v-bhagwanjibhai-popatbhai-ranparia-ors-1617869
-
-[Source Link](https://t.me/verdictumlegalupdates/28005)
-
----
-
-### 2026-07-16T13:02:13+00:00
-CWC Has No Power To Deal With A Child Who Is “Neither Abandoned Nor Orphan”: Bombay High Court Orders Return Of Girl To Adoptive Parents
-https://www.verdictum.in/bombay-high-court/p-anr-v-child-welfare-committee-ors-neutral-citation-2026bhc-nag8156-db-1617868
-
-[Source Link](https://t.me/verdictumlegalupdates/28004)
-
----
-
-### 2026-07-16T12:33:08+00:00
-Supreme Court Seeks Centre’s View On Plea Seeking Concessional AC Class Rail Fare For Acid Attack Victims
-https://www.verdictum.in/supreme-court/concessional-ac-class-rail-fare-for-acid-attack-victims-1617866
-
-[Source Link](https://t.me/verdictumlegalupdates/28003)
-
----
-
-### 2026-07-16T12:02:47+00:00
-Orissa High Court Stays Release Of Animated Movie "Mahaprabhu Jagannath" On Plea Citing Depiction Distorting Spiritual History
-https://www.verdictum.in/orissa-high-court/mahesh-kumar-sahu-and-others-v-state-of-odisha-and-others-mahaprabhu-jagannath-1617863
-
-[Source Link](https://t.me/verdictumlegalupdates/28002)
-
----
-
-### 2026-07-16T11:32:36+00:00
-Appellate Courts Should Be Friend, Philosopher & Guide: Supreme Court Sets Aside Kerala High Court’s Direction To Send Sub Judge For Training
-https://www.verdictum.in/supreme-court/lakshmi-v-gopi-ors-2026-insc-709-kerala-high-court-adverse-remarks-sub-judge-1617862
-
-[Source Link](https://t.me/verdictumlegalupdates/28001)
-
----
-
-### 2026-07-16T11:03:15+00:00
-Right To Apply For Probate Is Continuous; Limitation Doesn't Apply As Long As Object Of Will Survives: Supreme Court
-https://www.verdictum.in/supreme-court/sanjay-sharma-sanjay-bhardwaj-v-krishnadhan-khaware-right-to-apply-probate-will-1617861
-
-[Source Link](https://t.me/verdictumlegalupdates/28000)
-
----
-
-### 2026-07-16T10:32:53+00:00
-Don’t Have Third Language From Class 9, It Will Increase Stress Level Of Students: Supreme Court Tells Centre
-https://www.verdictum.in/supreme-court/dont-have-third-language-from-class-9-1617859
-
-[Source Link](https://t.me/verdictumlegalupdates/27999)
-
----
-
-### 2026-07-16T10:02:32+00:00
-A Case Of Corpus Delicti: Supreme Court Upholds Conviction In Minor’s Murder Case Despite Non-Recovery Of Her Body
-https://www.verdictum.in/supreme-court/debojit-pankika-charaideo-sonari-v-the-state-of-assam-2026-insc-687-1617858
-
-[Source Link](https://t.me/verdictumlegalupdates/27998)
 
 ---
 
