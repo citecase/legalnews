@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-17T14:02:32+00:00*
+*Last Updated: 2026-07-17T16:02:36+00:00*
+
+---
+
+### 2026-07-17T16:02:36+00:00
+Principal Vacancy At Army Law College, Pune (AWES)
+https://www.verdictum.in/job-updates/army-law-college-1617944
+
+[Source Link](https://t.me/verdictumlegalupdates/28032)
+
+---
+
+### 2026-07-17T15:32:35+00:00
+Gujarat High Court Remands Lijjat Papad ESI Dispute; Orders Fresh Examination Of Women Rolling Papads' Employee Status
+https://www.verdictum.in/gujarat-high-court/regional-director-v-shree-mahila-gruh-udyog-lijjatpapad-2026gujhc44136-lijjat-papad-esi-dispute-women-rolling-papads-1617943
+
+[Source Link](https://t.me/verdictumlegalupdates/28031)
+
+---
+
+### 2026-07-17T15:03:14+00:00
+Magistrate’s Order Cryptic: Madras High Court Directs Investigation Into Complaint Of Retaliatory Intimidation Against Senior Warden Who Acted Against Ragging
+https://www.verdictum.in/madras-high-court/kannan-baba-v-the-state-of-tamilnadu-magistrate-order-investigation-complaint-ragging-1617942
+
+[Source Link](https://t.me/verdictumlegalupdates/28030)
+
+---
+
+### 2026-07-17T14:32:53+00:00
+Cannot Claim DNA Test Invades Privacy After Consenting For It: Karnataka High Court Upholds DNA Test Order In Partition Suit
+https://www.verdictum.in/karnataka-high-court/shivanna-v-hs-manjula-2026khc34595-party-cannot-claim-dna-test-invades-privacy-1617941
+
+[Source Link](https://t.me/verdictumlegalupdates/28029)
 
 ---
 
@@ -129,38 +161,6 @@ Victim's Father Admitted Falsifying Daughter's Age For School Admission: Delhi H
 https://www.verdictum.in/delhi-high-court/anarhul-haque-v-state-2026dhc5470-pocso-acquittal-conviction-set-aside-1617903
 
 [Source Link](https://t.me/verdictumlegalupdates/28013)
-
----
-
-### 2026-07-17T05:11:43+00:00
-High Court Under Article 226 Cannot Act As Court Of Appeal Over Findings Of Facts Recorded By Subordinate Courts: Supreme Court
-https://www.verdictum.in/supreme-court/basamma-anr-v-goparappa-2026-insc-712-ownership-possession-writ-petition-ex-parte-1617902
-
-[Source Link](https://t.me/verdictumlegalupdates/28012)
-
----
-
-### 2026-07-17T04:34:21+00:00
-Had Knowledge That Act Was Likely To Cause Death, But Not An Intention To Cause Death: Supreme Court Alters Conviction From Murder To Culpable Homicide
-https://www.verdictum.in/supreme-court/mehmood-khan-v-the-state-of-madhya-pradesh-2026-insc-706-intention-to-cause-death-conviction-from-murder-to-culpable-homicide-1617894
-
-[Source Link](https://t.me/verdictumlegalupdates/28011)
-
----
-
-### 2026-07-16T16:02:57+00:00
-Superintendent (Legal) Vacancy At Union Public Service Commission (UPSC)
-https://www.verdictum.in/job-updates/union-public-service-commission-1617871
-
-[Source Link](https://t.me/verdictumlegalupdates/28010)
-
----
-
-### 2026-07-16T15:32:16+00:00
-Penetration Not Established: Sikkim High Court Alters Conviction In 90-Year-Old Woman's Rape Case
-https://www.verdictum.in/sikkim-high-court/chenga-thsering-bhutia-v-state-of-sikkim-rape-attempt-90-year-old-woman-1617876
-
-[Source Link](https://t.me/verdictumlegalupdates/28009)
 
 ---
 
