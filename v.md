@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-16T16:02:57+00:00*
+*Last Updated: 2026-07-17T08:22:29+00:00*
+
+---
+
+### 2026-07-17T08:22:29+00:00
+Supreme Court Issues Notice On PIL Seeking Distinct Legal Identity And Protection For Intersex Persons
+https://www.verdictum.in/supreme-court/issues-notice-pil-seeking-distinct-legal-identity-protection-intersex-persons-1617922
+
+[Source Link](https://t.me/verdictumlegalupdates/28017)
+
+---
+
+### 2026-07-17T07:16:27+00:00
+Supreme Court Takes Suo Motu Cognizance Over Delays In Access To Life-Saving Medicines
+https://www.verdictum.in/supreme-court/suo-motu-cognizance-over-high-court-delays-access-life-saving-medicines-1617915
+
+[Source Link](https://t.me/verdictumlegalupdates/28016)
+
+---
+
+### 2026-07-17T07:02:26+00:00
+Could Not Remain Silent Till Employee Crossed 55 Years, Then Rely On Its Own Delay: Supreme Court Orders Insurance Company To Grant Compassionate Appointment
+https://www.verdictum.in/supreme-court/rahul-so-ramnarayan-madankar-v-the-new-india-assurance-company-limited-2026-insc-710-compassionate-appointmen-1617909
+
+[Source Link](https://t.me/verdictumlegalupdates/28015)
+
+---
+
+### 2026-07-17T06:32:25+00:00
+Supreme Court Permits Release Of Animated Film ‘Mahaprabhu Jagannath’ Post Rath Yatra Festivities
+https://www.verdictum.in/supreme-court/permits-release-of-animated-film-mahaprabhu-jagannath-post-rath-yatra-festivities-1617910
+
+[Source Link](https://t.me/verdictumlegalupdates/28014)
+
+---
+
+### 2026-07-17T05:52:44+00:00
+Victim's Father Admitted Falsifying Daughter's Age For School Admission: Delhi High Court Acquits POCSO Accused
+https://www.verdictum.in/delhi-high-court/anarhul-haque-v-state-2026dhc5470-pocso-acquittal-conviction-set-aside-1617903
+
+[Source Link](https://t.me/verdictumlegalupdates/28013)
+
+---
+
+### 2026-07-17T05:11:43+00:00
+High Court Under Article 226 Cannot Act As Court Of Appeal Over Findings Of Facts Recorded By Subordinate Courts: Supreme Court
+https://www.verdictum.in/supreme-court/basamma-anr-v-goparappa-2026-insc-712-ownership-possession-writ-petition-ex-parte-1617902
+
+[Source Link](https://t.me/verdictumlegalupdates/28012)
+
+---
+
+### 2026-07-17T04:34:21+00:00
+Had Knowledge That Act Was Likely To Cause Death, But Not An Intention To Cause Death: Supreme Court Alters Conviction From Murder To Culpable Homicide
+https://www.verdictum.in/supreme-court/mehmood-khan-v-the-state-of-madhya-pradesh-2026-insc-706-intention-to-cause-death-conviction-from-murder-to-culpable-homicide-1617894
+
+[Source Link](https://t.me/verdictumlegalupdates/28011)
 
 ---
 
@@ -105,62 +161,6 @@ A Case Of Corpus Delicti: Supreme Court Upholds Conviction In Minor’s Murder C
 https://www.verdictum.in/supreme-court/debojit-pankika-charaideo-sonari-v-the-state-of-assam-2026-insc-687-1617858
 
 [Source Link](https://t.me/verdictumlegalupdates/27998)
-
----
-
-### 2026-07-16T09:32:11+00:00
-Kerala High Court Restrains State Waqf Board From Taking Policy Decisions Due To Non-Inclusion Of Non-Muslim & Shia Members
-https://www.verdictum.in/kerala-high-court/shone-george-v-state-of-kerala-wppil-no-117-of-2026-f-non-muslim-and-shia-members-1617860
-
-[Source Link](https://t.me/verdictumlegalupdates/27997)
-
----
-
-### 2026-07-16T09:02:50+00:00
-Life Is Precious & All Efforts Must Be Made To Save It: Delhi High Court Asks Centre To Monitor Sonam Wangchuk’s Health
-https://www.verdictum.in/delhi-high-court/centre-to-monitor-sonam-wangchuks-health-1617850
-
-[Source Link](https://t.me/verdictumlegalupdates/27996)
-
----
-
-### 2026-07-16T08:23:08+00:00
-Supreme Court Relegates "Bulldozer Justice" Contempt Petitions To High Courts; Directs HCs To Decide Within Four Months
-https://www.verdictum.in/supreme-court/bulldozer-justice-contempt-petitions-high-courts-factual-inquiry-four-months-1617854
-
-[Source Link](https://t.me/verdictumlegalupdates/27995)
-
----
-
-### 2026-07-16T08:12:27+00:00
-Unexplained Delay In Disposal Of Detenue's Representation Would Render Continued Detention Impermissible & Illegal: Andhra Pradesh High Court
-https://www.verdictum.in/andhra-pradesh-high-court/cheemparthi-shaheen-v-the-state-of-andhra-pradesh-delay-detenue-representation-1617845
-
-[Source Link](https://t.me/verdictumlegalupdates/27994)
-
----
-
-### 2026-07-16T07:32:07+00:00
-Supreme Court Asks Police To Add Attempt To Murder Charges, Transfer Probe To Crime Branch In Advocate Assault Case
-https://www.verdictum.in/supreme-court/police-add-attempt-murder-charges-transfer-probe-crime-branch-advocate-assault-case-1617846
-
-[Source Link](https://t.me/verdictumlegalupdates/27993)
-
----
-
-### 2026-07-16T07:02:45+00:00
-FIR Was A “Post-Investigation Document”: Supreme Court Acquits 3 Accused In 1977 Murder Case
-https://www.verdictum.in/supreme-court/deo-prasad-v-state-of-uttar-pradesh-2026-insc-707-fir-was-a-post-investigation-document-1977-murder-case-1617838
-
-[Source Link](https://t.me/verdictumlegalupdates/27992)
-
----
-
-### 2026-07-16T06:23:04+00:00
-Supreme Court To Hear Plea Against HC Order Restraining Release Of Animated Movie ‘Mahaprabhu Jagannath'
-https://www.verdictum.in/supreme-court/order-restraining-release-of-animated-movie-mahaprabhu-jagannath-1617837
-
-[Source Link](https://t.me/verdictumlegalupdates/27991)
 
 ---
 
