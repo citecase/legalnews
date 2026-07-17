@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-16T13:08:18+00:00*
+*Last Updated: 2026-07-17T06:02:14+00:00*
 
 ---
 
-### 2026-07-16T13:08:18+00:00
-PDS Contractor Accused Of Diverting Foodgrains For Black Marketing Can Be Blacklisted Without Awaiting Trial: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-pds-contractor-accused-diverting-foodgrains-black-marketing-541493
+### 2026-07-17T06:02:14+00:00
+Kerala Govt Moves Supreme Court Challenges HC Order Restraining State Waqf Board From Taking Major Decisions
+https://www.livelaw.in/top-stories/kerala-govt-moves-supreme-court-challenges-hc-order-restraining-state-waqf-board-from-taking-major-decisions-541658
 
-[Read on Telegram](https://t.me/livelawindia/114870)
-
----
-### 2026-07-16T13:09:58+00:00
-Bengaluru Twin Tunnel Contracts Will Be Subject To Outcome Of PILs Challenging Project: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-challenge-bengaluru-twin-tunnel-road-541600
-
-[Read on Telegram](https://t.me/livelawindia/114871)
+[Read on Telegram](https://t.me/livelawindia/114909)
 
 ---
-### 2026-07-16T13:13:18+00:00
-Sharjeel Imam Moves High Court Seeking Bail In Delhi Riots Larger Conspiracy Case, Hearing Tomorrow
-https://www.livelaw.in/high-court/delhi-high-court/sharjeel-imam-seeks-bail-delhi-riots-uapa-case-541601
+### 2026-07-17T06:02:54+00:00
+Election Tribunal Can't Examine Validity Of Caste Certificate In Election Petition: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-validity-caste-certificate-election-tribunal-election-petition-541655
 
-[Read on Telegram](https://t.me/livelawindia/114872)
-
----
-### 2026-07-16T13:13:29+00:00
-Supreme Court Deplores Wives' Practice Of Complaining To Husbands' Employers Over Matrimonial Disputes
-https://www.livelaw.in/top-stories/supreme-court-deplores-practice-of-wives-complaining-to-husbands-employers-over-matrimonial-disputes-541575
-
-[Read on Telegram](https://t.me/livelawindia/114873)
+[Read on Telegram](https://t.me/livelawindia/114910)
 
 ---
-### 2026-07-16T13:17:28+00:00
-Confirmed Booking, No Check-In: Consumer Commission Holds OYO Liable For Deficiency In Service
-https://www.livelaw.in/consumer-cases/confirmed-booking-no-check-in-consumer-commission-holds-oyo-liable-for-deficiency-in-service-541587
+### 2026-07-17T06:25:54+00:00
+Surat Rape Case: Gujarat High Court Seeks Report From Jail Authority On Medical Condition Of Narayan Sai Seeking Temporary Bail
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-narayan-sai-temporary-bail-medical-condition-jail-541662
 
-[Read on Telegram](https://t.me/livelawindia/114874)
-
----
-### 2026-07-16T13:17:38+00:00
-'Issuing Passport Does Not Give Right To Travel Abroad': Srinagar Court Paves Way For Passport Renewal Of Dr. Farooq Abdullah Accused In JKCA Case
-https://www.livelaw.in/news-updates/court-clears-way-for-passport-renewal-of-dr-farooq-abdullah-in-jkca-case-says-issuance-of-passport-does-not-automatically-confer-right-to-travel-abroad-541602
-
-[Read on Telegram](https://t.me/livelawindia/114875)
+[Read on Telegram](https://t.me/livelawindia/114911)
 
 ---
-### 2026-07-16T13:23:39+00:00
-Press Freedom Can't Shield Irresponsible Journalism By 'Self-Styled' Reporters: Delhi High Court Calls For Media Regulation
-https://www.livelaw.in/high-court/delhi-high-court/press-freedom-irresponsible-journalism-legislature-consider-media-regulation-541603
+### 2026-07-17T06:28:54+00:00
+Supreme Court Admits Somnath Bharti's Appeal Challenging Election Of Satish Upadhyay In 2025 Delhi Assembly Polls
+https://www.livelaw.in/top-stories/supreme-court-admits-somnath-bhartis-appeal-challenging-election-of-satish-upadhyay-in-2025-delhi-assembly-polls-541663
 
-[Read on Telegram](https://t.me/livelawindia/114876)
-
----
-### 2026-07-16T13:23:49+00:00
-Allahabad High Court Grants Bail To Man Jailed Since May 2025 Over Alleged PM Modi 'Apologising To Pakistan' Post
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-grants-bail-may-2025-pm-modi-apologising-pakistan-541604
-
-[Read on Telegram](https://t.me/livelawindia/114877)
+[Read on Telegram](https://t.me/livelawindia/114912)
 
 ---
-### 2026-07-16T13:50:39+00:00
-LiveLaw Daily | Vineet Jain | Kunal Kamra | Sonam Wangchuk | Lakhimpur Kheri | Jagannath Film
-https://www.livelaw.in/podcast/students-clat-upsc-sonam-wangchuk-neet-times-of-india-vineet-jain-e20-petrol-ethanol-bjp-judiciary-students-news-india-advocates-lawyers-541611
+### 2026-07-17T06:40:44+00:00
+Punjab & Haryana High Court Refuses To Entertain PIL On Restoration Of Diljit Dosanjh Starrer 'Satluj'
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/diljit-dosanjh-satluj-movie-take-down-pil-for-release-declined-541666
 
-[Read on Telegram](https://t.me/livelawindia/114878)
-
----
-### 2026-07-16T14:16:09+00:00
-Supreme Court Asks Union To Consider Rail Fare Concessions, Emergency Quota For Acid Attack Survivors
-https://www.livelaw.in/top-stories/supreme-court-asks-union-railways-to-consider-concessions-reservation-emergency-quota-for-acid-attack-survivors-541615
-
-[Read on Telegram](https://t.me/livelawindia/114879)
+[Read on Telegram](https://t.me/livelawindia/114913)
 
 ---
-### 2026-07-16T14:16:49+00:00
-₹20,000 Maintenance To Wife & Child Not Excessive For Man Maintaining Mercedes Car: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-husband-plea-reduce-maintenance-541616
+### 2026-07-17T06:47:44+00:00
+Allahabad High Court Orders Expert Verification Of Alleged Forged Signatures On Vakalatnama
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-signature-expert-verification-alleged-forged-signatures-vakalatnama-541665
 
-[Read on Telegram](https://t.me/livelawindia/114880)
-
----
-### 2026-07-16T14:27:09+00:00
-Master's Candidates Lacking Prescribed Bachelor's Degree Not Eligible For Recruitment As Govt School Teachers: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/masters-candidates-lacking-prescribed-bachelors-degree-not-eligible-for-recruitment-as-govt-school-teachers-delhi-high-court-541484
-
-[Read on Telegram](https://t.me/livelawindia/114881)
+[Read on Telegram](https://t.me/livelawindia/114914)
 
 ---
-### 2026-07-16T14:27:29+00:00
-WBPSC Violated Rules, Conducted Interview Unfairly: Calcutta High Court Quashes Museum Keeper Appointment
-https://www.livelaw.in/high-court/calcutta-high-court/wbpsc-violated-rules-conducted-interview-unfairly-calcutta-high-court-quashes-archaeological-keeper-appointment-541549
+### 2026-07-17T06:54:44+00:00
+Dowry Harassment In Love Marriage 'Difficult To Believe': Karnataka High Court Grants Bail To Husband In Suicide Case
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-grants-bail-husband-dowry-death-case-love-marriage-541668
 
-[Read on Telegram](https://t.me/livelawindia/114882)
-
----
-### 2026-07-16T14:32:29+00:00
-Let's Talk About Menstrual Leaves In India
-https://www.livelaw.in/articles/menstrual-leaves-india-541183
-
-[Read on Telegram](https://t.me/livelawindia/114883)
+[Read on Telegram](https://t.me/livelawindia/114915)
 
 ---
-### 2026-07-16T15:10:19+00:00
-Is Application For Probate Of Will Time-Barred If Not Filed Within 3 Years Of Testator's Death? Supreme Court Answers
-https://www.livelaw.in/supreme-court/supreme-court-judgment-probate-of-will-limitation-period-541622
+### 2026-07-17T07:07:04+00:00
+Madras High Court Closes Plea Alleging Corruption In Appointment Of Govt Advocates, Says Politicians Impleaded 'Only To Make Headlines'
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tvk-lawyeer-plea-bribery-govt-lawyer-appointment-closed-541670
 
-[Read on Telegram](https://t.me/livelawindia/114884)
-
----
-### 2026-07-16T15:11:39+00:00
-2026 LiveLaw (SC) 683 | SANJAY SHARMA @ SANJAY BHARDWAJ VERSUS KRISHNADHAN KHAWARE AND ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-683-sanjay-sharma-sanjay-bhardwaj-versus-krishnadhan-khaware-and-ors-541623
-
-[Read on Telegram](https://t.me/livelawindia/114885)
+[Read on Telegram](https://t.me/livelawindia/114916)
 
 ---
-### 2026-07-16T15:12:39+00:00
-Filing Vakalatnama Is Not Waiver Of Service Of Summons; Limitation To File Written Statement Starts After Proper Service: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-filing-vakalatnama-reply-interim-application-541445
+### 2026-07-17T07:22:44+00:00
+Support Person Vacancy At District Child Protection Unit, Gopalganj
+https://www.livelaw.in/job-updates/support-person-vacancy-at-district-child-protection-unit-gopalganj-541672
 
-[Read on Telegram](https://t.me/livelawindia/114886)
-
----
-### 2026-07-16T17:10:00+00:00
-Can Your Commercial Interests Trump Environmental Protection? Bombay High Court Asks PoP Ganesh Idol Makers
-https://www.livelaw.in/high-court/bombay-high-court/pop-ganesh-idol-immersion-in-natural-water-society-interest-environment-concerns-541626
-
-[Read on Telegram](https://t.me/livelawindia/114887)
+[Read on Telegram](https://t.me/livelawindia/114917)
 
 ---
-### 2026-07-16T17:12:40+00:00
-Supreme Court Daily Round-Up : July 16, 2026
-https://www.livelaw.in/supreme-court/supreme-court-daily-round-up-july-16-2026-541621
+### 2026-07-17T07:24:44+00:00
+Karnataka High Court Clears Release Of 'Boss' Movie, Rejects Actor Darshan's Claim Of Resemblance With Renukaswamy Murder Case
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-actor-darshan-appeal-renukaswamy-murder-case-541673
 
-[Read on Telegram](https://t.me/livelawindia/114888)
+[Read on Telegram](https://t.me/livelawindia/114918)
 
 ---
-### 2026-07-16T18:15:30+00:00
-NUALS Welcomes New Batch With Induction Programme; Launches Publications And Research Initiatives
-https://www.livelaw.in/lawschool/news/nuals-welcomes-new-batch-induction-programme-launches-publications-research-initiatives-541630
+### 2026-07-17T07:26:24+00:00
+Lok Sabha MP Moves Supreme Court Seeking Municipalities In Urban Places Falling In Scheduled Tribe Areas
+https://www.livelaw.in/top-stories/lok-sabha-mp-moves-supreme-court-seeking-municipalities-in-urban-places-falling-in-scheduled-tribe-areas-541675
 
-[Read on Telegram](https://t.me/livelawindia/114889)
+[Read on Telegram](https://t.me/livelawindia/114919)
+
+---
+### 2026-07-17T07:29:44+00:00
+Supreme Court Takes Suo Motu Case On Access To Life-Saving Drugs, Flags Kerala HC's Delay In Deciding Similar Plea
+https://www.livelaw.in/top-stories/supreme-court-takes-suo-motu-case-on-access-to-life-saving-drugs-flags-kerala-hcs-delay-in-deciding-similar-plea-541677
+
+[Read on Telegram](https://t.me/livelawindia/114920)
+
+---
+### 2026-07-17T07:41:54+00:00
+Allahabad High Court Directs Criminal Prosecution Of Litigant & Her Lawyer For 'Forging' Signatures On Affidavits In PIL
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-criminal-prosecution-litigant-lawyer-forging-signatures-541680
+
+[Read on Telegram](https://t.me/livelawindia/114921)
+
+---
+### 2026-07-17T07:44:54+00:00
+2026 LiveLaw (SC) 684 | National Legal Services Authority v. Union of India
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-684-national-legal-services-authority-v-union-of-india-541681
+
+[Read on Telegram](https://t.me/livelawindia/114922)
+
+---
+### 2026-07-17T07:51:55+00:00
+Supreme Court Defers Bengaluru Municipal Corporation Elections To December In View Of Karnataka SIR Exercise
+https://www.livelaw.in/top-stories/supreme-court-defers-bengaluru-municipal-corporation-elections-to-december-in-view-of-karnataka-sir-exercise-541683
+
+[Read on Telegram](https://t.me/livelawindia/114923)
+
+---
+### 2026-07-17T07:57:35+00:00
+Consensual Relationship Can't Be Treated As Rape Merely Over Failed Promise To Marry: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-sets-aside-accuseds-conviction-for-rape-and-abetment-to-suicide-541682
+
+[Read on Telegram](https://t.me/livelawindia/114924)
+
+---
+### 2026-07-17T08:01:15+00:00
+Inspection & Testing Procedure Under Legal Metrology Rules Mandatory Before Action Against Manufacturer: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-legal-metrology-rules-inspection-testing-procedure-541684
+
+[Read on Telegram](https://t.me/livelawindia/114925)
+
+---
+### 2026-07-17T08:07:15+00:00
+Why Allahabad High Court Transferred Probe In ₹6.33 Crore Fraud FIR Against Former MLC Haji Iqbal From UP STF To SFIO
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-transfers-haji-iqbal-fraud-probe-from-stf-to-sfio-larger-syndicate-541685
+
+[Read on Telegram](https://t.me/livelawindia/114926)
+
+---
+### 2026-07-17T08:09:55+00:00
+Parent's Private Chats Showing Drug Use Relevant To Child's Custody Case, Can't Be Excluded On Grounds Of Privacy: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-drug-use-chats-parent-fitness-guardianship-plea-no-privacy-541686
+
+[Read on Telegram](https://t.me/livelawindia/114927)
+
+---
+### 2026-07-17T08:10:35+00:00
+LiveLaw Supreme Court Half Yearly Digest 2026: Administrative Law
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-administrative-law-half-yearly-digest-2026-541687
+
+[Read on Telegram](https://t.me/livelawindia/114928)
 
 ---
