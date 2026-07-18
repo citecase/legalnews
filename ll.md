@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-18T08:33:07+00:00*
+*Last Updated: 2026-07-18T10:12:37+00:00*
 
 ---
 
-### 2026-07-18T08:33:07+00:00
-Ex-Parte Administrative Order Can't Undo Mutation Carried Out Pursuant To Competent Court's Decree: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-order-mutation-decree-competent-court-administrative-order-541826
-
-[Read on Telegram](https://t.me/livelawindia/115020)
-
----
-### 2026-07-18T08:54:47+00:00
-Protest Is Hallmark Of Democracy: Madras High Court Quashes Case Against Farmer For Hunger Strike
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-protest-hallmark-of-democracy-farmer-hunger-strike-case-quashed-541850
-
-[Read on Telegram](https://t.me/livelawindia/115021)
-
----
-### 2026-07-18T09:02:07+00:00
-Estates Authority Can't Adjudicate Proceedings Involving Deceased Party Without Legal Heirs Being Brought On Record: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-authority-implead-legal-representatives-deciding-case-541827
-
-[Read on Telegram](https://t.me/livelawindia/115022)
-
----
-### 2026-07-18T09:20:47+00:00
-Mumbai Court Restrains Instagram Influencer Ranting Gola From Posting 'Defamatory' Content Against Actor Shilpa Shetty & Raj Kundra
-https://www.livelaw.in/news-updates/mumbai-court-temporarily-restrains-social-media-influencer-posting-defaming-shilpa-shetty-raj-kundra-541852
-
-[Read on Telegram](https://t.me/livelawindia/115023)
-
----
-### 2026-07-18T09:25:57+00:00
-2026 LiveLaw (SC) 692 | THE STATE OF WEST BENGAL VERSUS KADER KHAN
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-692-the-state-of-west-bengal-versus-kader-khan-541854
-
-[Read on Telegram](https://t.me/livelawindia/115024)
-
----
-### 2026-07-18T09:27:57+00:00
-Delhi Consumer Commission Holds Bata Liable For Not Displaying Prior Notice On Carry Bag Charges
-https://www.livelaw.in/consumer-cases/delhi-consumer-commission-holds-bata-liable-for-not-displaying-prior-notice-on-carry-bag-charges-541856
-
-[Read on Telegram](https://t.me/livelawindia/115025)
-
----
-### 2026-07-18T09:32:37+00:00
-MP High Court Quashes Termination Of Employee After 28 Years Of Service, Orders State To Regularise Him On Direct Recruitment Post
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-quashes-employee-termination-after-28-years-of-service-541829
-
-[Read on Telegram](https://t.me/livelawindia/115026)
-
----
-### 2026-07-18T09:33:17+00:00
-Dancing Girl's Disappearing Torso: NCERT's Self-Censorship
-https://www.livelaw.in/lawschool/articles/dancing-girl-disappearing-torso-ncert-self-censorship-541619
-
-[Read on Telegram](https://t.me/livelawindia/115027)
-
----
-### 2026-07-18T09:43:17+00:00
-2026 LiveLaw (SC) 693 | RAHUL S/o. RAMNARAYAN MADANKAR & ANR. VERSUS THE NEW INDIA ASSURANCE COMPANY LIMITED & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-693-rahul-so-ramnarayan-madankar-anr-versus-the-new-india-assurance-company-limited-ors-541859
-
-[Read on Telegram](https://t.me/livelawindia/115028)
-
----
 ### 2026-07-18T10:12:37+00:00
 Chhattisgarh High Court Increases Accident Compensation By ₹37 Lakh, Says Victim's IT Returns Cannot Be Discarded During Calculation
 https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-income-tax-returns-mandatory-documentary-evidence-determining-compensation-541841
@@ -142,5 +79,68 @@ Procedural Invalidity In The Curial Procedure Of Tendering Pardon To An Accompli
 https://www.livelaw.in/articles/supreme-court-of-india-cbi-tendering-pardon-accomplice-procedural-invalidity-541876
 
 [Read on Telegram](https://t.me/livelawindia/115039)
+
+---
+### 2026-07-18T14:06:09+00:00
+SCAORA Submits Recommendations On Supreme Court's Draft AI Regulations, Raises Concerns
+https://www.livelaw.in/top-stories/scaora-submits-recommendations-on-supreme-courts-draft-ai-regulations-raises-concerns-541877
+
+[Read on Telegram](https://t.me/livelawindia/115040)
+
+---
+### 2026-07-18T14:32:50+00:00
+Supreme Court Rescues Arbitration Limitation Clock From Maintainability Trap
+https://www.livelaw.in/lawschool/articles/supreme-court-rescues-arbitration-limitation-clock-maintainability-trap-541620
+
+[Read on Telegram](https://t.me/livelawindia/115041)
+
+---
+### 2026-07-18T14:48:50+00:00
+Nirmohi Akhara Moves Supreme Court Seeking Restructuring Of Ayodhya Ram Mandir Trust As Public Trust, Forensic Audit Of Finances
+https://www.livelaw.in/top-stories/nirmohi-akhara-moves-supreme-court-seeking-restructuring-of-ayodhya-ram-mandir-trust-as-public-trust-forensic-audit-of-finances-541880
+
+[Read on Telegram](https://t.me/livelawindia/115042)
+
+---
+### 2026-07-18T15:12:41+00:00
+Call For Blog Submissions: Centre Of Excellence On Cyber Law And Artificial Intelligence Governance And Ethics Invites Contributions On Contemporary Cyber Law & AI Issues
+https://www.livelaw.in/lawschool/call-for-papers/call-for-blog-submissions-centre-of-excellence-on-cyber-law-and-artificial-intelligence-governance-and-ethics-invites-contributions-on-contemporary-cyber-law-ai-issues-541881
+
+[Read on Telegram](https://t.me/livelawindia/115043)
+
+---
+### 2026-07-18T15:26:01+00:00
+Hunger Strike, Bodily Autonomy And Right To Die
+https://www.livelaw.in/articles/hunger-strike-bodily-autonomy-right-to-die-541886
+
+[Read on Telegram](https://t.me/livelawindia/115044)
+
+---
+### 2026-07-18T16:07:51+00:00
+Sonam Wangchuk Protest : Law On Hunger Strikes & Judicial Approach
+https://www.livelaw.in/top-stories/sonam-wangchuk-protest-law-on-hunger-strikes-judicial-approach-541889
+
+[Read on Telegram](https://t.me/livelawindia/115045)
+
+---
+### 2026-07-18T16:14:51+00:00
+Supreme Court Recommends IBC Amendment To Protect MSMEs, Says Small Operational Creditors Need Fairer Repayment Mechanism
+https://www.livelaw.in/supreme-court/supreme-court-recommends-ibc-amendment-to-protect-msmes-says-small-operational-creditors-need-fairer-repayment-mechanism-541890
+
+[Read on Telegram](https://t.me/livelawindia/115046)
+
+---
+### 2026-07-18T16:16:31+00:00
+2026 LiveLaw (SC) 694 | M/S TATA STEEL LTD. VERSUS VARSHA & ANR.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-694-ms-tata-steel-ltd-versus-varsha-anr-541891
+
+[Read on Telegram](https://t.me/livelawindia/115047)
+
+---
+### 2026-07-18T16:48:41+00:00
+Supreme Court's 'Delhi Metro' Judgment Caused Extensive Damage To Arbitration In India: Justice Ujjal Bhuyan
+https://www.livelaw.in/top-stories/supreme-courts-delhi-metro-judgment-caused-extensive-damage-to-arbitration-in-india-justice-ujjal-bhuyan-541899
+
+[Read on Telegram](https://t.me/livelawindia/115048)
 
 ---
