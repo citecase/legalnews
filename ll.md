@@ -1,147 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-18T04:32:55+00:00*
+*Last Updated: 2026-07-18T08:33:07+00:00*
 
 ---
 
-### 2026-07-18T04:32:55+00:00
-Livelihood Or Liability? Taxation And Forest Rights
-https://www.livelaw.in/articles/livelihood-liability-taxation-forest-rights-541618
+### 2026-07-18T08:33:07+00:00
+Ex-Parte Administrative Order Can't Undo Mutation Carried Out Pursuant To Competent Court's Decree: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-order-mutation-decree-competent-court-administrative-order-541826
 
-[Read on Telegram](https://t.me/livelawindia/114997)
-
----
-### 2026-07-18T04:47:35+00:00
-S.47 CPC | Executing Court Can Correct Clerical Misdescription Of Suit Property In Decree: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/executing-court-correct-clerical-misdescription-suit-property-decree-541799
-
-[Read on Telegram](https://t.me/livelawindia/114998)
+[Read on Telegram](https://t.me/livelawindia/115020)
 
 ---
-### 2026-07-18T04:52:55+00:00
-Art. 226 | High Courts Cannot Reweigh Evidence Or Interfere With Factual Findings In Certiorari Jurisdiction : Supreme Court
-https://www.livelaw.in/supreme-court/art-226-high-courts-cannot-reweigh-evidence-or-interfere-with-factual-findings-in-certiorari-jurisdiction-supreme-court-541812
+### 2026-07-18T08:54:47+00:00
+Protest Is Hallmark Of Democracy: Madras High Court Quashes Case Against Farmer For Hunger Strike
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-protest-hallmark-of-democracy-farmer-hunger-strike-case-quashed-541850
 
-[Read on Telegram](https://t.me/livelawindia/114999)
-
----
-### 2026-07-18T04:55:35+00:00
-2026 LiveLaw (SC) 690 | BASAMMA & ANR. Versus GOPARAPPA AND ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-690-basamma-anr-versus-goparappa-and-ors-541813
-
-[Read on Telegram](https://t.me/livelawindia/115000)
+[Read on Telegram](https://t.me/livelawindia/115021)
 
 ---
-### 2026-07-18T05:37:26+00:00
-Kerala High Court Strikes Down Kerala Minerals Vesting Law, Says Deprivation Of Private Property Without Compensation Violates Article 300A
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-minerals-vesting-act-private-mineral-rights-compensation-541818
+### 2026-07-18T09:02:07+00:00
+Estates Authority Can't Adjudicate Proceedings Involving Deceased Party Without Legal Heirs Being Brought On Record: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-authority-implead-legal-representatives-deciding-case-541827
 
-[Read on Telegram](https://t.me/livelawindia/115001)
-
----
-### 2026-07-18T06:02:36+00:00
-Jammu & Kashmir And Ladakh High Court Half-Yearly Digest: January - June 2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-half-yearly-digest-january-june-2026citations-2026-livelaw-jkl-1-286--541446
-
-[Read on Telegram](https://t.me/livelawindia/115002)
+[Read on Telegram](https://t.me/livelawindia/115022)
 
 ---
-### 2026-07-18T06:02:56+00:00
-Govt Servant Can't Challenge Denial Of Salary For Period Of Unauthorised Absence Regularised To Enable Voluntary Retirement: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-govt-servant-salary-denial-sanctioned-leave-period-541819
+### 2026-07-18T09:20:47+00:00
+Mumbai Court Restrains Instagram Influencer Ranting Gola From Posting 'Defamatory' Content Against Actor Shilpa Shetty & Raj Kundra
+https://www.livelaw.in/news-updates/mumbai-court-temporarily-restrains-social-media-influencer-posting-defaming-shilpa-shetty-raj-kundra-541852
 
-[Read on Telegram](https://t.me/livelawindia/115003)
-
----
-### 2026-07-18T06:21:36+00:00
-#TheLawChallenge
- : A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
-https://www.livelaw.in/top-stories/livelaw-and-qshala-weekly-quiz-541828
-
-[Read on Telegram](https://t.me/livelawindia/115004)
+[Read on Telegram](https://t.me/livelawindia/115023)
 
 ---
-### 2026-07-18T06:25:36+00:00
-Recovery Of Dead Body Not Necessary For Murder Conviction : Supreme Court
-https://www.livelaw.in/supreme-court/recovery-of-dead-body-not-necessary-for-murder-conviction-supreme-court-541830
+### 2026-07-18T09:25:57+00:00
+2026 LiveLaw (SC) 692 | THE STATE OF WEST BENGAL VERSUS KADER KHAN
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-692-the-state-of-west-bengal-versus-kader-khan-541854
 
-[Read on Telegram](https://t.me/livelawindia/115005)
-
----
-### 2026-07-18T06:26:36+00:00
-2026 LiveLaw (SC) 691 | DEBOJIT PANKIKA CHARAIDEO SONARI VERSUS THE STATE OF ASSAM
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-691-debojit-pankika-charaideo-sonari-versus-the-state-of-assam-541831
-
-[Read on Telegram](https://t.me/livelawindia/115006)
+[Read on Telegram](https://t.me/livelawindia/115024)
 
 ---
-### 2026-07-18T06:29:36+00:00
-Supreme Court Criminal Law Digest: June 2026
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-criminal-law-digest-2026-541832
+### 2026-07-18T09:27:57+00:00
+Delhi Consumer Commission Holds Bata Liable For Not Displaying Prior Notice On Carry Bag Charges
+https://www.livelaw.in/consumer-cases/delhi-consumer-commission-holds-bata-liable-for-not-displaying-prior-notice-on-carry-bag-charges-541856
 
-[Read on Telegram](https://t.me/livelawindia/115007)
-
----
-### 2026-07-18T06:30:16+00:00
-AgustaWestland Chopper Scam | UK-Based Businessman Withdraws Plea In Supreme Court Against ED Warrants
-https://www.livelaw.in/top-stories/agustawestland-chopper-scam-uk-based-businessman-withdraws-plea-in-supreme-court-against-ed-warrants-541833
-
-[Read on Telegram](https://t.me/livelawindia/115008)
+[Read on Telegram](https://t.me/livelawindia/115025)
 
 ---
-### 2026-07-18T06:32:56+00:00
-'Shattering Confidence Of Hardworking Youth': Orissa High Court Denies Bail To 14 Accused In ASO Exam Paper Leak
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-denies-bail-14accused-aso-exam-paper-leak-541820
+### 2026-07-18T09:32:37+00:00
+MP High Court Quashes Termination Of Employee After 28 Years Of Service, Orders State To Regularise Him On Direct Recruitment Post
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-quashes-employee-termination-after-28-years-of-service-541829
 
-[Read on Telegram](https://t.me/livelawindia/115009)
-
----
-### 2026-07-18T06:38:16+00:00
-Know The Law | Which Documents Require Mandatory Proof Of Attestation? Supreme Court Explains
-https://www.livelaw.in/know-the-law/know-the-law-which-documents-require-mandatory-proof-of-attestation-supreme-court-explains-541305
-
-[Read on Telegram](https://t.me/livelawindia/115010)
+[Read on Telegram](https://t.me/livelawindia/115026)
 
 ---
-### 2026-07-18T06:44:06+00:00
-Sree Narayana Law College To Organise International Seminar On Law & Governance Of Global Healthcare In Digital Age
-https://www.livelaw.in/lawschool/seminars/sree-narayana-law-college-to-organise-international-seminar-on-law-governance-of-global-healthcare-in-digital-age-541835
+### 2026-07-18T09:33:17+00:00
+Dancing Girl's Disappearing Torso: NCERT's Self-Censorship
+https://www.livelaw.in/lawschool/articles/dancing-girl-disappearing-torso-ncert-self-censorship-541619
 
-[Read on Telegram](https://t.me/livelawindia/115011)
-
----
-### 2026-07-18T07:03:06+00:00
-Can't Conduct Detailed Inquiry Into Child's Welfare In Habeas Corpus Jurisdiction, Remedy Lies Under Guardians & Wards Act: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-detailed-inquiry-child-welfare-habeas-corpus-proceedings-541821
-
-[Read on Telegram](https://t.me/livelawindia/115012)
+[Read on Telegram](https://t.me/livelawindia/115027)
 
 ---
-### 2026-07-18T07:16:46+00:00
-Know The Law| When Can A Right Be Waived? Supreme Court Explains
-https://www.livelaw.in/know-the-law/know-the-law-when-can-a-right-be-waived-supreme-court-explains-541315
+### 2026-07-18T09:43:17+00:00
+2026 LiveLaw (SC) 693 | RAHUL S/o. RAMNARAYAN MADANKAR & ANR. VERSUS THE NEW INDIA ASSURANCE COMPANY LIMITED & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-693-rahul-so-ramnarayan-madankar-anr-versus-the-new-india-assurance-company-limited-ors-541859
 
-[Read on Telegram](https://t.me/livelawindia/115013)
-
----
-### 2026-07-18T07:32:47+00:00
-Master Plan Has Statutory Force; Authorities Can't Permit Land Conversion Contrary To It: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-master-plan-authorities-permit-land-green-belt-conversions-illegal-541823
-
-[Read on Telegram](https://t.me/livelawindia/115014)
+[Read on Telegram](https://t.me/livelawindia/115028)
 
 ---
-### 2026-07-18T07:34:27+00:00
-Calcutta High Court Grants Bail To Woman Accused In High-Value NDPS Case, Cites Advance Stage Of Pregnancy
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-grants-bail-to-8-month-pregnant-accused-in-high-value-ndps-case-on-humanitarian-grounds-541843
+### 2026-07-18T10:12:37+00:00
+Chhattisgarh High Court Increases Accident Compensation By ₹37 Lakh, Says Victim's IT Returns Cannot Be Discarded During Calculation
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-income-tax-returns-mandatory-documentary-evidence-determining-compensation-541841
 
-[Read on Telegram](https://t.me/livelawindia/115015)
+[Read on Telegram](https://t.me/livelawindia/115029)
 
 ---
-### 2026-07-18T07:56:37+00:00
-Co-Accused Acquitted On Same Evidence: Madras High Court Discharges UK Resident In CBI Illegal Telephone Exchange Case
-https://www.livelaw.in/law-firms/litigation/co-accused-acquitted-on-same-evidence-madras-high-court-discharges-uk-resident-in-cbi-illegal-telephone-exchange-case-541845
+### 2026-07-18T10:32:27+00:00
+'Evaded Payment For 16 Years': Kerala High Court Rejects Cop's Appeals Against Compensation Award To Lawyer He Assaulted
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-police-appeal-compensation-lawyer-assault-541855
 
-[Read on Telegram](https://t.me/livelawindia/115016)
+[Read on Telegram](https://t.me/livelawindia/115030)
+
+---
+### 2026-07-18T10:55:08+00:00
+Delhi Court Grants Bail To Human Rights Activist Khurram Parvez, Journalist Irfan Mehraj In UAPA Terror Funding Case
+https://www.livelaw.in/news-updates/khurram-parvez-irfan-mehraj-bail-uapa-case-541865
+
+[Read on Telegram](https://t.me/livelawindia/115031)
+
+---
+### 2026-07-18T11:01:48+00:00
+LiveLaw Editorial Guidelines For Article Submissions
+https://www.livelaw.in/articles/livelaw-editorial-guidelines-article-submissions-541866
+
+[Read on Telegram](https://t.me/livelawindia/115032)
+
+---
+### 2026-07-18T11:05:08+00:00
+Doctors Assault Case: Bombay High Court Cancels Shinde Sena Corporator Ramesh Mhatre's Bail; Urges Doctors To Withdraw Strike Call
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-cancels-shinde-sena-corporator-bail-special-saturday-sitting-541867
+
+[Read on Telegram](https://t.me/livelawindia/115033)
+
+---
+### 2026-07-18T11:26:38+00:00
+Support Person Vacancy At District Child Protection Unit, Aurangabad
+https://www.livelaw.in/job-updates/support-person-vacancy-at-district-child-protection-unit-aurangabad-541868
+
+[Read on Telegram](https://t.me/livelawindia/115034)
+
+---
+### 2026-07-18T11:30:18+00:00
+Registrar & Director (Administration) Vacancy At National Institute of Rural Development & Panchayati Raj
+https://www.livelaw.in/job-updates/registrar-director-administration-vacancy-at-national-institute-of-rural-development-panchayati-raj-541869
+
+[Read on Telegram](https://t.me/livelawindia/115035)
+
+---
+### 2026-07-18T11:35:58+00:00
+All India Bar Exam-XXI Results To Be Declared Today, 65.92% Candidates Qualify
+https://www.livelaw.in/news-updates/all-india-bar-exam-xxi-results-bci-541870
+
+[Read on Telegram](https://t.me/livelawindia/115036)
+
+---
+### 2026-07-18T11:47:18+00:00
+Call For Applications: Research Associate | JSW Centre For The Future Of Law (JSW-CFL), NLSIU
+https://www.livelaw.in/job-updates/call-for-applications-research-associate-jsw-centre-for-the-future-of-law-jsw-cfl-nlsiu-541871
+
+[Read on Telegram](https://t.me/livelawindia/115037)
+
+---
+### 2026-07-18T12:04:58+00:00
+Compliance Officer (FME) Vacancy At National Bank For Financing Infrastructure & Development
+https://www.livelaw.in/job-updates/compliance-officer-fme-vacancy-at-national-bank-for-financing-infrastructure-development-541873
+
+[Read on Telegram](https://t.me/livelawindia/115038)
+
+---
+### 2026-07-18T13:06:39+00:00
+Procedural Invalidity In The Curial Procedure Of Tendering Pardon To An Accomplice In A. Srinivasulu v. The State Rep. By The Inspector Of Police
+https://www.livelaw.in/articles/supreme-court-of-india-cbi-tendering-pardon-accomplice-procedural-invalidity-541876
+
+[Read on Telegram](https://t.me/livelawindia/115039)
 
 ---
