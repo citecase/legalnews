@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-18T07:52:50+00:00*
+*Last Updated: 2026-07-18T13:52:31+00:00*
+
+---
+
+### 2026-07-18T13:52:31+00:00
+Investigators Must Brief Prosecutors Before Court Commences: Delhi HC Asks Commissioner To Issue Directions To Investigating Officers
+https://www.verdictum.in/delhi-high-court/ram-hari-rai-v-the-state-of-nct-of-delhi-2026dhc5710-police-jail-investigators-prosecutors-1618030
+
+[Source Link](https://t.me/verdictumlegalupdates/28047)
+
+---
+
+### 2026-07-18T13:12:10+00:00
+Not Entitled To Probation Merely Due To Lapse Of Time: Gujarat High Court Directs Men Convicted U/S 354 IPC To Surrender After 18 Years
+https://www.verdictum.in/gujarat-high-court/rajeshbhai-ashokbhai-gohel-luhar-anr-v-state-of-gujarat-probation-1618009
+
+[Source Link](https://t.me/verdictumlegalupdates/28046)
+
+---
+
+### 2026-07-18T12:32:49+00:00
+Initial Admission To KG Can’t Be Declared Void Ab Initio Merely Because Parents Furnished Incorrect Date Of Birth Projecting Child To Be One Month Younger: Delhi High Court
+https://www.verdictum.in/delhi-high-court/master-aarav-giri-v-st-columbas-school-2026dhc5724-initial-admission-kg-date-of-birth-1618008
+
+[Source Link](https://t.me/verdictumlegalupdates/28045)
+
+---
+
+### 2026-07-18T11:52:37+00:00
+Medical Condition No Ground To Deny HOD Post If Employee Is Fit To Continue As Professor: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/2026-mphc-gwl-21103-dr-devendra-kumar-shakya-v-state-of-madhya-pradesh-1618007
+
+[Source Link](https://t.me/verdictumlegalupdates/28044)
+
+---
+
+### 2026-07-18T11:12:56+00:00
+Taking Snakebite Victim To Sorcerer Not Enough For Conviction U/S 304A IPC Without Proof That Hospital Treatment Could Have Saved Her: Himachal Pradesh High Court
+https://www.verdictum.in/himachal-high-court/state-of-hp-v-dev-raj-2026hhc28268-section-304a-indian-penal-code-1618005
+
+[Source Link](https://t.me/verdictumlegalupdates/28043)
+
+---
+
+### 2026-07-18T10:32:15+00:00
+Wife Must Prove Entrustment Of Ornaments To Husband For Recovery Claims: Kerala High Court Notes That Modern Independent Brides Often Retain Control Of Gold
+https://www.verdictum.in/kerala-high-court/2026-ker-50611-wife-prove-entrustment-ornaments-1618004
+
+[Source Link](https://t.me/verdictumlegalupdates/28042)
+
+---
+
+### 2026-07-18T09:52:54+00:00
+Obscenity Is Not Synonymous With Vulgarity, Abuse Or Profanity: Supreme Court Sets Aside Conviction U/S. 294 IPC
+https://www.verdictum.in/supreme-court/mani-subramaniyam-v-state-rep-by-the-deputy-superintendent-of-police-2026-insc-719-1618003
+
+[Source Link](https://t.me/verdictumlegalupdates/28041)
+
+---
+
+### 2026-07-18T09:12:53+00:00
+Supreme Court Gives Assam 2 Weeks To Respond To Pleas Against Foreigner Declaration Orders
+https://www.verdictum.in/supreme-court/assam-2-weeks-to-respond-to-pleas-against-foreigner-declaration-orders-1617995
+
+[Source Link](https://t.me/verdictumlegalupdates/28040)
+
+---
+
+### 2026-07-18T08:33:12+00:00
+Arrest Under Health Security Se National Security Cess Act Must Comply With BNSS Safeguards: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/sanchit-seth-commissioner-of-cgst-and-central-excise-2026ahc146504-db-national-security-cess-act-comply-bnss-1618000
+
+[Source Link](https://t.me/verdictumlegalupdates/28039)
 
 ---
 
@@ -89,78 +161,6 @@ Assets Acquired By Bhakthajana Samithi While Functioning As Temple Advisory Comm
 https://www.verdictum.in/kerala-high-court/thuravoor-mahakshethra-upadeshaka-samithy-v-travancore-devaswom-board-2026ker49660-1617940
 
 [Source Link](https://t.me/verdictumlegalupdates/28028)
-
----
-
-### 2026-07-17T13:33:10+00:00
-Longstanding Jamabandi Can’t Be Cancelled By State In Summary Proceeding: Patna High Court Grants Relief To Landowners
-https://www.verdictum.in/patna-high-court/chandra-kishore-yadav-v-the-state-of-bihar-jamabandi-state-landowners-1617939
-
-[Source Link](https://t.me/verdictumlegalupdates/28027)
-
----
-
-### 2026-07-17T13:02:49+00:00
-Railways Not Liable For Short Delivery Of Owner’s Risk Consignment Unless Consignor Proves Quantity And Negligence: Supreme Court
-https://www.verdictum.in/supreme-court/ms-bajaj-trading-company-v-union-of-india-2026-insc-711-railway-tribunal-1617938
-
-[Source Link](https://t.me/verdictumlegalupdates/28026)
-
----
-
-### 2026-07-17T12:32:38+00:00
-We Don’t Want Any Untoward Thing To Happen: Apex Court Asks Rajasthan Govt To Report On Asaram's Health Amid Interim Bail Plea
-https://www.verdictum.in/supreme-court/rajasthan-govt-to-report-on-asarams-health-amid-interim-bail-plea-1617934
-
-[Source Link](https://t.me/verdictumlegalupdates/28025)
-
----
-
-### 2026-07-17T12:03:17+00:00
-Supreme Court Seeks Responses Of EC, Bengal Govt On Plea For Data On Claims Of Voters Deleted Under SIR
-https://www.verdictum.in/supreme-court/ec-bengal-govt-on-plea-for-data-on-claims-of-voters-deleted-under-sir-1617933
-
-[Source Link](https://t.me/verdictumlegalupdates/28024)
-
----
-
-### 2026-07-17T11:32:36+00:00
-You Have No Business Of Writing 'Doctor' If You Don't Do Your Duty": Supreme Court Slams Doctors For Denying Care To Rape Victim
-https://www.verdictum.in/supreme-court/slams-doctors-for-denying-care-to-rape-victim-1617932
-
-[Source Link](https://t.me/verdictumlegalupdates/28023)
-
----
-
-### 2026-07-17T11:02:35+00:00
-Supreme Court Extends Deadline For Bengaluru Five City Corporation Elections To December 2026 Due To Ongoing SIR
-https://www.verdictum.in/supreme-court/deadline-for-bengaluru-five-city-corporation-election-extended-1617929
-
-[Source Link](https://t.me/verdictumlegalupdates/28022)
-
----
-
-### 2026-07-17T10:32:33+00:00
-No Plea Of Lack Of Funds Shall Be Entertained: Supreme Court Directs Immediate Construction Of Washrooms For Women Lawyers Across All Courts
-https://www.verdictum.in/supreme-court/directs-immediate-construction-washrooms-women-lawyers-courts-1617931
-
-[Source Link](https://t.me/verdictumlegalupdates/28021)
-
----
-
-### 2026-07-17T10:03:12+00:00
-Electrohomeopathy Certificate Does Not Entitle Practitioner To Practice Allopathy: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/santosh-kumar-sharma-v-state-of-up-and-5-others-2026ahc138560-db-1617928
-
-[Source Link](https://t.me/verdictumlegalupdates/28020)
-
----
-
-### 2026-07-17T09:23:11+00:00
-Supreme Court To Hear Centre’s Plea Against HC Verdict Nullifying Tenders For Visa Services At Indian Missions
-https://www.verdictum.in/supreme-court/plea-against-hc-verdict-nullifying-tenders-for-visa-services-at-indian-missions-1617923
-
-[Source Link](https://t.me/verdictumlegalupdates/28019)
 
 ---
 
