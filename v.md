@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-18T13:52:31+00:00*
+*Last Updated: 2026-07-18T16:02:54+00:00*
+
+---
+
+### 2026-07-18T16:02:54+00:00
+Young Professional Vacancy At Directorate General of Foreign Trade (DGFT)
+https://www.verdictum.in/job-updates/directorate-general-of-foreign-trade-1618012
+
+[Source Link](https://t.me/verdictumlegalupdates/28050)
+
+---
+
+### 2026-07-18T15:12:33+00:00
+Injury Caused To Victim During Commission Of Robbery Is Punishable U/s. 392 & 394 Of IPC And Not Section 307: Delhi High Court
+https://www.verdictum.in/delhi-high-court/state-v-ashish-kumar-2026dhc5711-injury-victim-robbery-sections-392-ipc-attempted-murder-1618026
+
+[Source Link](https://t.me/verdictumlegalupdates/28049)
+
+---
+
+### 2026-07-18T14:32:52+00:00
+Preponderance Of Probability Sufficient In Departmental Proceedings: Madras High Court Sets Aside Reinstatement Of Police Officer Found Drunk Inside Court Hall
+https://www.verdictum.in/madras-high-court/2026-mhc-2846-director-general-of-police-v-v-arumuram-1618011
+
+[Source Link](https://t.me/verdictumlegalupdates/28048)
 
 ---
 
@@ -137,30 +161,6 @@ Gujarat High Court Remands Lijjat Papad ESI Dispute; Orders Fresh Examination Of
 https://www.verdictum.in/gujarat-high-court/regional-director-v-shree-mahila-gruh-udyog-lijjatpapad-2026gujhc44136-lijjat-papad-esi-dispute-women-rolling-papads-1617943
 
 [Source Link](https://t.me/verdictumlegalupdates/28031)
-
----
-
-### 2026-07-17T15:03:14+00:00
-Magistrate’s Order Cryptic: Madras High Court Directs Investigation Into Complaint Of Retaliatory Intimidation Against Senior Warden Who Acted Against Ragging
-https://www.verdictum.in/madras-high-court/kannan-baba-v-the-state-of-tamilnadu-magistrate-order-investigation-complaint-ragging-1617942
-
-[Source Link](https://t.me/verdictumlegalupdates/28030)
-
----
-
-### 2026-07-17T14:32:53+00:00
-Cannot Claim DNA Test Invades Privacy After Consenting For It: Karnataka High Court Upholds DNA Test Order In Partition Suit
-https://www.verdictum.in/karnataka-high-court/shivanna-v-hs-manjula-2026khc34595-party-cannot-claim-dna-test-invades-privacy-1617941
-
-[Source Link](https://t.me/verdictumlegalupdates/28029)
-
----
-
-### 2026-07-17T14:02:32+00:00
-Assets Acquired By Bhakthajana Samithi While Functioning As Temple Advisory Committee Vest In Deity Absent Proof Of Independent Funds: Kerala High Court
-https://www.verdictum.in/kerala-high-court/thuravoor-mahakshethra-upadeshaka-samithy-v-travancore-devaswom-board-2026ker49660-1617940
-
-[Source Link](https://t.me/verdictumlegalupdates/28028)
 
 ---
 
