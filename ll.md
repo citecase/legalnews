@@ -1,146 +1,147 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-17T14:32:38+00:00*
+*Last Updated: 2026-07-18T04:32:55+00:00*
 
 ---
 
-### 2026-07-17T14:32:38+00:00
-Words Are Not Enough: Every Clause Containing 'Arbitration' Is Not An Arbitration Agreement
-https://www.livelaw.in/lawschool/articles/clause-containing-arbitration-agreement-541385
+### 2026-07-18T04:32:55+00:00
+Livelihood Or Liability? Taxation And Forest Rights
+https://www.livelaw.in/articles/livelihood-liability-taxation-forest-rights-541618
 
-[Read on Telegram](https://t.me/livelawindia/114973)
-
----
-### 2026-07-17T14:32:48+00:00
-Mere Swear Words & Vulgar Expletives Not Obscenity : Supreme Court Explains Scope Of S.294(b) IPC
-https://www.livelaw.in/supreme-court/mere-swear-words-vulgar-expletives-not-obscenity-supreme-court-explains-scope-of-s294b-ipc-541783
-
-[Read on Telegram](https://t.me/livelawindia/114974)
+[Read on Telegram](https://t.me/livelawindia/114997)
 
 ---
-### 2026-07-17T14:33:48+00:00
-2026 LiveLaw (SC) 687 |  Mani @ Subramaniyam v State
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-687-mani-subramaniyam-v-state-541785
+### 2026-07-18T04:47:35+00:00
+S.47 CPC | Executing Court Can Correct Clerical Misdescription Of Suit Property In Decree: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/executing-court-correct-clerical-misdescription-suit-property-decree-541799
 
-[Read on Telegram](https://t.me/livelawindia/114975)
-
----
-### 2026-07-17T14:36:28+00:00
-Supreme Court Dismisses Rajkot Bar Association's Plea Seeking Transfer Of Its Plea From HC To SC
-https://www.livelaw.in/top-stories/supreme-court-dismisses-rajkot-bar-associations-plea-seeking-transfer-of-its-plea-from-hc-to-sc-541786
-
-[Read on Telegram](https://t.me/livelawindia/114976)
+[Read on Telegram](https://t.me/livelawindia/114998)
 
 ---
-### 2026-07-17T14:37:28+00:00
-Kerala High Court Upholds Order Directing FIR Against Three Police Officers In Ponnani Rape Case
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ponnani-rape-case-fir-against-cops-541784
+### 2026-07-18T04:52:55+00:00
+Art. 226 | High Courts Cannot Reweigh Evidence Or Interfere With Factual Findings In Certiorari Jurisdiction : Supreme Court
+https://www.livelaw.in/supreme-court/art-226-high-courts-cannot-reweigh-evidence-or-interfere-with-factual-findings-in-certiorari-jurisdiction-supreme-court-541812
 
-[Read on Telegram](https://t.me/livelawindia/114977)
-
----
-### 2026-07-17T14:44:18+00:00
-When Accused Is In Jail, Court & Prosecution Have Duty To Expedite Trial: Supreme Court
-https://www.livelaw.in/supreme-court/when-accused-is-in-jail-court-prosecution-have-duty-to-expedite-trial-supreme-court-541787
-
-[Read on Telegram](https://t.me/livelawindia/114978)
+[Read on Telegram](https://t.me/livelawindia/114999)
 
 ---
-### 2026-07-17T14:45:38+00:00
-2026 LiveLaw (SC) 688 | Liakat Ali v State of Jammu and Kashmir
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-688-liakat-ali-v-state-of-jammu-and-kashmir-541788
+### 2026-07-18T04:55:35+00:00
+2026 LiveLaw (SC) 690 | BASAMMA & ANR. Versus GOPARAPPA AND ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-690-basamma-anr-versus-goparappa-and-ors-541813
 
-[Read on Telegram](https://t.me/livelawindia/114979)
-
----
-### 2026-07-17T15:02:38+00:00
-PITNDPS Act | Unexplained Delay In Acting On Police Dossier Makes Preventive Detention A "Mockery": J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/unexplained-four-month-delay-in-acting-on-police-dossier-makes-preventive-detention-a-mockery-of-pit-ndps-act-jk-high-court-541701
-
-[Read on Telegram](https://t.me/livelawindia/114980)
+[Read on Telegram](https://t.me/livelawindia/115000)
 
 ---
-### 2026-07-17T15:10:58+00:00
-Plea In Supreme Court Seeks Separate Legal Identity, Protection For Intersex Persons
-https://www.livelaw.in/top-stories/supreme-court-issues-notice-on-pil-seeking-separate-legal-identity-protection-framework-for-intersex-persons-541789
+### 2026-07-18T05:37:26+00:00
+Kerala High Court Strikes Down Kerala Minerals Vesting Law, Says Deprivation Of Private Property Without Compensation Violates Article 300A
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-minerals-vesting-act-private-mineral-rights-compensation-541818
 
-[Read on Telegram](https://t.me/livelawindia/114981)
-
----
-### 2026-07-17T15:42:49+00:00
-Bombay High Court Suggests OCI Cricketers Challenging BCCI's Passport Policy To Play For Home Country Or Opt Indian Citizenship
-https://www.livelaw.in/high-court/bombay-high-court/oci-card-holder-cricketers-indian-cricket-bcci-passport-mandatory-541790
-
-[Read on Telegram](https://t.me/livelawindia/114982)
+[Read on Telegram](https://t.me/livelawindia/115001)
 
 ---
-### 2026-07-17T15:43:29+00:00
-Tehsildar Cannot Compel Production Of Documents At Instance Of Private Respondents In Land Dispute: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-tehsildar-compel-production-documents-private-respondents-541699
+### 2026-07-18T06:02:36+00:00
+Jammu & Kashmir And Ladakh High Court Half-Yearly Digest: January - June 2026
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-half-yearly-digest-january-june-2026citations-2026-livelaw-jkl-1-286--541446
 
-[Read on Telegram](https://t.me/livelawindia/114983)
-
----
-### 2026-07-17T15:53:29+00:00
-MP High Court Protects Couple Allegedly Facing Social Boycott Over 'Same-Gotra' Marriage
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-police-protection-same-gotra-marriage-couple-541792
-
-[Read on Telegram](https://t.me/livelawindia/114984)
+[Read on Telegram](https://t.me/livelawindia/115002)
 
 ---
-### 2026-07-17T16:44:59+00:00
-Supreme Court Issues Notice On SCBA Plea Seeking Adequate Representation Of Women Advocates In Govt Panels, Stipend Support For Juniors
-https://www.livelaw.in/top-stories/supreme-court-scba-plea-for-adequate-representation-of-women-advocates-government-panels-stipend-support-for-junior-lawyers-notice-541793
+### 2026-07-18T06:02:56+00:00
+Govt Servant Can't Challenge Denial Of Salary For Period Of Unauthorised Absence Regularised To Enable Voluntary Retirement: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-govt-servant-salary-denial-sanctioned-leave-period-541819
 
-[Read on Telegram](https://t.me/livelawindia/114985)
-
----
-### 2026-07-17T16:56:59+00:00
-BREAKING| BCI Issues Circular To Regulate Advocates' Social Media Use, Warns Against Promotional Reels & Solicitation
-https://www.livelaw.in/top-stories/bci-issues-circular-to-regulate-social-media-use-by-advocates-warns-against-promotional-reels-solicitation-541794
-
-[Read on Telegram](https://t.me/livelawindia/114986)
+[Read on Telegram](https://t.me/livelawindia/115003)
 
 ---
-### 2026-07-17T17:17:59+00:00
-Supreme Court Daily Round-Up : July 17, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-july-17-2026-541791
+### 2026-07-18T06:21:36+00:00
+#TheLawChallenge
+ : A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
+https://www.livelaw.in/top-stories/livelaw-and-qshala-weekly-quiz-541828
 
-[Read on Telegram](https://t.me/livelawindia/114987)
-
----
-### 2026-07-17T17:22:19+00:00
-BCI Prescribes Code For Law Interns' Social Media Posts On Internship; No More 'Day In Chamber', 'Lawyer Life' Type Reels
-https://www.livelaw.in/top-stories/bci-prescribes-code-for-law-interns-social-media-posts-on-internship-no-more-day-in-chamber-lawyer-life-type-reels-541795
-
-[Read on Telegram](https://t.me/livelawindia/114988)
+[Read on Telegram](https://t.me/livelawindia/115004)
 
 ---
-### 2026-07-17T18:26:19+00:00
-Impossible To Satisfy Every Litigant, Judge's Morality Should Be Governed By Sensible Sections Of Society: Justice Dixit Krishna Shripad Retires
-https://www.livelaw.in/high-court/orissa-high-court/justice-dixit-krishna-shripad-retires-judges-morality-governed-by-sensible-sections-of-society-541796
+### 2026-07-18T06:25:36+00:00
+Recovery Of Dead Body Not Necessary For Murder Conviction : Supreme Court
+https://www.livelaw.in/supreme-court/recovery-of-dead-body-not-necessary-for-murder-conviction-supreme-court-541830
 
-[Read on Telegram](https://t.me/livelawindia/114989)
-
----
-### 2026-07-18T02:32:14+00:00
-Bombay High Court Directs Maharashtra Govt To Frame Guidelines On Apartment Balcony Enclosures, Internal Flat Alterations
-https://www.livelaw.in/high-court/bombay-high-court/apartment-flat-renovation-balcony-terrace-enclosure-guidelines-541798
-
-[Read on Telegram](https://t.me/livelawindia/114990)
+[Read on Telegram](https://t.me/livelawindia/115005)
 
 ---
-### 2026-07-18T02:47:14+00:00
-Supreme Court Urges Railways To Prevent Overcrowding In Trains, Suggests Dropping 'Second Class Passenger' Term
-https://www.livelaw.in/supreme-court/supreme-court-urges-railways-to-prevent-overcrowding-in-trains-suggests-dropping-second-class-passenger-term-541800
+### 2026-07-18T06:26:36+00:00
+2026 LiveLaw (SC) 691 | DEBOJIT PANKIKA CHARAIDEO SONARI VERSUS THE STATE OF ASSAM
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-691-debojit-pankika-charaideo-sonari-versus-the-state-of-assam-541831
 
-[Read on Telegram](https://t.me/livelawindia/114991)
+[Read on Telegram](https://t.me/livelawindia/115006)
 
 ---
-### 2026-07-18T02:48:14+00:00
-2026 LiveLaw (SC) 689 | Lata v Union of India
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-689-lata-v-union-of-india-541801
+### 2026-07-18T06:29:36+00:00
+Supreme Court Criminal Law Digest: June 2026
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-criminal-law-digest-2026-541832
 
-[Read on Telegram](https://t.me/livelawindia/114992)
+[Read on Telegram](https://t.me/livelawindia/115007)
+
+---
+### 2026-07-18T06:30:16+00:00
+AgustaWestland Chopper Scam | UK-Based Businessman Withdraws Plea In Supreme Court Against ED Warrants
+https://www.livelaw.in/top-stories/agustawestland-chopper-scam-uk-based-businessman-withdraws-plea-in-supreme-court-against-ed-warrants-541833
+
+[Read on Telegram](https://t.me/livelawindia/115008)
+
+---
+### 2026-07-18T06:32:56+00:00
+'Shattering Confidence Of Hardworking Youth': Orissa High Court Denies Bail To 14 Accused In ASO Exam Paper Leak
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-denies-bail-14accused-aso-exam-paper-leak-541820
+
+[Read on Telegram](https://t.me/livelawindia/115009)
+
+---
+### 2026-07-18T06:38:16+00:00
+Know The Law | Which Documents Require Mandatory Proof Of Attestation? Supreme Court Explains
+https://www.livelaw.in/know-the-law/know-the-law-which-documents-require-mandatory-proof-of-attestation-supreme-court-explains-541305
+
+[Read on Telegram](https://t.me/livelawindia/115010)
+
+---
+### 2026-07-18T06:44:06+00:00
+Sree Narayana Law College To Organise International Seminar On Law & Governance Of Global Healthcare In Digital Age
+https://www.livelaw.in/lawschool/seminars/sree-narayana-law-college-to-organise-international-seminar-on-law-governance-of-global-healthcare-in-digital-age-541835
+
+[Read on Telegram](https://t.me/livelawindia/115011)
+
+---
+### 2026-07-18T07:03:06+00:00
+Can't Conduct Detailed Inquiry Into Child's Welfare In Habeas Corpus Jurisdiction, Remedy Lies Under Guardians & Wards Act: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-detailed-inquiry-child-welfare-habeas-corpus-proceedings-541821
+
+[Read on Telegram](https://t.me/livelawindia/115012)
+
+---
+### 2026-07-18T07:16:46+00:00
+Know The Law| When Can A Right Be Waived? Supreme Court Explains
+https://www.livelaw.in/know-the-law/know-the-law-when-can-a-right-be-waived-supreme-court-explains-541315
+
+[Read on Telegram](https://t.me/livelawindia/115013)
+
+---
+### 2026-07-18T07:32:47+00:00
+Master Plan Has Statutory Force; Authorities Can't Permit Land Conversion Contrary To It: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-master-plan-authorities-permit-land-green-belt-conversions-illegal-541823
+
+[Read on Telegram](https://t.me/livelawindia/115014)
+
+---
+### 2026-07-18T07:34:27+00:00
+Calcutta High Court Grants Bail To Woman Accused In High-Value NDPS Case, Cites Advance Stage Of Pregnancy
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-grants-bail-to-8-month-pregnant-accused-in-high-value-ndps-case-on-humanitarian-grounds-541843
+
+[Read on Telegram](https://t.me/livelawindia/115015)
+
+---
+### 2026-07-18T07:56:37+00:00
+Co-Accused Acquitted On Same Evidence: Madras High Court Discharges UK Resident In CBI Illegal Telephone Exchange Case
+https://www.livelaw.in/law-firms/litigation/co-accused-acquitted-on-same-evidence-madras-high-court-discharges-uk-resident-in-cbi-illegal-telephone-exchange-case-541845
+
+[Read on Telegram](https://t.me/livelawindia/115016)
 
 ---
