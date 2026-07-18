@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-17T16:02:36+00:00*
+*Last Updated: 2026-07-18T07:52:50+00:00*
+
+---
+
+### 2026-07-18T07:52:50+00:00
+MP High Court Suggests Lawyer To Visit Old Age Home Instead Of Imposing Cost; Calls For Social Audit Of Such Institutions By Professionals
+https://www.verdictum.in/madhya-pradesh-high-court/nm-dubash-stone-lime-company-pvt-ltd-v-union-of-india-2026mphc-jbp52634-social-audit-1617990
+
+[Source Link](https://t.me/verdictumlegalupdates/28038)
+
+---
+
+### 2026-07-18T06:32:49+00:00
+Junior Lawyers Find It Lucrative, For Effortless Practice & Assured Orders: Kerala High Court Flags Petitions Filed On "Fabricated False Vakalath" To Unfreeze Cyber Fraud-Linked Accounts
+https://www.verdictum.in/kerala-high-court/sinana-farvin-v-kerala-gramin-bank-2026ker50777-fabricated-false-vakalath-unfreeze-cyber-fraud-linked-accounts-1617983
+
+[Source Link](https://t.me/verdictumlegalupdates/28037)
+
+---
+
+### 2026-07-18T06:32:28+00:00
+BCI Issues Directives Regarding Digital And Social Media Conduct Of Lawyers; Bans Interns From Making "Lawyer Life", "Day In Chamber" Reels
+https://www.verdictum.in/news/bar-council-of-india-digital-social-media-conduct-legal-practitioners-1617984
+
+[Source Link](https://t.me/verdictumlegalupdates/28036)
+
+---
+
+### 2026-07-18T05:52:04+00:00
+Nominated Members Of Municipalities Cannot Vote In Legislative Council Elections: Supreme Court
+https://www.verdictum.in/supreme-court/-pranesh-mk-v-av-gayathri-shanthegowda-and-others-2026-insc-716-1617980
+
+[Source Link](https://t.me/verdictumlegalupdates/28035)
+
+---
+
+### 2026-07-18T05:13:03+00:00
+Anyone With Mobile Phone Claims To Be Reporter: Delhi High Court Seeks Media Regulatory Framework Ensuring Professional Accountability
+https://www.verdictum.in/delhi-high-court/abid-ali-aabi-v-the-state-2026dhc5665-reporter-media-regulatory-framework-accountability-1617972
+
+[Source Link](https://t.me/verdictumlegalupdates/28034)
+
+---
+
+### 2026-07-18T04:32:31+00:00
+Mere Filing Of Application U/s. 340 CrPC When Case Is Reserved For Judgment Won't Oblige Trial Court To Defer Pronouncement: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/a-v-b-2026ahc140373-section-340-crpc-adjudication-maintenance-proceedings-1617949
+
+[Source Link](https://t.me/verdictumlegalupdates/28033)
 
 ---
 
@@ -113,54 +161,6 @@ Supreme Court To Hear Centre’s Plea Against HC Verdict Nullifying Tenders For 
 https://www.verdictum.in/supreme-court/plea-against-hc-verdict-nullifying-tenders-for-visa-services-at-indian-missions-1617923
 
 [Source Link](https://t.me/verdictumlegalupdates/28019)
-
----
-
-### 2026-07-17T08:52:50+00:00
-Supreme Court Agrees To Hear Somnath Bharti's Plea Challenging Election Of BJP's Satish Upadhyay In 2025 Assembly Polls
-https://www.verdictum.in/supreme-court/somnath-bhartis-plea-challenging-election-of-bjps-satish-upadhyay-in-2025-assembly-polls-1617916
-
-[Source Link](https://t.me/verdictumlegalupdates/28018)
-
----
-
-### 2026-07-17T08:22:29+00:00
-Supreme Court Issues Notice On PIL Seeking Distinct Legal Identity And Protection For Intersex Persons
-https://www.verdictum.in/supreme-court/issues-notice-pil-seeking-distinct-legal-identity-protection-intersex-persons-1617922
-
-[Source Link](https://t.me/verdictumlegalupdates/28017)
-
----
-
-### 2026-07-17T07:16:27+00:00
-Supreme Court Takes Suo Motu Cognizance Over Delays In Access To Life-Saving Medicines
-https://www.verdictum.in/supreme-court/suo-motu-cognizance-over-high-court-delays-access-life-saving-medicines-1617915
-
-[Source Link](https://t.me/verdictumlegalupdates/28016)
-
----
-
-### 2026-07-17T07:02:26+00:00
-Could Not Remain Silent Till Employee Crossed 55 Years, Then Rely On Its Own Delay: Supreme Court Orders Insurance Company To Grant Compassionate Appointment
-https://www.verdictum.in/supreme-court/rahul-so-ramnarayan-madankar-v-the-new-india-assurance-company-limited-2026-insc-710-compassionate-appointmen-1617909
-
-[Source Link](https://t.me/verdictumlegalupdates/28015)
-
----
-
-### 2026-07-17T06:32:25+00:00
-Supreme Court Permits Release Of Animated Film ‘Mahaprabhu Jagannath’ Post Rath Yatra Festivities
-https://www.verdictum.in/supreme-court/permits-release-of-animated-film-mahaprabhu-jagannath-post-rath-yatra-festivities-1617910
-
-[Source Link](https://t.me/verdictumlegalupdates/28014)
-
----
-
-### 2026-07-17T05:52:44+00:00
-Victim's Father Admitted Falsifying Daughter's Age For School Admission: Delhi High Court Acquits POCSO Accused
-https://www.verdictum.in/delhi-high-court/anarhul-haque-v-state-2026dhc5470-pocso-acquittal-conviction-set-aside-1617903
-
-[Source Link](https://t.me/verdictumlegalupdates/28013)
 
 ---
 
