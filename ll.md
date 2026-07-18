@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-17T14:02:48+00:00*
+*Last Updated: 2026-07-17T14:32:38+00:00*
 
 ---
 
-### 2026-07-17T14:02:48+00:00
-Madras High Court Refuses CBI Probe Into Alleged Poaching Of Tamil Nadu MLAs, Says Newspaper Reports Can't Be Basis
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-cbi-probe-horse-trading-mla-dismissed-541780
-
-[Read on Telegram](https://t.me/livelawindia/114970)
-
----
-### 2026-07-17T14:02:58+00:00
-Failed Contingent Contract Doesn't Defeat Claim For Services Actually Rendered: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/failed-contingent-contract-doesnt-defeat-claim-for-services-actually-rendered-calcutta-high-court-541695
-
-[Read on Telegram](https://t.me/livelawindia/114971)
-
----
-### 2026-07-17T14:29:28+00:00
-Maharashtra Govt Seeking To Shield 'Big Mandals' Through PoP Idols Immersion Policy: PIL Petitioner Tells Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/ganesha-pop-idol-immersion-water-pollution-maharashtra-policy-protects-big-mandals-541782
-
-[Read on Telegram](https://t.me/livelawindia/114972)
-
----
 ### 2026-07-17T14:32:38+00:00
 Words Are Not Enough: Every Clause Containing 'Arbitration' Is Not An Arbitration Agreement
 https://www.livelaw.in/lawschool/articles/clause-containing-arbitration-agreement-541385
@@ -142,5 +121,26 @@ Impossible To Satisfy Every Litigant, Judge's Morality Should Be Governed By Sen
 https://www.livelaw.in/high-court/orissa-high-court/justice-dixit-krishna-shripad-retires-judges-morality-governed-by-sensible-sections-of-society-541796
 
 [Read on Telegram](https://t.me/livelawindia/114989)
+
+---
+### 2026-07-18T02:32:14+00:00
+Bombay High Court Directs Maharashtra Govt To Frame Guidelines On Apartment Balcony Enclosures, Internal Flat Alterations
+https://www.livelaw.in/high-court/bombay-high-court/apartment-flat-renovation-balcony-terrace-enclosure-guidelines-541798
+
+[Read on Telegram](https://t.me/livelawindia/114990)
+
+---
+### 2026-07-18T02:47:14+00:00
+Supreme Court Urges Railways To Prevent Overcrowding In Trains, Suggests Dropping 'Second Class Passenger' Term
+https://www.livelaw.in/supreme-court/supreme-court-urges-railways-to-prevent-overcrowding-in-trains-suggests-dropping-second-class-passenger-term-541800
+
+[Read on Telegram](https://t.me/livelawindia/114991)
+
+---
+### 2026-07-18T02:48:14+00:00
+2026 LiveLaw (SC) 689 | Lata v Union of India
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-689-lata-v-union-of-india-541801
+
+[Read on Telegram](https://t.me/livelawindia/114992)
 
 ---
