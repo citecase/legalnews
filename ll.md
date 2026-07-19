@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-18T13:06:39+00:00*
+*Last Updated: 2026-07-19T04:32:36+00:00*
 
 ---
 
-### 2026-07-18T13:06:39+00:00
-Procedural Invalidity In The Curial Procedure Of Tendering Pardon To An Accomplice In A. Srinivasulu v. The State Rep. By The Inspector Of Police
-https://www.livelaw.in/articles/supreme-court-of-india-cbi-tendering-pardon-accomplice-procedural-invalidity-541876
-
-[Read on Telegram](https://t.me/livelawindia/115039)
-
----
-### 2026-07-18T14:06:09+00:00
-SCAORA Submits Recommendations On Supreme Court's Draft AI Regulations, Raises Concerns
-https://www.livelaw.in/top-stories/scaora-submits-recommendations-on-supreme-courts-draft-ai-regulations-raises-concerns-541877
-
-[Read on Telegram](https://t.me/livelawindia/115040)
-
----
-### 2026-07-18T14:32:50+00:00
-Supreme Court Rescues Arbitration Limitation Clock From Maintainability Trap
-https://www.livelaw.in/lawschool/articles/supreme-court-rescues-arbitration-limitation-clock-maintainability-trap-541620
-
-[Read on Telegram](https://t.me/livelawindia/115041)
-
----
-### 2026-07-18T14:48:50+00:00
-Nirmohi Akhara Moves Supreme Court Seeking Restructuring Of Ayodhya Ram Mandir Trust As Public Trust, Forensic Audit Of Finances
-https://www.livelaw.in/top-stories/nirmohi-akhara-moves-supreme-court-seeking-restructuring-of-ayodhya-ram-mandir-trust-as-public-trust-forensic-audit-of-finances-541880
-
-[Read on Telegram](https://t.me/livelawindia/115042)
-
----
-### 2026-07-18T15:12:41+00:00
-Call For Blog Submissions: Centre Of Excellence On Cyber Law And Artificial Intelligence Governance And Ethics Invites Contributions On Contemporary Cyber Law & AI Issues
-https://www.livelaw.in/lawschool/call-for-papers/call-for-blog-submissions-centre-of-excellence-on-cyber-law-and-artificial-intelligence-governance-and-ethics-invites-contributions-on-contemporary-cyber-law-ai-issues-541881
-
-[Read on Telegram](https://t.me/livelawindia/115043)
-
----
-### 2026-07-18T15:26:01+00:00
-Hunger Strike, Bodily Autonomy And Right To Die
-https://www.livelaw.in/articles/hunger-strike-bodily-autonomy-right-to-die-541886
-
-[Read on Telegram](https://t.me/livelawindia/115044)
-
----
-### 2026-07-18T16:07:51+00:00
-Sonam Wangchuk Protest : Law On Hunger Strikes & Judicial Approach
-https://www.livelaw.in/top-stories/sonam-wangchuk-protest-law-on-hunger-strikes-judicial-approach-541889
-
-[Read on Telegram](https://t.me/livelawindia/115045)
-
----
-### 2026-07-18T16:14:51+00:00
-Supreme Court Recommends IBC Amendment To Protect MSMEs, Says Small Operational Creditors Need Fairer Repayment Mechanism
-https://www.livelaw.in/supreme-court/supreme-court-recommends-ibc-amendment-to-protect-msmes-says-small-operational-creditors-need-fairer-repayment-mechanism-541890
-
-[Read on Telegram](https://t.me/livelawindia/115046)
-
----
-### 2026-07-18T16:16:31+00:00
-2026 LiveLaw (SC) 694 | M/S TATA STEEL LTD. VERSUS VARSHA & ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-694-ms-tata-steel-ltd-versus-varsha-anr-541891
-
-[Read on Telegram](https://t.me/livelawindia/115047)
-
----
-### 2026-07-18T16:48:41+00:00
-Supreme Court's 'Delhi Metro' Judgment Caused Extensive Damage To Arbitration In India: Justice Ujjal Bhuyan
-https://www.livelaw.in/top-stories/supreme-courts-delhi-metro-judgment-caused-extensive-damage-to-arbitration-in-india-justice-ujjal-bhuyan-541899
-
-[Read on Telegram](https://t.me/livelawindia/115048)
-
----
-### 2026-07-19T03:36:26+00:00
-Call For Papers; 4th CNLU–CARCIL National Conference on Securities Laws, 2026
-https://www.livelaw.in/lawschool/seminars/4th-cnlucarcil-national-conference-securities-laws-call-paper-541900
-
-[Read on Telegram](https://t.me/livelawindia/115049)
-
----
-### 2026-07-19T03:42:06+00:00
-Supreme Court Stays Demolitions Of Petitioners' Structures Near Rajasthan Indo-Pak Border For 2 Weeks, Asks Them To Move HC
-https://www.livelaw.in/top-stories/supreme-court-stays-demolitions-of-petitioners-structures-near-rajasthan-indo-pak-border-for-2-weeks-asks-them-to-move-hc-541901
-
-[Read on Telegram](https://t.me/livelawindia/115050)
-
----
-### 2026-07-19T04:06:16+00:00
-BREAKING| Sonam Wangchuk's Wife Moves Delhi High Court Seeking Transfer From Safdarjung Hospital, Alleges 'Illegal Detention'
-https://www.livelaw.in/high-court/delhi-high-court/sonam-wangchuks-wife-moves-delhi-high-court-seeking-transfer-from-safdarjung-hospital-alleges-illegal-detention-541902
-
-[Read on Telegram](https://t.me/livelawindia/115051)
-
----
 ### 2026-07-19T04:32:36+00:00
 LiveLaw Orissa High Court Half-Yearly Digest: January - June, 2026
 https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-half-yearly-digest-january-june2026-541064
@@ -142,5 +51,96 @@ https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-holds-
 https://www.livelaw.in/top-stories/delhi-high-court-sonam-wangchuk-hunger-strike-dr-gitanjali-angmo-letter-for-urgent-listing-immediate-release-from-safdarjung-hospital-541905
 
 [Read on Telegram](https://t.me/livelawindia/115058)
+
+---
+### 2026-07-19T08:31:00+00:00
+Haryana State Legal Services Authority Conducts Statewide Special Lok Adalat For Cases Under Negotiable Instruments Act
+https://www.livelaw.in/news-updates/haryana-state-legal-services-authority-conducts-statewide-special-lok-adalat-for-cases-under-negotiable-instruments-act-541906
+
+[Read on Telegram](https://t.me/livelawindia/115059)
+
+---
+### 2026-07-19T08:44:59+00:00
+Wife's Plea Against Sonam Wangchuk's Admission In Govt Hospital : Live Updates From Delhi High Court Sunday Hearing
+https://www.livelaw.in/top-stories/wifes-plea-against-sonam-wangchuks-admission-in-govt-hospital-live-updates-from-delhi-high-court-sunday-hearing-541907
+
+[Read on Telegram](https://t.me/livelawindia/115060)
+
+---
+### 2026-07-19T08:59:09+00:00
+Consultant (Law Officer) Vacancy At All India Institute Of Medical Sciences (AIIMS), Bhopal
+https://www.livelaw.in/job-updates/consultant-law-officer-vacancy-at-all-india-institute-of-medical-sciences-aiims-bhopal-541908
+
+[Read on Telegram](https://t.me/livelawindia/115061)
+
+---
+### 2026-07-19T09:00:49+00:00
+Support Person Vacancy At District Child Protection Unit, Begusarai
+https://www.livelaw.in/job-updates/support-person-vacancy-at-district-child-protection-unit-begusarai-541909
+
+[Read on Telegram](https://t.me/livelawindia/115062)
+
+---
+### 2026-07-19T09:03:09+00:00
+Consultant (Legal Affairs) Vacancy At Centre For Marine Living Resources And Ecology (CMLRE)
+https://www.livelaw.in/job-updates/consultant-legal-affairs-vacancy-at-centre-for-marine-living-resources-and-ecology-cmlre-541910
+
+[Read on Telegram](https://t.me/livelawindia/115063)
+
+---
+### 2026-07-19T09:07:29+00:00
+Deputy Manager (Ethics & Compliance) Vacancy At Deloitte Shared Services India LLP
+https://www.livelaw.in/job-updates/deputy-manager-ethics-compliance-vacancy-at-deloitte-shared-services-india-llp-541911
+
+[Read on Telegram](https://t.me/livelawindia/115064)
+
+---
+### 2026-07-19T09:15:49+00:00
+Calcutta High Court Orders Status Quo On Ongoing Demolition At TMC MP Abhishek Banerjee's Diamond Harbour MP Office
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-orders-status-quo-on-ongoing-demolition-at-tmc-mp-abhishek-banerjees-diamond-harbour-office-541912
+
+[Read on Telegram](https://t.me/livelawindia/115065)
+
+---
+### 2026-07-19T09:32:29+00:00
+Nominee Director Crisis Indian Law Refuses To Confront
+https://www.livelaw.in/articles/nominee-director-crisis-indian-law-refuses-confront-541760
+
+[Read on Telegram](https://t.me/livelawindia/115066)
+
+---
+### 2026-07-19T09:43:39+00:00
+Employer Can't Defeat Compassionate Appointment Claim By Delaying Processing: Supreme Court
+https://www.livelaw.in/supreme-court/supreme-court-compassionate-appointment-employer-delay-medical-retirement-541858
+
+[Read on Telegram](https://t.me/livelawindia/115067)
+
+---
+### 2026-07-19T10:27:40+00:00
+'Govt Was Right In Shifting Sonam Wangchuk To Hospital' : Delhi High Court Refuses Interim Plea For Private Hospital Transfer
+https://www.livelaw.in/high-court/delhi-high-court/govt-was-right-in-shifting-sonam-wangchuk-to-hospital-delhi-high-court-refuses-interim-plea-for-private-hospital-transfer-541913
+
+[Read on Telegram](https://t.me/livelawindia/115068)
+
+---
+### 2026-07-19T11:07:50+00:00
+Profession Infiltrated By Gangsters, Mafias: Allahabad High Court Bars Advocates Facing Heinous Offences From Practice, Shifts Their Trials
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-bars-advocates-heinous-crimes-shifts-trials-541914
+
+[Read on Telegram](https://t.me/livelawindia/115069)
+
+---
+### 2026-07-19T11:33:20+00:00
+LiveLaw Gauhati High Court Half Yearly Digest: January To June, 2026 [Citations 1 - 85]
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-half-yearly-digest-january-to-june-2026-541708
+
+[Read on Telegram](https://t.me/livelawindia/115070)
+
+---
+### 2026-07-19T11:37:40+00:00
+Supreme Court Issues Notice On Plea Seeking Elections In Maharashtra Local Bodies Treating Reservation Above 50% As Open Seats
+https://www.livelaw.in/top-stories/supreme-court-notice-on-plea-to-hold-maharashtra-local-body-elections-lapse-of-506-days-since-expiry-of-tenure-50-percent-reservation-ceiling-issue-541915
+
+[Read on Telegram](https://t.me/livelawindia/115071)
 
 ---
