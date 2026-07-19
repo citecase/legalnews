@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-19T07:32:32+00:00*
+*Last Updated: 2026-07-19T13:32:37+00:00*
+
+---
+
+### 2026-07-19T13:32:37+00:00
+Emergency Medical Reimbursement Under CGHS Cannot Be Denied Solely Because Treatment Was Availed At A Non-Empanelled Hospital: Kerala High Court
+https://www.verdictum.in/kerala-high-court/emergency-medical-reimbursement-non-empanelled-hospital-1618025
+
+[Source Link](https://t.me/verdictumlegalupdates/28057)
+
+---
+
+### 2026-07-19T12:02:56+00:00
+Application Of New Regime To Present Cohort Would Be Arbitrary: Delhi High Court Directs UGC, RCI To Recommence M.Phil. In Clinical Psychology
+https://www.verdictum.in/delhi-high-court/navya-sharma-v-university-grants-commission-2026dhc5638-ugc-rci-mphil-in-clinical-psychology-1618021
+
+[Source Link](https://t.me/verdictumlegalupdates/28056)
+
+---
+
+### 2026-07-19T10:33:14+00:00
+No Statutory Requirement U/S 299 CrPC Mandating Formal Order By Magistrate Recording Compliance Of Conditions: Supreme Court
+https://www.verdictum.in/supreme-court/the-state-of-west-bengal-v-kader-khan-2026-insc-718-statements-witnesses-section-299-crpc-1618020
+
+[Source Link](https://t.me/verdictumlegalupdates/28055)
+
+---
+
+### 2026-07-19T09:02:33+00:00
+Uncertain Or Unquantified Claims Cannot Be Permitted To Resurface Years After Approval: Supreme Court On Operational Creditors' Sub-Judice Claims Against Tata Steel
+https://www.verdictum.in/supreme-court/ms-tata-steel-ltd-v-varsha-2026-insc-717-sub-judice-claims-against-tata-steel-operational-creditors-1618019
+
+[Source Link](https://t.me/verdictumlegalupdates/28054)
 
 ---
 
@@ -129,38 +161,6 @@ MP High Court Suggests Lawyer To Visit Old Age Home Instead Of Imposing Cost; Ca
 https://www.verdictum.in/madhya-pradesh-high-court/nm-dubash-stone-lime-company-pvt-ltd-v-union-of-india-2026mphc-jbp52634-social-audit-1617990
 
 [Source Link](https://t.me/verdictumlegalupdates/28038)
-
----
-
-### 2026-07-18T06:32:49+00:00
-Junior Lawyers Find It Lucrative, For Effortless Practice & Assured Orders: Kerala High Court Flags Petitions Filed On "Fabricated False Vakalath" To Unfreeze Cyber Fraud-Linked Accounts
-https://www.verdictum.in/kerala-high-court/sinana-farvin-v-kerala-gramin-bank-2026ker50777-fabricated-false-vakalath-unfreeze-cyber-fraud-linked-accounts-1617983
-
-[Source Link](https://t.me/verdictumlegalupdates/28037)
-
----
-
-### 2026-07-18T06:32:28+00:00
-BCI Issues Directives Regarding Digital And Social Media Conduct Of Lawyers; Bans Interns From Making "Lawyer Life", "Day In Chamber" Reels
-https://www.verdictum.in/news/bar-council-of-india-digital-social-media-conduct-legal-practitioners-1617984
-
-[Source Link](https://t.me/verdictumlegalupdates/28036)
-
----
-
-### 2026-07-18T05:52:04+00:00
-Nominated Members Of Municipalities Cannot Vote In Legislative Council Elections: Supreme Court
-https://www.verdictum.in/supreme-court/-pranesh-mk-v-av-gayathri-shanthegowda-and-others-2026-insc-716-1617980
-
-[Source Link](https://t.me/verdictumlegalupdates/28035)
-
----
-
-### 2026-07-18T05:13:03+00:00
-Anyone With Mobile Phone Claims To Be Reporter: Delhi High Court Seeks Media Regulatory Framework Ensuring Professional Accountability
-https://www.verdictum.in/delhi-high-court/abid-ali-aabi-v-the-state-2026dhc5665-reporter-media-regulatory-framework-accountability-1617972
-
-[Source Link](https://t.me/verdictumlegalupdates/28034)
 
 ---
 
