@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-18T16:02:54+00:00*
+*Last Updated: 2026-07-19T07:32:32+00:00*
+
+---
+
+### 2026-07-19T07:32:32+00:00
+Not Open To One Division Bench To Hold That They Do Not Agree With Reasoning Of Other & Adopt A Different View: Madras High Court
+https://www.verdictum.in/madras-high-court/d-paramasivam-v-p-arunachalam-as-no-535-of-2026-and-cmp-no-12823-of-2026-coordinate-benches-not-open-to-one-division-bench-t-1618010
+
+[Source Link](https://t.me/verdictumlegalupdates/28053)
+
+---
+
+### 2026-07-19T06:02:21+00:00
+Order Directing Attendance At Police Station Away From Residence Illegal: Patna High Court Directs State To Pay Compensation
+https://www.verdictum.in/patna-high-court/rajesh-kumar-v-the-state-of-bihar-attendance-police-station-residence-1618016
+
+[Source Link](https://t.me/verdictumlegalupdates/28052)
+
+---
+
+### 2026-07-19T04:32:50+00:00
+Can’t Take Advantage Of Her Own Wrong: Bombay High Court Denies Maintenance To Woman Whose Second Marriage Was Annulled For Concealing Earlier Marriage
+https://www.verdictum.in/bombay-high-court/j-v-p-writ-petition-no-130-of-2023-second-marriage-was-annulled-concealing-earlier-marriage-live-in-wife-husband-1618015
+
+[Source Link](https://t.me/verdictumlegalupdates/28051)
 
 ---
 
@@ -137,30 +161,6 @@ Anyone With Mobile Phone Claims To Be Reporter: Delhi High Court Seeks Media Reg
 https://www.verdictum.in/delhi-high-court/abid-ali-aabi-v-the-state-2026dhc5665-reporter-media-regulatory-framework-accountability-1617972
 
 [Source Link](https://t.me/verdictumlegalupdates/28034)
-
----
-
-### 2026-07-18T04:32:31+00:00
-Mere Filing Of Application U/s. 340 CrPC When Case Is Reserved For Judgment Won't Oblige Trial Court To Defer Pronouncement: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/a-v-b-2026ahc140373-section-340-crpc-adjudication-maintenance-proceedings-1617949
-
-[Source Link](https://t.me/verdictumlegalupdates/28033)
-
----
-
-### 2026-07-17T16:02:36+00:00
-Principal Vacancy At Army Law College, Pune (AWES)
-https://www.verdictum.in/job-updates/army-law-college-1617944
-
-[Source Link](https://t.me/verdictumlegalupdates/28032)
-
----
-
-### 2026-07-17T15:32:35+00:00
-Gujarat High Court Remands Lijjat Papad ESI Dispute; Orders Fresh Examination Of Women Rolling Papads' Employee Status
-https://www.verdictum.in/gujarat-high-court/regional-director-v-shree-mahila-gruh-udyog-lijjatpapad-2026gujhc44136-lijjat-papad-esi-dispute-women-rolling-papads-1617943
-
-[Source Link](https://t.me/verdictumlegalupdates/28031)
 
 ---
 
