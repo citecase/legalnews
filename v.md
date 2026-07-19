@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-19T13:32:37+00:00*
+*Last Updated: 2026-07-19T15:02:38+00:00*
+
+---
+
+### 2026-07-19T15:02:38+00:00
+Consultant (Law Officer) Vacancy At AIIMS, Bhopal
+https://www.verdictum.in/job-updates/all-india-institute-of-medical-sciences-1618017
+
+[Source Link](https://t.me/verdictumlegalupdates/28058)
 
 ---
 
@@ -153,14 +161,6 @@ Arrest Under Health Security Se National Security Cess Act Must Comply With BNSS
 https://www.verdictum.in/allahabad-high-court/sanchit-seth-commissioner-of-cgst-and-central-excise-2026ahc146504-db-national-security-cess-act-comply-bnss-1618000
 
 [Source Link](https://t.me/verdictumlegalupdates/28039)
-
----
-
-### 2026-07-18T07:52:50+00:00
-MP High Court Suggests Lawyer To Visit Old Age Home Instead Of Imposing Cost; Calls For Social Audit Of Such Institutions By Professionals
-https://www.verdictum.in/madhya-pradesh-high-court/nm-dubash-stone-lime-company-pvt-ltd-v-union-of-india-2026mphc-jbp52634-social-audit-1617990
-
-[Source Link](https://t.me/verdictumlegalupdates/28038)
 
 ---
 
