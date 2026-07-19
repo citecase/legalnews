@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-19T04:32:36+00:00*
+*Last Updated: 2026-07-19T06:58:08+00:00*
 
 ---
 
-### 2026-07-19T04:32:36+00:00
-LiveLaw Orissa High Court Half-Yearly Digest: January - June, 2026
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-half-yearly-digest-january-june2026-541064
-
-[Read on Telegram](https://t.me/livelawindia/115052)
-
----
-### 2026-07-19T04:33:16+00:00
-Unlikely Fault Line: Boys Cannot Play In Women's Sports, But 3 Women Judges Dissent
-https://www.livelaw.in/articles/boys-play-women-sports-3-women-judges-dissent-541758
-
-[Read on Telegram](https://t.me/livelawindia/115053)
-
----
-### 2026-07-19T05:07:26+00:00
-Know The Law | When Can High Courts Grant Relief Under Article 226 Beyond Pleadings? Supreme Court Explains
-https://www.livelaw.in/supreme-court/know-the-law-when-can-high-courts-grant-relief-under-article-226-beyond-pleadings-supreme-court-explains-541322
-
-[Read on Telegram](https://t.me/livelawindia/115054)
-
----
-### 2026-07-19T05:22:26+00:00
-Can A Person Be Declared Foreigner Solely For Non-Appearance Before Foreigners Tribunal? Supreme Court Explains
-https://www.livelaw.in/top-stories/can-a-person-be-declared-foreigner-solely-for-non-appearance-before-foreigners-tribunal-supreme-court-explains-541893
-
-[Read on Telegram](https://t.me/livelawindia/115055)
-
----
 ### 2026-07-19T06:58:08+00:00
 How Can Dead Witness's Testimony Be Used Against Accused Who Absconded? Supreme Court Explains S.299 CrPC
 https://www.livelaw.in/supreme-court/how-can-dead-witnesss-testimony-be-used-against-accused-who-absconded-supreme-court-explains-s299-crpc-541853
@@ -142,5 +114,33 @@ Supreme Court Issues Notice On Plea Seeking Elections In Maharashtra Local Bodie
 https://www.livelaw.in/top-stories/supreme-court-notice-on-plea-to-hold-maharashtra-local-body-elections-lapse-of-506-days-since-expiry-of-tenure-50-percent-reservation-ceiling-issue-541915
 
 [Read on Telegram](https://t.me/livelawindia/115071)
+
+---
+### 2026-07-19T14:32:32+00:00
+When 'Information' Swallowed Platform: Section 69A After Telegram FZ LLC
+https://www.livelaw.in/articles/information-swallowed-platform-section69a-telegram-fz-llc-541762
+
+[Read on Telegram](https://t.me/livelawindia/115072)
+
+---
+### 2026-07-19T14:48:32+00:00
+Uttarakhand High Court Half-Yearly Digest: January To June 2026
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-half-yearly-digest-541920
+
+[Read on Telegram](https://t.me/livelawindia/115073)
+
+---
+### 2026-07-19T16:31:52+00:00
+RGNUL's CIIPR To Organise International Seminar On Inclusive Labour Law Regime In India
+https://www.livelaw.in/lawschool/seminars/rgnuls-ciipr-to-organise-international-seminar-on-inclusive-labour-law-regime-in-india-541929
+
+[Read on Telegram](https://t.me/livelawindia/115074)
+
+---
+### 2026-07-19T17:27:42+00:00
+LiveLaw Allahabad High Court Weekly Round-Up: July 13 to July 19, 2026
+https://www.livelaw.in/high-court/allahabad-high-court/livelaw-allahabad-high-court-weekly-round-up-july-13-to-july-19-2026-541930
+
+[Read on Telegram](https://t.me/livelawindia/115075)
 
 ---
