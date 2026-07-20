@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-20T14:32:37+00:00*
+*Last Updated: 2026-07-20T15:52:09+00:00*
+
+---
+
+### 2026-07-20T15:52:09+00:00
+Part-Time Consultant (Legal) Vacancy At Indian Statistical Institute (ISI)
+https://www.verdictum.in/job-updates/indian-statistical-institute-1618148
+
+[Source Link](https://t.me/verdictumlegalupdates/28076)
+
+---
+
+### 2026-07-20T15:12:58+00:00
+State GST Officers Automatically Authorized As “Proper Officers” U/S 4 IGST Act; Separate Central Notification Not Mandatory: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/ms-jai-ganesh-enterprise-v-union-of-india-2026gujhc44995-db-state-gst-officers-proper-officers-us-4-igst-act-1618147
+
+[Source Link](https://t.me/verdictumlegalupdates/28075)
 
 ---
 
@@ -145,22 +161,6 @@ Emergency Medical Reimbursement Under CGHS Cannot Be Denied Solely Because Treat
 https://www.verdictum.in/kerala-high-court/emergency-medical-reimbursement-non-empanelled-hospital-1618025
 
 [Source Link](https://t.me/verdictumlegalupdates/28057)
-
----
-
-### 2026-07-19T12:02:56+00:00
-Application Of New Regime To Present Cohort Would Be Arbitrary: Delhi High Court Directs UGC, RCI To Recommence M.Phil. In Clinical Psychology
-https://www.verdictum.in/delhi-high-court/navya-sharma-v-university-grants-commission-2026dhc5638-ugc-rci-mphil-in-clinical-psychology-1618021
-
-[Source Link](https://t.me/verdictumlegalupdates/28056)
-
----
-
-### 2026-07-19T10:33:14+00:00
-No Statutory Requirement U/S 299 CrPC Mandating Formal Order By Magistrate Recording Compliance Of Conditions: Supreme Court
-https://www.verdictum.in/supreme-court/the-state-of-west-bengal-v-kader-khan-2026-insc-718-statements-witnesses-section-299-crpc-1618020
-
-[Source Link](https://t.me/verdictumlegalupdates/28055)
 
 ---
 
