@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-19T15:02:38+00:00*
+*Last Updated: 2026-07-20T09:02:47+00:00*
+
+---
+
+### 2026-07-20T09:02:47+00:00
+Supreme Court Refuses To Urgently Hear Plea Against Demolition "Even If It Is Completely Dismantled Today", Asks Petitioner To Move HC
+https://www.verdictum.in/supreme-court/plea-against-demolition-urgent-refused-1618128
+
+[Source Link](https://t.me/verdictumlegalupdates/28066)
+
+---
+
+### 2026-07-20T08:32:26+00:00
+Refund Of Earnest Money In Specific Performance Suit Cannot Be Granted Without Specific Prayer U/S 22 Specific Relief Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/sumitra-v-rajesh-kumar-2026dhc5731-specific-performance-equitable-discretion-1618127
+
+[Source Link](https://t.me/verdictumlegalupdates/28065)
+
+---
+
+### 2026-07-20T07:52:45+00:00
+Showing Protest Is Hallmark Of Democracy; Raising Slogans Itself Not An Offence: Madras High Court Quashes Criminal Case Against Agriculturist
+https://www.verdictum.in/madras-high-court/krishnamoorthy-v-state-protest-democracy-slogans-case-agriculturist-1618122
+
+[Source Link](https://t.me/verdictumlegalupdates/28064)
+
+---
+
+### 2026-07-20T07:13:04+00:00
+Writ Petition Against Bank Maintainable For Unpaid Fixed Deposit Interest Claim Decidable On Admitted Records: Kerala High Court
+https://www.verdictum.in/kerala-high-court/narayan-bharathan-v-state-bank-of-india-another-2026ker48642-interest-writ-1618120
+
+[Source Link](https://t.me/verdictumlegalupdates/28063)
+
+---
+
+### 2026-07-20T06:33:03+00:00
+Partition Suit Pending Till Final Decree Can Account For Birth & Death Of Sharers: Madras High Court
+https://www.verdictum.in/madras-high-court/lakshmana-gounder-since-deceased-others-v-selvi-another-2026mhc2841-1618113
+
+[Source Link](https://t.me/verdictumlegalupdates/28062)
+
+---
+
+### 2026-07-20T05:53:02+00:00
+Banks Can Consider Co-Borrower's Credit Score While Deciding Educational Loan Application: Kerala High Court
+https://www.verdictum.in/kerala-high-court/dilha-jan-govindan-v-state-bank-of-india-2026ker51085-parent-co-borrowers-poor-credit-score-1618105
+
+[Source Link](https://t.me/verdictumlegalupdates/28061)
+
+---
+
+### 2026-07-20T05:03:00+00:00
+Mere Absence Of Ticket Doesn't Defeat Bona Fide Passenger Claim: Supreme Court Awards Compensation To Widow Of Man Who Fell From Running Train
+https://www.verdictum.in/supreme-court/lata-v-union-of-india-2026-insc-715-railways-failure-to-enforce-own-protocol-ticket-checking-compensation-1618018
+
+[Source Link](https://t.me/verdictumlegalupdates/28060)
+
+---
+
+### 2026-07-20T04:32:49+00:00
+Marriage To Third Party Behind Prosecutrix's Back Creates Grave Suspicion Warranting Trial: Delhi High Court Refuses Discharge In Rape Case
+https://www.verdictum.in/delhi-high-court/2026-dhc-5693-anurag-v-state-1618028
+
+[Source Link](https://t.me/verdictumlegalupdates/28059)
 
 ---
 
@@ -97,70 +161,6 @@ Investigators Must Brief Prosecutors Before Court Commences: Delhi HC Asks Commi
 https://www.verdictum.in/delhi-high-court/ram-hari-rai-v-the-state-of-nct-of-delhi-2026dhc5710-police-jail-investigators-prosecutors-1618030
 
 [Source Link](https://t.me/verdictumlegalupdates/28047)
-
----
-
-### 2026-07-18T13:12:10+00:00
-Not Entitled To Probation Merely Due To Lapse Of Time: Gujarat High Court Directs Men Convicted U/S 354 IPC To Surrender After 18 Years
-https://www.verdictum.in/gujarat-high-court/rajeshbhai-ashokbhai-gohel-luhar-anr-v-state-of-gujarat-probation-1618009
-
-[Source Link](https://t.me/verdictumlegalupdates/28046)
-
----
-
-### 2026-07-18T12:32:49+00:00
-Initial Admission To KG Can’t Be Declared Void Ab Initio Merely Because Parents Furnished Incorrect Date Of Birth Projecting Child To Be One Month Younger: Delhi High Court
-https://www.verdictum.in/delhi-high-court/master-aarav-giri-v-st-columbas-school-2026dhc5724-initial-admission-kg-date-of-birth-1618008
-
-[Source Link](https://t.me/verdictumlegalupdates/28045)
-
----
-
-### 2026-07-18T11:52:37+00:00
-Medical Condition No Ground To Deny HOD Post If Employee Is Fit To Continue As Professor: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/2026-mphc-gwl-21103-dr-devendra-kumar-shakya-v-state-of-madhya-pradesh-1618007
-
-[Source Link](https://t.me/verdictumlegalupdates/28044)
-
----
-
-### 2026-07-18T11:12:56+00:00
-Taking Snakebite Victim To Sorcerer Not Enough For Conviction U/S 304A IPC Without Proof That Hospital Treatment Could Have Saved Her: Himachal Pradesh High Court
-https://www.verdictum.in/himachal-high-court/state-of-hp-v-dev-raj-2026hhc28268-section-304a-indian-penal-code-1618005
-
-[Source Link](https://t.me/verdictumlegalupdates/28043)
-
----
-
-### 2026-07-18T10:32:15+00:00
-Wife Must Prove Entrustment Of Ornaments To Husband For Recovery Claims: Kerala High Court Notes That Modern Independent Brides Often Retain Control Of Gold
-https://www.verdictum.in/kerala-high-court/2026-ker-50611-wife-prove-entrustment-ornaments-1618004
-
-[Source Link](https://t.me/verdictumlegalupdates/28042)
-
----
-
-### 2026-07-18T09:52:54+00:00
-Obscenity Is Not Synonymous With Vulgarity, Abuse Or Profanity: Supreme Court Sets Aside Conviction U/S. 294 IPC
-https://www.verdictum.in/supreme-court/mani-subramaniyam-v-state-rep-by-the-deputy-superintendent-of-police-2026-insc-719-1618003
-
-[Source Link](https://t.me/verdictumlegalupdates/28041)
-
----
-
-### 2026-07-18T09:12:53+00:00
-Supreme Court Gives Assam 2 Weeks To Respond To Pleas Against Foreigner Declaration Orders
-https://www.verdictum.in/supreme-court/assam-2-weeks-to-respond-to-pleas-against-foreigner-declaration-orders-1617995
-
-[Source Link](https://t.me/verdictumlegalupdates/28040)
-
----
-
-### 2026-07-18T08:33:12+00:00
-Arrest Under Health Security Se National Security Cess Act Must Comply With BNSS Safeguards: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/sanchit-seth-commissioner-of-cgst-and-central-excise-2026ahc146504-db-national-security-cess-act-comply-bnss-1618000
-
-[Source Link](https://t.me/verdictumlegalupdates/28039)
 
 ---
 
