@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-20T07:01:08+00:00*
+*Last Updated: 2026-07-20T12:03:04+00:00*
 
 ---
 
-### 2026-07-20T07:01:08+00:00
-Protecting The Beautiful Game: Evolution Of Anti-Piracy Injunctions In India Through FIFA World Cup 2026
-https://www.livelaw.in/articles/delhi-high-court-anti-piracy-injunctions-broadcasting-rights-fifa-world-cup-541987
+### 2026-07-20T12:03:04+00:00
+Delhi High Court Issues Notice On NIA's Plea Against Bail Granted To Activist Khurram Parvez, Journalist Irfan Mehraj In UAPA Case
+https://www.livelaw.in/high-court/delhi-high-court/nia-challenge-khurram-parvez-irfan-mehraj-bail-uapa-542046
 
-[Read on Telegram](https://t.me/livelawindia/115107)
-
----
-### 2026-07-20T07:02:48+00:00
-Who Owns Your Digital Self? Reimagining Personality Rights In Age Of AI Clones
-https://www.livelaw.in/articles/reimagining-personality-rights-ai-clones-541953
-
-[Read on Telegram](https://t.me/livelawindia/115108)
+[Read on Telegram](https://t.me/livelawindia/115146)
 
 ---
-### 2026-07-20T07:02:58+00:00
-Alleged Illegal Acts Committed During Juvenility Cannot Justify Preventive Detention After Attaining Majority: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/illegal-acts-allegedly-committed-during-juvenility-cannot-be-revived-to-justify-preventive-detention-after-attaining-majority-jkl-high-court-541922
+### 2026-07-20T12:17:44+00:00
+Delhi High Court Recalls Gag Order Against 'The Wire', Says Prior Restraint On Future Publications In Defamation Cases Is Legally Unsustainable
+https://www.livelaw.in/high-court/delhi-high-court/the-wire-gag-order-on-future-publications-recalled-former-delhi-chief-secretary-defamation-542051
 
-[Read on Telegram](https://t.me/livelawindia/115109)
-
----
-### 2026-07-20T07:07:08+00:00
-HC Judges' Post-Retirement Benefits Must Be Uniform Across Country : Supreme Court Asks Centre To Form Committee
-https://www.livelaw.in/top-stories/hc-judges-post-retirement-benefits-must-be-uniform-across-country-supreme-court-asks-centre-to-form-committee-541989
-
-[Read on Telegram](https://t.me/livelawindia/115110)
+[Read on Telegram](https://t.me/livelawindia/115147)
 
 ---
-### 2026-07-20T07:17:28+00:00
-Kerala High Court Closes Plea Against Vice-Chancellor's Appointment Of University Standing Counsel After Former Counsel's Resignation
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kerala-university-standing-counsel-541990
+### 2026-07-20T12:25:04+00:00
+Chief Justice Of India Surya Kant Launches Prof. (Dr.) Seema Gupta's Book 'The Mediation Movement In India' At Chandigarh
+https://www.livelaw.in/events/chief-justice-of-india-surya-kant-launches-seema-gupta-mediation-book-542054
 
-[Read on Telegram](https://t.me/livelawindia/115111)
-
----
-### 2026-07-20T07:21:08+00:00
-'Not Of Sound Mind': Allahabad High Court Orders Mental Examination Of Man Accused Of Blackmailing Woman With Obscene Photos
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-mental-examination-blackmail-obscene-photos-bail-rejected-541993
-
-[Read on Telegram](https://t.me/livelawindia/115112)
+[Read on Telegram](https://t.me/livelawindia/115148)
 
 ---
-### 2026-07-20T07:24:48+00:00
-Calcutta High Court Extends Interim Protection To Abhishek Banerjee, Declines Urgent Plea To Fly Abroad For Eye Treatment
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-extends-interim-protection-to-abhishek-banerjee-declines-urgent-plea-to-fly-abroad-for-eye-treatment-541994
+### 2026-07-20T12:32:24+00:00
+Sabarimala Gold Theft: Kerala High Court Directs SIT To Complete Probe After Receipt Of Scientific Report From National Metallurgical Lab
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sabarimala-gold-theft-sit-final-report-scientific-report-542052
 
-[Read on Telegram](https://t.me/livelawindia/115113)
-
----
-### 2026-07-20T07:28:48+00:00
-Supreme Court Pulls Up Centre For Delaying Decision On Ex-Cop's President's Gallantry Award For Anti-Dacoity Operation
-https://www.livelaw.in/top-stories/supreme-court-pulls-up-centre-for-delaying-decision-on-ex-cops-presidents-gallantry-award-for-anti-dacoity-operation-541995
-
-[Read on Telegram](https://t.me/livelawindia/115114)
+[Read on Telegram](https://t.me/livelawindia/115149)
 
 ---
-### 2026-07-20T07:32:48+00:00
-LiveLaw Madras High Court Weekly Roundup: July 13 to July 19, 2026
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-july-13-to-july-19-2026-541976
+### 2026-07-20T12:47:14+00:00
+Karnataka High Court Directs KSLU To Reduce Cut-Off Marks For Transgender Candidates By At Least 2%, Provide Reservation In LLB Admissions
+https://www.livelaw.in/high-court/karnataka-high-court/transgender-reservation-in-education-kslu-reduce-cut-off-marks-llb-admissions-542057
 
-[Read on Telegram](https://t.me/livelawindia/115115)
-
----
-### 2026-07-20T07:48:08+00:00
-Motor Accident Appeal Can Be Withdrawn; Claimants Can't Seek Enhancement Of Compensation Without Cross-Appeal: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-appellant-withdraw-mact-appeal-claim-compensation-enhancement-541961
-
-[Read on Telegram](https://t.me/livelawindia/115116)
+[Read on Telegram](https://t.me/livelawindia/115150)
 
 ---
-### 2026-07-20T07:51:48+00:00
-Supreme Court Stays HC Order Allowing Accused To Inspect Unrelied Electronic Evidence In Delhi Riots Larger Conspiracy Case
-https://www.livelaw.in/top-stories/supreme-court-stays-hc-order-allowing-accused-to-inspect-unrelied-electronic-evidence-in-delhi-riots-larger-conspiracy-case-542000
+### 2026-07-20T12:48:34+00:00
+Supreme Court Expresses Concern Over Quality Of MACT Judgments, Calls For Clear And Reasoned Findings
+https://www.livelaw.in/supreme-court/supreme-court-expresses-concern-over-quality-of-mact-judgments-calls-for-clear-and-reasoned-findings-542059
 
-[Read on Telegram](https://t.me/livelawindia/115117)
-
----
-### 2026-07-20T08:02:38+00:00
-Fresh DNA Test Can't Be Denied Over Earlier Report Being Unchallenged, Child's Right To Recognition Of Paternity Prevails: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-child-denied-fresh-dna-test-right-identity-maintenance-prevails-541966
-
-[Read on Telegram](https://t.me/livelawindia/115118)
+[Read on Telegram](https://t.me/livelawindia/115151)
 
 ---
-### 2026-07-20T08:03:18+00:00
-Solan Consumer Commission Directs Himalayan Dreams Villas To Refund ₹32 Lakh To Homebuyers For Failing To Deliver Promised Cottage
-https://www.livelaw.in/consumer-cases/solan-consumer-commission-directs-himalayan-dreams-villas-to-refund-32-lakh-to-homebuyers-for-failing-to-deliver-promised-cottage-541965
+### 2026-07-20T12:51:54+00:00
+2026 LiveLaw (SC) 696 | THE ORIENTAL INSURANCE CO. LTD. VERSUS DURG ROADWAYS PRIVATE LIMITED & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-696-the-oriental-insurance-co-ltd-versus-durg-roadways-private-limited-ors-542060
 
-[Read on Telegram](https://t.me/livelawindia/115119)
-
----
-### 2026-07-20T08:05:58+00:00
-Calcutta High Court Orders Arrest Of Cricketer Abhishek Porel In Rape Case, For Allegedly Blackmailing Student With Private Photos
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-orders-arrest-of-cricketer-abhishek-porel-in-alleged-rape-case-blackmailing-student-with-private-photos-542004
-
-[Read on Telegram](https://t.me/livelawindia/115120)
+[Read on Telegram](https://t.me/livelawindia/115152)
 
 ---
-### 2026-07-20T08:13:58+00:00
-Supreme Court Affirms Delhi HC Verdict Quashing MEA Tenders On Outsourcing Consular Services At 4 Indian Missions
-https://www.livelaw.in/top-stories/supreme-court-affirms-delhi-hc-verdict-quashing-mea-tenders-on-outsourcing-consular-services-at-4-indian-missions-542005
+### 2026-07-20T13:03:14+00:00
+LiveLaw Andhra Pradesh High Court Weekly Round-Up: July 13 - July 19, 2026
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-weekly-roundup2026-541973
 
-[Read on Telegram](https://t.me/livelawindia/115121)
-
----
-### 2026-07-20T08:18:19+00:00
-Subsequent Developments Can't Be Used To Bypass Writ Court Orders In Contempt Proceedings: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-contempt-writ-court-order-tender-circumvent-541974
-
-[Read on Telegram](https://t.me/livelawindia/115122)
+[Read on Telegram](https://t.me/livelawindia/115153)
 
 ---
-### 2026-07-20T08:32:19+00:00
-District Collector Can't Order Police To Recall Closure Report Or Reopen Probe: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/district-collector-cant-recall-police-closure-report-order-probe-541975
+### 2026-07-20T13:10:34+00:00
+Madhya Pradesh Bar Association Launches Mentorship Programme For Young Women Lawyers And Interns
+https://www.livelaw.in/news-updates/madhya-pradesh-high-court-bar-association-initiates-young-female-mentorship-program-542062
 
-[Read on Telegram](https://t.me/livelawindia/115123)
-
----
-### 2026-07-20T08:48:09+00:00
-Jammu & Kashmir And Ladakh High Court Weekly Roundup: July 13 - July 19, 2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-weekly-roundup-july-13-july-19-2026-541923
-
-[Read on Telegram](https://t.me/livelawindia/115124)
+[Read on Telegram](https://t.me/livelawindia/115154)
 
 ---
-### 2026-07-20T09:02:19+00:00
-Madras High Court Quashes Criminal Case Against Youth Booked For 'Recklessly Replying' To Police Query During Night Patrol
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-man-reckless-reply-police-officer-case-quashed-541985
+### 2026-07-20T13:12:35+00:00
+HP High Court Directs State To Return Land Given For Government School After Closure Due To Zero Enrolment
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-directs-state-return-land-government-school-zero-student-enrolment-541928
 
-[Read on Telegram](https://t.me/livelawindia/115125)
+[Read on Telegram](https://t.me/livelawindia/115155)
 
 ---
-### 2026-07-20T09:02:49+00:00
-Supreme Court Questions BCI's Opposition To Enrolment Of Advocate With Pending Criminal Case
-https://www.livelaw.in/top-stories/supreme-court-questions-bcis-opposition-to-enrolment-of-advocate-with-pending-criminal-case-542015
+### 2026-07-20T13:14:35+00:00
+'Was Aged Only 25 Yrs, Reformation Possible' : Supreme Court Reduces Life Term Of Gang Rape Convict To 20 Yrs
+https://www.livelaw.in/supreme-court/was-aged-only-25-yrs-reformation-possible-supreme-court-reduces-life-term-of-gang-rape-convict-to-20-yrs-542063
 
-[Read on Telegram](https://t.me/livelawindia/115126)
+[Read on Telegram](https://t.me/livelawindia/115156)
+
+---
+### 2026-07-20T13:15:34+00:00
+'Only Ensuring Law & Order': Delhi Police Opposes PIL Alleging Surveillance Of Protesters At Jantar Mantar
+https://www.livelaw.in/high-court/delhi-high-court/cjp-protest-surveillance-allegations-denied-delhi-police-542064
+
+[Read on Telegram](https://t.me/livelawindia/115157)
+
+---
+### 2026-07-20T13:17:35+00:00
+2026 LiveLaw (SC) 697 | EHSAAN VERSUS STATE OF NATIONAL CAPITAL TERRITORY OF DELHI
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-697-ehsaan-versus-state-of-national-capital-territory-of-delhi-542065
+
+[Read on Telegram](https://t.me/livelawindia/115158)
+
+---
+### 2026-07-20T13:21:35+00:00
+Uttarakhand High Court Questions Police Over Detention Of Politician En Route To CJP's Parliament March
+https://www.livelaw.in/high-court/uttarakhand-high-court/cjp-protest-uttarakhand-politician-prabhat-dhyani-detention-police-542066
+
+[Read on Telegram](https://t.me/livelawindia/115159)
+
+---
+### 2026-07-20T13:22:15+00:00
+Supreme Court Affirms Ban On Commercial Activity In Segur Plateau Elephant Corridor
+https://www.livelaw.in/top-stories/supreme-court-tamil-nadu-segur-plateau-elephant-corridor-no-commercial-activity-permissible-seek-alternate-source-of-livelihood-542067
+
+[Read on Telegram](https://t.me/livelawindia/115160)
+
+---
+### 2026-07-20T13:24:15+00:00
+POCSO Act | Delhi High Court Grants Bail To Woman Accused Of Sexual Assault On Minor Boy, Notes Victim's Mother Has No Objection
+https://www.livelaw.in/high-court/delhi-high-court/pocso-act-delhi-high-court-grants-bail-to-woman-accused-of-sexual-assault-on-minor-boy-notes-victims-mother-has-no-objection-542069
+
+[Read on Telegram](https://t.me/livelawindia/115161)
+
+---
+### 2026-07-20T13:33:05+00:00
+'Hope Wiser Heads Will Prevail, Resolve Issue Amicably': Punjab & Haryana High Court On Lawyers' Strike Against LADC Scheme
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-on-lawyers-strike-against-ladc-disrupting-district-courts-542070
+
+[Read on Telegram](https://t.me/livelawindia/115162)
+
+---
+### 2026-07-20T13:47:25+00:00
+Uttarakhand High Court Quashes Maggi Noodles Misbranding Case Against Nestlé, Says Food Analyst's Report Was Legally Unsustainable
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-quashes-maggi-noodles-criminal-cases-nestl-541926
+
+[Read on Telegram](https://t.me/livelawindia/115163)
+
+---
+### 2026-07-20T13:49:05+00:00
+LiveLaw Daily | Ram Mandir Donation | Abishek Porel| Sonam Wangchuk| Devangana Kalita| BCI Enrolment
+https://www.livelaw.in/podcast/livelaw-daily-ram-mandir-sonam-wangchuk-protest-bar-council-of-india-bci-advocates-students-judiciary-upsc-exam-delhi-riots-india-news-542076
+
+[Read on Telegram](https://t.me/livelawindia/115164)
+
+---
+### 2026-07-20T14:02:45+00:00
+'At Best Deficiency In Service': AP High Court Quashes Cheating FIR Over Supply Of Inferior Quality Oxygen Plant During Covid-19 Pandemic
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-oxygen-plant-allegation-service-deficiency-542009
+
+[Read on Telegram](https://t.me/livelawindia/115165)
 
 ---
