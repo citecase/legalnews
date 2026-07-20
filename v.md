@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-20T09:02:47+00:00*
+*Last Updated: 2026-07-20T14:32:37+00:00*
+
+---
+
+### 2026-07-20T14:32:37+00:00
+Madhya Pradesh High Court Imposes ₹ 75k Cost On Advocate Questioning Private University Regulatory Commission Appointment
+https://www.verdictum.in/madhya-pradesh-high-court/anil-singh-v-the-state-of-madhya-pradesh-2026mphc-jbp52560-pil-pvt-university-regulatory-commission-1618146
+
+[Source Link](https://t.me/verdictumlegalupdates/28074)
+
+---
+
+### 2026-07-20T13:52:15+00:00
+Given The Young Age There Is Possibility Of Reformation: Supreme Court Modifies Sentence Of Rape Convict
+https://www.verdictum.in/supreme-court/ehsaan-v-state-of-national-capital-territory-of-delhi-2026-insc-720-sentence-rape-convict-1618155
+
+[Source Link](https://t.me/verdictumlegalupdates/28073)
+
+---
+
+### 2026-07-20T13:13:14+00:00
+Foreign Counsel Cannot Examine Or Cross Examine Witnesses In India Before Court Commissioner: Kerala High Court
+https://www.verdictum.in/kerala-high-court/sharestates-inc-v-prasad-choorakuzhiyil-gopalan-ia-no-12026-in-mjc-no-82-of-2026-court-appointed-commissioner-1618144
+
+[Source Link](https://t.me/verdictumlegalupdates/28072)
+
+---
+
+### 2026-07-20T12:32:53+00:00
+Descendant Not Entitled To Seek Inclusion In Sikkim Subject Register Without Establishing That His Predecessor Had Renounced Former Nationality: High Court
+https://www.verdictum.in/sikkim-high-court/shri-kishan-kumar-bhujel-v-union-of-india-2026shc75-descendant-sikkim-subject-register-1618143
+
+[Source Link](https://t.me/verdictumlegalupdates/28071)
+
+---
+
+### 2026-07-20T11:52:32+00:00
+Don't Politicise The Issue: Supreme Court In Ayodhya Ram Temple Donation Theft Case
+https://www.verdictum.in/supreme-court/ayodhya-ram-temple-donation-theft-case-1618138
+
+[Source Link](https://t.me/verdictumlegalupdates/28070)
+
+---
+
+### 2026-07-20T11:12:11+00:00
+Supreme Court Asks Centre To Set Up Panel For Uniform Post-Retirement Benefits For Ex-Judges
+https://www.verdictum.in/supreme-court/panel-for-uniform-post-retirement-benefits-for-ex-judges-1618137
+
+[Source Link](https://t.me/verdictumlegalupdates/28069)
+
+---
+
+### 2026-07-20T10:32:50+00:00
+Section 20 Domestic Violence Act Covers Daughter’s Education Expenses; Father Can’t Refuse Payment Merely Because She Attained Majority: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/vc-v-vpc-section-20-domestic-violence-daughter-education-post-graduation-1618134
+
+[Source Link](https://t.me/verdictumlegalupdates/28068)
+
+---
+
+### 2026-07-20T09:52:49+00:00
+Rigid Application Of Age Restriction Under Surrogacy (Regulation) Act Infringes Reproductive Autonomy: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/anshu-shukla-v-union-of-india-2026ahc-lko43965-db-age-surrogacy-regulation-act-1618131
+
+[Source Link](https://t.me/verdictumlegalupdates/28067)
 
 ---
 
@@ -97,70 +161,6 @@ No Statutory Requirement U/S 299 CrPC Mandating Formal Order By Magistrate Recor
 https://www.verdictum.in/supreme-court/the-state-of-west-bengal-v-kader-khan-2026-insc-718-statements-witnesses-section-299-crpc-1618020
 
 [Source Link](https://t.me/verdictumlegalupdates/28055)
-
----
-
-### 2026-07-19T09:02:33+00:00
-Uncertain Or Unquantified Claims Cannot Be Permitted To Resurface Years After Approval: Supreme Court On Operational Creditors' Sub-Judice Claims Against Tata Steel
-https://www.verdictum.in/supreme-court/ms-tata-steel-ltd-v-varsha-2026-insc-717-sub-judice-claims-against-tata-steel-operational-creditors-1618019
-
-[Source Link](https://t.me/verdictumlegalupdates/28054)
-
----
-
-### 2026-07-19T07:32:32+00:00
-Not Open To One Division Bench To Hold That They Do Not Agree With Reasoning Of Other & Adopt A Different View: Madras High Court
-https://www.verdictum.in/madras-high-court/d-paramasivam-v-p-arunachalam-as-no-535-of-2026-and-cmp-no-12823-of-2026-coordinate-benches-not-open-to-one-division-bench-t-1618010
-
-[Source Link](https://t.me/verdictumlegalupdates/28053)
-
----
-
-### 2026-07-19T06:02:21+00:00
-Order Directing Attendance At Police Station Away From Residence Illegal: Patna High Court Directs State To Pay Compensation
-https://www.verdictum.in/patna-high-court/rajesh-kumar-v-the-state-of-bihar-attendance-police-station-residence-1618016
-
-[Source Link](https://t.me/verdictumlegalupdates/28052)
-
----
-
-### 2026-07-19T04:32:50+00:00
-Can’t Take Advantage Of Her Own Wrong: Bombay High Court Denies Maintenance To Woman Whose Second Marriage Was Annulled For Concealing Earlier Marriage
-https://www.verdictum.in/bombay-high-court/j-v-p-writ-petition-no-130-of-2023-second-marriage-was-annulled-concealing-earlier-marriage-live-in-wife-husband-1618015
-
-[Source Link](https://t.me/verdictumlegalupdates/28051)
-
----
-
-### 2026-07-18T16:02:54+00:00
-Young Professional Vacancy At Directorate General of Foreign Trade (DGFT)
-https://www.verdictum.in/job-updates/directorate-general-of-foreign-trade-1618012
-
-[Source Link](https://t.me/verdictumlegalupdates/28050)
-
----
-
-### 2026-07-18T15:12:33+00:00
-Injury Caused To Victim During Commission Of Robbery Is Punishable U/s. 392 & 394 Of IPC And Not Section 307: Delhi High Court
-https://www.verdictum.in/delhi-high-court/state-v-ashish-kumar-2026dhc5711-injury-victim-robbery-sections-392-ipc-attempted-murder-1618026
-
-[Source Link](https://t.me/verdictumlegalupdates/28049)
-
----
-
-### 2026-07-18T14:32:52+00:00
-Preponderance Of Probability Sufficient In Departmental Proceedings: Madras High Court Sets Aside Reinstatement Of Police Officer Found Drunk Inside Court Hall
-https://www.verdictum.in/madras-high-court/2026-mhc-2846-director-general-of-police-v-v-arumuram-1618011
-
-[Source Link](https://t.me/verdictumlegalupdates/28048)
-
----
-
-### 2026-07-18T13:52:31+00:00
-Investigators Must Brief Prosecutors Before Court Commences: Delhi HC Asks Commissioner To Issue Directions To Investigating Officers
-https://www.verdictum.in/delhi-high-court/ram-hari-rai-v-the-state-of-nct-of-delhi-2026dhc5710-police-jail-investigators-prosecutors-1618030
-
-[Source Link](https://t.me/verdictumlegalupdates/28047)
 
 ---
 
