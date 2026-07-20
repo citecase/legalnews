@@ -1,107 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-20T12:03:04+00:00*
+*Last Updated: 2026-07-20T13:22:15+00:00*
 
 ---
 
-### 2026-07-20T12:03:04+00:00
-Delhi High Court Issues Notice On NIA's Plea Against Bail Granted To Activist Khurram Parvez, Journalist Irfan Mehraj In UAPA Case
-https://www.livelaw.in/high-court/delhi-high-court/nia-challenge-khurram-parvez-irfan-mehraj-bail-uapa-542046
-
-[Read on Telegram](https://t.me/livelawindia/115146)
-
----
-### 2026-07-20T12:17:44+00:00
-Delhi High Court Recalls Gag Order Against 'The Wire', Says Prior Restraint On Future Publications In Defamation Cases Is Legally Unsustainable
-https://www.livelaw.in/high-court/delhi-high-court/the-wire-gag-order-on-future-publications-recalled-former-delhi-chief-secretary-defamation-542051
-
-[Read on Telegram](https://t.me/livelawindia/115147)
-
----
-### 2026-07-20T12:25:04+00:00
-Chief Justice Of India Surya Kant Launches Prof. (Dr.) Seema Gupta's Book 'The Mediation Movement In India' At Chandigarh
-https://www.livelaw.in/events/chief-justice-of-india-surya-kant-launches-seema-gupta-mediation-book-542054
-
-[Read on Telegram](https://t.me/livelawindia/115148)
-
----
-### 2026-07-20T12:32:24+00:00
-Sabarimala Gold Theft: Kerala High Court Directs SIT To Complete Probe After Receipt Of Scientific Report From National Metallurgical Lab
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sabarimala-gold-theft-sit-final-report-scientific-report-542052
-
-[Read on Telegram](https://t.me/livelawindia/115149)
-
----
-### 2026-07-20T12:47:14+00:00
-Karnataka High Court Directs KSLU To Reduce Cut-Off Marks For Transgender Candidates By At Least 2%, Provide Reservation In LLB Admissions
-https://www.livelaw.in/high-court/karnataka-high-court/transgender-reservation-in-education-kslu-reduce-cut-off-marks-llb-admissions-542057
-
-[Read on Telegram](https://t.me/livelawindia/115150)
-
----
-### 2026-07-20T12:48:34+00:00
-Supreme Court Expresses Concern Over Quality Of MACT Judgments, Calls For Clear And Reasoned Findings
-https://www.livelaw.in/supreme-court/supreme-court-expresses-concern-over-quality-of-mact-judgments-calls-for-clear-and-reasoned-findings-542059
-
-[Read on Telegram](https://t.me/livelawindia/115151)
-
----
-### 2026-07-20T12:51:54+00:00
-2026 LiveLaw (SC) 696 | THE ORIENTAL INSURANCE CO. LTD. VERSUS DURG ROADWAYS PRIVATE LIMITED & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-696-the-oriental-insurance-co-ltd-versus-durg-roadways-private-limited-ors-542060
-
-[Read on Telegram](https://t.me/livelawindia/115152)
-
----
-### 2026-07-20T13:03:14+00:00
-LiveLaw Andhra Pradesh High Court Weekly Round-Up: July 13 - July 19, 2026
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-weekly-roundup2026-541973
-
-[Read on Telegram](https://t.me/livelawindia/115153)
-
----
-### 2026-07-20T13:10:34+00:00
-Madhya Pradesh Bar Association Launches Mentorship Programme For Young Women Lawyers And Interns
-https://www.livelaw.in/news-updates/madhya-pradesh-high-court-bar-association-initiates-young-female-mentorship-program-542062
-
-[Read on Telegram](https://t.me/livelawindia/115154)
-
----
-### 2026-07-20T13:12:35+00:00
-HP High Court Directs State To Return Land Given For Government School After Closure Due To Zero Enrolment
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-directs-state-return-land-government-school-zero-student-enrolment-541928
-
-[Read on Telegram](https://t.me/livelawindia/115155)
-
----
-### 2026-07-20T13:14:35+00:00
-'Was Aged Only 25 Yrs, Reformation Possible' : Supreme Court Reduces Life Term Of Gang Rape Convict To 20 Yrs
-https://www.livelaw.in/supreme-court/was-aged-only-25-yrs-reformation-possible-supreme-court-reduces-life-term-of-gang-rape-convict-to-20-yrs-542063
-
-[Read on Telegram](https://t.me/livelawindia/115156)
-
----
-### 2026-07-20T13:15:34+00:00
-'Only Ensuring Law & Order': Delhi Police Opposes PIL Alleging Surveillance Of Protesters At Jantar Mantar
-https://www.livelaw.in/high-court/delhi-high-court/cjp-protest-surveillance-allegations-denied-delhi-police-542064
-
-[Read on Telegram](https://t.me/livelawindia/115157)
-
----
-### 2026-07-20T13:17:35+00:00
-2026 LiveLaw (SC) 697 | EHSAAN VERSUS STATE OF NATIONAL CAPITAL TERRITORY OF DELHI
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-697-ehsaan-versus-state-of-national-capital-territory-of-delhi-542065
-
-[Read on Telegram](https://t.me/livelawindia/115158)
-
----
-### 2026-07-20T13:21:35+00:00
-Uttarakhand High Court Questions Police Over Detention Of Politician En Route To CJP's Parliament March
-https://www.livelaw.in/high-court/uttarakhand-high-court/cjp-protest-uttarakhand-politician-prabhat-dhyani-detention-police-542066
-
-[Read on Telegram](https://t.me/livelawindia/115159)
-
----
 ### 2026-07-20T13:22:15+00:00
 Supreme Court Affirms Ban On Commercial Activity In Segur Plateau Elephant Corridor
 https://www.livelaw.in/top-stories/supreme-court-tamil-nadu-segur-plateau-elephant-corridor-no-commercial-activity-permissible-seek-alternate-source-of-livelihood-542067
@@ -142,5 +44,103 @@ https://www.livelaw.in/podcast/livelaw-daily-ram-mandir-sonam-wangchuk-protest-b
 https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-oxygen-plant-allegation-service-deficiency-542009
 
 [Read on Telegram](https://t.me/livelawindia/115165)
+
+---
+### 2026-07-20T14:17:45+00:00
+Typewritten Cheque Though Uncommon Is Not Illegal, Its Use Alone Can't Defeat NI Act Claim: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/cheque-typewritten-sustainable-negotiable-instruments-act-542058
+
+[Read on Telegram](https://t.me/livelawindia/115166)
+
+---
+### 2026-07-20T14:32:55+00:00
+LiveLaw Madhya Pradesh High Court Weekly Roundup: July 13 to July 19, 2026
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-weekly-digest-july-13-to-july-19-2026-541992
+
+[Read on Telegram](https://t.me/livelawindia/115167)
+
+---
+### 2026-07-20T14:33:15+00:00
+When Private Power Becomes Public: Rethinking Horizontal Rights In India
+https://www.livelaw.in/lawschool/articles/private-power-becomes-public-rethinking-horizontal-rights-india-541884
+
+[Read on Telegram](https://t.me/livelawindia/115168)
+
+---
+### 2026-07-20T14:47:55+00:00
+MP High Court Issues Notice To State On PIL Alleging 1,895 Govt Schools Are Functioning Without Teachers
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-govt-schools-working-without-teachers-pil-542021
+
+[Read on Telegram](https://t.me/livelawindia/115169)
+
+---
+### 2026-07-20T15:02:35+00:00
+No Violation Of RTE Act In Asking EWS Student To Repeat Class V After Failing Re-Examination: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/no-violation-of-rte-act-in-asking-ews-student-to-repeat-class-v-after-failing-re-examination-delhi-high-court-542092
+
+[Read on Telegram](https://t.me/livelawindia/115170)
+
+---
+### 2026-07-20T15:02:45+00:00
+Censure Validly Bars Promotion For One Year, But Only If The Penalty Is Sustainable: Andhra Pradesh High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/censure-bars-promotion-but-not-unsustainable-censure-542055
+
+[Read on Telegram](https://t.me/livelawindia/115171)
+
+---
+### 2026-07-20T15:17:16+00:00
+Major Unmarried Daughter Can Seek Educational Expenses For Post-Graduation Under Domestic Violence Act: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-father-pay-major-daughter-pg-medical-education-dv-act-542071
+
+[Read on Telegram](https://t.me/livelawindia/115172)
+
+---
+### 2026-07-20T15:21:16+00:00
+Police Negligence Delays Bail Hearing, Leaves Man In Jail For 15 Extra Days: Allahabad High Court Imposes ₹1 Lakh Cost On UP Govt
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-imposes-1-lakh-cost-up-govt-police-negligence-delays-bail-hearing-15-days-542095
+
+[Read on Telegram](https://t.me/livelawindia/115173)
+
+---
+### 2026-07-20T15:32:26+00:00
+Hit-And-Run Cases Often Put On Back Burner Unless They Draw Media Attention: Kerala High Court Directs Formation Of Special Squads
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-special-police-squads-hit-and-run-cases-centre-overhaul-compensation-regime-542073
+
+[Read on Telegram](https://t.me/livelawindia/115174)
+
+---
+### 2026-07-20T15:32:36+00:00
+Uttarakhand High Court Transfers Corruption Trials Against Former Jim Corbett Director & Senior Forest Officials To Special CBI Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/transfers-corruption-trials-against-former-director-senior-forest-officials-special-cbi-court-542096
+
+[Read on Telegram](https://t.me/livelawindia/115175)
+
+---
+### 2026-07-20T15:47:26+00:00
+Kerala High Court Restrains Coercive Action Against Ex-DGP Sreelekha Booked For Disclosing POCSO Victims' Names
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sreelekha-ips-pocso-victim-name-disclose-542090
+
+[Read on Telegram](https://t.me/livelawindia/115176)
+
+---
+### 2026-07-20T16:02:46+00:00
+Can A Woman Act On Promise Of Marriage Made By Two Different Men Simultaneously? Delhi High Court Stays Rape Trial
+https://www.livelaw.in/high-court/delhi-high-court/can-a-woman-act-on-promise-of-marriage-made-by-two-different-men-simultaneously-delhi-high-court-stays-rape-trial-542093
+
+[Read on Telegram](https://t.me/livelawindia/115177)
+
+---
+### 2026-07-20T16:17:16+00:00
+Police, Professionals Appearing Before Court As Witness Should Come In Prescribed Uniform, Maintain Discipline: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-professionals-witnesses-uniform-discipline-court-542094
+
+[Read on Telegram](https://t.me/livelawindia/115178)
+
+---
+### 2026-07-20T16:55:36+00:00
+BREAKING | Split Verdict On Bulldozer Justice: Allahabad High Court Judges Differ On 2-Year Ban On Razing Houses Of Accused Post-FIR
+https://www.livelaw.in/top-stories/allahabad-hc-split-verdict-bulldozer-justice-2-year-ban-demolition-accused-homes-542097
+
+[Read on Telegram](https://t.me/livelawindia/115179)
 
 ---
