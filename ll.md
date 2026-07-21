@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-21T12:02:18+00:00*
+*Last Updated: 2026-07-21T14:44:39+00:00*
 
 ---
 
-### 2026-07-21T12:02:18+00:00
-Nearly One-Third High Courts In India Functioning Without Permanent Chief Justices
-https://www.livelaw.in/top-stories/one-third-high-courts-without-permanent-chief-justices-542220
+### 2026-07-21T14:44:39+00:00
+Appointment Of Mizoram State Human Rights Commission Chairperson, Members Under Process: State Tells Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-appointment-chairperson-members-state-human-rights-commission-542257
 
-[Read on Telegram](https://t.me/livelawindia/115253)
-
----
-### 2026-07-21T12:09:28+00:00
-Kerala High Court Seeks Statewide Data On Children's Courts, Pending POCSO Cases
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-statewide-data-childrens-courts-pocso-cases-542223
-
-[Read on Telegram](https://t.me/livelawindia/115254)
+[Read on Telegram](https://t.me/livelawindia/115276)
 
 ---
-### 2026-07-21T12:13:48+00:00
-2023 Parliament Security Breach: Delhi Court Grants Interim Bail To Accused On Humanitarian Grounds
-https://www.livelaw.in/news-updates/2023-parliament-security-breach-accused-bail-humanitarian-grounds-542226
+### 2026-07-21T14:49:59+00:00
+Master BNS & BNSS: LiveLaw Academy Launches Expert-Led Criminal Law Courses
+https://www.livelaw.in/top-stories/master-bns-bnss-criminal-law-courses-542258
 
-[Read on Telegram](https://t.me/livelawindia/115255)
-
----
-### 2026-07-21T12:17:08+00:00
-Right To Walk To Parliament
-https://www.livelaw.in/articles/right-walk-parliament-542227
-
-[Read on Telegram](https://t.me/livelawindia/115256)
+[Read on Telegram](https://t.me/livelawindia/115277)
 
 ---
-### 2026-07-21T12:22:28+00:00
-'Derogatory' WhatsApp Post On Jain Saint: MP High Court Grants Anticipatory Bail, Says  Electronic Evidence Can Be Examined Without Arrest
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-anticipatory-bail-derogatory-message-against-jain-saint-muni-shri-sudhasagar-ji-maharaj-542225
+### 2026-07-21T14:52:39+00:00
+Registrar Cannot Decide Title Disputes Using Supervisory Powers Under Maharashtra Co-operative Societies Act: High Court
+https://www.livelaw.in/high-court/bombay-high-court/deputy-registrar-decide-title-disputes-issuing-directives-societies-542205
 
-[Read on Telegram](https://t.me/livelawindia/115257)
-
----
-### 2026-07-21T12:32:18+00:00
-RTI Act | First Appellate Authority Not Deemed Public Information Officer Without Meeting S.5 Requirements: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/state-information-commission-penalize-pio-first-appellate-authority-542212
-
-[Read on Telegram](https://t.me/livelawindia/115258)
+[Read on Telegram](https://t.me/livelawindia/115278)
 
 ---
-### 2026-07-21T12:38:18+00:00
-'We Are Bound To Treat Them Fairly': Kerala High Court Questions Continued Detention Of MSC Elsa 3 Foreign Crew Members
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-msc-elsa-3-crew-home-countries-542230
+### 2026-07-21T14:59:39+00:00
+Rajasthan High Court Denies Relief To Candidate Unable To Clear MBBS In 14 Years, Says Can't Ignore Fate Of Patients
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-refuses-chance-physician-mbbs-course-completion-542259
 
-[Read on Telegram](https://t.me/livelawindia/115259)
-
----
-### 2026-07-21T12:42:38+00:00
-Functional Disability Must Be Proven; Loss Of Four Fingers Doesn't Necessarily Result In Total Loss Of Earning Capacity: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/functional-disability-must-be-proven-loss-of-four-fingers-doesnt-necessarily-result-in-total-loss-of-earning-capacity-delhi-high-court-542208
-
-[Read on Telegram](https://t.me/livelawindia/115260)
+[Read on Telegram](https://t.me/livelawindia/115279)
 
 ---
-### 2026-07-21T12:53:18+00:00
-Woman 'Concealing' First Marriage From Second Husband Not Entitled To Maintenance Under Section 125 CrPC: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/woman-concealing-first-marriage-no-maintenance-second-husband-125-crpc-542232
+### 2026-07-21T15:07:39+00:00
+LiveLaw Daily | Wangchuk| Sonam Raghuvanshi| Shiv Sena Merger| Dharmasthala burials & more
+https://www.livelaw.in/podcast/livelaw-daily-sonam-wangchuk-students-neet-scba-lawyers-advocates-bantwal-judiciary-prep-news-542261
 
-[Read on Telegram](https://t.me/livelawindia/115261)
-
----
-### 2026-07-21T12:56:38+00:00
-CNLU Patna Announces 17th National Parliamentary Debate; Registrations Open
-https://www.livelaw.in/lawschool/competitions/cnlu-patna-announces-17th-national-parliamentary-debate-registrations-open-542235
-
-[Read on Telegram](https://t.me/livelawindia/115262)
+[Read on Telegram](https://t.me/livelawindia/115280)
 
 ---
-### 2026-07-21T13:02:18+00:00
-Mere Knowledge Of Suit Or Receipt Of Ex Parte Injunction Order Doesn't Trigger 120-Day Limit To File Written Statement: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/mere-knowledge-of-suit-through-injunction-order-insufficient-to-forfeit-right-to-defend-order-viii-rule-1-clock-starts-only-upon-lawful-service-of-summons-jk-high-court-542203
+### 2026-07-21T15:11:29+00:00
+'Even In Terror Cases, Constitutional Safeguards And Right To Fair Trial Cannot Be Diluted': Supreme Court
+https://www.livelaw.in/top-stories/even-in-terror-cases-constitutional-safeguards-and-right-to-fair-trial-cannot-be-diluted-supreme-court-542262
 
-[Read on Telegram](https://t.me/livelawindia/115263)
-
----
-### 2026-07-21T13:14:18+00:00
-Descendants Cannot Seek Inclusion In Sikkim Subject Register Based Solely On Ancestor's Unused Eligibility: Sikkim High Court
-https://www.livelaw.in/high-court/sikkim-high-court/sikkim-subject-register-citizenship-by-naturalisation-predecessor-renounce-former-nationality-542237
-
-[Read on Telegram](https://t.me/livelawindia/115264)
+[Read on Telegram](https://t.me/livelawindia/115281)
 
 ---
-### 2026-07-21T13:17:59+00:00
-National Co-operative Consumers' Federation Excluded From Rent Control Protections Being PSU Under Rent Control Act: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/national-co-operative-consumers-federation-india-psu-maharashtra-rent-control-act-rent-control-protections-542199
+### 2026-07-21T15:12:49+00:00
+2026 LiveLaw (SC) 700 | Abdul Hameed v. State of Rajasthan
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-700-abdul-hameed-v-state-of-rajasthan-542263
 
-[Read on Telegram](https://t.me/livelawindia/115265)
-
----
-### 2026-07-21T13:22:59+00:00
-Supreme Court Woman Advocate Alleges Assault By Bar Association Office Bearer Over Land Grabbing Case In Lucknow District Court
-https://www.livelaw.in/top-stories/supreme-court-lady-advocate-attacked-lucknow-district-court-542241
-
-[Read on Telegram](https://t.me/livelawindia/115266)
+[Read on Telegram](https://t.me/livelawindia/115282)
 
 ---
-### 2026-07-21T13:38:09+00:00
-"Shocked By Total Ignorance": Bombay High Court Transfers POCSO Case To CID After Cops Revealed Victim's Identity
-https://www.livelaw.in/high-court/bombay-high-court/transfers-pocso-cid-victims-identity-case-diary-loose-sheets-black-tape-542201
+### 2026-07-21T15:18:29+00:00
+Remaining Maharashtra Local Body Elections Can Be Conducted Without Breaching 50% Reservation, Says Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-gives-nod-to-concluding-maharashtra-local-body-elections-without-breach-of-50-percent-reservation-ceiling-limit-542264
 
-[Read on Telegram](https://t.me/livelawindia/115267)
-
----
-### 2026-07-21T13:42:49+00:00
-NEET Re-Exam: Candidate Moves MP High Court Over 241-Mark Discrepancy In Result; Challenges Constitutional Validity Of NTA
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/neet-ug-2026-re-exam-result-discrepancy-nta-constitutionality-challenged-542245
-
-[Read on Telegram](https://t.me/livelawindia/115268)
+[Read on Telegram](https://t.me/livelawindia/115283)
 
 ---
-### 2026-07-21T13:54:49+00:00
-Rajasthan High Court Quashes CBI FIR Registered Pursuant To Judicial Order Later Set Aside By Division Bench
-https://www.livelaw.in/high-court/rajasthan-high-court/cbi-fir-registered-pursuant-to-judicial-order-later-set-aside-quashed-542249
+### 2026-07-21T15:20:29+00:00
+Madras High Court Expresses Displeasure On Lack Of Steps To Curb Stray Dog Menace
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-stray-dog-menace-no-visible-step-taken-displeasure-542265
 
-[Read on Telegram](https://t.me/livelawindia/115269)
-
----
-### 2026-07-21T13:57:29+00:00
-Advocates Must Approach Civil Court For Recovery Of Fees From Clients, Can't Invoke Writ Jurisdiction: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-dispute-pending-professional-fee-civil-no-writ-remedy-542250
-
-[Read on Telegram](https://t.me/livelawindia/115270)
+[Read on Telegram](https://t.me/livelawindia/115284)
 
 ---
-### 2026-07-21T14:01:09+00:00
-Sexual Violence Against A Minor Shatters Victim's Future "Into Pieces": P&H High Court Denies Bail To POCSO Accused
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/pocso-bail-denied-minor-future-shatters-into-pieces-542252
+### 2026-07-21T15:34:09+00:00
+'No Allegation That He Exhorted Violence' : Supreme Court On 2020 Rioting Case Against Punjab Minister Aman Arora Over AAP Protest
+https://www.livelaw.in/top-stories/supreme-court-chandigarh-plea-against-quashing-of-rioting-case-punjab-minister-aman-arora-mere-presence-unruly-group-not-common-intention-542266
 
-[Read on Telegram](https://t.me/livelawindia/115271)
+[Read on Telegram](https://t.me/livelawindia/115285)
 
 ---
-### 2026-07-21T14:02:09+00:00
-Electrocution Inside Consumer's Home While Using Water Pump Not Covered Under Compensation Scheme: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/compensation-internal-electrocution-accidents-electricity-liability-dept-non-communication-rejection-orders-542204
+### 2026-07-21T15:52:29+00:00
+Kapil Sibal Condemns Delhi Police Action Against Students In CJP Protest, Calls For Independent Investigation
+https://www.livelaw.in/top-stories/kapil-sibal-condemns-delhi-police-action-against-students-in-cjp-protest-calls-for-independent-investigation-542272
 
-[Read on Telegram](https://t.me/livelawindia/115272)
+[Read on Telegram](https://t.me/livelawindia/115286)
+
+---
+### 2026-07-21T15:53:29+00:00
+Courts Can't Prescribe Or Expand Eligibility Qualifications For Recruitment: Rajasthan High Court Reiterates
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-net-set-sanskrit-assistant-professor-posts-guest-faculty-appointments-542273
+
+[Read on Telegram](https://t.me/livelawindia/115287)
+
+---
+### 2026-07-21T16:07:40+00:00
+FERA Complaint Cognisance Vitiated If There Was No Notice To Accused : Supreme Court
+https://www.livelaw.in/supreme-court/fera-complaint-cognisance-vitiated-if-there-was-no-notice-to-accused-supreme-court-542275
+
+[Read on Telegram](https://t.me/livelawindia/115288)
+
+---
+### 2026-07-21T16:07:49+00:00
+Delhi High Court Weekly Round-Up: July 13 To July 19, 2026
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-weekly-round-up-july-13-to-july-19-2026-542276
+
+[Read on Telegram](https://t.me/livelawindia/115289)
+
+---
+### 2026-07-21T16:07:59+00:00
+Co-Operative Bank Performing Public Functions Amenable To Writ Jurisdiction Despite Not Being 'State' Under Article 12: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/banking-with-public-money-is-a-public-function-cooperative-banks-can-face-writ-jurisdiction-even-if-they-are-not-state-under-article-12-jk-high-court-542218
+
+[Read on Telegram](https://t.me/livelawindia/115290)
+
+---
+### 2026-07-21T16:08:39+00:00
+2026 LiveLaw (SC) 701 | STANDARD CHARTERED BANK & ANR. VERSUS ENFORCEMENT OFFICER MINISTRY OF HOME AFFAIRS & ANR.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-701-standard-chartered-bank-anr-versus-enforcement-officer-ministry-of-home-affairs-anr-542277
+
+[Read on Telegram](https://t.me/livelawindia/115291)
+
+---
+### 2026-07-21T16:21:20+00:00
+“Don't Enter Any Rat Race, There Is Space For Everyone”: Justice Ujjal Bhuyan Addresses Incoming Batch At DBRANLU Sonepat's Deeksharambh 2026
+https://www.livelaw.in/lawschool/news/dont-enter-any-rat-race-there-is-space-for-everyone-justice-ujjal-bhuyan-addresses-incoming-batch-at-dbranlu-sonepats-deeksharambh-2026-542278
+
+[Read on Telegram](https://t.me/livelawindia/115292)
+
+---
+### 2026-07-21T16:39:20+00:00
+CJI Surya Kant Responds To Criticism On 2024 'Delhi Metro' Ruling
+https://www.livelaw.in/top-stories/supreme-court-cji-surya-kant-justice-ujjal-bhuyan-delhi-metro-judgment-remark-debtor-influential-public-platform-542279
+
+[Read on Telegram](https://t.me/livelawindia/115293)
+
+---
+### 2026-07-21T16:41:20+00:00
+'Dua' For Election Success During Political Congregation Doesn't Constitute Soliciting Votes On Religious Grounds: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/aimim-candidate-election-win-election-success-dua-amen-response-not-soliciting-votes-on-religion-542280
+
+[Read on Telegram](https://t.me/livelawindia/115294)
+
+---
+### 2026-07-21T16:55:50+00:00
+"Around 80% Of Successful People In Law Background Are From First-Generation": NHRC Chairperson Justice V. Ramasubramanian Addresses Incoming Batch At DBRANLU
+https://www.livelaw.in/lawschool/news/nhrc-chairperson-justice-v-ramasubramanian-addresses-incoming-batch-dbranlu-542283
+
+[Read on Telegram](https://t.me/livelawindia/115295)
 
 ---
