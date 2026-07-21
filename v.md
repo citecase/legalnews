@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-20T15:52:09+00:00*
+*Last Updated: 2026-07-21T08:15:28+00:00*
+
+---
+
+### 2026-07-21T08:15:28+00:00
+Breaking: Delhi High Court Proposes To Shift Sonam Wangchuk To Medanta Hospital; To Pass Order Today
+https://www.verdictum.in/delhi-high-court/proposes-shifting-sonam-wangchuk-to-medanta-hospital-1618204
+
+[Source Link](https://t.me/verdictumlegalupdates/28084)
+
+---
+
+### 2026-07-21T08:12:47+00:00
+Supreme Court Issues Notice To Centre On Plea Seeking Directions To Initiate Appeal For Exclusion From Assam NRC
+https://www.verdictum.in/supreme-court/plea-seeking-directions-to-initiate-appeal-for-exclusion-from-assam-nrc-1618199
+
+[Source Link](https://t.me/verdictumlegalupdates/28083)
+
+---
+
+### 2026-07-21T07:32:46+00:00
+Supreme Court Asks AIIMS Director To Consitute Medical Board To Assess Condition Of Asaram In His Interim Bail Plea
+https://www.verdictum.in/supreme-court/aiims-director-to-consitute-medical-board-to-assess-condition-of-asaram-in-his-interim-bail-plea-1618197
+
+[Source Link](https://t.me/verdictumlegalupdates/28082)
+
+---
+
+### 2026-07-21T06:49:05+00:00
+Breaking: Supreme Court Sets Aside High Court's Interim Direction Placing Kerala Waqf Board Under Joint Secretary's Supervision
+https://www.verdictum.in/supreme-court/deletes-high-court-order-placing-kerala-waqf-board-joint-secretary-supervision-1618194
+
+[Source Link](https://t.me/verdictumlegalupdates/28081)
+
+---
+
+### 2026-07-21T06:33:04+00:00
+Elgar Parishad Case: Supreme Court Justice S Chandrashekhar Recuses From Hearing Gadling's Bail Plea
+https://www.verdictum.in/supreme-court/justice-s-chandrashekhar-recuses-from-hearing-gadlings-bail-plea-1618189
+
+[Source Link](https://t.me/verdictumlegalupdates/28080)
+
+---
+
+### 2026-07-21T05:52:22+00:00
+Matrimonial Disputes Cannot Be Converted Into Mala Fide Criminal Prosecutions Through Exaggerated Sexual Offence Allegations: Bombay High Court
+https://www.verdictum.in/bombay-high-court/y-v-state-of-maharashtra-matrimonial-dispute-connected-criminal-cases-pocso-1618185
+
+[Source Link](https://t.me/verdictumlegalupdates/28079)
+
+---
+
+### 2026-07-21T05:11:41+00:00
+Collector Cannot Compel SHO To "Recall" Already Forwarded Report: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/deepak-manulal-garg-v-the-state-of-madhya-pradesh-2026mphc-ind18892-collector-crpc-1618181
+
+[Source Link](https://t.me/verdictumlegalupdates/28078)
+
+---
+
+### 2026-07-21T04:32:30+00:00
+Allahabad High Court Directs Bar Council To Act Against Advocates Accused Of Heinous Offences; Orders Transfer Of Such Cases Outside Home Districts
+https://www.verdictum.in/allahabad-high-court/mohammad-kafeel-v-state-of-up-and-another-advocates-criminal-offences-1618145
+
+[Source Link](https://t.me/verdictumlegalupdates/28077)
 
 ---
 
@@ -97,70 +161,6 @@ Refund Of Earnest Money In Specific Performance Suit Cannot Be Granted Without S
 https://www.verdictum.in/delhi-high-court/sumitra-v-rajesh-kumar-2026dhc5731-specific-performance-equitable-discretion-1618127
 
 [Source Link](https://t.me/verdictumlegalupdates/28065)
-
----
-
-### 2026-07-20T07:52:45+00:00
-Showing Protest Is Hallmark Of Democracy; Raising Slogans Itself Not An Offence: Madras High Court Quashes Criminal Case Against Agriculturist
-https://www.verdictum.in/madras-high-court/krishnamoorthy-v-state-protest-democracy-slogans-case-agriculturist-1618122
-
-[Source Link](https://t.me/verdictumlegalupdates/28064)
-
----
-
-### 2026-07-20T07:13:04+00:00
-Writ Petition Against Bank Maintainable For Unpaid Fixed Deposit Interest Claim Decidable On Admitted Records: Kerala High Court
-https://www.verdictum.in/kerala-high-court/narayan-bharathan-v-state-bank-of-india-another-2026ker48642-interest-writ-1618120
-
-[Source Link](https://t.me/verdictumlegalupdates/28063)
-
----
-
-### 2026-07-20T06:33:03+00:00
-Partition Suit Pending Till Final Decree Can Account For Birth & Death Of Sharers: Madras High Court
-https://www.verdictum.in/madras-high-court/lakshmana-gounder-since-deceased-others-v-selvi-another-2026mhc2841-1618113
-
-[Source Link](https://t.me/verdictumlegalupdates/28062)
-
----
-
-### 2026-07-20T05:53:02+00:00
-Banks Can Consider Co-Borrower's Credit Score While Deciding Educational Loan Application: Kerala High Court
-https://www.verdictum.in/kerala-high-court/dilha-jan-govindan-v-state-bank-of-india-2026ker51085-parent-co-borrowers-poor-credit-score-1618105
-
-[Source Link](https://t.me/verdictumlegalupdates/28061)
-
----
-
-### 2026-07-20T05:03:00+00:00
-Mere Absence Of Ticket Doesn't Defeat Bona Fide Passenger Claim: Supreme Court Awards Compensation To Widow Of Man Who Fell From Running Train
-https://www.verdictum.in/supreme-court/lata-v-union-of-india-2026-insc-715-railways-failure-to-enforce-own-protocol-ticket-checking-compensation-1618018
-
-[Source Link](https://t.me/verdictumlegalupdates/28060)
-
----
-
-### 2026-07-20T04:32:49+00:00
-Marriage To Third Party Behind Prosecutrix's Back Creates Grave Suspicion Warranting Trial: Delhi High Court Refuses Discharge In Rape Case
-https://www.verdictum.in/delhi-high-court/2026-dhc-5693-anurag-v-state-1618028
-
-[Source Link](https://t.me/verdictumlegalupdates/28059)
-
----
-
-### 2026-07-19T15:02:38+00:00
-Consultant (Law Officer) Vacancy At AIIMS, Bhopal
-https://www.verdictum.in/job-updates/all-india-institute-of-medical-sciences-1618017
-
-[Source Link](https://t.me/verdictumlegalupdates/28058)
-
----
-
-### 2026-07-19T13:32:37+00:00
-Emergency Medical Reimbursement Under CGHS Cannot Be Denied Solely Because Treatment Was Availed At A Non-Empanelled Hospital: Kerala High Court
-https://www.verdictum.in/kerala-high-court/emergency-medical-reimbursement-non-empanelled-hospital-1618025
-
-[Source Link](https://t.me/verdictumlegalupdates/28057)
 
 ---
 
