@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-21T14:32:10+00:00*
+*Last Updated: 2026-07-21T15:52:53+00:00*
+
+---
+
+### 2026-07-21T15:52:53+00:00
+Law Officer Vacancy At National Institute of Educational Planning and Administration (NIEPA)
+https://www.verdictum.in/job-updates/national-institute-of-educational-planning-and-administration-1618220
+
+[Source Link](https://t.me/verdictumlegalupdates/28095)
+
+---
+
+### 2026-07-21T15:12:32+00:00
+WhatsApp Messages Suggest Continuous Harassment By All: Gujarat High Court Rejects Quashing Application Of In-laws In Dowry Death Case
+https://www.verdictum.in/gujarat-high-court/rameshkumar-so-ishwarsinh-jat-v-state-of-gujarat-2026gujhc42808-dowry-death-1618219
+
+[Source Link](https://t.me/verdictumlegalupdates/28094)
 
 ---
 
@@ -145,22 +161,6 @@ Part-Time Consultant (Legal) Vacancy At Indian Statistical Institute (ISI)
 https://www.verdictum.in/job-updates/indian-statistical-institute-1618148
 
 [Source Link](https://t.me/verdictumlegalupdates/28076)
-
----
-
-### 2026-07-20T15:12:58+00:00
-State GST Officers Automatically Authorized As “Proper Officers” U/S 4 IGST Act; Separate Central Notification Not Mandatory: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/ms-jai-ganesh-enterprise-v-union-of-india-2026gujhc44995-db-state-gst-officers-proper-officers-us-4-igst-act-1618147
-
-[Source Link](https://t.me/verdictumlegalupdates/28075)
-
----
-
-### 2026-07-20T14:32:37+00:00
-Madhya Pradesh High Court Imposes ₹ 75k Cost On Advocate Questioning Private University Regulatory Commission Appointment
-https://www.verdictum.in/madhya-pradesh-high-court/anil-singh-v-the-state-of-madhya-pradesh-2026mphc-jbp52560-pil-pvt-university-regulatory-commission-1618146
-
-[Source Link](https://t.me/verdictumlegalupdates/28074)
 
 ---
 
