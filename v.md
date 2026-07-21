@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-21T08:15:28+00:00*
+*Last Updated: 2026-07-21T14:32:10+00:00*
+
+---
+
+### 2026-07-21T14:32:10+00:00
+Proposed Publication Can’t Be Presumed Defamatory: Delhi High Court Recalls Gag Order Against The Wire In Ex-Chief Secretary Naresh Kumar’s Suit
+https://www.verdictum.in/delhi-high-court/shri-naresh-kumar-v-the-wire-ors-2026dhc5759-defamation-proposed-publication-1618218
+
+[Source Link](https://t.me/verdictumlegalupdates/28093)
+
+---
+
+### 2026-07-21T13:52:09+00:00
+Supreme Court Seeks Response From Centre & CPCB In Plea Alleging Non Utilisation Of Environmental Relief Funds Of Rs. 1000 Crores
+https://www.verdictum.in/supreme-court/plea-alleging-non-utilisation-of-environmental-relief-funds-of-rs-1000-crores-1618217
+
+[Source Link](https://t.me/verdictumlegalupdates/28092)
+
+---
+
+### 2026-07-21T13:12:16+00:00
+Supreme Court Sets Aside Death Penalty In 1996 Dausa Bus Blast Case, Orders Retrial
+https://www.verdictum.in/supreme-court/death-penalty-in-1996-dausa-bus-blast-case-set-aside-1618213
+
+[Source Link](https://t.me/verdictumlegalupdates/28091)
+
+---
+
+### 2026-07-21T12:33:15+00:00
+Draft Advocates Amendment Bill 2026: BCI Proposes First-Ever Statutory Recognition For Law Firms, Strict Limits On Foreign Lawyers
+https://www.verdictum.in/news/draft-advocates-amendment-bill-2026-bci-indian-law-firms-limits-foreign-lawyers-1618214
+
+[Source Link](https://t.me/verdictumlegalupdates/28090)
+
+---
+
+### 2026-07-21T11:52:54+00:00
+Fulfills Articles 19 & 21: Delhi High Court Observes In Wangchuk’s Transfer To Medanta, Permits Wife Unrestricted Visits
+https://www.verdictum.in/delhi-high-court/wangchuk-transfer-medanta-permits-wife-unrestricted-visits-1618215
+
+[Source Link](https://t.me/verdictumlegalupdates/28089)
+
+---
+
+### 2026-07-21T11:12:53+00:00
+Supreme Court Remarks No 'Exhortation' By Bhagwant Mann In 2020 Chandigarh Tariff Protest Case
+https://www.verdictum.in/supreme-court/bhagwant-mann-in-2020-chandigarh-tariff-protest-case-1618210
+
+[Source Link](https://t.me/verdictumlegalupdates/28088)
+
+---
+
+### 2026-07-21T10:32:51+00:00
+Distributor Acting As Commission Agent Amounts To Business Auxiliary Service U/S 65 Finance Act: Supreme Court Restores ₹16 Cr Service Tax Demand Against BPCL, HPCL
+https://www.verdictum.in/supreme-court/commissioner-of-service-tax-mumbai-v-ms-bharat-petroleum-corporation-ltd-etc-2026-insc-723-1618209
+
+[Source Link](https://t.me/verdictumlegalupdates/28087)
+
+---
+
+### 2026-07-21T09:52:30+00:00
+Supreme Court Issues Notice On Venugopal Dhoot's Plea Against Order Upholding Separate Insolvency For VIL, VOVL
+https://www.verdictum.in/supreme-court/notice-on-venugopal-dhoots-plea-against-order-upholding-separate-insolvency-for-vil-vovl-1618208
+
+[Source Link](https://t.me/verdictumlegalupdates/28086)
+
+---
+
+### 2026-07-21T09:12:29+00:00
+Issue Master Circular Standardising Cross-Border Coverage Clauses In Motor Insurance Policies: Supreme Court To IRDAI
+https://www.verdictum.in/supreme-court/the-oriental-insurance-co-ltd-v-durg-roadways-private-limited-2026-insc-72-mact-policies-1618206
+
+[Source Link](https://t.me/verdictumlegalupdates/28085)
 
 ---
 
@@ -89,78 +161,6 @@ Madhya Pradesh High Court Imposes ₹ 75k Cost On Advocate Questioning Private U
 https://www.verdictum.in/madhya-pradesh-high-court/anil-singh-v-the-state-of-madhya-pradesh-2026mphc-jbp52560-pil-pvt-university-regulatory-commission-1618146
 
 [Source Link](https://t.me/verdictumlegalupdates/28074)
-
----
-
-### 2026-07-20T13:52:15+00:00
-Given The Young Age There Is Possibility Of Reformation: Supreme Court Modifies Sentence Of Rape Convict
-https://www.verdictum.in/supreme-court/ehsaan-v-state-of-national-capital-territory-of-delhi-2026-insc-720-sentence-rape-convict-1618155
-
-[Source Link](https://t.me/verdictumlegalupdates/28073)
-
----
-
-### 2026-07-20T13:13:14+00:00
-Foreign Counsel Cannot Examine Or Cross Examine Witnesses In India Before Court Commissioner: Kerala High Court
-https://www.verdictum.in/kerala-high-court/sharestates-inc-v-prasad-choorakuzhiyil-gopalan-ia-no-12026-in-mjc-no-82-of-2026-court-appointed-commissioner-1618144
-
-[Source Link](https://t.me/verdictumlegalupdates/28072)
-
----
-
-### 2026-07-20T12:32:53+00:00
-Descendant Not Entitled To Seek Inclusion In Sikkim Subject Register Without Establishing That His Predecessor Had Renounced Former Nationality: High Court
-https://www.verdictum.in/sikkim-high-court/shri-kishan-kumar-bhujel-v-union-of-india-2026shc75-descendant-sikkim-subject-register-1618143
-
-[Source Link](https://t.me/verdictumlegalupdates/28071)
-
----
-
-### 2026-07-20T11:52:32+00:00
-Don't Politicise The Issue: Supreme Court In Ayodhya Ram Temple Donation Theft Case
-https://www.verdictum.in/supreme-court/ayodhya-ram-temple-donation-theft-case-1618138
-
-[Source Link](https://t.me/verdictumlegalupdates/28070)
-
----
-
-### 2026-07-20T11:12:11+00:00
-Supreme Court Asks Centre To Set Up Panel For Uniform Post-Retirement Benefits For Ex-Judges
-https://www.verdictum.in/supreme-court/panel-for-uniform-post-retirement-benefits-for-ex-judges-1618137
-
-[Source Link](https://t.me/verdictumlegalupdates/28069)
-
----
-
-### 2026-07-20T10:32:50+00:00
-Section 20 Domestic Violence Act Covers Daughter’s Education Expenses; Father Can’t Refuse Payment Merely Because She Attained Majority: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/vc-v-vpc-section-20-domestic-violence-daughter-education-post-graduation-1618134
-
-[Source Link](https://t.me/verdictumlegalupdates/28068)
-
----
-
-### 2026-07-20T09:52:49+00:00
-Rigid Application Of Age Restriction Under Surrogacy (Regulation) Act Infringes Reproductive Autonomy: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/anshu-shukla-v-union-of-india-2026ahc-lko43965-db-age-surrogacy-regulation-act-1618131
-
-[Source Link](https://t.me/verdictumlegalupdates/28067)
-
----
-
-### 2026-07-20T09:02:47+00:00
-Supreme Court Refuses To Urgently Hear Plea Against Demolition "Even If It Is Completely Dismantled Today", Asks Petitioner To Move HC
-https://www.verdictum.in/supreme-court/plea-against-demolition-urgent-refused-1618128
-
-[Source Link](https://t.me/verdictumlegalupdates/28066)
-
----
-
-### 2026-07-20T08:32:26+00:00
-Refund Of Earnest Money In Specific Performance Suit Cannot Be Granted Without Specific Prayer U/S 22 Specific Relief Act: Delhi High Court
-https://www.verdictum.in/delhi-high-court/sumitra-v-rajesh-kumar-2026dhc5731-specific-performance-equitable-discretion-1618127
-
-[Source Link](https://t.me/verdictumlegalupdates/28065)
 
 ---
 
