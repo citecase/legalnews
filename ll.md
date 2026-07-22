@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-22T06:32:47+00:00*
+*Last Updated: 2026-07-22T10:56:19+00:00*
 
 ---
 
-### 2026-07-22T06:32:47+00:00
-Supreme Court Issues Notice To Lok Sabha Speaker On Shiv Sena UBT Challenge To Merger Of MPs With Shinde Sena
-https://www.livelaw.in/top-stories/supreme-court-issues-notice-to-lok-sabha-speaker-on-shiv-sena-ubt-challenge-to-merger-of-mps-with-shinde-sena-542329
+### 2026-07-22T10:56:19+00:00
+SCBA President Vikas Singh Writes To PM & HM Seeking Inquiry Into Police Lathi Charge, Suspension Of Delhi Police Commissioner
+https://www.livelaw.in/top-stories/scba-president-vikas-singh-writes-to-pm-hm-seeking-inquiry-into-police-lathi-charge-suspension-of-delhi-police-commissioner-542387
 
-[Read on Telegram](https://t.me/livelawindia/115330)
-
----
-### 2026-07-22T06:32:57+00:00
-Regularization Of Daily-Rated Employees Contingent On Sanctioned Vacant Posts Or Identical Duties :Delhi HC
-https://www.livelaw.in/high-court/delhi-high-court/delhi-hc-regularization-of-daily-rated-employees-contingent-on-sanctioned-vacant-posts-or-identical-duties-542291
-
-[Read on Telegram](https://t.me/livelawindia/115331)
+[Read on Telegram](https://t.me/livelawindia/115367)
 
 ---
-### 2026-07-22T06:35:27+00:00
-Absconding To Evade Arrest In Dowry Case: Allahabad High Court Rejects Mother's Habeas Corpus Plea Claiming Son Detained By Wife
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-dismisses-habeas-corpus-plea-mother-absconding-son-dowry-case-542330
+### 2026-07-22T11:07:59+00:00
+Police Registers Case Against Man Who Verbally Abused Kerala High Court Judge
+https://www.livelaw.in/news-updates/kerala-high-court-fir-abuse-judge-542396
 
-[Read on Telegram](https://t.me/livelawindia/115332)
-
----
-### 2026-07-22T06:46:27+00:00
-Alliance School of Law Invites Abstracts for International Conference on Alternative Dispute Resolution & Sustainable Development
-https://www.livelaw.in/lawschool/seminars/alliance-school-of-law-invites-abstracts-for-international-conference-on-alternative-dispute-resolution-sustainable-development-542332
-
-[Read on Telegram](https://t.me/livelawindia/115333)
+[Read on Telegram](https://t.me/livelawindia/115368)
 
 ---
-### 2026-07-22T06:48:07+00:00
-Compassionate Appointee Can't Be Removed For Alleged Suppression Of Facts Already Known To Authorities: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-services-compassionate-appointee-terminated-concealment-542314
+### 2026-07-22T11:14:59+00:00
+Madras High Court Rejects Senthil Balaji's Plea Alleging Police Harassment In Pending Criminal Investigations
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-senthil-balaji-police-not-harass-criminal-investigation-plea-dismissed-542398
 
-[Read on Telegram](https://t.me/livelawindia/115334)
-
----
-### 2026-07-22T06:52:07+00:00
-HNLU Signs Multilateral MoU On Global University Innovation And Cooperation At AUAP–WURI Impact Summit 2026 In Bangkok
-https://www.livelaw.in/lawschool/news/hnlu-signs-multilateral-mou-on-global-university-innovation-and-cooperation-at-auapwuri-impact-summit-2026-in-bangkok-542334
-
-[Read on Telegram](https://t.me/livelawindia/115335)
+[Read on Telegram](https://t.me/livelawindia/115369)
 
 ---
-### 2026-07-22T07:02:48+00:00
-Limitation To Redeem Usufructuary Mortgage Runs From Payment Of Mortgage Money, Not Date Of Mortgage Deed: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-limitation-redeem-usufructuary-mortgage-tender-mortgage-money-542323
+### 2026-07-22T11:20:40+00:00
+Prosecution Should Focus On Securing Conviction Than Opposing Bail: Supreme Court Flags Increasing SLPs Against Bail Orders
+https://www.livelaw.in/top-stories/supreme-court-chaitanya-baghel-chhattisgarh-liquor-scam-bail-cancellation-declined-article-136-not-review-jurisdiction-focus-on-conviction-542400
 
-[Read on Telegram](https://t.me/livelawindia/115336)
-
----
-### 2026-07-22T07:17:48+00:00
-No Disciplinary Enquiry Needed To Dismiss Employee Who Obtained Reserved Category Appointment By Forged Caste Certificate: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-dismiss-employee-reserved-category-appointment-forged-caste-certificate-542324
-
-[Read on Telegram](https://t.me/livelawindia/115337)
+[Read on Telegram](https://t.me/livelawindia/115370)
 
 ---
-### 2026-07-22T07:21:48+00:00
-Supreme Court Bar Bodies Condemn Delhi Police Action Against Student Protesters, Seek Independent Probe
-https://www.livelaw.in/top-stories/supreme-court-bar-bodies-condemn-delhi-police-action-against-student-protesters-seek-independent-probe-542340
+### 2026-07-22T11:23:00+00:00
+Karnataka High Court Refuses To Quash Extortion Case Against Lawyer Accused Of Posing As Policeman, Seeking ₹5 Lakh Bribe
+https://www.livelaw.in/high-court/karnataka-high-court/lawyer-posed-as-police-demanded-bribe-extortion-fir-upheld-542399
 
-[Read on Telegram](https://t.me/livelawindia/115338)
-
----
-### 2026-07-22T07:25:28+00:00
-Govt Free To Reconstitute Kerala Waqf Board, Can Appoint Non-Muslim Members In Interim: High Court In PILs Over Board's Composition
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-state-waqf-board-constitution-non-muslim-members-542341
-
-[Read on Telegram](https://t.me/livelawindia/115339)
+[Read on Telegram](https://t.me/livelawindia/115371)
 
 ---
-### 2026-07-22T07:33:18+00:00
-AP High Court Condones 1024-Day Delay To Bring Legal Heirs On Record, Says Party Not Expected To Keep Checking Status Of Pending Case
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-legal-heirs-constant-watch-pending-high-court-appeals-542327
+### 2026-07-22T11:26:40+00:00
+Can States Impose Higher Qualifications Beyond UGC Norms For Appointment Of College Professors? P&H High Court Larger Bench To Decide
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/college-teachers-professor-appointment-regulations-stricter-than-ugc-542401
 
-[Read on Telegram](https://t.me/livelawindia/115340)
-
----
-### 2026-07-22T07:43:58+00:00
-NUALS Conducts Two-Day Capacity Building Programme For Indian Oil Law Officers
-https://www.livelaw.in/lawschool/news/nuals-conducts-two-day-capacity-building-programme-indian-oil-law-officers-542348
-
-[Read on Telegram](https://t.me/livelawindia/115341)
+[Read on Telegram](https://t.me/livelawindia/115372)
 
 ---
-### 2026-07-22T07:45:18+00:00
-Nithin Raj Suicide Case: Kerala High Court Suspects 'Large Conspiracy' In Police Handling Of Accused's Arrest
-https://www.livelaw.in/high-court/kerala-high-court/dental-student-suicide-police-conspiracy-accused-arrest-vitiated-investigating-officer-appearance-542349
+### 2026-07-22T11:33:40+00:00
+Pilikula Biological Park Will Be Transferred To Forest Department: Karnataka Govt Tells High Court In PIL Alleging Mismanagement
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-management-pilikula-biological-park-transfer-forest-department-542403
 
-[Read on Telegram](https://t.me/livelawindia/115342)
-
----
-### 2026-07-22T07:53:18+00:00
-Decide Plea Challenging Passport Fee Hike Within Three Months: Delhi High Court To Centre
-https://www.livelaw.in/high-court/delhi-high-court/centre-decide-passport-fee-hike-challenge-in-three-months-542350
-
-[Read on Telegram](https://t.me/livelawindia/115343)
+[Read on Telegram](https://t.me/livelawindia/115373)
 
 ---
-### 2026-07-22T08:00:38+00:00
-Tender Can't Be Cancelled Citing Expiry Of Bid Validity After Invoking Extension Clause: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-tender-expiry-bid-validity-invoking-extension-clause-542355
+### 2026-07-22T11:42:20+00:00
+Trial Court Cannot Force Parties To Undergo Mediation In Mutual Consent Divorce Cases: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/trial-court-cannot-force-parties-to-undergo-mediation-in-mutual-consent-divorce-cases-calcutta-high-court-542351
 
-[Read on Telegram](https://t.me/livelawindia/115344)
-
----
-### 2026-07-22T08:03:18+00:00
-Patients Cannot Dictate Diagnostic Tests, Must Follow Doctor's Medical Advice: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/patients-cannot-dictate-diagnostic-tests-follow-medical-advice-542352
-
-[Read on Telegram](https://t.me/livelawindia/115345)
+[Read on Telegram](https://t.me/livelawindia/115374)
 
 ---
-### 2026-07-22T08:12:58+00:00
-HP High Court Calls For Contempt Action Against Litigant Who Accused Magistrate Of Corruption, Says Baseless Allegations Scandalise Judiciary
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-baseless-corruption-allegations-judicial-officer-contempt-bench-542214
+### 2026-07-22T11:47:30+00:00
+Haemophilia Drug Shortage: J&K&L High Court Directs GMC Srinagar To Immediately Address Deficiency Of Factor-VIII & Emicizumab
+https://www.livelaw.in/high-court/jammu-kashmir/pil-on-hemophilia-drug-shortage-jk-high-court-directs-gmc-srinagar-to-immediately-address-deficiency-of-factor-viii-emicizumab-542361
 
-[Read on Telegram](https://t.me/livelawindia/115346)
-
----
-### 2026-07-22T08:20:08+00:00
-Karnataka High Court Directs Law College To Replace Course Banners Featuring Person In Advocates' Attire, Cites BCI Rules Against Advertisements
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-replace-law-course-buntings-advocates-image-individual-advertisements-542356
-
-[Read on Telegram](https://t.me/livelawindia/115347)
+[Read on Telegram](https://t.me/livelawindia/115375)
 
 ---
-### 2026-07-22T08:22:28+00:00
-Child Who Saw Mother Being Killed Is A Victim Too: Calcutta High Court Convicts Husband, Family In 2006 Murder Case
-https://www.livelaw.in/high-court/calcutta-high-court/child-who-saw-mother-being-killed-is-a-victim-too-calcutta-high-court-convicts-husband-family-in-2006-murder-case-542328
+### 2026-07-22T11:57:30+00:00
+Allegation Of Child Marriage Doesn't Empower Divorce Court To Direct POCSO FIR: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/allegation-of-child-marriage-doesnt-empower-divorce-court-to-direct-pocso-fir-calcutta-high-court-542353
 
-[Read on Telegram](https://t.me/livelawindia/115348)
+[Read on Telegram](https://t.me/livelawindia/115376)
 
 ---
-### 2026-07-22T08:32:28+00:00
-Safe Kerala Project: High Court Suo Motu Impleads Road Safety Commissioner After Direction To Pay Contractor Not Complied
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-safe-kerala-project-ai-camera-payment-542359
+### 2026-07-22T12:01:10+00:00
+Consider Increasing Retirement Age Of District Judges To 61 : Supreme Court To States/UTs
+https://www.livelaw.in/top-stories/supreme-court-all-india-judges-association-states-uts-directed-to-consider-enhancement-retirement-age-of-district-judges-consult-high-courts-542407
 
-[Read on Telegram](https://t.me/livelawindia/115349)
+[Read on Telegram](https://t.me/livelawindia/115377)
+
+---
+### 2026-07-22T12:08:50+00:00
+Hardeep Puri's Daughter Enjoys Reputation In US, Defamation Suit Not Maintainable Here: Activist Tells Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/himayani-puri-defamation-epstein-files-minister-hardeep-puri-daughter-542411
+
+[Read on Telegram](https://t.me/livelawindia/115378)
+
+---
+### 2026-07-22T12:32:10+00:00
+'Police Must Protect Law-Abiding Citizens, Not Accused': Bombay High Court Slams 'VIP Treatment' To Shiv Sena Corporator Who Assaulted Doctors
+https://www.livelaw.in/high-court/bombay-high-court/doctors-assault-ramesh-mhatre-shiv-sena-vip-treatment-at-remand-maharashtra-police-542414
+
+[Read on Telegram](https://t.me/livelawindia/115379)
+
+---
+### 2026-07-22T13:05:40+00:00
+Vehicle Owner Can't File MACT Claim Against Insurance Company For Damage Caused To Own Car: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/mact-no-jurisdiction-own-vehicle-damage-claims-542417
+
+[Read on Telegram](https://t.me/livelawindia/115380)
+
+---
+### 2026-07-22T13:15:20+00:00
+Soldier's Disability Pension Claim Can't Be Defeated By Merely Labeling Diabetes, Hypertension As 'Lifestyle Disorder': Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/diabetes-hypertension-lifestyle-disease-soldier-disability-pension-542419
+
+[Read on Telegram](https://t.me/livelawindia/115381)
+
+---
+### 2026-07-22T13:26:50+00:00
+LiveLaw Daily | Kapil Sibal| CJP Protest| Shiv Sena Merger| Prathap Simha | Delhi Police Violence
+https://www.livelaw.in/podcast/students-cjp-cockroach-janta-party-bjp-centre-sonam-wangchuk-supreme-court-of-india-cji-surya-kant-legal-news-upsc-aspirants-542422
+
+[Read on Telegram](https://t.me/livelawindia/115382)
+
+---
+### 2026-07-22T13:31:50+00:00
+Can Eco-Development Committee Levy Parking Fees On Temple Devotees In Eco-Sensitive Zone? Karnataka High Court Asks
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-authority-eco-development-committee-collect-parking-fees-542423
+
+[Read on Telegram](https://t.me/livelawindia/115383)
+
+---
+### 2026-07-22T13:42:30+00:00
+CCPA Holds Chaayos Guilty Of Unfair Trade Practice For Levying Mandatory Service Charge, Imposes ₹50,000 Penalty
+https://www.livelaw.in/consumer-cases/ccpa-holds-chaayos-guilty-of-unfair-trade-practice-for-levying-mandatory-service-charge-imposes-50000-penalty-542426
+
+[Read on Telegram](https://t.me/livelawindia/115384)
+
+---
+### 2026-07-22T13:47:50+00:00
+WhatsApp Chats, Emails From Owner's Personal Device Can Be Proved Through His Own S.65B Evidence Act Certificate: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/whatsapp-chats-emails-personal-device-proved-section-65b-certificate-542424
+
+[Read on Telegram](https://t.me/livelawindia/115385)
+
+---
+### 2026-07-22T14:02:50+00:00
+Telangana High Court Asks CBFC To Reconsider 'Girlfriend' Movie's U/A Certification, Says Nature Of Scenes May Impact Underage Viewers
+https://www.livelaw.in/high-court/telangana-high-court/telugu-film-girlfriend-may-impact-underage-viewers-deserves-a-certificate-cbfc-reconsider-542425
+
+[Read on Telegram](https://t.me/livelawindia/115386)
 
 ---
