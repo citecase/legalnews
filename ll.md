@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-21T14:44:39+00:00*
+*Last Updated: 2026-07-21T14:49:59+00:00*
 
 ---
 
-### 2026-07-21T14:44:39+00:00
-Appointment Of Mizoram State Human Rights Commission Chairperson, Members Under Process: State Tells Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-appointment-chairperson-members-state-human-rights-commission-542257
-
-[Read on Telegram](https://t.me/livelawindia/115276)
-
----
 ### 2026-07-21T14:49:59+00:00
 Master BNS & BNSS: LiveLaw Academy Launches Expert-Led Criminal Law Courses
 https://www.livelaw.in/top-stories/master-bns-bnss-criminal-law-courses-542258
@@ -142,5 +135,12 @@ https://www.livelaw.in/high-court/bombay-high-court/aimim-candidate-election-win
 https://www.livelaw.in/lawschool/news/nhrc-chairperson-justice-v-ramasubramanian-addresses-incoming-batch-dbranlu-542283
 
 [Read on Telegram](https://t.me/livelawindia/115295)
+
+---
+### 2026-07-22T03:02:56+00:00
+Mere Presence On Road During COVID-19 Lockdown Not An Offence: Delhi High Court Quashes FIR Against Man
+https://www.livelaw.in/high-court/delhi-high-court/presence-on-road-during-covid-19-lockdown-not-offence-542282
+
+[Read on Telegram](https://t.me/livelawindia/115296)
 
 ---
