@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-22T14:32:55+00:00*
+*Last Updated: 2026-07-22T16:02:39+00:00*
+
+---
+
+### 2026-07-22T16:02:39+00:00
+Noida Metro Rail Corporation (NMRC) Invites Applications For Post Of Young Professional (Legal)
+https://www.verdictum.in/job-updates/noida-metro-rail-corporation-1618302
+
+[Source Link](https://t.me/verdictumlegalupdates/28118)
+
+---
+
+### 2026-07-22T15:32:17+00:00
+Last Seen Theory Is Weak Evidence Unless Time Gap With Death Is Negligible: Supreme Court Sets Aside Murder Conviction
+https://www.verdictum.in/supreme-court/didar-singh-dari-v-the-state-of-haryana-with-ranjeet-singh-jeeta-v-the-state-of-haryana-2026-insc-726-1618307
+
+[Source Link](https://t.me/verdictumlegalupdates/28117)
+
+---
+
+### 2026-07-22T15:02:16+00:00
+Exclusion Of A Caste From SC/ST List Operates Prospectively; Reservation Benefit, Once Accrued, Continues For Life: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/employees-provident-fund-organization-v-ranjit-vasantlal-makwana-2026gujhc45467-db-exclusion-of-a-caste-from-scst-list-1618300
+
+[Source Link](https://t.me/verdictumlegalupdates/28116)
 
 ---
 
@@ -137,30 +161,6 @@ We Aren't Interested In Videos, Don't Have Time To Watch: Supreme Court Refuses 
 https://www.verdictum.in/supreme-court/refuses-urgency-in-oral-mentioning-on-jantar-mantar-protests-1618258
 
 [Source Link](https://t.me/verdictumlegalupdates/28099)
-
----
-
-### 2026-07-22T05:52:25+00:00
-Illegal Act Committed By A Juvenile Cannot Form Basis For Preventive Detention Under PSA: J&K&L High Court
-https://www.verdictum.in/jammu-ladakh-high-court/zahid-ahmad-mir-v-ut-of-jk-2026jklhc-sgr223-illegal-act-preventive-detention-juvenile-1618255
-
-[Source Link](https://t.me/verdictumlegalupdates/28098)
-
----
-
-### 2026-07-22T05:13:04+00:00
-Apathetic Pen-Pushing: Supreme Court Orders Promotion of CRPF Officer; Directs Payment Of Rs 10 Lakh In His Favor For Prolonged Litigation
-https://www.verdictum.in/supreme-court/prakash-kumar-dixit-v-ajay-kumar-bhalla-2026-insc-725-employment-crpf-officer-1618248
-
-[Source Link](https://t.me/verdictumlegalupdates/28097)
-
----
-
-### 2026-07-22T04:32:33+00:00
-Can’t Rewrite Eligibility Conditions Framed by Tendering Authority: Delhi High Court Dismisses Writ Petition Against MCD Tender
-https://www.verdictum.in/delhi-high-court/skylark-infra-engineering-pvt-ltd-v-municipal-corporation-of-delhi-2026dhc5745-db-tender-1618243
-
-[Source Link](https://t.me/verdictumlegalupdates/28096)
 
 ---
 
