@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-22T09:01:52+00:00*
+*Last Updated: 2026-07-22T14:32:55+00:00*
+
+---
+
+### 2026-07-22T14:32:55+00:00
+"Bulldozer Justice" Cases: Allahabad High Court Delivers Split Verdict On Two-Year Demolition Shield After FIR And One-Year Notice Before Municipal Action
+https://www.verdictum.in/allahabad-high-court/faimuddeen-and-2-others-v-state-of-up-and-7-others-2026ahc147816-db-1618299
+
+[Source Link](https://t.me/verdictumlegalupdates/28115)
+
+---
+
+### 2026-07-22T14:02:54+00:00
+Government Can’t Be Held Ransom To Whims Of A Private Company: Delhi High Court Upholds Rejection Of Vedanta's PSC Extension
+https://www.verdictum.in/delhi-high-court/vedanta-limited-division-cairn-oil-gas-v-union-of-india-2026dhc5803-rejection-of-vedantas-psc-extension-ongc-1618298
+
+[Source Link](https://t.me/verdictumlegalupdates/28114)
+
+---
+
+### 2026-07-22T13:33:13+00:00
+"Murder" Is "Heinous Offence" Under Juvenile Justice Act: Supreme Court Rejects Plea That It Is Only A "Serious" Offence
+https://www.verdictum.in/supreme-court/x-v-state-of-bihar-anr-2026-insc-728-mruder-heinous-offence-juvenile-1618297
+
+[Source Link](https://t.me/verdictumlegalupdates/28113)
+
+---
+
+### 2026-07-22T13:02:32+00:00
+Service Of Opportunity Notice U/S 61(2) FERA Mandatory Requirement For Taking Cognizance: Supreme Court Quashes 23-Year-Old Complaint Against Standard Chartered Bank
+https://www.verdictum.in/supreme-court/standard-chartered-bank-v-enforcement-officer-ministry-of-home-affairs-2026-insc-727-mandatory-notice-us-612-fera-1618295
+
+[Source Link](https://t.me/verdictumlegalupdates/28112)
+
+---
+
+### 2026-07-22T12:32:31+00:00
+Weekly Overview| Supreme Court Judgments: July 13 – July 17, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-july-13-july-17-2026-1618293
+
+[Source Link](https://t.me/verdictumlegalupdates/28111)
+
+---
+
+### 2026-07-22T12:02:59+00:00
+Typographical Errors In Pleadings Cannot Trigger Proceedings U/S 340 CrPC Unless They Amount To Deliberate Falsehood: Supreme Court
+https://www.verdictum.in/supreme-court/prabhakar-yeshwant-masram-and-another-v-sou-tula-namdeorao-jaipurkar-and-another-2026-insc-724-1618292
+
+[Source Link](https://t.me/verdictumlegalupdates/28110)
+
+---
+
+### 2026-07-22T11:32:38+00:00
+Supreme Court Asks States, UTs To Consider Raising Retirement Age Of Judicial Officers From 60 To 61 Years
+https://www.verdictum.in/supreme-court/states-uts-to-consider-raising-retirement-age-of-judicial-officers-from-60-to-61-years-1618290
+
+[Source Link](https://t.me/verdictumlegalupdates/28109)
+
+---
+
+### 2026-07-22T11:02:57+00:00
+He Was Left To Fend For Himself Without Legal Representation: Supreme Court Orders De Novo Trial For Death Row Convict In 1996 Samleti Bus Blast Case
+https://www.verdictum.in/supreme-court/dr-abdul-hameed-v-state-of-rajasthan-2026-insc-734-1996-samleti-bus-blast-de-novo-trial-for-death-row-convict-1618288
+
+[Source Link](https://t.me/verdictumlegalupdates/28108)
+
+---
+
+### 2026-07-22T10:29:16+00:00
+Breaking: High Court Seeks Delhi Police's Response On Action Against Jantar Mantar Protestors, Orders Preservation Of CCTV Footage
+https://www.verdictum.in/delhi-high-court/jantar-mantar-seeks-union-delhi-police-reply-on-police-action-against-protesters-1618289
+
+[Source Link](https://t.me/verdictumlegalupdates/28107)
+
+---
+
+### 2026-07-22T10:02:35+00:00
+Expert Report Cannot Be Sole Basis For Preliminary Assessment U/S 15 JJ Act; Board Must Independently Assess SBR, SIR & Other Materials: Supreme Court
+https://www.verdictum.in/supreme-court/x-v-state-of-bihar-anr-2026-insc-728-expert-report-section-15-juvenile-justice-act-1618279
+
+[Source Link](https://t.me/verdictumlegalupdates/28106)
+
+---
+
+### 2026-07-22T09:32:34+00:00
+Supreme Court Dismisses ED & State Pleas Challenging Bail Granted To Chaitanya Baghel In Alleged Liquor Scam Cases
+https://www.verdictum.in/supreme-court/ed-state-pleas-challenging-bail-granted-to-chaitanya-baghel-in-alleged-liquor-scam-cases-1618282
+
+[Source Link](https://t.me/verdictumlegalupdates/28105)
 
 ---
 
@@ -73,94 +161,6 @@ Can’t Rewrite Eligibility Conditions Framed by Tendering Authority: Delhi High
 https://www.verdictum.in/delhi-high-court/skylark-infra-engineering-pvt-ltd-v-municipal-corporation-of-delhi-2026dhc5745-db-tender-1618243
 
 [Source Link](https://t.me/verdictumlegalupdates/28096)
-
----
-
-### 2026-07-21T15:52:53+00:00
-Law Officer Vacancy At National Institute of Educational Planning and Administration (NIEPA)
-https://www.verdictum.in/job-updates/national-institute-of-educational-planning-and-administration-1618220
-
-[Source Link](https://t.me/verdictumlegalupdates/28095)
-
----
-
-### 2026-07-21T15:12:32+00:00
-WhatsApp Messages Suggest Continuous Harassment By All: Gujarat High Court Rejects Quashing Application Of In-laws In Dowry Death Case
-https://www.verdictum.in/gujarat-high-court/rameshkumar-so-ishwarsinh-jat-v-state-of-gujarat-2026gujhc42808-dowry-death-1618219
-
-[Source Link](https://t.me/verdictumlegalupdates/28094)
-
----
-
-### 2026-07-21T14:32:10+00:00
-Proposed Publication Can’t Be Presumed Defamatory: Delhi High Court Recalls Gag Order Against The Wire In Ex-Chief Secretary Naresh Kumar’s Suit
-https://www.verdictum.in/delhi-high-court/shri-naresh-kumar-v-the-wire-ors-2026dhc5759-defamation-proposed-publication-1618218
-
-[Source Link](https://t.me/verdictumlegalupdates/28093)
-
----
-
-### 2026-07-21T13:52:09+00:00
-Supreme Court Seeks Response From Centre & CPCB In Plea Alleging Non Utilisation Of Environmental Relief Funds Of Rs. 1000 Crores
-https://www.verdictum.in/supreme-court/plea-alleging-non-utilisation-of-environmental-relief-funds-of-rs-1000-crores-1618217
-
-[Source Link](https://t.me/verdictumlegalupdates/28092)
-
----
-
-### 2026-07-21T13:12:16+00:00
-Supreme Court Sets Aside Death Penalty In 1996 Dausa Bus Blast Case, Orders Retrial
-https://www.verdictum.in/supreme-court/death-penalty-in-1996-dausa-bus-blast-case-set-aside-1618213
-
-[Source Link](https://t.me/verdictumlegalupdates/28091)
-
----
-
-### 2026-07-21T12:33:15+00:00
-Draft Advocates Amendment Bill 2026: BCI Proposes First-Ever Statutory Recognition For Law Firms, Strict Limits On Foreign Lawyers
-https://www.verdictum.in/news/draft-advocates-amendment-bill-2026-bci-indian-law-firms-limits-foreign-lawyers-1618214
-
-[Source Link](https://t.me/verdictumlegalupdates/28090)
-
----
-
-### 2026-07-21T11:52:54+00:00
-Fulfills Articles 19 & 21: Delhi High Court Observes In Wangchuk’s Transfer To Medanta, Permits Wife Unrestricted Visits
-https://www.verdictum.in/delhi-high-court/wangchuk-transfer-medanta-permits-wife-unrestricted-visits-1618215
-
-[Source Link](https://t.me/verdictumlegalupdates/28089)
-
----
-
-### 2026-07-21T11:12:53+00:00
-Supreme Court Remarks No 'Exhortation' By Bhagwant Mann In 2020 Chandigarh Tariff Protest Case
-https://www.verdictum.in/supreme-court/bhagwant-mann-in-2020-chandigarh-tariff-protest-case-1618210
-
-[Source Link](https://t.me/verdictumlegalupdates/28088)
-
----
-
-### 2026-07-21T10:32:51+00:00
-Distributor Acting As Commission Agent Amounts To Business Auxiliary Service U/S 65 Finance Act: Supreme Court Restores ₹16 Cr Service Tax Demand Against BPCL, HPCL
-https://www.verdictum.in/supreme-court/commissioner-of-service-tax-mumbai-v-ms-bharat-petroleum-corporation-ltd-etc-2026-insc-723-1618209
-
-[Source Link](https://t.me/verdictumlegalupdates/28087)
-
----
-
-### 2026-07-21T09:52:30+00:00
-Supreme Court Issues Notice On Venugopal Dhoot's Plea Against Order Upholding Separate Insolvency For VIL, VOVL
-https://www.verdictum.in/supreme-court/notice-on-venugopal-dhoots-plea-against-order-upholding-separate-insolvency-for-vil-vovl-1618208
-
-[Source Link](https://t.me/verdictumlegalupdates/28086)
-
----
-
-### 2026-07-21T09:12:29+00:00
-Issue Master Circular Standardising Cross-Border Coverage Clauses In Motor Insurance Policies: Supreme Court To IRDAI
-https://www.verdictum.in/supreme-court/the-oriental-insurance-co-ltd-v-durg-roadways-private-limited-2026-insc-72-mact-policies-1618206
-
-[Source Link](https://t.me/verdictumlegalupdates/28085)
 
 ---
 
