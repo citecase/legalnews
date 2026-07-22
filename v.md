@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-21T15:52:53+00:00*
+*Last Updated: 2026-07-22T09:01:52+00:00*
+
+---
+
+### 2026-07-22T09:01:52+00:00
+Supreme Court Issues Notice On Shiv Sena UBT Challenge To Lok Sabha Speaker’s Recognition Of MPs' Merger With Shinde Faction, Refuses Interim Stay
+https://www.verdictum.in/supreme-court/shiv-sena-ubt-challenge-lok-sabha-speaker-mp-merger-shinde-faction-1618284
+
+[Source Link](https://t.me/verdictumlegalupdates/28104)
+
+---
+
+### 2026-07-22T08:32:51+00:00
+Family Court Committed Illegality In Accepting Wife’s Income Without Pay Slip: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/a-v-b-2026mphc-jbp53157-family-court-income-pay-slip-maintenance-1618273
+
+[Source Link](https://t.me/verdictumlegalupdates/28103)
+
+---
+
+### 2026-07-22T08:02:10+00:00
+Supreme Court To Hear Plea By Kapil Sibal Challenging Political Defections Under Guise Of Mergers
+https://www.verdictum.in/supreme-court/kapil-sibal-challenging-political-defections-under-guise-of-mergers-1618276
+
+[Source Link](https://t.me/verdictumlegalupdates/28102)
+
+---
+
+### 2026-07-22T07:33:09+00:00
+Personal Search Safeguard U/S.50 NDPS Act Doesn’t Apply Where Recovery Is Effected From Water Bottle: Supreme Court
+https://www.verdictum.in/supreme-court/mehboob-shah-v-state-of-madhya-pradesh-2026-insc-729-personal-search-sec50-ndps-act-1618265
+
+[Source Link](https://t.me/verdictumlegalupdates/28101)
+
+---
+
+### 2026-07-22T06:52:28+00:00
+Bhojshala Row: Supreme Court Asks State To Identify Adjacent Site For Friday Namaz After Muslim Side Alleges Site Is 2 Km Away
+https://www.verdictum.in/supreme-court/state-adjacent-site-friday-namaz-muslim-side-site-2-km-1618260
+
+[Source Link](https://t.me/verdictumlegalupdates/28100)
+
+---
+
+### 2026-07-22T06:16:47+00:00
+We Aren't Interested In Videos, Don't Have Time To Watch: Supreme Court Refuses Oral Mentioning About Alleged Police Violence At Students' Protest
+https://www.verdictum.in/supreme-court/refuses-urgency-in-oral-mentioning-on-jantar-mantar-protests-1618258
+
+[Source Link](https://t.me/verdictumlegalupdates/28099)
+
+---
+
+### 2026-07-22T05:52:25+00:00
+Illegal Act Committed By A Juvenile Cannot Form Basis For Preventive Detention Under PSA: J&K&L High Court
+https://www.verdictum.in/jammu-ladakh-high-court/zahid-ahmad-mir-v-ut-of-jk-2026jklhc-sgr223-illegal-act-preventive-detention-juvenile-1618255
+
+[Source Link](https://t.me/verdictumlegalupdates/28098)
+
+---
+
+### 2026-07-22T05:13:04+00:00
+Apathetic Pen-Pushing: Supreme Court Orders Promotion of CRPF Officer; Directs Payment Of Rs 10 Lakh In His Favor For Prolonged Litigation
+https://www.verdictum.in/supreme-court/prakash-kumar-dixit-v-ajay-kumar-bhalla-2026-insc-725-employment-crpf-officer-1618248
+
+[Source Link](https://t.me/verdictumlegalupdates/28097)
+
+---
+
+### 2026-07-22T04:32:33+00:00
+Can’t Rewrite Eligibility Conditions Framed by Tendering Authority: Delhi High Court Dismisses Writ Petition Against MCD Tender
+https://www.verdictum.in/delhi-high-court/skylark-infra-engineering-pvt-ltd-v-municipal-corporation-of-delhi-2026dhc5745-db-tender-1618243
+
+[Source Link](https://t.me/verdictumlegalupdates/28096)
 
 ---
 
@@ -89,78 +161,6 @@ Issue Master Circular Standardising Cross-Border Coverage Clauses In Motor Insur
 https://www.verdictum.in/supreme-court/the-oriental-insurance-co-ltd-v-durg-roadways-private-limited-2026-insc-72-mact-policies-1618206
 
 [Source Link](https://t.me/verdictumlegalupdates/28085)
-
----
-
-### 2026-07-21T08:15:28+00:00
-Breaking: Delhi High Court Proposes To Shift Sonam Wangchuk To Medanta Hospital; To Pass Order Today
-https://www.verdictum.in/delhi-high-court/proposes-shifting-sonam-wangchuk-to-medanta-hospital-1618204
-
-[Source Link](https://t.me/verdictumlegalupdates/28084)
-
----
-
-### 2026-07-21T08:12:47+00:00
-Supreme Court Issues Notice To Centre On Plea Seeking Directions To Initiate Appeal For Exclusion From Assam NRC
-https://www.verdictum.in/supreme-court/plea-seeking-directions-to-initiate-appeal-for-exclusion-from-assam-nrc-1618199
-
-[Source Link](https://t.me/verdictumlegalupdates/28083)
-
----
-
-### 2026-07-21T07:32:46+00:00
-Supreme Court Asks AIIMS Director To Consitute Medical Board To Assess Condition Of Asaram In His Interim Bail Plea
-https://www.verdictum.in/supreme-court/aiims-director-to-consitute-medical-board-to-assess-condition-of-asaram-in-his-interim-bail-plea-1618197
-
-[Source Link](https://t.me/verdictumlegalupdates/28082)
-
----
-
-### 2026-07-21T06:49:05+00:00
-Breaking: Supreme Court Sets Aside High Court's Interim Direction Placing Kerala Waqf Board Under Joint Secretary's Supervision
-https://www.verdictum.in/supreme-court/deletes-high-court-order-placing-kerala-waqf-board-joint-secretary-supervision-1618194
-
-[Source Link](https://t.me/verdictumlegalupdates/28081)
-
----
-
-### 2026-07-21T06:33:04+00:00
-Elgar Parishad Case: Supreme Court Justice S Chandrashekhar Recuses From Hearing Gadling's Bail Plea
-https://www.verdictum.in/supreme-court/justice-s-chandrashekhar-recuses-from-hearing-gadlings-bail-plea-1618189
-
-[Source Link](https://t.me/verdictumlegalupdates/28080)
-
----
-
-### 2026-07-21T05:52:22+00:00
-Matrimonial Disputes Cannot Be Converted Into Mala Fide Criminal Prosecutions Through Exaggerated Sexual Offence Allegations: Bombay High Court
-https://www.verdictum.in/bombay-high-court/y-v-state-of-maharashtra-matrimonial-dispute-connected-criminal-cases-pocso-1618185
-
-[Source Link](https://t.me/verdictumlegalupdates/28079)
-
----
-
-### 2026-07-21T05:11:41+00:00
-Collector Cannot Compel SHO To "Recall" Already Forwarded Report: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/deepak-manulal-garg-v-the-state-of-madhya-pradesh-2026mphc-ind18892-collector-crpc-1618181
-
-[Source Link](https://t.me/verdictumlegalupdates/28078)
-
----
-
-### 2026-07-21T04:32:30+00:00
-Allahabad High Court Directs Bar Council To Act Against Advocates Accused Of Heinous Offences; Orders Transfer Of Such Cases Outside Home Districts
-https://www.verdictum.in/allahabad-high-court/mohammad-kafeel-v-state-of-up-and-another-advocates-criminal-offences-1618145
-
-[Source Link](https://t.me/verdictumlegalupdates/28077)
-
----
-
-### 2026-07-20T15:52:09+00:00
-Part-Time Consultant (Legal) Vacancy At Indian Statistical Institute (ISI)
-https://www.verdictum.in/job-updates/indian-statistical-institute-1618148
-
-[Source Link](https://t.me/verdictumlegalupdates/28076)
 
 ---
 
