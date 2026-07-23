@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-22T16:02:39+00:00*
+*Last Updated: 2026-07-23T08:52:30+00:00*
+
+---
+
+### 2026-07-23T08:52:30+00:00
+FSL Expert Report Bereft Of Reasons & Scientific Criteria Of No Avail: Allahabad High Court Issues Suggestions On Forensic Evidence Protocols
+https://www.verdictum.in/allahabad-high-court/gyanmati-sangathiya-v-state-of-up-with-ashok-kumar-putti-lal-v-state-of-up-2026ahc146616-db-1618357
+
+[Source Link](https://t.me/verdictumlegalupdates/28126)
+
+---
+
+### 2026-07-23T08:12:49+00:00
+General Obligation To Maintain Child Cannot Be Invoked In Execution Proceedings To Rewrite Discharged Consent Decree: Supreme Court
+https://www.verdictum.in/supreme-court/vr-v-clb-2026-insc-731-execution-proceedings-father-obligation-maintain-children-1618340
+
+[Source Link](https://t.me/verdictumlegalupdates/28125)
+
+---
+
+### 2026-07-23T07:23:48+00:00
+Supreme Court Sets Aside Meghalaya HC Bail Order In "Honeymoon Murder" Case; Directs Sonam Raghuvanshi To Surrender In 2 Weeks
+https://www.verdictum.in/supreme-court/meghalaya-hc-honeymoon-murder-sonam-raghuvanshi-1618348
+
+[Source Link](https://t.me/verdictumlegalupdates/28124)
+
+---
+
+### 2026-07-23T07:02:26+00:00
+Supreme Court Allows Taj Trapezium Zone Authority To Process Pending 400 MSME Applications Under Expert Oversight
+https://www.verdictum.in/supreme-court/ttz-authority-process-pending-400-msme-applications-under-expert-oversight-1618346
+
+[Source Link](https://t.me/verdictumlegalupdates/28123)
+
+---
+
+### 2026-07-23T06:33:05+00:00
+Closure Of Metros Due To Protests: Chief Justice Says He Will Intervene If Matter Is Not Resolved By Lunch
+https://www.verdictum.in/supreme-court/closure-of-metros-due-to-protests-1618341
+
+[Source Link](https://t.me/verdictumlegalupdates/28122)
+
+---
+
+### 2026-07-23T05:51:24+00:00
+Writ Jurisdiction Not An Alternate Recovery Mechanism For Commercial Or Professional Contracts: Madras High Court
+https://www.verdictum.in/madras-high-court/sunit-kumar-agarwal-v-the-asst-general-manager-writ-jurisdiction-not-alternate-recovery-contract-1618337
+
+[Source Link](https://t.me/verdictumlegalupdates/28121)
+
+---
+
+### 2026-07-23T05:13:43+00:00
+Assign Specific Division Bench For Hearing Writ Petitions Under Articles 226, 227 Arising From Orders Of Statutory Tribunals: Supreme Court To High Courts
+https://www.verdictum.in/supreme-court/ajit-singh-v-state-of-rajasthan-2026-insc-733-division-bench-petitions-articles-226-227-tribunals-1618334
+
+[Source Link](https://t.me/verdictumlegalupdates/28120)
+
+---
+
+### 2026-07-23T04:32:51+00:00
+Landlord Has Right To Enjoy His Own Property: Supreme Court Explains Contours Of "Bona Fide" Requirement
+https://www.verdictum.in/supreme-court/cause-title-madan-mohan-dead-through-lrs-v-thakar-dass-dead-2026-insc-730-section-115-cpc-1618309
+
+[Source Link](https://t.me/verdictumlegalupdates/28119)
 
 ---
 
@@ -97,70 +161,6 @@ Breaking: High Court Seeks Delhi Police's Response On Action Against Jantar Mant
 https://www.verdictum.in/delhi-high-court/jantar-mantar-seeks-union-delhi-police-reply-on-police-action-against-protesters-1618289
 
 [Source Link](https://t.me/verdictumlegalupdates/28107)
-
----
-
-### 2026-07-22T10:02:35+00:00
-Expert Report Cannot Be Sole Basis For Preliminary Assessment U/S 15 JJ Act; Board Must Independently Assess SBR, SIR & Other Materials: Supreme Court
-https://www.verdictum.in/supreme-court/x-v-state-of-bihar-anr-2026-insc-728-expert-report-section-15-juvenile-justice-act-1618279
-
-[Source Link](https://t.me/verdictumlegalupdates/28106)
-
----
-
-### 2026-07-22T09:32:34+00:00
-Supreme Court Dismisses ED & State Pleas Challenging Bail Granted To Chaitanya Baghel In Alleged Liquor Scam Cases
-https://www.verdictum.in/supreme-court/ed-state-pleas-challenging-bail-granted-to-chaitanya-baghel-in-alleged-liquor-scam-cases-1618282
-
-[Source Link](https://t.me/verdictumlegalupdates/28105)
-
----
-
-### 2026-07-22T09:01:52+00:00
-Supreme Court Issues Notice On Shiv Sena UBT Challenge To Lok Sabha Speaker’s Recognition Of MPs' Merger With Shinde Faction, Refuses Interim Stay
-https://www.verdictum.in/supreme-court/shiv-sena-ubt-challenge-lok-sabha-speaker-mp-merger-shinde-faction-1618284
-
-[Source Link](https://t.me/verdictumlegalupdates/28104)
-
----
-
-### 2026-07-22T08:32:51+00:00
-Family Court Committed Illegality In Accepting Wife’s Income Without Pay Slip: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/a-v-b-2026mphc-jbp53157-family-court-income-pay-slip-maintenance-1618273
-
-[Source Link](https://t.me/verdictumlegalupdates/28103)
-
----
-
-### 2026-07-22T08:02:10+00:00
-Supreme Court To Hear Plea By Kapil Sibal Challenging Political Defections Under Guise Of Mergers
-https://www.verdictum.in/supreme-court/kapil-sibal-challenging-political-defections-under-guise-of-mergers-1618276
-
-[Source Link](https://t.me/verdictumlegalupdates/28102)
-
----
-
-### 2026-07-22T07:33:09+00:00
-Personal Search Safeguard U/S.50 NDPS Act Doesn’t Apply Where Recovery Is Effected From Water Bottle: Supreme Court
-https://www.verdictum.in/supreme-court/mehboob-shah-v-state-of-madhya-pradesh-2026-insc-729-personal-search-sec50-ndps-act-1618265
-
-[Source Link](https://t.me/verdictumlegalupdates/28101)
-
----
-
-### 2026-07-22T06:52:28+00:00
-Bhojshala Row: Supreme Court Asks State To Identify Adjacent Site For Friday Namaz After Muslim Side Alleges Site Is 2 Km Away
-https://www.verdictum.in/supreme-court/state-adjacent-site-friday-namaz-muslim-side-site-2-km-1618260
-
-[Source Link](https://t.me/verdictumlegalupdates/28100)
-
----
-
-### 2026-07-22T06:16:47+00:00
-We Aren't Interested In Videos, Don't Have Time To Watch: Supreme Court Refuses Oral Mentioning About Alleged Police Violence At Students' Protest
-https://www.verdictum.in/supreme-court/refuses-urgency-in-oral-mentioning-on-jantar-mantar-protests-1618258
-
-[Source Link](https://t.me/verdictumlegalupdates/28099)
 
 ---
 
