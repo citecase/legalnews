@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-22T15:12:51+00:00*
+*Last Updated: 2026-07-23T06:15:54+00:00*
 
 ---
 
-### 2026-07-22T15:12:51+00:00
-'Last Heard' Over Phone Can't Be Treated As 'Last Seen Together' Evidence: Chhattisgarh High Court Acquits Murder Convict
-https://www.livelaw.in/high-court/chhattisgarh-high-court/last-heard-last-seen-together-acquits-murder-accused-evidence-telephonic-conversation-542439
+### 2026-07-23T06:15:54+00:00
+'Common Man Is Really Troubled': Delhi High Court Initiates Suo Motu PIL On Stray Dogs Management
+https://www.livelaw.in/high-court/delhi-high-court/stray-dogs-removal-dog-bites-citizens-troubled-delhi-mcd-report-542523
 
-[Read on Telegram](https://t.me/livelawindia/115398)
-
----
-### 2026-07-22T15:22:11+00:00
-PIL In Delhi High Court Seeks NIA Probe Into CJP Protest, Alleges Foreign Funding Behind NEET Agitation
-https://www.livelaw.in/high-court/delhi-high-court/pil-in-delhi-high-court-seeks-nia-probe-into-cjp-protest-alleges-foreign-funding-behind-neet-agitation-542451
-
-[Read on Telegram](https://t.me/livelawindia/115399)
+[Read on Telegram](https://t.me/livelawindia/115450)
 
 ---
-### 2026-07-22T15:27:51+00:00
-Retiral Benefits Cannot Be Withheld Over Suspected Involvement In Criminal Case: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/retiral-benefits-cannot-be-kept-in-limbo-merely-because-the-government-suspects-involvement-in-criminal-case-future-proceedings-jkl-high-court-542440
+### 2026-07-23T06:32:24+00:00
+PIL In Telangana High Court Seeks Effective Implementation Of RTI Online Portal, Hybrid Hearings Before State Information Commission
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-rti-portal-collapse-hybrid-hearings-information-commission-542522
 
-[Read on Telegram](https://t.me/livelawindia/115400)
-
----
-### 2026-07-22T15:31:11+00:00
-BCI Decides To Increase Bar Council Seats, Says Those Elected Within Present Strength Mustn't Be Excluded For Women Reservation
-https://www.livelaw.in/top-stories/bci-decides-to-increase-bar-council-seats-says-those-elected-within-present-strength-mustnt-be-excluded-for-women-reservation-542452
-
-[Read on Telegram](https://t.me/livelawindia/115401)
+[Read on Telegram](https://t.me/livelawindia/115451)
 
 ---
-### 2026-07-22T15:57:51+00:00
-Allahabad High Court Registers Suo Motu PIL Over Alleged Assault On 3 Lawyers At Lucknow District Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-lucknow-district-court-assault-suo-motu-pil-interim-directions-542455
+### 2026-07-23T06:33:04+00:00
+Ernakulam Consumer Commission Holds Qatar Airways Liable For Denying Boarding On Return Journey
+https://www.livelaw.in/consumer-cases/ernakulam-consumer-commission-holds-qatar-airways-liable-for-denying-boarding-on-return-journey-542468
 
-[Read on Telegram](https://t.me/livelawindia/115402)
-
----
-### 2026-07-22T16:18:01+00:00
-Delhi High Court Passes Interim Order Allowing Judges To File ITRs Claiming Judicial Allowances As Non-Taxable Income
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-passes-interim-order-allowing-judges-to-file-itrs-claiming-judicial-allowances-as-non-taxable-income-542457
-
-[Read on Telegram](https://t.me/livelawindia/115403)
+[Read on Telegram](https://t.me/livelawindia/115452)
 
 ---
-### 2026-07-22T16:32:01+00:00
-Don't Engage Seniors By Default, Argue Cases Yourself : Justice KV Viswanathan To AoRs
-https://www.livelaw.in/top-stories/dont-engage-seniors-by-default-argue-cases-yourself-justice-kv-viswanathan-to-aors-542458
+### 2026-07-23T06:42:24+00:00
+Caste Abuse Inside Private Office Without 'Public View' Not Offence Under SC/ST Act: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/caste-abuse-inside-private-office-without-public-view-not-offence-under-scst-act-delhi-high-court-542527
 
-[Read on Telegram](https://t.me/livelawindia/115404)
-
----
-### 2026-07-22T16:36:01+00:00
-SCBA Requests Judges To Scrap Sequencing System Or To Show It In Supplementary List
-https://www.livelaw.in/top-stories/supreme-court-bar-association-felicitation-event-new-judges-suggestion-for-scrapping-sequence-inclusion-in-supplementary-cause-list-542459
-
-[Read on Telegram](https://t.me/livelawindia/115405)
+[Read on Telegram](https://t.me/livelawindia/115453)
 
 ---
-### 2026-07-22T17:18:11+00:00
-Supreme Court Daily Round-Up : July 22, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-july-22-2026-542454
+### 2026-07-23T06:44:04+00:00
+Children Study For Hours And Months, Can't Lose Admissions Because CBSE & IIT/SPA Timelines Are Not In Sync: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/children-study-for-hours-and-months-cant-lose-admissions-because-cbse-iitspa-timelines-are-not-in-sync-delhi-high-court-542528
 
-[Read on Telegram](https://t.me/livelawindia/115406)
-
----
-### 2026-07-22T18:02:22+00:00
-P&H High Court Directs Visa Fraud Accused To Publish Details Of All FIRs Against Him In Newspapers As Condition To Consider Quashing Plea
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/visa-fraud-accused-publish-all-firs-in-newspapers-542463
-
-[Read on Telegram](https://t.me/livelawindia/115407)
+[Read on Telegram](https://t.me/livelawindia/115454)
 
 ---
-### 2026-07-23T02:27:33+00:00
-CLAT 2027 To Be Held On December 6, 2026
-https://www.livelaw.in/news-updates/clat-2027-to-be-held-on-december-6-2026-542470
+### 2026-07-23T06:47:24+00:00
+Contract Doesn't Become “Statutory” Merely Because One Party Is An Instrumentality Of State: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-contract-statutory-party-instrumentality-of-state-542524
 
-[Read on Telegram](https://t.me/livelawindia/115408)
-
----
-### 2026-07-23T02:30:53+00:00
-Social Media Popularity Not Same As Credibility : CJI Surya Kant To New AoRs, Warns Against Overreliance On AI In Drafting
-https://www.livelaw.in/top-stories/social-media-popularity-not-same-as-credibility-cji-surya-kant-to-new-aors-warns-against-overreliance-on-ai-in-drafting-542471
-
-[Read on Telegram](https://t.me/livelawindia/115409)
+[Read on Telegram](https://t.me/livelawindia/115455)
 
 ---
-### 2026-07-23T02:32:53+00:00
-Wife Earning Substantially More Than Husband, Can't Seek Maintenance Claiming Cost Of Living Abroad Is Exorbitant: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/wife-cant-seek-maintenance-because-cost-of-living-abroad-exorbitant-542464
+### 2026-07-23T06:59:24+00:00
+DMK's Periakaruppan Withdraws Plea In Madras High Court Challenging TVK MLA's Victory By One Vote
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-dmk-periakaruppan-one-vote-victory-tvk-seenivasa-sethupathi-withdrawn-542530
 
-[Read on Telegram](https://t.me/livelawindia/115410)
-
----
-### 2026-07-23T03:01:53+00:00
-Executive (Data Privacy & Ethics) Vacancy At KPMG India [Gurgaon; Apply Now]
-https://www.livelaw.in/job-updates/executive-data-privacy-ethics-vacancy-at-kpmg-india-gurgaon-542472
-
-[Read on Telegram](https://t.me/livelawindia/115411)
+[Read on Telegram](https://t.me/livelawindia/115456)
 
 ---
-### 2026-07-23T03:02:43+00:00
-Life Insurance Policy Cannot Be Equated With Recurring Deposit; Maturity Proceeds Depend on Policy Terms and Risk Factors: J&K State Commission
-https://www.livelaw.in/consumer-cases/life-insurance-policy-cannot-be-equated-with-recurring-deposit-maturity-proceeds-depend-on-policy-terms-and-risk-factors-jk-state-commission-542462
+### 2026-07-23T06:59:34+00:00
+BREAKING|  Honeymoon Murder Case : Supreme Court Sets Aside Bail Granted To Sonam Raghuvanshi
+https://www.livelaw.in/top-stories/supreme-court-cancels-bail-granted-to-sonam-raghuvanshi-in-meghalaya-honeymoon-murder-case-542531
 
-[Read on Telegram](https://t.me/livelawindia/115412)
-
----
-### 2026-07-23T03:03:13+00:00
-Assistant Professor Vacancy At National Forensic Sciences University, Gandhinagar
-https://www.livelaw.in/job-updates/assistant-professor-vacancy-at-national-forensic-sciences-university-gandhinagar-542473
-
-[Read on Telegram](https://t.me/livelawindia/115413)
+[Read on Telegram](https://t.me/livelawindia/115457)
 
 ---
-### 2026-07-23T03:03:23+00:00
-Govt Must Educate Devotees That PoP Idol Ban Has Nothing To Do With Faith, 'Mother Earth Crying Due To Pollution': Bombay High Court Told
-https://www.livelaw.in/high-court/bombay-high-court/pop-idol-ganesh-utsav-environment-pollution-cpcb-maharashtra-542465
+### 2026-07-23T07:02:24+00:00
+Cross-Border Transfer Of Healthcare Data: Reconciling India's DPDPA With GDPR
+https://www.livelaw.in/articles/cross-border-transfer-healthcare-data-reconciling-india-dpdpa-gdpr-542388
 
-[Read on Telegram](https://t.me/livelawindia/115414)
-
----
-### 2026-07-23T03:04:23+00:00
-Young Professional Vacancy At Directorate General Of Foreign Trade
-https://www.livelaw.in/job-updates/young-professional-vacancy-at-directorate-general-of-foreign-trade-542474
-
-[Read on Telegram](https://t.me/livelawindia/115415)
+[Read on Telegram](https://t.me/livelawindia/115458)
 
 ---
-### 2026-07-23T03:08:03+00:00
-Assistant Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/assistant-manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-542475
+### 2026-07-23T07:02:44+00:00
+Administrative Authorities Can't Cancel Registered Sale Deed Even On Allegations Of Impersonation/ Fraud: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-registered-sale-deed-administrative-authorities-impersonation-542525
 
-[Read on Telegram](https://t.me/livelawindia/115416)
+[Read on Telegram](https://t.me/livelawindia/115459)
 
 ---
-### 2026-07-23T03:08:13+00:00
-Supreme Court Asks Union, CPCB To Explain Utilisation Of 'Environment Relief Fund'
-https://www.livelaw.in/top-stories/supreme-court-asks-union-cpcb-to-explain-utilisation-of-environment-relief-fund-542460
+### 2026-07-23T07:07:04+00:00
+Can Wife Be Denied Half Share In Jointly Purchased Property Because Husband Paid Entire Consideration? Kerala High Court Answers
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-husband-wife-joint-property-full-amount-husband-paid-542532
 
-[Read on Telegram](https://t.me/livelawindia/115417)
+[Read on Telegram](https://t.me/livelawindia/115460)
+
+---
+### 2026-07-23T07:12:24+00:00
+Death Of Sole Accused Extinguishes Disproportionate Assets Attachment Proceedings: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/corruption-probe-cannot-outlive-the-sole-accused-statutory-property-attachments-fall-with-it-jkl-high-court-542449
+
+[Read on Telegram](https://t.me/livelawindia/115461)
+
+---
+### 2026-07-23T07:18:24+00:00
+Student Protests : Bombay High Court Lawyers Condemn Mumbai Police Detentions, Seek Withdrawal Of Prohibitory Orders
+https://www.livelaw.in/high-court/bombay-high-court/student-protests-bombay-high-court-lawyers-condemn-mumbai-police-detentions-seek-withdrawal-of-prohibitory-orders-542538
+
+[Read on Telegram](https://t.me/livelawindia/115462)
+
+---
+### 2026-07-23T07:22:54+00:00
+Father's Duty To Maintain Minor Child Doesn't End Because Mother Is Employed, Her Income Relevant Only To Determine Quantum: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/father-maintain-minor-child-even-if-mother-earning-542536
+
+[Read on Telegram](https://t.me/livelawindia/115463)
+
+---
+### 2026-07-23T07:32:54+00:00
+Executive Circular Can't Override Statutory Right Of Primary School Teachers To Salary: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-executive-circular-statutory-right-salary-primary-section-teachers-542540
+
+[Read on Telegram](https://t.me/livelawindia/115464)
+
+---
+### 2026-07-23T07:42:34+00:00
+Foreign Convict Not Entitled To Parole Merely Due To Long Incarceration: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/foreign-convict-no-parole-long-incarceration-delhi-prison-rules-542543
+
+[Read on Telegram](https://t.me/livelawindia/115465)
+
+---
+### 2026-07-23T07:52:55+00:00
+Telangana High Court Upholds Bail Cancellation After POCSO Accused Refuses DNA Test, Says It Amounts To Non-Cooperation
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-refusal-undergo-dna-test-pocso-case-justifies-bail-cancellation-542545
+
+[Read on Telegram](https://t.me/livelawindia/115466)
+
+---
+### 2026-07-23T08:02:14+00:00
+Writ Of Mandamus Can't Be Issued For Non-Registration Of Criminal Case, BNSS Provides Efficacious Remedy: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-writ-of-mandamus-issued-grievance-nonregistration-criminal-case-542547
+
+[Read on Telegram](https://t.me/livelawindia/115467)
+
+---
+### 2026-07-23T08:17:44+00:00
+Investors Have Right To Know Antecedents Of Real Estate Developers: Delhi High Court Rejects Masking Plea After FIR Quashed
+https://www.livelaw.in/high-court/delhi-high-court/investors-have-right-to-know-antecedents-of-real-estate-developers-delhi-high-court-rejects-masking-plea-after-fir-quashed-542548
+
+[Read on Telegram](https://t.me/livelawindia/115468)
+
+---
+### 2026-07-23T08:32:44+00:00
+Maintenance | Salary Payslips Constitute Cogent Evidence To Determine Income Status Of Parties: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/maintenance-section-125-crpc-salary-payslips-evidence-income-status-542554
+
+[Read on Telegram](https://t.me/livelawindia/115469)
 
 ---
