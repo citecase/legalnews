@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-23T14:13:11+00:00*
+*Last Updated: 2026-07-23T15:33:13+00:00*
+
+---
+
+### 2026-07-23T15:33:13+00:00
+Legal Advisor Vacancy At Animal Welfare Board of India (AWBI)
+https://www.verdictum.in/job-updates/animal-welfare-board-of-india-1618374
+
+[Source Link](https://t.me/verdictumlegalupdates/28136)
+
+---
+
+### 2026-07-23T14:52:32+00:00
+No One Connected With Case Should Attempt Calling Judge Hearing Matter: MP High Court Warns BJP MLA Sanjay Satyendra Pathak, Accepts His Apology
+https://www.verdictum.in/madhya-pradesh-high-court/in-reference-suo-motu-contempt-v-shri-sanjay-satyendra-pathak-2026mphc-jbp52540-1618377
+
+[Source Link](https://t.me/verdictumlegalupdates/28135)
 
 ---
 
@@ -145,22 +161,6 @@ Last Seen Theory Is Weak Evidence Unless Time Gap With Death Is Negligible: Supr
 https://www.verdictum.in/supreme-court/didar-singh-dari-v-the-state-of-haryana-with-ranjeet-singh-jeeta-v-the-state-of-haryana-2026-insc-726-1618307
 
 [Source Link](https://t.me/verdictumlegalupdates/28117)
-
----
-
-### 2026-07-22T15:02:16+00:00
-Exclusion Of A Caste From SC/ST List Operates Prospectively; Reservation Benefit, Once Accrued, Continues For Life: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/employees-provident-fund-organization-v-ranjit-vasantlal-makwana-2026gujhc45467-db-exclusion-of-a-caste-from-scst-list-1618300
-
-[Source Link](https://t.me/verdictumlegalupdates/28116)
-
----
-
-### 2026-07-22T14:32:55+00:00
-"Bulldozer Justice" Cases: Allahabad High Court Delivers Split Verdict On Two-Year Demolition Shield After FIR And One-Year Notice Before Municipal Action
-https://www.verdictum.in/allahabad-high-court/faimuddeen-and-2-others-v-state-of-up-and-7-others-2026ahc147816-db-1618299
-
-[Source Link](https://t.me/verdictumlegalupdates/28115)
 
 ---
 
