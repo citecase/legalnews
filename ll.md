@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-22T14:18:51+00:00*
+*Last Updated: 2026-07-22T15:12:51+00:00*
 
 ---
 
-### 2026-07-22T14:18:51+00:00
-Article 142 Cannot Be Used To Supplant Concluded & Acted-Upon Settlement Between Parties : Supreme Court
-https://www.livelaw.in/supreme-court/article-142-cannot-be-used-to-supplant-concluded-acted-upon-settlement-between-parties-supreme-court-542431
-
-[Read on Telegram](https://t.me/livelawindia/115388)
-
----
-### 2026-07-22T14:20:01+00:00
-2026 LiveLaw (SC) 706 | VIJAYALAKSHMI R. VERSUS C. L. BALAJI
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-706-vijayalakshmi-r-versus-c-l-balaji-542432
-
-[Read on Telegram](https://t.me/livelawindia/115389)
-
----
-### 2026-07-22T14:29:21+00:00
-Consumer Commissions Cannot Decide Disputes Relating To Electricity Theft Allegations: Punjab Consumer Commission
-https://www.livelaw.in/consumer-cases/consumer-commissions-cannot-decide-disputes-relating-to-electricity-theft-allegations-punjab-consumer-commission-542434
-
-[Read on Telegram](https://t.me/livelawindia/115390)
-
----
-### 2026-07-22T14:32:01+00:00
-Offence Under Section 66  Information Technology Act Is Bailable : Supreme Court Overrules HC View
-https://www.livelaw.in/supreme-court/offence-under-section-66-information-technology-act-is-bailable-supreme-court-overrules-hc-view-542435
-
-[Read on Telegram](https://t.me/livelawindia/115391)
-
----
-### 2026-07-22T14:33:01+00:00
-2026 LiveLaw (SC) 707 | MAHARAJ SARAN VERSUS STATE OF PUNJAB & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-707-maharaj-saran-versus-state-of-punjab-ors-542436
-
-[Read on Telegram](https://t.me/livelawindia/115392)
-
----
-### 2026-07-22T14:33:11+00:00
-Swadeshi Jurisprudence And Colonial Afterlife Of Order XXI
-https://www.livelaw.in/top-stories/swadeshi-jurisprudence-colonial-afterlife-orderxxi-542224
-
-[Read on Telegram](https://t.me/livelawindia/115393)
-
----
-### 2026-07-22T14:33:21+00:00
-LiveLaw Punjab & Haryana High Court Weekly Round-Up: July 13 - July 19, 2026
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-weekly-round-up-542428
-
-[Read on Telegram](https://t.me/livelawindia/115394)
-
----
-### 2026-07-22T14:43:01+00:00
-Matrimonial Dispute Cannot Be Heard By MP/MLA Courts Just Because One Party Is A Legislator : Supreme Court's Prima Facie View
-https://www.livelaw.in/supreme-court/matrimonial-dispute-cannot-be-heard-by-mpmla-courts-just-because-one-party-is-a-legislator-supreme-courts-prima-facie-view-542437
-
-[Read on Telegram](https://t.me/livelawindia/115395)
-
----
-### 2026-07-22T14:44:21+00:00
-2026 LiveLaw (SC) 708 | RAGHURAJ PRATAP SINGH PETITIONER VERSUS BHANVI KUMARI SINGH
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-708-raghuraj-pratap-singh-petitioner-versus-bhanvi-kumari-singh-542438
-
-[Read on Telegram](https://t.me/livelawindia/115396)
-
----
-### 2026-07-22T15:11:51+00:00
-S. 80 & 85 BNS | Can A Man In A Void Second Marriage Face Dowry Death, Cruelty Charges? Allahabad High Court Answers
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-s-80-85-bns-void-second-marriage-dowry-death-cruelty-charges-answers-542446
-
-[Read on Telegram](https://t.me/livelawindia/115397)
-
----
 ### 2026-07-22T15:12:51+00:00
 'Last Heard' Over Phone Can't Be Treated As 'Last Seen Together' Evidence: Chhattisgarh High Court Acquits Murder Convict
 https://www.livelaw.in/high-court/chhattisgarh-high-court/last-heard-last-seen-together-acquits-murder-accused-evidence-telephonic-conversation-542439
@@ -142,5 +72,75 @@ P&H High Court Directs Visa Fraud Accused To Publish Details Of All FIRs Against
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/visa-fraud-accused-publish-all-firs-in-newspapers-542463
 
 [Read on Telegram](https://t.me/livelawindia/115407)
+
+---
+### 2026-07-23T02:27:33+00:00
+CLAT 2027 To Be Held On December 6, 2026
+https://www.livelaw.in/news-updates/clat-2027-to-be-held-on-december-6-2026-542470
+
+[Read on Telegram](https://t.me/livelawindia/115408)
+
+---
+### 2026-07-23T02:30:53+00:00
+Social Media Popularity Not Same As Credibility : CJI Surya Kant To New AoRs, Warns Against Overreliance On AI In Drafting
+https://www.livelaw.in/top-stories/social-media-popularity-not-same-as-credibility-cji-surya-kant-to-new-aors-warns-against-overreliance-on-ai-in-drafting-542471
+
+[Read on Telegram](https://t.me/livelawindia/115409)
+
+---
+### 2026-07-23T02:32:53+00:00
+Wife Earning Substantially More Than Husband, Can't Seek Maintenance Claiming Cost Of Living Abroad Is Exorbitant: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/wife-cant-seek-maintenance-because-cost-of-living-abroad-exorbitant-542464
+
+[Read on Telegram](https://t.me/livelawindia/115410)
+
+---
+### 2026-07-23T03:01:53+00:00
+Executive (Data Privacy & Ethics) Vacancy At KPMG India [Gurgaon; Apply Now]
+https://www.livelaw.in/job-updates/executive-data-privacy-ethics-vacancy-at-kpmg-india-gurgaon-542472
+
+[Read on Telegram](https://t.me/livelawindia/115411)
+
+---
+### 2026-07-23T03:02:43+00:00
+Life Insurance Policy Cannot Be Equated With Recurring Deposit; Maturity Proceeds Depend on Policy Terms and Risk Factors: J&K State Commission
+https://www.livelaw.in/consumer-cases/life-insurance-policy-cannot-be-equated-with-recurring-deposit-maturity-proceeds-depend-on-policy-terms-and-risk-factors-jk-state-commission-542462
+
+[Read on Telegram](https://t.me/livelawindia/115412)
+
+---
+### 2026-07-23T03:03:13+00:00
+Assistant Professor Vacancy At National Forensic Sciences University, Gandhinagar
+https://www.livelaw.in/job-updates/assistant-professor-vacancy-at-national-forensic-sciences-university-gandhinagar-542473
+
+[Read on Telegram](https://t.me/livelawindia/115413)
+
+---
+### 2026-07-23T03:03:23+00:00
+Govt Must Educate Devotees That PoP Idol Ban Has Nothing To Do With Faith, 'Mother Earth Crying Due To Pollution': Bombay High Court Told
+https://www.livelaw.in/high-court/bombay-high-court/pop-idol-ganesh-utsav-environment-pollution-cpcb-maharashtra-542465
+
+[Read on Telegram](https://t.me/livelawindia/115414)
+
+---
+### 2026-07-23T03:04:23+00:00
+Young Professional Vacancy At Directorate General Of Foreign Trade
+https://www.livelaw.in/job-updates/young-professional-vacancy-at-directorate-general-of-foreign-trade-542474
+
+[Read on Telegram](https://t.me/livelawindia/115415)
+
+---
+### 2026-07-23T03:08:03+00:00
+Assistant Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
+https://www.livelaw.in/job-updates/assistant-manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-542475
+
+[Read on Telegram](https://t.me/livelawindia/115416)
+
+---
+### 2026-07-23T03:08:13+00:00
+Supreme Court Asks Union, CPCB To Explain Utilisation Of 'Environment Relief Fund'
+https://www.livelaw.in/top-stories/supreme-court-asks-union-cpcb-to-explain-utilisation-of-environment-relief-fund-542460
+
+[Read on Telegram](https://t.me/livelawindia/115417)
 
 ---
