@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-23T10:23:05+00:00*
+*Last Updated: 2026-07-23T12:19:06+00:00*
 
 ---
 
-### 2026-07-23T10:23:05+00:00
-Dismissal Of Complaint Before Cognisance Is Not Acquittal, Can Be Challenged Under Section 528 BNSS: J&K&L High Court:
-https://www.livelaw.in/high-court/jammu-kashmir/section-528-bnss-petition-maintainable-against-pre-cognizance-complaint-dismissal-appeal-lies-only-if-dismissal-results-in-acquittal-jk-high-court-542450
-
-[Read on Telegram](https://t.me/livelawindia/115485)
-
----
-### 2026-07-23T10:33:05+00:00
-No Vested Right To Continued Security: Telangana High Court Upholds Revocation Of Police Cover To Ex-Minister Over Lack Of Threat Perception
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-former-minister-right-continued-state-security-cover-542568
-
-[Read on Telegram](https://t.me/livelawindia/115486)
-
----
-### 2026-07-23T10:36:05+00:00
-Supreme Court Directs Bihar Govt To Clear Encroachments Along Banks Of Ganga In Patna Within Six Weeks
-https://www.livelaw.in/top-stories/supreme-court-directs-bihar-govt-to-clear-encroachments-along-banks-of-ganga-in-patna-within-six-weeks-542596
-
-[Read on Telegram](https://t.me/livelawindia/115487)
-
----
-### 2026-07-23T10:37:25+00:00
-2026 LiveLaw (SC) 711 | Ashok Kumar Sinha v. Union of India & Ors
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-711-ashok-kumar-sinha-v-union-of-india-ors-542598
-
-[Read on Telegram](https://t.me/livelawindia/115488)
-
----
-### 2026-07-23T10:45:05+00:00
-Inadequate Grounds Of Arrest Don't By Themselves Vitiate Arrest, Prejudice To Accused Must Be Shown: Supreme Court
-https://www.livelaw.in/top-stories/inadequate-grounds-of-arrest-dont-by-themselves-vitiate-arrest-prejudice-to-accused-must-be-shown-supreme-court-542601
-
-[Read on Telegram](https://t.me/livelawindia/115489)
-
----
-### 2026-07-23T10:50:55+00:00
-Delhi Court Seeks Police Response Over NH-24 Robbery Of Young Lawyer, Directs SHO To Personally Supervise Probe
-https://www.livelaw.in/news-updates/delhi-lawyer-robbery-police-response-sho-supervise-probe-542602
-
-[Read on Telegram](https://t.me/livelawindia/115490)
-
----
-### 2026-07-23T10:57:15+00:00
-Private Apartment Dispute Can't Be Converted Into RPwD Act Complaint Merely Because One Party Has Disability: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-warning-apartment-residents-rpwd-act-invoked-civil-disputes-542604
-
-[Read on Telegram](https://t.me/livelawindia/115491)
-
----
-### 2026-07-23T10:57:35+00:00
-Fresh Habeas Corpus Plea By Father Not Maintainable After Major Woman States Choice Of Living With Partner: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/earlier-judicial-acceptance-of-an-adult-womans-voluntary-choice-cannot-be-reopened-through-a-fresh-habeas-corpus-petition-jkl-high-court-542445
-
-[Read on Telegram](https://t.me/livelawindia/115492)
-
----
-### 2026-07-23T11:22:36+00:00
-Undertrial's Right To Defend Himself, Family Convenience Must Be Considered In Jail Transfer Requests: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/while-deciding-transfer-of-undertrial-prisoner-court-must-consider-fair-trial-and-family-convenience-not-mere-place-of-residence-jkl-high-court-542581
-
-[Read on Telegram](https://t.me/livelawindia/115493)
-
----
-### 2026-07-23T11:27:36+00:00
-Refusal Of Judicial Remand Doesn't Bar Further Investigation Or Taking Cognizance: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-refusal-of-judicial-remand-no-bar-to-further-investigation-taking-cognizance-542611
-
-[Read on Telegram](https://t.me/livelawindia/115494)
-
----
-### 2026-07-23T11:44:46+00:00
-State Constitutionaly Bound To Decide KAAPA Detainee's Representation Irrespective Of Pending Decision By Advisory Board: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/constitutional-obligation-representation-detained-under-kaapa-542612
-
-[Read on Telegram](https://t.me/livelawindia/115495)
-
----
-### 2026-07-23T11:47:46+00:00
-'Bureaucrats Deciding Land Compensation Prima Facie Unacceptable': Supreme Court Recommends Amendment To  National Highways Act
-https://www.livelaw.in/top-stories/supreme-court-urges-union-to-consider-amendments-to-national-highways-act-says-compensation-disputes-should-be-decided-by-judicially-trained-minds-542614
-
-[Read on Telegram](https://t.me/livelawindia/115496)
-
----
-### 2026-07-23T12:08:06+00:00
-Municipal Corporation Employees Can Only Be Sent To Other Corporations On Deputation, Not By Transfer Order: High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-municipal-corporation-act-employees-sent-other-corporations-only-deputation-not-pure-transfer-542578
-
-[Read on Telegram](https://t.me/livelawindia/115497)
-
----
 ### 2026-07-23T12:19:06+00:00
 Muslim Family Can't Bury Deceased On Disputed Land When Community Graveyard Is Available: Gujarat High Court Denies Relief
 https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-muslim-residents-burial-earmarked-graveyard-542618
@@ -142,5 +51,96 @@ Bank Account Cannot Be Frozen Merely Upon Communication From Another Bank: Uttar
 https://www.livelaw.in/high-court/uttarakhand-high-court/bank-account-frozen-another-banks-communication-542582
 
 [Read on Telegram](https://t.me/livelawindia/115504)
+
+---
+### 2026-07-23T14:32:16+00:00
+Algorithmic Deactivation, Article 14 And Karnataka Gig Worker Litigation
+https://www.livelaw.in/lawschool/articles/algorithmic-deactivation-article14-karnataka-gig-worker-litigation-542390
+
+[Read on Telegram](https://t.me/livelawindia/115505)
+
+---
+### 2026-07-23T14:47:37+00:00
+Married Woman Can Claim Compassionate Appointment After Father's Death, No Presumption Of Dependence On Husband: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/married-woman-compassionate-appointment-fathers-employment-542580
+
+[Read on Telegram](https://t.me/livelawindia/115506)
+
+---
+### 2026-07-23T15:24:07+00:00
+Constitution Does Not End At The Barricade
+https://www.livelaw.in/articles/constitution-does-not-end-barricade-542639
+
+[Read on Telegram](https://t.me/livelawindia/115507)
+
+---
+### 2026-07-23T15:35:07+00:00
+Promotion Does Not Cease To Be Promotion Just Because Employee's Grade Pay Doesn't Change : Supreme Court
+https://www.livelaw.in/supreme-court/promotion-does-not-cease-to-be-promotion-just-because-employees-grade-pay-doesnt-change-supreme-court-542640
+
+[Read on Telegram](https://t.me/livelawindia/115508)
+
+---
+### 2026-07-23T15:36:47+00:00
+2026 LiveLaw (SC) 712 | UNION OF INDIA AND OTHERS VERSUS HARBANS LAL VERMA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-712-union-of-india-and-others-versus-harbans-lal-verma-542641
+
+[Read on Telegram](https://t.me/livelawindia/115509)
+
+---
+### 2026-07-23T15:38:27+00:00
+S. 311 CrPC | Material Witnesses Can Be Summoned Even If Their Examination-In-Chief Hasn't Been Conducted: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-section-311-crpc-material-witness-examination-in-chief-542642
+
+[Read on Telegram](https://t.me/livelawindia/115510)
+
+---
+### 2026-07-23T16:04:37+00:00
+Supreme Court Sets Aside 2016 Uttarakhand HC Directions On Forest Fire Control, Relegates Matter To HC For Monitoring
+https://www.livelaw.in/top-stories/supreme-court-uttarakhand-forest-fires-high-court-to-revisit-decade-old-directions-monitor-periodic-measures-542643
+
+[Read on Telegram](https://t.me/livelawindia/115511)
+
+---
+### 2026-07-23T16:32:17+00:00
+Anti-Nationals Have Entered 'So-Called Student Protests', Aim Is To Destabilize India : BCI Chief Manan Kumar Mishra
+https://www.livelaw.in/top-stories/anti-nationals-have-entered-so-called-student-protests-aim-is-to-destabilize-india-bci-chief-manan-kumar-mishra-542644
+
+[Read on Telegram](https://t.me/livelawindia/115512)
+
+---
+### 2026-07-23T16:34:17+00:00
+NEET-UG 2026 : Bombay High Court Orders NTA To Produce Original Answer Sheets Of 3 Candidates Who Alleged Discrepancies In Results
+https://www.livelaw.in/high-court/bombay-high-court/neet-ug-2026-bombay-high-court-orders-nta-to-produce-original-answer-sheets-of-3-candidates-who-alleged-discrepancies-in-results-542646
+
+[Read on Telegram](https://t.me/livelawindia/115513)
+
+---
+### 2026-07-23T17:06:47+00:00
+AILET 2027 To Be Held On December 13, NLU-Delhi Opens Applications From August 7
+https://www.livelaw.in/top-stories/ailet-2027-date-december-13-nlu-delhi-admissions-542648
+
+[Read on Telegram](https://t.me/livelawindia/115514)
+
+---
+### 2026-07-23T17:17:27+00:00
+Supreme Court Daily Round-Up : July 23, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-july-23-2026-542647
+
+[Read on Telegram](https://t.me/livelawindia/115515)
+
+---
+### 2026-07-23T17:29:27+00:00
+PoP Idol Makers Support Ban On Immersion In Natural Water, But Tell Bombay High Court Their Right To Livelihood Can't Be Curbed
+https://www.livelaw.in/high-court/bombay-high-court/pop-idol-ban-water-pollution-artisans-right-to-livelihood-542649
+
+[Read on Telegram](https://t.me/livelawindia/115516)
+
+---
+### 2026-07-23T17:46:07+00:00
+Delhi High Court Designates Special Judge To Fast Track Paper Leak Cases
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-designates-special-judge-to-fast-track-paper-leak-cases-542652
+
+[Read on Telegram](https://t.me/livelawindia/115517)
 
 ---
