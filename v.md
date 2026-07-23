@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-23T08:52:30+00:00*
+*Last Updated: 2026-07-23T14:13:11+00:00*
+
+---
+
+### 2026-07-23T14:13:11+00:00
+Code On Social Security, 2020 Overrides U.P. Financial Handbook’s Two-Year Bar On Second Maternity Leave: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/shikha-yadav-v-state-of-up-writ-a-no-9299-of-2026-social-security-code-2020-overrides-up-financial-handbook-1618373
+
+[Source Link](https://t.me/verdictumlegalupdates/28134)
+
+---
+
+### 2026-07-23T13:32:59+00:00
+Touching Boy’s Chest With Sexual Intent Can Attract Sexual Assault Offence Under POCSO Act: Kerala High Court
+https://www.verdictum.in/kerala-high-court/aboobacker-v-state-of-kerala-2026ker51118-difference-between-chest-breast-touching-boys-chest-with-sexual-intent-1618372
+
+[Source Link](https://t.me/verdictumlegalupdates/28133)
+
+---
+
+### 2026-07-23T12:52:58+00:00
+Caste-Based Remarks Made Inside Office Chambers: Delhi High Court Quashes SC/ST Act Charges Against Management Officials
+https://www.verdictum.in/delhi-high-court/christine-swaroop-raj-v-state-2026dhc5667-compelled-face-trial-scst-act-charge-trans-world-radio-1618366
+
+[Source Link](https://t.me/verdictumlegalupdates/28132)
+
+---
+
+### 2026-07-23T12:12:36+00:00
+High Court Better Equipped: Supreme Court Remands Uttarakhand Forest Fire Matter For Fresh Consideration
+https://www.verdictum.in/supreme-court/remands-uttarakhand-forest-fire-matter-for-fresh-consideration-1618369
+
+[Source Link](https://t.me/verdictumlegalupdates/28131)
+
+---
+
+### 2026-07-23T11:32:35+00:00
+Motor Vehicles Act Provisions Won’t Apply Simply Because Car Was involved In Chain Of Circumstances That Led To Death: Supreme Court
+https://www.verdictum.in/supreme-court/dilip-agarwal-v-rajshri-agarwal-2026-insc-736-motor-vehicles-act-death-car-1618365
+
+[Source Link](https://t.me/verdictumlegalupdates/28130)
+
+---
+
+### 2026-07-23T10:51:54+00:00
+Accused Need Not Prove Prosecution Case False In Every Respect: Supreme Court Upholds Acquittal In Murder Case
+https://www.verdictum.in/supreme-court/sanjay-kumar-v-the-state-of-bihar-anr-2026-insc-735-murder-acquittal-1618364
+
+[Source Link](https://t.me/verdictumlegalupdates/28129)
+
+---
+
+### 2026-07-23T10:12:53+00:00
+State Cannot Withhold Approved AB-PMJAY Bills Of Empanelled Hospitals On Grounds Of Pending Vigilance Inquiry: Himachal Pradesh High Court
+https://www.verdictum.in/himachal-high-court/ms-maatri-medicity-orthocare-hospital-v-state-of-himachal-pradesh-ors-and-connected-matters-2026hhc29794-1618362
+
+[Source Link](https://t.me/verdictumlegalupdates/28128)
+
+---
+
+### 2026-07-23T09:32:52+00:00
+Knowledge Can’t Be Presumed In A Vacuum On The 4th Day Of Unprecedented Lockdown: Delhi High Court Quashes COVID-19 FIR Against Solitary Pedestrian
+https://www.verdictum.in/delhi-high-court/anupam-sahu-v-the-state-2026dhc5771-solitary-pedestrian-covid-19-fir-unprecedented-lockdown-1618359
+
+[Source Link](https://t.me/verdictumlegalupdates/28127)
 
 ---
 
@@ -97,70 +161,6 @@ https://www.verdictum.in/gujarat-high-court/employees-provident-fund-organizatio
 https://www.verdictum.in/allahabad-high-court/faimuddeen-and-2-others-v-state-of-up-and-7-others-2026ahc147816-db-1618299
 
 [Source Link](https://t.me/verdictumlegalupdates/28115)
-
----
-
-### 2026-07-22T14:02:54+00:00
-Government Can’t Be Held Ransom To Whims Of A Private Company: Delhi High Court Upholds Rejection Of Vedanta's PSC Extension
-https://www.verdictum.in/delhi-high-court/vedanta-limited-division-cairn-oil-gas-v-union-of-india-2026dhc5803-rejection-of-vedantas-psc-extension-ongc-1618298
-
-[Source Link](https://t.me/verdictumlegalupdates/28114)
-
----
-
-### 2026-07-22T13:33:13+00:00
-"Murder" Is "Heinous Offence" Under Juvenile Justice Act: Supreme Court Rejects Plea That It Is Only A "Serious" Offence
-https://www.verdictum.in/supreme-court/x-v-state-of-bihar-anr-2026-insc-728-mruder-heinous-offence-juvenile-1618297
-
-[Source Link](https://t.me/verdictumlegalupdates/28113)
-
----
-
-### 2026-07-22T13:02:32+00:00
-Service Of Opportunity Notice U/S 61(2) FERA Mandatory Requirement For Taking Cognizance: Supreme Court Quashes 23-Year-Old Complaint Against Standard Chartered Bank
-https://www.verdictum.in/supreme-court/standard-chartered-bank-v-enforcement-officer-ministry-of-home-affairs-2026-insc-727-mandatory-notice-us-612-fera-1618295
-
-[Source Link](https://t.me/verdictumlegalupdates/28112)
-
----
-
-### 2026-07-22T12:32:31+00:00
-Weekly Overview| Supreme Court Judgments: July 13 – July 17, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-july-13-july-17-2026-1618293
-
-[Source Link](https://t.me/verdictumlegalupdates/28111)
-
----
-
-### 2026-07-22T12:02:59+00:00
-Typographical Errors In Pleadings Cannot Trigger Proceedings U/S 340 CrPC Unless They Amount To Deliberate Falsehood: Supreme Court
-https://www.verdictum.in/supreme-court/prabhakar-yeshwant-masram-and-another-v-sou-tula-namdeorao-jaipurkar-and-another-2026-insc-724-1618292
-
-[Source Link](https://t.me/verdictumlegalupdates/28110)
-
----
-
-### 2026-07-22T11:32:38+00:00
-Supreme Court Asks States, UTs To Consider Raising Retirement Age Of Judicial Officers From 60 To 61 Years
-https://www.verdictum.in/supreme-court/states-uts-to-consider-raising-retirement-age-of-judicial-officers-from-60-to-61-years-1618290
-
-[Source Link](https://t.me/verdictumlegalupdates/28109)
-
----
-
-### 2026-07-22T11:02:57+00:00
-He Was Left To Fend For Himself Without Legal Representation: Supreme Court Orders De Novo Trial For Death Row Convict In 1996 Samleti Bus Blast Case
-https://www.verdictum.in/supreme-court/dr-abdul-hameed-v-state-of-rajasthan-2026-insc-734-1996-samleti-bus-blast-de-novo-trial-for-death-row-convict-1618288
-
-[Source Link](https://t.me/verdictumlegalupdates/28108)
-
----
-
-### 2026-07-22T10:29:16+00:00
-Breaking: High Court Seeks Delhi Police's Response On Action Against Jantar Mantar Protestors, Orders Preservation Of CCTV Footage
-https://www.verdictum.in/delhi-high-court/jantar-mantar-seeks-union-delhi-police-reply-on-police-action-against-protesters-1618289
-
-[Source Link](https://t.me/verdictumlegalupdates/28107)
 
 ---
 
