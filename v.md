@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-23T15:33:13+00:00*
+*Last Updated: 2026-07-24T09:02:51+00:00*
+
+---
+
+### 2026-07-24T09:02:51+00:00
+"Not A Single Page Filed": CJI Dismisses "Reckless" Media Reports Over Students’ Protest Hearing Denial
+https://www.verdictum.in/supreme-court/reckless-media-reports-over-students-protest-hearing-denial-1618420
+
+[Source Link](https://t.me/verdictumlegalupdates/28144)
+
+---
+
+### 2026-07-24T08:19:50+00:00
+Breaking: Supreme Court Restrains Extraction & Circulation Of Court Proceedings Videos Without Prior Permission
+https://www.verdictum.in/supreme-court/extraction-circulation-of-court-proceedings-videos-without-prior-permission-1618423
+
+[Source Link](https://t.me/verdictumlegalupdates/28143)
+
+---
+
+### 2026-07-24T07:52:28+00:00
+Delhi High Court Stays CBDT’s Memo Denying Tax Relief; Asks SC, HC Judges To Show Allowances As "Receipts Not In The Nature Of Income"
+https://www.verdictum.in/delhi-high-court/delhi-tax-bar-association-v-union-of-india-2026dhc5845-db-cbdt-memo-judges-allowances-1618415
+
+[Source Link](https://t.me/verdictumlegalupdates/28142)
+
+---
+
+### 2026-07-24T07:19:08+00:00
+Adhocism Is What Has Troubled All These Years: Apex Court Suggests Permanent NEET-UG Reforms, Computer-Based Testing Transition & Cybersecurity Measures
+https://www.verdictum.in/supreme-court/suggests-permanent-neet-ug-computer-based-testing-transition-cybersecurity-measures-1618412
+
+[Source Link](https://t.me/verdictumlegalupdates/28141)
+
+---
+
+### 2026-07-24T06:28:06+00:00
+Manipur Violence| Supreme Court Proposes Special Courts For Day-to-Day Trials; Directs Time-Bound Supply Of Chargesheets To Victims
+https://www.verdictum.in/supreme-court/proposes-special-courts-trials-manipur-violence-cases-1618408
+
+[Source Link](https://t.me/verdictumlegalupdates/28140)
+
+---
+
+### 2026-07-24T05:52:25+00:00
+Temporary Appointment Confers No Right To Permanent Absorption: Madras High Court Rejects Regularisation Plea Of 58 Temporary Court Staff
+https://www.verdictum.in/madras-high-court/r-bharathi-v-state-of-up-2026mhc2999-regularisation-plea-of-58-temporary-court-staff-1618403
+
+[Source Link](https://t.me/verdictumlegalupdates/28139)
+
+---
+
+### 2026-07-24T05:12:44+00:00
+Developer Cannot Casually Turn Around & Challenge Occupant's Claim: Supreme Court Restores MHADA's Redevelopment Orders, Directs Developer To Handover Flats Within 2 Months
+https://www.verdictum.in/supreme-court/mahabanoo-contractor-v-ms-kalikund-developers-2026-insc-737-mhadas-redevelopment-orders-developer-to-handover-flats-1618397
+
+[Source Link](https://t.me/verdictumlegalupdates/28138)
+
+---
+
+### 2026-07-24T04:33:12+00:00
+"Husband" U/S 80, 85 BNS Covers Legally Married Man, Not Person In Void Second Marriage: Allahabad High Court Grants Bail In Dowry Death Case
+https://www.verdictum.in/allahabad-high-court/sarvesh-alias-chhotu-alias-chhotelal-v-state-of-up-2026ahc151064-1618379
+
+[Source Link](https://t.me/verdictumlegalupdates/28137)
 
 ---
 
@@ -97,70 +161,6 @@ General Obligation To Maintain Child Cannot Be Invoked In Execution Proceedings 
 https://www.verdictum.in/supreme-court/vr-v-clb-2026-insc-731-execution-proceedings-father-obligation-maintain-children-1618340
 
 [Source Link](https://t.me/verdictumlegalupdates/28125)
-
----
-
-### 2026-07-23T07:23:48+00:00
-Supreme Court Sets Aside Meghalaya HC Bail Order In "Honeymoon Murder" Case; Directs Sonam Raghuvanshi To Surrender In 2 Weeks
-https://www.verdictum.in/supreme-court/meghalaya-hc-honeymoon-murder-sonam-raghuvanshi-1618348
-
-[Source Link](https://t.me/verdictumlegalupdates/28124)
-
----
-
-### 2026-07-23T07:02:26+00:00
-Supreme Court Allows Taj Trapezium Zone Authority To Process Pending 400 MSME Applications Under Expert Oversight
-https://www.verdictum.in/supreme-court/ttz-authority-process-pending-400-msme-applications-under-expert-oversight-1618346
-
-[Source Link](https://t.me/verdictumlegalupdates/28123)
-
----
-
-### 2026-07-23T06:33:05+00:00
-Closure Of Metros Due To Protests: Chief Justice Says He Will Intervene If Matter Is Not Resolved By Lunch
-https://www.verdictum.in/supreme-court/closure-of-metros-due-to-protests-1618341
-
-[Source Link](https://t.me/verdictumlegalupdates/28122)
-
----
-
-### 2026-07-23T05:51:24+00:00
-Writ Jurisdiction Not An Alternate Recovery Mechanism For Commercial Or Professional Contracts: Madras High Court
-https://www.verdictum.in/madras-high-court/sunit-kumar-agarwal-v-the-asst-general-manager-writ-jurisdiction-not-alternate-recovery-contract-1618337
-
-[Source Link](https://t.me/verdictumlegalupdates/28121)
-
----
-
-### 2026-07-23T05:13:43+00:00
-Assign Specific Division Bench For Hearing Writ Petitions Under Articles 226, 227 Arising From Orders Of Statutory Tribunals: Supreme Court To High Courts
-https://www.verdictum.in/supreme-court/ajit-singh-v-state-of-rajasthan-2026-insc-733-division-bench-petitions-articles-226-227-tribunals-1618334
-
-[Source Link](https://t.me/verdictumlegalupdates/28120)
-
----
-
-### 2026-07-23T04:32:51+00:00
-Landlord Has Right To Enjoy His Own Property: Supreme Court Explains Contours Of "Bona Fide" Requirement
-https://www.verdictum.in/supreme-court/cause-title-madan-mohan-dead-through-lrs-v-thakar-dass-dead-2026-insc-730-section-115-cpc-1618309
-
-[Source Link](https://t.me/verdictumlegalupdates/28119)
-
----
-
-### 2026-07-22T16:02:39+00:00
-Noida Metro Rail Corporation (NMRC) Invites Applications For Post Of Young Professional (Legal)
-https://www.verdictum.in/job-updates/noida-metro-rail-corporation-1618302
-
-[Source Link](https://t.me/verdictumlegalupdates/28118)
-
----
-
-### 2026-07-22T15:32:17+00:00
-Last Seen Theory Is Weak Evidence Unless Time Gap With Death Is Negligible: Supreme Court Sets Aside Murder Conviction
-https://www.verdictum.in/supreme-court/didar-singh-dari-v-the-state-of-haryana-with-ranjeet-singh-jeeta-v-the-state-of-haryana-2026-insc-726-1618307
-
-[Source Link](https://t.me/verdictumlegalupdates/28117)
 
 ---
 
