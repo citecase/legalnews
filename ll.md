@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-23T12:19:06+00:00*
+*Last Updated: 2026-07-23T12:51:36+00:00*
 
 ---
 
-### 2026-07-23T12:19:06+00:00
-Muslim Family Can't Bury Deceased On Disputed Land When Community Graveyard Is Available: Gujarat High Court Denies Relief
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-muslim-residents-burial-earmarked-graveyard-542618
-
-[Read on Telegram](https://t.me/livelawindia/115498)
-
----
-### 2026-07-23T12:47:36+00:00
-Degree From Unauthorized Institution May Be Invalid But Not Fraud Unless Active Role Of Candidate Proved: Orissa High Court
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-imposes-cost-arbitrary-demotion-542622
-
-[Read on Telegram](https://t.me/livelawindia/115499)
-
----
-### 2026-07-23T12:48:16+00:00
-Police Must Strictly Comply With Arnesh Kumar Safeguards; Procedural Lapses Cannot Be Taken Lightly: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/arnesh-kumar-guidelines-paramount-cannot-diluted-lapses-casually-542584
-
-[Read on Telegram](https://t.me/livelawindia/115500)
-
----
 ### 2026-07-23T12:51:36+00:00
 Can MLAs Merge With Another Party Without Original Political Party's Consent? Supreme Court To Hear Goa Case In December
 https://www.livelaw.in/top-stories/can-mlas-merge-with-another-party-without-original-political-partys-consent-supreme-court-to-hear-goa-case-in-december-542624
@@ -142,5 +121,26 @@ Delhi High Court Designates Special Judge To Fast Track Paper Leak Cases
 https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-designates-special-judge-to-fast-track-paper-leak-cases-542652
 
 [Read on Telegram](https://t.me/livelawindia/115517)
+
+---
+### 2026-07-24T01:32:23+00:00
+Punjab & Haryana High Court Bar Association Backs Protest Against LADC Policy, Announces Suspension Of Court Work
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-bar-association-calls-for-work-suspension-on-july-24-in-solidarity-with-ladc-policy-protesters-542651
+
+[Read on Telegram](https://t.me/livelawindia/115518)
+
+---
+### 2026-07-24T02:37:34+00:00
+Absence Of Injuries Despite Claim Of Violent Struggle: P&H High Court Acquits Man Convicted For Rape 22 Years Ago
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/rape-convict-acquitted-22-years-later-ago-absence-of-injuries-despite-claim-of-violent-struggle-542650
+
+[Read on Telegram](https://t.me/livelawindia/115519)
+
+---
+### 2026-07-24T02:46:34+00:00
+NTA Has 24 Of 39 Permanent Posts Filled, Relies On 73 Contractual & 124 Outsourced Staff: Centre Tells Rajya Sabha
+https://www.livelaw.in/news-updates/nta-has-24-of-39-permanent-posts-filled-relies-on-73-contractual-124-outsourced-staff-centre-tells-rajya-sabha-542653
+
+[Read on Telegram](https://t.me/livelawindia/115520)
 
 ---
