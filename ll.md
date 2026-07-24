@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-23T12:51:36+00:00*
+*Last Updated: 2026-07-24T06:48:07+00:00*
 
 ---
 
-### 2026-07-23T12:51:36+00:00
-Can MLAs Merge With Another Party Without Original Political Party's Consent? Supreme Court To Hear Goa Case In December
-https://www.livelaw.in/top-stories/can-mlas-merge-with-another-party-without-original-political-partys-consent-supreme-court-to-hear-goa-case-in-december-542624
+### 2026-07-24T06:48:07+00:00
+S.154 Electricity Act | Only Special Court Can Decide Civil Liability For Energy Theft, State Distributor Can't Usurp Power: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-sets-aside-electricity-department-order-violating-section-154-of-the-electricity-act-power-of-special-court-542683
 
-[Read on Telegram](https://t.me/livelawindia/115501)
-
----
-### 2026-07-23T13:04:16+00:00
-Supreme Court Orders FIR & SIT Probe In Custodial Death Of Gujarat Man Booked In Cow Slaughter Case
-https://www.livelaw.in/top-stories/supreme-court-orders-special-investigation-team-probe-custodial-death-of-man-100-diabetes-pills-consumed-dying-declaration-assault-542626
-
-[Read on Telegram](https://t.me/livelawindia/115502)
+[Read on Telegram](https://t.me/livelawindia/115546)
 
 ---
-### 2026-07-23T13:11:56+00:00
-LiveLaw Daily | Sonam Raghuvanshi| NIA Probe on student protests| Taj Trapezium| Twins Maternity
-https://www.livelaw.in/podcast/neet-student-protests-taj-mahal-india-students-cbse-maintenance-delhi-sonam-raghuvanshi-news-542628
+### 2026-07-24T06:55:47+00:00
+CJI Surya Kant Refutes Reports Of Refusing To List Plea Against Police Action On Student Protests, Says Media Was Reckless
+https://www.livelaw.in/top-stories/cji-surya-kant-refutes-reports-of-refusing-to-list-plea-against-police-action-on-student-protests-says-media-was-reckless-542693
 
-[Read on Telegram](https://t.me/livelawindia/115503)
-
----
-### 2026-07-23T13:17:56+00:00
-Bank Account Cannot Be Frozen Merely Upon Communication From Another Bank: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/bank-account-frozen-another-banks-communication-542582
-
-[Read on Telegram](https://t.me/livelawindia/115504)
+[Read on Telegram](https://t.me/livelawindia/115547)
 
 ---
-### 2026-07-23T14:32:16+00:00
-Algorithmic Deactivation, Article 14 And Karnataka Gig Worker Litigation
-https://www.livelaw.in/lawschool/articles/algorithmic-deactivation-article14-karnataka-gig-worker-litigation-542390
+### 2026-07-24T07:00:27+00:00
+Consultant (Lawfare Issues) Vacancy At Ministry Of External Affairs
+https://www.livelaw.in/job-updates/consultant-lawfare-issues-vacancy-at-ministry-of-external-affairs-542697
 
-[Read on Telegram](https://t.me/livelawindia/115505)
-
----
-### 2026-07-23T14:47:37+00:00
-Married Woman Can Claim Compassionate Appointment After Father's Death, No Presumption Of Dependence On Husband: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/married-woman-compassionate-appointment-fathers-employment-542580
-
-[Read on Telegram](https://t.me/livelawindia/115506)
+[Read on Telegram](https://t.me/livelawindia/115548)
 
 ---
-### 2026-07-23T15:24:07+00:00
-Constitution Does Not End At The Barricade
-https://www.livelaw.in/articles/constitution-does-not-end-barricade-542639
+### 2026-07-24T07:05:07+00:00
+"Advocates' Protection Bill Ready": Chief Minister VD Satheesan Announces At KHCAA Felicitation Programme
+https://www.livelaw.in/news-updates/kerala-khcaa-chief-minister-vd-satheesan-542699
 
-[Read on Telegram](https://t.me/livelawindia/115507)
-
----
-### 2026-07-23T15:35:07+00:00
-Promotion Does Not Cease To Be Promotion Just Because Employee's Grade Pay Doesn't Change : Supreme Court
-https://www.livelaw.in/supreme-court/promotion-does-not-cease-to-be-promotion-just-because-employees-grade-pay-doesnt-change-supreme-court-542640
-
-[Read on Telegram](https://t.me/livelawindia/115508)
+[Read on Telegram](https://t.me/livelawindia/115549)
 
 ---
-### 2026-07-23T15:36:47+00:00
-2026 LiveLaw (SC) 712 | UNION OF INDIA AND OTHERS VERSUS HARBANS LAL VERMA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-712-union-of-india-and-others-versus-harbans-lal-verma-542641
+### 2026-07-24T07:07:27+00:00
+Call For Articles | KOITUR Magazine Special Edition On Folklore, Cultural Rights & Indigenous Knowledge Systems
+https://www.livelaw.in/lawschool/call-for-papers/articles-koitur-magazine-special-edition-folklore-cultural-rights-indigenous-knowledge-systems-542701
 
-[Read on Telegram](https://t.me/livelawindia/115509)
-
----
-### 2026-07-23T15:38:27+00:00
-S. 311 CrPC | Material Witnesses Can Be Summoned Even If Their Examination-In-Chief Hasn't Been Conducted: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-section-311-crpc-material-witness-examination-in-chief-542642
-
-[Read on Telegram](https://t.me/livelawindia/115510)
+[Read on Telegram](https://t.me/livelawindia/115550)
 
 ---
-### 2026-07-23T16:04:37+00:00
-Supreme Court Sets Aside 2016 Uttarakhand HC Directions On Forest Fire Control, Relegates Matter To HC For Monitoring
-https://www.livelaw.in/top-stories/supreme-court-uttarakhand-forest-fires-high-court-to-revisit-decade-old-directions-monitor-periodic-measures-542643
+### 2026-07-24T07:10:47+00:00
+LiveLaw Calcutta High Court Weekly Round-Up: July 13 To July 19, 2026
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-weekly-round-up-july-13-to-july-19-2026-542703
 
-[Read on Telegram](https://t.me/livelawindia/115511)
-
----
-### 2026-07-23T16:32:17+00:00
-Anti-Nationals Have Entered 'So-Called Student Protests', Aim Is To Destabilize India : BCI Chief Manan Kumar Mishra
-https://www.livelaw.in/top-stories/anti-nationals-have-entered-so-called-student-protests-aim-is-to-destabilize-india-bci-chief-manan-kumar-mishra-542644
-
-[Read on Telegram](https://t.me/livelawindia/115512)
+[Read on Telegram](https://t.me/livelawindia/115551)
 
 ---
-### 2026-07-23T16:34:17+00:00
-NEET-UG 2026 : Bombay High Court Orders NTA To Produce Original Answer Sheets Of 3 Candidates Who Alleged Discrepancies In Results
-https://www.livelaw.in/high-court/bombay-high-court/neet-ug-2026-bombay-high-court-orders-nta-to-produce-original-answer-sheets-of-3-candidates-who-alleged-discrepancies-in-results-542646
+### 2026-07-24T07:17:07+00:00
+Manipur Violence : Supreme Court Proposes Special Courts For Day-to-Day Trials, Seeks Faster Completion Of Probes
+https://www.livelaw.in/top-stories/manipur-violence-supreme-court-proposes-special-courts-for-day-to-day-trials-seeks-faster-completion-of-probes-542704
 
-[Read on Telegram](https://t.me/livelawindia/115513)
-
----
-### 2026-07-23T17:06:47+00:00
-AILET 2027 To Be Held On December 13, NLU-Delhi Opens Applications From August 7
-https://www.livelaw.in/top-stories/ailet-2027-date-december-13-nlu-delhi-admissions-542648
-
-[Read on Telegram](https://t.me/livelawindia/115514)
+[Read on Telegram](https://t.me/livelawindia/115552)
 
 ---
-### 2026-07-23T17:17:27+00:00
-Supreme Court Daily Round-Up : July 23, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-july-23-2026-542647
+### 2026-07-24T07:18:07+00:00
+S.159 Income Tax Act Can't Validate Reassessment Notice Issued To Deceased Assessee: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-s159-income-tax-act-continue-pending-proceedings-legal-heirs-deceased-assesee-542705
 
-[Read on Telegram](https://t.me/livelawindia/115515)
-
----
-### 2026-07-23T17:29:27+00:00
-PoP Idol Makers Support Ban On Immersion In Natural Water, But Tell Bombay High Court Their Right To Livelihood Can't Be Curbed
-https://www.livelaw.in/high-court/bombay-high-court/pop-idol-ban-water-pollution-artisans-right-to-livelihood-542649
-
-[Read on Telegram](https://t.me/livelawindia/115516)
+[Read on Telegram](https://t.me/livelawindia/115553)
 
 ---
-### 2026-07-23T17:46:07+00:00
-Delhi High Court Designates Special Judge To Fast Track Paper Leak Cases
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-designates-special-judge-to-fast-track-paper-leak-cases-542652
+### 2026-07-24T07:18:17+00:00
+Legal Associate And Legal Trainee Vacancy At AAVNA Legal [Apply Now]
+https://www.livelaw.in/job-updates/legal-associate-and-legal-trainee-vacancy-at-aavna-legal-542706
 
-[Read on Telegram](https://t.me/livelawindia/115517)
-
----
-### 2026-07-24T01:32:23+00:00
-Punjab & Haryana High Court Bar Association Backs Protest Against LADC Policy, Announces Suspension Of Court Work
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-bar-association-calls-for-work-suspension-on-july-24-in-solidarity-with-ladc-policy-protesters-542651
-
-[Read on Telegram](https://t.me/livelawindia/115518)
+[Read on Telegram](https://t.me/livelawindia/115554)
 
 ---
-### 2026-07-24T02:37:34+00:00
-Absence Of Injuries Despite Claim Of Violent Struggle: P&H High Court Acquits Man Convicted For Rape 22 Years Ago
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/rape-convict-acquitted-22-years-later-ago-absence-of-injuries-despite-claim-of-violent-struggle-542650
+### 2026-07-24T07:19:07+00:00
+Assistant Project Manager Vacancy At Indian Institute Of Technology, Kanpur
+https://www.livelaw.in/job-updates/assistant-project-manager-vacancy-at-indian-institute-of-technology-kanpur-542707
 
-[Read on Telegram](https://t.me/livelawindia/115519)
+[Read on Telegram](https://t.me/livelawindia/115555)
 
 ---
-### 2026-07-24T02:46:34+00:00
-NTA Has 24 Of 39 Permanent Posts Filled, Relies On 73 Contractual & 124 Outsourced Staff: Centre Tells Rajya Sabha
-https://www.livelaw.in/news-updates/nta-has-24-of-39-permanent-posts-filled-relies-on-73-contractual-124-outsourced-staff-centre-tells-rajya-sabha-542653
+### 2026-07-24T07:20:47+00:00
+Manager (Data Privacy) Vacancy At Deloitte India LLP
+https://www.livelaw.in/job-updates/manager-data-privacy-vacancy-at-deloitte-india-llp-542708
 
-[Read on Telegram](https://t.me/livelawindia/115520)
+[Read on Telegram](https://t.me/livelawindia/115556)
+
+---
+### 2026-07-24T07:27:27+00:00
+Prosecution Can't Continue If Drug Inspector's Delay Defeats Accused's Right To Re-Test Sample: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/once-valuable-right-to-challenge-government-analysts-report-is-defeated-due-to-drugs-inspectors-omissions-prosecution-deserves-to-be-quashed-jk-high-court-542589
+
+[Read on Telegram](https://t.me/livelawindia/115557)
+
+---
+### 2026-07-24T07:56:18+00:00
+Madras High Court Refuses To Quash ₹7,237-Crore Illegal Mining Cases, Says 'Unholy Nexus' Between Public Officials & Accused Delayed Trial
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-refuse-quash-7237-crore-illegal-mining-case-unholy-nexus-delay-trial-542715
+
+[Read on Telegram](https://t.me/livelawindia/115558)
+
+---
+### 2026-07-24T08:02:58+00:00
+MP High Court Expresses Dissatisfaction With State's Response On Action Against Noise Pollution Violators In Indore, Seeks Report
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-states-reply-in-noise-pollution-public-interest-litigation-542717
+
+[Read on Telegram](https://t.me/livelawindia/115559)
+
+---
+### 2026-07-24T08:11:38+00:00
+BREAKING| Supreme Court Bans Uploading & Sharing Of Audio-Video Recordings Of Court Hearings Without Prior Permission
+https://www.livelaw.in/top-stories/breaking-supreme-court-bans-uploading-sharing-of-audio-video-recordings-of-court-hearings-without-prior-permission-542719
+
+[Read on Telegram](https://t.me/livelawindia/115560)
+
+---
+### 2026-07-24T08:12:18+00:00
+'Students Can't Attend Classes In State Of Fear': Madras High Court Upholds Expulsion Of Law Students Accused Of Kidnapping Classmate
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-law-students-kidnapping-offence-expulsion-upheld-542718
+
+[Read on Telegram](https://t.me/livelawindia/115561)
+
+---
+### 2026-07-24T08:16:38+00:00
+Undertrial Prisoner Can Sell Property Through Power Of Attorney Executed From Jail: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/pre-convict-undertrial-prisoner-allowed-to-sell-property-article-21-and-300a-constitution-542720
+
+[Read on Telegram](https://t.me/livelawindia/115562)
+
+---
+### 2026-07-24T08:23:08+00:00
+Kerala High Court Asks State To Conduct Hazard Sweeps At Other Tunnel, Infrastructure Project Sites After Wayanad Landslide
+https://www.livelaw.in/high-court/kerala-high-court/wayanad-landslide-kerala-conduct-hazard-sweeps-at-other-infrastructure-project-sites-542721
+
+[Read on Telegram](https://t.me/livelawindia/115563)
+
+---
+### 2026-07-24T08:27:48+00:00
+Income Tax Act | Notice To Deceased Assessee Under S.148 Void, Not Curable: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-issued-name-dead-assessee-void-ab-initio-542722
+
+[Read on Telegram](https://t.me/livelawindia/115564)
+
+---
+### 2026-07-24T08:32:48+00:00
+'Situation Very Pathetic': Kerala High Court Flags Pattern Of Police Not Communicating Grounds Of Arrest, Enabling Accused To Secure Release
+https://www.livelaw.in/high-court/kerala-high-court/nithin-raj-suicide-lapses-in-arrest-kerala-police-grounds-of-arrest-542723
+
+[Read on Telegram](https://t.me/livelawindia/115565)
 
 ---
