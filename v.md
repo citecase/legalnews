@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-24T13:53:20+00:00*
+*Last Updated: 2026-07-24T15:52:34+00:00*
+
+---
+
+### 2026-07-24T15:52:34+00:00
+Young Professional Vacancy At Rajasthan Police Recruitment
+https://www.verdictum.in/job-updates/rajasthan-police-recruitment-1618441
+
+[Source Link](https://t.me/verdictumlegalupdates/28155)
+
+---
+
+### 2026-07-24T15:32:33+00:00
+Ornaments In Police Custody Were Replaced By Fake Ones: Madhya Pradesh High Court Directs Further Investigation Even After Acquittal Of Accused
+https://www.verdictum.in/madhya-pradesh-high-court/jmfc-joura-v-shyam-singh-2026mphc-gwl21703-investigation-acquittal-accused-police-1618445
+
+[Source Link](https://t.me/verdictumlegalupdates/28154)
+
+---
+
+### 2026-07-24T14:33:11+00:00
+Court Cannot Modify Arbitral Award: Karnataka High Court Sets Aside District Court’s Revised Compensation Order In NHAI Land Acquisition Case
+https://www.verdictum.in/karnataka-high-court/national-highways-authority-of-india-v-iravva-and-connected-matter-2026khc-d9208-db-1618444
+
+[Source Link](https://t.me/verdictumlegalupdates/28153)
 
 ---
 
@@ -137,30 +161,6 @@ Legal Advisor Vacancy At Animal Welfare Board of India (AWBI)
 https://www.verdictum.in/job-updates/animal-welfare-board-of-india-1618374
 
 [Source Link](https://t.me/verdictumlegalupdates/28136)
-
----
-
-### 2026-07-23T14:52:32+00:00
-No One Connected With Case Should Attempt Calling Judge Hearing Matter: MP High Court Warns BJP MLA Sanjay Satyendra Pathak, Accepts His Apology
-https://www.verdictum.in/madhya-pradesh-high-court/in-reference-suo-motu-contempt-v-shri-sanjay-satyendra-pathak-2026mphc-jbp52540-1618377
-
-[Source Link](https://t.me/verdictumlegalupdates/28135)
-
----
-
-### 2026-07-23T14:13:11+00:00
-Code On Social Security, 2020 Overrides U.P. Financial Handbook’s Two-Year Bar On Second Maternity Leave: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/shikha-yadav-v-state-of-up-writ-a-no-9299-of-2026-social-security-code-2020-overrides-up-financial-handbook-1618373
-
-[Source Link](https://t.me/verdictumlegalupdates/28134)
-
----
-
-### 2026-07-23T13:32:59+00:00
-Touching Boy’s Chest With Sexual Intent Can Attract Sexual Assault Offence Under POCSO Act: Kerala High Court
-https://www.verdictum.in/kerala-high-court/aboobacker-v-state-of-kerala-2026ker51118-difference-between-chest-breast-touching-boys-chest-with-sexual-intent-1618372
-
-[Source Link](https://t.me/verdictumlegalupdates/28133)
 
 ---
 
