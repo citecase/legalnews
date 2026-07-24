@@ -1,114 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-24T12:12:29+00:00*
+*Last Updated: 2026-07-24T13:34:49+00:00*
 
 ---
 
-### 2026-07-24T12:12:29+00:00
-BCI Chief Manan Kumar Mishra Faces Lawyers' Backlash Over Remarks Against Student Protests
-https://www.livelaw.in/top-stories/bci-chief-manan-kumar-mishra-faces-lawyers-backlash-over-remarks-against-student-protests-542788
-
-[Read on Telegram](https://t.me/livelawindia/115588)
-
----
-### 2026-07-24T12:12:49+00:00
-WhatsApp/Email Service Must Be Verified Before Passing Ex-Parte Maintenance Order: Madhya Pradesh High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-sets-aside-ex-parte-maintenance-order-for-not-determining-the-status-of-service-of-digital-notice-542789
-
-[Read on Telegram](https://t.me/livelawindia/115589)
-
----
-### 2026-07-24T12:16:29+00:00
-MHADA Can Enforce Developer's Promise To Rehabilitate Occupants In Redeveloped Building: Supreme Court
-https://www.livelaw.in/supreme-court/mhada-can-enforce-developers-promise-to-rehabilitate-occupants-in-redeveloped-building-supreme-court-542790
-
-[Read on Telegram](https://t.me/livelawindia/115590)
-
----
-### 2026-07-24T12:17:29+00:00
-2026 LiveLaw (SC) 713 |  Mrs. Mahabanoo Contractor and Anr. Versus M/s. Kalikund Developers and Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-713-mrs-mahabanoo-contractor-and-anr-versus-ms-kalikund-developers-and-ors-542791
-
-[Read on Telegram](https://t.me/livelawindia/115591)
-
----
-### 2026-07-24T12:29:49+00:00
-2026 LiveLaw (SC) 714 | Rajasab v Hulagappa
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-714-rajasab-v-hulagappa-542795
-
-[Read on Telegram](https://t.me/livelawindia/115592)
-
----
-### 2026-07-24T12:35:09+00:00
-Order Issuing Notice On Temporary Injunction Plea Not Appealable Under Order 43 Rule 1(r) CPC: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-holds-issuance-notice-injunction-application-appealable-542796
-
-[Read on Telegram](https://t.me/livelawindia/115593)
-
----
-### 2026-07-24T12:41:19+00:00
-Town Vending Committee Elections 'Extremely Crucial', Can't Be Derailed By Individual Nomination Disputes: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/town-vending-committee-elections-extremely-crucial-cant-be-derailed-by-individual-nomination-disputes-delhi-high-court-542799
-
-[Read on Telegram](https://t.me/livelawindia/115594)
-
----
-### 2026-07-24T12:47:59+00:00
-Continuous Stalking & Death Threats For Refusing Marriage Constitute Instigation For Suicide: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/stalking-death-threats-refusing-marriage-positive-act-instigation-suicide-542770
-
-[Read on Telegram](https://t.me/livelawindia/115595)
-
----
-### 2026-07-24T12:52:19+00:00
-2026 LiveLaw (SC) 715 | SUPTAN MARAK VERSUS STATE OF TRIPURA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-715-suptan-marak-versus-state-of-tripura-542803
-
-[Read on Telegram](https://t.me/livelawindia/115596)
-
----
-### 2026-07-24T12:52:59+00:00
-Time Spent Prosecuting Premature Cheque Bounce Complaint Must Be Excluded While Computing Limitation: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/bona-fide-prosecution-of-defective-complaint-preserves-right-to-sue-afresh-premature-cheque-bounce-plea-doesnt-exhaust-cause-of-action-jk-high-court-542591
-
-[Read on Telegram](https://t.me/livelawindia/115597)
-
----
-### 2026-07-24T12:53:59+00:00
-Muslim Man's Second Marriage Under Special Marriage Act Void If First Marriage Subsists: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/muslim-man-second-marriage-void-special-marriage-act-overrides-personal-law-polygamy-542804
-
-[Read on Telegram](https://t.me/livelawindia/115598)
-
----
-### 2026-07-24T13:00:19+00:00
-Insurer Not Liable For Theft Loss If Policy Doesn't Cover Burglary: Gujarat State Consumer Commission
-https://www.livelaw.in/consumer-cases/insurer-not-liable-for-theft-loss-if-policy-doesnt-cover-burglary-gujarat-state-consumer-commission-542805
-
-[Read on Telegram](https://t.me/livelawindia/115599)
-
----
-### 2026-07-24T13:12:59+00:00
-Unused Acquired Land Need Not Be Returned To Original Owners; Can Be Used For Another Public Purpose: Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-unused-acquired-land-returned-original-owners-542769
-
-[Read on Telegram](https://t.me/livelawindia/115600)
-
----
-### 2026-07-24T13:17:39+00:00
-Criminal Liability Can't Be Imposed On Directors Solely Due To Designation: Chhattisgarh High Court Grants Bail In CSMCL Corruption Case
-https://www.livelaw.in/high-court/chhattisgarh-high-court/bail-company-directors-csmcl-corruption-case-vicarious-criminal-liability-corporate-designation-542768
-
-[Read on Telegram](https://t.me/livelawindia/115601)
-
----
-### 2026-07-24T13:27:29+00:00
-Marriage Became 'Deadwood' After 19-Year Separation; Irretrievable Breakdown Amounts To Cruelty: Calcutta High Court Grants Divorce
-https://www.livelaw.in/high-court/calcutta-high-court/marriage-became-deadwood-after-19-year-separation-irretrievable-breakdown-amounts-to-cruelty-calcutta-high-court-grants-divorce-542734
-
-[Read on Telegram](https://t.me/livelawindia/115602)
-
----
 ### 2026-07-24T13:34:49+00:00
 MP High Court Designates Four Special Courts To Fast Track Paper Leak Cases
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-appoints-sessions-and-district-judges-to-special-public-examination-fast-track-courts-542810
@@ -142,5 +37,110 @@ https://www.livelaw.in/high-court/madras-high-court/police-pay-compensation-clos
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-716-rutvij-bhagat-singh-wakhare-versus-the-state-of-maharashtra-ors-542815
 
 [Read on Telegram](https://t.me/livelawindia/115607)
+
+---
+### 2026-07-24T14:05:09+00:00
+UNCITRAL Conference At Supreme Court | CJI Says India Viewed As Fair Jurisdiction For Inernational Disputes
+https://www.livelaw.in/top-stories/uncitral-conference-at-supreme-court-cji-says-india-viewed-as-fair-jurisdiction-for-inernational-disputes-542816
+
+[Read on Telegram](https://t.me/livelawindia/115608)
+
+---
+### 2026-07-24T14:16:09+00:00
+Gauhati High Court Upholds Entry Permits To Visit Nagaland Districts, Says 150-Year-Old Law Still Valid
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-bengal-eastern-frontier-regulation-nagaland-entry-inner-line-permit-542817
+
+[Read on Telegram](https://t.me/livelawindia/115609)
+
+---
+### 2026-07-24T14:32:40+00:00
+Delhi High Court Orders Railway Accident Compensation, Says No Scheduled Halt Can't Automatically Mean Passenger Tried To Deboard Moving Train
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-orders-railway-accident-compensation-says-no-scheduled-halt-cant-automatically-mean-passenger-tried-to-deboard-moving-train-542800
+
+[Read on Telegram](https://t.me/livelawindia/115610)
+
+---
+### 2026-07-24T14:33:29+00:00
+Who Owns the Play? Performers' Rights, Publisher Copyright, And Unresolved Tension In India's Esports Law
+https://www.livelaw.in/lawschool/articles/performers-rights-publisher-copyright-unresolved-tension-india-esports-law-542444
+
+[Read on Telegram](https://t.me/livelawindia/115611)
+
+---
+### 2026-07-24T14:33:40+00:00
+Calcutta High Court Allows EWS Candidate To Participate In WBJEE Counselling Despite Expired Certificate, Subject To Renewal
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-allows-candidate-to-participate-in-wbjee-counselling-despite-expired-ews-certificate-subject-to-renewal-542763
+
+[Read on Telegram](https://t.me/livelawindia/115612)
+
+---
+### 2026-07-24T14:33:50+00:00
+Supreme Court Urges Star Health'Insurance To Withdraw Criminal Case Against Cyber Expert Who Exposed Vulnerability In System
+https://www.livelaw.in/top-stories/supreme-court-slams-star-health-insurance-company-suggests-withdrawal-of-case-against-expert-who-flagged-vulnerability-in-its-system-542818
+
+[Read on Telegram](https://t.me/livelawindia/115613)
+
+---
+### 2026-07-24T14:36:20+00:00
+Delhi High Court Seeks NTA's Response On Plea Challenging Answer Key For NEET-UG 2026
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-seeks-ntas-response-on-plea-challenging-answer-key-for-neet-ug-2026-542820
+
+[Read on Telegram](https://t.me/livelawindia/115614)
+
+---
+### 2026-07-24T15:01:40+00:00
+'People Must Respect Mother Nature': Bombay High Court Urges Maharashtra To Consider Symbolic Immersion Of Large PoP Ganesh Idols
+https://www.livelaw.in/high-court/bombay-high-court/pop-ganesh-idol-maharashtra-symbolic-immersion-natural-water-pollution-542822
+
+[Read on Telegram](https://t.me/livelawindia/115615)
+
+---
+### 2026-07-24T15:03:20+00:00
+Delhi High Court Pulls Up Street Vendor For Filing Misleading Photos To Conceal Encroachment, Imposes ₹25,000 Costs
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-pulls-up-street-vendor-for-filing-misleading-photos-to-conceal-encroachment-imposes-25000-costs-542823
+
+[Read on Telegram](https://t.me/livelawindia/115616)
+
+---
+### 2026-07-24T15:10:40+00:00
+NCDRC Condones 1453-Day Delay In Filing Revision Petition, Grants Benefit Of Section 14 Limitation Act
+https://www.livelaw.in/consumer-cases/ncdrc-condones-1453-day-delay-in-filing-revision-petition-grants-benefit-of-section-14-limitation-act-542826
+
+[Read on Telegram](https://t.me/livelawindia/115617)
+
+---
+### 2026-07-24T15:19:30+00:00
+[Advertisement] Into Legal World Launches Certificates Course On Real Estate Law Mastery: RERA, TPA, Drafting, Due Diligence & Insolvency
+https://www.livelaw.in/lawschool/diploma-certificate-courses/into-legal-world-launches-certificates-course-real-estate-law-mastery-542827
+
+[Read on Telegram](https://t.me/livelawindia/115618)
+
+---
+### 2026-07-24T15:24:10+00:00
+CHRIST University Invites Entries For FLAIR 2026 Legal Writing Competition On Fashion Law, AI & Innovation
+https://www.livelaw.in/lawschool/competitions/christ-university-invites-entries-for-flair-2026-legal-writing-competition-on-fashion-law-ai-innovation-542828
+
+[Read on Telegram](https://t.me/livelawindia/115619)
+
+---
+### 2026-07-24T15:59:10+00:00
+BCI Orders Universities To Inspect Law Colleges, Directs To Stop Weekend, Evening Classes
+https://www.livelaw.in/top-stories/bci-orders-universities-to-inspect-law-colleges-directs-to-stop-weekend-evening-classes-542833
+
+[Read on Telegram](https://t.me/livelawindia/115620)
+
+---
+### 2026-07-24T16:02:50+00:00
+Union Housing Ministry Recommendation For Govt Loan Can't Change Mobile Vendor's Category To Fixed Vendor: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/union-housing-ministry-recommendation-for-govt-loan-cant-change-mobile-vendors-category-to-fixed-vendor-delhi-high-court-542824
+
+[Read on Telegram](https://t.me/livelawindia/115621)
+
+---
+### 2026-07-24T17:17:31+00:00
+Supreme Court Daily Round-Up : July 24, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-july-24-2026-542830
+
+[Read on Telegram](https://t.me/livelawindia/115622)
 
 ---
