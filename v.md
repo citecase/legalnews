@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-24T09:02:51+00:00*
+*Last Updated: 2026-07-24T13:53:20+00:00*
+
+---
+
+### 2026-07-24T13:53:20+00:00
+Appointment Secured Through Fake Disability Certificates In Priority Quota Is Void Ab Initio: Madras High Court Orders Enquiry
+https://www.verdictum.in/madras-high-court/g-premkumar-v-the-executive-officer-persons-with-disabilities-fraudulent-appointment-1618443
+
+[Source Link](https://t.me/verdictumlegalupdates/28152)
+
+---
+
+### 2026-07-24T13:11:19+00:00
+Motor Accident Compensation| Woman Can Claim For Personal Injury Due To Loss Of Foetus: Delhi High Court
+https://www.verdictum.in/delhi-high-court/anshu-kashyap-v-iffco-tokio-general-insurance-co-ltd-2026dhc5591-injured-personal-injury-1618442
+
+[Source Link](https://t.me/verdictumlegalupdates/28151)
+
+---
+
+### 2026-07-24T12:32:38+00:00
+Proviso To Section 26 Stamp Act Not Inconsistent With Main Provision; Method Of Calculation Of Stamp Duty In Case Of Mining Is Through Anticipated Royalty: Supreme Court
+https://www.verdictum.in/supreme-court/ms-birla-corporation-limited-v-the-state-of-madhya-pradesh-2026-insc-738-royalty-stamp-act-1618440
+
+[Source Link](https://t.me/verdictumlegalupdates/28150)
+
+---
+
+### 2026-07-24T11:52:37+00:00
+Personal Law Can’t Override Requirement U/S 4 Special Marriage Act That Neither Party Should Have A Living Spouse At Time Of Marriage: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/km-v-mab-2026khc-d9731-personal-law-special-marriage-act-section-4-void-1618439
+
+[Source Link](https://t.me/verdictumlegalupdates/28149)
+
+---
+
+### 2026-07-24T11:12:55+00:00
+DNA Test Of Daughter To Determine Paternity Cannot Be Ordered Without Consent After She Becomes Major And Marries: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/ysc-v-my-dna-paternity-test-married-daughter-consent-privacy-maintenance-1618434
+
+[Source Link](https://t.me/verdictumlegalupdates/28148)
+
+---
+
+### 2026-07-24T10:33:14+00:00
+Supreme Court Agrees To Hear Pleas Alleging Police Excesses On Students Protesting Against NEET Paper Leak
+https://www.verdictum.in/supreme-court/pleas-alleging-police-excesses-students-protesting-neet-paper-leak-1618431
+
+[Source Link](https://t.me/verdictumlegalupdates/28147)
+
+---
+
+### 2026-07-24T10:02:53+00:00
+Government Not Estopped From Raising Public Law Question Merely For Not Challenging One High Court Ruling: Supreme Court
+https://www.verdictum.in/supreme-court/union-of-india-and-others-v-harbans-lal-verma-2026-insc-739-1618430
+
+[Source Link](https://t.me/verdictumlegalupdates/28146)
+
+---
+
+### 2026-07-24T09:32:12+00:00
+No Vested Right To Promotion From Date Vacancy Arose Merely On Eligibility; Right Is Only To Be Considered By DPC In Accordance With Law: Delhi High Court
+https://www.verdictum.in/delhi-high-court/manpreet-kaur-v-indira-gandhi-delhi-technical-university-for-women-2026dhc5886-no-vested-right-to-promotion-from-date-vacancy-1618428
+
+[Source Link](https://t.me/verdictumlegalupdates/28145)
 
 ---
 
@@ -97,70 +161,6 @@ Touching Boy’s Chest With Sexual Intent Can Attract Sexual Assault Offence Und
 https://www.verdictum.in/kerala-high-court/aboobacker-v-state-of-kerala-2026ker51118-difference-between-chest-breast-touching-boys-chest-with-sexual-intent-1618372
 
 [Source Link](https://t.me/verdictumlegalupdates/28133)
-
----
-
-### 2026-07-23T12:52:58+00:00
-Caste-Based Remarks Made Inside Office Chambers: Delhi High Court Quashes SC/ST Act Charges Against Management Officials
-https://www.verdictum.in/delhi-high-court/christine-swaroop-raj-v-state-2026dhc5667-compelled-face-trial-scst-act-charge-trans-world-radio-1618366
-
-[Source Link](https://t.me/verdictumlegalupdates/28132)
-
----
-
-### 2026-07-23T12:12:36+00:00
-High Court Better Equipped: Supreme Court Remands Uttarakhand Forest Fire Matter For Fresh Consideration
-https://www.verdictum.in/supreme-court/remands-uttarakhand-forest-fire-matter-for-fresh-consideration-1618369
-
-[Source Link](https://t.me/verdictumlegalupdates/28131)
-
----
-
-### 2026-07-23T11:32:35+00:00
-Motor Vehicles Act Provisions Won’t Apply Simply Because Car Was involved In Chain Of Circumstances That Led To Death: Supreme Court
-https://www.verdictum.in/supreme-court/dilip-agarwal-v-rajshri-agarwal-2026-insc-736-motor-vehicles-act-death-car-1618365
-
-[Source Link](https://t.me/verdictumlegalupdates/28130)
-
----
-
-### 2026-07-23T10:51:54+00:00
-Accused Need Not Prove Prosecution Case False In Every Respect: Supreme Court Upholds Acquittal In Murder Case
-https://www.verdictum.in/supreme-court/sanjay-kumar-v-the-state-of-bihar-anr-2026-insc-735-murder-acquittal-1618364
-
-[Source Link](https://t.me/verdictumlegalupdates/28129)
-
----
-
-### 2026-07-23T10:12:53+00:00
-State Cannot Withhold Approved AB-PMJAY Bills Of Empanelled Hospitals On Grounds Of Pending Vigilance Inquiry: Himachal Pradesh High Court
-https://www.verdictum.in/himachal-high-court/ms-maatri-medicity-orthocare-hospital-v-state-of-himachal-pradesh-ors-and-connected-matters-2026hhc29794-1618362
-
-[Source Link](https://t.me/verdictumlegalupdates/28128)
-
----
-
-### 2026-07-23T09:32:52+00:00
-Knowledge Can’t Be Presumed In A Vacuum On The 4th Day Of Unprecedented Lockdown: Delhi High Court Quashes COVID-19 FIR Against Solitary Pedestrian
-https://www.verdictum.in/delhi-high-court/anupam-sahu-v-the-state-2026dhc5771-solitary-pedestrian-covid-19-fir-unprecedented-lockdown-1618359
-
-[Source Link](https://t.me/verdictumlegalupdates/28127)
-
----
-
-### 2026-07-23T08:52:30+00:00
-FSL Expert Report Bereft Of Reasons & Scientific Criteria Of No Avail: Allahabad High Court Issues Suggestions On Forensic Evidence Protocols
-https://www.verdictum.in/allahabad-high-court/gyanmati-sangathiya-v-state-of-up-with-ashok-kumar-putti-lal-v-state-of-up-2026ahc146616-db-1618357
-
-[Source Link](https://t.me/verdictumlegalupdates/28126)
-
----
-
-### 2026-07-23T08:12:49+00:00
-General Obligation To Maintain Child Cannot Be Invoked In Execution Proceedings To Rewrite Discharged Consent Decree: Supreme Court
-https://www.verdictum.in/supreme-court/vr-v-clb-2026-insc-731-execution-proceedings-father-obligation-maintain-children-1618340
-
-[Source Link](https://t.me/verdictumlegalupdates/28125)
 
 ---
 
