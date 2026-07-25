@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-25T13:52:54+00:00*
+*Last Updated: 2026-07-25T14:32:55+00:00*
+
+---
+
+### 2026-07-25T14:32:55+00:00
+Civil Judge (Senior Division) Vacancy At Chhattisgarh High Court
+https://www.verdictum.in/job-updates/chhattisgarh-high-court-1618504
+
+[Source Link](https://t.me/verdictumlegalupdates/28167)
 
 ---
 
@@ -153,14 +161,6 @@ DNA Test Of Daughter To Determine Paternity Cannot Be Ordered Without Consent Af
 https://www.verdictum.in/gujarat-high-court/ysc-v-my-dna-paternity-test-married-daughter-consent-privacy-maintenance-1618434
 
 [Source Link](https://t.me/verdictumlegalupdates/28148)
-
----
-
-### 2026-07-24T10:33:14+00:00
-Supreme Court Agrees To Hear Pleas Alleging Police Excesses On Students Protesting Against NEET Paper Leak
-https://www.verdictum.in/supreme-court/pleas-alleging-police-excesses-students-protesting-neet-paper-leak-1618431
-
-[Source Link](https://t.me/verdictumlegalupdates/28147)
 
 ---
 
