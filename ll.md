@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-24T13:34:49+00:00*
+*Last Updated: 2026-07-24T13:38:09+00:00*
 
 ---
 
-### 2026-07-24T13:34:49+00:00
-MP High Court Designates Four Special Courts To Fast Track Paper Leak Cases
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-appoints-sessions-and-district-judges-to-special-public-examination-fast-track-courts-542810
-
-[Read on Telegram](https://t.me/livelawindia/115603)
-
----
 ### 2026-07-24T13:38:09+00:00
 LiveLaw Daily| Manipur Special Courts| Student protests| ANI vs OpenAI| Teacher Deployment For SIR
 https://www.livelaw.in/podcast/student-protests-cjp-livelaw-daily-neet-union-delhi-high-court-supreme-court-legal-advocates-lawyers-eci-542811
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : July 24, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-july-24-2026-542830
 
 [Read on Telegram](https://t.me/livelawindia/115622)
+
+---
+### 2026-07-25T02:37:13+00:00
+'Very Serious Misconduct': Rajasthan High Court Orders Inquiry Into Police Inspector Making Social Media Reels To Build Fan Following
+https://www.livelaw.in/high-court/rajasthan-high-court/dgp-probe-police-inspector-making-social-media-reels-fan-following-misconduct-542846
+
+[Read on Telegram](https://t.me/livelawindia/115623)
 
 ---
