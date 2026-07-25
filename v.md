@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-24T15:52:34+00:00*
+*Last Updated: 2026-07-25T08:02:27+00:00*
+
+---
+
+### 2026-07-25T08:02:27+00:00
+TRAI Can Issue Regulatory Directions Without Trespassing Into TDSAT Jurisdiction: Supreme Court
+https://www.verdictum.in/supreme-court/telecom-regulatory-authority-of-india-v-ms-polimer-cable-network-and-others-2026-insc-742-1618488
+
+[Source Link](https://t.me/verdictumlegalupdates/28160)
+
+---
+
+### 2026-07-25T07:13:06+00:00
+Rules Of Game Couldn’t Be Changed Mid-Way: Supreme Court Asks Authorities To Reconsider UP ITI Instructor Recruitment
+https://www.verdictum.in/supreme-court/arvind-kumar-v-state-of-up-2026-insc-741-selection-committee-up-iti-instructor-recruitment-1618482
+
+[Source Link](https://t.me/verdictumlegalupdates/28159)
+
+---
+
+### 2026-07-25T06:14:45+00:00
+Similarity In Modus Operandi Alone Doesn't Make Distinct Cyber Frauds Part Of Same Transaction: Supreme Court
+https://www.verdictum.in/supreme-court/2026-insc-740-rutvij-bhagat-singh-wakhare-v-state-of-maharashtra-1618478
+
+[Source Link](https://t.me/verdictumlegalupdates/28158)
+
+---
+
+### 2026-07-25T05:24:24+00:00
+Guardianship Claim By Foreign National Cannot Exist; Upto Local Level Committee To Evaluate Circumstances: Delhi High Court
+https://www.verdictum.in/delhi-high-court/bhavna-gulati-v-government-of-nct-of-delhi-2026dhc5820-db-guardianship-claim-1618473
+
+[Source Link](https://t.me/verdictumlegalupdates/28157)
+
+---
+
+### 2026-07-25T04:33:12+00:00
+FIR Silent On Harming Reputation: Gujarat High Court Quashes FIR Against Man Accused Of Forwarding Fake Newspaper Cutting In Whatsapp
+https://www.verdictum.in/gujarat-high-court/kaushalbhai-jagdishbhai-asodiya-v-state-of-gujarat-fir-reputation-sec469-ipc-forgery-1618465
+
+[Source Link](https://t.me/verdictumlegalupdates/28156)
 
 ---
 
@@ -121,46 +161,6 @@ Adhocism Is What Has Troubled All These Years: Apex Court Suggests Permanent NEE
 https://www.verdictum.in/supreme-court/suggests-permanent-neet-ug-computer-based-testing-transition-cybersecurity-measures-1618412
 
 [Source Link](https://t.me/verdictumlegalupdates/28141)
-
----
-
-### 2026-07-24T06:28:06+00:00
-Manipur Violence| Supreme Court Proposes Special Courts For Day-to-Day Trials; Directs Time-Bound Supply Of Chargesheets To Victims
-https://www.verdictum.in/supreme-court/proposes-special-courts-trials-manipur-violence-cases-1618408
-
-[Source Link](https://t.me/verdictumlegalupdates/28140)
-
----
-
-### 2026-07-24T05:52:25+00:00
-Temporary Appointment Confers No Right To Permanent Absorption: Madras High Court Rejects Regularisation Plea Of 58 Temporary Court Staff
-https://www.verdictum.in/madras-high-court/r-bharathi-v-state-of-up-2026mhc2999-regularisation-plea-of-58-temporary-court-staff-1618403
-
-[Source Link](https://t.me/verdictumlegalupdates/28139)
-
----
-
-### 2026-07-24T05:12:44+00:00
-Developer Cannot Casually Turn Around & Challenge Occupant's Claim: Supreme Court Restores MHADA's Redevelopment Orders, Directs Developer To Handover Flats Within 2 Months
-https://www.verdictum.in/supreme-court/mahabanoo-contractor-v-ms-kalikund-developers-2026-insc-737-mhadas-redevelopment-orders-developer-to-handover-flats-1618397
-
-[Source Link](https://t.me/verdictumlegalupdates/28138)
-
----
-
-### 2026-07-24T04:33:12+00:00
-"Husband" U/S 80, 85 BNS Covers Legally Married Man, Not Person In Void Second Marriage: Allahabad High Court Grants Bail In Dowry Death Case
-https://www.verdictum.in/allahabad-high-court/sarvesh-alias-chhotu-alias-chhotelal-v-state-of-up-2026ahc151064-1618379
-
-[Source Link](https://t.me/verdictumlegalupdates/28137)
-
----
-
-### 2026-07-23T15:33:13+00:00
-Legal Advisor Vacancy At Animal Welfare Board of India (AWBI)
-https://www.verdictum.in/job-updates/animal-welfare-board-of-india-1618374
-
-[Source Link](https://t.me/verdictumlegalupdates/28136)
 
 ---
 
