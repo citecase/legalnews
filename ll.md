@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-25T09:07:30+00:00*
+*Last Updated: 2026-07-25T09:27:50+00:00*
 
 ---
 
-### 2026-07-25T09:07:30+00:00
-Income Tax Set-Off Rules Can't Be Applied To Reduce Motor Accident Compensation: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-house-property-income-business-or-profession-motor-vehicles-act-542780
-
-[Read on Telegram](https://t.me/livelawindia/115650)
-
----
-### 2026-07-25T09:25:30+00:00
-Delhi Commercial Court Restrains Counterfeiting Of HAVELLS Mark; Awards ₹26 Lakh Damages To Havells
-https://www.livelaw.in/law-firms/litigation/delhi-commercial-court-restrains-counterfeiting-havells-mark-awards-26-lakh-damages-havells-542872
-
-[Read on Telegram](https://t.me/livelawindia/115651)
-
----
 ### 2026-07-25T09:27:50+00:00
 Supreme Court Directs Centre, CBSE To Amend APAAR Consent Form To Give Opt-Out/Refuse Option; Restricts Third-Party Sharing Of Data
 https://www.livelaw.in/top-stories/supreme-court-directs-centre-cbse-to-amend-apaar-consent-form-to-give-opt-outrefuse-option-restricts-third-party-sharing-of-data-542873
@@ -142,5 +128,19 @@ Exclusion Of Caste From List Of Scheduled Castes At Later Date Cannot Take Away 
 https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-caste-promotion-scheduled-castes-benefit-reservation-542895
 
 [Read on Telegram](https://t.me/livelawindia/115669)
+
+---
+### 2026-07-25T14:22:34+00:00
+Pensioner Has Duty To Inform Authorities If Full Pension Is Paid Despite Commutation, Recovery Valid: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/pensioner-point-out-department-inadvertently-pays-full-pension-without-deductions-542896
+
+[Read on Telegram](https://t.me/livelawindia/115670)
+
+---
+### 2026-07-25T14:32:54+00:00
+Heat As An Occupational Hazard: Enforcement Gap In India's Labour And Climate Law
+https://www.livelaw.in/articles/occupational-hazard-enforcement-gap-india-labour-climate-law-542733
+
+[Read on Telegram](https://t.me/livelawindia/115671)
 
 ---
