@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-25T08:02:27+00:00*
+*Last Updated: 2026-07-25T13:52:54+00:00*
+
+---
+
+### 2026-07-25T13:52:54+00:00
+Medical Opinion Rendered During Course Of Her Professional Duties: Patna High Court Quashes Criminal Case Against Doctor Over Medical Opinion
+https://www.verdictum.in/patna-high-court/quashes-criminal-case-against-doctor-over-medical-opinion-1618503
+
+[Source Link](https://t.me/verdictumlegalupdates/28166)
+
+---
+
+### 2026-07-25T12:53:13+00:00
+Police Cannot Negotiate Dilution Of Criminal Law: Madras HC Directs Police Officers To Pay ₹2 Lakh Compensation For Settling Dowry Complaint
+https://www.verdictum.in/madras-high-court/directs-officers-2-lakh-compensation-for-settling-dowry-complaint-1618502
+
+[Source Link](https://t.me/verdictumlegalupdates/28165)
+
+---
+
+### 2026-07-25T11:52:52+00:00
+Shifting Idols From Dilapidated Temple To Ensure Worship Is Not Misconduct By Priest: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/narayan-das-v-state-of-mp-2026mphc-gwl21276-shifting-idol-misconduct-priest-1618501
+
+[Source Link](https://t.me/verdictumlegalupdates/28164)
+
+---
+
+### 2026-07-25T10:52:51+00:00
+Sleeping On Pavement Not Contributory Negligence: Delhi High Court Enhances Motor Accident Compensation
+https://www.verdictum.in/delhi-high-court/digamber-kumar-v-national-ins-co-ltd-2026dhc5907-sleeping-pavement-contributory-negligence-1618500
+
+[Source Link](https://t.me/verdictumlegalupdates/28163)
+
+---
+
+### 2026-07-25T09:53:09+00:00
+Rubbing Of Private Parts Without Penetration Does Not Amount To Penetrative Sexual Assault: Delhi High Court Modifies POCSO Conviction
+https://www.verdictum.in/delhi-high-court/2026-dhc-5865-anil-v-state-1618499
+
+[Source Link](https://t.me/verdictumlegalupdates/28162)
+
+---
+
+### 2026-07-25T08:52:48+00:00
+Himachal Pradesh High Court Dismisses Children’s Suit For Share In Father’s Property, Holds Surviving Brother In Polyandrous Co-Marriage Inherits Under Customary Law
+https://www.verdictum.in/himachal-high-court/shamsher-singh-ors-v-chain-ram-ors-2026hhc30606-customary-law-1618493
+
+[Source Link](https://t.me/verdictumlegalupdates/28161)
 
 ---
 
@@ -113,54 +161,6 @@ Supreme Court Agrees To Hear Pleas Alleging Police Excesses On Students Protesti
 https://www.verdictum.in/supreme-court/pleas-alleging-police-excesses-students-protesting-neet-paper-leak-1618431
 
 [Source Link](https://t.me/verdictumlegalupdates/28147)
-
----
-
-### 2026-07-24T10:02:53+00:00
-Government Not Estopped From Raising Public Law Question Merely For Not Challenging One High Court Ruling: Supreme Court
-https://www.verdictum.in/supreme-court/union-of-india-and-others-v-harbans-lal-verma-2026-insc-739-1618430
-
-[Source Link](https://t.me/verdictumlegalupdates/28146)
-
----
-
-### 2026-07-24T09:32:12+00:00
-No Vested Right To Promotion From Date Vacancy Arose Merely On Eligibility; Right Is Only To Be Considered By DPC In Accordance With Law: Delhi High Court
-https://www.verdictum.in/delhi-high-court/manpreet-kaur-v-indira-gandhi-delhi-technical-university-for-women-2026dhc5886-no-vested-right-to-promotion-from-date-vacancy-1618428
-
-[Source Link](https://t.me/verdictumlegalupdates/28145)
-
----
-
-### 2026-07-24T09:02:51+00:00
-"Not A Single Page Filed": CJI Dismisses "Reckless" Media Reports Over Students’ Protest Hearing Denial
-https://www.verdictum.in/supreme-court/reckless-media-reports-over-students-protest-hearing-denial-1618420
-
-[Source Link](https://t.me/verdictumlegalupdates/28144)
-
----
-
-### 2026-07-24T08:19:50+00:00
-Breaking: Supreme Court Restrains Extraction & Circulation Of Court Proceedings Videos Without Prior Permission
-https://www.verdictum.in/supreme-court/extraction-circulation-of-court-proceedings-videos-without-prior-permission-1618423
-
-[Source Link](https://t.me/verdictumlegalupdates/28143)
-
----
-
-### 2026-07-24T07:52:28+00:00
-Delhi High Court Stays CBDT’s Memo Denying Tax Relief; Asks SC, HC Judges To Show Allowances As "Receipts Not In The Nature Of Income"
-https://www.verdictum.in/delhi-high-court/delhi-tax-bar-association-v-union-of-india-2026dhc5845-db-cbdt-memo-judges-allowances-1618415
-
-[Source Link](https://t.me/verdictumlegalupdates/28142)
-
----
-
-### 2026-07-24T07:19:08+00:00
-Adhocism Is What Has Troubled All These Years: Apex Court Suggests Permanent NEET-UG Reforms, Computer-Based Testing Transition & Cybersecurity Measures
-https://www.verdictum.in/supreme-court/suggests-permanent-neet-ug-computer-based-testing-transition-cybersecurity-measures-1618412
-
-[Source Link](https://t.me/verdictumlegalupdates/28141)
 
 ---
 
