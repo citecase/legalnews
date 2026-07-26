@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-25T12:00:22+00:00*
+*Last Updated: 2026-07-26T04:32:16+00:00*
 
 ---
 
-### 2026-07-25T12:00:22+00:00
-No Legal Basis To Deny Woman Jailor Promotion As Recruitment Rules Make No Gender Distinction: Tripura High Court
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-legal-basis-deny-woman-jailor-promotion-recruitment-rules-542782
-
-[Read on Telegram](https://t.me/livelawindia/115663)
-
----
-### 2026-07-25T12:17:52+00:00
-Can POCSO Court Frame Charges Without Hearing Accused On Discharge? Andhra Pradesh High Court Answers
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-pocso-special-courts-frame-charges-hearing-accused-discharge-542894
-
-[Read on Telegram](https://t.me/livelawindia/115664)
-
----
-### 2026-07-25T12:37:32+00:00
-Bengaluru Court Grants Anticipatory Bail To KPSC Chairperson's Daughter In 'Fake' Family Income Certificate Case
-https://www.livelaw.in/news-updates/bengaluru-court-grants-bail-kpsc-chairperson-daughter-fake-family-income-certificate-case-542883
-
-[Read on Telegram](https://t.me/livelawindia/115665)
-
----
-### 2026-07-25T12:39:12+00:00
-Know The Law | Factors To Be Considered While Sentencing A Convict? Supreme Court Explains
-https://www.livelaw.in/supreme-court/know-the-law-factors-to-be-considered-while-sentencing-a-convict-supreme-court-explains-542797
-
-[Read on Telegram](https://t.me/livelawindia/115666)
-
----
-### 2026-07-25T12:57:12+00:00
-Students Are Jailed For Merely Protesting; Bail Denied Even For Having Biryani On Ganga Boat Trip : Justice Ujjal Bhuyan
-https://www.livelaw.in/top-stories/students-are-jailed-for-merely-protesting-bail-denied-even-for-having-biryani-on-ganga-boat-trip-justice-ujjal-bhuyan-542916
-
-[Read on Telegram](https://t.me/livelawindia/115667)
-
----
-### 2026-07-25T12:57:52+00:00
-Judge Need Not Recuse From Hearing RBI Employee's Plea Merely Because He Appeared For RBI As Lawyer: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/judge-appeared-public-bodies-matters-recusal-demand-542897
-
-[Read on Telegram](https://t.me/livelawindia/115668)
-
----
-### 2026-07-25T13:32:24+00:00
-Exclusion Of Caste From List Of Scheduled Castes At Later Date Cannot Take Away Promotion Granted Earlier: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-caste-promotion-scheduled-castes-benefit-reservation-542895
-
-[Read on Telegram](https://t.me/livelawindia/115669)
-
----
-### 2026-07-25T14:22:34+00:00
-Pensioner Has Duty To Inform Authorities If Full Pension Is Paid Despite Commutation, Recovery Valid: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/pensioner-point-out-department-inadvertently-pays-full-pension-without-deductions-542896
-
-[Read on Telegram](https://t.me/livelawindia/115670)
-
----
-### 2026-07-25T14:32:54+00:00
-Heat As An Occupational Hazard: Enforcement Gap In India's Labour And Climate Law
-https://www.livelaw.in/articles/occupational-hazard-enforcement-gap-india-labour-climate-law-542733
-
-[Read on Telegram](https://t.me/livelawindia/115671)
-
----
 ### 2026-07-26T04:32:16+00:00
 Bharatiya Nagarik Suraksha Sanhita (BNSS) And Bhartiya Nyaya Sanhita (BNS) Half-Yearly Digest: January - June, 2026
 https://www.livelaw.in/top-stories/bnss-bns-latest-judgments-half-yearly-digest-2026-542012
@@ -142,5 +79,68 @@ Wife Needn't File Successive Pleas For Maintenance Recovery: Allahabad High Cour
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-wife-neednt-file-successive-pleas-maintenance-recovery-contempt-warning-542934
 
 [Read on Telegram](https://t.me/livelawindia/115682)
+
+---
+### 2026-07-26T09:12:59+00:00
+Licensed Foreign Liquor Shop Can't Be Shut Down On Moral Objections If It Complies With Excise Law: Meghalaya High Court
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-church-development-committee-moral-objections-defeat-imfl-licence-542902
+
+[Read on Telegram](https://t.me/livelawindia/115683)
+
+---
+### 2026-07-26T09:32:19+00:00
+Beyond Documents: Why Foreigners' Tribunals Must Assess Citizenship Evidence As Whole
+https://www.livelaw.in/articles/foreigners-tribunals-assess-citizenship-evidence-542808
+
+[Read on Telegram](https://t.me/livelawindia/115684)
+
+---
+### 2026-07-26T09:52:40+00:00
+Magistrate Can Rely On S.202 CrPC Inquiry To Decline Process Where Complaint Gives Criminal Colour To Civil Dispute: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/magistrate-can-rely-on-section-202-inquiry-to-decline-process-where-complaint-merely-gives-criminal-colour-to-civil-dispute-jkl-high-court-542903
+
+[Read on Telegram](https://t.me/livelawindia/115685)
+
+---
+### 2026-07-26T10:42:10+00:00
+S.528 BNSS | Can High Court Invoke Its Inherent Powers Suo Motu To Quash Criminal Case In A Complainant's Appeal? Allahabad HC Answers
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-section-528-bnss-suo-motu-inherent-powers-complainant-appeal-542935
+
+[Read on Telegram](https://t.me/livelawindia/115686)
+
+---
+### 2026-07-26T10:52:20+00:00
+Revenue Authority Must Decide Limitation Before Entertaining Appeal Against 31-Year-Old Mutation: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/thirty-one-years-after-a-revenue-appeal-was-entertained-against-a-1959-mutation-jkl-high-court-says-limitation-had-to-be-decided-first-542904
+
+[Read on Telegram](https://t.me/livelawindia/115687)
+
+---
+### 2026-07-26T11:37:21+00:00
+Allahabad High Court Summons UP Home Secy Sanjay Prasad In Contempt Plea Over Unpaid Compensation, Pending Custodial Death Guidelines
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-summons-up-home-secretary-sanjay-prasad-contempt-custodial-death-compensation-542936
+
+[Read on Telegram](https://t.me/livelawindia/115688)
+
+---
+### 2026-07-26T11:49:31+00:00
+Senior Legal Professional (Contract Management & Legal Operations Support) Vacancy At Tata Consultancy Services Limited
+https://www.livelaw.in/job-updates/senior-legal-professional-contract-management-legal-operations-support-vacancy-at-tata-consultancy-services-limited-542937
+
+[Read on Telegram](https://t.me/livelawindia/115689)
+
+---
+### 2026-07-26T11:57:51+00:00
+O.7 R.11 CPC | Plaint Can Only Be Rejected Based On Its Own Averments, Defendant's Stand Immaterial: Andhra Pradesh High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-plaint-rejected-averments-defence-considered-orderviirule11cpc-542905
+
+[Read on Telegram](https://t.me/livelawindia/115690)
+
+---
+### 2026-07-26T13:26:12+00:00
+CJP Protests : PIL In Supreme Court Seeks FIR Against Delhi Police, CAPF Officials Over Use Of Force On Student Protesters
+https://www.livelaw.in/top-stories/cjp-protests-pil-in-supreme-court-seeks-fir-against-delhi-police-capf-officials-over-use-of-force-on-student-protesters-542938
+
+[Read on Telegram](https://t.me/livelawindia/115691)
 
 ---
