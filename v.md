@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-26T07:32:44+00:00*
+*Last Updated: 2026-07-26T13:02:38+00:00*
+
+---
+
+### 2026-07-26T13:02:38+00:00
+Scope Of Judicial Review In Tender Matters Limited: Patna High Court Upholds Blacklisting Of Drug Supplier Over Failing Seal Quality Tests
+https://www.verdictum.in/patna-high-court/blacklisting-drug-supplier-over-failing-seal-quality-tests-1618543
+
+[Source Link](https://t.me/verdictumlegalupdates/28173)
+
+---
+
+### 2026-07-26T11:32:37+00:00
+Public Documents Need Not Be Proved By Authors In Disciplinary Enquiry: Patna High Court Dismisses Bank Officer’s Plea Against Dismissal
+https://www.verdictum.in/patna-high-court/vinay-verma-v-uttar-bihar-gramin-bank-disciplinary-proceedings-public-documents-1618542
+
+[Source Link](https://t.me/verdictumlegalupdates/28172)
+
+---
+
+### 2026-07-26T09:32:56+00:00
+ChatGPT LLM Training Prima Facie Covered U/S 52 Copyright Act: Delhi High Court Dismisses ANI’s Interim Injunction Plea Against OpenAI
+https://www.verdictum.in/delhi-high-court/ani-media-pvt-ltd-v-open-ai-opco-llc-2026dhc5900-chatgpt-llm-training-1618541
+
+[Source Link](https://t.me/verdictumlegalupdates/28171)
 
 ---
 
@@ -137,30 +161,6 @@ Ornaments In Police Custody Were Replaced By Fake Ones: Madhya Pradesh High Cour
 https://www.verdictum.in/madhya-pradesh-high-court/jmfc-joura-v-shyam-singh-2026mphc-gwl21703-investigation-acquittal-accused-police-1618445
 
 [Source Link](https://t.me/verdictumlegalupdates/28154)
-
----
-
-### 2026-07-24T14:33:11+00:00
-Court Cannot Modify Arbitral Award: Karnataka High Court Sets Aside District Court’s Revised Compensation Order In NHAI Land Acquisition Case
-https://www.verdictum.in/karnataka-high-court/national-highways-authority-of-india-v-iravva-and-connected-matter-2026khc-d9208-db-1618444
-
-[Source Link](https://t.me/verdictumlegalupdates/28153)
-
----
-
-### 2026-07-24T13:53:20+00:00
-Appointment Secured Through Fake Disability Certificates In Priority Quota Is Void Ab Initio: Madras High Court Orders Enquiry
-https://www.verdictum.in/madras-high-court/g-premkumar-v-the-executive-officer-persons-with-disabilities-fraudulent-appointment-1618443
-
-[Source Link](https://t.me/verdictumlegalupdates/28152)
-
----
-
-### 2026-07-24T13:11:19+00:00
-Motor Accident Compensation| Woman Can Claim For Personal Injury Due To Loss Of Foetus: Delhi High Court
-https://www.verdictum.in/delhi-high-court/anshu-kashyap-v-iffco-tokio-general-insurance-co-ltd-2026dhc5591-injured-personal-injury-1618442
-
-[Source Link](https://t.me/verdictumlegalupdates/28151)
 
 ---
 
