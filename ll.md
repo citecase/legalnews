@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-26T04:32:16+00:00*
+*Last Updated: 2026-07-26T06:07:47+00:00*
 
 ---
 
-### 2026-07-26T04:32:16+00:00
-Bharatiya Nagarik Suraksha Sanhita (BNSS) And Bhartiya Nyaya Sanhita (BNS) Half-Yearly Digest: January - June, 2026
-https://www.livelaw.in/top-stories/bnss-bns-latest-judgments-half-yearly-digest-2026-542012
-
-[Read on Telegram](https://t.me/livelawindia/115672)
-
----
-### 2026-07-26T04:32:37+00:00
-Beyond Breathalyzer: 5 Surprising Lessons From Indian Courts On Alcohol And Insurance Claims
-https://www.livelaw.in/lawschool/articles/surprising-lessons-indian-courts-alcohol-insurance-claims-542807
-
-[Read on Telegram](https://t.me/livelawindia/115673)
-
----
-### 2026-07-26T04:52:06+00:00
-Delhi Consumer Commission Declares Its Own Refund Order 'Non-Est' After NCLT-Approved Plan-A Is Implemented
-https://www.livelaw.in/consumer-cases/delhi-consumer-commission-declares-its-own-refund-order-non-est-after-nclt-approved-plan-a-is-implemented-542928
-
-[Read on Telegram](https://t.me/livelawindia/115674)
-
----
-### 2026-07-26T05:17:47+00:00
-After Personally Inspecting Thiruvananthapuram Mental Health Centre, Kerala High Court Flags 'Prison-Like' Conditions, Orders Urgent Reforms
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-mental-health-centre-thiruvananthapuram-542929
-
-[Read on Telegram](https://t.me/livelawindia/115675)
-
----
-### 2026-07-26T05:37:27+00:00
-Chhattisgarh High Court To Monitor Statewide Implementation Of SOP To Prevent Dog-Bite Incidents, Manage Stray Dogs
-https://www.livelaw.in/high-court/chhattisgarh-high-court/sop-management-stray-dogs-public-institutions-fenced-542898
-
-[Read on Telegram](https://t.me/livelawindia/115676)
-
----
-### 2026-07-26T06:05:57+00:00
-Supreme Court Quashes POCSO Case Lodged By Wife Against Husband's Sister, Flags Trend Of Dragging In-Laws Into Family Dispute
-https://www.livelaw.in/top-stories/supreme-court-quashes-pocso-case-lodged-by-wife-against-husbands-sister-flags-trend-of-dragging-in-laws-into-family-dispute-542931
-
-[Read on Telegram](https://t.me/livelawindia/115677)
-
----
-### 2026-07-26T06:07:37+00:00
-Only Voter Or Candidate From Same Constituency Can File Election Petition: Madras High Court Dismisses Plea Against Senthil Balaji
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-election-petition-only-file-by-elector-same-constituency-542932
-
-[Read on Telegram](https://t.me/livelawindia/115678)
-
----
 ### 2026-07-26T06:07:47+00:00
 2026 LiveLaw (SC) 720 | Archana Avinash Shelke v State of Maharashtra
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-720-archana-avinash-shelke-v-state-of-maharashtra-542933
@@ -142,5 +93,54 @@ CJP Protests : PIL In Supreme Court Seeks FIR Against Delhi Police, CAPF Officia
 https://www.livelaw.in/top-stories/cjp-protests-pil-in-supreme-court-seeks-fir-against-delhi-police-capf-officials-over-use-of-force-on-student-protesters-542938
 
 [Read on Telegram](https://t.me/livelawindia/115691)
+
+---
+### 2026-07-26T14:33:03+00:00
+Tackling Issue Of Speaker's Authority And Procrastination Under Anti Defection Law
+https://www.livelaw.in/articles/tackling-issue-speaker-authority-procrastination-anti-defection-law-542809
+
+[Read on Telegram](https://t.me/livelawindia/115692)
+
+---
+### 2026-07-26T14:53:23+00:00
+S.125 CrPC | Woman Induced Into Marriage By Concealment Of Husband's Existing Marriage Entitled To Maintenance: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-125-crpc-woman-induced-marriage-concealment-husband-maintenance-542939
+
+[Read on Telegram](https://t.me/livelawindia/115693)
+
+---
+### 2026-07-26T14:55:03+00:00
+14 Exclusive Courts For NIA Trials Established Across Country, 113 For NDPS : Union Tells Supreme Court; More Courts In 4 Weeks
+https://www.livelaw.in/top-stories/supreme-court-union-says-14-dedicated-courts-for-exclusive-nia-trials-established-113-designated-for-ndps-trials-542940
+
+[Read on Telegram](https://t.me/livelawindia/115694)
+
+---
+### 2026-07-26T15:11:13+00:00
+Kerala Law Academy Inaugurates CLEA-MILAT Research Mentoring Programme 2026 To Strengthen Legal Research Culture
+https://www.livelaw.in/lawschool/news/kerala-law-academy-inaugurates-clea-milat-research-mentoring-programme-2026-strengthen-legal-research-culture-542941
+
+[Read on Telegram](https://t.me/livelawindia/115695)
+
+---
+### 2026-07-26T15:22:13+00:00
+DLSA Durg Begins Community Mediation Training Programme Under NALSA's Litigation-Free Rural India Initiative
+https://www.livelaw.in/news-updates/dlsa-durg-begins-community-mediation-training-programme-under-nalsas-litigation-free-rural-india-initiative-542942
+
+[Read on Telegram](https://t.me/livelawindia/115696)
+
+---
+### 2026-07-26T15:27:13+00:00
+LiveLaw Allahabad High Court Weekly Round Up: July 20 To July 26, 2026
+https://www.livelaw.in/high-court/allahabad-high-court/livelaw-allahabad-high-court-weekly-round-up-july-20-to-july-26-2026-542943
+
+[Read on Telegram](https://t.me/livelawindia/115697)
+
+---
+### 2026-07-26T15:37:33+00:00
+States Will Less Than 1000 Consumer Cases May Abolish Some District Commissions : Supreme Court
+https://www.livelaw.in/top-stories/states-will-less-than-1000-consumer-cases-may-abolish-some-district-commissions-supreme-court-542944
+
+[Read on Telegram](https://t.me/livelawindia/115698)
 
 ---
