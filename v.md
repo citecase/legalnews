@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-26T13:02:38+00:00*
+*Last Updated: 2026-07-26T14:32:20+00:00*
+
+---
+
+### 2026-07-26T14:32:20+00:00
+Senior Consultant (Law) Vacancy At Airports Authority of India (AAI)
+https://www.verdictum.in/job-updates/airports-authority-of-india-1618506
+
+[Source Link](https://t.me/verdictumlegalupdates/28174)
 
 ---
 
@@ -153,14 +161,6 @@ Young Professional Vacancy At Rajasthan Police Recruitment
 https://www.verdictum.in/job-updates/rajasthan-police-recruitment-1618441
 
 [Source Link](https://t.me/verdictumlegalupdates/28155)
-
----
-
-### 2026-07-24T15:32:33+00:00
-Ornaments In Police Custody Were Replaced By Fake Ones: Madhya Pradesh High Court Directs Further Investigation Even After Acquittal Of Accused
-https://www.verdictum.in/madhya-pradesh-high-court/jmfc-joura-v-shyam-singh-2026mphc-gwl21703-investigation-acquittal-accused-police-1618445
-
-[Source Link](https://t.me/verdictumlegalupdates/28154)
 
 ---
 
