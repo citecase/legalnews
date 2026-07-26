@@ -1,86 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-25T09:27:50+00:00*
+*Last Updated: 2026-07-25T12:00:22+00:00*
 
 ---
 
-### 2026-07-25T09:27:50+00:00
-Supreme Court Directs Centre, CBSE To Amend APAAR Consent Form To Give Opt-Out/Refuse Option; Restricts Third-Party Sharing Of Data
-https://www.livelaw.in/top-stories/supreme-court-directs-centre-cbse-to-amend-apaar-consent-form-to-give-opt-outrefuse-option-restricts-third-party-sharing-of-data-542873
-
-[Read on Telegram](https://t.me/livelawindia/115652)
-
----
-### 2026-07-25T09:29:00+00:00
-2026 LiveLaw (SC) 719 | ABHISHEK BAXI Vs UNION OF INDIA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-719-abhishek-baxi-vs-union-of-india-542875
-
-[Read on Telegram](https://t.me/livelawindia/115653)
-
----
-### 2026-07-25T09:32:40+00:00
-Is India's Data Protection Board Independent Enough To Protect You?
-https://www.livelaw.in/articles/india-data-protection-board-542731
-
-[Read on Telegram](https://t.me/livelawindia/115654)
-
----
-### 2026-07-25T09:45:41+00:00
-Karnataka High Court Directs DGP To Submit Report On Power Backup In Police Stations After CCTV Failure When Woman Was Allegedly Tortured
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-cctv-failure-woman-allegedly-tortured-report-ups-installation-542881
-
-[Read on Telegram](https://t.me/livelawindia/115655)
-
----
-### 2026-07-25T10:13:21+00:00
-'Situation Not Normal': Calcutta High Court Declines Plea By TMC Student Wing For Rally In Solidarity With NEET Protest In Delhi
-https://www.livelaw.in/high-court/calcutta-high-court/situation-not-normal-calcutta-high-court-declines-plea-by-tmc-student-wing-for-rally-in-solidarity-with-neet-protest-in-delhi-542887
-
-[Read on Telegram](https://t.me/livelawindia/115656)
-
----
-### 2026-07-25T10:22:21+00:00
-Santal Mission Of Northern Churches Dispute | Jharkhand High Court Holds Declaration Against 1968 Transfer Barred By Limitation, Non-Joinder
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-holds-declaration-transfer-barred-limitation-542774
-
-[Read on Telegram](https://t.me/livelawindia/115657)
-
----
-### 2026-07-25T10:43:11+00:00
-Madras High Court Grants Anticipatory Bail To Man Accused Of Illegally Watching CM Vijay's 'Jana Nayagan' Movie Online Before Release
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-jana-nayagan-leak-aticipatory-bail-man-watched-movie-542882
-
-[Read on Telegram](https://t.me/livelawindia/115658)
-
----
-### 2026-07-25T10:52:32+00:00
-Interest Under Employee's Compensation Act Payable From Date Of Accident; Widow Entitled To Penalty For Delay: Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-employee-compensation-payable-accident-date-penalty-for-delay-542891
-
-[Read on Telegram](https://t.me/livelawindia/115659)
-
----
-### 2026-07-25T11:17:42+00:00
-Convict's Age, Physical Fitness Alone Cannot Justify Denial Of Premature Release: Meghalaya High Court
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-physical-fitness-denial-premature-release-reformation-incarceration-542781
-
-[Read on Telegram](https://t.me/livelawindia/115660)
-
----
-### 2026-07-25T11:18:02+00:00
-S.482 BNSS | Accused Need Not Surrender Before Jurisdictional Magistrate To Avail Anticipatory Bail: Andhra Pradesh High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-accused-surrender-jurisdictional-magistrate-section438-crpc-542893
-
-[Read on Telegram](https://t.me/livelawindia/115661)
-
----
-### 2026-07-25T11:28:42+00:00
-Who Speaks For The Indian Bar?
-https://www.livelaw.in/articles/bar-council-of-india-chairman-unauthorized-press-release-independence-bar-542909
-
-[Read on Telegram](https://t.me/livelawindia/115662)
-
----
 ### 2026-07-25T12:00:22+00:00
 No Legal Basis To Deny Woman Jailor Promotion As Recruitment Rules Make No Gender Distinction: Tripura High Court
 https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-legal-basis-deny-woman-jailor-promotion-recruitment-rules-542782
@@ -142,5 +65,82 @@ Heat As An Occupational Hazard: Enforcement Gap In India's Labour And Climate La
 https://www.livelaw.in/articles/occupational-hazard-enforcement-gap-india-labour-climate-law-542733
 
 [Read on Telegram](https://t.me/livelawindia/115671)
+
+---
+### 2026-07-26T04:32:16+00:00
+Bharatiya Nagarik Suraksha Sanhita (BNSS) And Bhartiya Nyaya Sanhita (BNS) Half-Yearly Digest: January - June, 2026
+https://www.livelaw.in/top-stories/bnss-bns-latest-judgments-half-yearly-digest-2026-542012
+
+[Read on Telegram](https://t.me/livelawindia/115672)
+
+---
+### 2026-07-26T04:32:37+00:00
+Beyond Breathalyzer: 5 Surprising Lessons From Indian Courts On Alcohol And Insurance Claims
+https://www.livelaw.in/lawschool/articles/surprising-lessons-indian-courts-alcohol-insurance-claims-542807
+
+[Read on Telegram](https://t.me/livelawindia/115673)
+
+---
+### 2026-07-26T04:52:06+00:00
+Delhi Consumer Commission Declares Its Own Refund Order 'Non-Est' After NCLT-Approved Plan-A Is Implemented
+https://www.livelaw.in/consumer-cases/delhi-consumer-commission-declares-its-own-refund-order-non-est-after-nclt-approved-plan-a-is-implemented-542928
+
+[Read on Telegram](https://t.me/livelawindia/115674)
+
+---
+### 2026-07-26T05:17:47+00:00
+After Personally Inspecting Thiruvananthapuram Mental Health Centre, Kerala High Court Flags 'Prison-Like' Conditions, Orders Urgent Reforms
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-mental-health-centre-thiruvananthapuram-542929
+
+[Read on Telegram](https://t.me/livelawindia/115675)
+
+---
+### 2026-07-26T05:37:27+00:00
+Chhattisgarh High Court To Monitor Statewide Implementation Of SOP To Prevent Dog-Bite Incidents, Manage Stray Dogs
+https://www.livelaw.in/high-court/chhattisgarh-high-court/sop-management-stray-dogs-public-institutions-fenced-542898
+
+[Read on Telegram](https://t.me/livelawindia/115676)
+
+---
+### 2026-07-26T06:05:57+00:00
+Supreme Court Quashes POCSO Case Lodged By Wife Against Husband's Sister, Flags Trend Of Dragging In-Laws Into Family Dispute
+https://www.livelaw.in/top-stories/supreme-court-quashes-pocso-case-lodged-by-wife-against-husbands-sister-flags-trend-of-dragging-in-laws-into-family-dispute-542931
+
+[Read on Telegram](https://t.me/livelawindia/115677)
+
+---
+### 2026-07-26T06:07:37+00:00
+Only Voter Or Candidate From Same Constituency Can File Election Petition: Madras High Court Dismisses Plea Against Senthil Balaji
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-election-petition-only-file-by-elector-same-constituency-542932
+
+[Read on Telegram](https://t.me/livelawindia/115678)
+
+---
+### 2026-07-26T06:07:47+00:00
+2026 LiveLaw (SC) 720 | Archana Avinash Shelke v State of Maharashtra
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-720-archana-avinash-shelke-v-state-of-maharashtra-542933
+
+[Read on Telegram](https://t.me/livelawindia/115679)
+
+---
+### 2026-07-26T06:38:07+00:00
+Bombay High Court Quashes Mutation Of Wakf Properties As Enemy Property, Says Due Process Is Mandatory
+https://www.livelaw.in/high-court/bombay-high-court/section-22a-enemy-property-act-cannot-nullify-high-court-orders-article-226-542899
+
+[Read on Telegram](https://t.me/livelawindia/115680)
+
+---
+### 2026-07-26T08:07:58+00:00
+Gravity Of POCSO Allegation Alone Can't Justify Denial Of Bail To Juvenile: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-grants-bail-juvenile-pocso-case-denial-bail-542900
+
+[Read on Telegram](https://t.me/livelawindia/115681)
+
+---
+### 2026-07-26T08:20:09+00:00
+Wife Needn't File Successive Pleas For Maintenance Recovery: Allahabad High Court Warns Judicial Officers Of Contempt If SC Guidelines Ignored
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-wife-neednt-file-successive-pleas-maintenance-recovery-contempt-warning-542934
+
+[Read on Telegram](https://t.me/livelawindia/115682)
 
 ---
