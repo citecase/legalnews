@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-25T14:32:55+00:00*
+*Last Updated: 2026-07-26T07:32:44+00:00*
+
+---
+
+### 2026-07-26T07:32:44+00:00
+Gift Must Be Done By Executing Registered Deed: Patna High Court Rejects State's Claim Of Right Over Land Based On Oral Gift
+https://www.verdictum.in/patna-high-court/santosh-kumar-ishwar-v-the-state-of-bihar-oral-gift-limitation-article-300a-1618514
+
+[Source Link](https://t.me/verdictumlegalupdates/28170)
+
+---
+
+### 2026-07-26T06:02:43+00:00
+FIR Lodged Suppressing Fact Of Settlement & Receiving Stridhan Back: Gujarat High Court Quashes Section 498A IPC Case
+https://www.verdictum.in/gujarat-high-court/a-ors-v-state-of-gujarat-2026gujhc42030-fir-settlement-stridhan-section-498a-ipc-1618513
+
+[Source Link](https://t.me/verdictumlegalupdates/28169)
+
+---
+
+### 2026-07-26T04:32:12+00:00
+Successive Execution Applications Not Required For Receiving Monthly Maintenance: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/2026-ahc-152860-mala-kumari-v-state-of-up-1618507
+
+[Source Link](https://t.me/verdictumlegalupdates/28168)
 
 ---
 
@@ -137,30 +161,6 @@ Motor Accident Compensation| Woman Can Claim For Personal Injury Due To Loss Of 
 https://www.verdictum.in/delhi-high-court/anshu-kashyap-v-iffco-tokio-general-insurance-co-ltd-2026dhc5591-injured-personal-injury-1618442
 
 [Source Link](https://t.me/verdictumlegalupdates/28151)
-
----
-
-### 2026-07-24T12:32:38+00:00
-Proviso To Section 26 Stamp Act Not Inconsistent With Main Provision; Method Of Calculation Of Stamp Duty In Case Of Mining Is Through Anticipated Royalty: Supreme Court
-https://www.verdictum.in/supreme-court/ms-birla-corporation-limited-v-the-state-of-madhya-pradesh-2026-insc-738-royalty-stamp-act-1618440
-
-[Source Link](https://t.me/verdictumlegalupdates/28150)
-
----
-
-### 2026-07-24T11:52:37+00:00
-Personal Law Can’t Override Requirement U/S 4 Special Marriage Act That Neither Party Should Have A Living Spouse At Time Of Marriage: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/km-v-mab-2026khc-d9731-personal-law-special-marriage-act-section-4-void-1618439
-
-[Source Link](https://t.me/verdictumlegalupdates/28149)
-
----
-
-### 2026-07-24T11:12:55+00:00
-DNA Test Of Daughter To Determine Paternity Cannot Be Ordered Without Consent After She Becomes Major And Marries: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/ysc-v-my-dna-paternity-test-married-daughter-consent-privacy-maintenance-1618434
-
-[Source Link](https://t.me/verdictumlegalupdates/28148)
 
 ---
 
