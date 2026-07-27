@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-27T12:06:07+00:00*
+*Last Updated: 2026-07-27T12:33:18+00:00*
 
 ---
 
-### 2026-07-27T12:06:07+00:00
-Kasol Rave Parties : Supreme Court Stays HC Direction For FIR Against Himachal Officers, Upholds Transfer
-https://www.livelaw.in/top-stories/kasol-rave-parties-supreme-court-stays-hc-direction-for-fir-against-himachal-officers-upholds-transfer-543068
-
-[Read on Telegram](https://t.me/livelawindia/115760)
-
----
-### 2026-07-27T12:07:17+00:00
-Police Aid To Enforce Injunction Is Continuing Remedy, Not Barred By Res Judicata: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-police-aid-enforce-injunction-res-judicata-543048
-
-[Read on Telegram](https://t.me/livelawindia/115761)
-
----
-### 2026-07-27T12:27:57+00:00
-'Let Things Cool Down Further': Delhi High Court Adjourns PIL Against Surveillance Of Protesters At Jantar Mantar
-https://www.livelaw.in/high-court/delhi-high-court/neet-student-protests-jantar-mantar-delhi-police-surveillance-543072
-
-[Read on Telegram](https://t.me/livelawindia/115762)
-
----
-### 2026-07-27T12:31:18+00:00
-New Criminal Law Allows Police Custody Beyond First 15 Days : Supreme Court Explains S.187(2) BNSS
-https://www.livelaw.in/supreme-court/new-criminal-law-allows-police-custody-beyond-first-15-days-supreme-court-explains-s1872-bnss-543073
-
-[Read on Telegram](https://t.me/livelawindia/115763)
-
----
-### 2026-07-27T12:32:28+00:00
-LiveLaw Kerala High Court Weekly Round-Up: July 20 - July 26, 2026
-https://www.livelaw.in/high-court/kerala-high-court/livelaw-kerala-high-court-weekly-round-up-july-20-july-26-2026-542967
-
-[Read on Telegram](https://t.me/livelawindia/115764)
-
----
 ### 2026-07-27T12:33:18+00:00
 2026 LiveLaw (SC) 722 | THE STATE OF ANDHRA PRADESH VERSUS SUDA SURESH VEERA VENKATA NAGA RAJU
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-722-the-state-of-andhra-pradesh-versus-suda-suresh-veera-venkata-naga-raju-543075
@@ -146,5 +111,40 @@ LiveLaw Madhya Pradesh High Court Weekly Roundup: July 20 - July 26, 2026
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-weekly-digest-july-20-to-july-26-2026-543053
 
 [Read on Telegram](https://t.me/livelawindia/115779)
+
+---
+### 2026-07-27T14:46:28+00:00
+Kapil Sibal Contributes Rs 1 Crore For CJP's Legal Aid Fund For Student Protesters Facing FIRs
+https://www.livelaw.in/top-stories/kapil-sibal-contributes-rs-1-crore-for-cjps-legal-aid-fund-for-student-protesters-facing-firs-543091
+
+[Read on Telegram](https://t.me/livelawindia/115780)
+
+---
+### 2026-07-27T14:55:48+00:00
+Allahabad High Court Sends 82 Y/O Murder Convict Back To Jail After 40 Yrs; Says It Can't Reduce Sentence By Invoking Article 142
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-82-year-old-murder-convict-back-to-jail-article-142-543093
+
+[Read on Telegram](https://t.me/livelawindia/115781)
+
+---
+### 2026-07-27T15:56:58+00:00
+Delhi Protesters Allegedly Hit By Pellets Move Supreme Court Seeking Ban On Pellet Guns In Civilian Protests
+https://www.livelaw.in/top-stories/delhi-protesters-allegedly-hit-by-pellets-move-supreme-court-seeking-ban-on-pellet-guns-in-civilian-protests-543104
+
+[Read on Telegram](https://t.me/livelawindia/115782)
+
+---
+### 2026-07-27T17:17:39+00:00
+Supreme Court Daily Round-Up : July 27, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-july-27-2026-543105
+
+[Read on Telegram](https://t.me/livelawindia/115783)
+
+---
+### 2026-07-27T18:07:49+00:00
+Telangana State Legal Services Authority Holds Sensitisation Programme For Teachers Appointed As Child Protection Officers
+https://www.livelaw.in/news-updates/telangana-state-legal-services-authority-holds-sensitisation-programme-543107
+
+[Read on Telegram](https://t.me/livelawindia/115784)
 
 ---
