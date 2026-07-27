@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-26T06:07:47+00:00*
+*Last Updated: 2026-07-26T09:32:19+00:00*
 
 ---
 
-### 2026-07-26T06:07:47+00:00
-2026 LiveLaw (SC) 720 | Archana Avinash Shelke v State of Maharashtra
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-720-archana-avinash-shelke-v-state-of-maharashtra-542933
-
-[Read on Telegram](https://t.me/livelawindia/115679)
-
----
-### 2026-07-26T06:38:07+00:00
-Bombay High Court Quashes Mutation Of Wakf Properties As Enemy Property, Says Due Process Is Mandatory
-https://www.livelaw.in/high-court/bombay-high-court/section-22a-enemy-property-act-cannot-nullify-high-court-orders-article-226-542899
-
-[Read on Telegram](https://t.me/livelawindia/115680)
-
----
-### 2026-07-26T08:07:58+00:00
-Gravity Of POCSO Allegation Alone Can't Justify Denial Of Bail To Juvenile: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-grants-bail-juvenile-pocso-case-denial-bail-542900
-
-[Read on Telegram](https://t.me/livelawindia/115681)
-
----
-### 2026-07-26T08:20:09+00:00
-Wife Needn't File Successive Pleas For Maintenance Recovery: Allahabad High Court Warns Judicial Officers Of Contempt If SC Guidelines Ignored
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-wife-neednt-file-successive-pleas-maintenance-recovery-contempt-warning-542934
-
-[Read on Telegram](https://t.me/livelawindia/115682)
-
----
-### 2026-07-26T09:12:59+00:00
-Licensed Foreign Liquor Shop Can't Be Shut Down On Moral Objections If It Complies With Excise Law: Meghalaya High Court
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-church-development-committee-moral-objections-defeat-imfl-licence-542902
-
-[Read on Telegram](https://t.me/livelawindia/115683)
-
----
 ### 2026-07-26T09:32:19+00:00
 Beyond Documents: Why Foreigners' Tribunals Must Assess Citizenship Evidence As Whole
 https://www.livelaw.in/articles/foreigners-tribunals-assess-citizenship-evidence-542808
@@ -142,5 +107,40 @@ States Will Less Than 1000 Consumer Cases May Abolish Some District Commissions 
 https://www.livelaw.in/top-stories/states-will-less-than-1000-consumer-cases-may-abolish-some-district-commissions-supreme-court-542944
 
 [Read on Telegram](https://t.me/livelawindia/115698)
+
+---
+### 2026-07-27T02:37:34+00:00
+Young Professional Vacancy At Rajasthan Police
+https://www.livelaw.in/job-updates/young-professional-vacancy-at-rajasthan-police-542953
+
+[Read on Telegram](https://t.me/livelawindia/115699)
+
+---
+### 2026-07-27T02:39:34+00:00
+Assistant Professor Grade-II, Assistant Professor Grade-I, Associate Professor, Professor Vacancy At Indian Institute Of Management Ranchi (IIM Ranchi)
+https://www.livelaw.in/job-updates/assistant-professor-grade-ii-assistant-professor-grade-i-associate-professor-professor-vacancy-at-indian-institute-of-management-ranchi-iim-ranchi-542954
+
+[Read on Telegram](https://t.me/livelawindia/115700)
+
+---
+### 2026-07-27T02:40:34+00:00
+Consultant (Conflict of Laws/Private International Law) Vacancy At Ministry Of External Affairs
+https://www.livelaw.in/job-updates/consultant-conflict-of-lawsprivate-international-law-vacancy-at-ministry-of-external-affairs-542955
+
+[Read on Telegram](https://t.me/livelawindia/115701)
+
+---
+### 2026-07-27T02:41:54+00:00
+Assistant Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
+https://www.livelaw.in/job-updates/assistant-manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-542956
+
+[Read on Telegram](https://t.me/livelawindia/115702)
+
+---
+### 2026-07-27T03:32:44+00:00
+Gauhati High Court Closes PIL Seeking Establishment Of Mizoram State Human Rights Commission After State Constitutes Body
+https://www.livelaw.in/high-court/gauhati-high-court/mizoram-state-human-rights-commission-constituted-pil-closed-542957
+
+[Read on Telegram](https://t.me/livelawindia/115703)
 
 ---
