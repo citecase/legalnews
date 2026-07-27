@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-27T09:52:09+00:00*
+*Last Updated: 2026-07-27T15:03:11+00:00*
+
+---
+
+### 2026-07-27T15:03:11+00:00
+Second Wife Entitled To Maintenance When She Had No Knowledge Of Subsisting Marriage: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/a-v-b-2026ahc144708-second-wife-maintenance-husband-1618610
+
+[Source Link](https://t.me/verdictumlegalupdates/28193)
+
+---
+
+### 2026-07-27T14:32:50+00:00
+Registrar's Finding On Non-Bona Fide Adoption Prevails Over Subsequently Filed Invoices: Delhi High Court Upholds Injunction Against Using DYNAFRESH Mark
+https://www.verdictum.in/delhi-high-court/jagdish-dahyalal-patel-v-anchor-consumer-products-private-limited-2026dhc5952-db-dynafresh-injunction-1618609
+
+[Source Link](https://t.me/verdictumlegalupdates/28192)
+
+---
+
+### 2026-07-27T14:02:48+00:00
+Rights Of Metro Passengers To Be Balanced With Street Vendors’ Rights: Delhi High Court Asks MCD To Identify Space For Disabled Vendor
+https://www.verdictum.in/delhi-high-court/ranjit-kumar-v-sub-divisional-magistrate-jangpura-2026dhc5896-db-metro-passengers-vendor-1618608
+
+[Source Link](https://t.me/verdictumlegalupdates/28191)
+
+---
+
+### 2026-07-27T13:32:37+00:00
+Churches Located More Than 200 Meters Away, Objections Seems To Be On Moral Grounds Rather Than Law: Meghalaya High Court Allows Opening Of Wine Store
+https://www.verdictum.in/meghalaya-high-court/smti-legitha-d-sangma-v-state-of-meghalaya-2026mlhc607-no-fundamental-right-to-trade-in-liquor-1618607
+
+[Source Link](https://t.me/verdictumlegalupdates/28190)
+
+---
+
+### 2026-07-27T13:02:36+00:00
+Supreme Court Refuses To Entertain Plea Seeking Direction To Prevent Cruelty To Dogs In Animal Birth Control Centres
+https://www.verdictum.in/supreme-court/prevent-cruelty-to-dogs-in-animal-birth-control-centres-1618614
+
+[Source Link](https://t.me/verdictumlegalupdates/28189)
+
+---
+
+### 2026-07-27T12:32:35+00:00
+2-Year Stay Outside Gujarat Due To Father’s Transfer Cannot Break 10-Year Domicile Residence Requirement: Gujarat High Court Grants Relief To Student
+https://www.verdictum.in/gujarat-high-court/komal-do-sansarchandra-chaube-v-state-of-gujarat-ors-domicile-law-1618596
+
+[Source Link](https://t.me/verdictumlegalupdates/28188)
+
+---
+
+### 2026-07-27T12:02:54+00:00
+Apex Court Stays Himachal Pradesh HC Order Directing SIT Probe & Lodging Of FIR Against Kullu Deputy Commissioner, SP For Allegedly Allowing Rave Parties
+https://www.verdictum.in/supreme-court/sit-probe-lodging-of-fir-against-kullu-deputy-commissioner-sp-for-allegedly-allowing-rave-parties-1618602
+
+[Source Link](https://t.me/verdictumlegalupdates/28187)
+
+---
+
+### 2026-07-27T11:32:53+00:00
+Supreme Court Issues Notice On Suresh Gopi’s Plea After HC Refuses To Dismiss Challenge To His Election From Thrissur
+https://www.verdictum.in/supreme-court/suresh-gopis-plea-challenge-election-thrissur-1618599
+
+[Source Link](https://t.me/verdictumlegalupdates/28186)
+
+---
+
+### 2026-07-27T11:03:11+00:00
+Supreme Court Directs Inclusion Of Forensic Investigative Auditor In SIT Probing Ram Janambhoomi Temple Donation Funds
+https://www.verdictum.in/supreme-court/inclusion-forensic-investigative-auditor-sit-ram-janambhoomi-temple-donation-funds-1618598
+
+[Source Link](https://t.me/verdictumlegalupdates/28185)
+
+---
+
+### 2026-07-27T10:32:50+00:00
+Supreme Court Reserves Order On Abu Salem’s Plea Seeking Release From Custody
+https://www.verdictum.in/supreme-court/abu-salems-plea-seeking-release-from-custody-order-reserved-1618597
+
+[Source Link](https://t.me/verdictumlegalupdates/28184)
 
 ---
 
@@ -81,86 +161,6 @@ Senior Consultant (Law) Vacancy At Airports Authority of India (AAI)
 https://www.verdictum.in/job-updates/airports-authority-of-india-1618506
 
 [Source Link](https://t.me/verdictumlegalupdates/28174)
-
----
-
-### 2026-07-26T13:02:38+00:00
-Scope Of Judicial Review In Tender Matters Limited: Patna High Court Upholds Blacklisting Of Drug Supplier Over Failing Seal Quality Tests
-https://www.verdictum.in/patna-high-court/blacklisting-drug-supplier-over-failing-seal-quality-tests-1618543
-
-[Source Link](https://t.me/verdictumlegalupdates/28173)
-
----
-
-### 2026-07-26T11:32:37+00:00
-Public Documents Need Not Be Proved By Authors In Disciplinary Enquiry: Patna High Court Dismisses Bank Officer’s Plea Against Dismissal
-https://www.verdictum.in/patna-high-court/vinay-verma-v-uttar-bihar-gramin-bank-disciplinary-proceedings-public-documents-1618542
-
-[Source Link](https://t.me/verdictumlegalupdates/28172)
-
----
-
-### 2026-07-26T09:32:56+00:00
-ChatGPT LLM Training Prima Facie Covered U/S 52 Copyright Act: Delhi High Court Dismisses ANI’s Interim Injunction Plea Against OpenAI
-https://www.verdictum.in/delhi-high-court/ani-media-pvt-ltd-v-open-ai-opco-llc-2026dhc5900-chatgpt-llm-training-1618541
-
-[Source Link](https://t.me/verdictumlegalupdates/28171)
-
----
-
-### 2026-07-26T07:32:44+00:00
-Gift Must Be Done By Executing Registered Deed: Patna High Court Rejects State's Claim Of Right Over Land Based On Oral Gift
-https://www.verdictum.in/patna-high-court/santosh-kumar-ishwar-v-the-state-of-bihar-oral-gift-limitation-article-300a-1618514
-
-[Source Link](https://t.me/verdictumlegalupdates/28170)
-
----
-
-### 2026-07-26T06:02:43+00:00
-FIR Lodged Suppressing Fact Of Settlement & Receiving Stridhan Back: Gujarat High Court Quashes Section 498A IPC Case
-https://www.verdictum.in/gujarat-high-court/a-ors-v-state-of-gujarat-2026gujhc42030-fir-settlement-stridhan-section-498a-ipc-1618513
-
-[Source Link](https://t.me/verdictumlegalupdates/28169)
-
----
-
-### 2026-07-26T04:32:12+00:00
-Successive Execution Applications Not Required For Receiving Monthly Maintenance: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/2026-ahc-152860-mala-kumari-v-state-of-up-1618507
-
-[Source Link](https://t.me/verdictumlegalupdates/28168)
-
----
-
-### 2026-07-25T14:32:55+00:00
-Civil Judge (Senior Division) Vacancy At Chhattisgarh High Court
-https://www.verdictum.in/job-updates/chhattisgarh-high-court-1618504
-
-[Source Link](https://t.me/verdictumlegalupdates/28167)
-
----
-
-### 2026-07-25T13:52:54+00:00
-Medical Opinion Rendered During Course Of Her Professional Duties: Patna High Court Quashes Criminal Case Against Doctor Over Medical Opinion
-https://www.verdictum.in/patna-high-court/quashes-criminal-case-against-doctor-over-medical-opinion-1618503
-
-[Source Link](https://t.me/verdictumlegalupdates/28166)
-
----
-
-### 2026-07-25T12:53:13+00:00
-Police Cannot Negotiate Dilution Of Criminal Law: Madras HC Directs Police Officers To Pay ₹2 Lakh Compensation For Settling Dowry Complaint
-https://www.verdictum.in/madras-high-court/directs-officers-2-lakh-compensation-for-settling-dowry-complaint-1618502
-
-[Source Link](https://t.me/verdictumlegalupdates/28165)
-
----
-
-### 2026-07-25T11:52:52+00:00
-Shifting Idols From Dilapidated Temple To Ensure Worship Is Not Misconduct By Priest: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/narayan-das-v-state-of-mp-2026mphc-gwl21276-shifting-idol-misconduct-priest-1618501
-
-[Source Link](https://t.me/verdictumlegalupdates/28164)
 
 ---
 
