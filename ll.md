@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-26T09:32:19+00:00*
+*Last Updated: 2026-07-27T07:28:56+00:00*
 
 ---
 
-### 2026-07-26T09:32:19+00:00
-Beyond Documents: Why Foreigners' Tribunals Must Assess Citizenship Evidence As Whole
-https://www.livelaw.in/articles/foreigners-tribunals-assess-citizenship-evidence-542808
+### 2026-07-27T07:28:56+00:00
+1993 Mumbai Serial Blasts Case: Supreme Court Reserves Verdict On Abu Salem's Plea Seeking Premature Release
+https://www.livelaw.in/top-stories/supreme-court-abu-salem-premature-release-1993-mumbai-serial-blasts-case-542990
 
-[Read on Telegram](https://t.me/livelawindia/115684)
-
----
-### 2026-07-26T09:52:40+00:00
-Magistrate Can Rely On S.202 CrPC Inquiry To Decline Process Where Complaint Gives Criminal Colour To Civil Dispute: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/magistrate-can-rely-on-section-202-inquiry-to-decline-process-where-complaint-merely-gives-criminal-colour-to-civil-dispute-jkl-high-court-542903
-
-[Read on Telegram](https://t.me/livelawindia/115685)
+[Read on Telegram](https://t.me/livelawindia/115723)
 
 ---
-### 2026-07-26T10:42:10+00:00
-S.528 BNSS | Can High Court Invoke Its Inherent Powers Suo Motu To Quash Criminal Case In A Complainant's Appeal? Allahabad HC Answers
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-section-528-bnss-suo-motu-inherent-powers-complainant-appeal-542935
+### 2026-07-27T07:34:36+00:00
+Bank Can't Deny Education Loan To Student Solely Due To Parent's Poor CIBIL Score: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-educational-loan-rejection-parent-cibil-score-542991
 
-[Read on Telegram](https://t.me/livelawindia/115686)
-
----
-### 2026-07-26T10:52:20+00:00
-Revenue Authority Must Decide Limitation Before Entertaining Appeal Against 31-Year-Old Mutation: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/thirty-one-years-after-a-revenue-appeal-was-entertained-against-a-1959-mutation-jkl-high-court-says-limitation-had-to-be-decided-first-542904
-
-[Read on Telegram](https://t.me/livelawindia/115687)
+[Read on Telegram](https://t.me/livelawindia/115724)
 
 ---
-### 2026-07-26T11:37:21+00:00
-Allahabad High Court Summons UP Home Secy Sanjay Prasad In Contempt Plea Over Unpaid Compensation, Pending Custodial Death Guidelines
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-summons-up-home-secretary-sanjay-prasad-contempt-custodial-death-compensation-542936
+### 2026-07-27T07:45:16+00:00
+Courts Can't Direct CBI To Secure Prosecution Sanction: Allahabad High Court Quashes Case Against Ex-DM In Illegal Sand Mining Case
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-cbi-prosecution-sanction-quashes-ex-dm-illegal-sand-mining-542994
 
-[Read on Telegram](https://t.me/livelawindia/115688)
-
----
-### 2026-07-26T11:49:31+00:00
-Senior Legal Professional (Contract Management & Legal Operations Support) Vacancy At Tata Consultancy Services Limited
-https://www.livelaw.in/job-updates/senior-legal-professional-contract-management-legal-operations-support-vacancy-at-tata-consultancy-services-limited-542937
-
-[Read on Telegram](https://t.me/livelawindia/115689)
+[Read on Telegram](https://t.me/livelawindia/115725)
 
 ---
-### 2026-07-26T11:57:51+00:00
-O.7 R.11 CPC | Plaint Can Only Be Rejected Based On Its Own Averments, Defendant's Stand Immaterial: Andhra Pradesh High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-plaint-rejected-averments-defence-considered-orderviirule11cpc-542905
+### 2026-07-27T07:46:56+00:00
+Married Life Must Be Reviewed As A Whole; Few Isolated Incidents Over The Years Don't Constitute Mental Cruelty: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-marital-cruelty-divorce-isolated-incidents-542995
 
-[Read on Telegram](https://t.me/livelawindia/115690)
-
----
-### 2026-07-26T13:26:12+00:00
-CJP Protests : PIL In Supreme Court Seeks FIR Against Delhi Police, CAPF Officials Over Use Of Force On Student Protesters
-https://www.livelaw.in/top-stories/cjp-protests-pil-in-supreme-court-seeks-fir-against-delhi-police-capf-officials-over-use-of-force-on-student-protesters-542938
-
-[Read on Telegram](https://t.me/livelawindia/115691)
+[Read on Telegram](https://t.me/livelawindia/115726)
 
 ---
-### 2026-07-26T14:33:03+00:00
-Tackling Issue Of Speaker's Authority And Procrastination Under Anti Defection Law
-https://www.livelaw.in/articles/tackling-issue-speaker-authority-procrastination-anti-defection-law-542809
+### 2026-07-27T07:52:56+00:00
+'Lawyers Shamelessly Blocking Courts, System Won't Succumb To Pressure': P&H High Court On Strike Over Legal Aid Defence Counsel Scheme
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-lawyers-strike-ladc-scheme-blcoking-courts-shamelessly-542996
 
-[Read on Telegram](https://t.me/livelawindia/115692)
-
----
-### 2026-07-26T14:53:23+00:00
-S.125 CrPC | Woman Induced Into Marriage By Concealment Of Husband's Existing Marriage Entitled To Maintenance: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-125-crpc-woman-induced-marriage-concealment-husband-maintenance-542939
-
-[Read on Telegram](https://t.me/livelawindia/115693)
+[Read on Telegram](https://t.me/livelawindia/115727)
 
 ---
-### 2026-07-26T14:55:03+00:00
-14 Exclusive Courts For NIA Trials Established Across Country, 113 For NDPS : Union Tells Supreme Court; More Courts In 4 Weeks
-https://www.livelaw.in/top-stories/supreme-court-union-says-14-dedicated-courts-for-exclusive-nia-trials-established-113-designated-for-ndps-trials-542940
+### 2026-07-27T07:53:06+00:00
+Supreme Court Issues Notice On Kapil Sibal's Petition Challenging 10th Schedule Interpretation Allowing Defections As Mergers
+https://www.livelaw.in/top-stories/supreme-court-issues-notice-on-kapil-sibals-petition-challenging-10th-schedule-interpretation-allowing-defections-as-mergers-542997
 
-[Read on Telegram](https://t.me/livelawindia/115694)
-
----
-### 2026-07-26T15:11:13+00:00
-Kerala Law Academy Inaugurates CLEA-MILAT Research Mentoring Programme 2026 To Strengthen Legal Research Culture
-https://www.livelaw.in/lawschool/news/kerala-law-academy-inaugurates-clea-milat-research-mentoring-programme-2026-strengthen-legal-research-culture-542941
-
-[Read on Telegram](https://t.me/livelawindia/115695)
+[Read on Telegram](https://t.me/livelawindia/115728)
 
 ---
-### 2026-07-26T15:22:13+00:00
-DLSA Durg Begins Community Mediation Training Programme Under NALSA's Litigation-Free Rural India Initiative
-https://www.livelaw.in/news-updates/dlsa-durg-begins-community-mediation-training-programme-under-nalsas-litigation-free-rural-india-initiative-542942
+### 2026-07-27T08:08:26+00:00
+Use Of Expression 'Hindu Terrorism' In Speech Calling For Unity Not Offence Of Provocation In Absence Of Any Act: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-hindu-terrorism-word-usage-no-provocation-without-act-542999
 
-[Read on Telegram](https://t.me/livelawindia/115696)
-
----
-### 2026-07-26T15:27:13+00:00
-LiveLaw Allahabad High Court Weekly Round Up: July 20 To July 26, 2026
-https://www.livelaw.in/high-court/allahabad-high-court/livelaw-allahabad-high-court-weekly-round-up-july-20-to-july-26-2026-542943
-
-[Read on Telegram](https://t.me/livelawindia/115697)
+[Read on Telegram](https://t.me/livelawindia/115729)
 
 ---
-### 2026-07-26T15:37:33+00:00
-States Will Less Than 1000 Consumer Cases May Abolish Some District Commissions : Supreme Court
-https://www.livelaw.in/top-stories/states-will-less-than-1000-consumer-cases-may-abolish-some-district-commissions-supreme-court-542944
+### 2026-07-27T08:14:46+00:00
+State Human Rights Commission Can't Entertain Complaints Against Private Employers Over Workplace Harassment: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-human-rights-commission-entertain-complaints-private-employers-543001
 
-[Read on Telegram](https://t.me/livelawindia/115698)
-
----
-### 2026-07-27T02:37:34+00:00
-Young Professional Vacancy At Rajasthan Police
-https://www.livelaw.in/job-updates/young-professional-vacancy-at-rajasthan-police-542953
-
-[Read on Telegram](https://t.me/livelawindia/115699)
+[Read on Telegram](https://t.me/livelawindia/115730)
 
 ---
-### 2026-07-27T02:39:34+00:00
-Assistant Professor Grade-II, Assistant Professor Grade-I, Associate Professor, Professor Vacancy At Indian Institute Of Management Ranchi (IIM Ranchi)
-https://www.livelaw.in/job-updates/assistant-professor-grade-ii-assistant-professor-grade-i-associate-professor-professor-vacancy-at-indian-institute-of-management-ranchi-iim-ranchi-542954
+### 2026-07-27T08:27:46+00:00
+Condition Requiring Govt Servant To Stand Surety Effectively Denies Bail: MP High Court Grants Relief To Two Detained Ahead Of NEET Protests
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/neet-protestor-bail-condition-requiring-govt-servant-to-stand-surety-denies-bail-543004
 
-[Read on Telegram](https://t.me/livelawindia/115700)
-
----
-### 2026-07-27T02:40:34+00:00
-Consultant (Conflict of Laws/Private International Law) Vacancy At Ministry Of External Affairs
-https://www.livelaw.in/job-updates/consultant-conflict-of-lawsprivate-international-law-vacancy-at-ministry-of-external-affairs-542955
-
-[Read on Telegram](https://t.me/livelawindia/115701)
+[Read on Telegram](https://t.me/livelawindia/115731)
 
 ---
-### 2026-07-27T02:41:54+00:00
-Assistant Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/assistant-manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-542956
+### 2026-07-27T08:30:46+00:00
+Insurer Can't Restrict Stem Cell Therapy Claim Using 'Modern Treatment' Clause: Ernakulam Consumer Commission
+https://www.livelaw.in/consumer-cases/insurer-cant-restrict-stem-cell-therapy-claim-using-modern-treatment-clause-ernakulam-consumer-commission-543005
 
-[Read on Telegram](https://t.me/livelawindia/115702)
+[Read on Telegram](https://t.me/livelawindia/115732)
 
 ---
-### 2026-07-27T03:32:44+00:00
-Gauhati High Court Closes PIL Seeking Establishment Of Mizoram State Human Rights Commission After State Constitutes Body
-https://www.livelaw.in/high-court/gauhati-high-court/mizoram-state-human-rights-commission-constituted-pil-closed-542957
+### 2026-07-27T08:31:26+00:00
+Bombay High Court Permits Nitin Gadkari To Sue X, Meta, Google Over Alleged Deepfake Posts Linking Him To E20 Petrol Policy
+https://www.livelaw.in/high-court/bombay-high-court/nitn-gadkari-e20-petrol-policy-defamatory-posts-x-google-meta-ai-deepfake-543006
 
-[Read on Telegram](https://t.me/livelawindia/115703)
+[Read on Telegram](https://t.me/livelawindia/115733)
+
+---
+### 2026-07-27T08:32:26+00:00
+LiveLaw Andhra Pradesh High Court Weekly Round-Up: July 20 - July 26, 2026
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-weekly-roundup-542962
+
+[Read on Telegram](https://t.me/livelawindia/115734)
+
+---
+### 2026-07-27T08:47:56+00:00
+Supreme Court Issues Notice On Union Minister Suresh Gopi's Plea Against Kerala HC Refusing To Dismiss Petition Against His Election
+https://www.livelaw.in/top-stories/supreme-court-issues-notice-on-union-minister-suresh-gopis-plea-against-kerala-hc-refusing-to-dismiss-petition-against-his-election-543008
+
+[Read on Telegram](https://t.me/livelawindia/115735)
+
+---
+### 2026-07-27T08:52:16+00:00
+Allahabad High Court Defers Raebareli Bar Treasurer Poll, Orders Examination Of Lawyer's Objection To Voter List Exclusion
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-raebareli-bar-treasurer-poll-examination-lawyer-objection-voter-list-exclusion-543009
+
+[Read on Telegram](https://t.me/livelawindia/115736)
+
+---
+### 2026-07-27T08:54:16+00:00
+Election Supervisory Committee Stays BCI Move To Increase Bar Council Seats After Results
+https://www.livelaw.in/top-stories/election-supervisory-committee-stays-bci-move-to-increase-bar-council-seats-after-results-543010
+
+[Read on Telegram](https://t.me/livelawindia/115737)
+
+---
+### 2026-07-27T08:54:36+00:00
+'You Took Away A Poor Candidate's Chance': Karnataka High Court Questions Ex-KPSC Chairman's Daughter Over Reservation Claim
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-exkpsc-chairman-daughter-participation-recruitment-reserved-category-543011
+
+[Read on Telegram](https://t.me/livelawindia/115738)
+
+---
+### 2026-07-27T09:08:16+00:00
+Gujarat High Court Quashes Cheating Case Against Ducati Over Alleged Failure To Supply Bikes To Dealer
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-ducati-cheating-case-quashed-bikes-distributor-543013
+
+[Read on Telegram](https://t.me/livelawindia/115739)
+
+---
+### 2026-07-27T09:24:56+00:00
+Labour Court Must First Decide Fairness Of Domestic Inquiry Before Examining Merits Of Charges: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-labour-court-fairness-domestic-inquiry-543015
+
+[Read on Telegram](https://t.me/livelawindia/115740)
+
+---
+### 2026-07-27T09:32:56+00:00
+"We Only Have Sympathies For Him": Decoding 156(3) CrPC Vs. Private Complaint Divide
+https://www.livelaw.in/articles/decoding-1563crpc-private-complaint-divide-542863
+
+[Read on Telegram](https://t.me/livelawindia/115741)
+
+---
+### 2026-07-27T09:48:46+00:00
+'Why Don't States Provide Protective Gear To Police?' Supreme Court On Pleas Alleging Attack On Cops During Student Protests
+https://www.livelaw.in/top-stories/supreme-court-pil-against-excessive-force-on-student-protesters-neet-paper-leak-jantar-mantar-j-bagchi-equal-concern-for-injury-to-either-side-543021
+
+[Read on Telegram](https://t.me/livelawindia/115742)
 
 ---
