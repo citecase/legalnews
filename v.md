@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-26T14:32:20+00:00*
+*Last Updated: 2026-07-27T09:52:09+00:00*
+
+---
+
+### 2026-07-27T09:52:09+00:00
+Criminal Law Can’t Be Used As Pressure Tactic In Pending Family Property Dispute: Karnataka High Court Quashes Criminal Case Lodged By Daughter Against Mother
+https://www.verdictum.in/karnataka-high-court/mv-mythili-v-state-of-karnataka-criminal-proceedings-family-property-partition-1618593
+
+[Source Link](https://t.me/verdictumlegalupdates/28183)
+
+---
+
+### 2026-07-27T09:02:48+00:00
+Supreme Court Seeks Centre’s Reply On Plea By Kapil Sibal Challenging Political Defections Under Guise Of Mergers
+https://www.verdictum.in/supreme-court/kapil-sibal-challenging-political-defections-under-guise-of-mergers-1618591
+
+[Source Link](https://t.me/verdictumlegalupdates/28182)
+
+---
+
+### 2026-07-27T08:33:07+00:00
+Supreme Court Junks Review Plea Against Verdict On Loss Of SC Status Upon Religious Conversion
+https://www.verdictum.in/supreme-court/verdict-on-loss-of-sc-status-upon-religious-conversion-1618590
+
+[Source Link](https://t.me/verdictumlegalupdates/28181)
+
+---
+
+### 2026-07-27T08:03:05+00:00
+Section 9(1)(a) Trade Marks Act Tests Distinctive Character Of A Mark, Not Its Uniqueness: Delhi High Court
+https://www.verdictum.in/delhi-high-court/ads-spirits-pvt-ltd-v-the-registrar-of-trade-marks-2026dhc5783-uniqueness-1618587
+
+[Source Link](https://t.me/verdictumlegalupdates/28180)
+
+---
+
+### 2026-07-27T07:23:04+00:00
+Pharmaceutical Combination Not A "Method" Merely Because It Mentions Administration: Delhi High Court Directs Reconsideration Of Array BioPharma’s Cancer Drug Patent Application
+https://www.verdictum.in/delhi-high-court/array-biopharma-inc-v-deputy-controller-of-patents-and-designs-2026dhc5856-1618584
+
+[Source Link](https://t.me/verdictumlegalupdates/28179)
+
+---
+
+### 2026-07-27T06:41:03+00:00
+High Court Can Shorten Time For Completing Process Before Schedule: Delhi HC Dismisses Petition Seeking Date Change Of Prelims Of Delhi Higher Judicial Services
+https://www.verdictum.in/delhi-high-court/mayank-kumar-pandey-v-delhi-high-court-through-registrar-general-2026dhc5871-db-1618579
+
+[Source Link](https://t.me/verdictumlegalupdates/28178)
+
+---
+
+### 2026-07-27T05:50:22+00:00
+NEET Protests|If Youth Want To Agitate, They Have That Right: Apex Court To Consider All-India Guidelines For Peaceful Agitations & Police Safety
+https://www.verdictum.in/supreme-court/neet-protests-consider-all-india-guidelines-for-peaceful-agitations-police-safety-1618573
+
+[Source Link](https://t.me/verdictumlegalupdates/28177)
+
+---
+
+### 2026-07-27T05:13:01+00:00
+"Any Woman" U/S 79 BNS Not Confined To Single Named Individual; Scientific Eminence, Public Stature No Defence For Derogatory Remarks: Madras High Court
+https://www.verdictum.in/madras-high-court/dr-ponraj-v-state-rep-by-inspector-of-police-crlopnos15258-and-15446-of-2026-us-79-bns-no-defence-for-derogatory-remarks-1618569
+
+[Source Link](https://t.me/verdictumlegalupdates/28176)
+
+---
+
+### 2026-07-27T04:32:29+00:00
+Continuous Harassment Due To Marriage Refusal: Chhattisgarh High Court Convicts Man For Abetting Suicide
+https://www.verdictum.in/chhattisgarh-high-court/state-of-chhattisgarh-v-mohd-seraj-continuous-harassment-marriage-refusal-suicide-1618544
+
+[Source Link](https://t.me/verdictumlegalupdates/28175)
 
 ---
 
@@ -89,78 +161,6 @@ Shifting Idols From Dilapidated Temple To Ensure Worship Is Not Misconduct By Pr
 https://www.verdictum.in/madhya-pradesh-high-court/narayan-das-v-state-of-mp-2026mphc-gwl21276-shifting-idol-misconduct-priest-1618501
 
 [Source Link](https://t.me/verdictumlegalupdates/28164)
-
----
-
-### 2026-07-25T10:52:51+00:00
-Sleeping On Pavement Not Contributory Negligence: Delhi High Court Enhances Motor Accident Compensation
-https://www.verdictum.in/delhi-high-court/digamber-kumar-v-national-ins-co-ltd-2026dhc5907-sleeping-pavement-contributory-negligence-1618500
-
-[Source Link](https://t.me/verdictumlegalupdates/28163)
-
----
-
-### 2026-07-25T09:53:09+00:00
-Rubbing Of Private Parts Without Penetration Does Not Amount To Penetrative Sexual Assault: Delhi High Court Modifies POCSO Conviction
-https://www.verdictum.in/delhi-high-court/2026-dhc-5865-anil-v-state-1618499
-
-[Source Link](https://t.me/verdictumlegalupdates/28162)
-
----
-
-### 2026-07-25T08:52:48+00:00
-Himachal Pradesh High Court Dismisses Children’s Suit For Share In Father’s Property, Holds Surviving Brother In Polyandrous Co-Marriage Inherits Under Customary Law
-https://www.verdictum.in/himachal-high-court/shamsher-singh-ors-v-chain-ram-ors-2026hhc30606-customary-law-1618493
-
-[Source Link](https://t.me/verdictumlegalupdates/28161)
-
----
-
-### 2026-07-25T08:02:27+00:00
-TRAI Can Issue Regulatory Directions Without Trespassing Into TDSAT Jurisdiction: Supreme Court
-https://www.verdictum.in/supreme-court/telecom-regulatory-authority-of-india-v-ms-polimer-cable-network-and-others-2026-insc-742-1618488
-
-[Source Link](https://t.me/verdictumlegalupdates/28160)
-
----
-
-### 2026-07-25T07:13:06+00:00
-Rules Of Game Couldn’t Be Changed Mid-Way: Supreme Court Asks Authorities To Reconsider UP ITI Instructor Recruitment
-https://www.verdictum.in/supreme-court/arvind-kumar-v-state-of-up-2026-insc-741-selection-committee-up-iti-instructor-recruitment-1618482
-
-[Source Link](https://t.me/verdictumlegalupdates/28159)
-
----
-
-### 2026-07-25T06:14:45+00:00
-Similarity In Modus Operandi Alone Doesn't Make Distinct Cyber Frauds Part Of Same Transaction: Supreme Court
-https://www.verdictum.in/supreme-court/2026-insc-740-rutvij-bhagat-singh-wakhare-v-state-of-maharashtra-1618478
-
-[Source Link](https://t.me/verdictumlegalupdates/28158)
-
----
-
-### 2026-07-25T05:24:24+00:00
-Guardianship Claim By Foreign National Cannot Exist; Upto Local Level Committee To Evaluate Circumstances: Delhi High Court
-https://www.verdictum.in/delhi-high-court/bhavna-gulati-v-government-of-nct-of-delhi-2026dhc5820-db-guardianship-claim-1618473
-
-[Source Link](https://t.me/verdictumlegalupdates/28157)
-
----
-
-### 2026-07-25T04:33:12+00:00
-FIR Silent On Harming Reputation: Gujarat High Court Quashes FIR Against Man Accused Of Forwarding Fake Newspaper Cutting In Whatsapp
-https://www.verdictum.in/gujarat-high-court/kaushalbhai-jagdishbhai-asodiya-v-state-of-gujarat-fir-reputation-sec469-ipc-forgery-1618465
-
-[Source Link](https://t.me/verdictumlegalupdates/28156)
-
----
-
-### 2026-07-24T15:52:34+00:00
-Young Professional Vacancy At Rajasthan Police Recruitment
-https://www.verdictum.in/job-updates/rajasthan-police-recruitment-1618441
-
-[Source Link](https://t.me/verdictumlegalupdates/28155)
 
 ---
 
