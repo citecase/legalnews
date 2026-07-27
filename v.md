@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-27T15:03:11+00:00*
+*Last Updated: 2026-07-27T16:02:53+00:00*
+
+---
+
+### 2026-07-27T16:02:53+00:00
+Law Researcher Vacancy At Uttarakhand High Court
+https://www.verdictum.in/job-updates/uttarakhand-high-court-1618612
+
+[Source Link](https://t.me/verdictumlegalupdates/28195)
+
+---
+
+### 2026-07-27T15:32:32+00:00
+Statement U/S 164 CrPC Recorded Soon After FIR Cannot Be Ignored Even Though Trial Testimony Is The Substantive Evidence: Delhi High Court
+https://www.verdictum.in/delhi-high-court/dildar-v-state-2026dhc5898-trial-testimony-statement-us-164-crpc-1618611
+
+[Source Link](https://t.me/verdictumlegalupdates/28194)
 
 ---
 
@@ -145,22 +161,6 @@ https://www.verdictum.in/supreme-court/neet-protests-consider-all-india-guidelin
 https://www.verdictum.in/madras-high-court/dr-ponraj-v-state-rep-by-inspector-of-police-crlopnos15258-and-15446-of-2026-us-79-bns-no-defence-for-derogatory-remarks-1618569
 
 [Source Link](https://t.me/verdictumlegalupdates/28176)
-
----
-
-### 2026-07-27T04:32:29+00:00
-Continuous Harassment Due To Marriage Refusal: Chhattisgarh High Court Convicts Man For Abetting Suicide
-https://www.verdictum.in/chhattisgarh-high-court/state-of-chhattisgarh-v-mohd-seraj-continuous-harassment-marriage-refusal-suicide-1618544
-
-[Source Link](https://t.me/verdictumlegalupdates/28175)
-
----
-
-### 2026-07-26T14:32:20+00:00
-Senior Consultant (Law) Vacancy At Airports Authority of India (AAI)
-https://www.verdictum.in/job-updates/airports-authority-of-india-1618506
-
-[Source Link](https://t.me/verdictumlegalupdates/28174)
 
 ---
 
