@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-28T14:32:13+00:00*
+*Last Updated: 2026-07-28T16:02:56+00:00*
+
+---
+
+### 2026-07-28T16:02:56+00:00
+Empanelment Of Advocates At Employees’ State Insurance Corporation (ESIC)
+https://www.verdictum.in/job-updates/employees-state-insurance-corporation-1618683
+
+[Source Link](https://t.me/verdictumlegalupdates/28217)
+
+---
+
+### 2026-07-28T15:12:14+00:00
+Reassessment Notice U/S 148 IT Act Issued To Dead Person Void Ab Initio; Proceedings Against Legal Heir Valid Only If Within Limitation: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/smt-asha-dubey-v-union-of-india-and-others-2026ahc-lko48354-db-it-act-1618692
+
+[Source Link](https://t.me/verdictumlegalupdates/28216)
 
 ---
 
@@ -145,22 +161,6 @@ Courts Can’t Place Absolute Non-Extendable Outer Limit On Police Custody: Supr
 https://www.verdictum.in/supreme-court/the-state-of-andhra-pradesh-v-suda-suresh-veera-venkata-naga-raju-2026-insc-744-police-custody-1618646
 
 [Source Link](https://t.me/verdictumlegalupdates/28198)
-
----
-
-### 2026-07-28T05:02:42+00:00
-Duties Discharged By Forest Officers Are Highly Dangerous Tasks, Intrinsically Connected Within Public Order Under Section 218(3) Of BNSS: Supreme Court
-https://www.verdictum.in/supreme-court/2026-insc-745-in-re-illegal-sand-mining-in-the-national-chambal-sanctuary-and-threat-to-endangered-aquatic-wildlife-1618643
-
-[Source Link](https://t.me/verdictumlegalupdates/28197)
-
----
-
-### 2026-07-28T04:32:50+00:00
-Court's Process Abused For Extorting Money From Owners On Ground Of Unauthorised Construction: Delhi High Court Refers Matter To Police
-https://www.verdictum.in/delhi-high-court/naresh-chauhan-v-government-of-nct-of-delhi-2026dhc5955-unauthorized-construction-1618606
-
-[Source Link](https://t.me/verdictumlegalupdates/28196)
 
 ---
 
