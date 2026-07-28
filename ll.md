@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-28T05:46:47+00:00*
+*Last Updated: 2026-07-28T11:02:21+00:00*
 
 ---
 
-### 2026-07-28T05:46:47+00:00
-GST | 'ITC Available To Buyer Only If Supplier Paid Tax', Supreme Court Upholds Validity Of S. 16(2)(c) Of CGST Act
-https://www.livelaw.in/supreme-court/gst-itc-available-to-buyer-only-if-supplier-paid-tax-supreme-court-upholds-validity-of-s-162c-of-cgst-act-543149
+### 2026-07-28T11:02:21+00:00
+Cooperative Bank Can't Recover More Than Double The Principal From Farmer-Borrowers Till Reform Committee Reports: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-cooperative-bank-recover-principal-farmer-borrowers-543211
 
-[Read on Telegram](https://t.me/livelawindia/115809)
-
----
-### 2026-07-28T05:48:07+00:00
-Mutation Doesn't Create Or Extinguish Title; Writ Against Cancellation Of Mutation Not Maintainable: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-mutation-cancellation-doesnt-create-extinguish-title-543121
-
-[Read on Telegram](https://t.me/livelawindia/115810)
+[Read on Telegram](https://t.me/livelawindia/115847)
 
 ---
-### 2026-07-28T05:48:17+00:00
-2026 LiveLaw (SC) 725 | Bhandari Scrap Traders v. Union of India & Ors
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-725-bhandari-scrap-traders-v-union-of-india-ors-543150
+### 2026-07-28T11:04:41+00:00
+Redefining Legal Scholarship: Kerala Law Academy Hosts Landmark CLEA-MILAT Research Mentoring Programme (RMP) 2.1
+https://www.livelaw.in/lawschool/news/redefining-legal-scholarship-kerala-law-academy-hosts-landmark-clea-milat-research-mentoring-programme-543212
 
-[Read on Telegram](https://t.me/livelawindia/115811)
-
----
-### 2026-07-28T06:02:17+00:00
-Teacher Reprimanding Student For Irregular Attendance, Poor Academic Performance Not Abetment Of Suicide: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-teachers-reprimand-irregular-attendance-abetment-student-suicide-543123
-
-[Read on Telegram](https://t.me/livelawindia/115812)
+[Read on Telegram](https://t.me/livelawindia/115848)
 
 ---
-### 2026-07-28T06:10:17+00:00
-Right To Peaceful Protest Is Fundamental, But Can't Block Access To Justice: P&H High Court To Lawyers Protesting LADC Scheme
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-lawyers-strike-peaceful-protest-right-cant-block-access-to-justice-543153
+### 2026-07-28T11:11:21+00:00
+Kerala High Court Upholds Law That Limits Interest On Delayed Gratuity To Gratuity Amount
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-constitutional-validity-of-interest-cap-under-payment-of-gratuity-act-543215
 
-[Read on Telegram](https://t.me/livelawindia/115813)
-
----
-### 2026-07-28T06:17:57+00:00
-Section 21A Registration Act | Land Transfer NOC Must Be Issued Or Rejected By Speaking Order Within 30 Days: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/section-21a-registration-act-land-transfer-noc-30-days-543135
-
-[Read on Telegram](https://t.me/livelawindia/115814)
+[Read on Telegram](https://t.me/livelawindia/115849)
 
 ---
-### 2026-07-28T06:24:28+00:00
-Senior Analyst Vacancy At Ernst & Young
-https://www.livelaw.in/job-updates/senior-analyst-vacancy-at-ernst-young-543155
+### 2026-07-28T11:31:11+00:00
+Kerala High Court Denies Anticipatory Bail To Man Booked For Hurling Bomb At Wrong House
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-anticipatory-bail-bomb-wrong-house-543220
 
-[Read on Telegram](https://t.me/livelawindia/115815)
-
----
-### 2026-07-28T06:33:08+00:00
-LiveLaw Rajasthan High Court Weekly Round-Up: July 20 - July 26, 2026
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-weekly-roundup-543109
-
-[Read on Telegram](https://t.me/livelawindia/115816)
+[Read on Telegram](https://t.me/livelawindia/115850)
 
 ---
-### 2026-07-28T06:42:28+00:00
-When The Courts Strip Your Armour: The IP Defeats Behind  AP × Swatch Royal Pop
-https://www.livelaw.in/law-firms/law-firm-articles-/when-the-courts-strip-your-armour-the-ip-defeats-behind-ap-swatch-royal-pop-543160
+### 2026-07-28T11:41:31+00:00
+Surcharge Recovery From Pradhan For Loss Caused To Gram Sabha Fund Must Follow Procedure Under Panchayat Raj Act: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-surcharge-pradhan-inquiry-chief-audit-officer-543223
 
-[Read on Telegram](https://t.me/livelawindia/115817)
-
----
-### 2026-07-28T06:47:38+00:00
-Rajasthan High Court Seeks State Finance Department's Response On Proposal To Separate Police Investigation And Law & Order Wings
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-directs-state-expedite-separation-investigation-law-order-wings-543126
-
-[Read on Telegram](https://t.me/livelawindia/115818)
+[Read on Telegram](https://t.me/livelawindia/115851)
 
 ---
-### 2026-07-28T06:47:48+00:00
-E20 Petrol Policy: Bombay High Court To Hear Nitin Gadkari's ₹11 Crore Defamation Suit On August 5
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-nitin-gadkari-defamation-suit-e20-ethanol-blended-petrol-543161
+### 2026-07-28T11:49:51+00:00
+Fingerprint Identification Is 'Exact Science', Thumb Impression Expert's Opinion More Relevant Than Handwriting Expert's: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/thumb-impression-comparison-handwriting-analysis-fingerprint-identification-543224
 
-[Read on Telegram](https://t.me/livelawindia/115819)
-
----
-### 2026-07-28T06:53:28+00:00
-Karnataka High Court Refuses To Extend SIR Timeline, Says Election Commission Best Placed To Address Issue
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-sir-timeline-extension-plea-premature-election-commission-543162
-
-[Read on Telegram](https://t.me/livelawindia/115820)
+[Read on Telegram](https://t.me/livelawindia/115852)
 
 ---
-### 2026-07-28T07:02:48+00:00
-BREAKING| Supreme Court To Order SIT Probe Into Student Protest Violence, Directs Release Of Detained Students With No Criminal Background
-https://www.livelaw.in/top-stories/supreme-court-to-order-sit-probe-into-student-protest-violence-directs-release-of-detained-students-with-no-criminal-background-543164
+### 2026-07-28T12:02:31+00:00
+Power Of Attorney Executed Abroad Must Be Registered Before It Can Be Used To Sell Property In India: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/power-of-attorney-abroad-registered-authorises-transfer-immovable-property-543226
 
-[Read on Telegram](https://t.me/livelawindia/115821)
-
----
-### 2026-07-28T07:32:00+00:00
-Punjab & Haryana High Court Issues Guidelines To Ensure Transparency, Effective Enforcement Of Legal Aid Defense Counsel System
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-guidelines-legal-aid-defense-counsel-system-543166
-
-[Read on Telegram](https://t.me/livelawindia/115822)
+[Read on Telegram](https://t.me/livelawindia/115853)
 
 ---
-### 2026-07-28T07:50:40+00:00
-SIR | Delhi High Court Says ECI Can Deploy Govt Teachers But Must Ensure It Doesn't Cause 'Unbearable' Stress
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-pil-against-mass-deployment-of-govt-teachers-for-sir-duty-543167
+### 2026-07-28T12:12:31+00:00
+Wife's Offer To Resume Cohabitation Can't Defeat Husband's Divorce Plea After Failed Reconciliation Attempts: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ready-resume-cohabitation-failing-reconciliation-543227
 
-[Read on Telegram](https://t.me/livelawindia/115823)
-
----
-### 2026-07-28T08:06:00+00:00
-Madras High Court Reserves Orders On MLA Markandayan's Challenge To Remand In Case Over 'Threatening' Remarks Against CM Vijay
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-mla-markandayan-remand-challenge-plea-order-reserved-543170
-
-[Read on Telegram](https://t.me/livelawindia/115824)
+[Read on Telegram](https://t.me/livelawindia/115854)
 
 ---
-### 2026-07-28T08:25:50+00:00
-Now Uber Moves Karnataka High Court Challenging State's Gig Workers Welfare Act, Notice Issued
-https://www.livelaw.in/high-court/karnataka-high-court/uber-challenge-gig-workers-welfare-act-deposit-welfare-fees-with-court-543172
+### 2026-07-28T12:20:21+00:00
+Air India Crash: AAIB Tells Supreme Court Report Due By October; Pilot Federation Seeks Consideration Of US Firm's Findings
+https://www.livelaw.in/top-stories/supreme-court-air-india-ahmedabad-plane-crash-aaib-enquiry-final-report-to-come-by-october-in-sealed-cover-4-simulations-conducted-543230
 
-[Read on Telegram](https://t.me/livelawindia/115825)
-
----
-### 2026-07-28T08:31:10+00:00
-Madras High Court Cancels Look-Out Circular Against Former Minister EV Velu In DVAC Corruption Case, Imposes Condition On Foreign Travel
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ev-velu-look-out-circular-cancelled-543173
-
-[Read on Telegram](https://t.me/livelawindia/115826)
+[Read on Telegram](https://t.me/livelawindia/115855)
 
 ---
-### 2026-07-28T08:32:50+00:00
-LiveLaw Karnataka High Court Weekly Round Up: July 20 - July 26, 2026
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-round-up2026-543139
+### 2026-07-28T12:22:21+00:00
+Foisting False Criminal Cases Against Husband Which End In Acquittal Constitutes Mental Cruelty: Andhra Pradesh High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-foisting-false-criminal-cases-acquittal-constitutes-mental-cruelty-543228
 
-[Read on Telegram](https://t.me/livelawindia/115827)
+[Read on Telegram](https://t.me/livelawindia/115856)
 
 ---
-### 2026-07-28T08:41:30+00:00
-Transgender Advocate Moves Supreme Court Challenging 2026 Amendment To Transgender Rights Act
-https://www.livelaw.in/top-stories/transgender-advocate-moves-supreme-court-challenging-2026-amendment-to-transgender-rights-act-543175
+### 2026-07-28T12:33:01+00:00
+Partner Can't Invoke Habeas Corpus To Claim Right To Live-In Relationship With Adult Woman Willingly Living With Parents: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-habeas-corpus-major-woman-choice-live-in-relationship-543229
 
-[Read on Telegram](https://t.me/livelawindia/115828)
+[Read on Telegram](https://t.me/livelawindia/115857)
+
+---
+### 2026-07-28T12:42:41+00:00
+POCSO Acquittal: Rajasthan High Court Quashes Recovery Of Compensation From Police Officer Without Hearing
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-sets-aside-compensation-recovery-investigating-officer-in-pocso-matter-543232
+
+[Read on Telegram](https://t.me/livelawindia/115858)
+
+---
+### 2026-07-28T12:52:21+00:00
+Trial Courts Must Mark Documents Relied On Before Granting Interim Injunction: Andhra Pradesh High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-temporary-injunction-order-mark-documents-543234
+
+[Read on Telegram](https://t.me/livelawindia/115859)
+
+---
+### 2026-07-28T13:02:41+00:00
+Assam Settlement Rules | Revenue Authorities Can't Evict Encroachers From Private Land: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/assam-settlement-rules-revenue-cant-eject-encroachers-private-land-543235
+
+[Read on Telegram](https://t.me/livelawindia/115860)
+
+---
+### 2026-07-28T13:17:31+00:00
+Madras High Court Moots Policy Review On Enrolment, Bar Association Posts For Advocates Facing Criminal Cases, Orders Survey
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-lawyers-criminal-cases-bci-tamil-nadu-bar-council-survey-543237
+
+[Read on Telegram](https://t.me/livelawindia/115861)
+
+---
+### 2026-07-28T13:32:31+00:00
+Does Informing Live-In Partner's Father Fulfil Police Duty To Notify Family Of Arrest? Kerala High Court Answers
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-arrest-grounds-friend-relative-livein-partner-father-543240
+
+[Read on Telegram](https://t.me/livelawindia/115862)
+
+---
+### 2026-07-28T13:48:11+00:00
+Recovery Of Stolen Property Alone Can't Sustain Murder Conviction, Attracts Only Section 411 IPC: Andhra Pradesh High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-murder-conviction-recovery-stolen-property-section411-ipc-543241
+
+[Read on Telegram](https://t.me/livelawindia/115863)
+
+---
+### 2026-07-28T14:00:21+00:00
+MP Court Acquits 11 Accused of Communal Violence In Khargone During Ram Navami 2022
+https://www.livelaw.in/news-updates/khargone-court-acquits-men-of-communal-violence-occured-in-2022-during-ram-navami-543252
+
+[Read on Telegram](https://t.me/livelawindia/115864)
+
+---
+### 2026-07-28T14:03:01+00:00
+Pending Probe Into Pharma Firm's COVID Sanitizer Supply Can't Justify Withholding Payment For Undisputed Drug Supplies: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-directs-payment-pharma-firm-covid19-procurement-irregularities-543243
+
+[Read on Telegram](https://t.me/livelawindia/115865)
+
+---
+### 2026-07-28T14:18:01+00:00
+“I Had A Right To Be Heard”: Former TN Minister KN Nehru Seeks Review Of High Court Order Directing Corruption FIR Against Him
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-kn-nehru-tndvac-fir-order-review-right-to-be-heard-543245
+
+[Read on Telegram](https://t.me/livelawindia/115866)
 
 ---
