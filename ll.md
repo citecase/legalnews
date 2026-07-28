@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-28T11:02:21+00:00*
+*Last Updated: 2026-07-28T13:02:41+00:00*
 
 ---
 
-### 2026-07-28T11:02:21+00:00
-Cooperative Bank Can't Recover More Than Double The Principal From Farmer-Borrowers Till Reform Committee Reports: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-cooperative-bank-recover-principal-farmer-borrowers-543211
-
-[Read on Telegram](https://t.me/livelawindia/115847)
-
----
-### 2026-07-28T11:04:41+00:00
-Redefining Legal Scholarship: Kerala Law Academy Hosts Landmark CLEA-MILAT Research Mentoring Programme (RMP) 2.1
-https://www.livelaw.in/lawschool/news/redefining-legal-scholarship-kerala-law-academy-hosts-landmark-clea-milat-research-mentoring-programme-543212
-
-[Read on Telegram](https://t.me/livelawindia/115848)
-
----
-### 2026-07-28T11:11:21+00:00
-Kerala High Court Upholds Law That Limits Interest On Delayed Gratuity To Gratuity Amount
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-constitutional-validity-of-interest-cap-under-payment-of-gratuity-act-543215
-
-[Read on Telegram](https://t.me/livelawindia/115849)
-
----
-### 2026-07-28T11:31:11+00:00
-Kerala High Court Denies Anticipatory Bail To Man Booked For Hurling Bomb At Wrong House
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-anticipatory-bail-bomb-wrong-house-543220
-
-[Read on Telegram](https://t.me/livelawindia/115850)
-
----
-### 2026-07-28T11:41:31+00:00
-Surcharge Recovery From Pradhan For Loss Caused To Gram Sabha Fund Must Follow Procedure Under Panchayat Raj Act: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-surcharge-pradhan-inquiry-chief-audit-officer-543223
-
-[Read on Telegram](https://t.me/livelawindia/115851)
-
----
-### 2026-07-28T11:49:51+00:00
-Fingerprint Identification Is 'Exact Science', Thumb Impression Expert's Opinion More Relevant Than Handwriting Expert's: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/thumb-impression-comparison-handwriting-analysis-fingerprint-identification-543224
-
-[Read on Telegram](https://t.me/livelawindia/115852)
-
----
-### 2026-07-28T12:02:31+00:00
-Power Of Attorney Executed Abroad Must Be Registered Before It Can Be Used To Sell Property In India: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/power-of-attorney-abroad-registered-authorises-transfer-immovable-property-543226
-
-[Read on Telegram](https://t.me/livelawindia/115853)
-
----
-### 2026-07-28T12:12:31+00:00
-Wife's Offer To Resume Cohabitation Can't Defeat Husband's Divorce Plea After Failed Reconciliation Attempts: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ready-resume-cohabitation-failing-reconciliation-543227
-
-[Read on Telegram](https://t.me/livelawindia/115854)
-
----
-### 2026-07-28T12:20:21+00:00
-Air India Crash: AAIB Tells Supreme Court Report Due By October; Pilot Federation Seeks Consideration Of US Firm's Findings
-https://www.livelaw.in/top-stories/supreme-court-air-india-ahmedabad-plane-crash-aaib-enquiry-final-report-to-come-by-october-in-sealed-cover-4-simulations-conducted-543230
-
-[Read on Telegram](https://t.me/livelawindia/115855)
-
----
-### 2026-07-28T12:22:21+00:00
-Foisting False Criminal Cases Against Husband Which End In Acquittal Constitutes Mental Cruelty: Andhra Pradesh High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-foisting-false-criminal-cases-acquittal-constitutes-mental-cruelty-543228
-
-[Read on Telegram](https://t.me/livelawindia/115856)
-
----
-### 2026-07-28T12:33:01+00:00
-Partner Can't Invoke Habeas Corpus To Claim Right To Live-In Relationship With Adult Woman Willingly Living With Parents: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-habeas-corpus-major-woman-choice-live-in-relationship-543229
-
-[Read on Telegram](https://t.me/livelawindia/115857)
-
----
-### 2026-07-28T12:42:41+00:00
-POCSO Acquittal: Rajasthan High Court Quashes Recovery Of Compensation From Police Officer Without Hearing
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-sets-aside-compensation-recovery-investigating-officer-in-pocso-matter-543232
-
-[Read on Telegram](https://t.me/livelawindia/115858)
-
----
-### 2026-07-28T12:52:21+00:00
-Trial Courts Must Mark Documents Relied On Before Granting Interim Injunction: Andhra Pradesh High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-temporary-injunction-order-mark-documents-543234
-
-[Read on Telegram](https://t.me/livelawindia/115859)
-
----
 ### 2026-07-28T13:02:41+00:00
 Assam Settlement Rules | Revenue Authorities Can't Evict Encroachers From Private Land: Gauhati High Court
 https://www.livelaw.in/high-court/gauhati-high-court/assam-settlement-rules-revenue-cant-eject-encroachers-private-land-543235
@@ -142,5 +51,96 @@ https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dire
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-kn-nehru-tndvac-fir-order-review-right-to-be-heard-543245
 
 [Read on Telegram](https://t.me/livelawindia/115866)
+
+---
+### 2026-07-28T14:33:01+00:00
+'Progressive Welfare Measure': Kerala High Court Asks State To Consider KSRTC Women Conductors' Plea For 2-Day Paid Menstrual Leave
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-paid-menstrual-leave-ksrtc-women-conductors-543247
+
+[Read on Telegram](https://t.me/livelawindia/115867)
+
+---
+### 2026-07-28T14:33:11+00:00
+Bylaws And Custodianship: Strengthening Community Governance Of India's Commons
+https://www.livelaw.in/articles/bylaws-custodianship-strengthening-community-governance-india-commons-543231
+
+[Read on Telegram](https://t.me/livelawindia/115868)
+
+---
+### 2026-07-28T14:45:11+00:00
+Supreme Court Seeks Reports From 5 High Courts On Creation Of Dashboards For Unclaimed Motor Accident & Labour Court Sums
+https://www.livelaw.in/top-stories/supreme-court-seeks-reports-from-5-high-courts-on-creation-of-dashboards-for-unclaimed-motor-accident-labour-court-sums-543258
+
+[Read on Telegram](https://t.me/livelawindia/115869)
+
+---
+### 2026-07-28T15:08:52+00:00
+Suspension Of Sentence Plea Needn't Get Preference If Parties Are Ready To Argue Appeal/ Revision On Merits: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-suspension-of-sentence-plea-criminal-appeal-revision-merits-543262
+
+[Read on Telegram](https://t.me/livelawindia/115870)
+
+---
+### 2026-07-28T15:25:32+00:00
+Evidence Act | Section 27 Recoveries Alone Can't Sustain Conviction  : Supreme Court Restores Acquittal In 1988 Murder Case
+https://www.livelaw.in/supreme-court/evidence-act-section-27-recoveries-alone-cant-sustain-conviction-supreme-court-restores-acquittal-in-1988-murder-case-543268
+
+[Read on Telegram](https://t.me/livelawindia/115871)
+
+---
+### 2026-07-28T15:26:52+00:00
+2026 LiveLaw (SC) 727 | Khalil Pasha & Ors. Versus Abdul Rasheed & Anr.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-727-khalil-pasha-ors-versus-abdul-rasheed-anr-543269
+
+[Read on Telegram](https://t.me/livelawindia/115872)
+
+---
+### 2026-07-28T15:42:42+00:00
+Supreme Court Rejects Plea Seeking Mechanism For Urgent Hearings  Beyond Regular Hours, Says E-Filing Allows Anytime Access
+https://www.livelaw.in/top-stories/supreme-court-rejects-plea-for-mechanism-to-hear-urgent-matters-life-liberty-after-ordinary-court-hours-543273
+
+[Read on Telegram](https://t.me/livelawindia/115873)
+
+---
+### 2026-07-28T15:45:02+00:00
+2026 LiveLaw (SC) 728 | MAHERAVISH REIN v. UNION OF INDIA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-728-maheravish-rein-v-union-of-india-543275
+
+[Read on Telegram](https://t.me/livelawindia/115874)
+
+---
+### 2026-07-28T15:56:42+00:00
+P&H High Court Issues Directions On LADC Scheme Considering Lawyer's Objections
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-issues-directions-on-ladc-scheme-considering-lawyers-objections-543277
+
+[Read on Telegram](https://t.me/livelawindia/115875)
+
+---
+### 2026-07-28T16:10:42+00:00
+Sambhal Mosque Dispute |  HC Couldn't Have Upheld Survey Order Due To SC's December 2024 Order : Ahmadi Tells Supreme Court
+https://www.livelaw.in/top-stories/sambhal-mosque-dispute-hc-couldnt-have-upheld-survey-order-due-to-scs-december-2024-order-ahmadi-tells-supreme-court-543279
+
+[Read on Telegram](https://t.me/livelawindia/115876)
+
+---
+### 2026-07-28T16:11:42+00:00
+Bombay High Court Issues Notice On Raj Kundra's Plea Challenging Summons In ED's 'Bitcoins' Case
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-issues-notice-on-raj-kundras-plea-challenging-summons-in-eds-bitcoins-case-543280
+
+[Read on Telegram](https://t.me/livelawindia/115877)
+
+---
+### 2026-07-28T16:22:23+00:00
+Delhi High Court Weekly Round-Up: July 20 To July 26, 2026
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-weekly-round-up-july-20-to-july-26-2026-543281
+
+[Read on Telegram](https://t.me/livelawindia/115878)
+
+---
+### 2026-07-28T17:17:13+00:00
+Supreme Court Daily Round-Up : July 28, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-july-28-2026-543282
+
+[Read on Telegram](https://t.me/livelawindia/115879)
 
 ---
