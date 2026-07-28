@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-27T12:33:18+00:00*
+*Last Updated: 2026-07-27T13:02:28+00:00*
 
 ---
 
-### 2026-07-27T12:33:18+00:00
-2026 LiveLaw (SC) 722 | THE STATE OF ANDHRA PRADESH VERSUS SUDA SURESH VEERA VENKATA NAGA RAJU
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-722-the-state-of-andhra-pradesh-versus-suda-suresh-veera-venkata-naga-raju-543075
-
-[Read on Telegram](https://t.me/livelawindia/115765)
-
----
-### 2026-07-27T12:47:18+00:00
-'One Bar One Vote' Dispute: MP High Court Refuses To Quash Provisional Voter List For HC Bar Association Elections
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-refuses-to-quash-provisional-voter-list-for-bar-association-jabalpur-election-543052
-
-[Read on Telegram](https://t.me/livelawindia/115766)
-
----
 ### 2026-07-27T13:02:28+00:00
 NALSAR Student Detained For Attendance Shortage Can't Take Supplementary Exams; Sympathy Can't Override Academic Rules: Telangana High Court
 https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-medical-hardship-mandatory-attendance-rules-543054
@@ -146,5 +132,19 @@ Telangana State Legal Services Authority Holds Sensitisation Programme For Teach
 https://www.livelaw.in/news-updates/telangana-state-legal-services-authority-holds-sensitisation-programme-543107
 
 [Read on Telegram](https://t.me/livelawindia/115784)
+
+---
+### 2026-07-28T01:33:05+00:00
+Twisha Sharma Dowry Death Case: MP Court Denies Bail To Former Judge Giribala Singh
+https://www.livelaw.in/news-updates/twisha-sharma-dowry-death-giribala-singh-bail-denied-543108
+
+[Read on Telegram](https://t.me/livelawindia/115785)
+
+---
+### 2026-07-28T02:48:16+00:00
+Suppressing Advocate Status To File PILs In Clients' Interests Is 'Gross Abuse': Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-suppressing-advocate-status-client-interest-pil-gross-abuse-543116
+
+[Read on Telegram](https://t.me/livelawindia/115786)
 
 ---
