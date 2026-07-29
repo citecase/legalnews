@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-28T16:02:56+00:00*
+*Last Updated: 2026-07-29T09:02:45+00:00*
+
+---
+
+### 2026-07-29T09:02:45+00:00
+Weapon Recovery Alone Cannot Sustain Conviction Without Link To Crime: Supreme Court Restores Trial Court Acquittal In 1988 Murder Case
+https://www.verdictum.in/supreme-court/khalil-pasha-ors-v-abdul-rasheed-anr-2026-insc-754-section-27-evidence-act-1618743
+
+[Source Link](https://t.me/verdictumlegalupdates/28226)
+
+---
+
+### 2026-07-29T08:32:44+00:00
+Sanction To Prosecute Public Servant Can’t Rest On Political Dictate: Supreme Court
+https://www.verdictum.in/supreme-court/state-of-rajasthan-others-v-dev-kant-meena-2026-insc-752-pca-rajasthan-cm-1618740
+
+[Source Link](https://t.me/verdictumlegalupdates/28225)
+
+---
+
+### 2026-07-29T08:02:43+00:00
+Supreme Court Quashes Special Court Order Against Late Former PM Dr Manmohan Singh; Closes His Case On Merits In Coal Block Scam
+https://www.verdictum.in/supreme-court/pm-manmohan-singh-coal-block-case-effaces-special-court-remarks-1618741
+
+[Source Link](https://t.me/verdictumlegalupdates/28224)
+
+---
+
+### 2026-07-29T07:42:21+00:00
+These Things Shouldn’t Come In Way Of Art: Supreme Court Dismisses Odisha Govt’s Plea Against Release Of Film ‘Mahaprabhu Jagannath’
+https://www.verdictum.in/supreme-court/odisha-govts-plea-against-release-of-film-mahaprabhu-jagannath-1618736
+
+[Source Link](https://t.me/verdictumlegalupdates/28223)
+
+---
+
+### 2026-07-29T07:12:20+00:00
+Madras High Court Issues Directions For Uniform Implementation Of Direct Bank Transfer Of Motor Accident Compensation To Claimants’ Accounts
+https://www.verdictum.in/madras-high-court/the-manager-oriental-insurance-co-ltd-v-d-salsa-others-motor-accident-dbt-1618735
+
+[Source Link](https://t.me/verdictumlegalupdates/28222)
+
+---
+
+### 2026-07-29T06:32:19+00:00
+Lawyers Ran Amok Freely, Abused, Humiliated & Manhandled A Litigant At Will: Allahabad High Court Bars Four Advocates From Entering Lucknow Court Premises
+https://www.verdictum.in/allahabad-high-court/suo-motu-cognizance-of-incident-dated-21072026-in-the-court-premises-v-state-of-up-thru-prin-secy-home-lko-criminal-writ-public-interest-litigation-no-8-of-2026-1618728
+
+[Source Link](https://t.me/verdictumlegalupdates/28221)
+
+---
+
+### 2026-07-29T05:36:58+00:00
+Breaking: Supreme Court Quashes 2021 Office Memorandum Allowing Post-Facto Environmental Clearance
+https://www.verdictum.in/supreme-court/quashes-2021-office-memorandum-allowing-post-facto-environmental-clearance-1618724
+
+[Source Link](https://t.me/verdictumlegalupdates/28220)
+
+---
+
+### 2026-07-29T05:12:17+00:00
+Workman Must Prove Legality Of His Induction Before Challenging Termination: Delhi High Court Sets Aside DDA Reinstatement Award
+https://www.verdictum.in/delhi-high-court/jai-prakash-ors-v-dda-2026dhc5970-dda-reinstatement-award-1618716
+
+[Source Link](https://t.me/verdictumlegalupdates/28219)
+
+---
+
+### 2026-07-29T04:32:25+00:00
+Centre Not Precluded From Directing Name Change Of Company With Similar Name On Application By Complainant Company: Delhi High Court
+https://www.verdictum.in/delhi-high-court/dna-forensics-test-solutions-private-limited-v-union-of-india-2026dhc5949-centre-name-change-company-1618694
+
+[Source Link](https://t.me/verdictumlegalupdates/28218)
 
 ---
 
@@ -89,78 +161,6 @@ Third-Party Pillion Rider’s Compensation Cannot Be Reduced For Negligence Appo
 https://www.verdictum.in/kerala-high-court/santhosh-v-ea-sainaba-2026ker44749-third-party-pillion-riders-compensation-1618673
 
 [Source Link](https://t.me/verdictumlegalupdates/28207)
-
----
-
-### 2026-07-28T09:32:32+00:00
-Order XXII Rule 10 CPC Plea Barred By Res Judicata If Same Transfer Was Earlier Decided On Merits Under Order I Rule 10 CPC: Supreme Court
-https://www.verdictum.in/supreme-court/sanjiv-kumar-v-shakuntla-devi-and-others-2026-insc-747-order-i-rule-10-order-xxii-rule-10-1618672
-
-[Source Link](https://t.me/verdictumlegalupdates/28206)
-
----
-
-### 2026-07-28T09:03:11+00:00
-"I Am Seriously Opposing": Solicitor General On Plea By Junaid Malik From NEET Protests Alleging Police Harassment
-https://www.verdictum.in/supreme-court/solicitor-general-stushar-mehta-trongly-objects-listing-junaid-malik-neet-protest-1618670
-
-[Source Link](https://t.me/verdictumlegalupdates/28205)
-
----
-
-### 2026-07-28T08:32:10+00:00
-Residents’ Peaceful Living Cannot Be Ignored While Allowing Weekly Markets: Delhi High Court Affirms Relocation Of Street Vendors
-https://www.verdictum.in/delhi-high-court/residents-welfare-association-others-v-municipal-corporation-of-delhi-another-2026dhc5973-db-1618669
-
-[Source Link](https://t.me/verdictumlegalupdates/28204)
-
----
-
-### 2026-07-28T08:02:29+00:00
-Final Determination Of Infringement Must Rest With Court, Not Intermediaries Or Plaintiffs Unilaterally: Delhi HC Issues Dynamic Injunction Against 30 Piracy Websites Streaming HBO Content
-https://www.verdictum.in/delhi-high-court/home-box-office-inc-v-streamzyto-2026dhc5967-30-piracy-websites-streaming-hbo-content-1618663
-
-[Source Link](https://t.me/verdictumlegalupdates/28203)
-
----
-
-### 2026-07-28T07:10:28+00:00
-Breaking: Supreme Court Bars Coercive Action Against Students; To Appoint Independent SIT To Probe NEET Protest Violence
-https://www.verdictum.in/supreme-court/neet-protests-bars-coercive-action-against-students-will-consider-independent-probe-into-neet-protest-violence-1618661
-
-[Source Link](https://t.me/verdictumlegalupdates/28202)
-
----
-
-### 2026-07-28T07:01:26+00:00
-Children Naturally Attracted To Open Spaces, Can't Be Expected To Recognise Unguarded Manmade Dangers: Delhi High Court Awards ₹16.92L Compensation To Parents Of Drowned 10-Year-Old
-https://www.verdictum.in/delhi-high-court/mohd-neejam-v-the-state-govt-of-nct-of-delhi-2026dhc5986-1692-lakh-to-parents-of-drowned-10-year-old-1618660
-
-[Source Link](https://t.me/verdictumlegalupdates/28201)
-
----
-
-### 2026-07-28T06:33:05+00:00
-Capacity-Based Cess Violates Article 14: Karnataka High Court Strikes Down HSNS Cess Levy On Pan Masala
-https://www.verdictum.in/karnataka-high-court/dhariwal-industries-pvt-ltd-v-union-of-india-pan-masala-cess-production-based-1618654
-
-[Source Link](https://t.me/verdictumlegalupdates/28200)
-
----
-
-### 2026-07-28T06:02:44+00:00
-Weekly Overview| Supreme Court Judgments: July 20 – July 24, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-july-20-july-24-2026-1618651
-
-[Source Link](https://t.me/verdictumlegalupdates/28199)
-
----
-
-### 2026-07-28T05:32:23+00:00
-Courts Can’t Place Absolute Non-Extendable Outer Limit On Police Custody: Supreme Court Explains Legislative Change U/S 187(2) BNSS
-https://www.verdictum.in/supreme-court/the-state-of-andhra-pradesh-v-suda-suresh-veera-venkata-naga-raju-2026-insc-744-police-custody-1618646
-
-[Source Link](https://t.me/verdictumlegalupdates/28198)
 
 ---
 
