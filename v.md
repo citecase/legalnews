@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-29T09:02:45+00:00*
+*Last Updated: 2026-07-29T14:12:25+00:00*
+
+---
+
+### 2026-07-29T14:12:25+00:00
+Right To Property Under Article 300A Constitution Does Not Include Vested Right To Vehicular Access Through Adjoining State Land: Delhi High Court
+https://www.verdictum.in/delhi-high-court/sajjan-kaur-v-union-of-india-another-2026dhc6055-nhai-acquisition-article-300a-1618757
+
+[Source Link](https://t.me/verdictumlegalupdates/28235)
+
+---
+
+### 2026-07-29T13:33:04+00:00
+BCI Rules Do Not Bar Advocates From Representing Their Family Members: Bombay High Court
+https://www.verdictum.in/bombay-high-court/maheshkumar-b-patel-v-laxmikant-murlidhar-sharma-through-lrs-others-2026bhc-as30567-1618756
+
+[Source Link](https://t.me/verdictumlegalupdates/28234)
+
+---
+
+### 2026-07-29T13:02:53+00:00
+Jurisdiction U/S 34 A&C Act, Though Narrow, Is Not Akin To "Rubber Stamp": Delhi High Court Sets Aside NHAI Arbitral Award
+https://www.verdictum.in/delhi-high-court/national-highways-authority-of-india-v-ms-kurukshetra-expressway-private-ltd-2026dhc5961-court-restraint-tribunals-fidelity-to-contract-1618755
+
+[Source Link](https://t.me/verdictumlegalupdates/28233)
+
+---
+
+### 2026-07-29T12:33:12+00:00
+Supreme Court Directs Centre To Review Expert Inputs For Robust & Lacunae-Free Accessibility Rules Under RPWD Act
+https://www.verdictum.in/supreme-court/expert-inputs-for-robust-lacunae-free-accessibility-rules-under-rpwd-act-1618751
+
+[Source Link](https://t.me/verdictumlegalupdates/28232)
+
+---
+
+### 2026-07-29T12:02:31+00:00
+Supreme Court Grants Bail To 2 Indian Mujahideen 'Operatives', Says Continued Incarceration Violates Right To Liberty
+https://www.verdictum.in/supreme-court/bail-to-2-indian-mujahideen-operatives-1618752
+
+[Source Link](https://t.me/verdictumlegalupdates/28231)
+
+---
+
+### 2026-07-29T11:32:49+00:00
+Admission Of Accused Proves Dishonour Of Cheque U/S 138 NI Act Even If Returning Memo Is Unsigned And Unsealed: Himachal Pradesh High Court
+https://www.verdictum.in/himachal-high-court/khushinder-singh-v-ambal-khan-2026hhc30732-dishonour-of-cheque-us-138-ni-act-1618750
+
+[Source Link](https://t.me/verdictumlegalupdates/28230)
+
+---
+
+### 2026-07-29T10:52:48+00:00
+Investigation Into Adult Daughter’s Marriage Of Choice Violates Article 21: Allahabad High Court Imposes Costs On Police & Father
+https://www.verdictum.in/allahabad-high-court/saubhangini-shukla-another-v-state-of-up-others-2026ahc154672-db-1618749
+
+[Source Link](https://t.me/verdictumlegalupdates/28229)
+
+---
+
+### 2026-07-29T10:15:28+00:00
+Aadhaar Authentication For Online Tatkal Tickets Justified To Curb Bulk Booking: Kerala High Court Asks IRCTC To Consider PAN Option
+https://www.verdictum.in/kerala-high-court/bahadur-shah-anakkot-nasirali-v-union-of-india-others-2026ker54792-1618748
+
+[Source Link](https://t.me/verdictumlegalupdates/28228)
+
+---
+
+### 2026-07-29T09:32:46+00:00
+Supreme Court Agrees To Hear Ex-Congress MLA's Plea Seeking Suspension Of Conviction In Cheating Case
+https://www.verdictum.in/supreme-court/ex-congress-mlas-plea-seeking-suspension-of-conviction-in-cheating-case-1618745
+
+[Source Link](https://t.me/verdictumlegalupdates/28227)
 
 ---
 
@@ -89,78 +161,6 @@ Reassessment Notice U/S 148 IT Act Issued To Dead Person Void Ab Initio; Proceed
 https://www.verdictum.in/allahabad-high-court/smt-asha-dubey-v-union-of-india-and-others-2026ahc-lko48354-db-it-act-1618692
 
 [Source Link](https://t.me/verdictumlegalupdates/28216)
-
----
-
-### 2026-07-28T14:32:13+00:00
-Continued Omission Cannot Be Viewed As Mere Passive Knowledge: Delhi High Court Upholds Mother's Conviction Under POCSO Act
-https://www.verdictum.in/delhi-high-court/akeel-azhar-rinku-v-state-nct-of-delhi-2026dhc6009-mothers-conviction-under-pocso-act-mere-passive-knowledge-1618682
-
-[Source Link](https://t.me/verdictumlegalupdates/28215)
-
----
-
-### 2026-07-28T13:53:12+00:00
-Expression Of Right To Democratic Protest Though For Bizarre Reason: Madras HC Quashes Case Against Lawyers Demanding NH Toll Exemption
-https://www.verdictum.in/madras-high-court/rajkumar-v-the-state-expression-right-democratic-protest-nh-toll-advocates-1618687
-
-[Source Link](https://t.me/verdictumlegalupdates/28214)
-
----
-
-### 2026-07-28T13:13:11+00:00
-Bombay HC Allows Biological Father’s Name To Be Added To Birth Certificate Of Child Born In Extramarital Relationship By Mother
-https://www.verdictum.in/bombay-high-court/mrs-n-anr-v-brihanmumbai-municipal-corporation-woman-biological-father-name-birth-certificate-1618691
-
-[Source Link](https://t.me/verdictumlegalupdates/28213)
-
----
-
-### 2026-07-28T12:32:49+00:00
-IBC Moratorium Operates Against Corporate Debtor Alone; No Bar On Deciding Consumer Complaint Against Directors: Supreme Court
-https://www.verdictum.in/supreme-court/tejas-j-shah-amisha-t-shah-v-mantri-technology-constellations-pvt-ltd-ors-2026-insc-746-moratorium-1618680
-
-[Source Link](https://t.me/verdictumlegalupdates/28212)
-
----
-
-### 2026-07-28T12:02:28+00:00
-41-Year Delay & Advanced Age: Allahabad High Court Reduces Sentence Of Police Constable Convicted In 1985 For 11 Knife Wounds, Enhances Compensation
-https://www.verdictum.in/allahabad-high-court/bux-ullah-alias-burey-ali-v-state-of-up-2026ahc154435-41-year-delay-advanced-age-in-1985-for-11-knife-wounds-1618679
-
-[Source Link](https://t.me/verdictumlegalupdates/28211)
-
----
-
-### 2026-07-28T11:32:07+00:00
-Registration Certificate Not Conclusive Of Entitlement To Interim Possession Of Seized Vehicles: Supreme Court
-https://www.verdictum.in/supreme-court/krishnan-narayana-v-state-of-andhra-pradesh-2026-insc-748-registration-certificate-interim-possession-1618676
-
-[Source Link](https://t.me/verdictumlegalupdates/28210)
-
----
-
-### 2026-07-28T11:02:36+00:00
-NEET Protests: Supreme Court Takes Note Of Attacks On Journalists By Protestors In Plea Seeking Safety Of Journalists
-https://www.verdictum.in/supreme-court/neet-ug-protests-national-protocol-for-safety-of-journalists-covering-public-assemblies-1618677
-
-[Source Link](https://t.me/verdictumlegalupdates/28209)
-
----
-
-### 2026-07-28T10:32:55+00:00
-Defensive Gear Is More Important Than Offensive Ones: Supreme Court Stresses Equal Concern For Injured Police Personnel In NEET Protests
-https://www.verdictum.in/supreme-court/stresses-equal-concern-for-injured-cops-in-neet-protests-1618674
-
-[Source Link](https://t.me/verdictumlegalupdates/28208)
-
----
-
-### 2026-07-28T10:02:33+00:00
-Third-Party Pillion Rider’s Compensation Cannot Be Reduced For Negligence Apportioned Between Two Drivers: Kerala High Court
-https://www.verdictum.in/kerala-high-court/santhosh-v-ea-sainaba-2026ker44749-third-party-pillion-riders-compensation-1618673
-
-[Source Link](https://t.me/verdictumlegalupdates/28207)
 
 ---
 
