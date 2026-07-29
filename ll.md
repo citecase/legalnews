@@ -1,121 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-29T12:14:22+00:00*
+*Last Updated: 2026-07-29T13:27:32+00:00*
 
 ---
 
-### 2026-07-29T12:14:22+00:00
-O VII  7 CPC | Lesser Relief Can Be Decreed, But Not Totally Different Claim : Supreme Court Declines To Allow Partition In Title Suit
-https://www.livelaw.in/supreme-court/o-vii-7-cpc-lesser-relief-can-be-decreed-but-not-totally-different-claim-supreme-court-declines-to-allow-partition-in-title-suit-543427
-
-[Read on Telegram](https://t.me/livelawindia/115959)
-
----
-### 2026-07-29T12:15:42+00:00
-2026 LiveLaw (SC) 732 | Maragadham versus Periyaraja and others
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-732-maragadham-versus-periyaraja-and-others-543428
-
-[Read on Telegram](https://t.me/livelawindia/115960)
-
----
-### 2026-07-29T12:17:32+00:00
-J&K&L High Court Rejects ₹50 Lakh Compensation Claim, Says Closure Of NDPS Probe Shows Investigating Officer Acted Bona Fide
-https://www.livelaw.in/high-court/jammu-kashmir/closure-of-investigation-for-want-of-evidence-is-itself-manifestation-of-investigating-officers-bona-fides-not-mala-fides-jk-high-court-543307
-
-[Read on Telegram](https://t.me/livelawindia/115961)
-
----
-### 2026-07-29T12:18:02+00:00
-“Compensation Or Punishment? When Bad Faith Becomes A Multiplier”
-https://www.livelaw.in/law-firms/law-firm-articles-/compensation-punishment-when-bad-faith-becomes-multiplier-543430
-
-[Read on Telegram](https://t.me/livelawindia/115962)
-
----
-### 2026-07-29T12:19:42+00:00
-'Highly Unbecoming Of Judicial Officer': Karnataka High Court On Road Rage Incident Involving Magistrate, Refers Matter To Chief Justice
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-road-rage-incident-cjm-directs-place-matter-chief-justice-543431
-
-[Read on Telegram](https://t.me/livelawindia/115963)
-
----
-### 2026-07-29T12:27:42+00:00
-Delhi High Court Refuses To Stay HPV Vaccination Drive After Centre Assures 'No Immediate Harm'
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-to-stay-hpv-vaccination-drive-after-centre-assures-no-immediate-harm-543434
-
-[Read on Telegram](https://t.me/livelawindia/115964)
-
----
-### 2026-07-29T12:33:02+00:00
-Return Of Plaint Not Sole Remedy Where Court Lacks Pecuniary Jurisdiction; Suit Can Be Transferred U/S 24(5) CPC: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-transfer-suit-court-lacking-pecuniary-jurisdiction-543369
-
-[Read on Telegram](https://t.me/livelawindia/115965)
-
----
-### 2026-07-29T12:43:02+00:00
-RGNUL Student Research Review Invites Blog Submissions on Contemporary Legal Issues
-https://www.livelaw.in/lawschool/call-for-papers/rgnul-student-research-review-invites-blog-submissions-on-contemporary-legal-issues-543437
-
-[Read on Telegram](https://t.me/livelawindia/115966)
-
----
-### 2026-07-29T12:49:02+00:00
-Service Benefits Can't Be Denied Citing Absence Of ACRs Not Attributable To Employee: Supreme Court
-https://www.livelaw.in/supreme-court/service-benefits-cant-be-denied-citing-absence-of-acrs-not-attributable-to-employee-supreme-court-543439
-
-[Read on Telegram](https://t.me/livelawindia/115967)
-
----
-### 2026-07-29T12:50:32+00:00
-2026 LiveLaw (SC) 733 | High Court of Judicature for Rajasthan v Abhay Jain
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-733-high-court-of-judicature-for-rajasthan-v-abhay-jain-543441
-
-[Read on Telegram](https://t.me/livelawindia/115968)
-
----
-### 2026-07-29T12:50:52+00:00
-Will Acknowledge Complaint Alleging Use Of Pellet Guns, Electric Shock During CJP Protest: Delhi Police Tells High Court
-https://www.livelaw.in/high-court/delhi-high-court/jantar-mantar-protest-delhi-police-excess-complaint-lathi-charge-pellet-guns-543443
-
-[Read on Telegram](https://t.me/livelawindia/115969)
-
----
-### 2026-07-29T12:52:12+00:00
-Cheque Dishonoured As 'Old Cheque' After Bank Merger Can Still Attract Section 138 NI Act: Himachal Pradesh High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-old-cheque-bank-merger-defeat-ni-act-case-543445
-
-[Read on Telegram](https://t.me/livelawindia/115970)
-
----
-### 2026-07-29T13:02:32+00:00
-Factory Safety Violations Covered Under Factories Act Can't Attract Parallel Prosecution Under S.304-A IPC: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-factories-act-prevails-ipc-factory-safety-violations-543357
-
-[Read on Telegram](https://t.me/livelawindia/115971)
-
----
-### 2026-07-29T13:07:32+00:00
-Cryptic Phone Calls, Wireless Messages To Police About Crime Don't By Themselves Constitute FIR: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-information-not-fir-unless-statutory-requirement-154-crpc-543452
-
-[Read on Telegram](https://t.me/livelawindia/115972)
-
----
-### 2026-07-29T13:22:12+00:00
-Property Suspected To Be Proceeds Of Crime Can't Be Released To Third Party During Pendency Of Trial: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/third-party-cannot-seek-release-of-property-during-trial-merely-because-he-is-not-an-accused-if-property-may-ultimately-be-liable-to-confiscation-jk-high-court-543310
-
-[Read on Telegram](https://t.me/livelawindia/115973)
-
----
-### 2026-07-29T13:26:12+00:00
-Allahabad High Court Questions Why Revenue Officer Prepared Two Contradictory Orders In Same Case, Suspects 'Something More Than Negligence'
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-two-contradictory-orders-passed-same-case-sheer-negligence-543458
-
-[Read on Telegram](https://t.me/livelawindia/115974)
-
----
 ### 2026-07-29T13:27:32+00:00
 LiveLaw Daily | UAPA Bail| Jagannath Movie| Aadhaar Citizenship| Paper Leaks Bill & more
 https://www.livelaw.in/podcast/livelaw-daily-supreme-court-judiciary-clat-students-neet-student-protests-bjp-uapa-inter-faith-marriage-news-india-543460
@@ -142,5 +30,117 @@ https://www.livelaw.in/high-court/patna-high-court/patna-high-court-similarly-si
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-denies-bail-to-lawyer-accused-in-land-grabbing-case-543470
 
 [Read on Telegram](https://t.me/livelawindia/115978)
+
+---
+### 2026-07-29T14:31:23+00:00
+Supreme Court Holds OTIS Liable For RAW Officer's Death Due To Lift Malfunction, Says Elevator Makers Have High Duty Of Care
+https://www.livelaw.in/supreme-court/supreme-court-holds-otis-liable-for-raw-officers-death-due-to-lift-malfunction-says-elevator-makers-have-high-duty-of-care-543472
+
+[Read on Telegram](https://t.me/livelawindia/115979)
+
+---
+### 2026-07-29T14:31:53+00:00
+'It's Daylight Fraud If True': Karnataka High Court In Plea For CBI Probe Into Alleged KPSC Veterinary Officer Recruitment Scam
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-corruption-kpsc-veterinary-officer-recruitment-543473
+
+[Read on Telegram](https://t.me/livelawindia/115980)
+
+---
+### 2026-07-29T14:32:23+00:00
+2026 LiveLaw (SC) 734 | M/S OTIS ELEVATOR CO. (INDIA) LTD. VERSUS RASHMI HANDA & ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-734-ms-otis-elevator-co-india-ltd-versus-rashmi-handa-ors-543474
+
+[Read on Telegram](https://t.me/livelawindia/115981)
+
+---
+### 2026-07-29T14:32:53+00:00
+Calcutta High Court Directs Release Of Headmaster's Retiral Benefits Despite Pending Criminal, Disciplinary Proceedings
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-directs-release-of-headmasters-retiral-benefits-despite-pending-criminal-disciplinary-proceedings-543448
+
+[Read on Telegram](https://t.me/livelawindia/115982)
+
+---
+### 2026-07-29T14:33:13+00:00
+Acceptance Of Foreign Divorce Decrees And Judicial Approach Of Indian Courts
+https://www.livelaw.in/lawschool/articles/acceptance-foreign-divorce-decrees-judicial-approach-indian-courts-543239
+
+[Read on Telegram](https://t.me/livelawindia/115983)
+
+---
+### 2026-07-29T15:00:13+00:00
+CJI Surya Kant Unveils AK Sen's Portrait, Says A Legal Titan Eternalised
+https://www.livelaw.in/top-stories/supreme-court-bar-association-ashoke-kumar-sen-portrait-unveiling-cji-surya-kant-543475
+
+[Read on Telegram](https://t.me/livelawindia/115984)
+
+---
+### 2026-07-29T15:12:53+00:00
+Can Deletion From Electoral Roll Justify Denial Of Ration? Calcutta High Court Seeks Authorities' Reply, Grants Interim Protection To Man
+https://www.livelaw.in/high-court/calcutta-high-court/deletion-from-electoral-roll-cannot-justify-denial-of-ration-benefits-calcutta-high-court-grants-interim-relief-to-woman-543477
+
+[Read on Telegram](https://t.me/livelawindia/115985)
+
+---
+### 2026-07-29T15:17:33+00:00
+Mere Existence Of Mental Disorder Is Insufficient To Dissolve Marriage: Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-mere-existence-mental-disorder-insufficient-dissolve-marriage-543313
+
+[Read on Telegram](https://t.me/livelawindia/115986)
+
+---
+### 2026-07-29T15:29:23+00:00
+Standing Guard To Facilitate Rape Attracts Common Intention Liability U/S 34 IPC: Allahabad High Court Upholds Conviction In 1984 Case
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-standing-guard-facilitate-rape-section-34-ipc-543480
+
+[Read on Telegram](https://t.me/livelawindia/115987)
+
+---
+### 2026-07-29T15:37:23+00:00
+NHAI Not A Necessary Party In Motor Accident Compensation Proceedings: Himachal Pradesh High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-nhai-necessary-party-mact-proceedings-543316
+
+[Read on Telegram](https://t.me/livelawindia/115988)
+
+---
+### 2026-07-29T15:52:24+00:00
+'Nothing NICE About It': Karnataka High Court Revokes Land Acquisition For Bengaluru-Mysuru Corridor, Calls It 'Biggest Scam'
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-la-bengaluru-mysuru-infrastructure-corridor-543483
+
+[Read on Telegram](https://t.me/livelawindia/115989)
+
+---
+### 2026-07-29T15:53:44+00:00
+2026 LiveLaw (SC) 735 | Vanashakti v. Union of India
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-735-vanashakti-v-union-of-india-543484
+
+[Read on Telegram](https://t.me/livelawindia/115990)
+
+---
+### 2026-07-29T15:58:04+00:00
+'Model Code Of Conduct No Bar To Statutory Appointments': Supreme Court Directs To Fill Information Commissions Vacancies
+https://www.livelaw.in/top-stories/supreme-court-information-commissioners-vacancy-model-code-of-conduct-not-impediment-to-statutory-appointments-especially-under-court-order-543485
+
+[Read on Telegram](https://t.me/livelawindia/115991)
+
+---
+### 2026-07-29T16:08:04+00:00
+Mother Who Dismissed Complaints And Let Accused Continue Living In House "Intentionally Aids" POCSO Offence By Illegal Omission: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/mother-who-dismissed-complaints-and-let-accused-continue-living-in-house-intentionally-aids-pocso-offence-by-illegal-omission-delhi-high-court-543486
+
+[Read on Telegram](https://t.me/livelawindia/115992)
+
+---
+### 2026-07-29T16:26:54+00:00
+'Police Stations Have Become A Place Of Commercial Activities': Allahabad High Court Orders DGP Inquiry Over Cop's Transport Business
+https://www.livelaw.in/high-court/allahabad-high-court/police-stations-commercial-activities-allahabad-hc-dgp-inquiry-cop-transport-business-543487
+
+[Read on Telegram](https://t.me/livelawindia/115993)
+
+---
+### 2026-07-29T17:23:04+00:00
+Supreme Court Daily Round-Up : July 29, 2026
+https://www.livelaw.in/supreme-court/supreme-court-daily-round-up-july-29-2026-543482
+
+[Read on Telegram](https://t.me/livelawindia/115994)
 
 ---
