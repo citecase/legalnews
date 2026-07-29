@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-29T05:52:56+00:00*
+*Last Updated: 2026-07-29T12:14:22+00:00*
 
 ---
 
-### 2026-07-29T05:52:56+00:00
-Chhattisgarh High Court Seeks Chief Secretary, NHAI Affidavits On Road Safety Measures After Nearly 10,000 Accident Deaths In 17 Months
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-road-accidents-chief-secretary-nhai-file-action-taken-report-543296
+### 2026-07-29T12:14:22+00:00
+O VII  7 CPC | Lesser Relief Can Be Decreed, But Not Totally Different Claim : Supreme Court Declines To Allow Partition In Title Suit
+https://www.livelaw.in/supreme-court/o-vii-7-cpc-lesser-relief-can-be-decreed-but-not-totally-different-claim-supreme-court-declines-to-allow-partition-in-title-suit-543427
 
-[Read on Telegram](https://t.me/livelawindia/115913)
-
----
-### 2026-07-29T06:02:56+00:00
-BCI Rules Do Not Bar Advocate From Representing Family Members; Prohibition Applies To Appearing Before Relative Judges: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bci-rules-not-bar-advocate-representing-family-members-543320
-
-[Read on Telegram](https://t.me/livelawindia/115914)
+[Read on Telegram](https://t.me/livelawindia/115959)
 
 ---
-### 2026-07-29T06:31:27+00:00
-Voter ID, Aadhaar, PAN, Bank Account, Land Records Not Proof Of Citizenship: Calcutta High Court Upholds Detention Of Alleged Foreigner
-https://www.livelaw.in/high-court/calcutta-high-court/voter-id-aadhaar-pan-bank-account-land-records-not-proof-of-citizenship-calcutta-high-court-upholds-detention-of-alleged-foreigner-543356
+### 2026-07-29T12:15:42+00:00
+2026 LiveLaw (SC) 732 | Maragadham versus Periyaraja and others
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-732-maragadham-versus-periyaraja-and-others-543428
 
-[Read on Telegram](https://t.me/livelawindia/115915)
-
----
-### 2026-07-29T06:32:47+00:00
-AP High Court Commutes Death Penalty Of Murder Convicts, Says 'Rarest Of Rare' Test Not Met If Accused Amenable To Reform
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-rarest-of-rare-accused-amenable-reform-life-imprisonment-543324
-
-[Read on Telegram](https://t.me/livelawindia/115916)
+[Read on Telegram](https://t.me/livelawindia/115960)
 
 ---
-### 2026-07-29T06:42:27+00:00
-"You Want Us To Say No Films Can Be Made On Hindu Gods?" : Supreme Court Refuses To Ban 'Mahaprabhu Jagannath' Movie
-https://www.livelaw.in/top-stories/supreme-court-refuses-to-ban-mahaprabhu-jagannath-movie-543358
+### 2026-07-29T12:17:32+00:00
+J&K&L High Court Rejects ₹50 Lakh Compensation Claim, Says Closure Of NDPS Probe Shows Investigating Officer Acted Bona Fide
+https://www.livelaw.in/high-court/jammu-kashmir/closure-of-investigation-for-want-of-evidence-is-itself-manifestation-of-investigating-officers-bona-fides-not-mala-fides-jk-high-court-543307
 
-[Read on Telegram](https://t.me/livelawindia/115917)
-
----
-### 2026-07-29T06:57:48+00:00
-Chhattisgarh High Court Grants 4 Months' Protection To Durg Stadium Shopkeepers Facing Eviction Ahead Of Proposed Redevelopment
-https://www.livelaw.in/high-court/chhattisgarh-high-court/no-coercive-eviction-shopkeepers-ouster-durg-stadium-bcci-lease-plan-543297
-
-[Read on Telegram](https://t.me/livelawindia/115918)
+[Read on Telegram](https://t.me/livelawindia/115961)
 
 ---
-### 2026-07-29T07:08:18+00:00
-Police Have No Business Being 'Nosy Parkers': Allahabad High Court Quashes FIR, Slams Probe Into Consenting Adults' Marriage
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-police-nosy-parkers-quashes-fir-slams-probe-consenting-adults-marriage-543364
+### 2026-07-29T12:18:02+00:00
+“Compensation Or Punishment? When Bad Faith Becomes A Multiplier”
+https://www.livelaw.in/law-firms/law-firm-articles-/compensation-punishment-when-bad-faith-becomes-multiplier-543430
 
-[Read on Telegram](https://t.me/livelawindia/115919)
-
----
-### 2026-07-29T07:09:58+00:00
-Supreme Court Sets Aside Trial Court's Order Summoning Ex-PM Manmohan Singh In Coal Block Case
-https://www.livelaw.in/top-stories/supreme-court-sets-aside-trial-courts-order-summoning-ex-pm-manmohan-singh-in-coal-block-case-543366
-
-[Read on Telegram](https://t.me/livelawindia/115920)
+[Read on Telegram](https://t.me/livelawindia/115962)
 
 ---
-### 2026-07-29T07:12:58+00:00
-KPSC Exams | Scribe Facility Cannot Be Denied Solely Because Disability Is Below 40% Threshold: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/public-exam-scribe-facility-denied-solely-disability-40-threshold-543337
+### 2026-07-29T12:19:42+00:00
+'Highly Unbecoming Of Judicial Officer': Karnataka High Court On Road Rage Incident Involving Magistrate, Refers Matter To Chief Justice
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-road-rage-incident-cjm-directs-place-matter-chief-justice-543431
 
-[Read on Telegram](https://t.me/livelawindia/115921)
-
----
-### 2026-07-29T07:14:18+00:00
-Karnataka High Court Questions Wife's 498A FIR Over Allegation She Was Denied Nutritious Food, Suffered Hair Loss
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-questions-constitutes-cruelty-498a-ipc-543368
-
-[Read on Telegram](https://t.me/livelawindia/115922)
+[Read on Telegram](https://t.me/livelawindia/115963)
 
 ---
-### 2026-07-29T07:33:58+00:00
-Supreme Court Grants Bail To Two UAPA Accused In Jail For 12 Years, Says Slow Trial Violated Article 21
-https://www.livelaw.in/supreme-court/supreme-court-grants-bail-to-two-uapa-accused-in-jail-for-12-years-says-slow-trial-violated-article-21-543370
+### 2026-07-29T12:27:42+00:00
+Delhi High Court Refuses To Stay HPV Vaccination Drive After Centre Assures 'No Immediate Harm'
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-to-stay-hpv-vaccination-drive-after-centre-assures-no-immediate-harm-543434
 
-[Read on Telegram](https://t.me/livelawindia/115923)
-
----
-### 2026-07-29T07:34:58+00:00
-2026 LiveLaw (SC) 730 | MOHD. SAQUIB ANSARI VERSUS STATE NCT OF DELHI
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-730-mohd-saquib-ansari-versus-state-nct-of-delhi-543371
-
-[Read on Telegram](https://t.me/livelawindia/115924)
+[Read on Telegram](https://t.me/livelawindia/115964)
 
 ---
-### 2026-07-29T07:37:18+00:00
-Doctor Conducting Sonography Without Knowledge Of Offence Not Liable Under POCSO Act For Failure To Report: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/diagnostic-sonography-medical-practitioner-knowledge-offence-pocso-543299
+### 2026-07-29T12:33:02+00:00
+Return Of Plaint Not Sole Remedy Where Court Lacks Pecuniary Jurisdiction; Suit Can Be Transferred U/S 24(5) CPC: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-transfer-suit-court-lacking-pecuniary-jurisdiction-543369
 
-[Read on Telegram](https://t.me/livelawindia/115925)
-
----
-### 2026-07-29T07:48:38+00:00
-MRTP Act | Denying Refund Of Unused Additional FSI Premium For Housing Projects Arbitrary : Supreme Court
-https://www.livelaw.in/supreme-court/mrtp-act-denying-refund-of-unused-additional-fsi-premium-for-housing-projects-arbitrary-supreme-court-543372
-
-[Read on Telegram](https://t.me/livelawindia/115926)
+[Read on Telegram](https://t.me/livelawindia/115965)
 
 ---
-### 2026-07-29T07:49:38+00:00
-2026 LiveLaw (SC) 731 | Prasad Pandurang Tapkir and another versus The Assistant Director of Town Planning, Pune District, Pune and others
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-731-prasad-pandurang-tapkir-and-another-versus-the-assistant-director-of-town-planning-pune-district-pune-and-others-543373
+### 2026-07-29T12:43:02+00:00
+RGNUL Student Research Review Invites Blog Submissions on Contemporary Legal Issues
+https://www.livelaw.in/lawschool/call-for-papers/rgnul-student-research-review-invites-blog-submissions-on-contemporary-legal-issues-543437
 
-[Read on Telegram](https://t.me/livelawindia/115927)
-
----
-### 2026-07-29T08:00:28+00:00
-Allahabad High Court Rejects PIL Seeking Enforcement Of Court Sitting Hours; Says Mandamus Against HC Judges Can't Be 'Countenanced'
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-rejects-pil-court-sitting-hours-enforcement-543374
-
-[Read on Telegram](https://t.me/livelawindia/115928)
+[Read on Telegram](https://t.me/livelawindia/115966)
 
 ---
-### 2026-07-29T08:02:48+00:00
-Mere Route Permit Breach Without Nexus To Accident Cannot Justify Repudiation Of Insurance Claim: J&K State Commission
-https://www.livelaw.in/consumer-cases/mere-route-permit-breach-without-nexus-to-accident-cannot-justify-repudiation-of-insurance-claim-jk-state-commission-543339
+### 2026-07-29T12:49:02+00:00
+Service Benefits Can't Be Denied Citing Absence Of ACRs Not Attributable To Employee: Supreme Court
+https://www.livelaw.in/supreme-court/service-benefits-cant-be-denied-citing-absence-of-acrs-not-attributable-to-employee-supreme-court-543439
 
-[Read on Telegram](https://t.me/livelawindia/115929)
-
----
-### 2026-07-29T08:17:48+00:00
-Bombay High Court Quashes Externment Of SDPI Worker For Merely Protesting Babri Masjid Demolition, Opposing Central Govt Decisions
-https://www.livelaw.in/high-court/bombay-high-court/protesting-demolition-babri-masjid-agitating-decisions-central-government-externement-543376
-
-[Read on Telegram](https://t.me/livelawindia/115930)
+[Read on Telegram](https://t.me/livelawindia/115967)
 
 ---
-### 2026-07-29T08:27:09+00:00
-ED Officials Attack: Kerala High Court Seeks State's Response On Bail Plea Of Accused
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ed-attack-bail-pinarayi-vijayan-543378
+### 2026-07-29T12:50:32+00:00
+2026 LiveLaw (SC) 733 | High Court of Judicature for Rajasthan v Abhay Jain
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-733-high-court-of-judicature-for-rajasthan-v-abhay-jain-543441
 
-[Read on Telegram](https://t.me/livelawindia/115931)
+[Read on Telegram](https://t.me/livelawindia/115968)
 
 ---
-### 2026-07-29T08:32:49+00:00
-Expeditious Disposal Of Divorce Case Can't Mean Denial Of Fair Hearing: Uttarakhand High Court Sets Aside Ex Parte Order Against Wife
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-restores-wife-defence-right-543302
+### 2026-07-29T12:50:52+00:00
+Will Acknowledge Complaint Alleging Use Of Pellet Guns, Electric Shock During CJP Protest: Delhi Police Tells High Court
+https://www.livelaw.in/high-court/delhi-high-court/jantar-mantar-protest-delhi-police-excess-complaint-lathi-charge-pellet-guns-543443
 
-[Read on Telegram](https://t.me/livelawindia/115932)
+[Read on Telegram](https://t.me/livelawindia/115969)
+
+---
+### 2026-07-29T12:52:12+00:00
+Cheque Dishonoured As 'Old Cheque' After Bank Merger Can Still Attract Section 138 NI Act: Himachal Pradesh High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-old-cheque-bank-merger-defeat-ni-act-case-543445
+
+[Read on Telegram](https://t.me/livelawindia/115970)
+
+---
+### 2026-07-29T13:02:32+00:00
+Factory Safety Violations Covered Under Factories Act Can't Attract Parallel Prosecution Under S.304-A IPC: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-factories-act-prevails-ipc-factory-safety-violations-543357
+
+[Read on Telegram](https://t.me/livelawindia/115971)
+
+---
+### 2026-07-29T13:07:32+00:00
+Cryptic Phone Calls, Wireless Messages To Police About Crime Don't By Themselves Constitute FIR: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-information-not-fir-unless-statutory-requirement-154-crpc-543452
+
+[Read on Telegram](https://t.me/livelawindia/115972)
+
+---
+### 2026-07-29T13:22:12+00:00
+Property Suspected To Be Proceeds Of Crime Can't Be Released To Third Party During Pendency Of Trial: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/third-party-cannot-seek-release-of-property-during-trial-merely-because-he-is-not-an-accused-if-property-may-ultimately-be-liable-to-confiscation-jk-high-court-543310
+
+[Read on Telegram](https://t.me/livelawindia/115973)
+
+---
+### 2026-07-29T13:26:12+00:00
+Allahabad High Court Questions Why Revenue Officer Prepared Two Contradictory Orders In Same Case, Suspects 'Something More Than Negligence'
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-two-contradictory-orders-passed-same-case-sheer-negligence-543458
+
+[Read on Telegram](https://t.me/livelawindia/115974)
+
+---
+### 2026-07-29T13:27:32+00:00
+LiveLaw Daily | UAPA Bail| Jagannath Movie| Aadhaar Citizenship| Paper Leaks Bill & more
+https://www.livelaw.in/podcast/livelaw-daily-supreme-court-judiciary-clat-students-neet-student-protests-bjp-uapa-inter-faith-marriage-news-india-543460
+
+[Read on Telegram](https://t.me/livelawindia/115975)
+
+---
+### 2026-07-29T14:02:23+00:00
+Delhi High Court Upholds ₹11 Lakh Penalty On School Bus Operator For Parking Buses On 'Environmentally Sensitive' Yamuna Floodplains
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-upholds-11-lakh-penalty-on-school-bus-operator-for-parking-buses-on-environmentally-sensitive-yamuna-floodplains-543466
+
+[Read on Telegram](https://t.me/livelawindia/115976)
+
+---
+### 2026-07-29T14:02:43+00:00
+Similarly Situated Employees Already Regularised Cannot Be Denied Same Benefit Without Intelligible Differentia: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-similarly-situated-employees-regularised-denied-benefit-543311
+
+[Read on Telegram](https://t.me/livelawindia/115977)
+
+---
+### 2026-07-29T14:16:23+00:00
+'Being An Advocate, Presumed To Be Well-Aware Of Consequences': P&H High Court Denies Bail To Lawyer Accused In Land-Grabbing Case
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-denies-bail-to-lawyer-accused-in-land-grabbing-case-543470
+
+[Read on Telegram](https://t.me/livelawindia/115978)
 
 ---
