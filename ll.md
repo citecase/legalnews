@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-28T13:02:41+00:00*
+*Last Updated: 2026-07-28T14:03:01+00:00*
 
 ---
 
-### 2026-07-28T13:02:41+00:00
-Assam Settlement Rules | Revenue Authorities Can't Evict Encroachers From Private Land: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/assam-settlement-rules-revenue-cant-eject-encroachers-private-land-543235
-
-[Read on Telegram](https://t.me/livelawindia/115860)
-
----
-### 2026-07-28T13:17:31+00:00
-Madras High Court Moots Policy Review On Enrolment, Bar Association Posts For Advocates Facing Criminal Cases, Orders Survey
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-lawyers-criminal-cases-bci-tamil-nadu-bar-council-survey-543237
-
-[Read on Telegram](https://t.me/livelawindia/115861)
-
----
-### 2026-07-28T13:32:31+00:00
-Does Informing Live-In Partner's Father Fulfil Police Duty To Notify Family Of Arrest? Kerala High Court Answers
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-arrest-grounds-friend-relative-livein-partner-father-543240
-
-[Read on Telegram](https://t.me/livelawindia/115862)
-
----
-### 2026-07-28T13:48:11+00:00
-Recovery Of Stolen Property Alone Can't Sustain Murder Conviction, Attracts Only Section 411 IPC: Andhra Pradesh High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-murder-conviction-recovery-stolen-property-section411-ipc-543241
-
-[Read on Telegram](https://t.me/livelawindia/115863)
-
----
-### 2026-07-28T14:00:21+00:00
-MP Court Acquits 11 Accused of Communal Violence In Khargone During Ram Navami 2022
-https://www.livelaw.in/news-updates/khargone-court-acquits-men-of-communal-violence-occured-in-2022-during-ram-navami-543252
-
-[Read on Telegram](https://t.me/livelawindia/115864)
-
----
 ### 2026-07-28T14:03:01+00:00
 Pending Probe Into Pharma Firm's COVID Sanitizer Supply Can't Justify Withholding Payment For Undisputed Drug Supplies: Karnataka High Court
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-directs-payment-pharma-firm-covid19-procurement-irregularities-543243
@@ -142,5 +107,40 @@ Supreme Court Daily Round-Up : July 28, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-july-28-2026-543282
 
 [Read on Telegram](https://t.me/livelawindia/115879)
+
+---
+### 2026-07-29T02:39:32+00:00
+Law Researchers Vacancy At High Court Of Uttarakhand
+https://www.livelaw.in/job-updates/law-researchers-vacancy-at-high-court-of-uttarakhand-543288
+
+[Read on Telegram](https://t.me/livelawindia/115880)
+
+---
+### 2026-07-29T02:57:43+00:00
+Associate (Tax) Vacancy At Ernst & Young [Apply Now]
+https://www.livelaw.in/job-updates/associate-tax-vacancy-at-ernst-young-543289
+
+[Read on Telegram](https://t.me/livelawindia/115881)
+
+---
+### 2026-07-29T03:00:43+00:00
+Assistant Project Manager Vacancy At Indian Institute Of Technology, Kanpur
+https://www.livelaw.in/job-updates/assistant-project-manager-vacancy-at-indian-institute-of-technology-kanpur-543290
+
+[Read on Telegram](https://t.me/livelawindia/115882)
+
+---
+### 2026-07-29T03:01:43+00:00
+Language Officer Vacancy At Law Department, Odisha
+https://www.livelaw.in/job-updates/language-officer-vacancy-at-law-department-odisha-543291
+
+[Read on Telegram](https://t.me/livelawindia/115883)
+
+---
+### 2026-07-29T03:03:03+00:00
+Delhi High Court Refuses To Halt Town Vending Committee Elections Over OBC Reservation Dispute
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-to-halt-town-vending-committee-elections-over-obc-reservation-dispute-543283
+
+[Read on Telegram](https://t.me/livelawindia/115884)
 
 ---
