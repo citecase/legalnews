@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-28T14:03:01+00:00*
+*Last Updated: 2026-07-29T05:52:56+00:00*
 
 ---
 
-### 2026-07-28T14:03:01+00:00
-Pending Probe Into Pharma Firm's COVID Sanitizer Supply Can't Justify Withholding Payment For Undisputed Drug Supplies: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-directs-payment-pharma-firm-covid19-procurement-irregularities-543243
+### 2026-07-29T05:52:56+00:00
+Chhattisgarh High Court Seeks Chief Secretary, NHAI Affidavits On Road Safety Measures After Nearly 10,000 Accident Deaths In 17 Months
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-road-accidents-chief-secretary-nhai-file-action-taken-report-543296
 
-[Read on Telegram](https://t.me/livelawindia/115865)
-
----
-### 2026-07-28T14:18:01+00:00
-“I Had A Right To Be Heard”: Former TN Minister KN Nehru Seeks Review Of High Court Order Directing Corruption FIR Against Him
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-kn-nehru-tndvac-fir-order-review-right-to-be-heard-543245
-
-[Read on Telegram](https://t.me/livelawindia/115866)
+[Read on Telegram](https://t.me/livelawindia/115913)
 
 ---
-### 2026-07-28T14:33:01+00:00
-'Progressive Welfare Measure': Kerala High Court Asks State To Consider KSRTC Women Conductors' Plea For 2-Day Paid Menstrual Leave
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-paid-menstrual-leave-ksrtc-women-conductors-543247
+### 2026-07-29T06:02:56+00:00
+BCI Rules Do Not Bar Advocate From Representing Family Members; Prohibition Applies To Appearing Before Relative Judges: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bci-rules-not-bar-advocate-representing-family-members-543320
 
-[Read on Telegram](https://t.me/livelawindia/115867)
-
----
-### 2026-07-28T14:33:11+00:00
-Bylaws And Custodianship: Strengthening Community Governance Of India's Commons
-https://www.livelaw.in/articles/bylaws-custodianship-strengthening-community-governance-india-commons-543231
-
-[Read on Telegram](https://t.me/livelawindia/115868)
+[Read on Telegram](https://t.me/livelawindia/115914)
 
 ---
-### 2026-07-28T14:45:11+00:00
-Supreme Court Seeks Reports From 5 High Courts On Creation Of Dashboards For Unclaimed Motor Accident & Labour Court Sums
-https://www.livelaw.in/top-stories/supreme-court-seeks-reports-from-5-high-courts-on-creation-of-dashboards-for-unclaimed-motor-accident-labour-court-sums-543258
+### 2026-07-29T06:31:27+00:00
+Voter ID, Aadhaar, PAN, Bank Account, Land Records Not Proof Of Citizenship: Calcutta High Court Upholds Detention Of Alleged Foreigner
+https://www.livelaw.in/high-court/calcutta-high-court/voter-id-aadhaar-pan-bank-account-land-records-not-proof-of-citizenship-calcutta-high-court-upholds-detention-of-alleged-foreigner-543356
 
-[Read on Telegram](https://t.me/livelawindia/115869)
-
----
-### 2026-07-28T15:08:52+00:00
-Suspension Of Sentence Plea Needn't Get Preference If Parties Are Ready To Argue Appeal/ Revision On Merits: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-suspension-of-sentence-plea-criminal-appeal-revision-merits-543262
-
-[Read on Telegram](https://t.me/livelawindia/115870)
+[Read on Telegram](https://t.me/livelawindia/115915)
 
 ---
-### 2026-07-28T15:25:32+00:00
-Evidence Act | Section 27 Recoveries Alone Can't Sustain Conviction  : Supreme Court Restores Acquittal In 1988 Murder Case
-https://www.livelaw.in/supreme-court/evidence-act-section-27-recoveries-alone-cant-sustain-conviction-supreme-court-restores-acquittal-in-1988-murder-case-543268
+### 2026-07-29T06:32:47+00:00
+AP High Court Commutes Death Penalty Of Murder Convicts, Says 'Rarest Of Rare' Test Not Met If Accused Amenable To Reform
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-rarest-of-rare-accused-amenable-reform-life-imprisonment-543324
 
-[Read on Telegram](https://t.me/livelawindia/115871)
-
----
-### 2026-07-28T15:26:52+00:00
-2026 LiveLaw (SC) 727 | Khalil Pasha & Ors. Versus Abdul Rasheed & Anr.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-727-khalil-pasha-ors-versus-abdul-rasheed-anr-543269
-
-[Read on Telegram](https://t.me/livelawindia/115872)
+[Read on Telegram](https://t.me/livelawindia/115916)
 
 ---
-### 2026-07-28T15:42:42+00:00
-Supreme Court Rejects Plea Seeking Mechanism For Urgent Hearings  Beyond Regular Hours, Says E-Filing Allows Anytime Access
-https://www.livelaw.in/top-stories/supreme-court-rejects-plea-for-mechanism-to-hear-urgent-matters-life-liberty-after-ordinary-court-hours-543273
+### 2026-07-29T06:42:27+00:00
+"You Want Us To Say No Films Can Be Made On Hindu Gods?" : Supreme Court Refuses To Ban 'Mahaprabhu Jagannath' Movie
+https://www.livelaw.in/top-stories/supreme-court-refuses-to-ban-mahaprabhu-jagannath-movie-543358
 
-[Read on Telegram](https://t.me/livelawindia/115873)
-
----
-### 2026-07-28T15:45:02+00:00
-2026 LiveLaw (SC) 728 | MAHERAVISH REIN v. UNION OF INDIA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-728-maheravish-rein-v-union-of-india-543275
-
-[Read on Telegram](https://t.me/livelawindia/115874)
+[Read on Telegram](https://t.me/livelawindia/115917)
 
 ---
-### 2026-07-28T15:56:42+00:00
-P&H High Court Issues Directions On LADC Scheme Considering Lawyer's Objections
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-issues-directions-on-ladc-scheme-considering-lawyers-objections-543277
+### 2026-07-29T06:57:48+00:00
+Chhattisgarh High Court Grants 4 Months' Protection To Durg Stadium Shopkeepers Facing Eviction Ahead Of Proposed Redevelopment
+https://www.livelaw.in/high-court/chhattisgarh-high-court/no-coercive-eviction-shopkeepers-ouster-durg-stadium-bcci-lease-plan-543297
 
-[Read on Telegram](https://t.me/livelawindia/115875)
-
----
-### 2026-07-28T16:10:42+00:00
-Sambhal Mosque Dispute |  HC Couldn't Have Upheld Survey Order Due To SC's December 2024 Order : Ahmadi Tells Supreme Court
-https://www.livelaw.in/top-stories/sambhal-mosque-dispute-hc-couldnt-have-upheld-survey-order-due-to-scs-december-2024-order-ahmadi-tells-supreme-court-543279
-
-[Read on Telegram](https://t.me/livelawindia/115876)
+[Read on Telegram](https://t.me/livelawindia/115918)
 
 ---
-### 2026-07-28T16:11:42+00:00
-Bombay High Court Issues Notice On Raj Kundra's Plea Challenging Summons In ED's 'Bitcoins' Case
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-issues-notice-on-raj-kundras-plea-challenging-summons-in-eds-bitcoins-case-543280
+### 2026-07-29T07:08:18+00:00
+Police Have No Business Being 'Nosy Parkers': Allahabad High Court Quashes FIR, Slams Probe Into Consenting Adults' Marriage
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-police-nosy-parkers-quashes-fir-slams-probe-consenting-adults-marriage-543364
 
-[Read on Telegram](https://t.me/livelawindia/115877)
-
----
-### 2026-07-28T16:22:23+00:00
-Delhi High Court Weekly Round-Up: July 20 To July 26, 2026
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-weekly-round-up-july-20-to-july-26-2026-543281
-
-[Read on Telegram](https://t.me/livelawindia/115878)
+[Read on Telegram](https://t.me/livelawindia/115919)
 
 ---
-### 2026-07-28T17:17:13+00:00
-Supreme Court Daily Round-Up : July 28, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-july-28-2026-543282
+### 2026-07-29T07:09:58+00:00
+Supreme Court Sets Aside Trial Court's Order Summoning Ex-PM Manmohan Singh In Coal Block Case
+https://www.livelaw.in/top-stories/supreme-court-sets-aside-trial-courts-order-summoning-ex-pm-manmohan-singh-in-coal-block-case-543366
 
-[Read on Telegram](https://t.me/livelawindia/115879)
-
----
-### 2026-07-29T02:39:32+00:00
-Law Researchers Vacancy At High Court Of Uttarakhand
-https://www.livelaw.in/job-updates/law-researchers-vacancy-at-high-court-of-uttarakhand-543288
-
-[Read on Telegram](https://t.me/livelawindia/115880)
+[Read on Telegram](https://t.me/livelawindia/115920)
 
 ---
-### 2026-07-29T02:57:43+00:00
-Associate (Tax) Vacancy At Ernst & Young [Apply Now]
-https://www.livelaw.in/job-updates/associate-tax-vacancy-at-ernst-young-543289
+### 2026-07-29T07:12:58+00:00
+KPSC Exams | Scribe Facility Cannot Be Denied Solely Because Disability Is Below 40% Threshold: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/public-exam-scribe-facility-denied-solely-disability-40-threshold-543337
 
-[Read on Telegram](https://t.me/livelawindia/115881)
-
----
-### 2026-07-29T03:00:43+00:00
-Assistant Project Manager Vacancy At Indian Institute Of Technology, Kanpur
-https://www.livelaw.in/job-updates/assistant-project-manager-vacancy-at-indian-institute-of-technology-kanpur-543290
-
-[Read on Telegram](https://t.me/livelawindia/115882)
+[Read on Telegram](https://t.me/livelawindia/115921)
 
 ---
-### 2026-07-29T03:01:43+00:00
-Language Officer Vacancy At Law Department, Odisha
-https://www.livelaw.in/job-updates/language-officer-vacancy-at-law-department-odisha-543291
+### 2026-07-29T07:14:18+00:00
+Karnataka High Court Questions Wife's 498A FIR Over Allegation She Was Denied Nutritious Food, Suffered Hair Loss
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-questions-constitutes-cruelty-498a-ipc-543368
 
-[Read on Telegram](https://t.me/livelawindia/115883)
+[Read on Telegram](https://t.me/livelawindia/115922)
 
 ---
-### 2026-07-29T03:03:03+00:00
-Delhi High Court Refuses To Halt Town Vending Committee Elections Over OBC Reservation Dispute
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-to-halt-town-vending-committee-elections-over-obc-reservation-dispute-543283
+### 2026-07-29T07:33:58+00:00
+Supreme Court Grants Bail To Two UAPA Accused In Jail For 12 Years, Says Slow Trial Violated Article 21
+https://www.livelaw.in/supreme-court/supreme-court-grants-bail-to-two-uapa-accused-in-jail-for-12-years-says-slow-trial-violated-article-21-543370
 
-[Read on Telegram](https://t.me/livelawindia/115884)
+[Read on Telegram](https://t.me/livelawindia/115923)
+
+---
+### 2026-07-29T07:34:58+00:00
+2026 LiveLaw (SC) 730 | MOHD. SAQUIB ANSARI VERSUS STATE NCT OF DELHI
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-730-mohd-saquib-ansari-versus-state-nct-of-delhi-543371
+
+[Read on Telegram](https://t.me/livelawindia/115924)
+
+---
+### 2026-07-29T07:37:18+00:00
+Doctor Conducting Sonography Without Knowledge Of Offence Not Liable Under POCSO Act For Failure To Report: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/diagnostic-sonography-medical-practitioner-knowledge-offence-pocso-543299
+
+[Read on Telegram](https://t.me/livelawindia/115925)
+
+---
+### 2026-07-29T07:48:38+00:00
+MRTP Act | Denying Refund Of Unused Additional FSI Premium For Housing Projects Arbitrary : Supreme Court
+https://www.livelaw.in/supreme-court/mrtp-act-denying-refund-of-unused-additional-fsi-premium-for-housing-projects-arbitrary-supreme-court-543372
+
+[Read on Telegram](https://t.me/livelawindia/115926)
+
+---
+### 2026-07-29T07:49:38+00:00
+2026 LiveLaw (SC) 731 | Prasad Pandurang Tapkir and another versus The Assistant Director of Town Planning, Pune District, Pune and others
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-731-prasad-pandurang-tapkir-and-another-versus-the-assistant-director-of-town-planning-pune-district-pune-and-others-543373
+
+[Read on Telegram](https://t.me/livelawindia/115927)
+
+---
+### 2026-07-29T08:00:28+00:00
+Allahabad High Court Rejects PIL Seeking Enforcement Of Court Sitting Hours; Says Mandamus Against HC Judges Can't Be 'Countenanced'
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-rejects-pil-court-sitting-hours-enforcement-543374
+
+[Read on Telegram](https://t.me/livelawindia/115928)
+
+---
+### 2026-07-29T08:02:48+00:00
+Mere Route Permit Breach Without Nexus To Accident Cannot Justify Repudiation Of Insurance Claim: J&K State Commission
+https://www.livelaw.in/consumer-cases/mere-route-permit-breach-without-nexus-to-accident-cannot-justify-repudiation-of-insurance-claim-jk-state-commission-543339
+
+[Read on Telegram](https://t.me/livelawindia/115929)
+
+---
+### 2026-07-29T08:17:48+00:00
+Bombay High Court Quashes Externment Of SDPI Worker For Merely Protesting Babri Masjid Demolition, Opposing Central Govt Decisions
+https://www.livelaw.in/high-court/bombay-high-court/protesting-demolition-babri-masjid-agitating-decisions-central-government-externement-543376
+
+[Read on Telegram](https://t.me/livelawindia/115930)
+
+---
+### 2026-07-29T08:27:09+00:00
+ED Officials Attack: Kerala High Court Seeks State's Response On Bail Plea Of Accused
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ed-attack-bail-pinarayi-vijayan-543378
+
+[Read on Telegram](https://t.me/livelawindia/115931)
+
+---
+### 2026-07-29T08:32:49+00:00
+Expeditious Disposal Of Divorce Case Can't Mean Denial Of Fair Hearing: Uttarakhand High Court Sets Aside Ex Parte Order Against Wife
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-restores-wife-defence-right-543302
+
+[Read on Telegram](https://t.me/livelawindia/115932)
 
 ---
