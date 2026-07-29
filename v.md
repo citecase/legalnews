@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-29T14:12:25+00:00*
+*Last Updated: 2026-07-29T16:02:49+00:00*
+
+---
+
+### 2026-07-29T16:02:49+00:00
+Probationary Legal Officer Vacancy At Bharat Electronics Limited (BEL)
+https://www.verdictum.in/job-updates/bharat-electronics-limited-1618758
+
+[Source Link](https://t.me/verdictumlegalupdates/28238)
+
+---
+
+### 2026-07-29T15:32:48+00:00
+National Commission For Scheduled Caste Can’t Take Over Adjudicatory Functions To Pass Orders In Service Matters: Supreme Court
+https://www.verdictum.in/supreme-court/mumbai-port-authority-v-national-commission-for-scheduled-caste-2026-insc-755-national-commission-scheduled-caste-1618765
+
+[Source Link](https://t.me/verdictumlegalupdates/28237)
+
+---
+
+### 2026-07-29T15:02:47+00:00
+Consumer Commission Orders Bank To Reimburse Money In Digital Arrest Cyber Fraud Case Citing Violation Of RBI Guidelines On 'Suspicious Transactions'
+https://www.verdictum.in/other-courts/consumer-commission-deficiency-service-digital-arrest-cyber-fraud-rbi-guidlines-1618763
+
+[Source Link](https://t.me/verdictumlegalupdates/28236)
 
 ---
 
@@ -137,30 +161,6 @@ Workman Must Prove Legality Of His Induction Before Challenging Termination: Del
 https://www.verdictum.in/delhi-high-court/jai-prakash-ors-v-dda-2026dhc5970-dda-reinstatement-award-1618716
 
 [Source Link](https://t.me/verdictumlegalupdates/28219)
-
----
-
-### 2026-07-29T04:32:25+00:00
-Centre Not Precluded From Directing Name Change Of Company With Similar Name On Application By Complainant Company: Delhi High Court
-https://www.verdictum.in/delhi-high-court/dna-forensics-test-solutions-private-limited-v-union-of-india-2026dhc5949-centre-name-change-company-1618694
-
-[Source Link](https://t.me/verdictumlegalupdates/28218)
-
----
-
-### 2026-07-28T16:02:56+00:00
-Empanelment Of Advocates At Employees’ State Insurance Corporation (ESIC)
-https://www.verdictum.in/job-updates/employees-state-insurance-corporation-1618683
-
-[Source Link](https://t.me/verdictumlegalupdates/28217)
-
----
-
-### 2026-07-28T15:12:14+00:00
-Reassessment Notice U/S 148 IT Act Issued To Dead Person Void Ab Initio; Proceedings Against Legal Heir Valid Only If Within Limitation: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/smt-asha-dubey-v-union-of-india-and-others-2026ahc-lko48354-db-it-act-1618692
-
-[Source Link](https://t.me/verdictumlegalupdates/28216)
 
 ---
 
