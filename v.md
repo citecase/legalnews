@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-30T14:32:20+00:00*
+*Last Updated: 2026-07-30T16:02:54+00:00*
+
+---
+
+### 2026-07-30T16:02:54+00:00
+SIC Maharashtra Invites Applications For Post Of Under Secretary (Law)
+https://www.verdictum.in/job-updates/state-information-commission-maharashtra-1618838
+
+[Source Link](https://t.me/verdictumlegalupdates/28262)
+
+---
+
+### 2026-07-30T15:32:53+00:00
+Market Value Cannot Be Lower Than That Specified As Ready Reckoner Rate: Bombay High Court Upholds Interim Arbitral Award In 75-Year-Old Land Acquisition Dispute
+https://www.verdictum.in/bombay-high-court/municipal-corporation-of-greater-mumbai-v-kekobad-dossabhoy-doongriwalla-2026bhc-os16990-75-year-old-land-acquisition-dispute-1618837
+
+[Source Link](https://t.me/verdictumlegalupdates/28261)
+
+---
+
+### 2026-07-30T15:02:32+00:00
+Posts Reserved For PwDs Can’t Be Further Reserved For SC Category: Himachal Pradesh High Court Directs Appointment For Hearing-Impaired Candidate
+https://www.verdictum.in/himachal-high-court/hoshiyar-singh-v-state-of-hp-and-others-2026hhc31275-1618836
+
+[Source Link](https://t.me/verdictumlegalupdates/28260)
 
 ---
 
@@ -137,30 +161,6 @@ Auction Purchaser Has Locus Standi To Seek Writ Enforcing U/S 14 SARFAESI Act Or
 https://www.verdictum.in/bombay-high-court/ms-jasraj-restaurants-pvt-ltd-v-state-of-maharashtra-writ-petition-no-8601-of-2026-us-14-sarfaesi-act-order-1618801
 
 [Source Link](https://t.me/verdictumlegalupdates/28243)
-
----
-
-### 2026-07-30T06:03:06+00:00
-No Disciplinary Inquiry Needed To Strike BEST Badli Driver Off Panel For Excessive Demerit Points; No Right To Permanently Remain On Panel: Bombay High Court
-https://www.verdictum.in/bombay-high-court/the-municipal-corporation-of-greater-mumbai-best-undertaking-v-vidat-ashok-sonawane-writ-petition-no-2607-of-2016-strike-best-badli-driver-off-panel-1618797
-
-[Source Link](https://t.me/verdictumlegalupdates/28242)
-
----
-
-### 2026-07-30T05:32:44+00:00
-Employer Withholding Employment Records Cannot Defeat Workman’s Claim Of 240 Days Service: Delhi High Court
-https://www.verdictum.in/delhi-high-court/amarjit-singh-v-aiims-2026dhc6053-aiims-awards-grants-lump-sum-compensation-240-days-service-1618792
-
-[Source Link](https://t.me/verdictumlegalupdates/28241)
-
----
-
-### 2026-07-30T05:02:43+00:00
-Acts Wholly Unrelated To Official Functions: Kerala High Court Refuses To Quash Rape Probe Against Police Officers
-https://www.verdictum.in/kerala-high-court/vinod-valiyattoor-v-state-of-kerala-2026ker53414-rape-probe-against-police-officers-discharge-of-official-duty-1618791
-
-[Source Link](https://t.me/verdictumlegalupdates/28240)
 
 ---
 
