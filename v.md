@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-30T09:01:15+00:00*
+*Last Updated: 2026-07-30T14:32:20+00:00*
+
+---
+
+### 2026-07-30T14:32:20+00:00
+State Can’t Take Advantage Of Its Own Continuing Default: Supreme Court Grants Relief To Deputy Collector Promotees
+https://www.verdictum.in/supreme-court/the-state-of-uttarakhand-v-jagdish-chandra-kandpal-ors-2026-insc-759-deputy-collector-promotees-1618835
+
+[Source Link](https://t.me/verdictumlegalupdates/28259)
+
+---
+
+### 2026-07-30T14:02:59+00:00
+Employer Cannot Deny Promotion Or Pay Scale For Missing ACRs Caused By Its Own Wrongful Action: Supreme Court
+https://www.verdictum.in/supreme-court/high-court-of-judicature-for-rajasthan-v-abhay-jain-2026-insc-762-acr-1618834
+
+[Source Link](https://t.me/verdictumlegalupdates/28258)
+
+---
+
+### 2026-07-30T13:32:58+00:00
+Requirement Of Seeking Prior Permission Before Applying For Civil Post & Grant Of NOC Can’t Be Dispensed With At Airman’s Will: Supreme Court
+https://www.verdictum.in/supreme-court/nakhat-singh-v-union-of-india-2026-insc-758-prior-permission-civil-post-noc-airman-1618828
+
+[Source Link](https://t.me/verdictumlegalupdates/28257)
+
+---
+
+### 2026-07-30T13:02:36+00:00
+‘Be Realistic, We Are In India’: Bombay High Court Quashes Suspension Of Hotel Licence By FDA Over Presence Of Insects In Kitchen
+https://www.verdictum.in/bombay-high-court/suspension-of-hotel-licence-by-fda-over-hygiene-quashed-1618833
+
+[Source Link](https://t.me/verdictumlegalupdates/28256)
+
+---
+
+### 2026-07-30T12:32:35+00:00
+Supreme Court Reserves Verdict On Review Petitions Challenging Mandatory 3-Year Practice Rule For Entry-Level Judicial Officers
+https://www.verdictum.in/supreme-court/reserves-verdict-review-petitions-mandatory-3-year-practice-rule-entry-level-judicial-officers-1618831
+
+[Source Link](https://t.me/verdictumlegalupdates/28255)
+
+---
+
+### 2026-07-30T12:03:14+00:00
+Bhojshala Dispute: Supreme Court Directs State To Permit Friday Namaz At Dargah Land Abutting Complex, Clarifies Specific Land Portion
+https://www.verdictum.in/supreme-court/directs-state-permit-friday-namaz-dargah-land-abutting-complex-clarifies-specific-land-portion-1618830
+
+[Source Link](https://t.me/verdictumlegalupdates/28254)
+
+---
+
+### 2026-07-30T11:32:12+00:00
+Supreme Court Permits IIT Kharagpur Student Diagnosed With Borderline Personality Disorder To Be Transferred To IIT Roorkee
+https://www.verdictum.in/supreme-court/iit-kharagpur-student-diagnosed-with-borderline-personality-disorder-to-be-transferred-to-iit-roorkee-1618821
+
+[Source Link](https://t.me/verdictumlegalupdates/28253)
+
+---
+
+### 2026-07-30T11:02:31+00:00
+Supreme Court Seeks Response Of Punjab CM, AAP Leaders On Chandigarh's Plea In 2020 Rioting Case
+https://www.verdictum.in/supreme-court/punjab-cm-aap-leaders-on-chandigarhs-plea-in-2020-rioting-case-1618822
+
+[Source Link](https://t.me/verdictumlegalupdates/28252)
+
+---
+
+### 2026-07-30T10:33:10+00:00
+NEET Protests | Supreme Court Directs Centre To Preserve RAF Ammunition Log; Terms Complete Ban On Pellet Guns 'Vague' Without Challenging Police Regulations
+https://www.verdictum.in/supreme-court/neet-protests-centre-preserve-raf-ammunition-log-ban-pellet-guns-vague-police-regulations-1618823
+
+[Source Link](https://t.me/verdictumlegalupdates/28251)
+
+---
+
+### 2026-07-30T10:02:48+00:00
+Roads Inside ICD Not Public Place Under MVA; Claimants May Seek Compensation For Accidents By Regular Vehicles Within Depot: Supreme Court
+https://www.verdictum.in/supreme-court/container-corporation-of-india-limited-v-rishi-ranjan-mishra-others-2026-insc-763-1618820
+
+[Source Link](https://t.me/verdictumlegalupdates/28250)
+
+---
+
+### 2026-07-30T09:32:27+00:00
+Order VII Rule 7 CPC| Court’s Discretion To Grant Smaller Relief Than Claimed Not Available When Plaintiff Sets Up Different Case From Established One: Supreme Court
+https://www.verdictum.in/supreme-court/maragadham-v-periyaraja-2026-insc-757-ovii-rule-7-cpc-relief-plaintiff-1618819
+
+[Source Link](https://t.me/verdictumlegalupdates/28249)
 
 ---
 
@@ -73,94 +161,6 @@ Acts Wholly Unrelated To Official Functions: Kerala High Court Refuses To Quash 
 https://www.verdictum.in/kerala-high-court/vinod-valiyattoor-v-state-of-kerala-2026ker53414-rape-probe-against-police-officers-discharge-of-official-duty-1618791
 
 [Source Link](https://t.me/verdictumlegalupdates/28240)
-
----
-
-### 2026-07-30T04:33:12+00:00
-Pursuing Online Courses On Employment Visa Not A Visa Violation Unless Prohibited: Bombay High Court Grants Relief To Taiwanese Law Student
-https://www.verdictum.in/bombay-high-court/wu-jyun-lin-v-foreigners-regional-registration-office-writ-petition-l-no-8223-of-2026-exit-permit-issued-to-taiwanese-law-student-1618783
-
-[Source Link](https://t.me/verdictumlegalupdates/28239)
-
----
-
-### 2026-07-29T16:02:49+00:00
-Probationary Legal Officer Vacancy At Bharat Electronics Limited (BEL)
-https://www.verdictum.in/job-updates/bharat-electronics-limited-1618758
-
-[Source Link](https://t.me/verdictumlegalupdates/28238)
-
----
-
-### 2026-07-29T15:32:48+00:00
-National Commission For Scheduled Caste Can’t Take Over Adjudicatory Functions To Pass Orders In Service Matters: Supreme Court
-https://www.verdictum.in/supreme-court/mumbai-port-authority-v-national-commission-for-scheduled-caste-2026-insc-755-national-commission-scheduled-caste-1618765
-
-[Source Link](https://t.me/verdictumlegalupdates/28237)
-
----
-
-### 2026-07-29T15:02:47+00:00
-Consumer Commission Orders Bank To Reimburse Money In Digital Arrest Cyber Fraud Case Citing Violation Of RBI Guidelines On 'Suspicious Transactions'
-https://www.verdictum.in/other-courts/consumer-commission-deficiency-service-digital-arrest-cyber-fraud-rbi-guidlines-1618763
-
-[Source Link](https://t.me/verdictumlegalupdates/28236)
-
----
-
-### 2026-07-29T14:12:25+00:00
-Right To Property Under Article 300A Constitution Does Not Include Vested Right To Vehicular Access Through Adjoining State Land: Delhi High Court
-https://www.verdictum.in/delhi-high-court/sajjan-kaur-v-union-of-india-another-2026dhc6055-nhai-acquisition-article-300a-1618757
-
-[Source Link](https://t.me/verdictumlegalupdates/28235)
-
----
-
-### 2026-07-29T13:33:04+00:00
-BCI Rules Do Not Bar Advocates From Representing Their Family Members: Bombay High Court
-https://www.verdictum.in/bombay-high-court/maheshkumar-b-patel-v-laxmikant-murlidhar-sharma-through-lrs-others-2026bhc-as30567-1618756
-
-[Source Link](https://t.me/verdictumlegalupdates/28234)
-
----
-
-### 2026-07-29T13:02:53+00:00
-Jurisdiction U/S 34 A&C Act, Though Narrow, Is Not Akin To "Rubber Stamp": Delhi High Court Sets Aside NHAI Arbitral Award
-https://www.verdictum.in/delhi-high-court/national-highways-authority-of-india-v-ms-kurukshetra-expressway-private-ltd-2026dhc5961-court-restraint-tribunals-fidelity-to-contract-1618755
-
-[Source Link](https://t.me/verdictumlegalupdates/28233)
-
----
-
-### 2026-07-29T12:33:12+00:00
-Supreme Court Directs Centre To Review Expert Inputs For Robust & Lacunae-Free Accessibility Rules Under RPWD Act
-https://www.verdictum.in/supreme-court/expert-inputs-for-robust-lacunae-free-accessibility-rules-under-rpwd-act-1618751
-
-[Source Link](https://t.me/verdictumlegalupdates/28232)
-
----
-
-### 2026-07-29T12:02:31+00:00
-Supreme Court Grants Bail To 2 Indian Mujahideen 'Operatives', Says Continued Incarceration Violates Right To Liberty
-https://www.verdictum.in/supreme-court/bail-to-2-indian-mujahideen-operatives-1618752
-
-[Source Link](https://t.me/verdictumlegalupdates/28231)
-
----
-
-### 2026-07-29T11:32:49+00:00
-Admission Of Accused Proves Dishonour Of Cheque U/S 138 NI Act Even If Returning Memo Is Unsigned And Unsealed: Himachal Pradesh High Court
-https://www.verdictum.in/himachal-high-court/khushinder-singh-v-ambal-khan-2026hhc30732-dishonour-of-cheque-us-138-ni-act-1618750
-
-[Source Link](https://t.me/verdictumlegalupdates/28230)
-
----
-
-### 2026-07-29T10:52:48+00:00
-Investigation Into Adult Daughter’s Marriage Of Choice Violates Article 21: Allahabad High Court Imposes Costs On Police & Father
-https://www.verdictum.in/allahabad-high-court/saubhangini-shukla-another-v-state-of-up-others-2026ahc154672-db-1618749
-
-[Source Link](https://t.me/verdictumlegalupdates/28229)
 
 ---
 
