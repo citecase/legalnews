@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-29T16:02:49+00:00*
+*Last Updated: 2026-07-30T09:01:15+00:00*
+
+---
+
+### 2026-07-30T09:01:15+00:00
+Sentence For Remainder Of Natural Life Without Remission Cannot Be Held Unconstitutional: Supreme Court
+https://www.verdictum.in/supreme-court/ramasrey-fakkad-v-state-of-uttar-pradesh-2026-insc-764-life-imprisonment-1618818
+
+[Source Link](https://t.me/verdictumlegalupdates/28248)
+
+---
+
+### 2026-07-30T08:32:54+00:00
+Central Government Has Power U/S 3 Environment Protection Act To Formulate Bounded Amnesty Schemes For Non-Compliant Projects: Supreme Court
+https://www.verdictum.in/supreme-court/2026-insc-761-vanashakti-v-union-of-india-1618816
+
+[Source Link](https://t.me/verdictumlegalupdates/28247)
+
+---
+
+### 2026-07-30T08:02:52+00:00
+Madras High Court Dismisses Anticipatory Bail Petition Of DMK Leader Senthil Balaji In TASMAC Case
+https://www.verdictum.in/madras-high-court/anticipatory-bail-petition-of-dmk-leader-senthil-balaji-in-tasmac-case-dismissed-1618811
+
+[Source Link](https://t.me/verdictumlegalupdates/28246)
+
+---
+
+### 2026-07-30T07:32:50+00:00
+Elevators As Common Carriers Owe Heightened Duty Of Care; Manufacturer, Operator And Premises Owner Jointly Liable To Safeguard Users: Supreme Court
+https://www.verdictum.in/supreme-court/ms-otis-elevator-co-india-ltd-v-rashmi-handa-others-2026-insc-756-1618809
+
+[Source Link](https://t.me/verdictumlegalupdates/28245)
+
+---
+
+### 2026-07-30T07:03:09+00:00
+General Category Candidates Cannot Claim Reserved Seats In DNB/NEET Admissions: Delhi High Court Accepts NBEMS Appeal
+https://www.verdictum.in/delhi-high-court/national-board-of-examinations-in-medical-sciences-v-dr-aditi-panwar-2026dhc6089-1618806
+
+[Source Link](https://t.me/verdictumlegalupdates/28244)
+
+---
+
+### 2026-07-30T06:32:27+00:00
+Auction Purchaser Has Locus Standi To Seek Writ Enforcing U/S 14 SARFAESI Act Order For Physical Possession: Bombay High Court
+https://www.verdictum.in/bombay-high-court/ms-jasraj-restaurants-pvt-ltd-v-state-of-maharashtra-writ-petition-no-8601-of-2026-us-14-sarfaesi-act-order-1618801
+
+[Source Link](https://t.me/verdictumlegalupdates/28243)
+
+---
+
+### 2026-07-30T06:03:06+00:00
+No Disciplinary Inquiry Needed To Strike BEST Badli Driver Off Panel For Excessive Demerit Points; No Right To Permanently Remain On Panel: Bombay High Court
+https://www.verdictum.in/bombay-high-court/the-municipal-corporation-of-greater-mumbai-best-undertaking-v-vidat-ashok-sonawane-writ-petition-no-2607-of-2016-strike-best-badli-driver-off-panel-1618797
+
+[Source Link](https://t.me/verdictumlegalupdates/28242)
+
+---
+
+### 2026-07-30T05:32:44+00:00
+Employer Withholding Employment Records Cannot Defeat Workman’s Claim Of 240 Days Service: Delhi High Court
+https://www.verdictum.in/delhi-high-court/amarjit-singh-v-aiims-2026dhc6053-aiims-awards-grants-lump-sum-compensation-240-days-service-1618792
+
+[Source Link](https://t.me/verdictumlegalupdates/28241)
+
+---
+
+### 2026-07-30T05:02:43+00:00
+Acts Wholly Unrelated To Official Functions: Kerala High Court Refuses To Quash Rape Probe Against Police Officers
+https://www.verdictum.in/kerala-high-court/vinod-valiyattoor-v-state-of-kerala-2026ker53414-rape-probe-against-police-officers-discharge-of-official-duty-1618791
+
+[Source Link](https://t.me/verdictumlegalupdates/28240)
+
+---
+
+### 2026-07-30T04:33:12+00:00
+Pursuing Online Courses On Employment Visa Not A Visa Violation Unless Prohibited: Bombay High Court Grants Relief To Taiwanese Law Student
+https://www.verdictum.in/bombay-high-court/wu-jyun-lin-v-foreigners-regional-registration-office-writ-petition-l-no-8223-of-2026-exit-permit-issued-to-taiwanese-law-student-1618783
+
+[Source Link](https://t.me/verdictumlegalupdates/28239)
 
 ---
 
@@ -81,86 +161,6 @@ Investigation Into Adult Daughter’s Marriage Of Choice Violates Article 21: Al
 https://www.verdictum.in/allahabad-high-court/saubhangini-shukla-another-v-state-of-up-others-2026ahc154672-db-1618749
 
 [Source Link](https://t.me/verdictumlegalupdates/28229)
-
----
-
-### 2026-07-29T10:15:28+00:00
-Aadhaar Authentication For Online Tatkal Tickets Justified To Curb Bulk Booking: Kerala High Court Asks IRCTC To Consider PAN Option
-https://www.verdictum.in/kerala-high-court/bahadur-shah-anakkot-nasirali-v-union-of-india-others-2026ker54792-1618748
-
-[Source Link](https://t.me/verdictumlegalupdates/28228)
-
----
-
-### 2026-07-29T09:32:46+00:00
-Supreme Court Agrees To Hear Ex-Congress MLA's Plea Seeking Suspension Of Conviction In Cheating Case
-https://www.verdictum.in/supreme-court/ex-congress-mlas-plea-seeking-suspension-of-conviction-in-cheating-case-1618745
-
-[Source Link](https://t.me/verdictumlegalupdates/28227)
-
----
-
-### 2026-07-29T09:02:45+00:00
-Weapon Recovery Alone Cannot Sustain Conviction Without Link To Crime: Supreme Court Restores Trial Court Acquittal In 1988 Murder Case
-https://www.verdictum.in/supreme-court/khalil-pasha-ors-v-abdul-rasheed-anr-2026-insc-754-section-27-evidence-act-1618743
-
-[Source Link](https://t.me/verdictumlegalupdates/28226)
-
----
-
-### 2026-07-29T08:32:44+00:00
-Sanction To Prosecute Public Servant Can’t Rest On Political Dictate: Supreme Court
-https://www.verdictum.in/supreme-court/state-of-rajasthan-others-v-dev-kant-meena-2026-insc-752-pca-rajasthan-cm-1618740
-
-[Source Link](https://t.me/verdictumlegalupdates/28225)
-
----
-
-### 2026-07-29T08:02:43+00:00
-Supreme Court Quashes Special Court Order Against Late Former PM Dr Manmohan Singh; Closes His Case On Merits In Coal Block Scam
-https://www.verdictum.in/supreme-court/pm-manmohan-singh-coal-block-case-effaces-special-court-remarks-1618741
-
-[Source Link](https://t.me/verdictumlegalupdates/28224)
-
----
-
-### 2026-07-29T07:42:21+00:00
-These Things Shouldn’t Come In Way Of Art: Supreme Court Dismisses Odisha Govt’s Plea Against Release Of Film ‘Mahaprabhu Jagannath’
-https://www.verdictum.in/supreme-court/odisha-govts-plea-against-release-of-film-mahaprabhu-jagannath-1618736
-
-[Source Link](https://t.me/verdictumlegalupdates/28223)
-
----
-
-### 2026-07-29T07:12:20+00:00
-Madras High Court Issues Directions For Uniform Implementation Of Direct Bank Transfer Of Motor Accident Compensation To Claimants’ Accounts
-https://www.verdictum.in/madras-high-court/the-manager-oriental-insurance-co-ltd-v-d-salsa-others-motor-accident-dbt-1618735
-
-[Source Link](https://t.me/verdictumlegalupdates/28222)
-
----
-
-### 2026-07-29T06:32:19+00:00
-Lawyers Ran Amok Freely, Abused, Humiliated & Manhandled A Litigant At Will: Allahabad High Court Bars Four Advocates From Entering Lucknow Court Premises
-https://www.verdictum.in/allahabad-high-court/suo-motu-cognizance-of-incident-dated-21072026-in-the-court-premises-v-state-of-up-thru-prin-secy-home-lko-criminal-writ-public-interest-litigation-no-8-of-2026-1618728
-
-[Source Link](https://t.me/verdictumlegalupdates/28221)
-
----
-
-### 2026-07-29T05:36:58+00:00
-Breaking: Supreme Court Quashes 2021 Office Memorandum Allowing Post-Facto Environmental Clearance
-https://www.verdictum.in/supreme-court/quashes-2021-office-memorandum-allowing-post-facto-environmental-clearance-1618724
-
-[Source Link](https://t.me/verdictumlegalupdates/28220)
-
----
-
-### 2026-07-29T05:12:17+00:00
-Workman Must Prove Legality Of His Induction Before Challenging Termination: Delhi High Court Sets Aside DDA Reinstatement Award
-https://www.verdictum.in/delhi-high-court/jai-prakash-ors-v-dda-2026dhc5970-dda-reinstatement-award-1618716
-
-[Source Link](https://t.me/verdictumlegalupdates/28219)
 
 ---
 
