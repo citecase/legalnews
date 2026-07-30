@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-29T13:27:32+00:00*
+*Last Updated: 2026-07-29T14:02:43+00:00*
 
 ---
 
-### 2026-07-29T13:27:32+00:00
-LiveLaw Daily | UAPA Bail| Jagannath Movie| Aadhaar Citizenship| Paper Leaks Bill & more
-https://www.livelaw.in/podcast/livelaw-daily-supreme-court-judiciary-clat-students-neet-student-protests-bjp-uapa-inter-faith-marriage-news-india-543460
-
-[Read on Telegram](https://t.me/livelawindia/115975)
-
----
-### 2026-07-29T14:02:23+00:00
-Delhi High Court Upholds ₹11 Lakh Penalty On School Bus Operator For Parking Buses On 'Environmentally Sensitive' Yamuna Floodplains
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-upholds-11-lakh-penalty-on-school-bus-operator-for-parking-buses-on-environmentally-sensitive-yamuna-floodplains-543466
-
-[Read on Telegram](https://t.me/livelawindia/115976)
-
----
 ### 2026-07-29T14:02:43+00:00
 Similarly Situated Employees Already Regularised Cannot Be Denied Same Benefit Without Intelligible Differentia: Patna High Court
 https://www.livelaw.in/high-court/patna-high-court/patna-high-court-similarly-situated-employees-regularised-denied-benefit-543311
@@ -142,5 +128,19 @@ Supreme Court Daily Round-Up : July 29, 2026
 https://www.livelaw.in/supreme-court/supreme-court-daily-round-up-july-29-2026-543482
 
 [Read on Telegram](https://t.me/livelawindia/115994)
+
+---
+### 2026-07-30T02:22:55+00:00
+S. 8 UP Anti-Conversion Law | Representation To DM Can't Substitute Pre-Conversion Declaration In Schedule-I Format: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-up-anti-conversion-law-section-8-schedule-1-declaration-543498
+
+[Read on Telegram](https://t.me/livelawindia/115995)
+
+---
+### 2026-07-30T02:32:55+00:00
+Refusing To Defer Physical Test For Pregnant Candidate Forces Her To Choose Between Motherhood & Employment, Not Justified: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-denial-postponement-physical-test-pregnant-candidate-543491
+
+[Read on Telegram](https://t.me/livelawindia/115996)
 
 ---
