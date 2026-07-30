@@ -1,114 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-30T12:21:03+00:00*
+*Last Updated: 2026-07-30T13:50:44+00:00*
 
 ---
 
-### 2026-07-30T12:21:03+00:00
-Supreme Court Grants Uttarakhand Deputy Collectors Seniority Benefit From Initial Ad Hoc Promotion
-https://www.livelaw.in/supreme-court/supreme-court-grants-uttarakhand-deputy-collectors-seniority-benefit-from-initial-ad-hoc-promotion-543632
-
-[Read on Telegram](https://t.me/livelawindia/116080)
-
----
-### 2026-07-30T12:22:03+00:00
-2026 LiveLaw (SC) 739 | THE STATE OF UTTARAKHAND VERSUS JAGDISH CHANDRA KANDPAL & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-739-the-state-of-uttarakhand-versus-jagdish-chandra-kandpal-ors-543633
-
-[Read on Telegram](https://t.me/livelawindia/116081)
-
----
-### 2026-07-30T12:37:23+00:00
-Chhattisgarh High Court Allows 25-Week Pregnancy Termination For Minor Rape Survivor, Says Sonography Report Not Conclusive
-https://www.livelaw.in/high-court/chhattisgarh-high-court/gestational-age-cannot-conclusive-denying-relief-violation-fundamental-right-termination-pregnancy-543614
-
-[Read on Telegram](https://t.me/livelawindia/116082)
-
----
-### 2026-07-30T12:44:43+00:00
-Reach Stacker Is Not A 'Motor Vehicle' Under MV Act, Accident Victim Can't Approach MACT: Supreme Court
-https://www.livelaw.in/supreme-court/reach-stacker-is-not-a-motor-vehicle-under-mv-act-accident-victim-cant-approach-mact-supreme-court-543637
-
-[Read on Telegram](https://t.me/livelawindia/116083)
-
----
-### 2026-07-30T12:46:23+00:00
-2026 LiveLaw (SC) 740 | Container Corporation of India Ltd v Rishi Ranjan Mishra
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-740-container-corporation-of-india-ltd-v-rishi-ranjan-mishra-543638
-
-[Read on Telegram](https://t.me/livelawindia/116084)
-
----
-### 2026-07-30T12:51:03+00:00
-Temporary Service Rendered After Regular Selection Can Be Counted For UGC Career Advancement Scheme: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/temporary-service-rendered-after-due-selection-can-be-counted-for-ugc-career-advancement-scheme-stop-gap-appointment-is-not-equivalent-to-illegal-appointment-jk-hc-543440
-
-[Read on Telegram](https://t.me/livelawindia/116085)
-
----
-### 2026-07-30T13:05:53+00:00
-Chhattisgarh High Court Stays Trial Against Ex-CM Bhupesh Baghel In Morphed Video Case
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-stay-discharge-ex-cm-bhupesh-baghel-objectionable-video-case-543641
-
-[Read on Telegram](https://t.me/livelawindia/116086)
-
----
-### 2026-07-30T13:07:13+00:00
-Uttarakhand High Court Closes PIL On Alleged Misuse Of Ancient Ram Temple Property, Cites Magistrate's Inquiry Report
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-illegal-construction-misuse-ancient-ram-mandir-property-543608
-
-[Read on Telegram](https://t.me/livelawindia/116087)
-
----
-### 2026-07-30T13:12:53+00:00
-Bombay High Court Calls For Civic Accountability To Tackle Plastic Waste Crisis, Suggests Linking Ward Officers' ACRs To Cleanliness
-https://www.livelaw.in/high-court/bombay-high-court/strict-directions-mcgm-tackle-mumbai-plastic-waste-menace-543617
-
-[Read on Telegram](https://t.me/livelawindia/116088)
-
----
-### 2026-07-30T13:17:13+00:00
-US Tourist Rape Case: Karnataka High Court To Hear Victim Before Deciding Homestay Owner's Challenge To Chargesheet
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-extends-stay-proceedings-owner-kodagu-homestay-rape-543642
-
-[Read on Telegram](https://t.me/livelawindia/116089)
-
----
-### 2026-07-30T13:22:53+00:00
-Umar Khalid Moves High Court Seeking Bail In Delhi Riots Larger Conspiracy Case, Hearing Tomorrow
-https://www.livelaw.in/high-court/delhi-high-court/umar-khalid-moves-high-court-seeking-bail-in-delhi-riots-larger-conspiracy-case-hearing-tomorrow-543645
-
-[Read on Telegram](https://t.me/livelawindia/116090)
-
----
-### 2026-07-30T13:23:03+00:00
-Kerala High Court Seeks MLA V. Kunhikrishnan's Response To CPI(M) Leader's Plea Challenging His Election
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-payyannur-mla-election-petition-543643
-
-[Read on Telegram](https://t.me/livelawindia/116091)
-
----
-### 2026-07-30T13:26:14+00:00
-LiveLaw Daily|Bhojshala Kamal Maula| Senthil Balaji| Tamirabarani River| Pellet Guns| EC Appointment
-https://www.livelaw.in/podcast/election-commission-of-india-eci-students-student-protests-senthil-balaji-dmk-prime-minister-narendra-modi-centre-india-bhojshala-kamal-maula-dispute-aap-543646
-
-[Read on Telegram](https://t.me/livelawindia/116092)
-
----
-### 2026-07-30T13:33:14+00:00
-Delhi High Court Strikes Down Mandatory CET Requirement For Admission To Full-Time Diploma Courses In BTE-Affiliated Private Institutions
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-strikes-down-mandatory-cet-requirement-for-admission-to-full-time-diploma-courses-in-bte-affiliated-private-institutions-543547
-
-[Read on Telegram](https://t.me/livelawindia/116093)
-
----
-### 2026-07-30T13:42:14+00:00
-'Orphan' Means Both Parents Dead; Candidate With Surviving Mother Can't Be Given Recruitment Weightage: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/haryana-recruitment-orphan-means-both-parents-dead-not-just-father-543647
-
-[Read on Telegram](https://t.me/livelawindia/116094)
-
----
 ### 2026-07-30T13:50:44+00:00
 Indian Succession Act | How Does Wife's Property Devolve After Death? Supreme Court Explains Christian Inheritance
 https://www.livelaw.in/supreme-court/indian-succession-act-how-does-wifes-property-devolve-after-death-supreme-court-explains-christian-inheritance-543650
@@ -142,5 +37,110 @@ Mere Demand For Loan Repayment Without Overt Act Of Instigation Not Abetment To 
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/abetment-to-suicide-demand-for-loan-repayment-without-overt-act-of-instigation-543652
 
 [Read on Telegram](https://t.me/livelawindia/116099)
+
+---
+### 2026-07-30T14:16:44+00:00
+Kerala High Court Sets Aside Report Clearing Sreejith IPS Of Unauthorized Foreign Trip Allegations; Says Joint Hearing Of Complainant Unfair
+https://www.livelaw.in/high-court/kerala-high-court/complainant-joint-hearing-officer-accused-misconduct-report-sreejith-ips-543655
+
+[Read on Telegram](https://t.me/livelawindia/116100)
+
+---
+### 2026-07-30T14:23:04+00:00
+Interest On Delayed Gratuity Payment Can't Be Mandatory Pre-Deposit For Appeal Under Payment Of Gratuity Act: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/statutory-pre-condition-for-appeal-cannot-be-expanded-by-reading-consequential-liability-into-it-interest-cannot-be-elevated-to-jurisdictional-requirement-jk-hc-543604
+
+[Read on Telegram](https://t.me/livelawindia/116101)
+
+---
+### 2026-07-30T14:32:24+00:00
+P&H High Court Upholds Increment Stoppage Against Official For Non-Compliance With PIO's Directions Under RTI Act
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-upholds-increment-stoppage-against-official-for-non-compliance-with-pios-directions-543657
+
+[Read on Telegram](https://t.me/livelawindia/116102)
+
+---
+### 2026-07-30T14:33:04+00:00
+Why State Owes An Undertrial At Every Remand Hearing And Has Owed Since 2018.
+https://www.livelaw.in/articles/state-owes-undertrial-remand-hearing-543435
+
+[Read on Telegram](https://t.me/livelawindia/116103)
+
+---
+### 2026-07-30T14:43:14+00:00
+Supreme Court Highlights Consequences Of Driving With Expired License, Urges Centre To Spread Awareness
+https://www.livelaw.in/supreme-court/supreme-court-highlights-consequences-of-driving-with-expired-license-urges-centre-to-spread-awareness-543664
+
+[Read on Telegram](https://t.me/livelawindia/116104)
+
+---
+### 2026-07-30T14:44:34+00:00
+2026 LiveLaw (SC) 742  | RELIANCE GENERAL INSURANCE COMPANY LTD. VERSUS OM PARKASH & ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-742-reliance-general-insurance-company-ltd-versus-om-parkash-ors-543665
+
+[Read on Telegram](https://t.me/livelawindia/116105)
+
+---
+### 2026-07-30T15:07:14+00:00
+Wrong Claim Of Travel Distance For Transport Allowance Doesn't By Itself Amount To Misappropriation: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/wrongful-distance-transport-allowance-not-misappropriation-543610
+
+[Read on Telegram](https://t.me/livelawindia/116106)
+
+---
+### 2026-07-30T15:17:34+00:00
+Convict Already In Judicial Custody Need Not Formally Surrender Again After Suspension Of Sentence Ends In Another Case: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/formal-surrender-unnecessary-when-convict-already-in-judicial-custody-in-another-case-543668
+
+[Read on Telegram](https://t.me/livelawindia/116107)
+
+---
+### 2026-07-30T15:23:44+00:00
+Calcutta High Court Seeks Report On Alleged Police Encounter Death Of Baruipur Rape-Murder Accused
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-seeks-report-on-alleged-police-encounter-death-of-baruipur-rape-murder-accused-543669
+
+[Read on Telegram](https://t.me/livelawindia/116108)
+
+---
+### 2026-07-30T15:30:24+00:00
+WhatsApp Messages Naming Accused Before Death Prima Facie Dying Declaration: MP High Court Denies Bail
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/whatsapp-messages-of-deceased-naming-accused-prima-facie-dying-declaration-543670
+
+[Read on Telegram](https://t.me/livelawindia/116109)
+
+---
+### 2026-07-30T15:42:24+00:00
+'1.45 Lakh Cases Pending Without Closure Report Despite Completed Investigation': Chhattisgarh High Court Seeks DGP's Reply
+https://www.livelaw.in/high-court/chhattisgarh-high-court/cases-pending-without-closure-report-despite-completed-investigation-543613
+
+[Read on Telegram](https://t.me/livelawindia/116110)
+
+---
+### 2026-07-30T15:48:04+00:00
+Calcutta High Court Weekly Round-Up: 20th July To 26th July, 2026
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-weekly-round-up-20th-july-to-26th-july-2026-543672
+
+[Read on Telegram](https://t.me/livelawindia/116111)
+
+---
+### 2026-07-30T15:52:44+00:00
+Udaipur Hills "Brutally Cut" For Hotels: Rajasthan High Court Considers Initiating Suo Motu PIL To Protect Ecology
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-shocked-rampant-hill-cutting-udaipur-543671
+
+[Read on Telegram](https://t.me/livelawindia/116112)
+
+---
+### 2026-07-30T16:30:14+00:00
+'Black Day' In Allahabad High Court History: Judge Recuses From Hearing Bail Matters After Parties Attempt To Approach Him
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-judge-recuses-bail-cases-black-day-history-543673
+
+[Read on Telegram](https://t.me/livelawindia/116113)
+
+---
+### 2026-07-30T16:53:55+00:00
+Supreme Court Daily Round-Up : July 30, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-july-30-2026-543677
+
+[Read on Telegram](https://t.me/livelawindia/116114)
 
 ---
