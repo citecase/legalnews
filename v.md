@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-31T09:03:11+00:00*
+*Last Updated: 2026-07-31T14:33:16+00:00*
+
+---
+
+### 2026-07-31T14:33:16+00:00
+“A Soldier Is A Blank Cheque Written To Country”: Kerala High Court
+https://www.verdictum.in/kerala-high-court/union-of-india-v-mohanraj-tk-2026ker52646-disability-pension-armed-forces-tribunal-1618926
+
+[Source Link](https://t.me/verdictumlegalupdates/28282)
+
+---
+
+### 2026-07-31T14:02:54+00:00
+Supreme Court Orders Status Quo On Demolition Of 25 Houses In Khandwa Madhya Pradesh
+https://www.verdictum.in/supreme-court/status-quo-on-demolition-of-25-houses-in-khandwa-madhya-pradesh-1618919
+
+[Source Link](https://t.me/verdictumlegalupdates/28281)
+
+---
+
+### 2026-07-31T13:32:13+00:00
+Supreme Court Stays Delhi HC Order Holding National Stock Exchange Of India A Public Authority Under RTI Act
+https://www.verdictum.in/supreme-court/delhi-hc-order-holding-national-stock-exchange-of-india-a-public-authority-under-rti-act-stayed-1618910
+
+[Source Link](https://t.me/verdictumlegalupdates/28280)
+
+---
+
+### 2026-07-31T13:03:12+00:00
+Apex Court Directs Centre & States To Frame Compensation Mechanism For Accidents Caused By Stray Animals
+https://www.verdictum.in/supreme-court/compensation-mechanism-for-accidents-caused-by-stray-animals-1618916
+
+[Source Link](https://t.me/verdictumlegalupdates/28279)
+
+---
+
+### 2026-07-31T12:32:51+00:00
+High Court Stays Manan Kumar Mishra's Order Appointing Non-Elected Advocate As Chairman Of Kerala Bar Council
+https://www.verdictum.in/kerala-high-court/yeshwanth-shenoy-v-bar-council-of-india-ajith-ts-manan-kumar-mishra-1618917
+
+[Source Link](https://t.me/verdictumlegalupdates/28278)
+
+---
+
+### 2026-07-31T12:02:29+00:00
+Delhi Court Sentences Ex-AAP Councillor Tahir Hussain To Life Imprisonment For Murder Of IB Officer Ankit Sharma
+https://www.verdictum.in/other-courts/ex-aap-councillor-tahir-hussain-life-imprisonment-murder-ib-officer-ankit-sharma-1618915
+
+[Source Link](https://t.me/verdictumlegalupdates/28277)
+
+---
+
+### 2026-07-31T11:32:57+00:00
+Appeal U/S 374 CrPC Not Maintainable Against First-Time Conviction by Sessions Court Exercising Appellate Jurisdiction: Supreme Court
+https://www.verdictum.in/supreme-court/vishnu-kumar-gupta-v-state-of-madhya-pradesh-2026-insc-770-appeal-us-374-crpc-not-maintainab-1618908
+
+[Source Link](https://t.me/verdictumlegalupdates/28276)
+
+---
+
+### 2026-07-31T11:02:16+00:00
+Forcibly Placing Vibrating Machine On Vaginal Orifice Constitutes Penetrative Sexual Assault: Kerala High Court
+https://www.verdictum.in/kerala-high-court/joshy-kj-v-state-of-kerala-2026ker57121-section-375-pocso-rape-sexual-assault-1618907
+
+[Source Link](https://t.me/verdictumlegalupdates/28275)
+
+---
+
+### 2026-07-31T10:32:35+00:00
+Supreme Court Agrees To Dissolve J&K CM Omar Abdullah's Marriage With Estranged Wife
+https://www.verdictum.in/supreme-court/dissolve-jk-cm-omar-abdullahs-marriage-with-estranged-wife-1618906
+
+[Source Link](https://t.me/verdictumlegalupdates/28274)
+
+---
+
+### 2026-07-31T10:02:53+00:00
+Supreme Court Upholds NCLAT Order Setting Aside CCI's Rs 301.6-Cr Penalty On Grasim Industries
+https://www.verdictum.in/supreme-court/ccis-rs-3016-cr-penalty-on-grasim-industries-set-aside-1618903
+
+[Source Link](https://t.me/verdictumlegalupdates/28273)
+
+---
+
+### 2026-07-31T09:32:52+00:00
+Liberty Doesn’t Depend On Inaccuracy Of Court: Apex Court Rejects Uttarakhand's Appeal Against Bail Granted to Abdul Malik
+https://www.verdictum.in/supreme-court/uttarakhands-appeal-against-bail-granted-to-abdul-malik-rejected-1618902
+
+[Source Link](https://t.me/verdictumlegalupdates/28272)
 
 ---
 
@@ -73,94 +161,6 @@ https://www.verdictum.in/jammu-ladakh-high-court/gulam-ahmad-raina-anr-v-mst-ham
 https://www.verdictum.in/supreme-court/container-corporation-of-india-limited-v-rishi-ranjan-mishra-2026-insc-763-reach-stacker-enclosed-custom-bonded-inland-1618869
 
 [Source Link](https://t.me/verdictumlegalupdates/28263)
-
----
-
-### 2026-07-30T16:02:54+00:00
-SIC Maharashtra Invites Applications For Post Of Under Secretary (Law)
-https://www.verdictum.in/job-updates/state-information-commission-maharashtra-1618838
-
-[Source Link](https://t.me/verdictumlegalupdates/28262)
-
----
-
-### 2026-07-30T15:32:53+00:00
-Market Value Cannot Be Lower Than That Specified As Ready Reckoner Rate: Bombay High Court Upholds Interim Arbitral Award In 75-Year-Old Land Acquisition Dispute
-https://www.verdictum.in/bombay-high-court/municipal-corporation-of-greater-mumbai-v-kekobad-dossabhoy-doongriwalla-2026bhc-os16990-75-year-old-land-acquisition-dispute-1618837
-
-[Source Link](https://t.me/verdictumlegalupdates/28261)
-
----
-
-### 2026-07-30T15:02:32+00:00
-Posts Reserved For PwDs Can’t Be Further Reserved For SC Category: Himachal Pradesh High Court Directs Appointment For Hearing-Impaired Candidate
-https://www.verdictum.in/himachal-high-court/hoshiyar-singh-v-state-of-hp-and-others-2026hhc31275-1618836
-
-[Source Link](https://t.me/verdictumlegalupdates/28260)
-
----
-
-### 2026-07-30T14:32:20+00:00
-State Can’t Take Advantage Of Its Own Continuing Default: Supreme Court Grants Relief To Deputy Collector Promotees
-https://www.verdictum.in/supreme-court/the-state-of-uttarakhand-v-jagdish-chandra-kandpal-ors-2026-insc-759-deputy-collector-promotees-1618835
-
-[Source Link](https://t.me/verdictumlegalupdates/28259)
-
----
-
-### 2026-07-30T14:02:59+00:00
-Employer Cannot Deny Promotion Or Pay Scale For Missing ACRs Caused By Its Own Wrongful Action: Supreme Court
-https://www.verdictum.in/supreme-court/high-court-of-judicature-for-rajasthan-v-abhay-jain-2026-insc-762-acr-1618834
-
-[Source Link](https://t.me/verdictumlegalupdates/28258)
-
----
-
-### 2026-07-30T13:32:58+00:00
-Requirement Of Seeking Prior Permission Before Applying For Civil Post & Grant Of NOC Can’t Be Dispensed With At Airman’s Will: Supreme Court
-https://www.verdictum.in/supreme-court/nakhat-singh-v-union-of-india-2026-insc-758-prior-permission-civil-post-noc-airman-1618828
-
-[Source Link](https://t.me/verdictumlegalupdates/28257)
-
----
-
-### 2026-07-30T13:02:36+00:00
-‘Be Realistic, We Are In India’: Bombay High Court Quashes Suspension Of Hotel Licence By FDA Over Presence Of Insects In Kitchen
-https://www.verdictum.in/bombay-high-court/suspension-of-hotel-licence-by-fda-over-hygiene-quashed-1618833
-
-[Source Link](https://t.me/verdictumlegalupdates/28256)
-
----
-
-### 2026-07-30T12:32:35+00:00
-Supreme Court Reserves Verdict On Review Petitions Challenging Mandatory 3-Year Practice Rule For Entry-Level Judicial Officers
-https://www.verdictum.in/supreme-court/reserves-verdict-review-petitions-mandatory-3-year-practice-rule-entry-level-judicial-officers-1618831
-
-[Source Link](https://t.me/verdictumlegalupdates/28255)
-
----
-
-### 2026-07-30T12:03:14+00:00
-Bhojshala Dispute: Supreme Court Directs State To Permit Friday Namaz At Dargah Land Abutting Complex, Clarifies Specific Land Portion
-https://www.verdictum.in/supreme-court/directs-state-permit-friday-namaz-dargah-land-abutting-complex-clarifies-specific-land-portion-1618830
-
-[Source Link](https://t.me/verdictumlegalupdates/28254)
-
----
-
-### 2026-07-30T11:32:12+00:00
-Supreme Court Permits IIT Kharagpur Student Diagnosed With Borderline Personality Disorder To Be Transferred To IIT Roorkee
-https://www.verdictum.in/supreme-court/iit-kharagpur-student-diagnosed-with-borderline-personality-disorder-to-be-transferred-to-iit-roorkee-1618821
-
-[Source Link](https://t.me/verdictumlegalupdates/28253)
-
----
-
-### 2026-07-30T11:02:31+00:00
-Supreme Court Seeks Response Of Punjab CM, AAP Leaders On Chandigarh's Plea In 2020 Rioting Case
-https://www.verdictum.in/supreme-court/punjab-cm-aap-leaders-on-chandigarhs-plea-in-2020-rioting-case-1618822
-
-[Source Link](https://t.me/verdictumlegalupdates/28252)
 
 ---
 
