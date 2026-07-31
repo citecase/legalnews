@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-31T12:05:52+00:00*
+*Last Updated: 2026-07-31T12:31:02+00:00*
 
 ---
 
-### 2026-07-31T12:05:52+00:00
-Does Anyone Still Call Advocacy A Noble Profession?: Allahabad High Court Orders Perjury Action Against Lawyers For Playing Fraud On Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-criminal-action-lawyers-fraud-on-court-advocacy-noble-543806
-
-[Read on Telegram](https://t.me/livelawindia/116194)
-
----
-### 2026-07-31T12:18:22+00:00
-Indians Died In Russia-Ukraine War : Supreme Court Directs MEA To Aid Families To Bring Mortal Remains & Claim Compensation
-https://www.livelaw.in/top-stories/supreme-court-indian-nationals-who-died-in-russia-ukraine-war-dna-profiling-before-returning-bodies-to-families-mea-to-appoint-nodal-officer-543808
-
-[Read on Telegram](https://t.me/livelawindia/116195)
-
----
-### 2026-07-31T12:26:22+00:00
-Allahabad High Court Acquits Husband Sentenced To Death For Killing Wife In 1979, Cites 4-Year Delay In FIR
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-acquits-husband-1979-dowry-death-case-4-year-fir-delay-543811
-
-[Read on Telegram](https://t.me/livelawindia/116196)
-
----
-### 2026-07-31T12:27:42+00:00
-AP High Court Orders ACB Probe Into Alleged Fraud On Court In Land Dispute Case, Questions Lawyers' Conduct
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/acb-pobe-fraud-on-court-land-dispute-advocates-professional-misconduct-543809
-
-[Read on Telegram](https://t.me/livelawindia/116197)
-
----
 ### 2026-07-31T12:31:02+00:00
 Witness Testimony Recorded Without S.299 CrPC Order Can't Be Later Used Against Accused Who Absconded : Supreme Court
 https://www.livelaw.in/supreme-court/witness-testimony-recorded-without-s299-crpc-order-cant-be-later-used-against-accused-who-absconded-supreme-court-543813
@@ -142,5 +114,33 @@ Supreme Court Suggests Making Of Law To Regulate Private Detectives
 https://www.livelaw.in/supreme-court/supreme-court-suggests-making-of-law-to-regulate-private-detectives-543828
 
 [Read on Telegram](https://t.me/livelawindia/116213)
+
+---
+### 2026-07-31T14:32:44+00:00
+Trading Supported By Blocked Amount (TSBA): New Settlement Framework For Investor Protection
+https://www.livelaw.in/articles/trading-supported-blocked-amount-new-settlement-framework-investor-protection-543601
+
+[Read on Telegram](https://t.me/livelawindia/116214)
+
+---
+### 2026-07-31T15:50:57+00:00
+Supreme Court Raps States/UTs For Not Implementing Healthcare Professions Act Despite 2024 Direction, Sets September Deadline
+https://www.livelaw.in/top-stories/supreme-court-raps-statesuts-for-not-implementing-healthcare-professions-act-despite-2024-direction-sets-september-deadline-543841
+
+[Read on Telegram](https://t.me/livelawindia/116215)
+
+---
+### 2026-07-31T16:01:07+00:00
+Supreme Court Stays CIC Order Holding NSE Amenable To RTI Act
+https://www.livelaw.in/top-stories/supreme-court-stays-cic-order-holding-nse-amenable-to-rti-act-543843
+
+[Read on Telegram](https://t.me/livelawindia/116216)
+
+---
+### 2026-07-31T17:22:57+00:00
+Supreme Court Daily Round-Up : July 31, 2026
+https://www.livelaw.in/supreme-court/supreme-court-daily-round-up-july-31-2026-543844
+
+[Read on Telegram](https://t.me/livelawindia/116217)
 
 ---
