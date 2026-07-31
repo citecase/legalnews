@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-30T13:50:44+00:00*
+*Last Updated: 2026-07-30T13:52:24+00:00*
 
 ---
 
-### 2026-07-30T13:50:44+00:00
-Indian Succession Act | How Does Wife's Property Devolve After Death? Supreme Court Explains Christian Inheritance
-https://www.livelaw.in/supreme-court/indian-succession-act-how-does-wifes-property-devolve-after-death-supreme-court-explains-christian-inheritance-543650
-
-[Read on Telegram](https://t.me/livelawindia/116095)
-
----
 ### 2026-07-30T13:52:24+00:00
 2026 LiveLaw (SC) 741 | SHAKUNTALA & ORS. VERSUS ROBERT ANTHONY & ORS
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-741-shakuntala-ors-versus-robert-anthony-ors-543651
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : July 30, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-july-30-2026-543677
 
 [Read on Telegram](https://t.me/livelawindia/116114)
+
+---
+### 2026-07-31T03:24:04+00:00
+Reconsider Blanket Ban On Sharing Of Court Clips : RTI Activists Tell Supreme Court
+https://www.livelaw.in/top-stories/reconsider-blanket-ban-on-sharing-of-court-clips-rti-activists-tell-supreme-court-543678
+
+[Read on Telegram](https://t.me/livelawindia/116115)
 
 ---
