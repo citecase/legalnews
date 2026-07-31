@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-30T13:52:24+00:00*
+*Last Updated: 2026-07-31T06:52:28+00:00*
 
 ---
 
-### 2026-07-30T13:52:24+00:00
-2026 LiveLaw (SC) 741 | SHAKUNTALA & ORS. VERSUS ROBERT ANTHONY & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-741-shakuntala-ors-versus-robert-anthony-ors-543651
+### 2026-07-31T06:52:28+00:00
+2nd International Conference On Navigating The Future Of Insolvency: IBC In The Age Of Technology, Globalization And Sustainable Finance
+https://www.livelaw.in/lawschool/seminars/2nd-international-conference-on-navigating-the-future-of-insolvency-ibc-in-the-age-of-technology-globalization-and-sustainable-finance-543729
 
-[Read on Telegram](https://t.me/livelawindia/116096)
-
----
-### 2026-07-30T13:52:44+00:00
-Can't Direct Adult Daughter's Paternity Test Without Consent, Infringes Right To Privacy & Carries Societal Consequences: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-adult-woman-paternity-test-without-consent-right-to-privacy-543648
-
-[Read on Telegram](https://t.me/livelawindia/116097)
+[Read on Telegram](https://t.me/livelawindia/116150)
 
 ---
-### 2026-07-30T14:06:44+00:00
-Tax Exemption Plea By Same Sex Couple: Bombay High Court Adjourns Hearing Sine Die Till Karnataka High Court Decides Identical Matter
-https://www.livelaw.in/high-court/bombay-high-court/same-sex-couple-tax-exemption-section-562x-543653
+### 2026-07-31T06:56:48+00:00
+Pressuring Spouse To Sign Divorce & Child Custody Papers Doesn't Constitute 'Cruelty': Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-pressure-sign-divorce-child-custody-papers-cruelty-bns-543731
 
-[Read on Telegram](https://t.me/livelawindia/116098)
-
----
-### 2026-07-30T14:12:24+00:00
-Mere Demand For Loan Repayment Without Overt Act Of Instigation Not Abetment To Suicide: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/abetment-to-suicide-demand-for-loan-repayment-without-overt-act-of-instigation-543652
-
-[Read on Telegram](https://t.me/livelawindia/116099)
+[Read on Telegram](https://t.me/livelawindia/116151)
 
 ---
-### 2026-07-30T14:16:44+00:00
-Kerala High Court Sets Aside Report Clearing Sreejith IPS Of Unauthorized Foreign Trip Allegations; Says Joint Hearing Of Complainant Unfair
-https://www.livelaw.in/high-court/kerala-high-court/complainant-joint-hearing-officer-accused-misconduct-report-sreejith-ips-543655
+### 2026-07-31T06:57:28+00:00
+Ex-Devaswom Minister Moves Kerala High Court Challenging BJP MLA V. Muraleedharan's Election Win
+https://www.livelaw.in/high-court/kerala-high-court/kazhakoottam-bjp-mla-muraleedharan-election-challenged-543728
 
-[Read on Telegram](https://t.me/livelawindia/116100)
-
----
-### 2026-07-30T14:23:04+00:00
-Interest On Delayed Gratuity Payment Can't Be Mandatory Pre-Deposit For Appeal Under Payment Of Gratuity Act: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/statutory-pre-condition-for-appeal-cannot-be-expanded-by-reading-consequential-liability-into-it-interest-cannot-be-elevated-to-jurisdictional-requirement-jk-hc-543604
-
-[Read on Telegram](https://t.me/livelawindia/116101)
+[Read on Telegram](https://t.me/livelawindia/116152)
 
 ---
-### 2026-07-30T14:32:24+00:00
-P&H High Court Upholds Increment Stoppage Against Official For Non-Compliance With PIO's Directions Under RTI Act
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-upholds-increment-stoppage-against-official-for-non-compliance-with-pios-directions-543657
+### 2026-07-31T07:05:08+00:00
+'How Is UAPA Attracted Just Because Mob Burnt Police Station?' : Supreme Court Asks Uttarakhand Govt In Haldwani Violence
+https://www.livelaw.in/top-stories/is-uapa-justified-just-because-mob-burnt-police-station-supreme-court-on-haldwani-violence-543735
 
-[Read on Telegram](https://t.me/livelawindia/116102)
-
----
-### 2026-07-30T14:33:04+00:00
-Why State Owes An Undertrial At Every Remand Hearing And Has Owed Since 2018.
-https://www.livelaw.in/articles/state-owes-undertrial-remand-hearing-543435
-
-[Read on Telegram](https://t.me/livelawindia/116103)
+[Read on Telegram](https://t.me/livelawindia/116153)
 
 ---
-### 2026-07-30T14:43:14+00:00
-Supreme Court Highlights Consequences Of Driving With Expired License, Urges Centre To Spread Awareness
-https://www.livelaw.in/supreme-court/supreme-court-highlights-consequences-of-driving-with-expired-license-urges-centre-to-spread-awareness-543664
+### 2026-07-31T07:18:09+00:00
+LiveLaw Punjab & Haryana High Court Weekly Round-Up: July 20 - July 26, 2026
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-weekly-round-up-july-2026-543730
 
-[Read on Telegram](https://t.me/livelawindia/116104)
-
----
-### 2026-07-30T14:44:34+00:00
-2026 LiveLaw (SC) 742  | RELIANCE GENERAL INSURANCE COMPANY LTD. VERSUS OM PARKASH & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-742-reliance-general-insurance-company-ltd-versus-om-parkash-ors-543665
-
-[Read on Telegram](https://t.me/livelawindia/116105)
+[Read on Telegram](https://t.me/livelawindia/116154)
 
 ---
-### 2026-07-30T15:07:14+00:00
-Wrong Claim Of Travel Distance For Transport Allowance Doesn't By Itself Amount To Misappropriation: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/wrongful-distance-transport-allowance-not-misappropriation-543610
+### 2026-07-31T07:19:29+00:00
+Supreme Court Directs All States/UTs To Constitute 'Board Of Visitors' For Prison Oversight
+https://www.livelaw.in/top-stories/supreme-court-directs-all-statesuts-to-constitute-board-of-visitors-for-prison-oversight-543737
 
-[Read on Telegram](https://t.me/livelawindia/116106)
-
----
-### 2026-07-30T15:17:34+00:00
-Convict Already In Judicial Custody Need Not Formally Surrender Again After Suspension Of Sentence Ends In Another Case: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/formal-surrender-unnecessary-when-convict-already-in-judicial-custody-in-another-case-543668
-
-[Read on Telegram](https://t.me/livelawindia/116107)
+[Read on Telegram](https://t.me/livelawindia/116155)
 
 ---
-### 2026-07-30T15:23:44+00:00
-Calcutta High Court Seeks Report On Alleged Police Encounter Death Of Baruipur Rape-Murder Accused
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-seeks-report-on-alleged-police-encounter-death-of-baruipur-rape-murder-accused-543669
+### 2026-07-31T07:28:19+00:00
+Kerala High Court Closes Archbishop Pamplany's Plea Over Alleged Trespass At St. Mary's Basilica As 'Infructuous'
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-archbishop-pamplanys-plea-st-marys-basilica-dispute-infructuous-543734
 
-[Read on Telegram](https://t.me/livelawindia/116108)
-
----
-### 2026-07-30T15:30:24+00:00
-WhatsApp Messages Naming Accused Before Death Prima Facie Dying Declaration: MP High Court Denies Bail
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/whatsapp-messages-of-deceased-naming-accused-prima-facie-dying-declaration-543670
-
-[Read on Telegram](https://t.me/livelawindia/116109)
+[Read on Telegram](https://t.me/livelawindia/116156)
 
 ---
-### 2026-07-30T15:42:24+00:00
-'1.45 Lakh Cases Pending Without Closure Report Despite Completed Investigation': Chhattisgarh High Court Seeks DGP's Reply
-https://www.livelaw.in/high-court/chhattisgarh-high-court/cases-pending-without-closure-report-despite-completed-investigation-543613
+### 2026-07-31T07:29:59+00:00
+Shraddha Walkar Murder Case: Delhi High Court Refuses To Fix Timeline For Trial, Notes Case Being Heard On Daily Basis
+https://www.livelaw.in/high-court/delhi-high-court/shraddha-walkar-murder-trial-delay-no-urgent-directions-543738
 
-[Read on Telegram](https://t.me/livelawindia/116110)
-
----
-### 2026-07-30T15:48:04+00:00
-Calcutta High Court Weekly Round-Up: 20th July To 26th July, 2026
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-weekly-round-up-20th-july-to-26th-july-2026-543672
-
-[Read on Telegram](https://t.me/livelawindia/116111)
+[Read on Telegram](https://t.me/livelawindia/116157)
 
 ---
-### 2026-07-30T15:52:44+00:00
-Udaipur Hills "Brutally Cut" For Hotels: Rajasthan High Court Considers Initiating Suo Motu PIL To Protect Ecology
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-shocked-rampant-hill-cutting-udaipur-543671
+### 2026-07-31T07:38:39+00:00
+DLSA Durg Concludes Five-Day Community Mediation Training Programme To Promote Litigation-Free Rural India
+https://www.livelaw.in/events/dlsa-durg-concludes-five-day-community-mediation-training-programme-to-promote-litigation-free-rural-india-543740
 
-[Read on Telegram](https://t.me/livelawindia/116112)
-
----
-### 2026-07-30T16:30:14+00:00
-'Black Day' In Allahabad High Court History: Judge Recuses From Hearing Bail Matters After Parties Attempt To Approach Him
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-judge-recuses-bail-cases-black-day-history-543673
-
-[Read on Telegram](https://t.me/livelawindia/116113)
+[Read on Telegram](https://t.me/livelawindia/116158)
 
 ---
-### 2026-07-30T16:53:55+00:00
-Supreme Court Daily Round-Up : July 30, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-july-30-2026-543677
+### 2026-07-31T07:40:39+00:00
+'They Have Embraced Freedom' : Omar Abdullah & Wife Agree To Dissolve Marriage, File Application In Supreme Court
+https://www.livelaw.in/top-stories/omar-abdullah-wife-agree-to-dissolve-marriage-file-application-in-supreme-court-543741
 
-[Read on Telegram](https://t.me/livelawindia/116114)
+[Read on Telegram](https://t.me/livelawindia/116159)
 
 ---
-### 2026-07-31T03:24:04+00:00
-Reconsider Blanket Ban On Sharing Of Court Clips : RTI Activists Tell Supreme Court
-https://www.livelaw.in/top-stories/reconsider-blanket-ban-on-sharing-of-court-clips-rti-activists-tell-supreme-court-543678
+### 2026-07-31T07:43:39+00:00
+Karnataka High Court Directs Trial Court To Consider Prajwal Revanna's Objections To Pendrive Evidence In Rape Case
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-prajwal-revanna-electronic-evidence-objections-pendrive-witnesses-543742
 
-[Read on Telegram](https://t.me/livelawindia/116115)
+[Read on Telegram](https://t.me/livelawindia/116160)
+
+---
+### 2026-07-31T07:58:19+00:00
+"Utterly Shocking": Calcutta High Court Raps KMC Officer For Demolition Order Passed Without Checking Records
+https://www.livelaw.in/high-court/calcutta-high-court/utterly-shocking-calcutta-high-court-raps-kmc-officer-for-demolition-order-passed-without-checking-records-orders-restoration-543744
+
+[Read on Telegram](https://t.me/livelawindia/116161)
+
+---
+### 2026-07-31T07:59:59+00:00
+Orissa High Court Orders ₹30,000 Compensation For Man's Prima Facie Illegal Arrest Through Forged NBW
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-orders-enquiry-compensation-illegal-detention-forged-nbw-543745
+
+[Read on Telegram](https://t.me/livelawindia/116162)
+
+---
+### 2026-07-31T08:12:09+00:00
+BREAKING| Supreme Court Stays Senthil Balaji's Arrest In TASMAC Corruption Case, Asks Him To Cooperate With Probe
+https://www.livelaw.in/top-stories/supreme-court-stays-senthil-balajis-arrest-in-tasmac-corruption-case-543747
+
+[Read on Telegram](https://t.me/livelawindia/116163)
+
+---
+### 2026-07-31T08:13:29+00:00
+Tax Dispute Is Arbitrable If It Can Be Resolved Under the Contract, Not Through Statutory Determination: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-tax-dispute-arbitrable-settled-contract-543748
+
+[Read on Telegram](https://t.me/livelawindia/116164)
+
+---
+### 2026-07-31T08:19:09+00:00
+Kerala High Court Issues Notice On Plea To Invalidate Thiruvananthapuram Mayoral Election Over Councillors' Invalid Oath
+https://www.livelaw.in/high-court/kerala-high-court/thiruvananthapuram-councillors-invalid-oath-mayor-elections-also-invalid-543750
+
+[Read on Telegram](https://t.me/livelawindia/116165)
+
+---
+### 2026-07-31T08:33:09+00:00
+All-Women Law Officers' Team To Represent Karnataka Govt Before All-Women Judges At Dharwad Bench On August 1
+https://www.livelaw.in/news-updates/women-officer-team-to-representation-state-before-karnataka-high-court-all-judges-of-dharwad-bench-543753
+
+[Read on Telegram](https://t.me/livelawindia/116166)
+
+---
+### 2026-07-31T08:39:09+00:00
+Jaipur Rural 2024 LS Poll Petition: High Court Refuses To Drop Election Authorities As Respondents Over Conflicting Postal Ballot Figures
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-rejects-plea-election-authorities-2024jaipur-rural-election-petition-543756
+
+[Read on Telegram](https://t.me/livelawindia/116167)
+
+---
+### 2026-07-31T08:42:09+00:00
+Political Identity Should Not Influence Police Response To Criminal Complaints: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-no-different-standard-police-complaints-political-identity-of-persons-543755
+
+[Read on Telegram](https://t.me/livelawindia/116168)
+
+---
+### 2026-07-31T08:43:09+00:00
+Karnataka High Court Reserves Verdict On BJP Leader DN Jeevaraja's Plea Against FIR In Postal Ballot Tampering Case
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dn-jeevaraja-post-ballot-tampering-fir-sringeri-543757
+
+[Read on Telegram](https://t.me/livelawindia/116169)
 
 ---
