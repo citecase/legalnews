@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-30T16:02:54+00:00*
+*Last Updated: 2026-07-31T09:03:11+00:00*
+
+---
+
+### 2026-07-31T09:03:11+00:00
+Absence Of Proof Of Demand Of Illegal Gratification & Recovery May Be Ground For Acquittal But Not For Quashing FIR: Supreme Court
+https://www.verdictum.in/supreme-court/state-of-karnataka-anr-v-prabhu-shankar-anr-2026-insc-766-illegal-gratification-fir-1618901
+
+[Source Link](https://t.me/verdictumlegalupdates/28271)
+
+---
+
+### 2026-07-31T08:11:50+00:00
+Breaking: Supreme Court Grants Interim Protection From Arrest To Former TN Minister Senthil Balaji In TASMAC Corruption Case
+https://www.verdictum.in/supreme-court/grants-interim-protection-arrest-former-tn-minister-senthil-balaji-tasmac-corruption-1618900
+
+[Source Link](https://t.me/verdictumlegalupdates/28270)
+
+---
+
+### 2026-07-31T08:02:29+00:00
+Person Authorised To Frame Rules Can Also Amend, Alter Or Delete: Supreme Court On Registrar’s Power U/S.55 (1) Of Chhattisgarh Cooperative Societies Act
+https://www.verdictum.in/supreme-court/s-p-chandrakar-v-state-of-chhattisgarh-2026-insc-769-cooperative-societies-act-1618889
+
+[Source Link](https://t.me/verdictumlegalupdates/28269)
+
+---
+
+### 2026-07-31T07:26:08+00:00
+Apex Court Directs MEA To Appoint Nodal Officer & Conduct Mandatory DNA Testing For Repatriating Mortal Remains Of Indians Enlisted In Russian Army
+https://www.verdictum.in/supreme-court/directs-mea-appoint-nodal-officer-conduct-mandatory-dna-tests-indians-enlisted-russian-army-1618891
+
+[Source Link](https://t.me/verdictumlegalupdates/28268)
+
+---
+
+### 2026-07-31T07:03:27+00:00
+Life Imprisonment Not Automatic In Dowry Death Cases: Allahabad High Court Reduces Convicts’ Sentence To Period Already Undergone
+https://www.verdictum.in/allahabad-high-court/dinesh-kumar-and-ors-v-state-of-up-2026ahc-lko50697-db-dowry-death-1618888
+
+[Source Link](https://t.me/verdictumlegalupdates/28267)
+
+---
+
+### 2026-07-31T06:32:25+00:00
+Delhi High Court Seeks Police’s Response On Plea By Umar Khalid Seeking Bail In 2020 Delhi Riots
+https://www.verdictum.in/delhi-high-court/umar-khalid-seeking-bail-in-2020-delhi-riots-1618882
+
+[Source Link](https://t.me/verdictumlegalupdates/28266)
+
+---
+
+### 2026-07-31T05:52:24+00:00
+Voter ID, Aadhaar, PAN, Bank Account, Record Of Rights Not Conclusive Proof Of Citizenship: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/suman-molla-v-the-state-of-west-bengal-voter-id-aadhar-card-bank-account-citizenship-1618879
+
+[Source Link](https://t.me/verdictumlegalupdates/28265)
+
+---
+
+### 2026-07-31T05:12:23+00:00
+Appeal Against Joint Inseverable Decree Abates Entirely If Non-Substitution Of LRs Would Cause Inconsistent Decrees: J&K And Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/gulam-ahmad-raina-anr-v-mst-hameeda-akhtar-ors-lr-substitution-1618878
+
+[Source Link](https://t.me/verdictumlegalupdates/28264)
+
+---
+
+### 2026-07-31T04:32:52+00:00
+“Reach Stacker” Used In Enclosed Custom-Bonded Inland Container Depot Is Not A "Motor Vehicle": Supreme Court
+https://www.verdictum.in/supreme-court/container-corporation-of-india-limited-v-rishi-ranjan-mishra-2026-insc-763-reach-stacker-enclosed-custom-bonded-inland-1618869
+
+[Source Link](https://t.me/verdictumlegalupdates/28263)
 
 ---
 
@@ -89,78 +161,6 @@ Supreme Court Seeks Response Of Punjab CM, AAP Leaders On Chandigarh's Plea In 2
 https://www.verdictum.in/supreme-court/punjab-cm-aap-leaders-on-chandigarhs-plea-in-2020-rioting-case-1618822
 
 [Source Link](https://t.me/verdictumlegalupdates/28252)
-
----
-
-### 2026-07-30T10:33:10+00:00
-NEET Protests | Supreme Court Directs Centre To Preserve RAF Ammunition Log; Terms Complete Ban On Pellet Guns 'Vague' Without Challenging Police Regulations
-https://www.verdictum.in/supreme-court/neet-protests-centre-preserve-raf-ammunition-log-ban-pellet-guns-vague-police-regulations-1618823
-
-[Source Link](https://t.me/verdictumlegalupdates/28251)
-
----
-
-### 2026-07-30T10:02:48+00:00
-Roads Inside ICD Not Public Place Under MVA; Claimants May Seek Compensation For Accidents By Regular Vehicles Within Depot: Supreme Court
-https://www.verdictum.in/supreme-court/container-corporation-of-india-limited-v-rishi-ranjan-mishra-others-2026-insc-763-1618820
-
-[Source Link](https://t.me/verdictumlegalupdates/28250)
-
----
-
-### 2026-07-30T09:32:27+00:00
-Order VII Rule 7 CPC| Court’s Discretion To Grant Smaller Relief Than Claimed Not Available When Plaintiff Sets Up Different Case From Established One: Supreme Court
-https://www.verdictum.in/supreme-court/maragadham-v-periyaraja-2026-insc-757-ovii-rule-7-cpc-relief-plaintiff-1618819
-
-[Source Link](https://t.me/verdictumlegalupdates/28249)
-
----
-
-### 2026-07-30T09:01:15+00:00
-Sentence For Remainder Of Natural Life Without Remission Cannot Be Held Unconstitutional: Supreme Court
-https://www.verdictum.in/supreme-court/ramasrey-fakkad-v-state-of-uttar-pradesh-2026-insc-764-life-imprisonment-1618818
-
-[Source Link](https://t.me/verdictumlegalupdates/28248)
-
----
-
-### 2026-07-30T08:32:54+00:00
-Central Government Has Power U/S 3 Environment Protection Act To Formulate Bounded Amnesty Schemes For Non-Compliant Projects: Supreme Court
-https://www.verdictum.in/supreme-court/2026-insc-761-vanashakti-v-union-of-india-1618816
-
-[Source Link](https://t.me/verdictumlegalupdates/28247)
-
----
-
-### 2026-07-30T08:02:52+00:00
-Madras High Court Dismisses Anticipatory Bail Petition Of DMK Leader Senthil Balaji In TASMAC Case
-https://www.verdictum.in/madras-high-court/anticipatory-bail-petition-of-dmk-leader-senthil-balaji-in-tasmac-case-dismissed-1618811
-
-[Source Link](https://t.me/verdictumlegalupdates/28246)
-
----
-
-### 2026-07-30T07:32:50+00:00
-Elevators As Common Carriers Owe Heightened Duty Of Care; Manufacturer, Operator And Premises Owner Jointly Liable To Safeguard Users: Supreme Court
-https://www.verdictum.in/supreme-court/ms-otis-elevator-co-india-ltd-v-rashmi-handa-others-2026-insc-756-1618809
-
-[Source Link](https://t.me/verdictumlegalupdates/28245)
-
----
-
-### 2026-07-30T07:03:09+00:00
-General Category Candidates Cannot Claim Reserved Seats In DNB/NEET Admissions: Delhi High Court Accepts NBEMS Appeal
-https://www.verdictum.in/delhi-high-court/national-board-of-examinations-in-medical-sciences-v-dr-aditi-panwar-2026dhc6089-1618806
-
-[Source Link](https://t.me/verdictumlegalupdates/28244)
-
----
-
-### 2026-07-30T06:32:27+00:00
-Auction Purchaser Has Locus Standi To Seek Writ Enforcing U/S 14 SARFAESI Act Order For Physical Possession: Bombay High Court
-https://www.verdictum.in/bombay-high-court/ms-jasraj-restaurants-pvt-ltd-v-state-of-maharashtra-writ-petition-no-8601-of-2026-us-14-sarfaesi-act-order-1618801
-
-[Source Link](https://t.me/verdictumlegalupdates/28243)
 
 ---
 
