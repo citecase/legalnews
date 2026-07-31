@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-31T14:33:16+00:00*
+*Last Updated: 2026-07-31T16:02:59+00:00*
+
+---
+
+### 2026-07-31T16:02:59+00:00
+Law Clerk Vacancy At Andhra Pradesh High Court
+https://www.verdictum.in/job-updates/andhra-pradesh-high-court-1618921
+
+[Source Link](https://t.me/verdictumlegalupdates/28285)
+
+---
+
+### 2026-07-31T15:32:58+00:00
+Order U/S.299 CrPC Has To Be Passed When Accused Is Found Absconding & Not When He Is Subsequently Apprehended: Supreme Court
+https://www.verdictum.in/supreme-court/mahendra-singh-v-the-state-of-chhattisgarh-2026-insc-775-section-299-crpc-accused-1618928
+
+[Source Link](https://t.me/verdictumlegalupdates/28284)
+
+---
+
+### 2026-07-31T15:02:37+00:00
+Differentiating Daughters From Sons Is Unconstitutional: Apex Court Sets Aside Bihar Policy Restricting Compassionate Appointment Only To Daughters
+https://www.verdictum.in/supreme-court/differentiating-from-sons-unconstitutional-bihar-divorced-deserted-daughters-1618920
+
+[Source Link](https://t.me/verdictumlegalupdates/28283)
 
 ---
 
@@ -137,30 +161,6 @@ Delhi High Court Seeks Police’s Response On Plea By Umar Khalid Seeking Bail I
 https://www.verdictum.in/delhi-high-court/umar-khalid-seeking-bail-in-2020-delhi-riots-1618882
 
 [Source Link](https://t.me/verdictumlegalupdates/28266)
-
----
-
-### 2026-07-31T05:52:24+00:00
-Voter ID, Aadhaar, PAN, Bank Account, Record Of Rights Not Conclusive Proof Of Citizenship: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/suman-molla-v-the-state-of-west-bengal-voter-id-aadhar-card-bank-account-citizenship-1618879
-
-[Source Link](https://t.me/verdictumlegalupdates/28265)
-
----
-
-### 2026-07-31T05:12:23+00:00
-Appeal Against Joint Inseverable Decree Abates Entirely If Non-Substitution Of LRs Would Cause Inconsistent Decrees: J&K And Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/gulam-ahmad-raina-anr-v-mst-hameeda-akhtar-ors-lr-substitution-1618878
-
-[Source Link](https://t.me/verdictumlegalupdates/28264)
-
----
-
-### 2026-07-31T04:32:52+00:00
-“Reach Stacker” Used In Enclosed Custom-Bonded Inland Container Depot Is Not A "Motor Vehicle": Supreme Court
-https://www.verdictum.in/supreme-court/container-corporation-of-india-limited-v-rishi-ranjan-mishra-2026-insc-763-reach-stacker-enclosed-custom-bonded-inland-1618869
-
-[Source Link](https://t.me/verdictumlegalupdates/28263)
 
 ---
 
