@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-07-31T16:02:59+00:00*
+*Last Updated: 2026-08-01T08:32:49+00:00*
+
+---
+
+### 2026-08-01T08:32:49+00:00
+Shikshan Sevak Covered Under MEPS Act Protection: Bombay High Court Quashes Oral Termination
+https://www.verdictum.in/bombay-high-court/dipti-madhukar-sheth-v-borivali-education-society-writ-petition-no-8021-of-2016-shikshan-sevak-covered-under-meps-act-1618974
+
+[Source Link](https://t.me/verdictumlegalupdates/28292)
+
+---
+
+### 2026-08-01T07:52:48+00:00
+"No Intelligible Differentia": Delhi High Court Strikes Down Mandatory CET Clause for Private Diploma Institutes
+https://www.verdictum.in/delhi-high-court/2026-dhc-6091-aditya-institute-of-technology-v-government-1618971
+
+[Source Link](https://t.me/verdictumlegalupdates/28291)
+
+---
+
+### 2026-08-01T07:13:06+00:00
+Only Polling Left: Delhi High Court Declines To Interdict NSCI Central Council Elections
+https://www.verdictum.in/delhi-high-court/kiran-ramakant-temkar-v-the-lieutenant-governor-nct-of-delhi-2026dhc6165-nsci-central-council-elections-1618965
+
+[Source Link](https://t.me/verdictumlegalupdates/28290)
+
+---
+
+### 2026-08-01T06:33:05+00:00
+Supreme Court Applies Principle Of Parity; Directs Release Of Murder Accused Who Completed 20 Years Of Imprisonment
+https://www.verdictum.in/supreme-court/sudesh-pal-v-state-of-uttar-pradesh-2026-insc-768-principle-of-parity-murder-1618961
+
+[Source Link](https://t.me/verdictumlegalupdates/28289)
+
+---
+
+### 2026-08-01T05:52:24+00:00
+Professionally Qualified Wife Can Be Directed To Seek Work, But Maintenance Won't Automatically Cease: Delhi High Court
+https://www.verdictum.in/delhi-high-court/d-v-s-2026dhc6090-capacity-to-earn-cannot-be-equated-with-actual-earnings-dv-act-1618957
+
+[Source Link](https://t.me/verdictumlegalupdates/28288)
+
+---
+
+### 2026-08-01T05:12:42+00:00
+Prohibition Under Maharashtra Slum Act Covers Informal Transfers & Power Of Attorney Deals: Bombay High Court
+https://www.verdictum.in/bombay-high-court/chhaya-kashinath-shinde-v-the-state-of-maharashtra-writ-petition-no-9247-of-2016-us-3e-maharashtra-slum-act-power-of-attorney-1618955
+
+[Source Link](https://t.me/verdictumlegalupdates/28287)
+
+---
+
+### 2026-08-01T04:33:11+00:00
+Motor Accident Compensation| Insurance Company Not Liable When Driver Of Offending Vehicle Didn’t Possess Valid Driving License: Supreme Court
+https://www.verdictum.in/supreme-court/reliance-general-insurance-company-ltd-v-om-parkash-2026-insc-767-accident-compensation-1618945
+
+[Source Link](https://t.me/verdictumlegalupdates/28286)
 
 ---
 
@@ -105,62 +161,6 @@ Supreme Court Upholds NCLAT Order Setting Aside CCI's Rs 301.6-Cr Penalty On Gra
 https://www.verdictum.in/supreme-court/ccis-rs-3016-cr-penalty-on-grasim-industries-set-aside-1618903
 
 [Source Link](https://t.me/verdictumlegalupdates/28273)
-
----
-
-### 2026-07-31T09:32:52+00:00
-Liberty Doesn’t Depend On Inaccuracy Of Court: Apex Court Rejects Uttarakhand's Appeal Against Bail Granted to Abdul Malik
-https://www.verdictum.in/supreme-court/uttarakhands-appeal-against-bail-granted-to-abdul-malik-rejected-1618902
-
-[Source Link](https://t.me/verdictumlegalupdates/28272)
-
----
-
-### 2026-07-31T09:03:11+00:00
-Absence Of Proof Of Demand Of Illegal Gratification & Recovery May Be Ground For Acquittal But Not For Quashing FIR: Supreme Court
-https://www.verdictum.in/supreme-court/state-of-karnataka-anr-v-prabhu-shankar-anr-2026-insc-766-illegal-gratification-fir-1618901
-
-[Source Link](https://t.me/verdictumlegalupdates/28271)
-
----
-
-### 2026-07-31T08:11:50+00:00
-Breaking: Supreme Court Grants Interim Protection From Arrest To Former TN Minister Senthil Balaji In TASMAC Corruption Case
-https://www.verdictum.in/supreme-court/grants-interim-protection-arrest-former-tn-minister-senthil-balaji-tasmac-corruption-1618900
-
-[Source Link](https://t.me/verdictumlegalupdates/28270)
-
----
-
-### 2026-07-31T08:02:29+00:00
-Person Authorised To Frame Rules Can Also Amend, Alter Or Delete: Supreme Court On Registrar’s Power U/S.55 (1) Of Chhattisgarh Cooperative Societies Act
-https://www.verdictum.in/supreme-court/s-p-chandrakar-v-state-of-chhattisgarh-2026-insc-769-cooperative-societies-act-1618889
-
-[Source Link](https://t.me/verdictumlegalupdates/28269)
-
----
-
-### 2026-07-31T07:26:08+00:00
-Apex Court Directs MEA To Appoint Nodal Officer & Conduct Mandatory DNA Testing For Repatriating Mortal Remains Of Indians Enlisted In Russian Army
-https://www.verdictum.in/supreme-court/directs-mea-appoint-nodal-officer-conduct-mandatory-dna-tests-indians-enlisted-russian-army-1618891
-
-[Source Link](https://t.me/verdictumlegalupdates/28268)
-
----
-
-### 2026-07-31T07:03:27+00:00
-Life Imprisonment Not Automatic In Dowry Death Cases: Allahabad High Court Reduces Convicts’ Sentence To Period Already Undergone
-https://www.verdictum.in/allahabad-high-court/dinesh-kumar-and-ors-v-state-of-up-2026ahc-lko50697-db-dowry-death-1618888
-
-[Source Link](https://t.me/verdictumlegalupdates/28267)
-
----
-
-### 2026-07-31T06:32:25+00:00
-Delhi High Court Seeks Police’s Response On Plea By Umar Khalid Seeking Bail In 2020 Delhi Riots
-https://www.verdictum.in/delhi-high-court/umar-khalid-seeking-bail-in-2020-delhi-riots-1618882
-
-[Source Link](https://t.me/verdictumlegalupdates/28266)
 
 ---
 
