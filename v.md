@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-01T08:32:49+00:00*
+*Last Updated: 2026-08-01T13:52:39+00:00*
+
+---
+
+### 2026-08-01T13:52:39+00:00
+Solatium And Statutory Interest Inseparable Parts Of Land Acquisition Compensation; Appeal To Exclude Them Attracts Ad Valorem Court Fee: Supreme Court
+https://www.verdictum.in/supreme-court/tehri-hydro-development-corporation-ltd-v-sp-singh-ors-2026-insc-773-1618986
+
+[Source Link](https://t.me/verdictumlegalupdates/28300)
+
+---
+
+### 2026-08-01T13:13:19+00:00
+Stray Bovine-Related Accidents A Growing Concern: Supreme Court Suggests Compensation Mechanism, Animal Tagging
+https://www.verdictum.in/supreme-court/nisha-v-municipal-council-sangrur-ors-2026-insc-774-bovine-accidents-1618985
+
+[Source Link](https://t.me/verdictumlegalupdates/28299)
+
+---
+
+### 2026-08-01T12:32:57+00:00
+Private Investigation Remains Unregulated Despite Concerns: Supreme Court Urges Law Ministry, Law Commission To Examine Issue
+https://www.verdictum.in/supreme-court/hc-v-state-of-rajasthan-anr-2026-insc-778-private-investigators-privacy-1618984
+
+[Source Link](https://t.me/verdictumlegalupdates/28298)
+
+---
+
+### 2026-08-01T11:52:35+00:00
+Mandatory 10% Pre-Deposit For GST Penalty Appeals Inapplicable To Cases Initiated Prior To Oct 2025 Amendment: Delhi High Court
+https://www.verdictum.in/delhi-high-court/gaurav-jain-anr-v-joint-commissioner-appeals-ii-cgst-delhi-zone-2026dhc6124-db-mandatory-10-pre-deposit-appeal-scn-stage-1618981
+
+[Source Link](https://t.me/verdictumlegalupdates/28297)
+
+---
+
+### 2026-08-01T11:13:14+00:00
+Section 125(4) CrPC Adultery Plea Can Be Decided Before Final Maintenance; Interim Maintenance Can Be Denied Only On Ex Facie Clear Proof: Supreme Court
+https://www.verdictum.in/supreme-court/hc-v-state-of-rajasthan-anr-2026-insc-778-adultery-interim-maintenance-1618983
+
+[Source Link](https://t.me/verdictumlegalupdates/28296)
+
+---
+
+### 2026-08-01T10:32:33+00:00
+Victim Of Factional Fight In Church Of North India: Supreme Court Quashes Case Against Assistant Registrar
+https://www.verdictum.in/supreme-court/bs-solanki-v-the-state-of-madhya-pradesh-2026-insc-749-victim-jabalpur-diocese-1618980
+
+[Source Link](https://t.me/verdictumlegalupdates/28295)
+
+---
+
+### 2026-08-01T09:52:31+00:00
+Disputed Signatures On Photocopy Cannot Be Referred For Handwriting Expert Examination: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/2026-ahc-157254-udayveer-singh-v-rent-tribunal-1618979
+
+[Source Link](https://t.me/verdictumlegalupdates/28294)
+
+---
+
+### 2026-08-01T09:12:50+00:00
+Private Contract Dispute Not Amenable To Writ Jurisdiction Merely Because Government Authority Is Contracting Party: Delhi High Court
+https://www.verdictum.in/delhi-high-court/ms-mansan-builders-private-limited-v-union-of-india-2026dhc6141-db-amenable-to-article-226-contract-dispute-1618976
+
+[Source Link](https://t.me/verdictumlegalupdates/28293)
 
 ---
 
@@ -97,70 +161,6 @@ Supreme Court Orders Status Quo On Demolition Of 25 Houses In Khandwa Madhya Pra
 https://www.verdictum.in/supreme-court/status-quo-on-demolition-of-25-houses-in-khandwa-madhya-pradesh-1618919
 
 [Source Link](https://t.me/verdictumlegalupdates/28281)
-
----
-
-### 2026-07-31T13:32:13+00:00
-Supreme Court Stays Delhi HC Order Holding National Stock Exchange Of India A Public Authority Under RTI Act
-https://www.verdictum.in/supreme-court/delhi-hc-order-holding-national-stock-exchange-of-india-a-public-authority-under-rti-act-stayed-1618910
-
-[Source Link](https://t.me/verdictumlegalupdates/28280)
-
----
-
-### 2026-07-31T13:03:12+00:00
-Apex Court Directs Centre & States To Frame Compensation Mechanism For Accidents Caused By Stray Animals
-https://www.verdictum.in/supreme-court/compensation-mechanism-for-accidents-caused-by-stray-animals-1618916
-
-[Source Link](https://t.me/verdictumlegalupdates/28279)
-
----
-
-### 2026-07-31T12:32:51+00:00
-High Court Stays Manan Kumar Mishra's Order Appointing Non-Elected Advocate As Chairman Of Kerala Bar Council
-https://www.verdictum.in/kerala-high-court/yeshwanth-shenoy-v-bar-council-of-india-ajith-ts-manan-kumar-mishra-1618917
-
-[Source Link](https://t.me/verdictumlegalupdates/28278)
-
----
-
-### 2026-07-31T12:02:29+00:00
-Delhi Court Sentences Ex-AAP Councillor Tahir Hussain To Life Imprisonment For Murder Of IB Officer Ankit Sharma
-https://www.verdictum.in/other-courts/ex-aap-councillor-tahir-hussain-life-imprisonment-murder-ib-officer-ankit-sharma-1618915
-
-[Source Link](https://t.me/verdictumlegalupdates/28277)
-
----
-
-### 2026-07-31T11:32:57+00:00
-Appeal U/S 374 CrPC Not Maintainable Against First-Time Conviction by Sessions Court Exercising Appellate Jurisdiction: Supreme Court
-https://www.verdictum.in/supreme-court/vishnu-kumar-gupta-v-state-of-madhya-pradesh-2026-insc-770-appeal-us-374-crpc-not-maintainab-1618908
-
-[Source Link](https://t.me/verdictumlegalupdates/28276)
-
----
-
-### 2026-07-31T11:02:16+00:00
-Forcibly Placing Vibrating Machine On Vaginal Orifice Constitutes Penetrative Sexual Assault: Kerala High Court
-https://www.verdictum.in/kerala-high-court/joshy-kj-v-state-of-kerala-2026ker57121-section-375-pocso-rape-sexual-assault-1618907
-
-[Source Link](https://t.me/verdictumlegalupdates/28275)
-
----
-
-### 2026-07-31T10:32:35+00:00
-Supreme Court Agrees To Dissolve J&K CM Omar Abdullah's Marriage With Estranged Wife
-https://www.verdictum.in/supreme-court/dissolve-jk-cm-omar-abdullahs-marriage-with-estranged-wife-1618906
-
-[Source Link](https://t.me/verdictumlegalupdates/28274)
-
----
-
-### 2026-07-31T10:02:53+00:00
-Supreme Court Upholds NCLAT Order Setting Aside CCI's Rs 301.6-Cr Penalty On Grasim Industries
-https://www.verdictum.in/supreme-court/ccis-rs-3016-cr-penalty-on-grasim-industries-set-aside-1618903
-
-[Source Link](https://t.me/verdictumlegalupdates/28273)
 
 ---
 
