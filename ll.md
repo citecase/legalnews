@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-31T12:41:02+00:00*
+*Last Updated: 2026-08-01T05:33:58+00:00*
 
 ---
 
-### 2026-07-31T12:41:02+00:00
-Kerala High Court Seeks Kochi Corporation's Plan To Protect Pedestrian Rights After SC Declares Safe Footpaths A Fundamental Right
-https://www.livelaw.in/high-court/kerala-high-court/kochi-corporation-protect-pedestrian-rights-right-to-walk-footpaths-fundamental-right-543816
+### 2026-08-01T05:33:58+00:00
+Employee's Compensation Act | Accident During Lunch Break At Worksite Arises Out Of Employment: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/employees-compensation-act-accident-during-lunch-break-at-worksite-arises-out-of-employment-delhi-high-court-543867
 
-[Read on Telegram](https://t.me/livelawindia/116200)
-
----
-### 2026-07-31T12:42:22+00:00
-Gram Panchayat Population Must Be Determined On Basis Of Last Published Census, Not Actual Head Count As On Date: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-up-panchayat-raj-act-last-published-census-figure-543810
-
-[Read on Telegram](https://t.me/livelawindia/116201)
+[Read on Telegram](https://t.me/livelawindia/116232)
 
 ---
-### 2026-07-31T12:44:02+00:00
-S. 125 CrPC | Wife Can Be Denied Interim Maintenance If Husband Ex Facie Shows Her Adulterous Relationship : Supreme Court
-https://www.livelaw.in/supreme-court/s-125-crpc-wife-can-be-denied-interim-maintenance-if-husband-ex-facie-shows-her-adulterous-relationship-supreme-court-543817
+### 2026-08-01T06:03:19+00:00
+AP High Court Enhances Motor Accident Compensation, Says Depreciation Can't Be Deducted On New Spare Parts Used In Repairs
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-enhances-mact-award-543849
 
-[Read on Telegram](https://t.me/livelawindia/116202)
-
----
-### 2026-07-31T12:48:02+00:00
-2026 LiveLaw (SC) 748 | HIMANSHU CHORDIA VERSUS STATE OF RAJASTHAN & ANR
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-748-himanshu-chordia-versus-state-of-rajasthan-anr-543818
-
-[Read on Telegram](https://t.me/livelawindia/116203)
+[Read on Telegram](https://t.me/livelawindia/116233)
 
 ---
-### 2026-07-31T12:58:02+00:00
-Whistling At Child, Pulling Her Hand May Be Harassment, Not Sexual Assault: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-grabbing-minor-hand-whistling-not-sexual-assault-543819
+### 2026-08-01T06:04:19+00:00
+ED Cannot Freeze Bank Accounts On Mere 'Suspicion', 'Reasons To Believe' Mandatory : Supreme Court Affirms Delhi HC Ruling
+https://www.livelaw.in/supreme-court/ed-cannot-freeze-bank-accounts-on-mere-suspicion-reasons-to-believe-mandatory-supreme-court-affirms-delhi-hc-ruling-543869
 
-[Read on Telegram](https://t.me/livelawindia/116204)
-
----
-### 2026-07-31T13:01:42+00:00
-Empanelment Of Advocates At Employees' State Insurance Corporation (ESIC)
-https://www.livelaw.in/job-updates/empanelment-of-advocates-at-employees-state-insurance-corporation-543820
-
-[Read on Telegram](https://t.me/livelawindia/116205)
+[Read on Telegram](https://t.me/livelawindia/116234)
 
 ---
-### 2026-07-31T13:17:53+00:00
-Courts Must Inquire Into Accused's Mental Capacity To Stand Trial Even Without Application If Material Exists: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/court-obligation-to-inquire-mental-capacity-schizophrenia-accused-to-stand-trial-543814
+### 2026-08-01T06:15:59+00:00
+IBC | PF Dues Protected, But Uncrystallised Interest & Damages Can Be Excluded From Resolution Plan : Supreme Court
+https://www.livelaw.in/top-stories/ibc-pf-dues-protected-but-uncrystallised-interest-damages-can-be-excluded-from-resolution-plan-supreme-court-543870
 
-[Read on Telegram](https://t.me/livelawindia/116206)
-
----
-### 2026-07-31T13:32:53+00:00
-Landless Poor Person Who Bought Assigned Land Before 1977 Act Can Sell It Further: AP High Court Full Bench
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-assigned-lands-prohibition-of-transfers-act-confers-full-title-protected-purchasers-543821
-
-[Read on Telegram](https://t.me/livelawindia/116207)
+[Read on Telegram](https://t.me/livelawindia/116235)
 
 ---
-### 2026-07-31T13:40:33+00:00
-LiveLaw Daily | Umar Khalid| Tahir Hussain| Senthil Balaji| Vinay Kulkarni| Stray Cattle & more
-https://www.livelaw.in/podcast/senthil-balaji-news-india-legal-news-umar-khalid-uapa-supreme-court-network18-sushant-sinha-543823
+### 2026-08-01T06:16:59+00:00
+2026 LiveLaw (SC) 749 | Employees Provident Fund Organisation v. Rachna Jhunjhunwala & Anr
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-749-employees-provident-fund-organisation-v-rachna-jhunjhunwala-anr-543871
 
-[Read on Telegram](https://t.me/livelawindia/116208)
-
----
-### 2026-07-31T13:47:33+00:00
-'Personal Vendetta': Rajasthan High Court Quashes Extension Of IRS Officer's Suspension, Imposes ₹5 Lakh Costs On Centre
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-imposes-costs-government-prolonged-suspension-irs-officer-543822
-
-[Read on Telegram](https://t.me/livelawindia/116209)
+[Read on Telegram](https://t.me/livelawindia/116236)
 
 ---
-### 2026-07-31T13:52:34+00:00
-Delhi High Court Grants 30 Days Interim Bail To Life Convict After Medical Report Confirms Fracture In Alleged Tihar Jail Assault
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-grants-30-days-interim-bail-to-life-convict-after-medical-report-confirms-fracture-in-alleged-tihar-jail-assault-543824
+### 2026-08-01T06:21:09+00:00
+S. 451/457 CrPC | Decision On Interim Release Not Based On Title, Court Only Sees Who Entitled To Possession : Supreme Court
+https://www.livelaw.in/supreme-court/s-451457-crpc-decision-on-interim-release-not-based-on-title-court-only-sees-who-entitled-to-possession-supreme-court-543353
 
-[Read on Telegram](https://t.me/livelawindia/116210)
-
----
-### 2026-07-31T13:54:54+00:00
-Rohini Sindhuri IAS Approaches Supreme Court Against Karnataka HC Direction To Sanction Probe In Cloth Bag Scam
-https://www.livelaw.in/top-stories/rohini-sindhuri-ias-approaches-supreme-court-against-karnataka-hc-direction-to-sanction-probe-in-cloth-bag-scam-543825
-
-[Read on Telegram](https://t.me/livelawindia/116211)
+[Read on Telegram](https://t.me/livelawindia/116237)
 
 ---
-### 2026-07-31T13:59:54+00:00
-Empanelment Of Advocates At Employees' State Insurance Corporation (ESIC)
-https://www.livelaw.in/job-updates/empanelment-of-advocates-at-employees-state-insurance-corporation-543826
+### 2026-08-01T06:26:09+00:00
+Delhi High Court Protects Cricketer Yuvraj Singh's Personality Rights Against AI Misuse, Orders Take Down Of Deepfakes
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-protects-cricketer-yuvraj-singhs-personality-rights-against-ai-misuse-orders-take-down-of-deepfakes-543872
 
-[Read on Telegram](https://t.me/livelawindia/116212)
-
----
-### 2026-07-31T14:04:14+00:00
-Supreme Court Suggests Making Of Law To Regulate Private Detectives
-https://www.livelaw.in/supreme-court/supreme-court-suggests-making-of-law-to-regulate-private-detectives-543828
-
-[Read on Telegram](https://t.me/livelawindia/116213)
+[Read on Telegram](https://t.me/livelawindia/116238)
 
 ---
-### 2026-07-31T14:32:44+00:00
-Trading Supported By Blocked Amount (TSBA): New Settlement Framework For Investor Protection
-https://www.livelaw.in/articles/trading-supported-blocked-amount-new-settlement-framework-investor-protection-543601
+### 2026-08-01T06:33:09+00:00
+Gujarat High Court Orally Asks State To Take Steps Ensuring Female Prisoners Are Not Excluded From Open Prisons
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-seeks-status-report-open-prisons-exclusion-women-prisoners-543857
 
-[Read on Telegram](https://t.me/livelawindia/116214)
-
----
-### 2026-07-31T15:50:57+00:00
-Supreme Court Raps States/UTs For Not Implementing Healthcare Professions Act Despite 2024 Direction, Sets September Deadline
-https://www.livelaw.in/top-stories/supreme-court-raps-statesuts-for-not-implementing-healthcare-professions-act-despite-2024-direction-sets-september-deadline-543841
-
-[Read on Telegram](https://t.me/livelawindia/116215)
+[Read on Telegram](https://t.me/livelawindia/116239)
 
 ---
-### 2026-07-31T16:01:07+00:00
-Supreme Court Stays CIC Order Holding NSE Amenable To RTI Act
-https://www.livelaw.in/top-stories/supreme-court-stays-cic-order-holding-nse-amenable-to-rti-act-543843
+### 2026-08-01T06:56:49+00:00
+General Manager (Legal) Vacancy At National Highways & Infrastructure Development Corporation Limited (NHIDCL)
+https://www.livelaw.in/job-updates/general-manager-legal-vacancy-at-national-highways-infrastructure-development-corporation-limited-nhidcl-543877
 
-[Read on Telegram](https://t.me/livelawindia/116216)
-
----
-### 2026-07-31T17:22:57+00:00
-Supreme Court Daily Round-Up : July 31, 2026
-https://www.livelaw.in/supreme-court/supreme-court-daily-round-up-july-31-2026-543844
-
-[Read on Telegram](https://t.me/livelawindia/116217)
+[Read on Telegram](https://t.me/livelawindia/116240)
 
 ---
-### 2026-08-01T02:32:35+00:00
-'Sheer Mockery': Kerala High Court Questions Govt Failure To Curb Illegal Flags & Banners, Seeks Chief Secretary's Affidavit
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-widespread-illegal-boards-banners-chief-secretary-respond-543846
+### 2026-08-01T06:57:29+00:00
+Right To Protest In India, A Failed Social Contract
+https://www.livelaw.in/articles/failed-social-contract-protest-right-india-543878
 
-[Read on Telegram](https://t.me/livelawindia/116218)
+[Read on Telegram](https://t.me/livelawindia/116241)
 
 ---
-### 2026-08-01T02:45:15+00:00
-President Grants Assent To Amendment Enhancing Punishments For Unfair Means In Public Examinations
-https://www.livelaw.in/top-stories/president-grants-assent-to-amendment-enhancing-punishments-for-unfair-means-in-public-examinations-543851
+### 2026-08-01T07:05:39+00:00
+Patna High Court Quashes 'Blank' NHAI Notice Over Highway Land Acquisition, Imposes ₹5,000 Costs For 'Irresponsible' Action
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-quashes-nhai-notice-highway-land-543883
 
-[Read on Telegram](https://t.me/livelawindia/116219)
+[Read on Telegram](https://t.me/livelawindia/116242)
+
+---
+### 2026-08-01T07:08:19+00:00
+Religious Sentiments Can't Justify Obstruction Of Public Pathway: Himachal Pradesh High Court Orders Removal Of Temple Gate
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-religion-subvert-legal-process-543885
+
+[Read on Telegram](https://t.me/livelawindia/116243)
+
+---
+### 2026-08-01T07:17:50+00:00
+Workshops Are 'Public Places' Under Motor Vehicles Act; Insurer Liable For Blast During Repair Of Stationary Vehicle: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/private-garages-public-places-motor-vehicles-act-543875
+
+[Read on Telegram](https://t.me/livelawindia/116244)
+
+---
+### 2026-08-01T07:22:37+00:00
+Senior Manager Vacancy At Ernst & Young
+https://www.livelaw.in/job-updates/senior-manager-vacancy-at-ernst-young-543892
+
+[Read on Telegram](https://t.me/livelawindia/116245)
+
+---
+### 2026-08-01T07:32:17+00:00
+LiveLaw Madhya Pradesh High Court Monthly Digest: July 2026
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-monthly-digest-july-2026-543858
+
+[Read on Telegram](https://t.me/livelawindia/116246)
+
+---
+### 2026-08-01T07:47:38+00:00
+Senior Consultant Vacancy At Airports Authority Of India (AAI)
+https://www.livelaw.in/job-updates/senior-consultant-vacancy-at-airports-authority-of-india-543894
+
+[Read on Telegram](https://t.me/livelawindia/116247)
+
+---
+### 2026-08-01T07:48:18+00:00
+Allahabad High Court Upholds Life Term For Man Who Strangled Live-In Partner, Her Mother & 2 Minor Children Over Marriage Dispute
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-live-in-partner-quadruple-murder-life-sentence-543896
+
+[Read on Telegram](https://t.me/livelawindia/116248)
+
+---
+### 2026-08-01T07:51:58+00:00
+Central Secretariat Club Moves Delhi High Court Against Centre's Derecognition, Eviction Orders
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-eviction-order-central-secretariat-club-543897
+
+[Read on Telegram](https://t.me/livelawindia/116249)
+
+---
+### 2026-08-01T08:12:48+00:00
+Courts Can't Adjourn All Cases For Entire Day On Bar Association's Condolence Reference: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/wholesale-adjournment-affects-administration-justice-543887
+
+[Read on Telegram](https://t.me/livelawindia/116250)
+
+---
+### 2026-08-01T08:19:08+00:00
+People Abandon Cattle On Roads, But Feel Offended If They Are Used For Food : Supreme Court
+https://www.livelaw.in/supreme-court/people-abandon-cattle-on-roads-but-feel-offended-if-they-are-used-for-food-supreme-court-543898
+
+[Read on Telegram](https://t.me/livelawindia/116251)
 
 ---
