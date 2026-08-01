@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-01T05:33:58+00:00*
+*Last Updated: 2026-08-01T07:22:37+00:00*
 
 ---
 
-### 2026-08-01T05:33:58+00:00
-Employee's Compensation Act | Accident During Lunch Break At Worksite Arises Out Of Employment: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/employees-compensation-act-accident-during-lunch-break-at-worksite-arises-out-of-employment-delhi-high-court-543867
-
-[Read on Telegram](https://t.me/livelawindia/116232)
-
----
-### 2026-08-01T06:03:19+00:00
-AP High Court Enhances Motor Accident Compensation, Says Depreciation Can't Be Deducted On New Spare Parts Used In Repairs
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-enhances-mact-award-543849
-
-[Read on Telegram](https://t.me/livelawindia/116233)
-
----
-### 2026-08-01T06:04:19+00:00
-ED Cannot Freeze Bank Accounts On Mere 'Suspicion', 'Reasons To Believe' Mandatory : Supreme Court Affirms Delhi HC Ruling
-https://www.livelaw.in/supreme-court/ed-cannot-freeze-bank-accounts-on-mere-suspicion-reasons-to-believe-mandatory-supreme-court-affirms-delhi-hc-ruling-543869
-
-[Read on Telegram](https://t.me/livelawindia/116234)
-
----
-### 2026-08-01T06:15:59+00:00
-IBC | PF Dues Protected, But Uncrystallised Interest & Damages Can Be Excluded From Resolution Plan : Supreme Court
-https://www.livelaw.in/top-stories/ibc-pf-dues-protected-but-uncrystallised-interest-damages-can-be-excluded-from-resolution-plan-supreme-court-543870
-
-[Read on Telegram](https://t.me/livelawindia/116235)
-
----
-### 2026-08-01T06:16:59+00:00
-2026 LiveLaw (SC) 749 | Employees Provident Fund Organisation v. Rachna Jhunjhunwala & Anr
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-749-employees-provident-fund-organisation-v-rachna-jhunjhunwala-anr-543871
-
-[Read on Telegram](https://t.me/livelawindia/116236)
-
----
-### 2026-08-01T06:21:09+00:00
-S. 451/457 CrPC | Decision On Interim Release Not Based On Title, Court Only Sees Who Entitled To Possession : Supreme Court
-https://www.livelaw.in/supreme-court/s-451457-crpc-decision-on-interim-release-not-based-on-title-court-only-sees-who-entitled-to-possession-supreme-court-543353
-
-[Read on Telegram](https://t.me/livelawindia/116237)
-
----
-### 2026-08-01T06:26:09+00:00
-Delhi High Court Protects Cricketer Yuvraj Singh's Personality Rights Against AI Misuse, Orders Take Down Of Deepfakes
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-protects-cricketer-yuvraj-singhs-personality-rights-against-ai-misuse-orders-take-down-of-deepfakes-543872
-
-[Read on Telegram](https://t.me/livelawindia/116238)
-
----
-### 2026-08-01T06:33:09+00:00
-Gujarat High Court Orally Asks State To Take Steps Ensuring Female Prisoners Are Not Excluded From Open Prisons
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-seeks-status-report-open-prisons-exclusion-women-prisoners-543857
-
-[Read on Telegram](https://t.me/livelawindia/116239)
-
----
-### 2026-08-01T06:56:49+00:00
-General Manager (Legal) Vacancy At National Highways & Infrastructure Development Corporation Limited (NHIDCL)
-https://www.livelaw.in/job-updates/general-manager-legal-vacancy-at-national-highways-infrastructure-development-corporation-limited-nhidcl-543877
-
-[Read on Telegram](https://t.me/livelawindia/116240)
-
----
-### 2026-08-01T06:57:29+00:00
-Right To Protest In India, A Failed Social Contract
-https://www.livelaw.in/articles/failed-social-contract-protest-right-india-543878
-
-[Read on Telegram](https://t.me/livelawindia/116241)
-
----
-### 2026-08-01T07:05:39+00:00
-Patna High Court Quashes 'Blank' NHAI Notice Over Highway Land Acquisition, Imposes ₹5,000 Costs For 'Irresponsible' Action
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-quashes-nhai-notice-highway-land-543883
-
-[Read on Telegram](https://t.me/livelawindia/116242)
-
----
-### 2026-08-01T07:08:19+00:00
-Religious Sentiments Can't Justify Obstruction Of Public Pathway: Himachal Pradesh High Court Orders Removal Of Temple Gate
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-religion-subvert-legal-process-543885
-
-[Read on Telegram](https://t.me/livelawindia/116243)
-
----
-### 2026-08-01T07:17:50+00:00
-Workshops Are 'Public Places' Under Motor Vehicles Act; Insurer Liable For Blast During Repair Of Stationary Vehicle: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/private-garages-public-places-motor-vehicles-act-543875
-
-[Read on Telegram](https://t.me/livelawindia/116244)
-
----
 ### 2026-08-01T07:22:37+00:00
 Senior Manager Vacancy At Ernst & Young
 https://www.livelaw.in/job-updates/senior-manager-vacancy-at-ernst-young-543892
@@ -142,5 +51,97 @@ People Abandon Cattle On Roads, But Feel Offended If They Are Used For Food : Su
 https://www.livelaw.in/supreme-court/people-abandon-cattle-on-roads-but-feel-offended-if-they-are-used-for-food-supreme-court-543898
 
 [Read on Telegram](https://t.me/livelawindia/116251)
+
+---
+### 2026-08-01T08:33:05+00:00
+Rajasthan High Court Calls For Legal Training Of Police On Age Determination In POCSO, Juvenile Cases
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-dgp-legal-training-to-police-investigating-pocso-juvenile-cases-543859
+
+[Read on Telegram](https://t.me/livelawindia/116252)
+
+---
+### 2026-08-01T09:22:37+00:00
+Allegations OF Temple Land Misappropriation Require Civil Remedy, Not Criminal Prosecution: J&K&L High Court Quashes FIR Against Pujari
+https://www.livelaw.in/high-court/jammu-kashmir/historic-temple-land-dispute-cannot-be-criminalised-jk-high-court-quashes-fir-against-hereditary-pujari-of-thakur-dwara-narsingh-ji-maharaj-543881
+
+[Read on Telegram](https://t.me/livelawindia/116253)
+
+---
+### 2026-08-01T09:26:17+00:00
+LiveLaw Supreme Court Half-Yearly Digest 2026 - Advocates & Judiciary
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-advocates-and-judiciary-half-yearly-digest-543903
+
+[Read on Telegram](https://t.me/livelawindia/116254)
+
+---
+### 2026-08-01T09:32:37+00:00
+India's Data Protection Board: Established In Law, Absent In Fact
+https://www.livelaw.in/articles/india-data-protection-board-established-law-543751
+
+[Read on Telegram](https://t.me/livelawindia/116255)
+
+---
+### 2026-08-01T09:33:37+00:00
+Railways Liable For Providing Only One Blanket To Two RAC Passengers: Delhi Consumer Commission
+https://www.livelaw.in/consumer-cases/delhi-consumer-commission-railways-liable-deficiency-service-rac-passengers-bedroll-543904
+
+[Read on Telegram](https://t.me/livelawindia/116256)
+
+---
+### 2026-08-01T09:35:57+00:00
+By Not Giving Reasons, Collegium Doing Disservice To Judges Doing Good Work : Justice Ujjal Bhuyan
+https://www.livelaw.in/top-stories/by-not-giving-reasons-collegium-doing-disservice-to-judges-doing-good-work-justice-ujjal-bhuyan-543905
+
+[Read on Telegram](https://t.me/livelawindia/116257)
+
+---
+### 2026-08-01T09:36:37+00:00
+Nagpur Consumer Commission Directs ICICI Bank To Refund ₹5.18 Lakh To Cyber Fraud Victim
+https://www.livelaw.in/consumer-cases/nagpur-consumer-commission-directs-icici-bank-refund-cyber-fraud-543906
+
+[Read on Telegram](https://t.me/livelawindia/116258)
+
+---
+### 2026-08-01T09:43:58+00:00
+#TheLawChallenge
+ : A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
+https://www.livelaw.in/top-stories/weekly-quiz-for-the-legally-curious-by-livelaw-qshala-543908
+
+[Read on Telegram](https://t.me/livelawindia/116259)
+
+---
+### 2026-08-01T10:13:03+00:00
+Mere "Seen" Endorsement By Magistrate On Seized Narcotics Not Substantial Compliance U/S 52A NDPS Act: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/mere-seen-endorsement-not-substantial-compliance-section-52a-543876
+
+[Read on Telegram](https://t.me/livelawindia/116260)
+
+---
+### 2026-08-01T10:42:23+00:00
+Remission Plea Can't Be Rejected By Mechanically Relying On DM, SP's Adverse Opinions: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/remission-denied-mechanical-adverse-reports-dm-sp-bypassing-jail-authorities-543879
+
+[Read on Telegram](https://t.me/livelawindia/116261)
+
+---
+### 2026-08-01T11:05:54+00:00
+Kerala High Court Asks Guruvayur Devaswom To Consider Re-Naming Ritual Named After Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kodathi-vilakku-guruvayur-543924
+
+[Read on Telegram](https://t.me/livelawindia/116262)
+
+---
+### 2026-08-01T11:16:54+00:00
+Police Force Meant To Disperse Crowd, Not To Punish Protesters
+https://www.livelaw.in/articles/supreme-court-police-excessive-force-student-protest-delhi-bnss-section-163-ramlila-maidan-543929
+
+[Read on Telegram](https://t.me/livelawindia/116263)
+
+---
+### 2026-08-01T12:32:05+00:00
+CARA To Issue NOC For Child Adopted Under HAMA; Hague Convention Not Attracted In Expatriate Adoption: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/cara-issue-noc-expatriate-adoption-543886
+
+[Read on Telegram](https://t.me/livelawindia/116264)
 
 ---
