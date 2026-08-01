@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-07-31T12:31:02+00:00*
+*Last Updated: 2026-07-31T12:41:02+00:00*
 
 ---
 
-### 2026-07-31T12:31:02+00:00
-Witness Testimony Recorded Without S.299 CrPC Order Can't Be Later Used Against Accused Who Absconded : Supreme Court
-https://www.livelaw.in/supreme-court/witness-testimony-recorded-without-s299-crpc-order-cant-be-later-used-against-accused-who-absconded-supreme-court-543813
-
-[Read on Telegram](https://t.me/livelawindia/116198)
-
----
-### 2026-07-31T12:33:22+00:00
-2026 LiveLaw (SC) 747 | Mahendra Singh Versus The State of Chhattisgarh
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-747-mahendra-singh-versus-the-state-of-chhattisgarh-543815
-
-[Read on Telegram](https://t.me/livelawindia/116199)
-
----
 ### 2026-07-31T12:41:02+00:00
 Kerala High Court Seeks Kochi Corporation's Plan To Protect Pedestrian Rights After SC Declares Safe Footpaths A Fundamental Right
 https://www.livelaw.in/high-court/kerala-high-court/kochi-corporation-protect-pedestrian-rights-right-to-walk-footpaths-fundamental-right-543816
@@ -142,5 +128,19 @@ Supreme Court Daily Round-Up : July 31, 2026
 https://www.livelaw.in/supreme-court/supreme-court-daily-round-up-july-31-2026-543844
 
 [Read on Telegram](https://t.me/livelawindia/116217)
+
+---
+### 2026-08-01T02:32:35+00:00
+'Sheer Mockery': Kerala High Court Questions Govt Failure To Curb Illegal Flags & Banners, Seeks Chief Secretary's Affidavit
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-widespread-illegal-boards-banners-chief-secretary-respond-543846
+
+[Read on Telegram](https://t.me/livelawindia/116218)
+
+---
+### 2026-08-01T02:45:15+00:00
+President Grants Assent To Amendment Enhancing Punishments For Unfair Means In Public Examinations
+https://www.livelaw.in/top-stories/president-grants-assent-to-amendment-enhancing-punishments-for-unfair-means-in-public-examinations-543851
+
+[Read on Telegram](https://t.me/livelawindia/116219)
 
 ---
