@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-01T13:52:39+00:00*
+*Last Updated: 2026-08-01T14:32:31+00:00*
+
+---
+
+### 2026-08-01T14:32:31+00:00
+Consultant (Legal Cell) Vacancy At Ministry of External Affairs (MEA)
+https://www.verdictum.in/job-updates/ministry-of-external-affairs-1618987
+
+[Source Link](https://t.me/verdictumlegalupdates/28301)
 
 ---
 
@@ -153,14 +161,6 @@ https://www.verdictum.in/supreme-court/differentiating-from-sons-unconstitutiona
 https://www.verdictum.in/kerala-high-court/union-of-india-v-mohanraj-tk-2026ker52646-disability-pension-armed-forces-tribunal-1618926
 
 [Source Link](https://t.me/verdictumlegalupdates/28282)
-
----
-
-### 2026-07-31T14:02:54+00:00
-Supreme Court Orders Status Quo On Demolition Of 25 Houses In Khandwa Madhya Pradesh
-https://www.verdictum.in/supreme-court/status-quo-on-demolition-of-25-houses-in-khandwa-madhya-pradesh-1618919
-
-[Source Link](https://t.me/verdictumlegalupdates/28281)
 
 ---
 
