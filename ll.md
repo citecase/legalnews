@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-01T07:22:37+00:00*
+*Last Updated: 2026-08-01T08:12:48+00:00*
 
 ---
 
-### 2026-08-01T07:22:37+00:00
-Senior Manager Vacancy At Ernst & Young
-https://www.livelaw.in/job-updates/senior-manager-vacancy-at-ernst-young-543892
-
-[Read on Telegram](https://t.me/livelawindia/116245)
-
----
-### 2026-08-01T07:32:17+00:00
-LiveLaw Madhya Pradesh High Court Monthly Digest: July 2026
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-monthly-digest-july-2026-543858
-
-[Read on Telegram](https://t.me/livelawindia/116246)
-
----
-### 2026-08-01T07:47:38+00:00
-Senior Consultant Vacancy At Airports Authority Of India (AAI)
-https://www.livelaw.in/job-updates/senior-consultant-vacancy-at-airports-authority-of-india-543894
-
-[Read on Telegram](https://t.me/livelawindia/116247)
-
----
-### 2026-08-01T07:48:18+00:00
-Allahabad High Court Upholds Life Term For Man Who Strangled Live-In Partner, Her Mother & 2 Minor Children Over Marriage Dispute
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-live-in-partner-quadruple-murder-life-sentence-543896
-
-[Read on Telegram](https://t.me/livelawindia/116248)
-
----
-### 2026-08-01T07:51:58+00:00
-Central Secretariat Club Moves Delhi High Court Against Centre's Derecognition, Eviction Orders
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-eviction-order-central-secretariat-club-543897
-
-[Read on Telegram](https://t.me/livelawindia/116249)
-
----
 ### 2026-08-01T08:12:48+00:00
 Courts Can't Adjourn All Cases For Entire Day On Bar Association's Condolence Reference: Chhattisgarh High Court
 https://www.livelaw.in/high-court/chhattisgarh-high-court/wholesale-adjournment-affects-administration-justice-543887
@@ -143,5 +108,40 @@ CARA To Issue NOC For Child Adopted Under HAMA; Hague Convention Not Attracted I
 https://www.livelaw.in/high-court/bombay-high-court/cara-issue-noc-expatriate-adoption-543886
 
 [Read on Telegram](https://t.me/livelawindia/116264)
+
+---
+### 2026-08-01T13:40:45+00:00
+Judge's Inquiry Report Must Be Published : Saurabh Kirpal
+https://www.livelaw.in/top-stories/judges-inquiry-report-must-be-published-saurabh-kirpal-543940
+
+[Read on Telegram](https://t.me/livelawindia/116265)
+
+---
+### 2026-08-01T13:48:06+00:00
+Chhattisgarh High Court Directs Chief Secretary To Monitor Completion Of Bilaspur Airport Utility Building, Sets 3-Month Deadline
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chief-secretary-ensure-bilaspur-airport-completed-three-months-543888
+
+[Read on Telegram](https://t.me/livelawindia/116266)
+
+---
+### 2026-08-01T14:33:16+00:00
+Criminalising Disrespect To Vande Mataram: What Prevention Of Insults To National Honour (Amendment) Bill, 2026 Actually Changes?
+https://www.livelaw.in/articles/criminalising-disrespect-vande-mataram-national-honour-amendment-bill2026-543752
+
+[Read on Telegram](https://t.me/livelawindia/116267)
+
+---
+### 2026-08-01T14:35:16+00:00
+Cauvery Dispute : DMK Moves Supreme Court Seeking Directions To Karnataka For Urgent Water Release
+https://www.livelaw.in/top-stories/supreme-court-karnataka-tamil-nadu-dmk-application-for-urgent-release-of-cauvery-river-water-at-biligundlu-kuruvai-crop-farmers-livelihood-543943
+
+[Read on Telegram](https://t.me/livelawindia/116268)
+
+---
+### 2026-08-01T15:02:17+00:00
+Foreigners Can't Invoke Article 226 To Protect Unauthorized Possession Of Government Land: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/foreigners-cannot-invoke-writ-jurisdiction-protect-unauthorized-possession-government-land-543889
+
+[Read on Telegram](https://t.me/livelawindia/116269)
 
 ---
