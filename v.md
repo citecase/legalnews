@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-02T07:32:53+00:00*
+*Last Updated: 2026-08-02T13:32:37+00:00*
+
+---
+
+### 2026-08-02T13:32:37+00:00
+Plaint Amendment After Commencement Of Trial To Be Permitted Only If Party Couldn't Raise Matter Before Commencement Despite Due Diligence: Supreme Court
+https://www.verdictum.in/supreme-court/chitra-anr-v-c-natarajan-2026-insc-781-order-vi-rule-17-cpc-amendment-trial-1619031
+
+[Source Link](https://t.me/verdictumlegalupdates/28308)
+
+---
+
+### 2026-08-02T12:02:36+00:00
+Pulling Minor Girl By Hand When She Failed To Respond To Whistle Not Sexual Assault: Madras High Court Grants Bail In POCSO Case
+https://www.verdictum.in/madras-high-court/mandai-manogaran-v-the-state-man-pulling-minor-hand-bail-pocso-accused-1618999
+
+[Source Link](https://t.me/verdictumlegalupdates/28307)
+
+---
+
+### 2026-08-02T10:33:15+00:00
+Allahabad HC Directs Criminal Inquiry & Cancellation Of Licenses Of Advocates For Securing Order Using Forged Land Acquisition Award
+https://www.verdictum.in/allahabad-high-court/2026-ahc-159155-db-bareilly-development-authority-v-ram-pal-1618998
+
+[Source Link](https://t.me/verdictumlegalupdates/28306)
+
+---
+
+### 2026-08-02T09:03:14+00:00
+Student Cannot Suffer On Account Of Technical Mistake: Madhya Pradesh HC Directs Nursing Council To Correct Photo Error In Marksheets
+https://www.verdictum.in/madhya-pradesh-high-court/2026-mphc-gwl-21708-roopa-yadav-v-state-of-mp-1618995
+
+[Source Link](https://t.me/verdictumlegalupdates/28305)
 
 ---
 
@@ -129,38 +161,6 @@ Supreme Court Applies Principle Of Parity; Directs Release Of Murder Accused Who
 https://www.verdictum.in/supreme-court/sudesh-pal-v-state-of-uttar-pradesh-2026-insc-768-principle-of-parity-murder-1618961
 
 [Source Link](https://t.me/verdictumlegalupdates/28289)
-
----
-
-### 2026-08-01T05:52:24+00:00
-Professionally Qualified Wife Can Be Directed To Seek Work, But Maintenance Won't Automatically Cease: Delhi High Court
-https://www.verdictum.in/delhi-high-court/d-v-s-2026dhc6090-capacity-to-earn-cannot-be-equated-with-actual-earnings-dv-act-1618957
-
-[Source Link](https://t.me/verdictumlegalupdates/28288)
-
----
-
-### 2026-08-01T05:12:42+00:00
-Prohibition Under Maharashtra Slum Act Covers Informal Transfers & Power Of Attorney Deals: Bombay High Court
-https://www.verdictum.in/bombay-high-court/chhaya-kashinath-shinde-v-the-state-of-maharashtra-writ-petition-no-9247-of-2016-us-3e-maharashtra-slum-act-power-of-attorney-1618955
-
-[Source Link](https://t.me/verdictumlegalupdates/28287)
-
----
-
-### 2026-08-01T04:33:11+00:00
-Motor Accident Compensation| Insurance Company Not Liable When Driver Of Offending Vehicle Didn’t Possess Valid Driving License: Supreme Court
-https://www.verdictum.in/supreme-court/reliance-general-insurance-company-ltd-v-om-parkash-2026-insc-767-accident-compensation-1618945
-
-[Source Link](https://t.me/verdictumlegalupdates/28286)
-
----
-
-### 2026-07-31T16:02:59+00:00
-Law Clerk Vacancy At Andhra Pradesh High Court
-https://www.verdictum.in/job-updates/andhra-pradesh-high-court-1618921
-
-[Source Link](https://t.me/verdictumlegalupdates/28285)
 
 ---
 
