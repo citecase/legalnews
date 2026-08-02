@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-01T14:32:31+00:00*
+*Last Updated: 2026-08-02T07:32:53+00:00*
+
+---
+
+### 2026-08-02T07:32:53+00:00
+Direct Assault On Majesty Of Rule Of Law: Allahabad High Court  Judge Recuses From Hearing Bail Pleas After Parties Try To  Approach Him
+https://www.verdictum.in/allahabad-high-court/attempt-privately-approach-judge-assault-rule-law-recuse-bail-1618994
+
+[Source Link](https://t.me/verdictumlegalupdates/28304)
+
+---
+
+### 2026-08-02T06:02:31+00:00
+Misconceived And Misdirected: Bombay High Court Quashes 13-Year-Old Case Against Man Accused Of Charging ₹1 Extra For Pepsi Bottle
+https://www.verdictum.in/bombay-high-court/vasudeo-tanaji-narvekar-v-the-state-of-maharashtra-and-another-mrp-sale-1618989
+
+[Source Link](https://t.me/verdictumlegalupdates/28303)
+
+---
+
+### 2026-08-02T04:33:10+00:00
+Respondent Supporting Decree Need Not File Cross-Objections To Assail Adverse Finding If No Additional Relief Is Sought: Supreme Court
+https://www.verdictum.in/supreme-court/-vnas-chandran-v-s-venilla-and-others-2026-insc-776-specific-performance-1618988
+
+[Source Link](https://t.me/verdictumlegalupdates/28302)
 
 ---
 
@@ -137,30 +161,6 @@ Law Clerk Vacancy At Andhra Pradesh High Court
 https://www.verdictum.in/job-updates/andhra-pradesh-high-court-1618921
 
 [Source Link](https://t.me/verdictumlegalupdates/28285)
-
----
-
-### 2026-07-31T15:32:58+00:00
-Order U/S.299 CrPC Has To Be Passed When Accused Is Found Absconding & Not When He Is Subsequently Apprehended: Supreme Court
-https://www.verdictum.in/supreme-court/mahendra-singh-v-the-state-of-chhattisgarh-2026-insc-775-section-299-crpc-accused-1618928
-
-[Source Link](https://t.me/verdictumlegalupdates/28284)
-
----
-
-### 2026-07-31T15:02:37+00:00
-Differentiating Daughters From Sons Is Unconstitutional: Apex Court Sets Aside Bihar Policy Restricting Compassionate Appointment Only To Daughters
-https://www.verdictum.in/supreme-court/differentiating-from-sons-unconstitutional-bihar-divorced-deserted-daughters-1618920
-
-[Source Link](https://t.me/verdictumlegalupdates/28283)
-
----
-
-### 2026-07-31T14:33:16+00:00
-“A Soldier Is A Blank Cheque Written To Country”: Kerala High Court
-https://www.verdictum.in/kerala-high-court/union-of-india-v-mohanraj-tk-2026ker52646-disability-pension-armed-forces-tribunal-1618926
-
-[Source Link](https://t.me/verdictumlegalupdates/28282)
 
 ---
 
