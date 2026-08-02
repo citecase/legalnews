@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-02T13:32:37+00:00*
+*Last Updated: 2026-08-02T15:02:39+00:00*
+
+---
+
+### 2026-08-02T15:02:39+00:00
+Karnataka State Legal Services Authority (KSLSA) Invites Applications For Post Of Section Officer
+https://www.verdictum.in/job-updates/karnataka-state-legal-services-authority-1618996
+
+[Source Link](https://t.me/verdictumlegalupdates/28309)
 
 ---
 
@@ -153,14 +161,6 @@ Only Polling Left: Delhi High Court Declines To Interdict NSCI Central Council E
 https://www.verdictum.in/delhi-high-court/kiran-ramakant-temkar-v-the-lieutenant-governor-nct-of-delhi-2026dhc6165-nsci-central-council-elections-1618965
 
 [Source Link](https://t.me/verdictumlegalupdates/28290)
-
----
-
-### 2026-08-01T06:33:05+00:00
-Supreme Court Applies Principle Of Parity; Directs Release Of Murder Accused Who Completed 20 Years Of Imprisonment
-https://www.verdictum.in/supreme-court/sudesh-pal-v-state-of-uttar-pradesh-2026-insc-768-principle-of-parity-murder-1618961
-
-[Source Link](https://t.me/verdictumlegalupdates/28289)
 
 ---
 
