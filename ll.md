@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-01T08:12:48+00:00*
+*Last Updated: 2026-08-01T09:36:37+00:00*
 
 ---
 
-### 2026-08-01T08:12:48+00:00
-Courts Can't Adjourn All Cases For Entire Day On Bar Association's Condolence Reference: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/wholesale-adjournment-affects-administration-justice-543887
-
-[Read on Telegram](https://t.me/livelawindia/116250)
-
----
-### 2026-08-01T08:19:08+00:00
-People Abandon Cattle On Roads, But Feel Offended If They Are Used For Food : Supreme Court
-https://www.livelaw.in/supreme-court/people-abandon-cattle-on-roads-but-feel-offended-if-they-are-used-for-food-supreme-court-543898
-
-[Read on Telegram](https://t.me/livelawindia/116251)
-
----
-### 2026-08-01T08:33:05+00:00
-Rajasthan High Court Calls For Legal Training Of Police On Age Determination In POCSO, Juvenile Cases
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-dgp-legal-training-to-police-investigating-pocso-juvenile-cases-543859
-
-[Read on Telegram](https://t.me/livelawindia/116252)
-
----
-### 2026-08-01T09:22:37+00:00
-Allegations OF Temple Land Misappropriation Require Civil Remedy, Not Criminal Prosecution: J&K&L High Court Quashes FIR Against Pujari
-https://www.livelaw.in/high-court/jammu-kashmir/historic-temple-land-dispute-cannot-be-criminalised-jk-high-court-quashes-fir-against-hereditary-pujari-of-thakur-dwara-narsingh-ji-maharaj-543881
-
-[Read on Telegram](https://t.me/livelawindia/116253)
-
----
-### 2026-08-01T09:26:17+00:00
-LiveLaw Supreme Court Half-Yearly Digest 2026 - Advocates & Judiciary
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-advocates-and-judiciary-half-yearly-digest-543903
-
-[Read on Telegram](https://t.me/livelawindia/116254)
-
----
-### 2026-08-01T09:32:37+00:00
-India's Data Protection Board: Established In Law, Absent In Fact
-https://www.livelaw.in/articles/india-data-protection-board-established-law-543751
-
-[Read on Telegram](https://t.me/livelawindia/116255)
-
----
-### 2026-08-01T09:33:37+00:00
-Railways Liable For Providing Only One Blanket To Two RAC Passengers: Delhi Consumer Commission
-https://www.livelaw.in/consumer-cases/delhi-consumer-commission-railways-liable-deficiency-service-rac-passengers-bedroll-543904
-
-[Read on Telegram](https://t.me/livelawindia/116256)
-
----
-### 2026-08-01T09:35:57+00:00
-By Not Giving Reasons, Collegium Doing Disservice To Judges Doing Good Work : Justice Ujjal Bhuyan
-https://www.livelaw.in/top-stories/by-not-giving-reasons-collegium-doing-disservice-to-judges-doing-good-work-justice-ujjal-bhuyan-543905
-
-[Read on Telegram](https://t.me/livelawindia/116257)
-
----
 ### 2026-08-01T09:36:37+00:00
 Nagpur Consumer Commission Directs ICICI Bank To Refund ₹5.18 Lakh To Cyber Fraud Victim
 https://www.livelaw.in/consumer-cases/nagpur-consumer-commission-directs-icici-bank-refund-cyber-fraud-543906
@@ -143,5 +87,61 @@ Foreigners Can't Invoke Article 226 To Protect Unauthorized Possession Of Govern
 https://www.livelaw.in/high-court/chhattisgarh-high-court/foreigners-cannot-invoke-writ-jurisdiction-protect-unauthorized-possession-government-land-543889
 
 [Read on Telegram](https://t.me/livelawindia/116269)
+
+---
+### 2026-08-02T04:32:36+00:00
+Indian Lawyer Goes To United States Court
+https://www.livelaw.in/articles/indian-lawyer-goes-united-states-court-543919
+
+[Read on Telegram](https://t.me/livelawindia/116270)
+
+---
+### 2026-08-02T05:19:26+00:00
+Is Subsequent Impleadment Application Barred By Res Judicata If Earlier Plea Was Rejected Wrongly? Supreme Court Answers
+https://www.livelaw.in/supreme-court/is-subsequent-impleadment-application-barred-by-res-judicata-if-earlier-plea-was-rejected-wrongly-supreme-court-answers-543706
+
+[Read on Telegram](https://t.me/livelawindia/116271)
+
+---
+### 2026-08-02T05:43:16+00:00
+S. 44B Income Tax Act | Cruise Voyages Remain Shipping Business Though Providing Entertainment & Hospitality Services : Supreme Court
+https://www.livelaw.in/supreme-court/s-44b-income-tax-act-cruise-voyages-remain-shipping-business-though-providing-entertainment-hospitality-services-supreme-court-543947
+
+[Read on Telegram](https://t.me/livelawindia/116272)
+
+---
+### 2026-08-02T05:44:36+00:00
+2026 LiveLaw (SC) 750 | THE DIRECTOR OF INCOME TAX, (INTERNATIONAL TAXATION). VERSUS M/S STAR CRUISES (INDIA) P. LTD.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-750-the-director-of-income-tax-international-taxation-versus-ms-star-cruises-india-p-ltd-543948
+
+[Read on Telegram](https://t.me/livelawindia/116273)
+
+---
+### 2026-08-02T05:50:17+00:00
+22 Years For Murder Trial, 22 More For Appeal: Supreme Court Disturbed By Delay, Seeks Report From Jharkhand Govt & HC
+https://www.livelaw.in/top-stories/22-years-for-murder-trial-22-more-for-appeal-supreme-court-disturbed-by-delay-seeks-report-from-jharkhand-govt-hc-543949
+
+[Read on Telegram](https://t.me/livelawindia/116274)
+
+---
+### 2026-08-02T05:52:36+00:00
+Supreme Court Weekly Roundup: July 20, 2026 To July 26, 2026
+https://www.livelaw.in/round-ups/weekly/supreme-court-weekly-roundup-july-20-2026-to-july-26-2026-543950
+
+[Read on Telegram](https://t.me/livelawindia/116275)
+
+---
+### 2026-08-02T07:03:07+00:00
+Supreme Court Monthly Roundup: July 2026
+https://www.livelaw.in/round-ups/monthly/supreme-court-monthly-roundup-july-2026-543926
+
+[Read on Telegram](https://t.me/livelawindia/116276)
+
+---
+### 2026-08-02T08:18:07+00:00
+Jammu & Kashmir And Ladakh High Court Monthly Digest: July 2026
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-monthly-digest-july-2026-543891
+
+[Read on Telegram](https://t.me/livelawindia/116277)
 
 ---
