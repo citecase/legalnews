@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-01T12:32:05+00:00*
+*Last Updated: 2026-08-02T04:32:36+00:00*
 
 ---
 
-### 2026-08-01T12:32:05+00:00
-CARA To Issue NOC For Child Adopted Under HAMA; Hague Convention Not Attracted In Expatriate Adoption: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/cara-issue-noc-expatriate-adoption-543886
-
-[Read on Telegram](https://t.me/livelawindia/116264)
-
----
-### 2026-08-01T13:40:45+00:00
-Judge's Inquiry Report Must Be Published : Saurabh Kirpal
-https://www.livelaw.in/top-stories/judges-inquiry-report-must-be-published-saurabh-kirpal-543940
-
-[Read on Telegram](https://t.me/livelawindia/116265)
-
----
-### 2026-08-01T13:48:06+00:00
-Chhattisgarh High Court Directs Chief Secretary To Monitor Completion Of Bilaspur Airport Utility Building, Sets 3-Month Deadline
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chief-secretary-ensure-bilaspur-airport-completed-three-months-543888
-
-[Read on Telegram](https://t.me/livelawindia/116266)
-
----
-### 2026-08-01T14:33:16+00:00
-Criminalising Disrespect To Vande Mataram: What Prevention Of Insults To National Honour (Amendment) Bill, 2026 Actually Changes?
-https://www.livelaw.in/articles/criminalising-disrespect-vande-mataram-national-honour-amendment-bill2026-543752
-
-[Read on Telegram](https://t.me/livelawindia/116267)
-
----
-### 2026-08-01T14:35:16+00:00
-Cauvery Dispute : DMK Moves Supreme Court Seeking Directions To Karnataka For Urgent Water Release
-https://www.livelaw.in/top-stories/supreme-court-karnataka-tamil-nadu-dmk-application-for-urgent-release-of-cauvery-river-water-at-biligundlu-kuruvai-crop-farmers-livelihood-543943
-
-[Read on Telegram](https://t.me/livelawindia/116268)
-
----
-### 2026-08-01T15:02:17+00:00
-Foreigners Can't Invoke Article 226 To Protect Unauthorized Possession Of Government Land: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/foreigners-cannot-invoke-writ-jurisdiction-protect-unauthorized-possession-government-land-543889
-
-[Read on Telegram](https://t.me/livelawindia/116269)
-
----
 ### 2026-08-02T04:32:36+00:00
 Indian Lawyer Goes To United States Court
 https://www.livelaw.in/articles/indian-lawyer-goes-united-states-court-543919
@@ -142,5 +100,47 @@ S. 180 BNSS | Police Must Record Witnesses' Version In Their Own Language, Not P
 https://www.livelaw.in/high-court/allahabad-high-court/section-180-bnss-allahabad-high-court-police-record-witness-version-own-language-543956
 
 [Read on Telegram](https://t.me/livelawindia/116283)
+
+---
+### 2026-08-02T13:44:11+00:00
+Non-Functional CCTV Cameras, Electricity Backup Facilities In Police Stations Reflect Dereliction Of Duty By SPs: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-police-station-cctv-electricity-backup-dereliction-duty-543957
+
+[Read on Telegram](https://t.me/livelawindia/116284)
+
+---
+### 2026-08-02T14:02:11+00:00
+Allahabad High Court Quashes Govt Teacher's Suspension Over Social Media Posts Alleging Misdeeds By BJP Leader
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-teacher-suspension-social-media-posts-bjp-leader-543958
+
+[Read on Telegram](https://t.me/livelawindia/116285)
+
+---
+### 2026-08-02T14:33:01+00:00
+Why Does India's Dowry Prohibition Regime Fail?
+https://www.livelaw.in/articles/india-dowry-prohibition-regime-fail-543921
+
+[Read on Telegram](https://t.me/livelawindia/116286)
+
+---
+### 2026-08-02T14:43:41+00:00
+Allahabad High Court Upholds Life Term Of Father, Brother In 'Honour Killing' Of 2 Minor Girls; Relies On Pre- & Post-Crime Conduct
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-upholds-life-term-honour-killing-two-minor-girls-conduct-evidence-act-543959
+
+[Read on Telegram](https://t.me/livelawindia/116287)
+
+---
+### 2026-08-02T17:33:22+00:00
+Call For Abstracts | 4th CNLU–CARCIL National Conference On Securities Laws, 2026
+https://www.livelaw.in/lawschool/seminars/call-for-abstracts-4th-cnlucarcil-national-conference-on-securities-laws-2026-543960
+
+[Read on Telegram](https://t.me/livelawindia/116288)
+
+---
+### 2026-08-02T17:55:42+00:00
+International Symposium On Emerging Drug Threats Begins At Bharat Mandapam; NCB Stresses Forensics, Intelligence Sharing To Combat Drug Trafficking
+https://www.livelaw.in/events/international-symposium-on-emerging-drug-threats-begins-at-bharat-mandapam-ncb-stresses-forensics-intelligence-sharing-to-combat-drug-trafficking-543961
+
+[Read on Telegram](https://t.me/livelawindia/116289)
 
 ---
