@@ -1,52 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-01T09:36:37+00:00*
+*Last Updated: 2026-08-01T12:32:05+00:00*
 
 ---
 
-### 2026-08-01T09:36:37+00:00
-Nagpur Consumer Commission Directs ICICI Bank To Refund ₹5.18 Lakh To Cyber Fraud Victim
-https://www.livelaw.in/consumer-cases/nagpur-consumer-commission-directs-icici-bank-refund-cyber-fraud-543906
-
-[Read on Telegram](https://t.me/livelawindia/116258)
-
----
-### 2026-08-01T09:43:58+00:00
-#TheLawChallenge
- : A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
-https://www.livelaw.in/top-stories/weekly-quiz-for-the-legally-curious-by-livelaw-qshala-543908
-
-[Read on Telegram](https://t.me/livelawindia/116259)
-
----
-### 2026-08-01T10:13:03+00:00
-Mere "Seen" Endorsement By Magistrate On Seized Narcotics Not Substantial Compliance U/S 52A NDPS Act: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/mere-seen-endorsement-not-substantial-compliance-section-52a-543876
-
-[Read on Telegram](https://t.me/livelawindia/116260)
-
----
-### 2026-08-01T10:42:23+00:00
-Remission Plea Can't Be Rejected By Mechanically Relying On DM, SP's Adverse Opinions: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/remission-denied-mechanical-adverse-reports-dm-sp-bypassing-jail-authorities-543879
-
-[Read on Telegram](https://t.me/livelawindia/116261)
-
----
-### 2026-08-01T11:05:54+00:00
-Kerala High Court Asks Guruvayur Devaswom To Consider Re-Naming Ritual Named After Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kodathi-vilakku-guruvayur-543924
-
-[Read on Telegram](https://t.me/livelawindia/116262)
-
----
-### 2026-08-01T11:16:54+00:00
-Police Force Meant To Disperse Crowd, Not To Punish Protesters
-https://www.livelaw.in/articles/supreme-court-police-excessive-force-student-protest-delhi-bnss-section-163-ramlila-maidan-543929
-
-[Read on Telegram](https://t.me/livelawindia/116263)
-
----
 ### 2026-08-01T12:32:05+00:00
 CARA To Issue NOC For Child Adopted Under HAMA; Hague Convention Not Attracted In Expatriate Adoption: Bombay High Court
 https://www.livelaw.in/high-court/bombay-high-court/cara-issue-noc-expatriate-adoption-543886
@@ -143,5 +100,47 @@ Jammu & Kashmir And Ladakh High Court Monthly Digest: July 2026
 https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-monthly-digest-july-2026-543891
 
 [Read on Telegram](https://t.me/livelawindia/116277)
+
+---
+### 2026-08-02T08:51:58+00:00
+Justice Ujjal Bhuyan Questions Sealed Cover Procedure, Says Greater Judicial Transparency Boosts Public Trust
+https://www.livelaw.in/top-stories/justice-ujjal-bhuyan-questions-sealed-cover-procedure-says-greater-judicial-transparency-boosts-public-trust-543952
+
+[Read on Telegram](https://t.me/livelawindia/116278)
+
+---
+### 2026-08-02T09:32:39+00:00
+India's Space Law Vacuum
+https://www.livelaw.in/articles/india-space-law-vacuum-543920
+
+[Read on Telegram](https://t.me/livelawindia/116279)
+
+---
+### 2026-08-02T09:51:49+00:00
+Notarized Affidavits Accepted: Allahabad High Court Clarifies Litigants Need Not Travel For Photo Verification Before Filing Writ Petitions
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-notarised-affidavit-litigants-travel-photo-verification-writ-petitions-543953
+
+[Read on Telegram](https://t.me/livelawindia/116280)
+
+---
+### 2026-08-02T12:00:30+00:00
+Disproportionate Assets Case | Mere Reduction In Alleged Excess Assets During Probe No Ground For Discharge: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-disproportionate-assets-reduction-alleged-excess-assets-probe-ground-discharge-543954
+
+[Read on Telegram](https://t.me/livelawindia/116281)
+
+---
+### 2026-08-02T12:41:00+00:00
+No Illegal Detention: Allahabad High Court Rejects Husband's Habeas Corpus Plea After Noting Wife Voluntarily Left Matrimonial Home
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-no-illegal-detention-rejects-husband-habeas-corpus-plea-wife-voluntarily-left-matrimonial-home-543955
+
+[Read on Telegram](https://t.me/livelawindia/116282)
+
+---
+### 2026-08-02T13:08:00+00:00
+S. 180 BNSS | Police Must Record Witnesses' Version In Their Own Language, Not Put Inculpatory Leading Questions: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/section-180-bnss-allahabad-high-court-police-record-witness-version-own-language-543956
+
+[Read on Telegram](https://t.me/livelawindia/116283)
 
 ---
