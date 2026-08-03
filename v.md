@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-03T15:03:19+00:00*
+*Last Updated: 2026-08-03T16:03:02+00:00*
+
+---
+
+### 2026-08-03T16:03:02+00:00
+Program Executive (Legal) vacancy At Defence Innovation Organisation (DIO)
+https://www.verdictum.in/job-updates/defence-innovation-organisation-1619110
+
+[Source Link](https://t.me/verdictumlegalupdates/28333)
+
+---
+
+### 2026-08-03T15:32:40+00:00
+Border Centric Drug Cartels Pose National Security Threat Requiring Strict Section 37 NDPS Scrutiny: Punjab & Haryana High Court
+https://www.verdictum.in/punjab-and-haryana-high-court/harmanjit-singh-sandhu-alias-hamma-v-union-of-india-2026phhc103296-1619109
+
+[Source Link](https://t.me/verdictumlegalupdates/28332)
 
 ---
 
@@ -145,22 +161,6 @@ Verification Of Caste Certificate Permissible After Superannuation; Retirement B
 https://www.verdictum.in/madras-high-court/r-gurusamy-v-the-tamil-nadu-state-level-scrutiny-committee-and-others-1619070
 
 [Source Link](https://t.me/verdictumlegalupdates/28314)
-
----
-
-### 2026-08-03T06:03:06+00:00
-Computation Of Interest Liability Must Take Into Account Actual Date On Which Each Instalment Was Disbursed: Delhi High Court Sets Aside DRAT Order In Loan Default Case
-https://www.verdictum.in/delhi-high-court/yogesh-jain-anr-v-central-bank-of-india-2026dhv6071-db-drat-loan-default-1619067
-
-[Source Link](https://t.me/verdictumlegalupdates/28313)
-
----
-
-### 2026-08-03T05:32:05+00:00
-Property Legally Bought In Wife’s Name Is Her Exclusive Property; Application Of Section 33 Of Indian Succession Act Misplaced: Supreme Court
-https://www.verdictum.in/supreme-court/shakuntala-ors-v-robert-anthony-2026-insc-765-indian-succession-act-property-1619064
-
-[Source Link](https://t.me/verdictumlegalupdates/28312)
 
 ---
 
