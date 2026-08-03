@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-03T12:17:32+00:00*
+*Last Updated: 2026-08-03T13:16:22+00:00*
 
 ---
 
-### 2026-08-03T12:17:32+00:00
-Retired Employee Can't Claim Pay Arrears Beyond 3 Years, But Entitled To Notional Pay Fixation For Pension: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-retired-employee-cannot-seek-arrears-beyond-the-period-of-three-years-limitation-act-544126
-
-[Read on Telegram](https://t.me/livelawindia/116380)
-
----
-### 2026-08-03T12:33:22+00:00
-LiveLaw Telangana High Court Weekly Round-Up: July 27 - August 02, 2026
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-weekly-roundup-544032
-
-[Read on Telegram](https://t.me/livelawindia/116381)
-
----
-### 2026-08-03T12:43:22+00:00
-Senior Citizens Act Not A Tool To Evict Tenants; SDM Lacks Jurisdiction In Landlord-Tenant Disputes: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/senior-citizens-act-not-a-tool-to-evict-tenants-sdm-lacks-jurisdiction-in-landlord-tenant-disputes-calcutta-high-court-544035
-
-[Read on Telegram](https://t.me/livelawindia/116382)
-
----
-### 2026-08-03T12:47:02+00:00
-Demarcate Footpaths So That Walkers Have Encroachment-Free Space : Supreme Court To Authorities
-https://www.livelaw.in/top-stories/demarcate-footpaths-so-that-walkers-have-encroachment-free-space-supreme-court-to-authorities-544133
-
-[Read on Telegram](https://t.me/livelawindia/116383)
-
----
-### 2026-08-03T12:53:42+00:00
-'Village's Common Land' : Supreme Court Restores 280 Acre Gurugram Land To Wazirabad Gram Panchayat
-https://www.livelaw.in/supreme-court/villages-common-land-supreme-court-restores-280-acre-gurugram-land-to-wazirabad-gram-panchayat-544134
-
-[Read on Telegram](https://t.me/livelawindia/116384)
-
----
-### 2026-08-03T12:54:42+00:00
-2026 LiveLaw (SC) 755 | Suraj Bhan and others versus Ashvarya Estate Pvt. Ltd. and others
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-755-suraj-bhan-and-others-versus-ashvarya-estate-pvt-ltd-and-others-544137
-
-[Read on Telegram](https://t.me/livelawindia/116385)
-
----
-### 2026-08-03T13:02:22+00:00
-Supreme Court Summons Arunachal Chief Secretary, Home Secretary As CBI Alleges Non-Cooperation In Probe Against CM Pema Khandu
-https://www.livelaw.in/top-stories/supreme-court-summons-arunachal-pradesh-chief-and-principal-secretary-cbi-plea-alleging-non-cooperation-in-providing-contract-records-pema-khandu-544138
-
-[Read on Telegram](https://t.me/livelawindia/116386)
-
----
-### 2026-08-03T13:07:22+00:00
-'What Stops You From Registering FIR When Someone Raises Suspicion?' Bombay High Court To Mumbai Police In Disha Salian Death Case
-https://www.livelaw.in/high-court/bombay-high-court/disha-salian-death-father-plea-for-fir-mumbai-police-544139
-
-[Read on Telegram](https://t.me/livelawindia/116387)
-
----
 ### 2026-08-03T13:16:22+00:00
 J&K&L High Court Upholds Removal Of Civil Judge Accused Of Taking Bribe To Provide Job, Says Credibility Rests On Character Of Judges
 https://www.livelaw.in/high-court/jammu-kashmir/judicial-credibility-rests-on-character-of-judges-jkl-high-court-upholds-removal-of-judge-accused-of-taking-money-on-promise-of-public-employment-544142
@@ -142,5 +86,61 @@ District Consumer Disputes Redressal Commission Coimbatore Holds IFFCO TOKIO Lia
 https://www.livelaw.in/consumer-cases/coimbatore-consumer-court-holds-iffco-tokio-liable-for-rejecting-personal-accident-claim-over-non-transfer-of-insurance-policy-544148
 
 [Read on Telegram](https://t.me/livelawindia/116399)
+
+---
+### 2026-08-03T14:52:22+00:00
+Victim Accompanied Accused For A Month Without Seeking Help: J&K&L High Court Upholds Acquittal In Kidnapping, Rape Case
+https://www.livelaw.in/high-court/jammu-kashmir/woman-stayed-with-accused-for-over-a-month-travelled-publicly-without-raising-alarm-jk-high-court-refuses-to-reverse-acquittal-in-alleged-kidnapping-and-rape-case-543991
+
+[Read on Telegram](https://t.me/livelawindia/116400)
+
+---
+### 2026-08-03T15:22:52+00:00
+Granting Protection To Minor In Live-In Relationship Would Implicitly Sanction What Law Expressly Prohibits: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/minor-in-live-in-relationship-protection-plea-dismissed-544163
+
+[Read on Telegram](https://t.me/livelawindia/116401)
+
+---
+### 2026-08-03T15:32:12+00:00
+CJI Surya Kant Inaugurates Special Courts For UAPA, NDPS Cases And Fast-Track Court For NEET Paper Leak Cases In Delhi
+https://www.livelaw.in/news-updates/cji-surya-kant-inaugurates-neet-paper-leak-fast-track-court-nia-court-544164
+
+[Read on Telegram](https://t.me/livelawindia/116402)
+
+---
+### 2026-08-03T15:48:12+00:00
+Supreme Court Directs MEA To Trace Indian Seafarer Missing After Drone Attack On Ship Near Ukraine
+https://www.livelaw.in/top-stories/supreme-court-directs-mea-to-trace-indian-seafarer-missing-after-drone-attack-on-ship-near-ukraine-544165
+
+[Read on Telegram](https://t.me/livelawindia/116403)
+
+---
+### 2026-08-03T15:55:43+00:00
+Provisionally Enrolled Advocates Can Practice Freely For 2 Years Pending AIBE, But Can't Vote In Bar Elections: BCI
+https://www.livelaw.in/news-updates/bci-clarifies-provisionally-enrolled-advocates-practice-freely-544167
+
+[Read on Telegram](https://t.me/livelawindia/116404)
+
+---
+### 2026-08-03T16:22:23+00:00
+State Can't Solve Its Financial Crisis By Withholding Employees' And Pensioners' Dues: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/govt-release-of-da-arrears-employees-financial-burden-no-answer-to-enforcement-of-accrued-benefits-544170
+
+[Read on Telegram](https://t.me/livelawindia/116405)
+
+---
+### 2026-08-03T16:28:03+00:00
+MSHRC Takes Suo Motu Notice Of Pune Police Tying Accused To Vehicle Bonnet, Parading Them; Issues Notices To Top Officials
+https://www.livelaw.in/news-updates/pune-police-summoned-tied-accused-to-vehicle-bonnet-paraded-them-544171
+
+[Read on Telegram](https://t.me/livelawindia/116406)
+
+---
+### 2026-08-03T17:22:34+00:00
+Supreme Court Daily Round-Up : August 3, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-3-2026-544166
+
+[Read on Telegram](https://t.me/livelawindia/116407)
 
 ---
