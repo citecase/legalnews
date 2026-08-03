@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-02T04:32:36+00:00*
+*Last Updated: 2026-08-02T09:32:39+00:00*
 
 ---
 
-### 2026-08-02T04:32:36+00:00
-Indian Lawyer Goes To United States Court
-https://www.livelaw.in/articles/indian-lawyer-goes-united-states-court-543919
-
-[Read on Telegram](https://t.me/livelawindia/116270)
-
----
-### 2026-08-02T05:19:26+00:00
-Is Subsequent Impleadment Application Barred By Res Judicata If Earlier Plea Was Rejected Wrongly? Supreme Court Answers
-https://www.livelaw.in/supreme-court/is-subsequent-impleadment-application-barred-by-res-judicata-if-earlier-plea-was-rejected-wrongly-supreme-court-answers-543706
-
-[Read on Telegram](https://t.me/livelawindia/116271)
-
----
-### 2026-08-02T05:43:16+00:00
-S. 44B Income Tax Act | Cruise Voyages Remain Shipping Business Though Providing Entertainment & Hospitality Services : Supreme Court
-https://www.livelaw.in/supreme-court/s-44b-income-tax-act-cruise-voyages-remain-shipping-business-though-providing-entertainment-hospitality-services-supreme-court-543947
-
-[Read on Telegram](https://t.me/livelawindia/116272)
-
----
-### 2026-08-02T05:44:36+00:00
-2026 LiveLaw (SC) 750 | THE DIRECTOR OF INCOME TAX, (INTERNATIONAL TAXATION). VERSUS M/S STAR CRUISES (INDIA) P. LTD.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-750-the-director-of-income-tax-international-taxation-versus-ms-star-cruises-india-p-ltd-543948
-
-[Read on Telegram](https://t.me/livelawindia/116273)
-
----
-### 2026-08-02T05:50:17+00:00
-22 Years For Murder Trial, 22 More For Appeal: Supreme Court Disturbed By Delay, Seeks Report From Jharkhand Govt & HC
-https://www.livelaw.in/top-stories/22-years-for-murder-trial-22-more-for-appeal-supreme-court-disturbed-by-delay-seeks-report-from-jharkhand-govt-hc-543949
-
-[Read on Telegram](https://t.me/livelawindia/116274)
-
----
-### 2026-08-02T05:52:36+00:00
-Supreme Court Weekly Roundup: July 20, 2026 To July 26, 2026
-https://www.livelaw.in/round-ups/weekly/supreme-court-weekly-roundup-july-20-2026-to-july-26-2026-543950
-
-[Read on Telegram](https://t.me/livelawindia/116275)
-
----
-### 2026-08-02T07:03:07+00:00
-Supreme Court Monthly Roundup: July 2026
-https://www.livelaw.in/round-ups/monthly/supreme-court-monthly-roundup-july-2026-543926
-
-[Read on Telegram](https://t.me/livelawindia/116276)
-
----
-### 2026-08-02T08:18:07+00:00
-Jammu & Kashmir And Ladakh High Court Monthly Digest: July 2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-monthly-digest-july-2026-543891
-
-[Read on Telegram](https://t.me/livelawindia/116277)
-
----
-### 2026-08-02T08:51:58+00:00
-Justice Ujjal Bhuyan Questions Sealed Cover Procedure, Says Greater Judicial Transparency Boosts Public Trust
-https://www.livelaw.in/top-stories/justice-ujjal-bhuyan-questions-sealed-cover-procedure-says-greater-judicial-transparency-boosts-public-trust-543952
-
-[Read on Telegram](https://t.me/livelawindia/116278)
-
----
 ### 2026-08-02T09:32:39+00:00
 India's Space Law Vacuum
 https://www.livelaw.in/articles/india-space-law-vacuum-543920
@@ -142,5 +79,68 @@ International Symposium On Emerging Drug Threats Begins At Bharat Mandapam; NCB 
 https://www.livelaw.in/events/international-symposium-on-emerging-drug-threats-begins-at-bharat-mandapam-ncb-stresses-forensics-intelligence-sharing-to-combat-drug-trafficking-543961
 
 [Read on Telegram](https://t.me/livelawindia/116289)
+
+---
+### 2026-08-03T02:20:34+00:00
+Supreme Court Dismisses Brinda Karat's Review Plea Against Supreme Court's Clean Chit To BJP Leaders In Hate Speech Case
+https://www.livelaw.in/top-stories/supreme-court-dismisses-brinda-karats-review-plea-against-supreme-courts-clean-chit-to-bjp-leaders-in-hate-speech-case-543962
+
+[Read on Telegram](https://t.me/livelawindia/116290)
+
+---
+### 2026-08-03T02:29:14+00:00
+Court Fees Act | Appeals Against Statutory Benefits In Land Acquisition Compensation Attract Ad Valorem Court Fees : Supreme Court
+https://www.livelaw.in/supreme-court/court-fees-act-appeals-against-statutory-benefits-in-land-acquisition-compensation-attract-ad-valorem-court-fees-supreme-court-543963
+
+[Read on Telegram](https://t.me/livelawindia/116291)
+
+---
+### 2026-08-03T02:30:14+00:00
+2026 LiveLaw (SC) 751 | TEHRI HYDRO DEVELOPMENT CORPORATION LTD. VERSUS S.P. SINGH & ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-751-tehri-hydro-development-corporation-ltd-versus-sp-singh-ors-543964
+
+[Read on Telegram](https://t.me/livelawindia/116292)
+
+---
+### 2026-08-03T02:34:35+00:00
+Law Clerk Vacancy At High Court Of Andhra Pradesh, Amaravati
+https://www.livelaw.in/job-updates/law-clerk-vacancy-at-high-court-of-andhra-pradesh-amaravati-543965
+
+[Read on Telegram](https://t.me/livelawindia/116293)
+
+---
+### 2026-08-03T02:36:55+00:00
+Professional Intern (Legal) Vacancy At V.O. Chidambaranar Port Authority
+https://www.livelaw.in/job-updates/professional-intern-legal-vacancy-at-vo-chidambaranar-port-authority-543966
+
+[Read on Telegram](https://t.me/livelawindia/116294)
+
+---
+### 2026-08-03T02:38:15+00:00
+Call For Applications: Project Director Vacancy At Women's Inclusion And Leadership In Law (WILL) Initiative, NLSIU
+https://www.livelaw.in/job-updates/call-for-applications-project-director-vacancy-at-womens-inclusion-and-leadership-in-law-will-initiative-nlsiu-543967
+
+[Read on Telegram](https://t.me/livelawindia/116295)
+
+---
+### 2026-08-03T02:47:15+00:00
+Courier Company Directed To Pay ₹50,000 For Damaging Tailoring Machines During Transit: Thrissur Consumer Commission
+https://www.livelaw.in/consumer-cases/courier-company-directed-pay-50000-damaging-tailoring-machines-during-transit-thrissur-consumer-commission-543968
+
+[Read on Telegram](https://t.me/livelawindia/116296)
+
+---
+### 2026-08-03T02:51:35+00:00
+2026 LiveLaw (SC) 752 | State of Meghalaya v. Sonam Raghuvanshi @ Bitti @ Bittu
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-752-state-of-meghalaya-v-sonam-raghuvanshi-bitti-bittu-543969
+
+[Read on Telegram](https://t.me/livelawindia/116297)
+
+---
+### 2026-08-03T03:00:55+00:00
+Student Protest Violence : Live Updates From Supreme Court Hearing
+https://www.livelaw.in/top-stories/student-protest-violence-live-updates-from-supreme-court-hearing-543970
+
+[Read on Telegram](https://t.me/livelawindia/116298)
 
 ---
