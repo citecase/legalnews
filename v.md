@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-03T10:02:26+00:00*
+*Last Updated: 2026-08-03T15:03:19+00:00*
+
+---
+
+### 2026-08-03T15:03:19+00:00
+Can’t Block Entire Account If Only Some Content Is Objectionable: Kerala High Court Permits Continued Operation Of Journalist’s Facebook Account
+https://www.verdictum.in/kerala-high-court/n-madhavan-kutty-v-union-of-india-block-account-content-objectionable-facebook-1619115
+
+[Source Link](https://t.me/verdictumlegalupdates/28331)
+
+---
+
+### 2026-08-03T14:32:58+00:00
+Crowd Behaviour Science Must Be Integrated Into Planning To Prevent Mathura-Vrindavan Like Stampedes: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/swami-shiv-swarupanand-ji-maharaj-v-state-of-up-others-2026ahc160511-1619107
+
+[Source Link](https://t.me/verdictumlegalupdates/28330)
+
+---
+
+### 2026-08-03T14:02:36+00:00
+Government Can Engage Lawyers Of Its Choice; Cannot Be Compelled To Provide Reservation U/S 34 RPwD Act: Madras High Court
+https://www.verdictum.in/madras-high-court/v-muthupandi-v-the-secretary-to-government-public-department-2026mhc3189-contract-as-litigants-choice-1619106
+
+[Source Link](https://t.me/verdictumlegalupdates/28329)
+
+---
+
+### 2026-08-03T13:32:55+00:00
+Delhi High Court Seeks NIA Stand On Appeals By Aasiya Andrabi, & Others Against Conviction In UAPA Case
+https://www.verdictum.in/delhi-high-court/nia-stand-on-appeals-aasiya-andrabi-against-conviction-uapa-case-1619099
+
+[Source Link](https://t.me/verdictumlegalupdates/28328)
+
+---
+
+### 2026-08-03T13:02:54+00:00
+Supreme Court Issues Notice On Tamil Nadu's Plea Against HC's Order Permitting Karthigai Deepam Lighting Atop Thiruparankundram Hill
+https://www.verdictum.in/supreme-court/tamil-nadu-madras-high-court-permitting-karthigai-deepam-lighting-atop-thiruparankundram-hill-1619116
+
+[Source Link](https://t.me/verdictumlegalupdates/28327)
+
+---
+
+### 2026-08-03T12:32:32+00:00
+Supreme Court Will Hear Pleas Against Transgender Persons Amendment Act On Aug 17; Expresses Concern Over Rights Of Existing Cardholders
+https://www.verdictum.in/supreme-court/transgender-persons-amendment-act-on-aug-17-1619098
+
+[Source Link](https://t.me/verdictumlegalupdates/28326)
+
+---
+
+### 2026-08-03T12:02:51+00:00
+Apex Court Expresses Serious Concerns Over Functioning Of Pharmacy Council Of India; Says Existing Regulatory Framework Creates Uncertainty For Students
+https://www.verdictum.in/supreme-court/concerns-over-functioning-of-pharmacy-council-of-india-1619097
+
+[Source Link](https://t.me/verdictumlegalupdates/28325)
+
+---
+
+### 2026-08-03T11:33:10+00:00
+Can Some Amount Be Released From TMC's Frozen Accounts For Daily Expenses: Supreme Court Asks ED
+https://www.verdictum.in/supreme-court/tmcs-frozen-accounts-for-daily-expenses-1619096
+
+[Source Link](https://t.me/verdictumlegalupdates/28324)
+
+---
+
+### 2026-08-03T11:02:29+00:00
+Hate Speech: Supreme Court Junks Plea For Review Of Verdict Clearing BJP Leaders Anurag Thakur, Parvesh Verma
+https://www.verdictum.in/supreme-court/review-verdict-clearing-bjp-leaders-anurag-thakur-parvesh-verma-junked-1619095
+
+[Source Link](https://t.me/verdictumlegalupdates/28323)
+
+---
+
+### 2026-08-03T10:33:08+00:00
+Delhi Court Acquits Ex-WFI Chief Brij Bhushan In Wrestlers' Sexual Harassment Case
+https://www.verdictum.in/other-courts/ex-wfi-chief-brij-bhushan-acquitted-wrestlers-sexual-harassment-case-1619092
+
+[Source Link](https://t.me/verdictumlegalupdates/28322)
 
 ---
 
@@ -81,86 +161,6 @@ Property Legally Bought In Wife’s Name Is Her Exclusive Property; Application 
 https://www.verdictum.in/supreme-court/shakuntala-ors-v-robert-anthony-2026-insc-765-indian-succession-act-property-1619064
 
 [Source Link](https://t.me/verdictumlegalupdates/28312)
-
----
-
-### 2026-08-03T05:02:43+00:00
-Malicious Prosecution U/A 74 Limitation Act To Be Reckoned From Date Of Appellate Order, Not Date Of Original Termination Of Prosecution: Delhi High Court
-https://www.verdictum.in/delhi-high-court/sanskar-projects-and-housing-limited-v-realpro-realty-solutions-private-limited-2026dhc6139-malicious-prosecution-ua-74-limitation-act-1619061
-
-[Source Link](https://t.me/verdictumlegalupdates/28311)
-
----
-
-### 2026-08-03T04:33:11+00:00
-Refundable Security Deposit Paid In Lieu For GPA Execution Under Joint Development Agreement Is Not By Itself Entrustment U/S 405 IPC: Supreme Court
-https://www.verdictum.in/supreme-court/g-saminathan-another-v-the-state-represented-by-the-sub-inspector-of-police-another-2026-insc-772-1619032
-
-[Source Link](https://t.me/verdictumlegalupdates/28310)
-
----
-
-### 2026-08-02T15:02:39+00:00
-Karnataka State Legal Services Authority (KSLSA) Invites Applications For Post Of Section Officer
-https://www.verdictum.in/job-updates/karnataka-state-legal-services-authority-1618996
-
-[Source Link](https://t.me/verdictumlegalupdates/28309)
-
----
-
-### 2026-08-02T13:32:37+00:00
-Plaint Amendment After Commencement Of Trial To Be Permitted Only If Party Couldn't Raise Matter Before Commencement Despite Due Diligence: Supreme Court
-https://www.verdictum.in/supreme-court/chitra-anr-v-c-natarajan-2026-insc-781-order-vi-rule-17-cpc-amendment-trial-1619031
-
-[Source Link](https://t.me/verdictumlegalupdates/28308)
-
----
-
-### 2026-08-02T12:02:36+00:00
-Pulling Minor Girl By Hand When She Failed To Respond To Whistle Not Sexual Assault: Madras High Court Grants Bail In POCSO Case
-https://www.verdictum.in/madras-high-court/mandai-manogaran-v-the-state-man-pulling-minor-hand-bail-pocso-accused-1618999
-
-[Source Link](https://t.me/verdictumlegalupdates/28307)
-
----
-
-### 2026-08-02T10:33:15+00:00
-Allahabad HC Directs Criminal Inquiry & Cancellation Of Licenses Of Advocates For Securing Order Using Forged Land Acquisition Award
-https://www.verdictum.in/allahabad-high-court/2026-ahc-159155-db-bareilly-development-authority-v-ram-pal-1618998
-
-[Source Link](https://t.me/verdictumlegalupdates/28306)
-
----
-
-### 2026-08-02T09:03:14+00:00
-Student Cannot Suffer On Account Of Technical Mistake: Madhya Pradesh HC Directs Nursing Council To Correct Photo Error In Marksheets
-https://www.verdictum.in/madhya-pradesh-high-court/2026-mphc-gwl-21708-roopa-yadav-v-state-of-mp-1618995
-
-[Source Link](https://t.me/verdictumlegalupdates/28305)
-
----
-
-### 2026-08-02T07:32:53+00:00
-Direct Assault On Majesty Of Rule Of Law: Allahabad High Court  Judge Recuses From Hearing Bail Pleas After Parties Try To  Approach Him
-https://www.verdictum.in/allahabad-high-court/attempt-privately-approach-judge-assault-rule-law-recuse-bail-1618994
-
-[Source Link](https://t.me/verdictumlegalupdates/28304)
-
----
-
-### 2026-08-02T06:02:31+00:00
-Misconceived And Misdirected: Bombay High Court Quashes 13-Year-Old Case Against Man Accused Of Charging ₹1 Extra For Pepsi Bottle
-https://www.verdictum.in/bombay-high-court/vasudeo-tanaji-narvekar-v-the-state-of-maharashtra-and-another-mrp-sale-1618989
-
-[Source Link](https://t.me/verdictumlegalupdates/28303)
-
----
-
-### 2026-08-02T04:33:10+00:00
-Respondent Supporting Decree Need Not File Cross-Objections To Assail Adverse Finding If No Additional Relief Is Sought: Supreme Court
-https://www.verdictum.in/supreme-court/-vnas-chandran-v-s-venilla-and-others-2026-insc-776-specific-performance-1618988
-
-[Source Link](https://t.me/verdictumlegalupdates/28302)
 
 ---
 
