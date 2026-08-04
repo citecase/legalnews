@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-03T13:16:22+00:00*
+*Last Updated: 2026-08-03T13:32:52+00:00*
 
 ---
 
-### 2026-08-03T13:16:22+00:00
-J&K&L High Court Upholds Removal Of Civil Judge Accused Of Taking Bribe To Provide Job, Says Credibility Rests On Character Of Judges
-https://www.livelaw.in/high-court/jammu-kashmir/judicial-credibility-rests-on-character-of-judges-jkl-high-court-upholds-removal-of-judge-accused-of-taking-money-on-promise-of-public-employment-544142
-
-[Read on Telegram](https://t.me/livelawindia/116388)
-
----
-### 2026-08-03T13:17:42+00:00
-S.397(2) CrPC | Order Refusing Additional Evidence At Appellate Stage Is Interlocutory, Revision Not Maintainable: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-revision-petition-maintainable-interlocutory-order-544140
-
-[Read on Telegram](https://t.me/livelawindia/116389)
-
----
-### 2026-08-03T13:21:42+00:00
-Nagpur Consumer Commission Directs ICICI Bank To Refund ₹5.18 Lakh To Cyber Fraud Victim
-https://www.livelaw.in/consumer-cases/nagpur-consumer-commission-directs-icici-bank-to-refund-518-lakh-to-cyber-fraud-victim-544143
-
-[Read on Telegram](https://t.me/livelawindia/116390)
-
----
 ### 2026-08-03T13:32:52+00:00
 Allegations On Tampering Of NEET OMR Sheet 'Serious', Cannot Be Accepted Merely On Candidate's Suspicion: Chhattisgarh High Court
 https://www.livelaw.in/high-court/chhattisgarh-high-court/allegations-involving-tampering-of-official-examination-records-cannot-be-accepted-merely-on-the-basis-of-suspicion-chhattisgarh-hc-dismisses-neet-aspirants-plea-alleging-omr-sheet-tampering-544146
@@ -142,5 +121,26 @@ Supreme Court Daily Round-Up : August 3, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-3-2026-544166
 
 [Read on Telegram](https://t.me/livelawindia/116407)
+
+---
+### 2026-08-04T01:38:04+00:00
+Human Trafficking Has Assumed A New Avatar In The Modern Era: Justice N. Kotiswar Singh
+https://www.livelaw.in/news-updates/human-trafficking-assumed-new-avatar-modern-era-justice-n-kotiswar-singh-544172
+
+[Read on Telegram](https://t.me/livelawindia/116408)
+
+---
+### 2026-08-04T01:45:04+00:00
+LexTech, Centre For Law, Entrepreneurship & Innovation, NLU Odisha Launches Second Article Writing Competition 2026
+https://www.livelaw.in/lawschool/competitions/lextech-centre-for-law-entrepreneurship-innovation-nlu-odisha-launches-second-article-writing-competition-2026-544173
+
+[Read on Telegram](https://t.me/livelawindia/116409)
+
+---
+### 2026-08-04T02:32:14+00:00
+Supreme Court Asks CEC To Examine Environmental Issues Concerning Himachal Pradesh
+https://www.livelaw.in/top-stories/supreme-court-himachal-pradesh-shimla-notified-green-belt-area-environmental-issues-to-be-examined-by-cec-tree-felling-construction-activities-544174
+
+[Read on Telegram](https://t.me/livelawindia/116410)
 
 ---
