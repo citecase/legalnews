@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-03T16:03:02+00:00*
+*Last Updated: 2026-08-04T09:03:31+00:00*
+
+---
+
+### 2026-08-04T09:03:31+00:00
+Essentially Property Succession Issue: Allahabad High Court Dismisses Plea Seeking Ban Of UPCA And CBI Probe Into BCCI Affiliation
+https://www.verdictum.in/allahabad-high-court/the-cricket-association-of-uttar-pradesh-v-uttar-pradesh-cricket-association-and-others-2026ahc161014-1619163
+
+[Source Link](https://t.me/verdictumlegalupdates/28343)
+
+---
+
+### 2026-08-04T08:32:30+00:00
+Multiple FIRs Arose From One Continuous Transaction: Delhi High Court Quashes Two FIRs Against AAP MLA Kuldeep Kumar Over 2021 Tiranga Yatra
+https://www.verdictum.in/delhi-high-court/kuldeep-kumar-v-state-nct-of-delhi-2026dhc6236-aap-mla-2021-tiranga-yatra-1619160
+
+[Source Link](https://t.me/verdictumlegalupdates/28342)
+
+---
+
+### 2026-08-04T08:02:28+00:00
+Supreme Court Asks JioStar To Approach Delhi High Court In TRAI Tariff Framework Dispute
+https://www.verdictum.in/supreme-court/jiostar-to-approach-delhi-high-court-in-trai-tariff-framework-dispute-1619155
+
+[Source Link](https://t.me/verdictumlegalupdates/28341)
+
+---
+
+### 2026-08-04T07:32:47+00:00
+Valuable Ready Reckoner: Supreme Court Approves "Judgments And Gender" Publication On Adopting Sensitivity & Compassion In Sexual Offence Cases
+https://www.verdictum.in/supreme-court/sensitivity-and-compassion-in-judicial-processes-in-context-of-sexual-offences-1619154
+
+[Source Link](https://t.me/verdictumlegalupdates/28340)
+
+---
+
+### 2026-08-04T07:02:46+00:00
+Concocting Fake Aadhaar, PAN Cards For Illegal Bangladeshi Immigrants Prima Facie Endangers India’s Sovereignty: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/sidul-mandal-v-state-of-karnataka-2026khc39308-fake-identity-cards-section-152-bns-1619144
+
+[Source Link](https://t.me/verdictumlegalupdates/28339)
+
+---
+
+### 2026-08-04T06:33:05+00:00
+Benefit Of Defective Investigation Enures To Accused Where Substantive Evidence Is Infirm: Supreme Court Upholds Acquittal Of 20 Accused In Murder Case
+https://www.verdictum.in/supreme-court/nirmala-bai-devidas-chavhan-v-state-of-maharashtra-2026-insc-787-defective-investigation-1619147
+
+[Source Link](https://t.me/verdictumlegalupdates/28338)
+
+---
+
+### 2026-08-04T06:02:04+00:00
+Nomination Of Another Person In Pension Records Cannot Override Legally Wedded Wife’s Family Pension Right: Gauhati High Court
+https://www.verdictum.in/guwahati-high-court/shibani-dutta-v-state-of-assam-2026gau-as10193-pension-legally-wedded-wife-1619111
+
+[Source Link](https://t.me/verdictumlegalupdates/28337)
+
+---
+
+### 2026-08-04T05:33:03+00:00
+Weekly Overview| Supreme Court Judgments: July 27 – July 31, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-july-27-july-31-2026-1619135
+
+[Source Link](https://t.me/verdictumlegalupdates/28336)
+
+---
+
+### 2026-08-04T05:02:41+00:00
+Bail Granted On Technical Grounds Need Not Be Cancelled Before Re-Arrest By Investigating Agency: Gauhati High Court
+https://www.verdictum.in/guwahati-high-court/asem-kanan-singh-alias-ashem-kanan-singh-v-union-of-india-2026gau-as9771-1619108
+
+[Source Link](https://t.me/verdictumlegalupdates/28335)
+
+---
+
+### 2026-08-04T04:32:30+00:00
+Protected Witness Identity In UAPA Trial Can Be Withheld Only By Reasoned Order Balancing Fair Trial And Threat Perception: Delhi High Court
+https://www.verdictum.in/delhi-high-court/bilal-mir-v-national-investigation-agency-2026dhc6223-protected-witness-uapa-nia-1619105
+
+[Source Link](https://t.me/verdictumlegalupdates/28334)
 
 ---
 
@@ -81,86 +161,6 @@ Can Some Amount Be Released From TMC's Frozen Accounts For Daily Expenses: Supre
 https://www.verdictum.in/supreme-court/tmcs-frozen-accounts-for-daily-expenses-1619096
 
 [Source Link](https://t.me/verdictumlegalupdates/28324)
-
----
-
-### 2026-08-03T11:02:29+00:00
-Hate Speech: Supreme Court Junks Plea For Review Of Verdict Clearing BJP Leaders Anurag Thakur, Parvesh Verma
-https://www.verdictum.in/supreme-court/review-verdict-clearing-bjp-leaders-anurag-thakur-parvesh-verma-junked-1619095
-
-[Source Link](https://t.me/verdictumlegalupdates/28323)
-
----
-
-### 2026-08-03T10:33:08+00:00
-Delhi Court Acquits Ex-WFI Chief Brij Bhushan In Wrestlers' Sexual Harassment Case
-https://www.verdictum.in/other-courts/ex-wfi-chief-brij-bhushan-acquitted-wrestlers-sexual-harassment-case-1619092
-
-[Source Link](https://t.me/verdictumlegalupdates/28322)
-
----
-
-### 2026-08-03T10:02:26+00:00
-Section 498A IPC Covers Live-In Relationships That Qualify As "Relationships In Nature Of Marriage" Between Consenting Adults With Intent To Marry: Supreme Court
-https://www.verdictum.in/supreme-court/dr-lokesh-bh-ors-v-state-of-karnataka-anr-neutral-citation-2026-insc-784-1619094
-
-[Source Link](https://t.me/verdictumlegalupdates/28321)
-
----
-
-### 2026-08-03T09:32:35+00:00
-Supreme Court Asks Calcutta HC To Hear Abhishek Banerjee's Plea Seeking Permission To Travel Abroad For Eye Treatment
-https://www.verdictum.in/supreme-court/abhishek-banerjees-plea-seeking-permission-to-travel-abroad-for-eye-treatment-1619091
-
-[Source Link](https://t.me/verdictumlegalupdates/28320)
-
----
-
-### 2026-08-03T09:02:54+00:00
-Conviction Can’t Be Based Merely On Ground Of Last Seen Theory Without Any Other Incriminating Circumstance: Supreme Court Acquits Murder Accused
-https://www.verdictum.in/supreme-court/munu-sen-v-the-state-of-chhattisgarh-2026-insc-780-conviction-last-seen-theory-acquittal-1619087
-
-[Source Link](https://t.me/verdictumlegalupdates/28319)
-
----
-
-### 2026-08-03T08:32:33+00:00
-NEET Protests: Supreme Court Says States Free To Withdraw FIRs; Clarifies That "Criminal Antecedents" Limited Heinous Crimes
-https://www.verdictum.in/supreme-court/neet-protest-states-free-to-close-withdraw-firs-criminal-antecedents-protestors-1619088
-
-[Source Link](https://t.me/verdictumlegalupdates/28318)
-
----
-
-### 2026-08-03T07:57:52+00:00
-Is Jantar Mantar In Delhi A Suitable Place For Protests?: Supreme Court To Consider
-https://www.verdictum.in/supreme-court/jantar-mantar-delhi-suitable-place-for-protests-1619084
-
-[Source Link](https://t.me/verdictumlegalupdates/28317)
-
----
-
-### 2026-08-03T07:32:50+00:00
-Walker Space Is Sacred, That Can't Be Encroached Upon: Supreme Court Directs Centre To Make Encroachment-Free Pedestrian Zones
-https://www.verdictum.in/supreme-court/directs-centre-make-encroachment-free-pedestrian-zones-1619079
-
-[Source Link](https://t.me/verdictumlegalupdates/28316)
-
----
-
-### 2026-08-03T07:02:49+00:00
-Speculation About Correctness Of Findings Cannot Displace Mandatory Presumption U/S 14 In Favour Of Foreign Judgment: Bombay High Court
-https://www.verdictum.in/bombay-high-court/kamal-singh-v-pinpoint-multi-strategy-master-fund-appeal-l-no-18227-of-2026-2300-cr-asset-disclosure-order-rolta-1619076
-
-[Source Link](https://t.me/verdictumlegalupdates/28315)
-
----
-
-### 2026-08-03T06:32:07+00:00
-Verification Of Caste Certificate Permissible After Superannuation; Retirement Benefits From Fraudulent Appointment Can’t Be Protected: Madras High Court
-https://www.verdictum.in/madras-high-court/r-gurusamy-v-the-tamil-nadu-state-level-scrutiny-committee-and-others-1619070
-
-[Source Link](https://t.me/verdictumlegalupdates/28314)
 
 ---
 
