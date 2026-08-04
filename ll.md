@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-03T13:32:52+00:00*
+*Last Updated: 2026-08-04T06:03:56+00:00*
 
 ---
 
-### 2026-08-03T13:32:52+00:00
-Allegations On Tampering Of NEET OMR Sheet 'Serious', Cannot Be Accepted Merely On Candidate's Suspicion: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/allegations-involving-tampering-of-official-examination-records-cannot-be-accepted-merely-on-the-basis-of-suspicion-chhattisgarh-hc-dismisses-neet-aspirants-plea-alleging-omr-sheet-tampering-544146
+### 2026-08-04T06:03:56+00:00
+Delhi High Court Orders Meta To Takedown AI Videos Linking Former Union Minister Saleem Iqbal Shervani To Atiq Ahmed
+https://www.livelaw.in/high-court/delhi-high-court/saleem-iqbal-shervani-defamation-former-union-minister-linked-with-atiq-ahmed-meta-takedown-ai-videos-544221
 
-[Read on Telegram](https://t.me/livelawindia/116391)
-
----
-### 2026-08-03T13:33:12+00:00
-Unregistered Sale Agreement Delivering Possession Can't Be Marked As Evidence Without Payment Of Stamp Duty: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-agreement-sale-possession-marked-stamp-duty-544141
-
-[Read on Telegram](https://t.me/livelawindia/116392)
+[Read on Telegram](https://t.me/livelawindia/116436)
 
 ---
-### 2026-08-03T14:03:32+00:00
-'For Child Victims, Consider Impact On Future' : Supreme Court Awards ₹83.38 Lakhs For Accident Leaving Infant Paralysed For Life
-https://www.livelaw.in/supreme-court/supreme-court-awards-8338-lakhs-for-accident-leaving-infant-paralysed-544150
+### 2026-08-04T06:18:46+00:00
+Physics Wallah Founder Alakh Pandey Moves Delhi High Court Seeking Protection Of Personality Rights
+https://www.livelaw.in/high-court/delhi-high-court/physics-wallah-personality-rights-protection-alakh-pandey-544223
 
-[Read on Telegram](https://t.me/livelawindia/116393)
-
----
-### 2026-08-03T14:04:32+00:00
-2026 LiveLaw (SC) 756 | GAYATREE PATTNAIK FOR SHREEJITA PATTNAIK VERSUS ARUNDHATI SAHOO AND ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-756-gayatree-pattnaik-for-shreejita-pattnaik-versus-arundhati-sahoo-and-anr-544151
-
-[Read on Telegram](https://t.me/livelawindia/116394)
+[Read on Telegram](https://t.me/livelawindia/116437)
 
 ---
-### 2026-08-03T14:07:32+00:00
-“Pharmacy Council Of India An Obsolete Institution”: Supreme Court Suggests Replacing PCI With Statutory Commission
-https://www.livelaw.in/top-stories/pharmacy-council-of-india-an-obsolete-institution-supreme-court-suggests-replacing-pci-with-statutory-commission-544153
+### 2026-08-04T06:26:46+00:00
+Wife Of Indian Captain Missing After Hormuz Strait Ship Attack Moves Supreme Court
+https://www.livelaw.in/top-stories/wife-of-indian-captain-missing-after-hormuz-strait-ship-attack-moves-supreme-court-544224
 
-[Read on Telegram](https://t.me/livelawindia/116395)
-
----
-### 2026-08-03T14:20:02+00:00
-LiveLaw Daily | Brij Bhushan Acquitted| TMC Bank Freeze| Live-In 498A| Transgender Rights
-https://www.livelaw.in/podcast/stray-dogs-brij-bhushan-student-protests-police-violence-trans-rights-ed-students-clat-news-india-legal-news-544157
-
-[Read on Telegram](https://t.me/livelawindia/116396)
+[Read on Telegram](https://t.me/livelawindia/116438)
 
 ---
-### 2026-08-03T14:32:22+00:00
-Gig And Platform Workers Under Code On Social Security, 2020: Coverage, Portability, And Enforcement Challenges
-https://www.livelaw.in/articles/gig-platform-workers-code-on-social-security2020-543928
+### 2026-08-04T06:32:46+00:00
+Family Court Cannot Skip Mother's Main Plea For Interim Custody & Only Grant Restrictive Visitation Rights: Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-family-court-mothermain-prayer-interim-custody-restrictive-visitation-rights-544202
 
-[Read on Telegram](https://t.me/livelawindia/116397)
-
----
-### 2026-08-03T14:32:42+00:00
-LiveLaw Andhra Pradesh High Court Weekly Round-Up: July 27 - August 02, 2026
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-weekly-roundup-544033
-
-[Read on Telegram](https://t.me/livelawindia/116398)
+[Read on Telegram](https://t.me/livelawindia/116439)
 
 ---
-### 2026-08-03T14:33:02+00:00
-District Consumer Disputes Redressal Commission Coimbatore Holds IFFCO TOKIO Liable For Rejecting Personal Accident Claim Over Non-Transfer Of Insurance Policy
-https://www.livelaw.in/consumer-cases/coimbatore-consumer-court-holds-iffco-tokio-liable-for-rejecting-personal-accident-claim-over-non-transfer-of-insurance-policy-544148
+### 2026-08-04T06:32:57+00:00
+Medical Negligence: Kakinada Consumer Commission Directs Medicover Hospital, Cardiologist To Pay ₹99 Lakh Compensation
+https://www.livelaw.in/consumer-cases/medical-negligence-kakinada-consumer-commission-directs-medicover-hospital-cardiologist-to-pay-99-lakh-compensation-544209
 
-[Read on Telegram](https://t.me/livelawindia/116399)
-
----
-### 2026-08-03T14:52:22+00:00
-Victim Accompanied Accused For A Month Without Seeking Help: J&K&L High Court Upholds Acquittal In Kidnapping, Rape Case
-https://www.livelaw.in/high-court/jammu-kashmir/woman-stayed-with-accused-for-over-a-month-travelled-publicly-without-raising-alarm-jk-high-court-refuses-to-reverse-acquittal-in-alleged-kidnapping-and-rape-case-543991
-
-[Read on Telegram](https://t.me/livelawindia/116400)
+[Read on Telegram](https://t.me/livelawindia/116440)
 
 ---
-### 2026-08-03T15:22:52+00:00
-Granting Protection To Minor In Live-In Relationship Would Implicitly Sanction What Law Expressly Prohibits: Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/minor-in-live-in-relationship-protection-plea-dismissed-544163
+### 2026-08-04T06:38:06+00:00
+Bollywood Actress Tabu Moves Delhi High Court Seeking Protection Of Personality Rights
+https://www.livelaw.in/high-court/delhi-high-court/tabu-personality-rights-protection-bollywood-privacy-544225
 
-[Read on Telegram](https://t.me/livelawindia/116401)
-
----
-### 2026-08-03T15:32:12+00:00
-CJI Surya Kant Inaugurates Special Courts For UAPA, NDPS Cases And Fast-Track Court For NEET Paper Leak Cases In Delhi
-https://www.livelaw.in/news-updates/cji-surya-kant-inaugurates-neet-paper-leak-fast-track-court-nia-court-544164
-
-[Read on Telegram](https://t.me/livelawindia/116402)
+[Read on Telegram](https://t.me/livelawindia/116441)
 
 ---
-### 2026-08-03T15:48:12+00:00
-Supreme Court Directs MEA To Trace Indian Seafarer Missing After Drone Attack On Ship Near Ukraine
-https://www.livelaw.in/top-stories/supreme-court-directs-mea-to-trace-indian-seafarer-missing-after-drone-attack-on-ship-near-ukraine-544165
+### 2026-08-04T06:47:46+00:00
+Jaipur Declaration Adopted At Commonwealth Peace Mediation Conference; RSLSA Launches 'Nyayayan' Digital Judicial Initiative
+https://www.livelaw.in/news-updates/jaipur-declaration-adopted-at-commonwealth-peace-mediation-conference-rslsa-launches-nyayayan-digital-judicial-initiative-544227
 
-[Read on Telegram](https://t.me/livelawindia/116403)
-
----
-### 2026-08-03T15:55:43+00:00
-Provisionally Enrolled Advocates Can Practice Freely For 2 Years Pending AIBE, But Can't Vote In Bar Elections: BCI
-https://www.livelaw.in/news-updates/bci-clarifies-provisionally-enrolled-advocates-practice-freely-544167
-
-[Read on Telegram](https://t.me/livelawindia/116404)
+[Read on Telegram](https://t.me/livelawindia/116442)
 
 ---
-### 2026-08-03T16:22:23+00:00
-State Can't Solve Its Financial Crisis By Withholding Employees' And Pensioners' Dues: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/govt-release-of-da-arrears-employees-financial-burden-no-answer-to-enforcement-of-accrued-benefits-544170
+### 2026-08-04T06:50:26+00:00
+NEET-UG 2026 : 6 Candidates Move Supreme Court Alleging OMR Sheet Discrepancy
+https://www.livelaw.in/top-stories/neet-ug-2026-6-candidates-move-supreme-court-alleging-omr-sheet-discrepancy-544229
 
-[Read on Telegram](https://t.me/livelawindia/116405)
-
----
-### 2026-08-03T16:28:03+00:00
-MSHRC Takes Suo Motu Notice Of Pune Police Tying Accused To Vehicle Bonnet, Parading Them; Issues Notices To Top Officials
-https://www.livelaw.in/news-updates/pune-police-summoned-tied-accused-to-vehicle-bonnet-paraded-them-544171
-
-[Read on Telegram](https://t.me/livelawindia/116406)
+[Read on Telegram](https://t.me/livelawindia/116443)
 
 ---
-### 2026-08-03T17:22:34+00:00
-Supreme Court Daily Round-Up : August 3, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-3-2026-544166
+### 2026-08-04T06:50:37+00:00
+News Channel Not Criminally Liable For Merely Airing Press Conference Containing 'Defamatory' Words: Kerala High Court Grants Relief To Asianet
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-asianet-defamation-air-press-conference-544230
 
-[Read on Telegram](https://t.me/livelawindia/116407)
-
----
-### 2026-08-04T01:38:04+00:00
-Human Trafficking Has Assumed A New Avatar In The Modern Era: Justice N. Kotiswar Singh
-https://www.livelaw.in/news-updates/human-trafficking-assumed-new-avatar-modern-era-justice-n-kotiswar-singh-544172
-
-[Read on Telegram](https://t.me/livelawindia/116408)
+[Read on Telegram](https://t.me/livelawindia/116444)
 
 ---
-### 2026-08-04T01:45:04+00:00
-LexTech, Centre For Law, Entrepreneurship & Innovation, NLU Odisha Launches Second Article Writing Competition 2026
-https://www.livelaw.in/lawschool/competitions/lextech-centre-for-law-entrepreneurship-innovation-nlu-odisha-launches-second-article-writing-competition-2026-544173
+### 2026-08-04T07:20:17+00:00
+Supreme Court Seeks Union's Response On Plea Challenging CAPF Act Allowing IPS Deputation Contrary To SC Judgment
+https://www.livelaw.in/top-stories/supreme-court-seeks-unions-response-on-plea-challenging-capf-act-allowing-ips-deputation-contrary-to-sc-judgment-544233
 
-[Read on Telegram](https://t.me/livelawindia/116409)
+[Read on Telegram](https://t.me/livelawindia/116445)
 
 ---
-### 2026-08-04T02:32:14+00:00
-Supreme Court Asks CEC To Examine Environmental Issues Concerning Himachal Pradesh
-https://www.livelaw.in/top-stories/supreme-court-himachal-pradesh-shimla-notified-green-belt-area-environmental-issues-to-be-examined-by-cec-tree-felling-construction-activities-544174
+### 2026-08-04T07:22:17+00:00
+Kerala High Court Asks Magistrate To Proceed With Complaint Against 5 Cops Accused Of Assaulting Army Personnel, Defers Sanction Issue
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-cops-sanction-army-man-temple-festival-544234
 
-[Read on Telegram](https://t.me/livelawindia/116410)
+[Read on Telegram](https://t.me/livelawindia/116446)
+
+---
+### 2026-08-04T07:29:37+00:00
+Delhi High Court Exempts X Corp From Appearing In Film Producers' Defamation Suit Against Media, Directs Compliance With Future Orders
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-x-corp-appearance-exemption-film-producers-defamation-suit-media-entities-544235
+
+[Read on Telegram](https://t.me/livelawindia/116447)
+
+---
+### 2026-08-04T07:47:17+00:00
+Rajasthan High Court Flags Lapses In Probe Against Cops Accused Of Assaulting Advocate, Asks Police Commissioner To Monitor
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-orders-personal-monitoring-police-commissioner-advocate-assault-allegations-police-personnel-544236
+
+[Read on Telegram](https://t.me/livelawindia/116448)
+
+---
+### 2026-08-04T07:48:57+00:00
+Kerala High Court Seeks Congress MLA Manoj Moothedan's Response To Plea Challenging His Election
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-manoj-muthedan-election-petition-544237
+
+[Read on Telegram](https://t.me/livelawindia/116449)
+
+---
+### 2026-08-04T07:57:47+00:00
+Rajasthan High Court Initiates Suo Motu PIL Over Alleged Illegal Registration Of Judges' Bungalows, Temples, Schools As Waqf Properties
+https://www.livelaw.in/high-court/rajasthan-high-court/judges-residence-schools-temples-recorded-as-waqf-property-544241
+
+[Read on Telegram](https://t.me/livelawindia/116450)
+
+---
+### 2026-08-04T08:08:07+00:00
+Forum For Landlord-Tenant Dispute Determined By Law In Force When Suit Is Filed, Not When Tenancy Ends: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-notice-determining-tenancy-s106-tp-act-court-jurisdiction-544244
+
+[Read on Telegram](https://t.me/livelawindia/116451)
+
+---
+### 2026-08-04T08:12:07+00:00
+Prison Guard's Removal Can't Be Upheld Based On Unverified Video Of Meeting Under-Trial's Family While Escorting Him: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/departmental-enquiry-unauthenticated-social-media-videos-544204
+
+[Read on Telegram](https://t.me/livelawindia/116452)
+
+---
+### 2026-08-04T08:22:27+00:00
+Gauhati High Court Upholds Amendment To Arunachal Pradesh Police Rules Aimed At 'Equitable Distribution' Of Promotion Opportunities
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-constitutional-validity-arunachal-pradesh-police-promotion-rules-544248
+
+[Read on Telegram](https://t.me/livelawindia/116453)
+
+---
+### 2026-08-04T08:28:07+00:00
+Asaram Doesn't Require Hospitalization: AIIMS Tells Supreme Court In Plea To Suspend Rape Sentence
+https://www.livelaw.in/top-stories/supreme-court-asaram-plea-for-suspension-of-sentence-2013-rape-case-aiims-report-no-need-for-hospitalization-but-constant-assistance-required-544254
+
+[Read on Telegram](https://t.me/livelawindia/116454)
+
+---
+### 2026-08-04T08:32:27+00:00
+Wife's Convenience, Child's Welfare Relevant But Can't Automatically Justify Transfer Of Matrimonial Case: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-convenience-wife-welfare-minor-child-grounds-transfer-matrimonial-proceedings-544252
+
+[Read on Telegram](https://t.me/livelawindia/116455)
 
 ---
