@@ -1,93 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-04T11:01:35+00:00*
+*Last Updated: 2026-08-04T12:34:55+00:00*
 
 ---
 
-### 2026-08-04T11:01:35+00:00
-Digital Arrest Scams: Supreme Court Issues Directions For Prevention, Compensation & Greivance Redressal
-https://www.livelaw.in/top-stories/digital-arrest-scams-supreme-court-issues-directions-for-prevention-compensation-greivance-redressal-544292
-
-[Read on Telegram](https://t.me/livelawindia/116474)
-
----
-### 2026-08-04T11:07:15+00:00
-SFI Leader Abhimanyu Murder Case: Kerala High Court Directs Completion Of Trial Within Four Months
-https://www.livelaw.in/high-court/kerala-high-court/sfi-activist-abhimanyu-murder-kerala-high-court-trial-four-months-544294
-
-[Read on Telegram](https://t.me/livelawindia/116475)
-
----
-### 2026-08-04T11:20:15+00:00
-AP High Court Asks Endowments Department To Decide Representation For Temple Trustee Post After Hearing Applicant
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-authorities-consider-trustee-appointment-representation-544298
-
-[Read on Telegram](https://t.me/livelawindia/116476)
-
----
-### 2026-08-04T11:29:55+00:00
-Does Rejection Of Bail Bar Subsequent Challenge To Legality Of Arrest? Allahabad High Court Answers
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-bail-rejection-illegal-arrest-kusum-sahu-544305
-
-[Read on Telegram](https://t.me/livelawindia/116477)
-
----
-### 2026-08-04T11:33:05+00:00
-BREAKING| Supreme Court Directs Increase Of Third Party Insurance Of Cars To 4 & Two-Wheelers To 6 Years
-https://www.livelaw.in/top-stories/supreme-court-directs-increase-of-third-party-insurance-of-cars-to-4-two-wheelers-to-6-years-544306
-
-[Read on Telegram](https://t.me/livelawindia/116478)
-
----
-### 2026-08-04T11:33:25+00:00
-Trustee Can Face Cheque Bounce Case Even If Trust Isn't Made Accused: Orissa High Court
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-arrangning-trustee-issuing-cheque-sufficient-544301
-
-[Read on Telegram](https://t.me/livelawindia/116479)
-
----
-### 2026-08-04T11:34:05+00:00
-2026 LiveLaw (SC) 759 | National Insurance Co Ltd v Smt Thungala Dhana Laxmi
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-759-national-insurance-co-ltd-v-smt-thungala-dhana-laxmi-544307
-
-[Read on Telegram](https://t.me/livelawindia/116480)
-
----
-### 2026-08-04T11:49:05+00:00
-'Advice' To Pay Cheque Amount Is Legally A Demand If Notice Clearly Seeks Payment: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/cheque-bounce-advice-to-pay-equals-demand-section138-ni-act-544311
-
-[Read on Telegram](https://t.me/livelawindia/116481)
-
----
-### 2026-08-04T11:53:05+00:00
-Can Death-Row Convict Engage Private Mitigation Investigator Alongside State's SC-Mandated Sentencing Exercise? Bombay High Court Seeks Reply
-https://www.livelaw.in/high-court/bombay-high-court/bombay-hc-states-response-whether-appointment-private-mitigating-investigator-duplication-544216
-
-[Read on Telegram](https://t.me/livelawindia/116482)
-
----
-### 2026-08-04T12:02:45+00:00
-Failure To Place Relevant Material Before District Magistrate Vitiates Preventive Detention Order: Andhra Pradesh High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-relevant-material-district-magistrate-vitiates-preventive-detention-order-544303
-
-[Read on Telegram](https://t.me/livelawindia/116483)
-
----
-### 2026-08-04T12:25:15+00:00
-NEET-PG 2025 Cut-Off Reduction : Expert Committee Formed To Examine Issue, Centre Tells Supreme Court
-https://www.livelaw.in/top-stories/neet-pg-2025-cut-off-reduction-expert-committee-formed-to-examine-issue-centre-tells-supreme-court-544314
-
-[Read on Telegram](https://t.me/livelawindia/116484)
-
----
-### 2026-08-04T12:34:15+00:00
-Consider If Vehicles Without Insurance Can Be Denied Fuel : Supreme Court Tells Union, IRDA
-https://www.livelaw.in/top-stories/consider-if-vehicles-without-insurance-can-be-denied-fuel-supreme-court-tells-union-irda-544315
-
-[Read on Telegram](https://t.me/livelawindia/116485)
-
----
 ### 2026-08-04T12:34:55+00:00
 Gujarat High Court Suggests Area-Wise Sterilisation, Vaccination & Geo-Tagging Of Stray Dogs
 https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-state-sterilize-vaccinate-geo-tag-stray-dogs-territory-wise-544316
@@ -142,5 +58,89 @@ https://www.livelaw.in/top-stories/solid-waste-management-rules-2026-supreme-cou
 https://www.livelaw.in/sc-judgments/amravati-municipal-corporation-v-ganesh-dadarao-anasane-and-others-544326
 
 [Read on Telegram](https://t.me/livelawindia/116493)
+
+---
+### 2026-08-04T14:32:36+00:00
+Children, AI, And Online Safety: India's Next Digital Rights Challenge
+https://www.livelaw.in/articles/children-ai-online-safety-india-next-digital-rights-challenge-544096
+
+[Read on Telegram](https://t.me/livelawindia/116494)
+
+---
+### 2026-08-04T14:41:36+00:00
+In A First, Punjab & Haryana High Court Hyperlinks All Precedents Cited In Its Judgement
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-hyperlinks-all-precedents-cited-in-judgement-544333
+
+[Read on Telegram](https://t.me/livelawindia/116495)
+
+---
+### 2026-08-04T14:42:16+00:00
+PFI 'Terror Plot' Case | Allahabad High Court Questions Lucknow NIA Court Over No Progress In Trial Against Accused Arrested In 2021
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-pfi-terror-plot-lucknow-nia-no-progress-trial-accused-2021-544334
+
+[Read on Telegram](https://t.me/livelawindia/116496)
+
+---
+### 2026-08-04T14:58:06+00:00
+Deceased's Car Hitting Offending Vehicle From Behind Not Contributory Negligence In Absence Of Evidence: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-enhances-compensation-despite-no-crossobjections-544335
+
+[Read on Telegram](https://t.me/livelawindia/116497)
+
+---
+### 2026-08-04T15:07:46+00:00
+"Young Advocates Shouldn't Wither Away From Profession": Bombay High Court Seeks State, Bar Council's Response On Plea For Stipend
+https://www.livelaw.in/high-court/bombay-high-court/maharashtra-young-advocates-stipend-financial-support-544337
+
+[Read on Telegram](https://t.me/livelawindia/116498)
+
+---
+### 2026-08-04T15:16:06+00:00
+P&H High Court Upholds Arms Act Charge Against Sikh Man Accused Of Using Kirpan In Assault, Says Article 25 Protection To Be Decided In Trial
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/sikh-man-kirpan-assault-arms-act-charge-article-25-religious-freedom-544343
+
+[Read on Telegram](https://t.me/livelawindia/116499)
+
+---
+### 2026-08-04T15:19:26+00:00
+LiveLaw Allahabad High Court Weekly Round-Up: July 27 - August 02, 2026
+https://www.livelaw.in/high-court/allahabad-high-court/livelaw-allahabad-high-court-weekly-round-up-july-27-august-02-2026-544344
+
+[Read on Telegram](https://t.me/livelawindia/116500)
+
+---
+### 2026-08-04T16:08:16+00:00
+Madras High Court Stays TVK MLA Poaching Bid Case Probe, Seeks Response On Plea Seeking CBI Probe
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tvk-mla-poaching-case-investigation-stayed-544345
+
+[Read on Telegram](https://t.me/livelawindia/116501)
+
+---
+### 2026-08-04T17:06:06+00:00
+Computer-Based NEET Under Active Consideration, Measures Taken  For Exam Security : Centre Tells Supreme Court
+https://www.livelaw.in/top-stories/computer-based-neet-under-active-consideration-measures-taken-for-exam-security-centre-tells-supreme-court-544347
+
+[Read on Telegram](https://t.me/livelawindia/116502)
+
+---
+### 2026-08-04T17:13:06+00:00
+LADC Contracts Won't Be Renewed After Existing Term : NALSA Says After Punjab Haryana Lawyers Strike
+https://www.livelaw.in/news-updates/nalsa-directs-non-renewal-of-legal-aid-defence-counsel-contracts-in-punjab-haryana-chandigarh-from-september-other-states-to-follow-on-completion-of-tenure-544348
+
+[Read on Telegram](https://t.me/livelawindia/116503)
+
+---
+### 2026-08-04T17:20:56+00:00
+Savarkar Objected To Cow Worship, Treated It Only As A Useful Animal : Grandnephew Tells Pune Court
+https://www.livelaw.in/news-updates/savarkar-objected-to-cow-worship-treated-it-only-as-a-useful-animal-grandnephew-tells-pune-court-544349
+
+[Read on Telegram](https://t.me/livelawindia/116504)
+
+---
+### 2026-08-04T17:22:36+00:00
+Supreme Court Daily Round-Up : August 4, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-4-2026-544346
+
+[Read on Telegram](https://t.me/livelawindia/116505)
 
 ---
