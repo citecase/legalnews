@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-04T09:03:31+00:00*
+*Last Updated: 2026-08-04T14:02:34+00:00*
+
+---
+
+### 2026-08-04T14:02:34+00:00
+Strikes at Root Of Judicial Probity: Jammu & Kashmir and Ladakh High Court Upholds Dismissal Of Judge Accused Of Bribery
+https://www.verdictum.in/jammu-ladakh-high-court/naveen-jamwal-v-honble-high-court-of-jk-and-ladakh-2026jklhc-jmu237-judge-dismissal-1619178
+
+[Source Link](https://t.me/verdictumlegalupdates/28353)
+
+---
+
+### 2026-08-04T13:33:13+00:00
+"Legitimate Expectation Is Not An Enforceable Right": Bombay High Court Rejects Exporters' Challenge To Sugar Export Ban
+https://www.verdictum.in/bombay-high-court/premium-sugars-v-union-of-india-writ-petition-l-no-18701-of-2026-exporters-challenge-to-sugar-export-ban-1619177
+
+[Source Link](https://t.me/verdictumlegalupdates/28352)
+
+---
+
+### 2026-08-04T13:03:10+00:00
+Supreme Court Suggests Rajasthan Govt To Prepare 20-Point Resolution Plan To Deal With Issue Of Contamination In Jojari River
+https://www.verdictum.in/supreme-court/rajasthan-govt-to-prepare-20-point-resolution-plan-to-deal-with-issue-of-contamination-in-jojari-river-1619170
+
+[Source Link](https://t.me/verdictumlegalupdates/28351)
+
+---
+
+### 2026-08-04T12:32:29+00:00
+Supreme Court Seeks Centre, BCI's Response On Plea Of Elected Members Of U'khand Bar Body
+https://www.verdictum.in/supreme-court/centre-bcis-response-on-plea-of-elected-members-of-ukhand-bar-body-1619174
+
+[Source Link](https://t.me/verdictumlegalupdates/28350)
+
+---
+
+### 2026-08-04T12:02:48+00:00
+Supreme Court Empowers High Court Chief Justices To Nominate Co-Opted Women Members To State Bar Council
+https://www.verdictum.in/supreme-court/high-court-chief-justices-nominate-co-opted-women-members-state-bar-council-1619175
+
+[Source Link](https://t.me/verdictumlegalupdates/28349)
+
+---
+
+### 2026-08-04T11:32:47+00:00
+No Hospitalisation Needed For Asaram, AIIMS Board Tells Supreme Court In His Plea Seeking Interim Bail On Health Grounds
+https://www.verdictum.in/supreme-court/asaram-aiims-medical-plea-seeking-interim-bail-health-grounds-1619173
+
+[Source Link](https://t.me/verdictumlegalupdates/28348)
+
+---
+
+### 2026-08-04T11:00:56+00:00
+Breaking: Supreme Court Directs RBI, States & Banks to Implement Urgent SOPs And Money Restoration Measures To Tackle “Digital Arrest” Scams
+https://www.verdictum.in/supreme-court/digital-arrest-scams-interim-directions-rbi-1619172
+
+[Source Link](https://t.me/verdictumlegalupdates/28347)
+
+---
+
+### 2026-08-04T10:32:34+00:00
+Prior Chargesheets Is "Syndicate-Centric", Not Individual-Centric: Delhi High Court Denies Bail To Former AAP MLA Naresh Balyan In MCOCA Case
+https://www.verdictum.in/delhi-high-court/naresh-balyan-v-state-of-nct-of-delhi-2026dhc6247-former-aap-mla-mcoca-case-1619169
+
+[Source Link](https://t.me/verdictumlegalupdates/28346)
+
+---
+
+### 2026-08-04T10:02:53+00:00
+Youthful Vocabulary Can’t Be Gateway To Criminal Prosecution: Karnataka High Court Quashes Case Against Student Booked For Sending Instagram DM To Girl
+https://www.verdictum.in/karnataka-high-court/thomas-jadan-v-state-of-karnataka-2026khc37991-criminal-prosecution-instagram-dm-1619165
+
+[Source Link](https://t.me/verdictumlegalupdates/28345)
+
+---
+
+### 2026-08-04T09:32:32+00:00
+Supreme Court Directs Centre & NBWL To Determine Presence Of Wetland Conservation Reserves In HP Before Applying 10-Km Mining Restraint
+https://www.verdictum.in/supreme-court/presence-wetland-conservation-reserves-himachal-10-km-mining-restraint-1619167
+
+[Source Link](https://t.me/verdictumlegalupdates/28344)
 
 ---
 
@@ -81,86 +161,6 @@ Protected Witness Identity In UAPA Trial Can Be Withheld Only By Reasoned Order 
 https://www.verdictum.in/delhi-high-court/bilal-mir-v-national-investigation-agency-2026dhc6223-protected-witness-uapa-nia-1619105
 
 [Source Link](https://t.me/verdictumlegalupdates/28334)
-
----
-
-### 2026-08-03T16:03:02+00:00
-Program Executive (Legal) vacancy At Defence Innovation Organisation (DIO)
-https://www.verdictum.in/job-updates/defence-innovation-organisation-1619110
-
-[Source Link](https://t.me/verdictumlegalupdates/28333)
-
----
-
-### 2026-08-03T15:32:40+00:00
-Border Centric Drug Cartels Pose National Security Threat Requiring Strict Section 37 NDPS Scrutiny: Punjab & Haryana High Court
-https://www.verdictum.in/punjab-and-haryana-high-court/harmanjit-singh-sandhu-alias-hamma-v-union-of-india-2026phhc103296-1619109
-
-[Source Link](https://t.me/verdictumlegalupdates/28332)
-
----
-
-### 2026-08-03T15:03:19+00:00
-Can’t Block Entire Account If Only Some Content Is Objectionable: Kerala High Court Permits Continued Operation Of Journalist’s Facebook Account
-https://www.verdictum.in/kerala-high-court/n-madhavan-kutty-v-union-of-india-block-account-content-objectionable-facebook-1619115
-
-[Source Link](https://t.me/verdictumlegalupdates/28331)
-
----
-
-### 2026-08-03T14:32:58+00:00
-Crowd Behaviour Science Must Be Integrated Into Planning To Prevent Mathura-Vrindavan Like Stampedes: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/swami-shiv-swarupanand-ji-maharaj-v-state-of-up-others-2026ahc160511-1619107
-
-[Source Link](https://t.me/verdictumlegalupdates/28330)
-
----
-
-### 2026-08-03T14:02:36+00:00
-Government Can Engage Lawyers Of Its Choice; Cannot Be Compelled To Provide Reservation U/S 34 RPwD Act: Madras High Court
-https://www.verdictum.in/madras-high-court/v-muthupandi-v-the-secretary-to-government-public-department-2026mhc3189-contract-as-litigants-choice-1619106
-
-[Source Link](https://t.me/verdictumlegalupdates/28329)
-
----
-
-### 2026-08-03T13:32:55+00:00
-Delhi High Court Seeks NIA Stand On Appeals By Aasiya Andrabi, & Others Against Conviction In UAPA Case
-https://www.verdictum.in/delhi-high-court/nia-stand-on-appeals-aasiya-andrabi-against-conviction-uapa-case-1619099
-
-[Source Link](https://t.me/verdictumlegalupdates/28328)
-
----
-
-### 2026-08-03T13:02:54+00:00
-Supreme Court Issues Notice On Tamil Nadu's Plea Against HC's Order Permitting Karthigai Deepam Lighting Atop Thiruparankundram Hill
-https://www.verdictum.in/supreme-court/tamil-nadu-madras-high-court-permitting-karthigai-deepam-lighting-atop-thiruparankundram-hill-1619116
-
-[Source Link](https://t.me/verdictumlegalupdates/28327)
-
----
-
-### 2026-08-03T12:32:32+00:00
-Supreme Court Will Hear Pleas Against Transgender Persons Amendment Act On Aug 17; Expresses Concern Over Rights Of Existing Cardholders
-https://www.verdictum.in/supreme-court/transgender-persons-amendment-act-on-aug-17-1619098
-
-[Source Link](https://t.me/verdictumlegalupdates/28326)
-
----
-
-### 2026-08-03T12:02:51+00:00
-Apex Court Expresses Serious Concerns Over Functioning Of Pharmacy Council Of India; Says Existing Regulatory Framework Creates Uncertainty For Students
-https://www.verdictum.in/supreme-court/concerns-over-functioning-of-pharmacy-council-of-india-1619097
-
-[Source Link](https://t.me/verdictumlegalupdates/28325)
-
----
-
-### 2026-08-03T11:33:10+00:00
-Can Some Amount Be Released From TMC's Frozen Accounts For Daily Expenses: Supreme Court Asks ED
-https://www.verdictum.in/supreme-court/tmcs-frozen-accounts-for-daily-expenses-1619096
-
-[Source Link](https://t.me/verdictumlegalupdates/28324)
 
 ---
 
