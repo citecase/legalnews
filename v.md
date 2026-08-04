@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-04T14:02:34+00:00*
+*Last Updated: 2026-08-04T16:02:37+00:00*
+
+---
+
+### 2026-08-04T16:02:37+00:00
+Consultant (Legal) Vacancy At National Council for Cooperative Training (NCCT)
+https://www.verdictum.in/job-updates/national-council-for-cooperative-training-1619179
+
+[Source Link](https://t.me/verdictumlegalupdates/28356)
+
+---
+
+### 2026-08-04T15:32:36+00:00
+Land Is Considered The New Gold: Supreme Court Restores 1955 Mutation Of 280-Acre Gurugram Shamilat Land In Favour Of Wazirabad Gram Panchayat
+https://www.verdictum.in/supreme-court/suraj-bhan-and-others-v-ashvarya-estate-pvt-ltd-and-others-2026-insc-786-1619190
+
+[Source Link](https://t.me/verdictumlegalupdates/28355)
+
+---
+
+### 2026-08-04T15:07:16+00:00
+Child Accident Compensation Must Account For The Lost Future, Not Merely Victim’s Existing Status: Supreme Court
+https://www.verdictum.in/supreme-court/gayatree-pattnaik-for-shreejita-pattnaik-v-arundhati-sahoo-and-anr-2026-insc-785-1619189
+
+[Source Link](https://t.me/verdictumlegalupdates/28354)
 
 ---
 
@@ -137,30 +161,6 @@ Nomination Of Another Person In Pension Records Cannot Override Legally Wedded W
 https://www.verdictum.in/guwahati-high-court/shibani-dutta-v-state-of-assam-2026gau-as10193-pension-legally-wedded-wife-1619111
 
 [Source Link](https://t.me/verdictumlegalupdates/28337)
-
----
-
-### 2026-08-04T05:33:03+00:00
-Weekly Overview| Supreme Court Judgments: July 27 – July 31, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-july-27-july-31-2026-1619135
-
-[Source Link](https://t.me/verdictumlegalupdates/28336)
-
----
-
-### 2026-08-04T05:02:41+00:00
-Bail Granted On Technical Grounds Need Not Be Cancelled Before Re-Arrest By Investigating Agency: Gauhati High Court
-https://www.verdictum.in/guwahati-high-court/asem-kanan-singh-alias-ashem-kanan-singh-v-union-of-india-2026gau-as9771-1619108
-
-[Source Link](https://t.me/verdictumlegalupdates/28335)
-
----
-
-### 2026-08-04T04:32:30+00:00
-Protected Witness Identity In UAPA Trial Can Be Withheld Only By Reasoned Order Balancing Fair Trial And Threat Perception: Delhi High Court
-https://www.verdictum.in/delhi-high-court/bilal-mir-v-national-investigation-agency-2026dhc6223-protected-witness-uapa-nia-1619105
-
-[Source Link](https://t.me/verdictumlegalupdates/28334)
 
 ---
 
