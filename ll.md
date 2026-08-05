@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-05T12:25:45+00:00*
+*Last Updated: 2026-08-05T14:22:40+00:00*
 
 ---
 
-### 2026-08-05T12:25:45+00:00
-Judgments Are Retrospective Unless Expressly Made Prospective : Supreme Court
-https://www.livelaw.in/supreme-court/judgments-are-retrospective-unless-expressly-made-prospective-supreme-court-544471
+### 2026-08-05T14:22:40+00:00
+Writ Petition Not Maintainable Against CMD Of Government Company As It Is Not A 'Public Office': Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/quo-warranto-not-maintainable-cmd-government-company-not-public-office-544486
 
-[Read on Telegram](https://t.me/livelawindia/116582)
-
----
-### 2026-08-05T12:26:37+00:00
-MP High Court Extends Interim Protection Granted To Viral Kumbh Mela Star & Husband In FIR Alleging Child Marriage
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-continues-interim-protection-for-viral-kumbh-mela-star-in-plea-over-forged-birth-certificate-544472
-
-[Read on Telegram](https://t.me/livelawindia/116583)
+[Read on Telegram](https://t.me/livelawindia/116602)
 
 ---
-### 2026-08-05T12:27:17+00:00
-2026 LiveLaw (SC) 766 | GOVERNMENT OF INDIA & ANR. VS. SRI DEVRAJ URS MEDICAL COLLEGE
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-766-government-of-india-anr-vs-sri-devraj-urs-medical-college-544473
+### 2026-08-05T14:27:00+00:00
+Shiv Sena Case | Political Party's Decision Must Prevail Over Legislative Party's Majority, Says Supreme Court In Hearing
+https://www.livelaw.in/top-stories/supreme-court-shiv-sena-eknath-shinde-uddhav-thackeray-speaker-refusal-to-disqualify-mlas-defection-political-party-control-over-legislature-party-544511
 
-[Read on Telegram](https://t.me/livelawindia/116584)
-
----
-### 2026-08-05T12:31:37+00:00
-'Driven By Starvation': Gujarat High Court Grants Bail To Mother Booked For Causing Child's Death Over Demand For Food
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-bail-woman-child-death-stravation-544475
-
-[Read on Telegram](https://t.me/livelawindia/116585)
+[Read on Telegram](https://t.me/livelawindia/116603)
 
 ---
-### 2026-08-05T12:41:58+00:00
-Transfer Of Dissolved Society's Assets To Successor Company Valid: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-dissolving-society-transfer-property-to-company-544477
+### 2026-08-05T14:32:30+00:00
+Why UN's Latest Warning On Women's Rights Should Concern Us All ?
+https://www.livelaw.in/articles/un-latest-warning-women-rights-should-concern-us-all-544102
 
-[Read on Telegram](https://t.me/livelawindia/116586)
-
----
-### 2026-08-05T12:47:38+00:00
-Comprehensive/Package Motor Insurance Covers Vehicle Occupants: Supreme Court Explains Different Types Of Policies
-https://www.livelaw.in/supreme-court/comprehensivepackage-motor-insurance-covers-vehicle-occupants-supreme-court-explains-different-types-of-policies-544478
-
-[Read on Telegram](https://t.me/livelawindia/116587)
+[Read on Telegram](https://t.me/livelawindia/116604)
 
 ---
-### 2026-08-05T12:52:38+00:00
-Consumer Cases Monthly Digest: July 2026
-https://www.livelaw.in/consumer-cases/consumer-cases-monthly-digest-july-2026-544479
+### 2026-08-05T14:32:40+00:00
+'Wolf In White Coat': Karnataka High Court Restores Doctor's Suspension In Sexual Harassment Case, Pulls Up IAS Officer For Protecting Him
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-cancels-reinstatement-doctor-accused-sexual-harassment-544512
 
-[Read on Telegram](https://t.me/livelawindia/116588)
-
----
-### 2026-08-05T12:53:58+00:00
-Chhattisgarh High Court Refuses To Quash FIR Against Self-Styled Godman Accused Of Inducing Doctor To Pay ₹25 Lakh For 'Divine Rituals'
-https://www.livelaw.in/high-court/chhattisgarh-high-court/fir-spiritual-practitioner-cheating-25-lakh-divine-powers-544481
-
-[Read on Telegram](https://t.me/livelawindia/116589)
+[Read on Telegram](https://t.me/livelawindia/116605)
 
 ---
-### 2026-08-05T12:54:58+00:00
-'Overcome Drinking Habit, Care For Family': P&H High Court To Man Accused Of Assaulting Pregnant Wife For Refusing Sex Determination Test
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/man-accused-of-assaulting-pregnant-wife-refusing-foetal-sex-determination-test-gets-bail-544482
+### 2026-08-05T14:42:20+00:00
+Kerala High Court Denies Pre-Arrest Bail To Man Booked For 'Threatening' Social Media Posts Against Police Officer & Family
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kothamangalam-threatening-social-media-posts-544513
 
-[Read on Telegram](https://t.me/livelawindia/116590)
-
----
-### 2026-08-05T13:05:18+00:00
-Chhattisgarh High Court Refuses Bail To Husband Accused Of Driving Pregnant Wife To Suicide Over Dowry Demand
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-denies-bail-husband-cruelty-death-pregnant-wife-544490
-
-[Read on Telegram](https://t.me/livelawindia/116591)
+[Read on Telegram](https://t.me/livelawindia/116606)
 
 ---
-### 2026-08-05T13:12:28+00:00
-Chhattisgarh High Court Quashes Departmental Exam Result, Says Syllabus Can't Be Changed Through Admit Cards Issued Days Before Exam
-https://www.livelaw.in/high-court/chhattisgarh-high-court/departmental-exam-result-subject-introduced-admit-cards-544480
+### 2026-08-05T14:43:00+00:00
+SC Candidates Availing Domicile-Based Relaxation Eligible For Selection Under Open Merit In BSF Recruitment: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/sc-candidates-availing-jk-domicile-based-physical-relaxation-eligible-for-selection-under-open-merit-in-bsf-recruitment-jkl-high-court-544492
 
-[Read on Telegram](https://t.me/livelawindia/116592)
-
----
-### 2026-08-05T13:12:58+00:00
-Jammu Court Seeks Police Probe Report In ₹550-Crore Vaishno Devi Silver Adulteration Case, Orders Preservation Of Evidence
-https://www.livelaw.in/news-updates/jammu-court-seeks-police-probe-report-in-550-crore-vaishno-devi-silver-pilferage-case-orders-preservation-of-crucial-evidence-544496
-
-[Read on Telegram](https://t.me/livelawindia/116593)
+[Read on Telegram](https://t.me/livelawindia/116607)
 
 ---
-### 2026-08-05T13:14:38+00:00
-ECIR Can Be Challenged Under Article 226, ED Can't Take Shelter Behind 'Internal Document' Label: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/writ-petition-challenging-ecir-maintainable-pmla-ed-544498
+### 2026-08-05T15:04:40+00:00
+MP High Court Issues Notice On Congress Leader's Plea Against Rejection Of Rajya Sabha Nomination, Election Of BJP MPs
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-issues-notice-to-former-congress-mp-against-bjp-members-elections-544516
 
-[Read on Telegram](https://t.me/livelawindia/116594)
-
----
-### 2026-08-05T13:21:20+00:00
-Minor's Signature Alone Not Valid Consent For Medical Termination Of Pregnancy: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/medical-termination-of-pregnancy-minors-signature-alone-not-valid-consent-544501
-
-[Read on Telegram](https://t.me/livelawindia/116595)
+[Read on Telegram](https://t.me/livelawindia/116608)
 
 ---
-### 2026-08-05T13:28:10+00:00
-J&K&L High Court Refuses To Quash ₹65 Lakh Cheque Bounce Case, Says Lost Cheque Defence Must Be Tested At Trial
-https://www.livelaw.in/high-court/jammu-kashmir/lost-cheque-stop-payment-pleas-are-trial-defences-in-section-138-ni-act-cases-cant-be-decided-in-section-528-bnss-proceedings-jkl-high-court-544489
+### 2026-08-05T15:07:30+00:00
+State-Owned Corporations Can't Cite Financial Constraints To Deny Pensionary Benefits: Himachal Pradesh High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-financial-crunch-deny-pension-state-corporations-white-elephants-544487
 
-[Read on Telegram](https://t.me/livelawindia/116596)
-
----
-### 2026-08-05T13:30:10+00:00
-Property Ownership Or Tenancy Dispute Can't Stall Action Under Section 152 BNSS To Vacate Dangerous Building: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/magistrate-can-vacate-dangerous-building-despite-property-dispute-section-152-bnss-544502
-
-[Read on Telegram](https://t.me/livelawindia/116597)
+[Read on Telegram](https://t.me/livelawindia/116609)
 
 ---
-### 2026-08-05T13:40:10+00:00
-MP High Court Upholds Judge's Dismissal, Says Protection For Bonafide Judicial Errors Doesn't Extend To Reckless Exercise Of Power
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-upholds-dismissal-of-civil-judge-over-reckless-conduct-544503
+### 2026-08-05T15:18:10+00:00
+Loan Amount Not 'Entrusted Property'; Mere Failure To Repay Doesn't Constitute Criminal Breach Of Trust: Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-loan-amount-entrusted-property-failure-repay-criminal-breach-of-trust-544485
 
-[Read on Telegram](https://t.me/livelawindia/116598)
-
----
-### 2026-08-05T13:52:10+00:00
-Writing 'Allowed' On Margin Of Delay Condonation Plea Without Reasons Is Not A Valid Judicial Order: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-quashes-section138-ni-act-proceedings-544484
-
-[Read on Telegram](https://t.me/livelawindia/116599)
+[Read on Telegram](https://t.me/livelawindia/116610)
 
 ---
-### 2026-08-05T13:58:10+00:00
-Chhattisgarh High Court Modifies Judgment In RTI Case, Substitutes 'Bombarded' & 'Habitual Information Seeker' With Neutral Expressions
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-modifies-order-neutral-language-544491
+### 2026-08-05T15:18:21+00:00
+Kerala High Court Orders Vigilance Probe Into Alleged Irregularities In Milma Ghee Procurement For Sabarimala
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-vigilance-probe-irregularities-milma-ghee-procurement-sabarimala-544522
 
-[Read on Telegram](https://t.me/livelawindia/116600)
+[Read on Telegram](https://t.me/livelawindia/116611)
 
 ---
-### 2026-08-05T14:19:20+00:00
-LiveLaw Daily | Nitin Gadkari Deepfakes| Abhishek Banerjee| Senthil Balaji| Muthanga Case & more
-https://www.livelaw.in/podcast/nitin-gadkari-student-protests-abhishek-banerjee-clat-students-advocates-lawyers-news-ai-neet-544510
+### 2026-08-05T15:18:31+00:00
+TV9 vs TV19: Kolkata Court Restrains Use Of 'TV19' Marks, Says Prima Facie Similarity May Cause Viewer Confusion
+https://www.livelaw.in/news-updates/tv9-vs-tv19-kolkata-court-restrains-use-of-tv19-marks-says-prima-facie-similarity-may-cause-viewer-confusion-544500
 
-[Read on Telegram](https://t.me/livelawindia/116601)
+[Read on Telegram](https://t.me/livelawindia/116612)
+
+---
+### 2026-08-05T15:35:51+00:00
+'Nobody Is Prohibiting Practice Of Religion': Bombay High Court Says PoP Idol Immersion Case Is Limited To Environmental Issue
+https://www.livelaw.in/high-court/bombay-high-court/ganesh-visarjan-pop-idol-immersion-essential-religious-practice-questions-544524
+
+[Read on Telegram](https://t.me/livelawindia/116613)
+
+---
+### 2026-08-05T15:37:31+00:00
+Centre Only Appoints Judges Who Have Its Ideology : Menaka Guruswamy In Rajya Sabha
+https://www.livelaw.in/news-updates/centre-only-appoints-judges-who-have-its-ideology-menaka-guruswamy-in-rajya-sabha-544525
+
+[Read on Telegram](https://t.me/livelawindia/116614)
+
+---
+### 2026-08-05T15:40:31+00:00
+Central Excise | 'Mere Grouping And Unpacking Does Not Attract Excise Duty', Supreme Court Dismisses Revenue's ₹17.86 Crore Demand Against Xerox
+https://www.livelaw.in/supreme-court/central-excise-mere-grouping-and-unpacking-does-not-attract-excise-duty-supreme-court-dismisses-revenues-1786-crore-demand-against-xerox-544527
+
+[Read on Telegram](https://t.me/livelawindia/116615)
+
+---
+### 2026-08-05T15:41:51+00:00
+2026 LiveLaw (SC) 767  |  COMMISSIONER OF CENTRAL EXCISE, HYDERABAD-IV VERSUS M/S XEROX INDIA LTD. & ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-767-commissioner-of-central-excise-hyderabad-iv-versus-ms-xerox-india-ltd-ors-544528
+
+[Read on Telegram](https://t.me/livelawindia/116616)
+
+---
+### 2026-08-05T15:58:51+00:00
+When Can ECI Choose Not To Hold Bye-Election? Supreme Court To Interpret S.151A RP Act
+https://www.livelaw.in/top-stories/supreme-court-representation-of-people-act-section-151a-bye-elections-whether-condition-of-less-than-1-year-remainder-term-mandatory-544531
+
+[Read on Telegram](https://t.me/livelawindia/116617)
+
+---
+### 2026-08-05T16:13:01+00:00
+Proof Of Saptapadi Ceremony Not Required At Cognizance Stage In Bigamy Complaint: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-proof-saptapadi-required-cognizance-stage-bigamy-complaint-544495
+
+[Read on Telegram](https://t.me/livelawindia/116618)
+
+---
+### 2026-08-05T16:18:01+00:00
+Tree Officer Can't Permit Tree Felling Merely Because They Obstruct Building Entrance: Delhi High Court Holds Two Officials Guilty Of Contempt
+https://www.livelaw.in/high-court/delhi-high-court/tree-officer-cant-permit-tree-felling-merely-because-they-obstruct-building-entrance-delhi-high-court-holds-two-officials-guilty-of-contempt-544537
+
+[Read on Telegram](https://t.me/livelawindia/116619)
+
+---
+### 2026-08-05T16:41:41+00:00
+Telangana High Court Rejects Plea Challenging Election Of BRS MLA KT Rama Rao
+https://www.livelaw.in/high-court/telangana-high-court/brs-mla-ktr-kt-rama-rao-2023-election-victory-challenge-rejected-544539
+
+[Read on Telegram](https://t.me/livelawindia/116620)
+
+---
+### 2026-08-05T17:22:51+00:00
+Supreme Court Daily Round-Up : August 5, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-5-2026-544533
+
+[Read on Telegram](https://t.me/livelawindia/116621)
 
 ---
