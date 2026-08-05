@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-04T13:51:46+00:00*
+*Last Updated: 2026-08-05T06:03:12+00:00*
 
 ---
 
-### 2026-08-04T13:51:46+00:00
-Death Sentences Set Aside In Minor's Rape-Murder Case: P&H High Court Remands Matter After Finding Defects In Trial
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/death-sentences-set-aside-minors-rape-murder-case-trial-defects-544321
+### 2026-08-05T06:03:12+00:00
+2026 LiveLaw (SC) 762 | Arjun Jani @ Tuntun Versus State of Orissa
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-762-arjun-jani-tuntun-versus-state-of-orissa-544387
 
-[Read on Telegram](https://t.me/livelawindia/116489)
-
----
-### 2026-08-04T13:52:46+00:00
-Won't Allow Release Of Tertiary Water Into Jojari River, Supreme Court Tells Rajasthan Govt
-https://www.livelaw.in/top-stories/supreme-court-suo-motu-rajasthan-jojari-river-system-industrial-pollution-no-tertiary-water-shift-industries-on-river-banks-or-in-residential-areas-544322
-
-[Read on Telegram](https://t.me/livelawindia/116490)
+[Read on Telegram](https://t.me/livelawindia/116534)
 
 ---
-### 2026-08-04T13:53:46+00:00
-LiveLaw Daily | Udhayanidhi Stalin| Asaram AIIMS Report| Kejriwal Contempt| Tabu & more
-https://www.livelaw.in/podcast/legal-news-law-students-judiciary-upsc-arvind-kejriwal-supreme-court-asaram-news-india-544323
+### 2026-08-05T06:11:02+00:00
+Empanelment Of Advocates At Employees State Insurance Corporation (ESIC)
+https://www.livelaw.in/job-updates/empanelment-of-advocates-at-employees-state-insurance-corporation-544389
 
-[Read on Telegram](https://t.me/livelawindia/116491)
-
----
-### 2026-08-04T14:02:56+00:00
-Solid Waste Management Rules 2026 : Supreme Court Directs Centre To Frame Guidelines On Environmental Compensation
-https://www.livelaw.in/top-stories/solid-waste-management-rules-2026-supreme-court-directs-centre-to-frame-guidelines-on-environmental-compensation-544325
-
-[Read on Telegram](https://t.me/livelawindia/116492)
+[Read on Telegram](https://t.me/livelawindia/116535)
 
 ---
-### 2026-08-04T14:04:16+00:00
-2026 LiveLaw (SC) 760 | Amravati Municipal Corporation v Ganesh Dadarao Anasane and others
-https://www.livelaw.in/sc-judgments/amravati-municipal-corporation-v-ganesh-dadarao-anasane-and-others-544326
+### 2026-08-05T06:12:02+00:00
+Program Executive (Legal) Vacancy At Defence Innovation Organisation (DIO)
+https://www.livelaw.in/job-updates/program-executive-legal-vacancy-at-defence-innovation-organisation-dio-544390
 
-[Read on Telegram](https://t.me/livelawindia/116493)
-
----
-### 2026-08-04T14:32:36+00:00
-Children, AI, And Online Safety: India's Next Digital Rights Challenge
-https://www.livelaw.in/articles/children-ai-online-safety-india-next-digital-rights-challenge-544096
-
-[Read on Telegram](https://t.me/livelawindia/116494)
+[Read on Telegram](https://t.me/livelawindia/116536)
 
 ---
-### 2026-08-04T14:41:36+00:00
-In A First, Punjab & Haryana High Court Hyperlinks All Precedents Cited In Its Judgement
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-hyperlinks-all-precedents-cited-in-judgement-544333
+### 2026-08-05T06:18:02+00:00
+Calcutta High Court Dismisses Abhishek Banerjee's Plea To Travel Abroad For Eye Treatment After He Refuses To Appear Before Medical Board
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-dismisses-abhishek-banerjees-plea-to-travel-abroad-for-eye-treatment-after-he-refuses-to-appear-before-medical-board-544392
 
-[Read on Telegram](https://t.me/livelawindia/116495)
-
----
-### 2026-08-04T14:42:16+00:00
-PFI 'Terror Plot' Case | Allahabad High Court Questions Lucknow NIA Court Over No Progress In Trial Against Accused Arrested In 2021
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-pfi-terror-plot-lucknow-nia-no-progress-trial-accused-2021-544334
-
-[Read on Telegram](https://t.me/livelawindia/116496)
+[Read on Telegram](https://t.me/livelawindia/116537)
 
 ---
-### 2026-08-04T14:58:06+00:00
-Deceased's Car Hitting Offending Vehicle From Behind Not Contributory Negligence In Absence Of Evidence: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-enhances-compensation-despite-no-crossobjections-544335
+### 2026-08-05T06:36:42+00:00
+E20 Petrol Policy: Bombay High Court Orders Takedown Of 'Defamatory' AI Videos Against Union Minister Nitin Gadkari
+https://www.livelaw.in/high-court/bombay-high-court/nitin-gadkari-e20-petrol-policy-defamation-takedown-ai-videos-544393
 
-[Read on Telegram](https://t.me/livelawindia/116497)
-
----
-### 2026-08-04T15:07:46+00:00
-"Young Advocates Shouldn't Wither Away From Profession": Bombay High Court Seeks State, Bar Council's Response On Plea For Stipend
-https://www.livelaw.in/high-court/bombay-high-court/maharashtra-young-advocates-stipend-financial-support-544337
-
-[Read on Telegram](https://t.me/livelawindia/116498)
+[Read on Telegram](https://t.me/livelawindia/116538)
 
 ---
-### 2026-08-04T15:16:06+00:00
-P&H High Court Upholds Arms Act Charge Against Sikh Man Accused Of Using Kirpan In Assault, Says Article 25 Protection To Be Decided In Trial
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/sikh-man-kirpan-assault-arms-act-charge-article-25-religious-freedom-544343
+### 2026-08-05T06:44:53+00:00
+'Tomorrow Gen Alpha, Beta Will Come' : Petitioner Urges Supreme Court To Not Allow Withdrawal Of Cases Against Student Protesters
+https://www.livelaw.in/top-stories/tomorrow-gen-alpha-beta-will-come-petitioner-urges-supreme-court-to-not-withdraw-cases-against-student-protesters-544394
 
-[Read on Telegram](https://t.me/livelawindia/116499)
-
----
-### 2026-08-04T15:19:26+00:00
-LiveLaw Allahabad High Court Weekly Round-Up: July 27 - August 02, 2026
-https://www.livelaw.in/high-court/allahabad-high-court/livelaw-allahabad-high-court-weekly-round-up-july-27-august-02-2026-544344
-
-[Read on Telegram](https://t.me/livelawindia/116500)
+[Read on Telegram](https://t.me/livelawindia/116539)
 
 ---
-### 2026-08-04T16:08:16+00:00
-Madras High Court Stays TVK MLA Poaching Bid Case Probe, Seeks Response On Plea Seeking CBI Probe
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tvk-mla-poaching-case-investigation-stayed-544345
+### 2026-08-05T06:45:33+00:00
+Justice Vikram Nath Launches 'IBC Mantra'; Says Courtroom Remarks Now Reach Social Media Before Judges Reach Home
+https://www.livelaw.in/news-updates/justice-vikram-nath-launches-ibc-mantra-says-courtroom-remarks-now-reach-social-media-before-judges-reach-home-544395
 
-[Read on Telegram](https://t.me/livelawindia/116501)
-
----
-### 2026-08-04T17:06:06+00:00
-Computer-Based NEET Under Active Consideration, Measures Taken  For Exam Security : Centre Tells Supreme Court
-https://www.livelaw.in/top-stories/computer-based-neet-under-active-consideration-measures-taken-for-exam-security-centre-tells-supreme-court-544347
-
-[Read on Telegram](https://t.me/livelawindia/116502)
+[Read on Telegram](https://t.me/livelawindia/116540)
 
 ---
-### 2026-08-04T17:13:06+00:00
-LADC Contracts Won't Be Renewed After Existing Term : NALSA Says After Punjab Haryana Lawyers Strike
-https://www.livelaw.in/news-updates/nalsa-directs-non-renewal-of-legal-aid-defence-counsel-contracts-in-punjab-haryana-chandigarh-from-september-other-states-to-follow-on-completion-of-tenure-544348
+### 2026-08-05T06:56:54+00:00
+Use Of Cone Speakers Banned In Public & Religious Places: Madras High Court Reiterates, Asks State To Take Action Against Violators
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-cone-speaker-banned-state-action-violators-544396
 
-[Read on Telegram](https://t.me/livelawindia/116503)
-
----
-### 2026-08-04T17:20:56+00:00
-Savarkar Objected To Cow Worship, Treated It Only As A Useful Animal : Grandnephew Tells Pune Court
-https://www.livelaw.in/news-updates/savarkar-objected-to-cow-worship-treated-it-only-as-a-useful-animal-grandnephew-tells-pune-court-544349
-
-[Read on Telegram](https://t.me/livelawindia/116504)
+[Read on Telegram](https://t.me/livelawindia/116541)
 
 ---
-### 2026-08-04T17:22:36+00:00
-Supreme Court Daily Round-Up : August 4, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-4-2026-544346
+### 2026-08-05T07:08:14+00:00
+YouTuber Can't Invoke Writ Jurisdiction To Restore Channel Deleted Over Alleged Copyright Strikes: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/youtube-copyright-strikes-channel-restoration-article-226-writ-544398
 
-[Read on Telegram](https://t.me/livelawindia/116505)
-
----
-### 2026-08-05T02:08:56+00:00
-NLU Delhi Conducts Deeksharambh 2026 Student Induction Programme For Postgraduate Students
-https://www.livelaw.in/lawschool/news/nlu-delhi-conducts-deeksharambh-student-induction-programme-postgraduate-students-544350
-
-[Read on Telegram](https://t.me/livelawindia/116506)
+[Read on Telegram](https://t.me/livelawindia/116542)
 
 ---
-### 2026-08-05T02:17:45+00:00
-Cross-Institutional Team Wins FDI Moot South Asia Rounds 2026
-https://www.livelaw.in/lawschool/news/cross-institutional-team-wins-fdi-moot-south-asia-rounds-2026-544351
+### 2026-08-05T07:12:14+00:00
+Delhi High Court Orders Takedown Of Content Infringing Rights Of Physics Wallah Founder Alakh Pandey
+https://www.livelaw.in/high-court/delhi-high-court/alakh-pandey-physics-wallah-relief-takedown-infringing-content-personality-rights-544399
 
-[Read on Telegram](https://t.me/livelawindia/116507)
+[Read on Telegram](https://t.me/livelawindia/116543)
 
 ---
-### 2026-08-05T02:23:25+00:00
-RPNL Prayagraj Holds Orientation Programme For 2026–2031 Batch, Signs MoU With HPNLU Shimla
-https://www.livelaw.in/lawschool/news/rpnl-prayagraj-holds-orientation-programme-for-20262031-batch-signs-mou-with-hpnlu-shimla-544352
+### 2026-08-05T07:20:14+00:00
+Karnataka High Court Permits Masking Of Acquitted Woman's Name From Court Records, Search Results On Google & Indian Kanoon
+https://www.livelaw.in/high-court/karnataka-high-court/mask-acquitted-woman-name-court-record-google-indian-kanoon-search-results-right-to-be-forgotten-544400
 
-[Read on Telegram](https://t.me/livelawindia/116508)
+[Read on Telegram](https://t.me/livelawindia/116544)
+
+---
+### 2026-08-05T07:27:44+00:00
+Madras High Court Relaxes Bail Condition On Senthil Balaji And Brother In ₹35 Crore MLA Poaching Case
+https://www.livelaw.in/high-court/madras-high-court/senthil-balaji-brother-bail-condition-relaxed-mla-poaching-case-544401
+
+[Read on Telegram](https://t.me/livelawindia/116545)
+
+---
+### 2026-08-05T07:30:44+00:00
+Supreme Court Refuses To Entertain Plea Against SCBA Resolution Supporting Sonam Wangchuk, Allows To Invoke SCBA Process
+https://www.livelaw.in/top-stories/supreme-court-refuses-to-entertain-plea-against-scba-resolution-supporting-sonam-wangchuk-allows-to-invoke-scba-process-544403
+
+[Read on Telegram](https://t.me/livelawindia/116546)
+
+---
+### 2026-08-05T07:44:04+00:00
+Chargesheet Filed After Completing Probe In All 5 Of Dileep's Media Trial FIRs: State Informs Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-media-trial-dileep-actress-assault-544405
+
+[Read on Telegram](https://t.me/livelawindia/116547)
+
+---
+### 2026-08-05T07:50:04+00:00
+'In Public Interest': Karnataka High Court Upholds Fire NOC Mandate For Firecracker Traders Even Without Express Statutory Provision
+https://www.livelaw.in/high-court/karnataka-high-court/firecracker-shops-fire-department-noc-requirement-upheld-public-interest-544406
+
+[Read on Telegram](https://t.me/livelawindia/116548)
+
+---
+### 2026-08-05T07:53:24+00:00
+Article 22(1) | Police Pay 'Scant Regard' To Arrest Safeguards, Scorn Judgments Enforcing Fundamental Rights : Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-article-22-constitution-of-indi-police-grounds-of-arrest-safeguards-fundamental-rights-544408
+
+[Read on Telegram](https://t.me/livelawindia/116549)
+
+---
+### 2026-08-05T08:03:04+00:00
+Online Two-Day National Workshop On Changing Paradigms Of Intellectual Property: Opportunities, And The Road Ahead
+https://www.livelaw.in/lawschool/seminars/online-two-day-national-workshop-changing-paradigms-of-intellectual-property-544410
+
+[Read on Telegram](https://t.me/livelawindia/116550)
+
+---
+### 2026-08-05T08:11:44+00:00
+Delhi High Court Dismisses PIL Seeking Review Of Parliament's Security Framework, Says Matter Is Beyond Writ Jurisdiction
+https://www.livelaw.in/high-court/delhi-high-court/pil-parliament-security-framework-dismissed-beyond-writ-jurisdiction-544411
+
+[Read on Telegram](https://t.me/livelawindia/116551)
+
+---
+### 2026-08-05T08:22:54+00:00
+States Cannot Cite Financial Burden To Oppose Raising Judicial Officers' Retirement Age : Supreme Court
+https://www.livelaw.in/top-stories/states-cannot-cite-financial-burden-to-oppose-raising-judicial-officers-retirement-age-supreme-court-544415
+
+[Read on Telegram](https://t.me/livelawindia/116552)
+
+---
+### 2026-08-05T08:23:04+00:00
+Surat Demolitions: Gujarat High Court Closes Resident's Plea After Municipal Corporation Assures No Immediate Action Planned
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-surat-apprehension-demolition-action-corporation-544413
+
+[Read on Telegram](https://t.me/livelawindia/116553)
 
 ---
