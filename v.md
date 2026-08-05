@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-05T09:02:33+00:00*
+*Last Updated: 2026-08-05T14:33:22+00:00*
+
+---
+
+### 2026-08-05T14:33:22+00:00
+Supreme Court Directs MoEF&CC To Frame Guidelines For Imposition & Collection Of Environmental Compensation Under SWM Rules
+https://www.verdictum.in/supreme-court/amravati-municipal-corporation-v-ganesh-dadarao-anasane-2026-insc-796-1619266
+
+[Source Link](https://t.me/verdictumlegalupdates/28377)
+
+---
+
+### 2026-08-05T14:02:40+00:00
+Apex Court Decisions Apply Retrospectively Unless Expressly Made Prospective: Supreme Court
+https://www.verdictum.in/supreme-court/government-of-india-anr-v-sri-devraj-urs-medical-college-2026-insc-799-1619256
+
+[Source Link](https://t.me/verdictumlegalupdates/28376)
+
+---
+
+### 2026-08-05T13:32:39+00:00
+Order XVIII Rule 17 CPC Does Not Permit Party To Cross-Examine Recalled Witness: Supreme Court
+https://www.verdictum.in/supreme-court/k-bharathamma-v-bandaru-sakku-bai-2026-insc-795-order-xviii-rule-17-cpc-1619257
+
+[Source Link](https://t.me/verdictumlegalupdates/28375)
+
+---
+
+### 2026-08-05T13:02:53+00:00
+Is Partial Noise-Based Relaxations For Certain Types Of Crackers Possible: Supreme Court Asks CPCB
+https://www.verdictum.in/supreme-court/partial-noise-based-relaxation-crackers-possible-cpcb-1619264
+
+[Source Link](https://t.me/verdictumlegalupdates/28374)
+
+---
+
+### 2026-08-05T12:33:12+00:00
+Confession Extracted By Third-Degree Methods, 22 Years Erased Out Of Accused’s Life: Supreme Court Grants Acquittal In Triple Murder Case
+https://www.verdictum.in/supreme-court/arjun-jani-tuntun-v-state-of-orissa-2026-insc-802-confession-acquittal-triple-murder-1619255
+
+[Source Link](https://t.me/verdictumlegalupdates/28373)
+
+---
+
+### 2026-08-05T12:02:31+00:00
+Once Signature On Cheque Is Admitted, It Means Accused Was Aware Of Its Contents Unless Proved Otherwise: Supreme Court
+https://www.verdictum.in/supreme-court/kuntegowda-v-thurubaiah-2026-insc-790-conviction-us-138-ni-act-exceeded-revisional-jurisdiction-1619253
+
+[Source Link](https://t.me/verdictumlegalupdates/28372)
+
+---
+
+### 2026-08-05T11:33:19+00:00
+You Think Parliament Is Incapable Of Taking Care Of Its Own Security: Delhi High Court Refuses To Entertain PIL Concerning Safety Of Parliament
+https://www.verdictum.in/delhi-high-court/pil-concerning-safety-of-parliament-refused-entertainment-1619252
+
+[Source Link](https://t.me/verdictumlegalupdates/28371)
+
+---
+
+### 2026-08-05T11:02:18+00:00
+Supreme Court Asks States To Revisit Retirement Age Of Judicial Officers; Says They Must Not Cite Financial Burden To Oppose
+https://www.verdictum.in/supreme-court/revisit-retirement-age-of-judicial-officers-1619251
+
+[Source Link](https://t.me/verdictumlegalupdates/28370)
+
+---
+
+### 2026-08-05T10:32:37+00:00
+Employee Who Accepted Consequences Of Resignation Cannot Later Challenge Technical Defect In Its Acceptance: Supreme Court
+https://www.verdictum.in/supreme-court/delhi-technological-university-v-bs-rawat-2026-insc-797-resignation-acceptance-1619249
+
+[Source Link](https://t.me/verdictumlegalupdates/28369)
+
+---
+
+### 2026-08-05T10:02:36+00:00
+These Posts Are Abusive, Vile & Obscene: Bombay HC Directs Meta, X & Twitter To Take Down Content Against Nitin Gadkari
+https://www.verdictum.in/bombay-high-court/meta-x-twitter-to-take-down-content-against-nitin-gadkari-1619247
+
+[Source Link](https://t.me/verdictumlegalupdates/28368)
+
+---
+
+### 2026-08-05T09:32:55+00:00
+Calcutta High Court Dismisses TMC Leader Abhishek Banerjee’s Plea To Travel Abroad For Eye Treatment
+https://www.verdictum.in/calcutta-high-court/tmc-leader-abhishek-banerjees-plea-travel-abroad-for-eye-treatment-dismissed-1619246
+
+[Source Link](https://t.me/verdictumlegalupdates/28367)
 
 ---
 
@@ -73,94 +161,6 @@ https://www.verdictum.in/supreme-court/national-insurance-co-ltd-v-thungala-dhan
 https://www.verdictum.in/delhi-high-court/shally-thapar-v-assistant-commissioner-of-income-tax-red-tapism-non-return-assets-1619212
 
 [Source Link](https://t.me/verdictumlegalupdates/28358)
-
----
-
-### 2026-08-05T04:33:13+00:00
-Railways Liable To Pay Compensation For Gang Rape Which Occurred Inside Train Compartment: Delhi High Court
-https://www.verdictum.in/delhi-high-court/ministry-of-railway-v-national-human-rights-commission-2026dhc6246-compensation-rape-1619191
-
-[Source Link](https://t.me/verdictumlegalupdates/28357)
-
----
-
-### 2026-08-04T16:02:37+00:00
-Consultant (Legal) Vacancy At National Council for Cooperative Training (NCCT)
-https://www.verdictum.in/job-updates/national-council-for-cooperative-training-1619179
-
-[Source Link](https://t.me/verdictumlegalupdates/28356)
-
----
-
-### 2026-08-04T15:32:36+00:00
-Land Is Considered The New Gold: Supreme Court Restores 1955 Mutation Of 280-Acre Gurugram Shamilat Land In Favour Of Wazirabad Gram Panchayat
-https://www.verdictum.in/supreme-court/suraj-bhan-and-others-v-ashvarya-estate-pvt-ltd-and-others-2026-insc-786-1619190
-
-[Source Link](https://t.me/verdictumlegalupdates/28355)
-
----
-
-### 2026-08-04T15:07:16+00:00
-Child Accident Compensation Must Account For The Lost Future, Not Merely Victim’s Existing Status: Supreme Court
-https://www.verdictum.in/supreme-court/gayatree-pattnaik-for-shreejita-pattnaik-v-arundhati-sahoo-and-anr-2026-insc-785-1619189
-
-[Source Link](https://t.me/verdictumlegalupdates/28354)
-
----
-
-### 2026-08-04T14:02:34+00:00
-Strikes at Root Of Judicial Probity: Jammu & Kashmir and Ladakh High Court Upholds Dismissal Of Judge Accused Of Bribery
-https://www.verdictum.in/jammu-ladakh-high-court/naveen-jamwal-v-honble-high-court-of-jk-and-ladakh-2026jklhc-jmu237-judge-dismissal-1619178
-
-[Source Link](https://t.me/verdictumlegalupdates/28353)
-
----
-
-### 2026-08-04T13:33:13+00:00
-"Legitimate Expectation Is Not An Enforceable Right": Bombay High Court Rejects Exporters' Challenge To Sugar Export Ban
-https://www.verdictum.in/bombay-high-court/premium-sugars-v-union-of-india-writ-petition-l-no-18701-of-2026-exporters-challenge-to-sugar-export-ban-1619177
-
-[Source Link](https://t.me/verdictumlegalupdates/28352)
-
----
-
-### 2026-08-04T13:03:10+00:00
-Supreme Court Suggests Rajasthan Govt To Prepare 20-Point Resolution Plan To Deal With Issue Of Contamination In Jojari River
-https://www.verdictum.in/supreme-court/rajasthan-govt-to-prepare-20-point-resolution-plan-to-deal-with-issue-of-contamination-in-jojari-river-1619170
-
-[Source Link](https://t.me/verdictumlegalupdates/28351)
-
----
-
-### 2026-08-04T12:32:29+00:00
-Supreme Court Seeks Centre, BCI's Response On Plea Of Elected Members Of U'khand Bar Body
-https://www.verdictum.in/supreme-court/centre-bcis-response-on-plea-of-elected-members-of-ukhand-bar-body-1619174
-
-[Source Link](https://t.me/verdictumlegalupdates/28350)
-
----
-
-### 2026-08-04T12:02:48+00:00
-Supreme Court Empowers High Court Chief Justices To Nominate Co-Opted Women Members To State Bar Council
-https://www.verdictum.in/supreme-court/high-court-chief-justices-nominate-co-opted-women-members-state-bar-council-1619175
-
-[Source Link](https://t.me/verdictumlegalupdates/28349)
-
----
-
-### 2026-08-04T11:32:47+00:00
-No Hospitalisation Needed For Asaram, AIIMS Board Tells Supreme Court In His Plea Seeking Interim Bail On Health Grounds
-https://www.verdictum.in/supreme-court/asaram-aiims-medical-plea-seeking-interim-bail-health-grounds-1619173
-
-[Source Link](https://t.me/verdictumlegalupdates/28348)
-
----
-
-### 2026-08-04T11:00:56+00:00
-Breaking: Supreme Court Directs RBI, States & Banks to Implement Urgent SOPs And Money Restoration Measures To Tackle “Digital Arrest” Scams
-https://www.verdictum.in/supreme-court/digital-arrest-scams-interim-directions-rbi-1619172
-
-[Source Link](https://t.me/verdictumlegalupdates/28347)
 
 ---
 
