@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-04T16:02:37+00:00*
+*Last Updated: 2026-08-05T09:02:33+00:00*
+
+---
+
+### 2026-08-05T09:02:33+00:00
+Assignee Of Interest In Decree Schedule Property Can Continue Execution U/S 146 CPC; No Prior Substitution Under Order XXI Rule 16 CPC Required: Kerala High Court
+https://www.verdictum.in/kerala-high-court/srimad-samyamindra-thirtha-swamiji-v-raghavendra-thirtha-swami-2026ker58592-guru-shishya-dispute-successor-in-interest-1619244
+
+[Source Link](https://t.me/verdictumlegalupdates/28366)
+
+---
+
+### 2026-08-05T08:32:52+00:00
+Supreme Court Refuses To Restrain SCBA From Passing Any Unilateral Resolution, Says It Can’t Interfere With Democratic Process
+https://www.verdictum.in/supreme-court/scba-restrained-from-passing-any-unilateral-resolution-1619241
+
+[Source Link](https://t.me/verdictumlegalupdates/28365)
+
+---
+
+### 2026-08-05T08:03:11+00:00
+Supreme Court Grants Interim Bail To Businessman Anwar Dhebar In Manpower Commission 'Scam' Case
+https://www.verdictum.in/supreme-court/interim-bail-to-businessman-anwar-dhebar-in-manpower-commission-scam-case-1619227
+
+[Source Link](https://t.me/verdictumlegalupdates/28364)
+
+---
+
+### 2026-08-05T07:32:30+00:00
+Force Is Not A Solution, Youngsters Are Required To Be Counselled & Pacified: Supreme Court In Plea Seeking Action Against Student Protest Organizers
+https://www.verdictum.in/supreme-court/plea-seeking-action-against-student-protest-organizers-1619237
+
+[Source Link](https://t.me/verdictumlegalupdates/28363)
+
+---
+
+### 2026-08-05T07:03:09+00:00
+News Outlets Can Report Court Proceedings But No Audio Or Video Clips Should Be Utilized: Supreme Court
+https://www.verdictum.in/supreme-court/harshita-grover-v-union-of-india-news-outlets-court-proceedings-audio-video-clips-1619232
+
+[Source Link](https://t.me/verdictumlegalupdates/28362)
+
+---
+
+### 2026-08-05T06:32:27+00:00
+Deliver Decision Within 90 Days In Matters Closed For Judgment: Bombay High Court Asks Income Tax Appellate Tribunals
+https://www.verdictum.in/bombay-high-court/rajesh-r-hemrajani-v-income-tax-appellate-tribunal-rule-34-itat-rules-decision-90-days-1619224
+
+[Source Link](https://t.me/verdictumlegalupdates/28361)
+
+---
+
+### 2026-08-05T06:02:46+00:00
+Mere Dispute On Correctness Of Expert Reports Won’t Justify Exercise Of Inherent Jurisdiction U/S.528 Of BNSS: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/dinesh-kumar-v-the-state-of-madhya-pradesh-2026mphc-jbp54355-expert-report-section-528-bnss-1619220
+
+[Source Link](https://t.me/verdictumlegalupdates/28360)
+
+---
+
+### 2026-08-05T05:32:45+00:00
+Supreme Court Directs Nationwide Overhaul Of Motor Insurance Enforcement, Mandates Four-Layer Policy Structure And Extended Third-Party Cover
+https://www.verdictum.in/supreme-court/national-insurance-co-ltd-v-thungala-dhana-laxmi-citation-2026-insc-793-four-layer-policy-structure-motor-insurance-enforcement-1619216
+
+[Source Link](https://t.me/verdictumlegalupdates/28359)
+
+---
+
+### 2026-08-05T05:03:04+00:00
+'Reflects High-Handedness & Red-Tapism': Delhi High Court Asks Assessing Officer To Appear To Explain Non-Return Of Assets Seized In 2010
+https://www.verdictum.in/delhi-high-court/shally-thapar-v-assistant-commissioner-of-income-tax-red-tapism-non-return-assets-1619212
+
+[Source Link](https://t.me/verdictumlegalupdates/28358)
+
+---
+
+### 2026-08-05T04:33:13+00:00
+Railways Liable To Pay Compensation For Gang Rape Which Occurred Inside Train Compartment: Delhi High Court
+https://www.verdictum.in/delhi-high-court/ministry-of-railway-v-national-human-rights-commission-2026dhc6246-compensation-rape-1619191
+
+[Source Link](https://t.me/verdictumlegalupdates/28357)
 
 ---
 
@@ -81,86 +161,6 @@ Breaking: Supreme Court Directs RBI, States & Banks to Implement Urgent SOPs And
 https://www.verdictum.in/supreme-court/digital-arrest-scams-interim-directions-rbi-1619172
 
 [Source Link](https://t.me/verdictumlegalupdates/28347)
-
----
-
-### 2026-08-04T10:32:34+00:00
-Prior Chargesheets Is "Syndicate-Centric", Not Individual-Centric: Delhi High Court Denies Bail To Former AAP MLA Naresh Balyan In MCOCA Case
-https://www.verdictum.in/delhi-high-court/naresh-balyan-v-state-of-nct-of-delhi-2026dhc6247-former-aap-mla-mcoca-case-1619169
-
-[Source Link](https://t.me/verdictumlegalupdates/28346)
-
----
-
-### 2026-08-04T10:02:53+00:00
-Youthful Vocabulary Can’t Be Gateway To Criminal Prosecution: Karnataka High Court Quashes Case Against Student Booked For Sending Instagram DM To Girl
-https://www.verdictum.in/karnataka-high-court/thomas-jadan-v-state-of-karnataka-2026khc37991-criminal-prosecution-instagram-dm-1619165
-
-[Source Link](https://t.me/verdictumlegalupdates/28345)
-
----
-
-### 2026-08-04T09:32:32+00:00
-Supreme Court Directs Centre & NBWL To Determine Presence Of Wetland Conservation Reserves In HP Before Applying 10-Km Mining Restraint
-https://www.verdictum.in/supreme-court/presence-wetland-conservation-reserves-himachal-10-km-mining-restraint-1619167
-
-[Source Link](https://t.me/verdictumlegalupdates/28344)
-
----
-
-### 2026-08-04T09:03:31+00:00
-Essentially Property Succession Issue: Allahabad High Court Dismisses Plea Seeking Ban Of UPCA And CBI Probe Into BCCI Affiliation
-https://www.verdictum.in/allahabad-high-court/the-cricket-association-of-uttar-pradesh-v-uttar-pradesh-cricket-association-and-others-2026ahc161014-1619163
-
-[Source Link](https://t.me/verdictumlegalupdates/28343)
-
----
-
-### 2026-08-04T08:32:30+00:00
-Multiple FIRs Arose From One Continuous Transaction: Delhi High Court Quashes Two FIRs Against AAP MLA Kuldeep Kumar Over 2021 Tiranga Yatra
-https://www.verdictum.in/delhi-high-court/kuldeep-kumar-v-state-nct-of-delhi-2026dhc6236-aap-mla-2021-tiranga-yatra-1619160
-
-[Source Link](https://t.me/verdictumlegalupdates/28342)
-
----
-
-### 2026-08-04T08:02:28+00:00
-Supreme Court Asks JioStar To Approach Delhi High Court In TRAI Tariff Framework Dispute
-https://www.verdictum.in/supreme-court/jiostar-to-approach-delhi-high-court-in-trai-tariff-framework-dispute-1619155
-
-[Source Link](https://t.me/verdictumlegalupdates/28341)
-
----
-
-### 2026-08-04T07:32:47+00:00
-Valuable Ready Reckoner: Supreme Court Approves "Judgments And Gender" Publication On Adopting Sensitivity & Compassion In Sexual Offence Cases
-https://www.verdictum.in/supreme-court/sensitivity-and-compassion-in-judicial-processes-in-context-of-sexual-offences-1619154
-
-[Source Link](https://t.me/verdictumlegalupdates/28340)
-
----
-
-### 2026-08-04T07:02:46+00:00
-Concocting Fake Aadhaar, PAN Cards For Illegal Bangladeshi Immigrants Prima Facie Endangers India’s Sovereignty: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/sidul-mandal-v-state-of-karnataka-2026khc39308-fake-identity-cards-section-152-bns-1619144
-
-[Source Link](https://t.me/verdictumlegalupdates/28339)
-
----
-
-### 2026-08-04T06:33:05+00:00
-Benefit Of Defective Investigation Enures To Accused Where Substantive Evidence Is Infirm: Supreme Court Upholds Acquittal Of 20 Accused In Murder Case
-https://www.verdictum.in/supreme-court/nirmala-bai-devidas-chavhan-v-state-of-maharashtra-2026-insc-787-defective-investigation-1619147
-
-[Source Link](https://t.me/verdictumlegalupdates/28338)
-
----
-
-### 2026-08-04T06:02:04+00:00
-Nomination Of Another Person In Pension Records Cannot Override Legally Wedded Wife’s Family Pension Right: Gauhati High Court
-https://www.verdictum.in/guwahati-high-court/shibani-dutta-v-state-of-assam-2026gau-as10193-pension-legally-wedded-wife-1619111
-
-[Source Link](https://t.me/verdictumlegalupdates/28337)
 
 ---
 
