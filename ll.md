@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-05T06:03:12+00:00*
+*Last Updated: 2026-08-05T12:25:45+00:00*
 
 ---
 
-### 2026-08-05T06:03:12+00:00
-2026 LiveLaw (SC) 762 | Arjun Jani @ Tuntun Versus State of Orissa
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-762-arjun-jani-tuntun-versus-state-of-orissa-544387
+### 2026-08-05T12:25:45+00:00
+Judgments Are Retrospective Unless Expressly Made Prospective : Supreme Court
+https://www.livelaw.in/supreme-court/judgments-are-retrospective-unless-expressly-made-prospective-supreme-court-544471
 
-[Read on Telegram](https://t.me/livelawindia/116534)
-
----
-### 2026-08-05T06:11:02+00:00
-Empanelment Of Advocates At Employees State Insurance Corporation (ESIC)
-https://www.livelaw.in/job-updates/empanelment-of-advocates-at-employees-state-insurance-corporation-544389
-
-[Read on Telegram](https://t.me/livelawindia/116535)
+[Read on Telegram](https://t.me/livelawindia/116582)
 
 ---
-### 2026-08-05T06:12:02+00:00
-Program Executive (Legal) Vacancy At Defence Innovation Organisation (DIO)
-https://www.livelaw.in/job-updates/program-executive-legal-vacancy-at-defence-innovation-organisation-dio-544390
+### 2026-08-05T12:26:37+00:00
+MP High Court Extends Interim Protection Granted To Viral Kumbh Mela Star & Husband In FIR Alleging Child Marriage
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-continues-interim-protection-for-viral-kumbh-mela-star-in-plea-over-forged-birth-certificate-544472
 
-[Read on Telegram](https://t.me/livelawindia/116536)
-
----
-### 2026-08-05T06:18:02+00:00
-Calcutta High Court Dismisses Abhishek Banerjee's Plea To Travel Abroad For Eye Treatment After He Refuses To Appear Before Medical Board
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-dismisses-abhishek-banerjees-plea-to-travel-abroad-for-eye-treatment-after-he-refuses-to-appear-before-medical-board-544392
-
-[Read on Telegram](https://t.me/livelawindia/116537)
+[Read on Telegram](https://t.me/livelawindia/116583)
 
 ---
-### 2026-08-05T06:36:42+00:00
-E20 Petrol Policy: Bombay High Court Orders Takedown Of 'Defamatory' AI Videos Against Union Minister Nitin Gadkari
-https://www.livelaw.in/high-court/bombay-high-court/nitin-gadkari-e20-petrol-policy-defamation-takedown-ai-videos-544393
+### 2026-08-05T12:27:17+00:00
+2026 LiveLaw (SC) 766 | GOVERNMENT OF INDIA & ANR. VS. SRI DEVRAJ URS MEDICAL COLLEGE
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-766-government-of-india-anr-vs-sri-devraj-urs-medical-college-544473
 
-[Read on Telegram](https://t.me/livelawindia/116538)
-
----
-### 2026-08-05T06:44:53+00:00
-'Tomorrow Gen Alpha, Beta Will Come' : Petitioner Urges Supreme Court To Not Allow Withdrawal Of Cases Against Student Protesters
-https://www.livelaw.in/top-stories/tomorrow-gen-alpha-beta-will-come-petitioner-urges-supreme-court-to-not-withdraw-cases-against-student-protesters-544394
-
-[Read on Telegram](https://t.me/livelawindia/116539)
+[Read on Telegram](https://t.me/livelawindia/116584)
 
 ---
-### 2026-08-05T06:45:33+00:00
-Justice Vikram Nath Launches 'IBC Mantra'; Says Courtroom Remarks Now Reach Social Media Before Judges Reach Home
-https://www.livelaw.in/news-updates/justice-vikram-nath-launches-ibc-mantra-says-courtroom-remarks-now-reach-social-media-before-judges-reach-home-544395
+### 2026-08-05T12:31:37+00:00
+'Driven By Starvation': Gujarat High Court Grants Bail To Mother Booked For Causing Child's Death Over Demand For Food
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-bail-woman-child-death-stravation-544475
 
-[Read on Telegram](https://t.me/livelawindia/116540)
-
----
-### 2026-08-05T06:56:54+00:00
-Use Of Cone Speakers Banned In Public & Religious Places: Madras High Court Reiterates, Asks State To Take Action Against Violators
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-cone-speaker-banned-state-action-violators-544396
-
-[Read on Telegram](https://t.me/livelawindia/116541)
+[Read on Telegram](https://t.me/livelawindia/116585)
 
 ---
-### 2026-08-05T07:08:14+00:00
-YouTuber Can't Invoke Writ Jurisdiction To Restore Channel Deleted Over Alleged Copyright Strikes: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/youtube-copyright-strikes-channel-restoration-article-226-writ-544398
+### 2026-08-05T12:41:58+00:00
+Transfer Of Dissolved Society's Assets To Successor Company Valid: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-dissolving-society-transfer-property-to-company-544477
 
-[Read on Telegram](https://t.me/livelawindia/116542)
-
----
-### 2026-08-05T07:12:14+00:00
-Delhi High Court Orders Takedown Of Content Infringing Rights Of Physics Wallah Founder Alakh Pandey
-https://www.livelaw.in/high-court/delhi-high-court/alakh-pandey-physics-wallah-relief-takedown-infringing-content-personality-rights-544399
-
-[Read on Telegram](https://t.me/livelawindia/116543)
+[Read on Telegram](https://t.me/livelawindia/116586)
 
 ---
-### 2026-08-05T07:20:14+00:00
-Karnataka High Court Permits Masking Of Acquitted Woman's Name From Court Records, Search Results On Google & Indian Kanoon
-https://www.livelaw.in/high-court/karnataka-high-court/mask-acquitted-woman-name-court-record-google-indian-kanoon-search-results-right-to-be-forgotten-544400
+### 2026-08-05T12:47:38+00:00
+Comprehensive/Package Motor Insurance Covers Vehicle Occupants: Supreme Court Explains Different Types Of Policies
+https://www.livelaw.in/supreme-court/comprehensivepackage-motor-insurance-covers-vehicle-occupants-supreme-court-explains-different-types-of-policies-544478
 
-[Read on Telegram](https://t.me/livelawindia/116544)
-
----
-### 2026-08-05T07:27:44+00:00
-Madras High Court Relaxes Bail Condition On Senthil Balaji And Brother In ₹35 Crore MLA Poaching Case
-https://www.livelaw.in/high-court/madras-high-court/senthil-balaji-brother-bail-condition-relaxed-mla-poaching-case-544401
-
-[Read on Telegram](https://t.me/livelawindia/116545)
+[Read on Telegram](https://t.me/livelawindia/116587)
 
 ---
-### 2026-08-05T07:30:44+00:00
-Supreme Court Refuses To Entertain Plea Against SCBA Resolution Supporting Sonam Wangchuk, Allows To Invoke SCBA Process
-https://www.livelaw.in/top-stories/supreme-court-refuses-to-entertain-plea-against-scba-resolution-supporting-sonam-wangchuk-allows-to-invoke-scba-process-544403
+### 2026-08-05T12:52:38+00:00
+Consumer Cases Monthly Digest: July 2026
+https://www.livelaw.in/consumer-cases/consumer-cases-monthly-digest-july-2026-544479
 
-[Read on Telegram](https://t.me/livelawindia/116546)
-
----
-### 2026-08-05T07:44:04+00:00
-Chargesheet Filed After Completing Probe In All 5 Of Dileep's Media Trial FIRs: State Informs Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-media-trial-dileep-actress-assault-544405
-
-[Read on Telegram](https://t.me/livelawindia/116547)
+[Read on Telegram](https://t.me/livelawindia/116588)
 
 ---
-### 2026-08-05T07:50:04+00:00
-'In Public Interest': Karnataka High Court Upholds Fire NOC Mandate For Firecracker Traders Even Without Express Statutory Provision
-https://www.livelaw.in/high-court/karnataka-high-court/firecracker-shops-fire-department-noc-requirement-upheld-public-interest-544406
+### 2026-08-05T12:53:58+00:00
+Chhattisgarh High Court Refuses To Quash FIR Against Self-Styled Godman Accused Of Inducing Doctor To Pay ₹25 Lakh For 'Divine Rituals'
+https://www.livelaw.in/high-court/chhattisgarh-high-court/fir-spiritual-practitioner-cheating-25-lakh-divine-powers-544481
 
-[Read on Telegram](https://t.me/livelawindia/116548)
-
----
-### 2026-08-05T07:53:24+00:00
-Article 22(1) | Police Pay 'Scant Regard' To Arrest Safeguards, Scorn Judgments Enforcing Fundamental Rights : Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-article-22-constitution-of-indi-police-grounds-of-arrest-safeguards-fundamental-rights-544408
-
-[Read on Telegram](https://t.me/livelawindia/116549)
+[Read on Telegram](https://t.me/livelawindia/116589)
 
 ---
-### 2026-08-05T08:03:04+00:00
-Online Two-Day National Workshop On Changing Paradigms Of Intellectual Property: Opportunities, And The Road Ahead
-https://www.livelaw.in/lawschool/seminars/online-two-day-national-workshop-changing-paradigms-of-intellectual-property-544410
+### 2026-08-05T12:54:58+00:00
+'Overcome Drinking Habit, Care For Family': P&H High Court To Man Accused Of Assaulting Pregnant Wife For Refusing Sex Determination Test
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/man-accused-of-assaulting-pregnant-wife-refusing-foetal-sex-determination-test-gets-bail-544482
 
-[Read on Telegram](https://t.me/livelawindia/116550)
-
----
-### 2026-08-05T08:11:44+00:00
-Delhi High Court Dismisses PIL Seeking Review Of Parliament's Security Framework, Says Matter Is Beyond Writ Jurisdiction
-https://www.livelaw.in/high-court/delhi-high-court/pil-parliament-security-framework-dismissed-beyond-writ-jurisdiction-544411
-
-[Read on Telegram](https://t.me/livelawindia/116551)
+[Read on Telegram](https://t.me/livelawindia/116590)
 
 ---
-### 2026-08-05T08:22:54+00:00
-States Cannot Cite Financial Burden To Oppose Raising Judicial Officers' Retirement Age : Supreme Court
-https://www.livelaw.in/top-stories/states-cannot-cite-financial-burden-to-oppose-raising-judicial-officers-retirement-age-supreme-court-544415
+### 2026-08-05T13:05:18+00:00
+Chhattisgarh High Court Refuses Bail To Husband Accused Of Driving Pregnant Wife To Suicide Over Dowry Demand
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-denies-bail-husband-cruelty-death-pregnant-wife-544490
 
-[Read on Telegram](https://t.me/livelawindia/116552)
+[Read on Telegram](https://t.me/livelawindia/116591)
 
 ---
-### 2026-08-05T08:23:04+00:00
-Surat Demolitions: Gujarat High Court Closes Resident's Plea After Municipal Corporation Assures No Immediate Action Planned
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-surat-apprehension-demolition-action-corporation-544413
+### 2026-08-05T13:12:28+00:00
+Chhattisgarh High Court Quashes Departmental Exam Result, Says Syllabus Can't Be Changed Through Admit Cards Issued Days Before Exam
+https://www.livelaw.in/high-court/chhattisgarh-high-court/departmental-exam-result-subject-introduced-admit-cards-544480
 
-[Read on Telegram](https://t.me/livelawindia/116553)
+[Read on Telegram](https://t.me/livelawindia/116592)
+
+---
+### 2026-08-05T13:12:58+00:00
+Jammu Court Seeks Police Probe Report In ₹550-Crore Vaishno Devi Silver Adulteration Case, Orders Preservation Of Evidence
+https://www.livelaw.in/news-updates/jammu-court-seeks-police-probe-report-in-550-crore-vaishno-devi-silver-pilferage-case-orders-preservation-of-crucial-evidence-544496
+
+[Read on Telegram](https://t.me/livelawindia/116593)
+
+---
+### 2026-08-05T13:14:38+00:00
+ECIR Can Be Challenged Under Article 226, ED Can't Take Shelter Behind 'Internal Document' Label: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/writ-petition-challenging-ecir-maintainable-pmla-ed-544498
+
+[Read on Telegram](https://t.me/livelawindia/116594)
+
+---
+### 2026-08-05T13:21:20+00:00
+Minor's Signature Alone Not Valid Consent For Medical Termination Of Pregnancy: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/medical-termination-of-pregnancy-minors-signature-alone-not-valid-consent-544501
+
+[Read on Telegram](https://t.me/livelawindia/116595)
+
+---
+### 2026-08-05T13:28:10+00:00
+J&K&L High Court Refuses To Quash ₹65 Lakh Cheque Bounce Case, Says Lost Cheque Defence Must Be Tested At Trial
+https://www.livelaw.in/high-court/jammu-kashmir/lost-cheque-stop-payment-pleas-are-trial-defences-in-section-138-ni-act-cases-cant-be-decided-in-section-528-bnss-proceedings-jkl-high-court-544489
+
+[Read on Telegram](https://t.me/livelawindia/116596)
+
+---
+### 2026-08-05T13:30:10+00:00
+Property Ownership Or Tenancy Dispute Can't Stall Action Under Section 152 BNSS To Vacate Dangerous Building: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/magistrate-can-vacate-dangerous-building-despite-property-dispute-section-152-bnss-544502
+
+[Read on Telegram](https://t.me/livelawindia/116597)
+
+---
+### 2026-08-05T13:40:10+00:00
+MP High Court Upholds Judge's Dismissal, Says Protection For Bonafide Judicial Errors Doesn't Extend To Reckless Exercise Of Power
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-upholds-dismissal-of-civil-judge-over-reckless-conduct-544503
+
+[Read on Telegram](https://t.me/livelawindia/116598)
+
+---
+### 2026-08-05T13:52:10+00:00
+Writing 'Allowed' On Margin Of Delay Condonation Plea Without Reasons Is Not A Valid Judicial Order: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-quashes-section138-ni-act-proceedings-544484
+
+[Read on Telegram](https://t.me/livelawindia/116599)
+
+---
+### 2026-08-05T13:58:10+00:00
+Chhattisgarh High Court Modifies Judgment In RTI Case, Substitutes 'Bombarded' & 'Habitual Information Seeker' With Neutral Expressions
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-modifies-order-neutral-language-544491
+
+[Read on Telegram](https://t.me/livelawindia/116600)
+
+---
+### 2026-08-05T14:19:20+00:00
+LiveLaw Daily | Nitin Gadkari Deepfakes| Abhishek Banerjee| Senthil Balaji| Muthanga Case & more
+https://www.livelaw.in/podcast/nitin-gadkari-student-protests-abhishek-banerjee-clat-students-advocates-lawyers-news-ai-neet-544510
+
+[Read on Telegram](https://t.me/livelawindia/116601)
 
 ---
