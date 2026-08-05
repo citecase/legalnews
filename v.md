@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-05T14:33:22+00:00*
+*Last Updated: 2026-08-05T16:12:56+00:00*
+
+---
+
+### 2026-08-05T16:12:56+00:00
+Deputy Manager (Law) Vacancy At National Projects Construction Corporation Limited (NPCC)
+https://www.verdictum.in/job-updates/national-projects-construction-corporation-limited-1619258
+
+[Source Link](https://t.me/verdictumlegalupdates/28380)
+
+---
+
+### 2026-08-05T15:42:34+00:00
+Any Indecent Behaviour Inside Court Premises Can Be Taken Cognizance Of By Bar Council: Supreme Court
+https://www.verdictum.in/supreme-court/sudhendu-prakash-gautam-v-sl-chaudhary-2026-insc-791indecent-behavior-bar-council-1619268
+
+[Source Link](https://t.me/verdictumlegalupdates/28379)
+
+---
+
+### 2026-08-05T15:12:33+00:00
+Failure To Implead Company As Accused On Whose Account Cheque Was Drawn Amounts To Fatal Defect In Complaint Filed U/S.138 Of NI Act: Supreme Court
+https://www.verdictum.in/supreme-court/manjula-kapoor-v-the-state-of-himachal-pradesh-2026-insc-789-company-accused-ni-act-1619267
+
+[Source Link](https://t.me/verdictumlegalupdates/28378)
 
 ---
 
@@ -137,30 +161,6 @@ Deliver Decision Within 90 Days In Matters Closed For Judgment: Bombay High Cour
 https://www.verdictum.in/bombay-high-court/rajesh-r-hemrajani-v-income-tax-appellate-tribunal-rule-34-itat-rules-decision-90-days-1619224
 
 [Source Link](https://t.me/verdictumlegalupdates/28361)
-
----
-
-### 2026-08-05T06:02:46+00:00
-Mere Dispute On Correctness Of Expert Reports Won’t Justify Exercise Of Inherent Jurisdiction U/S.528 Of BNSS: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/dinesh-kumar-v-the-state-of-madhya-pradesh-2026mphc-jbp54355-expert-report-section-528-bnss-1619220
-
-[Source Link](https://t.me/verdictumlegalupdates/28360)
-
----
-
-### 2026-08-05T05:32:45+00:00
-Supreme Court Directs Nationwide Overhaul Of Motor Insurance Enforcement, Mandates Four-Layer Policy Structure And Extended Third-Party Cover
-https://www.verdictum.in/supreme-court/national-insurance-co-ltd-v-thungala-dhana-laxmi-citation-2026-insc-793-four-layer-policy-structure-motor-insurance-enforcement-1619216
-
-[Source Link](https://t.me/verdictumlegalupdates/28359)
-
----
-
-### 2026-08-05T05:03:04+00:00
-'Reflects High-Handedness & Red-Tapism': Delhi High Court Asks Assessing Officer To Appear To Explain Non-Return Of Assets Seized In 2010
-https://www.verdictum.in/delhi-high-court/shally-thapar-v-assistant-commissioner-of-income-tax-red-tapism-non-return-assets-1619212
-
-[Source Link](https://t.me/verdictumlegalupdates/28358)
 
 ---
 
