@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-04T12:34:55+00:00*
+*Last Updated: 2026-08-04T13:51:46+00:00*
 
 ---
 
-### 2026-08-04T12:34:55+00:00
-Gujarat High Court Suggests Area-Wise Sterilisation, Vaccination & Geo-Tagging Of Stray Dogs
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-state-sterilize-vaccinate-geo-tag-stray-dogs-territory-wise-544316
-
-[Read on Telegram](https://t.me/livelawindia/116486)
-
----
-### 2026-08-04T13:17:45+00:00
-Calcutta High Court Monthly Digest: July 2026
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-monthly-digest-july-2026-544192
-
-[Read on Telegram](https://t.me/livelawindia/116487)
-
----
-### 2026-08-04T13:27:46+00:00
-Supreme Court Urges States/UTs To Consider Reservation For Military Cadets Injured During Training In Quota For Ex-Military Personnel
-https://www.livelaw.in/top-stories/supreme-court-urges-states-uts-to-consider-reservation-outboarded-military-cadets-quota-for-ex-military-personnel-544319
-
-[Read on Telegram](https://t.me/livelawindia/116488)
-
----
 ### 2026-08-04T13:51:46+00:00
 Death Sentences Set Aside In Minor's Rape-Murder Case: P&H High Court Remands Matter After Finding Defects In Trial
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/death-sentences-set-aside-minors-rape-murder-case-trial-defects-544321
@@ -142,5 +121,26 @@ Supreme Court Daily Round-Up : August 4, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-4-2026-544346
 
 [Read on Telegram](https://t.me/livelawindia/116505)
+
+---
+### 2026-08-05T02:08:56+00:00
+NLU Delhi Conducts Deeksharambh 2026 Student Induction Programme For Postgraduate Students
+https://www.livelaw.in/lawschool/news/nlu-delhi-conducts-deeksharambh-student-induction-programme-postgraduate-students-544350
+
+[Read on Telegram](https://t.me/livelawindia/116506)
+
+---
+### 2026-08-05T02:17:45+00:00
+Cross-Institutional Team Wins FDI Moot South Asia Rounds 2026
+https://www.livelaw.in/lawschool/news/cross-institutional-team-wins-fdi-moot-south-asia-rounds-2026-544351
+
+[Read on Telegram](https://t.me/livelawindia/116507)
+
+---
+### 2026-08-05T02:23:25+00:00
+RPNL Prayagraj Holds Orientation Programme For 2026–2031 Batch, Signs MoU With HPNLU Shimla
+https://www.livelaw.in/lawschool/news/rpnl-prayagraj-holds-orientation-programme-for-20262031-batch-signs-mou-with-hpnlu-shimla-544352
+
+[Read on Telegram](https://t.me/livelawindia/116508)
 
 ---
