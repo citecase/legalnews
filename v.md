@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-06T09:02:52+00:00*
+*Last Updated: 2026-08-06T14:52:34+00:00*
+
+---
+
+### 2026-08-06T14:52:34+00:00
+‘Washed-Off Theory’ May Operate In Promotional Matters But Not For Assessing Compulsory Retirement: Supreme Court
+https://www.verdictum.in/supreme-court/sushil-sharma-v-union-of-india-and-others-2026-insc-809-washed-off-theory-compulsory-retirement-1619343
+
+[Source Link](https://t.me/verdictumlegalupdates/28400)
+
+---
+
+### 2026-08-06T14:13:13+00:00
+Karnataka High Court Refuses To Quash FIR Against Accused Who Claimed To Be Congress Leaders In ₹5.30 Crores Government Job Fraud Case
+https://www.verdictum.in/karnataka-high-court/kumari-shamshad-begum-and-another-v-state-of-karnataka-and-another-2026khc36330-1619338
+
+[Source Link](https://t.me/verdictumlegalupdates/28399)
+
+---
+
+### 2026-08-06T13:32:52+00:00
+Order Extending UAPA Investigation Time Is Interlocutory And Not Appealable Under Section 21 NIA Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/hurba-petro-and-others-v-union-of-india-and-others-2026dhc6261-db-1619337
+
+[Source Link](https://t.me/verdictumlegalupdates/28398)
+
+---
+
+### 2026-08-06T12:52:31+00:00
+Deposit U/S 34 Arbitration Act By Corporate Debtor Does Not Amount To Payment To Award-Holder; Remains As Its Asset: Delhi High Court
+https://www.verdictum.in/delhi-high-court/mcnally-bharat-engineering-company-limited-v-metso-india-pvt-ltd-2026dhc6218-deposit-us-34-arbitration-act-1619336
+
+[Source Link](https://t.me/verdictumlegalupdates/28397)
+
+---
+
+### 2026-08-06T12:02:29+00:00
+State Can’t Pick & Choose: Supreme Court Restores Order Directing Watchman’s Regularization
+https://www.verdictum.in/supreme-court/a-velayutham-v-the-state-of-tamil-nadu-2026-insc-801-state-regularisation-service-1619331
+
+[Source Link](https://t.me/verdictumlegalupdates/28396)
+
+---
+
+### 2026-08-06T11:33:18+00:00
+Criminal Law Can’t Be A Weapon For Retaliating Against Investigating Officers: Madhya Pradesh High Court Quashes Criminal Proceedings Against Police Officers
+https://www.verdictum.in/madhya-pradesh-high-court/rajesh-singh-chandel-v-anoop-rana-and-others-2026mphc-gwl23163-mp-police-1619330
+
+[Source Link](https://t.me/verdictumlegalupdates/28395)
+
+---
+
+### 2026-08-06T11:02:57+00:00
+Non-Signatory Consultant Shareholder Can Be Veritable Party For Arbitration Due To His Involvement In Performance Of Underlying Contract: Supreme Court
+https://www.verdictum.in/supreme-court/kkh-finvest-pvt-ltd-v-ashiesh-shukla-2026-insc-803-non-signatory-consultant-shareholder-1619329
+
+[Source Link](https://t.me/verdictumlegalupdates/28394)
+
+---
+
+### 2026-08-06T10:33:16+00:00
+PMLA Court Can't Take Cognizance In Absence Of Sanction: Madras High Court Rejects ED Plea To Transfer Former Minister’s Disproportionate Assets Trial
+https://www.verdictum.in/madras-high-court/assistant-director-directorate-of-enforcement-v-additional-superintendent-of-police-directorate-of-vigilance-anti-corruption-2026mhc3219-1619328
+
+[Source Link](https://t.me/verdictumlegalupdates/28393)
+
+---
+
+### 2026-08-06T10:02:55+00:00
+Rani Kapur-Priya Kapur Dispute: Supreme Court 'Hopeful That Matter May Be Resolved Amicably
+https://www.verdictum.in/supreme-court/rani-kapur-priya-kapur-dispute-hopeful-amicable-resolution-1619327
+
+[Source Link](https://t.me/verdictumlegalupdates/28392)
+
+---
+
+### 2026-08-06T09:32:13+00:00
+Deliberate And Unexplained Delay In Setting Criminal Law In Motion May Itself Justify Quashing Of Belated Proceedings: Supreme Court
+https://www.verdictum.in/supreme-court/anita-maurya-ors-v-state-of-uttar-pradesh-anr-2026-insc-806-criminal-1619325
+
+[Source Link](https://t.me/verdictumlegalupdates/28391)
 
 ---
 
@@ -81,86 +161,6 @@ Can’t Remove Employee For More Than One Decade Solely On Ground Criminal Case 
 https://www.verdictum.in/supreme-court/spoconstable-irb-satpal-singh-v-state-of-punjab-2026-insc-798-employee-criminal-case-1619284
 
 [Source Link](https://t.me/verdictumlegalupdates/28381)
-
----
-
-### 2026-08-05T16:12:56+00:00
-Deputy Manager (Law) Vacancy At National Projects Construction Corporation Limited (NPCC)
-https://www.verdictum.in/job-updates/national-projects-construction-corporation-limited-1619258
-
-[Source Link](https://t.me/verdictumlegalupdates/28380)
-
----
-
-### 2026-08-05T15:42:34+00:00
-Any Indecent Behaviour Inside Court Premises Can Be Taken Cognizance Of By Bar Council: Supreme Court
-https://www.verdictum.in/supreme-court/sudhendu-prakash-gautam-v-sl-chaudhary-2026-insc-791indecent-behavior-bar-council-1619268
-
-[Source Link](https://t.me/verdictumlegalupdates/28379)
-
----
-
-### 2026-08-05T15:12:33+00:00
-Failure To Implead Company As Accused On Whose Account Cheque Was Drawn Amounts To Fatal Defect In Complaint Filed U/S.138 Of NI Act: Supreme Court
-https://www.verdictum.in/supreme-court/manjula-kapoor-v-the-state-of-himachal-pradesh-2026-insc-789-company-accused-ni-act-1619267
-
-[Source Link](https://t.me/verdictumlegalupdates/28378)
-
----
-
-### 2026-08-05T14:33:22+00:00
-Supreme Court Directs MoEF&CC To Frame Guidelines For Imposition & Collection Of Environmental Compensation Under SWM Rules
-https://www.verdictum.in/supreme-court/amravati-municipal-corporation-v-ganesh-dadarao-anasane-2026-insc-796-1619266
-
-[Source Link](https://t.me/verdictumlegalupdates/28377)
-
----
-
-### 2026-08-05T14:02:40+00:00
-Apex Court Decisions Apply Retrospectively Unless Expressly Made Prospective: Supreme Court
-https://www.verdictum.in/supreme-court/government-of-india-anr-v-sri-devraj-urs-medical-college-2026-insc-799-1619256
-
-[Source Link](https://t.me/verdictumlegalupdates/28376)
-
----
-
-### 2026-08-05T13:32:39+00:00
-Order XVIII Rule 17 CPC Does Not Permit Party To Cross-Examine Recalled Witness: Supreme Court
-https://www.verdictum.in/supreme-court/k-bharathamma-v-bandaru-sakku-bai-2026-insc-795-order-xviii-rule-17-cpc-1619257
-
-[Source Link](https://t.me/verdictumlegalupdates/28375)
-
----
-
-### 2026-08-05T13:02:53+00:00
-Is Partial Noise-Based Relaxations For Certain Types Of Crackers Possible: Supreme Court Asks CPCB
-https://www.verdictum.in/supreme-court/partial-noise-based-relaxation-crackers-possible-cpcb-1619264
-
-[Source Link](https://t.me/verdictumlegalupdates/28374)
-
----
-
-### 2026-08-05T12:33:12+00:00
-Confession Extracted By Third-Degree Methods, 22 Years Erased Out Of Accused’s Life: Supreme Court Grants Acquittal In Triple Murder Case
-https://www.verdictum.in/supreme-court/arjun-jani-tuntun-v-state-of-orissa-2026-insc-802-confession-acquittal-triple-murder-1619255
-
-[Source Link](https://t.me/verdictumlegalupdates/28373)
-
----
-
-### 2026-08-05T12:02:31+00:00
-Once Signature On Cheque Is Admitted, It Means Accused Was Aware Of Its Contents Unless Proved Otherwise: Supreme Court
-https://www.verdictum.in/supreme-court/kuntegowda-v-thurubaiah-2026-insc-790-conviction-us-138-ni-act-exceeded-revisional-jurisdiction-1619253
-
-[Source Link](https://t.me/verdictumlegalupdates/28372)
-
----
-
-### 2026-08-05T11:33:19+00:00
-You Think Parliament Is Incapable Of Taking Care Of Its Own Security: Delhi High Court Refuses To Entertain PIL Concerning Safety Of Parliament
-https://www.verdictum.in/delhi-high-court/pil-concerning-safety-of-parliament-refused-entertainment-1619252
-
-[Source Link](https://t.me/verdictumlegalupdates/28371)
 
 ---
 
