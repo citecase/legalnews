@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-05T14:22:40+00:00*
+*Last Updated: 2026-08-06T06:27:23+00:00*
 
 ---
 
-### 2026-08-05T14:22:40+00:00
-Writ Petition Not Maintainable Against CMD Of Government Company As It Is Not A 'Public Office': Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/quo-warranto-not-maintainable-cmd-government-company-not-public-office-544486
+### 2026-08-06T06:27:23+00:00
+Delhi High Court Directs Police Action Against Street Vendors Selling Counterfeit Branded Goods In Karol Bagh
+https://www.livelaw.in/high-court/delhi-high-court/act-against-karol-bagh-street-vendors-selling-counterfeit-branded-goods-544578
 
-[Read on Telegram](https://t.me/livelawindia/116602)
-
----
-### 2026-08-05T14:27:00+00:00
-Shiv Sena Case | Political Party's Decision Must Prevail Over Legislative Party's Majority, Says Supreme Court In Hearing
-https://www.livelaw.in/top-stories/supreme-court-shiv-sena-eknath-shinde-uddhav-thackeray-speaker-refusal-to-disqualify-mlas-defection-political-party-control-over-legislature-party-544511
-
-[Read on Telegram](https://t.me/livelawindia/116603)
+[Read on Telegram](https://t.me/livelawindia/116649)
 
 ---
-### 2026-08-05T14:32:30+00:00
-Why UN's Latest Warning On Women's Rights Should Concern Us All ?
-https://www.livelaw.in/articles/un-latest-warning-women-rights-should-concern-us-all-544102
+### 2026-08-06T06:33:03+00:00
+Andhra Pradesh High Court Quashes Preventive Detention Over 'Stale' Grounds, Ignored Bail Orders
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-preventive-detention-sustained-stale-grounds-544563
 
-[Read on Telegram](https://t.me/livelawindia/116604)
-
----
-### 2026-08-05T14:32:40+00:00
-'Wolf In White Coat': Karnataka High Court Restores Doctor's Suspension In Sexual Harassment Case, Pulls Up IAS Officer For Protecting Him
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-cancels-reinstatement-doctor-accused-sexual-harassment-544512
-
-[Read on Telegram](https://t.me/livelawindia/116605)
+[Read on Telegram](https://t.me/livelawindia/116650)
 
 ---
-### 2026-08-05T14:42:20+00:00
-Kerala High Court Denies Pre-Arrest Bail To Man Booked For 'Threatening' Social Media Posts Against Police Officer & Family
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kothamangalam-threatening-social-media-posts-544513
+### 2026-08-06T06:42:24+00:00
+Prisoner's Parole Can't Be Denied Solely Because Six Months Haven't Elapsed Since Previous Release: Himachal Pradesh High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-prison-manual-second-parole-good-conduct-prisoners-act-544488
 
-[Read on Telegram](https://t.me/livelawindia/116606)
-
----
-### 2026-08-05T14:43:00+00:00
-SC Candidates Availing Domicile-Based Relaxation Eligible For Selection Under Open Merit In BSF Recruitment: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/sc-candidates-availing-jk-domicile-based-physical-relaxation-eligible-for-selection-under-open-merit-in-bsf-recruitment-jkl-high-court-544492
-
-[Read on Telegram](https://t.me/livelawindia/116607)
+[Read on Telegram](https://t.me/livelawindia/116651)
 
 ---
-### 2026-08-05T15:04:40+00:00
-MP High Court Issues Notice On Congress Leader's Plea Against Rejection Of Rajya Sabha Nomination, Election Of BJP MPs
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-issues-notice-to-former-congress-mp-against-bjp-members-elections-544516
+### 2026-08-06T06:49:24+00:00
+Karnataka High Court Transfers Judicial Officer Involved In Road-Rage Incident
+https://www.livelaw.in/news-updates/karnataka-high-court-transfers-judicial-officer-involved-in-road-rage-incident-544583
 
-[Read on Telegram](https://t.me/livelawindia/116608)
-
----
-### 2026-08-05T15:07:30+00:00
-State-Owned Corporations Can't Cite Financial Constraints To Deny Pensionary Benefits: Himachal Pradesh High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-financial-crunch-deny-pension-state-corporations-white-elephants-544487
-
-[Read on Telegram](https://t.me/livelawindia/116609)
+[Read on Telegram](https://t.me/livelawindia/116652)
 
 ---
-### 2026-08-05T15:18:10+00:00
-Loan Amount Not 'Entrusted Property'; Mere Failure To Repay Doesn't Constitute Criminal Breach Of Trust: Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-loan-amount-entrusted-property-failure-repay-criminal-breach-of-trust-544485
+### 2026-08-06T06:52:44+00:00
+Muslim Husband Can't Seek Declaration Of Divorce Solely On Basis Of 'Fatwa': MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/muslim-husband-cant-seek-divorce-based-on-masjid-committee-fatwa-544584
 
-[Read on Telegram](https://t.me/livelawindia/116610)
-
----
-### 2026-08-05T15:18:21+00:00
-Kerala High Court Orders Vigilance Probe Into Alleged Irregularities In Milma Ghee Procurement For Sabarimala
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-vigilance-probe-irregularities-milma-ghee-procurement-sabarimala-544522
-
-[Read on Telegram](https://t.me/livelawindia/116611)
+[Read on Telegram](https://t.me/livelawindia/116653)
 
 ---
-### 2026-08-05T15:18:31+00:00
-TV9 vs TV19: Kolkata Court Restrains Use Of 'TV19' Marks, Says Prima Facie Similarity May Cause Viewer Confusion
-https://www.livelaw.in/news-updates/tv9-vs-tv19-kolkata-court-restrains-use-of-tv19-marks-says-prima-facie-similarity-may-cause-viewer-confusion-544500
+### 2026-08-06T06:53:24+00:00
+International Conference On The Interconnection Between Indian Knowledge Systems, Law, Political Theory, and Economics
+https://www.livelaw.in/lawschool/seminars/international-conference-interconnection-between-indian-knowledge-systems-and-law-political-theory-economics-544585
 
-[Read on Telegram](https://t.me/livelawindia/116612)
-
----
-### 2026-08-05T15:35:51+00:00
-'Nobody Is Prohibiting Practice Of Religion': Bombay High Court Says PoP Idol Immersion Case Is Limited To Environmental Issue
-https://www.livelaw.in/high-court/bombay-high-court/ganesh-visarjan-pop-idol-immersion-essential-religious-practice-questions-544524
-
-[Read on Telegram](https://t.me/livelawindia/116613)
+[Read on Telegram](https://t.me/livelawindia/116654)
 
 ---
-### 2026-08-05T15:37:31+00:00
-Centre Only Appoints Judges Who Have Its Ideology : Menaka Guruswamy In Rajya Sabha
-https://www.livelaw.in/news-updates/centre-only-appoints-judges-who-have-its-ideology-menaka-guruswamy-in-rajya-sabha-544525
+### 2026-08-06T07:02:54+00:00
+SARFAESI Act | Allahabad High Court Refuses To Fast-Track Recovery Of Possession, Says Executing Authority May Fix Its Own Priority
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-authority-executing-delivery-possession-order-sarfaesi-act-544580
 
-[Read on Telegram](https://t.me/livelawindia/116614)
-
----
-### 2026-08-05T15:40:31+00:00
-Central Excise | 'Mere Grouping And Unpacking Does Not Attract Excise Duty', Supreme Court Dismisses Revenue's ₹17.86 Crore Demand Against Xerox
-https://www.livelaw.in/supreme-court/central-excise-mere-grouping-and-unpacking-does-not-attract-excise-duty-supreme-court-dismisses-revenues-1786-crore-demand-against-xerox-544527
-
-[Read on Telegram](https://t.me/livelawindia/116615)
+[Read on Telegram](https://t.me/livelawindia/116655)
 
 ---
-### 2026-08-05T15:41:51+00:00
-2026 LiveLaw (SC) 767  |  COMMISSIONER OF CENTRAL EXCISE, HYDERABAD-IV VERSUS M/S XEROX INDIA LTD. & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-767-commissioner-of-central-excise-hyderabad-iv-versus-ms-xerox-india-ltd-ors-544528
+### 2026-08-06T07:05:54+00:00
+Supreme Court Takes Note Of Lucknow Coaching Centre Fire, Issues Contempt Notice To LDA Vice Chairman
+https://www.livelaw.in/top-stories/supreme-court-takes-note-of-lucknow-coaching-centre-fire-issues-contempt-notice-to-lda-vice-chairman-544587
 
-[Read on Telegram](https://t.me/livelawindia/116616)
-
----
-### 2026-08-05T15:58:51+00:00
-When Can ECI Choose Not To Hold Bye-Election? Supreme Court To Interpret S.151A RP Act
-https://www.livelaw.in/top-stories/supreme-court-representation-of-people-act-section-151a-bye-elections-whether-condition-of-less-than-1-year-remainder-term-mandatory-544531
-
-[Read on Telegram](https://t.me/livelawindia/116617)
+[Read on Telegram](https://t.me/livelawindia/116656)
 
 ---
-### 2026-08-05T16:13:01+00:00
-Proof Of Saptapadi Ceremony Not Required At Cognizance Stage In Bigamy Complaint: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-proof-saptapadi-required-cognizance-stage-bigamy-complaint-544495
+### 2026-08-06T07:14:14+00:00
+J&K State Commission Holds United India Insurance Liable For Wrongfully Repudiating Excavator Damage Claim
+https://www.livelaw.in/consumer-cases/jk-state-commission-holds-united-india-insurance-liable-for-wrongfully-repudiating-excavator-damage-claim-544589
 
-[Read on Telegram](https://t.me/livelawindia/116618)
-
----
-### 2026-08-05T16:18:01+00:00
-Tree Officer Can't Permit Tree Felling Merely Because They Obstruct Building Entrance: Delhi High Court Holds Two Officials Guilty Of Contempt
-https://www.livelaw.in/high-court/delhi-high-court/tree-officer-cant-permit-tree-felling-merely-because-they-obstruct-building-entrance-delhi-high-court-holds-two-officials-guilty-of-contempt-544537
-
-[Read on Telegram](https://t.me/livelawindia/116619)
+[Read on Telegram](https://t.me/livelawindia/116657)
 
 ---
-### 2026-08-05T16:41:41+00:00
-Telangana High Court Rejects Plea Challenging Election Of BRS MLA KT Rama Rao
-https://www.livelaw.in/high-court/telangana-high-court/brs-mla-ktr-kt-rama-rao-2023-election-victory-challenge-rejected-544539
+### 2026-08-06T07:17:54+00:00
+Convictions In 2003 Muthanga Land Struggle Case Require 'Thorough Scrutiny': Kerala High Court Observes Orally
+https://www.livelaw.in/high-court/kerala-high-court/2003-muthanga-land-struggle-conviction-require-scrutiny-trial-court-record-appeal-544591
 
-[Read on Telegram](https://t.me/livelawindia/116620)
+[Read on Telegram](https://t.me/livelawindia/116658)
 
 ---
-### 2026-08-05T17:22:51+00:00
-Supreme Court Daily Round-Up : August 5, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-5-2026-544533
+### 2026-08-06T07:21:34+00:00
+Trade, Law And Development: Call for Submissions – Special Issue "Reimagining Global Trade: Industrial Policy and Strategic Autonomy In A Changing Global Order"
+https://www.livelaw.in/lawschool/call-for-papers/trade-law-and-development-call-for-submissions-special-issue-reimagining-global-trade-544592
 
-[Read on Telegram](https://t.me/livelawindia/116621)
+[Read on Telegram](https://t.me/livelawindia/116659)
+
+---
+### 2026-08-06T07:27:14+00:00
+Supreme Court Flags Coaching Institutes Running In Commercial Areas In Jaipur
+https://www.livelaw.in/top-stories/supreme-court-flags-coaching-institutes-running-in-commercial-areas-in-jaipur-544593
+
+[Read on Telegram](https://t.me/livelawindia/116660)
+
+---
+### 2026-08-06T07:36:54+00:00
+Delhi High Court Stays Action Against 30 Doctors In Pharma Freebies Case, Says Anonymous Complaint Require Examination
+https://www.livelaw.in/high-court/delhi-high-court/doctors-disciplinary-action-pharma-company-sponsored-trips-544594
+
+[Read on Telegram](https://t.me/livelawindia/116661)
+
+---
+### 2026-08-06T07:44:44+00:00
+Duty To Maintain Courtesy Towards Colleagues Can't Convert Every Disagreement Or Fair Criticism Into Misconduct: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-requirement-courtesy-colleagues-disagreement-fair-criticism-misconduct-544596
+
+[Read on Telegram](https://t.me/livelawindia/116662)
+
+---
+### 2026-08-06T07:48:04+00:00
+Preventive Detention Orders Passed Without Application Of Mind 'Deplorable': Allahabad High Court Urges Union Govt To Redress Situation
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-preventive-detention-orders-without-application-mind-deplorable-union-government-544598
+
+[Read on Telegram](https://t.me/livelawindia/116663)
+
+---
+### 2026-08-06T07:52:24+00:00
+Supreme Court Allows Asaram To Engage Caregiver In Prison; Deprecates Obtaining Of Parole From HC By Suppressing Plea In SC
+https://www.livelaw.in/top-stories/supreme-court-rape-conviction-self-styled-godman-asaram-can-engage-trained-caregiver-for-assistance-no-hospitalization-544600
+
+[Read on Telegram](https://t.me/livelawindia/116664)
+
+---
+### 2026-08-06T07:53:04+00:00
+'Why Not Have Full-Time Administrator For Lakshadweep?': Kerala High Court Asks In PIL Alleging Maladministration In Union Territory
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-lakshadweep-administration-full-time-544597
+
+[Read on Telegram](https://t.me/livelawindia/116665)
+
+---
+### 2026-08-06T08:02:24+00:00
+Wife's Inability To Establish Cruelty Doesn't Necessarily Mean She Left Matrimonial Home Without Reason: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-wife-cruelty-inability-leaving-matrimonial-home-544599
+
+[Read on Telegram](https://t.me/livelawindia/116666)
+
+---
+### 2026-08-06T08:30:24+00:00
+Allahabad High Court Orders Fresh Notices Before Demolition Of Illegally Constructed Lawyers' Chambers in Lucknow
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-fresh-notices-demolition-illegal-lawyers-chambers-lucknow-544606
+
+[Read on Telegram](https://t.me/livelawindia/116667)
+
+---
+### 2026-08-06T08:37:54+00:00
+'Can't Grant Relief Beyond Pleadings': AP High Court Sets Aside Status Quo Order On Mutation Entries, Says No Such Prayer Was Made
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-sets-aside-status-quo-order-mutation-entries-544603
+
+[Read on Telegram](https://t.me/livelawindia/116668)
 
 ---
