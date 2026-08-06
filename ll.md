@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-06T06:27:23+00:00*
+*Last Updated: 2026-08-06T12:08:15+00:00*
 
 ---
 
-### 2026-08-06T06:27:23+00:00
-Delhi High Court Directs Police Action Against Street Vendors Selling Counterfeit Branded Goods In Karol Bagh
-https://www.livelaw.in/high-court/delhi-high-court/act-against-karol-bagh-street-vendors-selling-counterfeit-branded-goods-544578
+### 2026-08-06T12:08:15+00:00
+Doctors Assault: Bombay High Court Inclined To Grant Bail To Shiv Sena Corporator; Says Will Impose Strictest Conditions, Fast-Track Trial
+https://www.livelaw.in/high-court/bombay-high-court/ramesh-mhatre-doctors-assault-bail-investigation-complete-544652
 
-[Read on Telegram](https://t.me/livelawindia/116649)
-
----
-### 2026-08-06T06:33:03+00:00
-Andhra Pradesh High Court Quashes Preventive Detention Over 'Stale' Grounds, Ignored Bail Orders
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-preventive-detention-sustained-stale-grounds-544563
-
-[Read on Telegram](https://t.me/livelawindia/116650)
+[Read on Telegram](https://t.me/livelawindia/116690)
 
 ---
-### 2026-08-06T06:42:24+00:00
-Prisoner's Parole Can't Be Denied Solely Because Six Months Haven't Elapsed Since Previous Release: Himachal Pradesh High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-prison-manual-second-parole-good-conduct-prisoners-act-544488
+### 2026-08-06T12:15:35+00:00
+Once Claimant Files Affidavit On Deceased Carrying Valid Ticket, Burden To Disprove Claim Shifts On Railways: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-absence-railway-ticket-bonafide-passenger-compensation-544653
 
-[Read on Telegram](https://t.me/livelawindia/116651)
-
----
-### 2026-08-06T06:49:24+00:00
-Karnataka High Court Transfers Judicial Officer Involved In Road-Rage Incident
-https://www.livelaw.in/news-updates/karnataka-high-court-transfers-judicial-officer-involved-in-road-rage-incident-544583
-
-[Read on Telegram](https://t.me/livelawindia/116652)
+[Read on Telegram](https://t.me/livelawindia/116691)
 
 ---
-### 2026-08-06T06:52:44+00:00
-Muslim Husband Can't Seek Declaration Of Divorce Solely On Basis Of 'Fatwa': MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/muslim-husband-cant-seek-divorce-based-on-masjid-committee-fatwa-544584
+### 2026-08-06T12:17:15+00:00
+'Washed-Off Theory' Doesn't Apply While Deciding If Employee Is Fit To Be Retained : Supreme Court
+https://www.livelaw.in/supreme-court/washed-off-theory-doesnt-apply-while-deciding-if-employee-is-fit-to-be-retained-supreme-court-544654
 
-[Read on Telegram](https://t.me/livelawindia/116653)
-
----
-### 2026-08-06T06:53:24+00:00
-International Conference On The Interconnection Between Indian Knowledge Systems, Law, Political Theory, and Economics
-https://www.livelaw.in/lawschool/seminars/international-conference-interconnection-between-indian-knowledge-systems-and-law-political-theory-economics-544585
-
-[Read on Telegram](https://t.me/livelawindia/116654)
+[Read on Telegram](https://t.me/livelawindia/116692)
 
 ---
-### 2026-08-06T07:02:54+00:00
-SARFAESI Act | Allahabad High Court Refuses To Fast-Track Recovery Of Possession, Says Executing Authority May Fix Its Own Priority
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-authority-executing-delivery-possession-order-sarfaesi-act-544580
+### 2026-08-06T12:23:55+00:00
+2026 LiveLaw (SC) 768|  SUSHIL SHARMA VERSUS UNION OF INDIA AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-768-sushil-sharma-versus-union-of-india-and-others-544656
 
-[Read on Telegram](https://t.me/livelawindia/116655)
-
----
-### 2026-08-06T07:05:54+00:00
-Supreme Court Takes Note Of Lucknow Coaching Centre Fire, Issues Contempt Notice To LDA Vice Chairman
-https://www.livelaw.in/top-stories/supreme-court-takes-note-of-lucknow-coaching-centre-fire-issues-contempt-notice-to-lda-vice-chairman-544587
-
-[Read on Telegram](https://t.me/livelawindia/116656)
+[Read on Telegram](https://t.me/livelawindia/116693)
 
 ---
-### 2026-08-06T07:14:14+00:00
-J&K State Commission Holds United India Insurance Liable For Wrongfully Repudiating Excavator Damage Claim
-https://www.livelaw.in/consumer-cases/jk-state-commission-holds-united-india-insurance-liable-for-wrongfully-repudiating-excavator-damage-claim-544589
+### 2026-08-06T12:27:15+00:00
+Municipal Bodies Can't Recover Rent Dues As Arrears Of Land Revenue, May File Civil Suit: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-rent-nagar-palika-tenant-recovered-arrears-land-revenue-544657
 
-[Read on Telegram](https://t.me/livelawindia/116657)
-
----
-### 2026-08-06T07:17:54+00:00
-Convictions In 2003 Muthanga Land Struggle Case Require 'Thorough Scrutiny': Kerala High Court Observes Orally
-https://www.livelaw.in/high-court/kerala-high-court/2003-muthanga-land-struggle-conviction-require-scrutiny-trial-court-record-appeal-544591
-
-[Read on Telegram](https://t.me/livelawindia/116658)
+[Read on Telegram](https://t.me/livelawindia/116694)
 
 ---
-### 2026-08-06T07:21:34+00:00
-Trade, Law And Development: Call for Submissions – Special Issue "Reimagining Global Trade: Industrial Policy and Strategic Autonomy In A Changing Global Order"
-https://www.livelaw.in/lawschool/call-for-papers/trade-law-and-development-call-for-submissions-special-issue-reimagining-global-trade-544592
+### 2026-08-06T12:37:35+00:00
+Chennai Court Issues Non-Bailable Warrant Against Former Minister Ponmudi In Hate Speech Case
+https://www.livelaw.in/news-updates/former-minister-ponmudi-hate-speech-case-non-bailable-warrant-issue-544661
 
-[Read on Telegram](https://t.me/livelawindia/116659)
-
----
-### 2026-08-06T07:27:14+00:00
-Supreme Court Flags Coaching Institutes Running In Commercial Areas In Jaipur
-https://www.livelaw.in/top-stories/supreme-court-flags-coaching-institutes-running-in-commercial-areas-in-jaipur-544593
-
-[Read on Telegram](https://t.me/livelawindia/116660)
+[Read on Telegram](https://t.me/livelawindia/116695)
 
 ---
-### 2026-08-06T07:36:54+00:00
-Delhi High Court Stays Action Against 30 Doctors In Pharma Freebies Case, Says Anonymous Complaint Require Examination
-https://www.livelaw.in/high-court/delhi-high-court/doctors-disciplinary-action-pharma-company-sponsored-trips-544594
+### 2026-08-06T12:41:05+00:00
+Arbitration | Involvement In Performance Of Underlying Contract A Factor To Decide If Non-Signatory Bound By Agreement : Supreme Court
+https://www.livelaw.in/supreme-court/arbitration-involvement-in-performance-of-underlying-contract-a-factor-to-decide-if-non-signatory-bound-by-agreement-supreme-court-544662
 
-[Read on Telegram](https://t.me/livelawindia/116661)
-
----
-### 2026-08-06T07:44:44+00:00
-Duty To Maintain Courtesy Towards Colleagues Can't Convert Every Disagreement Or Fair Criticism Into Misconduct: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-requirement-courtesy-colleagues-disagreement-fair-criticism-misconduct-544596
-
-[Read on Telegram](https://t.me/livelawindia/116662)
+[Read on Telegram](https://t.me/livelawindia/116696)
 
 ---
-### 2026-08-06T07:48:04+00:00
-Preventive Detention Orders Passed Without Application Of Mind 'Deplorable': Allahabad High Court Urges Union Govt To Redress Situation
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-preventive-detention-orders-without-application-mind-deplorable-union-government-544598
+### 2026-08-06T12:42:25+00:00
+2026 LiveLaw (SC) 769 | KKH Finvest Pvt. Ltd. and another versus Ashiesh Shukla and others
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-769-kkh-finvest-pvt-ltd-and-another-versus-ashiesh-shukla-and-others-544663
 
-[Read on Telegram](https://t.me/livelawindia/116663)
-
----
-### 2026-08-06T07:52:24+00:00
-Supreme Court Allows Asaram To Engage Caregiver In Prison; Deprecates Obtaining Of Parole From HC By Suppressing Plea In SC
-https://www.livelaw.in/top-stories/supreme-court-rape-conviction-self-styled-godman-asaram-can-engage-trained-caregiver-for-assistance-no-hospitalization-544600
-
-[Read on Telegram](https://t.me/livelawindia/116664)
+[Read on Telegram](https://t.me/livelawindia/116697)
 
 ---
-### 2026-08-06T07:53:04+00:00
-'Why Not Have Full-Time Administrator For Lakshadweep?': Kerala High Court Asks In PIL Alleging Maladministration In Union Territory
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-lakshadweep-administration-full-time-544597
+### 2026-08-06T12:42:35+00:00
+Delhi High Court Denies Anticipatory Bail To Man Accused Of Posing As Judge, Flags Police Failure To Arrest Him
+https://www.livelaw.in/high-court/delhi-high-court/impersonating-judge-anticipatory-bail-denied-police-failed-to-arrest-544658
 
-[Read on Telegram](https://t.me/livelawindia/116665)
-
----
-### 2026-08-06T08:02:24+00:00
-Wife's Inability To Establish Cruelty Doesn't Necessarily Mean She Left Matrimonial Home Without Reason: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-wife-cruelty-inability-leaving-matrimonial-home-544599
-
-[Read on Telegram](https://t.me/livelawindia/116666)
+[Read on Telegram](https://t.me/livelawindia/116698)
 
 ---
-### 2026-08-06T08:30:24+00:00
-Allahabad High Court Orders Fresh Notices Before Demolition Of Illegally Constructed Lawyers' Chambers in Lucknow
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-fresh-notices-demolition-illegal-lawyers-chambers-lucknow-544606
+### 2026-08-06T12:49:25+00:00
+Increasing Supreme Court Judges Won't Reduce Pendency; Raise Retirement Age, Judges' Pay: Rajya Sabha MP & Lawyer Haris Beeran
+https://www.livelaw.in/news-updates/kerala-mp-haris-beeran-supreme-court-number-judges-bill-seeks-higher-retirement-age-better-pay-544664
 
-[Read on Telegram](https://t.me/livelawindia/116667)
+[Read on Telegram](https://t.me/livelawindia/116699)
 
 ---
-### 2026-08-06T08:37:54+00:00
-'Can't Grant Relief Beyond Pleadings': AP High Court Sets Aside Status Quo Order On Mutation Entries, Says No Such Prayer Was Made
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-sets-aside-status-quo-order-mutation-entries-544603
+### 2026-08-06T12:52:45+00:00
+LiveLaw Punjab & Haryana High Court Weekly Round-Up: July 27 - August 02, 2026
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-weekly-round-up-27-july-to-2-august-544659
 
-[Read on Telegram](https://t.me/livelawindia/116668)
+[Read on Telegram](https://t.me/livelawindia/116700)
+
+---
+### 2026-08-06T12:58:05+00:00
+Calcutta High Court Acquits Two In Minor's Rape-Murder Case, Says Juvenile Co-Accused's Extra-Judicial Confession Cannot Sustain Conviction
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-acquits-two-in-minors-rape-murder-case-says-juvenile-co-accuseds-extra-judicial-confession-cannot-sustain-conviction-544665
+
+[Read on Telegram](https://t.me/livelawindia/116701)
+
+---
+### 2026-08-06T13:04:25+00:00
+'Reservation Not Only Based On Economic Status' : Centre Opposes Plea In Supreme Court For Income-Based Sub-Quota Within SC/ST/OBCs
+https://www.livelaw.in/top-stories/reservation-not-only-based-on-economic-status-centre-opposes-plea-in-supreme-court-for-income-based-sub-quota-within-scstobcs-544667
+
+[Read on Telegram](https://t.me/livelawindia/116702)
+
+---
+### 2026-08-06T13:55:35+00:00
+LiveLaw Daily | Eknath Shinde| Tarun Tejpal| Sumit Roy| Judge Road Rage| Muthanga
+https://www.livelaw.in/podcast/shiv-sena-supreme-court-lakshadweep-muthanga-tarun-tejpal-tehelka-news-judiciary-clat-lawyers-advocates-news-india-legal-news-544674
+
+[Read on Telegram](https://t.me/livelawindia/116703)
+
+---
+### 2026-08-06T13:56:35+00:00
+Senior Advocate Gaurav Bhatia To Contest For SCBA President Post
+https://www.livelaw.in/news-updates/senior-advocate-gaurav-bhatia-to-contest-for-scba-president-post-544676
+
+[Read on Telegram](https://t.me/livelawindia/116704)
+
+---
+### 2026-08-06T14:04:55+00:00
+High Court Stays Criminal Defamation Proceedings Against Congress President Mallikarjun Kharge Pending Before Punjab Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/mallikarjun-kharge-criminal-defamation-proceedings-stayed-congress-544677
+
+[Read on Telegram](https://t.me/livelawindia/116705)
+
+---
+### 2026-08-06T14:17:27+00:00
+Senior Advocate Pavani Mahalakshmi Enters SCBA President Race, Lone Woman Candidate
+https://www.livelaw.in/news-updates/senior-advocate-pavani-mahalakshmi-enters-scba-president-race-lone-woman-candidate-544678
+
+[Read on Telegram](https://t.me/livelawindia/116706)
+
+---
+### 2026-08-06T14:19:07+00:00
+Sr Adv Adish Agarwala Files Nomination For SCBA President Post
+https://www.livelaw.in/news-updates/sr-adv-adish-agarwala-files-nomination-for-scba-president-post-544679
+
+[Read on Telegram](https://t.me/livelawindia/116707)
+
+---
+### 2026-08-06T14:21:07+00:00
+National Highways Act | Reference Court Can Incidentally Determine Title For Compensation Entitlement : Supreme Court
+https://www.livelaw.in/supreme-court/national-highways-act-reference-court-can-incidentally-determine-title-for-compensation-entitlement-supreme-court-544680
+
+[Read on Telegram](https://t.me/livelawindia/116708)
+
+---
+### 2026-08-06T14:22:07+00:00
+2026 LiveLaw (SC) 770 | K. VENKATASWAMY & ORS. VS. GOWRAMMA & ANR.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-770-k-venkataswamy-ors-vs-gowramma-anr-544681
+
+[Read on Telegram](https://t.me/livelawindia/116709)
 
 ---
