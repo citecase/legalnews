@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-05T16:12:56+00:00*
+*Last Updated: 2026-08-06T09:02:52+00:00*
+
+---
+
+### 2026-08-06T09:02:52+00:00
+Supreme Court Refuses To Relax Bail Conditions Of Ashish Mishra Prime Accused In 2021 Lakhimpur Kheri Violence Case
+https://www.verdictum.in/supreme-court/relax-bail-conditions-of-ashish-mishra-prime-accused-in-2021-lakhimpur-kheri-violence-case-refused-1619324
+
+[Source Link](https://t.me/verdictumlegalupdates/28390)
+
+---
+
+### 2026-08-06T08:32:31+00:00
+Attempted Suicide And False Corruption Allegations Constitute Misconduct: Bombay High Court Upholds Demotion of RPF Constable
+https://www.verdictum.in/bombay-high-court/brijesh-kumar-v-chairman-railway-board-writ-petition-no-8000-of-2023-demotion-of-rpf-constable-1619317
+
+[Source Link](https://t.me/verdictumlegalupdates/28389)
+
+---
+
+### 2026-08-06T08:03:10+00:00
+Bombay High Court Convicts Tarun Tejpal In 2013 Sexual Assault Case; Sets Aside Acquittal
+https://www.verdictum.in/bombay-high-court/tarun-tejpal-convicted-in-2013-sexual-assault-case-1619305
+
+[Source Link](https://t.me/verdictumlegalupdates/28388)
+
+---
+
+### 2026-08-06T07:47:49+00:00
+Supreme Court Refuses To Grant Medical Bail To Asaram Bapu, Allows Him To Have Trained Care Taker Of His Choice
+https://www.verdictum.in/supreme-court/medical-bail-asaram-bapu-trained-care-taker-choice-1619314
+
+[Source Link](https://t.me/verdictumlegalupdates/28387)
+
+---
+
+### 2026-08-06T06:47:28+00:00
+Supreme Court Stays Arrest Of Abhishek Banerjee's PA Sumit Roy In Land Fraud Case
+https://www.verdictum.in/supreme-court/stays-arrest-abhishek-banerjee-pa-sumit-roy-land-fraud-case-1619307
+
+[Source Link](https://t.me/verdictumlegalupdates/28386)
+
+---
+
+### 2026-08-06T06:32:46+00:00
+"Temporary Status" After State-Led Administrative Exercise Not Empty Label: Supreme Court Directs Regularisation Of Goa PWD Labour Society Workers
+https://www.verdictum.in/supreme-court/rupesh-r-gaonkar-ors-v-state-of-goa-ors-2026-insc-792-goa-pwd-workers-society-1619304
+
+[Source Link](https://t.me/verdictumlegalupdates/28385)
+
+---
+
+### 2026-08-06T06:02:25+00:00
+Public Enterprises Obligated To Ensure Fair Competition In Procurement: Delhi High Court Directs To Reopen Portal For Bidder Who Missed NTPC Coal Tender Deadline
+https://www.verdictum.in/delhi-high-court/alps-mining-services-private-limited-v-ntpc-limited-wpc-91842026-cm-appl-430922026-ntpc-coal-tender-deadline-1619298
+
+[Source Link](https://t.me/verdictumlegalupdates/28384)
+
+---
+
+### 2026-08-06T05:32:44+00:00
+Xerox India’s Activity Of "Kitting" Of Modules To Make Photocopier As Per Customer’s Specification Doesn't Fall Under Term "Manufacture" Under Central Excise Act: Supreme Court
+https://www.verdictum.in/supreme-court/commissioner-of-central-excise-v-ms-xerox-india-ltd-2026-insc-805-kitting-photocopier-1619297
+
+[Source Link](https://t.me/verdictumlegalupdates/28383)
+
+---
+
+### 2026-08-06T05:02:23+00:00
+Compensatory Afforestation Is Not Mere Numerical Replacement Of Trees: Bombay High Court While Permitting Mangrove Felling For Bullet Train Project
+https://www.verdictum.in/bombay-high-court/maharashtra-state-electricity-transmission-company-limited-v-the-state-of-maharashtra-writ-petition-no-11256-of-2025-compensatory-afforestation-mangrove-felling-1619293
+
+[Source Link](https://t.me/verdictumlegalupdates/28382)
+
+---
+
+### 2026-08-06T04:32:52+00:00
+Can’t Remove Employee For More Than One Decade Solely On Ground Criminal Case Pendency: Supreme Court Grants ₹5L Compensation To Former Punjab SPO
+https://www.verdictum.in/supreme-court/spoconstable-irb-satpal-singh-v-state-of-punjab-2026-insc-798-employee-criminal-case-1619284
+
+[Source Link](https://t.me/verdictumlegalupdates/28381)
 
 ---
 
@@ -81,86 +161,6 @@ You Think Parliament Is Incapable Of Taking Care Of Its Own Security: Delhi High
 https://www.verdictum.in/delhi-high-court/pil-concerning-safety-of-parliament-refused-entertainment-1619252
 
 [Source Link](https://t.me/verdictumlegalupdates/28371)
-
----
-
-### 2026-08-05T11:02:18+00:00
-Supreme Court Asks States To Revisit Retirement Age Of Judicial Officers; Says They Must Not Cite Financial Burden To Oppose
-https://www.verdictum.in/supreme-court/revisit-retirement-age-of-judicial-officers-1619251
-
-[Source Link](https://t.me/verdictumlegalupdates/28370)
-
----
-
-### 2026-08-05T10:32:37+00:00
-Employee Who Accepted Consequences Of Resignation Cannot Later Challenge Technical Defect In Its Acceptance: Supreme Court
-https://www.verdictum.in/supreme-court/delhi-technological-university-v-bs-rawat-2026-insc-797-resignation-acceptance-1619249
-
-[Source Link](https://t.me/verdictumlegalupdates/28369)
-
----
-
-### 2026-08-05T10:02:36+00:00
-These Posts Are Abusive, Vile & Obscene: Bombay HC Directs Meta, X & Twitter To Take Down Content Against Nitin Gadkari
-https://www.verdictum.in/bombay-high-court/meta-x-twitter-to-take-down-content-against-nitin-gadkari-1619247
-
-[Source Link](https://t.me/verdictumlegalupdates/28368)
-
----
-
-### 2026-08-05T09:32:55+00:00
-Calcutta High Court Dismisses TMC Leader Abhishek Banerjee’s Plea To Travel Abroad For Eye Treatment
-https://www.verdictum.in/calcutta-high-court/tmc-leader-abhishek-banerjees-plea-travel-abroad-for-eye-treatment-dismissed-1619246
-
-[Source Link](https://t.me/verdictumlegalupdates/28367)
-
----
-
-### 2026-08-05T09:02:33+00:00
-Assignee Of Interest In Decree Schedule Property Can Continue Execution U/S 146 CPC; No Prior Substitution Under Order XXI Rule 16 CPC Required: Kerala High Court
-https://www.verdictum.in/kerala-high-court/srimad-samyamindra-thirtha-swamiji-v-raghavendra-thirtha-swami-2026ker58592-guru-shishya-dispute-successor-in-interest-1619244
-
-[Source Link](https://t.me/verdictumlegalupdates/28366)
-
----
-
-### 2026-08-05T08:32:52+00:00
-Supreme Court Refuses To Restrain SCBA From Passing Any Unilateral Resolution, Says It Can’t Interfere With Democratic Process
-https://www.verdictum.in/supreme-court/scba-restrained-from-passing-any-unilateral-resolution-1619241
-
-[Source Link](https://t.me/verdictumlegalupdates/28365)
-
----
-
-### 2026-08-05T08:03:11+00:00
-Supreme Court Grants Interim Bail To Businessman Anwar Dhebar In Manpower Commission 'Scam' Case
-https://www.verdictum.in/supreme-court/interim-bail-to-businessman-anwar-dhebar-in-manpower-commission-scam-case-1619227
-
-[Source Link](https://t.me/verdictumlegalupdates/28364)
-
----
-
-### 2026-08-05T07:32:30+00:00
-Force Is Not A Solution, Youngsters Are Required To Be Counselled & Pacified: Supreme Court In Plea Seeking Action Against Student Protest Organizers
-https://www.verdictum.in/supreme-court/plea-seeking-action-against-student-protest-organizers-1619237
-
-[Source Link](https://t.me/verdictumlegalupdates/28363)
-
----
-
-### 2026-08-05T07:03:09+00:00
-News Outlets Can Report Court Proceedings But No Audio Or Video Clips Should Be Utilized: Supreme Court
-https://www.verdictum.in/supreme-court/harshita-grover-v-union-of-india-news-outlets-court-proceedings-audio-video-clips-1619232
-
-[Source Link](https://t.me/verdictumlegalupdates/28362)
-
----
-
-### 2026-08-05T06:32:27+00:00
-Deliver Decision Within 90 Days In Matters Closed For Judgment: Bombay High Court Asks Income Tax Appellate Tribunals
-https://www.verdictum.in/bombay-high-court/rajesh-r-hemrajani-v-income-tax-appellate-tribunal-rule-34-itat-rules-decision-90-days-1619224
-
-[Source Link](https://t.me/verdictumlegalupdates/28361)
 
 ---
 
