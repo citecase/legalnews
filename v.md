@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-07T13:32:26+00:00*
+*Last Updated: 2026-08-07T16:02:11+00:00*
+
+---
+
+### 2026-08-07T16:02:11+00:00
+Legal Officials Vacancy At Andhra Pradesh Mahesh Co-operative Urban Bank Ltd.
+https://www.verdictum.in/job-updates/andhra-pradesh-mahesh-co-operative-urban-bank-ltd-1619405
+
+[Source Link](https://t.me/verdictumlegalupdates/28424)
+
+---
+
+### 2026-08-07T15:12:31+00:00
+Nikahnama Can’t Prove Title Without Genealogy: Madhya Pradesh High Court Upholds Dismissal Of Suit By Plaintiff Claiming Descent From Nawab Of Bhopal
+https://www.verdictum.in/madhya-pradesh-high-court/sarwat-jahan-begum-v-the-state-of-madhya-pradesh-nikahnama-land-title-bhopal-nawab-1619413
+
+[Source Link](https://t.me/verdictumlegalupdates/28423)
+
+---
+
+### 2026-08-07T14:32:49+00:00
+Filing Of Suits For Protection Of Statutory Rights Conferred Cannot Be Termed As Intimidatory Or Vexatious: Supreme Court On PepsiCo's Suit Against Farmers
+https://www.verdictum.in/supreme-court/kavitha-kuruganti-v-pepsico-india-holdings-pvt-ltd-2026-insc-811-infringement-farmers-rights-1619412
+
+[Source Link](https://t.me/verdictumlegalupdates/28422)
+
+---
+
+### 2026-08-07T14:02:47+00:00
+Supreme Court Directs Rajasthan Government To Set Up Integrated Coordination Group, River Authority For Jojari-Bandi-Luni Restoration
+https://www.verdictum.in/supreme-court/in-re-2-million-lives-at-risk-contamination-in-jojari-river-rajasthan-2026-insc-812-1619408
+
+[Source Link](https://t.me/verdictumlegalupdates/28421)
 
 ---
 
@@ -129,38 +161,6 @@ Civil Courts Can Decide Disputes Of Succession & Partition Involving Exclusively
 https://www.verdictum.in/supreme-court/mukkera-venkata-ratnam-v-vantasala-china-venkateswarlu-2026-insc-810-succession-partition-1619361
 
 [Source Link](https://t.me/verdictumlegalupdates/28405)
-
----
-
-### 2026-08-07T05:12:37+00:00
-Foundation Of Case “Substantially Eroded”: Delhi High Court Quashes Maggi Noodles Prosecutions From 2015 Lead Content Row
-https://www.verdictum.in/delhi-high-court/dharmendra-hansraj-kotak-v-state-of-delhi-2026dhc6343-maggi-noodles-prosecutions-from-2015-lead-content-row-1619358
-
-[Source Link](https://t.me/verdictumlegalupdates/28404)
-
----
-
-### 2026-08-07T04:32:46+00:00
-Allahabad High Court Directs Fresh Notice To 72 Encroachers, Orders Demolition Of Illegal Advocate Chambers On Public Land If They Fail To Vacate
-https://www.verdictum.in/allahabad-high-court/anuradha-singh-and-others-v-state-of-up-through-prin-secy-home-lko-and-others-criminal-writ-public-interest-litigation-no-4-of-2026-illegal-advocate-chambers-1619352
-
-[Source Link](https://t.me/verdictumlegalupdates/28403)
-
----
-
-### 2026-08-06T16:02:57+00:00
-Maternity Leave Benefit Available For Those Appointed On Contractual Basis: Kerala High Court Holds Teacher Entitled To Hysterectomy Leave
-https://www.verdictum.in/kerala-high-court/nisha-jose-v-state-of-kerala-2026ker52801-benefit-maternity-leave-female-officers-contract-1619344
-
-[Source Link](https://t.me/verdictumlegalupdates/28402)
-
----
-
-### 2026-08-06T15:32:35+00:00
-Law Vacancies In Indian Army For SSC JAG Entry Scheme
-https://www.verdictum.in/job-updates/indian-army-1619339
-
-[Source Link](https://t.me/verdictumlegalupdates/28401)
 
 ---
 
