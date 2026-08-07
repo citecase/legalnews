@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-07T07:33:02+00:00*
+*Last Updated: 2026-08-07T13:32:26+00:00*
+
+---
+
+### 2026-08-07T13:32:26+00:00
+Mere Marking Of Document As Exhibit Not Proof Of Its Content: Supreme Court Reiterates
+https://www.verdictum.in/supreme-court/s-sangeetha-ors-v-tmt-p-ponni-2026-insc-813-marking-document-exhibit-proof-1619407
+
+[Source Link](https://t.me/verdictumlegalupdates/28420)
+
+---
+
+### 2026-08-07T13:02:25+00:00
+Mother Can’t Settle Or Compromise Case Against Father For Sexual Harassment Of Minor Daughter: Kerala High Court
+https://www.verdictum.in/kerala-high-court/shiju-v-state-of-kerala-2026ker59696-mother-compromise-father-sexual-harassment-1619404
+
+[Source Link](https://t.me/verdictumlegalupdates/28419)
+
+---
+
+### 2026-08-07T12:32:23+00:00
+Reservation Grounded In Historical & Social Backwardness Rather Than Economic Status: Centre Opposes Income Based Sub-Classification Of SC, ST & OBC
+https://www.verdictum.in/supreme-court/centre-opposes-income-based-preference-sc-st-obc-ews-reservation-1619403
+
+[Source Link](https://t.me/verdictumlegalupdates/28418)
+
+---
+
+### 2026-08-07T12:03:12+00:00
+Wife’s Demand For Separate Residence Away From Husband's Family Without Sufficient Reason Constitutes Cruelty: Kerala High Court
+https://www.verdictum.in/kerala-high-court/a-v-b-2026ker56542-wife-husband-family-cruelty-separate-residency-1619397
+
+[Source Link](https://t.me/verdictumlegalupdates/28417)
+
+---
+
+### 2026-08-07T11:32:51+00:00
+Revenue Cannot Artificially Split Indivisible Turnkey Contracts Governed By Finance Act 1994 To Levy Service Tax: Supreme Court
+https://www.verdictum.in/supreme-court/commissioner-of-service-tax-chennai-v-ms-diebold-systems-p-ltd-neutral-citation-2026-insc-808-1619396
+
+[Source Link](https://t.me/verdictumlegalupdates/28416)
+
+---
+
+### 2026-08-07T11:03:10+00:00
+Delhi High Court Stays FSSAI Ban On Dabur Selling Food Products With “100%” Claims
+https://www.verdictum.in/delhi-high-court/fssai-ban-on-dabur-selling-food-products-with-100-claims-stayed-1619391
+
+[Source Link](https://t.me/verdictumlegalupdates/28415)
+
+---
+
+### 2026-08-07T10:33:09+00:00
+Calcutta High Court Refuses Urgent Hearing To Abhishek's Aide Sumit Roy In Plea To Quash 4 FIRs
+https://www.verdictum.in/calcutta-high-court/urgent-hearing-refused-to-abhisheks-aide-sumit-roy-in-plea-to-quash-4-firs-1619390
+
+[Source Link](https://t.me/verdictumlegalupdates/28414)
+
+---
+
+### 2026-08-07T10:02:47+00:00
+Supreme Court Directs Ghaziabad Hospitals To Compensate Family Of Deceased 4 Yr Old Rape Victim Who Was Denied Emergency Care
+https://www.verdictum.in/supreme-court/ghaziabad-hospitals-compensate-family-deceased-4-yr-old-rape-victim-denied-emergency-care-1619395
+
+[Source Link](https://t.me/verdictumlegalupdates/28413)
+
+---
+
+### 2026-08-07T09:32:46+00:00
+Supreme Court Refuses To Suspend Life Sentence Given To Asaram’s Son Narayan Sai In Rape Case
+https://www.verdictum.in/supreme-court/suspenion-life-sentence-given-to-asarams-son-narayan-sai-in-rape-case-refused-1619388
+
+[Source Link](https://t.me/verdictumlegalupdates/28412)
+
+---
+
+### 2026-08-07T09:02:25+00:00
+Supreme Court Refuses To Entertain Plea Seeking Registration Of FIR & Probe Into Alleged Discovery Of Stash Of Cash At Ex-HC Judge Yashwant Varma’s Residence
+https://www.verdictum.in/supreme-court/plea-seeking-registration-of-fir-probe-into-alleged-discovery-cash-ex-hc-judge-yashwant-varmas-residence-1619383
+
+[Source Link](https://t.me/verdictumlegalupdates/28411)
+
+---
+
+### 2026-08-07T08:15:25+00:00
+Backwards Class Status Of Converts To Islam: Apex Court Reserves Orders At Admission On Tamil Nadu's Appeal
+https://www.verdictum.in/supreme-court/tamil-nadu-high-court-verdict-denying-backwards-class-status-converts-islam-1619385
+
+[Source Link](https://t.me/verdictumlegalupdates/28410)
+
+---
+
+### 2026-08-07T08:02:23+00:00
+Supreme Court Refuses To Interfere With Chhattigarh High Court Order On Election Plea Against Ex-CM Bhupesh Baghel
+https://www.verdictum.in/supreme-court/chhattigarh-high-court-order-on-election-plea-against-ex-cm-bhupesh-baghel-1619377
+
+[Source Link](https://t.me/verdictumlegalupdates/28409)
 
 ---
 
@@ -65,102 +161,6 @@ Law Vacancies In Indian Army For SSC JAG Entry Scheme
 https://www.verdictum.in/job-updates/indian-army-1619339
 
 [Source Link](https://t.me/verdictumlegalupdates/28401)
-
----
-
-### 2026-08-06T14:52:34+00:00
-‘Washed-Off Theory’ May Operate In Promotional Matters But Not For Assessing Compulsory Retirement: Supreme Court
-https://www.verdictum.in/supreme-court/sushil-sharma-v-union-of-india-and-others-2026-insc-809-washed-off-theory-compulsory-retirement-1619343
-
-[Source Link](https://t.me/verdictumlegalupdates/28400)
-
----
-
-### 2026-08-06T14:13:13+00:00
-Karnataka High Court Refuses To Quash FIR Against Accused Who Claimed To Be Congress Leaders In ₹5.30 Crores Government Job Fraud Case
-https://www.verdictum.in/karnataka-high-court/kumari-shamshad-begum-and-another-v-state-of-karnataka-and-another-2026khc36330-1619338
-
-[Source Link](https://t.me/verdictumlegalupdates/28399)
-
----
-
-### 2026-08-06T13:32:52+00:00
-Order Extending UAPA Investigation Time Is Interlocutory And Not Appealable Under Section 21 NIA Act: Delhi High Court
-https://www.verdictum.in/delhi-high-court/hurba-petro-and-others-v-union-of-india-and-others-2026dhc6261-db-1619337
-
-[Source Link](https://t.me/verdictumlegalupdates/28398)
-
----
-
-### 2026-08-06T12:52:31+00:00
-Deposit U/S 34 Arbitration Act By Corporate Debtor Does Not Amount To Payment To Award-Holder; Remains As Its Asset: Delhi High Court
-https://www.verdictum.in/delhi-high-court/mcnally-bharat-engineering-company-limited-v-metso-india-pvt-ltd-2026dhc6218-deposit-us-34-arbitration-act-1619336
-
-[Source Link](https://t.me/verdictumlegalupdates/28397)
-
----
-
-### 2026-08-06T12:02:29+00:00
-State Can’t Pick & Choose: Supreme Court Restores Order Directing Watchman’s Regularization
-https://www.verdictum.in/supreme-court/a-velayutham-v-the-state-of-tamil-nadu-2026-insc-801-state-regularisation-service-1619331
-
-[Source Link](https://t.me/verdictumlegalupdates/28396)
-
----
-
-### 2026-08-06T11:33:18+00:00
-Criminal Law Can’t Be A Weapon For Retaliating Against Investigating Officers: Madhya Pradesh High Court Quashes Criminal Proceedings Against Police Officers
-https://www.verdictum.in/madhya-pradesh-high-court/rajesh-singh-chandel-v-anoop-rana-and-others-2026mphc-gwl23163-mp-police-1619330
-
-[Source Link](https://t.me/verdictumlegalupdates/28395)
-
----
-
-### 2026-08-06T11:02:57+00:00
-Non-Signatory Consultant Shareholder Can Be Veritable Party For Arbitration Due To His Involvement In Performance Of Underlying Contract: Supreme Court
-https://www.verdictum.in/supreme-court/kkh-finvest-pvt-ltd-v-ashiesh-shukla-2026-insc-803-non-signatory-consultant-shareholder-1619329
-
-[Source Link](https://t.me/verdictumlegalupdates/28394)
-
----
-
-### 2026-08-06T10:33:16+00:00
-PMLA Court Can't Take Cognizance In Absence Of Sanction: Madras High Court Rejects ED Plea To Transfer Former Minister’s Disproportionate Assets Trial
-https://www.verdictum.in/madras-high-court/assistant-director-directorate-of-enforcement-v-additional-superintendent-of-police-directorate-of-vigilance-anti-corruption-2026mhc3219-1619328
-
-[Source Link](https://t.me/verdictumlegalupdates/28393)
-
----
-
-### 2026-08-06T10:02:55+00:00
-Rani Kapur-Priya Kapur Dispute: Supreme Court 'Hopeful That Matter May Be Resolved Amicably
-https://www.verdictum.in/supreme-court/rani-kapur-priya-kapur-dispute-hopeful-amicable-resolution-1619327
-
-[Source Link](https://t.me/verdictumlegalupdates/28392)
-
----
-
-### 2026-08-06T09:32:13+00:00
-Deliberate And Unexplained Delay In Setting Criminal Law In Motion May Itself Justify Quashing Of Belated Proceedings: Supreme Court
-https://www.verdictum.in/supreme-court/anita-maurya-ors-v-state-of-uttar-pradesh-anr-2026-insc-806-criminal-1619325
-
-[Source Link](https://t.me/verdictumlegalupdates/28391)
-
----
-
-### 2026-08-06T09:02:52+00:00
-Supreme Court Refuses To Relax Bail Conditions Of Ashish Mishra Prime Accused In 2021 Lakhimpur Kheri Violence Case
-https://www.verdictum.in/supreme-court/relax-bail-conditions-of-ashish-mishra-prime-accused-in-2021-lakhimpur-kheri-violence-case-refused-1619324
-
-[Source Link](https://t.me/verdictumlegalupdates/28390)
-
----
-
-### 2026-08-06T08:32:31+00:00
-Attempted Suicide And False Corruption Allegations Constitute Misconduct: Bombay High Court Upholds Demotion of RPF Constable
-https://www.verdictum.in/bombay-high-court/brijesh-kumar-v-chairman-railway-board-writ-petition-no-8000-of-2023-demotion-of-rpf-constable-1619317
-
-[Source Link](https://t.me/verdictumlegalupdates/28389)
 
 ---
 
