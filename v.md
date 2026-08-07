@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-06T14:52:34+00:00*
+*Last Updated: 2026-08-06T16:02:57+00:00*
+
+---
+
+### 2026-08-06T16:02:57+00:00
+Maternity Leave Benefit Available For Those Appointed On Contractual Basis: Kerala High Court Holds Teacher Entitled To Hysterectomy Leave
+https://www.verdictum.in/kerala-high-court/nisha-jose-v-state-of-kerala-2026ker52801-benefit-maternity-leave-female-officers-contract-1619344
+
+[Source Link](https://t.me/verdictumlegalupdates/28402)
+
+---
+
+### 2026-08-06T15:32:35+00:00
+Law Vacancies In Indian Army For SSC JAG Entry Scheme
+https://www.verdictum.in/job-updates/indian-army-1619339
+
+[Source Link](https://t.me/verdictumlegalupdates/28401)
 
 ---
 
@@ -145,22 +161,6 @@ Xerox India’s Activity Of "Kitting" Of Modules To Make Photocopier As Per Cust
 https://www.verdictum.in/supreme-court/commissioner-of-central-excise-v-ms-xerox-india-ltd-2026-insc-805-kitting-photocopier-1619297
 
 [Source Link](https://t.me/verdictumlegalupdates/28383)
-
----
-
-### 2026-08-06T05:02:23+00:00
-Compensatory Afforestation Is Not Mere Numerical Replacement Of Trees: Bombay High Court While Permitting Mangrove Felling For Bullet Train Project
-https://www.verdictum.in/bombay-high-court/maharashtra-state-electricity-transmission-company-limited-v-the-state-of-maharashtra-writ-petition-no-11256-of-2025-compensatory-afforestation-mangrove-felling-1619293
-
-[Source Link](https://t.me/verdictumlegalupdates/28382)
-
----
-
-### 2026-08-06T04:32:52+00:00
-Can’t Remove Employee For More Than One Decade Solely On Ground Criminal Case Pendency: Supreme Court Grants ₹5L Compensation To Former Punjab SPO
-https://www.verdictum.in/supreme-court/spoconstable-irb-satpal-singh-v-state-of-punjab-2026-insc-798-employee-criminal-case-1619284
-
-[Source Link](https://t.me/verdictumlegalupdates/28381)
 
 ---
 
