@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-06T16:02:57+00:00*
+*Last Updated: 2026-08-07T07:33:02+00:00*
+
+---
+
+### 2026-08-07T07:33:02+00:00
+“Attempted Robbery Gone Wrong”: Delhi High Court Converts Murder Conviction Of One Accused To Culpable Homicide ; Acquits Three Others In 24-Year-Old Case
+https://www.verdictum.in/delhi-high-court/firoz-sagar-v-state-2026dhc6282-robbery-gone-wrong-converts-murder-conviction-1619371
+
+[Source Link](https://t.me/verdictumlegalupdates/28408)
+
+---
+
+### 2026-08-07T06:54:00+00:00
+Having Taken Plunge Into Politics, You Fear Eggs: Supreme Court Refuses To Grant Relief To Mahua Moitra From Personal Appearance In Religious Sentiments Case
+https://www.verdictum.in/supreme-court/refuses-grant-relief-mahua-moitra-personal-appearance-religious-sentiments-1619374
+
+[Source Link](https://t.me/verdictumlegalupdates/28407)
+
+---
+
+### 2026-08-07T06:33:19+00:00
+Signature Of A Minor Does Not Supply The Consent Required Under MTP Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/signature-of-a-minor-does-not-supply-the-consent-required-under-mtp-act-delhi-high-court-1619367
+
+[Source Link](https://t.me/verdictumlegalupdates/28406)
+
+---
+
+### 2026-08-07T05:52:58+00:00
+Civil Courts Can Decide Disputes Of Succession & Partition Involving Exclusively Non-Tribal Parties In Scheduled Areas: Supreme Court
+https://www.verdictum.in/supreme-court/mukkera-venkata-ratnam-v-vantasala-china-venkateswarlu-2026-insc-810-succession-partition-1619361
+
+[Source Link](https://t.me/verdictumlegalupdates/28405)
+
+---
+
+### 2026-08-07T05:12:37+00:00
+Foundation Of Case “Substantially Eroded”: Delhi High Court Quashes Maggi Noodles Prosecutions From 2015 Lead Content Row
+https://www.verdictum.in/delhi-high-court/dharmendra-hansraj-kotak-v-state-of-delhi-2026dhc6343-maggi-noodles-prosecutions-from-2015-lead-content-row-1619358
+
+[Source Link](https://t.me/verdictumlegalupdates/28404)
+
+---
+
+### 2026-08-07T04:32:46+00:00
+Allahabad High Court Directs Fresh Notice To 72 Encroachers, Orders Demolition Of Illegal Advocate Chambers On Public Land If They Fail To Vacate
+https://www.verdictum.in/allahabad-high-court/anuradha-singh-and-others-v-state-of-up-through-prin-secy-home-lko-and-others-criminal-writ-public-interest-litigation-no-4-of-2026-illegal-advocate-chambers-1619352
+
+[Source Link](https://t.me/verdictumlegalupdates/28403)
 
 ---
 
@@ -113,54 +161,6 @@ Attempted Suicide And False Corruption Allegations Constitute Misconduct: Bombay
 https://www.verdictum.in/bombay-high-court/brijesh-kumar-v-chairman-railway-board-writ-petition-no-8000-of-2023-demotion-of-rpf-constable-1619317
 
 [Source Link](https://t.me/verdictumlegalupdates/28389)
-
----
-
-### 2026-08-06T08:03:10+00:00
-Bombay High Court Convicts Tarun Tejpal In 2013 Sexual Assault Case; Sets Aside Acquittal
-https://www.verdictum.in/bombay-high-court/tarun-tejpal-convicted-in-2013-sexual-assault-case-1619305
-
-[Source Link](https://t.me/verdictumlegalupdates/28388)
-
----
-
-### 2026-08-06T07:47:49+00:00
-Supreme Court Refuses To Grant Medical Bail To Asaram Bapu, Allows Him To Have Trained Care Taker Of His Choice
-https://www.verdictum.in/supreme-court/medical-bail-asaram-bapu-trained-care-taker-choice-1619314
-
-[Source Link](https://t.me/verdictumlegalupdates/28387)
-
----
-
-### 2026-08-06T06:47:28+00:00
-Supreme Court Stays Arrest Of Abhishek Banerjee's PA Sumit Roy In Land Fraud Case
-https://www.verdictum.in/supreme-court/stays-arrest-abhishek-banerjee-pa-sumit-roy-land-fraud-case-1619307
-
-[Source Link](https://t.me/verdictumlegalupdates/28386)
-
----
-
-### 2026-08-06T06:32:46+00:00
-"Temporary Status" After State-Led Administrative Exercise Not Empty Label: Supreme Court Directs Regularisation Of Goa PWD Labour Society Workers
-https://www.verdictum.in/supreme-court/rupesh-r-gaonkar-ors-v-state-of-goa-ors-2026-insc-792-goa-pwd-workers-society-1619304
-
-[Source Link](https://t.me/verdictumlegalupdates/28385)
-
----
-
-### 2026-08-06T06:02:25+00:00
-Public Enterprises Obligated To Ensure Fair Competition In Procurement: Delhi High Court Directs To Reopen Portal For Bidder Who Missed NTPC Coal Tender Deadline
-https://www.verdictum.in/delhi-high-court/alps-mining-services-private-limited-v-ntpc-limited-wpc-91842026-cm-appl-430922026-ntpc-coal-tender-deadline-1619298
-
-[Source Link](https://t.me/verdictumlegalupdates/28384)
-
----
-
-### 2026-08-06T05:32:44+00:00
-Xerox India’s Activity Of "Kitting" Of Modules To Make Photocopier As Per Customer’s Specification Doesn't Fall Under Term "Manufacture" Under Central Excise Act: Supreme Court
-https://www.verdictum.in/supreme-court/commissioner-of-central-excise-v-ms-xerox-india-ltd-2026-insc-805-kitting-photocopier-1619297
-
-[Source Link](https://t.me/verdictumlegalupdates/28383)
 
 ---
 
