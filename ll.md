@@ -1,107 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-07T10:26:56+00:00*
+*Last Updated: 2026-08-07T12:17:17+00:00*
 
 ---
 
-### 2026-08-07T10:26:56+00:00
-'MLAs & Ministers Can't Be Served?': Karnataka High Court Questions Alleged Delay In Serving Notice On Congress MLA In RSS Defamation Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-shocked-unserved-notice-mla-dinesh-gundu-rao-rss-defamation-case-544821
-
-[Read on Telegram](https://t.me/livelawindia/116793)
-
----
-### 2026-08-07T10:31:36+00:00
-Chennai Court Recalls Non-Bailable Warrant Against Former Minister Ponmudi After He Voluntarily Surrenders
-https://www.livelaw.in/news-updates/chennai-court-non-bailable-warrant-ponmudi-hate-speech-case-recalled-544822
-
-[Read on Telegram](https://t.me/livelawindia/116794)
-
----
-### 2026-08-07T11:13:16+00:00
-Karnataka High Court Introduces New Case Category For Appeal Against Order Under Prohibition Of Benami Property Act
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-introduces-case-category-benami-property-act-appeals-544829
-
-[Read on Telegram](https://t.me/livelawindia/116795)
-
----
-### 2026-08-07T11:21:46+00:00
-Tamil Nadu CM Joseph Vijay's Wife Withdraws Divorce Petition
-https://www.livelaw.in/news-updates/cm-joseph-vijay-wife-divorce-proceedings-withdrawn-544832
-
-[Read on Telegram](https://t.me/livelawindia/116796)
-
----
-### 2026-08-07T11:31:07+00:00
-'Totally Incompetent': Supreme Court Slams Chhattisgarh DGP In Custodial Death Case, Warns Contempt
-https://www.livelaw.in/top-stories/supreme-court-custodial-death-case-head-injury-judicial-enquiry-chhattisgarh-director-general-of-police-totally-incompetent-544833
-
-[Read on Telegram](https://t.me/livelawindia/116797)
-
----
-### 2026-08-07T11:38:07+00:00
-Durg District Court Holds Workshop On Mediation 3.0, Nyaya Shruti & ICJS To Advance Digital Justice Delivery
-https://www.livelaw.in/news-updates/durg-district-court-holds-workshop-mediation-30-nyaya-shruti-icjs-advance-digital-justice-delivery-544834
-
-[Read on Telegram](https://t.me/livelawindia/116798)
-
----
-### 2026-08-07T11:44:47+00:00
-Allahabad High Court Sends Law Student's Zero-Mark Answer Book To BCI, Law Commission; Flags Declining Standards Of Legal Education
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-law-student-zero-mark-answer-book-bci-law-commission-declining-legal-education-standards-544836
-
-[Read on Telegram](https://t.me/livelawindia/116799)
-
----
-### 2026-08-07T11:48:47+00:00
-Call For Blogs: Project 39A At The National Law University, Delhi [Deadline: August 30, 2026]
-https://www.livelaw.in/lawschool/call-for-papers/call-for-blogs-project-39a-at-the-national-law-university-delhi-deadline-august-30-2026-544838
-
-[Read on Telegram](https://t.me/livelawindia/116800)
-
----
-### 2026-08-07T11:54:47+00:00
-Public Trusts Registered Outside MP Entitled To Exemption Under M.P. Accommodation Control Act : Supreme Court
-https://www.livelaw.in/supreme-court/public-trusts-registered-outside-mp-entitled-to-exemption-under-mp-accommodation-control-act-supreme-court-544840
-
-[Read on Telegram](https://t.me/livelawindia/116801)
-
----
-### 2026-08-07T11:59:47+00:00
-No Need To Hear Proposed Accused Before Ordering FIR Registration: TN DVAC Opposes Former Minister KN Nehru's Review Plea In High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-kn-nehru-tndvac-accused-no-hearing-before-registration-fir-544841
-
-[Read on Telegram](https://t.me/livelawindia/116802)
-
----
-### 2026-08-07T12:01:47+00:00
-Supreme Court Dismisses Plea Seeking FIR Against Justice Yashwant Varma Over Cash Row
-https://www.livelaw.in/top-stories/supreme-court-dismisses-plea-seeking-fir-against-justice-yashwant-varma-over-cash-row-544842
-
-[Read on Telegram](https://t.me/livelawindia/116803)
-
----
-### 2026-08-07T12:02:27+00:00
-OCI Cardholder Parent Entitled To Remedies Under Senior Citizens Act; Citizenship Not Mandatory: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/oci-cardholder-entitled-remedies-senior-citizens-act-544747
-
-[Read on Telegram](https://t.me/livelawindia/116804)
-
----
-### 2026-08-07T12:10:57+00:00
-MP High Court Refuses To Quash Extortion FIR Against Journalist, Notes Alleged 'Systematic Extortion By Local Media Elements'
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-dismisses-journalists-plea-to-quash-fir-for-extorting-sarpanch-544843
-
-[Read on Telegram](https://t.me/livelawindia/116805)
-
----
-### 2026-08-07T12:14:37+00:00
-2026 LiveLaw (SC) 772 | SCINDIA DEVESTHAN TRUST VERSUS JAMUNA PRASAD SARASWAT (DEAD) THROUGH LRS. & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-772-scindia-devesthan-trust-versus-jamuna-prasad-saraswat-dead-through-lrs-ors-544844
-
-[Read on Telegram](https://t.me/livelawindia/116806)
-
----
 ### 2026-08-07T12:17:17+00:00
 'Just Because She's Muslim, Can't Call Her Pakistani' :  Karnataka High Court Raps BJP MLC For Remark Against IAS Officer
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-544845
@@ -142,5 +44,103 @@ https://www.livelaw.in/sc-judgments/2026-livelaw-sc-775-alfiyaa-versus-state-of-
 https://www.livelaw.in/high-court/calcutta-high-court/ecoli-found-in-packaged-lassi-calcutta-high-court-quashes-case-against-manager-says-company-must-be-accused-of-vicarious-liability-544862
 
 [Read on Telegram](https://t.me/livelawindia/116812)
+
+---
+### 2026-08-07T13:14:07+00:00
+Centre Notifies Appointment Of 9 Advocates As Additional Judges Of Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/centre-notifies-appointment-of-9-advocates-as-additional-judges-of-calcutta-high-court-544868
+
+[Read on Telegram](https://t.me/livelawindia/116813)
+
+---
+### 2026-08-07T13:25:27+00:00
+Centre Notifies Appointment Of Judges For High Courts At Madras, Karnataka, Calcutta and Madhya Pradesh
+https://www.livelaw.in/high-court/all-high-courts/centre-judges-appointments-madras-karnataka-calcutta-madhya-pradesh-high-court-544870
+
+[Read on Telegram](https://t.me/livelawindia/116814)
+
+---
+### 2026-08-07T13:30:47+00:00
+Supreme Court Allows SIR Appellate Tribunal Judge To Approach Calcutta HC For Enhanced Security
+https://www.livelaw.in/top-stories/supreme-court-allows-sir-appellate-tribunal-judge-to-approach-calcutta-hc-for-enhanced-security-544871
+
+[Read on Telegram](https://t.me/livelawindia/116815)
+
+---
+### 2026-08-07T13:33:07+00:00
+Failure To Provide Public Prosecutor Will Invite Contempt Proceedings: Jammu NDPS Court Warns Authorities
+https://www.livelaw.in/news-updates/ndps-court-warns-dg-prosecution-jk-director-prosecution-jammu-of-contempt-after-no-prosecutor-appears-says-criminal-courts-cannot-be-held-hostage-to-administrative-confusion-544748
+
+[Read on Telegram](https://t.me/livelawindia/116816)
+
+---
+### 2026-08-07T13:34:27+00:00
+LiveLaw Daily | Ramesh Mhatre Bail| Biren Singh Audio| Mahua Moitra| Dabur & FSSAI
+https://www.livelaw.in/podcast/mla-rss-doctors-assault-ramesh-mhatre-mahua-moitra-news-india-judiciary-advocates-lawyers-jantar-mantar-dabur-544872
+
+[Read on Telegram](https://t.me/livelawindia/116817)
+
+---
+### 2026-08-07T14:32:19+00:00
+Habeas Corpus Is Not a Shortcut To Family Court
+https://www.livelaw.in/articles/habeas-corpus-shortcut-family-court-544675
+
+[Read on Telegram](https://t.me/livelawindia/116818)
+
+---
+### 2026-08-07T15:39:40+00:00
+Mere Marking Of Document As Exhibit Is Not Proof Of Contents : Supreme Court
+https://www.livelaw.in/supreme-court/mere-marking-of-document-as-exhibit-is-not-proof-of-contents-supreme-court-544878
+
+[Read on Telegram](https://t.me/livelawindia/116819)
+
+---
+### 2026-08-07T15:40:59+00:00
+2026 LiveLaw (SC) 776 | S. SANGEETHA & ORS. VERSUS TMT. P. PONNI
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-776-s-sangeetha-ors-versus-tmt-p-ponni-544879
+
+[Read on Telegram](https://t.me/livelawindia/116820)
+
+---
+### 2026-08-07T15:47:39+00:00
+2026 LiveLaw (SC) 777 | SUDHENDU PRAKASH GAUTAM VERSUS S.L. CHAUDHARY
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-777-sudhendu-prakash-gautam-versus-sl-chaudhary-544881
+
+[Read on Telegram](https://t.me/livelawindia/116821)
+
+---
+### 2026-08-07T15:50:19+00:00
+CJI Surya Kant Calls Mediation A 'Psychological' Process, Says India Can Emerge As Global Centre For Dispute Resolution
+https://www.livelaw.in/top-stories/cji-surya-kant-mediation-psychological-process-dispute-resolution-544883
+
+[Read on Telegram](https://t.me/livelawindia/116822)
+
+---
+### 2026-08-07T15:57:59+00:00
+Permitting Universities To Question Degrees Conferred By Other Varsities Will Create 'Anarchy And Chaos' In Education System: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/education-universities-cant-question-degrees-conferred-by-other-varsities-544884
+
+[Read on Telegram](https://t.me/livelawindia/116823)
+
+---
+### 2026-08-07T16:08:20+00:00
+'Disturbing Trend' Of Organised Gangs, Sleeper Cells In Haryana Districts Like Gurugram & Faridabad: High Court Seeks State's Response
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/gurugram-faridabad-organised-gangs-sleeper-cells-haryana-govt-544885
+
+[Read on Telegram](https://t.me/livelawindia/116824)
+
+---
+### 2026-08-07T16:39:10+00:00
+Old Monk, McDowell Rum Manufacturers Moves Bombay High Court Against FSSAI Order Prohibiting Sale
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-old-monk-rum-makers-fssai-prohibition-sale-544887
+
+[Read on Telegram](https://t.me/livelawindia/116825)
+
+---
+### 2026-08-07T17:17:50+00:00
+Supreme Court Daily Round-Up : August 7, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-7-2026-544882
+
+[Read on Telegram](https://t.me/livelawindia/116826)
 
 ---
