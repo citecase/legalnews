@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-06T14:04:55+00:00*
+*Last Updated: 2026-08-07T05:10:45+00:00*
 
 ---
 
-### 2026-08-06T14:04:55+00:00
-High Court Stays Criminal Defamation Proceedings Against Congress President Mallikarjun Kharge Pending Before Punjab Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/mallikarjun-kharge-criminal-defamation-proceedings-stayed-congress-544677
+### 2026-08-07T05:10:45+00:00
+2026 LiveLaw (SC) 771 | IN RE: CADETS DISABLED IN MILITARY TRAINING STRUGGLE
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-771-in-re-cadets-disabled-in-military-training-struggle-544754
 
-[Read on Telegram](https://t.me/livelawindia/116705)
-
----
-### 2026-08-06T14:17:27+00:00
-Senior Advocate Pavani Mahalakshmi Enters SCBA President Race, Lone Woman Candidate
-https://www.livelaw.in/news-updates/senior-advocate-pavani-mahalakshmi-enters-scba-president-race-lone-woman-candidate-544678
-
-[Read on Telegram](https://t.me/livelawindia/116706)
+[Read on Telegram](https://t.me/livelawindia/116744)
 
 ---
-### 2026-08-06T14:19:07+00:00
-Sr Adv Adish Agarwala Files Nomination For SCBA President Post
-https://www.livelaw.in/news-updates/sr-adv-adish-agarwala-files-nomination-for-scba-president-post-544679
+### 2026-08-07T05:17:25+00:00
+Keeping Person In Police Custody Under Guise Of 'Voluntary Cooperation' Violates Article 22: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/mere-endorsement-voluntariness-notice-police-custody-not-sufficient-544741
 
-[Read on Telegram](https://t.me/livelawindia/116707)
-
----
-### 2026-08-06T14:21:07+00:00
-National Highways Act | Reference Court Can Incidentally Determine Title For Compensation Entitlement : Supreme Court
-https://www.livelaw.in/supreme-court/national-highways-act-reference-court-can-incidentally-determine-title-for-compensation-entitlement-supreme-court-544680
-
-[Read on Telegram](https://t.me/livelawindia/116708)
+[Read on Telegram](https://t.me/livelawindia/116745)
 
 ---
-### 2026-08-06T14:22:07+00:00
-2026 LiveLaw (SC) 770 | K. VENKATASWAMY & ORS. VS. GOWRAMMA & ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-770-k-venkataswamy-ors-vs-gowramma-anr-544681
+### 2026-08-07T05:17:35+00:00
+Contractual Women Employees Entitled To Hysterectomy Leave Under Kerala Service Rules: High Court
+https://www.livelaw.in/high-court/kerala-high-court/contractual-women-employees-hysterectomy-leave-ksr-544729
 
-[Read on Telegram](https://t.me/livelawindia/116709)
-
----
-### 2026-08-06T14:33:07+00:00
-Constitution Never Approved Algorithmic Governance: Why India Needs Right To Human Decision-Making
-https://www.livelaw.in/articles/constitution-never-approved-algorithmic-governance-india-right-human-decision-making-544523
-
-[Read on Telegram](https://t.me/livelawindia/116710)
+[Read on Telegram](https://t.me/livelawindia/116746)
 
 ---
-### 2026-08-06T14:41:27+00:00
-Technology Fit For Judicial Use Only If It Improves Fairness & Access Is Not : Zambia Supreme Court Judge Abha Nayar Patel
-https://www.livelaw.in/top-stories/technology-fit-for-judicial-use-only-if-it-improves-fairness-access-is-not-zambia-supreme-court-judge-abha-nayar-patel-544682
+### 2026-08-07T05:25:35+00:00
+President Assents To Registration Of Births & Deaths (Amendment) Act, 2026
+https://www.livelaw.in/news-updates/president-assents-to-registration-of-births-deaths-amendment-act-2026-544755
 
-[Read on Telegram](https://t.me/livelawindia/116711)
-
----
-### 2026-08-06T14:57:07+00:00
-'Perfect Victim' In Rape Cases Is A Myth; Women Deal With Trauma In Different Ways : Bombay High Court In Tarun Tejpal Case
-https://www.livelaw.in/high-court/bombay-high-court/perfect-victim-in-rape-cases-is-a-myth-women-deal-with-trauma-in-different-ways-bombay-high-court-in-tarun-tejpal-case-544687
-
-[Read on Telegram](https://t.me/livelawindia/116712)
+[Read on Telegram](https://t.me/livelawindia/116747)
 
 ---
-### 2026-08-06T15:14:57+00:00
-Rajasthan High Court Takes Suo Motu Cognizance After Woman Prisoner Dies After Denial of Medical Parole
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-suo-motu-cognizance-woman-prisoner-dies-denial-medical-parole-544691
+### 2026-08-07T05:32:35+00:00
+Bezboruah And Limits Of Article 227
+https://www.livelaw.in/articles/bezboruah-limits-article227-544671
 
-[Read on Telegram](https://t.me/livelawindia/116713)
-
----
-### 2026-08-06T15:24:17+00:00
-Senior Advocate Pradeep Rai To Contest SCBPA President Election
-https://www.livelaw.in/news-updates/senior-advocate-pradeep-rai-to-contest-scbpa-president-election-544692
-
-[Read on Telegram](https://t.me/livelawindia/116714)
+[Read on Telegram](https://t.me/livelawindia/116748)
 
 ---
-### 2026-08-06T15:25:37+00:00
-'Are Political Parties Not Supposed To Follow Democratic Principles Like Other Institutions?' Supreme Court Asks In Shiv Sena Hearing
-https://www.livelaw.in/top-stories/supreme-court-maharashtra-shiv-sena-split-eknath-shinde-uddhav-thackeray-sc-asks-shouldnt-political-parties-abide-by-democratic-principles-544693
+### 2026-08-07T05:32:45+00:00
+Telangana High Court Restrains 'Defamatory' Content Against Two Developers Over Alleged Encroachment On Govt Land
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-restrains-further-publication-allegedly-defamatory-videos-544738
 
-[Read on Telegram](https://t.me/livelawindia/116715)
-
----
-### 2026-08-06T15:32:37+00:00
-Karnataka High Court Calls For Strict Implementation Of MHA SOP On Deportation Of Illegal Immigrants
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-frro-implement-deportation-sop-fast-544697
-
-[Read on Telegram](https://t.me/livelawindia/116716)
+[Read on Telegram](https://t.me/livelawindia/116749)
 
 ---
-### 2026-08-06T15:32:57+00:00
-Presumption Of Guilt Under POCSO Act Not Automatic, Prosecution Must Prove Offence Through Reliable Evidence: Delhi High Court Reiterates
-https://www.livelaw.in/high-court/delhi-high-court/section-29-pocso-accused-guilt-presumption-not-automatic-544601
+### 2026-08-07T05:36:15+00:00
+Irrespective Of Rank, Police Officials Cannot Order Further Investigation During Trial Without Court's Permission: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-police-cannot-order-further-investigation-without-court-permission-544756
 
-[Read on Telegram](https://t.me/livelawindia/116717)
-
----
-### 2026-08-06T15:42:17+00:00
-PC Act | No Prior Sanction Needed In Cases Where Cognizance Was Taken Before 2018 Amendment: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/corruption-act-2018-amendment-not-retrospective-if-cognizance-taken-544701
-
-[Read on Telegram](https://t.me/livelawindia/116718)
+[Read on Telegram](https://t.me/livelawindia/116750)
 
 ---
-### 2026-08-06T15:55:07+00:00
-PC Act | Strong Suspicion, Not Proof Of Guilt, Is Required At Stage Of Framing Charges: Allahabad High Court Refuses Relief To Ex-GST Officer
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-pc-act-strong-suspicion-proof-of-guilt-framing-charges-ex-gst-officer-544704
+### 2026-08-07T05:43:15+00:00
+President Grants Assent To Law Penalising Obstruction To Vande Mataram Singing
+https://www.livelaw.in/top-stories/president-grants-assent-to-law-penalising-obstruction-to-vande-mataram-singing-544759
 
-[Read on Telegram](https://t.me/livelawindia/116719)
-
----
-### 2026-08-06T16:02:47+00:00
-Police Constable Can't Be Dismissed Solely On Conviction, Disciplinary Authority Must Consider Conduct Which Led To It: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-conviction-sustain-dismissal-disciplinary-authority-544645
-
-[Read on Telegram](https://t.me/livelawindia/116720)
+[Read on Telegram](https://t.me/livelawindia/116751)
 
 ---
-### 2026-08-06T16:44:57+00:00
-Karnataka High Court Refuses To Quash FIR Against Advocate Accused Of Seeking ₹50 Lakh To Bribe Judge For Bail
-https://www.livelaw.in/high-court/karnataka-high-court/advocate-seeking-money-to-bribe-judge-fir-upheld-judiciary-corruption-544706
+### 2026-08-07T06:02:35+00:00
+Supreme Court Refuses To Reject Election Petition Against Ex-Chhattisgarh CM Bhupesh Baghel
+https://www.livelaw.in/top-stories/supreme-court-refuses-to-reject-election-petition-against-ex-chhattisgarh-cm-bhupesh-baghel-544760
 
-[Read on Telegram](https://t.me/livelawindia/116721)
-
----
-### 2026-08-06T17:17:18+00:00
-Supreme Court Daily Round-Up : August 6, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-6-2026-544695
-
-[Read on Telegram](https://t.me/livelawindia/116722)
+[Read on Telegram](https://t.me/livelawindia/116752)
 
 ---
-### 2026-08-06T17:21:28+00:00
-No Beef Found, No Evidence Of Transport For Slaughter: Allahabad High Court Orders ₹4.75 Lakh Compensation Over Illegal Vehicle Confiscation
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-illegal-vehicle-confiscation-compensation-up-cow-slaughter-act-beef-transport-544709
+### 2026-08-07T06:02:55+00:00
+Identical Packaging, Different Charges: Chandigarh Consumer Commission Holds Domino's Liable
+https://www.livelaw.in/consumer-cases/identical-packaging-different-charges-chandigarh-consumer-commission-holds-dominos-liable-544721
 
-[Read on Telegram](https://t.me/livelawindia/116723)
+[Read on Telegram](https://t.me/livelawindia/116753)
 
 ---
-### 2026-08-06T17:58:29+00:00
-Lucknow Fire Tragedy | Allahabad High Court Seeks Comprehensive Reply From UP Govt As State Says Fire Safety SOP 'Almost Ready'
-https://www.livelaw.in/high-court/allahabad-high-court/lucknow-fire-tragedy-allahabad-high-court-up-govt-fire-safety-sop-almost-ready-544710
+### 2026-08-07T06:12:15+00:00
+Advocates Cannot Prevent Police From Producing Arrested Lawyers In Court : Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-advocates-objection-police-excess-not-prevent-production-accused-court-544762
 
-[Read on Telegram](https://t.me/livelawindia/116724)
+[Read on Telegram](https://t.me/livelawindia/116754)
+
+---
+### 2026-08-07T06:19:05+00:00
+Delhi High Court Quashes Cases Over Maggi Noodles' Lead Content Allegations
+https://www.livelaw.in/high-court/delhi-high-court/maggi-noodles-lead-content-businesses-criminal-cases-quashed-nestle-544763
+
+[Read on Telegram](https://t.me/livelawindia/116755)
+
+---
+### 2026-08-07T06:25:25+00:00
+IBC Has Reshaped India's Commercial Law In A Decade: Justice Vikram Nath At Book Launch
+https://www.livelaw.in/news-updates/ibc-has-reshaped-indias-commercial-law-in-a-decade-justice-vikram-nath-at-book-launch-544764
+
+[Read on Telegram](https://t.me/livelawindia/116756)
+
+---
+### 2026-08-07T06:32:25+00:00
+Unexplained Delay In Deciding Detenu's Plea For Release Renders Continued Detention Illegal: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-right-expeditious-consideration-representation-544752
+
+[Read on Telegram](https://t.me/livelawindia/116757)
+
+---
+### 2026-08-07T06:39:45+00:00
+'Approach HC' : Supreme Court To NEET-UG 2026 Candidates Alleging OMR Discrepancy
+https://www.livelaw.in/top-stories/approach-hc-supreme-court-to-neet-ug-2026-candidates-alleging-omr-discrepancy-544765
+
+[Read on Telegram](https://t.me/livelawindia/116758)
+
+---
+### 2026-08-07T06:52:45+00:00
+Chandigarh Court Issues Notice To Salman Khan's Being Human Foundation In Jewellery Franchise Complaint
+https://www.livelaw.in/news-updates/salman-khan-summoned-by-chandigarh-court-in-being-human-jewellery-franchise-complaint-case-544767
+
+[Read on Telegram](https://t.me/livelawindia/116759)
+
+---
+### 2026-08-07T06:57:25+00:00
+Loan Default After SARFAESI Notice Cannot Be Turned Into Criminal Case: Patna High Court Quashes Cheating, Breach Of Trust Proceedings
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-loan-default-sarfaesi-notice-criminal-case-544744
+
+[Read on Telegram](https://t.me/livelawindia/116760)
+
+---
+### 2026-08-07T07:10:35+00:00
+Zero Sugar? Delhi High Court Issues Notice On Plea Seeking India-Specific Study On Health Impact Of Artificial Sweeteners
+https://www.livelaw.in/high-court/delhi-high-court/study-artificial-sweeteners-health-impact-in-india-zero-sugar-claims-notice-issued-544768
+
+[Read on Telegram](https://t.me/livelawindia/116761)
+
+---
+### 2026-08-07T07:15:55+00:00
+'Freedom Fighters Took Bullets & You Fear Eggs?' : Supreme Court Refuses Mahua Moitra's Plea For Virtual Appearance Before Police
+https://www.livelaw.in/top-stories/freedom-fighters-took-bullets-you-fear-eggs-supreme-court-refuses-mahua-moitras-plea-for-virtual-appearance-before-police-544771
+
+[Read on Telegram](https://t.me/livelawindia/116762)
+
+---
+### 2026-08-07T07:22:15+00:00
+"Elected Representatives Assaulting Voters Dents Democracy": Bombay High Court Grants Bail To Shiv Sena Corporator In Doctors Assault Case
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-grants-bail-shiv-sena-shinde-corporator-ramesh-mhatre-544772
+
+[Read on Telegram](https://t.me/livelawindia/116763)
 
 ---
