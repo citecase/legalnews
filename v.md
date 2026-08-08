@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-08T12:36:53+00:00*
+*Last Updated: 2026-08-08T15:02:35+00:00*
+
+---
+
+### 2026-08-08T15:02:35+00:00
+Associate Manager (Legal) Vacancy At HLL Lifecare Limited
+https://www.verdictum.in/job-updates/hll-lifecare-limited-1619459
+
+[Source Link](https://t.me/verdictumlegalupdates/28437)
+
+---
+
+### 2026-08-08T13:33:14+00:00
+Hotels Providing Guests Access To Literary & Musical Works Through Cable TV Without A Separate Licence Is Copyright Infringement: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/the-indian-performing-right-society-limited-v-hotel-appolo-tours-private-limited-1619458
+
+[Source Link](https://t.me/verdictumlegalupdates/28436)
 
 ---
 
@@ -145,22 +161,6 @@ Reservation Grounded In Historical & Social Backwardness Rather Than Economic St
 https://www.verdictum.in/supreme-court/centre-opposes-income-based-preference-sc-st-obc-ews-reservation-1619403
 
 [Source Link](https://t.me/verdictumlegalupdates/28418)
-
----
-
-### 2026-08-07T12:03:12+00:00
-Wife’s Demand For Separate Residence Away From Husband's Family Without Sufficient Reason Constitutes Cruelty: Kerala High Court
-https://www.verdictum.in/kerala-high-court/a-v-b-2026ker56542-wife-husband-family-cruelty-separate-residency-1619397
-
-[Source Link](https://t.me/verdictumlegalupdates/28417)
-
----
-
-### 2026-08-07T11:32:51+00:00
-Revenue Cannot Artificially Split Indivisible Turnkey Contracts Governed By Finance Act 1994 To Levy Service Tax: Supreme Court
-https://www.verdictum.in/supreme-court/commissioner-of-service-tax-chennai-v-ms-diebold-systems-p-ltd-neutral-citation-2026-insc-808-1619396
-
-[Source Link](https://t.me/verdictumlegalupdates/28416)
 
 ---
 
