@@ -1,128 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-08T02:49:14+00:00*
+*Last Updated: 2026-08-08T06:19:35+00:00*
 
 ---
 
-### 2026-08-08T02:49:14+00:00
-Empanelment Of Advocates At Employees State Insurance Corporation (ESIC), Regional Office, Indore
-https://www.livelaw.in/job-updates/empanelment-of-advocates-at-employees-state-insurance-corporation-esic-regional-office-indore-544895
-
-[Read on Telegram](https://t.me/livelawindia/116830)
-
----
-### 2026-08-08T03:01:24+00:00
-Manager Vacancy At KPMG India [Apply Now]
-https://www.livelaw.in/job-updates/manager-vacancy-at-kpmg-india-544896
-
-[Read on Telegram](https://t.me/livelawindia/116831)
-
----
-### 2026-08-08T03:02:44+00:00
-Senior Associate Vacancy At Ernst & Young
-https://www.livelaw.in/job-updates/senior-associate-vacancy-at-ernst-young-544897
-
-[Read on Telegram](https://t.me/livelawindia/116832)
-
----
-### 2026-08-08T03:05:04+00:00
-Senior Manager (Corporate Legal) Vacancy At Tata Communications Limited
-https://www.livelaw.in/job-updates/senior-manager-corporate-legal-vacancy-at-tata-communications-limited-544898
-
-[Read on Telegram](https://t.me/livelawindia/116833)
-
----
-### 2026-08-08T03:33:04+00:00
-LiveLaw Delhi High Court Monthly Digest: July 2026 [Citations 598 - 713]
-https://www.livelaw.in/high-court/delhi-high-court/livelaw-delhi-high-court-monthly-digest-july-2026-citations-598-713-543973
-
-[Read on Telegram](https://t.me/livelawindia/116834)
-
----
-### 2026-08-08T03:57:54+00:00
-Calcutta High Court Dismisses TMC MLA Kunal Ghosh's Plea Seeking Directions On WB Assembly Speaker To Allow Him To Participate In House
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-dismisses-tmc-mla-kunal-ghoshs-plea-seeking-directions-on-wb-assembly-speaker-to-allow-him-to-participate-in-house-544889
-
-[Read on Telegram](https://t.me/livelawindia/116835)
-
----
-### 2026-08-08T04:17:54+00:00
-Police Stations/ Prisons Can't Be Used For Press Briefings By Any Political Party Or NGO: Meghalaya High Court
-https://www.livelaw.in/high-court/meghalaya-high-court/police-station-no-press-briefings-by-non-state-actors-544899
-
-[Read on Telegram](https://t.me/livelawindia/116836)
-
----
-### 2026-08-08T04:22:14+00:00
-Lawyers Must Act Decently Not Only With Own Clients But Also With Opposite Parties : Supreme Court
-https://www.livelaw.in/supreme-court/lawyers-must-act-decently-not-only-with-own-clients-but-also-with-opposite-parties-supreme-court-544880
-
-[Read on Telegram](https://t.me/livelawindia/116837)
-
----
-### 2026-08-08T04:32:35+00:00
-Right Of Consideration For Regularization Doesn't Perish With Employee's Death, Survives Through Legal Heirs: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-right-of-consideration-regularization-employee-death-survives-544886
-
-[Read on Telegram](https://t.me/livelawindia/116838)
-
----
-### 2026-08-08T04:52:45+00:00
-Excess Salary Paid Due To Wrong Pay Fixation Can't Be Recovered From Class-III & IV Employees Despite Undertaking: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/recovery-excess-payment-class-iii-iv-employees-impermissible-544742
-
-[Read on Telegram](https://t.me/livelawindia/116839)
-
----
-### 2026-08-08T04:58:05+00:00
-Supreme Court Issues Notice On Advocates' Plea Challenging Gujarat District Judge Recruitment Results
-https://www.livelaw.in/top-stories/supreme-court-issues-notice-on-advocates-plea-challenging-gujarat-district-judge-recruitment-results-544855
-
-[Read on Telegram](https://t.me/livelawindia/116840)
-
----
-### 2026-08-08T05:02:45+00:00
-Kochhar & Co. Advises NOVARGI Group On Joint Venture With CEREC Metalform In India
-https://www.livelaw.in/law-firms/deals/kochhar-co-advises-novargi-group-joint-venture-cerec-metalform-india-544906
-
-[Read on Telegram](https://t.me/livelawindia/116841)
-
----
-### 2026-08-08T05:33:25+00:00
-Ken-Betwa River Linking Project: Balancing Development And Environmental Justice
-https://www.livelaw.in/lawschool/articles/kenbetwa-river-linking-project-balancing-development-environmental-justice-544857
-
-[Read on Telegram](https://t.me/livelawindia/116842)
-
----
-### 2026-08-08T05:33:35+00:00
-TMC MP Abhishek Banerjee Approaches Supreme Court Second Time Seeking Foreign Travel Permission For Eye Treatment
-https://www.livelaw.in/top-stories/tmc-mp-abhishek-banerjee-approaches-supreme-court-second-time-seeking-foreign-travel-permission-for-eye-treatment-544908
-
-[Read on Telegram](https://t.me/livelawindia/116843)
-
----
-### 2026-08-08T05:44:55+00:00
-Ownership Transfer Between Insured Siblings No Ground To Deny Full Insurance Claim: J&K Consumer Commission
-https://www.livelaw.in/consumer-cases/ownership-transfer-between-insured-siblings-no-ground-to-deny-full-insurance-claim-jk-consumer-commission-544910
-
-[Read on Telegram](https://t.me/livelawindia/116844)
-
----
-### 2026-08-08T05:52:15+00:00
-Once Court-Annexed Mediation Ends In Signed Settlement, Party Cannot Withdraw Consent On Mere Change Of Mind: Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-annexed-mediation-signed-settlement-withdraw-consent-544743
-
-[Read on Telegram](https://t.me/livelawindia/116845)
-
----
-### 2026-08-08T05:52:25+00:00
-Know The Law | Doctrine Of Ratification : Supreme Court Explains Principles
-https://www.livelaw.in/know-the-law/know-the-law-doctrine-of-ratification-supreme-court-explains-principles-544384
-
-[Read on Telegram](https://t.me/livelawindia/116846)
-
----
 ### 2026-08-08T06:19:35+00:00
 LiveLaw Allahabad High Court Monthly Digest: July 2026  [Citations 341 - 504]
 https://www.livelaw.in/high-court/allahabad-high-court/livelaw-allahabad-high-court-monthly-digest-july-2026-citations-341-504-544912
@@ -142,5 +23,125 @@ https://www.livelaw.in/supreme-court/courts-should-adopt-liberal-approach-in-con
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-r-rajesh-flood-rescue-544918
 
 [Read on Telegram](https://t.me/livelawindia/116849)
+
+---
+### 2026-08-08T07:32:35+00:00
+Work Order Can't Be Cancelled Without Hearing Successful Bidder After Contract Is Awarded: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-work-cancelled-hearing-successful-bidder-contract-awarded-544904
+
+[Read on Telegram](https://t.me/livelawindia/116850)
+
+---
+### 2026-08-08T07:58:36+00:00
+'Wholly Unwarranted': Kerala High Court Criticizes Trial Court's Adverse Observations About Lawyer's Drafting Skills
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-trial-court-adverse-remarks-lawyer-competence-544927
+
+[Read on Telegram](https://t.me/livelawindia/116851)
+
+---
+### 2026-08-08T08:31:26+00:00
+'Restore Heritage Of Pink City': Rajasthan High Court Orders Crackdown On Illegal Constructions In Jaipur
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-courts-directs-restoration-pink-city-heritage-illegal-constructions-544933
+
+[Read on Telegram](https://t.me/livelawindia/116852)
+
+---
+### 2026-08-08T08:38:26+00:00
+Mumbai Court Denies Anticipatory Bail To 2 TISS Students For Raising Slogans To Release Sharjeel Imam, Umar Khalid
+https://www.livelaw.in/news-updates/law-of-land-mumbai-court-denies-bail-sharjeel-umar-544934
+
+[Read on Telegram](https://t.me/livelawindia/116853)
+
+---
+### 2026-08-08T08:47:46+00:00
+Gauhati High Court Stays Recruitment To Assam State Consumer Commission, Says Process Prima Facie Contrary To SC Directions
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-assam-state-consumer-commission-544929
+
+[Read on Telegram](https://t.me/livelawindia/116854)
+
+---
+### 2026-08-08T09:07:16+00:00
+Chotanagpur Tenancy Act | Restoration Proceedings Must Be Initiated Within Reasonable Time; Final Orders Cannot Be Reopened: Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-restoration-proceedings-chotanagpur-tenancy-act-initiated-reasonable-time-544915
+
+[Read on Telegram](https://t.me/livelawindia/116855)
+
+---
+### 2026-08-08T09:32:36+00:00
+Passport That Proves Nothing? MEA's Position And What It Costs Constitution
+https://www.livelaw.in/articles/passport-proves-mea-position-constitution-544858
+
+[Read on Telegram](https://t.me/livelawindia/116856)
+
+---
+### 2026-08-08T09:43:06+00:00
+Telephone Interception Cannot Be Retrospectively Validated By MHA Confirmation Order: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/no-retrospective-validation-phone-interception-544903
+
+[Read on Telegram](https://t.me/livelawindia/116857)
+
+---
+### 2026-08-08T09:51:06+00:00
+#TheLawChallenge
+ : A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
+https://www.livelaw.in/top-stories/livelaw-and-qshala-weekly-legal-quiz-544941
+
+[Read on Telegram](https://t.me/livelawindia/116858)
+
+---
+### 2026-08-08T10:02:46+00:00
+RTI Applicant Not Conversant With Language Of Info Can't Be Accompanied By 'Third Party' To Inspect Records: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-rti-applicant-inspection-of-records-thirds-party-information-accompanied-544928
+
+[Read on Telegram](https://t.me/livelawindia/116859)
+
+---
+### 2026-08-08T10:37:16+00:00
+Mere Non-Payment Of Electricity Dues Not 'Electricity Theft' Without Proof Of Meter Tampering: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-quashes-electricity-theft-fir-nonpayment-bills-civil-liability-544905
+
+[Read on Telegram](https://t.me/livelawindia/116860)
+
+---
+### 2026-08-08T11:03:16+00:00
+Acid Attack Victims Must Be Compensated Irrespective Of Fine Imposed On Offender: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-acid-attack-victim-compensation-544930
+
+[Read on Telegram](https://t.me/livelawindia/116861)
+
+---
+### 2026-08-08T11:32:27+00:00
+Fill Vacant Posts In Rajasthan Civil Services Appellate Tribunal Or DoP Principal Secretary Must Appear: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-appointment-two-tribunal-members-summons-dop-principal-secretary-default-544931
+
+[Read on Telegram](https://t.me/livelawindia/116862)
+
+---
+### 2026-08-08T11:38:47+00:00
+Madras High Court Issues Guidelines On Video Conferencing In Criminal Trials; Permits Accused Residing Outside State/Country To Appear Remotely In Appropriate Cases
+https://www.livelaw.in/law-firms/litigation/madras-high-court-issues-guidelines-video-conferencing-criminal-trials-544949
+
+[Read on Telegram](https://t.me/livelawindia/116863)
+
+---
+### 2026-08-08T12:03:07+00:00
+Allahabad High Court Imposes ₹2.5 Lakh Costs On Builder For Harassing Homebuyer For 13 Yrs Through Frivolous Litigation
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-imposes-lakhs-builder-homebuyer-various-rounds-frivolous-litigation-544935
+
+[Read on Telegram](https://t.me/livelawindia/116864)
+
+---
+### 2026-08-08T12:15:57+00:00
+Supreme Court Directs Rajasthan To Constitute Inter-Departmental Group & River Authority To Tackle EnvironmentalIssues
+https://www.livelaw.in/top-stories/supreme-court-jojari-bandi-luni-rajasthan-rivers-industrial-pollution-suo-motu-direction-to-constitute-integrated-coordination-group-call-for-resolution-plan-544953
+
+[Read on Telegram](https://t.me/livelawindia/116865)
+
+---
+### 2026-08-08T12:35:17+00:00
+LiveLaw Editorial Guidelines For Article Submissions
+https://www.livelaw.in/articles/livelaw-editorial-guidelines-for-article-submissions-544955
+
+[Read on Telegram](https://t.me/livelawindia/116866)
 
 ---
