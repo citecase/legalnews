@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-08T06:53:05+00:00*
+*Last Updated: 2026-08-08T12:36:53+00:00*
+
+---
+
+### 2026-08-08T12:36:53+00:00
+No Conflation With Novelty & Inventive Step: Delhi High Court Frames Guidelines To Determine Mental Claims U/S.3(M) Of Patents Act
+https://www.verdictum.in/delhi-high-court/t-mobile-international-ag-and-co-kg-v-the-controller-general-of-patents-2026dhc6266-1619466
+
+[Source Link](https://t.me/verdictumlegalupdates/28435)
+
+---
+
+### 2026-08-08T11:32:52+00:00
+UP Bar Council Should Issue Enrolment Numbers In Four Weeks Of AIBE Result; Police Verification To Be Completed In Two Weeks: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/yogendra-v-state-of-up-and-3-others-advocate-enrollment-bar-council-aibe-1619457
+
+[Source Link](https://t.me/verdictumlegalupdates/28434)
+
+---
+
+### 2026-08-08T10:12:10+00:00
+Non-Consummation Of Marriage Can’t Be Converted Into Cruelty Case By Making Ornamental Allegations: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/mm-v-state-of-karnataka-2026khc38574-non-consummation-marriage-cruelty-1619455
+
+[Source Link](https://t.me/verdictumlegalupdates/28433)
+
+---
+
+### 2026-08-08T09:33:09+00:00
+Vague Allegations By Wife Cannot Draw Husband’s Relatives Into Cruelty Proceedings Without Specific Role Attribution: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/ev-v-state-of-karnataka-criminal-proceedings-husband-damily-wife-divorce-1619454
+
+[Source Link](https://t.me/verdictumlegalupdates/28432)
+
+---
+
+### 2026-08-08T08:53:08+00:00
+Video Conferencing Is Court's Discretion & Not A Fundamental Right: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/vemula-venkata-vinay-babu-alias-vinay-vemula-v-state-of-up-2026ahc163641-video-conferencing-is-courts-discretion-1619452
+
+[Source Link](https://t.me/verdictumlegalupdates/28431)
+
+---
+
+### 2026-08-08T08:12:27+00:00
+Bribe Demands In Name Of Judges Cut At Root Of Institutional Integrity: Karnataka High Court Refuses To Quash FIR Against Advocate
+https://www.verdictum.in/karnataka-high-court/dayeena-banu-v-state-of-karnataka-criminal-petition-no-2169-of-2025-bribe-demands-in-name-of-judges-1619449
+
+[Source Link](https://t.me/verdictumlegalupdates/28430)
+
+---
+
+### 2026-08-08T07:32:26+00:00
+Supreme Court: Sale Deed Executed With Knowledge Of Part Consideration Can’t Be Rendered Void On Non-Payment Of Balance Consideration
+https://www.verdictum.in/supreme-court/raziya-begum-ors-v-nafisa-begum-abdul-hamid-2026-insc-814-sale-consideration-1619446
+
+[Source Link](https://t.me/verdictumlegalupdates/28429)
 
 ---
 
@@ -105,62 +161,6 @@ Revenue Cannot Artificially Split Indivisible Turnkey Contracts Governed By Fina
 https://www.verdictum.in/supreme-court/commissioner-of-service-tax-chennai-v-ms-diebold-systems-p-ltd-neutral-citation-2026-insc-808-1619396
 
 [Source Link](https://t.me/verdictumlegalupdates/28416)
-
----
-
-### 2026-08-07T11:03:10+00:00
-Delhi High Court Stays FSSAI Ban On Dabur Selling Food Products With “100%” Claims
-https://www.verdictum.in/delhi-high-court/fssai-ban-on-dabur-selling-food-products-with-100-claims-stayed-1619391
-
-[Source Link](https://t.me/verdictumlegalupdates/28415)
-
----
-
-### 2026-08-07T10:33:09+00:00
-Calcutta High Court Refuses Urgent Hearing To Abhishek's Aide Sumit Roy In Plea To Quash 4 FIRs
-https://www.verdictum.in/calcutta-high-court/urgent-hearing-refused-to-abhisheks-aide-sumit-roy-in-plea-to-quash-4-firs-1619390
-
-[Source Link](https://t.me/verdictumlegalupdates/28414)
-
----
-
-### 2026-08-07T10:02:47+00:00
-Supreme Court Directs Ghaziabad Hospitals To Compensate Family Of Deceased 4 Yr Old Rape Victim Who Was Denied Emergency Care
-https://www.verdictum.in/supreme-court/ghaziabad-hospitals-compensate-family-deceased-4-yr-old-rape-victim-denied-emergency-care-1619395
-
-[Source Link](https://t.me/verdictumlegalupdates/28413)
-
----
-
-### 2026-08-07T09:32:46+00:00
-Supreme Court Refuses To Suspend Life Sentence Given To Asaram’s Son Narayan Sai In Rape Case
-https://www.verdictum.in/supreme-court/suspenion-life-sentence-given-to-asarams-son-narayan-sai-in-rape-case-refused-1619388
-
-[Source Link](https://t.me/verdictumlegalupdates/28412)
-
----
-
-### 2026-08-07T09:02:25+00:00
-Supreme Court Refuses To Entertain Plea Seeking Registration Of FIR & Probe Into Alleged Discovery Of Stash Of Cash At Ex-HC Judge Yashwant Varma’s Residence
-https://www.verdictum.in/supreme-court/plea-seeking-registration-of-fir-probe-into-alleged-discovery-cash-ex-hc-judge-yashwant-varmas-residence-1619383
-
-[Source Link](https://t.me/verdictumlegalupdates/28411)
-
----
-
-### 2026-08-07T08:15:25+00:00
-Backwards Class Status Of Converts To Islam: Apex Court Reserves Orders At Admission On Tamil Nadu's Appeal
-https://www.verdictum.in/supreme-court/tamil-nadu-high-court-verdict-denying-backwards-class-status-converts-islam-1619385
-
-[Source Link](https://t.me/verdictumlegalupdates/28410)
-
----
-
-### 2026-08-07T08:02:23+00:00
-Supreme Court Refuses To Interfere With Chhattigarh High Court Order On Election Plea Against Ex-CM Bhupesh Baghel
-https://www.verdictum.in/supreme-court/chhattigarh-high-court-order-on-election-plea-against-ex-cm-bhupesh-baghel-1619377
-
-[Source Link](https://t.me/verdictumlegalupdates/28409)
 
 ---
 
