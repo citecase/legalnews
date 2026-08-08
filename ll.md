@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-08T06:19:35+00:00*
+*Last Updated: 2026-08-08T07:32:35+00:00*
 
 ---
 
-### 2026-08-08T06:19:35+00:00
-LiveLaw Allahabad High Court Monthly Digest: July 2026  [Citations 341 - 504]
-https://www.livelaw.in/high-court/allahabad-high-court/livelaw-allahabad-high-court-monthly-digest-july-2026-citations-341-504-544912
-
-[Read on Telegram](https://t.me/livelawindia/116847)
-
----
-### 2026-08-08T06:27:25+00:00
-Courts Should Adopt Liberal Approach In Condoning Delay In Appeals Filed By Convicts: Supreme Court
-https://www.livelaw.in/supreme-court/courts-should-adopt-liberal-approach-in-condoning-delay-in-appeals-filed-by-convicts-supreme-court-544386
-
-[Read on Telegram](https://t.me/livelawindia/116848)
-
----
-### 2026-08-08T06:58:45+00:00
-'A True Hero': Kerala High Court Pays Tribute To Volunteer R. Rajesh Who Lost His Life During Flood Rescue Operations In Kannur
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-r-rajesh-flood-rescue-544918
-
-[Read on Telegram](https://t.me/livelawindia/116849)
-
----
 ### 2026-08-08T07:32:35+00:00
 Work Order Can't Be Cancelled Without Hearing Successful Bidder After Contract Is Awarded: Patna High Court
 https://www.livelaw.in/high-court/patna-high-court/patna-high-court-work-cancelled-hearing-successful-bidder-contract-awarded-544904
@@ -143,5 +122,26 @@ LiveLaw Editorial Guidelines For Article Submissions
 https://www.livelaw.in/articles/livelaw-editorial-guidelines-for-article-submissions-544955
 
 [Read on Telegram](https://t.me/livelawindia/116866)
+
+---
+### 2026-08-08T13:12:28+00:00
+Union's Court In Renamed States: Why High Court Of Kerala May Outlast State's Name
+https://www.livelaw.in/articles/unions-court-renamed-states-high-court-kerala-outlast-state-name-544960
+
+[Read on Telegram](https://t.me/livelawindia/116867)
+
+---
+### 2026-08-08T14:08:58+00:00
+Different Problems Require Different Solutions, Legal Aid Must Be Rooted In Local Realities: CJI Surya Kant
+https://www.livelaw.in/top-stories/different-problems-require-different-solutions-legal-aid-must-be-rooted-in-local-realities-cji-surya-kant-544965
+
+[Read on Telegram](https://t.me/livelawindia/116868)
+
+---
+### 2026-08-08T14:32:58+00:00
+Can India Force WhatsApp To Break End-To- End Encryption? Answer from Podchasov v. Russia
+https://www.livelaw.in/articles/india-force-whatsapp-break-endtoend-encryption-podchasovvrussia-544859
+
+[Read on Telegram](https://t.me/livelawindia/116869)
 
 ---
