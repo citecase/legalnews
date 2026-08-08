@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-07T16:02:11+00:00*
+*Last Updated: 2026-08-08T06:53:05+00:00*
+
+---
+
+### 2026-08-08T06:53:05+00:00
+Passed Away Without Reaping Fruits: Delhi High Court Grants Relief To LRs Of AIIMS Nursing Orderly 47 Years After Disputed Resignation
+https://www.verdictum.in/delhi-high-court/aiims-v-mohd-rafiq-2026dhc6366-aiims-orderly-47-years-after-disputed-resignation-1619443
+
+[Source Link](https://t.me/verdictumlegalupdates/28428)
+
+---
+
+### 2026-08-08T06:02:43+00:00
+Neither Home Ministry Nor Review Committee Can Retrospectively Validate Phone Interception For Anterior Period: Chhattisgarh High Court
+https://www.verdictum.in/chhattisgarh-high-court/shri-ravi-shankar-ji-maharaj-v-central-bureau-of-investigation-2026cghc33468-d-phone-tapping-home-ministry-nor-review-committee-1619442
+
+[Source Link](https://t.me/verdictumlegalupdates/28427)
+
+---
+
+### 2026-08-08T05:13:02+00:00
+Centre Notifies Appointment Of Advocates, Judicial Officers As Judges Of Various High Courts
+https://www.verdictum.in/court-updates/high-courts/appointment-of-advocates-judicial-officers-as-judges-of-various-high-courts-1619437
+
+[Source Link](https://t.me/verdictumlegalupdates/28426)
+
+---
+
+### 2026-08-08T04:32:31+00:00
+Direct Perception Of Images Is Direct Evidence U/S 60 Evidence Act: Delhi HC Upholds POCSO Conviction Of 60-Yr-Old
+https://www.verdictum.in/delhi-high-court/wahid-khan-v-state-2026dhc6387-direct-evidence-us-60-evidence-act-60-yr-old-pocso-act-1619430
+
+[Source Link](https://t.me/verdictumlegalupdates/28425)
 
 ---
 
@@ -129,38 +161,6 @@ Supreme Court Refuses To Interfere With Chhattigarh High Court Order On Election
 https://www.verdictum.in/supreme-court/chhattigarh-high-court-order-on-election-plea-against-ex-cm-bhupesh-baghel-1619377
 
 [Source Link](https://t.me/verdictumlegalupdates/28409)
-
----
-
-### 2026-08-07T07:33:02+00:00
-“Attempted Robbery Gone Wrong”: Delhi High Court Converts Murder Conviction Of One Accused To Culpable Homicide ; Acquits Three Others In 24-Year-Old Case
-https://www.verdictum.in/delhi-high-court/firoz-sagar-v-state-2026dhc6282-robbery-gone-wrong-converts-murder-conviction-1619371
-
-[Source Link](https://t.me/verdictumlegalupdates/28408)
-
----
-
-### 2026-08-07T06:54:00+00:00
-Having Taken Plunge Into Politics, You Fear Eggs: Supreme Court Refuses To Grant Relief To Mahua Moitra From Personal Appearance In Religious Sentiments Case
-https://www.verdictum.in/supreme-court/refuses-grant-relief-mahua-moitra-personal-appearance-religious-sentiments-1619374
-
-[Source Link](https://t.me/verdictumlegalupdates/28407)
-
----
-
-### 2026-08-07T06:33:19+00:00
-Signature Of A Minor Does Not Supply The Consent Required Under MTP Act: Delhi High Court
-https://www.verdictum.in/delhi-high-court/signature-of-a-minor-does-not-supply-the-consent-required-under-mtp-act-delhi-high-court-1619367
-
-[Source Link](https://t.me/verdictumlegalupdates/28406)
-
----
-
-### 2026-08-07T05:52:58+00:00
-Civil Courts Can Decide Disputes Of Succession & Partition Involving Exclusively Non-Tribal Parties In Scheduled Areas: Supreme Court
-https://www.verdictum.in/supreme-court/mukkera-venkata-ratnam-v-vantasala-china-venkateswarlu-2026-insc-810-succession-partition-1619361
-
-[Source Link](https://t.me/verdictumlegalupdates/28405)
 
 ---
 
