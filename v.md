@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-09T06:33:27+00:00*
+*Last Updated: 2026-08-09T12:32:32+00:00*
+
+---
+
+### 2026-08-09T12:32:32+00:00
+Amended Section 19 Prevention Of Corruption Act Does Not Reopen Cases Where Cognizance Was Already Taken Before July 26, 2018: Delhi High Court
+https://www.verdictum.in/delhi-high-court/court-on-its-own-motion-v-state-2026dhc6342-db-prevention-of-corruption-act-amended-sanction-us-19-1619482
+
+[Source Link](https://t.me/verdictumlegalupdates/28442)
+
+---
+
+### 2026-08-09T10:32:50+00:00
+Criminal Proceedings Are Not A Measure Of Recovery Of Money: Supreme Court
+https://www.verdictum.in/supreme-court/sandeep-shukla-vstate-of-up-2026-insc-817-criminal-money-transactions-recovery-1619481
+
+[Source Link](https://t.me/verdictumlegalupdates/28441)
+
+---
+
+### 2026-08-09T08:32:49+00:00
+PPF Investments For Child Can’t Be Used By Father To Off-Set His Responsibility Of Paying Maintenance: Delhi High Court
+https://www.verdictum.in/delhi-high-court/a-v-b-2026dhc6228-ppf-investments-child-father-responsibility-maintenance-1619467
+
+[Source Link](https://t.me/verdictumlegalupdates/28440)
 
 ---
 
@@ -137,30 +161,6 @@ Nikahnama Can’t Prove Title Without Genealogy: Madhya Pradesh High Court Uphol
 https://www.verdictum.in/madhya-pradesh-high-court/sarwat-jahan-begum-v-the-state-of-madhya-pradesh-nikahnama-land-title-bhopal-nawab-1619413
 
 [Source Link](https://t.me/verdictumlegalupdates/28423)
-
----
-
-### 2026-08-07T14:32:49+00:00
-Filing Of Suits For Protection Of Statutory Rights Conferred Cannot Be Termed As Intimidatory Or Vexatious: Supreme Court On PepsiCo's Suit Against Farmers
-https://www.verdictum.in/supreme-court/kavitha-kuruganti-v-pepsico-india-holdings-pvt-ltd-2026-insc-811-infringement-farmers-rights-1619412
-
-[Source Link](https://t.me/verdictumlegalupdates/28422)
-
----
-
-### 2026-08-07T14:02:47+00:00
-Supreme Court Directs Rajasthan Government To Set Up Integrated Coordination Group, River Authority For Jojari-Bandi-Luni Restoration
-https://www.verdictum.in/supreme-court/in-re-2-million-lives-at-risk-contamination-in-jojari-river-rajasthan-2026-insc-812-1619408
-
-[Source Link](https://t.me/verdictumlegalupdates/28421)
-
----
-
-### 2026-08-07T13:32:26+00:00
-Mere Marking Of Document As Exhibit Not Proof Of Its Content: Supreme Court Reiterates
-https://www.verdictum.in/supreme-court/s-sangeetha-ors-v-tmt-p-ponni-2026-insc-813-marking-document-exhibit-proof-1619407
-
-[Source Link](https://t.me/verdictumlegalupdates/28420)
 
 ---
 
