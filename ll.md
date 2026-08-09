@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-09T03:32:23+00:00*
+*Last Updated: 2026-08-09T04:32:33+00:00*
 
 ---
 
-### 2026-08-09T03:32:23+00:00
-LiveLaw Gujarat High Court Monthly Digest: July 2026
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-monthly-digest-543974
-
-[Read on Telegram](https://t.me/livelawindia/116870)
-
----
-### 2026-08-09T04:09:53+00:00
-Tata AIG Can't Repudiate Fire Insurance Claims By Treating Standard Kashmiri Buildings As 'Kutcha Constructions': J&K Consumer Commission
-https://www.livelaw.in/consumer-cases/tata-aig-cant-repudiate-fire-insurance-claims-by-treating-standard-kashmiri-buildings-as-kutcha-constructions-jk-consumer-commission-544973
-
-[Read on Telegram](https://t.me/livelawindia/116871)
-
----
-### 2026-08-09T04:22:13+00:00
-LiveLaw Supreme Court Weekly Digest: July 16 - 23, 2026
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-weekly-digest-july-2026-544974
-
-[Read on Telegram](https://t.me/livelawindia/116872)
-
----
 ### 2026-08-09T04:32:33+00:00
 Flat Fine Fallacy: How Jan Vishwas Betrays Equality It Promised
 https://www.livelaw.in/articles/flat-fine-fallacy-jan-vishwas-betrays-equality-promised-544969
@@ -142,5 +121,26 @@ Important MCQs Based On Latest Supreme Court Judgments For Law Examinations
 https://www.livelaw.in/law-exams/important-mcqs-based-on-latest-supreme-court-judgments-for-law-examinations-544987
 
 [Read on Telegram](https://t.me/livelawindia/116889)
+
+---
+### 2026-08-09T13:58:54+00:00
+Bajaj Allianz Can't Reject House Collapse Claim Once Insured Establishes Subsidence As Covered Peril: J&K Consumer Commission
+https://www.livelaw.in/consumer-cases/bajaj-allianz-cant-reject-house-collapse-claim-once-insured-establishes-subsidence-as-covered-peril-jk-consumer-commission-544988
+
+[Read on Telegram](https://t.me/livelawindia/116890)
+
+---
+### 2026-08-09T14:32:54+00:00
+Republic Of Sliding Doors
+https://www.livelaw.in/top-stories/republic-sliding-doors-544971
+
+[Read on Telegram](https://t.me/livelawindia/116891)
+
+---
+### 2026-08-09T16:14:15+00:00
+LiveLaw Allahabad High Court Weekly Round Up: August 3 - August 9, 2026
+https://www.livelaw.in/high-court/allahabad-high-court/livelaw-allahabad-high-court-weekly-round-up-august-3-august-9-2026-544989
+
+[Read on Telegram](https://t.me/livelawindia/116892)
 
 ---
