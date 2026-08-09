@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-08T15:02:35+00:00*
+*Last Updated: 2026-08-09T06:33:27+00:00*
+
+---
+
+### 2026-08-09T06:33:27+00:00
+Preventing Production Of Arrested Advocates Before Court Prima Facie Attracts Section 225 IPC: Madras High Court
+https://www.verdictum.in/madras-high-court/ajith-kumar-s-ors-v-state-rep-by-inspector-of-police-anr-2026mhc3243-1619465
+
+[Source Link](https://t.me/verdictumlegalupdates/28439)
+
+---
+
+### 2026-08-09T04:32:26+00:00
+Dismissing Appeal Without Deciding Additional Evidence Application Is Jurisdictional Error: Supreme Court Sheds Light On Order XLI Rule 27 CPC
+https://www.verdictum.in/supreme-court/chowdappa-v-hanumantharayappa-2026-insc-816-appeal-additional-evidence-cpc-1619464
+
+[Source Link](https://t.me/verdictumlegalupdates/28438)
 
 ---
 
@@ -145,22 +161,6 @@ Mere Marking Of Document As Exhibit Not Proof Of Its Content: Supreme Court Reit
 https://www.verdictum.in/supreme-court/s-sangeetha-ors-v-tmt-p-ponni-2026-insc-813-marking-document-exhibit-proof-1619407
 
 [Source Link](https://t.me/verdictumlegalupdates/28420)
-
----
-
-### 2026-08-07T13:02:25+00:00
-Mother Can’t Settle Or Compromise Case Against Father For Sexual Harassment Of Minor Daughter: Kerala High Court
-https://www.verdictum.in/kerala-high-court/shiju-v-state-of-kerala-2026ker59696-mother-compromise-father-sexual-harassment-1619404
-
-[Source Link](https://t.me/verdictumlegalupdates/28419)
-
----
-
-### 2026-08-07T12:32:23+00:00
-Reservation Grounded In Historical & Social Backwardness Rather Than Economic Status: Centre Opposes Income Based Sub-Classification Of SC, ST & OBC
-https://www.verdictum.in/supreme-court/centre-opposes-income-based-preference-sc-st-obc-ews-reservation-1619403
-
-[Source Link](https://t.me/verdictumlegalupdates/28418)
 
 ---
 
