@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-08T07:32:35+00:00*
+*Last Updated: 2026-08-08T09:32:36+00:00*
 
 ---
 
-### 2026-08-08T07:32:35+00:00
-Work Order Can't Be Cancelled Without Hearing Successful Bidder After Contract Is Awarded: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-work-cancelled-hearing-successful-bidder-contract-awarded-544904
-
-[Read on Telegram](https://t.me/livelawindia/116850)
-
----
-### 2026-08-08T07:58:36+00:00
-'Wholly Unwarranted': Kerala High Court Criticizes Trial Court's Adverse Observations About Lawyer's Drafting Skills
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-trial-court-adverse-remarks-lawyer-competence-544927
-
-[Read on Telegram](https://t.me/livelawindia/116851)
-
----
-### 2026-08-08T08:31:26+00:00
-'Restore Heritage Of Pink City': Rajasthan High Court Orders Crackdown On Illegal Constructions In Jaipur
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-courts-directs-restoration-pink-city-heritage-illegal-constructions-544933
-
-[Read on Telegram](https://t.me/livelawindia/116852)
-
----
-### 2026-08-08T08:38:26+00:00
-Mumbai Court Denies Anticipatory Bail To 2 TISS Students For Raising Slogans To Release Sharjeel Imam, Umar Khalid
-https://www.livelaw.in/news-updates/law-of-land-mumbai-court-denies-bail-sharjeel-umar-544934
-
-[Read on Telegram](https://t.me/livelawindia/116853)
-
----
-### 2026-08-08T08:47:46+00:00
-Gauhati High Court Stays Recruitment To Assam State Consumer Commission, Says Process Prima Facie Contrary To SC Directions
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-assam-state-consumer-commission-544929
-
-[Read on Telegram](https://t.me/livelawindia/116854)
-
----
-### 2026-08-08T09:07:16+00:00
-Chotanagpur Tenancy Act | Restoration Proceedings Must Be Initiated Within Reasonable Time; Final Orders Cannot Be Reopened: Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-restoration-proceedings-chotanagpur-tenancy-act-initiated-reasonable-time-544915
-
-[Read on Telegram](https://t.me/livelawindia/116855)
-
----
 ### 2026-08-08T09:32:36+00:00
 Passport That Proves Nothing? MEA's Position And What It Costs Constitution
 https://www.livelaw.in/articles/passport-proves-mea-position-constitution-544858
@@ -143,5 +101,47 @@ Can India Force WhatsApp To Break End-To- End Encryption? Answer from Podchasov 
 https://www.livelaw.in/articles/india-force-whatsapp-break-endtoend-encryption-podchasovvrussia-544859
 
 [Read on Telegram](https://t.me/livelawindia/116869)
+
+---
+### 2026-08-09T03:32:23+00:00
+LiveLaw Gujarat High Court Monthly Digest: July 2026
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-monthly-digest-543974
+
+[Read on Telegram](https://t.me/livelawindia/116870)
+
+---
+### 2026-08-09T04:09:53+00:00
+Tata AIG Can't Repudiate Fire Insurance Claims By Treating Standard Kashmiri Buildings As 'Kutcha Constructions': J&K Consumer Commission
+https://www.livelaw.in/consumer-cases/tata-aig-cant-repudiate-fire-insurance-claims-by-treating-standard-kashmiri-buildings-as-kutcha-constructions-jk-consumer-commission-544973
+
+[Read on Telegram](https://t.me/livelawindia/116871)
+
+---
+### 2026-08-09T04:22:13+00:00
+LiveLaw Supreme Court Weekly Digest: July 16 - 23, 2026
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-weekly-digest-july-2026-544974
+
+[Read on Telegram](https://t.me/livelawindia/116872)
+
+---
+### 2026-08-09T04:32:33+00:00
+Flat Fine Fallacy: How Jan Vishwas Betrays Equality It Promised
+https://www.livelaw.in/articles/flat-fine-fallacy-jan-vishwas-betrays-equality-promised-544969
+
+[Read on Telegram](https://t.me/livelawindia/116873)
+
+---
+### 2026-08-09T05:52:53+00:00
+S.101(2) JJ Act | Not Mandatory For Court Hearing Appeal Against JJB Order To Take Child Psychologist Assistance : Supreme Court
+https://www.livelaw.in/supreme-court/s1012-jj-act-not-mandatory-for-court-hearing-appeal-against-jjb-order-to-take-child-psychologist-assistance-supreme-court-544891
+
+[Read on Telegram](https://t.me/livelawindia/116874)
+
+---
+### 2026-08-09T06:33:04+00:00
+Kapoor Jewellers Liable To Return Customer's 32 Grams Of Gold; Legal Heirs Can't Escape Liability: Kangra Consumer Commission
+https://www.livelaw.in/consumer-cases/kapoor-jewellers-liable-to-return-customers-32-grams-of-gold-legal-heirs-cant-escape-liability-kangra-consumer-commission-544977
+
+[Read on Telegram](https://t.me/livelawindia/116875)
 
 ---
