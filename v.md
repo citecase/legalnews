@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-09T12:32:32+00:00*
+*Last Updated: 2026-08-09T14:32:53+00:00*
+
+---
+
+### 2026-08-09T14:32:53+00:00
+Empanelment Of Advocates At Employees’ State Insurance Corporation (Patna)
+https://www.verdictum.in/job-updates/employees-state-insurance-corporation-1619463
+
+[Source Link](https://t.me/verdictumlegalupdates/28443)
 
 ---
 
@@ -153,14 +161,6 @@ Legal Officials Vacancy At Andhra Pradesh Mahesh Co-operative Urban Bank Ltd.
 https://www.verdictum.in/job-updates/andhra-pradesh-mahesh-co-operative-urban-bank-ltd-1619405
 
 [Source Link](https://t.me/verdictumlegalupdates/28424)
-
----
-
-### 2026-08-07T15:12:31+00:00
-Nikahnama Can’t Prove Title Without Genealogy: Madhya Pradesh High Court Upholds Dismissal Of Suit By Plaintiff Claiming Descent From Nawab Of Bhopal
-https://www.verdictum.in/madhya-pradesh-high-court/sarwat-jahan-begum-v-the-state-of-madhya-pradesh-nikahnama-land-title-bhopal-nawab-1619413
-
-[Source Link](https://t.me/verdictumlegalupdates/28423)
 
 ---
 
