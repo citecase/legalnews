@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-10T13:32:11+00:00*
+*Last Updated: 2026-08-10T16:03:16+00:00*
+
+---
+
+### 2026-08-10T16:03:16+00:00
+District & Sessions Judge South Salmara Mankachar Invites Applications For Post Of Senior Administrative Assistant
+https://www.verdictum.in/job-updates/district-sessions-judge-south-salmara-mankachar-1619558
+
+[Source Link](https://t.me/verdictumlegalupdates/28466)
+
+---
+
+### 2026-08-10T15:12:35+00:00
+Circulating Message Regarding Covid Positive Cases Creating Panic Won’t Attract Sec.505 IPC: Jammu & Kashmir and Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/sandeep-kumar-bhat-v-ut-of-jk-message-covid-positive-cases-sec505-ipc-1619565
+
+[Source Link](https://t.me/verdictumlegalupdates/28465)
+
+---
+
+### 2026-08-10T14:32:14+00:00
+Police Must Issue Written Summons U/S 179 BNSS And Record Enquiry Minutes To Avoid Harassment Allegations: Madras High Court
+https://www.verdictum.in/madras-high-court/r-raja-v-the-commissioner-of-police-and-others-179-bnss-summons-harassment-1619563
+
+[Source Link](https://t.me/verdictumlegalupdates/28464)
+
+---
+
+### 2026-08-10T14:02:52+00:00
+Defendant Can Put Queries To Plaintiff Who Affirms Trademark Infringement Even If Written Statement Is Not On Record: Supreme Court
+https://www.verdictum.in/supreme-court/shabu-kn-achary-v-dharampal-premchand-limited-2026-insc-819-defendant-queries-plaintiff-1619562
+
+[Source Link](https://t.me/verdictumlegalupdates/28463)
 
 ---
 
@@ -129,38 +161,6 @@ Order XXXIX Rule 2A CPC Aimed At Compliance, Not Punishment: Bombay High Court L
 https://www.verdictum.in/bombay-high-court/khadi-village-industries-commission-v-shri-jaishukh-n-bhuta-interim-application-no-5867-of-2025-order-xxxix-rule-2a-cpc-1619522
 
 [Source Link](https://t.me/verdictumlegalupdates/28447)
-
----
-
-### 2026-08-10T05:32:21+00:00
-Supreme Court Collegium Recommends Elevation Of Four Judges As Chief Justices Of High Courts
-https://www.verdictum.in/supreme-court/elevation-of-four-judges-as-chief-justices-of-high-courts-1619519
-
-[Source Link](https://t.me/verdictumlegalupdates/28446)
-
----
-
-### 2026-08-10T05:02:40+00:00
-Mere Presence At Crime Scene Won’t Make A Person Member Of Unlawful Assembly To Book Him U/S.149 IPC: Himachal Pradesh High Court
-https://www.verdictum.in/himachal-high-court/dildar-ali-batt-and-others-v-state-of-hp-2026hhc29698-unlawful-assembly-sec149-ipc-1619517
-
-[Source Link](https://t.me/verdictumlegalupdates/28445)
-
----
-
-### 2026-08-10T04:33:09+00:00
-Exception U/S 12A Commercial Courts Act Involves Only A Limited Jurisdictional Enquiry, Not Merits Adjudication: Bombay High Court
-https://www.verdictum.in/bombay-high-court/high-point-supply-company-llc-v-agati-healthcare-private-limited-comfa152026-exception-us-12-a-commercial-courts-act-1619511
-
-[Source Link](https://t.me/verdictumlegalupdates/28444)
-
----
-
-### 2026-08-09T14:32:53+00:00
-Empanelment Of Advocates At Employees’ State Insurance Corporation (Patna)
-https://www.verdictum.in/job-updates/employees-state-insurance-corporation-1619463
-
-[Source Link](https://t.me/verdictumlegalupdates/28443)
 
 ---
 
