@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-10T11:00:33+00:00*
+*Last Updated: 2026-08-10T13:39:44+00:00*
 
 ---
 
-### 2026-08-10T11:00:33+00:00
-Police Can Freeze Bank Accounts During Investigation Under Section 106 BNSS: Karnataka High Court In Jar Gold Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-settles-jar-gold-legal-battle-police-freeze-bank-account-545095
+### 2026-08-10T13:39:44+00:00
+GST | Exporters Whose Applications Were Pending Before Omission Of Rule 96(10) Entitled To IGST Refund : Supreme Court
+https://www.livelaw.in/supreme-court/gst-exporters-whose-applications-were-pending-before-omission-of-rule-9610-entitled-to-igst-refund-supreme-court-545143
 
-[Read on Telegram](https://t.me/livelawindia/116954)
-
----
-### 2026-08-10T11:17:13+00:00
-Residential Construction Permitted In Eco-Sensitive Zone: Karnataka Housing Board Defends Bannerghata Land Acquisition In High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-residential-construction-permitted-ecosensitive-zone-bannerghata-land-acquisition-545097
-
-[Read on Telegram](https://t.me/livelawindia/116955)
+[Read on Telegram](https://t.me/livelawindia/116976)
 
 ---
-### 2026-08-10T11:24:13+00:00
-'Continuous Learning Is Hallmark Of Outstanding Legal Professional': Justice Vikram Nath At 300th Friday Group Meeting
-https://www.livelaw.in/news-updates/friday-group-justice-vikram-nath-continuous-learning-legal-professional-545104
+### 2026-08-10T13:41:04+00:00
+2026 LiveLaw (SC) 781 | M/s Goodluck India Limited & Anr. Versus Union of India & Ors
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-781-ms-goodluck-india-limited-anr-versus-union-of-india-ors-545144
 
-[Read on Telegram](https://t.me/livelawindia/116956)
-
----
-### 2026-08-10T11:33:03+00:00
-Adverse Entry For Specific Period Won't Bar Selection Grade Based On Subsequent Unblemished Service: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-adverse-entry-specified-period-later-unblemished-service-selection-grade-545059
-
-[Read on Telegram](https://t.me/livelawindia/116957)
+[Read on Telegram](https://t.me/livelawindia/116977)
 
 ---
-### 2026-08-10T11:38:03+00:00
-Supreme Court Issues Notice To Union & States On PIL Seeking Steps To Expedite NDPS Trials & Tackle Drug Abuse
-https://www.livelaw.in/top-stories/supreme-court-ashwini-upadhyay-pil-seeking-to-tackle-drug-abuse-in-country-notice-issued-tagged-with-suo-motu-case-545107
+### 2026-08-10T13:46:04+00:00
+'Ram Rahim Singh's Acquittal Requires Consideration' : Supreme Court To Hear Slain Journalist's Son's Appeal
+https://www.livelaw.in/top-stories/supreme-court-lists-for-final-hearing-plea-against-punjab-haryana-hc-acquittal-of-dera-chief-gurmeet-ram-rahim-singh-in-journalist-murder-545146
 
-[Read on Telegram](https://t.me/livelawindia/116958)
-
----
-### 2026-08-10T11:42:43+00:00
-Magistrate Can Name Persons Responsible For Custodial Death, Direct FIR Under Section 176(1A) CrPC: Madhya Pradesh High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/custodial-death-section-176-crpc-magistrate-examine-events-name-perpetrators-fir-545109
-
-[Read on Telegram](https://t.me/livelawindia/116959)
+[Read on Telegram](https://t.me/livelawindia/116978)
 
 ---
-### 2026-08-10T11:47:43+00:00
-Punjab & Haryana High Court Grants Bail To Alleged Lawrence Bishnoi Gang Member In Double Murder Case After 4 Years In Jail
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/alleged-bishnoi-gang-member-bail-2022-double-murder-case-545103
+### 2026-08-10T13:47:44+00:00
+LiveLaw Daily| Abhishek Banerjee| Manipur Witnesses| TV Today Network| Assam NRC & More
+https://www.livelaw.in/podcast/lok-sabha-supreme-court-shiv-sena-tv-today-news-legal-law-legal-news-india-students-judiciary-upsc-545147
 
-[Read on Telegram](https://t.me/livelawindia/116960)
-
----
-### 2026-08-10T12:03:03+00:00
-Property Purchaser Can't Seek Enforcement Of Sale Deed After Failing To Deposit Balance Amount For 20 Years: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/property-sale-purchaser-balance-sale-consideration-delay-specific-performance-suit-545065
-
-[Read on Telegram](https://t.me/livelawindia/116961)
+[Read on Telegram](https://t.me/livelawindia/116979)
 
 ---
-### 2026-08-10T12:11:43+00:00
-Collecting GST Without Mentioning GSTIN On Receipt, Thrissur Consumer Commission Holds Bhagyaratna Kuries Liable
-https://www.livelaw.in/consumer-cases/collecting-gst-without-mentioning-gstin-on-receipt-thrissur-consumer-commission-holds-bhagyaratna-kuries-liable-545115
+### 2026-08-10T13:57:44+00:00
+'Becoming A Menace': J&K&L High Court Restrains Alleged Illegal Use Of Srinagar Building As Hotel; Directs ACB To Collect NOC Records
+https://www.livelaw.in/high-court/jammu-kashmir/building-violations-are-turning-law-abiding-residents-into-spectators-while-civic-authorities-look-away-jk-hc-flags-menace-orders-hotel-shut-directs-acb-to-collect-its-noc-records-545014
 
-[Read on Telegram](https://t.me/livelawindia/116962)
-
----
-### 2026-08-10T12:13:23+00:00
-Brij Bhushan Acquittal | Court Cites Long Silence Of Women Wrestlers, Their Cordial Relations With Accused & Contradictions
-https://www.livelaw.in/news-updates/brij-bhushan-acquittal-court-cites-long-silence-of-women-wrestlers-their-cordial-relations-with-accused-contradictions-545116
-
-[Read on Telegram](https://t.me/livelawindia/116963)
+[Read on Telegram](https://t.me/livelawindia/116980)
 
 ---
-### 2026-08-10T12:18:13+00:00
-'Helmets Not Compliant With Indian Standards Cannot Be Sold': Bombay High Court Allows Return Of Imported Helmets, Bars Sale In Market
-https://www.livelaw.in/high-court/bombay-high-court/helmets-not-compliant-cannot-permitted-sold-545021
+### 2026-08-10T14:01:14+00:00
+No Fundamental Right To Gun License; Employment Need Doesn't Entitle Person To Renewal: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-seeking-issuance-renewal-gun-license-fundamental-right-545152
 
-[Read on Telegram](https://t.me/livelawindia/116964)
-
----
-### 2026-08-10T12:23:13+00:00
-Drunken Driving | 0.1mg Above Prescribed Alcohol Limit Not Enough To Face Criminal Trial: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/drunk-driving-alcohol-test-marginally-above-permissible-limit-30mg-545119
-
-[Read on Telegram](https://t.me/livelawindia/116965)
+[Read on Telegram](https://t.me/livelawindia/116981)
 
 ---
-### 2026-08-10T12:32:13+00:00
-Karnataka High Court Seeks Action Taken Report On Illegal LED Hoardings In Bengaluru; Says Any Regularisation Subject To Its Orders
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-flags-illegal-self-led-hoardings-bengaluru-545112
+### 2026-08-10T14:31:36+00:00
+Allahabad High Court Orders ₹25 Lakh Compensation For 2 Sisters Illegally Confined By Father After Conversion To Islam
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-25-lakh-compensation-two-women-illegally-confined-father-islam-conversion-545156
 
-[Read on Telegram](https://t.me/livelawindia/116966)
-
----
-### 2026-08-10T12:39:53+00:00
-Supreme Court Issues Notice To Centre On Plea To Frame Regulations Under National Commission For Allied & Healthcare Professions Act
-https://www.livelaw.in/top-stories/supreme-court-issues-notice-to-centre-on-plea-to-frame-regulations-under-national-commission-for-allied-healthcare-professions-act-545125
-
-[Read on Telegram](https://t.me/livelawindia/116967)
+[Read on Telegram](https://t.me/livelawindia/116982)
 
 ---
-### 2026-08-10T12:43:13+00:00
-Cashew Corp Scam: Former KSCDC Officials Move Kerala High Court Against Single Judge Orders Leading To Prosecution Sanction Against Them
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-cashew-corp-scam-sanction-545123
+### 2026-08-10T14:32:56+00:00
+LiveLaw Bombay High Court Weekly Round-Up: August 3 to August 9, 2026
+https://www.livelaw.in/high-court/bombay-high-court/livelaw-bombay-high-court-weekly-round-up-august-3-to-august-9-2026-545153
 
-[Read on Telegram](https://t.me/livelawindia/116968)
-
----
-### 2026-08-10T12:46:13+00:00
-Bombay High Court Justice Gautam Ankhad Recuses From Hearing Pleas Challenging Public Safety Act Over Claims Of Stifling Free Speech
-https://www.livelaw.in/high-court/bombay-high-court/justice-gautam-ankhad-recuse-challenge-to-maharashtra-special-public-safety-act-free-speech-545129
-
-[Read on Telegram](https://t.me/livelawindia/116969)
+[Read on Telegram](https://t.me/livelawindia/116983)
 
 ---
-### 2026-08-10T12:52:33+00:00
-LiveLaw Madhya Pradesh High Court Weekly Roundup: August 3 - August 9, 2026
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-weekly-digest-august-3-to-august-9-2026-545110
+### 2026-08-10T14:33:07+00:00
+Logjam In MSME Recovery Mechanism
+https://www.livelaw.in/articles/logjam-msme-recovery-mechanism-545113
 
-[Read on Telegram](https://t.me/livelawindia/116970)
-
----
-### 2026-08-10T13:00:33+00:00
-LiveLaw Bombay High Court Weekly Round-Up: July 27 to August 2, 2026
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-weekly-round-up-545133
-
-[Read on Telegram](https://t.me/livelawindia/116971)
+[Read on Telegram](https://t.me/livelawindia/116984)
 
 ---
-### 2026-08-10T13:02:33+00:00
-AP High Court Invokes Teachings From Hinduism, Christianity & Islam To Reinforce Protection Of Water Bodies, Halts Sand Excavation From Pond
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-quashes-sandgravel-excavation-village-pond-national-highway-construction-545120
+### 2026-08-10T14:47:46+00:00
+Karnataka High Court Refuses To Entertain NEET Student's Plea Alleging Marks Mismatch After NTA Says Screenshot Of Website Is Forged
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-student-withdraw-plea-nta-exposes-forgery-marks-screenshot-545154
 
-[Read on Telegram](https://t.me/livelawindia/116972)
+[Read on Telegram](https://t.me/livelawindia/116985)
 
 ---
-### 2026-08-10T13:18:03+00:00
-Dental Student Suicide Case: Kerala High Court Asks Why Deputy Police Superintendent Not Suspended Despite Investigative Lapses
-https://www.livelaw.in/high-court/kerala-high-court/nithin-raj-investigating-officer-disciplinary-proceedings-lapses-investigation-545127
+### 2026-08-10T14:56:06+00:00
+Supreme Court Issues Notice On Bail Plea Of Man Accused Of Making Objectionable Posts Against Jharkhand CM's Wife Kalpana Soren
+https://www.livelaw.in/top-stories/supreme-court-issues-notice-on-bail-plea-of-man-accused-of-making-objectionable-posts-against-jharkhand-cms-wife-kalpana-soren-545157
 
-[Read on Telegram](https://t.me/livelawindia/116973)
+[Read on Telegram](https://t.me/livelawindia/116986)
+
+---
+### 2026-08-10T14:59:06+00:00
+Supreme Court Seeks Updated Data On Commercial Litigation Across Country To Assess Need For More Courts
+https://www.livelaw.in/top-stories/supreme-court-seeks-updated-data-on-commercial-litigation-to-assess-requirement-of-additional-courts-545158
+
+[Read on Telegram](https://t.me/livelawindia/116987)
+
+---
+### 2026-08-10T15:02:26+00:00
+'Negligence By Trial Court': MP High Court Quashes 2009 Murder Conviction After Noting FSL Report Pertained To Unrelated Case
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-sets-aside-2009-conviction-for-section-302-ipc-over-wrong-fsl-report-on-record-545155
+
+[Read on Telegram](https://t.me/livelawindia/116988)
+
+---
+### 2026-08-10T15:17:07+00:00
+Rajasthan High Court Takes Suo Motu Notice Of Structural Defects In Own Building After IIT Bombay Warns Central Dome May Collapse Any Time
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-suo-motu-cognizance-threat-jodhpur-court-building-545159
+
+[Read on Telegram](https://t.me/livelawindia/116989)
+
+---
+### 2026-08-10T15:40:17+00:00
+'Not Acceptable': Delhi High Court On Jail Doctor Signing Medical Report As 'Senior Medical Officer' Despite Not Holding Rank
+https://www.livelaw.in/high-court/delhi-high-court/not-acceptable-delhi-high-court-on-jail-doctor-signing-medical-report-as-senior-medical-officer-despite-not-holding-rank-545163
+
+[Read on Telegram](https://t.me/livelawindia/116990)
+
+---
+### 2026-08-10T15:47:17+00:00
+HP High Court Quashes FIR Against Liquor Bottling Unit Over Failure To Affix Holograms, Imposes ₹1 Lakh Penalty Under Excise Act
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-missing-holograms-liquor-bottles-attract-penalty-545164
+
+[Read on Telegram](https://t.me/livelawindia/116991)
+
+---
+### 2026-08-10T15:50:57+00:00
+LiveLaw Delhi High Court Weekly Round-Up: August 03 To August 09, 2026
+https://www.livelaw.in/high-court/delhi-high-court/livelaw-delhi-high-court-weekly-round-up-august-03-to-august-09-2026-545165
+
+[Read on Telegram](https://t.me/livelawindia/116992)
+
+---
+### 2026-08-10T16:22:27+00:00
+Allahabad High Court Imposes ₹1 Lakh Costs On Couple For Securing Interim Protection By Concealing Man's Existing Marriage
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-1-lakh-costs-couple-interim-protection-conceal-existing-marriage-545168
+
+[Read on Telegram](https://t.me/livelawindia/116993)
+
+---
+### 2026-08-10T17:12:17+00:00
+Apprentice (Legal) Vacancy At Andhra Pradesh State Cooperative Bank Limited
+https://www.livelaw.in/job-updates/apprentice-legal-vacancy-at-andhra-pradesh-state-cooperative-bank-limited-545169
+
+[Read on Telegram](https://t.me/livelawindia/116994)
+
+---
+### 2026-08-10T17:22:57+00:00
+Supreme Court Daily Round-Up : August 10, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-10-2026-545160
+
+[Read on Telegram](https://t.me/livelawindia/116995)
 
 ---
