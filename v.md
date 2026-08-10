@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-09T14:32:53+00:00*
+*Last Updated: 2026-08-10T08:03:08+00:00*
+
+---
+
+### 2026-08-10T08:03:08+00:00
+Enforce Our Earlier Order: Supreme Court Refuses To Entertain Fresh Plea For Registration Of Religious Institutions
+https://www.verdictum.in/supreme-court/refuses-plea-registration-religious-institutions-1619530
+
+[Source Link](https://t.me/verdictumlegalupdates/28451)
+
+---
+
+### 2026-08-10T07:33:07+00:00
+Injunction Order Restraining Foreign Matrimonial Proceedings Not Interlocutory; Appealable U/S 19 Family Courts Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/kk-v-mk-2026dhc6380-matrimonial-proceedings-foreign-court-injunction-1619529
+
+[Source Link](https://t.me/verdictumlegalupdates/28450)
+
+---
+
+### 2026-08-10T07:02:46+00:00
+Supreme Court To Hear Plea Of Tamil Nadu Seeking Release Of Its Share Of Cauvery Water From Karnataka
+https://www.verdictum.in/supreme-court/plea-of-tamil-nadu-seeking-release-of-its-share-of-cauvery-water-from-karnataka-1619527
+
+[Source Link](https://t.me/verdictumlegalupdates/28449)
+
+---
+
+### 2026-08-10T06:32:23+00:00
+Can't Substitute Opinion Of Courts Below U/S 528 BNSS: Delhi High Court Upholds Discharge Of Air India Pilot & Family In Cruelty Case By Air Hostess Wife
+https://www.verdictum.in/delhi-high-court/xxxxxxxxxxx-v-state-of-nct-of-delhi-2026dhc6382-us-528-bnss-air-india-pilot-family-in-dowry-1619525
+
+[Source Link](https://t.me/verdictumlegalupdates/28448)
+
+---
+
+### 2026-08-10T06:03:02+00:00
+Order XXXIX Rule 2A CPC Aimed At Compliance, Not Punishment: Bombay High Court Lays Down Seven-Point Test
+https://www.verdictum.in/bombay-high-court/khadi-village-industries-commission-v-shri-jaishukh-n-bhuta-interim-application-no-5867-of-2025-order-xxxix-rule-2a-cpc-1619522
+
+[Source Link](https://t.me/verdictumlegalupdates/28447)
+
+---
+
+### 2026-08-10T05:32:21+00:00
+Supreme Court Collegium Recommends Elevation Of Four Judges As Chief Justices Of High Courts
+https://www.verdictum.in/supreme-court/elevation-of-four-judges-as-chief-justices-of-high-courts-1619519
+
+[Source Link](https://t.me/verdictumlegalupdates/28446)
+
+---
+
+### 2026-08-10T05:02:40+00:00
+Mere Presence At Crime Scene Won’t Make A Person Member Of Unlawful Assembly To Book Him U/S.149 IPC: Himachal Pradesh High Court
+https://www.verdictum.in/himachal-high-court/dildar-ali-batt-and-others-v-state-of-hp-2026hhc29698-unlawful-assembly-sec149-ipc-1619517
+
+[Source Link](https://t.me/verdictumlegalupdates/28445)
+
+---
+
+### 2026-08-10T04:33:09+00:00
+Exception U/S 12A Commercial Courts Act Involves Only A Limited Jurisdictional Enquiry, Not Merits Adjudication: Bombay High Court
+https://www.verdictum.in/bombay-high-court/high-point-supply-company-llc-v-agati-healthcare-private-limited-comfa152026-exception-us-12-a-commercial-courts-act-1619511
+
+[Source Link](https://t.me/verdictumlegalupdates/28444)
 
 ---
 
@@ -97,70 +161,6 @@ Vague Allegations By Wife Cannot Draw Husband’s Relatives Into Cruelty Proceed
 https://www.verdictum.in/karnataka-high-court/ev-v-state-of-karnataka-criminal-proceedings-husband-damily-wife-divorce-1619454
 
 [Source Link](https://t.me/verdictumlegalupdates/28432)
-
----
-
-### 2026-08-08T08:53:08+00:00
-Video Conferencing Is Court's Discretion & Not A Fundamental Right: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/vemula-venkata-vinay-babu-alias-vinay-vemula-v-state-of-up-2026ahc163641-video-conferencing-is-courts-discretion-1619452
-
-[Source Link](https://t.me/verdictumlegalupdates/28431)
-
----
-
-### 2026-08-08T08:12:27+00:00
-Bribe Demands In Name Of Judges Cut At Root Of Institutional Integrity: Karnataka High Court Refuses To Quash FIR Against Advocate
-https://www.verdictum.in/karnataka-high-court/dayeena-banu-v-state-of-karnataka-criminal-petition-no-2169-of-2025-bribe-demands-in-name-of-judges-1619449
-
-[Source Link](https://t.me/verdictumlegalupdates/28430)
-
----
-
-### 2026-08-08T07:32:26+00:00
-Supreme Court: Sale Deed Executed With Knowledge Of Part Consideration Can’t Be Rendered Void On Non-Payment Of Balance Consideration
-https://www.verdictum.in/supreme-court/raziya-begum-ors-v-nafisa-begum-abdul-hamid-2026-insc-814-sale-consideration-1619446
-
-[Source Link](https://t.me/verdictumlegalupdates/28429)
-
----
-
-### 2026-08-08T06:53:05+00:00
-Passed Away Without Reaping Fruits: Delhi High Court Grants Relief To LRs Of AIIMS Nursing Orderly 47 Years After Disputed Resignation
-https://www.verdictum.in/delhi-high-court/aiims-v-mohd-rafiq-2026dhc6366-aiims-orderly-47-years-after-disputed-resignation-1619443
-
-[Source Link](https://t.me/verdictumlegalupdates/28428)
-
----
-
-### 2026-08-08T06:02:43+00:00
-Neither Home Ministry Nor Review Committee Can Retrospectively Validate Phone Interception For Anterior Period: Chhattisgarh High Court
-https://www.verdictum.in/chhattisgarh-high-court/shri-ravi-shankar-ji-maharaj-v-central-bureau-of-investigation-2026cghc33468-d-phone-tapping-home-ministry-nor-review-committee-1619442
-
-[Source Link](https://t.me/verdictumlegalupdates/28427)
-
----
-
-### 2026-08-08T05:13:02+00:00
-Centre Notifies Appointment Of Advocates, Judicial Officers As Judges Of Various High Courts
-https://www.verdictum.in/court-updates/high-courts/appointment-of-advocates-judicial-officers-as-judges-of-various-high-courts-1619437
-
-[Source Link](https://t.me/verdictumlegalupdates/28426)
-
----
-
-### 2026-08-08T04:32:31+00:00
-Direct Perception Of Images Is Direct Evidence U/S 60 Evidence Act: Delhi HC Upholds POCSO Conviction Of 60-Yr-Old
-https://www.verdictum.in/delhi-high-court/wahid-khan-v-state-2026dhc6387-direct-evidence-us-60-evidence-act-60-yr-old-pocso-act-1619430
-
-[Source Link](https://t.me/verdictumlegalupdates/28425)
-
----
-
-### 2026-08-07T16:02:11+00:00
-Legal Officials Vacancy At Andhra Pradesh Mahesh Co-operative Urban Bank Ltd.
-https://www.verdictum.in/job-updates/andhra-pradesh-mahesh-co-operative-urban-bank-ltd-1619405
-
-[Source Link](https://t.me/verdictumlegalupdates/28424)
 
 ---
 
