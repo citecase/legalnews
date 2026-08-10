@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-10T08:03:08+00:00*
+*Last Updated: 2026-08-10T13:32:11+00:00*
+
+---
+
+### 2026-08-10T13:32:11+00:00
+Section 138 NI Act Acquittal Does Not Bar Civil Suit On Same Cheque Or Transaction: Kerala High Court
+https://www.verdictum.in/kerala-high-court/prameela-varghese-v-abraham-samuel-2026ker57049-civil-suit-section-138-ni-act-1619556
+
+[Source Link](https://t.me/verdictumlegalupdates/28462)
+
+---
+
+### 2026-08-10T13:02:50+00:00
+133 Writ Petitions In 8 Months: Bombay High Court Flags Systemic Delay In RTE Reimbursement, Directs State To Set Up Review Committee
+https://www.verdictum.in/bombay-high-court/om-education-society-v-state-of-maharashtra-contempt-petition-no-408-of-2026-in-writ-petition-no-3834-of-2026-133-writ-petitions-instituted-1619555
+
+[Source Link](https://t.me/verdictumlegalupdates/28461)
+
+---
+
+### 2026-08-10T12:32:49+00:00
+EPC Contract With Termination Clause Not Inherently Determinable Contract U/S 14(d) Specific Relief Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/roadway-solutions-india-infra-limited-v-national-highways-authority-of-india-2026dhc6435-1619554
+
+[Source Link](https://t.me/verdictumlegalupdates/28460)
+
+---
+
+### 2026-08-10T12:02:47+00:00
+Giving False Information To Government Counsel Constitutes Contempt Of Court: Madras High Court
+https://www.verdictum.in/madras-high-court/jabdul-malik-v-the-district-collector-false-information-government-counsel-contempt-1619547
+
+[Source Link](https://t.me/verdictumlegalupdates/28459)
+
+---
+
+### 2026-08-10T11:32:26+00:00
+Signing Cheque Alone Does Not Create Section 138 NI Act Liability; Presumptions Arise On Admitted Or Proved Execution: Kerala High Court
+https://www.verdictum.in/kerala-high-court/francis-t-chacko-v-tk-sajeevan-2026ker57175-preseumtion-section-138-ni-act-1619546
+
+[Source Link](https://t.me/verdictumlegalupdates/28458)
+
+---
+
+### 2026-08-10T11:02:55+00:00
+Problem Is Pan-India Now: Supreme Court Seeks Centre's Response On Plea Seeking Nationwide Strategy To Curb Illicit Drug Trafficking
+https://www.verdictum.in/supreme-court/seeking-nationwide-strategy-curb-illicit-drug-trafficking-psychoactive-substances-1619545
+
+[Source Link](https://t.me/verdictumlegalupdates/28457)
+
+---
+
+### 2026-08-10T10:32:54+00:00
+Undeclared Confiscated Gold Cannot Be Re-Exported U/S 125 Customs Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/oguljeren-derchiyeva-v-union-of-india-2026dhc6296-db-section-80-customs-act-special-statutory-code-1619544
+
+[Source Link](https://t.me/verdictumlegalupdates/28456)
+
+---
+
+### 2026-08-10T10:02:53+00:00
+Supreme Court Asks Justice Gita Mittal Committee To Verify Claims Of Manipur Violence-Hit Families Yet To Get Rehabilitation Benefits
+https://www.verdictum.in/supreme-court/justice-gita-mittal-committee-verify-claims-manipur-violence-hit-families-rehabilitation-benefits-1619543
+
+[Source Link](https://t.me/verdictumlegalupdates/28455)
+
+---
+
+### 2026-08-10T09:32:52+00:00
+Dealing With 30 To 40 Criminal Cases Involving Advocates Every Day: Madras High Court Asks Bar Councils To Undertake Detailed Survey
+https://www.verdictum.in/madras-high-court/bjagadeeshwaran-v-the-state-criminal-matters-advocates-bar-councils-survey-1619539
+
+[Source Link](https://t.me/verdictumlegalupdates/28454)
+
+---
+
+### 2026-08-10T08:48:30+00:00
+Seeking Treatment For Illness Falls Within Right To Privacy: Supreme Court Allows Abhishek Banerjee To Travel Abroad For Eye Surgery
+https://www.verdictum.in/supreme-court/tmc-mp-abhishek-banerjee-travel-abroad-eye-surgery-1619540
+
+[Source Link](https://t.me/verdictumlegalupdates/28453)
+
+---
+
+### 2026-08-10T08:32:29+00:00
+Supreme Court Asks Authorities To Set Up Special Trial Courts To Exclusively Hear CBI & NIA Cases Concerning 2023 Ethnic Violence In Manipur
+https://www.verdictum.in/supreme-court/authorities-set-up-special-trial-court-exclusively-hearing-cbi-nia-ethnic-violence-in-manipur-1619535
+
+[Source Link](https://t.me/verdictumlegalupdates/28452)
 
 ---
 
@@ -73,94 +161,6 @@ Empanelment Of Advocates At Employees’ State Insurance Corporation (Patna)
 https://www.verdictum.in/job-updates/employees-state-insurance-corporation-1619463
 
 [Source Link](https://t.me/verdictumlegalupdates/28443)
-
----
-
-### 2026-08-09T12:32:32+00:00
-Amended Section 19 Prevention Of Corruption Act Does Not Reopen Cases Where Cognizance Was Already Taken Before July 26, 2018: Delhi High Court
-https://www.verdictum.in/delhi-high-court/court-on-its-own-motion-v-state-2026dhc6342-db-prevention-of-corruption-act-amended-sanction-us-19-1619482
-
-[Source Link](https://t.me/verdictumlegalupdates/28442)
-
----
-
-### 2026-08-09T10:32:50+00:00
-Criminal Proceedings Are Not A Measure Of Recovery Of Money: Supreme Court
-https://www.verdictum.in/supreme-court/sandeep-shukla-vstate-of-up-2026-insc-817-criminal-money-transactions-recovery-1619481
-
-[Source Link](https://t.me/verdictumlegalupdates/28441)
-
----
-
-### 2026-08-09T08:32:49+00:00
-PPF Investments For Child Can’t Be Used By Father To Off-Set His Responsibility Of Paying Maintenance: Delhi High Court
-https://www.verdictum.in/delhi-high-court/a-v-b-2026dhc6228-ppf-investments-child-father-responsibility-maintenance-1619467
-
-[Source Link](https://t.me/verdictumlegalupdates/28440)
-
----
-
-### 2026-08-09T06:33:27+00:00
-Preventing Production Of Arrested Advocates Before Court Prima Facie Attracts Section 225 IPC: Madras High Court
-https://www.verdictum.in/madras-high-court/ajith-kumar-s-ors-v-state-rep-by-inspector-of-police-anr-2026mhc3243-1619465
-
-[Source Link](https://t.me/verdictumlegalupdates/28439)
-
----
-
-### 2026-08-09T04:32:26+00:00
-Dismissing Appeal Without Deciding Additional Evidence Application Is Jurisdictional Error: Supreme Court Sheds Light On Order XLI Rule 27 CPC
-https://www.verdictum.in/supreme-court/chowdappa-v-hanumantharayappa-2026-insc-816-appeal-additional-evidence-cpc-1619464
-
-[Source Link](https://t.me/verdictumlegalupdates/28438)
-
----
-
-### 2026-08-08T15:02:35+00:00
-Associate Manager (Legal) Vacancy At HLL Lifecare Limited
-https://www.verdictum.in/job-updates/hll-lifecare-limited-1619459
-
-[Source Link](https://t.me/verdictumlegalupdates/28437)
-
----
-
-### 2026-08-08T13:33:14+00:00
-Hotels Providing Guests Access To Literary & Musical Works Through Cable TV Without A Separate Licence Is Copyright Infringement: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/the-indian-performing-right-society-limited-v-hotel-appolo-tours-private-limited-1619458
-
-[Source Link](https://t.me/verdictumlegalupdates/28436)
-
----
-
-### 2026-08-08T12:36:53+00:00
-No Conflation With Novelty & Inventive Step: Delhi High Court Frames Guidelines To Determine Mental Claims U/S.3(M) Of Patents Act
-https://www.verdictum.in/delhi-high-court/t-mobile-international-ag-and-co-kg-v-the-controller-general-of-patents-2026dhc6266-1619466
-
-[Source Link](https://t.me/verdictumlegalupdates/28435)
-
----
-
-### 2026-08-08T11:32:52+00:00
-UP Bar Council Should Issue Enrolment Numbers In Four Weeks Of AIBE Result; Police Verification To Be Completed In Two Weeks: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/yogendra-v-state-of-up-and-3-others-advocate-enrollment-bar-council-aibe-1619457
-
-[Source Link](https://t.me/verdictumlegalupdates/28434)
-
----
-
-### 2026-08-08T10:12:10+00:00
-Non-Consummation Of Marriage Can’t Be Converted Into Cruelty Case By Making Ornamental Allegations: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/mm-v-state-of-karnataka-2026khc38574-non-consummation-marriage-cruelty-1619455
-
-[Source Link](https://t.me/verdictumlegalupdates/28433)
-
----
-
-### 2026-08-08T09:33:09+00:00
-Vague Allegations By Wife Cannot Draw Husband’s Relatives Into Cruelty Proceedings Without Specific Role Attribution: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/ev-v-state-of-karnataka-criminal-proceedings-husband-damily-wife-divorce-1619454
-
-[Source Link](https://t.me/verdictumlegalupdates/28432)
 
 ---
 
