@@ -1,135 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-11T10:53:55+00:00*
+*Last Updated: 2026-08-11T12:46:55+00:00*
 
 ---
 
-### 2026-08-11T10:53:55+00:00
-'Adopted Son-In-Law' Status Unknown To Law: Rajasthan High Court Rejects Compassionate Appointment Plea
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-hindu-adoptions-and-maintenance-act-adopted-son-in-law-not-permissible-545298
-
-[Read on Telegram](https://t.me/livelawindia/117081)
-
----
-### 2026-08-11T11:03:05+00:00
-Fair Compensation Act | State Can't Stay DM's Quasi-Judicial Order On Lapse Of Land Acquisition Without Statutory Power: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-state-govt-stay-district-magistrate-quasi-judicial-order-lapse-acquisition-545303
-
-[Read on Telegram](https://t.me/livelawindia/117082)
-
----
-### 2026-08-11T11:03:35+00:00
-What Rules Govern Font, Spacing, Margins In Petitions? Allahabad High Court Seeks Registrar General's Report
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-rules-font-spacing-margins-court-petitions-registrar-general-545305
-
-[Read on Telegram](https://t.me/livelawindia/117083)
-
----
-### 2026-08-11T11:17:05+00:00
-"No Dishonest Intention": Madras High Court Quashes Case Against YouTuber Karthik Gopinath For Collecting Money For Temple Restoration
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-youtuber-karthik-gopinath-case-quash-money-temple-restoration-545307
-
-[Read on Telegram](https://t.me/livelawindia/117084)
-
----
-### 2026-08-11T11:32:25+00:00
-Land Acquisition Act 1894 | Award As Per Court's Direction Can't Be Agitated For Not Computing Market Value Under 2013 Act: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-award-land-acquisition-act1894-court-directions-545309
-
-[Read on Telegram](https://t.me/livelawindia/117085)
-
----
-### 2026-08-11T11:34:25+00:00
-No Inflexible Rule That Alibi Can Be Proved Only In Trial : Supreme Court Quashes S. 498A IPC Case Against BSF Personnel
-https://www.livelaw.in/supreme-court/no-inflexible-rule-that-alibi-can-be-proved-only-in-trial-supreme-court-quashes-s-498a-ipc-case-against-bsf-personnel-545311
-
-[Read on Telegram](https://t.me/livelawindia/117086)
-
----
-### 2026-08-11T11:34:35+00:00
-'Affects Communal Harmony, Can't Quash On Compromise': MP High Court Upholds FIR Against Constable For Posts On Hindu Deities
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-refuses-to-quash-fir-over-facebook-post-on-hindu-deities-despite-compromise-545312
-
-[Read on Telegram](https://t.me/livelawindia/117087)
-
----
-### 2026-08-11T11:36:05+00:00
-2026 LiveLaw (SC) 786 | RAHUL VERSUS STATE OF UTTAR PRADESH AND ANOTHER
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-786-rahul-versus-state-of-uttar-pradesh-and-another-545313
-
-[Read on Telegram](https://t.me/livelawindia/117088)
-
----
-### 2026-08-11T11:47:45+00:00
-UP Tenancy Act | Court Fee On Appeal Must Be Valued On Subject Matter In Dispute, Not Fee Paid Before Rent Authority: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-appeal-rent-authority-composite-decree-dispute-in-appeal-545315
-
-[Read on Telegram](https://t.me/livelawindia/117089)
-
----
-### 2026-08-11T11:51:25+00:00
-4-Steps To Test If Criminal Case Can Be Quashed Based On Defence Material Before Trial : Supreme Court Explains
-https://www.livelaw.in/supreme-court/4-steps-to-test-if-criminal-case-can-be-quashed-based-on-defence-material-before-trial-supreme-court-explains-545316
-
-[Read on Telegram](https://t.me/livelawindia/117090)
-
----
-### 2026-08-11T12:08:15+00:00
-NEET-UG 2026: Delhi High Court Refuses To Interfere With NTA's Final Answer Key For Biology Question
-https://www.livelaw.in/high-court/delhi-high-court/neet-ug-2026-re-exam-nta-answer-key-biology-question-545319
-
-[Read on Telegram](https://t.me/livelawindia/117091)
-
----
-### 2026-08-11T12:12:35+00:00
-Delhi High Court Asks Centre To Provide Additional Personal Security Officer To MP Pappu Yadav Pending Decision On Enhanced Cover
-https://www.livelaw.in/high-court/delhi-high-court/bihar-mp-pappu-yadav-security-threats-after-ram-mandir-trust-neet-protest-545320
-
-[Read on Telegram](https://t.me/livelawindia/117092)
-
----
-### 2026-08-11T12:14:55+00:00
-Acceptance Of Final Report Doesn't Bar Further Investigation: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-final-report-further-investigation-accused-right-to-be-heard-545322
-
-[Read on Telegram](https://t.me/livelawindia/117093)
-
----
-### 2026-08-11T12:21:55+00:00
-SLSA Cannot Adopt 'Big Brother' Approach; Adult Victims Can Freely Spend Compensation Amount: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/slsa-cannot-adopt-big-brother-approach-to-adult-victim-compensation-lock-amount-in-fd-calcutta-high-court-545324
-
-[Read on Telegram](https://t.me/livelawindia/117094)
-
----
-### 2026-08-11T12:22:05+00:00
-Delhi High Court Fines Litigant ₹25K For Seeking Transfer Of Case Following Judge's Oral Remarks
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-fines-litigant-25k-for-seeking-transfer-of-case-following-judges-oral-remarks-545325
-
-[Read on Telegram](https://t.me/livelawindia/117095)
-
----
-### 2026-08-11T12:31:15+00:00
-MSC Elsa 3 Wreckage Has Hazardous Materials, May Have To Be Removed From Seabed: Centre Tells Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-msc-elsa-3-wreck-removal-545328
-
-[Read on Telegram](https://t.me/livelawindia/117096)
-
----
-### 2026-08-11T12:38:15+00:00
-Insider Trading Presumed When Person Having Confidential Information Trades; Loss Or Profit Irrelevant : Supreme Court
-https://www.livelaw.in/supreme-court/insider-trading-presumed-when-person-having-confidential-information-trades-loss-or-profit-irrelevant-supreme-court-545332
-
-[Read on Telegram](https://t.me/livelawindia/117097)
-
----
-### 2026-08-11T12:39:35+00:00
-2026 LiveLaw (SC) 787| SECURITIES AND EXCHANGE BOARD OF INDIA VERSUS RAJEEV VASANT SHETH & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-787-securities-and-exchange-board-of-india-versus-rajeev-vasant-sheth-ors-545333
-
-[Read on Telegram](https://t.me/livelawindia/117098)
-
----
 ### 2026-08-11T12:46:55+00:00
 Centre Defends Clinical Establishment Rule In Supreme Court, Says It Curbs Excessive Pricing Of Medical Services
 https://www.livelaw.in/top-stories/centre-defends-clinical-establishment-rule-in-supreme-court-says-it-curbs-excessive-pricing-of-medical-services-545337
@@ -142,5 +16,131 @@ Wife Can't Be Awarded Interim Maintenance Solely Based On Husband's Income, Igno
 https://www.livelaw.in/high-court/delhi-high-court/wife-qualification-factor-to-determine-maintenance-amount-from-husband-income-545340
 
 [Read on Telegram](https://t.me/livelawindia/117100)
+
+---
+### 2026-08-11T13:26:25+00:00
+UAPA | Punjab & Haryana High Court Grants Bail To Man Accused Of Painting Pro-Khalistan Slogans On Govt Building
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/uapa-bail-accused-painted-pro-khalistan-slogans-on-govt-wall-545343
+
+[Read on Telegram](https://t.me/livelawindia/117101)
+
+---
+### 2026-08-11T13:33:45+00:00
+Supreme Court Directs Union To Consider Plea Seeking Mechanism To Block Illegal AI-Generated Or Doxed Content
+https://www.livelaw.in/top-stories/supreme-court-pil-for-mechanism-to-disable-url-access-online-unauthorized-content-threats-doxing-union-to-consider-representation-545348
+
+[Read on Telegram](https://t.me/livelawindia/117102)
+
+---
+### 2026-08-11T13:37:45+00:00
+LiveLaw Daily | Janhvi Kapoor| Dhruv Rathee| Fake Advocates CBI Probe| Judges' Tax
+https://www.livelaw.in/podcast/supreme-court-jahnvi-kapor-upi-tax-west-bengal-sir-dhruv-rathee-centre-students-judiciary-upsc-545349
+
+[Read on Telegram](https://t.me/livelawindia/117103)
+
+---
+### 2026-08-11T13:37:56+00:00
+Jumping Off Train Fearing Fire Is Self-Preservation, Not 'Self-Inflicted Injury': P&H High Court Holds Railways Liable To Pay Compensation
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/jumping-off-train-fearing-fire-railway-liable-to-pay-compensation-545346
+
+[Read on Telegram](https://t.me/livelawindia/117104)
+
+---
+### 2026-08-11T13:40:26+00:00
+SC's One-Time Protection From Detention For Low Attendance Applies To Law Students Of All Semesters, Not Just Final Year: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/law-student-low-attendance-detention-sc-protection-applies-all-semesters-545350
+
+[Read on Telegram](https://t.me/livelawindia/117105)
+
+---
+### 2026-08-11T13:49:35+00:00
+Supreme Court Restores Rape Case Acquittal As Forensic Evidence Contradicts Prosecution Version
+https://www.livelaw.in/supreme-court/supreme-court-restores-rape-case-acquittal-as-forensic-evidence-contradicts-prosecution-version-545353
+
+[Read on Telegram](https://t.me/livelawindia/117106)
+
+---
+### 2026-08-11T13:51:15+00:00
+2026 LiveLaw (SC) 788 | RAM SINGH VERSUS THE STATE OF HIMACHAL PRADESH
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-788-ram-singh-versus-the-state-of-himachal-pradesh-545354
+
+[Read on Telegram](https://t.me/livelawindia/117107)
+
+---
+### 2026-08-11T13:53:15+00:00
+Playing Cards For Money At Home In Absence Of 'Profit-Making' Element Not Offence Under Gambling Act: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-prevention-of-gambling-act-common-gaming-house-545351
+
+[Read on Telegram](https://t.me/livelawindia/117108)
+
+---
+### 2026-08-11T14:02:35+00:00
+BCI Asks State Bar Councils To Meet On August 16 To Prepare Panel Of 4 Women Members For Co-Option
+https://www.livelaw.in/top-stories/bci-asks-state-bar-councils-to-meet-on-august-16-to-prepare-panel-of-4-women-members-for-co-option-545355
+
+[Read on Telegram](https://t.me/livelawindia/117109)
+
+---
+### 2026-08-11T14:33:06+00:00
+When State Watches Protest: Constitutional Limits Of Facial Recognition Surveillance
+https://www.livelaw.in/articles/state-watches-protest-constitutional-limits-facial-recognition-surveillance-545341
+
+[Read on Telegram](https://t.me/livelawindia/117110)
+
+---
+### 2026-08-11T14:51:46+00:00
+Police Refusal To Register FIR On Woman's Sexual Harassment Complaint Against Employer: Allahabad High Court Orders Inquiry By UP DGP
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-up-dgp-inquire-police-failed-register-fir-woman-sexual-complaint-employer-545367
+
+[Read on Telegram](https://t.me/livelawindia/117111)
+
+---
+### 2026-08-11T15:09:46+00:00
+Delhi High Court Refuses Interim Entry To OCI Cardholder Facing Blacklisting Over Alleged Anti-India Activities
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-interim-entry-to-oci-cardholder-facing-blacklisting-over-alleged-anti-india-activities-545373
+
+[Read on Telegram](https://t.me/livelawindia/117112)
+
+---
+### 2026-08-11T15:11:06+00:00
+'Police Can't Refuse FIR Over Non-Production Of Evidence In Sexual Harassment Complaint; Can't Shift Burden On Prosecutrix': Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-police-cant-refuse-fir-sexual-complaint-non-production-evidence-545374
+
+[Read on Telegram](https://t.me/livelawindia/117113)
+
+---
+### 2026-08-11T15:17:26+00:00
+'Must Remain In Prison Till Sunset Of His Virility': P&H High Court Commutes Death Penalty For Rape-Murder Of 7 Yrs Old, Directs 50 Yrs In Jail
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-commutes-death-penalty-for-rape-murder-of-7-yrs-old-directs-50-yrs-in-jail-545377
+
+[Read on Telegram](https://t.me/livelawindia/117114)
+
+---
+### 2026-08-11T15:38:36+00:00
+Madras High Court Defers Framing Of Charge In 'Cash-For-Vote' Case Against BJP's Nainar Nagendran, Others
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-nainar-nagendran-cash-for-vote-framing-of-charges-deferred-545381
+
+[Read on Telegram](https://t.me/livelawindia/117115)
+
+---
+### 2026-08-11T15:41:56+00:00
+LiveLaw High Courts Daily Highlights: August 11, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-roundup-august-11-2026-545382
+
+[Read on Telegram](https://t.me/livelawindia/117116)
+
+---
+### 2026-08-11T15:51:56+00:00
+Supreme Court To Hear Bodh Gaya Temple Act Challenge After Sabarimala Reference Verdict; Posted In October
+https://www.livelaw.in/top-stories/supreme-court-sabarimala-reference-9-judge-decision-likely-in-october-bodh-gaya-temple-act-constitutionality-challenge-deferred-545383
+
+[Read on Telegram](https://t.me/livelawindia/117117)
+
+---
+### 2026-08-11T17:18:16+00:00
+Supreme Court Daily Round-Up : Augsut 11, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-augsut-11-2026-545384
+
+[Read on Telegram](https://t.me/livelawindia/117118)
 
 ---
