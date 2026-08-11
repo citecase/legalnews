@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-10T13:39:44+00:00*
+*Last Updated: 2026-08-10T13:41:04+00:00*
 
 ---
 
-### 2026-08-10T13:39:44+00:00
-GST | Exporters Whose Applications Were Pending Before Omission Of Rule 96(10) Entitled To IGST Refund : Supreme Court
-https://www.livelaw.in/supreme-court/gst-exporters-whose-applications-were-pending-before-omission-of-rule-9610-entitled-to-igst-refund-supreme-court-545143
-
-[Read on Telegram](https://t.me/livelawindia/116976)
-
----
 ### 2026-08-10T13:41:04+00:00
 2026 LiveLaw (SC) 781 | M/s Goodluck India Limited & Anr. Versus Union of India & Ors
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-781-ms-goodluck-india-limited-anr-versus-union-of-india-ors-545144
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : August 10, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-10-2026-545160
 
 [Read on Telegram](https://t.me/livelawindia/116995)
+
+---
+### 2026-08-11T00:34:13+00:00
+US Court Dismisses Criminal Case Against Gautam Adani Accepting Justice Dept Decision To Drop Prosecution
+https://www.livelaw.in/foreign-international/us-court-dismisses-criminal-case-against-gautam-adani-accepting-justice-dept-decision-to-drop-prosecution-545176
+
+[Read on Telegram](https://t.me/livelawindia/116996)
 
 ---
