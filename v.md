@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-11T07:32:27+00:00*
+*Last Updated: 2026-08-11T13:32:50+00:00*
+
+---
+
+### 2026-08-11T13:32:50+00:00
+Blow By Blow Account Of Seriously Injured Victim Raises Serious Doubt: Supreme Court Refuses To Restore Conviction U/S.302 IPC
+https://www.verdictum.in/supreme-court/the-state-of-andhra-pradesh-home-department-v-ponthati-siva-rami-reddy-2026-insc-820-io-sec302-ipc-1619626
+
+[Source Link](https://t.me/verdictumlegalupdates/28483)
+
+---
+
+### 2026-08-11T13:03:19+00:00
+Delhi High Court Directs Centre To Provide Additional PSO To MP Pappu Yadav
+https://www.verdictum.in/delhi-high-court/centre-to-provide-additional-pso-to-mp-pappu-yadav-1619625
+
+[Source Link](https://t.me/verdictumlegalupdates/28482)
+
+---
+
+### 2026-08-11T12:33:17+00:00
+Supreme Court Reserves Verdict On Pleas Of RAKIA Seeking Enforcement Of Rs 500 Cr UAE Money Decree
+https://www.verdictum.in/supreme-court/rakia-seeking-enforcement-of-rs-500-cr-uae-money-decree-reserved-1619623
+
+[Source Link](https://t.me/verdictumlegalupdates/28481)
+
+---
+
+### 2026-08-11T12:02:56+00:00
+Calcutta High Court Extends Interim Protection To Aroop Biswas In Case Related To Chaos At Lionel Messi’s Event
+https://www.verdictum.in/calcutta-high-court/interim-protection-to-aroop-biswas-extended-lionel-messis-event-1619621
+
+[Source Link](https://t.me/verdictumlegalupdates/28480)
+
+---
+
+### 2026-08-11T11:32:35+00:00
+You Have Power To Use Sword, But You Are Using It To Kill Mosquito: Bombay HC Warns FDA For Drastic Actions On Drugs
+https://www.verdictum.in/bombay-high-court/warning-fda-for-drastic-actions-on-drugs-1619620
+
+[Source Link](https://t.me/verdictumlegalupdates/28479)
+
+---
+
+### 2026-08-11T11:03:14+00:00
+Supreme Court Asks 19 states, UTs To Declare Cancer 'Notifiable Disease' For Early Detection & Proper Care
+https://www.verdictum.in/supreme-court/19-states-uts-to-declare-cancer-notifiable-disease-for-early-detection-proper-care-1619619
+
+[Source Link](https://t.me/verdictumlegalupdates/28478)
+
+---
+
+### 2026-08-11T10:32:33+00:00
+Supreme Court Directs Special Court To Conclude Trial Concerning Alleged ISIS Cyber-Radicalisation Within One Year
+https://www.verdictum.in/supreme-court/special-court-to-conclude-trial-concerning-alleged-isis-cyber-radicalisation-within-one-year-1619612
+
+[Source Link](https://t.me/verdictumlegalupdates/28477)
+
+---
+
+### 2026-08-11T10:02:12+00:00
+Calcutta High Court Extends Interim Protection From Arrest To Abhishek Banerjee Till August 31
+https://www.verdictum.in/calcutta-high-court/interim-protection-from-arrest-to-abhishek-banerjee-extended-till-august-31-1619615
+
+[Source Link](https://t.me/verdictumlegalupdates/28476)
+
+---
+
+### 2026-08-11T09:12:51+00:00
+Breaking: Supreme Court Refuses To Interfere With High Court's Interim Order On Operation Of Bank Accounts On TMC's Plea
+https://www.verdictum.in/supreme-court/refuses-interfere-interim-order-tmc-bank-accounts-special-officer-1619618
+
+[Source Link](https://t.me/verdictumlegalupdates/28475)
+
+---
+
+### 2026-08-11T08:43:10+00:00
+Steps To Be Taken By Domain Experts: Supreme Court Asks Centre To Consider Representation Against Deepfakes, Doxxing & Online Violence
+https://www.verdictum.in/supreme-court/centre-examine-plea-seeking-emergency-action-against-deepfakes-doxxing-online-violence-1619614
+
+[Source Link](https://t.me/verdictumlegalupdates/28474)
+
+---
+
+### 2026-08-11T08:12:28+00:00
+Register FIR In Cases Of Missing Persons Immediately, Irrespective Of Age Or Gender: Supreme Court
+https://www.verdictum.in/supreme-court/missing-persons-fir-irrespective-gender-1619608
+
+[Source Link](https://t.me/verdictumlegalupdates/28473)
 
 ---
 
@@ -73,94 +161,6 @@ Police Must Issue Written Summons U/S 179 BNSS And Record Enquiry Minutes To Avo
 https://www.verdictum.in/madras-high-court/r-raja-v-the-commissioner-of-police-and-others-179-bnss-summons-harassment-1619563
 
 [Source Link](https://t.me/verdictumlegalupdates/28464)
-
----
-
-### 2026-08-10T14:02:52+00:00
-Defendant Can Put Queries To Plaintiff Who Affirms Trademark Infringement Even If Written Statement Is Not On Record: Supreme Court
-https://www.verdictum.in/supreme-court/shabu-kn-achary-v-dharampal-premchand-limited-2026-insc-819-defendant-queries-plaintiff-1619562
-
-[Source Link](https://t.me/verdictumlegalupdates/28463)
-
----
-
-### 2026-08-10T13:32:11+00:00
-Section 138 NI Act Acquittal Does Not Bar Civil Suit On Same Cheque Or Transaction: Kerala High Court
-https://www.verdictum.in/kerala-high-court/prameela-varghese-v-abraham-samuel-2026ker57049-civil-suit-section-138-ni-act-1619556
-
-[Source Link](https://t.me/verdictumlegalupdates/28462)
-
----
-
-### 2026-08-10T13:02:50+00:00
-133 Writ Petitions In 8 Months: Bombay High Court Flags Systemic Delay In RTE Reimbursement, Directs State To Set Up Review Committee
-https://www.verdictum.in/bombay-high-court/om-education-society-v-state-of-maharashtra-contempt-petition-no-408-of-2026-in-writ-petition-no-3834-of-2026-133-writ-petitions-instituted-1619555
-
-[Source Link](https://t.me/verdictumlegalupdates/28461)
-
----
-
-### 2026-08-10T12:32:49+00:00
-EPC Contract With Termination Clause Not Inherently Determinable Contract U/S 14(d) Specific Relief Act: Delhi High Court
-https://www.verdictum.in/delhi-high-court/roadway-solutions-india-infra-limited-v-national-highways-authority-of-india-2026dhc6435-1619554
-
-[Source Link](https://t.me/verdictumlegalupdates/28460)
-
----
-
-### 2026-08-10T12:02:47+00:00
-Giving False Information To Government Counsel Constitutes Contempt Of Court: Madras High Court
-https://www.verdictum.in/madras-high-court/jabdul-malik-v-the-district-collector-false-information-government-counsel-contempt-1619547
-
-[Source Link](https://t.me/verdictumlegalupdates/28459)
-
----
-
-### 2026-08-10T11:32:26+00:00
-Signing Cheque Alone Does Not Create Section 138 NI Act Liability; Presumptions Arise On Admitted Or Proved Execution: Kerala High Court
-https://www.verdictum.in/kerala-high-court/francis-t-chacko-v-tk-sajeevan-2026ker57175-preseumtion-section-138-ni-act-1619546
-
-[Source Link](https://t.me/verdictumlegalupdates/28458)
-
----
-
-### 2026-08-10T11:02:55+00:00
-Problem Is Pan-India Now: Supreme Court Seeks Centre's Response On Plea Seeking Nationwide Strategy To Curb Illicit Drug Trafficking
-https://www.verdictum.in/supreme-court/seeking-nationwide-strategy-curb-illicit-drug-trafficking-psychoactive-substances-1619545
-
-[Source Link](https://t.me/verdictumlegalupdates/28457)
-
----
-
-### 2026-08-10T10:32:54+00:00
-Undeclared Confiscated Gold Cannot Be Re-Exported U/S 125 Customs Act: Delhi High Court
-https://www.verdictum.in/delhi-high-court/oguljeren-derchiyeva-v-union-of-india-2026dhc6296-db-section-80-customs-act-special-statutory-code-1619544
-
-[Source Link](https://t.me/verdictumlegalupdates/28456)
-
----
-
-### 2026-08-10T10:02:53+00:00
-Supreme Court Asks Justice Gita Mittal Committee To Verify Claims Of Manipur Violence-Hit Families Yet To Get Rehabilitation Benefits
-https://www.verdictum.in/supreme-court/justice-gita-mittal-committee-verify-claims-manipur-violence-hit-families-rehabilitation-benefits-1619543
-
-[Source Link](https://t.me/verdictumlegalupdates/28455)
-
----
-
-### 2026-08-10T09:32:52+00:00
-Dealing With 30 To 40 Criminal Cases Involving Advocates Every Day: Madras High Court Asks Bar Councils To Undertake Detailed Survey
-https://www.verdictum.in/madras-high-court/bjagadeeshwaran-v-the-state-criminal-matters-advocates-bar-councils-survey-1619539
-
-[Source Link](https://t.me/verdictumlegalupdates/28454)
-
----
-
-### 2026-08-10T08:48:30+00:00
-Seeking Treatment For Illness Falls Within Right To Privacy: Supreme Court Allows Abhishek Banerjee To Travel Abroad For Eye Surgery
-https://www.verdictum.in/supreme-court/tmc-mp-abhishek-banerjee-travel-abroad-eye-surgery-1619540
-
-[Source Link](https://t.me/verdictumlegalupdates/28453)
 
 ---
 
