@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-11T13:32:50+00:00*
+*Last Updated: 2026-08-11T16:02:16+00:00*
+
+---
+
+### 2026-08-11T16:02:16+00:00
+BBJ Construction Company Limited Invites Application For Post Of Sr. Manager/Manager (Law)
+https://www.verdictum.in/job-updates/bbj-construction-company-limited-1619630
+
+[Source Link](https://t.me/verdictumlegalupdates/28488)
+
+---
+
+### 2026-08-11T15:32:55+00:00
+Faith, Sovereignty And The Republic: Why The FCRA (Amendment) Bill, 2026 Is About Accountability, Not Religious Control
+https://www.verdictum.in/columns/the-fcra-amendment-bill-2026-1619635
+
+[Source Link](https://t.me/verdictumlegalupdates/28487)
+
+---
+
+### 2026-08-11T15:02:54+00:00
+Quashing Of Predicate Offence On Basis Of Compromise Does Not Extinguish PMLA Proceedings: Delhi High Court Denies Bail To Accused In ₹766 Crore Money Laundering Case
+https://www.verdictum.in/delhi-high-court/rohit-vij-directorate-of-enforcement-2026dhc6498-766-crore-money-laundering-case-1619629
+
+[Source Link](https://t.me/verdictumlegalupdates/28486)
+
+---
+
+### 2026-08-11T14:32:32+00:00
+Omission Of Rule 96 (10) CGST Benefits Exporters In Pending Proceedings For Refund Claim: Supreme Court
+https://www.verdictum.in/supreme-court/ms-goodluck-india-limited-v-union-of-india-2026-insc-821-rule-96-10-cgst-1619628
+
+[Source Link](https://t.me/verdictumlegalupdates/28485)
+
+---
+
+### 2026-08-11T14:02:51+00:00
+Parental Authority Yields To Constitutional Liberty: Allahabad High Court Orders Release Of Two Women Detained By Father After Their Conversion To Islam
+https://www.verdictum.in/allahabad-high-court/kunwar-sultan-ali-v-state-of-up-2026ahc165122-women-detained-father-conversion-islam-1619627
+
+[Source Link](https://t.me/verdictumlegalupdates/28484)
 
 ---
 
@@ -121,46 +161,6 @@ Cross-Examination Privilege Is Not A Licence To Humiliate Witness Or Attack Her 
 https://www.verdictum.in/delhi-high-court/state-nct-of-delhi-v-sajid-ali-2026dhc6421-advocate-cannot-use-privilege-of-cross-examination-1619592
 
 [Source Link](https://t.me/verdictumlegalupdates/28469)
-
----
-
-### 2026-08-11T05:11:22+00:00
-Provident Fund & ESPP Deductions Are Ultimately Benefits: Supreme Court Asks Man To Pay Enhanced Maintenance To Children
-https://www.verdictum.in/supreme-court/a-v-b-2026-insc-822-provident-fund-espps-husband-maintenance-children-1619589
-
-[Source Link](https://t.me/verdictumlegalupdates/28468)
-
----
-
-### 2026-08-11T04:32:31+00:00
-Statement Alleging False Cases Against Muslims By Police Not An Offence U/S 295 IPC: Madras High Court
-https://www.verdictum.in/madras-high-court/sherip-anr-v-state-by-inspector-of-police-anr-section-295-indian-penal-code-1619566
-
-[Source Link](https://t.me/verdictumlegalupdates/28467)
-
----
-
-### 2026-08-10T16:03:16+00:00
-District & Sessions Judge South Salmara Mankachar Invites Applications For Post Of Senior Administrative Assistant
-https://www.verdictum.in/job-updates/district-sessions-judge-south-salmara-mankachar-1619558
-
-[Source Link](https://t.me/verdictumlegalupdates/28466)
-
----
-
-### 2026-08-10T15:12:35+00:00
-Circulating Message Regarding Covid Positive Cases Creating Panic Won’t Attract Sec.505 IPC: Jammu & Kashmir and Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/sandeep-kumar-bhat-v-ut-of-jk-message-covid-positive-cases-sec505-ipc-1619565
-
-[Source Link](https://t.me/verdictumlegalupdates/28465)
-
----
-
-### 2026-08-10T14:32:14+00:00
-Police Must Issue Written Summons U/S 179 BNSS And Record Enquiry Minutes To Avoid Harassment Allegations: Madras High Court
-https://www.verdictum.in/madras-high-court/r-raja-v-the-commissioner-of-police-and-others-179-bnss-summons-harassment-1619563
-
-[Source Link](https://t.me/verdictumlegalupdates/28464)
 
 ---
 
