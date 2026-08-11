@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-10T16:03:16+00:00*
+*Last Updated: 2026-08-11T07:32:27+00:00*
+
+---
+
+### 2026-08-11T07:32:27+00:00
+Supreme Court Agrees To Hear PIL Alleging Breach Of Guidelines By Odisha Govt In DGP Appointment Process
+https://www.verdictum.in/supreme-court/pil-alleging-breach-of-guidelines-by-odisha-govt-in-dgp-appointment-process-1619606
+
+[Source Link](https://t.me/verdictumlegalupdates/28472)
+
+---
+
+### 2026-08-11T06:51:26+00:00
+Supreme Court Seeks Centre's Response On Plea By Netaji Subhash Chandra Bose's Daughter Seeking Repatriation Of His Remains
+https://www.verdictum.in/supreme-court/netaji-subhash-chandra-bose-daughter-seeking-repatriation-remains-1619603
+
+[Source Link](https://t.me/verdictumlegalupdates/28471)
+
+---
+
+### 2026-08-11T06:32:25+00:00
+Father Has To First Build Confidence In The Child: Supreme Court While Granting Child Custody To Maternal Grandparents
+https://www.verdictum.in/supreme-court/a-v-b-2026-insc-818-parens-patriae-jurisdiction-child-custody-maternal-grandparents-father-1619597
+
+[Source Link](https://t.me/verdictumlegalupdates/28470)
+
+---
+
+### 2026-08-11T05:52:23+00:00
+Cross-Examination Privilege Is Not A Licence To Humiliate Witness Or Attack Her Dignity: Delhi High Court
+https://www.verdictum.in/delhi-high-court/state-nct-of-delhi-v-sajid-ali-2026dhc6421-advocate-cannot-use-privilege-of-cross-examination-1619592
+
+[Source Link](https://t.me/verdictumlegalupdates/28469)
+
+---
+
+### 2026-08-11T05:11:22+00:00
+Provident Fund & ESPP Deductions Are Ultimately Benefits: Supreme Court Asks Man To Pay Enhanced Maintenance To Children
+https://www.verdictum.in/supreme-court/a-v-b-2026-insc-822-provident-fund-espps-husband-maintenance-children-1619589
+
+[Source Link](https://t.me/verdictumlegalupdates/28468)
+
+---
+
+### 2026-08-11T04:32:31+00:00
+Statement Alleging False Cases Against Muslims By Police Not An Offence U/S 295 IPC: Madras High Court
+https://www.verdictum.in/madras-high-court/sherip-anr-v-state-by-inspector-of-police-anr-section-295-indian-penal-code-1619566
+
+[Source Link](https://t.me/verdictumlegalupdates/28467)
 
 ---
 
@@ -113,54 +161,6 @@ Seeking Treatment For Illness Falls Within Right To Privacy: Supreme Court Allow
 https://www.verdictum.in/supreme-court/tmc-mp-abhishek-banerjee-travel-abroad-eye-surgery-1619540
 
 [Source Link](https://t.me/verdictumlegalupdates/28453)
-
----
-
-### 2026-08-10T08:32:29+00:00
-Supreme Court Asks Authorities To Set Up Special Trial Courts To Exclusively Hear CBI & NIA Cases Concerning 2023 Ethnic Violence In Manipur
-https://www.verdictum.in/supreme-court/authorities-set-up-special-trial-court-exclusively-hearing-cbi-nia-ethnic-violence-in-manipur-1619535
-
-[Source Link](https://t.me/verdictumlegalupdates/28452)
-
----
-
-### 2026-08-10T08:03:08+00:00
-Enforce Our Earlier Order: Supreme Court Refuses To Entertain Fresh Plea For Registration Of Religious Institutions
-https://www.verdictum.in/supreme-court/refuses-plea-registration-religious-institutions-1619530
-
-[Source Link](https://t.me/verdictumlegalupdates/28451)
-
----
-
-### 2026-08-10T07:33:07+00:00
-Injunction Order Restraining Foreign Matrimonial Proceedings Not Interlocutory; Appealable U/S 19 Family Courts Act: Delhi High Court
-https://www.verdictum.in/delhi-high-court/kk-v-mk-2026dhc6380-matrimonial-proceedings-foreign-court-injunction-1619529
-
-[Source Link](https://t.me/verdictumlegalupdates/28450)
-
----
-
-### 2026-08-10T07:02:46+00:00
-Supreme Court To Hear Plea Of Tamil Nadu Seeking Release Of Its Share Of Cauvery Water From Karnataka
-https://www.verdictum.in/supreme-court/plea-of-tamil-nadu-seeking-release-of-its-share-of-cauvery-water-from-karnataka-1619527
-
-[Source Link](https://t.me/verdictumlegalupdates/28449)
-
----
-
-### 2026-08-10T06:32:23+00:00
-Can't Substitute Opinion Of Courts Below U/S 528 BNSS: Delhi High Court Upholds Discharge Of Air India Pilot & Family In Cruelty Case By Air Hostess Wife
-https://www.verdictum.in/delhi-high-court/xxxxxxxxxxx-v-state-of-nct-of-delhi-2026dhc6382-us-528-bnss-air-india-pilot-family-in-dowry-1619525
-
-[Source Link](https://t.me/verdictumlegalupdates/28448)
-
----
-
-### 2026-08-10T06:03:02+00:00
-Order XXXIX Rule 2A CPC Aimed At Compliance, Not Punishment: Bombay High Court Lays Down Seven-Point Test
-https://www.verdictum.in/bombay-high-court/khadi-village-industries-commission-v-shri-jaishukh-n-bhuta-interim-application-no-5867-of-2025-order-xxxix-rule-2a-cpc-1619522
-
-[Source Link](https://t.me/verdictumlegalupdates/28447)
 
 ---
 
