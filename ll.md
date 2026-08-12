@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-12T05:43:54+00:00*
+*Last Updated: 2026-08-12T09:41:26+00:00*
 
 ---
 
-### 2026-08-12T05:43:54+00:00
-2026 LiveLaw (SC) 790 | Shabu KN Achary v. Dharampal Premchand Limited
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-790-shabu-kn-achary-v-dharampal-premchand-limited-545420
+### 2026-08-12T09:41:26+00:00
+CPC | Separate Appeals Not Required Against Common Judgment Deciding Suit & Counterclaim : Supreme Court
+https://www.livelaw.in/supreme-court/cpc-separate-appeals-not-required-against-common-judgment-deciding-suit-counterclaim-supreme-court-545472
 
-[Read on Telegram](https://t.me/livelawindia/117143)
-
----
-### 2026-08-12T05:44:34+00:00
-Calcutta High Court Pulls Up Advocate For Allegedly Using 'Slang' Against Judge, Directs Him To Apologise On Court Livestream
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-pulls-up-advocate-for-allegedly-using-slang-against-judge-directs-him-to-apologise-to-judge-on-livestream-545421
-
-[Read on Telegram](https://t.me/livelawindia/117144)
+[Read on Telegram](https://t.me/livelawindia/117173)
 
 ---
-### 2026-08-12T05:51:54+00:00
-Supreme Court Orders CBI Probe Into Chhattisgarh Custodial Death,  Grants ₹25 Lakh Compensation To Kin
-https://www.livelaw.in/top-stories/supreme-court-orders-cbi-probe-into-chhattisgarh-custodial-death-grants-25-lakh-compensation-to-kin-545422
+### 2026-08-12T09:43:06+00:00
+2026 LiveLaw (SC) 792 | Basudev & Ors. Versus Sanjay Kumar & Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-792-basudev-ors-versus-sanjay-kumar-ors-545474
 
-[Read on Telegram](https://t.me/livelawindia/117145)
-
----
-### 2026-08-12T05:52:34+00:00
-Loans Taken By Husband Cannot Reduce His Maintenance Obligation Towards Wife: Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-loan-taken-reduce-husband-maintenance-obligation-545408
-
-[Read on Telegram](https://t.me/livelawindia/117146)
+[Read on Telegram](https://t.me/livelawindia/117174)
 
 ---
-### 2026-08-12T05:55:35+00:00
-Madhu Kishwar Moves Punjab & Haryana High Court To Quash FIR Over Social Media Post On PM Modi
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/madhu-kishwars-plea-to-quash-fir-x-post-on-pm-modi-545423
+### 2026-08-12T09:48:47+00:00
+Ambulance Scam Defamation Case: Kerala High Court Sets Aside ₹5L Award Against BJP Leader Kirit Somaiya, Remands Case
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-2010-ambulance-scam-defamation-545476
 
-[Read on Telegram](https://t.me/livelawindia/117147)
-
----
-### 2026-08-12T06:07:15+00:00
-Advisory Board's Opinion Not Condition Precedent For Arrest Pursuant To Preventive Detention Order: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-advisory-board-opinion-prerequisite-preventive-detention-law-545424
-
-[Read on Telegram](https://t.me/livelawindia/117148)
+[Read on Telegram](https://t.me/livelawindia/117175)
 
 ---
-### 2026-08-12T06:08:55+00:00
-Delhi High Court Orders Takedown Of Unauthorised Merchandise, Obscene Content On Actress Khushi Kapoor
-https://www.livelaw.in/high-court/delhi-high-court/khushi-kapoor-personality-rights-takedown-obscene-content-545425
+### 2026-08-12T10:02:37+00:00
+Application Of BUDS Act Prima Facie Doubtful Where Accused Is Not Deposit Taker: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-grants-pre-arrest-bail-doctor-prima-facie-ambiguity-section21-buds-act-545477
 
-[Read on Telegram](https://t.me/livelawindia/117149)
-
----
-### 2026-08-12T06:22:05+00:00
-State Can't Appoint Special Public Prosecutor At 'Specific Request' Of Complainant: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-appointment-special-public-prosecutor-sadashiva-murthy-frthomaskj-murder-case-545426
-
-[Read on Telegram](https://t.me/livelawindia/117150)
+[Read on Telegram](https://t.me/livelawindia/117176)
 
 ---
-### 2026-08-12T06:26:25+00:00
-Madras High Court Asks Nakkeeran Gopal To Appear Before Police In Promoting Enmity Case, Says Accused Can't Seek General 'No Harassment' Order
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-nakkeeran-gopal-accused-no-general-direction-police-not-harass-545427
+### 2026-08-12T10:03:07+00:00
+'Making Retired People Run Around': Karnataka High Court Raps State Over Delay In CM Housing Scheme, Orders Refund
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-raps-state-delayed-1lakh-bengaluru-housing-project-orders-refund-545483
 
-[Read on Telegram](https://t.me/livelawindia/117151)
-
----
-### 2026-08-12T06:29:45+00:00
-Can Legislative Privileges Override Free Speech? Supreme Court 7-Judge Bench To Hear 2003 TN Speaker Case On October 6
-https://www.livelaw.in/top-stories/can-legislative-privileges-override-free-speech-supreme-court-7-judge-bench-to-hear-2003-tn-speaker-case-on-october-6-545429
-
-[Read on Telegram](https://t.me/livelawindia/117152)
+[Read on Telegram](https://t.me/livelawindia/117177)
 
 ---
-### 2026-08-12T06:36:25+00:00
-Supreme Court Defers Cauvery Dispute Hearing To August 17
-https://www.livelaw.in/top-stories/supreme-court-defers-cauvery-dispute-hearing-to-august-17-545430
+### 2026-08-12T10:23:17+00:00
+Will Provide Bengaluru Airport CCTV Footage Sought By Ranya Rao In Gold Smuggling Case: CISF Tells Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-cctv-footage-ranya-rao-gold-smuggling-case-545488
 
-[Read on Telegram](https://t.me/livelawindia/117153)
-
----
-### 2026-08-12T06:53:25+00:00
-Supreme Court Agrees To Hear Plea Against Disruption Of Services Due To Protests
-https://www.livelaw.in/top-stories/supreme-court-agrees-to-hear-plea-against-disruption-of-services-due-to-protests-545433
-
-[Read on Telegram](https://t.me/livelawindia/117154)
+[Read on Telegram](https://t.me/livelawindia/117178)
 
 ---
-### 2026-08-12T06:58:05+00:00
-Surat Municipal Commissioner Transferred: Gujarat Govt Informs High Court Amid 'Illegal' Demolition Row
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-surat-municipal-commissioner-transferred-demolition-nasir-nagar-545434
+### 2026-08-12T10:34:57+00:00
+Lok Sabha Inquiry Committee Indicts Justice Yashwant Varma, Says No Explanation For Huge Cash Bundles At Home
+https://www.livelaw.in/top-stories/lok-sabha-inquiry-committee-indicts-justice-yashwant-varma-says-no-explanation-for-huge-cash-bundles-at-home-545490
 
-[Read on Telegram](https://t.me/livelawindia/117155)
-
----
-### 2026-08-12T07:06:35+00:00
-Apollo Hospital Liable For Deficient Post-Operative Care After Patient Suffers Paralysis; NCDRC Awards ₹15 Lakh
-https://www.livelaw.in/consumer-cases/apollo-hospital-liable-for-deficient-post-operative-care-after-patient-suffers-paralysis-ncdrc-awards-15-lakh-545436
-
-[Read on Telegram](https://t.me/livelawindia/117156)
+[Read on Telegram](https://t.me/livelawindia/117179)
 
 ---
-### 2026-08-12T07:12:56+00:00
-POCSO Act | Meghalaya High Court Denies Bail To Two Teachers Accused Of Sexually Assaulting 5-Year-Old
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-denies-bail-teachers-accused-sexually-assaulting-5year-old-545409
+### 2026-08-12T10:52:37+00:00
+Punjab & Haryana High Court Upholds Hoshiarpur Dera Head's Conviction In 21 Yrs Old Rape Case, Awards ₹6 Lakh To Survivor
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/dera-head-rape-conviction-upheld-victims-sole-testimony-545494
 
-[Read on Telegram](https://t.me/livelawindia/117157)
-
----
-### 2026-08-12T07:19:56+00:00
-Supreme Court Allows Kerala Bar Council Elected Members To Approach HC Chief Justice For Co-Option Of Women
-https://www.livelaw.in/top-stories/supreme-court-allows-kerala-bar-council-elected-members-to-approach-hc-chief-justice-for-co-option-of-women-545438
-
-[Read on Telegram](https://t.me/livelawindia/117158)
+[Read on Telegram](https://t.me/livelawindia/117180)
 
 ---
-### 2026-08-12T07:24:36+00:00
-Telangana High Court Refuses To Quash Criminal Trespass Case Against Actor Rana Daggubati, Family
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-refuses-quash-case-rana-daggubati-545440
+### 2026-08-12T10:59:57+00:00
+Tamil Nadu Waqf Board Can't Appoint Muttawali For Waqf Properties Covered By Deeds, Decrees & Court Orders: Madras High Court Full Bench
+https://www.livelaw.in/high-court/madras-high-court/waqf-property-muttawali-appointment-tamil-nadu-waqf-board-power-deed-court-order-545496
 
-[Read on Telegram](https://t.me/livelawindia/117159)
-
----
-### 2026-08-12T07:32:16+00:00
-Court Auction Sale Certificates And Stamp Duty
-https://www.livelaw.in/articles/court-auction-sale-certificates-stamp-duty-545432
-
-[Read on Telegram](https://t.me/livelawindia/117160)
+[Read on Telegram](https://t.me/livelawindia/117181)
 
 ---
-### 2026-08-12T07:35:56+00:00
-Arbitration | Post-Award Section 9 Application By Unsuccessful Party Maintainable In Exceptional Cases : Supreme Court
-https://www.livelaw.in/supreme-court/arbitration-post-award-section-9-application-by-unsuccessful-party-maintainable-in-exceptional-cases-supreme-court-545444
+### 2026-08-12T11:13:08+00:00
+Subsistence Of Wife's First Marriage Not Always Bar To Maintenance From Second Husband: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/wifes-maintenance-second-husband-despite-first-marriage-545497
 
-[Read on Telegram](https://t.me/livelawindia/117161)
+[Read on Telegram](https://t.me/livelawindia/117182)
 
 ---
-### 2026-08-12T07:36:56+00:00
-2026 LiveLaw (SC) 791 | National Projects Construction Corporation Ltd. Versus Ishvakoo (India) Pvt. Ltd
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-791-national-projects-construction-corporation-ltd-versus-ishvakoo-india-pvt-ltd-545446
+### 2026-08-12T11:32:08+00:00
+Shield With Cracks: Rethinking Telangana Advocates Protection Act, 2026
+https://www.livelaw.in/articles/rethinking-telangana-advocates-protection-act2026-545480
 
-[Read on Telegram](https://t.me/livelawindia/117162)
+[Read on Telegram](https://t.me/livelawindia/117183)
+
+---
+### 2026-08-12T12:03:18+00:00
+'No Constitutional Immunity': AIADMK Party Says Speaker Must Appear Before Madras High Court In Plea Challenging Acceptance Of MLA Resignations
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-aiadmk-mla-resignation-plea-speaker-no-immunity-appearing-court-545505
+
+[Read on Telegram](https://t.me/livelawindia/117184)
+
+---
+### 2026-08-12T12:13:38+00:00
+S. 9 IBC | Uncrystallized Damages From Breach Of Contract Not Operational Debt : Supreme Court
+https://www.livelaw.in/supreme-court/s-9-ibc-uncrystallized-damages-from-breach-of-contract-not-operational-debt-supreme-court-545507
+
+[Read on Telegram](https://t.me/livelawindia/117185)
+
+---
+### 2026-08-12T12:15:18+00:00
+2026 LiveLaw (SC) 793 | SRINIVASA REDDY VELAGALA. SRAVANTHI INFRATECH PVT. LTD
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-793-srinivasa-reddy-velagala-sravanthi-infratech-pvt-ltd-545508
+
+[Read on Telegram](https://t.me/livelawindia/117186)
+
+---
+### 2026-08-12T12:20:18+00:00
+NGO Funding Peaceful Protests Can't Be Ground To Deny Its FCRA Renewal: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-fcra-renewal-rejectionvizhinjam-protests-funding-545510
+
+[Read on Telegram](https://t.me/livelawindia/117187)
+
+---
+### 2026-08-12T12:27:58+00:00
+2026 LiveLaw (SC) 794 | Lahra Bai Tamre v. State of Chhattisgarh
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-794-lahra-bai-tamre-v-state-of-chhattisgarh-545512
+
+[Read on Telegram](https://t.me/livelawindia/117188)
+
+---
+### 2026-08-12T12:28:18+00:00
+Supreme Court Grants Bail To Former Hazaribagh Deputy Commissioner Vinay Kumar Choubey In Land Scam Case
+https://www.livelaw.in/news-updates/supreme-court-grants-bail-to-former-hazaribagh-deputy-commissioner-vinay-kumar-choubey-in-land-scam-case-545513
+
+[Read on Telegram](https://t.me/livelawindia/117189)
+
+---
+### 2026-08-12T12:32:38+00:00
+Twisha Sharma Dowry Death: Giribala Singh Approaches MP High Court Seeking Bail
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/giribala-singh-files-for-regular-bail-before-madhya-pradesh-high-court-in-twisha-sharma-sowry-death-545511
+
+[Read on Telegram](https://t.me/livelawindia/117190)
+
+---
+### 2026-08-12T13:11:28+00:00
+'Money Flies' In Cybercrimes; Police Need Not Obtain Prior Magistrate Approval To Freeze Bank Account During Probe: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-rules-debit-freeze-require-prior-magistrate-approval-545521
+
+[Read on Telegram](https://t.me/livelawindia/117191)
+
+---
+### 2026-08-12T13:12:48+00:00
+West Bengal Medical Education Service Members Cannot Claim Voluntary Retirement: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/west-bengal-medical-education-service-members-cannot-claim-voluntary-retirement-calcutta-high-court-545473
+
+[Read on Telegram](https://t.me/livelawindia/117192)
 
 ---
