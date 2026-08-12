@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-11T12:46:55+00:00*
+*Last Updated: 2026-08-11T13:13:45+00:00*
 
 ---
 
-### 2026-08-11T12:46:55+00:00
-Centre Defends Clinical Establishment Rule In Supreme Court, Says It Curbs Excessive Pricing Of Medical Services
-https://www.livelaw.in/top-stories/centre-defends-clinical-establishment-rule-in-supreme-court-says-it-curbs-excessive-pricing-of-medical-services-545337
-
-[Read on Telegram](https://t.me/livelawindia/117099)
-
----
 ### 2026-08-11T13:13:45+00:00
 Wife Can't Be Awarded Interim Maintenance Solely Based On Husband's Income, Ignoring Other Factors Like Her Qualifications: Delhi High Court
 https://www.livelaw.in/high-court/delhi-high-court/wife-qualification-factor-to-determine-maintenance-amount-from-husband-income-545340
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : Augsut 11, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-augsut-11-2026-545384
 
 [Read on Telegram](https://t.me/livelawindia/117118)
+
+---
+### 2026-08-12T01:59:24+00:00
+Justice Yashwant Varma Inquiry Report To Be Tabled In Lok Sabha Today
+https://www.livelaw.in/top-stories/justice-yashwant-varma-inquiry-report-to-be-tabled-in-lok-sabha-today-545391
+
+[Read on Telegram](https://t.me/livelawindia/117119)
 
 ---
