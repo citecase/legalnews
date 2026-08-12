@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-11T16:02:16+00:00*
+*Last Updated: 2026-08-12T07:43:09+00:00*
+
+---
+
+### 2026-08-12T07:43:09+00:00
+Cannot Fetter State From Choosing Particular Policy Course: Supreme Court Refuses To Lay Down Uniform Policy For Demolition Drives
+https://www.verdictum.in/supreme-court/refuses-lay-down-uniform-policy-unauthorized-construction-demolitions-1619707
+
+[Source Link](https://t.me/verdictumlegalupdates/28494)
+
+---
+
+### 2026-08-12T07:12:27+00:00
+Common Judgment In Suit & Counter-Claim Can Be Challenged In A Composite Appeal: Supreme Court
+https://www.verdictum.in/supreme-court/basudev-v-sanjay-kumar-2026-insc-831-composite-appeal-suit-counterclaim-1619700
+
+[Source Link](https://t.me/verdictumlegalupdates/28493)
+
+---
+
+### 2026-08-12T06:32:46+00:00
+2020 Riots: Delhi High Court Seeks Police’s Response On Appeals By Two Convicts In IB Staffer Murder Case
+https://www.verdictum.in/delhi-high-court/2020-delhi-riots-response-two-convicts-ib-staffer-murder-1619670
+
+[Source Link](https://t.me/verdictumlegalupdates/28492)
+
+---
+
+### 2026-08-12T05:53:05+00:00
+Dealing In Company’s Securities After Being Informed By Confidential Information Amounts To Insider Trading; Less Or No Profit Is Of No Consequence: Supreme Court
+https://www.verdictum.in/supreme-court/securities-and-exchange-board-of-india-v-rajeev-vasant-sheth-2026-insc-826-accused-insider-trading-1619666
+
+[Source Link](https://t.me/verdictumlegalupdates/28491)
+
+---
+
+### 2026-08-12T05:12:43+00:00
+Candidate Can’t Be Said To Have Suppressed Or Furnished False Information When Existence Of Criminal Antecedent Was Not Within His Knowledge: Supreme Court
+https://www.verdictum.in/supreme-court/shatrughn-yadav-v-the-fertilizers-and-chemicals-travancore-ltd-2026-insc-829-candidate-criminal-antecedent-1619659
+
+[Source Link](https://t.me/verdictumlegalupdates/28490)
+
+---
+
+### 2026-08-12T04:32:52+00:00
+Absence Of Injury Near Private Part, FSL Report Rules Out Presence Of Semen & Blood On Clothes: Supreme Court Restores Acquittal In 4-Yr-Old’s Rape Case
+https://www.verdictum.in/supreme-court/ram-singh-v-the-state-of-himachal-pradesh-2026-insc-830-injury-fsl-report-rape-acquittal-1619639
+
+[Source Link](https://t.me/verdictumlegalupdates/28489)
 
 ---
 
@@ -113,54 +161,6 @@ Breaking: Supreme Court Refuses To Interfere With High Court's Interim Order On 
 https://www.verdictum.in/supreme-court/refuses-interfere-interim-order-tmc-bank-accounts-special-officer-1619618
 
 [Source Link](https://t.me/verdictumlegalupdates/28475)
-
----
-
-### 2026-08-11T08:43:10+00:00
-Steps To Be Taken By Domain Experts: Supreme Court Asks Centre To Consider Representation Against Deepfakes, Doxxing & Online Violence
-https://www.verdictum.in/supreme-court/centre-examine-plea-seeking-emergency-action-against-deepfakes-doxxing-online-violence-1619614
-
-[Source Link](https://t.me/verdictumlegalupdates/28474)
-
----
-
-### 2026-08-11T08:12:28+00:00
-Register FIR In Cases Of Missing Persons Immediately, Irrespective Of Age Or Gender: Supreme Court
-https://www.verdictum.in/supreme-court/missing-persons-fir-irrespective-gender-1619608
-
-[Source Link](https://t.me/verdictumlegalupdates/28473)
-
----
-
-### 2026-08-11T07:32:27+00:00
-Supreme Court Agrees To Hear PIL Alleging Breach Of Guidelines By Odisha Govt In DGP Appointment Process
-https://www.verdictum.in/supreme-court/pil-alleging-breach-of-guidelines-by-odisha-govt-in-dgp-appointment-process-1619606
-
-[Source Link](https://t.me/verdictumlegalupdates/28472)
-
----
-
-### 2026-08-11T06:51:26+00:00
-Supreme Court Seeks Centre's Response On Plea By Netaji Subhash Chandra Bose's Daughter Seeking Repatriation Of His Remains
-https://www.verdictum.in/supreme-court/netaji-subhash-chandra-bose-daughter-seeking-repatriation-remains-1619603
-
-[Source Link](https://t.me/verdictumlegalupdates/28471)
-
----
-
-### 2026-08-11T06:32:25+00:00
-Father Has To First Build Confidence In The Child: Supreme Court While Granting Child Custody To Maternal Grandparents
-https://www.verdictum.in/supreme-court/a-v-b-2026-insc-818-parens-patriae-jurisdiction-child-custody-maternal-grandparents-father-1619597
-
-[Source Link](https://t.me/verdictumlegalupdates/28470)
-
----
-
-### 2026-08-11T05:52:23+00:00
-Cross-Examination Privilege Is Not A Licence To Humiliate Witness Or Attack Her Dignity: Delhi High Court
-https://www.verdictum.in/delhi-high-court/state-nct-of-delhi-v-sajid-ali-2026dhc6421-advocate-cannot-use-privilege-of-cross-examination-1619592
-
-[Source Link](https://t.me/verdictumlegalupdates/28469)
 
 ---
 
