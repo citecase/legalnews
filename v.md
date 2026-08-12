@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-12T13:32:33+00:00*
+*Last Updated: 2026-08-12T16:02:58+00:00*
+
+---
+
+### 2026-08-12T16:02:58+00:00
+Delhi Pollution Control Committee Invites Applications For Posts Of Assistant Law Officer, Legal Assistant
+https://www.verdictum.in/job-updates/delhi-pollution-control-committee-1619730
+
+[Source Link](https://t.me/verdictumlegalupdates/28508)
+
+---
+
+### 2026-08-12T15:37:57+00:00
+Hens Are Considered Livestock Under MV Act; Claimant Transporting Hens Entitled For Actual Damages Suffered In Motor Accident: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/k-veera-narayana-swamy-v-y-yankappa-2026khc-d10894-livestock-mv-act-claimant-damages-1619738
+
+[Source Link](https://t.me/verdictumlegalupdates/28507)
+
+---
+
+### 2026-08-12T14:32:16+00:00
+One-Time Benefit Granted By Supreme Court Applies To All Law Students Across States & Semesters Facing Attendance Shortfall: Bombay High Court
+https://www.verdictum.in/bombay-high-court/aniruddha-gaurav-gursal-v-state-of-maharashtra-writ-petition-no-6027-of-2026-with-interim-application-no-5058-of-2026-attendance-shortfall-1619729
+
+[Source Link](https://t.me/verdictumlegalupdates/28506)
+
+---
+
+### 2026-08-12T14:02:54+00:00
+Sec.161 CrPC Statements Can’t Be Relied On For Conviction: Supreme Court Acquits Man in Wife’s Burn Death Case
+https://www.verdictum.in/supreme-court/jupudi-suresh-v-the-state-of-andhra-pradesh-2026-insc-832-sec161-crpc-statements-accused-1619728
+
+[Source Link](https://t.me/verdictumlegalupdates/28505)
 
 ---
 
@@ -129,38 +161,6 @@ Absence Of Injury Near Private Part, FSL Report Rules Out Presence Of Semen & Bl
 https://www.verdictum.in/supreme-court/ram-singh-v-the-state-of-himachal-pradesh-2026-insc-830-injury-fsl-report-rape-acquittal-1619639
 
 [Source Link](https://t.me/verdictumlegalupdates/28489)
-
----
-
-### 2026-08-11T16:02:16+00:00
-BBJ Construction Company Limited Invites Application For Post Of Sr. Manager/Manager (Law)
-https://www.verdictum.in/job-updates/bbj-construction-company-limited-1619630
-
-[Source Link](https://t.me/verdictumlegalupdates/28488)
-
----
-
-### 2026-08-11T15:32:55+00:00
-Faith, Sovereignty And The Republic: Why The FCRA (Amendment) Bill, 2026 Is About Accountability, Not Religious Control
-https://www.verdictum.in/columns/the-fcra-amendment-bill-2026-1619635
-
-[Source Link](https://t.me/verdictumlegalupdates/28487)
-
----
-
-### 2026-08-11T15:02:54+00:00
-Quashing Of Predicate Offence On Basis Of Compromise Does Not Extinguish PMLA Proceedings: Delhi High Court Denies Bail To Accused In ₹766 Crore Money Laundering Case
-https://www.verdictum.in/delhi-high-court/rohit-vij-directorate-of-enforcement-2026dhc6498-766-crore-money-laundering-case-1619629
-
-[Source Link](https://t.me/verdictumlegalupdates/28486)
-
----
-
-### 2026-08-11T14:32:32+00:00
-Omission Of Rule 96 (10) CGST Benefits Exporters In Pending Proceedings For Refund Claim: Supreme Court
-https://www.verdictum.in/supreme-court/ms-goodluck-india-limited-v-union-of-india-2026-insc-821-rule-96-10-cgst-1619628
-
-[Source Link](https://t.me/verdictumlegalupdates/28485)
 
 ---
 
