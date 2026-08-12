@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-12T07:43:09+00:00*
+*Last Updated: 2026-08-12T13:32:33+00:00*
+
+---
+
+### 2026-08-12T13:32:33+00:00
+State Government Cannot Delegate Power To Refer Dues Dispute U/S 17(2) Working Journalists Act: Supreme Court
+https://www.verdictum.in/supreme-court/sudhir-v-head-of-human-resource-dainik-bhaskar-group-db-corp-ltd-2026-insc-834-172-of-working-journalists-act-1619727
+
+[Source Link](https://t.me/verdictumlegalupdates/28504)
+
+---
+
+### 2026-08-12T13:02:12+00:00
+Procedure To Follow When Party’s Mental Capacity Is Questioned In Judicial Proceedings: Supreme Court Points Out Lack Of Statutory Framework
+https://www.verdictum.in/supreme-court/ab-v-cd-2026-insc-824-mental-healthcare-act-cpc-mental-capacity-questioned-1619726
+
+[Source Link](https://t.me/verdictumlegalupdates/28503)
+
+---
+
+### 2026-08-12T12:32:50+00:00
+Weekly Overview| Supreme Court Judgments: August 03 – August 07, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-august-03-august-07-2026-1619722
+
+[Source Link](https://t.me/verdictumlegalupdates/28502)
+
+---
+
+### 2026-08-12T12:03:19+00:00
+Supreme Court's 7-Judge Bench To Hear Issue Of Privileges Of MLAs & Its Effect On Freedom Of Speech On Oct 6
+https://www.verdictum.in/supreme-court/issue-of-privileges-of-mlas-its-effect-on-freedom-of-speech-on-oct-6-1619720
+
+[Source Link](https://t.me/verdictumlegalupdates/28501)
+
+---
+
+### 2026-08-12T11:32:58+00:00
+"Failed To Furnish Satisfactory Explanation": Judges’ Inquiry Committee Report Against Justice Yashwant Varma Placed Before Parliament [Read Report]
+https://www.verdictum.in/news/judges-inquiry-committee-charges-proved-against-justice-yashwant-varma-1619721
+
+[Source Link](https://t.me/verdictumlegalupdates/28500)
+
+---
+
+### 2026-08-12T10:52:36+00:00
+Award Debtor Can Seek Protection U/S 9 Arbitration Act In Rare Cases To Prevent Irreparable Prejudice: Supreme Court
+https://www.verdictum.in/supreme-court/national-projects-construction-corporation-ltd-v-ishvakoo-india-pvt-ltd-2026-insc-828-unsuccessful-award-debtor-us-9-arbitration-act-1619719
+
+[Source Link](https://t.me/verdictumlegalupdates/28499)
+
+---
+
+### 2026-08-12T10:12:16+00:00
+S.482 CrPC| Alibi Plea Requiring Trial Not Inflexible Rule; Official Documentary Material Can Be Looked Into: Supreme Court
+https://www.verdictum.in/supreme-court/a-v-state-of-uttar-pradesh-2026-insc-825-unimpeached-documentary-record-sec498a-ipc-1619718
+
+[Source Link](https://t.me/verdictumlegalupdates/28498)
+
+---
+
+### 2026-08-12T09:32:54+00:00
+State Can’t Have Luxury Of Prolonging Trial For Years: Supreme Court Directs Karnataka To Provide Infrastructure For Special UAPA Courts
+https://www.verdictum.in/supreme-court/karnataka-to-provide-infrastructure-for-special-uapa-courts-1619716
+
+[Source Link](https://t.me/verdictumlegalupdates/28497)
+
+---
+
+### 2026-08-12T08:52:51+00:00
+Supreme Court Agrees To Hear Plea Concerning Issue Of Disruption Of Services During Protests
+https://www.verdictum.in/supreme-court/issue-of-disruption-of-services-during-protests-1619714
+
+[Source Link](https://t.me/verdictumlegalupdates/28496)
+
+---
+
+### 2026-08-12T08:12:30+00:00
+Calcutta High Court Refuses Urgent Hearing Of Plea For Interim Protection By Abhishek Banerjee's Personal Assistant
+https://www.verdictum.in/calcutta-high-court/urgent-hearing-interim-protection-abhishek-banerjees-personal-assistant-refused-1619708
+
+[Source Link](https://t.me/verdictumlegalupdates/28495)
 
 ---
 
@@ -81,86 +161,6 @@ Omission Of Rule 96 (10) CGST Benefits Exporters In Pending Proceedings For Refu
 https://www.verdictum.in/supreme-court/ms-goodluck-india-limited-v-union-of-india-2026-insc-821-rule-96-10-cgst-1619628
 
 [Source Link](https://t.me/verdictumlegalupdates/28485)
-
----
-
-### 2026-08-11T14:02:51+00:00
-Parental Authority Yields To Constitutional Liberty: Allahabad High Court Orders Release Of Two Women Detained By Father After Their Conversion To Islam
-https://www.verdictum.in/allahabad-high-court/kunwar-sultan-ali-v-state-of-up-2026ahc165122-women-detained-father-conversion-islam-1619627
-
-[Source Link](https://t.me/verdictumlegalupdates/28484)
-
----
-
-### 2026-08-11T13:32:50+00:00
-Blow By Blow Account Of Seriously Injured Victim Raises Serious Doubt: Supreme Court Refuses To Restore Conviction U/S.302 IPC
-https://www.verdictum.in/supreme-court/the-state-of-andhra-pradesh-home-department-v-ponthati-siva-rami-reddy-2026-insc-820-io-sec302-ipc-1619626
-
-[Source Link](https://t.me/verdictumlegalupdates/28483)
-
----
-
-### 2026-08-11T13:03:19+00:00
-Delhi High Court Directs Centre To Provide Additional PSO To MP Pappu Yadav
-https://www.verdictum.in/delhi-high-court/centre-to-provide-additional-pso-to-mp-pappu-yadav-1619625
-
-[Source Link](https://t.me/verdictumlegalupdates/28482)
-
----
-
-### 2026-08-11T12:33:17+00:00
-Supreme Court Reserves Verdict On Pleas Of RAKIA Seeking Enforcement Of Rs 500 Cr UAE Money Decree
-https://www.verdictum.in/supreme-court/rakia-seeking-enforcement-of-rs-500-cr-uae-money-decree-reserved-1619623
-
-[Source Link](https://t.me/verdictumlegalupdates/28481)
-
----
-
-### 2026-08-11T12:02:56+00:00
-Calcutta High Court Extends Interim Protection To Aroop Biswas In Case Related To Chaos At Lionel Messi’s Event
-https://www.verdictum.in/calcutta-high-court/interim-protection-to-aroop-biswas-extended-lionel-messis-event-1619621
-
-[Source Link](https://t.me/verdictumlegalupdates/28480)
-
----
-
-### 2026-08-11T11:32:35+00:00
-You Have Power To Use Sword, But You Are Using It To Kill Mosquito: Bombay HC Warns FDA For Drastic Actions On Drugs
-https://www.verdictum.in/bombay-high-court/warning-fda-for-drastic-actions-on-drugs-1619620
-
-[Source Link](https://t.me/verdictumlegalupdates/28479)
-
----
-
-### 2026-08-11T11:03:14+00:00
-Supreme Court Asks 19 states, UTs To Declare Cancer 'Notifiable Disease' For Early Detection & Proper Care
-https://www.verdictum.in/supreme-court/19-states-uts-to-declare-cancer-notifiable-disease-for-early-detection-proper-care-1619619
-
-[Source Link](https://t.me/verdictumlegalupdates/28478)
-
----
-
-### 2026-08-11T10:32:33+00:00
-Supreme Court Directs Special Court To Conclude Trial Concerning Alleged ISIS Cyber-Radicalisation Within One Year
-https://www.verdictum.in/supreme-court/special-court-to-conclude-trial-concerning-alleged-isis-cyber-radicalisation-within-one-year-1619612
-
-[Source Link](https://t.me/verdictumlegalupdates/28477)
-
----
-
-### 2026-08-11T10:02:12+00:00
-Calcutta High Court Extends Interim Protection From Arrest To Abhishek Banerjee Till August 31
-https://www.verdictum.in/calcutta-high-court/interim-protection-from-arrest-to-abhishek-banerjee-extended-till-august-31-1619615
-
-[Source Link](https://t.me/verdictumlegalupdates/28476)
-
----
-
-### 2026-08-11T09:12:51+00:00
-Breaking: Supreme Court Refuses To Interfere With High Court's Interim Order On Operation Of Bank Accounts On TMC's Plea
-https://www.verdictum.in/supreme-court/refuses-interfere-interim-order-tmc-bank-accounts-special-officer-1619618
-
-[Source Link](https://t.me/verdictumlegalupdates/28475)
 
 ---
 
