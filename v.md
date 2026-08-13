@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-12T16:02:58+00:00*
+*Last Updated: 2026-08-13T07:32:32+00:00*
+
+---
+
+### 2026-08-13T07:32:32+00:00
+Supreme Court Agrees To Hear Plea Against Delhi Police's Use Of Facial Recognition At Jantar Mantar Protest
+https://www.verdictum.in/supreme-court/plea-against-delhi-polices-use-of-facial-recognition-at-jantar-mantar-protest-1619782
+
+[Source Link](https://t.me/verdictumlegalupdates/28514)
+
+---
+
+### 2026-08-13T06:52:28+00:00
+Equating Presiding Officers Of Central Government Industrial Tribunals Cum Labour Courts With District Judges Reasonable: Supreme Court
+https://www.verdictum.in/supreme-court/rk-yadav-anr-v-union-of-india-and-others-2026-insc-848-labour-court-1619778
+
+[Source Link](https://t.me/verdictumlegalupdates/28513)
+
+---
+
+### 2026-08-13T06:12:46+00:00
+Order Passed U/S.69 CGST Act Must Be Communicated To Accused: Supreme Court
+https://www.verdictum.in/supreme-court/union-of-india-v-sunil-biyani-2026-insc-849-order-sec69-cgst-act-anticipatory-bail-accused-arrest-1619773
+
+[Source Link](https://t.me/verdictumlegalupdates/28512)
+
+---
+
+### 2026-08-13T05:21:45+00:00
+Kerala High Court Seeks State's Response In Plea Challenging Suspension Of Teacher Over Question About VD Savarkar
+https://www.verdictum.in/kerala-high-court/state-response-suspension-teacher-vd-savarkar-as-freedom-fighter-1619771
+
+[Source Link](https://t.me/verdictumlegalupdates/28511)
+
+---
+
+### 2026-08-13T05:11:44+00:00
+Is Composite Appeal Filed Against Common Judgment In Same Plaintiff’s Civil Suits Maintainable? Supreme Court Answers
+https://www.verdictum.in/supreme-court/bassanna-since-deceased-by-lrs-v-bhimanna-and-others-2026-insc-838-composite-appeal-section-96-cpc-civil-suits-1619770
+
+[Source Link](https://t.me/verdictumlegalupdates/28510)
+
+---
+
+### 2026-08-13T04:32:52+00:00
+Any Degree Pertaining To Teacher’s Training Obtained From Institution Not Enjoying NCTE Recognition Has No Legal Effect: Supreme Court
+https://www.verdictum.in/supreme-court/ms-bharatiya-vidya-bhavans-public-school-v-m-vimala-ors-2026-insc-833-1619739
+
+[Source Link](https://t.me/verdictumlegalupdates/28509)
 
 ---
 
@@ -113,54 +161,6 @@ Calcutta High Court Refuses Urgent Hearing Of Plea For Interim Protection By Abh
 https://www.verdictum.in/calcutta-high-court/urgent-hearing-interim-protection-abhishek-banerjees-personal-assistant-refused-1619708
 
 [Source Link](https://t.me/verdictumlegalupdates/28495)
-
----
-
-### 2026-08-12T07:43:09+00:00
-Cannot Fetter State From Choosing Particular Policy Course: Supreme Court Refuses To Lay Down Uniform Policy For Demolition Drives
-https://www.verdictum.in/supreme-court/refuses-lay-down-uniform-policy-unauthorized-construction-demolitions-1619707
-
-[Source Link](https://t.me/verdictumlegalupdates/28494)
-
----
-
-### 2026-08-12T07:12:27+00:00
-Common Judgment In Suit & Counter-Claim Can Be Challenged In A Composite Appeal: Supreme Court
-https://www.verdictum.in/supreme-court/basudev-v-sanjay-kumar-2026-insc-831-composite-appeal-suit-counterclaim-1619700
-
-[Source Link](https://t.me/verdictumlegalupdates/28493)
-
----
-
-### 2026-08-12T06:32:46+00:00
-2020 Riots: Delhi High Court Seeks Police’s Response On Appeals By Two Convicts In IB Staffer Murder Case
-https://www.verdictum.in/delhi-high-court/2020-delhi-riots-response-two-convicts-ib-staffer-murder-1619670
-
-[Source Link](https://t.me/verdictumlegalupdates/28492)
-
----
-
-### 2026-08-12T05:53:05+00:00
-Dealing In Company’s Securities After Being Informed By Confidential Information Amounts To Insider Trading; Less Or No Profit Is Of No Consequence: Supreme Court
-https://www.verdictum.in/supreme-court/securities-and-exchange-board-of-india-v-rajeev-vasant-sheth-2026-insc-826-accused-insider-trading-1619666
-
-[Source Link](https://t.me/verdictumlegalupdates/28491)
-
----
-
-### 2026-08-12T05:12:43+00:00
-Candidate Can’t Be Said To Have Suppressed Or Furnished False Information When Existence Of Criminal Antecedent Was Not Within His Knowledge: Supreme Court
-https://www.verdictum.in/supreme-court/shatrughn-yadav-v-the-fertilizers-and-chemicals-travancore-ltd-2026-insc-829-candidate-criminal-antecedent-1619659
-
-[Source Link](https://t.me/verdictumlegalupdates/28490)
-
----
-
-### 2026-08-12T04:32:52+00:00
-Absence Of Injury Near Private Part, FSL Report Rules Out Presence Of Semen & Blood On Clothes: Supreme Court Restores Acquittal In 4-Yr-Old’s Rape Case
-https://www.verdictum.in/supreme-court/ram-singh-v-the-state-of-himachal-pradesh-2026-insc-830-injury-fsl-report-rape-acquittal-1619639
-
-[Source Link](https://t.me/verdictumlegalupdates/28489)
 
 ---
 
