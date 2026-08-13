@@ -1,93 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-13T10:32:22+00:00*
+*Last Updated: 2026-08-13T12:17:35+00:00*
 
 ---
 
-### 2026-08-13T10:32:22+00:00
-Only A Parent Or Person Above 60 Years Can Prefer Complaint Under Senior Citizens Act: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-senior-citizen-act-only-parent-or-person-above-60-can-complain-545657
-
-[Read on Telegram](https://t.me/livelawindia/117285)
-
----
-### 2026-08-13T10:48:02+00:00
-JJ Act | Failure To Conduct Mandatory Reformative Assessment After Child Turns 21 Warrants Suspension Of Sentence: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-suspends-sentence-of-child-in-conflict-with-law-in-rape-case-over-non-compliance-of-jj-act-545660
-
-[Read on Telegram](https://t.me/livelawindia/117286)
-
----
-### 2026-08-13T10:56:52+00:00
-Ready To Give Railway Concessions For Acid Attack Survivors In Patient Category : Union Tells Supreme Court
-https://www.livelaw.in/top-stories/ready-to-give-railway-concessions-for-acid-attack-survivors-in-patient-category-union-tells-supreme-court-545665
-
-[Read on Telegram](https://t.me/livelawindia/117287)
-
----
-### 2026-08-13T11:02:52+00:00
-Lawyer's Professional Conduct Can't Be Criminalised Merely Because It Displeases Adversary: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-fir-against-lawyer-displeases-adversary-545661
-
-[Read on Telegram](https://t.me/livelawindia/117288)
-
----
-### 2026-08-13T11:13:32+00:00
-Maharashtra State Consumer Commission Convicts Sterling Constructions Partners For Non-Compliance Of Flat Possession Orders
-https://www.livelaw.in/consumer-cases/maharashtra-state-consumer-commission-convicts-sterling-constructions-partners-for-non-compliance-of-flat-possession-orders-545670
-
-[Read on Telegram](https://t.me/livelawindia/117289)
-
----
-### 2026-08-13T11:17:14+00:00
-Madras High Court Orders Demolition Of Church, Says Land Reserved For Community Hall Can't Be Diverted
-https://www.livelaw.in/high-court/madras-high-court/church-demolition-land-earmarked-community-hall-545671
-
-[Read on Telegram](https://t.me/livelawindia/117290)
-
----
-### 2026-08-13T11:27:44+00:00
-Is Justice Yashwant Varma Still A Judge Of Allahabad High Court?
-https://www.livelaw.in/top-stories/is-justice-yashwant-varma-still-a-judge-of-allahabad-high-court-545675
-
-[Read on Telegram](https://t.me/livelawindia/117291)
-
----
-### 2026-08-13T11:33:04+00:00
-US Tourist Rape Case: Karnataka High Court Says No Question Of Screening Offender If Homestay Owner Wasn't Told About Alleged Rape
-https://www.livelaw.in/high-court/karnataka-high-court/us-national-rape-victim-kodagu-homestay-owner-chargesheet-screening-offender-545672
-
-[Read on Telegram](https://t.me/livelawindia/117292)
-
----
-### 2026-08-13T11:47:45+00:00
-'₹1 Crore Still Needed': MP High Court Asks Centre, State To Explore Exceptional Financial Aid For 3-Year-Old Rare Disease Patient
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-seeks-assistance-from-centre-and-state-for-girl-suffering-from-spinal-muscular-atrophy-545667
-
-[Read on Telegram](https://t.me/livelawindia/117293)
-
----
-### 2026-08-13T11:55:24+00:00
-Supreme Court To Hear Plea Challenging RTE Act Exemption To Madrasas, Vedic Pathshalas & Religious Education Institutions
-https://www.livelaw.in/top-stories/supreme-court-to-hear-plea-challenging-rte-act-exemption-to-madrasas-vedic-pathshalas-religious-education-institutions-545683
-
-[Read on Telegram](https://t.me/livelawindia/117294)
-
----
-### 2026-08-13T12:03:05+00:00
-“You Have Powers, Use Them”: Karnataka High Court Pulls Up ASI As Mutt Construction Continues Near Protected Temple
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-restrains-construction-mutt-near-rameshwara-temple-545677
-
-[Read on Telegram](https://t.me/livelawindia/117295)
-
----
-### 2026-08-13T12:08:05+00:00
-Plea In Madras High Court Challenges TN Govt's Decision To Sell Alcohol Online Through TASMAC Booking Portal
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-online-alcohol-sale-challenge-545684
-
-[Read on Telegram](https://t.me/livelawindia/117296)
-
----
 ### 2026-08-13T12:17:35+00:00
 Son Includes Stepson, Landlord Can Seek Tenant's Eviction For Stepson's Bona Fide Need: MP High Court
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/landlord-seek-tenant-eviction-stepsons-bonafide-need-545678
@@ -142,5 +58,89 @@ Renukaswamy Murder Case: Karnataka High Court Rejects Darshan's Plea To Be Heard
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-darshan-claimed-right-to-be-heard-renukaswamy-murder-case-545696
 
 [Read on Telegram](https://t.me/livelawindia/117304)
+
+---
+### 2026-08-13T13:38:47+00:00
+LiveLaw Daily | Rahul Gandhi| Kejriwal-Sisodia CBI Plea| Facial Recognition| Kerala Renamed & more
+https://www.livelaw.in/podcast/student-protests-rahul-gandhi-fssai-savarkar-parliament-news-india-clat-judiciary-upsc-lawyers-keralam-545698
+
+[Read on Telegram](https://t.me/livelawindia/117305)
+
+---
+### 2026-08-13T13:47:27+00:00
+Supreme Court Declines Plea Seeking Regulation Of AI Use; Asks Centre To Consider Representation
+https://www.livelaw.in/top-stories/supreme-court-declines-plea-seeking-regulation-of-ai-use-asks-centre-to-consider-representation-545700
+
+[Read on Telegram](https://t.me/livelawindia/117306)
+
+---
+### 2026-08-13T14:26:17+00:00
+Retired Armed Forces Personnel Applying For Re-employment After Completing Qualifying Service Entitled To Ex-Serviceman Status : Delhi HC
+https://www.livelaw.in/high-court/delhi-high-court/retired-armed-forces-personnel-applying-for-re-employment-after-completing-qualifying-service-entitled-to-ex-serviceman-status-delhi-hc-545706
+
+[Read on Telegram](https://t.me/livelawindia/117307)
+
+---
+### 2026-08-13T14:32:17+00:00
+Testing Places Of Worship Act
+https://www.livelaw.in/lawschool/articles/testing-places-worship-act-545520
+
+[Read on Telegram](https://t.me/livelawindia/117308)
+
+---
+### 2026-08-13T14:40:37+00:00
+'Manifestly Arbitrary' : Bar Council Member Opposes BCI Chief Manan Kumar Mishra's Order Barring NALSAR Students' Enrolment
+https://www.livelaw.in/news-updates/bar-council-member-opposes-bci-chief-manan-kumar-mishras-order-barring-nalsar-students-enrolment-545708
+
+[Read on Telegram](https://t.me/livelawindia/117309)
+
+---
+### 2026-08-13T15:05:27+00:00
+SCAORA General Body Doubles Membership Fee, Seeks End Of Sequencing System & 48-Hour Deadline For Registry To Mark Defects
+https://www.livelaw.in/top-stories/scaora-general-body-doubles-membership-fee-seeks-end-of-sequencing-system-48-hour-deadline-for-registry-to-mark-defects-545709
+
+[Read on Telegram](https://t.me/livelawindia/117310)
+
+---
+### 2026-08-13T15:28:48+00:00
+BREAKING| 'All Students Can Enrol' : BCI Withdraws Chairman's Direction Barring Enrolment Of NALSAR 2026 Graduates
+https://www.livelaw.in/top-stories/all-students-can-enrol-bci-withdraws-chairmans-direction-barring-enrolment-of-nalsar-2026-graduates-545714
+
+[Read on Telegram](https://t.me/livelawindia/117311)
+
+---
+### 2026-08-13T15:41:08+00:00
+LiveLaw High Courts Daily Highlights: August 13, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-august-13-2026-545718
+
+[Read on Telegram](https://t.me/livelawindia/117312)
+
+---
+### 2026-08-13T16:05:38+00:00
+Shiv Sena Dispute | If ECI Considers Events After Symbol Application, It Will Encourage Defections: Sibal Tells Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-shiv-sena-uddhav-thackeray-taking-into-account-events-subsequent-to-splinter-group-claim-on-party-symbol-can-encourage-defection-545722
+
+[Read on Telegram](https://t.me/livelawindia/117313)
+
+---
+### 2026-08-13T16:37:48+00:00
+NLIU Cell For Law And Technology Invites Blog Submissions On Law And Technology
+https://www.livelaw.in/lawschool/call-for-papers/nliu-cell-law-technology-invites-blog-submissions-law-technology-545724
+
+[Read on Telegram](https://t.me/livelawindia/117314)
+
+---
+### 2026-08-13T16:44:48+00:00
+Call For Papers: RGNUL Financial And Mercantile Law Review (RFMLR) Volume XIV Issue I - Submit By September 15, 2026
+https://www.livelaw.in/lawschool/call-for-papers/rgnul-financial-mercantile-law-review-rfmlr-volume-xiv-issue-545725
+
+[Read on Telegram](https://t.me/livelawindia/117315)
+
+---
+### 2026-08-13T17:18:08+00:00
+Supreme Court Daily Round-Up : August 13, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-13-2026-545723
+
+[Read on Telegram](https://t.me/livelawindia/117316)
 
 ---
