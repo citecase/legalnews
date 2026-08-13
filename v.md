@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-13T13:32:33+00:00*
+*Last Updated: 2026-08-13T15:32:57+00:00*
+
+---
+
+### 2026-08-13T15:32:57+00:00
+Legal Officer Vacancy At OIL Green Energy Limited (OGEL)
+https://www.verdictum.in/job-updates/oil-green-energy-limited-1619805
+
+[Source Link](https://t.me/verdictumlegalupdates/28526)
+
+---
+
+### 2026-08-13T14:52:56+00:00
+Convict Found To Be Minor On Date Of Offence Covered Under Juvenile Justice Act Even If Crime Preceded Its Commencement: Supreme Court Sets Aside Life Sentence
+https://www.verdictum.in/supreme-court/dinesh-kumar-v-the-state-of-haryana-2026-insc-842-juvenile-justice-act-1619812
+
+[Source Link](https://t.me/verdictumlegalupdates/28525)
+
+---
+
+### 2026-08-13T14:12:54+00:00
+Customs Tariff Act| Laser Imager Is "Accessory"  Having No Diagnostic Capabilities; Can Be Brought Under Residuary Heading: Supreme Court
+https://www.verdictum.in/supreme-court/ms-carestream-health-india-pvt-ltd-v-commissioner-of-customs-2026-insc-837laser-imager-1619813
+
+[Source Link](https://t.me/verdictumlegalupdates/28524)
 
 ---
 
@@ -137,30 +161,6 @@ Hens Are Considered Livestock Under MV Act; Claimant Transporting Hens Entitled 
 https://www.verdictum.in/karnataka-high-court/k-veera-narayana-swamy-v-y-yankappa-2026khc-d10894-livestock-mv-act-claimant-damages-1619738
 
 [Source Link](https://t.me/verdictumlegalupdates/28507)
-
----
-
-### 2026-08-12T14:32:16+00:00
-One-Time Benefit Granted By Supreme Court Applies To All Law Students Across States & Semesters Facing Attendance Shortfall: Bombay High Court
-https://www.verdictum.in/bombay-high-court/aniruddha-gaurav-gursal-v-state-of-maharashtra-writ-petition-no-6027-of-2026-with-interim-application-no-5058-of-2026-attendance-shortfall-1619729
-
-[Source Link](https://t.me/verdictumlegalupdates/28506)
-
----
-
-### 2026-08-12T14:02:54+00:00
-Sec.161 CrPC Statements Can’t Be Relied On For Conviction: Supreme Court Acquits Man in Wife’s Burn Death Case
-https://www.verdictum.in/supreme-court/jupudi-suresh-v-the-state-of-andhra-pradesh-2026-insc-832-sec161-crpc-statements-accused-1619728
-
-[Source Link](https://t.me/verdictumlegalupdates/28505)
-
----
-
-### 2026-08-12T13:32:33+00:00
-State Government Cannot Delegate Power To Refer Dues Dispute U/S 17(2) Working Journalists Act: Supreme Court
-https://www.verdictum.in/supreme-court/sudhir-v-head-of-human-resource-dainik-bhaskar-group-db-corp-ltd-2026-insc-834-172-of-working-journalists-act-1619727
-
-[Source Link](https://t.me/verdictumlegalupdates/28504)
 
 ---
 
