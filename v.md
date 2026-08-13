@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-13T07:32:32+00:00*
+*Last Updated: 2026-08-13T13:32:33+00:00*
+
+---
+
+### 2026-08-13T13:32:33+00:00
+Allahabad High Court Dismisses Plea Seeking Six Months’ Maternity Leave For Fourth Child
+https://www.verdictum.in/allahabad-high-court/sashi-kumari-v-state-of-up-2026ahc165541-maternity-leave-fourth-child-dismissed-1619804
+
+[Source Link](https://t.me/verdictumlegalupdates/28523)
+
+---
+
+### 2026-08-13T12:52:32+00:00
+Authorities Conveniently Tried To Cover Up: Supreme Court Directs State To Pay ₹25L Compensation To Kin Of Man Alleged To Have Died In Police Custody
+https://www.verdictum.in/supreme-court/lahra-bai-tamre-v-state-of-chattisgarh-2026-insc-840-police-custody-death-1619803
+
+[Source Link](https://t.me/verdictumlegalupdates/28522)
+
+---
+
+### 2026-08-13T12:12:11+00:00
+Electricity Boards Face Strict, Not Absolute Liability In Electrocution Compensation Cases: Supreme Court
+https://www.verdictum.in/supreme-court/karnataka-power-transmission-corporation-limited-v-rekha-ors-2026-insc-847-1619800
+
+[Source Link](https://t.me/verdictumlegalupdates/28521)
+
+---
+
+### 2026-08-13T11:33:19+00:00
+Supreme Court Asks UPSC To Not Finalize Names For Appointment Of Odisha's DGP Till August 18
+https://www.verdictum.in/supreme-court/upsc-to-not-finalize-names-for-appointment-of-odishas-dgp-till-august-18-1619799
+
+[Source Link](https://t.me/verdictumlegalupdates/28520)
+
+---
+
+### 2026-08-13T10:52:38+00:00
+Supreme Court Disapproves Practice Of Writing Lengthy, Merits-Laden Orders In Temporary Injunction Applications
+https://www.verdictum.in/supreme-court/shruti-manav-sharma-anr-v-sunanina-singh-ors-2026-insc-843-injunction-orders-1619798
+
+[Source Link](https://t.me/verdictumlegalupdates/28519)
+
+---
+
+### 2026-08-13T10:12:57+00:00
+High Court Or Sessions Court Can't Grant Protection To Accused While Dismissing Pre-Arrest Bail Petition On Ground That It Is Not Maintainable: Supreme Court
+https://www.verdictum.in/supreme-court/union-of-india-v-sunil-biyani-2026-insc-849-pre-arrest-bail-petition-protection-interim-relief-1619797
+
+[Source Link](https://t.me/verdictumlegalupdates/28518)
+
+---
+
+### 2026-08-13T09:33:16+00:00
+Termination Of Contract By Itself Does Not Amount To Offence Of Cheating Unless Original Design To Deceive Is Alleged: Supreme Court
+https://www.verdictum.in/supreme-court/parag-kishore-satoskar-and-others-v-state-of-jharkhand-and-another-2026-insc-846-1619795
+
+[Source Link](https://t.me/verdictumlegalupdates/28517)
+
+---
+
+### 2026-08-13T08:52:54+00:00
+Supreme Court Directs NCDRC To Report On Case Pendency, Disposal Rates & Bench Strength; Expresses Concern Over 'Quality Crisis' In District Forums
+https://www.verdictum.in/supreme-court/directs-ncdrc-president-report-bench-performance-1619792
+
+[Source Link](https://t.me/verdictumlegalupdates/28516)
+
+---
+
+### 2026-08-13T08:12:53+00:00
+Supreme Court Asks Centre To Consider Representation Against Unregulated Use Of Artificial Intelligence By State
+https://www.verdictum.in/supreme-court/centre-representation-unregulated-deployment-artificial-intelligence-welfare-policing-1619788
+
+[Source Link](https://t.me/verdictumlegalupdates/28515)
 
 ---
 
@@ -89,78 +161,6 @@ State Government Cannot Delegate Power To Refer Dues Dispute U/S 17(2) Working J
 https://www.verdictum.in/supreme-court/sudhir-v-head-of-human-resource-dainik-bhaskar-group-db-corp-ltd-2026-insc-834-172-of-working-journalists-act-1619727
 
 [Source Link](https://t.me/verdictumlegalupdates/28504)
-
----
-
-### 2026-08-12T13:02:12+00:00
-Procedure To Follow When Party’s Mental Capacity Is Questioned In Judicial Proceedings: Supreme Court Points Out Lack Of Statutory Framework
-https://www.verdictum.in/supreme-court/ab-v-cd-2026-insc-824-mental-healthcare-act-cpc-mental-capacity-questioned-1619726
-
-[Source Link](https://t.me/verdictumlegalupdates/28503)
-
----
-
-### 2026-08-12T12:32:50+00:00
-Weekly Overview| Supreme Court Judgments: August 03 – August 07, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-august-03-august-07-2026-1619722
-
-[Source Link](https://t.me/verdictumlegalupdates/28502)
-
----
-
-### 2026-08-12T12:03:19+00:00
-Supreme Court's 7-Judge Bench To Hear Issue Of Privileges Of MLAs & Its Effect On Freedom Of Speech On Oct 6
-https://www.verdictum.in/supreme-court/issue-of-privileges-of-mlas-its-effect-on-freedom-of-speech-on-oct-6-1619720
-
-[Source Link](https://t.me/verdictumlegalupdates/28501)
-
----
-
-### 2026-08-12T11:32:58+00:00
-"Failed To Furnish Satisfactory Explanation": Judges’ Inquiry Committee Report Against Justice Yashwant Varma Placed Before Parliament [Read Report]
-https://www.verdictum.in/news/judges-inquiry-committee-charges-proved-against-justice-yashwant-varma-1619721
-
-[Source Link](https://t.me/verdictumlegalupdates/28500)
-
----
-
-### 2026-08-12T10:52:36+00:00
-Award Debtor Can Seek Protection U/S 9 Arbitration Act In Rare Cases To Prevent Irreparable Prejudice: Supreme Court
-https://www.verdictum.in/supreme-court/national-projects-construction-corporation-ltd-v-ishvakoo-india-pvt-ltd-2026-insc-828-unsuccessful-award-debtor-us-9-arbitration-act-1619719
-
-[Source Link](https://t.me/verdictumlegalupdates/28499)
-
----
-
-### 2026-08-12T10:12:16+00:00
-S.482 CrPC| Alibi Plea Requiring Trial Not Inflexible Rule; Official Documentary Material Can Be Looked Into: Supreme Court
-https://www.verdictum.in/supreme-court/a-v-state-of-uttar-pradesh-2026-insc-825-unimpeached-documentary-record-sec498a-ipc-1619718
-
-[Source Link](https://t.me/verdictumlegalupdates/28498)
-
----
-
-### 2026-08-12T09:32:54+00:00
-State Can’t Have Luxury Of Prolonging Trial For Years: Supreme Court Directs Karnataka To Provide Infrastructure For Special UAPA Courts
-https://www.verdictum.in/supreme-court/karnataka-to-provide-infrastructure-for-special-uapa-courts-1619716
-
-[Source Link](https://t.me/verdictumlegalupdates/28497)
-
----
-
-### 2026-08-12T08:52:51+00:00
-Supreme Court Agrees To Hear Plea Concerning Issue Of Disruption Of Services During Protests
-https://www.verdictum.in/supreme-court/issue-of-disruption-of-services-during-protests-1619714
-
-[Source Link](https://t.me/verdictumlegalupdates/28496)
-
----
-
-### 2026-08-12T08:12:30+00:00
-Calcutta High Court Refuses Urgent Hearing Of Plea For Interim Protection By Abhishek Banerjee's Personal Assistant
-https://www.verdictum.in/calcutta-high-court/urgent-hearing-interim-protection-abhishek-banerjees-personal-assistant-refused-1619708
-
-[Source Link](https://t.me/verdictumlegalupdates/28495)
 
 ---
 
