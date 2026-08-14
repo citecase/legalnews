@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-13T12:17:35+00:00*
+*Last Updated: 2026-08-13T12:30:55+00:00*
 
 ---
 
-### 2026-08-13T12:17:35+00:00
-Son Includes Stepson, Landlord Can Seek Tenant's Eviction For Stepson's Bona Fide Need: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/landlord-seek-tenant-eviction-stepsons-bonafide-need-545678
-
-[Read on Telegram](https://t.me/livelawindia/117297)
-
----
-### 2026-08-13T12:29:55+00:00
-Practices Like Witch-Hunting Still Persist; Superstition Supersedes Constitutional Morality, Laments Supreme Court
-https://www.livelaw.in/supreme-court/practices-like-witch-hunting-still-persist-superstition-supersedes-constitutional-morality-laments-supreme-court-545689
-
-[Read on Telegram](https://t.me/livelawindia/117298)
-
----
 ### 2026-08-13T12:30:55+00:00
 2026 LiveLaw (SC) 802 | BALKU ORAM VERSUS STATE OF ODISHA
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-802-balku-oram-versus-state-of-odisha-545690
@@ -142,5 +128,19 @@ Supreme Court Daily Round-Up : August 13, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-13-2026-545723
 
 [Read on Telegram](https://t.me/livelawindia/117316)
+
+---
+### 2026-08-13T19:16:19+00:00
+Meghalaya High Court Bar Association And Shillong Bar Association Expel Advocate General Over Submissions On Lack Of POSH Mechanism
+https://www.livelaw.in/news-updates/meghalaya-high-court-bar-association-and-shillong-bar-association-expel-advocate-general-545730
+
+[Read on Telegram](https://t.me/livelawindia/117317)
+
+---
+### 2026-08-14T00:45:32+00:00
+BCI Chairman Drops Inquiry Against NALSAR 2026 Batch After Backlash
+https://www.livelaw.in/top-stories/bci-chairman-drops-inquiry-against-nalsar-2026-batch-after-backlash-545731
+
+[Read on Telegram](https://t.me/livelawindia/117318)
 
 ---
