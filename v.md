@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-14T13:52:30+00:00*
+*Last Updated: 2026-08-14T14:32:51+00:00*
+
+---
+
+### 2026-08-14T14:32:51+00:00
+Young Professional (Legal) Vacancy At Security Printing & Minting Corporation of India Limited
+https://www.verdictum.in/job-updates/security-printing-minting-corporation-of-india-limited-1619882
+
+[Source Link](https://t.me/verdictumlegalupdates/28543)
 
 ---
 
@@ -153,14 +161,6 @@ Customs Tariff Act| Laser Imager Is "Accessory"  Having No Diagnostic Capabiliti
 https://www.verdictum.in/supreme-court/ms-carestream-health-india-pvt-ltd-v-commissioner-of-customs-2026-insc-837laser-imager-1619813
 
 [Source Link](https://t.me/verdictumlegalupdates/28524)
-
----
-
-### 2026-08-13T13:32:33+00:00
-Allahabad High Court Dismisses Plea Seeking Six Months’ Maternity Leave For Fourth Child
-https://www.verdictum.in/allahabad-high-court/sashi-kumari-v-state-of-up-2026ahc165541-maternity-leave-fourth-child-dismissed-1619804
-
-[Source Link](https://t.me/verdictumlegalupdates/28523)
 
 ---
 
