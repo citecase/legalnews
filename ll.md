@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-13T12:30:55+00:00*
+*Last Updated: 2026-08-14T05:17:45+00:00*
 
 ---
 
-### 2026-08-13T12:30:55+00:00
-2026 LiveLaw (SC) 802 | BALKU ORAM VERSUS STATE OF ODISHA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-802-balku-oram-versus-state-of-odisha-545690
+### 2026-08-14T05:17:45+00:00
+Successor To Decree Holder Can Continue Execution Without Prior Substitution Before Court That Passed Decree: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/successors-execution-original-court-order-xxi-rule-16-cpc-545741
 
-[Read on Telegram](https://t.me/livelawindia/117299)
-
----
-### 2026-08-13T12:32:35+00:00
-Karnataka High Court Directs Statistical Institute To Construct Disabled-Friendly Quarters Within 2 Yrs, Irrespective Of Fund Availability
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-indian-statistical-institute-construction-disabled-friendly-accommodation-545680
-
-[Read on Telegram](https://t.me/livelawindia/117300)
+[Read on Telegram](https://t.me/livelawindia/117334)
 
 ---
-### 2026-08-13T12:34:15+00:00
-Supreme Court Warns Against Fake Websites Impersonating Its Official Website
-https://www.livelaw.in/top-stories/supreme-court-warns-against-fake-websites-impersonating-its-official-website-545691
+### 2026-08-14T05:26:45+00:00
+Calcutta High Court Agrees To Hear Plea Seeking Quashing Of Cases Against Stone Trader Tulu Mondal On Thursday
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-agrees-to-hear-plea-seeking-quashing-of-cases-against-stone-trader-tulu-mondal-on-thursday-545765
 
-[Read on Telegram](https://t.me/livelawindia/117301)
-
----
-### 2026-08-13T12:47:57+00:00
-Microfinance Fraud Case: Kerala High Court Orders Personal Appearance Of Investigating Officer
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sndp-microfinance-545681
-
-[Read on Telegram](https://t.me/livelawindia/117302)
+[Read on Telegram](https://t.me/livelawindia/117335)
 
 ---
-### 2026-08-13T13:16:27+00:00
-BREAKING| No NALSAR Graduate Of 2026 Will Be Enrolled As Advocate, Says BCI Chairman After Students' Campaign Against CJI Surya Kant
-https://www.livelaw.in/top-stories/no-nalsar-graduate-of-2026-will-be-enrolled-as-advocate-says-bci-chairman-after-students-campaign-against-cji-surya-kant-545695
+### 2026-08-14T05:30:45+00:00
+CJI Surya Kant Disapproves BCI Action Against NALSAR Students, Says They Have Right To Protest
+https://www.livelaw.in/top-stories/cji-surya-kant-disapproves-bci-action-against-nalsar-students-say-they-have-right-to-protest-545766
 
-[Read on Telegram](https://t.me/livelawindia/117303)
-
----
-### 2026-08-13T13:21:07+00:00
-Renukaswamy Murder Case: Karnataka High Court Rejects Darshan's Plea To Be Heard In Co-Accused's Application To Turn Approver
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-darshan-claimed-right-to-be-heard-renukaswamy-murder-case-545696
-
-[Read on Telegram](https://t.me/livelawindia/117304)
+[Read on Telegram](https://t.me/livelawindia/117336)
 
 ---
-### 2026-08-13T13:38:47+00:00
-LiveLaw Daily | Rahul Gandhi| Kejriwal-Sisodia CBI Plea| Facial Recognition| Kerala Renamed & more
-https://www.livelaw.in/podcast/student-protests-rahul-gandhi-fssai-savarkar-parliament-news-india-clat-judiciary-upsc-lawyers-keralam-545698
+### 2026-08-14T05:32:25+00:00
+Global Backlash Against LGBTQ  Rights: What India Can Learn
+https://www.livelaw.in/articles/global-backlash-against-lgbtq-rights-545703
 
-[Read on Telegram](https://t.me/livelawindia/117305)
-
----
-### 2026-08-13T13:47:27+00:00
-Supreme Court Declines Plea Seeking Regulation Of AI Use; Asks Centre To Consider Representation
-https://www.livelaw.in/top-stories/supreme-court-declines-plea-seeking-regulation-of-ai-use-asks-centre-to-consider-representation-545700
-
-[Read on Telegram](https://t.me/livelawindia/117306)
+[Read on Telegram](https://t.me/livelawindia/117337)
 
 ---
-### 2026-08-13T14:26:17+00:00
-Retired Armed Forces Personnel Applying For Re-employment After Completing Qualifying Service Entitled To Ex-Serviceman Status : Delhi HC
-https://www.livelaw.in/high-court/delhi-high-court/retired-armed-forces-personnel-applying-for-re-employment-after-completing-qualifying-service-entitled-to-ex-serviceman-status-delhi-hc-545706
+### 2026-08-14T05:33:05+00:00
+'Strongly Deprecated': Meghalaya High Court Pulls Up Police For Registering FIR Under 'Appropriate Sections' Without Applying Mind
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-police-apply-mind-before-registering-fir-545751
 
-[Read on Telegram](https://t.me/livelawindia/117307)
-
----
-### 2026-08-13T14:32:17+00:00
-Testing Places Of Worship Act
-https://www.livelaw.in/lawschool/articles/testing-places-worship-act-545520
-
-[Read on Telegram](https://t.me/livelawindia/117308)
+[Read on Telegram](https://t.me/livelawindia/117338)
 
 ---
-### 2026-08-13T14:40:37+00:00
-'Manifestly Arbitrary' : Bar Council Member Opposes BCI Chief Manan Kumar Mishra's Order Barring NALSAR Students' Enrolment
-https://www.livelaw.in/news-updates/bar-council-member-opposes-bci-chief-manan-kumar-mishras-order-barring-nalsar-students-enrolment-545708
+### 2026-08-14T05:48:05+00:00
+Unrebutted Communication From Competent Authority Prevails Over Information Received Via RTI: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-information-competent-authority-elementary-education-information-received-rti-545755
 
-[Read on Telegram](https://t.me/livelawindia/117309)
-
----
-### 2026-08-13T15:05:27+00:00
-SCAORA General Body Doubles Membership Fee, Seeks End Of Sequencing System & 48-Hour Deadline For Registry To Mark Defects
-https://www.livelaw.in/top-stories/scaora-general-body-doubles-membership-fee-seeks-end-of-sequencing-system-48-hour-deadline-for-registry-to-mark-defects-545709
-
-[Read on Telegram](https://t.me/livelawindia/117310)
+[Read on Telegram](https://t.me/livelawindia/117339)
 
 ---
-### 2026-08-13T15:28:48+00:00
-BREAKING| 'All Students Can Enrol' : BCI Withdraws Chairman's Direction Barring Enrolment Of NALSAR 2026 Graduates
-https://www.livelaw.in/top-stories/all-students-can-enrol-bci-withdraws-chairmans-direction-barring-enrolment-of-nalsar-2026-graduates-545714
+### 2026-08-14T05:50:25+00:00
+Associate (Corporate & Commercial Advisory), Managing Associate (Banking Litigation), And Senior Associate (Litigation & Dispute Resolution) Vacancy At Nyaayam Associates LLP [Apply Now]
+https://www.livelaw.in/job-updates/associate-corporate-commercial-advisory-managing-associate-banking-litigation-and-senior-associate-litigation-dispute-resolution-vacancy-at-nyaayam-associates-llp-545768
 
-[Read on Telegram](https://t.me/livelawindia/117311)
-
----
-### 2026-08-13T15:41:08+00:00
-LiveLaw High Courts Daily Highlights: August 13, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-august-13-2026-545718
-
-[Read on Telegram](https://t.me/livelawindia/117312)
+[Read on Telegram](https://t.me/livelawindia/117340)
 
 ---
-### 2026-08-13T16:05:38+00:00
-Shiv Sena Dispute | If ECI Considers Events After Symbol Application, It Will Encourage Defections: Sibal Tells Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-shiv-sena-uddhav-thackeray-taking-into-account-events-subsequent-to-splinter-group-claim-on-party-symbol-can-encourage-defection-545722
+### 2026-08-14T05:53:05+00:00
+BREAKING| Supreme Court Stays Madras HC Judgment Quashing Compassionate Appointments For Karur Tragedy Victims
+https://www.livelaw.in/top-stories/supreme-court-stays-madras-high-court-judgment-quashing-compassionate-appointments-for-karur-tragedy-victims-545769
 
-[Read on Telegram](https://t.me/livelawindia/117313)
-
----
-### 2026-08-13T16:37:48+00:00
-NLIU Cell For Law And Technology Invites Blog Submissions On Law And Technology
-https://www.livelaw.in/lawschool/call-for-papers/nliu-cell-law-technology-invites-blog-submissions-law-technology-545724
-
-[Read on Telegram](https://t.me/livelawindia/117314)
+[Read on Telegram](https://t.me/livelawindia/117341)
 
 ---
-### 2026-08-13T16:44:48+00:00
-Call For Papers: RGNUL Financial And Mercantile Law Review (RFMLR) Volume XIV Issue I - Submit By September 15, 2026
-https://www.livelaw.in/lawschool/call-for-papers/rgnul-financial-mercantile-law-review-rfmlr-volume-xiv-issue-545725
+### 2026-08-14T06:02:05+00:00
+Rajasthan High Court Quashes ₹2.25 Crore Security Bond Imposed 'Without Reasons' For Issuing Succession Certificate
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-sets-aside-security-bond-issuing-succession-certificate-545762
 
-[Read on Telegram](https://t.me/livelawindia/117315)
-
----
-### 2026-08-13T17:18:08+00:00
-Supreme Court Daily Round-Up : August 13, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-13-2026-545723
-
-[Read on Telegram](https://t.me/livelawindia/117316)
+[Read on Telegram](https://t.me/livelawindia/117342)
 
 ---
-### 2026-08-13T19:16:19+00:00
-Meghalaya High Court Bar Association And Shillong Bar Association Expel Advocate General Over Submissions On Lack Of POSH Mechanism
-https://www.livelaw.in/news-updates/meghalaya-high-court-bar-association-and-shillong-bar-association-expel-advocate-general-545730
+### 2026-08-14T06:08:30+00:00
+Calcutta High Court Seeks State's Response On Govt Teachers' Plea Challenging Census Duties, Questions Bulk Deployment
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-seeks-states-response-on-govt-teachers-plea-challenging-census-duties-questions-bulk-deployment-545770
 
-[Read on Telegram](https://t.me/livelawindia/117317)
+[Read on Telegram](https://t.me/livelawindia/117343)
 
 ---
-### 2026-08-14T00:45:32+00:00
-BCI Chairman Drops Inquiry Against NALSAR 2026 Batch After Backlash
-https://www.livelaw.in/top-stories/bci-chairman-drops-inquiry-against-nalsar-2026-batch-after-backlash-545731
+### 2026-08-14T06:27:10+00:00
+Student Protester Moves Supreme Court Against Rape & Abduction Threats
+https://www.livelaw.in/top-stories/student-protester-moves-supreme-court-against-rape-abduction-threats-545771
 
-[Read on Telegram](https://t.me/livelawindia/117318)
+[Read on Telegram](https://t.me/livelawindia/117344)
+
+---
+### 2026-08-14T06:33:00+00:00
+Advertisement Boards On Road Dividers Must Be At Least 12 Feet Above Road Surface: Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-advertisement-boards-road-dividers-545763
+
+[Read on Telegram](https://t.me/livelawindia/117345)
+
+---
+### 2026-08-14T06:48:20+00:00
+BREAKING| Supreme Court Quashes Hate Speech Case Against Rahul Gandhi Over Comments Against Savarkar Due To Absence Of UP Govt Sanction
+https://www.livelaw.in/top-stories/supreme-court-quashes-hate-speech-case-against-rahul-gandhi-over-comments-against-savarkar-due-to-absence-of-up-govt-sanction-545775
+
+[Read on Telegram](https://t.me/livelawindia/117346)
+
+---
+### 2026-08-14T06:53:40+00:00
+10,202 Potholes Repaired Since April, Says BBMP; Karnataka High Court Seeks Details Of Mechanism To Tackle Menace
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-pothole-crisis-bbmp-claims-potholes-545776
+
+[Read on Telegram](https://t.me/livelawindia/117347)
+
+---
+### 2026-08-14T06:57:20+00:00
+Bombay High Court Directs BMC To Mandatorily Mention Appeal Remedy In Disciplinary Orders
+https://www.livelaw.in/high-court/bombay-high-court/bmc-mandatorily-mention-appeal-remedy-disciplinary-orders-545744
+
+[Read on Telegram](https://t.me/livelawindia/117348)
+
+---
+### 2026-08-14T06:59:20+00:00
+Kerala High Court Advocates' Association To Convene Urgent Meeting To Discuss Attack On Lawyer's Family
+https://www.livelaw.in/news-updates/kerala-high-court-advocates-association-attack-lawyer-family-545778
+
+[Read on Telegram](https://t.me/livelawindia/117349)
+
+---
+### 2026-08-14T07:10:00+00:00
+Mere 'Barren Woman' Remark During Matrimonial Quarrel Not Cruelty U/S 498-A IPC: Allahabad High Court Grants Relief To Husband
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-barren-woman-remark-section-498a-cruelty-matrimonial-discord-husband-relief-545780
+
+[Read on Telegram](https://t.me/livelawindia/117350)
+
+---
+### 2026-08-14T07:12:40+00:00
+AP High Court Quashes Proceedings Against Samsung Over Non-Declaration Of Mobile Phone Dimensions Under Legal Metrology Rules
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-quashes-legal-metrology-proceedings-samsung-nondeclaration-mobile-phone-dimensions-545764
+
+[Read on Telegram](https://t.me/livelawindia/117351)
+
+---
+### 2026-08-14T07:22:31+00:00
+Agreement Where Developer Retains Share In Property Is Not Pure Construction Contract; Specific Performance Not Barred: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/development-agreement-where-developer-retains-share-not-pure-construction-contract-545753
+
+[Read on Telegram](https://t.me/livelawindia/117352)
+
+---
+### 2026-08-14T07:32:31+00:00
+'Past Service In Different Cadre Cannot Be Counted For Career Progression Benefits, Mere 'Continuity' Not Enough: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-past-service-different-cadre-counted-dacp-benefits-545772
+
+[Read on Telegram](https://t.me/livelawindia/117353)
 
 ---
