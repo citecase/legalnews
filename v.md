@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-13T15:32:57+00:00*
+*Last Updated: 2026-08-14T07:53:03+00:00*
+
+---
+
+### 2026-08-14T07:53:03+00:00
+Manipur Blockades: Supreme Court Seeks Proposals From Kuki & Meitei Organizations To Reopen Highways, Impleads NHAI
+https://www.verdictum.in/supreme-court/manipur-highway-blockade-seeks-proposals-kuki-meitei-organizations-impleads-nhai-1619858
+
+[Source Link](https://t.me/verdictumlegalupdates/28533)
+
+---
+
+### 2026-08-14T07:12:22+00:00
+Remand Not To Be Adopted In Ordinary Course When Parties Have Adduced Evidence In Accordance With Burden & Onus of Proof Fastened On Them: Supreme Court
+https://www.verdictum.in/supreme-court/shivappa-v-shantavva-and-others-2026-insc-857-remand-evidence-burden-onus-proof-1619854
+
+[Source Link](https://t.me/verdictumlegalupdates/28532)
+
+---
+
+### 2026-08-14T06:33:01+00:00
+Fishing Licence Granted For Over One Year Is Treated As Lease And Attracts Stamp Duty: Supreme Court
+https://www.verdictum.in/supreme-court/zaki-ullah-khan-v-state-of-up-and-others-2026-insc-827-fishing-licence-1619846
+
+[Source Link](https://t.me/verdictumlegalupdates/28531)
+
+---
+
+### 2026-08-14T05:45:00+00:00
+Action Is Absolutely Uncalled For: Apex Court Seeks BCI's Response On Plea Challenging Circulars Against NALSAR Students, Protects Faculty & Graduates From Punitive Action
+https://www.verdictum.in/supreme-court/bci-response-plea-against-nalsar-students-punitive-action-1619844
+
+[Source Link](https://t.me/verdictumlegalupdates/28530)
+
+---
+
+### 2026-08-14T05:32:59+00:00
+Will Place BCI's Directive For Inquiry Into CJI Invite Issue Before Executive Council: NALSAR VC
+https://www.verdictum.in/news/bci-directive-inqyuiry-cji-invitation-nalsar-vc-1619842
+
+[Source Link](https://t.me/verdictumlegalupdates/28529)
+
+---
+
+### 2026-08-14T05:12:17+00:00
+Initiation Of Winding Up Proceeding Won’t Impact Limitation For Separate Remedy Of Suit For Money Recovery: Supreme Court
+https://www.verdictum.in/supreme-court/mageba-bridge-products-private-limited-v-ms-trade-centre-2026-insc-839-winding-up-proceeding-recovery-suit-1619839
+
+[Source Link](https://t.me/verdictumlegalupdates/28528)
+
+---
+
+### 2026-08-14T04:33:06+00:00
+Dependent Can’t Be Denied Compassionate Appointment Due To Procedural Delay: Supreme Court
+https://www.verdictum.in/supreme-court/raspelli-bhagya-kishaiya-ors-v-general-manager-western-coalfields-limited-ors-2026-insc-841-1619814
+
+[Source Link](https://t.me/verdictumlegalupdates/28527)
 
 ---
 
@@ -105,62 +161,6 @@ Supreme Court Agrees To Hear Plea Against Delhi Police's Use Of Facial Recogniti
 https://www.verdictum.in/supreme-court/plea-against-delhi-polices-use-of-facial-recognition-at-jantar-mantar-protest-1619782
 
 [Source Link](https://t.me/verdictumlegalupdates/28514)
-
----
-
-### 2026-08-13T06:52:28+00:00
-Equating Presiding Officers Of Central Government Industrial Tribunals Cum Labour Courts With District Judges Reasonable: Supreme Court
-https://www.verdictum.in/supreme-court/rk-yadav-anr-v-union-of-india-and-others-2026-insc-848-labour-court-1619778
-
-[Source Link](https://t.me/verdictumlegalupdates/28513)
-
----
-
-### 2026-08-13T06:12:46+00:00
-Order Passed U/S.69 CGST Act Must Be Communicated To Accused: Supreme Court
-https://www.verdictum.in/supreme-court/union-of-india-v-sunil-biyani-2026-insc-849-order-sec69-cgst-act-anticipatory-bail-accused-arrest-1619773
-
-[Source Link](https://t.me/verdictumlegalupdates/28512)
-
----
-
-### 2026-08-13T05:21:45+00:00
-Kerala High Court Seeks State's Response In Plea Challenging Suspension Of Teacher Over Question About VD Savarkar
-https://www.verdictum.in/kerala-high-court/state-response-suspension-teacher-vd-savarkar-as-freedom-fighter-1619771
-
-[Source Link](https://t.me/verdictumlegalupdates/28511)
-
----
-
-### 2026-08-13T05:11:44+00:00
-Is Composite Appeal Filed Against Common Judgment In Same Plaintiff’s Civil Suits Maintainable? Supreme Court Answers
-https://www.verdictum.in/supreme-court/bassanna-since-deceased-by-lrs-v-bhimanna-and-others-2026-insc-838-composite-appeal-section-96-cpc-civil-suits-1619770
-
-[Source Link](https://t.me/verdictumlegalupdates/28510)
-
----
-
-### 2026-08-13T04:32:52+00:00
-Any Degree Pertaining To Teacher’s Training Obtained From Institution Not Enjoying NCTE Recognition Has No Legal Effect: Supreme Court
-https://www.verdictum.in/supreme-court/ms-bharatiya-vidya-bhavans-public-school-v-m-vimala-ors-2026-insc-833-1619739
-
-[Source Link](https://t.me/verdictumlegalupdates/28509)
-
----
-
-### 2026-08-12T16:02:58+00:00
-Delhi Pollution Control Committee Invites Applications For Posts Of Assistant Law Officer, Legal Assistant
-https://www.verdictum.in/job-updates/delhi-pollution-control-committee-1619730
-
-[Source Link](https://t.me/verdictumlegalupdates/28508)
-
----
-
-### 2026-08-12T15:37:57+00:00
-Hens Are Considered Livestock Under MV Act; Claimant Transporting Hens Entitled For Actual Damages Suffered In Motor Accident: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/k-veera-narayana-swamy-v-y-yankappa-2026khc-d10894-livestock-mv-act-claimant-damages-1619738
-
-[Source Link](https://t.me/verdictumlegalupdates/28507)
 
 ---
 
