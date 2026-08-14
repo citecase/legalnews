@@ -1,121 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-14T11:00:53+00:00*
+*Last Updated: 2026-08-14T12:34:34+00:00*
 
 ---
 
-### 2026-08-14T11:00:53+00:00
-SCBA Urges Meghalaya Bar Associations To Withdraw Resolution Against Advocate General Amit Kumar
-https://www.livelaw.in/top-stories/scba-urges-meghalaya-bar-associations-to-withdraw-resolution-against-advocate-general-amit-kumar-545824
-
-[Read on Telegram](https://t.me/livelawindia/117373)
-
----
-### 2026-08-14T11:01:13+00:00
-Madras High Court Issues Circular For Singing Vande Mataram On Independence Day, Bar Body Raises Concern On Exclusion Of State Song
-https://www.livelaw.in/news-updates/madras-high-court-circular-vande-mataram-indepence-day-celebration-545825
-
-[Read on Telegram](https://t.me/livelawindia/117374)
-
----
-### 2026-08-14T11:03:23+00:00
-'Shocks Our Conscience': Madras High Court Slams TN Govt For Denying National Flag Rally Permit To BJP, Says Tricolour Transcends Political Colour
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-bjp-flag-rally-coimbatore-permission-granted-545822
-
-[Read on Telegram](https://t.me/livelawindia/117375)
-
----
-### 2026-08-14T11:03:53+00:00
-JJ Act | Conviction Not Vitiated Because Regular Court Tried Juvenile As Adult, But Sentence Cannot Operate : Supreme Court
-https://www.livelaw.in/supreme-court/jj-act-conviction-not-vitiated-because-regular-court-tried-juvenile-as-adult-but-sentence-cannot-operate-supreme-court-545826
-
-[Read on Telegram](https://t.me/livelawindia/117376)
-
----
-### 2026-08-14T11:04:53+00:00
-2026 LiveLaw (SC) 805 | DINESH KUMAR VERSUS THE STATE OF HARYANA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-805-dinesh-kumar-versus-the-state-of-haryana-545827
-
-[Read on Telegram](https://t.me/livelawindia/117377)
-
----
-### 2026-08-14T11:17:14+00:00
-High Court Rejects PIL Challenging Collegium Recommendation To Appoint Haryana AG As Judge, Imposes ₹1 Lakh Costs
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-rejects-pil-challenging-collegium-recommendation-to-appoint-haryana-ag-as-judge-545829
-
-[Read on Telegram](https://t.me/livelawindia/117378)
-
----
-### 2026-08-14T11:17:34+00:00
-Book Review: Tareekh Pe Justice: Reforms For India's District Courts
-https://www.livelaw.in/book-reviews/tareekh-pe-justice-reforms-india-district-courts-545830
-
-[Read on Telegram](https://t.me/livelawindia/117379)
-
----
-### 2026-08-14T11:20:34+00:00
-'Please Think Of Peace Now': Supreme Court Asks Kuki, Meitei Groups To Furnish Proposal To End Manipur Highway Blockades
-https://www.livelaw.in/top-stories/supreme-court-kuki-meitei-naga-groups-manipur-violence-proposal-sought-to-open-national-highway-blockades-supply-of-essential-services-545832
-
-[Read on Telegram](https://t.me/livelawindia/117380)
-
----
-### 2026-08-14T11:22:54+00:00
-J&K&L High Court Refuses To Quash Drug Quality Case Against Company Directors, Says Responsibility Under Drugs Act Requires Trial
-https://www.livelaw.in/high-court/jammu-kashmir/directorship-alone-does-not-establish-guilt-but-non-involvement-in-drug-manufacture-cannot-ordinarily-be-decided-at-quashing-stage-jk-high-court-545757
-
-[Read on Telegram](https://t.me/livelawindia/117381)
-
----
-### 2026-08-14T11:28:14+00:00
-Plea In Supreme Court Seeks Enquiry Into How BCI Chairman Issued Orders Against NALSAR Students
-https://www.livelaw.in/top-stories/plea-in-supreme-court-seeks-enquiry-into-how-bci-chairman-issued-orders-against-nalsar-students-545834
-
-[Read on Telegram](https://t.me/livelawindia/117382)
-
----
-### 2026-08-14T11:33:34+00:00
-Lawyer Dies Of Heart Attack At Sessions Court: Rajasthan High Court Calls Lack Of Medical Facilities 'Alarming', Orders Immediate Action
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-directs-immediate-medical-facilities-in-sessions-court-complex-545835
-
-[Read on Telegram](https://t.me/livelawindia/117383)
-
----
-### 2026-08-14T11:53:04+00:00
-HP High Court Orders Probe Against Officials For Allowing Govt Doctor To Retain Accommodation For Over A Decade Despite Transfer
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-orders-probe-officials-allowing-doctor-retain-government-accommodation-545758
-
-[Read on Telegram](https://t.me/livelawindia/117384)
-
----
-### 2026-08-14T12:02:24+00:00
-Father Gifting Daughter Property As Part Of Matrimonial Settlement Not Joint Family Property Without Proof: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-property-individual-name-presumed-joint-family-property-545836
-
-[Read on Telegram](https://t.me/livelawindia/117385)
-
----
-### 2026-08-14T12:08:04+00:00
-Bombay High Court Grants Interim Protection From Arrest To Ex-TISS Student Booked For Raising Slogans To Release Sharjeel Imam, Umar Khalid
-https://www.livelaw.in/high-court/bombay-high-court/ex-tiss-student-slogans-to-release-sharjeel-imam-umar-khalid-get-protection-from-arrest-545841
-
-[Read on Telegram](https://t.me/livelawindia/117386)
-
----
-### 2026-08-14T12:18:04+00:00
-Closure Report In MUDA Case Against Ex-CM Siddaramaiah, Others 'Inconclusive': Activist Tells Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-activist-snehamayi-krishna-b-report-muda-scam-545843
-
-[Read on Telegram](https://t.me/livelawindia/117387)
-
----
-### 2026-08-14T12:32:04+00:00
-Orissa High Court Grants Pre-Arrest Bail To Lawyers & Claimants In Decade-Old False Accident Claims Cases
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-grants-prearrest-bail-lawyers-claimants-false-accident-claims-cases-545845
-
-[Read on Telegram](https://t.me/livelawindia/117388)
-
----
 ### 2026-08-14T12:34:34+00:00
 Over 400 NALSAR Alumni 'Condemn' Now Withdrawn Action By BCI Against Students
 https://www.livelaw.in/news-updates/nalsar-alumni-condemn-withdrawn-action-bci-students-545849
@@ -142,5 +30,117 @@ LiveLaw Academy Launches Comprehensive Course On The Constitution Of India, Taug
 https://www.livelaw.in/top-stories/livelaw-academy-launches-comprehensive-course-on-the-constitution-of-india-taught-by-adv-avani-bansal-545854
 
 [Read on Telegram](https://t.me/livelawindia/117392)
+
+---
+### 2026-08-14T13:21:04+00:00
+'Calculated Assault On Public Health': Karnataka High Court Upholds FIR Against Company Allegedly Re-Labeling & Selling Expired Food Products
+https://www.livelaw.in/high-court/karnataka-high-court/fir-upheld-company-relabeling-selling-expired-food-products-public-health-545855
+
+[Read on Telegram](https://t.me/livelawindia/117393)
+
+---
+### 2026-08-14T13:34:44+00:00
+LiveLaw Daily | NALSAR Row| Rahul Gandhi| Samay Raina| Karur Stampede Jobs & more
+https://www.livelaw.in/podcast/rahul-gandhi-savarkar-samay-raina-nalsar-census-news-india-advocates-students-upsc-judiciary-clat-545856
+
+[Read on Telegram](https://t.me/livelawindia/117394)
+
+---
+### 2026-08-14T13:51:45+00:00
+Delhi High Court Refuses To Restrain Private Channel From Telecasting Golden Temple Gurbani
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-to-restrain-private-channel-from-telecasting-golden-temple-gurbani-545859
+
+[Read on Telegram](https://t.me/livelawindia/117395)
+
+---
+### 2026-08-14T14:02:45+00:00
+Madras High Court Stays Investigation Against Fitness Centre Owner In TASMAC Corruption Case Involving Senthil Balaji
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tasmac-corruption-case-dvac-investigation-stay-fitness-centre-owner-545861
+
+[Read on Telegram](https://t.me/livelawindia/117396)
+
+---
+### 2026-08-14T14:02:55+00:00
+NDPS Act Does Not Allow Any Other Options After Accused Chooses Gazetted Officer For Search U/S 50: HP High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-fresh-third-option-personal-search-recognised-section50-ndps-act-545760
+
+[Read on Telegram](https://t.me/livelawindia/117397)
+
+---
+### 2026-08-14T14:17:35+00:00
+Karnataka High Court Refuses For Now Interim Protection From Arrest To Ex-KPSC Chairman Over Veterinary Officer Recruitment Scam
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-denies-protection-exkpsc-chairman-veterinary-officer-exam-irregularities-case-545862
+
+[Read on Telegram](https://t.me/livelawindia/117398)
+
+---
+### 2026-08-14T14:24:55+00:00
+Roundtable On 'Building The Next Generation Of Dispute Resolution Professionals' By Sama, Bengaluru [August 20; In-Person; Open To ADR Profs. & Deans; Free]: Register By August 19
+https://www.livelaw.in/law-firms/events/sama-bengaluru-roundtable-building-next-generation-dispute-resolution-professionals-545865
+
+[Read on Telegram](https://t.me/livelawindia/117399)
+
+---
+### 2026-08-14T14:30:15+00:00
+Lowest Or Sole Bidder Has No Vested Right To Contract Until Letter Of Acceptance Is Issued: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-lowest-sole-bidder-vested-right-to-contract-letter-of-acceptance-issued-545867
+
+[Read on Telegram](https://t.me/livelawindia/117400)
+
+---
+### 2026-08-14T14:32:55+00:00
+Strengthening Fight Against Examination Malpractice: Critical Analysis Of 2026 Amendment Act
+https://www.livelaw.in/articles/strengthening-fight-examination-malpractice-critical-analysis-2026-amendment-act-545837
+
+[Read on Telegram](https://t.me/livelawindia/117401)
+
+---
+### 2026-08-14T14:37:55+00:00
+NEET-UG 2026: Candidates Can't Claim EWS Reservation After Declaration Of Results: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/neet-ug-2026-candidates-cant-claim-ews-reservation-after-applying-under-general-or-obc-category-calcutta-high-court-545870
+
+[Read on Telegram](https://t.me/livelawindia/117402)
+
+---
+### 2026-08-14T14:50:15+00:00
+Self-Styled Godman Rampal's Son-In-Law Gets Bail In UAPA Case After 4 Yrs Custody; P&H High Court Notes All Material Witnesses Examined
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-grants-bail-to-baba-rampal-son-in-law-after-4-years-custody-545874
+
+[Read on Telegram](https://t.me/livelawindia/117403)
+
+---
+### 2026-08-14T15:23:25+00:00
+Supreme Court Imposes Rs. 10 Lakh Cost On Reliance Industries Ltd For Obstructing 20-Year-Old NTPC Suit
+https://www.livelaw.in/supreme-court/supreme-court-imposes-rs-10-lakh-cost-on-reliance-industries-ltd-for-obstructing-20-year-old-ntpc-suit-545878
+
+[Read on Telegram](https://t.me/livelawindia/117404)
+
+---
+### 2026-08-14T15:37:25+00:00
+Failure To Pay Balance Sale Consideration Cannot By Itself Amount To Cheating: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-failure-pay-balance-sale-consideration-cheating-545868
+
+[Read on Telegram](https://t.me/livelawindia/117405)
+
+---
+### 2026-08-14T15:43:46+00:00
+2026 LiveLaw (SC) 806 | RELIANCE INDUSTRIES LIMITED VERSUS NTPC LIMITED
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-806-reliance-industries-limited-versus-ntpc-limited-545880
+
+[Read on Telegram](https://t.me/livelawindia/117406)
+
+---
+### 2026-08-14T17:22:26+00:00
+Supreme Court Daily Round-Up : August 14, 2026
+https://www.livelaw.in/supreme-court/supreme-court-daily-round-up-august-14-2026-545882
+
+[Read on Telegram](https://t.me/livelawindia/117407)
+
+---
+### 2026-08-14T18:07:16+00:00
+LiveLaw High Courts Daily Highlights: August 14, 2026
+https://www.livelaw.in/high-court/high-courts-daily-highlights-august-14-2026-545887
+
+[Read on Telegram](https://t.me/livelawindia/117408)
 
 ---
