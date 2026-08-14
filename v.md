@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-14T07:53:03+00:00*
+*Last Updated: 2026-08-14T13:52:30+00:00*
+
+---
+
+### 2026-08-14T13:52:30+00:00
+Tenant’s Possession After Agreement To Sell Is Not Part Performance Unless Traceable To Agreement: Supreme Court
+https://www.verdictum.in/supreme-court/nazim-shaikh-hasan-v-nasir-mushtaq-shaikh-and-others-2026-insc-853-tpa-1619881
+
+[Source Link](https://t.me/verdictumlegalupdates/28542)
+
+---
+
+### 2026-08-14T13:13:09+00:00
+Registration of FIR And Onward Dispatch Do Not Replace Duty To  Record & Transmit Secret Information U/S 42 NDPS Act: Supreme Court
+https://www.verdictum.in/supreme-court/kashmir-ram-pappi-v-state-of-punjab-2026-insc-854-1619880
+
+[Source Link](https://t.me/verdictumlegalupdates/28541)
+
+---
+
+### 2026-08-14T12:32:48+00:00
+Going To Movie After Witnessing Drowning Not Enough To Sustain Conviction: Supreme Court Acquits Two Men Accused Of Murdering Friend
+https://www.verdictum.in/supreme-court/taher-vajiyuddin-rangwala-anr-v-the-state-of-gujarat-2026-insc-859-1619879
+
+[Source Link](https://t.me/verdictumlegalupdates/28540)
+
+---
+
+### 2026-08-14T11:52:07+00:00
+Supreme Court Quashes Criminal Proceedings Against Samay Raina For Remarks Against People With Disabilities
+https://www.verdictum.in/supreme-court/criminal-proceedings-samay-raina-remarks-against-people-with-disabilities-quashed-1619873
+
+[Source Link](https://t.me/verdictumlegalupdates/28539)
+
+---
+
+### 2026-08-14T11:12:27+00:00
+Calcutta High Court Calls For Balance Between Census Duties And Students' Education
+https://www.verdictum.in/calcutta-high-court/balance-between-census-duties-and-students-education-1619871
+
+[Source Link](https://t.me/verdictumlegalupdates/28538)
+
+---
+
+### 2026-08-14T10:33:06+00:00
+Why Can't State Govt Provide Employment: Supreme Court Stays Order Of HC On Govt Jobs To Relatives Of Karur Stampede Victims
+https://www.verdictum.in/supreme-court/order-of-hc-on-govt-jobs-to-relatives-of-karur-stampede-victims-1619866
+
+[Source Link](https://t.me/verdictumlegalupdates/28537)
+
+---
+
+### 2026-08-14T09:52:25+00:00
+Aggrieved Individuals Can Always Approach: Supreme Court Affirms Quashing Of FIR Against Chandrababu Naidu In Andhra Pradesh Land Pooling Case
+https://www.verdictum.in/supreme-court/fir-n-chandrababu-naidu-in-andhra-pradesh-land-pooling-case-1619869
+
+[Source Link](https://t.me/verdictumlegalupdates/28536)
+
+---
+
+### 2026-08-14T09:12:24+00:00
+Delhi High Court Receives Bomb threat Via Email Ahead Of Independence Day
+https://www.verdictum.in/news/delhi-high-court-bomb-threat-independence-day-1619867
+
+[Source Link](https://t.me/verdictumlegalupdates/28535)
+
+---
+
+### 2026-08-14T08:32:43+00:00
+Supreme Court Quashes Defamation Complaint Against Rahul Gandhi Over Savarkar Remarks
+https://www.verdictum.in/supreme-court/defamation-complaint-against-rahul-gandhi-over-savarkar-remarks-1619865
+
+[Source Link](https://t.me/verdictumlegalupdates/28534)
 
 ---
 
@@ -89,78 +161,6 @@ Allahabad High Court Dismisses Plea Seeking Six Months’ Maternity Leave For Fo
 https://www.verdictum.in/allahabad-high-court/sashi-kumari-v-state-of-up-2026ahc165541-maternity-leave-fourth-child-dismissed-1619804
 
 [Source Link](https://t.me/verdictumlegalupdates/28523)
-
----
-
-### 2026-08-13T12:52:32+00:00
-Authorities Conveniently Tried To Cover Up: Supreme Court Directs State To Pay ₹25L Compensation To Kin Of Man Alleged To Have Died In Police Custody
-https://www.verdictum.in/supreme-court/lahra-bai-tamre-v-state-of-chattisgarh-2026-insc-840-police-custody-death-1619803
-
-[Source Link](https://t.me/verdictumlegalupdates/28522)
-
----
-
-### 2026-08-13T12:12:11+00:00
-Electricity Boards Face Strict, Not Absolute Liability In Electrocution Compensation Cases: Supreme Court
-https://www.verdictum.in/supreme-court/karnataka-power-transmission-corporation-limited-v-rekha-ors-2026-insc-847-1619800
-
-[Source Link](https://t.me/verdictumlegalupdates/28521)
-
----
-
-### 2026-08-13T11:33:19+00:00
-Supreme Court Asks UPSC To Not Finalize Names For Appointment Of Odisha's DGP Till August 18
-https://www.verdictum.in/supreme-court/upsc-to-not-finalize-names-for-appointment-of-odishas-dgp-till-august-18-1619799
-
-[Source Link](https://t.me/verdictumlegalupdates/28520)
-
----
-
-### 2026-08-13T10:52:38+00:00
-Supreme Court Disapproves Practice Of Writing Lengthy, Merits-Laden Orders In Temporary Injunction Applications
-https://www.verdictum.in/supreme-court/shruti-manav-sharma-anr-v-sunanina-singh-ors-2026-insc-843-injunction-orders-1619798
-
-[Source Link](https://t.me/verdictumlegalupdates/28519)
-
----
-
-### 2026-08-13T10:12:57+00:00
-High Court Or Sessions Court Can't Grant Protection To Accused While Dismissing Pre-Arrest Bail Petition On Ground That It Is Not Maintainable: Supreme Court
-https://www.verdictum.in/supreme-court/union-of-india-v-sunil-biyani-2026-insc-849-pre-arrest-bail-petition-protection-interim-relief-1619797
-
-[Source Link](https://t.me/verdictumlegalupdates/28518)
-
----
-
-### 2026-08-13T09:33:16+00:00
-Termination Of Contract By Itself Does Not Amount To Offence Of Cheating Unless Original Design To Deceive Is Alleged: Supreme Court
-https://www.verdictum.in/supreme-court/parag-kishore-satoskar-and-others-v-state-of-jharkhand-and-another-2026-insc-846-1619795
-
-[Source Link](https://t.me/verdictumlegalupdates/28517)
-
----
-
-### 2026-08-13T08:52:54+00:00
-Supreme Court Directs NCDRC To Report On Case Pendency, Disposal Rates & Bench Strength; Expresses Concern Over 'Quality Crisis' In District Forums
-https://www.verdictum.in/supreme-court/directs-ncdrc-president-report-bench-performance-1619792
-
-[Source Link](https://t.me/verdictumlegalupdates/28516)
-
----
-
-### 2026-08-13T08:12:53+00:00
-Supreme Court Asks Centre To Consider Representation Against Unregulated Use Of Artificial Intelligence By State
-https://www.verdictum.in/supreme-court/centre-representation-unregulated-deployment-artificial-intelligence-welfare-policing-1619788
-
-[Source Link](https://t.me/verdictumlegalupdates/28515)
-
----
-
-### 2026-08-13T07:32:32+00:00
-Supreme Court Agrees To Hear Plea Against Delhi Police's Use Of Facial Recognition At Jantar Mantar Protest
-https://www.verdictum.in/supreme-court/plea-against-delhi-polices-use-of-facial-recognition-at-jantar-mantar-protest-1619782
-
-[Source Link](https://t.me/verdictumlegalupdates/28514)
 
 ---
 
