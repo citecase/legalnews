@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-15T06:02:51+00:00*
+*Last Updated: 2026-08-15T12:02:55+00:00*
+
+---
+
+### 2026-08-15T12:02:55+00:00
+Suppression Of Fact Which Isn’t Wilful Can’t Constitute Permissible Ground For Invocation Of Proviso to Section 11-A Of Central Excise Act: Supreme Court
+https://www.verdictum.in/supreme-court/audi-automobiles-v-commissioner-of-central-excise-and-service-tax-2026-insc-858-excise-act-1619928
+
+[Source Link](https://t.me/verdictumlegalupdates/28549)
+
+---
+
+### 2026-08-15T10:33:14+00:00
+Lands Earmarked For Afforestation Must Get Same Protection As Existing Plantations: Supreme Court Bars Mining In Aravalli Plantation Areas
+https://www.verdictum.in/supreme-court/sunder-singh-anr-v-ms-satish-kumar-garg-company-ors-2026-insc-855-1619927
+
+[Source Link](https://t.me/verdictumlegalupdates/28548)
+
+---
+
+### 2026-08-15T09:02:53+00:00
+Default Occurs At A Singular Point In Time: Supreme Court Holds Claim U/S 9 IBC Time-Barred Despite Subsisting EPC Contract
+https://www.verdictum.in/supreme-court/srinivasa-reddy-velagala-v-sravanthi-infratech-pvt-ltd-2026-insc-835-claim-us-9-ibc-time-barred-1619886
+
+[Source Link](https://t.me/verdictumlegalupdates/28547)
+
+---
+
+### 2026-08-15T07:32:32+00:00
+"Every Act Of Child Sexual Abuse Is An Assault Upon Humanity": Supreme Court Restores Life Term Of POCSO Convict For Aggravated Penetrative Assault On 3-Year-Old
+https://www.verdictum.in/supreme-court/balesh-kumar-kuraiti-v-state-of-chhattisgarh-2026-insc-850-pocso-convict-for-aggravated-penetrative-assault-on-3-year-old-1619885
+
+[Source Link](https://t.me/verdictumlegalupdates/28546)
 
 ---
 
@@ -129,38 +161,6 @@ Action Is Absolutely Uncalled For: Apex Court Seeks BCI's Response On Plea Chall
 https://www.verdictum.in/supreme-court/bci-response-plea-against-nalsar-students-punitive-action-1619844
 
 [Source Link](https://t.me/verdictumlegalupdates/28530)
-
----
-
-### 2026-08-14T05:32:59+00:00
-Will Place BCI's Directive For Inquiry Into CJI Invite Issue Before Executive Council: NALSAR VC
-https://www.verdictum.in/news/bci-directive-inqyuiry-cji-invitation-nalsar-vc-1619842
-
-[Source Link](https://t.me/verdictumlegalupdates/28529)
-
----
-
-### 2026-08-14T05:12:17+00:00
-Initiation Of Winding Up Proceeding Won’t Impact Limitation For Separate Remedy Of Suit For Money Recovery: Supreme Court
-https://www.verdictum.in/supreme-court/mageba-bridge-products-private-limited-v-ms-trade-centre-2026-insc-839-winding-up-proceeding-recovery-suit-1619839
-
-[Source Link](https://t.me/verdictumlegalupdates/28528)
-
----
-
-### 2026-08-14T04:33:06+00:00
-Dependent Can’t Be Denied Compassionate Appointment Due To Procedural Delay: Supreme Court
-https://www.verdictum.in/supreme-court/raspelli-bhagya-kishaiya-ors-v-general-manager-western-coalfields-limited-ors-2026-insc-841-1619814
-
-[Source Link](https://t.me/verdictumlegalupdates/28527)
-
----
-
-### 2026-08-13T15:32:57+00:00
-Legal Officer Vacancy At OIL Green Energy Limited (OGEL)
-https://www.verdictum.in/job-updates/oil-green-energy-limited-1619805
-
-[Source Link](https://t.me/verdictumlegalupdates/28526)
 
 ---
 
