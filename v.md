@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-14T14:32:51+00:00*
+*Last Updated: 2026-08-15T06:02:51+00:00*
+
+---
+
+### 2026-08-15T06:02:51+00:00
+Provisional Assessment Order Under Electricity Act Unsustainable If Inspection Report Lacks Finding And Evidence Of Theft: Supreme Court
+https://www.verdictum.in/supreme-court/ms-himadri-steel-pvt-ltd-v-jharkhand-urja-vikas-nigam-limited-2026-insc-851-provisional-assessment-order-1619884
+
+[Source Link](https://t.me/verdictumlegalupdates/28545)
+
+---
+
+### 2026-08-15T04:32:30+00:00
+Deceased's Daughter Not Interested Witness Merely By Relationship: Supreme Court Upholds Life Sentence In Witch-Hunting Murder Case
+https://www.verdictum.in/supreme-court/balku-oram-v-state-of-odisha-2026-insc-852-witch-hunting-witchcraft-murder-1619883
+
+[Source Link](https://t.me/verdictumlegalupdates/28544)
 
 ---
 
@@ -145,22 +161,6 @@ Legal Officer Vacancy At OIL Green Energy Limited (OGEL)
 https://www.verdictum.in/job-updates/oil-green-energy-limited-1619805
 
 [Source Link](https://t.me/verdictumlegalupdates/28526)
-
----
-
-### 2026-08-13T14:52:56+00:00
-Convict Found To Be Minor On Date Of Offence Covered Under Juvenile Justice Act Even If Crime Preceded Its Commencement: Supreme Court Sets Aside Life Sentence
-https://www.verdictum.in/supreme-court/dinesh-kumar-v-the-state-of-haryana-2026-insc-842-juvenile-justice-act-1619812
-
-[Source Link](https://t.me/verdictumlegalupdates/28525)
-
----
-
-### 2026-08-13T14:12:54+00:00
-Customs Tariff Act| Laser Imager Is "Accessory"  Having No Diagnostic Capabilities; Can Be Brought Under Residuary Heading: Supreme Court
-https://www.verdictum.in/supreme-court/ms-carestream-health-india-pvt-ltd-v-commissioner-of-customs-2026-insc-837laser-imager-1619813
-
-[Source Link](https://t.me/verdictumlegalupdates/28524)
 
 ---
 
