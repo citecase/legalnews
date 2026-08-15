@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-15T06:16:37+00:00*
+*Last Updated: 2026-08-15T08:23:47+00:00*
 
 ---
 
-### 2026-08-15T06:16:37+00:00
-NLSIU Students Demand BCI Apology For Orders Against NALSAR
-https://www.livelaw.in/news-updates/nlsiu-students-alumni-condemn-bci-illegal-action-against-nalsar-545928
-
-[Read on Telegram](https://t.me/livelawindia/117434)
-
----
-### 2026-08-15T06:20:37+00:00
-Kochhar & Co. Appoints Saswat Mohanty As Partner In Capital Markets And Securities Law Practice
-https://www.livelaw.in/law-firms/professional-announcement/kochhar-co-appoints-saswat-mohanty-partner-capital-markets-securities-law-practice-545929
-
-[Read on Telegram](https://t.me/livelawindia/117435)
-
----
-### 2026-08-15T06:33:17+00:00
-Where Idol Was Never Installed, No Juristic Person Came Into Existence; Devotion Alone Gives No Locus To Sue For Deity: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-idol-installed-devotees-locus-sue-for-deity-545901
-
-[Read on Telegram](https://t.me/livelawindia/117436)
-
----
-### 2026-08-15T06:33:27+00:00
-7th Kerala Law Academy National ADR Competition, 2026 | Hybrid Mode | 18–19 September 2026 & 9 October 2026
-https://www.livelaw.in/lawschool/competitions/7th-kerala-law-academy-national-adr-competition-545930
-
-[Read on Telegram](https://t.me/livelawindia/117437)
-
----
-### 2026-08-15T07:03:07+00:00
-'State Losing Valuable Revenue': Kerala High Court Pulls Up Authorities Over Negligible Recovery Of Fines For Unauthorised Flags, Banners
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-authorities-failure-collect-fines-on-illegal-flags-boards-installations-545902
-
-[Read on Telegram](https://t.me/livelawindia/117438)
-
----
-### 2026-08-15T07:32:57+00:00
-Failure To Record Dying Declaration Before Magistrate Despite Adequate Opportunity Creates Dent In Prosecution Case: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-acquits-rape-abetment-convict-dying-declaration-545906
-
-[Read on Telegram](https://t.me/livelawindia/117439)
-
----
-### 2026-08-15T07:37:57+00:00
-LiveLaw Supreme Court Criminal Law Digest: July 2026
-https://www.livelaw.in/supreme-court/supreme-court-criminal-law-digest-july-2026-545933
-
-[Read on Telegram](https://t.me/livelawindia/117440)
-
----
-### 2026-08-15T07:51:37+00:00
-'Publicity Interest Litigation': Allahabad High Court Dismisses PIL Over Alleged Forced Closure Of Non-Veg Shops During Kanwar Yatra
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-publicity-interest-litigation-non-veg-shops-kanwar-yatra-545936
-
-[Read on Telegram](https://t.me/livelawindia/117441)
-
----
-### 2026-08-15T08:08:07+00:00
-Former SC Judge Moves Supreme Court Against Rajasthan HC Calling Tribunal Headed By Him 'Lethargic', Reducing Arbitral Fee
-https://www.livelaw.in/top-stories/supreme-court-jvvnl-hcl-discoms-528-crore-dispute-ex-sc-judge-plea-against-hc-order-calling-tribunal-lethargic-reducing-fee-545938
-
-[Read on Telegram](https://t.me/livelawindia/117442)
-
----
 ### 2026-08-15T08:23:47+00:00
 Hamirpur 'Gen Alpha' Students Walk 5 Km To Protest Lack Of Road To School; Allahabad High Court Takes Suo Motu Cognizance
 https://www.livelaw.in/high-court/allahabad-high-court/hamirpur-gen-alpha-students-walk-5-km-school-road-allahabad-hc-suo-motu-cognizance-545943
@@ -142,5 +79,68 @@ Promotion Doesn't Wash Out Past Adverse Entries, Full Service Record Relevant Fo
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-promotion-adverse-entries-entire-service-record-compulsory-retirement-545927
 
 [Read on Telegram](https://t.me/livelawindia/117453)
+
+---
+### 2026-08-15T13:26:12+00:00
+'Supreme Court & CJI Not Beyond Legitimate Scrutiny In A Democracy': NALSAR Student Councils Condemns BCI Action
+https://www.livelaw.in/top-stories/supreme-court-right-to-dissent-nalsar-student-council-condemns-bci-manan-kumar-mishra-ban-on-enrolment-calls-malicious-545979
+
+[Read on Telegram](https://t.me/livelawindia/117454)
+
+---
+### 2026-08-15T13:47:52+00:00
+Defamation Case Against Rahul Gandhi : Pune Court Refuses To Allow Intervention Of Researcher Claiming Expertise On Savarkar
+https://www.livelaw.in/top-stories/pune-court-imposes-20k-cost-intervenor-deletion-material-savarkar-defamation-case-545980
+
+[Read on Telegram](https://t.me/livelawindia/117455)
+
+---
+### 2026-08-15T14:03:52+00:00
+Bar Council Needs A Wise Counsel
+https://www.livelaw.in/articles/bar-council-needs-a-wise-counsel-545981
+
+[Read on Telegram](https://t.me/livelawindia/117456)
+
+---
+### 2026-08-15T14:18:22+00:00
+BCI Chairperson Manan Kumar Mishra Apologises to Law Students Amid NALSAR Row
+https://www.livelaw.in/top-stories/bci-chairperson-manan-kumar-mishra-apologises-to-law-students-amid-nalsar-row-545982
+
+[Read on Telegram](https://t.me/livelawindia/117457)
+
+---
+### 2026-08-15T14:32:23+00:00
+Infodemic Crisis: Impact Of Online Vaccine Messaging On Public Trust
+https://www.livelaw.in/lawschool/articles/infodemic-crisis-impact-online-vaccine-messaging-public-trust-545839
+
+[Read on Telegram](https://t.me/livelawindia/117458)
+
+---
+### 2026-08-15T16:59:35+00:00
+Article 161 | Governor's Power To Grant Premature Release Cannot Be Exercised Arbitrarily: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-article-161-governor-premature-release-power-arbitrarily-545990
+
+[Read on Telegram](https://t.me/livelawindia/117459)
+
+---
+### 2026-08-15T17:11:55+00:00
+New Lawyers' Collective 'LAFC' Formed in Delhi to Champion Constitutional Accountability and Judicial Transparency
+https://www.livelaw.in/news-updates/new-lawyers-collective-lafc-formed-in-delhi-to-champion-constitutional-accountability-and-judicial-transparency-545992
+
+[Read on Telegram](https://t.me/livelawindia/117460)
+
+---
+### 2026-08-15T17:13:15+00:00
+Durg DLSA Takes 'Justice on Wheels' Via Bullock Cart On Hareli, Covers 5 Villages In 5 Days For Community Mediation
+https://www.livelaw.in/events/durg-dlsa-takes-justice-on-wheels-via-bullock-cart-on-hareli-covers-5-villages-in-5-days-for-community-mediation-545993
+
+[Read on Telegram](https://t.me/livelawindia/117461)
+
+---
+### 2026-08-15T17:23:35+00:00
+[Advertisement] Project 39A At NLU Delhi Launches Online Certificate Course On "Capital Punishment In India: Law, Practice And Justice" – Register Now!
+https://www.livelaw.in/lawschool/diploma-certificate-courses/project-39a-nlu-delhi-launches-online-certificate-course-545994
+
+[Read on Telegram](https://t.me/livelawindia/117462)
 
 ---
