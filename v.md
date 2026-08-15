@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-15T12:02:55+00:00*
+*Last Updated: 2026-08-15T15:03:16+00:00*
+
+---
+
+### 2026-08-15T15:03:16+00:00
+Young Professional (Legal) Vacancy At Digital India BHASHINI Division (DIBD)
+https://www.verdictum.in/job-updates/digital-india-bhashini-division-1619887
+
+[Source Link](https://t.me/verdictumlegalupdates/28551)
+
+---
+
+### 2026-08-15T13:32:16+00:00
+Mere Suspicion Of Slaughter Not Enough: Allahabad High Court Quashes Vehicle Confiscation Under UP Cow Slaughter Act
+https://www.verdictum.in/allahabad-high-court/vinod-kumar-singh-v-state-of-up-and-3-others-2026ahc164202-cow-slaughter-1619929
+
+[Source Link](https://t.me/verdictumlegalupdates/28550)
 
 ---
 
@@ -145,22 +161,6 @@ Remand Not To Be Adopted In Ordinary Course When Parties Have Adduced Evidence I
 https://www.verdictum.in/supreme-court/shivappa-v-shantavva-and-others-2026-insc-857-remand-evidence-burden-onus-proof-1619854
 
 [Source Link](https://t.me/verdictumlegalupdates/28532)
-
----
-
-### 2026-08-14T06:33:01+00:00
-Fishing Licence Granted For Over One Year Is Treated As Lease And Attracts Stamp Duty: Supreme Court
-https://www.verdictum.in/supreme-court/zaki-ullah-khan-v-state-of-up-and-others-2026-insc-827-fishing-licence-1619846
-
-[Source Link](https://t.me/verdictumlegalupdates/28531)
-
----
-
-### 2026-08-14T05:45:00+00:00
-Action Is Absolutely Uncalled For: Apex Court Seeks BCI's Response On Plea Challenging Circulars Against NALSAR Students, Protects Faculty & Graduates From Punitive Action
-https://www.verdictum.in/supreme-court/bci-response-plea-against-nalsar-students-punitive-action-1619844
-
-[Source Link](https://t.me/verdictumlegalupdates/28530)
 
 ---
 
