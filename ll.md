@@ -1,121 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-15T04:47:26+00:00*
+*Last Updated: 2026-08-15T06:16:37+00:00*
 
 ---
 
-### 2026-08-15T04:47:26+00:00
-Karnataka High Court Stays FIR Against Engineering Student Accused Of Throwing Eggs At BJP MLA
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-interim-stay-fir-engineering-egg-attack-incident-against-bjp-mla-b-p-harish-545897
-
-[Read on Telegram](https://t.me/livelawindia/117418)
-
----
-### 2026-08-15T05:02:26+00:00
-State Can't Implement Central Scheme Selectively By Ignoring Pay Parity Clause: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-state-implement-central-scheme-ignoring-clause-granting-pay-parity-special-teachers-545895
-
-[Read on Telegram](https://t.me/livelawindia/117419)
-
----
-### 2026-08-15T05:03:06+00:00
-Re-employed Officers Can Be Treated Separately From Regular Officers: Supreme Court
-https://www.livelaw.in/supreme-court/re-employed-officers-can-be-treated-separately-from-regular-officers-supreme-court-545662
-
-[Read on Telegram](https://t.me/livelawindia/117420)
-
----
-### 2026-08-15T05:09:06+00:00
-Income Tax Act | 18-Month Period To Decide Settlement Application Under S.245D(4A) Is Mandatory, Not Directory: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-18month-period-decide-settlement-application-mandatory-545908
-
-[Read on Telegram](https://t.me/livelawindia/117421)
-
----
-### 2026-08-15T05:13:46+00:00
-Corporate Counsel Vacancy At Amazon's Legal Department
-https://www.livelaw.in/job-updates/corporate-counsel-vacancy-at-amazons-legal-department-545910
-
-[Read on Telegram](https://t.me/livelawindia/117422)
-
----
-### 2026-08-15T05:15:06+00:00
-Years Without Water Despite Paying Connection Fee: J&K District Consumer Commission Awards ₹2 Lakh Compensation
-https://www.livelaw.in/consumer-cases/years-without-water-despite-paying-connection-fee-jk-district-consumer-commission-awards-2-lakh-compensation-545911
-
-[Read on Telegram](https://t.me/livelawindia/117423)
-
----
-### 2026-08-15T05:15:16+00:00
-Zonal Legal Manager Vacancy At Kotak Mahindra Bank Limited [Mumbai; Apply Now]
-https://www.livelaw.in/job-updates/zonal-legal-manager-vacancy-at-kotak-mahindra-bank-limited-mumbai-545912
-
-[Read on Telegram](https://t.me/livelawindia/117424)
-
----
-### 2026-08-15T05:17:26+00:00
-Manager (Legal & Regulatory) Vacancy At Madhya Pradesh Yatri Parivahan And Infrastructure Limited
-https://www.livelaw.in/job-updates/manager-legal-regulatory-vacancy-at-madhya-pradesh-yatri-parivahan-and-infrastructure-limited-545913
-
-[Read on Telegram](https://t.me/livelawindia/117425)
-
----
-### 2026-08-15T05:18:06+00:00
-Bombay High Court Reserves Verdict In Challenge To Immersion Of PoP God Idols In Natural Water Bodies
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-reserves-verdict-in-challenge-to-immersion-of-pop-god-idols-in-natural-water-bodies-545898
-
-[Read on Telegram](https://t.me/livelawindia/117426)
-
----
-### 2026-08-15T05:31:06+00:00
-Regional Legal Head Vacancy At Titan Company [Apply Now]
-https://www.livelaw.in/job-updates/regional-legal-head-vacancy-at-titan-company-545919
-
-[Read on Telegram](https://t.me/livelawindia/117427)
-
----
-### 2026-08-15T05:32:26+00:00
-Majoritarian Reapportionment System Must Ultimately Bow to Federalism
-https://www.livelaw.in/articles/majoritarian-reapportionment-system-ultimately-bow-federalism-545831
-
-[Read on Telegram](https://t.me/livelawindia/117428)
-
----
-### 2026-08-15T05:33:06+00:00
-Journalist's News Report Causing Embarrassment Doesn't By Itself Constitute Criminal Defamation: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-journalist-report-arrest-official-act-crime-545900
-
-[Read on Telegram](https://t.me/livelawindia/117429)
-
----
-### 2026-08-15T05:59:36+00:00
-LiveLaw Supreme Court Half Yearly Digest 2026 - BNS & Indian Penal Code
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-bns-indian-penal-code-half-yearly-digest-2026-545922
-
-[Read on Telegram](https://t.me/livelawindia/117430)
-
----
-### 2026-08-15T06:01:37+00:00
-Call For Submissions: Journal Of Indian Legal Thought (JILT), Vol. 20 (2026) [UGC CARE Listed]
-https://www.livelaw.in/lawschool/call-for-papers/journal-of-indian-legal-thought-mahatma-gandhi-university-545923
-
-[Read on Telegram](https://t.me/livelawindia/117431)
-
----
-### 2026-08-15T06:02:37+00:00
-Has Supreme Court Interdicted Bar Council Meeting Till Co-option Of Women Members? Kerala High Court Seeks Clarification
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-bar-council-of-kerala-545896
-
-[Read on Telegram](https://t.me/livelawindia/117432)
-
----
-### 2026-08-15T06:12:17+00:00
-Call For Blogs (Open Theme): RGNUL Financial And Mercantile Law Review Blog [RFMLR]: Submissions On Rolling Basis
-https://www.livelaw.in/lawschool/call-for-papers/rgnul-financial-mercantile-law-review-blog-rfmlr-submissions-rolling-basis-545926
-
-[Read on Telegram](https://t.me/livelawindia/117433)
-
----
 ### 2026-08-15T06:16:37+00:00
 NLSIU Students Demand BCI Apology For Orders Against NALSAR
 https://www.livelaw.in/news-updates/nlsiu-students-alumni-condemn-bci-illegal-action-against-nalsar-545928
@@ -142,5 +30,117 @@ https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-idol
 https://www.livelaw.in/lawschool/competitions/7th-kerala-law-academy-national-adr-competition-545930
 
 [Read on Telegram](https://t.me/livelawindia/117437)
+
+---
+### 2026-08-15T07:03:07+00:00
+'State Losing Valuable Revenue': Kerala High Court Pulls Up Authorities Over Negligible Recovery Of Fines For Unauthorised Flags, Banners
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-authorities-failure-collect-fines-on-illegal-flags-boards-installations-545902
+
+[Read on Telegram](https://t.me/livelawindia/117438)
+
+---
+### 2026-08-15T07:32:57+00:00
+Failure To Record Dying Declaration Before Magistrate Despite Adequate Opportunity Creates Dent In Prosecution Case: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-acquits-rape-abetment-convict-dying-declaration-545906
+
+[Read on Telegram](https://t.me/livelawindia/117439)
+
+---
+### 2026-08-15T07:37:57+00:00
+LiveLaw Supreme Court Criminal Law Digest: July 2026
+https://www.livelaw.in/supreme-court/supreme-court-criminal-law-digest-july-2026-545933
+
+[Read on Telegram](https://t.me/livelawindia/117440)
+
+---
+### 2026-08-15T07:51:37+00:00
+'Publicity Interest Litigation': Allahabad High Court Dismisses PIL Over Alleged Forced Closure Of Non-Veg Shops During Kanwar Yatra
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-publicity-interest-litigation-non-veg-shops-kanwar-yatra-545936
+
+[Read on Telegram](https://t.me/livelawindia/117441)
+
+---
+### 2026-08-15T08:08:07+00:00
+Former SC Judge Moves Supreme Court Against Rajasthan HC Calling Tribunal Headed By Him 'Lethargic', Reducing Arbitral Fee
+https://www.livelaw.in/top-stories/supreme-court-jvvnl-hcl-discoms-528-crore-dispute-ex-sc-judge-plea-against-hc-order-calling-tribunal-lethargic-reducing-fee-545938
+
+[Read on Telegram](https://t.me/livelawindia/117442)
+
+---
+### 2026-08-15T08:23:47+00:00
+Hamirpur 'Gen Alpha' Students Walk 5 Km To Protest Lack Of Road To School; Allahabad High Court Takes Suo Motu Cognizance
+https://www.livelaw.in/high-court/allahabad-high-court/hamirpur-gen-alpha-students-walk-5-km-school-road-allahabad-hc-suo-motu-cognizance-545943
+
+[Read on Telegram](https://t.me/livelawindia/117443)
+
+---
+### 2026-08-15T08:27:47+00:00
+Plea In Supreme Court Seeks Term Limit For Bar Council Chairperson, Review Of BCI's Functioning
+https://www.livelaw.in/top-stories/plea-in-supreme-court-seeks-term-limit-for-bar-council-chairperson-review-of-bcis-functioning-545945
+
+[Read on Telegram](https://t.me/livelawindia/117444)
+
+---
+### 2026-08-15T08:33:07+00:00
+Allottee Who Knowingly Took Lease Of Lesser Area Can't Claim Benefit Of Zero Period In Entirety: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-allottee-knowingly-took-lease-lesser-area-claim-benefit-of-zero-period-545907
+
+[Read on Telegram](https://t.me/livelawindia/117445)
+
+---
+### 2026-08-15T09:08:17+00:00
+CJI Surya Kant Highlights Lawyers' Role In Freedom Struggle, Says Legal Fraternity Must Keep Constitutional Promise Alive
+https://www.livelaw.in/top-stories/cji-surya-kant-highlights-lawyers-role-in-freedom-struggle-says-legal-fraternity-must-keep-constitutional-promise-alive-545953
+
+[Read on Telegram](https://t.me/livelawindia/117446)
+
+---
+### 2026-08-15T09:32:17+00:00
+Does Banker's Books Evidence Bill, 2026 Meet Constitutional Demands Of Privacy And Electronic Evidence?
+https://www.livelaw.in/articles/banker-books-evidence-bill2026-privacy-electronic-evidence-545838
+
+[Read on Telegram](https://t.me/livelawindia/117447)
+
+---
+### 2026-08-15T09:32:27+00:00
+Zamindari Abolition Act | Land Claims Must Be Decided On Entire Chain Of Revenue Records, Not Isolated Entry: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-s229b-decided-entire-chain-revenue-entries-545914
+
+[Read on Telegram](https://t.me/livelawindia/117448)
+
+---
+### 2026-08-15T09:49:08+00:00
+Allahabad High Court Orders 30% Women's Reservation In Oudh Bar Association; President's Post Reserved From 2028 On Rotation Basis
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-30-percent-women-reservation-oudh-bar-association-president-2028-545958
+
+[Read on Telegram](https://t.me/livelawindia/117449)
+
+---
+### 2026-08-15T10:12:08+00:00
+Petrol Pump Owner Has No Locus To Challenge Approval To Rival Outlet Merely Due To Business Competition: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-petrol-pump-owner-locus-rival-outlet-noc-business-competition-545960
+
+[Read on Telegram](https://t.me/livelawindia/117450)
+
+---
+### 2026-08-15T10:33:18+00:00
+Allahabad High Court Raises Concern Over School Bus Drivers With Adverse Police Reports After Alleged Incidents Of Sexual Harassment Of Children
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-inspection-schools-verification-of-inspecting-staff-credentials-545924
+
+[Read on Telegram](https://t.me/livelawindia/117451)
+
+---
+### 2026-08-15T11:32:49+00:00
+Courts Must Strictly Follow 45-Day Timeline Under BNSS For Disposal Of Seized Property: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-strictly-follow-45day-timeline-bnss-disposal-of-seized-property-545925
+
+[Read on Telegram](https://t.me/livelawindia/117452)
+
+---
+### 2026-08-15T12:32:41+00:00
+Promotion Doesn't Wash Out Past Adverse Entries, Full Service Record Relevant For Compulsory Retirement: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-promotion-adverse-entries-entire-service-record-compulsory-retirement-545927
+
+[Read on Telegram](https://t.me/livelawindia/117453)
 
 ---
