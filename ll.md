@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-16T03:55:33+00:00*
+*Last Updated: 2026-08-16T04:48:03+00:00*
 
 ---
 
-### 2026-08-16T03:55:33+00:00
-2026 LiveLaw (SC) 808 | SHEELA GEHLOT Versus MOHINI HARDAYAL SINGH & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-808-sheela-gehlot-versus-mohini-hardayal-singh-ors-545999
-
-[Read on Telegram](https://t.me/livelawindia/117468)
-
----
-### 2026-08-16T04:32:13+00:00
-LiveLaw Karnataka High Court Monthly Digest: July 2026
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-monthly-digest-july2026-544373
-
-[Read on Telegram](https://t.me/livelawindia/117469)
-
----
-### 2026-08-16T04:32:33+00:00
-Overlooked 'Waiver Clause' In Construction Contracts And Effect Of Doctrine Of Acquiescence
-https://www.livelaw.in/articles/overlooked-waiver-clause-construction-contracts-effect-doctrine-of-acquiescence-545976
-
-[Read on Telegram](https://t.me/livelawindia/117470)
-
----
 ### 2026-08-16T04:48:03+00:00
 Parliament Monsoon Session 2026  Recap: 12 Bills Passed, Mostly Without Debate
 https://www.livelaw.in/news-updates/monsoon-session-parliament-2026-12-bills-passed-lok-sabha-rajya-sabha-545997
@@ -142,5 +121,26 @@ CJI Surya Kant Advises Against Prohibiting AI Tools In Law Schools; Says Student
 https://www.livelaw.in/top-stories/cji-surya-kant-advises-against-prohibition-of-ai-tools-in-law-schools-546013
 
 [Read on Telegram](https://t.me/livelawindia/117487)
+
+---
+### 2026-08-16T13:33:30+00:00
+Centre Shouldn't Sit On Recommendations Reiterated By Collegium : Justice KM Joseph
+https://www.livelaw.in/top-stories/centre-shouldnt-sit-on-recommendations-reiterated-by-collegium-justice-km-joseph-546014
+
+[Read on Telegram](https://t.me/livelawindia/117488)
+
+---
+### 2026-08-16T14:32:41+00:00
+Brahmaputra Floods: Assam's Unfinished Constitutional Promise
+https://www.livelaw.in/articles/brahmaputra-floods-assam-unfinished-constitutional-promise-545978
+
+[Read on Telegram](https://t.me/livelawindia/117489)
+
+---
+### 2026-08-16T15:02:11+00:00
+J&K Consumer Commission Directs New India Assurance To Pay ₹9.95 Lakh Over Unsettled Insurance Claim
+https://www.livelaw.in/consumer-cases/jk-consumer-commission-directs-new-india-assurance-to-pay-995-lakh-over-unsettled-insurance-claim-546015
+
+[Read on Telegram](https://t.me/livelawindia/117490)
 
 ---
