@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-16T12:32:36+00:00*
+*Last Updated: 2026-08-16T15:02:37+00:00*
+
+---
+
+### 2026-08-16T15:02:37+00:00
+Manager, Junior Executive (Law) Vacancy At Airports Authority of India (AAI)
+https://www.verdictum.in/job-updates/airports-authority-of-india-1619888
+
+[Source Link](https://t.me/verdictumlegalupdates/28557)
 
 ---
 
@@ -153,14 +161,6 @@ Calcutta High Court Calls For Balance Between Census Duties And Students' Educat
 https://www.verdictum.in/calcutta-high-court/balance-between-census-duties-and-students-education-1619871
 
 [Source Link](https://t.me/verdictumlegalupdates/28538)
-
----
-
-### 2026-08-14T10:33:06+00:00
-Why Can't State Govt Provide Employment: Supreme Court Stays Order Of HC On Govt Jobs To Relatives Of Karur Stampede Victims
-https://www.verdictum.in/supreme-court/order-of-hc-on-govt-jobs-to-relatives-of-karur-stampede-victims-1619866
-
-[Source Link](https://t.me/verdictumlegalupdates/28537)
 
 ---
 
