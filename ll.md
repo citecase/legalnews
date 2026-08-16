@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-15T13:47:52+00:00*
+*Last Updated: 2026-08-16T03:55:33+00:00*
 
 ---
 
-### 2026-08-15T13:47:52+00:00
-Defamation Case Against Rahul Gandhi : Pune Court Refuses To Allow Intervention Of Researcher Claiming Expertise On Savarkar
-https://www.livelaw.in/top-stories/pune-court-imposes-20k-cost-intervenor-deletion-material-savarkar-defamation-case-545980
-
-[Read on Telegram](https://t.me/livelawindia/117455)
-
----
-### 2026-08-15T14:03:52+00:00
-Bar Council Needs A Wise Counsel
-https://www.livelaw.in/articles/bar-council-needs-a-wise-counsel-545981
-
-[Read on Telegram](https://t.me/livelawindia/117456)
-
----
-### 2026-08-15T14:18:22+00:00
-BCI Chairperson Manan Kumar Mishra Apologises to Law Students Amid NALSAR Row
-https://www.livelaw.in/top-stories/bci-chairperson-manan-kumar-mishra-apologises-to-law-students-amid-nalsar-row-545982
-
-[Read on Telegram](https://t.me/livelawindia/117457)
-
----
-### 2026-08-15T14:32:23+00:00
-Infodemic Crisis: Impact Of Online Vaccine Messaging On Public Trust
-https://www.livelaw.in/lawschool/articles/infodemic-crisis-impact-online-vaccine-messaging-public-trust-545839
-
-[Read on Telegram](https://t.me/livelawindia/117458)
-
----
-### 2026-08-15T16:59:35+00:00
-Article 161 | Governor's Power To Grant Premature Release Cannot Be Exercised Arbitrarily: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-article-161-governor-premature-release-power-arbitrarily-545990
-
-[Read on Telegram](https://t.me/livelawindia/117459)
-
----
-### 2026-08-15T17:11:55+00:00
-New Lawyers' Collective 'LAFC' Formed in Delhi to Champion Constitutional Accountability and Judicial Transparency
-https://www.livelaw.in/news-updates/new-lawyers-collective-lafc-formed-in-delhi-to-champion-constitutional-accountability-and-judicial-transparency-545992
-
-[Read on Telegram](https://t.me/livelawindia/117460)
-
----
-### 2026-08-15T17:13:15+00:00
-Durg DLSA Takes 'Justice on Wheels' Via Bullock Cart On Hareli, Covers 5 Villages In 5 Days For Community Mediation
-https://www.livelaw.in/events/durg-dlsa-takes-justice-on-wheels-via-bullock-cart-on-hareli-covers-5-villages-in-5-days-for-community-mediation-545993
-
-[Read on Telegram](https://t.me/livelawindia/117461)
-
----
-### 2026-08-15T17:23:35+00:00
-[Advertisement] Project 39A At NLU Delhi Launches Online Certificate Course On "Capital Punishment In India: Law, Practice And Justice" – Register Now!
-https://www.livelaw.in/lawschool/diploma-certificate-courses/project-39a-nlu-delhi-launches-online-certificate-course-545994
-
-[Read on Telegram](https://t.me/livelawindia/117462)
-
----
-### 2026-08-16T03:03:02+00:00
-Supreme Court Seeks Centre's Response On Plea To Ensure Social Media Intermediaries Remove Child Sexual Exploitation & Abuse Materials
-https://www.livelaw.in/top-stories/supreme-court-seeks-centres-response-on-plea-to-ensure-social-media-intermediaries-remove-child-sexual-exploitation-abuse-materials-545963
-
-[Read on Telegram](https://t.me/livelawindia/117463)
-
----
-### 2026-08-16T03:27:52+00:00
-Supreme Court Dismisses Plea Seeking National Fire & Life Safety Framework For High-Risk Public Premises
-https://www.livelaw.in/top-stories/supreme-court-dismisses-plea-seeking-national-fire-life-safety-framework-for-high-risk-public-premises-545964
-
-[Read on Telegram](https://t.me/livelawindia/117464)
-
----
-### 2026-08-16T03:28:22+00:00
-Supreme Court Weekly Roundup: July 27, 2026 To August 02, 2026
-https://www.livelaw.in/round-ups/weekly/supreme-court-weekly-roundup-july-27-2026-to-august-02-2026-545996
-
-[Read on Telegram](https://t.me/livelawindia/117465)
-
----
-### 2026-08-16T03:32:22+00:00
-LiveLaw Supreme Court Monthly Digest: July 2026
-https://www.livelaw.in/supreme-court/supreme-court-monthly-digest-july-2026-545934
-
-[Read on Telegram](https://t.me/livelawindia/117466)
-
----
-### 2026-08-16T03:54:13+00:00
-CPC | Residential Property Exemption u/s 60(1)(ccc) Is Personal To Judgment-Debtor; LR Can't Claim : Supreme Court
-https://www.livelaw.in/supreme-court/cpc-residential-property-exemption-us-601ccc-is-personal-to-judgment-debtor-lr-cant-claim-supreme-court-545998
-
-[Read on Telegram](https://t.me/livelawindia/117467)
-
----
 ### 2026-08-16T03:55:33+00:00
 2026 LiveLaw (SC) 808 | SHEELA GEHLOT Versus MOHINI HARDAYAL SINGH & ORS.
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-808-sheela-gehlot-versus-mohini-hardayal-singh-ors-545999
@@ -142,5 +51,96 @@ Supreme Court Declares August 27 Holiday; August 22 To Be Working Day Instead
 https://www.livelaw.in/news-updates/supreme-court-declares-august-27-holiday-august-22-to-be-working-day-instead-546003
 
 [Read on Telegram](https://t.me/livelawindia/117474)
+
+---
+### 2026-08-16T06:49:45+00:00
+LiveLaw Allahabad High Court Weekly Round Up: August 10 - August 16, 2026
+https://www.livelaw.in/high-court/allahabad-high-court/livelaw-allahabad-high-court-weekly-round-up-august-10-august-16-2026-546004
+
+[Read on Telegram](https://t.me/livelawindia/117475)
+
+---
+### 2026-08-16T07:06:05+00:00
+NALSAR-BCI: An Assault On Constitutional Values
+https://www.livelaw.in/articles/nalsar-bci-assault-constitutional-values-546005
+
+[Read on Telegram](https://t.me/livelawindia/117476)
+
+---
+### 2026-08-16T07:07:35+00:00
+Jantar Mantar Protests : PIL In Supreme Court Seeks Proper Investigation Of Delhi Police FIRs
+https://www.livelaw.in/top-stories/supreme-court-plea-against-judicial-superintendence-of-police-investigation-jantar-mantar-protest-firs-cjp-founder-abhijeet-dipke-546001
+
+[Read on Telegram](https://t.me/livelawindia/117477)
+
+---
+### 2026-08-16T07:16:15+00:00
+Consultant (Legal Cell) Vacancy At Ministry Of External Affairs (MEA), New Delhi
+https://www.livelaw.in/job-updates/consultant-legal-cell-vacancy-at-ministry-of-external-affairs-mea-new-delhi-546006
+
+[Read on Telegram](https://t.me/livelawindia/117478)
+
+---
+### 2026-08-16T07:16:55+00:00
+Transfer Cop Seen On Video 'Parading & Flogging' Accused In Public, Orally Says Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-surat-cop-transfer-parading-flogging-video-546007
+
+[Read on Telegram](https://t.me/livelawindia/117479)
+
+---
+### 2026-08-16T07:17:35+00:00
+Section Officer Vacancy At Karnataka State Legal Services Authority, Bengaluru
+https://www.livelaw.in/job-updates/section-officer-vacancy-at-karnataka-state-legal-services-authority-bengaluru-546008
+
+[Read on Telegram](https://t.me/livelawindia/117480)
+
+---
+### 2026-08-16T08:32:26+00:00
+Bharatiya Nagarik Suraksha Sanhita (BNSS) and Bharatiya Nyaya Sanhita (BNS) Monthly Digest: July 2026
+https://www.livelaw.in/top-stories/bnss-bns-monthly-digest-july-2026-545646
+
+[Read on Telegram](https://t.me/livelawindia/117481)
+
+---
+### 2026-08-16T08:59:36+00:00
+LiveLaw Supreme Court Half Yearly Digest 2026 - BSA & Indian Evidence Act
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-bharatiya-sakshya-adhiniyam-evidence-act-half-yearly-digest-546009
+
+[Read on Telegram](https://t.me/livelawindia/117482)
+
+---
+### 2026-08-16T09:32:17+00:00
+Collegium Must Speak But With Institutional Restraint
+https://www.livelaw.in/articles/collegium-speak-institutional-restraint-545977
+
+[Read on Telegram](https://t.me/livelawindia/117483)
+
+---
+### 2026-08-16T11:27:29+00:00
+'Both Press & Judiciary Have Failed Us, Why?' Kapil Sibal
+https://www.livelaw.in/top-stories/both-press-judiciary-have-failed-us-why-kapil-sibal-546010
+
+[Read on Telegram](https://t.me/livelawindia/117484)
+
+---
+### 2026-08-16T11:47:09+00:00
+Legal Representatives Can Claim Motor Accident Compensation Even Without Financial Dependency On Deceased : Supreme Court
+https://www.livelaw.in/supreme-court/legal-representatives-can-claim-motor-accident-compensation-even-without-financial-dependency-on-deceased-supreme-court-546011
+
+[Read on Telegram](https://t.me/livelawindia/117485)
+
+---
+### 2026-08-16T11:48:09+00:00
+2026 LiveLaw (SC) 809 | SAMEEM BEGUM AND OTHERS VERSUS K. VENKAT SWAMY AND ANOTHER
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-809-sameem-begum-and-others-versus-k-venkat-swamy-and-another-546012
+
+[Read on Telegram](https://t.me/livelawindia/117486)
+
+---
+### 2026-08-16T12:03:29+00:00
+CJI Surya Kant Advises Against Prohibiting AI Tools In Law Schools; Says Students Must Be Taught To Use Them Properly
+https://www.livelaw.in/top-stories/cji-surya-kant-advises-against-prohibition-of-ai-tools-in-law-schools-546013
+
+[Read on Telegram](https://t.me/livelawindia/117487)
 
 ---
