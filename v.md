@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-16T06:32:13+00:00*
+*Last Updated: 2026-08-16T12:32:36+00:00*
+
+---
+
+### 2026-08-16T12:32:36+00:00
+Allahabad High Court Upholds OMCs' Customer Transfer Policy; Says Distributors Cannot Challenge Customer Base Reduction Without Assailing Underlying Covenants
+https://www.verdictum.in/allahabad-high-court/2026-ahc-166335-db-vikramaditya-gas-agencies-v-union-of-india-1619977
+
+[Source Link](https://t.me/verdictumlegalupdates/28556)
+
+---
+
+### 2026-08-16T10:32:55+00:00
+Officer In-Charge Of Women Police Station Not Public Servant To Whom Allegedly False Statements Were Made: Supreme Court Quashes Section 182 IPC Proceedings
+https://www.verdictum.in/supreme-court/a-v-state-of-himachal-pradesh-2026-insc-856-officer-in-charge-women-police-station-sec182-ipc-1619976
+
+[Source Link](https://t.me/verdictumlegalupdates/28555)
+
+---
+
+### 2026-08-16T08:32:14+00:00
+Suspension Of BCI Enrolment Not Necessary For Advocates Acting As Insolvency Professionals; But Liable To GST Under Forward Charge Mechanism: Delhi High Court
+https://www.verdictum.in/delhi-high-court/kanwal-chaudhary-v-insolvency-and-bankruptcy-board-of-india-ors-2026dhc6587-db-1619972
+
+[Source Link](https://t.me/verdictumlegalupdates/28554)
 
 ---
 
@@ -137,30 +161,6 @@ Why Can't State Govt Provide Employment: Supreme Court Stays Order Of HC On Govt
 https://www.verdictum.in/supreme-court/order-of-hc-on-govt-jobs-to-relatives-of-karur-stampede-victims-1619866
 
 [Source Link](https://t.me/verdictumlegalupdates/28537)
-
----
-
-### 2026-08-14T09:52:25+00:00
-Aggrieved Individuals Can Always Approach: Supreme Court Affirms Quashing Of FIR Against Chandrababu Naidu In Andhra Pradesh Land Pooling Case
-https://www.verdictum.in/supreme-court/fir-n-chandrababu-naidu-in-andhra-pradesh-land-pooling-case-1619869
-
-[Source Link](https://t.me/verdictumlegalupdates/28536)
-
----
-
-### 2026-08-14T09:12:24+00:00
-Delhi High Court Receives Bomb threat Via Email Ahead Of Independence Day
-https://www.verdictum.in/news/delhi-high-court-bomb-threat-independence-day-1619867
-
-[Source Link](https://t.me/verdictumlegalupdates/28535)
-
----
-
-### 2026-08-14T08:32:43+00:00
-Supreme Court Quashes Defamation Complaint Against Rahul Gandhi Over Savarkar Remarks
-https://www.verdictum.in/supreme-court/defamation-complaint-against-rahul-gandhi-over-savarkar-remarks-1619865
-
-[Source Link](https://t.me/verdictumlegalupdates/28534)
 
 ---
 
