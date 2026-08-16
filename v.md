@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-15T15:03:16+00:00*
+*Last Updated: 2026-08-16T06:32:13+00:00*
+
+---
+
+### 2026-08-16T06:32:13+00:00
+Madras High Court Allows Bars & Hotels To Claim Refund Of Liquor License And Privilege Fees For Closure During COVID Lockdown
+https://www.verdictum.in/madras-high-court/state-of-tamil-nadu-anr-v-the-suguna-vilasa-sabha-connected-matters-1619963
+
+[Source Link](https://t.me/verdictumlegalupdates/28553)
+
+---
+
+### 2026-08-16T04:33:12+00:00
+Magistrate Can Explicitly Name Accused U/S.176(1-A) CrPC: Madhya Pradesh High Court Upholds Enquiry Report In Custodial Death Case
+https://www.verdictum.in/madhya-pradesh-high-court/raja-ram-dangi-v-the-state-of-madhya-pradesh-2026mphc-ind21865-magistrate-sec1761-a-crpc-1619957
+
+[Source Link](https://t.me/verdictumlegalupdates/28552)
 
 ---
 
@@ -145,22 +161,6 @@ Supreme Court Quashes Defamation Complaint Against Rahul Gandhi Over Savarkar Re
 https://www.verdictum.in/supreme-court/defamation-complaint-against-rahul-gandhi-over-savarkar-remarks-1619865
 
 [Source Link](https://t.me/verdictumlegalupdates/28534)
-
----
-
-### 2026-08-14T07:53:03+00:00
-Manipur Blockades: Supreme Court Seeks Proposals From Kuki & Meitei Organizations To Reopen Highways, Impleads NHAI
-https://www.verdictum.in/supreme-court/manipur-highway-blockade-seeks-proposals-kuki-meitei-organizations-impleads-nhai-1619858
-
-[Source Link](https://t.me/verdictumlegalupdates/28533)
-
----
-
-### 2026-08-14T07:12:22+00:00
-Remand Not To Be Adopted In Ordinary Course When Parties Have Adduced Evidence In Accordance With Burden & Onus of Proof Fastened On Them: Supreme Court
-https://www.verdictum.in/supreme-court/shivappa-v-shantavva-and-others-2026-insc-857-remand-evidence-burden-onus-proof-1619854
-
-[Source Link](https://t.me/verdictumlegalupdates/28532)
 
 ---
 
