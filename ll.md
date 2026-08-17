@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-17T10:46:38+00:00*
+*Last Updated: 2026-08-17T12:51:50+00:00*
 
 ---
 
-### 2026-08-17T10:46:38+00:00
-2026 LiveLaw (SC) 812 | SHIVAPPA VERSUS SHANTAVVA AND OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-812-shivappa-versus-shantavva-and-others-546112
-
-[Read on Telegram](https://t.me/livelawindia/117546)
-
----
-### 2026-08-17T10:51:18+00:00
-Pendency Of Criminal Case No Ground To Deny Police Clearance Certificate, Applicant's Involvement In Crime Can Be Disclosed: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/criminal-case-section-59-of-kerala-police-act-546114
-
-[Read on Telegram](https://t.me/livelawindia/117547)
-
----
-### 2026-08-17T11:03:49+00:00
-BCI Being Regulatory Body Can't Run Law College :  Prashant Bhushan Tells Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-prashant-bhushan-says-petition-against-bci-running-law-college-will-be-filed-shanti-act-conflict-of-interest-546115
-
-[Read on Telegram](https://t.me/livelawindia/117548)
-
----
-### 2026-08-17T11:24:49+00:00
-Calcutta High Court To Hear TMC MP Abhishek Banerjee's Plea Challenging Alleged Freeze Of Personal Bank Account
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-to-hear-tmc-mp-abhishek-banerjees-plea-challenging-alleged-freeze-of-personal-bank-account-546117
-
-[Read on Telegram](https://t.me/livelawindia/117549)
-
----
-### 2026-08-17T11:28:09+00:00
-Evidence Act | S.69 Can Be Invoked To Prove Will Only If Impossible To Prove Attestation Under S. 68: Supreme Court
-https://www.livelaw.in/supreme-court/evidence-act-s69-can-be-invoked-to-prove-will-only-if-impossible-to-prove-attestation-under-s-68-supreme-court-546118
-
-[Read on Telegram](https://t.me/livelawindia/117550)
-
----
-### 2026-08-17T11:29:09+00:00
-2026 LiveLaw (SC) 813 | PAZHANATHAL (DEAD) THROUGH LRS. & ORS. VERSUS ALAMATHAL (DEAD) THROUGH LRS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-813-pazhanathal-dead-through-lrs-ors-versus-alamathal-dead-through-lrs-546119
-
-[Read on Telegram](https://t.me/livelawindia/117551)
-
----
-### 2026-08-17T11:35:29+00:00
-'Serious Issue': Bombay High Court Initiates Suo Motu PIL Over Water Shortage At Mumbai University Girl's Hostel
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-suo-motu-cognisance-water-shortage-university-of-mumbai-girls-hostel-546120
-
-[Read on Telegram](https://t.me/livelawindia/117552)
-
----
-### 2026-08-17T11:42:29+00:00
-'Honorarium' Cannot Be Used To Deny Dignified Wages: Bombay High Court Directs Minimum Wages For Community Health Volunteers
-https://www.livelaw.in/high-court/bombay-high-court/mcgm-pay-minimum-wages-community-health-volunteers-546024
-
-[Read on Telegram](https://t.me/livelawindia/117553)
-
----
-### 2026-08-17T11:44:29+00:00
-AIADMK MLAs' Resignation Was Accepted After Ensuring It Was Voluntary, Suffers No Infirmity: TN Speaker To Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-aiadmk-mla-resignation-voluntary-no-infirmity-speaker-546122
-
-[Read on Telegram](https://t.me/livelawindia/117554)
-
----
-### 2026-08-17T12:01:20+00:00
-Bengaluru Street Vendors Move High Court Against Eviction Drive, Say SC's Right To Walk Ruling Doesn't Permit Eviction Without Due Process
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-street-vendors-illegal-eviction-enforcement-street-vendors-act-safeguards-546129
-
-[Read on Telegram](https://t.me/livelawindia/117555)
-
----
-### 2026-08-17T12:02:40+00:00
-LiveLaw Madhya Pradesh High Court Weekly Roundup: August 10 - August 16, 2026
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-weekly-digest-august-10-to-august-16-2026-546126
-
-[Read on Telegram](https://t.me/livelawindia/117556)
-
----
-### 2026-08-17T12:10:20+00:00
-HNLU Celebrates 80th Independence Day With Gandhi Memorial Lecture
-https://www.livelaw.in/lawschool/news/hnlu-celebrates-80th-independence-day-with-gandhi-memorial-lecture-546131
-
-[Read on Telegram](https://t.me/livelawindia/117557)
-
----
-### 2026-08-17T12:16:20+00:00
-Over 98000 Govt Schools Lack Functional Washrooms For Girls : Plea In Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-girls-government-schools-proper-sanitation-facilities-important-issue-matter-sent-to-justice-jb-pardiwala-bench-546133
-
-[Read on Telegram](https://t.me/livelawindia/117558)
-
----
-### 2026-08-17T12:23:20+00:00
-How Indian Courts Are Expanding Protection Against Trademark Infringement
-https://www.livelaw.in/law-firms/law-firm-articles-/how-indian-courts-are-expanding-protection-against-trademark-infringement-546134
-
-[Read on Telegram](https://t.me/livelawindia/117559)
-
----
-### 2026-08-17T12:27:00+00:00
-Failure To Keep Track Of Case: J&K Consumer Commission Dismisses Savy Fashions' Restoration Plea Over Prolonged Delay
-https://www.livelaw.in/consumer-cases/failure-to-keep-track-of-case-jk-consumer-commission-dismisses-savy-fashions-restoration-plea-over-prolonged-delay-546135
-
-[Read on Telegram](https://t.me/livelawindia/117560)
-
----
-### 2026-08-17T12:27:20+00:00
-IPL Betting Case: MP High Court Refuses To Quash Cheating, Gambling FIR Against OTT-Fame Satish Sanpal
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/satish-sanpal-fir-ipl-betting-racket-gambling-cheating-546136
-
-[Read on Telegram](https://t.me/livelawindia/117561)
-
----
-### 2026-08-17T12:34:20+00:00
-Allahabad High Court Slams UP Govt For Acquiring Land For Ayodhya Ram Mandir Without Paying Agreed Price
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-state-taking-land-ayodhya-development-ram-janm-bhoomi-546137
-
-[Read on Telegram](https://t.me/livelawindia/117562)
-
----
-### 2026-08-17T12:35:20+00:00
-Mere Official Reprimand By Superior Not Abetment Of Suicide Without Intent To Drive Subordinate To Death  : Supreme Court
-https://www.livelaw.in/supreme-court/mere-official-reprimand-by-superior-not-abetment-of-suicide-supreme-court-546138
-
-[Read on Telegram](https://t.me/livelawindia/117563)
-
----
-### 2026-08-17T12:37:00+00:00
-2026 LiveLaw (SC) 814 | Vinod Shivakumar v State of Maharashtra
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-814-vinod-shivakumar-v-state-of-maharashtra-546139
-
-[Read on Telegram](https://t.me/livelawindia/117564)
-
----
 ### 2026-08-17T12:51:50+00:00
 Nathuram Godse & Gopal Godse Convicts In Mahatma Gandhi's Murder; Were Active RSS Members : Savarkar's Kin Tells Pune Court
 https://www.livelaw.in/top-stories/nathuram-godse-gopal-godse-convicts-in-mahatma-gandhis-murder-were-active-rss-members-savarkars-kin-tells-pune-court-546141
 
 [Read on Telegram](https://t.me/livelawindia/117565)
+
+---
+### 2026-08-17T13:02:44+00:00
+Bombay High Court Directs Probate Grants To Be Issued Within 2 Weeks Of Court Order, Bars Subsequent Caveats
+https://www.livelaw.in/high-court/bombay-high-court/testamentary-officers-drop-rider-requiring-post-facto-verification-546026
+
+[Read on Telegram](https://t.me/livelawindia/117566)
+
+---
+### 2026-08-17T13:03:14+00:00
+'To Preserve Confidence In Justice', Kerala High Court Transfers Family Court Case Over  Litigant's Apprehension Of Bias
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-bias-test-transfer-case-546142
+
+[Read on Telegram](https://t.me/livelawindia/117567)
+
+---
+### 2026-08-17T13:14:35+00:00
+Declared Foreigner Who Re-Entered India After Expulsion Not Entitled To Bail Despite Prolonged Detention: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-person-expelled-india-reentered-illegally-not-entitled-bail-prolonged-detention-546145
+
+[Read on Telegram](https://t.me/livelawindia/117568)
+
+---
+### 2026-08-17T13:17:35+00:00
+Buying Medical College Seat Not Commercial Dispute: P&H High Court Denies Anticipatory Bail In NEET-PG Admission Fraud Case
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/neet-pg-admission-fraud-buying-medical-college-seat-not-commercial-dispute-546143
+
+[Read on Telegram](https://t.me/livelawindia/117569)
+
+---
+### 2026-08-17T13:26:15+00:00
+Karnataka High Court Stays Criminal Case Against Hindu Activist Satish Pujari Over Banner Depicting Shivaji Maharaj Slaying Afzal Khan
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-grants-interim-stay-activist-satish-pujari-davanagere-ganesh-festival-row-546147
+
+[Read on Telegram](https://t.me/livelawindia/117570)
+
+---
+### 2026-08-17T13:31:15+00:00
+No State Can Block Elephant Corridor Citing Harm To Persons Or Property : Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-orders-nationwide-survey-human-elephant-conflict-burning-mashaal-iron-spike-there-cant-be-blockade-of-elephant-corridors-546149
+
+[Read on Telegram](https://t.me/livelawindia/117571)
+
+---
+### 2026-08-17T13:35:15+00:00
+LiveLaw Daily | Rahul Gandhi | AAP | Ram Mandir | Transgender Rights & More
+https://www.livelaw.in/podcast/ram-mandir-aap-arvind-kejriwal-rahul-gandhi-news-india-daily-legal-law-roundup-students-clat-judiciary-upsc-exam-prep-546150
+
+[Read on Telegram](https://t.me/livelawindia/117572)
+
+---
+### 2026-08-17T13:38:35+00:00
+Punjab Civil Service Rules | Disciplinary Authority Dissatisfied With Enquiry Report Can Order Further Enquiry, Not Fresh One: High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/disciplinary-authority-dissatisfied-with-enquiry-report-can-remit-for-further-enquiry-not-order-fresh-546151
+
+[Read on Telegram](https://t.me/livelawindia/117573)
+
+---
+### 2026-08-17T13:57:05+00:00
+Compassionate Appointment Policy Doesn't Differentiate Between Boy & Girl; 'First Child' Means First-Born Irrespective Of Gender: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-compassionate-appointment-granted-to-first-child-irrespective-of-gender-546154
+
+[Read on Telegram](https://t.me/livelawindia/117574)
+
+---
+### 2026-08-17T13:59:05+00:00
+Speedy Trial Also A Right Of Victim; Accused Cannot Use Pending Gangsters Act Case To Stall Other Trials : Supreme Court
+https://www.livelaw.in/supreme-court/speedy-trial-also-a-right-of-victim-accused-cannot-use-pending-gangsters-act-case-to-stall-other-trials-supreme-court-546155
+
+[Read on Telegram](https://t.me/livelawindia/117575)
+
+---
+### 2026-08-17T14:01:25+00:00
+2026 LiveLaw (SC) 815 | Keshvendra Singh Versus Shankar Singh And Anr.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-815-keshvendra-singh-versus-shankar-singh-and-anr-546156
+
+[Read on Telegram](https://t.me/livelawindia/117576)
+
+---
+### 2026-08-17T14:33:06+00:00
+CCTV In Hotel Restaurant Kitchens, Digital Extension Of FSS Act
+https://www.livelaw.in/articles/cctv-hotel-restaurant-kitchens-digital-extension-fss-act-546018
+
+[Read on Telegram](https://t.me/livelawindia/117577)
+
+---
+### 2026-08-17T15:11:16+00:00
+'Black Money In Elections Corrupts Democracy': Supreme Court Issues Directions To Curb Use Of Unaccounted Cash During Polls
+https://www.livelaw.in/top-stories/black-money-in-elections-corrupts-democracy-supreme-court-issues-directions-to-curb-use-of-unaccounted-cash-during-polls-546178
+
+[Read on Telegram](https://t.me/livelawindia/117578)
+
+---
+### 2026-08-17T15:12:56+00:00
+2026 LiveLaw (SC) 816 |  State of Karnataka & Anr. v Prathik Parasrampuria
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-816-state-of-karnataka-anr-v-prathik-parasrampuria-546179
+
+[Read on Telegram](https://t.me/livelawindia/117579)
+
+---
+### 2026-08-17T15:56:06+00:00
+NDPS | Supreme Court Issues Directions To Curb Fake Sureties In Foreigners' Bail In Drug Cases
+https://www.livelaw.in/top-stories/ndps-supreme-court-issues-directions-to-curb-fake-sureties-in-foreigners-bail-in-drug-cases-546181
+
+[Read on Telegram](https://t.me/livelawindia/117580)
+
+---
+### 2026-08-17T15:57:06+00:00
+2026 LiveLaw (SC) 817 | Union of India v. Chidiebere Kingsley Nawchara & Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-817-union-of-india-v-chidiebere-kingsley-nawchara-ors-546182
+
+[Read on Telegram](https://t.me/livelawindia/117581)
+
+---
+### 2026-08-17T16:32:16+00:00
+BREAKING | 'AK 47 Fired During Student Protests But None Injured' : Bihar Govt Tells Supreme Court, Denies Using Excessive Force
+https://www.livelaw.in/top-stories/supreme-court-student-protests-bihar-counter-no-one-injured-by-ak47-no-disproportionate-force-police-personnel-injured-anti-social-elements-part-of-mob-546184
+
+[Read on Telegram](https://t.me/livelawindia/117582)
+
+---
+### 2026-08-17T16:50:56+00:00
+LiveLaw High Courts Daily Highlights: August 17, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-august-17-2026-546185
+
+[Read on Telegram](https://t.me/livelawindia/117583)
+
+---
+### 2026-08-17T17:17:26+00:00
+Supreme Court Daily Round-Up : August 17, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-17-2026-546183
+
+[Read on Telegram](https://t.me/livelawindia/117584)
 
 ---
