@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-17T13:02:11+00:00*
+*Last Updated: 2026-08-17T16:09:41+00:00*
+
+---
+
+### 2026-08-17T16:09:41+00:00
+Legal Researcher Vacancy At Rajasthan High Court, Jodhpur
+https://www.verdictum.in/job-updates/rajasthan-high-court-1620045
+
+[Source Link](https://t.me/verdictumlegalupdates/28580)
+
+---
+
+### 2026-08-17T15:32:49+00:00
+State Cannot Usurp Citizens’ Property: Gauhati High Court Directs CRPF To Hand Over Vacant Possession Of Land
+https://www.verdictum.in/guwahati-high-court/smt-crisceda-ruth-rapoza-and-2-ors-v-the-union-of-india-and-4-ors-2026gau-as10474-1620044
+
+[Source Link](https://t.me/verdictumlegalupdates/28579)
+
+---
+
+### 2026-08-17T15:03:07+00:00
+Private Documents Obtained Through RTI Can’t Automatically Be Treated As Public Documents Or Certified Copies: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/rajeshbhai-krushnakant-jariwala-ors-v-falguniben-kamalkant-jariwala-ors-1620042
+
+[Source Link](https://t.me/verdictumlegalupdates/28578)
+
+---
+
+### 2026-08-17T14:32:31+00:00
+Weekly Overview| Supreme Court Judgments: August 10 – August 14, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-august-10-august-14-2026-1620043
+
+[Source Link](https://t.me/verdictumlegalupdates/28577)
+
+---
+
+### 2026-08-17T14:02:49+00:00
+Luring Minor Under False Identity & Fake Promise Of Love To Sell Her To Brothel Shows Deceitful Intent U/S 366 IPC: Gauhati High Court
+https://www.verdictum.in/guwahati-high-court/jahanuddin-sk-ali-jiban-raju-das-v-the-state-of-assam-2026gau-as9594-db-us-366-ipc-luring-minor-under-false-identity-sell-brothel-1620041
+
+[Source Link](https://t.me/verdictumlegalupdates/28576)
+
+---
+
+### 2026-08-17T13:33:06+00:00
+Transitional Area Retains Rural Character Until Final Notification Declaring It A Municipality Under Article 243-Q Of Constitution: Supreme Court
+https://www.verdictum.in/supreme-court/adarsh-dinkar-sontakke-minor-ors-etc-v-navodaya-vidyalaya-samiti-ors-etc-2026-insc-865-1620040
+
+[Source Link](https://t.me/verdictumlegalupdates/28575)
 
 ---
 
@@ -113,54 +161,6 @@ Power To Litigate Seems Unlimited: Supreme Court Imposes ₹10L Costs On Relianc
 https://www.verdictum.in/supreme-court/reliance-industries-limited-v-ntpc-limited-2026-insc-862-litigate-cost-delay-commercial-suit-1620008
 
 [Source Link](https://t.me/verdictumlegalupdates/28561)
-
----
-
-### 2026-08-17T06:03:17+00:00
-Proof Of Thumb Impression & Handwriting Does Not Conclude Enquiry Into Validity Of Will: Supreme Court
-https://www.verdictum.in/supreme-court/pazhanathal-dead-through-lrs-v-alamathal-dead-through-lrs-2026-insc-860-proof-of-thumb-impression-handwriting-1620003
-
-[Source Link](https://t.me/verdictumlegalupdates/28560)
-
----
-
-### 2026-08-17T05:13:56+00:00
-National Security: Rajasthan High Court Dismisses Pleas Challenging Eviction Notices To Mosques, Madrasas & Dargahs Near Indo-Pak Border
-https://www.verdictum.in/rajasthan-high-court/peer-mohammad-shah-jilani-dargah-samiti-v-state-of-rajasthan-2026rj-jp30648-madrasas-and-dargahs-near-indo-pak-border-1619998
-
-[Source Link](https://t.me/verdictumlegalupdates/28559)
-
----
-
-### 2026-08-17T04:32:26+00:00
-Can’t Blithely Ignore Bank Accounting System: Supreme Court Holds PNB Entitled To Claim Interest Maintained In Separate Suspense Account
-https://www.verdictum.in/supreme-court/punjab-national-bank-v-ms-shree-jyoti-education-and-management-trust-world-2026-insc-836-trust-accounting-system-suspense-account-1619989
-
-[Source Link](https://t.me/verdictumlegalupdates/28558)
-
----
-
-### 2026-08-16T15:02:37+00:00
-Manager, Junior Executive (Law) Vacancy At Airports Authority of India (AAI)
-https://www.verdictum.in/job-updates/airports-authority-of-india-1619888
-
-[Source Link](https://t.me/verdictumlegalupdates/28557)
-
----
-
-### 2026-08-16T12:32:36+00:00
-Allahabad High Court Upholds OMCs' Customer Transfer Policy; Says Distributors Cannot Challenge Customer Base Reduction Without Assailing Underlying Covenants
-https://www.verdictum.in/allahabad-high-court/2026-ahc-166335-db-vikramaditya-gas-agencies-v-union-of-india-1619977
-
-[Source Link](https://t.me/verdictumlegalupdates/28556)
-
----
-
-### 2026-08-16T10:32:55+00:00
-Officer In-Charge Of Women Police Station Not Public Servant To Whom Allegedly False Statements Were Made: Supreme Court Quashes Section 182 IPC Proceedings
-https://www.verdictum.in/supreme-court/a-v-state-of-himachal-pradesh-2026-insc-856-officer-in-charge-women-police-station-sec182-ipc-1619976
-
-[Source Link](https://t.me/verdictumlegalupdates/28555)
 
 ---
 
