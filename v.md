@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-17T07:16:40+00:00*
+*Last Updated: 2026-08-17T13:02:11+00:00*
+
+---
+
+### 2026-08-17T13:02:11+00:00
+Supreme Court Declines Nirmohi Akhara Plea For Reconstitution Of Ram Temple Trust
+https://www.verdictum.in/supreme-court/nirmohi-akhara-plea-for-reconstitution-of-ram-temple-trust-declined-1620038
+
+[Source Link](https://t.me/verdictumlegalupdates/28574)
+
+---
+
+### 2026-08-17T12:32:09+00:00
+Supreme Court Agrees To Examine BJP Leader Yogender Chandolia's Plea Against AAP MLA Vishesh Ravi's Election
+https://www.verdictum.in/supreme-court/bjp-leader-yogender-chandolias-plea-against-aap-mla-vishesh-ravis-election-1620037
+
+[Source Link](https://t.me/verdictumlegalupdates/28573)
+
+---
+
+### 2026-08-17T12:02:48+00:00
+Bombay High Court Imposes Rs 5 Lakh Cost On FDA For Keeping Pune Shop License Suspended Despite Compliance
+https://www.verdictum.in/bombay-high-court/rs-5-lakh-cost-on-fda-for-keeping-pune-shop-license-suspended-despite-compliance-1620036
+
+[Source Link](https://t.me/verdictumlegalupdates/28572)
+
+---
+
+### 2026-08-17T11:32:47+00:00
+Ensure Compliance With CWMA Directions On Cauvery Water Release To Tamil Nadu: Supreme Court Says To Karnataka
+https://www.verdictum.in/supreme-court/cwma-directions-on-cauvery-water-release-to-tamil-nadu-1620033
+
+[Source Link](https://t.me/verdictumlegalupdates/28571)
+
+---
+
+### 2026-08-17T10:53:06+00:00
+Blocking Corridors Can't Be A Solution: Apex Court Orders Fresh Survey Of Elephant Corridors, Asks Centre To Consider Ban On Fireballs And Hulla Parties
+https://www.verdictum.in/supreme-court/fresh-survey-of-elephant-corridors-fireballs-and-hulla-parties-1620035
+
+[Source Link](https://t.me/verdictumlegalupdates/28570)
+
+---
+
+### 2026-08-17T10:32:45+00:00
+Supreme Court Seeks Centre’s Response On Nuclear Accident Compensation & Regulatory Conflict Of Interest Under SHANTI Act
+https://www.verdictum.in/supreme-court/nuclear-accident-compensation-regulatory-conflict-of-interest-under-shanti-act-1620030
+
+[Source Link](https://t.me/verdictumlegalupdates/28569)
+
+---
+
+### 2026-08-17T10:02:24+00:00
+Apex Court Refers PIL Concerning Lack Of Functional Toilets In Schools To Bench Which Laid Guidelines Related To Menstrual Health
+https://www.verdictum.in/supreme-court/pil-lack-of-functional-toilets-in-schools-to-bench-guidelines-menstrual-health-1620029
+
+[Source Link](https://t.me/verdictumlegalupdates/28568)
+
+---
+
+### 2026-08-17T09:33:03+00:00
+Supreme Court Refuses To Interfere With ECI's Decision To Keep 2002 As Base Year For SIR In Sikkim
+https://www.verdictum.in/supreme-court/ecis-decision-to-keep-2002-as-base-year-for-sir-in-sikkim-1620026
+
+[Source Link](https://t.me/verdictumlegalupdates/28567)
+
+---
+
+### 2026-08-17T08:42:43+00:00
+Transgender Identity Cards Already Issued Will Remain Operational: Centre Tells Supreme Court
+https://www.verdictum.in/supreme-court/transgender-identity-cards-issued-before-amendment-act-2026-remain-operational-1620027
+
+[Source Link](https://t.me/verdictumlegalupdates/28566)
+
+---
+
+### 2026-08-17T08:33:01+00:00
+Supreme Court Agrees To Consider Setting Up Fresh Bench To Hear Review Plea On Bengaluru Iskcon Temple’s Verdict
+https://www.verdictum.in/supreme-court/plea-on-bengaluru-iskcon-temples-verdict-review-1620014
+
+[Source Link](https://t.me/verdictumlegalupdates/28565)
+
+---
+
+### 2026-08-17T08:02:20+00:00
+Consortium Is An Indispensable Head For Awarding Just Motor Accident Compensation: Supreme Court
+https://www.verdictum.in/supreme-court/sameem-begum-and-others-v-k-venkat-swamy-and-another-2026-insc-864-motor-accident-1620018
+
+[Source Link](https://t.me/verdictumlegalupdates/28564)
 
 ---
 
@@ -73,94 +161,6 @@ Officer In-Charge Of Women Police Station Not Public Servant To Whom Allegedly F
 https://www.verdictum.in/supreme-court/a-v-state-of-himachal-pradesh-2026-insc-856-officer-in-charge-women-police-station-sec182-ipc-1619976
 
 [Source Link](https://t.me/verdictumlegalupdates/28555)
-
----
-
-### 2026-08-16T08:32:14+00:00
-Suspension Of BCI Enrolment Not Necessary For Advocates Acting As Insolvency Professionals; But Liable To GST Under Forward Charge Mechanism: Delhi High Court
-https://www.verdictum.in/delhi-high-court/kanwal-chaudhary-v-insolvency-and-bankruptcy-board-of-india-ors-2026dhc6587-db-1619972
-
-[Source Link](https://t.me/verdictumlegalupdates/28554)
-
----
-
-### 2026-08-16T06:32:13+00:00
-Madras High Court Allows Bars & Hotels To Claim Refund Of Liquor License And Privilege Fees For Closure During COVID Lockdown
-https://www.verdictum.in/madras-high-court/state-of-tamil-nadu-anr-v-the-suguna-vilasa-sabha-connected-matters-1619963
-
-[Source Link](https://t.me/verdictumlegalupdates/28553)
-
----
-
-### 2026-08-16T04:33:12+00:00
-Magistrate Can Explicitly Name Accused U/S.176(1-A) CrPC: Madhya Pradesh High Court Upholds Enquiry Report In Custodial Death Case
-https://www.verdictum.in/madhya-pradesh-high-court/raja-ram-dangi-v-the-state-of-madhya-pradesh-2026mphc-ind21865-magistrate-sec1761-a-crpc-1619957
-
-[Source Link](https://t.me/verdictumlegalupdates/28552)
-
----
-
-### 2026-08-15T15:03:16+00:00
-Young Professional (Legal) Vacancy At Digital India BHASHINI Division (DIBD)
-https://www.verdictum.in/job-updates/digital-india-bhashini-division-1619887
-
-[Source Link](https://t.me/verdictumlegalupdates/28551)
-
----
-
-### 2026-08-15T13:32:16+00:00
-Mere Suspicion Of Slaughter Not Enough: Allahabad High Court Quashes Vehicle Confiscation Under UP Cow Slaughter Act
-https://www.verdictum.in/allahabad-high-court/vinod-kumar-singh-v-state-of-up-and-3-others-2026ahc164202-cow-slaughter-1619929
-
-[Source Link](https://t.me/verdictumlegalupdates/28550)
-
----
-
-### 2026-08-15T12:02:55+00:00
-Suppression Of Fact Which Isn’t Wilful Can’t Constitute Permissible Ground For Invocation Of Proviso to Section 11-A Of Central Excise Act: Supreme Court
-https://www.verdictum.in/supreme-court/audi-automobiles-v-commissioner-of-central-excise-and-service-tax-2026-insc-858-excise-act-1619928
-
-[Source Link](https://t.me/verdictumlegalupdates/28549)
-
----
-
-### 2026-08-15T10:33:14+00:00
-Lands Earmarked For Afforestation Must Get Same Protection As Existing Plantations: Supreme Court Bars Mining In Aravalli Plantation Areas
-https://www.verdictum.in/supreme-court/sunder-singh-anr-v-ms-satish-kumar-garg-company-ors-2026-insc-855-1619927
-
-[Source Link](https://t.me/verdictumlegalupdates/28548)
-
----
-
-### 2026-08-15T09:02:53+00:00
-Default Occurs At A Singular Point In Time: Supreme Court Holds Claim U/S 9 IBC Time-Barred Despite Subsisting EPC Contract
-https://www.verdictum.in/supreme-court/srinivasa-reddy-velagala-v-sravanthi-infratech-pvt-ltd-2026-insc-835-claim-us-9-ibc-time-barred-1619886
-
-[Source Link](https://t.me/verdictumlegalupdates/28547)
-
----
-
-### 2026-08-15T07:32:32+00:00
-"Every Act Of Child Sexual Abuse Is An Assault Upon Humanity": Supreme Court Restores Life Term Of POCSO Convict For Aggravated Penetrative Assault On 3-Year-Old
-https://www.verdictum.in/supreme-court/balesh-kumar-kuraiti-v-state-of-chhattisgarh-2026-insc-850-pocso-convict-for-aggravated-penetrative-assault-on-3-year-old-1619885
-
-[Source Link](https://t.me/verdictumlegalupdates/28546)
-
----
-
-### 2026-08-15T06:02:51+00:00
-Provisional Assessment Order Under Electricity Act Unsustainable If Inspection Report Lacks Finding And Evidence Of Theft: Supreme Court
-https://www.verdictum.in/supreme-court/ms-himadri-steel-pvt-ltd-v-jharkhand-urja-vikas-nigam-limited-2026-insc-851-provisional-assessment-order-1619884
-
-[Source Link](https://t.me/verdictumlegalupdates/28545)
-
----
-
-### 2026-08-15T04:32:30+00:00
-Deceased's Daughter Not Interested Witness Merely By Relationship: Supreme Court Upholds Life Sentence In Witch-Hunting Murder Case
-https://www.verdictum.in/supreme-court/balku-oram-v-state-of-odisha-2026-insc-852-witch-hunting-witchcraft-murder-1619883
-
-[Source Link](https://t.me/verdictumlegalupdates/28544)
 
 ---
 
