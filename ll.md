@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-16T04:48:03+00:00*
+*Last Updated: 2026-08-17T04:18:15+00:00*
 
 ---
 
-### 2026-08-16T04:48:03+00:00
-Parliament Monsoon Session 2026  Recap: 12 Bills Passed, Mostly Without Debate
-https://www.livelaw.in/news-updates/monsoon-session-parliament-2026-12-bills-passed-lok-sabha-rajya-sabha-545997
+### 2026-08-17T04:18:15+00:00
+'Backdoor Appointments': Tripura High Court Restrains Tribal Areas Autonomous District Council From Paying Salaries To Regularised Employees
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-restrains-payment-salaries-tregularised-workers-till-further-orders-546028
 
-[Read on Telegram](https://t.me/livelawindia/117471)
-
----
-### 2026-08-16T05:59:55+00:00
-Mere Participation in Protest March Does Not Make One Part of Unlawful Assembly: HP High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-participation-protest-march-unlawful-assembly-546002
-
-[Read on Telegram](https://t.me/livelawindia/117472)
+[Read on Telegram](https://t.me/livelawindia/117496)
 
 ---
-### 2026-08-16T06:28:25+00:00
-Supreme Court Weekly Roundup: August 03, 2026 To August 09, 2026
-https://www.livelaw.in/round-ups/weekly/supreme-court-weekly-roundup-august-03-2026-to-august-09-2026-545995
+### 2026-08-17T04:32:35+00:00
+Siblings-In-Law Can Claim Accident Compensation As Dependents If Financial Dependency Is Proved: Sikkim High Court
+https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-siblingsinlaw-claim-compensation-dependents-financial-dependency-proved-546021
 
-[Read on Telegram](https://t.me/livelawindia/117473)
-
----
-### 2026-08-16T06:34:45+00:00
-Supreme Court Declares August 27 Holiday; August 22 To Be Working Day Instead
-https://www.livelaw.in/news-updates/supreme-court-declares-august-27-holiday-august-22-to-be-working-day-instead-546003
-
-[Read on Telegram](https://t.me/livelawindia/117474)
+[Read on Telegram](https://t.me/livelawindia/117497)
 
 ---
-### 2026-08-16T06:49:45+00:00
-LiveLaw Allahabad High Court Weekly Round Up: August 10 - August 16, 2026
-https://www.livelaw.in/high-court/allahabad-high-court/livelaw-allahabad-high-court-weekly-round-up-august-10-august-16-2026-546004
+### 2026-08-17T04:32:55+00:00
+When Certificate Is Not Enough: Law On Reassessing Disability
+https://www.livelaw.in/articles/certificate-not-enough-law-reassessing-disability-546016
 
-[Read on Telegram](https://t.me/livelawindia/117475)
-
----
-### 2026-08-16T07:06:05+00:00
-NALSAR-BCI: An Assault On Constitutional Values
-https://www.livelaw.in/articles/nalsar-bci-assault-constitutional-values-546005
-
-[Read on Telegram](https://t.me/livelawindia/117476)
+[Read on Telegram](https://t.me/livelawindia/117498)
 
 ---
-### 2026-08-16T07:07:35+00:00
-Jantar Mantar Protests : PIL In Supreme Court Seeks Proper Investigation Of Delhi Police FIRs
-https://www.livelaw.in/top-stories/supreme-court-plea-against-judicial-superintendence-of-police-investigation-jantar-mantar-protest-firs-cjp-founder-abhijeet-dipke-546001
+### 2026-08-17T04:47:45+00:00
+Employee Can't Be Called Upon To Prove Adverse Remarks Were Never Communicated; Burden Is On Department: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-employee-prove-communicated-adverse-remarks-546031
 
-[Read on Telegram](https://t.me/livelawindia/117477)
-
----
-### 2026-08-16T07:16:15+00:00
-Consultant (Legal Cell) Vacancy At Ministry Of External Affairs (MEA), New Delhi
-https://www.livelaw.in/job-updates/consultant-legal-cell-vacancy-at-ministry-of-external-affairs-mea-new-delhi-546006
-
-[Read on Telegram](https://t.me/livelawindia/117478)
+[Read on Telegram](https://t.me/livelawindia/117499)
 
 ---
-### 2026-08-16T07:16:55+00:00
-Transfer Cop Seen On Video 'Parading & Flogging' Accused In Public, Orally Says Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-surat-cop-transfer-parading-flogging-video-546007
+### 2026-08-17T04:59:26+00:00
+Failure To Serve Order XXI Rule 22 Notice Won't Impact DRT Auction Sale : Supreme Court
+https://www.livelaw.in/supreme-court/failure-to-serve-order-xxi-rule-22-notice-wont-impact-drt-auction-sale-supreme-court-546038
 
-[Read on Telegram](https://t.me/livelawindia/117479)
-
----
-### 2026-08-16T07:17:35+00:00
-Section Officer Vacancy At Karnataka State Legal Services Authority, Bengaluru
-https://www.livelaw.in/job-updates/section-officer-vacancy-at-karnataka-state-legal-services-authority-bengaluru-546008
-
-[Read on Telegram](https://t.me/livelawindia/117480)
+[Read on Telegram](https://t.me/livelawindia/117500)
 
 ---
-### 2026-08-16T08:32:26+00:00
-Bharatiya Nagarik Suraksha Sanhita (BNSS) and Bharatiya Nyaya Sanhita (BNS) Monthly Digest: July 2026
-https://www.livelaw.in/top-stories/bnss-bns-monthly-digest-july-2026-545646
+### 2026-08-17T05:03:06+00:00
+Excess Salary Paid Due To Employer's Error 17 Years Ago Can't Be Recovered From Retiral Dues: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-excess-salary-paid-employer-error-recovered-retiral-dues-546037
 
-[Read on Telegram](https://t.me/livelawindia/117481)
-
----
-### 2026-08-16T08:59:36+00:00
-LiveLaw Supreme Court Half Yearly Digest 2026 - BSA & Indian Evidence Act
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-bharatiya-sakshya-adhiniyam-evidence-act-half-yearly-digest-546009
-
-[Read on Telegram](https://t.me/livelawindia/117482)
+[Read on Telegram](https://t.me/livelawindia/117501)
 
 ---
-### 2026-08-16T09:32:17+00:00
-Collegium Must Speak But With Institutional Restraint
-https://www.livelaw.in/articles/collegium-speak-institutional-restraint-545977
+### 2026-08-17T05:17:26+00:00
+Teacher Appointed Without Sanctioned Post & Requisite Qualification Can Claim Salary Only From Committee Of Management: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-teacher-appointed-approved-post-prescribed-qualification-claim-salary-committee-of-management-546039
 
-[Read on Telegram](https://t.me/livelawindia/117483)
-
----
-### 2026-08-16T11:27:29+00:00
-'Both Press & Judiciary Have Failed Us, Why?' Kapil Sibal
-https://www.livelaw.in/top-stories/both-press-judiciary-have-failed-us-why-kapil-sibal-546010
-
-[Read on Telegram](https://t.me/livelawindia/117484)
+[Read on Telegram](https://t.me/livelawindia/117502)
 
 ---
-### 2026-08-16T11:47:09+00:00
-Legal Representatives Can Claim Motor Accident Compensation Even Without Financial Dependency On Deceased : Supreme Court
-https://www.livelaw.in/supreme-court/legal-representatives-can-claim-motor-accident-compensation-even-without-financial-dependency-on-deceased-supreme-court-546011
+### 2026-08-17T05:30:36+00:00
+Fleeing After Friend's Drowning, Though Reprehensible Conduct, Not Per Se Suggestive Of Murder: Supreme Court
+https://www.livelaw.in/supreme-court/fleeing-after-friends-drowning-though-reprehensible-conduct-not-per-se-suggestive-of-murder-supreme-court-546049
 
-[Read on Telegram](https://t.me/livelawindia/117485)
-
----
-### 2026-08-16T11:48:09+00:00
-2026 LiveLaw (SC) 809 | SAMEEM BEGUM AND OTHERS VERSUS K. VENKAT SWAMY AND ANOTHER
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-809-sameem-begum-and-others-versus-k-venkat-swamy-and-another-546012
-
-[Read on Telegram](https://t.me/livelawindia/117486)
+[Read on Telegram](https://t.me/livelawindia/117503)
 
 ---
-### 2026-08-16T12:03:29+00:00
-CJI Surya Kant Advises Against Prohibiting AI Tools In Law Schools; Says Students Must Be Taught To Use Them Properly
-https://www.livelaw.in/top-stories/cji-surya-kant-advises-against-prohibition-of-ai-tools-in-law-schools-546013
+### 2026-08-17T05:31:56+00:00
+2026 LiveLaw (SC) 810 | Taher Vajiyuddin Rangwala & Anr. Versus The State of Gujarat
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-810-taher-vajiyuddin-rangwala-anr-versus-the-state-of-gujarat-546050
 
-[Read on Telegram](https://t.me/livelawindia/117487)
-
----
-### 2026-08-16T13:33:30+00:00
-Centre Shouldn't Sit On Recommendations Reiterated By Collegium : Justice KM Joseph
-https://www.livelaw.in/top-stories/centre-shouldnt-sit-on-recommendations-reiterated-by-collegium-justice-km-joseph-546014
-
-[Read on Telegram](https://t.me/livelawindia/117488)
+[Read on Telegram](https://t.me/livelawindia/117504)
 
 ---
-### 2026-08-16T14:32:41+00:00
-Brahmaputra Floods: Assam's Unfinished Constitutional Promise
-https://www.livelaw.in/articles/brahmaputra-floods-assam-unfinished-constitutional-promise-545978
+### 2026-08-17T05:32:56+00:00
+'Not Misconduct': Karnataka Administrative Tribunal Quashes Suspension Of Govt Servant For Participating In RSS Event On Holiday
+https://www.livelaw.in/news-updates/karnataka-tribunal-quashes-suspension-government-servant-rss-participation-wearing-uniform-misconduct-546051
 
-[Read on Telegram](https://t.me/livelawindia/117489)
+[Read on Telegram](https://t.me/livelawindia/117505)
 
 ---
-### 2026-08-16T15:02:11+00:00
-J&K Consumer Commission Directs New India Assurance To Pay ₹9.95 Lakh Over Unsettled Insurance Claim
-https://www.livelaw.in/consumer-cases/jk-consumer-commission-directs-new-india-assurance-to-pay-995-lakh-over-unsettled-insurance-claim-546015
+### 2026-08-17T05:33:06+00:00
+LiveLaw Madras High Court Weekly Roundup: August 10 to August 16, 2026
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-august-10-to-august-16-2026-546041
 
-[Read on Telegram](https://t.me/livelawindia/117490)
+[Read on Telegram](https://t.me/livelawindia/117506)
+
+---
+### 2026-08-17T05:47:36+00:00
+Writ Petition For Contractual Dues Against State Not Entertainable Unless Amount Is Admitted: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-writ-petition-contractual-dues-entertainable-quantum-admitted-546043
+
+[Read on Telegram](https://t.me/livelawindia/117507)
+
+---
+### 2026-08-17T06:03:16+00:00
+Mere Claim Of Ownership Of Suit Property Doesn't Make Third Party A Necessary Party In Small Causes Suit: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-third-party-claiming-independent-title-546053
+
+[Read on Telegram](https://t.me/livelawindia/117508)
+
+---
+### 2026-08-17T06:10:56+00:00
+Gujarat High Court Launches Wi-Fi Facility To Enhance Digital Access For Lawyers And Litigants
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-launches-wi-fi-facility-to-enhance-digital-access-for-lawyers-and-litigants-546055
+
+[Read on Telegram](https://t.me/livelawindia/117509)
+
+---
+### 2026-08-17T06:18:26+00:00
+Delhi High Court Directs Meta To Disclose Material Behind Disabling Stock Market Advisor's Instagram Account
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-financial-analyst-account-disbaled-meta-546054
+
+[Read on Telegram](https://t.me/livelawindia/117510)
+
+---
+### 2026-08-17T06:22:46+00:00
+Lokpal Chairperson Justice Ajay Manikrao Khanwilkar Hoists National Flag, Reaffirms Commitment To Clean Governance
+https://www.livelaw.in/events/lokpal-chairperson-justice-ajay-manikrao-khanwilkar-hoists-national-flag-reaffirms-commitment-to-clean-governance-546058
+
+[Read on Telegram](https://t.me/livelawindia/117511)
+
+---
+### 2026-08-17T06:33:06+00:00
+LiveLaw Andhra Pradesh High Court Weekly Round-Up: 10 August - 16 August, 2026
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-weekly-roundup-546045
+
+[Read on Telegram](https://t.me/livelawindia/117512)
+
+---
+### 2026-08-17T06:47:46+00:00
+Police Cannot Register FIR On Same Allegations If They Initially Treated Complaint As 'Non-Cognizable': Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/police-cannot-register-fir-same-allegations-without-any-fresh-material-546023
+
+[Read on Telegram](https://t.me/livelawindia/117513)
+
+---
+### 2026-08-17T06:53:46+00:00
+BREAKING| Supreme Court Halts Allahabad HC Proceedings Against Rahul Gandhi In Plea Seeking CBI/ED Probe
+https://www.livelaw.in/top-stories/supreme-court-lop-rahul-gandhi-plea-against-allahabad-hc-orders-vignesh-shishir-disproportionate-assets-complaint-546061
+
+[Read on Telegram](https://t.me/livelawindia/117514)
+
+---
+### 2026-08-17T07:03:16+00:00
+Stamp Act | Collector's Function Ends On Determining Deficiency, Can't Impose Penalty Or Direct Recovery: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-stamp-act-collector-function-ends-on-determining-deficiency-546060
+
+[Read on Telegram](https://t.me/livelawindia/117515)
 
 ---
