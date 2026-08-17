@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-16T15:02:37+00:00*
+*Last Updated: 2026-08-17T07:16:40+00:00*
+
+---
+
+### 2026-08-17T07:16:40+00:00
+Supreme Court Directs Allahabad HC To Defer Hearing In Rahul Gandhi Disproportionate Assets Case; Asks CBI, ED To Not Submit Reports
+https://www.verdictum.in/supreme-court/allahabad-hc-in-rahul-gandhi-disproportionate-assets-case-1620016
+
+[Source Link](https://t.me/verdictumlegalupdates/28563)
+
+---
+
+### 2026-08-17T07:03:19+00:00
+Residential House Exemption U/S 60(1)(ccc) CPC Is Personal To Judgment-Debtor & Not Available To Legal Representatives: Supreme Court
+https://www.verdictum.in/supreme-court/sheela-gehlot-v-mohini-hardayal-singh-2026-insc-863-plea-of-exemption-us-601ccc-cpc-1620012
+
+[Source Link](https://t.me/verdictumlegalupdates/28562)
+
+---
+
+### 2026-08-17T06:35:58+00:00
+Power To Litigate Seems Unlimited: Supreme Court Imposes ₹10L Costs On Reliance Industries For Delay In 20-Yr-Old Commercial Suit
+https://www.verdictum.in/supreme-court/reliance-industries-limited-v-ntpc-limited-2026-insc-862-litigate-cost-delay-commercial-suit-1620008
+
+[Source Link](https://t.me/verdictumlegalupdates/28561)
+
+---
+
+### 2026-08-17T06:03:17+00:00
+Proof Of Thumb Impression & Handwriting Does Not Conclude Enquiry Into Validity Of Will: Supreme Court
+https://www.verdictum.in/supreme-court/pazhanathal-dead-through-lrs-v-alamathal-dead-through-lrs-2026-insc-860-proof-of-thumb-impression-handwriting-1620003
+
+[Source Link](https://t.me/verdictumlegalupdates/28560)
+
+---
+
+### 2026-08-17T05:13:56+00:00
+National Security: Rajasthan High Court Dismisses Pleas Challenging Eviction Notices To Mosques, Madrasas & Dargahs Near Indo-Pak Border
+https://www.verdictum.in/rajasthan-high-court/peer-mohammad-shah-jilani-dargah-samiti-v-state-of-rajasthan-2026rj-jp30648-madrasas-and-dargahs-near-indo-pak-border-1619998
+
+[Source Link](https://t.me/verdictumlegalupdates/28559)
+
+---
+
+### 2026-08-17T04:32:26+00:00
+Can’t Blithely Ignore Bank Accounting System: Supreme Court Holds PNB Entitled To Claim Interest Maintained In Separate Suspense Account
+https://www.verdictum.in/supreme-court/punjab-national-bank-v-ms-shree-jyoti-education-and-management-trust-world-2026-insc-836-trust-accounting-system-suspense-account-1619989
+
+[Source Link](https://t.me/verdictumlegalupdates/28558)
 
 ---
 
@@ -113,54 +161,6 @@ Deceased's Daughter Not Interested Witness Merely By Relationship: Supreme Court
 https://www.verdictum.in/supreme-court/balku-oram-v-state-of-odisha-2026-insc-852-witch-hunting-witchcraft-murder-1619883
 
 [Source Link](https://t.me/verdictumlegalupdates/28544)
-
----
-
-### 2026-08-14T14:32:51+00:00
-Young Professional (Legal) Vacancy At Security Printing & Minting Corporation of India Limited
-https://www.verdictum.in/job-updates/security-printing-minting-corporation-of-india-limited-1619882
-
-[Source Link](https://t.me/verdictumlegalupdates/28543)
-
----
-
-### 2026-08-14T13:52:30+00:00
-Tenant’s Possession After Agreement To Sell Is Not Part Performance Unless Traceable To Agreement: Supreme Court
-https://www.verdictum.in/supreme-court/nazim-shaikh-hasan-v-nasir-mushtaq-shaikh-and-others-2026-insc-853-tpa-1619881
-
-[Source Link](https://t.me/verdictumlegalupdates/28542)
-
----
-
-### 2026-08-14T13:13:09+00:00
-Registration of FIR And Onward Dispatch Do Not Replace Duty To  Record & Transmit Secret Information U/S 42 NDPS Act: Supreme Court
-https://www.verdictum.in/supreme-court/kashmir-ram-pappi-v-state-of-punjab-2026-insc-854-1619880
-
-[Source Link](https://t.me/verdictumlegalupdates/28541)
-
----
-
-### 2026-08-14T12:32:48+00:00
-Going To Movie After Witnessing Drowning Not Enough To Sustain Conviction: Supreme Court Acquits Two Men Accused Of Murdering Friend
-https://www.verdictum.in/supreme-court/taher-vajiyuddin-rangwala-anr-v-the-state-of-gujarat-2026-insc-859-1619879
-
-[Source Link](https://t.me/verdictumlegalupdates/28540)
-
----
-
-### 2026-08-14T11:52:07+00:00
-Supreme Court Quashes Criminal Proceedings Against Samay Raina For Remarks Against People With Disabilities
-https://www.verdictum.in/supreme-court/criminal-proceedings-samay-raina-remarks-against-people-with-disabilities-quashed-1619873
-
-[Source Link](https://t.me/verdictumlegalupdates/28539)
-
----
-
-### 2026-08-14T11:12:27+00:00
-Calcutta High Court Calls For Balance Between Census Duties And Students' Education
-https://www.verdictum.in/calcutta-high-court/balance-between-census-duties-and-students-education-1619871
-
-[Source Link](https://t.me/verdictumlegalupdates/28538)
 
 ---
 
