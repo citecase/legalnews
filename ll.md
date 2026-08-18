@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-17T12:51:50+00:00*
+*Last Updated: 2026-08-18T04:43:04+00:00*
 
 ---
 
-### 2026-08-17T12:51:50+00:00
-Nathuram Godse & Gopal Godse Convicts In Mahatma Gandhi's Murder; Were Active RSS Members : Savarkar's Kin Tells Pune Court
-https://www.livelaw.in/top-stories/nathuram-godse-gopal-godse-convicts-in-mahatma-gandhis-murder-were-active-rss-members-savarkars-kin-tells-pune-court-546141
+### 2026-08-18T04:43:04+00:00
+Pleas Against Police Action During CJP Student Protests : Live Updates From Supreme Court
+https://www.livelaw.in/top-stories/pleas-against-police-action-during-cjp-student-protests-live-updates-from-supreme-court-546187
 
-[Read on Telegram](https://t.me/livelawindia/117565)
-
----
-### 2026-08-17T13:02:44+00:00
-Bombay High Court Directs Probate Grants To Be Issued Within 2 Weeks Of Court Order, Bars Subsequent Caveats
-https://www.livelaw.in/high-court/bombay-high-court/testamentary-officers-drop-rider-requiring-post-facto-verification-546026
-
-[Read on Telegram](https://t.me/livelawindia/117566)
+[Read on Telegram](https://t.me/livelawindia/117595)
 
 ---
-### 2026-08-17T13:03:14+00:00
-'To Preserve Confidence In Justice', Kerala High Court Transfers Family Court Case Over  Litigant's Apprehension Of Bias
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-bias-test-transfer-case-546142
+### 2026-08-18T04:47:24+00:00
+Orders Against State Bind All Its Departments, Officers Even If Not Named As Parties To Proceedings: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-orders-against-state-bind-all-departments-officers-546193
 
-[Read on Telegram](https://t.me/livelawindia/117567)
-
----
-### 2026-08-17T13:14:35+00:00
-Declared Foreigner Who Re-Entered India After Expulsion Not Entitled To Bail Despite Prolonged Detention: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-person-expelled-india-reentered-illegally-not-entitled-bail-prolonged-detention-546145
-
-[Read on Telegram](https://t.me/livelawindia/117568)
+[Read on Telegram](https://t.me/livelawindia/117596)
 
 ---
-### 2026-08-17T13:17:35+00:00
-Buying Medical College Seat Not Commercial Dispute: P&H High Court Denies Anticipatory Bail In NEET-PG Admission Fraud Case
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/neet-pg-admission-fraud-buying-medical-college-seat-not-commercial-dispute-546143
+### 2026-08-18T04:53:04+00:00
+Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
+https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-546206
 
-[Read on Telegram](https://t.me/livelawindia/117569)
-
----
-### 2026-08-17T13:26:15+00:00
-Karnataka High Court Stays Criminal Case Against Hindu Activist Satish Pujari Over Banner Depicting Shivaji Maharaj Slaying Afzal Khan
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-grants-interim-stay-activist-satish-pujari-davanagere-ganesh-festival-row-546147
-
-[Read on Telegram](https://t.me/livelawindia/117570)
+[Read on Telegram](https://t.me/livelawindia/117597)
 
 ---
-### 2026-08-17T13:31:15+00:00
-No State Can Block Elephant Corridor Citing Harm To Persons Or Property : Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-orders-nationwide-survey-human-elephant-conflict-burning-mashaal-iron-spike-there-cant-be-blockade-of-elephant-corridors-546149
+### 2026-08-18T04:54:25+00:00
+Legal Advisor Vacancy At Animal Welfare Board Of India
+https://www.livelaw.in/job-updates/legal-advisor-vacancy-at-animal-welfare-board-of-india-546207
 
-[Read on Telegram](https://t.me/livelawindia/117571)
-
----
-### 2026-08-17T13:35:15+00:00
-LiveLaw Daily | Rahul Gandhi | AAP | Ram Mandir | Transgender Rights & More
-https://www.livelaw.in/podcast/ram-mandir-aap-arvind-kejriwal-rahul-gandhi-news-india-daily-legal-law-roundup-students-clat-judiciary-upsc-exam-prep-546150
-
-[Read on Telegram](https://t.me/livelawindia/117572)
+[Read on Telegram](https://t.me/livelawindia/117598)
 
 ---
-### 2026-08-17T13:38:35+00:00
-Punjab Civil Service Rules | Disciplinary Authority Dissatisfied With Enquiry Report Can Order Further Enquiry, Not Fresh One: High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/disciplinary-authority-dissatisfied-with-enquiry-report-can-remit-for-further-enquiry-not-order-fresh-546151
+### 2026-08-18T04:57:04+00:00
+BREAKING| No Excessive Force Used Against Student Protesters, Parliament March Was Illegal : Delhi Police To Supreme Court
+https://www.livelaw.in/top-stories/no-excessive-force-used-against-student-protesters-parliament-march-was-illegal-delhi-police-to-supreme-court-546209
 
-[Read on Telegram](https://t.me/livelawindia/117573)
-
----
-### 2026-08-17T13:57:05+00:00
-Compassionate Appointment Policy Doesn't Differentiate Between Boy & Girl; 'First Child' Means First-Born Irrespective Of Gender: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-compassionate-appointment-granted-to-first-child-irrespective-of-gender-546154
-
-[Read on Telegram](https://t.me/livelawindia/117574)
+[Read on Telegram](https://t.me/livelawindia/117599)
 
 ---
-### 2026-08-17T13:59:05+00:00
-Speedy Trial Also A Right Of Victim; Accused Cannot Use Pending Gangsters Act Case To Stall Other Trials : Supreme Court
-https://www.livelaw.in/supreme-court/speedy-trial-also-a-right-of-victim-accused-cannot-use-pending-gangsters-act-case-to-stall-other-trials-supreme-court-546155
+### 2026-08-18T05:02:25+00:00
+Accused's Right To Silence Can't Be Stretched To Avoid Investigation, But Police Cannot Resort To Endless Summoning: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-right-silence-avoid-investigation-investigating-agency-endless-summoning-546195
 
-[Read on Telegram](https://t.me/livelawindia/117575)
-
----
-### 2026-08-17T14:01:25+00:00
-2026 LiveLaw (SC) 815 | Keshvendra Singh Versus Shankar Singh And Anr.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-815-keshvendra-singh-versus-shankar-singh-and-anr-546156
-
-[Read on Telegram](https://t.me/livelawindia/117576)
+[Read on Telegram](https://t.me/livelawindia/117600)
 
 ---
-### 2026-08-17T14:33:06+00:00
-CCTV In Hotel Restaurant Kitchens, Digital Extension Of FSS Act
-https://www.livelaw.in/articles/cctv-hotel-restaurant-kitchens-digital-extension-fss-act-546018
+### 2026-08-18T05:12:45+00:00
+Delhi High Court Halts PG-Admissions At JNU Based On 'Deprivation Points'
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-jnu-deprivation-points-admissions-546212
 
-[Read on Telegram](https://t.me/livelawindia/117577)
-
----
-### 2026-08-17T15:11:16+00:00
-'Black Money In Elections Corrupts Democracy': Supreme Court Issues Directions To Curb Use Of Unaccounted Cash During Polls
-https://www.livelaw.in/top-stories/black-money-in-elections-corrupts-democracy-supreme-court-issues-directions-to-curb-use-of-unaccounted-cash-during-polls-546178
-
-[Read on Telegram](https://t.me/livelawindia/117578)
+[Read on Telegram](https://t.me/livelawindia/117601)
 
 ---
-### 2026-08-17T15:12:56+00:00
-2026 LiveLaw (SC) 816 |  State of Karnataka & Anr. v Prathik Parasrampuria
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-816-state-of-karnataka-anr-v-prathik-parasrampuria-546179
+### 2026-08-18T05:13:45+00:00
+BREAKING| Supreme Court Dismisses Plea To Abolish Hanging As Method To Execute Death Penalty, Says Union Free To Explore Alternatives
+https://www.livelaw.in/top-stories/supreme-court-dismisses-plea-to-abolish-hanging-as-method-to-execute-death-penalty-says-union-free-to-explore-alternatives-546213
 
-[Read on Telegram](https://t.me/livelawindia/117579)
-
----
-### 2026-08-17T15:56:06+00:00
-NDPS | Supreme Court Issues Directions To Curb Fake Sureties In Foreigners' Bail In Drug Cases
-https://www.livelaw.in/top-stories/ndps-supreme-court-issues-directions-to-curb-fake-sureties-in-foreigners-bail-in-drug-cases-546181
-
-[Read on Telegram](https://t.me/livelawindia/117580)
+[Read on Telegram](https://t.me/livelawindia/117602)
 
 ---
-### 2026-08-17T15:57:06+00:00
-2026 LiveLaw (SC) 817 | Union of India v. Chidiebere Kingsley Nawchara & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-817-union-of-india-v-chidiebere-kingsley-nawchara-ors-546182
+### 2026-08-18T05:17:25+00:00
+LiveLaw Karnataka High Court Weekly Round Up: August 10 - August 16, 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-roundup-546197
 
-[Read on Telegram](https://t.me/livelawindia/117581)
-
----
-### 2026-08-17T16:32:16+00:00
-BREAKING | 'AK 47 Fired During Student Protests But None Injured' : Bihar Govt Tells Supreme Court, Denies Using Excessive Force
-https://www.livelaw.in/top-stories/supreme-court-student-protests-bihar-counter-no-one-injured-by-ak47-no-disproportionate-force-police-personnel-injured-anti-social-elements-part-of-mob-546184
-
-[Read on Telegram](https://t.me/livelawindia/117582)
+[Read on Telegram](https://t.me/livelawindia/117603)
 
 ---
-### 2026-08-17T16:50:56+00:00
-LiveLaw High Courts Daily Highlights: August 17, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-august-17-2026-546185
+### 2026-08-18T05:32:55+00:00
+Gender Sensitivity And Compassion In Writing Judgments
+https://www.livelaw.in/articles/gender-sensitivity-compassion-writing-judgments-546170
 
-[Read on Telegram](https://t.me/livelawindia/117583)
+[Read on Telegram](https://t.me/livelawindia/117604)
 
 ---
-### 2026-08-17T17:17:26+00:00
-Supreme Court Daily Round-Up : August 17, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-17-2026-546183
+### 2026-08-18T05:33:05+00:00
+'Not Everything Online Is Genuine': Gujarat High Court On Public Service Commission Using Unverified Internet Source To Set Exam Question
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-arthashastra-question-gpsc-unauthenticated-546211
 
-[Read on Telegram](https://t.me/livelawindia/117584)
+[Read on Telegram](https://t.me/livelawindia/117605)
+
+---
+### 2026-08-18T05:36:15+00:00
+Can Pre-Deposit Be Mandated To Invoke Arbitration? Supreme Court Refers To Larger Bench, Doubts 2009 Precedent
+https://www.livelaw.in/supreme-court/can-pre-deposit-be-mandated-to-invoke-arbitration-supreme-court-refers-to-larger-bench-doubts-2009-precedent-546215
+
+[Read on Telegram](https://t.me/livelawindia/117606)
+
+---
+### 2026-08-18T05:37:35+00:00
+2026 LiveLaw (SC) 818 | M/s Santosh Associate Private Limited v. Haryana State Industrial and Infrastructure Development Corporation Ltd.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-818-ms-santosh-associate-private-limited-v-haryana-state-industrial-and-infrastructure-development-corporation-ltd-546217
+
+[Read on Telegram](https://t.me/livelawindia/117607)
+
+---
+### 2026-08-18T05:47:55+00:00
+Telangana High Court Directs Police To File Final Reports In Unnatural Death Cases Before Judicial Magistrate, Not Executive Magistrate
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-directs-police-file-final-reports-accidental-death-inquiries-546218
+
+[Read on Telegram](https://t.me/livelawindia/117608)
+
+---
+### 2026-08-18T06:06:15+00:00
+Mohanlal-Starrer 'Athimanoharam' Can't Be Shot Inside Periyar Tiger Reserve, Kerala High Court Told
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-mohanlal-athimanoharam-periyar-tiger-reserve-546221
+
+[Read on Telegram](https://t.me/livelawindia/117609)
+
+---
+### 2026-08-18T06:09:15+00:00
+Gujarat HC, Judicial Academy Launch Study Circle For Advocates With Up To 10 Years' Practice
+https://www.livelaw.in/news-updates/gujarat-hc-judicial-academy-launch-study-circle-for-advocates-with-up-to-10-years-practice-546223
+
+[Read on Telegram](https://t.me/livelawindia/117610)
+
+---
+### 2026-08-18T06:11:15+00:00
+Supreme Court Flags Anomalies In Fixing Consumer Fora Jurisdiction Based On Consideration Paid, Seeks Centre's Response
+https://www.livelaw.in/supreme-court/supreme-court-flags-anomalies-in-fixing-consumer-fora-jurisdiction-based-on-consideration-paid-seeks-centres-response-546226
+
+[Read on Telegram](https://t.me/livelawindia/117611)
+
+---
+### 2026-08-18T06:15:55+00:00
+NLU Odisha – Centre For Disability Law And Advocacy (CDLA) Organises Two-Day International Conference
+https://www.livelaw.in/lawschool/seminars/nlu-odisha-centre-for-disability-law-and-advocacy-cdla-organises-two-day-international-conference-546227
+
+[Read on Telegram](https://t.me/livelawindia/117612)
+
+---
+### 2026-08-18T06:20:25+00:00
+Narendra Dabholkar Murder Case: Bombay High Court Grants Bail To Alleged Shooter Sachin Andure
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-grants-bail-sachin-andure-shooter-dr-narendra-dabholkar-murder-case-546228
+
+[Read on Telegram](https://t.me/livelawindia/117613)
+
+---
+### 2026-08-18T06:43:05+00:00
+Unjustified Claim Repudiation: Thrissur Consumer Commission Holds United India Insurance Liable
+https://www.livelaw.in/consumer-cases/unjustified-claim-repudiation-thrissur-consumer-commission-holds-united-india-insurance-liable-546204
+
+[Read on Telegram](https://t.me/livelawindia/117614)
 
 ---
