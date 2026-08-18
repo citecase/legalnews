@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-17T16:09:41+00:00*
+*Last Updated: 2026-08-18T07:02:45+00:00*
+
+---
+
+### 2026-08-18T07:02:45+00:00
+Supreme Court Seeks Response From Centre & Social Media Platforms On PIL To Restrain Police From Disclosing Identity Of Accused
+https://www.verdictum.in/supreme-court/union-states-social-media-platforms-responses-pil-restrain-police-disclosing-accused-identities-1620083
+
+[Source Link](https://t.me/verdictumlegalupdates/28586)
+
+---
+
+### 2026-08-18T06:33:04+00:00
+Police Need Not Decide Truth Of Allegations At FIR Stage: Allahabad High Court Directs UP DGP To Examine Non-Registration Of Sexual Assault Complaint
+https://www.verdictum.in/allahabad-high-court/arpit-gupta-v-state-of-up-and-2-others-2026ahc168404-db-fir-non-registration-1620079
+
+[Source Link](https://t.me/verdictumlegalupdates/28585)
+
+---
+
+### 2026-08-18T06:02:23+00:00
+Allahabad High Court Directs State To Deposit ₹1.20 Crore For Temple Land Taken For Ram Janm Bhoomi Development Without Payment
+https://www.verdictum.in/allahabad-high-court/shri-thakur-ram-janki-sugrivji-virajman-mandir-v-state-of-up-2026ahc-lko55848-db-1620074
+
+[Source Link](https://t.me/verdictumlegalupdates/28584)
+
+---
+
+### 2026-08-18T05:17:02+00:00
+Breaking: Supreme Court Refuses Reference To Larger Bench In Plea Seeking Less Painful Execution Methods
+https://www.verdictum.in/supreme-court/refuses-reference-larger-bench-plea-seeking-less-painful-execution-methods-1620069
+
+[Source Link](https://t.me/verdictumlegalupdates/28583)
+
+---
+
+### 2026-08-18T05:03:01+00:00
+MP High Court Accepts Notary’s Apology For Notarizing Marriage Deed; BCI To Inform Notaries Of Their Jurisdictional  Limitations
+https://www.verdictum.in/madhya-pradesh-high-court/in-re-suo-moto-writ-petition-262692026-v-raghvendra-samadhiya-2026mphc-gwl24396-1620062
+
+[Source Link](https://t.me/verdictumlegalupdates/28582)
+
+---
+
+### 2026-08-18T04:32:30+00:00
+Gauhati High Court Upholds 20-Year POCSO Conviction Of Adoptive Father; Rejects His Defense Of False Implication Over School Discipline
+https://www.verdictum.in/guwahati-high-court/biren-nag-v-the-state-of-assam-2026gauas10113-db-adoptive-fathers-defense-upholds-20-year-pocso-conviction-1620046
+
+[Source Link](https://t.me/verdictumlegalupdates/28581)
 
 ---
 
@@ -113,54 +161,6 @@ Supreme Court Refuses To Interfere With ECI's Decision To Keep 2002 As Base Year
 https://www.verdictum.in/supreme-court/ecis-decision-to-keep-2002-as-base-year-for-sir-in-sikkim-1620026
 
 [Source Link](https://t.me/verdictumlegalupdates/28567)
-
----
-
-### 2026-08-17T08:42:43+00:00
-Transgender Identity Cards Already Issued Will Remain Operational: Centre Tells Supreme Court
-https://www.verdictum.in/supreme-court/transgender-identity-cards-issued-before-amendment-act-2026-remain-operational-1620027
-
-[Source Link](https://t.me/verdictumlegalupdates/28566)
-
----
-
-### 2026-08-17T08:33:01+00:00
-Supreme Court Agrees To Consider Setting Up Fresh Bench To Hear Review Plea On Bengaluru Iskcon Temple’s Verdict
-https://www.verdictum.in/supreme-court/plea-on-bengaluru-iskcon-temples-verdict-review-1620014
-
-[Source Link](https://t.me/verdictumlegalupdates/28565)
-
----
-
-### 2026-08-17T08:02:20+00:00
-Consortium Is An Indispensable Head For Awarding Just Motor Accident Compensation: Supreme Court
-https://www.verdictum.in/supreme-court/sameem-begum-and-others-v-k-venkat-swamy-and-another-2026-insc-864-motor-accident-1620018
-
-[Source Link](https://t.me/verdictumlegalupdates/28564)
-
----
-
-### 2026-08-17T07:16:40+00:00
-Supreme Court Directs Allahabad HC To Defer Hearing In Rahul Gandhi Disproportionate Assets Case; Asks CBI, ED To Not Submit Reports
-https://www.verdictum.in/supreme-court/allahabad-hc-in-rahul-gandhi-disproportionate-assets-case-1620016
-
-[Source Link](https://t.me/verdictumlegalupdates/28563)
-
----
-
-### 2026-08-17T07:03:19+00:00
-Residential House Exemption U/S 60(1)(ccc) CPC Is Personal To Judgment-Debtor & Not Available To Legal Representatives: Supreme Court
-https://www.verdictum.in/supreme-court/sheela-gehlot-v-mohini-hardayal-singh-2026-insc-863-plea-of-exemption-us-601ccc-cpc-1620012
-
-[Source Link](https://t.me/verdictumlegalupdates/28562)
-
----
-
-### 2026-08-17T06:35:58+00:00
-Power To Litigate Seems Unlimited: Supreme Court Imposes ₹10L Costs On Reliance Industries For Delay In 20-Yr-Old Commercial Suit
-https://www.verdictum.in/supreme-court/reliance-industries-limited-v-ntpc-limited-2026-insc-862-litigate-cost-delay-commercial-suit-1620008
-
-[Source Link](https://t.me/verdictumlegalupdates/28561)
 
 ---
 
