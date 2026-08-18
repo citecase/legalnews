@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-18T07:02:45+00:00*
+*Last Updated: 2026-08-18T13:02:56+00:00*
+
+---
+
+### 2026-08-18T13:02:56+00:00
+Lethal Injection Mode Has No Advantage Over Death By Hanging: Supreme Court Cites Botched Executions Of Death Sentences In USA
+https://www.verdictum.in/supreme-court/2026-insc-873-rishi-malhotra-v-union-of-india-1620111
+
+[Source Link](https://t.me/verdictumlegalupdates/28598)
+
+---
+
+### 2026-08-18T12:32:15+00:00
+Allahabad HC Dismisses Plea For Re-Evaluation By Final Year Law Student Who Got Zero Marks, Quotes Answer And Forwards Answerbook To BCI & Law Commission
+https://www.verdictum.in/allahabad-high-court/vindhya-vasini-prasad-pandey-v-state-of-up-2026ahc146040-bci-law-commission-zero-mark-re-evaluation-1620105
+
+[Source Link](https://t.me/verdictumlegalupdates/28597)
+
+---
+
+### 2026-08-18T12:03:14+00:00
+Supreme Court Asks CBI To Examine All Six Allegations Flagged By ED In Dubious Transactions Related To Indiabulls HFL
+https://www.verdictum.in/supreme-court/cbi-to-examine-all-six-allegations-flagged-by-ed-in-dubious-transactions-related-to-indiabulls-hfl-1620104
+
+[Source Link](https://t.me/verdictumlegalupdates/28596)
+
+---
+
+### 2026-08-18T11:32:33+00:00
+Answer Unpalatable To A Section Of Society: Kerala Govt Tells High Court Defending Suspension Of Teacher For Framing Question On VD Savarkar
+https://www.verdictum.in/kerala-high-court/kerala-government-suspension-teacher-question-vd-savarkar-1620103
+
+[Source Link](https://t.me/verdictumlegalupdates/28595)
+
+---
+
+### 2026-08-18T11:02:32+00:00
+Delhi High Court Denies Default Bail To 2025 Red Fort Car Bomb Blast Accused
+https://www.verdictum.in/delhi-high-court/default-bail-to-2025-red-fort-car-bomb-blast-accused-denied-1620102
+
+[Source Link](https://t.me/verdictumlegalupdates/28594)
+
+---
+
+### 2026-08-18T10:32:51+00:00
+Adverse Remarks Regarding Official Performance By Itself Can't Attract Offence Of Suicide Abetment U/S.306 Of IPC: Supreme Court Discharges IFS Officer
+https://www.verdictum.in/supreme-court/vinod-shivakumar-v-the-state-of-maharashtra-2026-insc-867-adverse-remarks-section-306-ipc-1620101
+
+[Source Link](https://t.me/verdictumlegalupdates/28593)
+
+---
+
+### 2026-08-18T10:02:50+00:00
+Supreme Court Seeks Response From Centre, States On Plea To Confiscate Property Of Offenders In Paper Leak Cases
+https://www.verdictum.in/supreme-court/centre-states-on-plea-to-confiscate-property-of-offenders-in-paper-leak-cases-1620100
+
+[Source Link](https://t.me/verdictumlegalupdates/28592)
+
+---
+
+### 2026-08-18T09:32:49+00:00
+Section 12 UP Gangsters Act Doesn’t Freeze Other Proceedings Against Accused: Supreme Court
+https://www.verdictum.in/supreme-court/keshvendra-singh-v-shankar-singh-2026-insc-866-sec12-up-gangsters-act-freeze-proceedings-1620099
+
+[Source Link](https://t.me/verdictumlegalupdates/28591)
+
+---
+
+### 2026-08-18T09:02:48+00:00
+Supreme Court Issues Nationwide Guidelines On Surety Verification, Passport Deposit & Centralised Database For Foreign Nationals Accused Under NDPS Act
+https://www.verdictum.in/supreme-court/union-of-india-v-chidiebere-kingsley-nawchara-2026-insc-870-surety-verification-passport-deposit-centralised-database-ndps-1620096
+
+[Source Link](https://t.me/verdictumlegalupdates/28590)
+
+---
+
+### 2026-08-18T08:11:47+00:00
+NEET Protests- Supreme Court To Constitute High-Powered Committee To Probe Allegations Of Police Excesses & Violence By Protesters
+https://www.verdictum.in/supreme-court/constitute-high-powered-committee-probe-allegations-police-excesses-violence-neet-paper-leak-protests-1620095
+
+[Source Link](https://t.me/verdictumlegalupdates/28589)
+
+---
+
+### 2026-08-18T08:02:46+00:00
+Validity Of Prior Deposit Requirement Clause As Precondition To Invoke Arbitration: Supreme Court Doubts Its Earlier SK Jain Judgment
+https://www.verdictum.in/supreme-court/ms-santosh-associate-private-limited-v-haryana-state-industrial-and-infrastructure-development-corporation-ltd-2026-insc-872-1620091
+
+[Source Link](https://t.me/verdictumlegalupdates/28588)
+
+---
+
+### 2026-08-18T07:32:06+00:00
+Bombay High Court Grants Bail To Convict In Dabholkar Murder Case, Suspends Life Sentence
+https://www.verdictum.in/bombay-high-court/bail-to-convict-in-dabholkar-murder-case-1620087
+
+[Source Link](https://t.me/verdictumlegalupdates/28587)
 
 ---
 
@@ -65,102 +161,6 @@ State Cannot Usurp Citizens’ Property: Gauhati High Court Directs CRPF To Hand
 https://www.verdictum.in/guwahati-high-court/smt-crisceda-ruth-rapoza-and-2-ors-v-the-union-of-india-and-4-ors-2026gau-as10474-1620044
 
 [Source Link](https://t.me/verdictumlegalupdates/28579)
-
----
-
-### 2026-08-17T15:03:07+00:00
-Private Documents Obtained Through RTI Can’t Automatically Be Treated As Public Documents Or Certified Copies: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/rajeshbhai-krushnakant-jariwala-ors-v-falguniben-kamalkant-jariwala-ors-1620042
-
-[Source Link](https://t.me/verdictumlegalupdates/28578)
-
----
-
-### 2026-08-17T14:32:31+00:00
-Weekly Overview| Supreme Court Judgments: August 10 – August 14, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-august-10-august-14-2026-1620043
-
-[Source Link](https://t.me/verdictumlegalupdates/28577)
-
----
-
-### 2026-08-17T14:02:49+00:00
-Luring Minor Under False Identity & Fake Promise Of Love To Sell Her To Brothel Shows Deceitful Intent U/S 366 IPC: Gauhati High Court
-https://www.verdictum.in/guwahati-high-court/jahanuddin-sk-ali-jiban-raju-das-v-the-state-of-assam-2026gau-as9594-db-us-366-ipc-luring-minor-under-false-identity-sell-brothel-1620041
-
-[Source Link](https://t.me/verdictumlegalupdates/28576)
-
----
-
-### 2026-08-17T13:33:06+00:00
-Transitional Area Retains Rural Character Until Final Notification Declaring It A Municipality Under Article 243-Q Of Constitution: Supreme Court
-https://www.verdictum.in/supreme-court/adarsh-dinkar-sontakke-minor-ors-etc-v-navodaya-vidyalaya-samiti-ors-etc-2026-insc-865-1620040
-
-[Source Link](https://t.me/verdictumlegalupdates/28575)
-
----
-
-### 2026-08-17T13:02:11+00:00
-Supreme Court Declines Nirmohi Akhara Plea For Reconstitution Of Ram Temple Trust
-https://www.verdictum.in/supreme-court/nirmohi-akhara-plea-for-reconstitution-of-ram-temple-trust-declined-1620038
-
-[Source Link](https://t.me/verdictumlegalupdates/28574)
-
----
-
-### 2026-08-17T12:32:09+00:00
-Supreme Court Agrees To Examine BJP Leader Yogender Chandolia's Plea Against AAP MLA Vishesh Ravi's Election
-https://www.verdictum.in/supreme-court/bjp-leader-yogender-chandolias-plea-against-aap-mla-vishesh-ravis-election-1620037
-
-[Source Link](https://t.me/verdictumlegalupdates/28573)
-
----
-
-### 2026-08-17T12:02:48+00:00
-Bombay High Court Imposes Rs 5 Lakh Cost On FDA For Keeping Pune Shop License Suspended Despite Compliance
-https://www.verdictum.in/bombay-high-court/rs-5-lakh-cost-on-fda-for-keeping-pune-shop-license-suspended-despite-compliance-1620036
-
-[Source Link](https://t.me/verdictumlegalupdates/28572)
-
----
-
-### 2026-08-17T11:32:47+00:00
-Ensure Compliance With CWMA Directions On Cauvery Water Release To Tamil Nadu: Supreme Court Says To Karnataka
-https://www.verdictum.in/supreme-court/cwma-directions-on-cauvery-water-release-to-tamil-nadu-1620033
-
-[Source Link](https://t.me/verdictumlegalupdates/28571)
-
----
-
-### 2026-08-17T10:53:06+00:00
-Blocking Corridors Can't Be A Solution: Apex Court Orders Fresh Survey Of Elephant Corridors, Asks Centre To Consider Ban On Fireballs And Hulla Parties
-https://www.verdictum.in/supreme-court/fresh-survey-of-elephant-corridors-fireballs-and-hulla-parties-1620035
-
-[Source Link](https://t.me/verdictumlegalupdates/28570)
-
----
-
-### 2026-08-17T10:32:45+00:00
-Supreme Court Seeks Centre’s Response On Nuclear Accident Compensation & Regulatory Conflict Of Interest Under SHANTI Act
-https://www.verdictum.in/supreme-court/nuclear-accident-compensation-regulatory-conflict-of-interest-under-shanti-act-1620030
-
-[Source Link](https://t.me/verdictumlegalupdates/28569)
-
----
-
-### 2026-08-17T10:02:24+00:00
-Apex Court Refers PIL Concerning Lack Of Functional Toilets In Schools To Bench Which Laid Guidelines Related To Menstrual Health
-https://www.verdictum.in/supreme-court/pil-lack-of-functional-toilets-in-schools-to-bench-guidelines-menstrual-health-1620029
-
-[Source Link](https://t.me/verdictumlegalupdates/28568)
-
----
-
-### 2026-08-17T09:33:03+00:00
-Supreme Court Refuses To Interfere With ECI's Decision To Keep 2002 As Base Year For SIR In Sikkim
-https://www.verdictum.in/supreme-court/ecis-decision-to-keep-2002-as-base-year-for-sir-in-sikkim-1620026
-
-[Source Link](https://t.me/verdictumlegalupdates/28567)
 
 ---
 
