@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-18T13:02:56+00:00*
+*Last Updated: 2026-08-18T16:03:01+00:00*
+
+---
+
+### 2026-08-18T16:03:01+00:00
+Law Officer Vacancy At Indian Oil Corporation Limited (IOCL)
+https://www.verdictum.in/job-updates/indian-oil-corporation-limited-1620117
+
+[Source Link](https://t.me/verdictumlegalupdates/28604)
+
+---
+
+### 2026-08-18T15:32:40+00:00
+B-Class History Sheet Can’t Be Opened Without Material Showing Professional Or Expert Criminality: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/satendra-dactar-v-state-of-up-and-others-2026ahc172286-db-history-sheet-1620116
+
+[Source Link](https://t.me/verdictumlegalupdates/28603)
+
+---
+
+### 2026-08-18T15:02:19+00:00
+Proper Application Has To Be Made To Trial Judge If Police Officer Is Of Opinion That Further Investigation Is Necessary: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/rakesh-kumar-tiwari-v-state-of-up-and-others-2026ahc160663-db-trial-judge-police-officer-investigation-1620115
+
+[Source Link](https://t.me/verdictumlegalupdates/28602)
+
+---
+
+### 2026-08-18T14:32:38+00:00
+Govt. Order Fixing Fee Range Not Automatic Entitlement To Maximum Fee: Allahabad High Court Dismisses Advocate's Plea For Recovery Of ₹4.8 Crore Professional Fees
+https://www.verdictum.in/allahabad-high-court/jyotinjay-verma-v-state-of-up-thru-secy-basic-education-lko-2026ahc-lko57145-db-advocates-plea-recovery-48-crore-professional-fees-1620114
+
+[Source Link](https://t.me/verdictumlegalupdates/28601)
+
+---
+
+### 2026-08-18T14:02:17+00:00
+Choice Influenced By External Factors Is No Longer Voters’ Own: Supreme Court Issues Directions To Curb Use Of Black Money In Elections
+https://www.verdictum.in/supreme-court/the-state-of-karnataka-anr-v-prathik-parasrampuria-2026-insc-868-election-black-money-1620113
+
+[Source Link](https://t.me/verdictumlegalupdates/28600)
+
+---
+
+### 2026-08-18T13:33:17+00:00
+All & Not Some Accused Persons Should Be Convicted Or Acquitted On Basis Of Same Set Of Depositions & Similar Roles: Supreme Court
+https://www.verdictum.in/supreme-court/nepal-singh-v-the-state-of-madhya-pradesh-2026-insc-869-accused-persons-convicted-acquitted-1620112
+
+[Source Link](https://t.me/verdictumlegalupdates/28599)
 
 ---
 
@@ -113,54 +161,6 @@ Police Need Not Decide Truth Of Allegations At FIR Stage: Allahabad High Court D
 https://www.verdictum.in/allahabad-high-court/arpit-gupta-v-state-of-up-and-2-others-2026ahc168404-db-fir-non-registration-1620079
 
 [Source Link](https://t.me/verdictumlegalupdates/28585)
-
----
-
-### 2026-08-18T06:02:23+00:00
-Allahabad High Court Directs State To Deposit ₹1.20 Crore For Temple Land Taken For Ram Janm Bhoomi Development Without Payment
-https://www.verdictum.in/allahabad-high-court/shri-thakur-ram-janki-sugrivji-virajman-mandir-v-state-of-up-2026ahc-lko55848-db-1620074
-
-[Source Link](https://t.me/verdictumlegalupdates/28584)
-
----
-
-### 2026-08-18T05:17:02+00:00
-Breaking: Supreme Court Refuses Reference To Larger Bench In Plea Seeking Less Painful Execution Methods
-https://www.verdictum.in/supreme-court/refuses-reference-larger-bench-plea-seeking-less-painful-execution-methods-1620069
-
-[Source Link](https://t.me/verdictumlegalupdates/28583)
-
----
-
-### 2026-08-18T05:03:01+00:00
-MP High Court Accepts Notary’s Apology For Notarizing Marriage Deed; BCI To Inform Notaries Of Their Jurisdictional  Limitations
-https://www.verdictum.in/madhya-pradesh-high-court/in-re-suo-moto-writ-petition-262692026-v-raghvendra-samadhiya-2026mphc-gwl24396-1620062
-
-[Source Link](https://t.me/verdictumlegalupdates/28582)
-
----
-
-### 2026-08-18T04:32:30+00:00
-Gauhati High Court Upholds 20-Year POCSO Conviction Of Adoptive Father; Rejects His Defense Of False Implication Over School Discipline
-https://www.verdictum.in/guwahati-high-court/biren-nag-v-the-state-of-assam-2026gauas10113-db-adoptive-fathers-defense-upholds-20-year-pocso-conviction-1620046
-
-[Source Link](https://t.me/verdictumlegalupdates/28581)
-
----
-
-### 2026-08-17T16:09:41+00:00
-Legal Researcher Vacancy At Rajasthan High Court, Jodhpur
-https://www.verdictum.in/job-updates/rajasthan-high-court-1620045
-
-[Source Link](https://t.me/verdictumlegalupdates/28580)
-
----
-
-### 2026-08-17T15:32:49+00:00
-State Cannot Usurp Citizens’ Property: Gauhati High Court Directs CRPF To Hand Over Vacant Possession Of Land
-https://www.verdictum.in/guwahati-high-court/smt-crisceda-ruth-rapoza-and-2-ors-v-the-union-of-india-and-4-ors-2026gau-as10474-1620044
-
-[Source Link](https://t.me/verdictumlegalupdates/28579)
 
 ---
 
