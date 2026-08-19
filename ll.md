@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-18T14:10:52+00:00*
+*Last Updated: 2026-08-19T04:47:49+00:00*
 
 ---
 
-### 2026-08-18T14:10:52+00:00
-Insurer Not Liable For Risk Beyond Sum Assured Unless Premium Paid In Advance: Supreme Court
-https://www.livelaw.in/supreme-court/insurer-not-liable-for-risk-beyond-sum-assured-unless-premium-paid-in-advance-supreme-court-546323
+### 2026-08-19T04:47:49+00:00
+Patna High Court Dismisses PIL Seeking Suspension Of Police Officers Over Alleged Lathi Charge During Students' Protest
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-dismisses-pil-seeking-suspension-police-officers-lathi-charge-students-546384
 
-[Read on Telegram](https://t.me/livelawindia/117672)
-
----
-### 2026-08-18T14:12:32+00:00
-2026 LiveLaw (SC) 821 | The New India Assurance Company Limited & Ors. v M/S Louis Dreyfus Commodities India Pvt. Ltd.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-821-the-new-india-assurance-company-limited-ors-v-ms-louis-dreyfus-commodities-india-pvt-ltd-546325
-
-[Read on Telegram](https://t.me/livelawindia/117673)
+[Read on Telegram](https://t.me/livelawindia/117706)
 
 ---
-### 2026-08-18T14:32:43+00:00
-Digital Courts And Cyber Justice: Is India's Legal Infrastructure Ready For Future?
-https://www.livelaw.in/articles/digital-courts-cyber-justice-india-legal-infrastructure-546172
+### 2026-08-19T05:01:09+00:00
+Pending Trials Against MP/MLAs Remain Same Despite Courts' Monitoring, Amicus Tells Supreme Court
+https://www.livelaw.in/top-stories/pending-trials-against-mpmlas-remain-same-despite-courts-monitoring-amicus-tells-supreme-court-546401
 
-[Read on Telegram](https://t.me/livelawindia/117674)
-
----
-### 2026-08-18T14:44:43+00:00
-Can't Abuse Court Process By Repeating Withdrawn Allegations: Punjab & Haryana High Court Imposes ₹25K Costs On Lawyer
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-rejects-phd-scholars-plea-imposes-25k-costs-for-repeated-allegations-against-law-professors-546329
-
-[Read on Telegram](https://t.me/livelawindia/117675)
+[Read on Telegram](https://t.me/livelawindia/117707)
 
 ---
-### 2026-08-18T14:56:23+00:00
-Punjab Police Rules | Subsequent Acquittal Not Ground To Reopen Departmental Proceedings That Have Attained Finality: High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-police-officer-negligent-passport-verification-subsequent-acquittal-not-reopen-departmental-action-546332
+### 2026-08-19T05:02:29+00:00
+Public Purpose Cannot Justify Taking Private Land Without Lawful Acquisition Or Compensation: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-public-authority-retain-private-property-indefinitely-546369
 
-[Read on Telegram](https://t.me/livelawindia/117676)
-
----
-### 2026-08-18T14:59:03+00:00
-Illegality In Appointment Cannot Be Regularised Citing Long Duration Of Service : Supreme Court
-https://www.livelaw.in/supreme-court/illegality-in-appointment-cannot-be-regularised-citing-long-duration-of-service-supreme-court-546333
-
-[Read on Telegram](https://t.me/livelawindia/117677)
+[Read on Telegram](https://t.me/livelawindia/117708)
 
 ---
-### 2026-08-18T15:00:03+00:00
-2026 LiveLaw (SC) 822 | HEMANT KUMAR & ORS. VERSUS STATE OF HARYANA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-822-hemant-kumar-ors-versus-state-of-haryana-546334
+### 2026-08-19T05:17:49+00:00
+Delhi High Court Directs Stakeholders To Deliberate On Accessibility Of Films For Persons With Disabilities
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-stakeholders-to-deliberate-on-accessibility-of-films-for-persons-with-disabilities-546371
 
-[Read on Telegram](https://t.me/livelawindia/117678)
-
----
-### 2026-08-18T15:02:23+00:00
-Advocate Moves Patna High Court Alleging Illegal Detention & Assault By Police Amid Student Protests
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-advocate-alleging-illegal-detention-assault-police-546335
-
-[Read on Telegram](https://t.me/livelawindia/117679)
+[Read on Telegram](https://t.me/livelawindia/117709)
 
 ---
-### 2026-08-18T15:06:23+00:00
-2026 LiveLaw (SC) 823 | Rishi Malhotra v. Union of India
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-823-rishi-malhotra-v-union-of-india-546337
+### 2026-08-19T05:28:19+00:00
+CCPA Fines Amazon ₹1 Lakh For Permitting Sale Of Regular Sweets Under 'False Label' Of 'Shri Ram Mandir Ayodhya Prasad'
+https://www.livelaw.in/news-updates/ccpa-amazon-ayodhya-ram-mandir-prasad-misleading-claim-fine-546405
 
-[Read on Telegram](https://t.me/livelawindia/117680)
-
----
-### 2026-08-18T15:46:53+00:00
-S.21 NIA Act | Order Framing Charges Is Not Interlocutory, Appeal Lies Before HC: Allahabad High Court Differs With Delhi HC
-https://www.livelaw.in/high-court/allahabad-high-court/section-21-nia-act-charge-framing-order-not-interlocutory-allahabad-high-court-546346
-
-[Read on Telegram](https://t.me/livelawindia/117681)
+[Read on Telegram](https://t.me/livelawindia/117710)
 
 ---
-### 2026-08-18T16:48:53+00:00
-Supreme Court Orders CBI Probe Into Alleged Financial Irregularities By Indiabulls Housing Finance's Promotors
-https://www.livelaw.in/top-stories/supreme-court-indiabulls-housing-finance-financial-irregularities-cbi-directed-to-probe-allegations-regardless-of-eow-report-546353
+### 2026-08-19T05:33:00+00:00
+Societal Interest In Prosecuting Serious Offences Prevails Despite Settlement Between Parties: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/societal-interest-in-prosecuting-serious-offences-prevails-despite-settlement-between-parties-gauhati-high-court-546375
 
-[Read on Telegram](https://t.me/livelawindia/117682)
-
----
-### 2026-08-18T16:56:53+00:00
-Speaking On Harmful Effects Of Excessive Pesticide Use In Public Interest Not Defamation: Bombay High Court Quashes Cases Against Doctors
-https://www.livelaw.in/high-court/bombay-high-court/case-against-doctors-quashed-speaking-on-pesticide-harmful-effects-not-defamation-satyamev-jayate-show-546356
-
-[Read on Telegram](https://t.me/livelawindia/117683)
+[Read on Telegram](https://t.me/livelawindia/117711)
 
 ---
-### 2026-08-18T16:57:34+00:00
-CJI Surya Kant Inaugurates New District Court Complexes In Kerala
-https://www.livelaw.in/top-stories/cji-surya-kant-inaugurates-new-district-court-complexes-in-kerala-546358
+### 2026-08-19T05:46:41+00:00
+Senior Citizens Tribunal Can Order Eviction Of Children From Parents' Property : Supreme Court Reiterates
+https://www.livelaw.in/supreme-court/senior-citizens-tribunal-can-order-eviction-of-children-from-parents-property-supreme-court-reiterates-546410
 
-[Read on Telegram](https://t.me/livelawindia/117684)
-
----
-### 2026-08-18T17:01:34+00:00
-Supreme Court Collegium Approves Appointment Of 3 Judicial Officers As Chhattisgarh High Court Judges
-https://www.livelaw.in/high-court/chhattisgarh-high-court/supreme-court-collegium-approves-appointment-of-3-judicial-officers-as-chhattisgarh-high-court-judges-546359
-
-[Read on Telegram](https://t.me/livelawindia/117685)
+[Read on Telegram](https://t.me/livelawindia/117712)
 
 ---
-### 2026-08-18T17:03:34+00:00
-Supreme Court Collegium Approves Appointment Of Four Advocates As Orissa High Court Judges
-https://www.livelaw.in/high-court/orissa-high-court/supreme-court-collegium-approves-appointment-of-four-advocates-as-orissa-high-court-judges-546362
+### 2026-08-19T05:47:51+00:00
+Andhra Pradesh Goondas Act | 12-Day Period For Govt Approval Begins After Detention Order Is Passed: High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-period-approval-preventive-detention-order-546376
 
-[Read on Telegram](https://t.me/livelawindia/117686)
-
----
-### 2026-08-18T17:08:54+00:00
-Supreme Court Collegium Approves Appointment Of Advocate, Judicial Officer As Judges Of Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/supreme-court-collegium-recommends-appointment-of-advocate-judicial-officer-as-judges-of-gauhati-high-court-546363
-
-[Read on Telegram](https://t.me/livelawindia/117687)
+[Read on Telegram](https://t.me/livelawindia/117713)
 
 ---
-### 2026-08-18T17:15:34+00:00
-LiveLaw High Courts Daily Highlights: August 18, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-august-18-2026-546366
+### 2026-08-19T05:48:01+00:00
+2026 LiveLaw (SC) 824 | RAVI KANT GUPTA VERSUS STATE OF UTTAR PRADESH & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-824-ravi-kant-gupta-versus-state-of-uttar-pradesh-ors-546411
 
-[Read on Telegram](https://t.me/livelawindia/117688)
-
----
-### 2026-08-18T17:21:34+00:00
-Senior Advocate Pradeep Rai Elected Supreme Court Bar Association President
-https://www.livelaw.in/top-stories/supreme-court-bar-association-elections-senior-advocate-pradeep-rai-elected-as-president-jagdeep-dhankhar-casts-vote-546368
-
-[Read on Telegram](https://t.me/livelawindia/117689)
+[Read on Telegram](https://t.me/livelawindia/117714)
 
 ---
-### 2026-08-18T18:08:04+00:00
-Supreme Court Daily Round-Up : Augsut 18, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-augsut-18-2026-546349
+### 2026-08-19T06:02:41+00:00
+Wife's Persistent Quarrels, Opposition To Husband Supporting Parents Despite Shifting House Is Cruelty: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/wifes-persistent-quarrels-opposition-to-husband-supporting-parents-despite-shifting-house-is-cruelty-546377
 
-[Read on Telegram](https://t.me/livelawindia/117690)
+[Read on Telegram](https://t.me/livelawindia/117715)
 
 ---
-### 2026-08-19T01:26:25+00:00
-Goa Government Moves Supreme Court Seeking Life Sentence For Tarun Tejpal In Rape Case
-https://www.livelaw.in/top-stories/goa-government-moves-supreme-court-seeking-life-sentence-for-tarun-tejpal-in-rape-case-546373
+### 2026-08-19T06:10:21+00:00
+Madras High Court Dismisses PIL Against Dropping Of Disqualification Proceedings Against AIADMK MLAs Who Voted For TVK Govt
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-against-dropping-disqualification-aiadmk-mlas-dismissed-546417
 
-[Read on Telegram](https://t.me/livelawindia/117691)
+[Read on Telegram](https://t.me/livelawindia/117716)
+
+---
+### 2026-08-19T06:10:31+00:00
+'CJI Like A Father Figure,' Says Newly Elected SCBA President Pradeep Rai
+https://www.livelaw.in/top-stories/cji-like-a-father-figure-says-newly-elected-scba-president-pradeep-rai-546418
+
+[Read on Telegram](https://t.me/livelawindia/117717)
+
+---
+### 2026-08-19T06:14:01+00:00
+Associate (Tax) Vacancy At Ernst & Young [Apply Now; Mumbai]
+https://www.livelaw.in/job-updates/associate-tax-vacancy-at-ernst-young-546419
+
+[Read on Telegram](https://t.me/livelawindia/117718)
+
+---
+### 2026-08-19T06:15:11+00:00
+Goa Night Club Fire Incident: Bombay High Court Cancels Bail Granted To Restaurant Owners
+https://www.livelaw.in/high-court/bombay-high-court/goa-night-club-fire-incident-owners-bail-cancelled-546420
+
+[Read on Telegram](https://t.me/livelawindia/117719)
+
+---
+### 2026-08-19T06:20:51+00:00
+Judicial Interference In Tender Process At Advanced Stage Not Warranted, Challenge Must Be Prompt : Supreme Court
+https://www.livelaw.in/supreme-court/judicial-interference-in-tender-process-at-advanced-stage-not-warranted-challenge-must-be-prompt-supreme-court-546422
+
+[Read on Telegram](https://t.me/livelawindia/117720)
+
+---
+### 2026-08-19T06:22:11+00:00
+2026 LiveLaw (SC) 815 | M/S. UTKARSH ENTERPRISES & ORS. VERSUS UNION OF INDIA & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-815-ms-utkarsh-enterprises-ors-versus-union-of-india-ors-546423
+
+[Read on Telegram](https://t.me/livelawindia/117721)
+
+---
+### 2026-08-19T06:25:11+00:00
+NEET-UG Leak: Live Updates From Supreme Court Hearing On Plea For NTA Reforms
+https://www.livelaw.in/top-stories/neet-ug-leak-live-updates-from-supreme-court-hearing-on-plea-for-nta-reforms-546424
+
+[Read on Telegram](https://t.me/livelawindia/117722)
+
+---
+### 2026-08-19T06:32:31+00:00
+Police Officer Can Face Disciplinary Proceedings Despite Pending Criminal Case Over Same Incident: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-disciplinary-proceedings-police-officer-fir-lodged-546387
+
+[Read on Telegram](https://t.me/livelawindia/117723)
+
+---
+### 2026-08-19T06:41:11+00:00
+'No One Knows Case Numbers': Delhi High Court Questions Restricting Name-Based Search Of Judgments In IndianKanoon's Appeals
+https://www.livelaw.in/high-court/delhi-high-court/indian-kanoon-right-to-be-forgotten-name-based-search-546426
+
+[Read on Telegram](https://t.me/livelawindia/117724)
+
+---
+### 2026-08-19T06:47:31+00:00
+'Speculative Litigation': Kerala High Court Dismisses PIL Against Free-Bus Travel Scheme For Women, Transgender Persons
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-pil-priyadarshini-free-bus-scheme-speculative-litigation-546427
+
+[Read on Telegram](https://t.me/livelawindia/117725)
 
 ---
