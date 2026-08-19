@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-18T14:01:52+00:00*
+*Last Updated: 2026-08-18T14:10:52+00:00*
 
 ---
 
-### 2026-08-18T14:01:52+00:00
-LiveLaw Delhi High Court Weekly Round-Up: August 10 To August 16, 2026
-https://www.livelaw.in/high-court/delhi-high-court/livelaw-delhi-high-court-weekly-round-up-august-10-to-august-16-2026-546322
-
-[Read on Telegram](https://t.me/livelawindia/117671)
-
----
 ### 2026-08-18T14:10:52+00:00
 Insurer Not Liable For Risk Beyond Sum Assured Unless Premium Paid In Advance: Supreme Court
 https://www.livelaw.in/supreme-court/insurer-not-liable-for-risk-beyond-sum-assured-unless-premium-paid-in-advance-supreme-court-546323
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : Augsut 18, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-augsut-18-2026-546349
 
 [Read on Telegram](https://t.me/livelawindia/117690)
+
+---
+### 2026-08-19T01:26:25+00:00
+Goa Government Moves Supreme Court Seeking Life Sentence For Tarun Tejpal In Rape Case
+https://www.livelaw.in/top-stories/goa-government-moves-supreme-court-seeking-life-sentence-for-tarun-tejpal-in-rape-case-546373
+
+[Read on Telegram](https://t.me/livelawindia/117691)
 
 ---
