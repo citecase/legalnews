@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-19T07:02:46+00:00*
+*Last Updated: 2026-08-19T13:02:56+00:00*
+
+---
+
+### 2026-08-19T13:02:56+00:00
+Life Sentences Cannot Run Consecutively With Each Other Or With Fixed Term Sentences: Supreme Court
+https://www.verdictum.in/supreme-court/gopi-sahaya-puruna-v-the-state-rep-by-the-inspector-of-police-2026-insc-880-1620195
+
+[Source Link](https://t.me/verdictumlegalupdates/28622)
+
+---
+
+### 2026-08-19T12:32:35+00:00
+Public Authority Not Obliged Under RTI Act To Collect Or Collate Non-Available Information From Third Parties: Bombay High Court
+https://www.verdictum.in/bombay-high-court/securities-and-exchange-board-of-india-v-yogesh-babulal-mehta-wp-no-1664-of-2009-public-authority-rti-act-1620194
+
+[Source Link](https://t.me/verdictumlegalupdates/28621)
+
+---
+
+### 2026-08-19T12:02:55+00:00
+Policy Is Vague & Appears To Be Arbitrary: Apex Court Slams Indian Coast Guard For Denying Permanent Commission To Female Officer
+https://www.verdictum.in/supreme-court/indian-coast-guard-denying-permanent-commission-to-female-officer-1620191
+
+[Source Link](https://t.me/verdictumlegalupdates/28620)
+
+---
+
+### 2026-08-19T11:32:54+00:00
+Sec.47 CPC| Issues Which Could Only Be Decided At Trial Can’t Be Reopened In Execution Proceedings Unless Decree Is Void: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/ravi-srivastava-v-ajay-sharma-2026ahc166320-sec47-cpc-trial-execution-proceedings-1620188
+
+[Source Link](https://t.me/verdictumlegalupdates/28619)
+
+---
+
+### 2026-08-19T11:03:13+00:00
+Courts Must Examine Evidence With Insight In POCSO Cases When False Implication Over Matrimonial Dispute Is Pleaded: Kerala High Court
+https://www.verdictum.in/kerala-high-court/x-v-state-of-kerala-2026ker63013-pocso-matrimonial-dispute-false-implication-1620187
+
+[Source Link](https://t.me/verdictumlegalupdates/28618)
+
+---
+
+### 2026-08-19T10:33:12+00:00
+Supreme Court Asks Odisha To Take Decision On Dara Singh's Remission Plea In Graham Staines Murder Case
+https://www.verdictum.in/supreme-court/dara-singhs-remission-plea-in-graham-staines-murder-case-1620185
+
+[Source Link](https://t.me/verdictumlegalupdates/28617)
+
+---
+
+### 2026-08-19T10:02:51+00:00
+CJI Surya Kant Congratulates Newly Elected SC Bar Association President Pradeep Rai, Other Office Bearers
+https://www.verdictum.in/latest-news/newly-elected-sc-bar-association-president-pradeep-rai-1620182
+
+[Source Link](https://t.me/verdictumlegalupdates/28616)
+
+---
+
+### 2026-08-19T09:16:11+00:00
+Breaking: Kerala High Court Stays Suspension Of Teacher Over Question About VD Savarkar
+https://www.verdictum.in/kerala-high-court/stays-suspension-of-teacher-question-about-vd-savarkar-1620181
+
+[Source Link](https://t.me/verdictumlegalupdates/28615)
+
+---
+
+### 2026-08-19T09:02:30+00:00
+Supreme Court Asks Delhi HC To Decide Coal Scam Appeals Within Four Weeks & To Not Grant Any Stay On Trials
+https://www.verdictum.in/supreme-court/delhi-hc-to-decide-coal-scam-appeals-within-four-weeks-to-not-grant-any-stay-on-trials-1620177
+
+[Source Link](https://t.me/verdictumlegalupdates/28614)
+
+---
+
+### 2026-08-19T08:33:09+00:00
+"Our Job Is Akin To That Of A Mother": Madras High Court Decries Bar Apathy, Urges Judicial Training In POCSO Child Victim Examinations
+https://www.verdictum.in/madras-high-court/paulpandiyan-v-state-crl-op-no-28664-of-2025-crlmpno19361-of-2025-pocso-child-victim-examinations-1620174
+
+[Source Link](https://t.me/verdictumlegalupdates/28613)
+
+---
+
+### 2026-08-19T08:03:08+00:00
+Supreme Court Seeks Centre's Response On Plea For Setting Up DNA, Biometric ID System For Missing, Rescued Kids
+https://www.verdictum.in/supreme-court/centres-response-on-plea-for-setting-up-dna-biometric-id-system-for-missing-rescued-kids-1620172
+
+[Source Link](https://t.me/verdictumlegalupdates/28612)
+
+---
+
+### 2026-08-19T07:23:47+00:00
+NEET-UG Exam: Supreme Court Directs Centre To File Affidavit On Steps Taken On Radhakrishnan & Nilekani Committees Reforms
+https://www.verdictum.in/supreme-court/directs-centre-file-affidavit-radhakrishnan-nilekani-committees-reforms-nta-overhaul-1620168
+
+[Source Link](https://t.me/verdictumlegalupdates/28611)
 
 ---
 
@@ -65,102 +161,6 @@ B-Class History Sheet Can’t Be Opened Without Material Showing Professional Or
 https://www.verdictum.in/allahabad-high-court/satendra-dactar-v-state-of-up-and-others-2026ahc172286-db-history-sheet-1620116
 
 [Source Link](https://t.me/verdictumlegalupdates/28603)
-
----
-
-### 2026-08-18T15:02:19+00:00
-Proper Application Has To Be Made To Trial Judge If Police Officer Is Of Opinion That Further Investigation Is Necessary: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/rakesh-kumar-tiwari-v-state-of-up-and-others-2026ahc160663-db-trial-judge-police-officer-investigation-1620115
-
-[Source Link](https://t.me/verdictumlegalupdates/28602)
-
----
-
-### 2026-08-18T14:32:38+00:00
-Govt. Order Fixing Fee Range Not Automatic Entitlement To Maximum Fee: Allahabad High Court Dismisses Advocate's Plea For Recovery Of ₹4.8 Crore Professional Fees
-https://www.verdictum.in/allahabad-high-court/jyotinjay-verma-v-state-of-up-thru-secy-basic-education-lko-2026ahc-lko57145-db-advocates-plea-recovery-48-crore-professional-fees-1620114
-
-[Source Link](https://t.me/verdictumlegalupdates/28601)
-
----
-
-### 2026-08-18T14:02:17+00:00
-Choice Influenced By External Factors Is No Longer Voters’ Own: Supreme Court Issues Directions To Curb Use Of Black Money In Elections
-https://www.verdictum.in/supreme-court/the-state-of-karnataka-anr-v-prathik-parasrampuria-2026-insc-868-election-black-money-1620113
-
-[Source Link](https://t.me/verdictumlegalupdates/28600)
-
----
-
-### 2026-08-18T13:33:17+00:00
-All & Not Some Accused Persons Should Be Convicted Or Acquitted On Basis Of Same Set Of Depositions & Similar Roles: Supreme Court
-https://www.verdictum.in/supreme-court/nepal-singh-v-the-state-of-madhya-pradesh-2026-insc-869-accused-persons-convicted-acquitted-1620112
-
-[Source Link](https://t.me/verdictumlegalupdates/28599)
-
----
-
-### 2026-08-18T13:02:56+00:00
-Lethal Injection Mode Has No Advantage Over Death By Hanging: Supreme Court Cites Botched Executions Of Death Sentences In USA
-https://www.verdictum.in/supreme-court/2026-insc-873-rishi-malhotra-v-union-of-india-1620111
-
-[Source Link](https://t.me/verdictumlegalupdates/28598)
-
----
-
-### 2026-08-18T12:32:15+00:00
-Allahabad HC Dismisses Plea For Re-Evaluation By Final Year Law Student Who Got Zero Marks, Quotes Answer And Forwards Answerbook To BCI & Law Commission
-https://www.verdictum.in/allahabad-high-court/vindhya-vasini-prasad-pandey-v-state-of-up-2026ahc146040-bci-law-commission-zero-mark-re-evaluation-1620105
-
-[Source Link](https://t.me/verdictumlegalupdates/28597)
-
----
-
-### 2026-08-18T12:03:14+00:00
-Supreme Court Asks CBI To Examine All Six Allegations Flagged By ED In Dubious Transactions Related To Indiabulls HFL
-https://www.verdictum.in/supreme-court/cbi-to-examine-all-six-allegations-flagged-by-ed-in-dubious-transactions-related-to-indiabulls-hfl-1620104
-
-[Source Link](https://t.me/verdictumlegalupdates/28596)
-
----
-
-### 2026-08-18T11:32:33+00:00
-Answer Unpalatable To A Section Of Society: Kerala Govt Tells High Court Defending Suspension Of Teacher For Framing Question On VD Savarkar
-https://www.verdictum.in/kerala-high-court/kerala-government-suspension-teacher-question-vd-savarkar-1620103
-
-[Source Link](https://t.me/verdictumlegalupdates/28595)
-
----
-
-### 2026-08-18T11:02:32+00:00
-Delhi High Court Denies Default Bail To 2025 Red Fort Car Bomb Blast Accused
-https://www.verdictum.in/delhi-high-court/default-bail-to-2025-red-fort-car-bomb-blast-accused-denied-1620102
-
-[Source Link](https://t.me/verdictumlegalupdates/28594)
-
----
-
-### 2026-08-18T10:32:51+00:00
-Adverse Remarks Regarding Official Performance By Itself Can't Attract Offence Of Suicide Abetment U/S.306 Of IPC: Supreme Court Discharges IFS Officer
-https://www.verdictum.in/supreme-court/vinod-shivakumar-v-the-state-of-maharashtra-2026-insc-867-adverse-remarks-section-306-ipc-1620101
-
-[Source Link](https://t.me/verdictumlegalupdates/28593)
-
----
-
-### 2026-08-18T10:02:50+00:00
-Supreme Court Seeks Response From Centre, States On Plea To Confiscate Property Of Offenders In Paper Leak Cases
-https://www.verdictum.in/supreme-court/centre-states-on-plea-to-confiscate-property-of-offenders-in-paper-leak-cases-1620100
-
-[Source Link](https://t.me/verdictumlegalupdates/28592)
-
----
-
-### 2026-08-18T09:32:49+00:00
-Section 12 UP Gangsters Act Doesn’t Freeze Other Proceedings Against Accused: Supreme Court
-https://www.verdictum.in/supreme-court/keshvendra-singh-v-shankar-singh-2026-insc-866-sec12-up-gangsters-act-freeze-proceedings-1620099
-
-[Source Link](https://t.me/verdictumlegalupdates/28591)
 
 ---
 
