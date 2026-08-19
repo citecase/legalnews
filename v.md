@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-19T13:02:56+00:00*
+*Last Updated: 2026-08-19T16:03:01+00:00*
+
+---
+
+### 2026-08-19T16:03:01+00:00
+Superintendent Translation Vacancy At Ministry of Law and Justice
+https://www.verdictum.in/job-updates/ministry-of-law-and-justice-1620199
+
+[Source Link](https://t.me/verdictumlegalupdates/28628)
+
+---
+
+### 2026-08-19T15:33:00+00:00
+Statutory Presumption U/S.20 Prevention Of Corruption Act Would Come Into Play Only After Initial Demand Is Proved Beyond Reasonable Doubt: Supreme Court
+https://www.verdictum.in/supreme-court/rafikmiya-ahmedmiya-malek-v-state-of-gujarat-2026-insc-890-prevention-of-corruption-act-1620204
+
+[Source Link](https://t.me/verdictumlegalupdates/28627)
+
+---
+
+### 2026-08-19T15:02:39+00:00
+Filling Up Vacant Post And Absorption Of Surplus Employee Can't Be Conflated, Surplus Employee Not Entitled To Absorption To Higher Post: Supreme Court
+https://www.verdictum.in/supreme-court/the-state-of-maharashtra-ors-v-sudhakar-shivaram-teke-2026-insc-883-absorption-of-surplus-employee-1620203
+
+[Source Link](https://t.me/verdictumlegalupdates/28626)
+
+---
+
+### 2026-08-19T14:32:18+00:00
+UAPA Accused Not Entitled To Default Bail After 90 Days: Delhi High Court Rules CrPC References In Special Laws Automatically Apply To BNSS
+https://www.verdictum.in/delhi-high-court/jasir-bilal-wani-danish-v-national-investigation-agency-2026dhc6814-db-uapa-accused-not-entitled-to-default-bail-1620200
+
+[Source Link](https://t.me/verdictumlegalupdates/28625)
+
+---
+
+### 2026-08-19T14:02:18+00:00
+Illegality Cannot Be Cured By Passage Of Time: Supreme Court Orders Repatriation Of Haryana Engineers Absorbed Via "Backdoor Entry" Facilitated By Political Interference
+https://www.verdictum.in/supreme-court/hemant-kumar-v-state-of-haryana-2026-insc-878-repatriation-of-haryana-engineers-absorbed-via-backdoor-entry-1620197
+
+[Source Link](https://t.me/verdictumlegalupdates/28624)
+
+---
+
+### 2026-08-19T13:32:57+00:00
+RPF Rules| Candidate Liable To Be Discharged From Service On Deliberate Suppression Of Information Regarding Subsistence Of Criminal Case Against Him: Supreme Court
+https://www.verdictum.in/supreme-court/bappa-barai-v-union-of-india-ors-2026-insc-882-rpf-rules-candidate-discharged-service-1620196
+
+[Source Link](https://t.me/verdictumlegalupdates/28623)
 
 ---
 
@@ -113,54 +161,6 @@ Classic Case Of Misuse Of Section 33 Arbitration Act To Gain Time For Challengin
 https://www.verdictum.in/delhi-high-court/delhi-metro-rail-corporation-ltd-v-hcc-samsung-jv-2026dhc6743-db-s-33-1620156
 
 [Source Link](https://t.me/verdictumlegalupdates/28609)
-
----
-
-### 2026-08-19T06:03:05+00:00
-Unauthorized LPG Pipeline Deprives Rights Under Article 300A Constitution: Gujarat High Court Directs GAIL To Acquire Land & Pay 2019 Market Value Compensation
-https://www.verdictum.in/gujarat-high-court/ushaben-harilal-nandha-v-union-of-india-2026gujhc50287-db-lpg-pipeline-gail-acquire-land-1620153
-
-[Source Link](https://t.me/verdictumlegalupdates/28608)
-
----
-
-### 2026-08-19T05:32:24+00:00
-Sec.64VB Of Insurance Act Puts Embargo On Insurer From Taking Risk If Premium Isn’t Paid Prior To Assumption Of Such Risk: Supreme Court
-https://www.verdictum.in/supreme-court/the-new-india-assurance-company-limited-ors-v-ms-louis-dreyfus-commodities-india-pvt-ltd-2026-insc-876-1620151
-
-[Source Link](https://t.me/verdictumlegalupdates/28607)
-
----
-
-### 2026-08-19T05:03:03+00:00
-Supreme Court Collegium Recommends Appointment Of Judicial Officers, Advocates As Judges Of Three High Courts
-https://www.verdictum.in/supreme-court/appointment-of-judicial-officers-advocates-as-judges-of-three-high-courts-1620146
-
-[Source Link](https://t.me/verdictumlegalupdates/28606)
-
----
-
-### 2026-08-19T04:33:12+00:00
-Order Framing Charges By NIA Special Court Not Interlocutory Under Section 21 NIA Act: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/satendra-siwal-v-state-of-up-thru-prin-secy-home-lko-and-2-others-2026ahc-lko56814-1620118
-
-[Source Link](https://t.me/verdictumlegalupdates/28605)
-
----
-
-### 2026-08-18T16:03:01+00:00
-Law Officer Vacancy At Indian Oil Corporation Limited (IOCL)
-https://www.verdictum.in/job-updates/indian-oil-corporation-limited-1620117
-
-[Source Link](https://t.me/verdictumlegalupdates/28604)
-
----
-
-### 2026-08-18T15:32:40+00:00
-B-Class History Sheet Can’t Be Opened Without Material Showing Professional Or Expert Criminality: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/satendra-dactar-v-state-of-up-and-others-2026ahc172286-db-history-sheet-1620116
-
-[Source Link](https://t.me/verdictumlegalupdates/28603)
 
 ---
 
