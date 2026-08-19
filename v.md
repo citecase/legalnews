@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-18T16:03:01+00:00*
+*Last Updated: 2026-08-19T07:02:46+00:00*
+
+---
+
+### 2026-08-19T07:02:46+00:00
+Police Can’t Arbitrarily Restrict Citizen’s Fundamental Right & Duty To Display & Pay Homage To National Flag: Madras High Court
+https://www.verdictum.in/madras-high-court/j-ramesh-kumar-v-the-state-of-tamil-nadu-police-citizen-fundamental-right-duty-display-national-flag-1620160
+
+[Source Link](https://t.me/verdictumlegalupdates/28610)
+
+---
+
+### 2026-08-19T06:32:25+00:00
+Classic Case Of Misuse Of Section 33 Arbitration Act To Gain Time For Challenging Award: Delhi High Court Imposes ₹5L Costs On DMRC
+https://www.verdictum.in/delhi-high-court/delhi-metro-rail-corporation-ltd-v-hcc-samsung-jv-2026dhc6743-db-s-33-1620156
+
+[Source Link](https://t.me/verdictumlegalupdates/28609)
+
+---
+
+### 2026-08-19T06:03:05+00:00
+Unauthorized LPG Pipeline Deprives Rights Under Article 300A Constitution: Gujarat High Court Directs GAIL To Acquire Land & Pay 2019 Market Value Compensation
+https://www.verdictum.in/gujarat-high-court/ushaben-harilal-nandha-v-union-of-india-2026gujhc50287-db-lpg-pipeline-gail-acquire-land-1620153
+
+[Source Link](https://t.me/verdictumlegalupdates/28608)
+
+---
+
+### 2026-08-19T05:32:24+00:00
+Sec.64VB Of Insurance Act Puts Embargo On Insurer From Taking Risk If Premium Isn’t Paid Prior To Assumption Of Such Risk: Supreme Court
+https://www.verdictum.in/supreme-court/the-new-india-assurance-company-limited-ors-v-ms-louis-dreyfus-commodities-india-pvt-ltd-2026-insc-876-1620151
+
+[Source Link](https://t.me/verdictumlegalupdates/28607)
+
+---
+
+### 2026-08-19T05:03:03+00:00
+Supreme Court Collegium Recommends Appointment Of Judicial Officers, Advocates As Judges Of Three High Courts
+https://www.verdictum.in/supreme-court/appointment-of-judicial-officers-advocates-as-judges-of-three-high-courts-1620146
+
+[Source Link](https://t.me/verdictumlegalupdates/28606)
+
+---
+
+### 2026-08-19T04:33:12+00:00
+Order Framing Charges By NIA Special Court Not Interlocutory Under Section 21 NIA Act: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/satendra-siwal-v-state-of-up-thru-prin-secy-home-lko-and-2-others-2026ahc-lko56814-1620118
+
+[Source Link](https://t.me/verdictumlegalupdates/28605)
 
 ---
 
@@ -113,54 +161,6 @@ Section 12 UP Gangsters Act Doesn’t Freeze Other Proceedings Against Accused: 
 https://www.verdictum.in/supreme-court/keshvendra-singh-v-shankar-singh-2026-insc-866-sec12-up-gangsters-act-freeze-proceedings-1620099
 
 [Source Link](https://t.me/verdictumlegalupdates/28591)
-
----
-
-### 2026-08-18T09:02:48+00:00
-Supreme Court Issues Nationwide Guidelines On Surety Verification, Passport Deposit & Centralised Database For Foreign Nationals Accused Under NDPS Act
-https://www.verdictum.in/supreme-court/union-of-india-v-chidiebere-kingsley-nawchara-2026-insc-870-surety-verification-passport-deposit-centralised-database-ndps-1620096
-
-[Source Link](https://t.me/verdictumlegalupdates/28590)
-
----
-
-### 2026-08-18T08:11:47+00:00
-NEET Protests- Supreme Court To Constitute High-Powered Committee To Probe Allegations Of Police Excesses & Violence By Protesters
-https://www.verdictum.in/supreme-court/constitute-high-powered-committee-probe-allegations-police-excesses-violence-neet-paper-leak-protests-1620095
-
-[Source Link](https://t.me/verdictumlegalupdates/28589)
-
----
-
-### 2026-08-18T08:02:46+00:00
-Validity Of Prior Deposit Requirement Clause As Precondition To Invoke Arbitration: Supreme Court Doubts Its Earlier SK Jain Judgment
-https://www.verdictum.in/supreme-court/ms-santosh-associate-private-limited-v-haryana-state-industrial-and-infrastructure-development-corporation-ltd-2026-insc-872-1620091
-
-[Source Link](https://t.me/verdictumlegalupdates/28588)
-
----
-
-### 2026-08-18T07:32:06+00:00
-Bombay High Court Grants Bail To Convict In Dabholkar Murder Case, Suspends Life Sentence
-https://www.verdictum.in/bombay-high-court/bail-to-convict-in-dabholkar-murder-case-1620087
-
-[Source Link](https://t.me/verdictumlegalupdates/28587)
-
----
-
-### 2026-08-18T07:02:45+00:00
-Supreme Court Seeks Response From Centre & Social Media Platforms On PIL To Restrain Police From Disclosing Identity Of Accused
-https://www.verdictum.in/supreme-court/union-states-social-media-platforms-responses-pil-restrain-police-disclosing-accused-identities-1620083
-
-[Source Link](https://t.me/verdictumlegalupdates/28586)
-
----
-
-### 2026-08-18T06:33:04+00:00
-Police Need Not Decide Truth Of Allegations At FIR Stage: Allahabad High Court Directs UP DGP To Examine Non-Registration Of Sexual Assault Complaint
-https://www.verdictum.in/allahabad-high-court/arpit-gupta-v-state-of-up-and-2-others-2026ahc168404-db-fir-non-registration-1620079
-
-[Source Link](https://t.me/verdictumlegalupdates/28585)
 
 ---
 
