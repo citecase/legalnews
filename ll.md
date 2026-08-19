@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-19T10:17:58+00:00*
+*Last Updated: 2026-08-19T14:08:08+00:00*
 
 ---
 
-### 2026-08-19T10:17:58+00:00
-Brothel Customer Can't Be Prosecuted Under Immoral Traffic Act: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/brothel-customer-immoral-traffic-act-not-attracted-546449
+### 2026-08-19T14:08:08+00:00
+2026 LiveLaw (SC) 830  |  Rafikmiya Ahmedmiya Malek v State of Gujarat
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-830-rafikmiya-ahmedmiya-malek-v-state-of-gujarat-546537
 
-[Read on Telegram](https://t.me/livelawindia/117759)
-
----
-### 2026-08-19T10:37:58+00:00
-IUST Constituent College Teachers Retire At 60, Not 62; Executive Council Decision Excluding Them From Enhanced Age Binding: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/nursing-college-teacher-at-iust-cannot-claim-enhanced-retirement-age-of-62-as-executive-council-specifically-excluded-constituent-colleges-jk-high-court-546402
-
-[Read on Telegram](https://t.me/livelawindia/117760)
+[Read on Telegram](https://t.me/livelawindia/117791)
 
 ---
-### 2026-08-19T10:46:39+00:00
-NEET-UG | Why Nilakeni Task Force Formed? New Law Doesn't Address Liability Of NTA Officials : Doctors Body To Supreme Court
-https://www.livelaw.in/top-stories/neet-ug-why-nilakeni-task-force-formed-new-law-doesnt-address-liability-of-nta-officials-doctors-body-to-supreme-court-546488
+### 2026-08-19T14:08:18+00:00
+Mumbai Municipal Corporation Act Cannot Be Invoked To Acquire Private Land For Connector Road Where No Public Street Exists: High Court
+https://www.livelaw.in/high-court/bombay-high-court/sections-297-299-mumbai-municipal-corporation-act-cannot-acquire-private-land-where-no-public-street-exists-546395
 
-[Read on Telegram](https://t.me/livelawindia/117761)
-
----
-### 2026-08-19T10:47:39+00:00
-Reliable Dying Declaration Can Form Basis For Acquittal Too: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/dying-declaration-basis-of-acquittal-accidental-burn-injuries-546452
-
-[Read on Telegram](https://t.me/livelawindia/117762)
+[Read on Telegram](https://t.me/livelawindia/117792)
 
 ---
-### 2026-08-19T11:01:11+00:00
-Surplus Employee Entitled To Absorption Against Equivalent Or Lower Post, Not Higher Post : Supreme Court
-https://www.livelaw.in/supreme-court/surplus-employee-entitled-to-absorption-against-equivalent-or-lower-post-not-higher-post-supreme-court-546493
+### 2026-08-19T14:11:58+00:00
+'All Parties Not Made Parties To Settlement', Supreme Court Sets Aside Lok Adalat Award In Land Acquisition Dispute
+https://www.livelaw.in/supreme-court/all-parties-not-made-parties-to-settlement-supreme-court-sets-aside-lok-adalat-award-in-land-acquisition-dispute-546539
 
-[Read on Telegram](https://t.me/livelawindia/117763)
-
----
-### 2026-08-19T11:02:11+00:00
-2026 LiveLaw (SC) 828 |  THE STATE OF MAHARASHTRA & ORS. VERSUS SUDHAKAR SHIVARAM TEKE & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-828-the-state-of-maharashtra-ors-versus-sudhakar-shivaram-teke-ors-546494
-
-[Read on Telegram](https://t.me/livelawindia/117764)
+[Read on Telegram](https://t.me/livelawindia/117793)
 
 ---
-### 2026-08-19T11:02:31+00:00
-Trial Court Cannot Reject Charge-Sheet Over Absconding Co-Accused: Tripura High Court
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-trial-court-reject-charge-sheet-absconding-coaccused-546400
+### 2026-08-19T14:13:58+00:00
+2026 LiveLaw (SC) 831 |  SINGAPOGU BABU RAO & ORS. VERSUS SPECIAL DEPUTY COLLECTOR (LAND ACQUISITION) & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-831-singapogu-babu-rao-ors-versus-special-deputy-collector-land-acquisition-ors-546541
 
-[Read on Telegram](https://t.me/livelawindia/117765)
-
----
-### 2026-08-19T11:08:52+00:00
-Christian Women Can File For Divorce At Their Place Of Residence: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-christian-women-divorce-act-place-residence-546497
-
-[Read on Telegram](https://t.me/livelawindia/117766)
+[Read on Telegram](https://t.me/livelawindia/117794)
 
 ---
-### 2026-08-19T11:12:32+00:00
-Prior Permission U/S 83 Registration Act Not Mandatory For Prosecution, Private Complaint Maintainable: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/prior-permission-section-83-registration-act-not-mandatory-546386
+### 2026-08-19T14:15:18+00:00
+Two-Year Program In “Master Of Arts In Mediation & Conflict Resolution For Executives” 2026-2028
+https://www.livelaw.in/lawschool/law-school-admission/two-year-program-in-master-of-arts-in-mediation-conflict-resolution-for-executives-2026-2028-546542
 
-[Read on Telegram](https://t.me/livelawindia/117767)
-
----
-### 2026-08-19T11:22:52+00:00
-Calling By Caste Name Without Intent To Humiliate Doesn't Attract SC/ST Act: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-material-showing-intent-humiliate-caste-ground-sustain-summoning-s319-crpc-546457
-
-[Read on Telegram](https://t.me/livelawindia/117768)
+[Read on Telegram](https://t.me/livelawindia/117795)
 
 ---
-### 2026-08-19T11:38:12+00:00
-Men, Working Women & Professionals Who Take Care Of Family Are Also 'Home Makers': Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-enhances-mact-compensation-homemaker-includes-men-working-professionals-546505
+### 2026-08-19T14:16:18+00:00
+Bombay High Court Upholds Quashing Of Process Issued Against BJP's Mangal Prabhat Lodha In 2007 Cheating Case
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-upholds-quashing-of-process-issued-against-bjps-mangal-prabhat-lodha-in-2007-cheating-case-546543
 
-[Read on Telegram](https://t.me/livelawindia/117769)
-
----
-### 2026-08-19T11:45:12+00:00
-'Mixture Of Prayers': Delhi High Court Refuses To Entertain Plea Seeking NEET Re-Exam Score Correction, Expert Panel & Scrapping Of NTA
-https://www.livelaw.in/high-court/delhi-high-court/pil-neet-ug-rexam-score-scrap-nta-expert-panel-dismissed-546507
-
-[Read on Telegram](https://t.me/livelawindia/117770)
+[Read on Telegram](https://t.me/livelawindia/117796)
 
 ---
-### 2026-08-19T11:48:13+00:00
-Calcutta High Court Orders Closure Of M-Bazaar Operating Inside Former Cinema Hall, Says Trade Licence Cannot Authorise Illegal Change Of Use
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-orders-closure-of-m-bazaar-at-former-cinema-hall-says-trade-licence-cannot-authorise-illegal-change-of-use-546473
+### 2026-08-19T14:17:58+00:00
+'Abdication Of Duty': High Court Summons Haryana DGP To Explain Laxity Of Police Witnesses Absenting From Trial In NDPS Cases
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/haryana-dgp-explain-police-witnesses-absenting-trial-ndps-546496
 
-[Read on Telegram](https://t.me/livelawindia/117771)
-
----
-### 2026-08-19T12:03:03+00:00
-Failure To Follow Binding Precedents Gives Rise To Substantial Question Of Law In ESI Act Appeals: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-esi-appeals-substantial-question-of-law-546478
-
-[Read on Telegram](https://t.me/livelawindia/117772)
+[Read on Telegram](https://t.me/livelawindia/117797)
 
 ---
-### 2026-08-19T12:17:23+00:00
-Shiv Sena Row | Can We Declare Eknath Shinde Disqualified Today? Supreme Court Asks UBT Group
-https://www.livelaw.in/top-stories/supreme-court-shiv-sena-ubt-plea-j-bagchi-asks-if-maharashtra-speaker-order-is-set-aside-can-eknath-shinde-be-consequentially-disqualified-as-mla-546510
+### 2026-08-19T14:28:58+00:00
+Supreme Court 9-Judge Bench To Pronounce Judgment Tomorrow On Correctness Of 'Industry' Definition
+https://www.livelaw.in/top-stories/supreme-court-9-judge-bench-to-pronounce-judgment-tomorrow-on-correctness-of-industry-definition-546546
 
-[Read on Telegram](https://t.me/livelawindia/117773)
-
----
-### 2026-08-19T12:17:33+00:00
-J&K High Court Issues Summons To JKMSCL Managing Director Over Failure To Supply Haemophilia Drug To Govt Medical Colleges
-https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-issues-summons-to-jkmscl-managing-director-over-failure-to-supply-haemophilia-drug-to-gmc-hospitals-546392
-
-[Read on Telegram](https://t.me/livelawindia/117774)
+[Read on Telegram](https://t.me/livelawindia/117798)
 
 ---
-### 2026-08-19T12:25:43+00:00
-No Evidence Lethal Injection Is More Humane Than Hanging For Death Sentence: Supreme Court
-https://www.livelaw.in/top-stories/no-evidence-lethal-injection-is-more-humane-than-hanging-for-death-sentence-supreme-court-546511
+### 2026-08-19T14:32:38+00:00
+Parity In Pay
+https://www.livelaw.in/articles/parity-pay-546306
 
-[Read on Telegram](https://t.me/livelawindia/117775)
-
----
-### 2026-08-19T12:32:43+00:00
-NEET-UG 2026: MP High Court Dismisses OMR Discrepancy Plea After Student Verifies Signature On Original Sheet Produced By NTA
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/neet-ug-discrepancies-in-omr-answer-sheet-546485
-
-[Read on Telegram](https://t.me/livelawindia/117776)
+[Read on Telegram](https://t.me/livelawindia/117799)
 
 ---
-### 2026-08-19T12:47:36+00:00
-Delhi High Court Rejects Husband's Divorce Plea Over Claim He Was Under Sedative Influence During Marriage
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-rejects-husbands-divorce-plea-over-claim-he-was-under-sedative-influence-during-marriage-546490
+### 2026-08-19T14:33:18+00:00
+Even Minor Penalty Requires Departmental Enquiry If Employee Denies Charges: Madhya Pradesh High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/departmental-enquiry-delinquent-employee-denies-allegations-minor-penalty-546512
 
-[Read on Telegram](https://t.me/livelawindia/117777)
+[Read on Telegram](https://t.me/livelawindia/117800)
 
 ---
-### 2026-08-19T12:48:06+00:00
-TN Govt Free To Render 'Tamil Thaai Vaazhthu' Before National Anthem At Official Functions: Centre To Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tamil-thaai-vaazhthu-rendition-order-plea-closed-546514
+### 2026-08-19T14:42:58+00:00
+Tenant Who Loses Tenancy Can Be Evicted As Trespasser; City Civil Court Has Jurisdiction: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/tenant-who-loses-tenancy-can-be-evicted-as-trespasser-city-civil-court-has-jurisdiction-calcutta-high-court-546479
 
-[Read on Telegram](https://t.me/livelawindia/117778)
+[Read on Telegram](https://t.me/livelawindia/117801)
+
+---
+### 2026-08-19T15:00:39+00:00
+'If You've System For Men, How Can You Deny To Women?' :  Supreme Court Grills Coast Guard Over Denial Of Permanent Commission
+https://www.livelaw.in/top-stories/supreme-court-asks-indian-coast-guard-to-grant-permanent-commission-to-woman-officer-priyanka-tyagi-asks-why-no-pc-to-women-when-given-to-men-546549
+
+[Read on Telegram](https://t.me/livelawindia/117802)
+
+---
+### 2026-08-19T15:02:49+00:00
+'UK Law Degree Recognised By BCI For Enrolment Cannot Serve As 'First Degree' For Admission To 3-Year LLB In India': Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/uk-law-degree-recognised-bci-cannot-serve-first-degree-admission-3-year-llb-course-546396
+
+[Read on Telegram](https://t.me/livelawindia/117803)
+
+---
+### 2026-08-19T15:17:09+00:00
+Brethren Assembly Hall Is A 'Church' Under Kerala Liquor Rules; Bar Distance Restrictions Apply: High Court
+https://www.livelaw.in/high-court/kerala-high-court/brethren-assembly-hall-kerala-foreign-liquor-rules-church-distance-546521
+
+[Read on Telegram](https://t.me/livelawindia/117804)
+
+---
+### 2026-08-19T15:32:49+00:00
+'Such Cases Clog Courts': Karnataka High Court's Prima Facie View On Lawyer's Complaint Alleging Attack By Senior Citizen's 10 Dogs
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-passport-denied-senior-citizen-dogs-attacked-lawyer-546538
+
+[Read on Telegram](https://t.me/livelawindia/117805)
+
+---
+### 2026-08-19T15:42:29+00:00
+Mother's Violation Of Foreign Court Order, Relocation Of Children To India Does Not Disentitle Her From Custody: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/mothers-violation-of-court-orders-procuring-duplicate-passports-does-not-disentitle-her-from-custody-if-otherwise-in-childs-welfare-jk-high-court-546397
+
+[Read on Telegram](https://t.me/livelawindia/117806)
+
+---
+### 2026-08-19T16:20:00+00:00
+Jammu and Kashmir and Ladakh High Court Weekly Roundup 10th August - 17th August 2026
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-weekly-roundup-546554
+
+[Read on Telegram](https://t.me/livelawindia/117807)
+
+---
+### 2026-08-19T16:35:20+00:00
+LiveLaw High Courts Daily Highlights: August 19, 2026
+https://www.livelaw.in/high-court/all-high-courts/livelaw-high-courts-daily-highlights-august-19-2026-546555
+
+[Read on Telegram](https://t.me/livelawindia/117808)
+
+---
+### 2026-08-19T16:55:11+00:00
+Prayagraj Waterlogging | High Court Directs Municipal Commissioner, DM To Ensure Rainwater Is Pumped Out From Low-Lying Areas
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-prayagraj-waterlogging-rainwater-low-lying-areas-suo-moto-546556
+
+[Read on Telegram](https://t.me/livelawindia/117809)
+
+---
+### 2026-08-19T17:22:22+00:00
+Supreme Court Daily Round-Up : August 19, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-19-2026-546550
+
+[Read on Telegram](https://t.me/livelawindia/117810)
 
 ---
