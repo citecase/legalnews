@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-19T04:47:49+00:00*
+*Last Updated: 2026-08-19T10:17:58+00:00*
 
 ---
 
-### 2026-08-19T04:47:49+00:00
-Patna High Court Dismisses PIL Seeking Suspension Of Police Officers Over Alleged Lathi Charge During Students' Protest
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-dismisses-pil-seeking-suspension-police-officers-lathi-charge-students-546384
+### 2026-08-19T10:17:58+00:00
+Brothel Customer Can't Be Prosecuted Under Immoral Traffic Act: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/brothel-customer-immoral-traffic-act-not-attracted-546449
 
-[Read on Telegram](https://t.me/livelawindia/117706)
-
----
-### 2026-08-19T05:01:09+00:00
-Pending Trials Against MP/MLAs Remain Same Despite Courts' Monitoring, Amicus Tells Supreme Court
-https://www.livelaw.in/top-stories/pending-trials-against-mpmlas-remain-same-despite-courts-monitoring-amicus-tells-supreme-court-546401
-
-[Read on Telegram](https://t.me/livelawindia/117707)
+[Read on Telegram](https://t.me/livelawindia/117759)
 
 ---
-### 2026-08-19T05:02:29+00:00
-Public Purpose Cannot Justify Taking Private Land Without Lawful Acquisition Or Compensation: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-public-authority-retain-private-property-indefinitely-546369
+### 2026-08-19T10:37:58+00:00
+IUST Constituent College Teachers Retire At 60, Not 62; Executive Council Decision Excluding Them From Enhanced Age Binding: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/nursing-college-teacher-at-iust-cannot-claim-enhanced-retirement-age-of-62-as-executive-council-specifically-excluded-constituent-colleges-jk-high-court-546402
 
-[Read on Telegram](https://t.me/livelawindia/117708)
-
----
-### 2026-08-19T05:17:49+00:00
-Delhi High Court Directs Stakeholders To Deliberate On Accessibility Of Films For Persons With Disabilities
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-stakeholders-to-deliberate-on-accessibility-of-films-for-persons-with-disabilities-546371
-
-[Read on Telegram](https://t.me/livelawindia/117709)
+[Read on Telegram](https://t.me/livelawindia/117760)
 
 ---
-### 2026-08-19T05:28:19+00:00
-CCPA Fines Amazon ₹1 Lakh For Permitting Sale Of Regular Sweets Under 'False Label' Of 'Shri Ram Mandir Ayodhya Prasad'
-https://www.livelaw.in/news-updates/ccpa-amazon-ayodhya-ram-mandir-prasad-misleading-claim-fine-546405
+### 2026-08-19T10:46:39+00:00
+NEET-UG | Why Nilakeni Task Force Formed? New Law Doesn't Address Liability Of NTA Officials : Doctors Body To Supreme Court
+https://www.livelaw.in/top-stories/neet-ug-why-nilakeni-task-force-formed-new-law-doesnt-address-liability-of-nta-officials-doctors-body-to-supreme-court-546488
 
-[Read on Telegram](https://t.me/livelawindia/117710)
-
----
-### 2026-08-19T05:33:00+00:00
-Societal Interest In Prosecuting Serious Offences Prevails Despite Settlement Between Parties: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/societal-interest-in-prosecuting-serious-offences-prevails-despite-settlement-between-parties-gauhati-high-court-546375
-
-[Read on Telegram](https://t.me/livelawindia/117711)
+[Read on Telegram](https://t.me/livelawindia/117761)
 
 ---
-### 2026-08-19T05:46:41+00:00
-Senior Citizens Tribunal Can Order Eviction Of Children From Parents' Property : Supreme Court Reiterates
-https://www.livelaw.in/supreme-court/senior-citizens-tribunal-can-order-eviction-of-children-from-parents-property-supreme-court-reiterates-546410
+### 2026-08-19T10:47:39+00:00
+Reliable Dying Declaration Can Form Basis For Acquittal Too: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/dying-declaration-basis-of-acquittal-accidental-burn-injuries-546452
 
-[Read on Telegram](https://t.me/livelawindia/117712)
-
----
-### 2026-08-19T05:47:51+00:00
-Andhra Pradesh Goondas Act | 12-Day Period For Govt Approval Begins After Detention Order Is Passed: High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-period-approval-preventive-detention-order-546376
-
-[Read on Telegram](https://t.me/livelawindia/117713)
+[Read on Telegram](https://t.me/livelawindia/117762)
 
 ---
-### 2026-08-19T05:48:01+00:00
-2026 LiveLaw (SC) 824 | RAVI KANT GUPTA VERSUS STATE OF UTTAR PRADESH & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-824-ravi-kant-gupta-versus-state-of-uttar-pradesh-ors-546411
+### 2026-08-19T11:01:11+00:00
+Surplus Employee Entitled To Absorption Against Equivalent Or Lower Post, Not Higher Post : Supreme Court
+https://www.livelaw.in/supreme-court/surplus-employee-entitled-to-absorption-against-equivalent-or-lower-post-not-higher-post-supreme-court-546493
 
-[Read on Telegram](https://t.me/livelawindia/117714)
-
----
-### 2026-08-19T06:02:41+00:00
-Wife's Persistent Quarrels, Opposition To Husband Supporting Parents Despite Shifting House Is Cruelty: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/wifes-persistent-quarrels-opposition-to-husband-supporting-parents-despite-shifting-house-is-cruelty-546377
-
-[Read on Telegram](https://t.me/livelawindia/117715)
+[Read on Telegram](https://t.me/livelawindia/117763)
 
 ---
-### 2026-08-19T06:10:21+00:00
-Madras High Court Dismisses PIL Against Dropping Of Disqualification Proceedings Against AIADMK MLAs Who Voted For TVK Govt
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-against-dropping-disqualification-aiadmk-mlas-dismissed-546417
+### 2026-08-19T11:02:11+00:00
+2026 LiveLaw (SC) 828 |  THE STATE OF MAHARASHTRA & ORS. VERSUS SUDHAKAR SHIVARAM TEKE & ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-828-the-state-of-maharashtra-ors-versus-sudhakar-shivaram-teke-ors-546494
 
-[Read on Telegram](https://t.me/livelawindia/117716)
-
----
-### 2026-08-19T06:10:31+00:00
-'CJI Like A Father Figure,' Says Newly Elected SCBA President Pradeep Rai
-https://www.livelaw.in/top-stories/cji-like-a-father-figure-says-newly-elected-scba-president-pradeep-rai-546418
-
-[Read on Telegram](https://t.me/livelawindia/117717)
+[Read on Telegram](https://t.me/livelawindia/117764)
 
 ---
-### 2026-08-19T06:14:01+00:00
-Associate (Tax) Vacancy At Ernst & Young [Apply Now; Mumbai]
-https://www.livelaw.in/job-updates/associate-tax-vacancy-at-ernst-young-546419
+### 2026-08-19T11:02:31+00:00
+Trial Court Cannot Reject Charge-Sheet Over Absconding Co-Accused: Tripura High Court
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-trial-court-reject-charge-sheet-absconding-coaccused-546400
 
-[Read on Telegram](https://t.me/livelawindia/117718)
-
----
-### 2026-08-19T06:15:11+00:00
-Goa Night Club Fire Incident: Bombay High Court Cancels Bail Granted To Restaurant Owners
-https://www.livelaw.in/high-court/bombay-high-court/goa-night-club-fire-incident-owners-bail-cancelled-546420
-
-[Read on Telegram](https://t.me/livelawindia/117719)
+[Read on Telegram](https://t.me/livelawindia/117765)
 
 ---
-### 2026-08-19T06:20:51+00:00
-Judicial Interference In Tender Process At Advanced Stage Not Warranted, Challenge Must Be Prompt : Supreme Court
-https://www.livelaw.in/supreme-court/judicial-interference-in-tender-process-at-advanced-stage-not-warranted-challenge-must-be-prompt-supreme-court-546422
+### 2026-08-19T11:08:52+00:00
+Christian Women Can File For Divorce At Their Place Of Residence: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-christian-women-divorce-act-place-residence-546497
 
-[Read on Telegram](https://t.me/livelawindia/117720)
-
----
-### 2026-08-19T06:22:11+00:00
-2026 LiveLaw (SC) 815 | M/S. UTKARSH ENTERPRISES & ORS. VERSUS UNION OF INDIA & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-815-ms-utkarsh-enterprises-ors-versus-union-of-india-ors-546423
-
-[Read on Telegram](https://t.me/livelawindia/117721)
+[Read on Telegram](https://t.me/livelawindia/117766)
 
 ---
-### 2026-08-19T06:25:11+00:00
-NEET-UG Leak: Live Updates From Supreme Court Hearing On Plea For NTA Reforms
-https://www.livelaw.in/top-stories/neet-ug-leak-live-updates-from-supreme-court-hearing-on-plea-for-nta-reforms-546424
+### 2026-08-19T11:12:32+00:00
+Prior Permission U/S 83 Registration Act Not Mandatory For Prosecution, Private Complaint Maintainable: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/prior-permission-section-83-registration-act-not-mandatory-546386
 
-[Read on Telegram](https://t.me/livelawindia/117722)
-
----
-### 2026-08-19T06:32:31+00:00
-Police Officer Can Face Disciplinary Proceedings Despite Pending Criminal Case Over Same Incident: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-disciplinary-proceedings-police-officer-fir-lodged-546387
-
-[Read on Telegram](https://t.me/livelawindia/117723)
+[Read on Telegram](https://t.me/livelawindia/117767)
 
 ---
-### 2026-08-19T06:41:11+00:00
-'No One Knows Case Numbers': Delhi High Court Questions Restricting Name-Based Search Of Judgments In IndianKanoon's Appeals
-https://www.livelaw.in/high-court/delhi-high-court/indian-kanoon-right-to-be-forgotten-name-based-search-546426
+### 2026-08-19T11:22:52+00:00
+Calling By Caste Name Without Intent To Humiliate Doesn't Attract SC/ST Act: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-material-showing-intent-humiliate-caste-ground-sustain-summoning-s319-crpc-546457
 
-[Read on Telegram](https://t.me/livelawindia/117724)
+[Read on Telegram](https://t.me/livelawindia/117768)
 
 ---
-### 2026-08-19T06:47:31+00:00
-'Speculative Litigation': Kerala High Court Dismisses PIL Against Free-Bus Travel Scheme For Women, Transgender Persons
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-pil-priyadarshini-free-bus-scheme-speculative-litigation-546427
+### 2026-08-19T11:38:12+00:00
+Men, Working Women & Professionals Who Take Care Of Family Are Also 'Home Makers': Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-enhances-mact-compensation-homemaker-includes-men-working-professionals-546505
 
-[Read on Telegram](https://t.me/livelawindia/117725)
+[Read on Telegram](https://t.me/livelawindia/117769)
+
+---
+### 2026-08-19T11:45:12+00:00
+'Mixture Of Prayers': Delhi High Court Refuses To Entertain Plea Seeking NEET Re-Exam Score Correction, Expert Panel & Scrapping Of NTA
+https://www.livelaw.in/high-court/delhi-high-court/pil-neet-ug-rexam-score-scrap-nta-expert-panel-dismissed-546507
+
+[Read on Telegram](https://t.me/livelawindia/117770)
+
+---
+### 2026-08-19T11:48:13+00:00
+Calcutta High Court Orders Closure Of M-Bazaar Operating Inside Former Cinema Hall, Says Trade Licence Cannot Authorise Illegal Change Of Use
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-orders-closure-of-m-bazaar-at-former-cinema-hall-says-trade-licence-cannot-authorise-illegal-change-of-use-546473
+
+[Read on Telegram](https://t.me/livelawindia/117771)
+
+---
+### 2026-08-19T12:03:03+00:00
+Failure To Follow Binding Precedents Gives Rise To Substantial Question Of Law In ESI Act Appeals: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-esi-appeals-substantial-question-of-law-546478
+
+[Read on Telegram](https://t.me/livelawindia/117772)
+
+---
+### 2026-08-19T12:17:23+00:00
+Shiv Sena Row | Can We Declare Eknath Shinde Disqualified Today? Supreme Court Asks UBT Group
+https://www.livelaw.in/top-stories/supreme-court-shiv-sena-ubt-plea-j-bagchi-asks-if-maharashtra-speaker-order-is-set-aside-can-eknath-shinde-be-consequentially-disqualified-as-mla-546510
+
+[Read on Telegram](https://t.me/livelawindia/117773)
+
+---
+### 2026-08-19T12:17:33+00:00
+J&K High Court Issues Summons To JKMSCL Managing Director Over Failure To Supply Haemophilia Drug To Govt Medical Colleges
+https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-issues-summons-to-jkmscl-managing-director-over-failure-to-supply-haemophilia-drug-to-gmc-hospitals-546392
+
+[Read on Telegram](https://t.me/livelawindia/117774)
+
+---
+### 2026-08-19T12:25:43+00:00
+No Evidence Lethal Injection Is More Humane Than Hanging For Death Sentence: Supreme Court
+https://www.livelaw.in/top-stories/no-evidence-lethal-injection-is-more-humane-than-hanging-for-death-sentence-supreme-court-546511
+
+[Read on Telegram](https://t.me/livelawindia/117775)
+
+---
+### 2026-08-19T12:32:43+00:00
+NEET-UG 2026: MP High Court Dismisses OMR Discrepancy Plea After Student Verifies Signature On Original Sheet Produced By NTA
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/neet-ug-discrepancies-in-omr-answer-sheet-546485
+
+[Read on Telegram](https://t.me/livelawindia/117776)
+
+---
+### 2026-08-19T12:47:36+00:00
+Delhi High Court Rejects Husband's Divorce Plea Over Claim He Was Under Sedative Influence During Marriage
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-rejects-husbands-divorce-plea-over-claim-he-was-under-sedative-influence-during-marriage-546490
+
+[Read on Telegram](https://t.me/livelawindia/117777)
+
+---
+### 2026-08-19T12:48:06+00:00
+TN Govt Free To Render 'Tamil Thaai Vaazhthu' Before National Anthem At Official Functions: Centre To Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tamil-thaai-vaazhthu-rendition-order-plea-closed-546514
+
+[Read on Telegram](https://t.me/livelawindia/117778)
 
 ---
