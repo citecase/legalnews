@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-20T10:29:34+00:00*
+*Last Updated: 2026-08-20T14:09:06+00:00*
 
 ---
 
-### 2026-08-20T10:29:34+00:00
-Merely Lodging A False FIR Is Not Abetment Of Suicide: Supreme Court
-https://www.livelaw.in/supreme-court/supreme-court-merely-lodging-false-fir-abetment-of-suicide-546655
+### 2026-08-20T14:09:06+00:00
+UP Gangsters Act Stillborn, Doesn't Create Any Offence; Perpetuates Violence On Unsuspecting Citizens : Supreme Court
+https://www.livelaw.in/supreme-court/up-gangsters-act-stillborn-doesnt-create-any-offence-perpetuates-violence-supreme-court-546719
 
-[Read on Telegram](https://t.me/livelawindia/117869)
-
----
-### 2026-08-20T10:30:54+00:00
-2026 LiveLaw (SC) 835 | Patel Joshnaben Pravinkumar Patel & Ors. v State of Gujarat & Anr
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-835-patel-joshnaben-pravinkumar-patel-ors-v-state-of-gujarat-anr-546656
-
-[Read on Telegram](https://t.me/livelawindia/117870)
+[Read on Telegram](https://t.me/livelawindia/117898)
 
 ---
-### 2026-08-20T10:32:14+00:00
-Supreme Court Stays PMLA Trial Against J&K Officer
-https://www.livelaw.in/news-updates/supreme-court-stays-pmla-trial-jk-officer-lack-of-sanction-546657
+### 2026-08-20T14:10:26+00:00
+2026 LiveLaw (SC) 836 | Shiv Pratap Singh Alias Chinu Versus State of U.P & Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-836-shiv-pratap-singh-alias-chinu-versus-state-of-up-ors-546720
 
-[Read on Telegram](https://t.me/livelawindia/117871)
-
----
-### 2026-08-20T10:32:34+00:00
-Government Employee Can't Be Denied Financial Benefit Merely For Lack Of Awareness Of Office Order Published Online: HP HC
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/government-employee-cant-be-denied-financial-benefit-merely-for-lack-of-awareness-of-office-order-published-online-hp-hc-546565
-
-[Read on Telegram](https://t.me/livelawindia/117872)
+[Read on Telegram](https://t.me/livelawindia/117899)
 
 ---
-### 2026-08-20T10:36:54+00:00
-Common Intention | S.34 IPC Attracted Where Co-Accused's Participation Has 'Functional Relationship' With Offence: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/s34-ipc-common-intention-functional-relationship-offence-allahabad-high-court-546658
+### 2026-08-20T14:20:26+00:00
+Caste Abuse Inside Enclosed Space SC/ST Act Offence : Supreme Court
+https://www.livelaw.in/supreme-court/caste-abuse-inside-enclosed-space-scst-act-offence-supreme-court-546722
 
-[Read on Telegram](https://t.me/livelawindia/117873)
-
----
-### 2026-08-20T10:37:34+00:00
-Child Below 14 Years Can't Be Rusticated Under Delhi School Education Rules: High Court
-https://www.livelaw.in/high-court/delhi-high-court/child-below-14-years-cant-be-rusticated-under-delhi-school-education-rules-546659
-
-[Read on Telegram](https://t.me/livelawindia/117874)
+[Read on Telegram](https://t.me/livelawindia/117900)
 
 ---
-### 2026-08-20T10:55:24+00:00
-'Competitive Exams May Be Intense, But Can't Justify Manipulating Scorecard': Bombay High Court Upholds Cancellation Of Student Admission
-https://www.livelaw.in/high-court/bombay-high-court/student-btech-admission-cancellation-upheld-manipulating-scorecard-546662
+### 2026-08-20T14:22:06+00:00
+2026 LiveLaw (SC) 837 |Ramkrishna Chauhan v State of Uttar Pradesh & Anr
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-837-ramkrishna-chauhan-v-state-of-uttar-pradesh-anr-546723
 
-[Read on Telegram](https://t.me/livelawindia/117875)
-
----
-### 2026-08-20T11:07:44+00:00
-Kerala High Court Upholds Vaccination Rule For ₹6,000 Maternity Benefit Under PMMVY Scheme
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-pmmvy-scheme-maternity-benefit-girl-child-vaccination-546664
-
-[Read on Telegram](https://t.me/livelawindia/117876)
+[Read on Telegram](https://t.me/livelawindia/117901)
 
 ---
-### 2026-08-20T11:16:45+00:00
-Supreme Court Forms 5-Member Committee Led By Ex-SC Judge Subhash Reddy To Probe Student Protest Violence
-https://www.livelaw.in/top-stories/supreme-court-forms-5-member-committee-led-by-ex-sc-judge-subhash-reddy-to-probe-student-protest-violence-546666
+### 2026-08-20T14:32:46+00:00
+From Policy Deference To Disclosure: Shifting Legal Battle Over India's E20 Petrol Mandate
+https://www.livelaw.in/articles/policy-deference-disclosure-shifting-legal-battle-e20-petrol-mandate-546553
 
-[Read on Telegram](https://t.me/livelawindia/117877)
-
----
-### 2026-08-20T11:38:15+00:00
-Karnataka High Court Protects 15 Bengaluru Street Vendors From Eviction, Seeks State's Report On Vending Spots
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-precipitative-action-street-vendors-546672
-
-[Read on Telegram](https://t.me/livelawindia/117878)
+[Read on Telegram](https://t.me/livelawindia/117902)
 
 ---
-### 2026-08-20T11:57:15+00:00
-Private Documents Obtained From Public Authority Under RTI Act Don't Become Public Documents: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-rti-private-document-stored-govt-office-public-record-546674
+### 2026-08-20T14:37:46+00:00
+Caste Certificate Issued In Husband's Name Cannot Impact Reservation Benefit When Error Was Committed By State: Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-caste-certificate-issued-husband-reservation-benefit-546685
 
-[Read on Telegram](https://t.me/livelawindia/117879)
-
----
-### 2026-08-20T12:05:15+00:00
-After Mediation Fails, Madras High Court To Hear Tamil Nadu Minister's Plea To Quash Assault Case
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-minister-marie-wilson-plea-quash-criminal-assault-case-546677
-
-[Read on Telegram](https://t.me/livelawindia/117880)
+[Read on Telegram](https://t.me/livelawindia/117903)
 
 ---
-### 2026-08-20T12:09:15+00:00
-Passport Authority's Notice To PDP Leader Naeem Akhtar Prima Facie Fails Fairness Test: J&K&L High Court Seeks RPO's Personal Appearance
-https://www.livelaw.in/high-court/jammu-kashmir/passport-authoritys-notice-to-pdp-leader-naeem-akhtar-prima-facie-fails-fair-administrative-action-test-jk-high-court-seeks-rpo-srinagars-personal-appearance-546678
+### 2026-08-20T14:42:06+00:00
+Assistant Secretary Vacancy At Odisha State Bar Council [Apply Now]
+https://www.livelaw.in/job-updates/assistant-secretary-vacancy-at-odisha-state-bar-council-546728
 
-[Read on Telegram](https://t.me/livelawindia/117881)
-
----
-### 2026-08-20T12:09:55+00:00
-Supreme Court Rejects Retired Professor's Claim To Be Covered By GPF Scheme Instead Of Central Provident Fund Scheme
-https://www.livelaw.in/supreme-court/supreme-court-denies-retrospective-benefit-retired-nird-professor-546679
-
-[Read on Telegram](https://t.me/livelawindia/117882)
+[Read on Telegram](https://t.me/livelawindia/117904)
 
 ---
-### 2026-08-20T12:12:35+00:00
-2026 LiveLaw (SC) 834 | K Suman Chandra v Union of India & Ors
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-834-k-suman-chandra-v-union-of-india-ors-546681
+### 2026-08-20T14:43:06+00:00
+Right To Marry Human Right, Post-Divorce Marriage Valid When Appeal Was Dismissed For Default: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-marriage-human-right-remarriage-valid-when-appeal-dismissed-546730
 
-[Read on Telegram](https://t.me/livelawindia/117883)
-
----
-### 2026-08-20T12:21:35+00:00
-Restricting Access To Social Media For Children A Policy Decision, Courts Can't Pass Directions: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/restricting-social-media-for-children-policy-decision-546683
-
-[Read on Telegram](https://t.me/livelawindia/117884)
+[Read on Telegram](https://t.me/livelawindia/117905)
 
 ---
-### 2026-08-20T12:24:35+00:00
-Uttarakhand High Court Directs Dehradun DM To Examine Citizenship Application Of Tibetan Migrant Within Six Weeks
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-directs-dehradun-dm-examine-citizenship-application-tibetan-migrant-546688
+### 2026-08-20T14:43:16+00:00
+'No Action Against Consensual Sex Work': Chhattisgarh High Court Quashes Immoral Trafficking Case Against Sex Worker
+https://www.livelaw.in/high-court/chhattisgarh-high-court/no-criminal-action-against-consensual-sex-work-546691
 
-[Read on Telegram](https://t.me/livelawindia/117885)
-
----
-### 2026-08-20T12:37:45+00:00
-Public Service Commission Can't Introduce Minimum Interview Marks For Medical Faculty Posts After Selection Process Begins: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/haryana-psc-mid-selection-minimum-interview-marks-medical-faculty-posts-546698
-
-[Read on Telegram](https://t.me/livelawindia/117886)
+[Read on Telegram](https://t.me/livelawindia/117906)
 
 ---
-### 2026-08-20T12:40:05+00:00
-Jharkhand High Court Stays State Government's Decision To Cancel Appointments Made Through 11th-13th JPSC Exams
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-stays-state-govt-order-cancelling-recruitments-through-three-jpsc-exams-546701
+### 2026-08-20T14:50:06+00:00
+Prayagraj Waterlogging | Allahabad High Court Orders Deployment Of Pumps In Affected Areas, Gives 24-Hour Deadline To Clear Water
+https://www.livelaw.in/high-court/allahabad-high-court/prayagraj-waterlogging-allahabad-hc-pumps-24-hours-municipal-corporation-546731
 
-[Read on Telegram](https://t.me/livelawindia/117887)
+[Read on Telegram](https://t.me/livelawindia/117907)
 
 ---
-### 2026-08-20T12:47:25+00:00
-J&K&L High Court Upholds Conviction Of 84-Year-Old "Guru" For Rape Of Minor Girl
-https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-upholds-conviction-of-84-year-old-godman-for-rape-of-minor-girl-holds-evidence-sufficient-to-sustain-section-376-rpc-conviction-546682
+### 2026-08-20T15:04:16+00:00
+If Same Sex Partners Can Be In Relationship, Why Deny Them Choice To Give Medical Consent For Each Other? Delhi High Court Asks
+https://www.livelaw.in/high-court/delhi-high-court/if-same-sex-partners-can-be-in-relationship-why-deny-them-choice-to-give-medical-consent-for-each-other-delhi-high-court-asks-546737
 
-[Read on Telegram](https://t.me/livelawindia/117888)
+[Read on Telegram](https://t.me/livelawindia/117908)
+
+---
+### 2026-08-20T15:21:17+00:00
+If Eknath Shinde Found To Have Defected, Basis For ECI Recognition Goes : ShivSena UBT To Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-shiv-sena-row-uddhav-thackeray-faction-says-party-symbol-should-be-frozen-eknath-shinde-faction-reaping-benefits-of-defection-546741
+
+[Read on Telegram](https://t.me/livelawindia/117909)
+
+---
+### 2026-08-20T15:22:37+00:00
+'Govt Recognition' Means Recognition By Indian Authorities; Certificate From Nepal Institute Not Valid For PDS Licence: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-recognition-indian-authorities-computer-certificate-nepal-institute-546686
+
+[Read on Telegram](https://t.me/livelawindia/117910)
+
+---
+### 2026-08-20T15:28:57+00:00
+Supreme Court To Pronounce Judgment On Review Petitions Against 3-Year Practice Rule For Judicial Service Tomorrow
+https://www.livelaw.in/top-stories/supreme-court-to-pronounce-judgment-on-review-petitions-aginst-3-year-practice-rule-for-judicial-service-tomorrow-546744
+
+[Read on Telegram](https://t.me/livelawindia/117911)
+
+---
+### 2026-08-20T15:32:37+00:00
+Burns Accidental As Per Dying Declaration: Punjab & Haryana High Court Acquits Man Of Dowry Death After 22 Years
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/1998-dowry-death-acquittal-prosecution-rule-out-accidental-death-546704
+
+[Read on Telegram](https://t.me/livelawindia/117912)
+
+---
+### 2026-08-20T15:47:37+00:00
+District Collector Can't Challenge Govt Order, Bound By State's Hierarchical Decision: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-district-collector-performing-statutory-duties-hierarchical-decision-546712
+
+[Read on Telegram](https://t.me/livelawindia/117913)
+
+---
+### 2026-08-20T15:54:47+00:00
+Calcutta High Court Judge Recuses From Sujit Bose's Bail Plea After Counsel Tried To Access Case Record With Her Secretary's Help
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-judge-recuses-from-sujit-boses-bail-plea-after-counsel-tried-to-access-case-record-from-chamber-with-her-secretary-546747
+
+[Read on Telegram](https://t.me/livelawindia/117914)
+
+---
+### 2026-08-20T15:59:47+00:00
+LiveLaw High Courts Daily Highlights: August 20, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-august-20-2026-546748
+
+[Read on Telegram](https://t.me/livelawindia/117915)
+
+---
+### 2026-08-20T16:03:07+00:00
+Mere Assault On Woman Without Specific Overt Act Towards Commission Of Rape, Is Not Attempt To Rape: Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-mere-assault-woman-specific-overt-act-commission-of-attempt-to-rape-546687
+
+[Read on Telegram](https://t.me/livelawindia/117916)
+
+---
+### 2026-08-20T17:17:58+00:00
+Supreme Court Daily Round-Up : Augsut 20, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-augsut-20-2026-546743
+
+[Read on Telegram](https://t.me/livelawindia/117917)
 
 ---
