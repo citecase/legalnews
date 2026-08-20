@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-20T13:03:12+00:00*
+*Last Updated: 2026-08-20T16:02:17+00:00*
+
+---
+
+### 2026-08-20T16:02:17+00:00
+BCI Recognition Of Foreign Law Degree Does Not Make It A "First Degree" For Admission To 3-Year LL.B. Course: Bombay High Court
+https://www.verdictum.in/bombay-high-court/yohaan-abraham-v-chhatrapati-shivaji-maharaj-university-and-another-1620277
+
+[Source Link](https://t.me/verdictumlegalupdates/28647)
+
+---
+
+### 2026-08-20T15:33:17+00:00
+Victim’s Distress In Court On Seeing Accused Not Enough For Conviction: Delhi High Court Acquits POCSO Accused
+https://www.verdictum.in/delhi-high-court/p-identity-redacted-v-state-nct-of-delhi-2026dhc6876-db-pocso-case-victims-distress-in-court-1620276
+
+[Source Link](https://t.me/verdictumlegalupdates/28646)
+
+---
+
+### 2026-08-20T15:02:56+00:00
+"Enjoyment Survey" Cannot Determine Entitlement To Compensation Under Land Acquisition Act: Supreme Court Sets Aside Lok Adalat Awards
+https://www.verdictum.in/supreme-court/singapogu-babu-rao-v-special-deputy-collector-land-acquisition-2026-insc-888-enjoyment-survey-cannot-determine-1620274
+
+[Source Link](https://t.me/verdictumlegalupdates/28645)
+
+---
+
+### 2026-08-20T14:32:35+00:00
+Goods Cleared From FTWZ Under A Fresh Contract Constitute “Fresh Import”: Delhi High Court Denies NN-45 Exemption To Oilfield Service Companies
+https://www.verdictum.in/delhi-high-court/baker-hughes-oilfield-services-india-pvt-ltd-v-customs-authority-for-advance-rulings-2026dhc6828-db-ftwz-under-fresh-contract-1620273
+
+[Source Link](https://t.me/verdictumlegalupdates/28644)
+
+---
+
+### 2026-08-20T14:03:14+00:00
+Approaching Court After 12  Years Not Bona Fide Conduct: Supreme Court On School Lecturers’ Pay Scale Dispute
+https://www.verdictum.in/supreme-court/state-of-himachal-pradesh-and-another-v-jameet-singh-and-anr-2026-insc-885-school-lecturers-1620272
+
+[Source Link](https://t.me/verdictumlegalupdates/28643)
+
+---
+
+### 2026-08-20T13:32:53+00:00
+Kerala High Court Issues Notice To Advocate In Suo Motu Contempt Case Over Broadcasting Court Proceedings On Social Media, Bars Him From Virtual Appearances
+https://www.verdictum.in/kerala-high-court/suo-motu-proceedings-initiated-by-the-high-court-v-adv-mathews-j-nedumpara-1620279
+
+[Source Link](https://t.me/verdictumlegalupdates/28642)
 
 ---
 
@@ -113,54 +161,6 @@ Superintendent Translation Vacancy At Ministry of Law and Justice
 https://www.verdictum.in/job-updates/ministry-of-law-and-justice-1620199
 
 [Source Link](https://t.me/verdictumlegalupdates/28628)
-
----
-
-### 2026-08-19T15:33:00+00:00
-Statutory Presumption U/S.20 Prevention Of Corruption Act Would Come Into Play Only After Initial Demand Is Proved Beyond Reasonable Doubt: Supreme Court
-https://www.verdictum.in/supreme-court/rafikmiya-ahmedmiya-malek-v-state-of-gujarat-2026-insc-890-prevention-of-corruption-act-1620204
-
-[Source Link](https://t.me/verdictumlegalupdates/28627)
-
----
-
-### 2026-08-19T15:02:39+00:00
-Filling Up Vacant Post And Absorption Of Surplus Employee Can't Be Conflated, Surplus Employee Not Entitled To Absorption To Higher Post: Supreme Court
-https://www.verdictum.in/supreme-court/the-state-of-maharashtra-ors-v-sudhakar-shivaram-teke-2026-insc-883-absorption-of-surplus-employee-1620203
-
-[Source Link](https://t.me/verdictumlegalupdates/28626)
-
----
-
-### 2026-08-19T14:32:18+00:00
-UAPA Accused Not Entitled To Default Bail After 90 Days: Delhi High Court Rules CrPC References In Special Laws Automatically Apply To BNSS
-https://www.verdictum.in/delhi-high-court/jasir-bilal-wani-danish-v-national-investigation-agency-2026dhc6814-db-uapa-accused-not-entitled-to-default-bail-1620200
-
-[Source Link](https://t.me/verdictumlegalupdates/28625)
-
----
-
-### 2026-08-19T14:02:18+00:00
-Illegality Cannot Be Cured By Passage Of Time: Supreme Court Orders Repatriation Of Haryana Engineers Absorbed Via "Backdoor Entry" Facilitated By Political Interference
-https://www.verdictum.in/supreme-court/hemant-kumar-v-state-of-haryana-2026-insc-878-repatriation-of-haryana-engineers-absorbed-via-backdoor-entry-1620197
-
-[Source Link](https://t.me/verdictumlegalupdates/28624)
-
----
-
-### 2026-08-19T13:32:57+00:00
-RPF Rules| Candidate Liable To Be Discharged From Service On Deliberate Suppression Of Information Regarding Subsistence Of Criminal Case Against Him: Supreme Court
-https://www.verdictum.in/supreme-court/bappa-barai-v-union-of-india-ors-2026-insc-882-rpf-rules-candidate-discharged-service-1620196
-
-[Source Link](https://t.me/verdictumlegalupdates/28623)
-
----
-
-### 2026-08-19T13:02:56+00:00
-Life Sentences Cannot Run Consecutively With Each Other Or With Fixed Term Sentences: Supreme Court
-https://www.verdictum.in/supreme-court/gopi-sahaya-puruna-v-the-state-rep-by-the-inspector-of-police-2026-insc-880-1620195
-
-[Source Link](https://t.me/verdictumlegalupdates/28622)
 
 ---
 
