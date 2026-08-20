@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-19T14:08:08+00:00*
+*Last Updated: 2026-08-20T04:53:08+00:00*
 
 ---
 
-### 2026-08-19T14:08:08+00:00
-2026 LiveLaw (SC) 830  |  Rafikmiya Ahmedmiya Malek v State of Gujarat
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-830-rafikmiya-ahmedmiya-malek-v-state-of-gujarat-546537
+### 2026-08-20T04:53:08+00:00
+LiveLaw Breaking News Alerts: 20 August 2026
+https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts-20-august-2026-546574
 
-[Read on Telegram](https://t.me/livelawindia/117791)
-
----
-### 2026-08-19T14:08:18+00:00
-Mumbai Municipal Corporation Act Cannot Be Invoked To Acquire Private Land For Connector Road Where No Public Street Exists: High Court
-https://www.livelaw.in/high-court/bombay-high-court/sections-297-299-mumbai-municipal-corporation-act-cannot-acquire-private-land-where-no-public-street-exists-546395
-
-[Read on Telegram](https://t.me/livelawindia/117792)
+[Read on Telegram](https://t.me/livelawindia/117819)
 
 ---
-### 2026-08-19T14:11:58+00:00
-'All Parties Not Made Parties To Settlement', Supreme Court Sets Aside Lok Adalat Award In Land Acquisition Dispute
-https://www.livelaw.in/supreme-court/all-parties-not-made-parties-to-settlement-supreme-court-sets-aside-lok-adalat-award-in-land-acquisition-dispute-546539
+### 2026-08-20T04:54:28+00:00
+Motor Accident Claim | Acquittal In Criminal Case Per Se Won't Prove Lack Of Negligence : Supreme Court Explains Principles
+https://www.livelaw.in/top-stories/motor-accident-claim-acquittal-in-criminal-case-per-se-wont-prove-lack-of-negligence-supreme-court-explains-principles-546575
 
-[Read on Telegram](https://t.me/livelawindia/117793)
-
----
-### 2026-08-19T14:13:58+00:00
-2026 LiveLaw (SC) 831 |  SINGAPOGU BABU RAO & ORS. VERSUS SPECIAL DEPUTY COLLECTOR (LAND ACQUISITION) & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-831-singapogu-babu-rao-ors-versus-special-deputy-collector-land-acquisition-ors-546541
-
-[Read on Telegram](https://t.me/livelawindia/117794)
+[Read on Telegram](https://t.me/livelawindia/117820)
 
 ---
-### 2026-08-19T14:15:18+00:00
-Two-Year Program In “Master Of Arts In Mediation & Conflict Resolution For Executives” 2026-2028
-https://www.livelaw.in/lawschool/law-school-admission/two-year-program-in-master-of-arts-in-mediation-conflict-resolution-for-executives-2026-2028-546542
+### 2026-08-20T04:55:48+00:00
+2026 LiveLaw (SC) 832 | Reena v The Managing Director, Karnataka State Road Transport Corporation & Ors
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-832-reena-v-the-managing-director-karnataka-state-road-transport-corporation-ors-546576
 
-[Read on Telegram](https://t.me/livelawindia/117795)
-
----
-### 2026-08-19T14:16:18+00:00
-Bombay High Court Upholds Quashing Of Process Issued Against BJP's Mangal Prabhat Lodha In 2007 Cheating Case
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-upholds-quashing-of-process-issued-against-bjps-mangal-prabhat-lodha-in-2007-cheating-case-546543
-
-[Read on Telegram](https://t.me/livelawindia/117796)
+[Read on Telegram](https://t.me/livelawindia/117821)
 
 ---
-### 2026-08-19T14:17:58+00:00
-'Abdication Of Duty': High Court Summons Haryana DGP To Explain Laxity Of Police Witnesses Absenting From Trial In NDPS Cases
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/haryana-dgp-explain-police-witnesses-absenting-trial-ndps-546496
+### 2026-08-20T04:58:08+00:00
+Indian Lawyer Arrested In London Over Sexual Assault Charge
+https://www.livelaw.in/news-updates/indian-lawyer-arrested-in-london-over-sexual-assault-charge-546578
 
-[Read on Telegram](https://t.me/livelawindia/117797)
-
----
-### 2026-08-19T14:28:58+00:00
-Supreme Court 9-Judge Bench To Pronounce Judgment Tomorrow On Correctness Of 'Industry' Definition
-https://www.livelaw.in/top-stories/supreme-court-9-judge-bench-to-pronounce-judgment-tomorrow-on-correctness-of-industry-definition-546546
-
-[Read on Telegram](https://t.me/livelawindia/117798)
+[Read on Telegram](https://t.me/livelawindia/117822)
 
 ---
-### 2026-08-19T14:32:38+00:00
-Parity In Pay
-https://www.livelaw.in/articles/parity-pay-546306
+### 2026-08-20T05:03:08+00:00
+Consultant (Legal) Vacancy At National Council For Cooperative Training, New Delhi
+https://www.livelaw.in/job-updates/consultant-legal-vacancy-at-national-council-for-cooperative-training-new-delhi-546581
 
-[Read on Telegram](https://t.me/livelawindia/117799)
-
----
-### 2026-08-19T14:33:18+00:00
-Even Minor Penalty Requires Departmental Enquiry If Employee Denies Charges: Madhya Pradesh High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/departmental-enquiry-delinquent-employee-denies-allegations-minor-penalty-546512
-
-[Read on Telegram](https://t.me/livelawindia/117800)
+[Read on Telegram](https://t.me/livelawindia/117823)
 
 ---
-### 2026-08-19T14:42:58+00:00
-Tenant Who Loses Tenancy Can Be Evicted As Trespasser; City Civil Court Has Jurisdiction: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/tenant-who-loses-tenancy-can-be-evicted-as-trespasser-city-civil-court-has-jurisdiction-calcutta-high-court-546479
+### 2026-08-20T05:03:18+00:00
+Law Department Must Not Succumb To Pressure From Other Departments: Bombay High Court Rejects Delayed State Appeal
+https://www.livelaw.in/high-court/bombay-high-court/law-department-act-independently-not-succumb-to-pressure-546571
 
-[Read on Telegram](https://t.me/livelawindia/117801)
-
----
-### 2026-08-19T15:00:39+00:00
-'If You've System For Men, How Can You Deny To Women?' :  Supreme Court Grills Coast Guard Over Denial Of Permanent Commission
-https://www.livelaw.in/top-stories/supreme-court-asks-indian-coast-guard-to-grant-permanent-commission-to-woman-officer-priyanka-tyagi-asks-why-no-pc-to-women-when-given-to-men-546549
-
-[Read on Telegram](https://t.me/livelawindia/117802)
+[Read on Telegram](https://t.me/livelawindia/117824)
 
 ---
-### 2026-08-19T15:02:49+00:00
-'UK Law Degree Recognised By BCI For Enrolment Cannot Serve As 'First Degree' For Admission To 3-Year LLB In India': Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/uk-law-degree-recognised-bci-cannot-serve-first-degree-admission-3-year-llb-course-546396
+### 2026-08-20T05:04:08+00:00
+Jr. Grade of Mizoram Legal Service (Legal Officer) Vacancy At Law And Judicial Department, Mizoram
+https://www.livelaw.in/job-updates/jr-grade-of-mizoram-legal-service-legal-officer-vacancy-at-law-and-judicial-department-mizoram-546582
 
-[Read on Telegram](https://t.me/livelawindia/117803)
-
----
-### 2026-08-19T15:17:09+00:00
-Brethren Assembly Hall Is A 'Church' Under Kerala Liquor Rules; Bar Distance Restrictions Apply: High Court
-https://www.livelaw.in/high-court/kerala-high-court/brethren-assembly-hall-kerala-foreign-liquor-rules-church-distance-546521
-
-[Read on Telegram](https://t.me/livelawindia/117804)
+[Read on Telegram](https://t.me/livelawindia/117825)
 
 ---
-### 2026-08-19T15:32:49+00:00
-'Such Cases Clog Courts': Karnataka High Court's Prima Facie View On Lawyer's Complaint Alleging Attack By Senior Citizen's 10 Dogs
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-passport-denied-senior-citizen-dogs-attacked-lawyer-546538
+### 2026-08-20T05:04:28+00:00
+Referral Charges Received By Auto Dealers For Bank & Insurance Promotion Subject To Service Tax : Supreme Court
+https://www.livelaw.in/supreme-court/referral-charges-received-by-auto-dealers-for-bank-insurance-promotion-subject-to-service-tax-supreme-court-546583
 
-[Read on Telegram](https://t.me/livelawindia/117805)
-
----
-### 2026-08-19T15:42:29+00:00
-Mother's Violation Of Foreign Court Order, Relocation Of Children To India Does Not Disentitle Her From Custody: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/mothers-violation-of-court-orders-procuring-duplicate-passports-does-not-disentitle-her-from-custody-if-otherwise-in-childs-welfare-jk-high-court-546397
-
-[Read on Telegram](https://t.me/livelawindia/117806)
+[Read on Telegram](https://t.me/livelawindia/117826)
 
 ---
-### 2026-08-19T16:20:00+00:00
-Jammu and Kashmir and Ladakh High Court Weekly Roundup 10th August - 17th August 2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-weekly-roundup-546554
+### 2026-08-20T05:05:48+00:00
+2026 LiveLaw (SC) 833 |  M/S TVS MOTOR COMPANY LIMITED Versus COMMISSIONER OF CENTRAL EXCISE, CHENNAI-III
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-833-ms-tvs-motor-company-limited-versus-commissioner-of-central-excise-chennai-iii-546584
 
-[Read on Telegram](https://t.me/livelawindia/117807)
-
----
-### 2026-08-19T16:35:20+00:00
-LiveLaw High Courts Daily Highlights: August 19, 2026
-https://www.livelaw.in/high-court/all-high-courts/livelaw-high-courts-daily-highlights-august-19-2026-546555
-
-[Read on Telegram](https://t.me/livelawindia/117808)
+[Read on Telegram](https://t.me/livelawindia/117827)
 
 ---
-### 2026-08-19T16:55:11+00:00
-Prayagraj Waterlogging | High Court Directs Municipal Commissioner, DM To Ensure Rainwater Is Pumped Out From Low-Lying Areas
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-prayagraj-waterlogging-rainwater-low-lying-areas-suo-moto-546556
+### 2026-08-20T05:15:29+00:00
+Information Processing Specialist Vacancy At Tata Consultancy Services Limited [Gandhinagar; Apply Now]
+https://www.livelaw.in/job-updates/information-processing-specialist-vacancy-at-tata-consultancy-services-limited-gandhinagar-546587
 
-[Read on Telegram](https://t.me/livelawindia/117809)
+[Read on Telegram](https://t.me/livelawindia/117828)
 
 ---
-### 2026-08-19T17:22:22+00:00
-Supreme Court Daily Round-Up : August 19, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-19-2026-546550
+### 2026-08-20T05:17:09+00:00
+Missed Physical Test Due To Illness, Pregnancy, Heavy Rains: Rajasthan High Court Grants One-Time Retest On ₹10,000 Cost
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-orders-onetime-rescheduling-pet-si-commander-546572
 
-[Read on Telegram](https://t.me/livelawindia/117810)
+[Read on Telegram](https://t.me/livelawindia/117829)
+
+---
+### 2026-08-20T05:33:10+00:00
+Rajasthan High Court Stays Termination Of Govt Employee For Concealing Stayed Conviction
+https://www.livelaw.in/high-court/rajasthan-high-court/termination-for-suppressing-criminal-record-stayed-546577
+
+[Read on Telegram](https://t.me/livelawindia/117830)
+
+---
+### 2026-08-20T05:46:20+00:00
+BREAKING| 'Industry' Definition Given In Bangalore Water Supply Case Must Govern Pending Cases : Supreme Court 9-Judge Bench
+https://www.livelaw.in/top-stories/industry-definition-given-in-bangalore-water-supply-case-must-govern-pending-cases-supreme-court-546595
+
+[Read on Telegram](https://t.me/livelawindia/117831)
+
+---
+### 2026-08-20T05:48:00+00:00
+Telangana High Court Upholds CRPF Constable's Termination On Depression Diagnosis, Cites Risk From Access To Firearms
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-upholds-crpf-constables-termination-depression-diagnosis-546594
+
+[Read on Telegram](https://t.me/livelawindia/117832)
+
+---
+### 2026-08-20T06:13:01+00:00
+Police Cannot Register FIR And Conduct Investigation For PC-PNDT Act Offences : Supreme Court
+https://www.livelaw.in/top-stories/police-cannot-register-fir-and-conduct-investigation-for-pc-pndt-act-offences-supreme-court-546599
+
+[Read on Telegram](https://t.me/livelawindia/117833)
+
+---
+### 2026-08-20T06:24:41+00:00
+'Not Expected From Senior Advocate': P&H High Court Expresses Concern Over Lawyer's Remarks Against Judge
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-expresses-concern-over-lawyers-remarks-against-judge-refrained-to-take-action-546602
+
+[Read on Telegram](https://t.me/livelawindia/117834)
+
+---
+### 2026-08-20T06:32:51+00:00
+'Can't Be Left Remediless': Rajasthan High Court Allows Offline Appeal Amid Dispute Over E-Tender Appeal Submission
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-holds-person-left-remediless-etender-portal-glitch-offline-appeal-546580
+
+[Read on Telegram](https://t.me/livelawindia/117835)
+
+---
+### 2026-08-20T06:33:01+00:00
+Priest–Penitent Privilege In India: Need For Legal Recognition
+https://www.livelaw.in/articles/argument-note-petitioners-546589
+
+[Read on Telegram](https://t.me/livelawindia/117836)
+
+---
+### 2026-08-20T06:38:31+00:00
+Delhi High Court Directs Centre To Consider Fresh Complaints Seeking Removal Of Derogatory Content Against Shirdi Sai Baba
+https://www.livelaw.in/high-court/delhi-high-court/attend-fresh-complaints-against-derogatory-content-on-shirdi-sai-baba-546609
+
+[Read on Telegram](https://t.me/livelawindia/117837)
+
+---
+### 2026-08-20T06:47:31+00:00
+Orissa High Court Orders Interview For Candidate In 2023 District Judge Exam After Her Marks Found To Be 'Manipulated'
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-orders-fresh-interview-for-candidate-in-2023-district-judge-exam-after-her-marks-found-to-be-manipulated-546605
+
+[Read on Telegram](https://t.me/livelawindia/117838)
 
 ---
