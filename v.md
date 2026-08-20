@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-20T07:02:55+00:00*
+*Last Updated: 2026-08-20T13:03:12+00:00*
+
+---
+
+### 2026-08-20T13:03:12+00:00
+NEET Protests: Justice Subhash Reddy And Two Former High Court Judges To Be Part Of Supreme Court's Five-Member High-Powered Enquiry Committee
+https://www.verdictum.in/supreme-court/neet-protests-constitutes-five-member-high-powered-enquiry-committee-former-justice-r-subhash-reddy-1620280
+
+[Source Link](https://t.me/verdictumlegalupdates/28641)
+
+---
+
+### 2026-08-20T12:22:52+00:00
+Renukaswamy Murder Trial| “Inconvenience Is Not Hostility”: Karnataka High Court Rejects State’s Request To Cross-Examine Deceased’s Mother
+https://www.verdictum.in/karnataka-high-court/state-of-karnataka-v-pavitra-gowda-criminal-petition-no-6820-of-2026-cross-examine-deceaseds-mother-us-154-evidence-act-1620268
+
+[Source Link](https://t.me/verdictumlegalupdates/28640)
+
+---
+
+### 2026-08-20T11:44:11+00:00
+Supreme Court Refuses To Cancel Bail Granted To Accused Kabir Talwar In  Mundra Port Drugs Haul Case
+https://www.verdictum.in/supreme-court/supreme-court-refuses-to-cancel-bail-granted-to-accused-kabir-talwar-in-mundra-port-drugs-haul-case-1620265
+
+[Source Link](https://t.me/verdictumlegalupdates/28639)
+
+---
+
+### 2026-08-20T11:02:50+00:00
+Live-In Relationship Between Consenting Adults Akin To Marriage; Parents, Relatives Can’t Interfere: Delhi High Court
+https://www.verdictum.in/delhi-high-court/uma-bharti-anr-vthe-government-of-nct-of-delhi-ors-live-in-relationship-adults-marriage-1620263
+
+[Source Link](https://t.me/verdictumlegalupdates/28638)
+
+---
+
+### 2026-08-20T10:23:09+00:00
+Christian Wife Can File Divorce Petition Where She Currently Resides: Kerala High Court Interprets Section 3(3) Divorce Act
+https://www.verdictum.in/kerala-high-court/p-v-union-of-india-2026ker64014-christian-wife-divorce-petition-1620259
+
+[Source Link](https://t.me/verdictumlegalupdates/28637)
+
+---
+
+### 2026-08-20T09:52:29+00:00
+2026 UGC Regulations On Preventing Caste-Based Discrimination On Campuses Are Under Reconsideration: Centre Tells Supreme Court
+https://www.verdictum.in/supreme-court/2026-ugc-regulations-preventing-caste-based-discrimination-campuses-under-reconsideration-1620262
+
+[Source Link](https://t.me/verdictumlegalupdates/28636)
+
+---
+
+### 2026-08-20T09:03:07+00:00
+Violation Of Court Orders Does Not By Itself Make A Mother “Bad Mother” Or Disentitle Her To Custody If Child Welfare Requires: J&K&L High Court
+https://www.verdictum.in/jammu-ladakh-high-court/sana-aftab-v-mohtashem-billah-malik-2025jklhc-sgr249-violation-court-orders-bad-mother-1620257
+
+[Source Link](https://t.me/verdictumlegalupdates/28635)
+
+---
+
+### 2026-08-20T08:13:06+00:00
+Journalist Tarun Tejpal Moves Supreme Court Against His Conviction In 2013 Sexual Assault Case
+https://www.verdictum.in/supreme-court/journalist-tarun-tejpal-moves-supreme-court-against-his-conviction-in-2013-sexual-assault-case-1620251
+
+[Source Link](https://t.me/verdictumlegalupdates/28634)
+
+---
+
+### 2026-08-20T07:52:36+00:00
+Rejection Of Section 156(3) CrPC Application Does Not Bar FIR Registration If Cognizable Offence Is Disclosed: Supreme Court
+https://www.verdictum.in/supreme-court/pramod-kumar-shukla-v-state-of-uttar-pradesh-and-others-2026-insc-887-1620248
+
+[Source Link](https://t.me/verdictumlegalupdates/28633)
 
 ---
 
@@ -89,78 +161,6 @@ Life Sentences Cannot Run Consecutively With Each Other Or With Fixed Term Sente
 https://www.verdictum.in/supreme-court/gopi-sahaya-puruna-v-the-state-rep-by-the-inspector-of-police-2026-insc-880-1620195
 
 [Source Link](https://t.me/verdictumlegalupdates/28622)
-
----
-
-### 2026-08-19T12:32:35+00:00
-Public Authority Not Obliged Under RTI Act To Collect Or Collate Non-Available Information From Third Parties: Bombay High Court
-https://www.verdictum.in/bombay-high-court/securities-and-exchange-board-of-india-v-yogesh-babulal-mehta-wp-no-1664-of-2009-public-authority-rti-act-1620194
-
-[Source Link](https://t.me/verdictumlegalupdates/28621)
-
----
-
-### 2026-08-19T12:02:55+00:00
-Policy Is Vague & Appears To Be Arbitrary: Apex Court Slams Indian Coast Guard For Denying Permanent Commission To Female Officer
-https://www.verdictum.in/supreme-court/indian-coast-guard-denying-permanent-commission-to-female-officer-1620191
-
-[Source Link](https://t.me/verdictumlegalupdates/28620)
-
----
-
-### 2026-08-19T11:32:54+00:00
-Sec.47 CPC| Issues Which Could Only Be Decided At Trial Can’t Be Reopened In Execution Proceedings Unless Decree Is Void: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/ravi-srivastava-v-ajay-sharma-2026ahc166320-sec47-cpc-trial-execution-proceedings-1620188
-
-[Source Link](https://t.me/verdictumlegalupdates/28619)
-
----
-
-### 2026-08-19T11:03:13+00:00
-Courts Must Examine Evidence With Insight In POCSO Cases When False Implication Over Matrimonial Dispute Is Pleaded: Kerala High Court
-https://www.verdictum.in/kerala-high-court/x-v-state-of-kerala-2026ker63013-pocso-matrimonial-dispute-false-implication-1620187
-
-[Source Link](https://t.me/verdictumlegalupdates/28618)
-
----
-
-### 2026-08-19T10:33:12+00:00
-Supreme Court Asks Odisha To Take Decision On Dara Singh's Remission Plea In Graham Staines Murder Case
-https://www.verdictum.in/supreme-court/dara-singhs-remission-plea-in-graham-staines-murder-case-1620185
-
-[Source Link](https://t.me/verdictumlegalupdates/28617)
-
----
-
-### 2026-08-19T10:02:51+00:00
-CJI Surya Kant Congratulates Newly Elected SC Bar Association President Pradeep Rai, Other Office Bearers
-https://www.verdictum.in/latest-news/newly-elected-sc-bar-association-president-pradeep-rai-1620182
-
-[Source Link](https://t.me/verdictumlegalupdates/28616)
-
----
-
-### 2026-08-19T09:16:11+00:00
-Breaking: Kerala High Court Stays Suspension Of Teacher Over Question About VD Savarkar
-https://www.verdictum.in/kerala-high-court/stays-suspension-of-teacher-question-about-vd-savarkar-1620181
-
-[Source Link](https://t.me/verdictumlegalupdates/28615)
-
----
-
-### 2026-08-19T09:02:30+00:00
-Supreme Court Asks Delhi HC To Decide Coal Scam Appeals Within Four Weeks & To Not Grant Any Stay On Trials
-https://www.verdictum.in/supreme-court/delhi-hc-to-decide-coal-scam-appeals-within-four-weeks-to-not-grant-any-stay-on-trials-1620177
-
-[Source Link](https://t.me/verdictumlegalupdates/28614)
-
----
-
-### 2026-08-19T08:33:09+00:00
-"Our Job Is Akin To That Of A Mother": Madras High Court Decries Bar Apathy, Urges Judicial Training In POCSO Child Victim Examinations
-https://www.verdictum.in/madras-high-court/paulpandiyan-v-state-crl-op-no-28664-of-2025-crlmpno19361-of-2025-pocso-child-victim-examinations-1620174
-
-[Source Link](https://t.me/verdictumlegalupdates/28613)
 
 ---
 
