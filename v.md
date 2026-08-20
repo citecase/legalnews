@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-19T16:03:01+00:00*
+*Last Updated: 2026-08-20T07:02:55+00:00*
+
+---
+
+### 2026-08-20T07:02:55+00:00
+Integrity Of High-Stakes Examination System Is A Shared Responsibility: Delhi High Court Upholds NBEMS's Cancellation Of Doctor's Fellowship Seat
+https://www.verdictum.in/delhi-high-court/dr-sanchari-ghosh-v-national-board-of-examination-in-medical-sciences-2026dhc6940-cancellation-of-doctors-fellowship-seat-1620233
+
+[Source Link](https://t.me/verdictumlegalupdates/28632)
+
+---
+
+### 2026-08-20T06:11:14+00:00
+Breaking: Supreme Court Modifies “Triple Test” Laid Down In 1978 Bangalore Water Supply Case; But Will Apply Prospectively
+https://www.verdictum.in/supreme-court/upholds-reference-on-industry-definition-rules-reformulated-test-will-apply-prospectively-1620234
+
+[Source Link](https://t.me/verdictumlegalupdates/28631)
+
+---
+
+### 2026-08-20T05:24:34+00:00
+Umadevi Is Not A Blanket Barrier Against Regularisation Of Decades-Long Contractual Staff: Delhi High Court Directs DTU To Create Supernumerary Posts
+https://www.verdictum.in/delhi-high-court/om-prakash-gaur-v-delhi-technological-university-2026dhc6891-db-umadevi-is-not-a-blanket-barrier-1620232
+
+[Source Link](https://t.me/verdictumlegalupdates/28630)
+
+---
+
+### 2026-08-20T04:32:32+00:00
+Delay In Public Procurement Challenges Must Be Judged By Progress Of Tender Process, Not Calendar Alone: Supreme Court
+https://www.verdictum.in/supreme-court/ms-utkarsh-enterprises-philips-international-v-union-of-india-2026-insc-881-1620226
+
+[Source Link](https://t.me/verdictumlegalupdates/28629)
 
 ---
 
@@ -129,38 +161,6 @@ https://www.verdictum.in/supreme-court/delhi-hc-to-decide-coal-scam-appeals-with
 https://www.verdictum.in/madras-high-court/paulpandiyan-v-state-crl-op-no-28664-of-2025-crlmpno19361-of-2025-pocso-child-victim-examinations-1620174
 
 [Source Link](https://t.me/verdictumlegalupdates/28613)
-
----
-
-### 2026-08-19T08:03:08+00:00
-Supreme Court Seeks Centre's Response On Plea For Setting Up DNA, Biometric ID System For Missing, Rescued Kids
-https://www.verdictum.in/supreme-court/centres-response-on-plea-for-setting-up-dna-biometric-id-system-for-missing-rescued-kids-1620172
-
-[Source Link](https://t.me/verdictumlegalupdates/28612)
-
----
-
-### 2026-08-19T07:23:47+00:00
-NEET-UG Exam: Supreme Court Directs Centre To File Affidavit On Steps Taken On Radhakrishnan & Nilekani Committees Reforms
-https://www.verdictum.in/supreme-court/directs-centre-file-affidavit-radhakrishnan-nilekani-committees-reforms-nta-overhaul-1620168
-
-[Source Link](https://t.me/verdictumlegalupdates/28611)
-
----
-
-### 2026-08-19T07:02:46+00:00
-Police Can’t Arbitrarily Restrict Citizen’s Fundamental Right & Duty To Display & Pay Homage To National Flag: Madras High Court
-https://www.verdictum.in/madras-high-court/j-ramesh-kumar-v-the-state-of-tamil-nadu-police-citizen-fundamental-right-duty-display-national-flag-1620160
-
-[Source Link](https://t.me/verdictumlegalupdates/28610)
-
----
-
-### 2026-08-19T06:32:25+00:00
-Classic Case Of Misuse Of Section 33 Arbitration Act To Gain Time For Challenging Award: Delhi High Court Imposes ₹5L Costs On DMRC
-https://www.verdictum.in/delhi-high-court/delhi-metro-rail-corporation-ltd-v-hcc-samsung-jv-2026dhc6743-db-s-33-1620156
-
-[Source Link](https://t.me/verdictumlegalupdates/28609)
 
 ---
 
