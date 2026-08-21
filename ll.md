@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-20T14:09:06+00:00*
+*Last Updated: 2026-08-20T14:10:26+00:00*
 
 ---
 
-### 2026-08-20T14:09:06+00:00
-UP Gangsters Act Stillborn, Doesn't Create Any Offence; Perpetuates Violence On Unsuspecting Citizens : Supreme Court
-https://www.livelaw.in/supreme-court/up-gangsters-act-stillborn-doesnt-create-any-offence-perpetuates-violence-supreme-court-546719
-
-[Read on Telegram](https://t.me/livelawindia/117898)
-
----
 ### 2026-08-20T14:10:26+00:00
 2026 LiveLaw (SC) 836 | Shiv Pratap Singh Alias Chinu Versus State of U.P & Ors.
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-836-shiv-pratap-singh-alias-chinu-versus-state-of-up-ors-546720
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : Augsut 20, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-augsut-20-2026-546743
 
 [Read on Telegram](https://t.me/livelawindia/117917)
+
+---
+### 2026-08-21T01:19:05+00:00
+3 Year Practice Rule : Live Updates From Supreme Court Verdict
+https://www.livelaw.in/top-stories/3-year-practice-rule-live-updates-from-supreme-court-verdict-546753
+
+[Read on Telegram](https://t.me/livelawindia/117918)
 
 ---
