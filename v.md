@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-21T12:52:33+00:00*
+*Last Updated: 2026-08-21T16:02:37+00:00*
+
+---
+
+### 2026-08-21T16:02:37+00:00
+Manager (Law) Vacancy At Nainital Bank Limited
+https://www.verdictum.in/job-updates/nainital-bank-limited-1620348
+
+[Source Link](https://t.me/verdictumlegalupdates/28666)
+
+---
+
+### 2026-08-21T15:32:37+00:00
+Importer Cannot Escape Liability For Customs Agent's Fraud Or Claim Bona Fide Purchaser Defence For Forged Duty Scrips: Delhi High Court
+https://www.verdictum.in/delhi-high-court/ms-raja-ram-company-v-principal-commissioner-of-customs-import-2026dhc6920-db-duty-evasion-findings-against-paper-importers-1620346
+
+[Source Link](https://t.me/verdictumlegalupdates/28665)
+
+---
+
+### 2026-08-21T14:52:36+00:00
+Supreme Court Seeks Centre's Response On Anomalies In Pecuniary Jurisdiction Of Consumer Commissions Under 2019 Act
+https://www.verdictum.in/supreme-court/centre-response-on-anomalies-in-consumer-fora-pecuniary-jurisdiction-2019-act-1620355
+
+[Source Link](https://t.me/verdictumlegalupdates/28664)
+
+---
+
+### 2026-08-21T14:12:55+00:00
+"Matter Of Serious Concern": Supreme Court Seeks Centre's Response On Non-Compliance Of POSCO Act By Social Media Intermediaries
+https://www.verdictum.in/supreme-court/asks-centre-respond-social-media-intermediaries-lapses-cseam-compliance-1620352
+
+[Source Link](https://t.me/verdictumlegalupdates/28663)
+
+---
+
+### 2026-08-21T13:32:34+00:00
+Obligation To Maintain Children Shared By Both Parents; Father’s Liability Won’t Be Half Merely Because Mother Is Earning: Supreme Court
+https://www.verdictum.in/supreme-court/a-v-b-2026-insc-896-obligation-maintain-parents-father-liability-mother-earning-1620345
+
+[Source Link](https://t.me/verdictumlegalupdates/28662)
 
 ---
 
@@ -121,46 +161,6 @@ BCI Recognition Of Foreign Law Degree Does Not Make It A "First Degree" For Admi
 https://www.verdictum.in/bombay-high-court/yohaan-abraham-v-chhatrapati-shivaji-maharaj-university-and-another-1620277
 
 [Source Link](https://t.me/verdictumlegalupdates/28647)
-
----
-
-### 2026-08-20T15:33:17+00:00
-Victim’s Distress In Court On Seeing Accused Not Enough For Conviction: Delhi High Court Acquits POCSO Accused
-https://www.verdictum.in/delhi-high-court/p-identity-redacted-v-state-nct-of-delhi-2026dhc6876-db-pocso-case-victims-distress-in-court-1620276
-
-[Source Link](https://t.me/verdictumlegalupdates/28646)
-
----
-
-### 2026-08-20T15:02:56+00:00
-"Enjoyment Survey" Cannot Determine Entitlement To Compensation Under Land Acquisition Act: Supreme Court Sets Aside Lok Adalat Awards
-https://www.verdictum.in/supreme-court/singapogu-babu-rao-v-special-deputy-collector-land-acquisition-2026-insc-888-enjoyment-survey-cannot-determine-1620274
-
-[Source Link](https://t.me/verdictumlegalupdates/28645)
-
----
-
-### 2026-08-20T14:32:35+00:00
-Goods Cleared From FTWZ Under A Fresh Contract Constitute “Fresh Import”: Delhi High Court Denies NN-45 Exemption To Oilfield Service Companies
-https://www.verdictum.in/delhi-high-court/baker-hughes-oilfield-services-india-pvt-ltd-v-customs-authority-for-advance-rulings-2026dhc6828-db-ftwz-under-fresh-contract-1620273
-
-[Source Link](https://t.me/verdictumlegalupdates/28644)
-
----
-
-### 2026-08-20T14:03:14+00:00
-Approaching Court After 12  Years Not Bona Fide Conduct: Supreme Court On School Lecturers’ Pay Scale Dispute
-https://www.verdictum.in/supreme-court/state-of-himachal-pradesh-and-another-v-jameet-singh-and-anr-2026-insc-885-school-lecturers-1620272
-
-[Source Link](https://t.me/verdictumlegalupdates/28643)
-
----
-
-### 2026-08-20T13:32:53+00:00
-Kerala High Court Issues Notice To Advocate In Suo Motu Contempt Case Over Broadcasting Court Proceedings On Social Media, Bars Him From Virtual Appearances
-https://www.verdictum.in/kerala-high-court/suo-motu-proceedings-initiated-by-the-high-court-v-adv-mathews-j-nedumpara-1620279
-
-[Source Link](https://t.me/verdictumlegalupdates/28642)
 
 ---
 
