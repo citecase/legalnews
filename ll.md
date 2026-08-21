@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-21T04:54:28+00:00*
+*Last Updated: 2026-08-21T10:42:42+00:00*
 
 ---
 
-### 2026-08-21T04:54:28+00:00
-2026 LiveLaw (SC) 838 | SHAILENDRA KUMAR PATEL VERSUS STATE OF CHHATTISGARH & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-838-shailendra-kumar-patel-versus-state-of-chhattisgarh-ors-546773
+### 2026-08-21T10:42:42+00:00
+Supreme Court Imposes Rs 5 Lakh Costs On Actress & Her Advocate For Wasting Judicial Time
+https://www.livelaw.in/top-stories/supreme-court-imposes-rs-5-lakh-costs-on-actress-her-advocate-for-wasting-judicial-time-546854
 
-[Read on Telegram](https://t.me/livelawindia/117934)
-
----
-### 2026-08-21T04:57:48+00:00
-Employer Cannot Constitute Its Own Appellate Authority Under POSH Act: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/employer-cannot-constitute-its-own-appellate-authority-under-posh-act-546693
-
-[Read on Telegram](https://t.me/livelawindia/117935)
+[Read on Telegram](https://t.me/livelawindia/117987)
 
 ---
-### 2026-08-21T05:02:28+00:00
-Bombay High Court Allows Day-Care Centre In Residential Flat To Continue For 6 Weeks, Asks MHADA To Decide 'Change User' Plea
-https://www.livelaw.in/high-court/bombay-high-court/day-care-centre-in-residential-flat-mhada-decide-change-user-plea-546765
+### 2026-08-21T10:53:02+00:00
+Madras High Court Quashes FIR Against Students Who Peacefully Protested Conference On Eradication Of Sanatana Dharma
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-protest-against-conference-eradicating-sanatana-dharma-fir-quashed-546856
 
-[Read on Telegram](https://t.me/livelawindia/117936)
-
----
-### 2026-08-21T05:17:08+00:00
-'Appalling Apathy': Bombay High Court Pulls Up State Over Failure To Protect Children Walking Through Wildlife-Prone Areas To Reach School
-https://www.livelaw.in/high-court/bombay-high-court/maharashtra-failure-safe-transport-students-walking-tiger-reserve-for-schools-546777
-
-[Read on Telegram](https://t.me/livelawindia/117937)
+[Read on Telegram](https://t.me/livelawindia/117988)
 
 ---
-### 2026-08-21T05:23:39+00:00
-2003 Muthanga Land Struggle Case: Kerala High Court Suspends Sentences Of Four Convicts
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-muthanga-incident-sentence-suspension-546781
+### 2026-08-21T11:01:02+00:00
+Demarcate Forest Land In Bhopal, Remove Illegal Encroachments Within 3 Months: NGT Directs MP Govt
+https://www.livelaw.in/news-updates/ngt-bhopal-remove-encroachments-from-forest-land-roads-546857
 
-[Read on Telegram](https://t.me/livelawindia/117938)
-
----
-### 2026-08-21T05:24:39+00:00
-BREAKING| Supreme Court Reduces Practice Requirement For Judicial Service To 1 Year; Selected Candidates To Undergo 1 Year Training & 1 Year Clerkship
-https://www.livelaw.in/top-stories/supreme-court-reduces-practice-requirement-for-judicial-service-to-1-year-selected-candidates-to-undergo-1-year-training-1-year-clerkshi-546782
-
-[Read on Telegram](https://t.me/livelawindia/117939)
+[Read on Telegram](https://t.me/livelawindia/117989)
 
 ---
-### 2026-08-21T05:31:39+00:00
-7th Kerala Law Academy National Trial Advocacy Competition, 2026 (Hybrid Mode)
-https://www.livelaw.in/lawschool/competitions/7th-kerala-law-academy-national-trial-advocacy-competition-2026-hybrid-mode-546783
+### 2026-08-21T11:02:22+00:00
+Jharkhand High Court Extends Continuation Benefit Under SC Orders To Consumer Commission Members Who Retired Before May 21, 2025
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-modifies-consumer-forum-notification-546697
 
-[Read on Telegram](https://t.me/livelawindia/117940)
-
----
-### 2026-08-21T05:32:59+00:00
-Litigant Should Not Suffer For Counsel's Lapse: Gauhati High Court Restores Appeal Dismissed For Non-Prosecution
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-restores-appeal-dismissed-for-non-prosecution-litigant-should-not-suffer-for-counsels-lapse-546778
-
-[Read on Telegram](https://t.me/livelawindia/117941)
+[Read on Telegram](https://t.me/livelawindia/117990)
 
 ---
-### 2026-08-21T05:44:00+00:00
-Allahabad High Court's Lucknow Bench Gets New Litigants' Waiting Room, Chief Justice Arun Bhansali Inaugurates Facility
-https://www.livelaw.in/news-updates/allahabad-high-court-lucknow-bench-new-litigants-waiting-room-chief-justice-arun-bhansali-inaugurates-546786
+### 2026-08-21T11:05:22+00:00
+Regular Appointment Can't Be Terminated Without Due Process: Jharkhand High Court While Staying Cancellation Of Recruitments Via JPSC Exams
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-recruitment-jpsc-exam-regular-appointment-cant-be-terminated-without-due-process-546859
 
-[Read on Telegram](https://t.me/livelawindia/117942)
-
----
-### 2026-08-21T05:49:40+00:00
-Contradictory Doctor Testimony In POCSO Case Prompts Madras High Court To Order Guidelines For Medical Witnesses
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-pocso-case-doctors-witness-circular-on-responsibilities-546787
-
-[Read on Telegram](https://t.me/livelawindia/117943)
+[Read on Telegram](https://t.me/livelawindia/117991)
 
 ---
-### 2026-08-21T06:03:00+00:00
-Karnataka High Court Closes DRDO Officers' Quash Plea In Case Over Disappearance Of 21 Stray Dogs; Chargesheet Filed
-https://www.livelaw.in/high-court/karnataka-high-court/drdo-dogs-disappearance-case-karnataka-high-court-disposes-plea-546788
+### 2026-08-21T11:10:33+00:00
+“Courtroom Most Profound Classroom”: Justice Vinod Chandran Dissents On Relaxing 3 Year Practice Rule For Judicial Service
+https://www.livelaw.in/top-stories/courtroom-most-profound-classroom-justice-vinod-chandran-dissents-on-relaxing-3-year-practice-rule-for-judicial-service-546860
 
-[Read on Telegram](https://t.me/livelawindia/117944)
-
----
-### 2026-08-21T06:07:20+00:00
-Mere Protesting Or Using Bad Language Does Not Constitute Obstruction Of Public Servant: Himachal Pradesh High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-mere-protesting-intemperate-language-constitute-obstruction-section186-ipc-546694
-
-[Read on Telegram](https://t.me/livelawindia/117945)
+[Read on Telegram](https://t.me/livelawindia/117992)
 
 ---
-### 2026-08-21T06:11:30+00:00
-Need Policy For Care Of Children With Chronic Neurodevelopmental Disabilities: Kerala High Court Suggests Centre-State Meeting
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sop-chronic-neurodevelopmental-disbilities-546790
+### 2026-08-21T11:10:43+00:00
+NFSU–TSUL Invite Applications For Dual Degree LL.M In Cyber Crime Law & Digital Forensics (2026–27)
+https://www.livelaw.in/lawschool/law-school-admission/nfsutsul-invite-applications-dual-degree-llm-cyber-crime-law-digital-forensics-202627-546861
 
-[Read on Telegram](https://t.me/livelawindia/117946)
-
----
-### 2026-08-21T06:17:10+00:00
-Madras High Court Closes Dravidar Kazhagam Plea After Police Grants Permission For Anti-NEET, EWS Bike Rally
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-dravidar-kazhagam-bike-rally-closed-state-permitted-546793
-
-[Read on Telegram](https://t.me/livelawindia/117947)
+[Read on Telegram](https://t.me/livelawindia/117993)
 
 ---
-### 2026-08-21T06:23:30+00:00
-Supreme Court Waives Prior Practice Requirement For Civil Judge (Junior Division) Exams Till March 2027
-https://www.livelaw.in/top-stories/supreme-court-waives-prior-practice-requirement-for-civil-judge-junior-division-exams-till-march-2027-546794
+### 2026-08-21T11:16:53+00:00
+Call For Blog Submissions | CJLT Blog, NLIU Bhopal
+https://www.livelaw.in/lawschool/call-for-papers/cjlt-blog-nliu-bhopal-546862
 
-[Read on Telegram](https://t.me/livelawindia/117948)
-
----
-### 2026-08-21T06:34:10+00:00
-Kerala High Court Directs State To Establish 3 New NDPS Courts By September 10 To Address High Pendency Of Cases
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ndps-courts-establish-546796
-
-[Read on Telegram](https://t.me/livelawindia/117949)
+[Read on Telegram](https://t.me/livelawindia/117994)
 
 ---
-### 2026-08-21T06:40:10+00:00
-Wife Earning No Reason To Reduce Father's Liability To Maintain Children : Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-mother-care-children-cannot-measured-money-546797
+### 2026-08-21T11:25:33+00:00
+Supreme Court Dismisses Ex-Punjab Dy CM Sukhbir Singh Badal's Plea To Quash Defamation Complaint By AKJ Leader
+https://www.livelaw.in/top-stories/supreme-court-dismisses-ex-punjab-dy-cm-sukhbir-singh-badals-plea-to-quash-defamation-complaint-by-akj-leader-546864
 
-[Read on Telegram](https://t.me/livelawindia/117950)
-
----
-### 2026-08-21T06:41:50+00:00
-97 Murder, Serious Crime Cases Recalled From Muzaffarnagar Judge After 22 Death Sentences In 4 Months
-https://www.livelaw.in/news-updates/97-murder-serious-crime-cases-recalled-muzaffarnagar-judge-22-death-sentences-546798
-
-[Read on Telegram](https://t.me/livelawindia/117951)
+[Read on Telegram](https://t.me/livelawindia/117995)
 
 ---
-### 2026-08-21T06:44:10+00:00
-2026 LiveLaw (SC) 839 | Sujata Kumari & Ors v Rahul Kumar & Anr
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-839-sujata-kumari-ors-v-rahul-kumar-anr-546799
+### 2026-08-21T11:26:13+00:00
+CCCPL, RGNUL Invites Blogs On Competition Law & Consumer Protection
+https://www.livelaw.in/lawschool/call-for-papers/cccpl-rgnul-invites-blogs-competition-law-consumer-protection-546865
 
-[Read on Telegram](https://t.me/livelawindia/117952)
+[Read on Telegram](https://t.me/livelawindia/117996)
 
 ---
-### 2026-08-21T06:48:10+00:00
-Protection In Predicate FIR Doesn't Automatically Extend To PMLA Proceedings: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/protection-predicate-fir-doesnt-extend-to-pmla-proceedings-546801
+### 2026-08-21T11:48:33+00:00
+NLU Jodhpur's Centre For Family Law Announces Inter-College Essay Writing Competition 2026
+https://www.livelaw.in/lawschool/competitions/nlu-jodhpurs-centre-for-family-law-announces-inter-college-essay-writing-competition-2026-546869
 
-[Read on Telegram](https://t.me/livelawindia/117953)
+[Read on Telegram](https://t.me/livelawindia/117997)
+
+---
+### 2026-08-21T11:54:43+00:00
+RPNLU Prayagraj Appoints 12 Assistant Professors, Expands Faculty Strength To 18
+https://www.livelaw.in/lawschool/news/rpnlu-prayagraj-appoints-12-assistant-professors-expands-faculty-strength-to-18-546871
+
+[Read on Telegram](https://t.me/livelawindia/117998)
+
+---
+### 2026-08-21T12:13:03+00:00
+2026 LiveLaw (SC) 844 |  RAVI KUMAR SINGH MALHOTRA VERSUS THE STATE OF MADHYA PRADESH
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-844-ravi-kumar-singh-malhotra-versus-the-state-of-madhya-pradesh-546879
+
+[Read on Telegram](https://t.me/livelawindia/117999)
+
+---
+### 2026-08-21T12:15:43+00:00
+PC-PNDT Rules Don't Bar Doctor From Conducting Ultrasound At Clinics In Two Different Districts: Orissa High Court
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-doctor-barred-conducting-ultrasonography-different-districts-546880
+
+[Read on Telegram](https://t.me/livelawindia/118000)
+
+---
+### 2026-08-21T12:19:43+00:00
+Kerala High Court Impleads Breast Cancer Patient In Suo Motu Case On Exorbitant Pricing Of Patented Drugs
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-exorbitant-pricing-patented-breast-cancer-drugs-546885
+
+[Read on Telegram](https://t.me/livelawindia/118001)
+
+---
+### 2026-08-21T12:20:23+00:00
+2026 LiveLaw (SC) 845 | SPO/CONSTABLE IRB SATPAL SINGH VERSUS STATE OF PUNJAB & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-845-spoconstable-irb-satpal-singh-versus-state-of-punjab-ors-546886
+
+[Read on Telegram](https://t.me/livelawindia/118002)
+
+---
+### 2026-08-21T12:28:03+00:00
+Insurer Can't Deny Compensation For Fire Damage Citing Technical Interpretation Of Policy Without Adducing Evidence: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-insurance-company-technical-interpretation-of-policy-no-evidence-546850
+
+[Read on Telegram](https://t.me/livelawindia/118003)
+
+---
+### 2026-08-21T12:29:43+00:00
+Kerala High Court Issues Notice To Vigilance Director On Plea Challenging Refusal To Probe DGP S Sreejith
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-notice-vigilance-probe-dgp-s-sreejith-546891
+
+[Read on Telegram](https://t.me/livelawindia/118004)
+
+---
+### 2026-08-21T12:35:03+00:00
+Minor Can't Be Denied Passport Merely Because Estranged Father Withholds Consent: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/childs-passport-can-be-issued-without-consent-of-father-546892
+
+[Read on Telegram](https://t.me/livelawindia/118005)
+
+---
+### 2026-08-21T12:35:13+00:00
+After Supreme Court Intervention, President Approves Gallantry Medal For Former Cop Who Killed Two Dacoits In 2003
+https://www.livelaw.in/top-stories/after-supreme-court-intervention-president-approves-gallantry-medal-for-former-cop-who-killed-two-dacoits-in-2003-546893
+
+[Read on Telegram](https://t.me/livelawindia/118006)
 
 ---
