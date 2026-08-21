@@ -1,107 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-21T10:42:42+00:00*
+*Last Updated: 2026-08-21T12:19:43+00:00*
 
 ---
 
-### 2026-08-21T10:42:42+00:00
-Supreme Court Imposes Rs 5 Lakh Costs On Actress & Her Advocate For Wasting Judicial Time
-https://www.livelaw.in/top-stories/supreme-court-imposes-rs-5-lakh-costs-on-actress-her-advocate-for-wasting-judicial-time-546854
-
-[Read on Telegram](https://t.me/livelawindia/117987)
-
----
-### 2026-08-21T10:53:02+00:00
-Madras High Court Quashes FIR Against Students Who Peacefully Protested Conference On Eradication Of Sanatana Dharma
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-protest-against-conference-eradicating-sanatana-dharma-fir-quashed-546856
-
-[Read on Telegram](https://t.me/livelawindia/117988)
-
----
-### 2026-08-21T11:01:02+00:00
-Demarcate Forest Land In Bhopal, Remove Illegal Encroachments Within 3 Months: NGT Directs MP Govt
-https://www.livelaw.in/news-updates/ngt-bhopal-remove-encroachments-from-forest-land-roads-546857
-
-[Read on Telegram](https://t.me/livelawindia/117989)
-
----
-### 2026-08-21T11:02:22+00:00
-Jharkhand High Court Extends Continuation Benefit Under SC Orders To Consumer Commission Members Who Retired Before May 21, 2025
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-modifies-consumer-forum-notification-546697
-
-[Read on Telegram](https://t.me/livelawindia/117990)
-
----
-### 2026-08-21T11:05:22+00:00
-Regular Appointment Can't Be Terminated Without Due Process: Jharkhand High Court While Staying Cancellation Of Recruitments Via JPSC Exams
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-recruitment-jpsc-exam-regular-appointment-cant-be-terminated-without-due-process-546859
-
-[Read on Telegram](https://t.me/livelawindia/117991)
-
----
-### 2026-08-21T11:10:33+00:00
-“Courtroom Most Profound Classroom”: Justice Vinod Chandran Dissents On Relaxing 3 Year Practice Rule For Judicial Service
-https://www.livelaw.in/top-stories/courtroom-most-profound-classroom-justice-vinod-chandran-dissents-on-relaxing-3-year-practice-rule-for-judicial-service-546860
-
-[Read on Telegram](https://t.me/livelawindia/117992)
-
----
-### 2026-08-21T11:10:43+00:00
-NFSU–TSUL Invite Applications For Dual Degree LL.M In Cyber Crime Law & Digital Forensics (2026–27)
-https://www.livelaw.in/lawschool/law-school-admission/nfsutsul-invite-applications-dual-degree-llm-cyber-crime-law-digital-forensics-202627-546861
-
-[Read on Telegram](https://t.me/livelawindia/117993)
-
----
-### 2026-08-21T11:16:53+00:00
-Call For Blog Submissions | CJLT Blog, NLIU Bhopal
-https://www.livelaw.in/lawschool/call-for-papers/cjlt-blog-nliu-bhopal-546862
-
-[Read on Telegram](https://t.me/livelawindia/117994)
-
----
-### 2026-08-21T11:25:33+00:00
-Supreme Court Dismisses Ex-Punjab Dy CM Sukhbir Singh Badal's Plea To Quash Defamation Complaint By AKJ Leader
-https://www.livelaw.in/top-stories/supreme-court-dismisses-ex-punjab-dy-cm-sukhbir-singh-badals-plea-to-quash-defamation-complaint-by-akj-leader-546864
-
-[Read on Telegram](https://t.me/livelawindia/117995)
-
----
-### 2026-08-21T11:26:13+00:00
-CCCPL, RGNUL Invites Blogs On Competition Law & Consumer Protection
-https://www.livelaw.in/lawschool/call-for-papers/cccpl-rgnul-invites-blogs-competition-law-consumer-protection-546865
-
-[Read on Telegram](https://t.me/livelawindia/117996)
-
----
-### 2026-08-21T11:48:33+00:00
-NLU Jodhpur's Centre For Family Law Announces Inter-College Essay Writing Competition 2026
-https://www.livelaw.in/lawschool/competitions/nlu-jodhpurs-centre-for-family-law-announces-inter-college-essay-writing-competition-2026-546869
-
-[Read on Telegram](https://t.me/livelawindia/117997)
-
----
-### 2026-08-21T11:54:43+00:00
-RPNLU Prayagraj Appoints 12 Assistant Professors, Expands Faculty Strength To 18
-https://www.livelaw.in/lawschool/news/rpnlu-prayagraj-appoints-12-assistant-professors-expands-faculty-strength-to-18-546871
-
-[Read on Telegram](https://t.me/livelawindia/117998)
-
----
-### 2026-08-21T12:13:03+00:00
-2026 LiveLaw (SC) 844 |  RAVI KUMAR SINGH MALHOTRA VERSUS THE STATE OF MADHYA PRADESH
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-844-ravi-kumar-singh-malhotra-versus-the-state-of-madhya-pradesh-546879
-
-[Read on Telegram](https://t.me/livelawindia/117999)
-
----
-### 2026-08-21T12:15:43+00:00
-PC-PNDT Rules Don't Bar Doctor From Conducting Ultrasound At Clinics In Two Different Districts: Orissa High Court
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-doctor-barred-conducting-ultrasonography-different-districts-546880
-
-[Read on Telegram](https://t.me/livelawindia/118000)
-
----
 ### 2026-08-21T12:19:43+00:00
 Kerala High Court Impleads Breast Cancer Patient In Suo Motu Case On Exorbitant Pricing Of Patented Drugs
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-exorbitant-pricing-patented-breast-cancer-drugs-546885
@@ -142,5 +44,103 @@ After Supreme Court Intervention, President Approves Gallantry Medal For Former 
 https://www.livelaw.in/top-stories/after-supreme-court-intervention-president-approves-gallantry-medal-for-former-cop-who-killed-two-dacoits-in-2003-546893
 
 [Read on Telegram](https://t.me/livelawindia/118006)
+
+---
+### 2026-08-21T13:08:13+00:00
+Delhi High Court Declares August 27 As Holiday; Sitting Days In Lieu Announced
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-declares-august-27-as-holiday-sitting-days-in-lieu-announced-546894
+
+[Read on Telegram](https://t.me/livelawindia/118007)
+
+---
+### 2026-08-21T13:13:14+00:00
+Advocate Cannot Disclose Client's Confidential Information Even If She Turns Adversary : Supreme Court Upholds Lawyers' Suspension
+https://www.livelaw.in/supreme-court/advocate-cannot-disclose-clients-confidential-information-even-if-she-turns-adversary-supreme-court-upholds-lawyers-suspension-546895
+
+[Read on Telegram](https://t.me/livelawindia/118008)
+
+---
+### 2026-08-21T13:16:54+00:00
+2026 LiveLaw (SC) 846 | REHANA KHAN VS. RIZWAN SIDDHIQUEE
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-846-rehana-khan-vs-rizwan-siddhiquee-546896
+
+[Read on Telegram](https://t.me/livelawindia/118009)
+
+---
+### 2026-08-21T13:40:44+00:00
+Supreme Court Closes 2015 Suo Motu Case Taken Over Parents' Suicide After Child's Death Due To Dengue
+https://www.livelaw.in/top-stories/supreme-court-7-year-old-child-dengue-death-parents-suicide-suo-motu-lack-of-solid-waste-management-case-closed-546900
+
+[Read on Telegram](https://t.me/livelawindia/118010)
+
+---
+### 2026-08-21T13:50:24+00:00
+LiveLaw Daily| The Kerala Story| 3 year practice rule| Saurav Das| FIITJEE & more
+https://www.livelaw.in/podcast/fiitjee-saurav-das-the-kerala-story-judiciary-civil-judge-3-year-practice-rule-exams-news-clat-india-546903
+
+[Read on Telegram](https://t.me/livelawindia/118011)
+
+---
+### 2026-08-21T14:32:15+00:00
+Post Facto Environmental Clearance: Whose fault Is It Anyway?
+https://www.livelaw.in/articles/post-facto-environmental-clearance-546751
+
+[Read on Telegram](https://t.me/livelawindia/118012)
+
+---
+### 2026-08-21T15:11:16+00:00
+At SCBA Farewell, CJI Surya Kant Praises Justice Sanjay Karol For Encouraging Young Lawyers
+https://www.livelaw.in/top-stories/at-scba-farewell-cji-surya-kant-praises-justice-sanjay-karol-for-encouraging-young-lawyers-546906
+
+[Read on Telegram](https://t.me/livelawindia/118013)
+
+---
+### 2026-08-21T15:25:27+00:00
+Plea In Supreme Court Challenges Manan Kumar Mishra's Tenure As BCI Chairman, Seeks Audit Of BCI Finances & Its Law College
+https://www.livelaw.in/top-stories/plea-supreme-court-challenges-manan-kumar-mishras-tenure-as-bci-chairman-bar-council-seeks-audit-bci-finances-law-college-546907
+
+[Read on Telegram](https://t.me/livelawindia/118014)
+
+---
+### 2026-08-21T15:49:27+00:00
+'Real Learning Happens In Courtroom, No Matter How Much You Read In College' : Justice Sanjay Karol To Young Lawyers
+https://www.livelaw.in/top-stories/real-learning-happens-in-courtroom-no-matter-how-much-you-read-in-college-justice-sanjay-karol-to-young-lawyers-546908
+
+[Read on Telegram](https://t.me/livelawindia/118015)
+
+---
+### 2026-08-21T16:35:19+00:00
+400 Cases Settled On First Day Of Supreme Court's 'Samadhan Samaroh' Mediation Scheme
+https://www.livelaw.in/top-stories/400-cases-settled-on-first-day-of-supreme-courts-samadhan-samaroh-mediation-scheme-546910
+
+[Read on Telegram](https://t.me/livelawindia/118016)
+
+---
+### 2026-08-21T16:59:19+00:00
+26/11 Mumbai Terror Attacks: Maharashtra Seeks Trial In Absentia Of 6 Pakistani Nationals Including Hafiz Saeed
+https://www.livelaw.in/news-updates/2611-mumbai-terror-attacks-maharashtra-seeks-trial-in-absentia-of-6-pakistani-nationals-including-hafiz-saeed-546911
+
+[Read on Telegram](https://t.me/livelawindia/118017)
+
+---
+### 2026-08-21T17:13:10+00:00
+Suffer For Sometime Like You Made Customers Suffer By Serving 'Analogue Paneer': Bombay High Court Denies Interim Relief To Eatery
+https://www.livelaw.in/high-court/bombay-high-court/interim-relief-denied-to-eatery-serving-analogue-paneer-546913
+
+[Read on Telegram](https://t.me/livelawindia/118018)
+
+---
+### 2026-08-21T17:22:10+00:00
+LiveLaw High Courts Daily Highlights: August 21, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-august-21-2026-546914
+
+[Read on Telegram](https://t.me/livelawindia/118019)
+
+---
+### 2026-08-21T17:27:30+00:00
+Supreme Court Daily Round-Up : August 21, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-21-2026-546909
+
+[Read on Telegram](https://t.me/livelawindia/118020)
 
 ---
