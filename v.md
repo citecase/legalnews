@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-21T06:52:26+00:00*
+*Last Updated: 2026-08-21T12:52:33+00:00*
+
+---
+
+### 2026-08-21T12:52:33+00:00
+Supreme Court Refuses To Quash Criminal Defamation Complaint Against Sukhbir Badal
+https://www.verdictum.in/supreme-court/criminal-defamation-complaint-against-sukhbir-badal-1620344
+
+[Source Link](https://t.me/verdictumlegalupdates/28661)
+
+---
+
+### 2026-08-21T12:12:52+00:00
+No Training Schedule Can Replace Real Bar Practice For A Budding Jurist: Justice Vinod Chandran Dissents As Majority Reduces 3 Years Practice Requirement For Judiciary Exams
+https://www.verdictum.in/supreme-court/justice-k-vindo-chandran-dissents-3-yrs-practice-requirement-1620341
+
+[Source Link](https://t.me/verdictumlegalupdates/28660)
+
+---
+
+### 2026-08-21T11:33:11+00:00
+Supreme Court Closes Proceedings On Plea Relating To 2023 Film "The Kerala Story", Leaves Questions Of Law Open
+https://www.verdictum.in/supreme-court/proceedings-on-plea-relating-to-2023-film-the-kerala-story-closed-1620339
+
+[Source Link](https://t.me/verdictumlegalupdates/28659)
+
+---
+
+### 2026-08-21T11:02:51+00:00
+Calcutta High Court Grants Interim Protection To TMC MP Abhishek Banerjee In 3 FIRs
+https://www.verdictum.in/calcutta-high-court/interim-protection-to-tmc-mp-abhishek-banerjee-in-3-firs-1620337
+
+[Source Link](https://t.me/verdictumlegalupdates/28658)
+
+---
+
+### 2026-08-21T10:32:30+00:00
+Supreme Court Sets Aside Order Allowing Dayanidhi Maran’s Plea To Summon Telecom Secretary As Court Witness
+https://www.verdictum.in/supreme-court/dayanidhi-marans-plea-to-summon-telecom-secretary-as-court-witness-1620336
+
+[Source Link](https://t.me/verdictumlegalupdates/28657)
+
+---
+
+### 2026-08-21T09:52:09+00:00
+Statutory Remedies Available U/S.173 BNSS Must Be Exhausted Before Approaching Writ Court For FIR Registration: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/amit-kumar-srivastava-v-state-of-up-and-10-others-2026ahc169762-db-bnss-fir-registration-1620333
+
+[Source Link](https://t.me/verdictumlegalupdates/28656)
+
+---
+
+### 2026-08-21T09:02:28+00:00
+Supreme Court Comes To Rescue Of 105-yr-Old Murder Convict, Makes Its 2024 Bail Order Final
+https://www.verdictum.in/supreme-court/rescue-of-105-yr-old-murder-convict-1620328
+
+[Source Link](https://t.me/verdictumlegalupdates/28655)
+
+---
+
+### 2026-08-21T08:32:27+00:00
+Writ Of Mandamus Maintainable Against Private Unaided Schools To Enforce Statutory Pay Scales For Teachers: Supreme Court
+https://www.verdictum.in/supreme-court/siyaram-education-society-v-chhaya-do-baliram-dhave-2026-insc-871-private-unaided-schools-writ-of-mandamus-1620326
+
+[Source Link](https://t.me/verdictumlegalupdates/28654)
+
+---
+
+### 2026-08-21T07:49:47+00:00
+Police Are Not Meant To Be “Investigators" Under PCPNDT Act; Can't Commence Independent Investigation: Supreme Court
+https://www.verdictum.in/supreme-court/state-of-uttar-pradesh-v-dr-brij-pal-singh-2026-insc-901-pcpndt-act-high-courts-on-sex-determination-offences-1620325
+
+[Source Link](https://t.me/verdictumlegalupdates/28653)
 
 ---
 
@@ -89,78 +161,6 @@ Kerala High Court Issues Notice To Advocate In Suo Motu Contempt Case Over Broad
 https://www.verdictum.in/kerala-high-court/suo-motu-proceedings-initiated-by-the-high-court-v-adv-mathews-j-nedumpara-1620279
 
 [Source Link](https://t.me/verdictumlegalupdates/28642)
-
----
-
-### 2026-08-20T13:03:12+00:00
-NEET Protests: Justice Subhash Reddy And Two Former High Court Judges To Be Part Of Supreme Court's Five-Member High-Powered Enquiry Committee
-https://www.verdictum.in/supreme-court/neet-protests-constitutes-five-member-high-powered-enquiry-committee-former-justice-r-subhash-reddy-1620280
-
-[Source Link](https://t.me/verdictumlegalupdates/28641)
-
----
-
-### 2026-08-20T12:22:52+00:00
-Renukaswamy Murder Trial| “Inconvenience Is Not Hostility”: Karnataka High Court Rejects State’s Request To Cross-Examine Deceased’s Mother
-https://www.verdictum.in/karnataka-high-court/state-of-karnataka-v-pavitra-gowda-criminal-petition-no-6820-of-2026-cross-examine-deceaseds-mother-us-154-evidence-act-1620268
-
-[Source Link](https://t.me/verdictumlegalupdates/28640)
-
----
-
-### 2026-08-20T11:44:11+00:00
-Supreme Court Refuses To Cancel Bail Granted To Accused Kabir Talwar In  Mundra Port Drugs Haul Case
-https://www.verdictum.in/supreme-court/supreme-court-refuses-to-cancel-bail-granted-to-accused-kabir-talwar-in-mundra-port-drugs-haul-case-1620265
-
-[Source Link](https://t.me/verdictumlegalupdates/28639)
-
----
-
-### 2026-08-20T11:02:50+00:00
-Live-In Relationship Between Consenting Adults Akin To Marriage; Parents, Relatives Can’t Interfere: Delhi High Court
-https://www.verdictum.in/delhi-high-court/uma-bharti-anr-vthe-government-of-nct-of-delhi-ors-live-in-relationship-adults-marriage-1620263
-
-[Source Link](https://t.me/verdictumlegalupdates/28638)
-
----
-
-### 2026-08-20T10:23:09+00:00
-Christian Wife Can File Divorce Petition Where She Currently Resides: Kerala High Court Interprets Section 3(3) Divorce Act
-https://www.verdictum.in/kerala-high-court/p-v-union-of-india-2026ker64014-christian-wife-divorce-petition-1620259
-
-[Source Link](https://t.me/verdictumlegalupdates/28637)
-
----
-
-### 2026-08-20T09:52:29+00:00
-2026 UGC Regulations On Preventing Caste-Based Discrimination On Campuses Are Under Reconsideration: Centre Tells Supreme Court
-https://www.verdictum.in/supreme-court/2026-ugc-regulations-preventing-caste-based-discrimination-campuses-under-reconsideration-1620262
-
-[Source Link](https://t.me/verdictumlegalupdates/28636)
-
----
-
-### 2026-08-20T09:03:07+00:00
-Violation Of Court Orders Does Not By Itself Make A Mother “Bad Mother” Or Disentitle Her To Custody If Child Welfare Requires: J&K&L High Court
-https://www.verdictum.in/jammu-ladakh-high-court/sana-aftab-v-mohtashem-billah-malik-2025jklhc-sgr249-violation-court-orders-bad-mother-1620257
-
-[Source Link](https://t.me/verdictumlegalupdates/28635)
-
----
-
-### 2026-08-20T08:13:06+00:00
-Journalist Tarun Tejpal Moves Supreme Court Against His Conviction In 2013 Sexual Assault Case
-https://www.verdictum.in/supreme-court/journalist-tarun-tejpal-moves-supreme-court-against-his-conviction-in-2013-sexual-assault-case-1620251
-
-[Source Link](https://t.me/verdictumlegalupdates/28634)
-
----
-
-### 2026-08-20T07:52:36+00:00
-Rejection Of Section 156(3) CrPC Application Does Not Bar FIR Registration If Cognizable Offence Is Disclosed: Supreme Court
-https://www.verdictum.in/supreme-court/pramod-kumar-shukla-v-state-of-uttar-pradesh-and-others-2026-insc-887-1620248
-
-[Source Link](https://t.me/verdictumlegalupdates/28633)
 
 ---
 
