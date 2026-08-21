@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-20T16:02:17+00:00*
+*Last Updated: 2026-08-21T06:52:26+00:00*
+
+---
+
+### 2026-08-21T06:52:26+00:00
+Bank Can’t Be Used As Substitute For Statutory Judicial Process: Rajasthan High Court Bars Indefinite Freezing Of Bank Accounts In Cyber Fraud Investigations
+https://www.verdictum.in/rajasthan-high-court/shree-balaji-enterprises-v-reserve-bank-of-india-2026rj-jp33344-freezing-of-bank-accounts-in-cyber-fraud-investigations-1620320
+
+[Source Link](https://t.me/verdictumlegalupdates/28652)
+
+---
+
+### 2026-08-21T06:12:45+00:00
+"Homemaker" Is A Gender-Neutral Term And Includes Working Person, Breadwinner Or Wage Earner: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/karnataka-state-road-transport-corporation-v-pampapal-2026khc40705-1620314
+
+[Source Link](https://t.me/verdictumlegalupdates/28651)
+
+---
+
+### 2026-08-21T05:34:25+00:00
+Supreme Court Modifies Civil Judge Recruitment Criteria With 1-Year Academy Training & Law Clerkship In Lieu of 3-Year Bar Practice
+https://www.verdictum.in/supreme-court/modifies-civil-judge-recruitment-criteria-academy-training-3year-bar-practice-1620309
+
+[Source Link](https://t.me/verdictumlegalupdates/28650)
+
+---
+
+### 2026-08-21T05:12:43+00:00
+Criminal Acquittal Cannot Control Civil MACT Claims; Standard Of Proof Differs: Supreme Court
+https://www.verdictum.in/supreme-court/reena-v-the-managing-director-karnataka-state-road-transport-corporation-2026-insc-889-00-negligence-finding-against-ksrtc-driver-1620305
+
+[Source Link](https://t.me/verdictumlegalupdates/28649)
+
+---
+
+### 2026-08-21T04:32:53+00:00
+No Room For Discrimination In Place Of Worship: Madras High Court Disposes PIL Alleging Discrimination At Arulmigu Devaraja Swamigal Temple
+https://www.verdictum.in/madras-high-court/madhavan-ramanuja-dasan-v-the-commissioner-discrimination-worship-arulmigu-devaraja-swamigal-temple-1620271
+
+[Source Link](https://t.me/verdictumlegalupdates/28648)
 
 ---
 
@@ -121,46 +161,6 @@ Rejection Of Section 156(3) CrPC Application Does Not Bar FIR Registration If Co
 https://www.verdictum.in/supreme-court/pramod-kumar-shukla-v-state-of-uttar-pradesh-and-others-2026-insc-887-1620248
 
 [Source Link](https://t.me/verdictumlegalupdates/28633)
-
----
-
-### 2026-08-20T07:02:55+00:00
-Integrity Of High-Stakes Examination System Is A Shared Responsibility: Delhi High Court Upholds NBEMS's Cancellation Of Doctor's Fellowship Seat
-https://www.verdictum.in/delhi-high-court/dr-sanchari-ghosh-v-national-board-of-examination-in-medical-sciences-2026dhc6940-cancellation-of-doctors-fellowship-seat-1620233
-
-[Source Link](https://t.me/verdictumlegalupdates/28632)
-
----
-
-### 2026-08-20T06:11:14+00:00
-Breaking: Supreme Court Modifies “Triple Test” Laid Down In 1978 Bangalore Water Supply Case; But Will Apply Prospectively
-https://www.verdictum.in/supreme-court/upholds-reference-on-industry-definition-rules-reformulated-test-will-apply-prospectively-1620234
-
-[Source Link](https://t.me/verdictumlegalupdates/28631)
-
----
-
-### 2026-08-20T05:24:34+00:00
-Umadevi Is Not A Blanket Barrier Against Regularisation Of Decades-Long Contractual Staff: Delhi High Court Directs DTU To Create Supernumerary Posts
-https://www.verdictum.in/delhi-high-court/om-prakash-gaur-v-delhi-technological-university-2026dhc6891-db-umadevi-is-not-a-blanket-barrier-1620232
-
-[Source Link](https://t.me/verdictumlegalupdates/28630)
-
----
-
-### 2026-08-20T04:32:32+00:00
-Delay In Public Procurement Challenges Must Be Judged By Progress Of Tender Process, Not Calendar Alone: Supreme Court
-https://www.verdictum.in/supreme-court/ms-utkarsh-enterprises-philips-international-v-union-of-india-2026-insc-881-1620226
-
-[Source Link](https://t.me/verdictumlegalupdates/28629)
-
----
-
-### 2026-08-19T16:03:01+00:00
-Superintendent Translation Vacancy At Ministry of Law and Justice
-https://www.verdictum.in/job-updates/ministry-of-law-and-justice-1620199
-
-[Source Link](https://t.me/verdictumlegalupdates/28628)
 
 ---
 
