@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-22T06:45:38+00:00*
+*Last Updated: 2026-08-22T12:52:35+00:00*
+
+---
+
+### 2026-08-22T12:52:35+00:00
+Fight Elections And Defeat Me, Sadasiva Reddy Is Not Even Member Of State Bar Council: BCI Chairman Manan Kumar Mishra
+https://www.verdictum.in/news/manan-kumar-mishra-bar-council-of-india-demand-resignation-1620419
+
+[Source Link](https://t.me/verdictumlegalupdates/28679)
+
+---
+
+### 2026-08-22T12:12:34+00:00
+Man Who Accepted Wife’s Son Into Matrimonial Home Cannot Later Disown Maintenance Responsibility: Uttarakhand High Court
+https://www.verdictum.in/uttarakhand-high-court/rapti-v-state-of-uttarakhand-2026uhc7531-wifes-son-maintenance-1620407
+
+[Source Link](https://t.me/verdictumlegalupdates/28678)
+
+---
+
+### 2026-08-22T11:32:13+00:00
+No Specific Caste-Based Utterance, Occurrence Not Within Public View: Supreme Court Quashes SC/ST Act Offence Against School Manager
+https://www.verdictum.in/supreme-court/ramkrishna-chauhan-v-state-of-up-2026-insc-895-public-view-specific-utterance-sc-st-act-1620406
+
+[Source Link](https://t.me/verdictumlegalupdates/28677)
+
+---
+
+### 2026-08-22T10:53:03+00:00
+Litigants Should Not Be Allowed To Pollute Judicial System: Kerala High Court Criticizes Advocates Attesting False Affidavits of Clients
+https://www.verdictum.in/kerala-high-court/safwan-muhamed-sherif-v-federal-bank-2026ker63639-advocate-utter-falsehood-in-affidavit-1620405
+
+[Source Link](https://t.me/verdictumlegalupdates/28676)
+
+---
+
+### 2026-08-22T10:13:02+00:00
+Allegations Against Trust Civil In Nature: Calcutta High Court Sets Aside Order Directing State To Preserve Relics In Ramakrishna Vedanta Math
+https://www.verdictum.in/calcutta-high-court/swami-atmabodhananda-v-state-of-west-bengal-2026chc-jp405-db-ramakrishna-vedanta-math-1620404
+
+[Source Link](https://t.me/verdictumlegalupdates/28675)
+
+---
+
+### 2026-08-22T09:32:21+00:00
+Madras High Court Seeks Report From State On Non-Appointment Of Vice-Chancellors In 14 Universities
+https://www.verdictum.in/madras-high-court/avelanganni-joseph-v-the-principal-secretary-to-government-absence-vice-chancellors-14-tamil-nadu-universities-1620401
+
+[Source Link](https://t.me/verdictumlegalupdates/28674)
+
+---
+
+### 2026-08-22T08:52:40+00:00
+"Triple Test" For "Industry" Laid Down In 1978 Bangalore Water Supply Case Will Govern All Pending Disputes Under Repealed Industrial Disputes Act: Supreme Court's 9-Judges Bench Clarifies
+https://www.verdictum.in/supreme-court/state-of-uttar-pradesh-v-jai-bir-singh-2026-insc-897-1978-triple-test-for-industry-9-judge-bench-1620398
+
+[Source Link](https://t.me/verdictumlegalupdates/28673)
+
+---
+
+### 2026-08-22T08:12:39+00:00
+Only Plaint Averments And Documents Annexed To Plaint Relevant While Deciding Order VII Rule 11 CPC Plea: Supreme Court
+https://www.verdictum.in/supreme-court/n-asha-devi-v-r-aravind-kumar-anr-2026-insc-908-order-vii-rule-11-cpc-1620393
+
+[Source Link](https://t.me/verdictumlegalupdates/28672)
+
+---
+
+### 2026-08-22T07:33:19+00:00
+Can’t Challenge Regularisation Terms After Accepting Benefits: Supreme Court Rejects Retired NIRD Professor’s Plea For GPF Pension Coverage
+https://www.verdictum.in/supreme-court/k-suman-chandra-v-union-of-india-and-others-2026-insc-893-retirement-nird-1620386
+
+[Source Link](https://t.me/verdictumlegalupdates/28671)
 
 ---
 
@@ -89,78 +161,6 @@ No Training Schedule Can Replace Real Bar Practice For A Budding Jurist: Justice
 https://www.verdictum.in/supreme-court/justice-k-vindo-chandran-dissents-3-yrs-practice-requirement-1620341
 
 [Source Link](https://t.me/verdictumlegalupdates/28660)
-
----
-
-### 2026-08-21T11:33:11+00:00
-Supreme Court Closes Proceedings On Plea Relating To 2023 Film "The Kerala Story", Leaves Questions Of Law Open
-https://www.verdictum.in/supreme-court/proceedings-on-plea-relating-to-2023-film-the-kerala-story-closed-1620339
-
-[Source Link](https://t.me/verdictumlegalupdates/28659)
-
----
-
-### 2026-08-21T11:02:51+00:00
-Calcutta High Court Grants Interim Protection To TMC MP Abhishek Banerjee In 3 FIRs
-https://www.verdictum.in/calcutta-high-court/interim-protection-to-tmc-mp-abhishek-banerjee-in-3-firs-1620337
-
-[Source Link](https://t.me/verdictumlegalupdates/28658)
-
----
-
-### 2026-08-21T10:32:30+00:00
-Supreme Court Sets Aside Order Allowing Dayanidhi Maran’s Plea To Summon Telecom Secretary As Court Witness
-https://www.verdictum.in/supreme-court/dayanidhi-marans-plea-to-summon-telecom-secretary-as-court-witness-1620336
-
-[Source Link](https://t.me/verdictumlegalupdates/28657)
-
----
-
-### 2026-08-21T09:52:09+00:00
-Statutory Remedies Available U/S.173 BNSS Must Be Exhausted Before Approaching Writ Court For FIR Registration: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/amit-kumar-srivastava-v-state-of-up-and-10-others-2026ahc169762-db-bnss-fir-registration-1620333
-
-[Source Link](https://t.me/verdictumlegalupdates/28656)
-
----
-
-### 2026-08-21T09:02:28+00:00
-Supreme Court Comes To Rescue Of 105-yr-Old Murder Convict, Makes Its 2024 Bail Order Final
-https://www.verdictum.in/supreme-court/rescue-of-105-yr-old-murder-convict-1620328
-
-[Source Link](https://t.me/verdictumlegalupdates/28655)
-
----
-
-### 2026-08-21T08:32:27+00:00
-Writ Of Mandamus Maintainable Against Private Unaided Schools To Enforce Statutory Pay Scales For Teachers: Supreme Court
-https://www.verdictum.in/supreme-court/siyaram-education-society-v-chhaya-do-baliram-dhave-2026-insc-871-private-unaided-schools-writ-of-mandamus-1620326
-
-[Source Link](https://t.me/verdictumlegalupdates/28654)
-
----
-
-### 2026-08-21T07:49:47+00:00
-Police Are Not Meant To Be “Investigators" Under PCPNDT Act; Can't Commence Independent Investigation: Supreme Court
-https://www.verdictum.in/supreme-court/state-of-uttar-pradesh-v-dr-brij-pal-singh-2026-insc-901-pcpndt-act-high-courts-on-sex-determination-offences-1620325
-
-[Source Link](https://t.me/verdictumlegalupdates/28653)
-
----
-
-### 2026-08-21T06:52:26+00:00
-Bank Can’t Be Used As Substitute For Statutory Judicial Process: Rajasthan High Court Bars Indefinite Freezing Of Bank Accounts In Cyber Fraud Investigations
-https://www.verdictum.in/rajasthan-high-court/shree-balaji-enterprises-v-reserve-bank-of-india-2026rj-jp33344-freezing-of-bank-accounts-in-cyber-fraud-investigations-1620320
-
-[Source Link](https://t.me/verdictumlegalupdates/28652)
-
----
-
-### 2026-08-21T06:12:45+00:00
-"Homemaker" Is A Gender-Neutral Term And Includes Working Person, Breadwinner Or Wage Earner: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/karnataka-state-road-transport-corporation-v-pampapal-2026khc40705-1620314
-
-[Source Link](https://t.me/verdictumlegalupdates/28651)
 
 ---
 
