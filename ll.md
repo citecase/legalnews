@@ -1,147 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-22T03:32:30+00:00*
+*Last Updated: 2026-08-22T07:32:35+00:00*
 
 ---
 
-### 2026-08-22T03:32:30+00:00
-Madras High Court Seeks Explanation Over 14 Tamil Nadu Universities Functioning Without Vice-Chancellors
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-vc-not-appointment-tn-universities-report-sought-546912
+### 2026-08-22T07:32:35+00:00
+Candidate Securing Employment Using Forged Records Has No Vested Right To Hold Public Office: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/candidate-cant-hold-public-employment-secured-through-forged-records-546936
 
-[Read on Telegram](https://t.me/livelawindia/118021)
-
----
-### 2026-08-22T03:32:50+00:00
-LiveLaw Gauhati High Court Monthly Digest: July 2026
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-monthly-digest-july-2026-544723
-
-[Read on Telegram](https://t.me/livelawindia/118022)
+[Read on Telegram](https://t.me/livelawindia/118045)
 
 ---
-### 2026-08-22T04:30:46+00:00
-Senior Advocate Pawan Kumar Mutneja Appointed As New Advocate General Of Haryana
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/senior-advocate-pawan-kumar-mutneja-appointed-as-new-advocate-general-of-haryana-546919
+### 2026-08-22T07:54:56+00:00
+Supreme Court Dismisses Plea By 35 Candidates Against Exclusion From Jharkhand Judicial Service Prelims Revised Merit List
+https://www.livelaw.in/top-stories/supreme-court-dismisses-plea-by-35-candidates-against-exclusion-from-jharkhand-judicial-service-prelims-revised-merit-list-546957
 
-[Read on Telegram](https://t.me/livelawindia/118023)
-
----
-### 2026-08-22T04:32:26+00:00
-Sentence Without Bridle: Community Service Gaps In BNS And BNSS
-https://www.livelaw.in/articles/community-service-gaps-bns-bnss-546915
-
-[Read on Telegram](https://t.me/livelawindia/118024)
+[Read on Telegram](https://t.me/livelawindia/118046)
 
 ---
-### 2026-08-22T04:48:06+00:00
-Can't Demolish Properties For Road Widening Without Examining Title Claims, Fair Hearing: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/demolition-committee-examine-property-owners-sriganganagar-master-plan-546922
+### 2026-08-22T08:02:46+00:00
+Govt Employee Has No Right To Continue In Official Quarter When It Is Needed For Public Interest Redevelopment: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/govt-employee-no-right-official-quarter-needed-for-public-interest-546940
 
-[Read on Telegram](https://t.me/livelawindia/118025)
-
----
-### 2026-08-22T04:51:26+00:00
-BRICS  Legal Forum Delegates Visit Supreme Court, Hold Bilateral Consultations Before Inauguration
-https://www.livelaw.in/news-updates/brics-legal-forum-delegates-visit-supreme-court-hold-bilateral-consultations-before-inauguration-546923
-
-[Read on Telegram](https://t.me/livelawindia/118026)
+[Read on Telegram](https://t.me/livelawindia/118047)
 
 ---
-### 2026-08-22T04:57:36+00:00
-Contract Act | Limits Of Agent's Authority : Supreme Court Explains Law Of Agency
-https://www.livelaw.in/top-stories/contract-act-limits-of-agents-authority-supreme-court-explains-law-of-agency-546692
+### 2026-08-22T08:02:56+00:00
+Accused On Bail Shown As In Jail, Gang Chart Approved Without Joint Meeting: Allahabad High Court Quashes UP Gangsters Act FIR
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-accused-bail-shown-jail-gang-chart-joint-meeting-up-gangsters-act-546958
 
-[Read on Telegram](https://t.me/livelawindia/118027)
-
----
-### 2026-08-22T05:02:16+00:00
-Urdu Medium Teachers Allegedly Excluded From Karnataka's 2026 Recruitment Approach High Court
-https://www.livelaw.in/high-court/karnataka-high-court/urdu-medium-teachers-karnataka2026-recruitment-vacant-teachers-posts-546924
-
-[Read on Telegram](https://t.me/livelawindia/118028)
+[Read on Telegram](https://t.me/livelawindia/118048)
 
 ---
-### 2026-08-22T05:04:36+00:00
-Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
-https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-546929
+### 2026-08-22T08:28:06+00:00
+Multiplier Method Under Motor Vehicles Act Cannot Be Applied To Electrocution Death Cases : Supreme Court
+https://www.livelaw.in/supreme-court/multiplier-method-under-motor-vehicles-act-cannot-be-applied-to-electrocution-death-cases-supreme-court-546689
 
-[Read on Telegram](https://t.me/livelawindia/118029)
-
----
-### 2026-08-22T05:12:56+00:00
-Rajasthan High Court Sets Aside Appointment Of Former CJI Sanjiv Khanna As One-Man Commission In Adarsh Credit Society Dispute
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-sets-aside-appointment-retired-cji-sanjiv-khanna-one-man-commission-546930
-
-[Read on Telegram](https://t.me/livelawindia/118030)
+[Read on Telegram](https://t.me/livelawindia/118049)
 
 ---
-### 2026-08-22T05:17:56+00:00
-Delhi High Court Refuses Blanket Takedown Order In Janhvi Kapoor's Personality Rights Suit But Orders Removal Of Vulgar Content
-https://www.livelaw.in/high-court/delhi-high-court/janhvi-kapoor-personality-rights-remove-vulgar-content-no-blanket-takedown-546932
+### 2026-08-22T08:32:46+00:00
+'Authorities Best Placed To Decide': Delhi High Court To Lawyer Troubled By Traffic Near His Connaught Place Office
+https://www.livelaw.in/high-court/delhi-high-court/connaught-place-lawyers-plea-over-traffic-rejected-authorities-decide-546942
 
-[Read on Telegram](https://t.me/livelawindia/118031)
-
----
-### 2026-08-22T05:22:16+00:00
-Personality Rights Can't Extinguish Caricature, Lampooning Or Parody Unless Commercial Exploitation Is Involved: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/personality-rights-cant-extinguish-caricature-lampooning-parody-unless-commercial-exploitation-546926
-
-[Read on Telegram](https://t.me/livelawindia/118032)
+[Read on Telegram](https://t.me/livelawindia/118050)
 
 ---
-### 2026-08-22T05:32:42+00:00
-Deputy General Manager (Legal) Vacancy At Godrej Industries Group
-https://www.livelaw.in/job-updates/deputy-general-manager-legal-vacancy-at-godrej-industries-group-546937
+### 2026-08-22T08:49:06+00:00
+Mere Mutation In Revenue Records Cannot Extinguish One's Title In Property: Supreme Court
+https://www.livelaw.in/supreme-court/mere-mutation-in-revenue-records-cannot-extinguish-ones-title-in-property-supreme-court-546829
 
-[Read on Telegram](https://t.me/livelawindia/118033)
-
----
-### 2026-08-22T05:37:22+00:00
-Kerala High Court Suspends Life Sentence Of Former BJP Leader Padmarajan In Palathayi Rape Case
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-palathayi-rape-case-sentence-suspension-546927
-
-[Read on Telegram](https://t.me/livelawindia/118034)
+[Read on Telegram](https://t.me/livelawindia/118051)
 
 ---
-### 2026-08-22T05:44:22+00:00
-Corporate Counsel Vacancy At Tata Consultancy Services Limited
-https://www.livelaw.in/job-updates/corporate-counsel-vacancy-at-tata-consultancy-services-limited-546939
+### 2026-08-22T09:03:06+00:00
+Delhi High Court Asks DSLSA Committee To Consider Giving Preference To 3rd-Year Law Students In Para Legal Volunteers Selection
+https://www.livelaw.in/high-court/delhi-high-court/dslsa-committee-prefer-3rd-year-law-students-para-legal-volunteers-546943
 
-[Read on Telegram](https://t.me/livelawindia/118035)
-
----
-### 2026-08-22T05:50:42+00:00
-Senior Consultant Vacancy At Ernst & Young
-https://www.livelaw.in/job-updates/senior-consultant-vacancy-at-ernst-young-546941
-
-[Read on Telegram](https://t.me/livelawindia/118036)
+[Read on Telegram](https://t.me/livelawindia/118052)
 
 ---
-### 2026-08-22T06:02:42+00:00
-Contractor's Entitlement Must Be Verified Before Outstanding Dues Are Paid: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/public-authorities-verify-contractors-entitlement-before-payment-546931
+### 2026-08-22T09:32:16+00:00
+Crowd, Database And Citizen: Protest And Preventive State
+https://www.livelaw.in/articles/crowd-database-citizen-protest-preventive-state-546916
 
-[Read on Telegram](https://t.me/livelawindia/118037)
-
----
-### 2026-08-22T06:32:15+00:00
-Quashing Of Termination For Want Of Communication Doesn't Cure Defects In Initial Appointment: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-ineffective-termination-does-not-automatically-confer-regular-status-consequential-service-benefits-546933
-
-[Read on Telegram](https://t.me/livelawindia/118038)
+[Read on Telegram](https://t.me/livelawindia/118053)
 
 ---
-### 2026-08-22T06:34:35+00:00
-#TheLawChallenge
- : A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
-https://www.livelaw.in/top-stories/livelaw-and-qshala-weekly-quiz-546947
+### 2026-08-22T09:32:26+00:00
+Children Who Lose Parent In Motor Accident Entitled To Parental Consortium: Gauhati High Court Enhances Compensation To ₹8 Lakh
+https://www.livelaw.in/high-court/gauhati-high-court/motor-accident-two-sons-get-parental-consortium-enhance-compensation-546944
 
-[Read on Telegram](https://t.me/livelawindia/118039)
+[Read on Telegram](https://t.me/livelawindia/118054)
 
 ---
-### 2026-08-22T06:35:35+00:00
-Gujarat High Court To Host 'GHAC Arbitration Week 2026' On Building Institutional Arbitration Ecosystem
-https://www.livelaw.in/news-updates/gujarat-high-court-to-host-ghac-arbitration-week-2026-on-building-institutional-arbitration-ecosystem-546948
+### 2026-08-22T09:34:56+00:00
+POCSO Misuse | Allahabad High Court Flags Use Of Forged School Certificates To Show Victims As Minors, Seeks UP Govt Guidelines
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-pocso-misuse-forged-school-certificates-victims-minors-guidelines-546959
 
-[Read on Telegram](https://t.me/livelawindia/118040)
+[Read on Telegram](https://t.me/livelawindia/118055)
+
+---
+### 2026-08-22T10:03:06+00:00
+'Passing The Buck': Delhi High Court Pulls Up Pollution Control Bodies Over 4-Year-Old Hazardous Waste Container
+https://www.livelaw.in/high-court/delhi-high-court/authorities-passing-the-buck-hazardous-waste-tughlakabad-depot-546945
+
+[Read on Telegram](https://t.me/livelawindia/118056)
+
+---
+### 2026-08-22T10:32:27+00:00
+Termination Of Bank Employee Under Regulation Retrospectively Declared Unconstitutional Cannot Stand: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-declaration-post-constitutional-regulation-unconstitutional-546946
+
+[Read on Telegram](https://t.me/livelawindia/118057)
+
+---
+### 2026-08-22T11:02:57+00:00
+BNSS Remedies Must Be Exhausted Before Moving High Court For FIR Registration: Gauhati High Court Reiterates
+https://www.livelaw.in/high-court/gauhati-high-court/fir-registration-writ-premature-without-availing-bnss-remedies-546934
+
+[Read on Telegram](https://t.me/livelawindia/118058)
+
+---
+### 2026-08-22T11:07:37+00:00
+Manan Kumar Mishra's Resignation Sought At BCI General Council Meeting
+https://www.livelaw.in/top-stories/manan-kumar-mishras-resignation-sought-at-bci-general-council-meeting-546962
+
+[Read on Telegram](https://t.me/livelawindia/118059)
+
+---
+### 2026-08-22T11:32:57+00:00
+Investigating Officer Failed To Appear Before Trial Court Over 20 Times, Undertrials Spent 6 Yrs In Jail: Delhi High Court Laments
+https://www.livelaw.in/high-court/delhi-high-court/delhi-police-dont-appear-for-trial-accused-in-prolonged-jail-custody-546955
+
+[Read on Telegram](https://t.me/livelawindia/118060)
+
+---
+### 2026-08-22T12:13:49+00:00
+'Child Witness Testimony Not Convincing' : Supreme Court Sets Aside Murder Conviction
+https://www.livelaw.in/supreme-court/child-witness-testimony-not-convincing-supreme-court-sets-aside-murder-conviction-546878
+
+[Read on Telegram](https://t.me/livelawindia/118061)
+
+---
+### 2026-08-22T12:20:53+00:00
+Supreme Court Suggests Professional Bondspersons, Dedicated District Staff For Surety Verification
+https://www.livelaw.in/top-stories/supreme-court-suggests-professional-bondspersons-dedicated-district-staff-for-surety-verification-546970
+
+[Read on Telegram](https://t.me/livelawindia/118062)
+
+---
+### 2026-08-22T12:27:44+00:00
+Supreme Court Sets Aside NGT Order Holding Art Of Living Foundation Liable For Yamuna Riverplain Damage In 2016
+https://www.livelaw.in/top-stories/supreme-court-sets-aside-ngt-order-holding-art-of-living-foundation-liable-for-yamuna-riverplain-damage-in-2016-546972
+
+[Read on Telegram](https://t.me/livelawindia/118063)
+
+---
+### 2026-08-22T12:38:09+00:00
+Pendency Of Criminal Case No Ground To Discharge Public Servant: Supreme Court
+https://www.livelaw.in/supreme-court/pendency-of-criminal-case-no-ground-to-discharge-public-servant-supreme-court-546884
+
+[Read on Telegram](https://t.me/livelawindia/118064)
 
 ---
