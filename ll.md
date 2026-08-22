@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-22T07:32:35+00:00*
+*Last Updated: 2026-08-22T08:49:06+00:00*
 
 ---
 
-### 2026-08-22T07:32:35+00:00
-Candidate Securing Employment Using Forged Records Has No Vested Right To Hold Public Office: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/candidate-cant-hold-public-employment-secured-through-forged-records-546936
-
-[Read on Telegram](https://t.me/livelawindia/118045)
-
----
-### 2026-08-22T07:54:56+00:00
-Supreme Court Dismisses Plea By 35 Candidates Against Exclusion From Jharkhand Judicial Service Prelims Revised Merit List
-https://www.livelaw.in/top-stories/supreme-court-dismisses-plea-by-35-candidates-against-exclusion-from-jharkhand-judicial-service-prelims-revised-merit-list-546957
-
-[Read on Telegram](https://t.me/livelawindia/118046)
-
----
-### 2026-08-22T08:02:46+00:00
-Govt Employee Has No Right To Continue In Official Quarter When It Is Needed For Public Interest Redevelopment: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/govt-employee-no-right-official-quarter-needed-for-public-interest-546940
-
-[Read on Telegram](https://t.me/livelawindia/118047)
-
----
-### 2026-08-22T08:02:56+00:00
-Accused On Bail Shown As In Jail, Gang Chart Approved Without Joint Meeting: Allahabad High Court Quashes UP Gangsters Act FIR
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-accused-bail-shown-jail-gang-chart-joint-meeting-up-gangsters-act-546958
-
-[Read on Telegram](https://t.me/livelawindia/118048)
-
----
-### 2026-08-22T08:28:06+00:00
-Multiplier Method Under Motor Vehicles Act Cannot Be Applied To Electrocution Death Cases : Supreme Court
-https://www.livelaw.in/supreme-court/multiplier-method-under-motor-vehicles-act-cannot-be-applied-to-electrocution-death-cases-supreme-court-546689
-
-[Read on Telegram](https://t.me/livelawindia/118049)
-
----
-### 2026-08-22T08:32:46+00:00
-'Authorities Best Placed To Decide': Delhi High Court To Lawyer Troubled By Traffic Near His Connaught Place Office
-https://www.livelaw.in/high-court/delhi-high-court/connaught-place-lawyers-plea-over-traffic-rejected-authorities-decide-546942
-
-[Read on Telegram](https://t.me/livelawindia/118050)
-
----
 ### 2026-08-22T08:49:06+00:00
 Mere Mutation In Revenue Records Cannot Extinguish One's Title In Property: Supreme Court
 https://www.livelaw.in/supreme-court/mere-mutation-in-revenue-records-cannot-extinguish-ones-title-in-property-supreme-court-546829
@@ -142,5 +100,47 @@ Pendency Of Criminal Case No Ground To Discharge Public Servant: Supreme Court
 https://www.livelaw.in/supreme-court/pendency-of-criminal-case-no-ground-to-discharge-public-servant-supreme-court-546884
 
 [Read on Telegram](https://t.me/livelawindia/118064)
+
+---
+### 2026-08-22T13:42:41+00:00
+CJI Surya Kant Proposes 'Nyay Setu', BRICS  Judicial Fellowship To Strengthen Legal Cooperation
+https://www.livelaw.in/news-updates/cji-surya-kant-proposes-nyay-setu-brics-judicial-fellowship-to-strengthen-legal-cooperation-546974
+
+[Read on Telegram](https://t.me/livelawindia/118065)
+
+---
+### 2026-08-22T14:05:01+00:00
+'Shocking Pendency' Of Criminal Appeals In Jharkhand High Court: Supreme Court Flags 44-Year Delay in Murder Case
+https://www.livelaw.in/top-stories/shocking-pendency-of-criminal-appeals-in-jharkhand-high-court-supreme-court-flags-44-year-delay-in-murder-case-546975
+
+[Read on Telegram](https://t.me/livelawindia/118066)
+
+---
+### 2026-08-22T14:32:31+00:00
+Section 74 Of Indian Contract Act And Its Application To Earnest Money: An Endless Saga
+https://www.livelaw.in/articles/section74-indian-contract-act-application-earnest-money-546917
+
+[Read on Telegram](https://t.me/livelawindia/118067)
+
+---
+### 2026-08-22T14:55:31+00:00
+Centre Issues New Guidelines For Empanelment Of Advocates
+https://www.livelaw.in/news-updates/centre-issues-new-guidelines-for-empanelment-of-advocates-546976
+
+[Read on Telegram](https://t.me/livelawindia/118068)
+
+---
+### 2026-08-22T15:06:22+00:00
+2026 LiveLaw (SC) 847 |  VYAKTI VIKAS KENDRA INDIA v MANOJ MISRA (DEAD) AND ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-847-vyakti-vikas-kendra-india-v-manoj-misra-dead-and-ors-546977
+
+[Read on Telegram](https://t.me/livelawindia/118069)
+
+---
+### 2026-08-22T15:13:02+00:00
+Judges Are Not Gods; Won't Get Every Judgment Right : Justice Sanjay Karol In Farewell Speech
+https://www.livelaw.in/top-stories/judges-are-not-gods-wont-get-every-judgment-right-justice-sanjay-karol-in-farewell-speech-546978
+
+[Read on Telegram](https://t.me/livelawindia/118070)
 
 ---
