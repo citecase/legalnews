@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-21T16:02:37+00:00*
+*Last Updated: 2026-08-22T06:45:38+00:00*
+
+---
+
+### 2026-08-22T06:45:38+00:00
+Parity Not Mechanical Mathematical Formula; Grant Of Bail To One Accused No Ground For Granting Bail To Another: Supreme Court
+https://www.verdictum.in/supreme-court/rajendra-prasad-v-state-of-goa-anr-2026-insc-891-parity-bail-accused-1620385
+
+[Source Link](https://t.me/verdictumlegalupdates/28670)
+
+---
+
+### 2026-08-22T05:52:47+00:00
+Lodging FIR, Even If False, Is Not Abetment Of Suicide: Supreme Court Quashes Criminal Case Against In-Laws Of Man Who Committed Suicide
+https://www.verdictum.in/supreme-court/patel-joshnaben-pravinkumar-patel-v-state-of-gujarat-2026-insc-886-husband-blaming-in-laws-in-suicide-note-1620380
+
+[Source Link](https://t.me/verdictumlegalupdates/28669)
+
+---
+
+### 2026-08-22T05:12:26+00:00
+Supreme Court Upholds Public Service Commission’s Primacy On Eligibility Determination; Orders Appointment Of State University Registrar
+https://www.verdictum.in/supreme-court/shailendra-kumar-patel-v-state-of-chhattisgarh-2026-insc-902-appointment-of-registrar-in-chhattisgarh-1620379
+
+[Source Link](https://t.me/verdictumlegalupdates/28668)
+
+---
+
+### 2026-08-22T04:32:55+00:00
+Turnover Relaxation Can Be Denied To MSEs In Health & Safety Procurements Where Justified: Delhi High Court Upholds ₹33 Cr Criterion In Army Dialysis Plant Tender
+https://www.verdictum.in/delhi-high-court/althion-tech-innovations-pvt-ltd-v-union-of-india-2026dhc6904-db-turnover-relaxation-can-be-denied-mses-army-1620347
+
+[Source Link](https://t.me/verdictumlegalupdates/28667)
 
 ---
 
@@ -129,38 +161,6 @@ https://www.verdictum.in/rajasthan-high-court/shree-balaji-enterprises-v-reserve
 https://www.verdictum.in/karnataka-high-court/karnataka-state-road-transport-corporation-v-pampapal-2026khc40705-1620314
 
 [Source Link](https://t.me/verdictumlegalupdates/28651)
-
----
-
-### 2026-08-21T05:34:25+00:00
-Supreme Court Modifies Civil Judge Recruitment Criteria With 1-Year Academy Training & Law Clerkship In Lieu of 3-Year Bar Practice
-https://www.verdictum.in/supreme-court/modifies-civil-judge-recruitment-criteria-academy-training-3year-bar-practice-1620309
-
-[Source Link](https://t.me/verdictumlegalupdates/28650)
-
----
-
-### 2026-08-21T05:12:43+00:00
-Criminal Acquittal Cannot Control Civil MACT Claims; Standard Of Proof Differs: Supreme Court
-https://www.verdictum.in/supreme-court/reena-v-the-managing-director-karnataka-state-road-transport-corporation-2026-insc-889-00-negligence-finding-against-ksrtc-driver-1620305
-
-[Source Link](https://t.me/verdictumlegalupdates/28649)
-
----
-
-### 2026-08-21T04:32:53+00:00
-No Room For Discrimination In Place Of Worship: Madras High Court Disposes PIL Alleging Discrimination At Arulmigu Devaraja Swamigal Temple
-https://www.verdictum.in/madras-high-court/madhavan-ramanuja-dasan-v-the-commissioner-discrimination-worship-arulmigu-devaraja-swamigal-temple-1620271
-
-[Source Link](https://t.me/verdictumlegalupdates/28648)
-
----
-
-### 2026-08-20T16:02:17+00:00
-BCI Recognition Of Foreign Law Degree Does Not Make It A "First Degree" For Admission To 3-Year LL.B. Course: Bombay High Court
-https://www.verdictum.in/bombay-high-court/yohaan-abraham-v-chhatrapati-shivaji-maharaj-university-and-another-1620277
-
-[Source Link](https://t.me/verdictumlegalupdates/28647)
 
 ---
 
