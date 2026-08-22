@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-22T12:52:35+00:00*
+*Last Updated: 2026-08-22T15:03:00+00:00*
+
+---
+
+### 2026-08-22T15:03:00+00:00
+Legal Officer Vacancy At Cement Corporation of India Ltd. (CCI)
+https://www.verdictum.in/job-updates/cement-corporation-of-india-ltd-1620412
+
+[Source Link](https://t.me/verdictumlegalupdates/28682)
+
+---
+
+### 2026-08-22T14:12:59+00:00
+Advocate Cannot Use Confidential Information Against Client Merely Because She Became Adversary: Supreme Court
+https://www.verdictum.in/supreme-court/rehana-khan-v-rizwan-siddhiquee-advocate-attorney-client-privilege-suspension-1620414
+
+[Source Link](https://t.me/verdictumlegalupdates/28681)
+
+---
+
+### 2026-08-22T13:32:16+00:00
+Unchecked Freedom Can Cause Great Harm To Society: Patna High Court Upholds Restrictions Imposed On Religious Procession By Hindu Group
+https://www.verdictum.in/patna-high-court/bhadai-chaudhary-v-the-state-of-bihar-mahabiri-julus-akhara-no1-1620409
+
+[Source Link](https://t.me/verdictumlegalupdates/28680)
 
 ---
 
@@ -137,30 +161,6 @@ https://www.verdictum.in/supreme-court/centre-response-on-anomalies-in-consumer-
 https://www.verdictum.in/supreme-court/asks-centre-respond-social-media-intermediaries-lapses-cseam-compliance-1620352
 
 [Source Link](https://t.me/verdictumlegalupdates/28663)
-
----
-
-### 2026-08-21T13:32:34+00:00
-Obligation To Maintain Children Shared By Both Parents; Father’s Liability Won’t Be Half Merely Because Mother Is Earning: Supreme Court
-https://www.verdictum.in/supreme-court/a-v-b-2026-insc-896-obligation-maintain-parents-father-liability-mother-earning-1620345
-
-[Source Link](https://t.me/verdictumlegalupdates/28662)
-
----
-
-### 2026-08-21T12:52:33+00:00
-Supreme Court Refuses To Quash Criminal Defamation Complaint Against Sukhbir Badal
-https://www.verdictum.in/supreme-court/criminal-defamation-complaint-against-sukhbir-badal-1620344
-
-[Source Link](https://t.me/verdictumlegalupdates/28661)
-
----
-
-### 2026-08-21T12:12:52+00:00
-No Training Schedule Can Replace Real Bar Practice For A Budding Jurist: Justice Vinod Chandran Dissents As Majority Reduces 3 Years Practice Requirement For Judiciary Exams
-https://www.verdictum.in/supreme-court/justice-k-vindo-chandran-dissents-3-yrs-practice-requirement-1620341
-
-[Source Link](https://t.me/verdictumlegalupdates/28660)
 
 ---
 
