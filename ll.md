@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-22T11:07:37+00:00*
+*Last Updated: 2026-08-22T15:06:22+00:00*
 
 ---
 
-### 2026-08-22T11:07:37+00:00
-Manan Kumar Mishra's Resignation Sought At BCI General Council Meeting
-https://www.livelaw.in/top-stories/manan-kumar-mishras-resignation-sought-at-bci-general-council-meeting-546962
-
-[Read on Telegram](https://t.me/livelawindia/118059)
-
----
-### 2026-08-22T11:32:57+00:00
-Investigating Officer Failed To Appear Before Trial Court Over 20 Times, Undertrials Spent 6 Yrs In Jail: Delhi High Court Laments
-https://www.livelaw.in/high-court/delhi-high-court/delhi-police-dont-appear-for-trial-accused-in-prolonged-jail-custody-546955
-
-[Read on Telegram](https://t.me/livelawindia/118060)
-
----
-### 2026-08-22T12:13:49+00:00
-'Child Witness Testimony Not Convincing' : Supreme Court Sets Aside Murder Conviction
-https://www.livelaw.in/supreme-court/child-witness-testimony-not-convincing-supreme-court-sets-aside-murder-conviction-546878
-
-[Read on Telegram](https://t.me/livelawindia/118061)
-
----
-### 2026-08-22T12:20:53+00:00
-Supreme Court Suggests Professional Bondspersons, Dedicated District Staff For Surety Verification
-https://www.livelaw.in/top-stories/supreme-court-suggests-professional-bondspersons-dedicated-district-staff-for-surety-verification-546970
-
-[Read on Telegram](https://t.me/livelawindia/118062)
-
----
-### 2026-08-22T12:27:44+00:00
-Supreme Court Sets Aside NGT Order Holding Art Of Living Foundation Liable For Yamuna Riverplain Damage In 2016
-https://www.livelaw.in/top-stories/supreme-court-sets-aside-ngt-order-holding-art-of-living-foundation-liable-for-yamuna-riverplain-damage-in-2016-546972
-
-[Read on Telegram](https://t.me/livelawindia/118063)
-
----
-### 2026-08-22T12:38:09+00:00
-Pendency Of Criminal Case No Ground To Discharge Public Servant: Supreme Court
-https://www.livelaw.in/supreme-court/pendency-of-criminal-case-no-ground-to-discharge-public-servant-supreme-court-546884
-
-[Read on Telegram](https://t.me/livelawindia/118064)
-
----
-### 2026-08-22T13:42:41+00:00
-CJI Surya Kant Proposes 'Nyay Setu', BRICS  Judicial Fellowship To Strengthen Legal Cooperation
-https://www.livelaw.in/news-updates/cji-surya-kant-proposes-nyay-setu-brics-judicial-fellowship-to-strengthen-legal-cooperation-546974
-
-[Read on Telegram](https://t.me/livelawindia/118065)
-
----
-### 2026-08-22T14:05:01+00:00
-'Shocking Pendency' Of Criminal Appeals In Jharkhand High Court: Supreme Court Flags 44-Year Delay in Murder Case
-https://www.livelaw.in/top-stories/shocking-pendency-of-criminal-appeals-in-jharkhand-high-court-supreme-court-flags-44-year-delay-in-murder-case-546975
-
-[Read on Telegram](https://t.me/livelawindia/118066)
-
----
-### 2026-08-22T14:32:31+00:00
-Section 74 Of Indian Contract Act And Its Application To Earnest Money: An Endless Saga
-https://www.livelaw.in/articles/section74-indian-contract-act-application-earnest-money-546917
-
-[Read on Telegram](https://t.me/livelawindia/118067)
-
----
-### 2026-08-22T14:55:31+00:00
-Centre Issues New Guidelines For Empanelment Of Advocates
-https://www.livelaw.in/news-updates/centre-issues-new-guidelines-for-empanelment-of-advocates-546976
-
-[Read on Telegram](https://t.me/livelawindia/118068)
-
----
 ### 2026-08-22T15:06:22+00:00
 2026 LiveLaw (SC) 847 |  VYAKTI VIKAS KENDRA INDIA v MANOJ MISRA (DEAD) AND ORS
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-847-vyakti-vikas-kendra-india-v-manoj-misra-dead-and-ors-546977
@@ -142,5 +72,75 @@ Southern States' Votes Could Become 'Of Little Value' After Population Based Del
 https://www.livelaw.in/top-stories/southern-states-votes-could-become-of-little-value-after-population-based-delimitation-justice-km-joseph-546973
 
 [Read on Telegram](https://t.me/livelawindia/118078)
+
+---
+### 2026-08-23T07:31:42+00:00
+Rajasthan High Court Issues Guidelines To Combat Blanket Freezing Of Bank Accounts In Cyber Crime Cases
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-account-freeze-cyber-crime-546999
+
+[Read on Telegram](https://t.me/livelawindia/118079)
+
+---
+### 2026-08-23T07:33:42+00:00
+Can 'Culture' Justify Religious Rituals At State Functions? Constitutional Examination Of Bhumi Pujan Ceremonies
+https://www.livelaw.in/articles/can-culture-justify-religious-rituals-at-state-functions-constitutional-examination-of-bhumi-pujan-ceremonies-547000
+
+[Read on Telegram](https://t.me/livelawindia/118080)
+
+---
+### 2026-08-23T07:38:03+00:00
+2026 LiveLaw (SC) 849 | N Asha Devi Versus R Aravind Kumar & Anr.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-849-n-asha-devi-versus-r-aravind-kumar-anr-547002
+
+[Read on Telegram](https://t.me/livelawindia/118081)
+
+---
+### 2026-08-23T07:38:13+00:00
+'Manan Kumar Mishra's Continuation As BCI Chairman Irregular' CJAR Demands His Resignation, Seeks Audit Of Bar Council Finances
+https://www.livelaw.in/top-stories/manan-kumar-mishras-continuation-as-bci-chairman-irregular-cjar-demands-his-resignation-seeks-audit-of-bar-council-finances-546995
+
+[Read on Telegram](https://t.me/livelawindia/118082)
+
+---
+### 2026-08-23T07:42:33+00:00
+2026 LiveLaw (SC) 850 | STATE OF HIMACHAL PRADESH & ANR. ETC. VERSUS JAMEET SINGH & ANR. ETC
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-850-state-of-himachal-pradesh-anr-etc-versus-jameet-singh-anr-etc-547004
+
+[Read on Telegram](https://t.me/livelawindia/118083)
+
+---
+### 2026-08-23T09:32:34+00:00
+Adoption And Equality: Landmark Shift In Motherhood Rights
+https://www.livelaw.in/articles/adoption-equality-landmark-shift-motherhood-rights-546968
+
+[Read on Telegram](https://t.me/livelawindia/118084)
+
+---
+### 2026-08-23T10:18:04+00:00
+Order 7 Rule 11 CPC | Plaint Can Be Rejected At Threshold When Limitation Bar Is Obvious From Pleadings : Supreme Court
+https://www.livelaw.in/supreme-court/order-7-rule-11-cpc-plaint-can-be-rejected-at-threshold-when-limitation-bar-is-obvious-from-pleadings-supreme-court-547001
+
+[Read on Telegram](https://t.me/livelawindia/118085)
+
+---
+### 2026-08-23T10:28:07+00:00
+SARFAESI | Earnest Money Deposit Shortfall Doesn't Vitiate Sale If 25% Sale Price Paid On Auction Day : Supreme Court
+https://www.livelaw.in/supreme-court/sarfaesi-earnest-money-deposit-shortfall-doesnt-vitiate-sale-if-25-sale-price-paid-on-auction-day-supreme-court-547005
+
+[Read on Telegram](https://t.me/livelawindia/118086)
+
+---
+### 2026-08-23T10:29:07+00:00
+2026 LiveLaw (SC) 851 |  Lakshmi Mohan (Dead) Through LRs. & Anr. Versus M/s. Airtech Projects Engineers Pvt. Ltd. & Anr. (with connected cases)
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-851-lakshmi-mohan-dead-through-lrs-anr-versus-ms-airtech-projects-engineers-pvt-ltd-anr-with-connected-cases-547006
+
+[Read on Telegram](https://t.me/livelawindia/118087)
+
+---
+### 2026-08-23T12:07:27+00:00
+Execution Court Cannot Travel Beyond Decree To Grant Unintended Reliefs: Supreme Court
+https://www.livelaw.in/supreme-court/execution-court-cannot-travel-beyond-decree-to-grant-unintended-reliefs-supreme-court-547003
+
+[Read on Telegram](https://t.me/livelawindia/118088)
 
 ---
