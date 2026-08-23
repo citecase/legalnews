@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-23T06:33:12+00:00*
+*Last Updated: 2026-08-23T12:32:55+00:00*
+
+---
+
+### 2026-08-23T12:32:55+00:00
+Writ Jurisdiction Cannot Be Used to Dictate Property Tax Assessment Methodology: Delhi High Court Dismisses Khan Market Welfare Association's Petition
+https://www.verdictum.in/delhi-high-court/khan-market-welfare-association-regd-v-union-of-india-2026dhc6971-db-property-tax-assessment-methodology-1620454
+
+[Source Link](https://t.me/verdictumlegalupdates/28687)
+
+---
+
+### 2026-08-23T10:32:34+00:00
+Mere Suspicion Arising From Accused’s Explanation Can’t Substitute Cogent Proof In Case Based On Circumstantial Evidence: Supreme Court
+https://www.verdictum.in/supreme-court/ravi-kumar-singh-malhotra-v-the-state-of-madhya-pradesh-2026-insc-899-1620453
+
+[Source Link](https://t.me/verdictumlegalupdates/28686)
+
+---
+
+### 2026-08-23T08:32:33+00:00
+Chats Speak Volumes Regarding Complainant’s Behaviour: Supreme Court Quashes Proceedings Against Mother In Son’s False Promise To Marry Case
+https://www.verdictum.in/supreme-court/ilaben-v-the-state-of-gujarat-and-anr-2026-insc-879-chats-accused-complainant-1620439
+
+[Source Link](https://t.me/verdictumlegalupdates/28685)
 
 ---
 
@@ -137,30 +161,6 @@ Supreme Court Upholds Public Service Commission’s Primacy On Eligibility Deter
 https://www.verdictum.in/supreme-court/shailendra-kumar-patel-v-state-of-chhattisgarh-2026-insc-902-appointment-of-registrar-in-chhattisgarh-1620379
 
 [Source Link](https://t.me/verdictumlegalupdates/28668)
-
----
-
-### 2026-08-22T04:32:55+00:00
-Turnover Relaxation Can Be Denied To MSEs In Health & Safety Procurements Where Justified: Delhi High Court Upholds ₹33 Cr Criterion In Army Dialysis Plant Tender
-https://www.verdictum.in/delhi-high-court/althion-tech-innovations-pvt-ltd-v-union-of-india-2026dhc6904-db-turnover-relaxation-can-be-denied-mses-army-1620347
-
-[Source Link](https://t.me/verdictumlegalupdates/28667)
-
----
-
-### 2026-08-21T16:02:37+00:00
-Manager (Law) Vacancy At Nainital Bank Limited
-https://www.verdictum.in/job-updates/nainital-bank-limited-1620348
-
-[Source Link](https://t.me/verdictumlegalupdates/28666)
-
----
-
-### 2026-08-21T15:32:37+00:00
-Importer Cannot Escape Liability For Customs Agent's Fraud Or Claim Bona Fide Purchaser Defence For Forged Duty Scrips: Delhi High Court
-https://www.verdictum.in/delhi-high-court/ms-raja-ram-company-v-principal-commissioner-of-customs-import-2026dhc6920-db-duty-evasion-findings-against-paper-importers-1620346
-
-[Source Link](https://t.me/verdictumlegalupdates/28665)
 
 ---
 
