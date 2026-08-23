@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-22T08:49:06+00:00*
+*Last Updated: 2026-08-22T11:07:37+00:00*
 
 ---
 
-### 2026-08-22T08:49:06+00:00
-Mere Mutation In Revenue Records Cannot Extinguish One's Title In Property: Supreme Court
-https://www.livelaw.in/supreme-court/mere-mutation-in-revenue-records-cannot-extinguish-ones-title-in-property-supreme-court-546829
-
-[Read on Telegram](https://t.me/livelawindia/118051)
-
----
-### 2026-08-22T09:03:06+00:00
-Delhi High Court Asks DSLSA Committee To Consider Giving Preference To 3rd-Year Law Students In Para Legal Volunteers Selection
-https://www.livelaw.in/high-court/delhi-high-court/dslsa-committee-prefer-3rd-year-law-students-para-legal-volunteers-546943
-
-[Read on Telegram](https://t.me/livelawindia/118052)
-
----
-### 2026-08-22T09:32:16+00:00
-Crowd, Database And Citizen: Protest And Preventive State
-https://www.livelaw.in/articles/crowd-database-citizen-protest-preventive-state-546916
-
-[Read on Telegram](https://t.me/livelawindia/118053)
-
----
-### 2026-08-22T09:32:26+00:00
-Children Who Lose Parent In Motor Accident Entitled To Parental Consortium: Gauhati High Court Enhances Compensation To ₹8 Lakh
-https://www.livelaw.in/high-court/gauhati-high-court/motor-accident-two-sons-get-parental-consortium-enhance-compensation-546944
-
-[Read on Telegram](https://t.me/livelawindia/118054)
-
----
-### 2026-08-22T09:34:56+00:00
-POCSO Misuse | Allahabad High Court Flags Use Of Forged School Certificates To Show Victims As Minors, Seeks UP Govt Guidelines
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-pocso-misuse-forged-school-certificates-victims-minors-guidelines-546959
-
-[Read on Telegram](https://t.me/livelawindia/118055)
-
----
-### 2026-08-22T10:03:06+00:00
-'Passing The Buck': Delhi High Court Pulls Up Pollution Control Bodies Over 4-Year-Old Hazardous Waste Container
-https://www.livelaw.in/high-court/delhi-high-court/authorities-passing-the-buck-hazardous-waste-tughlakabad-depot-546945
-
-[Read on Telegram](https://t.me/livelawindia/118056)
-
----
-### 2026-08-22T10:32:27+00:00
-Termination Of Bank Employee Under Regulation Retrospectively Declared Unconstitutional Cannot Stand: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-declaration-post-constitutional-regulation-unconstitutional-546946
-
-[Read on Telegram](https://t.me/livelawindia/118057)
-
----
-### 2026-08-22T11:02:57+00:00
-BNSS Remedies Must Be Exhausted Before Moving High Court For FIR Registration: Gauhati High Court Reiterates
-https://www.livelaw.in/high-court/gauhati-high-court/fir-registration-writ-premature-without-availing-bnss-remedies-546934
-
-[Read on Telegram](https://t.me/livelawindia/118058)
-
----
 ### 2026-08-22T11:07:37+00:00
 Manan Kumar Mishra's Resignation Sought At BCI General Council Meeting
 https://www.livelaw.in/top-stories/manan-kumar-mishras-resignation-sought-at-bci-general-council-meeting-546962
@@ -142,5 +86,61 @@ Judges Are Not Gods; Won't Get Every Judgment Right : Justice Sanjay Karol In Fa
 https://www.livelaw.in/top-stories/judges-are-not-gods-wont-get-every-judgment-right-justice-sanjay-karol-in-farewell-speech-546978
 
 [Read on Telegram](https://t.me/livelawindia/118070)
+
+---
+### 2026-08-23T03:14:06+00:00
+2026 LiveLaw (SC) 848 | STATE OF U.P. Vs JAI BIR SINGH |
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-848-state-of-up-vs-jai-bir-singh--546993
+
+[Read on Telegram](https://t.me/livelawindia/118071)
+
+---
+### 2026-08-23T03:32:18+00:00
+LiveLaw Chhattisgarh High Court Monthly Digest: July 2026
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-monthly-digest-july-2026-544725
+
+[Read on Telegram](https://t.me/livelawindia/118072)
+
+---
+### 2026-08-23T04:32:29+00:00
+When State Defeats Its Own Case: Police Lapses, Procedural Safeguards, And  Crisis Of Criminal Justice
+https://www.livelaw.in/articles/police-lapses-procedural-safeguards-crisis-criminal-justice-546967
+
+[Read on Telegram](https://t.me/livelawindia/118073)
+
+---
+### 2026-08-23T04:37:29+00:00
+'Homemakers' Rights, Protection For Live-Ins, Blackmoney Curbs' : Activist Judgments Of Justice Sanjay Karol
+https://www.livelaw.in/top-stories/activist-judgments-of-justice-sanjay-karol-546971
+
+[Read on Telegram](https://t.me/livelawindia/118074)
+
+---
+### 2026-08-23T04:57:29+00:00
+'Industry' Definition : No Clear Majority Emerges From Supreme Court Judgment, Only 4 Out Of 9 Judges Back New Test
+https://www.livelaw.in/top-stories/industry-definition-no-clear-majority-emerges-from-supreme-court-judgment-only-4-out-of-9-judges-back-new-test-546994
+
+[Read on Telegram](https://t.me/livelawindia/118075)
+
+---
+### 2026-08-23T05:23:39+00:00
+Special Public Prosecutor Vacancy At Fast Track Mahila Court, Krishnagiri
+https://www.livelaw.in/job-updates/special-public-prosecutor-vacancy-at-fast-track-mahila-court-krishnagiri-546996
+
+[Read on Telegram](https://t.me/livelawindia/118076)
+
+---
+### 2026-08-23T05:24:39+00:00
+Consultant Vacancy At Ernst & Young
+https://www.livelaw.in/job-updates/consultant-vacancy-at-ernst-young-546997
+
+[Read on Telegram](https://t.me/livelawindia/118077)
+
+---
+### 2026-08-23T06:48:02+00:00
+Southern States' Votes Could Become 'Of Little Value' After Population Based Delimitation: Justice KM Joseph
+https://www.livelaw.in/top-stories/southern-states-votes-could-become-of-little-value-after-population-based-delimitation-justice-km-joseph-546973
+
+[Read on Telegram](https://t.me/livelawindia/118078)
 
 ---
