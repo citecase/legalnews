@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-22T15:03:00+00:00*
+*Last Updated: 2026-08-23T06:33:12+00:00*
+
+---
+
+### 2026-08-23T06:33:12+00:00
+Constructive Civic Participation: Supreme Court Lauds Litigant For Pursuing Issue Concerning Railway Subway Completion & Relief For Commuters
+https://www.verdictum.in/supreme-court/madurai-farooq-ahmed-v-the-principal-secretary-to-government-ors-2026-insc-903-railway-subway-1620438
+
+[Source Link](https://t.me/verdictumlegalupdates/28684)
+
+---
+
+### 2026-08-23T04:32:31+00:00
+UP Gangsters Act Is "Stillborn" As It Fails To Create An Offence: Supreme Court Quashes Proceedings Against Two Advocates
+https://www.verdictum.in/supreme-court/shiv-pratap-singh-alias-chinu-v-state-of-up-2026-insc-894-up-gangsters-act-is-stillborn-1620415
+
+[Source Link](https://t.me/verdictumlegalupdates/28683)
 
 ---
 
@@ -145,22 +161,6 @@ Importer Cannot Escape Liability For Customs Agent's Fraud Or Claim Bona Fide Pu
 https://www.verdictum.in/delhi-high-court/ms-raja-ram-company-v-principal-commissioner-of-customs-import-2026dhc6920-db-duty-evasion-findings-against-paper-importers-1620346
 
 [Source Link](https://t.me/verdictumlegalupdates/28665)
-
----
-
-### 2026-08-21T14:52:36+00:00
-Supreme Court Seeks Centre's Response On Anomalies In Pecuniary Jurisdiction Of Consumer Commissions Under 2019 Act
-https://www.verdictum.in/supreme-court/centre-response-on-anomalies-in-consumer-fora-pecuniary-jurisdiction-2019-act-1620355
-
-[Source Link](https://t.me/verdictumlegalupdates/28664)
-
----
-
-### 2026-08-21T14:12:55+00:00
-"Matter Of Serious Concern": Supreme Court Seeks Centre's Response On Non-Compliance Of POSCO Act By Social Media Intermediaries
-https://www.verdictum.in/supreme-court/asks-centre-respond-social-media-intermediaries-lapses-cseam-compliance-1620352
-
-[Source Link](https://t.me/verdictumlegalupdates/28663)
 
 ---
 
