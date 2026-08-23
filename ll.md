@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-22T15:06:22+00:00*
+*Last Updated: 2026-08-23T03:32:18+00:00*
 
 ---
 
-### 2026-08-22T15:06:22+00:00
-2026 LiveLaw (SC) 847 |  VYAKTI VIKAS KENDRA INDIA v MANOJ MISRA (DEAD) AND ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-847-vyakti-vikas-kendra-india-v-manoj-misra-dead-and-ors-546977
-
-[Read on Telegram](https://t.me/livelawindia/118069)
-
----
-### 2026-08-22T15:13:02+00:00
-Judges Are Not Gods; Won't Get Every Judgment Right : Justice Sanjay Karol In Farewell Speech
-https://www.livelaw.in/top-stories/judges-are-not-gods-wont-get-every-judgment-right-justice-sanjay-karol-in-farewell-speech-546978
-
-[Read on Telegram](https://t.me/livelawindia/118070)
-
----
-### 2026-08-23T03:14:06+00:00
-2026 LiveLaw (SC) 848 | STATE OF U.P. Vs JAI BIR SINGH |
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-848-state-of-up-vs-jai-bir-singh--546993
-
-[Read on Telegram](https://t.me/livelawindia/118071)
-
----
 ### 2026-08-23T03:32:18+00:00
 LiveLaw Chhattisgarh High Court Monthly Digest: July 2026
 https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-monthly-digest-july-2026-544725
@@ -142,5 +121,26 @@ Execution Court Cannot Travel Beyond Decree To Grant Unintended Reliefs: Supreme
 https://www.livelaw.in/supreme-court/execution-court-cannot-travel-beyond-decree-to-grant-unintended-reliefs-supreme-court-547003
 
 [Read on Telegram](https://t.me/livelawindia/118088)
+
+---
+### 2026-08-23T14:33:18+00:00
+Fast-Track Courts: India's Repeated Promise Of Speedy Justice
+https://www.livelaw.in/articles/fast-track-court-india-repeated-promise-speedy-justice-546969
+
+[Read on Telegram](https://t.me/livelawindia/118089)
+
+---
+### 2026-08-23T15:12:19+00:00
+'MNREGA Did Wonderful Job,' Says Supreme Court Disposing Plea On Wages; Allows Petitioner To Challenge VB-GRAM G Act
+https://www.livelaw.in/top-stories/supreme-court-liberty-to-file-plea-against-viksit-bharat-guarantee-for-rozgar-ajeevika-mission-act-minimum-wages-cji-kant-lauds-mnrega-act-547011
+
+[Read on Telegram](https://t.me/livelawindia/118090)
+
+---
+### 2026-08-23T16:43:00+00:00
+Journalist Abhishek Upadhyay, Who Reported Ram Temple Donation Theft, Moves Supreme Court Against UP Police FIR
+https://www.livelaw.in/top-stories/journalist-abhishek-upadhyay-who-reported-ram-temple-donation-theft-moves-supreme-court-against-up-police-fir-547016
+
+[Read on Telegram](https://t.me/livelawindia/118091)
 
 ---
