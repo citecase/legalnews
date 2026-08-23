@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-23T12:32:55+00:00*
+*Last Updated: 2026-08-23T14:32:16+00:00*
+
+---
+
+### 2026-08-23T14:32:16+00:00
+Assistant Law Officer Vacancy At Technology Development Board (TDB)
+https://www.verdictum.in/job-updates/technology-development-board-1620413
+
+[Source Link](https://t.me/verdictumlegalupdates/28688)
 
 ---
 
@@ -153,14 +161,6 @@ Lodging FIR, Even If False, Is Not Abetment Of Suicide: Supreme Court Quashes Cr
 https://www.verdictum.in/supreme-court/patel-joshnaben-pravinkumar-patel-v-state-of-gujarat-2026-insc-886-husband-blaming-in-laws-in-suicide-note-1620380
 
 [Source Link](https://t.me/verdictumlegalupdates/28669)
-
----
-
-### 2026-08-22T05:12:26+00:00
-Supreme Court Upholds Public Service Commission’s Primacy On Eligibility Determination; Orders Appointment Of State University Registrar
-https://www.verdictum.in/supreme-court/shailendra-kumar-patel-v-state-of-chhattisgarh-2026-insc-902-appointment-of-registrar-in-chhattisgarh-1620379
-
-[Source Link](https://t.me/verdictumlegalupdates/28668)
 
 ---
 
