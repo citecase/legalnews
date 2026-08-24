@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-23T14:32:16+00:00*
+*Last Updated: 2026-08-24T07:21:08+00:00*
+
+---
+
+### 2026-08-24T07:21:08+00:00
+Delhi High Court Issues Summons In Suit Filed By CJP’s Saurav Das Against Abhijit Iyer Mitra & Ors For Alleged Breach Of Privacy
+https://www.verdictum.in/delhi-high-court/summons-suit-filed-cjp-saurav-das-abhijit-iyer-mitra-alleged-breach-privacy-1620503
+
+[Source Link](https://t.me/verdictumlegalupdates/28695)
+
+---
+
+### 2026-08-24T07:03:06+00:00
+Supreme Court To Hear Plea Challenging FIR Against Journalist Abhishek Upadhyay Who Reported Ram Temple Donation Irregularities
+https://www.verdictum.in/supreme-court/fir-against-journalist-abhishek-upadhyay-who-reported-ram-temple-donation-irregularities-1620499
+
+[Source Link](https://t.me/verdictumlegalupdates/28694)
+
+---
+
+### 2026-08-24T06:32:46+00:00
+Shortfall In Earnest Money Deposit Does Not Invalidate SARFAESI Auction Once 25% Sale Price Is Paid & No Prejudice Is Caused: Supreme Court
+https://www.verdictum.in/supreme-court/lakshmi-mohan-dead-through-lrs-anr-v-ms-airtech-projects-engineers-pvt-ltd-anr-2026-insc-909-1620497
+
+[Source Link](https://t.me/verdictumlegalupdates/28693)
+
+---
+
+### 2026-08-24T06:02:25+00:00
+Filed FIR Late Despite Being Practicing Advocate: Supreme Court Quashes Criminal Intimidation Case
+https://www.verdictum.in/supreme-court/kanad-saha-v-the-state-of-west-bengal-and-ors-2026-insc-877-complainant-fir-criminal-intimidation-case-1620495
+
+[Source Link](https://t.me/verdictumlegalupdates/28692)
+
+---
+
+### 2026-08-24T05:31:04+00:00
+Breaking: Supreme Court Bans Construction Within 100m Of River Edge & Polluting Units Within 500m Buffer Zone Of Jojari River
+https://www.verdictum.in/supreme-court/bans-construction-100m-river-edge-polluting-units-500m-buffer-zone-jojari-river-1620491
+
+[Source Link](https://t.me/verdictumlegalupdates/28691)
+
+---
+
+### 2026-08-24T05:02:43+00:00
+No Unfettered Power To Devaswom Board To Assume Management Of Temples: Kerala High Court Quashes Communications
+https://www.verdictum.in/kerala-high-court/p-rangadasa-prabhu-v-the-cochin-devaswom-board-2026ker61483-no-unfettered-power-devaswom-board-management-temples-1620487
+
+[Source Link](https://t.me/verdictumlegalupdates/28690)
+
+---
+
+### 2026-08-24T04:32:33+00:00
+ICC's Threshold Rejection Of Sexual Harassment Complaint Can Be Treated As Recommendation For Appeal U/S 18 POSH Act: Bombay High Court
+https://www.verdictum.in/bombay-high-court/anup-vikal-v-state-of-maharashtra-wp-7430-of-2026-iccs-threshold-rejection-of-sexual-harassment-posh-act-1620456
+
+[Source Link](https://t.me/verdictumlegalupdates/28689)
 
 ---
 
@@ -105,62 +161,6 @@ Litigants Should Not Be Allowed To Pollute Judicial System: Kerala High Court Cr
 https://www.verdictum.in/kerala-high-court/safwan-muhamed-sherif-v-federal-bank-2026ker63639-advocate-utter-falsehood-in-affidavit-1620405
 
 [Source Link](https://t.me/verdictumlegalupdates/28676)
-
----
-
-### 2026-08-22T10:13:02+00:00
-Allegations Against Trust Civil In Nature: Calcutta High Court Sets Aside Order Directing State To Preserve Relics In Ramakrishna Vedanta Math
-https://www.verdictum.in/calcutta-high-court/swami-atmabodhananda-v-state-of-west-bengal-2026chc-jp405-db-ramakrishna-vedanta-math-1620404
-
-[Source Link](https://t.me/verdictumlegalupdates/28675)
-
----
-
-### 2026-08-22T09:32:21+00:00
-Madras High Court Seeks Report From State On Non-Appointment Of Vice-Chancellors In 14 Universities
-https://www.verdictum.in/madras-high-court/avelanganni-joseph-v-the-principal-secretary-to-government-absence-vice-chancellors-14-tamil-nadu-universities-1620401
-
-[Source Link](https://t.me/verdictumlegalupdates/28674)
-
----
-
-### 2026-08-22T08:52:40+00:00
-"Triple Test" For "Industry" Laid Down In 1978 Bangalore Water Supply Case Will Govern All Pending Disputes Under Repealed Industrial Disputes Act: Supreme Court's 9-Judges Bench Clarifies
-https://www.verdictum.in/supreme-court/state-of-uttar-pradesh-v-jai-bir-singh-2026-insc-897-1978-triple-test-for-industry-9-judge-bench-1620398
-
-[Source Link](https://t.me/verdictumlegalupdates/28673)
-
----
-
-### 2026-08-22T08:12:39+00:00
-Only Plaint Averments And Documents Annexed To Plaint Relevant While Deciding Order VII Rule 11 CPC Plea: Supreme Court
-https://www.verdictum.in/supreme-court/n-asha-devi-v-r-aravind-kumar-anr-2026-insc-908-order-vii-rule-11-cpc-1620393
-
-[Source Link](https://t.me/verdictumlegalupdates/28672)
-
----
-
-### 2026-08-22T07:33:19+00:00
-Can’t Challenge Regularisation Terms After Accepting Benefits: Supreme Court Rejects Retired NIRD Professor’s Plea For GPF Pension Coverage
-https://www.verdictum.in/supreme-court/k-suman-chandra-v-union-of-india-and-others-2026-insc-893-retirement-nird-1620386
-
-[Source Link](https://t.me/verdictumlegalupdates/28671)
-
----
-
-### 2026-08-22T06:45:38+00:00
-Parity Not Mechanical Mathematical Formula; Grant Of Bail To One Accused No Ground For Granting Bail To Another: Supreme Court
-https://www.verdictum.in/supreme-court/rajendra-prasad-v-state-of-goa-anr-2026-insc-891-parity-bail-accused-1620385
-
-[Source Link](https://t.me/verdictumlegalupdates/28670)
-
----
-
-### 2026-08-22T05:52:47+00:00
-Lodging FIR, Even If False, Is Not Abetment Of Suicide: Supreme Court Quashes Criminal Case Against In-Laws Of Man Who Committed Suicide
-https://www.verdictum.in/supreme-court/patel-joshnaben-pravinkumar-patel-v-state-of-gujarat-2026-insc-886-husband-blaming-in-laws-in-suicide-note-1620380
-
-[Source Link](https://t.me/verdictumlegalupdates/28669)
 
 ---
 
