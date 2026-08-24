@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-24T10:48:01+00:00*
+*Last Updated: 2026-08-24T14:18:14+00:00*
 
 ---
 
-### 2026-08-24T10:48:01+00:00
-LiveLaw Madhya Pradesh High Court Weekly Round-Up: August 17 - August 23, 2026
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-weekly-digest-august-17-to-august-23-2026-547102
+### 2026-08-24T14:18:14+00:00
+Can VC Reduce Punishment For Exam Impersonation Despite Rules Mandating Permanent Expulsion? Patna High Court Refers To Division Bench
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-conflict-vc-discretion-reduce-permanent-expulsion-exam-impersonation-547059
 
-[Read on Telegram](https://t.me/livelawindia/118169)
-
----
-### 2026-08-24T10:53:21+00:00
-Cauvery Water Dispute: Tamil Nadu To Approach CWMA Over Alleged Shortfall; Supreme Court To Hear Plea On 31st August
-https://www.livelaw.in/top-stories/cauvery-water-dispute-tamil-nadu-to-approach-cwma-over-alleged-shortfall-supreme-court-to-hear-plea-on-31st-august-547161
-
-[Read on Telegram](https://t.me/livelawindia/118170)
+[Read on Telegram](https://t.me/livelawindia/118200)
 
 ---
-### 2026-08-24T11:02:31+00:00
-Presumption Of Innocence Not Lost Under POCSO Act: Patna High Court Acquits Man Sentenced To 20 Years
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-pocso-presumptions-substitute-foundational-facts-presumption-of-innocence-547056
+### 2026-08-24T14:20:24+00:00
+Monetary Claim Waived In Divorce Settlement Cannot Be Revived In DV Act Proceedings: Supreme Court
+https://www.livelaw.in/top-stories/monetary-claim-waived-in-divorce-settlement-cannot-be-revived-in-dv-act-proceedings-supreme-court-547203
 
-[Read on Telegram](https://t.me/livelawindia/118171)
-
----
-### 2026-08-24T11:10:32+00:00
-'Disheartening': Allahabad High Court Laments Lapses In POCSO Case As 8 Y/O Victim Shuttled Between Hospitals, Evidence Mishandled
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-pocso-minor-victim-swab-kit-dna-lapses-547164
-
-[Read on Telegram](https://t.me/livelawindia/118172)
+[Read on Telegram](https://t.me/livelawindia/118201)
 
 ---
-### 2026-08-24T11:12:52+00:00
-S.362 CrPC Applies To S.138 NI Act Proceedings; Magistrate Can Recall Non-Final Orders To Ensure Fair Trial: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/crpc-sections-311-362-apply-to-section-138-ni-act-complaints-magistrate-can-recall-closure-order-to-secure-justice-jk-high-court-547043
+### 2026-08-24T14:21:24+00:00
+2026 LiveLaw (SC) 854 | Reji Baby v Subi Mary
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-854-reji-baby-v-subi-mary-547204
 
-[Read on Telegram](https://t.me/livelawindia/118173)
-
----
-### 2026-08-24T11:17:52+00:00
-TMC Secretary Abhishek Banerjee Moves Supreme Court Against 20 Rebel MPs, Seeks Expeditious Decison On Disqualification
-https://www.livelaw.in/top-stories/tmc-secretary-abhishek-banerjee-moves-supreme-court-against-20-rebel-mps-seeks-expeditious-decison-on-disqualification-547166
-
-[Read on Telegram](https://t.me/livelawindia/118174)
+[Read on Telegram](https://t.me/livelawindia/118202)
 
 ---
-### 2026-08-24T11:19:32+00:00
-Transgender Devotee Moves Kerala High Court After Being Stopped From Proceeding To Sabarimala
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sabarimala-temple-transgender-persons-547168
+### 2026-08-24T14:23:25+00:00
+FIR Against Farmers Protesting Bidadi Land Acquisition 'Shrouded With Suspicion': Karnataka High Court Stays Probe
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-grants-interim-stay-fir-against-bidadi-farmersalleged-broom-protest-547205
 
-[Read on Telegram](https://t.me/livelawindia/118175)
-
----
-### 2026-08-24T11:22:52+00:00
-Kerala High Court Seeks State's Response On Suggestion To Rename 'Mental Health Centres'
-https://www.livelaw.in/high-court/kerala-high-court/kerala-rename-mental-health-centres-consider-547146
-
-[Read on Telegram](https://t.me/livelawindia/118176)
+[Read on Telegram](https://t.me/livelawindia/118203)
 
 ---
-### 2026-08-24T11:33:12+00:00
-Gauhati High Court Acquits Man In POCSO Case, Says Prosecution Failed To Prove He Knew Victim Was Minor
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-prosecution-not-prove-appellant-knew-victim-minor-intended-sexual-intercourse-with-minor-547133
+### 2026-08-24T14:32:35+00:00
+Settlement And Dispute Resolution In Real Estate: Role Of RERA
+https://www.livelaw.in/articles/settlement-dispute-resolution-real-estate-exclusive-role-rera-conciliation-forums-appellate-tribunals-547010
 
-[Read on Telegram](https://t.me/livelawindia/118177)
-
----
-### 2026-08-24T11:35:12+00:00
-Wife Need Not Seek Permission To Visit Her Parents, Can't Be Forced To Look After In-Laws: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-husband-insist-asking-permission-visit-her-parents-547172
-
-[Read on Telegram](https://t.me/livelawindia/118178)
+[Read on Telegram](https://t.me/livelawindia/118204)
 
 ---
-### 2026-08-24T11:42:32+00:00
-Former CM MK Stalin Moves Madras High Court Seeking Vote Recount In Kolathur; Alleges EVM Failures, VVPAT Verification Lapses
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-mk-stalin-recount-votes-vvpat-evm-malfunctioning-547173
+### 2026-08-24T14:33:15+00:00
+Acclimatization In High-Altitude Area Like Leh Is Part Of Soldier's Duty, Injury During It Attributable To Service: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/disability-pension-to-soldier-injured-during-acclimatization-in-leh-upheld-547191
 
-[Read on Telegram](https://t.me/livelawindia/118179)
-
----
-### 2026-08-24T11:47:42+00:00
-LiveLaw Punjab & Haryana High Court Weekly Round-Up: August 17 - August 23, 2026
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-weekly-round-up-august-17-23-2026-547148
-
-[Read on Telegram](https://t.me/livelawindia/118180)
+[Read on Telegram](https://t.me/livelawindia/118205)
 
 ---
-### 2026-08-24T11:50:22+00:00
-When Old Statutes Meet New Codes: The Conundrum With India's Labour Codes And State Specific Legislations
-https://www.livelaw.in/law-firms/law-firm-articles-/when-old-statutes-meet-new-codes-conundrum-with-indias-labour-codes-state-specific-legislations-547177
+### 2026-08-24T14:47:15+00:00
+Chhattisgarh High Court Quashes FIR Against Two Booked For Sharing Online Cartoon On Governor After Unconditional Apology
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-governor-social-media-cartoon-post-sharing-apology-547193
 
-[Read on Telegram](https://t.me/livelawindia/118181)
-
----
-### 2026-08-24T12:01:02+00:00
-Introductory Course To Political Consulting Internship 2026 At Policy, Politics And Governance Foundation (PPGF)
-https://www.livelaw.in/job-updates/introductory-course-to-political-consulting-internship-2026-at-policy-politics-and-governance-foundation-ppgf-547182
-
-[Read on Telegram](https://t.me/livelawindia/118182)
+[Read on Telegram](https://t.me/livelawindia/118206)
 
 ---
-### 2026-08-24T12:02:22+00:00
-MMDR Act Offence Cannot Be Taken Cognizance Of On Basis Of Police Final Report, Reiterates Madras High Court
-https://www.livelaw.in/law-firms/litigation/mmdr-act-offence-cannot-taken-cognizance-police-final-report-reiterates-madras-high-court-547184
+### 2026-08-24T14:52:15+00:00
+Supreme Court's Three-Day Special Lok Adalat Resolves 1,712 Cases Under Samadhan Samaroh 2026
+https://www.livelaw.in/top-stories/supreme-courts-three-day-special-lok-adalat-resolves-1712-cases-under-samadhan-samaroh-2026-547206
 
-[Read on Telegram](https://t.me/livelawindia/118183)
-
----
-### 2026-08-24T12:03:02+00:00
-Minor Students Are In Formative Stage; Schools Should Prefer Reformative Measures Over Expulsion: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-sets-aside-expulsion-of-student-547053
-
-[Read on Telegram](https://t.me/livelawindia/118184)
+[Read on Telegram](https://t.me/livelawindia/118207)
 
 ---
-### 2026-08-24T12:18:02+00:00
-Unauthorised Vehicle Modifications: Kerala High Court Pulls Up Enforcement Wing, Directs Strict Compliance With ₹5,000 Per Alteration Fine
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-enforcement-wing-unauthorised-vehicle-modifications-road-safety-compliance-547160
+### 2026-08-24T15:07:56+00:00
+Non-Disclosure Of Marital Status Without Deception Or Dishonest Inducement Not Cheating U/S 420 IPC: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/non-disclosure-matrimonial-status-without-deception-dishonest-inducement-not-cheating-547060
 
-[Read on Telegram](https://t.me/livelawindia/118185)
-
----
-### 2026-08-24T12:32:22+00:00
-Who Really Owns Your Company's Domain Name? Limits Of UDRP
-https://www.livelaw.in/lawschool/articles/company-domain-name-limits-udrp-547009
-
-[Read on Telegram](https://t.me/livelawindia/118186)
+[Read on Telegram](https://t.me/livelawindia/118208)
 
 ---
-### 2026-08-24T12:32:42+00:00
-Court-Framed Scheme To Manage Temple Trust U/S 92 CPC Prima Facie Valid Unless Altered By Karnataka Endowments Act: High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-stays-single-judge-order-quashing-shree-malatesh-temple-committee-notification-547157
+### 2026-08-24T15:17:36+00:00
+Gujarat High Court Grants Bail To Man Accused Of Suicide Abetment, Notes He Was 'Only Taking Side Of His Sister' And Not Threatening Deceased
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-bail-suicide-abetment-fir-547194
 
-[Read on Telegram](https://t.me/livelawindia/118187)
+[Read on Telegram](https://t.me/livelawindia/118209)
 
 ---
-### 2026-08-24T12:48:13+00:00
-'Child Not A Commodity': Karnataka High Court Fines Father ₹5 Lakh For Taking Daughter From Court Premises In Violation Of Custody Orders
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-fines-father-abducting-daughter-court-premises-547165
+### 2026-08-24T15:25:06+00:00
+Supreme Court Directs Union To Consider Representation Alleging Breach Of EPFO/UAN & PAN-Linked Data
+https://www.livelaw.in/top-stories/supreme-court-pil-against-unauthorized-access-to-protected-financial-personal-data-income-tax-employment-history-private-verification-entities-disposed-of-547210
 
-[Read on Telegram](https://t.me/livelawindia/118188)
+[Read on Telegram](https://t.me/livelawindia/118210)
+
+---
+### 2026-08-24T15:33:06+00:00
+AI-Generated Case Laws In Tax Order: Gujarat High Court Directs Strict Verification And Human Oversight, Warns Of Contempt
+https://www.livelaw.in/high-court/gujarat-high-court/gst-order-tax-officer-relied-on-ai-generated-judgments-quashed-contempt-547197
+
+[Read on Telegram](https://t.me/livelawindia/118211)
+
+---
+### 2026-08-24T15:41:46+00:00
+Gen Z Protests Assure Democracy In India Won't Die; 'Dimaghi Naxal' Label Won't Stop Them : S Muralidhar
+https://www.livelaw.in/top-stories/gen-z-protests-assure-democracy-in-india-wont-die-dimaghi-naxal-label-wont-stop-them-s-muralidhar-547212
+
+[Read on Telegram](https://t.me/livelawindia/118212)
+
+---
+### 2026-08-24T15:47:26+00:00
+Husband Can't Be Denied Right To Travel Abroad Merely Due To Pending Domestic Violence Case: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/domestic-violence-case-husband-not-denied-travel-abroad-547200
+
+[Read on Telegram](https://t.me/livelawindia/118213)
+
+---
+### 2026-08-24T16:07:26+00:00
+Dismissal For Allegedly Assaulting Colleague While Intoxicated “Extremely Disproportionate” Without Injury: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-dismissal-assaulting-colleague-intoxicated-547061
+
+[Read on Telegram](https://t.me/livelawindia/118214)
+
+---
+### 2026-08-24T16:17:56+00:00
+Rajasthan High Court Initiates Suo Motu PIL For Gen Z, Gen Alpha & Gen Beta Welfare;  Seeks Plan To Address Paper Leaks, AI Disruption
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-directs-registration-of-pil-over-welfare-of-gen-z-gen-alpha-and-gen-beta-547222
+
+[Read on Telegram](https://t.me/livelawindia/118215)
+
+---
+### 2026-08-24T16:19:36+00:00
+'Hijab Not Essential Part Of Islamic Faith': Allahabad High Court Dismisses Muslim Girl's Plea To Wear It With School Uniform
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-hijab-not-essential-islam-dismisses-muslim-girls-plea-to-wear-it-with-school-uniform-547223
+
+[Read on Telegram](https://t.me/livelawindia/118216)
+
+---
+### 2026-08-24T16:23:36+00:00
+LiveLaw High Courts Daily Highlights: August 24, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-august-24-2026-547225
+
+[Read on Telegram](https://t.me/livelawindia/118217)
+
+---
+### 2026-08-24T16:46:17+00:00
+Allahabad High Court Flags Police Non-Compliance With S. 105 BNSS Videography Mandate For Search & Seizure
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-police-non-compliance-section-105-bnss-videography-search-seizure-547230
+
+[Read on Telegram](https://t.me/livelawindia/118218)
+
+---
+### 2026-08-24T17:23:07+00:00
+Supreme Court Daily Round-Up : August 24, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-august-24-2026-547217
+
+[Read on Telegram](https://t.me/livelawindia/118219)
 
 ---
