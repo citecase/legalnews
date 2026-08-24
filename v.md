@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-24T13:02:58+00:00*
+*Last Updated: 2026-08-24T16:03:04+00:00*
+
+---
+
+### 2026-08-24T16:03:04+00:00
+National Institute of Technology Warangal Invites Applications For Post Of Visiting Consultant (Legal Advisor)
+https://www.verdictum.in/job-updates/national-institute-of-technology-1620533
+
+[Source Link](https://t.me/verdictumlegalupdates/28712)
+
+---
+
+### 2026-08-24T15:32:43+00:00
+Multiple FIRs Alone Cannot Justify Preventive Detention Without Finding Of Impact On Public Order: J&K And Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/mohd-asgar-tola-v-ut-of-jammu-kashmir-ors-2026jklhc-jmu2676-1620532
+
+[Source Link](https://t.me/verdictumlegalupdates/28711)
+
+---
+
+### 2026-08-24T15:03:02+00:00
+Supreme Court Restores Congress Candidate's Election Petition Challenging Assam BJP MP Kripanath Mallah's Election to Lok Sabha
+https://www.verdictum.in/supreme-court/hafiz-rashid-ahmed-choudhury-v-kripanath-mallah-ors-2026-insc-915-1620527
+
+[Source Link](https://t.me/verdictumlegalupdates/28710)
+
+---
+
+### 2026-08-24T14:33:01+00:00
+Convict Remained Untraced For 40 Years & Took Government Job: Telangana High Court Directs Constitution Of Task Force To Track Parole Prisoners
+https://www.verdictum.in/telangana-high-court/sandela-charamma-v-state-of-telangana-and-others-prole-convict-task-force-1620530
+
+[Source Link](https://t.me/verdictumlegalupdates/28709)
+
+---
+
+### 2026-08-24T14:03:00+00:00
+Supreme Court Seeks Centre & States’ Response On Plea To Enforce Community Forest Rights Near PEKB Coal Block In Chhattisgarh
+https://www.verdictum.in/supreme-court/plea-to-enforce-community-forest-rights-near-pekb-coal-block-in-chhattisgarh-1620526
+
+[Source Link](https://t.me/verdictumlegalupdates/28708)
+
+---
+
+### 2026-08-24T13:33:19+00:00
+Calcutta High Court Disposes Of Abhishek Banerjee's Plea After Bank Account Is Reactivated Following KYC Update
+https://www.verdictum.in/calcutta-high-court/abhishek-banerjees-plea-after-bank-account-is-reactivated-following-kyc-update-disposed-1620528
+
+[Source Link](https://t.me/verdictumlegalupdates/28707)
 
 ---
 
@@ -113,54 +161,6 @@ Shortfall In Earnest Money Deposit Does Not Invalidate SARFAESI Auction Once 25%
 https://www.verdictum.in/supreme-court/lakshmi-mohan-dead-through-lrs-anr-v-ms-airtech-projects-engineers-pvt-ltd-anr-2026-insc-909-1620497
 
 [Source Link](https://t.me/verdictumlegalupdates/28693)
-
----
-
-### 2026-08-24T06:02:25+00:00
-Filed FIR Late Despite Being Practicing Advocate: Supreme Court Quashes Criminal Intimidation Case
-https://www.verdictum.in/supreme-court/kanad-saha-v-the-state-of-west-bengal-and-ors-2026-insc-877-complainant-fir-criminal-intimidation-case-1620495
-
-[Source Link](https://t.me/verdictumlegalupdates/28692)
-
----
-
-### 2026-08-24T05:31:04+00:00
-Breaking: Supreme Court Bans Construction Within 100m Of River Edge & Polluting Units Within 500m Buffer Zone Of Jojari River
-https://www.verdictum.in/supreme-court/bans-construction-100m-river-edge-polluting-units-500m-buffer-zone-jojari-river-1620491
-
-[Source Link](https://t.me/verdictumlegalupdates/28691)
-
----
-
-### 2026-08-24T05:02:43+00:00
-No Unfettered Power To Devaswom Board To Assume Management Of Temples: Kerala High Court Quashes Communications
-https://www.verdictum.in/kerala-high-court/p-rangadasa-prabhu-v-the-cochin-devaswom-board-2026ker61483-no-unfettered-power-devaswom-board-management-temples-1620487
-
-[Source Link](https://t.me/verdictumlegalupdates/28690)
-
----
-
-### 2026-08-24T04:32:33+00:00
-ICC's Threshold Rejection Of Sexual Harassment Complaint Can Be Treated As Recommendation For Appeal U/S 18 POSH Act: Bombay High Court
-https://www.verdictum.in/bombay-high-court/anup-vikal-v-state-of-maharashtra-wp-7430-of-2026-iccs-threshold-rejection-of-sexual-harassment-posh-act-1620456
-
-[Source Link](https://t.me/verdictumlegalupdates/28689)
-
----
-
-### 2026-08-23T14:32:16+00:00
-Assistant Law Officer Vacancy At Technology Development Board (TDB)
-https://www.verdictum.in/job-updates/technology-development-board-1620413
-
-[Source Link](https://t.me/verdictumlegalupdates/28688)
-
----
-
-### 2026-08-23T12:32:55+00:00
-Writ Jurisdiction Cannot Be Used to Dictate Property Tax Assessment Methodology: Delhi High Court Dismisses Khan Market Welfare Association's Petition
-https://www.verdictum.in/delhi-high-court/khan-market-welfare-association-regd-v-union-of-india-2026dhc6971-db-property-tax-assessment-methodology-1620454
-
-[Source Link](https://t.me/verdictumlegalupdates/28687)
 
 ---
 
