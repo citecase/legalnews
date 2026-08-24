@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-23T03:32:18+00:00*
+*Last Updated: 2026-08-24T05:14:06+00:00*
 
 ---
 
-### 2026-08-23T03:32:18+00:00
-LiveLaw Chhattisgarh High Court Monthly Digest: July 2026
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-high-court-monthly-digest-july-2026-544725
+### 2026-08-24T05:14:06+00:00
+2026 LiveLaw (SC) 852 | M/s G.R. Infra Projects Limited Ratlam v. State of Madhya Pradesh & Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-852-ms-gr-infra-projects-limited-ratlam-v-state-of-madhya-pradesh-ors-547064
 
-[Read on Telegram](https://t.me/livelawindia/118072)
-
----
-### 2026-08-23T04:32:29+00:00
-When State Defeats Its Own Case: Police Lapses, Procedural Safeguards, And  Crisis Of Criminal Justice
-https://www.livelaw.in/articles/police-lapses-procedural-safeguards-crisis-criminal-justice-546967
-
-[Read on Telegram](https://t.me/livelawindia/118073)
+[Read on Telegram](https://t.me/livelawindia/118111)
 
 ---
-### 2026-08-23T04:37:29+00:00
-'Homemakers' Rights, Protection For Live-Ins, Blackmoney Curbs' : Activist Judgments Of Justice Sanjay Karol
-https://www.livelaw.in/top-stories/activist-judgments-of-justice-sanjay-karol-546971
+### 2026-08-24T05:14:26+00:00
+'Qatar Doesn't Boast Higher Education Quality Than India': J&K&L High Court Sets Aside Family Court Order Granting Custody To Father
+https://www.livelaw.in/high-court/jammu-kashmir/qatar-may-be-a-wealthy-country-but-cannot-boast-higher-education-standard-than-india-jk-hc-rejects-assumption-that-foreign-schooling-ensures-better-educational-environment-for-children-547065
 
-[Read on Telegram](https://t.me/livelawindia/118074)
-
----
-### 2026-08-23T04:57:29+00:00
-'Industry' Definition : No Clear Majority Emerges From Supreme Court Judgment, Only 4 Out Of 9 Judges Back New Test
-https://www.livelaw.in/top-stories/industry-definition-no-clear-majority-emerges-from-supreme-court-judgment-only-4-out-of-9-judges-back-new-test-546994
-
-[Read on Telegram](https://t.me/livelawindia/118075)
+[Read on Telegram](https://t.me/livelawindia/118112)
 
 ---
-### 2026-08-23T05:23:39+00:00
-Special Public Prosecutor Vacancy At Fast Track Mahila Court, Krishnagiri
-https://www.livelaw.in/job-updates/special-public-prosecutor-vacancy-at-fast-track-mahila-court-krishnagiri-546996
+### 2026-08-24T05:17:26+00:00
+J&K&L High Court Directs Action Against Special Tribunal Member For Allowing Compounding Of Major Building Violations
+https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-directs-legal-action-against-tribunal-member-over-65-orders-allowing-compounding-of-major-building-violations-for-extraneous-considerations-547041
 
-[Read on Telegram](https://t.me/livelawindia/118076)
-
----
-### 2026-08-23T05:24:39+00:00
-Consultant Vacancy At Ernst & Young
-https://www.livelaw.in/job-updates/consultant-vacancy-at-ernst-young-546997
-
-[Read on Telegram](https://t.me/livelawindia/118077)
+[Read on Telegram](https://t.me/livelawindia/118113)
 
 ---
-### 2026-08-23T06:48:02+00:00
-Southern States' Votes Could Become 'Of Little Value' After Population Based Delimitation: Justice KM Joseph
-https://www.livelaw.in/top-stories/southern-states-votes-could-become-of-little-value-after-population-based-delimitation-justice-km-joseph-546973
+### 2026-08-24T05:17:46+00:00
+SP Competent To Initiate Departmental Inquiry, Punish SIs, ASIs Under MP Police Regulations: High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/police-regulations-empower-sp-impose-punishment-on-sub-inspectors-asi-547037
 
-[Read on Telegram](https://t.me/livelawindia/118078)
-
----
-### 2026-08-23T07:31:42+00:00
-Rajasthan High Court Issues Guidelines To Combat Blanket Freezing Of Bank Accounts In Cyber Crime Cases
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-account-freeze-cyber-crime-546999
-
-[Read on Telegram](https://t.me/livelawindia/118079)
+[Read on Telegram](https://t.me/livelawindia/118114)
 
 ---
-### 2026-08-23T07:33:42+00:00
-Can 'Culture' Justify Religious Rituals At State Functions? Constitutional Examination Of Bhumi Pujan Ceremonies
-https://www.livelaw.in/articles/can-culture-justify-religious-rituals-at-state-functions-constitutional-examination-of-bhumi-pujan-ceremonies-547000
+### 2026-08-24T05:30:26+00:00
+Supreme Court Agrees To Hear Journalist Abhishek Upadhyay's Plea Against UP Police FIR Tomorrow
+https://www.livelaw.in/top-stories/supreme-court-agrees-to-hear-journalist-abhishek-upadhyays-plea-against-up-police-fir-tomorrow-547071
 
-[Read on Telegram](https://t.me/livelawindia/118080)
-
----
-### 2026-08-23T07:38:03+00:00
-2026 LiveLaw (SC) 849 | N Asha Devi Versus R Aravind Kumar & Anr.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-849-n-asha-devi-versus-r-aravind-kumar-anr-547002
-
-[Read on Telegram](https://t.me/livelawindia/118081)
+[Read on Telegram](https://t.me/livelawindia/118115)
 
 ---
-### 2026-08-23T07:38:13+00:00
-'Manan Kumar Mishra's Continuation As BCI Chairman Irregular' CJAR Demands His Resignation, Seeks Audit Of Bar Council Finances
-https://www.livelaw.in/top-stories/manan-kumar-mishras-continuation-as-bci-chairman-irregular-cjar-demands-his-resignation-seeks-audit-of-bar-council-finances-546995
+### 2026-08-24T05:33:16+00:00
+Allahabad High Court Orders Judicial Inquiry Into Man's Death In STF Custody After Post-Mortem Finds Antemortem Injuries
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-judicial-inquiry-stf-custody-death-antemortem-injuries-547072
 
-[Read on Telegram](https://t.me/livelawindia/118082)
-
----
-### 2026-08-23T07:42:33+00:00
-2026 LiveLaw (SC) 850 | STATE OF HIMACHAL PRADESH & ANR. ETC. VERSUS JAMEET SINGH & ANR. ETC
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-850-state-of-himachal-pradesh-anr-etc-versus-jameet-singh-anr-etc-547004
-
-[Read on Telegram](https://t.me/livelawindia/118083)
+[Read on Telegram](https://t.me/livelawindia/118116)
 
 ---
-### 2026-08-23T09:32:34+00:00
-Adoption And Equality: Landmark Shift In Motherhood Rights
-https://www.livelaw.in/articles/adoption-equality-landmark-shift-motherhood-rights-546968
+### 2026-08-24T05:33:26+00:00
+Medical Evidence Showing Pregnancy Pre-Dated Alleged Rape Makes Victim's Testimony Untrustworthy: Gauhati High Court Acquits POCSO Convict
+https://www.livelaw.in/high-court/gauhati-high-court/pregnancy-predated-alleged-rape-makes-victim-testimony-untrustworthy-547030
 
-[Read on Telegram](https://t.me/livelawindia/118084)
-
----
-### 2026-08-23T10:18:04+00:00
-Order 7 Rule 11 CPC | Plaint Can Be Rejected At Threshold When Limitation Bar Is Obvious From Pleadings : Supreme Court
-https://www.livelaw.in/supreme-court/order-7-rule-11-cpc-plaint-can-be-rejected-at-threshold-when-limitation-bar-is-obvious-from-pleadings-supreme-court-547001
-
-[Read on Telegram](https://t.me/livelawindia/118085)
+[Read on Telegram](https://t.me/livelawindia/118117)
 
 ---
-### 2026-08-23T10:28:07+00:00
-SARFAESI | Earnest Money Deposit Shortfall Doesn't Vitiate Sale If 25% Sale Price Paid On Auction Day : Supreme Court
-https://www.livelaw.in/supreme-court/sarfaesi-earnest-money-deposit-shortfall-doesnt-vitiate-sale-if-25-sale-price-paid-on-auction-day-supreme-court-547005
+### 2026-08-24T05:47:37+00:00
+Stamp Duty Deficiency Must Be Dealt With Forthwith; Trial Court Can't Keep Issue Pending For Years: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/trial-courts-stamp-duty-objections-pending-orderxiv-rule2-cpc-547038
 
-[Read on Telegram](https://t.me/livelawindia/118086)
-
----
-### 2026-08-23T10:29:07+00:00
-2026 LiveLaw (SC) 851 |  Lakshmi Mohan (Dead) Through LRs. & Anr. Versus M/s. Airtech Projects Engineers Pvt. Ltd. & Anr. (with connected cases)
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-851-lakshmi-mohan-dead-through-lrs-anr-versus-ms-airtech-projects-engineers-pvt-ltd-anr-with-connected-cases-547006
-
-[Read on Telegram](https://t.me/livelawindia/118087)
+[Read on Telegram](https://t.me/livelawindia/118118)
 
 ---
-### 2026-08-23T12:07:27+00:00
-Execution Court Cannot Travel Beyond Decree To Grant Unintended Reliefs: Supreme Court
-https://www.livelaw.in/supreme-court/execution-court-cannot-travel-beyond-decree-to-grant-unintended-reliefs-supreme-court-547003
+### 2026-08-24T05:58:58+00:00
+Lok Sabha MP Mahua Moitra Moves Supreme Court Over Circuit House Eviction Bid
+https://www.livelaw.in/top-stories/lok-sabha-mp-mahua-moitra-moves-supreme-court-over-circuit-house-eviction-bid-547081
 
-[Read on Telegram](https://t.me/livelawindia/118088)
-
----
-### 2026-08-23T14:33:18+00:00
-Fast-Track Courts: India's Repeated Promise Of Speedy Justice
-https://www.livelaw.in/articles/fast-track-court-india-repeated-promise-speedy-justice-546969
-
-[Read on Telegram](https://t.me/livelawindia/118089)
+[Read on Telegram](https://t.me/livelawindia/118119)
 
 ---
-### 2026-08-23T15:12:19+00:00
-'MNREGA Did Wonderful Job,' Says Supreme Court Disposing Plea On Wages; Allows Petitioner To Challenge VB-GRAM G Act
-https://www.livelaw.in/top-stories/supreme-court-liberty-to-file-plea-against-viksit-bharat-guarantee-for-rozgar-ajeevika-mission-act-minimum-wages-cji-kant-lauds-mnrega-act-547011
+### 2026-08-24T06:02:57+00:00
+Wife's Enrolment As Advocate Does Not Prove Sufficiency Of Income To Deny Her Maintenance Claim: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-bar-enrolment-prove-wife-sufficient-income-deny-maintenance-547040
 
-[Read on Telegram](https://t.me/livelawindia/118090)
+[Read on Telegram](https://t.me/livelawindia/118120)
 
 ---
-### 2026-08-23T16:43:00+00:00
-Journalist Abhishek Upadhyay, Who Reported Ram Temple Donation Theft, Moves Supreme Court Against UP Police FIR
-https://www.livelaw.in/top-stories/journalist-abhishek-upadhyay-who-reported-ram-temple-donation-theft-moves-supreme-court-against-up-police-fir-547016
+### 2026-08-24T06:09:48+00:00
+Supreme Court To Hear Plea Against Demolition Of Lucknow Lawyers' Chambers
+https://www.livelaw.in/top-stories/supreme-court-to-hear-plea-against-demolition-of-lucknow-lawyers-chambers-547082
 
-[Read on Telegram](https://t.me/livelawindia/118091)
+[Read on Telegram](https://t.me/livelawindia/118121)
+
+---
+### 2026-08-24T06:12:08+00:00
+Supreme Court Bans Construction Within 100 Metres Of Jojari River, Bars Polluting Activities Within 500 Metres
+https://www.livelaw.in/top-stories/supreme-court-bans-construction-within-100-metres-of-jojari-river-bars-polluting-activities-within-500-metres-547085
+
+[Read on Telegram](https://t.me/livelawindia/118122)
+
+---
+### 2026-08-24T06:13:08+00:00
+J&K&L High Court Seeks Explanation From Admin Over Delay In Wetland Management Plans, Questions Why Other Ramsar Sites Were Ignored
+https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-seeks-explanation-from-ut-over-delay-in-wetland-management-plans-questions-why-other-ramsar-sites-were-ignored-547042
+
+[Read on Telegram](https://t.me/livelawindia/118123)
+
+---
+### 2026-08-24T06:16:28+00:00
+Accused On Interim Bail Cannot Be Arrested Merely Because New Offences Are Added: Allahabad High Court Orders Inquiry Against Cop
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-interim-bail-arrest-new-offences-police-inquiry-547087
+
+[Read on Telegram](https://t.me/livelawindia/118124)
+
+---
+### 2026-08-24T06:22:48+00:00
+'Protectors Have Become Violators': HP High Court Upholds Dismissal Of Police Constables Convicted Under NDPS Act
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-upholds-dismissal-police-constables-convicted-ndps-act-547050
+
+[Read on Telegram](https://t.me/livelawindia/118125)
+
+---
+### 2026-08-24T06:32:28+00:00
+State Authority Can't Challenge Ex-Parte Award For Lack Of Hearing After Failing To Ensure Representation: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/state-cant-challenge-ex-parte-award-no-hearing-failed-to-pursue-case-547035
+
+[Read on Telegram](https://t.me/livelawindia/118126)
+
+---
+### 2026-08-24T06:38:28+00:00
+LiveLaw Supreme Court Half-Yearly Digest 2026 - Hindu Law
+https://www.livelaw.in/supreme-court/supreme-court-judgments-half-yearly-digest-hindu-law-2026-547092
+
+[Read on Telegram](https://t.me/livelawindia/118127)
+
+---
+### 2026-08-24T06:48:09+00:00
+Bihar Reservation Act Does Not Govern Reservation For Mukhiya Elections; Panchayat Raj Act Applies: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-bihar-reservation-act-govern-reservation-mukhiya-elections-547051
+
+[Read on Telegram](https://t.me/livelawindia/118128)
+
+---
+### 2026-08-24T06:54:49+00:00
+Jantar Mantar Protests | We Have Told Committee To Probe Sexual Assault Cases On Priority : CJI Surya Kant
+https://www.livelaw.in/top-stories/jantar-mantar-protests-we-have-told-committee-to-probe-sexual-assault-cases-on-priority-cji-surya-kant-547096
+
+[Read on Telegram](https://t.me/livelawindia/118129)
+
+---
+### 2026-08-24T07:02:59+00:00
+LiveLaw Madras High Court Weekly Roundup: August 17 to August 23, 2026
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-august-17-to-august-23-2026-547079
+
+[Read on Telegram](https://t.me/livelawindia/118130)
 
 ---
