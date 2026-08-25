@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-25T05:16:09+00:00*
+*Last Updated: 2026-08-25T11:15:58+00:00*
 
 ---
 
-### 2026-08-25T05:16:09+00:00
-State Women Commission Cannot Issue Binding Directions Affecting Service Conditions Of Employee: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/state-women-commission-cannot-issue-binding-directions-service-conditions-547066
+### 2026-08-25T11:15:58+00:00
+Calcutta High Court Restrains Rival's Use Of 'Fox & Mandal' Name, Says Heir Of Ex-Partner Cannot Claim Law Firm's Goodwill
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-restrains-rivals-use-of-fox-mandal-name-says-heir-of-ex-partner-cannot-claim-firms-goodwill-547338
 
-[Read on Telegram](https://t.me/livelawindia/118238)
-
----
-### 2026-08-25T05:22:19+00:00
-No Direct Evidence Of Murder Needed When Kidnapping, Last Seen & Swift Recovery Of Body Form Complete Chain: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-kidnapping-recovery-rules-direct-evidence-547255
-
-[Read on Telegram](https://t.me/livelawindia/118239)
+[Read on Telegram](https://t.me/livelawindia/118284)
 
 ---
-### 2026-08-25T05:22:49+00:00
-Calcutta High Court Seeks List Of Cases Registered Against TMC Leader Abhishek Banerjee's PA Sumit Roy
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-seeks-list-of-cases-registered-against-tmc-leader-abhishek-banerjees-pa-sumit-roy-547264
+### 2026-08-25T11:22:18+00:00
+Father Can't Be Denied Custody Of Minor Daughter Unless Shown Unfit To Be Her Guardian: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-father-denied-custody-minor-daughter-547341
 
-[Read on Telegram](https://t.me/livelawindia/118240)
-
----
-### 2026-08-25T05:32:39+00:00
-Failure To Obtain Occupation Certificate: NCDRC Orders Builder To Pay ₹6 Crore Compensation
-https://www.livelaw.in/consumer-cases/failure-to-obtain-occupation-certificate-ncdrc-orders-builder-to-pay-6-crore-compensation-547237
-
-[Read on Telegram](https://t.me/livelawindia/118241)
+[Read on Telegram](https://t.me/livelawindia/118285)
 
 ---
-### 2026-08-25T05:38:09+00:00
-Land De-Reserved By Operation Of Law Cannot Be Re-Reserved In A Subsequent Development Plan: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/land-dereserved-cannot-be-re-reserved-subsequent-development-plan-547067
+### 2026-08-25T11:47:08+00:00
+Wiping Minor's Tears, Holding Her Hand Without Sexual Intent Not Sexual Assault: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-wiping-touching-shoulder-consoling-not-inherently-sexual-547351
 
-[Read on Telegram](https://t.me/livelawindia/118242)
-
----
-### 2026-08-25T05:38:19+00:00
-Student Protests | Petitioners Express Reservations About Probe Committee, Urge Supreme Court To Reconstitute It
-https://www.livelaw.in/top-stories/student-protests-petitioners-express-reservations-about-probe-committee-urge-supreme-court-to-reconstitute-it-547266
-
-[Read on Telegram](https://t.me/livelawindia/118243)
+[Read on Telegram](https://t.me/livelawindia/118286)
 
 ---
-### 2026-08-25T05:40:39+00:00
-Calcutta High Court Directs No Coercive Steps Against TMC MP Abhishek Banerjee In Three FIRs
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-directs-no-coercive-steps-against-tmc-mp-abhishek-banerjee-in-three-firs-547268
+### 2026-08-25T11:47:48+00:00
+Wife's Insistence On Separating Husband From Dependent Widowed Mother Amounts To Cruelty: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/wifes-insistence-on-separating-husband-from-dependent-widowed-mother-amounts-to-cruelty-calcutta-high-court-547340
 
-[Read on Telegram](https://t.me/livelawindia/118244)
-
----
-### 2026-08-25T05:47:40+00:00
-No Financial Or Weapon Trail Beyond Accused's Own Admission, Only 1 Witness Examined In 3.5 Yrs: P&H High Court Grants Bail In UAPA Case
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/uapa-bail-no-financial-weapons-trail-35-years-custody-only-one-witness-examined-547263
-
-[Read on Telegram](https://t.me/livelawindia/118245)
+[Read on Telegram](https://t.me/livelawindia/118287)
 
 ---
-### 2026-08-25T06:02:20+00:00
-'No Rhyme Or Reason': Karnataka High Court Stays FIR Against Social Media Admin, Questions Police For Ignoring SC Directions
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-investigation-karnataka-portfolio-admin-547267
+### 2026-08-25T11:51:28+00:00
+Banke Bihari Temple | Devotees' Offerings Must Directly Reach Donation Box Or Online Treasury; Sewayats Must Not Interfere : Supreme Court
+https://www.livelaw.in/top-stories/banke-bihari-temple-devotees-offerings-must-directly-reach-donation-box-or-online-treasury-sewayats-must-not-interfere-supreme-court-547354
 
-[Read on Telegram](https://t.me/livelawindia/118246)
-
----
-### 2026-08-25T06:04:20+00:00
-Supreme Court Refuses To Entertain YSRCP's Plea Against Take Down Of Its Social Media Posts, Asks To Move HC
-https://www.livelaw.in/top-stories/supreme-court-refuses-to-entertain-ysrcps-plea-against-take-down-of-its-social-media-posts-asks-to-move-hc-547271
-
-[Read on Telegram](https://t.me/livelawindia/118247)
+[Read on Telegram](https://t.me/livelawindia/118288)
 
 ---
-### 2026-08-25T06:18:20+00:00
-'Not Bothered About Personalities': Madras High Court Warns CM Vijay, Minister Aadhav Arjuna Of Costs For Seeking Adjournment In Election Plea
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-election-petition-cm-vijay-aadhav-arjuna-warning-costs-adjournment-547272
+### 2026-08-25T12:02:48+00:00
+Jharkhand High Court Closes Suo Motu Case Over 2022 Latehar Court Attack; Calls For Security Cover For Judicial Officers
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-closes-suo-motu-case-2022latehar-court-attack-547260
 
-[Read on Telegram](https://t.me/livelawindia/118248)
-
----
-### 2026-08-25T06:22:40+00:00
-Minor Should Not Be Burdened With Repeated Court Appearances: J&K&L High Court Examines Need For Litigant-Friendly Family Court Proceedings
-https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-to-examine-scope-of-section-13-read-with-section-10-of-family-courts-act-for-litigant-friendly-proceedings-547047
-
-[Read on Telegram](https://t.me/livelawindia/118249)
+[Read on Telegram](https://t.me/livelawindia/118289)
 
 ---
-### 2026-08-25T06:25:30+00:00
-'Prima Facie Responds To Criticism With Violence': Gujarat High Court Refuses To Suspend AAP MLA's 7-Year Sentence In Assault Case
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-refuses-to-suspend-aap-mlas-sentence-convicted-for-assaulting-forest-officer-547274
+### 2026-08-25T12:07:58+00:00
+Interim Protection Can Be Granted To Tenant Even Before Delay In Appeal Against Eviction Is Condoned: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-interim-protection-granted-delay-condonation-application-pending-547356
 
-[Read on Telegram](https://t.me/livelawindia/118250)
-
----
-### 2026-08-25T06:27:30+00:00
-Speaker Has Issued Notices To 20 Rebel MPs On Trinamool Congress Pleas For Their Disqualification, Solicitor Tells Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-trinamool-congress-abhishek-banerjee-plea-for-expeditious-decision-by-lok-sabha-speaker-on-disqualification-of-20-rebel-mp-547276
-
-[Read on Telegram](https://t.me/livelawindia/118251)
+[Read on Telegram](https://t.me/livelawindia/118290)
 
 ---
-### 2026-08-25T06:32:50+00:00
-Public Authority Not Obliged To Collect Information From Private Body To Furnish To An Applicant: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/public-authority-not-obliged-collect-information-from-private-body-under-rti-act-547068
+### 2026-08-25T12:08:08+00:00
+Looking For More IPR Updates?
+https://www.livelaw.in/ipr/looking-for-more-ipr-updates-547357
 
-[Read on Telegram](https://t.me/livelawindia/118252)
-
----
-### 2026-08-25T06:35:10+00:00
-LiveLaw Supreme Court Half-Yearly Digest 2026 - Insolvency And Bankruptcy Code (IBC)
-https://www.livelaw.in/supreme-court/supreme-court-orders-and-judgments-insolvency-and-bankruptcy-code-half-yearly-digest-2026-547279
-
-[Read on Telegram](https://t.me/livelawindia/118253)
+[Read on Telegram](https://t.me/livelawindia/118291)
 
 ---
-### 2026-08-25T06:38:00+00:00
-Supreme Court Dismisses Plea Against Demolition Of Lawyers' Chambers In Lucknow
-https://www.livelaw.in/top-stories/supreme-court-dismisses-plea-against-demolition-of-lawyers-chambers-in-lucknow-547281
+### 2026-08-25T12:08:28+00:00
+NLU Odisha Records 76 Placement Outcomes For 2026 Graduating Batch
+https://www.livelaw.in/lawschool/news/nlu-odisha-records-76-placement-outcomes-for-2026-graduating-batch-547358
 
-[Read on Telegram](https://t.me/livelawindia/118254)
-
----
-### 2026-08-25T06:38:10+00:00
-One Day Multidisciplinary National Seminar On "Motherhood And Child Well-Being Of Imprisoned Women: Legal And Socio-Economic Perspectives"
-https://www.livelaw.in/lawschool/seminars/one-day-multidisciplinary-national-seminar-motherhood-child-well-being-imprisoned-women-legal-socio-economic-perspectives-547280
-
-[Read on Telegram](https://t.me/livelawindia/118255)
+[Read on Telegram](https://t.me/livelawindia/118292)
 
 ---
-### 2026-08-25T06:48:11+00:00
-LiveLaw Rajasthan High Court Weekly Round-Up: August 17 to August 23, 2026
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-weekly-roundup-547283
+### 2026-08-25T12:08:38+00:00
+'State Cannot Sit In Slumber': Allahabad High Court Flags Rising E-Rickshaw Traffic Problem In Lucknow, Seeks Govt Policy
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-rising-e-rickshaw-traffic-problem-lucknow-govt-policy-547359
 
-[Read on Telegram](https://t.me/livelawindia/118256)
+[Read on Telegram](https://t.me/livelawindia/118293)
 
 ---
-### 2026-08-25T06:52:51+00:00
-Calcutta High Court Permits Rival Factions Of TMC Students' Wing To Separately Commemorate Foundation Day On August 28
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-permits-rival-factions-of-tmc-students-wing-to-separately-commemorate-foundation-day-on-august-28-547285
+### 2026-08-25T12:09:48+00:00
+Looking For More Tax Law Updates?
+https://www.livelaw.in/tax-cases/looking-for-more-tax-law-updates-547360
 
-[Read on Telegram](https://t.me/livelawindia/118257)
+[Read on Telegram](https://t.me/livelawindia/118294)
+
+---
+### 2026-08-25T12:11:08+00:00
+Looking For More IBC Updates?
+https://www.livelaw.in/ibc-cases/looking-for-more-ibc-updates-547361
+
+[Read on Telegram](https://t.me/livelawindia/118295)
+
+---
+### 2026-08-25T12:12:38+00:00
+Looking For More Corporate Law Updates?
+https://www.livelaw.in/corporate-law/looking-for-more-corporate-law-updates-547362
+
+[Read on Telegram](https://t.me/livelawindia/118296)
+
+---
+### 2026-08-25T12:13:58+00:00
+Looking For More Arbitration Law Updates?
+https://www.livelaw.in/arbitration-cases/looking-for-more-arbitration-law-updates-547364
+
+[Read on Telegram](https://t.me/livelawindia/118297)
+
+---
+### 2026-08-25T12:26:38+00:00
+Plea In Supreme Court Challenges Curbs Imposed By Rajasthan & UP On Entry To Government Schools Amid CJP Campaign
+https://www.livelaw.in/top-stories/plea-in-supreme-court-challenges-curbs-imposed-by-rajasthan-up-on-entry-to-government-schools-amid-cjp-campaign-547365
+
+[Read on Telegram](https://t.me/livelawindia/118298)
+
+---
+### 2026-08-25T12:27:38+00:00
+Universities Should Be Liberating Spaces, Law Students Can't Be Trained To Argue By Curbing Free Speech: Prof Faizan Mustafa
+https://www.livelaw.in/news-updates/faizan-mustafa-nalsar-law-students-cant-be-trained-to-argue-without-free-speech-547366
+
+[Read on Telegram](https://t.me/livelawindia/118299)
+
+---
+### 2026-08-25T12:32:58+00:00
+'No Coercive Steps' Order Does Not Bar Filing Of Charge Sheet : Supreme Court
+https://www.livelaw.in/supreme-court/no-coercive-steps-order-does-not-bar-filing-of-charge-sheet-supreme-court-547367
+
+[Read on Telegram](https://t.me/livelawindia/118300)
+
+---
+### 2026-08-25T12:36:38+00:00
+2026 LiveLaw (SC) 860 | ARUN KUMAR MANDAL @ ARUN MANDAL VERSUS THE STATE OF JHARKHAND
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-860-arun-kumar-mandal-arun-mandal-versus-the-state-of-jharkhand-547368
+
+[Read on Telegram](https://t.me/livelawindia/118301)
+
+---
+### 2026-08-25T12:39:58+00:00
+Prior Litigation Readily Available Online; Counsel's Ignorance Borders On Professional Dereliction: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-imposed-concealing-first-pre-arrest-bail-already-dismissed-547369
+
+[Read on Telegram](https://t.me/livelawindia/118302)
+
+---
+### 2026-08-25T12:48:58+00:00
+Supreme Court Indicates It May Direct UP To Acquire Land For Banke Bihari Temple If Land Purchase Hits Roadblock
+https://www.livelaw.in/top-stories/supreme-court-indicates-it-may-direct-up-to-acquire-land-for-banke-bihari-temple-if-land-purchase-hits-roadblock-547371
+
+[Read on Telegram](https://t.me/livelawindia/118303)
 
 ---
