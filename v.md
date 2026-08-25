@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-25T07:22:34+00:00*
+*Last Updated: 2026-08-25T13:02:15+00:00*
+
+---
+
+### 2026-08-25T13:02:15+00:00
+Delhi High Court Restrains FSSAI From Cancelling Licence Of ITC Over Aashirvaad Atta's 100% Claim
+https://www.verdictum.in/delhi-high-court/fssai-cancelling-licence-itc-over-aashirvaad-attas-100-claim-1620607
+
+[Source Link](https://t.me/verdictumlegalupdates/28730)
+
+---
+
+### 2026-08-25T12:32:34+00:00
+Monetary Claims Including Maintenance Relinquished By Wife In Settlement Can’t Be Revived Through Subsequent Proceedings: Supreme Court
+https://www.verdictum.in/supreme-court/ab-v-cd-2026-insc-918-monetary-claims-maintenance-wife-proceedings-1620599
+
+[Source Link](https://t.me/verdictumlegalupdates/28729)
+
+---
+
+### 2026-08-25T12:02:53+00:00
+Did Players Know They Were Having 'Non-Veg Tea'? Bombay HC Orders Fresh FDA Inspection At MCA Restaurants
+https://www.verdictum.in/bombay-high-court/fresh-fda-inspection-at-mca-restaurants-1620605
+
+[Source Link](https://t.me/verdictumlegalupdates/28728)
+
+---
+
+### 2026-08-25T11:32:52+00:00
+If Need Be, We Will Appoint More Tribunals: Apex Court Directs EC To Submit Data On Pendency Of Appeals In West Bengal SIR Cases
+https://www.verdictum.in/supreme-court/directs-submit-data-pendency-of-appeals-west-bengal-sir-cases-1620604
+
+[Source Link](https://t.me/verdictumlegalupdates/28727)
+
+---
+
+### 2026-08-25T11:02:31+00:00
+Supreme Court Agrees To Form Special Bench On Centre's Plea Seeking Clarification Of Previous Judgment For CSE 2025 OBC Creamy-Layer Allocation
+https://www.verdictum.in/supreme-court/agrees-form-special-bench-on-centre-plea-cse-2025-obc-creamy-layer-allocation-1620601
+
+[Source Link](https://t.me/verdictumlegalupdates/28726)
+
+---
+
+### 2026-08-25T10:33:00+00:00
+Supreme Court Directs Tarun Tejpal To Surrender Within Two Weeks To Undergo Sentence In 2013 Rape Case
+https://www.verdictum.in/supreme-court/tarun-tejpal-to-surrender-within-two-weeks-to-undergo-sentence-in-2013-rape-case-1620600
+
+[Source Link](https://t.me/verdictumlegalupdates/28725)
+
+---
+
+### 2026-08-25T10:02:59+00:00
+Headscarf Not Essential Part Of Islamic Faith: Allahabad High Court Refuses To Permit Hijab Over Prescribed School Uniform
+https://www.verdictum.in/allahabad-high-court/sukaina-rizvi-v-state-of-up-2026ahc176816-db-hijab-over-prescribed-uniform-school-student-1620598
+
+[Source Link](https://t.me/verdictumlegalupdates/28724)
+
+---
+
+### 2026-08-25T09:32:58+00:00
+Supreme Court Stays Calcutta HC Order Staying Notifications On Dedicated STF Police Stations & Assigned Courts
+https://www.verdictum.in/supreme-court/notifications-on-dedicated-stf-police-stations-assigned-courts-1620597
+
+[Source Link](https://t.me/verdictumlegalupdates/28723)
+
+---
+
+### 2026-08-25T09:02:57+00:00
+Supreme Court Declines To Direct Reopening Of CBSE's Portal For Re-Evaluation Of Class 12 Answer Sheets
+https://www.verdictum.in/supreme-court/reopening-of-cbses-portal-for-re-evaluation-of-class-12-answer-sheets-declined-1620594
+
+[Source Link](https://t.me/verdictumlegalupdates/28722)
+
+---
+
+### 2026-08-25T08:32:56+00:00
+Calcutta High Court Grants Protection To TMC MP Abhishek Banerjee From Arrest In 3 Cases
+https://www.verdictum.in/calcutta-high-court/protection-to-tmc-mp-abhishek-banerjee-from-arrest-in-3-cases-1620590
+
+[Source Link](https://t.me/verdictumlegalupdates/28721)
+
+---
+
+### 2026-08-25T08:02:55+00:00
+Repeated Threats & Prior Preparation Point To Premeditated Attack: Supreme Court Sets Aside Bail Granted To Murder Accused
+https://www.verdictum.in/supreme-court/yash-mahesh-gaikwad-v-state-of-maharashtra-2026-insc-917-relief-in-murder-case-1620583
+
+[Source Link](https://t.me/verdictumlegalupdates/28720)
 
 ---
 
@@ -73,94 +161,6 @@ Multiple FIRs Alone Cannot Justify Preventive Detention Without Finding Of Impac
 https://www.verdictum.in/jammu-ladakh-high-court/mohd-asgar-tola-v-ut-of-jammu-kashmir-ors-2026jklhc-jmu2676-1620532
 
 [Source Link](https://t.me/verdictumlegalupdates/28711)
-
----
-
-### 2026-08-24T15:03:02+00:00
-Supreme Court Restores Congress Candidate's Election Petition Challenging Assam BJP MP Kripanath Mallah's Election to Lok Sabha
-https://www.verdictum.in/supreme-court/hafiz-rashid-ahmed-choudhury-v-kripanath-mallah-ors-2026-insc-915-1620527
-
-[Source Link](https://t.me/verdictumlegalupdates/28710)
-
----
-
-### 2026-08-24T14:33:01+00:00
-Convict Remained Untraced For 40 Years & Took Government Job: Telangana High Court Directs Constitution Of Task Force To Track Parole Prisoners
-https://www.verdictum.in/telangana-high-court/sandela-charamma-v-state-of-telangana-and-others-prole-convict-task-force-1620530
-
-[Source Link](https://t.me/verdictumlegalupdates/28709)
-
----
-
-### 2026-08-24T14:03:00+00:00
-Supreme Court Seeks Centre & States’ Response On Plea To Enforce Community Forest Rights Near PEKB Coal Block In Chhattisgarh
-https://www.verdictum.in/supreme-court/plea-to-enforce-community-forest-rights-near-pekb-coal-block-in-chhattisgarh-1620526
-
-[Source Link](https://t.me/verdictumlegalupdates/28708)
-
----
-
-### 2026-08-24T13:33:19+00:00
-Calcutta High Court Disposes Of Abhishek Banerjee's Plea After Bank Account Is Reactivated Following KYC Update
-https://www.verdictum.in/calcutta-high-court/abhishek-banerjees-plea-after-bank-account-is-reactivated-following-kyc-update-disposed-1620528
-
-[Source Link](https://t.me/verdictumlegalupdates/28707)
-
----
-
-### 2026-08-24T13:02:58+00:00
-Law Ministry Fixes Minimum Experience For Central Government Panel Counsel And Deputy Solicitors General
-https://www.verdictum.in/news/law-ministry-qualification-senior-panel-central-government-counsel-dsg-1620541
-
-[Source Link](https://t.me/verdictumlegalupdates/28706)
-
----
-
-### 2026-08-24T12:33:17+00:00
-Executive Officers Of Temples Forbidden From Interfering In Religious Aspects: Madras High Court
-https://www.verdictum.in/madras-high-court/tr-ramesh-v-the-state-of-tamil-nadu-hrce-dept-executive-officer-temple-1620535
-
-[Source Link](https://t.me/verdictumlegalupdates/28705)
-
----
-
-### 2026-08-24T12:02:16+00:00
-Existence Of Footpaths Is Integral To Human Life: Apex Court Asks States & UTs To Respond On Implementation For Encroachment-Free Space For Pedestrians
-https://www.verdictum.in/supreme-court/states-uts-to-respond-on-implementation-for-encroachment-free-space-for-pedestrians-1620523
-
-[Source Link](https://t.me/verdictumlegalupdates/28704)
-
----
-
-### 2026-08-24T11:32:15+00:00
-Supreme Court To Hear Plea Against Demolition Of Lawyers' Chambers Near Lucknow District Court Complex
-https://www.verdictum.in/supreme-court/demolition-of-lawyers-chambers-near-lucknow-district-court-complex-1620520
-
-[Source Link](https://t.me/verdictumlegalupdates/28703)
-
----
-
-### 2026-08-24T11:02:53+00:00
-Order VII Rule 11 CPC | Question Of Payment Of Court Fee Must Be Deferred For Evidence When Joint Possession Is Pleaded: Supreme Court
-https://www.verdictum.in/supreme-court/neelam-sharma-v-amita-passan-2026-insc-913-question-of-payment-of-court-fee-1620518
-
-[Source Link](https://t.me/verdictumlegalupdates/28702)
-
----
-
-### 2026-08-24T10:32:52+00:00
-Polluter Pays Principle Can’t Be Invoked Absent Link To Damage: Supreme Court Sets Aside NGT Order Against Art Of Living In Yamuna Floodplain Matter
-https://www.verdictum.in/supreme-court/-vyakti-vikas-kendra-india-v-manoj-misra-dead-ors-2026-insc-910-1620515
-
-[Source Link](https://t.me/verdictumlegalupdates/28701)
-
----
-
-### 2026-08-24T10:02:11+00:00
-Karnataka Bar Council Backs Manan Kumar Mishra, Dismisses Resignation Demands As "Politically Motivated"
-https://www.verdictum.in/news/karnataka-state-bar-council-backs-bci-chairman-manan-kumar-mishra-1620517
-
-[Source Link](https://t.me/verdictumlegalupdates/28700)
 
 ---
 
