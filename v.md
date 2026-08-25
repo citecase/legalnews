@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-24T16:03:04+00:00*
+*Last Updated: 2026-08-25T07:22:34+00:00*
+
+---
+
+### 2026-08-25T07:22:34+00:00
+Supreme Court Grants Interim Protection To Journalist Abhishek Upadhyay Who Reported Ram Temple Donation Irregularities
+https://www.verdictum.in/supreme-court/grants-interim-protection-journalist-abhishek-upadhyay-ram-temple-donation-irregularities-1620588
+
+[Source Link](https://t.me/verdictumlegalupdates/28719)
+
+---
+
+### 2026-08-25T07:02:33+00:00
+Supreme Court Issues Notice On Banerjee's Plea Seeking Expeditious Decision By Speaker Of Lok Sabha On Disqualification Of 20 Rebel TMC MPs
+https://www.verdictum.in/supreme-court/notice-banerjee-plea-seeking-hearing-disqualification-20-rebel-tmc-mps-1620584
+
+[Source Link](https://t.me/verdictumlegalupdates/28718)
+
+---
+
+### 2026-08-25T06:32:32+00:00
+Weekly Overview| Supreme Court Judgments: August 17 - August 21, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-august-17-august-21-2026-1620576
+
+[Source Link](https://t.me/verdictumlegalupdates/28717)
+
+---
+
+### 2026-08-25T06:02:51+00:00
+Supreme Court To Hear Application Seeking Reconstitution Of HPEC Constituted In NEET Paper Leak Protests
+https://www.verdictum.in/supreme-court/application-seeking-reconstitution-of-hpec-constituted-neet-paper-leak-protests-1620578
+
+[Source Link](https://t.me/verdictumlegalupdates/28716)
+
+---
+
+### 2026-08-25T05:32:25+00:00
+"Manipulation": Orissa High Court Directs To Hold Interview For District Judge Aspirant After Noting Overwriting In Different Ink In Answer Sheet
+https://www.verdictum.in/supreme-court/geetanjali-majhi-v-the-registrar-general-orissa-high-court-cuttack-wpc-no-4698-of-2024-district-judge-aspirant-overwriting-1620529
+
+[Source Link](https://t.me/verdictumlegalupdates/28715)
+
+---
+
+### 2026-08-25T05:03:04+00:00
+CCTV Cameras At Police Stations Must Be Continuously Functional: Karnataka High Court Orders Audit
+https://www.verdictum.in/karnataka-high-court/cause-title-v-shailaja-v-the-commissioner-cctv-cameras-police-stations-audit-1620531
+
+[Source Link](https://t.me/verdictumlegalupdates/28714)
+
+---
+
+### 2026-08-25T04:33:13+00:00
+Section 17 DV Act Bars Eviction From Shared Household Without Due Process, Not Eviction Under Lawful Decree: Delhi High Court
+https://www.verdictum.in/delhi-high-court/shared-household-possession-eviction-matrimonial-home-2026dhc6802-section-17-dv-act-1620534
+
+[Source Link](https://t.me/verdictumlegalupdates/28713)
 
 ---
 
@@ -105,62 +161,6 @@ Karnataka Bar Council Backs Manan Kumar Mishra, Dismisses Resignation Demands As
 https://www.verdictum.in/news/karnataka-state-bar-council-backs-bci-chairman-manan-kumar-mishra-1620517
 
 [Source Link](https://t.me/verdictumlegalupdates/28700)
-
----
-
-### 2026-08-24T09:32:50+00:00
-Candidate Can’t Be Made Ineligible By Resorting To Maze Of Government Orders: Supreme Court Restores Promotion Of Govt. Employee
-https://www.verdictum.in/supreme-court/rj-gajendra-kumar-v-government-of-tamil-nadu-2026-insc-911-maze-of-government-orders-candidate-1620513
-
-[Source Link](https://t.me/verdictumlegalupdates/28699)
-
----
-
-### 2026-08-24T09:02:50+00:00
-Supreme Court To Hear Plea By Ex-AAP MLA Naresh Balyan Against Denial Of Bail In MCOCA Case
-https://www.verdictum.in/supreme-court/x-aap-mla-naresh-balyan-against-denial-of-bail-in-mcoca-case-1620504
-
-[Source Link](https://t.me/verdictumlegalupdates/28698)
-
----
-
-### 2026-08-24T08:32:49+00:00
-Supreme Court Asks Mizo Woman Challenging Amendments In Customary Laws To Move Gauhati HC
-https://www.verdictum.in/supreme-court/mizo-woman-challenging-amendments-in-customary-laws-to-move-gauhati-hc-1620506
-
-[Source Link](https://t.me/verdictumlegalupdates/28697)
-
----
-
-### 2026-08-24T08:02:28+00:00
-Supreme Court Issues Notice To Centre & State In Plea Seeking CBI Probe Into Alleged JPSC Exams Irregularities
-https://www.verdictum.in/supreme-court/notice-to-centre-state-in-plea-seeking-cbi-probe-into-alleged-jpsc-exams-irregularities-1620507
-
-[Source Link](https://t.me/verdictumlegalupdates/28696)
-
----
-
-### 2026-08-24T07:21:08+00:00
-Delhi High Court Issues Summons In Suit Filed By CJP’s Saurav Das Against Abhijit Iyer Mitra & Ors For Alleged Breach Of Privacy
-https://www.verdictum.in/delhi-high-court/summons-suit-filed-cjp-saurav-das-abhijit-iyer-mitra-alleged-breach-privacy-1620503
-
-[Source Link](https://t.me/verdictumlegalupdates/28695)
-
----
-
-### 2026-08-24T07:03:06+00:00
-Supreme Court To Hear Plea Challenging FIR Against Journalist Abhishek Upadhyay Who Reported Ram Temple Donation Irregularities
-https://www.verdictum.in/supreme-court/fir-against-journalist-abhishek-upadhyay-who-reported-ram-temple-donation-irregularities-1620499
-
-[Source Link](https://t.me/verdictumlegalupdates/28694)
-
----
-
-### 2026-08-24T06:32:46+00:00
-Shortfall In Earnest Money Deposit Does Not Invalidate SARFAESI Auction Once 25% Sale Price Is Paid & No Prejudice Is Caused: Supreme Court
-https://www.verdictum.in/supreme-court/lakshmi-mohan-dead-through-lrs-anr-v-ms-airtech-projects-engineers-pvt-ltd-anr-2026-insc-909-1620497
-
-[Source Link](https://t.me/verdictumlegalupdates/28693)
 
 ---
 
