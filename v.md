@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-25T13:02:15+00:00*
+*Last Updated: 2026-08-25T16:03:05+00:00*
+
+---
+
+### 2026-08-25T16:03:05+00:00
+Senior Assistant Officer (Law) Vacancy At NTPC-SAIL Power Company Limited (NSPCL)
+https://www.verdictum.in/job-updates/ntpc-sail-power-company-limited-1620613
+
+[Source Link](https://t.me/verdictumlegalupdates/28736)
+
+---
+
+### 2026-08-25T15:32:40+00:00
+Clear Violation Of Basic Human Rights: Madras High Court Imposes ₹5L Costs On Man For Forcibly Taking Away Daughter
+https://www.verdictum.in/madras-high-court/a-v-b-2026khc44795-violation-human-rights-daughter-mother-1620612
+
+[Source Link](https://t.me/verdictumlegalupdates/28735)
+
+---
+
+### 2026-08-25T15:03:18+00:00
+Allahabad High Court Strikes Down Key Provisions Of UP Regulation of Urban Premises Tenancy Act 2021
+https://www.verdictum.in/allahabad-high-court/inder-bhushandead-and-2-others-neutral-citation-2026ahc177234-db-1620611
+
+[Source Link](https://t.me/verdictumlegalupdates/28734)
+
+---
+
+### 2026-08-25T14:32:37+00:00
+Delhi HC Closes Former Congress Leader Sajjan Kumar's Appeal Against Conviction In 1984 Anti-Sikh Riots Following His Death
+https://www.verdictum.in/delhi-high-court/former-congress-leader-sajjan-kumars-appeal-against-conviction-anti-sikh-riots-closed-1620610
+
+[Source Link](https://t.me/verdictumlegalupdates/28733)
+
+---
+
+### 2026-08-25T14:03:17+00:00
+Marriage Not License To Control; Can’t Command Wife To Do Household Activities Or Look After In-laws: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/a-v-b-2026khc40326-marriage-control-wife-household-activities-in-laws-1620609
+
+[Source Link](https://t.me/verdictumlegalupdates/28732)
+
+---
+
+### 2026-08-25T13:32:36+00:00
+Granting Bail With One Hand And Taking It Away With The Other: Jharkhand HC Modifies Onerous Bail Condition
+https://www.verdictum.in/jharkhand-high-court/sapath-kumar-chandra-v-the-state-of-jharkhand-2026jhhc25335-granting-bail-onerous-bail-condition-1620608
+
+[Source Link](https://t.me/verdictumlegalupdates/28731)
 
 ---
 
@@ -113,54 +161,6 @@ Weekly Overview| Supreme Court Judgments: August 17 - August 21, 2026
 https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-august-17-august-21-2026-1620576
 
 [Source Link](https://t.me/verdictumlegalupdates/28717)
-
----
-
-### 2026-08-25T06:02:51+00:00
-Supreme Court To Hear Application Seeking Reconstitution Of HPEC Constituted In NEET Paper Leak Protests
-https://www.verdictum.in/supreme-court/application-seeking-reconstitution-of-hpec-constituted-neet-paper-leak-protests-1620578
-
-[Source Link](https://t.me/verdictumlegalupdates/28716)
-
----
-
-### 2026-08-25T05:32:25+00:00
-"Manipulation": Orissa High Court Directs To Hold Interview For District Judge Aspirant After Noting Overwriting In Different Ink In Answer Sheet
-https://www.verdictum.in/supreme-court/geetanjali-majhi-v-the-registrar-general-orissa-high-court-cuttack-wpc-no-4698-of-2024-district-judge-aspirant-overwriting-1620529
-
-[Source Link](https://t.me/verdictumlegalupdates/28715)
-
----
-
-### 2026-08-25T05:03:04+00:00
-CCTV Cameras At Police Stations Must Be Continuously Functional: Karnataka High Court Orders Audit
-https://www.verdictum.in/karnataka-high-court/cause-title-v-shailaja-v-the-commissioner-cctv-cameras-police-stations-audit-1620531
-
-[Source Link](https://t.me/verdictumlegalupdates/28714)
-
----
-
-### 2026-08-25T04:33:13+00:00
-Section 17 DV Act Bars Eviction From Shared Household Without Due Process, Not Eviction Under Lawful Decree: Delhi High Court
-https://www.verdictum.in/delhi-high-court/shared-household-possession-eviction-matrimonial-home-2026dhc6802-section-17-dv-act-1620534
-
-[Source Link](https://t.me/verdictumlegalupdates/28713)
-
----
-
-### 2026-08-24T16:03:04+00:00
-National Institute of Technology Warangal Invites Applications For Post Of Visiting Consultant (Legal Advisor)
-https://www.verdictum.in/job-updates/national-institute-of-technology-1620533
-
-[Source Link](https://t.me/verdictumlegalupdates/28712)
-
----
-
-### 2026-08-24T15:32:43+00:00
-Multiple FIRs Alone Cannot Justify Preventive Detention Without Finding Of Impact On Public Order: J&K And Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/mohd-asgar-tola-v-ut-of-jammu-kashmir-ors-2026jklhc-jmu2676-1620532
-
-[Source Link](https://t.me/verdictumlegalupdates/28711)
 
 ---
 
