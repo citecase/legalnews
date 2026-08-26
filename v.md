@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-26T07:02:56+00:00*
+*Last Updated: 2026-08-26T13:02:54+00:00*
+
+---
+
+### 2026-08-26T13:02:54+00:00
+Missing Ticket Does Not Make Deceased Rail Passenger Ticketless, Benefit Of Doubt Must Go To Family: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/2026chcas1302-anamika-halder-v-union-of-india-1620681
+
+[Source Link](https://t.me/verdictumlegalupdates/28748)
+
+---
+
+### 2026-08-26T12:02:53+00:00
+PITNDPS Act- Unexplained Delay In Informing Detenue Of Right To Represent To Central Govt Violates Article 22(5): Punjab & Haryana High Court
+https://www.verdictum.in/punjab-and-haryana-high-court/bala-v-ut-chandigarh-and-others-2026phhc115366-preventive-detention-1620678
+
+[Source Link](https://t.me/verdictumlegalupdates/28747)
+
+---
+
+### 2026-08-26T11:12:52+00:00
+Madhya Pradesh HC Allows SAF Constables In TA Bill Scam To Withdraw 50% Salary From Frozen Accounts For Subsistence
+https://www.verdictum.in/madhya-pradesh-high-court/2026mphcjbp-65132-astik-shukla-v-state-of-mp-1620677
+
+[Source Link](https://t.me/verdictumlegalupdates/28746)
+
+---
+
+### 2026-08-26T10:32:11+00:00
+Frame Policy To Regulate E-Rickshaws: Allahabad High Court Calls For Separate Traffic Police Cadre
+https://www.verdictum.in/allahabad-high-court/suraj-singh-visen-v-state-of-up-thru-prin-secy-urban-development-lko-wpil-no-329-of-2026-regulate-e-rickshaws-traffic-police-cadre-1620675
+
+[Source Link](https://t.me/verdictumlegalupdates/28745)
+
+---
+
+### 2026-08-26T09:52:50+00:00
+"Three Times Is Enemy Action": Delhi High Court Quotes James Bond To Vacate Ex-Parte Injunction Obtained By Suppression
+https://www.verdictum.in/delhi-high-court/nugenesys-pharmaceuticals-pvt-ltd-v-celagenex-research-india-pvt-ltd-2026dhc6947-db-james-bond-vacate-ex-parte-injunction-1620674
+
+[Source Link](https://t.me/verdictumlegalupdates/28744)
+
+---
+
+### 2026-08-26T09:12:29+00:00
+Mere Non-Disclosure Of Marital Status Not Cheating U/S 420 IPC: Chhattisgarh High Court Quashes Proceedings Against Wife
+https://www.verdictum.in/chhattisgarh-high-court/r-v-state-of-chhattisgarh-2026cghc35538-db-cheating-and-bigamy-proceedings-against-woman-1620672
+
+[Source Link](https://t.me/verdictumlegalupdates/28743)
+
+---
+
+### 2026-08-26T08:32:28+00:00
+Son Can’t Claim Coparcenary Share In Property Inherited By Father U/S 8 Hindu Succession Act Without HUF Plea: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/devaram-v-khetaram-ors-2026rj-jd40614-hindu-undivided-family-succession-1620667
+
+[Source Link](https://t.me/verdictumlegalupdates/28742)
+
+---
+
+### 2026-08-26T07:52:37+00:00
+Paying Part-Time Teachers Below Unskilled Minimum Wages Arbitrary: Delhi High Court Upholds Pay Hike For Punjabi Academy Teachers
+https://www.verdictum.in/delhi-high-court/punjabi-academy-and-anr-v-avtar-singh-and-anr-2026dhc7097-db-part-time-teacher-wages-1620662
+
+[Source Link](https://t.me/verdictumlegalupdates/28741)
 
 ---
 
@@ -97,70 +161,6 @@ Monetary Claims Including Maintenance Relinquished By Wife In Settlement Can’t
 https://www.verdictum.in/supreme-court/ab-v-cd-2026-insc-918-monetary-claims-maintenance-wife-proceedings-1620599
 
 [Source Link](https://t.me/verdictumlegalupdates/28729)
-
----
-
-### 2026-08-25T12:02:53+00:00
-Did Players Know They Were Having 'Non-Veg Tea'? Bombay HC Orders Fresh FDA Inspection At MCA Restaurants
-https://www.verdictum.in/bombay-high-court/fresh-fda-inspection-at-mca-restaurants-1620605
-
-[Source Link](https://t.me/verdictumlegalupdates/28728)
-
----
-
-### 2026-08-25T11:32:52+00:00
-If Need Be, We Will Appoint More Tribunals: Apex Court Directs EC To Submit Data On Pendency Of Appeals In West Bengal SIR Cases
-https://www.verdictum.in/supreme-court/directs-submit-data-pendency-of-appeals-west-bengal-sir-cases-1620604
-
-[Source Link](https://t.me/verdictumlegalupdates/28727)
-
----
-
-### 2026-08-25T11:02:31+00:00
-Supreme Court Agrees To Form Special Bench On Centre's Plea Seeking Clarification Of Previous Judgment For CSE 2025 OBC Creamy-Layer Allocation
-https://www.verdictum.in/supreme-court/agrees-form-special-bench-on-centre-plea-cse-2025-obc-creamy-layer-allocation-1620601
-
-[Source Link](https://t.me/verdictumlegalupdates/28726)
-
----
-
-### 2026-08-25T10:33:00+00:00
-Supreme Court Directs Tarun Tejpal To Surrender Within Two Weeks To Undergo Sentence In 2013 Rape Case
-https://www.verdictum.in/supreme-court/tarun-tejpal-to-surrender-within-two-weeks-to-undergo-sentence-in-2013-rape-case-1620600
-
-[Source Link](https://t.me/verdictumlegalupdates/28725)
-
----
-
-### 2026-08-25T10:02:59+00:00
-Headscarf Not Essential Part Of Islamic Faith: Allahabad High Court Refuses To Permit Hijab Over Prescribed School Uniform
-https://www.verdictum.in/allahabad-high-court/sukaina-rizvi-v-state-of-up-2026ahc176816-db-hijab-over-prescribed-uniform-school-student-1620598
-
-[Source Link](https://t.me/verdictumlegalupdates/28724)
-
----
-
-### 2026-08-25T09:32:58+00:00
-Supreme Court Stays Calcutta HC Order Staying Notifications On Dedicated STF Police Stations & Assigned Courts
-https://www.verdictum.in/supreme-court/notifications-on-dedicated-stf-police-stations-assigned-courts-1620597
-
-[Source Link](https://t.me/verdictumlegalupdates/28723)
-
----
-
-### 2026-08-25T09:02:57+00:00
-Supreme Court Declines To Direct Reopening Of CBSE's Portal For Re-Evaluation Of Class 12 Answer Sheets
-https://www.verdictum.in/supreme-court/reopening-of-cbses-portal-for-re-evaluation-of-class-12-answer-sheets-declined-1620594
-
-[Source Link](https://t.me/verdictumlegalupdates/28722)
-
----
-
-### 2026-08-25T08:32:56+00:00
-Calcutta High Court Grants Protection To TMC MP Abhishek Banerjee From Arrest In 3 Cases
-https://www.verdictum.in/calcutta-high-court/protection-to-tmc-mp-abhishek-banerjee-from-arrest-in-3-cases-1620590
-
-[Source Link](https://t.me/verdictumlegalupdates/28721)
 
 ---
 
