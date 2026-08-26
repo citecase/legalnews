@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-26T13:02:54+00:00*
+*Last Updated: 2026-08-26T16:03:17+00:00*
+
+---
+
+### 2026-08-26T16:03:17+00:00
+Bombay High Court Orders Tahsildar And Police Officer To Appear Personally If They Fail To Enforce 16-Year-Old SARFAESI Possession Order
+https://www.verdictum.in/bombay-high-court/kotak-mahindra-bank-limited-v-state-of-maharashtra-sarfaesi-possession-order-police-force-1620685
+
+[Source Link](https://t.me/verdictumlegalupdates/28751)
+
+---
+
+### 2026-08-26T15:02:16+00:00
+Court Fees Must Be Payable "Per Petitioner" Not "Per Petition" When Individual Causes Of Action Are Sought In Joint Writ Petition: Bombay High Court Clarifies
+https://www.verdictum.in/bombay-high-court/2026bhcas35070-satyam-a-surana-v-high-court-of-bombay-court-fee-joint-writ-petition-1620683
+
+[Source Link](https://t.me/verdictumlegalupdates/28750)
+
+---
+
+### 2026-08-26T14:02:15+00:00
+Principles Of Territorial Jurisdiction Cannot Be Diluted Due To Internet: Delhi High Court Refers Issues On Online Trade Mark Infringement To Larger Bench
+https://www.verdictum.in/delhi-high-court/hindustan-unilever-limited-v-kwick-living-i-private-limited-2026dhc7198-larger-bench-online-trade-mark-infringement-1620682
+
+[Source Link](https://t.me/verdictumlegalupdates/28749)
 
 ---
 
@@ -137,30 +161,6 @@ Marriage Not License To Control; Can’t Command Wife To Do Household Activities
 https://www.verdictum.in/karnataka-high-court/a-v-b-2026khc40326-marriage-control-wife-household-activities-in-laws-1620609
 
 [Source Link](https://t.me/verdictumlegalupdates/28732)
-
----
-
-### 2026-08-25T13:32:36+00:00
-Granting Bail With One Hand And Taking It Away With The Other: Jharkhand HC Modifies Onerous Bail Condition
-https://www.verdictum.in/jharkhand-high-court/sapath-kumar-chandra-v-the-state-of-jharkhand-2026jhhc25335-granting-bail-onerous-bail-condition-1620608
-
-[Source Link](https://t.me/verdictumlegalupdates/28731)
-
----
-
-### 2026-08-25T13:02:15+00:00
-Delhi High Court Restrains FSSAI From Cancelling Licence Of ITC Over Aashirvaad Atta's 100% Claim
-https://www.verdictum.in/delhi-high-court/fssai-cancelling-licence-itc-over-aashirvaad-attas-100-claim-1620607
-
-[Source Link](https://t.me/verdictumlegalupdates/28730)
-
----
-
-### 2026-08-25T12:32:34+00:00
-Monetary Claims Including Maintenance Relinquished By Wife In Settlement Can’t Be Revived Through Subsequent Proceedings: Supreme Court
-https://www.verdictum.in/supreme-court/ab-v-cd-2026-insc-918-monetary-claims-maintenance-wife-proceedings-1620599
-
-[Source Link](https://t.me/verdictumlegalupdates/28729)
 
 ---
 
