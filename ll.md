@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-26T08:06:44+00:00*
+*Last Updated: 2026-08-26T08:41:14+00:00*
 
 ---
 
-### 2026-08-26T08:06:44+00:00
-'Taking Liberty Of Citizens For Granted': Karnataka High Court Raps Police For Arresting Man Despite Notice To Appear Two Days Later
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-warns-io-exemplary-cost-taking-man-custody-despite-notice-547461
-
-[Read on Telegram](https://t.me/livelawindia/118350)
-
----
-### 2026-08-26T08:17:24+00:00
-Bovine Animals Being Transported Without Permission Is Not Grounds For Preventive Detention: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/bovine-animals-transported-without-permission-not-sufficient-ground-for-preventive-detention-detaining-authority-must-record-satisfaction-of-threat-to-public-order-jk-high-court-547445
-
-[Read on Telegram](https://t.me/livelawindia/118351)
-
----
-### 2026-08-26T08:17:44+00:00
-3-Year LLM Course Enables Lawyers To Continue Practice While Simultaneously Pursuing Masters Program: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-3-year-llm-advocate-practice-with-masters-programme-547462
-
-[Read on Telegram](https://t.me/livelawindia/118352)
-
----
-### 2026-08-26T08:22:54+00:00
-Acquittal Under Section 498A IPC Does Not Bar Proceedings Under Domestic Violence Act: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/acquittal-section-498a-ipc-not-bar-proceedings-domestic-violence-act-547448
-
-[Read on Telegram](https://t.me/livelawindia/118353)
-
----
-### 2026-08-26T08:28:14+00:00
-CBSE, CISCE Schools In UP Not Exempt From RTE Obligations: Allahabad High Court Seeks 5-Yr Data On Denied Admissions, Fee Complaints
-https://www.livelaw.in/high-court/allahabad-high-court/private-schools-cbse-cisce-up-rte-obligations-allahabad-hc-five-year-admission-data-547470
-
-[Read on Telegram](https://t.me/livelawindia/118354)
-
----
-### 2026-08-26T08:32:54+00:00
-Retirement No Ground To Drop Contempt Proceedings For Non-Compliance Of Court Order: Orissa High Court Issues Notice To Ex-DGP
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-issues-contempt-notice-exdgp-yb-khurania-prolonged-reinstatement-order-547463
-
-[Read on Telegram](https://t.me/livelawindia/118355)
-
----
 ### 2026-08-26T08:41:14+00:00
 LiveLaw Supreme Court Weekly Digest: August 1 - 12, 2026
 https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-weekly-digest-august-2026-547473
@@ -142,5 +100,47 @@ Empanelment Of Advocates Vacancy At Jawaharlal Nehru University
 https://www.livelaw.in/job-updates/empanelment-of-advocates-vacancy-at-jawaharlal-nehru-university-547496
 
 [Read on Telegram](https://t.me/livelawindia/118369)
+
+---
+### 2026-08-26T13:08:07+00:00
+Assistant Manager (Legal) Vacancy At Tata AIA Life Insurance Company Limited
+https://www.livelaw.in/job-updates/assistant-manager-legal-vacancy-at-tata-aia-life-insurance-company-limited-547497
+
+[Read on Telegram](https://t.me/livelawindia/118370)
+
+---
+### 2026-08-26T14:33:09+00:00
+Disclosure Without Verification: Reassessing India's Country-Of-Origin Rule For E-Commerce
+https://www.livelaw.in/articles/disclosure-without-verificatio-reassessing-india-rule-ecommerce-547420
+
+[Read on Telegram](https://t.me/livelawindia/118371)
+
+---
+### 2026-08-26T15:59:20+00:00
+BREAKING| CJI Surya Kant Responds To Justice Sandeep Mehta's Complaints Against Rajasthan HC Acting CJ, Says Issue Being Examined
+https://www.livelaw.in/top-stories/cji-surya-kant-responds-to-justice-sandeep-mehtas-letter-on-rajasthan-hc-cj-says-issue-being-examined-547507
+
+[Read on Telegram](https://t.me/livelawindia/118372)
+
+---
+### 2026-08-26T16:02:50+00:00
+Delhi Police Oppose Bail Pleas Of Sharjeel Imam, Umar Khalid In High Court, Says No Change In Circumstance
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-delhi-police-bail-pleas-sharjeel-imam-umar-khalid-delhi-riots-larger-conspiracy-case-547508
+
+[Read on Telegram](https://t.me/livelawindia/118373)
+
+---
+### 2026-08-26T16:04:50+00:00
+Criminal Summons Cannot Be Issued Against A 'Designation' Without Naming Person Holding It: Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-criminal-summons-issued-post-without-naming-person-547510
+
+[Read on Telegram](https://t.me/livelawindia/118374)
+
+---
+### 2026-08-26T16:28:30+00:00
+LiveLaw Allahabad High Court Weekly Round Up: August 17 - August 23, 2026
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-weekly-round-up-august-17-august-23-2026-547513
+
+[Read on Telegram](https://t.me/livelawindia/118375)
 
 ---
