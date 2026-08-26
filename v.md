@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-25T16:03:05+00:00*
+*Last Updated: 2026-08-26T07:02:56+00:00*
+
+---
+
+### 2026-08-26T07:02:56+00:00
+Recurring Writ Petitions Indicate Systemic Deficiency: Rajasthan High Court Issues Directions To Frame State Transfer Policy
+https://www.verdictum.in/rajasthan-high-court/dr-mahesh-meena-v-state-of-rajasthan-transfer-policy-government-employees-1620658
+
+[Source Link](https://t.me/verdictumlegalupdates/28740)
+
+---
+
+### 2026-08-26T06:12:45+00:00
+“Grim Picture Of IT Dept": Delhi High Court Orders ₹53 Cr Refund To Vodafone Idea, Says Form 26B Inapplicable Post-Assessment
+https://www.verdictum.in/delhi-high-court/vodafone-idea-limited-v-assistant-commissioner-of-income-tax-circle-781-new-delhi-2026dhc6989-db-grim-picture-of-it-dept-1620650
+
+[Source Link](https://t.me/verdictumlegalupdates/28739)
+
+---
+
+### 2026-08-26T05:22:24+00:00
+"Fully Justified": Delhi High Court Refuses To Recall Order Blocking Social Media Accounts For Contemptuous Posts Against Sitting Judge
+https://www.verdictum.in/delhi-high-court/delhi-high-court-bar-association-v-dr-kapil-kakar-2026dhc6999-db-recall-order-blocking-contemnors-accounts-1620645
+
+[Source Link](https://t.me/verdictumlegalupdates/28738)
+
+---
+
+### 2026-08-26T04:33:13+00:00
+Post-Incident Conduct Relevant To Assess Intention: Delhi High Court Acquits Husband Accused Of Attempting To Murder Wife
+https://www.verdictum.in/delhi-high-court/nafe-singh-v-state-2026dhc7091-husband-attempt-murder-wife-section-307-ipc-1620615
+
+[Source Link](https://t.me/verdictumlegalupdates/28737)
 
 ---
 
@@ -129,38 +161,6 @@ Calcutta High Court Grants Protection To TMC MP Abhishek Banerjee From Arrest In
 https://www.verdictum.in/calcutta-high-court/protection-to-tmc-mp-abhishek-banerjee-from-arrest-in-3-cases-1620590
 
 [Source Link](https://t.me/verdictumlegalupdates/28721)
-
----
-
-### 2026-08-25T08:02:55+00:00
-Repeated Threats & Prior Preparation Point To Premeditated Attack: Supreme Court Sets Aside Bail Granted To Murder Accused
-https://www.verdictum.in/supreme-court/yash-mahesh-gaikwad-v-state-of-maharashtra-2026-insc-917-relief-in-murder-case-1620583
-
-[Source Link](https://t.me/verdictumlegalupdates/28720)
-
----
-
-### 2026-08-25T07:22:34+00:00
-Supreme Court Grants Interim Protection To Journalist Abhishek Upadhyay Who Reported Ram Temple Donation Irregularities
-https://www.verdictum.in/supreme-court/grants-interim-protection-journalist-abhishek-upadhyay-ram-temple-donation-irregularities-1620588
-
-[Source Link](https://t.me/verdictumlegalupdates/28719)
-
----
-
-### 2026-08-25T07:02:33+00:00
-Supreme Court Issues Notice On Banerjee's Plea Seeking Expeditious Decision By Speaker Of Lok Sabha On Disqualification Of 20 Rebel TMC MPs
-https://www.verdictum.in/supreme-court/notice-banerjee-plea-seeking-hearing-disqualification-20-rebel-tmc-mps-1620584
-
-[Source Link](https://t.me/verdictumlegalupdates/28718)
-
----
-
-### 2026-08-25T06:32:32+00:00
-Weekly Overview| Supreme Court Judgments: August 17 - August 21, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-august-17-august-21-2026-1620576
-
-[Source Link](https://t.me/verdictumlegalupdates/28717)
 
 ---
 
