@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-26T03:07:06+00:00*
+*Last Updated: 2026-08-26T08:06:44+00:00*
 
 ---
 
-### 2026-08-26T03:07:06+00:00
-Supreme Court Refuses To Direct Reopening Of Poral To Reverify CBSE Class XII Answer Sheets
-https://www.livelaw.in/top-stories/supreme-court-refuses-to-direct-reopening-of-poral-to-reverify-cbse-class-xii-answer-sheets-547417
+### 2026-08-26T08:06:44+00:00
+'Taking Liberty Of Citizens For Granted': Karnataka High Court Raps Police For Arresting Man Despite Notice To Appear Two Days Later
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-warns-io-exemplary-cost-taking-man-custody-despite-notice-547461
 
-[Read on Telegram](https://t.me/livelawindia/118326)
-
----
-### 2026-08-26T03:33:06+00:00
-45-Day Delay In Informing Detenue Of Right To Represent To Centre Violates Article 22(5): P&H High Court Quashes Preventive Detention
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/preventive-detention-45-day-delay-informing-detenu-right-to-represent-centre-article-225-547370
-
-[Read on Telegram](https://t.me/livelawindia/118327)
+[Read on Telegram](https://t.me/livelawindia/118350)
 
 ---
-### 2026-08-26T03:48:46+00:00
-Justice Sandeep Mehta Urges CJI Surya Kant To Replace Rajasthan HC Acting CJ SP Sharma For 'Questionable Activities'
-https://www.livelaw.in/top-stories/justice-sandeep-mehta-urges-cji-surya-kant-to-replace-rajasthan-hc-acting-cj-sp-sharma-for-questionable-activities-547421
+### 2026-08-26T08:17:24+00:00
+Bovine Animals Being Transported Without Permission Is Not Grounds For Preventive Detention: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/bovine-animals-transported-without-permission-not-sufficient-ground-for-preventive-detention-detaining-authority-must-record-satisfaction-of-threat-to-public-order-jk-high-court-547445
 
-[Read on Telegram](https://t.me/livelawindia/118328)
-
----
-### 2026-08-26T04:02:56+00:00
-Delhi High Court Directs State To Decide Representation Objecting To Biometric Attendance Of Public Prosecutors
-https://www.livelaw.in/high-court/delhi-high-court/delhi-govt-decide-objections-to-public-prosecutors-biometric-attendance-547413
-
-[Read on Telegram](https://t.me/livelawindia/118329)
+[Read on Telegram](https://t.me/livelawindia/118351)
 
 ---
-### 2026-08-26T04:23:37+00:00
-Delhi Court Refuses To Stay Eviction Order Issued To Delhi Race Club
-https://www.livelaw.in/news-updates/delhi-court-refuses-stay-eviction-order-delhi-race-club-547422
+### 2026-08-26T08:17:44+00:00
+3-Year LLM Course Enables Lawyers To Continue Practice While Simultaneously Pursuing Masters Program: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-3-year-llm-advocate-practice-with-masters-programme-547462
 
-[Read on Telegram](https://t.me/livelawindia/118330)
-
----
-### 2026-08-26T04:32:37+00:00
-'Unclean Hands': Delhi High Court Dismisses PIL Challenging IFCI's NSE Share Divestment, Imposes ₹5 Lakh Costs
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-pil-ifci-ltds-divestment-of-shareholding-in-nse-547414
-
-[Read on Telegram](https://t.me/livelawindia/118331)
+[Read on Telegram](https://t.me/livelawindia/118352)
 
 ---
-### 2026-08-26T04:32:57+00:00
-Rethinking "Compassionate Appointment"
-https://www.livelaw.in/articles/rethinking-compassionate-appointment-547418
+### 2026-08-26T08:22:54+00:00
+Acquittal Under Section 498A IPC Does Not Bar Proceedings Under Domestic Violence Act: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/acquittal-section-498a-ipc-not-bar-proceedings-domestic-violence-act-547448
 
-[Read on Telegram](https://t.me/livelawindia/118332)
-
----
-### 2026-08-26T04:37:57+00:00
-Supreme Court Weekly Roundup: August 17, 2026 To August 23, 2026
-https://www.livelaw.in/round-ups/weekly/supreme-court-weekly-roundup-august-17-2026-to-august-23-2026-547315
-
-[Read on Telegram](https://t.me/livelawindia/118333)
+[Read on Telegram](https://t.me/livelawindia/118353)
 
 ---
-### 2026-08-26T04:43:07+00:00
-Rajasthan High Court Directs Compassionate Appointment 21 Years After Employee's Death, Says Financial Crisis Has Not Ended
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-grants-compassionate-appointment-relief-pensionary-benefits-547415
+### 2026-08-26T08:28:14+00:00
+CBSE, CISCE Schools In UP Not Exempt From RTE Obligations: Allahabad High Court Seeks 5-Yr Data On Denied Admissions, Fee Complaints
+https://www.livelaw.in/high-court/allahabad-high-court/private-schools-cbse-cisce-up-rte-obligations-allahabad-hc-five-year-admission-data-547470
 
-[Read on Telegram](https://t.me/livelawindia/118334)
-
----
-### 2026-08-26T04:53:07+00:00
-Deceased Train Passenger Cannot Be Presumed Ticketless Merely Because Ticket Is Not Recovered: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/deceased-train-passenger-cannot-be-presumed-ticketless-merely-because-ticket-is-not-recovered-calcutta-high-court-547342
-
-[Read on Telegram](https://t.me/livelawindia/118335)
+[Read on Telegram](https://t.me/livelawindia/118354)
 
 ---
-### 2026-08-26T05:02:28+00:00
-Judicial Infrastructure Is 'Constitutional Duty', Financial Constraints No Excuse: MP High Court Asks State To Prioritise Pending Court Projects
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/judicial-infrastructure-court-building-state-financial-constraints-547416
+### 2026-08-26T08:32:54+00:00
+Retirement No Ground To Drop Contempt Proceedings For Non-Compliance Of Court Order: Orissa High Court Issues Notice To Ex-DGP
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-issues-contempt-notice-exdgp-yb-khurania-prolonged-reinstatement-order-547463
 
-[Read on Telegram](https://t.me/livelawindia/118336)
-
----
-### 2026-08-26T05:42:39+00:00
-Delhi Riots: Tahir Hussain Moves High Court Against Conviction In IB Staffer Ankit Sharma Murder Case
-https://www.livelaw.in/high-court/delhi-high-court/tahir-hussain-delhi-high-court-547437
-
-[Read on Telegram](https://t.me/livelawindia/118337)
+[Read on Telegram](https://t.me/livelawindia/118355)
 
 ---
-### 2026-08-26T05:42:59+00:00
-Dowry Prohibition | Supreme Court Issues Directions For Strict Enforcement, Social Awareness & Speedy Trials
-https://www.livelaw.in/supreme-court/dowry-prohibition-supreme-court-issues-directions-for-strict-enforcement-social-awareness-speedy-trials-547316
+### 2026-08-26T08:41:14+00:00
+LiveLaw Supreme Court Weekly Digest: August 1 - 12, 2026
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-weekly-digest-august-2026-547473
 
-[Read on Telegram](https://t.me/livelawindia/118338)
-
----
-### 2026-08-26T05:57:39+00:00
-Kerala High Court Dismisses Expelled Congress Leader Simi Bell Rose John's Police Protection Plea Against CM VD Satheesan
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-simi-bell-rose-john-police-protection-vd-satheesan-547439
-
-[Read on Telegram](https://t.me/livelawindia/118339)
+[Read on Telegram](https://t.me/livelawindia/118356)
 
 ---
-### 2026-08-26T06:32:22+00:00
-Allahabad High Court Pushes For Direct Court Access To Medical, Forensic Records In Criminal Cases
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-access-medical-forensic-records-criminal-cases-integrated-digital-system-547441
+### 2026-08-26T08:47:14+00:00
+Spouses Living In Separate Rooms Not Cruelty Per Se, But Cumulative Effect Of Prolonged Discord Relevant: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-living-separate-rooms-within-same-house-not-cruelty-547471
 
-[Read on Telegram](https://t.me/livelawindia/118340)
-
----
-### 2026-08-26T06:48:22+00:00
-Delhi High Court Directs Centre To Decide In Two Months Plea Seeking Constitution Of National Nursing & Midwifery Commission
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-centre-plea-constitution-of-national-nursing-and-midwifery-commission-547442
-
-[Read on Telegram](https://t.me/livelawindia/118341)
+[Read on Telegram](https://t.me/livelawindia/118357)
 
 ---
-### 2026-08-26T06:48:52+00:00
-Trap Laying Officers Must Independently Corroborate Alleged Demand Before Proceeding: J&K&L High Court Acquits Accused In Corruption Case
-https://www.livelaw.in/high-court/jammu-kashmir/trap-laying-officers-must-independently-corroborate-alleged-demand-before-proceeding-jk-high-court-acquits-accused-in-corruption-case-547444
+### 2026-08-26T08:58:54+00:00
+Party-In-Person Uses 'Contemptuous' Language Against Judge In Petition, Allahabad High Court Registers Criminal Contempt Case
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-criminal-contempt-contemptuous-language-judge-review-plea-547475
 
-[Read on Telegram](https://t.me/livelawindia/118342)
-
----
-### 2026-08-26T06:52:33+00:00
-'Dependent' Under WB Tenancy Act Must Have Financial Element; Psychological Dependence Not Enough: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/dependent-under-wb-tenancy-act-must-have-financial-element-psychological-dependence-not-enough-calcutta-high-court-547344
-
-[Read on Telegram](https://t.me/livelawindia/118343)
+[Read on Telegram](https://t.me/livelawindia/118358)
 
 ---
-### 2026-08-26T06:52:53+00:00
-Resisting Own Medical Examination Does Not Amount To Obstructing Public Servant In Discharge Of Duties: Supreme Court
-https://www.livelaw.in/supreme-court/resisting-own-medical-examination-does-not-amount-to-obstructing-public-servant-in-discharge-of-duties-supreme-court-547322
+### 2026-08-26T09:27:25+00:00
+Delhi Court Convicts Sukesh Chandrashekhar For Impersonating Supreme Court Judge To Pressurize Judicial Officer To Grant Him Bail
+https://www.livelaw.in/news-updates/delhi-court-convicts-sukesh-chandrashekhar-impersonating-sc-judge-pressurize-judicial-officer-grant-bail-547476
 
-[Read on Telegram](https://t.me/livelawindia/118344)
+[Read on Telegram](https://t.me/livelawindia/118359)
 
 ---
-### 2026-08-26T06:55:33+00:00
-'Maintenance For Autistic Child Cannot Automatically Stop At 18 Yrs, Must Continue Till Child Is Capable To Earn': Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/maintenance-child-autism-cannot-stop-18-547447
+### 2026-08-26T09:32:25+00:00
+Before You Burn Down Your Dreams, Remember You Can't Build Them Alone
+https://www.livelaw.in/articles/before-you-burn-down-your-dreams-remember-you-cant-build-them-alone-547419
 
-[Read on Telegram](https://t.me/livelawindia/118345)
+[Read on Telegram](https://t.me/livelawindia/118360)
+
+---
+### 2026-08-26T09:53:05+00:00
+DNA Evidence Alone Does Not Establish Absence Of Consent In POCSO Cases, Must Be Assessed With Victim's Testimony: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/dna-evidence-alone-does-not-establish-absence-of-consent-its-effect-must-be-assessed-with-prosecutrixs-testimony-at-trial-jk-high-court-grants-bail-547446
+
+[Read on Telegram](https://t.me/livelawindia/118361)
+
+---
+### 2026-08-26T09:57:25+00:00
+Calcutta High Court Quashes Criminal Case After Noting Complaint Was Filed 8 Years After Accused's Death
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-quashes-criminal-case-after-noting-complaint-was-filed-8-years-after-accuseds-death-547346
+
+[Read on Telegram](https://t.me/livelawindia/118362)
+
+---
+### 2026-08-26T10:31:36+00:00
+Orissa High Court Commutes Death Sentence Of Man Who Stabbed Wife 49 Times And Slit Daughter's Throat, Says Emotions Can't Replace Law
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-commutes-death-sentence-murdered-wife-stabbing-49times-547482
+
+[Read on Telegram](https://t.me/livelawindia/118363)
+
+---
+### 2026-08-26T10:47:37+00:00
+'No Right To Take Any Particular Route For Religious Procession Under Article 25': Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/no-right-take-particular-route-religious-procession-article-25-547449
+
+[Read on Telegram](https://t.me/livelawindia/118364)
+
+---
+### 2026-08-26T11:03:27+00:00
+LiveLaw Supreme Court Half-Yearly Digest 2026 - Motor Vehicles Act, 1980
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-half-yearly-digest-2026-motor-vehicles-act-547487
+
+[Read on Telegram](https://t.me/livelawindia/118365)
+
+---
+### 2026-08-26T11:12:27+00:00
+Husband Undertaking To Pay Business Liability Doesn't Exonerate Wife From Cheque Bounce Trial: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-wife-who-gave-husband-power-of-attorney-to-act-on-her-behalf-cant-escape-s138-ni-act-liability-547484
+
+[Read on Telegram](https://t.me/livelawindia/118366)
+
+---
+### 2026-08-26T12:12:37+00:00
+Jail Manual Rules Govern Disciplinary Action, Cannot Be Used To Prove Criminal Charge: Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-jail-manual-rules-govern-disciplinary-action-547451
+
+[Read on Telegram](https://t.me/livelawindia/118367)
+
+---
+### 2026-08-26T12:23:17+00:00
+Associate (Tax) Vacancy At Ernst & Young [Mumbai; Apply Now]
+https://www.livelaw.in/job-updates/associate-tax-vacancy-at-ernst-young-mumbai-547495
+
+[Read on Telegram](https://t.me/livelawindia/118368)
+
+---
+### 2026-08-26T12:36:27+00:00
+Empanelment Of Advocates Vacancy At Jawaharlal Nehru University
+https://www.livelaw.in/job-updates/empanelment-of-advocates-vacancy-at-jawaharlal-nehru-university-547496
+
+[Read on Telegram](https://t.me/livelawindia/118369)
 
 ---
