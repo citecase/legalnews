@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-26T16:03:17+00:00*
+*Last Updated: 2026-08-27T09:52:58+00:00*
+
+---
+
+### 2026-08-27T09:52:58+00:00
+Extended Limitation U/S 74 CGST Act Cannot Be Invoked Based On Mechanical Recital Of Suppression: Supreme Court
+https://www.verdictum.in/supreme-court/ms-tata-steel-limited-v-union-of-india-through-the-secretary-ministry-of-finance-and-ors-2026-insc-920-1620739
+
+[Source Link](https://t.me/verdictumlegalupdates/28760)
+
+---
+
+### 2026-08-27T09:12:18+00:00
+Section 239 BNS Punishes Breach Of Legal Duty, Not Mere Silence After Knowledge Of Offence: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/palecanda-ponnappa-vishal-v-the-state-of-karnataka-and-another-section-239-bns-1620736
+
+[Source Link](https://t.me/verdictumlegalupdates/28759)
+
+---
+
+### 2026-08-27T08:32:57+00:00
+Offence Of Transportation Of Bovine Animals Without Permission Is Insufficient Ground To Invoke Preventive Detention: Jammu & Kashmir And Ladakh HC
+https://www.verdictum.in/jammu-ladakh-high-court/2026jklhcjmu-2716-sabeer-ahmed-v-ut-of-jammu-kashmir-1620733
+
+[Source Link](https://t.me/verdictumlegalupdates/28758)
+
+---
+
+### 2026-08-27T07:52:36+00:00
+Attainment Of Age Of Majority Will Not Result In Cessation Of Right To Receive Maintenance For Disabled Child: Chhattisgarh High Court
+https://www.verdictum.in/chhattisgarh-high-court/a-v-b-2026cghc37889-age-majority-maintenance-disabled-child-1620729
+
+[Source Link](https://t.me/verdictumlegalupdates/28757)
+
+---
+
+### 2026-08-27T07:12:55+00:00
+Gujarat High Court Quashes GST Orders After Officer Relies On AI-Generated Non-Existent Judgments
+https://www.verdictum.in/gujarat-high-court/faiz-enterprise-v-state-tax-officer-2026gujhc53490-db-gst-orders-quashed-ai-generated-judgments-1620726
+
+[Source Link](https://t.me/verdictumlegalupdates/28756)
+
+---
+
+### 2026-08-27T06:33:14+00:00
+Critical Gap In Inter-agency Coordination: Bombay High Court Orders Action Against Illegal Infiltrator Who Obtained Passport Using Fake Aadhaar
+https://www.verdictum.in/bombay-high-court/action-against-illegal-infiltrator-obtained-passport-fake-aadhaar-1620718
+
+[Source Link](https://t.me/verdictumlegalupdates/28755)
+
+---
+
+### 2026-08-27T05:52:53+00:00
+Non Obstante Clause Is A Legislative Device: Supreme Court Upholds Notification Fastening Customs Duty Liability On Mumbai Port Trust For Pilfered Goods
+https://www.verdictum.in/supreme-court/union-of-india-v-the-board-of-trustees-of-the-port-of-bombay-2026-insc-919-customs-duty-liability-on-mumbai-port-trust-for-pilfered-goods-1620713
+
+[Source Link](https://t.me/verdictumlegalupdates/28754)
+
+---
+
+### 2026-08-27T05:12:33+00:00
+Needs Consistent Monitoring: Delhi High Court Constitutes Committee To Oversee Rehabilitation & Relocation Of Jhuggi Jhopri Dwellers
+https://www.verdictum.in/delhi-high-court/rakesh-bansal-v-union-of-india-2026dhc7196-db-rehabilitation-jhuggi-jhopri-1620708
+
+[Source Link](https://t.me/verdictumlegalupdates/28753)
+
+---
+
+### 2026-08-27T04:32:42+00:00
+“Unable To Turn A Nelson's Eye": P&H High Court Grants Interim Bail In NDPS Case Over Repeated Non-Appearance Of Police Witnesses, Orders Personal Appearance Of DGP
+https://www.verdictum.in/punjab-and-haryana-high-court/naseeb-singh-v-state-of-punjab-crm-m-29778-2026-repeated-non-appearance-of-police-witnesses-1620686
+
+[Source Link](https://t.me/verdictumlegalupdates/28752)
 
 ---
 
@@ -89,78 +161,6 @@ Paying Part-Time Teachers Below Unskilled Minimum Wages Arbitrary: Delhi High Co
 https://www.verdictum.in/delhi-high-court/punjabi-academy-and-anr-v-avtar-singh-and-anr-2026dhc7097-db-part-time-teacher-wages-1620662
 
 [Source Link](https://t.me/verdictumlegalupdates/28741)
-
----
-
-### 2026-08-26T07:02:56+00:00
-Recurring Writ Petitions Indicate Systemic Deficiency: Rajasthan High Court Issues Directions To Frame State Transfer Policy
-https://www.verdictum.in/rajasthan-high-court/dr-mahesh-meena-v-state-of-rajasthan-transfer-policy-government-employees-1620658
-
-[Source Link](https://t.me/verdictumlegalupdates/28740)
-
----
-
-### 2026-08-26T06:12:45+00:00
-“Grim Picture Of IT Dept": Delhi High Court Orders ₹53 Cr Refund To Vodafone Idea, Says Form 26B Inapplicable Post-Assessment
-https://www.verdictum.in/delhi-high-court/vodafone-idea-limited-v-assistant-commissioner-of-income-tax-circle-781-new-delhi-2026dhc6989-db-grim-picture-of-it-dept-1620650
-
-[Source Link](https://t.me/verdictumlegalupdates/28739)
-
----
-
-### 2026-08-26T05:22:24+00:00
-"Fully Justified": Delhi High Court Refuses To Recall Order Blocking Social Media Accounts For Contemptuous Posts Against Sitting Judge
-https://www.verdictum.in/delhi-high-court/delhi-high-court-bar-association-v-dr-kapil-kakar-2026dhc6999-db-recall-order-blocking-contemnors-accounts-1620645
-
-[Source Link](https://t.me/verdictumlegalupdates/28738)
-
----
-
-### 2026-08-26T04:33:13+00:00
-Post-Incident Conduct Relevant To Assess Intention: Delhi High Court Acquits Husband Accused Of Attempting To Murder Wife
-https://www.verdictum.in/delhi-high-court/nafe-singh-v-state-2026dhc7091-husband-attempt-murder-wife-section-307-ipc-1620615
-
-[Source Link](https://t.me/verdictumlegalupdates/28737)
-
----
-
-### 2026-08-25T16:03:05+00:00
-Senior Assistant Officer (Law) Vacancy At NTPC-SAIL Power Company Limited (NSPCL)
-https://www.verdictum.in/job-updates/ntpc-sail-power-company-limited-1620613
-
-[Source Link](https://t.me/verdictumlegalupdates/28736)
-
----
-
-### 2026-08-25T15:32:40+00:00
-Clear Violation Of Basic Human Rights: Madras High Court Imposes ₹5L Costs On Man For Forcibly Taking Away Daughter
-https://www.verdictum.in/madras-high-court/a-v-b-2026khc44795-violation-human-rights-daughter-mother-1620612
-
-[Source Link](https://t.me/verdictumlegalupdates/28735)
-
----
-
-### 2026-08-25T15:03:18+00:00
-Allahabad High Court Strikes Down Key Provisions Of UP Regulation of Urban Premises Tenancy Act 2021
-https://www.verdictum.in/allahabad-high-court/inder-bhushandead-and-2-others-neutral-citation-2026ahc177234-db-1620611
-
-[Source Link](https://t.me/verdictumlegalupdates/28734)
-
----
-
-### 2026-08-25T14:32:37+00:00
-Delhi HC Closes Former Congress Leader Sajjan Kumar's Appeal Against Conviction In 1984 Anti-Sikh Riots Following His Death
-https://www.verdictum.in/delhi-high-court/former-congress-leader-sajjan-kumars-appeal-against-conviction-anti-sikh-riots-closed-1620610
-
-[Source Link](https://t.me/verdictumlegalupdates/28733)
-
----
-
-### 2026-08-25T14:03:17+00:00
-Marriage Not License To Control; Can’t Command Wife To Do Household Activities Or Look After In-laws: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/a-v-b-2026khc40326-marriage-control-wife-household-activities-in-laws-1620609
-
-[Source Link](https://t.me/verdictumlegalupdates/28732)
 
 ---
 
