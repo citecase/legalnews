@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-27T09:52:58+00:00*
+*Last Updated: 2026-08-27T14:33:05+00:00*
+
+---
+
+### 2026-08-27T14:33:05+00:00
+Empanelment Of Advocates At Jawaharlal Nehru University (JNU)
+https://www.verdictum.in/job-updates/jawaharlal-nehru-university-1620752
+
+[Source Link](https://t.me/verdictumlegalupdates/28768)
+
+---
+
+### 2026-08-27T13:52:44+00:00
+Karnataka High Court Directs State To Frame Interim Compensation Scheme For Victims & Next Of Kin In Mob Violence & Lynching Cases Within 3 Months
+https://www.verdictum.in/karnataka-high-court/abdul-jabbar-v-sachin-and-connected-matters-2026khc44907-bail-mob-lynching-1620751
+
+[Source Link](https://t.me/verdictumlegalupdates/28767)
+
+---
+
+### 2026-08-27T13:12:23+00:00
+Summons Cannot Be Issued To A Post Without Naming Person: Jharkhand High Court
+https://www.verdictum.in/jharkhand-high-court/ms-hinduja-leyland-finance-limited-v-state-of-jharkhand-2026jhhc25542-summon-post-name-person-1620750
+
+[Source Link](https://t.me/verdictumlegalupdates/28766)
+
+---
+
+### 2026-08-27T12:32:23+00:00
+CJI Surya Kant And Rajasthan High Court's Bar Critical Of Release Of Justice Sandeep Mehta's Letters To Media
+https://www.verdictum.in/news/cji-surya-kant-rajasthan-high-court-bar-critical-justice-sandeep-mehta-letters-media-1620760
+
+[Source Link](https://t.me/verdictumlegalupdates/28765)
+
+---
+
+### 2026-08-27T11:52:22+00:00
+No Prima Facie Material To Demonstrate Alleged Imputation: Delhi High Court Quashes Defamation Case Against Senior Advocate Pinaki Misra
+https://www.verdictum.in/delhi-high-court/2026-dhc-7169-pinaki-misra-v-state-defamation-1620744
+
+[Source Link](https://t.me/verdictumlegalupdates/28764)
+
+---
+
+### 2026-08-27T11:12:42+00:00
+Calcutta High Court Refuses To Pass Interim Order Permitting TMC's Mamata Faction To Operate Four Frozen Bank Accounts
+https://www.verdictum.in/calcutta-high-court/interim-order-permitting-tmcs-mamata-faction-to-operate-four-frozen-bank-accounts-refused-1620742
+
+[Source Link](https://t.me/verdictumlegalupdates/28763)
+
+---
+
+### 2026-08-27T10:47:00+00:00
+Centre Notifies Appointment Of Judicial Officers As Judges Of Himachal Pradesh High Court
+https://www.verdictum.in/court-updates/high-courts/appointment-of-judicial-officers-as-judges-of-himachal-pradesh-high-court-1620741
+
+[Source Link](https://t.me/verdictumlegalupdates/28762)
+
+---
+
+### 2026-08-27T10:32:39+00:00
+Widow’s Remarriage Does Not Divest Her Daughter Of Deceased Coparcener’s Share: Madras High Court
+https://www.verdictum.in/madras-high-court/k-duraisamy-v-dhanalakshmi-died-widow-remarriage-daughter-coparcener-share-1620740
+
+[Source Link](https://t.me/verdictumlegalupdates/28761)
 
 ---
 
@@ -97,70 +161,6 @@ Principles Of Territorial Jurisdiction Cannot Be Diluted Due To Internet: Delhi 
 https://www.verdictum.in/delhi-high-court/hindustan-unilever-limited-v-kwick-living-i-private-limited-2026dhc7198-larger-bench-online-trade-mark-infringement-1620682
 
 [Source Link](https://t.me/verdictumlegalupdates/28749)
-
----
-
-### 2026-08-26T13:02:54+00:00
-Missing Ticket Does Not Make Deceased Rail Passenger Ticketless, Benefit Of Doubt Must Go To Family: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/2026chcas1302-anamika-halder-v-union-of-india-1620681
-
-[Source Link](https://t.me/verdictumlegalupdates/28748)
-
----
-
-### 2026-08-26T12:02:53+00:00
-PITNDPS Act- Unexplained Delay In Informing Detenue Of Right To Represent To Central Govt Violates Article 22(5): Punjab & Haryana High Court
-https://www.verdictum.in/punjab-and-haryana-high-court/bala-v-ut-chandigarh-and-others-2026phhc115366-preventive-detention-1620678
-
-[Source Link](https://t.me/verdictumlegalupdates/28747)
-
----
-
-### 2026-08-26T11:12:52+00:00
-Madhya Pradesh HC Allows SAF Constables In TA Bill Scam To Withdraw 50% Salary From Frozen Accounts For Subsistence
-https://www.verdictum.in/madhya-pradesh-high-court/2026mphcjbp-65132-astik-shukla-v-state-of-mp-1620677
-
-[Source Link](https://t.me/verdictumlegalupdates/28746)
-
----
-
-### 2026-08-26T10:32:11+00:00
-Frame Policy To Regulate E-Rickshaws: Allahabad High Court Calls For Separate Traffic Police Cadre
-https://www.verdictum.in/allahabad-high-court/suraj-singh-visen-v-state-of-up-thru-prin-secy-urban-development-lko-wpil-no-329-of-2026-regulate-e-rickshaws-traffic-police-cadre-1620675
-
-[Source Link](https://t.me/verdictumlegalupdates/28745)
-
----
-
-### 2026-08-26T09:52:50+00:00
-"Three Times Is Enemy Action": Delhi High Court Quotes James Bond To Vacate Ex-Parte Injunction Obtained By Suppression
-https://www.verdictum.in/delhi-high-court/nugenesys-pharmaceuticals-pvt-ltd-v-celagenex-research-india-pvt-ltd-2026dhc6947-db-james-bond-vacate-ex-parte-injunction-1620674
-
-[Source Link](https://t.me/verdictumlegalupdates/28744)
-
----
-
-### 2026-08-26T09:12:29+00:00
-Mere Non-Disclosure Of Marital Status Not Cheating U/S 420 IPC: Chhattisgarh High Court Quashes Proceedings Against Wife
-https://www.verdictum.in/chhattisgarh-high-court/r-v-state-of-chhattisgarh-2026cghc35538-db-cheating-and-bigamy-proceedings-against-woman-1620672
-
-[Source Link](https://t.me/verdictumlegalupdates/28743)
-
----
-
-### 2026-08-26T08:32:28+00:00
-Son Can’t Claim Coparcenary Share In Property Inherited By Father U/S 8 Hindu Succession Act Without HUF Plea: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/devaram-v-khetaram-ors-2026rj-jd40614-hindu-undivided-family-succession-1620667
-
-[Source Link](https://t.me/verdictumlegalupdates/28742)
-
----
-
-### 2026-08-26T07:52:37+00:00
-Paying Part-Time Teachers Below Unskilled Minimum Wages Arbitrary: Delhi High Court Upholds Pay Hike For Punjabi Academy Teachers
-https://www.verdictum.in/delhi-high-court/punjabi-academy-and-anr-v-avtar-singh-and-anr-2026dhc7097-db-part-time-teacher-wages-1620662
-
-[Source Link](https://t.me/verdictumlegalupdates/28741)
 
 ---
 
