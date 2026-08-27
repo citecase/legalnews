@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-27T05:47:39+00:00*
+*Last Updated: 2026-08-27T10:02:52+00:00*
 
 ---
 
-### 2026-08-27T05:47:39+00:00
-Rajasthan High Court Dismisses Plea Against Municipal Poll Reservation, Cites Article 243-ZG Bar
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-dismisses-plea-against-municipal-poll-reservation-547544
+### 2026-08-27T10:02:52+00:00
+State Can't Deny Interest On GPF Amount Retained Beyond Retirement : HP HC
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/state-cant-deny-interest-on-gpf-amount-retained-beyond-retirement-hp-hc-547583
 
-[Read on Telegram](https://t.me/livelawindia/118400)
-
----
-### 2026-08-27T06:02:39+00:00
-Extension Of Land Acquisition Timeline Should Also Extend Landowners' Time To File Objections: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-extension-land-acquisition-timeline-extends-landowners-time-file-objections-547545
-
-[Read on Telegram](https://t.me/livelawindia/118401)
+[Read on Telegram](https://t.me/livelawindia/118427)
 
 ---
-### 2026-08-27T06:13:59+00:00
-Tamil Nadu CM Joseph Vijay, Minister Aadhav Arjuna Move High Court Seeking Rejection Of Election Petitions Challenging Their 2026 Poll Victory
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-cm-joseph-vijay-minister-aadhav-arjuna-file-application-reject-election-petition-547551
+### 2026-08-27T10:33:52+00:00
+Grabbing & Pressing Woman's Shoulder, Shoving Her Away May Outrage Her Modesty; Not Sexual Harassment: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/grabbing-pressing-womans-shoulder-shoving-her-away-not-sexual-harassment-but-outrages-modesty-547600
 
-[Read on Telegram](https://t.me/livelawindia/118402)
-
----
-### 2026-08-27T06:17:19+00:00
-Former Congress Minister Yogendra Sao Acquitted In NTPC Protest Case; Jharkhand High Court Finds No Evidence Of Assault Or Instigation
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-former-congress-minister-yogendra-sao-acquitted-ntpc-protest-case-547511
-
-[Read on Telegram](https://t.me/livelawindia/118403)
+[Read on Telegram](https://t.me/livelawindia/118428)
 
 ---
-### 2026-08-27T06:22:59+00:00
-Madras High Court Issues Notice On Plea Challenging TN Govt's Decision To Sell Alcohol Online Through TASMAC Booking Portal
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-tasmac-online-sale-challenge-notice-issued-547553
+### 2026-08-27T10:44:22+00:00
+BCI Appoints Punjab Advocate General Maninderjit Singh Bedi As Interim Chairman Of Bar Council Of Punjab & Haryana
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-bci-appoints-punjab-advocate-general-maninderjit-singh-bedi-as-interim-chairman-of-bar-council-547603
 
-[Read on Telegram](https://t.me/livelawindia/118404)
-
----
-### 2026-08-27T06:29:49+00:00
-Calcutta High Court Quashes Cruelty Case Against Husband's Students, Girlfriend, Says They Are Not 'Relatives' U/S 85 BNS
-https://www.livelaw.in/high-court/calcutta-high-court/husbands-students-or-girlfriend-cannot-be-prosecuted-as-relatives-in-cruelty-case-us-498a-ipc-calcutta-high-court-547555
-
-[Read on Telegram](https://t.me/livelawindia/118405)
+[Read on Telegram](https://t.me/livelawindia/118429)
 
 ---
-### 2026-08-27T06:32:29+00:00
-Telangana High Court Directs Forest Officials Not To Interfere With Mosque, Madrasa At Ananthagiri Hills Without Due Process
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-directs-forest-officials-interfere-ananthagiri-hills-mosque-547546
+### 2026-08-27T10:54:43+00:00
+Calcutta High Court Disposes Of BJP Leader Arjun Singh's Plea After State Says 10 FIRs Against Him Were Closed As 'Mistake Of Fact'
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-disposes-of-plea-by-bjp-leader-arjun-singh-after-state-says-firs-against-him-were-closed-as-mistake-of-fact-547606
 
-[Read on Telegram](https://t.me/livelawindia/118406)
-
----
-### 2026-08-27T06:33:09+00:00
-'There Has To Be Uniformity' : Supreme Court Rejects Challenge To Tune Prescribed For Karnataka State Anthem
-https://www.livelaw.in/top-stories/supreme-court-rejects-challenge-to-karnataka-state-anthem-tune-547524
-
-[Read on Telegram](https://t.me/livelawindia/118407)
+[Read on Telegram](https://t.me/livelawindia/118430)
 
 ---
-### 2026-08-27T06:47:09+00:00
-Krishna Janmabhoomi Case | UP Administration Makes Security Arrangements Amid Concern Over 'Kar Seva', Allahabad High Court Informed
-https://www.livelaw.in/high-court/allahabad-high-court/krishna-janmabhoomi-up-administration-security-arrangements-kar-seva-allahabad-hc-547557
+### 2026-08-27T11:07:43+00:00
+Telangana High Court Upholds Penalty On Life Convict Who Jumped Parole For 40-Yrs, Became Govt Teacher, Received 'Best Teacher Award'
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-life-convict-jumped-parole-40years-govt-teacher-retired-from-service-547609
 
-[Read on Telegram](https://t.me/livelawindia/118408)
-
----
-### 2026-08-27T06:48:09+00:00
-'Victim Not Raising Alarm Highly Unnatural': MP High Court Upholds Acquittal In Minor's Sexual Assault Case
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-upholds-acquittal-of-man-notes-victim-not-raising-an-alarm-as-highly-unnatural-547547
-
-[Read on Telegram](https://t.me/livelawindia/118409)
+[Read on Telegram](https://t.me/livelawindia/118431)
 
 ---
-### 2026-08-27T06:51:49+00:00
-Delhi High Court Quashes Criminal Defamation Case Against Senior Advocate Pinaki Misra, Finds No 'Prima Facie' Case
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-defamation-case-senior-advocate-pinaki-misra-547559
+### 2026-08-27T11:16:03+00:00
+Gauhati High Court Legal Services Committee Constitutes Dedicated Panel For Legal Representation In Death References, Appeals
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-legal-services-committee-constitutes-panel-legal-representation-death-sentence-reference-cases-547611
 
-[Read on Telegram](https://t.me/livelawindia/118410)
-
----
-### 2026-08-27T07:02:29+00:00
-S.126 Electricity Act Can't Be Invoked For Every Regulatory Violation; 'Unauthorised Use' Must First Be Established: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-section126-electricity-act-invoked-regulatory-violations-547549
-
-[Read on Telegram](https://t.me/livelawindia/118411)
+[Read on Telegram](https://t.me/livelawindia/118432)
 
 ---
-### 2026-08-27T07:43:20+00:00
-NLSIU Cancels Convocation For 2026 Batch Citing 'Unavoidable Circumstances'
-https://www.livelaw.in/news-updates/nlsiu-cancels-annual-convocation-547567
+### 2026-08-27T11:32:03+00:00
+Kerala High Court Orders Reconsideration Of Lulu Hypermarket Land Conversion After RDO Skipped Mandatory Agricultural Officer Report
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-lulu-hypermarket-thrissur-paddy-land-547610
 
-[Read on Telegram](https://t.me/livelawindia/118412)
-
----
-### 2026-08-27T07:48:00+00:00
-LiveLaw Karnataka High Court Weekly Round Up- August 17 - August 23, 2026
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-roundup-547565
-
-[Read on Telegram](https://t.me/livelawindia/118413)
+[Read on Telegram](https://t.me/livelawindia/118433)
 
 ---
-### 2026-08-27T07:59:00+00:00
-Juvenile Sent To Judicial Custody In 5-Yr Offence: Allahabad High Court Warns Police, Magistrates Against Careless Arrest, Remand
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-juvenile-judicial-custody-5-yearr-offence-warns-police-magistrates-careless-arrest-remand-547571
+### 2026-08-27T11:42:13+00:00
+'Stop This Police Raj': Karnataka High Court Imposes ₹3 Lakh Personal Costs On IO & Superiors Over Illegal Arrest
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-police-arresting-witness-will-despite-notice-appear-later-547615
 
-[Read on Telegram](https://t.me/livelawindia/118414)
-
----
-### 2026-08-27T08:02:40+00:00
-Barber Hit By Vehicle While Running Shop On Footpath Can't Be Blamed For Contributory Negligence: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-barber-shop-hit-offending-vehicle-contributory-negligence-547568
-
-[Read on Telegram](https://t.me/livelawindia/118415)
+[Read on Telegram](https://t.me/livelawindia/118434)
 
 ---
-### 2026-08-27T08:06:10+00:00
-Calcutta High Court Denies Further Interim Relief To TMC Over Alleged Freeze Of Four More Bank Accounts By State Police
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-denies-further-interim-relief-to-tmc-over-alleged-freeze-of-four-more-bank-accounts-by-state-police-547572
+### 2026-08-27T11:55:53+00:00
+'Safe Harbour Protects Us, Have Done Due Diligence': Amazon Tells Karnataka High Court In Ravi Belagere Novel Piracy Case
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-heli-hogu-kaarana-amazon-547616
 
-[Read on Telegram](https://t.me/livelawindia/118416)
-
----
-### 2026-08-27T08:18:10+00:00
-Deed Writer Performing Professional Duty Cannot Be Implicated In Fraud Case Without Evidence Of Mens Rea: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-sale-deed-writer-performing-professional-duty-implicated-fraud-547512
-
-[Read on Telegram](https://t.me/livelawindia/118417)
+[Read on Telegram](https://t.me/livelawindia/118435)
 
 ---
-### 2026-08-27T08:22:50+00:00
-'Paradoxical': Allahabad High Court Flags State Authorities' Conflicting Claims Over Demolition Despite Status Quo Order
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-officer-admits-three-authorities-deny-demolishing-status-quo-order-547577
+### 2026-08-27T12:02:33+00:00
+Use Of Children In Campaign Can't Void Election Without Showing Impact On Result: CM Vijay Tells Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-cm-vijay-election-petition-children-emotionally-sway-vote-not-ground-547617
 
-[Read on Telegram](https://t.me/livelawindia/118418)
+[Read on Telegram](https://t.me/livelawindia/118436)
 
 ---
-### 2026-08-27T08:26:50+00:00
-Religious Structures On Public Streets: J&K&L High Court Seeks Status Report, Asks UT To Detail Removal & Prevention Measures
-https://www.livelaw.in/high-court/jammu-kashmir/religious-structures-on-public-streets-parks-jk-high-court-seeks-fresh-status-report-asks-ut-to-detail-removal-and-prevention-measures-547579
+### 2026-08-27T12:52:24+00:00
+Dismissal Order Cannot Take Retrospective Effect Without Statutory Authority, But Invalid Portion Can Be Severed: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/retrospective-effect-of-dismissal-order-is-severable-jkl-high-court-restores-constables-dismissal-in-90-lakh-embezzlement-case-547509
 
-[Read on Telegram](https://t.me/livelawindia/118419)
+[Read on Telegram](https://t.me/livelawindia/118437)
+
+---
+### 2026-08-27T14:05:55+00:00
+Presolv360 Convenes Judiciary, Government, Legal Experts And NITI Aayog For The Smart Resolution Summit
+https://www.livelaw.in/news-updates/presolv360-convenes-judiciary-government-legal-experts-niti-aayog-smart-resolution-summit-547620
+
+[Read on Telegram](https://t.me/livelawindia/118438)
+
+---
+### 2026-08-27T14:32:25+00:00
+There's Limit To Cross-Examination
+https://www.livelaw.in/articles/theres-limit-to-cross-examination-547502
+
+[Read on Telegram](https://t.me/livelawindia/118439)
+
+---
+### 2026-08-27T14:36:25+00:00
+Onerous Bail Conditions Amount To 'Granting Bail With One Hand And Taking It Away With Other': Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-extends-time-meet-lakh-condition-after-12years-547626
+
+[Read on Telegram](https://t.me/livelawindia/118440)
+
+---
+### 2026-08-27T14:47:45+00:00
+Offence U/S 5(1)(d) J&K Prevention Of Corruptions Act Remains A Scheduled Offence Under PMLA: J&KL High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-holds-section-51d-jk-pc-act-remains-a-scheduled-offence-under-pmla-says-amended-section-7-central-pc-act-corresponds-to-it-547621
+
+[Read on Telegram](https://t.me/livelawindia/118441)
+
+---
+### 2026-08-27T15:14:15+00:00
+Advocates Association Of Western India To Get Woman President, The First In Over A Century
+https://www.livelaw.in/top-stories/advocates-association-of-western-india-to-get-woman-president-547628
+
+[Read on Telegram](https://t.me/livelawindia/118442)
+
+---
+### 2026-08-27T15:33:16+00:00
+Jharkhand High Court Reduces Sentence In ₹300 Bribe Case From 1993, Says Accused Has Suffered 'Agony Of Trial' For Three Decades
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-reduces-pc-act-sentence-one-month-547627
+
+[Read on Telegram](https://t.me/livelawindia/118443)
+
+---
+### 2026-08-27T15:42:36+00:00
+NEET Qualification Not Mandatory For Exempted State Quota BDS Seats In J&K During 2016-17: High Court Validates 10 Admissions
+https://www.livelaw.in/high-court/jammu-kashmir/neet-qualification-not-mandatory-for-exempted-state-quota-bds-seats-in-jk-during-2016-17-high-court-validates-10-admissions-547623
+
+[Read on Telegram](https://t.me/livelawindia/118444)
+
+---
+### 2026-08-27T16:19:29+00:00
+Noida Workers' Protest: Allahabad High Court Grants Bail To 'Mazdoor Bigul Dasta' Member In 2 FIRs
+https://www.livelaw.in/high-court/allahabad-high-court/noida-workers-protest-allahabad-hc-bail-mazdoor-bigul-dasta-member-2-firs-547636
+
+[Read on Telegram](https://t.me/livelawindia/118445)
+
+---
+### 2026-08-27T16:32:09+00:00
+LiveLaw High Courts Daily Highlights: August 27, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-august-27-2026-547638
+
+[Read on Telegram](https://t.me/livelawindia/118446)
 
 ---
