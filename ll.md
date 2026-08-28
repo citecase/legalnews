@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-28T06:33:08+00:00*
+*Last Updated: 2026-08-28T08:28:50+00:00*
 
 ---
 
-### 2026-08-28T06:33:08+00:00
-Seizure Witness Signed Papers At Police Station, Didn't Witness Recovery: Gauhati High Court Acquits Two In NDPS Case
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-mandatory-procedural-requirements-ndps-act-strictly-adhered-to-any-lapse-dent-prosecution-case-547613
-
-[Read on Telegram](https://t.me/livelawindia/118467)
-
----
-### 2026-08-28T06:37:08+00:00
-Reserved Seat Cannot Be De-Reserved After Counselling Begins Merely Because No Eligible Reserved Candidate Is Available: Delhi High Court
-https://www.livelaw.in/law-firms/litigation/reserved-seat-cannot-be-de-reserved-after-counselling-begins-merely-because-no-eligible-reserved-candidate-is-available-delhi-high-court-547658
-
-[Read on Telegram](https://t.me/livelawindia/118468)
-
----
-### 2026-08-28T06:45:08+00:00
-Professional Certificate In Trademark, Patent & Copyright Prosecution, Opposition & Enforcement
-https://www.livelaw.in/lawschool/diploma-certificate-courses/professional-certificate-trademark-patent-copyright-prosecution-opposition-enforcement-547659
-
-[Read on Telegram](https://t.me/livelawindia/118469)
-
----
-### 2026-08-28T06:58:08+00:00
-KIIT School of Law Announces II KIIT International Moot Court Competition 2026
-https://www.livelaw.in/lawschool/competitions/kiit-school-of-law-announces-ii-kiit-international-moot-court-competition-2026-547662
-
-[Read on Telegram](https://t.me/livelawindia/118470)
-
----
-### 2026-08-28T07:21:59+00:00
-TVK Minister Aadhav Arjuna Seeks ₹1 Crore Damages From MK Stalin, DMK IT Wing For Alleged Defamatory Posts; Madras High Court Issues Notice
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-aadhav-arjuna-mk-stalin-defamatory-posts-dmk-it-wing-notice-547665
-
-[Read on Telegram](https://t.me/livelawindia/118471)
-
----
-### 2026-08-28T07:32:19+00:00
-Decide Bail Cancellation Petitions Within Four Weeks Of Serving Notice: Madras High Court Directs Trial Courts
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-bail-cancellation-plea-decide-within-4-weeks-district-judges-547631
-
-[Read on Telegram](https://t.me/livelawindia/118472)
-
----
-### 2026-08-28T08:06:49+00:00
-"Ministers Not Above Law": Madras High Court Orally Remarks While Directing TN Finance Minister To Appear Before Magistrate In Assault Case
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-marie-wilson-appear-before-magistrate-minister-not-above-law-547668
-
-[Read on Telegram](https://t.me/livelawindia/118473)
-
----
-### 2026-08-28T08:08:09+00:00
-Criminal Appeal Need Not Be Deferred Merely Due To Appellant's 'Depressed Mood'; Counsel Can Represent Him: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/mental-health-certificate-alone-cannot-defer-criminal-appeal-hearing-when-advocate-can-represent-appellant-jk-hc-refuses-to-defer-criminal-appeal-547670
-
-[Read on Telegram](https://t.me/livelawindia/118474)
-
----
-### 2026-08-28T08:17:50+00:00
-Citizens' Group Moves Calcutta High Court To Hold Demonstration Against SIR
-https://www.livelaw.in/high-court/calcutta-high-court/citizens-group-moves-calcutta-high-court-to-hold-demonstration-against-sir-547669
-
-[Read on Telegram](https://t.me/livelawindia/118475)
-
----
 ### 2026-08-28T08:28:50+00:00
 Stopping Bye-Elections Will Deprive Lakhs Of People From Having Democratically Elected MLAs: CM Vijay To Madras High Court
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-cm-vijay-stopping-bye-election-deprive-people-mlas-547674
@@ -142,5 +79,68 @@ https://www.livelaw.in/high-court/uttarakhand-high-court/excise-commissioner-can
 https://www.livelaw.in/news-updates/separatist-shabir-ahmed-shah-getting-specialized-medical-treatment-as-needed-nia-court-directs-no-unnecessary-handcuffing-547624
 
 [Read on Telegram](https://t.me/livelawindia/118486)
+
+---
+### 2026-08-28T11:16:23+00:00
+Karnataka High Court Quashes Case Against MLA For Allegedly Using Loudspeaker 2 Minutes After 10 PM Deadline
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-fir-against-mla-using-loudspeaker-547691
+
+[Read on Telegram](https://t.me/livelawindia/118487)
+
+---
+### 2026-08-28T11:17:23+00:00
+Delhi High Court Restricts Entry Of Law Interns To Senior Batches
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-law-interns-senior-batches-547692
+
+[Read on Telegram](https://t.me/livelawindia/118488)
+
+---
+### 2026-08-28T11:32:03+00:00
+Inherently Determinable Contract Cannot Be Specifically Enforced; Interim Injunction Also Cannot Protect Such Contracts: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/inherently-determinable-contract-cannot-specifically-enforced-interim-injunction-547672
+
+[Read on Telegram](https://t.me/livelawindia/118489)
+
+---
+### 2026-08-28T11:33:03+00:00
+'Lived Separately': Gujarat High Court Quashes Domestic Violence Case Against Husband's Sisters Accused Of Instigating Dowry Demand
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-domestic-violence-case-husbands-sisters-547635
+
+[Read on Telegram](https://t.me/livelawindia/118490)
+
+---
+### 2026-08-28T11:48:14+00:00
+'Civil Estrangement' Between Husband & Wife Turning Into Criminal Case Against Family Requires Strict Judicial Scrutiny: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/civil-estrangement-between-husband-wife-turning-into-criminal-case-against-family-requires-strict-judicial-scrutiny-calcutta-high-court-547677
+
+[Read on Telegram](https://t.me/livelawindia/118491)
+
+---
+### 2026-08-28T12:02:34+00:00
+High Court Declines CBI Probe Into FIR Amid Marital Discord Between Two Haryana Judicial Officers
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-declines-cbi-probe-into-fir-547699
+
+[Read on Telegram](https://t.me/livelawindia/118492)
+
+---
+### 2026-08-28T12:32:45+00:00
+Building Partly On Govt Land: Gauhati High Court Says Extent Of Demolition & Compensation Must Be Decided By Civil Court
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-loss-damages-caused-account-demolition-building-question-assessment-before-court-where-evidence-be-led-547637
+
+[Read on Telegram](https://t.me/livelawindia/118493)
+
+---
+### 2026-08-28T13:57:16+00:00
+Not Necessary To Carry Biological Father's Name In Today's World: Calcutta High Court Allows Stepfather's Name In Child's Birth Certificate
+https://www.livelaw.in/high-court/calcutta-high-court/not-necessary-to-carry-biological-fathers-name-in-todays-world-calcutta-high-court-allows-stepfathers-name-in-childs-birth-certificate-547678
+
+[Read on Telegram](https://t.me/livelawindia/118494)
+
+---
+### 2026-08-28T14:32:26+00:00
+Colonial Policing In Constitutional Democracy
+https://www.livelaw.in/articles/colonial-policing-constitutional-democracy-547705
+
+[Read on Telegram](https://t.me/livelawindia/118495)
 
 ---
