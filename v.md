@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-27T14:33:05+00:00*
+*Last Updated: 2026-08-28T12:02:56+00:00*
+
+---
+
+### 2026-08-28T12:02:56+00:00
+Demonstrably False & Vindictive Police Report: Calcutta High Court Quashes Chargesheet Against Army Jawan Based On Alibi
+https://www.verdictum.in/calcutta-high-court/arun-prasad-v-state-of-west-bengal-crr-2356-of-2024-territorial-army-jawan-on-alibi-1620749
+
+[Source Link](https://t.me/verdictumlegalupdates/28774)
+
+---
+
+### 2026-08-28T10:33:15+00:00
+Reasonable Time Gap Between Notice Invoking Arbitration U/s. 21 And Filing Section 11 Petition Depend On Facts Of Each Case: Delhi High Court
+https://www.verdictum.in/delhi-high-court/sugat-jain-v-amit-jain-anr-2026dhc7161-reasonable-time-section-21-notice-section-11-1620759
+
+[Source Link](https://t.me/verdictumlegalupdates/28773)
+
+---
+
+### 2026-08-28T09:02:55+00:00
+Petitioner Seeks To Withdraw Writ Petition 6 Years After Obtaining Interim Order; Allahabad HC Suspects Foul Play, Seeks Affidavit From Official On How Grievance Was Redressed
+https://www.verdictum.in/allahabad-high-court/uphar-kushwaha-v-state-of-up-writ-a-no-10465-of-2019-unexplained-administrative-actions-amid-corruption-1620757
+
+[Source Link](https://t.me/verdictumlegalupdates/28772)
+
+---
+
+### 2026-08-28T07:32:14+00:00
+Mere Fact That Spouses Occupy Separate Rooms Won’t Justify Finding Of Cruelty: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/a-v-b-2026khc42461-db-spouses-separate-rooms-cruelty-1620755
+
+[Source Link](https://t.me/verdictumlegalupdates/28771)
+
+---
+
+### 2026-08-28T06:02:53+00:00
+Delhi High Court Orders Immediate Drain Safety Measures In Okhla Region And Pragmatic Sewage Redevelopment Plan In Non-Confirming Areas
+https://www.verdictum.in/delhi-high-court/2026-dhc-7166-db-courts-of-its-own-motion-v-union-of-india-1620754
+
+[Source Link](https://t.me/verdictumlegalupdates/28770)
+
+---
+
+### 2026-08-28T04:32:32+00:00
+Jurisdiction U/S 126 Electricity Act Cannot Be Enlarged By Other Violations: Telangana High Court Quashes ₹81L Assessment Against ITC
+https://www.verdictum.in/telangana-high-court/itc-limited-v-northern-power-distribution-company-of-andhra-pradesh-ltd-writ-petition-no-32607-of-2011-us-126-electricity-ac-1620753
+
+[Source Link](https://t.me/verdictumlegalupdates/28769)
 
 ---
 
@@ -113,54 +161,6 @@ Critical Gap In Inter-agency Coordination: Bombay High Court Orders Action Again
 https://www.verdictum.in/bombay-high-court/action-against-illegal-infiltrator-obtained-passport-fake-aadhaar-1620718
 
 [Source Link](https://t.me/verdictumlegalupdates/28755)
-
----
-
-### 2026-08-27T05:52:53+00:00
-Non Obstante Clause Is A Legislative Device: Supreme Court Upholds Notification Fastening Customs Duty Liability On Mumbai Port Trust For Pilfered Goods
-https://www.verdictum.in/supreme-court/union-of-india-v-the-board-of-trustees-of-the-port-of-bombay-2026-insc-919-customs-duty-liability-on-mumbai-port-trust-for-pilfered-goods-1620713
-
-[Source Link](https://t.me/verdictumlegalupdates/28754)
-
----
-
-### 2026-08-27T05:12:33+00:00
-Needs Consistent Monitoring: Delhi High Court Constitutes Committee To Oversee Rehabilitation & Relocation Of Jhuggi Jhopri Dwellers
-https://www.verdictum.in/delhi-high-court/rakesh-bansal-v-union-of-india-2026dhc7196-db-rehabilitation-jhuggi-jhopri-1620708
-
-[Source Link](https://t.me/verdictumlegalupdates/28753)
-
----
-
-### 2026-08-27T04:32:42+00:00
-“Unable To Turn A Nelson's Eye": P&H High Court Grants Interim Bail In NDPS Case Over Repeated Non-Appearance Of Police Witnesses, Orders Personal Appearance Of DGP
-https://www.verdictum.in/punjab-and-haryana-high-court/naseeb-singh-v-state-of-punjab-crm-m-29778-2026-repeated-non-appearance-of-police-witnesses-1620686
-
-[Source Link](https://t.me/verdictumlegalupdates/28752)
-
----
-
-### 2026-08-26T16:03:17+00:00
-Bombay High Court Orders Tahsildar And Police Officer To Appear Personally If They Fail To Enforce 16-Year-Old SARFAESI Possession Order
-https://www.verdictum.in/bombay-high-court/kotak-mahindra-bank-limited-v-state-of-maharashtra-sarfaesi-possession-order-police-force-1620685
-
-[Source Link](https://t.me/verdictumlegalupdates/28751)
-
----
-
-### 2026-08-26T15:02:16+00:00
-Court Fees Must Be Payable "Per Petitioner" Not "Per Petition" When Individual Causes Of Action Are Sought In Joint Writ Petition: Bombay High Court Clarifies
-https://www.verdictum.in/bombay-high-court/2026bhcas35070-satyam-a-surana-v-high-court-of-bombay-court-fee-joint-writ-petition-1620683
-
-[Source Link](https://t.me/verdictumlegalupdates/28750)
-
----
-
-### 2026-08-26T14:02:15+00:00
-Principles Of Territorial Jurisdiction Cannot Be Diluted Due To Internet: Delhi High Court Refers Issues On Online Trade Mark Infringement To Larger Bench
-https://www.verdictum.in/delhi-high-court/hindustan-unilever-limited-v-kwick-living-i-private-limited-2026dhc7198-larger-bench-online-trade-mark-infringement-1620682
-
-[Source Link](https://t.me/verdictumlegalupdates/28749)
 
 ---
 
