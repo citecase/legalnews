@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-28T12:02:56+00:00*
+*Last Updated: 2026-08-28T15:02:38+00:00*
+
+---
+
+### 2026-08-28T15:02:38+00:00
+Assistant Manager (Legal) Vacancy At Andhra Pradesh Capital Region Development Authority (APCRDA)
+https://www.verdictum.in/job-updates/andhra-pradesh-capital-region-development-authority-1620756
+
+[Source Link](https://t.me/verdictumlegalupdates/28776)
+
+---
+
+### 2026-08-28T13:32:57+00:00
+Trademark Disputes Between Identified Parties Concerning Rights In Personam Are Arbitrable: Bombay High Court
+https://www.verdictum.in/bombay-high-court/zee-learn-limited-v-beauty-singh-trademark-dispute-arbitration-1620761
+
+[Source Link](https://t.me/verdictumlegalupdates/28775)
 
 ---
 
@@ -145,22 +161,6 @@ Attainment Of Age Of Majority Will Not Result In Cessation Of Right To Receive M
 https://www.verdictum.in/chhattisgarh-high-court/a-v-b-2026cghc37889-age-majority-maintenance-disabled-child-1620729
 
 [Source Link](https://t.me/verdictumlegalupdates/28757)
-
----
-
-### 2026-08-27T07:12:55+00:00
-Gujarat High Court Quashes GST Orders After Officer Relies On AI-Generated Non-Existent Judgments
-https://www.verdictum.in/gujarat-high-court/faiz-enterprise-v-state-tax-officer-2026gujhc53490-db-gst-orders-quashed-ai-generated-judgments-1620726
-
-[Source Link](https://t.me/verdictumlegalupdates/28756)
-
----
-
-### 2026-08-27T06:33:14+00:00
-Critical Gap In Inter-agency Coordination: Bombay High Court Orders Action Against Illegal Infiltrator Who Obtained Passport Using Fake Aadhaar
-https://www.verdictum.in/bombay-high-court/action-against-illegal-infiltrator-obtained-passport-fake-aadhaar-1620718
-
-[Source Link](https://t.me/verdictumlegalupdates/28755)
 
 ---
 
