@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-29T06:52:26+00:00*
+*Last Updated: 2026-08-29T15:02:57+00:00*
+
+---
+
+### 2026-08-29T15:02:57+00:00
+Empanelment Of Advocates At Employees' State Insurance Corporation (ESIC)
+https://www.verdictum.in/job-updates/employees-state-insurance-corporation-1620862
+
+[Source Link](https://t.me/verdictumlegalupdates/28791)
+
+---
+
+### 2026-08-29T14:12:37+00:00
+Minor’s "Ordinary Residence" Doesn't Change Just Because A Parent Relocates Child During Subsistence Of Child Custody Dispute: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/2026-khc-44975-db-minors-ordinary-residence-1620861
+
+[Source Link](https://t.me/verdictumlegalupdates/28790)
+
+---
+
+### 2026-08-29T13:32:56+00:00
+Decree Holder Cannot Travel Beyond Decree To Attach Judgment Debtor’s Wife's Personal Property Based On Personal Law: Kerala High Court
+https://www.verdictum.in/kerala-high-court/abdul-basith-kurikkalakath-v-shafi-mohammed-2026ker64246-attach-wifes-property-personal-law-1620860
+
+[Source Link](https://t.me/verdictumlegalupdates/28789)
+
+---
+
+### 2026-08-29T12:52:55+00:00
+Madras High Court Directs Trial Courts To Decide Bail Cancellation Petitions Within Four Weeks Of Service Of Notice
+https://www.verdictum.in/madras-high-court/palanivel-rajan-ptr-vinoth-v-state-of-tamil-nadu-and-others-2026mhc1040-1620856
+
+[Source Link](https://t.me/verdictumlegalupdates/28788)
+
+---
+
+### 2026-08-29T12:02:34+00:00
+To Tax Justice At Ad Valorem Rates Is Harsh: Allahabad High Court Urges State Government To Reconsider Ad Valorem Court Fees
+https://www.verdictum.in/allahabad-high-court/2026ahc155476db-laxmikant-aggarwal-v-state-of-up-1620857
+
+[Source Link](https://t.me/verdictumlegalupdates/28787)
+
+---
+
+### 2026-08-29T11:13:13+00:00
+Marathi Mandatory For Auto Drivers: Bombay High Court Closes Plea By Cab Drivers After State Grants One-Year Time To Learn Language
+https://www.verdictum.in/bombay-high-court/marathi-mandatory-for-auto-drivers-bombay-hc-1620859
+
+[Source Link](https://t.me/verdictumlegalupdates/28786)
+
+---
+
+### 2026-08-29T10:33:12+00:00
+Armed with Non-Obstante Clause: Madras High Court Holds Attachment Under TNPID Act Prevails Over PMLA Attachment
+https://www.verdictum.in/madras-high-court/-v-lakshmi-v-the-competent-authority-district-revenue-officer-chennai-district-wpcrlno1221-of-2026-tnpid-pmla-1620845
+
+[Source Link](https://t.me/verdictumlegalupdates/28785)
+
+---
+
+### 2026-08-29T09:52:32+00:00
+Statutory Authorities Under Article 12 Of Constitution Are Not ‘States’ Eligible To Invoke Original Jurisdiction Under Article 131: Supreme Court
+https://www.verdictum.in/supreme-court/lucknow-development-authority-v-union-of-india-2026-insc-923-article-12-131-statutory-authority-state-1620848
+
+[Source Link](https://t.me/verdictumlegalupdates/28784)
+
+---
+
+### 2026-08-29T09:02:58+00:00
+Snakebite Deaths: High Court Asks Maharashtra Govt To Ensure Care For Tribal Students On Hunger Strike
+https://www.verdictum.in/bombay-high-court/maharashtra-govt-to-ensure-care-for-tribal-students-on-hunger-strike-1620849
+
+[Source Link](https://t.me/verdictumlegalupdates/28783)
+
+---
+
+### 2026-08-29T08:12:28+00:00
+Supreme Court To Hear Plea Seeking Mandatory Disclosure Of Ethanol Content In Petrol On Aug 31
+https://www.verdictum.in/supreme-court/plea-seeking-mandatory-disclosure-of-ethanol-content-in-petrol-1620843
+
+[Source Link](https://t.me/verdictumlegalupdates/28782)
+
+---
+
+### 2026-08-29T07:32:47+00:00
+Blanket Ban On Foreign Travel By Government Employees Manifestly Arbitrary: Punjab & Haryana High Court
+https://www.verdictum.in/punjab-and-haryana-high-court/sheetal-rani-v-state-of-haryana-and-others-2026phhc120961-ban-travel-employees-1620842
+
+[Source Link](https://t.me/verdictumlegalupdates/28781)
 
 ---
 
@@ -73,94 +161,6 @@ Petitioner Seeks To Withdraw Writ Petition 6 Years After Obtaining Interim Order
 https://www.verdictum.in/allahabad-high-court/uphar-kushwaha-v-state-of-up-writ-a-no-10465-of-2019-unexplained-administrative-actions-amid-corruption-1620757
 
 [Source Link](https://t.me/verdictumlegalupdates/28772)
-
----
-
-### 2026-08-28T07:32:14+00:00
-Mere Fact That Spouses Occupy Separate Rooms Won’t Justify Finding Of Cruelty: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/a-v-b-2026khc42461-db-spouses-separate-rooms-cruelty-1620755
-
-[Source Link](https://t.me/verdictumlegalupdates/28771)
-
----
-
-### 2026-08-28T06:02:53+00:00
-Delhi High Court Orders Immediate Drain Safety Measures In Okhla Region And Pragmatic Sewage Redevelopment Plan In Non-Confirming Areas
-https://www.verdictum.in/delhi-high-court/2026-dhc-7166-db-courts-of-its-own-motion-v-union-of-india-1620754
-
-[Source Link](https://t.me/verdictumlegalupdates/28770)
-
----
-
-### 2026-08-28T04:32:32+00:00
-Jurisdiction U/S 126 Electricity Act Cannot Be Enlarged By Other Violations: Telangana High Court Quashes ₹81L Assessment Against ITC
-https://www.verdictum.in/telangana-high-court/itc-limited-v-northern-power-distribution-company-of-andhra-pradesh-ltd-writ-petition-no-32607-of-2011-us-126-electricity-ac-1620753
-
-[Source Link](https://t.me/verdictumlegalupdates/28769)
-
----
-
-### 2026-08-27T14:33:05+00:00
-Empanelment Of Advocates At Jawaharlal Nehru University (JNU)
-https://www.verdictum.in/job-updates/jawaharlal-nehru-university-1620752
-
-[Source Link](https://t.me/verdictumlegalupdates/28768)
-
----
-
-### 2026-08-27T13:52:44+00:00
-Karnataka High Court Directs State To Frame Interim Compensation Scheme For Victims & Next Of Kin In Mob Violence & Lynching Cases Within 3 Months
-https://www.verdictum.in/karnataka-high-court/abdul-jabbar-v-sachin-and-connected-matters-2026khc44907-bail-mob-lynching-1620751
-
-[Source Link](https://t.me/verdictumlegalupdates/28767)
-
----
-
-### 2026-08-27T13:12:23+00:00
-Summons Cannot Be Issued To A Post Without Naming Person: Jharkhand High Court
-https://www.verdictum.in/jharkhand-high-court/ms-hinduja-leyland-finance-limited-v-state-of-jharkhand-2026jhhc25542-summon-post-name-person-1620750
-
-[Source Link](https://t.me/verdictumlegalupdates/28766)
-
----
-
-### 2026-08-27T12:32:23+00:00
-CJI Surya Kant And Rajasthan High Court's Bar Critical Of Release Of Justice Sandeep Mehta's Letters To Media
-https://www.verdictum.in/news/cji-surya-kant-rajasthan-high-court-bar-critical-justice-sandeep-mehta-letters-media-1620760
-
-[Source Link](https://t.me/verdictumlegalupdates/28765)
-
----
-
-### 2026-08-27T11:52:22+00:00
-No Prima Facie Material To Demonstrate Alleged Imputation: Delhi High Court Quashes Defamation Case Against Senior Advocate Pinaki Misra
-https://www.verdictum.in/delhi-high-court/2026-dhc-7169-pinaki-misra-v-state-defamation-1620744
-
-[Source Link](https://t.me/verdictumlegalupdates/28764)
-
----
-
-### 2026-08-27T11:12:42+00:00
-Calcutta High Court Refuses To Pass Interim Order Permitting TMC's Mamata Faction To Operate Four Frozen Bank Accounts
-https://www.verdictum.in/calcutta-high-court/interim-order-permitting-tmcs-mamata-faction-to-operate-four-frozen-bank-accounts-refused-1620742
-
-[Source Link](https://t.me/verdictumlegalupdates/28763)
-
----
-
-### 2026-08-27T10:47:00+00:00
-Centre Notifies Appointment Of Judicial Officers As Judges Of Himachal Pradesh High Court
-https://www.verdictum.in/court-updates/high-courts/appointment-of-judicial-officers-as-judges-of-himachal-pradesh-high-court-1620741
-
-[Source Link](https://t.me/verdictumlegalupdates/28762)
-
----
-
-### 2026-08-27T10:32:39+00:00
-Widow’s Remarriage Does Not Divest Her Daughter Of Deceased Coparcener’s Share: Madras High Court
-https://www.verdictum.in/madras-high-court/k-duraisamy-v-dhanalakshmi-died-widow-remarriage-daughter-coparcener-share-1620740
-
-[Source Link](https://t.me/verdictumlegalupdates/28761)
 
 ---
 
