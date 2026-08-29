@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-28T15:02:38+00:00*
+*Last Updated: 2026-08-29T06:52:26+00:00*
+
+---
+
+### 2026-08-29T06:52:26+00:00
+Allahabad High Court Orders Strict Compliance With Arnesh Kumar Guidelines, Says Callous Approach By Judicial Officers Won't Be Taken Lightly
+https://www.verdictum.in/allahabad-high-court/2026ahclko57909-db-durgesh-thru-his-stepsister-mrs-rubi-v-state-of-up-1620839
+
+[Source Link](https://t.me/verdictumlegalupdates/28780)
+
+---
+
+### 2026-08-29T06:02:45+00:00
+Telangana High Court Restrains Forest Authorities From Interfering With Mosque & Madarsa At Ananthagiri Hills Without Following Due Process Of Law
+https://www.verdictum.in/telangana-high-court/mohammed-faiyaz-ali-v-the-state-of-telangana-masjid-madarsa-reserved-forest-areas-1620836
+
+[Source Link](https://t.me/verdictumlegalupdates/28779)
+
+---
+
+### 2026-08-29T05:22:54+00:00
+Body Found In Multiple Pieces Not Conclusive Proof Of Exceptions U/S 124A Railways Act To Deny Compensation: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/lali-v-union-of-india-through-general-manager-north-central-railway-2026ahc-lko58096-not-conclusive-proof-of-exceptions-us-124a-railways-act-1620832
+
+[Source Link](https://t.me/verdictumlegalupdates/28778)
+
+---
+
+### 2026-08-29T04:32:13+00:00
+Contributory Negligence Can’t Be Fastened Upon Person On Footpath Or Pedestrian Area In Motor Accident: Delhi High Court
+https://www.verdictum.in/delhi-high-court/hari-nath-sharma-v-umesh-kumar-ors-2026dhc6895-contributory-negligence-motor-accident-1620762
+
+[Source Link](https://t.me/verdictumlegalupdates/28777)
 
 ---
 
@@ -129,38 +161,6 @@ Widow’s Remarriage Does Not Divest Her Daughter Of Deceased Coparcener’s Sha
 https://www.verdictum.in/madras-high-court/k-duraisamy-v-dhanalakshmi-died-widow-remarriage-daughter-coparcener-share-1620740
 
 [Source Link](https://t.me/verdictumlegalupdates/28761)
-
----
-
-### 2026-08-27T09:52:58+00:00
-Extended Limitation U/S 74 CGST Act Cannot Be Invoked Based On Mechanical Recital Of Suppression: Supreme Court
-https://www.verdictum.in/supreme-court/ms-tata-steel-limited-v-union-of-india-through-the-secretary-ministry-of-finance-and-ors-2026-insc-920-1620739
-
-[Source Link](https://t.me/verdictumlegalupdates/28760)
-
----
-
-### 2026-08-27T09:12:18+00:00
-Section 239 BNS Punishes Breach Of Legal Duty, Not Mere Silence After Knowledge Of Offence: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/palecanda-ponnappa-vishal-v-the-state-of-karnataka-and-another-section-239-bns-1620736
-
-[Source Link](https://t.me/verdictumlegalupdates/28759)
-
----
-
-### 2026-08-27T08:32:57+00:00
-Offence Of Transportation Of Bovine Animals Without Permission Is Insufficient Ground To Invoke Preventive Detention: Jammu & Kashmir And Ladakh HC
-https://www.verdictum.in/jammu-ladakh-high-court/2026jklhcjmu-2716-sabeer-ahmed-v-ut-of-jammu-kashmir-1620733
-
-[Source Link](https://t.me/verdictumlegalupdates/28758)
-
----
-
-### 2026-08-27T07:52:36+00:00
-Attainment Of Age Of Majority Will Not Result In Cessation Of Right To Receive Maintenance For Disabled Child: Chhattisgarh High Court
-https://www.verdictum.in/chhattisgarh-high-court/a-v-b-2026cghc37889-age-majority-maintenance-disabled-child-1620729
-
-[Source Link](https://t.me/verdictumlegalupdates/28757)
 
 ---
 
