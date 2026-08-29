@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-29T08:56:23+00:00*
+*Last Updated: 2026-08-29T09:32:24+00:00*
 
 ---
 
-### 2026-08-29T08:56:23+00:00
-2026 LiveLaw (SC) 866 | SIKKIMESE MULNIWASI SURAKCHA SANGH (SMSS), A REGISTERED PUBLIC TRUST v. ELECTION COMMISSION OF INDIA AND ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-866-sikkimese-mulniwasi-surakcha-sangh-smss-a-registered-public-trust-v-election-commission-of-india-and-ors-547755
-
-[Read on Telegram](https://t.me/livelawindia/118528)
-
----
-### 2026-08-29T09:01:03+00:00
-2026 LiveLaw (SC) 867 |  WILDLIFE RESCUE AND REHABILITATION CENTRE AND ORS. v. UNION OF INDIA AND ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-867-wildlife-rescue-and-rehabilitation-centre-and-ors-v-union-of-india-and-ors-547756
-
-[Read on Telegram](https://t.me/livelawindia/118529)
-
----
 ### 2026-08-29T09:32:24+00:00
 Immigration Fraud Under Garb Of Consultancy A "Growing Menace" That Merits Strict Scrutiny, Not Pre-Arrest Bail Leniency: P&H High Court
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/immigration-fraud-growing-menace-strict-scrutiny-no-pre-arrest-bail-547703
@@ -142,5 +128,19 @@ Sultanpur Bar Association Elections: Allahabad High Court Orders 30% Reservation
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-sultanpur-bar-association-elections-30-reservation-women-key-posts-rotation-547773
 
 [Read on Telegram](https://t.me/livelawindia/118547)
+
+---
+### 2026-08-29T17:11:25+00:00
+LiveLaw High Courts Daily Highlights: August 29, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-august-29-2026-547785
+
+[Read on Telegram](https://t.me/livelawindia/118548)
+
+---
+### 2026-08-29T18:10:55+00:00
+GNLU Legal Services Committee Launches National Essay Competition On Legal Aid And Access To Justice
+https://www.livelaw.in/lawschool/competitions/gnlu-legal-services-committee-launches-national-essay-competition-on-legal-aid-and-access-to-justice-547786
+
+[Read on Telegram](https://t.me/livelawindia/118549)
 
 ---
