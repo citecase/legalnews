@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-29T15:02:57+00:00*
+*Last Updated: 2026-08-30T04:33:07+00:00*
+
+---
+
+### 2026-08-30T04:33:07+00:00
+Fundamental Right To Practice Religion Subject to Public Order: Bombay High Court On Plea Against Earmarking Of Religious Procession Routes By Police
+https://www.verdictum.in/bombay-high-court/2026-bhc-nag-10559-db-deepak-v-state-of-maharashtra-1620863
+
+[Source Link](https://t.me/verdictumlegalupdates/28792)
 
 ---
 
@@ -153,14 +161,6 @@ Reasonable Time Gap Between Notice Invoking Arbitration U/s. 21 And Filing Secti
 https://www.verdictum.in/delhi-high-court/sugat-jain-v-amit-jain-anr-2026dhc7161-reasonable-time-section-21-notice-section-11-1620759
 
 [Source Link](https://t.me/verdictumlegalupdates/28773)
-
----
-
-### 2026-08-28T09:02:55+00:00
-Petitioner Seeks To Withdraw Writ Petition 6 Years After Obtaining Interim Order; Allahabad HC Suspects Foul Play, Seeks Affidavit From Official On How Grievance Was Redressed
-https://www.verdictum.in/allahabad-high-court/uphar-kushwaha-v-state-of-up-writ-a-no-10465-of-2019-unexplained-administrative-actions-amid-corruption-1620757
-
-[Source Link](https://t.me/verdictumlegalupdates/28772)
 
 ---
 
