@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-29T13:33:03+00:00*
+*Last Updated: 2026-08-29T14:32:34+00:00*
 
 ---
 
-### 2026-08-29T13:33:03+00:00
-Muslim Law Doesn't Recognize Joint Family, Brother Can't Sell Land Belonging To Minor Siblings: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-muslim-law-minor-siblings-representation-547726
-
-[Read on Telegram](https://t.me/livelawindia/118541)
-
----
-### 2026-08-29T14:01:43+00:00
-Anti-Defection Law: Speakers Role Is Questionable
-https://www.livelaw.in/articles/anti-defection-law-speakers-role-questionable-547762
-
-[Read on Telegram](https://t.me/livelawindia/118542)
-
----
-### 2026-08-29T14:10:03+00:00
-Govt Cannot Resort To Summary Eviction When Bona Fide Title Dispute Exists : Supreme Court
-https://www.livelaw.in/supreme-court/govt-cannot-resort-to-summary-eviction-when-bona-fide-title-dispute-exists-supreme-court-547763
-
-[Read on Telegram](https://t.me/livelawindia/118543)
-
----
-### 2026-08-29T14:11:23+00:00
-2026 LiveLaw (SC) 868 | M/s Circar Paper Mills Ltd. v. District Collector, Nellore Distt. & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-868-ms-circar-paper-mills-ltd-v-district-collector-nellore-distt-ors-547765
-
-[Read on Telegram](https://t.me/livelawindia/118544)
-
----
 ### 2026-08-29T14:32:34+00:00
 Surety Can't Be Held Liable For Entire Bond Merely Because Parolee Committed Another Crime; Forfeiture Must Be Proportionate: P&H High Court
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/surety-liability-parole-breach-forfeiture-proportionate-547727
@@ -142,5 +114,33 @@ Regrettable That No One From Legal Academia Has Ever Been Appointed As Supreme C
 https://www.livelaw.in/top-stories/regrettable-that-no-one-from-legal-academia-has-ever-been-appointed-as-supreme-court-judge-justice-ujjal-bhuyan-547798
 
 [Read on Telegram](https://t.me/livelawindia/118560)
+
+---
+### 2026-08-30T12:31:39+00:00
+LiveLaw Allahabad High Court Weekly Round Up: August 24 - August 30, 2026
+https://www.livelaw.in/high-court/allahabad-high-court/livelaw-allahabad-high-court-weekly-round-up-august-24-august-30-2026-547799
+
+[Read on Telegram](https://t.me/livelawindia/118561)
+
+---
+### 2026-08-30T12:58:01+00:00
+S. 313 CrPC | No Adverse Inference Against Accused For Failing To Explain Circumstance Not Put To Him: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/s-313-crpc-no-adverse-inference-against-accused-for-failing-to-explain-circumstance-not-put-to-him-allahabad-high-court-547800
+
+[Read on Telegram](https://t.me/livelawindia/118562)
+
+---
+### 2026-08-30T14:32:02+00:00
+S. 396 IPC | Prosecution Must Establish Dacoity Was First Intention, Murder Committed In Its Course: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-396-ipc-prosecution-establish-dacoity-first-intention-murder-course-547801
+
+[Read on Telegram](https://t.me/livelawindia/118563)
+
+---
+### 2026-08-30T14:33:22+00:00
+Healthy University Requires Both Authority And Dissent
+https://www.livelaw.in/articles/healthy-university-requires-authority-dissent-547767
+
+[Read on Telegram](https://t.me/livelawindia/118564)
 
 ---
