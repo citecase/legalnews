@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-29T09:32:24+00:00*
+*Last Updated: 2026-08-29T10:13:14+00:00*
 
 ---
 
-### 2026-08-29T09:32:24+00:00
-Immigration Fraud Under Garb Of Consultancy A "Growing Menace" That Merits Strict Scrutiny, Not Pre-Arrest Bail Leniency: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/immigration-fraud-growing-menace-strict-scrutiny-no-pre-arrest-bail-547703
-
-[Read on Telegram](https://t.me/livelawindia/118530)
-
----
-### 2026-08-29T09:47:44+00:00
-"Six Months On, No Visible Progress": J&K&L High Court Revives PIL On ₹922 Crore Raika High Court Complex
-https://www.livelaw.in/high-court/jammu-kashmir/six-months-on-no-visible-progress-jk-high-court-revives-pil-on-rs-922-crore-raika-high-court-complex-547749
-
-[Read on Telegram](https://t.me/livelawindia/118531)
-
----
-### 2026-08-29T09:48:14+00:00
-UP Judicial Services Association Seeks Action Over Alleged Interference In Gonda Judge's Judicial Work
-https://www.livelaw.in/news-updates/up-judicial-services-association-seeks-action-over-alleged-interference-in-gonda-judges-judicial-work-547758
-
-[Read on Telegram](https://t.me/livelawindia/118532)
-
----
 ### 2026-08-29T10:13:14+00:00
 'Romantic Relationship, Proposal To Marry Cannot Dilute POCSO Act': Uttarakhand High Court Denies Bail Over Minor's Sexual Assault
 https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-plea-romantic-relationship-marriage-proposal-dilute-statutory-protection-547751
@@ -142,5 +121,26 @@ GNLU Legal Services Committee Launches National Essay Competition On Legal Aid A
 https://www.livelaw.in/lawschool/competitions/gnlu-legal-services-committee-launches-national-essay-competition-on-legal-aid-and-access-to-justice-547786
 
 [Read on Telegram](https://t.me/livelawindia/118549)
+
+---
+### 2026-08-30T04:20:36+00:00
+CJI Surya Kant Cites Judgment In Delhi Tree-Felling Case As Example Of 'Judicial Creativity' Balancing Development & Environment
+https://www.livelaw.in/top-stories/cji-surya-kant-cites-judgment-in-delhi-tree-felling-case-as-example-of-judicial-creativity-balancing-development-environment-547788
+
+[Read on Telegram](https://t.me/livelawindia/118550)
+
+---
+### 2026-08-30T04:32:17+00:00
+J&K&L High Court To Hear Plea Seeking Crime Branch Probe Into Minor's Rape, Abortion & Death In Kishtwar
+https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-to-hear-plea-seeking-crime-branch-probe-into-minors-rape-abortion-death-in-kishtwar-547787
+
+[Read on Telegram](https://t.me/livelawindia/118551)
+
+---
+### 2026-08-30T04:32:36+00:00
+Neuro-Privacy And Indian Constitution: Should Brain Data Be Treated As Sensitive Personal Data?
+https://www.livelaw.in/articles/neuro-privacy-indian-constitution-should-brain-data-treated-sensitive-personal-data-547764
+
+[Read on Telegram](https://t.me/livelawindia/118552)
 
 ---
