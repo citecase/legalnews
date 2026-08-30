@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-30T04:33:07+00:00*
+*Last Updated: 2026-08-30T12:02:52+00:00*
+
+---
+
+### 2026-08-30T12:02:52+00:00
+Timing Of Criminal Complaint Vis-À-Vis Matrimonial Suit Is A Matter Of Evidence: Calcutta High Court Refuses To Quash Section 498A IPC Case
+https://www.verdictum.in/calcutta-high-court/husband-of-victim-girl-v-state-of-west-bengal-crr-2061-of-2024-timing-of-criminal-complaint-1620871
+
+[Source Link](https://t.me/verdictumlegalupdates/28797)
+
+---
+
+### 2026-08-30T10:32:31+00:00
+Non-Payment Of Maintenance By Father Not Shown To Have Actual Control Over Child Won’t Attract Sec.75 Of Juvenile Justice Act: Kerala High Court
+https://www.verdictum.in/kerala-high-court/a-v-state-of-kerala-2026ker61563-non-payment-maintenance-father-juvenile-justice-act-1620870
+
+[Source Link](https://t.me/verdictumlegalupdates/28796)
+
+---
+
+### 2026-08-30T09:03:10+00:00
+Sovereign Immunity Doctrine Doesn't Apply To Cases Of Fundamental Rights Violation: Gauhati High Court Orders ₹14L Total Compensation To 2018 Dima Hasao Police Firing Victims
+https://www.verdictum.in/guwahati-high-court/2026-gauas-12436-richard-sangyung-v-state-of-assam-1620866
+
+[Source Link](https://t.me/verdictumlegalupdates/28795)
+
+---
+
+### 2026-08-30T07:32:49+00:00
+Grounds Of Arrest Must Be Communicated To Accused & Relative/Friend Before Transit Remand: Kerala High Court Grants Bail In NDPS Case
+https://www.verdictum.in/kerala-high-court/muhammed-ashfaq-c-v-union-of-india-and-connected-cases-2026ker66077-1620865
+
+[Source Link](https://t.me/verdictumlegalupdates/28794)
+
+---
+
+### 2026-08-30T06:02:28+00:00
+Investigating Officer Functions, In Essence, As A Pre-Trial Judge: Karnataka High Court Issues Guidelines On Recording Of Statement U/S 164(5) CrPC In POCSO & SC/ST Act Cases
+https://www.verdictum.in/karnataka-high-court/v-amaresh-ambarish-v-state-of-karnataka-criminal-appeal-no366-of-2021-guidelines-on-section-1645-crpc-statements-in-pocso-scst-act-trials-1620864
+
+[Source Link](https://t.me/verdictumlegalupdates/28793)
 
 ---
 
@@ -121,46 +161,6 @@ Body Found In Multiple Pieces Not Conclusive Proof Of Exceptions U/S 124A Railwa
 https://www.verdictum.in/allahabad-high-court/lali-v-union-of-india-through-general-manager-north-central-railway-2026ahc-lko58096-not-conclusive-proof-of-exceptions-us-124a-railways-act-1620832
 
 [Source Link](https://t.me/verdictumlegalupdates/28778)
-
----
-
-### 2026-08-29T04:32:13+00:00
-Contributory Negligence Can’t Be Fastened Upon Person On Footpath Or Pedestrian Area In Motor Accident: Delhi High Court
-https://www.verdictum.in/delhi-high-court/hari-nath-sharma-v-umesh-kumar-ors-2026dhc6895-contributory-negligence-motor-accident-1620762
-
-[Source Link](https://t.me/verdictumlegalupdates/28777)
-
----
-
-### 2026-08-28T15:02:38+00:00
-Assistant Manager (Legal) Vacancy At Andhra Pradesh Capital Region Development Authority (APCRDA)
-https://www.verdictum.in/job-updates/andhra-pradesh-capital-region-development-authority-1620756
-
-[Source Link](https://t.me/verdictumlegalupdates/28776)
-
----
-
-### 2026-08-28T13:32:57+00:00
-Trademark Disputes Between Identified Parties Concerning Rights In Personam Are Arbitrable: Bombay High Court
-https://www.verdictum.in/bombay-high-court/zee-learn-limited-v-beauty-singh-trademark-dispute-arbitration-1620761
-
-[Source Link](https://t.me/verdictumlegalupdates/28775)
-
----
-
-### 2026-08-28T12:02:56+00:00
-Demonstrably False & Vindictive Police Report: Calcutta High Court Quashes Chargesheet Against Army Jawan Based On Alibi
-https://www.verdictum.in/calcutta-high-court/arun-prasad-v-state-of-west-bengal-crr-2356-of-2024-territorial-army-jawan-on-alibi-1620749
-
-[Source Link](https://t.me/verdictumlegalupdates/28774)
-
----
-
-### 2026-08-28T10:33:15+00:00
-Reasonable Time Gap Between Notice Invoking Arbitration U/s. 21 And Filing Section 11 Petition Depend On Facts Of Each Case: Delhi High Court
-https://www.verdictum.in/delhi-high-court/sugat-jain-v-amit-jain-anr-2026dhc7161-reasonable-time-section-21-notice-section-11-1620759
-
-[Source Link](https://t.me/verdictumlegalupdates/28773)
 
 ---
 
