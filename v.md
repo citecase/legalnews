@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-30T12:02:52+00:00*
+*Last Updated: 2026-08-30T15:03:14+00:00*
+
+---
+
+### 2026-08-30T15:03:14+00:00
+Associate (Legal) Vacancy At Agricultural and Processed Food Products Export Development Authority (APEDA)
+https://www.verdictum.in/job-updates/agricultural-and-processed-food-products-export-development-authority-1620867
+
+[Source Link](https://t.me/verdictumlegalupdates/28799)
+
+---
+
+### 2026-08-30T13:33:13+00:00
+Rider Bound To Be Exuberant With Girlfriend Sitting Pillion: Madras High Court Reduces Motor Accident Compensation
+https://www.verdictum.in/madras-high-court/the-branch-manager-v-nagapandi-rider-girlfriend-pillion-accident-compensation-1620872
+
+[Source Link](https://t.me/verdictumlegalupdates/28798)
 
 ---
 
@@ -145,22 +161,6 @@ Allahabad High Court Orders Strict Compliance With Arnesh Kumar Guidelines, Says
 https://www.verdictum.in/allahabad-high-court/2026ahclko57909-db-durgesh-thru-his-stepsister-mrs-rubi-v-state-of-up-1620839
 
 [Source Link](https://t.me/verdictumlegalupdates/28780)
-
----
-
-### 2026-08-29T06:02:45+00:00
-Telangana High Court Restrains Forest Authorities From Interfering With Mosque & Madarsa At Ananthagiri Hills Without Following Due Process Of Law
-https://www.verdictum.in/telangana-high-court/mohammed-faiyaz-ali-v-the-state-of-telangana-masjid-madarsa-reserved-forest-areas-1620836
-
-[Source Link](https://t.me/verdictumlegalupdates/28779)
-
----
-
-### 2026-08-29T05:22:54+00:00
-Body Found In Multiple Pieces Not Conclusive Proof Of Exceptions U/S 124A Railways Act To Deny Compensation: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/lali-v-union-of-india-through-general-manager-north-central-railway-2026ahc-lko58096-not-conclusive-proof-of-exceptions-us-124a-railways-act-1620832
-
-[Source Link](https://t.me/verdictumlegalupdates/28778)
 
 ---
 
