@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-29T10:13:14+00:00*
+*Last Updated: 2026-08-29T13:33:03+00:00*
 
 ---
 
-### 2026-08-29T10:13:14+00:00
-'Romantic Relationship, Proposal To Marry Cannot Dilute POCSO Act': Uttarakhand High Court Denies Bail Over Minor's Sexual Assault
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-plea-romantic-relationship-marriage-proposal-dilute-statutory-protection-547751
-
-[Read on Telegram](https://t.me/livelawindia/118533)
-
----
-### 2026-08-29T10:32:25+00:00
-Suicide Of Child Requires Different Investigative Approach Than Adult: Karnataka High Court Rejects Closure Report
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-b-report-orders-fresh-probe-student-suicide-note-547724
-
-[Read on Telegram](https://t.me/livelawindia/118534)
-
----
-### 2026-08-29T11:26:27+00:00
-'Convocation Shouldn't Be Cancelled Over Students' Views' : NLU Delhi Student Body Urges NLSIU To Reconsider Decision
-https://www.livelaw.in/top-stories/convocation-shouldnt-be-cancelled-over-students-views-nlu-delhi-student-body-urges-nlsiu-to-reconsider-decision-547759
-
-[Read on Telegram](https://t.me/livelawindia/118535)
-
----
-### 2026-08-29T11:32:37+00:00
-Karnataka High Court Issues Guidelines For Trial Courts & Police On Section164 CrPC Statement, Says Copies Must Be Furnished To Accused
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-mandates-furnishing-section164-crpc-statements-accused-547723
-
-[Read on Telegram](https://t.me/livelawindia/118536)
-
----
-### 2026-08-29T11:32:57+00:00
-Losing Award, Keeping Shield: Section 9 Limits
-https://www.livelaw.in/articles/losing-award-keeping-shield-section9-limits-547708
-
-[Read on Telegram](https://t.me/livelawindia/118537)
-
----
-### 2026-08-29T11:42:57+00:00
-Chhattisgarh High Court Upholds ED's ₹110 Crore Provisional Attachment Of Goa's Westin Hotel In Alleged Liquor Scam Cash Trail
-https://www.livelaw.in/high-court/chhattisgarh-high-court/110-crore-alleged-liquor-scam-chhattisgarh-hc-refuses-quash-provisional-attachment-547748
-
-[Read on Telegram](https://t.me/livelawindia/118538)
-
----
-### 2026-08-29T11:48:37+00:00
-"You Think You Are A Lord?" Bombay High Court Slams FDA Officer Over Suspension Of Eateries Of Mumbai Cricket Association
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-slams-fda-officer-suspension-eateries-mumbai-cricket-association-547760
-
-[Read on Telegram](https://t.me/livelawindia/118539)
-
----
-### 2026-08-29T12:32:28+00:00
-₹130 Crore Disbursed Without Work Under Jal Jeevan Mission: Rajasthan High Court Asks State To Ensure Recovery From Wrongdoers
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-implementation-jal-jeevan-mission-seeks-roadmap-state-547725
-
-[Read on Telegram](https://t.me/livelawindia/118540)
-
----
 ### 2026-08-29T13:33:03+00:00
 Muslim Law Doesn't Recognize Joint Family, Brother Can't Sell Land Belonging To Minor Siblings: Gauhati High Court
 https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-muslim-law-minor-siblings-representation-547726
@@ -142,5 +86,61 @@ Neuro-Privacy And Indian Constitution: Should Brain Data Be Treated As Sensitive
 https://www.livelaw.in/articles/neuro-privacy-indian-constitution-should-brain-data-treated-sensitive-personal-data-547764
 
 [Read on Telegram](https://t.me/livelawindia/118552)
+
+---
+### 2026-08-30T04:52:07+00:00
+Stamp Duty Valuation Based On Nature Of Land's Use & Not Its Classification In Master Plan : Supreme Court
+https://www.livelaw.in/supreme-court/stamp-duty-valuation-based-on-nature-of-lands-use-not-its-classification-in-master-plan-supreme-court-547789
+
+[Read on Telegram](https://t.me/livelawindia/118553)
+
+---
+### 2026-08-30T04:53:47+00:00
+2026 LiveLaw (SC) 869 | Harinder Singh Sodhi Versus State of Rajasthan and Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-869-harinder-singh-sodhi-versus-state-of-rajasthan-and-ors-547790
+
+[Read on Telegram](https://t.me/livelawindia/118554)
+
+---
+### 2026-08-30T05:42:57+00:00
+CBI Finds Advocate's B.Com Degree Prima Facie Fake, Supreme Court Records
+https://www.livelaw.in/top-stories/cbi-finds-advocates-bcom-degree-prima-facie-fake-supreme-court-records-547761
+
+[Read on Telegram](https://t.me/livelawindia/118555)
+
+---
+### 2026-08-30T06:52:47+00:00
+Students Cannot Be Punished For Asking Questions; Intolerance Is At Odds With Constitution: Justice Ujjal Bhuyan
+https://www.livelaw.in/top-stories/students-cannot-be-punished-for-asking-questions-intolerance-is-at-odds-with-constitution-justice-ujjal-bhuyan-547791
+
+[Read on Telegram](https://t.me/livelawindia/118556)
+
+---
+### 2026-08-30T07:45:38+00:00
+We Must Shed Excessive Deference To Judiciary: Justice Ujjal Bhuyan
+https://www.livelaw.in/top-stories/national-law-university-delhi-llm-convocation-supreme-court-justice-ujjal-bhuyan-difference-of-opinion-university-role-shed-excessive-deference-547792
+
+[Read on Telegram](https://t.me/livelawindia/118557)
+
+---
+### 2026-08-30T09:32:58+00:00
+Securities Law Violations Under SEBI PFUTP Regulations: Practical Guide
+https://www.livelaw.in/articles/securities-law-violations-sebi-pfutp-regulations-practical-guide-547766
+
+[Read on Telegram](https://t.me/livelawindia/118558)
+
+---
+### 2026-08-30T10:20:28+00:00
+Bhima Koregaon Case: NIA Court Refuses To Cancel Bail Of Sudha Bharadwaj & 3 Others For Attending Press Club Event
+https://www.livelaw.in/news-updates/bhima-koregaon-case-nia-court-refuses-to-cancel-bail-of-sudha-bharadwaj-3-others-for-attending-press-club-event-547797
+
+[Read on Telegram](https://t.me/livelawindia/118559)
+
+---
+### 2026-08-30T10:37:18+00:00
+Regrettable That No One From Legal Academia Has Ever Been Appointed As Supreme Court Judge: Justice Ujjal Bhuyan
+https://www.livelaw.in/top-stories/regrettable-that-no-one-from-legal-academia-has-ever-been-appointed-as-supreme-court-judge-justice-ujjal-bhuyan-547798
+
+[Read on Telegram](https://t.me/livelawindia/118560)
 
 ---
