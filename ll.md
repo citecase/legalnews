@@ -1,93 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-29T14:32:34+00:00*
+*Last Updated: 2026-08-30T07:45:38+00:00*
 
 ---
 
-### 2026-08-29T14:32:34+00:00
-Surety Can't Be Held Liable For Entire Bond Merely Because Parolee Committed Another Crime; Forfeiture Must Be Proportionate: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/surety-liability-parole-breach-forfeiture-proportionate-547727
-
-[Read on Telegram](https://t.me/livelawindia/118545)
-
----
-### 2026-08-29T14:32:54+00:00
-Prosecuting Professionals Under PMLA: Advice, Association, Or Complicity?
-https://www.livelaw.in/articles/prosecuting-professionals-pmla-advice-association-complicity-547709
-
-[Read on Telegram](https://t.me/livelawindia/118546)
-
----
-### 2026-08-29T15:17:44+00:00
-Sultanpur Bar Association Elections: Allahabad High Court Orders 30% Reservation For Women, Sets Rotation For Key Posts
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-sultanpur-bar-association-elections-30-reservation-women-key-posts-rotation-547773
-
-[Read on Telegram](https://t.me/livelawindia/118547)
-
----
-### 2026-08-29T17:11:25+00:00
-LiveLaw High Courts Daily Highlights: August 29, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-august-29-2026-547785
-
-[Read on Telegram](https://t.me/livelawindia/118548)
-
----
-### 2026-08-29T18:10:55+00:00
-GNLU Legal Services Committee Launches National Essay Competition On Legal Aid And Access To Justice
-https://www.livelaw.in/lawschool/competitions/gnlu-legal-services-committee-launches-national-essay-competition-on-legal-aid-and-access-to-justice-547786
-
-[Read on Telegram](https://t.me/livelawindia/118549)
-
----
-### 2026-08-30T04:20:36+00:00
-CJI Surya Kant Cites Judgment In Delhi Tree-Felling Case As Example Of 'Judicial Creativity' Balancing Development & Environment
-https://www.livelaw.in/top-stories/cji-surya-kant-cites-judgment-in-delhi-tree-felling-case-as-example-of-judicial-creativity-balancing-development-environment-547788
-
-[Read on Telegram](https://t.me/livelawindia/118550)
-
----
-### 2026-08-30T04:32:17+00:00
-J&K&L High Court To Hear Plea Seeking Crime Branch Probe Into Minor's Rape, Abortion & Death In Kishtwar
-https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-to-hear-plea-seeking-crime-branch-probe-into-minors-rape-abortion-death-in-kishtwar-547787
-
-[Read on Telegram](https://t.me/livelawindia/118551)
-
----
-### 2026-08-30T04:32:36+00:00
-Neuro-Privacy And Indian Constitution: Should Brain Data Be Treated As Sensitive Personal Data?
-https://www.livelaw.in/articles/neuro-privacy-indian-constitution-should-brain-data-treated-sensitive-personal-data-547764
-
-[Read on Telegram](https://t.me/livelawindia/118552)
-
----
-### 2026-08-30T04:52:07+00:00
-Stamp Duty Valuation Based On Nature Of Land's Use & Not Its Classification In Master Plan : Supreme Court
-https://www.livelaw.in/supreme-court/stamp-duty-valuation-based-on-nature-of-lands-use-not-its-classification-in-master-plan-supreme-court-547789
-
-[Read on Telegram](https://t.me/livelawindia/118553)
-
----
-### 2026-08-30T04:53:47+00:00
-2026 LiveLaw (SC) 869 | Harinder Singh Sodhi Versus State of Rajasthan and Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-869-harinder-singh-sodhi-versus-state-of-rajasthan-and-ors-547790
-
-[Read on Telegram](https://t.me/livelawindia/118554)
-
----
-### 2026-08-30T05:42:57+00:00
-CBI Finds Advocate's B.Com Degree Prima Facie Fake, Supreme Court Records
-https://www.livelaw.in/top-stories/cbi-finds-advocates-bcom-degree-prima-facie-fake-supreme-court-records-547761
-
-[Read on Telegram](https://t.me/livelawindia/118555)
-
----
-### 2026-08-30T06:52:47+00:00
-Students Cannot Be Punished For Asking Questions; Intolerance Is At Odds With Constitution: Justice Ujjal Bhuyan
-https://www.livelaw.in/top-stories/students-cannot-be-punished-for-asking-questions-intolerance-is-at-odds-with-constitution-justice-ujjal-bhuyan-547791
-
-[Read on Telegram](https://t.me/livelawindia/118556)
-
----
 ### 2026-08-30T07:45:38+00:00
 We Must Shed Excessive Deference To Judiciary: Justice Ujjal Bhuyan
 https://www.livelaw.in/top-stories/national-law-university-delhi-llm-convocation-supreme-court-justice-ujjal-bhuyan-difference-of-opinion-university-role-shed-excessive-deference-547792
@@ -142,5 +58,89 @@ Healthy University Requires Both Authority And Dissent
 https://www.livelaw.in/articles/healthy-university-requires-authority-dissent-547767
 
 [Read on Telegram](https://t.me/livelawindia/118564)
+
+---
+### 2026-08-31T03:13:25+00:00
+Ex-Madras High Court Judge V Sivagnanam Missing In Nepal Floods; Bar Body Appeals For Help
+https://www.livelaw.in/top-stories/ex-madras-high-court-judge-v-sivagnanam-missing-in-nepal-floods-bar-body-appeals-for-help-547817
+
+[Read on Telegram](https://t.me/livelawindia/118565)
+
+---
+### 2026-08-31T03:35:05+00:00
+Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP [Mumbai; Apply Now]
+https://www.livelaw.in/job-updates/manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-mumbai-547818
+
+[Read on Telegram](https://t.me/livelawindia/118566)
+
+---
+### 2026-08-31T03:38:45+00:00
+Young Professional (Legal) Vacancy At Digital India Bhashini Division-DIC
+https://www.livelaw.in/job-updates/young-professional-legal-vacancy-at-digital-india-bhashini-division-dic-547819
+
+[Read on Telegram](https://t.me/livelawindia/118567)
+
+---
+### 2026-08-31T03:40:05+00:00
+Managing Director Vacancy At Insolvency And Bankruptcy Board Of India (IBBI)
+https://www.livelaw.in/job-updates/managing-director-vacancy-at-insolvency-and-bankruptcy-board-of-india-ibbi-547820
+
+[Read on Telegram](https://t.me/livelawindia/118568)
+
+---
+### 2026-08-31T03:41:35+00:00
+Young Professional (Legal) Vacancy At Digital India BHASHINI Division (DIBD)
+https://www.livelaw.in/job-updates/young-professional-legal-vacancy-at-digital-india-bhashini-division-dibd-547821
+
+[Read on Telegram](https://t.me/livelawindia/118569)
+
+---
+### 2026-08-31T03:42:55+00:00
+IP Counsel Vacancy At Tata Steel Limited [Apply Now]
+https://www.livelaw.in/job-updates/ip-counsel-vacancy-at-tata-steel-limited-547822
+
+[Read on Telegram](https://t.me/livelawindia/118570)
+
+---
+### 2026-08-31T03:56:55+00:00
+Illegal Detention, ₹14L Jewellery Loot Alleged At Police Station: Allahabad High Court Orders SP Inquiry, CCTV Preservation
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-illegal-detention-14l-jewellery-loot-police-station-orders-sp-inquiry-cctv-547823
+
+[Read on Telegram](https://t.me/livelawindia/118571)
+
+---
+### 2026-08-31T04:02:35+00:00
+J&K&L High Court Warns Of Action Against Senior Govt Officials Over Non-Compliance With Orders On Illegal Constructions, Fire Safety
+https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-warns-of-coercive-proceedings-against-senior-officials-over-non-compliance-with-directions-on-illegal-constructions-parking-and-fire-safety-547814
+
+[Read on Telegram](https://t.me/livelawindia/118572)
+
+---
+### 2026-08-31T04:27:16+00:00
+LiveLaw Madras High Court Weekly Roundup: August 24 to August 30, 2026
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-august-24-to-august-30-2026-547824
+
+[Read on Telegram](https://t.me/livelawindia/118573)
+
+---
+### 2026-08-31T04:32:46+00:00
+Voice Samples And Article 20(3): Where Does Forensic Identification End And Self-Incrimination Begin?
+https://www.livelaw.in/articles/voice-samples-article203-forensic-identification-end-self-incrimination-begin-547806
+
+[Read on Telegram](https://t.me/livelawindia/118574)
+
+---
+### 2026-08-31T04:38:26+00:00
+Advocates Act Recognises That A Person May Reform And Re-Enter Society After Conviction: Centre In Plea Against Perarivalan's Enrolment
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-perarivalan-enrolment-challenge-s-24a-advocates-act-valid-centre-says-547826
+
+[Read on Telegram](https://t.me/livelawindia/118575)
+
+---
+### 2026-08-31T04:45:26+00:00
+LiveLaw Breaking News Alerts: 31 August 2026
+https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts-31-august-2026-547828
+
+[Read on Telegram](https://t.me/livelawindia/118576)
 
 ---
