@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-31T14:02:38+00:00*
+*Last Updated: 2026-08-31T16:02:41+00:00*
+
+---
+
+### 2026-08-31T16:02:41+00:00
+Young Professional (Legal) Vacancy At Digital India BHASHINI Division (DIBD)
+https://www.verdictum.in/job-updates/digital-india-bhashini-division-1621002
+
+[Source Link](https://t.me/verdictumlegalupdates/28823)
+
+---
+
+### 2026-08-31T15:32:40+00:00
+Compassionate Appointment Violative Of Articles 14 & 16 Of Constitution; Scheme Must Be Implemented In Restricted Manner: Madras High Court
+https://www.verdictum.in/madras-high-court/the-secretary-to-government-v-b-arunpragadheesh-2026mhc3529-compassionate-appointment-1621011
+
+[Source Link](https://t.me/verdictumlegalupdates/28822)
+
+---
+
+### 2026-08-31T15:02:20+00:00
+Discrepancy Between Trial Court Order Sheets & Police Processes: Allahabad High Court Orders Inquiry
+https://www.verdictum.in/allahabad-high-court/mahendra-kumar-dubey-v-state-of-up-2026ahc165189-trial-court-order-police-processes-1621001
+
+[Source Link](https://t.me/verdictumlegalupdates/28821)
+
+---
+
+### 2026-08-31T14:32:59+00:00
+Adequate Judicial Infrastructure A Constitutional Duty: MP High Court Calls For List Of All Pending Projects Relating To Courts’ Infrastructure Work
+https://www.verdictum.in/madhya-pradesh-high-court/basudev-chatterjee-v-the-state-of-madhya-pradesh-judicial-infrastructure-constitutional-duty-1621000
+
+[Source Link](https://t.me/verdictumlegalupdates/28820)
 
 ---
 
@@ -129,38 +161,6 @@ Supreme Court Refuses To Entertain Plea Seeking Mandatory Ethanol Percentage Lab
 https://www.verdictum.in/supreme-court/refuses-entertain-seeking-mandatory-ethanol-percentage-petrol-pumps-1620959
 
 [Source Link](https://t.me/verdictumlegalupdates/28804)
-
----
-
-### 2026-08-31T06:02:45+00:00
-Relying On Death Certificate's Silence On Covid Is A Hyperbolic Defence: Madras High Court Directs FCI To Pay ₹15L Covid Death Compensation
-https://www.verdictum.in/madras-high-court/j-emima-v-chairman-cum-managing-director-food-corporation-of-india-2026mhc3525-death-certificates-silence-1620954
-
-[Source Link](https://t.me/verdictumlegalupdates/28803)
-
----
-
-### 2026-08-31T05:33:04+00:00
-Can’t Convict Merely Because She Held Office When Irregularities Came To Light: Madhya Pradesh High Court Acquits Govt. Official In Corruption Case
-https://www.verdictum.in/madhya-pradesh-high-court/smt-sabeena-ninama-v-the-state-of-madhya-pradesh-2026mphc-ind23403-acquittal-corruption-1620953
-
-[Source Link](https://t.me/verdictumlegalupdates/28802)
-
----
-
-### 2026-08-31T05:03:03+00:00
-Disputed Two-Minute Loudspeaker Use Beyond Election Time Limit Not An Offence: Karnataka High Court Quashes Case Against MLA
-https://www.verdictum.in/karnataka-high-court/rahim-khan-v-state-of-karnataka-and-another-2026khc42062-congress-mla-1620945
-
-[Source Link](https://t.me/verdictumlegalupdates/28801)
-
----
-
-### 2026-08-31T04:32:32+00:00
-Chewing Tobacco Not Excluded From "Food" Under FSSA: Orissa High Court Upholds Notification Regulating Its Use In Food Products
-https://www.verdictum.in/orissa-high-court/gopal-aromatic-private-limited-v-state-of-odisha-and-connected-matters-2026ohc68-1620873
-
-[Source Link](https://t.me/verdictumlegalupdates/28800)
 
 ---
 
