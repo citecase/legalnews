@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-30T15:03:14+00:00*
+*Last Updated: 2026-08-31T05:33:04+00:00*
+
+---
+
+### 2026-08-31T05:33:04+00:00
+Can’t Convict Merely Because She Held Office When Irregularities Came To Light: Madhya Pradesh High Court Acquits Govt. Official In Corruption Case
+https://www.verdictum.in/madhya-pradesh-high-court/smt-sabeena-ninama-v-the-state-of-madhya-pradesh-2026mphc-ind23403-acquittal-corruption-1620953
+
+[Source Link](https://t.me/verdictumlegalupdates/28802)
+
+---
+
+### 2026-08-31T05:03:03+00:00
+Disputed Two-Minute Loudspeaker Use Beyond Election Time Limit Not An Offence: Karnataka High Court Quashes Case Against MLA
+https://www.verdictum.in/karnataka-high-court/rahim-khan-v-state-of-karnataka-and-another-2026khc42062-congress-mla-1620945
+
+[Source Link](https://t.me/verdictumlegalupdates/28801)
+
+---
+
+### 2026-08-31T04:32:32+00:00
+Chewing Tobacco Not Excluded From "Food" Under FSSA: Orissa High Court Upholds Notification Regulating Its Use In Food Products
+https://www.verdictum.in/orissa-high-court/gopal-aromatic-private-limited-v-state-of-odisha-and-connected-matters-2026ohc68-1620873
+
+[Source Link](https://t.me/verdictumlegalupdates/28800)
 
 ---
 
@@ -137,30 +161,6 @@ Snakebite Deaths: High Court Asks Maharashtra Govt To Ensure Care For Tribal Stu
 https://www.verdictum.in/bombay-high-court/maharashtra-govt-to-ensure-care-for-tribal-students-on-hunger-strike-1620849
 
 [Source Link](https://t.me/verdictumlegalupdates/28783)
-
----
-
-### 2026-08-29T08:12:28+00:00
-Supreme Court To Hear Plea Seeking Mandatory Disclosure Of Ethanol Content In Petrol On Aug 31
-https://www.verdictum.in/supreme-court/plea-seeking-mandatory-disclosure-of-ethanol-content-in-petrol-1620843
-
-[Source Link](https://t.me/verdictumlegalupdates/28782)
-
----
-
-### 2026-08-29T07:32:47+00:00
-Blanket Ban On Foreign Travel By Government Employees Manifestly Arbitrary: Punjab & Haryana High Court
-https://www.verdictum.in/punjab-and-haryana-high-court/sheetal-rani-v-state-of-haryana-and-others-2026phhc120961-ban-travel-employees-1620842
-
-[Source Link](https://t.me/verdictumlegalupdates/28781)
-
----
-
-### 2026-08-29T06:52:26+00:00
-Allahabad High Court Orders Strict Compliance With Arnesh Kumar Guidelines, Says Callous Approach By Judicial Officers Won't Be Taken Lightly
-https://www.verdictum.in/allahabad-high-court/2026ahclko57909-db-durgesh-thru-his-stepsister-mrs-rubi-v-state-of-up-1620839
-
-[Source Link](https://t.me/verdictumlegalupdates/28780)
 
 ---
 
