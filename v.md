@@ -1,6 +1,110 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-01T05:03:04+00:00*
+*Last Updated: 2026-09-01T11:32:55+00:00*
+
+---
+
+### 2026-09-01T11:32:55+00:00
+Delhi High Court Asks Centre, FSSAI To Respond To Plea Prohibiting Sale Of Fortune Soya Refined Oil
+https://www.verdictum.in/delhi-high-court/fssai-to-respond-to-plea-prohibiting-sale-of-fortune-soya-refined-oil-1621072
+
+[Source Link](https://t.me/verdictumlegalupdates/28838)
+
+---
+
+### 2026-09-01T11:02:34+00:00
+ECI Opposes Totalizer Machine Usage Before Supreme Court, Cites Loss Of Form 17C Safeguards & Lowered Transparency [Read Affidavit]
+https://www.verdictum.in/supreme-court/eci-opposes-totaliser-machine-usage-in-supreme-court-1621074
+
+[Source Link](https://t.me/verdictumlegalupdates/28837)
+
+---
+
+### 2026-09-01T10:28:14+00:00
+Supreme Court Quashes FIRs Not Involving Bodily Harm & Destruction Of Properties Against NEET Protesters
+https://www.verdictum.in/supreme-court/neet-protests-quashes-all-firs-pending-nationwide-against-neet-protesters-1621073
+
+[Source Link](https://t.me/verdictumlegalupdates/28836)
+
+---
+
+### 2026-09-01T10:02:33+00:00
+Role Played By Investigators Appalling; Pick & Choose In Matters Of Arrest Is Deprecated: Delhi High Court On Delay In Rescuing Trafficked Infant
+https://www.verdictum.in/delhi-high-court/rajkumar-v-state-nct-of-delhi-2026dhc7282-bail-investigators-arrest-trafficked-infant-1621069
+
+[Source Link](https://t.me/verdictumlegalupdates/28835)
+
+---
+
+### 2026-09-01T09:13:32+00:00
+Breaking: Saurav Das Appears In Person Before Supreme Court & Submits That CJP Is Withdrawing September 5 Protest March
+https://www.verdictum.in/supreme-court/saurav-das-appears-supreme-court-submits-cjp-withdraws-protest-march-on-september-5-1621071
+
+[Source Link](https://t.me/verdictumlegalupdates/28834)
+
+---
+
+### 2026-09-01T09:02:31+00:00
+Externment Cannot Be Ordered Routinely Or On Mere Registration Of Multiple Cases: Supreme Court
+https://www.verdictum.in/supreme-court/vijay-kumar-rajpoot-alias-vijju-v-state-of-chhattisgarh-2026-insc-926-rajya-suraksha-adhiniyam-1621068
+
+[Source Link](https://t.me/verdictumlegalupdates/28833)
+
+---
+
+### 2026-09-01T08:32:10+00:00
+Delhi High Court Seeks Response Of Meta And Centre On National Conference MP's Plea Against FB Account Suspension
+https://www.verdictum.in/delhi-high-court/response-of-meta-and-centre-on-national-conference-mps-plea-against-fb-account-suspension-1621063
+
+[Source Link](https://t.me/verdictumlegalupdates/28832)
+
+---
+
+### 2026-09-01T07:57:09+00:00
+Supreme Court Closes NCERT Textbook Case, Centre Confirms Incorporation & Publication Of New Chapter
+https://www.verdictum.in/supreme-court/closes-ncert-textbook-case-centre-confirms-incorporation-publication-new-chapter-1621064
+
+[Source Link](https://t.me/verdictumlegalupdates/28831)
+
+---
+
+### 2026-09-01T07:33:08+00:00
+Concession By Counsel On Proposition Of Law Or Concession Which Runs Counter To Statutory Provision Can’t Bind Parties: Orissa High Court
+https://www.verdictum.in/orissa-high-court/manasmita-maharana-v-state-of-odisha-2026ohc65-db-concession-counsel-proposition-of-law-1621059
+
+[Source Link](https://t.me/verdictumlegalupdates/28830)
+
+---
+
+### 2026-09-01T07:02:27+00:00
+"Mere Knowledge Of Disposal Not Knowledge Of Order": Delhi High Court Dismisses School's Challenge Against Delay Condonation Of Appeal In Fee-Defaulting Students Discrimination Case
+https://www.verdictum.in/delhi-high-court/apeejay-school-saket-v-naya-samaj-parents-association-2026dhc7201-discrimination-against-fee-defaulting-students-1621056
+
+[Source Link](https://t.me/verdictumlegalupdates/28829)
+
+---
+
+### 2026-09-01T06:32:47+00:00
+Common Sense Approach: Supreme Court On NCDRC Third Member Who Decided Appeal Instead Of Just Answering Reference U/S  58(3) Consumer Protection Act 2019
+https://www.verdictum.in/supreme-court/askari-hussain-and-ors-v-dinesh-kumar-2026-insc-929-ncdrc-third-member-reference-appeal-1621051
+
+[Source Link](https://t.me/verdictumlegalupdates/28828)
+
+---
+
+### 2026-09-01T06:02:26+00:00
+Supreme Court Disapproves Routine Practice Of Granting Stay Of Trial While Issuing Notice In Challenges To Interlocutory Orders
+https://www.verdictum.in/supreme-court/madhav-vidarbha-estate-pvt-ltd-v-praharsh-corporation-pvt-ltd-2026-insc-925-routine-stay-of-trial-interlocutory-revisions-1621046
+
+[Source Link](https://t.me/verdictumlegalupdates/28827)
+
+---
+
+### 2026-09-01T05:32:25+00:00
+Victim Must Be Party To Settlement For Quashing Criminal Proceedings; Informant’s Settlement Not Enough: Supreme Court
+https://www.verdictum.in/supreme-court/anand-kumar-sanjay-lalwani-v-the-state-of-madhya-pradesh-2026-insc-928-1621039
+
+[Source Link](https://t.me/verdictumlegalupdates/28826)
 
 ---
 
@@ -57,110 +161,6 @@ Earlier Directions Permitting Cockfight Contrary To Law: Madras High Court
 https://www.verdictum.in/madras-high-court/the-district-collector-v-gmanickam-2026mhc3501-direction-cockfight-contrary-law-1620999
 
 [Source Link](https://t.me/verdictumlegalupdates/28819)
-
----
-
-### 2026-08-31T13:32:57+00:00
-Muslim Man Engaging In Sexual Intercourse With Minor Wife Liable For Rape Under IPC & POCSO Act: Kerala High Court
-https://www.verdictum.in/kerala-high-court/x-v-x-2026ker64110-muslim-man-engaging-sexual-intercourse-girl-below-18-years-1621012
-
-[Source Link](https://t.me/verdictumlegalupdates/28818)
-
----
-
-### 2026-08-31T13:02:56+00:00
-Apex Court Refuses To Entertain PIL Seeking Enforcement Of BNS Provision On Sexual Intercourse On False Promise Of Marriage
-https://www.verdictum.in/supreme-court/enforcement-of-bns-provision-on-sexual-intercourse-on-false-promise-of-marriage-1620996
-
-[Source Link](https://t.me/verdictumlegalupdates/28817)
-
----
-
-### 2026-08-31T12:32:35+00:00
-Madras Bar Association Urges Centre & CJI To Search & Rescue Justice V Sivagnanam Missing In Nepal Floods
-https://www.verdictum.in/news/madras-bar-association-search-rescue-former-justice-v-sivagnanam-missing-nepal-floods-1620997
-
-[Source Link](https://t.me/verdictumlegalupdates/28816)
-
----
-
-### 2026-08-31T12:02:34+00:00
-Apex Court Dismisses Plea By SBI Against NCLAT Order Directing Payment Of PF, Gratuity To Former Jet Airways Employees
-https://www.verdictum.in/supreme-court/nclat-order-directing-payment-of-pf-gratuity-to-former-jet-airways-employees-1620990
-
-[Source Link](https://t.me/verdictumlegalupdates/28815)
-
----
-
-### 2026-08-31T11:32:54+00:00
-Establishment Of Brothel Itself Unlawful Commercial Venture; Customer Not Immunised From Criminal Liability: Kerala High Court
-https://www.verdictum.in/kerala-high-court/noushad-v-state-of-kerala-brothel-unlawful-commercial-venture-customer-criminal-liability-1620989
-
-[Source Link](https://t.me/verdictumlegalupdates/28814)
-
----
-
-### 2026-08-31T11:02:33+00:00
-Prisoner Cannot Be Reduced To A Ping-Pong Ball: Delhi High Court Orders Forthwith Release of Life Convict After Fifth Mechanical Rejection Of Premature Release
-https://www.verdictum.in/delhi-high-court/moti-alias-mohit-v-state-of-nct-of-delhi-2026dhc7268-life-convict-after-fifth-mechanical-rejection-rig-veda-1620986
-
-[Source Link](https://t.me/verdictumlegalupdates/28813)
-
----
-
-### 2026-08-31T10:32:52+00:00
-Weekly Overview| Supreme Court Judgments: August 24 – August 27, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-august-24-august-27-2026-1620985
-
-[Source Link](https://t.me/verdictumlegalupdates/28812)
-
----
-
-### 2026-08-31T10:02:31+00:00
-Supreme Court Stays Proceedings In FIR Against Kotdwar Gym Operator Deepak Kumar
-https://www.verdictum.in/supreme-court/fir-against-kotdwar-gym-operator-deepak-kumar-1620981
-
-[Source Link](https://t.me/verdictumlegalupdates/28811)
-
----
-
-### 2026-08-31T09:31:10+00:00
-Supreme Court Directs Union Government To Formulate Scheme Regulating Retail Sale Of Acid; Suggests Complete Ban Or Stricter Controls
-https://www.verdictum.in/supreme-court/directs-union-government-formulate-scheme-regulating-retail-sale-acid-1620983
-
-[Source Link](https://t.me/verdictumlegalupdates/28810)
-
----
-
-### 2026-08-31T09:02:50+00:00
-We Expect Both Sides To Respect, Honour & Follow Law Of Land: Supreme Court On Plea Against CJP Protest March
-https://www.verdictum.in/supreme-court/plea-against-cjp-september-protest-march-ahead-brics-summit-1620980
-
-[Source Link](https://t.me/verdictumlegalupdates/28809)
-
----
-
-### 2026-08-31T08:33:09+00:00
-Supreme Court Refuses To Entertain Plea By Family Court Judges Seeking Directions For Consideration On Elevation To High Court
-https://www.verdictum.in/supreme-court/family-court-judges-seeking-directions-for-consideration-on-elevation-to-high-court-1620976
-
-[Source Link](https://t.me/verdictumlegalupdates/28808)
-
----
-
-### 2026-08-31T08:02:28+00:00
-Supreme Court Dismisses Pleas Challenging HC Order Setting Aside Bail Of Owners In Goa Nightclub Fire
-https://www.verdictum.in/supreme-court/hc-order-setting-aside-bail-of-owners-in-goa-nightclub-fire-1620974
-
-[Source Link](https://t.me/verdictumlegalupdates/28807)
-
----
-
-### 2026-08-31T07:33:07+00:00
-Section 23 Senior Citizens Act| Transferor Need Not Be Aged 60  On The Date Of Execution Of Transfer: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/tejaswini-v-v-the-state-of-karnataka-2026khc46022-maintenance-and-welfare-of-parents-and-senior-citizens-act-2007-1620967
-
-[Source Link](https://t.me/verdictumlegalupdates/28806)
 
 ---
 
