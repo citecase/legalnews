@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-01T13:29:17+00:00*
+*Last Updated: 2026-09-01T13:47:27+00:00*
 
 ---
 
-### 2026-09-01T13:29:17+00:00
-Man Accidentally Exposing Himself While Urinating In Open Not 'Sexual Harassment': Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/man-urinate-in-open-flashed-woman-accidentally-not-sexual-harassment-548155
-
-[Read on Telegram](https://t.me/livelawindia/118767)
-
----
-### 2026-09-01T13:37:47+00:00
-Madras High Court Reserves Verdict On AIADMK Plea Challenging Acceptance Of 4 MLAs' Resignations Who Joined TVK
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-aiadmk-whip-plea-challenge-acceptance-resignation-mlas-548156
-
-[Read on Telegram](https://t.me/livelawindia/118768)
-
----
-### 2026-09-01T13:40:07+00:00
-2026 LiveLaw (SC) 879 | RAS AL KHAIMAH INVESTMENT AUTHORITY VERSUS MATRIX PHARMACORP PRIVATE LIMITED & ANR
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-879-ras-al-khaimah-investment-authority-versus-matrix-pharmacorp-private-limited-anr-548159
-
-[Read on Telegram](https://t.me/livelawindia/118769)
-
----
 ### 2026-09-01T13:47:27+00:00
 Non-Disclosure Of Pending Criminal Case In Panchayat Poll Nomination Form Justifies Election Annulment: MP High Court
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/suppressing-criminal-case-pendency-not-minor-discrepancy-panchayat-election-void-548157
@@ -142,5 +121,26 @@ J&K&L High Court Upholds Preventive Detention Of Man Accused In Alleged Lynching
 https://www.livelaw.in/high-court/jammu-kashmir/lynching-of-dy-sp-on-shab-i-qadr-jk-high-court-upholds-preventive-detention-of-accused-rejects-plea-for-release-548185
 
 [Read on Telegram](https://t.me/livelawindia/118786)
+
+---
+### 2026-09-01T16:36:38+00:00
+Every Indian Carrying Shit On Their Head As Long As Shameful Practice Of Manual Scavenging Continues : Justice Dhulia
+https://www.livelaw.in/top-stories/every-indian-carrying-shit-on-their-head-as-long-as-shameful-practice-of-manual-scavenging-continues-justice-dhulia-548187
+
+[Read on Telegram](https://t.me/livelawindia/118787)
+
+---
+### 2026-09-01T17:27:48+00:00
+Supreme Court Daily Round-Up : September 1, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-september-1-2026-548169
+
+[Read on Telegram](https://t.me/livelawindia/118788)
+
+---
+### 2026-09-01T18:40:09+00:00
+LiveLaw High Courts Daily Highlights: September 01, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-01-2026-548188
+
+[Read on Telegram](https://t.me/livelawindia/118789)
 
 ---
