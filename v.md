@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-08-31T16:02:41+00:00*
+*Last Updated: 2026-09-01T05:03:04+00:00*
+
+---
+
+### 2026-09-01T05:03:04+00:00
+Supreme Court Collegium Recommends Appointment Of Chief Justices Across Four High Courts
+https://www.verdictum.in/supreme-court/collegium-appointment-of-chief-justices-across-four-high-courts-1621043
+
+[Source Link](https://t.me/verdictumlegalupdates/28825)
+
+---
+
+### 2026-09-01T04:33:13+00:00
+Filing Of FIR, Charge Sheet & Taking Cognizance Cannot Be The Basis For Blacklisting Without Independent Assessment: Gauhati High Court
+https://www.verdictum.in/guwahati-high-court/united-drilling-tools-limited-v-oil-india-limited-wpc14872026-filing-fir-charge-sheet-cognizance-1620998
+
+[Source Link](https://t.me/verdictumlegalupdates/28824)
 
 ---
 
@@ -145,22 +161,6 @@ Section 23 Senior Citizens Act| Transferor Need Not Be Aged 60  On The Date Of E
 https://www.verdictum.in/karnataka-high-court/tejaswini-v-v-the-state-of-karnataka-2026khc46022-maintenance-and-welfare-of-parents-and-senior-citizens-act-2007-1620967
 
 [Source Link](https://t.me/verdictumlegalupdates/28806)
-
----
-
-### 2026-08-31T07:02:46+00:00
-Nothing To Establish That Dacoity Was First Intention & Murder Was Committed In Course Of Dacoity: Allahabad High Court Sets Aside Conviction U/S.396 IPC
-https://www.verdictum.in/allahabad-high-court/krishna-pal-and-others-v-state-2026ahc179062-dacoity-murder-section-396-ipc-1620960
-
-[Source Link](https://t.me/verdictumlegalupdates/28805)
-
----
-
-### 2026-08-31T06:14:46+00:00
-Supreme Court Refuses To Entertain Plea Seeking Mandatory Ethanol Percentage Labelling At Petrol Pumps
-https://www.verdictum.in/supreme-court/refuses-entertain-seeking-mandatory-ethanol-percentage-petrol-pumps-1620959
-
-[Source Link](https://t.me/verdictumlegalupdates/28804)
 
 ---
 
