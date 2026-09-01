@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-08-31T14:32:37+00:00*
+*Last Updated: 2026-08-31T15:16:08+00:00*
 
 ---
 
-### 2026-08-31T14:32:37+00:00
-AI Bot Calls, Impersonation, And Constitutional Rights To Privacy
-https://www.livelaw.in/articles/ai-bot-calls-impersonation-constitutional-privacy-rights-547907
-
-[Read on Telegram](https://t.me/livelawindia/118657)
-
----
-### 2026-08-31T14:32:57+00:00
-Registering Authority Becomes Functus Officio Once Sale Deed Is Registered, Cannot Cancel It: Gauhati High Court Reiterates
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-registering-authority-becomes-functus-officio-once-sale-deed-registered-cannot-cancel-it-547898
-
-[Read on Telegram](https://t.me/livelawindia/118658)
-
----
-### 2026-08-31T14:37:47+00:00
-Supreme Court Dismisses Plea Challenging Appointment Of Justice PK Mishra's Son As Rajasthan Additional Advocate General
-https://www.livelaw.in/top-stories/supreme-court-dismisses-plea-challenging-appointment-of-justice-pk-mishras-son-as-rajasthan-additional-advocate-general-547974
-
-[Read on Telegram](https://t.me/livelawindia/118659)
-
----
-### 2026-08-31T14:44:27+00:00
-Informant's Consent Not Needed To Quash Criminal Case Based On Settlement With Victim : Supreme Court
-https://www.livelaw.in/supreme-court/informants-consent-not-needed-to-quash-criminal-case-based-on-settlement-with-victim-supreme-court-547978
-
-[Read on Telegram](https://t.me/livelawindia/118660)
-
----
-### 2026-08-31T14:45:07+00:00
-Haridwar Consumer Commission Holds OYO Liable After Hotel Refused Accommodation Despite Confirmed Booking
-https://www.livelaw.in/consumer-cases/haridwar-consumer-commission-holds-oyo-liable-after-hotel-refused-accommodation-despite-confirmed-booking-547979
-
-[Read on Telegram](https://t.me/livelawindia/118661)
-
----
-### 2026-08-31T14:46:28+00:00
-2026 LiveLaw (SC) 874| Anand Kumar @ Sanjay Lalwani Versus The State of Madhya Pradesh And Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-874-anand-kumar-sanjay-lalwani-versus-the-state-of-madhya-pradesh-and-ors-547980
-
-[Read on Telegram](https://t.me/livelawindia/118662)
-
----
-### 2026-08-31T14:47:28+00:00
-Being An Advocate Not Ground To Hold He Cannot Commit Any Offence: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-being-advocate-not-ground-to-hold-wont-commit-offence-547958
-
-[Read on Telegram](https://t.me/livelawindia/118663)
-
----
-### 2026-08-31T14:50:08+00:00
-Former Wife Protected By DV Act Residence Order Can Seek Police Protection, But Can't Oust Husband From His Own House: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-police-protection-dv-act-residence-order-547981
-
-[Read on Telegram](https://t.me/livelawindia/118664)
-
----
-### 2026-08-31T14:58:08+00:00
-Bombay High Court Urges BMC, Citizens To Take 'War-Footing' Efforts To Ensure Mumbai Becomes Free From Garbage, Litter
-https://www.livelaw.in/high-court/bombay-high-court/mumbai-garbage-bmc-citizens-take-war-footing-efforts-547983
-
-[Read on Telegram](https://t.me/livelawindia/118665)
-
----
 ### 2026-08-31T15:16:08+00:00
 Muscat Authorities Examining Claims Of Ransom Calls To Family Of Indian Captain Missing After Hormuz Attack : Centre Tells Supreme Court
 https://www.livelaw.in/top-stories/supreme-court-merchant-navy-captain-ashish-kumar-drone-attack-wife-plea-to-trace-ransom-calls-negative-dna-muscat-authorities-to-examine-547989
@@ -142,5 +79,68 @@ SC Collegium Recommends Appointment Of Chief Justices At 4 High Courts
 https://www.livelaw.in/news-updates/supreme-court-collegium-recommends-appointment-of-chief-justices-to-3-high-courts-547999
 
 [Read on Telegram](https://t.me/livelawindia/118676)
+
+---
+### 2026-09-01T02:32:38+00:00
+Law Of Agency And AI Agent: Can An Autonomous AI Agent Bind Its Human Principal?
+https://www.livelaw.in/lawschool/articles/lawof-agency-ai-agent-autonomous-ai-agent-bind-human-principal-547909
+
+[Read on Telegram](https://t.me/livelawindia/118677)
+
+---
+### 2026-09-01T02:33:18+00:00
+LiveLaw High Courts Weekly Highlights: August 24 - August 30, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-weekly-highlights-547976
+
+[Read on Telegram](https://t.me/livelawindia/118678)
+
+---
+### 2026-09-01T03:27:08+00:00
+Senior Executive (Corporate Legal) Vacancy At Godrej Industries Group
+https://www.livelaw.in/job-updates/senior-executive-corporate-legal-vacancy-at-godrej-industries-group-548005
+
+[Read on Telegram](https://t.me/livelawindia/118679)
+
+---
+### 2026-09-01T03:40:08+00:00
+Manager Vacancy At Tata Steel Limited
+https://www.livelaw.in/job-updates/manager-vacancy-at-tata-steel-limited-548007
+
+[Read on Telegram](https://t.me/livelawindia/118680)
+
+---
+### 2026-09-01T03:41:48+00:00
+Assistant Manager (Legal) Vacancy At Andhra Pradesh Capital Region Development Authority, Amaravati
+https://www.livelaw.in/job-updates/assistant-manager-legal-vacancy-at-andhra-pradesh-capital-region-development-authority-amaravati-548008
+
+[Read on Telegram](https://t.me/livelawindia/118681)
+
+---
+### 2026-09-01T03:43:08+00:00
+Senior Manager (Law), Manager (Law), And Manager (Company Secretary) Vacancy At Nainital Bank Limited
+https://www.livelaw.in/job-updates/senior-manager-law-manager-law-and-manager-company-secretary-vacancy-at-nainital-bank-limited-548009
+
+[Read on Telegram](https://t.me/livelawindia/118682)
+
+---
+### 2026-09-01T03:47:09+00:00
+After Tribal Students' Hunger Strike, Bombay High Court To Monitor Ashram School Infrastructure Across Maharashtra Through PIL
+https://www.livelaw.in/high-court/bombay-high-court/tribal-students-hunger-strike-monitor-ashram-school-infrastructure-maharashtra-548003
+
+[Read on Telegram](https://t.me/livelawindia/118683)
+
+---
+### 2026-09-01T03:52:29+00:00
+Sexual Harassment Is Judiciary's Dirty Secret; Many Women Judges Face It : Indira Jaising
+https://www.livelaw.in/top-stories/sexual-harassment-is-judiciarys-dirty-secret-many-women-judges-face-it-indira-jaising-547984
+
+[Read on Telegram](https://t.me/livelawindia/118684)
+
+---
+### 2026-09-01T04:02:39+00:00
+Student Must Be Caught 'Actually Using' Cheating Material For Major Penalty: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-reduces-penalty-of-law-student-found-cheating-inside-urinal-548002
+
+[Read on Telegram](https://t.me/livelawindia/118685)
 
 ---
