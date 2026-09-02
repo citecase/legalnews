@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-01T13:52:27+00:00*
+*Last Updated: 2026-09-02T07:38:36+00:00*
 
 ---
 
-### 2026-09-01T13:52:27+00:00
-Mere Delay In Depositing Foreign Travel Tax Not Same As 'Failure To Pay' : Supreme Court Sets Aside Penalty On Saudi Airlines
-https://www.livelaw.in/top-stories/supreme-court-mere-delay-depositing-foreign-travel-tax-548161
+### 2026-09-02T07:38:36+00:00
+Pharmacist Can't Escape Licence Cancellation Over Unaccounted Psychotropic Drugs By Claiming Stock Was Never Sold: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/ndps-act-pharmacist-licence-cancellation-excess-psychotropic-stock-548248
 
-[Read on Telegram](https://t.me/livelawindia/118772)
-
----
-### 2026-09-01T13:52:47+00:00
-Slum Dwellers Have No Fundamental Right To In-Situ Rehabilitation When Alternate Accommodation Is Provided: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/slum-dwellers-no-fundamental-right-in-situ-rehabilitation-548130
-
-[Read on Telegram](https://t.me/livelawindia/118773)
+[Read on Telegram](https://t.me/livelawindia/118825)
 
 ---
-### 2026-09-01T13:55:27+00:00
-2026 LiveLaw (SC) 880 | M/s Saudi Arabian Airlines v Union of India & Ors
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-880-ms-saudi-arabian-airlines-v-union-of-india-ors-548162
+### 2026-09-02T07:45:36+00:00
+After Kerala High Court Nudge, State Decides To Sanction ₹10 Crore For Road Repairs Near Kochi Metro Pillars
+https://www.livelaw.in/high-court/kerala-high-court/kerala-government-sanction-10-crore-rectification-road-conditions-metro-pillars-548249
 
-[Read on Telegram](https://t.me/livelawindia/118774)
-
----
-### 2026-09-01T13:58:07+00:00
-Post-Conviction Compromise Permissible To Quash Proceedings In Non-Heinous Offences : Supreme Court
-https://www.livelaw.in/supreme-court/post-conviction-compromise-permissible-to-quash-proceedings-in-non-heinous-offences-supreme-court-548163
-
-[Read on Telegram](https://t.me/livelawindia/118775)
+[Read on Telegram](https://t.me/livelawindia/118826)
 
 ---
-### 2026-09-01T13:59:47+00:00
-2026 LiveLaw (SC) 881 | THE STATE OF PUNJAB VERSUS AVTAR SINGH & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-881-the-state-of-punjab-versus-avtar-singh-ors-548164
+### 2026-09-02T07:53:27+00:00
+S.413 BNSS| Victim Need Not Seek Leave To Appeal Against Acquittal Or Conviction For Lesser Offence: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/victim-right-to-appeal-acquittal-conviction-for-lesser-offence-413-bnss-372-crpc-548251
 
-[Read on Telegram](https://t.me/livelawindia/118776)
-
----
-### 2026-09-01T14:00:27+00:00
-Collected Taxes For 8 Years, Then Initiated Eviction; Allahabad High Court Slams Meerut Cantonment Board, Sets Aside Orders
-https://www.livelaw.in/high-court/allahabad-high-court/meerut-cantonment-board-collected-taxes-8-years-eviction-allahabad-high-court-548165
-
-[Read on Telegram](https://t.me/livelawindia/118777)
+[Read on Telegram](https://t.me/livelawindia/118827)
 
 ---
-### 2026-09-01T14:21:17+00:00
-LiveLaw Daily| Subhash Chandra NCLT| Student protest FIRs| Totalizer Method| Ramesh Mhatre
-https://www.livelaw.in/podcast/ramesh-mhatre-shiv-sena-cjp-cockroach-janta-party-news-india-supreme-court-students-clat-upsc-548166
+### 2026-09-02T08:07:27+00:00
+'You Don't Continue To Be Democratically Elected, Only A Pro Tem Chairman' : Supreme Court To Manan Kumar Mishra
+https://www.livelaw.in/top-stories/supreme-court-to-manan-kumar-mishra-you-are-not-democratically-elected-only-a-pro-tem-chairman-548252
 
-[Read on Telegram](https://t.me/livelawindia/118778)
-
----
-### 2026-09-01T14:25:37+00:00
-Maternity Leave Can't Cost Women Their Jobs Or Promotions: Delhi High Court Directs Centre To Frame Safeguards
-https://www.livelaw.in/high-court/delhi-high-court/maternity-leave-cant-cost-women-their-jobs-or-promotions-delhi-high-court-directs-centre-to-frame-safeguards-548167
-
-[Read on Telegram](https://t.me/livelawindia/118779)
+[Read on Telegram](https://t.me/livelawindia/118828)
 
 ---
-### 2026-09-01T14:27:57+00:00
-Coparcener Can Orally Relinquish Rights In Ancestral Property Without Written Registered Document: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/coparcener-orally-relinquish-rights-ancestral-property-548129
+### 2026-09-02T08:09:07+00:00
+Mere Variation In Disability Assessments Cannot Prove Fraud: Rajasthan High Court Sets Aside Employee's Termination
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-mere-variation-disability-assessments-prove-fraud-548254
 
-[Read on Telegram](https://t.me/livelawindia/118780)
-
----
-### 2026-09-01T14:32:38+00:00
-Retrospective Sales Tax Liability: Revenue To State versus Reasonableness.
-https://www.livelaw.in/articles/retrospective-sales-tax-liability-revenue-state-versus-reasonableness-547913
-
-[Read on Telegram](https://t.me/livelawindia/118781)
+[Read on Telegram](https://t.me/livelawindia/118829)
 
 ---
-### 2026-09-01T15:07:58+00:00
-Savarkar Never Hated Muslims; Rahul Gandhi Defamed Him By Portaying Him As Muslim-Hater : Kin Tells Court
-https://www.livelaw.in/top-stories/savarkar-never-hated-muslims-rahul-gandhi-defamed-him-by-portaying-him-as-muslim-hater-kin-tells-court-548178
+### 2026-09-02T08:11:24+00:00
+Mere Suspicion Of Income Misstatement Not Enough To Reject Insurance Claim: Kurnool Commission
+https://www.livelaw.in/consumer-cases/mere-suspicion-of-income-misstatement-not-enough-to-reject-insurance-claim-kurnool-commission-548256
 
-[Read on Telegram](https://t.me/livelawindia/118782)
-
----
-### 2026-09-01T15:16:08+00:00
-Most HCs Agree To Raise District Judges' Retirement Age, Many States Undecided: Supreme Court Told
-https://www.livelaw.in/top-stories/supreme-court-district-judges-retirement-age-enhancement-judicial-officers-government-servants-cant-be-compared-no-financial-burden-548179
-
-[Read on Telegram](https://t.me/livelawindia/118783)
+[Read on Telegram](https://t.me/livelawindia/118830)
 
 ---
-### 2026-09-01T15:42:48+00:00
-Court Fees Payable 'Per Petitioner', Not 'Per Petition' If Joint Plea Espouses Individual Causes Of Action: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/court-fees-payable-per-petitioner-not-per-petition-548134
+### 2026-09-02T08:18:04+00:00
+Karnataka High Court Imposes ₹1 Lakh Costs On Man For Marking Plea Against ED Officer To CJI, Finance Minister
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-rejects-plea-change-ed-officer-548258
 
-[Read on Telegram](https://t.me/livelawindia/118784)
-
----
-### 2026-09-01T16:05:58+00:00
-Delhi High Court Upholds Sole Agency For Nationwide Emergency Alert System, Says Govt Can Depart From Open Tender In Public Interest
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-upholds-sole-agency-for-nationwide-emergency-alert-system-says-govt-can-depart-from-open-tender-in-public-interest-548186
-
-[Read on Telegram](https://t.me/livelawindia/118785)
+[Read on Telegram](https://t.me/livelawindia/118831)
 
 ---
-### 2026-09-01T16:06:18+00:00
-J&K&L High Court Upholds Preventive Detention Of Man Accused In Alleged Lynching Of Deputy Superintendent Of Police
-https://www.livelaw.in/high-court/jammu-kashmir/lynching-of-dy-sp-on-shab-i-qadr-jk-high-court-upholds-preventive-detention-of-accused-rejects-plea-for-release-548185
+### 2026-09-02T08:20:24+00:00
+Mizoram Police Press Release On Murder Probe Violated Media Briefing Protocol, Triggered Mob Violence: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/mizoram-police-murder-press-release-triggered-mob-violence-violated-media-briefing-protocol-548260
 
-[Read on Telegram](https://t.me/livelawindia/118786)
-
----
-### 2026-09-01T16:36:38+00:00
-Every Indian Carrying Shit On Their Head As Long As Shameful Practice Of Manual Scavenging Continues : Justice Dhulia
-https://www.livelaw.in/top-stories/every-indian-carrying-shit-on-their-head-as-long-as-shameful-practice-of-manual-scavenging-continues-justice-dhulia-548187
-
-[Read on Telegram](https://t.me/livelawindia/118787)
+[Read on Telegram](https://t.me/livelawindia/118832)
 
 ---
-### 2026-09-01T17:27:48+00:00
-Supreme Court Daily Round-Up : September 1, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-september-1-2026-548169
+### 2026-09-02T08:31:14+00:00
+Persons Facing LOC Must First Approach Trial Court For Temporary Suspension To Travel Abroad: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/look-out-circular-temporary-suspension-plea-foreign-travel-548262
 
-[Read on Telegram](https://t.me/livelawindia/118788)
-
----
-### 2026-09-01T18:40:09+00:00
-LiveLaw High Courts Daily Highlights: September 01, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-01-2026-548188
-
-[Read on Telegram](https://t.me/livelawindia/118789)
+[Read on Telegram](https://t.me/livelawindia/118833)
 
 ---
-### 2026-09-02T02:32:55+00:00
-When Can Film Tell Story Of Criminal Case?
-https://www.livelaw.in/articles/when-can-film-tell-story-criminal-case-548171
+### 2026-09-02T08:56:56+00:00
+University Can Stall Appointments Pending Enquiry Into Unfair Means In NTA Recruitment Exam: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/university-stall-appointments-enquiry-cheating-public-recruitment-exam-548263
 
-[Read on Telegram](https://t.me/livelawindia/118790)
+[Read on Telegram](https://t.me/livelawindia/118834)
 
 ---
-### 2026-09-02T03:32:25+00:00
-LiveLaw Andhra Pradesh High Court Weekly Round-Up: August 24 - August 30, 2026
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-weekly-roundup-548189
+### 2026-09-02T09:32:46+00:00
+Mineral Rights, Mineral Wrongs: Centre's Overreach On Mineral Taxation
+https://www.livelaw.in/articles/mineral-rights-mineral-wrongs-centre-overreach-mineral-taxation-548174
 
-[Read on Telegram](https://t.me/livelawindia/118791)
+[Read on Telegram](https://t.me/livelawindia/118835)
+
+---
+### 2026-09-02T09:35:26+00:00
+MP High Court Refuses 'Blanket' Takedown Of Viral Video Allegedly Showing Ex-Chief Secretary's Daughter-In-Law Insulting Temple
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/no-blanket-takedown-social-media-video-former-chief-secretarys-daughter-in-law-548269
+
+[Read on Telegram](https://t.me/livelawindia/118836)
+
+---
+### 2026-09-02T09:45:26+00:00
+Are Our Constitutional Courts Protecting Citizens Fundamental Rights!
+https://www.livelaw.in/top-stories/constitutional-courts-protecting-citizens-fundamental-rights-548270
+
+[Read on Telegram](https://t.me/livelawindia/118837)
+
+---
+### 2026-09-02T10:02:57+00:00
+Supreme Court Questions BCI-PEARL FIRST Trust : 'How Can BCI Office-Bearers Be Permanent Trustees Beyond Their Term?'
+https://www.livelaw.in/top-stories/supreme-court-questions-bci-pearl-first-trust-how-can-bci-office-bearers-be-permanent-trustees-beyond-their-term-548271
+
+[Read on Telegram](https://t.me/livelawindia/118838)
+
+---
+### 2026-09-02T10:04:17+00:00
+'Is This Some Commercial Activity?': Delhi High Court Questions DDA Stand On E-Auction Of Land For Christian Burial Grounds
+https://www.livelaw.in/high-court/delhi-high-court/christian-burial-grounds-e-auction-not-commercial-activity-548272
+
+[Read on Telegram](https://t.me/livelawindia/118839)
+
+---
+### 2026-09-02T10:22:57+00:00
+'Glaring Discrepancies In Police Investigation, More Questions Than Answers': Bombay High Court While Ordering CBI Probe Into Disha Salian Death
+https://www.livelaw.in/high-court/bombay-high-court/disha-salian-death-cbi-probe-police-investigation-glaring-discrepancies-548274
+
+[Read on Telegram](https://t.me/livelawindia/118840)
+
+---
+### 2026-09-02T10:29:57+00:00
+Guilt Can't Be Presumed Merely Because Investigating Officer Faced Collusion Allegations : Supreme Court
+https://www.livelaw.in/supreme-court/guilt-cant-be-presumed-merely-because-investigating-officer-faced-collusion-allegations-supreme-court-548275
+
+[Read on Telegram](https://t.me/livelawindia/118841)
+
+---
+### 2026-09-02T10:31:17+00:00
+2026 LiveLaw (SC) 883 | Dhrub Singh Etc. v. The State of Bihar
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-883-dhrub-singh-etc-v-the-state-of-bihar-548276
+
+[Read on Telegram](https://t.me/livelawindia/118842)
+
+---
+### 2026-09-02T10:53:17+00:00
+Husband Working Away From Wife Can't Be Blamed For Her Adultery: Madras High Court Rejects Family Court's Reasoning, Grants Divorce
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-husband-not-taking-wife-not-reason-for-adultery-548280
+
+[Read on Telegram](https://t.me/livelawindia/118843)
+
+---
+### 2026-09-02T10:57:07+00:00
+Delhi Lakshmi Yojana: PIL Challenges Mandatory MP/MLA Recommendation For ₹2,500 Monthly Aid To Eligible Women
+https://www.livelaw.in/high-court/delhi-high-court/delhi-lakshmi-yojana-benefits-mpmla-endorsement-letter-challenged-548283
+
+[Read on Telegram](https://t.me/livelawindia/118844)
 
 ---
