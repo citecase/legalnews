@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-01T16:02:42+00:00*
+*Last Updated: 2026-09-02T04:33:14+00:00*
+
+---
+
+### 2026-09-02T04:33:14+00:00
+Connaught Place Area Is No Vending/No Squatting Zone: Delhi High Court Upholds NDMC’s Action
+https://www.verdictum.in/delhi-high-court/mahavir-jain-v-amit-yadav-2026dhc7242-connaught-place-no-vending-zone-1621088
+
+[Source Link](https://t.me/verdictumlegalupdates/28848)
 
 ---
 
@@ -153,14 +161,6 @@ https://www.verdictum.in/orissa-high-court/manasmita-maharana-v-state-of-odisha-
 https://www.verdictum.in/delhi-high-court/apeejay-school-saket-v-naya-samaj-parents-association-2026dhc7201-discrimination-against-fee-defaulting-students-1621056
 
 [Source Link](https://t.me/verdictumlegalupdates/28829)
-
----
-
-### 2026-09-01T06:32:47+00:00
-Common Sense Approach: Supreme Court On NCDRC Third Member Who Decided Appeal Instead Of Just Answering Reference U/S  58(3) Consumer Protection Act 2019
-https://www.verdictum.in/supreme-court/askari-hussain-and-ors-v-dinesh-kumar-2026-insc-929-ncdrc-third-member-reference-appeal-1621051
-
-[Source Link](https://t.me/verdictumlegalupdates/28828)
 
 ---
 
