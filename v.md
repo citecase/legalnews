@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-02T11:32:36+00:00*
+*Last Updated: 2026-09-02T16:02:43+00:00*
+
+---
+
+### 2026-09-02T16:02:43+00:00
+Manager-Legal Vacancy At HLL Lifecare Limited (HLL)
+https://www.verdictum.in/job-updates/hll-lifecare-limited-1621168
+
+[Source Link](https://t.me/verdictumlegalupdates/28871)
+
+---
+
+### 2026-09-02T15:32:22+00:00
+Allahabad High Court Explains Composite Framework Linking JJ Act With RTE, Disability Act And Mental Healthcare Act For Rehabilitating Children In Conflict With Law
+https://www.verdictum.in/allahabad-high-court/x-juvenile-rehabilitation-and-reintegration-v-state-of-up-2026ahc180196-1621173
+
+[Source Link](https://t.me/verdictumlegalupdates/28870)
+
+---
+
+### 2026-09-02T15:02:41+00:00
+Can’t Grant Relief That No Party Has Asked For: Madras High Court Sets Aside Direction Prohibiting Acquisition Of Elephants By Temples Or Private Individuals
+https://www.verdictum.in/madras-high-court/arulmigu-sri-subramania-swami-thirukoil-v-sgm-shaa-alias-sheik-mohammed-2026mhc3581-1621172
+
+[Source Link](https://t.me/verdictumlegalupdates/28869)
+
+---
+
+### 2026-09-02T14:32:41+00:00
+Photocopies Of Screenshots Of Social Media Posts On News Websites Cannot Be Treated As Primary Evidence: Madras High Court Acquits BJP’s H. Raja For Remarks Against DMK Leaders
+https://www.verdictum.in/madras-high-court/h-raja-ex-mla-v-the-state-represented-crl-a-no-1635-of-2024-remarks-against-dmk-leaders-1621171
+
+[Source Link](https://t.me/verdictumlegalupdates/28868)
+
+---
+
+### 2026-09-02T14:02:40+00:00
+Kerala High Court Highlights Delayed Release Of Bailed Inmates, Issues Directions To Rectify Discrepancies In E-Prisons Integration
+https://www.verdictum.in/kerala-high-court/highlights-delayed-release-bailed-inmate-discrepancies-in-e-prisons-integration-1621170
+
+[Source Link](https://t.me/verdictumlegalupdates/28867)
+
+---
+
+### 2026-09-02T13:32:19+00:00
+Electricity Is Essential Commodity & Living Without Same Amounts To Deprivation Of Meaningful Civilized Living: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/sri-avijit-singha-roy-anr-v-ms-gts-constructions-ors-electricity-essential-commodity-1621167
+
+[Source Link](https://t.me/verdictumlegalupdates/28866)
+
+---
+
+### 2026-09-02T13:02:38+00:00
+High Court Tells Govt To File Report On Steps Taken to Trace TN Pilgrims Missing Following Nepal Floods
+https://www.verdictum.in/madras-high-court/steps-taken-to-trace-tn-pilgrims-missing-following-nepal-floods-1621166
+
+[Source Link](https://t.me/verdictumlegalupdates/28865)
+
+---
+
+### 2026-09-02T12:33:17+00:00
+Tribunals Should Not Be Non-Functional Merely Because Of Transition: Supreme Court Directs States To File Response On Issue Of Vacancies In Consumer Bodies
+https://www.verdictum.in/supreme-court/states-to-file-response-on-issue-of-vacancies-in-consumer-bodies-1621165
+
+[Source Link](https://t.me/verdictumlegalupdates/28864)
+
+---
+
+### 2026-09-02T12:02:17+00:00
+Woman Employee Returning From Maternity Leave Entitled To Reinstatement In Same Position Held By Her Immediately Prior To Such Leave: Delhi High Court
+https://www.verdictum.in/delhi-high-court/rakhi-bisht-v-union-of-india-2026dhc7286-woman-employee-maternity-leave-reinstatement-1621162
+
+[Source Link](https://t.me/verdictumlegalupdates/28863)
 
 ---
 
@@ -89,78 +161,6 @@ Relief U/S 9 A&C Act Cannot Survive Termination Of Arbitration: Bombay High Cour
 https://www.verdictum.in/bombay-high-court/jsw-steel-ltd-v-delta-iron-steel-co-pvt-ltd-2026bhc-os19081-warehousing-charges-attached-coils-1621130
 
 [Source Link](https://t.me/verdictumlegalupdates/28852)
-
----
-
-### 2026-09-02T06:02:46+00:00
-Goa Passes Advocates Protection Act Containing 7 Years Imprisonment For Assaulting Lawyers
-https://www.verdictum.in/latest-news/goa-passes-advocates-protection-act-containing-7-years-imprisonment-for-assaulting-lawyers-1621123
-
-[Source Link](https://t.me/verdictumlegalupdates/28851)
-
----
-
-### 2026-09-02T05:31:46+00:00
-Public Hygiene Is A Collective Duty Of Citizens, Not Solely Municipal Corporation’s Responsibility: Bombay High Court
-https://www.verdictum.in/bombay-high-court/kannamwar-co-op-hsg-soc-association-ltd-ors-v-union-of-india-ors-1621122
-
-[Source Link](https://t.me/verdictumlegalupdates/28850)
-
----
-
-### 2026-09-02T05:02:25+00:00
-Separate Overt Act By Each Accused Need Not Be Proved Once Common Intention Is Established: Kerala High Court Upholds Conviction In Trespass & Assault Case
-https://www.verdictum.in/kerala-high-court/majeed-and-another-v-state-of-kerala-2026ker64783-common-intention-s34-ipc-1621112
-
-[Source Link](https://t.me/verdictumlegalupdates/28849)
-
----
-
-### 2026-09-02T04:33:14+00:00
-Connaught Place Area Is No Vending/No Squatting Zone: Delhi High Court Upholds NDMC’s Action
-https://www.verdictum.in/delhi-high-court/mahavir-jain-v-amit-yadav-2026dhc7242-connaught-place-no-vending-zone-1621088
-
-[Source Link](https://t.me/verdictumlegalupdates/28848)
-
----
-
-### 2026-09-01T16:02:42+00:00
-Young Professional (Legal) vacancy At Director General of Foreign Trade (DGFT)
-https://www.verdictum.in/job-updates/director-general-of-foreign-trade-1621087
-
-[Source Link](https://t.me/verdictumlegalupdates/28847)
-
----
-
-### 2026-09-01T15:33:02+00:00
-Mere Allegation Of Forgery Cannot Stop Referral To Arbitration U/S 11 A&C Act: Bombay High Court
-https://www.verdictum.in/bombay-high-court/kiran-narendra-patkar-v-milan-narendra-patkar-2026bhc-os19040-allegation-of-forgery-arbitration-1621084
-
-[Source Link](https://t.me/verdictumlegalupdates/28846)
-
----
-
-### 2026-09-01T15:03:01+00:00
-Demand For Money Already Advanced As Loan Is Not Instigation Or Abetment Of Suicide: Madras High Court
-https://www.verdictum.in/madras-high-court/sathiyaraj-v-the-state-of-tamil-nadu-demand-money-loan-instigation-abetment-suicide-1621083
-
-[Source Link](https://t.me/verdictumlegalupdates/28845)
-
----
-
-### 2026-09-01T14:32:40+00:00
-Every Commercial Electricity Bill Cannot Be Treated As Proof Of Commercial Eligibility: Bombay High Court Rejects Slum Dweller’s Claim Under SRA Scheme
-https://www.verdictum.in/bombay-high-court/ganpat-krishna-parte-v-high-power-committee-govt-of-maharashtra-2026bhc-as35268-commercial-electricity-bill-1621082
-
-[Source Link](https://t.me/verdictumlegalupdates/28844)
-
----
-
-### 2026-09-01T14:02:39+00:00
-Muslim Law Does Not Recognise Theory Of Representation; Interest Of Each Heir Is Separate & Distinct: Gauhati High Court
-https://www.verdictum.in/guwahati-high-court/nur-mohammad-legal-heirs-v-tarubala-saha-jagadish-saha-2026gau-as12126-1621081
-
-[Source Link](https://t.me/verdictumlegalupdates/28843)
 
 ---
 
