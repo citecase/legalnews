@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-01T13:47:27+00:00*
+*Last Updated: 2026-09-01T13:52:27+00:00*
 
 ---
 
-### 2026-09-01T13:47:27+00:00
-Non-Disclosure Of Pending Criminal Case In Panchayat Poll Nomination Form Justifies Election Annulment: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/suppressing-criminal-case-pendency-not-minor-discrepancy-panchayat-election-void-548157
-
-[Read on Telegram](https://t.me/livelawindia/118770)
-
----
-### 2026-09-01T13:50:27+00:00
-Constitutional Mandates And Patent Monopolies: Gender Analysis Of Ribociclib Case
-https://www.livelaw.in/articles/constitutional-mandates-patent-monopolies-gender-analysis-ribociclib-case-548160
-
-[Read on Telegram](https://t.me/livelawindia/118771)
-
----
 ### 2026-09-01T13:52:27+00:00
 Mere Delay In Depositing Foreign Travel Tax Not Same As 'Failure To Pay' : Supreme Court Sets Aside Penalty On Saudi Airlines
 https://www.livelaw.in/top-stories/supreme-court-mere-delay-depositing-foreign-travel-tax-548161
@@ -142,5 +128,19 @@ LiveLaw High Courts Daily Highlights: September 01, 2026
 https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-01-2026-548188
 
 [Read on Telegram](https://t.me/livelawindia/118789)
+
+---
+### 2026-09-02T02:32:55+00:00
+When Can Film Tell Story Of Criminal Case?
+https://www.livelaw.in/articles/when-can-film-tell-story-criminal-case-548171
+
+[Read on Telegram](https://t.me/livelawindia/118790)
+
+---
+### 2026-09-02T03:32:25+00:00
+LiveLaw Andhra Pradesh High Court Weekly Round-Up: August 24 - August 30, 2026
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-weekly-roundup-548189
+
+[Read on Telegram](https://t.me/livelawindia/118791)
 
 ---
