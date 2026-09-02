@@ -1,6 +1,118 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-02T04:33:14+00:00*
+*Last Updated: 2026-09-02T11:32:36+00:00*
+
+---
+
+### 2026-09-02T11:32:36+00:00
+Take Steps On Formulating SOP For Arresting Transgender Person: Delhi High Court To Centre, Police
+https://www.verdictum.in/delhi-high-court/steps-on-formulating-sop-for-arresting-transgender-person-1621160
+
+[Source Link](https://t.me/verdictumlegalupdates/28862)
+
+---
+
+### 2026-09-02T11:02:35+00:00
+Undertaking Must Be Solemn, Express & Intended To Be Acted Upon: Supreme Court Upholds Dismissal Of Contempt Petition
+https://www.verdictum.in/supreme-court/ras-al-khaimah-investment-authority-v-matrix-pharmacorp-private-limited-anr-2026-insc-932-1621157
+
+[Source Link](https://t.me/verdictumlegalupdates/28861)
+
+---
+
+### 2026-09-02T10:32:34+00:00
+Automatic Imposition Of Penalty And Exclusion Of Mens Rea Are Two Different Things: Supreme Court Quashes Penalty On Saudi Arabian Airlines For Late Deposit Of Foreign Travel Tax
+https://www.verdictum.in/supreme-court/saudi-arabian-airlines-v-union-of-india-2026-insc-933-late-deposit-of-foreign-travel-tax-1621154
+
+[Source Link](https://t.me/verdictumlegalupdates/28860)
+
+---
+
+### 2026-09-02T10:02:33+00:00
+Any Elector Excluded From Electoral Roll During SIR Exercise On Account Of Demolition Or Relocation Can Fill Form 6 Issued By ECI: Delhi High Court
+https://www.verdictum.in/delhi-high-court/indu-prakash-singh-v-government-2026dhc7271-db-elector-sir-exercise-eci-form-6-1621152
+
+[Source Link](https://t.me/verdictumlegalupdates/28859)
+
+---
+
+### 2026-09-02T09:32:52+00:00
+Bombay High Court Orders CBI Probe Into Death Of Ex-Celebrity Manager Disha Salian
+https://www.verdictum.in/bombay-high-court/cbi-probe-into-death-of-ex-celebrity-manager-disha-salian-1621149
+
+[Source Link](https://t.me/verdictumlegalupdates/28858)
+
+---
+
+### 2026-09-02T09:03:12+00:00
+Supreme Court Asks High Courts To Complete Co-Option Of Women Members Within Two Weeks, State Bar Councils To Notify Newly Elected Members
+https://www.verdictum.in/supreme-court/high-courts-to-complete-co-option-of-women-members-to-state-bar-councils-within-two-weeks-1621146
+
+[Source Link](https://t.me/verdictumlegalupdates/28857)
+
+---
+
+### 2026-09-02T08:32:31+00:00
+AI Tool Cannot Be Entered As Author Under Copyright Act: Copyright Office Rejects DABUS's Registration Bid
+https://www.verdictum.in/latest-news/in-the-matter-of-diary-no-93562022-coa-applicant-dr-stephen-l-thaler-before-the-registrar-of-copyrights-copyright-office-ai-dabuss-registration-bid-1621145
+
+[Source Link](https://t.me/verdictumlegalupdates/28856)
+
+---
+
+### 2026-09-02T08:01:50+00:00
+Delhi High Court Asks Police To Reply To Ex-AAP Councillor Tahir Hussain's Appeal In IB Officer Murder Case
+https://www.verdictum.in/delhi-high-court/ex-aap-councillor-tahir-hussains-appeal-in-ib-officer-murder-case-1621143
+
+[Source Link](https://t.me/verdictumlegalupdates/28855)
+
+---
+
+### 2026-09-02T07:33:09+00:00
+Supreme Court Allows Oil India To File Plea On Rejection Of Drilling Proposal At Assam's Dibru-Saikhowa National Park
+https://www.verdictum.in/supreme-court/rejection-of-drilling-proposal-at-assams-dibru-saikhowa-national-park-1621140
+
+[Source Link](https://t.me/verdictumlegalupdates/28854)
+
+---
+
+### 2026-09-02T07:04:28+00:00
+Section 3(d) POCSO Act Attracted Where Mouth Is Applied To Private Parts Of Victim Child: Kerala High Court
+https://www.verdictum.in/kerala-high-court/thomas-thomas-v-state-of-kerala-2026ker66530-sec3d-pocso-act-private-parts-child-1621138
+
+[Source Link](https://t.me/verdictumlegalupdates/28853)
+
+---
+
+### 2026-09-02T06:32:47+00:00
+Relief U/S 9 A&C Act Cannot Survive Termination Of Arbitration: Bombay High Court Vacates Attachment On Steel Coils In JSW Steel Dispute
+https://www.verdictum.in/bombay-high-court/jsw-steel-ltd-v-delta-iron-steel-co-pvt-ltd-2026bhc-os19081-warehousing-charges-attached-coils-1621130
+
+[Source Link](https://t.me/verdictumlegalupdates/28852)
+
+---
+
+### 2026-09-02T06:02:46+00:00
+Goa Passes Advocates Protection Act Containing 7 Years Imprisonment For Assaulting Lawyers
+https://www.verdictum.in/latest-news/goa-passes-advocates-protection-act-containing-7-years-imprisonment-for-assaulting-lawyers-1621123
+
+[Source Link](https://t.me/verdictumlegalupdates/28851)
+
+---
+
+### 2026-09-02T05:31:46+00:00
+Public Hygiene Is A Collective Duty Of Citizens, Not Solely Municipal Corporation’s Responsibility: Bombay High Court
+https://www.verdictum.in/bombay-high-court/kannamwar-co-op-hsg-soc-association-ltd-ors-v-union-of-india-ors-1621122
+
+[Source Link](https://t.me/verdictumlegalupdates/28850)
+
+---
+
+### 2026-09-02T05:02:25+00:00
+Separate Overt Act By Each Accused Need Not Be Proved Once Common Intention Is Established: Kerala High Court Upholds Conviction In Trespass & Assault Case
+https://www.verdictum.in/kerala-high-court/majeed-and-another-v-state-of-kerala-2026ker64783-common-intention-s34-ipc-1621112
+
+[Source Link](https://t.me/verdictumlegalupdates/28849)
 
 ---
 
@@ -49,118 +161,6 @@ Muslim Law Does Not Recognise Theory Of Representation; Interest Of Each Heir Is
 https://www.verdictum.in/guwahati-high-court/nur-mohammad-legal-heirs-v-tarubala-saha-jagadish-saha-2026gau-as12126-1621081
 
 [Source Link](https://t.me/verdictumlegalupdates/28843)
-
----
-
-### 2026-09-01T13:32:18+00:00
-Even An Irrevocable Power Of Attorney Does Not Have The Effect Of Transferring Title: Delhi High Court
-https://www.verdictum.in/delhi-high-court/bhisham-mehta-v-gita-vig-2026dhc7295-order-xii-rule-6-cpc-decree-against-agent-1621080
-
-[Source Link](https://t.me/verdictumlegalupdates/28842)
-
----
-
-### 2026-09-01T13:02:57+00:00
-Gratuitous Licensee Can Be Directed To Deposit Licence Fee In Eviction Suit Under Order XV-A CPC: Bombay High Court
-https://www.verdictum.in/bombay-high-court/anand-alidas-choithani-v-naresh-hariram-choithani-2026bhc-as35357-order-xv-a-cpc-1621079
-
-[Source Link](https://t.me/verdictumlegalupdates/28841)
-
----
-
-### 2026-09-01T12:32:37+00:00
-Error Of Law Evident From The Record Is Open To Correction By High Court By Invoking Certiorari Jurisdiction: Supreme Court
-https://www.verdictum.in/supreme-court/shri-prakash-narain-sharma-v-ms-burmah-shell-co-operative-housing-society-2026-insc-927-1621078
-
-[Source Link](https://t.me/verdictumlegalupdates/28840)
-
----
-
-### 2026-09-01T12:02:56+00:00
-Apex Court Says High Court Justified In Taking Suo Motu Cognizance & Staying Bail To Shiv Sena Corporator Ramesh Mhatre For Assaulting Doctors
-https://www.verdictum.in/supreme-court/suo-motu-cognizance-staying-bail-to-shiv-sena-corporator-ramesh-mhatre-for-assaulting-doctors-1621075
-
-[Source Link](https://t.me/verdictumlegalupdates/28839)
-
----
-
-### 2026-09-01T11:32:55+00:00
-Delhi High Court Asks Centre, FSSAI To Respond To Plea Prohibiting Sale Of Fortune Soya Refined Oil
-https://www.verdictum.in/delhi-high-court/fssai-to-respond-to-plea-prohibiting-sale-of-fortune-soya-refined-oil-1621072
-
-[Source Link](https://t.me/verdictumlegalupdates/28838)
-
----
-
-### 2026-09-01T11:02:34+00:00
-ECI Opposes Totalizer Machine Usage Before Supreme Court, Cites Loss Of Form 17C Safeguards & Lowered Transparency [Read Affidavit]
-https://www.verdictum.in/supreme-court/eci-opposes-totaliser-machine-usage-in-supreme-court-1621074
-
-[Source Link](https://t.me/verdictumlegalupdates/28837)
-
----
-
-### 2026-09-01T10:28:14+00:00
-Supreme Court Quashes FIRs Not Involving Bodily Harm & Destruction Of Properties Against NEET Protesters
-https://www.verdictum.in/supreme-court/neet-protests-quashes-all-firs-pending-nationwide-against-neet-protesters-1621073
-
-[Source Link](https://t.me/verdictumlegalupdates/28836)
-
----
-
-### 2026-09-01T10:02:33+00:00
-Role Played By Investigators Appalling; Pick & Choose In Matters Of Arrest Is Deprecated: Delhi High Court On Delay In Rescuing Trafficked Infant
-https://www.verdictum.in/delhi-high-court/rajkumar-v-state-nct-of-delhi-2026dhc7282-bail-investigators-arrest-trafficked-infant-1621069
-
-[Source Link](https://t.me/verdictumlegalupdates/28835)
-
----
-
-### 2026-09-01T09:13:32+00:00
-Breaking: Saurav Das Appears In Person Before Supreme Court & Submits That CJP Is Withdrawing September 5 Protest March
-https://www.verdictum.in/supreme-court/saurav-das-appears-supreme-court-submits-cjp-withdraws-protest-march-on-september-5-1621071
-
-[Source Link](https://t.me/verdictumlegalupdates/28834)
-
----
-
-### 2026-09-01T09:02:31+00:00
-Externment Cannot Be Ordered Routinely Or On Mere Registration Of Multiple Cases: Supreme Court
-https://www.verdictum.in/supreme-court/vijay-kumar-rajpoot-alias-vijju-v-state-of-chhattisgarh-2026-insc-926-rajya-suraksha-adhiniyam-1621068
-
-[Source Link](https://t.me/verdictumlegalupdates/28833)
-
----
-
-### 2026-09-01T08:32:10+00:00
-Delhi High Court Seeks Response Of Meta And Centre On National Conference MP's Plea Against FB Account Suspension
-https://www.verdictum.in/delhi-high-court/response-of-meta-and-centre-on-national-conference-mps-plea-against-fb-account-suspension-1621063
-
-[Source Link](https://t.me/verdictumlegalupdates/28832)
-
----
-
-### 2026-09-01T07:57:09+00:00
-Supreme Court Closes NCERT Textbook Case, Centre Confirms Incorporation & Publication Of New Chapter
-https://www.verdictum.in/supreme-court/closes-ncert-textbook-case-centre-confirms-incorporation-publication-new-chapter-1621064
-
-[Source Link](https://t.me/verdictumlegalupdates/28831)
-
----
-
-### 2026-09-01T07:33:08+00:00
-Concession By Counsel On Proposition Of Law Or Concession Which Runs Counter To Statutory Provision Can’t Bind Parties: Orissa High Court
-https://www.verdictum.in/orissa-high-court/manasmita-maharana-v-state-of-odisha-2026ohc65-db-concession-counsel-proposition-of-law-1621059
-
-[Source Link](https://t.me/verdictumlegalupdates/28830)
-
----
-
-### 2026-09-01T07:02:27+00:00
-"Mere Knowledge Of Disposal Not Knowledge Of Order": Delhi High Court Dismisses School's Challenge Against Delay Condonation Of Appeal In Fee-Defaulting Students Discrimination Case
-https://www.verdictum.in/delhi-high-court/apeejay-school-saket-v-naya-samaj-parents-association-2026dhc7201-discrimination-against-fee-defaulting-students-1621056
-
-[Source Link](https://t.me/verdictumlegalupdates/28829)
 
 ---
 
