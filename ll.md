@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-02T13:43:38+00:00*
+*Last Updated: 2026-09-02T14:24:28+00:00*
 
 ---
 
-### 2026-09-02T13:43:38+00:00
-Nitin Gadkari E20 Deepfakes: Bombay High Court Directs X To Comply With Takedown Order, Directs Platforms To Remove Fresh Content
-https://www.livelaw.in/high-court/bombay-high-court/nitin-gadkari-e20-petrol-policy-x-must-comply-remove-fresh-defamatory-content-548322
-
-[Read on Telegram](https://t.me/livelawindia/118866)
-
----
-### 2026-09-02T13:49:18+00:00
-LiveLaw Daily| Shiv Sena Battle| Disha Salian Probe| OBC Creamy Layer| DUSU Women Reservation Plea
-https://www.livelaw.in/podcast/livelaw-daily-shiv-sena-disha-salian-obc-creamy-layer-bar-council-of-india-news-india-548324
-
-[Read on Telegram](https://t.me/livelawindia/118867)
-
----
-### 2026-09-02T13:59:38+00:00
-Tripura High Court Upholds BSF Personnel's Dismissal For Firing 20 Rounds While Drunk, Aiming Rifle At Superiors
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-upholds-bsf-head-constable-dismissal-548327
-
-[Read on Telegram](https://t.me/livelawindia/118868)
-
----
-### 2026-09-02T14:02:18+00:00
-Delhi High Court Refuses Plea Against Closure Of Visakhapatnam Airport, Says Andhra Pradesh HC Is Appropriate Forum
-https://www.livelaw.in/high-court/delhi-high-court/visakhapatnam-airport-closure-delhi-not-right-forum-move-ap-hc-548323
-
-[Read on Telegram](https://t.me/livelawindia/118869)
-
----
-### 2026-09-02T14:09:08+00:00
-Supreme Court Sets Aside ₹425-Crore Penalty As Customs Authority Used AI-Generated Fake Case Laws
-https://www.livelaw.in/supreme-court/supreme-court-sets-aside-425-crore-penalty-as-customs-authority-used-ai-generated-fake-case-laws-548329
-
-[Read on Telegram](https://t.me/livelawindia/118870)
-
----
-### 2026-09-02T14:12:08+00:00
-2026 LiveLaw (SC) 884 | Vijay Ghanshyam Gadiya v Union of India and Another
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-884-vijay-ghanshyam-gadiya-v-union-of-india-and-another-548330
-
-[Read on Telegram](https://t.me/livelawindia/118871)
-
----
 ### 2026-09-02T14:24:28+00:00
 No Absolute Bar On Interim Release Of Vehicles Seized Under Gujarat Prohibition Act : Supreme Court
 https://www.livelaw.in/top-stories/supreme-court-seized-vehicles-gujarat-prohibition-act-548331
@@ -142,5 +100,47 @@ Bar Council Of Maharashtra & Goa Warns Platform Against Giving Legal Advice With
 https://www.livelaw.in/news-updates/bar-council-of-maharashtra-goa-warns-platform-against-giving-legal-advice-without-advocate-enrolment-548350
 
 [Read on Telegram](https://t.me/livelawindia/118885)
+
+---
+### 2026-09-02T16:18:29+00:00
+'Client Doesn't Care About Beautiful Judgment On Law; Lawyer's Focus Must To Secure Relief': Justice BV Nagarathna
+https://www.livelaw.in/top-stories/client-doesnt-care-about-beautiful-judgment-on-law-lawyers-focus-must-to-secure-relief-justice-bv-nagarathna-548351
+
+[Read on Telegram](https://t.me/livelawindia/118886)
+
+---
+### 2026-09-02T16:19:49+00:00
+Rajasthan High Court Warns UGC Of Contempt For Failure To Implement Fresh Exam Directions For Students With Suspended Degrees
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-warns-ugc-contempt-proceedings-failure-conduct-fresh-exams-548352
+
+[Read on Telegram](https://t.me/livelawindia/118887)
+
+---
+### 2026-09-02T16:27:10+00:00
+'Muslim' Prefix/ Suffix Can't Be Basis To Discard Caste Certificate: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/muslim-prefix-suffix-cant-discard-caste-certificate-548353
+
+[Read on Telegram](https://t.me/livelawindia/118888)
+
+---
+### 2026-09-02T16:39:40+00:00
+Alleged Illegal Detention, Assault Beyond Official Duty; No Sanction Needed To Prosecute Police Constable: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-section197-crpc-police-officer-accused-custodial-assault-social-worker-illegally-detained-548354
+
+[Read on Telegram](https://t.me/livelawindia/118889)
+
+---
+### 2026-09-02T17:02:40+00:00
+LiveLaw High Courts Daily Highlights: September 02, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-02-2026-548355
+
+[Read on Telegram](https://t.me/livelawindia/118890)
+
+---
+### 2026-09-02T17:22:20+00:00
+Supreme Court Daily Round-Up : September 2, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-september-2-2026-548345
+
+[Read on Telegram](https://t.me/livelawindia/118891)
 
 ---
