@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-02T14:33:08+00:00*
+*Last Updated: 2026-09-03T08:11:55+00:00*
 
 ---
 
-### 2026-09-02T14:33:08+00:00
-Can An “Unrelated” Party Hide Related-Party Transaction? Understanding SEBI's “Purpose And Effect” Test
-https://www.livelaw.in/articles/party-hide-related-party-transaction-understanding-sebi-purpose-effect-test-548175
+### 2026-09-03T08:11:55+00:00
+'Can't Permit Without Hearing Delhi Police': High Court To Karni Sena Head Seeking To Protest New UGC Regulations At Jantar Mantar
+https://www.livelaw.in/high-court/delhi-high-court/jantar-mantar-protest-permission-new-ugc-guidelines-548443
 
-[Read on Telegram](https://t.me/livelawindia/118875)
-
----
-### 2026-09-02T14:34:08+00:00
-Banks Can Invoke SARFAESI For Loans Acquired From NBFCs Not Covered Under Act  : Supreme Court
-https://www.livelaw.in/supreme-court/banks-can-invoke-sarfaesi-for-loans-acquired-from-nbfcs-not-covered-under-act-supreme-court-548335
-
-[Read on Telegram](https://t.me/livelawindia/118876)
+[Read on Telegram](https://t.me/livelawindia/118934)
 
 ---
-### 2026-09-02T14:35:28+00:00
-2026 LiveLaw (SC) 886 | Kotak Mahindra Bank Limited versus Trupti Sanjay Mehta and others (with connected matters)
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-886-kotak-mahindra-bank-limited-versus-trupti-sanjay-mehta-and-others-with-connected-matters-548336
+### 2026-09-03T08:17:55+00:00
+Calcutta High Court Orders No Coercive Steps Against Sreelekha Mitra In PM Modi Poster Row, Says It 'Shocks Conscience Of Court'
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-orders-no-coercive-steps-against-sreelekha-mitra-in-pm-modi-poster-row-says-it-shocks-conscience-of-court-548444
 
-[Read on Telegram](https://t.me/livelawindia/118877)
-
----
-### 2026-09-02T15:02:59+00:00
-Himachal Pradesh High Court Strikes Down State Rules On VC Appointments In Agricultural Universities, Says UGC Regulations Prevail
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-strikes-down-state-law-vc-appointments-agricultural-universities-548326
-
-[Read on Telegram](https://t.me/livelawindia/118878)
+[Read on Telegram](https://t.me/livelawindia/118935)
 
 ---
-### 2026-09-02T15:23:09+00:00
-Delayed Birth Registration Beyond One Year Can Only Be Ordered By Judicial Magistrate First Class: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/delayed-birth-registration-beyond-one-year-ordered-judicial-magistrate-first-class-548328
+### 2026-09-03T08:56:25+00:00
+AAP Leader Satyendar Jain Granted Bail In Delhi Jal Board Corruption Case
+https://www.livelaw.in/news-updates/aap-leader-satyendar-jain-granted-bail-in-delhi-jal-board-corruption-case-548449
 
-[Read on Telegram](https://t.me/livelawindia/118879)
-
----
-### 2026-09-02T15:23:39+00:00
-'Several Missing Links' :  Supreme Court Acquits Child Murder Case Convict After 16 Years' Imprisonment
-https://www.livelaw.in/supreme-court/supreme-court-acquits-child-murder-case-convict-after-16-years-imprisonment-548343
-
-[Read on Telegram](https://t.me/livelawindia/118880)
+[Read on Telegram](https://t.me/livelawindia/118936)
 
 ---
-### 2026-09-02T15:25:39+00:00
-2026 LiveLaw (SC) 887 | SAHAB SINGH ALIAS SAT PAL VERSUS STATE OF HARYANA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-887-sahab-singh-alias-sat-pal-versus-state-of-haryana-548344
+### 2026-09-03T09:07:46+00:00
+Resumption Under Agrarian Reforms Act Not An Absolute Right; Bound By Severe Conditions To Protect Tillers: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/resumption-under-agrarian-reforms-act-not-an-absolute-right-bound-by-severe-conditions-to-protect-tillers-jk-high-court-548356
 
-[Read on Telegram](https://t.me/livelawindia/118881)
-
----
-### 2026-09-02T15:27:19+00:00
-7-Year Consensual Relationship Cannot Be Treated As Rape Over Subsequent Refusal To Marry: Jharkhand High Court
-https://www.livelaw.in/articles/jharkhand-high-court-physical-relationship-between-adults-consensual-548325
-
-[Read on Telegram](https://t.me/livelawindia/118882)
+[Read on Telegram](https://t.me/livelawindia/118937)
 
 ---
-### 2026-09-02T15:52:49+00:00
-Supreme Court Calls For Cooperative Federalism Between Centre, Tamil Nadu In Regulating Purse Seine Fishing
-https://www.livelaw.in/top-stories/supreme-court-calls-for-cooperative-federalism-between-centre-tamil-nadu-in-regulating-purse-seine-fishing-548348
+### 2026-09-03T09:18:26+00:00
+Supreme Court Asks SCBA Election Committee To Examine Complaints Against Results
+https://www.livelaw.in/top-stories/supreme-court-asks-scba-election-committee-to-examine-complaints-against-results-548452
 
-[Read on Telegram](https://t.me/livelawindia/118883)
-
----
-### 2026-09-02T15:54:49+00:00
-2026 LiveLaw (SC) 888 |  Fisherman Care v. Government of India Department of Animal Husbandry, Dairying and Fisheries
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-888-fisherman-care-v-government-of-india-department-of-animal-husbandry-dairying-and-fisheries-548349
-
-[Read on Telegram](https://t.me/livelawindia/118884)
+[Read on Telegram](https://t.me/livelawindia/118938)
 
 ---
-### 2026-09-02T16:09:09+00:00
-Bar Council Of Maharashtra & Goa Warns Platform Against Giving Legal Advice Without Advocate Enrolment
-https://www.livelaw.in/news-updates/bar-council-of-maharashtra-goa-warns-platform-against-giving-legal-advice-without-advocate-enrolment-548350
+### 2026-09-03T09:23:26+00:00
+Futures & Options Segment Investors Cannot Seek Reimbursement Of Losses From Professional Clearing Members : Supreme Court
+https://www.livelaw.in/supreme-court/futures-options-segment-investors-cannot-seek-reimbursement-of-losses-from-professional-clearing-members-supreme-court-548453
 
-[Read on Telegram](https://t.me/livelawindia/118885)
-
----
-### 2026-09-02T16:18:29+00:00
-'Client Doesn't Care About Beautiful Judgment On Law; Lawyer's Focus Must To Secure Relief': Justice BV Nagarathna
-https://www.livelaw.in/top-stories/client-doesnt-care-about-beautiful-judgment-on-law-lawyers-focus-must-to-secure-relief-justice-bv-nagarathna-548351
-
-[Read on Telegram](https://t.me/livelawindia/118886)
+[Read on Telegram](https://t.me/livelawindia/118939)
 
 ---
-### 2026-09-02T16:19:49+00:00
-Rajasthan High Court Warns UGC Of Contempt For Failure To Implement Fresh Exam Directions For Students With Suspended Degrees
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-warns-ugc-contempt-proceedings-failure-conduct-fresh-exams-548352
+### 2026-09-03T09:24:46+00:00
+2026 LiveLaw (SC) 891 |  Edelweiss Custodial Services Limited v. NSE Clearing Ltd. & Anr.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-891-edelweiss-custodial-services-limited-v-nse-clearing-ltd-anr-548454
 
-[Read on Telegram](https://t.me/livelawindia/118887)
-
----
-### 2026-09-02T16:27:10+00:00
-'Muslim' Prefix/ Suffix Can't Be Basis To Discard Caste Certificate: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/muslim-prefix-suffix-cant-discard-caste-certificate-548353
-
-[Read on Telegram](https://t.me/livelawindia/118888)
+[Read on Telegram](https://t.me/livelawindia/118940)
 
 ---
-### 2026-09-02T16:39:40+00:00
-Alleged Illegal Detention, Assault Beyond Official Duty; No Sanction Needed To Prosecute Police Constable: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-section197-crpc-police-officer-accused-custodial-assault-social-worker-illegally-detained-548354
+### 2026-09-03T09:30:26+00:00
+Dispute Between Office Bearers Of Registered Trust No Ground To Withhold Grants For SC Students Under Scheme: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-directs-centre-disburse-11yearold-pending-grants-548456
 
-[Read on Telegram](https://t.me/livelawindia/118889)
-
----
-### 2026-09-02T17:02:40+00:00
-LiveLaw High Courts Daily Highlights: September 02, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-02-2026-548355
-
-[Read on Telegram](https://t.me/livelawindia/118890)
+[Read on Telegram](https://t.me/livelawindia/118941)
 
 ---
-### 2026-09-02T17:22:20+00:00
-Supreme Court Daily Round-Up : September 2, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-september-2-2026-548345
+### 2026-09-03T09:31:16+00:00
+CJI Surya Kant To Hold Bilateral Talks With Judicial Leaders At BRICS Chief Justices' Forum
+https://www.livelaw.in/top-stories/cji-surya-kant-to-hold-bilateral-talks-with-judicial-leaders-at-brics-chief-justices-forum-548457
 
-[Read on Telegram](https://t.me/livelawindia/118891)
-
----
-### 2026-09-03T02:32:29+00:00
-Genetic Data Processing Under DPDPA
-https://www.livelaw.in/articles/genetic-data-processing-dpdpa-548278
-
-[Read on Telegram](https://t.me/livelawindia/118892)
+[Read on Telegram](https://t.me/livelawindia/118942)
 
 ---
-### 2026-09-03T03:04:20+00:00
-Executive Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/executive-vacancy-at-deloitte-touche-tohmatsu-india-llp-548362
+### 2026-09-03T09:32:56+00:00
+Swadeshi Jurisprudence And Recurring Legal Fallacy In Criminal Procedure
+https://www.livelaw.in/articles/swadeshi-jurisprudence-recurring-legal-fallacy-criminal-procedure-548281
 
-[Read on Telegram](https://t.me/livelawindia/118893)
+[Read on Telegram](https://t.me/livelawindia/118943)
 
 ---
-### 2026-09-03T03:32:40+00:00
-Child Victim Need Not Say 'Penetration' To Prove Rape, Testimony Must Be Understood In Context Of Age & Trauma: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/sexual-assault-child-victims-testimony-legal-medical-terminology-irrelevant-548360
+### 2026-09-03T09:42:56+00:00
+NEET-SS | Will Return All Unfilled Super-Speciality Seats To Tamil Nadu, Union Tells Supreme Court
+https://www.livelaw.in/top-stories/neet-ss-will-return-all-unfilled-super-speciality-seats-to-tamil-nadu-union-tells-supreme-court-548459
 
-[Read on Telegram](https://t.me/livelawindia/118894)
+[Read on Telegram](https://t.me/livelawindia/118944)
+
+---
+### 2026-09-03T09:48:16+00:00
+Nearly 50% Punjab Jail Inmates Drug-Dependent, 'Serious Challenge' Requiring Highest Priority: High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-drug-abuse-seeks-data-sops-post-release-support-from-states-548458
+
+[Read on Telegram](https://t.me/livelawindia/118945)
+
+---
+### 2026-09-03T09:52:16+00:00
+Sub-Registrar Cannot Examine Legality Or Merits Of Document, Powers Confined U/S 34(3) Registration Act: J&K High Court
+https://www.livelaw.in/high-court/jammu-kashmir/sub-registrar-cannot-examine-legality-or-merits-of-document-powers-confined-by-section-343-registration-act-jk-high-court-548357
+
+[Read on Telegram](https://t.me/livelawindia/118946)
+
+---
+### 2026-09-03T10:10:56+00:00
+Almost 5 Years In Jail, UAPA Trial Nowhere Near Conclusion: Delhi High Court Grants Bail To Two In J&K Terror Conspiracy Case
+https://www.livelaw.in/high-court/delhi-high-court/jk-terror-conspiracy-bail-5-years-in-jail-uapa-trial-delayed-548467
+
+[Read on Telegram](https://t.me/livelawindia/118947)
+
+---
+### 2026-09-03T10:16:56+00:00
+Delhi High Court Appoints Amici Curiae In Personality Rights Suit Filed By Bollywood Actors Janhvi Kapoor, Vivek Oberoi
+https://www.livelaw.in/high-court/delhi-high-court/janhvi-kapoor-vivek-oberoi-personality-rights-suit-amici-curiae-appointed-548470
+
+[Read on Telegram](https://t.me/livelawindia/118948)
+
+---
+### 2026-09-03T10:22:26+00:00
+Prisoners Granted Bail But Not Released: Kerala High Court Flags Gaps In e-Prisons Data, Directs NIC & IT Directorate To Fix Issues
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-gaps-in-e-prisons-data-nic-and-it-directorate-fix-integration-issues-548469
+
+[Read on Telegram](https://t.me/livelawindia/118949)
+
+---
+### 2026-09-03T10:32:56+00:00
+Super Speciality Doctor Can't Be Bound By Bond To Serve Govt Till Retirement When No Posting Given: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-upholds-doctor-right-exit-quashes-disciplinary-proceedings-548471
+
+[Read on Telegram](https://t.me/livelawindia/118950)
+
+---
+### 2026-09-03T10:33:26+00:00
+'Child Should Not Be Treated As Criminal': Supreme Court Sets Aside Conviction On Juvenility Claim After 21 Years
+https://www.livelaw.in/top-stories/child-should-not-be-treated-as-criminal-supreme-court-sets-aside-conviction-on-juvenility-claim-after-21-years-548479
+
+[Read on Telegram](https://t.me/livelawindia/118951)
+
+---
+### 2026-09-03T10:35:27+00:00
+2026 LiveLaw (SC) 892 | Mahavir @ Anvish v State of Madhya Pradesh
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-892-mahavir-anvish-v-state-of-madhya-pradesh-548480
+
+[Read on Telegram](https://t.me/livelawindia/118952)
+
+---
+### 2026-09-03T10:47:27+00:00
+KSU Black Flag Rally Violence: Meghalaya High Court Expresses Displeasure Over Progress Of Probe, Asks IG & Other Cops To Appear
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-directs-ig-police-concerned-police-officials-ksu-rally-incidents-548473
+
+[Read on Telegram](https://t.me/livelawindia/118953)
 
 ---
