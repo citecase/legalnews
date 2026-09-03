@@ -1,6 +1,118 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-03T04:32:14+00:00*
+*Last Updated: 2026-09-03T11:32:57+00:00*
+
+---
+
+### 2026-09-03T11:32:57+00:00
+Supreme Court refuses To Consider Pleas Challenging SCBA Results, Asks Applicants To Approach Poll Panel
+https://www.verdictum.in/supreme-court/pleas-challenging-scba-results-asks-applicants-to-approach-poll-panel-1621233
+
+[Source Link](https://t.me/verdictumlegalupdates/28886)
+
+---
+
+### 2026-09-03T11:02:36+00:00
+Supreme Court Asks NHAI To Examine Camera Surveillance At Toll Plazas; Flags Highway Encroachments
+https://www.verdictum.in/supreme-court/nhai-to-examine-camera-surveillance-at-toll-plazas-flags-highway-encroachments-1621231
+
+[Source Link](https://t.me/verdictumlegalupdates/28885)
+
+---
+
+### 2026-09-03T10:32:15+00:00
+Madras High Court Dismisses MK Stalin's Writ Petition Challenging TVK Candidate's Victory From Kolathur Assembly Constituency
+https://www.verdictum.in/madras-high-court/mk-stalins-writ-petition-challenging-tvk-candidates-victory-from-kolathur-assembly-constituency-1621230
+
+[Source Link](https://t.me/verdictumlegalupdates/28884)
+
+---
+
+### 2026-09-03T10:02:14+00:00
+Delhi Court Grants Bail To AAP Leader Satyendar Jain In Jal Board Corruption Case
+https://www.verdictum.in/other-courts/bail-to-aap-leader-satyendar-jain-in-jal-board-corruption-case-1621228
+
+[Source Link](https://t.me/verdictumlegalupdates/28883)
+
+---
+
+### 2026-09-03T09:33:13+00:00
+Anyone, Not Just Parents, Can Pay Rs 1L Surety For Students Contesting DUSU Polls: Delhi High Court
+https://www.verdictum.in/delhi-high-court/anyone-can-pay-rs-1l-surety-for-students-contesting-dusu-polls-1621226
+
+[Source Link](https://t.me/verdictumlegalupdates/28882)
+
+---
+
+### 2026-09-03T09:02:12+00:00
+Bank Acquiring Non-Performing Secured Loan From Entity Outside SARFAESI Act Can Recover It Under It: Supreme Court
+https://www.verdictum.in/supreme-court/kotak-mahindra-bank-limited-v-trupti-sanjay-mehta-and-2026-insc-943-sarfaesi-1621223
+
+[Source Link](https://t.me/verdictumlegalupdates/28881)
+
+---
+
+### 2026-09-03T08:32:31+00:00
+"Absolutely Fallacious": Delhi High Court Rejects Plea Challenging Victim's Appeal Provision U/S 372 CrPC
+https://www.verdictum.in/delhi-high-court/shivdhar-upadhyay-v-union-of-india-2026dhc7414-db-appeal-provision-us-372-crpc-1621222
+
+[Source Link](https://t.me/verdictumlegalupdates/28880)
+
+---
+
+### 2026-09-03T08:02:50+00:00
+Supreme Court Issues Notice On PIL Seeking Disqualification Of Post-Resignation Benefits For Constitutional Functionaries Resigning Mid-Term To Avoid Removal
+https://www.verdictum.in/supreme-court/seeking-disqualification-post-resignation-benefits-constitutional-functionaries-resigning-mid-term-avoid-removal-1621213
+
+[Source Link](https://t.me/verdictumlegalupdates/28879)
+
+---
+
+### 2026-09-03T07:21:29+00:00
+Breaking: BCI Has No Jurisdiction Over Conduct Of Students: Supreme Court Quashes Letters Against NALSAR Batch
+https://www.verdictum.in/supreme-court/bci-manan-kumar-mishra-quashes-letters-against-nalsar-batch-1621217
+
+[Source Link](https://t.me/verdictumlegalupdates/28878)
+
+---
+
+### 2026-09-03T07:02:28+00:00
+Supreme Court Asks Advocates Assaulted Outside BCI Office While Protesting To Approach Delhi High Court
+https://www.verdictum.in/supreme-court/advocates-assaulted-outside-bci-office-while-protesting-to-approach-delhi-high-court-1621208
+
+[Source Link](https://t.me/verdictumlegalupdates/28877)
+
+---
+
+### 2026-09-03T06:32:47+00:00
+Entrusting AI With Pilot’s Seat Is Dangerous: Supreme Court Sets Aside Customs Penalty Order Based On Fake Citations
+https://www.verdictum.in/supreme-court/vijay-ghanshyam-gadiya-v-union-of-india-2026-insc-947-ai-customs-authority-penalty-1621205
+
+[Source Link](https://t.me/verdictumlegalupdates/28876)
+
+---
+
+### 2026-09-03T06:02:46+00:00
+Several Missing Links; Police Might Have Come Up With Story To Pacify Villagers: Supreme Court Grants Acquittal In 6-Yr-Old Boy’s Murder Case
+https://www.verdictum.in/supreme-court/sahab-singh-alias-sat-pal-v-state-of-haryana-2026-insc-945-acquittal-boy-murder-1621203
+
+[Source Link](https://t.me/verdictumlegalupdates/28875)
+
+---
+
+### 2026-09-03T05:33:05+00:00
+High Court Can Recall Orders To Prevent Miscarriage Of Justice: Supreme Court Quashes Conviction U/S 201 IPC After Accused Found Juvenile On Date Of Crime
+https://www.verdictum.in/supreme-court/mahavir-avnish-v-the-state-of-madhya-pradesh-2026-insc-9420-juvenile-on-date-of-crime-conviction-1621199
+
+[Source Link](https://t.me/verdictumlegalupdates/28874)
+
+---
+
+### 2026-09-03T05:03:05+00:00
+Accused’s Guilt Can’t Be Presumed Merely Because Complaint Of Collusion Was Raised Against Investigating Officer: Supreme Court
+https://www.verdictum.in/supreme-court/dhrub-singh-etc-v-the-state-of-bihar-2026-insc-935-guilt-collusion-investigating-officer-1621196
+
+[Source Link](https://t.me/verdictumlegalupdates/28873)
 
 ---
 
@@ -49,118 +161,6 @@ Kerala High Court Highlights Delayed Release Of Bailed Inmates, Issues Direction
 https://www.verdictum.in/kerala-high-court/highlights-delayed-release-bailed-inmate-discrepancies-in-e-prisons-integration-1621170
 
 [Source Link](https://t.me/verdictumlegalupdates/28867)
-
----
-
-### 2026-09-02T13:32:19+00:00
-Electricity Is Essential Commodity & Living Without Same Amounts To Deprivation Of Meaningful Civilized Living: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/sri-avijit-singha-roy-anr-v-ms-gts-constructions-ors-electricity-essential-commodity-1621167
-
-[Source Link](https://t.me/verdictumlegalupdates/28866)
-
----
-
-### 2026-09-02T13:02:38+00:00
-High Court Tells Govt To File Report On Steps Taken to Trace TN Pilgrims Missing Following Nepal Floods
-https://www.verdictum.in/madras-high-court/steps-taken-to-trace-tn-pilgrims-missing-following-nepal-floods-1621166
-
-[Source Link](https://t.me/verdictumlegalupdates/28865)
-
----
-
-### 2026-09-02T12:33:17+00:00
-Tribunals Should Not Be Non-Functional Merely Because Of Transition: Supreme Court Directs States To File Response On Issue Of Vacancies In Consumer Bodies
-https://www.verdictum.in/supreme-court/states-to-file-response-on-issue-of-vacancies-in-consumer-bodies-1621165
-
-[Source Link](https://t.me/verdictumlegalupdates/28864)
-
----
-
-### 2026-09-02T12:02:17+00:00
-Woman Employee Returning From Maternity Leave Entitled To Reinstatement In Same Position Held By Her Immediately Prior To Such Leave: Delhi High Court
-https://www.verdictum.in/delhi-high-court/rakhi-bisht-v-union-of-india-2026dhc7286-woman-employee-maternity-leave-reinstatement-1621162
-
-[Source Link](https://t.me/verdictumlegalupdates/28863)
-
----
-
-### 2026-09-02T11:32:36+00:00
-Take Steps On Formulating SOP For Arresting Transgender Person: Delhi High Court To Centre, Police
-https://www.verdictum.in/delhi-high-court/steps-on-formulating-sop-for-arresting-transgender-person-1621160
-
-[Source Link](https://t.me/verdictumlegalupdates/28862)
-
----
-
-### 2026-09-02T11:02:35+00:00
-Undertaking Must Be Solemn, Express & Intended To Be Acted Upon: Supreme Court Upholds Dismissal Of Contempt Petition
-https://www.verdictum.in/supreme-court/ras-al-khaimah-investment-authority-v-matrix-pharmacorp-private-limited-anr-2026-insc-932-1621157
-
-[Source Link](https://t.me/verdictumlegalupdates/28861)
-
----
-
-### 2026-09-02T10:32:34+00:00
-Automatic Imposition Of Penalty And Exclusion Of Mens Rea Are Two Different Things: Supreme Court Quashes Penalty On Saudi Arabian Airlines For Late Deposit Of Foreign Travel Tax
-https://www.verdictum.in/supreme-court/saudi-arabian-airlines-v-union-of-india-2026-insc-933-late-deposit-of-foreign-travel-tax-1621154
-
-[Source Link](https://t.me/verdictumlegalupdates/28860)
-
----
-
-### 2026-09-02T10:02:33+00:00
-Any Elector Excluded From Electoral Roll During SIR Exercise On Account Of Demolition Or Relocation Can Fill Form 6 Issued By ECI: Delhi High Court
-https://www.verdictum.in/delhi-high-court/indu-prakash-singh-v-government-2026dhc7271-db-elector-sir-exercise-eci-form-6-1621152
-
-[Source Link](https://t.me/verdictumlegalupdates/28859)
-
----
-
-### 2026-09-02T09:32:52+00:00
-Bombay High Court Orders CBI Probe Into Death Of Ex-Celebrity Manager Disha Salian
-https://www.verdictum.in/bombay-high-court/cbi-probe-into-death-of-ex-celebrity-manager-disha-salian-1621149
-
-[Source Link](https://t.me/verdictumlegalupdates/28858)
-
----
-
-### 2026-09-02T09:03:12+00:00
-Supreme Court Asks High Courts To Complete Co-Option Of Women Members Within Two Weeks, State Bar Councils To Notify Newly Elected Members
-https://www.verdictum.in/supreme-court/high-courts-to-complete-co-option-of-women-members-to-state-bar-councils-within-two-weeks-1621146
-
-[Source Link](https://t.me/verdictumlegalupdates/28857)
-
----
-
-### 2026-09-02T08:32:31+00:00
-AI Tool Cannot Be Entered As Author Under Copyright Act: Copyright Office Rejects DABUS's Registration Bid
-https://www.verdictum.in/latest-news/in-the-matter-of-diary-no-93562022-coa-applicant-dr-stephen-l-thaler-before-the-registrar-of-copyrights-copyright-office-ai-dabuss-registration-bid-1621145
-
-[Source Link](https://t.me/verdictumlegalupdates/28856)
-
----
-
-### 2026-09-02T08:01:50+00:00
-Delhi High Court Asks Police To Reply To Ex-AAP Councillor Tahir Hussain's Appeal In IB Officer Murder Case
-https://www.verdictum.in/delhi-high-court/ex-aap-councillor-tahir-hussains-appeal-in-ib-officer-murder-case-1621143
-
-[Source Link](https://t.me/verdictumlegalupdates/28855)
-
----
-
-### 2026-09-02T07:33:09+00:00
-Supreme Court Allows Oil India To File Plea On Rejection Of Drilling Proposal At Assam's Dibru-Saikhowa National Park
-https://www.verdictum.in/supreme-court/rejection-of-drilling-proposal-at-assams-dibru-saikhowa-national-park-1621140
-
-[Source Link](https://t.me/verdictumlegalupdates/28854)
-
----
-
-### 2026-09-02T07:04:28+00:00
-Section 3(d) POCSO Act Attracted Where Mouth Is Applied To Private Parts Of Victim Child: Kerala High Court
-https://www.verdictum.in/kerala-high-court/thomas-thomas-v-state-of-kerala-2026ker66530-sec3d-pocso-act-private-parts-child-1621138
-
-[Source Link](https://t.me/verdictumlegalupdates/28853)
 
 ---
 
