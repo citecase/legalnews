@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-03T11:20:30+00:00*
+*Last Updated: 2026-09-03T11:36:40+00:00*
 
 ---
 
-### 2026-09-03T11:20:30+00:00
-NEET PG 2026 : Supreme Court Dismisses Plea Seeking Re-Test With Costs, Chides Petitioner & Counsel
-https://www.livelaw.in/top-stories/neet-pg-2026-supreme-court-dismisses-plea-seeking-re-test-with-costs-chides-petitioner-counsel-548492
-
-[Read on Telegram](https://t.me/livelawindia/118956)
-
----
-### 2026-09-03T11:35:40+00:00
-Senior Citizens Act Cannot Be Used As Weapon To Frustrate Existing DV Act Protection To Daughter-In-Law: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-senior-citizens-act-frustrate-court-orders-548496
-
-[Read on Telegram](https://t.me/livelawindia/118957)
-
----
 ### 2026-09-03T11:36:40+00:00
 Rajasthan HC Acting CJ SP Sharma Denies Justice Sandeep Mehta's Allegations, Says They're Made Out Of Resentment
 https://www.livelaw.in/top-stories/rajasthan-hc-acting-cj-sp-sharma-denies-justice-sandeep-mehtas-allegations-says-theyre-made-out-of-resentment-548497
@@ -142,5 +128,19 @@ Agricultural Income Cannot Be Ignored While Calculating Disproportionate Assets:
 https://www.livelaw.in/high-court/patna-high-court/patna-high-court-agricultural-income-ignored-computing-disproportionate-assets-548540
 
 [Read on Telegram](https://t.me/livelawindia/118975)
+
+---
+### 2026-09-03T16:50:43+00:00
+CIIPR, RGNUL Announces 3rd National Intellectual Property Article Writing Competition, 2026
+https://www.livelaw.in/lawschool/competitions/ciipr-rgnul-announces-3rd-national-intellectual-property-article-writing-competition-2026-548547
+
+[Read on Telegram](https://t.me/livelawindia/118976)
+
+---
+### 2026-09-03T17:32:33+00:00
+Supreme Court Daily Round-Up : September 3, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-september-3-2026-548535
+
+[Read on Telegram](https://t.me/livelawindia/118977)
 
 ---
