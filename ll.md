@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-02T14:24:28+00:00*
+*Last Updated: 2026-09-02T14:33:08+00:00*
 
 ---
 
-### 2026-09-02T14:24:28+00:00
-No Absolute Bar On Interim Release Of Vehicles Seized Under Gujarat Prohibition Act : Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-seized-vehicles-gujarat-prohibition-act-548331
-
-[Read on Telegram](https://t.me/livelawindia/118872)
-
----
-### 2026-09-02T14:25:28+00:00
-2026 LiveLaw (SC) 885 | M/s ABC Express v State of Gujarat
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-885-ms-abc-express-v-state-of-gujarat-548332
-
-[Read on Telegram](https://t.me/livelawindia/118873)
-
----
-### 2026-09-02T14:30:28+00:00
-No 'Reels' On HC Premises: Oudh Bar Association Appeals To Lawyers, Clerks & Law Interns To Maintain Dignity
-https://www.livelaw.in/news-updates/oudh-bar-association-reels-high-court-premises-lawyers-548333
-
-[Read on Telegram](https://t.me/livelawindia/118874)
-
----
 ### 2026-09-02T14:33:08+00:00
 Can An “Unrelated” Party Hide Related-Party Transaction? Understanding SEBI's “Purpose And Effect” Test
 https://www.livelaw.in/articles/party-hide-related-party-transaction-understanding-sebi-purpose-effect-test-548175
@@ -142,5 +121,26 @@ Supreme Court Daily Round-Up : September 2, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-september-2-2026-548345
 
 [Read on Telegram](https://t.me/livelawindia/118891)
+
+---
+### 2026-09-03T02:32:29+00:00
+Genetic Data Processing Under DPDPA
+https://www.livelaw.in/articles/genetic-data-processing-dpdpa-548278
+
+[Read on Telegram](https://t.me/livelawindia/118892)
+
+---
+### 2026-09-03T03:04:20+00:00
+Executive Vacancy At Deloitte Touche Tohmatsu India LLP
+https://www.livelaw.in/job-updates/executive-vacancy-at-deloitte-touche-tohmatsu-india-llp-548362
+
+[Read on Telegram](https://t.me/livelawindia/118893)
+
+---
+### 2026-09-03T03:32:40+00:00
+Child Victim Need Not Say 'Penetration' To Prove Rape, Testimony Must Be Understood In Context Of Age & Trauma: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/sexual-assault-child-victims-testimony-legal-medical-terminology-irrelevant-548360
+
+[Read on Telegram](https://t.me/livelawindia/118894)
 
 ---
