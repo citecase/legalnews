@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-02T16:02:43+00:00*
+*Last Updated: 2026-09-03T04:32:14+00:00*
+
+---
+
+### 2026-09-03T04:32:14+00:00
+Whether It Is Patrilineal Or Matrilineal Makes No Difference: Madras High Court Allows Communal Status As SC/MBC/OBC Based On Mother's Nativity In Puducherry
+https://www.verdictum.in/madras-high-court/thelagam-v-the-union-territory-of-puducherry-2026mhc3487-patrilineal-or-matrilineal-communal-status-as-scmbcobc-1621192
+
+[Source Link](https://t.me/verdictumlegalupdates/28872)
 
 ---
 
@@ -153,14 +161,6 @@ Section 3(d) POCSO Act Attracted Where Mouth Is Applied To Private Parts Of Vict
 https://www.verdictum.in/kerala-high-court/thomas-thomas-v-state-of-kerala-2026ker66530-sec3d-pocso-act-private-parts-child-1621138
 
 [Source Link](https://t.me/verdictumlegalupdates/28853)
-
----
-
-### 2026-09-02T06:32:47+00:00
-Relief U/S 9 A&C Act Cannot Survive Termination Of Arbitration: Bombay High Court Vacates Attachment On Steel Coils In JSW Steel Dispute
-https://www.verdictum.in/bombay-high-court/jsw-steel-ltd-v-delta-iron-steel-co-pvt-ltd-2026bhc-os19081-warehousing-charges-attached-coils-1621130
-
-[Source Link](https://t.me/verdictumlegalupdates/28852)
 
 ---
 
