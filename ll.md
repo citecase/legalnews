@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-03T11:36:40+00:00*
+*Last Updated: 2026-09-03T11:52:20+00:00*
 
 ---
 
-### 2026-09-03T11:36:40+00:00
-Rajasthan HC Acting CJ SP Sharma Denies Justice Sandeep Mehta's Allegations, Says They're Made Out Of Resentment
-https://www.livelaw.in/top-stories/rajasthan-hc-acting-cj-sp-sharma-denies-justice-sandeep-mehtas-allegations-says-theyre-made-out-of-resentment-548497
-
-[Read on Telegram](https://t.me/livelawindia/118958)
-
----
 ### 2026-09-03T11:52:20+00:00
 Allahabad High Court Flags Inadequately Briefed Govt Counsels, Last-Minute Case Allocation; Seeks UP Law Dept Response
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-inadequate-briefing-govt-counsels-last-minute-case-allocation-up-law-dept-response-548502
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : September 3, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-september-3-2026-548535
 
 [Read on Telegram](https://t.me/livelawindia/118977)
+
+---
+### 2026-09-04T02:47:27+00:00
+Disciplinary Proceedings Initiated During Service Can Continue After Retirement If Permitted By Service Rules: Madras HC
+https://www.livelaw.in/high-court/madras-high-court/disciplinary-proceedings-initiated-during-service-can-continue-after-retirement-if-permitted-by-service-rules-madras-hc-548546
+
+[Read on Telegram](https://t.me/livelawindia/118978)
 
 ---
