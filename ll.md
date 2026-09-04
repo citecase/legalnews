@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-03T11:52:20+00:00*
+*Last Updated: 2026-09-04T07:30:20+00:00*
 
 ---
 
-### 2026-09-03T11:52:20+00:00
-Allahabad High Court Flags Inadequately Briefed Govt Counsels, Last-Minute Case Allocation; Seeks UP Law Dept Response
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-inadequate-briefing-govt-counsels-last-minute-case-allocation-up-law-dept-response-548502
+### 2026-09-04T07:30:20+00:00
+HNLU Team Secures Runner-Up Position At APCMC–ADC–ICC 2026, Wins Award For Best Relationship Building
+https://www.livelaw.in/lawschool/news/hnlu-team-secures-runner-up-position-at-apcmcadcicc-2026-548599
 
-[Read on Telegram](https://t.me/livelawindia/118959)
-
----
-### 2026-09-03T11:58:00+00:00
-Meghalaya Bar Council Sets Up Drop Box, Launches Online Portal For Complaints Over Sexual Harassment Of Women Lawyers; High Court Told
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-bar-council-meghalaya-set-up-physical-drop-box-online-complaint-portal-548500
-
-[Read on Telegram](https://t.me/livelawindia/118960)
+[Read on Telegram](https://t.me/livelawindia/119008)
 
 ---
-### 2026-09-03T12:00:00+00:00
-Satyendar Jain's 'Sudden' Arrest By Delhi Govt's Anti-Corruption Branch Arbitrary, No Electronic Evidence Connecting Him To Kickbacks: Court
-https://www.livelaw.in/top-stories/satyendar-jain-arrest-arbitrary-no-electronic-evidence-delhi-jal-board-scam-bail-548505
+### 2026-09-04T07:32:40+00:00
+Gujarat High Court Quashes POCSO FIR Over Alleged Recording Of Minor In Changing Room, Directs Community Service For Accused
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-pocso-fir-minor-changing-room-548581
 
-[Read on Telegram](https://t.me/livelawindia/118961)
-
----
-### 2026-09-03T12:33:10+00:00
-Accidental Firing Causing No Harm Can't Attract Major Penalty: MP High Court Quashes CISF Constable's Punishment
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-imposing-major-penalty-over-accidental-firing-of-weapon-causing-no-loss-of-property-or-life-not-justified-548507
-
-[Read on Telegram](https://t.me/livelawindia/118962)
+[Read on Telegram](https://t.me/livelawindia/119009)
 
 ---
-### 2026-09-03T12:33:50+00:00
-Married Couple Can Opt For IVF If One Spouse Is Within Upper Age Limit Prescribed Under ART Act: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-married-couple-ivf-pregnancy-one-spouse-age-limit-548511
+### 2026-09-04T07:36:20+00:00
+Padma Vibhushan N.A. Palkhivala Memorial National Research Paper Competition 2026 | MNLU Mumbai
+https://www.livelaw.in/lawschool/competitions/padma-vibhushan-na-palkhivala-memorial-national-research-paper-competition-2026-mnlu-mumbai-548600
 
-[Read on Telegram](https://t.me/livelawindia/118963)
-
----
-### 2026-09-03T12:37:30+00:00
-Fear Of Future Harassment Cannot Extend POSH Act Limitation: Calcutta High Court Upholds Quashing Of ICC Report Against DSP
-https://www.livelaw.in/high-court/calcutta-high-court/apprehension-of-future-harassment-cannot-extend-posh-act-limitation-calcutta-high-court-upholds-quashing-of-report-against-dsp-548490
-
-[Read on Telegram](https://t.me/livelawindia/118964)
+[Read on Telegram](https://t.me/livelawindia/119010)
 
 ---
-### 2026-09-03T13:14:01+00:00
-Biological Father Can Adopt His Own Illegitimate Son Under 'Hindu Adoption And Maintenance Act': Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-biological-father-adopt-own-illegitimate-son-hindu-adoption-and-maintenance-act-548514
+### 2026-09-04T07:42:00+00:00
+2nd NUALS–CCI National Antitrust Moot Court Competition 2026 At NUALS, Kochi [Hybrid; Oct 3-4,10-11; Register By Sept 20
+https://www.livelaw.in/lawschool/competitions/2nd-nualscci-national-antitrust-moot-court-competition-2026-at-nuals-kochi-548602
 
-[Read on Telegram](https://t.me/livelawindia/118965)
-
----
-### 2026-09-03T13:34:21+00:00
-LiveLaw Daily| CJP Campaign| PM Modi Poster| Delhi SIR| BCI's Disciplinary Power?
-https://www.livelaw.in/podcast/livelaw-daily-pm-modi-delhi-sir-bci-bar-council-of-india-news-delhi-sir-students-clat-548516
-
-[Read on Telegram](https://t.me/livelawindia/118966)
+[Read on Telegram](https://t.me/livelawindia/119011)
 
 ---
-### 2026-09-03T13:37:41+00:00
-Relationship In Nature Of Marriage Can Attract Cruelty Provision U/S 498A IPC: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/relationship-in-nature-of-marriage-can-attract-cruelty-provision-us-498a-ipc-calcutta-high-court-548489
+### 2026-09-04T07:47:30+00:00
+S. 362 CrPC Does Not Curtail High Court's Inherent Power To Recall Judgment Resulting In Miscarriage Of Justice: Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-bar-section362-crpc-without-jurisdiction-high-court-can-recall-548603
 
-[Read on Telegram](https://t.me/livelawindia/118967)
-
----
-### 2026-09-03T14:25:11+00:00
-'Admit Mistake And Move On': Karnataka High Court Orally Tells Flipkart Over ₹5 Lakh CCPA Penalty For Sale Of Non-BIS Compliant Toys
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-flipkart-ccpa-penalty-case-sale-non-bis-compliant-toys-548521
-
-[Read on Telegram](https://t.me/livelawindia/118968)
+[Read on Telegram](https://t.me/livelawindia/119012)
 
 ---
-### 2026-09-03T14:32:41+00:00
-Caste Insult Behind Closed Doors: Meaning Of 'Place Within Public View' Under SC/ST Act”
-https://www.livelaw.in/articles/caste-insult-behind-closed-doors-rethinking-sc-st-act-548282
+### 2026-09-04T07:52:30+00:00
+Bombay High Court Quashes ₹100 Crore Freezing Of Coda Payments Accounts, Says PMLA Authority Failed To Record Mandatory Findings
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-sets-aside-100-crore-pmla-freeze-548587
 
-[Read on Telegram](https://t.me/livelawindia/118969)
-
----
-### 2026-09-03T14:32:51+00:00
-Kerala High Court Directs Govt To Notify SOP On Police Response To Persons Requiring Care Under Mental Healthcare Act
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-notify-sop-police-persons-mental-health-act-548523
-
-[Read on Telegram](https://t.me/livelawindia/118970)
+[Read on Telegram](https://t.me/livelawindia/119013)
 
 ---
-### 2026-09-03T14:47:32+00:00
-Madras High Court Upholds Amendment Allowing District Judges To Be Appointed As TN Lokayukta Secretary
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tn-lokayukta-judges-secretary-appointment-challenge-dismissed-548524
+### 2026-09-04T08:00:50+00:00
+Advocate Can't Be Prosecuted For Client's Acts Merely For Sending Legal Notice On Instruction: Orissa High Court
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-advocate-prosecuted-sending-legal-notice-client-instruction-548605
 
-[Read on Telegram](https://t.me/livelawindia/118971)
-
----
-### 2026-09-03T15:16:02+00:00
-'Homebuyers Can't Be Penalised For Builders' Default' : Supreme Court Rejects NOIDA's Time-Extension Charges In CIRP
-https://www.livelaw.in/supreme-court/homebuyers-cant-be-penalised-for-builders-default-supreme-court-rejects-noidas-time-extension-charges-in-cirp-548528
-
-[Read on Telegram](https://t.me/livelawindia/118972)
+[Read on Telegram](https://t.me/livelawindia/119014)
 
 ---
-### 2026-09-03T15:18:02+00:00
-2026 LiveLaw (SC) 893 | The Authorised Representative for Granite Gate Properties Private Limited Rakesh Verma Versus M/s New Okhla Industrial Development Authority and Ors
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-893-the-authorised-representative-for-granite-gate-properties-private-limited-rakesh-verma-versus-ms-new-okhla-industrial-development-authority-and-ors-548530
+### 2026-09-04T08:06:10+00:00
+S. 118 BSA | Allahabad High Court Seeks Inquiry Against Judge For Granting Bail To Husband Ignoring Dowry Death Presumption
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-s-118-bsa-inquiry-judge-grant-bail-husband-dowry-death-presumption-548606
 
-[Read on Telegram](https://t.me/livelawindia/118973)
-
----
-### 2026-09-03T15:32:22+00:00
-CJI Surya Kant To Flag Off Mobile E-Sewa Vans Tomorrow To Bring E-Courts Closer To People
-https://www.livelaw.in/news-updates/cji-surya-kant-to-flag-off-mobile-e-sewa-vans-tomorrow-to-bring-e-courts-closer-to-people-548533
-
-[Read on Telegram](https://t.me/livelawindia/118974)
+[Read on Telegram](https://t.me/livelawindia/119015)
 
 ---
-### 2026-09-03T15:53:32+00:00
-Agricultural Income Cannot Be Ignored While Calculating Disproportionate Assets: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-agricultural-income-ignored-computing-disproportionate-assets-548540
+### 2026-09-04T08:17:30+00:00
+Meghalaya High Court Rejects Bail To Man Accused Of Sexually Assaulting Minor, Says He Betrayed Child's Trust
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-rejects-bail-accused-sexually-assaulting-minor-548545
 
-[Read on Telegram](https://t.me/livelawindia/118975)
-
----
-### 2026-09-03T16:50:43+00:00
-CIIPR, RGNUL Announces 3rd National Intellectual Property Article Writing Competition, 2026
-https://www.livelaw.in/lawschool/competitions/ciipr-rgnul-announces-3rd-national-intellectual-property-article-writing-competition-2026-548547
-
-[Read on Telegram](https://t.me/livelawindia/118976)
+[Read on Telegram](https://t.me/livelawindia/119016)
 
 ---
-### 2026-09-03T17:32:33+00:00
-Supreme Court Daily Round-Up : September 3, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-september-3-2026-548535
+### 2026-09-04T08:33:00+00:00
+'Suppressed Material Facts': MP High Court Dismisses Plea Against Demolition Notice, Imposes Costs
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-imposes-cost-on-anand-kumar-kedia-for-suppressing-material-facts-548591
 
-[Read on Telegram](https://t.me/livelawindia/118977)
+[Read on Telegram](https://t.me/livelawindia/119017)
 
 ---
-### 2026-09-04T02:47:27+00:00
-Disciplinary Proceedings Initiated During Service Can Continue After Retirement If Permitted By Service Rules: Madras HC
-https://www.livelaw.in/high-court/madras-high-court/disciplinary-proceedings-initiated-during-service-can-continue-after-retirement-if-permitted-by-service-rules-madras-hc-548546
+### 2026-09-04T08:33:20+00:00
+Karnataka High Court Recalls Contempt Action Against Lawyer Accused Of Threatening Judge; Accepts Apology
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-recalls-contempt-action-advocate-accused-hampering-sessions-trial-548608
 
-[Read on Telegram](https://t.me/livelawindia/118978)
+[Read on Telegram](https://t.me/livelawindia/119018)
+
+---
+### 2026-09-04T08:48:21+00:00
+High Court Quashes J&K Bank Employee's Termination Over Alleged Anti-National Activities, Says Mandatory Probe Wasn't Conducted
+https://www.livelaw.in/high-court/jammu-kashmir/dismissal-without-inquiry-a-drastic-step-jk-high-court-quashes-jk-bank-employees-termination-over-alleged-anti-national-activities-548585
+
+[Read on Telegram](https://t.me/livelawindia/119019)
+
+---
+### 2026-09-04T09:02:21+00:00
+'Deaf And Dumb' Person Not Necessarily Of Unsound Mind: Himachal Pradesh High Court Rejects Challenge To Partition Proceedings
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-holds-deaf-dumb-person-not-necessarily-unsound-mind-548544
+
+[Read on Telegram](https://t.me/livelawindia/119020)
+
+---
+### 2026-09-04T09:17:41+00:00
+RBI Can Supersede Multi-State Co-operative Bank Board Beyond Six-Months; Consultation With State Not Needed : Supreme Court
+https://www.livelaw.in/supreme-court/rbi-can-supersede-multi-state-co-operative-bank-board-beyond-six-months-consultation-with-state-not-needed-supreme-court-548616
+
+[Read on Telegram](https://t.me/livelawindia/119021)
+
+---
+### 2026-09-04T09:19:01+00:00
+2026 LiveLaw (SC) 895 | SANDEEP S. GHANDAT & ORS. VERSUS RESERVE BANK OF INDIA & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-895-sandeep-s-ghandat-ors-versus-reserve-bank-of-india-ors-548617
+
+[Read on Telegram](https://t.me/livelawindia/119022)
+
+---
+### 2026-09-04T09:27:31+00:00
+'Dignified Renunciation Of Office Expected, Not Chase For Lost Briefs': Jharkhand High Court Dismisses Govt Pleader's Plea Against Termination
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-dignified-renunciation-office-government-counsel-disengagement-548539
+
+[Read on Telegram](https://t.me/livelawindia/119023)
+
+---
+### 2026-09-04T09:32:31+00:00
+Glorifying Duty Amidst Administrative Accountability: Eroded Baseline Of Indian Governance
+https://www.livelaw.in/articles/glorifying-duty-amidst-administrative-accountabilityyr-indian-governance-548461
+
+[Read on Telegram](https://t.me/livelawindia/119024)
+
+---
+### 2026-09-04T09:57:51+00:00
+Promise To Marry Not Deceitful If Man Intended To Marry But Woman's Mother Refused: Karnataka High Court Grants Bail
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-grants-bail-rape-case-promise-marry-deceitful-promise-548610
+
+[Read on Telegram](https://t.me/livelawindia/119025)
+
+---
+### 2026-09-04T10:32:21+00:00
+LiveLaw Andhra Pradesh High Court Monthly Digest: August 2026
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-monthly-digest-august2026-548082
+
+[Read on Telegram](https://t.me/livelawindia/119026)
+
+---
+### 2026-09-04T10:52:31+00:00
+"Suppression Of Criminal Antecedents Amounts To Abuse Of Process": J&K&L High Court Denies Bail To Former Sarpanch In Assault Case
+https://www.livelaw.in/high-court/jammu-kashmir/suppression-of-criminal-antecedents-amounts-to-abuse-of-process-jk-high-court-denies-bail-to-former-sarpanch-in-assault-case-548537
+
+[Read on Telegram](https://t.me/livelawindia/119027)
 
 ---
