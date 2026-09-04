@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-03T16:02:45+00:00*
+*Last Updated: 2026-09-04T04:32:34+00:00*
+
+---
+
+### 2026-09-04T04:32:34+00:00
+Revisional Jurisdiction U/S.56 Of Karnataka Land Revenue Act Is To Be Exercised Within Three Years: Supreme Court
+https://www.verdictum.in/supreme-court/mrr-setty-dead-v-government-of-karnataka-2026-insc-944-revision-sec56-karnataka-land-revenue-1621242
+
+[Source Link](https://t.me/verdictumlegalupdates/28896)
 
 ---
 
@@ -153,14 +161,6 @@ Supreme Court Asks Advocates Assaulted Outside BCI Office While Protesting To Ap
 https://www.verdictum.in/supreme-court/advocates-assaulted-outside-bci-office-while-protesting-to-approach-delhi-high-court-1621208
 
 [Source Link](https://t.me/verdictumlegalupdates/28877)
-
----
-
-### 2026-09-03T06:32:47+00:00
-Entrusting AI With Pilot’s Seat Is Dangerous: Supreme Court Sets Aside Customs Penalty Order Based On Fake Citations
-https://www.verdictum.in/supreme-court/vijay-ghanshyam-gadiya-v-union-of-india-2026-insc-947-ai-customs-authority-penalty-1621205
-
-[Source Link](https://t.me/verdictumlegalupdates/28876)
 
 ---
 
