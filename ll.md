@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-04T10:32:21+00:00*
+*Last Updated: 2026-09-04T10:52:31+00:00*
 
 ---
 
-### 2026-09-04T10:32:21+00:00
-LiveLaw Andhra Pradesh High Court Monthly Digest: August 2026
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-monthly-digest-august2026-548082
-
-[Read on Telegram](https://t.me/livelawindia/119026)
-
----
 ### 2026-09-04T10:52:31+00:00
 "Suppression Of Criminal Antecedents Amounts To Abuse Of Process": J&K&L High Court Denies Bail To Former Sarpanch In Assault Case
 https://www.livelaw.in/high-court/jammu-kashmir/suppression-of-criminal-antecedents-amounts-to-abuse-of-process-jk-high-court-denies-bail-to-former-sarpanch-in-assault-case-548537
@@ -142,5 +135,12 @@ Centre Notifies Appointment Of Justice Sanjay Kumar Agrawal To Perform Duties Of
 https://www.livelaw.in/high-court/chhattisgarh-high-court/centre-notifies-appointment-of-justice-sanjay-kumar-agrawal-to-perform-duties-of-the-office-of-chhattisgarh-high-court-chief-justice-548660
 
 [Read on Telegram](https://t.me/livelawindia/119045)
+
+---
+### 2026-09-04T17:03:27+00:00
+Allahabad High Court Rejects Plea For FIR Against Jagadguru Rambhadracharya Over Alleged Remarks Against Upadhyay Community
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-rejects-fir-jagadguru-rambhadracharya-upadhyay-shankaracharyas-548661
+
+[Read on Telegram](https://t.me/livelawindia/119046)
 
 ---
