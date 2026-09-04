@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-04T11:32:16+00:00*
+*Last Updated: 2026-09-04T16:02:23+00:00*
+
+---
+
+### 2026-09-04T16:02:23+00:00
+Law Officer Vacancy At Institute of Banking Personnel Selection (IBPS)
+https://www.verdictum.in/job-updates/institute-of-banking-personnel-selection-1621321
+
+[Source Link](https://t.me/verdictumlegalupdates/28918)
+
+---
+
+### 2026-09-04T15:13:02+00:00
+Forwarding Citizen’s Grievance Without Coercive Direction Not Criminal Conspiracy: Allahabad High Court Dismisses Plea Against Cabinet Minister
+https://www.verdictum.in/allahabad-high-court/sanatan-dharm-rakshapeeth-and-another-v-state-of-up-and-2-others-2026ahc184083-1621328
+
+[Source Link](https://t.me/verdictumlegalupdates/28917)
+
+---
+
+### 2026-09-04T14:33:01+00:00
+Other Employees Of State Can't Claim Parity With Judicial Officers: Supreme Court Directs Consenting States To Raise Judges' Retirement Age To 62
+https://www.verdictum.in/supreme-court/directs-consenting-states-raise-judges-retirement-age-62-1621327
+
+[Source Link](https://t.me/verdictumlegalupdates/28916)
+
+---
+
+### 2026-09-04T14:02:21+00:00
+No Chance Of Trial Ending Soon: Delhi High Court Grants Bail To Two Accused In ISJK-Linked Terror Conspiracy Case After Nearly Five Years In Custody
+https://www.verdictum.in/delhi-high-court/kamran-ashraf-reshi-v-national-investigation-agency-2026dhhc7447-db-isjk-linked-terror-conspiracy-case-1621317
+
+[Source Link](https://t.me/verdictumlegalupdates/28915)
+
+---
+
+### 2026-09-04T13:33:20+00:00
+State Hospital Negligence Causing Vision Loss Is Constitutional Tort: Calcutta High Court Awards ₹5 Lakh Compensation To Patient
+https://www.verdictum.in/calcutta-high-court/gobinda-chandra-debnath-v-the-state-of-west-bengal-ors-5-lakh-compensation-1621316
+
+[Source Link](https://t.me/verdictumlegalupdates/28914)
+
+---
+
+### 2026-09-04T13:02:19+00:00
+Senior Citizens Act Cannot Be Used To Harass Party Otherwise Protected Under Law: Bombay High Court Dismisses Father-In-Law's Plea To Evict Daughter-In-Law
+https://www.verdictum.in/bombay-high-court/devba-pauladsing-girase-v-kavita-himmatsing-girase-2026bhc-aug35727-father-in-laws-plea-to-evict-daughter-in-law-proxy-1621318
+
+[Source Link](https://t.me/verdictumlegalupdates/28913)
+
+---
+
+### 2026-09-04T12:32:58+00:00
+Students Not Eligible For FMGE If They Have Obtained Fragmented Medical Qualification In Different Foreign Colleges: Delhi High Court
+https://www.verdictum.in/delhi-high-court/2026-dhc-7436-db-brij-sharadbhai-bhatt-v-national-medical-commission-1621315
+
+[Source Link](https://t.me/verdictumlegalupdates/28912)
+
+---
+
+### 2026-09-04T12:02:37+00:00
+Senior Citizen Receiving Regular Pension Not Entitled To Make Application For Maintenance: Bombay High Court
+https://www.verdictum.in/bombay-high-court/bhimrao-v-ashish-2026bhc-nag11476-senior-citizen-pension-application-maintenance-1621314
+
+[Source Link](https://t.me/verdictumlegalupdates/28911)
 
 ---
 
@@ -97,70 +161,6 @@ Drug Disposal Committee Must Hear Vehicle Owner Before Auctioning NDPS-Seized Ve
 https://www.verdictum.in/supreme-court/r-manimaran-v-state-of-tamil-nadu-2026-insc-946-ndps-act-serizure-vehicle-acquittal-1621277
 
 [Source Link](https://t.me/verdictumlegalupdates/28899)
-
----
-
-### 2026-09-04T05:32:26+00:00
-Some Disputes Or Discord In Matrimonial Life Not Sufficient In Itself To Attract Offence Of Abetment Of Suicide: Supreme Court
-https://www.verdictum.in/supreme-court/a-v-state-of-himachal-pradesh-2026-insc-948-disputes-discord-matrimonial-life-sections-306-ipc-1621276
-
-[Source Link](https://t.me/verdictumlegalupdates/28898)
-
----
-
-### 2026-09-04T05:03:25+00:00
-Union & State Of Tamil Nadu Must Follow Cooperative Federalism For Purse Seine Fishing Access To EEZ: Supreme Court
-https://www.verdictum.in/supreme-court/fisherman-care-v-the-government-of-india-department-of-animal-husbandry-dairying-and-fisheries-2026-insc-937-1621274
-
-[Source Link](https://t.me/verdictumlegalupdates/28897)
-
----
-
-### 2026-09-04T04:32:34+00:00
-Revisional Jurisdiction U/S.56 Of Karnataka Land Revenue Act Is To Be Exercised Within Three Years: Supreme Court
-https://www.verdictum.in/supreme-court/mrr-setty-dead-v-government-of-karnataka-2026-insc-944-revision-sec56-karnataka-land-revenue-1621242
-
-[Source Link](https://t.me/verdictumlegalupdates/28896)
-
----
-
-### 2026-09-03T16:02:45+00:00
-Consultant (Legal) Vacancy At National Health Systems Resource Centre (NHSRC)
-https://www.verdictum.in/job-updates/national-health-systems-resource-centre-1621246
-
-[Source Link](https://t.me/verdictumlegalupdates/28895)
-
----
-
-### 2026-09-03T15:32:24+00:00
-Child Witness Need Not Use Word "Penetration" To Prove Rape: Delhi High Court Convicts Rape Accused
-https://www.verdictum.in/delhi-high-court/state-v-munna-kumar-2026dhc7344-db-hild-witness-need-not-use-word-penetration-1621245
-
-[Source Link](https://t.me/verdictumlegalupdates/28894)
-
----
-
-### 2026-09-03T15:03:03+00:00
-Merely Because Vehicle Was At High Speed Would Not Mean Driver Was Rash Or Negligent By Itself: Delhi High Court Upholds Acquittal U/S 279 & 304A IPC
-https://www.verdictum.in/delhi-high-court/state-v-sanjay-2026dhc7267-high-speed-over-speed-accident-1621244
-
-[Source Link](https://t.me/verdictumlegalupdates/28893)
-
----
-
-### 2026-09-03T14:32:42+00:00
-Derecognition Cannot Be Automatic: Delhi High Court Sets Aside Order Restraining All India Carrom Federation from Using 'India' in Its Name
-https://www.verdictum.in/delhi-high-court/all-india-carrom-federation-v-union-of-india-2026dhc7411-db-derecognition-cannot-be-automatic-india-1621243
-
-[Source Link](https://t.me/verdictumlegalupdates/28892)
-
----
-
-### 2026-09-03T14:03:01+00:00
-Every Judicial Order Must Meet Basic Standard Required From High Court Judge: Supreme Court Laments Lack Of Reason
-https://www.verdictum.in/supreme-court/rajeev-singh-and-ors-v-state-of-uttar-pradesh-and-anr-2026-insc-938-higher-court-reasons-1621249
-
-[Source Link](https://t.me/verdictumlegalupdates/28891)
 
 ---
 
