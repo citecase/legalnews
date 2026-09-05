@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-05T04:32:35+00:00*
+*Last Updated: 2026-09-05T10:33:02+00:00*
+
+---
+
+### 2026-09-05T10:33:02+00:00
+Foreign Regulator’s Aircraft Classification Or International Arrangements Can't Override DGCA’s Domestic Licensing Framework: Delhi High Court
+https://www.verdictum.in/delhi-high-court/global-avianautics-limited-v-directorate-general-of-civil-aviation-others-2026dhc7460-db-1621379
+
+[Source Link](https://t.me/verdictumlegalupdates/28927)
+
+---
+
+### 2026-09-05T09:53:21+00:00
+Merit Can Never Be Compromised Nor Can Be On Second Pedestal: Bombay High Court Slams State's "Pick And Choose" Method In Medical Fee Reimbursement Scheme
+https://www.verdictum.in/bombay-high-court/prajwal-tukaram-kasbekar-v-state-of-maharashtra-bhc-aug32965-db-medical-fee-reimbursement-merit-1621376
+
+[Source Link](https://t.me/verdictumlegalupdates/28926)
+
+---
+
+### 2026-09-05T09:02:40+00:00
+Unsubstantiated Apprehension: Madras High Court Dismisses Plea Challenging Construction Of Church Building
+https://www.verdictum.in/madras-high-court/gmarimuthu-v-the-district-collector-constitutional-persons-different-faiths-apprehension-1621372
+
+[Source Link](https://t.me/verdictumlegalupdates/28925)
+
+---
+
+### 2026-09-05T08:13:20+00:00
+Multiplier For Assessing Motor Accident Compensation For Bachelor’s Death Must Be Based On Deceased’s Age, Not Parents': Supreme Court
+https://www.verdictum.in/supreme-court/reliance-general-insurance-company-limited-v-priyanka-das-and-others-2026-insc-950-1621367
+
+[Source Link](https://t.me/verdictumlegalupdates/28924)
+
+---
+
+### 2026-09-05T07:33:19+00:00
+Delhi High Court Imposes ₹ 1 Lakh Cost On DTC Dept. For Continuing Litigation Involving Back Wages For 32 Years, To Be Recovered From Officer Responsible
+https://www.verdictum.in/delhi-high-court/dtc-v-rajender-prashad-2026dhc7487-cost-officer-dtc-dept-backwages-1621363
+
+[Source Link](https://t.me/verdictumlegalupdates/28923)
+
+---
+
+### 2026-09-05T06:52:38+00:00
+Special Intensive Revision (SIR)| Booth Level Agents Cannot Be Made Liable For Verification Of Information In Enumeration Form: Delhi High Court
+https://www.verdictum.in/delhi-high-court/devender-yadav-v-election-commission-of-india-2026dhc7464-special-intensive-revision-sir-congress-1621356
+
+[Source Link](https://t.me/verdictumlegalupdates/28922)
+
+---
+
+### 2026-09-05T06:02:57+00:00
+DNA Report Does Not Determine Whether Relationship Was Consensual Or Not: Delhi High Court Upholds Acquittal In Rape Case
+https://www.verdictum.in/delhi-high-court/kxxxxx-v-state-govt-of-nct-of-delhi-2026dhc7451-dna-report-sexual-intercourse-not-consent-1621351
+
+[Source Link](https://t.me/verdictumlegalupdates/28921)
+
+---
+
+### 2026-09-05T05:12:06+00:00
+Centre Notifies Appointment Of Chief Justice Of Chhattisgarh High Court
+https://www.verdictum.in/court-updates/high-courts/chief-justice-of-chhattisgarh-high-court-appointment-1621350
+
+[Source Link](https://t.me/verdictumlegalupdates/28920)
 
 ---
 
@@ -97,70 +161,6 @@ District Judges Can Be Appointed As Lokayukta Secretary: Madras High Court Uphol
 https://www.verdictum.in/madras-high-court/district-judges-can-be-appointed-as-lokayukta-secretary-1621307
 
 [Source Link](https://t.me/verdictumlegalupdates/28908)
-
----
-
-### 2026-09-04T10:02:14+00:00
-Supreme Court Launches Mobile eSewa Vans To Expand Digital Legal Aid Across Remote Regions
-https://www.verdictum.in/news/ecommittee-launches-mobile-esewa-vans-expand-digital-legal-aid-across-remote-regions-1621308
-
-[Source Link](https://t.me/verdictumlegalupdates/28907)
-
----
-
-### 2026-09-04T09:32:33+00:00
-Minor Girl’s Custody With Paternal Grandmother Not Unlawful Merely Because Mahommedan Law Entitles Mother To Custody: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/a-v-state-of-gujarat-anr-2026gujhc55953-minor-girl-custody-paternal-grandmother-1621306
-
-[Source Link](https://t.me/verdictumlegalupdates/28906)
-
----
-
-### 2026-09-04T09:02:52+00:00
-Geographical Proximity Alone Cannot Establish Comparability For Wage Fixation: Delhi High Court Quashes Award Directing Hotel  To Match Competitors' Wages
-https://www.verdictum.in/delhi-high-court/workmen-of-ms-hotel-sofitel-surya-v-ms-hotel-sofitel-surya-2026dhc7466-geographical-proximity-nearest-five-star-hotel-1621304
-
-[Source Link](https://t.me/verdictumlegalupdates/28905)
-
----
-
-### 2026-09-04T08:32:51+00:00
-Article 142 Can Be Invoked In Exceptional Circumstances To Protect Post Retiral Benefits Despite Annulment Of Caste Certificate: Supreme Court
-https://www.verdictum.in/supreme-court/shirish-pandharinath-patil-v-the-state-of-maharashtra-2026-insc-949-article-142-caste-certificate-annulment-1621301
-
-[Source Link](https://t.me/verdictumlegalupdates/28904)
-
----
-
-### 2026-09-04T08:03:11+00:00
-Age Bar For One Spouse Does Not Disqualify Commissioning Couple From ART Services If Other Is Eligible: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/x-v-the-chief-medical-officer-cum-civil-surgeon-and-the-appropriate-authority-ors-1621296
-
-[Source Link](https://t.me/verdictumlegalupdates/28903)
-
----
-
-### 2026-09-04T07:32:30+00:00
-Hindu Male Can Adopt His Illegitimate Child Under Hindu Adoptions & Maintenance Act: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/2026ahc184403-budhi-ram-v-ram-kesh-1621293
-
-[Source Link](https://t.me/verdictumlegalupdates/28902)
-
----
-
-### 2026-09-04T07:02:49+00:00
-Regulatory Power To Demand Accountability Can Be Incidental Even Without Express Mandate: Supreme Court Upholds NCTE's PAR Directive
-https://www.verdictum.in/supreme-court/national-council-for-teachers-education-v-association-of-ncte-approved-colleges-trust-2026-insc-953-incidental-even-without-express-mandate-1621290
-
-[Source Link](https://t.me/verdictumlegalupdates/28901)
-
----
-
-### 2026-09-04T06:32:48+00:00
-RBI's Power To Supersede Multi-State Co-Operative Bank Boards U/S 36AAA Banking Regulation Act Not Bound By Six-Month Limit Under Article 243ZL(1) Constitution: Supreme Court
-https://www.verdictum.in/supreme-court/sandeep-s-ghandat-v-reserve-bank-of-india-2026-insc-955-multi-state-co-operative-bank-boards-1621286
-
-[Source Link](https://t.me/verdictumlegalupdates/28900)
 
 ---
 
