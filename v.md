@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-05T10:33:02+00:00*
+*Last Updated: 2026-09-05T15:02:27+00:00*
+
+---
+
+### 2026-09-05T15:02:27+00:00
+National Minorities Development & Finance Corporation (NMDFC) Invites Applications For Post Of Senior Legal Consultant
+https://www.verdictum.in/job-updates/national-minorities-development-finance-corporation-1621390
+
+[Source Link](https://t.me/verdictumlegalupdates/28933)
+
+---
+
+### 2026-09-05T14:13:26+00:00
+Alleged Attack By Absconding Co-Accused Relevant To Witness-Interference Apprehension: J&K And Ladakh High Court Denies Bail To Former Sarpanch
+https://www.verdictum.in/jammu-ladakh-high-court/kewal-krishan-v-ut-of-jammu-and-kashmir-anr-bail-application-sarpanch-1621389
+
+[Source Link](https://t.me/verdictumlegalupdates/28932)
+
+---
+
+### 2026-09-05T13:33:05+00:00
+Eligibility Certificate U/S 4 Surrogacy Act Must Precede Surrogacy Procedure; Age On Certification Date Is Crucial: Kerala High Court
+https://www.verdictum.in/kerala-high-court/roopa-p-joy-v-union-of-india-2026ker66329-date-of-embryo-freezing-1621388
+
+[Source Link](https://t.me/verdictumlegalupdates/28931)
+
+---
+
+### 2026-09-05T12:52:44+00:00
+Mere Possession Of Alleged Anti-National Literature Doesn’t Warrant Preventive Detention: Jammu & Kashmir and Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/shafat-maqbool-wani-v-ut-of-jk-possession-books-preventive-detention-1621386
+
+[Source Link](https://t.me/verdictumlegalupdates/28930)
+
+---
+
+### 2026-09-05T12:02:43+00:00
+POSH Act Complaint Barred by Limitation In Absence Of Any Incident Of Sexual Harassment Within 3 Months: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/state-of-west-bengal-and-ors-v-lala-mir-posh-act-complaint-limitation-3-months-1621382
+
+[Source Link](https://t.me/verdictumlegalupdates/28929)
+
+---
+
+### 2026-09-05T11:12:43+00:00
+Karnataka High Court Recalls Criminal Contempt Proceedings Accepting Apology Of Advocate Who “Threatened" Sessions Court
+https://www.verdictum.in/karnataka-high-court/ravi-basavaraj-v-state-of-karnataka-2026khc-d14628-advocate-who-threatened-sessions-court-1621380
+
+[Source Link](https://t.me/verdictumlegalupdates/28928)
 
 ---
 
@@ -113,54 +161,6 @@ State Hospital Negligence Causing Vision Loss Is Constitutional Tort: Calcutta H
 https://www.verdictum.in/calcutta-high-court/gobinda-chandra-debnath-v-the-state-of-west-bengal-ors-5-lakh-compensation-1621316
 
 [Source Link](https://t.me/verdictumlegalupdates/28914)
-
----
-
-### 2026-09-04T13:02:19+00:00
-Senior Citizens Act Cannot Be Used To Harass Party Otherwise Protected Under Law: Bombay High Court Dismisses Father-In-Law's Plea To Evict Daughter-In-Law
-https://www.verdictum.in/bombay-high-court/devba-pauladsing-girase-v-kavita-himmatsing-girase-2026bhc-aug35727-father-in-laws-plea-to-evict-daughter-in-law-proxy-1621318
-
-[Source Link](https://t.me/verdictumlegalupdates/28913)
-
----
-
-### 2026-09-04T12:32:58+00:00
-Students Not Eligible For FMGE If They Have Obtained Fragmented Medical Qualification In Different Foreign Colleges: Delhi High Court
-https://www.verdictum.in/delhi-high-court/2026-dhc-7436-db-brij-sharadbhai-bhatt-v-national-medical-commission-1621315
-
-[Source Link](https://t.me/verdictumlegalupdates/28912)
-
----
-
-### 2026-09-04T12:02:37+00:00
-Senior Citizen Receiving Regular Pension Not Entitled To Make Application For Maintenance: Bombay High Court
-https://www.verdictum.in/bombay-high-court/bhimrao-v-ashish-2026bhc-nag11476-senior-citizen-pension-application-maintenance-1621314
-
-[Source Link](https://t.me/verdictumlegalupdates/28911)
-
----
-
-### 2026-09-04T11:32:16+00:00
-No Vested Right To Choose Investigating Officer: Karnataka High Court Dismisses Plea Against ED
-https://www.verdictum.in/karnataka-high-court/fair-vakkayil-john-v-union-of-india-2026khc41344-lakh-cost-for-marking-representations-to-cji-and-ministers-1621311
-
-[Source Link](https://t.me/verdictumlegalupdates/28910)
-
----
-
-### 2026-09-04T11:02:56+00:00
-Earning Capacity Must Be Assessed In Open Labour Market: Supreme Court Enhances Compensation For IBM Manager Who Suffered 100% Disability In Motor Accident
-https://www.verdictum.in/supreme-court/reliance-general-insurance-company-limited-v-priyanka-das-and-others-2026-insc-950-1621310
-
-[Source Link](https://t.me/verdictumlegalupdates/28909)
-
----
-
-### 2026-09-04T10:32:55+00:00
-District Judges Can Be Appointed As Lokayukta Secretary: Madras High Court Upholds State's Decision
-https://www.verdictum.in/madras-high-court/district-judges-can-be-appointed-as-lokayukta-secretary-1621307
-
-[Source Link](https://t.me/verdictumlegalupdates/28908)
 
 ---
 
