@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-04T10:52:31+00:00*
+*Last Updated: 2026-09-04T11:28:11+00:00*
 
 ---
 
-### 2026-09-04T10:52:31+00:00
-"Suppression Of Criminal Antecedents Amounts To Abuse Of Process": J&K&L High Court Denies Bail To Former Sarpanch In Assault Case
-https://www.livelaw.in/high-court/jammu-kashmir/suppression-of-criminal-antecedents-amounts-to-abuse-of-process-jk-high-court-denies-bail-to-former-sarpanch-in-assault-case-548537
-
-[Read on Telegram](https://t.me/livelawindia/119027)
-
----
-### 2026-09-04T11:17:31+00:00
-Promotion Eligibility To Be Counted From Calendar Year Of Joining Feeder Cadre, Not Actual Joining Date: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/qualifying-service-promotion-reckoned-calendar-year-joining-548586
-
-[Read on Telegram](https://t.me/livelawindia/119028)
-
----
 ### 2026-09-04T11:28:11+00:00
 'Not Guilty But Won't Contest Trial In Sarla Bhat Killing Case': Yasin Malik To TADA Court, Seeks Capital Punishment
 https://www.livelaw.in/news-updates/yasin-malik-denies-role-in-sarla-bhat-killing-says-he-will-not-contest-trial-seeks-capital-punishment-through-his-affidavit-before-special-tada-court-srinagar-548639
@@ -142,5 +128,19 @@ Allahabad High Court Rejects Plea For FIR Against Jagadguru Rambhadracharya Over
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-rejects-fir-jagadguru-rambhadracharya-upadhyay-shankaracharyas-548661
 
 [Read on Telegram](https://t.me/livelawindia/119046)
+
+---
+### 2026-09-05T02:32:54+00:00
+Examining Bar Council's Role: Profession, Pedagogy And Dual Mandate
+https://www.livelaw.in/articles/examining-bar-council-role-profession-pedagogy-dual-mandate-548625
+
+[Read on Telegram](https://t.me/livelawindia/119047)
+
+---
+### 2026-09-05T03:30:04+00:00
+Listing Case Under 'For Dismissal' Caption Improper : Supreme Court Criticises AP High Court
+https://www.livelaw.in/top-stories/listing-case-under-for-dismissal-caption-improper-supreme-court-criticises-ap-high-court-548662
+
+[Read on Telegram](https://t.me/livelawindia/119048)
 
 ---
