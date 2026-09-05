@@ -1,128 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-05T05:32:35+00:00*
+*Last Updated: 2026-09-05T09:33:41+00:00*
 
 ---
 
-### 2026-09-05T05:32:35+00:00
-Aid Of Third Parties In Inspecting Documents Under RTI Act
-https://www.livelaw.in/articles/third-parties-inspecting-documents-rti-act-548627
-
-[Read on Telegram](https://t.me/livelawindia/119061)
-
----
-### 2026-09-05T05:35:35+00:00
-CCPA Fines Flipkart ₹5 Lakh For Selling Non-BIS Compliant Toys
-https://www.livelaw.in/consumer-cases/ccpa-fines-flipkart-5-lakh-for-selling-non-bis-compliant-toys-548689
-
-[Read on Telegram](https://t.me/livelawindia/119062)
-
----
-### 2026-09-05T06:02:16+00:00
-Rajasthan High Court Stays CAT Order Holding Advocate's Plea For Interim Relief As Misconduct, Imposing ₹7,000 Cost
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-issues-notice-navodaya-vidyalaya-samiti-interim-relief-misconduct-548678
-
-[Read on Telegram](https://t.me/livelawindia/119063)
-
----
-### 2026-09-05T06:32:47+00:00
-MP High Court Questions Judge's Suitability After Finding Serious Errors In Murder Trial, Places Matter Before Acting CJ
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-asks-acj-to-consider-suitability-of-special-judge-under-scst-act-548680
-
-[Read on Telegram](https://t.me/livelawindia/119064)
-
----
-### 2026-09-05T06:39:27+00:00
-'Very, Very Distressing': Justice Ujjal Bhuyan Says Police Assaulting Protestors Is Matter Of Grave Concern
-https://www.livelaw.in/top-stories/supreme-court-justice-ujjal-bhuyan-criticises-police-assaulting-protestors-distressing-548703
-
-[Read on Telegram](https://t.me/livelawindia/119065)
-
----
-### 2026-09-05T06:56:28+00:00
-Jammu & Kashmir And Ladakh High Court Monthly Digest: August 2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-monthly-digest-august-2026-548236
-
-[Read on Telegram](https://t.me/livelawindia/119066)
-
----
-### 2026-09-05T07:02:48+00:00
-Wife Who Left Matrimonial Home During Covid To Care For Parents & Never Came Back Not Entitled To Maintenance: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-wife-left-matrimonial-home-never-came-back-not-entitled-maintenance-548681
-
-[Read on Telegram](https://t.me/livelawindia/119067)
-
----
-### 2026-09-05T07:32:19+00:00
-Who Is A Law Teacher?
-https://www.livelaw.in/articles/who-is-a-law-teacher-548713
-
-[Read on Telegram](https://t.me/livelawindia/119068)
-
----
-### 2026-09-05T07:33:19+00:00
-Night-Time NDPS Search Without Warrant Valid Where Urgent Action Justifies Delayed Section 42 Compliance: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-night-time-ndps-search-warrant-valid-urgent-action-justifies-delayed-section42-compliance-548685
-
-[Read on Telegram](https://t.me/livelawindia/119069)
-
----
-### 2026-09-05T08:02:59+00:00
-Appointments Can't Be Cancelled By Appointing Authority Merely On Direction Of State Govt: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-appointments-cancelled-appointing-authority-direction-state-government-548686
-
-[Read on Telegram](https://t.me/livelawindia/119070)
-
----
-### 2026-09-05T08:33:10+00:00
-Revenue Entry Not Set Aside By Competent Authority Can't Be Treated As Forged Merely On Allegation: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-revenue-entry-set-aside-competent-authority-548687
-
-[Read on Telegram](https://t.me/livelawindia/119071)
-
----
-### 2026-09-05T08:42:10+00:00
-NDPS Act | IO's Oral Apprehension Of Seized Items Being Drug-Sale Proceeds No Ground To Withhold Them: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/ndps-act-allahabad-high-court-oral-apprehension-seized-items-548719
-
-[Read on Telegram](https://t.me/livelawindia/119072)
-
----
-### 2026-09-05T09:03:21+00:00
-Delhi High Court Quashes FIR After Friends Settle Assault Dispute, Directs Accused To Do Community Service In Manipur
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-quashes-fir-after-friends-settle-assault-dispute-directs-accused-to-do-community-service-in-manipur-548688
-
-[Read on Telegram](https://t.me/livelawindia/119073)
-
----
-### 2026-09-05T09:24:21+00:00
-University Must Honour Teachers, Can't Deviate From UGC Regulations On Payscale : Supreme Court Gives Relief To Associate Professor
-https://www.livelaw.in/supreme-court/university-must-honour-teachers-cant-deviate-from-ugc-regulations-on-payscale-supreme-court-gives-relief-to-associate-professor-548721
-
-[Read on Telegram](https://t.me/livelawindia/119074)
-
----
-### 2026-09-05T09:25:41+00:00
-2026 LiveLaw (SC) 900 | DR. HARISH CHANDRA TIWARI VERSUS UNION OF INDIA & OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-900-dr-harish-chandra-tiwari-versus-union-of-india-others-548723
-
-[Read on Telegram](https://t.me/livelawindia/119075)
-
----
-### 2026-09-05T09:32:21+00:00
-India Needs Law For Protest, Not Law Against Protest
-https://www.livelaw.in/articles/india-needs-law-for-protest-not-law-against-protest-548628
-
-[Read on Telegram](https://t.me/livelawindia/119076)
-
----
-### 2026-09-05T09:33:11+00:00
-'Complete Lack Of Communication': Delhi High Court Flags Two Legal Aid Lawyers Being Assigned To Same Accused
-https://www.livelaw.in/high-court/delhi-high-court/legal-aid-lack-of-communication-two-lawyers-assigned-to-same-accused-548692
-
-[Read on Telegram](https://t.me/livelawindia/119077)
-
----
 ### 2026-09-05T09:33:41+00:00
 Acquittal Cannot Be Reversed Unless Trial Court's View Is Perverse or Impossible: Supreme Court
 https://www.livelaw.in/sc-judgments/supreme-court-restores-husband-acquittal-wife-suicide-case-says-548725
@@ -142,5 +23,124 @@ NEET | Debarring Candidate Who Vacates Allotted Medical Seat From Next Session's
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-debarring-candidate-vacates-allotted-medical-seat-548690
 
 [Read on Telegram](https://t.me/livelawindia/119080)
+
+---
+### 2026-09-05T10:30:12+00:00
+On Teacher's Day, CJI Announces Plan For Supreme Court Monthly Lecture Series & Annual Award For Legal Educators
+https://www.livelaw.in/top-stories/on-teachers-day-cji-announces-plan-for-supreme-court-monthly-lecture-series-annual-award-for-legal-educators-548737
+
+[Read on Telegram](https://t.me/livelawindia/119081)
+
+---
+### 2026-09-05T10:32:52+00:00
+LiveLaw Delhi High Court Monthly Digest: August 2026 [Citations 714 - 794]
+https://www.livelaw.in/high-court/delhi-high-court/livelaw-delhi-high-court-monthly-digest-august-2026-citations-714-794-548151
+
+[Read on Telegram](https://t.me/livelawindia/119082)
+
+---
+### 2026-09-05T10:43:42+00:00
+Deputy Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP [Bengaluru; Apply Now]
+https://www.livelaw.in/job-updates/deputy-manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-bengaluru-548740
+
+[Read on Telegram](https://t.me/livelawindia/119083)
+
+---
+### 2026-09-05T10:54:23+00:00
+Cluster Manager (Legal) Vacancy At Bajaj Finance Limited [Apply Now]
+https://www.livelaw.in/job-updates/cluster-manager-legal-vacancy-at-bajaj-finance-limited-548741
+
+[Read on Telegram](https://t.me/livelawindia/119084)
+
+---
+### 2026-09-05T10:54:43+00:00
+Delhi Court Remands Swatantra Bhardwaj To One Day Police Custody, CJP Lawyer Questions Procedure
+https://www.livelaw.in/news-updates/delhi-court-remands-swatantra-bhardwaj-to-one-day-police-custody-cjp-lawyer-questions-procedure-548742
+
+[Read on Telegram](https://t.me/livelawindia/119085)
+
+---
+### 2026-09-05T11:01:02+00:00
+Mere Allegation Of Seeing Spouse In 'Compromising Position' Won't Prove Adultery : Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/mere-allegation-of-seeing-spouse-in-compromising-position-wont-prove-adultery-patna-high-court-548743
+
+[Read on Telegram](https://t.me/livelawindia/119086)
+
+---
+### 2026-09-05T11:02:43+00:00
+UP Panchayat Raj Act | Inquiry Against Gram Pradhan For Fund Misuse Not Wiped Out Merely Because Her Tenure Ended: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-inquiry-gram-pradhan-go-by-merely-tenure-ended-548691
+
+[Read on Telegram](https://t.me/livelawindia/119087)
+
+---
+### 2026-09-05T11:32:33+00:00
+Reasons Recorded In Order Directing Further Investigation Can't Itself Be Construed As Direction For Point-Wise Probe: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-reasons-allowing-further-investigation-548694
+
+[Read on Telegram](https://t.me/livelawindia/119088)
+
+---
+### 2026-09-05T12:02:53+00:00
+Gravity Of Offence Can't Eclipse Right To Speedy Trial: Delhi High Court Grants Bail After 13 Years In Custody
+https://www.livelaw.in/high-court/delhi-high-court/gravity-of-offence-cant-eclipse-right-to-speedy-trial-delhi-high-court-grants-bail-after-13-years-in-custody-548696
+
+[Read on Telegram](https://t.me/livelawindia/119089)
+
+---
+### 2026-09-05T12:10:13+00:00
+BRICS Should Be A 'Living Nalanda University', CJI Says At BRICS Chief Justices' Forum
+https://www.livelaw.in/top-stories/brics-should-be-a-living-nalanda-university-cji-says-at-brics-chief-justices-forum-548745
+
+[Read on Telegram](https://t.me/livelawindia/119090)
+
+---
+### 2026-09-05T12:33:04+00:00
+Dependent Mother Cannot Be Denied Family Pension Merely Because She Has Other Surviving Children: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-dependent-mother-denied-family-pension-surviving-children-548695
+
+[Read on Telegram](https://t.me/livelawindia/119091)
+
+---
+### 2026-09-05T12:48:05+00:00
+Himachal Pradesh High Court Monthly Digest : August 2026
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-monthly-digest-august2026-548531
+
+[Read on Telegram](https://t.me/livelawindia/119092)
+
+---
+### 2026-09-05T13:02:25+00:00
+One-Year Limit Under Section 125(3) CrPC Doesn't Bar Recovery Of DV Act Maintenance Arrears Through Salary Attachment: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-one-year-limit-section1253-crpc-bar-salary-attachment-548697
+
+[Read on Telegram](https://t.me/livelawindia/119093)
+
+---
+### 2026-09-05T13:32:16+00:00
+JJ Act | AP High Court Orders Release Of Minor Produced Before Magistrate As Adult, Imposes ₹10,000 Cost On SHO
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-orders-release-minor-treated-adult-imposes-personal-costs-police-officer-548698
+
+[Read on Telegram](https://t.me/livelawindia/119094)
+
+---
+### 2026-09-05T14:02:36+00:00
+Karnataka High Court Upholds 3-Month Jail Term Of Newspaper Staff For Violating Order In Defamation Case, Says Tendering Apology Not Enough
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-statute-prescribes-penalty-court-cannot-deviate-order-punishment-548699
+
+[Read on Telegram](https://t.me/livelawindia/119095)
+
+---
+### 2026-09-05T14:32:46+00:00
+From Data Privacy To Mental Privacy: What UNESCO's Neurotechnology Recommendation Means For India
+https://www.livelaw.in/articles/data-privacy-mental-privacy-unesco-neurotechnology-recommendation-548629
+
+[Read on Telegram](https://t.me/livelawindia/119096)
+
+---
+### 2026-09-05T14:32:56+00:00
+Declaration Of Title In Immovable Property Suits Governed By Article 65 Limitation Act, Not Article 58: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-declaration-title-immovable-property-suits-governed-article65-limitation-act-548700
+
+[Read on Telegram](https://t.me/livelawindia/119097)
 
 ---
