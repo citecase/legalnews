@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-05T09:33:41+00:00*
+*Last Updated: 2026-09-05T09:34:21+00:00*
 
 ---
 
-### 2026-09-05T09:33:41+00:00
-Acquittal Cannot Be Reversed Unless Trial Court's View Is Perverse or Impossible: Supreme Court
-https://www.livelaw.in/sc-judgments/supreme-court-restores-husband-acquittal-wife-suicide-case-says-548725
-
-[Read on Telegram](https://t.me/livelawindia/119078)
-
----
 ### 2026-09-05T09:34:21+00:00
 2026 LiveLaw (SC) 901 | Sanjay Kumar v State of Himachal Pradesh
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-901-sanjay-kumar-v-state-of-himachal-pradesh-548726
@@ -142,5 +135,12 @@ Declaration Of Title In Immovable Property Suits Governed By Article 65 Limitati
 https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-declaration-title-immovable-property-suits-governed-article65-limitation-act-548700
 
 [Read on Telegram](https://t.me/livelawindia/119097)
+
+---
+### 2026-09-05T18:09:28+00:00
+Centre Notifies Appointments For Chief Justices At Eight High Courts
+https://www.livelaw.in/high-court/all-high-courts/centre-notifies-appointments-for-chief-justices-at-eight-high-courts-548759
+
+[Read on Telegram](https://t.me/livelawindia/119098)
 
 ---
