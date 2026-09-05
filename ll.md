@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-04T11:28:11+00:00*
+*Last Updated: 2026-09-05T05:32:35+00:00*
 
 ---
 
-### 2026-09-04T11:28:11+00:00
-'Not Guilty But Won't Contest Trial In Sarla Bhat Killing Case': Yasin Malik To TADA Court, Seeks Capital Punishment
-https://www.livelaw.in/news-updates/yasin-malik-denies-role-in-sarla-bhat-killing-says-he-will-not-contest-trial-seeks-capital-punishment-through-his-affidavit-before-special-tada-court-srinagar-548639
+### 2026-09-05T05:32:35+00:00
+Aid Of Third Parties In Inspecting Documents Under RTI Act
+https://www.livelaw.in/articles/third-parties-inspecting-documents-rti-act-548627
 
-[Read on Telegram](https://t.me/livelawindia/119029)
-
----
-### 2026-09-04T11:32:11+00:00
-MBBS Student Cannot Have More Than Four Attempts For First Year Exams: Bombay High Court Dismisses Student's Plea
-https://www.livelaw.in/high-court/bombay-high-court/mbbs-students-limited-four-first-year-attempts-overall-regardless-of-subjects-attempte-548532
-
-[Read on Telegram](https://t.me/livelawindia/119030)
+[Read on Telegram](https://t.me/livelawindia/119061)
 
 ---
-### 2026-09-04T12:02:43+00:00
-DNA Proves Sexual Intercourse, Not Whether Relationship Was Consensual: Delhi High Court Upholds Acquittal For Rape
-https://www.livelaw.in/high-court/delhi-high-court/rape-acquittal-dna-proves-sexual-intercourse-not-consent-548609
+### 2026-09-05T05:35:35+00:00
+CCPA Fines Flipkart ₹5 Lakh For Selling Non-BIS Compliant Toys
+https://www.livelaw.in/consumer-cases/ccpa-fines-flipkart-5-lakh-for-selling-non-bis-compliant-toys-548689
 
-[Read on Telegram](https://t.me/livelawindia/119031)
-
----
-### 2026-09-04T12:23:03+00:00
-Supreme Court Explains Procedure For Disposal Of Vehicles Seized Under NDPS Act; Says Notice To Owner Mandatory
-https://www.livelaw.in/top-stories/supreme-court-issues-guidelines-disposal-vehicle-seized-ndps-act-548570
-
-[Read on Telegram](https://t.me/livelawindia/119032)
+[Read on Telegram](https://t.me/livelawindia/119062)
 
 ---
-### 2026-09-04T12:33:03+00:00
-Undermining The Law
-https://www.livelaw.in/articles/undermining-law-548621
+### 2026-09-05T06:02:16+00:00
+Rajasthan High Court Stays CAT Order Holding Advocate's Plea For Interim Relief As Misconduct, Imposing ₹7,000 Cost
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-issues-notice-navodaya-vidyalaya-samiti-interim-relief-misconduct-548678
 
-[Read on Telegram](https://t.me/livelawindia/119033)
-
----
-### 2026-09-04T12:34:03+00:00
-Supreme Court Flags Off 26 Mobile eSewa Vans to Take eCourts Services, Legal Aid To Citizens' Doorsteps
-https://www.livelaw.in/top-stories/supreme-court-flags-off-26-mobile-esewa-vans-to-take-ecourts-services-legal-aid-to-citizens-doorsteps-548643
-
-[Read on Telegram](https://t.me/livelawindia/119034)
+[Read on Telegram](https://t.me/livelawindia/119063)
 
 ---
-### 2026-09-04T12:41:13+00:00
-Supreme Court Allows NGO Energy Watchdog To Participate In Proceedings Against Companies Over Alleged Unauthorised Power Use
-https://www.livelaw.in/supreme-court/supreme-court-allows-ngo-energy-watchdog-to-participate-in-proceedings-against-companies-over-alleged-unauthorised-power-use-548644
+### 2026-09-05T06:32:47+00:00
+MP High Court Questions Judge's Suitability After Finding Serious Errors In Murder Trial, Places Matter Before Acting CJ
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-asks-acj-to-consider-suitability-of-special-judge-under-scst-act-548680
 
-[Read on Telegram](https://t.me/livelawindia/119035)
-
----
-### 2026-09-04T12:42:33+00:00
-2026 LiveLaw (SC) 896 |  M/S. AMALGAM STEELS AND POWER LTD. AND ANR. VERSUS ENERGY WATCHDOG AND ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-896-ms-amalgam-steels-and-power-ltd-and-anr-versus-energy-watchdog-and-ors-548645
-
-[Read on Telegram](https://t.me/livelawindia/119036)
+[Read on Telegram](https://t.me/livelawindia/119064)
 
 ---
-### 2026-09-04T13:03:05+00:00
-'False Allegations': Gujarat High Court Fines PIL Litigant ₹1 Lakh For Seeking Closure Of Industry Over Environmental Violations
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-pil-cost-1-lakh-industry-environmental-norms-548634
+### 2026-09-05T06:39:27+00:00
+'Very, Very Distressing': Justice Ujjal Bhuyan Says Police Assaulting Protestors Is Matter Of Grave Concern
+https://www.livelaw.in/top-stories/supreme-court-justice-ujjal-bhuyan-criticises-police-assaulting-protestors-distressing-548703
 
-[Read on Telegram](https://t.me/livelawindia/119037)
-
----
-### 2026-09-04T13:04:45+00:00
-Motor Accident Claim | Functional Disability Can't Be Reduced Just Because Victim Was Retained In A Specified Role : Supreme Court
-https://www.livelaw.in/top-stories/motor-accident-claim-functional-disability-cant-be-reduced-just-because-victim-was-retained-in-a-specified-role-supreme-court-548647
-
-[Read on Telegram](https://t.me/livelawindia/119038)
+[Read on Telegram](https://t.me/livelawindia/119065)
 
 ---
-### 2026-09-04T13:06:05+00:00
-2026 LiveLaw (SC) 897 | Reliance General Insurance Company v Priyanka Das & Ors
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-897-reliance-general-insurance-company-v-priyanka-das-ors-548648
+### 2026-09-05T06:56:28+00:00
+Jammu & Kashmir And Ladakh High Court Monthly Digest: August 2026
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-monthly-digest-august-2026-548236
 
-[Read on Telegram](https://t.me/livelawindia/119039)
-
----
-### 2026-09-04T13:19:26+00:00
-BRICS Chief Justices' Forum Begins In New Delhi; CJI Surya Kant Meets World Judicial Leaders
-https://www.livelaw.in/top-stories/brics-chief-justices-forum-begins-in-new-delhi-cji-surya-kant-meets-world-judicial-leaders-548651
-
-[Read on Telegram](https://t.me/livelawindia/119040)
+[Read on Telegram](https://t.me/livelawindia/119066)
 
 ---
-### 2026-09-04T14:32:36+00:00
-Punitive & Stigmatic Termination Of Temporary And Probationary Employees
-https://www.livelaw.in/articles/punitive-stigmatic-termination-temporary-probationary-employees-548463
+### 2026-09-05T07:02:48+00:00
+Wife Who Left Matrimonial Home During Covid To Care For Parents & Never Came Back Not Entitled To Maintenance: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-wife-left-matrimonial-home-never-came-back-not-entitled-maintenance-548681
 
-[Read on Telegram](https://t.me/livelawindia/119041)
-
----
-### 2026-09-04T14:33:26+00:00
-UP Police Team Entered Former Delhi Mayor's House Looking For Me : Journalist Abhishek Upadhyay Tells Supreme Court
-https://www.livelaw.in/top-stories/up-police-team-entered-former-delhi-mayors-house-looking-for-me-journalist-abhishek-upadhyay-tells-supreme-court-548656
-
-[Read on Telegram](https://t.me/livelawindia/119042)
+[Read on Telegram](https://t.me/livelawindia/119067)
 
 ---
-### 2026-09-04T15:13:06+00:00
-Jharkhand High Court Upholds Appointment Of Receiver To Monitor Joint Hotel Business; Says Direction Ensured Preservation Of Records
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-upholds-appointment-receiver-monitor-joint-hotel-business-548541
+### 2026-09-05T07:32:19+00:00
+Who Is A Law Teacher?
+https://www.livelaw.in/articles/who-is-a-law-teacher-548713
 
-[Read on Telegram](https://t.me/livelawindia/119043)
-
----
-### 2026-09-04T15:56:16+00:00
-HP High Court Quashes Case Against Woman Accused Of Disrupting Court, Says SDM Could Not Directly Lodge Police Complaint
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-holds-complaint-court-disruption-made-to-superior-court-548543
-
-[Read on Telegram](https://t.me/livelawindia/119044)
+[Read on Telegram](https://t.me/livelawindia/119068)
 
 ---
-### 2026-09-04T16:02:16+00:00
-Centre Notifies Appointment Of Justice Sanjay Kumar Agrawal To Perform Duties Of The Office Of Chhattisgarh High Court Chief Justice
-https://www.livelaw.in/high-court/chhattisgarh-high-court/centre-notifies-appointment-of-justice-sanjay-kumar-agrawal-to-perform-duties-of-the-office-of-chhattisgarh-high-court-chief-justice-548660
+### 2026-09-05T07:33:19+00:00
+Night-Time NDPS Search Without Warrant Valid Where Urgent Action Justifies Delayed Section 42 Compliance: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-night-time-ndps-search-warrant-valid-urgent-action-justifies-delayed-section42-compliance-548685
 
-[Read on Telegram](https://t.me/livelawindia/119045)
-
----
-### 2026-09-04T17:03:27+00:00
-Allahabad High Court Rejects Plea For FIR Against Jagadguru Rambhadracharya Over Alleged Remarks Against Upadhyay Community
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-rejects-fir-jagadguru-rambhadracharya-upadhyay-shankaracharyas-548661
-
-[Read on Telegram](https://t.me/livelawindia/119046)
+[Read on Telegram](https://t.me/livelawindia/119069)
 
 ---
-### 2026-09-05T02:32:54+00:00
-Examining Bar Council's Role: Profession, Pedagogy And Dual Mandate
-https://www.livelaw.in/articles/examining-bar-council-role-profession-pedagogy-dual-mandate-548625
+### 2026-09-05T08:02:59+00:00
+Appointments Can't Be Cancelled By Appointing Authority Merely On Direction Of State Govt: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-appointments-cancelled-appointing-authority-direction-state-government-548686
 
-[Read on Telegram](https://t.me/livelawindia/119047)
+[Read on Telegram](https://t.me/livelawindia/119070)
 
 ---
-### 2026-09-05T03:30:04+00:00
-Listing Case Under 'For Dismissal' Caption Improper : Supreme Court Criticises AP High Court
-https://www.livelaw.in/top-stories/listing-case-under-for-dismissal-caption-improper-supreme-court-criticises-ap-high-court-548662
+### 2026-09-05T08:33:10+00:00
+Revenue Entry Not Set Aside By Competent Authority Can't Be Treated As Forged Merely On Allegation: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-revenue-entry-set-aside-competent-authority-548687
 
-[Read on Telegram](https://t.me/livelawindia/119048)
+[Read on Telegram](https://t.me/livelawindia/119071)
+
+---
+### 2026-09-05T08:42:10+00:00
+NDPS Act | IO's Oral Apprehension Of Seized Items Being Drug-Sale Proceeds No Ground To Withhold Them: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/ndps-act-allahabad-high-court-oral-apprehension-seized-items-548719
+
+[Read on Telegram](https://t.me/livelawindia/119072)
+
+---
+### 2026-09-05T09:03:21+00:00
+Delhi High Court Quashes FIR After Friends Settle Assault Dispute, Directs Accused To Do Community Service In Manipur
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-quashes-fir-after-friends-settle-assault-dispute-directs-accused-to-do-community-service-in-manipur-548688
+
+[Read on Telegram](https://t.me/livelawindia/119073)
+
+---
+### 2026-09-05T09:24:21+00:00
+University Must Honour Teachers, Can't Deviate From UGC Regulations On Payscale : Supreme Court Gives Relief To Associate Professor
+https://www.livelaw.in/supreme-court/university-must-honour-teachers-cant-deviate-from-ugc-regulations-on-payscale-supreme-court-gives-relief-to-associate-professor-548721
+
+[Read on Telegram](https://t.me/livelawindia/119074)
+
+---
+### 2026-09-05T09:25:41+00:00
+2026 LiveLaw (SC) 900 | DR. HARISH CHANDRA TIWARI VERSUS UNION OF INDIA & OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-900-dr-harish-chandra-tiwari-versus-union-of-india-others-548723
+
+[Read on Telegram](https://t.me/livelawindia/119075)
+
+---
+### 2026-09-05T09:32:21+00:00
+India Needs Law For Protest, Not Law Against Protest
+https://www.livelaw.in/articles/india-needs-law-for-protest-not-law-against-protest-548628
+
+[Read on Telegram](https://t.me/livelawindia/119076)
+
+---
+### 2026-09-05T09:33:11+00:00
+'Complete Lack Of Communication': Delhi High Court Flags Two Legal Aid Lawyers Being Assigned To Same Accused
+https://www.livelaw.in/high-court/delhi-high-court/legal-aid-lack-of-communication-two-lawyers-assigned-to-same-accused-548692
+
+[Read on Telegram](https://t.me/livelawindia/119077)
+
+---
+### 2026-09-05T09:33:41+00:00
+Acquittal Cannot Be Reversed Unless Trial Court's View Is Perverse or Impossible: Supreme Court
+https://www.livelaw.in/sc-judgments/supreme-court-restores-husband-acquittal-wife-suicide-case-says-548725
+
+[Read on Telegram](https://t.me/livelawindia/119078)
+
+---
+### 2026-09-05T09:34:21+00:00
+2026 LiveLaw (SC) 901 | Sanjay Kumar v State of Himachal Pradesh
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-901-sanjay-kumar-v-state-of-himachal-pradesh-548726
+
+[Read on Telegram](https://t.me/livelawindia/119079)
+
+---
+### 2026-09-05T10:03:12+00:00
+NEET | Debarring Candidate Who Vacates Allotted Medical Seat From Next Session's Admission Process Is Valid: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-debarring-candidate-vacates-allotted-medical-seat-548690
+
+[Read on Telegram](https://t.me/livelawindia/119080)
 
 ---
