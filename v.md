@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-04T16:02:23+00:00*
+*Last Updated: 2026-09-05T04:32:35+00:00*
+
+---
+
+### 2026-09-05T04:32:35+00:00
+No Private Educational Institution Or Employer Can Mandatorily Collect Caste Details: Madras High Court
+https://www.verdictum.in/madras-high-court/n-vikraman-v-the-state-of-tamil-nadu-2026mhc3608-private-education-institution-caste-details-1621329
+
+[Source Link](https://t.me/verdictumlegalupdates/28919)
 
 ---
 
@@ -153,14 +161,6 @@ RBI's Power To Supersede Multi-State Co-Operative Bank Boards U/S 36AAA Banking 
 https://www.verdictum.in/supreme-court/sandeep-s-ghandat-v-reserve-bank-of-india-2026-insc-955-multi-state-co-operative-bank-boards-1621286
 
 [Source Link](https://t.me/verdictumlegalupdates/28900)
-
----
-
-### 2026-09-04T06:02:27+00:00
-Drug Disposal Committee Must Hear Vehicle Owner Before Auctioning NDPS-Seized Vehicle; Confiscation Power Lies With Trial Court: Supreme Court
-https://www.verdictum.in/supreme-court/r-manimaran-v-state-of-tamil-nadu-2026-insc-946-ndps-act-serizure-vehicle-acquittal-1621277
-
-[Source Link](https://t.me/verdictumlegalupdates/28899)
 
 ---
 
