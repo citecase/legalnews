@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-06T10:32:57+00:00*
+*Last Updated: 2026-09-06T15:03:00+00:00*
+
+---
+
+### 2026-09-06T15:03:00+00:00
+Law Officer Vacancy At Bank Of India (BOI)
+https://www.verdictum.in/job-updates/bank-of-india-1621394
+
+[Source Link](https://t.me/verdictumlegalupdates/28941)
+
+---
+
+### 2026-09-06T13:32:19+00:00
+Four-Attempt Limit Under NMC’s GME Regulations Applies To First Professional MBBS As A Whole, Not Individual Subjects: Bombay High Court
+https://www.verdictum.in/bombay-high-court/aarya-avinash-patil-v-maharashtra-university-of-health-sciences-nashik-and-others-2026bhc-as35540-db-1621423
+
+[Source Link](https://t.me/verdictumlegalupdates/28940)
+
+---
+
+### 2026-09-06T12:02:38+00:00
+Qualifying Service For Promotion To Be Counted From Calendar Year Of Joining Feeder Cadre & Not Joining Date: Chhattisgarh High Court
+https://www.verdictum.in/chhattisgarh-high-court/om-prakash-dewangan-v-state-of-chhattisgarh-2026cghc38752-db-promotion-calendar-year-1621422
+
+[Source Link](https://t.me/verdictumlegalupdates/28939)
 
 ---
 
@@ -137,30 +161,6 @@ Special Intensive Revision (SIR)| Booth Level Agents Cannot Be Made Liable For V
 https://www.verdictum.in/delhi-high-court/devender-yadav-v-election-commission-of-india-2026dhc7464-special-intensive-revision-sir-congress-1621356
 
 [Source Link](https://t.me/verdictumlegalupdates/28922)
-
----
-
-### 2026-09-05T06:02:57+00:00
-DNA Report Does Not Determine Whether Relationship Was Consensual Or Not: Delhi High Court Upholds Acquittal In Rape Case
-https://www.verdictum.in/delhi-high-court/kxxxxx-v-state-govt-of-nct-of-delhi-2026dhc7451-dna-report-sexual-intercourse-not-consent-1621351
-
-[Source Link](https://t.me/verdictumlegalupdates/28921)
-
----
-
-### 2026-09-05T05:12:06+00:00
-Centre Notifies Appointment Of Chief Justice Of Chhattisgarh High Court
-https://www.verdictum.in/court-updates/high-courts/chief-justice-of-chhattisgarh-high-court-appointment-1621350
-
-[Source Link](https://t.me/verdictumlegalupdates/28920)
-
----
-
-### 2026-09-05T04:32:35+00:00
-No Private Educational Institution Or Employer Can Mandatorily Collect Caste Details: Madras High Court
-https://www.verdictum.in/madras-high-court/n-vikraman-v-the-state-of-tamil-nadu-2026mhc3608-private-education-institution-caste-details-1621329
-
-[Source Link](https://t.me/verdictumlegalupdates/28919)
 
 ---
 
