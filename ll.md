@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-06T04:33:07+00:00*
+*Last Updated: 2026-09-06T06:42:29+00:00*
 
 ---
 
-### 2026-09-06T04:33:07+00:00
-LiveLaw Gujarat High Court Monthly Digest: August 2026
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-monthly-digest-548051
-
-[Read on Telegram](https://t.me/livelawindia/119101)
-
----
-### 2026-09-06T05:02:07+00:00
-LiveLaw Allahabad High Court Weekly Round Up: August 31 - September 06, 2026
-https://www.livelaw.in/round-ups/weekly/livelaw-allahabad-high-court-weekly-round-up-august-31-september-06-2026-548765
-
-[Read on Telegram](https://t.me/livelawindia/119102)
-
----
-### 2026-09-06T05:07:07+00:00
-Mere Possession Of Allegedly Anti-National Books Does Not Make One A Criminal: J&K&L High Court Quashes Detention Of Scholar
-https://www.livelaw.in/high-court/jammu-kashmir/mere-possession-of-books-with-dispiriting-titles-does-not-make-one-a-criminal-jk-high-court-quashes-psa-detention-of-academic-scholar-548763
-
-[Read on Telegram](https://t.me/livelawindia/119103)
-
----
-### 2026-09-06T05:32:18+00:00
-'Prima Facie Case Made Out': AP High Court Refuses To Quash Perjury, Cheating Case Against Retired Bank Manager Over ₹50 Lakh Debt Dispute
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-refuses-quash-perjury-cheating-case-retired-bank-manager-section482-crpc-548702
-
-[Read on Telegram](https://t.me/livelawindia/119104)
-
----
-### 2026-09-06T05:32:58+00:00
-Your Name Is On Bank's Screen Before You Say Hello: What DPDPA Says About Call-Centre Data
-https://www.livelaw.in/articles/dpdpa-says-about-call-centre-data-548760
-
-[Read on Telegram](https://t.me/livelawindia/119105)
-
----
-### 2026-09-06T05:46:58+00:00
-LiveLaw High Courts Daily Highlights: September 05, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-05-2026-548766
-
-[Read on Telegram](https://t.me/livelawindia/119106)
-
----
-### 2026-09-06T05:57:18+00:00
-Creating Email ID In Another's Name Prima Facie Not 'Identity Theft' U/S 66-C IT Act: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-email-id-another-name-prima-facie-identity-theft-66c-it-act-548769
-
-[Read on Telegram](https://t.me/livelawindia/119107)
-
----
 ### 2026-09-06T06:42:29+00:00
 Investigation Failures Under Spotlight As Supreme Court Overturns Three Murder Convictions In September First Week
 https://www.livelaw.in/top-stories/investigation-failures-under-spotlight-as-supreme-court-overturns-three-murder-convictions-in-september-first-week-548761
@@ -142,5 +93,54 @@ How Allahabad High Court Has Been Exposing UP Police's Encounter Narratives
 https://www.livelaw.in/top-stories/how-allahabad-high-court-has-been-exposing-up-polices-encounter-narratives-548777
 
 [Read on Telegram](https://t.me/livelawindia/119120)
+
+---
+### 2026-09-06T13:04:35+00:00
+First-Time Juvenility Claims Before SC Show 'Huge Gap' In JJ Act Implementation By Police, Trial Courts : Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-courts-purposive-child-centric-interpretation-jj-act-legislation-548778
+
+[Read on Telegram](https://t.me/livelawindia/119121)
+
+---
+### 2026-09-06T13:05:34+00:00
+NCDRC Dismisses Property Dispute Complaint As Time-Barred, Holds Valuation Claim An “Excuse”
+https://www.livelaw.in/consumer-cases/ncdrc-dismisses-property-dispute-complaint-as-time-barred-holds-valuation-claim-an-excuse-548779
+
+[Read on Telegram](https://t.me/livelawindia/119122)
+
+---
+### 2026-09-06T13:58:40+00:00
+Important MCQs Based On Latest Supreme Court Judgments For Law Examinations
+https://www.livelaw.in/law-exams/important-mcqs-based-on-latest-supreme-court-judgments-for-law-examinations-548780
+
+[Read on Telegram](https://t.me/livelawindia/119123)
+
+---
+### 2026-09-06T14:26:10+00:00
+LiveLaw Top 20 High Court Judgments Of The Week
+https://www.livelaw.in/top-stories/top-20-high-court-judgments-548785
+
+[Read on Telegram](https://t.me/livelawindia/119124)
+
+---
+### 2026-09-06T14:33:10+00:00
+What Ails Our Democracy
+https://www.livelaw.in/articles/what-ails-our-democracy-548768
+
+[Read on Telegram](https://t.me/livelawindia/119125)
+
+---
+### 2026-09-06T14:43:10+00:00
+Old Monk Can't Be Sold As 'Rum', It Is 'Flavoured Rum' With Artificial Ingredients  : FSSAI Tells Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-old-monk-permitted-sold-rum-modifies-label-fssai-548787
+
+[Read on Telegram](https://t.me/livelawindia/119126)
+
+---
+### 2026-09-06T15:09:40+00:00
+Arrest In Jaipur Or Firozabad? UP Police Accused Of 'Fake Encounter'; Allahabad High Court Seeks ADGP, CP Reports
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-jaipur-arrest-firozabad-encounter-rajasthan-up-police-versions-fake-encounter-548792
+
+[Read on Telegram](https://t.me/livelawindia/119127)
 
 ---
