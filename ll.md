@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-05T09:34:21+00:00*
+*Last Updated: 2026-09-05T10:03:12+00:00*
 
 ---
 
-### 2026-09-05T09:34:21+00:00
-2026 LiveLaw (SC) 901 | Sanjay Kumar v State of Himachal Pradesh
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-901-sanjay-kumar-v-state-of-himachal-pradesh-548726
-
-[Read on Telegram](https://t.me/livelawindia/119079)
-
----
 ### 2026-09-05T10:03:12+00:00
 NEET | Debarring Candidate Who Vacates Allotted Medical Seat From Next Session's Admission Process Is Valid: Allahabad High Court
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-debarring-candidate-vacates-allotted-medical-seat-548690
@@ -142,5 +135,12 @@ Centre Notifies Appointments For Chief Justices At Eight High Courts
 https://www.livelaw.in/high-court/all-high-courts/centre-notifies-appointments-for-chief-justices-at-eight-high-courts-548759
 
 [Read on Telegram](https://t.me/livelawindia/119098)
+
+---
+### 2026-09-06T03:32:26+00:00
+AP High Court Acquits Husband In Dowry Harassment & Cruelty Case Citing Sister's Acquittal Based On Same Evidence
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-acquits-husband-498a-case-same-evidence-sustain-conviction-548701
+
+[Read on Telegram](https://t.me/livelawindia/119099)
 
 ---
