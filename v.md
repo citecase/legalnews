@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-05T15:02:27+00:00*
+*Last Updated: 2026-09-06T04:32:53+00:00*
+
+---
+
+### 2026-09-06T04:32:53+00:00
+Appointments Are Irregular But Not Illegal: Bombay High Court Orders Regularization Of Tribal School Teachers
+https://www.verdictum.in/bombay-high-court/namdeo-tukaram-dhonnar-v-the-state-of-maharashtra-2026bhc-as36184-db-appointments-are-irregular-but-not-illegal-1621391
+
+[Source Link](https://t.me/verdictumlegalupdates/28934)
 
 ---
 
@@ -153,14 +161,6 @@ No Chance Of Trial Ending Soon: Delhi High Court Grants Bail To Two Accused In I
 https://www.verdictum.in/delhi-high-court/kamran-ashraf-reshi-v-national-investigation-agency-2026dhhc7447-db-isjk-linked-terror-conspiracy-case-1621317
 
 [Source Link](https://t.me/verdictumlegalupdates/28915)
-
----
-
-### 2026-09-04T13:33:20+00:00
-State Hospital Negligence Causing Vision Loss Is Constitutional Tort: Calcutta High Court Awards ₹5 Lakh Compensation To Patient
-https://www.verdictum.in/calcutta-high-court/gobinda-chandra-debnath-v-the-state-of-west-bengal-ors-5-lakh-compensation-1621316
-
-[Source Link](https://t.me/verdictumlegalupdates/28914)
 
 ---
 
