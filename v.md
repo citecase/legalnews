@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-06T04:32:53+00:00*
+*Last Updated: 2026-09-06T10:32:57+00:00*
+
+---
+
+### 2026-09-06T10:32:57+00:00
+Appointing Authority Can’t Terminate Employees Solely On State Government’s Direction Without Applying Its Mind: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/manish-kumar-and-25-others-v-state-of-up-through-principal-secretary-cooperative-lucknow-2026ahc-lko60489-1621421
+
+[Source Link](https://t.me/verdictumlegalupdates/28938)
+
+---
+
+### 2026-09-06T09:02:56+00:00
+Impossible To Apply Reservation Without Communal Rotation Roster: Kerala High Court Refuses Relief To SC/ST Candidates Who Participated In Selection Without Demur
+https://www.verdictum.in/kerala-high-court/dr-anumon-v-divakaran-v-sree-chitra-tirunal-institute-for-medical-sciences-and-technology-2026ker63504-scst-candidates-reservation-without-communal-rotation-1621420
+
+[Source Link](https://t.me/verdictumlegalupdates/28937)
+
+---
+
+### 2026-09-06T07:32:35+00:00
+NOIDA Though Involved In Commercial Venture Can’t Be Divorced From Essential Purpose Of Welfare Measures Without Mere Profit Motive: Supreme Court
+https://www.verdictum.in/supreme-court/the-authorised-representative-v-ms-new-okhla-industrial-development-authority-2026-insc-952-1621395
+
+[Source Link](https://t.me/verdictumlegalupdates/28936)
+
+---
+
+### 2026-09-06T06:03:14+00:00
+Borrower’s Delay In Seeking Title Documents Deposited As Security Does Not Absolve Bank Of Duty To Preserve Them: Bombay High Court
+https://www.verdictum.in/bombay-high-court/in-vogue-creations-v-state-bank-of-india-2026bhc-as36037-db-security-documents-bank-loan-1621392
+
+[Source Link](https://t.me/verdictumlegalupdates/28935)
 
 ---
 
@@ -129,38 +161,6 @@ No Private Educational Institution Or Employer Can Mandatorily Collect Caste Det
 https://www.verdictum.in/madras-high-court/n-vikraman-v-the-state-of-tamil-nadu-2026mhc3608-private-education-institution-caste-details-1621329
 
 [Source Link](https://t.me/verdictumlegalupdates/28919)
-
----
-
-### 2026-09-04T16:02:23+00:00
-Law Officer Vacancy At Institute of Banking Personnel Selection (IBPS)
-https://www.verdictum.in/job-updates/institute-of-banking-personnel-selection-1621321
-
-[Source Link](https://t.me/verdictumlegalupdates/28918)
-
----
-
-### 2026-09-04T15:13:02+00:00
-Forwarding Citizen’s Grievance Without Coercive Direction Not Criminal Conspiracy: Allahabad High Court Dismisses Plea Against Cabinet Minister
-https://www.verdictum.in/allahabad-high-court/sanatan-dharm-rakshapeeth-and-another-v-state-of-up-and-2-others-2026ahc184083-1621328
-
-[Source Link](https://t.me/verdictumlegalupdates/28917)
-
----
-
-### 2026-09-04T14:33:01+00:00
-Other Employees Of State Can't Claim Parity With Judicial Officers: Supreme Court Directs Consenting States To Raise Judges' Retirement Age To 62
-https://www.verdictum.in/supreme-court/directs-consenting-states-raise-judges-retirement-age-62-1621327
-
-[Source Link](https://t.me/verdictumlegalupdates/28916)
-
----
-
-### 2026-09-04T14:02:21+00:00
-No Chance Of Trial Ending Soon: Delhi High Court Grants Bail To Two Accused In ISJK-Linked Terror Conspiracy Case After Nearly Five Years In Custody
-https://www.verdictum.in/delhi-high-court/kamran-ashraf-reshi-v-national-investigation-agency-2026dhhc7447-db-isjk-linked-terror-conspiracy-case-1621317
-
-[Source Link](https://t.me/verdictumlegalupdates/28915)
 
 ---
 
