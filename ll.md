@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-06T06:42:29+00:00*
+*Last Updated: 2026-09-06T07:16:19+00:00*
 
 ---
 
-### 2026-09-06T06:42:29+00:00
-Investigation Failures Under Spotlight As Supreme Court Overturns Three Murder Convictions In September First Week
-https://www.livelaw.in/top-stories/investigation-failures-under-spotlight-as-supreme-court-overturns-three-murder-convictions-in-september-first-week-548761
-
-[Read on Telegram](https://t.me/livelawindia/119108)
-
----
 ### 2026-09-06T07:16:19+00:00
 Can't Wait Perennially: Allahabad High Court Rejects Absconding Accused's 1982 Attempt-To-Murder Appeal On Merits In Her Absence
 https://www.livelaw.in/high-court/allahabad-high-court/cant-wait-perennially-allahabad-high-court-rejects-absconding-accuseds-1982-attempt-to-murder-appeal-on-merits-in-her-absence-548770
@@ -142,5 +135,12 @@ Arrest In Jaipur Or Firozabad? UP Police Accused Of 'Fake Encounter'; Allahabad 
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-jaipur-arrest-firozabad-encounter-rajasthan-up-police-versions-fake-encounter-548792
 
 [Read on Telegram](https://t.me/livelawindia/119127)
+
+---
+### 2026-09-06T16:03:11+00:00
+Punjab Government Opposes Justice Ashwani Kumar Mishra's Appointment As Chief Justice Of P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-government-opposes-justice-ashwani-kumar-mishras-appointment-as-chief-justice-of-ph-high-court-548796
+
+[Read on Telegram](https://t.me/livelawindia/119128)
 
 ---
