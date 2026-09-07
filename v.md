@@ -1,6 +1,126 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-07T05:02:45+00:00*
+*Last Updated: 2026-09-07T12:32:38+00:00*
+
+---
+
+### 2026-09-07T12:32:38+00:00
+Weekly Overview| Supreme Court Judgments: August 31 – September 04, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-august-31-september-04-2026-1621490
+
+[Source Link](https://t.me/verdictumlegalupdates/28958)
+
+---
+
+### 2026-09-07T12:02:57+00:00
+Creating An Email ID In Another Person’s Name Prima Facie Not Identity Theft U/S 66C IT Act: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/krishna-kant-pandey-and-another-v-state-of-up-through-principal-secretary-home-lucknow-and-others-1621487
+
+[Source Link](https://t.me/verdictumlegalupdates/28957)
+
+---
+
+### 2026-09-07T11:32:36+00:00
+Supreme Court Suspends Sentence Of Naga Militant In Triple Murder Case, Directs Him To Stay In Delhi
+https://www.verdictum.in/supreme-court/sentence-of-naga-militant-in-triple-murder-case-suspended-1621484
+
+[Source Link](https://t.me/verdictumlegalupdates/28956)
+
+---
+
+### 2026-09-07T11:02:15+00:00
+Commissioning And Surrogate Mothers In Himachal Government Service Entitled To Maternity Leave: Himachal Pradesh High Court
+https://www.verdictum.in/himachal-high-court/dr-juhi-manhas-v-state-of-hp-ors-2026hhc32083-maternity-leave-surrogacy-1621482
+
+[Source Link](https://t.me/verdictumlegalupdates/28955)
+
+---
+
+### 2026-09-07T10:32:15+00:00
+FIR Not Substantive Piece Of Evidence; May Be Used For Purpose Of Contradiction U/S 145 Evidence Act: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/nil-kumar-patel-v-munni-bai-barman-2026mphc-jbp66811-fir-sec145-evidence-act-1621481
+
+[Source Link](https://t.me/verdictumlegalupdates/28954)
+
+---
+
+### 2026-09-07T10:02:54+00:00
+Gujarat High Court Grants 7-Day Bail To AAP MLA Chaitar Vasava In Extortion Case To Attend Assembly Session
+https://www.verdictum.in/gujarat-high-court/7-day-bail-to-aap-mla-chaitar-vasava-in-extortion-case-1621480
+
+[Source Link](https://t.me/verdictumlegalupdates/28953)
+
+---
+
+### 2026-09-07T09:32:33+00:00
+Conviction For Attempted Rape Requires Proof Of An Act Sufficiently Proximate To Commission Of Rape: Jharkhand High Court
+https://www.verdictum.in/jharkhand-high-court/kamalendu-mahto-khokaa-v-the-state-of-jharkhand-2026jhhc26171-ipc-1621479
+
+[Source Link](https://t.me/verdictumlegalupdates/28952)
+
+---
+
+### 2026-09-07T09:02:12+00:00
+Delhi High Court Directs Police To Decide Within One Week Karni Sena’s Plea To Hold Protest At Jantar Mantar
+https://www.verdictum.in/delhi-high-court/karni-senas-plea-to-hold-protest-at-jantar-mantar-1621476
+
+[Source Link](https://t.me/verdictumlegalupdates/28951)
+
+---
+
+### 2026-09-07T08:32:31+00:00
+Supreme Court Directs Ghaziabad Police To Justify Digital Data Requests From X In Abhishek Upadhyay's Road Rage Case
+https://www.verdictum.in/supreme-court/directs-ghaziabad-police-justify-digital-data-requests-x-abhishek-upadhyays-road-rage-case-1621474
+
+[Source Link](https://t.me/verdictumlegalupdates/28950)
+
+---
+
+### 2026-09-07T08:02:50+00:00
+They Don't Deserve To Roam On Streets: Supreme Court Seeks Response From Shiv Sena’s Ramesh Mhatre Accused Of Assaulting Doctors In Thane
+https://www.verdictum.in/supreme-court/shiv-senas-ramesh-mhatre-accused-of-assaulting-doctors-in-thane-1621470
+
+[Source Link](https://t.me/verdictumlegalupdates/28949)
+
+---
+
+### 2026-09-07T07:16:30+00:00
+Supreme Court Declines Interim Relief To Trinamool Congress Over Kolkata Office Nameboard Removal
+https://www.verdictum.in/supreme-court/declines-interim-relief-trinamool-congress-over-kolkata-office-nameboard-removal-1621469
+
+[Source Link](https://t.me/verdictumlegalupdates/28948)
+
+---
+
+### 2026-09-07T07:02:09+00:00
+Supreme Court Asks States To Submit Fresh Reports On Old Age Homes & Facilities For Elderly
+https://www.verdictum.in/supreme-court/states-to-submit-fresh-reports-on-old-age-homes-facilities-for-elderly-1621467
+
+[Source Link](https://t.me/verdictumlegalupdates/28947)
+
+---
+
+### 2026-09-07T06:36:28+00:00
+High Courts Cannot Quash POCSO & Rape Offences Based On Settlement Even In Cases Of Adolescent Romantic Relationships: Sikkim High Court
+https://www.verdictum.in/sikkim-high-court/rxxx-rxx-v-state-of-sikkim-crl-mc-no-2-of-2026-pocso-rape-offences-settlement-adolescent-romantic-relationships-1621465
+
+[Source Link](https://t.me/verdictumlegalupdates/28946)
+
+---
+
+### 2026-09-07T06:02:06+00:00
+Unsanctioned Temple On Nazul Land Earmarked For Nursery School Is Illegal: Delhi High Court Dismisses Plea Seeking Regularisation
+https://www.verdictum.in/delhi-high-court/sanmati-sabha-regd-v-delhi-development-authority-2026dhc7548-nazul-land-earmarked-for-nursery-school-1621463
+
+[Source Link](https://t.me/verdictumlegalupdates/28945)
+
+---
+
+### 2026-09-07T05:32:46+00:00
+Complaint Must Go To Superior Court: Himachal Pradesh High Court Quashes Complaint By SDM Against Against Woman Accused Of Disrupting Court Proceedings
+https://www.verdictum.in/himachal-high-court/pallavi-ramchaik-v-state-of-hp-crmmo-no-497-of-2026-complaint-must-go-to-superior-court-sdm-sho-1621460
+
+[Source Link](https://t.me/verdictumlegalupdates/28944)
 
 ---
 
@@ -41,126 +161,6 @@ Qualifying Service For Promotion To Be Counted From Calendar Year Of Joining Fee
 https://www.verdictum.in/chhattisgarh-high-court/om-prakash-dewangan-v-state-of-chhattisgarh-2026cghc38752-db-promotion-calendar-year-1621422
 
 [Source Link](https://t.me/verdictumlegalupdates/28939)
-
----
-
-### 2026-09-06T10:32:57+00:00
-Appointing Authority Can’t Terminate Employees Solely On State Government’s Direction Without Applying Its Mind: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/manish-kumar-and-25-others-v-state-of-up-through-principal-secretary-cooperative-lucknow-2026ahc-lko60489-1621421
-
-[Source Link](https://t.me/verdictumlegalupdates/28938)
-
----
-
-### 2026-09-06T09:02:56+00:00
-Impossible To Apply Reservation Without Communal Rotation Roster: Kerala High Court Refuses Relief To SC/ST Candidates Who Participated In Selection Without Demur
-https://www.verdictum.in/kerala-high-court/dr-anumon-v-divakaran-v-sree-chitra-tirunal-institute-for-medical-sciences-and-technology-2026ker63504-scst-candidates-reservation-without-communal-rotation-1621420
-
-[Source Link](https://t.me/verdictumlegalupdates/28937)
-
----
-
-### 2026-09-06T07:32:35+00:00
-NOIDA Though Involved In Commercial Venture Can’t Be Divorced From Essential Purpose Of Welfare Measures Without Mere Profit Motive: Supreme Court
-https://www.verdictum.in/supreme-court/the-authorised-representative-v-ms-new-okhla-industrial-development-authority-2026-insc-952-1621395
-
-[Source Link](https://t.me/verdictumlegalupdates/28936)
-
----
-
-### 2026-09-06T06:03:14+00:00
-Borrower’s Delay In Seeking Title Documents Deposited As Security Does Not Absolve Bank Of Duty To Preserve Them: Bombay High Court
-https://www.verdictum.in/bombay-high-court/in-vogue-creations-v-state-bank-of-india-2026bhc-as36037-db-security-documents-bank-loan-1621392
-
-[Source Link](https://t.me/verdictumlegalupdates/28935)
-
----
-
-### 2026-09-06T04:32:53+00:00
-Appointments Are Irregular But Not Illegal: Bombay High Court Orders Regularization Of Tribal School Teachers
-https://www.verdictum.in/bombay-high-court/namdeo-tukaram-dhonnar-v-the-state-of-maharashtra-2026bhc-as36184-db-appointments-are-irregular-but-not-illegal-1621391
-
-[Source Link](https://t.me/verdictumlegalupdates/28934)
-
----
-
-### 2026-09-05T15:02:27+00:00
-National Minorities Development & Finance Corporation (NMDFC) Invites Applications For Post Of Senior Legal Consultant
-https://www.verdictum.in/job-updates/national-minorities-development-finance-corporation-1621390
-
-[Source Link](https://t.me/verdictumlegalupdates/28933)
-
----
-
-### 2026-09-05T14:13:26+00:00
-Alleged Attack By Absconding Co-Accused Relevant To Witness-Interference Apprehension: J&K And Ladakh High Court Denies Bail To Former Sarpanch
-https://www.verdictum.in/jammu-ladakh-high-court/kewal-krishan-v-ut-of-jammu-and-kashmir-anr-bail-application-sarpanch-1621389
-
-[Source Link](https://t.me/verdictumlegalupdates/28932)
-
----
-
-### 2026-09-05T13:33:05+00:00
-Eligibility Certificate U/S 4 Surrogacy Act Must Precede Surrogacy Procedure; Age On Certification Date Is Crucial: Kerala High Court
-https://www.verdictum.in/kerala-high-court/roopa-p-joy-v-union-of-india-2026ker66329-date-of-embryo-freezing-1621388
-
-[Source Link](https://t.me/verdictumlegalupdates/28931)
-
----
-
-### 2026-09-05T12:52:44+00:00
-Mere Possession Of Alleged Anti-National Literature Doesn’t Warrant Preventive Detention: Jammu & Kashmir and Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/shafat-maqbool-wani-v-ut-of-jk-possession-books-preventive-detention-1621386
-
-[Source Link](https://t.me/verdictumlegalupdates/28930)
-
----
-
-### 2026-09-05T12:02:43+00:00
-POSH Act Complaint Barred by Limitation In Absence Of Any Incident Of Sexual Harassment Within 3 Months: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/state-of-west-bengal-and-ors-v-lala-mir-posh-act-complaint-limitation-3-months-1621382
-
-[Source Link](https://t.me/verdictumlegalupdates/28929)
-
----
-
-### 2026-09-05T11:12:43+00:00
-Karnataka High Court Recalls Criminal Contempt Proceedings Accepting Apology Of Advocate Who “Threatened" Sessions Court
-https://www.verdictum.in/karnataka-high-court/ravi-basavaraj-v-state-of-karnataka-2026khc-d14628-advocate-who-threatened-sessions-court-1621380
-
-[Source Link](https://t.me/verdictumlegalupdates/28928)
-
----
-
-### 2026-09-05T10:33:02+00:00
-Foreign Regulator’s Aircraft Classification Or International Arrangements Can't Override DGCA’s Domestic Licensing Framework: Delhi High Court
-https://www.verdictum.in/delhi-high-court/global-avianautics-limited-v-directorate-general-of-civil-aviation-others-2026dhc7460-db-1621379
-
-[Source Link](https://t.me/verdictumlegalupdates/28927)
-
----
-
-### 2026-09-05T09:53:21+00:00
-Merit Can Never Be Compromised Nor Can Be On Second Pedestal: Bombay High Court Slams State's "Pick And Choose" Method In Medical Fee Reimbursement Scheme
-https://www.verdictum.in/bombay-high-court/prajwal-tukaram-kasbekar-v-state-of-maharashtra-bhc-aug32965-db-medical-fee-reimbursement-merit-1621376
-
-[Source Link](https://t.me/verdictumlegalupdates/28926)
-
----
-
-### 2026-09-05T09:02:40+00:00
-Unsubstantiated Apprehension: Madras High Court Dismisses Plea Challenging Construction Of Church Building
-https://www.verdictum.in/madras-high-court/gmarimuthu-v-the-district-collector-constitutional-persons-different-faiths-apprehension-1621372
-
-[Source Link](https://t.me/verdictumlegalupdates/28925)
-
----
-
-### 2026-09-05T08:13:20+00:00
-Multiplier For Assessing Motor Accident Compensation For Bachelor’s Death Must Be Based On Deceased’s Age, Not Parents': Supreme Court
-https://www.verdictum.in/supreme-court/reliance-general-insurance-company-limited-v-priyanka-das-and-others-2026-insc-950-1621367
-
-[Source Link](https://t.me/verdictumlegalupdates/28924)
 
 ---
 
