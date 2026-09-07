@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-06T07:32:50+00:00*
+*Last Updated: 2026-09-07T09:26:03+00:00*
 
 ---
 
-### 2026-09-06T07:32:50+00:00
-Trial Court Can Summon Witness After Reserving Judgment When Evidence Is Necessary: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/trial-court-can-summon-witness-after-reserving-judgment-when-evidence-is-necessary-548705
+### 2026-09-07T09:26:03+00:00
+Supreme Court Rejects Six-Month Extension For Aravalli Hills Expert Panel Report, Sets November 30 Deadline
+https://www.livelaw.in/top-stories/supreme-court-rejects-six-month-extension-for-aravalli-hills-expert-panel-report-sets-november-30-deadline-548900
 
-[Read on Telegram](https://t.me/livelawindia/119111)
-
----
-### 2026-09-06T08:14:10+00:00
-Delhi Court RemandsSwatantra Bhardwaj To One Day Of Judicial Custody In CJP Protester Assault Case
-https://www.livelaw.in/news-updates/delhi-court-remandsswatantra-bhardwaj-to-one-day-of-judicial-custody-in-cjp-protester-assault-case-548771
-
-[Read on Telegram](https://t.me/livelawindia/119112)
+[Read on Telegram](https://t.me/livelawindia/119184)
 
 ---
-### 2026-09-06T08:25:11+00:00
-Developer's Failure To Refund Amount After Cancelling Flat Allotment Is An Unfair Trade Practice; Kolkata Consumer Commission
-https://www.livelaw.in/law-firms/litigation/developers-failure-refund-amount-cancelling-flat-allotment-unfair-trade-practice-kolkata-consumer-commission-548772
+### 2026-09-07T09:32:23+00:00
+Karnataka High Court Declares Notification Granting Externment Power To SP As Illegal, Says Executive Action Can't Run Contrary To Statute
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-declares-notification-conferring-externment-power-sp-548895
 
-[Read on Telegram](https://t.me/livelawindia/119113)
-
----
-### 2026-09-06T08:56:21+00:00
-2nd Kautilya Society NLUO Essay Writing Competition 2026 By NLU Odisha: Register By Sept 13
-https://www.livelaw.in/lawschool/competitions/2nd-kautilya-society-nluo-essay-writing-competition-2026-nlu-odisha-548773
-
-[Read on Telegram](https://t.me/livelawindia/119114)
+[Read on Telegram](https://t.me/livelawindia/119185)
 
 ---
-### 2026-09-06T09:32:43+00:00
-Operation Safed Sagar -Untold Courage Behind Kargil's Skies
-https://www.livelaw.in/articles/operation-safed-sagar-untold-courage-behind-kargil-skies-548767
+### 2026-09-07T09:33:03+00:00
+From Checkbox To Control: Operationalising Consent Under DPDP Act
+https://www.livelaw.in/articles/from-checkbox-to-control-operationalising-consent-under-dpdp-act-548890
 
-[Read on Telegram](https://t.me/livelawindia/119115)
-
----
-### 2026-09-06T10:12:13+00:00
-Supreme Court Refuses Bail To Ex-RJD MLA Ritulal Yadav
-https://www.livelaw.in/news-updates/supreme-court-refuses-bail-to-ex-rjd-mla-ritulal-yadav-548774
-
-[Read on Telegram](https://t.me/livelawindia/119116)
+[Read on Telegram](https://t.me/livelawindia/119186)
 
 ---
-### 2026-09-06T10:20:33+00:00
-Housing Project Must Be Built As Per Brochure Given To Buyer: Supreme Court Directs CBI Enquiry Into DLF Construction
-https://www.livelaw.in/top-stories/housing-project-must-be-built-as-per-brochure-given-to-buyer-supreme-court-directs-cbi-enquiry-into-dlf-construction-548775
+### 2026-09-07T09:43:13+00:00
+Delhi Court Denies Anticipatory Bail To YouTuber Ajeet Bharti In SC/ST Act Case
+https://www.livelaw.in/news-updates/delhi-court-denies-anticipatory-bail-to-youtuber-ajeet-bharti-in-scst-act-case-548903
 
-[Read on Telegram](https://t.me/livelawindia/119117)
-
----
-### 2026-09-06T10:21:33+00:00
-2026 LiveLaw (SC) 902 | SWARNPREET KAUR & ANR. v. STATE OF HARYANA AND OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-902-swarnpreet-kaur-anr-v-state-of-haryana-and-others-548776
-
-[Read on Telegram](https://t.me/livelawindia/119118)
+[Read on Telegram](https://t.me/livelawindia/119187)
 
 ---
-### 2026-09-06T10:32:33+00:00
-LiveLaw Rajasthan High Court Monthly Digest: August 2026
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-monthly-digest-august2026-548191
+### 2026-09-07T09:48:13+00:00
+Taking Custody Of Children By Deception Doesn't Attract Cheating, Criminal Breach Of Trust: P&H High Court Quashes FIR Against In-Laws
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/children-custody-not-deception-criminal-breach-of-trust-fir-against-in-laws-quashed-548897
 
-[Read on Telegram](https://t.me/livelawindia/119119)
-
----
-### 2026-09-06T10:34:33+00:00
-How Allahabad High Court Has Been Exposing UP Police's Encounter Narratives
-https://www.livelaw.in/top-stories/how-allahabad-high-court-has-been-exposing-up-polices-encounter-narratives-548777
-
-[Read on Telegram](https://t.me/livelawindia/119120)
+[Read on Telegram](https://t.me/livelawindia/119188)
 
 ---
-### 2026-09-06T13:04:35+00:00
-First-Time Juvenility Claims Before SC Show 'Huge Gap' In JJ Act Implementation By Police, Trial Courts : Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-courts-purposive-child-centric-interpretation-jj-act-legislation-548778
+### 2026-09-07T09:54:54+00:00
+'Witnesses Must Be Treated As Courts' Guests' : Supreme Court Committee Holds Conference On 'Stock Witnesses Reforms'
+https://www.livelaw.in/top-stories/witnesses-must-be-treated-as-courts-guests-supreme-court-committee-holds-conference-on-stock-witnesses-reforms-548907
 
-[Read on Telegram](https://t.me/livelawindia/119121)
-
----
-### 2026-09-06T13:05:34+00:00
-NCDRC Dismisses Property Dispute Complaint As Time-Barred, Holds Valuation Claim An “Excuse”
-https://www.livelaw.in/consumer-cases/ncdrc-dismisses-property-dispute-complaint-as-time-barred-holds-valuation-claim-an-excuse-548779
-
-[Read on Telegram](https://t.me/livelawindia/119122)
+[Read on Telegram](https://t.me/livelawindia/119189)
 
 ---
-### 2026-09-06T13:58:40+00:00
-Important MCQs Based On Latest Supreme Court Judgments For Law Examinations
-https://www.livelaw.in/law-exams/important-mcqs-based-on-latest-supreme-court-judgments-for-law-examinations-548780
+### 2026-09-07T10:01:34+00:00
+Delhi Court Remands Swatantra Bhardwaj To 14 Days Judicial Custody In CJP Protester Assault Case
+https://www.livelaw.in/news-updates/delhi-court-remands-swatantra-bhardwaj-to-14-days-judicial-custody-in-cjp-protester-assault-case-548910
 
-[Read on Telegram](https://t.me/livelawindia/119123)
-
----
-### 2026-09-06T14:26:10+00:00
-LiveLaw Top 20 High Court Judgments Of The Week
-https://www.livelaw.in/top-stories/top-20-high-court-judgments-548785
-
-[Read on Telegram](https://t.me/livelawindia/119124)
+[Read on Telegram](https://t.me/livelawindia/119190)
 
 ---
-### 2026-09-06T14:33:10+00:00
-What Ails Our Democracy
-https://www.livelaw.in/articles/what-ails-our-democracy-548768
+### 2026-09-07T10:05:54+00:00
+HALSA Launches 'Nyay Mitra' Mobile Legal Clinics, SOP For Protection Of Persons With Disabilities
+https://www.livelaw.in/news-updates/halsa-launches-nyay-mitra-mobile-legal-clinics-sop-for-protection-of-persons-with-disabilities-548912
 
-[Read on Telegram](https://t.me/livelawindia/119125)
-
----
-### 2026-09-06T14:43:10+00:00
-Old Monk Can't Be Sold As 'Rum', It Is 'Flavoured Rum' With Artificial Ingredients  : FSSAI Tells Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-old-monk-permitted-sold-rum-modifies-label-fssai-548787
-
-[Read on Telegram](https://t.me/livelawindia/119126)
+[Read on Telegram](https://t.me/livelawindia/119191)
 
 ---
-### 2026-09-06T15:09:40+00:00
-Arrest In Jaipur Or Firozabad? UP Police Accused Of 'Fake Encounter'; Allahabad High Court Seeks ADGP, CP Reports
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-jaipur-arrest-firozabad-encounter-rajasthan-up-police-versions-fake-encounter-548792
+### 2026-09-07T10:28:04+00:00
+Advocate, Family Received ₹23L  Across Cases; Allahabad High Court Orders UP-Wide Inquiry Into 'Misuse' Of SC/ST Act Benefits
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-advocate-family-23l-uttar-pradesh-inquiry-misuse-sc-st-act-benefits-548918
 
-[Read on Telegram](https://t.me/livelawindia/119127)
-
----
-### 2026-09-06T16:03:11+00:00
-Punjab Government Opposes Justice Ashwani Kumar Mishra's Appointment As Chief Justice Of P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-government-opposes-justice-ashwani-kumar-mishras-appointment-as-chief-justice-of-ph-high-court-548796
-
-[Read on Telegram](https://t.me/livelawindia/119128)
+[Read on Telegram](https://t.me/livelawindia/119192)
 
 ---
-### 2026-09-07T03:28:47+00:00
-Supreme Court Seeks Centre's Response On Plea To Stop Perks To Judges Resigning To Avoid Removal
-https://www.livelaw.in/top-stories/supreme-court-pil-against-perks-entitlements-to-constitutional-functionaries-who-resigned-mid-tenure-to-avoid-removal-from-post-548798
+### 2026-09-07T10:43:44+00:00
+Alarmed Over Rising Narcotic Cases, Supreme Court Directs Steps To Create More NDPS Courts
+https://www.livelaw.in/top-stories/supreme-court-ndps-act-special-exclusive-courts-176-out-of-449-established-22-nia-courts-established-process-for-other-courts-to-be-expedited-548923
 
-[Read on Telegram](https://t.me/livelawindia/119129)
+[Read on Telegram](https://t.me/livelawindia/119193)
 
 ---
-### 2026-09-07T03:32:27+00:00
-LiveLaw Kerala High Court Weekly Round-Up: August 31 - September 06, 2026
-https://www.livelaw.in/high-court/kerala-high-court/livelaw-kerala-high-court-weekly-round-up-august-september-548797
+### 2026-09-07T10:47:44+00:00
+Calcutta High Court Upholds Eviction Of Chandanpur Railway Station Hawkers From Railway Land
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-upholds-eviction-of-chandanpur-railway-station-hawkers-from-railway-land-548913
 
-[Read on Telegram](https://t.me/livelawindia/119130)
+[Read on Telegram](https://t.me/livelawindia/119194)
+
+---
+### 2026-09-07T10:48:04+00:00
+LiveLaw Karnataka High Court Weekly Round Up: August 31 To September 6, 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-roundup-548881
+
+[Read on Telegram](https://t.me/livelawindia/119195)
+
+---
+### 2026-09-07T11:01:24+00:00
+Delhi High Court Rejects Swatantra Bhardwaj's Habeas Corpus Plea Over Arrest In CJP Protester Assault Case
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-rejects-swatantra-bhardwajs-habeas-corpus-plea-over-arrest-in-cjp-protester-assault-case-548929
+
+[Read on Telegram](https://t.me/livelawindia/119196)
+
+---
+### 2026-09-07T11:02:24+00:00
+RTI Act | Chhattisgarh High Court Quashes ₹25K RTI Penalty, Says Mala Fide Intent Must Be Established For Action
+https://www.livelaw.in/high-court/chhattisgarh-high-court/rti-penalty-section-20-categorical-finding-mala-fide-withholding-548815
+
+[Read on Telegram](https://t.me/livelawindia/119197)
+
+---
+### 2026-09-07T11:27:35+00:00
+Defendant Need Not Enter Witness Box To Prove Admitted Document : Supreme Court
+https://www.livelaw.in/supreme-court/defendant-need-not-enter-witness-box-to-prove-admitted-document-supreme-court-548933
+
+[Read on Telegram](https://t.me/livelawindia/119198)
+
+---
+### 2026-09-07T11:28:15+00:00
+Former Bureaucrat Ashish Joshi Moves Delhi Court Seeking Copy Of FIR Over 'X' Post After 9-Hour Detention
+https://www.livelaw.in/top-stories/former-bureaucrat-ashish-joshi-moves-delhi-court-seeking-copy-of-fir-over-x-post-after-9-hour-detention-548934
+
+[Read on Telegram](https://t.me/livelawindia/119199)
+
+---
+### 2026-09-07T11:28:55+00:00
+2026 LiveLaw (SC) 903 | PUNNU RAM VERSUS LATURIA RAM
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-903-punnu-ram-versus-laturia-ram-548936
+
+[Read on Telegram](https://t.me/livelawindia/119200)
+
+---
+### 2026-09-07T11:42:55+00:00
+'Khufia Suragh Barari' Is General Police Endeavour, Not Specific Prior Information Triggering Section 42 NDPS Act: HP High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-specific-prior-information-ndps-act-548805
+
+[Read on Telegram](https://t.me/livelawindia/119201)
+
+---
+### 2026-09-07T11:44:35+00:00
+Very Difficult To Get Corruption Cases Registered Against Powerful Men In This Country: Madras High Court Remarks
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-almost-impossible-register-corruption-case-powerful-persons-548938
+
+[Read on Telegram](https://t.me/livelawindia/119202)
+
+---
+### 2026-09-07T11:57:45+00:00
+PIL Before Kerala High Court Raises Concerns About Police Complaints Authority, Non-Appointment Of Independent Investigator
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-police-complaints-authority-pil-548939
+
+[Read on Telegram](https://t.me/livelawindia/119203)
 
 ---
