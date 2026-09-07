@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-06T15:03:00+00:00*
+*Last Updated: 2026-09-07T05:02:45+00:00*
+
+---
+
+### 2026-09-07T05:02:45+00:00
+Centre Notifies Appointment Of Chief Justices Across Eight High Courts
+https://www.verdictum.in/court-updates/high-courts/appointment-of-chief-justice-across-eight-high-courts-1621457
+
+[Source Link](https://t.me/verdictumlegalupdates/28943)
+
+---
+
+### 2026-09-07T04:32:54+00:00
+Section 69 BNS| Lack Of Intention To Marry Cannot Be Inferred Where Accused Approached Woman’s Mother With Proposal: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/x-v-state-of-karnataka-and-another-2026khc46791-sexual-intercourse-marriage-pretext-1621450
+
+[Source Link](https://t.me/verdictumlegalupdates/28942)
 
 ---
 
@@ -145,22 +161,6 @@ Multiplier For Assessing Motor Accident Compensation For Bachelor’s Death Must
 https://www.verdictum.in/supreme-court/reliance-general-insurance-company-limited-v-priyanka-das-and-others-2026-insc-950-1621367
 
 [Source Link](https://t.me/verdictumlegalupdates/28924)
-
----
-
-### 2026-09-05T07:33:19+00:00
-Delhi High Court Imposes ₹ 1 Lakh Cost On DTC Dept. For Continuing Litigation Involving Back Wages For 32 Years, To Be Recovered From Officer Responsible
-https://www.verdictum.in/delhi-high-court/dtc-v-rajender-prashad-2026dhc7487-cost-officer-dtc-dept-backwages-1621363
-
-[Source Link](https://t.me/verdictumlegalupdates/28923)
-
----
-
-### 2026-09-05T06:52:38+00:00
-Special Intensive Revision (SIR)| Booth Level Agents Cannot Be Made Liable For Verification Of Information In Enumeration Form: Delhi High Court
-https://www.verdictum.in/delhi-high-court/devender-yadav-v-election-commission-of-india-2026dhc7464-special-intensive-revision-sir-congress-1621356
-
-[Source Link](https://t.me/verdictumlegalupdates/28922)
 
 ---
 
