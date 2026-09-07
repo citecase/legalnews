@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-07T12:32:38+00:00*
+*Last Updated: 2026-09-07T16:02:23+00:00*
+
+---
+
+### 2026-09-07T16:02:23+00:00
+Young Professional (Legal) Vacancy At National Highways Authority of India (NHAI)
+https://www.verdictum.in/job-updates/national-highways-authority-of-india-1621498
+
+[Source Link](https://t.me/verdictumlegalupdates/28965)
+
+---
+
+### 2026-09-07T15:32:43+00:00
+Sloganeering For Secession With Head Of  Hurriyat Conference Followed By Violence Against Security Forces Falls Within UAPA: Jammu & Kashmir And Ladakh HC
+https://www.verdictum.in/jammu-ladakh-high-court/ut-of-jk-v-mohd-yousuf-lone-sloganeering-secession-accused-mob-violence-uapa-1621503
+
+[Source Link](https://t.me/verdictumlegalupdates/28964)
+
+---
+
+### 2026-09-07T15:02:42+00:00
+Mere Fact That Matter Stood Reserved For Judgment Won’t Operate As Absolute Bar To Summon Or Recall Witness U/S 311 CrPC: Delhi High Court
+https://www.verdictum.in/delhi-high-court/raman-soni-v-central-bureau-of-investigation-matter-reserved-judgment-power-section-311-crpc-1621497
+
+[Source Link](https://t.me/verdictumlegalupdates/28963)
+
+---
+
+### 2026-09-07T14:32:21+00:00
+Wrong To Assume  “Unemployed Woman” Would Not Have Funds: Karnataka High Court On Absolute Ownership U/S 14 Hindu Succession Act
+https://www.verdictum.in/karnataka-high-court/ms-rajesh-exports-limited-v-sri-b-devaraj-2026khc46919-db-assume-woman-unemployed-hindu-succession-act-1621496
+
+[Source Link](https://t.me/verdictumlegalupdates/28962)
+
+---
+
+### 2026-09-07T14:03:20+00:00
+Intervening Holiday Can’t Itself Defeat Continuity Of Service Or Postpone Accrual Of Admissible Service Benefit: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/seema-ray-and-3-others-v-state-of-up-2026dhc178110-intervening-holiday-service-benefit-1621495
+
+[Source Link](https://t.me/verdictumlegalupdates/28961)
+
+---
+
+### 2026-09-07T13:32:59+00:00
+A&C Act| Judge's Prior Interim Order U/S 9 No Ground For Recusal From Petition U/S 34: Sikkim High Court
+https://www.verdictum.in/sikkim-high-court/state-of-sikkim-v-nimmi-oberoi-crp-no-6-of-2026-order-us-9-arbitration-act-ground-recusal-section-34-1621494
+
+[Source Link](https://t.me/verdictumlegalupdates/28960)
+
+---
+
+### 2026-09-07T13:02:39+00:00
+Backward Class Commission Can’t Direct Recovery Of Money From Private Party: Chhattisgarh High Court
+https://www.verdictum.in/chhattisgarh-high-court/dushyant-prakash-nag-v-state-of-chhattisgarh-2026cghc38766-db-backward-class-commission-1621493
+
+[Source Link](https://t.me/verdictumlegalupdates/28959)
 
 ---
 
@@ -105,62 +161,6 @@ High Courts Cannot Quash POCSO & Rape Offences Based On Settlement Even In Cases
 https://www.verdictum.in/sikkim-high-court/rxxx-rxx-v-state-of-sikkim-crl-mc-no-2-of-2026-pocso-rape-offences-settlement-adolescent-romantic-relationships-1621465
 
 [Source Link](https://t.me/verdictumlegalupdates/28946)
-
----
-
-### 2026-09-07T06:02:06+00:00
-Unsanctioned Temple On Nazul Land Earmarked For Nursery School Is Illegal: Delhi High Court Dismisses Plea Seeking Regularisation
-https://www.verdictum.in/delhi-high-court/sanmati-sabha-regd-v-delhi-development-authority-2026dhc7548-nazul-land-earmarked-for-nursery-school-1621463
-
-[Source Link](https://t.me/verdictumlegalupdates/28945)
-
----
-
-### 2026-09-07T05:32:46+00:00
-Complaint Must Go To Superior Court: Himachal Pradesh High Court Quashes Complaint By SDM Against Against Woman Accused Of Disrupting Court Proceedings
-https://www.verdictum.in/himachal-high-court/pallavi-ramchaik-v-state-of-hp-crmmo-no-497-of-2026-complaint-must-go-to-superior-court-sdm-sho-1621460
-
-[Source Link](https://t.me/verdictumlegalupdates/28944)
-
----
-
-### 2026-09-07T05:02:45+00:00
-Centre Notifies Appointment Of Chief Justices Across Eight High Courts
-https://www.verdictum.in/court-updates/high-courts/appointment-of-chief-justice-across-eight-high-courts-1621457
-
-[Source Link](https://t.me/verdictumlegalupdates/28943)
-
----
-
-### 2026-09-07T04:32:54+00:00
-Section 69 BNS| Lack Of Intention To Marry Cannot Be Inferred Where Accused Approached Woman’s Mother With Proposal: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/x-v-state-of-karnataka-and-another-2026khc46791-sexual-intercourse-marriage-pretext-1621450
-
-[Source Link](https://t.me/verdictumlegalupdates/28942)
-
----
-
-### 2026-09-06T15:03:00+00:00
-Law Officer Vacancy At Bank Of India (BOI)
-https://www.verdictum.in/job-updates/bank-of-india-1621394
-
-[Source Link](https://t.me/verdictumlegalupdates/28941)
-
----
-
-### 2026-09-06T13:32:19+00:00
-Four-Attempt Limit Under NMC’s GME Regulations Applies To First Professional MBBS As A Whole, Not Individual Subjects: Bombay High Court
-https://www.verdictum.in/bombay-high-court/aarya-avinash-patil-v-maharashtra-university-of-health-sciences-nashik-and-others-2026bhc-as35540-db-1621423
-
-[Source Link](https://t.me/verdictumlegalupdates/28940)
-
----
-
-### 2026-09-06T12:02:38+00:00
-Qualifying Service For Promotion To Be Counted From Calendar Year Of Joining Feeder Cadre & Not Joining Date: Chhattisgarh High Court
-https://www.verdictum.in/chhattisgarh-high-court/om-prakash-dewangan-v-state-of-chhattisgarh-2026cghc38752-db-promotion-calendar-year-1621422
-
-[Source Link](https://t.me/verdictumlegalupdates/28939)
 
 ---
 
