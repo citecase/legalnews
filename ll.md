@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-06T07:16:19+00:00*
+*Last Updated: 2026-09-06T07:32:50+00:00*
 
 ---
 
-### 2026-09-06T07:16:19+00:00
-Can't Wait Perennially: Allahabad High Court Rejects Absconding Accused's 1982 Attempt-To-Murder Appeal On Merits In Her Absence
-https://www.livelaw.in/high-court/allahabad-high-court/cant-wait-perennially-allahabad-high-court-rejects-absconding-accuseds-1982-attempt-to-murder-appeal-on-merits-in-her-absence-548770
-
-[Read on Telegram](https://t.me/livelawindia/119109)
-
----
-### 2026-09-06T07:32:40+00:00
-Trial Court Can Summon Witness After Reserving Judgment When Evidence Is Necessary: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/trial-court-can-summon-witness-after-reserving-judgment-when-evidence-is-necessary-548705
-
-[Read on Telegram](https://t.me/livelawindia/119110)
-
----
 ### 2026-09-06T07:32:50+00:00
 Trial Court Can Summon Witness After Reserving Judgment When Evidence Is Necessary: Delhi High Court
 https://www.livelaw.in/high-court/delhi-high-court/trial-court-can-summon-witness-after-reserving-judgment-when-evidence-is-necessary-548705
@@ -142,5 +128,19 @@ Punjab Government Opposes Justice Ashwani Kumar Mishra's Appointment As Chief Ju
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-government-opposes-justice-ashwani-kumar-mishras-appointment-as-chief-justice-of-ph-high-court-548796
 
 [Read on Telegram](https://t.me/livelawindia/119128)
+
+---
+### 2026-09-07T03:28:47+00:00
+Supreme Court Seeks Centre's Response On Plea To Stop Perks To Judges Resigning To Avoid Removal
+https://www.livelaw.in/top-stories/supreme-court-pil-against-perks-entitlements-to-constitutional-functionaries-who-resigned-mid-tenure-to-avoid-removal-from-post-548798
+
+[Read on Telegram](https://t.me/livelawindia/119129)
+
+---
+### 2026-09-07T03:32:27+00:00
+LiveLaw Kerala High Court Weekly Round-Up: August 31 - September 06, 2026
+https://www.livelaw.in/high-court/kerala-high-court/livelaw-kerala-high-court-weekly-round-up-august-september-548797
+
+[Read on Telegram](https://t.me/livelawindia/119130)
 
 ---
