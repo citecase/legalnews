@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-08T11:33:20+00:00*
+*Last Updated: 2026-09-08T16:02:38+00:00*
+
+---
+
+### 2026-09-08T16:02:38+00:00
+Gujarat Police Recruitment Board (GPRB) Invites Applications For Post Of Legal Executive
+https://www.verdictum.in/job-updates/gujarat-police-recruitment-board-1621564
+
+[Source Link](https://t.me/verdictumlegalupdates/28988)
+
+---
+
+### 2026-09-08T15:31:57+00:00
+Accidental Exposure Of Private Parts To A Woman Cannot Amount To Sexual Harassment U/S 75(2) BNS: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/anil-rohan-menezes-v-state-of-karnataka-and-another-2026khc47384-1621576
+
+[Source Link](https://t.me/verdictumlegalupdates/28987)
+
+---
+
+### 2026-09-08T15:02:16+00:00
+Daughter-In-Law Not ‘Child’ Under Senior Citizens Act; Maintenance Claim Against Student Granddaughter Unreasonable: Kerala High Court
+https://www.verdictum.in/kerala-high-court/k-thankamma-v-moljimol-ks-mol-g-mol-ks-and-others-2026ker64761-1621570
+
+[Source Link](https://t.me/verdictumlegalupdates/28986)
+
+---
+
+### 2026-09-08T14:32:55+00:00
+Habeas Corpus Petition For Custody Can't Be Dismissed Solely Due To Alternative Remedy Before Family Court: Supreme Court
+https://www.verdictum.in/supreme-court/habeas-corpus-petition-cannot-dimsiss-solely-alternative-remedy-family-courts-act-1621568
+
+[Source Link](https://t.me/verdictumlegalupdates/28985)
+
+---
+
+### 2026-09-08T14:02:55+00:00
+Married Woman Accompanying Another Man To Hotel Can’t Claim Sexual Relationship Was Induced By False Promise To Marry: Kerala High Court
+https://www.verdictum.in/kerala-high-court/habibur-rahman-v-state-of-kerala-2026ker67015-married-woman-false-promise-to-marry-rape-1621567
+
+[Source Link](https://t.me/verdictumlegalupdates/28984)
+
+---
+
+### 2026-09-08T13:32:14+00:00
+There Was No Misuse Of Power, Wealth, Status Or Age: Delhi High Court Directs Release Of Man In 2009 Minor's Rape Case, Cites Absence Of "Force Or Coercion"
+https://www.verdictum.in/delhi-high-court/v-v-state-2026dhc7579-release-in-2009-rape-case-with-minor-tattoo-on-her-chest-trip-to-manali-1621563
+
+[Source Link](https://t.me/verdictumlegalupdates/28983)
+
+---
+
+### 2026-09-08T13:03:03+00:00
+"Sharia Court" Has No Jurisdiction To Adjudicate Marital Status, Its Orders Not Binding Or Enforceable: Chhattisgarh High Court
+https://www.verdictum.in/chhattisgarh-high-court/na-v-union-of-india-wpc-no-795-of-2022-idara-e-shariyas-talaq-declaration-marital-status-talaq-e-hasan-1621562
+
+[Source Link](https://t.me/verdictumlegalupdates/28982)
+
+---
+
+### 2026-09-08T12:32:22+00:00
+Can't Keep Lingering Like This: Supreme Court Asks Odisha To Decide Dara Singh's Remission Plea
+https://www.verdictum.in/supreme-court/odisha-to-decide-dara-singhs-remission-plea-1621561
+
+[Source Link](https://t.me/verdictumlegalupdates/28981)
+
+---
+
+### 2026-09-08T12:03:21+00:00
+Another Device To Delay Possesion & Repayment: Supreme Court Rejects Proposal Of Parsvnath Developers For Homebuyers
+https://www.verdictum.in/supreme-court/proposal-of-parsvnath-developers-for-homebuyers-rejected-by-sc-1621560
+
+[Source Link](https://t.me/verdictumlegalupdates/28980)
 
 ---
 
@@ -89,78 +161,6 @@ Breaking: Will Destroy Future Of Generations: Supreme Court Stays Appointment Of
 https://www.verdictum.in/supreme-court/stays-appointment-unqualified-school-college-teachers-1621538
 
 [Source Link](https://t.me/verdictumlegalupdates/28969)
-
----
-
-### 2026-09-08T05:36:05+00:00
-Insurance Certificates Cannot Send Claimants On A "Voyage" Into "Labyrinth" Of Company Websites: Sikkim High Court To Insurers Appearing Before MACT
-https://www.verdictum.in/sikkim-high-court/rekha-chettri-v-tata-aig-general-insurance-company-mac-app-no-20-of-2024-insurance-company-insurers-unclear-terms-policy-1621531
-
-[Source Link](https://t.me/verdictumlegalupdates/28968)
-
----
-
-### 2026-09-08T05:06:05+00:00
-Non-Identification Of Natural Person No Ground To Quash Prosecution Against Company: Supreme Court Lays Down Three-Stage Test For Attributing Mens Rea To Corporations
-https://www.verdictum.in/supreme-court/sanofi-india-ltd-v-central-bureau-of-investigation-2026-insc-957-corporate-criminal-liability-attribution-1621528
-
-[Source Link](https://t.me/verdictumlegalupdates/28967)
-
----
-
-### 2026-09-08T04:33:13+00:00
-Courts Must Balance Accused’s Liberty & Nation's Safety: Kerala High Court Refuses Bail To Accused PFI Leaders In RSS Activist Sreenivasan Murder Case
-https://www.verdictum.in/kerala-high-court/ashraf-ashraf-moulavi-abdul-kader-v-union-of-india-and-another-2026ker64863-1621522
-
-[Source Link](https://t.me/verdictumlegalupdates/28966)
-
----
-
-### 2026-09-07T16:02:23+00:00
-Young Professional (Legal) Vacancy At National Highways Authority of India (NHAI)
-https://www.verdictum.in/job-updates/national-highways-authority-of-india-1621498
-
-[Source Link](https://t.me/verdictumlegalupdates/28965)
-
----
-
-### 2026-09-07T15:32:43+00:00
-Sloganeering For Secession With Head Of  Hurriyat Conference Followed By Violence Against Security Forces Falls Within UAPA: Jammu & Kashmir And Ladakh HC
-https://www.verdictum.in/jammu-ladakh-high-court/ut-of-jk-v-mohd-yousuf-lone-sloganeering-secession-accused-mob-violence-uapa-1621503
-
-[Source Link](https://t.me/verdictumlegalupdates/28964)
-
----
-
-### 2026-09-07T15:02:42+00:00
-Mere Fact That Matter Stood Reserved For Judgment Won’t Operate As Absolute Bar To Summon Or Recall Witness U/S 311 CrPC: Delhi High Court
-https://www.verdictum.in/delhi-high-court/raman-soni-v-central-bureau-of-investigation-matter-reserved-judgment-power-section-311-crpc-1621497
-
-[Source Link](https://t.me/verdictumlegalupdates/28963)
-
----
-
-### 2026-09-07T14:32:21+00:00
-Wrong To Assume  “Unemployed Woman” Would Not Have Funds: Karnataka High Court On Absolute Ownership U/S 14 Hindu Succession Act
-https://www.verdictum.in/karnataka-high-court/ms-rajesh-exports-limited-v-sri-b-devaraj-2026khc46919-db-assume-woman-unemployed-hindu-succession-act-1621496
-
-[Source Link](https://t.me/verdictumlegalupdates/28962)
-
----
-
-### 2026-09-07T14:03:20+00:00
-Intervening Holiday Can’t Itself Defeat Continuity Of Service Or Postpone Accrual Of Admissible Service Benefit: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/seema-ray-and-3-others-v-state-of-up-2026dhc178110-intervening-holiday-service-benefit-1621495
-
-[Source Link](https://t.me/verdictumlegalupdates/28961)
-
----
-
-### 2026-09-07T13:32:59+00:00
-A&C Act| Judge's Prior Interim Order U/S 9 No Ground For Recusal From Petition U/S 34: Sikkim High Court
-https://www.verdictum.in/sikkim-high-court/state-of-sikkim-v-nimmi-oberoi-crp-no-6-of-2026-order-us-9-arbitration-act-ground-recusal-section-34-1621494
-
-[Source Link](https://t.me/verdictumlegalupdates/28960)
 
 ---
 
