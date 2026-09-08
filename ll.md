@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-07T14:08:06+00:00*
+*Last Updated: 2026-09-07T14:22:37+00:00*
 
 ---
 
-### 2026-09-07T14:08:06+00:00
-'OBC-A Category Struck Down': Calcutta High Court Denies Relief To SLST Aspirants Seeking Reservation Benefits
-https://www.livelaw.in/high-court/calcutta-high-court/obc-a-slst-aspirants-cannot-claim-reserved-status-after-caste-categories-were-struck-down-before-recruitment-calcutta-high-court-548919
-
-[Read on Telegram](https://t.me/livelawindia/119217)
-
----
-### 2026-09-07T14:13:06+00:00
-Rahul Easwar Moves Kerala High Court To Take Down Social Media Videos Containing 'Vulgar' Remarks About Lord Ayyappa, Malikappurathamma
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-rahul-easwar-sabarimala-deities-vulgar-548961
-
-[Read on Telegram](https://t.me/livelawindia/119218)
-
----
-### 2026-09-07T14:19:37+00:00
-What Is Union's Legal Obligation To Search For Indian Missing After Hostile Attack In Another Country? Supreme Court Asks
-https://www.livelaw.in/top-stories/what-is-unions-legal-obligation-to-search-for-indian-missing-after-hostile-attack-in-another-country-supreme-court-asks-548962
-
-[Read on Telegram](https://t.me/livelawindia/119219)
-
----
-### 2026-09-07T14:21:17+00:00
-Suspension Of Food Business Licence Must End On Rectifying Deficiencies, Can't Force Them Into Litigation: High Court To Maharashtra FDA
-https://www.livelaw.in/high-court/bombay-high-court/maharashtra-fda-revoke-food-license-suspension-after-compliance-548963
-
-[Read on Telegram](https://t.me/livelawindia/119220)
-
----
 ### 2026-09-07T14:22:37+00:00
 Prior Land Possession Not Mandatory To Apply Environmental Clearance For Bio-Medical Waste Facilities : Supreme Court
 https://www.livelaw.in/supreme-court/prior-land-possession-not-mandatory-to-apply-environmental-clearance-for-bio-medical-waste-facilities-supreme-court-548964
@@ -142,5 +114,33 @@ LiveLaw High Courts Daily Highlights: September 07, 2026
 https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-07-2026-548984
 
 [Read on Telegram](https://t.me/livelawindia/119236)
+
+---
+### 2026-09-08T02:45:22+00:00
+'I'd Rather Die Than Be Called A Coward Judge': UP Judge Claims Serious Cases Recalled From His Court To Benefit Mafia, Criminals
+https://www.livelaw.in/news-updates/up-judge-ravi-kumar-diwakar-cases-withdrawn-mafia-criminals-548996
+
+[Read on Telegram](https://t.me/livelawindia/119237)
+
+---
+### 2026-09-08T03:05:07+00:00
+Star Health Liable For Wrongfully Limiting Mediclaim Reimbursement: Belagavi Consumer Commission
+https://www.livelaw.in/consumer-cases/star-health-liable-for-wrongfully-limiting-mediclaim-reimbursement-belagavi-consumer-commission-548997
+
+[Read on Telegram](https://t.me/livelawindia/119238)
+
+---
+### 2026-09-08T03:35:27+00:00
+Married Woman Voluntarily Accompanying Man To Hotel Can't Claim Sexual Relationship Was Induced Solely By Promise Of Marriage: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-married-woman-false-promise-sexual-intercouse-548998
+
+[Read on Telegram](https://t.me/livelawindia/119239)
+
+---
+### 2026-09-08T03:47:17+00:00
+Insurer Bound To Compensate Bank For Dacoity Loss After Accepting Premium Despite Knowledge Of Security Deficiencies: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-insurer-reject-bank-claim-accepting-premium-despite-rbi-security-norm-violations-548999
+
+[Read on Telegram](https://t.me/livelawindia/119240)
 
 ---
