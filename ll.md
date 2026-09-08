@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-08T14:32:38+00:00*
+*Last Updated: 2026-09-08T14:57:57+00:00*
 
 ---
 
-### 2026-09-08T14:32:38+00:00
-Premature Release Can't Be Denied Solely On Police Verification Report Not Contemplated By Rules: Tripura High Court
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-sets-aside-decision-state-committee-rejecting-premature-release-convicts-549169
-
-[Read on Telegram](https://t.me/livelawindia/119354)
-
----
-### 2026-09-08T14:47:27+00:00
-Divorce Decree Doesn't Bar Subsequent Claim For Permanent Alimony Under Section 25 Hindu Marriage Act: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/wife-can-seek-permanent-alimony-after-divorce-section-25-hindu-marriage-act-549170
-
-[Read on Telegram](https://t.me/livelawindia/119355)
-
----
-### 2026-09-08T14:47:47+00:00
-Enquiry Officer Acting As Prosecutor Through Leading Questions Vitiates Disciplinary Proceedings: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/enquiry-officer-acting-prosecutor-through-leading-questions-vitiates-disciplinary-proceedings-549188
-
-[Read on Telegram](https://t.me/livelawindia/119356)
-
----
 ### 2026-09-08T14:57:57+00:00
 Justice Rohit Kapoor Appointed As Permanent Judge Of Punjab & Haryana High Court
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/justice-rohit-kapoor-appointed-as-permanent-judge-of-punjab-haryana-high-court-549219
@@ -142,5 +121,26 @@ Long Cohabitation As Husband & Wife Raises Strong Presumption Of Valid Marriage,
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-notes-long-cohabitation-raises-strong-presumption-of-legitimacy-over-illegitimacy-of-marriage-549180
 
 [Read on Telegram](https://t.me/livelawindia/119373)
+
+---
+### 2026-09-08T16:32:38+00:00
+Revisional Authority Can't Set Aside Final Order Passed By Coordinate Revisional Authority In Separate Revision: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-revisional-authority-set-aside-final-judgment-passed-coordinate-revisional-authority-549181
+
+[Read on Telegram](https://t.me/livelawindia/119374)
+
+---
+### 2026-09-08T17:22:48+00:00
+Supreme Court Daily Round-Up: September 8, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-september-8-2026-549240
+
+[Read on Telegram](https://t.me/livelawindia/119375)
+
+---
+### 2026-09-08T17:32:48+00:00
+LiveLaw High Courts Daily Highlights: September 08, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-08-2026-549235
+
+[Read on Telegram](https://t.me/livelawindia/119376)
 
 ---
