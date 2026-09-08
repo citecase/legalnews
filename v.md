@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-07T16:02:23+00:00*
+*Last Updated: 2026-09-08T04:33:13+00:00*
+
+---
+
+### 2026-09-08T04:33:13+00:00
+Courts Must Balance Accused’s Liberty & Nation's Safety: Kerala High Court Refuses Bail To Accused PFI Leaders In RSS Activist Sreenivasan Murder Case
+https://www.verdictum.in/kerala-high-court/ashraf-ashraf-moulavi-abdul-kader-v-union-of-india-and-another-2026ker64863-1621522
+
+[Source Link](https://t.me/verdictumlegalupdates/28966)
 
 ---
 
@@ -153,14 +161,6 @@ Supreme Court Asks States To Submit Fresh Reports On Old Age Homes & Facilities 
 https://www.verdictum.in/supreme-court/states-to-submit-fresh-reports-on-old-age-homes-facilities-for-elderly-1621467
 
 [Source Link](https://t.me/verdictumlegalupdates/28947)
-
----
-
-### 2026-09-07T06:36:28+00:00
-High Courts Cannot Quash POCSO & Rape Offences Based On Settlement Even In Cases Of Adolescent Romantic Relationships: Sikkim High Court
-https://www.verdictum.in/sikkim-high-court/rxxx-rxx-v-state-of-sikkim-crl-mc-no-2-of-2026-pocso-rape-offences-settlement-adolescent-romantic-relationships-1621465
-
-[Source Link](https://t.me/verdictumlegalupdates/28946)
 
 ---
 
