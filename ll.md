@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-08T09:18:05+00:00*
+*Last Updated: 2026-09-08T14:32:38+00:00*
 
 ---
 
-### 2026-09-08T09:18:05+00:00
-Hospitals Cannot Delay Emergency Stroke Treatment Awaiting Consent Or COVID Report: Hyderabad Consumer Commission Awards ₹1 Crore To Deceased PhD Scholar's Parents
-https://www.livelaw.in/consumer-cases/hospitals-cannot-delay-emergency-stroke-treatment-awaiting-consent-or-covid-report-hyderabad-consumer-commission-awards-1-crore-to-deceased-phd-scholars-parents-549074
+### 2026-09-08T14:32:38+00:00
+Premature Release Can't Be Denied Solely On Police Verification Report Not Contemplated By Rules: Tripura High Court
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-sets-aside-decision-state-committee-rejecting-premature-release-convicts-549169
 
-[Read on Telegram](https://t.me/livelawindia/119294)
-
----
-### 2026-09-08T09:22:25+00:00
-Actor Darshan Moves Karnataka High Court Against Order Refusing Physical Production In Renukaswamy Murder Trial
-https://www.livelaw.in/news-updates/kannada-actor-darshan-challenges-trial-court-order-refusing-physical-production-in-renukaswamy-murder-trial-549101
-
-[Read on Telegram](https://t.me/livelawindia/119295)
+[Read on Telegram](https://t.me/livelawindia/119354)
 
 ---
-### 2026-09-08T09:25:48+00:00
-Delhi Court Denies Bail To Nasir Gang 'Kingpin', Say Long Incarceration Alone Not Enough For Relief Under MCOCA
-https://www.livelaw.in/news-updates/delhi-court-denies-bail-to-nasir-gang-kingpin-say-long-incarceration-alone-not-enough-for-relief-under-mcoca-549104
+### 2026-09-08T14:47:27+00:00
+Divorce Decree Doesn't Bar Subsequent Claim For Permanent Alimony Under Section 25 Hindu Marriage Act: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/wife-can-seek-permanent-alimony-after-divorce-section-25-hindu-marriage-act-549170
 
-[Read on Telegram](https://t.me/livelawindia/119296)
-
----
-### 2026-09-08T09:26:28+00:00
-Supreme Court To Examine Delhi Satya Niketan Building Collapse, Amicus Seeks Directions To Inspect PGs & Hostels
-https://www.livelaw.in/top-stories/supreme-court-to-examine-delhi-satya-niketan-building-collapse-amicus-seeks-directions-to-inspect-pgs-hostels-549105
-
-[Read on Telegram](https://t.me/livelawindia/119297)
+[Read on Telegram](https://t.me/livelawindia/119355)
 
 ---
-### 2026-09-08T09:29:48+00:00
-Calcutta High Court Upholds Conviction Of Developer, Owner For Illegal G 3 Building, Says Actual Collapse Not Needed To Prove Hazard
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-upholds-conviction-of-developer-owner-for-illegal-g3-building-says-actual-collapse-not-needed-to-prove-hazard-549107
+### 2026-09-08T14:47:47+00:00
+Enquiry Officer Acting As Prosecutor Through Leading Questions Vitiates Disciplinary Proceedings: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/enquiry-officer-acting-prosecutor-through-leading-questions-vitiates-disciplinary-proceedings-549188
 
-[Read on Telegram](https://t.me/livelawindia/119298)
-
----
-### 2026-09-08T09:32:28+00:00
-Delhi High Court Directs Jamia To Ensure Exclusive Toilet Facility For All Female Faculty Members
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-jamia-to-ensure-exclusive-toilet-facility-for-all-female-faculty-members-549102
-
-[Read on Telegram](https://t.me/livelawindia/119299)
+[Read on Telegram](https://t.me/livelawindia/119356)
 
 ---
-### 2026-09-08T09:33:08+00:00
-When Artificial Intelligence Becomes Witness: Who Bears Responsibility For AI-Generated Evidence?
-https://www.livelaw.in/articles/artificial-intelligence-witness-who-bears-responsibility-ai-generated-evidence-549070
+### 2026-09-08T14:57:57+00:00
+Justice Rohit Kapoor Appointed As Permanent Judge Of Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/justice-rohit-kapoor-appointed-as-permanent-judge-of-punjab-haryana-high-court-549219
 
-[Read on Telegram](https://t.me/livelawindia/119300)
-
----
-### 2026-09-08T09:36:08+00:00
-S.106 BNS | Landlord Not Liable For Accidental Death In Rented Premises If No Attributable Negligence: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-106-bns-vicarious-liability-landlord-accidental-death-rented-attributable-negligence-549108
-
-[Read on Telegram](https://t.me/livelawindia/119301)
+[Read on Telegram](https://t.me/livelawindia/119357)
 
 ---
-### 2026-09-08T09:46:48+00:00
-Supreme Court Clears Implementation Of Resolution Plan For Stalled 'Sushant Aquapolis' Project In Ghaziabad
-https://www.livelaw.in/supreme-court/supreme-court-clears-implementation-of-resolution-plan-for-stalled-sushant-aquapolis-project-in-ghaziabad-549115
+### 2026-09-08T15:02:17+00:00
+P&H High Court Rejects 'Negative Fee Waiver', Says Candidates Can't Be Made Ineligible For Paying Application Fee Despite Exemption
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/doctrine-of-negative-fee-waiver-paying-fee-despite-exemption-549171
 
-[Read on Telegram](https://t.me/livelawindia/119302)
-
----
-### 2026-09-08T09:47:49+00:00
-2026 LiveLaw (SC) 910 | One City Infrastructure Private Limited Versus Ghaziabad Development Authority and Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-910-one-city-infrastructure-private-limited-versus-ghaziabad-development-authority-and-ors-549117
-
-[Read on Telegram](https://t.me/livelawindia/119303)
+[Read on Telegram](https://t.me/livelawindia/119358)
 
 ---
-### 2026-09-08T09:48:09+00:00
-Eligibility Certificate Can't Be Filed After Cut-Off Date Where Recruitment Notice Carries Negative Covenant: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-eligibility-certificate-filed-after-cutoff-advertisement-carries-negative-covenant-549082
+### 2026-09-08T15:17:37+00:00
+Freebies To Doctors | Supreme Court Reserves Order In Plea Seeking Regulation Of Pharmaceutical Marketing Practices
+https://www.livelaw.in/top-stories/freebies-to-doctors-supreme-court-reserves-order-in-plea-seeking-regulation-of-pharmaceutical-marketing-practices-549223
 
-[Read on Telegram](https://t.me/livelawindia/119304)
-
----
-### 2026-09-08T09:57:49+00:00
-Pendency Of Election Petition Cannot Justify Retention Of Every EVM/VVPAT Machine In District: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/pendency-of-election-petition-cannot-justify-retention-of-every-evmvvpat-machine-in-district-calcutta-high-court-549091
-
-[Read on Telegram](https://t.me/livelawindia/119305)
+[Read on Telegram](https://t.me/livelawindia/119359)
 
 ---
-### 2026-09-08T10:00:09+00:00
-Aviation Firm Files Defamation Suit Against Actress Nora Fatehi Over 'Toy Plane', 'Lego Airplane' Remarks
-https://www.livelaw.in/news-updates/aviation-firm-files-defamation-suit-against-actress-nora-fatehi-over-reckless-comments-on-chartered-aircraft-549121
+### 2026-09-08T15:17:57+00:00
+Delhi High Court Slams Railways For Making Low-Paid Commission Vendors Fight For Decades, Upholds Regularisation
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-slams-railways-for-making-low-paid-commission-vendors-fight-for-decades-upholds-regularisation-549172
 
-[Read on Telegram](https://t.me/livelawindia/119306)
-
----
-### 2026-09-08T10:08:09+00:00
-'Andar Bahar' Is A Game Of Chance, Not Skill: Karnataka High Court Disagrees With 1977 Precedent, Refers Issue To Larger Bench
-https://www.livelaw.in/high-court/karnataka-high-court/andar-bahar-card-game-game-of-skill-or-chance-1977-precedent-larger-bench-549126
-
-[Read on Telegram](https://t.me/livelawindia/119307)
+[Read on Telegram](https://t.me/livelawindia/119360)
 
 ---
-### 2026-09-08T10:17:59+00:00
-'Law Alone Not Enough, Judges Should Also Play Ball': Madras High Court Grants Mutual Consent Divorce After Family Court Declined Jurisdiction
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-family-order-lack-of-territorial-jurisdiction-set-aside-549112
+### 2026-09-08T15:24:37+00:00
+Delhi Riots: Court Allows Tahir Hussain To Use Electric Kettle, Wooden Takhat Inside Jail On Medical Grounds
+https://www.livelaw.in/news-updates/delhi-riots-court-allows-tahir-hussain-to-use-electric-kettle-wooden-takhat-inside-jail-on-medical-grounds-549225
 
-[Read on Telegram](https://t.me/livelawindia/119308)
-
----
-### 2026-09-08T10:32:59+00:00
-'No Injunction In Defamation Suits Unless Defence Of Truth Is Certain To Fail At Trial': Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/no-injunction-in-defamation-suits-unless-defence-of-truth-is-certain-to-fail-at-trial-calcutta-high-court-549097
-
-[Read on Telegram](https://t.me/livelawindia/119309)
+[Read on Telegram](https://t.me/livelawindia/119361)
 
 ---
-### 2026-09-08T10:36:39+00:00
-'Will Summon Secretary If No Decision Taken On Dara Singh's Remission': Supreme Court Pulls Up Odisha
-https://www.livelaw.in/top-stories/will-summon-secretary-if-no-decision-taken-on-dara-singhs-remission-supreme-court-pulls-up-odisha-549141
+### 2026-09-08T15:32:17+00:00
+False Academic Credentials: Bombay High Court Upholds Cancellation Of Admission Despite Students Reaching Final Semester, Securing Placements
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-upholds-cancellation-three-jbims-admissions-549189
 
-[Read on Telegram](https://t.me/livelawindia/119310)
-
----
-### 2026-09-08T10:47:59+00:00
-Current Duty Charge Service Can't Be Counted For Regular Service For promotion : Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/current-duty-charge-service-cant-be-counted-for-regular-service-for-promotion-ph-hc-549078
-
-[Read on Telegram](https://t.me/livelawindia/119311)
+[Read on Telegram](https://t.me/livelawindia/119362)
 
 ---
-### 2026-09-08T10:53:19+00:00
-Human Rights Courts Can Be Approached Directly Without Prior Recourse To Commission: Supreme Court Upholds Karanataka Rule
-https://www.livelaw.in/supreme-court/human-rights-courts-can-be-approached-directly-without-prior-recourse-to-commission-supreme-court-upholds-karanataka-rule-549147
+### 2026-09-08T15:32:57+00:00
+Sagar Bar Election: MP High Court Sets Aside Vote Recount Order Passed Without Hearing President-Elect
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/sagar-district-advocates-association-elections-recounting-votes-natural-justice-549173
 
-[Read on Telegram](https://t.me/livelawindia/119312)
+[Read on Telegram](https://t.me/livelawindia/119363)
 
 ---
-### 2026-09-08T10:54:39+00:00
-2026 LiveLaw (SC) 911 | Sayad Asifulla v State of Karnataka & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-911-sayad-asifulla-v-state-of-karnataka-ors-549149
+### 2026-09-08T15:42:08+00:00
+Supreme Court Upholds Asst Professor's Appointment Despite Doubts Over PhD, Orders University Probe
+https://www.livelaw.in/supreme-court/supreme-court-refuses-to-quash-asst-professors-appointment-over-fake-phd-orders-university-probe-549230
 
-[Read on Telegram](https://t.me/livelawindia/119313)
+[Read on Telegram](https://t.me/livelawindia/119364)
+
+---
+### 2026-09-08T15:44:08+00:00
+2026 LiveLaw (SC) 913 | ANNU KUMAR & ANR. VERSUS MAHARSHI DAYANAND UNIVERSITY ROHTAK & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-913-annu-kumar-anr-versus-maharshi-dayanand-university-rohtak-ors-549232
+
+[Read on Telegram](https://t.me/livelawindia/119365)
+
+---
+### 2026-09-08T15:47:48+00:00
+Convicts Must Be Informed Reasons For Rejection Of Remission, Right To Challenge Order: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/convicts-informed-reasons-rejection-remission-right-to-challenge-rejection-549176
+
+[Read on Telegram](https://t.me/livelawindia/119366)
+
+---
+### 2026-09-08T15:51:08+00:00
+Contract, Ad Hoc Or Daily-Wage Service Before Regularization Must Count For Pension Benefits : Supreme Court
+https://www.livelaw.in/supreme-court/contract-ad-hoc-or-daily-wage-service-before-regularization-must-count-for-pension-benefits-supreme-court-549234
+
+[Read on Telegram](https://t.me/livelawindia/119367)
+
+---
+### 2026-09-08T15:53:28+00:00
+2026 LiveLaw (SC) 914 | PUNJAB SCHOOL EDUCATION BOARD AND ANOTHER VERSUS SATNAM SINGH AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-914-punjab-school-education-board-and-another-versus-satnam-singh-and-others-549236
+
+[Read on Telegram](https://t.me/livelawindia/119368)
+
+---
+### 2026-09-08T16:03:08+00:00
+'Prima Facie Suicide' Doesn't End Matter, Police Must Examine Material Suggesting Abetment: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-says-police-must-examine-material-suggesting-abetment-prima-facie-suicide-does-not-close-case-549177
+
+[Read on Telegram](https://t.me/livelawindia/119369)
+
+---
+### 2026-09-08T16:05:08+00:00
+Solatium & Interest For Land Acquisition Under National Highways Act To Be Computed As Per 1894 Act For Pre-2015 Awards : Supreme Court
+https://www.livelaw.in/supreme-court/solatium-interest-for-land-acquisition-under-national-highways-act-to-be-computed-as-per-1894-act-for-pre-2015-awards-supreme-court-549238
+
+[Read on Telegram](https://t.me/livelawindia/119370)
+
+---
+### 2026-09-08T16:06:28+00:00
+2026 LiveLaw (SC) 915 | Manav Bhanot v National Highway Authority of India
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-915-manav-bhanot-v-national-highway-authority-of-india-549239
+
+[Read on Telegram](https://t.me/livelawindia/119371)
+
+---
+### 2026-09-08T16:17:48+00:00
+LiveLaw Academy Launches Capsule Course on Mergers and Acquisitions
+https://www.livelaw.in/top-stories/livelaw-academy-launches-capsule-course-on-mergers-and-acquisitions-549242
+
+[Read on Telegram](https://t.me/livelawindia/119372)
+
+---
+### 2026-09-08T16:17:58+00:00
+Long Cohabitation As Husband & Wife Raises Strong Presumption Of Valid Marriage, Heavy Burden On Party Challenging It: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-notes-long-cohabitation-raises-strong-presumption-of-legitimacy-over-illegitimacy-of-marriage-549180
+
+[Read on Telegram](https://t.me/livelawindia/119373)
 
 ---
