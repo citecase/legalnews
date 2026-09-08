@@ -1,6 +1,110 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-08T04:33:13+00:00*
+*Last Updated: 2026-09-08T11:33:20+00:00*
+
+---
+
+### 2026-09-08T11:33:20+00:00
+₹227 Cr GST Penalty Dispute| Pre-Deposit Amendment Effective Oct 1, 2025, Not Applicable to Appeals Arising From Older SCNs: Delhi High Court
+https://www.verdictum.in/delhi-high-court/rohit-garg-v-union-of-india-2026dhc7502-db-pre-deposit-amendment-effective-october-1621559
+
+[Source Link](https://t.me/verdictumlegalupdates/28979)
+
+---
+
+### 2026-09-08T11:04:00+00:00
+SC/ST Act| Special Courts Not Passive Recipients Of Admin Reports: Allahabad High Court Directs State-Wide Probe Into Repeated Claims & Misuse Of Funds
+https://www.verdictum.in/allahabad-high-court/arvind-kumar-v-state-of-up-2026ahc167807-1621557
+
+[Source Link](https://t.me/verdictumlegalupdates/28978)
+
+---
+
+### 2026-09-08T10:32:19+00:00
+Supreme Court To Hear Delhi’s Satya Niketan PG Building Collapse Case On September 10
+https://www.verdictum.in/supreme-court/hear-delhi-satya-niketan-pg-building-collapse-case-on-september-10-1621555
+
+[Source Link](https://t.me/verdictumlegalupdates/28977)
+
+---
+
+### 2026-09-08T10:01:38+00:00
+J&K Bank Is “Industry” And Its Employees Are "Workmen" Irrespective Of Income Under Industrial Disputes Act: J&K&L High Court
+https://www.verdictum.in/jammu-ladakh-high-court/adil-nisar-wani-v-ut-of-jk-jk-bank-ltd-wpc-no-27842023-jk-bank-industry-employees-workmen-1621554
+
+[Source Link](https://t.me/verdictumlegalupdates/28976)
+
+---
+
+### 2026-09-08T09:32:37+00:00
+Failure To Get Identification Of Accused Done By Victim Is Fatal Flow: Supreme Court Grants Acquittal In 5 Year Old Girl's Rape Case
+https://www.verdictum.in/supreme-court/dhanraj-v-state-of-rajasthan-2026-insc-958-identification-accused-substantive-evidence-1621553
+
+[Source Link](https://t.me/verdictumlegalupdates/28975)
+
+---
+
+### 2026-09-08T09:02:56+00:00
+Delhi High Court Pulls Up Centre For Disclosing Survivor's Identity In POSH Handbook, Seeks Names Of Officials Responsible
+https://www.verdictum.in/delhi-high-court/disclosing-survivors-identity-in-posh-handbook-1621551
+
+[Source Link](https://t.me/verdictumlegalupdates/28974)
+
+---
+
+### 2026-09-08T08:32:55+00:00
+Does Invocation Of Section 47-A Indian Stamp Act Require Wilful Undervaluation With Fraudulent Intent? Supreme Court Refers Issue To Larger Bench
+https://www.verdictum.in/supreme-court/cause-title-bharat-petroleum-corporation-limited-v-district-revenue-officer-stamps-and-another-2026-insc-963-1621549
+
+[Source Link](https://t.me/verdictumlegalupdates/28973)
+
+---
+
+### 2026-09-08T08:02:54+00:00
+Approach NGT: Supreme Court On Plea Seeking Installation Of FGD Systems In Thermal Power Plants
+https://www.verdictum.in/supreme-court/plea-seeking-installation-of-fgd-systems-in-thermal-power-plants-1621547
+
+[Source Link](https://t.me/verdictumlegalupdates/28972)
+
+---
+
+### 2026-09-08T07:32:48+00:00
+"Sar Tan Se Juda" Slogan Challenges Sovereignty & Integrity Of India: Allahabad High Court Junks Bail Application Of IMC President
+https://www.verdictum.in/allahabad-high-court/maulana-tauqeer-raza-khan-v-state-of-up-2026ahc185783-sovereignty-india-bail-imc-president-1621543
+
+[Source Link](https://t.me/verdictumlegalupdates/28971)
+
+---
+
+### 2026-09-08T07:02:27+00:00
+Land Allotment Not Necessary For Seeking Environmental Clearance To Establish Bio-Medical Waste Treatment Facility; Identification Is Enough: Supreme Court
+https://www.verdictum.in/supreme-court/ms-punahchakran-private-limited-v-indotech-waste-solution-2026-insc-956-land-allotment-not-pre-condition-1621539
+
+[Source Link](https://t.me/verdictumlegalupdates/28970)
+
+---
+
+### 2026-09-08T06:22:07+00:00
+Breaking: Will Destroy Future Of Generations: Supreme Court Stays Appointment Of Unqualified School And College Teachers
+https://www.verdictum.in/supreme-court/stays-appointment-unqualified-school-college-teachers-1621538
+
+[Source Link](https://t.me/verdictumlegalupdates/28969)
+
+---
+
+### 2026-09-08T05:36:05+00:00
+Insurance Certificates Cannot Send Claimants On A "Voyage" Into "Labyrinth" Of Company Websites: Sikkim High Court To Insurers Appearing Before MACT
+https://www.verdictum.in/sikkim-high-court/rekha-chettri-v-tata-aig-general-insurance-company-mac-app-no-20-of-2024-insurance-company-insurers-unclear-terms-policy-1621531
+
+[Source Link](https://t.me/verdictumlegalupdates/28968)
+
+---
+
+### 2026-09-08T05:06:05+00:00
+Non-Identification Of Natural Person No Ground To Quash Prosecution Against Company: Supreme Court Lays Down Three-Stage Test For Attributing Mens Rea To Corporations
+https://www.verdictum.in/supreme-court/sanofi-india-ltd-v-central-bureau-of-investigation-2026-insc-957-corporate-criminal-liability-attribution-1621528
+
+[Source Link](https://t.me/verdictumlegalupdates/28967)
 
 ---
 
@@ -57,110 +161,6 @@ A&C Act| Judge's Prior Interim Order U/S 9 No Ground For Recusal From Petition U
 https://www.verdictum.in/sikkim-high-court/state-of-sikkim-v-nimmi-oberoi-crp-no-6-of-2026-order-us-9-arbitration-act-ground-recusal-section-34-1621494
 
 [Source Link](https://t.me/verdictumlegalupdates/28960)
-
----
-
-### 2026-09-07T13:02:39+00:00
-Backward Class Commission Can’t Direct Recovery Of Money From Private Party: Chhattisgarh High Court
-https://www.verdictum.in/chhattisgarh-high-court/dushyant-prakash-nag-v-state-of-chhattisgarh-2026cghc38766-db-backward-class-commission-1621493
-
-[Source Link](https://t.me/verdictumlegalupdates/28959)
-
----
-
-### 2026-09-07T12:32:38+00:00
-Weekly Overview| Supreme Court Judgments: August 31 – September 04, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-august-31-september-04-2026-1621490
-
-[Source Link](https://t.me/verdictumlegalupdates/28958)
-
----
-
-### 2026-09-07T12:02:57+00:00
-Creating An Email ID In Another Person’s Name Prima Facie Not Identity Theft U/S 66C IT Act: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/krishna-kant-pandey-and-another-v-state-of-up-through-principal-secretary-home-lucknow-and-others-1621487
-
-[Source Link](https://t.me/verdictumlegalupdates/28957)
-
----
-
-### 2026-09-07T11:32:36+00:00
-Supreme Court Suspends Sentence Of Naga Militant In Triple Murder Case, Directs Him To Stay In Delhi
-https://www.verdictum.in/supreme-court/sentence-of-naga-militant-in-triple-murder-case-suspended-1621484
-
-[Source Link](https://t.me/verdictumlegalupdates/28956)
-
----
-
-### 2026-09-07T11:02:15+00:00
-Commissioning And Surrogate Mothers In Himachal Government Service Entitled To Maternity Leave: Himachal Pradesh High Court
-https://www.verdictum.in/himachal-high-court/dr-juhi-manhas-v-state-of-hp-ors-2026hhc32083-maternity-leave-surrogacy-1621482
-
-[Source Link](https://t.me/verdictumlegalupdates/28955)
-
----
-
-### 2026-09-07T10:32:15+00:00
-FIR Not Substantive Piece Of Evidence; May Be Used For Purpose Of Contradiction U/S 145 Evidence Act: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/nil-kumar-patel-v-munni-bai-barman-2026mphc-jbp66811-fir-sec145-evidence-act-1621481
-
-[Source Link](https://t.me/verdictumlegalupdates/28954)
-
----
-
-### 2026-09-07T10:02:54+00:00
-Gujarat High Court Grants 7-Day Bail To AAP MLA Chaitar Vasava In Extortion Case To Attend Assembly Session
-https://www.verdictum.in/gujarat-high-court/7-day-bail-to-aap-mla-chaitar-vasava-in-extortion-case-1621480
-
-[Source Link](https://t.me/verdictumlegalupdates/28953)
-
----
-
-### 2026-09-07T09:32:33+00:00
-Conviction For Attempted Rape Requires Proof Of An Act Sufficiently Proximate To Commission Of Rape: Jharkhand High Court
-https://www.verdictum.in/jharkhand-high-court/kamalendu-mahto-khokaa-v-the-state-of-jharkhand-2026jhhc26171-ipc-1621479
-
-[Source Link](https://t.me/verdictumlegalupdates/28952)
-
----
-
-### 2026-09-07T09:02:12+00:00
-Delhi High Court Directs Police To Decide Within One Week Karni Sena’s Plea To Hold Protest At Jantar Mantar
-https://www.verdictum.in/delhi-high-court/karni-senas-plea-to-hold-protest-at-jantar-mantar-1621476
-
-[Source Link](https://t.me/verdictumlegalupdates/28951)
-
----
-
-### 2026-09-07T08:32:31+00:00
-Supreme Court Directs Ghaziabad Police To Justify Digital Data Requests From X In Abhishek Upadhyay's Road Rage Case
-https://www.verdictum.in/supreme-court/directs-ghaziabad-police-justify-digital-data-requests-x-abhishek-upadhyays-road-rage-case-1621474
-
-[Source Link](https://t.me/verdictumlegalupdates/28950)
-
----
-
-### 2026-09-07T08:02:50+00:00
-They Don't Deserve To Roam On Streets: Supreme Court Seeks Response From Shiv Sena’s Ramesh Mhatre Accused Of Assaulting Doctors In Thane
-https://www.verdictum.in/supreme-court/shiv-senas-ramesh-mhatre-accused-of-assaulting-doctors-in-thane-1621470
-
-[Source Link](https://t.me/verdictumlegalupdates/28949)
-
----
-
-### 2026-09-07T07:16:30+00:00
-Supreme Court Declines Interim Relief To Trinamool Congress Over Kolkata Office Nameboard Removal
-https://www.verdictum.in/supreme-court/declines-interim-relief-trinamool-congress-over-kolkata-office-nameboard-removal-1621469
-
-[Source Link](https://t.me/verdictumlegalupdates/28948)
-
----
-
-### 2026-09-07T07:02:09+00:00
-Supreme Court Asks States To Submit Fresh Reports On Old Age Homes & Facilities For Elderly
-https://www.verdictum.in/supreme-court/states-to-submit-fresh-reports-on-old-age-homes-facilities-for-elderly-1621467
-
-[Source Link](https://t.me/verdictumlegalupdates/28947)
 
 ---
 
