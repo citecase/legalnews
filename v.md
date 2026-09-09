@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-08T16:02:38+00:00*
+*Last Updated: 2026-09-09T05:02:04+00:00*
+
+---
+
+### 2026-09-09T05:02:04+00:00
+Centre Notifies Appointment Of Advocates, Judicial Officers As Judges Of High Courts
+https://www.verdictum.in/court-updates/high-courts/appointment-of-advocates-judicial-officers-as-judges-of-high-courts-1621598
+
+[Source Link](https://t.me/verdictumlegalupdates/28990)
+
+---
+
+### 2026-09-09T04:32:33+00:00
+Pensioner’s Daughter Need Not Be Divorcee At Time Of His Death: Tripura HC Grants Relief To Municipal Employee’s Kin
+https://www.verdictum.in/tripura-high-court/smt-ujjwala-rani-paul-v-agartala-municipal-corporation-2026thc1129-db-pension-daughter-1621573
+
+[Source Link](https://t.me/verdictumlegalupdates/28989)
 
 ---
 
@@ -145,22 +161,6 @@ https://www.verdictum.in/supreme-court/plea-seeking-installation-of-fgd-systems-
 https://www.verdictum.in/allahabad-high-court/maulana-tauqeer-raza-khan-v-state-of-up-2026ahc185783-sovereignty-india-bail-imc-president-1621543
 
 [Source Link](https://t.me/verdictumlegalupdates/28971)
-
----
-
-### 2026-09-08T07:02:27+00:00
-Land Allotment Not Necessary For Seeking Environmental Clearance To Establish Bio-Medical Waste Treatment Facility; Identification Is Enough: Supreme Court
-https://www.verdictum.in/supreme-court/ms-punahchakran-private-limited-v-indotech-waste-solution-2026-insc-956-land-allotment-not-pre-condition-1621539
-
-[Source Link](https://t.me/verdictumlegalupdates/28970)
-
----
-
-### 2026-09-08T06:22:07+00:00
-Breaking: Will Destroy Future Of Generations: Supreme Court Stays Appointment Of Unqualified School And College Teachers
-https://www.verdictum.in/supreme-court/stays-appointment-unqualified-school-college-teachers-1621538
-
-[Source Link](https://t.me/verdictumlegalupdates/28969)
 
 ---
 
