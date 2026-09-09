@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-09T13:12:33+00:00*
+*Last Updated: 2026-09-09T13:47:43+00:00*
 
 ---
 
-### 2026-09-09T13:12:33+00:00
-J&K&L High Court Declines PIL Seeking AI-Powered Advocate Profiles, Case Health Cards, Delay Monitoring System
-https://www.livelaw.in/high-court/jammu-kashmir/jkl-high-court-declines-to-entertain-pil-seeking-ai-based-justice-reforms-says-petition-premature-549260
-
-[Read on Telegram](https://t.me/livelawindia/119473)
-
----
-### 2026-09-09T13:17:53+00:00
-Patna High Court Seeks Details On Two Persons Allegedly Detained By Karnataka Police In Bihar Without Local Police Intimation Or Transit Remand
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-seeks-details-two-persons-allegedly-detained-karnataka-police-549410
-
-[Read on Telegram](https://t.me/livelawindia/119474)
-
----
-### 2026-09-09T13:33:03+00:00
-CBFC Regional Officer Lacked Authority To Refuse 'Chardikala' Film Certification: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/chardikala-film-certification-cbfc-regional-officer-no-jurisdiction-549419
-
-[Read on Telegram](https://t.me/livelawindia/119475)
-
----
-### 2026-09-09T13:46:43+00:00
-Partnership Act | Outgoing Partner's Share Must Be Valued On Date Of Assessment, Not Date Of Dissolution : Supreme Court
-https://www.livelaw.in/supreme-court/partnership-act-outgoing-partners-share-must-be-valued-on-date-of-assessment-not-date-of-dissolution-supreme-court-549422
-
-[Read on Telegram](https://t.me/livelawindia/119476)
-
----
 ### 2026-09-09T13:47:43+00:00
 2026 LiveLaw (SC) 918  | V. SUMITRA REDDY & ANR. VERSUS K. RANGANADHA REDDY & ORS.
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-918-v-sumitra-reddy-anr-versus-k-ranganadha-reddy-ors-549424
@@ -142,5 +114,33 @@ Supreme Court Asks Sikkim District Judge To Approach High Court Against HC's Sho
 https://www.livelaw.in/top-stories/supreme-court-district-judge-plea-against-show-cause-notice-vindictive-actions-after-complaint-against-high-court-judge-rejected-approach-hc-549455
 
 [Read on Telegram](https://t.me/livelawindia/119492)
+
+---
+### 2026-09-09T16:19:54+00:00
+Bar Council Member Writes To Kerala HC CJ Objecting To Co-Option Of Woman BCK Member
+https://www.livelaw.in/news-updates/bar-council-member-writes-to-kerala-hc-cj-objecting-to-co-option-of-woman-bck-member-549456
+
+[Read on Telegram](https://t.me/livelawindia/119493)
+
+---
+### 2026-09-09T16:41:00+00:00
+LiveLaw Daily| Student detained| Marital rape exception| Vinesh Phogat| Delhi PG Collapse
+https://www.livelaw.in/podcast/cjp-delhi-pg-satya-niketan-vinesh-phogat-marital-rape-exception-news-clat-students-india-news-549457
+
+[Read on Telegram](https://t.me/livelawindia/119494)
+
+---
+### 2026-09-09T17:22:30+00:00
+Supreme Court Daily Round-Up : September 9, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-september-9-2026-549450
+
+[Read on Telegram](https://t.me/livelawindia/119495)
+
+---
+### 2026-09-09T17:32:30+00:00
+LiveLaw High Courts Daily Highlights: September 09, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-09-2026-549436
+
+[Read on Telegram](https://t.me/livelawindia/119496)
 
 ---
