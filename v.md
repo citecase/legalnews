@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-09T05:02:04+00:00*
+*Last Updated: 2026-09-09T11:12:55+00:00*
+
+---
+
+### 2026-09-09T11:12:55+00:00
+Satya Niketan Building Collapse: High Court Asks Govt To Reply To Plea For Hostel Facility In DU Colleges
+https://www.verdictum.in/delhi-high-court/satya-niketan-building-collapse-plea-for-hostel-facility-in-du-colleges-1621632
+
+[Source Link](https://t.me/verdictumlegalupdates/29001)
+
+---
+
+### 2026-09-09T10:33:14+00:00
+Burden Of Proof Has To Be Discharged By Petitioner While Questioning Public Office Appointment: Supreme Court On Quo Warranto Writ Petitions
+https://www.verdictum.in/supreme-court/annu-kumar-anr-v-maharshi-dayanand-university-rohtak-2026-insc-968-public-office-appointment-1621630
+
+[Source Link](https://t.me/verdictumlegalupdates/29000)
+
+---
+
+### 2026-09-09T09:42:53+00:00
+Apprehensions Of Future Resumption Can’t Defeat Subsisting Lease Rights: Bombay High Court Clears Pune Cantonment Leaseholders' Construction Near Southern Command HQ
+https://www.verdictum.in/bombay-high-court/nikhil-vithal-jhaveri-v-chief-executive-officer-pune-cantonment-board-2026bhc-as36510-db-southern-command-hq-operation-sindoor-1621626
+
+[Source Link](https://t.me/verdictumlegalupdates/28999)
+
+---
+
+### 2026-09-09T09:02:32+00:00
+Right To Receive Family Pension Can't Be Treated As Bounty: Supreme Court Holds Widow Entitled To Pension From Death Of Railway Employee Husband
+https://www.verdictum.in/supreme-court/maya-banerjee-v-union-of-india-2026-insc-959-right-individual-family-pension-1621624
+
+[Source Link](https://t.me/verdictumlegalupdates/28998)
+
+---
+
+### 2026-09-09T08:32:51+00:00
+Policy Not To Be Interpreted Like A Statute: Supreme Court Upholds NOIDA Developer's Entitlement To 'Zero Period' Benefit Over Missing Access Road
+https://www.verdictum.in/supreme-court/new-okhla-industrial-development-authority-v-ms-sunshine-trade-tower-private-limited-2026-insc-975-zero-period-noida-developers-1621622
+
+[Source Link](https://t.me/verdictumlegalupdates/28997)
+
+---
+
+### 2026-09-09T08:02:49+00:00
+"Tragicomic": Bombay High Court Slams Patent Office's 13-Year Mishandling, Restores Scientist As Rightful Applicant Over IIT Bombay
+https://www.verdictum.in/bombay-high-court/dr-tarkeshwar-chandrakant-patil-v-indian-institute-of-technology-bombay-2026bhc-os19905-1621618
+
+[Source Link](https://t.me/verdictumlegalupdates/28996)
+
+---
+
+### 2026-09-09T07:32:49+00:00
+Common Intention & Object Can Be Inferred Even If Accused Did Not Fire the Fatal Shot: Supreme Court Restores Murder Conviction
+https://www.verdictum.in/supreme-court/santosh-singh-v-the-state-of-madhya-pradesh-2026-insc-972-common-intention-fatal-shot-grain-from-the-chaff-1621614
+
+[Source Link](https://t.me/verdictumlegalupdates/28995)
+
+---
+
+### 2026-09-09T07:02:48+00:00
+Supreme Court Refuses Urgent Listing Of Contractor's Bail Plea Arrested In Rajasthan High Court Jodhpur Building Construction Irregularities
+https://www.verdictum.in/supreme-court/refuses-urgent-listing-contractor-bail-plea-rajasthan-high-court-jodhpur-building-safety-matter-1621611
+
+[Source Link](https://t.me/verdictumlegalupdates/28994)
+
+---
+
+### 2026-09-09T06:32:27+00:00
+Merely Because External Injury Is Not Found, It Can’t Be Presumed That No Rape Was Committed: Madras High Court Upholds Rape Conviction
+https://www.verdictum.in/madras-high-court/t-thanaraj-v-state-2026mhc3635-external-injury-act-rape-accused-1621606
+
+[Source Link](https://t.me/verdictumlegalupdates/28993)
+
+---
+
+### 2026-09-09T05:49:26+00:00
+How Magistrate Can Dare To Violate That Order: Supreme Court Says After DM Of Gautam Buddh Nagar Issued Contempt Notice To Student Protester
+https://www.verdictum.in/supreme-court/remarks-after-gautam-buddh-nagar-issued-contempt-notice-to-student-protester-1621603
+
+[Source Link](https://t.me/verdictumlegalupdates/28992)
+
+---
+
+### 2026-09-09T05:35:45+00:00
+Whether Particular Claim Falls Outside Excepted Matters Clause Of Work Contract Is Matter Within Arbitral Tribunal’s Competence U/S.16 A&C Act: Supreme Court
+https://www.verdictum.in/supreme-court/ms-gvv-constructions-private-limited-v-the-union-of-india-2026-insc-976-claim-arbitral-tribunal-1621600
+
+[Source Link](https://t.me/verdictumlegalupdates/28991)
 
 ---
 
@@ -73,94 +161,6 @@ https://www.verdictum.in/delhi-high-court/v-v-state-2026dhc7579-release-in-2009-
 https://www.verdictum.in/chhattisgarh-high-court/na-v-union-of-india-wpc-no-795-of-2022-idara-e-shariyas-talaq-declaration-marital-status-talaq-e-hasan-1621562
 
 [Source Link](https://t.me/verdictumlegalupdates/28982)
-
----
-
-### 2026-09-08T12:32:22+00:00
-Can't Keep Lingering Like This: Supreme Court Asks Odisha To Decide Dara Singh's Remission Plea
-https://www.verdictum.in/supreme-court/odisha-to-decide-dara-singhs-remission-plea-1621561
-
-[Source Link](https://t.me/verdictumlegalupdates/28981)
-
----
-
-### 2026-09-08T12:03:21+00:00
-Another Device To Delay Possesion & Repayment: Supreme Court Rejects Proposal Of Parsvnath Developers For Homebuyers
-https://www.verdictum.in/supreme-court/proposal-of-parsvnath-developers-for-homebuyers-rejected-by-sc-1621560
-
-[Source Link](https://t.me/verdictumlegalupdates/28980)
-
----
-
-### 2026-09-08T11:33:20+00:00
-₹227 Cr GST Penalty Dispute| Pre-Deposit Amendment Effective Oct 1, 2025, Not Applicable to Appeals Arising From Older SCNs: Delhi High Court
-https://www.verdictum.in/delhi-high-court/rohit-garg-v-union-of-india-2026dhc7502-db-pre-deposit-amendment-effective-october-1621559
-
-[Source Link](https://t.me/verdictumlegalupdates/28979)
-
----
-
-### 2026-09-08T11:04:00+00:00
-SC/ST Act| Special Courts Not Passive Recipients Of Admin Reports: Allahabad High Court Directs State-Wide Probe Into Repeated Claims & Misuse Of Funds
-https://www.verdictum.in/allahabad-high-court/arvind-kumar-v-state-of-up-2026ahc167807-1621557
-
-[Source Link](https://t.me/verdictumlegalupdates/28978)
-
----
-
-### 2026-09-08T10:32:19+00:00
-Supreme Court To Hear Delhi’s Satya Niketan PG Building Collapse Case On September 10
-https://www.verdictum.in/supreme-court/hear-delhi-satya-niketan-pg-building-collapse-case-on-september-10-1621555
-
-[Source Link](https://t.me/verdictumlegalupdates/28977)
-
----
-
-### 2026-09-08T10:01:38+00:00
-J&K Bank Is “Industry” And Its Employees Are "Workmen" Irrespective Of Income Under Industrial Disputes Act: J&K&L High Court
-https://www.verdictum.in/jammu-ladakh-high-court/adil-nisar-wani-v-ut-of-jk-jk-bank-ltd-wpc-no-27842023-jk-bank-industry-employees-workmen-1621554
-
-[Source Link](https://t.me/verdictumlegalupdates/28976)
-
----
-
-### 2026-09-08T09:32:37+00:00
-Failure To Get Identification Of Accused Done By Victim Is Fatal Flow: Supreme Court Grants Acquittal In 5 Year Old Girl's Rape Case
-https://www.verdictum.in/supreme-court/dhanraj-v-state-of-rajasthan-2026-insc-958-identification-accused-substantive-evidence-1621553
-
-[Source Link](https://t.me/verdictumlegalupdates/28975)
-
----
-
-### 2026-09-08T09:02:56+00:00
-Delhi High Court Pulls Up Centre For Disclosing Survivor's Identity In POSH Handbook, Seeks Names Of Officials Responsible
-https://www.verdictum.in/delhi-high-court/disclosing-survivors-identity-in-posh-handbook-1621551
-
-[Source Link](https://t.me/verdictumlegalupdates/28974)
-
----
-
-### 2026-09-08T08:32:55+00:00
-Does Invocation Of Section 47-A Indian Stamp Act Require Wilful Undervaluation With Fraudulent Intent? Supreme Court Refers Issue To Larger Bench
-https://www.verdictum.in/supreme-court/cause-title-bharat-petroleum-corporation-limited-v-district-revenue-officer-stamps-and-another-2026-insc-963-1621549
-
-[Source Link](https://t.me/verdictumlegalupdates/28973)
-
----
-
-### 2026-09-08T08:02:54+00:00
-Approach NGT: Supreme Court On Plea Seeking Installation Of FGD Systems In Thermal Power Plants
-https://www.verdictum.in/supreme-court/plea-seeking-installation-of-fgd-systems-in-thermal-power-plants-1621547
-
-[Source Link](https://t.me/verdictumlegalupdates/28972)
-
----
-
-### 2026-09-08T07:32:48+00:00
-"Sar Tan Se Juda" Slogan Challenges Sovereignty & Integrity Of India: Allahabad High Court Junks Bail Application Of IMC President
-https://www.verdictum.in/allahabad-high-court/maulana-tauqeer-raza-khan-v-state-of-up-2026ahc185783-sovereignty-india-bail-imc-president-1621543
-
-[Source Link](https://t.me/verdictumlegalupdates/28971)
 
 ---
 
