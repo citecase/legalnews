@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-09T11:12:55+00:00*
+*Last Updated: 2026-09-09T16:03:01+00:00*
+
+---
+
+### 2026-09-09T16:03:01+00:00
+Legal Officer Vacancy At Zilla Parishad Dhule
+https://www.verdictum.in/job-updates/zilla-parishad-1621642
+
+[Source Link](https://t.me/verdictumlegalupdates/29008)
+
+---
+
+### 2026-09-09T15:13:20+00:00
+It Is Creation Of An Offence Because Boundaries Of Culpability Are Being Changed: Supreme Court To Begin Hearing Of Pleas Seeking Criminalization Of Marital Rape
+https://www.verdictum.in/supreme-court/final-hearing-pleas-seeking-criminalization-marital-rape-1621644
+
+[Source Link](https://t.me/verdictumlegalupdates/29007)
+
+---
+
+### 2026-09-09T14:32:20+00:00
+Personal Guarantee Not Isolated Contract, Forms Composite Transaction: Supreme Court Holds Guarantor Bound By Arbitration Clause In Loan Agreement
+https://www.verdictum.in/supreme-court/national-skill-development-corporation-v-surya-wires-private-limited-2026-insc-977-guarantor-bound-arbitration-clause-loan-agreement-1621640
+
+[Source Link](https://t.me/verdictumlegalupdates/29006)
+
+---
+
+### 2026-09-09T13:52:59+00:00
+Services Rendered On Contract/Ad Hoc/Daily Wage Basis Before Regularization Must Be Computed As Qualifying Service For Retiral & Pension Benefits: Supreme Court
+https://www.verdictum.in/supreme-court/punjab-school-education-board-v-satnam-singh-and-others-2026-insc-965-regularization-pension-1621639
+
+[Source Link](https://t.me/verdictumlegalupdates/29005)
+
+---
+
+### 2026-09-09T13:12:58+00:00
+National Highway Act| If Determination Of Compensation Is Made Before 01.01.2015, Solatium Payable Under Land Acquisition 1894: Supreme Court Clarifies Compensation Regime
+https://www.verdictum.in/supreme-court/manav-bhanot-v-national-highway-authority-of-india-2026-insc-973-january-01-2015-solatium-payable-act-of-1894-1621638
+
+[Source Link](https://t.me/verdictumlegalupdates/29004)
+
+---
+
+### 2026-09-09T12:32:57+00:00
+Duty Of Enforcement Agencies To Ensure Compliance With Law On Wearing Seat Belts: Supreme Court
+https://www.verdictum.in/supreme-court/duty-enforcement-agencies-compliance-law-wearing-seat-belts-1621634
+
+[Source Link](https://t.me/verdictumlegalupdates/29003)
+
+---
+
+### 2026-09-09T11:52:36+00:00
+Supreme Court Slams Yatharth Hospital For Not Replying To Contempt Notice Over Preparation Of SOP To Provide Emergency Treatment To EWS Patients
+https://www.verdictum.in/supreme-court/contempt-notice-preparation-sop-emergency-treatment-ews-patients-yatharth-hospital-1621633
+
+[Source Link](https://t.me/verdictumlegalupdates/29002)
 
 ---
 
@@ -105,62 +161,6 @@ Pensioner’s Daughter Need Not Be Divorcee At Time Of His Death: Tripura HC Gra
 https://www.verdictum.in/tripura-high-court/smt-ujjwala-rani-paul-v-agartala-municipal-corporation-2026thc1129-db-pension-daughter-1621573
 
 [Source Link](https://t.me/verdictumlegalupdates/28989)
-
----
-
-### 2026-09-08T16:02:38+00:00
-Gujarat Police Recruitment Board (GPRB) Invites Applications For Post Of Legal Executive
-https://www.verdictum.in/job-updates/gujarat-police-recruitment-board-1621564
-
-[Source Link](https://t.me/verdictumlegalupdates/28988)
-
----
-
-### 2026-09-08T15:31:57+00:00
-Accidental Exposure Of Private Parts To A Woman Cannot Amount To Sexual Harassment U/S 75(2) BNS: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/anil-rohan-menezes-v-state-of-karnataka-and-another-2026khc47384-1621576
-
-[Source Link](https://t.me/verdictumlegalupdates/28987)
-
----
-
-### 2026-09-08T15:02:16+00:00
-Daughter-In-Law Not ‘Child’ Under Senior Citizens Act; Maintenance Claim Against Student Granddaughter Unreasonable: Kerala High Court
-https://www.verdictum.in/kerala-high-court/k-thankamma-v-moljimol-ks-mol-g-mol-ks-and-others-2026ker64761-1621570
-
-[Source Link](https://t.me/verdictumlegalupdates/28986)
-
----
-
-### 2026-09-08T14:32:55+00:00
-Habeas Corpus Petition For Custody Can't Be Dismissed Solely Due To Alternative Remedy Before Family Court: Supreme Court
-https://www.verdictum.in/supreme-court/habeas-corpus-petition-cannot-dimsiss-solely-alternative-remedy-family-courts-act-1621568
-
-[Source Link](https://t.me/verdictumlegalupdates/28985)
-
----
-
-### 2026-09-08T14:02:55+00:00
-Married Woman Accompanying Another Man To Hotel Can’t Claim Sexual Relationship Was Induced By False Promise To Marry: Kerala High Court
-https://www.verdictum.in/kerala-high-court/habibur-rahman-v-state-of-kerala-2026ker67015-married-woman-false-promise-to-marry-rape-1621567
-
-[Source Link](https://t.me/verdictumlegalupdates/28984)
-
----
-
-### 2026-09-08T13:32:14+00:00
-There Was No Misuse Of Power, Wealth, Status Or Age: Delhi High Court Directs Release Of Man In 2009 Minor's Rape Case, Cites Absence Of "Force Or Coercion"
-https://www.verdictum.in/delhi-high-court/v-v-state-2026dhc7579-release-in-2009-rape-case-with-minor-tattoo-on-her-chest-trip-to-manali-1621563
-
-[Source Link](https://t.me/verdictumlegalupdates/28983)
-
----
-
-### 2026-09-08T13:03:03+00:00
-"Sharia Court" Has No Jurisdiction To Adjudicate Marital Status, Its Orders Not Binding Or Enforceable: Chhattisgarh High Court
-https://www.verdictum.in/chhattisgarh-high-court/na-v-union-of-india-wpc-no-795-of-2022-idara-e-shariyas-talaq-declaration-marital-status-talaq-e-hasan-1621562
-
-[Source Link](https://t.me/verdictumlegalupdates/28982)
 
 ---
 
