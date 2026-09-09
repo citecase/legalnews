@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-08T14:57:57+00:00*
+*Last Updated: 2026-09-08T15:42:08+00:00*
 
 ---
 
-### 2026-09-08T14:57:57+00:00
-Justice Rohit Kapoor Appointed As Permanent Judge Of Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/justice-rohit-kapoor-appointed-as-permanent-judge-of-punjab-haryana-high-court-549219
-
-[Read on Telegram](https://t.me/livelawindia/119357)
-
----
-### 2026-09-08T15:02:17+00:00
-P&H High Court Rejects 'Negative Fee Waiver', Says Candidates Can't Be Made Ineligible For Paying Application Fee Despite Exemption
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/doctrine-of-negative-fee-waiver-paying-fee-despite-exemption-549171
-
-[Read on Telegram](https://t.me/livelawindia/119358)
-
----
-### 2026-09-08T15:17:37+00:00
-Freebies To Doctors | Supreme Court Reserves Order In Plea Seeking Regulation Of Pharmaceutical Marketing Practices
-https://www.livelaw.in/top-stories/freebies-to-doctors-supreme-court-reserves-order-in-plea-seeking-regulation-of-pharmaceutical-marketing-practices-549223
-
-[Read on Telegram](https://t.me/livelawindia/119359)
-
----
-### 2026-09-08T15:17:57+00:00
-Delhi High Court Slams Railways For Making Low-Paid Commission Vendors Fight For Decades, Upholds Regularisation
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-slams-railways-for-making-low-paid-commission-vendors-fight-for-decades-upholds-regularisation-549172
-
-[Read on Telegram](https://t.me/livelawindia/119360)
-
----
-### 2026-09-08T15:24:37+00:00
-Delhi Riots: Court Allows Tahir Hussain To Use Electric Kettle, Wooden Takhat Inside Jail On Medical Grounds
-https://www.livelaw.in/news-updates/delhi-riots-court-allows-tahir-hussain-to-use-electric-kettle-wooden-takhat-inside-jail-on-medical-grounds-549225
-
-[Read on Telegram](https://t.me/livelawindia/119361)
-
----
-### 2026-09-08T15:32:17+00:00
-False Academic Credentials: Bombay High Court Upholds Cancellation Of Admission Despite Students Reaching Final Semester, Securing Placements
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-upholds-cancellation-three-jbims-admissions-549189
-
-[Read on Telegram](https://t.me/livelawindia/119362)
-
----
-### 2026-09-08T15:32:57+00:00
-Sagar Bar Election: MP High Court Sets Aside Vote Recount Order Passed Without Hearing President-Elect
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/sagar-district-advocates-association-elections-recounting-votes-natural-justice-549173
-
-[Read on Telegram](https://t.me/livelawindia/119363)
-
----
 ### 2026-09-08T15:42:08+00:00
 Supreme Court Upholds Asst Professor's Appointment Despite Doubts Over PhD, Orders University Probe
 https://www.livelaw.in/supreme-court/supreme-court-refuses-to-quash-asst-professors-appointment-over-fake-phd-orders-university-probe-549230
@@ -142,5 +93,54 @@ LiveLaw High Courts Daily Highlights: September 08, 2026
 https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-08-2026-549235
 
 [Read on Telegram](https://t.me/livelawindia/119376)
+
+---
+### 2026-09-09T03:06:48+00:00
+Trivial Domicile Error Without Undue Advantage Cannot Justify Cancelling Appointment: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/trivial-domicile-error-without-undue-advantage-cannot-justify-cancelling-appointment-gauhati-hc-549243
+
+[Read on Telegram](https://t.me/livelawindia/119377)
+
+---
+### 2026-09-09T03:19:28+00:00
+"Indicative Delivery Date" Can't Justify Indefinite Delay After Full Payment: Kurnool Consumer Commission Holds  OLA Liable
+https://www.livelaw.in/consumer-cases/indicative-delivery-date-cant-justify-indefinite-delay-after-full-payment-kurnool-consumer-commission-holds-ola-liable-549244
+
+[Read on Telegram](https://t.me/livelawindia/119378)
+
+---
+### 2026-09-09T03:32:08+00:00
+'Suppression Of Material Fact': AP High Court Upholds Dismissal Of Plea Challenging Govt Hospital Diet Tender
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-rejects-diet-supply-tender-challenge-notes-suppression-earlier-writ-549132
+
+[Read on Telegram](https://t.me/livelawindia/119379)
+
+---
+### 2026-09-09T03:47:28+00:00
+LiveLaw Rajasthan High Court Weekly Round-Up: August 31 To September 06, 2026
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-weekly-roundup-549226
+
+[Read on Telegram](https://t.me/livelawindia/119380)
+
+---
+### 2026-09-09T03:51:08+00:00
+Legal Executive Vacancy At Gujarat Police Recruitment Board
+https://www.livelaw.in/job-updates/legal-executive-vacancy-at-gujarat-police-recruitment-board-549254
+
+[Read on Telegram](https://t.me/livelawindia/119381)
+
+---
+### 2026-09-09T03:52:08+00:00
+Officer (Legal) Vacancy At Cement Corporation Of India Limited
+https://www.livelaw.in/job-updates/officer-legal-vacancy-at-cement-corporation-of-india-limited-549256
+
+[Read on Telegram](https://t.me/livelawindia/119382)
+
+---
+### 2026-09-09T03:53:28+00:00
+'Aggressive, High-Pitched Tone Bordering On Shouting': Bombay High Court Issues Contempt Notice To Law Dept Secretary Over Court Conduct
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-initiates-contempt-against-law-department-secretary-549259
+
+[Read on Telegram](https://t.me/livelawindia/119383)
 
 ---
