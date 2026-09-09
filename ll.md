@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-08T15:42:08+00:00*
+*Last Updated: 2026-09-09T08:53:01+00:00*
 
 ---
 
-### 2026-09-08T15:42:08+00:00
-Supreme Court Upholds Asst Professor's Appointment Despite Doubts Over PhD, Orders University Probe
-https://www.livelaw.in/supreme-court/supreme-court-refuses-to-quash-asst-professors-appointment-over-fake-phd-orders-university-probe-549230
+### 2026-09-09T08:53:01+00:00
+Unemployment, Poor Business, Loan Repayments Can't Justify Failure To Pay Wife's Maintenance: HP High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-financial-constraints-outstanding-loans-escape-route-maintenance-liability-549250
 
-[Read on Telegram](https://t.me/livelawindia/119364)
-
----
-### 2026-09-08T15:44:08+00:00
-2026 LiveLaw (SC) 913 | ANNU KUMAR & ANR. VERSUS MAHARSHI DAYANAND UNIVERSITY ROHTAK & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-913-annu-kumar-anr-versus-maharshi-dayanand-university-rohtak-ors-549232
-
-[Read on Telegram](https://t.me/livelawindia/119365)
+[Read on Telegram](https://t.me/livelawindia/119434)
 
 ---
-### 2026-09-08T15:47:48+00:00
-Convicts Must Be Informed Reasons For Rejection Of Remission, Right To Challenge Order: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/convicts-informed-reasons-rejection-remission-right-to-challenge-rejection-549176
+### 2026-09-09T09:02:41+00:00
+Karnataka High Court Issues Directions For Financial Management Of Hindu Temples; Mandates Real-Time Monitoring, Tamper-Proof Receipts
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-issues-protocol-directions-managing-finances-hindu-temples-549342
 
-[Read on Telegram](https://t.me/livelawindia/119366)
-
----
-### 2026-09-08T15:51:08+00:00
-Contract, Ad Hoc Or Daily-Wage Service Before Regularization Must Count For Pension Benefits : Supreme Court
-https://www.livelaw.in/supreme-court/contract-ad-hoc-or-daily-wage-service-before-regularization-must-count-for-pension-benefits-supreme-court-549234
-
-[Read on Telegram](https://t.me/livelawindia/119367)
+[Read on Telegram](https://t.me/livelawindia/119435)
 
 ---
-### 2026-09-08T15:53:28+00:00
-2026 LiveLaw (SC) 914 | PUNJAB SCHOOL EDUCATION BOARD AND ANOTHER VERSUS SATNAM SINGH AND OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-914-punjab-school-education-board-and-another-versus-satnam-singh-and-others-549236
+### 2026-09-09T09:18:01+00:00
+'Harsh Condition': MP High Court Strikes Down 70%-80%-90% Pay Scheme For Class III, IV Employees During Probation
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-strikes-down-70-80-90-probationary-pay-scheme-on-class-iii-and-iv-employees-549345
 
-[Read on Telegram](https://t.me/livelawindia/119368)
-
----
-### 2026-09-08T16:03:08+00:00
-'Prima Facie Suicide' Doesn't End Matter, Police Must Examine Material Suggesting Abetment: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-says-police-must-examine-material-suggesting-abetment-prima-facie-suicide-does-not-close-case-549177
-
-[Read on Telegram](https://t.me/livelawindia/119369)
+[Read on Telegram](https://t.me/livelawindia/119436)
 
 ---
-### 2026-09-08T16:05:08+00:00
-Solatium & Interest For Land Acquisition Under National Highways Act To Be Computed As Per 1894 Act For Pre-2015 Awards : Supreme Court
-https://www.livelaw.in/supreme-court/solatium-interest-for-land-acquisition-under-national-highways-act-to-be-computed-as-per-1894-act-for-pre-2015-awards-supreme-court-549238
+### 2026-09-09T09:24:11+00:00
+'All Matters Treated Equally': Supreme Court To Complainant Alleging Delay In Hearing Rahul Gandhi Matter
+https://www.livelaw.in/top-stories/supreme-court-on-claim-that-rahul-gandhis-matter-is-not-listed-after-he-got-interim-relief-549350
 
-[Read on Telegram](https://t.me/livelawindia/119370)
-
----
-### 2026-09-08T16:06:28+00:00
-2026 LiveLaw (SC) 915 | Manav Bhanot v National Highway Authority of India
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-915-manav-bhanot-v-national-highway-authority-of-india-549239
-
-[Read on Telegram](https://t.me/livelawindia/119371)
+[Read on Telegram](https://t.me/livelawindia/119437)
 
 ---
-### 2026-09-08T16:17:48+00:00
-LiveLaw Academy Launches Capsule Course on Mergers and Acquisitions
-https://www.livelaw.in/top-stories/livelaw-academy-launches-capsule-course-on-mergers-and-acquisitions-549242
+### 2026-09-09T09:32:31+00:00
+Was She “Victim” Enough? Perfect Victim Myth In Indian Rape Trials
+https://www.livelaw.in/articles/perfect-victim-myth-indian-rape-trials-549338
 
-[Read on Telegram](https://t.me/livelawindia/119372)
-
----
-### 2026-09-08T16:17:58+00:00
-Long Cohabitation As Husband & Wife Raises Strong Presumption Of Valid Marriage, Heavy Burden On Party Challenging It: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-notes-long-cohabitation-raises-strong-presumption-of-legitimacy-over-illegitimacy-of-marriage-549180
-
-[Read on Telegram](https://t.me/livelawindia/119373)
+[Read on Telegram](https://t.me/livelawindia/119438)
 
 ---
-### 2026-09-08T16:32:38+00:00
-Revisional Authority Can't Set Aside Final Order Passed By Coordinate Revisional Authority In Separate Revision: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-revisional-authority-set-aside-final-judgment-passed-coordinate-revisional-authority-549181
+### 2026-09-09T09:32:51+00:00
+Bombay High Court Quashes Govt Resolution Reducing Age Limit For Anganwadi Sevikas' Promotion To Supervisor; Restores 55-Yr Limit
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-quashes-government-resolution-reducing-age-limit-anganwadi-sevikas-promotion-549257
 
-[Read on Telegram](https://t.me/livelawindia/119374)
-
----
-### 2026-09-08T17:22:48+00:00
-Supreme Court Daily Round-Up: September 8, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-september-8-2026-549240
-
-[Read on Telegram](https://t.me/livelawindia/119375)
+[Read on Telegram](https://t.me/livelawindia/119439)
 
 ---
-### 2026-09-08T17:32:48+00:00
-LiveLaw High Courts Daily Highlights: September 08, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-08-2026-549235
+### 2026-09-09T09:37:11+00:00
+Calcutta High Court Grants Bail To Man Accused Of Extorting Over ₹21 Crore By Posing As ED Officer
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-grants-bail-to-man-accused-of-extorting-over-21-crore-by-posing-as-ed-officer-549354
 
-[Read on Telegram](https://t.me/livelawindia/119376)
-
----
-### 2026-09-09T03:06:48+00:00
-Trivial Domicile Error Without Undue Advantage Cannot Justify Cancelling Appointment: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/trivial-domicile-error-without-undue-advantage-cannot-justify-cancelling-appointment-gauhati-hc-549243
-
-[Read on Telegram](https://t.me/livelawindia/119377)
+[Read on Telegram](https://t.me/livelawindia/119440)
 
 ---
-### 2026-09-09T03:19:28+00:00
-"Indicative Delivery Date" Can't Justify Indefinite Delay After Full Payment: Kurnool Consumer Commission Holds  OLA Liable
-https://www.livelaw.in/consumer-cases/indicative-delivery-date-cant-justify-indefinite-delay-after-full-payment-kurnool-consumer-commission-holds-ola-liable-549244
+### 2026-09-09T09:47:51+00:00
+Forest Official Assault Case: Gujarat High Court Grants 7-Day Temporary Bail To AAP MLA Chaitar Vasava To Attend Assembly Session
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-temporary-bail-aap-mla-chaitar-vasava-assembly-session-549347
 
-[Read on Telegram](https://t.me/livelawindia/119378)
-
----
-### 2026-09-09T03:32:08+00:00
-'Suppression Of Material Fact': AP High Court Upholds Dismissal Of Plea Challenging Govt Hospital Diet Tender
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-rejects-diet-supply-tender-challenge-notes-suppression-earlier-writ-549132
-
-[Read on Telegram](https://t.me/livelawindia/119379)
+[Read on Telegram](https://t.me/livelawindia/119441)
 
 ---
-### 2026-09-09T03:47:28+00:00
-LiveLaw Rajasthan High Court Weekly Round-Up: August 31 To September 06, 2026
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-weekly-roundup-549226
+### 2026-09-09T09:51:11+00:00
+'Will Lord Be Pleased By This?' : Supreme Court To Jain Sects Litigating Over Mahaveer Ji Jain Temple Administration
+https://www.livelaw.in/top-stories/will-lord-be-pleased-by-this-supreme-court-to-jain-sects-litigating-over-mahaveer-ji-jain-temple-administration-549357
 
-[Read on Telegram](https://t.me/livelawindia/119380)
-
----
-### 2026-09-09T03:51:08+00:00
-Legal Executive Vacancy At Gujarat Police Recruitment Board
-https://www.livelaw.in/job-updates/legal-executive-vacancy-at-gujarat-police-recruitment-board-549254
-
-[Read on Telegram](https://t.me/livelawindia/119381)
+[Read on Telegram](https://t.me/livelawindia/119442)
 
 ---
-### 2026-09-09T03:52:08+00:00
-Officer (Legal) Vacancy At Cement Corporation Of India Limited
-https://www.livelaw.in/job-updates/officer-legal-vacancy-at-cement-corporation-of-india-limited-549256
+### 2026-09-09T09:53:51+00:00
+Delhi High Court Seeks WFI's Stand On Vinesh Phogat's Plea To Participate In World Wrestling Championship Selection Trials
+https://www.livelaw.in/high-court/delhi-high-court/wrestling-federation-stand-vinesh-phogat-participate-world-championship-selection-trials-549360
 
-[Read on Telegram](https://t.me/livelawindia/119382)
+[Read on Telegram](https://t.me/livelawindia/119443)
 
 ---
-### 2026-09-09T03:53:28+00:00
-'Aggressive, High-Pitched Tone Bordering On Shouting': Bombay High Court Issues Contempt Notice To Law Dept Secretary Over Court Conduct
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-initiates-contempt-against-law-department-secretary-549259
+### 2026-09-09T10:02:11+00:00
+'No Religious Institution Can Assume Authority Of Court': Chhattisgarh High Court On Idara-E-Shariya's Divorce Order
+https://www.livelaw.in/high-court/chhattisgarh-high-court/private-sharia-body-cannot-determine-marital-status-549255
 
-[Read on Telegram](https://t.me/livelawindia/119383)
+[Read on Telegram](https://t.me/livelawindia/119444)
+
+---
+### 2026-09-09T10:02:51+00:00
+Departmental Exoneration No Ground For Discharge: Kerala High Court Permits Trial In 2013 Gold Smuggling Case Against Customs Official
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-2013-gold-smuggling-case-discharge-549353
+
+[Read on Telegram](https://t.me/livelawindia/119445)
+
+---
+### 2026-09-09T10:04:52+00:00
+Supreme Court Allows Withdrawal Of 63 Himachal Pradesh MP/MLA Cases Linked To Covid-Era Protests
+https://www.livelaw.in/top-stories/supreme-court-allows-withdrawal-of-63-himachal-pradesh-mpmla-cases-linked-to-covid-era-protests-549365
+
+[Read on Telegram](https://t.me/livelawindia/119446)
+
+---
+### 2026-09-09T10:22:22+00:00
+Passport Authority Cannot Deny Date Of Birth Correction To Minor, Ignoring Corrected Records: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/passport-authority-cannot-deny-dob-correction-to-minor-ignoring-corrected-records-jk-high-court-549253
+
+[Read on Telegram](https://t.me/livelawindia/119447)
+
+---
+### 2026-09-09T10:25:02+00:00
+PIL In Delhi High Court Seeks Expert Panel To Examine 'Addiction-Causing' Social Media Design Including Likes, Reels
+https://www.livelaw.in/high-court/delhi-high-court/pil-in-delhi-high-court-seeks-expert-panel-to-examine-addiction-causing-social-media-design-including-likes-reels-549369
+
+[Read on Telegram](https://t.me/livelawindia/119448)
+
+---
+### 2026-09-09T10:32:22+00:00
+Madras High Court Acquits Death Row Prisoner Accused Of Sexually Abusing 5 Minors, Says 'Draconian' POCSO Provisions Weaponised
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-pocso-death-penalty-set-aside-accused-sexually-assaulted-5-minors-549370
+
+[Read on Telegram](https://t.me/livelawindia/119449)
+
+---
+### 2026-09-09T10:43:42+00:00
+Prosecution Story Of Taking Dead Body To Police Station Suspicious : Supreme Court Acquits Two Murder Convicts
+https://www.livelaw.in/supreme-court/supreme-court-taking-dead-body-police-station-instead-hospital-suspicious-circumstance-549373
+
+[Read on Telegram](https://t.me/livelawindia/119450)
+
+---
+### 2026-09-09T10:45:02+00:00
+2026 LiveLaw (SC) 917 | Ashok Upadhyay & Anr v State of of Bihar
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-917-ashok-upadhyay-anr-v-state-of-of-bihar-549374
+
+[Read on Telegram](https://t.me/livelawindia/119451)
+
+---
+### 2026-09-09T10:47:42+00:00
+Mere Registration Of Criminal Case Does Not Mechanically Disqualify A Candidate From Police Service: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/registration-of-criminal-case-doesnt-disqualify-candidate-police-service-549375
+
+[Read on Telegram](https://t.me/livelawindia/119452)
+
+---
+### 2026-09-09T10:53:02+00:00
+Adult Woman Free To Become Jain Saadhvi Despite Parents' Objection: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/adult-woman-become-jain-saadhvi-despite-parents-objection-549377
+
+[Read on Telegram](https://t.me/livelawindia/119453)
 
 ---
