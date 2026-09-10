@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-10T11:33:14+00:00*
+*Last Updated: 2026-09-10T16:03:03+00:00*
+
+---
+
+### 2026-09-10T16:03:03+00:00
+Legal Retainer Vacancy At Bengal Chemicals & Pharmaceuticals
+https://www.verdictum.in/job-updates/bengal-chemicals-pharmaceuticals-1621712
+
+[Source Link](https://t.me/verdictumlegalupdates/29029)
+
+---
+
+### 2026-09-10T15:33:02+00:00
+Supreme Court Collegium Recommends Elevation Of Fifteen Judicial Officers As Judges Of Four High Courts
+https://www.verdictum.in/supreme-court/supreme-court-collegium-recomendation-judicial-officers-high-courts-1621723
+
+[Source Link](https://t.me/verdictumlegalupdates/29028)
+
+---
+
+### 2026-09-10T15:02:41+00:00
+Tantamounts To Killing The Messenger: Allahabad High Court Stays FIR Against Journalist Allegedly For Exposing School Lapses
+https://www.verdictum.in/allahabad-high-court/stays-fir-against-journalist-for-exposing-school-lapses-1621718
+
+[Source Link](https://t.me/verdictumlegalupdates/29027)
+
+---
+
+### 2026-09-10T14:32:20+00:00
+Mere Release Of Escrow Doesn’t Create Automatic Statutory Bar To Proceedings Under PFUTP Regulations: Supreme Court
+https://www.verdictum.in/supreme-court/securities-and-exchange-board-of-india-v-vedanta-limited-ors-2026-insc-978-release-escrow-1621709
+
+[Source Link](https://t.me/verdictumlegalupdates/29026)
+
+---
+
+### 2026-09-10T14:02:59+00:00
+Foreign Driving Licence Valid Does Not Automatically Confer Right To Drive In India: Punjab & Haryana High Court
+https://www.verdictum.in/punjab-and-haryana-high-court/sameer-gaba-v-priyanka-2026phhc124793-foreign-driving-licence-valid-abroad-not-valid-india-1621707
+
+[Source Link](https://t.me/verdictumlegalupdates/29025)
+
+---
+
+### 2026-09-10T13:32:38+00:00
+Leading Voluminous Evidence Often Unnecessary: Supreme Court Raises Concern Over Long Pendency Of Corruption Cases
+https://www.verdictum.in/supreme-court/khanindra-kr-dutta-v-central-bureau-of-investigation-2026-insc-970-voluminous-evidence-corruption-1621706
+
+[Source Link](https://t.me/verdictumlegalupdates/29024)
+
+---
+
+### 2026-09-10T13:02:57+00:00
+Judicial Officer Cannot Shout At Judges In Court: Supreme Court Refuses To Stay Contempt Proceedings Initiated By Bombay High Court
+https://www.verdictum.in/supreme-court/contempt-proceedings-judicial-officer-shout-judge-1621705
+
+[Source Link](https://t.me/verdictumlegalupdates/29023)
+
+---
+
+### 2026-09-10T12:32:56+00:00
+Nobody Can Browbeat Victim: Supreme Court Seeks Report On Minor Girl Protestor’s Allegations
+https://www.verdictum.in/supreme-court/report-on-minor-girl-protestors-allegations-1621704
+
+[Source Link](https://t.me/verdictumlegalupdates/29022)
+
+---
+
+### 2026-09-10T12:02:35+00:00
+Supreme Court Agrees To Hear Plea Seeking National Policy For Welfare Of Private School Teachers
+https://www.verdictum.in/supreme-court/plea-seeking-national-policy-for-welfare-of-private-school-teachers-1621703
+
+[Source Link](https://t.me/verdictumlegalupdates/29021)
 
 ---
 
@@ -89,78 +161,6 @@ Ignoring Sexual Harassment Complaints Does Not Constitute Abetment Of Offence: G
 https://www.verdictum.in/gujarat-high-court/2026-gujhc-55473-abatement-of-offence-ignoring-complaint-1621668
 
 [Source Link](https://t.me/verdictumlegalupdates/29010)
-
----
-
-### 2026-09-10T04:33:13+00:00
-Any Party With Sufficient Interest Can Be Impleaded In CCI Proceedings To Further Public Interest: Delhi High Court Dismisses Ultratech Cement's Intra-Court Appeal
-https://www.verdictum.in/delhi-high-court/ultratech-cement-ltd-v-competition-commission-of-india-2026dhc7617-db-any-party-sufficient-interest-impleaded-1621641
-
-[Source Link](https://t.me/verdictumlegalupdates/29009)
-
----
-
-### 2026-09-09T16:03:01+00:00
-Legal Officer Vacancy At Zilla Parishad Dhule
-https://www.verdictum.in/job-updates/zilla-parishad-1621642
-
-[Source Link](https://t.me/verdictumlegalupdates/29008)
-
----
-
-### 2026-09-09T15:13:20+00:00
-It Is Creation Of An Offence Because Boundaries Of Culpability Are Being Changed: Supreme Court To Begin Hearing Of Pleas Seeking Criminalization Of Marital Rape
-https://www.verdictum.in/supreme-court/final-hearing-pleas-seeking-criminalization-marital-rape-1621644
-
-[Source Link](https://t.me/verdictumlegalupdates/29007)
-
----
-
-### 2026-09-09T14:32:20+00:00
-Personal Guarantee Not Isolated Contract, Forms Composite Transaction: Supreme Court Holds Guarantor Bound By Arbitration Clause In Loan Agreement
-https://www.verdictum.in/supreme-court/national-skill-development-corporation-v-surya-wires-private-limited-2026-insc-977-guarantor-bound-arbitration-clause-loan-agreement-1621640
-
-[Source Link](https://t.me/verdictumlegalupdates/29006)
-
----
-
-### 2026-09-09T13:52:59+00:00
-Services Rendered On Contract/Ad Hoc/Daily Wage Basis Before Regularization Must Be Computed As Qualifying Service For Retiral & Pension Benefits: Supreme Court
-https://www.verdictum.in/supreme-court/punjab-school-education-board-v-satnam-singh-and-others-2026-insc-965-regularization-pension-1621639
-
-[Source Link](https://t.me/verdictumlegalupdates/29005)
-
----
-
-### 2026-09-09T13:12:58+00:00
-National Highway Act| If Determination Of Compensation Is Made Before 01.01.2015, Solatium Payable Under Land Acquisition 1894: Supreme Court Clarifies Compensation Regime
-https://www.verdictum.in/supreme-court/manav-bhanot-v-national-highway-authority-of-india-2026-insc-973-january-01-2015-solatium-payable-act-of-1894-1621638
-
-[Source Link](https://t.me/verdictumlegalupdates/29004)
-
----
-
-### 2026-09-09T12:32:57+00:00
-Duty Of Enforcement Agencies To Ensure Compliance With Law On Wearing Seat Belts: Supreme Court
-https://www.verdictum.in/supreme-court/duty-enforcement-agencies-compliance-law-wearing-seat-belts-1621634
-
-[Source Link](https://t.me/verdictumlegalupdates/29003)
-
----
-
-### 2026-09-09T11:52:36+00:00
-Supreme Court Slams Yatharth Hospital For Not Replying To Contempt Notice Over Preparation Of SOP To Provide Emergency Treatment To EWS Patients
-https://www.verdictum.in/supreme-court/contempt-notice-preparation-sop-emergency-treatment-ews-patients-yatharth-hospital-1621633
-
-[Source Link](https://t.me/verdictumlegalupdates/29002)
-
----
-
-### 2026-09-09T11:12:55+00:00
-Satya Niketan Building Collapse: High Court Asks Govt To Reply To Plea For Hostel Facility In DU Colleges
-https://www.verdictum.in/delhi-high-court/satya-niketan-building-collapse-plea-for-hostel-facility-in-du-colleges-1621632
-
-[Source Link](https://t.me/verdictumlegalupdates/29001)
 
 ---
 
