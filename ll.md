@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-09T13:47:43+00:00*
+*Last Updated: 2026-09-09T13:56:03+00:00*
 
 ---
 
-### 2026-09-09T13:47:43+00:00
-2026 LiveLaw (SC) 918  | V. SUMITRA REDDY & ANR. VERSUS K. RANGANADHA REDDY & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-918-v-sumitra-reddy-anr-versus-k-ranganadha-reddy-ors-549424
-
-[Read on Telegram](https://t.me/livelawindia/119477)
-
----
-### 2026-09-09T13:54:43+00:00
-Release Of Escrow Under SEBI Buyback Regulations Does Not Bar Separate Fraud Inquiry : Supreme Court In Vedanta Case
-https://www.livelaw.in/top-stories/supreme-court-release-escrow-sebi-buyback-regulations-bar-separate-fraud-inquiry-549425
-
-[Read on Telegram](https://t.me/livelawindia/119478)
-
----
 ### 2026-09-09T13:56:03+00:00
 2026 LiveLaw (SC) 919 | Securities and Exchange Board of India v Vedanta Limited & Ors.
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-919-securities-and-exchange-board-of-india-v-vedanta-limited-ors-549426
@@ -142,5 +128,19 @@ LiveLaw High Courts Daily Highlights: September 09, 2026
 https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-09-2026-549436
 
 [Read on Telegram](https://t.me/livelawindia/119496)
+
+---
+### 2026-09-10T03:03:25+00:00
+Telangana State Consumer Commission Holds Apollo Hospitals Liable For Medical Negligence In Acute Stroke Treatment
+https://www.livelaw.in/consumer-cases/telangana-state-consumer-commission-holds-apollo-hospitals-liable-for-medical-negligence-in-acute-stroke-treatment-549458
+
+[Read on Telegram](https://t.me/livelawindia/119497)
+
+---
+### 2026-09-10T03:18:05+00:00
+RTI: Inquiry Records Sought For Self-Defence Cannot Be Denied If No Third-Party Privacy Involved, Rules Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/rti-inquiry-records-sought-for-self-defence-cannot-be-denied-if-no-third-party-privacy-involved-rules-chhattisgarh-hc-549459
+
+[Read on Telegram](https://t.me/livelawindia/119498)
 
 ---
