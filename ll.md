@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-10T13:52:27+00:00*
+*Last Updated: 2026-09-10T14:41:57+00:00*
 
 ---
 
-### 2026-09-10T13:52:27+00:00
-Dismissal Of Revenue Suit While Quashing Remand Order Deprives Plaintiff Of Remedy Of Appeal: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-suit-dismissed-setting-aside-remand-order-549591
-
-[Read on Telegram](https://t.me/livelawindia/119576)
-
----
-### 2026-09-10T14:05:47+00:00
-Supreme Court Directs J&K To Approve Govt Teacher's Assignment As National Kayaking Coach For Asian Games 2026
-https://www.livelaw.in/supreme-court/supreme-court-directs-jk-to-approve-govt-teachers-assignment-as-national-kayaking-coach-for-asian-games-2026-549611
-
-[Read on Telegram](https://t.me/livelawindia/119577)
-
----
-### 2026-09-10T14:07:07+00:00
-2026 LiveLaw (SC) 922 |  INDIAN KAYAKING AND CANOEING ASSOCIATION Versus UNION TERRITORY OF J&K AND ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-922-indian-kayaking-and-canoeing-association-versus-union-territory-of-jk-and-ors-549612
-
-[Read on Telegram](https://t.me/livelawindia/119578)
-
----
-### 2026-09-10T14:07:27+00:00
-Tripura High Court Directs Govt To Fill 1116 Vacant PG Teacher Posts, Says No Need To 'Re-Create' Posts After Retirement/Death
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-slams-state-government-teacher-posts-filling-vacant-posts-549592
-
-[Read on Telegram](https://t.me/livelawindia/119579)
-
----
-### 2026-09-10T14:13:47+00:00
-Healthcare Reforms And Insurance Law- Judicial Analysis
-https://www.livelaw.in/articles/healthcare-reforms-insurance-law-doctrinal-judicial-analysis-549614
-
-[Read on Telegram](https://t.me/livelawindia/119580)
-
----
-### 2026-09-10T14:37:37+00:00
-Muslim Man's Second Marriage Not 'Void', Offence Of Bigamy Under S.494 IPC Not Made Out: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-second-marriage-muslim-man-bigamy-section494-ipc-first-marriage-subsists-549601
-
-[Read on Telegram](https://t.me/livelawindia/119581)
-
----
 ### 2026-09-10T14:41:57+00:00
 Long Possession Alone Does Not Prove Adverse Possession,Hostile Intent Essential : Supreme Court
 https://www.livelaw.in/top-stories/supreme-court-long-possession-alone-does-not-prove-adverse-possession-hostile-intent-essential-549621
@@ -142,5 +100,47 @@ https://www.livelaw.in/high-court/kerala-high-court/keralam-government-retiremen
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-925-kunal-rameshbhai-kalyani-v-state-of-gujarat-anr-549641
 
 [Read on Telegram](https://t.me/livelawindia/119595)
+
+---
+### 2026-09-10T17:09:32+00:00
+Bombay High Court Seeks Centre's Stand On Whether OCI Cardholders Can Play In BCCI Tournaments, Says Decision May Have 'Wide Ramifications'
+https://www.livelaw.in/high-court/bombay-high-court/cricket-oci-cardholders-play-bcci-tournaments-centre-respond-549644
+
+[Read on Telegram](https://t.me/livelawindia/119596)
+
+---
+### 2026-09-10T17:23:02+00:00
+Supreme Court Daily Round-Up : September 10, 2026
+https://www.livelaw.in/top-stories/dr-justice-pushpendra-singh-bhati-sworn-in-as-chief-justice-of-jk-and-ladakh-high-court-549642
+
+[Read on Telegram](https://t.me/livelawindia/119597)
+
+---
+### 2026-09-10T17:23:12+00:00
+'Road Safety Cannot Remain Confined To Assurances': Kerala High Court Directs Kochi Police To Report Steps Against Reckless Driving
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-reckless-driving-kochi-police-report-road-safety-measures-549645
+
+[Read on Telegram](https://t.me/livelawindia/119598)
+
+---
+### 2026-09-10T17:34:32+00:00
+Kerala High Court Denies Bail To 3 PFI Members In Sreenivasan Murder Case, Says Custody Not Substantial Compared To Possible Life Sentence
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sreenivasan-murder-case-pfi-members-549647
+
+[Read on Telegram](https://t.me/livelawindia/119599)
+
+---
+### 2026-09-10T17:42:42+00:00
+Human Rights Commission Recommends FIR Against Pune Police Commissioner & Subordinates Over Illegal Detention, Public Parading Of Minor Boys
+https://www.livelaw.in/news-updates/human-rights-commission-recommends-fir-against-pune-police-commissioner-subordinates-over-illegal-detention-public-parading-of-minor-boys-549649
+
+[Read on Telegram](https://t.me/livelawindia/119600)
+
+---
+### 2026-09-10T17:45:42+00:00
+LiveLaw High Courts Daily Highlights: September 10, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-10-2026-549650
+
+[Read on Telegram](https://t.me/livelawindia/119601)
 
 ---
