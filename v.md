@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-09T16:03:01+00:00*
+*Last Updated: 2026-09-10T04:33:13+00:00*
+
+---
+
+### 2026-09-10T04:33:13+00:00
+Any Party With Sufficient Interest Can Be Impleaded In CCI Proceedings To Further Public Interest: Delhi High Court Dismisses Ultratech Cement's Intra-Court Appeal
+https://www.verdictum.in/delhi-high-court/ultratech-cement-ltd-v-competition-commission-of-india-2026dhc7617-db-any-party-sufficient-interest-impleaded-1621641
+
+[Source Link](https://t.me/verdictumlegalupdates/29009)
 
 ---
 
@@ -153,14 +161,6 @@ Centre Notifies Appointment Of Advocates, Judicial Officers As Judges Of High Co
 https://www.verdictum.in/court-updates/high-courts/appointment-of-advocates-judicial-officers-as-judges-of-high-courts-1621598
 
 [Source Link](https://t.me/verdictumlegalupdates/28990)
-
----
-
-### 2026-09-09T04:32:33+00:00
-Pensioner’s Daughter Need Not Be Divorcee At Time Of His Death: Tripura HC Grants Relief To Municipal Employee’s Kin
-https://www.verdictum.in/tripura-high-court/smt-ujjwala-rani-paul-v-agartala-municipal-corporation-2026thc1129-db-pension-daughter-1621573
-
-[Source Link](https://t.me/verdictumlegalupdates/28989)
 
 ---
 
