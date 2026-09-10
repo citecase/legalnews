@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-10T04:33:13+00:00*
+*Last Updated: 2026-09-10T11:33:14+00:00*
+
+---
+
+### 2026-09-10T11:33:14+00:00
+Calcutta High Court Permits Mamta Banerjee To Hold Public Meeting In Sreerampur Instead Of Procession
+https://www.verdictum.in/calcutta-high-court/mamta-banerjee-permitted-hold-public-meeting-in-sreerampur-instead-of-procession-1621702
+
+[Source Link](https://t.me/verdictumlegalupdates/29020)
+
+---
+
+### 2026-09-10T10:52:53+00:00
+Delhi High Court Orders CJP's Saurav Das and Ashutosh Ranka To Remove Posts Against Gaurav Bhatia
+https://www.verdictum.in/delhi-high-court/cjps-saurav-das-and-ashutosh-ranka-to-remove-posts-against-gaurav-bhatia-1621700
+
+[Source Link](https://t.me/verdictumlegalupdates/29019)
+
+---
+
+### 2026-09-10T10:12:32+00:00
+Supreme Court Asks Delhi High Court To Monitor Satya Niketan Building Collapse Case; Directs Authorities To File Fresh Reports On Illegal Construction & Misuse
+https://www.verdictum.in/supreme-court/delhi-high-court-to-monitor-satya-niketan-building-collapse-case-1621701
+
+[Source Link](https://t.me/verdictumlegalupdates/29018)
+
+---
+
+### 2026-09-10T09:53:11+00:00
+Supreme Court Agrees To Hear Plea Seeking Safeguards For Minors Accessing Social Media
+https://www.verdictum.in/supreme-court/plea-seeking-safeguards-for-minors-accessing-social-media-1621695
+
+[Source Link](https://t.me/verdictumlegalupdates/29017)
+
+---
+
+### 2026-09-10T09:12:30+00:00
+Scores Of Citizens Cannot Be Made To Wait For Conversion Of Their Properties From Leasehold To Freehold: Delhi High Court Tells MoHUA & DDA
+https://www.verdictum.in/delhi-high-court/delhi-development-authority-v-mala-sahni-seth-2026dhc7651-db-leasehold-freehold-property-conversion-1621698
+
+[Source Link](https://t.me/verdictumlegalupdates/29016)
+
+---
+
+### 2026-09-10T08:32:29+00:00
+Supreme Court Issues Notice In PIL Seeking Standard Investigation Procedure & Speedy Trial For Child Kidnapping And Trafficking Cases
+https://www.verdictum.in/supreme-court/pil-seeking-standard-investigation-procedure-speedy-trial-child-kidnapping-trafficking-cases-1621688
+
+[Source Link](https://t.me/verdictumlegalupdates/29015)
+
+---
+
+### 2026-09-10T07:52:48+00:00
+Supreme Court Denies Pre-Arrest Bail To Abhishek Banerjee's PA Sumit Roy In Land Fraud Case
+https://www.verdictum.in/supreme-court/denies-pre-arrest-bail-abhishek-banerjee-sumit-roy-land-fraud-case-1621692
+
+[Source Link](https://t.me/verdictumlegalupdates/29014)
+
+---
+
+### 2026-09-10T07:12:47+00:00
+Supreme Court Refuses To Entertain PIL Raising Concerns Over HPV Vaccination Campaign
+https://www.verdictum.in/supreme-court/pil-raising-concerns-over-hpv-vaccination-campaign-refused-1621686
+
+[Source Link](https://t.me/verdictumlegalupdates/29013)
+
+---
+
+### 2026-09-10T06:22:46+00:00
+Related Witnesses Can’t Be Called Interested Witnesses; But Closer Scrutiny Warranted If A Ring Of Falsity Found In Their Testimonies: Supreme Court
+https://www.verdictum.in/supreme-court/ashok-upadhyay-v-the-state-of-bihar-2026-insc-971-related-witnesses-deceased-testimonies-1621676
+
+[Source Link](https://t.me/verdictumlegalupdates/29012)
+
+---
+
+### 2026-09-10T05:32:05+00:00
+Supreme Court Rejects Abu Salem's Early Release Plea In 1993 Bombay Blast Case
+https://www.verdictum.in/supreme-court/rejects-abu-salem-early-release-plea-1621674
+
+[Source Link](https://t.me/verdictumlegalupdates/29011)
+
+---
+
+### 2026-09-10T05:12:44+00:00
+Ignoring Sexual Harassment Complaints Does Not Constitute Abetment Of Offence: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/2026-gujhc-55473-abatement-of-offence-ignoring-complaint-1621668
+
+[Source Link](https://t.me/verdictumlegalupdates/29010)
 
 ---
 
@@ -73,94 +161,6 @@ Satya Niketan Building Collapse: High Court Asks Govt To Reply To Plea For Hoste
 https://www.verdictum.in/delhi-high-court/satya-niketan-building-collapse-plea-for-hostel-facility-in-du-colleges-1621632
 
 [Source Link](https://t.me/verdictumlegalupdates/29001)
-
----
-
-### 2026-09-09T10:33:14+00:00
-Burden Of Proof Has To Be Discharged By Petitioner While Questioning Public Office Appointment: Supreme Court On Quo Warranto Writ Petitions
-https://www.verdictum.in/supreme-court/annu-kumar-anr-v-maharshi-dayanand-university-rohtak-2026-insc-968-public-office-appointment-1621630
-
-[Source Link](https://t.me/verdictumlegalupdates/29000)
-
----
-
-### 2026-09-09T09:42:53+00:00
-Apprehensions Of Future Resumption Can’t Defeat Subsisting Lease Rights: Bombay High Court Clears Pune Cantonment Leaseholders' Construction Near Southern Command HQ
-https://www.verdictum.in/bombay-high-court/nikhil-vithal-jhaveri-v-chief-executive-officer-pune-cantonment-board-2026bhc-as36510-db-southern-command-hq-operation-sindoor-1621626
-
-[Source Link](https://t.me/verdictumlegalupdates/28999)
-
----
-
-### 2026-09-09T09:02:32+00:00
-Right To Receive Family Pension Can't Be Treated As Bounty: Supreme Court Holds Widow Entitled To Pension From Death Of Railway Employee Husband
-https://www.verdictum.in/supreme-court/maya-banerjee-v-union-of-india-2026-insc-959-right-individual-family-pension-1621624
-
-[Source Link](https://t.me/verdictumlegalupdates/28998)
-
----
-
-### 2026-09-09T08:32:51+00:00
-Policy Not To Be Interpreted Like A Statute: Supreme Court Upholds NOIDA Developer's Entitlement To 'Zero Period' Benefit Over Missing Access Road
-https://www.verdictum.in/supreme-court/new-okhla-industrial-development-authority-v-ms-sunshine-trade-tower-private-limited-2026-insc-975-zero-period-noida-developers-1621622
-
-[Source Link](https://t.me/verdictumlegalupdates/28997)
-
----
-
-### 2026-09-09T08:02:49+00:00
-"Tragicomic": Bombay High Court Slams Patent Office's 13-Year Mishandling, Restores Scientist As Rightful Applicant Over IIT Bombay
-https://www.verdictum.in/bombay-high-court/dr-tarkeshwar-chandrakant-patil-v-indian-institute-of-technology-bombay-2026bhc-os19905-1621618
-
-[Source Link](https://t.me/verdictumlegalupdates/28996)
-
----
-
-### 2026-09-09T07:32:49+00:00
-Common Intention & Object Can Be Inferred Even If Accused Did Not Fire the Fatal Shot: Supreme Court Restores Murder Conviction
-https://www.verdictum.in/supreme-court/santosh-singh-v-the-state-of-madhya-pradesh-2026-insc-972-common-intention-fatal-shot-grain-from-the-chaff-1621614
-
-[Source Link](https://t.me/verdictumlegalupdates/28995)
-
----
-
-### 2026-09-09T07:02:48+00:00
-Supreme Court Refuses Urgent Listing Of Contractor's Bail Plea Arrested In Rajasthan High Court Jodhpur Building Construction Irregularities
-https://www.verdictum.in/supreme-court/refuses-urgent-listing-contractor-bail-plea-rajasthan-high-court-jodhpur-building-safety-matter-1621611
-
-[Source Link](https://t.me/verdictumlegalupdates/28994)
-
----
-
-### 2026-09-09T06:32:27+00:00
-Merely Because External Injury Is Not Found, It Can’t Be Presumed That No Rape Was Committed: Madras High Court Upholds Rape Conviction
-https://www.verdictum.in/madras-high-court/t-thanaraj-v-state-2026mhc3635-external-injury-act-rape-accused-1621606
-
-[Source Link](https://t.me/verdictumlegalupdates/28993)
-
----
-
-### 2026-09-09T05:49:26+00:00
-How Magistrate Can Dare To Violate That Order: Supreme Court Says After DM Of Gautam Buddh Nagar Issued Contempt Notice To Student Protester
-https://www.verdictum.in/supreme-court/remarks-after-gautam-buddh-nagar-issued-contempt-notice-to-student-protester-1621603
-
-[Source Link](https://t.me/verdictumlegalupdates/28992)
-
----
-
-### 2026-09-09T05:35:45+00:00
-Whether Particular Claim Falls Outside Excepted Matters Clause Of Work Contract Is Matter Within Arbitral Tribunal’s Competence U/S.16 A&C Act: Supreme Court
-https://www.verdictum.in/supreme-court/ms-gvv-constructions-private-limited-v-the-union-of-india-2026-insc-976-claim-arbitral-tribunal-1621600
-
-[Source Link](https://t.me/verdictumlegalupdates/28991)
-
----
-
-### 2026-09-09T05:02:04+00:00
-Centre Notifies Appointment Of Advocates, Judicial Officers As Judges Of High Courts
-https://www.verdictum.in/court-updates/high-courts/appointment-of-advocates-judicial-officers-as-judges-of-high-courts-1621598
-
-[Source Link](https://t.me/verdictumlegalupdates/28990)
 
 ---
 
