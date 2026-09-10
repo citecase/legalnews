@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-10T08:10:39+00:00*
+*Last Updated: 2026-09-10T13:52:27+00:00*
 
 ---
 
-### 2026-09-10T08:10:39+00:00
-'Law Does Not Permit Discrimination': Bombay High Court To BMC Over 18-Year Delay In Housing Policy For Sanitation Workers
-https://www.livelaw.in/high-court/bombay-high-court/mcgm-cannot-discriminate-lowest-rung-employees-549530
+### 2026-09-10T13:52:27+00:00
+Dismissal Of Revenue Suit While Quashing Remand Order Deprives Plaintiff Of Remedy Of Appeal: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-suit-dismissed-setting-aside-remand-order-549591
 
-[Read on Telegram](https://t.me/livelawindia/119538)
-
----
-### 2026-09-10T08:23:29+00:00
-Jharkhand High Court Refuses To Release Land Acquired Decades Ago, Notes Use By NLU Ranchi For Public Purpose
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-refuses-release-land-acquired-decades-nusrl-public-purpose-549524
-
-[Read on Telegram](https://t.me/livelawindia/119539)
+[Read on Telegram](https://t.me/livelawindia/119576)
 
 ---
-### 2026-09-10T08:23:59+00:00
-Talaq-E-Hassan Valid In India, Must Be Registered Under Assam Muslim Marriages & Divorces Act: High Court
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-talaq-e-hassan-registration-registrar-muslim-marriages-divorces-act-549534
+### 2026-09-10T14:05:47+00:00
+Supreme Court Directs J&K To Approve Govt Teacher's Assignment As National Kayaking Coach For Asian Games 2026
+https://www.livelaw.in/supreme-court/supreme-court-directs-jk-to-approve-govt-teachers-assignment-as-national-kayaking-coach-for-asian-games-2026-549611
 
-[Read on Telegram](https://t.me/livelawindia/119540)
-
----
-### 2026-09-10T08:31:19+00:00
-Madras High Court Orders Closure Of TASMAC Shop Near National Highway, Says Shortest Distance Must Be Considered For Liquor Ban
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tasmac-shop-closed-shortest-distance-national-highway-calculated-549535
-
-[Read on Telegram](https://t.me/livelawindia/119541)
+[Read on Telegram](https://t.me/livelawindia/119577)
 
 ---
-### 2026-09-10T08:35:59+00:00
-Attack On Child CJP Protester : Supreme Court Takes Serious View; Seeks Report On FIR, Directs Security
-https://www.livelaw.in/top-stories/attack-on-child-cjp-protester-supreme-court-takes-serious-view-seeks-report-on-fir-directs-security-549536
+### 2026-09-10T14:07:07+00:00
+2026 LiveLaw (SC) 922 |  INDIAN KAYAKING AND CANOEING ASSOCIATION Versus UNION TERRITORY OF J&K AND ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-922-indian-kayaking-and-canoeing-association-versus-union-territory-of-jk-and-ors-549612
 
-[Read on Telegram](https://t.me/livelawindia/119542)
-
----
-### 2026-09-10T08:47:29+00:00
-Manager Vacancy At Deloitte Touche Tohmatsu India LLP [Noida; Apply Now]
-https://www.livelaw.in/job-updates/manager-vacancy-at-deloitte-touche-tohmatsu-india-llp-noida-549538
-
-[Read on Telegram](https://t.me/livelawindia/119543)
+[Read on Telegram](https://t.me/livelawindia/119578)
 
 ---
-### 2026-09-10T08:48:49+00:00
-Criminal Contempt Petition Filed In P&H High Court Against CJP's Saurav Das Over 'X' Post On Chief Justice Ashwani Kumar Mishra
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/saurav-das-contempt-petition-post-on-chief-justice-ashwani-kumar-mishra-cjp-549539
+### 2026-09-10T14:07:27+00:00
+Tripura High Court Directs Govt To Fill 1116 Vacant PG Teacher Posts, Says No Need To 'Re-Create' Posts After Retirement/Death
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-slams-state-government-teacher-posts-filling-vacant-posts-549592
 
-[Read on Telegram](https://t.me/livelawindia/119544)
-
----
-### 2026-09-10T09:17:29+00:00
-Incomplete Training Or Lack Of Oath No Bar To CRPF Disability Benefits: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/incomplete-training-or-lack-of-oath-no-bar-to-crpf-disability-benefits-gauhati-high-court-549462
-
-[Read on Telegram](https://t.me/livelawindia/119545)
+[Read on Telegram](https://t.me/livelawindia/119579)
 
 ---
-### 2026-09-10T09:40:00+00:00
-Delhi High Court Directs Nationwide Biometric Aadhaar Verification For GST Registrations Amid Fake Registration Concerns
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-nationwide-biometric-aadhaar-verification-for-gst-registrations-amid-fake-registration-concerns-549545
+### 2026-09-10T14:13:47+00:00
+Healthcare Reforms And Insurance Law- Judicial Analysis
+https://www.livelaw.in/articles/healthcare-reforms-insurance-law-doctrinal-judicial-analysis-549614
 
-[Read on Telegram](https://t.me/livelawindia/119546)
-
----
-### 2026-09-10T09:40:09+00:00
-Executive Magistrate Who Issued Notice To Student Over CJP Protest Suspended : Solicitor Tells Supreme Court
-https://www.livelaw.in/top-stories/executive-magistrate-who-issued-notice-to-student-over-cjp-protest-suspended-solicitor-tells-supreme-court-549546
-
-[Read on Telegram](https://t.me/livelawindia/119547)
+[Read on Telegram](https://t.me/livelawindia/119580)
 
 ---
-### 2026-09-10T09:40:59+00:00
-Allotment Cancelled After 26 Years 'Total Abuse Of Process': Allahabad High Court Restores Land To Family
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-cancellation-allotment-initiated-years-later-total-abuse-process-of-law-549547
+### 2026-09-10T14:37:37+00:00
+Muslim Man's Second Marriage Not 'Void', Offence Of Bigamy Under S.494 IPC Not Made Out: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-second-marriage-muslim-man-bigamy-section494-ipc-first-marriage-subsists-549601
 
-[Read on Telegram](https://t.me/livelawindia/119548)
-
----
-### 2026-09-10T09:53:07+00:00
-UP Police Rules | Delay In Filing Revision Against Punishment Is Condonable Under S. 5 Limitation Act: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-delay-filing-revision-punishment-condonable-s5-limitation-act-549550
-
-[Read on Telegram](https://t.me/livelawindia/119549)
+[Read on Telegram](https://t.me/livelawindia/119581)
 
 ---
-### 2026-09-10T10:03:08+00:00
-Outsourced Employees' Deployment In Transport Corporation Doesn't Establish Master-Servant Relationship: P&H High Court Sets Aside Regularisation
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-sets-aside-regularisation-of-prtc-outsourced-employees-549553
+### 2026-09-10T14:41:57+00:00
+Long Possession Alone Does Not Prove Adverse Possession,Hostile Intent Essential : Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-long-possession-alone-does-not-prove-adverse-possession-hostile-intent-essential-549621
 
-[Read on Telegram](https://t.me/livelawindia/119550)
-
----
-### 2026-09-10T10:12:38+00:00
-IRCTC Scam: Delhi Court Frames Charges Against Lalu Prasad, Rabri Devi, Tejashwi Yadav In Money Laundering Case
-https://www.livelaw.in/news-updates/lalu-prasad-rabri-devi-tejashwi-yadav-money-laundering-irctc-scam-charges-549558
-
-[Read on Telegram](https://t.me/livelawindia/119551)
+[Read on Telegram](https://t.me/livelawindia/119582)
 
 ---
-### 2026-09-10T10:19:19+00:00
-S.262(1) BNSS | Not Mandatory To Wait 60 Days For Framing Charge But 'Reasonable Interval' Be Given For Seeking Discharge: Orissa High Court
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-framing-charge-reasonable-interval-seeking-discharge-549560
+### 2026-09-10T14:42:58+00:00
+2026 LiveLaw (SC) 923 | Bhag Singh (dead) through Mahant Kashmir Singh v Basant Kaur (dead) through LRs & Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-923-bhag-singh-dead-through-mahant-kashmir-singh-v-basant-kaur-dead-through-lrs-ors-549623
 
-[Read on Telegram](https://t.me/livelawindia/119552)
-
----
-### 2026-09-10T10:28:39+00:00
-Wife's Frequent Visits To Maternal Home, Pressure To Live Separately Despite Husband Being Only Son Amounted To Cruelty: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-only-son-separate-house-visiting-maternal-home-frequently-cruelty-549562
-
-[Read on Telegram](https://t.me/livelawindia/119553)
+[Read on Telegram](https://t.me/livelawindia/119583)
 
 ---
-### 2026-09-10T10:30:19+00:00
-'Money Mule' Suspicion Cannot Justify Account Freeze: Calcutta High Court Directs SBI To Defreeze Businessman's Account
-https://www.livelaw.in/high-court/calcutta-high-court/rbi-guidelines-do-not-specifically-authorise-banks-to-freeze-accounts-on-mere-suspicion-of-money-mule-activity-calcutta-high-court-549563
+### 2026-09-10T14:52:18+00:00
+Rape Conviction Possible Even Without S.376 IPC Charge When POCSO Charge Fails Over Victim's Age: Supreme Court
+https://www.livelaw.in/supreme-court/rape-conviction-possible-even-without-s376-ipc-charge-when-pocso-charge-fails-over-victims-age-supreme-court-549625
 
-[Read on Telegram](https://t.me/livelawindia/119554)
-
----
-### 2026-09-10T10:33:39+00:00
-Assistant Manager (Legal) Vacancy At Godrej Agrovet Limited
-https://www.livelaw.in/job-updates/assistant-manager-legal-vacancy-at-godrej-agrovet-limited-549565
-
-[Read on Telegram](https://t.me/livelawindia/119555)
+[Read on Telegram](https://t.me/livelawindia/119584)
 
 ---
-### 2026-09-10T10:37:49+00:00
-'Publishing News On True Facts Not Defamation': Himachal Pradesh High Court Quashes Case Against Newspaper Editor
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-quashes-defamation-complaint-undisputed-facts-not-defamatory-549526
+### 2026-09-10T14:52:38+00:00
+Divorced Wife Can Continue To Claim Maintenance If She Has Not Remarried: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/divorced-wife-can-continue-to-claim-maintenance-if-she-has-not-remarried-calcutta-high-court-549610
 
-[Read on Telegram](https://t.me/livelawindia/119556)
+[Read on Telegram](https://t.me/livelawindia/119585)
 
 ---
-### 2026-09-10T10:37:59+00:00
-Student Protest Violence | Supreme Court Unwilling To Reconstitute Enquiry Committee After Petitioners Doubt Member's Independence
-https://www.livelaw.in/top-stories/student-protest-violence-supreme-court-unwilling-to-reconstitute-enquiry-committee-after-petitioners-doubt-members-independence-549567
+### 2026-09-10T14:53:18+00:00
+2026 LiveLaw (SC) 924 | PYNCHEMALANGAKI BAREH VERSUS STATE OF MEGHALAYA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-924-pynchemalangaki-bareh-versus-state-of-meghalaya-549627
 
-[Read on Telegram](https://t.me/livelawindia/119557)
+[Read on Telegram](https://t.me/livelawindia/119586)
+
+---
+### 2026-09-10T14:56:18+00:00
+Supreme Court Collegium Proposes Elevation Of 8 Judicial Officers As Delhi High Court Judges
+https://www.livelaw.in/top-stories/supreme-court-collegium-proposes-elevation-of-8-judicial-officers-as-delhi-high-court-judges-549628
+
+[Read on Telegram](https://t.me/livelawindia/119587)
+
+---
+### 2026-09-10T15:03:38+00:00
+Supreme Court Stays Reinstatement Of IAS Officer Who Emptied Delhi Stadium To Walk Her Dog
+https://www.livelaw.in/top-stories/supreme-court-stays-reinstatement-of-ias-officer-who-emptied-delhi-stadium-to-walk-her-dog-549630
+
+[Read on Telegram](https://t.me/livelawindia/119588)
+
+---
+### 2026-09-10T15:15:28+00:00
+Supreme Court Collegium Approves Three Appointments to Karnataka High Court
+https://www.livelaw.in/high-court/all-high-courts/supreme-court-collegium-approves-three-appointments-to-karnataka-high-court-549635
+
+[Read on Telegram](https://t.me/livelawindia/119589)
+
+---
+### 2026-09-10T15:21:28+00:00
+Supreme Court Collegium Approves Three Appointments to Jharkhand High Court
+https://www.livelaw.in/top-stories/supreme-court-collegium-approves-three-appointments-to-jharkhand-high-court-549636
+
+[Read on Telegram](https://t.me/livelawindia/119590)
+
+---
+### 2026-09-10T15:25:08+00:00
+Supreme Court Collegium Approves Appointment to J&K and Ladakh High Court
+https://www.livelaw.in/top-stories/supreme-court-collegium-approves-appointment-to-jk-and-ladakh-high-court-549637
+
+[Read on Telegram](https://t.me/livelawindia/119591)
+
+---
+### 2026-09-10T15:36:28+00:00
+Supreme Court Collegium Recommends Appointment Of Judicial Officer As Judge Of  J&K And Ladakh High Court
+https://www.livelaw.in/high-court/jammu-kashmir/supreme-court-collegium-recommends-appointment-of-judge-yash-paul-bourney-as-jk-and-ladakh-high-court-judge-549638
+
+[Read on Telegram](https://t.me/livelawindia/119592)
+
+---
+### 2026-09-10T15:39:08+00:00
+Supreme Court Explains S.69 BNS : No Offence Of Deceitful Sex By Breach Of Genuine Marriage Promise
+https://www.livelaw.in/top-stories/supreme-court-promise-marry-later-withdrawn-due-mother-objection-section69-bns-549639
+
+[Read on Telegram](https://t.me/livelawindia/119593)
+
+---
+### 2026-09-10T15:40:28+00:00
+Keralam Govt Enhances Retirement Age Of District Judicial Officers From 60 Yrs To 62 Yrs
+https://www.livelaw.in/high-court/kerala-high-court/keralam-government-retirement-age-district-judiciary-549640
+
+[Read on Telegram](https://t.me/livelawindia/119594)
+
+---
+### 2026-09-10T15:41:28+00:00
+2026 LiveLaw (SC) 925 | Kunal Rameshbhai Kalyani v State of Gujarat & Anr.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-925-kunal-rameshbhai-kalyani-v-state-of-gujarat-anr-549641
+
+[Read on Telegram](https://t.me/livelawindia/119595)
 
 ---
