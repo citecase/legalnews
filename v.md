@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-11T11:12:49+00:00*
+*Last Updated: 2026-09-11T16:02:18+00:00*
+
+---
+
+### 2026-09-11T16:02:18+00:00
+Legal Officer Vacancy At Tamil Nadu Forest and Wildlife Crime Control Bureau (TNFWCCB)
+https://www.verdictum.in/job-updates/tamil-nadu-forest-and-wildlife-crime-control-bureau-1621785
+
+[Source Link](https://t.me/verdictumlegalupdates/29049)
+
+---
+
+### 2026-09-11T15:32:57+00:00
+Highways Disintegrating Every Monsoon: Tripura High Court Expresses Concern About Risk To Citizens' Lives
+https://www.verdictum.in/tripura-high-court/court-on-its-own-motion-v-union-of-india-wpcpil-no-06-of-2026nhai-nhidcl-epc-contractors-1621794
+
+[Source Link](https://t.me/verdictumlegalupdates/29048)
+
+---
+
+### 2026-09-11T15:03:16+00:00
+Customs Act| "Prohibited Goods" Not Confined To Section 11 Notifications: Calcutta High Court Restores ₹10.07 Crore Penalty In Gold Smuggling Case
+https://www.verdictum.in/calcutta-high-court/gopal-saha-v-union-of-india-apo-139-of-2018-prohibited-goods-customs-act-not-confined-to-section-11-1621795
+
+[Source Link](https://t.me/verdictumlegalupdates/29047)
+
+---
+
+### 2026-09-11T14:32:15+00:00
+Must Expedite Trials When Quantity of Drugs Is More Than 10 Times Commercial Quantity: Punjab & Haryana High Court Denies Bail To Ex-Cop In Drugs Case
+https://www.verdictum.in/punjab-and-haryana-high-court/sarabjit-singh-v-state-of-punjab-2026phhc128014-db-trials-quantity-drugs-1621792
+
+[Source Link](https://t.me/verdictumlegalupdates/29046)
+
+---
+
+### 2026-09-11T14:03:14+00:00
+Delhi High Court Mandates Biometric Aadhaar Authentication For GST Registration To Curb Fraud
+https://www.verdictum.in/delhi-high-court/mandates-biometric-aadhaar-authentication-gst-registration-1621789
+
+[Source Link](https://t.me/verdictumlegalupdates/29045)
+
+---
+
+### 2026-09-11T13:33:13+00:00
+Accused Refusing To Marry Because Mother Didn’t Permit Indicates Promise Made With Good Intention: Supreme Court Quashes FIR U/s.69 BNS
+https://www.verdictum.in/supreme-court/kunal-rameshbhai-kalyani-v-the-state-of-gujarat-2026-insc-987-accused-marry-section-69-bns-1621783
+
+[Source Link](https://t.me/verdictumlegalupdates/29044)
+
+---
+
+### 2026-09-11T13:02:53+00:00
+Madras High Court Asks Law Reporters To Avoid Paragraph Numbering Errors In Judgments To Avoid Confusion
+https://www.verdictum.in/madras-high-court/law-reporters-ensure-paragraph-numbering-errors-cause-confusion-1621782
+
+[Source Link](https://t.me/verdictumlegalupdates/29043)
+
+---
+
+### 2026-09-11T12:32:52+00:00
+Violence & Disturbances In State Is No Reason For Not Producing Accused Before Court: Manipur High Court Grants Bail In NDPS Case
+https://www.verdictum.in/manipur-high-court/2026-mnhc-195-lunkhogin-kipgen-v-officer-in-charge-narcotics-affairs-of-border-1621778
+
+[Source Link](https://t.me/verdictumlegalupdates/29042)
+
+---
+
+### 2026-09-11T11:53:11+00:00
+Prima Facie Crosses Permissible Contours Of Comparative Advertising: Delhi High Court Restrains Beco's "War On What's Hidden" Campaign Against Vim And Surf Excel
+https://www.verdictum.in/delhi-high-court/hindustan-unilever-limited-v-kwick-living-i-private-limited-2026dhc7695-kwick-livings-war-on-whats-hidden-1621776
+
+[Source Link](https://t.me/verdictumlegalupdates/29041)
 
 ---
 
@@ -89,78 +161,6 @@ Not Proper to Entertain Arbitration Application Filed Later In Time When Another
 https://www.verdictum.in/telangana-high-court/am-emanuel-and-two-others-v-vinay-palaparth-arbitration-application-partnership-deeds-1621721
 
 [Source Link](https://t.me/verdictumlegalupdates/29030)
-
----
-
-### 2026-09-10T16:03:03+00:00
-Legal Retainer Vacancy At Bengal Chemicals & Pharmaceuticals
-https://www.verdictum.in/job-updates/bengal-chemicals-pharmaceuticals-1621712
-
-[Source Link](https://t.me/verdictumlegalupdates/29029)
-
----
-
-### 2026-09-10T15:33:02+00:00
-Supreme Court Collegium Recommends Elevation Of Fifteen Judicial Officers As Judges Of Four High Courts
-https://www.verdictum.in/supreme-court/supreme-court-collegium-recomendation-judicial-officers-high-courts-1621723
-
-[Source Link](https://t.me/verdictumlegalupdates/29028)
-
----
-
-### 2026-09-10T15:02:41+00:00
-Tantamounts To Killing The Messenger: Allahabad High Court Stays FIR Against Journalist Allegedly For Exposing School Lapses
-https://www.verdictum.in/allahabad-high-court/stays-fir-against-journalist-for-exposing-school-lapses-1621718
-
-[Source Link](https://t.me/verdictumlegalupdates/29027)
-
----
-
-### 2026-09-10T14:32:20+00:00
-Mere Release Of Escrow Doesn’t Create Automatic Statutory Bar To Proceedings Under PFUTP Regulations: Supreme Court
-https://www.verdictum.in/supreme-court/securities-and-exchange-board-of-india-v-vedanta-limited-ors-2026-insc-978-release-escrow-1621709
-
-[Source Link](https://t.me/verdictumlegalupdates/29026)
-
----
-
-### 2026-09-10T14:02:59+00:00
-Foreign Driving Licence Valid Does Not Automatically Confer Right To Drive In India: Punjab & Haryana High Court
-https://www.verdictum.in/punjab-and-haryana-high-court/sameer-gaba-v-priyanka-2026phhc124793-foreign-driving-licence-valid-abroad-not-valid-india-1621707
-
-[Source Link](https://t.me/verdictumlegalupdates/29025)
-
----
-
-### 2026-09-10T13:32:38+00:00
-Leading Voluminous Evidence Often Unnecessary: Supreme Court Raises Concern Over Long Pendency Of Corruption Cases
-https://www.verdictum.in/supreme-court/khanindra-kr-dutta-v-central-bureau-of-investigation-2026-insc-970-voluminous-evidence-corruption-1621706
-
-[Source Link](https://t.me/verdictumlegalupdates/29024)
-
----
-
-### 2026-09-10T13:02:57+00:00
-Judicial Officer Cannot Shout At Judges In Court: Supreme Court Refuses To Stay Contempt Proceedings Initiated By Bombay High Court
-https://www.verdictum.in/supreme-court/contempt-proceedings-judicial-officer-shout-judge-1621705
-
-[Source Link](https://t.me/verdictumlegalupdates/29023)
-
----
-
-### 2026-09-10T12:32:56+00:00
-Nobody Can Browbeat Victim: Supreme Court Seeks Report On Minor Girl Protestor’s Allegations
-https://www.verdictum.in/supreme-court/report-on-minor-girl-protestors-allegations-1621704
-
-[Source Link](https://t.me/verdictumlegalupdates/29022)
-
----
-
-### 2026-09-10T12:02:35+00:00
-Supreme Court Agrees To Hear Plea Seeking National Policy For Welfare Of Private School Teachers
-https://www.verdictum.in/supreme-court/plea-seeking-national-policy-for-welfare-of-private-school-teachers-1621703
-
-[Source Link](https://t.me/verdictumlegalupdates/29021)
 
 ---
 
