@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-11T04:32:30+00:00*
+*Last Updated: 2026-09-11T11:12:49+00:00*
+
+---
+
+### 2026-09-11T11:12:49+00:00
+Allahabad High Court Seeks UP Govt's Reply On Petition Against Saharanpur Mosque Demolition
+https://www.verdictum.in/allahabad-high-court/up-govts-reply-on-petition-against-saharanpur-mosque-demolition-1621777
+
+[Source Link](https://t.me/verdictumlegalupdates/29040)
+
+---
+
+### 2026-09-11T10:32:49+00:00
+Madhya Pradesh High Court Dismisses Plea Against Demolition Of Ujjain's Shahi Masjid Portion For Simhastha Kumbh Road Widening
+https://www.verdictum.in/madhya-pradesh-high-court/2026mphc-ind-25189-shahi-masjid-waqf-panchayat-mochiyaan-v-state-of-madhya-pradesh-1621775
+
+[Source Link](https://t.me/verdictumlegalupdates/29039)
+
+---
+
+### 2026-09-11T09:52:08+00:00
+Merely Because The Petitioner Is An Advocate Does Not Place Him Above The Law: Jammu & Kashmir and Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/wasim-ahmad-reshi-v-ut-of-jk-advocate-not-above-law-1621774
+
+[Source Link](https://t.me/verdictumlegalupdates/29038)
+
+---
+
+### 2026-09-11T09:13:07+00:00
+Mere Long Possession Not Evidence Of Adverse Possession; Element Of Hostility Has To Be Affirmatively Established: Supreme Court
+https://www.verdictum.in/supreme-court/bhag-singh-d-v-basant-kaur-d-thr-lrs-and-others-2026-insc-983-long-possession-evidence-1621771
+
+[Source Link](https://t.me/verdictumlegalupdates/29037)
+
+---
+
+### 2026-09-11T08:32:46+00:00
+Offerings Made To Hereditary Priest Are His Individual Income, Not Joint Family Property: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/rajamati-v-leelavathi-2026khc-k8754-db-priest-temple-offering-individual-income-1621768
+
+[Source Link](https://t.me/verdictumlegalupdates/29036)
+
+---
+
+### 2026-09-11T07:53:05+00:00
+Reconstituted Partnership Firm Can’t Utilize Assets of Dissolved Firm Unless Accounts Are Settled With Outgoing Partner: Supreme Court
+https://www.verdictum.in/supreme-court/v-sumitra-reddy-v-k-ranganadha-reddy-2026-insc-979-reconstituted-partnership-firm-1621761
+
+[Source Link](https://t.me/verdictumlegalupdates/29035)
+
+---
+
+### 2026-09-11T07:12:44+00:00
+Kerala High Court Holds That Limitation Of 90 Days Will Apply To Writ Petitions Under Article 226 Challenging AFT's Decisions
+https://www.verdictum.in/kerala-high-court/union-of-india-v-ex-havildar-binu-c-2026ker63807-aft-90-days-writ-petition-limitation-1621763
+
+[Source Link](https://t.me/verdictumlegalupdates/29034)
+
+---
+
+### 2026-09-11T06:33:03+00:00
+Supreme Court Flags "Two-Or-More Nutrient" Threshold And Red Hexagon Label’s Non-Veg Colour Clash, Poses 13 Questions Before Finalising Front-Of-Pack Labelling
+https://www.verdictum.in/supreme-court/3s-and-our-health-society-v-union-of-india-2026-insc-988-red-hexagon-labels-non-veg-colour-clash-fssai-1621756
+
+[Source Link](https://t.me/verdictumlegalupdates/29033)
+
+---
+
+### 2026-09-11T05:52:22+00:00
+Baptismal Certificate Not A Prescribed Document U/S 94 JJ Act To Prove Minor’s Age: Supreme Court Converts POCSO Conviction Into Rape U/S 376 IPC
+https://www.verdictum.in/supreme-court/pynchemalangaki-bareh-v-state-of-meghalaya-2026-insc-984-pocso-conviction-into-rape-94-jj-act-1621751
+
+[Source Link](https://t.me/verdictumlegalupdates/29032)
+
+---
+
+### 2026-09-11T05:12:21+00:00
+Compulsory Retirement Order Partaking Character Of Backdoor Disciplinary Proceeding Is Indefensible: Supreme Court Orders ₹15L Compensation To Ex-ITS Officer
+https://www.verdictum.in/supreme-court/ss-das-v-union-of-india-2026-insc-980-compulsory-retirement-disciplinary-proceeding-1621745
+
+[Source Link](https://t.me/verdictumlegalupdates/29031)
 
 ---
 
@@ -81,86 +161,6 @@ Supreme Court Agrees To Hear Plea Seeking National Policy For Welfare Of Private
 https://www.verdictum.in/supreme-court/plea-seeking-national-policy-for-welfare-of-private-school-teachers-1621703
 
 [Source Link](https://t.me/verdictumlegalupdates/29021)
-
----
-
-### 2026-09-10T11:33:14+00:00
-Calcutta High Court Permits Mamta Banerjee To Hold Public Meeting In Sreerampur Instead Of Procession
-https://www.verdictum.in/calcutta-high-court/mamta-banerjee-permitted-hold-public-meeting-in-sreerampur-instead-of-procession-1621702
-
-[Source Link](https://t.me/verdictumlegalupdates/29020)
-
----
-
-### 2026-09-10T10:52:53+00:00
-Delhi High Court Orders CJP's Saurav Das and Ashutosh Ranka To Remove Posts Against Gaurav Bhatia
-https://www.verdictum.in/delhi-high-court/cjps-saurav-das-and-ashutosh-ranka-to-remove-posts-against-gaurav-bhatia-1621700
-
-[Source Link](https://t.me/verdictumlegalupdates/29019)
-
----
-
-### 2026-09-10T10:12:32+00:00
-Supreme Court Asks Delhi High Court To Monitor Satya Niketan Building Collapse Case; Directs Authorities To File Fresh Reports On Illegal Construction & Misuse
-https://www.verdictum.in/supreme-court/delhi-high-court-to-monitor-satya-niketan-building-collapse-case-1621701
-
-[Source Link](https://t.me/verdictumlegalupdates/29018)
-
----
-
-### 2026-09-10T09:53:11+00:00
-Supreme Court Agrees To Hear Plea Seeking Safeguards For Minors Accessing Social Media
-https://www.verdictum.in/supreme-court/plea-seeking-safeguards-for-minors-accessing-social-media-1621695
-
-[Source Link](https://t.me/verdictumlegalupdates/29017)
-
----
-
-### 2026-09-10T09:12:30+00:00
-Scores Of Citizens Cannot Be Made To Wait For Conversion Of Their Properties From Leasehold To Freehold: Delhi High Court Tells MoHUA & DDA
-https://www.verdictum.in/delhi-high-court/delhi-development-authority-v-mala-sahni-seth-2026dhc7651-db-leasehold-freehold-property-conversion-1621698
-
-[Source Link](https://t.me/verdictumlegalupdates/29016)
-
----
-
-### 2026-09-10T08:32:29+00:00
-Supreme Court Issues Notice In PIL Seeking Standard Investigation Procedure & Speedy Trial For Child Kidnapping And Trafficking Cases
-https://www.verdictum.in/supreme-court/pil-seeking-standard-investigation-procedure-speedy-trial-child-kidnapping-trafficking-cases-1621688
-
-[Source Link](https://t.me/verdictumlegalupdates/29015)
-
----
-
-### 2026-09-10T07:52:48+00:00
-Supreme Court Denies Pre-Arrest Bail To Abhishek Banerjee's PA Sumit Roy In Land Fraud Case
-https://www.verdictum.in/supreme-court/denies-pre-arrest-bail-abhishek-banerjee-sumit-roy-land-fraud-case-1621692
-
-[Source Link](https://t.me/verdictumlegalupdates/29014)
-
----
-
-### 2026-09-10T07:12:47+00:00
-Supreme Court Refuses To Entertain PIL Raising Concerns Over HPV Vaccination Campaign
-https://www.verdictum.in/supreme-court/pil-raising-concerns-over-hpv-vaccination-campaign-refused-1621686
-
-[Source Link](https://t.me/verdictumlegalupdates/29013)
-
----
-
-### 2026-09-10T06:22:46+00:00
-Related Witnesses Can’t Be Called Interested Witnesses; But Closer Scrutiny Warranted If A Ring Of Falsity Found In Their Testimonies: Supreme Court
-https://www.verdictum.in/supreme-court/ashok-upadhyay-v-the-state-of-bihar-2026-insc-971-related-witnesses-deceased-testimonies-1621676
-
-[Source Link](https://t.me/verdictumlegalupdates/29012)
-
----
-
-### 2026-09-10T05:32:05+00:00
-Supreme Court Rejects Abu Salem's Early Release Plea In 1993 Bombay Blast Case
-https://www.verdictum.in/supreme-court/rejects-abu-salem-early-release-plea-1621674
-
-[Source Link](https://t.me/verdictumlegalupdates/29011)
 
 ---
 
