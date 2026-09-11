@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-11T11:13:06+00:00*
+*Last Updated: 2026-09-11T11:22:36+00:00*
 
 ---
 
-### 2026-09-11T11:13:06+00:00
-Mere Reference To Amarnath Yatra Cannot Justify Preventive Detention Based On Stale Material: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/reference-to-amarnath-yatra-cannot-substitute-specific-material-linking-detenu-to-threat-jk-high-court-quashes-psa-detention-549689
-
-[Read on Telegram](https://t.me/livelawindia/119665)
-
----
-### 2026-09-11T11:19:26+00:00
-Surat Demolition: Civic Body Disputes Residents' Claim Of 'Dilapidated' Rehabilitation Homes Before Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-surat-municipal-corporation-demolition-rehabilitation-549757
-
-[Read on Telegram](https://t.me/livelawindia/119666)
-
----
 ### 2026-09-11T11:22:36+00:00
 Saharanpur Mosque Demolition | High Court Seeks UP Govt's Reply On Plea Against Eviction, Stays ₹6.41 Crore Recovery Damages
 https://www.livelaw.in/high-court/allahabad-high-court/saharanpur-mosque-demolition-allahabad-high-court-6-crore-damages-recovery-549758
@@ -142,5 +128,19 @@ Amount Debited From ATM Transaction But No Cash Dispensed: Consumer Commission H
 https://www.livelaw.in/consumer-cases/amount-debited-from-atm-transaction-but-no-cash-dispensed-consumer-commission-holds-bank-liable-549792
 
 [Read on Telegram](https://t.me/livelawindia/119684)
+
+---
+### 2026-09-11T17:37:11+00:00
+Applications Open For Certificate Course On Criminal Defence Practice At NALSAR's Square Circle Clinic
+https://www.livelaw.in/events/certificate-course-on-criminal-defence-practice-at-nalsar-square-circle-clinic-549793
+
+[Read on Telegram](https://t.me/livelawindia/119685)
+
+---
+### 2026-09-11T17:54:01+00:00
+LiveLaw High Courts Daily Highlights: September 11, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-11-2026-549794
+
+[Read on Telegram](https://t.me/livelawindia/119686)
 
 ---
