@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-10T14:41:57+00:00*
+*Last Updated: 2026-09-10T15:21:28+00:00*
 
 ---
 
-### 2026-09-10T14:41:57+00:00
-Long Possession Alone Does Not Prove Adverse Possession,Hostile Intent Essential : Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-long-possession-alone-does-not-prove-adverse-possession-hostile-intent-essential-549621
-
-[Read on Telegram](https://t.me/livelawindia/119582)
-
----
-### 2026-09-10T14:42:58+00:00
-2026 LiveLaw (SC) 923 | Bhag Singh (dead) through Mahant Kashmir Singh v Basant Kaur (dead) through LRs & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-923-bhag-singh-dead-through-mahant-kashmir-singh-v-basant-kaur-dead-through-lrs-ors-549623
-
-[Read on Telegram](https://t.me/livelawindia/119583)
-
----
-### 2026-09-10T14:52:18+00:00
-Rape Conviction Possible Even Without S.376 IPC Charge When POCSO Charge Fails Over Victim's Age: Supreme Court
-https://www.livelaw.in/supreme-court/rape-conviction-possible-even-without-s376-ipc-charge-when-pocso-charge-fails-over-victims-age-supreme-court-549625
-
-[Read on Telegram](https://t.me/livelawindia/119584)
-
----
-### 2026-09-10T14:52:38+00:00
-Divorced Wife Can Continue To Claim Maintenance If She Has Not Remarried: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/divorced-wife-can-continue-to-claim-maintenance-if-she-has-not-remarried-calcutta-high-court-549610
-
-[Read on Telegram](https://t.me/livelawindia/119585)
-
----
-### 2026-09-10T14:53:18+00:00
-2026 LiveLaw (SC) 924 | PYNCHEMALANGAKI BAREH VERSUS STATE OF MEGHALAYA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-924-pynchemalangaki-bareh-versus-state-of-meghalaya-549627
-
-[Read on Telegram](https://t.me/livelawindia/119586)
-
----
-### 2026-09-10T14:56:18+00:00
-Supreme Court Collegium Proposes Elevation Of 8 Judicial Officers As Delhi High Court Judges
-https://www.livelaw.in/top-stories/supreme-court-collegium-proposes-elevation-of-8-judicial-officers-as-delhi-high-court-judges-549628
-
-[Read on Telegram](https://t.me/livelawindia/119587)
-
----
-### 2026-09-10T15:03:38+00:00
-Supreme Court Stays Reinstatement Of IAS Officer Who Emptied Delhi Stadium To Walk Her Dog
-https://www.livelaw.in/top-stories/supreme-court-stays-reinstatement-of-ias-officer-who-emptied-delhi-stadium-to-walk-her-dog-549630
-
-[Read on Telegram](https://t.me/livelawindia/119588)
-
----
-### 2026-09-10T15:15:28+00:00
-Supreme Court Collegium Approves Three Appointments to Karnataka High Court
-https://www.livelaw.in/high-court/all-high-courts/supreme-court-collegium-approves-three-appointments-to-karnataka-high-court-549635
-
-[Read on Telegram](https://t.me/livelawindia/119589)
-
----
 ### 2026-09-10T15:21:28+00:00
 Supreme Court Collegium Approves Three Appointments to Jharkhand High Court
 https://www.livelaw.in/top-stories/supreme-court-collegium-approves-three-appointments-to-jharkhand-high-court-549636
@@ -142,5 +86,61 @@ LiveLaw High Courts Daily Highlights: September 10, 2026
 https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-10-2026-549650
 
 [Read on Telegram](https://t.me/livelawindia/119601)
+
+---
+### 2026-09-11T02:42:57+00:00
+Bank Liable For Delaying Release Of Deceased Depositor's Funds To Elderly Husband: Ernakulam Consumer Commission
+https://www.livelaw.in/consumer-cases/bank-liable-for-delaying-release-of-deceased-depositors-funds-to-elderly-husband-ernakulam-consumer-commission-549651
+
+[Read on Telegram](https://t.me/livelawindia/119602)
+
+---
+### 2026-09-11T02:49:17+00:00
+Unproven Misconduct No Ground To Deny Back Wages Entirely; Delhi HC Grants 50% Relief
+https://www.livelaw.in/high-court/delhi-high-court/unproven-misconduct-no-ground-to-deny-back-wages-entirely-delhi-hc-grants-50-relief-549652
+
+[Read on Telegram](https://t.me/livelawindia/119603)
+
+---
+### 2026-09-11T03:03:47+00:00
+Supreme Court Refuses To Stay Bombay High Court's Contempt Proceedings Agaisnt Law Secretary Over 'Outburst' In Court
+https://www.livelaw.in/top-stories/supreme-court-refuses-to-stay-bombay-high-courts-contempt-proceedings-agaisnt-law-secretary-over-outburst-in-court-549653
+
+[Read on Telegram](https://t.me/livelawindia/119604)
+
+---
+### 2026-09-11T03:23:28+00:00
+Project Assistant-I Vacancy At Indian Institute Of Technology, Gandhinagar (IITGN)
+https://www.livelaw.in/job-updates/project-assistant-i-vacancy-at-indian-institute-of-technology-gandhinagar-549655
+
+[Read on Telegram](https://t.me/livelawindia/119605)
+
+---
+### 2026-09-11T03:24:48+00:00
+Professor And Associate Professor Vacancy At National Law University, Tripura
+https://www.livelaw.in/job-updates/professor-and-associate-professor-vacancy-at-national-law-university-tripura-549656
+
+[Read on Telegram](https://t.me/livelawindia/119606)
+
+---
+### 2026-09-11T03:25:28+00:00
+Young Professional Vacancy At Office Of Joint Director General Of Foreign Trade, Guwahаtі
+https://www.livelaw.in/job-updates/young-professional-vacancy-at-office-of-joint-director-general-of-foreign-trade-guwaht-549657
+
+[Read on Telegram](https://t.me/livelawindia/119607)
+
+---
+### 2026-09-11T03:32:48+00:00
+Rajasthan High Court Constitutes Committee To Oversee Sanitation, Healthcare, Law & Order At Ramdevra Temple
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-constitutes-committee-oversee-sanitation-healthcare-law-order-ramdevra-temple-549643
+
+[Read on Telegram](https://t.me/livelawindia/119608)
+
+---
+### 2026-09-11T03:47:29+00:00
+Karnataka High Court Upholds FIR Against Ex-SP Accused Of Hurling Paperweight At Subordinate For Missing Sports Activities
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-sends-ex-sp-trial-2012paperweight-assault-subordinate-spares-inspector-549646
+
+[Read on Telegram](https://t.me/livelawindia/119609)
 
 ---
