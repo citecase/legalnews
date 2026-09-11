@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-10T16:03:03+00:00*
+*Last Updated: 2026-09-11T04:32:30+00:00*
+
+---
+
+### 2026-09-11T04:32:30+00:00
+Not Proper to Entertain Arbitration Application Filed Later In Time When Another Party Has Invoked Arbitration Clause In Relation to Disputes Arising Out of Partnership Deeds: Telangana High Court
+https://www.verdictum.in/telangana-high-court/am-emanuel-and-two-others-v-vinay-palaparth-arbitration-application-partnership-deeds-1621721
+
+[Source Link](https://t.me/verdictumlegalupdates/29030)
 
 ---
 
@@ -153,14 +161,6 @@ Supreme Court Rejects Abu Salem's Early Release Plea In 1993 Bombay Blast Case
 https://www.verdictum.in/supreme-court/rejects-abu-salem-early-release-plea-1621674
 
 [Source Link](https://t.me/verdictumlegalupdates/29011)
-
----
-
-### 2026-09-10T05:12:44+00:00
-Ignoring Sexual Harassment Complaints Does Not Constitute Abetment Of Offence: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/2026-gujhc-55473-abatement-of-offence-ignoring-complaint-1621668
-
-[Source Link](https://t.me/verdictumlegalupdates/29010)
 
 ---
 
