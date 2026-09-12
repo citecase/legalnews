@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-11T16:02:18+00:00*
+*Last Updated: 2026-09-12T04:32:53+00:00*
+
+---
+
+### 2026-09-12T04:32:53+00:00
+Would Open A Pandora's Box: Delhi High Court Declines To Let Vinesh Phogat Participate In 2026 Senior World Wrestling Championship Selection Trials
+https://www.verdictum.in/delhi-high-court/vinesh-phogat-v-wrestling-federation-of-india-2026dhc7773-2026-senior-world-wrestling-championship-1621796
+
+[Source Link](https://t.me/verdictumlegalupdates/29050)
 
 ---
 
@@ -153,14 +161,6 @@ Compulsory Retirement Order Partaking Character Of Backdoor Disciplinary Proceed
 https://www.verdictum.in/supreme-court/ss-das-v-union-of-india-2026-insc-980-compulsory-retirement-disciplinary-proceeding-1621745
 
 [Source Link](https://t.me/verdictumlegalupdates/29031)
-
----
-
-### 2026-09-11T04:32:30+00:00
-Not Proper to Entertain Arbitration Application Filed Later In Time When Another Party Has Invoked Arbitration Clause In Relation to Disputes Arising Out of Partnership Deeds: Telangana High Court
-https://www.verdictum.in/telangana-high-court/am-emanuel-and-two-others-v-vinay-palaparth-arbitration-application-partnership-deeds-1621721
-
-[Source Link](https://t.me/verdictumlegalupdates/29030)
 
 ---
 
