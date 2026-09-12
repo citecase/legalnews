@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-11T11:22:36+00:00*
+*Last Updated: 2026-09-11T12:02:16+00:00*
 
 ---
 
-### 2026-09-11T11:22:36+00:00
-Saharanpur Mosque Demolition | High Court Seeks UP Govt's Reply On Plea Against Eviction, Stays ₹6.41 Crore Recovery Damages
-https://www.livelaw.in/high-court/allahabad-high-court/saharanpur-mosque-demolition-allahabad-high-court-6-crore-damages-recovery-549758
-
-[Read on Telegram](https://t.me/livelawindia/119667)
-
----
-### 2026-09-11T11:32:56+00:00
-Karnataka High Court Directs Pension For Para Athlete, Says Can't Exclude From Scheme Over Nomenclature Of Event
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-fespic-games-precursor-asian-para-games-excluded-pension-scheme-549759
-
-[Read on Telegram](https://t.me/livelawindia/119668)
-
----
-### 2026-09-11T11:42:56+00:00
-Madras High Court Quashes Case Against Men For Raising Pro-Palestine Slogans, Says No Crime Committed
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-pro-palestine-slogan-criminal-case-quashed-549762
-
-[Read on Telegram](https://t.me/livelawindia/119669)
-
----
-### 2026-09-11T11:52:56+00:00
-Kerala High Court Grants Pre-Arrest Bail To 17 SFI Activists Booked For Assaulting University VC Ciza Thomas
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sfi-activists-sree-sankaracharya-university-of-sanskrit-vc-549763
-
-[Read on Telegram](https://t.me/livelawindia/119670)
-
----
-### 2026-09-11T11:58:36+00:00
-Karnataka High Court Questions GBA's Waste Management Claims, Seeks Report On Segregation, Disposal And Landfills
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-seeks-comprehensive-report-gba-bda-waste-disposal-landfill-deposits-549771
-
-[Read on Telegram](https://t.me/livelawindia/119671)
-
----
 ### 2026-09-11T12:02:16+00:00
 After Bombay High Court Rap, Pune Collector Withdraws 12-Day Ban On Alcohol Sale
 https://www.livelaw.in/high-court/bombay-high-court/after-bombay-high-court-rap-pune-collector-withdraws-12-day-ban-on-alcohol-sale-549773
@@ -142,5 +107,40 @@ LiveLaw High Courts Daily Highlights: September 11, 2026
 https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-11-2026-549794
 
 [Read on Telegram](https://t.me/livelawindia/119686)
+
+---
+### 2026-09-12T02:32:56+00:00
+Maharashtra's Anti-Conversion Law Challenged In Bombay High Court, Plea Alleges Violation Of Religious Freedom, Privacy
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-plea-maharashtra-freedom-of-religion-act-fundamental-rights-549802
+
+[Read on Telegram](https://t.me/livelawindia/119687)
+
+---
+### 2026-09-12T02:53:57+00:00
+Supreme Court Stays Gujarat HC Proceedings In Plea To Regulate  Deepfake, AI Content, As Centre Seeks Transfer Of Case To SC
+https://www.livelaw.in/top-stories/supreme-court-stays-pil-proceedings-before-gujarat-high-court-deepfake-content-artificial-intelligence-sahyog-portal-union-plea-to-transfer-549809
+
+[Read on Telegram](https://t.me/livelawindia/119688)
+
+---
+### 2026-09-12T03:02:47+00:00
+'Should Have Been Posted Here Years Ago': Justice Manash Ranjan Pathak Bids Adieu To Orissa High Court
+https://www.livelaw.in/high-court/orissa-high-court/justice-manash-ranjan-pathak-bids-farewell-transfer-to-gujarat-549804
+
+[Read on Telegram](https://t.me/livelawindia/119689)
+
+---
+### 2026-09-12T03:32:30+00:00
+LiveLaw Supreme Court Half-Yearly Digest: January-June 2026 [Part 1]
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-half-yearly-digest-2026-549797
+
+[Read on Telegram](https://t.me/livelawindia/119690)
+
+---
+### 2026-09-12T03:32:49+00:00
+Madras High Court Refuses To Stay Tamil Nadu's Plan To Introduce Digital Driving Licences, RCs; Issues Notice On Plea
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-no-stay-state-proposal-digital-driving-license-registration-certificate-549796
+
+[Read on Telegram](https://t.me/livelawindia/119691)
 
 ---
