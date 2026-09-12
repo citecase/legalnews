@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-12T04:32:53+00:00*
+*Last Updated: 2026-09-12T10:32:18+00:00*
+
+---
+
+### 2026-09-12T10:32:18+00:00
+Mere Volume Not Disorderly Behaviour: Bombay High Court Quashes FIR Against Two Men Accused Of Loud Shouting In Public Street
+https://www.verdictum.in/bombay-high-court/lakhan-lalchand-dhamwani-v-the-state-of-maharashtra-2026bhc-as35707-fir-shouting-public-1621843
+
+[Source Link](https://t.me/verdictumlegalupdates/29056)
+
+---
+
+### 2026-09-12T09:32:57+00:00
+Dispute Relating To Bar Association Membership Private In Nature; Writ Petition Not Maintainable: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/lal-bihari-verma-v-state-of-up-2026ahc-lko63110-db-bar-association-membership-article-226-1621840
+
+[Source Link](https://t.me/verdictumlegalupdates/29055)
+
+---
+
+### 2026-09-12T08:33:16+00:00
+No Inflexible Rule That Every Matrimonial Proceeding Must Be Transferred To Place Of Wife's Choice: Kerala High Court
+https://www.verdictum.in/kerala-high-court/shanmukhan-v-ashwathy-g-s-2026ker68454-proceeding-wife-transfer-chosen-place-1621835
+
+[Source Link](https://t.me/verdictumlegalupdates/29054)
+
+---
+
+### 2026-09-12T07:32:36+00:00
+FSSAI License Cannot Be Kept Under Continued Suspension Post-Compliance Unless Exceptional Risk To Public Health Exists: Bombay High Court
+https://www.verdictum.in/bombay-high-court/hotel-alankar-v-state-of-maharashtra-2026bhc-kol8650-db-fssai-license-continued-suspension-1621830
+
+[Source Link](https://t.me/verdictumlegalupdates/29053)
+
+---
+
+### 2026-09-12T06:32:35+00:00
+Victim & Accused Didn’t Take Divorce From Their Respective Spouses: Himachal Pradesh High Court Grants Bail To Accused In Section 69 BNS Case
+https://www.verdictum.in/himachal-high-court/vinod-kumar-v-state-of-himachal-pradesh-2026hhc37603-false-promise-to-marry-divorce-1621826
+
+[Source Link](https://t.me/verdictumlegalupdates/29052)
+
+---
+
+### 2026-09-12T05:33:14+00:00
+Calcutta High Court Orders State To Rebuild Property & Pay ₹10L Compensation For Excess Demolition Beyond Encroachment Order
+https://www.verdictum.in/calcutta-high-court/rebuild-demolished-property-pay-10-lakh-compensation-excess-demolition-1621821
+
+[Source Link](https://t.me/verdictumlegalupdates/29051)
 
 ---
 
@@ -113,54 +161,6 @@ Mere Long Possession Not Evidence Of Adverse Possession; Element Of Hostility Ha
 https://www.verdictum.in/supreme-court/bhag-singh-d-v-basant-kaur-d-thr-lrs-and-others-2026-insc-983-long-possession-evidence-1621771
 
 [Source Link](https://t.me/verdictumlegalupdates/29037)
-
----
-
-### 2026-09-11T08:32:46+00:00
-Offerings Made To Hereditary Priest Are His Individual Income, Not Joint Family Property: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/rajamati-v-leelavathi-2026khc-k8754-db-priest-temple-offering-individual-income-1621768
-
-[Source Link](https://t.me/verdictumlegalupdates/29036)
-
----
-
-### 2026-09-11T07:53:05+00:00
-Reconstituted Partnership Firm Can’t Utilize Assets of Dissolved Firm Unless Accounts Are Settled With Outgoing Partner: Supreme Court
-https://www.verdictum.in/supreme-court/v-sumitra-reddy-v-k-ranganadha-reddy-2026-insc-979-reconstituted-partnership-firm-1621761
-
-[Source Link](https://t.me/verdictumlegalupdates/29035)
-
----
-
-### 2026-09-11T07:12:44+00:00
-Kerala High Court Holds That Limitation Of 90 Days Will Apply To Writ Petitions Under Article 226 Challenging AFT's Decisions
-https://www.verdictum.in/kerala-high-court/union-of-india-v-ex-havildar-binu-c-2026ker63807-aft-90-days-writ-petition-limitation-1621763
-
-[Source Link](https://t.me/verdictumlegalupdates/29034)
-
----
-
-### 2026-09-11T06:33:03+00:00
-Supreme Court Flags "Two-Or-More Nutrient" Threshold And Red Hexagon Label’s Non-Veg Colour Clash, Poses 13 Questions Before Finalising Front-Of-Pack Labelling
-https://www.verdictum.in/supreme-court/3s-and-our-health-society-v-union-of-india-2026-insc-988-red-hexagon-labels-non-veg-colour-clash-fssai-1621756
-
-[Source Link](https://t.me/verdictumlegalupdates/29033)
-
----
-
-### 2026-09-11T05:52:22+00:00
-Baptismal Certificate Not A Prescribed Document U/S 94 JJ Act To Prove Minor’s Age: Supreme Court Converts POCSO Conviction Into Rape U/S 376 IPC
-https://www.verdictum.in/supreme-court/pynchemalangaki-bareh-v-state-of-meghalaya-2026-insc-984-pocso-conviction-into-rape-94-jj-act-1621751
-
-[Source Link](https://t.me/verdictumlegalupdates/29032)
-
----
-
-### 2026-09-11T05:12:21+00:00
-Compulsory Retirement Order Partaking Character Of Backdoor Disciplinary Proceeding Is Indefensible: Supreme Court Orders ₹15L Compensation To Ex-ITS Officer
-https://www.verdictum.in/supreme-court/ss-das-v-union-of-india-2026-insc-980-compulsory-retirement-disciplinary-proceeding-1621745
-
-[Source Link](https://t.me/verdictumlegalupdates/29031)
 
 ---
 
