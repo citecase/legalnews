@@ -1,107 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-12T03:32:30+00:00*
+*Last Updated: 2026-09-12T06:56:32+00:00*
 
 ---
 
-### 2026-09-12T03:32:30+00:00
-LiveLaw Supreme Court Half-Yearly Digest: January-June 2026 [Part 1]
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-half-yearly-digest-2026-549797
-
-[Read on Telegram](https://t.me/livelawindia/119690)
-
----
-### 2026-09-12T03:32:49+00:00
-Madras High Court Refuses To Stay Tamil Nadu's Plan To Introduce Digital Driving Licences, RCs; Issues Notice On Plea
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-no-stay-state-proposal-digital-driving-license-registration-certificate-549796
-
-[Read on Telegram](https://t.me/livelawindia/119691)
-
----
-### 2026-09-12T04:03:10+00:00
-Kerala High Court Sets 2-Week Deadline For Deciding Regular Bail Pleas, 6 Weeks For Anticipatory Bail Applications
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-timelines-disposal-bail-application-549800
-
-[Read on Telegram](https://t.me/livelawindia/119692)
-
----
-### 2026-09-12T04:24:40+00:00
-Conversion Of Charge  From  Serious To Non Serious Provision Shall Not Relate Back To Date Of Charge, Cant Consider For  Promotion:Madras High court
-https://www.livelaw.in/high-court/madras-high-court/conversion-of-charge-from-serious-to-non-serious-provision-shall-not-relate-back-to-date-of-charge-cant-consider-for-promotionmadras-high-court-549822
-
-[Read on Telegram](https://t.me/livelawindia/119693)
-
----
-### 2026-09-12T04:32:40+00:00
-LiveLaw Chhattisgarh High Court Monthly Digest: August 2026
-https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-monthly-digest-august-2026-548807
-
-[Read on Telegram](https://t.me/livelawindia/119694)
-
----
-### 2026-09-12T04:32:50+00:00
-$18 Billion Over Claims Of Harm To Children's Mental Health: Is It Still a Win for Meta ?
-https://www.livelaw.in/articles/18billion-over-claims-harm-children-mental-health-549810
-
-[Read on Telegram](https://t.me/livelawindia/119695)
-
----
-### 2026-09-12T04:57:21+00:00
-Calcutta High Court Chief Justice Unveils Portrait Of Late AK Sen At High Court Bar Library Club
-https://www.livelaw.in/news-updates/calcutta-high-court-chief-justice-unveils-potrait-of-late-ak-sen-at-high-court-bar-library-club-549806
-
-[Read on Telegram](https://t.me/livelawindia/119696)
-
----
-### 2026-09-12T05:03:11+00:00
-Karnataka High Court Refuses To Quash FIR Over MBBS Seat Fraud, Says 'Cloak' Of Civil Transaction Can't Defeat Criminal Probe
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-quash-fir-mbbs-seat-fraud-case-549801
-
-[Read on Telegram](https://t.me/livelawindia/119697)
-
----
-### 2026-09-12T05:32:11+00:00
-Order XI CPC Discovery Can't Be Used To Collect Evidence Available In Public Domain, Law Doesn't Aid Indolent: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/order-xi-cpc-discovery-cant-collect-evidence-in-public-domain-549805
-
-[Read on Telegram](https://t.me/livelawindia/119698)
-
----
-### 2026-09-12T06:07:22+00:00
-Electricity Act | Past Dues Beyond Two Years Can Be Recovered Only If Continuously Shown As Arrear : Supreme Court
-https://www.livelaw.in/supreme-court/electricity-act-past-dues-beyond-two-years-can-be-recovered-only-if-continuously-shown-as-arrear-supreme-court-549827
-
-[Read on Telegram](https://t.me/livelawindia/119699)
-
----
-### 2026-09-12T06:08:22+00:00
-2026 LiveLaw (SC) 929 |  DAKSCHINANCHAL VIDYUT VITRAN NIGAM LTD. VERSUS VIDUT LOKPAL, UTTAR PRADESH AND OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-929-dakschinanchal-vidyut-vitran-nigam-ltd-versus-vidut-lokpal-uttar-pradesh-and-others-549828
-
-[Read on Telegram](https://t.me/livelawindia/119700)
-
----
-### 2026-09-12T06:15:42+00:00
-Is CLAT Testing The Right Skills For Law School?
-https://www.livelaw.in/lawschool/articles/clat-testing-right-skills-law-school-549830
-
-[Read on Telegram](https://t.me/livelawindia/119701)
-
----
-### 2026-09-12T06:32:42+00:00
-RTE Act | Assistant Teacher's Appointment Without TET Saved If Qualification Acquired Before 31.03.2015 Deadline: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-rte-act-assistant-teacher-appointment-tet-qualification-acquired-549803
-
-[Read on Telegram](https://t.me/livelawindia/119702)
-
----
-### 2026-09-12T06:34:42+00:00
-Explained | Controversy Surrounding UP Judge Ravi Kumar Diwakar
-https://www.livelaw.in/articles/judge-ravi-kumar-diwakar-too-close-to-power-too-quick-to-kill-549831
-
-[Read on Telegram](https://t.me/livelawindia/119703)
-
----
 ### 2026-09-12T06:56:32+00:00
 Lucknow District Court Encroachments: High Court Orders Removal Of Remaining Illegal Structures, Notes 57 More Demolished
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-lucknow-district-court-encroachments-removal-illegal-structures-demolition-549832
@@ -142,5 +44,103 @@ PIL Moved In Bombay High Court Challenging Constitutional Validity Of Bombay Pre
 https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-pil-validity-bombay-prevention-of-begging-act-549816
 
 [Read on Telegram](https://t.me/livelawindia/119709)
+
+---
+### 2026-09-12T10:27:21+00:00
+AP Liquor Scam: Supreme Court Denies Anticipatory Bail To Former APSBCL Managing Director & Ex-IT Advisor To YSRCP Govt
+https://www.livelaw.in/news-updates/supreme-court-denies-anticipatory-bail-to-rajashekhar-reddy-donthireddy-vasudeva-in-andhra-pradesh-liquor-transportation-tender-scam-549857
+
+[Read on Telegram](https://t.me/livelawindia/119710)
+
+---
+### 2026-09-12T10:30:41+00:00
+Arbitration Clause In One Agreement Can Bind Party To Another Instrument Forming Part Of Composite Transaction: Supreme Court
+https://www.livelaw.in/supreme-court/arbitration-clause-in-one-agreement-can-bind-party-to-another-instrument-forming-part-of-composite-transaction-supreme-court-549858
+
+[Read on Telegram](https://t.me/livelawindia/119711)
+
+---
+### 2026-09-12T10:31:41+00:00
+2026 LiveLaw (SC) 930 | NATIONAL SKILL DEVELOPMENT CORPORATION VERSUS SURYA WIRES PRIVATE LIMITED & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-930-national-skill-development-corporation-versus-surya-wires-private-limited-ors-549859
+
+[Read on Telegram](https://t.me/livelawindia/119712)
+
+---
+### 2026-09-12T10:33:01+00:00
+LiveLaw Madhya Pradesh High Court Monthly Digest: August 2026
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-monthly-digest-august-2026-548863
+
+[Read on Telegram](https://t.me/livelawindia/119713)
+
+---
+### 2026-09-12T10:37:01+00:00
+Apprenticeship Training Program - Legal Apprentice Vacancy At Telecommunications Consultants India Limited
+https://www.livelaw.in/job-updates/apprenticeship-training-program-legal-apprentice-vacancy-at-telecommunications-consultants-india-limited-549860
+
+[Read on Telegram](https://t.me/livelawindia/119714)
+
+---
+### 2026-09-12T10:38:21+00:00
+General Manager (Legal) Vacancy At National Highways Authority Of India (NHAI)
+https://www.livelaw.in/job-updates/general-manager-legal-vacancy-at-national-highways-authority-of-india-nhai-549861
+
+[Read on Telegram](https://t.me/livelawindia/119715)
+
+---
+### 2026-09-12T11:32:12+00:00
+Single Grave Act Can Constitute 'Cruelty' Under S. 498A IPC, Series Of Acts Not Necessary: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-vague-allegations-498a-ipc-549823
+
+[Read on Telegram](https://t.me/livelawindia/119716)
+
+---
+### 2026-09-12T11:32:32+00:00
+When Law Is Corrected But File Stays Closed: Benami Confiscation After Manjula
+https://www.livelaw.in/lawschool/articles/when-law-corrected-but-file-stays-closed-benami-confiscation-after-manjula-549812
+
+[Read on Telegram](https://t.me/livelawindia/119717)
+
+---
+### 2026-09-12T11:46:42+00:00
+Consultant Vacancy At Ernst & Young [Mumbai; Apply Now]
+https://www.livelaw.in/job-updates/consultant-vacancy-at-ernst-young-mumbai-549864
+
+[Read on Telegram](https://t.me/livelawindia/119718)
+
+---
+### 2026-09-12T12:32:22+00:00
+S.164 Electricity Act | Landowner Consent Not Required To Lay Power Transmission Lines, Compensation Remedy Survives: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-upholds-section-164-electricity-act-says-landowners-consent-not-necessary-to-lay-transmission-lines-549824
+
+[Read on Telegram](https://t.me/livelawindia/119719)
+
+---
+### 2026-09-12T14:12:26+00:00
+National Lok Adalat Held At Punjab And Haryana High Court, 388 Cases Settled
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/national-lok-adalat-held-at-punjab-and-haryana-high-court-388-cases-settled-549873
+
+[Read on Telegram](https://t.me/livelawindia/119720)
+
+---
+### 2026-09-12T14:13:46+00:00
+Para Legal Personnel/ Lawyer And Case Worker Vacancy At One Stop Centre Under Mission Shakti Scheme At Kuppam & Chittoor
+https://www.livelaw.in/job-updates/para-legal-personnel-lawyer-and-case-worker-vacancy-at-one-stop-centre-under-mission-shakti-scheme-at-kuppam-chittoor-549874
+
+[Read on Telegram](https://t.me/livelawindia/119721)
+
+---
+### 2026-09-12T14:15:46+00:00
+'What Protection Exists For A Person Whose Likeness Is Misused But Whose Name Has No Market Value?': Justice V. Mohana
+https://www.livelaw.in/top-stories/supreme-court-judge-v-mohana-music-cinema-law-549875
+
+[Read on Telegram](https://t.me/livelawindia/119722)
+
+---
+### 2026-09-12T14:32:36+00:00
+AIBE Open Book Exam That Is Anything But Cakewalk
+https://www.livelaw.in/articles/aibe-open-book-exam-anything-cakewalk-549813
+
+[Read on Telegram](https://t.me/livelawindia/119723)
 
 ---
