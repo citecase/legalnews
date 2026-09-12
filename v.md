@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-12T10:32:18+00:00*
+*Last Updated: 2026-09-12T15:32:43+00:00*
+
+---
+
+### 2026-09-12T15:32:43+00:00
+Young Professional Vacancy At Director General of Foreign Trade, Guwahati (DGFT Guwahati)
+https://www.verdictum.in/job-updates/director-general-of-foreign-trade-1621849
+
+[Source Link](https://t.me/verdictumlegalupdates/29061)
+
+---
+
+### 2026-09-12T14:33:02+00:00
+30% Representation Requirement Promptly Fulfilled: Allahabad High Court Upholds Bulandshahr Bar Elections After 4 Women Advocates Nominated Post-Poll
+https://www.verdictum.in/allahabad-high-court/bhavna-pandit-v-state-of-up-2026ahc189815-db-bulandshahr-bar-elections-after-4-women-advocates-nominated-post-poll-1621854
+
+[Source Link](https://t.me/verdictumlegalupdates/29060)
+
+---
+
+### 2026-09-12T13:32:41+00:00
+Illegal Arrest Requires Release Without Bail: Kerala High Court Directs Criminal Courts In State To Ensure Arrest Formalities Before Remand
+https://www.verdictum.in/kerala-high-court/jose-mp-v-state-of-kerala-2026ker69467-criminal-courts-in-state-to-ensure-arrest-formalities-before-remand-1621848
+
+[Source Link](https://t.me/verdictumlegalupdates/29059)
+
+---
+
+### 2026-09-12T12:33:20+00:00
+Accused Detained In Custody Beyond 24 Hours Without Magistrate’s Authority Entitled To Bail: Orissa High Court
+https://www.verdictum.in/orissa-high-court/sunil-mallick-v-state-of-odisha-accused-custody-24-hours-magistrate-bail-1621847
+
+[Source Link](https://t.me/verdictumlegalupdates/29058)
+
+---
+
+### 2026-09-12T11:32:39+00:00
+In Absence Of Custom, Court Can Always Believe Woman Has Inheritance Right: Gujarat High Court Upholds Tribal Widow's Will
+https://www.verdictum.in/gujarat-high-court/ranchhodbhai-jesingbhai-v-anchhibhai-kavjibhai-chaudhari-2026ghc57326-tribal-widows-will-calls-central-notification-extending-hindu-succession-act-1621844
+
+[Source Link](https://t.me/verdictumlegalupdates/29057)
 
 ---
 
@@ -121,46 +161,6 @@ Violence & Disturbances In State Is No Reason For Not Producing Accused Before C
 https://www.verdictum.in/manipur-high-court/2026-mnhc-195-lunkhogin-kipgen-v-officer-in-charge-narcotics-affairs-of-border-1621778
 
 [Source Link](https://t.me/verdictumlegalupdates/29042)
-
----
-
-### 2026-09-11T11:53:11+00:00
-Prima Facie Crosses Permissible Contours Of Comparative Advertising: Delhi High Court Restrains Beco's "War On What's Hidden" Campaign Against Vim And Surf Excel
-https://www.verdictum.in/delhi-high-court/hindustan-unilever-limited-v-kwick-living-i-private-limited-2026dhc7695-kwick-livings-war-on-whats-hidden-1621776
-
-[Source Link](https://t.me/verdictumlegalupdates/29041)
-
----
-
-### 2026-09-11T11:12:49+00:00
-Allahabad High Court Seeks UP Govt's Reply On Petition Against Saharanpur Mosque Demolition
-https://www.verdictum.in/allahabad-high-court/up-govts-reply-on-petition-against-saharanpur-mosque-demolition-1621777
-
-[Source Link](https://t.me/verdictumlegalupdates/29040)
-
----
-
-### 2026-09-11T10:32:49+00:00
-Madhya Pradesh High Court Dismisses Plea Against Demolition Of Ujjain's Shahi Masjid Portion For Simhastha Kumbh Road Widening
-https://www.verdictum.in/madhya-pradesh-high-court/2026mphc-ind-25189-shahi-masjid-waqf-panchayat-mochiyaan-v-state-of-madhya-pradesh-1621775
-
-[Source Link](https://t.me/verdictumlegalupdates/29039)
-
----
-
-### 2026-09-11T09:52:08+00:00
-Merely Because The Petitioner Is An Advocate Does Not Place Him Above The Law: Jammu & Kashmir and Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/wasim-ahmad-reshi-v-ut-of-jk-advocate-not-above-law-1621774
-
-[Source Link](https://t.me/verdictumlegalupdates/29038)
-
----
-
-### 2026-09-11T09:13:07+00:00
-Mere Long Possession Not Evidence Of Adverse Possession; Element Of Hostility Has To Be Affirmatively Established: Supreme Court
-https://www.verdictum.in/supreme-court/bhag-singh-d-v-basant-kaur-d-thr-lrs-and-others-2026-insc-983-long-possession-evidence-1621771
-
-[Source Link](https://t.me/verdictumlegalupdates/29037)
 
 ---
 
