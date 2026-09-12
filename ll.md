@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-12T06:56:32+00:00*
+*Last Updated: 2026-09-12T07:33:03+00:00*
 
 ---
 
-### 2026-09-12T06:56:32+00:00
-Lucknow District Court Encroachments: High Court Orders Removal Of Remaining Illegal Structures, Notes 57 More Demolished
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-lucknow-district-court-encroachments-removal-illegal-structures-demolition-549832
-
-[Read on Telegram](https://t.me/livelawindia/119704)
-
----
-### 2026-09-12T07:32:43+00:00
-Gendered Grammar Of Cultural Anxiety
-https://www.livelaw.in/articles/gendered-grammar-cultural-anxiety-549811
-
-[Read on Telegram](https://t.me/livelawindia/119705)
-
----
 ### 2026-09-12T07:33:03+00:00
 No Straitjacket Formula For Condoning Delay In Written Statement In Non-Commercial Suits: Rajasthan High Court
 https://www.livelaw.in/high-court/rajasthan-high-court/written-statement-delay-condonation-order-8-rule-1-cpc-549807
@@ -142,5 +128,19 @@ AIBE Open Book Exam That Is Anything But Cakewalk
 https://www.livelaw.in/articles/aibe-open-book-exam-anything-cakewalk-549813
 
 [Read on Telegram](https://t.me/livelawindia/119723)
+
+---
+### 2026-09-12T15:49:07+00:00
+3rd National Lok Adalat 2026 Settles Over 2.10 Crore Cases, ₹13,589 Crore Disputes Resolved: NALSA
+https://www.livelaw.in/news-updates/3rd-national-lok-adalat-2026-settles-over-210-crore-cases-13589-crore-disputes-resolved-nalsa-549877
+
+[Read on Telegram](https://t.me/livelawindia/119724)
+
+---
+### 2026-09-12T15:56:47+00:00
+Supreme Court Seeks Response Of Centre, States On Plea Seeking National Judicial Pay Commission For Judges
+https://www.livelaw.in/top-stories/supreme-court-seeks-response-of-centre-states-on-plea-seeking-national-judicial-pay-commission-for-judges-549878
+
+[Read on Telegram](https://t.me/livelawindia/119725)
 
 ---
