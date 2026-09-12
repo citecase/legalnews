@@ -1,135 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-11T12:02:16+00:00*
+*Last Updated: 2026-09-12T03:32:30+00:00*
 
 ---
 
-### 2026-09-11T12:02:16+00:00
-After Bombay High Court Rap, Pune Collector Withdraws 12-Day Ban On Alcohol Sale
-https://www.livelaw.in/high-court/bombay-high-court/after-bombay-high-court-rap-pune-collector-withdraws-12-day-ban-on-alcohol-sale-549773
-
-[Read on Telegram](https://t.me/livelawindia/119672)
-
----
-### 2026-09-11T12:07:57+00:00
-PIL In Delhi High Court Seeks Removal Of 'Shoorveer' Song From Mirzapur Movie
-https://www.livelaw.in/high-court/delhi-high-court/pil-in-delhi-high-court-seeks-removal-of-shoorveer-song-from-mirzapur-movie-549775
-
-[Read on Telegram](https://t.me/livelawindia/119673)
-
----
-### 2026-09-11T12:18:07+00:00
-Development Projects Can't Be Abandoned, Shifted Or Stalled Merely Due To Change In Govt: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-developmental-projects-abandoned-shifted-merely-due-to-change-government-549776
-
-[Read on Telegram](https://t.me/livelawindia/119674)
-
----
-### 2026-09-11T12:32:47+00:00
-Police Complaint Filed In Good Faith Not Defamation: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-application-police-defamation-549777
-
-[Read on Telegram](https://t.me/livelawindia/119675)
-
----
-### 2026-09-11T12:38:47+00:00
-Courts This Week| Creamy layer| Noida Protests| Disha Salian Case| Rajasthan HC Chief Justice & more
-https://www.livelaw.in/videos/obc-creamy-layer-bci-noida-protests-pm-modi-law-legal-news-weekly-india-news-549781
-
-[Read on Telegram](https://t.me/livelawindia/119676)
-
----
-### 2026-09-11T12:42:27+00:00
-'Hectic': Karnataka High Court Modifies Visitation To Prevent 950-Km Monthly Travel For 10-Yr-Old In Father's Custody
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-modifies-monthly-visitation-order-549779
-
-[Read on Telegram](https://t.me/livelawindia/119677)
-
----
-### 2026-09-11T12:52:19+00:00
-Loan Recovery Suit May Qualify As Commercial Dispute Even Without Express Reference To Written Contract: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/loan-recovery-suit-may-qualify-as-commercial-dispute-even-without-express-reference-to-written-contract-calcutta-high-court-549699
-
-[Read on Telegram](https://t.me/livelawindia/119678)
-
----
-### 2026-09-11T14:12:49+00:00
-LiveLaw Daily| Alcohol Ban| Captive Elephant| Winzo| E-Rickshaws
-https://www.livelaw.in/podcast/bombay-high-court-ganesh-chaturthi-maratha-reservation-india-news-students-549786
-
-[Read on Telegram](https://t.me/livelawindia/119679)
-
----
-### 2026-09-11T14:48:59+00:00
-Bombay High Court Adjourns Sine Die Petition Filed By Kunal Kamra Against IT Rules, SAHYOG Portal
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-adjourns-sine-die-petition-filed-by-kunal-kamra-against-it-rules-sahyog-portal-549788
-
-[Read on Telegram](https://t.me/livelawindia/119680)
-
----
-### 2026-09-11T15:20:50+00:00
-UP Govt Persistent In Using 'Goondas Act' As A 'Tool Of Oppression': Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-up-govt-persistent-goondas-act-tool-oppression-549789
-
-[Read on Telegram](https://t.me/livelawindia/119681)
-
----
-### 2026-09-11T15:36:10+00:00
-Suit Not Maintainable To Recover Money Paid For Illegal Purpose, Must Be Rejected Under O VII R 11 CPC : Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-suit-recovery-money-paid-illegal-purpose-maintainable-ordervii-rule11-cpc-549790
-
-[Read on Telegram](https://t.me/livelawindia/119682)
-
----
-### 2026-09-11T15:44:50+00:00
-2026 LiveLaw (SC) 928 | Poosa Sri Krishna & Ors v Gattu Kishan Rao & Anr
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-928-poosa-sri-krishna-ors-v-gattu-kishan-rao-anr-549791
-
-[Read on Telegram](https://t.me/livelawindia/119683)
-
----
-### 2026-09-11T15:57:50+00:00
-Amount Debited From ATM Transaction But No Cash Dispensed: Consumer Commission Holds Bank Liable
-https://www.livelaw.in/consumer-cases/amount-debited-from-atm-transaction-but-no-cash-dispensed-consumer-commission-holds-bank-liable-549792
-
-[Read on Telegram](https://t.me/livelawindia/119684)
-
----
-### 2026-09-11T17:37:11+00:00
-Applications Open For Certificate Course On Criminal Defence Practice At NALSAR's Square Circle Clinic
-https://www.livelaw.in/events/certificate-course-on-criminal-defence-practice-at-nalsar-square-circle-clinic-549793
-
-[Read on Telegram](https://t.me/livelawindia/119685)
-
----
-### 2026-09-11T17:54:01+00:00
-LiveLaw High Courts Daily Highlights: September 11, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-11-2026-549794
-
-[Read on Telegram](https://t.me/livelawindia/119686)
-
----
-### 2026-09-12T02:32:56+00:00
-Maharashtra's Anti-Conversion Law Challenged In Bombay High Court, Plea Alleges Violation Of Religious Freedom, Privacy
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-plea-maharashtra-freedom-of-religion-act-fundamental-rights-549802
-
-[Read on Telegram](https://t.me/livelawindia/119687)
-
----
-### 2026-09-12T02:53:57+00:00
-Supreme Court Stays Gujarat HC Proceedings In Plea To Regulate  Deepfake, AI Content, As Centre Seeks Transfer Of Case To SC
-https://www.livelaw.in/top-stories/supreme-court-stays-pil-proceedings-before-gujarat-high-court-deepfake-content-artificial-intelligence-sahyog-portal-union-plea-to-transfer-549809
-
-[Read on Telegram](https://t.me/livelawindia/119688)
-
----
-### 2026-09-12T03:02:47+00:00
-'Should Have Been Posted Here Years Ago': Justice Manash Ranjan Pathak Bids Adieu To Orissa High Court
-https://www.livelaw.in/high-court/orissa-high-court/justice-manash-ranjan-pathak-bids-farewell-transfer-to-gujarat-549804
-
-[Read on Telegram](https://t.me/livelawindia/119689)
-
----
 ### 2026-09-12T03:32:30+00:00
 LiveLaw Supreme Court Half-Yearly Digest: January-June 2026 [Part 1]
 https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-half-yearly-digest-2026-549797
@@ -142,5 +16,131 @@ Madras High Court Refuses To Stay Tamil Nadu's Plan To Introduce Digital Driving
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-no-stay-state-proposal-digital-driving-license-registration-certificate-549796
 
 [Read on Telegram](https://t.me/livelawindia/119691)
+
+---
+### 2026-09-12T04:03:10+00:00
+Kerala High Court Sets 2-Week Deadline For Deciding Regular Bail Pleas, 6 Weeks For Anticipatory Bail Applications
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-timelines-disposal-bail-application-549800
+
+[Read on Telegram](https://t.me/livelawindia/119692)
+
+---
+### 2026-09-12T04:24:40+00:00
+Conversion Of Charge  From  Serious To Non Serious Provision Shall Not Relate Back To Date Of Charge, Cant Consider For  Promotion:Madras High court
+https://www.livelaw.in/high-court/madras-high-court/conversion-of-charge-from-serious-to-non-serious-provision-shall-not-relate-back-to-date-of-charge-cant-consider-for-promotionmadras-high-court-549822
+
+[Read on Telegram](https://t.me/livelawindia/119693)
+
+---
+### 2026-09-12T04:32:40+00:00
+LiveLaw Chhattisgarh High Court Monthly Digest: August 2026
+https://www.livelaw.in/high-court/chhattisgarh-high-court/chhattisgarh-monthly-digest-august-2026-548807
+
+[Read on Telegram](https://t.me/livelawindia/119694)
+
+---
+### 2026-09-12T04:32:50+00:00
+$18 Billion Over Claims Of Harm To Children's Mental Health: Is It Still a Win for Meta ?
+https://www.livelaw.in/articles/18billion-over-claims-harm-children-mental-health-549810
+
+[Read on Telegram](https://t.me/livelawindia/119695)
+
+---
+### 2026-09-12T04:57:21+00:00
+Calcutta High Court Chief Justice Unveils Portrait Of Late AK Sen At High Court Bar Library Club
+https://www.livelaw.in/news-updates/calcutta-high-court-chief-justice-unveils-potrait-of-late-ak-sen-at-high-court-bar-library-club-549806
+
+[Read on Telegram](https://t.me/livelawindia/119696)
+
+---
+### 2026-09-12T05:03:11+00:00
+Karnataka High Court Refuses To Quash FIR Over MBBS Seat Fraud, Says 'Cloak' Of Civil Transaction Can't Defeat Criminal Probe
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-quash-fir-mbbs-seat-fraud-case-549801
+
+[Read on Telegram](https://t.me/livelawindia/119697)
+
+---
+### 2026-09-12T05:32:11+00:00
+Order XI CPC Discovery Can't Be Used To Collect Evidence Available In Public Domain, Law Doesn't Aid Indolent: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/order-xi-cpc-discovery-cant-collect-evidence-in-public-domain-549805
+
+[Read on Telegram](https://t.me/livelawindia/119698)
+
+---
+### 2026-09-12T06:07:22+00:00
+Electricity Act | Past Dues Beyond Two Years Can Be Recovered Only If Continuously Shown As Arrear : Supreme Court
+https://www.livelaw.in/supreme-court/electricity-act-past-dues-beyond-two-years-can-be-recovered-only-if-continuously-shown-as-arrear-supreme-court-549827
+
+[Read on Telegram](https://t.me/livelawindia/119699)
+
+---
+### 2026-09-12T06:08:22+00:00
+2026 LiveLaw (SC) 929 |  DAKSCHINANCHAL VIDYUT VITRAN NIGAM LTD. VERSUS VIDUT LOKPAL, UTTAR PRADESH AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-929-dakschinanchal-vidyut-vitran-nigam-ltd-versus-vidut-lokpal-uttar-pradesh-and-others-549828
+
+[Read on Telegram](https://t.me/livelawindia/119700)
+
+---
+### 2026-09-12T06:15:42+00:00
+Is CLAT Testing The Right Skills For Law School?
+https://www.livelaw.in/lawschool/articles/clat-testing-right-skills-law-school-549830
+
+[Read on Telegram](https://t.me/livelawindia/119701)
+
+---
+### 2026-09-12T06:32:42+00:00
+RTE Act | Assistant Teacher's Appointment Without TET Saved If Qualification Acquired Before 31.03.2015 Deadline: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-rte-act-assistant-teacher-appointment-tet-qualification-acquired-549803
+
+[Read on Telegram](https://t.me/livelawindia/119702)
+
+---
+### 2026-09-12T06:34:42+00:00
+Explained | Controversy Surrounding UP Judge Ravi Kumar Diwakar
+https://www.livelaw.in/articles/judge-ravi-kumar-diwakar-too-close-to-power-too-quick-to-kill-549831
+
+[Read on Telegram](https://t.me/livelawindia/119703)
+
+---
+### 2026-09-12T06:56:32+00:00
+Lucknow District Court Encroachments: High Court Orders Removal Of Remaining Illegal Structures, Notes 57 More Demolished
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-lucknow-district-court-encroachments-removal-illegal-structures-demolition-549832
+
+[Read on Telegram](https://t.me/livelawindia/119704)
+
+---
+### 2026-09-12T07:32:43+00:00
+Gendered Grammar Of Cultural Anxiety
+https://www.livelaw.in/articles/gendered-grammar-cultural-anxiety-549811
+
+[Read on Telegram](https://t.me/livelawindia/119705)
+
+---
+### 2026-09-12T07:33:03+00:00
+No Straitjacket Formula For Condoning Delay In Written Statement In Non-Commercial Suits: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/written-statement-delay-condonation-order-8-rule-1-cpc-549807
+
+[Read on Telegram](https://t.me/livelawindia/119706)
+
+---
+### 2026-09-12T08:33:14+00:00
+Govt Dispensary In-Charge Responsible For Records, Can't Blame Subordinate: Rajasthan High Court Upholds Doctor's Compulsory Retirement
+https://www.livelaw.in/high-court/rajasthan-high-court/govt-dispensary-in-charge-responsible-for-records-cant-blame-subordinate-549808
+
+[Read on Telegram](https://t.me/livelawindia/119707)
+
+---
+### 2026-09-12T09:22:10+00:00
+LiveLaw Calcutta High Court Monthly Digest: August 2026
+https://www.livelaw.in/high-court/calcutta-high-court/livelaw-calcutta-high-court-monthly-digest-august-2026-549103
+
+[Read on Telegram](https://t.me/livelawindia/119708)
+
+---
+### 2026-09-12T09:48:10+00:00
+PIL Moved In Bombay High Court Challenging Constitutional Validity Of Bombay Prevention Of Begging Act
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-pil-validity-bombay-prevention-of-begging-act-549816
+
+[Read on Telegram](https://t.me/livelawindia/119709)
 
 ---
