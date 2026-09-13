@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-13T12:03:13+00:00*
+*Last Updated: 2026-09-13T15:02:35+00:00*
+
+---
+
+### 2026-09-13T15:02:35+00:00
+Empanelment Of Advocates At District Legal Services Authority, Ahmedabad (DLSA Ahmedabad)
+https://www.verdictum.in/job-updates/district-legal-services-authority-1621859
+
+[Source Link](https://t.me/verdictumlegalupdates/29069)
+
+---
+
+### 2026-09-13T13:33:14+00:00
+Administrative Discretion Not Placed Beyond Judicial Review: Supreme Court Directs To Grant Permission To J&K Physical Ed. Teacher For National Kayaking Coaching
+https://www.verdictum.in/supreme-court/indian-kayaking-and-canoeing-association-v-union-territory-of-jk-2026-insc-981-govt-order-teacher-1621860
+
+[Source Link](https://t.me/verdictumlegalupdates/29068)
 
 ---
 
@@ -145,22 +161,6 @@ Would Open A Pandora's Box: Delhi High Court Declines To Let Vinesh Phogat Parti
 https://www.verdictum.in/delhi-high-court/vinesh-phogat-v-wrestling-federation-of-india-2026dhc7773-2026-senior-world-wrestling-championship-1621796
 
 [Source Link](https://t.me/verdictumlegalupdates/29050)
-
----
-
-### 2026-09-11T16:02:18+00:00
-Legal Officer Vacancy At Tamil Nadu Forest and Wildlife Crime Control Bureau (TNFWCCB)
-https://www.verdictum.in/job-updates/tamil-nadu-forest-and-wildlife-crime-control-bureau-1621785
-
-[Source Link](https://t.me/verdictumlegalupdates/29049)
-
----
-
-### 2026-09-11T15:32:57+00:00
-Highways Disintegrating Every Monsoon: Tripura High Court Expresses Concern About Risk To Citizens' Lives
-https://www.verdictum.in/tripura-high-court/court-on-its-own-motion-v-union-of-india-wpcpil-no-06-of-2026nhai-nhidcl-epc-contractors-1621794
-
-[Source Link](https://t.me/verdictumlegalupdates/29048)
 
 ---
 
