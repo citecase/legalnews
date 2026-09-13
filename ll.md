@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-12T07:33:03+00:00*
+*Last Updated: 2026-09-12T09:48:10+00:00*
 
 ---
 
-### 2026-09-12T07:33:03+00:00
-No Straitjacket Formula For Condoning Delay In Written Statement In Non-Commercial Suits: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/written-statement-delay-condonation-order-8-rule-1-cpc-549807
-
-[Read on Telegram](https://t.me/livelawindia/119706)
-
----
-### 2026-09-12T08:33:14+00:00
-Govt Dispensary In-Charge Responsible For Records, Can't Blame Subordinate: Rajasthan High Court Upholds Doctor's Compulsory Retirement
-https://www.livelaw.in/high-court/rajasthan-high-court/govt-dispensary-in-charge-responsible-for-records-cant-blame-subordinate-549808
-
-[Read on Telegram](https://t.me/livelawindia/119707)
-
----
-### 2026-09-12T09:22:10+00:00
-LiveLaw Calcutta High Court Monthly Digest: August 2026
-https://www.livelaw.in/high-court/calcutta-high-court/livelaw-calcutta-high-court-monthly-digest-august-2026-549103
-
-[Read on Telegram](https://t.me/livelawindia/119708)
-
----
 ### 2026-09-12T09:48:10+00:00
 PIL Moved In Bombay High Court Challenging Constitutional Validity Of Bombay Prevention Of Begging Act
 https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-pil-validity-bombay-prevention-of-begging-act-549816
@@ -142,5 +121,26 @@ Supreme Court Seeks Response Of Centre, States On Plea Seeking National Judicial
 https://www.livelaw.in/top-stories/supreme-court-seeks-response-of-centre-states-on-plea-seeking-national-judicial-pay-commission-for-judges-549878
 
 [Read on Telegram](https://t.me/livelawindia/119725)
+
+---
+### 2026-09-13T02:32:53+00:00
+Composite Transaction Route To “Veritable Party”: Doctrine Still Finding Its Edges
+https://www.livelaw.in/articles/composite-transaction-route-veritable-party-doctrine-still-finding-its-edges-549868
+
+[Read on Telegram](https://t.me/livelawindia/119726)
+
+---
+### 2026-09-13T03:32:24+00:00
+LiveLaw Supreme Court Half-Yearly Digest: January-June 2026 [Part 2]
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-half-yearly-digest-2026-549798
+
+[Read on Telegram](https://t.me/livelawindia/119727)
+
+---
+### 2026-09-13T03:55:54+00:00
+Kakinada Consumer Commission Holds Temple Shop Licensee Liable For Selling Water Bottle Above MRP, Imposes ₹7 Lakh Punitive Damages
+https://www.livelaw.in/consumer-cases/kakinada-consumer-commission-holds-temple-shop-licensee-liable-for-selling-water-bottle-above-mrp-imposes-7-lakh-punitive-damages-549881
+
+[Read on Telegram](https://t.me/livelawindia/119728)
 
 ---
