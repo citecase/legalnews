@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-12T09:48:10+00:00*
+*Last Updated: 2026-09-12T14:15:46+00:00*
 
 ---
 
-### 2026-09-12T09:48:10+00:00
-PIL Moved In Bombay High Court Challenging Constitutional Validity Of Bombay Prevention Of Begging Act
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-pil-validity-bombay-prevention-of-begging-act-549816
-
-[Read on Telegram](https://t.me/livelawindia/119709)
-
----
-### 2026-09-12T10:27:21+00:00
-AP Liquor Scam: Supreme Court Denies Anticipatory Bail To Former APSBCL Managing Director & Ex-IT Advisor To YSRCP Govt
-https://www.livelaw.in/news-updates/supreme-court-denies-anticipatory-bail-to-rajashekhar-reddy-donthireddy-vasudeva-in-andhra-pradesh-liquor-transportation-tender-scam-549857
-
-[Read on Telegram](https://t.me/livelawindia/119710)
-
----
-### 2026-09-12T10:30:41+00:00
-Arbitration Clause In One Agreement Can Bind Party To Another Instrument Forming Part Of Composite Transaction: Supreme Court
-https://www.livelaw.in/supreme-court/arbitration-clause-in-one-agreement-can-bind-party-to-another-instrument-forming-part-of-composite-transaction-supreme-court-549858
-
-[Read on Telegram](https://t.me/livelawindia/119711)
-
----
-### 2026-09-12T10:31:41+00:00
-2026 LiveLaw (SC) 930 | NATIONAL SKILL DEVELOPMENT CORPORATION VERSUS SURYA WIRES PRIVATE LIMITED & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-930-national-skill-development-corporation-versus-surya-wires-private-limited-ors-549859
-
-[Read on Telegram](https://t.me/livelawindia/119712)
-
----
-### 2026-09-12T10:33:01+00:00
-LiveLaw Madhya Pradesh High Court Monthly Digest: August 2026
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-monthly-digest-august-2026-548863
-
-[Read on Telegram](https://t.me/livelawindia/119713)
-
----
-### 2026-09-12T10:37:01+00:00
-Apprenticeship Training Program - Legal Apprentice Vacancy At Telecommunications Consultants India Limited
-https://www.livelaw.in/job-updates/apprenticeship-training-program-legal-apprentice-vacancy-at-telecommunications-consultants-india-limited-549860
-
-[Read on Telegram](https://t.me/livelawindia/119714)
-
----
-### 2026-09-12T10:38:21+00:00
-General Manager (Legal) Vacancy At National Highways Authority Of India (NHAI)
-https://www.livelaw.in/job-updates/general-manager-legal-vacancy-at-national-highways-authority-of-india-nhai-549861
-
-[Read on Telegram](https://t.me/livelawindia/119715)
-
----
-### 2026-09-12T11:32:12+00:00
-Single Grave Act Can Constitute 'Cruelty' Under S. 498A IPC, Series Of Acts Not Necessary: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-vague-allegations-498a-ipc-549823
-
-[Read on Telegram](https://t.me/livelawindia/119716)
-
----
-### 2026-09-12T11:32:32+00:00
-When Law Is Corrected But File Stays Closed: Benami Confiscation After Manjula
-https://www.livelaw.in/lawschool/articles/when-law-corrected-but-file-stays-closed-benami-confiscation-after-manjula-549812
-
-[Read on Telegram](https://t.me/livelawindia/119717)
-
----
-### 2026-09-12T11:46:42+00:00
-Consultant Vacancy At Ernst & Young [Mumbai; Apply Now]
-https://www.livelaw.in/job-updates/consultant-vacancy-at-ernst-young-mumbai-549864
-
-[Read on Telegram](https://t.me/livelawindia/119718)
-
----
-### 2026-09-12T12:32:22+00:00
-S.164 Electricity Act | Landowner Consent Not Required To Lay Power Transmission Lines, Compensation Remedy Survives: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-upholds-section-164-electricity-act-says-landowners-consent-not-necessary-to-lay-transmission-lines-549824
-
-[Read on Telegram](https://t.me/livelawindia/119719)
-
----
-### 2026-09-12T14:12:26+00:00
-National Lok Adalat Held At Punjab And Haryana High Court, 388 Cases Settled
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/national-lok-adalat-held-at-punjab-and-haryana-high-court-388-cases-settled-549873
-
-[Read on Telegram](https://t.me/livelawindia/119720)
-
----
-### 2026-09-12T14:13:46+00:00
-Para Legal Personnel/ Lawyer And Case Worker Vacancy At One Stop Centre Under Mission Shakti Scheme At Kuppam & Chittoor
-https://www.livelaw.in/job-updates/para-legal-personnel-lawyer-and-case-worker-vacancy-at-one-stop-centre-under-mission-shakti-scheme-at-kuppam-chittoor-549874
-
-[Read on Telegram](https://t.me/livelawindia/119721)
-
----
 ### 2026-09-12T14:15:46+00:00
 'What Protection Exists For A Person Whose Likeness Is Misused But Whose Name Has No Market Value?': Justice V. Mohana
 https://www.livelaw.in/top-stories/supreme-court-judge-v-mohana-music-cinema-law-549875
@@ -142,5 +51,96 @@ Kakinada Consumer Commission Holds Temple Shop Licensee Liable For Selling Water
 https://www.livelaw.in/consumer-cases/kakinada-consumer-commission-holds-temple-shop-licensee-liable-for-selling-water-bottle-above-mrp-imposes-7-lakh-punitive-damages-549881
 
 [Read on Telegram](https://t.me/livelawindia/119728)
+
+---
+### 2026-09-13T04:33:24+00:00
+LiveLaw Gauhati High Court Monthly Digest: August 2026
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-monthly-digest-august-2026-548880
+
+[Read on Telegram](https://t.me/livelawindia/119729)
+
+---
+### 2026-09-13T05:32:56+00:00
+Beyond Marriage: Same-Sex Gap In Supreme Court's New Section 498A Test
+https://www.livelaw.in/articles/beyond-marriage-same-sex-gap-supreme-court-new-section498a-test-549869
+
+[Read on Telegram](https://t.me/livelawindia/119730)
+
+---
+### 2026-09-13T05:33:06+00:00
+Daughter-In-Law Not Liable When Senior Citizen's Own Children Alive: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-daughter-in-law-senior-citizens-act-549882
+
+[Read on Telegram](https://t.me/livelawindia/119731)
+
+---
+### 2026-09-13T06:28:06+00:00
+Scrap Tenth Schedule, Replace It With Simple Provision Disqualifying Legislators Changing Party Midterm: Kapil Sibal
+https://www.livelaw.in/top-stories/scrap-tenth-schedule-replace-it-with-simple-provision-disqualifying-legislators-changing-party-midterm-kapil-sibal-549886
+
+[Read on Telegram](https://t.me/livelawindia/119732)
+
+---
+### 2026-09-13T06:47:06+00:00
+J&K&L High Court Allows Minor Rape Survivor To Terminate 26-Week Pregnancy, Says Constitutional Remedy Not Barred Even If Statutory Time Limit Exceeded
+https://www.livelaw.in/high-court/jammu-kashmir/lack-of-remedy-under-mtp-act-does-not-bar-constitutional-remedy-jk-high-court-allows-minor-rape-survivor-to-terminate-26-week-pregnancy-549880
+
+[Read on Telegram](https://t.me/livelawindia/119733)
+
+---
+### 2026-09-13T07:21:37+00:00
+NBDSA Fines Zee News ₹2 Lakh For 'Inflammatory' Coverage Of AMU Palestine Solidarity Slogans, Directs Removal
+https://www.livelaw.in/news-updates/nbdsa-fines-zee-news-2-lakh-for-inflammatory-coverage-of-amu-palestine-solidarity-slogans-directs-removal-549887
+
+[Read on Telegram](https://t.me/livelawindia/119734)
+
+---
+### 2026-09-13T07:21:47+00:00
+Noida DM Medha Roopam Moves Supreme Court Against Allahabad HC Order Slamming Her For Student's NSA Detention
+https://www.livelaw.in/top-stories/supreme-court-gautam-buddh-nagar-district-magistrate-medha-roopam-plea-against-allahabad-hc-order-5-lakh-compensation-nsa-detention-of-student-549888
+
+[Read on Telegram](https://t.me/livelawindia/119735)
+
+---
+### 2026-09-13T07:23:37+00:00
+Regular FSSAI License Must For Large-Scale Slaughterhouse, Registration Certificate Not Enough: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-large-scale-slaughterhouse-fssai-licence-registration--549889
+
+[Read on Telegram](https://t.me/livelawindia/119736)
+
+---
+### 2026-09-13T07:32:37+00:00
+Rajasthan High Court Bars Declaration Of Assistant Professor Recruitment Results Over Objections To Answer Key
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-declaration-final-results-assistant-professor-recruitment-549883
+
+[Read on Telegram](https://t.me/livelawindia/119737)
+
+---
+### 2026-09-13T08:33:08+00:00
+Article 227 Petition Maintainable Against Small Causes Court's Refusal To Stay Suit Under Section 10 CPC: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-rejection-stay-application-small-cause-court-549885
+
+[Read on Telegram](https://t.me/livelawindia/119738)
+
+---
+### 2026-09-13T09:32:18+00:00
+Sand Scandals: Directive On Disusage
+https://www.livelaw.in/articles/sand-scandals-directive-on-disusage-549871
+
+[Read on Telegram](https://t.me/livelawindia/119739)
+
+---
+### 2026-09-13T09:32:38+00:00
+Rajasthan High Court Rejects Plea Against Deletion From Voter List, Cites Bar Under Article 243ZG
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-rejects-petition-challenging-deletion-name-voter-list-municipal-polls-549884
+
+[Read on Telegram](https://t.me/livelawindia/119740)
+
+---
+### 2026-09-13T10:32:10+00:00
+LiveLaw Karnataka High Court Monthly Digest: August 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-monthly-digest-august2026-548883
+
+[Read on Telegram](https://t.me/livelawindia/119741)
 
 ---
