@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-12T14:15:46+00:00*
+*Last Updated: 2026-09-13T02:32:53+00:00*
 
 ---
 
-### 2026-09-12T14:15:46+00:00
-'What Protection Exists For A Person Whose Likeness Is Misused But Whose Name Has No Market Value?': Justice V. Mohana
-https://www.livelaw.in/top-stories/supreme-court-judge-v-mohana-music-cinema-law-549875
-
-[Read on Telegram](https://t.me/livelawindia/119722)
-
----
-### 2026-09-12T14:32:36+00:00
-AIBE Open Book Exam That Is Anything But Cakewalk
-https://www.livelaw.in/articles/aibe-open-book-exam-anything-cakewalk-549813
-
-[Read on Telegram](https://t.me/livelawindia/119723)
-
----
-### 2026-09-12T15:49:07+00:00
-3rd National Lok Adalat 2026 Settles Over 2.10 Crore Cases, ₹13,589 Crore Disputes Resolved: NALSA
-https://www.livelaw.in/news-updates/3rd-national-lok-adalat-2026-settles-over-210-crore-cases-13589-crore-disputes-resolved-nalsa-549877
-
-[Read on Telegram](https://t.me/livelawindia/119724)
-
----
-### 2026-09-12T15:56:47+00:00
-Supreme Court Seeks Response Of Centre, States On Plea Seeking National Judicial Pay Commission For Judges
-https://www.livelaw.in/top-stories/supreme-court-seeks-response-of-centre-states-on-plea-seeking-national-judicial-pay-commission-for-judges-549878
-
-[Read on Telegram](https://t.me/livelawindia/119725)
-
----
 ### 2026-09-13T02:32:53+00:00
 Composite Transaction Route To “Veritable Party”: Doctrine Still Finding Its Edges
 https://www.livelaw.in/articles/composite-transaction-route-veritable-party-doctrine-still-finding-its-edges-549868
@@ -142,5 +114,33 @@ LiveLaw Karnataka High Court Monthly Digest: August 2026
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-monthly-digest-august2026-548883
 
 [Read on Telegram](https://t.me/livelawindia/119741)
+
+---
+### 2026-09-13T12:00:50+00:00
+Kapil Sibal Questions Supreme Court's Delay In Deciding 'Merger' Issue Under 10th Schedule, Says It Impacts Future Of Democracy
+https://www.livelaw.in/top-stories/kapil-sibal-questions-supreme-courts-delay-in-deciding-merger-issue-under-10th-schedule-says-it-impacts-future-of-democracy-549890
+
+[Read on Telegram](https://t.me/livelawindia/119742)
+
+---
+### 2026-09-13T14:21:01+00:00
+UP Municipalities Act | Nagar Panchayat Has Authority To License Cattle Markets Even On Private Land: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/up-municipalities-act-nagar-panchayat-license-cattle-market-allahabad-hc-549891
+
+[Read on Telegram](https://t.me/livelawindia/119743)
+
+---
+### 2026-09-13T14:33:01+00:00
+Can State Take Down Your Post Without Hearing ? Comparative Public Law Case For Digital Due Process In India
+https://www.livelaw.in/articles/comparative-public-law-case-digital-due-process-india-549872
+
+[Read on Telegram](https://t.me/livelawindia/119744)
+
+---
+### 2026-09-13T14:56:31+00:00
+LiveLaw Allahabad High Court Weekly Round-Up: September 07 To September 13, 2026
+https://www.livelaw.in/round-ups/weekly/livelaw-allahabad-high-court-weekly-round-up-september-07-to-september-13-2026-549892
+
+[Read on Telegram](https://t.me/livelawindia/119745)
 
 ---
