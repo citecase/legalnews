@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-12T15:32:43+00:00*
+*Last Updated: 2026-09-13T04:33:08+00:00*
+
+---
+
+### 2026-09-13T04:33:08+00:00
+Goonda Act Being Used As Tool Of Oppression: Allahabad HC Calls State’s Approach A 'Glaring Example’ Of Statutory Abuse
+https://www.verdictum.in/allahabad-high-court/zahid-ali-v-state-of-up-2026ahc-lko-63435-goonda-act-oppression-1621850
+
+[Source Link](https://t.me/verdictumlegalupdates/29062)
 
 ---
 
@@ -153,14 +161,6 @@ Madras High Court Asks Law Reporters To Avoid Paragraph Numbering Errors In Judg
 https://www.verdictum.in/madras-high-court/law-reporters-ensure-paragraph-numbering-errors-cause-confusion-1621782
 
 [Source Link](https://t.me/verdictumlegalupdates/29043)
-
----
-
-### 2026-09-11T12:32:52+00:00
-Violence & Disturbances In State Is No Reason For Not Producing Accused Before Court: Manipur High Court Grants Bail In NDPS Case
-https://www.verdictum.in/manipur-high-court/2026-mnhc-195-lunkhogin-kipgen-v-officer-in-charge-narcotics-affairs-of-border-1621778
-
-[Source Link](https://t.me/verdictumlegalupdates/29042)
 
 ---
 
