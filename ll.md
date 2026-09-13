@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-13T02:32:53+00:00*
+*Last Updated: 2026-09-13T03:32:24+00:00*
 
 ---
 
-### 2026-09-13T02:32:53+00:00
-Composite Transaction Route To “Veritable Party”: Doctrine Still Finding Its Edges
-https://www.livelaw.in/articles/composite-transaction-route-veritable-party-doctrine-still-finding-its-edges-549868
-
-[Read on Telegram](https://t.me/livelawindia/119726)
-
----
 ### 2026-09-13T03:32:24+00:00
 LiveLaw Supreme Court Half-Yearly Digest: January-June 2026 [Part 2]
 https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-half-yearly-digest-2026-549798
@@ -142,5 +135,12 @@ LiveLaw Allahabad High Court Weekly Round-Up: September 07 To September 13, 2026
 https://www.livelaw.in/round-ups/weekly/livelaw-allahabad-high-court-weekly-round-up-september-07-to-september-13-2026-549892
 
 [Read on Telegram](https://t.me/livelawindia/119745)
+
+---
+### 2026-09-13T16:07:22+00:00
+NLSIU Students' Group Postpones Screening Of Umar Khalid Documentary, Denies Bowing To Any Pressure
+https://www.livelaw.in/top-stories/nlsiu-students-group-postpones-screening-of-umar-khalid-documentary-denies-bowing-to-any-pressure-549893
+
+[Read on Telegram](https://t.me/livelawindia/119746)
 
 ---
