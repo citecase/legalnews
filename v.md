@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-13T04:33:08+00:00*
+*Last Updated: 2026-09-13T12:03:13+00:00*
+
+---
+
+### 2026-09-13T12:03:13+00:00
+Different Yardstick Cannot Be Applied: Bombay High Court Directs Regularisation Of 479 VVMC Doctors & Medical Staff, Quashes CBT Mandate For COVID-19 Frontliners
+https://www.verdictum.in/bombay-high-court/dr-bhakti-deepak-chaudhary-v-vasai-virar-city-municipal-corporation-2026bhc-as37648-db-doctors-medical-staff-covid-19-frontliners-1621858
+
+[Source Link](https://t.me/verdictumlegalupdates/29067)
+
+---
+
+### 2026-09-13T10:32:52+00:00
+Recovery From Class-III Employees Impermissible: Bombay High Court Quashes ₹40 Lakh Recovery Notice Against Retired Pune University's Data Entry Operator
+https://www.verdictum.in/bombay-high-court/shrinivas-ganesh-kulkarni-v-savitribai-phule-pune-university-2026bhc-as37589-db-retired-pune-universitys-data-entry-operator-1621857
+
+[Source Link](https://t.me/verdictumlegalupdates/29066)
+
+---
+
+### 2026-09-13T09:03:11+00:00
+Levy Of Interest Dehors Statutory Provisions Is Constitutionally Impermissible: Bombay High Court Quashes ₹1.4 Crore MVAT Interest Demand Against Microsoft India
+https://www.verdictum.in/bombay-high-court/microsoft-corporation-india-pvt-ltd-v-the-state-of-maharashtra-2026bhc-os20201-db-14-crore-mvat-interest-1621856
+
+[Source Link](https://t.me/verdictumlegalupdates/29065)
+
+---
+
+### 2026-09-13T07:32:50+00:00
+His Act Of Undressing Himself Was Certainly With Sexual Intent: Delhi High Court Upholds POCSO Conviction Of Paternal Uncle
+https://www.verdictum.in/delhi-high-court/ram-pravesh-thakur-v-state-of-nct-of-delhi-2026dhc7631-pocso-conviction-of-paternal-uncle-1621855
+
+[Source Link](https://t.me/verdictumlegalupdates/29064)
+
+---
+
+### 2026-09-13T06:02:29+00:00
+Delhi High Court Expresses “Deep Regret” Over Decades-Long Litigation, Laments Railways’ Failure To Regularise Low-Paid Group D Employees
+https://www.verdictum.in/delhi-high-court/union-of-india-v-mithai-lal-2026dhc7602-db-laments-railways-failure-regularise-low-paid-group-d-employees-1621851
+
+[Source Link](https://t.me/verdictumlegalupdates/29063)
 
 ---
 
@@ -121,46 +161,6 @@ Highways Disintegrating Every Monsoon: Tripura High Court Expresses Concern Abou
 https://www.verdictum.in/tripura-high-court/court-on-its-own-motion-v-union-of-india-wpcpil-no-06-of-2026nhai-nhidcl-epc-contractors-1621794
 
 [Source Link](https://t.me/verdictumlegalupdates/29048)
-
----
-
-### 2026-09-11T15:03:16+00:00
-Customs Act| "Prohibited Goods" Not Confined To Section 11 Notifications: Calcutta High Court Restores ₹10.07 Crore Penalty In Gold Smuggling Case
-https://www.verdictum.in/calcutta-high-court/gopal-saha-v-union-of-india-apo-139-of-2018-prohibited-goods-customs-act-not-confined-to-section-11-1621795
-
-[Source Link](https://t.me/verdictumlegalupdates/29047)
-
----
-
-### 2026-09-11T14:32:15+00:00
-Must Expedite Trials When Quantity of Drugs Is More Than 10 Times Commercial Quantity: Punjab & Haryana High Court Denies Bail To Ex-Cop In Drugs Case
-https://www.verdictum.in/punjab-and-haryana-high-court/sarabjit-singh-v-state-of-punjab-2026phhc128014-db-trials-quantity-drugs-1621792
-
-[Source Link](https://t.me/verdictumlegalupdates/29046)
-
----
-
-### 2026-09-11T14:03:14+00:00
-Delhi High Court Mandates Biometric Aadhaar Authentication For GST Registration To Curb Fraud
-https://www.verdictum.in/delhi-high-court/mandates-biometric-aadhaar-authentication-gst-registration-1621789
-
-[Source Link](https://t.me/verdictumlegalupdates/29045)
-
----
-
-### 2026-09-11T13:33:13+00:00
-Accused Refusing To Marry Because Mother Didn’t Permit Indicates Promise Made With Good Intention: Supreme Court Quashes FIR U/s.69 BNS
-https://www.verdictum.in/supreme-court/kunal-rameshbhai-kalyani-v-the-state-of-gujarat-2026-insc-987-accused-marry-section-69-bns-1621783
-
-[Source Link](https://t.me/verdictumlegalupdates/29044)
-
----
-
-### 2026-09-11T13:02:53+00:00
-Madras High Court Asks Law Reporters To Avoid Paragraph Numbering Errors In Judgments To Avoid Confusion
-https://www.verdictum.in/madras-high-court/law-reporters-ensure-paragraph-numbering-errors-cause-confusion-1621782
-
-[Source Link](https://t.me/verdictumlegalupdates/29043)
 
 ---
 
