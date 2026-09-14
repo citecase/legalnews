@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-14T05:57:38+00:00*
+*Last Updated: 2026-09-14T08:32:32+00:00*
 
 ---
 
-### 2026-09-14T05:57:38+00:00
-District Courts Are Citizens' Courts; Lawyers Practising There Important Part Of Justice System : Justice Abhay Oka
-https://www.livelaw.in/news-updates/district-courts-are-citizens-courts-lawyers-practising-there-important-part-of-justice-system-justice-abhay-oka-549938
-
-[Read on Telegram](https://t.me/livelawindia/119769)
-
----
-### 2026-09-14T06:31:08+00:00
-'Judges Must Have Spine To Do Justice': P&H High Court Grants Interim Bail To 76-Year-Old PMLA Accused Citing Ill-Health, Prolong Custody
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/pmla-old-sick-interim-medical-bail-76-year-old-549941
-
-[Read on Telegram](https://t.me/livelawindia/119770)
-
----
-### 2026-09-14T07:04:48+00:00
-Waqf Board Can't Appoint Ad-Hoc Panel To Manage Waqf Institution By Bypassing Statutory Rules: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-memo-constituting-ad-hoc-committee-wakf-institution-management-549946
-
-[Read on Telegram](https://t.me/livelawindia/119771)
-
----
-### 2026-09-14T07:29:19+00:00
-Teacher Suspended Over Allegations Of Forced Islamic Practices At School Gets Relief From Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/teacher-suspended-forced-islamic-practices-allahabad-high-court-549949
-
-[Read on Telegram](https://t.me/livelawindia/119772)
-
----
-### 2026-09-14T08:06:21+00:00
-Karnataka High Court Quashes Cheating FIR Against Accused In Ambidant Investment 'Scam', Refuses To Quash ED Summons In PMLA Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-fir-charge-sheet-vijay-tata-ambidant-case-549952
-
-[Read on Telegram](https://t.me/livelawindia/119773)
-
----
-### 2026-09-14T08:24:11+00:00
-Orissa High Court Reinstates Judge, Says Resignation Over Lack Of Medical Facilities For Autistic Son Was 'Not Voluntary'
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-reinstates-lady-judicial-officer-relieved-resignation-withdrawal-549956
-
-[Read on Telegram](https://t.me/livelawindia/119774)
-
----
-### 2026-09-14T08:26:52+00:00
-Know The Law | Why Supreme Court Did Not Follow 'Tarsem Singh' Precedent On Limiting Pension Arrear Claims?
-https://www.livelaw.in/top-stories/know-the-law-why-supreme-court-did-not-follow-tarsem-singh-precedent-on-limiting-pension-arrear-claims-549958
-
-[Read on Telegram](https://t.me/livelawindia/119775)
-
----
 ### 2026-09-14T08:32:32+00:00
 LiveLaw Andhra Pradesh High Court Weekly Round-Up: September 7 - September 13, 2026
 https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-weekly-roundup-549957
@@ -142,5 +93,54 @@ LiveLaw Madhya Pradesh High Court Weekly Roundup: September 07 - September 13, 2
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-weekly-digest-september-7-to-september-13-2026-549983
 
 [Read on Telegram](https://t.me/livelawindia/119788)
+
+---
+### 2026-09-14T13:18:57+00:00
+PIL In AP High Court Challenges Google-Adani Data Centre Project At Visakhapatnam, State Claims Steps Taken To Protect Environment
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-issues-notice-pil-challenging-google-adani-data-centre-project-cites-environmental-concerns-549989
+
+[Read on Telegram](https://t.me/livelawindia/119789)
+
+---
+### 2026-09-14T13:43:40+00:00
+On Hindi Diwas, Supreme Court Announces Service To Give Judgment Summaries, Audio-Video Bulletin In Hindi
+https://www.livelaw.in/top-stories/on-hindi-diwas-supreme-court-announces-service-to-give-judgment-summaries-audio-video-bulletin-in-hindi-549992
+
+[Read on Telegram](https://t.me/livelawindia/119790)
+
+---
+### 2026-09-14T13:47:20+00:00
+State Can't Restrict Transfer Of Lawful Leasehold Interest Due To Technical Glitches In Online Software: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-software-portal-cannot-become-source-restrict-rights-549990
+
+[Read on Telegram](https://t.me/livelawindia/119791)
+
+---
+### 2026-09-14T14:18:10+00:00
+Delhi High Court Dismisses Vimal Elaichi's Plea Challenging FDA Notice To Shah Rukh Khan, Ajay Devgn, Tiger Shroff
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-dismisses-vimal-elaichis-plea-challenging-fda-notice-to-shah-rukh-khan-ajay-devgn-tiger-shroff-549995
+
+[Read on Telegram](https://t.me/livelawindia/119792)
+
+---
+### 2026-09-14T14:32:30+00:00
+Does One Forum Fit All?
+https://www.livelaw.in/articles/does-one-forum-fit-all-549920
+
+[Read on Telegram](https://t.me/livelawindia/119793)
+
+---
+### 2026-09-14T15:07:01+00:00
+Does Conversion Automatically End Scheduled Tribe Status? Allahabad High Court Answers
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-scheduled-tribe-status-conversion--550002
+
+[Read on Telegram](https://t.me/livelawindia/119794)
+
+---
+### 2026-09-14T15:47:51+00:00
+LiveLaw Delhi High Court Weekly Round-Up: September 06 To September 13, 2026
+https://www.livelaw.in/high-court/delhi-high-court/livelaw-delhi-high-court-weekly-round-up-september-06-to-september-13-2026-550003
+
+[Read on Telegram](https://t.me/livelawindia/119795)
 
 ---
