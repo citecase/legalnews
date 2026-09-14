@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-14T12:52:34+00:00*
+*Last Updated: 2026-09-14T15:32:17+00:00*
+
+---
+
+### 2026-09-14T15:32:17+00:00
+Paralegal Personnel Vacancy At District Women and Child Welfare Department, Chittoor
+https://www.verdictum.in/job-updates/district-women-and-child-welfare-department-1621945
+
+[Source Link](https://t.me/verdictumlegalupdates/29089)
+
+---
+
+### 2026-09-14T14:52:16+00:00
+Passing Of Divorce Decree Doesn’t Preclude Wife From Seeking Permanent Alimony U/S.25 Of Hindu Marriage Act: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/a-v-b-2026mphc-jbp68339-divorce-decree-wife-relief-permanent-alimony-hindu-marriage-act-1621948
+
+[Source Link](https://t.me/verdictumlegalupdates/29088)
+
+---
+
+### 2026-09-14T14:12:35+00:00
+Allahabad High Court Keeps Suspension Of Teacher In Forced Conversion Case In Abeyance Pending Disciplinary Inquiry
+https://www.verdictum.in/allahabad-high-court/mohd-anzar-ahmed-v-principal-secretary-basic-education-2026ahc186152-forced-conversion-case-1621947
+
+[Source Link](https://t.me/verdictumlegalupdates/29087)
+
+---
+
+### 2026-09-14T13:32:14+00:00
+Weekly Overview| Supreme Court Judgments: September 07– September 11, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-september-07-september-11-2026-1621946
+
+[Source Link](https://t.me/verdictumlegalupdates/29086)
 
 ---
 
@@ -129,38 +161,6 @@ Adverse PVR Relevant Factor, But Must Meet Natural Justice Standards: Delhi High
 https://www.verdictum.in/delhi-high-court/asaf-ali-lone-v-joint-secretary-psp-chief-passport-officer-2026dhc7542-police-verification-report-pvr-section-62-passports-act-1621862
 
 [Source Link](https://t.me/verdictumlegalupdates/29070)
-
----
-
-### 2026-09-13T15:02:35+00:00
-Empanelment Of Advocates At District Legal Services Authority, Ahmedabad (DLSA Ahmedabad)
-https://www.verdictum.in/job-updates/district-legal-services-authority-1621859
-
-[Source Link](https://t.me/verdictumlegalupdates/29069)
-
----
-
-### 2026-09-13T13:33:14+00:00
-Administrative Discretion Not Placed Beyond Judicial Review: Supreme Court Directs To Grant Permission To J&K Physical Ed. Teacher For National Kayaking Coaching
-https://www.verdictum.in/supreme-court/indian-kayaking-and-canoeing-association-v-union-territory-of-jk-2026-insc-981-govt-order-teacher-1621860
-
-[Source Link](https://t.me/verdictumlegalupdates/29068)
-
----
-
-### 2026-09-13T12:03:13+00:00
-Different Yardstick Cannot Be Applied: Bombay High Court Directs Regularisation Of 479 VVMC Doctors & Medical Staff, Quashes CBT Mandate For COVID-19 Frontliners
-https://www.verdictum.in/bombay-high-court/dr-bhakti-deepak-chaudhary-v-vasai-virar-city-municipal-corporation-2026bhc-as37648-db-doctors-medical-staff-covid-19-frontliners-1621858
-
-[Source Link](https://t.me/verdictumlegalupdates/29067)
-
----
-
-### 2026-09-13T10:32:52+00:00
-Recovery From Class-III Employees Impermissible: Bombay High Court Quashes ₹40 Lakh Recovery Notice Against Retired Pune University's Data Entry Operator
-https://www.verdictum.in/bombay-high-court/shrinivas-ganesh-kulkarni-v-savitribai-phule-pune-university-2026bhc-as37589-db-retired-pune-universitys-data-entry-operator-1621857
-
-[Source Link](https://t.me/verdictumlegalupdates/29066)
 
 ---
 
