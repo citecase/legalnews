@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-13T15:02:35+00:00*
+*Last Updated: 2026-09-14T05:03:03+00:00*
+
+---
+
+### 2026-09-14T05:03:03+00:00
+Wife Pressurizing Husband To Set Up Separate Residence & Her Frequent Visits To Maternal House Amount To Cruelty: Madras High Court
+https://www.verdictum.in/madras-high-court/a-v-b-wife-pressurising-husband-separate-residence-visit-maternal-house-cruelty-1621914
+
+[Source Link](https://t.me/verdictumlegalupdates/29071)
+
+---
+
+### 2026-09-14T04:32:52+00:00
+Adverse PVR Relevant Factor, But Must Meet Natural Justice Standards: Delhi High Court Remands Student’s Passport Application For Fresh Hearing
+https://www.verdictum.in/delhi-high-court/asaf-ali-lone-v-joint-secretary-psp-chief-passport-officer-2026dhc7542-police-verification-report-pvr-section-62-passports-act-1621862
+
+[Source Link](https://t.me/verdictumlegalupdates/29070)
 
 ---
 
@@ -145,22 +161,6 @@ Victim & Accused Didn’t Take Divorce From Their Respective Spouses: Himachal P
 https://www.verdictum.in/himachal-high-court/vinod-kumar-v-state-of-himachal-pradesh-2026hhc37603-false-promise-to-marry-divorce-1621826
 
 [Source Link](https://t.me/verdictumlegalupdates/29052)
-
----
-
-### 2026-09-12T05:33:14+00:00
-Calcutta High Court Orders State To Rebuild Property & Pay ₹10L Compensation For Excess Demolition Beyond Encroachment Order
-https://www.verdictum.in/calcutta-high-court/rebuild-demolished-property-pay-10-lakh-compensation-excess-demolition-1621821
-
-[Source Link](https://t.me/verdictumlegalupdates/29051)
-
----
-
-### 2026-09-12T04:32:53+00:00
-Would Open A Pandora's Box: Delhi High Court Declines To Let Vinesh Phogat Participate In 2026 Senior World Wrestling Championship Selection Trials
-https://www.verdictum.in/delhi-high-court/vinesh-phogat-v-wrestling-federation-of-india-2026dhc7773-2026-senior-world-wrestling-championship-1621796
-
-[Source Link](https://t.me/verdictumlegalupdates/29050)
 
 ---
 
