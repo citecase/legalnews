@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-13T03:32:24+00:00*
+*Last Updated: 2026-09-13T06:47:06+00:00*
 
 ---
 
-### 2026-09-13T03:32:24+00:00
-LiveLaw Supreme Court Half-Yearly Digest: January-June 2026 [Part 2]
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-half-yearly-digest-2026-549798
-
-[Read on Telegram](https://t.me/livelawindia/119727)
-
----
-### 2026-09-13T03:55:54+00:00
-Kakinada Consumer Commission Holds Temple Shop Licensee Liable For Selling Water Bottle Above MRP, Imposes ₹7 Lakh Punitive Damages
-https://www.livelaw.in/consumer-cases/kakinada-consumer-commission-holds-temple-shop-licensee-liable-for-selling-water-bottle-above-mrp-imposes-7-lakh-punitive-damages-549881
-
-[Read on Telegram](https://t.me/livelawindia/119728)
-
----
-### 2026-09-13T04:33:24+00:00
-LiveLaw Gauhati High Court Monthly Digest: August 2026
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-monthly-digest-august-2026-548880
-
-[Read on Telegram](https://t.me/livelawindia/119729)
-
----
-### 2026-09-13T05:32:56+00:00
-Beyond Marriage: Same-Sex Gap In Supreme Court's New Section 498A Test
-https://www.livelaw.in/articles/beyond-marriage-same-sex-gap-supreme-court-new-section498a-test-549869
-
-[Read on Telegram](https://t.me/livelawindia/119730)
-
----
-### 2026-09-13T05:33:06+00:00
-Daughter-In-Law Not Liable When Senior Citizen's Own Children Alive: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-daughter-in-law-senior-citizens-act-549882
-
-[Read on Telegram](https://t.me/livelawindia/119731)
-
----
-### 2026-09-13T06:28:06+00:00
-Scrap Tenth Schedule, Replace It With Simple Provision Disqualifying Legislators Changing Party Midterm: Kapil Sibal
-https://www.livelaw.in/top-stories/scrap-tenth-schedule-replace-it-with-simple-provision-disqualifying-legislators-changing-party-midterm-kapil-sibal-549886
-
-[Read on Telegram](https://t.me/livelawindia/119732)
-
----
 ### 2026-09-13T06:47:06+00:00
 J&K&L High Court Allows Minor Rape Survivor To Terminate 26-Week Pregnancy, Says Constitutional Remedy Not Barred Even If Statutory Time Limit Exceeded
 https://www.livelaw.in/high-court/jammu-kashmir/lack-of-remedy-under-mtp-act-does-not-bar-constitutional-remedy-jk-high-court-allows-minor-rape-survivor-to-terminate-26-week-pregnancy-549880
@@ -142,5 +100,47 @@ NLSIU Students' Group Postpones Screening Of Umar Khalid Documentary, Denies Bow
 https://www.livelaw.in/top-stories/nlsiu-students-group-postpones-screening-of-umar-khalid-documentary-denies-bowing-to-any-pressure-549893
 
 [Read on Telegram](https://t.me/livelawindia/119746)
+
+---
+### 2026-09-14T03:32:05+00:00
+LiveLaw Supreme Court Half-Yearly Digest: January-June 2026 [Part 3]
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-half-yearly-digest-2026-549799
+
+[Read on Telegram](https://t.me/livelawindia/119747)
+
+---
+### 2026-09-14T03:54:15+00:00
+LiveLaw Kerala High Court Weekly Round-Up: September 7 - September 13, 2026
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-weekly-round-up-september-2026-549903
+
+[Read on Telegram](https://t.me/livelawindia/119748)
+
+---
+### 2026-09-14T04:04:15+00:00
+Project Officer (Legal) Vacancy At Indian Institute Of Technology Kharagpur (IIT Kharagpur)
+https://www.livelaw.in/job-updates/project-officer-legal-vacancy-at-indian-institute-of-technology-kharagpur-iit-kharagpur-549905
+
+[Read on Telegram](https://t.me/livelawindia/119749)
+
+---
+### 2026-09-14T04:05:15+00:00
+Top 20 High Court Judgments Of The Week
+https://www.livelaw.in/top-stories/top-20-high-court-judgments-of-the-week-549907
+
+[Read on Telegram](https://t.me/livelawindia/119750)
+
+---
+### 2026-09-14T04:06:15+00:00
+Legal Officer (Young Professional-II) Vacancy At Tamil Nadu Forest And Wildlife Crime Control Bureau
+https://www.livelaw.in/job-updates/legal-officer-young-professional-ii-vacancy-at-tamil-nadu-forest-and-wildlife-crime-control-bureau-549908
+
+[Read on Telegram](https://t.me/livelawindia/119751)
+
+---
+### 2026-09-14T04:11:36+00:00
+Assistant Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
+https://www.livelaw.in/job-updates/assistant-manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-549911
+
+[Read on Telegram](https://t.me/livelawindia/119752)
 
 ---
