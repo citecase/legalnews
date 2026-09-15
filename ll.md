@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-15T12:47:57+00:00*
+*Last Updated: 2026-09-15T12:51:37+00:00*
 
 ---
 
-### 2026-09-15T12:47:57+00:00
-SARFAESI Proceedings Can Be Invoked Despite Earlier Decree Passed In DRT OA For Same Debt : Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-sarfaesi-proceedings-invoked-despite-decree-passed-drt-suit-res-judicata-inapplicable-550165
-
-[Read on Telegram](https://t.me/livelawindia/119881)
-
----
-### 2026-09-15T12:49:17+00:00
-2026 LiveLaw (SC) 932 | KK Praveen v JM Financial Asset Reconstruction Company P Ltd & Ors
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-932-kk-praveen-v-jm-financial-asset-reconstruction-company-p-ltd-ors-550166
-
-[Read on Telegram](https://t.me/livelawindia/119882)
-
----
 ### 2026-09-15T12:51:37+00:00
 Court Flags Gaps In Delhi Police Probe While Granting Interim Bail To Swatantra Bhardwaj, Bars Him From Discussing Case In Media
 https://www.livelaw.in/news-updates/swatantra-bhardwaj-interim-bail-delhi-police-probe-lapse-bar-on-discussing-case-social-media-550167
@@ -142,5 +128,19 @@ Kashi Mutt Dispute : Supreme Court Allows Successor Of Mathadipathi To Pursue Ex
 https://www.livelaw.in/top-stories/kashi-mutt-dispute-supreme-court-allows-successor-of-mathadipathi-to-pursue-execution-proceedings-550188
 
 [Read on Telegram](https://t.me/livelawindia/119900)
+
+---
+### 2026-09-15T17:27:19+00:00
+Supreme Court Daily Round-Up : September 15, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-september-15-2026-550189
+
+[Read on Telegram](https://t.me/livelawindia/119901)
+
+---
+### 2026-09-15T18:25:00+00:00
+LiveLaw High Courts Daily Highlights: September 15, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-15-2026-550192
+
+[Read on Telegram](https://t.me/livelawindia/119902)
 
 ---
