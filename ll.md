@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-14T09:33:03+00:00*
+*Last Updated: 2026-09-15T09:03:10+00:00*
 
 ---
 
-### 2026-09-14T09:33:03+00:00
-Constitution Of Constitution Benches
-https://www.livelaw.in/articles/constitution-of-constitution-benches-interpret-constitution-549917
+### 2026-09-15T09:03:10+00:00
+Custodial Torture Is Prohibited, But Police Can't Be Held Liable On Disputed Allegations: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/delhi-police-custodial-torture-disputed-allegations-corroborative-material-550098
 
-[Read on Telegram](https://t.me/livelawindia/119780)
-
----
-### 2026-09-14T09:43:03+00:00
-Calcutta High Court Upholds Jail Sentence For Building Owner Who Carried Out Unauthorised Construction Under Roof-Repair Permit
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-upholds-jail-sentence-for-building-owner-who-carried-out-unauthorised-construction-under-roof-repair-permit-549939
-
-[Read on Telegram](https://t.me/livelawindia/119781)
+[Read on Telegram](https://t.me/livelawindia/119853)
 
 ---
-### 2026-09-14T10:28:53+00:00
-MP High Court Directs Fresh Appointment For Additional Public Prosecutor In Mhow Sessions Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-directs-fresh-appointment-for-additional-public-prosecutor-549968
+### 2026-09-15T09:17:50+00:00
+MACT | Pay Protection No Bar To Compensation For Loss Of Future Income If Post Is Reduced Following Accident: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-compensation-loss-of-future-income-head-denied-pay-protection-550099
 
-[Read on Telegram](https://t.me/livelawindia/119782)
-
----
-### 2026-09-14T10:48:24+00:00
-'Absolute Inertia': MP High Court Issues Arrest Warrants Against Govt Officials For Not Appearing In Contempt Case
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-issues-arrest-warrants-against-two-ias-officers-for-failing-to-appear-in-contempt-case-549969
-
-[Read on Telegram](https://t.me/livelawindia/119783)
+[Read on Telegram](https://t.me/livelawindia/119854)
 
 ---
-### 2026-09-14T11:05:24+00:00
-Karnataka High Court Sets Aside Trial Court's Spot Inspection In Property Suit, Says It Must Generally Follow Recording Of Evidence
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-sets-aside-trial-court-proceedings-549973
+### 2026-09-15T09:32:31+00:00
+Cost Of Convenience: UPI, MDR And India's Digital Future
+https://www.livelaw.in/lawschool/articles/cost-of-convenience-upi-mdr-india-digital-future-550000
 
-[Read on Telegram](https://t.me/livelawindia/119784)
-
----
-### 2026-09-14T11:30:46+00:00
-'Permanent Alimony Not Intended To Equalise Wealth': Karnataka High Court Slashes Wife's ₹2 Crore Alimony To ₹50 Lakh
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-slashes-permanent-alimony-549976
-
-[Read on Telegram](https://t.me/livelawindia/119785)
+[Read on Telegram](https://t.me/livelawindia/119855)
 
 ---
-### 2026-09-14T11:49:16+00:00
-Maintenance | Multiplication Of 'Non-Compulsive' Litigation Creating Unwarranted Burden On Family Courts: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/maintenance-multiple-proceedings-family-courts-allahabad-high-court-549978
+### 2026-09-15T09:32:41+00:00
+Beyond Winner And Loser: Reimagining Section 9 In Post-Award Stage
+https://www.livelaw.in/articles/beyond-winner-loser-reimagining-section9-post-award-stage-549999
 
-[Read on Telegram](https://t.me/livelawindia/119786)
-
----
-### 2026-09-14T11:52:16+00:00
-Part-Heard Criminal Trial Can Be Transferred; Accused Cannot Insist On Same Judge Continuing Case: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-accused-vested-right-to-insist-trial-particular-judge-549977
-
-[Read on Telegram](https://t.me/livelawindia/119787)
+[Read on Telegram](https://t.me/livelawindia/119856)
 
 ---
-### 2026-09-14T12:10:16+00:00
-LiveLaw Madhya Pradesh High Court Weekly Roundup: September 07 - September 13, 2026
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-weekly-digest-september-7-to-september-13-2026-549983
+### 2026-09-15T09:33:11+00:00
+'Abuse Of Process Of Law': P&H High Court Refuses Protection To Live-In Couple, Notes Both Partners Are Already Married & Have Children
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/live-in-relationship-partners-already-married-have-children-no-police-protection-550102
 
-[Read on Telegram](https://t.me/livelawindia/119788)
-
----
-### 2026-09-14T13:18:57+00:00
-PIL In AP High Court Challenges Google-Adani Data Centre Project At Visakhapatnam, State Claims Steps Taken To Protect Environment
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-issues-notice-pil-challenging-google-adani-data-centre-project-cites-environmental-concerns-549989
-
-[Read on Telegram](https://t.me/livelawindia/119789)
+[Read on Telegram](https://t.me/livelawindia/119857)
 
 ---
-### 2026-09-14T13:43:40+00:00
-On Hindi Diwas, Supreme Court Announces Service To Give Judgment Summaries, Audio-Video Bulletin In Hindi
-https://www.livelaw.in/top-stories/on-hindi-diwas-supreme-court-announces-service-to-give-judgment-summaries-audio-video-bulletin-in-hindi-549992
+### 2026-09-15T09:42:31+00:00
+Delhi High Court To Decide On November 26 Shehla Rashid's Plea Seeking Apology From Zee News, Sudhir Chaudhary Over 2020 Broadcast
+https://www.livelaw.in/high-court/delhi-high-court/shehla-rashid-plea-for-apology-zee-news-sudhiar-chaudhary-show-550108
 
-[Read on Telegram](https://t.me/livelawindia/119790)
-
----
-### 2026-09-14T13:47:20+00:00
-State Can't Restrict Transfer Of Lawful Leasehold Interest Due To Technical Glitches In Online Software: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-software-portal-cannot-become-source-restrict-rights-549990
-
-[Read on Telegram](https://t.me/livelawindia/119791)
+[Read on Telegram](https://t.me/livelawindia/119858)
 
 ---
-### 2026-09-14T14:18:10+00:00
-Delhi High Court Dismisses Vimal Elaichi's Plea Challenging FDA Notice To Shah Rukh Khan, Ajay Devgn, Tiger Shroff
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-dismisses-vimal-elaichis-plea-challenging-fda-notice-to-shah-rukh-khan-ajay-devgn-tiger-shroff-549995
+### 2026-09-15T09:42:41+00:00
+P&H High Court Issues Notice On Contempt Plea Claiming IOA Prez PT Usha Failed To Send Player's Name For Asian Games Despite Assurance
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/ioa-president-pt-usha-alleges-association-reneged-on-assurance-to-recommend-her-for-asian-games-2026-550105
 
-[Read on Telegram](https://t.me/livelawindia/119792)
-
----
-### 2026-09-14T14:32:30+00:00
-Does One Forum Fit All?
-https://www.livelaw.in/articles/does-one-forum-fit-all-549920
-
-[Read on Telegram](https://t.me/livelawindia/119793)
+[Read on Telegram](https://t.me/livelawindia/119859)
 
 ---
-### 2026-09-14T15:07:01+00:00
-Does Conversion Automatically End Scheduled Tribe Status? Allahabad High Court Answers
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-scheduled-tribe-status-conversion--550002
+### 2026-09-15T09:44:31+00:00
+Premature Release | Jail Conduct Alone Can't Decide A Convict's Eligibility, Govt Must Take Holistic View: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/premature-release-jail-conduct-holistic-view-allahabad-high-court-550110
 
-[Read on Telegram](https://t.me/livelawindia/119794)
-
----
-### 2026-09-14T15:47:51+00:00
-LiveLaw Delhi High Court Weekly Round-Up: September 06 To September 13, 2026
-https://www.livelaw.in/high-court/delhi-high-court/livelaw-delhi-high-court-weekly-round-up-september-06-to-september-13-2026-550003
-
-[Read on Telegram](https://t.me/livelawindia/119795)
+[Read on Telegram](https://t.me/livelawindia/119860)
 
 ---
-### 2026-09-15T02:33:03+00:00
-India's Surveillance Gap
-https://www.livelaw.in/articles/india-surveillance-gap-549996
+### 2026-09-15T09:52:31+00:00
+Deceased's Statement To Electronic Media Cannot Be Treated As Dying Declaration At FIR Registration Stage: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/statements-to-media-not-dying-declaration-fir-registration-stage-550104
 
-[Read on Telegram](https://t.me/livelawindia/119796)
-
----
-### 2026-09-15T02:58:23+00:00
-'Free Umar Khalid' Is A Valid Statement For Those Who Understand Constitution & Believe In Democracy : Adv Vrinda Grover
-https://www.livelaw.in/top-stories/free-umar-khalid-is-a-valid-statement-for-those-who-understand-constitution-believe-in-democracy-adv-vrinda-grover-550013
-
-[Read on Telegram](https://t.me/livelawindia/119797)
+[Read on Telegram](https://t.me/livelawindia/119861)
 
 ---
-### 2026-09-15T03:39:34+00:00
-Consultant Vacancy At Deloitte Touche Tohmatsu India LLP [Bangalore; Apply Now]
-https://www.livelaw.in/job-updates/consultant-vacancy-at-deloitte-touche-tohmatsu-india-llp-bangalore-550014
+### 2026-09-15T09:55:21+00:00
+Delhi Court Grants 3 Weeks Interim Bail To Swatantra Bhardwaj In CJP Protester Assault Case
+https://www.livelaw.in/news-updates/delhi-court-grants-3-weeks-interim-bail-to-swatantra-bhardwaj-in-cjp-protester-assault-case-550115
 
-[Read on Telegram](https://t.me/livelawindia/119798)
+[Read on Telegram](https://t.me/livelawindia/119862)
 
 ---
-### 2026-09-15T03:42:34+00:00
-Centre Prohibits Charges On UPI Transactions Up To Rs 2,000 & RuPay Debit Card
-https://www.livelaw.in/top-stories/centre-prohibits-charges-on-upi-transactions-up-to-rs-2000-rupay-debit-card-550015
+### 2026-09-15T10:03:01+00:00
+Twisha Sharma Dowry Death Case: MP High Court Gives CBI One Week To Respond To Giribala Singh's Bail Plea
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/twisha-sharma-dowry-death-giribala-singh-bail-cbi-reply-550118
 
-[Read on Telegram](https://t.me/livelawindia/119799)
+[Read on Telegram](https://t.me/livelawindia/119863)
+
+---
+### 2026-09-15T10:03:12+00:00
+Karuvatta Murder Case: Kerala High Court Upholds JJB Order Allowing Escorted Movement Of Minors For Evidence Collection
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-karuvatta-murder-case-550106
+
+[Read on Telegram](https://t.me/livelawindia/119864)
+
+---
+### 2026-09-15T10:08:03+00:00
+Probation Officer Cum Child Welfare Officer Vacancy At Utkal Balashram Brahmapur, Odisha
+https://www.livelaw.in/job-updates/probation-officer-cum-child-welfare-officer-vacancy-at-utkal-balashram-brahmapur-odisha-550121
+
+[Read on Telegram](https://t.me/livelawindia/119865)
+
+---
+### 2026-09-15T10:12:21+00:00
+Karnataka High Court Asks 32-Year-Old Woman To Clarify Basis Of Challenge To 35-Year Minimum Age For Surrogacy
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-reading-down-age-limit-surrogacy-plea-health-condition-arbitrariness-550107
+
+[Read on Telegram](https://t.me/livelawindia/119866)
+
+---
+### 2026-09-15T10:20:42+00:00
+Actor Rajpal Yadav Seeks More Time To Deposit ₹5 Crore In Supreme Court
+https://www.livelaw.in/top-stories/actor-rajpal-yadav-seeks-more-time-to-deposit-5-crore-in-supreme-court-550126
+
+[Read on Telegram](https://t.me/livelawindia/119867)
+
+---
+### 2026-09-15T10:22:41+00:00
+Criminal Action For Carrying Out Emergency Repairs In Protected Monument Zone Is 'Opposed To Article 21': Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-ancient-monuments-act-restoration-construction-protected-monument-fir-550113
+
+[Read on Telegram](https://t.me/livelawindia/119868)
+
+---
+### 2026-09-15T10:32:22+00:00
+Legal Heirship Certificates Can't Be Restricted By Property Value, ₹5 Lakh Cap Has No Rationale: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/revenue-authorities-legal-heirship-certificates-property-value-kerala-high-court-550125
+
+[Read on Telegram](https://t.me/livelawindia/119869)
+
+---
+### 2026-09-15T10:42:52+00:00
+Bail Applications Without Details Of Criminal Antecedents, Prior Pleas Not To Be Numbered: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-antecedents-prior-bail-plea-550128
+
+[Read on Telegram](https://t.me/livelawindia/119870)
+
+---
+### 2026-09-15T11:06:54+00:00
+'Red Signal Not Enough' : Supreme Court Suggests Speed Breakers & Rumble Strips Near Delhi High Court Road Crossing
+https://www.livelaw.in/top-stories/red-signal-not-enough-supreme-court-suggests-speed-breakers-rumble-strips-near-delhi-high-court-road-crossing-550134
+
+[Read on Telegram](https://t.me/livelawindia/119871)
+
+---
+### 2026-09-15T11:07:54+00:00
+Police Cannot Decide Legality Of Dairy Farms Or Health Hazard Claims, Pollution Control Board Is Appropriate Authority: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/police-cannot-decide-legality-of-dairy-farms-or-health-hazard-claims-pollution-control-board-is-appropriate-authority-calcutta-high-court-550067
+
+[Read on Telegram](https://t.me/livelawindia/119872)
 
 ---
