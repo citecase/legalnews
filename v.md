@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-14T15:32:17+00:00*
+*Last Updated: 2026-09-15T05:02:24+00:00*
+
+---
+
+### 2026-09-15T05:02:24+00:00
+Landlord Only Required To Demonstrate Title Which Is Superior To That Of Tenant In Proceedings U/S.14(1)(e) Of Delhi Rent Control Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/naresh-kumar-v-sunny-kashyap-2026dhc7650-landlord-title-delhi-rent-control-act-1621970
+
+[Source Link](https://t.me/verdictumlegalupdates/29091)
+
+---
+
+### 2026-09-15T04:33:13+00:00
+"Abuse Of Process": Madras High Court Quashes Animal Cruelty FIR Against Dog-Bite Victim Accused Of Pelting Stone
+https://www.verdictum.in/madras-high-court/quashes-animal-cruelty-fir-against-dog-bite-victim-accused-pelting-stone-1621950
+
+[Source Link](https://t.me/verdictumlegalupdates/29090)
 
 ---
 
@@ -145,22 +161,6 @@ Preliminary Enquiry Not Required When Forgery Committed Outside Court; Civil Cou
 https://www.verdictum.in/madhya-pradesh-high-court/himmat-singh-v-the-state-of-madhya-pradesh-2026mphc-ind25401-preliminary-enquiry-forgery-1621915
 
 [Source Link](https://t.me/verdictumlegalupdates/29072)
-
----
-
-### 2026-09-14T05:03:03+00:00
-Wife Pressurizing Husband To Set Up Separate Residence & Her Frequent Visits To Maternal House Amount To Cruelty: Madras High Court
-https://www.verdictum.in/madras-high-court/a-v-b-wife-pressurising-husband-separate-residence-visit-maternal-house-cruelty-1621914
-
-[Source Link](https://t.me/verdictumlegalupdates/29071)
-
----
-
-### 2026-09-14T04:32:52+00:00
-Adverse PVR Relevant Factor, But Must Meet Natural Justice Standards: Delhi High Court Remands Student’s Passport Application For Fresh Hearing
-https://www.verdictum.in/delhi-high-court/asaf-ali-lone-v-joint-secretary-psp-chief-passport-officer-2026dhc7542-police-verification-report-pvr-section-62-passports-act-1621862
-
-[Source Link](https://t.me/verdictumlegalupdates/29070)
 
 ---
 
