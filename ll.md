@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-14T08:32:32+00:00*
+*Last Updated: 2026-09-14T09:33:03+00:00*
 
 ---
 
-### 2026-09-14T08:32:32+00:00
-LiveLaw Andhra Pradesh High Court Weekly Round-Up: September 7 - September 13, 2026
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-weekly-roundup-549957
-
-[Read on Telegram](https://t.me/livelawindia/119776)
-
----
-### 2026-09-14T09:18:43+00:00
-Delhi Court Reserves Order On Swatantra Bhardwaj's Bail Plea In CJP Protester Assault Case
-https://www.livelaw.in/news-updates/delhi-court-reserves-order-on-swatantra-bhardwajs-bail-plea-in-cjp-protester-assault-case-549962
-
-[Read on Telegram](https://t.me/livelawindia/119777)
-
----
-### 2026-09-14T09:27:43+00:00
-SIR Is ECI Telling PM, 'Sir, We Will Do Whatever You Want' : Kapil Sibal
-https://www.livelaw.in/top-stories/sir-is-eci-telling-pm-sir-we-will-do-whatever-you-want-kapil-sibal-549964
-
-[Read on Telegram](https://t.me/livelawindia/119778)
-
----
-### 2026-09-14T09:32:23+00:00
-Article 226 Detour Closes: Supreme Court On Writ Restraint Against Appealable NCLT Orders
-https://www.livelaw.in/lawschool/articles/article-226-detour-closes-supreme-court-writ-restraint-appealable-nclt-orders-549918
-
-[Read on Telegram](https://t.me/livelawindia/119779)
-
----
 ### 2026-09-14T09:33:03+00:00
 Constitution Of Constitution Benches
 https://www.livelaw.in/articles/constitution-of-constitution-benches-interpret-constitution-549917
@@ -142,5 +114,33 @@ LiveLaw Delhi High Court Weekly Round-Up: September 06 To September 13, 2026
 https://www.livelaw.in/high-court/delhi-high-court/livelaw-delhi-high-court-weekly-round-up-september-06-to-september-13-2026-550003
 
 [Read on Telegram](https://t.me/livelawindia/119795)
+
+---
+### 2026-09-15T02:33:03+00:00
+India's Surveillance Gap
+https://www.livelaw.in/articles/india-surveillance-gap-549996
+
+[Read on Telegram](https://t.me/livelawindia/119796)
+
+---
+### 2026-09-15T02:58:23+00:00
+'Free Umar Khalid' Is A Valid Statement For Those Who Understand Constitution & Believe In Democracy : Adv Vrinda Grover
+https://www.livelaw.in/top-stories/free-umar-khalid-is-a-valid-statement-for-those-who-understand-constitution-believe-in-democracy-adv-vrinda-grover-550013
+
+[Read on Telegram](https://t.me/livelawindia/119797)
+
+---
+### 2026-09-15T03:39:34+00:00
+Consultant Vacancy At Deloitte Touche Tohmatsu India LLP [Bangalore; Apply Now]
+https://www.livelaw.in/job-updates/consultant-vacancy-at-deloitte-touche-tohmatsu-india-llp-bangalore-550014
+
+[Read on Telegram](https://t.me/livelawindia/119798)
+
+---
+### 2026-09-15T03:42:34+00:00
+Centre Prohibits Charges On UPI Transactions Up To Rs 2,000 & RuPay Debit Card
+https://www.livelaw.in/top-stories/centre-prohibits-charges-on-upi-transactions-up-to-rs-2000-rupay-debit-card-550015
+
+[Read on Telegram](https://t.me/livelawindia/119799)
 
 ---
