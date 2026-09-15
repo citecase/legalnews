@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-15T09:03:10+00:00*
+*Last Updated: 2026-09-15T12:47:57+00:00*
 
 ---
 
-### 2026-09-15T09:03:10+00:00
-Custodial Torture Is Prohibited, But Police Can't Be Held Liable On Disputed Allegations: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/delhi-police-custodial-torture-disputed-allegations-corroborative-material-550098
+### 2026-09-15T12:47:57+00:00
+SARFAESI Proceedings Can Be Invoked Despite Earlier Decree Passed In DRT OA For Same Debt : Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-sarfaesi-proceedings-invoked-despite-decree-passed-drt-suit-res-judicata-inapplicable-550165
 
-[Read on Telegram](https://t.me/livelawindia/119853)
-
----
-### 2026-09-15T09:17:50+00:00
-MACT | Pay Protection No Bar To Compensation For Loss Of Future Income If Post Is Reduced Following Accident: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-compensation-loss-of-future-income-head-denied-pay-protection-550099
-
-[Read on Telegram](https://t.me/livelawindia/119854)
+[Read on Telegram](https://t.me/livelawindia/119881)
 
 ---
-### 2026-09-15T09:32:31+00:00
-Cost Of Convenience: UPI, MDR And India's Digital Future
-https://www.livelaw.in/lawschool/articles/cost-of-convenience-upi-mdr-india-digital-future-550000
+### 2026-09-15T12:49:17+00:00
+2026 LiveLaw (SC) 932 | KK Praveen v JM Financial Asset Reconstruction Company P Ltd & Ors
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-932-kk-praveen-v-jm-financial-asset-reconstruction-company-p-ltd-ors-550166
 
-[Read on Telegram](https://t.me/livelawindia/119855)
-
----
-### 2026-09-15T09:32:41+00:00
-Beyond Winner And Loser: Reimagining Section 9 In Post-Award Stage
-https://www.livelaw.in/articles/beyond-winner-loser-reimagining-section9-post-award-stage-549999
-
-[Read on Telegram](https://t.me/livelawindia/119856)
+[Read on Telegram](https://t.me/livelawindia/119882)
 
 ---
-### 2026-09-15T09:33:11+00:00
-'Abuse Of Process Of Law': P&H High Court Refuses Protection To Live-In Couple, Notes Both Partners Are Already Married & Have Children
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/live-in-relationship-partners-already-married-have-children-no-police-protection-550102
+### 2026-09-15T12:51:37+00:00
+Court Flags Gaps In Delhi Police Probe While Granting Interim Bail To Swatantra Bhardwaj, Bars Him From Discussing Case In Media
+https://www.livelaw.in/news-updates/swatantra-bhardwaj-interim-bail-delhi-police-probe-lapse-bar-on-discussing-case-social-media-550167
 
-[Read on Telegram](https://t.me/livelawindia/119857)
-
----
-### 2026-09-15T09:42:31+00:00
-Delhi High Court To Decide On November 26 Shehla Rashid's Plea Seeking Apology From Zee News, Sudhir Chaudhary Over 2020 Broadcast
-https://www.livelaw.in/high-court/delhi-high-court/shehla-rashid-plea-for-apology-zee-news-sudhiar-chaudhary-show-550108
-
-[Read on Telegram](https://t.me/livelawindia/119858)
+[Read on Telegram](https://t.me/livelawindia/119883)
 
 ---
-### 2026-09-15T09:42:41+00:00
-P&H High Court Issues Notice On Contempt Plea Claiming IOA Prez PT Usha Failed To Send Player's Name For Asian Games Despite Assurance
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/ioa-president-pt-usha-alleges-association-reneged-on-assurance-to-recommend-her-for-asian-games-2026-550105
+### 2026-09-15T12:53:17+00:00
+Business Interest Must Yield To Public Interest In Eco-Sensitive Areas: J&K&L High Court Upholds Restriction On Amusement Facilities At Park
+https://www.livelaw.in/high-court/jammu-kashmir/business-interests-must-make-way-for-public-interest-in-eco-sensitive-manasbal-jk-high-court-directs-wmda-to-earmark-space-for-amusement-facilities-550122
 
-[Read on Telegram](https://t.me/livelawindia/119859)
-
----
-### 2026-09-15T09:44:31+00:00
-Premature Release | Jail Conduct Alone Can't Decide A Convict's Eligibility, Govt Must Take Holistic View: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/premature-release-jail-conduct-holistic-view-allahabad-high-court-550110
-
-[Read on Telegram](https://t.me/livelawindia/119860)
+[Read on Telegram](https://t.me/livelawindia/119884)
 
 ---
-### 2026-09-15T09:52:31+00:00
-Deceased's Statement To Electronic Media Cannot Be Treated As Dying Declaration At FIR Registration Stage: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/statements-to-media-not-dying-declaration-fir-registration-stage-550104
+### 2026-09-15T13:22:37+00:00
+J&K&L High Court Flags Infighting In Jammu Gurdwara Prabandhak Committee, Seeks Details Of District Gurdwaras
+https://www.livelaw.in/high-court/jammu-kashmir/jkl-high-court-flags-infighting-in-jammu-gurdwara-prabandhak-committee-seeks-audit-and-management-details-of-district-gurdwaras-550008
 
-[Read on Telegram](https://t.me/livelawindia/119861)
-
----
-### 2026-09-15T09:55:21+00:00
-Delhi Court Grants 3 Weeks Interim Bail To Swatantra Bhardwaj In CJP Protester Assault Case
-https://www.livelaw.in/news-updates/delhi-court-grants-3-weeks-interim-bail-to-swatantra-bhardwaj-in-cjp-protester-assault-case-550115
-
-[Read on Telegram](https://t.me/livelawindia/119862)
+[Read on Telegram](https://t.me/livelawindia/119885)
 
 ---
-### 2026-09-15T10:03:01+00:00
-Twisha Sharma Dowry Death Case: MP High Court Gives CBI One Week To Respond To Giribala Singh's Bail Plea
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/twisha-sharma-dowry-death-giribala-singh-bail-cbi-reply-550118
+### 2026-09-15T13:28:17+00:00
+Predicate Offence Acquittal Must Attain Finality To End PMLA Proceedings; Appeal Can't Be 'Blanket Shield': Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-predicate-offence-acquittal-attain-finality-end-pmla-action-550123
 
-[Read on Telegram](https://t.me/livelawindia/119863)
-
----
-### 2026-09-15T10:03:12+00:00
-Karuvatta Murder Case: Kerala High Court Upholds JJB Order Allowing Escorted Movement Of Minors For Evidence Collection
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-karuvatta-murder-case-550106
-
-[Read on Telegram](https://t.me/livelawindia/119864)
+[Read on Telegram](https://t.me/livelawindia/119886)
 
 ---
-### 2026-09-15T10:08:03+00:00
-Probation Officer Cum Child Welfare Officer Vacancy At Utkal Balashram Brahmapur, Odisha
-https://www.livelaw.in/job-updates/probation-officer-cum-child-welfare-officer-vacancy-at-utkal-balashram-brahmapur-odisha-550121
+### 2026-09-15T13:36:27+00:00
+Noida Protest | After Indicating Grant Of Bail, Allahabad High Court Defers Journalist Satyam Verma's Plea To Hear State's Objections
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-noida-workers-protest-grant-bail-defer-journalist-satyam-verma-objections-550173
 
-[Read on Telegram](https://t.me/livelawindia/119865)
-
----
-### 2026-09-15T10:12:21+00:00
-Karnataka High Court Asks 32-Year-Old Woman To Clarify Basis Of Challenge To 35-Year Minimum Age For Surrogacy
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-reading-down-age-limit-surrogacy-plea-health-condition-arbitrariness-550107
-
-[Read on Telegram](https://t.me/livelawindia/119866)
+[Read on Telegram](https://t.me/livelawindia/119887)
 
 ---
-### 2026-09-15T10:20:42+00:00
-Actor Rajpal Yadav Seeks More Time To Deposit ₹5 Crore In Supreme Court
-https://www.livelaw.in/top-stories/actor-rajpal-yadav-seeks-more-time-to-deposit-5-crore-in-supreme-court-550126
+### 2026-09-15T13:43:27+00:00
+Insurer Not Liable For Interest, Penalty Under Employees' Compensation Act Unless Policy Specifically Covers It:J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/insurance-company-cannot-be-held-liable-to-indemnify-employer-for-interest-or-penalty-under-workmens-compensation-act-jk-high-court-550120
 
-[Read on Telegram](https://t.me/livelawindia/119867)
-
----
-### 2026-09-15T10:22:41+00:00
-Criminal Action For Carrying Out Emergency Repairs In Protected Monument Zone Is 'Opposed To Article 21': Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-ancient-monuments-act-restoration-construction-protected-monument-fir-550113
-
-[Read on Telegram](https://t.me/livelawindia/119868)
+[Read on Telegram](https://t.me/livelawindia/119888)
 
 ---
-### 2026-09-15T10:32:22+00:00
-Legal Heirship Certificates Can't Be Restricted By Property Value, ₹5 Lakh Cap Has No Rationale: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/revenue-authorities-legal-heirship-certificates-property-value-kerala-high-court-550125
+### 2026-09-15T13:45:27+00:00
+Shiv Sena Row | ECI Considered Party-Wide Discontent, Not Just Legislative Split : Shinde To Supreme Court
+https://www.livelaw.in/top-stories/shiv-sena-row-eci-considered-party-wide-discontent-not-just-legislative-split-shinde-to-supreme-court-550175
 
-[Read on Telegram](https://t.me/livelawindia/119869)
-
----
-### 2026-09-15T10:42:52+00:00
-Bail Applications Without Details Of Criminal Antecedents, Prior Pleas Not To Be Numbered: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-antecedents-prior-bail-plea-550128
-
-[Read on Telegram](https://t.me/livelawindia/119870)
+[Read on Telegram](https://t.me/livelawindia/119889)
 
 ---
-### 2026-09-15T11:06:54+00:00
-'Red Signal Not Enough' : Supreme Court Suggests Speed Breakers & Rumble Strips Near Delhi High Court Road Crossing
-https://www.livelaw.in/top-stories/red-signal-not-enough-supreme-court-suggests-speed-breakers-rumble-strips-near-delhi-high-court-road-crossing-550134
+### 2026-09-15T13:47:27+00:00
+Enquiry Report By Sitting HC Judge In Administrative Capacity Is Not Judicial Order, Cannot Be Referred To Larger Bench: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/enquiry-report-by-sitting-hc-judge-in-administrative-capacity-is-not-judicial-order-cannot-be-referred-to-larger-bench-calcutta-high-court-550056
 
-[Read on Telegram](https://t.me/livelawindia/119871)
+[Read on Telegram](https://t.me/livelawindia/119890)
 
 ---
-### 2026-09-15T11:07:54+00:00
-Police Cannot Decide Legality Of Dairy Farms Or Health Hazard Claims, Pollution Control Board Is Appropriate Authority: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/police-cannot-decide-legality-of-dairy-farms-or-health-hazard-claims-pollution-control-board-is-appropriate-authority-calcutta-high-court-550067
+### 2026-09-15T14:20:37+00:00
+EPF Act | Whether Penalty For Delayed Provident Fund Deposit Is Mandatory? Supreme Court Refers To Larger Bench
+https://www.livelaw.in/supreme-court/epf-act-whether-penalty-for-delayed-provident-fund-deposit-is-mandatory-supreme-court-refers-to-larger-bench-550176
 
-[Read on Telegram](https://t.me/livelawindia/119872)
+[Read on Telegram](https://t.me/livelawindia/119891)
+
+---
+### 2026-09-15T14:22:37+00:00
+2026 LiveLaw (SC) 933 | M/s Kerala Industrial Infrastructure Development Corporation v Central Board of Trustees and Anr.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-933-ms-kerala-industrial-infrastructure-development-corporation-v-central-board-of-trustees-and-anr-550177
+
+[Read on Telegram](https://t.me/livelawindia/119892)
+
+---
+### 2026-09-15T14:32:57+00:00
+Subsequent Declaration Of Property Under Slum Area Doesn't Bar Execution Of Pre-Existing Eviction Decree: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/subsequent-slum-declaration-not-permission-eviction-execution-550009
+
+[Read on Telegram](https://t.me/livelawindia/119893)
+
+---
+### 2026-09-15T14:33:08+00:00
+Anti-Competitiveness When Airports Own Airlines
+https://www.livelaw.in/articles/anti-competitiveness-when-airports-own-airlines-550001
+
+[Read on Telegram](https://t.me/livelawindia/119894)
+
+---
+### 2026-09-15T14:44:57+00:00
+Can PMLA Adjudicating Authority Be Single Bench? Is Judicial Member Necessary? Supreme Court Reserves Judgment
+https://www.livelaw.in/top-stories/can-pmla-adjudicating-authority-be-single-bench-should-it-have-judicial-member-supreme-court-reserves-judgment-550180
+
+[Read on Telegram](https://t.me/livelawindia/119895)
+
+---
+### 2026-09-15T14:51:07+00:00
+Swatantra Bharadwaj| Twisha Sharma| ANI Copyright Case| Rajpal & more
+https://www.livelaw.in/podcast/twisha-sharma-rajpal-yadav-supreme-court-swantantra-bharadwaj-news-india-students-clat-judiciary-550182
+
+[Read on Telegram](https://t.me/livelawindia/119896)
+
+---
+### 2026-09-15T15:03:08+00:00
+Government Amends E-Commerce Rules To Strengthen Consumer Protection
+https://www.livelaw.in/consumer-cases/government-amends-e-commerce-rules-to-strengthen-consumer-protection-550184
+
+[Read on Telegram](https://t.me/livelawindia/119897)
+
+---
+### 2026-09-15T15:41:18+00:00
+Deed Granting Fishing Rights Is Transfer Of Immovable Property, Amounts To Lease : Supreme Court
+https://www.livelaw.in/supreme-court/deed-granting-fishing-rights-is-transfer-of-immovable-property-amounts-to-lease-supreme-court-550185
+
+[Read on Telegram](https://t.me/livelawindia/119898)
+
+---
+### 2026-09-15T15:42:38+00:00
+2026 LiveLaw (SC) 934 |  ZAKI ULLAH KHAN VERSUS STATE OF U.P.AND ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-934-zaki-ullah-khan-versus-state-of-upand-ors-550186
+
+[Read on Telegram](https://t.me/livelawindia/119899)
+
+---
+### 2026-09-15T15:59:58+00:00
+Kashi Mutt Dispute : Supreme Court Allows Successor Of Mathadipathi To Pursue Execution Proceedings
+https://www.livelaw.in/top-stories/kashi-mutt-dispute-supreme-court-allows-successor-of-mathadipathi-to-pursue-execution-proceedings-550188
+
+[Read on Telegram](https://t.me/livelawindia/119900)
 
 ---
