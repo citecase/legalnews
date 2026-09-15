@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-15T11:33:00+00:00*
+*Last Updated: 2026-09-15T16:02:18+00:00*
+
+---
+
+### 2026-09-15T16:02:18+00:00
+Law Officer Vacancy At Bank Of India
+https://www.verdictum.in/job-updates/bank-of-india-1622016
+
+[Source Link](https://t.me/verdictumlegalupdates/29113)
+
+---
+
+### 2026-09-15T15:32:57+00:00
+Woman Not Having Knowledge Of Husband’s Earlier Subsisting Marriage Can’t Be Charged With Bigamy: Madras High Court
+https://www.verdictum.in/madras-high-court/cause-title-a-v-the-state-woman-husband-marriage-bigamy-section-82-bns-1622022
+
+[Source Link](https://t.me/verdictumlegalupdates/29112)
+
+---
+
+### 2026-09-15T15:02:56+00:00
+No Prosecution For First-Time Misbranding Without Prior Written Warning: Delhi HC Quashes 1995 Case Against Kancor Ingredients
+https://www.verdictum.in/delhi-high-court/kancor-ingredients-ltd-v-govt-of-nct-of-delhi-2026dhc7801-ingredients-over-marinade-supplied-to-pepsico-restaurant-1622015
+
+[Source Link](https://t.me/verdictumlegalupdates/29111)
+
+---
+
+### 2026-09-15T14:32:45+00:00
+FSSAI's Presence In Delhi Cannot Confer Jurisdiction: Delhi High Court Dismisses Writ Petition Against Maharashtra FDA's Show Cause Notice To VIMAL Endorsers
+https://www.verdictum.in/delhi-high-court/p-b-agro-llp-v-union-of-india-2026dhc7810-fssais-presence-in-delhi-vimal-pan-masala-elaichi-endorsers-1622014
+
+[Source Link](https://t.me/verdictumlegalupdates/29110)
+
+---
+
+### 2026-09-15T14:02:44+00:00
+Delhi High Court Grants Bail To Alleged Pro-IS Terror Module Member In UAPA Case After 8 Years in Custody
+https://www.verdictum.in/delhi-high-court/mohammad-saqib-saqib-iftekar-v-national-investigation-agency-2026dhc7763-db-1622013
+
+[Source Link](https://t.me/verdictumlegalupdates/29109)
+
+---
+
+### 2026-09-15T13:33:23+00:00
+Demand Does Not Cease To Be Dowry Demand Merely Because Disclosed Purpose Is “Business” & Not “Personal Use”: Delhi High Court
+https://www.verdictum.in/delhi-high-court/naveen-kumar-verma-v-state-2026dhc7815-dowry-merely-because-purpose-business-personal-use-1622012
+
+[Source Link](https://t.me/verdictumlegalupdates/29108)
+
+---
+
+### 2026-09-15T13:02:22+00:00
+Supreme Court Asks Delhi Gymkhana Club Members To Raise Management Takeover Concerns Before High Court
+https://www.verdictum.in/supreme-court/delhi-gymkhana-club-members-to-raise-management-takeover-concerns-before-high-court-1622009
+
+[Source Link](https://t.me/verdictumlegalupdates/29107)
+
+---
+
+### 2026-09-15T12:32:42+00:00
+Delhi Court Grants Interim Bail To Social Media Influencer Swatantra Bhardwaj
+https://www.verdictum.in/other-courts/bail-to-social-media-influencer-swatantra-bhardwaj-1622006
+
+[Source Link](https://t.me/verdictumlegalupdates/29106)
+
+---
+
+### 2026-09-15T12:03:01+00:00
+Supreme Court Gives Rajpal Yadav Last Opportunity Of Two Weeks To Deposit Rs 2 Cr In Cheque Bounce Case
+https://www.verdictum.in/supreme-court/rajpal-yadav-last-opportunity-to-deposit-rs-2-cr-in-cheque-bounce-case-1622007
+
+[Source Link](https://t.me/verdictumlegalupdates/29105)
 
 ---
 
@@ -89,78 +161,6 @@ Conversion Or Inter-Religious Marriage Doesn't Automatically Extinguish ST Statu
 https://www.verdictum.in/allahabad-high-court/nanhki-naimunnisha-v-state-of-up-2026ahc191554-conversion-or-inter-religious-marriage-scheduled-tribe-1621980
 
 [Source Link](https://t.me/verdictumlegalupdates/29094)
-
----
-
-### 2026-09-15T06:02:46+00:00
-Deceased’s Inferred Consent & Partner’s Interest In Becoming Parent Require Utmost Consideration U/S.22 Of Assisted Reproductive Technology (Regulation) Act: Kerala High Court
-https://www.verdictum.in/kerala-high-court/a-v-union-of-india-2026ker66664-deceased-inferred-consent-parent-assisted-reproductive-technology-1621976
-
-[Source Link](https://t.me/verdictumlegalupdates/29093)
-
----
-
-### 2026-09-15T05:42:25+00:00
-Custody Violence Can't Be Termed Part Of Police Duty: Allahabad High Court Denies Relief To Police Officials In Custodial Assault Case
-https://www.verdictum.in/allahabad-high-court/lady-constable-shivani-joshi-v-state-of-up-2026ahc189809-sanction-public-servant-accused-1621973
-
-[Source Link](https://t.me/verdictumlegalupdates/29092)
-
----
-
-### 2026-09-15T05:02:24+00:00
-Landlord Only Required To Demonstrate Title Which Is Superior To That Of Tenant In Proceedings U/S.14(1)(e) Of Delhi Rent Control Act: Delhi High Court
-https://www.verdictum.in/delhi-high-court/naresh-kumar-v-sunny-kashyap-2026dhc7650-landlord-title-delhi-rent-control-act-1621970
-
-[Source Link](https://t.me/verdictumlegalupdates/29091)
-
----
-
-### 2026-09-15T04:33:13+00:00
-"Abuse Of Process": Madras High Court Quashes Animal Cruelty FIR Against Dog-Bite Victim Accused Of Pelting Stone
-https://www.verdictum.in/madras-high-court/quashes-animal-cruelty-fir-against-dog-bite-victim-accused-pelting-stone-1621950
-
-[Source Link](https://t.me/verdictumlegalupdates/29090)
-
----
-
-### 2026-09-14T15:32:17+00:00
-Paralegal Personnel Vacancy At District Women and Child Welfare Department, Chittoor
-https://www.verdictum.in/job-updates/district-women-and-child-welfare-department-1621945
-
-[Source Link](https://t.me/verdictumlegalupdates/29089)
-
----
-
-### 2026-09-14T14:52:16+00:00
-Passing Of Divorce Decree Doesn’t Preclude Wife From Seeking Permanent Alimony U/S.25 Of Hindu Marriage Act: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/a-v-b-2026mphc-jbp68339-divorce-decree-wife-relief-permanent-alimony-hindu-marriage-act-1621948
-
-[Source Link](https://t.me/verdictumlegalupdates/29088)
-
----
-
-### 2026-09-14T14:12:35+00:00
-Allahabad High Court Keeps Suspension Of Teacher In Forced Conversion Case In Abeyance Pending Disciplinary Inquiry
-https://www.verdictum.in/allahabad-high-court/mohd-anzar-ahmed-v-principal-secretary-basic-education-2026ahc186152-forced-conversion-case-1621947
-
-[Source Link](https://t.me/verdictumlegalupdates/29087)
-
----
-
-### 2026-09-14T13:32:14+00:00
-Weekly Overview| Supreme Court Judgments: September 07– September 11, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-september-07-september-11-2026-1621946
-
-[Source Link](https://t.me/verdictumlegalupdates/29086)
-
----
-
-### 2026-09-14T12:52:34+00:00
-Accidental Fall From Upper Berth Inside Moving Train Constitutes Untoward Incident: Delhi High Court
-https://www.verdictum.in/delhi-high-court/shyam-singh-v-union-of-india-2026dhc7766-accidental-fall-upper-berth-moving-train-1621943
-
-[Source Link](https://t.me/verdictumlegalupdates/29085)
 
 ---
 
