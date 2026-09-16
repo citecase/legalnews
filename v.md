@@ -1,6 +1,110 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-16T05:02:24+00:00*
+*Last Updated: 2026-09-16T11:33:15+00:00*
+
+---
+
+### 2026-09-16T11:33:15+00:00
+"Premature": Supreme Court Refuses To Reconstitute High-Powered Committee Probing NEET Protest Violence
+https://www.verdictum.in/supreme-court/refuses-reconstitute-high-powered-committee-probing-neet-protest-1622082
+
+[Source Link](https://t.me/verdictumlegalupdates/29128)
+
+---
+
+### 2026-09-16T11:02:14+00:00
+Mere Allegation Of Voluntarily Participating In Sexual Relations For Consideration Won’t Attract Sec.4 & 5 Of Immoral Traffic Act: Punjab & Haryana High Court
+https://www.verdictum.in/punjab-and-haryana-high-court/ajaib-singh-and-another-v-state-of-punjab-2026phhc126435-sec4-immoral-traffic-prevention-act-1622080
+
+[Source Link](https://t.me/verdictumlegalupdates/29127)
+
+---
+
+### 2026-09-16T10:32:53+00:00
+Repeated Touching Of A Child's Breasts Amounts To "Aggravated Sexual Assault" Under POCSO Act: Sikkim High Court
+https://www.verdictum.in/sikkim-high-court/limbu-manger-raju-thapa-v-state-of-sikkim-criminal-appeal-no-24-of-2025-pocso-repeated-touching-of-a-childs-breasts-1622078
+
+[Source Link](https://t.me/verdictumlegalupdates/29126)
+
+---
+
+### 2026-09-16T10:02:52+00:00
+Protest Petition Not Automatically A Complaint: Allahabad High Court Quashes Proceedings Against 13 Police Personnel, Issues Guidelines For Deciding Closure Reports
+https://www.verdictum.in/allahabad-high-court/bhuvnesh-kumari-and-12-others-v-state-of-up-and-another-2026ahc192431-1622077
+
+[Source Link](https://t.me/verdictumlegalupdates/29125)
+
+---
+
+### 2026-09-16T09:32:51+00:00
+Delhi High Court Asks Govt If It Is Contemplating Policy To Regulate Addiction-Causing Features On Social Media Apps
+https://www.verdictum.in/delhi-high-court/policy-to-regulate-addiction-causing-features-on-social-media-apps-1622073
+
+[Source Link](https://t.me/verdictumlegalupdates/29124)
+
+---
+
+### 2026-09-16T09:02:31+00:00
+Supreme Court Refuses To Order Removal Of Video Of Court Proceedings On Social Media; Asks Lawyer To Exhaust IT Act Remedies First
+https://www.verdictum.in/supreme-court/refuses-blanket-takedown-court-proceedings-videos-lawyer-exhaust-it-act-remedies-first-1622070
+
+[Source Link](https://t.me/verdictumlegalupdates/29123)
+
+---
+
+### 2026-09-16T08:32:30+00:00
+Challenge To Answer Key Can Be Entertained Only Where Error Is Glaring And Apparent Without Inferential Reasoning: Supreme Court
+https://www.verdictum.in/supreme-court/uttar-pradesh-subordinate-service-selection-commission-v-ashok-yadav-others-2026-insc-991-1622068
+
+[Source Link](https://t.me/verdictumlegalupdates/29122)
+
+---
+
+### 2026-09-16T08:02:29+00:00
+Apex Court Asks Gujarat HC To Register Suo Motu Case To Identify Victims Of 2022 Industrial Accident At Pesticide Plant
+https://www.verdictum.in/supreme-court/gujarat-hc-to-register-suo-motu-case-to-identify-victims-of-2022-industrial-accident-at-pesticide-plant-1622064
+
+[Source Link](https://t.me/verdictumlegalupdates/29121)
+
+---
+
+### 2026-09-16T07:32:28+00:00
+Preventive Jurisdiction Cannot Adjudicate Ecclesiastical Rights: Meghalaya High Court Quashes Deputy Commissioner Orders On Mawkhar Church Pastoral Care
+https://www.verdictum.in/meghalaya-high-court/mawkhar-presbyterian-church-v-state-of-meghalaya-2026mlhc1030-deputy-commissioner-orders-1622061
+
+[Source Link](https://t.me/verdictumlegalupdates/29120)
+
+---
+
+### 2026-09-16T07:03:07+00:00
+Calcutta High Court Sets Aside Fire Dept Order To Vacate 2 Floors Of Building Housing Abhishek Banerjee's Office
+https://www.verdictum.in/calcutta-high-court/fire-dept-order-vacate-2-floors-of-building-housing-abhishek-banerjees-office-set-aside-1622059
+
+[Source Link](https://t.me/verdictumlegalupdates/29119)
+
+---
+
+### 2026-09-16T06:35:47+00:00
+Requirement Of Prior Permission Can’t Be Invoked To Suspend Execution Of Eviction Decree Merely Due To Subsequent Declaration Of Property As Slum Area: Bombay High Court
+https://www.verdictum.in/bombay-high-court/sachin-v-miss-flymi-sadanandan-prior-permission-eviction-slum-area-1622057
+
+[Source Link](https://t.me/verdictumlegalupdates/29118)
+
+---
+
+### 2026-09-16T06:05:06+00:00
+Supreme Court Refers Issue Regarding Discretion Of Authorized Officer To Levy Penalty U/S.14B Of EPF Act To Larger Bench
+https://www.verdictum.in/supreme-court/ms-kerala-industrial-infrastructure-development-corporation-v-central-board-of-trustees-2026-insc-990-1622055
+
+[Source Link](https://t.me/verdictumlegalupdates/29117)
+
+---
+
+### 2026-09-16T05:35:25+00:00
+Raksha Mantri Committee's 2015 Recommendation To Withdraw NANA Litigation Not "Faithfully Implemented": Supreme Court Dismisses Union's Appeals On Armed Forces Disability Pension
+https://www.verdictum.in/supreme-court/union-of-india-ors-v-col-nc-isaac-retd-2026-insc-993-nana-litigation-not-faithfully-implemented-army-1622050
+
+[Source Link](https://t.me/verdictumlegalupdates/29116)
 
 ---
 
@@ -57,110 +161,6 @@ Delhi High Court Grants Bail To Alleged Pro-IS Terror Module Member In UAPA Case
 https://www.verdictum.in/delhi-high-court/mohammad-saqib-saqib-iftekar-v-national-investigation-agency-2026dhc7763-db-1622013
 
 [Source Link](https://t.me/verdictumlegalupdates/29109)
-
----
-
-### 2026-09-15T13:33:23+00:00
-Demand Does Not Cease To Be Dowry Demand Merely Because Disclosed Purpose Is “Business” & Not “Personal Use”: Delhi High Court
-https://www.verdictum.in/delhi-high-court/naveen-kumar-verma-v-state-2026dhc7815-dowry-merely-because-purpose-business-personal-use-1622012
-
-[Source Link](https://t.me/verdictumlegalupdates/29108)
-
----
-
-### 2026-09-15T13:02:22+00:00
-Supreme Court Asks Delhi Gymkhana Club Members To Raise Management Takeover Concerns Before High Court
-https://www.verdictum.in/supreme-court/delhi-gymkhana-club-members-to-raise-management-takeover-concerns-before-high-court-1622009
-
-[Source Link](https://t.me/verdictumlegalupdates/29107)
-
----
-
-### 2026-09-15T12:32:42+00:00
-Delhi Court Grants Interim Bail To Social Media Influencer Swatantra Bhardwaj
-https://www.verdictum.in/other-courts/bail-to-social-media-influencer-swatantra-bhardwaj-1622006
-
-[Source Link](https://t.me/verdictumlegalupdates/29106)
-
----
-
-### 2026-09-15T12:03:01+00:00
-Supreme Court Gives Rajpal Yadav Last Opportunity Of Two Weeks To Deposit Rs 2 Cr In Cheque Bounce Case
-https://www.verdictum.in/supreme-court/rajpal-yadav-last-opportunity-to-deposit-rs-2-cr-in-cheque-bounce-case-1622007
-
-[Source Link](https://t.me/verdictumlegalupdates/29105)
-
----
-
-### 2026-09-15T11:33:00+00:00
-Writ Petition Filed Before Karnataka High Court Challenging State's Order To Sing Only First Two Stanzas Of Vande Mataram
-https://www.verdictum.in/karnataka-high-court/plea-state-order-sing-only-first-two-stanzas-of-national-song-vande-mataram-1622008
-
-[Source Link](https://t.me/verdictumlegalupdates/29104)
-
----
-
-### 2026-09-15T11:03:19+00:00
-Rigours Of S.45 PMLA Can’t Be Hindrance To Bail If Treatment Of Medically Unfit Convict Becomes Mere Formality: Punjab And Haryana High Court
-https://www.verdictum.in/punjab-and-haryana-high-court/davinder-singh-nirwal-dev-v-directorate-of-enforcement-2026phhc128058-db-sec45-pmla-1622005
-
-[Source Link](https://t.me/verdictumlegalupdates/29103)
-
----
-
-### 2026-09-15T10:32:43+00:00
-Awarded Compensation Cannot Be Withheld By Discriminating Claimants On Ground Of Literacy & Financial Position: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/ram-naresh-singh-v-union-of-india-2026ahc190705-railway-accident-compensation-rules-1622003
-
-[Source Link](https://t.me/verdictumlegalupdates/29102)
-
----
-
-### 2026-09-15T10:03:13+00:00
-Supreme Court Issues Notice In Contempt Plea Against Union Education Secretary Alleging Failure To Decide Representation On Regulating Religious Institutions
-https://www.verdictum.in/supreme-court/contempt-plea-against-education-secretary-alleging-representation-regulating-religious-institutions-1622001
-
-[Source Link](https://t.me/verdictumlegalupdates/29101)
-
----
-
-### 2026-09-15T09:32:52+00:00
-Supreme Court Refuses To Entertain Chitra Ramkrishna's Plea Challenging Order In Co-Location Scam Case
-https://www.verdictum.in/supreme-court/chitra-ramkrishnas-plea-challenging-order-in-co-location-scam-case-1622000
-
-[Source Link](https://t.me/verdictumlegalupdates/29100)
-
----
-
-### 2026-09-15T09:02:31+00:00
-Supreme Court To Hear Plea By Wildlife SOS’s CEO Against Withdrawal Of Protection From Arrest In Leopard Poaching Case
-https://www.verdictum.in/supreme-court/plea-by-wildlife-soss-ceo-against-withdrawal-of-protection-from-arrest-in-leopard-poaching-case-1621997
-
-[Source Link](https://t.me/verdictumlegalupdates/29099)
-
----
-
-### 2026-09-15T08:32:50+00:00
-Using Phonetically & Visually Similar Trademark/Device In Vernacular Language Can Amount To Infringement Of Registered Mark: Madras High Court
-https://www.verdictum.in/madras-high-court/vikas-mandoth-v-msshanghai-huanqiu-lock-making-company-ltd-infringement-trademark-1621996
-
-[Source Link](https://t.me/verdictumlegalupdates/29098)
-
----
-
-### 2026-09-15T08:02:29+00:00
-Statutory Process For Forming Waqf Managing Committee Cannot Be Replaced With Ad-Hoc Panel: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/bazme-tohid-tanzeem-committee-mudalagi-anr-v-chief-executive-officer-karnataka-state-board-of-auqaf-ors-2026khc-d13086-1621991
-
-[Source Link](https://t.me/verdictumlegalupdates/29097)
-
----
-
-### 2026-09-15T07:33:08+00:00
-Supreme Court Dismisses Plea Seeking FIR Registration Against UP Police Over Late-Night Search For Abhishek Upadhyay At Ex-Mayor Farhad Suri's Residence
-https://www.verdictum.in/supreme-court/plea-fir-registration-up-police-over-late-night-search-abhishek-upadhyay-mayor-farhad-suri-1621985
-
-[Source Link](https://t.me/verdictumlegalupdates/29096)
 
 ---
 
