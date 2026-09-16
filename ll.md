@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-15T14:32:57+00:00*
+*Last Updated: 2026-09-16T08:08:45+00:00*
 
 ---
 
-### 2026-09-15T14:32:57+00:00
-Subsequent Declaration Of Property Under Slum Area Doesn't Bar Execution Of Pre-Existing Eviction Decree: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/subsequent-slum-declaration-not-permission-eviction-execution-550009
+### 2026-09-16T08:08:45+00:00
+Karnataka High Court Seeks Report On Steps Taken By Rule Committee To Frame Child Custody Guidelines
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-seeks-report-rule-making-committee-framing-rules-child-custody-guidelines-550269
 
-[Read on Telegram](https://t.me/livelawindia/119893)
-
----
-### 2026-09-15T14:33:08+00:00
-Anti-Competitiveness When Airports Own Airlines
-https://www.livelaw.in/articles/anti-competitiveness-when-airports-own-airlines-550001
-
-[Read on Telegram](https://t.me/livelawindia/119894)
+[Read on Telegram](https://t.me/livelawindia/119954)
 
 ---
-### 2026-09-15T14:44:57+00:00
-Can PMLA Adjudicating Authority Be Single Bench? Is Judicial Member Necessary? Supreme Court Reserves Judgment
-https://www.livelaw.in/top-stories/can-pmla-adjudicating-authority-be-single-bench-should-it-have-judicial-member-supreme-court-reserves-judgment-550180
+### 2026-09-16T08:33:36+00:00
+Delhi High Court Asks Centre To Decide Plea Against Sept 21 Cut-Off For Old Digital Signature Tokens, Questions Different Deadline For Govt Users
+https://www.livelaw.in/high-court/delhi-high-court/digital-signature-tokens-expiry-sept-21-old-fips-140-2-550271
 
-[Read on Telegram](https://t.me/livelawindia/119895)
-
----
-### 2026-09-15T14:51:07+00:00
-Swatantra Bharadwaj| Twisha Sharma| ANI Copyright Case| Rajpal & more
-https://www.livelaw.in/podcast/twisha-sharma-rajpal-yadav-supreme-court-swantantra-bharadwaj-news-india-students-clat-judiciary-550182
-
-[Read on Telegram](https://t.me/livelawindia/119896)
+[Read on Telegram](https://t.me/livelawindia/119955)
 
 ---
-### 2026-09-15T15:03:08+00:00
-Government Amends E-Commerce Rules To Strengthen Consumer Protection
-https://www.livelaw.in/consumer-cases/government-amends-e-commerce-rules-to-strengthen-consumer-protection-550184
+### 2026-09-16T08:47:36+00:00
+Supreme Court Allows Lawyer To Approach Social Media Platforms To Take Down Clips Of His Arguments In Court
+https://www.livelaw.in/top-stories/supreme-court-plea-to-takedown-audio-video-clips-of-judicial-proceedings-rejected-petitioner-asked-to-give-notice-to-social-media-intermediaries-550275
 
-[Read on Telegram](https://t.me/livelawindia/119897)
-
----
-### 2026-09-15T15:41:18+00:00
-Deed Granting Fishing Rights Is Transfer Of Immovable Property, Amounts To Lease : Supreme Court
-https://www.livelaw.in/supreme-court/deed-granting-fishing-rights-is-transfer-of-immovable-property-amounts-to-lease-supreme-court-550185
-
-[Read on Telegram](https://t.me/livelawindia/119898)
+[Read on Telegram](https://t.me/livelawindia/119956)
 
 ---
-### 2026-09-15T15:42:38+00:00
-2026 LiveLaw (SC) 934 |  ZAKI ULLAH KHAN VERSUS STATE OF U.P.AND ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-934-zaki-ullah-khan-versus-state-of-upand-ors-550186
+### 2026-09-16T08:48:16+00:00
+Delhi High Court Asks Its Committee To Consider Lawyer's Suggestions On Upgrading Hybrid Hearings Infra In District Courts
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-asks-committee-consider-lawyer-suggestions-upgrading-hybrid-hearings-550272
 
-[Read on Telegram](https://t.me/livelawindia/119899)
-
----
-### 2026-09-15T15:59:58+00:00
-Kashi Mutt Dispute : Supreme Court Allows Successor Of Mathadipathi To Pursue Execution Proceedings
-https://www.livelaw.in/top-stories/kashi-mutt-dispute-supreme-court-allows-successor-of-mathadipathi-to-pursue-execution-proceedings-550188
-
-[Read on Telegram](https://t.me/livelawindia/119900)
+[Read on Telegram](https://t.me/livelawindia/119957)
 
 ---
-### 2026-09-15T17:27:19+00:00
-Supreme Court Daily Round-Up : September 15, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-september-15-2026-550189
+### 2026-09-16T08:51:56+00:00
+Calcutta High Court Quashes Order Directing TMC To Vacate Camac Street Office Over Fire Safety Violations, Orders Fresh Inspection
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-quashes-order-directing-tmc-to-vacate-camac-street-office-over-fire-safety-violations-orders-fresh-inspection-550276
 
-[Read on Telegram](https://t.me/livelawindia/119901)
-
----
-### 2026-09-15T18:25:00+00:00
-LiveLaw High Courts Daily Highlights: September 15, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-15-2026-550192
-
-[Read on Telegram](https://t.me/livelawindia/119902)
+[Read on Telegram](https://t.me/livelawindia/119958)
 
 ---
-### 2026-09-16T02:32:35+00:00
-Body Before Birth: Can Article 21 Shield Genome From Non-Consensual CRISPR Editing?
-https://www.livelaw.in/articles/body-before-birth-article21-shield-genome-non-consensual-crispr-editing-550149
+### 2026-09-16T08:57:06+00:00
+Supreme Court Orders Status Quo On Sridevi's Chennai Property, Issues Notice To Boney Kapoor, Janhvi & Kushi On Rival Claim
+https://www.livelaw.in/top-stories/supreme-court-orders-status-quo-on-sridevis-chennai-property-issues-notice-to-boney-kapoor-janhvi-kushi-on-rival-claim-550277
 
-[Read on Telegram](https://t.me/livelawindia/119903)
-
----
-### 2026-09-16T02:48:36+00:00
-IndiGo Liable For Denying Boarding After Flight Reschedule; Delhi Consumer Commission Grants Relief To Passenger
-https://www.livelaw.in/consumer-cases/indigo-liable-for-denying-boarding-after-flight-reschedule-delhi-consumer-commission-grants-relief-to-passenger-550194
-
-[Read on Telegram](https://t.me/livelawindia/119904)
+[Read on Telegram](https://t.me/livelawindia/119959)
 
 ---
-### 2026-09-16T03:30:56+00:00
-'Army's Burden To Prove Disability Was Not Due To Service' : Supreme Court Dismisses Union's Appeals Against Disability Pension
-https://www.livelaw.in/supreme-court/supreme-court-dismisses-unions-appeals-against-disability-pension-550195
+### 2026-09-16T09:01:46+00:00
+Kochhar & Co. Advises Investors On Strategic Acquisition Of Stake In Parklife Innovations Limited
+https://www.livelaw.in/law-firms/deals/kochhar-co-advises-investors-strategic-acquisition-stake-parklife-innovations-limited-550279
 
-[Read on Telegram](https://t.me/livelawindia/119905)
-
----
-### 2026-09-16T03:31:56+00:00
-2026 LiveLaw (SC) 935 |  UNION OF INDIA & ORS. VERSUS COL. NC ISAAC
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-935-union-of-india-ors-versus-col-nc-isaac-550196
-
-[Read on Telegram](https://t.me/livelawindia/119906)
+[Read on Telegram](https://t.me/livelawindia/119960)
 
 ---
-### 2026-09-16T03:37:26+00:00
-Infrastructure Projects Need 'Preventive Justice' So That They Don't Get Stalled In Litigation : CJI Surya Kant
-https://www.livelaw.in/top-stories/infrastructure-projects-need-preventive-justice-so-that-they-dont-get-stalled-in-litigation-cji-surya-kant-550190
+### 2026-09-16T09:02:26+00:00
+Mutual Consent Divorce Under Hindu Marriage Act Valid Ground To Quash Cruelty Case U/S 498A IPC: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/mutual-consent-divorce-under-hindu-marriage-act-valid-ground-to-quash-cruelty-case-us-498a-ipc-calcutta-high-court-550232
 
-[Read on Telegram](https://t.me/livelawindia/119907)
-
----
-### 2026-09-16T03:37:36+00:00
-Manager (Legal) Vacancy At Meesho Limited [Apply Now]
-https://www.livelaw.in/job-updates/manager-legal-vacancy-at-meesho-limited-550197
-
-[Read on Telegram](https://t.me/livelawindia/119908)
+[Read on Telegram](https://t.me/livelawindia/119961)
 
 ---
-### 2026-09-16T03:40:16+00:00
-Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
-https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-550198
+### 2026-09-16T09:02:46+00:00
+Age Of 70-Year-Old Accused Not Enough To Grant Anticipatory Bail In Sexual Harassment FIR: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-anticipatory-bail-70-year-old-man-molestation-550273
 
-[Read on Telegram](https://t.me/livelawindia/119909)
-
----
-### 2026-09-16T03:41:16+00:00
-Senior Section Officer (Legal) Vacancy At Noida Metro Rail Corporation Limited
-https://www.livelaw.in/job-updates/senior-section-officer-legal-vacancy-at-noida-metro-rail-corporation-limited-550199
-
-[Read on Telegram](https://t.me/livelawindia/119910)
+[Read on Telegram](https://t.me/livelawindia/119962)
 
 ---
-### 2026-09-16T03:42:36+00:00
-Senior Assistant Officer (Law) Vacancy At NTPC Sail Power Company Limited (NSPCL)
-https://www.livelaw.in/job-updates/senior-assistant-officer-law-vacancy-at-ntpc-sail-power-company-limited-nspcl-550200
+### 2026-09-16T09:14:06+00:00
+Mental Health Counselling Regulation: Kerala High Court Directs Centre To File Affidavit On Allied Healthcare Professionals Act
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-national-commission-allied-healthcare-professionals-act-550280
 
-[Read on Telegram](https://t.me/livelawindia/119911)
+[Read on Telegram](https://t.me/livelawindia/119963)
 
 ---
-### 2026-09-16T04:05:17+00:00
-Karnataka High Court Awards ₹10.52 Lakh To Parents Of Boy Electrocuted While Retrieving Kite, Quashes Finding On Child's Negligence
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-awards-parents-boy-electrocuted-retrieving-kite-550202
+### 2026-09-16T09:29:56+00:00
+Supreme Court Allows Students Of Derecognized College Of Physicians & Surgeons Mumbai To Appear For Exams
+https://www.livelaw.in/top-stories/supreme-court-allows-students-of-derecognized-college-of-physicians-surgeons-mumbai-to-appear-for-exams-550282
 
-[Read on Telegram](https://t.me/livelawindia/119912)
+[Read on Telegram](https://t.me/livelawindia/119964)
+
+---
+### 2026-09-16T09:32:16+00:00
+Forgotten Educated Prisoner: Blind Spot In India's Prison Reform
+https://www.livelaw.in/articles/forgotten-educated-prisoner-blind-spot-india-prison-reform-550151
+
+[Read on Telegram](https://t.me/livelawindia/119965)
+
+---
+### 2026-09-16T09:38:36+00:00
+Unclaimed Motor Accident, Labour Compensation : Supreme Court Issues Notice To UP Over Delay In Dashboard Creation
+https://www.livelaw.in/top-stories/unclaimed-motor-accident-labour-compensation-supreme-court-issues-notice-to-up-over-delay-in-dashboard-creation-550283
+
+[Read on Telegram](https://t.me/livelawindia/119966)
+
+---
+### 2026-09-16T10:22:56+00:00
+Delhi High Court Reserves Verdict On Ajeet Bharti's Plea For Anticipatory Bail In SC/ST Act Case, Asks Why Police Notice Not Issued Yet
+https://www.livelaw.in/high-court/delhi-high-court/ajeet-bharti-sc-st-act-anticipatory-bail-verdict-reserved-550294
+
+[Read on Telegram](https://t.me/livelawindia/119967)
+
+---
+### 2026-09-16T10:23:56+00:00
+Mirzapur 'Shorveer' Row: Delhi High Court Suggests Petitioner Approach Centre In PIL Alleging Misuse Of Maharana Pratap Tribute Song
+https://www.livelaw.in/high-court/delhi-high-court/mirzapur-shorveer-row-delhi-high-court-suggests-petitioner-approach-centre-in-pil-alleging-misuse-of-maharana-pratap-tribute-song-550295
+
+[Read on Telegram](https://t.me/livelawindia/119968)
+
+---
+### 2026-09-16T10:34:16+00:00
+Plea In Delhi Court Seeks FIR Against CJP Protester Nishu Azad, Her Father Over 'Communal' Posts
+https://www.livelaw.in/news-updates/plea-in-delhi-court-seeks-fir-against-cjp-protester-nishu-azad-her-father-over-communal-posts-550299
+
+[Read on Telegram](https://t.me/livelawindia/119969)
+
+---
+### 2026-09-16T10:40:16+00:00
+Gurugram Hit & Run Case: Court Remands Man Accused Of Hitting Woman Biker To Two Days Police Custody
+https://www.livelaw.in/news-updates/gurugram-court-remands-man-accused-of-hitting-woman-biker-to-two-days-police-custody-550301
+
+[Read on Telegram](https://t.me/livelawindia/119970)
+
+---
+### 2026-09-16T10:47:16+00:00
+Delhi High Court Seeks Response Of Centre, IRCTC On Plea For Online Lower-Berth Booking Facility For Pregnant Women
+https://www.livelaw.in/high-court/delhi-high-court/irctc-respond-online-lower-berth-booking-facility-for-pregnant-women-550303
+
+[Read on Telegram](https://t.me/livelawindia/119971)
+
+---
+### 2026-09-16T11:01:06+00:00
+Bombay High Court Seeks Maharashtra Govt Reply On Malegaon Deputy Mayor's Plea Challenging Direction To Remove Tipu Sultan Portrait
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-remove-portrait-tipu-sultan-from-office-malegaon-deputy-mayor-drags-maharashtra-police-550308
+
+[Read on Telegram](https://t.me/livelawindia/119972)
+
+---
+### 2026-09-16T11:06:06+00:00
+Karnataka High Court Issues Contempt Notice To Top Officials Over Failure To Compensate Kodagu Homestay Owner For Illegal Arrest
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-issues-contempt-notice-top-bureaucrats-nonpayment-compensation-illegal-arrest-550309
+
+[Read on Telegram](https://t.me/livelawindia/119973)
 
 ---
