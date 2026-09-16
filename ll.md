@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-16T13:36:23+00:00*
+*Last Updated: 2026-09-16T14:02:43+00:00*
 
 ---
 
-### 2026-09-16T13:36:23+00:00
-UAPA Case: Delhi High Court Grants Bail To Accused After Nearly 8 Years In Custody, Says Trial Not Likely To End Soon
-https://www.livelaw.in/high-court/delhi-high-court/uapa-case-delhi-high-court-grants-bail-to-accused-after-nearly-8-years-in-custody-says-trial-not-likely-to-end-soon-550351
-
-[Read on Telegram](https://t.me/livelawindia/119994)
-
----
-### 2026-09-16T13:47:43+00:00
-High Speed Alone Not Enough To Prove Rash, Negligent Driving: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-high-speed-driving-not-alone-prove-rash-and-negligent-550350
-
-[Read on Telegram](https://t.me/livelawindia/119995)
-
----
-### 2026-09-16T13:58:43+00:00
-LiveLaw Daily| Sridevi's property| Mirzapur song| Ajeet Bharti| Queer Partner's Rights & more
-https://www.livelaw.in/podcast/ajeet-bharti-tmc-mirzapur-students-clat-judiciary-upsc-sridevi-supreme-court-india-550355
-
-[Read on Telegram](https://t.me/livelawindia/119996)
-
----
-### 2026-09-16T14:01:23+00:00
-Financiers Cannot Repossess Vehicles By Force : Supreme Court Awards Rs 10 Lakh Compensation To Truck Owner
-https://www.livelaw.in/supreme-court/financiers-cannot-repossess-vehicles-by-force-supreme-court-awards-rs-10-lakh-compensation-to-truck-owner-550357
-
-[Read on Telegram](https://t.me/livelawindia/119997)
-
----
 ### 2026-09-16T14:02:43+00:00
 2026 LiveLaw (SC) 942 | Hari Dutta Sharma v State of UP & Ors
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-942-hari-dutta-sharma-v-state-of-up-ors-550358
@@ -142,5 +114,33 @@ Man Who Spent 2.5 Years In Jail Over Alleged 'Derogatory' Email Against CM Yogi 
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-man-25-years-jail-alleged-derogatory-email-cm-yogi-bail-550379
 
 [Read on Telegram](https://t.me/livelawindia/120013)
+
+---
+### 2026-09-16T17:22:25+00:00
+Supreme Court Daily Round-Up : September 16, 2026
+https://www.livelaw.in/round-ups/supreme-court-daily-round-up-september-16-2026-550375
+
+[Read on Telegram](https://t.me/livelawindia/120014)
+
+---
+### 2026-09-16T17:35:15+00:00
+Delhi Riots UAPA Case: Court Allows Tasleem Ahmad To Travel To West Bengal For Son's Shooting Competition
+https://www.livelaw.in/news-updates/delhi-riots-uapa-case-court-allows-tasleem-ahmad-to-travel-to-west-bengal-for-sons-shooting-competition-550390
+
+[Read on Telegram](https://t.me/livelawindia/120015)
+
+---
+### 2026-09-16T17:55:36+00:00
+LiveLaw High Courts Daily Highlights: September 16, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-16-2026-550393
+
+[Read on Telegram](https://t.me/livelawindia/120016)
+
+---
+### 2026-09-16T18:00:56+00:00
+Delhi Court Allows Natasha Narwal To Obtain 10-Year Passport, But Says She Can't Travel Abroad Without Fresh Permission
+https://www.livelaw.in/news-updates/delhi-court-allows-natasha-narwal-to-obtain-10-year-passport-but-says-she-cant-travel-abroad-without-fresh-permission-550394
+
+[Read on Telegram](https://t.me/livelawindia/120017)
 
 ---
