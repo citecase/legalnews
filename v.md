@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-15T16:02:18+00:00*
+*Last Updated: 2026-09-16T05:02:24+00:00*
+
+---
+
+### 2026-09-16T05:02:24+00:00
+Nodal Agency Can't Ignore International Arrest Warrant Without Forwarding Same To Central Govt & Jurisdictional Magistrate: Kerala High Court
+https://www.verdictum.in/kerala-high-court/rakhul-krishnan-v-union-of-india-2026ker68857-nodal-agency-international-arrest-warrant-1622043
+
+[Source Link](https://t.me/verdictumlegalupdates/29115)
+
+---
+
+### 2026-09-16T04:32:33+00:00
+Execution Court Declaring Arbitral Award Unenforceable Does Not Amount To Setting It Aside: Kerala High Court
+https://www.verdictum.in/kerala-high-court/klm-axiva-finvest-limited-v-bijitha-shajan-ors-2026ker68650-arbitration-1622039
+
+[Source Link](https://t.me/verdictumlegalupdates/29114)
 
 ---
 
@@ -145,22 +161,6 @@ Supreme Court Dismisses Plea Seeking FIR Registration Against UP Police Over Lat
 https://www.verdictum.in/supreme-court/plea-fir-registration-up-police-over-late-night-search-abhishek-upadhyay-mayor-farhad-suri-1621985
 
 [Source Link](https://t.me/verdictumlegalupdates/29096)
-
----
-
-### 2026-09-15T07:03:08+00:00
-Supreme Court Asks Centre To Consider Extending Tenure Of Retiring Members Of Tribunals
-https://www.verdictum.in/supreme-court/extending-tenure-of-retiring-members-of-tribunals-1621982
-
-[Source Link](https://t.me/verdictumlegalupdates/29095)
-
----
-
-### 2026-09-15T06:34:07+00:00
-Conversion Or Inter-Religious Marriage Doesn't Automatically Extinguish ST Status, But Long-Standing Severance From Tribal Identity Does: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/nanhki-naimunnisha-v-state-of-up-2026ahc191554-conversion-or-inter-religious-marriage-scheduled-tribe-1621980
-
-[Source Link](https://t.me/verdictumlegalupdates/29094)
 
 ---
 
