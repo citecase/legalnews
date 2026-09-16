@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-15T12:51:37+00:00*
+*Last Updated: 2026-09-15T14:32:57+00:00*
 
 ---
 
-### 2026-09-15T12:51:37+00:00
-Court Flags Gaps In Delhi Police Probe While Granting Interim Bail To Swatantra Bhardwaj, Bars Him From Discussing Case In Media
-https://www.livelaw.in/news-updates/swatantra-bhardwaj-interim-bail-delhi-police-probe-lapse-bar-on-discussing-case-social-media-550167
-
-[Read on Telegram](https://t.me/livelawindia/119883)
-
----
-### 2026-09-15T12:53:17+00:00
-Business Interest Must Yield To Public Interest In Eco-Sensitive Areas: J&K&L High Court Upholds Restriction On Amusement Facilities At Park
-https://www.livelaw.in/high-court/jammu-kashmir/business-interests-must-make-way-for-public-interest-in-eco-sensitive-manasbal-jk-high-court-directs-wmda-to-earmark-space-for-amusement-facilities-550122
-
-[Read on Telegram](https://t.me/livelawindia/119884)
-
----
-### 2026-09-15T13:22:37+00:00
-J&K&L High Court Flags Infighting In Jammu Gurdwara Prabandhak Committee, Seeks Details Of District Gurdwaras
-https://www.livelaw.in/high-court/jammu-kashmir/jkl-high-court-flags-infighting-in-jammu-gurdwara-prabandhak-committee-seeks-audit-and-management-details-of-district-gurdwaras-550008
-
-[Read on Telegram](https://t.me/livelawindia/119885)
-
----
-### 2026-09-15T13:28:17+00:00
-Predicate Offence Acquittal Must Attain Finality To End PMLA Proceedings; Appeal Can't Be 'Blanket Shield': Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-predicate-offence-acquittal-attain-finality-end-pmla-action-550123
-
-[Read on Telegram](https://t.me/livelawindia/119886)
-
----
-### 2026-09-15T13:36:27+00:00
-Noida Protest | After Indicating Grant Of Bail, Allahabad High Court Defers Journalist Satyam Verma's Plea To Hear State's Objections
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-noida-workers-protest-grant-bail-defer-journalist-satyam-verma-objections-550173
-
-[Read on Telegram](https://t.me/livelawindia/119887)
-
----
-### 2026-09-15T13:43:27+00:00
-Insurer Not Liable For Interest, Penalty Under Employees' Compensation Act Unless Policy Specifically Covers It:J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/insurance-company-cannot-be-held-liable-to-indemnify-employer-for-interest-or-penalty-under-workmens-compensation-act-jk-high-court-550120
-
-[Read on Telegram](https://t.me/livelawindia/119888)
-
----
-### 2026-09-15T13:45:27+00:00
-Shiv Sena Row | ECI Considered Party-Wide Discontent, Not Just Legislative Split : Shinde To Supreme Court
-https://www.livelaw.in/top-stories/shiv-sena-row-eci-considered-party-wide-discontent-not-just-legislative-split-shinde-to-supreme-court-550175
-
-[Read on Telegram](https://t.me/livelawindia/119889)
-
----
-### 2026-09-15T13:47:27+00:00
-Enquiry Report By Sitting HC Judge In Administrative Capacity Is Not Judicial Order, Cannot Be Referred To Larger Bench: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/enquiry-report-by-sitting-hc-judge-in-administrative-capacity-is-not-judicial-order-cannot-be-referred-to-larger-bench-calcutta-high-court-550056
-
-[Read on Telegram](https://t.me/livelawindia/119890)
-
----
-### 2026-09-15T14:20:37+00:00
-EPF Act | Whether Penalty For Delayed Provident Fund Deposit Is Mandatory? Supreme Court Refers To Larger Bench
-https://www.livelaw.in/supreme-court/epf-act-whether-penalty-for-delayed-provident-fund-deposit-is-mandatory-supreme-court-refers-to-larger-bench-550176
-
-[Read on Telegram](https://t.me/livelawindia/119891)
-
----
-### 2026-09-15T14:22:37+00:00
-2026 LiveLaw (SC) 933 | M/s Kerala Industrial Infrastructure Development Corporation v Central Board of Trustees and Anr.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-933-ms-kerala-industrial-infrastructure-development-corporation-v-central-board-of-trustees-and-anr-550177
-
-[Read on Telegram](https://t.me/livelawindia/119892)
-
----
 ### 2026-09-15T14:32:57+00:00
 Subsequent Declaration Of Property Under Slum Area Doesn't Bar Execution Of Pre-Existing Eviction Decree: Bombay High Court
 https://www.livelaw.in/high-court/bombay-high-court/subsequent-slum-declaration-not-permission-eviction-execution-550009
@@ -142,5 +72,75 @@ LiveLaw High Courts Daily Highlights: September 15, 2026
 https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-15-2026-550192
 
 [Read on Telegram](https://t.me/livelawindia/119902)
+
+---
+### 2026-09-16T02:32:35+00:00
+Body Before Birth: Can Article 21 Shield Genome From Non-Consensual CRISPR Editing?
+https://www.livelaw.in/articles/body-before-birth-article21-shield-genome-non-consensual-crispr-editing-550149
+
+[Read on Telegram](https://t.me/livelawindia/119903)
+
+---
+### 2026-09-16T02:48:36+00:00
+IndiGo Liable For Denying Boarding After Flight Reschedule; Delhi Consumer Commission Grants Relief To Passenger
+https://www.livelaw.in/consumer-cases/indigo-liable-for-denying-boarding-after-flight-reschedule-delhi-consumer-commission-grants-relief-to-passenger-550194
+
+[Read on Telegram](https://t.me/livelawindia/119904)
+
+---
+### 2026-09-16T03:30:56+00:00
+'Army's Burden To Prove Disability Was Not Due To Service' : Supreme Court Dismisses Union's Appeals Against Disability Pension
+https://www.livelaw.in/supreme-court/supreme-court-dismisses-unions-appeals-against-disability-pension-550195
+
+[Read on Telegram](https://t.me/livelawindia/119905)
+
+---
+### 2026-09-16T03:31:56+00:00
+2026 LiveLaw (SC) 935 |  UNION OF INDIA & ORS. VERSUS COL. NC ISAAC
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-935-union-of-india-ors-versus-col-nc-isaac-550196
+
+[Read on Telegram](https://t.me/livelawindia/119906)
+
+---
+### 2026-09-16T03:37:26+00:00
+Infrastructure Projects Need 'Preventive Justice' So That They Don't Get Stalled In Litigation : CJI Surya Kant
+https://www.livelaw.in/top-stories/infrastructure-projects-need-preventive-justice-so-that-they-dont-get-stalled-in-litigation-cji-surya-kant-550190
+
+[Read on Telegram](https://t.me/livelawindia/119907)
+
+---
+### 2026-09-16T03:37:36+00:00
+Manager (Legal) Vacancy At Meesho Limited [Apply Now]
+https://www.livelaw.in/job-updates/manager-legal-vacancy-at-meesho-limited-550197
+
+[Read on Telegram](https://t.me/livelawindia/119908)
+
+---
+### 2026-09-16T03:40:16+00:00
+Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
+https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-550198
+
+[Read on Telegram](https://t.me/livelawindia/119909)
+
+---
+### 2026-09-16T03:41:16+00:00
+Senior Section Officer (Legal) Vacancy At Noida Metro Rail Corporation Limited
+https://www.livelaw.in/job-updates/senior-section-officer-legal-vacancy-at-noida-metro-rail-corporation-limited-550199
+
+[Read on Telegram](https://t.me/livelawindia/119910)
+
+---
+### 2026-09-16T03:42:36+00:00
+Senior Assistant Officer (Law) Vacancy At NTPC Sail Power Company Limited (NSPCL)
+https://www.livelaw.in/job-updates/senior-assistant-officer-law-vacancy-at-ntpc-sail-power-company-limited-nspcl-550200
+
+[Read on Telegram](https://t.me/livelawindia/119911)
+
+---
+### 2026-09-16T04:05:17+00:00
+Karnataka High Court Awards ₹10.52 Lakh To Parents Of Boy Electrocuted While Retrieving Kite, Quashes Finding On Child's Negligence
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-awards-parents-boy-electrocuted-retrieving-kite-550202
+
+[Read on Telegram](https://t.me/livelawindia/119912)
 
 ---
