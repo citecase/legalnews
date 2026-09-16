@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-16T11:33:15+00:00*
+*Last Updated: 2026-09-16T16:02:23+00:00*
+
+---
+
+### 2026-09-16T16:02:23+00:00
+Law Officer Vacancy At Uttarakhand Public Service Commission (UKPSC)
+https://www.verdictum.in/job-updates/uttarakhand-public-service-commission-1622094
+
+[Source Link](https://t.me/verdictumlegalupdates/29137)
+
+---
+
+### 2026-09-16T15:33:02+00:00
+Karnataka High Court Sentences Advocate To One Day Imprisonment For Disrupting Proceedings While Being Drunk
+https://www.verdictum.in/karnataka-high-court/high-court-of-karnataka-v-pankaj-kaushik-advocate-drunk-imprisonment-fine-1622093
+
+[Source Link](https://t.me/verdictumlegalupdates/29136)
+
+---
+
+### 2026-09-16T15:02:41+00:00
+Himachal Pradesh High Court Flags Age-Proof Lapses In POCSO Case; Issues Directions To Police
+https://www.verdictum.in/himachal-high-court/kulwinder-singh-v-state-of-hp-2026hhc39173-age-proof-investigation-pocso-1622092
+
+[Source Link](https://t.me/verdictumlegalupdates/29135)
+
+---
+
+### 2026-09-16T14:32:20+00:00
+Virtually Impossible To Comply With Mandate Of Order VI Rule 14A CPC In John Doe Cases; Courts Must Adopt Progressive Approach: Kerala High Court
+https://www.verdictum.in/kerala-high-court/cubes-entertainments-v-big-tree-entertainment-2026ker69867-order-vi-rule-14a-cpc-john-doe-1622089
+
+[Source Link](https://t.me/verdictumlegalupdates/29134)
+
+---
+
+### 2026-09-16T14:02:39+00:00
+We Will Confine To Constitutional Validity Of Definition Of ‘Forest’ Under 2023 Act: Supreme Court
+https://www.verdictum.in/supreme-court/constitutional-validity-of-definition-of-forest-under-2023-act-1622096
+
+[Source Link](https://t.me/verdictumlegalupdates/29133)
+
+---
+
+### 2026-09-16T13:32:18+00:00
+Sustainability Is Act Of Care For Next Generation: Supreme Court Asks States To Move Towards Biodegradable Sanitary Napkins, Menstrual Cups
+https://www.verdictum.in/supreme-court/jaya-thakur-v-government-of-india-2026-insc-994-sustainability-act-of-care-biodegradable-sanitary-napkins-menstrual-cups-1622091
+
+[Source Link](https://t.me/verdictumlegalupdates/29132)
+
+---
+
+### 2026-09-16T13:02:57+00:00
+Defendant’s Business Location Does Not Confer Territorial Jurisdiction On MACT U/S 166(2) MV Act: Supreme Court
+https://www.verdictum.in/supreme-court/k-rashik-v-national-insurance-company-ltd-and-another-2026-insc-996-mv-act-1622088
+
+[Source Link](https://t.me/verdictumlegalupdates/29131)
+
+---
+
+### 2026-09-16T12:32:57+00:00
+Supreme Court Appoints Justice Ashwani Kumar Singh As Administrator Of Bihar Cricket Association
+https://www.verdictum.in/supreme-court/justice-ashwani-kumar-singh-appointed-administrator-of-bihar-cricket-association-1622084
+
+[Source Link](https://t.me/verdictumlegalupdates/29130)
+
+---
+
+### 2026-09-16T12:02:36+00:00
+Project Of Eminent National Importance: Apex Court Seeks Response Of State On Plea Seeking Permission To Fell Trees In Mumbai’s Film City
+https://www.verdictum.in/supreme-court/permission-to-fell-trees-in-mumbais-film-city-1622083
+
+[Source Link](https://t.me/verdictumlegalupdates/29129)
 
 ---
 
@@ -89,78 +161,6 @@ Requirement Of Prior Permission Can’t Be Invoked To Suspend Execution Of Evict
 https://www.verdictum.in/bombay-high-court/sachin-v-miss-flymi-sadanandan-prior-permission-eviction-slum-area-1622057
 
 [Source Link](https://t.me/verdictumlegalupdates/29118)
-
----
-
-### 2026-09-16T06:05:06+00:00
-Supreme Court Refers Issue Regarding Discretion Of Authorized Officer To Levy Penalty U/S.14B Of EPF Act To Larger Bench
-https://www.verdictum.in/supreme-court/ms-kerala-industrial-infrastructure-development-corporation-v-central-board-of-trustees-2026-insc-990-1622055
-
-[Source Link](https://t.me/verdictumlegalupdates/29117)
-
----
-
-### 2026-09-16T05:35:25+00:00
-Raksha Mantri Committee's 2015 Recommendation To Withdraw NANA Litigation Not "Faithfully Implemented": Supreme Court Dismisses Union's Appeals On Armed Forces Disability Pension
-https://www.verdictum.in/supreme-court/union-of-india-ors-v-col-nc-isaac-retd-2026-insc-993-nana-litigation-not-faithfully-implemented-army-1622050
-
-[Source Link](https://t.me/verdictumlegalupdates/29116)
-
----
-
-### 2026-09-16T05:02:24+00:00
-Nodal Agency Can't Ignore International Arrest Warrant Without Forwarding Same To Central Govt & Jurisdictional Magistrate: Kerala High Court
-https://www.verdictum.in/kerala-high-court/rakhul-krishnan-v-union-of-india-2026ker68857-nodal-agency-international-arrest-warrant-1622043
-
-[Source Link](https://t.me/verdictumlegalupdates/29115)
-
----
-
-### 2026-09-16T04:32:33+00:00
-Execution Court Declaring Arbitral Award Unenforceable Does Not Amount To Setting It Aside: Kerala High Court
-https://www.verdictum.in/kerala-high-court/klm-axiva-finvest-limited-v-bijitha-shajan-ors-2026ker68650-arbitration-1622039
-
-[Source Link](https://t.me/verdictumlegalupdates/29114)
-
----
-
-### 2026-09-15T16:02:18+00:00
-Law Officer Vacancy At Bank Of India
-https://www.verdictum.in/job-updates/bank-of-india-1622016
-
-[Source Link](https://t.me/verdictumlegalupdates/29113)
-
----
-
-### 2026-09-15T15:32:57+00:00
-Woman Not Having Knowledge Of Husband’s Earlier Subsisting Marriage Can’t Be Charged With Bigamy: Madras High Court
-https://www.verdictum.in/madras-high-court/cause-title-a-v-the-state-woman-husband-marriage-bigamy-section-82-bns-1622022
-
-[Source Link](https://t.me/verdictumlegalupdates/29112)
-
----
-
-### 2026-09-15T15:02:56+00:00
-No Prosecution For First-Time Misbranding Without Prior Written Warning: Delhi HC Quashes 1995 Case Against Kancor Ingredients
-https://www.verdictum.in/delhi-high-court/kancor-ingredients-ltd-v-govt-of-nct-of-delhi-2026dhc7801-ingredients-over-marinade-supplied-to-pepsico-restaurant-1622015
-
-[Source Link](https://t.me/verdictumlegalupdates/29111)
-
----
-
-### 2026-09-15T14:32:45+00:00
-FSSAI's Presence In Delhi Cannot Confer Jurisdiction: Delhi High Court Dismisses Writ Petition Against Maharashtra FDA's Show Cause Notice To VIMAL Endorsers
-https://www.verdictum.in/delhi-high-court/p-b-agro-llp-v-union-of-india-2026dhc7810-fssais-presence-in-delhi-vimal-pan-masala-elaichi-endorsers-1622014
-
-[Source Link](https://t.me/verdictumlegalupdates/29110)
-
----
-
-### 2026-09-15T14:02:44+00:00
-Delhi High Court Grants Bail To Alleged Pro-IS Terror Module Member In UAPA Case After 8 Years in Custody
-https://www.verdictum.in/delhi-high-court/mohammad-saqib-saqib-iftekar-v-national-investigation-agency-2026dhc7763-db-1622013
-
-[Source Link](https://t.me/verdictumlegalupdates/29109)
 
 ---
 
