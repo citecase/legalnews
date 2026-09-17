@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-16T14:02:43+00:00*
+*Last Updated: 2026-09-16T14:32:53+00:00*
 
 ---
 
-### 2026-09-16T14:02:43+00:00
-2026 LiveLaw (SC) 942 | Hari Dutta Sharma v State of UP & Ors
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-942-hari-dutta-sharma-v-state-of-up-ors-550358
-
-[Read on Telegram](https://t.me/livelawindia/119998)
-
----
-### 2026-09-16T14:03:13+00:00
-'Clear Case Of Forum Shopping': Delhi High Court Denies Bail To Murder Accused Who Concealed Earlier Bail Rejections
-https://www.livelaw.in/high-court/delhi-high-court/forum-shopping-murder-accused-bail-denied-concealed-earlier-bail-rejections-550352
-
-[Read on Telegram](https://t.me/livelawindia/119999)
-
----
-### 2026-09-16T14:03:23+00:00
-PM Modi Degree Row: Gujarat University Seeks Costs From Arvind Kejriwal, Says RTI Authorities' Time Shouldn't Be Wasted
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-arvind-kejriwal-pm-modi-degree-row-550359
-
-[Read on Telegram](https://t.me/livelawindia/120000)
-
----
-### 2026-09-16T14:16:03+00:00
-Delhi Lakshmi Yojana: Govt Defends MP/MLA Endorsement For ₹2,500 Monthly Aid, Tells High Court 7.32 Lakh Forms Already Received
-https://www.livelaw.in/high-court/delhi-high-court/delhi-lakshmi-yojana-govt-defends-mpmla-endorsement-for-2500-monthly-aid-tells-high-court-732-lakh-forms-already-received-550361
-
-[Read on Telegram](https://t.me/livelawindia/120001)
-
----
-### 2026-09-16T14:16:43+00:00
-Article 220 Doesn't Bar Ex-HC Judges' Co-option As Bar Council Women Members: Supreme Court
-https://www.livelaw.in/top-stories/article-220-doesnt-bar-ex-hc-judges-co-option-as-bar-council-women-members-supreme-court-550362
-
-[Read on Telegram](https://t.me/livelawindia/120002)
-
----
-### 2026-09-16T14:18:03+00:00
-2026 LiveLaw (SC) 943 | SWATI SINHA & ORS. v UNION OF INDIA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-943-swati-sinha-ors-v-union-of-india-550363
-
-[Read on Telegram](https://t.me/livelawindia/120003)
-
----
-### 2026-09-16T14:22:13+00:00
-Income Tax | AO Cannot Reopen Assessment Settled By Settlement Commission : Supreme Court
-https://www.livelaw.in/supreme-court/income-tax-ao-cannot-reopen-assessment-settled-by-settlement-commission-supreme-court-550364
-
-[Read on Telegram](https://t.me/livelawindia/120004)
-
----
-### 2026-09-16T14:23:13+00:00
-2026 LiveLaw (SC) 944 | Assistant Commissioner of Income Tax & Anr. v. M/s. Omaxe Limited
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-944-assistant-commissioner-of-income-tax-anr-v-ms-omaxe-limited-550365
-
-[Read on Telegram](https://t.me/livelawindia/120005)
-
----
 ### 2026-09-16T14:32:53+00:00
 When Tax Appeal Backfires: How Far Can 'No Reformatio in Peius' Travel Under GST?
 https://www.livelaw.in/articles/tax-appeal-backfires-no-reformatio-in-peius-travel-gst-550152
@@ -142,5 +86,61 @@ Delhi Court Allows Natasha Narwal To Obtain 10-Year Passport, But Says She Can't
 https://www.livelaw.in/news-updates/delhi-court-allows-natasha-narwal-to-obtain-10-year-passport-but-says-she-cant-travel-abroad-without-fresh-permission-550394
 
 [Read on Telegram](https://t.me/livelawindia/120017)
+
+---
+### 2026-09-17T02:32:55+00:00
+Missing Piece In BNSS: Why India Urgently Needs Victim Impact Assessment Law
+https://www.livelaw.in/articles/missing-piece-bnss-why-india-urgently-needs-victim-impact-assessment-law-550384
+
+[Read on Telegram](https://t.me/livelawindia/120018)
+
+---
+### 2026-09-17T03:33:06+00:00
+Illegal Mining: AP High Court Upholds State's Power To Impose Penalties Without Criminal Trial
+https://www.livelaw.in/high-court/orissa-high-court/ap-high-court-upholds-power-departmental-officials-impose-monetary-penalties-illegal-mining-apmmc-rules-550391
+
+[Read on Telegram](https://t.me/livelawindia/120019)
+
+---
+### 2026-09-17T03:36:26+00:00
+Air India Express Liable For Mishandling Bicycle Despite Charging Special Equipment Handling Fee: Dakshina Kannada Consumer Commission
+https://www.livelaw.in/consumer-cases/air-india-express-liable-for-mishandling-bicycle-despite-charging-special-equipment-handling-fee-dakshina-kannada-consumer-commission-550395
+
+[Read on Telegram](https://t.me/livelawindia/120020)
+
+---
+### 2026-09-17T03:37:26+00:00
+Supreme Court Asks RBI To Issue Directions To Prevent Forcible Repossession Of Vehicles By Banks, NBFCs
+https://www.livelaw.in/supreme-court/supreme-court-asks-rbi-to-issue-directions-to-prevent-forcible-repossession-of-vehicles-by-banks-nbfcs-550376
+
+[Read on Telegram](https://t.me/livelawindia/120021)
+
+---
+### 2026-09-17T03:53:16+00:00
+Delhi High Court Initiates Contempt Proceedings Against Tihar Superintendent For Delaying Prisoner's Parole Release
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-initiates-contempt-proceedings-against-tihar-superintendent-for-delaying-prisoners-parole-release-550398
+
+[Read on Telegram](https://t.me/livelawindia/120022)
+
+---
+### 2026-09-17T04:02:56+00:00
+Bombay High Court Denies Bail To Grandfather In Infant Girl's Murder Case, Laments That People Still Prefer Male Child
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-denies-bail-to-grandfather-in-infant-girls-murder-case-laments-that-people-still-prefer-male-child-550392
+
+[Read on Telegram](https://t.me/livelawindia/120023)
+
+---
+### 2026-09-17T04:07:36+00:00
+"Need To Curb Spoiling Children": Bombay High Court Upholds Cancellation Of Minor's Bail In Ghatkopar Hit-And-Run Case
+https://www.livelaw.in/high-court/bombay-high-court/need-to-curb-spoiling-children-bombay-high-court-upholds-cancellation-of-minors-bail-in-ghatkopar-hit-and-run-case-550401
+
+[Read on Telegram](https://t.me/livelawindia/120024)
+
+---
+### 2026-09-17T04:17:56+00:00
+Courts Releasing Illegally Arrested Accused Must Permit Same Day Re-Arrest After Compliance With Formalities: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-illegal-arrest-formalities-550400
+
+[Read on Telegram](https://t.me/livelawindia/120025)
 
 ---
