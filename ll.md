@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-17T08:52:48+00:00*
+*Last Updated: 2026-09-17T12:28:30+00:00*
 
 ---
 
-### 2026-09-17T08:52:48+00:00
-'Equal Pay For Equal Work' Doctrine Cannot Be Mechanically Applied, Experience Can Justify Pay Difference: Supreme Court
-https://www.livelaw.in/top-stories/equal-pay-for-equal-work-doctrine-cannot-be-mechanically-applied-experience-can-justify-pay-difference-supreme-court-550469
+### 2026-09-17T12:28:30+00:00
+Karnataka High Court Flags Massive Illegal PG Operations In Bengaluru, Issues Sweeping Safety Guidelines
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-flags-massive-illegal-pg-operations-bengaluru-550527
 
-[Read on Telegram](https://t.me/livelawindia/120071)
-
----
-### 2026-09-17T08:54:38+00:00
-2026 LiveLaw (SC) 948 | GP Sangeetha & Ors Etc. Etc. v State of Kerala & Ors
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-948-gp-sangeetha-ors-etc-etc-v-state-of-kerala-ors-550470
-
-[Read on Telegram](https://t.me/livelawindia/120072)
+[Read on Telegram](https://t.me/livelawindia/120095)
 
 ---
-### 2026-09-17T09:04:58+00:00
-Rajasthan High Court Sets Aside Divorce Decree After Estranged Couple Reconciles, Restores Marriage
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-restores-matrimonial-relationship-couple-reconciles-post-divorce-decree-550472
+### 2026-09-17T12:32:30+00:00
+Firecracker Shop Owner Must Comply With Fire Safety Norms Despite Having License Under Explosives Act: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-explosives-act-licence-fire-services-act-operate-different-footing-550523
 
-[Read on Telegram](https://t.me/livelawindia/120073)
-
----
-### 2026-09-17T09:05:18+00:00
-17-Yr-Old Riding Scooty Without License Not Grounds To Deny Compensation For Fatal Accident: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/minor-riding-scooty-without-licence-not-grounds-to-deny-compensation-to-family-upon-fatal-accident-calcutta-high-court-550473
-
-[Read on Telegram](https://t.me/livelawindia/120074)
+[Read on Telegram](https://t.me/livelawindia/120096)
 
 ---
-### 2026-09-17T09:22:08+00:00
-'You Think Women Can't Lift LPG Cylinders?' : Supreme Court Awards Compensation To Woman Denied Job Based On Gender
-https://www.livelaw.in/top-stories/you-think-women-cant-lift-lpg-cylinders-supreme-court-awards-compensation-to-woman-denied-job-based-on-gender-550475
+### 2026-09-17T12:38:51+00:00
+Delhi Court Orders FIR Against X User Karishma Aziz Over 'Derogatory' Posts Targeting Hinduism, PM Modi, Savarkar
+https://www.livelaw.in/news-updates/delhi-court-orders-fir-against-x-user-karishma-aziz-over-derogatory-posts-targeting-hinduism-pm-modi-savarkar-550533
 
-[Read on Telegram](https://t.me/livelawindia/120075)
-
----
-### 2026-09-17T09:33:09+00:00
-ED Compliance Checklist Under Sections 17, 20 And 8 Of PMLA
-https://www.livelaw.in/articles/ed-compliance-checklist-sections-pmla-550387
-
-[Read on Telegram](https://t.me/livelawindia/120076)
+[Read on Telegram](https://t.me/livelawindia/120097)
 
 ---
-### 2026-09-17T09:40:49+00:00
-Trial Court Cannot Set Aside Advocate Commissioner's Report After It Is Received In Evidence: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/commissioners-report-cannot-set-aside-after-received-evidence-550477
+### 2026-09-17T12:44:31+00:00
+Supreme Court Seeks Centre's Response On Claim That Bengali Woman Was Pushed Out To Bangladesh Without Nationality Verification
+https://www.livelaw.in/top-stories/supreme-court-son-plea-against-mother-detention-deportation-to-bangladesh-without-nationality-verification-foreigners-order-and-sop-challenged-550536
 
-[Read on Telegram](https://t.me/livelawindia/120077)
-
----
-### 2026-09-17T09:50:49+00:00
-Veterinarians Treat 'Voiceless', Can't Discount Their Services: MP High Court Upholds Time-Scale Pay Parity With Medical/ Dental Surgeons
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-upholds-order-granting-veterinarian-salary-parity-with-dental-surgeonmedical-officer-550481
-
-[Read on Telegram](https://t.me/livelawindia/120078)
+[Read on Telegram](https://t.me/livelawindia/120098)
 
 ---
-### 2026-09-17T09:54:49+00:00
-Delhi High Court Asks Bureau Of Immigration To Inform Jai Anshul Ambani If Any Look Out Circular Is Subsisting Against Him
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-asks-bureau-of-immigration-to-inform-jai-anshul-ambani-if-any-look-out-circular-is-subsisting-against-him-550483
+### 2026-09-17T13:02:54+00:00
+Lawyer Cannot Swear Affidavit On Behalf Of Client Unless Facts Are Within Personal Knowledge: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/lawyer-swear-affidavit-behalf-plaintiff-production-documents-550524
 
-[Read on Telegram](https://t.me/livelawindia/120079)
-
----
-### 2026-09-17T10:02:49+00:00
-No Presumption Of Joint Hindu Family Merely Because Brothers Inherited Property Jointly From Father: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-property-jointly-inherited-does-not-become-joint-hindu-family-property-550485
-
-[Read on Telegram](https://t.me/livelawindia/120080)
+[Read on Telegram](https://t.me/livelawindia/120099)
 
 ---
-### 2026-09-17T10:03:19+00:00
-Disciplinary Action Can't Rest On Unrecorded Oral Directions: Allahabad High Court Quashes UP Tax Officer's Punishment
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-punishment-disobeying-oral-directions-based-hypothetical-charges-550486
+### 2026-09-17T13:45:23+00:00
+Dhavari People Showed Exemplary Understanding During Covid Pandemic : Supreme Court
+https://www.livelaw.in/top-stories/dhavari-people-showed-exemplary-understanding-during-covid-pandemic-supreme-court-550540
 
-[Read on Telegram](https://t.me/livelawindia/120081)
-
----
-### 2026-09-17T10:17:59+00:00
-Woman Living On Her Own Earnings From Prostitution Can't Be Booked For Illegal Trafficking: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-living-on-own-earnings-from-prostitution-doesnt-attract-sections-4-5-of-immoral-trafficking-act-550489
-
-[Read on Telegram](https://t.me/livelawindia/120082)
+[Read on Telegram](https://t.me/livelawindia/120100)
 
 ---
-### 2026-09-17T10:27:59+00:00
-Allahabad High Court Allows Women Lawyers Nominated After Bar Association Polls To Continue, Directs Bye-Law Amendment For 30% Representation
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-refuses-quash-bar-association-elections-550490
+### 2026-09-17T13:52:43+00:00
+No Vested Right To Claim Promotion Under Repealed Rules : Supreme Court
+https://www.livelaw.in/supreme-court/no-vested-right-to-claim-promotion-under-repealed-rules-supreme-court-550542
 
-[Read on Telegram](https://t.me/livelawindia/120083)
-
----
-### 2026-09-17T10:31:19+00:00
-NDPS Act | 'Unexplained 5-Day Gap In Custody Of Samples, Breach Of S.52A' : Supreme Court Acquits Two Men After 20 Years
-https://www.livelaw.in/supreme-court/ndps-act-unexplained-5-day-gap-in-custody-of-samples-breach-of-s52a-supreme-court-acquits-two-men-after-20-years-550495
-
-[Read on Telegram](https://t.me/livelawindia/120084)
+[Read on Telegram](https://t.me/livelawindia/120101)
 
 ---
-### 2026-09-17T10:35:19+00:00
-Plea Filed Before Karnataka High Court To Restore PIL Challenging Aadhaar Contracts With Foreign Private Companies
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-challenging-uidai-contracts-foreign-firms-threat-national-security-550498
+### 2026-09-17T13:53:23+00:00
+2026 LiveLaw (SC) 951 | THE BHARAT SANCHAR NIGAM LIMITED AND ANOTHER VERSUS G.N. MANI RAVINDER AND OTHERS ETC.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-951-the-bharat-sanchar-nigam-limited-and-another-versus-gn-mani-ravinder-and-others-etc-550543
 
-[Read on Telegram](https://t.me/livelawindia/120085)
-
----
-### 2026-09-17T10:35:29+00:00
-2026 LiveLaw (SC) 949 |  ABDUL RAJIK VERSUS STATE OF M.P.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-949-abdul-rajik-versus-state-of-mp-550499
-
-[Read on Telegram](https://t.me/livelawindia/120086)
+[Read on Telegram](https://t.me/livelawindia/120102)
 
 ---
-### 2026-09-17T10:44:39+00:00
-Supreme Court Allows 3-Year Law Graduates With Bachelor Degrees Through Distance/Open Mode To Provisionally Enrol As Advocates
-https://www.livelaw.in/top-stories/supreme-court-allows-provisional-enrolment-advocates-law-graduates-bachelor-degrees-550505
+### 2026-09-17T13:57:23+00:00
+University Cannot Forcibly Evict Retired Employees From Quarters Without Due Process: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-clarifies-university-cannot-forcibly-evict-retired-employees-from-quarters-without-due-process-550478
 
-[Read on Telegram](https://t.me/livelawindia/120087)
-
----
-### 2026-09-17T10:45:59+00:00
-2026 LiveLaw (SC) 950 | STS Gladies v Bar Council of India & Anr.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-950-sts-gladies-v-bar-council-of-india-anr-550506
-
-[Read on Telegram](https://t.me/livelawindia/120088)
+[Read on Telegram](https://t.me/livelawindia/120103)
 
 ---
-### 2026-09-17T10:47:59+00:00
-LiveLaw Punjab & Haryana High Court Weekly Roundup: September 07 - September 12, 2026
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-weekly-round-up-7-12-september-550502
+### 2026-09-17T14:00:23+00:00
+LiveLaw Daily| Dara Singh| Manipur Violence| Satya Niketan| Jantar Mantar Protest & more
+https://www.livelaw.in/podcast/delhi-sir-dara-singh-trans-rights-india-kiran-bedi-karni-sena-jantar-mantar-supreme-court-news-fcra-550544
 
-[Read on Telegram](https://t.me/livelawindia/120089)
+[Read on Telegram](https://t.me/livelawindia/120104)
 
 ---
-### 2026-09-17T10:53:09+00:00
-Supreme Court Again Asks CBSE To Consider Exempting Present Class 6 Students From  3-Language Policy
-https://www.livelaw.in/top-stories/supreme-court-asks-cbse-to-reconsider-relaxation-of-3-language-policy-mandate-for-class-6-students-550509
+### 2026-09-17T14:16:03+00:00
+Calcutta High Court Seeks WB Police's Response On Detention Of Man Suspected To Be Bangladeshi National
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-seeks-wb-polices-response-on-detention-of-man-suspected-to-be-bangladeshi-national-550547
 
-[Read on Telegram](https://t.me/livelawindia/120090)
+[Read on Telegram](https://t.me/livelawindia/120105)
+
+---
+### 2026-09-17T14:32:33+00:00
+“Compensation, Not Charity”: Can International Law Make Major Emitters Pay for Nepal's Climate Losses?
+https://www.livelaw.in/articles/international-law-make-major-emitters-pay-nepal-climate-losses-550388
+
+[Read on Telegram](https://t.me/livelawindia/120106)
+
+---
+### 2026-09-17T14:32:53+00:00
+Calcutta High Court Directs CWC To Return 3-Year-Old Child To Adoptive Couple, Says He Was Neither 'Orphan' Nor 'Abandoned'
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-directs-cwc-to-return-3-year-old-child-to-adoptive-couple-says-he-was-neither-orphan-nor-abandoned-550479
+
+[Read on Telegram](https://t.me/livelawindia/120107)
+
+---
+### 2026-09-17T15:01:14+00:00
+'Wealth & Status' Can't Buy Softer Justice: Allahabad High Court Denies Bail To Builder In PMLA Case Alleging ₹126 Crore Diversion
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-denies-bail-anil-mithas-builder-pmla-126-crore-550552
+
+[Read on Telegram](https://t.me/livelawindia/120108)
+
+---
+### 2026-09-17T15:17:54+00:00
+'Low Moral Fibre': Madras High Court Denies Mother Custody Of Minor Children
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-mother-custody-denied-loose-moral-character-550553
+
+[Read on Telegram](https://t.me/livelawindia/120109)
+
+---
+### 2026-09-17T15:33:04+00:00
+Donate ₹50K Worth Of Furniture To Govt Schools: Delhi High Court Directs Accused While Quashing Assault FIR After Settlement
+https://www.livelaw.in/high-court/delhi-high-court/donate-50k-worth-of-furniture-to-govt-schools-delhi-high-court-directs-accused-while-quashing-assault-fir-after-settlement-550554
+
+[Read on Telegram](https://t.me/livelawindia/120110)
+
+---
+### 2026-09-17T15:42:05+00:00
+People Voted For United Shiv Sena, How Can 2019 Vote Shares Be Evidence Of Support For Shinde Faction? Supreme Court
+https://www.livelaw.in/top-stories/people-voted-for-united-shiv-sena-how-can-2019-vote-shares-be-evidence-of-support-for-shinde-faction-supreme-court-550556
+
+[Read on Telegram](https://t.me/livelawindia/120111)
+
+---
+### 2026-09-17T15:47:45+00:00
+All Medical Graduates, Whether Indian Or Foreign, Must Get Stipends On Parity, Says Supreme Court
+https://www.livelaw.in/top-stories/all-medical-graduates-whether-indian-or-foreign-must-get-stipends-on-parity-says-supreme-court-550557
+
+[Read on Telegram](https://t.me/livelawindia/120112)
+
+---
+### 2026-09-17T15:47:55+00:00
+Grant Of NEET Grace Marks Exclusively To NCC Cadets Who Finish Class 12 Is Reasonable: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-excluding-ncc-certificate-holders-neet-grace-marks-reasonable-classification-550555
+
+[Read on Telegram](https://t.me/livelawindia/120113)
+
+---
+### 2026-09-17T15:55:45+00:00
+Man Dies In Bijnor Jail Two Days After HC Grants Him Bail; Allahabad High Court Seeks Explanation From UP Prisons DG
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-bijnor-jail-bail-explanation-from-up-prisons-dg-550558
+
+[Read on Telegram](https://t.me/livelawindia/120114)
 
 ---
