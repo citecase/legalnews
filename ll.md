@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-17T12:28:30+00:00*
+*Last Updated: 2026-09-17T12:38:51+00:00*
 
 ---
 
-### 2026-09-17T12:28:30+00:00
-Karnataka High Court Flags Massive Illegal PG Operations In Bengaluru, Issues Sweeping Safety Guidelines
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-flags-massive-illegal-pg-operations-bengaluru-550527
-
-[Read on Telegram](https://t.me/livelawindia/120095)
-
----
-### 2026-09-17T12:32:30+00:00
-Firecracker Shop Owner Must Comply With Fire Safety Norms Despite Having License Under Explosives Act: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-explosives-act-licence-fire-services-act-operate-different-footing-550523
-
-[Read on Telegram](https://t.me/livelawindia/120096)
-
----
 ### 2026-09-17T12:38:51+00:00
 Delhi Court Orders FIR Against X User Karishma Aziz Over 'Derogatory' Posts Targeting Hinduism, PM Modi, Savarkar
 https://www.livelaw.in/news-updates/delhi-court-orders-fir-against-x-user-karishma-aziz-over-derogatory-posts-targeting-hinduism-pm-modi-savarkar-550533
@@ -142,5 +128,19 @@ Man Dies In Bijnor Jail Two Days After HC Grants Him Bail; Allahabad High Court 
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-bijnor-jail-bail-explanation-from-up-prisons-dg-550558
 
 [Read on Telegram](https://t.me/livelawindia/120114)
+
+---
+### 2026-09-17T17:22:26+00:00
+Supreme Court Daily Round-Up : September 17, 2026
+https://www.livelaw.in/round-ups/supreme-court-daily-round-up-september-17-2026-550551
+
+[Read on Telegram](https://t.me/livelawindia/120115)
+
+---
+### 2026-09-17T17:28:26+00:00
+LiveLaw High Courts Daily Highlights: September 17, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-17-2026-550569
+
+[Read on Telegram](https://t.me/livelawindia/120116)
 
 ---
