@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-17T11:32:47+00:00*
+*Last Updated: 2026-09-17T16:02:34+00:00*
+
+---
+
+### 2026-09-17T16:02:34+00:00
+Law Officer Vacancy At Punjabi University
+https://www.verdictum.in/job-updates/punjabi-university-1622168
+
+[Source Link](https://t.me/verdictumlegalupdates/29161)
+
+---
+
+### 2026-09-17T15:32:33+00:00
+Father’s Concern Regarding Adult Son’s Welfare Can’t Override His Constitutionally Protected Autonomy To Decide Faith: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/ayush-malik-v-state-of-up-2026ahc194390-father-adult-son-welfare-faith-life-partner-1622174
+
+[Source Link](https://t.me/verdictumlegalupdates/29160)
+
+---
+
+### 2026-09-17T15:03:13+00:00
+Courts Must Accord Due Deference To Determinations Of Sectoral Regulators Such As RBI On Technical Matters: Delhi High Court
+https://www.verdictum.in/delhi-high-court/courts-must-accord-due-deference-to-determinations-of-sectoral-regulators-such-as-rbi-on-technical-matters-delhi-high-court-1622167
+
+[Source Link](https://t.me/verdictumlegalupdates/29159)
+
+---
+
+### 2026-09-17T14:32:32+00:00
+Supreme Court Orders Provisional Enrolment Of 3-Year Law Graduates With Distance Or Open Bachelor Degrees
+https://www.verdictum.in/supreme-court/telangana-state-bar-provisional-enrolment-candidates-distance-education-law-degree-1622176
+
+[Source Link](https://t.me/verdictumlegalupdates/29158)
+
+---
+
+### 2026-09-17T14:02:51+00:00
+Mechanical Application Of Equal Pay For Equal Work Doctrine Should Be Eschewed; Mere Functional Similarity Of Work Not Enough: Supreme Court
+https://www.verdictum.in/supreme-court/gp-sangeetha-ors-v-state-of-kerala-2026-insc-1004-equal-pay-for-equal-work-1622165
+
+[Source Link](https://t.me/verdictumlegalupdates/29157)
+
+---
+
+### 2026-09-17T13:32:30+00:00
+Litigant Can’t Be Rendered Remediless Due To Technical Glitch In E-Filing System: Supreme Court Restores Appeal Before NCLAT
+https://www.verdictum.in/supreme-court/regional-provident-fund-commissioner-ii-v-ms-mamta-binani-2026-insc-1003-e-filing-nclat-1622164
+
+[Source Link](https://t.me/verdictumlegalupdates/29156)
+
+---
+
+### 2026-09-17T13:02:29+00:00
+Allahabad High Court Directs UP DGP To Consider Mandatory Audio-Video Recording Of Witness Statements U/S 180 BNSS
+https://www.verdictum.in/allahabad-high-court/smt-chandrakanta-v-state-of-up-2026ahc192776-up-police-dgp-section-180-bnss-1622163
+
+[Source Link](https://t.me/verdictumlegalupdates/29155)
+
+---
+
+### 2026-09-17T12:32:48+00:00
+Supreme Court Directs National Medical Commission To Explain Delay In Disbursing Stipend To Foreign Medical Graduates
+https://www.verdictum.in/supreme-court/national-medical-commission-to-explain-delay-in-disbursing-stipend-to-foreign-medical-graduates-1622162
+
+[Source Link](https://t.me/verdictumlegalupdates/29154)
+
+---
+
+### 2026-09-17T12:02:27+00:00
+Former Keralam DGP Sentenced To Four Years' RI In Disproportionate Assets Case
+https://www.verdictum.in/other-courts/former-keralam-dgp-sentenced-to-four-years-ri-in-disproportionate-assets-case-1622157
+
+[Source Link](https://t.me/verdictumlegalupdates/29153)
 
 ---
 
@@ -89,78 +161,6 @@ Supreme Court To Hear Plea Against Deletion Of Names From Electoral Roll In Delh
 https://www.verdictum.in/supreme-court/plea-against-deletion-of-names-from-electoral-roll-in-delhi-sir-on-sept-21-1622135
 
 [Source Link](https://t.me/verdictumlegalupdates/29142)
-
----
-
-### 2026-09-17T06:02:17+00:00
-Not For RERA To Decide Disputed Questions Of Title; Litigant Has To Approach Competent Civil Court: Madras High Court
-https://www.verdictum.in/madras-high-court/nbalakrishnan-v-tamil-nadu-real-estate-regulatory-authority-2026mhc3769-title-civil-court-1622132
-
-[Source Link](https://t.me/verdictumlegalupdates/29141)
-
----
-
-### 2026-09-17T05:32:16+00:00
-Loan Recovery Guidelines Exist Only On Paper: Supreme Court Directs RBI To Ensure Compliance By Banks And NBFCs
-https://www.verdictum.in/supreme-court/hari-dutta-sharma-v-state-of-up-ors-2026-insc-998-loan-recovery-rbi-1622130
-
-[Source Link](https://t.me/verdictumlegalupdates/29140)
-
----
-
-### 2026-09-17T05:02:36+00:00
-Trust Not A Juristic Person; Cannot Be Arrayed As Accused In Criminal Cases: Supreme Court
-https://www.verdictum.in/supreme-court/trust-cannot-arrayed-accused-not-juristic-person-1622125
-
-[Source Link](https://t.me/verdictumlegalupdates/29139)
-
----
-
-### 2026-09-17T04:32:55+00:00
-Failure To Record Information In GD Does Not Automatically Render Arrest Illegal: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/karolyn-v-state-of-up-2026ahc-lko64598-db-cyber-fraud-call-centre-case-1622090
-
-[Source Link](https://t.me/verdictumlegalupdates/29138)
-
----
-
-### 2026-09-16T16:02:23+00:00
-Law Officer Vacancy At Uttarakhand Public Service Commission (UKPSC)
-https://www.verdictum.in/job-updates/uttarakhand-public-service-commission-1622094
-
-[Source Link](https://t.me/verdictumlegalupdates/29137)
-
----
-
-### 2026-09-16T15:33:02+00:00
-Karnataka High Court Sentences Advocate To One Day Imprisonment For Disrupting Proceedings While Being Drunk
-https://www.verdictum.in/karnataka-high-court/high-court-of-karnataka-v-pankaj-kaushik-advocate-drunk-imprisonment-fine-1622093
-
-[Source Link](https://t.me/verdictumlegalupdates/29136)
-
----
-
-### 2026-09-16T15:02:41+00:00
-Himachal Pradesh High Court Flags Age-Proof Lapses In POCSO Case; Issues Directions To Police
-https://www.verdictum.in/himachal-high-court/kulwinder-singh-v-state-of-hp-2026hhc39173-age-proof-investigation-pocso-1622092
-
-[Source Link](https://t.me/verdictumlegalupdates/29135)
-
----
-
-### 2026-09-16T14:32:20+00:00
-Virtually Impossible To Comply With Mandate Of Order VI Rule 14A CPC In John Doe Cases; Courts Must Adopt Progressive Approach: Kerala High Court
-https://www.verdictum.in/kerala-high-court/cubes-entertainments-v-big-tree-entertainment-2026ker69867-order-vi-rule-14a-cpc-john-doe-1622089
-
-[Source Link](https://t.me/verdictumlegalupdates/29134)
-
----
-
-### 2026-09-16T14:02:39+00:00
-We Will Confine To Constitutional Validity Of Definition Of ‘Forest’ Under 2023 Act: Supreme Court
-https://www.verdictum.in/supreme-court/constitutional-validity-of-definition-of-forest-under-2023-act-1622096
-
-[Source Link](https://t.me/verdictumlegalupdates/29133)
 
 ---
 
