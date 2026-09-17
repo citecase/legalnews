@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-16T16:02:23+00:00*
+*Last Updated: 2026-09-17T05:02:36+00:00*
+
+---
+
+### 2026-09-17T05:02:36+00:00
+Trust Not A Juristic Person; Cannot Be Arrayed As Accused In Criminal Cases: Supreme Court
+https://www.verdictum.in/supreme-court/trust-cannot-arrayed-accused-not-juristic-person-1622125
+
+[Source Link](https://t.me/verdictumlegalupdates/29139)
+
+---
+
+### 2026-09-17T04:32:55+00:00
+Failure To Record Information In GD Does Not Automatically Render Arrest Illegal: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/karolyn-v-state-of-up-2026ahc-lko64598-db-cyber-fraud-call-centre-case-1622090
+
+[Source Link](https://t.me/verdictumlegalupdates/29138)
 
 ---
 
@@ -145,22 +161,6 @@ Preventive Jurisdiction Cannot Adjudicate Ecclesiastical Rights: Meghalaya High 
 https://www.verdictum.in/meghalaya-high-court/mawkhar-presbyterian-church-v-state-of-meghalaya-2026mlhc1030-deputy-commissioner-orders-1622061
 
 [Source Link](https://t.me/verdictumlegalupdates/29120)
-
----
-
-### 2026-09-16T07:03:07+00:00
-Calcutta High Court Sets Aside Fire Dept Order To Vacate 2 Floors Of Building Housing Abhishek Banerjee's Office
-https://www.verdictum.in/calcutta-high-court/fire-dept-order-vacate-2-floors-of-building-housing-abhishek-banerjees-office-set-aside-1622059
-
-[Source Link](https://t.me/verdictumlegalupdates/29119)
-
----
-
-### 2026-09-16T06:35:47+00:00
-Requirement Of Prior Permission Can’t Be Invoked To Suspend Execution Of Eviction Decree Merely Due To Subsequent Declaration Of Property As Slum Area: Bombay High Court
-https://www.verdictum.in/bombay-high-court/sachin-v-miss-flymi-sadanandan-prior-permission-eviction-slum-area-1622057
-
-[Source Link](https://t.me/verdictumlegalupdates/29118)
 
 ---
 
