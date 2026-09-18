@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-18T04:33:14+00:00*
+*Last Updated: 2026-09-18T11:02:41+00:00*
+
+---
+
+### 2026-09-18T11:02:41+00:00
+Counsel Unable To Distinguish Order Sheet From Cause Title Is A Threat To Sanctity Of Institution: Calcutta HC Orders Disciplinary Action
+https://www.verdictum.in/calcutta-high-court/noor-alam-v-debahuti-indra-cpan-no-214-of-2025-counsel-order-sheet-cause-title-misconduct-1622228
+
+[Source Link](https://t.me/verdictumlegalupdates/29170)
+
+---
+
+### 2026-09-18T10:23:00+00:00
+Reverse Burden Provisions Do Not Relieve Courts Of Duty To Scrutinise Prosecution Evidence: Supreme Court Acquits POCSO Accused
+https://www.verdictum.in/supreme-court/deepak-in-jc-v-state-govt-of-nct-delhi-2026-insc-1008-presumption-pocso-act-1622227
+
+[Source Link](https://t.me/verdictumlegalupdates/29169)
+
+---
+
+### 2026-09-18T09:32:59+00:00
+Exclusion Of NCC 'A' Certificate Holders From NEET Grace Marks Is Reasonable Classification, Not Manifest Arbitrariness: Telangana High Court
+https://www.verdictum.in/telangana-high-court/chatla-susheel-kumar-v-the-state-of-telangana-writ-petition-no28320-of-2026-ncc-a-neet-grace-marks-1622215
+
+[Source Link](https://t.me/verdictumlegalupdates/29168)
+
+---
+
+### 2026-09-18T08:43:18+00:00
+ECI Bars Rival Factions Of All India Trinamool Congress From Using Party's Name And Flowers & Grass Symbol Amid Leadership Dispute
+https://www.verdictum.in/news/eci-freezes-all-india-trinamool-congress-name-flowers-grass-symbol-dispute-1622223
+
+[Source Link](https://t.me/verdictumlegalupdates/29167)
+
+---
+
+### 2026-09-18T07:52:57+00:00
+NEET-UG Reforms| Supreme Court Directs NTA To Publish Affidavit On Public Domain, Asks High-Powered Committee To File Progress Report
+https://www.verdictum.in/supreme-court/directs-nta-publish-neet-ug-reforms-affidavit-public-domain-high-powered-committee-progress-report-1622219
+
+[Source Link](https://t.me/verdictumlegalupdates/29166)
+
+---
+
+### 2026-09-18T07:03:17+00:00
+No Blanket & Unqualified Proposition That Learner's Licence Is As Good As Valid Driving Licence For Insurance Coverage Purposes: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/the-divisional-manager-the-new-india-assurance-co-ltd-v-hulagamma-mallappa-biradar-2026khc-d14009-learners-licence-1622206
+
+[Source Link](https://t.me/verdictumlegalupdates/29165)
+
+---
+
+### 2026-09-18T06:12:56+00:00
+No Vested Right To Promotion Under Repealed Rules When Policy Change Is Fair And Reasonable: Supreme Court
+https://www.verdictum.in/supreme-court/the-bharat-sanchar-nigam-limited-v-gn-mani-ravinder-2026-insc-1007-promotion-under-repealed-rules-officiating-employee-1622204
+
+[Source Link](https://t.me/verdictumlegalupdates/29164)
+
+---
+
+### 2026-09-18T05:23:15+00:00
+Arbitral Award Cannot Be Set Aside Solely For Delay In Delivering It Unless It Is Unexplained And Affects The Findings: Delhi High Court
+https://www.verdictum.in/delhi-high-court/unison-hotels-private-limited-v-iffco-tokio-general-insurance-company-limited-2026dhc7875-db-1622202
+
+[Source Link](https://t.me/verdictumlegalupdates/29163)
 
 ---
 
@@ -97,70 +161,6 @@ Non-Disclosure Of Earlier Litigation Seeking Same Relief Amounts To Suppression 
 https://www.verdictum.in/supreme-court/vinit-kumar-v-state-of-up-through-secretary-ors-2026-insc-997-suppression-material-facts-1622155
 
 [Source Link](https://t.me/verdictumlegalupdates/29151)
-
----
-
-### 2026-09-17T10:33:05+00:00
-FCRA Cancellation: Delhi High Court Refuses To Interfere With Order Permitting CHRI To Withdraw Rs 20 Lakh
-https://www.verdictum.in/delhi-high-court/order-permitting-chri-to-withdraw-rs-20-lakh-fcra-cancellation-1622154
-
-[Source Link](https://t.me/verdictumlegalupdates/29150)
-
----
-
-### 2026-09-17T10:01:24+00:00
-Mere Delay In Approaching Magistrate Not A Ground For Quashing Domestic Violence Act Proceedings: Kerala High Court
-https://www.verdictum.in/kerala-high-court/m-v-a-2026ker68865-domestic-violence-act-1622153
-
-[Source Link](https://t.me/verdictumlegalupdates/29149)
-
----
-
-### 2026-09-17T09:33:03+00:00
-Mere Receipt Of Money By Third Person Cannot Automatically Result In Criminal Liability Being Imputed To Public Servant: Supreme Court
-https://www.verdictum.in/supreme-court/bharat-raj-meena-v-central-bureau-of-investigation-2026-insc-999-mere-receipt-of-money-by-third-person-1622150
-
-[Source Link](https://t.me/verdictumlegalupdates/29148)
-
----
-
-### 2026-09-17T09:02:22+00:00
-Manipur Violence| Supreme Court Directs Manipur Chief Secretary To Explain Unnatural Deaths In Relief Camp And Meagre Compensation To Affected Families
-https://www.verdictum.in/supreme-court/directs-manipur-chief-secretary-explain-unnatural-deaths-relief-camp-meagre-compensation-affected-families-1622151
-
-[Source Link](https://t.me/verdictumlegalupdates/29147)
-
----
-
-### 2026-09-17T08:32:41+00:00
-Burning Test Cannot Prove Seized Substance Is Charas Without Scientific Or Other Reliable Evidence: Supreme Court
-https://www.verdictum.in/supreme-court/abdul-rajik-v-state-of-mp-with-govind-v-state-of-mp-2026-insc-1001-1622147
-
-[Source Link](https://t.me/verdictumlegalupdates/29146)
-
----
-
-### 2026-09-17T08:02:41+00:00
-Revenue And Assessee Must Take “Crust And Crumb” Together: Supreme Court On Income Tax Reassessment After Final ITSC Settlement
-https://www.verdictum.in/supreme-court/assistant-commissioner-of-income-tax-v-ms-omaxe-limited-2026-insc-1000-revenue-and-assessee-1622143
-
-[Source Link](https://t.me/verdictumlegalupdates/29145)
-
----
-
-### 2026-09-17T07:34:00+00:00
-Attempt To Browbeat The Judiciary: Apex Court Dismisses Plea Seeking Registration Of FIR Against Former CAT Members For Alleged Forgery Of Judicial Records
-https://www.verdictum.in/supreme-court/registration-of-fir-against-former-cat-members-alleged-forgery-judicial-records-1622142
-
-[Source Link](https://t.me/verdictumlegalupdates/29144)
-
----
-
-### 2026-09-17T07:02:59+00:00
-No Specific Rule Debars Married Daughter From Claiming Land: Himachal Pradesh HC Quashes Denial Of Nautor Patta To Class I Legal Heir
-https://www.verdictum.in/himachal-high-court/shanti-v-state-of-himachal-pradesh-2026hhc39123-nautor-patta-to-class-i-legal-heir-1622137
-
-[Source Link](https://t.me/verdictumlegalupdates/29143)
 
 ---
 
