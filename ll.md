@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-17T15:42:05+00:00*
+*Last Updated: 2026-09-18T09:15:18+00:00*
 
 ---
 
-### 2026-09-17T15:42:05+00:00
-People Voted For United Shiv Sena, How Can 2019 Vote Shares Be Evidence Of Support For Shinde Faction? Supreme Court
-https://www.livelaw.in/top-stories/people-voted-for-united-shiv-sena-how-can-2019-vote-shares-be-evidence-of-support-for-shinde-faction-supreme-court-550556
+### 2026-09-18T09:15:18+00:00
+S.173 BNSS Mandates FIR Registration When Cognizable Offence Disclosed, Even If Allegations Are Against Police: Tripura High Court
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-section173-bnss-mandates-fir-registration-police-personnel-550670
 
-[Read on Telegram](https://t.me/livelawindia/120111)
-
----
-### 2026-09-17T15:47:45+00:00
-All Medical Graduates, Whether Indian Or Foreign, Must Get Stipends On Parity, Says Supreme Court
-https://www.livelaw.in/top-stories/all-medical-graduates-whether-indian-or-foreign-must-get-stipends-on-parity-says-supreme-court-550557
-
-[Read on Telegram](https://t.me/livelawindia/120112)
+[Read on Telegram](https://t.me/livelawindia/120170)
 
 ---
-### 2026-09-17T15:47:55+00:00
-Grant Of NEET Grace Marks Exclusively To NCC Cadets Who Finish Class 12 Is Reasonable: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-excluding-ncc-certificate-holders-neet-grace-marks-reasonable-classification-550555
+### 2026-09-18T09:18:08+00:00
+State Can't Invoke 3-Month Deadline After Wrongfully Rejecting Landowners' Timely Pleas For Enhanced Compensation: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-state-invoke-deadline-wrongly-refusing-landowners-compensation-claims-550639
 
-[Read on Telegram](https://t.me/livelawindia/120113)
-
----
-### 2026-09-17T15:55:45+00:00
-Man Dies In Bijnor Jail Two Days After HC Grants Him Bail; Allahabad High Court Seeks Explanation From UP Prisons DG
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-bijnor-jail-bail-explanation-from-up-prisons-dg-550558
-
-[Read on Telegram](https://t.me/livelawindia/120114)
+[Read on Telegram](https://t.me/livelawindia/120171)
 
 ---
-### 2026-09-17T17:22:26+00:00
-Supreme Court Daily Round-Up : September 17, 2026
-https://www.livelaw.in/round-ups/supreme-court-daily-round-up-september-17-2026-550551
+### 2026-09-18T09:19:28+00:00
+NEET-UG Paper Leak: Supreme Court Mull Visiting NTA Office, Seeks Affidavit From Nilekani Committee On Reforms
+https://www.livelaw.in/top-stories/supreme-court-neet-ug-paper-leak-visit-nta-office-nilekani-committee-reforms-550673
 
-[Read on Telegram](https://t.me/livelawindia/120115)
-
----
-### 2026-09-17T17:28:26+00:00
-LiveLaw High Courts Daily Highlights: September 17, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-17-2026-550569
-
-[Read on Telegram](https://t.me/livelawindia/120116)
+[Read on Telegram](https://t.me/livelawindia/120172)
 
 ---
-### 2026-09-18T02:04:34+00:00
-ECI Bars Both Factions From Using 'All India Trinamool Congress' Name, 'Flowers & Grass' Symbol
-https://www.livelaw.in/top-stories/eci-bars-both-factions-from-using-all-india-trinamool-congress-name-flowers-grass-symbol-550570
+### 2026-09-18T09:20:48+00:00
+Calcutta High Court Quashes Defamation Case Against Republic Editor, Reporter Over Alleged Phone Call With Singer Kabir Suman
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-quashes-defamation-case-against-republic-editor-reporter-over-alleged-phone-call-with-singer-kabir-suman-550674
 
-[Read on Telegram](https://t.me/livelawindia/120117)
-
----
-### 2026-09-18T02:32:55+00:00
-'Will Bring Respite To Mumbaikars': Bombay High Court Permits Cutting Of 1,237 Mangroves For 'Connector' Bridge In Western Suburbs
-https://www.livelaw.in/high-court/bombay-high-court/will-bring-respite-to-mumbaikars-bombay-high-court-permits-cutting-of-1237-mangroves-for-connector-bridge-in-western-suburbs-550568
-
-[Read on Telegram](https://t.me/livelawindia/120118)
+[Read on Telegram](https://t.me/livelawindia/120173)
 
 ---
-### 2026-09-18T02:33:15+00:00
-Why Indian Government Losing Faith In Arbitration?
-https://www.livelaw.in/articles/why-indian-government-losing-faith-arbitration-550504
+### 2026-09-18T09:31:08+00:00
+DMD Advocates Win LawStrings Pickleball Cup Season 2; AZB & Partners, Aekom Legal Finish Runners-Up
+https://www.livelaw.in/law-firms/events/dmd-advocates-win-lawstrings-pickleball-cup-season-2-azb-partners-aekom-legal-finish-runners-up-550676
 
-[Read on Telegram](https://t.me/livelawindia/120119)
-
----
-### 2026-09-18T03:03:25+00:00
-Project Assistant Vacancy At Indian Institute Of Technology, Kanpur
-https://www.livelaw.in/job-updates/project-assistant-vacancy-at-indian-institute-of-technology-kanpur-550571
-
-[Read on Telegram](https://t.me/livelawindia/120120)
+[Read on Telegram](https://t.me/livelawindia/120174)
 
 ---
-### 2026-09-18T03:04:45+00:00
-Team Member (Legal) Vacancy At Cipla Limited
-https://www.livelaw.in/job-updates/team-member-legal-vacancy-at-cipla-limited-550572
+### 2026-09-18T09:32:28+00:00
+Day An RTI Reply Becomes Criminal Act
+https://www.livelaw.in/articles/day-rti-reply-becomes-criminal-act-550593
 
-[Read on Telegram](https://t.me/livelawindia/120121)
-
----
-### 2026-09-18T03:05:45+00:00
-Law Officer Vacancy At Gayatri Co Operative Urban Bank Limited
-https://www.livelaw.in/job-updates/law-officer-vacancy-at-gayatri-co-operative-urban-bank-limited-550573
-
-[Read on Telegram](https://t.me/livelawindia/120122)
+[Read on Telegram](https://t.me/livelawindia/120175)
 
 ---
-### 2026-09-18T03:07:25+00:00
-Senior Manager Vacancy At Tata Capital Limited
-https://www.livelaw.in/job-updates/senior-manager-vacancy-at-tata-capital-limited-550574
+### 2026-09-18T09:32:48+00:00
+Datia Fort Property Dispute: MP High Court Bars Alienation, Creation Of Third-Party Rights
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-passes-interim-direction-to-not-alienate-properties-including-datia-fort-550641
 
-[Read on Telegram](https://t.me/livelawindia/120123)
-
----
-### 2026-09-18T03:08:05+00:00
-Consultant (Risk Management) Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/consultant-risk-management-vacancy-at-deloitte-touche-tohmatsu-india-llp-550575
-
-[Read on Telegram](https://t.me/livelawindia/120124)
+[Read on Telegram](https://t.me/livelawindia/120176)
 
 ---
-### 2026-09-18T03:16:45+00:00
-'Where Does A Judge Go For Justice?': UP Judge Ravi Diwakar Questions Recall Of 97 Part-Heard Cases From His Court
-https://www.livelaw.in/news-updates/judge-ravi-kumar-diwakar-97-part-heard-cases-recall-muzaffarnagar-district-judge-550576
+### 2026-09-18T09:34:08+00:00
+Why Mergers & Acquisitions? | Ashirbad Nayak on His Journey in Law | LiveLaw Academy
+https://www.livelaw.in/podcast/livelawacademy-mergers-and-acquisitions-corporate-law-legal-career-lawyer-journey-550678
 
-[Read on Telegram](https://t.me/livelawindia/120125)
-
----
-### 2026-09-18T03:32:25+00:00
-Professor At Statutory University Does Not Hold 'Public Office', Can't Be Subject To Quo Warranto: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-university-professorship-quo-warranto-550561
-
-[Read on Telegram](https://t.me/livelawindia/120126)
+[Read on Telegram](https://t.me/livelawindia/120177)
 
 ---
-### 2026-09-18T03:34:45+00:00
-Supreme Court Grants 5-Day Parole To PMLA Accused Al-Falah Chairman To Be With Wife Suffering From Cancer
-https://www.livelaw.in/news-updates/supreme-court-grants-5-day-parole-to-pmla-accused-al-falah-chairman-to-be-with-wife-suffering-from-cancer-550577
+### 2026-09-18T09:47:08+00:00
+Delhi High Court Grants 30-Day Custody Bail To Alleged ISIS Operative For Surgery At Private Hospital Of Choice
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-grants-30-day-custody-bail-to-alleged-isis-operative-for-surgery-at-private-hospital-of-choice-550681
 
-[Read on Telegram](https://t.me/livelawindia/120127)
-
----
-### 2026-09-18T03:47:15+00:00
-Presumption Of Guilt Under POCSO Act Not Absolute: Supreme Court Acquits Man
-https://www.livelaw.in/supreme-court/presumption-of-guilt-under-pocso-act-not-absolute-supreme-court-acquits-man-550578
-
-[Read on Telegram](https://t.me/livelawindia/120128)
+[Read on Telegram](https://t.me/livelawindia/120178)
 
 ---
-### 2026-09-18T03:47:45+00:00
-Kanjhawala Hit-And-Run Case: Delhi High Court Denies Bail To Accused Amit Khanna, Cites Gravity Of Alleged Murder
-https://www.livelaw.in/high-court/delhi-high-court/kanjhawala-hit-and-run-case-delhi-high-court-denies-bail-to-accused-amit-khanna-cites-gravity-of-alleged-murder-550562
+### 2026-09-18T09:57:49+00:00
+Karnataka High Court Refuses To Suspend Death Sentence Of Man Convicted For Wife's Murder Over Property Dispute
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-suspend-capital-punishment-man-convicted-murdering-wife-550684
 
-[Read on Telegram](https://t.me/livelawindia/120129)
+[Read on Telegram](https://t.me/livelawindia/120179)
 
 ---
-### 2026-09-18T03:47:55+00:00
-2026 LiveLaw (SC) 952 | Deepak in JC v State Govt. of NCT Delhi
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-952-deepak-in-jc-v-state-govt-of-nct-delhi-550579
+### 2026-09-18T10:07:39+00:00
+Fresh Direct Appointment Confers No Promotional Increment Or Past-Service Benefits Absent Statutory Entitlement: HP High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-fresh-direct-appointment-promotional-increment-past-service-benefits-absent-statutory-entitlement-550653
 
-[Read on Telegram](https://t.me/livelawindia/120130)
+[Read on Telegram](https://t.me/livelawindia/120180)
+
+---
+### 2026-09-18T10:07:59+00:00
+P&H High Court Pulls Up States For Non-Implementation Of Mental Healthcare Act, Directs Institutions To Be Made Functional
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-flags-non-notification-of-mental-healthcare-rules-directs-states-to-ensure-act-is-made-functional-550685
+
+[Read on Telegram](https://t.me/livelawindia/120181)
+
+---
+### 2026-09-18T10:14:39+00:00
+Karnataka High Court Quashes Case Over Instagram Post After Puneeth Rajkumar's Death, Warns Student To Be Careful On Social Media
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-it-act-case-young-student-offensive-instagram-post-puneeth-rajkumar-death-550689
+
+[Read on Telegram](https://t.me/livelawindia/120182)
+
+---
+### 2026-09-18T10:22:59+00:00
+Ex-DGP Tomin J Thachankary Moves Kerala High Court Challenging Conviction In Disproportionate Assets Case
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-tomin-j-thachankary-disproportionate-assets-case-550690
+
+[Read on Telegram](https://t.me/livelawindia/120183)
+
+---
+### 2026-09-18T10:32:19+00:00
+Mistake Of Law By Quasi-Judicial Authority Cannot Be Basis For Disciplinary Proceedings Without Improper Motives: Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-mistake-of-law-quasi-judicial-authority-basis-disciplinary-proceedings-550642
+
+[Read on Telegram](https://t.me/livelawindia/120184)
+
+---
+### 2026-09-18T10:32:59+00:00
+'Don't Use Instagram If You're Not Satisfied': MP High Court Orally Tells Creator While Reserving Verdict On Plea Against Account Suspension
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-reserves-order-in-content-creators-plea-over-content-deletion-over-copyright-claims-550692
+
+[Read on Telegram](https://t.me/livelawindia/120185)
+
+---
+### 2026-09-18T10:38:19+00:00
+Govt Employee's Suspension Cannot Continue Beyond 3 Months Without Charge-Sheet: Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-suspension-continue-beyond-3months-without-charge-sheet-550658
+
+[Read on Telegram](https://t.me/livelawindia/120186)
+
+---
+### 2026-09-18T10:42:39+00:00
+Signed Blank Cheque Presumes Legally Enforceable Debt Even If Particulars Were Filled By Another: Uttarakhand High Court
+https://www.livelaw.in/high-court/uttarakhand-high-court/admitted-signature-blank-cheque-statutory-presumptions-particulars-filled-another-550644
+
+[Read on Telegram](https://t.me/livelawindia/120187)
+
+---
+### 2026-09-18T10:46:19+00:00
+Lawyer's Office Can Be Searched If His Own Prima Facie Involvement Shown, Advocate-Client Privilege No Bar: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/advocate-client-privilege-doesnt-bar-lawyer-investigation-if-material-exists-550695
+
+[Read on Telegram](https://t.me/livelawindia/120188)
+
+---
+### 2026-09-18T10:53:49+00:00
+Kerala High Court Refuses Interim Bail To Reporter TV MD Anto Augustine Arrested In Alcohol Possession Case
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-reporter-tv-md-anto-augustine-alcohol-550698
+
+[Read on Telegram](https://t.me/livelawindia/120189)
 
 ---
