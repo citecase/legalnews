@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-18T09:15:18+00:00*
+*Last Updated: 2026-09-18T12:07:50+00:00*
 
 ---
 
-### 2026-09-18T09:15:18+00:00
-S.173 BNSS Mandates FIR Registration When Cognizable Offence Disclosed, Even If Allegations Are Against Police: Tripura High Court
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-section173-bnss-mandates-fir-registration-police-personnel-550670
+### 2026-09-18T12:07:50+00:00
+Vehicle Without Valid Permit, Fitness Certificate Breaches Insurance Policy: Himachal Pradesh High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-permit-fitness-certificate-absence-constitutes-fundamental-breach-550656
 
-[Read on Telegram](https://t.me/livelawindia/120170)
-
----
-### 2026-09-18T09:18:08+00:00
-State Can't Invoke 3-Month Deadline After Wrongfully Rejecting Landowners' Timely Pleas For Enhanced Compensation: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-state-invoke-deadline-wrongly-refusing-landowners-compensation-claims-550639
-
-[Read on Telegram](https://t.me/livelawindia/120171)
+[Read on Telegram](https://t.me/livelawindia/120198)
 
 ---
-### 2026-09-18T09:19:28+00:00
-NEET-UG Paper Leak: Supreme Court Mull Visiting NTA Office, Seeks Affidavit From Nilekani Committee On Reforms
-https://www.livelaw.in/top-stories/supreme-court-neet-ug-paper-leak-visit-nta-office-nilekani-committee-reforms-550673
+### 2026-09-18T12:08:20+00:00
+NDPS Act | Arrest, Remand Vitiated If Accused Not Informed Quantity Of Contraband Seized From Him: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ndps-accused-not-informed-quantity-of-contraband-cannot-defend-550721
 
-[Read on Telegram](https://t.me/livelawindia/120172)
-
----
-### 2026-09-18T09:20:48+00:00
-Calcutta High Court Quashes Defamation Case Against Republic Editor, Reporter Over Alleged Phone Call With Singer Kabir Suman
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-quashes-defamation-case-against-republic-editor-reporter-over-alleged-phone-call-with-singer-kabir-suman-550674
-
-[Read on Telegram](https://t.me/livelawindia/120173)
+[Read on Telegram](https://t.me/livelawindia/120199)
 
 ---
-### 2026-09-18T09:31:08+00:00
-DMD Advocates Win LawStrings Pickleball Cup Season 2; AZB & Partners, Aekom Legal Finish Runners-Up
-https://www.livelaw.in/law-firms/events/dmd-advocates-win-lawstrings-pickleball-cup-season-2-azb-partners-aekom-legal-finish-runners-up-550676
+### 2026-09-18T12:15:40+00:00
+Plea In Supreme Court Seeks 30% Women Representation In Bar Council Of India Like State Bar Councils
+https://www.livelaw.in/top-stories/plea-in-supreme-court-seeks-30-women-representation-in-bar-council-of-india-like-state-bar-councils-550723
 
-[Read on Telegram](https://t.me/livelawindia/120174)
-
----
-### 2026-09-18T09:32:28+00:00
-Day An RTI Reply Becomes Criminal Act
-https://www.livelaw.in/articles/day-rti-reply-becomes-criminal-act-550593
-
-[Read on Telegram](https://t.me/livelawindia/120175)
+[Read on Telegram](https://t.me/livelawindia/120200)
 
 ---
-### 2026-09-18T09:32:48+00:00
-Datia Fort Property Dispute: MP High Court Bars Alienation, Creation Of Third-Party Rights
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-passes-interim-direction-to-not-alienate-properties-including-datia-fort-550641
+### 2026-09-18T12:32:20+00:00
+Tripura High Court Upholds Interim Maintenance To Wife, Says Man Cannot Benefit From Suppressing Existing Marriage
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-upholds-interim-maintenance-woman-benefit-suppressing-existing-marriage-550725
 
-[Read on Telegram](https://t.me/livelawindia/120176)
-
----
-### 2026-09-18T09:34:08+00:00
-Why Mergers & Acquisitions? | Ashirbad Nayak on His Journey in Law | LiveLaw Academy
-https://www.livelaw.in/podcast/livelawacademy-mergers-and-acquisitions-corporate-law-legal-career-lawyer-journey-550678
-
-[Read on Telegram](https://t.me/livelawindia/120177)
+[Read on Telegram](https://t.me/livelawindia/120201)
 
 ---
-### 2026-09-18T09:47:08+00:00
-Delhi High Court Grants 30-Day Custody Bail To Alleged ISIS Operative For Surgery At Private Hospital Of Choice
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-grants-30-day-custody-bail-to-alleged-isis-operative-for-surgery-at-private-hospital-of-choice-550681
+### 2026-09-18T12:40:10+00:00
+Renukaswamy Murder Trial: Karnataka High Court Says Darshan Will Be Physically Produced During Cross-Examination Of Material Witnesses
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-modulates-procedure-actor-darshan-physical-production-550727
 
-[Read on Telegram](https://t.me/livelawindia/120178)
-
----
-### 2026-09-18T09:57:49+00:00
-Karnataka High Court Refuses To Suspend Death Sentence Of Man Convicted For Wife's Murder Over Property Dispute
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-suspend-capital-punishment-man-convicted-murdering-wife-550684
-
-[Read on Telegram](https://t.me/livelawindia/120179)
+[Read on Telegram](https://t.me/livelawindia/120202)
 
 ---
-### 2026-09-18T10:07:39+00:00
-Fresh Direct Appointment Confers No Promotional Increment Or Past-Service Benefits Absent Statutory Entitlement: HP High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-fresh-direct-appointment-promotional-increment-past-service-benefits-absent-statutory-entitlement-550653
+### 2026-09-18T12:44:50+00:00
+Supreme Court Urges Centre & BCI To Frame Regulations For Sexual Harassment Complaints By Women Lawyers In All Courts
+https://www.livelaw.in/top-stories/supreme-court-urges-centre-bci-to-frame-regulations-for-sexual-harassment-complaints-by-women-lawyers-in-all-courts-550728
 
-[Read on Telegram](https://t.me/livelawindia/120180)
-
----
-### 2026-09-18T10:07:59+00:00
-P&H High Court Pulls Up States For Non-Implementation Of Mental Healthcare Act, Directs Institutions To Be Made Functional
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-flags-non-notification-of-mental-healthcare-rules-directs-states-to-ensure-act-is-made-functional-550685
-
-[Read on Telegram](https://t.me/livelawindia/120181)
+[Read on Telegram](https://t.me/livelawindia/120203)
 
 ---
-### 2026-09-18T10:14:39+00:00
-Karnataka High Court Quashes Case Over Instagram Post After Puneeth Rajkumar's Death, Warns Student To Be Careful On Social Media
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-it-act-case-young-student-offensive-instagram-post-puneeth-rajkumar-death-550689
+### 2026-09-18T12:54:30+00:00
+Telangana High Court Disqualifies Khairatabad MLA Danam Nagender Over Defection From BRS To Congress
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-disqualifies-khairatabad-mla-danam-nagender-over-defection-from-brs-to-congress-550730
 
-[Read on Telegram](https://t.me/livelawindia/120182)
-
----
-### 2026-09-18T10:22:59+00:00
-Ex-DGP Tomin J Thachankary Moves Kerala High Court Challenging Conviction In Disproportionate Assets Case
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-tomin-j-thachankary-disproportionate-assets-case-550690
-
-[Read on Telegram](https://t.me/livelawindia/120183)
+[Read on Telegram](https://t.me/livelawindia/120204)
 
 ---
-### 2026-09-18T10:32:19+00:00
-Mistake Of Law By Quasi-Judicial Authority Cannot Be Basis For Disciplinary Proceedings Without Improper Motives: Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-mistake-of-law-quasi-judicial-authority-basis-disciplinary-proceedings-550642
+### 2026-09-18T13:25:30+00:00
+Supreme Court Strikes Down Maharashtra Rules Mandating Additives In Methanol, Issues Directions To Prevent Hooch Tragedies
+https://www.livelaw.in/supreme-court/supreme-court-strikes-down-maharashtra-rules-mandating-additives-in-methanol-issues-directions-to-prevent-hooch-tragedies-550738
 
-[Read on Telegram](https://t.me/livelawindia/120184)
-
----
-### 2026-09-18T10:32:59+00:00
-'Don't Use Instagram If You're Not Satisfied': MP High Court Orally Tells Creator While Reserving Verdict On Plea Against Account Suspension
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-reserves-order-in-content-creators-plea-over-content-deletion-over-copyright-claims-550692
-
-[Read on Telegram](https://t.me/livelawindia/120185)
+[Read on Telegram](https://t.me/livelawindia/120205)
 
 ---
-### 2026-09-18T10:38:19+00:00
-Govt Employee's Suspension Cannot Continue Beyond 3 Months Without Charge-Sheet: Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-suspension-continue-beyond-3months-without-charge-sheet-550658
+### 2026-09-18T13:27:31+00:00
+Manipur High Court Bar Opposes Elevation Of Judicial Officer To High Court Bench, Writes To CJI
+https://www.livelaw.in/high-court/manipur-high-court/manipur-high-court-bar-opposes-elevation-of-judicial-officer-to-high-court-bench-writes-to-cji-550739
 
-[Read on Telegram](https://t.me/livelawindia/120186)
-
----
-### 2026-09-18T10:42:39+00:00
-Signed Blank Cheque Presumes Legally Enforceable Debt Even If Particulars Were Filled By Another: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/admitted-signature-blank-cheque-statutory-presumptions-particulars-filled-another-550644
-
-[Read on Telegram](https://t.me/livelawindia/120187)
+[Read on Telegram](https://t.me/livelawindia/120206)
 
 ---
-### 2026-09-18T10:46:19+00:00
-Lawyer's Office Can Be Searched If His Own Prima Facie Involvement Shown, Advocate-Client Privilege No Bar: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/advocate-client-privilege-doesnt-bar-lawyer-investigation-if-material-exists-550695
+### 2026-09-18T13:29:01+00:00
+2026 LiveLaw (SC) 954 | M/S BALAJI FORMALIN PVT. LTD. & ANR. VERSUS UNION OF INDIA & ANR
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-954-ms-balaji-formalin-pvt-ltd-anr-versus-union-of-india-anr-550741
 
-[Read on Telegram](https://t.me/livelawindia/120188)
+[Read on Telegram](https://t.me/livelawindia/120207)
 
 ---
-### 2026-09-18T10:53:49+00:00
-Kerala High Court Refuses Interim Bail To Reporter TV MD Anto Augustine Arrested In Alcohol Possession Case
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-reporter-tv-md-anto-augustine-alcohol-550698
+### 2026-09-18T13:52:51+00:00
+Government Land With Open Access Cannot Be Taken Over For Exclusive Use By Permittee: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/government-land-open-access-cannot-exclusive-use-550646
 
-[Read on Telegram](https://t.me/livelawindia/120189)
+[Read on Telegram](https://t.me/livelawindia/120208)
+
+---
+### 2026-09-18T13:53:21+00:00
+Despite Liquor Ban, Gujarat Witnessed Several Hooch Tragedies : Supreme Court
+https://www.livelaw.in/top-stories/despite-liquor-ban-gujarat-witnessed-several-hooch-tragedies-supreme-court-550745
+
+[Read on Telegram](https://t.me/livelawindia/120209)
+
+---
+### 2026-09-18T14:04:21+00:00
+Retiring MP High Court Judge Avanindra Kumar Singh To Donate ₹1.1 Crore Retirement Benefits To PM CARES Fund
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-justice-avanindra-kumar-singh-announces-donation-of-1-cr-to-pm-fund-in-farewell-speech-550748
+
+[Read on Telegram](https://t.me/livelawindia/120210)
+
+---
+### 2026-09-18T14:05:01+00:00
+Young Lawyers Starting Offices Without Training Under Seniors Miss Learning 'Niceties' Of Legal Profession : Justice BV Nagarathna
+https://www.livelaw.in/top-stories/young-lawyers-starting-offices-without-training-under-seniors-miss-learning-niceties-of-legal-profession-justice-bv-nagarathna-550749
+
+[Read on Telegram](https://t.me/livelawindia/120211)
+
+---
+### 2026-09-18T14:09:21+00:00
+2026 LiveLaw (SC) 955 | S. PANCHALINGU & ORS. VERSUS PEOPLE'S EDUCATION TRUST (R) & OTHERS ETC
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-955-s-panchalingu-ors-versus-peoples-education-trust-r-others-etc-550752
+
+[Read on Telegram](https://t.me/livelawindia/120212)
+
+---
+### 2026-09-18T14:14:01+00:00
+2026 LiveLaw (SC) 956 | Sheo Kumar Singh & Others v M/s Sharda Educational Society & Others
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-956-sheo-kumar-singh-others-v-ms-sharda-educational-society-others-550756
+
+[Read on Telegram](https://t.me/livelawindia/120213)
+
+---
+### 2026-09-18T14:32:31+00:00
+Same Coin, Many Regulators: India's Unfinished Answer On Who Governs Crypto
+https://www.livelaw.in/articles/same-coin-many-regulators-unfinished-answer-governs-crypto-550594
+
+[Read on Telegram](https://t.me/livelawindia/120214)
+
+---
+### 2026-09-18T14:42:31+00:00
+Doctor Cannot Defy Court Order To Vacate Secured Property By Citing Patients' Treatment Needs: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/being-doctors-no-ground-escape-consequences-willful-disobedience-550648
+
+[Read on Telegram](https://t.me/livelawindia/120215)
+
+---
+### 2026-09-18T15:24:21+00:00
+West Bengal SIR | 37 Lakh Appeals Pending; Less Than 3% Disposed By Appellate Tribunals : ECI Tells Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-west-bengal-sir-eci-affidavit-over-37-lakh-appeals-pending-before-appellate-tribunals-550768
+
+[Read on Telegram](https://t.me/livelawindia/120216)
+
+---
+### 2026-09-18T15:45:01+00:00
+Extra-Judicial Killings Are On Rise; Constitution Doesn't Approve Such Short-Cut Methods: Justice Ujjal Bhuyan
+https://www.livelaw.in/top-stories/extra-judicial-killings-are-on-rise-constitution-doesnt-approve-such-short-cut-methods-justice-ujjal-bhuyan-550769
+
+[Read on Telegram](https://t.me/livelawindia/120217)
 
 ---
