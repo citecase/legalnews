@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-18T11:02:41+00:00*
+*Last Updated: 2026-09-18T16:03:08+00:00*
+
+---
+
+### 2026-09-18T16:03:08+00:00
+Disproportionate: Bombay High Court Quashes Compulsory Retirement Of TISS Professor Accused Of Running Placement Business Through WhatsApp
+https://www.verdictum.in/bombay-high-court/dr-swapan-garain-v-tata-institute-of-social-sciences-others-2026bhc-as37817-db-1622250
+
+[Source Link](https://t.me/verdictumlegalupdates/29179)
+
+---
+
+### 2026-09-18T15:12:58+00:00
+Appointment Disregarding Terms Of Advertisement Amounts To Fraud On Public: Supreme Court Reiterates
+https://www.verdictum.in/supreme-court/sunita-lahu-panchpande-v-the-district-collector-2026-insc-1002-appointment-advertisement-fraud-1622247
+
+[Source Link](https://t.me/verdictumlegalupdates/29178)
+
+---
+
+### 2026-09-18T14:32:37+00:00
+Calcutta High Court Quashes Defamation Case Against Republic Journalists And Editor For Allegedly Circulating Call With Kabir Suman
+https://www.verdictum.in/calcutta-high-court/quashes-defamation-republic-journalists-editor-allegedly-circulating-call-kabir-suman-1622246
+
+[Source Link](https://t.me/verdictumlegalupdates/29177)
+
+---
+
+### 2026-09-18T13:52:56+00:00
+Order VII Rule 14(3) CPC| No Absolute Bar On Receiving Documents At Stage Of Arguments: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/mona-shukla-v-gyanendra-katiyar-2026ahc193257-discretion-under-order-vii-rule-143-cpc-1622245
+
+[Source Link](https://t.me/verdictumlegalupdates/29176)
+
+---
+
+### 2026-09-18T13:13:00+00:00
+Attempting To De-Board Stopped Train Outside Platform Is “Untoward Incident”, Negligence No Ground To Deny Compensation: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/sukumar-mondal-v-union-of-india-general-manager-south-eastern-railway-fma-104-of-2021-attempting-to-de-board-1622244
+
+[Source Link](https://t.me/verdictumlegalupdates/29175)
+
+---
+
+### 2026-09-18T12:42:34+00:00
+Deeply Unfortunate Even After 80 Years Of Independence People Prefer Male Child: Bombay High Court
+https://www.verdictum.in/bombay-high-court/gopinath-janku-pradhan-v-state-of-maharashtra-2026bhc-nag12016-people-prefer-male-child-1622236
+
+[Source Link](https://t.me/verdictumlegalupdates/29174)
+
+---
+
+### 2026-09-18T12:19:53+00:00
+No Victory Procession After DUSU Election Results: Delhi High Court
+https://www.verdictum.in/delhi-high-court/no-victory-procession-after-dusu-election-results-delhi-high-court-1622242
+
+[Source Link](https://t.me/verdictumlegalupdates/29173)
+
+---
+
+### 2026-09-18T12:12:23+00:00
+Advocate-Client Privilege No Bar To Investigating Advocate’s Own Conduct: Delhi High Court Upholds GST Search At Law Firm
+https://www.verdictum.in/delhi-high-court/puneet-batra-v-union-of-india-2026dhc7976-db-advocate-client-privilege-gst-raid-1622234
+
+[Source Link](https://t.me/verdictumlegalupdates/29172)
+
+---
+
+### 2026-09-18T11:43:02+00:00
+Merely Writing Letter To CM's Cell & Filing PIL Is No Substitute For Criminal Procedure For Missing Temple Idols: Madras High Court
+https://www.verdictum.in/madras-high-court/writing-letter-cm-cell-pil-no-substitute-criminal-procedure-missing-temple-idols-1622232
+
+[Source Link](https://t.me/verdictumlegalupdates/29171)
 
 ---
 
@@ -89,78 +161,6 @@ Father’s Concern Regarding Adult Son’s Welfare Can’t Override His Constitu
 https://www.verdictum.in/allahabad-high-court/ayush-malik-v-state-of-up-2026ahc194390-father-adult-son-welfare-faith-life-partner-1622174
 
 [Source Link](https://t.me/verdictumlegalupdates/29160)
-
----
-
-### 2026-09-17T15:03:13+00:00
-Courts Must Accord Due Deference To Determinations Of Sectoral Regulators Such As RBI On Technical Matters: Delhi High Court
-https://www.verdictum.in/delhi-high-court/courts-must-accord-due-deference-to-determinations-of-sectoral-regulators-such-as-rbi-on-technical-matters-delhi-high-court-1622167
-
-[Source Link](https://t.me/verdictumlegalupdates/29159)
-
----
-
-### 2026-09-17T14:32:32+00:00
-Supreme Court Orders Provisional Enrolment Of 3-Year Law Graduates With Distance Or Open Bachelor Degrees
-https://www.verdictum.in/supreme-court/telangana-state-bar-provisional-enrolment-candidates-distance-education-law-degree-1622176
-
-[Source Link](https://t.me/verdictumlegalupdates/29158)
-
----
-
-### 2026-09-17T14:02:51+00:00
-Mechanical Application Of Equal Pay For Equal Work Doctrine Should Be Eschewed; Mere Functional Similarity Of Work Not Enough: Supreme Court
-https://www.verdictum.in/supreme-court/gp-sangeetha-ors-v-state-of-kerala-2026-insc-1004-equal-pay-for-equal-work-1622165
-
-[Source Link](https://t.me/verdictumlegalupdates/29157)
-
----
-
-### 2026-09-17T13:32:30+00:00
-Litigant Can’t Be Rendered Remediless Due To Technical Glitch In E-Filing System: Supreme Court Restores Appeal Before NCLAT
-https://www.verdictum.in/supreme-court/regional-provident-fund-commissioner-ii-v-ms-mamta-binani-2026-insc-1003-e-filing-nclat-1622164
-
-[Source Link](https://t.me/verdictumlegalupdates/29156)
-
----
-
-### 2026-09-17T13:02:29+00:00
-Allahabad High Court Directs UP DGP To Consider Mandatory Audio-Video Recording Of Witness Statements U/S 180 BNSS
-https://www.verdictum.in/allahabad-high-court/smt-chandrakanta-v-state-of-up-2026ahc192776-up-police-dgp-section-180-bnss-1622163
-
-[Source Link](https://t.me/verdictumlegalupdates/29155)
-
----
-
-### 2026-09-17T12:32:48+00:00
-Supreme Court Directs National Medical Commission To Explain Delay In Disbursing Stipend To Foreign Medical Graduates
-https://www.verdictum.in/supreme-court/national-medical-commission-to-explain-delay-in-disbursing-stipend-to-foreign-medical-graduates-1622162
-
-[Source Link](https://t.me/verdictumlegalupdates/29154)
-
----
-
-### 2026-09-17T12:02:27+00:00
-Former Keralam DGP Sentenced To Four Years' RI In Disproportionate Assets Case
-https://www.verdictum.in/other-courts/former-keralam-dgp-sentenced-to-four-years-ri-in-disproportionate-assets-case-1622157
-
-[Source Link](https://t.me/verdictumlegalupdates/29153)
-
----
-
-### 2026-09-17T11:32:47+00:00
-Supreme Court Urges Centre To Reconsider Mid-Term Three-Language Mandate For Class 6; Suggests Deferring Implementation To 2027
-https://www.verdictum.in/supreme-court/centre-mid-term-three-language-mandate-class-6-deferring-implementation-2027-1622156
-
-[Source Link](https://t.me/verdictumlegalupdates/29152)
-
----
-
-### 2026-09-17T11:02:26+00:00
-Non-Disclosure Of Earlier Litigation Seeking Same Relief Amounts To Suppression Of Material Facts Disentitling Litigants To Any Relief: Supreme Court
-https://www.verdictum.in/supreme-court/vinit-kumar-v-state-of-up-through-secretary-ors-2026-insc-997-suppression-material-facts-1622155
-
-[Source Link](https://t.me/verdictumlegalupdates/29151)
 
 ---
 
