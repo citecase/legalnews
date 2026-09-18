@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-17T16:02:34+00:00*
+*Last Updated: 2026-09-18T04:33:14+00:00*
+
+---
+
+### 2026-09-18T04:33:14+00:00
+Can’t Insist Upon Divorce Decree For Deletion Of Ex-Husband’s Name From Passport: Kerala High Court
+https://www.verdictum.in/kerala-high-court/x-v-union-of-india-2026ker6115-divorce-decree-ex-husband-name-passport-1622166
+
+[Source Link](https://t.me/verdictumlegalupdates/29162)
 
 ---
 
@@ -153,14 +161,6 @@ No Specific Rule Debars Married Daughter From Claiming Land: Himachal Pradesh HC
 https://www.verdictum.in/himachal-high-court/shanti-v-state-of-himachal-pradesh-2026hhc39123-nautor-patta-to-class-i-legal-heir-1622137
 
 [Source Link](https://t.me/verdictumlegalupdates/29143)
-
----
-
-### 2026-09-17T06:31:18+00:00
-Supreme Court To Hear Plea Against Deletion Of Names From Electoral Roll In Delhi SIR On Sept 21
-https://www.verdictum.in/supreme-court/plea-against-deletion-of-names-from-electoral-roll-in-delhi-sir-on-sept-21-1622135
-
-[Source Link](https://t.me/verdictumlegalupdates/29142)
 
 ---
 
