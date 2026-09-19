@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-19T11:12:40+00:00*
+*Last Updated: 2026-09-19T14:32:54+00:00*
+
+---
+
+### 2026-09-19T14:32:54+00:00
+Law Officer Vacancy At Union Public Service Commission (UPSC)
+https://www.verdictum.in/job-updates/union-public-service-commission-1622305
+
+[Source Link](https://t.me/verdictumlegalupdates/29195)
+
+---
+
+### 2026-09-19T13:52:13+00:00
+J&K&L High Court Stays Investigation Into FIR Against Wife For Terminating Pregnancy Without Husband’s Consent
+https://www.verdictum.in/jammu-ladakh-high-court/shazia-kouser-v-ut-of-jk-pregnancy-terminated-husband-consent-fir-1622304
+
+[Source Link](https://t.me/verdictumlegalupdates/29194)
+
+---
+
+### 2026-09-19T13:12:23+00:00
+Transport Vehicle Without Valid Fitness Certificate Deemed Unregistered U/S 56 Motor Vehicle Act: Himachal Pradesh HC
+https://www.verdictum.in/himachal-high-court/oriental-insurance-co-ltd-v-jamana-2026hhc37353-us-56-motor-vehicle-act-1622303
+
+[Source Link](https://t.me/verdictumlegalupdates/29193)
+
+---
+
+### 2026-09-19T12:33:02+00:00
+Grievous Or Simple Hurt Not Pre-Condition To Attract Offence Of Attempt To Murder U/S.307 Of IPC: Supreme Court
+https://www.verdictum.in/supreme-court/surender-kumar-v-state-of-haryana-2026-insc-1006-grievous-simple-hurt-section-307-ipc-1622302
+
+[Source Link](https://t.me/verdictumlegalupdates/29192)
+
+---
+
+### 2026-09-19T11:53:21+00:00
+Each Circumstance Not Proved Beyond Reasonable Doubt: Supreme Court Acquits Four Accused In 25 Year Old Murder Case
+https://www.verdictum.in/supreme-court/kartika-kirtan-kirtan-charan-jena-anr-etc-v-state-of-odisha-2026-insc-1015-1622301
+
+[Source Link](https://t.me/verdictumlegalupdates/29191)
 
 ---
 
@@ -121,46 +161,6 @@ Order VII Rule 14(3) CPC| No Absolute Bar On Receiving Documents At Stage Of Arg
 https://www.verdictum.in/allahabad-high-court/mona-shukla-v-gyanendra-katiyar-2026ahc193257-discretion-under-order-vii-rule-143-cpc-1622245
 
 [Source Link](https://t.me/verdictumlegalupdates/29176)
-
----
-
-### 2026-09-18T13:13:00+00:00
-Attempting To De-Board Stopped Train Outside Platform Is “Untoward Incident”, Negligence No Ground To Deny Compensation: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/sukumar-mondal-v-union-of-india-general-manager-south-eastern-railway-fma-104-of-2021-attempting-to-de-board-1622244
-
-[Source Link](https://t.me/verdictumlegalupdates/29175)
-
----
-
-### 2026-09-18T12:42:34+00:00
-Deeply Unfortunate Even After 80 Years Of Independence People Prefer Male Child: Bombay High Court
-https://www.verdictum.in/bombay-high-court/gopinath-janku-pradhan-v-state-of-maharashtra-2026bhc-nag12016-people-prefer-male-child-1622236
-
-[Source Link](https://t.me/verdictumlegalupdates/29174)
-
----
-
-### 2026-09-18T12:19:53+00:00
-No Victory Procession After DUSU Election Results: Delhi High Court
-https://www.verdictum.in/delhi-high-court/no-victory-procession-after-dusu-election-results-delhi-high-court-1622242
-
-[Source Link](https://t.me/verdictumlegalupdates/29173)
-
----
-
-### 2026-09-18T12:12:23+00:00
-Advocate-Client Privilege No Bar To Investigating Advocate’s Own Conduct: Delhi High Court Upholds GST Search At Law Firm
-https://www.verdictum.in/delhi-high-court/puneet-batra-v-union-of-india-2026dhc7976-db-advocate-client-privilege-gst-raid-1622234
-
-[Source Link](https://t.me/verdictumlegalupdates/29172)
-
----
-
-### 2026-09-18T11:43:02+00:00
-Merely Writing Letter To CM's Cell & Filing PIL Is No Substitute For Criminal Procedure For Missing Temple Idols: Madras High Court
-https://www.verdictum.in/madras-high-court/writing-letter-cm-cell-pil-no-substitute-criminal-procedure-missing-temple-idols-1622232
-
-[Source Link](https://t.me/verdictumlegalupdates/29171)
 
 ---
 
