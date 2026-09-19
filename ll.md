@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-18T12:07:50+00:00*
+*Last Updated: 2026-09-18T13:27:31+00:00*
 
 ---
 
-### 2026-09-18T12:07:50+00:00
-Vehicle Without Valid Permit, Fitness Certificate Breaches Insurance Policy: Himachal Pradesh High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-permit-fitness-certificate-absence-constitutes-fundamental-breach-550656
-
-[Read on Telegram](https://t.me/livelawindia/120198)
-
----
-### 2026-09-18T12:08:20+00:00
-NDPS Act | Arrest, Remand Vitiated If Accused Not Informed Quantity Of Contraband Seized From Him: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ndps-accused-not-informed-quantity-of-contraband-cannot-defend-550721
-
-[Read on Telegram](https://t.me/livelawindia/120199)
-
----
-### 2026-09-18T12:15:40+00:00
-Plea In Supreme Court Seeks 30% Women Representation In Bar Council Of India Like State Bar Councils
-https://www.livelaw.in/top-stories/plea-in-supreme-court-seeks-30-women-representation-in-bar-council-of-india-like-state-bar-councils-550723
-
-[Read on Telegram](https://t.me/livelawindia/120200)
-
----
-### 2026-09-18T12:32:20+00:00
-Tripura High Court Upholds Interim Maintenance To Wife, Says Man Cannot Benefit From Suppressing Existing Marriage
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-upholds-interim-maintenance-woman-benefit-suppressing-existing-marriage-550725
-
-[Read on Telegram](https://t.me/livelawindia/120201)
-
----
-### 2026-09-18T12:40:10+00:00
-Renukaswamy Murder Trial: Karnataka High Court Says Darshan Will Be Physically Produced During Cross-Examination Of Material Witnesses
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-modulates-procedure-actor-darshan-physical-production-550727
-
-[Read on Telegram](https://t.me/livelawindia/120202)
-
----
-### 2026-09-18T12:44:50+00:00
-Supreme Court Urges Centre & BCI To Frame Regulations For Sexual Harassment Complaints By Women Lawyers In All Courts
-https://www.livelaw.in/top-stories/supreme-court-urges-centre-bci-to-frame-regulations-for-sexual-harassment-complaints-by-women-lawyers-in-all-courts-550728
-
-[Read on Telegram](https://t.me/livelawindia/120203)
-
----
-### 2026-09-18T12:54:30+00:00
-Telangana High Court Disqualifies Khairatabad MLA Danam Nagender Over Defection From BRS To Congress
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-disqualifies-khairatabad-mla-danam-nagender-over-defection-from-brs-to-congress-550730
-
-[Read on Telegram](https://t.me/livelawindia/120204)
-
----
-### 2026-09-18T13:25:30+00:00
-Supreme Court Strikes Down Maharashtra Rules Mandating Additives In Methanol, Issues Directions To Prevent Hooch Tragedies
-https://www.livelaw.in/supreme-court/supreme-court-strikes-down-maharashtra-rules-mandating-additives-in-methanol-issues-directions-to-prevent-hooch-tragedies-550738
-
-[Read on Telegram](https://t.me/livelawindia/120205)
-
----
 ### 2026-09-18T13:27:31+00:00
 Manipur High Court Bar Opposes Elevation Of Judicial Officer To High Court Bench, Writes To CJI
 https://www.livelaw.in/high-court/manipur-high-court/manipur-high-court-bar-opposes-elevation-of-judicial-officer-to-high-court-bench-writes-to-cji-550739
@@ -142,5 +86,61 @@ Extra-Judicial Killings Are On Rise; Constitution Doesn't Approve Such Short-Cut
 https://www.livelaw.in/top-stories/extra-judicial-killings-are-on-rise-constitution-doesnt-approve-such-short-cut-methods-justice-ujjal-bhuyan-550769
 
 [Read on Telegram](https://t.me/livelawindia/120217)
+
+---
+### 2026-09-19T01:36:45+00:00
+Mamata Banerjee Moves Supreme Court Against ECI Order Freezing Trinamool Congress Name & Symbol
+https://www.livelaw.in/top-stories/mamata-banerjee-moves-supreme-court-against-eci-order-freezing-trinamool-congress-name-symbol-550771
+
+[Read on Telegram](https://t.me/livelawindia/120218)
+
+---
+### 2026-09-19T02:43:25+00:00
+Well-Intentioned Reform With Potential To Delay Appointment Of Judges
+https://www.livelaw.in/articles/well-intentioned-reform-potential-delay-appointment-of-judges-550595
+
+[Read on Telegram](https://t.me/livelawindia/120219)
+
+---
+### 2026-09-19T03:01:05+00:00
+Manager Vacancy At Tata Capital Limited
+https://www.livelaw.in/job-updates/manager-vacancy-at-tata-capital-limited-550772
+
+[Read on Telegram](https://t.me/livelawindia/120220)
+
+---
+### 2026-09-19T03:02:45+00:00
+Deputy General Manager (Legal) And Officer (HR & Admin) Vacancy At Solar Energy Corporation Of India Limited
+https://www.livelaw.in/job-updates/deputy-general-manager-legal-and-officer-hr-admin-vacancy-at-solar-energy-corporation-of-india-limited-550773
+
+[Read on Telegram](https://t.me/livelawindia/120221)
+
+---
+### 2026-09-19T03:04:45+00:00
+Consultant Vacancy At Indian Institute Of Corporate Affairs (IICA)
+https://www.livelaw.in/job-updates/consultant-vacancy-at-indian-institute-of-corporate-affairs-iica-550774
+
+[Read on Telegram](https://t.me/livelawindia/120222)
+
+---
+### 2026-09-19T03:06:05+00:00
+Senior Analyst (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
+https://www.livelaw.in/job-updates/senior-analyst-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-550775
+
+[Read on Telegram](https://t.me/livelawindia/120223)
+
+---
+### 2026-09-19T03:08:25+00:00
+Manager (Legal) Vacancy At HLL Lifecare Limited
+https://www.livelaw.in/job-updates/manager-legal-vacancy-at-hll-lifecare-limited-550776
+
+[Read on Telegram](https://t.me/livelawindia/120224)
+
+---
+### 2026-09-19T03:32:35+00:00
+'Fraud Committed To Obtain Compensation': Karnataka High Court Finds Collusion In Motor Accident Claim, Orders SIT Probe
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-collusion-motor-accident-claim-sit-probe-550750
+
+[Read on Telegram](https://t.me/livelawindia/120225)
 
 ---
