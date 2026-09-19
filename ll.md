@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-19T11:32:51+00:00*
+*Last Updated: 2026-09-19T12:18:41+00:00*
 
 ---
 
-### 2026-09-19T11:32:51+00:00
-Cognizance Orders Cannot Be Passed Mechanically By Filling Blanks On Printed Proforma: Patna High Court Flags Lack Of Application Of Mind
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-quashes-cognizance-order-lack-application-of-mind-550667
-
-[Read on Telegram](https://t.me/livelawindia/120273)
-
----
-### 2026-09-19T11:41:51+00:00
-Delhi High Court Directs Equestrian Federation Of India To Ensure Transparency In Future Selection Processes
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-equestrian-federation-of-india-to-ensure-transparency-in-future-selection-processes-550867
-
-[Read on Telegram](https://t.me/livelawindia/120274)
-
----
-### 2026-09-19T11:53:01+00:00
-S.144 BNSS | Disputed Marital Relationship Requires Evidence At Trial: Gauhati High Court Refuses To Quash Maintenance Proceedings
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-maintenance-proceedings-cannot-quashed-where-nature-alleged-marital-relationship-requires-determination-trial-550810
-
-[Read on Telegram](https://t.me/livelawindia/120275)
-
----
-### 2026-09-19T12:13:01+00:00
-Delhi High Court Upholds Summoning Of Two For Assaulting Man In Supreme Court Premises, Circulating Video
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-upholds-summoning-of-two-for-assaulting-man-in-supreme-court-premises-circulating-video-550812
-
-[Read on Telegram](https://t.me/livelawindia/120276)
-
----
 ### 2026-09-19T12:18:41+00:00
 PIL In Delhi High Court Challenges DERC Rules Shifting Solar Infrastructure Costs To General Electricity Consumers; Notice Issued
 https://www.livelaw.in/high-court/delhi-high-court/derc-rules-shift-solar-infrastructure-costs-to-electricity-consumers-pil-notice-issued-550868
@@ -142,5 +114,33 @@ Effectively Implement SC Order On Installation, Maintenance Of CCTVs In Police S
 https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-cctvs-police-stations-installation-maintenance-550871
 
 [Read on Telegram](https://t.me/livelawindia/120292)
+
+---
+### 2026-09-19T16:21:32+00:00
+BCI Members Oppose Manan Kumar Mishra's Proposed Resolution On PEARL-FIRST Trust, Seek Details Of Trust Deed & AIBE Finances
+https://www.livelaw.in/top-stories/bci-members-oppose-manan-kumar-mishras-proposed-resolution-on-pearl-first-trust-seek-details-of-trust-deed-aibe-finances-550901
+
+[Read on Telegram](https://t.me/livelawindia/120293)
+
+---
+### 2026-09-19T16:32:52+00:00
+Delhi High Court Issues Contempt Notice To Top Cops Over Alleged Failure To Comply With Order For Departmental Inquiry Against IO
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-issues-contempt-notice-to-top-cops-over-alleged-failure-to-comply-with-order-for-departmental-inquiry-against-io-550892
+
+[Read on Telegram](https://t.me/livelawindia/120294)
+
+---
+### 2026-09-19T16:38:12+00:00
+J&K&L High Court Stays Probe Against Woman Booked For Terminating Pregnancy Without Husband's Consent
+https://www.livelaw.in/high-court/jammu-kashmir/tone-and-tenor-of-fir-do-not-inspire-confidence-jk-high-court-stays-probe-against-woman-booked-for-terminating-pregnancy-without-husbands-consent-550902
+
+[Read on Telegram](https://t.me/livelawindia/120295)
+
+---
+### 2026-09-19T17:16:42+00:00
+Bengal Court Sends Congress Nandigram By-Poll Candidate Milan Pradhan To Judicial Custody Till October 3
+https://www.livelaw.in/news-updates/west-bengal-court-sends-congress-nandigram-by-poll-candidate-milan-pradhan-to-judicial-custody-till-october-3-550908
+
+[Read on Telegram](https://t.me/livelawindia/120296)
 
 ---
