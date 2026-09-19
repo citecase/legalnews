@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-18T13:27:31+00:00*
+*Last Updated: 2026-09-19T07:33:00+00:00*
 
 ---
 
-### 2026-09-18T13:27:31+00:00
-Manipur High Court Bar Opposes Elevation Of Judicial Officer To High Court Bench, Writes To CJI
-https://www.livelaw.in/high-court/manipur-high-court/manipur-high-court-bar-opposes-elevation-of-judicial-officer-to-high-court-bench-writes-to-cji-550739
+### 2026-09-19T07:33:00+00:00
+Leaves, Seeds, Grass-Like Material Not 'Ganja' Under NDPS Act: Delhi High Court Grants Bail
+https://www.livelaw.in/high-court/delhi-high-court/ndps-bail-leaves-seeds-grass-like-material-not-ganja-550800
 
-[Read on Telegram](https://t.me/livelawindia/120206)
-
----
-### 2026-09-18T13:29:01+00:00
-2026 LiveLaw (SC) 954 | M/S BALAJI FORMALIN PVT. LTD. & ANR. VERSUS UNION OF INDIA & ANR
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-954-ms-balaji-formalin-pvt-ltd-anr-versus-union-of-india-anr-550741
-
-[Read on Telegram](https://t.me/livelawindia/120207)
+[Read on Telegram](https://t.me/livelawindia/120251)
 
 ---
-### 2026-09-18T13:52:51+00:00
-Government Land With Open Access Cannot Be Taken Over For Exclusive Use By Permittee: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/government-land-open-access-cannot-exclusive-use-550646
+### 2026-09-19T07:38:20+00:00
+Police Station CCTVs: Karnataka Forms Committee To Implement High Court's Statewide Audit Directions
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-igp-labhu-ram-head-committee-cctv-ups-infrastructure-police-stations-550833
 
-[Read on Telegram](https://t.me/livelawindia/120208)
-
----
-### 2026-09-18T13:53:21+00:00
-Despite Liquor Ban, Gujarat Witnessed Several Hooch Tragedies : Supreme Court
-https://www.livelaw.in/top-stories/despite-liquor-ban-gujarat-witnessed-several-hooch-tragedies-supreme-court-550745
-
-[Read on Telegram](https://t.me/livelawindia/120209)
+[Read on Telegram](https://t.me/livelawindia/120252)
 
 ---
-### 2026-09-18T14:04:21+00:00
-Retiring MP High Court Judge Avanindra Kumar Singh To Donate ₹1.1 Crore Retirement Benefits To PM CARES Fund
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-justice-avanindra-kumar-singh-announces-donation-of-1-cr-to-pm-fund-in-farewell-speech-550748
+### 2026-09-19T07:52:50+00:00
+Property Sold In Auction Cannot By Itself Be Ground To Evict Existing Tenants: Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-property-sold-auction-ground-evict-existing-tenants-550654
 
-[Read on Telegram](https://t.me/livelawindia/120210)
-
----
-### 2026-09-18T14:05:01+00:00
-Young Lawyers Starting Offices Without Training Under Seniors Miss Learning 'Niceties' Of Legal Profession : Justice BV Nagarathna
-https://www.livelaw.in/top-stories/young-lawyers-starting-offices-without-training-under-seniors-miss-learning-niceties-of-legal-profession-justice-bv-nagarathna-550749
-
-[Read on Telegram](https://t.me/livelawindia/120211)
+[Read on Telegram](https://t.me/livelawindia/120253)
 
 ---
-### 2026-09-18T14:09:21+00:00
-2026 LiveLaw (SC) 955 | S. PANCHALINGU & ORS. VERSUS PEOPLE'S EDUCATION TRUST (R) & OTHERS ETC
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-955-s-panchalingu-ors-versus-peoples-education-trust-r-others-etc-550752
+### 2026-09-19T08:13:10+00:00
+S.223 BNSS | Magistrate Cannot Take Cognizance On Complaint Without First Hearing Accused: Tripura High Court
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-magistrate-cant-take-cognizance-complaint-without-hearing-accused-us-223-bnss-550803
 
-[Read on Telegram](https://t.me/livelawindia/120212)
-
----
-### 2026-09-18T14:14:01+00:00
-2026 LiveLaw (SC) 956 | Sheo Kumar Singh & Others v M/s Sharda Educational Society & Others
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-956-sheo-kumar-singh-others-v-ms-sharda-educational-society-others-550756
-
-[Read on Telegram](https://t.me/livelawindia/120213)
+[Read on Telegram](https://t.me/livelawindia/120254)
 
 ---
-### 2026-09-18T14:32:31+00:00
-Same Coin, Many Regulators: India's Unfinished Answer On Who Governs Crypto
-https://www.livelaw.in/articles/same-coin-many-regulators-unfinished-answer-governs-crypto-550594
+### 2026-09-19T08:27:30+00:00
+Buyer Who Purchased Property From Defendant Is Necessary Party In Suit Seeking Declaration Of Tenancy Rights : Supreme Court
+https://www.livelaw.in/supreme-court/buyer-who-purchased-property-from-defendant-is-necessary-party-in-suit-seeking-declaration-of-tenancy-rights-supreme-court-550783
 
-[Read on Telegram](https://t.me/livelawindia/120214)
-
----
-### 2026-09-18T14:42:31+00:00
-Doctor Cannot Defy Court Order To Vacate Secured Property By Citing Patients' Treatment Needs: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/being-doctors-no-ground-escape-consequences-willful-disobedience-550648
-
-[Read on Telegram](https://t.me/livelawindia/120215)
+[Read on Telegram](https://t.me/livelawindia/120255)
 
 ---
-### 2026-09-18T15:24:21+00:00
-West Bengal SIR | 37 Lakh Appeals Pending; Less Than 3% Disposed By Appellate Tribunals : ECI Tells Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-west-bengal-sir-eci-affidavit-over-37-lakh-appeals-pending-before-appellate-tribunals-550768
+### 2026-09-19T08:32:50+00:00
+Parked Vehicle Not Liable For Contributory Negligence Where Driver Had Sufficient Time To Exercise Due Care: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-parked-tanker-cant-blame-contributory-negligence-driver-hitting-had-time-exercise-due-care-550804
 
-[Read on Telegram](https://t.me/livelawindia/120216)
-
----
-### 2026-09-18T15:45:01+00:00
-Extra-Judicial Killings Are On Rise; Constitution Doesn't Approve Such Short-Cut Methods: Justice Ujjal Bhuyan
-https://www.livelaw.in/top-stories/extra-judicial-killings-are-on-rise-constitution-doesnt-approve-such-short-cut-methods-justice-ujjal-bhuyan-550769
-
-[Read on Telegram](https://t.me/livelawindia/120217)
+[Read on Telegram](https://t.me/livelawindia/120256)
 
 ---
-### 2026-09-19T01:36:45+00:00
-Mamata Banerjee Moves Supreme Court Against ECI Order Freezing Trinamool Congress Name & Symbol
-https://www.livelaw.in/top-stories/mamata-banerjee-moves-supreme-court-against-eci-order-freezing-trinamool-congress-name-symbol-550771
+### 2026-09-19T08:37:10+00:00
+Supreme Court Is A Banyan Tree Of Environmental Justice, Roots Deep In Civilisation & Branches Protecting Generations : CJI Surya Kant
+https://www.livelaw.in/top-stories/supreme-court-is-a-banyan-tree-of-environmental-justice-roots-deep-in-civilisation-branches-protecting-generations-cji-surya-kant-550842
 
-[Read on Telegram](https://t.me/livelawindia/120218)
-
----
-### 2026-09-19T02:43:25+00:00
-Well-Intentioned Reform With Potential To Delay Appointment Of Judges
-https://www.livelaw.in/articles/well-intentioned-reform-potential-delay-appointment-of-judges-550595
-
-[Read on Telegram](https://t.me/livelawindia/120219)
+[Read on Telegram](https://t.me/livelawindia/120257)
 
 ---
-### 2026-09-19T03:01:05+00:00
-Manager Vacancy At Tata Capital Limited
-https://www.livelaw.in/job-updates/manager-vacancy-at-tata-capital-limited-550772
+### 2026-09-19T08:51:40+00:00
+Bengaluru Court Directs FIR Against Hospital Officials On Private Complaint Alleging Forgery Of Electronic Medical Records
+https://www.livelaw.in/news-updates/bengaluru-court-directs-fir-against-hospital-officials-forgery-550845
 
-[Read on Telegram](https://t.me/livelawindia/120220)
-
----
-### 2026-09-19T03:02:45+00:00
-Deputy General Manager (Legal) And Officer (HR & Admin) Vacancy At Solar Energy Corporation Of India Limited
-https://www.livelaw.in/job-updates/deputy-general-manager-legal-and-officer-hr-admin-vacancy-at-solar-energy-corporation-of-india-limited-550773
-
-[Read on Telegram](https://t.me/livelawindia/120221)
+[Read on Telegram](https://t.me/livelawindia/120258)
 
 ---
-### 2026-09-19T03:04:45+00:00
-Consultant Vacancy At Indian Institute Of Corporate Affairs (IICA)
-https://www.livelaw.in/job-updates/consultant-vacancy-at-indian-institute-of-corporate-affairs-iica-550774
+### 2026-09-19T08:54:20+00:00
+Advocate Merely Allowed Office For Meeting, Did Not Play Major Role In Alleged Forex Fraud: Bombay High Court Grants Protection
+https://www.livelaw.in/high-court/bombay-high-court/forex-fraud-advocate-allowing-office-meeting-not-major-role-550650
 
-[Read on Telegram](https://t.me/livelawindia/120222)
-
----
-### 2026-09-19T03:06:05+00:00
-Senior Analyst (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/senior-analyst-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-550775
-
-[Read on Telegram](https://t.me/livelawindia/120223)
+[Read on Telegram](https://t.me/livelawindia/120259)
 
 ---
-### 2026-09-19T03:08:25+00:00
-Manager (Legal) Vacancy At HLL Lifecare Limited
-https://www.livelaw.in/job-updates/manager-legal-vacancy-at-hll-lifecare-limited-550776
+### 2026-09-19T09:15:00+00:00
+Erroneous Exercise Of Power By Revenue Officials Cannot Be Converted Into Criminal Case Without Evidence Of Corrupt Intent: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/erroneous-exercise-of-statutory-power-cannot-be-converted-into-criminal-misconduct-absent-independent-material-of-corrupt-intent-jk-high-court-quashes-corruption-fir-against-revenue-officials-550668
 
-[Read on Telegram](https://t.me/livelawindia/120224)
+[Read on Telegram](https://t.me/livelawindia/120260)
 
 ---
-### 2026-09-19T03:32:35+00:00
-'Fraud Committed To Obtain Compensation': Karnataka High Court Finds Collusion In Motor Accident Claim, Orders SIT Probe
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-collusion-motor-accident-claim-sit-probe-550750
+### 2026-09-19T09:17:20+00:00
+Same-Sex Partners Can't Claim 'Spouse' Tax Benefits Without Marriage Recognition: Centre Tells Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/same-sex-partners-spouse-tax-benefits-marriage-recognition-550848
 
-[Read on Telegram](https://t.me/livelawindia/120225)
+[Read on Telegram](https://t.me/livelawindia/120261)
+
+---
+### 2026-09-19T09:32:50+00:00
+Moti Bagh Collapse And Case For Delhi Paying Guest Regulation Law
+https://www.livelaw.in/lawschool/articles/moti-bagh-collapse-case-delhi-paying-guest-regulation-law-550597
+
+[Read on Telegram](https://t.me/livelawindia/120262)
+
+---
+### 2026-09-19T09:33:10+00:00
+Delhi High Court Rejects 6,290 Days Delay In 1988 Appeal, Says Losing Contact With Lawyer No Ground To Condone Delay
+https://www.livelaw.in/high-court/delhi-high-court/6290-days-delay-losing-contact-with-lawyer-no-ground-to-condone-delay-550806
+
+[Read on Telegram](https://t.me/livelawindia/120263)
+
+---
+### 2026-09-19T09:52:10+00:00
+Delhi High Court Orders Police Protection For Woman Lawyer Facing Family Pressure To Marry Against Her Will
+https://www.livelaw.in/high-court/delhi-high-court/police-protection-woman-lawyer-family-pressure-marry-against-will-550807
+
+[Read on Telegram](https://t.me/livelawindia/120264)
+
+---
+### 2026-09-19T09:59:10+00:00
+2016 Yogesh Goudar Murder Case: Karnataka High Court Suspends Life Sentence Of Seven Convicts
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-suspends-sentences-of-7-convicts-in-yogesh-goudar-murder-case-grants-bail-550852
+
+[Read on Telegram](https://t.me/livelawindia/120265)
+
+---
+### 2026-09-19T10:04:50+00:00
+Supreme Court Recommends Law To Govern Court Deposits, Urges Law Commission To Examine
+https://www.livelaw.in/supreme-court/supreme-court-recommends-law-to-govern-court-deposits-urges-law-commission-to-examine-550853
+
+[Read on Telegram](https://t.me/livelawindia/120266)
+
+---
+### 2026-09-19T10:05:50+00:00
+2026 LiveLaw (SC) 958 |  NATIONAL SEEDS CORPORATION LTD. VERSUS NATIONAL AGRO SEED CORPORATION (INDIA)
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-958-national-seeds-corporation-ltd-versus-national-agro-seed-corporation-india-550854
+
+[Read on Telegram](https://t.me/livelawindia/120267)
+
+---
+### 2026-09-19T10:17:20+00:00
+Easementary Right By Prescription Can't Be Claimed Without Specifically Pleading & Identifying Pathway: Himachal Pradesh High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-claim-prescriptive-right-of-way-550671
+
+[Read on Telegram](https://t.me/livelawindia/120268)
+
+---
+### 2026-09-19T10:20:20+00:00
+Conditional Deposit Won't Stop Interest If Award-Holder Can't Freely Withdraw It: Supreme Court
+https://www.livelaw.in/supreme-court/conditional-deposit-wont-stop-interest-if-award-holder-cant-freely-withdraw-it-supreme-court-550858
+
+[Read on Telegram](https://t.me/livelawindia/120269)
+
+---
+### 2026-09-19T10:23:00+00:00
+Microscopic Examination Has No Sanctity As Analytical Test Under Prevention Of Food Adulteration Act: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/microscopic-examination-no-sanctity-analytical-test-550660
+
+[Read on Telegram](https://t.me/livelawindia/120270)
 
 ---
