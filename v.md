@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-19T04:32:33+00:00*
+*Last Updated: 2026-09-19T11:12:40+00:00*
+
+---
+
+### 2026-09-19T11:12:40+00:00
+Mere Knowledge Of Victim’s Caste Sufficient To Attract Section 3(1)(w) SC/ST Act; Not Required To Prove Sexual Act Was Committed Solely On Caste Basis: Delhi High Court
+https://www.verdictum.in/delhi-high-court/prosecutrix-r-v-state-of-nct-of-delhi-2026dhc7954-caste-based-offence-by-minor-gang-rape-survivor-1622300
+
+[Source Link](https://t.me/verdictumlegalupdates/29190)
+
+---
+
+### 2026-09-19T10:32:16+00:00
+CBDT Circulars Bind Tax Authorities But Not Courts: Supreme Court
+https://www.verdictum.in/supreme-court/ms-samtex-fashions-ltd-v-commissioner-of-income-tax-new-delhi-cbdt-circulars-1622298
+
+[Source Link](https://t.me/verdictumlegalupdates/29189)
+
+---
+
+### 2026-09-19T09:53:14+00:00
+Forced Temperance No Solution For Alcoholism: Supreme Court Issues Guidelines To Prevent Hooch Tragedies & Curb Illicit Alcohol Trade
+https://www.verdictum.in/supreme-court/2026-insc-1009-balaji-formalin-pvt-v-union-of-india-1622297
+
+[Source Link](https://t.me/verdictumlegalupdates/29188)
+
+---
+
+### 2026-09-19T09:12:31+00:00
+Non-Admissibility Of Document Produced Along With Plaint Not A Ground For Rejection Of Plaint:  Supreme Court
+https://www.verdictum.in/supreme-court/sheo-kumar-singh-v-ms-sharda-educational-society-2026-insc-1011-question-of-admissibility-order-vii-rule-11-cpc-1622296
+
+[Source Link](https://t.me/verdictumlegalupdates/29187)
+
+---
+
+### 2026-09-19T08:32:29+00:00
+If Payment Is Made In Accordance With Order XXI Rule 1 CPC, Liability To Pay Interest Ceases: Supreme Court Urges Law Commission To Examine Court Deposit Framework
+https://www.verdictum.in/supreme-court/national-seeds-corporation-ltd-v-national-agro-seed-corporation-india-2026-insc-1017-order-xxi-rule-1-cpc-1622295
+
+[Source Link](https://t.me/verdictumlegalupdates/29186)
+
+---
+
+### 2026-09-19T07:53:07+00:00
+Failed Test Of Proportionality: Supreme Court Strikes Down Maharashtra’s Methanol Denaturation Rules
+https://www.verdictum.in/supreme-court/2026-insc-1009-balaji-formalin-pvt-v-union-of-india-1622290
+
+[Source Link](https://t.me/verdictumlegalupdates/29185)
+
+---
+
+### 2026-09-19T07:12:46+00:00
+Protective Or Preservatory Interim Orders Can't Be Passed Pending Disposal Of Leave Application: Supreme Court Clarifies Civil Court's Jurisdiction U/S 92 CPC
+https://www.verdictum.in/supreme-court/s-panchalingu-v-peoples-education-trust-r-2026-insc-1010-civil-courts-jurisdiction-us-92-cpc-1622289
+
+[Source Link](https://t.me/verdictumlegalupdates/29184)
+
+---
+
+### 2026-09-19T06:32:45+00:00
+Pre-Suit Mediation Exemption In Refiled Commercial Suit Must Be Assessed Independently Of Orders In Earlier Non-Commercial Suits: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/amoga-globex-private-limited-v-s-k-gupta-and-sons-another-mediation-exemption-1622278
+
+[Source Link](https://t.me/verdictumlegalupdates/29183)
+
+---
+
+### 2026-09-19T05:38:04+00:00
+Centre Notifies Appointment Of Judicial Officers As Judges Across Four High Courts
+https://www.verdictum.in/court-updates/high-courts/appointment-of-judicial-officers-as-judges-across-four-high-courts-1622275
+
+[Source Link](https://t.me/verdictumlegalupdates/29182)
+
+---
+
+### 2026-09-19T05:12:03+00:00
+“Rigid Conflict Rules Cause Scarcity Of Arbitrators”: Delhi High Court Holds Deciding Similar Arbitration Clauses Does Not Disqualify Maritime Arbitrators
+https://www.verdictum.in/delhi-high-court/steel-authority-of-india-limited-v-british-marine-2026dhc7953-db-maritime-arbitrators-clause-1622274
+
+[Source Link](https://t.me/verdictumlegalupdates/29181)
 
 ---
 
@@ -81,86 +161,6 @@ Merely Writing Letter To CM's Cell & Filing PIL Is No Substitute For Criminal Pr
 https://www.verdictum.in/madras-high-court/writing-letter-cm-cell-pil-no-substitute-criminal-procedure-missing-temple-idols-1622232
 
 [Source Link](https://t.me/verdictumlegalupdates/29171)
-
----
-
-### 2026-09-18T11:02:41+00:00
-Counsel Unable To Distinguish Order Sheet From Cause Title Is A Threat To Sanctity Of Institution: Calcutta HC Orders Disciplinary Action
-https://www.verdictum.in/calcutta-high-court/noor-alam-v-debahuti-indra-cpan-no-214-of-2025-counsel-order-sheet-cause-title-misconduct-1622228
-
-[Source Link](https://t.me/verdictumlegalupdates/29170)
-
----
-
-### 2026-09-18T10:23:00+00:00
-Reverse Burden Provisions Do Not Relieve Courts Of Duty To Scrutinise Prosecution Evidence: Supreme Court Acquits POCSO Accused
-https://www.verdictum.in/supreme-court/deepak-in-jc-v-state-govt-of-nct-delhi-2026-insc-1008-presumption-pocso-act-1622227
-
-[Source Link](https://t.me/verdictumlegalupdates/29169)
-
----
-
-### 2026-09-18T09:32:59+00:00
-Exclusion Of NCC 'A' Certificate Holders From NEET Grace Marks Is Reasonable Classification, Not Manifest Arbitrariness: Telangana High Court
-https://www.verdictum.in/telangana-high-court/chatla-susheel-kumar-v-the-state-of-telangana-writ-petition-no28320-of-2026-ncc-a-neet-grace-marks-1622215
-
-[Source Link](https://t.me/verdictumlegalupdates/29168)
-
----
-
-### 2026-09-18T08:43:18+00:00
-ECI Bars Rival Factions Of All India Trinamool Congress From Using Party's Name And Flowers & Grass Symbol Amid Leadership Dispute
-https://www.verdictum.in/news/eci-freezes-all-india-trinamool-congress-name-flowers-grass-symbol-dispute-1622223
-
-[Source Link](https://t.me/verdictumlegalupdates/29167)
-
----
-
-### 2026-09-18T07:52:57+00:00
-NEET-UG Reforms| Supreme Court Directs NTA To Publish Affidavit On Public Domain, Asks High-Powered Committee To File Progress Report
-https://www.verdictum.in/supreme-court/directs-nta-publish-neet-ug-reforms-affidavit-public-domain-high-powered-committee-progress-report-1622219
-
-[Source Link](https://t.me/verdictumlegalupdates/29166)
-
----
-
-### 2026-09-18T07:03:17+00:00
-No Blanket & Unqualified Proposition That Learner's Licence Is As Good As Valid Driving Licence For Insurance Coverage Purposes: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/the-divisional-manager-the-new-india-assurance-co-ltd-v-hulagamma-mallappa-biradar-2026khc-d14009-learners-licence-1622206
-
-[Source Link](https://t.me/verdictumlegalupdates/29165)
-
----
-
-### 2026-09-18T06:12:56+00:00
-No Vested Right To Promotion Under Repealed Rules When Policy Change Is Fair And Reasonable: Supreme Court
-https://www.verdictum.in/supreme-court/the-bharat-sanchar-nigam-limited-v-gn-mani-ravinder-2026-insc-1007-promotion-under-repealed-rules-officiating-employee-1622204
-
-[Source Link](https://t.me/verdictumlegalupdates/29164)
-
----
-
-### 2026-09-18T05:23:15+00:00
-Arbitral Award Cannot Be Set Aside Solely For Delay In Delivering It Unless It Is Unexplained And Affects The Findings: Delhi High Court
-https://www.verdictum.in/delhi-high-court/unison-hotels-private-limited-v-iffco-tokio-general-insurance-company-limited-2026dhc7875-db-1622202
-
-[Source Link](https://t.me/verdictumlegalupdates/29163)
-
----
-
-### 2026-09-18T04:33:14+00:00
-Can’t Insist Upon Divorce Decree For Deletion Of Ex-Husband’s Name From Passport: Kerala High Court
-https://www.verdictum.in/kerala-high-court/x-v-union-of-india-2026ker6115-divorce-decree-ex-husband-name-passport-1622166
-
-[Source Link](https://t.me/verdictumlegalupdates/29162)
-
----
-
-### 2026-09-17T16:02:34+00:00
-Law Officer Vacancy At Punjabi University
-https://www.verdictum.in/job-updates/punjabi-university-1622168
-
-[Source Link](https://t.me/verdictumlegalupdates/29161)
 
 ---
 
