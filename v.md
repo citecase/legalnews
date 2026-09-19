@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-18T16:03:08+00:00*
+*Last Updated: 2026-09-19T04:32:33+00:00*
+
+---
+
+### 2026-09-19T04:32:33+00:00
+Madhya Pradesh High Court: Merely Inheriting Property Jointly Does Not Infer Joint Hindu Family For All Times
+https://www.verdictum.in/madhya-pradesh-high-court/krishni-devi-v-baladatt-dead-through-lrs-uma-first-appeal-no280-of-2003-property-jointly-does-not-infer-joint-hindu-family-1622267
+
+[Source Link](https://t.me/verdictumlegalupdates/29180)
 
 ---
 
@@ -153,14 +161,6 @@ Law Officer Vacancy At Punjabi University
 https://www.verdictum.in/job-updates/punjabi-university-1622168
 
 [Source Link](https://t.me/verdictumlegalupdates/29161)
-
----
-
-### 2026-09-17T15:32:33+00:00
-Father’s Concern Regarding Adult Son’s Welfare Can’t Override His Constitutionally Protected Autonomy To Decide Faith: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/ayush-malik-v-state-of-up-2026ahc194390-father-adult-son-welfare-faith-life-partner-1622174
-
-[Source Link](https://t.me/verdictumlegalupdates/29160)
 
 ---
 
