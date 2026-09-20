@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-20T10:32:37+00:00*
+*Last Updated: 2026-09-20T15:03:00+00:00*
+
+---
+
+### 2026-09-20T15:03:00+00:00
+Assistant Legal Aid Advisor, Superintendent, Assistant (Legal) Vacancies At NALSA
+https://www.verdictum.in/job-updates/national-legal-services-authority-1622311
+
+[Source Link](https://t.me/verdictumlegalupdates/29203)
+
+---
+
+### 2026-09-20T13:32:39+00:00
+Allahabad High Court Orders Police Protection For Hindu-Muslim Same-Sex Couple
+https://www.verdictum.in/allahabad-high-court/f-v-state-of-up-2026ahc195171-family-relatives-hindu-muslim-same-sex-couple-1622318
+
+[Source Link](https://t.me/verdictumlegalupdates/29202)
+
+---
+
+### 2026-09-20T12:02:18+00:00
+Parked Vehicle Not Negligent Where Driver Could Avoid Collision: Gauhati High Court Rejects Claim For Damage To Air Force Vehicle
+https://www.verdictum.in/guwahati-high-court/union-of-india-v-md-ismail-ors-2026gau-as12041-contributory-negligence-1622317
+
+[Source Link](https://t.me/verdictumlegalupdates/29201)
 
 ---
 
@@ -137,30 +161,6 @@ Protective Or Preservatory Interim Orders Can't Be Passed Pending Disposal Of Le
 https://www.verdictum.in/supreme-court/s-panchalingu-v-peoples-education-trust-r-2026-insc-1010-civil-courts-jurisdiction-us-92-cpc-1622289
 
 [Source Link](https://t.me/verdictumlegalupdates/29184)
-
----
-
-### 2026-09-19T06:32:45+00:00
-Pre-Suit Mediation Exemption In Refiled Commercial Suit Must Be Assessed Independently Of Orders In Earlier Non-Commercial Suits: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/amoga-globex-private-limited-v-s-k-gupta-and-sons-another-mediation-exemption-1622278
-
-[Source Link](https://t.me/verdictumlegalupdates/29183)
-
----
-
-### 2026-09-19T05:38:04+00:00
-Centre Notifies Appointment Of Judicial Officers As Judges Across Four High Courts
-https://www.verdictum.in/court-updates/high-courts/appointment-of-judicial-officers-as-judges-across-four-high-courts-1622275
-
-[Source Link](https://t.me/verdictumlegalupdates/29182)
-
----
-
-### 2026-09-19T05:12:03+00:00
-“Rigid Conflict Rules Cause Scarcity Of Arbitrators”: Delhi High Court Holds Deciding Similar Arbitration Clauses Does Not Disqualify Maritime Arbitrators
-https://www.verdictum.in/delhi-high-court/steel-authority-of-india-limited-v-british-marine-2026dhc7953-db-maritime-arbitrators-clause-1622274
-
-[Source Link](https://t.me/verdictumlegalupdates/29181)
 
 ---
 
