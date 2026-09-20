@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-19T14:32:54+00:00*
+*Last Updated: 2026-09-20T04:33:13+00:00*
+
+---
+
+### 2026-09-20T04:33:13+00:00
+Order Confirming Property Attachment Under UAPA Not Interlocutory; Appealable U/S 21 NIA Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/uapa-attachment-right-to-appeal-property-attachment-orders-1622306
+
+[Source Link](https://t.me/verdictumlegalupdates/29196)
 
 ---
 
@@ -153,14 +161,6 @@ Calcutta High Court Quashes Defamation Case Against Republic Journalists And Edi
 https://www.verdictum.in/calcutta-high-court/quashes-defamation-republic-journalists-editor-allegedly-circulating-call-kabir-suman-1622246
 
 [Source Link](https://t.me/verdictumlegalupdates/29177)
-
----
-
-### 2026-09-18T13:52:56+00:00
-Order VII Rule 14(3) CPC| No Absolute Bar On Receiving Documents At Stage Of Arguments: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/mona-shukla-v-gyanendra-katiyar-2026ahc193257-discretion-under-order-vii-rule-143-cpc-1622245
-
-[Source Link](https://t.me/verdictumlegalupdates/29176)
 
 ---
 
