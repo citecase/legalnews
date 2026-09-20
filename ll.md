@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-20T06:07:22+00:00*
+*Last Updated: 2026-09-20T08:02:52+00:00*
 
 ---
 
-### 2026-09-20T06:07:22+00:00
-Senior Executive (Legal) And Assistant Manager (Legal) Vacancy At Pharmaceuticals & Medical Devices Bureau Of India
-https://www.livelaw.in/job-updates/senior-executive-legal-and-assistant-manager-legal-vacancy-at-pharmaceuticals-medical-devices-bureau-of-india-550921
-
-[Read on Telegram](https://t.me/livelawindia/120309)
-
----
-### 2026-09-20T06:08:42+00:00
-Manager (Legal) Vacancy At National Highways Authority Of India (NHAI)
-https://www.livelaw.in/job-updates/manager-legal-vacancy-at-national-highways-authority-of-india-550922
-
-[Read on Telegram](https://t.me/livelawindia/120310)
-
----
-### 2026-09-20T06:18:42+00:00
-Senior Principal Associate Vacancy At Ernst & Young [Bengaluru; Apply Now]
-https://www.livelaw.in/job-updates/senior-principal-associate-vacancy-at-ernst-young-bengaluru-550923
-
-[Read on Telegram](https://t.me/livelawindia/120311)
-
----
-### 2026-09-20T06:32:52+00:00
-Deemed Approval Cannot Validate Teacher's Appointment Made In Disregard Of Mandatory Reservation Conditions: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/deemed-approval-cannot-validate-teachers-appointment-made-in-disregard-of-mandatory-reservation-conditions-allahabad-high-court-550838
-
-[Read on Telegram](https://t.me/livelawindia/120312)
-
----
-### 2026-09-20T07:02:52+00:00
-Amalgamation-Based Employee Continuity Benefits Apply Only To Transferor-Company Employees On Amalgamation Date: Sikkim High Court
-https://www.livelaw.in/high-court/sikkim-high-court/amalgamation-based-employee-continuity-benefits-apply-only-to-transferor-company-employees-on-amalgamation-date-sikkim-hc-550903
-
-[Read on Telegram](https://t.me/livelawindia/120313)
-
----
-### 2026-09-20T07:23:02+00:00
-'Surprising': Patna High Court Grants Bail To Juveniles Who Drove From Assam To Patna While Carrying 65-Kg 'Ganja', Orders Inquiry
-https://www.livelaw.in/high-court/patna-high-court/patna-hc-grants-bail-to-juveniles-caught-with-65-kg-ganja-directs-inquiry-into-how-they-travelled-from-assam-to-bihar-without-documents-550906
-
-[Read on Telegram](https://t.me/livelawindia/120314)
-
----
-### 2026-09-20T07:31:42+00:00
-Supreme Court Acquits 4 Murder Convicts, Says Eyewitnesses Couldn't Have Identified Accused On Pitch-Dark Night
-https://www.livelaw.in/sc-judgments/supreme-court-acquits-4-murder-convicts-says-eyewitnesses-couldnt-have-identified-accused-on-pitch-dark-night-550924
-
-[Read on Telegram](https://t.me/livelawindia/120315)
-
----
-### 2026-09-20T07:32:32+00:00
-Ukraine MBBS Student Moves MP High Court, Says NMC Rules Requiring 12-Month Internship There Impossible Amid War
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/foreign-medical-graduate-12-month-internship-rule-fmg-regulations-2021-ukraine-war-centre-reply-550841
-
-[Read on Telegram](https://t.me/livelawindia/120316)
-
----
-### 2026-09-20T07:32:42+00:00
-2026 LiveLaw (SC) 959 | Kartika @ Kirtan @ Kirtan Charan Jena & Anr Etc. v The State of Odisha
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-959-kartika-kirtan-kirtan-charan-jena-anr-etc-v-the-state-of-odisha-550925
-
-[Read on Telegram](https://t.me/livelawindia/120317)
-
----
 ### 2026-09-20T08:02:52+00:00
 Dowry Demand For Setting Up Business Still 'Dowry' Under S. 304B IPC: Delhi High Court
 https://www.livelaw.in/high-court/delhi-high-court/dowry-demand-for-setting-up-business-still-dowry-under-s-304b-ipc-delhi-high-court-550899
@@ -142,5 +79,68 @@ Absence From Duty, Proxy Teaching At Most Service Misconduct; Not Cheating: MP H
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-quashes-cheating-case-against-government-teacher-550859
 
 [Read on Telegram](https://t.me/livelawindia/120328)
+
+---
+### 2026-09-20T11:32:56+00:00
+Rules Allowing Claims Tribunal To Withhold Compensation Based On Claimant's Literacy, Financial Condition Violate Article 14: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/railway-compensation-withheld-claimants-literacy-financial-condition-violate-article-14-550861
+
+[Read on Telegram](https://t.me/livelawindia/120329)
+
+---
+### 2026-09-20T11:47:16+00:00
+"Family Feud" Need Not Span Generations, Dispute Between Members Of Same Generation Also Qualifies: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/family-feud-need-not-span-generations-dispute-between-same-generation-qualifies-550662
+
+[Read on Telegram](https://t.me/livelawindia/120330)
+
+---
+### 2026-09-20T12:32:46+00:00
+Allahabad High Court Initiates Contempt Against UP's Principal Food Secretary For Disobeying Judicial Orders
+https://www.livelaw.in/high-court/allahabad-high-court/contempt-up-food-department-principal-secretary-disobeying-orders-550874
+
+[Read on Telegram](https://t.me/livelawindia/120331)
+
+---
+### 2026-09-20T13:52:27+00:00
+Municipal Officer Cannot Take One-Sided Demolition Action Pending Statutory Appeal: Tripura High Court
+https://www.livelaw.in/high-court/tripura-high-court/tripura-hc-says-municipal-authorities-cannot-take-one-sided-action-during-pendency-of-statutory-appeal-550907
+
+[Read on Telegram](https://t.me/livelawindia/120332)
+
+---
+### 2026-09-20T14:07:47+00:00
+Courts Cannot Reassess Interview Marks Or Comparative Merit Absent Proven Mala Fides Or Bias: Himachal Pradesh High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/courts-cannot-reassess-interview-marks-or-comparative-merit-absent-proven-mala-fides-bias-or-illegality-hp-high-court-550905
+
+[Read on Telegram](https://t.me/livelawindia/120333)
+
+---
+### 2026-09-20T14:32:27+00:00
+Digital Footprint, Global Fault Lines: Data Extraction From Global South
+https://www.livelaw.in/lawschool/articles/digital-footprint-global-fault-lines-data-extraction-global-south-550915
+
+[Read on Telegram](https://t.me/livelawindia/120334)
+
+---
+### 2026-09-20T14:47:21+00:00
+Mere Concealment Or Confinement Insufficient For Conviction Without Proof Of Knowledge Of Kidnapping: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/mere-concealment-or-confinement-insufficient-for-conviction-without-proof-of-knowledge-of-kidnapping-delhi-high-court-550916
+
+[Read on Telegram](https://t.me/livelawindia/120335)
+
+---
+### 2026-09-20T14:58:01+00:00
+[Motor Vehicles Act] Carriage Permit Applicant Cannot Cure Statutory Defects After Consideration Of Application: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/incomplete-permit-application-cannot-cured-after-adjudication-550904
+
+[Read on Telegram](https://t.me/livelawindia/120336)
+
+---
+### 2026-09-20T15:19:02+00:00
+LiveLaw Delhi High Court Weekly Round-Up: September 14 To September 20, 2026
+https://www.livelaw.in/high-court/delhi-high-court/livelaw-delhi-high-court-weekly-round-up-september-14-to-september-20-2026-550948
+
+[Read on Telegram](https://t.me/livelawindia/120337)
 
 ---
