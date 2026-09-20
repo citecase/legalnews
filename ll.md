@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-19T12:57:41+00:00*
+*Last Updated: 2026-09-20T06:07:22+00:00*
 
 ---
 
-### 2026-09-19T12:57:41+00:00
-Uncorroborated Newspaper Report Not Substantive Evidence Of Misconduct In Departmental Inquiry: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-quashes-departmental-action-uncorroborated-newspaper-report-550669
+### 2026-09-20T06:07:22+00:00
+Senior Executive (Legal) And Assistant Manager (Legal) Vacancy At Pharmaceuticals & Medical Devices Bureau Of India
+https://www.livelaw.in/job-updates/senior-executive-legal-and-assistant-manager-legal-vacancy-at-pharmaceuticals-medical-devices-bureau-of-india-550921
 
-[Read on Telegram](https://t.me/livelawindia/120281)
-
----
-### 2026-09-19T12:57:51+00:00
-Prime Minister Narendra Modi Inaugurates NGT's International Conference On 'The Future Of Environment And Climate Dynamics' In New Delhi
-https://www.livelaw.in/top-stories/national-green-tribunal-international-conference-environment-climate-dynamics-narendra-modi-550873
-
-[Read on Telegram](https://t.me/livelawindia/120282)
+[Read on Telegram](https://t.me/livelawindia/120309)
 
 ---
-### 2026-09-19T13:10:11+00:00
-Nyayaspandana: Empowering Legal Literacy —Edited Book On Legal Awareness, And Legal Literacy Released
-https://www.livelaw.in/news-updates/nyayaspandana-empowering-legal-literacy-edited-book-legal-awareness-legal-literacy-released-550875
+### 2026-09-20T06:08:42+00:00
+Manager (Legal) Vacancy At National Highways Authority Of India (NHAI)
+https://www.livelaw.in/job-updates/manager-legal-vacancy-at-national-highways-authority-of-india-550922
 
-[Read on Telegram](https://t.me/livelawindia/120283)
-
----
-### 2026-09-19T13:12:31+00:00
-Andhra Pradesh High Court Calls For Revision Of AP Advocates' Fee Rules, Says It Doesn't Reflect Prevailing Rates
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-apsrtc-motor-accident-appeal-advocate-fee-rules-550815
-
-[Read on Telegram](https://t.me/livelawindia/120284)
+[Read on Telegram](https://t.me/livelawindia/120310)
 
 ---
-### 2026-09-19T13:20:11+00:00
-IDIA Hyderabad To Conduct Full-Length CLAT Mock Test At NALSAR University Of Law On October 10
-https://www.livelaw.in/lawschool/news/idia-hyderabad-to-conduct-full-length-clat-mock-test-at-nalsar-university-of-law-on-october-10-550878
+### 2026-09-20T06:18:42+00:00
+Senior Principal Associate Vacancy At Ernst & Young [Bengaluru; Apply Now]
+https://www.livelaw.in/job-updates/senior-principal-associate-vacancy-at-ernst-young-bengaluru-550923
 
-[Read on Telegram](https://t.me/livelawindia/120285)
-
----
-### 2026-09-19T13:32:41+00:00
-Motor Accident Claims Tribunal Must Consider Claimant's Need Before Refusing Release Of Compensation Kept In FDR: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/motor-accident-tribunal-consider-claimants-need-release-compensation-fd-550816
-
-[Read on Telegram](https://t.me/livelawindia/120286)
+[Read on Telegram](https://t.me/livelawindia/120311)
 
 ---
-### 2026-09-19T14:03:02+00:00
-Non-Disclosure Of Previous Cancelled Appointment No Ground To Annul Later Appointment Secured On Genuine Qualifications: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/non-disclosure-earlier-cancelled-appointment-cant-annul-later-appointment-genuine-qualifications-550818
+### 2026-09-20T06:32:52+00:00
+Deemed Approval Cannot Validate Teacher's Appointment Made In Disregard Of Mandatory Reservation Conditions: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/deemed-approval-cannot-validate-teachers-appointment-made-in-disregard-of-mandatory-reservation-conditions-allahabad-high-court-550838
 
-[Read on Telegram](https://t.me/livelawindia/120287)
-
----
-### 2026-09-19T14:32:32+00:00
-Why Should Divorce On Ground Of Irretrievable Breakdown Of Marriage Now Become Statue In India?
-https://www.livelaw.in/articles/why-should-divorce-ground-irretrievable-breakdown-marriage-550598
-
-[Read on Telegram](https://t.me/livelawindia/120288)
+[Read on Telegram](https://t.me/livelawindia/120312)
 
 ---
-### 2026-09-19T14:33:12+00:00
-No Compensation For Child Born After Sterilization As Pregnancy Pre-Dated Surgery: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/pregnancy-pre-dated-sterilization-operation-no-compensation-550863
+### 2026-09-20T07:02:52+00:00
+Amalgamation-Based Employee Continuity Benefits Apply Only To Transferor-Company Employees On Amalgamation Date: Sikkim High Court
+https://www.livelaw.in/high-court/sikkim-high-court/amalgamation-based-employee-continuity-benefits-apply-only-to-transferor-company-employees-on-amalgamation-date-sikkim-hc-550903
 
-[Read on Telegram](https://t.me/livelawindia/120289)
-
----
-### 2026-09-19T15:02:32+00:00
-Delhi High Court Directs Interpol's Red Corner Notice Against Man Facing Contempt For Abusing Judges
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-interpols-red-corner-notice-against-man-facing-contempt-for-abusing-judges-550821
-
-[Read on Telegram](https://t.me/livelawindia/120290)
+[Read on Telegram](https://t.me/livelawindia/120313)
 
 ---
-### 2026-09-19T15:33:22+00:00
-Manju Warrier Moves Kerala Court To Takedown Defamatory Posts By Filmmaker Sanal Kumar Sasidharan
-https://www.livelaw.in/news-updates/kerala-court-manju-warrier-defamation-sanal-kumar-sasidharan-550900
+### 2026-09-20T07:23:02+00:00
+'Surprising': Patna High Court Grants Bail To Juveniles Who Drove From Assam To Patna While Carrying 65-Kg 'Ganja', Orders Inquiry
+https://www.livelaw.in/high-court/patna-high-court/patna-hc-grants-bail-to-juveniles-caught-with-65-kg-ganja-directs-inquiry-into-how-they-travelled-from-assam-to-bihar-without-documents-550906
 
-[Read on Telegram](https://t.me/livelawindia/120291)
-
----
-### 2026-09-19T15:33:32+00:00
-Effectively Implement SC Order On Installation, Maintenance Of CCTVs In Police Stations: Tripura High Court Directs State
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-cctvs-police-stations-installation-maintenance-550871
-
-[Read on Telegram](https://t.me/livelawindia/120292)
+[Read on Telegram](https://t.me/livelawindia/120314)
 
 ---
-### 2026-09-19T16:21:32+00:00
-BCI Members Oppose Manan Kumar Mishra's Proposed Resolution On PEARL-FIRST Trust, Seek Details Of Trust Deed & AIBE Finances
-https://www.livelaw.in/top-stories/bci-members-oppose-manan-kumar-mishras-proposed-resolution-on-pearl-first-trust-seek-details-of-trust-deed-aibe-finances-550901
+### 2026-09-20T07:31:42+00:00
+Supreme Court Acquits 4 Murder Convicts, Says Eyewitnesses Couldn't Have Identified Accused On Pitch-Dark Night
+https://www.livelaw.in/sc-judgments/supreme-court-acquits-4-murder-convicts-says-eyewitnesses-couldnt-have-identified-accused-on-pitch-dark-night-550924
 
-[Read on Telegram](https://t.me/livelawindia/120293)
-
----
-### 2026-09-19T16:32:52+00:00
-Delhi High Court Issues Contempt Notice To Top Cops Over Alleged Failure To Comply With Order For Departmental Inquiry Against IO
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-issues-contempt-notice-to-top-cops-over-alleged-failure-to-comply-with-order-for-departmental-inquiry-against-io-550892
-
-[Read on Telegram](https://t.me/livelawindia/120294)
+[Read on Telegram](https://t.me/livelawindia/120315)
 
 ---
-### 2026-09-19T16:38:12+00:00
-J&K&L High Court Stays Probe Against Woman Booked For Terminating Pregnancy Without Husband's Consent
-https://www.livelaw.in/high-court/jammu-kashmir/tone-and-tenor-of-fir-do-not-inspire-confidence-jk-high-court-stays-probe-against-woman-booked-for-terminating-pregnancy-without-husbands-consent-550902
+### 2026-09-20T07:32:32+00:00
+Ukraine MBBS Student Moves MP High Court, Says NMC Rules Requiring 12-Month Internship There Impossible Amid War
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/foreign-medical-graduate-12-month-internship-rule-fmg-regulations-2021-ukraine-war-centre-reply-550841
 
-[Read on Telegram](https://t.me/livelawindia/120295)
-
----
-### 2026-09-19T17:16:42+00:00
-Bengal Court Sends Congress Nandigram By-Poll Candidate Milan Pradhan To Judicial Custody Till October 3
-https://www.livelaw.in/news-updates/west-bengal-court-sends-congress-nandigram-by-poll-candidate-milan-pradhan-to-judicial-custody-till-october-3-550908
-
-[Read on Telegram](https://t.me/livelawindia/120296)
+[Read on Telegram](https://t.me/livelawindia/120316)
 
 ---
-### 2026-09-20T02:32:19+00:00
-LiveLaw High Courts Daily Highlights: September 19, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-19-2026-550910
+### 2026-09-20T07:32:42+00:00
+2026 LiveLaw (SC) 959 | Kartika @ Kirtan @ Kirtan Charan Jena & Anr Etc. v The State of Odisha
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-959-kartika-kirtan-kirtan-charan-jena-anr-etc-v-the-state-of-odisha-550925
 
-[Read on Telegram](https://t.me/livelawindia/120297)
-
----
-### 2026-09-20T02:32:30+00:00
-Judiciary, Rent Laws And Status Quoism
-https://www.livelaw.in/articles/judiciary-rent-laws-status-quoism-550912
-
-[Read on Telegram](https://t.me/livelawindia/120298)
+[Read on Telegram](https://t.me/livelawindia/120317)
 
 ---
-### 2026-09-20T03:32:31+00:00
-Urban Ceiling Act | Original Landowner Did Not Challenge Dispossession, Heirs Can't Seek Relief After 22 Years: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/no-mandamus-can-be-issued-in-favour-of-heirs-where-original-owner-never-challenged-dispossession-allahabad-high-court-550819
+### 2026-09-20T08:02:52+00:00
+Dowry Demand For Setting Up Business Still 'Dowry' Under S. 304B IPC: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/dowry-demand-for-setting-up-business-still-dowry-under-s-304b-ipc-delhi-high-court-550899
 
-[Read on Telegram](https://t.me/livelawindia/120299)
+[Read on Telegram](https://t.me/livelawindia/120318)
 
 ---
-### 2026-09-20T04:03:01+00:00
-Top 20 High Court Judgments Of The Week
-https://www.livelaw.in/high-court/all-high-courts/high-courts-weekly-highlights-september-14-september-19-2026-550911
+### 2026-09-20T08:32:52+00:00
+Delhi High Court Highlights Poor Pay, Neglect Of Labourers; Says Society Has Failed To Value Their Work
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-highlights-poor-pay-neglect-of-labourers-says-society-has-failed-to-value-their-work-550844
 
-[Read on Telegram](https://t.me/livelawindia/120300)
+[Read on Telegram](https://t.me/livelawindia/120319)
+
+---
+### 2026-09-20T08:45:32+00:00
+Income Tax | CBDT Circular Not Binding On Court : Supreme Court
+https://www.livelaw.in/supreme-court/income-tax-cbdt-circular-not-binding-on-court-supreme-court-550926
+
+[Read on Telegram](https://t.me/livelawindia/120320)
+
+---
+### 2026-09-20T08:46:32+00:00
+2026 LiveLaw (SC) 960 | ORIENT CRAFTS LIMITED VERSUS COMMISSIONER OF INCOME TAX
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-960-orient-crafts-limited-versus-commissioner-of-income-tax-550927
+
+[Read on Telegram](https://t.me/livelawindia/120321)
+
+---
+### 2026-09-20T09:06:22+00:00
+Principal Employer Not Liable To Pay Gratuity To Contractual Workmen; Controlling Authority Can't Decide Who Must Pay : Supreme Court
+https://www.livelaw.in/supreme-court/principal-employer-not-liable-to-pay-gratuity-to-contractual-workmen-controlling-authority-cant-decide-who-must-pay-supreme-court-550928
+
+[Read on Telegram](https://t.me/livelawindia/120322)
+
+---
+### 2026-09-20T09:07:42+00:00
+2026 LiveLaw (SC) 961 | M/s Oil and Natural Gas Corporation Ltd v Suryakand D Lad & Ors
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-961-ms-oil-and-natural-gas-corporation-ltd-v-suryakand-d-lad-ors-550929
+
+[Read on Telegram](https://t.me/livelawindia/120323)
+
+---
+### 2026-09-20T09:28:22+00:00
+Inequitable To Undo Sale Executed Pursuant To Specific Performance Decree Decades Later By Ordering Refund: Supreme Court
+https://www.livelaw.in/supreme-court/inequitable-to-undo-sale-executed-pursuant-to-specific-performance-decree-decades-later-by-ordering-refund-supreme-court-550930
+
+[Read on Telegram](https://t.me/livelawindia/120324)
+
+---
+### 2026-09-20T09:30:02+00:00
+2026 LiveLaw (SC) 962 | Sobaran Singh (Dead) Through Lrs. Versus Gordhan Singh (Dead) Thr. Lrs.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-962-sobaran-singh-dead-through-lrs-versus-gordhan-singh-dead-thr-lrs-550931
+
+[Read on Telegram](https://t.me/livelawindia/120325)
+
+---
+### 2026-09-20T09:32:02+00:00
+Section 233 BNSS Applies Only When Cases Concern Same Offence, Not Merely Same Transaction: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/section-233-bnss-same-offences-not-same-transaction-550846
+
+[Read on Telegram](https://t.me/livelawindia/120326)
+
+---
+### 2026-09-20T09:32:42+00:00
+Decoding Section 356 BNSS: Constitutional Perils Of 'Deemed Waiver' And Trial In Absentia
+https://www.livelaw.in/articles/decoding-section356-bnss-constitutional-perils-deemed-waiver-trial-in-absentia-550914
+
+[Read on Telegram](https://t.me/livelawindia/120327)
+
+---
+### 2026-09-20T10:32:16+00:00
+Absence From Duty, Proxy Teaching At Most Service Misconduct; Not Cheating: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-quashes-cheating-case-against-government-teacher-550859
+
+[Read on Telegram](https://t.me/livelawindia/120328)
 
 ---
