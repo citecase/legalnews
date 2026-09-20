@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-19T12:18:41+00:00*
+*Last Updated: 2026-09-19T12:57:41+00:00*
 
 ---
 
-### 2026-09-19T12:18:41+00:00
-PIL In Delhi High Court Challenges DERC Rules Shifting Solar Infrastructure Costs To General Electricity Consumers; Notice Issued
-https://www.livelaw.in/high-court/delhi-high-court/derc-rules-shift-solar-infrastructure-costs-to-electricity-consumers-pil-notice-issued-550868
-
-[Read on Telegram](https://t.me/livelawindia/120277)
-
----
-### 2026-09-19T12:33:01+00:00
-Borrower Of Vehicle Steps Into Shoes Of Owner, Can't Claim Compensation U/S 163A MV Act Against Owner & Insurer: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-borrower-vehicle-steps-into-shoes-owner-cant-claim-compensation-us-163a-mv-act-against-owner-insurer-550813
-
-[Read on Telegram](https://t.me/livelawindia/120278)
-
----
-### 2026-09-19T12:36:31+00:00
-Burden Of Carbon Emissions Unfairly Put On Developing Countries : PM Modi
-https://www.livelaw.in/top-stories/burden-of-carbon-emissions-unfairly-put-on-developing-countries-pm-modi-550870
-
-[Read on Telegram](https://t.me/livelawindia/120279)
-
----
-### 2026-09-19T12:51:11+00:00
-Allotted 12 Sq. Metres, Found 8 Sq. Metres: NCDRC Directs LDA To Recalculate Price Based On Actual Area
-https://www.livelaw.in/consumer-cases/allotted-12-sq-metres-found-8-sq-metres-ncdrc-directs-lda-to-recalculate-price-based-on-actual-area-550872
-
-[Read on Telegram](https://t.me/livelawindia/120280)
-
----
 ### 2026-09-19T12:57:41+00:00
 Uncorroborated Newspaper Report Not Substantive Evidence Of Misconduct In Departmental Inquiry: Patna High Court
 https://www.livelaw.in/high-court/patna-high-court/patna-high-court-quashes-departmental-action-uncorroborated-newspaper-report-550669
@@ -142,5 +114,33 @@ Bengal Court Sends Congress Nandigram By-Poll Candidate Milan Pradhan To Judicia
 https://www.livelaw.in/news-updates/west-bengal-court-sends-congress-nandigram-by-poll-candidate-milan-pradhan-to-judicial-custody-till-october-3-550908
 
 [Read on Telegram](https://t.me/livelawindia/120296)
+
+---
+### 2026-09-20T02:32:19+00:00
+LiveLaw High Courts Daily Highlights: September 19, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-19-2026-550910
+
+[Read on Telegram](https://t.me/livelawindia/120297)
+
+---
+### 2026-09-20T02:32:30+00:00
+Judiciary, Rent Laws And Status Quoism
+https://www.livelaw.in/articles/judiciary-rent-laws-status-quoism-550912
+
+[Read on Telegram](https://t.me/livelawindia/120298)
+
+---
+### 2026-09-20T03:32:31+00:00
+Urban Ceiling Act | Original Landowner Did Not Challenge Dispossession, Heirs Can't Seek Relief After 22 Years: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/no-mandamus-can-be-issued-in-favour-of-heirs-where-original-owner-never-challenged-dispossession-allahabad-high-court-550819
+
+[Read on Telegram](https://t.me/livelawindia/120299)
+
+---
+### 2026-09-20T04:03:01+00:00
+Top 20 High Court Judgments Of The Week
+https://www.livelaw.in/high-court/all-high-courts/high-courts-weekly-highlights-september-14-september-19-2026-550911
+
+[Read on Telegram](https://t.me/livelawindia/120300)
 
 ---
