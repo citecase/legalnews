@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-20T04:33:13+00:00*
+*Last Updated: 2026-09-20T10:32:37+00:00*
+
+---
+
+### 2026-09-20T10:32:37+00:00
+Right To Express Support By Cheering Cannot Be Curbed: Delhi High Court Stays Fine Imposed On JNU Students Who Were Only Found Smiling At Protesters
+https://www.verdictum.in/delhi-high-court/stays-fine-imposed-jnu-students-smiling-protesters-1622315
+
+[Source Link](https://t.me/verdictumlegalupdates/29200)
+
+---
+
+### 2026-09-20T09:02:56+00:00
+Acquittal Strengthens Presumption Of Innocence, Shouldn't Be Interfered With Merely Because Another View Is Possible: Supreme Court
+https://www.verdictum.in/supreme-court/state-of-himachal-pradesh-v-moti-ram-2026-insc-1012-acquittal-presumption-innocence-another-view-possible-1622314
+
+[Source Link](https://t.me/verdictumlegalupdates/29199)
+
+---
+
+### 2026-09-20T07:32:55+00:00
+Karnataka High Court Directs Trial Judges To Adhere To Sec.294(3) CrPC Mandate To Obviate Delay In CBI Cases
+https://www.verdictum.in/karnataka-high-court/shri-c-swamy-v-the-central-bureau-of-investigation-2026khc49150-trial-judges-sec2943-crpc-delay-1622308
+
+[Source Link](https://t.me/verdictumlegalupdates/29198)
+
+---
+
+### 2026-09-20T06:02:34+00:00
+Delhi High Court Grants Bail To UK National Jagtar Singh Johal After 8 Years Of Incarceration In KLF Terror Conspiracy Cases
+https://www.verdictum.in/delhi-high-court/2026-dhc-7994-db-jagtar-singh-johal-v-national-investigation-agency-1622307
+
+[Source Link](https://t.me/verdictumlegalupdates/29197)
 
 ---
 
@@ -129,38 +161,6 @@ https://www.verdictum.in/court-updates/high-courts/appointment-of-judicial-offic
 https://www.verdictum.in/delhi-high-court/steel-authority-of-india-limited-v-british-marine-2026dhc7953-db-maritime-arbitrators-clause-1622274
 
 [Source Link](https://t.me/verdictumlegalupdates/29181)
-
----
-
-### 2026-09-19T04:32:33+00:00
-Madhya Pradesh High Court: Merely Inheriting Property Jointly Does Not Infer Joint Hindu Family For All Times
-https://www.verdictum.in/madhya-pradesh-high-court/krishni-devi-v-baladatt-dead-through-lrs-uma-first-appeal-no280-of-2003-property-jointly-does-not-infer-joint-hindu-family-1622267
-
-[Source Link](https://t.me/verdictumlegalupdates/29180)
-
----
-
-### 2026-09-18T16:03:08+00:00
-Disproportionate: Bombay High Court Quashes Compulsory Retirement Of TISS Professor Accused Of Running Placement Business Through WhatsApp
-https://www.verdictum.in/bombay-high-court/dr-swapan-garain-v-tata-institute-of-social-sciences-others-2026bhc-as37817-db-1622250
-
-[Source Link](https://t.me/verdictumlegalupdates/29179)
-
----
-
-### 2026-09-18T15:12:58+00:00
-Appointment Disregarding Terms Of Advertisement Amounts To Fraud On Public: Supreme Court Reiterates
-https://www.verdictum.in/supreme-court/sunita-lahu-panchpande-v-the-district-collector-2026-insc-1002-appointment-advertisement-fraud-1622247
-
-[Source Link](https://t.me/verdictumlegalupdates/29178)
-
----
-
-### 2026-09-18T14:32:37+00:00
-Calcutta High Court Quashes Defamation Case Against Republic Journalists And Editor For Allegedly Circulating Call With Kabir Suman
-https://www.verdictum.in/calcutta-high-court/quashes-defamation-republic-journalists-editor-allegedly-circulating-call-kabir-suman-1622246
-
-[Source Link](https://t.me/verdictumlegalupdates/29177)
 
 ---
 
