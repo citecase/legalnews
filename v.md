@@ -1,6 +1,118 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-21T05:12:26+00:00*
+*Last Updated: 2026-09-21T12:52:18+00:00*
+
+---
+
+### 2026-09-21T12:52:18+00:00
+Delhi Court Sets Aside Magistrate's Order Refusing Probe In Sonia Gandhi's Pre-Citizenship Electoral Entry
+https://www.verdictum.in/other-courts/magistrates-order-refusing-probe-sonia-gandhis-pre-citizenship-electoral-entry-set-aside-1622416
+
+[Source Link](https://t.me/verdictumlegalupdates/29219)
+
+---
+
+### 2026-09-21T12:12:57+00:00
+Will File Chargesheet By September 25: UP SIT Submits Before Supreme Court In Ayodhya Ram Mandir Donation Row
+https://www.verdictum.in/supreme-court/up-sit-submits-before-supreme-court-ayodhya-ram-mandir-donation-row-1622410
+
+[Source Link](https://t.me/verdictumlegalupdates/29218)
+
+---
+
+### 2026-09-21T11:32:37+00:00
+Preference To Local Candidates In Public Employment Cannot Override Merit: Himachal Pradesh High Court
+https://www.verdictum.in/himachal-high-court/manju-devi-v-state-of-himachal-pradesh-2026hhc39618-local-candidates-cannot-override-merit-interview-marks-1622409
+
+[Source Link](https://t.me/verdictumlegalupdates/29217)
+
+---
+
+### 2026-09-21T11:02:16+00:00
+Supreme Court Seeks CBI's Response On Bail Plea By Ex-Secretary In Alleged CGPSC Recruitment Irregularities
+https://www.verdictum.in/supreme-court/cbis-response-on-bail-plea-by-ex-secretary-in-alleged-cgpsc-recruitment-irregularities-1622408
+
+[Source Link](https://t.me/verdictumlegalupdates/29216)
+
+---
+
+### 2026-09-21T10:32:55+00:00
+Microscopic Examination Is Not An Analytical Or Chemical Test For Proving Food Adulteration: Bombay High Court
+https://www.verdictum.in/bombay-high-court/state-of-maharashtra-v-gorakh-arjun-marathe-anr-2026bhc-aug41740-1622407
+
+[Source Link](https://t.me/verdictumlegalupdates/29215)
+
+---
+
+### 2026-09-21T10:02:34+00:00
+Weekly Overview| Supreme Court Judgments: September 14 – September 18, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-september-14-september-18-2026-1622405
+
+[Source Link](https://t.me/verdictumlegalupdates/29214)
+
+---
+
+### 2026-09-21T09:33:13+00:00
+"Wild Witch Hunt": Delhi High Court Refuses To Entertain Plea Seeking FIR Against Justice Yashwant Varma
+https://www.verdictum.in/delhi-high-court/delhi-high-court-refuses-to-entertain-plea-seeking-fir-against-justice-yashwant-varma-1622403
+
+[Source Link](https://t.me/verdictumlegalupdates/29213)
+
+---
+
+### 2026-09-21T09:02:32+00:00
+Tribunals Are Govt’s Lifeline, How Will They Function With No Infrastructure: Apex Court Asks Centre To Identify Required Amenities
+https://www.verdictum.in/supreme-court/tribunals-lifeline-no-infrastructure-centre-to-identify-required-amenities-1622401
+
+[Source Link](https://t.me/verdictumlegalupdates/29212)
+
+---
+
+### 2026-09-21T08:32:31+00:00
+Cinematographic Film Not "IT Software"; Mode Of Delivery Cannot Determine Classification: Bombay High Court
+https://www.verdictum.in/bombay-high-court/dharma-productions-pvt-ltd-v-state-of-maharashtra-2026bhc-os20584-db-information-technology-software-films-copyright-1622400
+
+[Source Link](https://t.me/verdictumlegalupdates/29211)
+
+---
+
+### 2026-09-21T08:02:11+00:00
+Unfilled Vacancy U/S 36 PwD Act 1995 Attracts Statutory Carry-Forward Regime & Doesn’t Make Every Available Candidate Suitable: Delhi High Court
+https://www.verdictum.in/delhi-high-court/ashwin-jawaharlal-mehta-v-union-of-india-ors-2026dhc8075-sec36-1995-pwd-act-vacancy-1622384
+
+[Source Link](https://t.me/verdictumlegalupdates/29210)
+
+---
+
+### 2026-09-21T07:32:50+00:00
+Supreme Court Issues Notice On Comedian Pranit More’s Plea To Club FIRs In ‘Rs 370 Biryani’ Row
+https://www.verdictum.in/supreme-court/issues-notice-comedian-pranit-more-plea-club-firs-rs-370-biryani-row-1622395
+
+[Source Link](https://t.me/verdictumlegalupdates/29209)
+
+---
+
+### 2026-09-21T07:02:49+00:00
+Supreme Court Issues Notice On Plea Seeking Guidelines For Construction Safety; Proposes Welfare Corpus And Mandatory Licensing Conditions
+https://www.verdictum.in/supreme-court/issues-notice-construction-safety-proposes-welfare-corpus-and-mandatory-licensing-conditions-1622391
+
+[Source Link](https://t.me/verdictumlegalupdates/29208)
+
+---
+
+### 2026-09-21T06:32:28+00:00
+Supreme Court Agrees To Constitute Special Bench To Hear NHAI’s Plea Against Direction To Construct Shelters For Stray Cattle
+https://www.verdictum.in/supreme-court/special-bench-to-hear-nhais-plea-against-direction-to-construct-shelters-for-stray-cattle-1622387
+
+[Source Link](https://t.me/verdictumlegalupdates/29207)
+
+---
+
+### 2026-09-21T05:53:07+00:00
+Supreme Court Agrees To List Mamata Banerjee’s Plea Against ECI's Order Barring Use Of AITC Name And Symbol By Both Factions
+https://www.verdictum.in/supreme-court/mamata-banerjee-approaches-supreme-court-election-commission-order-1622385
+
+[Source Link](https://t.me/verdictumlegalupdates/29206)
 
 ---
 
@@ -49,118 +161,6 @@ Right To Express Support By Cheering Cannot Be Curbed: Delhi High Court Stays Fi
 https://www.verdictum.in/delhi-high-court/stays-fine-imposed-jnu-students-smiling-protesters-1622315
 
 [Source Link](https://t.me/verdictumlegalupdates/29200)
-
----
-
-### 2026-09-20T09:02:56+00:00
-Acquittal Strengthens Presumption Of Innocence, Shouldn't Be Interfered With Merely Because Another View Is Possible: Supreme Court
-https://www.verdictum.in/supreme-court/state-of-himachal-pradesh-v-moti-ram-2026-insc-1012-acquittal-presumption-innocence-another-view-possible-1622314
-
-[Source Link](https://t.me/verdictumlegalupdates/29199)
-
----
-
-### 2026-09-20T07:32:55+00:00
-Karnataka High Court Directs Trial Judges To Adhere To Sec.294(3) CrPC Mandate To Obviate Delay In CBI Cases
-https://www.verdictum.in/karnataka-high-court/shri-c-swamy-v-the-central-bureau-of-investigation-2026khc49150-trial-judges-sec2943-crpc-delay-1622308
-
-[Source Link](https://t.me/verdictumlegalupdates/29198)
-
----
-
-### 2026-09-20T06:02:34+00:00
-Delhi High Court Grants Bail To UK National Jagtar Singh Johal After 8 Years Of Incarceration In KLF Terror Conspiracy Cases
-https://www.verdictum.in/delhi-high-court/2026-dhc-7994-db-jagtar-singh-johal-v-national-investigation-agency-1622307
-
-[Source Link](https://t.me/verdictumlegalupdates/29197)
-
----
-
-### 2026-09-20T04:33:13+00:00
-Order Confirming Property Attachment Under UAPA Not Interlocutory; Appealable U/S 21 NIA Act: Delhi High Court
-https://www.verdictum.in/delhi-high-court/uapa-attachment-right-to-appeal-property-attachment-orders-1622306
-
-[Source Link](https://t.me/verdictumlegalupdates/29196)
-
----
-
-### 2026-09-19T14:32:54+00:00
-Law Officer Vacancy At Union Public Service Commission (UPSC)
-https://www.verdictum.in/job-updates/union-public-service-commission-1622305
-
-[Source Link](https://t.me/verdictumlegalupdates/29195)
-
----
-
-### 2026-09-19T13:52:13+00:00
-J&K&L High Court Stays Investigation Into FIR Against Wife For Terminating Pregnancy Without Husband’s Consent
-https://www.verdictum.in/jammu-ladakh-high-court/shazia-kouser-v-ut-of-jk-pregnancy-terminated-husband-consent-fir-1622304
-
-[Source Link](https://t.me/verdictumlegalupdates/29194)
-
----
-
-### 2026-09-19T13:12:23+00:00
-Transport Vehicle Without Valid Fitness Certificate Deemed Unregistered U/S 56 Motor Vehicle Act: Himachal Pradesh HC
-https://www.verdictum.in/himachal-high-court/oriental-insurance-co-ltd-v-jamana-2026hhc37353-us-56-motor-vehicle-act-1622303
-
-[Source Link](https://t.me/verdictumlegalupdates/29193)
-
----
-
-### 2026-09-19T12:33:02+00:00
-Grievous Or Simple Hurt Not Pre-Condition To Attract Offence Of Attempt To Murder U/S.307 Of IPC: Supreme Court
-https://www.verdictum.in/supreme-court/surender-kumar-v-state-of-haryana-2026-insc-1006-grievous-simple-hurt-section-307-ipc-1622302
-
-[Source Link](https://t.me/verdictumlegalupdates/29192)
-
----
-
-### 2026-09-19T11:53:21+00:00
-Each Circumstance Not Proved Beyond Reasonable Doubt: Supreme Court Acquits Four Accused In 25 Year Old Murder Case
-https://www.verdictum.in/supreme-court/kartika-kirtan-kirtan-charan-jena-anr-etc-v-state-of-odisha-2026-insc-1015-1622301
-
-[Source Link](https://t.me/verdictumlegalupdates/29191)
-
----
-
-### 2026-09-19T11:12:40+00:00
-Mere Knowledge Of Victim’s Caste Sufficient To Attract Section 3(1)(w) SC/ST Act; Not Required To Prove Sexual Act Was Committed Solely On Caste Basis: Delhi High Court
-https://www.verdictum.in/delhi-high-court/prosecutrix-r-v-state-of-nct-of-delhi-2026dhc7954-caste-based-offence-by-minor-gang-rape-survivor-1622300
-
-[Source Link](https://t.me/verdictumlegalupdates/29190)
-
----
-
-### 2026-09-19T10:32:16+00:00
-CBDT Circulars Bind Tax Authorities But Not Courts: Supreme Court
-https://www.verdictum.in/supreme-court/ms-samtex-fashions-ltd-v-commissioner-of-income-tax-new-delhi-cbdt-circulars-1622298
-
-[Source Link](https://t.me/verdictumlegalupdates/29189)
-
----
-
-### 2026-09-19T09:53:14+00:00
-Forced Temperance No Solution For Alcoholism: Supreme Court Issues Guidelines To Prevent Hooch Tragedies & Curb Illicit Alcohol Trade
-https://www.verdictum.in/supreme-court/2026-insc-1009-balaji-formalin-pvt-v-union-of-india-1622297
-
-[Source Link](https://t.me/verdictumlegalupdates/29188)
-
----
-
-### 2026-09-19T09:12:31+00:00
-Non-Admissibility Of Document Produced Along With Plaint Not A Ground For Rejection Of Plaint:  Supreme Court
-https://www.verdictum.in/supreme-court/sheo-kumar-singh-v-ms-sharda-educational-society-2026-insc-1011-question-of-admissibility-order-vii-rule-11-cpc-1622296
-
-[Source Link](https://t.me/verdictumlegalupdates/29187)
-
----
-
-### 2026-09-19T08:32:29+00:00
-If Payment Is Made In Accordance With Order XXI Rule 1 CPC, Liability To Pay Interest Ceases: Supreme Court Urges Law Commission To Examine Court Deposit Framework
-https://www.verdictum.in/supreme-court/national-seeds-corporation-ltd-v-national-agro-seed-corporation-india-2026-insc-1017-order-xxi-rule-1-cpc-1622295
-
-[Source Link](https://t.me/verdictumlegalupdates/29186)
 
 ---
 
