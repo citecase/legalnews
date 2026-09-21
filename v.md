@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-21T12:52:18+00:00*
+*Last Updated: 2026-09-21T16:02:23+00:00*
+
+---
+
+### 2026-09-21T16:02:23+00:00
+Legal Officer Vacancy At National Commission for Minorities (NCM)
+https://www.verdictum.in/job-updates/national-commission-for-minorities-1622421
+
+[Source Link](https://t.me/verdictumlegalupdates/29224)
+
+---
+
+### 2026-09-21T15:33:02+00:00
+Delhi High Court Directs CBI To Issue Red Corner Notice Against Man Who Made Allegations Against Judiciary
+https://www.verdictum.in/delhi-high-court/court-on-its-own-motion-v-adeeshwar-singhal-cbi-red-corner-notice-interpol-1622420
+
+[Source Link](https://t.me/verdictumlegalupdates/29223)
+
+---
+
+### 2026-09-21T14:52:41+00:00
+Right To Rehabilitation Does Not Entitle Protected Slum Dwellers To In-Situ Housing: Bombay High Court
+https://www.verdictum.in/bombay-high-court/mangesh-yashwant-parave-ors-v-state-of-maharashtra-through-urban-development-department-ors-2026bhc-os19000-db-1622419
+
+[Source Link](https://t.me/verdictumlegalupdates/29222)
+
+---
+
+### 2026-09-21T14:12:20+00:00
+Not Fair To Tarnish Entire Delhi Police Force: Delhi High Court Rejects CBI Probe Plea Into Assault On Advocates Protesting Against Manan Kumar Mishra
+https://www.verdictum.in/delhi-high-court/kunal-yadav-ors-v-manan-kumar-mishra-ors-2026dhc8081-bar-council-of-india-1622418
+
+[Source Link](https://t.me/verdictumlegalupdates/29221)
+
+---
+
+### 2026-09-21T13:32:59+00:00
+Allahabad High Court Stays Government Order Providing Inflated SC Reservation Of Up to 60% In Medical Colleges
+https://www.verdictum.in/allahabad-high-court/sachin-singh-and-another-v-state-of-up-government-order-reservation-medical-colleges-1622417
+
+[Source Link](https://t.me/verdictumlegalupdates/29220)
 
 ---
 
@@ -121,46 +161,6 @@ Costs Can Be Imposed On Parties In "Consent Quashing" Cases For Putting Criminal
 https://www.verdictum.in/bombay-high-court/niraj-rajaram-more-v-the-state-of-maharashtra-2026bhc-as37904-impose-cost-consent-quashing-1622381
 
 [Source Link](https://t.me/verdictumlegalupdates/29205)
-
----
-
-### 2026-09-21T04:33:15+00:00
-Signing Below Non-Applicable Clauses Does Not Incorporate Them Into Contract: Delhi High Court Grants Anti-Arbitration Injunction
-https://www.verdictum.in/delhi-high-court/sarr-freights-corporation-v-argo-coral-maritime-ltd-2026dhc7971-db-evidence-act-bars-reading-arbitration-clause-1622372
-
-[Source Link](https://t.me/verdictumlegalupdates/29204)
-
----
-
-### 2026-09-20T15:03:00+00:00
-Assistant Legal Aid Advisor, Superintendent, Assistant (Legal) Vacancies At NALSA
-https://www.verdictum.in/job-updates/national-legal-services-authority-1622311
-
-[Source Link](https://t.me/verdictumlegalupdates/29203)
-
----
-
-### 2026-09-20T13:32:39+00:00
-Allahabad High Court Orders Police Protection For Hindu-Muslim Same-Sex Couple
-https://www.verdictum.in/allahabad-high-court/f-v-state-of-up-2026ahc195171-family-relatives-hindu-muslim-same-sex-couple-1622318
-
-[Source Link](https://t.me/verdictumlegalupdates/29202)
-
----
-
-### 2026-09-20T12:02:18+00:00
-Parked Vehicle Not Negligent Where Driver Could Avoid Collision: Gauhati High Court Rejects Claim For Damage To Air Force Vehicle
-https://www.verdictum.in/guwahati-high-court/union-of-india-v-md-ismail-ors-2026gau-as12041-contributory-negligence-1622317
-
-[Source Link](https://t.me/verdictumlegalupdates/29201)
-
----
-
-### 2026-09-20T10:32:37+00:00
-Right To Express Support By Cheering Cannot Be Curbed: Delhi High Court Stays Fine Imposed On JNU Students Who Were Only Found Smiling At Protesters
-https://www.verdictum.in/delhi-high-court/stays-fine-imposed-jnu-students-smiling-protesters-1622315
-
-[Source Link](https://t.me/verdictumlegalupdates/29200)
 
 ---
 
