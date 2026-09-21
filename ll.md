@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-20T09:28:22+00:00*
+*Last Updated: 2026-09-21T09:32:49+00:00*
 
 ---
 
-### 2026-09-20T09:28:22+00:00
-Inequitable To Undo Sale Executed Pursuant To Specific Performance Decree Decades Later By Ordering Refund: Supreme Court
-https://www.livelaw.in/supreme-court/inequitable-to-undo-sale-executed-pursuant-to-specific-performance-decree-decades-later-by-ordering-refund-supreme-court-550930
+### 2026-09-21T09:32:49+00:00
+Pramod Kumar Shukla V. State Of UP: Trampling Upon Institutional Checks And Balances
+https://www.livelaw.in/articles/pramod-kumar-shukla-trampling-upon-institutional-checks-balances-550951
 
-[Read on Telegram](https://t.me/livelawindia/120324)
-
----
-### 2026-09-20T09:30:02+00:00
-2026 LiveLaw (SC) 962 | Sobaran Singh (Dead) Through Lrs. Versus Gordhan Singh (Dead) Thr. Lrs.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-962-sobaran-singh-dead-through-lrs-versus-gordhan-singh-dead-thr-lrs-550931
-
-[Read on Telegram](https://t.me/livelawindia/120325)
+[Read on Telegram](https://t.me/livelawindia/120392)
 
 ---
-### 2026-09-20T09:32:02+00:00
-Section 233 BNSS Applies Only When Cases Concern Same Offence, Not Merely Same Transaction: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/section-233-bnss-same-offences-not-same-transaction-550846
+### 2026-09-21T09:40:09+00:00
+Gurugram Building Site Collapse: Supreme Court Issues Notice On PIL Seeking Probe, Safety Standards for Construction Workers
+https://www.livelaw.in/top-stories/gurugram-building-site-collapse-supreme-court-issues-notice-on-pil-seeking-probe-safety-standards-for-construction-workers-551042
 
-[Read on Telegram](https://t.me/livelawindia/120326)
-
----
-### 2026-09-20T09:32:42+00:00
-Decoding Section 356 BNSS: Constitutional Perils Of 'Deemed Waiver' And Trial In Absentia
-https://www.livelaw.in/articles/decoding-section356-bnss-constitutional-perils-deemed-waiver-trial-in-absentia-550914
-
-[Read on Telegram](https://t.me/livelawindia/120327)
+[Read on Telegram](https://t.me/livelawindia/120393)
 
 ---
-### 2026-09-20T10:32:16+00:00
-Absence From Duty, Proxy Teaching At Most Service Misconduct; Not Cheating: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-quashes-cheating-case-against-government-teacher-550859
+### 2026-09-21T09:50:49+00:00
+Karnataka High Court Refers Employers' Challenge To Minimum Wage Hike To Division Bench, Declines Interim Relief
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-minimum-wage-notification-challenge-interim-protection-employers-551044
 
-[Read on Telegram](https://t.me/livelawindia/120328)
-
----
-### 2026-09-20T11:32:56+00:00
-Rules Allowing Claims Tribunal To Withhold Compensation Based On Claimant's Literacy, Financial Condition Violate Article 14: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/railway-compensation-withheld-claimants-literacy-financial-condition-violate-article-14-550861
-
-[Read on Telegram](https://t.me/livelawindia/120329)
+[Read on Telegram](https://t.me/livelawindia/120394)
 
 ---
-### 2026-09-20T11:47:16+00:00
-"Family Feud" Need Not Span Generations, Dispute Between Members Of Same Generation Also Qualifies: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/family-feud-need-not-span-generations-dispute-between-same-generation-qualifies-550662
+### 2026-09-21T10:04:19+00:00
+Possibly Self-Inflicted Injuries: DGP Tells High Court In Plea Over Alleged Custodial Torture Of Youth Who Showed Black Flag To Punjab CM
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-alleged-custodial-torture-of-youth-who-showed-black-flag-to-punjab-cm-551049
 
-[Read on Telegram](https://t.me/livelawindia/120330)
-
----
-### 2026-09-20T12:32:46+00:00
-Allahabad High Court Initiates Contempt Against UP's Principal Food Secretary For Disobeying Judicial Orders
-https://www.livelaw.in/high-court/allahabad-high-court/contempt-up-food-department-principal-secretary-disobeying-orders-550874
-
-[Read on Telegram](https://t.me/livelawindia/120331)
+[Read on Telegram](https://t.me/livelawindia/120395)
 
 ---
-### 2026-09-20T13:52:27+00:00
-Municipal Officer Cannot Take One-Sided Demolition Action Pending Statutory Appeal: Tripura High Court
-https://www.livelaw.in/high-court/tripura-high-court/tripura-hc-says-municipal-authorities-cannot-take-one-sided-action-during-pendency-of-statutory-appeal-550907
+### 2026-09-21T10:12:19+00:00
+Complainant Can't Force Unwilling Accused To Undergo Narco Test: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/narco-analysis-test-complainant-cant-force-unwilling-accused-551050
 
-[Read on Telegram](https://t.me/livelawindia/120332)
-
----
-### 2026-09-20T14:07:47+00:00
-Courts Cannot Reassess Interview Marks Or Comparative Merit Absent Proven Mala Fides Or Bias: Himachal Pradesh High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/courts-cannot-reassess-interview-marks-or-comparative-merit-absent-proven-mala-fides-bias-or-illegality-hp-high-court-550905
-
-[Read on Telegram](https://t.me/livelawindia/120333)
+[Read on Telegram](https://t.me/livelawindia/120396)
 
 ---
-### 2026-09-20T14:32:27+00:00
-Digital Footprint, Global Fault Lines: Data Extraction From Global South
-https://www.livelaw.in/lawschool/articles/digital-footprint-global-fault-lines-data-extraction-global-south-550915
+### 2026-09-21T10:22:39+00:00
+Arrest Safeguards Exist Only On Paper, Actual Compliance Not Shown In Punjab, Haryana, Chandigarh: High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-rejects-paper-compliance-on-arrest-safeguards-551053
 
-[Read on Telegram](https://t.me/livelawindia/120334)
-
----
-### 2026-09-20T14:47:21+00:00
-Mere Concealment Or Confinement Insufficient For Conviction Without Proof Of Knowledge Of Kidnapping: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/mere-concealment-or-confinement-insufficient-for-conviction-without-proof-of-knowledge-of-kidnapping-delhi-high-court-550916
-
-[Read on Telegram](https://t.me/livelawindia/120335)
+[Read on Telegram](https://t.me/livelawindia/120397)
 
 ---
-### 2026-09-20T14:58:01+00:00
-[Motor Vehicles Act] Carriage Permit Applicant Cannot Cure Statutory Defects After Consideration Of Application: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/incomplete-permit-application-cannot-cured-after-adjudication-550904
+### 2026-09-21T10:23:59+00:00
+Ram Temple Donation Theft Case : Will File Chargesheet In 2 Days, UP SIT Tells Supreme Court
+https://www.livelaw.in/top-stories/ram-temple-donation-theft-case-will-file-chargesheet-in-2-days-up-sit-tells-supreme-court-551054
 
-[Read on Telegram](https://t.me/livelawindia/120336)
-
----
-### 2026-09-20T15:19:02+00:00
-LiveLaw Delhi High Court Weekly Round-Up: September 14 To September 20, 2026
-https://www.livelaw.in/high-court/delhi-high-court/livelaw-delhi-high-court-weekly-round-up-september-14-to-september-20-2026-550948
-
-[Read on Telegram](https://t.me/livelawindia/120337)
+[Read on Telegram](https://t.me/livelawindia/120398)
 
 ---
-### 2026-09-21T02:32:16+00:00
-Ignored Warning Sign: Satya Niketan And Delhi's Regulatory Failure On PG Accommodations
-https://www.livelaw.in/articles/ignored-warning-sign-satya-niketan-delhi-regulatory-failure-pg-accommodations-550949
+### 2026-09-21T10:32:40+00:00
+'Stipendiary Nurses' Performing Full-Time Duties Of Staff Nurse For Years Entitled To Regular Wages Under 2019 GO: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-stipendiary-nurses-performing-full-time-duties-staff-nurse-551055
 
-[Read on Telegram](https://t.me/livelawindia/120338)
-
----
-### 2026-09-21T03:41:47+00:00
-Dua Associates advises Odyssey Energy Solutions Procure VI Pvt. Ltd. on EUR 7 million ECB from BIO
-https://www.livelaw.in/law-firms/deals/dua-associates-advises-odyssey-energy-solutions-procure-vi-pvt-ltd-on-eur-7-million-ecb-from-bio-550953
-
-[Read on Telegram](https://t.me/livelawindia/120339)
+[Read on Telegram](https://t.me/livelawindia/120399)
 
 ---
-### 2026-09-21T04:06:17+00:00
-Legal Aid Panel Lawyers Vacancy At District Legal Services Authority, Ahmedabad
-https://www.livelaw.in/job-updates/legal-aid-panel-lawyers-vacancy-at-district-legal-services-authority-ahmedabad-550956
+### 2026-09-21T10:41:55+00:00
+Calcutta High Court Directs Police, Customs To Stop Unauthorised Sale Of Pets At North Kolkata's Galiff Street
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-directs-police-customs-to-stop-unauthorised-animal-bird-sale-at-north-kolkatas-galiff-street-551062
 
-[Read on Telegram](https://t.me/livelawindia/120340)
-
----
-### 2026-09-21T04:07:17+00:00
-Incubation Manager Vacancy At Gujarat National Law University
-https://www.livelaw.in/job-updates/incubation-manager-vacancy-at-gujarat-national-law-university-550957
-
-[Read on Telegram](https://t.me/livelawindia/120341)
+[Read on Telegram](https://t.me/livelawindia/120400)
 
 ---
-### 2026-09-21T04:08:37+00:00
-Law Officers Vacancy At Bank Of India [Mumbai; Apply Now]
-https://www.livelaw.in/job-updates/law-officers-vacancy-at-bank-of-india-mumbai-550958
+### 2026-09-21T10:42:15+00:00
+High Court Rejects Chandigarh Admin's Plea Against Minimum Pay Scale For Part-Time Class IV Employee, Cites Pay Parity
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-upholds-minimum-pay-scale-for-part-time-class-iv-employee-551058
 
-[Read on Telegram](https://t.me/livelawindia/120342)
+[Read on Telegram](https://t.me/livelawindia/120401)
 
 ---
-### 2026-09-21T04:09:57+00:00
-Assistant Law Officer Vacancy At Technology Development Board
-https://www.livelaw.in/job-updates/assistant-law-officer-vacancy-at-technology-development-board-550959
+### 2026-09-21T10:47:55+00:00
+Supreme Court Criticises TN Govt For Insisting On SASTRA University's Eviction Instead Of Accepting Alternate Land Offer
+https://www.livelaw.in/top-stories/supreme-court-asks-tamil-nadu-to-consider-alternate-lands-sastra-university-encroachment-on-govt-land-open-air-jail-project-held-up-551065
 
-[Read on Telegram](https://t.me/livelawindia/120343)
+[Read on Telegram](https://t.me/livelawindia/120402)
+
+---
+### 2026-09-21T10:52:15+00:00
+Brothel Customer Can't Be Booked For Running Premises Or Procuring Women For Prostitution: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-brother-customer-immoral-traffic-act-551060
+
+[Read on Telegram](https://t.me/livelawindia/120403)
+
+---
+### 2026-09-21T11:03:05+00:00
+Karnataka High Court Directs State To Decide Representation On Reconstruction Of Parashurama Statue At Udupi Theme Park
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-leaves-decision-parashurama-statue-reconstruction-udupi-theme-park-551067
+
+[Read on Telegram](https://t.me/livelawindia/120404)
+
+---
+### 2026-09-21T11:03:15+00:00
+'Arbitration Cannot Be Arbitrary' : Supreme Court Sets Aside Arbitral Tribunal Appointment For Lack Of Consent
+https://www.livelaw.in/supreme-court/arbitration-cannot-be-arbitrary-supreme-court-sets-aside-arbitral-tribunal-appointment-for-lack-of-consent-551072
+
+[Read on Telegram](https://t.me/livelawindia/120405)
+
+---
+### 2026-09-21T11:04:15+00:00
+2026 LiveLaw (SC) 963 | Arth Micro Finance Private Ltd. And Ors. Versus Shivalik Small Finance Bank Ltd.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-963-arth-micro-finance-private-ltd-and-ors-versus-shivalik-small-finance-bank-ltd-551073
+
+[Read on Telegram](https://t.me/livelawindia/120406)
+
+---
+### 2026-09-21T11:10:46+00:00
+'Mere Wish Of Wife That Husband Should Live As 'Gharjamai' Is Not Cruelty': Jharkhand High Court Refuses Divorce To Husband
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-upholds-dismissal-husband-divorce-plea-551076
+
+[Read on Telegram](https://t.me/livelawindia/120407)
+
+---
+### 2026-09-21T11:28:26+00:00
+Santa Claus Caps Can't Be Forced On Employees At Workplace, May Hurt Sentiments Of Different Faiths: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-santa-claus-caps-employees-workplace-hurt-sentiments-faiths-551079
+
+[Read on Telegram](https://t.me/livelawindia/120408)
+
+---
+### 2026-09-21T11:47:00+00:00
+President Appreciated NGT's Efforts Towards Addressing Global Environmental And Climate Challenges
+https://www.livelaw.in/news-updates/international-conference-future-of-environment-and-climate-dynamics-551081
+
+[Read on Telegram](https://t.me/livelawindia/120409)
+
+---
+### 2026-09-21T12:11:41+00:00
+Karnataka High Court Directs SIT Probe Into KPSC Veterinary Officer Recruitment Scam, Declines CBI Investigation
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-constitutes-sit-probe-kpsc-veterinary-officer-recruitment-scam-551084
+
+[Read on Telegram](https://t.me/livelawindia/120410)
+
+---
+### 2026-09-21T12:20:01+00:00
+Patna High Court Expunges DM's Remark Against Scholar Stating He Had 'Mentality To Harass SC/ST Persons', Warns Against Personal Comments
+https://www.livelaw.in/high-court/patna-high-court/patna-hc-cautions-quasi-judicial-authorities-against-personal-remarks-expunges-uncharitable-comments-branding-sanskrit-scholar-as-having-mentality-to-harass-scst-persons-551088
+
+[Read on Telegram](https://t.me/livelawindia/120411)
 
 ---
