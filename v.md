@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-20T15:03:00+00:00*
+*Last Updated: 2026-09-21T05:12:26+00:00*
+
+---
+
+### 2026-09-21T05:12:26+00:00
+Costs Can Be Imposed On Parties In "Consent Quashing" Cases For Putting Criminal Law Into Motion: Bombay High Court
+https://www.verdictum.in/bombay-high-court/niraj-rajaram-more-v-the-state-of-maharashtra-2026bhc-as37904-impose-cost-consent-quashing-1622381
+
+[Source Link](https://t.me/verdictumlegalupdates/29205)
+
+---
+
+### 2026-09-21T04:33:15+00:00
+Signing Below Non-Applicable Clauses Does Not Incorporate Them Into Contract: Delhi High Court Grants Anti-Arbitration Injunction
+https://www.verdictum.in/delhi-high-court/sarr-freights-corporation-v-argo-coral-maritime-ltd-2026dhc7971-db-evidence-act-bars-reading-arbitration-clause-1622372
+
+[Source Link](https://t.me/verdictumlegalupdates/29204)
 
 ---
 
@@ -145,22 +161,6 @@ If Payment Is Made In Accordance With Order XXI Rule 1 CPC, Liability To Pay Int
 https://www.verdictum.in/supreme-court/national-seeds-corporation-ltd-v-national-agro-seed-corporation-india-2026-insc-1017-order-xxi-rule-1-cpc-1622295
 
 [Source Link](https://t.me/verdictumlegalupdates/29186)
-
----
-
-### 2026-09-19T07:53:07+00:00
-Failed Test Of Proportionality: Supreme Court Strikes Down Maharashtra’s Methanol Denaturation Rules
-https://www.verdictum.in/supreme-court/2026-insc-1009-balaji-formalin-pvt-v-union-of-india-1622290
-
-[Source Link](https://t.me/verdictumlegalupdates/29185)
-
----
-
-### 2026-09-19T07:12:46+00:00
-Protective Or Preservatory Interim Orders Can't Be Passed Pending Disposal Of Leave Application: Supreme Court Clarifies Civil Court's Jurisdiction U/S 92 CPC
-https://www.verdictum.in/supreme-court/s-panchalingu-v-peoples-education-trust-r-2026-insc-1010-civil-courts-jurisdiction-us-92-cpc-1622289
-
-[Source Link](https://t.me/verdictumlegalupdates/29184)
 
 ---
 
