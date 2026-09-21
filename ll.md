@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-20T08:02:52+00:00*
+*Last Updated: 2026-09-20T09:28:22+00:00*
 
 ---
 
-### 2026-09-20T08:02:52+00:00
-Dowry Demand For Setting Up Business Still 'Dowry' Under S. 304B IPC: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/dowry-demand-for-setting-up-business-still-dowry-under-s-304b-ipc-delhi-high-court-550899
-
-[Read on Telegram](https://t.me/livelawindia/120318)
-
----
-### 2026-09-20T08:32:52+00:00
-Delhi High Court Highlights Poor Pay, Neglect Of Labourers; Says Society Has Failed To Value Their Work
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-highlights-poor-pay-neglect-of-labourers-says-society-has-failed-to-value-their-work-550844
-
-[Read on Telegram](https://t.me/livelawindia/120319)
-
----
-### 2026-09-20T08:45:32+00:00
-Income Tax | CBDT Circular Not Binding On Court : Supreme Court
-https://www.livelaw.in/supreme-court/income-tax-cbdt-circular-not-binding-on-court-supreme-court-550926
-
-[Read on Telegram](https://t.me/livelawindia/120320)
-
----
-### 2026-09-20T08:46:32+00:00
-2026 LiveLaw (SC) 960 | ORIENT CRAFTS LIMITED VERSUS COMMISSIONER OF INCOME TAX
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-960-orient-crafts-limited-versus-commissioner-of-income-tax-550927
-
-[Read on Telegram](https://t.me/livelawindia/120321)
-
----
-### 2026-09-20T09:06:22+00:00
-Principal Employer Not Liable To Pay Gratuity To Contractual Workmen; Controlling Authority Can't Decide Who Must Pay : Supreme Court
-https://www.livelaw.in/supreme-court/principal-employer-not-liable-to-pay-gratuity-to-contractual-workmen-controlling-authority-cant-decide-who-must-pay-supreme-court-550928
-
-[Read on Telegram](https://t.me/livelawindia/120322)
-
----
-### 2026-09-20T09:07:42+00:00
-2026 LiveLaw (SC) 961 | M/s Oil and Natural Gas Corporation Ltd v Suryakand D Lad & Ors
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-961-ms-oil-and-natural-gas-corporation-ltd-v-suryakand-d-lad-ors-550929
-
-[Read on Telegram](https://t.me/livelawindia/120323)
-
----
 ### 2026-09-20T09:28:22+00:00
 Inequitable To Undo Sale Executed Pursuant To Specific Performance Decree Decades Later By Ordering Refund: Supreme Court
 https://www.livelaw.in/supreme-court/inequitable-to-undo-sale-executed-pursuant-to-specific-performance-decree-decades-later-by-ordering-refund-supreme-court-550930
@@ -142,5 +100,47 @@ LiveLaw Delhi High Court Weekly Round-Up: September 14 To September 20, 2026
 https://www.livelaw.in/high-court/delhi-high-court/livelaw-delhi-high-court-weekly-round-up-september-14-to-september-20-2026-550948
 
 [Read on Telegram](https://t.me/livelawindia/120337)
+
+---
+### 2026-09-21T02:32:16+00:00
+Ignored Warning Sign: Satya Niketan And Delhi's Regulatory Failure On PG Accommodations
+https://www.livelaw.in/articles/ignored-warning-sign-satya-niketan-delhi-regulatory-failure-pg-accommodations-550949
+
+[Read on Telegram](https://t.me/livelawindia/120338)
+
+---
+### 2026-09-21T03:41:47+00:00
+Dua Associates advises Odyssey Energy Solutions Procure VI Pvt. Ltd. on EUR 7 million ECB from BIO
+https://www.livelaw.in/law-firms/deals/dua-associates-advises-odyssey-energy-solutions-procure-vi-pvt-ltd-on-eur-7-million-ecb-from-bio-550953
+
+[Read on Telegram](https://t.me/livelawindia/120339)
+
+---
+### 2026-09-21T04:06:17+00:00
+Legal Aid Panel Lawyers Vacancy At District Legal Services Authority, Ahmedabad
+https://www.livelaw.in/job-updates/legal-aid-panel-lawyers-vacancy-at-district-legal-services-authority-ahmedabad-550956
+
+[Read on Telegram](https://t.me/livelawindia/120340)
+
+---
+### 2026-09-21T04:07:17+00:00
+Incubation Manager Vacancy At Gujarat National Law University
+https://www.livelaw.in/job-updates/incubation-manager-vacancy-at-gujarat-national-law-university-550957
+
+[Read on Telegram](https://t.me/livelawindia/120341)
+
+---
+### 2026-09-21T04:08:37+00:00
+Law Officers Vacancy At Bank Of India [Mumbai; Apply Now]
+https://www.livelaw.in/job-updates/law-officers-vacancy-at-bank-of-india-mumbai-550958
+
+[Read on Telegram](https://t.me/livelawindia/120342)
+
+---
+### 2026-09-21T04:09:57+00:00
+Assistant Law Officer Vacancy At Technology Development Board
+https://www.livelaw.in/job-updates/assistant-law-officer-vacancy-at-technology-development-board-550959
+
+[Read on Telegram](https://t.me/livelawindia/120343)
 
 ---
