@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-22T09:12:28+00:00*
+*Last Updated: 2026-09-22T12:31:09+00:00*
 
 ---
 
-### 2026-09-22T09:12:28+00:00
-Delhi High Court Permits Accused To Travel Abroad For Son's Wedding, Directs ₹2 Lakh Furniture Donation For Delayed Passport Surrender
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-permits-accused-to-travel-abroad-for-sons-wedding-directs-2-lakh-furniture-donation-for-delayed-passport-surrender-551206
+### 2026-09-22T12:31:09+00:00
+'Cancer Medicine Sold At ₹ 27,000 Though Retailer Cost Is 2700; Patients Extorted' : Supreme Court Flags Gaps In Drug Price Control
+https://www.livelaw.in/top-stories/cancer-medicine-sold-at-rs-27000-though-retailer-cost-is-2700-patients-extorted-supreme-court-drug-price-control-551286
 
-[Read on Telegram](https://t.me/livelawindia/120499)
-
----
-### 2026-09-22T09:22:48+00:00
-UP Police Recruitment | Non-Disclosure Of Pending Criminal Case Not Suppression Where Form Only Asked About Conviction: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-nondisclosure-pending-criminal-case-suppression-551212
-
-[Read on Telegram](https://t.me/livelawindia/120500)
+[Read on Telegram](https://t.me/livelawindia/120532)
 
 ---
-### 2026-09-22T09:25:28+00:00
-Muttil Tree Felling Case : Supreme Court Transfers Cheating Case Against Augustine Brothers To Forest Court
-https://www.livelaw.in/top-stories/muttil-tree-felling-case-supreme-court-transfers-cheating-case-against-augustine-brothers-to-forest-court-551224
+### 2026-09-22T13:41:30+00:00
+Karnataka High Court Chief Justice Nominates Sr Advocate S. Susheela And Advocate Vijayamma V. As Members Of State Bar Council
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-chief-justice-nominates-senior-advocate-susheela-vijayamma-women-members-state-bar-council-551296
 
-[Read on Telegram](https://t.me/livelawindia/120501)
-
----
-### 2026-09-22T09:29:08+00:00
-Doctors Can't Evade Mandatory Govt Service Bond After Subsidized PG Education, But Must Get Counselling Opportunity: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/doctors-service-bond-subsidized-pg-education-counselling-allahabad-hc-551225
-
-[Read on Telegram](https://t.me/livelawindia/120502)
+[Read on Telegram](https://t.me/livelawindia/120533)
 
 ---
-### 2026-09-22T09:33:08+00:00
-Filed, Not Registered: Unhappy Situation At Trademark Registry
-https://www.livelaw.in/articles/filed-not-registered5-unhappy-situation-at-trademark-registry-551118
+### 2026-09-22T13:44:11+00:00
+LiveLaw Daily| Vande Mataram Challenge| Sharjeel Imam| Delhi SIR| 7-judge bench & more
+https://www.livelaw.in/podcast/sharjeel-imam-delhi-riots-delhi-sir-news-students-clat-judiciary-upsc-vande-mataram-551297
 
-[Read on Telegram](https://t.me/livelawindia/120503)
-
----
-### 2026-09-22T09:33:18+00:00
-P&H High Court Flags 'Deeply Concerning Trend' Of Public Servants Accused Of Corruption Being Reinstated To Same Pos During Trial
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-seeks-chief-secys-response-in-cop-accused-in-bribery-case-551214
-
-[Read on Telegram](https://t.me/livelawindia/120504)
+[Read on Telegram](https://t.me/livelawindia/120534)
 
 ---
-### 2026-09-22T09:47:50+00:00
-Bank Can Retain Jewellery Pledged Against Gold Loan To Recover Other Dues Where Party Is Co-Borrower: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-holds-bank-retain-gold-ornaments-pledged-gold-loan-towards-indian-contract-act-551216
+### 2026-09-22T13:45:11+00:00
+Oudh Bar Elections | No Posters, Processions Or Food Distribution Within HC Premises: Allahabad High Court Directs Candidates
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-oudh-bar-association-elections-posters-processions-food-distribution-candidates-551299
 
-[Read on Telegram](https://t.me/livelawindia/120505)
-
----
-### 2026-09-22T09:53:50+00:00
-Supreme Court Dismisses Plea Challenging 2018 SC/ST Act Amendment Restoring Stringent Provisions
-https://www.livelaw.in/top-stories/supreme-court-dismisses-plea-challenging-2018-scst-act-amendment-restoring-stringent-provisions-551231
-
-[Read on Telegram](https://t.me/livelawindia/120506)
+[Read on Telegram](https://t.me/livelawindia/120535)
 
 ---
-### 2026-09-22T10:03:03+00:00
-Acid Attack On Lawyer: Orissa High Court Orders In-Camera Trial, Rejects Accused's Transfer Plea Over 'Scary Atmosphere' Created By Bar
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-rejects-accused-plea-transfer-case-acid-attack-elderly-lawyer-551228
+### 2026-09-22T13:57:31+00:00
+'Surrender Of Passport On Bail Conditions No Permanent Embargo On Renewal': P&H High Court Permits Accused To Renew Expired Passport
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-permits-accused-to-renew-expired-passport-surrender-of-passport-on-bail-conditions-no-permanent-embargo-on-renewal-551298
 
-[Read on Telegram](https://t.me/livelawindia/120507)
-
----
-### 2026-09-22T10:03:33+00:00
-Supreme Court Refuses To Entertain Society's Writ Petition Over Karnataka-TN Cauvery River Water Dispute
-https://www.livelaw.in/top-stories/supreme-court-refuses-to-entertain-societys-writ-petition-over-karnataka-tn-cauvery-river-water-dispute-551236
-
-[Read on Telegram](https://t.me/livelawindia/120508)
+[Read on Telegram](https://t.me/livelawindia/120536)
 
 ---
-### 2026-09-22T10:07:23+00:00
-J&K&L High Court Quashes Olympic Association Election, Calls Process “Sham" & Orders Fresh Polls
-https://www.livelaw.in/high-court/jammu-kashmir/jkl-high-court-quashes-olympic-association-election-calls-process-sham-on-the-face-of-it-orders-constitution-overhaul-fresh-polls-551104
+### 2026-09-22T14:01:11+00:00
+Failure To Produce Original Deed In Forgery Case Not Ground To Discharge Accused : Supreme Court
+https://www.livelaw.in/supreme-court/failure-to-produce-original-deed-in-forgery-case-not-ground-to-discharge-accused-supreme-court-551303
 
-[Read on Telegram](https://t.me/livelawindia/120509)
-
----
-### 2026-09-22T10:23:43+00:00
-Karnataka Governor Asks State To Reconsider Order Limiting 'Vande Mataram' Recital To 2 Stanzas
-https://www.livelaw.in/news-updates/karnataka-governor-seeks-reconsideration-order-limiting-vande-mataram-rendition-two-stanzas-551240
-
-[Read on Telegram](https://t.me/livelawindia/120510)
+[Read on Telegram](https://t.me/livelawindia/120537)
 
 ---
-### 2026-09-22T10:25:03+00:00
-Plea In Madras High Court Challenges Govt's Decision To Construct New Secretariat Building In Pattinapakkam
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-new-secretariat-building-pattinampakkam-challenge-plea-551241
+### 2026-09-22T14:02:31+00:00
+2026 LiveLaw (SC) 973 | ANTONETTO J D'SOUZA VERSUS ALDILA BRAGANZA AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-973-antonetto-j-dsouza-versus-aldila-braganza-and-others-551304
 
-[Read on Telegram](https://t.me/livelawindia/120511)
-
----
-### 2026-09-22T10:32:43+00:00
-MSC Elsa 3 Wreck: Kerala High Court Takes Note Of Maritime Administration's Proposal For Independent Underwater Survey To Assess Risks
-https://www.livelaw.in/high-court/kerala-high-court/director-general-of-maritime-administration-independent-survey-msc-elsa-3-sinkage-551243
-
-[Read on Telegram](https://t.me/livelawindia/120512)
+[Read on Telegram](https://t.me/livelawindia/120538)
 
 ---
-### 2026-09-22T10:47:24+00:00
-Dental Masters Must Be Completed Within 6 Yrs; Mere Demand Draft Without Formal Request Letter Can't Secure Readmission: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-master-of-dental-surgery-course-completion-period-dci-regulations-551245
+### 2026-09-22T14:05:11+00:00
+Maternity Leave Pay Is A Constitutional Guarantee, Not Grace: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/maternity-leave-pay-is-a-constitutional-guarantee-not-a-matter-of-grace-senior-residents-cannot-be-denied-pay-during-leave-jk-high-court-551305
 
-[Read on Telegram](https://t.me/livelawindia/120513)
-
----
-### 2026-09-22T10:49:24+00:00
-Ayodhya Ram Temple Donation Theft |  105 Instances Of Unauthorised Currency Removal Found : SIT Tells Supreme Court
-https://www.livelaw.in/top-stories/ayodhya-ram-temple-donation-theft-105-instances-of-unauthorised-currency-removal-found-sit-tells-supreme-court-551248
-
-[Read on Telegram](https://t.me/livelawindia/120514)
+[Read on Telegram](https://t.me/livelawindia/120539)
 
 ---
-### 2026-09-22T11:02:34+00:00
-Lakhimpur Kheri Case | Victims Raise Doubts About Trial Judge, Supreme Court Asks Allahabad High Court To Examine
-https://www.livelaw.in/top-stories/supreme-court-lakhimpur-kheri-violence-farm-laws-ashish-mishra-bail-victims-allegations-against-trial-judge-high-court-to-take-appropriate-action-551252
+### 2026-09-22T14:08:31+00:00
+Supreme Court Restrains Regularization Of Unauthorized Constructions In Karnataka Using Premium FAR Scheme
+https://www.livelaw.in/top-stories/supreme-court-unauthorized-construction-cannot-be-regularized-using-premium-far-scheme-in-karnataka-scheme-clearance-subject-to-final-decision-551307
 
-[Read on Telegram](https://t.me/livelawindia/120515)
-
----
-### 2026-09-22T11:02:54+00:00
-Appeal Can't Be Rejected Over Delay In Communication Of Judgement By Lawyer In Absence Of Gross Negligence: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-appeal-delay-communication-judgment-negligence-551249
-
-[Read on Telegram](https://t.me/livelawindia/120516)
+[Read on Telegram](https://t.me/livelawindia/120540)
 
 ---
-### 2026-09-22T11:15:54+00:00
-Supreme Court 7-Judge Bench Begins Hearing On States' Power To Levy Surcharge/Additional Tax On Sales Tax
-https://www.livelaw.in/top-stories/supreme-court-7-judge-bench-begins-hearing-on-states-power-to-levy-surchargeadditional-tax-on-sales-tax-551256
+### 2026-09-22T14:12:11+00:00
+J&K&L High Court Allows Termination Of 24-Week Pregnancy Of Minor Rape Survivor, Says Statute Cannot Override Constitutional Protection
+https://www.livelaw.in/high-court/jammu-kashmir/mere-crossing-of-24-week-gestational-limit-cannot-deny-constitutional-protection-to-11-year-old-rape-survivor-jk-high-court-allows-mtp-551309
 
-[Read on Telegram](https://t.me/livelawindia/120517)
+[Read on Telegram](https://t.me/livelawindia/120541)
 
 ---
-### 2026-09-22T11:16:04+00:00
-Microfinance Fraud Case: Kerala High Court To Decide Whether Sanction Required To Prosecute Vellappally Natesan, Others
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-microfinance-fraud-case-prosecution-sanction-551257
+### 2026-09-22T14:13:51+00:00
+'Taxpayers Footing Inflated Medicine Prices Reimbursed To Hospitals Under Govt Schemes': Supreme Court
+https://www.livelaw.in/top-stories/taxpayers-footing-inflated-medicine-prices-reimbursed-to-hospitals-under-govt-schemes-supreme-court-551310
 
-[Read on Telegram](https://t.me/livelawindia/120518)
+[Read on Telegram](https://t.me/livelawindia/120542)
+
+---
+### 2026-09-22T14:20:12+00:00
+Allahabad High Court Grants Anticipatory Bail To Lawyer Facing FIR Over Allegedly Fake Law Degree
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-anticipatory-bail-lawyer-fir-fake-law-degree-551312
+
+[Read on Telegram](https://t.me/livelawindia/120543)
+
+---
+### 2026-09-22T14:21:01+00:00
+Outsourced Employees Can't Claim Regularisation Based  Long Service Without Employer-Employee Relationship: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/outsourced-employees-cant-claim-regularisation-based-long-service-without-employer-employee-relationship-ph-high-court-551314
+
+[Read on Telegram](https://t.me/livelawindia/120544)
+
+---
+### 2026-09-22T14:22:02+00:00
+Hindu Succession Act |Widow's Limited Interest Becomes Absolute Under S14(1) Even Without Partition: Supreme Court
+https://www.livelaw.in/supreme-court/hindu-succession-act-widows-limited-interest-becomes-absolute-under-s141-even-without-partition-supreme-court-551315
+
+[Read on Telegram](https://t.me/livelawindia/120545)
+
+---
+### 2026-09-22T14:25:56+00:00
+2026 LiveLaw (SC) 974 | GANAPATI (DEAD) BY HIS LRS VERSUS PRABHAKAR & OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-974-ganapati-dead-by-his-lrs-versus-prabhakar-others-551317
+
+[Read on Telegram](https://t.me/livelawindia/120546)
+
+---
+### 2026-09-22T14:32:41+00:00
+One Excluded Candidate Can Void Election. Thousands Of Wrongly Excluded Voters May Not
+https://www.livelaw.in/lawschool/articles/excluded-candidate-void-election-thousands-wrongly-excluded-voters-551119
+
+[Read on Telegram](https://t.me/livelawindia/120547)
+
+---
+### 2026-09-22T15:24:51+00:00
+High Court Summons Punjab Chief Secretary Over Payment Of Pending DA To State Employees
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-summons-chief-secretary-over-payment-of-pending-da-to-state-employees-551322
+
+[Read on Telegram](https://t.me/livelawindia/120548)
+
+---
+### 2026-09-22T15:29:51+00:00
+Rajasthan High Court Sits On Holiday, Protects Candidate From Arrest Hours Before  Municipal Chairman Poll
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-conducts-holiday-hearing-protect-candidate-arrest-municipal-election-551323
+
+[Read on Telegram](https://t.me/livelawindia/120549)
+
+---
+### 2026-09-22T15:43:11+00:00
+Delay In Re-Submitting Final Report After Curing Formal Defects Not Ground For Default Bail: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-default-bail-formal-defects-551324
+
+[Read on Telegram](https://t.me/livelawindia/120550)
+
+---
+### 2026-09-22T16:01:42+00:00
+Bar Council Of India Decisions, Including NALSAR Action, Taken Without Discussions With Members : BCI Member Tells Supreme Court
+https://www.livelaw.in/top-stories/bar-council-of-india-decisions-including-nalsar-action-taken-without-discussions-with-members-bci-member-tells-supreme-court-551327
+
+[Read on Telegram](https://t.me/livelawindia/120551)
 
 ---
