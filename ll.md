@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-21T15:00:05+00:00*
+*Last Updated: 2026-09-22T09:12:28+00:00*
 
 ---
 
-### 2026-09-21T15:00:05+00:00
-Allahabad High Court Orders ₹50K Compensation Over 5-Day Illegal Police Detention, Praises Cops For Candid Admission Of Error
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-50k-compensation-5day-illegal-police-detention-551138
+### 2026-09-22T09:12:28+00:00
+Delhi High Court Permits Accused To Travel Abroad For Son's Wedding, Directs ₹2 Lakh Furniture Donation For Delayed Passport Surrender
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-permits-accused-to-travel-abroad-for-sons-wedding-directs-2-lakh-furniture-donation-for-delayed-passport-surrender-551206
 
-[Read on Telegram](https://t.me/livelawindia/120432)
-
----
-### 2026-09-21T15:07:25+00:00
-Repeated Post-Release Involvement In Narcotic Offences Justifies Preventive Detention When PIT-NDPS Act Proves Inadequate: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/repeated-post-release-involvement-in-narcotic-offences-justifies-preventive-detention-when-ordinary-law-proves-inadequate-jk-high-court-551087
-
-[Read on Telegram](https://t.me/livelawindia/120433)
+[Read on Telegram](https://t.me/livelawindia/120499)
 
 ---
-### 2026-09-21T15:22:35+00:00
-2026 LiveLaw (SC) 967 | JASKARAN JEET SINGH DEOL v STATE OF PUNJAB
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-967-jaskaran-jeet-singh-deol-v-state-of-punjab-551141
+### 2026-09-22T09:22:48+00:00
+UP Police Recruitment | Non-Disclosure Of Pending Criminal Case Not Suppression Where Form Only Asked About Conviction: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-nondisclosure-pending-criminal-case-suppression-551212
 
-[Read on Telegram](https://t.me/livelawindia/120434)
-
----
-### 2026-09-21T15:25:15+00:00
-Can Civil Judge Notified As Commercial Court Hear Trademark Infringement Suits? Supreme Court Refers To Larger Bench
-https://www.livelaw.in/supreme-court/can-civil-judge-notified-as-commercial-court-hear-trademark-infringement-suits-supreme-court-refers-to-larger-bench-551142
-
-[Read on Telegram](https://t.me/livelawindia/120435)
+[Read on Telegram](https://t.me/livelawindia/120500)
 
 ---
-### 2026-09-21T15:26:15+00:00
-2026 LiveLaw (SC) 968 |  I.S.D.S. Private Limited & Anr. Versus M/s Khemka Food Products Pvt. Ltd. & Anr.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-968-isds-private-limited-anr-versus-ms-khemka-food-products-pvt-ltd-anr-551143
+### 2026-09-22T09:25:28+00:00
+Muttil Tree Felling Case : Supreme Court Transfers Cheating Case Against Augustine Brothers To Forest Court
+https://www.livelaw.in/top-stories/muttil-tree-felling-case-supreme-court-transfers-cheating-case-against-augustine-brothers-to-forest-court-551224
 
-[Read on Telegram](https://t.me/livelawindia/120436)
-
----
-### 2026-09-21T15:43:20+00:00
-Bombay High Court Quashes Case Against Man Accused Of Threatening Cop After Mobile Video Shows ₹300 Bribe Demand
-https://www.livelaw.in/high-court/bombay-high-court/cop-demanded-rs-300-bribe-foisted-false-case-551096
-
-[Read on Telegram](https://t.me/livelawindia/120437)
+[Read on Telegram](https://t.me/livelawindia/120501)
 
 ---
-### 2026-09-21T15:47:32+00:00
-Bail During Investigation In POCSO Case Where Child Was Assaulted By Uncle Is "Too Premature": J&K&L High Court Cancels Bail
-https://www.livelaw.in/high-court/jammu-kashmir/bail-during-investigation-in-pocso-case-where-child-was-assaulted-in-close-relatives-house-is-too-premature-jk-high-court-cancels-bail-551100
+### 2026-09-22T09:29:08+00:00
+Doctors Can't Evade Mandatory Govt Service Bond After Subsidized PG Education, But Must Get Counselling Opportunity: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/doctors-service-bond-subsidized-pg-education-counselling-allahabad-hc-551225
 
-[Read on Telegram](https://t.me/livelawindia/120438)
-
----
-### 2026-09-21T15:58:02+00:00
-Patna High Court Recommends Reforms In Prison Manual, Calls For Hearing Before Remission Seizure, Safeguards For Illiterate Prisoners
-https://www.livelaw.in/high-court/patna-high-court/patna-hc-recommends-reforms-in-prison-remission-system-calls-for-hearing-before-seizure-of-earned-remission-alternative-pathway-for-illiterate-prisoners-551091
-
-[Read on Telegram](https://t.me/livelawindia/120439)
+[Read on Telegram](https://t.me/livelawindia/120502)
 
 ---
-### 2026-09-21T16:13:02+00:00
-Personal-Enmity Assaults Are “Law And Order” Issue, Not Grounds For Preventive Detention: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/personal-enmity-assaults-are-a-law-and-order-issue-not-grounds-for-preventive-detention-jk-high-court-quashes-psa-order-551101
+### 2026-09-22T09:33:08+00:00
+Filed, Not Registered: Unhappy Situation At Trademark Registry
+https://www.livelaw.in/articles/filed-not-registered5-unhappy-situation-at-trademark-registry-551118
 
-[Read on Telegram](https://t.me/livelawindia/120440)
-
----
-### 2026-09-21T16:39:52+00:00
-Bombay High Court Takes Suo Motu Cognisance Of Noise Pollution Caused Due To Religious Processions
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-suo-motu-cognisance-noise-pollution-religious-processions-551145
-
-[Read on Telegram](https://t.me/livelawindia/120441)
+[Read on Telegram](https://t.me/livelawindia/120503)
 
 ---
-### 2026-09-21T16:48:12+00:00
-Mere Membership Of Terrorist Gang Not Enough To Invoke S.20 UAPA; Prosecution Must Prove Terrorist Act: J&K&l High Court
-https://www.livelaw.in/high-court/jammu-kashmir/mere-membership-of-terrorist-gang-not-enough-for-section-20-uapa-prosecution-must-prove-terrorist-act-under-section-15-jk-high-court-sets-aside-charge-551109
+### 2026-09-22T09:33:18+00:00
+P&H High Court Flags 'Deeply Concerning Trend' Of Public Servants Accused Of Corruption Being Reinstated To Same Pos During Trial
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-seeks-chief-secys-response-in-cop-accused-in-bribery-case-551214
 
-[Read on Telegram](https://t.me/livelawindia/120442)
-
----
-### 2026-09-21T16:49:32+00:00
-Central Government Can Authorise Any Officer Other Than SFIO Director To File Fraud Complaints Under Companies Act: Supreme Court
-https://www.livelaw.in/top-stories/central-government-can-authorise-any-officer-other-than-sfio-director-to-file-fraud-complaints-under-companies-act-supreme-court-551146
-
-[Read on Telegram](https://t.me/livelawindia/120443)
+[Read on Telegram](https://t.me/livelawindia/120504)
 
 ---
-### 2026-09-21T17:22:13+00:00
-Supreme Court Daily Round-Up : September 21, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-september-21-2026-551144
+### 2026-09-22T09:47:50+00:00
+Bank Can Retain Jewellery Pledged Against Gold Loan To Recover Other Dues Where Party Is Co-Borrower: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-holds-bank-retain-gold-ornaments-pledged-gold-loan-towards-indian-contract-act-551216
 
-[Read on Telegram](https://t.me/livelawindia/120444)
-
----
-### 2026-09-21T17:39:03+00:00
-ISF Moves Calcutta High Court Against ECI's Allotment Of 'Envelope' Symbol To Democratic Trinamool Congress
-https://www.livelaw.in/high-court/calcutta-high-court/isf-moves-calcutta-high-court-against-ecis-allotment-of-envelope-symbol-to-democratic-trinamool-congress-551147
-
-[Read on Telegram](https://t.me/livelawindia/120445)
+[Read on Telegram](https://t.me/livelawindia/120505)
 
 ---
-### 2026-09-21T18:11:43+00:00
-LiveLaw High Courts Daily Highlights: September 21, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-21-2026-551148
+### 2026-09-22T09:53:50+00:00
+Supreme Court Dismisses Plea Challenging 2018 SC/ST Act Amendment Restoring Stringent Provisions
+https://www.livelaw.in/top-stories/supreme-court-dismisses-plea-challenging-2018-scst-act-amendment-restoring-stringent-provisions-551231
 
-[Read on Telegram](https://t.me/livelawindia/120446)
-
----
-### 2026-09-22T02:32:56+00:00
-Stock Witnesses And Fair Criminal Process
-https://www.livelaw.in/articles/stock-witnesses-fair-criminal-process-551115
-
-[Read on Telegram](https://t.me/livelawindia/120447)
+[Read on Telegram](https://t.me/livelawindia/120506)
 
 ---
-### 2026-09-22T03:31:56+00:00
-Support Person Vacancy At District Child Protection Unit, Kaimur (Bhabhua)
-https://www.livelaw.in/job-updates/support-person-vacancy-at-district-child-protection-unit-kaimur-bhabhua-551149
+### 2026-09-22T10:03:03+00:00
+Acid Attack On Lawyer: Orissa High Court Orders In-Camera Trial, Rejects Accused's Transfer Plea Over 'Scary Atmosphere' Created By Bar
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-rejects-accused-plea-transfer-case-acid-attack-elderly-lawyer-551228
 
-[Read on Telegram](https://t.me/livelawindia/120448)
-
----
-### 2026-09-22T03:36:36+00:00
-Deputy Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/deputy-manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-551150
-
-[Read on Telegram](https://t.me/livelawindia/120449)
+[Read on Telegram](https://t.me/livelawindia/120507)
 
 ---
-### 2026-09-22T03:46:16+00:00
-Senior Manager/ Manager (Legal) Vacancy At Godrej Properties Limited
-https://www.livelaw.in/job-updates/senior-manager-manager-legal-vacancy-at-godrej-properties-limited-551151
+### 2026-09-22T10:03:33+00:00
+Supreme Court Refuses To Entertain Society's Writ Petition Over Karnataka-TN Cauvery River Water Dispute
+https://www.livelaw.in/top-stories/supreme-court-refuses-to-entertain-societys-writ-petition-over-karnataka-tn-cauvery-river-water-dispute-551236
 
-[Read on Telegram](https://t.me/livelawindia/120450)
+[Read on Telegram](https://t.me/livelawindia/120508)
 
 ---
-### 2026-09-22T03:54:16+00:00
-Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
-https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-551153
+### 2026-09-22T10:07:23+00:00
+J&K&L High Court Quashes Olympic Association Election, Calls Process “Sham" & Orders Fresh Polls
+https://www.livelaw.in/high-court/jammu-kashmir/jkl-high-court-quashes-olympic-association-election-calls-process-sham-on-the-face-of-it-orders-constitution-overhaul-fresh-polls-551104
 
-[Read on Telegram](https://t.me/livelawindia/120451)
+[Read on Telegram](https://t.me/livelawindia/120509)
+
+---
+### 2026-09-22T10:23:43+00:00
+Karnataka Governor Asks State To Reconsider Order Limiting 'Vande Mataram' Recital To 2 Stanzas
+https://www.livelaw.in/news-updates/karnataka-governor-seeks-reconsideration-order-limiting-vande-mataram-rendition-two-stanzas-551240
+
+[Read on Telegram](https://t.me/livelawindia/120510)
+
+---
+### 2026-09-22T10:25:03+00:00
+Plea In Madras High Court Challenges Govt's Decision To Construct New Secretariat Building In Pattinapakkam
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-new-secretariat-building-pattinampakkam-challenge-plea-551241
+
+[Read on Telegram](https://t.me/livelawindia/120511)
+
+---
+### 2026-09-22T10:32:43+00:00
+MSC Elsa 3 Wreck: Kerala High Court Takes Note Of Maritime Administration's Proposal For Independent Underwater Survey To Assess Risks
+https://www.livelaw.in/high-court/kerala-high-court/director-general-of-maritime-administration-independent-survey-msc-elsa-3-sinkage-551243
+
+[Read on Telegram](https://t.me/livelawindia/120512)
+
+---
+### 2026-09-22T10:47:24+00:00
+Dental Masters Must Be Completed Within 6 Yrs; Mere Demand Draft Without Formal Request Letter Can't Secure Readmission: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-master-of-dental-surgery-course-completion-period-dci-regulations-551245
+
+[Read on Telegram](https://t.me/livelawindia/120513)
+
+---
+### 2026-09-22T10:49:24+00:00
+Ayodhya Ram Temple Donation Theft |  105 Instances Of Unauthorised Currency Removal Found : SIT Tells Supreme Court
+https://www.livelaw.in/top-stories/ayodhya-ram-temple-donation-theft-105-instances-of-unauthorised-currency-removal-found-sit-tells-supreme-court-551248
+
+[Read on Telegram](https://t.me/livelawindia/120514)
+
+---
+### 2026-09-22T11:02:34+00:00
+Lakhimpur Kheri Case | Victims Raise Doubts About Trial Judge, Supreme Court Asks Allahabad High Court To Examine
+https://www.livelaw.in/top-stories/supreme-court-lakhimpur-kheri-violence-farm-laws-ashish-mishra-bail-victims-allegations-against-trial-judge-high-court-to-take-appropriate-action-551252
+
+[Read on Telegram](https://t.me/livelawindia/120515)
+
+---
+### 2026-09-22T11:02:54+00:00
+Appeal Can't Be Rejected Over Delay In Communication Of Judgement By Lawyer In Absence Of Gross Negligence: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-appeal-delay-communication-judgment-negligence-551249
+
+[Read on Telegram](https://t.me/livelawindia/120516)
+
+---
+### 2026-09-22T11:15:54+00:00
+Supreme Court 7-Judge Bench Begins Hearing On States' Power To Levy Surcharge/Additional Tax On Sales Tax
+https://www.livelaw.in/top-stories/supreme-court-7-judge-bench-begins-hearing-on-states-power-to-levy-surchargeadditional-tax-on-sales-tax-551256
+
+[Read on Telegram](https://t.me/livelawindia/120517)
+
+---
+### 2026-09-22T11:16:04+00:00
+Microfinance Fraud Case: Kerala High Court To Decide Whether Sanction Required To Prosecute Vellappally Natesan, Others
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-microfinance-fraud-case-prosecution-sanction-551257
+
+[Read on Telegram](https://t.me/livelawindia/120518)
 
 ---
