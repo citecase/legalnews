@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-22T12:31:09+00:00*
+*Last Updated: 2026-09-22T13:44:11+00:00*
 
 ---
 
-### 2026-09-22T12:31:09+00:00
-'Cancer Medicine Sold At ₹ 27,000 Though Retailer Cost Is 2700; Patients Extorted' : Supreme Court Flags Gaps In Drug Price Control
-https://www.livelaw.in/top-stories/cancer-medicine-sold-at-rs-27000-though-retailer-cost-is-2700-patients-extorted-supreme-court-drug-price-control-551286
-
-[Read on Telegram](https://t.me/livelawindia/120532)
-
----
-### 2026-09-22T13:41:30+00:00
-Karnataka High Court Chief Justice Nominates Sr Advocate S. Susheela And Advocate Vijayamma V. As Members Of State Bar Council
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-chief-justice-nominates-senior-advocate-susheela-vijayamma-women-members-state-bar-council-551296
-
-[Read on Telegram](https://t.me/livelawindia/120533)
-
----
 ### 2026-09-22T13:44:11+00:00
 LiveLaw Daily| Vande Mataram Challenge| Sharjeel Imam| Delhi SIR| 7-judge bench & more
 https://www.livelaw.in/podcast/sharjeel-imam-delhi-riots-delhi-sir-news-students-clat-judiciary-upsc-vande-mataram-551297
@@ -142,5 +128,19 @@ Bar Council Of India Decisions, Including NALSAR Action, Taken Without Discussio
 https://www.livelaw.in/top-stories/bar-council-of-india-decisions-including-nalsar-action-taken-without-discussions-with-members-bci-member-tells-supreme-court-551327
 
 [Read on Telegram](https://t.me/livelawindia/120551)
+
+---
+### 2026-09-22T17:22:36+00:00
+Supreme Court Daily Round-Up : September 22, 2026
+https://www.livelaw.in/round-ups/supreme-court-daily-round-up-september-22-2026-551328
+
+[Read on Telegram](https://t.me/livelawindia/120552)
+
+---
+### 2026-09-22T17:32:56+00:00
+LiveLaw High Courts Daily Highlights: September 22, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-22-2026-551326
+
+[Read on Telegram](https://t.me/livelawindia/120553)
 
 ---
