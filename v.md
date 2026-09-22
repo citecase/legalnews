@@ -1,6 +1,110 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-22T05:02:46+00:00*
+*Last Updated: 2026-09-22T11:32:57+00:00*
+
+---
+
+### 2026-09-22T11:32:57+00:00
+Recoveries Made After Three Days Of Arrest Appear Staged: Supreme Court Upholds Acquittal In Double Murder Case
+https://www.verdictum.in/supreme-court/the-state-of-himachal-pradesh-v-varinder-vermajatti-2026-insc-1028-acquittal-double-murder-1622477
+
+[Source Link](https://t.me/verdictumlegalupdates/29239)
+
+---
+
+### 2026-09-22T11:02:36+00:00
+Refinement Of Tool Is Necessary, Mechanical Notices Are Going: Apex Court Issues Notice On Plea Challenging Delhi SIR
+https://www.verdictum.in/supreme-court/issues-notice-plea-challenging-deletions-delhi-electoral-roll-during-sir-1622476
+
+[Source Link](https://t.me/verdictumlegalupdates/29238)
+
+---
+
+### 2026-09-22T10:33:15+00:00
+Revenue Considerations Can't Cure Ineligibility Of Bidders: Supreme Court
+https://www.verdictum.in/supreme-court/micky-traders-v-lry-labour-contractor-2026-insc-1025-revenue-considerations-ineligibility-bidder-1622475
+
+[Source Link](https://t.me/verdictumlegalupdates/29237)
+
+---
+
+### 2026-09-22T10:02:34+00:00
+Investigation Is Police’s Exclusive Domain; Courts Cannot Decide When It Must Stop Except In Exceptional Cases: Supreme Court
+https://www.verdictum.in/supreme-court/state-of-maharashtra-anr-v-momin-moiuddin-gulam-hasan-moin-mistri-anr-2026-insc-1021-1622474
+
+[Source Link](https://t.me/verdictumlegalupdates/29236)
+
+---
+
+### 2026-09-22T09:22:33+00:00
+Law Declared In Bijoe Emmanuel's Case Will Apply To Vande Mataram: Supreme Court Agrees To Consider Challenge To Penal Consequences
+https://www.verdictum.in/supreme-court/centre-to-respond-vande-mataram-national-song-musician-tm-krishna-bijoe-emmanuel-1622472
+
+[Source Link](https://t.me/verdictumlegalupdates/29235)
+
+---
+
+### 2026-09-22T09:02:33+00:00
+Once Article 22 Of Constitution Is Breached, Re-Arrest Of Accused Cannot Be Left To Police Discretion; Requires Prior Judicial Imprimatur: Supreme Court
+https://www.verdictum.in/supreme-court/jaskaran-jeet-singh-deol-v-state-of-punjab-2026-insc-1022-judicial-imprimatur-once-article-221-constitution-1622470
+
+[Source Link](https://t.me/verdictumlegalupdates/29234)
+
+---
+
+### 2026-09-22T08:32:32+00:00
+Supreme Court Seeks Allahabad High Court Chief Justice's Report On Presiding Judge's Conduct In Lakhimpur Kheri Violence Case
+https://www.verdictum.in/supreme-court/allahabad-high-court-chief-justices-report-on-presiding-judges-conduct-in-lakhimpur-kheri-violence-case-1622465
+
+[Source Link](https://t.me/verdictumlegalupdates/29233)
+
+---
+
+### 2026-09-22T08:02:51+00:00
+There Will Be No End To Disputes Between States: Supreme Court Refuses To Entertain Fresh Plea Regarding Allocation Of Cauvery River Water
+https://www.verdictum.in/supreme-court/fresh-plea-regarding-allocation-of-cauvery-river-water-refused-1622458
+
+[Source Link](https://t.me/verdictumlegalupdates/29232)
+
+---
+
+### 2026-09-22T07:22:30+00:00
+Karnataka High Court Defers Challenge To State Order Restricting 'Vande Mataram' To Two Stanzas Pending Supreme Court Hearing
+https://www.verdictum.in/karnataka-high-court/defers-challenge-state-order-restricting-vande-mataram-stanzas-supreme-court-hearing-1622462
+
+[Source Link](https://t.me/verdictumlegalupdates/29231)
+
+---
+
+### 2026-09-22T07:03:09+00:00
+Kerala High Court Grants Bail To Malayalam News Channel MD Anto Augustine In Liquor Case
+https://www.verdictum.in/kerala-high-court/bail-granted-malayalam-news-channel-md-anto-augustine-in-liquor-case-1622455
+
+[Source Link](https://t.me/verdictumlegalupdates/29230)
+
+---
+
+### 2026-09-22T06:32:48+00:00
+Framing All Issues Does Not Exhaust Court's Discretion To Try A Preliminary Issue First: Supreme Court Clarifies Order XIV Rule 2(2) CPC
+https://www.verdictum.in/supreme-court/john-mathew-v-santha-paul-2026-insc-1020-order-xiv-rule-22-cpc-1622453
+
+[Source Link](https://t.me/verdictumlegalupdates/29229)
+
+---
+
+### 2026-09-22T06:02:07+00:00
+Fair Skin, Height Or Curly Hair Irrelevant To Decide Caste Status After Reconversion; Community Acceptance Is Material: Madras High Court
+https://www.verdictum.in/madras-high-court/m-ravikumar-v-district-level-vigilance-committee-tiruvannamalai-ors-2026mhc3830-1622450
+
+[Source Link](https://t.me/verdictumlegalupdates/29228)
+
+---
+
+### 2026-09-22T05:32:27+00:00
+Shocks The Very Conscience Of The Court: Supreme Court Orders De Novo Probe Into 2012 Dharmasthala Minor's Rape & Murder Case
+https://www.verdictum.in/supreme-court/kusumavati-gowda-v-the-government-of-karnataka-2026-insc-1030-dharmasthala-minor-rape-murder-case-1622449
+
+[Source Link](https://t.me/verdictumlegalupdates/29227)
 
 ---
 
@@ -57,110 +161,6 @@ Allahabad High Court Stays Government Order Providing Inflated SC Reservation Of
 https://www.verdictum.in/allahabad-high-court/sachin-singh-and-another-v-state-of-up-government-order-reservation-medical-colleges-1622417
 
 [Source Link](https://t.me/verdictumlegalupdates/29220)
-
----
-
-### 2026-09-21T12:52:18+00:00
-Delhi Court Sets Aside Magistrate's Order Refusing Probe In Sonia Gandhi's Pre-Citizenship Electoral Entry
-https://www.verdictum.in/other-courts/magistrates-order-refusing-probe-sonia-gandhis-pre-citizenship-electoral-entry-set-aside-1622416
-
-[Source Link](https://t.me/verdictumlegalupdates/29219)
-
----
-
-### 2026-09-21T12:12:57+00:00
-Will File Chargesheet By September 25: UP SIT Submits Before Supreme Court In Ayodhya Ram Mandir Donation Row
-https://www.verdictum.in/supreme-court/up-sit-submits-before-supreme-court-ayodhya-ram-mandir-donation-row-1622410
-
-[Source Link](https://t.me/verdictumlegalupdates/29218)
-
----
-
-### 2026-09-21T11:32:37+00:00
-Preference To Local Candidates In Public Employment Cannot Override Merit: Himachal Pradesh High Court
-https://www.verdictum.in/himachal-high-court/manju-devi-v-state-of-himachal-pradesh-2026hhc39618-local-candidates-cannot-override-merit-interview-marks-1622409
-
-[Source Link](https://t.me/verdictumlegalupdates/29217)
-
----
-
-### 2026-09-21T11:02:16+00:00
-Supreme Court Seeks CBI's Response On Bail Plea By Ex-Secretary In Alleged CGPSC Recruitment Irregularities
-https://www.verdictum.in/supreme-court/cbis-response-on-bail-plea-by-ex-secretary-in-alleged-cgpsc-recruitment-irregularities-1622408
-
-[Source Link](https://t.me/verdictumlegalupdates/29216)
-
----
-
-### 2026-09-21T10:32:55+00:00
-Microscopic Examination Is Not An Analytical Or Chemical Test For Proving Food Adulteration: Bombay High Court
-https://www.verdictum.in/bombay-high-court/state-of-maharashtra-v-gorakh-arjun-marathe-anr-2026bhc-aug41740-1622407
-
-[Source Link](https://t.me/verdictumlegalupdates/29215)
-
----
-
-### 2026-09-21T10:02:34+00:00
-Weekly Overview| Supreme Court Judgments: September 14 – September 18, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-september-14-september-18-2026-1622405
-
-[Source Link](https://t.me/verdictumlegalupdates/29214)
-
----
-
-### 2026-09-21T09:33:13+00:00
-"Wild Witch Hunt": Delhi High Court Refuses To Entertain Plea Seeking FIR Against Justice Yashwant Varma
-https://www.verdictum.in/delhi-high-court/delhi-high-court-refuses-to-entertain-plea-seeking-fir-against-justice-yashwant-varma-1622403
-
-[Source Link](https://t.me/verdictumlegalupdates/29213)
-
----
-
-### 2026-09-21T09:02:32+00:00
-Tribunals Are Govt’s Lifeline, How Will They Function With No Infrastructure: Apex Court Asks Centre To Identify Required Amenities
-https://www.verdictum.in/supreme-court/tribunals-lifeline-no-infrastructure-centre-to-identify-required-amenities-1622401
-
-[Source Link](https://t.me/verdictumlegalupdates/29212)
-
----
-
-### 2026-09-21T08:32:31+00:00
-Cinematographic Film Not "IT Software"; Mode Of Delivery Cannot Determine Classification: Bombay High Court
-https://www.verdictum.in/bombay-high-court/dharma-productions-pvt-ltd-v-state-of-maharashtra-2026bhc-os20584-db-information-technology-software-films-copyright-1622400
-
-[Source Link](https://t.me/verdictumlegalupdates/29211)
-
----
-
-### 2026-09-21T08:02:11+00:00
-Unfilled Vacancy U/S 36 PwD Act 1995 Attracts Statutory Carry-Forward Regime & Doesn’t Make Every Available Candidate Suitable: Delhi High Court
-https://www.verdictum.in/delhi-high-court/ashwin-jawaharlal-mehta-v-union-of-india-ors-2026dhc8075-sec36-1995-pwd-act-vacancy-1622384
-
-[Source Link](https://t.me/verdictumlegalupdates/29210)
-
----
-
-### 2026-09-21T07:32:50+00:00
-Supreme Court Issues Notice On Comedian Pranit More’s Plea To Club FIRs In ‘Rs 370 Biryani’ Row
-https://www.verdictum.in/supreme-court/issues-notice-comedian-pranit-more-plea-club-firs-rs-370-biryani-row-1622395
-
-[Source Link](https://t.me/verdictumlegalupdates/29209)
-
----
-
-### 2026-09-21T07:02:49+00:00
-Supreme Court Issues Notice On Plea Seeking Guidelines For Construction Safety; Proposes Welfare Corpus And Mandatory Licensing Conditions
-https://www.verdictum.in/supreme-court/issues-notice-construction-safety-proposes-welfare-corpus-and-mandatory-licensing-conditions-1622391
-
-[Source Link](https://t.me/verdictumlegalupdates/29208)
-
----
-
-### 2026-09-21T06:32:28+00:00
-Supreme Court Agrees To Constitute Special Bench To Hear NHAI’s Plea Against Direction To Construct Shelters For Stray Cattle
-https://www.verdictum.in/supreme-court/special-bench-to-hear-nhais-plea-against-direction-to-construct-shelters-for-stray-cattle-1622387
-
-[Source Link](https://t.me/verdictumlegalupdates/29207)
 
 ---
 
