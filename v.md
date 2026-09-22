@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-22T11:32:57+00:00*
+*Last Updated: 2026-09-22T16:03:04+00:00*
+
+---
+
+### 2026-09-22T16:03:04+00:00
+Empanelment Of Advocate At District Legal Services Authority Kanpur Nagar
+https://www.verdictum.in/job-updates/district-legal-services-authority-1622484
+
+[Source Link](https://t.me/verdictumlegalupdates/29247)
+
+---
+
+### 2026-09-22T15:32:43+00:00
+Personal Enmity Incidents Are Individualistic Nature; No Potential To Disturb Public Order: Jammu & Kashmir and Ladakh High Court Quashes Detention Order
+https://www.verdictum.in/jammu-ladakh-high-court/mohd-yousuf-v-union-territory-of-jammu-and-kashmir-2026jklhc-jmu2959-public-order-detention-1622491
+
+[Source Link](https://t.me/verdictumlegalupdates/29246)
+
+---
+
+### 2026-09-22T14:52:22+00:00
+Statutory Health Warning On Cigarette Packs Cannot Be Excluded While Comparing Marks For Deceptive Similarity In Trademark Suit: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/pravin-kumar-v-itc-limited-2026chc-os400-db-ijm-gold-stag-itcs-gold-flake-suit-85-cotpa-1622492
+
+[Source Link](https://t.me/verdictumlegalupdates/29245)
+
+---
+
+### 2026-09-22T14:12:41+00:00
+Compelling Employees To Wear Santa Claus Red Cap Can Hurt Their Religious Sentiments: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/vikram-singh-v-state-of-up-2026ahc191034-force-employees-santa-claus-cap-1622493
+
+[Source Link](https://t.me/verdictumlegalupdates/29244)
+
+---
+
+### 2026-09-22T13:32:20+00:00
+NCDRC Cannot Brush Aside Surveyor Reports In Fire Insurance Claims Without Identifying Specific Deficiency: Supreme Court
+https://www.verdictum.in/supreme-court/ms-new-india-assurance-company-limited-v-ms-hemkund-duplex-and-board-private-limited-2026-insc-1023-1622489
+
+[Source Link](https://t.me/verdictumlegalupdates/29243)
+
+---
+
+### 2026-09-22T13:02:59+00:00
+Supreme Court Rejects PIL Challenging 2018 Amendment To SC/ST Act, Refuses To Revisit 2020 Verdict
+https://www.verdictum.in/supreme-court/pil-challenging-2018-amendment-to-scst-act-rejected-1622482
+
+[Source Link](https://t.me/verdictumlegalupdates/29242)
+
+---
+
+### 2026-09-22T12:32:19+00:00
+Supreme Court Asks Delhi & Haryana Police To File Response Over Cremation of Unidentified Body of Missing Realtor
+https://www.verdictum.in/supreme-court/delhi-haryana-police-to-file-response-over-cremation-of-unidentified-body-of-missing-realtor-1622481
+
+[Source Link](https://t.me/verdictumlegalupdates/29241)
+
+---
+
+### 2026-09-22T12:03:18+00:00
+To Be Examined By Impartial Agency: Allahabad High Court Orders Investigation Into Law Students' Allegations Of Caste-Based Remarks By Professor
+https://www.verdictum.in/allahabad-high-court/shubhendu-anand-and-another-v-state-of-up-caste-based-remarks-law-professor-1622479
+
+[Source Link](https://t.me/verdictumlegalupdates/29240)
 
 ---
 
@@ -97,70 +161,6 @@ Fair Skin, Height Or Curly Hair Irrelevant To Decide Caste Status After Reconver
 https://www.verdictum.in/madras-high-court/m-ravikumar-v-district-level-vigilance-committee-tiruvannamalai-ors-2026mhc3830-1622450
 
 [Source Link](https://t.me/verdictumlegalupdates/29228)
-
----
-
-### 2026-09-22T05:32:27+00:00
-Shocks The Very Conscience Of The Court: Supreme Court Orders De Novo Probe Into 2012 Dharmasthala Minor's Rape & Murder Case
-https://www.verdictum.in/supreme-court/kusumavati-gowda-v-the-government-of-karnataka-2026-insc-1030-dharmasthala-minor-rape-murder-case-1622449
-
-[Source Link](https://t.me/verdictumlegalupdates/29227)
-
----
-
-### 2026-09-22T05:02:46+00:00
-Can State Notifications Under Commercial Courts Act Dilute Restriction To Institute Suit Before Any Court Inferior To District Court? Supreme Court Refers Matter To Larger Bench
-https://www.verdictum.in/supreme-court/isds-private-limited-v-ms-khemka-food-products-pvt-ltd-state-notification-commercial-courts-1622446
-
-[Source Link](https://t.me/verdictumlegalupdates/29226)
-
----
-
-### 2026-09-22T04:32:55+00:00
-Prosecution U/S.406 IPC Of Every Member Of  Family Can’t Be Sustained Merely On Basis Of General Allegation Of Non-Return Of Stridhan: Delhi High Court
-https://www.verdictum.in/delhi-high-court/a-v-state-2026dhc7904-prosecution-section-406-ipc-allegation-non-return-stridhan-1622422
-
-[Source Link](https://t.me/verdictumlegalupdates/29225)
-
----
-
-### 2026-09-21T16:02:23+00:00
-Legal Officer Vacancy At National Commission for Minorities (NCM)
-https://www.verdictum.in/job-updates/national-commission-for-minorities-1622421
-
-[Source Link](https://t.me/verdictumlegalupdates/29224)
-
----
-
-### 2026-09-21T15:33:02+00:00
-Delhi High Court Directs CBI To Issue Red Corner Notice Against Man Who Made Allegations Against Judiciary
-https://www.verdictum.in/delhi-high-court/court-on-its-own-motion-v-adeeshwar-singhal-cbi-red-corner-notice-interpol-1622420
-
-[Source Link](https://t.me/verdictumlegalupdates/29223)
-
----
-
-### 2026-09-21T14:52:41+00:00
-Right To Rehabilitation Does Not Entitle Protected Slum Dwellers To In-Situ Housing: Bombay High Court
-https://www.verdictum.in/bombay-high-court/mangesh-yashwant-parave-ors-v-state-of-maharashtra-through-urban-development-department-ors-2026bhc-os19000-db-1622419
-
-[Source Link](https://t.me/verdictumlegalupdates/29222)
-
----
-
-### 2026-09-21T14:12:20+00:00
-Not Fair To Tarnish Entire Delhi Police Force: Delhi High Court Rejects CBI Probe Plea Into Assault On Advocates Protesting Against Manan Kumar Mishra
-https://www.verdictum.in/delhi-high-court/kunal-yadav-ors-v-manan-kumar-mishra-ors-2026dhc8081-bar-council-of-india-1622418
-
-[Source Link](https://t.me/verdictumlegalupdates/29221)
-
----
-
-### 2026-09-21T13:32:59+00:00
-Allahabad High Court Stays Government Order Providing Inflated SC Reservation Of Up to 60% In Medical Colleges
-https://www.verdictum.in/allahabad-high-court/sachin-singh-and-another-v-state-of-up-government-order-reservation-medical-colleges-1622417
-
-[Source Link](https://t.me/verdictumlegalupdates/29220)
 
 ---
 
