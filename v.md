@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-21T16:02:23+00:00*
+*Last Updated: 2026-09-22T05:02:46+00:00*
+
+---
+
+### 2026-09-22T05:02:46+00:00
+Can State Notifications Under Commercial Courts Act Dilute Restriction To Institute Suit Before Any Court Inferior To District Court? Supreme Court Refers Matter To Larger Bench
+https://www.verdictum.in/supreme-court/isds-private-limited-v-ms-khemka-food-products-pvt-ltd-state-notification-commercial-courts-1622446
+
+[Source Link](https://t.me/verdictumlegalupdates/29226)
+
+---
+
+### 2026-09-22T04:32:55+00:00
+Prosecution U/S.406 IPC Of Every Member Of  Family Can’t Be Sustained Merely On Basis Of General Allegation Of Non-Return Of Stridhan: Delhi High Court
+https://www.verdictum.in/delhi-high-court/a-v-state-2026dhc7904-prosecution-section-406-ipc-allegation-non-return-stridhan-1622422
+
+[Source Link](https://t.me/verdictumlegalupdates/29225)
 
 ---
 
@@ -145,22 +161,6 @@ Supreme Court Agrees To Constitute Special Bench To Hear NHAI’s Plea Against D
 https://www.verdictum.in/supreme-court/special-bench-to-hear-nhais-plea-against-direction-to-construct-shelters-for-stray-cattle-1622387
 
 [Source Link](https://t.me/verdictumlegalupdates/29207)
-
----
-
-### 2026-09-21T05:53:07+00:00
-Supreme Court Agrees To List Mamata Banerjee’s Plea Against ECI's Order Barring Use Of AITC Name And Symbol By Both Factions
-https://www.verdictum.in/supreme-court/mamata-banerjee-approaches-supreme-court-election-commission-order-1622385
-
-[Source Link](https://t.me/verdictumlegalupdates/29206)
-
----
-
-### 2026-09-21T05:12:26+00:00
-Costs Can Be Imposed On Parties In "Consent Quashing" Cases For Putting Criminal Law Into Motion: Bombay High Court
-https://www.verdictum.in/bombay-high-court/niraj-rajaram-more-v-the-state-of-maharashtra-2026bhc-as37904-impose-cost-consent-quashing-1622381
-
-[Source Link](https://t.me/verdictumlegalupdates/29205)
 
 ---
 
