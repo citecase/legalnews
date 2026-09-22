@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-21T14:25:44+00:00*
+*Last Updated: 2026-09-21T15:00:05+00:00*
 
 ---
 
-### 2026-09-21T14:25:44+00:00
-Police Statement That 'Sufficient Material Exists To File Chargesheet'  Doesn't Mean Default Bail Can Be Granted : Supreme Court
-https://www.livelaw.in/supreme-court/police-statement-that-sufficient-material-exists-to-file-chargesheet-doesnt-mean-default-bail-can-be-granted-supreme-court-551128
-
-[Read on Telegram](https://t.me/livelawindia/120427)
-
----
-### 2026-09-21T14:26:54+00:00
-2026 LiveLaw (SC) 966 | THE STATE OF MAHARASHTRA & ANR. VERSUS MOMIN MOIUDDIN GULAM HASAN @ MOIN MISTRI & ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-966-the-state-of-maharashtra-anr-versus-momin-moiuddin-gulam-hasan-moin-mistri-anr-551129
-
-[Read on Telegram](https://t.me/livelawindia/120428)
-
----
-### 2026-09-21T14:32:24+00:00
-Killing Of Chongtham Vikram Singh: Equal Protection, Unequal Belonging
-https://www.livelaw.in/articles/killing-chongtham-vikram-singh-equal-protection-unequal-belonging-550952
-
-[Read on Telegram](https://t.me/livelawindia/120429)
-
----
-### 2026-09-21T14:41:24+00:00
-Dushyant Dave To Deliver 17th K.M. Bashir Memorial Lecture On Constitutional Governance And Democratic Values On September 24
-https://www.livelaw.in/events/vakkom-moulavi-foundation-trust-km-bashir-memorial-lecture-551133
-
-[Read on Telegram](https://t.me/livelawindia/120430)
-
----
-### 2026-09-21T14:53:04+00:00
-'Special Police Officers' Not Covered Under Article 311 But Entitled To Minimum Safeguards Before Disengagement: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/spos-not-covered-by-article-311-but-entitled-to-minimum-safeguard-of-notice-and-reply-before-stigmatic-disengagement-jk-high-court-551092
-
-[Read on Telegram](https://t.me/livelawindia/120431)
-
----
 ### 2026-09-21T15:00:05+00:00
 Allahabad High Court Orders ₹50K Compensation Over 5-Day Illegal Police Detention, Praises Cops For Candid Admission Of Error
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-50k-compensation-5day-illegal-police-detention-551138
@@ -142,5 +107,40 @@ LiveLaw High Courts Daily Highlights: September 21, 2026
 https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-21-2026-551148
 
 [Read on Telegram](https://t.me/livelawindia/120446)
+
+---
+### 2026-09-22T02:32:56+00:00
+Stock Witnesses And Fair Criminal Process
+https://www.livelaw.in/articles/stock-witnesses-fair-criminal-process-551115
+
+[Read on Telegram](https://t.me/livelawindia/120447)
+
+---
+### 2026-09-22T03:31:56+00:00
+Support Person Vacancy At District Child Protection Unit, Kaimur (Bhabhua)
+https://www.livelaw.in/job-updates/support-person-vacancy-at-district-child-protection-unit-kaimur-bhabhua-551149
+
+[Read on Telegram](https://t.me/livelawindia/120448)
+
+---
+### 2026-09-22T03:36:36+00:00
+Deputy Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
+https://www.livelaw.in/job-updates/deputy-manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-551150
+
+[Read on Telegram](https://t.me/livelawindia/120449)
+
+---
+### 2026-09-22T03:46:16+00:00
+Senior Manager/ Manager (Legal) Vacancy At Godrej Properties Limited
+https://www.livelaw.in/job-updates/senior-manager-manager-legal-vacancy-at-godrej-properties-limited-551151
+
+[Read on Telegram](https://t.me/livelawindia/120450)
+
+---
+### 2026-09-22T03:54:16+00:00
+Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
+https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-551153
+
+[Read on Telegram](https://t.me/livelawindia/120451)
 
 ---
