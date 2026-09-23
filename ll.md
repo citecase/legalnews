@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-23T13:14:11+00:00*
+*Last Updated: 2026-09-23T14:25:01+00:00*
 
 ---
 
-### 2026-09-23T13:14:11+00:00
-'Prime Minister's Nominee Can't Be Expected To Defy Him': Justice Datta Doubts Independence Of Election Commissioners' Selection Panel
-https://www.livelaw.in/top-stories/prime-ministers-nominee-cant-be-expected-to-defy-him-justice-datta-doubts-independence-of-election-commissioners-selection-panel-551489
-
-[Read on Telegram](https://t.me/livelawindia/120633)
-
----
-### 2026-09-23T13:19:11+00:00
-DGP Appointments: Amicus Raju Ramachandran Objects To Odisha AG's Comment That He's Arguing Like Petitioner's Counsel
-https://www.livelaw.in/top-stories/supreme-court-dgp-appointments-case-amicus-raju-ramachandran-takes-objection-to-odisha-ag-comment-arguing-like-petitioner-counsel-551491
-
-[Read on Telegram](https://t.me/livelawindia/120634)
-
----
-### 2026-09-23T13:32:11+00:00
-Disputed Land-Acquisition Records Require Crime Branch Investigation With Signature Verification & Cyber Forensics: Tripura High Court
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-disputed-land-acquisition-records-require-crime-branch-investigation-551445
-
-[Read on Telegram](https://t.me/livelawindia/120635)
-
----
-### 2026-09-23T13:54:01+00:00
-LiveLaw Daily| ECI appointments| BCI PEARL-FIRST| Adani Defamation| TMC & more
-https://www.livelaw.in/podcast/adani-eci-election-commission-of-india-aiadmk-cjp-delhi-police-news-india-551496
-
-[Read on Telegram](https://t.me/livelawindia/120636)
-
----
-### 2026-09-23T14:08:01+00:00
-BREAKING | Supreme Court Stays Allahabad HC Order Quashing Student's NSA Detention & Slamming Noida DM Medha Roopam
-https://www.livelaw.in/top-stories/supreme-court-stays-allahabad-hc-order-quashing-students-nsa-detention-slamming-noida-dm-medha-roopam-551502
-
-[Read on Telegram](https://t.me/livelawindia/120637)
-
----
 ### 2026-09-23T14:25:01+00:00
 Supreme Court Judges Urge CJI To Consider Constituting Permanent Constitution Bench, Flag Years-Long Delay In References
 https://www.livelaw.in/top-stories/supreme-court-judges-urge-cji-to-consider-constituting-permanent-constitution-bench-flag-years-long-delay-in-references-551505
@@ -142,5 +107,40 @@ https://www.livelaw.in/supreme-court/supreme-court-frowns-upon-pil-challenging-i
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-977-op-mehta-versus-mohinder-kalta-ors-551523
 
 [Read on Telegram](https://t.me/livelawindia/120652)
+
+---
+### 2026-09-23T16:32:12+00:00
+Arbitration | High Court's Location Doesn't Become Arbitration's Seat Just Because HC Appointed Arbitrator : Supreme Court
+https://www.livelaw.in/supreme-court/arbitration-high-courts-location-doesnt-become-arbitrations-seat-just-because-hc-appointed-arbitrator-supreme-court-551524
+
+[Read on Telegram](https://t.me/livelawindia/120653)
+
+---
+### 2026-09-23T16:33:12+00:00
+2026 LiveLaw (SC) 978 | MAHANADI COALFIELDS LTD & ORS. VERSUS M/S GSCO (GURMEET SINGH AND COMPANY) INFRASTRUCTURE PVT. LTD.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-978-mahanadi-coalfields-ltd-ors-versus-ms-gsco-gurmeet-singh-and-company-infrastructure-pvt-ltd-551525
+
+[Read on Telegram](https://t.me/livelawindia/120654)
+
+---
+### 2026-09-23T17:17:22+00:00
+Supreme Court Daily Round-Up : September 23, 2026
+https://www.livelaw.in/round-ups/supreme-court-daily-round-up-september-23-2026-551526
+
+[Read on Telegram](https://t.me/livelawindia/120655)
+
+---
+### 2026-09-23T17:49:33+00:00
+LiveLaw High Courts Daily Highlights: September 23, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-23-2026-551527
+
+[Read on Telegram](https://t.me/livelawindia/120656)
+
+---
+### 2026-09-23T17:52:33+00:00
+Supreme Court Collegium Recommends Making 5 Additional Judges Of Kerala High Court Permanent
+https://www.livelaw.in/high-court/kerala-high-court/supreme-court-collegium-recommends-making-5-additional-judges-of-kerala-high-court-permanent-551528
+
+[Read on Telegram](https://t.me/livelawindia/120657)
 
 ---
