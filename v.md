@@ -1,6 +1,110 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-23T05:02:24+00:00*
+*Last Updated: 2026-09-23T11:32:16+00:00*
+
+---
+
+### 2026-09-23T11:32:16+00:00
+Delhi High Court Issues Notice In Plea Alleging Gender Discrimination In Territorial Army Officers’ Recruitment
+https://www.verdictum.in/delhi-high-court/plea-alleging-gender-discrimination-in-territorial-army-officers-recruitment-1622555
+
+[Source Link](https://t.me/verdictumlegalupdates/29262)
+
+---
+
+### 2026-09-23T11:03:16+00:00
+Supreme Court Seeks Centre’s Response On PIL Challenging Constitutional Validity Of Uncodified Rules Governing Inheritance Under Muslim Personal Law
+https://www.verdictum.in/supreme-court/pil-challenging-constitutional-validity-of-uncodified-rules-governing-inheritance-under-muslim-personal-law-1622553
+
+[Source Link](https://t.me/verdictumlegalupdates/29261)
+
+---
+
+### 2026-09-23T10:32:34+00:00
+Mere Recovery Of Tainted Money Without Proof Of Bribe Demand Cannot Sustain Conviction Under PC Act: Supreme Court
+https://www.verdictum.in/supreme-court/jaswinder-singh-dead-through-legal-representatives-v-state-of-punjab-2026-insc-1031-1622552
+
+[Source Link](https://t.me/verdictumlegalupdates/29260)
+
+---
+
+### 2026-09-23T10:02:13+00:00
+Anti-Suit Injunction Restraining Spouse From Pursuing Foreign Matrimonial Proceedings Ordinarily Unwarranted At Inchoate Stage: Supreme Court
+https://www.verdictum.in/supreme-court/mpb-v-vjb-2026-insc-1034-anti-suit-injunctions-foreign-courts-matrimonial-proceedings-1622549
+
+[Source Link](https://t.me/verdictumlegalupdates/29259)
+
+---
+
+### 2026-09-23T09:21:53+00:00
+Breaking: Apex Court Delivers Split Verdict On Referring Pleas Challenging Election Commissioners' Appointment Act; But Finally Refers To Constitution Bench
+https://www.verdictum.in/supreme-court/pleas-challenging-act-excluding-cji-in-election-commissioners-appointment-1622550
+
+[Source Link](https://t.me/verdictumlegalupdates/29258)
+
+---
+
+### 2026-09-23T09:02:52+00:00
+There Should Be Mandatory Preventive Detention: Supreme Court Takes Note Of Alleged Forest Ranger's Death In Illegal Mining Case
+https://www.verdictum.in/supreme-court/alleged-forest-rangers-death-in-illegal-mining-case-1622541
+
+[Source Link](https://t.me/verdictumlegalupdates/29257)
+
+---
+
+### 2026-09-23T08:16:11+00:00
+"Offending Observations": Apex Court Takes Suo Motu Cognizance Of Patna HC Observation That Removing Salwar & Pressing Chest Is Not Attempt To Rape
+https://www.verdictum.in/supreme-court/suo-motu-cognizance-patna-hc-remove-salwar-pressing-chest-not-attempt-to-rape-1622546
+
+[Source Link](https://t.me/verdictumlegalupdates/29256)
+
+---
+
+### 2026-09-23T08:02:30+00:00
+Supreme Court Refuses To Entertain Plea Seeking Directions To Centre & Social Media Platforms To Remove Alleged Anti-National Content
+https://www.verdictum.in/supreme-court/plea-seeking-directions-to-centre-social-media-platforms-to-remove-alleged-anti-national-content-1622539
+
+[Source Link](https://t.me/verdictumlegalupdates/29255)
+
+---
+
+### 2026-09-23T07:33:09+00:00
+Senior Citizens Tribunals Are Not Replacements For Civil Courts To Try Title Disputes Or Forgery Claims: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/balveer-singh-v-state-of-uttar-pradesh-2026ahc193275-db-tribunals-are-not-replacements-for-civil-courts-1622538
+
+[Source Link](https://t.me/verdictumlegalupdates/29254)
+
+---
+
+### 2026-09-23T07:02:28+00:00
+Child Witness Is An Easy Prey To Tutoring: Allahabad High Court Sets Aside Death Sentence;  Acquits Mother, Uncle In Triple Drowning Case
+https://www.verdictum.in/allahabad-high-court/priyanka-v-state-of-up-2026ahc198410-db-death-sentence-acquits-mother-killing-children-1622529
+
+[Source Link](https://t.me/verdictumlegalupdates/29253)
+
+---
+
+### 2026-09-23T06:29:26+00:00
+How BCI Is Expert Body To Regulate Legal Education: Supreme Court Seeks Response On Plea Challenging Bar Council's Regulatory Role And Asset Transfer To Trust
+https://www.verdictum.in/supreme-court/notice-in-plea-challenging-bar-council-regulatory-role-asset-transfer-trust-1622531
+
+[Source Link](https://t.me/verdictumlegalupdates/29252)
+
+---
+
+### 2026-09-23T06:03:06+00:00
+Arbitral Tribunal Can’t Exceed Jurisdiction U/S.31(7)(a) A&C Act By Awarding Interest When Contractual Clause Bars Such Interest For Pre-Reference Period: Supreme Court
+https://www.verdictum.in/supreme-court/north-eastern-electric-power-corporation-limited-v-astra-construction-private-limited-2026-insc-1036-1622527
+
+[Source Link](https://t.me/verdictumlegalupdates/29251)
+
+---
+
+### 2026-09-23T05:32:45+00:00
+Absence Of Original Document Not Fatal For Prosecution In Forgery Case; Can Be Proved By Circumstantial Evidence: Supreme Court
+https://www.verdictum.in/supreme-court/antonetto-j-dsouza-v-aldila-braganza-2026-insc-1032-absence-of-original-document-1622524
+
+[Source Link](https://t.me/verdictumlegalupdates/29250)
 
 ---
 
@@ -57,110 +161,6 @@ NCDRC Cannot Brush Aside Surveyor Reports In Fire Insurance Claims Without Ident
 https://www.verdictum.in/supreme-court/ms-new-india-assurance-company-limited-v-ms-hemkund-duplex-and-board-private-limited-2026-insc-1023-1622489
 
 [Source Link](https://t.me/verdictumlegalupdates/29243)
-
----
-
-### 2026-09-22T13:02:59+00:00
-Supreme Court Rejects PIL Challenging 2018 Amendment To SC/ST Act, Refuses To Revisit 2020 Verdict
-https://www.verdictum.in/supreme-court/pil-challenging-2018-amendment-to-scst-act-rejected-1622482
-
-[Source Link](https://t.me/verdictumlegalupdates/29242)
-
----
-
-### 2026-09-22T12:32:19+00:00
-Supreme Court Asks Delhi & Haryana Police To File Response Over Cremation of Unidentified Body of Missing Realtor
-https://www.verdictum.in/supreme-court/delhi-haryana-police-to-file-response-over-cremation-of-unidentified-body-of-missing-realtor-1622481
-
-[Source Link](https://t.me/verdictumlegalupdates/29241)
-
----
-
-### 2026-09-22T12:03:18+00:00
-To Be Examined By Impartial Agency: Allahabad High Court Orders Investigation Into Law Students' Allegations Of Caste-Based Remarks By Professor
-https://www.verdictum.in/allahabad-high-court/shubhendu-anand-and-another-v-state-of-up-caste-based-remarks-law-professor-1622479
-
-[Source Link](https://t.me/verdictumlegalupdates/29240)
-
----
-
-### 2026-09-22T11:32:57+00:00
-Recoveries Made After Three Days Of Arrest Appear Staged: Supreme Court Upholds Acquittal In Double Murder Case
-https://www.verdictum.in/supreme-court/the-state-of-himachal-pradesh-v-varinder-vermajatti-2026-insc-1028-acquittal-double-murder-1622477
-
-[Source Link](https://t.me/verdictumlegalupdates/29239)
-
----
-
-### 2026-09-22T11:02:36+00:00
-Refinement Of Tool Is Necessary, Mechanical Notices Are Going: Apex Court Issues Notice On Plea Challenging Delhi SIR
-https://www.verdictum.in/supreme-court/issues-notice-plea-challenging-deletions-delhi-electoral-roll-during-sir-1622476
-
-[Source Link](https://t.me/verdictumlegalupdates/29238)
-
----
-
-### 2026-09-22T10:33:15+00:00
-Revenue Considerations Can't Cure Ineligibility Of Bidders: Supreme Court
-https://www.verdictum.in/supreme-court/micky-traders-v-lry-labour-contractor-2026-insc-1025-revenue-considerations-ineligibility-bidder-1622475
-
-[Source Link](https://t.me/verdictumlegalupdates/29237)
-
----
-
-### 2026-09-22T10:02:34+00:00
-Investigation Is Police’s Exclusive Domain; Courts Cannot Decide When It Must Stop Except In Exceptional Cases: Supreme Court
-https://www.verdictum.in/supreme-court/state-of-maharashtra-anr-v-momin-moiuddin-gulam-hasan-moin-mistri-anr-2026-insc-1021-1622474
-
-[Source Link](https://t.me/verdictumlegalupdates/29236)
-
----
-
-### 2026-09-22T09:22:33+00:00
-Law Declared In Bijoe Emmanuel's Case Will Apply To Vande Mataram: Supreme Court Agrees To Consider Challenge To Penal Consequences
-https://www.verdictum.in/supreme-court/centre-to-respond-vande-mataram-national-song-musician-tm-krishna-bijoe-emmanuel-1622472
-
-[Source Link](https://t.me/verdictumlegalupdates/29235)
-
----
-
-### 2026-09-22T09:02:33+00:00
-Once Article 22 Of Constitution Is Breached, Re-Arrest Of Accused Cannot Be Left To Police Discretion; Requires Prior Judicial Imprimatur: Supreme Court
-https://www.verdictum.in/supreme-court/jaskaran-jeet-singh-deol-v-state-of-punjab-2026-insc-1022-judicial-imprimatur-once-article-221-constitution-1622470
-
-[Source Link](https://t.me/verdictumlegalupdates/29234)
-
----
-
-### 2026-09-22T08:32:32+00:00
-Supreme Court Seeks Allahabad High Court Chief Justice's Report On Presiding Judge's Conduct In Lakhimpur Kheri Violence Case
-https://www.verdictum.in/supreme-court/allahabad-high-court-chief-justices-report-on-presiding-judges-conduct-in-lakhimpur-kheri-violence-case-1622465
-
-[Source Link](https://t.me/verdictumlegalupdates/29233)
-
----
-
-### 2026-09-22T08:02:51+00:00
-There Will Be No End To Disputes Between States: Supreme Court Refuses To Entertain Fresh Plea Regarding Allocation Of Cauvery River Water
-https://www.verdictum.in/supreme-court/fresh-plea-regarding-allocation-of-cauvery-river-water-refused-1622458
-
-[Source Link](https://t.me/verdictumlegalupdates/29232)
-
----
-
-### 2026-09-22T07:22:30+00:00
-Karnataka High Court Defers Challenge To State Order Restricting 'Vande Mataram' To Two Stanzas Pending Supreme Court Hearing
-https://www.verdictum.in/karnataka-high-court/defers-challenge-state-order-restricting-vande-mataram-stanzas-supreme-court-hearing-1622462
-
-[Source Link](https://t.me/verdictumlegalupdates/29231)
-
----
-
-### 2026-09-22T07:03:09+00:00
-Kerala High Court Grants Bail To Malayalam News Channel MD Anto Augustine In Liquor Case
-https://www.verdictum.in/kerala-high-court/bail-granted-malayalam-news-channel-md-anto-augustine-in-liquor-case-1622455
-
-[Source Link](https://t.me/verdictumlegalupdates/29230)
 
 ---
 
