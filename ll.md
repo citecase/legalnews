@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-22T14:20:12+00:00*
+*Last Updated: 2026-09-23T08:23:24+00:00*
 
 ---
 
-### 2026-09-22T14:20:12+00:00
-Allahabad High Court Grants Anticipatory Bail To Lawyer Facing FIR Over Allegedly Fake Law Degree
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-anticipatory-bail-lawyer-fir-fake-law-degree-551312
+### 2026-09-23T08:23:24+00:00
+Drinking Water Supply Cannot Be Subject To Technicalities: Karnataka High Court Tells Govt
+https://www.livelaw.in/high-court/karnataka-high-court/village-drinking-water-supply-madalur-interlinking-feeder-channel-551405
 
-[Read on Telegram](https://t.me/livelawindia/120543)
-
----
-### 2026-09-22T14:21:01+00:00
-Outsourced Employees Can't Claim Regularisation Based  Long Service Without Employer-Employee Relationship: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/outsourced-employees-cant-claim-regularisation-based-long-service-without-employer-employee-relationship-ph-high-court-551314
-
-[Read on Telegram](https://t.me/livelawindia/120544)
+[Read on Telegram](https://t.me/livelawindia/120601)
 
 ---
-### 2026-09-22T14:22:02+00:00
-Hindu Succession Act |Widow's Limited Interest Becomes Absolute Under S14(1) Even Without Partition: Supreme Court
-https://www.livelaw.in/supreme-court/hindu-succession-act-widows-limited-interest-becomes-absolute-under-s141-even-without-partition-supreme-court-551315
+### 2026-09-23T08:31:44+00:00
+Delhi High Court Seeks Centre's Response On Plea Alleging Gender-Discriminatory Vacancy Allocation In Territorial Army Recruitment
+https://www.livelaw.in/high-court/delhi-high-court/territorial-army-recruitment-gender-discrimination-vacancy-allocation-pil-551409
 
-[Read on Telegram](https://t.me/livelawindia/120545)
-
----
-### 2026-09-22T14:25:56+00:00
-2026 LiveLaw (SC) 974 | GANAPATI (DEAD) BY HIS LRS VERSUS PRABHAKAR & OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-974-ganapati-dead-by-his-lrs-versus-prabhakar-others-551317
-
-[Read on Telegram](https://t.me/livelawindia/120546)
+[Read on Telegram](https://t.me/livelawindia/120602)
 
 ---
-### 2026-09-22T14:32:41+00:00
-One Excluded Candidate Can Void Election. Thousands Of Wrongly Excluded Voters May Not
-https://www.livelaw.in/lawschool/articles/excluded-candidate-void-election-thousands-wrongly-excluded-voters-551119
+### 2026-09-23T08:40:44+00:00
+Adani Defamation Case: Gujarat High Court Reserves Verdict On Ravi Nair's Plea Against NBW, Refuses Interim Release
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-ravi-nair-plea-for-interim-release-from-custody-adani-551410
 
-[Read on Telegram](https://t.me/livelawindia/120547)
-
----
-### 2026-09-22T15:24:51+00:00
-High Court Summons Punjab Chief Secretary Over Payment Of Pending DA To State Employees
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-summons-chief-secretary-over-payment-of-pending-da-to-state-employees-551322
-
-[Read on Telegram](https://t.me/livelawindia/120548)
+[Read on Telegram](https://t.me/livelawindia/120603)
 
 ---
-### 2026-09-22T15:29:51+00:00
-Rajasthan High Court Sits On Holiday, Protects Candidate From Arrest Hours Before  Municipal Chairman Poll
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-conducts-holiday-hearing-protect-candidate-arrest-municipal-election-551323
+### 2026-09-23T08:52:04+00:00
+MLAs Who Stay Silent During Assembly Vote Can't Challenge It Later: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-mla-silent-voting-for-amendment-cannot-challenge-it-551415
 
-[Read on Telegram](https://t.me/livelawindia/120549)
-
----
-### 2026-09-22T15:43:11+00:00
-Delay In Re-Submitting Final Report After Curing Formal Defects Not Ground For Default Bail: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-default-bail-formal-defects-551324
-
-[Read on Telegram](https://t.me/livelawindia/120550)
+[Read on Telegram](https://t.me/livelawindia/120604)
 
 ---
-### 2026-09-22T16:01:42+00:00
-Bar Council Of India Decisions, Including NALSAR Action, Taken Without Discussions With Members : BCI Member Tells Supreme Court
-https://www.livelaw.in/top-stories/bar-council-of-india-decisions-including-nalsar-action-taken-without-discussions-with-members-bci-member-tells-supreme-court-551327
+### 2026-09-23T09:00:24+00:00
+Kerala High Court Upholds Navy Rule Allowing Investigating Officer To Act As Prosecutor In Court-Martial
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-navy-rule-investigating-officer-act-as-prosecutor-court-martial-551420
 
-[Read on Telegram](https://t.me/livelawindia/120551)
-
----
-### 2026-09-22T17:22:36+00:00
-Supreme Court Daily Round-Up : September 22, 2026
-https://www.livelaw.in/round-ups/supreme-court-daily-round-up-september-22-2026-551328
-
-[Read on Telegram](https://t.me/livelawindia/120552)
+[Read on Telegram](https://t.me/livelawindia/120605)
 
 ---
-### 2026-09-22T17:32:56+00:00
-LiveLaw High Courts Daily Highlights: September 22, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-22-2026-551326
+### 2026-09-23T09:02:24+00:00
+Vehicle Seized In NDPS Case Can't Be Released To Financier Over Owner's Loan Default: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/ndps-financer-not-entitled-to-interim-custody-vehicle-loan-default-551417
 
-[Read on Telegram](https://t.me/livelawindia/120553)
-
----
-### 2026-09-23T02:29:35+00:00
-Call For Blog Submissions | The CADR BLOG, CADR-RGNUL | Submissions In English And Hindi On A Rolling Basis
-https://www.livelaw.in/lawschool/call-for-papers/blog-submissions-cadr-blog-cadr-rgnul-submissions-english-hindi-551329
-
-[Read on Telegram](https://t.me/livelawindia/120554)
+[Read on Telegram](https://t.me/livelawindia/120606)
 
 ---
-### 2026-09-23T03:02:28+00:00
-After Supreme Court Nudge, Centre Proposes Skill Training Courses For Cadets Discharged From Military Training Due To Disability
-https://www.livelaw.in/top-stories/after-supreme-court-nudge-centre-proposes-skill-training-courses-for-cadets-discharged-from-military-training-due-to-disability-551330
+### 2026-09-23T09:10:35+00:00
+BREAKING| Supreme Court Refers Pleas Challenging ECI Law To Constitution Bench; Justice Datta Questions Present Appointment Process
+https://www.livelaw.in/top-stories/supreme-court-refers-challenge-to-eci-law-to-constitution-bench-justice-datta-questions-present-appointment-process-551423
 
-[Read on Telegram](https://t.me/livelawindia/120555)
-
----
-### 2026-09-23T03:26:08+00:00
-Law Researchers/ Research Associates Vacancy At High Court Of Jharkhand, Ranchi
-https://www.livelaw.in/job-updates/law-researchers-research-associates-vacancy-at-high-court-of-jharkhand-ranchi-551331
-
-[Read on Telegram](https://t.me/livelawindia/120556)
+[Read on Telegram](https://t.me/livelawindia/120607)
 
 ---
-### 2026-09-23T03:27:08+00:00
-Assistant Public Prosecutor Vacancy At Odisha State Prosecution Service, Home Department, Odisha
-https://www.livelaw.in/job-updates/assistant-public-prosecutor-vacancy-at-odisha-state-prosecution-service-home-department-odisha-551332
+### 2026-09-23T09:17:15+00:00
+LiveLaw Punjab & Haryana High Court Weekly Roundup: September 14 - September 20, 2026
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-weekly-round-up-14-20-september-551421
 
-[Read on Telegram](https://t.me/livelawindia/120557)
-
----
-### 2026-09-23T03:28:08+00:00
-Member Vacancy At Competition Commission Of India
-https://www.livelaw.in/job-updates/member-vacancy-at-competition-commission-of-india-551333
-
-[Read on Telegram](https://t.me/livelawindia/120558)
+[Read on Telegram](https://t.me/livelawindia/120608)
 
 ---
-### 2026-09-23T03:32:08+00:00
-Widow Securing Compassionate Job After Husband's Death Can't Abandon His Parents: Rajasthan High Court Orders 25% Salary To Mother-In-Law
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-orders-salary-deduction-compassionate-appointment-after-remarried-551325
+### 2026-09-23T09:32:35+00:00
+Strength Of Soldier's Daughter Who Is different But Not Less
+https://www.livelaw.in/articles/strength-soldier-daughter-551292
 
-[Read on Telegram](https://t.me/livelawindia/120559)
-
----
-### 2026-09-23T03:34:28+00:00
-Manager (Legal) Vacancy At Tata Capital Limited [Mumbai; Apply Now]
-https://www.livelaw.in/job-updates/manager-legal-vacancy-at-tata-capital-limited-mumbai-551334
-
-[Read on Telegram](https://t.me/livelawindia/120560)
+[Read on Telegram](https://t.me/livelawindia/120609)
 
 ---
-### 2026-09-23T04:00:38+00:00
-Home Lift Installation Found Infeasible: Ernakulam Consumer Commission Orders Nibav Lifts To Refund Advance
-https://www.livelaw.in/consumer-cases/home-lift-installation-found-infeasible-ernakulam-consumer-commission-orders-nibav-lifts-to-refund-advance-551338
+### 2026-09-23T09:41:15+00:00
+Need 'Civilised' Celebrations: Bombay High Court Bans Firecrackers, Laser Lights In Religious Processions; Directs ₹1 Lakh Deposit, Prosecution
+https://www.livelaw.in/high-court/bombay-high-court/religious-processions-noise-pollution-firecracker-ban-explosives-act-551427
 
-[Read on Telegram](https://t.me/livelawindia/120561)
+[Read on Telegram](https://t.me/livelawindia/120610)
 
 ---
-### 2026-09-23T04:06:38+00:00
-Subsequent Conferment Of Transfer Power On Vice-Chancellor Can't Validate Earlier Transfer Order: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/subsequent-conferment-of-transfer-power-on-vice-chancellor-cant-validate-earlier-transfer-order-patna-high-court-551340
+### 2026-09-23T09:59:45+00:00
+Yash Paul Bourney Sworn In As Judge Of Jammu & Kashmir And Ladakh High Court
+https://www.livelaw.in/news-updates/yash-paul-bourney-sworn-in-as-judge-of-jammu-kashmir-and-ladakh-high-court-551432
 
-[Read on Telegram](https://t.me/livelawindia/120562)
+[Read on Telegram](https://t.me/livelawindia/120611)
+
+---
+### 2026-09-23T10:03:05+00:00
+Calcutta High Court Lifts Gag Order On Influencer's Video Flagging Alleged Excess Lead, Mercury In Zandu Ashwagandha Gold Plus
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-lifts-gag-order-on-influencers-video-flagging-alleged-excess-lead-mercury-in-zandu-ashwagandha-gold-plus-551386
+
+[Read on Telegram](https://t.me/livelawindia/120612)
+
+---
+### 2026-09-23T10:39:59+00:00
+Hope Present Collegium Makes Proper Choices In Future; Judiciary Playing Second Fiddle To Executive In Judges' Appointment : Justice Dipankar Datta
+https://www.livelaw.in/top-stories/hope-present-collegium-makes-proper-choices-in-future-judiciary-playing-second-fiddle-to-executive-in-judges-appointment-justice-dipankar-datta-551439
+
+[Read on Telegram](https://t.me/livelawindia/120613)
+
+---
+### 2026-09-23T10:53:39+00:00
+Scheduled Castes Commission Cannot Adjudicate Criminal Charges Or Declare Offences Proved: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/scheduled-castes-commission-cannot-adjudicate-criminal-charges-551440
+
+[Read on Telegram](https://t.me/livelawindia/120614)
+
+---
+### 2026-09-23T10:53:50+00:00
+Ensure Entire Fleet Of DTC Buses Ply On Roads: High Court Tells Delhi Govt, Closes PIL Against Drivers' Strike
+https://www.livelaw.in/high-court/delhi-high-court/ensure-entire-fleet-of-dtc-buses-ply-on-roads-high-court-tells-delhi-govt-closes-pil-against-drivers-strike-551441
+
+[Read on Telegram](https://t.me/livelawindia/120615)
+
+---
+### 2026-09-23T10:58:19+00:00
+Vadakara MDMA Case: Kerala High Court Grants Bail To Two Teachers Booked Under NDPS Act
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-teachers-ndps-case-551448
+
+[Read on Telegram](https://t.me/livelawindia/120616)
+
+---
+### 2026-09-23T11:00:59+00:00
+Supreme Court Rejects PIL To Remove "Anti-Government" & "Anti-Judiciary" Social Media Content
+https://www.livelaw.in/top-stories/supreme-court-pil-to-block-remove-from-social-media-content-spreading-communal-disharmony-or-undermining-judiciary-rejected-551453
+
+[Read on Telegram](https://t.me/livelawindia/120617)
+
+---
+### 2026-09-23T11:02:40+00:00
+Sikkim High Court Forms Bar Members' Panel To Probe Dilapidated Infrastructure At Government Law College
+https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-constitutes-committee-to-inquire-into-government-law-college-infrastructure-551444
+
+[Read on Telegram](https://t.me/livelawindia/120618)
+
+---
+### 2026-09-23T11:04:20+00:00
+'Cyber Crime Is Like An Addiction, It's All Easy Money': Supreme Court Refuses Bail
+https://www.livelaw.in/news-updates/supreme-court-551458
+
+[Read on Telegram](https://t.me/livelawindia/120619)
+
+---
+### 2026-09-23T11:08:00+00:00
+Supreme Court Pulls Up States/UT For Not Responding To Plea To Distribute Sanitary Napkins Via Fair Price Shops
+https://www.livelaw.in/top-stories/supreme-court-pil-for-sanitary-napkins-distribution-through-fair-price-shops-states-ut-affidavits-not-filed-show-cause-why-cost-rs25000-not-be-imposed-551460
+
+[Read on Telegram](https://t.me/livelawindia/120620)
 
 ---
