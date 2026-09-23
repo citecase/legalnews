@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-22T16:03:04+00:00*
+*Last Updated: 2026-09-23T05:02:24+00:00*
+
+---
+
+### 2026-09-23T05:02:24+00:00
+Hindu Succession Act| Widow Becomes Absolute Owner Of Property Devolved In Her Favor Upon Husband’s Demise; Partition Not Sine Qua Non: Supreme Court
+https://www.verdictum.in/supreme-court/ganapati-dead-by-his-lrs-v-prabhakar-2026-insc-1033-widow-owner-property-partition-1622521
+
+[Source Link](https://t.me/verdictumlegalupdates/29249)
+
+---
+
+### 2026-09-23T04:32:33+00:00
+No Privity Of Contract: Allahabad HC Imposes ₹1 Lakh Cost On Bank For Debiting Woman’s Account For Recovery Of Deceased Husband’s Loan
+https://www.verdictum.in/allahabad-high-court/neha-mishra-v-reserve-bank-of-india-2026ahc-lko63471-db-privity-contract-debit-fixed-deposit-recovery-1622494
+
+[Source Link](https://t.me/verdictumlegalupdates/29248)
 
 ---
 
@@ -145,22 +161,6 @@ Kerala High Court Grants Bail To Malayalam News Channel MD Anto Augustine In Liq
 https://www.verdictum.in/kerala-high-court/bail-granted-malayalam-news-channel-md-anto-augustine-in-liquor-case-1622455
 
 [Source Link](https://t.me/verdictumlegalupdates/29230)
-
----
-
-### 2026-09-22T06:32:48+00:00
-Framing All Issues Does Not Exhaust Court's Discretion To Try A Preliminary Issue First: Supreme Court Clarifies Order XIV Rule 2(2) CPC
-https://www.verdictum.in/supreme-court/john-mathew-v-santha-paul-2026-insc-1020-order-xiv-rule-22-cpc-1622453
-
-[Source Link](https://t.me/verdictumlegalupdates/29229)
-
----
-
-### 2026-09-22T06:02:07+00:00
-Fair Skin, Height Or Curly Hair Irrelevant To Decide Caste Status After Reconversion; Community Acceptance Is Material: Madras High Court
-https://www.verdictum.in/madras-high-court/m-ravikumar-v-district-level-vigilance-committee-tiruvannamalai-ors-2026mhc3830-1622450
-
-[Source Link](https://t.me/verdictumlegalupdates/29228)
 
 ---
 
