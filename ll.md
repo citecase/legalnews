@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-23T08:23:24+00:00*
+*Last Updated: 2026-09-23T13:14:11+00:00*
 
 ---
 
-### 2026-09-23T08:23:24+00:00
-Drinking Water Supply Cannot Be Subject To Technicalities: Karnataka High Court Tells Govt
-https://www.livelaw.in/high-court/karnataka-high-court/village-drinking-water-supply-madalur-interlinking-feeder-channel-551405
+### 2026-09-23T13:14:11+00:00
+'Prime Minister's Nominee Can't Be Expected To Defy Him': Justice Datta Doubts Independence Of Election Commissioners' Selection Panel
+https://www.livelaw.in/top-stories/prime-ministers-nominee-cant-be-expected-to-defy-him-justice-datta-doubts-independence-of-election-commissioners-selection-panel-551489
 
-[Read on Telegram](https://t.me/livelawindia/120601)
-
----
-### 2026-09-23T08:31:44+00:00
-Delhi High Court Seeks Centre's Response On Plea Alleging Gender-Discriminatory Vacancy Allocation In Territorial Army Recruitment
-https://www.livelaw.in/high-court/delhi-high-court/territorial-army-recruitment-gender-discrimination-vacancy-allocation-pil-551409
-
-[Read on Telegram](https://t.me/livelawindia/120602)
+[Read on Telegram](https://t.me/livelawindia/120633)
 
 ---
-### 2026-09-23T08:40:44+00:00
-Adani Defamation Case: Gujarat High Court Reserves Verdict On Ravi Nair's Plea Against NBW, Refuses Interim Release
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-ravi-nair-plea-for-interim-release-from-custody-adani-551410
+### 2026-09-23T13:19:11+00:00
+DGP Appointments: Amicus Raju Ramachandran Objects To Odisha AG's Comment That He's Arguing Like Petitioner's Counsel
+https://www.livelaw.in/top-stories/supreme-court-dgp-appointments-case-amicus-raju-ramachandran-takes-objection-to-odisha-ag-comment-arguing-like-petitioner-counsel-551491
 
-[Read on Telegram](https://t.me/livelawindia/120603)
-
----
-### 2026-09-23T08:52:04+00:00
-MLAs Who Stay Silent During Assembly Vote Can't Challenge It Later: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-mla-silent-voting-for-amendment-cannot-challenge-it-551415
-
-[Read on Telegram](https://t.me/livelawindia/120604)
+[Read on Telegram](https://t.me/livelawindia/120634)
 
 ---
-### 2026-09-23T09:00:24+00:00
-Kerala High Court Upholds Navy Rule Allowing Investigating Officer To Act As Prosecutor In Court-Martial
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-navy-rule-investigating-officer-act-as-prosecutor-court-martial-551420
+### 2026-09-23T13:32:11+00:00
+Disputed Land-Acquisition Records Require Crime Branch Investigation With Signature Verification & Cyber Forensics: Tripura High Court
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-disputed-land-acquisition-records-require-crime-branch-investigation-551445
 
-[Read on Telegram](https://t.me/livelawindia/120605)
-
----
-### 2026-09-23T09:02:24+00:00
-Vehicle Seized In NDPS Case Can't Be Released To Financier Over Owner's Loan Default: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/ndps-financer-not-entitled-to-interim-custody-vehicle-loan-default-551417
-
-[Read on Telegram](https://t.me/livelawindia/120606)
+[Read on Telegram](https://t.me/livelawindia/120635)
 
 ---
-### 2026-09-23T09:10:35+00:00
-BREAKING| Supreme Court Refers Pleas Challenging ECI Law To Constitution Bench; Justice Datta Questions Present Appointment Process
-https://www.livelaw.in/top-stories/supreme-court-refers-challenge-to-eci-law-to-constitution-bench-justice-datta-questions-present-appointment-process-551423
+### 2026-09-23T13:54:01+00:00
+LiveLaw Daily| ECI appointments| BCI PEARL-FIRST| Adani Defamation| TMC & more
+https://www.livelaw.in/podcast/adani-eci-election-commission-of-india-aiadmk-cjp-delhi-police-news-india-551496
 
-[Read on Telegram](https://t.me/livelawindia/120607)
-
----
-### 2026-09-23T09:17:15+00:00
-LiveLaw Punjab & Haryana High Court Weekly Roundup: September 14 - September 20, 2026
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-weekly-round-up-14-20-september-551421
-
-[Read on Telegram](https://t.me/livelawindia/120608)
+[Read on Telegram](https://t.me/livelawindia/120636)
 
 ---
-### 2026-09-23T09:32:35+00:00
-Strength Of Soldier's Daughter Who Is different But Not Less
-https://www.livelaw.in/articles/strength-soldier-daughter-551292
+### 2026-09-23T14:08:01+00:00
+BREAKING | Supreme Court Stays Allahabad HC Order Quashing Student's NSA Detention & Slamming Noida DM Medha Roopam
+https://www.livelaw.in/top-stories/supreme-court-stays-allahabad-hc-order-quashing-students-nsa-detention-slamming-noida-dm-medha-roopam-551502
 
-[Read on Telegram](https://t.me/livelawindia/120609)
-
----
-### 2026-09-23T09:41:15+00:00
-Need 'Civilised' Celebrations: Bombay High Court Bans Firecrackers, Laser Lights In Religious Processions; Directs ₹1 Lakh Deposit, Prosecution
-https://www.livelaw.in/high-court/bombay-high-court/religious-processions-noise-pollution-firecracker-ban-explosives-act-551427
-
-[Read on Telegram](https://t.me/livelawindia/120610)
+[Read on Telegram](https://t.me/livelawindia/120637)
 
 ---
-### 2026-09-23T09:59:45+00:00
-Yash Paul Bourney Sworn In As Judge Of Jammu & Kashmir And Ladakh High Court
-https://www.livelaw.in/news-updates/yash-paul-bourney-sworn-in-as-judge-of-jammu-kashmir-and-ladakh-high-court-551432
+### 2026-09-23T14:25:01+00:00
+Supreme Court Judges Urge CJI To Consider Constituting Permanent Constitution Bench, Flag Years-Long Delay In References
+https://www.livelaw.in/top-stories/supreme-court-judges-urge-cji-to-consider-constituting-permanent-constitution-bench-flag-years-long-delay-in-references-551505
 
-[Read on Telegram](https://t.me/livelawindia/120611)
-
----
-### 2026-09-23T10:03:05+00:00
-Calcutta High Court Lifts Gag Order On Influencer's Video Flagging Alleged Excess Lead, Mercury In Zandu Ashwagandha Gold Plus
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-lifts-gag-order-on-influencers-video-flagging-alleged-excess-lead-mercury-in-zandu-ashwagandha-gold-plus-551386
-
-[Read on Telegram](https://t.me/livelawindia/120612)
+[Read on Telegram](https://t.me/livelawindia/120638)
 
 ---
-### 2026-09-23T10:39:59+00:00
-Hope Present Collegium Makes Proper Choices In Future; Judiciary Playing Second Fiddle To Executive In Judges' Appointment : Justice Dipankar Datta
-https://www.livelaw.in/top-stories/hope-present-collegium-makes-proper-choices-in-future-judiciary-playing-second-fiddle-to-executive-in-judges-appointment-justice-dipankar-datta-551439
+### 2026-09-23T14:32:42+00:00
+Demat 2.0: From Electronic Ownership Records To Programmable Securities Infrastructure
+https://www.livelaw.in/articles/demat-20-electronic-ownership-records-programmable-securities-infrastructure-551293
 
-[Read on Telegram](https://t.me/livelawindia/120613)
-
----
-### 2026-09-23T10:53:39+00:00
-Scheduled Castes Commission Cannot Adjudicate Criminal Charges Or Declare Offences Proved: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/scheduled-castes-commission-cannot-adjudicate-criminal-charges-551440
-
-[Read on Telegram](https://t.me/livelawindia/120614)
+[Read on Telegram](https://t.me/livelawindia/120639)
 
 ---
-### 2026-09-23T10:53:50+00:00
-Ensure Entire Fleet Of DTC Buses Ply On Roads: High Court Tells Delhi Govt, Closes PIL Against Drivers' Strike
-https://www.livelaw.in/high-court/delhi-high-court/ensure-entire-fleet-of-dtc-buses-ply-on-roads-high-court-tells-delhi-govt-closes-pil-against-drivers-strike-551441
+### 2026-09-23T14:33:01+00:00
+'Penetration To Any Extent' Sufficient For Aggravated POCSO Assault: Himachal Pradesh High Court Upholds 20-Year Sentence
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-upholds-20year-sentence-despite-no-injuries-551450
 
-[Read on Telegram](https://t.me/livelawindia/120615)
-
----
-### 2026-09-23T10:58:19+00:00
-Vadakara MDMA Case: Kerala High Court Grants Bail To Two Teachers Booked Under NDPS Act
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-teachers-ndps-case-551448
-
-[Read on Telegram](https://t.me/livelawindia/120616)
+[Read on Telegram](https://t.me/livelawindia/120640)
 
 ---
-### 2026-09-23T11:00:59+00:00
-Supreme Court Rejects PIL To Remove "Anti-Government" & "Anti-Judiciary" Social Media Content
-https://www.livelaw.in/top-stories/supreme-court-pil-to-block-remove-from-social-media-content-spreading-communal-disharmony-or-undermining-judiciary-rejected-551453
+### 2026-09-23T14:34:41+00:00
+Students' Federation Of India Moves Delhi High Court Against Disabling Of Instagram Account
+https://www.livelaw.in/high-court/delhi-high-court/students-federation-of-india-moves-delhi-high-court-against-disabling-of-instagram-account-551507
 
-[Read on Telegram](https://t.me/livelawindia/120617)
-
----
-### 2026-09-23T11:02:40+00:00
-Sikkim High Court Forms Bar Members' Panel To Probe Dilapidated Infrastructure At Government Law College
-https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-constitutes-committee-to-inquire-into-government-law-college-infrastructure-551444
-
-[Read on Telegram](https://t.me/livelawindia/120618)
+[Read on Telegram](https://t.me/livelawindia/120641)
 
 ---
-### 2026-09-23T11:04:20+00:00
-'Cyber Crime Is Like An Addiction, It's All Easy Money': Supreme Court Refuses Bail
-https://www.livelaw.in/news-updates/supreme-court-551458
+### 2026-09-23T14:43:12+00:00
+Prima Facie 'Horrific': P&H High Court Denies Anticipatory Bail To Senior Citizen Accused Of Molesting Niece
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-dismisses-pre-arrest-bail-of-63-year-old-accused-of-molesting-niece-551508
 
-[Read on Telegram](https://t.me/livelawindia/120619)
+[Read on Telegram](https://t.me/livelawindia/120642)
 
 ---
-### 2026-09-23T11:08:00+00:00
-Supreme Court Pulls Up States/UT For Not Responding To Plea To Distribute Sanitary Napkins Via Fair Price Shops
-https://www.livelaw.in/top-stories/supreme-court-pil-for-sanitary-napkins-distribution-through-fair-price-shops-states-ut-affidavits-not-filed-show-cause-why-cost-rs25000-not-be-imposed-551460
+### 2026-09-23T14:53:12+00:00
+Delhi High Court Waives ₹50K Costs On Litigant, Asks Counsel To Distribute Samosas And Tea To DHCBA Employees
+https://www.livelaw.in/high-court/delhi-high-court/counsel-distribute-samosas-tea-to-dhcba-employees-551510
 
-[Read on Telegram](https://t.me/livelawindia/120620)
+[Read on Telegram](https://t.me/livelawindia/120643)
+
+---
+### 2026-09-23T15:02:32+00:00
+NEET Medical Board Cannot Reassess Disability Percentage In Candidates With Benchmark Disabilities: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/neet-medical-board-cannot-reassess-disability-percentage-in-candidate-with-benchmark-disabilities-calcutta-high-court-551391
+
+[Read on Telegram](https://t.me/livelawindia/120644)
+
+---
+### 2026-09-23T15:12:52+00:00
+Accused Can't Disown Counsel's Surrender Statement By Changing Lawyer To File Second Anticipatory Bail Plea: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/accused-cant-disown-counsel-surrender-statement-changing-lawyer-second-anticipatory-bail-551512
+
+[Read on Telegram](https://t.me/livelawindia/120645)
+
+---
+### 2026-09-23T15:15:12+00:00
+Questions Raise Over Listing Of Noida DM Medha Roopam's Plea In Supreme Court
+https://www.livelaw.in/articles/questions-raise-over-listing-of-noida-dm-medha-roopams-plea-in-supreme-court-551516
+
+[Read on Telegram](https://t.me/livelawindia/120646)
+
+---
+### 2026-09-23T15:23:02+00:00
+Arrest Grounds Not Given In Writing Violates Article 22(1), But Doesn't Automatically Entitle Accused To Bail: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/arrest-grounds-not-communicated-article-221-violation-no-bail-551513
+
+[Read on Telegram](https://t.me/livelawindia/120647)
+
+---
+### 2026-09-23T15:32:42+00:00
+Karnataka High Court Dismisses Nigerian Student's Plea Against 'Leave India' Order; Says Visa Extension Is Sovereign Discretion, No Vested Right
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-nigerian-student-plea-leave-india-order-551514
+
+[Read on Telegram](https://t.me/livelawindia/120648)
+
+---
+### 2026-09-23T15:43:02+00:00
+Patient Forced To Buy Stents From Private Shop Due To Unavailability At Govt Hospital Entitled To Full Reimbursement: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-upholds-full-reimbursement-stent-cost-procured-privately-551515
+
+[Read on Telegram](https://t.me/livelawindia/120649)
+
+---
+### 2026-09-23T15:58:42+00:00
+Wife Allegedly Calling Husband "Black Complexioned" Or "Fatty Shaped" Not Sufficient To Grant Divorce: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/wife-branding-husband-black-complexioned-fatty-shaped-not-sufficient-ground-divorce-551521
+
+[Read on Telegram](https://t.me/livelawindia/120650)
+
+---
+### 2026-09-23T16:22:52+00:00
+Supreme Court Frowns Upon PIL Challenging Inter-Se Assessment Of Tender Bids
+https://www.livelaw.in/supreme-court/supreme-court-frowns-upon-pil-challenging-inter-se-assessment-of-tender-bids-551522
+
+[Read on Telegram](https://t.me/livelawindia/120651)
+
+---
+### 2026-09-23T16:23:32+00:00
+2026 LiveLaw (SC) 977 |  O.P. MEHTA VERSUS MOHINDER KALTA & ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-977-op-mehta-versus-mohinder-kalta-ors-551523
+
+[Read on Telegram](https://t.me/livelawindia/120652)
 
 ---
