@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-23T11:32:16+00:00*
+*Last Updated: 2026-09-23T16:02:59+00:00*
+
+---
+
+### 2026-09-23T16:02:59+00:00
+Legal Consultant vacancy At Sree Chitra Tirunal Institute for Medical Sciences & Technology
+https://www.verdictum.in/job-updates/sree-chitra-tirunal-institute-for-medical-sciences-technology-1622567
+
+[Source Link](https://t.me/verdictumlegalupdates/29271)
+
+---
+
+### 2026-09-23T15:32:18+00:00
+No Bar On Appointing Investigating Officer As Prosecutor In Navy Court-Martial: Kerala High Court
+https://www.verdictum.in/kerala-high-court/union-of-india-v-santosh-karwade-2026ker71832-navy-disciplinary-action-1622563
+
+[Source Link](https://t.me/verdictumlegalupdates/29270)
+
+---
+
+### 2026-09-23T15:02:17+00:00
+Daughter-In-Law Can’t Abandon Her Old Aged In-Laws After Having Secured Compassionate Appointment: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/shri-choth-mal-verma-v-ajmer-vidyut-vitran-nigam-limited-2026rj-jp37767-compassionate-appointment-1622572
+
+[Source Link](https://t.me/verdictumlegalupdates/29269)
+
+---
+
+### 2026-09-23T14:32:36+00:00
+Controlling Authority's Power Under Gratuity Act Is Limited To Computation Of Amount Payable, Not Adjudication Of Liability: Supreme Court
+https://www.verdictum.in/supreme-court/ms-oil-and-natural-gas-corporation-ltd-v-suryakand-d-lad-2026-insc-1019-controlling-authoritys-power-under-gratuity-act-1622571
+
+[Source Link](https://t.me/verdictumlegalupdates/29268)
+
+---
+
+### 2026-09-23T14:02:35+00:00
+“A Travesty Of Justice": Bombay High Court Directs Pune University To Count 13 Years Of Law Officer's Service For Pension; Quashes Recovery Order
+https://www.verdictum.in/bombay-high-court/dr-parveen-parvez-sayyed-v-state-of-maharashtra-2026bhc-as38376-db-13-years-of-law-officers-service-1622565
+
+[Source Link](https://t.me/verdictumlegalupdates/29267)
+
+---
+
+### 2026-09-23T13:33:15+00:00
+Choosing One Course Of Treatment Over Another Not Medical Negligence: Bombay High Court
+https://www.verdictum.in/bombay-high-court/dr-jaydeep-arun-date-v-medical-council-of-india-2026bhc-as38675-1622564
+
+[Source Link](https://t.me/verdictumlegalupdates/29266)
+
+---
+
+### 2026-09-23T13:02:34+00:00
+"Judges Appointing Judges" Is A Myth; Sanctity Of Collegium Resolution Is Lost Each Time Executive Implements It Selectively: Justice Dipankar Datta Says In Election Commissioner Appointment Case
+https://www.verdictum.in/supreme-court/justice-dipankar-datta-collegium-election-commissioner-split-verdict-1622574
+
+[Source Link](https://t.me/verdictumlegalupdates/29265)
+
+---
+
+### 2026-09-23T12:33:03+00:00
+High Court Asks Delhi University To Respond To Plea Against Victory Procession After Students Union Poll
+https://www.verdictum.in/delhi-high-court/plea-against-victory-procession-after-dusu-students-union-poll-1622562
+
+[Source Link](https://t.me/verdictumlegalupdates/29264)
+
+---
+
+### 2026-09-23T12:02:42+00:00
+Import  Even For Warehousing Or Re-Export, Enjoys No Immunity From Domestic Laws: Bombay HC Rejects Duty-Free Shops' Customs-Frontier Plea In Nicotine Pouch Case
+https://www.verdictum.in/bombay-high-court/mumbai-travel-retail-limited-v-union-of-india-2026bhc-os20816-db-duty-free-shops-customs-frontier-plea-in-nicotine-pouch-case-1622556
+
+[Source Link](https://t.me/verdictumlegalupdates/29263)
 
 ---
 
@@ -89,78 +161,6 @@ How BCI Is Expert Body To Regulate Legal Education: Supreme Court Seeks Response
 https://www.verdictum.in/supreme-court/notice-in-plea-challenging-bar-council-regulatory-role-asset-transfer-trust-1622531
 
 [Source Link](https://t.me/verdictumlegalupdates/29252)
-
----
-
-### 2026-09-23T06:03:06+00:00
-Arbitral Tribunal Can’t Exceed Jurisdiction U/S.31(7)(a) A&C Act By Awarding Interest When Contractual Clause Bars Such Interest For Pre-Reference Period: Supreme Court
-https://www.verdictum.in/supreme-court/north-eastern-electric-power-corporation-limited-v-astra-construction-private-limited-2026-insc-1036-1622527
-
-[Source Link](https://t.me/verdictumlegalupdates/29251)
-
----
-
-### 2026-09-23T05:32:45+00:00
-Absence Of Original Document Not Fatal For Prosecution In Forgery Case; Can Be Proved By Circumstantial Evidence: Supreme Court
-https://www.verdictum.in/supreme-court/antonetto-j-dsouza-v-aldila-braganza-2026-insc-1032-absence-of-original-document-1622524
-
-[Source Link](https://t.me/verdictumlegalupdates/29250)
-
----
-
-### 2026-09-23T05:02:24+00:00
-Hindu Succession Act| Widow Becomes Absolute Owner Of Property Devolved In Her Favor Upon Husband’s Demise; Partition Not Sine Qua Non: Supreme Court
-https://www.verdictum.in/supreme-court/ganapati-dead-by-his-lrs-v-prabhakar-2026-insc-1033-widow-owner-property-partition-1622521
-
-[Source Link](https://t.me/verdictumlegalupdates/29249)
-
----
-
-### 2026-09-23T04:32:33+00:00
-No Privity Of Contract: Allahabad HC Imposes ₹1 Lakh Cost On Bank For Debiting Woman’s Account For Recovery Of Deceased Husband’s Loan
-https://www.verdictum.in/allahabad-high-court/neha-mishra-v-reserve-bank-of-india-2026ahc-lko63471-db-privity-contract-debit-fixed-deposit-recovery-1622494
-
-[Source Link](https://t.me/verdictumlegalupdates/29248)
-
----
-
-### 2026-09-22T16:03:04+00:00
-Empanelment Of Advocate At District Legal Services Authority Kanpur Nagar
-https://www.verdictum.in/job-updates/district-legal-services-authority-1622484
-
-[Source Link](https://t.me/verdictumlegalupdates/29247)
-
----
-
-### 2026-09-22T15:32:43+00:00
-Personal Enmity Incidents Are Individualistic Nature; No Potential To Disturb Public Order: Jammu & Kashmir and Ladakh High Court Quashes Detention Order
-https://www.verdictum.in/jammu-ladakh-high-court/mohd-yousuf-v-union-territory-of-jammu-and-kashmir-2026jklhc-jmu2959-public-order-detention-1622491
-
-[Source Link](https://t.me/verdictumlegalupdates/29246)
-
----
-
-### 2026-09-22T14:52:22+00:00
-Statutory Health Warning On Cigarette Packs Cannot Be Excluded While Comparing Marks For Deceptive Similarity In Trademark Suit: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/pravin-kumar-v-itc-limited-2026chc-os400-db-ijm-gold-stag-itcs-gold-flake-suit-85-cotpa-1622492
-
-[Source Link](https://t.me/verdictumlegalupdates/29245)
-
----
-
-### 2026-09-22T14:12:41+00:00
-Compelling Employees To Wear Santa Claus Red Cap Can Hurt Their Religious Sentiments: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/vikram-singh-v-state-of-up-2026ahc191034-force-employees-santa-claus-cap-1622493
-
-[Source Link](https://t.me/verdictumlegalupdates/29244)
-
----
-
-### 2026-09-22T13:32:20+00:00
-NCDRC Cannot Brush Aside Surveyor Reports In Fire Insurance Claims Without Identifying Specific Deficiency: Supreme Court
-https://www.verdictum.in/supreme-court/ms-new-india-assurance-company-limited-v-ms-hemkund-duplex-and-board-private-limited-2026-insc-1023-1622489
-
-[Source Link](https://t.me/verdictumlegalupdates/29243)
 
 ---
 
