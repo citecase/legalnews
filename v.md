@@ -1,6 +1,118 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-24T05:02:44+00:00*
+*Last Updated: 2026-09-24T12:03:02+00:00*
+
+---
+
+### 2026-09-24T12:03:02+00:00
+Supreme Court Seeks Nationwide Data On Pending Commercial Cases, Number Of Courts And Its Infrastructure
+https://www.verdictum.in/supreme-court/nationwide-data-pending-commercial-cases-number-courts-infrastructure-1622638
+
+[Source Link](https://t.me/verdictumlegalupdates/29287)
+
+---
+
+### 2026-09-24T11:33:01+00:00
+Drawing Of Adverse Inference Justified: Supreme Court On Non-Examination Of Material Witness Having Knowledge Of Family Finances In Partition Suit
+https://www.verdictum.in/supreme-court/hg-pattabi-v-kr-suraj-2026-insc-1041-non-examination-of-material-witness-having-knowledge-1622637
+
+[Source Link](https://t.me/verdictumlegalupdates/29286)
+
+---
+
+### 2026-09-24T11:02:57+00:00
+Supreme Court Asks Karnataka To Respond To Plea By Tamil Nadu Seeking Release Of Cauvery River Water & Alleging Shortfall In Supply
+https://www.verdictum.in/supreme-court/plea-by-tamil-nadu-seeking-release-of-cauvery-river-water-alleging-shortfall-in-supply-1622635
+
+[Source Link](https://t.me/verdictumlegalupdates/29285)
+
+---
+
+### 2026-09-24T10:32:56+00:00
+Delhi High Court Denies Anticipatory Bail To YouTuber Ajeet Bharti In SC/ST Act Case
+https://www.verdictum.in/delhi-high-court/anticipatory-bail-denied-youtuber-ajeet-bharti-scst-act-case-1622634
+
+[Source Link](https://t.me/verdictumlegalupdates/29284)
+
+---
+
+### 2026-09-24T10:03:15+00:00
+Reasonable Time For Fair Opportunity To Lead Evidence: Supreme Court Asks ECI To Apprise It Of Timeframe In Trinamool Congress Name And Symbol Dispute
+https://www.verdictum.in/supreme-court/eci-to-apprise-it-of-timeframe-trinamool-congress-name-symbol-dispute-1622633
+
+[Source Link](https://t.me/verdictumlegalupdates/29283)
+
+---
+
+### 2026-09-24T09:32:33+00:00
+Your Case Is Aaya Ram, Gaya Ram, Phir Aaya Ram: Supreme Court Dismisses BRS MLA Danam Nagender's Plea Against Disqualification
+https://www.verdictum.in/supreme-court/brs-mla-danam-nagenders-plea-against-disqualification-dismissed-1622631
+
+[Source Link](https://t.me/verdictumlegalupdates/29282)
+
+---
+
+### 2026-09-24T09:02:52+00:00
+Supreme Court Dismisses Pleas Challenging Election Of AIMIM's Mohammad Ismail Abdul Khalique In 2024 Maharashtra Assembly Polls
+https://www.verdictum.in/supreme-court/pleas-challenging-election-of-aimims-mohammad-ismail-abdul-khalique-in-2024-maharashtra-assembly-polls-1622630
+
+[Source Link](https://t.me/verdictumlegalupdates/29281)
+
+---
+
+### 2026-09-24T08:33:11+00:00
+Supreme Court Issues Notice To ED On AAP Leader Deepak Singla's Bail Plea In Money Laundering Case
+https://www.verdictum.in/supreme-court/notice-to-ed-on-aap-leader-deepak-singlas-bail-plea-in-money-laundering-case-1622621
+
+[Source Link](https://t.me/verdictumlegalupdates/29280)
+
+---
+
+### 2026-09-24T07:46:10+00:00
+Matter Is Extremely Serious: Supreme Court Gives Last Opportunity To Centre To File Response On Social Media Measures Against Child Exploitation & Abuse
+https://www.verdictum.in/supreme-court/last-opportunity-centre-file-response-social-media-measures-child-abuse-material-1622624
+
+[Source Link](https://t.me/verdictumlegalupdates/29279)
+
+---
+
+### 2026-09-24T07:32:29+00:00
+Recruit Regular Full-Time MS Or MD, File Status Report On Unused Equipments: Delhi High Court Issues Directions On Functioning Of Govt Hospitals
+https://www.verdictum.in/delhi-high-court/court-on-its-own-motion-v-union-of-india-2026dhc8091-db-unused-equipment-functioning-govt-hospitals-1622617
+
+[Source Link](https://t.me/verdictumlegalupdates/29278)
+
+---
+
+### 2026-09-24T07:02:48+00:00
+Mother's Attempt To Cement Her Position In Academic World & Pursuing Jobs Cannot Be Branded As "Nomadic Lifestyle": Supreme Court In Child Custody Case
+https://www.verdictum.in/supreme-court/d-v-s-2026-insc-1043-nomadic-lifestyle-mother-custody-united-kingdom-1622615
+
+[Source Link](https://t.me/verdictumlegalupdates/29277)
+
+---
+
+### 2026-09-24T06:32:27+00:00
+Inordinate Delay In Deciding References Is Source Of Institutional Embarrassment: Supreme Court Requests CJI To Consider Constituting Permanent 5-Judge Bench
+https://www.verdictum.in/supreme-court/requests-cji-to-consider-constituting-permanent-5-judge-bench-1622607
+
+[Source Link](https://t.me/verdictumlegalupdates/29276)
+
+---
+
+### 2026-09-24T06:02:26+00:00
+A Father Facing POCSO Case Cannot Be Considered Entitled To Child Custody: Supreme Court
+https://www.verdictum.in/supreme-court/d-v-s-2026-insc-1043-father-sexually-abusing-his-own-minor-son-1622603
+
+[Source Link](https://t.me/verdictumlegalupdates/29275)
+
+---
+
+### 2026-09-24T05:33:05+00:00
+Played With The Life Of Rape Victim: Allahabad High Court Orders Inquiry After S.R.N.H Doctors Deliver Baby By Cesarean Mode Instead Of Terminating Pregnancy
+https://www.verdictum.in/allahabad-high-court/x-minor-v-state-of-uttar-pradesh-srnh-doctors-deliver-baby-instead-of-medical-termination-inquiry-1622599
+
+[Source Link](https://t.me/verdictumlegalupdates/29274)
 
 ---
 
@@ -49,118 +161,6 @@ Controlling Authority's Power Under Gratuity Act Is Limited To Computation Of Am
 https://www.verdictum.in/supreme-court/ms-oil-and-natural-gas-corporation-ltd-v-suryakand-d-lad-2026-insc-1019-controlling-authoritys-power-under-gratuity-act-1622571
 
 [Source Link](https://t.me/verdictumlegalupdates/29268)
-
----
-
-### 2026-09-23T14:02:35+00:00
-“A Travesty Of Justice": Bombay High Court Directs Pune University To Count 13 Years Of Law Officer's Service For Pension; Quashes Recovery Order
-https://www.verdictum.in/bombay-high-court/dr-parveen-parvez-sayyed-v-state-of-maharashtra-2026bhc-as38376-db-13-years-of-law-officers-service-1622565
-
-[Source Link](https://t.me/verdictumlegalupdates/29267)
-
----
-
-### 2026-09-23T13:33:15+00:00
-Choosing One Course Of Treatment Over Another Not Medical Negligence: Bombay High Court
-https://www.verdictum.in/bombay-high-court/dr-jaydeep-arun-date-v-medical-council-of-india-2026bhc-as38675-1622564
-
-[Source Link](https://t.me/verdictumlegalupdates/29266)
-
----
-
-### 2026-09-23T13:02:34+00:00
-"Judges Appointing Judges" Is A Myth; Sanctity Of Collegium Resolution Is Lost Each Time Executive Implements It Selectively: Justice Dipankar Datta Says In Election Commissioner Appointment Case
-https://www.verdictum.in/supreme-court/justice-dipankar-datta-collegium-election-commissioner-split-verdict-1622574
-
-[Source Link](https://t.me/verdictumlegalupdates/29265)
-
----
-
-### 2026-09-23T12:33:03+00:00
-High Court Asks Delhi University To Respond To Plea Against Victory Procession After Students Union Poll
-https://www.verdictum.in/delhi-high-court/plea-against-victory-procession-after-dusu-students-union-poll-1622562
-
-[Source Link](https://t.me/verdictumlegalupdates/29264)
-
----
-
-### 2026-09-23T12:02:42+00:00
-Import  Even For Warehousing Or Re-Export, Enjoys No Immunity From Domestic Laws: Bombay HC Rejects Duty-Free Shops' Customs-Frontier Plea In Nicotine Pouch Case
-https://www.verdictum.in/bombay-high-court/mumbai-travel-retail-limited-v-union-of-india-2026bhc-os20816-db-duty-free-shops-customs-frontier-plea-in-nicotine-pouch-case-1622556
-
-[Source Link](https://t.me/verdictumlegalupdates/29263)
-
----
-
-### 2026-09-23T11:32:16+00:00
-Delhi High Court Issues Notice In Plea Alleging Gender Discrimination In Territorial Army Officers’ Recruitment
-https://www.verdictum.in/delhi-high-court/plea-alleging-gender-discrimination-in-territorial-army-officers-recruitment-1622555
-
-[Source Link](https://t.me/verdictumlegalupdates/29262)
-
----
-
-### 2026-09-23T11:03:16+00:00
-Supreme Court Seeks Centre’s Response On PIL Challenging Constitutional Validity Of Uncodified Rules Governing Inheritance Under Muslim Personal Law
-https://www.verdictum.in/supreme-court/pil-challenging-constitutional-validity-of-uncodified-rules-governing-inheritance-under-muslim-personal-law-1622553
-
-[Source Link](https://t.me/verdictumlegalupdates/29261)
-
----
-
-### 2026-09-23T10:32:34+00:00
-Mere Recovery Of Tainted Money Without Proof Of Bribe Demand Cannot Sustain Conviction Under PC Act: Supreme Court
-https://www.verdictum.in/supreme-court/jaswinder-singh-dead-through-legal-representatives-v-state-of-punjab-2026-insc-1031-1622552
-
-[Source Link](https://t.me/verdictumlegalupdates/29260)
-
----
-
-### 2026-09-23T10:02:13+00:00
-Anti-Suit Injunction Restraining Spouse From Pursuing Foreign Matrimonial Proceedings Ordinarily Unwarranted At Inchoate Stage: Supreme Court
-https://www.verdictum.in/supreme-court/mpb-v-vjb-2026-insc-1034-anti-suit-injunctions-foreign-courts-matrimonial-proceedings-1622549
-
-[Source Link](https://t.me/verdictumlegalupdates/29259)
-
----
-
-### 2026-09-23T09:21:53+00:00
-Breaking: Apex Court Delivers Split Verdict On Referring Pleas Challenging Election Commissioners' Appointment Act; But Finally Refers To Constitution Bench
-https://www.verdictum.in/supreme-court/pleas-challenging-act-excluding-cji-in-election-commissioners-appointment-1622550
-
-[Source Link](https://t.me/verdictumlegalupdates/29258)
-
----
-
-### 2026-09-23T09:02:52+00:00
-There Should Be Mandatory Preventive Detention: Supreme Court Takes Note Of Alleged Forest Ranger's Death In Illegal Mining Case
-https://www.verdictum.in/supreme-court/alleged-forest-rangers-death-in-illegal-mining-case-1622541
-
-[Source Link](https://t.me/verdictumlegalupdates/29257)
-
----
-
-### 2026-09-23T08:16:11+00:00
-"Offending Observations": Apex Court Takes Suo Motu Cognizance Of Patna HC Observation That Removing Salwar & Pressing Chest Is Not Attempt To Rape
-https://www.verdictum.in/supreme-court/suo-motu-cognizance-patna-hc-remove-salwar-pressing-chest-not-attempt-to-rape-1622546
-
-[Source Link](https://t.me/verdictumlegalupdates/29256)
-
----
-
-### 2026-09-23T08:02:30+00:00
-Supreme Court Refuses To Entertain Plea Seeking Directions To Centre & Social Media Platforms To Remove Alleged Anti-National Content
-https://www.verdictum.in/supreme-court/plea-seeking-directions-to-centre-social-media-platforms-to-remove-alleged-anti-national-content-1622539
-
-[Source Link](https://t.me/verdictumlegalupdates/29255)
-
----
-
-### 2026-09-23T07:33:09+00:00
-Senior Citizens Tribunals Are Not Replacements For Civil Courts To Try Title Disputes Or Forgery Claims: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/balveer-singh-v-state-of-uttar-pradesh-2026ahc193275-db-tribunals-are-not-replacements-for-civil-courts-1622538
-
-[Source Link](https://t.me/verdictumlegalupdates/29254)
 
 ---
 
