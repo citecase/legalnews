@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-23T14:43:12+00:00*
+*Last Updated: 2026-09-24T08:55:22+00:00*
 
 ---
 
-### 2026-09-23T14:43:12+00:00
-Prima Facie 'Horrific': P&H High Court Denies Anticipatory Bail To Senior Citizen Accused Of Molesting Niece
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-dismisses-pre-arrest-bail-of-63-year-old-accused-of-molesting-niece-551508
+### 2026-09-24T08:55:22+00:00
+Arbitral Tribunal Cannot Award Pre-Reference Interest If There's Contractual Bar: Supreme Court
+https://www.livelaw.in/supreme-court/arbitral-tribunal-cannot-award-pre-reference-interest-if-theres-contractual-bar-supreme-court-551611
 
-[Read on Telegram](https://t.me/livelawindia/120642)
-
----
-### 2026-09-23T14:53:12+00:00
-Delhi High Court Waives ₹50K Costs On Litigant, Asks Counsel To Distribute Samosas And Tea To DHCBA Employees
-https://www.livelaw.in/high-court/delhi-high-court/counsel-distribute-samosas-tea-to-dhcba-employees-551510
-
-[Read on Telegram](https://t.me/livelawindia/120643)
+[Read on Telegram](https://t.me/livelawindia/120714)
 
 ---
-### 2026-09-23T15:02:32+00:00
-NEET Medical Board Cannot Reassess Disability Percentage In Candidates With Benchmark Disabilities: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/neet-medical-board-cannot-reassess-disability-percentage-in-candidate-with-benchmark-disabilities-calcutta-high-court-551391
+### 2026-09-24T08:57:02+00:00
+2026 LiveLaw (SC) 980 |  North Eastern Electric Power Corporation Limited (NEEPCO) Versus Astra Construction Private Limited
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-980-north-eastern-electric-power-corporation-limited-neepco-versus-astra-construction-private-limited-551612
 
-[Read on Telegram](https://t.me/livelawindia/120644)
-
----
-### 2026-09-23T15:12:52+00:00
-Accused Can't Disown Counsel's Surrender Statement By Changing Lawyer To File Second Anticipatory Bail Plea: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/accused-cant-disown-counsel-surrender-statement-changing-lawyer-second-anticipatory-bail-551512
-
-[Read on Telegram](https://t.me/livelawindia/120645)
+[Read on Telegram](https://t.me/livelawindia/120715)
 
 ---
-### 2026-09-23T15:15:12+00:00
-Questions Raise Over Listing Of Noida DM Medha Roopam's Plea In Supreme Court
-https://www.livelaw.in/articles/questions-raise-over-listing-of-noida-dm-medha-roopams-plea-in-supreme-court-551516
+### 2026-09-24T09:05:03+00:00
+Delhi High Court Denies Anticipatory Bail To Ajeet Bharti In SC/ST Act Case
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-denies-anticipatory-bail-to-ajeet-bharti-in-scst-act-case-551614
 
-[Read on Telegram](https://t.me/livelawindia/120646)
-
----
-### 2026-09-23T15:23:02+00:00
-Arrest Grounds Not Given In Writing Violates Article 22(1), But Doesn't Automatically Entitle Accused To Bail: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/arrest-grounds-not-communicated-article-221-violation-no-bail-551513
-
-[Read on Telegram](https://t.me/livelawindia/120647)
+[Read on Telegram](https://t.me/livelawindia/120716)
 
 ---
-### 2026-09-23T15:32:42+00:00
-Karnataka High Court Dismisses Nigerian Student's Plea Against 'Leave India' Order; Says Visa Extension Is Sovereign Discretion, No Vested Right
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-nigerian-student-plea-leave-india-order-551514
+### 2026-09-24T09:12:42+00:00
+'State Best Equipped To Decide Upon Land Requirement For Airport': Bombay High Court Rejects Farmers' Challenge To Purandar Airport Site
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-rejects-challenge-purandar-airport-site-551538
 
-[Read on Telegram](https://t.me/livelawindia/120648)
-
----
-### 2026-09-23T15:43:02+00:00
-Patient Forced To Buy Stents From Private Shop Due To Unavailability At Govt Hospital Entitled To Full Reimbursement: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-upholds-full-reimbursement-stent-cost-procured-privately-551515
-
-[Read on Telegram](https://t.me/livelawindia/120649)
+[Read on Telegram](https://t.me/livelawindia/120717)
 
 ---
-### 2026-09-23T15:58:42+00:00
-Wife Allegedly Calling Husband "Black Complexioned" Or "Fatty Shaped" Not Sufficient To Grant Divorce: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/wife-branding-husband-black-complexioned-fatty-shaped-not-sufficient-ground-divorce-551521
+### 2026-09-24T09:22:42+00:00
+Advocate Muraleedharan G. Nominated As Kerala Bar Council Chairperson; Santhosh Kumar P. As BCI Representative
+https://www.livelaw.in/news-updates/kerala-bar-council-chairperson-551617
 
-[Read on Telegram](https://t.me/livelawindia/120650)
-
----
-### 2026-09-23T16:22:52+00:00
-Supreme Court Frowns Upon PIL Challenging Inter-Se Assessment Of Tender Bids
-https://www.livelaw.in/supreme-court/supreme-court-frowns-upon-pil-challenging-inter-se-assessment-of-tender-bids-551522
-
-[Read on Telegram](https://t.me/livelawindia/120651)
+[Read on Telegram](https://t.me/livelawindia/120718)
 
 ---
-### 2026-09-23T16:23:32+00:00
-2026 LiveLaw (SC) 977 |  O.P. MEHTA VERSUS MOHINDER KALTA & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-977-op-mehta-versus-mohinder-kalta-ors-551523
+### 2026-09-24T09:29:32+00:00
+Supreme Court Revises Order In Noida DM Medha Roopam's Case; Specifies Stay Is Only On HC's Strictures & Compensation Direction
+https://www.livelaw.in/top-stories/supreme-court-revises-order-in-noida-dm-medha-roopams-case-specifies-stay-is-only-on-hcs-strictures-compensation-direction-551618
 
-[Read on Telegram](https://t.me/livelawindia/120652)
-
----
-### 2026-09-23T16:32:12+00:00
-Arbitration | High Court's Location Doesn't Become Arbitration's Seat Just Because HC Appointed Arbitrator : Supreme Court
-https://www.livelaw.in/supreme-court/arbitration-high-courts-location-doesnt-become-arbitrations-seat-just-because-hc-appointed-arbitrator-supreme-court-551524
-
-[Read on Telegram](https://t.me/livelawindia/120653)
+[Read on Telegram](https://t.me/livelawindia/120719)
 
 ---
-### 2026-09-23T16:33:12+00:00
-2026 LiveLaw (SC) 978 | MAHANADI COALFIELDS LTD & ORS. VERSUS M/S GSCO (GURMEET SINGH AND COMPANY) INFRASTRUCTURE PVT. LTD.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-978-mahanadi-coalfields-ltd-ors-versus-ms-gsco-gurmeet-singh-and-company-infrastructure-pvt-ltd-551525
+### 2026-09-24T09:32:52+00:00
+Price Of Calendar: Monologue Of ADR (Part 2)
+https://www.livelaw.in/articles/monologue-adr-resurrection-of-panchayat-551451
 
-[Read on Telegram](https://t.me/livelawindia/120654)
-
----
-### 2026-09-23T17:17:22+00:00
-Supreme Court Daily Round-Up : September 23, 2026
-https://www.livelaw.in/round-ups/supreme-court-daily-round-up-september-23-2026-551526
-
-[Read on Telegram](https://t.me/livelawindia/120655)
+[Read on Telegram](https://t.me/livelawindia/120720)
 
 ---
-### 2026-09-23T17:49:33+00:00
-LiveLaw High Courts Daily Highlights: September 23, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-23-2026-551527
+### 2026-09-24T09:45:15+00:00
+'PC Act Conviction Difficult, But Convicts Easily Released Pending Appeal': Kerala High Court Reserves Verdict In Ex-DGP Thachankary's Plea
+https://www.livelaw.in/high-court/kerala-high-court/tomin-j-thachankary-corruption-sentence-suspension-verdict-reserved-551619
 
-[Read on Telegram](https://t.me/livelawindia/120656)
-
----
-### 2026-09-23T17:52:33+00:00
-Supreme Court Collegium Recommends Making 5 Additional Judges Of Kerala High Court Permanent
-https://www.livelaw.in/high-court/kerala-high-court/supreme-court-collegium-recommends-making-5-additional-judges-of-kerala-high-court-permanent-551528
-
-[Read on Telegram](https://t.me/livelawindia/120657)
+[Read on Telegram](https://t.me/livelawindia/120721)
 
 ---
-### 2026-09-24T03:18:04+00:00
-Manager (Third Party Risk Management) Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/manager-third-party-risk-management-vacancy-at-deloitte-touche-tohmatsu-india-llp-551529
+### 2026-09-24T09:55:35+00:00
+Journalist Ravi Nair Moves Supreme Court For Release From Custody In Adani Defamation Case
+https://www.livelaw.in/top-stories/supreme-court-journalist-ravi-nair-plea-for-release-arrested-in-adani-defamation-case-non-bailable-warrant-551622
 
-[Read on Telegram](https://t.me/livelawindia/120658)
-
----
-### 2026-09-24T03:37:14+00:00
-Call For Applications: Research & Teaching Associate At Centre For Transnational Commercial Law
-https://www.livelaw.in/job-updates/call-for-applications-research-teaching-associate-at-centre-for-transnational-commercial-law-551530
-
-[Read on Telegram](https://t.me/livelawindia/120659)
+[Read on Telegram](https://t.me/livelawindia/120722)
 
 ---
-### 2026-09-24T03:41:14+00:00
-Research Associate Vacancy At National Law University, Delhi
-https://www.livelaw.in/job-updates/research-associate-vacancy-at-national-law-university-delhi-551531
+### 2026-09-24T10:18:15+00:00
+POCSO Offence Can't Be Settled Through Compromise By Victim Or Her Family: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/pocso-offence-cant-be-settled-no-compromise-by-victim-or-family-551628
 
-[Read on Telegram](https://t.me/livelawindia/120660)
+[Read on Telegram](https://t.me/livelawindia/120723)
 
 ---
-### 2026-09-24T03:54:34+00:00
-Director Vacancy At KPMG India [Apply Now]
-https://www.livelaw.in/job-updates/director-vacancy-at-kpmg-india-551539
+### 2026-09-24T10:24:35+00:00
+No Criminal Liability Established In Sabarimala Ghee Loss, But Administrative Lapses Need Fixing: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-accepts-vigilance-report-sabarimala-adiyashishtam-ghee-case-551630
 
-[Read on Telegram](https://t.me/livelawindia/120661)
+[Read on Telegram](https://t.me/livelawindia/120724)
+
+---
+### 2026-09-24T10:31:05+00:00
+'Parent Facing POCSO Prosecution Cannot Be Granted Custody', Supreme Court Permits Mother To Relocate Children To UK
+https://www.livelaw.in/supreme-court/parent-facing-pocso-prosecution-cannot-be-granted-custody-supreme-court-permits-mother-to-relocate-children-to-uk-551632
+
+[Read on Telegram](https://t.me/livelawindia/120725)
+
+---
+### 2026-09-24T10:32:05+00:00
+2026 LiveLaw (SC) 981 | DEBARATI BHUNIA CHAKRABORTY VERSUS SUMAN SANKAR BHUNIA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-981-debarati-bhunia-chakraborty-versus-suman-sankar-bhunia-551633
+
+[Read on Telegram](https://t.me/livelawindia/120726)
+
+---
+### 2026-09-24T10:36:05+00:00
+Insult To Prime Minister Doesn't Attract S.352 BNS Without Intent To Provoke Breach Of Peace: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-case-insulting-remarks-flags-delay-omnibus-allegations-551635
+
+[Read on Telegram](https://t.me/livelawindia/120727)
+
+---
+### 2026-09-24T10:40:25+00:00
+Delhi High Court Bar Association To Contribute ₹25 Lakh For Construction Of AIIMS Night Shelter
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-bar-association-to-contribute-25-lakh-for-construction-of-aiims-night-shelter-551636
+
+[Read on Telegram](https://t.me/livelawindia/120728)
+
+---
+### 2026-09-24T10:51:45+00:00
+Supreme Court Lays Down Safeguards To Prevent Misuse Of POCSO Act In Child Custody Cases, Quashes False FIR Against Father
+https://www.livelaw.in/top-stories/supreme-court-lays-down-safeguards-to-prevent-misuse-of-pocso-act-in-child-custody-cases-quashes-false-fir-against-father-551637
+
+[Read on Telegram](https://t.me/livelawindia/120729)
+
+---
+### 2026-09-24T10:53:05+00:00
+2026 LiveLaw (SC) 982 | R v E
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-982-r-v-e-551638
+
+[Read on Telegram](https://t.me/livelawindia/120730)
+
+---
+### 2026-09-24T10:53:45+00:00
+Youth Olympics Equestrian Selection: Delhi High Court Upholds EFI's Selection, Directs Clearer Criteria & Timelines To Avoid Future Disputes
+https://www.livelaw.in/high-court/delhi-high-court/equestrian-federation-ensure-clarity-in-selection-criteria-youth-olympics-551640
+
+[Read on Telegram](https://t.me/livelawindia/120731)
+
+---
+### 2026-09-24T11:07:05+00:00
+Full Court Fee Refund Is Statutory Entitlement When Dispute Is Settled, No Separate Plea Required: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/court-fee-refund-statutory-entitlement-dispute-settled-no-separate-plea-551643
+
+[Read on Telegram](https://t.me/livelawindia/120732)
+
+---
+### 2026-09-24T11:13:35+00:00
+Allahabad High Court Acquits Woman, Alleged Paramour In Husband's Murder Case; Says CDR Can't Alone Prove They Were Together
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-acquits-woman-alleged-paramour-husband-murder-cdr-551645
+
+[Read on Telegram](https://t.me/livelawindia/120733)
 
 ---
