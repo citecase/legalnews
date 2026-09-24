@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-24T12:03:02+00:00*
+*Last Updated: 2026-09-24T16:02:30+00:00*
+
+---
+
+### 2026-09-24T16:02:30+00:00
+District Child Protection Unit (DCPU) Thoothukudi Invites Applications For Post Of Legal Officer
+https://www.verdictum.in/job-updates/district-child-protection-unit-1622649
+
+[Source Link](https://t.me/verdictumlegalupdates/29295)
+
+---
+
+### 2026-09-24T15:32:49+00:00
+It Is A Complaint About Internal Procedure: Madras High Court Rejects AIADMK Whip's Mekedatu Resolution Challenge
+https://www.verdictum.in/madras-high-court/agri-ss-krishnamurthy-v-the-secretary-tamil-nadu-legislative-assembly-2026mhc3892-aiadmk-whips-mekedatu-resolution-challenge-1622647
+
+[Source Link](https://t.me/verdictumlegalupdates/29294)
+
+---
+
+### 2026-09-24T15:03:08+00:00
+Consistency Can't Be Reduced To Arithmetic Average Of Few Results Submitted By Rider: Delhi High Court Upholds YOG 2026 Equestrian Selection
+https://www.verdictum.in/delhi-high-court/master-shubh-chowdhari-through-his-father-v-equestrian-federation-of-india-2026dhc8241-db-youth-olympic-games-2026-1622650
+
+[Source Link](https://t.me/verdictumlegalupdates/29293)
+
+---
+
+### 2026-09-24T14:33:07+00:00
+Abetment & Suicide Includes Cases Where Accused Creates Situation Whereby Evidence Indicates That It Amounted To Instigation: Bombay High Court
+https://www.verdictum.in/bombay-high-court/ashok-maruti-kanase-v-the-state-of-maharashtra-2026bhc-as38732-abetment-suicide-instigation-1622648
+
+[Source Link](https://t.me/verdictumlegalupdates/29292)
+
+---
+
+### 2026-09-24T14:02:26+00:00
+Mere Conduct Of Arbitral Proceedings Can't Per Se Determine Juridical Seat Of Arbitration: Supreme Court
+https://www.verdictum.in/supreme-court/mahanadi-coalfields-ltd-ors-v-ms-gsco-infrastructure-pvt-ltd-2026-insc-1038-commercial-district-courts-1622645
+
+[Source Link](https://t.me/verdictumlegalupdates/29291)
+
+---
+
+### 2026-09-24T13:32:25+00:00
+Sanction U/S 197 CrPC Not Required To Register An FIR Against Police Officials: Supreme Court
+https://www.verdictum.in/supreme-court/anumandala-rajesh-reddy-v-state-of-karnataka-2026-insc-1039-is-sanction-us-197-crpc-1622646
+
+[Source Link](https://t.me/verdictumlegalupdates/29290)
+
+---
+
+### 2026-09-24T13:03:04+00:00
+Persons With Inter-Religious Marriage Also Entitled To Reservation Provided For Inter-Caste Marriages: Kerala High Court
+https://www.verdictum.in/kerala-high-court/jisha-thomas-v-state-of-kerala-2026ker70453-inter-religion-marriage-inter-caste-marriage-category-1622658
+
+[Source Link](https://t.me/verdictumlegalupdates/29289)
+
+---
+
+### 2026-09-24T12:32:43+00:00
+No Special Status In Commercial Contracts: Delhi High Court Rejects SAIL's "State Entity" Defense In Arbitral Award Challenge
+https://www.verdictum.in/delhi-high-court/steel-authority-of-india-limited-v-norvic-shipping-north-america-inc-2026dhc8140-state-entity-defense-in-arbitral-award-1622644
+
+[Source Link](https://t.me/verdictumlegalupdates/29288)
 
 ---
 
@@ -97,70 +161,6 @@ Inordinate Delay In Deciding References Is Source Of Institutional Embarrassment
 https://www.verdictum.in/supreme-court/requests-cji-to-consider-constituting-permanent-5-judge-bench-1622607
 
 [Source Link](https://t.me/verdictumlegalupdates/29276)
-
----
-
-### 2026-09-24T06:02:26+00:00
-A Father Facing POCSO Case Cannot Be Considered Entitled To Child Custody: Supreme Court
-https://www.verdictum.in/supreme-court/d-v-s-2026-insc-1043-father-sexually-abusing-his-own-minor-son-1622603
-
-[Source Link](https://t.me/verdictumlegalupdates/29275)
-
----
-
-### 2026-09-24T05:33:05+00:00
-Played With The Life Of Rape Victim: Allahabad High Court Orders Inquiry After S.R.N.H Doctors Deliver Baby By Cesarean Mode Instead Of Terminating Pregnancy
-https://www.verdictum.in/allahabad-high-court/x-minor-v-state-of-uttar-pradesh-srnh-doctors-deliver-baby-instead-of-medical-termination-inquiry-1622599
-
-[Source Link](https://t.me/verdictumlegalupdates/29274)
-
----
-
-### 2026-09-24T05:02:44+00:00
-Punjab & Haryana High Court Cancels Bail In Murder Case After Accused Uploaded Complainant's Sister's Photo Online
-https://www.verdictum.in/punjab-and-haryana-high-court/sourabh-narula-v-state-of-haryana-2026phc136743-threat-complainant-bail-cancellation-murder-1622597
-
-[Source Link](https://t.me/verdictumlegalupdates/29273)
-
----
-
-### 2026-09-24T04:32:53+00:00
-“Prima Facie A Predator Of Innocent Girls": Delhi High Court Denies Bail To Man Who Had 9 Matrimonial Profiles
-https://www.verdictum.in/delhi-high-court/gaurav-jaiswal-v-the-state-nct-of-delhi-2026dhc8151-9-matrimonial-profiles-to-cheat-women-predator-1622573
-
-[Source Link](https://t.me/verdictumlegalupdates/29272)
-
----
-
-### 2026-09-23T16:02:59+00:00
-Legal Consultant vacancy At Sree Chitra Tirunal Institute for Medical Sciences & Technology
-https://www.verdictum.in/job-updates/sree-chitra-tirunal-institute-for-medical-sciences-technology-1622567
-
-[Source Link](https://t.me/verdictumlegalupdates/29271)
-
----
-
-### 2026-09-23T15:32:18+00:00
-No Bar On Appointing Investigating Officer As Prosecutor In Navy Court-Martial: Kerala High Court
-https://www.verdictum.in/kerala-high-court/union-of-india-v-santosh-karwade-2026ker71832-navy-disciplinary-action-1622563
-
-[Source Link](https://t.me/verdictumlegalupdates/29270)
-
----
-
-### 2026-09-23T15:02:17+00:00
-Daughter-In-Law Can’t Abandon Her Old Aged In-Laws After Having Secured Compassionate Appointment: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/shri-choth-mal-verma-v-ajmer-vidyut-vitran-nigam-limited-2026rj-jp37767-compassionate-appointment-1622572
-
-[Source Link](https://t.me/verdictumlegalupdates/29269)
-
----
-
-### 2026-09-23T14:32:36+00:00
-Controlling Authority's Power Under Gratuity Act Is Limited To Computation Of Amount Payable, Not Adjudication Of Liability: Supreme Court
-https://www.verdictum.in/supreme-court/ms-oil-and-natural-gas-corporation-ltd-v-suryakand-d-lad-2026-insc-1019-controlling-authoritys-power-under-gratuity-act-1622571
-
-[Source Link](https://t.me/verdictumlegalupdates/29268)
 
 ---
 
