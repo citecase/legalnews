@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-24T08:55:22+00:00*
+*Last Updated: 2026-09-24T12:48:18+00:00*
 
 ---
 
-### 2026-09-24T08:55:22+00:00
-Arbitral Tribunal Cannot Award Pre-Reference Interest If There's Contractual Bar: Supreme Court
-https://www.livelaw.in/supreme-court/arbitral-tribunal-cannot-award-pre-reference-interest-if-theres-contractual-bar-supreme-court-551611
+### 2026-09-24T12:48:18+00:00
+Allahabad High Court Allows 'The Wire' Editor Siddharth Varadarajan To Travel To US; Notes Trial Yet To Begin In FIRs Lodged In 2020
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-allows-the-wire-editor-siddharth-varadarajan-travel-us-551664
 
-[Read on Telegram](https://t.me/livelawindia/120714)
-
----
-### 2026-09-24T08:57:02+00:00
-2026 LiveLaw (SC) 980 |  North Eastern Electric Power Corporation Limited (NEEPCO) Versus Astra Construction Private Limited
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-980-north-eastern-electric-power-corporation-limited-neepco-versus-astra-construction-private-limited-551612
-
-[Read on Telegram](https://t.me/livelawindia/120715)
+[Read on Telegram](https://t.me/livelawindia/120740)
 
 ---
-### 2026-09-24T09:05:03+00:00
-Delhi High Court Denies Anticipatory Bail To Ajeet Bharti In SC/ST Act Case
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-denies-anticipatory-bail-to-ajeet-bharti-in-scst-act-case-551614
+### 2026-09-24T12:58:38+00:00
+Centre For Advanced Legal Studies, Training And Research (CALSTAR) Blog Writing Competition 2026
+https://www.livelaw.in/lawschool/competitions/centre-for-advanced-legal-studies-training-and-advanced-research-blog-writing-competition-2026-551665
 
-[Read on Telegram](https://t.me/livelawindia/120716)
-
----
-### 2026-09-24T09:12:42+00:00
-'State Best Equipped To Decide Upon Land Requirement For Airport': Bombay High Court Rejects Farmers' Challenge To Purandar Airport Site
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-rejects-challenge-purandar-airport-site-551538
-
-[Read on Telegram](https://t.me/livelawindia/120717)
+[Read on Telegram](https://t.me/livelawindia/120741)
 
 ---
-### 2026-09-24T09:22:42+00:00
-Advocate Muraleedharan G. Nominated As Kerala Bar Council Chairperson; Santhosh Kumar P. As BCI Representative
-https://www.livelaw.in/news-updates/kerala-bar-council-chairperson-551617
+### 2026-09-24T13:00:18+00:00
+'Search Is Over, Alleged Detenues Set Free': Punjab Withdraws Habeas Corpus Plea Against ED Raid
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-ed-gmada-raid-punjab-withdraws-habeas-corpus-551666
 
-[Read on Telegram](https://t.me/livelawindia/120718)
-
----
-### 2026-09-24T09:29:32+00:00
-Supreme Court Revises Order In Noida DM Medha Roopam's Case; Specifies Stay Is Only On HC's Strictures & Compensation Direction
-https://www.livelaw.in/top-stories/supreme-court-revises-order-in-noida-dm-medha-roopams-case-specifies-stay-is-only-on-hcs-strictures-compensation-direction-551618
-
-[Read on Telegram](https://t.me/livelawindia/120719)
+[Read on Telegram](https://t.me/livelawindia/120742)
 
 ---
-### 2026-09-24T09:32:52+00:00
-Price Of Calendar: Monologue Of ADR (Part 2)
-https://www.livelaw.in/articles/monologue-adr-resurrection-of-panchayat-551451
+### 2026-09-24T13:01:38+00:00
+Centre Notifies Reappointment Of Senior Advocates Arvind Kamath, B Narsimha Sharma As ASGs For High Courts At Karnataka & Telangana
+https://www.livelaw.in/news-updates/senior-counsels-kuloor-arvind-kamath-narsimha-sharma-additional-solicitors-general-551667
 
-[Read on Telegram](https://t.me/livelawindia/120720)
-
----
-### 2026-09-24T09:45:15+00:00
-'PC Act Conviction Difficult, But Convicts Easily Released Pending Appeal': Kerala High Court Reserves Verdict In Ex-DGP Thachankary's Plea
-https://www.livelaw.in/high-court/kerala-high-court/tomin-j-thachankary-corruption-sentence-suspension-verdict-reserved-551619
-
-[Read on Telegram](https://t.me/livelawindia/120721)
+[Read on Telegram](https://t.me/livelawindia/120743)
 
 ---
-### 2026-09-24T09:55:35+00:00
-Journalist Ravi Nair Moves Supreme Court For Release From Custody In Adani Defamation Case
-https://www.livelaw.in/top-stories/supreme-court-journalist-ravi-nair-plea-for-release-arrested-in-adani-defamation-case-non-bailable-warrant-551622
+### 2026-09-24T13:03:38+00:00
+NEET-UG Paper Leak: Delhi Court Rejects Plea To Defer Arguments On Charge
+https://www.livelaw.in/news-updates/neet-ug-paper-leak-delhi-court-rejects-plea-to-defer-arguments-on-charge-551668
 
-[Read on Telegram](https://t.me/livelawindia/120722)
-
----
-### 2026-09-24T10:18:15+00:00
-POCSO Offence Can't Be Settled Through Compromise By Victim Or Her Family: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/pocso-offence-cant-be-settled-no-compromise-by-victim-or-family-551628
-
-[Read on Telegram](https://t.me/livelawindia/120723)
+[Read on Telegram](https://t.me/livelawindia/120744)
 
 ---
-### 2026-09-24T10:24:35+00:00
-No Criminal Liability Established In Sabarimala Ghee Loss, But Administrative Lapses Need Fixing: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-accepts-vigilance-report-sabarimala-adiyashishtam-ghee-case-551630
+### 2026-09-24T13:12:18+00:00
+Considering To Recruit Urdu, Marathi Teachers: Karnataka Govt Tells High Court In Appeal Against Exclusion Of Linguistic Minorities
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-fresh-notification-urdu-teacher-recruitment-linguistic-minorities-551670
 
-[Read on Telegram](https://t.me/livelawindia/120724)
-
----
-### 2026-09-24T10:31:05+00:00
-'Parent Facing POCSO Prosecution Cannot Be Granted Custody', Supreme Court Permits Mother To Relocate Children To UK
-https://www.livelaw.in/supreme-court/parent-facing-pocso-prosecution-cannot-be-granted-custody-supreme-court-permits-mother-to-relocate-children-to-uk-551632
-
-[Read on Telegram](https://t.me/livelawindia/120725)
+[Read on Telegram](https://t.me/livelawindia/120745)
 
 ---
-### 2026-09-24T10:32:05+00:00
-2026 LiveLaw (SC) 981 | DEBARATI BHUNIA CHAKRABORTY VERSUS SUMAN SANKAR BHUNIA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-981-debarati-bhunia-chakraborty-versus-suman-sankar-bhunia-551633
+### 2026-09-24T13:18:18+00:00
+Bombay High Court Refuses To Quash FIR Against Doctors Booked For Switching Off Oxygen Supply
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-refuses-quash-fir-against-doctors-booked-switching-oxygen-supply-551671
 
-[Read on Telegram](https://t.me/livelawindia/120726)
-
----
-### 2026-09-24T10:36:05+00:00
-Insult To Prime Minister Doesn't Attract S.352 BNS Without Intent To Provoke Breach Of Peace: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-case-insulting-remarks-flags-delay-omnibus-allegations-551635
-
-[Read on Telegram](https://t.me/livelawindia/120727)
+[Read on Telegram](https://t.me/livelawindia/120746)
 
 ---
-### 2026-09-24T10:40:25+00:00
-Delhi High Court Bar Association To Contribute ₹25 Lakh For Construction Of AIIMS Night Shelter
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-bar-association-to-contribute-25-lakh-for-construction-of-aiims-night-shelter-551636
+### 2026-09-24T13:23:58+00:00
+LiveLaw Editorial Guidelines For Article Submissions
+https://www.livelaw.in/articles/livelaw-editorial-guidelines-article-submissions-551674
 
-[Read on Telegram](https://t.me/livelawindia/120728)
-
----
-### 2026-09-24T10:51:45+00:00
-Supreme Court Lays Down Safeguards To Prevent Misuse Of POCSO Act In Child Custody Cases, Quashes False FIR Against Father
-https://www.livelaw.in/top-stories/supreme-court-lays-down-safeguards-to-prevent-misuse-of-pocso-act-in-child-custody-cases-quashes-false-fir-against-father-551637
-
-[Read on Telegram](https://t.me/livelawindia/120729)
+[Read on Telegram](https://t.me/livelawindia/120747)
 
 ---
-### 2026-09-24T10:53:05+00:00
-2026 LiveLaw (SC) 982 | R v E
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-982-r-v-e-551638
+### 2026-09-24T13:27:28+00:00
+Karnataka High Court Refuses To Quash Defamation Case Against BJP MLC Over Statements Made In Press Conference Against State Minister
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-quash-defamation-case-proceedings-mysore-mlc-551675
 
-[Read on Telegram](https://t.me/livelawindia/120730)
-
----
-### 2026-09-24T10:53:45+00:00
-Youth Olympics Equestrian Selection: Delhi High Court Upholds EFI's Selection, Directs Clearer Criteria & Timelines To Avoid Future Disputes
-https://www.livelaw.in/high-court/delhi-high-court/equestrian-federation-ensure-clarity-in-selection-criteria-youth-olympics-551640
-
-[Read on Telegram](https://t.me/livelawindia/120731)
+[Read on Telegram](https://t.me/livelawindia/120748)
 
 ---
-### 2026-09-24T11:07:05+00:00
-Full Court Fee Refund Is Statutory Entitlement When Dispute Is Settled, No Separate Plea Required: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/court-fee-refund-statutory-entitlement-dispute-settled-no-separate-plea-551643
+### 2026-09-24T13:44:08+00:00
+Supreme Court Seeks Data On Insurance Policies Issued To Persons With Autism, Cerebral Palsy, Multiple Disabilities
+https://www.livelaw.in/top-stories/supreme-court-seeks-data-on-insurance-policies-issued-to-persons-with-autism-cerebral-palsy-multiple-disabilities-551678
 
-[Read on Telegram](https://t.me/livelawindia/120732)
+[Read on Telegram](https://t.me/livelawindia/120749)
 
 ---
-### 2026-09-24T11:13:35+00:00
-Allahabad High Court Acquits Woman, Alleged Paramour In Husband's Murder Case; Says CDR Can't Alone Prove They Were Together
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-acquits-woman-alleged-paramour-husband-murder-cdr-551645
+### 2026-09-24T13:55:50+00:00
+Satya Niketan PG Owners Failed To Ensure Structural Safety, Collapse Killed 7: Police Tells Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/satya-niketan-pg-owners-failed-to-ensure-structural-safety-collapse-killed-7-police-tells-delhi-high-court-551679
 
-[Read on Telegram](https://t.me/livelawindia/120733)
+[Read on Telegram](https://t.me/livelawindia/120750)
+
+---
+### 2026-09-24T14:00:30+00:00
+LiveLaw Daily| Adani Defamation| Ajeet Bharti| TMC Symbol| Cauvery Water Shortfall & more
+https://www.livelaw.in/podcast/adani-ajeet-bharti-supreme-court-clat-students-judiciary-pocso-news-india-legal-law-tmc-mamata-banerjee-551680
+
+[Read on Telegram](https://t.me/livelawindia/120751)
+
+---
+### 2026-09-24T14:33:03+00:00
+Last Room Of Refusal: Monologue Of ADR (Part 3)
+https://www.livelaw.in/articles/monologue-adr-last-room-refusal-551452
+
+[Read on Telegram](https://t.me/livelawindia/120752)
+
+---
+### 2026-09-24T15:23:56+00:00
+Article 311 Bar Not Attracted If Officer Removing Employee Is Equal In Status To Appointing Authority : Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-article311-protection-attracted-removing-officer-not-subordinate-appointing-authority-551693
+
+[Read on Telegram](https://t.me/livelawindia/120753)
+
+---
+### 2026-09-24T15:24:56+00:00
+2026 LiveLaw (SC) 983 | Union of India & Ors v Ramdhani Prasad
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-983-union-of-india-ors-v-ramdhani-prasad-551694
+
+[Read on Telegram](https://t.me/livelawindia/120754)
+
+---
+### 2026-09-24T15:38:16+00:00
+BREAKING | Plea In Bombay High Court To Quash 14 Orders Passed By CEC Gyanesh Kumar Despite Objections Of 2 ECs
+https://www.livelaw.in/high-court/bombay-high-court/plea-in-bombay-high-court-to-quash-14-orders-passed-by-cec-gyanesh-kumar-despite-dissent-by-2-ecs-551700
+
+[Read on Telegram](https://t.me/livelawindia/120755)
+
+---
+### 2026-09-24T15:43:16+00:00
+2026 LiveLaw (SC) 984 | Sri Anumandala Rajesh Reddy v State of Karnataka & Anr.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-984-sri-anumandala-rajesh-reddy-v-state-of-karnataka-anr-551702
+
+[Read on Telegram](https://t.me/livelawindia/120756)
+
+---
+### 2026-09-24T15:45:16+00:00
+Sessions Court Cannot Impose Special Category Sentence Barring Statutory Remission And Commutation  : Supreme Court
+https://www.livelaw.in/supreme-court/sessions-court-cannot-impose-special-category-sentence-barring-statutory-remission-and-commutation-supreme-court-551703
+
+[Read on Telegram](https://t.me/livelawindia/120757)
+
+---
+### 2026-09-24T15:46:16+00:00
+2026 LiveLaw (SC) 985 | NAVAL KISHORE & ANR. VERSUS STATE OF PUNJAB
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-985-naval-kishore-anr-versus-state-of-punjab-551704
+
+[Read on Telegram](https://t.me/livelawindia/120758)
+
+---
+### 2026-09-24T16:13:09+00:00
+2026 LiveLaw (SC) 986 | Waris v. State of Madhya Pradesh
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-986-waris-v-state-of-madhya-pradesh-551707
+
+[Read on Telegram](https://t.me/livelawindia/120759)
 
 ---
