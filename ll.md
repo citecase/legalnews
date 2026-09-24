@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-23T14:25:01+00:00*
+*Last Updated: 2026-09-23T14:43:12+00:00*
 
 ---
 
-### 2026-09-23T14:25:01+00:00
-Supreme Court Judges Urge CJI To Consider Constituting Permanent Constitution Bench, Flag Years-Long Delay In References
-https://www.livelaw.in/top-stories/supreme-court-judges-urge-cji-to-consider-constituting-permanent-constitution-bench-flag-years-long-delay-in-references-551505
-
-[Read on Telegram](https://t.me/livelawindia/120638)
-
----
-### 2026-09-23T14:32:42+00:00
-Demat 2.0: From Electronic Ownership Records To Programmable Securities Infrastructure
-https://www.livelaw.in/articles/demat-20-electronic-ownership-records-programmable-securities-infrastructure-551293
-
-[Read on Telegram](https://t.me/livelawindia/120639)
-
----
-### 2026-09-23T14:33:01+00:00
-'Penetration To Any Extent' Sufficient For Aggravated POCSO Assault: Himachal Pradesh High Court Upholds 20-Year Sentence
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-upholds-20year-sentence-despite-no-injuries-551450
-
-[Read on Telegram](https://t.me/livelawindia/120640)
-
----
-### 2026-09-23T14:34:41+00:00
-Students' Federation Of India Moves Delhi High Court Against Disabling Of Instagram Account
-https://www.livelaw.in/high-court/delhi-high-court/students-federation-of-india-moves-delhi-high-court-against-disabling-of-instagram-account-551507
-
-[Read on Telegram](https://t.me/livelawindia/120641)
-
----
 ### 2026-09-23T14:43:12+00:00
 Prima Facie 'Horrific': P&H High Court Denies Anticipatory Bail To Senior Citizen Accused Of Molesting Niece
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-dismisses-pre-arrest-bail-of-63-year-old-accused-of-molesting-niece-551508
@@ -142,5 +114,33 @@ Supreme Court Collegium Recommends Making 5 Additional Judges Of Kerala High Cou
 https://www.livelaw.in/high-court/kerala-high-court/supreme-court-collegium-recommends-making-5-additional-judges-of-kerala-high-court-permanent-551528
 
 [Read on Telegram](https://t.me/livelawindia/120657)
+
+---
+### 2026-09-24T03:18:04+00:00
+Manager (Third Party Risk Management) Vacancy At Deloitte Touche Tohmatsu India LLP
+https://www.livelaw.in/job-updates/manager-third-party-risk-management-vacancy-at-deloitte-touche-tohmatsu-india-llp-551529
+
+[Read on Telegram](https://t.me/livelawindia/120658)
+
+---
+### 2026-09-24T03:37:14+00:00
+Call For Applications: Research & Teaching Associate At Centre For Transnational Commercial Law
+https://www.livelaw.in/job-updates/call-for-applications-research-teaching-associate-at-centre-for-transnational-commercial-law-551530
+
+[Read on Telegram](https://t.me/livelawindia/120659)
+
+---
+### 2026-09-24T03:41:14+00:00
+Research Associate Vacancy At National Law University, Delhi
+https://www.livelaw.in/job-updates/research-associate-vacancy-at-national-law-university-delhi-551531
+
+[Read on Telegram](https://t.me/livelawindia/120660)
+
+---
+### 2026-09-24T03:54:34+00:00
+Director Vacancy At KPMG India [Apply Now]
+https://www.livelaw.in/job-updates/director-vacancy-at-kpmg-india-551539
+
+[Read on Telegram](https://t.me/livelawindia/120661)
 
 ---
