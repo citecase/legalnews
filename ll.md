@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-24T12:48:18+00:00*
+*Last Updated: 2026-09-24T13:00:18+00:00*
 
 ---
 
-### 2026-09-24T12:48:18+00:00
-Allahabad High Court Allows 'The Wire' Editor Siddharth Varadarajan To Travel To US; Notes Trial Yet To Begin In FIRs Lodged In 2020
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-allows-the-wire-editor-siddharth-varadarajan-travel-us-551664
-
-[Read on Telegram](https://t.me/livelawindia/120740)
-
----
-### 2026-09-24T12:58:38+00:00
-Centre For Advanced Legal Studies, Training And Research (CALSTAR) Blog Writing Competition 2026
-https://www.livelaw.in/lawschool/competitions/centre-for-advanced-legal-studies-training-and-advanced-research-blog-writing-competition-2026-551665
-
-[Read on Telegram](https://t.me/livelawindia/120741)
-
----
 ### 2026-09-24T13:00:18+00:00
 'Search Is Over, Alleged Detenues Set Free': Punjab Withdraws Habeas Corpus Plea Against ED Raid
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-ed-gmada-raid-punjab-withdraws-habeas-corpus-551666
@@ -142,5 +128,19 @@ https://www.livelaw.in/sc-judgments/2026-livelaw-sc-985-naval-kishore-anr-versus
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-986-waris-v-state-of-madhya-pradesh-551707
 
 [Read on Telegram](https://t.me/livelawindia/120759)
+
+---
+### 2026-09-24T17:27:19+00:00
+Supreme Court Daily Round-Up : September 24, 2026
+https://www.livelaw.in/round-ups/supreme-court-daily-round-up-september-24-2026-551705
+
+[Read on Telegram](https://t.me/livelawindia/120760)
+
+---
+### 2026-09-24T17:44:59+00:00
+LiveLaw High Courts Daily Highlights: September 24, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-24-2026-551708
+
+[Read on Telegram](https://t.me/livelawindia/120761)
 
 ---
