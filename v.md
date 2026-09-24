@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-23T16:02:59+00:00*
+*Last Updated: 2026-09-24T05:02:44+00:00*
+
+---
+
+### 2026-09-24T05:02:44+00:00
+Punjab & Haryana High Court Cancels Bail In Murder Case After Accused Uploaded Complainant's Sister's Photo Online
+https://www.verdictum.in/punjab-and-haryana-high-court/sourabh-narula-v-state-of-haryana-2026phc136743-threat-complainant-bail-cancellation-murder-1622597
+
+[Source Link](https://t.me/verdictumlegalupdates/29273)
+
+---
+
+### 2026-09-24T04:32:53+00:00
+“Prima Facie A Predator Of Innocent Girls": Delhi High Court Denies Bail To Man Who Had 9 Matrimonial Profiles
+https://www.verdictum.in/delhi-high-court/gaurav-jaiswal-v-the-state-nct-of-delhi-2026dhc8151-9-matrimonial-profiles-to-cheat-women-predator-1622573
+
+[Source Link](https://t.me/verdictumlegalupdates/29272)
 
 ---
 
@@ -145,22 +161,6 @@ Senior Citizens Tribunals Are Not Replacements For Civil Courts To Try Title Dis
 https://www.verdictum.in/allahabad-high-court/balveer-singh-v-state-of-uttar-pradesh-2026ahc193275-db-tribunals-are-not-replacements-for-civil-courts-1622538
 
 [Source Link](https://t.me/verdictumlegalupdates/29254)
-
----
-
-### 2026-09-23T07:02:28+00:00
-Child Witness Is An Easy Prey To Tutoring: Allahabad High Court Sets Aside Death Sentence;  Acquits Mother, Uncle In Triple Drowning Case
-https://www.verdictum.in/allahabad-high-court/priyanka-v-state-of-up-2026ahc198410-db-death-sentence-acquits-mother-killing-children-1622529
-
-[Source Link](https://t.me/verdictumlegalupdates/29253)
-
----
-
-### 2026-09-23T06:29:26+00:00
-How BCI Is Expert Body To Regulate Legal Education: Supreme Court Seeks Response On Plea Challenging Bar Council's Regulatory Role And Asset Transfer To Trust
-https://www.verdictum.in/supreme-court/notice-in-plea-challenging-bar-council-regulatory-role-asset-transfer-trust-1622531
-
-[Source Link](https://t.me/verdictumlegalupdates/29252)
 
 ---
 
