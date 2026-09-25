@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-24T13:00:18+00:00*
+*Last Updated: 2026-09-24T13:27:28+00:00*
 
 ---
 
-### 2026-09-24T13:00:18+00:00
-'Search Is Over, Alleged Detenues Set Free': Punjab Withdraws Habeas Corpus Plea Against ED Raid
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-ed-gmada-raid-punjab-withdraws-habeas-corpus-551666
-
-[Read on Telegram](https://t.me/livelawindia/120742)
-
----
-### 2026-09-24T13:01:38+00:00
-Centre Notifies Reappointment Of Senior Advocates Arvind Kamath, B Narsimha Sharma As ASGs For High Courts At Karnataka & Telangana
-https://www.livelaw.in/news-updates/senior-counsels-kuloor-arvind-kamath-narsimha-sharma-additional-solicitors-general-551667
-
-[Read on Telegram](https://t.me/livelawindia/120743)
-
----
-### 2026-09-24T13:03:38+00:00
-NEET-UG Paper Leak: Delhi Court Rejects Plea To Defer Arguments On Charge
-https://www.livelaw.in/news-updates/neet-ug-paper-leak-delhi-court-rejects-plea-to-defer-arguments-on-charge-551668
-
-[Read on Telegram](https://t.me/livelawindia/120744)
-
----
-### 2026-09-24T13:12:18+00:00
-Considering To Recruit Urdu, Marathi Teachers: Karnataka Govt Tells High Court In Appeal Against Exclusion Of Linguistic Minorities
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-fresh-notification-urdu-teacher-recruitment-linguistic-minorities-551670
-
-[Read on Telegram](https://t.me/livelawindia/120745)
-
----
-### 2026-09-24T13:18:18+00:00
-Bombay High Court Refuses To Quash FIR Against Doctors Booked For Switching Off Oxygen Supply
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-refuses-quash-fir-against-doctors-booked-switching-oxygen-supply-551671
-
-[Read on Telegram](https://t.me/livelawindia/120746)
-
----
-### 2026-09-24T13:23:58+00:00
-LiveLaw Editorial Guidelines For Article Submissions
-https://www.livelaw.in/articles/livelaw-editorial-guidelines-article-submissions-551674
-
-[Read on Telegram](https://t.me/livelawindia/120747)
-
----
 ### 2026-09-24T13:27:28+00:00
 Karnataka High Court Refuses To Quash Defamation Case Against BJP MLC Over Statements Made In Press Conference Against State Minister
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-quash-defamation-case-proceedings-mysore-mlc-551675
@@ -142,5 +100,47 @@ LiveLaw High Courts Daily Highlights: September 24, 2026
 https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-24-2026-551708
 
 [Read on Telegram](https://t.me/livelawindia/120761)
+
+---
+### 2026-09-25T02:56:25+00:00
+Insurance Claim Can't Be Repudiated Solely On Surveyor's Report; Kupwara Consumer Commission Holds Bajaj Allianz Liable
+https://www.livelaw.in/consumer-cases/insurance-claim-cant-be-repudiated-solely-on-surveyors-report-kupwara-consumer-commission-holds-bajaj-allianz-liable-551709
+
+[Read on Telegram](https://t.me/livelawindia/120762)
+
+---
+### 2026-09-25T03:32:35+00:00
+Motor Accident Tribunal Duty Bound To Award 'Just Compensation': Gujarat High Court Enhances Award To ₹24 Lakh
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-enhances-accident-compensation-551673
+
+[Read on Telegram](https://t.me/livelawindia/120763)
+
+---
+### 2026-09-25T04:02:35+00:00
+State Law Officer (NHM) Vacancy At National Health Mission (NHM), UT Ladakh
+https://www.livelaw.in/job-updates/state-law-officer-nhm-vacancy-at-national-health-mission-nhm-ut-ladakh-551719
+
+[Read on Telegram](https://t.me/livelawindia/120764)
+
+---
+### 2026-09-25T04:06:15+00:00
+Junior Assistant And Typist-Cum-Assistant Vacancy At District Legal Services Authority, Mahabubnagar
+https://www.livelaw.in/job-updates/junior-assistant-and-typist-cum-assistant-vacancy-at-district-legal-services-authority-mahabubnagar-551720
+
+[Read on Telegram](https://t.me/livelawindia/120765)
+
+---
+### 2026-09-25T04:07:15+00:00
+Project Assistant Vacancy At Indian Institute Of Technology, Kanpur
+https://www.livelaw.in/job-updates/project-assistant-vacancy-at-indian-institute-of-technology-kanpur-551721
+
+[Read on Telegram](https://t.me/livelawindia/120766)
+
+---
+### 2026-09-25T04:08:15+00:00
+Advisors And Senior Consultants Vacancy At Khadi And Village Industries Commission
+https://www.livelaw.in/job-updates/advisors-and-senior-consultants-vacancy-at-khadi-and-village-industries-commission-551722
+
+[Read on Telegram](https://t.me/livelawindia/120767)
 
 ---
