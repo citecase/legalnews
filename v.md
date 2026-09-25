@@ -1,6 +1,118 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-25T05:02:58+00:00*
+*Last Updated: 2026-09-25T11:53:10+00:00*
+
+---
+
+### 2026-09-25T11:53:10+00:00
+Supreme Court Reserves Order On Sambhal Jama Masjid Committee's Plea Challenging Mosque Survey
+https://www.verdictum.in/supreme-court/reserves-order-sambhal-jama-masjid-committee-challenging-mosque-survey-1622719
+
+[Source Link](https://t.me/verdictumlegalupdates/29311)
+
+---
+
+### 2026-09-25T11:32:29+00:00
+Delhi High Court Directs Meta To Immediately Remove Objectionable Morphed Photo Of Woman With PM
+https://www.verdictum.in/delhi-high-court/meta-to-immediately-remove-objectionable-morphed-photo-of-woman-with-pm-1622716
+
+[Source Link](https://t.me/verdictumlegalupdates/29310)
+
+---
+
+### 2026-09-25T11:02:48+00:00
+Supreme Court Quashes POCSO Case Against Father In Custody Battle; Frames Safeguards To Curb Misuse Of Child Abuse Laws In Matrimonial Disputes
+https://www.verdictum.in/supreme-court/r-v-e-2026-insc-1049-safeguards-to-curb-misuse-of-child-abuse-laws-matrimonial-disputes-1622713
+
+[Source Link](https://t.me/verdictumlegalupdates/29309)
+
+---
+
+### 2026-09-25T10:33:08+00:00
+Sessions Court Cannot Sentence Murder Convict To "Remain In Prison Till Rest Of Their Life": Supreme Court
+https://www.verdictum.in/supreme-court/naval-kishore-anr-v-state-of-punjab-2026-insc-1048-sessions-court-sentence-1622712
+
+[Source Link](https://t.me/verdictumlegalupdates/29308)
+
+---
+
+### 2026-09-25T10:02:47+00:00
+Supreme Court Asks Selection Committee To Expedite Appointment Of Chairpersons Of DRAT Allahabad & Calcutta
+https://www.verdictum.in/supreme-court/selection-committee-to-expedite-appointment-of-chairpersons-of-drat-allahabad-calcutta-1622711
+
+[Source Link](https://t.me/verdictumlegalupdates/29307)
+
+---
+
+### 2026-09-25T09:32:46+00:00
+Delhi High Court To Hear Woman's Plea Accusing CJP Leaders Of Morphing, Circulating Her Photos With PM
+https://www.verdictum.in/delhi-high-court/womans-plea-accusing-cjp-leaders-of-morphing-circulating-her-photos-with-pm-1622704
+
+[Source Link](https://t.me/verdictumlegalupdates/29306)
+
+---
+
+### 2026-09-25T08:52:25+00:00
+Fabrication, Unauthorized Litigation: Plea Before Supreme Court Against CEC Gyanesh Kumar's Alleged Unilateral Decisions And Electoral Roll Manipulations
+https://www.verdictum.in/supreme-court/alleging-cec-gyanesh-kumar-unilateral-decisions-electoral-roll-manipulations-1622709
+
+[Source Link](https://t.me/verdictumlegalupdates/29305)
+
+---
+
+### 2026-09-25T08:33:04+00:00
+Arbitration Act| Arbitral Tribunal Exercising Powers U/S 17 Does Not Exercise Appellate Jurisdiction Over Order Passed By A Court U/S 9.: Supreme Court
+https://www.verdictum.in/supreme-court/union-of-india-others-v-hariom-projects-pvt-ltd-2026-insc-1044-appellate-court-arbitration-act-1622692
+
+[Source Link](https://t.me/verdictumlegalupdates/29304)
+
+---
+
+### 2026-09-25T08:02:23+00:00
+Supreme Court Agrees For Early Listing Of PIL Seeking Directions For Speedy Disposal Of Criminal Cases Against MPs, MLAs
+https://www.verdictum.in/supreme-court/early-listing-of-pil-seeking-directions-for-speedy-disposal-of-criminal-cases-against-mps-mlas-1622695
+
+[Source Link](https://t.me/verdictumlegalupdates/29303)
+
+---
+
+### 2026-09-25T07:31:23+00:00
+Supreme Court Dismisses Plea For Hindi As Official Language Of Court, Says Phased Reforms Are Already Being Introduced
+https://www.verdictum.in/supreme-court/dismisses-plea-for-hindi-as-official-language-of-court-1622703
+
+[Source Link](https://t.me/verdictumlegalupdates/29302)
+
+---
+
+### 2026-09-25T07:02:22+00:00
+Allot Protest Venue To Bank Employees Union: High Court To Delhi Police
+https://www.verdictum.in/delhi-high-court/allot-protest-venue-to-bank-employees-union-1622700
+
+[Source Link](https://t.me/verdictumlegalupdates/29301)
+
+---
+
+### 2026-09-25T06:33:01+00:00
+Supreme Court Seeks Goa Police’s Response On Plea Filed By Tarun Tejpal Against Conviction In 2013 Rape Case
+https://www.verdictum.in/supreme-court/goa-polices-response-on-plea-filed-by-tarun-tejpal-against-conviction-in-2013-rape-case-1622694
+
+[Source Link](https://t.me/verdictumlegalupdates/29300)
+
+---
+
+### 2026-09-25T06:03:00+00:00
+Supreme Court Issues Notice In CBI's Plea Challenging Order Granting Bail To Former Finance Director Of HPGCL In Alleged Financial Fraud
+https://www.verdictum.in/supreme-court/cbi-challenging-order-granting-bail-to-former-finance-director-of-hpgcl-in-alleged-financial-fraud-1622690
+
+[Source Link](https://t.me/verdictumlegalupdates/29299)
+
+---
+
+### 2026-09-25T05:32:39+00:00
+Possibility Of His Reformation: Supreme Court Commutes Death Sentence Of Man Who Raped & Throttled His 6 Year-Old Step-Daughter To Death
+https://www.verdictum.in/supreme-court/waris-v-state-of-madhya-pradesh-2026-insc-1050-raped-throttled-his-6-year-old-step-daughter-to-death-1622688
+
+[Source Link](https://t.me/verdictumlegalupdates/29298)
 
 ---
 
@@ -49,118 +161,6 @@ Abetment & Suicide Includes Cases Where Accused Creates Situation Whereby Eviden
 https://www.verdictum.in/bombay-high-court/ashok-maruti-kanase-v-the-state-of-maharashtra-2026bhc-as38732-abetment-suicide-instigation-1622648
 
 [Source Link](https://t.me/verdictumlegalupdates/29292)
-
----
-
-### 2026-09-24T14:02:26+00:00
-Mere Conduct Of Arbitral Proceedings Can't Per Se Determine Juridical Seat Of Arbitration: Supreme Court
-https://www.verdictum.in/supreme-court/mahanadi-coalfields-ltd-ors-v-ms-gsco-infrastructure-pvt-ltd-2026-insc-1038-commercial-district-courts-1622645
-
-[Source Link](https://t.me/verdictumlegalupdates/29291)
-
----
-
-### 2026-09-24T13:32:25+00:00
-Sanction U/S 197 CrPC Not Required To Register An FIR Against Police Officials: Supreme Court
-https://www.verdictum.in/supreme-court/anumandala-rajesh-reddy-v-state-of-karnataka-2026-insc-1039-is-sanction-us-197-crpc-1622646
-
-[Source Link](https://t.me/verdictumlegalupdates/29290)
-
----
-
-### 2026-09-24T13:03:04+00:00
-Persons With Inter-Religious Marriage Also Entitled To Reservation Provided For Inter-Caste Marriages: Kerala High Court
-https://www.verdictum.in/kerala-high-court/jisha-thomas-v-state-of-kerala-2026ker70453-inter-religion-marriage-inter-caste-marriage-category-1622658
-
-[Source Link](https://t.me/verdictumlegalupdates/29289)
-
----
-
-### 2026-09-24T12:32:43+00:00
-No Special Status In Commercial Contracts: Delhi High Court Rejects SAIL's "State Entity" Defense In Arbitral Award Challenge
-https://www.verdictum.in/delhi-high-court/steel-authority-of-india-limited-v-norvic-shipping-north-america-inc-2026dhc8140-state-entity-defense-in-arbitral-award-1622644
-
-[Source Link](https://t.me/verdictumlegalupdates/29288)
-
----
-
-### 2026-09-24T12:03:02+00:00
-Supreme Court Seeks Nationwide Data On Pending Commercial Cases, Number Of Courts And Its Infrastructure
-https://www.verdictum.in/supreme-court/nationwide-data-pending-commercial-cases-number-courts-infrastructure-1622638
-
-[Source Link](https://t.me/verdictumlegalupdates/29287)
-
----
-
-### 2026-09-24T11:33:01+00:00
-Drawing Of Adverse Inference Justified: Supreme Court On Non-Examination Of Material Witness Having Knowledge Of Family Finances In Partition Suit
-https://www.verdictum.in/supreme-court/hg-pattabi-v-kr-suraj-2026-insc-1041-non-examination-of-material-witness-having-knowledge-1622637
-
-[Source Link](https://t.me/verdictumlegalupdates/29286)
-
----
-
-### 2026-09-24T11:02:57+00:00
-Supreme Court Asks Karnataka To Respond To Plea By Tamil Nadu Seeking Release Of Cauvery River Water & Alleging Shortfall In Supply
-https://www.verdictum.in/supreme-court/plea-by-tamil-nadu-seeking-release-of-cauvery-river-water-alleging-shortfall-in-supply-1622635
-
-[Source Link](https://t.me/verdictumlegalupdates/29285)
-
----
-
-### 2026-09-24T10:32:56+00:00
-Delhi High Court Denies Anticipatory Bail To YouTuber Ajeet Bharti In SC/ST Act Case
-https://www.verdictum.in/delhi-high-court/anticipatory-bail-denied-youtuber-ajeet-bharti-scst-act-case-1622634
-
-[Source Link](https://t.me/verdictumlegalupdates/29284)
-
----
-
-### 2026-09-24T10:03:15+00:00
-Reasonable Time For Fair Opportunity To Lead Evidence: Supreme Court Asks ECI To Apprise It Of Timeframe In Trinamool Congress Name And Symbol Dispute
-https://www.verdictum.in/supreme-court/eci-to-apprise-it-of-timeframe-trinamool-congress-name-symbol-dispute-1622633
-
-[Source Link](https://t.me/verdictumlegalupdates/29283)
-
----
-
-### 2026-09-24T09:32:33+00:00
-Your Case Is Aaya Ram, Gaya Ram, Phir Aaya Ram: Supreme Court Dismisses BRS MLA Danam Nagender's Plea Against Disqualification
-https://www.verdictum.in/supreme-court/brs-mla-danam-nagenders-plea-against-disqualification-dismissed-1622631
-
-[Source Link](https://t.me/verdictumlegalupdates/29282)
-
----
-
-### 2026-09-24T09:02:52+00:00
-Supreme Court Dismisses Pleas Challenging Election Of AIMIM's Mohammad Ismail Abdul Khalique In 2024 Maharashtra Assembly Polls
-https://www.verdictum.in/supreme-court/pleas-challenging-election-of-aimims-mohammad-ismail-abdul-khalique-in-2024-maharashtra-assembly-polls-1622630
-
-[Source Link](https://t.me/verdictumlegalupdates/29281)
-
----
-
-### 2026-09-24T08:33:11+00:00
-Supreme Court Issues Notice To ED On AAP Leader Deepak Singla's Bail Plea In Money Laundering Case
-https://www.verdictum.in/supreme-court/notice-to-ed-on-aap-leader-deepak-singlas-bail-plea-in-money-laundering-case-1622621
-
-[Source Link](https://t.me/verdictumlegalupdates/29280)
-
----
-
-### 2026-09-24T07:46:10+00:00
-Matter Is Extremely Serious: Supreme Court Gives Last Opportunity To Centre To File Response On Social Media Measures Against Child Exploitation & Abuse
-https://www.verdictum.in/supreme-court/last-opportunity-centre-file-response-social-media-measures-child-abuse-material-1622624
-
-[Source Link](https://t.me/verdictumlegalupdates/29279)
-
----
-
-### 2026-09-24T07:32:29+00:00
-Recruit Regular Full-Time MS Or MD, File Status Report On Unused Equipments: Delhi High Court Issues Directions On Functioning Of Govt Hospitals
-https://www.verdictum.in/delhi-high-court/court-on-its-own-motion-v-union-of-india-2026dhc8091-db-unused-equipment-functioning-govt-hospitals-1622617
-
-[Source Link](https://t.me/verdictumlegalupdates/29278)
 
 ---
 
