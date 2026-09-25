@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-24T16:02:30+00:00*
+*Last Updated: 2026-09-25T05:02:58+00:00*
+
+---
+
+### 2026-09-25T05:02:58+00:00
+Son's Transition From Minority To Majority Coupled With Continuing Orthopaedic Disability Justifies Continuation Of Maintenance U/S.127 CrPC: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/samit-pramanick-v-state-of-west-bengal-crr-534-of-2023-majority-disability-maintenance-crpc-1622687
+
+[Source Link](https://t.me/verdictumlegalupdates/29297)
+
+---
+
+### 2026-09-25T04:33:08+00:00
+National Security Must Take Precedence Over Individual Interests: Karnataka High Court Upholds DRDO’s Land Acquisition For Defence Projects
+https://www.verdictum.in/karnataka-high-court/the-defence-research-v-special-land-acquisition-officer-national-security-drdo-land-acquisition-1622679
+
+[Source Link](https://t.me/verdictumlegalupdates/29296)
 
 ---
 
@@ -145,22 +161,6 @@ Recruit Regular Full-Time MS Or MD, File Status Report On Unused Equipments: Del
 https://www.verdictum.in/delhi-high-court/court-on-its-own-motion-v-union-of-india-2026dhc8091-db-unused-equipment-functioning-govt-hospitals-1622617
 
 [Source Link](https://t.me/verdictumlegalupdates/29278)
-
----
-
-### 2026-09-24T07:02:48+00:00
-Mother's Attempt To Cement Her Position In Academic World & Pursuing Jobs Cannot Be Branded As "Nomadic Lifestyle": Supreme Court In Child Custody Case
-https://www.verdictum.in/supreme-court/d-v-s-2026-insc-1043-nomadic-lifestyle-mother-custody-united-kingdom-1622615
-
-[Source Link](https://t.me/verdictumlegalupdates/29277)
-
----
-
-### 2026-09-24T06:32:27+00:00
-Inordinate Delay In Deciding References Is Source Of Institutional Embarrassment: Supreme Court Requests CJI To Consider Constituting Permanent 5-Judge Bench
-https://www.verdictum.in/supreme-court/requests-cji-to-consider-constituting-permanent-5-judge-bench-1622607
-
-[Source Link](https://t.me/verdictumlegalupdates/29276)
 
 ---
 
