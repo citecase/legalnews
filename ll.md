@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-25T12:00:44+00:00*
+*Last Updated: 2026-09-25T12:02:24+00:00*
 
 ---
 
-### 2026-09-25T12:00:44+00:00
-Kurnool Consumer Commission Orders Kia India To Refund ₹11 Lakh For Recurring DPF Issues In Sonet
-https://www.livelaw.in/consumer-cases/kurnool-consumer-commission-orders-kia-india-to-refund-11-lakh-for-recurring-dpf-issues-in-sonet-551847
-
-[Read on Telegram](https://t.me/livelawindia/120841)
-
----
 ### 2026-09-25T12:02:24+00:00
 5 Officers Suspended Over Satya Niketan PG Collapse, Enquiry Initiated To Fix Responsibility: MCD Tells Delhi High Court
 https://www.livelaw.in/high-court/delhi-high-court/5-officers-suspended-over-satya-niketan-pg-collapse-enquiry-initiated-to-fix-responsibility-mcd-tells-delhi-high-court-551846
@@ -142,5 +135,12 @@ Sultanpur Bar Election | Allahabad High Court Orders Inquiry To Identify 'Black 
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-sultanpur-bar-election-inquiry-black-sheep-advocates-ballot-boxes-looted-551875
 
 [Read on Telegram](https://t.me/livelawindia/120860)
+
+---
+### 2026-09-25T17:27:40+00:00
+Supreme Court Daily Round-Up : September 25, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-september-25-2026-551873
+
+[Read on Telegram](https://t.me/livelawindia/120861)
 
 ---
