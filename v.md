@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-26T11:02:39+00:00*
+*Last Updated: 2026-09-26T15:32:44+00:00*
+
+---
+
+### 2026-09-26T15:32:44+00:00
+Child Victims Or Their Families Can’t Compromise Offence Under POCSO Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/anand-singh-rawat-v-the-state-2026dhc8211-child-victims-compromise-offence-pocso-act-1622794
+
+[Source Link](https://t.me/verdictumlegalupdates/29335)
+
+---
+
+### 2026-09-26T14:53:03+00:00
+Let 'House Husbands' Become The New Normal To Preserve Institution Of Marriage: Madras High Court
+https://www.verdictum.in/madras-high-court/house-husbands-new-normal-institution-marriage-1622792
+
+[Source Link](https://t.me/verdictumlegalupdates/29334)
+
+---
+
+### 2026-09-26T14:13:03+00:00
+"Classic Romeo-Juliet Case": Sikkim High Court Expresses Helplessness Over Mandatory 20-Year POCSO Sentence For Consensual Romantic Relationship
+https://www.verdictum.in/sikkim-high-court/bishnu-chettri-aditya-v-state-of-sikkim-criminal-appeal-no-18-of-2025-consensual-romantic-relationship-pocso-romeo-juliet-1622791
+
+[Source Link](https://t.me/verdictumlegalupdates/29333)
+
+---
+
+### 2026-09-26T13:23:02+00:00
+Man Lives Short But Litigation Continues Infinitely: Rajasthan High Court Directs SDM To Decide 63-Year-Old Land Dispute Case Within 3 Months
+https://www.verdictum.in/rajasthan-high-court/2026-rj-jp-37999-jai-ram-v-sub-divisional-magistrate-litigation-continues-infinitely-1622790
+
+[Source Link](https://t.me/verdictumlegalupdates/29332)
+
+---
+
+### 2026-09-26T12:32:41+00:00
+Punjab & Haryana HC Orders Interim Release Of Arrested CGST Assessee; Slams Department For 'Brazen Highhandedness' And Overreaching Court Orders
+https://www.verdictum.in/punjab-and-haryana-high-court/grants-interim-release-to-cgst-assessee-department-for-brazen-highhandedness-and-overreaching-1622788
+
+[Source Link](https://t.me/verdictumlegalupdates/29331)
+
+---
+
+### 2026-09-26T11:52:20+00:00
+Moralistic Sermon: Bombay High Court Finds Family Court’s “Pious Wife”, “Bahu” & "Janak Pita" Remarks In Child Custody Case Regressive
+https://www.verdictum.in/bombay-high-court/kag-v-aag-2026bhc-as35988-db-custody-dispute-family-court-remarks-regressive-1622786
+
+[Source Link](https://t.me/verdictumlegalupdates/29330)
 
 ---
 
@@ -113,54 +161,6 @@ Order Terminating Arbitration Proceedings U/S 32(2)(c) A&C Act Can't Be Treated 
 https://www.verdictum.in/madras-high-court/p-muthulakshmi-v-p-raju-appeal-cadmd-no-3-of-2025-70-year-old-womans-partnership-dissolution-suit-1622720
 
 [Source Link](https://t.me/verdictumlegalupdates/29316)
-
----
-
-### 2026-09-25T14:03:14+00:00
-Supreme Court Seeks Clarification From BCI On Its Stand On Upper Age Limit For 5-Year Law Courses
-https://www.verdictum.in/supreme-court/clarification-from-bci-on-its-stand-on-upper-age-limit-for-5-year-law-courses-1622715
-
-[Source Link](https://t.me/verdictumlegalupdates/29315)
-
----
-
-### 2026-09-25T13:32:53+00:00
-Section 413 BNSS- Appeal By Victim Against Order Of Acquittal Passed By Magistrate Has To Be Filed Before Sessions Court: Supreme Court
-https://www.verdictum.in/supreme-court/subhas-chandra-sarkar-v-the-state-of-west-bengal-2026-insc-1052-appeal-victim-order-acquittal-1622718
-
-[Source Link](https://t.me/verdictumlegalupdates/29314)
-
----
-
-### 2026-09-25T13:02:32+00:00
-Supreme Court Rejects Plea Against Forensic Audit Into Transactions Of Fortis In Daiichi Sankyo Case
-https://www.verdictum.in/supreme-court/forensic-audit-into-transactions-of-fortis-in-daiichi-sankyo-case-1622717
-
-[Source Link](https://t.me/verdictumlegalupdates/29313)
-
----
-
-### 2026-09-25T12:32:31+00:00
-Article 311(1) Bar Applies Only When Dismissing Authority Is Subordinate To Actual Appointing Authority: Supreme Court
-https://www.verdictum.in/supreme-court/union-of-india-ors-v-ramdhani-prasad-2026-insc-1047-article-311-constitution-1622714
-
-[Source Link](https://t.me/verdictumlegalupdates/29312)
-
----
-
-### 2026-09-25T11:53:10+00:00
-Supreme Court Reserves Order On Sambhal Jama Masjid Committee's Plea Challenging Mosque Survey
-https://www.verdictum.in/supreme-court/reserves-order-sambhal-jama-masjid-committee-challenging-mosque-survey-1622719
-
-[Source Link](https://t.me/verdictumlegalupdates/29311)
-
----
-
-### 2026-09-25T11:32:29+00:00
-Delhi High Court Directs Meta To Immediately Remove Objectionable Morphed Photo Of Woman With PM
-https://www.verdictum.in/delhi-high-court/meta-to-immediately-remove-objectionable-morphed-photo-of-woman-with-pm-1622716
-
-[Source Link](https://t.me/verdictumlegalupdates/29310)
 
 ---
 
