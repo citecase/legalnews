@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-25T12:02:24+00:00*
+*Last Updated: 2026-09-25T13:12:37+00:00*
 
 ---
 
-### 2026-09-25T12:02:24+00:00
-5 Officers Suspended Over Satya Niketan PG Collapse, Enquiry Initiated To Fix Responsibility: MCD Tells Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/5-officers-suspended-over-satya-niketan-pg-collapse-enquiry-initiated-to-fix-responsibility-mcd-tells-delhi-high-court-551846
-
-[Read on Telegram](https://t.me/livelawindia/120842)
-
----
-### 2026-09-25T12:04:04+00:00
-Delhi Riots UAPA Case : Supreme Court Relaxes Meeran Haider's Bail Condition On Attendance, Refuses To Lift Other Conditions
-https://www.livelaw.in/top-stories/delhi-riots-uapa-case-supreme-court-relaxes-meeran-haiders-bail-condition-on-attendance-refuses-to-lift-other-conditions-551848
-
-[Read on Telegram](https://t.me/livelawindia/120843)
-
----
-### 2026-09-25T12:12:44+00:00
-Toll Plaza Within 5 Km Of Municipal Limits Valid If Highway Serves Locals; P&H High Court Says Halting Project Not In Interest Of Justice
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-not-in-interest-of-justice-to-halt-nearly-complete-highway-project-refuses-to-strike-toll-plaza-551845
-
-[Read on Telegram](https://t.me/livelawindia/120844)
-
----
-### 2026-09-25T12:27:24+00:00
-Intervenor With Prima Facie Interest In Disputed Property Can Be Added As Party To Avoid Multiplicity Of Proceedings: Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-intervenor-prima-facie-interest-disputed-property-551714
-
-[Read on Telegram](https://t.me/livelawindia/120845)
-
----
 ### 2026-09-25T13:12:37+00:00
 Admiralty Law | Valid Bareboat Charter Termination Ends Demise Charter Without Physical Repossession : Supreme Court Vacates Vessel Arrest
 https://www.livelaw.in/supreme-court/admiralty-law-valid-bareboat-charter-termination-ends-demise-charter-without-physical-repossession-supreme-court-vacates-vessel-arrest-551853
@@ -142,5 +114,33 @@ Supreme Court Daily Round-Up : September 25, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-september-25-2026-551873
 
 [Read on Telegram](https://t.me/livelawindia/120861)
+
+---
+### 2026-09-26T03:46:16+00:00
+LiveLaw High Courts Daily Highlights: September 25, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-25-2026-551891
+
+[Read on Telegram](https://t.me/livelawindia/120862)
+
+---
+### 2026-09-26T03:49:36+00:00
+Tender Eligibility Dispute Can't Be Treated As Fraud To Blacklist Contractor: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-no-debar-blacklist-for-misconception-tender-clause-551892
+
+[Read on Telegram](https://t.me/livelawindia/120863)
+
+---
+### 2026-09-26T04:10:36+00:00
+After Karnataka High Court Remarks On Illegal Arrests, DGP Orders Strict Section 35 BNSS Compliance; Warns Police Of Personal Liability
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-karnataka-dgp-issues-comprehensive-circulars-section35-bnss-551894
+
+[Read on Telegram](https://t.me/livelawindia/120864)
+
+---
+### 2026-09-26T04:14:16+00:00
+Myanmar Drone Training Case: Delhi Court Allows 6 Ukrainians, One US National To Travel Abroad
+https://www.livelaw.in/news-updates/myanmar-drone-training-case-delhi-court-allows-6-ukrainians-one-us-national-to-travel-abroad-551895
+
+[Read on Telegram](https://t.me/livelawindia/120865)
 
 ---
