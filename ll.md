@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-25T13:12:37+00:00*
+*Last Updated: 2026-09-26T07:32:44+00:00*
 
 ---
 
-### 2026-09-25T13:12:37+00:00
-Admiralty Law | Valid Bareboat Charter Termination Ends Demise Charter Without Physical Repossession : Supreme Court Vacates Vessel Arrest
-https://www.livelaw.in/supreme-court/admiralty-law-valid-bareboat-charter-termination-ends-demise-charter-without-physical-repossession-supreme-court-vacates-vessel-arrest-551853
+### 2026-09-26T07:32:44+00:00
+NEET-UG | Answer Keys Can't Be Referred To Expert Without Facts Warranting Reference: Allahabad High Court Dismisses Lone Objector's Challenge
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-dismisses-lone-objector-challenge-neet-ug-551919
 
-[Read on Telegram](https://t.me/livelawindia/120846)
-
----
-### 2026-09-25T13:14:57+00:00
-Kerala High Court Grants Protection From Arrest To CPI(M)'s KS Arunkumar In Case Over Post On Home Minister's Foreign Trip
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-ks-arunkumar-ramesh-chennithala-551854
-
-[Read on Telegram](https://t.me/livelawindia/120847)
+[Read on Telegram](https://t.me/livelawindia/120891)
 
 ---
-### 2026-09-25T13:15:27+00:00
-Kerala Court Directs Police Probe Against Lakshmi Priya Over Ansiba Hassan's Complaint Alleging Sexually Coloured Remarks
-https://www.livelaw.in/news-updates/kerala-court-ansiba-hassan-lakshmi-priya-551855
+### 2026-09-26T07:57:34+00:00
+Kerala High Court Issues Notice To SEBI On Plea Seeking Probe Into Kitex Garments' Financial Transactions
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-issues-notice-to-sebi-on-plea-seeking-probe-into-kitex-garments-financial-transactions-551942
 
-[Read on Telegram](https://t.me/livelawindia/120848)
-
----
-### 2026-09-25T13:16:27+00:00
-2026 LiveLaw (SC) 991 | Owners and Parties Interested in M.V. Nereus Progress Versus Om Freight Forwarders Ltd.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-991-owners-and-parties-interested-in-mv-nereus-progress-versus-om-freight-forwarders-ltd-551856
-
-[Read on Telegram](https://t.me/livelawindia/120849)
+[Read on Telegram](https://t.me/livelawindia/120892)
 
 ---
-### 2026-09-25T13:20:07+00:00
-'There Can't Be Part Acceptance & Part Rejection Of Prosecutrix's Statement' : Supreme Court Acquits Man In Rape Case
-https://www.livelaw.in/supreme-court/there-cant-be-part-acceptance-part-rejection-of-prosecutrixs-statement-supreme-court-acquits-man-in-rape-case-551857
+### 2026-09-26T08:02:54+00:00
+Senior Citizens Act | Tribunal Can't Declare Gift Deed Void On Ground Of Forgery; Remedy Lies Before Civil Court: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-tribunal-cant-declare-gift-deed-void-plea-of-forgery-551933
 
-[Read on Telegram](https://t.me/livelawindia/120850)
-
----
-### 2026-09-25T13:21:27+00:00
-2026 LiveLaw (SC) 992 | PARAMJIT SINGH BEDI VERSUS STATE OF PUNJAB
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-992-paramjit-singh-bedi-versus-state-of-punjab-551858
-
-[Read on Telegram](https://t.me/livelawindia/120851)
+[Read on Telegram](https://t.me/livelawindia/120893)
 
 ---
-### 2026-09-25T13:22:47+00:00
-'No Mens Rea', Act Appears Rash & Negligent: Gujarat High Court Grants Bail To Father Accused Of Applying Burning Wicks On 'Possessed' Daughter
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-bail-father-fir-burning-cotton-wicks-on-daughter-551859
+### 2026-09-26T08:17:54+00:00
+Husband's Visits To In-Laws' House Doesn't Prove Wife Refused To Cohabit 'Without Reasonable Cause': Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/husband-visits-in-laws-doesnt-prove-wife-refused-cohabit-without-reasonable-cause-551887
 
-[Read on Telegram](https://t.me/livelawindia/120852)
-
----
-### 2026-09-25T13:33:27+00:00
-'Deeply Regrettable': Allahabad High Court Flags Repeated Litigation Over PwBD Eligibility For MBBS, Says Boards Can't Re-Assess Disability
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-medical-board-national-medical-commission-guidelines-requantify-disability-551863
-
-[Read on Telegram](https://t.me/livelawindia/120853)
+[Read on Telegram](https://t.me/livelawindia/120894)
 
 ---
-### 2026-09-25T13:34:27+00:00
-Supreme Court Calls For GD Entries, CCTV Footage In Plea Alleging Assam Police Custodial Torture
-https://www.livelaw.in/top-stories/supreme-court-calls-for-gd-entries-cctv-footage-in-plea-alleging-assam-police-custodial-torture-551864
+### 2026-09-26T08:20:34+00:00
+Call For Applications | Senior Research Associate – Centre For The Study Of The Legal Profession At National Law School Of India University (NLSIU)
+https://www.livelaw.in/job-updates/call-for-applications-senior-research-associate-centre-for-the-study-of-the-legal-profession-at-national-law-school-of-india-university-nlsiu-551944
 
-[Read on Telegram](https://t.me/livelawindia/120854)
-
----
-### 2026-09-25T14:31:57+00:00
-'The Liver Doctor' Withdraws Plea In Supreme Court Against Prescription Of Arsenic-Based Homeo Medicine For Covid Immunity
-https://www.livelaw.in/top-stories/the-liver-doctor-withdraws-plea-in-supreme-court-against-prescription-of-arsenic-based-homeo-medicine-for-covid-immunity-551871
-
-[Read on Telegram](https://t.me/livelawindia/120855)
+[Read on Telegram](https://t.me/livelawindia/120895)
 
 ---
-### 2026-09-25T14:32:07+00:00
-LiveLaw Daily| Brij Bhushan Singh|Justice SC Sharma & ECI|CJP & more
-https://www.livelaw.in/podcast/supreme-court-justice-sc-singh-election-commission-of-india-eci-gyanesh-kumar-cec-india-news-cjp-saurav-das-delhi-high-court-551872
+### 2026-09-26T08:22:55+00:00
+Young Professional Vacancy At Khadi And Village Industries Commission
+https://www.livelaw.in/job-updates/young-professional-vacancy-at-khadi-and-village-industries-commission-551945
 
-[Read on Telegram](https://t.me/livelawindia/120856)
-
----
-### 2026-09-25T14:32:17+00:00
-Better Road To Equity In Indian Bar
-https://www.livelaw.in/articles/better-road-equity-indian-bar-551699
-
-[Read on Telegram](https://t.me/livelawindia/120857)
+[Read on Telegram](https://t.me/livelawindia/120896)
 
 ---
-### 2026-09-25T14:32:57+00:00
-When Interface Persuades: Rapido, Dark Patterns And Consumer Protection
-https://www.livelaw.in/lawschool/articles/when-interface-persuades-rapido-dark-patterns-consumer-protection-551814
+### 2026-09-26T08:25:15+00:00
+Merchant Banking Head (Executive Vice President) Vacancy At Indbank Merchant Banking Services Limited (IBMBS LTD)
+https://www.livelaw.in/job-updates/merchant-banking-head-executive-vice-president-vacancy-at-indbank-merchant-banking-services-limited-ibmbs-ltd-551946
 
-[Read on Telegram](https://t.me/livelawindia/120858)
-
----
-### 2026-09-25T16:29:00+00:00
-Section 216 CrPC Cannot Be Used To Add Charges Without Prima Facie Material: J&K High Court Rejects ED Plea In Farooq Abdullah-JKCA Case
-https://www.livelaw.in/high-court/jammu-kashmir/section-216-crpc-charges-prima-facie-material-jk-high-court-ed-plea-in-farooq-abdullah-jkca-case-551874
-
-[Read on Telegram](https://t.me/livelawindia/120859)
+[Read on Telegram](https://t.me/livelawindia/120897)
 
 ---
-### 2026-09-25T16:29:20+00:00
-Sultanpur Bar Election | Allahabad High Court Orders Inquiry To Identify 'Black Sheep' Advocates After Ballot Boxes 'Looted'
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-sultanpur-bar-election-inquiry-black-sheep-advocates-ballot-boxes-looted-551875
+### 2026-09-26T08:34:15+00:00
+'Pious' Marriage Institution Shouldn't Be Taken Lightly: Allahabad High Court Protects Divorced Couple With 2 Children Who Remarried
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-pious-marriage-institution-divorced-couple-2-children-remarried-551948
 
-[Read on Telegram](https://t.me/livelawindia/120860)
-
----
-### 2026-09-25T17:27:40+00:00
-Supreme Court Daily Round-Up : September 25, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-september-25-2026-551873
-
-[Read on Telegram](https://t.me/livelawindia/120861)
+[Read on Telegram](https://t.me/livelawindia/120898)
 
 ---
-### 2026-09-26T03:46:16+00:00
-LiveLaw High Courts Daily Highlights: September 25, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-25-2026-551891
+### 2026-09-26T08:42:45+00:00
+Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
+https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-551949
 
-[Read on Telegram](https://t.me/livelawindia/120862)
-
----
-### 2026-09-26T03:49:36+00:00
-Tender Eligibility Dispute Can't Be Treated As Fraud To Blacklist Contractor: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-no-debar-blacklist-for-misconception-tender-clause-551892
-
-[Read on Telegram](https://t.me/livelawindia/120863)
+[Read on Telegram](https://t.me/livelawindia/120899)
 
 ---
-### 2026-09-26T04:10:36+00:00
-After Karnataka High Court Remarks On Illegal Arrests, DGP Orders Strict Section 35 BNSS Compliance; Warns Police Of Personal Liability
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-karnataka-dgp-issues-comprehensive-circulars-section35-bnss-551894
+### 2026-09-26T08:56:05+00:00
+CJI Surya Kant Holds Open House With Law Students, Takes Questions On Police Action, Collegium
+https://www.livelaw.in/top-stories/cji-surya-kant-holds-open-house-with-law-students-takes-questions-on-police-action-collegium-551950
 
-[Read on Telegram](https://t.me/livelawindia/120864)
+[Read on Telegram](https://t.me/livelawindia/120900)
 
 ---
-### 2026-09-26T04:14:16+00:00
-Myanmar Drone Training Case: Delhi Court Allows 6 Ukrainians, One US National To Travel Abroad
-https://www.livelaw.in/news-updates/myanmar-drone-training-case-delhi-court-allows-6-ukrainians-one-us-national-to-travel-abroad-551895
+### 2026-09-26T08:58:05+00:00
+WhatsApp Chats Showing Mental Cruelty Cannot Be Ignored Merely For Non-Compliance With Evidence Act: Chhattisgarh High Court Grants Divorce
+https://www.livelaw.in/high-court/chhattisgarh-high-court/unchallenged-whatsapp-messages-received-establish-mental-cruelty-551889
 
-[Read on Telegram](https://t.me/livelawindia/120865)
+[Read on Telegram](https://t.me/livelawindia/120901)
+
+---
+### 2026-09-26T09:02:45+00:00
+Supreme Court Dismisses BJP MLAs' Plea Challenging Quashing Of Corruption Complaint Against Karnataka Energy Minister KJ George
+https://www.livelaw.in/top-stories/supreme-court-refuses-interfere-karnataka-hc-order-quashing-corruption-case-energy-minister-kj-george-551951
+
+[Read on Telegram](https://t.me/livelawindia/120902)
+
+---
+### 2026-09-26T09:11:06+00:00
+Senior Officer Cannot Be Paid Less Than Junior Holding Same Post : Supreme Court
+https://www.livelaw.in/supreme-court/senior-officer-cannot-be-paid-less-than-junior-holding-same-post-supreme-court-551953
+
+[Read on Telegram](https://t.me/livelawindia/120903)
+
+---
+### 2026-09-26T09:12:06+00:00
+2026 LiveLaw (SC) 993 | JAI PRAKASH SINGH VERSUS THE STATE OF UTTAR PRADESH & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-993-jai-prakash-singh-versus-the-state-of-uttar-pradesh-ors-551955
+
+[Read on Telegram](https://t.me/livelawindia/120904)
+
+---
+### 2026-09-26T09:32:36+00:00
+Secondary Victimisation In India's Criminal Justice System
+https://www.livelaw.in/articles/secondary-victimisation-india-criminal-justice-system-551813
+
+[Read on Telegram](https://t.me/livelawindia/120905)
+
+---
+### 2026-09-26T09:32:56+00:00
+Beyond Dollar Monopoly: Decoding BRICS De-Dollarization, Eurozone Precedents, And Public International Law.
+https://www.livelaw.in/lawschool/articles/beyond-dollar-monopoly-decoding-brics-de-dollarization-eurozone-precedents-551812
+
+[Read on Telegram](https://t.me/livelawindia/120906)
+
+---
+### 2026-09-26T09:48:56+00:00
+Authorities Must Establish Unfair Means Against Each Candidate, Can't Apply 'One Size Fits All' Approach: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/authorities-must-establish-unfair-means-against-each-candidate-cant-apply-one-size-fits-all-approach-delhi-high-court-551957
+
+[Read on Telegram](https://t.me/livelawindia/120907)
+
+---
+### 2026-09-26T10:25:27+00:00
+Kerala High Court Issues Notice To Bar Council of Kerala And Its Chairman In Plea Challenging Bar Council Committee Formation
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-notice-bar-council-of-kerala-chairmanbar-council-committee-formation-551962
+
+[Read on Telegram](https://t.me/livelawindia/120908)
+
+---
+### 2026-09-26T10:32:47+00:00
+School Merger Can't Be Called Arbitrary When Students Have Easy Access To Nearby School: Himachal Pradesh High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-upholds-merger-government-middle-school-551937
+
+[Read on Telegram](https://t.me/livelawindia/120909)
+
+---
+### 2026-09-26T11:02:27+00:00
+Calcutta High Court Grants Anticipatory Bail To Dhrubajyoti Bose In Durga Puja Land Extortion Case
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-grants-anticipatory-bail-to-dhrubajyoti-bose-in-durga-puja-land-extortion-case-551934
+
+[Read on Telegram](https://t.me/livelawindia/120910)
 
 ---
