@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-25T16:02:57+00:00*
+*Last Updated: 2026-09-26T04:33:12+00:00*
+
+---
+
+### 2026-09-26T04:33:12+00:00
+Cannot Expect Pre-1950 Documents To Mention "Thakur Scheduled Tribe": Bombay High Court Grants Tribe Validity Certificate To "Thakur" Applicant
+https://www.verdictum.in/bombay-high-court/jyoti-v-municipal-council-jalgaon-jamod-2026bhc-as39140-fb-tribe-validity-certificate-to-thakur-applicant-1622725
+
+[Source Link](https://t.me/verdictumlegalupdates/29320)
 
 ---
 
@@ -153,14 +161,6 @@ Allot Protest Venue To Bank Employees Union: High Court To Delhi Police
 https://www.verdictum.in/delhi-high-court/allot-protest-venue-to-bank-employees-union-1622700
 
 [Source Link](https://t.me/verdictumlegalupdates/29301)
-
----
-
-### 2026-09-25T06:33:01+00:00
-Supreme Court Seeks Goa Police’s Response On Plea Filed By Tarun Tejpal Against Conviction In 2013 Rape Case
-https://www.verdictum.in/supreme-court/goa-polices-response-on-plea-filed-by-tarun-tejpal-against-conviction-in-2013-rape-case-1622694
-
-[Source Link](https://t.me/verdictumlegalupdates/29300)
 
 ---
 
