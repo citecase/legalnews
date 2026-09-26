@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-26T04:33:12+00:00*
+*Last Updated: 2026-09-26T11:02:39+00:00*
+
+---
+
+### 2026-09-26T11:02:39+00:00
+Calling Someone “Saale” Will Not Fall Within Ambit Of Caste-Related Abuse Under SC ST Act: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/2026ahc201947db-sunil-panjabi-v-state-of-up-1622784
+
+[Source Link](https://t.me/verdictumlegalupdates/29329)
+
+---
+
+### 2026-09-26T10:12:58+00:00
+Evidence Cannot Be Employed To Supply Missing Foundation: Rajasthan High Court Refuses Plea For Handwriting Expert Report Where Forgery Was Not Pleaded
+https://www.verdictum.in/rajasthan-high-court/bihari-lal-v-navratanmal-bamb-ors-sb-civil-writ-petition-no-89922023-handwriting-expert-report-forgery-1622782
+
+[Source Link](https://t.me/verdictumlegalupdates/29328)
+
+---
+
+### 2026-09-26T09:22:28+00:00
+Furnishing of Cheque For Time-Barred Debt Effectively Resurrects Debt: Karnataka High Court Upholds Conviction U/S 138 NI Act
+https://www.verdictum.in/karnataka-high-court/ganesh-v-kr-puttaswamy-crlrp-no-1471-of-2024-fresh-agreement-us-253-of-contract-act-1622781
+
+[Source Link](https://t.me/verdictumlegalupdates/29327)
+
+---
+
+### 2026-09-26T08:32:07+00:00
+Settlement Deed Without Specific Maintenance Condition Cannot Be Cancelled U/S 23 Senior Citizens Act: Madras High Court
+https://www.verdictum.in/madras-high-court/dr-a-panner-v-the-district-collector-and-others-senior-citizens-act-maintenance-1622777
+
+[Source Link](https://t.me/verdictumlegalupdates/29326)
+
+---
+
+### 2026-09-26T07:46:06+00:00
+Illegal Construction & Conversion: Supreme Court Directs UP Govt To Seal Over 16,000 Properties In Meerut & Demolish Unauthorised Structures
+https://www.verdictum.in/supreme-court/supreme-court-directs-up-govt-to-seal-properties-in-meerut-demolish-unauthorised-structures-1622775
+
+[Source Link](https://t.me/verdictumlegalupdates/29325)
+
+---
+
+### 2026-09-26T07:07:45+00:00
+Allahabad High Court Orders Probe Into Seized SUV Taken Out Of Police Station For Raid
+https://www.verdictum.in/allahabad-high-court/rahul-dharamdev-state-of-up-2026ahc198430-examination-state-police-administration-raid-1622769
+
+[Source Link](https://t.me/verdictumlegalupdates/29324)
+
+---
+
+### 2026-09-26T06:32:44+00:00
+Madras High Court Restrains Media From Releasing Videos Related To ‘Child Abuse’ By Industrialist R Veeramani
+https://www.verdictum.in/madras-high-court/madras-high-court-restrains-media-from-releasing-videos-related-to-child-abuse-by-industrialist-r-veeramani-1622762
+
+[Source Link](https://t.me/verdictumlegalupdates/29323)
+
+---
+
+### 2026-09-26T06:13:13+00:00
+Allegation Of Forcible Sex Hard To Accept When Prosecutrix Voluntarily Travelled & Stayed With Accused: Supreme Court Acquits Rape Accused
+https://www.verdictum.in/supreme-court/paramjit-singh-bedi-v-state-of-punjab-2026-insc-1054-prosecutrixs-statement-cant-be-part-accepted-kidnapping-charge-1622757
+
+[Source Link](https://t.me/verdictumlegalupdates/29322)
+
+---
+
+### 2026-09-26T05:23:12+00:00
+PMLA Bail Order Relevant In Connected CBI Case Based On Same Facts: Delhi High Court Upholds Bail In NSE Call-Interception Case
+https://www.verdictum.in/delhi-high-court/central-bureau-of-investigation-v-sanjay-pandey-chitra-ramakrishna-2026dhc8163-1622756
+
+[Source Link](https://t.me/verdictumlegalupdates/29321)
 
 ---
 
@@ -89,78 +161,6 @@ Delhi High Court Directs Meta To Immediately Remove Objectionable Morphed Photo 
 https://www.verdictum.in/delhi-high-court/meta-to-immediately-remove-objectionable-morphed-photo-of-woman-with-pm-1622716
 
 [Source Link](https://t.me/verdictumlegalupdates/29310)
-
----
-
-### 2026-09-25T11:02:48+00:00
-Supreme Court Quashes POCSO Case Against Father In Custody Battle; Frames Safeguards To Curb Misuse Of Child Abuse Laws In Matrimonial Disputes
-https://www.verdictum.in/supreme-court/r-v-e-2026-insc-1049-safeguards-to-curb-misuse-of-child-abuse-laws-matrimonial-disputes-1622713
-
-[Source Link](https://t.me/verdictumlegalupdates/29309)
-
----
-
-### 2026-09-25T10:33:08+00:00
-Sessions Court Cannot Sentence Murder Convict To "Remain In Prison Till Rest Of Their Life": Supreme Court
-https://www.verdictum.in/supreme-court/naval-kishore-anr-v-state-of-punjab-2026-insc-1048-sessions-court-sentence-1622712
-
-[Source Link](https://t.me/verdictumlegalupdates/29308)
-
----
-
-### 2026-09-25T10:02:47+00:00
-Supreme Court Asks Selection Committee To Expedite Appointment Of Chairpersons Of DRAT Allahabad & Calcutta
-https://www.verdictum.in/supreme-court/selection-committee-to-expedite-appointment-of-chairpersons-of-drat-allahabad-calcutta-1622711
-
-[Source Link](https://t.me/verdictumlegalupdates/29307)
-
----
-
-### 2026-09-25T09:32:46+00:00
-Delhi High Court To Hear Woman's Plea Accusing CJP Leaders Of Morphing, Circulating Her Photos With PM
-https://www.verdictum.in/delhi-high-court/womans-plea-accusing-cjp-leaders-of-morphing-circulating-her-photos-with-pm-1622704
-
-[Source Link](https://t.me/verdictumlegalupdates/29306)
-
----
-
-### 2026-09-25T08:52:25+00:00
-Fabrication, Unauthorized Litigation: Plea Before Supreme Court Against CEC Gyanesh Kumar's Alleged Unilateral Decisions And Electoral Roll Manipulations
-https://www.verdictum.in/supreme-court/alleging-cec-gyanesh-kumar-unilateral-decisions-electoral-roll-manipulations-1622709
-
-[Source Link](https://t.me/verdictumlegalupdates/29305)
-
----
-
-### 2026-09-25T08:33:04+00:00
-Arbitration Act| Arbitral Tribunal Exercising Powers U/S 17 Does Not Exercise Appellate Jurisdiction Over Order Passed By A Court U/S 9.: Supreme Court
-https://www.verdictum.in/supreme-court/union-of-india-others-v-hariom-projects-pvt-ltd-2026-insc-1044-appellate-court-arbitration-act-1622692
-
-[Source Link](https://t.me/verdictumlegalupdates/29304)
-
----
-
-### 2026-09-25T08:02:23+00:00
-Supreme Court Agrees For Early Listing Of PIL Seeking Directions For Speedy Disposal Of Criminal Cases Against MPs, MLAs
-https://www.verdictum.in/supreme-court/early-listing-of-pil-seeking-directions-for-speedy-disposal-of-criminal-cases-against-mps-mlas-1622695
-
-[Source Link](https://t.me/verdictumlegalupdates/29303)
-
----
-
-### 2026-09-25T07:31:23+00:00
-Supreme Court Dismisses Plea For Hindi As Official Language Of Court, Says Phased Reforms Are Already Being Introduced
-https://www.verdictum.in/supreme-court/dismisses-plea-for-hindi-as-official-language-of-court-1622703
-
-[Source Link](https://t.me/verdictumlegalupdates/29302)
-
----
-
-### 2026-09-25T07:02:22+00:00
-Allot Protest Venue To Bank Employees Union: High Court To Delhi Police
-https://www.verdictum.in/delhi-high-court/allot-protest-venue-to-bank-employees-union-1622700
-
-[Source Link](https://t.me/verdictumlegalupdates/29301)
 
 ---
 
