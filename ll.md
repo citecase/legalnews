@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-26T14:32:19+00:00*
+*Last Updated: 2026-09-26T14:52:59+00:00*
 
 ---
 
-### 2026-09-26T14:32:19+00:00
-Right Of Accused: Accessing FIRs At Earliest Stage
-https://www.livelaw.in/articles/accused-right-accessing-firs-earliest-stage-551816
-
-[Read on Telegram](https://t.me/livelawindia/120919)
-
----
 ### 2026-09-26T14:52:59+00:00
 NPPA Cannot Impose Blanket Price Ceiling Without Following DPCO Mechanism: Bombay High Court Quashes 2009 Notification
 https://www.livelaw.in/high-court/bombay-high-court/nppa-cannot-impose-blanket-drug-price-ceilings-551936
@@ -142,5 +135,12 @@ LiveLaw Allahabad High Court Weekly Roundup: September 21 to September 27, 2026
 https://www.livelaw.in/high-court/allahabad-high-court/livelaw-allahabad-high-court-weekly-roundup-september-21-to-september-27-2026-552008
 
 [Read on Telegram](https://t.me/livelawindia/120938)
+
+---
+### 2026-09-27T17:22:05+00:00
+Top 20 High Court Judgments Of The Week
+https://www.livelaw.in/high-court/all-high-courts/most-important-judgments-of-the-week-552009
+
+[Read on Telegram](https://t.me/livelawindia/120939)
 
 ---
