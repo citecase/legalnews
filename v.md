@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-27T12:03:21+00:00*
+*Last Updated: 2026-09-27T15:52:39+00:00*
+
+---
+
+### 2026-09-27T15:52:39+00:00
+Chief Manager (Legal) Vacancy At Shipping Corporation of India
+https://www.verdictum.in/job-updates/shipping-corporation-of-india-1622844
+
+[Source Link](https://t.me/verdictumlegalupdates/29343)
+
+---
+
+### 2026-09-27T13:32:38+00:00
+Source Of Purchase Money By Itself Not Sufficient To Determine Whether A Transaction Is Benami: Delhi High Court
+https://www.verdictum.in/delhi-high-court/surya-deep-garg-suraj-garg-v-neha-garg-2026dhc8248-exception-for-spouse-under-benami-act-1622841
+
+[Source Link](https://t.me/verdictumlegalupdates/29342)
 
 ---
 
@@ -145,22 +161,6 @@ Allahabad High Court Orders Probe Into Seized SUV Taken Out Of Police Station Fo
 https://www.verdictum.in/allahabad-high-court/rahul-dharamdev-state-of-up-2026ahc198430-examination-state-police-administration-raid-1622769
 
 [Source Link](https://t.me/verdictumlegalupdates/29324)
-
----
-
-### 2026-09-26T06:32:44+00:00
-Madras High Court Restrains Media From Releasing Videos Related To ‘Child Abuse’ By Industrialist R Veeramani
-https://www.verdictum.in/madras-high-court/madras-high-court-restrains-media-from-releasing-videos-related-to-child-abuse-by-industrialist-r-veeramani-1622762
-
-[Source Link](https://t.me/verdictumlegalupdates/29323)
-
----
-
-### 2026-09-26T06:13:13+00:00
-Allegation Of Forcible Sex Hard To Accept When Prosecutrix Voluntarily Travelled & Stayed With Accused: Supreme Court Acquits Rape Accused
-https://www.verdictum.in/supreme-court/paramjit-singh-bedi-v-state-of-punjab-2026-insc-1054-prosecutrixs-statement-cant-be-part-accepted-kidnapping-charge-1622757
-
-[Source Link](https://t.me/verdictumlegalupdates/29322)
 
 ---
 
