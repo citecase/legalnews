@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-26T09:12:06+00:00*
+*Last Updated: 2026-09-26T09:48:56+00:00*
 
 ---
 
-### 2026-09-26T09:12:06+00:00
-2026 LiveLaw (SC) 993 | JAI PRAKASH SINGH VERSUS THE STATE OF UTTAR PRADESH & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-993-jai-prakash-singh-versus-the-state-of-uttar-pradesh-ors-551955
-
-[Read on Telegram](https://t.me/livelawindia/120904)
-
----
-### 2026-09-26T09:32:36+00:00
-Secondary Victimisation In India's Criminal Justice System
-https://www.livelaw.in/articles/secondary-victimisation-india-criminal-justice-system-551813
-
-[Read on Telegram](https://t.me/livelawindia/120905)
-
----
-### 2026-09-26T09:32:56+00:00
-Beyond Dollar Monopoly: Decoding BRICS De-Dollarization, Eurozone Precedents, And Public International Law.
-https://www.livelaw.in/lawschool/articles/beyond-dollar-monopoly-decoding-brics-de-dollarization-eurozone-precedents-551812
-
-[Read on Telegram](https://t.me/livelawindia/120906)
-
----
 ### 2026-09-26T09:48:56+00:00
 Authorities Must Establish Unfair Means Against Each Candidate, Can't Apply 'One Size Fits All' Approach: Delhi High Court
 https://www.livelaw.in/high-court/delhi-high-court/authorities-must-establish-unfair-means-against-each-candidate-cant-apply-one-size-fits-all-approach-delhi-high-court-551957
@@ -142,5 +121,26 @@ Forensic Evidence Positively Contradicted Prosecutrix's Version: Delhi High Cour
 https://www.livelaw.in/high-court/delhi-high-court/forensic-evidence-positively-contradicted-prosecutrixs-version-delhi-high-court-overturns-rape-conviction-after-13-years-551980
 
 [Read on Telegram](https://t.me/livelawindia/120923)
+
+---
+### 2026-09-27T04:02:16+00:00
+Can't Use Inherent Powers U/S.528 BNSS As 'Backdoor Entry' After Revision Fails Unless Gross Injustice Shown: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/cant-use-inherent-powers-us528-bnss-as-backdoor-entry-after-revision-fails-unless-gross-injustice-shown-delhi-high-court-551982
+
+[Read on Telegram](https://t.me/livelawindia/120924)
+
+---
+### 2026-09-27T04:18:56+00:00
+'Judiciary Has Never Failed And Will Never Fail In India' : Justice Prashant Kumar Mishra
+https://www.livelaw.in/top-stories/judiciary-has-never-failed-and-will-never-fail-in-india-justice-prashant-kumar-mishra-551994
+
+[Read on Telegram](https://t.me/livelawindia/120925)
+
+---
+### 2026-09-27T04:32:26+00:00
+Stamp Duty On Arbitral Awards: Chargeable Event After URC Construction
+https://www.livelaw.in/articles/stamp-duty-arbitral-awards-chargeable-event-after-urc-construction-551967
+
+[Read on Telegram](https://t.me/livelawindia/120926)
 
 ---
