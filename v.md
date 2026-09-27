@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-26T15:32:44+00:00*
+*Last Updated: 2026-09-27T04:32:13+00:00*
+
+---
+
+### 2026-09-27T04:32:13+00:00
+No Separate Prior Notice Required Before Invoking Suo Motu Revisional Power U/ 9 ROR Act: Andhra Pradesh High Court
+https://www.verdictum.in/andhra-pradesh-high-court/durgam-paddaiah-v-the-state-of-andhra-pradesh-department-of-revenue-writ-appeal-no-999-of-2026-no-separate-prior-notice-required-1622793
+
+[Source Link](https://t.me/verdictumlegalupdates/29336)
 
 ---
 
@@ -153,14 +161,6 @@ CBI Probe Is An Extraordinary Remedy, Cannot Be Ordered Merely On Allegations Of
 https://www.verdictum.in/punjab-and-haryana-high-court/daljit-kaur-and-another-v-state-of-punjab-and-others-cbi-investigation-1622721
 
 [Source Link](https://t.me/verdictumlegalupdates/29317)
-
----
-
-### 2026-09-25T14:33:14+00:00
-Order Terminating Arbitration Proceedings U/S 32(2)(c) A&C Act Can't Be Treated As Arbitral Award: Madras High Court
-https://www.verdictum.in/madras-high-court/p-muthulakshmi-v-p-raju-appeal-cadmd-no-3-of-2025-70-year-old-womans-partnership-dissolution-suit-1622720
-
-[Source Link](https://t.me/verdictumlegalupdates/29316)
 
 ---
 
