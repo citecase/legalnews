@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-27T04:32:13+00:00*
+*Last Updated: 2026-09-27T12:03:21+00:00*
+
+---
+
+### 2026-09-27T12:03:21+00:00
+Marriage Under Muslim Personal Law Does Not Confer Immunity From POCSO & BNS Provisions For Sexual Intercourse With Minor Wife: Delhi High Court
+https://www.verdictum.in/delhi-high-court/2026-dhc-8343-bilal-v-state-of-nct-of-delhi-1622805
+
+[Source Link](https://t.me/verdictumlegalupdates/29341)
+
+---
+
+### 2026-09-27T10:32:16+00:00
+Mental Incapacitation: Bombay High Court Sets Aside Rejection Of Discharge Plea By POCSO Accused
+https://www.verdictum.in/bombay-high-court/lucky-v-state-of-maharashtra-2026bhc-nag12672-pocso-accused-with-intellectual-disability-1622804
+
+[Source Link](https://t.me/verdictumlegalupdates/29340)
+
+---
+
+### 2026-09-27T09:02:16+00:00
+"Tandoorasti" Is A Blessing, Not An "Ashirvad" Ceremony To Constitute Valid Parsi Marriage: Bombay High Court
+https://www.verdictum.in/bombay-high-court/h-v-s-2026bhc-os20904-parsi-marriage-divorce-act-order-vii-rule-11d-cpc-1622803
+
+[Source Link](https://t.me/verdictumlegalupdates/29339)
+
+---
+
+### 2026-09-27T07:32:35+00:00
+Section 45 PMLA Does Not Require Detention Until An Uncertain End Of Trial: Delhi High Court Grants Bail To PMLA Accused After Nearly 4 Years In Custody
+https://www.verdictum.in/delhi-high-court/masasasong-ao-v-directorate-of-enforcement-2026dhc8301-section-45-pmla-article-21-constitution-pmla-uapa-1622796
+
+[Source Link](https://t.me/verdictumlegalupdates/29338)
+
+---
+
+### 2026-09-27T06:03:14+00:00
+Interpretive Dispute Over Tender Conditions Does Not Amount To "Fraudulent Practice": Madras High Court
+https://www.verdictum.in/madras-high-court/eco-protection-engineers-pvt-ltd-v-the-state-of-tamil-nadu-and-others-1622795
+
+[Source Link](https://t.me/verdictumlegalupdates/29337)
 
 ---
 
@@ -121,46 +161,6 @@ Allegation Of Forcible Sex Hard To Accept When Prosecutrix Voluntarily Travelled
 https://www.verdictum.in/supreme-court/paramjit-singh-bedi-v-state-of-punjab-2026-insc-1054-prosecutrixs-statement-cant-be-part-accepted-kidnapping-charge-1622757
 
 [Source Link](https://t.me/verdictumlegalupdates/29322)
-
----
-
-### 2026-09-26T05:23:12+00:00
-PMLA Bail Order Relevant In Connected CBI Case Based On Same Facts: Delhi High Court Upholds Bail In NSE Call-Interception Case
-https://www.verdictum.in/delhi-high-court/central-bureau-of-investigation-v-sanjay-pandey-chitra-ramakrishna-2026dhc8163-1622756
-
-[Source Link](https://t.me/verdictumlegalupdates/29321)
-
----
-
-### 2026-09-26T04:33:12+00:00
-Cannot Expect Pre-1950 Documents To Mention "Thakur Scheduled Tribe": Bombay High Court Grants Tribe Validity Certificate To "Thakur" Applicant
-https://www.verdictum.in/bombay-high-court/jyoti-v-municipal-council-jalgaon-jamod-2026bhc-as39140-fb-tribe-validity-certificate-to-thakur-applicant-1622725
-
-[Source Link](https://t.me/verdictumlegalupdates/29320)
-
----
-
-### 2026-09-25T16:02:57+00:00
-Consultant (Legal) Vacancy At Hindustan Machine Tools
-https://www.verdictum.in/job-updates/hindustan-machine-tools-1622722
-
-[Source Link](https://t.me/verdictumlegalupdates/29319)
-
----
-
-### 2026-09-25T15:32:56+00:00
-Absence Of Recovery Of Bonafide Passenger’s Ticket Can't Result In Defeating Railway Accident Compensation Claim: Supreme Court
-https://www.verdictum.in/supreme-court/sukhabhai-nanjibhai-makwana-anr-v-union-of-india-2026-insc-1056-bonafide-passenger-ticket-1622723
-
-[Source Link](https://t.me/verdictumlegalupdates/29318)
-
----
-
-### 2026-09-25T15:02:35+00:00
-CBI Probe Is An Extraordinary Remedy, Cannot Be Ordered Merely On Allegations Of Police Partiality: P&H High Court
-https://www.verdictum.in/punjab-and-haryana-high-court/daljit-kaur-and-another-v-state-of-punjab-and-others-cbi-investigation-1622721
-
-[Source Link](https://t.me/verdictumlegalupdates/29317)
 
 ---
 
