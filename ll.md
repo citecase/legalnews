@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-26T09:48:56+00:00*
+*Last Updated: 2026-09-26T12:06:08+00:00*
 
 ---
 
-### 2026-09-26T09:48:56+00:00
-Authorities Must Establish Unfair Means Against Each Candidate, Can't Apply 'One Size Fits All' Approach: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/authorities-must-establish-unfair-means-against-each-candidate-cant-apply-one-size-fits-all-approach-delhi-high-court-551957
-
-[Read on Telegram](https://t.me/livelawindia/120907)
-
----
-### 2026-09-26T10:25:27+00:00
-Kerala High Court Issues Notice To Bar Council of Kerala And Its Chairman In Plea Challenging Bar Council Committee Formation
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-notice-bar-council-of-kerala-chairmanbar-council-committee-formation-551962
-
-[Read on Telegram](https://t.me/livelawindia/120908)
-
----
-### 2026-09-26T10:32:47+00:00
-School Merger Can't Be Called Arbitrary When Students Have Easy Access To Nearby School: Himachal Pradesh High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-upholds-merger-government-middle-school-551937
-
-[Read on Telegram](https://t.me/livelawindia/120909)
-
----
-### 2026-09-26T11:02:27+00:00
-Calcutta High Court Grants Anticipatory Bail To Dhrubajyoti Bose In Durga Puja Land Extortion Case
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-grants-anticipatory-bail-to-dhrubajyoti-bose-in-durga-puja-land-extortion-case-551934
-
-[Read on Telegram](https://t.me/livelawindia/120910)
-
----
-### 2026-09-26T11:18:37+00:00
-Adopting Canadian Model On Warning Labels For Packaged Foods High In Fat, Sugar Or Salt : FSSAI Informs Supreme Court
-https://www.livelaw.in/top-stories/adopting-canadian-model-on-warning-labels-for-packaged-foods-high-in-fat-sugar-or-salt-fssai-informs-supreme-court-551972
-
-[Read on Telegram](https://t.me/livelawindia/120911)
-
----
-### 2026-09-26T11:25:37+00:00
-Mere Absence Of Train Ticket Cannot Defeat Railway Compensation Claim : Supreme Court Reiterates
-https://www.livelaw.in/supreme-court/supreme-court-mere-absence-railway-ticket-cannot-defeat-compensation-claim-551974
-
-[Read on Telegram](https://t.me/livelawindia/120912)
-
----
-### 2026-09-26T11:26:37+00:00
-2026 LiveLaw (SC) 994 | Sukhabhai Nanjibhai Makwana & Anr v Union of India
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-994-sukhabhai-nanjibhai-makwana-anr-v-union-of-india-551975
-
-[Read on Telegram](https://t.me/livelawindia/120913)
-
----
-### 2026-09-26T11:37:17+00:00
-Mere Involvement In Routine FIR Not Sufficient Ground To Refuse Arms Licence Unless Threat To Public Safety Established: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-mere-involvement-routine-fir-not-sufficient-ground-refuse-arms-licence-551930
-
-[Read on Telegram](https://t.me/livelawindia/120914)
-
----
 ### 2026-09-26T12:06:08+00:00
 Wrong To Say SIR Adjudicated Deletions Led To Trinamool Loss In 31 Bengal Seats: ECI Tells Supreme Court
 https://www.livelaw.in/top-stories/wrong-to-say-sir-adjudicated-deletions-led-to-trinamool-loss-in-31-bengal-seats-eci-tells-supreme-court-551977
@@ -142,5 +86,61 @@ Stamp Duty On Arbitral Awards: Chargeable Event After URC Construction
 https://www.livelaw.in/articles/stamp-duty-arbitral-awards-chargeable-event-after-urc-construction-551967
 
 [Read on Telegram](https://t.me/livelawindia/120926)
+
+---
+### 2026-09-27T05:07:48+00:00
+There've Been So Many Corrupt Judges In Supreme Court Who've Damaged Justice : Dushyant Dave
+https://www.livelaw.in/top-stories/thereve-been-so-many-corrupt-judges-in-supreme-court-whove-damaged-justice-dushyant-dave-551993
+
+[Read on Telegram](https://t.me/livelawindia/120927)
+
+---
+### 2026-09-27T05:40:19+00:00
+Associate (Tax) Vacancy At Ernst & Young
+https://www.livelaw.in/job-updates/associate-tax-vacancy-at-ernst-young-551995
+
+[Read on Telegram](https://t.me/livelawindia/120928)
+
+---
+### 2026-09-27T05:40:58+00:00
+Call For Applications | Research Associate – Centre For The Study Of The Legal Profession At National Law School Of India University (NLSIU)
+https://www.livelaw.in/job-updates/call-for-applications-research-associate-centre-for-the-study-of-the-legal-profession-at-national-law-school-of-india-university-nlsiu-551996
+
+[Read on Telegram](https://t.me/livelawindia/120929)
+
+---
+### 2026-09-27T06:16:09+00:00
+Senior Officer (Secretarial) Vacancy At Godrej Industries Group
+https://www.livelaw.in/job-updates/senior-officer-secretarial-vacancy-at-godrej-industries-group-551997
+
+[Read on Telegram](https://t.me/livelawindia/120930)
+
+---
+### 2026-09-27T06:22:10+00:00
+Team Member (Legal) Vacancy At Cipla Limited [Mumbai; Apply Now]
+https://www.livelaw.in/job-updates/team-member-legal-vacancy-at-cipla-limited-mumbai-551998
+
+[Read on Telegram](https://t.me/livelawindia/120931)
+
+---
+### 2026-09-27T07:37:00+00:00
+Supreme Court Orders Demolition Of 16,726 Illegal Structures In Meerut; Appoints Justice Dhulia Commission To Probe Illegal Colonies
+https://www.livelaw.in/top-stories/supreme-court-orders-demolition-of-16726-illegal-structures-in-meerut-appoints-justice-dhulia-commission-to-probe-illegal-colonies-552000
+
+[Read on Telegram](https://t.me/livelawindia/120932)
+
+---
+### 2026-09-27T09:32:22+00:00
+MADA Fallout: Section 9D, Article 131 Split, And Validation Doctrine That Doesn't Fit
+https://www.livelaw.in/articles/mada-fallout-section-9d-article131-split-validation-doctrine-551968
+
+[Read on Telegram](https://t.me/livelawindia/120933)
+
+---
+### 2026-09-27T09:35:42+00:00
+Legal Advisor Vacancy At HDFC Bank [Apply Now]
+https://www.livelaw.in/job-updates/legal-advisor-vacancy-at-hdfc-bank-552004
+
+[Read on Telegram](https://t.me/livelawindia/120934)
 
 ---
