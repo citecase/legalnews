@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-26T12:06:08+00:00*
+*Last Updated: 2026-09-26T14:32:19+00:00*
 
 ---
 
-### 2026-09-26T12:06:08+00:00
-Wrong To Say SIR Adjudicated Deletions Led To Trinamool Loss In 31 Bengal Seats: ECI Tells Supreme Court
-https://www.livelaw.in/top-stories/wrong-to-say-sir-adjudicated-deletions-led-to-trinamool-loss-in-31-bengal-seats-eci-tells-supreme-court-551977
-
-[Read on Telegram](https://t.me/livelawindia/120915)
-
----
-### 2026-09-26T12:55:38+00:00
-Litigant Can't Resile From Orders Passed Based On Counsel's Submissions; Would Create 'Chaotic Situation': Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/litigant-cant-resile-from-orders-passed-based-on-counsels-submissions-would-create-chaotic-situation-delhi-high-court-551979
-
-[Read on Telegram](https://t.me/livelawindia/120916)
-
----
-### 2026-09-26T13:02:18+00:00
-Husband Cannot Refuse To Maintain Wife's Child From Previous Marriage After Knowingly Accepting Him: Uttarakhand High Court
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-directs-maintenance-wife-child-551935
-
-[Read on Telegram](https://t.me/livelawindia/120917)
-
----
-### 2026-09-26T13:31:18+00:00
-Know The Law | When Can An Issue Be Tried First Under Order XIV Rule 2 CPC As Preliminary Issue?
-https://www.livelaw.in/know-the-law/when-can-an-issue-be-tried-first-under-orderxiv-rule2-cpc-551862
-
-[Read on Telegram](https://t.me/livelawindia/120918)
-
----
 ### 2026-09-26T14:32:19+00:00
 Right Of Accused: Accessing FIRs At Earliest Stage
 https://www.livelaw.in/articles/accused-right-accessing-firs-earliest-stage-551816
@@ -142,5 +114,33 @@ Legal Advisor Vacancy At HDFC Bank [Apply Now]
 https://www.livelaw.in/job-updates/legal-advisor-vacancy-at-hdfc-bank-552004
 
 [Read on Telegram](https://t.me/livelawindia/120934)
+
+---
+### 2026-09-27T13:43:56+00:00
+When Social Media Design Goes Too Far | In Conversation With Dr. Vikas Kathuria
+https://www.livelaw.in/videos/social-media-meta-instagram-facebook-india-addiction-teenagers-india-news-552005
+
+[Read on Telegram](https://t.me/livelawindia/120935)
+
+---
+### 2026-09-27T14:32:47+00:00
+Conversations To Commercials: Analyzing Meta's Policy Update Under Digital Personal Data Protection Act.
+https://www.livelaw.in/top-stories/conversations-commercials-analyzing-meta-policy-update-digital-personal-data-protection-act-551969
+
+[Read on Telegram](https://t.me/livelawindia/120936)
+
+---
+### 2026-09-27T14:51:37+00:00
+Is ECI Correct In Saying Supreme Court Upheld Its New Form 6 Declaration?
+https://www.livelaw.in/top-stories/is-eci-correct-in-saying-supreme-court-upheld-its-new-declaration-appended-to-form-6-552006
+
+[Read on Telegram](https://t.me/livelawindia/120937)
+
+---
+### 2026-09-27T16:25:59+00:00
+LiveLaw Allahabad High Court Weekly Roundup: September 21 to September 27, 2026
+https://www.livelaw.in/high-court/allahabad-high-court/livelaw-allahabad-high-court-weekly-roundup-september-21-to-september-27-2026-552008
+
+[Read on Telegram](https://t.me/livelawindia/120938)
 
 ---
