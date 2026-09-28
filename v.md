@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-27T15:52:39+00:00*
+*Last Updated: 2026-09-28T05:08:25+00:00*
+
+---
+
+### 2026-09-28T05:08:25+00:00
+Delhi Court Issues Notice In Appeal By Women Wrestlers Against Brij Bhushan's Acquittal
+https://www.verdictum.in/other-courts/appeal-by-women-wrestlers-against-brij-bhushans-acquittal-notice-1622870
+
+[Source Link](https://t.me/verdictumlegalupdates/29345)
+
+---
+
+### 2026-09-28T04:32:34+00:00
+Right To Resign Legislative Seat Can’t Be Burdened With Extra-statutory Conditions By Judicial Order: Madras High Court
+https://www.verdictum.in/madras-high-court/k-suthan-v-union-of-india-2026mhc3908-resign-legislative-seat-judicial-order-1622861
+
+[Source Link](https://t.me/verdictumlegalupdates/29344)
 
 ---
 
@@ -145,22 +161,6 @@ Settlement Deed Without Specific Maintenance Condition Cannot Be Cancelled U/S 2
 https://www.verdictum.in/madras-high-court/dr-a-panner-v-the-district-collector-and-others-senior-citizens-act-maintenance-1622777
 
 [Source Link](https://t.me/verdictumlegalupdates/29326)
-
----
-
-### 2026-09-26T07:46:06+00:00
-Illegal Construction & Conversion: Supreme Court Directs UP Govt To Seal Over 16,000 Properties In Meerut & Demolish Unauthorised Structures
-https://www.verdictum.in/supreme-court/supreme-court-directs-up-govt-to-seal-properties-in-meerut-demolish-unauthorised-structures-1622775
-
-[Source Link](https://t.me/verdictumlegalupdates/29325)
-
----
-
-### 2026-09-26T07:07:45+00:00
-Allahabad High Court Orders Probe Into Seized SUV Taken Out Of Police Station For Raid
-https://www.verdictum.in/allahabad-high-court/rahul-dharamdev-state-of-up-2026ahc198430-examination-state-police-administration-raid-1622769
-
-[Source Link](https://t.me/verdictumlegalupdates/29324)
 
 ---
 
