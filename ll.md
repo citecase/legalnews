@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-27T05:40:19+00:00*
+*Last Updated: 2026-09-28T09:47:14+00:00*
 
 ---
 
-### 2026-09-27T05:40:19+00:00
-Associate (Tax) Vacancy At Ernst & Young
-https://www.livelaw.in/job-updates/associate-tax-vacancy-at-ernst-young-551995
+### 2026-09-28T09:47:14+00:00
+Guinness World Record Holder's Special Ability Can Be Considered To Assess Income In Motor Accident Claim: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/guiness-record-holder-accident-compensation-enhanced-552088
 
-[Read on Telegram](https://t.me/livelawindia/120928)
-
----
-### 2026-09-27T05:40:58+00:00
-Call For Applications | Research Associate – Centre For The Study Of The Legal Profession At National Law School Of India University (NLSIU)
-https://www.livelaw.in/job-updates/call-for-applications-research-associate-centre-for-the-study-of-the-legal-profession-at-national-law-school-of-india-university-nlsiu-551996
-
-[Read on Telegram](https://t.me/livelawindia/120929)
+[Read on Telegram](https://t.me/livelawindia/120986)
 
 ---
-### 2026-09-27T06:16:09+00:00
-Senior Officer (Secretarial) Vacancy At Godrej Industries Group
-https://www.livelaw.in/job-updates/senior-officer-secretarial-vacancy-at-godrej-industries-group-551997
+### 2026-09-28T09:50:14+00:00
+Supreme Court Dismisses Percept's Appeal Against  ₹14.49 Crore Arbitral Award In Favour Of Sourav Ganguly
+https://www.livelaw.in/top-stories/supreme-court-talent-manager-plea-against-arbitral-award-in-favor-of-former-cricketer-sourav-ganguly-552095
 
-[Read on Telegram](https://t.me/livelawindia/120930)
-
----
-### 2026-09-27T06:22:10+00:00
-Team Member (Legal) Vacancy At Cipla Limited [Mumbai; Apply Now]
-https://www.livelaw.in/job-updates/team-member-legal-vacancy-at-cipla-limited-mumbai-551998
-
-[Read on Telegram](https://t.me/livelawindia/120931)
+[Read on Telegram](https://t.me/livelawindia/120987)
 
 ---
-### 2026-09-27T07:37:00+00:00
-Supreme Court Orders Demolition Of 16,726 Illegal Structures In Meerut; Appoints Justice Dhulia Commission To Probe Illegal Colonies
-https://www.livelaw.in/top-stories/supreme-court-orders-demolition-of-16726-illegal-structures-in-meerut-appoints-justice-dhulia-commission-to-probe-illegal-colonies-552000
+### 2026-09-28T09:57:34+00:00
+Jammu & Kashmir And Ladakh High Court Weekly Roundup September 21 - September 27, 2026
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-weekly-roundup-september-21-september-27-2026-552051
 
-[Read on Telegram](https://t.me/livelawindia/120932)
-
----
-### 2026-09-27T09:32:22+00:00
-MADA Fallout: Section 9D, Article 131 Split, And Validation Doctrine That Doesn't Fit
-https://www.livelaw.in/articles/mada-fallout-section-9d-article131-split-validation-doctrine-551968
-
-[Read on Telegram](https://t.me/livelawindia/120933)
+[Read on Telegram](https://t.me/livelawindia/120988)
 
 ---
-### 2026-09-27T09:35:42+00:00
-Legal Advisor Vacancy At HDFC Bank [Apply Now]
-https://www.livelaw.in/job-updates/legal-advisor-vacancy-at-hdfc-bank-552004
+### 2026-09-28T10:03:04+00:00
+Plea In Supreme Court To Suspend Gyanesh Kumar As CEC, Declare ECI Decisions Cannot Be Taken Unilaterally
+https://www.livelaw.in/top-stories/plea-in-supreme-court-to-suspend-gyanesh-kumar-as-cec-declare-eci-decisions-cannot-be-taken-unilaterally-552097
 
-[Read on Telegram](https://t.me/livelawindia/120934)
-
----
-### 2026-09-27T13:43:56+00:00
-When Social Media Design Goes Too Far | In Conversation With Dr. Vikas Kathuria
-https://www.livelaw.in/videos/social-media-meta-instagram-facebook-india-addiction-teenagers-india-news-552005
-
-[Read on Telegram](https://t.me/livelawindia/120935)
+[Read on Telegram](https://t.me/livelawindia/120989)
 
 ---
-### 2026-09-27T14:32:47+00:00
-Conversations To Commercials: Analyzing Meta's Policy Update Under Digital Personal Data Protection Act.
-https://www.livelaw.in/top-stories/conversations-commercials-analyzing-meta-policy-update-digital-personal-data-protection-act-551969
+### 2026-09-28T10:03:14+00:00
+Delhi High Court Directs NTA To Issue Duplicate NEET-UG Scorecards To Foreign Medical Graduates Who Lost Originals
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-nta-to-issue-duplicate-neet-ug-scorecards-to-foreign-medical-graduates-who-lost-originals-552090
 
-[Read on Telegram](https://t.me/livelawindia/120936)
-
----
-### 2026-09-27T14:51:37+00:00
-Is ECI Correct In Saying Supreme Court Upheld Its New Form 6 Declaration?
-https://www.livelaw.in/top-stories/is-eci-correct-in-saying-supreme-court-upheld-its-new-declaration-appended-to-form-6-552006
-
-[Read on Telegram](https://t.me/livelawindia/120937)
+[Read on Telegram](https://t.me/livelawindia/120990)
 
 ---
-### 2026-09-27T16:25:59+00:00
-LiveLaw Allahabad High Court Weekly Roundup: September 21 to September 27, 2026
-https://www.livelaw.in/high-court/allahabad-high-court/livelaw-allahabad-high-court-weekly-roundup-september-21-to-september-27-2026-552008
+### 2026-09-28T10:42:35+00:00
+Supreme Court Stays Delhi High Court's Judgment Upholding GST Dept Seizure Of Advocate's Office Computers
+https://www.livelaw.in/top-stories/supreme-court-stays-delhi-high-court-judgment-upholding-gst-dept-search-advocate-office-552107
 
-[Read on Telegram](https://t.me/livelawindia/120938)
-
----
-### 2026-09-27T17:22:05+00:00
-Top 20 High Court Judgments Of The Week
-https://www.livelaw.in/high-court/all-high-courts/most-important-judgments-of-the-week-552009
-
-[Read on Telegram](https://t.me/livelawindia/120939)
+[Read on Telegram](https://t.me/livelawindia/120991)
 
 ---
-### 2026-09-28T03:33:07+00:00
-Threatening Lawyer To Withdraw Case Is 'Direct Attack' On Justice System: P&H High Court Orders FIR, SIT Probe
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-orders-fir-ig-led-sit-after-lawyer-threatened-by-gangsters-over-plea-for-fair-probe-552010
+### 2026-09-28T10:43:16+00:00
+Ujjain Shahi Masjid: MP High Court Disposes Appeal Against Demolition Notice After Mosque Committee, Municipal Corporation Reach Settlement
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-note-of-settlement-in-plea-against-part-demolition-of-ujjain-shahi-masjid-takes-552108
 
-[Read on Telegram](https://t.me/livelawindia/120940)
-
----
-### 2026-09-28T03:45:27+00:00
-Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
-https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-552015
-
-[Read on Telegram](https://t.me/livelawindia/120941)
+[Read on Telegram](https://t.me/livelawindia/120992)
 
 ---
-### 2026-09-28T03:46:07+00:00
-Call For Applications | Senior Research Associate – Juvenile Justice Clinic At National Law School Of India University (NLSIU)
-https://www.livelaw.in/job-updates/call-for-applications-senior-research-associate-juvenile-justice-clinic-at-national-law-school-of-india-university-nlsiu-552016
+### 2026-09-28T10:57:36+00:00
+Plea Before Kerala High Court Challenging Centre's TV Rating Policy Clause On Landing Page Viewership Withdrawn
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-tv-rating-policy-clause-landing-page-viewership-552109
 
-[Read on Telegram](https://t.me/livelawindia/120942)
-
----
-### 2026-09-28T03:49:07+00:00
-Legal Cum Probation Officer Vacancy At District Child Protection Unit, Thoothukudi
-https://www.livelaw.in/job-updates/legal-cum-probation-officer-vacancy-at-district-child-protection-unit-thoothukudi-552017
-
-[Read on Telegram](https://t.me/livelawindia/120943)
+[Read on Telegram](https://t.me/livelawindia/120993)
 
 ---
-### 2026-09-28T03:52:57+00:00
-Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-552018
+### 2026-09-28T11:08:36+00:00
+Family Suit Can Be Transferred To Wife's Place Of Residence Over Hardship Caused Due To Travel, Child-Care Duties: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-wife-place-of-residence-transfer-family-suit-distance-travel-child-care-552111
 
-[Read on Telegram](https://t.me/livelawindia/120944)
-
----
-### 2026-09-28T04:03:17+00:00
-Domestic Violence | In-Laws Can't Be Roped In Without Material Showing Shared Household With Complainant: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/existence-domestic-relationship-foundational-requirement-pwdv-act-552011
-
-[Read on Telegram](https://t.me/livelawindia/120945)
+[Read on Telegram](https://t.me/livelawindia/120994)
 
 ---
-### 2026-09-28T04:32:38+00:00
-LiveLaw Gujarat High Court Weekly Round-Up: September 21 - September 27, 2026
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-weekly-round-up-552022
+### 2026-09-28T11:22:37+00:00
+LiveLaw Madhya Pradesh High Court Weekly Roundup: September 21 - September 27, 2026
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-weekly-digest-september-21-to-september-27-2026-552112
 
-[Read on Telegram](https://t.me/livelawindia/120946)
+[Read on Telegram](https://t.me/livelawindia/120995)
 
 ---
-### 2026-09-28T04:32:58+00:00
-Can Election Commission Disagree? Internal Dissent, Article 324 And Constitutional Accountability Of ECI
-https://www.livelaw.in/articles/can-election-commission-disagree-internal-dissent-article324-constitutional-accountability-eci-552020
+### 2026-09-28T11:33:07+00:00
+Mere Knowledge Of Where Stolen Articles Were Kept Can't Sustain Prosecution Without Material Linking Accused To Theft: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-fir-mere-knowledge-gold-articles-kept-coupled-552114
 
-[Read on Telegram](https://t.me/livelawindia/120947)
+[Read on Telegram](https://t.me/livelawindia/120996)
+
+---
+### 2026-09-28T11:37:47+00:00
+"Serious Ramifications": J&K&L High Court Transfers Investigation In Baramulla Fake Decree Case To Crime Branch, Constitutes SIT
+https://www.livelaw.in/high-court/jammu-kashmir/serious-ramifications-on-judicial-delivery-system-jk-high-court-transfers-investigation-in-baramulla-fake-decree-case-to-crime-branch-constitutes-sit-552052
+
+[Read on Telegram](https://t.me/livelawindia/120997)
+
+---
+### 2026-09-28T11:42:48+00:00
+Calcutta High Court Reserves Order In ISF's Plea Challenging Allotment Of 'Envelope' Symbol To TMC-D For Nandigram By-Poll
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-reserves-order-in-isfs-plea-challenging-allotment-of-envelope-symbol-to-tmc-d-for-nandigram-by-poll-552120
+
+[Read on Telegram](https://t.me/livelawindia/120998)
+
+---
+### 2026-09-28T11:46:48+00:00
+'Why One Year Needed To Place Front-of-Pack Labels On Packaged Food?' : Supreme Court Asks FSSAI, Reserves Judgment
+https://www.livelaw.in/top-stories/why-one-year-needed-to-place-front-of-pack-labels-on-packaged-food-supreme-court-asks-fssai-reserves-judgment-552122
+
+[Read on Telegram](https://t.me/livelawindia/120999)
+
+---
+### 2026-09-28T11:47:28+00:00
+Internal Committee's Closure Report Not Enough To Close Sexual Harassment FIR: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-delay-lodging-complaint-ground-quash-fir-inception-stage-552116
+
+[Read on Telegram](https://t.me/livelawindia/121000)
+
+---
+### 2026-09-28T11:58:28+00:00
+Can Using Celebrity's Image Violate Personality Rights When Copyright Vests With Photographer? Delhi High Court Asks
+https://www.livelaw.in/high-court/delhi-high-court/personality-rights-celebritys-photo-copyright-vests-with-photographer-552123
+
+[Read on Telegram](https://t.me/livelawindia/121001)
+
+---
+### 2026-09-28T12:11:08+00:00
+Make Rules To Regulate Children's Social Media Usage : Supreme Court Tells Centre
+https://www.livelaw.in/top-stories/supreme-court-pil-against-minor-children-access-to-social-media-sc-says-may-issue-directions-against-social-media-intermediaries-safe-harbor-immunity-552127
+
+[Read on Telegram](https://t.me/livelawindia/121002)
+
+---
+### 2026-09-28T12:23:09+00:00
+Every Disagreement Between Wife And In-Laws Not Cruelty: Madras High Court Refuses Divorce To Husband
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-every-disagreement-spouse-parents-in-law-not-cruelty-552132
+
+[Read on Telegram](https://t.me/livelawindia/121003)
+
+---
+### 2026-09-28T12:50:01+00:00
+Blockades On National Highway 2 Manipur Removed : Manipur Govt Tells Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-manipur-national-state-highways-nh2-blockade-removed-essential-services-supply-restored-kuki-women-organization-552135
+
+[Read on Telegram](https://t.me/livelawindia/121004)
+
+---
+### 2026-09-28T13:01:21+00:00
+Victim Must Be Heard Before Granting Bail In Rape Case: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/rape-victim-hearing-before-granting-bail-552136
+
+[Read on Telegram](https://t.me/livelawindia/121005)
 
 ---
