@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-26T14:52:59+00:00*
+*Last Updated: 2026-09-27T05:40:19+00:00*
 
 ---
 
-### 2026-09-26T14:52:59+00:00
-NPPA Cannot Impose Blanket Price Ceiling Without Following DPCO Mechanism: Bombay High Court Quashes 2009 Notification
-https://www.livelaw.in/high-court/bombay-high-court/nppa-cannot-impose-blanket-drug-price-ceilings-551936
-
-[Read on Telegram](https://t.me/livelawindia/120920)
-
----
-### 2026-09-26T15:24:29+00:00
-Adult Franchise Going Away Thanks To Supreme Court & Election Commission: Senior Advocate Dushyant Dave Criticises SIR
-https://www.livelaw.in/top-stories/adult-franchise-going-away-thanks-to-supreme-court-election-commission-senior-advocate-dushyant-dave-criticises-sir-551991
-
-[Read on Telegram](https://t.me/livelawindia/120921)
-
----
-### 2026-09-26T15:31:29+00:00
-Khaitan & Co advised Godrej Finance Limited (GFL) On Its acquisition Of  Gold Loan business Of Kanakadurga Finance Limited
-https://www.livelaw.in/law-firms/deals/khaitan-co-advised-godrej-finance-limited-gfl-on-its-acquisition-of-gold-loan-business-of-kanakadurga-finance-limited-551992
-
-[Read on Telegram](https://t.me/livelawindia/120922)
-
----
-### 2026-09-26T15:32:09+00:00
-Forensic Evidence Positively Contradicted Prosecutrix's Version: Delhi High Court Overturns Rape Conviction After 13 Years
-https://www.livelaw.in/high-court/delhi-high-court/forensic-evidence-positively-contradicted-prosecutrixs-version-delhi-high-court-overturns-rape-conviction-after-13-years-551980
-
-[Read on Telegram](https://t.me/livelawindia/120923)
-
----
-### 2026-09-27T04:02:16+00:00
-Can't Use Inherent Powers U/S.528 BNSS As 'Backdoor Entry' After Revision Fails Unless Gross Injustice Shown: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/cant-use-inherent-powers-us528-bnss-as-backdoor-entry-after-revision-fails-unless-gross-injustice-shown-delhi-high-court-551982
-
-[Read on Telegram](https://t.me/livelawindia/120924)
-
----
-### 2026-09-27T04:18:56+00:00
-'Judiciary Has Never Failed And Will Never Fail In India' : Justice Prashant Kumar Mishra
-https://www.livelaw.in/top-stories/judiciary-has-never-failed-and-will-never-fail-in-india-justice-prashant-kumar-mishra-551994
-
-[Read on Telegram](https://t.me/livelawindia/120925)
-
----
-### 2026-09-27T04:32:26+00:00
-Stamp Duty On Arbitral Awards: Chargeable Event After URC Construction
-https://www.livelaw.in/articles/stamp-duty-arbitral-awards-chargeable-event-after-urc-construction-551967
-
-[Read on Telegram](https://t.me/livelawindia/120926)
-
----
-### 2026-09-27T05:07:48+00:00
-There've Been So Many Corrupt Judges In Supreme Court Who've Damaged Justice : Dushyant Dave
-https://www.livelaw.in/top-stories/thereve-been-so-many-corrupt-judges-in-supreme-court-whove-damaged-justice-dushyant-dave-551993
-
-[Read on Telegram](https://t.me/livelawindia/120927)
-
----
 ### 2026-09-27T05:40:19+00:00
 Associate (Tax) Vacancy At Ernst & Young
 https://www.livelaw.in/job-updates/associate-tax-vacancy-at-ernst-young-551995
@@ -142,5 +86,61 @@ Top 20 High Court Judgments Of The Week
 https://www.livelaw.in/high-court/all-high-courts/most-important-judgments-of-the-week-552009
 
 [Read on Telegram](https://t.me/livelawindia/120939)
+
+---
+### 2026-09-28T03:33:07+00:00
+Threatening Lawyer To Withdraw Case Is 'Direct Attack' On Justice System: P&H High Court Orders FIR, SIT Probe
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-orders-fir-ig-led-sit-after-lawyer-threatened-by-gangsters-over-plea-for-fair-probe-552010
+
+[Read on Telegram](https://t.me/livelawindia/120940)
+
+---
+### 2026-09-28T03:45:27+00:00
+Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
+https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-552015
+
+[Read on Telegram](https://t.me/livelawindia/120941)
+
+---
+### 2026-09-28T03:46:07+00:00
+Call For Applications | Senior Research Associate – Juvenile Justice Clinic At National Law School Of India University (NLSIU)
+https://www.livelaw.in/job-updates/call-for-applications-senior-research-associate-juvenile-justice-clinic-at-national-law-school-of-india-university-nlsiu-552016
+
+[Read on Telegram](https://t.me/livelawindia/120942)
+
+---
+### 2026-09-28T03:49:07+00:00
+Legal Cum Probation Officer Vacancy At District Child Protection Unit, Thoothukudi
+https://www.livelaw.in/job-updates/legal-cum-probation-officer-vacancy-at-district-child-protection-unit-thoothukudi-552017
+
+[Read on Telegram](https://t.me/livelawindia/120943)
+
+---
+### 2026-09-28T03:52:57+00:00
+Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
+https://www.livelaw.in/job-updates/manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-552018
+
+[Read on Telegram](https://t.me/livelawindia/120944)
+
+---
+### 2026-09-28T04:03:17+00:00
+Domestic Violence | In-Laws Can't Be Roped In Without Material Showing Shared Household With Complainant: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/existence-domestic-relationship-foundational-requirement-pwdv-act-552011
+
+[Read on Telegram](https://t.me/livelawindia/120945)
+
+---
+### 2026-09-28T04:32:38+00:00
+LiveLaw Gujarat High Court Weekly Round-Up: September 21 - September 27, 2026
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-weekly-round-up-552022
+
+[Read on Telegram](https://t.me/livelawindia/120946)
+
+---
+### 2026-09-28T04:32:58+00:00
+Can Election Commission Disagree? Internal Dissent, Article 324 And Constitutional Accountability Of ECI
+https://www.livelaw.in/articles/can-election-commission-disagree-internal-dissent-article324-constitutional-accountability-eci-552020
+
+[Read on Telegram](https://t.me/livelawindia/120947)
 
 ---
