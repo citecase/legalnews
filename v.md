@@ -1,6 +1,158 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-28T05:08:25+00:00*
+*Last Updated: 2026-09-28T14:02:21+00:00*
+
+---
+
+### 2026-09-28T14:02:21+00:00
+Trial Court Can’t Put Leading Question U/S.165 Evidence Act Regarding Direct Commission Of Alleged Offence By Accused Prompting Witness To Say Affirmatively: Chhattisgarh High Court
+https://www.verdictum.in/chhattisgarh-high-court/pratap-singh-v-state-of-chhattisgarh-2026cghc41565-trial-court-sec165-evidence-act-1622913
+
+[Source Link](https://t.me/verdictumlegalupdates/29364)
+
+---
+
+### 2026-09-28T13:33:00+00:00
+Government Can Invoke Section 100 Of Patents Act To Manufacture Unaffordable Patented Medicines: Kerala High Court
+https://www.verdictum.in/kerala-high-court/in-re-exorbitant-pricing-of-life-saving-patented-medicines-2026ker74251-breast-cancer-drug-cost-patent-1622910
+
+[Source Link](https://t.me/verdictumlegalupdates/29363)
+
+---
+
+### 2026-09-28T13:02:19+00:00
+Delhi High Court Issues Notice On Sharjeel Imam's Plea Seeking Access To E-Record To Complete PhD
+https://www.verdictum.in/delhi-high-court/notice-on-sharjeel-imams-plea-seeking-access-to-e-record-to-complete-phd-1622909
+
+[Source Link](https://t.me/verdictumlegalupdates/29362)
+
+---
+
+### 2026-09-28T12:32:18+00:00
+Weekly Overview| Supreme Court Judgments: September 21 – September 25, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-september-21-september-25-2026-1622906
+
+[Source Link](https://t.me/verdictumlegalupdates/29361)
+
+---
+
+### 2026-09-28T12:03:17+00:00
+Supreme Court Stays Delhi High Court Order On GST's Search Of Advocate's Office
+https://www.verdictum.in/supreme-court/delhi-high-court-order-on-gsts-search-of-advocates-office-stayed-1622905
+
+[Source Link](https://t.me/verdictumlegalupdates/29360)
+
+---
+
+### 2026-09-28T11:32:57+00:00
+Supreme Court Questions FSSAI Over Its Proposed Timeline For Implementation Of Front-Of-Package Labelling
+https://www.verdictum.in/supreme-court/fssai-over-its-proposed-timeline-for-implementation-of-front-of-package-labelling-1622903
+
+[Source Link](https://t.me/verdictumlegalupdates/29359)
+
+---
+
+### 2026-09-28T11:02:36+00:00
+Bareboat Charter Can End On Valid Termination Notice Without Physical Repossession Of Vessel: Supreme Court Vacates Arrest Of Vessel
+https://www.verdictum.in/supreme-court/owners-and-parties-interested-in-mv-nereus-progress-v-om-freight-forwarders-ltd-2026-insc-1055-1622902
+
+[Source Link](https://t.me/verdictumlegalupdates/29358)
+
+---
+
+### 2026-09-28T10:32:15+00:00
+FMGE 2026| Not Possible To Comply With All Formalities At Last Minute: Delhi High Court Directs Relaxed Documentation For Duplicate NEET-UG Scorecards
+https://www.verdictum.in/delhi-high-court/ayush-kumar-v-national-testing-agency-wpc-117462026-fmge-proposed-for-october-31-2026-1622884
+
+[Source Link](https://t.me/verdictumlegalupdates/29357)
+
+---
+
+### 2026-09-28T09:48:54+00:00
+We Want Comfort, Not Intelligence: Supreme Court Directs CBSE To Grant Class 6 Students Same Third-Language Policy Relief As Class 7
+https://www.verdictum.in/supreme-court/directs-cbse-grant-class-6-students-same-third-language-policy-relief-class-7-1622901
+
+[Source Link](https://t.me/verdictumlegalupdates/29356)
+
+---
+
+### 2026-09-28T09:32:53+00:00
+Supreme Court Refuses To Interfere With Ex-CM Bhupesh Baghel Plea For Now, Leaves Limitation Issue Open
+https://www.verdictum.in/supreme-court/no-interference-ex-cm-bhupesh-baghel-plea-limitation-issue-open-1622898
+
+[Source Link](https://t.me/verdictumlegalupdates/29355)
+
+---
+
+### 2026-09-28T09:02:32+00:00
+TMC Symbol Dispute: Supreme Court Directs ECI To Decide Dispute Within Three Months, Says Parties' Cooperation Is Extremely Important
+https://www.verdictum.in/supreme-court/tmc-symbol-dispute-eci-decide-dispute-3-months-grants-factions-4-1622899
+
+[Source Link](https://t.me/verdictumlegalupdates/29354)
+
+---
+
+### 2026-09-28T08:32:51+00:00
+Supreme Court Issues Notice In Plea Challenging Order Acquitting 22 Accused In 2005 Alleged Fake Encounter Case Involving Sohrabuddin Shaikh, His Wife & Aide
+https://www.verdictum.in/supreme-court/order-acquitting-22-accused-in-2005-alleged-fake-encounter-case-involving-sohrabuddin-shaikh-his-wife-aide-1622892
+
+[Source Link](https://t.me/verdictumlegalupdates/29353)
+
+---
+
+### 2026-09-28T08:12:12+00:00
+Fee, Tax Or Commercial Charge?: Supreme Court Seeks RBI's Response On Statutory Source & Executive Scope Of UPI MDR Levy, Refuses Stay
+https://www.verdictum.in/supreme-court/seeks-rbi-response-statutory-source-executive-scope-of-upi-mdr-levy-refuses-stay-1622897
+
+[Source Link](https://t.me/verdictumlegalupdates/29352)
+
+---
+
+### 2026-09-28T08:02:50+00:00
+Supreme Court Refuses To Entertain PIL Seeking SOP And Stricter Measures Against Fake Medicines; Asks Petitioner To Approach Authorities
+https://www.verdictum.in/supreme-court/refuses-entertain-pil-seeking-sop-stricter-measures-fake-medicines-1622894
+
+[Source Link](https://t.me/verdictumlegalupdates/29351)
+
+---
+
+### 2026-09-28T07:33:09+00:00
+Message Should Go Loud & Clear That Medical Fraternity Can’t Be Touched: Supreme Court Stays Bail Granted To Shiv Sena Corporator Ramesh Mhatre
+https://www.verdictum.in/supreme-court/bail-granted-stayed-to-shiv-sena-corporator-ramesh-mhatre-1622890
+
+[Source Link](https://t.me/verdictumlegalupdates/29350)
+
+---
+
+### 2026-09-28T07:02:28+00:00
+Action Stands Annulled: Supreme Court Closes Plea Against Executive Magistrate's Notice To Student Protester After UP Govt Confirms Its Withdrawal
+https://www.verdictum.in/supreme-court/closes-plea-gautam-buddh-nagar-notice-student-protest-after-up-govt-confirms-withdrawal-neet-protest-1622886
+
+[Source Link](https://t.me/verdictumlegalupdates/29349)
+
+---
+
+### 2026-09-28T06:33:27+00:00
+Speaker Is Fully Cognizant Of Law Laid Down By This Court: Supreme Court Disposes Of Plea Seeking Early Decision On WB Assembly Disqualification Petitions
+https://www.verdictum.in/supreme-court/disposes-plea-seeking-early-decision-wb-assembly-disqualification-petitions-1622879
+
+[Source Link](https://t.me/verdictumlegalupdates/29348)
+
+---
+
+### 2026-09-28T06:12:46+00:00
+Systemic Failure On Part Of Law Enforcement Authorities: Supreme Court Takes Suo Motu Cognizance Of Gang Rape Of Minor In Moving Bus
+https://www.verdictum.in/supreme-court/suo-motu-cognizance-of-gang-rape-of-minor-in-moving-bus-1622876
+
+[Source Link](https://t.me/verdictumlegalupdates/29347)
+
+---
+
+### 2026-09-28T05:53:27+00:00
+Petition Under Article 227 of Constitution Seeking Quashing Of Proceedings For Restitution Of Conjugal Rights Not Maintainable: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/a-v-b-mphc-gwl29158-article-227-petition-quashing-proceedings-restitution-conjugal-rights-hindu-marriage-act-1622871
+
+[Source Link](https://t.me/verdictumlegalupdates/29346)
 
 ---
 
@@ -9,158 +161,6 @@ Delhi Court Issues Notice In Appeal By Women Wrestlers Against Brij Bhushan's Ac
 https://www.verdictum.in/other-courts/appeal-by-women-wrestlers-against-brij-bhushans-acquittal-notice-1622870
 
 [Source Link](https://t.me/verdictumlegalupdates/29345)
-
----
-
-### 2026-09-28T04:32:34+00:00
-Right To Resign Legislative Seat Can’t Be Burdened With Extra-statutory Conditions By Judicial Order: Madras High Court
-https://www.verdictum.in/madras-high-court/k-suthan-v-union-of-india-2026mhc3908-resign-legislative-seat-judicial-order-1622861
-
-[Source Link](https://t.me/verdictumlegalupdates/29344)
-
----
-
-### 2026-09-27T15:52:39+00:00
-Chief Manager (Legal) Vacancy At Shipping Corporation of India
-https://www.verdictum.in/job-updates/shipping-corporation-of-india-1622844
-
-[Source Link](https://t.me/verdictumlegalupdates/29343)
-
----
-
-### 2026-09-27T13:32:38+00:00
-Source Of Purchase Money By Itself Not Sufficient To Determine Whether A Transaction Is Benami: Delhi High Court
-https://www.verdictum.in/delhi-high-court/surya-deep-garg-suraj-garg-v-neha-garg-2026dhc8248-exception-for-spouse-under-benami-act-1622841
-
-[Source Link](https://t.me/verdictumlegalupdates/29342)
-
----
-
-### 2026-09-27T12:03:21+00:00
-Marriage Under Muslim Personal Law Does Not Confer Immunity From POCSO & BNS Provisions For Sexual Intercourse With Minor Wife: Delhi High Court
-https://www.verdictum.in/delhi-high-court/2026-dhc-8343-bilal-v-state-of-nct-of-delhi-1622805
-
-[Source Link](https://t.me/verdictumlegalupdates/29341)
-
----
-
-### 2026-09-27T10:32:16+00:00
-Mental Incapacitation: Bombay High Court Sets Aside Rejection Of Discharge Plea By POCSO Accused
-https://www.verdictum.in/bombay-high-court/lucky-v-state-of-maharashtra-2026bhc-nag12672-pocso-accused-with-intellectual-disability-1622804
-
-[Source Link](https://t.me/verdictumlegalupdates/29340)
-
----
-
-### 2026-09-27T09:02:16+00:00
-"Tandoorasti" Is A Blessing, Not An "Ashirvad" Ceremony To Constitute Valid Parsi Marriage: Bombay High Court
-https://www.verdictum.in/bombay-high-court/h-v-s-2026bhc-os20904-parsi-marriage-divorce-act-order-vii-rule-11d-cpc-1622803
-
-[Source Link](https://t.me/verdictumlegalupdates/29339)
-
----
-
-### 2026-09-27T07:32:35+00:00
-Section 45 PMLA Does Not Require Detention Until An Uncertain End Of Trial: Delhi High Court Grants Bail To PMLA Accused After Nearly 4 Years In Custody
-https://www.verdictum.in/delhi-high-court/masasasong-ao-v-directorate-of-enforcement-2026dhc8301-section-45-pmla-article-21-constitution-pmla-uapa-1622796
-
-[Source Link](https://t.me/verdictumlegalupdates/29338)
-
----
-
-### 2026-09-27T06:03:14+00:00
-Interpretive Dispute Over Tender Conditions Does Not Amount To "Fraudulent Practice": Madras High Court
-https://www.verdictum.in/madras-high-court/eco-protection-engineers-pvt-ltd-v-the-state-of-tamil-nadu-and-others-1622795
-
-[Source Link](https://t.me/verdictumlegalupdates/29337)
-
----
-
-### 2026-09-27T04:32:13+00:00
-No Separate Prior Notice Required Before Invoking Suo Motu Revisional Power U/ 9 ROR Act: Andhra Pradesh High Court
-https://www.verdictum.in/andhra-pradesh-high-court/durgam-paddaiah-v-the-state-of-andhra-pradesh-department-of-revenue-writ-appeal-no-999-of-2026-no-separate-prior-notice-required-1622793
-
-[Source Link](https://t.me/verdictumlegalupdates/29336)
-
----
-
-### 2026-09-26T15:32:44+00:00
-Child Victims Or Their Families Can’t Compromise Offence Under POCSO Act: Delhi High Court
-https://www.verdictum.in/delhi-high-court/anand-singh-rawat-v-the-state-2026dhc8211-child-victims-compromise-offence-pocso-act-1622794
-
-[Source Link](https://t.me/verdictumlegalupdates/29335)
-
----
-
-### 2026-09-26T14:53:03+00:00
-Let 'House Husbands' Become The New Normal To Preserve Institution Of Marriage: Madras High Court
-https://www.verdictum.in/madras-high-court/house-husbands-new-normal-institution-marriage-1622792
-
-[Source Link](https://t.me/verdictumlegalupdates/29334)
-
----
-
-### 2026-09-26T14:13:03+00:00
-"Classic Romeo-Juliet Case": Sikkim High Court Expresses Helplessness Over Mandatory 20-Year POCSO Sentence For Consensual Romantic Relationship
-https://www.verdictum.in/sikkim-high-court/bishnu-chettri-aditya-v-state-of-sikkim-criminal-appeal-no-18-of-2025-consensual-romantic-relationship-pocso-romeo-juliet-1622791
-
-[Source Link](https://t.me/verdictumlegalupdates/29333)
-
----
-
-### 2026-09-26T13:23:02+00:00
-Man Lives Short But Litigation Continues Infinitely: Rajasthan High Court Directs SDM To Decide 63-Year-Old Land Dispute Case Within 3 Months
-https://www.verdictum.in/rajasthan-high-court/2026-rj-jp-37999-jai-ram-v-sub-divisional-magistrate-litigation-continues-infinitely-1622790
-
-[Source Link](https://t.me/verdictumlegalupdates/29332)
-
----
-
-### 2026-09-26T12:32:41+00:00
-Punjab & Haryana HC Orders Interim Release Of Arrested CGST Assessee; Slams Department For 'Brazen Highhandedness' And Overreaching Court Orders
-https://www.verdictum.in/punjab-and-haryana-high-court/grants-interim-release-to-cgst-assessee-department-for-brazen-highhandedness-and-overreaching-1622788
-
-[Source Link](https://t.me/verdictumlegalupdates/29331)
-
----
-
-### 2026-09-26T11:52:20+00:00
-Moralistic Sermon: Bombay High Court Finds Family Court’s “Pious Wife”, “Bahu” & "Janak Pita" Remarks In Child Custody Case Regressive
-https://www.verdictum.in/bombay-high-court/kag-v-aag-2026bhc-as35988-db-custody-dispute-family-court-remarks-regressive-1622786
-
-[Source Link](https://t.me/verdictumlegalupdates/29330)
-
----
-
-### 2026-09-26T11:02:39+00:00
-Calling Someone “Saale” Will Not Fall Within Ambit Of Caste-Related Abuse Under SC ST Act: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/2026ahc201947db-sunil-panjabi-v-state-of-up-1622784
-
-[Source Link](https://t.me/verdictumlegalupdates/29329)
-
----
-
-### 2026-09-26T10:12:58+00:00
-Evidence Cannot Be Employed To Supply Missing Foundation: Rajasthan High Court Refuses Plea For Handwriting Expert Report Where Forgery Was Not Pleaded
-https://www.verdictum.in/rajasthan-high-court/bihari-lal-v-navratanmal-bamb-ors-sb-civil-writ-petition-no-89922023-handwriting-expert-report-forgery-1622782
-
-[Source Link](https://t.me/verdictumlegalupdates/29328)
-
----
-
-### 2026-09-26T09:22:28+00:00
-Furnishing of Cheque For Time-Barred Debt Effectively Resurrects Debt: Karnataka High Court Upholds Conviction U/S 138 NI Act
-https://www.verdictum.in/karnataka-high-court/ganesh-v-kr-puttaswamy-crlrp-no-1471-of-2024-fresh-agreement-us-253-of-contract-act-1622781
-
-[Source Link](https://t.me/verdictumlegalupdates/29327)
-
----
-
-### 2026-09-26T08:32:07+00:00
-Settlement Deed Without Specific Maintenance Condition Cannot Be Cancelled U/S 23 Senior Citizens Act: Madras High Court
-https://www.verdictum.in/madras-high-court/dr-a-panner-v-the-district-collector-and-others-senior-citizens-act-maintenance-1622777
-
-[Source Link](https://t.me/verdictumlegalupdates/29326)
 
 ---
 
