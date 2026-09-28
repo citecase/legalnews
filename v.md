@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-28T14:02:21+00:00*
+*Last Updated: 2026-09-28T16:02:44+00:00*
+
+---
+
+### 2026-09-28T16:02:44+00:00
+Legal Expert Vacancy At Jawaharlal Nehru Port Authority (JNPA)
+https://www.verdictum.in/job-updates/jawaharlal-nehru-port-authority-1622917
+
+[Source Link](https://t.me/verdictumlegalupdates/29368)
+
+---
+
+### 2026-09-28T15:33:23+00:00
+Prosecution Sanction Mandatory For Retired Public Servants U/S.19 Of PC Act Post 2018 Amendment: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/dina-nath-jauhar-v-state-of-up-2026ahc202086-prosecution-sanction-mandatory-corruption-1622916
+
+[Source Link](https://t.me/verdictumlegalupdates/29367)
+
+---
+
+### 2026-09-28T15:03:02+00:00
+Collegium Recommends Elevation Of Chief Justices Of Three High Courts To Supreme Court
+https://www.verdictum.in/supreme-court/collegium-recommends-elevation-of-chief-justices-of-three-high-courts-to-supreme-court-1622924
+
+[Source Link](https://t.me/verdictumlegalupdates/29366)
+
+---
+
+### 2026-09-28T14:32:42+00:00
+Commencement Of Proceedings After Assessee's Death: Delhi High Court Rejects Plea Challenging Section 93(1)(b) CGST Act
+https://www.verdictum.in/delhi-high-court/jaiwanti-v-union-of-india-2026dhc8282-db-section-93-cgst-act-1622914
+
+[Source Link](https://t.me/verdictumlegalupdates/29365)
 
 ---
 
@@ -129,38 +161,6 @@ Action Stands Annulled: Supreme Court Closes Plea Against Executive Magistrate's
 https://www.verdictum.in/supreme-court/closes-plea-gautam-buddh-nagar-notice-student-protest-after-up-govt-confirms-withdrawal-neet-protest-1622886
 
 [Source Link](https://t.me/verdictumlegalupdates/29349)
-
----
-
-### 2026-09-28T06:33:27+00:00
-Speaker Is Fully Cognizant Of Law Laid Down By This Court: Supreme Court Disposes Of Plea Seeking Early Decision On WB Assembly Disqualification Petitions
-https://www.verdictum.in/supreme-court/disposes-plea-seeking-early-decision-wb-assembly-disqualification-petitions-1622879
-
-[Source Link](https://t.me/verdictumlegalupdates/29348)
-
----
-
-### 2026-09-28T06:12:46+00:00
-Systemic Failure On Part Of Law Enforcement Authorities: Supreme Court Takes Suo Motu Cognizance Of Gang Rape Of Minor In Moving Bus
-https://www.verdictum.in/supreme-court/suo-motu-cognizance-of-gang-rape-of-minor-in-moving-bus-1622876
-
-[Source Link](https://t.me/verdictumlegalupdates/29347)
-
----
-
-### 2026-09-28T05:53:27+00:00
-Petition Under Article 227 of Constitution Seeking Quashing Of Proceedings For Restitution Of Conjugal Rights Not Maintainable: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/a-v-b-mphc-gwl29158-article-227-petition-quashing-proceedings-restitution-conjugal-rights-hindu-marriage-act-1622871
-
-[Source Link](https://t.me/verdictumlegalupdates/29346)
-
----
-
-### 2026-09-28T05:08:25+00:00
-Delhi Court Issues Notice In Appeal By Women Wrestlers Against Brij Bhushan's Acquittal
-https://www.verdictum.in/other-courts/appeal-by-women-wrestlers-against-brij-bhushans-acquittal-notice-1622870
-
-[Source Link](https://t.me/verdictumlegalupdates/29345)
 
 ---
 
