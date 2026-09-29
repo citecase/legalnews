@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-29T09:25:15+00:00*
+*Last Updated: 2026-09-29T13:18:15+00:00*
 
 ---
 
-### 2026-09-29T09:25:15+00:00
-Mumbai Court Grants Bail To Sachin Waze In Antilia Bomb Scare Case
-https://www.livelaw.in/news-updates/mumbai-court-grants-bail-sachin-waze-antilia-bomb-scare-case-552266
+### 2026-09-29T13:18:15+00:00
+Selection Committee Can't Use Interview As 'Veto' To Declare Candidate Unsuitable When No Minimum Marks Prescribed: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/selection-committee-interview-cant-declare-candidate-unsuitable-no-minimum-marks-552325
 
-[Read on Telegram](https://t.me/livelawindia/121080)
-
----
-### 2026-09-29T09:32:35+00:00
-One Nation, One Time: Why IST Cannot Guarantee Reliable Digital Evidence
-https://www.livelaw.in/lawschool/articles/one-nation-one-time-why-ist-cannot-guarantee-reliable-digital-evidence-552150
-
-[Read on Telegram](https://t.me/livelawindia/121081)
+[Read on Telegram](https://t.me/livelawindia/121107)
 
 ---
-### 2026-09-29T09:51:35+00:00
-Kerala High Court Directs Backward Classes Development Secretary To File Affidavit On Steps Taken For Socio-Economic Caste Survey
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-department-backward-classes-secretary-affidavit-socio-economic-caste-survey-552271
+### 2026-09-29T13:18:25+00:00
+O. 2 R. 2 CPC | Omitted Relief Remains Barred Despite Order 23 Liberty To File Fresh Suit : Supreme Court
+https://www.livelaw.in/supreme-court/o-2-r-2-cpc-omitted-relief-remains-barred-despite-order-23-liberty-to-file-fresh-suit-supreme-court-552332
 
-[Read on Telegram](https://t.me/livelawindia/121082)
-
----
-### 2026-09-29T09:52:35+00:00
-S. 53 Patents Act | Should Patent Term Be Counted From Date Of Grant If There Was Delay In Deciding Application? Supreme Court To Decide
-https://www.livelaw.in/top-stories/s-53-patents-act-should-patent-term-be-counted-from-date-of-grant-if-there-was-delay-in-deciding-application-supreme-court-to-decide-552272
-
-[Read on Telegram](https://t.me/livelawindia/121083)
+[Read on Telegram](https://t.me/livelawindia/121108)
 
 ---
-### 2026-09-29T10:00:35+00:00
-'Who Heads NCPCR? How Can They Be So Indifferent?' Supreme Court Rebukes NCPCR Over 25% RTE Quota
-https://www.livelaw.in/top-stories/who-heads-ncpcr-how-can-they-be-so-indifferent-supreme-court-rebukes-ncpcr-over-25-rte-quota-552277
+### 2026-09-29T13:32:45+00:00
+'Let Children Of Convict Not Lose Their Mother': P&H High Court Commutes Woman's Death Penalty For Burying Toddler Alive
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-commutes-womens-death-penalty-who-buried-toddler-alive-552328
 
-[Read on Telegram](https://t.me/livelawindia/121084)
-
----
-### 2026-09-29T10:02:35+00:00
-SC, ST, OBC Reservation Cannot Be Applied To NRI Quota Seats: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-rejects-neet-ug-aspirant-plea-seeking-obc-quota-nri-reserved-seats-552273
-
-[Read on Telegram](https://t.me/livelawindia/121085)
+[Read on Telegram](https://t.me/livelawindia/121109)
 
 ---
-### 2026-09-29T10:09:15+00:00
-Hookah Bars | Food Safety Dept, Municipal Corporations Cannot Issue Licences; Police Can Enforce COTPA: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-food-safety-municipal-corp-hookah-bar-licence-cotpa-552282
+### 2026-09-29T14:07:55+00:00
+Preventive Detention Can't Be Solely Based On Custodial Confession: Supreme Court
+https://www.livelaw.in/top-stories/preventive-detention-cant-be-solely-based-on-custodial-confession-supreme-court-552340
 
-[Read on Telegram](https://t.me/livelawindia/121086)
-
----
-### 2026-09-29T10:12:45+00:00
-Existence Of Joint Family Not Proof Of Joint Family Fund: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-existence-of-joint-family-not-proof-of-joint-family-fund-552276
-
-[Read on Telegram](https://t.me/livelawindia/121087)
+[Read on Telegram](https://t.me/livelawindia/121110)
 
 ---
-### 2026-09-29T10:23:26+00:00
-Karnataka High Court Grants Anticipatory Bail To BJP MLA's Daughter Booked For Slapping Cop, Notes Her Public Apology
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-grants-anticipatory-bail-mla-daughter-accused-slapping-cop-552278
+### 2026-09-29T14:10:56+00:00
+2026 LiveLaw (SC) 999 | Mulla Afroz v. Union of India & Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-999-mulla-afroz-v-union-of-india-ors-552341
 
-[Read on Telegram](https://t.me/livelawindia/121088)
-
----
-### 2026-09-29T10:29:06+00:00
-CM Marriage Remark, Messi Row: Kerala Court Dismisses Anto Augustine's Pre-Arrest Bail Pleas After Police Says No Arrest Now
-https://www.livelaw.in/news-updates/kerala-court-cm-marriage-remark-messi-row-anto-augustine-bail-552290
-
-[Read on Telegram](https://t.me/livelawindia/121089)
+[Read on Telegram](https://t.me/livelawindia/121111)
 
 ---
-### 2026-09-29T10:29:26+00:00
-IBC | Failure To Pay Balance Sale Consideration Invites EMD Forfeiture If Auction Terms So Provide : Supreme Court
-https://www.livelaw.in/supreme-court/ibc-failure-to-pay-balance-sale-consideration-invites-emd-forfeiture-if-auction-terms-so-provide-supreme-court-552292
+### 2026-09-29T14:13:56+00:00
+2026 LiveLaw (SC) 1000 | Bombay Garage Ahmedabad Limited & Ors. Versus J P Iscon Private Ltd. & Anr.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1000-bombay-garage-ahmedabad-limited-ors-versus-j-p-iscon-private-ltd-anr-552342
 
-[Read on Telegram](https://t.me/livelawindia/121090)
-
----
-### 2026-09-29T10:30:26+00:00
-2026 LiveLaw (SC) 998 | M/S ASJ FINSOLUTIONS PVT. LTD. Versus VIKRAM BAJAJ
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-998-ms-asj-finsolutions-pvt-ltd-versus-vikram-bajaj-552293
-
-[Read on Telegram](https://t.me/livelawindia/121091)
+[Read on Telegram](https://t.me/livelawindia/121112)
 
 ---
-### 2026-09-29T10:32:46+00:00
-Assault On Pregnant Woman's Abdomen Can Attract 'Attempt To Murder' Charge Even If Medical Certificate Records No Injury: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-assault-pregnant-woman-abdomen-section307-ipc-552284
+### 2026-09-29T14:16:36+00:00
+BREAKING| Plea In Supreme Court Seeks Recall Of CEC Law Verdict Citing Justice SC Sharma's Son's Association With ECI
+https://www.livelaw.in/top-stories/plea-in-supreme-court-seeks-recall-of-cec-law-verdict-citing-justice-sc-sharmas-sons-association-with-eci-552343
 
-[Read on Telegram](https://t.me/livelawindia/121092)
-
----
-### 2026-09-29T10:37:46+00:00
-Karnataka High Court Seeks State's Response To Plea Challenging 2% Cinema Ticket Cess; Act Comes Into Force Tomorrow
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-seek-state-reply-cess-cinema-tickets-552297
-
-[Read on Telegram](https://t.me/livelawindia/121093)
+[Read on Telegram](https://t.me/livelawindia/121113)
 
 ---
-### 2026-09-29T10:42:47+00:00
-Karnataka High Court Directs State Law University To Complete Transgender Student's  Admission, Orders Hostel Accommodation & Financial Aid
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-directs-kslu-complete-transgender-student-admission-552288
+### 2026-09-29T14:23:57+00:00
+LiveLaw Daily| Overinflated medicines| Vikas Divyakirti| Punjab Election Violence & more
+https://www.livelaw.in/podcast/national-security-act-sambhal-dhrishti-ias-news-calt-india-judiciary-552345
 
-[Read on Telegram](https://t.me/livelawindia/121094)
-
----
-### 2026-09-29T10:43:07+00:00
-FIR Not Mentioning Specific Role Of Accused Not Sufficient To Quash It: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/fir-not-mentioning-role-of-accused-not-sufficient-to-quash-552286
-
-[Read on Telegram](https://t.me/livelawindia/121095)
+[Read on Telegram](https://t.me/livelawindia/121114)
 
 ---
-### 2026-09-29T10:48:27+00:00
-Veeramani POCSO Case: DMK Moves Madras High Court Seeking SIT To Summon CM Vijay, Ministers Aadhav Arjuna And Nirmal Kumar
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-gem-veeramani-pocso-dmk-plea-sit-summon-cm-vijay-aadhav-arjuna-ctr-nirmal-kumar-552299
+### 2026-09-29T14:32:17+00:00
+Cobalt, Continental Shelf, And Cul De Sac: Unravelling Afanasi Nikitin Impasse
+https://www.livelaw.in/articles/cobalt-continental-shelf-cul-de-sac-unravelling-afanasi-nikitin-impasse-552151
 
-[Read on Telegram](https://t.me/livelawindia/121096)
-
----
-### 2026-09-29T11:01:27+00:00
-Supreme Court Collegium Recommends Repatriation Of Justice T Vinod Kumar To Telangana HC Ahead Of Retirement
-https://www.livelaw.in/high-court/madras-high-court/supreme-court-collegium-recommends-repatriation-of-justice-t-vinod-kumar-to-telangana-hc-ahead-of-retirement-552301
-
-[Read on Telegram](https://t.me/livelawindia/121097)
+[Read on Telegram](https://t.me/livelawindia/121115)
 
 ---
-### 2026-09-29T11:43:37+00:00
-Madras High Court Dismisses Plea Asking MLAs Who Resigned After Election To Reimburse Election Expenses; Imposes Costs
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-mlas-resignation-reimburse-election-expense-plea-dismissed-costs-552310
+### 2026-09-29T15:09:08+00:00
+Can A Dowry Death Case Be Quashed Merely Because Woman Died Of Heart Attack? Allahabad High Court Answers
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-dowry-death-quash-woman-died-heart-attack-552351
 
-[Read on Telegram](https://t.me/livelawindia/121098)
+[Read on Telegram](https://t.me/livelawindia/121116)
 
 ---
-### 2026-09-29T12:19:08+00:00
-PM Modi Degree Row: Gujarat High Court Rejects Arvind Kejriwal's Appeal Against Order Imposing ₹25,000 Cost
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-rejects-arvind-kejriwals-appeal-against-order-imposing-cost-552315
+### 2026-09-29T15:32:28+00:00
+Accused Entitled To Seek Production Of Prosecution's Unrelied Documents At Appropriate Stage In Trial : Supreme Court
+https://www.livelaw.in/supreme-court/accused-entitled-to-seek-production-of-prosecutions-unrelied-documents-at-appropriate-stage-in-trial-supreme-court-552352
 
-[Read on Telegram](https://t.me/livelawindia/121099)
+[Read on Telegram](https://t.me/livelawindia/121117)
+
+---
+### 2026-09-29T15:33:28+00:00
+2026 LiveLaw (SC) 1001 | Central Bureau of Investigation Versus Anil Dixit
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1001-central-bureau-of-investigation-versus-anil-dixit-552353
+
+[Read on Telegram](https://t.me/livelawindia/121118)
+
+---
+### 2026-09-29T15:37:48+00:00
+Antilia Bomb Scare Case: Special Court Criticises NIA For 'Incompetence', Questions Why Statements Of Ambani Family Not Recorded
+https://www.livelaw.in/news-updates/antilia-bomb-scare-case-special-court-criticises-nia-for-incompetence-questions-why-statements-of-ambani-family-not-recorded-552354
+
+[Read on Telegram](https://t.me/livelawindia/121119)
+
+---
+### 2026-09-29T15:43:48+00:00
+Hearing Of Accused Necessary When Cognizance Taken After BNSS Came Into Force, Though Complaint Filed Earlier: Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-accused-heard-before-taking-cognizance-process-issued-after-bnss-came-force-552355
+
+[Read on Telegram](https://t.me/livelawindia/121120)
+
+---
+### 2026-09-29T15:44:48+00:00
+2026 LiveLaw (SC) 1002 | Umar and Anr v State of Uttar Pradesh & Anr
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1002-umar-and-anr-v-state-of-uttar-pradesh-anr-552356
+
+[Read on Telegram](https://t.me/livelawindia/121121)
+
+---
+### 2026-09-29T15:45:48+00:00
+Kerala High Court Rule Committee Decided To Delete Rule On “Tom-Tom” Proclamation During Property Attachments: HC PIO
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-tom-tom-proclamation-property-attachment-552357
+
+[Read on Telegram](https://t.me/livelawindia/121122)
+
+---
+### 2026-09-29T16:05:38+00:00
+NLU Prayagraj Caste Discrimination Case: High Court Chief Justice Recuses From Hearing Professor's Appeal Against Single Judge Order
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-chief-justice-recuses-nlu-prayagraj-caste-discrimination-appeal-552359
+
+[Read on Telegram](https://t.me/livelawindia/121123)
+
+---
+### 2026-09-29T16:48:48+00:00
+LiveLaw High Courts Daily Highlights: September 29, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-29-2026-552360
+
+[Read on Telegram](https://t.me/livelawindia/121124)
+
+---
+### 2026-09-29T17:27:39+00:00
+Supreme Court Daily Round-Up : September 29, 2026
+https://www.livelaw.in/round-ups/supreme-court-daily-round-up-september-29-2026-552358
+
+[Read on Telegram](https://t.me/livelawindia/121125)
+
+---
+### 2026-09-29T19:12:35+00:00
+Happiest Minds Technologies, ITC Infotech Enter Merger Framework; Khaitan & Co Advises on Transaction
+https://www.livelaw.in/law-firms/deals/happiest-minds-technologies-itc-infotech-enter-merger-framework-khaitan-co-advises-on-transaction-552365
+
+[Read on Telegram](https://t.me/livelawindia/121126)
 
 ---
