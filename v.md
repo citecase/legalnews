@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-28T16:02:44+00:00*
+*Last Updated: 2026-09-29T06:02:07+00:00*
+
+---
+
+### 2026-09-29T06:02:07+00:00
+Continuing Relationship After Knowing Man Was Married Raises Doubt Over False Promise Of Marriage Claim: J&K And Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/vikrant-kotwal-v-ut-of-jk-and-another-2026jklhc-jmu2878-rape-pretext-marriage-1622960
+
+[Source Link](https://t.me/verdictumlegalupdates/29372)
+
+---
+
+### 2026-09-29T05:26:06+00:00
+Breaking: Supreme Court Quashes NSA Detention Of Alleged Sambhal Violence Mastermind Mulla Afroz, Imposes ₹10 Lakh Cost On UP Govt For Illegal Order
+https://www.verdictum.in/supreme-court/quashes-nsa-detention-of-alleged-sambhal-violence-mastermind-10-lakh-cost-on-up-government-1622956
+
+[Source Link](https://t.me/verdictumlegalupdates/29371)
+
+---
+
+### 2026-09-29T05:02:25+00:00
+Involvement In Routine FIR Insufficient To Refuse Arms Licence Unless Direct Threat To Public Safety Is Demonstrated: Patna High Court
+https://www.verdictum.in/patna-high-court/sanjay-kumar-yadav-v-the-state-of-bihar-and-others-arms-licence-previous-fir-1622915
+
+[Source Link](https://t.me/verdictumlegalupdates/29370)
+
+---
+
+### 2026-09-29T04:32:55+00:00
+Inability Of Police To Extract Data From Facebook Cannot Wash Out Criminal Culpability: Calcutta HC Orders Further Investigation Into Casteist Insult
+https://www.verdictum.in/calcutta-high-court/sri-sayan-mondal-v-state-of-west-bengal-facebook-casteist-insult-social-media-1622918
+
+[Source Link](https://t.me/verdictumlegalupdates/29369)
 
 ---
 
@@ -129,38 +161,6 @@ Supreme Court Issues Notice In Plea Challenging Order Acquitting 22 Accused In 2
 https://www.verdictum.in/supreme-court/order-acquitting-22-accused-in-2005-alleged-fake-encounter-case-involving-sohrabuddin-shaikh-his-wife-aide-1622892
 
 [Source Link](https://t.me/verdictumlegalupdates/29353)
-
----
-
-### 2026-09-28T08:12:12+00:00
-Fee, Tax Or Commercial Charge?: Supreme Court Seeks RBI's Response On Statutory Source & Executive Scope Of UPI MDR Levy, Refuses Stay
-https://www.verdictum.in/supreme-court/seeks-rbi-response-statutory-source-executive-scope-of-upi-mdr-levy-refuses-stay-1622897
-
-[Source Link](https://t.me/verdictumlegalupdates/29352)
-
----
-
-### 2026-09-28T08:02:50+00:00
-Supreme Court Refuses To Entertain PIL Seeking SOP And Stricter Measures Against Fake Medicines; Asks Petitioner To Approach Authorities
-https://www.verdictum.in/supreme-court/refuses-entertain-pil-seeking-sop-stricter-measures-fake-medicines-1622894
-
-[Source Link](https://t.me/verdictumlegalupdates/29351)
-
----
-
-### 2026-09-28T07:33:09+00:00
-Message Should Go Loud & Clear That Medical Fraternity Can’t Be Touched: Supreme Court Stays Bail Granted To Shiv Sena Corporator Ramesh Mhatre
-https://www.verdictum.in/supreme-court/bail-granted-stayed-to-shiv-sena-corporator-ramesh-mhatre-1622890
-
-[Source Link](https://t.me/verdictumlegalupdates/29350)
-
----
-
-### 2026-09-28T07:02:28+00:00
-Action Stands Annulled: Supreme Court Closes Plea Against Executive Magistrate's Notice To Student Protester After UP Govt Confirms Its Withdrawal
-https://www.verdictum.in/supreme-court/closes-plea-gautam-buddh-nagar-notice-student-protest-after-up-govt-confirms-withdrawal-neet-protest-1622886
-
-[Source Link](https://t.me/verdictumlegalupdates/29349)
 
 ---
 
