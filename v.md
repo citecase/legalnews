@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-29T13:02:40+00:00*
+*Last Updated: 2026-09-29T16:02:25+00:00*
+
+---
+
+### 2026-09-29T16:02:25+00:00
+Legal Consultant Vacancy At National Institute For The Visually Handicapped (NIEPVD)
+https://www.verdictum.in/job-updates/national-institute-for-the-visually-handicapped-1622998
+
+[Source Link](https://t.me/verdictumlegalupdates/29392)
+
+---
+
+### 2026-09-29T15:33:04+00:00
+Preventive Detention After Grant Of Bail Requires Cogent Material Showing Imminent Prejudicial Activity: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/mala-v-state-of-karnataka-others-bail-preventive-detention-proximate-link-1622997
+
+[Source Link](https://t.me/verdictumlegalupdates/29391)
+
+---
+
+### 2026-09-29T15:03:03+00:00
+Grave Misconduct: Madras High Court Upholds Dismissal Of Prison Warden For Supplying Ganja To Convicts
+https://www.verdictum.in/madras-high-court/m-aashik-mohammed-v-director-general-of-prison-and-correctional-services-others-1622995
+
+[Source Link](https://t.me/verdictumlegalupdates/29390)
+
+---
+
+### 2026-09-29T14:32:43+00:00
+Mere Absence Of Objection Or Consent Cannot Constitute "Authority Of Law" Under Article 300-A Constitution For Taking Private Land: Bombay High Court
+https://www.verdictum.in/bombay-high-court/shekhar-ghanshyam-janbandhu-v-state-of-maharashtra-2026bhc-nag12657-db-article-300-a-constitution-taking-private-land-road-1622994
+
+[Source Link](https://t.me/verdictumlegalupdates/29389)
+
+---
+
+### 2026-09-29T14:02:22+00:00
+Family Courts Can Consider Evidence Otherwise Inadmissible U/S 92 Evidence Act If Necessary To Resolve Dispute: Kerala High Court
+https://www.verdictum.in/kerala-high-court/r-v-ks-2026ker73656-family-courts-act-section-14-indian-evidence-act-section-92-1622993
+
+[Source Link](https://t.me/verdictumlegalupdates/29388)
+
+---
+
+### 2026-09-29T13:33:01+00:00
+Sikkim High Court Asks SSLSA To Sensitize Legal Aid Counsels; Suggests Rehabilitation Mechanism For Sexual Assault Victims Under 12
+https://www.verdictum.in/sikkim-high-court/ashok-subba-v-state-of-sikkim-sslsa-sensitize-legal-aid-counsel-rehabilitation-sexual-assault-victims-1622992
+
+[Source Link](https://t.me/verdictumlegalupdates/29387)
 
 ---
 
@@ -113,54 +161,6 @@ Non-Intentional Mistake: Kerala High Court Quashes Criminal Case Against Man Acc
 https://www.verdictum.in/kerala-high-court/mohammed-kasim-hk-v-union-territory-of-lakshadweep-2026ker74369-national-flag-constitution-1622961
 
 [Source Link](https://t.me/verdictumlegalupdates/29373)
-
----
-
-### 2026-09-29T06:02:07+00:00
-Continuing Relationship After Knowing Man Was Married Raises Doubt Over False Promise Of Marriage Claim: J&K And Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/vikrant-kotwal-v-ut-of-jk-and-another-2026jklhc-jmu2878-rape-pretext-marriage-1622960
-
-[Source Link](https://t.me/verdictumlegalupdates/29372)
-
----
-
-### 2026-09-29T05:26:06+00:00
-Breaking: Supreme Court Quashes NSA Detention Of Alleged Sambhal Violence Mastermind Mulla Afroz, Imposes ₹10 Lakh Cost On UP Govt For Illegal Order
-https://www.verdictum.in/supreme-court/quashes-nsa-detention-of-alleged-sambhal-violence-mastermind-10-lakh-cost-on-up-government-1622956
-
-[Source Link](https://t.me/verdictumlegalupdates/29371)
-
----
-
-### 2026-09-29T05:02:25+00:00
-Involvement In Routine FIR Insufficient To Refuse Arms Licence Unless Direct Threat To Public Safety Is Demonstrated: Patna High Court
-https://www.verdictum.in/patna-high-court/sanjay-kumar-yadav-v-the-state-of-bihar-and-others-arms-licence-previous-fir-1622915
-
-[Source Link](https://t.me/verdictumlegalupdates/29370)
-
----
-
-### 2026-09-29T04:32:55+00:00
-Inability Of Police To Extract Data From Facebook Cannot Wash Out Criminal Culpability: Calcutta HC Orders Further Investigation Into Casteist Insult
-https://www.verdictum.in/calcutta-high-court/sri-sayan-mondal-v-state-of-west-bengal-facebook-casteist-insult-social-media-1622918
-
-[Source Link](https://t.me/verdictumlegalupdates/29369)
-
----
-
-### 2026-09-28T16:02:44+00:00
-Legal Expert Vacancy At Jawaharlal Nehru Port Authority (JNPA)
-https://www.verdictum.in/job-updates/jawaharlal-nehru-port-authority-1622917
-
-[Source Link](https://t.me/verdictumlegalupdates/29368)
-
----
-
-### 2026-09-28T15:33:23+00:00
-Prosecution Sanction Mandatory For Retired Public Servants U/S.19 Of PC Act Post 2018 Amendment: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/dina-nath-jauhar-v-state-of-up-2026ahc202086-prosecution-sanction-mandatory-corruption-1622916
-
-[Source Link](https://t.me/verdictumlegalupdates/29367)
 
 ---
 
