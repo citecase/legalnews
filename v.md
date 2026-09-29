@@ -1,6 +1,118 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-29T06:02:07+00:00*
+*Last Updated: 2026-09-29T13:02:40+00:00*
+
+---
+
+### 2026-09-29T13:02:40+00:00
+Mamlatdar Cannot Create A New Road U/S 5 Mamlatdars' Courts Act; Existing Road Or Customary Way Must Be Identified & Proved: Bombay High Court
+https://www.verdictum.in/bombay-high-court/balasaheb-karbhari-uphade-v-tahsildar-dindori-2026bhc-as39451-mamlatdar-cannot-create-a-new-road-us-5-mamlatdars-courts-act-1622991
+
+[Source Link](https://t.me/verdictumlegalupdates/29386)
+
+---
+
+### 2026-09-29T12:32:39+00:00
+Absence Of Forfeiture Provision In IBBI Liquidation Regulations Not Decisive Where E-Auction Terms Provide For It: Supreme Court Upholds Forfeiture Of EMD
+https://www.verdictum.in/supreme-court/ms-asj-finsolutions-pvt-ltd-v-vikram-bajaj-2026-insc-1062-insolvency-liquidation-1622989
+
+[Source Link](https://t.me/verdictumlegalupdates/29385)
+
+---
+
+### 2026-09-29T12:02:18+00:00
+For Endorsement Of Extrajudicial Divorce Of Khula, Detailed Inquiry Is Not Essential: Kerala High Court
+https://www.verdictum.in/kerala-high-court/k-v-i-2026ker72743-family-consider-3-ingredients-of-khula-hisband-cannot-deny-1622987
+
+[Source Link](https://t.me/verdictumlegalupdates/29384)
+
+---
+
+### 2026-09-29T11:32:18+00:00
+This Is Carnage, ‘Corporate’ Hospitals Don’t Spare Anyone: Apex Court On Markup Of Ten Times On Cancer Drugs
+https://www.verdictum.in/supreme-court/markup-of-ten-times-on-cancer-drugs-1622986
+
+[Source Link](https://t.me/verdictumlegalupdates/29383)
+
+---
+
+### 2026-09-29T11:02:17+00:00
+Ancient Monuments Act Does Not Bar Replacing Broken Or Installing Missing Idols In A Living Temple: Madras High Court
+https://www.verdictum.in/madras-high-court/k-kaliyamoorthy-v-union-of-india-others-ancient-monuments-act-missing-idols-living-temple-1622985
+
+[Source Link](https://t.me/verdictumlegalupdates/29382)
+
+---
+
+### 2026-09-29T10:33:15+00:00
+Separate Corporate Personality Of Erstwhile Corporations Not A Ground To Deny Unpaid Dues For Decades: Supreme Court Directs Bihar, Jharkhand To Pay  Daily-Wagers ₹1 Lakh Each
+https://www.verdictum.in/supreme-court/bihar-state-ardh-sarkari-arajpati-karamchari-maha-sangh-v-state-of-bihar-2026-insc-1061-separate-corporate-personality-bihar-jharkhand-pay-daily-wagers-1622983
+
+[Source Link](https://t.me/verdictumlegalupdates/29381)
+
+---
+
+### 2026-09-29T10:02:54+00:00
+Gujarat High Court Upholds ₹ 25,000 Cost On Arvind Kejriwal In PM Modi Degree Case
+https://www.verdictum.in/gujarat-high-court/-25000-cost-on-arvind-kejriwal-in-pm-modi-degree-case-upheld-1622984
+
+[Source Link](https://t.me/verdictumlegalupdates/29380)
+
+---
+
+### 2026-09-29T09:32:33+00:00
+Delhi High Court Sets Aside FSSAI Order Directing Red Bull To Remove Term ‘Energy Drink’ On Its Beverage
+https://www.verdictum.in/delhi-high-court/fssai-order-directing-red-bull-to-remove-term-energy-drink-on-its-beverage-set-aside-1622982
+
+[Source Link](https://t.me/verdictumlegalupdates/29379)
+
+---
+
+### 2026-09-29T09:02:52+00:00
+Delhi Rapes| Expressing Solidarity Is Not Solution To Social Evil: Apex Court Issues Time-Bound Directions For Safety Audits, Strict Patrolling & Fast-Track Trials
+https://www.verdictum.in/supreme-court/2026-insc-1063-in-re-recent-rape-incidents-in-delhi-ncr-1622978
+
+[Source Link](https://t.me/verdictumlegalupdates/29378)
+
+---
+
+### 2026-09-29T08:32:31+00:00
+"Marriage Has Reached A Dead End": Supreme Court Grants Divorce Invoking Article 142 Powers; Grants ₹35L Alimony & Quashes 18 Cases Between Estranged Couple
+https://www.verdictum.in/supreme-court/s-v-state-of-odisha-2026-insc-1060-divorce-article-142-constitution-35-lakh-alimony-deadlock-1622977
+
+[Source Link](https://t.me/verdictumlegalupdates/29377)
+
+---
+
+### 2026-09-29T08:02:11+00:00
+Supreme Court Refuses to Stay Rajasthan Cricket Association Elections; Directs Results Not To Be Declared
+https://www.verdictum.in/supreme-court/rajasthan-cricket-association-election-stayed-1622973
+
+[Source Link](https://t.me/verdictumlegalupdates/29376)
+
+---
+
+### 2026-09-29T07:32:50+00:00
+Supreme Court Refuses To Entertain PIL Seeking Law & Guidelines To Curb Ragging In Schools & Universities
+https://www.verdictum.in/supreme-court/pil-seeking-law-guidelines-to-curb-ragging-in-schools-universities-1622971
+
+[Source Link](https://t.me/verdictumlegalupdates/29375)
+
+---
+
+### 2026-09-29T07:02:49+00:00
+Rice Bran Oil And De-Oiled Rice Bran Are Manufactured Products, Not "Agricultural Produce": Calcutta High Court Quashes Market Fee Levy
+https://www.verdictum.in/calcutta-high-court/sethia-oil-industries-ltd-and-another-v-state-of-west-bengal-and-others-1622967
+
+[Source Link](https://t.me/verdictumlegalupdates/29374)
+
+---
+
+### 2026-09-29T06:32:28+00:00
+Non-Intentional Mistake: Kerala High Court Quashes Criminal Case Against Man Accused Of Holding Indian National Flag With Saffron Down
+https://www.verdictum.in/kerala-high-court/mohammed-kasim-hk-v-union-territory-of-lakshadweep-2026ker74369-national-flag-constitution-1622961
+
+[Source Link](https://t.me/verdictumlegalupdates/29373)
 
 ---
 
@@ -49,118 +161,6 @@ Prosecution Sanction Mandatory For Retired Public Servants U/S.19 Of PC Act Post
 https://www.verdictum.in/allahabad-high-court/dina-nath-jauhar-v-state-of-up-2026ahc202086-prosecution-sanction-mandatory-corruption-1622916
 
 [Source Link](https://t.me/verdictumlegalupdates/29367)
-
----
-
-### 2026-09-28T15:03:02+00:00
-Collegium Recommends Elevation Of Chief Justices Of Three High Courts To Supreme Court
-https://www.verdictum.in/supreme-court/collegium-recommends-elevation-of-chief-justices-of-three-high-courts-to-supreme-court-1622924
-
-[Source Link](https://t.me/verdictumlegalupdates/29366)
-
----
-
-### 2026-09-28T14:32:42+00:00
-Commencement Of Proceedings After Assessee's Death: Delhi High Court Rejects Plea Challenging Section 93(1)(b) CGST Act
-https://www.verdictum.in/delhi-high-court/jaiwanti-v-union-of-india-2026dhc8282-db-section-93-cgst-act-1622914
-
-[Source Link](https://t.me/verdictumlegalupdates/29365)
-
----
-
-### 2026-09-28T14:02:21+00:00
-Trial Court Can’t Put Leading Question U/S.165 Evidence Act Regarding Direct Commission Of Alleged Offence By Accused Prompting Witness To Say Affirmatively: Chhattisgarh High Court
-https://www.verdictum.in/chhattisgarh-high-court/pratap-singh-v-state-of-chhattisgarh-2026cghc41565-trial-court-sec165-evidence-act-1622913
-
-[Source Link](https://t.me/verdictumlegalupdates/29364)
-
----
-
-### 2026-09-28T13:33:00+00:00
-Government Can Invoke Section 100 Of Patents Act To Manufacture Unaffordable Patented Medicines: Kerala High Court
-https://www.verdictum.in/kerala-high-court/in-re-exorbitant-pricing-of-life-saving-patented-medicines-2026ker74251-breast-cancer-drug-cost-patent-1622910
-
-[Source Link](https://t.me/verdictumlegalupdates/29363)
-
----
-
-### 2026-09-28T13:02:19+00:00
-Delhi High Court Issues Notice On Sharjeel Imam's Plea Seeking Access To E-Record To Complete PhD
-https://www.verdictum.in/delhi-high-court/notice-on-sharjeel-imams-plea-seeking-access-to-e-record-to-complete-phd-1622909
-
-[Source Link](https://t.me/verdictumlegalupdates/29362)
-
----
-
-### 2026-09-28T12:32:18+00:00
-Weekly Overview| Supreme Court Judgments: September 21 – September 25, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-september-21-september-25-2026-1622906
-
-[Source Link](https://t.me/verdictumlegalupdates/29361)
-
----
-
-### 2026-09-28T12:03:17+00:00
-Supreme Court Stays Delhi High Court Order On GST's Search Of Advocate's Office
-https://www.verdictum.in/supreme-court/delhi-high-court-order-on-gsts-search-of-advocates-office-stayed-1622905
-
-[Source Link](https://t.me/verdictumlegalupdates/29360)
-
----
-
-### 2026-09-28T11:32:57+00:00
-Supreme Court Questions FSSAI Over Its Proposed Timeline For Implementation Of Front-Of-Package Labelling
-https://www.verdictum.in/supreme-court/fssai-over-its-proposed-timeline-for-implementation-of-front-of-package-labelling-1622903
-
-[Source Link](https://t.me/verdictumlegalupdates/29359)
-
----
-
-### 2026-09-28T11:02:36+00:00
-Bareboat Charter Can End On Valid Termination Notice Without Physical Repossession Of Vessel: Supreme Court Vacates Arrest Of Vessel
-https://www.verdictum.in/supreme-court/owners-and-parties-interested-in-mv-nereus-progress-v-om-freight-forwarders-ltd-2026-insc-1055-1622902
-
-[Source Link](https://t.me/verdictumlegalupdates/29358)
-
----
-
-### 2026-09-28T10:32:15+00:00
-FMGE 2026| Not Possible To Comply With All Formalities At Last Minute: Delhi High Court Directs Relaxed Documentation For Duplicate NEET-UG Scorecards
-https://www.verdictum.in/delhi-high-court/ayush-kumar-v-national-testing-agency-wpc-117462026-fmge-proposed-for-october-31-2026-1622884
-
-[Source Link](https://t.me/verdictumlegalupdates/29357)
-
----
-
-### 2026-09-28T09:48:54+00:00
-We Want Comfort, Not Intelligence: Supreme Court Directs CBSE To Grant Class 6 Students Same Third-Language Policy Relief As Class 7
-https://www.verdictum.in/supreme-court/directs-cbse-grant-class-6-students-same-third-language-policy-relief-class-7-1622901
-
-[Source Link](https://t.me/verdictumlegalupdates/29356)
-
----
-
-### 2026-09-28T09:32:53+00:00
-Supreme Court Refuses To Interfere With Ex-CM Bhupesh Baghel Plea For Now, Leaves Limitation Issue Open
-https://www.verdictum.in/supreme-court/no-interference-ex-cm-bhupesh-baghel-plea-limitation-issue-open-1622898
-
-[Source Link](https://t.me/verdictumlegalupdates/29355)
-
----
-
-### 2026-09-28T09:02:32+00:00
-TMC Symbol Dispute: Supreme Court Directs ECI To Decide Dispute Within Three Months, Says Parties' Cooperation Is Extremely Important
-https://www.verdictum.in/supreme-court/tmc-symbol-dispute-eci-decide-dispute-3-months-grants-factions-4-1622899
-
-[Source Link](https://t.me/verdictumlegalupdates/29354)
-
----
-
-### 2026-09-28T08:32:51+00:00
-Supreme Court Issues Notice In Plea Challenging Order Acquitting 22 Accused In 2005 Alleged Fake Encounter Case Involving Sohrabuddin Shaikh, His Wife & Aide
-https://www.verdictum.in/supreme-court/order-acquitting-22-accused-in-2005-alleged-fake-encounter-case-involving-sohrabuddin-shaikh-his-wife-aide-1622892
-
-[Source Link](https://t.me/verdictumlegalupdates/29353)
 
 ---
 
