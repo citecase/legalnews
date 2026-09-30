@@ -1,6 +1,118 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-30T05:32:06+00:00*
+*Last Updated: 2026-09-30T12:32:18+00:00*
+
+---
+
+### 2026-09-30T12:32:18+00:00
+Delhi High Court Refuses To Entertain Plea Seeking Direction To Centre To Erect Memorial For INA Martyrs At Red Fort
+https://www.verdictum.in/delhi-high-court/plea-seeking-direction-to-centre-to-erect-memorial-for-ina-martyrs-at-red-fort-1623072
+
+[Source Link](https://t.me/verdictumlegalupdates/29409)
+
+---
+
+### 2026-09-30T12:02:57+00:00
+Total Ban Will Have Sentimental Effect: Apex Court Gives Time To Union For Open Ground Testing Of Barium Firecrackers
+https://www.verdictum.in/supreme-court/ban-firecrackers-delhi-ncr-barium-open-ground-testing-pollution-1623071
+
+[Source Link](https://t.me/verdictumlegalupdates/29408)
+
+---
+
+### 2026-09-30T11:32:57+00:00
+Bombay High Court Imposes Total Ban On Bursting Firecrackers On Public Streets And Roads During Festivities
+https://www.verdictum.in/bombay-high-court/in-re-noise-and-environmental-pollution-public-nuisance-caused-by-unregulated-use-of-music-systems-with-amplifiers-and-firecrackers-on-public-streets-during-festivals-1623070
+
+[Source Link](https://t.me/verdictumlegalupdates/29407)
+
+---
+
+### 2026-09-30T11:06:36+00:00
+Actively Sharing Inflammatory Propaganda Online To Further Ideology Of Banned Organisation Will Attract UAPA Charges: Jammu & Kashmir And Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/dawood-v-union-territory-of-jammu-kashmir-sharing-inflammatory-propaganda-online-uapa-1623069
+
+[Source Link](https://t.me/verdictumlegalupdates/29406)
+
+---
+
+### 2026-09-30T10:32:35+00:00
+Can Writ Petition Lie Against Church Of South India’s Internal Communications Without Public Element? Madras High Court Refers To Larger Bench
+https://www.verdictum.in/madras-high-court/the-church-of-south-india-v-g-selvakumar-ors-2026mhc4018-maintainability-1623067
+
+[Source Link](https://t.me/verdictumlegalupdates/29405)
+
+---
+
+### 2026-09-30T10:02:14+00:00
+Bombay High Court Stays Ex-Police Officer Sachin Waze's Bail In Antilia Bomb Scare Case
+https://www.verdictum.in/bombay-high-court/ex-police-officer-sachin-wazes-bail-in-antilia-bomb-scare-case-stayed-1623066
+
+[Source Link](https://t.me/verdictumlegalupdates/29404)
+
+---
+
+### 2026-09-30T09:32:53+00:00
+Falsifying Pedigree To Create Non-Existent Legal Entities & Identities Prima Facie Amounts To Making False Document U/S 464 IPC: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/mahendrabhai-chandubhai-patel-v-state-of-gujarat-2026gujhc60833-falsifying-pedigree-to-create-non-existent-legal-entities-1623065
+
+[Source Link](https://t.me/verdictumlegalupdates/29403)
+
+---
+
+### 2026-09-30T09:02:32+00:00
+Service-Condition Restriction Cannot, Without More, Be Ineligibility U/S 12(5) Arbitration Act: Delhi High Court Restores Award Against IIT Kanpur
+https://www.verdictum.in/delhi-high-court/ms-airport-handling-services-v-indian-institute-of-technology-kanpur-2026dhc8387-db-us-125-arbitration-act-customs-freight-iit-kanpur-1623063
+
+[Source Link](https://t.me/verdictumlegalupdates/29402)
+
+---
+
+### 2026-09-30T08:32:11+00:00
+Passport Application Can Be Made By Single Mother On Behalf Of Her Child; Can't Insist Inclusion Of Father’s Name: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/ekang-mishra-v-union-of-india-2026rj-jp37212-passport-application-fathers-name-1623062
+
+[Source Link](https://t.me/verdictumlegalupdates/29401)
+
+---
+
+### 2026-09-30T08:02:30+00:00
+Supreme Court Agrees To Hear WB Govt's Challenge to Congress Candidate Milan Pradhan's Interim Bail On Oct 5
+https://www.verdictum.in/supreme-court/wb-govts-challenge-to-congress-candidate-milan-pradhans-interim-bail-on-oct-5-1623059
+
+[Source Link](https://t.me/verdictumlegalupdates/29400)
+
+---
+
+### 2026-09-30T07:32:29+00:00
+Pre-Trial Incarceration Can’t Masquerade As Punitive Detention When Commencement & Conclusion Of Trial Are Not Imminent: Supreme Court
+https://www.verdictum.in/supreme-court/sanjay-badaya-v-state-of-rajasthan-2026-insc-1065-pre-trial-incarceration-detention-1623055
+
+[Source Link](https://t.me/verdictumlegalupdates/29399)
+
+---
+
+### 2026-09-30T07:02:09+00:00
+Filing Lawful Proceedings Without Intention To Instigate Cannot Constitute Abetment Of Suicide: Bombay High Court
+https://www.verdictum.in/bombay-high-court/sadashiv-ambadasrao-gayake-v-state-of-maharashtra-another-suicide-abetment-1623051
+
+[Source Link](https://t.me/verdictumlegalupdates/29398)
+
+---
+
+### 2026-09-30T06:26:48+00:00
+Breaking| Roles Are Different Than Others, Parity Can't Be Sought: Delhi High Court Rejects Bail To Umar Khalid, Sharjeel Imam In 2020 Delhi Riots Case
+https://www.verdictum.in/delhi-high-court/denies-bail-to-umar-khalid-sharjeel-imam-2020-delhi-riots-case-1623043
+
+[Source Link](https://t.me/verdictumlegalupdates/29397)
+
+---
+
+### 2026-09-30T06:02:27+00:00
+Hookah Service In Designated Smoking Area Is "Categorically, Unconditionally And Absolutely Prohibited": Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/ms-aftek-foods-and-beverages-pvt-ltd-v-state-of-up-2026ahc-lb69218-db-rule-43-post-2017-amendment-smoking-hookah-1623036
+
+[Source Link](https://t.me/verdictumlegalupdates/29396)
 
 ---
 
@@ -49,118 +161,6 @@ Grave Misconduct: Madras High Court Upholds Dismissal Of Prison Warden For Suppl
 https://www.verdictum.in/madras-high-court/m-aashik-mohammed-v-director-general-of-prison-and-correctional-services-others-1622995
 
 [Source Link](https://t.me/verdictumlegalupdates/29390)
-
----
-
-### 2026-09-29T14:32:43+00:00
-Mere Absence Of Objection Or Consent Cannot Constitute "Authority Of Law" Under Article 300-A Constitution For Taking Private Land: Bombay High Court
-https://www.verdictum.in/bombay-high-court/shekhar-ghanshyam-janbandhu-v-state-of-maharashtra-2026bhc-nag12657-db-article-300-a-constitution-taking-private-land-road-1622994
-
-[Source Link](https://t.me/verdictumlegalupdates/29389)
-
----
-
-### 2026-09-29T14:02:22+00:00
-Family Courts Can Consider Evidence Otherwise Inadmissible U/S 92 Evidence Act If Necessary To Resolve Dispute: Kerala High Court
-https://www.verdictum.in/kerala-high-court/r-v-ks-2026ker73656-family-courts-act-section-14-indian-evidence-act-section-92-1622993
-
-[Source Link](https://t.me/verdictumlegalupdates/29388)
-
----
-
-### 2026-09-29T13:33:01+00:00
-Sikkim High Court Asks SSLSA To Sensitize Legal Aid Counsels; Suggests Rehabilitation Mechanism For Sexual Assault Victims Under 12
-https://www.verdictum.in/sikkim-high-court/ashok-subba-v-state-of-sikkim-sslsa-sensitize-legal-aid-counsel-rehabilitation-sexual-assault-victims-1622992
-
-[Source Link](https://t.me/verdictumlegalupdates/29387)
-
----
-
-### 2026-09-29T13:02:40+00:00
-Mamlatdar Cannot Create A New Road U/S 5 Mamlatdars' Courts Act; Existing Road Or Customary Way Must Be Identified & Proved: Bombay High Court
-https://www.verdictum.in/bombay-high-court/balasaheb-karbhari-uphade-v-tahsildar-dindori-2026bhc-as39451-mamlatdar-cannot-create-a-new-road-us-5-mamlatdars-courts-act-1622991
-
-[Source Link](https://t.me/verdictumlegalupdates/29386)
-
----
-
-### 2026-09-29T12:32:39+00:00
-Absence Of Forfeiture Provision In IBBI Liquidation Regulations Not Decisive Where E-Auction Terms Provide For It: Supreme Court Upholds Forfeiture Of EMD
-https://www.verdictum.in/supreme-court/ms-asj-finsolutions-pvt-ltd-v-vikram-bajaj-2026-insc-1062-insolvency-liquidation-1622989
-
-[Source Link](https://t.me/verdictumlegalupdates/29385)
-
----
-
-### 2026-09-29T12:02:18+00:00
-For Endorsement Of Extrajudicial Divorce Of Khula, Detailed Inquiry Is Not Essential: Kerala High Court
-https://www.verdictum.in/kerala-high-court/k-v-i-2026ker72743-family-consider-3-ingredients-of-khula-hisband-cannot-deny-1622987
-
-[Source Link](https://t.me/verdictumlegalupdates/29384)
-
----
-
-### 2026-09-29T11:32:18+00:00
-This Is Carnage, ‘Corporate’ Hospitals Don’t Spare Anyone: Apex Court On Markup Of Ten Times On Cancer Drugs
-https://www.verdictum.in/supreme-court/markup-of-ten-times-on-cancer-drugs-1622986
-
-[Source Link](https://t.me/verdictumlegalupdates/29383)
-
----
-
-### 2026-09-29T11:02:17+00:00
-Ancient Monuments Act Does Not Bar Replacing Broken Or Installing Missing Idols In A Living Temple: Madras High Court
-https://www.verdictum.in/madras-high-court/k-kaliyamoorthy-v-union-of-india-others-ancient-monuments-act-missing-idols-living-temple-1622985
-
-[Source Link](https://t.me/verdictumlegalupdates/29382)
-
----
-
-### 2026-09-29T10:33:15+00:00
-Separate Corporate Personality Of Erstwhile Corporations Not A Ground To Deny Unpaid Dues For Decades: Supreme Court Directs Bihar, Jharkhand To Pay  Daily-Wagers ₹1 Lakh Each
-https://www.verdictum.in/supreme-court/bihar-state-ardh-sarkari-arajpati-karamchari-maha-sangh-v-state-of-bihar-2026-insc-1061-separate-corporate-personality-bihar-jharkhand-pay-daily-wagers-1622983
-
-[Source Link](https://t.me/verdictumlegalupdates/29381)
-
----
-
-### 2026-09-29T10:02:54+00:00
-Gujarat High Court Upholds ₹ 25,000 Cost On Arvind Kejriwal In PM Modi Degree Case
-https://www.verdictum.in/gujarat-high-court/-25000-cost-on-arvind-kejriwal-in-pm-modi-degree-case-upheld-1622984
-
-[Source Link](https://t.me/verdictumlegalupdates/29380)
-
----
-
-### 2026-09-29T09:32:33+00:00
-Delhi High Court Sets Aside FSSAI Order Directing Red Bull To Remove Term ‘Energy Drink’ On Its Beverage
-https://www.verdictum.in/delhi-high-court/fssai-order-directing-red-bull-to-remove-term-energy-drink-on-its-beverage-set-aside-1622982
-
-[Source Link](https://t.me/verdictumlegalupdates/29379)
-
----
-
-### 2026-09-29T09:02:52+00:00
-Delhi Rapes| Expressing Solidarity Is Not Solution To Social Evil: Apex Court Issues Time-Bound Directions For Safety Audits, Strict Patrolling & Fast-Track Trials
-https://www.verdictum.in/supreme-court/2026-insc-1063-in-re-recent-rape-incidents-in-delhi-ncr-1622978
-
-[Source Link](https://t.me/verdictumlegalupdates/29378)
-
----
-
-### 2026-09-29T08:32:31+00:00
-"Marriage Has Reached A Dead End": Supreme Court Grants Divorce Invoking Article 142 Powers; Grants ₹35L Alimony & Quashes 18 Cases Between Estranged Couple
-https://www.verdictum.in/supreme-court/s-v-state-of-odisha-2026-insc-1060-divorce-article-142-constitution-35-lakh-alimony-deadlock-1622977
-
-[Source Link](https://t.me/verdictumlegalupdates/29377)
-
----
-
-### 2026-09-29T08:02:11+00:00
-Supreme Court Refuses to Stay Rajasthan Cricket Association Elections; Directs Results Not To Be Declared
-https://www.verdictum.in/supreme-court/rajasthan-cricket-association-election-stayed-1622973
-
-[Source Link](https://t.me/verdictumlegalupdates/29376)
 
 ---
 
