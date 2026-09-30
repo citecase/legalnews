@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-30T09:47:08+00:00*
+*Last Updated: 2026-09-30T13:43:45+00:00*
 
 ---
 
-### 2026-09-30T09:47:08+00:00
-Supreme Court Special Bench Criticises Manner Of CAPF Contempt Case Listing; Centre Says Request Was Made Before CJI
-https://www.livelaw.in/top-stories/supreme-court-special-bench-criticises-manner-of-capf-contempt-case-listing-centre-says-request-was-made-before-cji-552469
+### 2026-09-30T13:43:45+00:00
+Royal Stag Whisky Bottle Containing Foreign Particles: Sikkim State Consumer Commission Upholds Pernod Ricard's Liability
+https://www.livelaw.in/consumer-cases/royal-stag-whisky-bottle-containing-foreign-particles-sikkim-state-consumer-commission-upholds-pernod-ricards-liability-552546
 
-[Read on Telegram](https://t.me/livelawindia/121191)
-
----
-### 2026-09-30T09:52:38+00:00
-Reviewing Officer Must Give Specific Reasons For Departing From Reporting Officer's APAR Assessment: Meghalaya High Court
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-reviewing-officer-specific-reasons-departing-reporting-officer-apar-assessment-552396
-
-[Read on Telegram](https://t.me/livelawindia/121192)
+[Read on Telegram](https://t.me/livelawindia/121226)
 
 ---
-### 2026-09-30T09:56:18+00:00
-Twisha Sharma Case: MP High Court Directs Giribala Singh To Amend Bail Plea After CBI Drops Dowry Death Charge, Adds Suicide Abetment
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/twisha-sharma-death-giribala-singh-amend-bail-cbi-drops-dowry-charge-add-suicide-abetment-552471
+### 2026-09-30T13:52:16+00:00
+Supreme Court Rebukes UP Police Over FIR Discrepancies, Summons Officer
+https://www.livelaw.in/top-stories/supreme-court-rebukes-up-police-over-fir-discrepancies-summons-officer-552547
 
-[Read on Telegram](https://t.me/livelawindia/121193)
-
----
-### 2026-09-30T09:59:18+00:00
-Journalist Ajit Anjum Seeks To Intervene In Supreme Court Reference On Legislative Privileges
-https://www.livelaw.in/top-stories/supreme-court-ajit-anjum-journalist-intervention-in-reference-on-legislative-privileges-seeks-standards-on-fair-criticism-of-legislative-institutions-552473
-
-[Read on Telegram](https://t.me/livelawindia/121194)
+[Read on Telegram](https://t.me/livelawindia/121227)
 
 ---
-### 2026-09-30T10:07:58+00:00
-Delhi High Court Seeks Centre's Stand On PIL For Independent Audit Of IRCTC Reservation System
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-seeks-centres-stand-on-pil-for-independent-audit-of-irctc-reservation-system-552472
+### 2026-09-30T13:57:57+00:00
+Bombay High Court Orders X Corp To Delete Objectionable Content Against Adar Poonawala Over Alleged Side-Effects Of Covid Vaccine
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-orders-x-corp-to-delete-objectionable-content-against-adar-poonawala-over-alleged-side-effects-of-covid-vaccine-552548
 
-[Read on Telegram](https://t.me/livelawindia/121195)
-
----
-### 2026-09-30T10:23:58+00:00
-Freedom Of Speech Does Not Protect Defamatory, Abusive Or Malicious Social Media Content: Tripura High Court
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-quash-fir-against-content-creator-552479
-
-[Read on Telegram](https://t.me/livelawindia/121196)
+[Read on Telegram](https://t.me/livelawindia/121228)
 
 ---
-### 2026-09-30T10:27:38+00:00
-'National Waste': Kerala High Court Says PG Doctors Can't Be Left Idle Without Posting; 1-Year Bond Runs From Result Date
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-senior-residency-doctors-552481
+### 2026-09-30T13:58:07+00:00
+POCSO Case Can Be Quashed In Exceptional Cases Based On Informed Victim Consent, Marriage: Meghalaya High Court
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-pocso-case-quashed-exceptional-cases-informed-victim-consent-552401
 
-[Read on Telegram](https://t.me/livelawindia/121197)
-
----
-### 2026-09-30T10:33:38+00:00
-Calcutta High Court Directs Police Not To Permit Durga Puja At Residential Premises Without Flat Owners' Consent
-https://www.livelaw.in/high-court/calcutta-high-court/durga-puja-cannot-be-organised-on-private-property-without-owners-permission-calcutta-high-court-552484
-
-[Read on Telegram](https://t.me/livelawindia/121198)
+[Read on Telegram](https://t.me/livelawindia/121229)
 
 ---
-### 2026-09-30T10:42:38+00:00
-Budget Constraints Can't Justify Indefinite Withholding Of Admitted Dues: MP High Court Orders ₹5 Lakh Payment
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-budgetary-constraints-cannot-justify-withholding-payment-of-completed-work-552486
+### 2026-09-30T14:12:37+00:00
+Delhi High Court Directs DDA To Process Pending Freehold Conversion Applications Within Two Months
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-dda-to-process-pending-freehold-conversion-applications-within-two-months-552550
 
-[Read on Telegram](https://t.me/livelawindia/121199)
-
----
-### 2026-09-30T10:43:08+00:00
-Calcutta High Court Refuses To Quash FIR Over Alleged Fake SC Certificate, Says No Express Bar On Police Complaint
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-hc-refuses-to-quash-fir-over-alleged-fake-sc-certificate-says-no-express-bar-on-police-complaint-552488
-
-[Read on Telegram](https://t.me/livelawindia/121200)
+[Read on Telegram](https://t.me/livelawindia/121230)
 
 ---
-### 2026-09-30T11:06:08+00:00
-High Court Seeks Delhi Govt Response On Current Vacancies Of Post Graduate Teachers' In Govt Schools
-https://www.livelaw.in/high-court/delhi-high-court/high-court-seeks-delhi-govt-response-on-current-vacancies-of-post-graduate-teachers-in-govt-schools-552494
+### 2026-09-30T14:22:37+00:00
+No Limitation For Seeking Maintenance Under Section 125 CrPC, Wife's Right Can't Be Lost By Delay: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-limitation-period-filing-maintenance-claim-section125-crpc-552551
 
-[Read on Telegram](https://t.me/livelawindia/121201)
-
----
-### 2026-09-30T11:09:48+00:00
-Supreme Court Rules Out Complete Firecracker Ban, Proposes Approach Balancing Sentiments & Health
-https://www.livelaw.in/top-stories/supreme-court-rules-out-complete-firecracker-ban-proposes-approach-balancing-sentiments-health-552499
-
-[Read on Telegram](https://t.me/livelawindia/121202)
+[Read on Telegram](https://t.me/livelawindia/121231)
 
 ---
-### 2026-09-30T11:09:58+00:00
-Calcutta High Court Directs Medical Exam Of BSF Aspirant's Burn Mark From Tattoo Removal, Cites Lack Of Guidelines
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-directs-medical-examination-of-bsf-aspirants-burn-mark-from-tattoo-removal-cites-lack-of-guidelines-552500
+### 2026-09-30T14:32:17+00:00
+IO Can't Independently Record Victim's Further Statement After S.183 BNSS Statement Recorded By Magistrate: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-investigation-officer-independently-record-victim-statement-section183-bnss-552552
 
-[Read on Telegram](https://t.me/livelawindia/121203)
-
----
-### 2026-09-30T11:17:28+00:00
-Borrowing Department Can't Take Disciplinary Action After Employee Is Repatriated To Parent Department: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/employee-repatriated-borrowing-department-cant-initiate-disciplinary-action-552496
-
-[Read on Telegram](https://t.me/livelawindia/121204)
+[Read on Telegram](https://t.me/livelawindia/121232)
 
 ---
-### 2026-09-30T11:27:43+00:00
-Karnataka High Court Seeks Chief Secretary's Affidavit On Timeline To Establish Civil Service Board As Per 2013 SC Directions
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-civil-service-board-state-government-552501
+### 2026-09-30T14:32:57+00:00
+When Law Breaks Rule Of Principles
+https://www.livelaw.in/articles/when-law-breaks-rule-principles-552545
 
-[Read on Telegram](https://t.me/livelawindia/121205)
-
----
-### 2026-09-30T11:29:23+00:00
-Delhi High Court Seeks Centre's Stand On PIL Challenging Mandatory Aadhaar Authentication For LPG Refills
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-seeks-centres-stand-on-pil-challenging-mandatory-aadhaar-authentication-for-lpg-refills-552508
-
-[Read on Telegram](https://t.me/livelawindia/121206)
+[Read on Telegram](https://t.me/livelawindia/121233)
 
 ---
-### 2026-09-30T11:54:23+00:00
-Judges Must Avoid Personal Views On Morality While Hearing Bail Pleas Or Criminal Trials: Supreme Court
-https://www.livelaw.in/supreme-court/judges-must-avoid-personal-views-on-morality-while-hearing-bail-pleas-or-criminal-trials-supreme-court-552512
+### 2026-09-30T14:37:17+00:00
+Calcutta High Court Directs Insurer To Compensate 5-Year-Old's Accidental Death Despite Offending Driver's Fake Licence
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-directs-insurer-to-compensate-5-year-olds-accidental-death-despite-offending-drivers-fake-licence-552492
 
-[Read on Telegram](https://t.me/livelawindia/121207)
-
----
-### 2026-09-30T11:55:43+00:00
-2026 LiveLaw (SC) 1003 |  KANHA @ KANHAIYA SINGH VERSUS THE STATE OF MADHYA PRADESH & ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1003-kanha-kanhaiya-singh-versus-the-state-of-madhya-pradesh-anr-552513
-
-[Read on Telegram](https://t.me/livelawindia/121208)
+[Read on Telegram](https://t.me/livelawindia/121234)
 
 ---
-### 2026-09-30T12:04:03+00:00
-Can't Order CBI Probe Merely Because Accused Is Excise Officer: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-cbi-inquiry-not-warranted-merely-because-accused-is-excise-officer-552518
+### 2026-09-30T14:47:47+00:00
+Govt Employee's Married Daughter Can't Be Denied Compassionate Appointment Solely Due To Marital Status: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-govt-employee-married-daughter-denied-compassionate-appointment-552553
 
-[Read on Telegram](https://t.me/livelawindia/121209)
+[Read on Telegram](https://t.me/livelawindia/121235)
 
 ---
-### 2026-09-30T12:06:03+00:00
-Kerala Court Awards Life Sentence To Woman Who Strangled Newborn
-https://www.livelaw.in/news-updates/kerala-court-woman-strangled-newborn-552519
+### 2026-09-30T14:50:07+00:00
+Whether IPC Prosecution Can Continue After Sanction Under PC Act Was Refused: Supreme Court Reserves Judgment
+https://www.livelaw.in/top-stories/supreme-court-ipc-prosecution-continue-sanction-pc-act-refused-552564
 
-[Read on Telegram](https://t.me/livelawindia/121210)
+[Read on Telegram](https://t.me/livelawindia/121236)
+
+---
+### 2026-09-30T15:02:27+00:00
+'Moral Consciousness Can't Overtake Legal Entitlement': Karnataka High Court Grants Parole To Murder Convicts To Get Married
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-grants-parole-lovers-convicted-killing-woman-husband-552557
+
+[Read on Telegram](https://t.me/livelawindia/121237)
+
+---
+### 2026-09-30T15:20:47+00:00
+Accused Can't Protract Trial And Later Cite Delay To Seek Bail: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/accused-cant-protract-trial-and-later-cite-delay-to-seek-bail-552566
+
+[Read on Telegram](https://t.me/livelawindia/121238)
+
+---
+### 2026-09-30T15:28:57+00:00
+Women Safety: Bombay High Court Seeks State's Reply On Plea Alleging Public Vehicles Registered Without Mandatory Tracking Devices, Panic Buttons
+https://www.livelaw.in/high-court/bombay-high-court/women-safety-bombay-high-court-seeks-states-reply-on-plea-alleging-public-vehicles-registered-without-mandatory-tracking-devices-panic-buttons-552567
+
+[Read on Telegram](https://t.me/livelawindia/121239)
+
+---
+### 2026-09-30T15:43:01+00:00
+LiveLaw| Umar Khalid & Sharjeel Imam bail| IRCTC Audit| Twisha Sharma| LPU Violence & more
+https://www.livelaw.in/podcast/supreme-court-livelaw-daily-lpu-twisha-sharma-allahabad-high-court-satya-niketan-umar-khalid-sharjeel-imam-news-india-552571
+
+[Read on Telegram](https://t.me/livelawindia/121240)
+
+---
+### 2026-09-30T16:12:21+00:00
+Cardiac Arrest Due To Stress And Strain Of Long-Distance Driving Is Compensable Under Employees' Compensation Act: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/cardiac-arrest-due-to-stress-and-strain-of-long-distance-driving-is-compensable-under-employees-compensation-act-jk-high-court-552402
+
+[Read on Telegram](https://t.me/livelawindia/121241)
+
+---
+### 2026-09-30T16:17:01+00:00
+Mahakumbh Fame Woman Gets Relief as MP High Court Quashes Birth Certificate Correction Order
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-grants-relief-to-viral-kumbh-mela-star-for-correction-of-birth-certificate-552572
+
+[Read on Telegram](https://t.me/livelawindia/121242)
+
+---
+### 2026-09-30T16:59:31+00:00
+'Who Judges The Judge?': Allahabad High Court Calls For Recalibration Of CJ-Centric Administration, Greater Institutional Accountability
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-chief-justice-centric-administration-participative-decision-making-552573
+
+[Read on Telegram](https://t.me/livelawindia/121243)
+
+---
+### 2026-09-30T17:27:41+00:00
+Supreme Court Daily Round-Up : September 30, 2026
+https://www.livelaw.in/round-ups/supreme-court-daily-round-up-september-30-2026-552568
+
+[Read on Telegram](https://t.me/livelawindia/121244)
+
+---
+### 2026-09-30T17:32:41+00:00
+LiveLaw High Courts Daily Highlights: September 30, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-30-2026-552569
+
+[Read on Telegram](https://t.me/livelawindia/121245)
 
 ---
