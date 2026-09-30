@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-30T12:32:18+00:00*
+*Last Updated: 2026-09-30T16:03:04+00:00*
+
+---
+
+### 2026-09-30T16:03:04+00:00
+Legal Consultant Vacancy At Broadcast Engineering Consultants India (BECIL)
+https://www.verdictum.in/job-updates/broadcast-engineering-consultants-india-1623081
+
+[Source Link](https://t.me/verdictumlegalupdates/29416)
+
+---
+
+### 2026-09-30T15:32:23+00:00
+Mere Wish Of Wife That Husband Should Live As Gharjamai Won’t Constitute Cruelty Under Hindu Marriage Act: Jharkhand High Court
+https://www.verdictum.in/jharkhand-high-court/a-v-b-2026jhhc28010-db-mere-wish-wife-husband-gharjamai-cruelty-hindu-marriage-act-1623087
+
+[Source Link](https://t.me/verdictumlegalupdates/29415)
+
+---
+
+### 2026-09-30T15:02:23+00:00
+Victims In Cases U/s. 376 IPC Or 69 BNS Must Be Permitted To Participate At Every Stage Of Trial Including Bail: Delhi High Court
+https://www.verdictum.in/delhi-high-court/ms-g-v-state-nct-of-delhi-2026dhc8405-victim-complaint-s376-ipc-sec69-bns-bail-1623079
+
+[Source Link](https://t.me/verdictumlegalupdates/29414)
+
+---
+
+### 2026-09-30T14:33:02+00:00
+NRI Quota In NEET-UG Counselling Is Unreserved; Candidates Cannot Combine It With OBC Reservation: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/juhi-v-union-of-india-others-2026khc-d14973-db-neet-ug-nri-quota-reservation-1623078
+
+[Source Link](https://t.me/verdictumlegalupdates/29413)
+
+---
+
+### 2026-09-30T14:02:41+00:00
+Smuggling Of Bovine Animals Hurts Religious Sentiments:  Jammu & Kashmir And Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/smuggling-bovine-animals-hurts-religious-sentiments-preventive-detention-order-1623077
+
+[Source Link](https://t.me/verdictumlegalupdates/29412)
+
+---
+
+### 2026-09-30T13:32:20+00:00
+Delhi High Court Dismisses Plea Alleging Partisan Campaigning By Varsity Staff In DUSU Polls
+https://www.verdictum.in/delhi-high-court/plea-alleging-partisan-campaigning-by-varsity-staff-in-dusu-polls-1623076
+
+[Source Link](https://t.me/verdictumlegalupdates/29411)
+
+---
+
+### 2026-09-30T13:03:20+00:00
+Issuance Of Tourist Visa Is Sovereign Function; Foreign Spouse Of Indian Citizen Has No Vested Right Over It: Kerala High Court
+https://www.verdictum.in/kerala-high-court/unaiz-kadumbottil-v-union-of-india-2026ker63060-tourist-visa-sovereign-function-foreign-spouse-1623075
+
+[Source Link](https://t.me/verdictumlegalupdates/29410)
 
 ---
 
@@ -105,62 +161,6 @@ Breaking| Roles Are Different Than Others, Parity Can't Be Sought: Delhi High Co
 https://www.verdictum.in/delhi-high-court/denies-bail-to-umar-khalid-sharjeel-imam-2020-delhi-riots-case-1623043
 
 [Source Link](https://t.me/verdictumlegalupdates/29397)
-
----
-
-### 2026-09-30T06:02:27+00:00
-Hookah Service In Designated Smoking Area Is "Categorically, Unconditionally And Absolutely Prohibited": Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/ms-aftek-foods-and-beverages-pvt-ltd-v-state-of-up-2026ahc-lb69218-db-rule-43-post-2017-amendment-smoking-hookah-1623036
-
-[Source Link](https://t.me/verdictumlegalupdates/29396)
-
----
-
-### 2026-09-30T05:32:06+00:00
-Confessional Statement To Police Alone Cannot Form Basis For Preventive Detention Under NSA: Supreme Court While Quashing Detention Order In Sambhal Communal Violence Case
-https://www.verdictum.in/supreme-court/2026-insc-1067-mulla-afroz-v-union-of-india-1623035
-
-[Source Link](https://t.me/verdictumlegalupdates/29395)
-
----
-
-### 2026-09-30T05:03:05+00:00
-Deprived Court Of Timely Assistance: Allahabad High Court Imposes ₹1 Lakh Cost On State For 30 Years Delay In Filing Counter Affidavit
-https://www.verdictum.in/allahabad-high-court/uma-kant-tripathi-v-cm-bahraich-coop-bank-ltd-2026ahc-lko67510-state-responsibility-lapse-1623032
-
-[Source Link](https://t.me/verdictumlegalupdates/29394)
-
----
-
-### 2026-09-30T04:32:54+00:00
-Gujarat High Court Considers Deceased Contractor’s Guinness Record For Lifting Cement Bag With Teeth, Enhances Accident Compensation
-https://www.verdictum.in/gujarat-high-court/umaba-anirudhhsinh-jadeja-others-v-shambhubhai-gangabhai-jaru-others-1622999
-
-[Source Link](https://t.me/verdictumlegalupdates/29393)
-
----
-
-### 2026-09-29T16:02:25+00:00
-Legal Consultant Vacancy At National Institute For The Visually Handicapped (NIEPVD)
-https://www.verdictum.in/job-updates/national-institute-for-the-visually-handicapped-1622998
-
-[Source Link](https://t.me/verdictumlegalupdates/29392)
-
----
-
-### 2026-09-29T15:33:04+00:00
-Preventive Detention After Grant Of Bail Requires Cogent Material Showing Imminent Prejudicial Activity: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/mala-v-state-of-karnataka-others-bail-preventive-detention-proximate-link-1622997
-
-[Source Link](https://t.me/verdictumlegalupdates/29391)
-
----
-
-### 2026-09-29T15:03:03+00:00
-Grave Misconduct: Madras High Court Upholds Dismissal Of Prison Warden For Supplying Ganja To Convicts
-https://www.verdictum.in/madras-high-court/m-aashik-mohammed-v-director-general-of-prison-and-correctional-services-others-1622995
-
-[Source Link](https://t.me/verdictumlegalupdates/29390)
 
 ---
 
