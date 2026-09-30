@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-29T16:02:25+00:00*
+*Last Updated: 2026-09-30T05:32:06+00:00*
+
+---
+
+### 2026-09-30T05:32:06+00:00
+Confessional Statement To Police Alone Cannot Form Basis For Preventive Detention Under NSA: Supreme Court While Quashing Detention Order In Sambhal Communal Violence Case
+https://www.verdictum.in/supreme-court/2026-insc-1067-mulla-afroz-v-union-of-india-1623035
+
+[Source Link](https://t.me/verdictumlegalupdates/29395)
+
+---
+
+### 2026-09-30T05:03:05+00:00
+Deprived Court Of Timely Assistance: Allahabad High Court Imposes ₹1 Lakh Cost On State For 30 Years Delay In Filing Counter Affidavit
+https://www.verdictum.in/allahabad-high-court/uma-kant-tripathi-v-cm-bahraich-coop-bank-ltd-2026ahc-lko67510-state-responsibility-lapse-1623032
+
+[Source Link](https://t.me/verdictumlegalupdates/29394)
+
+---
+
+### 2026-09-30T04:32:54+00:00
+Gujarat High Court Considers Deceased Contractor’s Guinness Record For Lifting Cement Bag With Teeth, Enhances Accident Compensation
+https://www.verdictum.in/gujarat-high-court/umaba-anirudhhsinh-jadeja-others-v-shambhubhai-gangabhai-jaru-others-1622999
+
+[Source Link](https://t.me/verdictumlegalupdates/29393)
 
 ---
 
@@ -137,30 +161,6 @@ Supreme Court Refuses to Stay Rajasthan Cricket Association Elections; Directs R
 https://www.verdictum.in/supreme-court/rajasthan-cricket-association-election-stayed-1622973
 
 [Source Link](https://t.me/verdictumlegalupdates/29376)
-
----
-
-### 2026-09-29T07:32:50+00:00
-Supreme Court Refuses To Entertain PIL Seeking Law & Guidelines To Curb Ragging In Schools & Universities
-https://www.verdictum.in/supreme-court/pil-seeking-law-guidelines-to-curb-ragging-in-schools-universities-1622971
-
-[Source Link](https://t.me/verdictumlegalupdates/29375)
-
----
-
-### 2026-09-29T07:02:49+00:00
-Rice Bran Oil And De-Oiled Rice Bran Are Manufactured Products, Not "Agricultural Produce": Calcutta High Court Quashes Market Fee Levy
-https://www.verdictum.in/calcutta-high-court/sethia-oil-industries-ltd-and-another-v-state-of-west-bengal-and-others-1622967
-
-[Source Link](https://t.me/verdictumlegalupdates/29374)
-
----
-
-### 2026-09-29T06:32:28+00:00
-Non-Intentional Mistake: Kerala High Court Quashes Criminal Case Against Man Accused Of Holding Indian National Flag With Saffron Down
-https://www.verdictum.in/kerala-high-court/mohammed-kasim-hk-v-union-territory-of-lakshadweep-2026ker74369-national-flag-constitution-1622961
-
-[Source Link](https://t.me/verdictumlegalupdates/29373)
 
 ---
 
