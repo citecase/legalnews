@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-29T15:32:28+00:00*
+*Last Updated: 2026-09-30T09:47:08+00:00*
 
 ---
 
-### 2026-09-29T15:32:28+00:00
-Accused Entitled To Seek Production Of Prosecution's Unrelied Documents At Appropriate Stage In Trial : Supreme Court
-https://www.livelaw.in/supreme-court/accused-entitled-to-seek-production-of-prosecutions-unrelied-documents-at-appropriate-stage-in-trial-supreme-court-552352
+### 2026-09-30T09:47:08+00:00
+Supreme Court Special Bench Criticises Manner Of CAPF Contempt Case Listing; Centre Says Request Was Made Before CJI
+https://www.livelaw.in/top-stories/supreme-court-special-bench-criticises-manner-of-capf-contempt-case-listing-centre-says-request-was-made-before-cji-552469
 
-[Read on Telegram](https://t.me/livelawindia/121117)
-
----
-### 2026-09-29T15:33:28+00:00
-2026 LiveLaw (SC) 1001 | Central Bureau of Investigation Versus Anil Dixit
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1001-central-bureau-of-investigation-versus-anil-dixit-552353
-
-[Read on Telegram](https://t.me/livelawindia/121118)
+[Read on Telegram](https://t.me/livelawindia/121191)
 
 ---
-### 2026-09-29T15:37:48+00:00
-Antilia Bomb Scare Case: Special Court Criticises NIA For 'Incompetence', Questions Why Statements Of Ambani Family Not Recorded
-https://www.livelaw.in/news-updates/antilia-bomb-scare-case-special-court-criticises-nia-for-incompetence-questions-why-statements-of-ambani-family-not-recorded-552354
+### 2026-09-30T09:52:38+00:00
+Reviewing Officer Must Give Specific Reasons For Departing From Reporting Officer's APAR Assessment: Meghalaya High Court
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-reviewing-officer-specific-reasons-departing-reporting-officer-apar-assessment-552396
 
-[Read on Telegram](https://t.me/livelawindia/121119)
-
----
-### 2026-09-29T15:43:48+00:00
-Hearing Of Accused Necessary When Cognizance Taken After BNSS Came Into Force, Though Complaint Filed Earlier: Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-accused-heard-before-taking-cognizance-process-issued-after-bnss-came-force-552355
-
-[Read on Telegram](https://t.me/livelawindia/121120)
+[Read on Telegram](https://t.me/livelawindia/121192)
 
 ---
-### 2026-09-29T15:44:48+00:00
-2026 LiveLaw (SC) 1002 | Umar and Anr v State of Uttar Pradesh & Anr
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1002-umar-and-anr-v-state-of-uttar-pradesh-anr-552356
+### 2026-09-30T09:56:18+00:00
+Twisha Sharma Case: MP High Court Directs Giribala Singh To Amend Bail Plea After CBI Drops Dowry Death Charge, Adds Suicide Abetment
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/twisha-sharma-death-giribala-singh-amend-bail-cbi-drops-dowry-charge-add-suicide-abetment-552471
 
-[Read on Telegram](https://t.me/livelawindia/121121)
-
----
-### 2026-09-29T15:45:48+00:00
-Kerala High Court Rule Committee Decided To Delete Rule On “Tom-Tom” Proclamation During Property Attachments: HC PIO
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-tom-tom-proclamation-property-attachment-552357
-
-[Read on Telegram](https://t.me/livelawindia/121122)
+[Read on Telegram](https://t.me/livelawindia/121193)
 
 ---
-### 2026-09-29T16:05:38+00:00
-NLU Prayagraj Caste Discrimination Case: High Court Chief Justice Recuses From Hearing Professor's Appeal Against Single Judge Order
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-chief-justice-recuses-nlu-prayagraj-caste-discrimination-appeal-552359
+### 2026-09-30T09:59:18+00:00
+Journalist Ajit Anjum Seeks To Intervene In Supreme Court Reference On Legislative Privileges
+https://www.livelaw.in/top-stories/supreme-court-ajit-anjum-journalist-intervention-in-reference-on-legislative-privileges-seeks-standards-on-fair-criticism-of-legislative-institutions-552473
 
-[Read on Telegram](https://t.me/livelawindia/121123)
-
----
-### 2026-09-29T16:48:48+00:00
-LiveLaw High Courts Daily Highlights: September 29, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-29-2026-552360
-
-[Read on Telegram](https://t.me/livelawindia/121124)
+[Read on Telegram](https://t.me/livelawindia/121194)
 
 ---
-### 2026-09-29T17:27:39+00:00
-Supreme Court Daily Round-Up : September 29, 2026
-https://www.livelaw.in/round-ups/supreme-court-daily-round-up-september-29-2026-552358
+### 2026-09-30T10:07:58+00:00
+Delhi High Court Seeks Centre's Stand On PIL For Independent Audit Of IRCTC Reservation System
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-seeks-centres-stand-on-pil-for-independent-audit-of-irctc-reservation-system-552472
 
-[Read on Telegram](https://t.me/livelawindia/121125)
-
----
-### 2026-09-29T19:12:35+00:00
-Happiest Minds Technologies, ITC Infotech Enter Merger Framework; Khaitan & Co Advises on Transaction
-https://www.livelaw.in/law-firms/deals/happiest-minds-technologies-itc-infotech-enter-merger-framework-khaitan-co-advises-on-transaction-552365
-
-[Read on Telegram](https://t.me/livelawindia/121126)
+[Read on Telegram](https://t.me/livelawindia/121195)
 
 ---
-### 2026-09-30T02:32:34+00:00
-Sabarimala Melsanthi Selection: Kerala High Court Appoints Former Judge VG Arun As Observer, Seeks Video Recording Of Proceedings
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-justice-v-g-arun-observer-selection-melshanthi-sabarimala-malikappuram-temples-552361
+### 2026-09-30T10:23:58+00:00
+Freedom Of Speech Does Not Protect Defamatory, Abusive Or Malicious Social Media Content: Tripura High Court
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-quash-fir-against-content-creator-552479
 
-[Read on Telegram](https://t.me/livelawindia/121127)
-
----
-### 2026-09-30T03:01:04+00:00
-Kerala Court Issues Contempt Notice To MLA Najeeb Kanthapuram For Allegedly Obstructing Advocate Commissioner
-https://www.livelaw.in/news-updates/kerala-court-mla-najeeb-kanthapuram-contempt-notice-552366
-
-[Read on Telegram](https://t.me/livelawindia/121128)
+[Read on Telegram](https://t.me/livelawindia/121196)
 
 ---
-### 2026-09-30T03:02:24+00:00
-Karnataka High Court Constitutes Three-Judge Committee To Examine Feasibility Of Circuit, Permanent Benches Across 8 Regions
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-constitutes-three-judge-committee-examine-feasibility-circuit-benches-552362
+### 2026-09-30T10:27:38+00:00
+'National Waste': Kerala High Court Says PG Doctors Can't Be Left Idle Without Posting; 1-Year Bond Runs From Result Date
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-senior-residency-doctors-552481
 
-[Read on Telegram](https://t.me/livelawindia/121129)
-
----
-### 2026-09-30T03:32:24+00:00
-Electronic Records Alone Can't Replace Examination, Cross-Examination In Departmental Inquiry: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-quashes-bank-employee-dismissal-mandatory-disciplinary-inquiry-stages-dispensed-552363
-
-[Read on Telegram](https://t.me/livelawindia/121130)
+[Read on Telegram](https://t.me/livelawindia/121197)
 
 ---
-### 2026-09-30T04:02:34+00:00
-Producing Arrested Person In Court Within 24 Hours Not Sufficient; Accused Must Be Produced Before Nearest Magistrate: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/producing-arresteee-within-24-hours-not-sufficient-produce-before-nearest-magistrate-552364
+### 2026-09-30T10:33:38+00:00
+Calcutta High Court Directs Police Not To Permit Durga Puja At Residential Premises Without Flat Owners' Consent
+https://www.livelaw.in/high-court/calcutta-high-court/durga-puja-cannot-be-organised-on-private-property-without-owners-permission-calcutta-high-court-552484
 
-[Read on Telegram](https://t.me/livelawindia/121131)
-
----
-### 2026-09-30T04:20:14+00:00
-Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
-https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-552375
-
-[Read on Telegram](https://t.me/livelawindia/121132)
+[Read on Telegram](https://t.me/livelawindia/121198)
 
 ---
-### 2026-09-30T04:20:24+00:00
-Before Shifting Minor's Custody Over Disrupted Schooling, Court Must Explore If Studies Can Continue Without Changing Custody: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-shifting-minor-custody-disrupted-schooling-552374
+### 2026-09-30T10:42:38+00:00
+Budget Constraints Can't Justify Indefinite Withholding Of Admitted Dues: MP High Court Orders ₹5 Lakh Payment
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-budgetary-constraints-cannot-justify-withholding-payment-of-completed-work-552486
 
-[Read on Telegram](https://t.me/livelawindia/121133)
-
----
-### 2026-09-30T04:32:44+00:00
-Fine Print Behind India's Election Vehicle Requisitions
-https://www.livelaw.in/lawschool/articles/fine-print-behind-india-election-vehicle-requisitions-552350
-
-[Read on Telegram](https://t.me/livelawindia/121134)
+[Read on Telegram](https://t.me/livelawindia/121199)
 
 ---
-### 2026-09-30T04:42:24+00:00
-LiveLaw Breaking News Alerts: 30 September 2026
-https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts-30-september-2026-552383
+### 2026-09-30T10:43:08+00:00
+Calcutta High Court Refuses To Quash FIR Over Alleged Fake SC Certificate, Says No Express Bar On Police Complaint
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-hc-refuses-to-quash-fir-over-alleged-fake-sc-certificate-says-no-express-bar-on-police-complaint-552488
 
-[Read on Telegram](https://t.me/livelawindia/121135)
+[Read on Telegram](https://t.me/livelawindia/121200)
 
 ---
-### 2026-09-30T04:46:44+00:00
-Muslim Marriage No Defence To POCSO Act In Case Of Sex With Minor Wife: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/muslim-marriage-no-defence-to-pocso-act-in-case-of-sex-with-minor-wife-delhi-high-court-552385
+### 2026-09-30T11:06:08+00:00
+High Court Seeks Delhi Govt Response On Current Vacancies Of Post Graduate Teachers' In Govt Schools
+https://www.livelaw.in/high-court/delhi-high-court/high-court-seeks-delhi-govt-response-on-current-vacancies-of-post-graduate-teachers-in-govt-schools-552494
 
-[Read on Telegram](https://t.me/livelawindia/121136)
+[Read on Telegram](https://t.me/livelawindia/121201)
+
+---
+### 2026-09-30T11:09:48+00:00
+Supreme Court Rules Out Complete Firecracker Ban, Proposes Approach Balancing Sentiments & Health
+https://www.livelaw.in/top-stories/supreme-court-rules-out-complete-firecracker-ban-proposes-approach-balancing-sentiments-health-552499
+
+[Read on Telegram](https://t.me/livelawindia/121202)
+
+---
+### 2026-09-30T11:09:58+00:00
+Calcutta High Court Directs Medical Exam Of BSF Aspirant's Burn Mark From Tattoo Removal, Cites Lack Of Guidelines
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-directs-medical-examination-of-bsf-aspirants-burn-mark-from-tattoo-removal-cites-lack-of-guidelines-552500
+
+[Read on Telegram](https://t.me/livelawindia/121203)
+
+---
+### 2026-09-30T11:17:28+00:00
+Borrowing Department Can't Take Disciplinary Action After Employee Is Repatriated To Parent Department: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/employee-repatriated-borrowing-department-cant-initiate-disciplinary-action-552496
+
+[Read on Telegram](https://t.me/livelawindia/121204)
+
+---
+### 2026-09-30T11:27:43+00:00
+Karnataka High Court Seeks Chief Secretary's Affidavit On Timeline To Establish Civil Service Board As Per 2013 SC Directions
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-civil-service-board-state-government-552501
+
+[Read on Telegram](https://t.me/livelawindia/121205)
+
+---
+### 2026-09-30T11:29:23+00:00
+Delhi High Court Seeks Centre's Stand On PIL Challenging Mandatory Aadhaar Authentication For LPG Refills
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-seeks-centres-stand-on-pil-challenging-mandatory-aadhaar-authentication-for-lpg-refills-552508
+
+[Read on Telegram](https://t.me/livelawindia/121206)
+
+---
+### 2026-09-30T11:54:23+00:00
+Judges Must Avoid Personal Views On Morality While Hearing Bail Pleas Or Criminal Trials: Supreme Court
+https://www.livelaw.in/supreme-court/judges-must-avoid-personal-views-on-morality-while-hearing-bail-pleas-or-criminal-trials-supreme-court-552512
+
+[Read on Telegram](https://t.me/livelawindia/121207)
+
+---
+### 2026-09-30T11:55:43+00:00
+2026 LiveLaw (SC) 1003 |  KANHA @ KANHAIYA SINGH VERSUS THE STATE OF MADHYA PRADESH & ANR.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1003-kanha-kanhaiya-singh-versus-the-state-of-madhya-pradesh-anr-552513
+
+[Read on Telegram](https://t.me/livelawindia/121208)
+
+---
+### 2026-09-30T12:04:03+00:00
+Can't Order CBI Probe Merely Because Accused Is Excise Officer: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-cbi-inquiry-not-warranted-merely-because-accused-is-excise-officer-552518
+
+[Read on Telegram](https://t.me/livelawindia/121209)
+
+---
+### 2026-09-30T12:06:03+00:00
+Kerala Court Awards Life Sentence To Woman Who Strangled Newborn
+https://www.livelaw.in/news-updates/kerala-court-woman-strangled-newborn-552519
+
+[Read on Telegram](https://t.me/livelawindia/121210)
 
 ---
