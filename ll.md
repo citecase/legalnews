@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-29T13:18:15+00:00*
+*Last Updated: 2026-09-29T15:32:28+00:00*
 
 ---
 
-### 2026-09-29T13:18:15+00:00
-Selection Committee Can't Use Interview As 'Veto' To Declare Candidate Unsuitable When No Minimum Marks Prescribed: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/selection-committee-interview-cant-declare-candidate-unsuitable-no-minimum-marks-552325
-
-[Read on Telegram](https://t.me/livelawindia/121107)
-
----
-### 2026-09-29T13:18:25+00:00
-O. 2 R. 2 CPC | Omitted Relief Remains Barred Despite Order 23 Liberty To File Fresh Suit : Supreme Court
-https://www.livelaw.in/supreme-court/o-2-r-2-cpc-omitted-relief-remains-barred-despite-order-23-liberty-to-file-fresh-suit-supreme-court-552332
-
-[Read on Telegram](https://t.me/livelawindia/121108)
-
----
-### 2026-09-29T13:32:45+00:00
-'Let Children Of Convict Not Lose Their Mother': P&H High Court Commutes Woman's Death Penalty For Burying Toddler Alive
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-commutes-womens-death-penalty-who-buried-toddler-alive-552328
-
-[Read on Telegram](https://t.me/livelawindia/121109)
-
----
-### 2026-09-29T14:07:55+00:00
-Preventive Detention Can't Be Solely Based On Custodial Confession: Supreme Court
-https://www.livelaw.in/top-stories/preventive-detention-cant-be-solely-based-on-custodial-confession-supreme-court-552340
-
-[Read on Telegram](https://t.me/livelawindia/121110)
-
----
-### 2026-09-29T14:10:56+00:00
-2026 LiveLaw (SC) 999 | Mulla Afroz v. Union of India & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-999-mulla-afroz-v-union-of-india-ors-552341
-
-[Read on Telegram](https://t.me/livelawindia/121111)
-
----
-### 2026-09-29T14:13:56+00:00
-2026 LiveLaw (SC) 1000 | Bombay Garage Ahmedabad Limited & Ors. Versus J P Iscon Private Ltd. & Anr.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1000-bombay-garage-ahmedabad-limited-ors-versus-j-p-iscon-private-ltd-anr-552342
-
-[Read on Telegram](https://t.me/livelawindia/121112)
-
----
-### 2026-09-29T14:16:36+00:00
-BREAKING| Plea In Supreme Court Seeks Recall Of CEC Law Verdict Citing Justice SC Sharma's Son's Association With ECI
-https://www.livelaw.in/top-stories/plea-in-supreme-court-seeks-recall-of-cec-law-verdict-citing-justice-sc-sharmas-sons-association-with-eci-552343
-
-[Read on Telegram](https://t.me/livelawindia/121113)
-
----
-### 2026-09-29T14:23:57+00:00
-LiveLaw Daily| Overinflated medicines| Vikas Divyakirti| Punjab Election Violence & more
-https://www.livelaw.in/podcast/national-security-act-sambhal-dhrishti-ias-news-calt-india-judiciary-552345
-
-[Read on Telegram](https://t.me/livelawindia/121114)
-
----
-### 2026-09-29T14:32:17+00:00
-Cobalt, Continental Shelf, And Cul De Sac: Unravelling Afanasi Nikitin Impasse
-https://www.livelaw.in/articles/cobalt-continental-shelf-cul-de-sac-unravelling-afanasi-nikitin-impasse-552151
-
-[Read on Telegram](https://t.me/livelawindia/121115)
-
----
-### 2026-09-29T15:09:08+00:00
-Can A Dowry Death Case Be Quashed Merely Because Woman Died Of Heart Attack? Allahabad High Court Answers
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-dowry-death-quash-woman-died-heart-attack-552351
-
-[Read on Telegram](https://t.me/livelawindia/121116)
-
----
 ### 2026-09-29T15:32:28+00:00
 Accused Entitled To Seek Production Of Prosecution's Unrelied Documents At Appropriate Stage In Trial : Supreme Court
 https://www.livelaw.in/supreme-court/accused-entitled-to-seek-production-of-prosecutions-unrelied-documents-at-appropriate-stage-in-trial-supreme-court-552352
@@ -142,5 +72,75 @@ Happiest Minds Technologies, ITC Infotech Enter Merger Framework; Khaitan & Co A
 https://www.livelaw.in/law-firms/deals/happiest-minds-technologies-itc-infotech-enter-merger-framework-khaitan-co-advises-on-transaction-552365
 
 [Read on Telegram](https://t.me/livelawindia/121126)
+
+---
+### 2026-09-30T02:32:34+00:00
+Sabarimala Melsanthi Selection: Kerala High Court Appoints Former Judge VG Arun As Observer, Seeks Video Recording Of Proceedings
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-justice-v-g-arun-observer-selection-melshanthi-sabarimala-malikappuram-temples-552361
+
+[Read on Telegram](https://t.me/livelawindia/121127)
+
+---
+### 2026-09-30T03:01:04+00:00
+Kerala Court Issues Contempt Notice To MLA Najeeb Kanthapuram For Allegedly Obstructing Advocate Commissioner
+https://www.livelaw.in/news-updates/kerala-court-mla-najeeb-kanthapuram-contempt-notice-552366
+
+[Read on Telegram](https://t.me/livelawindia/121128)
+
+---
+### 2026-09-30T03:02:24+00:00
+Karnataka High Court Constitutes Three-Judge Committee To Examine Feasibility Of Circuit, Permanent Benches Across 8 Regions
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-constitutes-three-judge-committee-examine-feasibility-circuit-benches-552362
+
+[Read on Telegram](https://t.me/livelawindia/121129)
+
+---
+### 2026-09-30T03:32:24+00:00
+Electronic Records Alone Can't Replace Examination, Cross-Examination In Departmental Inquiry: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-quashes-bank-employee-dismissal-mandatory-disciplinary-inquiry-stages-dispensed-552363
+
+[Read on Telegram](https://t.me/livelawindia/121130)
+
+---
+### 2026-09-30T04:02:34+00:00
+Producing Arrested Person In Court Within 24 Hours Not Sufficient; Accused Must Be Produced Before Nearest Magistrate: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/producing-arresteee-within-24-hours-not-sufficient-produce-before-nearest-magistrate-552364
+
+[Read on Telegram](https://t.me/livelawindia/121131)
+
+---
+### 2026-09-30T04:20:14+00:00
+Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
+https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-552375
+
+[Read on Telegram](https://t.me/livelawindia/121132)
+
+---
+### 2026-09-30T04:20:24+00:00
+Before Shifting Minor's Custody Over Disrupted Schooling, Court Must Explore If Studies Can Continue Without Changing Custody: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-shifting-minor-custody-disrupted-schooling-552374
+
+[Read on Telegram](https://t.me/livelawindia/121133)
+
+---
+### 2026-09-30T04:32:44+00:00
+Fine Print Behind India's Election Vehicle Requisitions
+https://www.livelaw.in/lawschool/articles/fine-print-behind-india-election-vehicle-requisitions-552350
+
+[Read on Telegram](https://t.me/livelawindia/121134)
+
+---
+### 2026-09-30T04:42:24+00:00
+LiveLaw Breaking News Alerts: 30 September 2026
+https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts-30-september-2026-552383
+
+[Read on Telegram](https://t.me/livelawindia/121135)
+
+---
+### 2026-09-30T04:46:44+00:00
+Muslim Marriage No Defence To POCSO Act In Case Of Sex With Minor Wife: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/muslim-marriage-no-defence-to-pocso-act-in-case-of-sex-with-minor-wife-delhi-high-court-552385
+
+[Read on Telegram](https://t.me/livelawindia/121136)
 
 ---
