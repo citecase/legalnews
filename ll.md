@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-01T10:16:25+00:00*
+*Last Updated: 2026-10-01T13:18:38+00:00*
 
 ---
 
-### 2026-10-01T10:16:25+00:00
-Consumer Law Monthly Digest: September 2026
-https://www.livelaw.in/consumer-cases/consumer-law-monthly-digest-september-2026-552670
+### 2026-10-01T13:18:38+00:00
+S. 313 CrPC | Statement Of Accused Cannot Be Used To Complete An Unestablished Chain Of Circumstances : Supreme Court
+https://www.livelaw.in/supreme-court/s-313-crpc-statement-of-accused-cannot-be-used-to-complete-an-unestablished-chain-of-circumstances-supreme-court-552717
 
-[Read on Telegram](https://t.me/livelawindia/121302)
-
----
-### 2026-10-01T10:22:45+00:00
-'Pilgrims Offering Prayers At Mosque Inside Kolkata Airport Presents Security Risk': State Tells Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-denies-interim-permission-to-offer-prayers-at-mosque-inside-kolkata-airport-state-cites-security-risks-552671
-
-[Read on Telegram](https://t.me/livelawindia/121303)
+[Read on Telegram](https://t.me/livelawindia/121324)
 
 ---
-### 2026-10-01T10:31:05+00:00
-Minority Aided Institutions Can Appoint Teachers To Sanctioned Vacant Posts Without Prior Permission : Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/minority-aided-institutions-can-appoint-teachers-to-sanctioned-vacant-posts-without-prior-permission-madras-hc-552672
+### 2026-10-01T13:19:58+00:00
+2026 LiveLaw (SC) 1009 | SANTOSH GURUNG VERSUS STATE OF SIKKIM
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1009-santosh-gurung-versus-state-of-sikkim-552719
 
-[Read on Telegram](https://t.me/livelawindia/121304)
-
----
-### 2026-10-01T10:38:45+00:00
-Karnataka High Court Refuses To Entertain Priyank Kharge, Haris Nalapad's Pleas Against RSS Defamation Case; Directs Them To Sessions Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-directs-priyank-kharge-nalapad-approach-sessions-court-defamation-case-552674
-
-[Read on Telegram](https://t.me/livelawindia/121305)
+[Read on Telegram](https://t.me/livelawindia/121325)
 
 ---
-### 2026-10-01T10:49:15+00:00
-MPSLSA Organises One-Day Programme For Children With Hearing And Speech Impairment
-https://www.livelaw.in/news-updates/mpslsa-organises-one-day-programme-for-children-with-hearing-and-speech-impairment-552679
+### 2026-10-01T13:21:58+00:00
+2026 LiveLaw (SC) 1010 | Seema Joshi v. Bar Council of India and Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1010-seema-joshi-v-bar-council-of-india-and-ors-552721
 
-[Read on Telegram](https://t.me/livelawindia/121306)
-
----
-### 2026-10-01T10:52:15+00:00
-'Consensual' Relationship Not Conclusive Entitlement To Anticipatory Bail In False Promise To Marry Case U/S 69 BNS: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-claim-of-consensual-relationship-cannot-entitle-anticipatory-bail-section-69-bns-552676
-
-[Read on Telegram](https://t.me/livelawindia/121307)
+[Read on Telegram](https://t.me/livelawindia/121326)
 
 ---
-### 2026-10-01T10:56:35+00:00
-Bombay High Court Protects Samantha Ruth Prabhu's Personality Rights, Says Social Media Platforms Must Exercise Due Diligence
-https://www.livelaw.in/high-court/bombay-high-court/samantha-ruth-prabhu-personality-rights-protected-social-media-due-dilligence-552682
+### 2026-10-01T13:22:38+00:00
+Motor Accident Claims | Posthumously Filed Income Tax Returns Can Be Considered For Assessing Deceased's Income: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-accident-compensation-income-tax-return-posthumously-552722
 
-[Read on Telegram](https://t.me/livelawindia/121308)
-
----
-### 2026-10-01T11:03:06+00:00
-DNA Test Of Child Can't Be Ordered Routinely Without Prima Facie Proof Of Non-Access Between Spouses: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/paternity-dispute-presumption-of-legitimacy-section-112-evidence-act-552678
-
-[Read on Telegram](https://t.me/livelawindia/121309)
+[Read on Telegram](https://t.me/livelawindia/121327)
 
 ---
-### 2026-10-01T11:03:36+00:00
-Parul University Hosts 4th Edition Of 'Samvidhaan Pe Charcha' With Judges, Senior Advocates
-https://www.livelaw.in/lawschool/news/parul-university-hosts-4th-edition-of-samvidhaan-pe-charcha-with-judges-senior-advocates-552683
+### 2026-10-01T13:25:18+00:00
+2026 LiveLaw (SC) 1011 | MIHIRA SOOD Vs THE BAR COUNCIL OF INDIA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1011-mihira-sood-vs-the-bar-council-of-india-552723
 
-[Read on Telegram](https://t.me/livelawindia/121310)
-
----
-### 2026-10-01T11:09:56+00:00
-Impound Vehicles With Unpaid E-Challans, Freeze Online Services: Supreme Court Orders, Notes Over ₹23,000 Crore Traffic Fines Pending
-https://www.livelaw.in/top-stories/impound-vehicles-with-unpaid-e-challans-freeze-online-services-supreme-court-orders-notes-over-23000-crore-traffic-fines-pending-552686
-
-[Read on Telegram](https://t.me/livelawindia/121311)
+[Read on Telegram](https://t.me/livelawindia/121328)
 
 ---
-### 2026-10-01T11:10:56+00:00
-2026 LiveLaw (SC) 1007 | S.RAJASEEKARAN VERSUS UNION OF INDIA AND ORS. & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1007-srajaseekaran-versus-union-of-india-and-ors-ors-552687
+### 2026-10-01T13:28:38+00:00
+Calcutta High Court Weekly Round-Up: September 14 To September 21, 2026
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-weekly-round-up-september-14-to-september-21-2026-552725
 
-[Read on Telegram](https://t.me/livelawindia/121312)
-
----
-### 2026-10-01T11:11:36+00:00
-Khaitan & Co Advises India Resurgence Fund On Acquisition Of Majority Stake In Fine Edge Engineering
-https://www.livelaw.in/law-firms/deals/khaitan-co-advises-india-resurgence-fund-on-acquisition-of-majority-stake-in-fine-edge-engineering-552688
-
-[Read on Telegram](https://t.me/livelawindia/121313)
+[Read on Telegram](https://t.me/livelawindia/121329)
 
 ---
-### 2026-10-01T11:12:36+00:00
-Elected Panchayat Member Has No Enforceable Right To Seek Departmental Action Against Employee: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-elected-panchayat-member-cannot-seek-departmental-action-against-employee-552680
+### 2026-10-01T13:38:18+00:00
+Calcutta High Court Orders SC/ST Act Probe Into Facebook Posts Allegedly Targeting Dalit Man, Says 'Public View' Extends Online
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-orders-scst-act-probe-into-facebook-posts-allegedly-targeting-dalit-man-says-public-view-extends-online-552727
 
-[Read on Telegram](https://t.me/livelawindia/121314)
-
----
-### 2026-10-01T11:18:56+00:00
-State Vicariously Liable For Negligent Acts Of Government Hospital Employees Resulting In Loss Of Eyesight: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/state-vicariously-liable-for-negligent-acts-of-government-hospital-employees-resulting-in-loss-of-eyesight-calcutta-high-court-552689
-
-[Read on Telegram](https://t.me/livelawindia/121315)
+[Read on Telegram](https://t.me/livelawindia/121330)
 
 ---
-### 2026-10-01T11:22:16+00:00
-Kerala High Court Asks Assembly Speaker To Take Steps To Decide On MLA Mani C Kappan's Disqualification
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-mani-c-kappan-disqualification-552690
+### 2026-10-01T13:45:18+00:00
+Supreme Court Stays Karnataka HC Directions Constituting SIT, Ordering De Novo Probe Into KPSC Recruitment Scam
+https://www.livelaw.in/top-stories/supreme-court-stays-karnataka-hc-directions-constituting-sit-ordering-de-novo-probe-into-kpsc-recruitment-scam-552730
 
-[Read on Telegram](https://t.me/livelawindia/121316)
-
----
-### 2026-10-01T11:22:36+00:00
-Mere Possession Of Visa Does Not Give Foreigner Unconditional Right To Enter India: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/visa-doesnt-give-foreigner-unconditional-right-to-enter-india-552685
-
-[Read on Telegram](https://t.me/livelawindia/121317)
+[Read on Telegram](https://t.me/livelawindia/121331)
 
 ---
-### 2026-10-01T11:29:16+00:00
-Allahabad High Court Imposes ₹1 Lakh Costs On UP Govt For Filing Counter Affidavit After Over 3 Decades In A Service Matter
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-1-lakh-costs-up-govt-counter-affidavit-three-decades-552692
+### 2026-10-01T13:50:38+00:00
+Calcutta High Court Weekly Round-Up: September 21 To September 27. 2026
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-weekly-round-up-september-21-to-september-27-2026-552731
 
-[Read on Telegram](https://t.me/livelawindia/121318)
-
----
-### 2026-10-01T11:32:16+00:00
-Delhi High Court Refuses To Stay Conviction Of Bihar MLA Raju Kumar Singh In Celebratory Firing Death Case
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-to-stay-conviction-of-bihar-mla-raju-kumar-singh-in-celebratory-firing-death-case-552695
-
-[Read on Telegram](https://t.me/livelawindia/121319)
+[Read on Telegram](https://t.me/livelawindia/121332)
 
 ---
-### 2026-10-01T11:55:46+00:00
-'One Nation, One Election' Committee's Proposed Meeting With Supreme Court Judges Raises Questions
-https://www.livelaw.in/top-stories/one-nation-one-election-committees-proposed-meeting-with-supreme-court-judges-raises-questions-552701
+### 2026-10-01T14:09:28+00:00
+Supreme Court Judges Not Meeting 'One Nation One Election' Committee
+https://www.livelaw.in/top-stories/supreme-court-judges-not-meeting-one-nation-one-election-committee-552737
 
-[Read on Telegram](https://t.me/livelawindia/121320)
+[Read on Telegram](https://t.me/livelawindia/121333)
 
 ---
-### 2026-10-01T12:46:57+00:00
-'Cannot Take Law Into Their Hands': Calcutta High Court Questions State Over Bulldozer Use By Private Parties To Dispossess Shopkeepers
-https://www.livelaw.in/high-court/calcutta-high-court/cannot-take-law-into-hands-calcutta-high-court-questions-state-over-bulldozer-use-by-private-parties-to-dispossess-shopkeepers-552708
+### 2026-10-01T14:20:28+00:00
+Bar Council Has No Power To Suspend Advocates At Interim Stage Pending Disciplinary Inquiry: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/bar-council-cannot-suspend-advocates-pending-disciplinary-inquiry-allahabad-hc-552740
 
-[Read on Telegram](https://t.me/livelawindia/121321)
+[Read on Telegram](https://t.me/livelawindia/121334)
+
+---
+### 2026-10-01T14:32:08+00:00
+“Delete for Everyone” As Revocation: WhatsApp Offers And Recoverable Messages In Light Of Indian Contract Act
+https://www.livelaw.in/articles/whatsapp-offers-recoverable-messages-indian-contract-act1872-552603
+
+[Read on Telegram](https://t.me/livelawindia/121335)
+
+---
+### 2026-10-01T14:49:28+00:00
+'Noise Pollution Becoming A Menace': Allahabad High Court Registers Suo Motu PIL Over Schoolgirl's Death Amid Alleged Loud DJ Sound
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-noise-pollution-menace-suo-motu-pil-schoolgirl-death-dj-sound-552745
+
+[Read on Telegram](https://t.me/livelawindia/121336)
+
+---
+### 2026-10-01T15:19:19+00:00
+Every Insensitive Or Objectionable Act In Matrimonial Home Not Cruelty: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/every-insensitive-or-objectionable-act-in-matrimonial-home-not-cruelty-552751
+
+[Read on Telegram](https://t.me/livelawindia/121337)
+
+---
+### 2026-10-01T15:22:59+00:00
+Jurist Bimal Patel Sworn-In As Judge Of International Tribunal For The Law Of Sea
+https://www.livelaw.in/news-updates/jurist-bimal-patel-oath-judge-of-international-tribunal-for-the-law-of-the-sea-552754
+
+[Read on Telegram](https://t.me/livelawindia/121338)
+
+---
+### 2026-10-01T15:31:39+00:00
+Goa SIR: Bombay High Questions ECI Over Automated Rejection Of Form 8
+https://www.livelaw.in/high-court/bombay-high-court/goa-sir-bombay-high-questions-eci-over-automated-rejection-of-form-8-552757
+
+[Read on Telegram](https://t.me/livelawindia/121339)
+
+---
+### 2026-10-01T16:07:09+00:00
+That Trafficking Victim Is A Bangladeshi Immigrant Is No Defence : Bombay High Court Upholds Brothel Owner's Conviction
+https://www.livelaw.in/high-court/bombay-high-court/that-trafficking-victim-is-a-bangladeshi-immigrant-is-no-defence-bombay-high-court-upholds-brothel-owners-conviction-552766
+
+[Read on Telegram](https://t.me/livelawindia/121340)
+
+---
+### 2026-10-01T16:20:09+00:00
+'Offends Secularism & Fraternity' : Buddhist Activist Moves Supreme Court Challenging Centre's Mandate On Six-Stanza 'Vande Mataram'
+https://www.livelaw.in/top-stories/offends-secularism-fraternity-buddhist-activist-moves-supreme-court-challenging-centres-mandate-on-six-stanza-vande-mataram-552768
+
+[Read on Telegram](https://t.me/livelawindia/121341)
+
+---
+### 2026-10-01T16:46:19+00:00
+NEET-PG 2026: Plea In Supreme Court Seeks Disclosure Of Actual Questions, Options And Correct Answers To Candidates
+https://www.livelaw.in/top-stories/neet-pg-2026-plea-in-supreme-court-seeks-disclosure-of-actual-questions-options-and-correct-answers-to-candidates-552776
+
+[Read on Telegram](https://t.me/livelawindia/121342)
+
+---
+### 2026-10-01T17:32:30+00:00
+LiveLaw High Courts Daily Highlights: October 01, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-01-2026-552769
+
+[Read on Telegram](https://t.me/livelawindia/121343)
 
 ---
