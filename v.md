@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-01T13:12:15+00:00*
+*Last Updated: 2026-10-01T15:53:18+00:00*
+
+---
+
+### 2026-10-01T15:53:18+00:00
+Legal Expert Vacancy At Urban Development Directorate Uttarakhand
+https://www.verdictum.in/job-updates/urban-development-directorate-1623152
+
+[Source Link](https://t.me/verdictumlegalupdates/29434)
+
+---
+
+### 2026-10-01T15:12:18+00:00
+All Persons Irrespective Of Caste, Creed Or Colour Can Participate In Kumbabishekam: Madras High Court Orders Police Protection For Temple Function
+https://www.verdictum.in/madras-high-court/mahendran-v-the-superintendent-of-police-participate-kumbabishekam-function-police-protection-1623159
+
+[Source Link](https://t.me/verdictumlegalupdates/29433)
+
+---
+
+### 2026-10-01T14:32:37+00:00
+Incomplete Chain Of Circumstance: Supreme Court Acquits Man Accused Of Rape And Murder Of Minor Girl
+https://www.verdictum.in/supreme-court/2026-insc-1073-santish-gurung-v-state-of-sikkim-1623158
+
+[Source Link](https://t.me/verdictumlegalupdates/29432)
+
+---
+
+### 2026-10-01T13:52:36+00:00
+Adverse Possession Requires Open & Hostile Intention To Dispossess Owner, Mere Possession Insufficient: Himachal Pradesh High Court
+https://www.verdictum.in/himachal-high-court/state-of-himachal-pradesh-ors-v-prittam-singh-2026hhc41838-adverse-possession-1623151
+
+[Source Link](https://t.me/verdictumlegalupdates/29431)
 
 ---
 
@@ -129,38 +161,6 @@ Mere Wish Of Wife That Husband Should Live As Gharjamai Won’t Constitute Cruel
 https://www.verdictum.in/jharkhand-high-court/a-v-b-2026jhhc28010-db-mere-wish-wife-husband-gharjamai-cruelty-hindu-marriage-act-1623087
 
 [Source Link](https://t.me/verdictumlegalupdates/29415)
-
----
-
-### 2026-09-30T15:02:23+00:00
-Victims In Cases U/s. 376 IPC Or 69 BNS Must Be Permitted To Participate At Every Stage Of Trial Including Bail: Delhi High Court
-https://www.verdictum.in/delhi-high-court/ms-g-v-state-nct-of-delhi-2026dhc8405-victim-complaint-s376-ipc-sec69-bns-bail-1623079
-
-[Source Link](https://t.me/verdictumlegalupdates/29414)
-
----
-
-### 2026-09-30T14:33:02+00:00
-NRI Quota In NEET-UG Counselling Is Unreserved; Candidates Cannot Combine It With OBC Reservation: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/juhi-v-union-of-india-others-2026khc-d14973-db-neet-ug-nri-quota-reservation-1623078
-
-[Source Link](https://t.me/verdictumlegalupdates/29413)
-
----
-
-### 2026-09-30T14:02:41+00:00
-Smuggling Of Bovine Animals Hurts Religious Sentiments:  Jammu & Kashmir And Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/smuggling-bovine-animals-hurts-religious-sentiments-preventive-detention-order-1623077
-
-[Source Link](https://t.me/verdictumlegalupdates/29412)
-
----
-
-### 2026-09-30T13:32:20+00:00
-Delhi High Court Dismisses Plea Alleging Partisan Campaigning By Varsity Staff In DUSU Polls
-https://www.verdictum.in/delhi-high-court/plea-alleging-partisan-campaigning-by-varsity-staff-in-dusu-polls-1623076
-
-[Source Link](https://t.me/verdictumlegalupdates/29411)
 
 ---
 
