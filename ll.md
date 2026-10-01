@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-30T15:43:01+00:00*
+*Last Updated: 2026-10-01T10:16:25+00:00*
 
 ---
 
-### 2026-09-30T15:43:01+00:00
-LiveLaw| Umar Khalid & Sharjeel Imam bail| IRCTC Audit| Twisha Sharma| LPU Violence & more
-https://www.livelaw.in/podcast/supreme-court-livelaw-daily-lpu-twisha-sharma-allahabad-high-court-satya-niketan-umar-khalid-sharjeel-imam-news-india-552571
+### 2026-10-01T10:16:25+00:00
+Consumer Law Monthly Digest: September 2026
+https://www.livelaw.in/consumer-cases/consumer-law-monthly-digest-september-2026-552670
 
-[Read on Telegram](https://t.me/livelawindia/121240)
-
----
-### 2026-09-30T16:12:21+00:00
-Cardiac Arrest Due To Stress And Strain Of Long-Distance Driving Is Compensable Under Employees' Compensation Act: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/cardiac-arrest-due-to-stress-and-strain-of-long-distance-driving-is-compensable-under-employees-compensation-act-jk-high-court-552402
-
-[Read on Telegram](https://t.me/livelawindia/121241)
+[Read on Telegram](https://t.me/livelawindia/121302)
 
 ---
-### 2026-09-30T16:17:01+00:00
-Mahakumbh Fame Woman Gets Relief as MP High Court Quashes Birth Certificate Correction Order
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-grants-relief-to-viral-kumbh-mela-star-for-correction-of-birth-certificate-552572
+### 2026-10-01T10:22:45+00:00
+'Pilgrims Offering Prayers At Mosque Inside Kolkata Airport Presents Security Risk': State Tells Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-denies-interim-permission-to-offer-prayers-at-mosque-inside-kolkata-airport-state-cites-security-risks-552671
 
-[Read on Telegram](https://t.me/livelawindia/121242)
-
----
-### 2026-09-30T16:59:31+00:00
-'Who Judges The Judge?': Allahabad High Court Calls For Recalibration Of CJ-Centric Administration, Greater Institutional Accountability
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-chief-justice-centric-administration-participative-decision-making-552573
-
-[Read on Telegram](https://t.me/livelawindia/121243)
+[Read on Telegram](https://t.me/livelawindia/121303)
 
 ---
-### 2026-09-30T17:27:41+00:00
-Supreme Court Daily Round-Up : September 30, 2026
-https://www.livelaw.in/round-ups/supreme-court-daily-round-up-september-30-2026-552568
+### 2026-10-01T10:31:05+00:00
+Minority Aided Institutions Can Appoint Teachers To Sanctioned Vacant Posts Without Prior Permission : Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/minority-aided-institutions-can-appoint-teachers-to-sanctioned-vacant-posts-without-prior-permission-madras-hc-552672
 
-[Read on Telegram](https://t.me/livelawindia/121244)
-
----
-### 2026-09-30T17:32:41+00:00
-LiveLaw High Courts Daily Highlights: September 30, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-30-2026-552569
-
-[Read on Telegram](https://t.me/livelawindia/121245)
+[Read on Telegram](https://t.me/livelawindia/121304)
 
 ---
-### 2026-10-01T02:46:14+00:00
-Full Court Meetings 'Stage-Managed'? Allahabad High Court Flags Lack Of Collegiate Deliberation; Says Judges' Views Not Recorded
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-stage-managed-full-court-meetings-dissent-justice-vinod-diwakar-552574
+### 2026-10-01T10:38:45+00:00
+Karnataka High Court Refuses To Entertain Priyank Kharge, Haris Nalapad's Pleas Against RSS Defamation Case; Directs Them To Sessions Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-directs-priyank-kharge-nalapad-approach-sessions-court-defamation-case-552674
 
-[Read on Telegram](https://t.me/livelawindia/121246)
-
----
-### 2026-10-01T03:02:25+00:00
-Police Cannot Detain Innocent Family Member To Force Accused To Surrender: Allahabad High Court Awards ₹40K Compensation
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-police-cannot-detain-innocent-family-member-accused-surrender-552575
-
-[Read on Telegram](https://t.me/livelawindia/121247)
+[Read on Telegram](https://t.me/livelawindia/121305)
 
 ---
-### 2026-10-01T03:33:05+00:00
-Kerala High Court Declares Wife Exclusive Owner Of Property Bought In Joint Name With Husband Using Her Father's Money
-https://www.livelaw.in/high-court/kerala-high-court/exclusive-owner-wife-joint-property-fathers-money-section-14-family-courts-act-552570
+### 2026-10-01T10:49:15+00:00
+MPSLSA Organises One-Day Programme For Children With Hearing And Speech Impairment
+https://www.livelaw.in/news-updates/mpslsa-organises-one-day-programme-for-children-with-hearing-and-speech-impairment-552679
 
-[Read on Telegram](https://t.me/livelawindia/121248)
-
----
-### 2026-10-01T03:41:05+00:00
-Non-Disclosure Of Criminal Case Is Not Suppression If Candidate Had No Knowledge Of It, & Was Ultimately Exonerated: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/non-disclosure-of-criminal-case-is-not-suppression-if-candidate-had-no-knowledge-of-it-was-ultimately-exonerated-madras-high-court-552576
-
-[Read on Telegram](https://t.me/livelawindia/121249)
+[Read on Telegram](https://t.me/livelawindia/121306)
 
 ---
-### 2026-10-01T03:53:35+00:00
-LiveLaw Supreme Court Monthly Digest: August 2026
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-monthly-digest-august-2026-552578
+### 2026-10-01T10:52:15+00:00
+'Consensual' Relationship Not Conclusive Entitlement To Anticipatory Bail In False Promise To Marry Case U/S 69 BNS: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-claim-of-consensual-relationship-cannot-entitle-anticipatory-bail-section-69-bns-552676
 
-[Read on Telegram](https://t.me/livelawindia/121250)
-
----
-### 2026-10-01T04:29:16+00:00
-LiveLaw Breaking News Alerts: 01 October 2026
-https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts-01-october-2026-552584
-
-[Read on Telegram](https://t.me/livelawindia/121251)
+[Read on Telegram](https://t.me/livelawindia/121307)
 
 ---
-### 2026-10-01T04:42:06+00:00
-S. 138 NI Act | Cheque Dishonour Sent To Drawer's Address Is Validly Served Though Received By Family Member : Supreme Court
-https://www.livelaw.in/supreme-court/s-138-ni-act-cheque-dishonour-sent-to-drawers-address-is-validly-served-though-received-by-family-member-supreme-court-552587
+### 2026-10-01T10:56:35+00:00
+Bombay High Court Protects Samantha Ruth Prabhu's Personality Rights, Says Social Media Platforms Must Exercise Due Diligence
+https://www.livelaw.in/high-court/bombay-high-court/samantha-ruth-prabhu-personality-rights-protected-social-media-due-dilligence-552682
 
-[Read on Telegram](https://t.me/livelawindia/121252)
-
----
-### 2026-10-01T04:43:46+00:00
-2026 LiveLaw (SC) 1005 | SAINABA VERSUS STATE OF KERALA & ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1005-sainaba-versus-state-of-kerala-anr-552589
-
-[Read on Telegram](https://t.me/livelawindia/121253)
+[Read on Telegram](https://t.me/livelawindia/121308)
 
 ---
-### 2026-10-01T04:43:56+00:00
-Circulating Objectionable Photos On WhatsApp Is 'Within Public View', Can Attract SC/ST Act: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/circulating-objectionable-photos-on-whatsapp-within-public-view-scst-act-attracted-552590
+### 2026-10-01T11:03:06+00:00
+DNA Test Of Child Can't Be Ordered Routinely Without Prima Facie Proof Of Non-Access Between Spouses: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/paternity-dispute-presumption-of-legitimacy-section-112-evidence-act-552678
 
-[Read on Telegram](https://t.me/livelawindia/121254)
-
----
-### 2026-10-01T04:52:26+00:00
-Mere Pendency Of PMLA Investigation Can't Indefinitely Restrict Right To Travel: Delhi High Court Quashes LOCs
-https://www.livelaw.in/high-court/delhi-high-court/mere-pendency-of-pmla-investigation-cant-indefinitely-restrict-right-to-travel-delhi-high-court-quashes-locs-552592
-
-[Read on Telegram](https://t.me/livelawindia/121255)
+[Read on Telegram](https://t.me/livelawindia/121309)
 
 ---
-### 2026-10-01T04:57:06+00:00
-Testimony For Sexual Offence Within Home Does Not Require Same Corroboration As Crimes Committed In Open: Supreme Court
-https://www.livelaw.in/supreme-court/testimony-for-sexual-offence-within-home-does-not-require-same-corroboration-as-crimes-committed-in-open-supreme-court-552596
+### 2026-10-01T11:03:36+00:00
+Parul University Hosts 4th Edition Of 'Samvidhaan Pe Charcha' With Judges, Senior Advocates
+https://www.livelaw.in/lawschool/news/parul-university-hosts-4th-edition-of-samvidhaan-pe-charcha-with-judges-senior-advocates-552683
 
-[Read on Telegram](https://t.me/livelawindia/121256)
-
----
-### 2026-10-01T05:02:27+00:00
-Corporate Criminal Liability – Who Forms Mens Rea For Company?
-https://www.livelaw.in/articles/corporate-criminal-liability-who-forms-mens-rea-company-552597
-
-[Read on Telegram](https://t.me/livelawindia/121257)
+[Read on Telegram](https://t.me/livelawindia/121310)
 
 ---
-### 2026-10-01T05:02:47+00:00
-OMR Sheet Error: Allahabad High Court Refuses Manual Evaluation, Says Exam Instructions Must Be Strictly Followed
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-wrongly-marked-question-book-number-column-changed-manual-evaluation-552593
+### 2026-10-01T11:09:56+00:00
+Impound Vehicles With Unpaid E-Challans, Freeze Online Services: Supreme Court Orders, Notes Over ₹23,000 Crore Traffic Fines Pending
+https://www.livelaw.in/top-stories/impound-vehicles-with-unpaid-e-challans-freeze-online-services-supreme-court-orders-notes-over-23000-crore-traffic-fines-pending-552686
 
-[Read on Telegram](https://t.me/livelawindia/121258)
+[Read on Telegram](https://t.me/livelawindia/121311)
 
 ---
-### 2026-10-01T05:06:47+00:00
-Delhi Court Frames Money Laundering Charge Against Yasin Malik, Others Over 'Hawala Transactions' With Pakistani Outfit
-https://www.livelaw.in/news-updates/delhi-court-frames-money-laundering-charge-against-yasin-malik-others-over-hawala-transactions-with-pakistani-outfit-552600
+### 2026-10-01T11:10:56+00:00
+2026 LiveLaw (SC) 1007 | S.RAJASEEKARAN VERSUS UNION OF INDIA AND ORS. & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1007-srajaseekaran-versus-union-of-india-and-ors-ors-552687
 
-[Read on Telegram](https://t.me/livelawindia/121259)
+[Read on Telegram](https://t.me/livelawindia/121312)
+
+---
+### 2026-10-01T11:11:36+00:00
+Khaitan & Co Advises India Resurgence Fund On Acquisition Of Majority Stake In Fine Edge Engineering
+https://www.livelaw.in/law-firms/deals/khaitan-co-advises-india-resurgence-fund-on-acquisition-of-majority-stake-in-fine-edge-engineering-552688
+
+[Read on Telegram](https://t.me/livelawindia/121313)
+
+---
+### 2026-10-01T11:12:36+00:00
+Elected Panchayat Member Has No Enforceable Right To Seek Departmental Action Against Employee: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-elected-panchayat-member-cannot-seek-departmental-action-against-employee-552680
+
+[Read on Telegram](https://t.me/livelawindia/121314)
+
+---
+### 2026-10-01T11:18:56+00:00
+State Vicariously Liable For Negligent Acts Of Government Hospital Employees Resulting In Loss Of Eyesight: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/state-vicariously-liable-for-negligent-acts-of-government-hospital-employees-resulting-in-loss-of-eyesight-calcutta-high-court-552689
+
+[Read on Telegram](https://t.me/livelawindia/121315)
+
+---
+### 2026-10-01T11:22:16+00:00
+Kerala High Court Asks Assembly Speaker To Take Steps To Decide On MLA Mani C Kappan's Disqualification
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-mani-c-kappan-disqualification-552690
+
+[Read on Telegram](https://t.me/livelawindia/121316)
+
+---
+### 2026-10-01T11:22:36+00:00
+Mere Possession Of Visa Does Not Give Foreigner Unconditional Right To Enter India: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/visa-doesnt-give-foreigner-unconditional-right-to-enter-india-552685
+
+[Read on Telegram](https://t.me/livelawindia/121317)
+
+---
+### 2026-10-01T11:29:16+00:00
+Allahabad High Court Imposes ₹1 Lakh Costs On UP Govt For Filing Counter Affidavit After Over 3 Decades In A Service Matter
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-1-lakh-costs-up-govt-counter-affidavit-three-decades-552692
+
+[Read on Telegram](https://t.me/livelawindia/121318)
+
+---
+### 2026-10-01T11:32:16+00:00
+Delhi High Court Refuses To Stay Conviction Of Bihar MLA Raju Kumar Singh In Celebratory Firing Death Case
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-to-stay-conviction-of-bihar-mla-raju-kumar-singh-in-celebratory-firing-death-case-552695
+
+[Read on Telegram](https://t.me/livelawindia/121319)
+
+---
+### 2026-10-01T11:55:46+00:00
+'One Nation, One Election' Committee's Proposed Meeting With Supreme Court Judges Raises Questions
+https://www.livelaw.in/top-stories/one-nation-one-election-committees-proposed-meeting-with-supreme-court-judges-raises-questions-552701
+
+[Read on Telegram](https://t.me/livelawindia/121320)
+
+---
+### 2026-10-01T12:46:57+00:00
+'Cannot Take Law Into Their Hands': Calcutta High Court Questions State Over Bulldozer Use By Private Parties To Dispossess Shopkeepers
+https://www.livelaw.in/high-court/calcutta-high-court/cannot-take-law-into-hands-calcutta-high-court-questions-state-over-bulldozer-use-by-private-parties-to-dispossess-shopkeepers-552708
+
+[Read on Telegram](https://t.me/livelawindia/121321)
 
 ---
