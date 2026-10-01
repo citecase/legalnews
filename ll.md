@@ -1,107 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-09-30T13:43:45+00:00*
+*Last Updated: 2026-09-30T15:43:01+00:00*
 
 ---
 
-### 2026-09-30T13:43:45+00:00
-Royal Stag Whisky Bottle Containing Foreign Particles: Sikkim State Consumer Commission Upholds Pernod Ricard's Liability
-https://www.livelaw.in/consumer-cases/royal-stag-whisky-bottle-containing-foreign-particles-sikkim-state-consumer-commission-upholds-pernod-ricards-liability-552546
-
-[Read on Telegram](https://t.me/livelawindia/121226)
-
----
-### 2026-09-30T13:52:16+00:00
-Supreme Court Rebukes UP Police Over FIR Discrepancies, Summons Officer
-https://www.livelaw.in/top-stories/supreme-court-rebukes-up-police-over-fir-discrepancies-summons-officer-552547
-
-[Read on Telegram](https://t.me/livelawindia/121227)
-
----
-### 2026-09-30T13:57:57+00:00
-Bombay High Court Orders X Corp To Delete Objectionable Content Against Adar Poonawala Over Alleged Side-Effects Of Covid Vaccine
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-orders-x-corp-to-delete-objectionable-content-against-adar-poonawala-over-alleged-side-effects-of-covid-vaccine-552548
-
-[Read on Telegram](https://t.me/livelawindia/121228)
-
----
-### 2026-09-30T13:58:07+00:00
-POCSO Case Can Be Quashed In Exceptional Cases Based On Informed Victim Consent, Marriage: Meghalaya High Court
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-pocso-case-quashed-exceptional-cases-informed-victim-consent-552401
-
-[Read on Telegram](https://t.me/livelawindia/121229)
-
----
-### 2026-09-30T14:12:37+00:00
-Delhi High Court Directs DDA To Process Pending Freehold Conversion Applications Within Two Months
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-dda-to-process-pending-freehold-conversion-applications-within-two-months-552550
-
-[Read on Telegram](https://t.me/livelawindia/121230)
-
----
-### 2026-09-30T14:22:37+00:00
-No Limitation For Seeking Maintenance Under Section 125 CrPC, Wife's Right Can't Be Lost By Delay: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-limitation-period-filing-maintenance-claim-section125-crpc-552551
-
-[Read on Telegram](https://t.me/livelawindia/121231)
-
----
-### 2026-09-30T14:32:17+00:00
-IO Can't Independently Record Victim's Further Statement After S.183 BNSS Statement Recorded By Magistrate: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-investigation-officer-independently-record-victim-statement-section183-bnss-552552
-
-[Read on Telegram](https://t.me/livelawindia/121232)
-
----
-### 2026-09-30T14:32:57+00:00
-When Law Breaks Rule Of Principles
-https://www.livelaw.in/articles/when-law-breaks-rule-principles-552545
-
-[Read on Telegram](https://t.me/livelawindia/121233)
-
----
-### 2026-09-30T14:37:17+00:00
-Calcutta High Court Directs Insurer To Compensate 5-Year-Old's Accidental Death Despite Offending Driver's Fake Licence
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-directs-insurer-to-compensate-5-year-olds-accidental-death-despite-offending-drivers-fake-licence-552492
-
-[Read on Telegram](https://t.me/livelawindia/121234)
-
----
-### 2026-09-30T14:47:47+00:00
-Govt Employee's Married Daughter Can't Be Denied Compassionate Appointment Solely Due To Marital Status: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-govt-employee-married-daughter-denied-compassionate-appointment-552553
-
-[Read on Telegram](https://t.me/livelawindia/121235)
-
----
-### 2026-09-30T14:50:07+00:00
-Whether IPC Prosecution Can Continue After Sanction Under PC Act Was Refused: Supreme Court Reserves Judgment
-https://www.livelaw.in/top-stories/supreme-court-ipc-prosecution-continue-sanction-pc-act-refused-552564
-
-[Read on Telegram](https://t.me/livelawindia/121236)
-
----
-### 2026-09-30T15:02:27+00:00
-'Moral Consciousness Can't Overtake Legal Entitlement': Karnataka High Court Grants Parole To Murder Convicts To Get Married
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-grants-parole-lovers-convicted-killing-woman-husband-552557
-
-[Read on Telegram](https://t.me/livelawindia/121237)
-
----
-### 2026-09-30T15:20:47+00:00
-Accused Can't Protract Trial And Later Cite Delay To Seek Bail: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/accused-cant-protract-trial-and-later-cite-delay-to-seek-bail-552566
-
-[Read on Telegram](https://t.me/livelawindia/121238)
-
----
-### 2026-09-30T15:28:57+00:00
-Women Safety: Bombay High Court Seeks State's Reply On Plea Alleging Public Vehicles Registered Without Mandatory Tracking Devices, Panic Buttons
-https://www.livelaw.in/high-court/bombay-high-court/women-safety-bombay-high-court-seeks-states-reply-on-plea-alleging-public-vehicles-registered-without-mandatory-tracking-devices-panic-buttons-552567
-
-[Read on Telegram](https://t.me/livelawindia/121239)
-
----
 ### 2026-09-30T15:43:01+00:00
 LiveLaw| Umar Khalid & Sharjeel Imam bail| IRCTC Audit| Twisha Sharma| LPU Violence & more
 https://www.livelaw.in/podcast/supreme-court-livelaw-daily-lpu-twisha-sharma-allahabad-high-court-satya-niketan-umar-khalid-sharjeel-imam-news-india-552571
@@ -142,5 +44,103 @@ LiveLaw High Courts Daily Highlights: September 30, 2026
 https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-september-30-2026-552569
 
 [Read on Telegram](https://t.me/livelawindia/121245)
+
+---
+### 2026-10-01T02:46:14+00:00
+Full Court Meetings 'Stage-Managed'? Allahabad High Court Flags Lack Of Collegiate Deliberation; Says Judges' Views Not Recorded
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-stage-managed-full-court-meetings-dissent-justice-vinod-diwakar-552574
+
+[Read on Telegram](https://t.me/livelawindia/121246)
+
+---
+### 2026-10-01T03:02:25+00:00
+Police Cannot Detain Innocent Family Member To Force Accused To Surrender: Allahabad High Court Awards ₹40K Compensation
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-police-cannot-detain-innocent-family-member-accused-surrender-552575
+
+[Read on Telegram](https://t.me/livelawindia/121247)
+
+---
+### 2026-10-01T03:33:05+00:00
+Kerala High Court Declares Wife Exclusive Owner Of Property Bought In Joint Name With Husband Using Her Father's Money
+https://www.livelaw.in/high-court/kerala-high-court/exclusive-owner-wife-joint-property-fathers-money-section-14-family-courts-act-552570
+
+[Read on Telegram](https://t.me/livelawindia/121248)
+
+---
+### 2026-10-01T03:41:05+00:00
+Non-Disclosure Of Criminal Case Is Not Suppression If Candidate Had No Knowledge Of It, & Was Ultimately Exonerated: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/non-disclosure-of-criminal-case-is-not-suppression-if-candidate-had-no-knowledge-of-it-was-ultimately-exonerated-madras-high-court-552576
+
+[Read on Telegram](https://t.me/livelawindia/121249)
+
+---
+### 2026-10-01T03:53:35+00:00
+LiveLaw Supreme Court Monthly Digest: August 2026
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-monthly-digest-august-2026-552578
+
+[Read on Telegram](https://t.me/livelawindia/121250)
+
+---
+### 2026-10-01T04:29:16+00:00
+LiveLaw Breaking News Alerts: 01 October 2026
+https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts-01-october-2026-552584
+
+[Read on Telegram](https://t.me/livelawindia/121251)
+
+---
+### 2026-10-01T04:42:06+00:00
+S. 138 NI Act | Cheque Dishonour Sent To Drawer's Address Is Validly Served Though Received By Family Member : Supreme Court
+https://www.livelaw.in/supreme-court/s-138-ni-act-cheque-dishonour-sent-to-drawers-address-is-validly-served-though-received-by-family-member-supreme-court-552587
+
+[Read on Telegram](https://t.me/livelawindia/121252)
+
+---
+### 2026-10-01T04:43:46+00:00
+2026 LiveLaw (SC) 1005 | SAINABA VERSUS STATE OF KERALA & ANR.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1005-sainaba-versus-state-of-kerala-anr-552589
+
+[Read on Telegram](https://t.me/livelawindia/121253)
+
+---
+### 2026-10-01T04:43:56+00:00
+Circulating Objectionable Photos On WhatsApp Is 'Within Public View', Can Attract SC/ST Act: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/circulating-objectionable-photos-on-whatsapp-within-public-view-scst-act-attracted-552590
+
+[Read on Telegram](https://t.me/livelawindia/121254)
+
+---
+### 2026-10-01T04:52:26+00:00
+Mere Pendency Of PMLA Investigation Can't Indefinitely Restrict Right To Travel: Delhi High Court Quashes LOCs
+https://www.livelaw.in/high-court/delhi-high-court/mere-pendency-of-pmla-investigation-cant-indefinitely-restrict-right-to-travel-delhi-high-court-quashes-locs-552592
+
+[Read on Telegram](https://t.me/livelawindia/121255)
+
+---
+### 2026-10-01T04:57:06+00:00
+Testimony For Sexual Offence Within Home Does Not Require Same Corroboration As Crimes Committed In Open: Supreme Court
+https://www.livelaw.in/supreme-court/testimony-for-sexual-offence-within-home-does-not-require-same-corroboration-as-crimes-committed-in-open-supreme-court-552596
+
+[Read on Telegram](https://t.me/livelawindia/121256)
+
+---
+### 2026-10-01T05:02:27+00:00
+Corporate Criminal Liability – Who Forms Mens Rea For Company?
+https://www.livelaw.in/articles/corporate-criminal-liability-who-forms-mens-rea-company-552597
+
+[Read on Telegram](https://t.me/livelawindia/121257)
+
+---
+### 2026-10-01T05:02:47+00:00
+OMR Sheet Error: Allahabad High Court Refuses Manual Evaluation, Says Exam Instructions Must Be Strictly Followed
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-wrongly-marked-question-book-number-column-changed-manual-evaluation-552593
+
+[Read on Telegram](https://t.me/livelawindia/121258)
+
+---
+### 2026-10-01T05:06:47+00:00
+Delhi Court Frames Money Laundering Charge Against Yasin Malik, Others Over 'Hawala Transactions' With Pakistani Outfit
+https://www.livelaw.in/news-updates/delhi-court-frames-money-laundering-charge-against-yasin-malik-others-over-hawala-transactions-with-pakistani-outfit-552600
+
+[Read on Telegram](https://t.me/livelawindia/121259)
 
 ---
