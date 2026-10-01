@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-09-30T16:03:04+00:00*
+*Last Updated: 2026-10-01T05:53:06+00:00*
+
+---
+
+### 2026-10-01T05:53:06+00:00
+Admission Of Petition U/S. 9 IBC Induced By Fraud/Collusion Can Be Recalled, But CIRP Need Not Automatically End: Supreme Court
+https://www.verdictum.in/supreme-court/orris-infrastructure-private-limited-v-rakesh-kumar-gupta-2026-insc-1070-admission-of-petition-us-9-ibc-induced-by-fraudcollusion-1623114
+
+[Source Link](https://t.me/verdictumlegalupdates/29419)
+
+---
+
+### 2026-10-01T05:13:55+00:00
+Once Notice Is Dispatched To Accused's Correct Address, Statutory Requirement Of "Giving of Notice" Stands Satisfied Even If His Mother Received It: Supreme Court Restores Conviction U/S 138 NI Act
+https://www.verdictum.in/supreme-court/sainaba-v-state-of-kerala-2026-insc-1069-sec138-ni-act-notice-correct-address-1623112
+
+[Source Link](https://t.me/verdictumlegalupdates/29418)
+
+---
+
+### 2026-10-01T04:32:54+00:00
+Severance Compensation In Land Acquisition Must Reflect Loss Of Utility Of Remaining Land: Supreme Court
+https://www.verdictum.in/supreme-court/surinder-ahuja-anr-v-state-of-punjab-anr-2026-insc-1068-severance-compensation-1623104
+
+[Source Link](https://t.me/verdictumlegalupdates/29417)
 
 ---
 
@@ -137,30 +161,6 @@ Supreme Court Agrees To Hear WB Govt's Challenge to Congress Candidate Milan Pra
 https://www.verdictum.in/supreme-court/wb-govts-challenge-to-congress-candidate-milan-pradhans-interim-bail-on-oct-5-1623059
 
 [Source Link](https://t.me/verdictumlegalupdates/29400)
-
----
-
-### 2026-09-30T07:32:29+00:00
-Pre-Trial Incarceration Can’t Masquerade As Punitive Detention When Commencement & Conclusion Of Trial Are Not Imminent: Supreme Court
-https://www.verdictum.in/supreme-court/sanjay-badaya-v-state-of-rajasthan-2026-insc-1065-pre-trial-incarceration-detention-1623055
-
-[Source Link](https://t.me/verdictumlegalupdates/29399)
-
----
-
-### 2026-09-30T07:02:09+00:00
-Filing Lawful Proceedings Without Intention To Instigate Cannot Constitute Abetment Of Suicide: Bombay High Court
-https://www.verdictum.in/bombay-high-court/sadashiv-ambadasrao-gayake-v-state-of-maharashtra-another-suicide-abetment-1623051
-
-[Source Link](https://t.me/verdictumlegalupdates/29398)
-
----
-
-### 2026-09-30T06:26:48+00:00
-Breaking| Roles Are Different Than Others, Parity Can't Be Sought: Delhi High Court Rejects Bail To Umar Khalid, Sharjeel Imam In 2020 Delhi Riots Case
-https://www.verdictum.in/delhi-high-court/denies-bail-to-umar-khalid-sharjeel-imam-2020-delhi-riots-case-1623043
-
-[Source Link](https://t.me/verdictumlegalupdates/29397)
 
 ---
 
