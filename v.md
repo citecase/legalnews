@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-01T05:53:06+00:00*
+*Last Updated: 2026-10-01T13:12:15+00:00*
+
+---
+
+### 2026-10-01T13:12:15+00:00
+Caste Names Will Disappear Into Oblivion: Madras High Court Upholds GO Removing Caste-Based Names From Streets & Public Places
+https://www.verdictum.in/madras-high-court/s-paramasivam-v-state-of-tamil-nadu-anr-2026mhc4029-caste-names-streets-1623146
+
+[Source Link](https://t.me/verdictumlegalupdates/29430)
+
+---
+
+### 2026-10-01T12:33:04+00:00
+"May Contain Microplastics" Label Mandatory For Bottled Water, Sugar & Salt: Madras High Court Dismisses FSSAI's Review Petition
+https://www.verdictum.in/madras-high-court/food-safety-and-standards-authority-of-india-v-g-subramania-koushik-2026mhc3978-may-contain-microplastics-label-mandatory-pet-bottle-water-sugar-salt-1623145
+
+[Source Link](https://t.me/verdictumlegalupdates/29429)
+
+---
+
+### 2026-10-01T11:52:54+00:00
+Maternity Leave Cannot Hinder Promotion; Counting It Towards Mandatory Training Must Be Decided Case-Wise: Madras High Court
+https://www.verdictum.in/madras-high-court/the-secretary-revenue-and-disaster-management-department-ors-v-s-menaka-2026mhc4001-1623144
+
+[Source Link](https://t.me/verdictumlegalupdates/29428)
+
+---
+
+### 2026-10-01T11:12:53+00:00
+Chief Justice-Centric Model Of HC Administration Requires Recalibration; Marginal Role Of Puisne Judges Runs Counter To Participatory Decision-Making: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/pappu-met-pappu-v-state-of-up-2026ahc204628-full-court-trial-court-charge-criminal-cases-1623143
+
+[Source Link](https://t.me/verdictumlegalupdates/29427)
+
+---
+
+### 2026-10-01T10:32:32+00:00
+Mere Availability Of Alternative Remedy Under Order 39 Rule 2A CPC Won’t Preclude Litigant To Invoke Sec.151 CPC For Enforcement Of Injunction Order Through Police Assistance: Himachal Pradesh High Court
+https://www.verdictum.in/himachal-high-court/prem-lal-v-sapna-anr-2026hhc42288-o39-r2a-cpc-sec151-injunction-order-police-assistance-1623142
+
+[Source Link](https://t.me/verdictumlegalupdates/29426)
+
+---
+
+### 2026-10-01T09:52:51+00:00
+Bus Conductor Or Secretary Of State, Everyone Has Equal Right To Access Justice: Apex Court Refuses Expedited Hearing Of Judicial Officer's Plea Before HC
+https://www.verdictum.in/supreme-court/equal-right-to-access-justice-judicial-officers-plea-before-hc-1623138
+
+[Source Link](https://t.me/verdictumlegalupdates/29425)
+
+---
+
+### 2026-10-01T09:12:50+00:00
+Supreme Court Seeks Response From State & Others On Plea Filed By Mahua Moitra Alleging Eviction From Circuit House
+https://www.verdictum.in/supreme-court/plea-filed-by-mahua-moitra-alleging-eviction-from-circuit-house-1623134
+
+[Source Link](https://t.me/verdictumlegalupdates/29424)
+
+---
+
+### 2026-10-01T08:32:29+00:00
+“Sanctity Is The Reward Of Legality”: Supreme Court Invalidates IFCI’s SARFAESI Auction Of Ooty Resort Conducted in Breach of Rules
+https://www.verdictum.in/supreme-court/sterling-holiday-resorts-limited-v-ms-pm-associates-ors-2026-insc-1071-1623132
+
+[Source Link](https://t.me/verdictumlegalupdates/29423)
+
+---
+
+### 2026-10-01T07:53:08+00:00
+Supreme Court Stays Execution Of Death Penalty Of Indian Mujahideen Operative In 2008 Ahmedabad Bomb Blasts Case
+https://www.verdictum.in/supreme-court/execution-death-penalty-indian-mujahideen-operative-2008-ahmedabad-bomb-blasts-case-stayed-1623122
+
+[Source Link](https://t.me/verdictumlegalupdates/29422)
+
+---
+
+### 2026-10-01T07:12:47+00:00
+Bigamous Marriage By Uttar Pradesh Government Servant Can Attract Major Or Minor Penalty: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/vinita-kumari-v-state-of-uttar-pradesh-others-2026ahc203334-bigamy-1623121
+
+[Source Link](https://t.me/verdictumlegalupdates/29421)
+
+---
+
+### 2026-10-01T06:32:26+00:00
+Issue Of Entitlement To Party's Assets Must Be Determined First: Apex Court Refuses To Unfreeze AITC Bank Accounts For Expenses
+https://www.verdictum.in/supreme-court/refuses-unfreeze-all-india-trinamool-congress-bank-accounts-election-expenses-1623118
+
+[Source Link](https://t.me/verdictumlegalupdates/29420)
 
 ---
 
@@ -73,94 +161,6 @@ Delhi High Court Dismisses Plea Alleging Partisan Campaigning By Varsity Staff I
 https://www.verdictum.in/delhi-high-court/plea-alleging-partisan-campaigning-by-varsity-staff-in-dusu-polls-1623076
 
 [Source Link](https://t.me/verdictumlegalupdates/29411)
-
----
-
-### 2026-09-30T13:03:20+00:00
-Issuance Of Tourist Visa Is Sovereign Function; Foreign Spouse Of Indian Citizen Has No Vested Right Over It: Kerala High Court
-https://www.verdictum.in/kerala-high-court/unaiz-kadumbottil-v-union-of-india-2026ker63060-tourist-visa-sovereign-function-foreign-spouse-1623075
-
-[Source Link](https://t.me/verdictumlegalupdates/29410)
-
----
-
-### 2026-09-30T12:32:18+00:00
-Delhi High Court Refuses To Entertain Plea Seeking Direction To Centre To Erect Memorial For INA Martyrs At Red Fort
-https://www.verdictum.in/delhi-high-court/plea-seeking-direction-to-centre-to-erect-memorial-for-ina-martyrs-at-red-fort-1623072
-
-[Source Link](https://t.me/verdictumlegalupdates/29409)
-
----
-
-### 2026-09-30T12:02:57+00:00
-Total Ban Will Have Sentimental Effect: Apex Court Gives Time To Union For Open Ground Testing Of Barium Firecrackers
-https://www.verdictum.in/supreme-court/ban-firecrackers-delhi-ncr-barium-open-ground-testing-pollution-1623071
-
-[Source Link](https://t.me/verdictumlegalupdates/29408)
-
----
-
-### 2026-09-30T11:32:57+00:00
-Bombay High Court Imposes Total Ban On Bursting Firecrackers On Public Streets And Roads During Festivities
-https://www.verdictum.in/bombay-high-court/in-re-noise-and-environmental-pollution-public-nuisance-caused-by-unregulated-use-of-music-systems-with-amplifiers-and-firecrackers-on-public-streets-during-festivals-1623070
-
-[Source Link](https://t.me/verdictumlegalupdates/29407)
-
----
-
-### 2026-09-30T11:06:36+00:00
-Actively Sharing Inflammatory Propaganda Online To Further Ideology Of Banned Organisation Will Attract UAPA Charges: Jammu & Kashmir And Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/dawood-v-union-territory-of-jammu-kashmir-sharing-inflammatory-propaganda-online-uapa-1623069
-
-[Source Link](https://t.me/verdictumlegalupdates/29406)
-
----
-
-### 2026-09-30T10:32:35+00:00
-Can Writ Petition Lie Against Church Of South India’s Internal Communications Without Public Element? Madras High Court Refers To Larger Bench
-https://www.verdictum.in/madras-high-court/the-church-of-south-india-v-g-selvakumar-ors-2026mhc4018-maintainability-1623067
-
-[Source Link](https://t.me/verdictumlegalupdates/29405)
-
----
-
-### 2026-09-30T10:02:14+00:00
-Bombay High Court Stays Ex-Police Officer Sachin Waze's Bail In Antilia Bomb Scare Case
-https://www.verdictum.in/bombay-high-court/ex-police-officer-sachin-wazes-bail-in-antilia-bomb-scare-case-stayed-1623066
-
-[Source Link](https://t.me/verdictumlegalupdates/29404)
-
----
-
-### 2026-09-30T09:32:53+00:00
-Falsifying Pedigree To Create Non-Existent Legal Entities & Identities Prima Facie Amounts To Making False Document U/S 464 IPC: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/mahendrabhai-chandubhai-patel-v-state-of-gujarat-2026gujhc60833-falsifying-pedigree-to-create-non-existent-legal-entities-1623065
-
-[Source Link](https://t.me/verdictumlegalupdates/29403)
-
----
-
-### 2026-09-30T09:02:32+00:00
-Service-Condition Restriction Cannot, Without More, Be Ineligibility U/S 12(5) Arbitration Act: Delhi High Court Restores Award Against IIT Kanpur
-https://www.verdictum.in/delhi-high-court/ms-airport-handling-services-v-indian-institute-of-technology-kanpur-2026dhc8387-db-us-125-arbitration-act-customs-freight-iit-kanpur-1623063
-
-[Source Link](https://t.me/verdictumlegalupdates/29402)
-
----
-
-### 2026-09-30T08:32:11+00:00
-Passport Application Can Be Made By Single Mother On Behalf Of Her Child; Can't Insist Inclusion Of Father’s Name: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/ekang-mishra-v-union-of-india-2026rj-jp37212-passport-application-fathers-name-1623062
-
-[Source Link](https://t.me/verdictumlegalupdates/29401)
-
----
-
-### 2026-09-30T08:02:30+00:00
-Supreme Court Agrees To Hear WB Govt's Challenge to Congress Candidate Milan Pradhan's Interim Bail On Oct 5
-https://www.verdictum.in/supreme-court/wb-govts-challenge-to-congress-candidate-milan-pradhans-interim-bail-on-oct-5-1623059
-
-[Source Link](https://t.me/verdictumlegalupdates/29400)
 
 ---
 
