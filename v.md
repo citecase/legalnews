@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-02T12:02:40+00:00*
+*Last Updated: 2026-10-02T15:02:22+00:00*
+
+---
+
+### 2026-10-02T15:02:22+00:00
+NALSAR University of Law, Hyderabad Invites Applications For Post Of Legal Consultant (Maritime Law)
+https://www.verdictum.in/job-updates/nalsar-university-of-law-1623154
+
+[Source Link](https://t.me/verdictumlegalupdates/29443)
+
+---
+
+### 2026-10-02T13:33:01+00:00
+Filing Of Domestic Violence Complaint By Spouse Not Mental Cruelty Unless Proven False Or Malicious: Himachal Pradesh High Court
+https://www.verdictum.in/himachal-high-court/bs-v-id-2026hhc41819-domestic-violence-mental-cruelty-divorce-proceedings-1623197
+
+[Source Link](https://t.me/verdictumlegalupdates/29442)
 
 ---
 
@@ -145,22 +161,6 @@ Supreme Court Seeks Response From State & Others On Plea Filed By Mahua Moitra A
 https://www.verdictum.in/supreme-court/plea-filed-by-mahua-moitra-alleging-eviction-from-circuit-house-1623134
 
 [Source Link](https://t.me/verdictumlegalupdates/29424)
-
----
-
-### 2026-10-01T08:32:29+00:00
-“Sanctity Is The Reward Of Legality”: Supreme Court Invalidates IFCI’s SARFAESI Auction Of Ooty Resort Conducted in Breach of Rules
-https://www.verdictum.in/supreme-court/sterling-holiday-resorts-limited-v-ms-pm-associates-ors-2026-insc-1071-1623132
-
-[Source Link](https://t.me/verdictumlegalupdates/29423)
-
----
-
-### 2026-10-01T07:53:08+00:00
-Supreme Court Stays Execution Of Death Penalty Of Indian Mujahideen Operative In 2008 Ahmedabad Bomb Blasts Case
-https://www.verdictum.in/supreme-court/execution-death-penalty-indian-mujahideen-operative-2008-ahmedabad-bomb-blasts-case-stayed-1623122
-
-[Source Link](https://t.me/verdictumlegalupdates/29422)
 
 ---
 
