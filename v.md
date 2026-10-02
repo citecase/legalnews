@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-01T15:53:18+00:00*
+*Last Updated: 2026-10-02T05:32:56+00:00*
+
+---
+
+### 2026-10-02T05:32:56+00:00
+WhatsApp Circulation Of Victim’s Objectionable Videos Falls Within ‘Public View’ Under SC/ST Act: Bombay High Court Denies Anticipatory Bail
+https://www.verdictum.in/bombay-high-court/nikhil-v-state-of-maharashtra-anr2026bhc-nag13009-social-media-public-view-sc-st-act-1623161
+
+[Source Link](https://t.me/verdictumlegalupdates/29436)
+
+---
+
+### 2026-10-02T04:32:35+00:00
+Supreme Court: Compromise Partition Decree Without Impleading Legal Heir Of Owner Is Nullity, Challenge Not Barred Under Order 23 Rule 3A
+https://www.verdictum.in/supreme-court/compromise-partition-decree-without-daughter-legal-heirs-necessary-party-nullity-1623160
+
+[Source Link](https://t.me/verdictumlegalupdates/29435)
 
 ---
 
@@ -145,22 +161,6 @@ Severance Compensation In Land Acquisition Must Reflect Loss Of Utility Of Remai
 https://www.verdictum.in/supreme-court/surinder-ahuja-anr-v-state-of-punjab-anr-2026-insc-1068-severance-compensation-1623104
 
 [Source Link](https://t.me/verdictumlegalupdates/29417)
-
----
-
-### 2026-09-30T16:03:04+00:00
-Legal Consultant Vacancy At Broadcast Engineering Consultants India (BECIL)
-https://www.verdictum.in/job-updates/broadcast-engineering-consultants-india-1623081
-
-[Source Link](https://t.me/verdictumlegalupdates/29416)
-
----
-
-### 2026-09-30T15:32:23+00:00
-Mere Wish Of Wife That Husband Should Live As Gharjamai Won’t Constitute Cruelty Under Hindu Marriage Act: Jharkhand High Court
-https://www.verdictum.in/jharkhand-high-court/a-v-b-2026jhhc28010-db-mere-wish-wife-husband-gharjamai-cruelty-hindu-marriage-act-1623087
-
-[Source Link](https://t.me/verdictumlegalupdates/29415)
 
 ---
 
