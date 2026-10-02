@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-01T13:38:18+00:00*
+*Last Updated: 2026-10-02T07:46:05+00:00*
 
 ---
 
-### 2026-10-01T13:38:18+00:00
-Calcutta High Court Orders SC/ST Act Probe Into Facebook Posts Allegedly Targeting Dalit Man, Says 'Public View' Extends Online
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-orders-scst-act-probe-into-facebook-posts-allegedly-targeting-dalit-man-says-public-view-extends-online-552727
+### 2026-10-02T07:46:05+00:00
+Manager (Legal) Vacancy At HLL Lifecare Limited
+https://www.livelaw.in/job-updates/manager-legal-vacancy-at-hll-lifecare-limited-552839
 
-[Read on Telegram](https://t.me/livelawindia/121330)
-
----
-### 2026-10-01T13:45:18+00:00
-Supreme Court Stays Karnataka HC Directions Constituting SIT, Ordering De Novo Probe Into KPSC Recruitment Scam
-https://www.livelaw.in/top-stories/supreme-court-stays-karnataka-hc-directions-constituting-sit-ordering-de-novo-probe-into-kpsc-recruitment-scam-552730
-
-[Read on Telegram](https://t.me/livelawindia/121331)
+[Read on Telegram](https://t.me/livelawindia/121374)
 
 ---
-### 2026-10-01T13:50:38+00:00
-Calcutta High Court Weekly Round-Up: September 21 To September 27. 2026
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-weekly-round-up-september-21-to-september-27-2026-552731
+### 2026-10-02T07:48:25+00:00
+Cattle Transport Can't Be Presumed To Be For Slaughter Due To Mere Absence Of Documents : Supreme Court
+https://www.livelaw.in/supreme-court/cattle-transport-cant-be-presumed-to-be-for-slaughter-due-to-mere-absence-of-documents-supreme-court-552840
 
-[Read on Telegram](https://t.me/livelawindia/121332)
-
----
-### 2026-10-01T14:09:28+00:00
-Supreme Court Judges Not Meeting 'One Nation One Election' Committee
-https://www.livelaw.in/top-stories/supreme-court-judges-not-meeting-one-nation-one-election-committee-552737
-
-[Read on Telegram](https://t.me/livelawindia/121333)
+[Read on Telegram](https://t.me/livelawindia/121375)
 
 ---
-### 2026-10-01T14:20:28+00:00
-Bar Council Has No Power To Suspend Advocates At Interim Stage Pending Disciplinary Inquiry: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/bar-council-cannot-suspend-advocates-pending-disciplinary-inquiry-allahabad-hc-552740
+### 2026-10-02T07:52:35+00:00
+Court May Waive Remaining Sentence & Direct Deportation Of Foreign National Upon State's No-Objection: Tripura High Court
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-court-waive-remaining-sentence-direct-deportation-foreign-national-552814
 
-[Read on Telegram](https://t.me/livelawindia/121334)
-
----
-### 2026-10-01T14:32:08+00:00
-“Delete for Everyone” As Revocation: WhatsApp Offers And Recoverable Messages In Light Of Indian Contract Act
-https://www.livelaw.in/articles/whatsapp-offers-recoverable-messages-indian-contract-act1872-552603
-
-[Read on Telegram](https://t.me/livelawindia/121335)
+[Read on Telegram](https://t.me/livelawindia/121376)
 
 ---
-### 2026-10-01T14:49:28+00:00
-'Noise Pollution Becoming A Menace': Allahabad High Court Registers Suo Motu PIL Over Schoolgirl's Death Amid Alleged Loud DJ Sound
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-noise-pollution-menace-suo-motu-pil-schoolgirl-death-dj-sound-552745
+### 2026-10-02T07:54:15+00:00
+Law Officers Vacancy At Bank Of India [Mumbai; Apply Now]
+https://www.livelaw.in/job-updates/law-officers-vacancy-at-bank-of-india-mumbai-552841
 
-[Read on Telegram](https://t.me/livelawindia/121336)
-
----
-### 2026-10-01T15:19:19+00:00
-Every Insensitive Or Objectionable Act In Matrimonial Home Not Cruelty: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/every-insensitive-or-objectionable-act-in-matrimonial-home-not-cruelty-552751
-
-[Read on Telegram](https://t.me/livelawindia/121337)
+[Read on Telegram](https://t.me/livelawindia/121377)
 
 ---
-### 2026-10-01T15:22:59+00:00
-Jurist Bimal Patel Sworn-In As Judge Of International Tribunal For The Law Of Sea
-https://www.livelaw.in/news-updates/jurist-bimal-patel-oath-judge-of-international-tribunal-for-the-law-of-the-sea-552754
+### 2026-10-02T08:02:35+00:00
+No Distinction Between 'Honourable' & Other Acquittals For Service Benefits: Rajasthan High Court Orders Full Salary For Suspension Period
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-directs-lic-treat-suspension-period-duty-552767
 
-[Read on Telegram](https://t.me/livelawindia/121338)
-
----
-### 2026-10-01T15:31:39+00:00
-Goa SIR: Bombay High Questions ECI Over Automated Rejection Of Form 8
-https://www.livelaw.in/high-court/bombay-high-court/goa-sir-bombay-high-questions-eci-over-automated-rejection-of-form-8-552757
-
-[Read on Telegram](https://t.me/livelawindia/121339)
+[Read on Telegram](https://t.me/livelawindia/121378)
 
 ---
-### 2026-10-01T16:07:09+00:00
-That Trafficking Victim Is A Bangladeshi Immigrant Is No Defence : Bombay High Court Upholds Brothel Owner's Conviction
-https://www.livelaw.in/high-court/bombay-high-court/that-trafficking-victim-is-a-bangladeshi-immigrant-is-no-defence-bombay-high-court-upholds-brothel-owners-conviction-552766
+### 2026-10-02T08:12:36+00:00
+2026 LiveLaw (SC) 1012 | Saurabh Bajaj Versus State of Chhattisgarh & Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1012-saurabh-bajaj-versus-state-of-chhattisgarh-ors-552842
 
-[Read on Telegram](https://t.me/livelawindia/121340)
-
----
-### 2026-10-01T16:20:09+00:00
-'Offends Secularism & Fraternity' : Buddhist Activist Moves Supreme Court Challenging Centre's Mandate On Six-Stanza 'Vande Mataram'
-https://www.livelaw.in/top-stories/offends-secularism-fraternity-buddhist-activist-moves-supreme-court-challenging-centres-mandate-on-six-stanza-vande-mataram-552768
-
-[Read on Telegram](https://t.me/livelawindia/121341)
+[Read on Telegram](https://t.me/livelawindia/121379)
 
 ---
-### 2026-10-01T16:46:19+00:00
-NEET-PG 2026: Plea In Supreme Court Seeks Disclosure Of Actual Questions, Options And Correct Answers To Candidates
-https://www.livelaw.in/top-stories/neet-pg-2026-plea-in-supreme-court-seeks-disclosure-of-actual-questions-options-and-correct-answers-to-candidates-552776
+### 2026-10-02T08:27:56+00:00
+Food Labels On Trail
+https://www.livelaw.in/law-firms/law-firm-articles-/foof-lables-on-trail-552844
 
-[Read on Telegram](https://t.me/livelawindia/121342)
-
----
-### 2026-10-01T17:32:30+00:00
-LiveLaw High Courts Daily Highlights: October 01, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-01-2026-552769
-
-[Read on Telegram](https://t.me/livelawindia/121343)
+[Read on Telegram](https://t.me/livelawindia/121380)
 
 ---
-### 2026-10-02T03:32:11+00:00
-Motor Accident | Dependants' Pecuniary Loss Can't Be Denied Merely Because Family Business Continued After Death: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-dependents-cannot-be-denied-pecuniary-loss-over-family-business-continuing-after-death-552718
+### 2026-10-02T08:32:16+00:00
+109 Kg Ganja Recovery: P&H High Court Denies Bail, Says Right To Speedy Trial Can't Dilute S.37 NDPS Act Rigours
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-right-to-speedy-trial-cannot-override-section-37-ndps-act-in-commercial-quantity-cases-552773
 
-[Read on Telegram](https://t.me/livelawindia/121344)
-
----
-### 2026-10-02T04:02:43+00:00
-Bank Transactions Alone Can't Be Treated As Husband's Monthly Disposable Income For Maintenance: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/bank-transactions-alone-cant-be-treated-as-husbands-monthly-disposable-income-for-maintenance-552752
-
-[Read on Telegram](https://t.me/livelawindia/121345)
+[Read on Telegram](https://t.me/livelawindia/121381)
 
 ---
-### 2026-10-02T04:32:23+00:00
-'Non-Binding' Trap: What Term Sheets Really Bind You To, After Zostel V. Oravel Stays"
-https://www.livelaw.in/lawschool/articles/non-binding-trap-what-term-sheets-really-bind-you-to-after-zostel-oravel-stays-552677
+### 2026-10-02T08:37:36+00:00
+Woman Need Not Remarry To Secure Livelihood After Matrimonial Breakdown: Srinagar Court Orders ₹20 Lakh Compensation For Mental Torture, Emotional Distress
+https://www.livelaw.in/news-updates/woman-need-not-remarry-to-secure-livelihood-after-matrimonial-breakdown-srinagar-court-orders-20-lakh-compensation-for-mental-torture-emotional-distress-552811
 
-[Read on Telegram](https://t.me/livelawindia/121346)
-
----
-### 2026-10-02T04:32:43+00:00
-Mere Adverse Orders, Procedural Irregularities Cannot Establish Judicial Bias To Transfer Trial: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/adverse-orders-procedural-irregularities-cannot-establish-judicial-bias-to-transfer-trial-552756
-
-[Read on Telegram](https://t.me/livelawindia/121347)
+[Read on Telegram](https://t.me/livelawindia/121382)
 
 ---
-### 2026-10-02T04:43:33+00:00
-'Innovative Thought': Allahabad High Court Appreciates Family Court's Order Of 10% Annual Increase In Wife's Maintenance
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-innovative-10-annual-increase-wife-interim-maintenance-amount-552794
+### 2026-10-02T09:02:30+00:00
+Teacher's Challenge To Termination By Private Unaided Trust Not Maintainable In Writ, Dispute Is Contractual: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-teacher-challenge-termination-private-unaided-trust-not-maintainable-552774
 
-[Read on Telegram](https://t.me/livelawindia/121348)
+[Read on Telegram](https://t.me/livelawindia/121383)
 
 ---
-### 2026-10-02T04:48:13+00:00
-Madras High Court Rejects Esakki Subaya's Plea Against Election Case, But Paves Way For Bye-Polls In Ambasamudram Constituency
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-esakki-subaya-election-plea-reject-application-dismissed-552795
+### 2026-10-02T09:32:30+00:00
+Corporate Fraud And Criminal Prosecution
+https://www.livelaw.in/articles/corporate-fraud-criminal-prosecution-552594
 
-[Read on Telegram](https://t.me/livelawindia/121349)
+[Read on Telegram](https://t.me/livelawindia/121384)
+
+---
+### 2026-10-02T09:33:10+00:00
+AP High Court Quashes MGNREGA Employee's Removal After Panchayat Downgraded, Cites Lack Of Hearing Or Alternative Post Under Policy
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-sets-aside-field-assistant-discontinuation-552775
+
+[Read on Telegram](https://t.me/livelawindia/121385)
+
+---
+### 2026-10-02T09:39:30+00:00
+Delhi Consumer Forum Holds Swiggy, Themis Barbeque House Liable For Misleading 'Cost For Two' Price Representation
+https://www.livelaw.in/consumer-cases/delhi-consumer-forum-holds-swiggy-themis-barbeque-house-liable-for-misleading-cost-for-two-price-representation-552849
+
+[Read on Telegram](https://t.me/livelawindia/121386)
+
+---
+### 2026-10-02T10:02:21+00:00
+Writ Court Can't Sit As Academic Expert To Decide Equivalence Of Degrees Where Rules Prescribe None: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-writ-court-academic-expert-decide-equivalence-degrees-552793
+
+[Read on Telegram](https://t.me/livelawindia/121387)
+
+---
+### 2026-10-02T10:02:31+00:00
+Sikkim High Court Upholds 20-Year POCSO Sentence, Holds Minority Of Survivor Proved Through Birth Certificate And Other Records
+https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-upholds-20year-pocso-sentence-552812
+
+[Read on Telegram](https://t.me/livelawindia/121388)
+
+---
+### 2026-10-02T10:32:21+00:00
+Employee Terminated After Acquittal Entitled To Back Wages Till Reinstatement: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-employee-terminated-acquittal-entitled-back-wages-reinstatement-552758
+
+[Read on Telegram](https://t.me/livelawindia/121389)
+
+---
+### 2026-10-02T11:02:52+00:00
+Acquisition Of Additional Land Cannot Be Done Through Corrigendum; Authorities Must Follow Statutory Procedure: Tripura High Court
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-acquisition-additional-land-corrigendum-authorities-follow-statutory-procedure-552815
+
+[Read on Telegram](https://t.me/livelawindia/121390)
+
+---
+### 2026-10-02T11:03:12+00:00
+Dispute Over Sale Consideration Doesn't Invalidate Registered Sale Deed: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-nonpayment-sale-consideration-ground-declare-registered-sale-deed-void-552797
+
+[Read on Telegram](https://t.me/livelawindia/121391)
+
+---
+### 2026-10-02T11:32:42+00:00
+50% Pre-Deposit For Appeal Not Exhausted At Filing Stage Where Rent Liability Is Recurring: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-predeposit-appeal-exhausted-filing-stage-rent-order-creates-recurring-liability-552798
+
+[Read on Telegram](https://t.me/livelawindia/121392)
+
+---
+### 2026-10-02T12:02:23+00:00
+Backward Class Certificate Expired Before Application Deadline Is Invalid; Fresh Certificate Can't Cure Defect: P&H  High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/backward-class-certificate-expired-fresh-certificate-obtained-later-cannot-cure-defect-552761
+
+[Read on Telegram](https://t.me/livelawindia/121393)
 
 ---
