@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-02T05:32:56+00:00*
+*Last Updated: 2026-10-02T12:02:40+00:00*
+
+---
+
+### 2026-10-02T12:02:40+00:00
+Judicial Officers Must Maintain Distance From Advocates: Gujarat HC Upholds Dismissal Of Magistrate Who Accepted Phone From Lawyer
+https://www.verdictum.in/gujarat-high-court/amratlal-narendrabhai-vizoda-v-state-of-gujarat-2026gujhc61207-db-judicial-officers-must-maintain-distance-from-advocates-1623196
+
+[Source Link](https://t.me/verdictumlegalupdates/29441)
+
+---
+
+### 2026-10-02T10:32:39+00:00
+Cannot Routinely Issue Look Out Circular Merely Because Investigation Is Pending: Delhi High Court Quashes LOCs In PMLA Case
+https://www.verdictum.in/delhi-high-court/deep-kumar-rastogi-v-directorate-of-enforcement-2026dhc8584-routinely-issue-look-out-circular-merely-because-investigation-is-pending-1623195
+
+[Source Link](https://t.me/verdictumlegalupdates/29440)
+
+---
+
+### 2026-10-02T09:03:18+00:00
+Child Has Right To Co-Parenting By Both Parents, Deprivation Will Cause Severe Dent In Child's Personality: Delhi High Court
+https://www.verdictum.in/delhi-high-court/harcharan-singh-bhalla-v-the-state-govt-of-nct-delhi-2026dhc8403-1623165
+
+[Source Link](https://t.me/verdictumlegalupdates/29439)
+
+---
+
+### 2026-10-02T07:32:37+00:00
+Peaceful Sleep Of Civilians Is At Cost Of Sleepless Nights Of Soldiers: Kerala  High Court Orders CBI Probe In Missing Soldier Case
+https://www.verdictum.in/kerala-high-court/balan-pk-v-state-of-kerala-2026ker74462-father-cbi-probe-missing-soldier-case-1623163
+
+[Source Link](https://t.me/verdictumlegalupdates/29438)
+
+---
+
+### 2026-10-02T06:33:17+00:00
+Rajasthan High Court Seeks State’s Response On Effective Management And Control Of Madarsas
+https://www.verdictum.in/rajasthan-high-court/pratipal-singh-v-state-of-rajasthan-state-control-management-madrasas-1623162
+
+[Source Link](https://t.me/verdictumlegalupdates/29437)
 
 ---
 
@@ -121,46 +161,6 @@ Supreme Court Stays Execution Of Death Penalty Of Indian Mujahideen Operative In
 https://www.verdictum.in/supreme-court/execution-death-penalty-indian-mujahideen-operative-2008-ahmedabad-bomb-blasts-case-stayed-1623122
 
 [Source Link](https://t.me/verdictumlegalupdates/29422)
-
----
-
-### 2026-10-01T07:12:47+00:00
-Bigamous Marriage By Uttar Pradesh Government Servant Can Attract Major Or Minor Penalty: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/vinita-kumari-v-state-of-uttar-pradesh-others-2026ahc203334-bigamy-1623121
-
-[Source Link](https://t.me/verdictumlegalupdates/29421)
-
----
-
-### 2026-10-01T06:32:26+00:00
-Issue Of Entitlement To Party's Assets Must Be Determined First: Apex Court Refuses To Unfreeze AITC Bank Accounts For Expenses
-https://www.verdictum.in/supreme-court/refuses-unfreeze-all-india-trinamool-congress-bank-accounts-election-expenses-1623118
-
-[Source Link](https://t.me/verdictumlegalupdates/29420)
-
----
-
-### 2026-10-01T05:53:06+00:00
-Admission Of Petition U/S. 9 IBC Induced By Fraud/Collusion Can Be Recalled, But CIRP Need Not Automatically End: Supreme Court
-https://www.verdictum.in/supreme-court/orris-infrastructure-private-limited-v-rakesh-kumar-gupta-2026-insc-1070-admission-of-petition-us-9-ibc-induced-by-fraudcollusion-1623114
-
-[Source Link](https://t.me/verdictumlegalupdates/29419)
-
----
-
-### 2026-10-01T05:13:55+00:00
-Once Notice Is Dispatched To Accused's Correct Address, Statutory Requirement Of "Giving of Notice" Stands Satisfied Even If His Mother Received It: Supreme Court Restores Conviction U/S 138 NI Act
-https://www.verdictum.in/supreme-court/sainaba-v-state-of-kerala-2026-insc-1069-sec138-ni-act-notice-correct-address-1623112
-
-[Source Link](https://t.me/verdictumlegalupdates/29418)
-
----
-
-### 2026-10-01T04:32:54+00:00
-Severance Compensation In Land Acquisition Must Reflect Loss Of Utility Of Remaining Land: Supreme Court
-https://www.verdictum.in/supreme-court/surinder-ahuja-anr-v-state-of-punjab-anr-2026-insc-1068-severance-compensation-1623104
-
-[Source Link](https://t.me/verdictumlegalupdates/29417)
 
 ---
 
