@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-01T13:18:38+00:00*
+*Last Updated: 2026-10-01T13:38:18+00:00*
 
 ---
 
-### 2026-10-01T13:18:38+00:00
-S. 313 CrPC | Statement Of Accused Cannot Be Used To Complete An Unestablished Chain Of Circumstances : Supreme Court
-https://www.livelaw.in/supreme-court/s-313-crpc-statement-of-accused-cannot-be-used-to-complete-an-unestablished-chain-of-circumstances-supreme-court-552717
-
-[Read on Telegram](https://t.me/livelawindia/121324)
-
----
-### 2026-10-01T13:19:58+00:00
-2026 LiveLaw (SC) 1009 | SANTOSH GURUNG VERSUS STATE OF SIKKIM
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1009-santosh-gurung-versus-state-of-sikkim-552719
-
-[Read on Telegram](https://t.me/livelawindia/121325)
-
----
-### 2026-10-01T13:21:58+00:00
-2026 LiveLaw (SC) 1010 | Seema Joshi v. Bar Council of India and Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1010-seema-joshi-v-bar-council-of-india-and-ors-552721
-
-[Read on Telegram](https://t.me/livelawindia/121326)
-
----
-### 2026-10-01T13:22:38+00:00
-Motor Accident Claims | Posthumously Filed Income Tax Returns Can Be Considered For Assessing Deceased's Income: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-accident-compensation-income-tax-return-posthumously-552722
-
-[Read on Telegram](https://t.me/livelawindia/121327)
-
----
-### 2026-10-01T13:25:18+00:00
-2026 LiveLaw (SC) 1011 | MIHIRA SOOD Vs THE BAR COUNCIL OF INDIA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1011-mihira-sood-vs-the-bar-council-of-india-552723
-
-[Read on Telegram](https://t.me/livelawindia/121328)
-
----
-### 2026-10-01T13:28:38+00:00
-Calcutta High Court Weekly Round-Up: September 14 To September 21, 2026
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-weekly-round-up-september-14-to-september-21-2026-552725
-
-[Read on Telegram](https://t.me/livelawindia/121329)
-
----
 ### 2026-10-01T13:38:18+00:00
 Calcutta High Court Orders SC/ST Act Probe Into Facebook Posts Allegedly Targeting Dalit Man, Says 'Public View' Extends Online
 https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-orders-scst-act-probe-into-facebook-posts-allegedly-targeting-dalit-man-says-public-view-extends-online-552727
@@ -142,5 +100,47 @@ LiveLaw High Courts Daily Highlights: October 01, 2026
 https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-01-2026-552769
 
 [Read on Telegram](https://t.me/livelawindia/121343)
+
+---
+### 2026-10-02T03:32:11+00:00
+Motor Accident | Dependants' Pecuniary Loss Can't Be Denied Merely Because Family Business Continued After Death: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-dependents-cannot-be-denied-pecuniary-loss-over-family-business-continuing-after-death-552718
+
+[Read on Telegram](https://t.me/livelawindia/121344)
+
+---
+### 2026-10-02T04:02:43+00:00
+Bank Transactions Alone Can't Be Treated As Husband's Monthly Disposable Income For Maintenance: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/bank-transactions-alone-cant-be-treated-as-husbands-monthly-disposable-income-for-maintenance-552752
+
+[Read on Telegram](https://t.me/livelawindia/121345)
+
+---
+### 2026-10-02T04:32:23+00:00
+'Non-Binding' Trap: What Term Sheets Really Bind You To, After Zostel V. Oravel Stays"
+https://www.livelaw.in/lawschool/articles/non-binding-trap-what-term-sheets-really-bind-you-to-after-zostel-oravel-stays-552677
+
+[Read on Telegram](https://t.me/livelawindia/121346)
+
+---
+### 2026-10-02T04:32:43+00:00
+Mere Adverse Orders, Procedural Irregularities Cannot Establish Judicial Bias To Transfer Trial: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/adverse-orders-procedural-irregularities-cannot-establish-judicial-bias-to-transfer-trial-552756
+
+[Read on Telegram](https://t.me/livelawindia/121347)
+
+---
+### 2026-10-02T04:43:33+00:00
+'Innovative Thought': Allahabad High Court Appreciates Family Court's Order Of 10% Annual Increase In Wife's Maintenance
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-innovative-10-annual-increase-wife-interim-maintenance-amount-552794
+
+[Read on Telegram](https://t.me/livelawindia/121348)
+
+---
+### 2026-10-02T04:48:13+00:00
+Madras High Court Rejects Esakki Subaya's Plea Against Election Case, But Paves Way For Bye-Polls In Ambasamudram Constituency
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-esakki-subaya-election-plea-reject-application-dismissed-552795
+
+[Read on Telegram](https://t.me/livelawindia/121349)
 
 ---
