@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-02T09:39:30+00:00*
+*Last Updated: 2026-10-02T13:26:24+00:00*
 
 ---
 
-### 2026-10-02T09:39:30+00:00
-Delhi Consumer Forum Holds Swiggy, Themis Barbeque House Liable For Misleading 'Cost For Two' Price Representation
-https://www.livelaw.in/consumer-cases/delhi-consumer-forum-holds-swiggy-themis-barbeque-house-liable-for-misleading-cost-for-two-price-representation-552849
-
-[Read on Telegram](https://t.me/livelawindia/121386)
-
----
-### 2026-10-02T10:02:21+00:00
-Writ Court Can't Sit As Academic Expert To Decide Equivalence Of Degrees Where Rules Prescribe None: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-writ-court-academic-expert-decide-equivalence-degrees-552793
-
-[Read on Telegram](https://t.me/livelawindia/121387)
-
----
-### 2026-10-02T10:02:31+00:00
-Sikkim High Court Upholds 20-Year POCSO Sentence, Holds Minority Of Survivor Proved Through Birth Certificate And Other Records
-https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-upholds-20year-pocso-sentence-552812
-
-[Read on Telegram](https://t.me/livelawindia/121388)
-
----
-### 2026-10-02T10:32:21+00:00
-Employee Terminated After Acquittal Entitled To Back Wages Till Reinstatement: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-employee-terminated-acquittal-entitled-back-wages-reinstatement-552758
-
-[Read on Telegram](https://t.me/livelawindia/121389)
-
----
-### 2026-10-02T11:02:52+00:00
-Acquisition Of Additional Land Cannot Be Done Through Corrigendum; Authorities Must Follow Statutory Procedure: Tripura High Court
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-acquisition-additional-land-corrigendum-authorities-follow-statutory-procedure-552815
-
-[Read on Telegram](https://t.me/livelawindia/121390)
-
----
-### 2026-10-02T11:03:12+00:00
-Dispute Over Sale Consideration Doesn't Invalidate Registered Sale Deed: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-nonpayment-sale-consideration-ground-declare-registered-sale-deed-void-552797
-
-[Read on Telegram](https://t.me/livelawindia/121391)
-
----
-### 2026-10-02T11:32:42+00:00
-50% Pre-Deposit For Appeal Not Exhausted At Filing Stage Where Rent Liability Is Recurring: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-predeposit-appeal-exhausted-filing-stage-rent-order-creates-recurring-liability-552798
-
-[Read on Telegram](https://t.me/livelawindia/121392)
-
----
-### 2026-10-02T12:02:23+00:00
-Backward Class Certificate Expired Before Application Deadline Is Invalid; Fresh Certificate Can't Cure Defect: P&H  High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/backward-class-certificate-expired-fresh-certificate-obtained-later-cannot-cure-defect-552761
-
-[Read on Telegram](https://t.me/livelawindia/121393)
-
----
-### 2026-10-02T12:32:54+00:00
-ED Attachment Of Property Can Be Challenged Under Article 226, But Entertaining Writ Is Court's Discretion: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-illegal-order-entertained-article226-statute-already-provides-redressal-mechanism-552803
-
-[Read on Telegram](https://t.me/livelawindia/121394)
-
----
-### 2026-10-02T13:02:14+00:00
-One-Day Lawyers' Strike Permitted In Rare Cases, But Can't Assault Lawyer Attending Court: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-bar-association-obstruct-advocate-attending-court-boycott-552830
-
-[Read on Telegram](https://t.me/livelawindia/121395)
-
----
 ### 2026-10-02T13:26:24+00:00
 [Advertisement] NLU Delhi And Mentblue Launch Batch 2 Of Certificate Course On Contract & Commercial Drafting: Strategy And Negotiation
 https://www.livelaw.in/lawschool/diploma-certificate-courses/nlu-delhi-mentblue-launch-certificate-course-contract-commercial-drafting-552868
@@ -142,5 +72,75 @@ NUSRL Ranchi's CPLAN To Organise One-Week National-Level Online Capacity Buildin
 https://www.livelaw.in/lawschool/news/nusrl-ranchis-cplan-organise-one-week-national-level-online-capacity-building-programme-law-public-policy-552885
 
 [Read on Telegram](https://t.me/livelawindia/121405)
+
+---
+### 2026-10-03T02:42:56+00:00
+LiveLaw High Courts Daily Highlights: October 02, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-02-2026-552892
+
+[Read on Telegram](https://t.me/livelawindia/121406)
+
+---
+### 2026-10-03T02:57:26+00:00
+Movie Delayed By 22 Minutes Due To Ads: Consumer Commission Orders PVR, PVR Inox To Pay ₹20,000 Compensation
+https://www.livelaw.in/consumer-cases/movie-delayed-by-22-minutes-due-to-ads-consumer-commission-orders-pvr-pvr-inox-to-pay-20000-compensation-552897
+
+[Read on Telegram](https://t.me/livelawindia/121407)
+
+---
+### 2026-10-03T03:10:46+00:00
+Gujarat UCC Bill Gets President's Assent; Registration Of Live-In Relationships, Penalties For Non-Compliance Among Key Provisions
+https://www.livelaw.in/news-updates/president-gives-assent-to-gujarats-uniform-civil-code-552901
+
+[Read on Telegram](https://t.me/livelawindia/121408)
+
+---
+### 2026-10-03T03:37:26+00:00
+Trial Judge's 'Advice' To Supreme Court On When To Grant Bail Disapproved
+https://www.livelaw.in/top-stories/trial-judges-advice-to-supreme-court-on-when-to-grant-bail-disapproved-552893
+
+[Read on Telegram](https://t.me/livelawindia/121409)
+
+---
+### 2026-10-03T03:37:36+00:00
+Meghalaya High Court Directs Authorities To Pay Land Acquisition Compensation For Border Fencing Within 3 Months
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-directs-authorities-pay-land-acquisition-compensation-border-fencing-552886
+
+[Read on Telegram](https://t.me/livelawindia/121410)
+
+---
+### 2026-10-03T03:45:37+00:00
+LiveLaw Allahabad High Court Monthly Digest: September 2026 [Citations 638 - 772]
+https://www.livelaw.in/round-ups/monthly/livelaw-allahabad-high-court-monthly-digest-september-2026-citations-638-772-552902
+
+[Read on Telegram](https://t.me/livelawindia/121411)
+
+---
+### 2026-10-03T04:13:37+00:00
+Parents Cannot Invoke Habeas Corpus To Compel Adult Daughter To Reside With Them Against Her Will: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-parents-habeas-corpus-compel-adult-daughter-reside-against-will-552910
+
+[Read on Telegram](https://t.me/livelawindia/121412)
+
+---
+### 2026-10-03T04:33:07+00:00
+Two Working Days: Code On Wages And Employee's Final Settlement
+https://www.livelaw.in/articles/two-working-days-code-wages-employee-final-settlement-552780
+
+[Read on Telegram](https://t.me/livelawindia/121413)
+
+---
+### 2026-10-03T04:33:17+00:00
+LiveLaw Delhi High Court Monthly Digest: September 2026 [Citations 795 - 938]
+https://www.livelaw.in/high-court/delhi-high-court/livelaw-delhi-high-court-monthly-digest-september-2026-citations-795-938-552770
+
+[Read on Telegram](https://t.me/livelawindia/121414)
+
+---
+### 2026-10-03T04:33:27+00:00
+SIR, Please Reconsider Sir!
+https://www.livelaw.in/articles/sir-please-reconsider-sir-552896
+
+[Read on Telegram](https://t.me/livelawindia/121415)
 
 ---
