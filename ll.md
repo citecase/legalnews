@@ -1,123 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-03T06:24:48+00:00*
+*Last Updated: 2026-10-03T10:32:42+00:00*
 
 ---
 
-### 2026-10-03T06:24:48+00:00
-Labour Licence Cannot Be Insisted Upon At Pre-Bid Stage Unless Specified In Tender Documents: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/labour-licence-cannot-be-insisted-upon-at-pre-bid-stage-unless-specified-in-tender-documents-jkl-high-court-552926
-
-[Read on Telegram](https://t.me/livelawindia/121420)
-
----
-### 2026-10-03T06:43:09+00:00
-Pillion Rider Not Covered Under Act-Only Motor Insurance Policy Without Additional Premium: Tripura High Court
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-pillion-rider-covered-motor-insurance-policy-without-additional-premium-552889
-
-[Read on Telegram](https://t.me/livelawindia/121421)
-
----
-### 2026-10-03T06:48:09+00:00
-#TheLawChallenge
- : A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
-https://www.livelaw.in/top-stories/livelaw-and-qshala-weekly-quiz-552937
-
-[Read on Telegram](https://t.me/livelawindia/121422)
-
----
-### 2026-10-03T07:02:40+00:00
-Marriage Cannot Be Reduced To Sole Object Of Procreation; Childlessness Not Cruelty: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-sole-object-marriage-not-procreation-wife-not-failed-552895
-
-[Read on Telegram](https://t.me/livelawindia/121423)
-
----
-### 2026-10-03T07:33:20+00:00
-Body Shaming Woman's Physical Appearance Is Not Offence Of Insulting Modesty Under Section 509 IPC: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-body-shaming-allegations-not-equivalent-insulting-modesty-552898
-
-[Read on Telegram](https://t.me/livelawindia/121424)
-
----
-### 2026-10-03T07:42:40+00:00
-Elected Representatives Can't Assume Role Of Police Or Courts; People's Mandate Not Source Of Unbridled Power: Supreme Court
-https://www.livelaw.in/supreme-court/elected-representatives-cant-assume-role-of-police-or-courts-peoples-mandate-not-source-of-unbridled-power-supreme-court-552945
-
-[Read on Telegram](https://t.me/livelawindia/121425)
-
----
-### 2026-10-03T08:02:30+00:00
-J&K&L High Court Upholds Constitutional Amendments Prescribing 120-Day Limit For Filing Written Statements
-https://www.livelaw.in/high-court/jammu-kashmir/jkl-high-court-upholds-constitutional-amendments-prescribing-120-day-limit-for-filing-written-statements-allows-relaxation-only-in-exceptional-cases-552890
-
-[Read on Telegram](https://t.me/livelawindia/121426)
-
----
-### 2026-10-03T08:17:30+00:00
-Mere Demand Of Exorbitant Amount As Settlement To Withdraw Litigation Not "Extortion": Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/demanding-exorbitant-amount-settlement-talks-withdraw-litigation-not-constitute-extortion-552927
-
-[Read on Telegram](https://t.me/livelawindia/121427)
-
----
-### 2026-10-03T08:32:30+00:00
-LiveLaw Madhya Pradesh High Court Monthly Digest: September 2026
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-monthly-digest-september-2026-552771
-
-[Read on Telegram](https://t.me/livelawindia/121428)
-
----
-### 2026-10-03T08:57:41+00:00
-Conversion Of Proprietorship To Family-Owned Private Limited Company Not 'Subletting' Under Public Premises Act: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/conversion-proprietorship-family-owned-private-limited-company-not-subletting-552922
-
-[Read on Telegram](https://t.me/livelawindia/121429)
-
----
-### 2026-10-03T09:03:01+00:00
-Meritorious Reserved Candidates Must Be Adjusted In Unreserved Category At Screening Stage, Not Only Final Selection: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-reserved-category-candidates-adjusted-against-unreserved-posts-552899
-
-[Read on Telegram](https://t.me/livelawindia/121430)
-
----
-### 2026-10-03T09:17:41+00:00
-S. 16(2)(c) CGST Act Valid, But Cannot Be Invoked Mechanically Against Buyers: Punjab & Haryana High Court Lays Down Guidelines
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-lays-down-section-162c-gst-act-is-valid-but-cannot-be-invoked-mechanically-against-purchasing-dealers-552960
-
-[Read on Telegram](https://t.me/livelawindia/121431)
-
----
-### 2026-10-03T09:32:31+00:00
-No More Arrest For Tax Recovery: What CBDT's Amendment To Rule 225 Really
-Changes
-https://www.livelaw.in/lawschool/articles/arrest-for-tax-recovery-what-cbdt-amendment-rule225-552786
-
-[Read on Telegram](https://t.me/livelawindia/121432)
-
----
-### 2026-10-03T09:32:51+00:00
-Taunts For Not Bearing Male Child, Threat Of Second Marriage By Themselves Don't Constitute Abetment Of Suicide: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-threats-of-second-marriage-prima-facie-constitute-suicide-abetment-552900
-
-[Read on Telegram](https://t.me/livelawindia/121433)
-
----
-### 2026-10-03T10:02:31+00:00
-Land Acquisition Authority Has No Power To Execute Its Own Award, Power Of Execution Can't Be Read Into Statute: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-land-acquisition-authority-power-execute-award-552905
-
-[Read on Telegram](https://t.me/livelawindia/121434)
-
----
-### 2026-10-03T10:07:12+00:00
-Uttarakhand High Court Orders Registry To Mask Tech Professional's Name From Digital Records After Criminal Case Was Quashed
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-orders-ecourts-registry-mask-tech-professional-name-digital-records-552928
-
-[Read on Telegram](https://t.me/livelawindia/121435)
-
----
 ### 2026-10-03T10:32:42+00:00
 Landlord Need Not Personally Occupy Premises For Son's Business To Support Eviction: Allahabad High Court
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-rented-premises-son-business-recovered-eviction-landlord-personal-physical-occupation-552913
@@ -144,5 +30,117 @@ Delhi High Court Praises Young Counsel For Being Thoroughly Prepared, Says Senio
 https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-praises-young-counsel-for-being-thoroughly-prepared-says-seniors-should-encourage-juniors-to-argue-552916
 
 [Read on Telegram](https://t.me/livelawindia/121439)
+
+---
+### 2026-10-03T11:25:13+00:00
+Executive Director – Centre For The Study Of The Legal Profession Vacancy At National Law School Of India University (NLSIU)
+https://www.livelaw.in/job-updates/executive-director-centre-for-the-study-of-the-legal-profession-vacancy-at-national-law-school-of-india-university-nlsiu-552971
+
+[Read on Telegram](https://t.me/livelawindia/121440)
+
+---
+### 2026-10-03T11:26:13+00:00
+Consultant (HR) Vacancy At National Backward Classes Finance & Development Corporation
+https://www.livelaw.in/job-updates/consultant-hr-vacancy-at-national-backward-classes-finance-development-corporation-552972
+
+[Read on Telegram](https://t.me/livelawindia/121441)
+
+---
+### 2026-10-03T11:26:53+00:00
+Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
+https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-552973
+
+[Read on Telegram](https://t.me/livelawindia/121442)
+
+---
+### 2026-10-03T11:28:13+00:00
+Principal Research Associate Vacancy At Indian Institute Of Corporate Affairs (IICA), Manesar
+https://www.livelaw.in/job-updates/principal-research-associate-vacancy-at-indian-institute-of-corporate-affairs-iica-manesar-552974
+
+[Read on Telegram](https://t.me/livelawindia/121443)
+
+---
+### 2026-10-03T11:32:33+00:00
+Land Acquisition Authority Award Executable As Decree By District Judge, However Can't Entertain Objections On Merits: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-land-acquisition-authority-award-executable-decree-552906
+
+[Read on Telegram](https://t.me/livelawindia/121444)
+
+---
+### 2026-10-03T12:02:44+00:00
+Legal Heirs Of 'Korfa' Cultivator Cannot Claim Compensation Decades After Cultivation Ceased: Tripura High Court
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-legal-heirs-korfa-cultivator-claim-compensation-decades-cultivation-ceased-552888
+
+[Read on Telegram](https://t.me/livelawindia/121445)
+
+---
+### 2026-10-03T12:29:24+00:00
+Court Seeks Police Response On Plea Against CM Rekha Gupta Over 'Hanumans' Remark On Government Officials
+https://www.livelaw.in/news-updates/court-seeks-police-response-on-plea-against-cm-rekha-gupta-over-hanumans-remark-on-government-officials-552975
+
+[Read on Telegram](https://t.me/livelawindia/121446)
+
+---
+### 2026-10-03T12:32:25+00:00
+LiveLaw Andhra Pradesh High Court Monthly Digest: September 2026
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-monthly-digest-september2026-552805
+
+[Read on Telegram](https://t.me/livelawindia/121447)
+
+---
+### 2026-10-03T13:02:15+00:00
+Digital Arrest Fraud: Delhi High Court Says Tracing Those Who Receive And Dissipate Funds As Important As Identifying Callers
+https://www.livelaw.in/high-court/delhi-high-court/digital-arrest-fraud-delhi-high-court-says-tracing-those-who-receive-and-dissipate-funds-as-important-as-identifying-callers-552920
+
+[Read on Telegram](https://t.me/livelawindia/121448)
+
+---
+### 2026-10-03T13:22:35+00:00
+Unregistered Relinquishment Deed Cannot Transfer Title: Chhattisgarh High Court Dismisses Challenge To Revenue Board Order
+https://www.livelaw.in/high-court/chhattisgarh-high-court/unregistered-relinquishment-deed-cannot-transfer-title-552925
+
+[Read on Telegram](https://t.me/livelawindia/121449)
+
+---
+### 2026-10-03T13:32:36+00:00
+Subsequent Marriage As Adults Can't Retrospectively Legalise Sexual Intercourse With Minor: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/pocso-subsequent-marriage-as-adults-cant-retrospectively-legalise-sexual-intercourse-with-minor-552923
+
+[Read on Telegram](https://t.me/livelawindia/121450)
+
+---
+### 2026-10-03T13:37:35+00:00
+Allegations Of Cruelty At Place Where Wife Resides Can Confer Territorial Jurisdiction Over Divorce Suit: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/allegations-of-cruelty-at-place-where-wife-resides-can-confer-territorial-jurisdiction-over-divorce-suit-jk-high-court-552929
+
+[Read on Telegram](https://t.me/livelawindia/121451)
+
+---
+### 2026-10-03T14:02:46+00:00
+Subsequent Abeyance Of Debarment Can't Retrospectively Make Bidder Eligible On Bid Due Date: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-order-suspending-operation-debarment-operates-prospectively-552934
+
+[Read on Telegram](https://t.me/livelawindia/121452)
+
+---
+### 2026-10-03T14:32:17+00:00
+Case Against Brothel Operators, Customers Can't Be Quashed Merely Because Women Allegedly Exploited Have No Grievance: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-immoral-traffic-act-quash-552936
+
+[Read on Telegram](https://t.me/livelawindia/121453)
+
+---
+### 2026-10-03T14:32:57+00:00
+Missing Deadline Behind Punjab's Chief Justice Dispute
+https://www.livelaw.in/articles/missing-deadline-behind-punjab-chief-justice-dispute-552787
+
+[Read on Telegram](https://t.me/livelawindia/121454)
+
+---
+### 2026-10-03T15:02:37+00:00
+Rape Violates Victim's Soul, But Society Blames Survivor & Makes Her Life A Living Hell: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/rape-violates-victims-soul-but-society-blames-survivor-makes-her-life-a-living-hell-delhi-high-court-552931
+
+[Read on Telegram](https://t.me/livelawindia/121455)
 
 ---
