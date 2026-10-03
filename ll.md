@@ -1,146 +1,148 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-02T13:26:24+00:00*
+*Last Updated: 2026-10-03T06:24:48+00:00*
 
 ---
 
-### 2026-10-02T13:26:24+00:00
-[Advertisement] NLU Delhi And Mentblue Launch Batch 2 Of Certificate Course On Contract & Commercial Drafting: Strategy And Negotiation
-https://www.livelaw.in/lawschool/diploma-certificate-courses/nlu-delhi-mentblue-launch-certificate-course-contract-commercial-drafting-552868
+### 2026-10-03T06:24:48+00:00
+Labour Licence Cannot Be Insisted Upon At Pre-Bid Stage Unless Specified In Tender Documents: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/labour-licence-cannot-be-insisted-upon-at-pre-bid-stage-unless-specified-in-tender-documents-jkl-high-court-552926
 
-[Read on Telegram](https://t.me/livelawindia/121396)
-
----
-### 2026-10-02T13:51:25+00:00
-No Devadasi Dedication Practice Currently Prevalent In Karnataka, State Tells Supreme Court
-https://www.livelaw.in/top-stories/no-devadasi-dedication-practice-currently-prevalent-in-karnataka-state-tells-supreme-court-552873
-
-[Read on Telegram](https://t.me/livelawindia/121397)
+[Read on Telegram](https://t.me/livelawindia/121420)
 
 ---
-### 2026-10-02T14:05:35+00:00
-Any Attempt To Intimidate Or Assault Medical Professionals Can't Be Tolerated : Supreme Court
-https://www.livelaw.in/top-stories/any-attempt-to-intimidate-or-assault-medical-professionals-cant-be-tolerated-supreme-court-552875
+### 2026-10-03T06:43:09+00:00
+Pillion Rider Not Covered Under Act-Only Motor Insurance Policy Without Additional Premium: Tripura High Court
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-pillion-rider-covered-motor-insurance-policy-without-additional-premium-552889
 
-[Read on Telegram](https://t.me/livelawindia/121398)
-
----
-### 2026-10-02T14:08:15+00:00
-2026 LiveLaw (SC) 1013 | STATE OF MAHARASHTRA vs. RAMESH SUKRYA MHATRE
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1013-state-of-maharashtra-vs-ramesh-sukrya-mhatre-552876
-
-[Read on Telegram](https://t.me/livelawindia/121399)
+[Read on Telegram](https://t.me/livelawindia/121421)
 
 ---
-### 2026-10-02T14:13:56+00:00
-Yamuna Expressway Bus Fire : Supreme Court Seeks Report From Centre, UP On Arrests, Safety Compliance
-https://www.livelaw.in/top-stories/yamuna-expressway-bus-fire-supreme-court-seeks-report-from-centre-up-on-arrests-safety-compliance-552877
+### 2026-10-03T06:48:09+00:00
+#TheLawChallenge
+ : A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
+https://www.livelaw.in/top-stories/livelaw-and-qshala-weekly-quiz-552937
 
-[Read on Telegram](https://t.me/livelawindia/121400)
-
----
-### 2026-10-02T14:32:56+00:00
-How Bharatiya Sakshya Adhiniyam Has Transformed Digital Evidence
-https://www.livelaw.in/articles/bharatiya-sakshya-adhiniyam-transformed-digital-evidence-552681
-
-[Read on Telegram](https://t.me/livelawindia/121401)
+[Read on Telegram](https://t.me/livelawindia/121422)
 
 ---
-### 2026-10-02T14:57:46+00:00
-Jaunpur Custodial Death 2021: Allahabad High Court Denies Bail To 4 Accused Cops, Notes CBI Allegation Of Torture, Murder
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-jaunpur-custodial-death-2021-denies-bail-cops-cbi-torture-murder-552878
+### 2026-10-03T07:02:40+00:00
+Marriage Cannot Be Reduced To Sole Object Of Procreation; Childlessness Not Cruelty: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-sole-object-marriage-not-procreation-wife-not-failed-552895
 
-[Read on Telegram](https://t.me/livelawindia/121402)
-
----
-### 2026-10-02T15:15:27+00:00
-Lawyers' Body Forms Ex-Judges' Commission To Examine SIR's Legality & Impact
-https://www.livelaw.in/top-stories/lawyers-body-forms-ex-judges-commission-to-examine-sirs-legality-impact-552879
-
-[Read on Telegram](https://t.me/livelawindia/121403)
+[Read on Telegram](https://t.me/livelawindia/121423)
 
 ---
-### 2026-10-02T17:30:19+00:00
-LiveLaw Supreme Court Criminal Law Digest: August 2026
-https://www.livelaw.in/supreme-court/supreme-court-criminal-law-digest-august-2026-552883
+### 2026-10-03T07:33:20+00:00
+Body Shaming Woman's Physical Appearance Is Not Offence Of Insulting Modesty Under Section 509 IPC: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-body-shaming-allegations-not-equivalent-insulting-modesty-552898
 
-[Read on Telegram](https://t.me/livelawindia/121404)
-
----
-### 2026-10-02T18:12:59+00:00
-NUSRL Ranchi's CPLAN To Organise One-Week National-Level Online Capacity Building Programme On Law And Public Policy
-https://www.livelaw.in/lawschool/news/nusrl-ranchis-cplan-organise-one-week-national-level-online-capacity-building-programme-law-public-policy-552885
-
-[Read on Telegram](https://t.me/livelawindia/121405)
+[Read on Telegram](https://t.me/livelawindia/121424)
 
 ---
-### 2026-10-03T02:42:56+00:00
-LiveLaw High Courts Daily Highlights: October 02, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-02-2026-552892
+### 2026-10-03T07:42:40+00:00
+Elected Representatives Can't Assume Role Of Police Or Courts; People's Mandate Not Source Of Unbridled Power: Supreme Court
+https://www.livelaw.in/supreme-court/elected-representatives-cant-assume-role-of-police-or-courts-peoples-mandate-not-source-of-unbridled-power-supreme-court-552945
 
-[Read on Telegram](https://t.me/livelawindia/121406)
-
----
-### 2026-10-03T02:57:26+00:00
-Movie Delayed By 22 Minutes Due To Ads: Consumer Commission Orders PVR, PVR Inox To Pay ₹20,000 Compensation
-https://www.livelaw.in/consumer-cases/movie-delayed-by-22-minutes-due-to-ads-consumer-commission-orders-pvr-pvr-inox-to-pay-20000-compensation-552897
-
-[Read on Telegram](https://t.me/livelawindia/121407)
+[Read on Telegram](https://t.me/livelawindia/121425)
 
 ---
-### 2026-10-03T03:10:46+00:00
-Gujarat UCC Bill Gets President's Assent; Registration Of Live-In Relationships, Penalties For Non-Compliance Among Key Provisions
-https://www.livelaw.in/news-updates/president-gives-assent-to-gujarats-uniform-civil-code-552901
+### 2026-10-03T08:02:30+00:00
+J&K&L High Court Upholds Constitutional Amendments Prescribing 120-Day Limit For Filing Written Statements
+https://www.livelaw.in/high-court/jammu-kashmir/jkl-high-court-upholds-constitutional-amendments-prescribing-120-day-limit-for-filing-written-statements-allows-relaxation-only-in-exceptional-cases-552890
 
-[Read on Telegram](https://t.me/livelawindia/121408)
-
----
-### 2026-10-03T03:37:26+00:00
-Trial Judge's 'Advice' To Supreme Court On When To Grant Bail Disapproved
-https://www.livelaw.in/top-stories/trial-judges-advice-to-supreme-court-on-when-to-grant-bail-disapproved-552893
-
-[Read on Telegram](https://t.me/livelawindia/121409)
+[Read on Telegram](https://t.me/livelawindia/121426)
 
 ---
-### 2026-10-03T03:37:36+00:00
-Meghalaya High Court Directs Authorities To Pay Land Acquisition Compensation For Border Fencing Within 3 Months
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-directs-authorities-pay-land-acquisition-compensation-border-fencing-552886
+### 2026-10-03T08:17:30+00:00
+Mere Demand Of Exorbitant Amount As Settlement To Withdraw Litigation Not "Extortion": Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/demanding-exorbitant-amount-settlement-talks-withdraw-litigation-not-constitute-extortion-552927
 
-[Read on Telegram](https://t.me/livelawindia/121410)
-
----
-### 2026-10-03T03:45:37+00:00
-LiveLaw Allahabad High Court Monthly Digest: September 2026 [Citations 638 - 772]
-https://www.livelaw.in/round-ups/monthly/livelaw-allahabad-high-court-monthly-digest-september-2026-citations-638-772-552902
-
-[Read on Telegram](https://t.me/livelawindia/121411)
+[Read on Telegram](https://t.me/livelawindia/121427)
 
 ---
-### 2026-10-03T04:13:37+00:00
-Parents Cannot Invoke Habeas Corpus To Compel Adult Daughter To Reside With Them Against Her Will: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-parents-habeas-corpus-compel-adult-daughter-reside-against-will-552910
+### 2026-10-03T08:32:30+00:00
+LiveLaw Madhya Pradesh High Court Monthly Digest: September 2026
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-monthly-digest-september-2026-552771
 
-[Read on Telegram](https://t.me/livelawindia/121412)
-
----
-### 2026-10-03T04:33:07+00:00
-Two Working Days: Code On Wages And Employee's Final Settlement
-https://www.livelaw.in/articles/two-working-days-code-wages-employee-final-settlement-552780
-
-[Read on Telegram](https://t.me/livelawindia/121413)
+[Read on Telegram](https://t.me/livelawindia/121428)
 
 ---
-### 2026-10-03T04:33:17+00:00
-LiveLaw Delhi High Court Monthly Digest: September 2026 [Citations 795 - 938]
-https://www.livelaw.in/high-court/delhi-high-court/livelaw-delhi-high-court-monthly-digest-september-2026-citations-795-938-552770
+### 2026-10-03T08:57:41+00:00
+Conversion Of Proprietorship To Family-Owned Private Limited Company Not 'Subletting' Under Public Premises Act: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/conversion-proprietorship-family-owned-private-limited-company-not-subletting-552922
 
-[Read on Telegram](https://t.me/livelawindia/121414)
+[Read on Telegram](https://t.me/livelawindia/121429)
 
 ---
-### 2026-10-03T04:33:27+00:00
-SIR, Please Reconsider Sir!
-https://www.livelaw.in/articles/sir-please-reconsider-sir-552896
+### 2026-10-03T09:03:01+00:00
+Meritorious Reserved Candidates Must Be Adjusted In Unreserved Category At Screening Stage, Not Only Final Selection: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-reserved-category-candidates-adjusted-against-unreserved-posts-552899
 
-[Read on Telegram](https://t.me/livelawindia/121415)
+[Read on Telegram](https://t.me/livelawindia/121430)
+
+---
+### 2026-10-03T09:17:41+00:00
+S. 16(2)(c) CGST Act Valid, But Cannot Be Invoked Mechanically Against Buyers: Punjab & Haryana High Court Lays Down Guidelines
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-lays-down-section-162c-gst-act-is-valid-but-cannot-be-invoked-mechanically-against-purchasing-dealers-552960
+
+[Read on Telegram](https://t.me/livelawindia/121431)
+
+---
+### 2026-10-03T09:32:31+00:00
+No More Arrest For Tax Recovery: What CBDT's Amendment To Rule 225 Really
+Changes
+https://www.livelaw.in/lawschool/articles/arrest-for-tax-recovery-what-cbdt-amendment-rule225-552786
+
+[Read on Telegram](https://t.me/livelawindia/121432)
+
+---
+### 2026-10-03T09:32:51+00:00
+Taunts For Not Bearing Male Child, Threat Of Second Marriage By Themselves Don't Constitute Abetment Of Suicide: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-threats-of-second-marriage-prima-facie-constitute-suicide-abetment-552900
+
+[Read on Telegram](https://t.me/livelawindia/121433)
+
+---
+### 2026-10-03T10:02:31+00:00
+Land Acquisition Authority Has No Power To Execute Its Own Award, Power Of Execution Can't Be Read Into Statute: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-land-acquisition-authority-power-execute-award-552905
+
+[Read on Telegram](https://t.me/livelawindia/121434)
+
+---
+### 2026-10-03T10:07:12+00:00
+Uttarakhand High Court Orders Registry To Mask Tech Professional's Name From Digital Records After Criminal Case Was Quashed
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-orders-ecourts-registry-mask-tech-professional-name-digital-records-552928
+
+[Read on Telegram](https://t.me/livelawindia/121435)
+
+---
+### 2026-10-03T10:32:42+00:00
+Landlord Need Not Personally Occupy Premises For Son's Business To Support Eviction: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-rented-premises-son-business-recovered-eviction-landlord-personal-physical-occupation-552913
+
+[Read on Telegram](https://t.me/livelawindia/121436)
+
+---
+### 2026-10-03T10:47:42+00:00
+Magistrate Must Examine Complainant, Witnesses Before Hearing Accused On Cognizance Of Private Complaint: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/magistrate-must-examine-complainant-witnesses-before-hearing-accused-on-cognizance-of-private-complaint-delhi-high-court-552933
+
+[Read on Telegram](https://t.me/livelawindia/121437)
+
+---
+### 2026-10-03T10:50:23+00:00
+Indian Youth Congress Moves Delhi High Court Against Denial Of Permission To Protest Against CEC Gyanesh Kumar At Jantar Mantar
+https://www.livelaw.in/high-court/delhi-high-court/indian-youth-congress-moves-delhi-high-court-against-denial-of-permission-to-protest-against-cec-gyanesh-kumar-at-jantar-mantar-552966
+
+[Read on Telegram](https://t.me/livelawindia/121438)
+
+---
+### 2026-10-03T11:03:03+00:00
+Delhi High Court Praises Young Counsel For Being Thoroughly Prepared, Says Seniors Should Encourage Juniors To Argue
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-praises-young-counsel-for-being-thoroughly-prepared-says-seniors-should-encourage-juniors-to-argue-552916
+
+[Read on Telegram](https://t.me/livelawindia/121439)
 
 ---
