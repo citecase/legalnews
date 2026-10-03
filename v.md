@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-02T15:02:22+00:00*
+*Last Updated: 2026-10-03T05:13:26+00:00*
+
+---
+
+### 2026-10-03T05:13:26+00:00
+Stay Of Civil Suit Does Not Automatically Bar Trial Court From Deciding Pending Temporary Injunction Application: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/badrilal-v-dhokalram-ors-2026rj-jd45420-civil-suit-stay-temporary-injunction-1623238
+
+[Source Link](https://t.me/verdictumlegalupdates/29445)
+
+---
+
+### 2026-10-03T04:32:55+00:00
+Delhi High Court Rejects Challenge To Rules Empowering District Magistrate To Evict Children Or Legal Heirs From Senior Citizen’s Property
+https://www.verdictum.in/delhi-high-court/punam-v-divisional-commissioner-gnct-of-delhi-ors-2026dhc8543-db-1623233
+
+[Source Link](https://t.me/verdictumlegalupdates/29444)
 
 ---
 
@@ -145,22 +161,6 @@ Mere Availability Of Alternative Remedy Under Order 39 Rule 2A CPC Won’t Precl
 https://www.verdictum.in/himachal-high-court/prem-lal-v-sapna-anr-2026hhc42288-o39-r2a-cpc-sec151-injunction-order-police-assistance-1623142
 
 [Source Link](https://t.me/verdictumlegalupdates/29426)
-
----
-
-### 2026-10-01T09:52:51+00:00
-Bus Conductor Or Secretary Of State, Everyone Has Equal Right To Access Justice: Apex Court Refuses Expedited Hearing Of Judicial Officer's Plea Before HC
-https://www.verdictum.in/supreme-court/equal-right-to-access-justice-judicial-officers-plea-before-hc-1623138
-
-[Source Link](https://t.me/verdictumlegalupdates/29425)
-
----
-
-### 2026-10-01T09:12:50+00:00
-Supreme Court Seeks Response From State & Others On Plea Filed By Mahua Moitra Alleging Eviction From Circuit House
-https://www.verdictum.in/supreme-court/plea-filed-by-mahua-moitra-alleging-eviction-from-circuit-house-1623134
-
-[Source Link](https://t.me/verdictumlegalupdates/29424)
 
 ---
 
