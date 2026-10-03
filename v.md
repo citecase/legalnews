@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-03T11:52:34+00:00*
+*Last Updated: 2026-10-03T15:52:45+00:00*
+
+---
+
+### 2026-10-03T15:52:45+00:00
+UPSC Invites Applications For Posts Of Assistant Legislative Counsel, Law Officer
+https://www.verdictum.in/job-updates/union-public-service-commission-1623276
+
+[Source Link](https://t.me/verdictumlegalupdates/29461)
+
+---
+
+### 2026-10-03T15:12:44+00:00
+NCTE Recognition Applications Cannot Bypass Preliminary Scrutiny And Proceed Directly To Inspection: Delhi High Court
+https://www.verdictum.in/delhi-high-court/national-council-for-teacher-education-and-another-v-shri-taijal-ba-bed-integrated-college-2026dhc8548-db-1623275
+
+[Source Link](https://t.me/verdictumlegalupdates/29460)
+
+---
+
+### 2026-10-03T14:32:43+00:00
+Karnataka High Court Asks All Family Courts To Use Term ‘Parenting Time’ Instead Of 'Visitation’
+https://www.verdictum.in/karnataka-high-court/a-v-b-family-courts-guardians-wards-act-parenting-time-visitation-1623293
+
+[Source Link](https://t.me/verdictumlegalupdates/29459)
+
+---
+
+### 2026-10-03T13:52:42+00:00
+Constitution Guarantees Equality Before Law, Not Uniformity Irrespective Of Relevant Differences: Allahabad High Court Denies Shiksha Mitras Entry Into Special TET
+https://www.verdictum.in/allahabad-high-court/vaseem-ahamad-v-state-of-up2026ahc206035-shiksha-mitras-entry-into-special-tet-1623273
+
+[Source Link](https://t.me/verdictumlegalupdates/29458)
+
+---
+
+### 2026-10-03T13:12:41+00:00
+Use Of Minors As Shield Against Police Actions: NHRC Takes Cognizance Of Alleged Exploitation Of Children In CJP's Mumbai Protest
+https://www.verdictum.in/news/human-rights-commission-cockroach-janta-party-mumbai-protest-children-1623283
+
+[Source Link](https://t.me/verdictumlegalupdates/29457)
+
+---
+
+### 2026-10-03T12:32:15+00:00
+"Due Diligence" Proviso To Order VI Rule 17 CPC Is No Bar To Amendment Seeking Incorporation Of Relief U/S 22 Specific Relief Act: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/2026-rj-jd-45424-ishwar-chand-jangid-v-manoj-kumar-sharma-1623271
+
+[Source Link](https://t.me/verdictumlegalupdates/29456)
 
 ---
 
@@ -113,54 +161,6 @@ Filing Of Domestic Violence Complaint By Spouse Not Mental Cruelty Unless Proven
 https://www.verdictum.in/himachal-high-court/bs-v-id-2026hhc41819-domestic-violence-mental-cruelty-divorce-proceedings-1623197
 
 [Source Link](https://t.me/verdictumlegalupdates/29442)
-
----
-
-### 2026-10-02T12:02:40+00:00
-Judicial Officers Must Maintain Distance From Advocates: Gujarat HC Upholds Dismissal Of Magistrate Who Accepted Phone From Lawyer
-https://www.verdictum.in/gujarat-high-court/amratlal-narendrabhai-vizoda-v-state-of-gujarat-2026gujhc61207-db-judicial-officers-must-maintain-distance-from-advocates-1623196
-
-[Source Link](https://t.me/verdictumlegalupdates/29441)
-
----
-
-### 2026-10-02T10:32:39+00:00
-Cannot Routinely Issue Look Out Circular Merely Because Investigation Is Pending: Delhi High Court Quashes LOCs In PMLA Case
-https://www.verdictum.in/delhi-high-court/deep-kumar-rastogi-v-directorate-of-enforcement-2026dhc8584-routinely-issue-look-out-circular-merely-because-investigation-is-pending-1623195
-
-[Source Link](https://t.me/verdictumlegalupdates/29440)
-
----
-
-### 2026-10-02T09:03:18+00:00
-Child Has Right To Co-Parenting By Both Parents, Deprivation Will Cause Severe Dent In Child's Personality: Delhi High Court
-https://www.verdictum.in/delhi-high-court/harcharan-singh-bhalla-v-the-state-govt-of-nct-delhi-2026dhc8403-1623165
-
-[Source Link](https://t.me/verdictumlegalupdates/29439)
-
----
-
-### 2026-10-02T07:32:37+00:00
-Peaceful Sleep Of Civilians Is At Cost Of Sleepless Nights Of Soldiers: Kerala  High Court Orders CBI Probe In Missing Soldier Case
-https://www.verdictum.in/kerala-high-court/balan-pk-v-state-of-kerala-2026ker74462-father-cbi-probe-missing-soldier-case-1623163
-
-[Source Link](https://t.me/verdictumlegalupdates/29438)
-
----
-
-### 2026-10-02T06:33:17+00:00
-Rajasthan High Court Seeks State’s Response On Effective Management And Control Of Madarsas
-https://www.verdictum.in/rajasthan-high-court/pratipal-singh-v-state-of-rajasthan-state-control-management-madrasas-1623162
-
-[Source Link](https://t.me/verdictumlegalupdates/29437)
-
----
-
-### 2026-10-02T05:32:56+00:00
-WhatsApp Circulation Of Victim’s Objectionable Videos Falls Within ‘Public View’ Under SC/ST Act: Bombay High Court Denies Anticipatory Bail
-https://www.verdictum.in/bombay-high-court/nikhil-v-state-of-maharashtra-anr2026bhc-nag13009-social-media-public-view-sc-st-act-1623161
-
-[Source Link](https://t.me/verdictumlegalupdates/29436)
 
 ---
 
