@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-03T05:13:26+00:00*
+*Last Updated: 2026-10-03T11:52:34+00:00*
+
+---
+
+### 2026-10-03T11:52:34+00:00
+Role Of Investigating Officer Is To Collect Evidence, Not To Create One: Supreme Court Acquits Murder Accused
+https://www.verdictum.in/supreme-court/the-state-of-himachal-pradesh-v-anchla-chanchla-2026-insc-1074-dna-match-accuseds-blood-showed-presence-some-point-double-murder-investigating-officer-1623269
+
+[Source Link](https://t.me/verdictumlegalupdates/29455)
+
+---
+
+### 2026-10-03T11:12:54+00:00
+Community Hall Can't Be Converted Into Place of Worship Without Collector's Prior Approval: Madras High Court Directs Demolition
+https://www.verdictum.in/madras-high-court/tirunelveli-diocesan-trust-association-v-the-district-collector-and-others-1623268
+
+[Source Link](https://t.me/verdictumlegalupdates/29454)
+
+---
+
+### 2026-10-03T10:32:53+00:00
+Mere Absence Of Documents Can’t Lead To Presumption That Cattle Was Transported For Slaughter: Supreme Court
+https://www.verdictum.in/supreme-court/saurabh-bajaj-v-state-of-chhattisgarh-2026-insc-1076-absence-documents-transport-slaughter-1623267
+
+[Source Link](https://t.me/verdictumlegalupdates/29453)
+
+---
+
+### 2026-10-03T09:52:52+00:00
+Delhi High Court Asks Govt To Take Decision On 50 % Women Reservation In Delhi Medical Council
+https://www.verdictum.in/supreme-court/govt-to-take-decision-on-50-women-reservation-in-delhi-medical-council-1623265
+
+[Source Link](https://t.me/verdictumlegalupdates/29452)
+
+---
+
+### 2026-10-03T09:12:11+00:00
+MCD's Status As GNCTD Local Body Cannot Import 10 Year Age Relaxation For Women Teachers Under 1980 Notification Without Express Provision: Delhi High Court
+https://www.verdictum.in/delhi-high-court/poonam-patwal-v-government-of-nct-of-delhi-2026dhc8562-db-en-year-age-relaxation-for-women-teachers-1623260
+
+[Source Link](https://t.me/verdictumlegalupdates/29451)
+
+---
+
+### 2026-10-03T08:32:10+00:00
+Assault Or Intimidation Of Doctors On Duty Cannot Be Tolerated: Supreme Court Cancels Bail Of Corporator, Three Co-Accused
+https://www.verdictum.in/supreme-court/state-of-maharashtra-v-ramesh-sukrya-mhatre-ors-2026-insc-1075-doctors-1623259
+
+[Source Link](https://t.me/verdictumlegalupdates/29450)
+
+---
+
+### 2026-10-03T07:53:09+00:00
+Accused Entitled To ‘Unrelied’ Upon Documents From Prosecution At Stage Of Framing Charges: Supreme Court
+https://www.verdictum.in/supreme-court/central-bureau-of-investigation-v-anil-dixit-2026-insc-1064-accused-documents-prosecuting-agency-1623253
+
+[Source Link](https://t.me/verdictumlegalupdates/29449)
+
+---
+
+### 2026-10-03T07:12:48+00:00
+Calcutta High Court Declines Interim Resumption Of Prayers At Mosque Inside Kolkata Airport
+https://www.verdictum.in/calcutta-high-court/interim-resumption-of-prayers-at-mosque-inside-kolkata-airport-declined-1623248
+
+[Source Link](https://t.me/verdictumlegalupdates/29448)
+
+---
+
+### 2026-10-03T06:32:27+00:00
+Process All Pending Applications For Conversion Of Leasehold Property To Freehold Under Prevalent Policy As On Date Of Filing Applications: Delhi High Court Directs DDA
+https://www.verdictum.in/delhi-high-court/delhi-development-authority-v-mala-sahni-seth-2026dhc8534-db-conversion-leasehold-freehold-1623245
+
+[Source Link](https://t.me/verdictumlegalupdates/29447)
+
+---
+
+### 2026-10-03T05:52:26+00:00
+No Legally Sustainable Difference Between Honourable & Other Acquittals For Granting Service Benefits Under LIC (Staff) Rules: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/ram-pal-meena-v-life-insurance-corporation-of-india-ors-2026rj-jp39143-1623240
+
+[Source Link](https://t.me/verdictumlegalupdates/29446)
 
 ---
 
@@ -81,86 +161,6 @@ WhatsApp Circulation Of Victim’s Objectionable Videos Falls Within ‘Public V
 https://www.verdictum.in/bombay-high-court/nikhil-v-state-of-maharashtra-anr2026bhc-nag13009-social-media-public-view-sc-st-act-1623161
 
 [Source Link](https://t.me/verdictumlegalupdates/29436)
-
----
-
-### 2026-10-02T04:32:35+00:00
-Supreme Court: Compromise Partition Decree Without Impleading Legal Heir Of Owner Is Nullity, Challenge Not Barred Under Order 23 Rule 3A
-https://www.verdictum.in/supreme-court/compromise-partition-decree-without-daughter-legal-heirs-necessary-party-nullity-1623160
-
-[Source Link](https://t.me/verdictumlegalupdates/29435)
-
----
-
-### 2026-10-01T15:53:18+00:00
-Legal Expert Vacancy At Urban Development Directorate Uttarakhand
-https://www.verdictum.in/job-updates/urban-development-directorate-1623152
-
-[Source Link](https://t.me/verdictumlegalupdates/29434)
-
----
-
-### 2026-10-01T15:12:18+00:00
-All Persons Irrespective Of Caste, Creed Or Colour Can Participate In Kumbabishekam: Madras High Court Orders Police Protection For Temple Function
-https://www.verdictum.in/madras-high-court/mahendran-v-the-superintendent-of-police-participate-kumbabishekam-function-police-protection-1623159
-
-[Source Link](https://t.me/verdictumlegalupdates/29433)
-
----
-
-### 2026-10-01T14:32:37+00:00
-Incomplete Chain Of Circumstance: Supreme Court Acquits Man Accused Of Rape And Murder Of Minor Girl
-https://www.verdictum.in/supreme-court/2026-insc-1073-santish-gurung-v-state-of-sikkim-1623158
-
-[Source Link](https://t.me/verdictumlegalupdates/29432)
-
----
-
-### 2026-10-01T13:52:36+00:00
-Adverse Possession Requires Open & Hostile Intention To Dispossess Owner, Mere Possession Insufficient: Himachal Pradesh High Court
-https://www.verdictum.in/himachal-high-court/state-of-himachal-pradesh-ors-v-prittam-singh-2026hhc41838-adverse-possession-1623151
-
-[Source Link](https://t.me/verdictumlegalupdates/29431)
-
----
-
-### 2026-10-01T13:12:15+00:00
-Caste Names Will Disappear Into Oblivion: Madras High Court Upholds GO Removing Caste-Based Names From Streets & Public Places
-https://www.verdictum.in/madras-high-court/s-paramasivam-v-state-of-tamil-nadu-anr-2026mhc4029-caste-names-streets-1623146
-
-[Source Link](https://t.me/verdictumlegalupdates/29430)
-
----
-
-### 2026-10-01T12:33:04+00:00
-"May Contain Microplastics" Label Mandatory For Bottled Water, Sugar & Salt: Madras High Court Dismisses FSSAI's Review Petition
-https://www.verdictum.in/madras-high-court/food-safety-and-standards-authority-of-india-v-g-subramania-koushik-2026mhc3978-may-contain-microplastics-label-mandatory-pet-bottle-water-sugar-salt-1623145
-
-[Source Link](https://t.me/verdictumlegalupdates/29429)
-
----
-
-### 2026-10-01T11:52:54+00:00
-Maternity Leave Cannot Hinder Promotion; Counting It Towards Mandatory Training Must Be Decided Case-Wise: Madras High Court
-https://www.verdictum.in/madras-high-court/the-secretary-revenue-and-disaster-management-department-ors-v-s-menaka-2026mhc4001-1623144
-
-[Source Link](https://t.me/verdictumlegalupdates/29428)
-
----
-
-### 2026-10-01T11:12:53+00:00
-Chief Justice-Centric Model Of HC Administration Requires Recalibration; Marginal Role Of Puisne Judges Runs Counter To Participatory Decision-Making: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/pappu-met-pappu-v-state-of-up-2026ahc204628-full-court-trial-court-charge-criminal-cases-1623143
-
-[Source Link](https://t.me/verdictumlegalupdates/29427)
-
----
-
-### 2026-10-01T10:32:32+00:00
-Mere Availability Of Alternative Remedy Under Order 39 Rule 2A CPC Won’t Preclude Litigant To Invoke Sec.151 CPC For Enforcement Of Injunction Order Through Police Assistance: Himachal Pradesh High Court
-https://www.verdictum.in/himachal-high-court/prem-lal-v-sapna-anr-2026hhc42288-o39-r2a-cpc-sec151-injunction-order-police-assistance-1623142
-
-[Source Link](https://t.me/verdictumlegalupdates/29426)
 
 ---
 
