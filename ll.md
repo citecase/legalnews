@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-03T11:28:13+00:00*
+*Last Updated: 2026-10-04T05:07:25+00:00*
 
 ---
 
-### 2026-10-03T11:28:13+00:00
-Principal Research Associate Vacancy At Indian Institute Of Corporate Affairs (IICA), Manesar
-https://www.livelaw.in/job-updates/principal-research-associate-vacancy-at-indian-institute-of-corporate-affairs-iica-manesar-552974
-
-[Read on Telegram](https://t.me/livelawindia/121443)
-
----
-### 2026-10-03T11:32:33+00:00
-Land Acquisition Authority Award Executable As Decree By District Judge, However Can't Entertain Objections On Merits: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-land-acquisition-authority-award-executable-decree-552906
-
-[Read on Telegram](https://t.me/livelawindia/121444)
-
----
-### 2026-10-03T12:02:44+00:00
-Legal Heirs Of 'Korfa' Cultivator Cannot Claim Compensation Decades After Cultivation Ceased: Tripura High Court
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-legal-heirs-korfa-cultivator-claim-compensation-decades-cultivation-ceased-552888
-
-[Read on Telegram](https://t.me/livelawindia/121445)
-
----
-### 2026-10-03T12:29:24+00:00
-Court Seeks Police Response On Plea Against CM Rekha Gupta Over 'Hanumans' Remark On Government Officials
-https://www.livelaw.in/news-updates/court-seeks-police-response-on-plea-against-cm-rekha-gupta-over-hanumans-remark-on-government-officials-552975
-
-[Read on Telegram](https://t.me/livelawindia/121446)
-
----
-### 2026-10-03T12:32:25+00:00
-LiveLaw Andhra Pradesh High Court Monthly Digest: September 2026
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-monthly-digest-september2026-552805
-
-[Read on Telegram](https://t.me/livelawindia/121447)
-
----
-### 2026-10-03T13:02:15+00:00
-Digital Arrest Fraud: Delhi High Court Says Tracing Those Who Receive And Dissipate Funds As Important As Identifying Callers
-https://www.livelaw.in/high-court/delhi-high-court/digital-arrest-fraud-delhi-high-court-says-tracing-those-who-receive-and-dissipate-funds-as-important-as-identifying-callers-552920
-
-[Read on Telegram](https://t.me/livelawindia/121448)
-
----
-### 2026-10-03T13:22:35+00:00
-Unregistered Relinquishment Deed Cannot Transfer Title: Chhattisgarh High Court Dismisses Challenge To Revenue Board Order
-https://www.livelaw.in/high-court/chhattisgarh-high-court/unregistered-relinquishment-deed-cannot-transfer-title-552925
-
-[Read on Telegram](https://t.me/livelawindia/121449)
-
----
-### 2026-10-03T13:32:36+00:00
-Subsequent Marriage As Adults Can't Retrospectively Legalise Sexual Intercourse With Minor: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/pocso-subsequent-marriage-as-adults-cant-retrospectively-legalise-sexual-intercourse-with-minor-552923
-
-[Read on Telegram](https://t.me/livelawindia/121450)
-
----
-### 2026-10-03T13:37:35+00:00
-Allegations Of Cruelty At Place Where Wife Resides Can Confer Territorial Jurisdiction Over Divorce Suit: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/allegations-of-cruelty-at-place-where-wife-resides-can-confer-territorial-jurisdiction-over-divorce-suit-jk-high-court-552929
-
-[Read on Telegram](https://t.me/livelawindia/121451)
-
----
-### 2026-10-03T14:02:46+00:00
-Subsequent Abeyance Of Debarment Can't Retrospectively Make Bidder Eligible On Bid Due Date: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-order-suspending-operation-debarment-operates-prospectively-552934
-
-[Read on Telegram](https://t.me/livelawindia/121452)
-
----
-### 2026-10-03T14:32:17+00:00
-Case Against Brothel Operators, Customers Can't Be Quashed Merely Because Women Allegedly Exploited Have No Grievance: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-immoral-traffic-act-quash-552936
-
-[Read on Telegram](https://t.me/livelawindia/121453)
-
----
-### 2026-10-03T14:32:57+00:00
-Missing Deadline Behind Punjab's Chief Justice Dispute
-https://www.livelaw.in/articles/missing-deadline-behind-punjab-chief-justice-dispute-552787
-
-[Read on Telegram](https://t.me/livelawindia/121454)
-
----
-### 2026-10-03T15:02:37+00:00
-Rape Violates Victim's Soul, But Society Blames Survivor & Makes Her Life A Living Hell: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/rape-violates-victims-soul-but-society-blames-survivor-makes-her-life-a-living-hell-delhi-high-court-552931
-
-[Read on Telegram](https://t.me/livelawindia/121455)
-
----
-### 2026-10-04T02:50:15+00:00
-Supreme Court Takes Suo Motu Cognisance Of Relocation Of 135-Year-Old Central Secretariat Library Under Central Vista Plan
-https://www.livelaw.in/top-stories/supreme-court-takes-suo-motu-cognisance-of-relocation-of-135-year-old-central-secretariat-library-under-central-vista-plan-552995
-
-[Read on Telegram](https://t.me/livelawindia/121456)
-
----
-### 2026-10-04T03:23:05+00:00
-Insurance Claim Repudiation: Kurnool Consumer Commission Directs ICICI Lombard To Pay ₹50 Lakh
-https://www.livelaw.in/consumer-cases/insurance-claim-repudiation-kurnool-consumer-commission-directs-icici-lombard-to-pay-50-lakh-552996
-
-[Read on Telegram](https://t.me/livelawindia/121457)
-
----
-### 2026-10-04T03:32:25+00:00
-Non-Disclosure Of Prior Job Application By Newly Appointed Employee Can't Defeat Old Pension Scheme Benefit: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/non-disclosure-of-prior-job-application-by-newly-appointed-employee-cant-defeat-old-pension-scheme-benefit-calcutta-high-court-552997
-
-[Read on Telegram](https://t.me/livelawindia/121458)
-
----
-### 2026-10-04T04:25:15+00:00
-Attempt By JPC To Meet Supreme Court Judges Was 'Shocking': Former SC Judges
-https://www.livelaw.in/top-two-news/attempt-by-jpc-to-meet-supreme-court-judges-was-shocking-former-sc-judges-552998
-
-[Read on Telegram](https://t.me/livelawindia/121459)
-
----
-### 2026-10-04T04:32:45+00:00
-Kaziranga Mining Issue: Contours Of CEC Advisory Role
-https://www.livelaw.in/articles/kaziranga-mining-issue-contours-cec-advisory-role-552976
-
-[Read on Telegram](https://t.me/livelawindia/121460)
-
----
-### 2026-10-04T04:33:05+00:00
-LiveLaw Kerala High Court Monthly Digest: September 2026
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-monthly-digest-september-2026-552772
-
-[Read on Telegram](https://t.me/livelawindia/121461)
-
----
 ### 2026-10-04T05:07:25+00:00
 LiveLaw High Courts Daily Highlights: October 03, 2026
 https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-03-2026-552999
 
 [Read on Telegram](https://t.me/livelawindia/121462)
+
+---
+### 2026-10-04T05:28:16+00:00
+Top 5 Supreme Court Judgments Of September 2026
+https://www.livelaw.in/supreme-court/top-5-supreme-court-judgments-of-september-2026-552947
+
+[Read on Telegram](https://t.me/livelawindia/121463)
+
+---
+### 2026-10-04T05:32:56+00:00
+Bar Licence Holder Can't Claim Refund For Period Licence Remained Suspended Due To Failure To Produce NOC For Renewal: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-bar-licence-renewal-requires-noc-local-authority-552938
+
+[Read on Telegram](https://t.me/livelawindia/121464)
+
+---
+### 2026-10-04T06:14:06+00:00
+Ideally, Judges' Children Should Avoid Appointments As Lawyers Of Govt Or State Agencies : Justice Oka
+https://www.livelaw.in/top-stories/ideally-judges-children-should-avoid-appointments-as-lawyers-of-govt-or-state-agencies-justice-oka-553000
+
+[Read on Telegram](https://t.me/livelawindia/121465)
+
+---
+### 2026-10-04T06:16:06+00:00
+'Disgraceful & Demeaning': Allahabad High Court Directs Action Against Advocate For Solemnizing Child Marriage In Chamber
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-disgraceful-demeaning-action-advocate-solemnizing-child-marriage-553001
+
+[Read on Telegram](https://t.me/livelawindia/121466)
+
+---
+### 2026-10-04T06:23:46+00:00
+LiveLaw Allahabad High Court Weekly Roundup: September 28 to October 4, 2026
+https://www.livelaw.in/round-ups/weekly/livelaw-allahabad-high-court-weekly-roundup-september-28-october-4-2026-553002
+
+[Read on Telegram](https://t.me/livelawindia/121467)
+
+---
+### 2026-10-04T06:32:46+00:00
+Factory Blast | National Safety Council Report, CCTV Can't Be Discarded At Charge Stage For Want Of Formal Proof: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/culpable-homicide-factory-fire-expert-safety-report-discarded-charge-stage-formal-proof-552953
+
+[Read on Telegram](https://t.me/livelawindia/121468)
+
+---
+### 2026-10-04T06:56:28+00:00
+S. 16(1) UP Gangsters Act: DM Must Refer Matter To Court After Rejecting Plea For Release Of Attached Property: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-16-up-gangsters-act-dm-reject-release-attached-property-553003
+
+[Read on Telegram](https://t.me/livelawindia/121469)
+
+---
+### 2026-10-04T07:32:18+00:00
+AP High Court Quashes Cruelty Case Against Husband, In-Laws; Notes Wife's Kin Were Earlier Convicted For Assaulting Them
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-quashes-498a-proceedings-against-husband-lacking-specific-overt-acts-552940
+
+[Read on Telegram](https://t.me/livelawindia/121470)
+
+---
+### 2026-10-04T08:32:28+00:00
+LiveLaw Rajasthan High Court Monthly Digest: September 2026
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-monthly-digest-september2026-552891
+
+[Read on Telegram](https://t.me/livelawindia/121471)
+
+---
+### 2026-10-04T09:01:19+00:00
+Principal Associate Vacancy At Ernst & Young
+https://www.livelaw.in/job-updates/principal-associate-vacancy-at-ernst-young-553004
+
+[Read on Telegram](https://t.me/livelawindia/121472)
+
+---
+### 2026-10-04T09:19:19+00:00
+Assistant Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP [Delhi; Apply Now]
+https://www.livelaw.in/job-updates/assistant-manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-delhi-553005
+
+[Read on Telegram](https://t.me/livelawindia/121473)
+
+---
+### 2026-10-04T09:32:29+00:00
+Kerala High Court Asks Legislature To Reconsider DNA Test Requirement For Correcting Father's Name In Birth Records Where Paternity Is Undisputed
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-birth-record-correction-father-552955
+
+[Read on Telegram](https://t.me/livelawindia/121474)
+
+---
+### 2026-10-04T09:32:49+00:00
+After Rejanish KV V. K Deepa: Is it Time To Reconsider 25% LDCE Quota For Higher Judicial Service?
+https://www.livelaw.in/articles/reconsider-ldce-quota-higher-judicial-service-552978
+
+[Read on Telegram](https://t.me/livelawindia/121475)
+
+---
+### 2026-10-04T10:23:39+00:00
+Top 20 High Court Judgments Of The Week
+https://www.livelaw.in/high-court/all-high-courts/most-important-high-court-judgments-of-the-week-553006
+
+[Read on Telegram](https://t.me/livelawindia/121476)
+
+---
+### 2026-10-04T10:32:39+00:00
+Shiksha Mitras Can't Claim Parity With Pre-TET In-Service Teachers, Exclusion Not Violative Of Articles 14 & 16: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-shiksha-mitras-claim-parity-pre-tet-inservice-teachers-552956
+
+[Read on Telegram](https://t.me/livelawindia/121477)
+
+---
+### 2026-10-04T10:42:59+00:00
+Can't Have An Election Commission Which Malfunctions Like This; Supreme Court Must Decide CEC Case Soon : Justice Nariman
+https://www.livelaw.in/top-stories/cant-have-an-election-commission-which-malfunctions-like-this-supreme-court-must-decide-cec-case-soon-justice-nariman-553007
+
+[Read on Telegram](https://t.me/livelawindia/121478)
+
+---
+### 2026-10-04T11:22:30+00:00
+'Legislative Privileges Shouldn't Be Invoked To Curtail Press Freedom' : The News Minute To Supreme Court
+https://www.livelaw.in/top-stories/legislative-privileges-shouldnt-be-invoked-to-curtail-press-freedom-the-news-minute-to-supreme-court-553008
+
+[Read on Telegram](https://t.me/livelawindia/121479)
+
+---
+### 2026-10-04T11:32:10+00:00
+Courts Can't Resort To Coercive Process Mechanically: AP High Court Recalls NBW Against Senior Citizen In Cheque Dishonour Case
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-recalls-non-bailable-warrant-courts-cannot-resort-coercive-process-routinely-552957
+
+[Read on Telegram](https://t.me/livelawindia/121480)
+
+---
+### 2026-10-04T11:45:10+00:00
+ECI Row : Supreme Court To Hear Tomorrow Petitions Against CEC Gyanesh Kumar Over SIR Decisions
+https://www.livelaw.in/top-stories/eci-row-supreme-court-to-hear-tomorrow-petitions-against-cec-gyanesh-kumar-over-sir-decisions-553009
+
+[Read on Telegram](https://t.me/livelawindia/121481)
 
 ---
