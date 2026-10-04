@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-03T10:32:42+00:00*
+*Last Updated: 2026-10-03T11:28:13+00:00*
 
 ---
 
-### 2026-10-03T10:32:42+00:00
-Landlord Need Not Personally Occupy Premises For Son's Business To Support Eviction: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-rented-premises-son-business-recovered-eviction-landlord-personal-physical-occupation-552913
-
-[Read on Telegram](https://t.me/livelawindia/121436)
-
----
-### 2026-10-03T10:47:42+00:00
-Magistrate Must Examine Complainant, Witnesses Before Hearing Accused On Cognizance Of Private Complaint: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/magistrate-must-examine-complainant-witnesses-before-hearing-accused-on-cognizance-of-private-complaint-delhi-high-court-552933
-
-[Read on Telegram](https://t.me/livelawindia/121437)
-
----
-### 2026-10-03T10:50:23+00:00
-Indian Youth Congress Moves Delhi High Court Against Denial Of Permission To Protest Against CEC Gyanesh Kumar At Jantar Mantar
-https://www.livelaw.in/high-court/delhi-high-court/indian-youth-congress-moves-delhi-high-court-against-denial-of-permission-to-protest-against-cec-gyanesh-kumar-at-jantar-mantar-552966
-
-[Read on Telegram](https://t.me/livelawindia/121438)
-
----
-### 2026-10-03T11:03:03+00:00
-Delhi High Court Praises Young Counsel For Being Thoroughly Prepared, Says Seniors Should Encourage Juniors To Argue
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-praises-young-counsel-for-being-thoroughly-prepared-says-seniors-should-encourage-juniors-to-argue-552916
-
-[Read on Telegram](https://t.me/livelawindia/121439)
-
----
-### 2026-10-03T11:25:13+00:00
-Executive Director – Centre For The Study Of The Legal Profession Vacancy At National Law School Of India University (NLSIU)
-https://www.livelaw.in/job-updates/executive-director-centre-for-the-study-of-the-legal-profession-vacancy-at-national-law-school-of-india-university-nlsiu-552971
-
-[Read on Telegram](https://t.me/livelawindia/121440)
-
----
-### 2026-10-03T11:26:13+00:00
-Consultant (HR) Vacancy At National Backward Classes Finance & Development Corporation
-https://www.livelaw.in/job-updates/consultant-hr-vacancy-at-national-backward-classes-finance-development-corporation-552972
-
-[Read on Telegram](https://t.me/livelawindia/121441)
-
----
-### 2026-10-03T11:26:53+00:00
-Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
-https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-552973
-
-[Read on Telegram](https://t.me/livelawindia/121442)
-
----
 ### 2026-10-03T11:28:13+00:00
 Principal Research Associate Vacancy At Indian Institute Of Corporate Affairs (IICA), Manesar
 https://www.livelaw.in/job-updates/principal-research-associate-vacancy-at-indian-institute-of-corporate-affairs-iica-manesar-552974
@@ -142,5 +93,54 @@ Rape Violates Victim's Soul, But Society Blames Survivor & Makes Her Life A Livi
 https://www.livelaw.in/high-court/delhi-high-court/rape-violates-victims-soul-but-society-blames-survivor-makes-her-life-a-living-hell-delhi-high-court-552931
 
 [Read on Telegram](https://t.me/livelawindia/121455)
+
+---
+### 2026-10-04T02:50:15+00:00
+Supreme Court Takes Suo Motu Cognisance Of Relocation Of 135-Year-Old Central Secretariat Library Under Central Vista Plan
+https://www.livelaw.in/top-stories/supreme-court-takes-suo-motu-cognisance-of-relocation-of-135-year-old-central-secretariat-library-under-central-vista-plan-552995
+
+[Read on Telegram](https://t.me/livelawindia/121456)
+
+---
+### 2026-10-04T03:23:05+00:00
+Insurance Claim Repudiation: Kurnool Consumer Commission Directs ICICI Lombard To Pay ₹50 Lakh
+https://www.livelaw.in/consumer-cases/insurance-claim-repudiation-kurnool-consumer-commission-directs-icici-lombard-to-pay-50-lakh-552996
+
+[Read on Telegram](https://t.me/livelawindia/121457)
+
+---
+### 2026-10-04T03:32:25+00:00
+Non-Disclosure Of Prior Job Application By Newly Appointed Employee Can't Defeat Old Pension Scheme Benefit: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/non-disclosure-of-prior-job-application-by-newly-appointed-employee-cant-defeat-old-pension-scheme-benefit-calcutta-high-court-552997
+
+[Read on Telegram](https://t.me/livelawindia/121458)
+
+---
+### 2026-10-04T04:25:15+00:00
+Attempt By JPC To Meet Supreme Court Judges Was 'Shocking': Former SC Judges
+https://www.livelaw.in/top-two-news/attempt-by-jpc-to-meet-supreme-court-judges-was-shocking-former-sc-judges-552998
+
+[Read on Telegram](https://t.me/livelawindia/121459)
+
+---
+### 2026-10-04T04:32:45+00:00
+Kaziranga Mining Issue: Contours Of CEC Advisory Role
+https://www.livelaw.in/articles/kaziranga-mining-issue-contours-cec-advisory-role-552976
+
+[Read on Telegram](https://t.me/livelawindia/121460)
+
+---
+### 2026-10-04T04:33:05+00:00
+LiveLaw Kerala High Court Monthly Digest: September 2026
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-monthly-digest-september-2026-552772
+
+[Read on Telegram](https://t.me/livelawindia/121461)
+
+---
+### 2026-10-04T05:07:25+00:00
+LiveLaw High Courts Daily Highlights: October 03, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-03-2026-552999
+
+[Read on Telegram](https://t.me/livelawindia/121462)
 
 ---
