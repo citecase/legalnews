@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-03T15:52:45+00:00*
+*Last Updated: 2026-10-04T06:02:57+00:00*
+
+---
+
+### 2026-10-04T06:02:57+00:00
+When Should Magistrate Issue Notice To Accused Under First Proviso To Section 223(1) BNSS? Delhi High Court Answers Reference
+https://www.verdictum.in/delhi-high-court/dr-rita-bakshi-v-seema-bajaj-anr-anita-rani-mehra-anr-v-neena-kapoor-2026dhc8460-db-1623278
+
+[Source Link](https://t.me/verdictumlegalupdates/29463)
+
+---
+
+### 2026-10-04T04:33:16+00:00
+Police Allowing POCSO Victim To Go With Accused ‘Shocking’: Madras High Court Orders Inquiry
+https://www.verdictum.in/madras-high-court/s-v-the-superintendent-of-police-ors-pocso-tamil-nadu-police-victim-1623277
+
+[Source Link](https://t.me/verdictumlegalupdates/29462)
 
 ---
 
@@ -145,22 +161,6 @@ Delhi High Court Rejects Challenge To Rules Empowering District Magistrate To Ev
 https://www.verdictum.in/delhi-high-court/punam-v-divisional-commissioner-gnct-of-delhi-ors-2026dhc8543-db-1623233
 
 [Source Link](https://t.me/verdictumlegalupdates/29444)
-
----
-
-### 2026-10-02T15:02:22+00:00
-NALSAR University of Law, Hyderabad Invites Applications For Post Of Legal Consultant (Maritime Law)
-https://www.verdictum.in/job-updates/nalsar-university-of-law-1623154
-
-[Source Link](https://t.me/verdictumlegalupdates/29443)
-
----
-
-### 2026-10-02T13:33:01+00:00
-Filing Of Domestic Violence Complaint By Spouse Not Mental Cruelty Unless Proven False Or Malicious: Himachal Pradesh High Court
-https://www.verdictum.in/himachal-high-court/bs-v-id-2026hhc41819-domestic-violence-mental-cruelty-divorce-proceedings-1623197
-
-[Source Link](https://t.me/verdictumlegalupdates/29442)
 
 ---
 
