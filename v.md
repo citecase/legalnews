@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-04T12:03:00+00:00*
+*Last Updated: 2026-10-04T15:02:42+00:00*
+
+---
+
+### 2026-10-04T15:02:42+00:00
+Manager (Legal) Vacancy At National Housing Bank (NHB)
+https://www.verdictum.in/job-updates/national-housing-bank-1623280
+
+[Source Link](https://t.me/verdictumlegalupdates/29469)
+
+---
+
+### 2026-10-04T13:33:01+00:00
+Father Can’t Be Held Liable Under Domestic Violence Act Merely Because He Didn’t Control Conduct Of His Adult Son: Delhi High Court
+https://www.verdictum.in/delhi-high-court/a-v-state-through-chief-secretary-father-liable-domestic-violence-act-conduct-adult-son-1623291
+
+[Source Link](https://t.me/verdictumlegalupdates/29468)
 
 ---
 
@@ -145,22 +161,6 @@ Assault Or Intimidation Of Doctors On Duty Cannot Be Tolerated: Supreme Court Ca
 https://www.verdictum.in/supreme-court/state-of-maharashtra-v-ramesh-sukrya-mhatre-ors-2026-insc-1075-doctors-1623259
 
 [Source Link](https://t.me/verdictumlegalupdates/29450)
-
----
-
-### 2026-10-03T07:53:09+00:00
-Accused Entitled To ‘Unrelied’ Upon Documents From Prosecution At Stage Of Framing Charges: Supreme Court
-https://www.verdictum.in/supreme-court/central-bureau-of-investigation-v-anil-dixit-2026-insc-1064-accused-documents-prosecuting-agency-1623253
-
-[Source Link](https://t.me/verdictumlegalupdates/29449)
-
----
-
-### 2026-10-03T07:12:48+00:00
-Calcutta High Court Declines Interim Resumption Of Prayers At Mosque Inside Kolkata Airport
-https://www.verdictum.in/calcutta-high-court/interim-resumption-of-prayers-at-mosque-inside-kolkata-airport-declined-1623248
-
-[Source Link](https://t.me/verdictumlegalupdates/29448)
 
 ---
 
