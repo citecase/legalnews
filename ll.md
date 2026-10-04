@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-04T05:07:25+00:00*
+*Last Updated: 2026-10-04T09:32:49+00:00*
 
 ---
 
-### 2026-10-04T05:07:25+00:00
-LiveLaw High Courts Daily Highlights: October 03, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-03-2026-552999
-
-[Read on Telegram](https://t.me/livelawindia/121462)
-
----
-### 2026-10-04T05:28:16+00:00
-Top 5 Supreme Court Judgments Of September 2026
-https://www.livelaw.in/supreme-court/top-5-supreme-court-judgments-of-september-2026-552947
-
-[Read on Telegram](https://t.me/livelawindia/121463)
-
----
-### 2026-10-04T05:32:56+00:00
-Bar Licence Holder Can't Claim Refund For Period Licence Remained Suspended Due To Failure To Produce NOC For Renewal: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-bar-licence-renewal-requires-noc-local-authority-552938
-
-[Read on Telegram](https://t.me/livelawindia/121464)
-
----
-### 2026-10-04T06:14:06+00:00
-Ideally, Judges' Children Should Avoid Appointments As Lawyers Of Govt Or State Agencies : Justice Oka
-https://www.livelaw.in/top-stories/ideally-judges-children-should-avoid-appointments-as-lawyers-of-govt-or-state-agencies-justice-oka-553000
-
-[Read on Telegram](https://t.me/livelawindia/121465)
-
----
-### 2026-10-04T06:16:06+00:00
-'Disgraceful & Demeaning': Allahabad High Court Directs Action Against Advocate For Solemnizing Child Marriage In Chamber
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-disgraceful-demeaning-action-advocate-solemnizing-child-marriage-553001
-
-[Read on Telegram](https://t.me/livelawindia/121466)
-
----
-### 2026-10-04T06:23:46+00:00
-LiveLaw Allahabad High Court Weekly Roundup: September 28 to October 4, 2026
-https://www.livelaw.in/round-ups/weekly/livelaw-allahabad-high-court-weekly-roundup-september-28-october-4-2026-553002
-
-[Read on Telegram](https://t.me/livelawindia/121467)
-
----
-### 2026-10-04T06:32:46+00:00
-Factory Blast | National Safety Council Report, CCTV Can't Be Discarded At Charge Stage For Want Of Formal Proof: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/culpable-homicide-factory-fire-expert-safety-report-discarded-charge-stage-formal-proof-552953
-
-[Read on Telegram](https://t.me/livelawindia/121468)
-
----
-### 2026-10-04T06:56:28+00:00
-S. 16(1) UP Gangsters Act: DM Must Refer Matter To Court After Rejecting Plea For Release Of Attached Property: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-16-up-gangsters-act-dm-reject-release-attached-property-553003
-
-[Read on Telegram](https://t.me/livelawindia/121469)
-
----
-### 2026-10-04T07:32:18+00:00
-AP High Court Quashes Cruelty Case Against Husband, In-Laws; Notes Wife's Kin Were Earlier Convicted For Assaulting Them
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-quashes-498a-proceedings-against-husband-lacking-specific-overt-acts-552940
-
-[Read on Telegram](https://t.me/livelawindia/121470)
-
----
-### 2026-10-04T08:32:28+00:00
-LiveLaw Rajasthan High Court Monthly Digest: September 2026
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-monthly-digest-september2026-552891
-
-[Read on Telegram](https://t.me/livelawindia/121471)
-
----
-### 2026-10-04T09:01:19+00:00
-Principal Associate Vacancy At Ernst & Young
-https://www.livelaw.in/job-updates/principal-associate-vacancy-at-ernst-young-553004
-
-[Read on Telegram](https://t.me/livelawindia/121472)
-
----
-### 2026-10-04T09:19:19+00:00
-Assistant Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP [Delhi; Apply Now]
-https://www.livelaw.in/job-updates/assistant-manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-delhi-553005
-
-[Read on Telegram](https://t.me/livelawindia/121473)
-
----
-### 2026-10-04T09:32:29+00:00
-Kerala High Court Asks Legislature To Reconsider DNA Test Requirement For Correcting Father's Name In Birth Records Where Paternity Is Undisputed
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-birth-record-correction-father-552955
-
-[Read on Telegram](https://t.me/livelawindia/121474)
-
----
 ### 2026-10-04T09:32:49+00:00
 After Rejanish KV V. K Deepa: Is it Time To Reconsider 25% LDCE Quota For Higher Judicial Service?
 https://www.livelaw.in/articles/reconsider-ldce-quota-higher-judicial-service-552978
@@ -142,5 +51,96 @@ ECI Row : Supreme Court To Hear Tomorrow Petitions Against CEC Gyanesh Kumar Ove
 https://www.livelaw.in/top-stories/eci-row-supreme-court-to-hear-tomorrow-petitions-against-cec-gyanesh-kumar-over-sir-decisions-553009
 
 [Read on Telegram](https://t.me/livelawindia/121481)
+
+---
+### 2026-10-04T12:33:00+00:00
+LiveLaw Madras High Court Monthly Digest: September 2026 [Citation 417 - 476]
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-monthly-digest-september-2026-552943
+
+[Read on Telegram](https://t.me/livelawindia/121482)
+
+---
+### 2026-10-04T12:56:31+00:00
+Senior Manager Vacancy At Godrej Properties Limited
+https://www.livelaw.in/job-updates/senior-manager-vacancy-at-godrej-properties-limited-553010
+
+[Read on Telegram](https://t.me/livelawindia/121483)
+
+---
+### 2026-10-04T13:04:51+00:00
+Compliance Analyst Vacancy At CapFloat Financial Service Private Limited
+https://www.livelaw.in/job-updates/compliance-analyst-vacancy-at-capfloat-financial-service-private-limited-553011
+
+[Read on Telegram](https://t.me/livelawindia/121484)
+
+---
+### 2026-10-04T13:33:01+00:00
+Trial Court Can't Keep Adjourning Bail Plea Merely Because Transfer Petition Is Pending In High Court Without Stay: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-trial-court-cannot-keep-adjourning-bail-plea-merely-because-transfer-petition-is-pending-in-high-court-without-stay-552958
+
+[Read on Telegram](https://t.me/livelawindia/121485)
+
+---
+### 2026-10-04T13:37:01+00:00
+Any Process Taking Away Voting Rights Of Millions Of Citizens Is Unjustifiable, No Court Can Condone It: Justice Ujjal Bhuyan
+https://www.livelaw.in/top-stories/any-process-taking-away-voting-rights-of-millions-of-citizens-is-unjustifiable-no-court-can-condone-it-justice-ujjal-bhuyan-553012
+
+[Read on Telegram](https://t.me/livelawindia/121486)
+
+---
+### 2026-10-04T13:43:21+00:00
+“Service Charge Is Voluntary, Cannot Be Forced”: Bengaluru Consumer Commission Holds Sherlock's Pub Liable
+https://www.livelaw.in/consumer-cases/service-charge-is-voluntary-cannot-be-forced-bengaluru-consumer-commission-holds-sherlocks-pub-liable-553013
+
+[Read on Telegram](https://t.me/livelawindia/121487)
+
+---
+### 2026-10-04T13:50:21+00:00
+Advocates Not Responsible For Petitioner's Whereabouts After Filing, But Must Verify Genuineness While Accepting Vakalatnama: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/advocates-not-responsible-for-petitioners-whereabouts-after-filing-but-must-verify-genuineness-while-accepting-vakalatnama-gauhati-high-court-553014
+
+[Read on Telegram](https://t.me/livelawindia/121488)
+
+---
+### 2026-10-04T14:32:12+00:00
+Gandhiji's Oceanic Circle, Inverted
+https://www.livelaw.in/articles/gandhiji-oceanic-circle-inverted-552979
+
+[Read on Telegram](https://t.me/livelawindia/121489)
+
+---
+### 2026-10-04T14:32:52+00:00
+AP High Court Quashes Cruelty Case Against Husband's NRI Relatives For Lack Of S.188 CrPC Sanction
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-quashes-498a-proceedings-husband-siblings-central-govt-sanction-section188-crpc-552959
+
+[Read on Telegram](https://t.me/livelawindia/121490)
+
+---
+### 2026-10-04T14:37:12+00:00
+Important MCQs Based On Latest Supreme Court Judgments For Law Examinations
+https://www.livelaw.in/law-exams/important-mcqs-based-on-latest-supreme-court-judgments-for-law-examinations-553016
+
+[Read on Telegram](https://t.me/livelawindia/121491)
+
+---
+### 2026-10-04T14:55:52+00:00
+NALSAR Students Are Brilliant, Bold & Brave : Justice Ujjal Bhuyan
+https://www.livelaw.in/top-stories/nalsar-students-are-brilliant-bold-brave-justice-ujjal-bhuyan-553017
+
+[Read on Telegram](https://t.me/livelawindia/121492)
+
+---
+### 2026-10-04T16:35:54+00:00
+LiveLaw Delhi High Court Weekly Round-Up: September 28 To October 04, 2026
+https://www.livelaw.in/high-court/delhi-high-court/livelaw-delhi-high-court-weekly-round-up-september-28-to-october-04-2026-553026
+
+[Read on Telegram](https://t.me/livelawindia/121493)
+
+---
+### 2026-10-04T17:06:04+00:00
+Gandhi Jayanti Celebrated At Allahabad High Court's Lucknow Bench
+https://www.livelaw.in/events/gandhi-jayanti-celebrated-at-allahabad-high-courts-lucknow-bench-553029
+
+[Read on Telegram](https://t.me/livelawindia/121494)
 
 ---
