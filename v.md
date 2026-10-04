@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-04T06:02:57+00:00*
+*Last Updated: 2026-10-04T12:03:00+00:00*
+
+---
+
+### 2026-10-04T12:03:00+00:00
+Follow Guidelines Relating To Service Of Notice To POCSO Victim’s Parents: Rajasthan High Court To Police, Public Prosecutors
+https://www.verdictum.in/rajasthan-high-court/sonu-gurjar-v-state-of-rajasthan-guidelines-service-notice-pocso-victim-police-public-prosecutors-1623289
+
+[Source Link](https://t.me/verdictumlegalupdates/29467)
+
+---
+
+### 2026-10-04T10:32:19+00:00
+Failure To Restrain Son Does Not Constitute Cruelty Under Section 498A IPC: Supreme Court Quashes Proceedings Against Mother-In-Law
+https://www.verdictum.in/supreme-court/failure-restrain-son-does-not-constitute-cruelty-section-498a-ipc-1623288
+
+[Source Link](https://t.me/verdictumlegalupdates/29466)
+
+---
+
+### 2026-10-04T09:02:18+00:00
+Body-Shaming A Woman Alone Does Not Constitute An Offence Under Section 509 IPC: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/am-and-another-v-state-of-karnataka-and-another-2026khc50353-section-509-ipc-1623287
+
+[Source Link](https://t.me/verdictumlegalupdates/29465)
+
+---
+
+### 2026-10-04T07:32:37+00:00
+India-Nepal Transit Treaty Cannot Override Customs Act Or Security-Based Import Restrictions: Madras High Court
+https://www.verdictum.in/madras-high-court/union-of-india-and-others-v-dhanalaxmi-food-private-limited-and-others-2026mhc4056-1623272
+
+[Source Link](https://t.me/verdictumlegalupdates/29464)
 
 ---
 
@@ -129,38 +161,6 @@ Calcutta High Court Declines Interim Resumption Of Prayers At Mosque Inside Kolk
 https://www.verdictum.in/calcutta-high-court/interim-resumption-of-prayers-at-mosque-inside-kolkata-airport-declined-1623248
 
 [Source Link](https://t.me/verdictumlegalupdates/29448)
-
----
-
-### 2026-10-03T06:32:27+00:00
-Process All Pending Applications For Conversion Of Leasehold Property To Freehold Under Prevalent Policy As On Date Of Filing Applications: Delhi High Court Directs DDA
-https://www.verdictum.in/delhi-high-court/delhi-development-authority-v-mala-sahni-seth-2026dhc8534-db-conversion-leasehold-freehold-1623245
-
-[Source Link](https://t.me/verdictumlegalupdates/29447)
-
----
-
-### 2026-10-03T05:52:26+00:00
-No Legally Sustainable Difference Between Honourable & Other Acquittals For Granting Service Benefits Under LIC (Staff) Rules: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/ram-pal-meena-v-life-insurance-corporation-of-india-ors-2026rj-jp39143-1623240
-
-[Source Link](https://t.me/verdictumlegalupdates/29446)
-
----
-
-### 2026-10-03T05:13:26+00:00
-Stay Of Civil Suit Does Not Automatically Bar Trial Court From Deciding Pending Temporary Injunction Application: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/badrilal-v-dhokalram-ors-2026rj-jd45420-civil-suit-stay-temporary-injunction-1623238
-
-[Source Link](https://t.me/verdictumlegalupdates/29445)
-
----
-
-### 2026-10-03T04:32:55+00:00
-Delhi High Court Rejects Challenge To Rules Empowering District Magistrate To Evict Children Or Legal Heirs From Senior Citizen’s Property
-https://www.verdictum.in/delhi-high-court/punam-v-divisional-commissioner-gnct-of-delhi-ors-2026dhc8543-db-1623233
-
-[Source Link](https://t.me/verdictumlegalupdates/29444)
 
 ---
 
