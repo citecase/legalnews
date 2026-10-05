@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-04T15:02:42+00:00*
+*Last Updated: 2026-10-05T06:02:16+00:00*
+
+---
+
+### 2026-10-05T06:02:16+00:00
+De-Recognition Is Not Closure; Statutory Prior Approval Under Rule 46 DSEA Rules Mandatory Before Surrendering School Land: Delhi High Court
+https://www.verdictum.in/delhi-high-court/2026dhc8516db-krishna-v-ring-midways-educational-institute-1623347
+
+[Source Link](https://t.me/verdictumlegalupdates/29473)
+
+---
+
+### 2026-10-05T05:42:55+00:00
+Article 226 Jurisdiction Not Intended To Provide Forum For Ventilating Personal Disputes Or Achieving Collateral Purposes Against Adversary: Delhi High Court
+https://www.verdictum.in/delhi-high-court/pushpendra-singh-parmar-v-presidentvice-presidentgeneral-secretary-icsi-2026dhc8524-article-226-jurisdiction-extraordinary-ventilating-personal-disputes-1623346
+
+[Source Link](https://t.me/verdictumlegalupdates/29472)
+
+---
+
+### 2026-10-05T05:23:04+00:00
+Prolonged, Unfounded Criminal Proceedings Must Not Become An Instrument That Destroys Career, Livelihood & Future Prospects Of Youth: Madras High Court
+https://www.verdictum.in/madras-high-court/2026-mhc-3659-member-secretary-tn-uniformed-services-recruitment-board-v-p-manikandan-1623274
+
+[Source Link](https://t.me/verdictumlegalupdates/29471)
+
+---
+
+### 2026-10-05T04:32:37+00:00
+Missing CCTV In Police Stations & No Supporting Documents Lead to Presumption Of Illegal Custody: Allahabad HC Orders Compensation
+https://www.verdictum.in/allahabad-high-court/2026-ahc-188075-db-mahendra-gaur-v-state-of-up-1623292
+
+[Source Link](https://t.me/verdictumlegalupdates/29470)
 
 ---
 
@@ -129,38 +161,6 @@ Community Hall Can't Be Converted Into Place of Worship Without Collector's Prio
 https://www.verdictum.in/madras-high-court/tirunelveli-diocesan-trust-association-v-the-district-collector-and-others-1623268
 
 [Source Link](https://t.me/verdictumlegalupdates/29454)
-
----
-
-### 2026-10-03T10:32:53+00:00
-Mere Absence Of Documents Can’t Lead To Presumption That Cattle Was Transported For Slaughter: Supreme Court
-https://www.verdictum.in/supreme-court/saurabh-bajaj-v-state-of-chhattisgarh-2026-insc-1076-absence-documents-transport-slaughter-1623267
-
-[Source Link](https://t.me/verdictumlegalupdates/29453)
-
----
-
-### 2026-10-03T09:52:52+00:00
-Delhi High Court Asks Govt To Take Decision On 50 % Women Reservation In Delhi Medical Council
-https://www.verdictum.in/supreme-court/govt-to-take-decision-on-50-women-reservation-in-delhi-medical-council-1623265
-
-[Source Link](https://t.me/verdictumlegalupdates/29452)
-
----
-
-### 2026-10-03T09:12:11+00:00
-MCD's Status As GNCTD Local Body Cannot Import 10 Year Age Relaxation For Women Teachers Under 1980 Notification Without Express Provision: Delhi High Court
-https://www.verdictum.in/delhi-high-court/poonam-patwal-v-government-of-nct-of-delhi-2026dhc8562-db-en-year-age-relaxation-for-women-teachers-1623260
-
-[Source Link](https://t.me/verdictumlegalupdates/29451)
-
----
-
-### 2026-10-03T08:32:10+00:00
-Assault Or Intimidation Of Doctors On Duty Cannot Be Tolerated: Supreme Court Cancels Bail Of Corporator, Three Co-Accused
-https://www.verdictum.in/supreme-court/state-of-maharashtra-v-ramesh-sukrya-mhatre-ors-2026-insc-1075-doctors-1623259
-
-[Source Link](https://t.me/verdictumlegalupdates/29450)
 
 ---
 
