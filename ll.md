@@ -1,128 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-04T09:32:49+00:00*
+*Last Updated: 2026-10-04T14:55:52+00:00*
 
 ---
 
-### 2026-10-04T09:32:49+00:00
-After Rejanish KV V. K Deepa: Is it Time To Reconsider 25% LDCE Quota For Higher Judicial Service?
-https://www.livelaw.in/articles/reconsider-ldce-quota-higher-judicial-service-552978
-
-[Read on Telegram](https://t.me/livelawindia/121475)
-
----
-### 2026-10-04T10:23:39+00:00
-Top 20 High Court Judgments Of The Week
-https://www.livelaw.in/high-court/all-high-courts/most-important-high-court-judgments-of-the-week-553006
-
-[Read on Telegram](https://t.me/livelawindia/121476)
-
----
-### 2026-10-04T10:32:39+00:00
-Shiksha Mitras Can't Claim Parity With Pre-TET In-Service Teachers, Exclusion Not Violative Of Articles 14 & 16: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-shiksha-mitras-claim-parity-pre-tet-inservice-teachers-552956
-
-[Read on Telegram](https://t.me/livelawindia/121477)
-
----
-### 2026-10-04T10:42:59+00:00
-Can't Have An Election Commission Which Malfunctions Like This; Supreme Court Must Decide CEC Case Soon : Justice Nariman
-https://www.livelaw.in/top-stories/cant-have-an-election-commission-which-malfunctions-like-this-supreme-court-must-decide-cec-case-soon-justice-nariman-553007
-
-[Read on Telegram](https://t.me/livelawindia/121478)
-
----
-### 2026-10-04T11:22:30+00:00
-'Legislative Privileges Shouldn't Be Invoked To Curtail Press Freedom' : The News Minute To Supreme Court
-https://www.livelaw.in/top-stories/legislative-privileges-shouldnt-be-invoked-to-curtail-press-freedom-the-news-minute-to-supreme-court-553008
-
-[Read on Telegram](https://t.me/livelawindia/121479)
-
----
-### 2026-10-04T11:32:10+00:00
-Courts Can't Resort To Coercive Process Mechanically: AP High Court Recalls NBW Against Senior Citizen In Cheque Dishonour Case
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-recalls-non-bailable-warrant-courts-cannot-resort-coercive-process-routinely-552957
-
-[Read on Telegram](https://t.me/livelawindia/121480)
-
----
-### 2026-10-04T11:45:10+00:00
-ECI Row : Supreme Court To Hear Tomorrow Petitions Against CEC Gyanesh Kumar Over SIR Decisions
-https://www.livelaw.in/top-stories/eci-row-supreme-court-to-hear-tomorrow-petitions-against-cec-gyanesh-kumar-over-sir-decisions-553009
-
-[Read on Telegram](https://t.me/livelawindia/121481)
-
----
-### 2026-10-04T12:33:00+00:00
-LiveLaw Madras High Court Monthly Digest: September 2026 [Citation 417 - 476]
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-monthly-digest-september-2026-552943
-
-[Read on Telegram](https://t.me/livelawindia/121482)
-
----
-### 2026-10-04T12:56:31+00:00
-Senior Manager Vacancy At Godrej Properties Limited
-https://www.livelaw.in/job-updates/senior-manager-vacancy-at-godrej-properties-limited-553010
-
-[Read on Telegram](https://t.me/livelawindia/121483)
-
----
-### 2026-10-04T13:04:51+00:00
-Compliance Analyst Vacancy At CapFloat Financial Service Private Limited
-https://www.livelaw.in/job-updates/compliance-analyst-vacancy-at-capfloat-financial-service-private-limited-553011
-
-[Read on Telegram](https://t.me/livelawindia/121484)
-
----
-### 2026-10-04T13:33:01+00:00
-Trial Court Can't Keep Adjourning Bail Plea Merely Because Transfer Petition Is Pending In High Court Without Stay: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-trial-court-cannot-keep-adjourning-bail-plea-merely-because-transfer-petition-is-pending-in-high-court-without-stay-552958
-
-[Read on Telegram](https://t.me/livelawindia/121485)
-
----
-### 2026-10-04T13:37:01+00:00
-Any Process Taking Away Voting Rights Of Millions Of Citizens Is Unjustifiable, No Court Can Condone It: Justice Ujjal Bhuyan
-https://www.livelaw.in/top-stories/any-process-taking-away-voting-rights-of-millions-of-citizens-is-unjustifiable-no-court-can-condone-it-justice-ujjal-bhuyan-553012
-
-[Read on Telegram](https://t.me/livelawindia/121486)
-
----
-### 2026-10-04T13:43:21+00:00
-“Service Charge Is Voluntary, Cannot Be Forced”: Bengaluru Consumer Commission Holds Sherlock's Pub Liable
-https://www.livelaw.in/consumer-cases/service-charge-is-voluntary-cannot-be-forced-bengaluru-consumer-commission-holds-sherlocks-pub-liable-553013
-
-[Read on Telegram](https://t.me/livelawindia/121487)
-
----
-### 2026-10-04T13:50:21+00:00
-Advocates Not Responsible For Petitioner's Whereabouts After Filing, But Must Verify Genuineness While Accepting Vakalatnama: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/advocates-not-responsible-for-petitioners-whereabouts-after-filing-but-must-verify-genuineness-while-accepting-vakalatnama-gauhati-high-court-553014
-
-[Read on Telegram](https://t.me/livelawindia/121488)
-
----
-### 2026-10-04T14:32:12+00:00
-Gandhiji's Oceanic Circle, Inverted
-https://www.livelaw.in/articles/gandhiji-oceanic-circle-inverted-552979
-
-[Read on Telegram](https://t.me/livelawindia/121489)
-
----
-### 2026-10-04T14:32:52+00:00
-AP High Court Quashes Cruelty Case Against Husband's NRI Relatives For Lack Of S.188 CrPC Sanction
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-quashes-498a-proceedings-husband-siblings-central-govt-sanction-section188-crpc-552959
-
-[Read on Telegram](https://t.me/livelawindia/121490)
-
----
-### 2026-10-04T14:37:12+00:00
-Important MCQs Based On Latest Supreme Court Judgments For Law Examinations
-https://www.livelaw.in/law-exams/important-mcqs-based-on-latest-supreme-court-judgments-for-law-examinations-553016
-
-[Read on Telegram](https://t.me/livelawindia/121491)
-
----
 ### 2026-10-04T14:55:52+00:00
 NALSAR Students Are Brilliant, Bold & Brave : Justice Ujjal Bhuyan
 https://www.livelaw.in/top-stories/nalsar-students-are-brilliant-bold-brave-justice-ujjal-bhuyan-553017
@@ -142,5 +23,124 @@ Gandhi Jayanti Celebrated At Allahabad High Court's Lucknow Bench
 https://www.livelaw.in/events/gandhi-jayanti-celebrated-at-allahabad-high-courts-lucknow-bench-553029
 
 [Read on Telegram](https://t.me/livelawindia/121494)
+
+---
+### 2026-10-05T02:47:36+00:00
+Special Public Prosecutor Vacancy At Central Bureau Of Investigation [Jabalpur; Apply Now]
+https://www.livelaw.in/job-updates/special-public-prosecutor-vacancy-at-central-bureau-of-investigation-jabalpur-553031
+
+[Read on Telegram](https://t.me/livelawindia/121495)
+
+---
+### 2026-10-05T02:49:16+00:00
+Joint Chief (Legal), Deputy Chief (Legal), Assistant Chief (Legal), And Bench Officer Vacancy At Central Electricity Regulatory Commission
+https://www.livelaw.in/job-updates/joint-chief-legal-deputy-chief-legal-assistant-chief-legal-and-bench-officer-vacancy-at-central-electricity-regulatory-commission-553032
+
+[Read on Telegram](https://t.me/livelawindia/121496)
+
+---
+### 2026-10-05T02:52:16+00:00
+Para Legal Volunteers Vacancy At District Legal Services Authority, Kamrup (Metro), Guwahati
+https://www.livelaw.in/job-updates/para-legal-volunteers-vacancy-at-district-legal-services-authority-kamrup-metro-guwahati-553035
+
+[Read on Telegram](https://t.me/livelawindia/121497)
+
+---
+### 2026-10-05T02:53:37+00:00
+Analyst (Tax) Vacancy At Ernst & Young [Mumbai; Apply Now]
+https://www.livelaw.in/job-updates/analyst-tax-vacancy-at-ernst-young-mumbai-553036
+
+[Read on Telegram](https://t.me/livelawindia/121498)
+
+---
+### 2026-10-05T03:11:27+00:00
+Plea Against CEC Gyanesh Kumar : Live Updates From Supreme Court
+https://www.livelaw.in/top-stories/plea-against-cec-gyanesh-kumar-live-updates-from-supreme-court-553037
+
+[Read on Telegram](https://t.me/livelawindia/121499)
+
+---
+### 2026-10-05T03:32:47+00:00
+Sale Deed Cancellation Alone Doesn't Permit Dispossession Without Eviction Order: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-decree-cancelling-sale-deed-eviction-order-permit-dispossession-553030
+
+[Read on Telegram](https://t.me/livelawindia/121500)
+
+---
+### 2026-10-05T03:47:27+00:00
+14 Years On, Gujarat High Court Acquits Two In Murder Case; Says It Was A 'Sudden Fight' Without Premeditation
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-murder-acquittal-sudden-fight-no-pre-meditation-553033
+
+[Read on Telegram](https://t.me/livelawindia/121501)
+
+---
+### 2026-10-05T04:02:10+00:00
+S.19 JJ Act | Children's Court Must Assess Need For Trial Of Juvenile As Adult Notwithstanding Juvenile Board's Report: Orissa High Court
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-children-court-assess-need-trial-juvenile-board-report-553034
+
+[Read on Telegram](https://t.me/livelawindia/121502)
+
+---
+### 2026-10-05T04:08:20+00:00
+LiveLaw Karnataka High Court Weekly Round Up: September 21 - September 27
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-round-up-553047
+
+[Read on Telegram](https://t.me/livelawindia/121503)
+
+---
+### 2026-10-05T04:14:20+00:00
+LiveLaw Breaking News Alerts: 05 October 2026
+https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts-05-october-2026-553052
+
+[Read on Telegram](https://t.me/livelawindia/121504)
+
+---
+### 2026-10-05T04:17:40+00:00
+LiveLaw Madras High Court Weekly Roundup: September 28 - October 4, 2026
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-september-28-to-october-4-2026-553039
+
+[Read on Telegram](https://t.me/livelawindia/121505)
+
+---
+### 2026-10-05T04:32:20+00:00
+Registry Vs. Reality: Why Property Registration Does Not Guarantee Valid Title
+https://www.livelaw.in/lawschool/articles/property-registration-guarantee-valid-title-552980
+
+[Read on Telegram](https://t.me/livelawindia/121506)
+
+---
+### 2026-10-05T04:32:30+00:00
+Railway Can't Deny Electricity Connection Citing Private Land When It Alone Can Supply Power: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-railway-deny-electricity-connection-citing-private-land-553045
+
+[Read on Telegram](https://t.me/livelawindia/121507)
+
+---
+### 2026-10-05T04:39:20+00:00
+Employee-Employer Dispute Over PF Forfeiture Can't Be Raised Before Consumer Forum: NCDRC
+https://www.livelaw.in/consumer-cases/employee-employer-dispute-over-pf-forfeiture-cant-be-raised-before-consumer-forum-ncdrc-553059
+
+[Read on Telegram](https://t.me/livelawindia/121508)
+
+---
+### 2026-10-05T04:43:00+00:00
+Consider Proposal For Dedicated POCSO Investigation Teams In Police Stations: Delhi High Court Directs Police Commissioner
+https://www.livelaw.in/high-court/delhi-high-court/delhi-police-dedicated-pocso-investigation-teams-in-police-stations-553048
+
+[Read on Telegram](https://t.me/livelawindia/121509)
+
+---
+### 2026-10-05T04:47:20+00:00
+Tailor Kanhaiya Lal Murder Case: Rajasthan High Court Denies Bail To Five, Says Terror Strikes At “Psychological Sovereignty” Of Nation
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-denies-bail-accused-tailor-kanhaiya-lal-udaipur-murder-case-553060
+
+[Read on Telegram](https://t.me/livelawindia/121510)
+
+---
+### 2026-10-05T04:53:10+00:00
+Cheque Bounce Complaint Filed Before Deemed Service & Expiry Of 15-Day Payment Period Is Premature: HP High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-section138-complaint-filed-deemed-service-expiry-payment-period-premature-553041
+
+[Read on Telegram](https://t.me/livelawindia/121511)
 
 ---
