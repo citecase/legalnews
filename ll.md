@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-04T14:55:52+00:00*
+*Last Updated: 2026-10-05T11:58:57+00:00*
 
 ---
 
-### 2026-10-04T14:55:52+00:00
-NALSAR Students Are Brilliant, Bold & Brave : Justice Ujjal Bhuyan
-https://www.livelaw.in/top-stories/nalsar-students-are-brilliant-bold-brave-justice-ujjal-bhuyan-553017
+### 2026-10-05T11:58:57+00:00
+BREAKING | Centre Notifies Elevation Of Justices Sunita Agarwal, DK Upadhyay & Aparesh Kumar Singh As Supreme Court Judges
+https://www.livelaw.in/top-stories/centre-notifies-appointment-of-chief-justices-sunita-agarwal-dk-upadhyay-aparesh-kumar-singh-as-supreme-court-judges-553170
 
-[Read on Telegram](https://t.me/livelawindia/121492)
-
----
-### 2026-10-04T16:35:54+00:00
-LiveLaw Delhi High Court Weekly Round-Up: September 28 To October 04, 2026
-https://www.livelaw.in/high-court/delhi-high-court/livelaw-delhi-high-court-weekly-round-up-september-28-to-october-04-2026-553026
-
-[Read on Telegram](https://t.me/livelawindia/121493)
+[Read on Telegram](https://t.me/livelawindia/121574)
 
 ---
-### 2026-10-04T17:06:04+00:00
-Gandhi Jayanti Celebrated At Allahabad High Court's Lucknow Bench
-https://www.livelaw.in/events/gandhi-jayanti-celebrated-at-allahabad-high-courts-lucknow-bench-553029
+### 2026-10-05T12:00:37+00:00
+Gujarat High Court Bar Resorted To Strike Despite Assurance That Rent Bill 2026 Won't Be Signed: AG Tells High Court
+https://www.livelaw.in/news-updates/gujarat-rent-bill-2026-lawyers-strike-553171
 
-[Read on Telegram](https://t.me/livelawindia/121494)
-
----
-### 2026-10-05T02:47:36+00:00
-Special Public Prosecutor Vacancy At Central Bureau Of Investigation [Jabalpur; Apply Now]
-https://www.livelaw.in/job-updates/special-public-prosecutor-vacancy-at-central-bureau-of-investigation-jabalpur-553031
-
-[Read on Telegram](https://t.me/livelawindia/121495)
+[Read on Telegram](https://t.me/livelawindia/121575)
 
 ---
-### 2026-10-05T02:49:16+00:00
-Joint Chief (Legal), Deputy Chief (Legal), Assistant Chief (Legal), And Bench Officer Vacancy At Central Electricity Regulatory Commission
-https://www.livelaw.in/job-updates/joint-chief-legal-deputy-chief-legal-assistant-chief-legal-and-bench-officer-vacancy-at-central-electricity-regulatory-commission-553032
+### 2026-10-05T12:12:47+00:00
+Woman Made To Believe Man Had Divorced First Wife Entitled To Maintenance Under Section 125 CrPC: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-woman-made-to-believe-first-wife-divorced-125crpc-maintenance-553172
 
-[Read on Telegram](https://t.me/livelawindia/121496)
-
----
-### 2026-10-05T02:52:16+00:00
-Para Legal Volunteers Vacancy At District Legal Services Authority, Kamrup (Metro), Guwahati
-https://www.livelaw.in/job-updates/para-legal-volunteers-vacancy-at-district-legal-services-authority-kamrup-metro-guwahati-553035
-
-[Read on Telegram](https://t.me/livelawindia/121497)
+[Read on Telegram](https://t.me/livelawindia/121576)
 
 ---
-### 2026-10-05T02:53:37+00:00
-Analyst (Tax) Vacancy At Ernst & Young [Mumbai; Apply Now]
-https://www.livelaw.in/job-updates/analyst-tax-vacancy-at-ernst-young-mumbai-553036
+### 2026-10-05T12:15:07+00:00
+Weed Out Advocates Who Casually Defy Court Orders, Take Stern Action Against Them: Bombay High Court To State Bar Council
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-advocates-casually-defy-court-orders-553175
 
-[Read on Telegram](https://t.me/livelawindia/121498)
-
----
-### 2026-10-05T03:11:27+00:00
-Plea Against CEC Gyanesh Kumar : Live Updates From Supreme Court
-https://www.livelaw.in/top-stories/plea-against-cec-gyanesh-kumar-live-updates-from-supreme-court-553037
-
-[Read on Telegram](https://t.me/livelawindia/121499)
+[Read on Telegram](https://t.me/livelawindia/121577)
 
 ---
-### 2026-10-05T03:32:47+00:00
-Sale Deed Cancellation Alone Doesn't Permit Dispossession Without Eviction Order: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-decree-cancelling-sale-deed-eviction-order-permit-dispossession-553030
+### 2026-10-05T12:28:07+00:00
+Sanctity Of Marriage Not Served By Saving It Legally When Relationship Is Substantially Eroded: Orissa High Court
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-sanctity-marriage-served-saving-legally-when-relationship-substantially-eroded-553173
 
-[Read on Telegram](https://t.me/livelawindia/121500)
-
----
-### 2026-10-05T03:47:27+00:00
-14 Years On, Gujarat High Court Acquits Two In Murder Case; Says It Was A 'Sudden Fight' Without Premeditation
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-murder-acquittal-sudden-fight-no-pre-meditation-553033
-
-[Read on Telegram](https://t.me/livelawindia/121501)
+[Read on Telegram](https://t.me/livelawindia/121578)
 
 ---
-### 2026-10-05T04:02:10+00:00
-S.19 JJ Act | Children's Court Must Assess Need For Trial Of Juvenile As Adult Notwithstanding Juvenile Board's Report: Orissa High Court
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-children-court-assess-need-trial-juvenile-board-report-553034
+### 2026-10-05T12:32:47+00:00
+'No Public View': Calcutta High Court Quashes Cruelty Case Against Husband, In-Laws Over Wife's Allegations Of Caste Abuse
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-quashes-scst-act-proceedings-against-husband-in-laws-in-wifes-cruelty-case-over-caste-abuse-allegations-553132
 
-[Read on Telegram](https://t.me/livelawindia/121502)
-
----
-### 2026-10-05T04:08:20+00:00
-LiveLaw Karnataka High Court Weekly Round Up: September 21 - September 27
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-round-up-553047
-
-[Read on Telegram](https://t.me/livelawindia/121503)
+[Read on Telegram](https://t.me/livelawindia/121579)
 
 ---
-### 2026-10-05T04:14:20+00:00
-LiveLaw Breaking News Alerts: 05 October 2026
-https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts-05-october-2026-553052
+### 2026-10-05T12:36:27+00:00
+Supreme Court Issues Notice On PIL To Fill Vacancies In State Human Rights Commissions
+https://www.livelaw.in/top-stories/supreme-court-state-human-rights-commissions-defunct-non-functional-plea-to-fill-vacancies-notice-issued-553181
 
-[Read on Telegram](https://t.me/livelawindia/121504)
-
----
-### 2026-10-05T04:17:40+00:00
-LiveLaw Madras High Court Weekly Roundup: September 28 - October 4, 2026
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-september-28-to-october-4-2026-553039
-
-[Read on Telegram](https://t.me/livelawindia/121505)
+[Read on Telegram](https://t.me/livelawindia/121580)
 
 ---
-### 2026-10-05T04:32:20+00:00
-Registry Vs. Reality: Why Property Registration Does Not Guarantee Valid Title
-https://www.livelaw.in/lawschool/articles/property-registration-guarantee-valid-title-552980
+### 2026-10-05T12:37:27+00:00
+Public Objection Alone Can't Be Ground To Reject Explosives Licence Unless Backed By Valid Ground Under Rules: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/public-opinion-or-objection-reject-application-explosive-license-recognisable-grounds-553177
 
-[Read on Telegram](https://t.me/livelawindia/121506)
-
----
-### 2026-10-05T04:32:30+00:00
-Railway Can't Deny Electricity Connection Citing Private Land When It Alone Can Supply Power: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-railway-deny-electricity-connection-citing-private-land-553045
-
-[Read on Telegram](https://t.me/livelawindia/121507)
+[Read on Telegram](https://t.me/livelawindia/121581)
 
 ---
-### 2026-10-05T04:39:20+00:00
-Employee-Employer Dispute Over PF Forfeiture Can't Be Raised Before Consumer Forum: NCDRC
-https://www.livelaw.in/consumer-cases/employee-employer-dispute-over-pf-forfeiture-cant-be-raised-before-consumer-forum-ncdrc-553059
+### 2026-10-05T12:44:47+00:00
+Can Bail Be Granted In NDPS Case For Failure To Supply Arrest Grounds Though S.37 Conditions Not Met?  Supreme Court Reserves Order
+https://www.livelaw.in/top-stories/can-bail-be-granted-in-ndps-case-for-failure-to-supply-arrest-grounds-though-s37-conditions-not-met-supreme-court-reserves-order-553187
 
-[Read on Telegram](https://t.me/livelawindia/121508)
-
----
-### 2026-10-05T04:43:00+00:00
-Consider Proposal For Dedicated POCSO Investigation Teams In Police Stations: Delhi High Court Directs Police Commissioner
-https://www.livelaw.in/high-court/delhi-high-court/delhi-police-dedicated-pocso-investigation-teams-in-police-stations-553048
-
-[Read on Telegram](https://t.me/livelawindia/121509)
+[Read on Telegram](https://t.me/livelawindia/121582)
 
 ---
-### 2026-10-05T04:47:20+00:00
-Tailor Kanhaiya Lal Murder Case: Rajasthan High Court Denies Bail To Five, Says Terror Strikes At “Psychological Sovereignty” Of Nation
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-denies-bail-accused-tailor-kanhaiya-lal-udaipur-murder-case-553060
+### 2026-10-05T13:09:37+00:00
+Bombay High Court Questions ECI's Enumeration Form Mandate For Voters Who Changed Address, Says SIR Serves No Purpose If Citizens Are Excluded
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-questions-ecis-enumeration-form-mandate-for-voters-who-changed-address-says-sir-serves-no-purpose-if-citizens-are-excluded-553190
 
-[Read on Telegram](https://t.me/livelawindia/121510)
+[Read on Telegram](https://t.me/livelawindia/121583)
 
 ---
-### 2026-10-05T04:53:10+00:00
-Cheque Bounce Complaint Filed Before Deemed Service & Expiry Of 15-Day Payment Period Is Premature: HP High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-section138-complaint-filed-deemed-service-expiry-payment-period-premature-553041
+### 2026-10-05T13:13:58+00:00
+Centre Notifies Appointment Of Judicial Officer Gurvinder Pal Singh As Additional Judge Of Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/centre-notifies-appointment-of-judicial-officer-gurvinder-pal-singh-as-additional-judge-of-delhi-high-court-553192
 
-[Read on Telegram](https://t.me/livelawindia/121511)
+[Read on Telegram](https://t.me/livelawindia/121584)
+
+---
+### 2026-10-05T13:16:58+00:00
+Mumbai–Ahmedabad High Speed Rail Project: UNUC Legal LLP Represents NHSRCL In CAM Dispute; Dispute Board Rejects L&T's Claims
+https://www.livelaw.in/law-firms/litigation/mumbaiahmedabad-high-speed-rail-project-unuc-legal-llp-represents-nhsrcl-in-cam-dispute-dispute-board-rejects-lts-claims-553193
+
+[Read on Telegram](https://t.me/livelawindia/121585)
+
+---
+### 2026-10-05T13:17:58+00:00
+Wholesale Reproduction Of News Videos Not Fair Dealing: Delhi High Court Grants Relief To ANI In Copyright Suit Against RSY News
+https://www.livelaw.in/high-court/delhi-high-court/wholesale-reproduction-of-news-videos-not-fair-dealing-delhi-high-court-grants-relief-to-ani-in-copyright-suit-against-rsy-news-553191
+
+[Read on Telegram](https://t.me/livelawindia/121586)
+
+---
+### 2026-10-05T13:42:48+00:00
+Voter Listed In Electoral Roll Cannot Be Deleted Without Notice Except In Case Of Dead Voter : Justice Ujjal Bhuyan
+https://www.livelaw.in/top-stories/voter-listed-in-electoral-roll-cannot-be-deleted-without-notice-except-in-case-of-dead-voter-justice-ujjal-bhuyan-553196
+
+[Read on Telegram](https://t.me/livelawindia/121587)
+
+---
+### 2026-10-05T13:46:48+00:00
+Supreme Court Quashes Rape Case Over Alleged False Promise Of Marriage After Three-Year Consensual Relationship
+https://www.livelaw.in/supreme-court/supreme-court-quashes-criminal-case-alleged-false-promise-marriage-consensual-relationship-553197
+
+[Read on Telegram](https://t.me/livelawindia/121588)
+
+---
+### 2026-10-05T13:47:28+00:00
+2026 LiveLaw (SC) 1015
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1015-553198
+
+[Read on Telegram](https://t.me/livelawindia/121589)
+
+---
+### 2026-10-05T13:54:48+00:00
+NDPS Act Prosecution Can't Be Quashed On Sole Ground That Disclosure Of Co-Accused Was Relied Upon : Supreme Court
+https://www.livelaw.in/supreme-court/ndps-act-prosecution-cant-be-quashed-on-sole-ground-that-disclosure-of-co-accused-was-relied-upon-supreme-court-553201
+
+[Read on Telegram](https://t.me/livelawindia/121590)
+
+---
+### 2026-10-05T13:55:28+00:00
+2026 LiveLaw (SC) 1016 | The State of Karnataka & Anr. Versus Sadiq Pasha
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1016-the-state-of-karnataka-anr-versus-sadiq-pasha-553202
+
+[Read on Telegram](https://t.me/livelawindia/121591)
+
+---
+### 2026-10-05T13:58:08+00:00
+Great Nicobar Project | 'Preservation Of Culture Is A Constitutionally Protected Fundamental Right': Justice Joymalya Bagchi
+https://www.livelaw.in/top-stories/supreme-court-justice-joymalya-bagchi-great-nicobar-island-project-preservation-of-culture-a-constitutionally-protected-fundamental-right-553206
+
+[Read on Telegram](https://t.me/livelawindia/121592)
+
+---
+### 2026-10-05T13:58:18+00:00
+LiveLaw Daily | Gyanesh Kumar | Delhi Safety | Hate Speech | Rajpal Yadav & More
+https://www.livelaw.in/podcast/eci-gyanesh-kumar-election-commission-of-india-delhi-safety-protests-cjp-rajpal-yadav-delhi-riots-india-news-553207
+
+[Read on Telegram](https://t.me/livelawindia/121593)
 
 ---
