@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-05T11:58:57+00:00*
+*Last Updated: 2026-10-05T13:42:48+00:00*
 
 ---
 
-### 2026-10-05T11:58:57+00:00
-BREAKING | Centre Notifies Elevation Of Justices Sunita Agarwal, DK Upadhyay & Aparesh Kumar Singh As Supreme Court Judges
-https://www.livelaw.in/top-stories/centre-notifies-appointment-of-chief-justices-sunita-agarwal-dk-upadhyay-aparesh-kumar-singh-as-supreme-court-judges-553170
-
-[Read on Telegram](https://t.me/livelawindia/121574)
-
----
-### 2026-10-05T12:00:37+00:00
-Gujarat High Court Bar Resorted To Strike Despite Assurance That Rent Bill 2026 Won't Be Signed: AG Tells High Court
-https://www.livelaw.in/news-updates/gujarat-rent-bill-2026-lawyers-strike-553171
-
-[Read on Telegram](https://t.me/livelawindia/121575)
-
----
-### 2026-10-05T12:12:47+00:00
-Woman Made To Believe Man Had Divorced First Wife Entitled To Maintenance Under Section 125 CrPC: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-woman-made-to-believe-first-wife-divorced-125crpc-maintenance-553172
-
-[Read on Telegram](https://t.me/livelawindia/121576)
-
----
-### 2026-10-05T12:15:07+00:00
-Weed Out Advocates Who Casually Defy Court Orders, Take Stern Action Against Them: Bombay High Court To State Bar Council
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-advocates-casually-defy-court-orders-553175
-
-[Read on Telegram](https://t.me/livelawindia/121577)
-
----
-### 2026-10-05T12:28:07+00:00
-Sanctity Of Marriage Not Served By Saving It Legally When Relationship Is Substantially Eroded: Orissa High Court
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-sanctity-marriage-served-saving-legally-when-relationship-substantially-eroded-553173
-
-[Read on Telegram](https://t.me/livelawindia/121578)
-
----
-### 2026-10-05T12:32:47+00:00
-'No Public View': Calcutta High Court Quashes Cruelty Case Against Husband, In-Laws Over Wife's Allegations Of Caste Abuse
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-quashes-scst-act-proceedings-against-husband-in-laws-in-wifes-cruelty-case-over-caste-abuse-allegations-553132
-
-[Read on Telegram](https://t.me/livelawindia/121579)
-
----
-### 2026-10-05T12:36:27+00:00
-Supreme Court Issues Notice On PIL To Fill Vacancies In State Human Rights Commissions
-https://www.livelaw.in/top-stories/supreme-court-state-human-rights-commissions-defunct-non-functional-plea-to-fill-vacancies-notice-issued-553181
-
-[Read on Telegram](https://t.me/livelawindia/121580)
-
----
-### 2026-10-05T12:37:27+00:00
-Public Objection Alone Can't Be Ground To Reject Explosives Licence Unless Backed By Valid Ground Under Rules: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/public-opinion-or-objection-reject-application-explosive-license-recognisable-grounds-553177
-
-[Read on Telegram](https://t.me/livelawindia/121581)
-
----
-### 2026-10-05T12:44:47+00:00
-Can Bail Be Granted In NDPS Case For Failure To Supply Arrest Grounds Though S.37 Conditions Not Met?  Supreme Court Reserves Order
-https://www.livelaw.in/top-stories/can-bail-be-granted-in-ndps-case-for-failure-to-supply-arrest-grounds-though-s37-conditions-not-met-supreme-court-reserves-order-553187
-
-[Read on Telegram](https://t.me/livelawindia/121582)
-
----
-### 2026-10-05T13:09:37+00:00
-Bombay High Court Questions ECI's Enumeration Form Mandate For Voters Who Changed Address, Says SIR Serves No Purpose If Citizens Are Excluded
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-questions-ecis-enumeration-form-mandate-for-voters-who-changed-address-says-sir-serves-no-purpose-if-citizens-are-excluded-553190
-
-[Read on Telegram](https://t.me/livelawindia/121583)
-
----
-### 2026-10-05T13:13:58+00:00
-Centre Notifies Appointment Of Judicial Officer Gurvinder Pal Singh As Additional Judge Of Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/centre-notifies-appointment-of-judicial-officer-gurvinder-pal-singh-as-additional-judge-of-delhi-high-court-553192
-
-[Read on Telegram](https://t.me/livelawindia/121584)
-
----
-### 2026-10-05T13:16:58+00:00
-Mumbai–Ahmedabad High Speed Rail Project: UNUC Legal LLP Represents NHSRCL In CAM Dispute; Dispute Board Rejects L&T's Claims
-https://www.livelaw.in/law-firms/litigation/mumbaiahmedabad-high-speed-rail-project-unuc-legal-llp-represents-nhsrcl-in-cam-dispute-dispute-board-rejects-lts-claims-553193
-
-[Read on Telegram](https://t.me/livelawindia/121585)
-
----
-### 2026-10-05T13:17:58+00:00
-Wholesale Reproduction Of News Videos Not Fair Dealing: Delhi High Court Grants Relief To ANI In Copyright Suit Against RSY News
-https://www.livelaw.in/high-court/delhi-high-court/wholesale-reproduction-of-news-videos-not-fair-dealing-delhi-high-court-grants-relief-to-ani-in-copyright-suit-against-rsy-news-553191
-
-[Read on Telegram](https://t.me/livelawindia/121586)
-
----
 ### 2026-10-05T13:42:48+00:00
 Voter Listed In Electoral Roll Cannot Be Deleted Without Notice Except In Case Of Dead Voter : Justice Ujjal Bhuyan
 https://www.livelaw.in/top-stories/voter-listed-in-electoral-roll-cannot-be-deleted-without-notice-except-in-case-of-dead-voter-justice-ujjal-bhuyan-553196
@@ -142,5 +51,96 @@ LiveLaw Daily | Gyanesh Kumar | Delhi Safety | Hate Speech | Rajpal Yadav & More
 https://www.livelaw.in/podcast/eci-gyanesh-kumar-election-commission-of-india-delhi-safety-protests-cjp-rajpal-yadav-delhi-riots-india-news-553207
 
 [Read on Telegram](https://t.me/livelawindia/121593)
+
+---
+### 2026-10-05T14:13:08+00:00
+Unzipping Pants, Telling Woman 'I Will Make You Pregnant' Outrages Modesty: Calcutta High Court Upholds 6-Month Jail For Man
+https://www.livelaw.in/high-court/calcutta-high-court/unzipping-pants-telling-woman-i-will-make-you-pregnant-outrages-modesty-calcutta-high-court-upholds-6-month-jail-for-man-553129
+
+[Read on Telegram](https://t.me/livelawindia/121594)
+
+---
+### 2026-10-05T14:18:49+00:00
+'Don't Let Doubts Of Others Limit Your Achievements': Gujarat High Court Chief Justice Sunita Agarwal To Women Lawyers In Farewell Speech
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-chief-justice-sunita-agarwal-farewell-553213
+
+[Read on Telegram](https://t.me/livelawindia/121595)
+
+---
+### 2026-10-05T14:32:59+00:00
+Section 20C Of Specific Relief Act: Forgotten Mandate For Speedy Civil Justice
+https://www.livelaw.in/articles/section20c-specific-relief-act-forgotten-mandate-speedy-civil-justice-553111
+
+[Read on Telegram](https://t.me/livelawindia/121596)
+
+---
+### 2026-10-05T14:40:39+00:00
+Tax Classification Must Be Based On Form Of Good At Stage Of Sale & Not Its End Use : Supreme Court
+https://www.livelaw.in/supreme-court/tax-classification-must-be-based-on-form-of-good-at-stage-of-sale-not-its-end-use-supreme-court-553219
+
+[Read on Telegram](https://t.me/livelawindia/121597)
+
+---
+### 2026-10-05T14:42:19+00:00
+2026 LiveLaw (SC) 1017 | ADDL. COMMR. COMMERCIAL TAX & ORS. VERSUS CADILA HEALTH CARE LTD & ANR
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1017-addl-commr-commercial-tax-ors-versus-cadila-health-care-ltd-anr-553220
+
+[Read on Telegram](https://t.me/livelawindia/121598)
+
+---
+### 2026-10-05T15:33:29+00:00
+Don't Interfere With 5-Time Azan At Saharanpur Mosque If Noise Rules Followed: Allahabad High Court Directs Police
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-police-5-time-azan-saharanpur-mosque-noise-rules-loudspeaker-553224
+
+[Read on Telegram](https://t.me/livelawindia/121599)
+
+---
+### 2026-10-05T15:50:09+00:00
+UP Police Fail To Trace Missing Woman Of Unsound Mind For Over 2 Years, Allahabad High Court Transfers Probe To CBI
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-up-police-fail-trace-missing-woman-unsound-mind-transfers-probe-cbi-553225
+
+[Read on Telegram](https://t.me/livelawindia/121600)
+
+---
+### 2026-10-05T16:12:20+00:00
+LiveLaw Rajasthan High Court Weekly Round-Up: September 28 - October 4, 2026
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-weekly-roundup-553227
+
+[Read on Telegram](https://t.me/livelawindia/121601)
+
+---
+### 2026-10-05T16:12:40+00:00
+Centre Notifies Appointment Of Justice Manash Ranjan As Acting Chief Justice Of Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/centre-notifies-appointment-of-justice-manash-ranjan-as-acting-chief-justice-of-gujarat-high-court-553228
+
+[Read on Telegram](https://t.me/livelawindia/121602)
+
+---
+### 2026-10-05T16:19:00+00:00
+Centre Notifies Appointment Of Justice P Sam Koshy As Acting Chief Justice Of Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/centre-notifies-appointment-justice-p-sam-koshy-acting-chief-justice-telangana-high-court-553229
+
+[Read on Telegram](https://t.me/livelawindia/121603)
+
+---
+### 2026-10-05T16:47:30+00:00
+Justice Nitin Sambre Appointed As Delhi High Court Acting Chief Justice
+https://www.livelaw.in/high-court/delhi-high-court/justice-nitin-sambre-appointed-as-delhi-high-court-acting-chief-justice-553231
+
+[Read on Telegram](https://t.me/livelawindia/121604)
+
+---
+### 2026-10-05T17:22:30+00:00
+Supreme Court Daily Round-Up : October 5, 2026
+https://www.livelaw.in/round-ups/supreme-court-daily-round-up-october-5-2026-553230
+
+[Read on Telegram](https://t.me/livelawindia/121605)
+
+---
+### 2026-10-05T17:32:40+00:00
+LiveLaw High Courts Daily Highlights: October 05, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-05-2026-553226
+
+[Read on Telegram](https://t.me/livelawindia/121606)
 
 ---
