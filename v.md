@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-05T16:02:35+00:00*
+*Last Updated: 2026-10-06T06:32:29+00:00*
+
+---
+
+### 2026-10-06T06:32:29+00:00
+Alleged Police Misconduct During 2020 Delhi Riots Is Not, By Itself, Ground For Transfer Of Probe: Delhi High Court
+https://www.verdictum.in/delhi-high-court/shaikh-mujtaba-farooq-v-union-of-india-2026dhc8710-db-police-misconduct-allegation-investigation-fair-probe-1623426
+
+[Source Link](https://t.me/verdictumlegalupdates/29499)
+
+---
+
+### 2026-10-06T05:57:29+00:00
+Supreme Court Disposes Of 2003 Tamil Nadu Assembly Privilege Reference As Infructuous; Keeps Constitutional Questions Open
+https://www.verdictum.in/supreme-court/disposes-2003-tamil-nadu-assembly-privilege-reference-infructuous-1623428
+
+[Source Link](https://t.me/verdictumlegalupdates/29498)
+
+---
+
+### 2026-10-06T05:33:07+00:00
+Centre Notifies Appointment Of Acting Chief Justices For Three High Courts, Additional Judge For Delhi HC
+https://www.verdictum.in/court-updates/high-courts/appointment-of-acting-chief-justices-for-three-high-courts-additional-judge-for-delhi-hc-1623420
+
+[Source Link](https://t.me/verdictumlegalupdates/29497)
+
+---
+
+### 2026-10-06T05:03:07+00:00
+'Advocates Can't Be Made Guarantors For Petitioner’s Whereabouts': Gauhati High Court Sets Aside Costs After Petitioner Could Not Be Traced
+https://www.verdictum.in/guwahati-high-court/harbinder-singh-kalsi-and-another-v-state-of-assam-and-others-advocates-1623387
+
+[Source Link](https://t.me/verdictumlegalupdates/29496)
+
+---
+
+### 2026-10-06T04:32:56+00:00
+Victim’s Wish To Preserve Family With Accused & Child’s Interest Not Sufficient To Quash POCSO Case: Delhi High Court
+https://www.verdictum.in/delhi-high-court/x-v-the-state-pocso-victim-accused-married-child-interest-family-minor-pregnancy-1623393
+
+[Source Link](https://t.me/verdictumlegalupdates/29495)
 
 ---
 
@@ -121,46 +161,6 @@ Supreme Court Agrees To List Plea Seeking Permission For Peaceful Protests In De
 https://www.verdictum.in/supreme-court/plea-seeking-permission-for-peaceful-protests-in-delhi-against-eci-1623374
 
 [Source Link](https://t.me/verdictumlegalupdates/29480)
-
----
-
-### 2026-10-05T09:02:21+00:00
-One-Day Abstention Exception Does Not Permit Bar Association To Obstruct Advocates From Attending Court: Telangana High Court
-https://www.verdictum.in/telangana-high-court/vijay-gopal-v-nv-ramana-goud-and-others-bar-association-strike-abstention-1623366
-
-[Source Link](https://t.me/verdictumlegalupdates/29479)
-
----
-
-### 2026-10-05T08:33:01+00:00
-You Are Putting The Cart Before Horse, We Expect ECI To Respond In Transparent Manner: Apex Court Refuses Interim Order To Suspend CEC Gyanesh Kumar
-https://www.verdictum.in/supreme-court/refuses-interim-order-suspend-cec-gyanesh-kumar-1623373
-
-[Source Link](https://t.me/verdictumlegalupdates/29478)
-
----
-
-### 2026-10-05T08:02:20+00:00
-Delhi High Court Dismisses Pleas For SIT Probe Into 2020 Riots, 2019 Jamia Violence
-https://www.verdictum.in/delhi-high-court/pleas-for-sit-probe-into-2020-riots-2019-jamia-violence-dismissed-1623351
-
-[Source Link](https://t.me/verdictumlegalupdates/29477)
-
----
-
-### 2026-10-05T07:16:19+00:00
-We Must Ensure Every Woman In Delhi Should Feel Safe Even At Late Night: Supreme Court Asks Delhi Police To Take Steps For Prevention Of Rape Cases
-https://www.verdictum.in/supreme-court/delhi-rapes-must-ensure-woman-in-delhi-feel-safe-at-night-delhi-police-steps-to-crimes-1623363
-
-[Source Link](https://t.me/verdictumlegalupdates/29476)
-
----
-
-### 2026-10-05T07:02:18+00:00
-Supreme Court Asks Delhi HC To Consider Plea Challenging Centre's Decision To Take Over Delhi Gymkhana Club
-https://www.verdictum.in/supreme-court/plea-challenging-centres-decision-to-take-over-delhi-gymkhana-club-1623352
-
-[Source Link](https://t.me/verdictumlegalupdates/29475)
 
 ---
 
