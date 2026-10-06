@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-05T15:02:57+00:00*
+*Last Updated: 2026-10-05T16:02:35+00:00*
+
+---
+
+### 2026-10-05T16:02:35+00:00
+GST Refund Can Be Withheld During Pending Anti-Evasion Investigation Without Separate Court Stay: Delhi High Court
+https://www.verdictum.in/delhi-high-court/devi-electronics-private-limited-v-commissioner-cgst-delhi-south-and-others-2026dhc8551-db-1623392
+
+[Source Link](https://t.me/verdictumlegalupdates/29494)
+
+---
+
+### 2026-10-05T15:33:03+00:00
+Sympathy Or Possibility Of Academic Loss Cannot Substitute Eligibility Requirement: Delhi High Court Dismisses JEE Aspirant's Plea For Supernumerary IIT Seat
+https://www.verdictum.in/delhi-high-court/ashi-agarwal-v-union-of-india-2026dhc8630-nta-iit-jee-aspirants-plea-for-supernumerary-iit-seat-1623391
+
+[Source Link](https://t.me/verdictumlegalupdates/29493)
 
 ---
 
@@ -145,22 +161,6 @@ Supreme Court Asks Delhi HC To Consider Plea Challenging Centre's Decision To Ta
 https://www.verdictum.in/supreme-court/plea-challenging-centres-decision-to-take-over-delhi-gymkhana-club-1623352
 
 [Source Link](https://t.me/verdictumlegalupdates/29475)
-
----
-
-### 2026-10-05T06:30:57+00:00
-Supreme Court Takes Suo Motu Cognizance Of 135-Year-Old Library's Relocation After It Was Allocated Only Two Rooms In Central Vista Plan
-https://www.verdictum.in/supreme-court/suo-motu-cognizance-of-135-year-old-library-two-rooms-central-vista-plan-1623356
-
-[Source Link](https://t.me/verdictumlegalupdates/29474)
-
----
-
-### 2026-10-05T06:02:16+00:00
-De-Recognition Is Not Closure; Statutory Prior Approval Under Rule 46 DSEA Rules Mandatory Before Surrendering School Land: Delhi High Court
-https://www.verdictum.in/delhi-high-court/2026dhc8516db-krishna-v-ring-midways-educational-institute-1623347
-
-[Source Link](https://t.me/verdictumlegalupdates/29473)
 
 ---
 
