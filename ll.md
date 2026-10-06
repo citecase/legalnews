@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-05T13:42:48+00:00*
+*Last Updated: 2026-10-06T04:33:06+00:00*
 
 ---
 
-### 2026-10-05T13:42:48+00:00
-Voter Listed In Electoral Roll Cannot Be Deleted Without Notice Except In Case Of Dead Voter : Justice Ujjal Bhuyan
-https://www.livelaw.in/top-stories/voter-listed-in-electoral-roll-cannot-be-deleted-without-notice-except-in-case-of-dead-voter-justice-ujjal-bhuyan-553196
+### 2026-10-06T04:33:06+00:00
+Cruelty FIR Can Be Quashed Where Parties Have Genuinely, Amicably Settled Differences: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-quashes-section85-bns-case-against-husband-553257
 
-[Read on Telegram](https://t.me/livelawindia/121587)
-
----
-### 2026-10-05T13:46:48+00:00
-Supreme Court Quashes Rape Case Over Alleged False Promise Of Marriage After Three-Year Consensual Relationship
-https://www.livelaw.in/supreme-court/supreme-court-quashes-criminal-case-alleged-false-promise-marriage-consensual-relationship-553197
-
-[Read on Telegram](https://t.me/livelawindia/121588)
+[Read on Telegram](https://t.me/livelawindia/121612)
 
 ---
-### 2026-10-05T13:47:28+00:00
-2026 LiveLaw (SC) 1015
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1015-553198
+### 2026-10-06T04:38:06+00:00
+Delhi High Court Declares Nehru Place No-Hawking, No-Vending Zone; MCD Free To Remove Unauthorized Vendors After October 12
+https://www.livelaw.in/high-court/delhi-high-court/nehru-place-no-hawking-vending-zone-mcd-remove-unauthorized-vendors-553260
 
-[Read on Telegram](https://t.me/livelawindia/121589)
-
----
-### 2026-10-05T13:54:48+00:00
-NDPS Act Prosecution Can't Be Quashed On Sole Ground That Disclosure Of Co-Accused Was Relied Upon : Supreme Court
-https://www.livelaw.in/supreme-court/ndps-act-prosecution-cant-be-quashed-on-sole-ground-that-disclosure-of-co-accused-was-relied-upon-supreme-court-553201
-
-[Read on Telegram](https://t.me/livelawindia/121590)
+[Read on Telegram](https://t.me/livelawindia/121613)
 
 ---
-### 2026-10-05T13:55:28+00:00
-2026 LiveLaw (SC) 1016 | The State of Karnataka & Anr. Versus Sadiq Pasha
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1016-the-state-of-karnataka-anr-versus-sadiq-pasha-553202
+### 2026-10-06T04:39:46+00:00
+Special Public Prosecutor Vacancy At Central Bureau Of Investigation [Lucknow; Apply Now]
+https://www.livelaw.in/job-updates/special-public-prosecutor-vacancy-at-central-bureau-of-investigation-lucknow-553261
 
-[Read on Telegram](https://t.me/livelawindia/121591)
-
----
-### 2026-10-05T13:58:08+00:00
-Great Nicobar Project | 'Preservation Of Culture Is A Constitutionally Protected Fundamental Right': Justice Joymalya Bagchi
-https://www.livelaw.in/top-stories/supreme-court-justice-joymalya-bagchi-great-nicobar-island-project-preservation-of-culture-a-constitutionally-protected-fundamental-right-553206
-
-[Read on Telegram](https://t.me/livelawindia/121592)
+[Read on Telegram](https://t.me/livelawindia/121614)
 
 ---
-### 2026-10-05T13:58:18+00:00
-LiveLaw Daily | Gyanesh Kumar | Delhi Safety | Hate Speech | Rajpal Yadav & More
-https://www.livelaw.in/podcast/eci-gyanesh-kumar-election-commission-of-india-delhi-safety-protests-cjp-rajpal-yadav-delhi-riots-india-news-553207
+### 2026-10-06T04:40:46+00:00
+Consultant (Legal) Vacancy At HMT Limited
+https://www.livelaw.in/job-updates/consultant-legal-vacancy-at-hmt-limited-553262
 
-[Read on Telegram](https://t.me/livelawindia/121593)
-
----
-### 2026-10-05T14:13:08+00:00
-Unzipping Pants, Telling Woman 'I Will Make You Pregnant' Outrages Modesty: Calcutta High Court Upholds 6-Month Jail For Man
-https://www.livelaw.in/high-court/calcutta-high-court/unzipping-pants-telling-woman-i-will-make-you-pregnant-outrages-modesty-calcutta-high-court-upholds-6-month-jail-for-man-553129
-
-[Read on Telegram](https://t.me/livelawindia/121594)
+[Read on Telegram](https://t.me/livelawindia/121615)
 
 ---
-### 2026-10-05T14:18:49+00:00
-'Don't Let Doubts Of Others Limit Your Achievements': Gujarat High Court Chief Justice Sunita Agarwal To Women Lawyers In Farewell Speech
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-chief-justice-sunita-agarwal-farewell-553213
+### 2026-10-06T04:43:16+00:00
+'Cooperation' With Drug Traffickers Not Enough For NDPS Conspiracy Charge Without Specific Overt Act: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-quashes-ndps-charges-allegation-cooperation-without-specific-role-553258
 
-[Read on Telegram](https://t.me/livelawindia/121595)
-
----
-### 2026-10-05T14:32:59+00:00
-Section 20C Of Specific Relief Act: Forgotten Mandate For Speedy Civil Justice
-https://www.livelaw.in/articles/section20c-specific-relief-act-forgotten-mandate-speedy-civil-justice-553111
-
-[Read on Telegram](https://t.me/livelawindia/121596)
+[Read on Telegram](https://t.me/livelawindia/121616)
 
 ---
-### 2026-10-05T14:40:39+00:00
-Tax Classification Must Be Based On Form Of Good At Stage Of Sale & Not Its End Use : Supreme Court
-https://www.livelaw.in/supreme-court/tax-classification-must-be-based-on-form-of-good-at-stage-of-sale-not-its-end-use-supreme-court-553219
+### 2026-10-06T04:43:26+00:00
+Call for Applications | Sixth Cohort of the P. A. Sangma Fellowship for Legal and Policy Research At National Law School Of India University (NLSIU)
+https://www.livelaw.in/job-updates/call-for-applications-sixth-cohort-of-the-p-a-sangma-fellowship-for-legal-and-policy-research-at-national-law-school-of-india-university-nlsiu-553263
 
-[Read on Telegram](https://t.me/livelawindia/121597)
-
----
-### 2026-10-05T14:42:19+00:00
-2026 LiveLaw (SC) 1017 | ADDL. COMMR. COMMERCIAL TAX & ORS. VERSUS CADILA HEALTH CARE LTD & ANR
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1017-addl-commr-commercial-tax-ors-versus-cadila-health-care-ltd-anr-553220
-
-[Read on Telegram](https://t.me/livelawindia/121598)
+[Read on Telegram](https://t.me/livelawindia/121617)
 
 ---
-### 2026-10-05T15:33:29+00:00
-Don't Interfere With 5-Time Azan At Saharanpur Mosque If Noise Rules Followed: Allahabad High Court Directs Police
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-police-5-time-azan-saharanpur-mosque-noise-rules-loudspeaker-553224
+### 2026-10-06T04:46:06+00:00
+Special Public Prosecutor Vacancy At Central Bureau Of Investigation [Ghaziabad; Apply Now]
+https://www.livelaw.in/job-updates/special-public-prosecutor-vacancy-at-central-bureau-of-investigation-ghaziabad-553266
 
-[Read on Telegram](https://t.me/livelawindia/121599)
-
----
-### 2026-10-05T15:50:09+00:00
-UP Police Fail To Trace Missing Woman Of Unsound Mind For Over 2 Years, Allahabad High Court Transfers Probe To CBI
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-up-police-fail-trace-missing-woman-unsound-mind-transfers-probe-cbi-553225
-
-[Read on Telegram](https://t.me/livelawindia/121600)
+[Read on Telegram](https://t.me/livelawindia/121618)
 
 ---
-### 2026-10-05T16:12:20+00:00
-LiveLaw Rajasthan High Court Weekly Round-Up: September 28 - October 4, 2026
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-weekly-roundup-553227
+### 2026-10-06T04:51:47+00:00
+LiveLaw Breaking News Alerts: 06 October 2026
+https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts-06-october-2026-553267
 
-[Read on Telegram](https://t.me/livelawindia/121601)
-
----
-### 2026-10-05T16:12:40+00:00
-Centre Notifies Appointment Of Justice Manash Ranjan As Acting Chief Justice Of Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/centre-notifies-appointment-of-justice-manash-ranjan-as-acting-chief-justice-of-gujarat-high-court-553228
-
-[Read on Telegram](https://t.me/livelawindia/121602)
+[Read on Telegram](https://t.me/livelawindia/121619)
 
 ---
-### 2026-10-05T16:19:00+00:00
-Centre Notifies Appointment Of Justice P Sam Koshy As Acting Chief Justice Of Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/centre-notifies-appointment-justice-p-sam-koshy-acting-chief-justice-telangana-high-court-553229
+### 2026-10-06T04:52:27+00:00
+Motor Accident Compensation Can't Be Based Solely On Basic Salary; Employment-Related Allowances Must Be Included: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-enhances-motor-accident-compensation-553259
 
-[Read on Telegram](https://t.me/livelawindia/121603)
-
----
-### 2026-10-05T16:47:30+00:00
-Justice Nitin Sambre Appointed As Delhi High Court Acting Chief Justice
-https://www.livelaw.in/high-court/delhi-high-court/justice-nitin-sambre-appointed-as-delhi-high-court-acting-chief-justice-553231
-
-[Read on Telegram](https://t.me/livelawindia/121604)
+[Read on Telegram](https://t.me/livelawindia/121620)
 
 ---
-### 2026-10-05T17:22:30+00:00
-Supreme Court Daily Round-Up : October 5, 2026
-https://www.livelaw.in/round-ups/supreme-court-daily-round-up-october-5-2026-553230
+### 2026-10-06T04:56:47+00:00
+Election Commissioners Enjoy Greater Legal Immunity Than Even Judges, Remarks Supreme Court
+https://www.livelaw.in/top-stories/election-commissioners-enjoy-greater-legal-immunity-than-even-judges-remarks-supreme-court-553268
 
-[Read on Telegram](https://t.me/livelawindia/121605)
+[Read on Telegram](https://t.me/livelawindia/121621)
 
 ---
-### 2026-10-05T17:32:40+00:00
-LiveLaw High Courts Daily Highlights: October 05, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-05-2026-553226
+### 2026-10-06T04:57:27+00:00
+Public Law Officer/District Litigation Officer/Law Officer Vacancy At Law And Justice Department Under The Administration Of UT Of Ladakh
+https://www.livelaw.in/job-updates/public-law-officerdistrict-litigation-officerlaw-officer-vacancy-at-law-and-justice-department-under-the-administration-of-ut-of-ladakh-553269
 
-[Read on Telegram](https://t.me/livelawindia/121606)
+[Read on Telegram](https://t.me/livelawindia/121622)
+
+---
+### 2026-10-06T05:03:07+00:00
+'Courtroom Sees The Case, Academia Sees The Pattern; Justice Needs Both' : CJI Surya Kant At Madhava Menon Memorial Lecture
+https://www.livelaw.in/top-stories/courtroom-sees-the-case-academia-sees-the-pattern-justice-needs-both-cji-surya-kant-at-madhava-menon-memorial-lecture-553270
+
+[Read on Telegram](https://t.me/livelawindia/121623)
+
+---
+### 2026-10-06T05:12:47+00:00
+POCSO Case | S.91 CrPC Plea To Summon Documents Can't Be Rejected On Assumption About Their Evidentiary Value: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-allows-pocso-accused-plea-prosecutrix-records-553265
+
+[Read on Telegram](https://t.me/livelawindia/121624)
+
+---
+### 2026-10-06T05:22:57+00:00
+Dharmasthala Mass Burial | SIT Can't Wait For DGP To Transfer Cases, Must Register FIR & Investigate: Petitioner Tells Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-sit-own-report-says-cannot-investigate-transfer-order-dharmasthala-mass-burial-pil-553271
+
+[Read on Telegram](https://t.me/livelawindia/121625)
+
+---
+### 2026-10-06T05:23:57+00:00
+Punjab Govt Moves Supreme Court Against HC Order For CBI Probe Into Corruption Allegations Linked To Chief Minister's Office
+https://www.livelaw.in/top-stories/punjab-govt-moves-supreme-court-against-hc-order-for-cbi-probe-into-corruption-allegations-linked-to-chief-ministers-office-553273
+
+[Read on Telegram](https://t.me/livelawindia/121626)
+
+---
+### 2026-10-06T05:32:57+00:00
+Acting Contrary To Departmental Expectation Not Misconduct If It Was A Bonafide Exercise Of Judgment: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-statement-contrary-departmental-expectation-transform-bonafide-exercise-553274
+
+[Read on Telegram](https://t.me/livelawindia/121627)
+
+---
+### 2026-10-06T05:36:57+00:00
+Supreme Court 7-Judge Bench Disposes Reference On Legislative Privilege As Infructuous
+https://www.livelaw.in/top-stories/supreme-court-7-judge-reference-on-legislative-privilege-free-speech-interplay-closed-as-2003-tamil-nadu-assembly-decision-withdrawn-553277
+
+[Read on Telegram](https://t.me/livelawindia/121628)
+
+---
+### 2026-10-06T05:37:57+00:00
+Bombay High Court Allows Lawyers Collective's Plea For Opportunity To File FCRA Compounding Application
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-allows-lawyers-plea-opportunity-file-fcra-compounding-553234
+
+[Read on Telegram](https://t.me/livelawindia/121629)
+
+---
+### 2026-10-06T05:42:57+00:00
+Delay In Submitting Medical Certificate Not Grounds To Reject Genuine Illness Claim: Calcutta High Court Grants Relief To Law Student
+https://www.livelaw.in/high-court/calcutta-high-court/delay-in-submitting-medical-certificate-not-grounds-to-reject-genuine-illness-claim-calcutta-high-court-grants-relief-to-student-553279
+
+[Read on Telegram](https://t.me/livelawindia/121630)
+
+---
+### 2026-10-06T05:43:07+00:00
+Harassment Allegations Against Husband's Close Relatives Living Separately Or In Another City Need Greater Scrutiny: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-quashes-498acase-against-husband-relatives-harassment-claims-553275
+
+[Read on Telegram](https://t.me/livelawindia/121631)
 
 ---
