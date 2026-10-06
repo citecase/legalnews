@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-06T04:33:06+00:00*
+*Last Updated: 2026-10-06T10:35:40+00:00*
 
 ---
 
-### 2026-10-06T04:33:06+00:00
-Cruelty FIR Can Be Quashed Where Parties Have Genuinely, Amicably Settled Differences: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-quashes-section85-bns-case-against-husband-553257
+### 2026-10-06T10:35:40+00:00
+Original Status As Daily Wager Cannot Be Ground To Deny Annual Increment After Regularisation : Supreme Court
+https://www.livelaw.in/supreme-court/original-status-as-daily-wager-cannot-be-ground-to-deny-annual-increment-after-regularisation-supreme-court-553358
 
-[Read on Telegram](https://t.me/livelawindia/121612)
-
----
-### 2026-10-06T04:38:06+00:00
-Delhi High Court Declares Nehru Place No-Hawking, No-Vending Zone; MCD Free To Remove Unauthorized Vendors After October 12
-https://www.livelaw.in/high-court/delhi-high-court/nehru-place-no-hawking-vending-zone-mcd-remove-unauthorized-vendors-553260
-
-[Read on Telegram](https://t.me/livelawindia/121613)
+[Read on Telegram](https://t.me/livelawindia/121678)
 
 ---
-### 2026-10-06T04:39:46+00:00
-Special Public Prosecutor Vacancy At Central Bureau Of Investigation [Lucknow; Apply Now]
-https://www.livelaw.in/job-updates/special-public-prosecutor-vacancy-at-central-bureau-of-investigation-lucknow-553261
+### 2026-10-06T10:36:20+00:00
+“Responsibility To Stand By Soldier In Crisis”: Kerala High Court Orders CBI Probe Into 14-Year-Old Disappearance Of Tripura State Rifles Jawan
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-cbi-probe14-year-disappearance-tripura-state-rifles-jawan-553359
 
-[Read on Telegram](https://t.me/livelawindia/121614)
-
----
-### 2026-10-06T04:40:46+00:00
-Consultant (Legal) Vacancy At HMT Limited
-https://www.livelaw.in/job-updates/consultant-legal-vacancy-at-hmt-limited-553262
-
-[Read on Telegram](https://t.me/livelawindia/121615)
+[Read on Telegram](https://t.me/livelawindia/121679)
 
 ---
-### 2026-10-06T04:43:16+00:00
-'Cooperation' With Drug Traffickers Not Enough For NDPS Conspiracy Charge Without Specific Overt Act: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-quashes-ndps-charges-allegation-cooperation-without-specific-role-553258
+### 2026-10-06T10:36:30+00:00
+2026 LiveLaw (SC) 1020 | Chhaganbhai Kohyabhai Pateliya & Ors. v. State of Gujarat & Ors
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1020-chhaganbhai-kohyabhai-pateliya-ors-v-state-of-gujarat-ors-553360
 
-[Read on Telegram](https://t.me/livelawindia/121616)
-
----
-### 2026-10-06T04:43:26+00:00
-Call for Applications | Sixth Cohort of the P. A. Sangma Fellowship for Legal and Policy Research At National Law School Of India University (NLSIU)
-https://www.livelaw.in/job-updates/call-for-applications-sixth-cohort-of-the-p-a-sangma-fellowship-for-legal-and-policy-research-at-national-law-school-of-india-university-nlsiu-553263
-
-[Read on Telegram](https://t.me/livelawindia/121617)
+[Read on Telegram](https://t.me/livelawindia/121680)
 
 ---
-### 2026-10-06T04:46:06+00:00
-Special Public Prosecutor Vacancy At Central Bureau Of Investigation [Ghaziabad; Apply Now]
-https://www.livelaw.in/job-updates/special-public-prosecutor-vacancy-at-central-bureau-of-investigation-ghaziabad-553266
+### 2026-10-06T10:40:40+00:00
+PIL In Delhi High Court Seeks Mandatory Body-Worn Cameras For Police, RAF During Protest-Control Duties
+https://www.livelaw.in/high-court/delhi-high-court/mandatory-body-worn-cameras-for-police-raf-during-protest-control-duties-pil-553361
 
-[Read on Telegram](https://t.me/livelawindia/121618)
-
----
-### 2026-10-06T04:51:47+00:00
-LiveLaw Breaking News Alerts: 06 October 2026
-https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts-06-october-2026-553267
-
-[Read on Telegram](https://t.me/livelawindia/121619)
+[Read on Telegram](https://t.me/livelawindia/121681)
 
 ---
-### 2026-10-06T04:52:27+00:00
-Motor Accident Compensation Can't Be Based Solely On Basic Salary; Employment-Related Allowances Must Be Included: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-enhances-motor-accident-compensation-553259
+### 2026-10-06T10:43:10+00:00
+State Bar Council Can't Reject Lawyer's Enrolment Solely For Lack Of Bachelor's Degree Without Referral To BCI: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-state-bar-council-cannot-reject-enrolment-bachelor-degree-lack-553355
 
-[Read on Telegram](https://t.me/livelawindia/121620)
-
----
-### 2026-10-06T04:56:47+00:00
-Election Commissioners Enjoy Greater Legal Immunity Than Even Judges, Remarks Supreme Court
-https://www.livelaw.in/top-stories/election-commissioners-enjoy-greater-legal-immunity-than-even-judges-remarks-supreme-court-553268
-
-[Read on Telegram](https://t.me/livelawindia/121621)
+[Read on Telegram](https://t.me/livelawindia/121682)
 
 ---
-### 2026-10-06T04:57:27+00:00
-Public Law Officer/District Litigation Officer/Law Officer Vacancy At Law And Justice Department Under The Administration Of UT Of Ladakh
-https://www.livelaw.in/job-updates/public-law-officerdistrict-litigation-officerlaw-officer-vacancy-at-law-and-justice-department-under-the-administration-of-ut-of-ladakh-553269
+### 2026-10-06T10:43:20+00:00
+Supreme Court Gets 3 Women Judges With Justice Sunita Agarwal's Elevation
+https://www.livelaw.in/top-stories/supreme-court-gets-3-women-judges-with-justice-sunita-agarwals-elevation-553364
 
-[Read on Telegram](https://t.me/livelawindia/121622)
-
----
-### 2026-10-06T05:03:07+00:00
-'Courtroom Sees The Case, Academia Sees The Pattern; Justice Needs Both' : CJI Surya Kant At Madhava Menon Memorial Lecture
-https://www.livelaw.in/top-stories/courtroom-sees-the-case-academia-sees-the-pattern-justice-needs-both-cji-surya-kant-at-madhava-menon-memorial-lecture-553270
-
-[Read on Telegram](https://t.me/livelawindia/121623)
+[Read on Telegram](https://t.me/livelawindia/121683)
 
 ---
-### 2026-10-06T05:12:47+00:00
-POCSO Case | S.91 CrPC Plea To Summon Documents Can't Be Rejected On Assumption About Their Evidentiary Value: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-allows-pocso-accused-plea-prosecutrix-records-553265
+### 2026-10-06T10:52:20+00:00
+“Groups Fighting Over Non-Existing Concept Of Caste”: Madras High Court Asks HR&CE Joint Commissioner To Decide Temple Festival Dispute
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-group-fight-non-existent-caste-hrce-joint-commissioner-decide-temple-festival-553363
 
-[Read on Telegram](https://t.me/livelawindia/121624)
-
----
-### 2026-10-06T05:22:57+00:00
-Dharmasthala Mass Burial | SIT Can't Wait For DGP To Transfer Cases, Must Register FIR & Investigate: Petitioner Tells Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-sit-own-report-says-cannot-investigate-transfer-order-dharmasthala-mass-burial-pil-553271
-
-[Read on Telegram](https://t.me/livelawindia/121625)
+[Read on Telegram](https://t.me/livelawindia/121684)
 
 ---
-### 2026-10-06T05:23:57+00:00
-Punjab Govt Moves Supreme Court Against HC Order For CBI Probe Into Corruption Allegations Linked To Chief Minister's Office
-https://www.livelaw.in/top-stories/punjab-govt-moves-supreme-court-against-hc-order-for-cbi-probe-into-corruption-allegations-linked-to-chief-ministers-office-553273
+### 2026-10-06T11:24:30+00:00
+Unauthorised Credit Card Transactions: Delhi Consumer Commission Holds SBI Cards Liable, Directs Refund
+https://www.livelaw.in/consumer-cases/unauthorised-credit-card-transactions-delhi-consumer-commission-holds-sbi-cards-liable-directs-refund-553373
 
-[Read on Telegram](https://t.me/livelawindia/121626)
-
----
-### 2026-10-06T05:32:57+00:00
-Acting Contrary To Departmental Expectation Not Misconduct If It Was A Bonafide Exercise Of Judgment: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-statement-contrary-departmental-expectation-transform-bonafide-exercise-553274
-
-[Read on Telegram](https://t.me/livelawindia/121627)
+[Read on Telegram](https://t.me/livelawindia/121685)
 
 ---
-### 2026-10-06T05:36:57+00:00
-Supreme Court 7-Judge Bench Disposes Reference On Legislative Privilege As Infructuous
-https://www.livelaw.in/top-stories/supreme-court-7-judge-reference-on-legislative-privilege-free-speech-interplay-closed-as-2003-tamil-nadu-assembly-decision-withdrawn-553277
+### 2026-10-06T11:32:50+00:00
+Husband Paying Maintenance To Wife Without Court Order Can't Later Claim Inability To Pay: Karnataka High Court Imposes ₹2 Lakh Fine
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-husband-paying-maintenance-without-court-order-claim-unable-to-pay-wife-553375
 
-[Read on Telegram](https://t.me/livelawindia/121628)
-
----
-### 2026-10-06T05:37:57+00:00
-Bombay High Court Allows Lawyers Collective's Plea For Opportunity To File FCRA Compounding Application
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-allows-lawyers-plea-opportunity-file-fcra-compounding-553234
-
-[Read on Telegram](https://t.me/livelawindia/121629)
+[Read on Telegram](https://t.me/livelawindia/121686)
 
 ---
-### 2026-10-06T05:42:57+00:00
-Delay In Submitting Medical Certificate Not Grounds To Reject Genuine Illness Claim: Calcutta High Court Grants Relief To Law Student
-https://www.livelaw.in/high-court/calcutta-high-court/delay-in-submitting-medical-certificate-not-grounds-to-reject-genuine-illness-claim-calcutta-high-court-grants-relief-to-student-553279
+### 2026-10-06T11:33:10+00:00
+'Biological Identity' Of Children Must Be Ascertained: Calcutta High Court Orders DNA Tests In Alleged Baby-Swap Case
+https://www.livelaw.in/high-court/calcutta-high-court/biological-identity-of-children-must-be-ascertained-calcutta-high-court-orders-dna-tests-in-alleged-baby-swap-case-553286
 
-[Read on Telegram](https://t.me/livelawindia/121630)
+[Read on Telegram](https://t.me/livelawindia/121687)
 
 ---
-### 2026-10-06T05:43:07+00:00
-Harassment Allegations Against Husband's Close Relatives Living Separately Or In Another City Need Greater Scrutiny: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-quashes-498acase-against-husband-relatives-harassment-claims-553275
+### 2026-10-06T11:42:11+00:00
+J&K&L High Court Dismisses BSF Personnel's Plea Against Recovery Of ₹6 Lakh Ex-Gratia Relief, Doubts Claims Of Family Members Being Killed
+https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-dismisses-bsf-personnels-plea-against-recovery-of-6-lakh-ex-gratia-relief-finds-serious-contradictions-in-claim-that-six-family-members-were-killed-553236
 
-[Read on Telegram](https://t.me/livelawindia/121631)
+[Read on Telegram](https://t.me/livelawindia/121688)
+
+---
+### 2026-10-06T11:52:41+00:00
+S.69 BNS | Hiding Live-In Relationship, Child With Another Amount To 'Deceitful Means' To Have Sexual Intercourse With Woman: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-section-69-bns-sex-deceitful-means-553377
+
+[Read on Telegram](https://t.me/livelawindia/121689)
+
+---
+### 2026-10-06T12:03:21+00:00
+Earnings From Sale Of Shares Part Of Husband's Income: Karnataka High Court Enhances Monthly Maintenance To ₹1.2 Lakh
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-enhances-monthly-maintenance-earnings-from-sale-stocks-part-husband-income-553380
+
+[Read on Telegram](https://t.me/livelawindia/121690)
+
+---
+### 2026-10-06T12:23:01+00:00
+Tendency To Colourize Civil Disputes Into Criminal Offences An Open Secret : Supreme Court
+https://www.livelaw.in/supreme-court/tendency-to-colourize-civil-disputes-into-criminal-offences-an-open-secret-supreme-court-553384
+
+[Read on Telegram](https://t.me/livelawindia/121691)
+
+---
+### 2026-10-06T12:28:41+00:00
+Supreme Court Acquits Govt Clerk Who Already Served Sentence In 16 Year Old Bribery Case
+https://www.livelaw.in/top-stories/supreme-court-acquits-government-clerk-bribery-case-already-served-sentence-553385
+
+[Read on Telegram](https://t.me/livelawindia/121692)
+
+---
+### 2026-10-06T12:30:51+00:00
+Bombay High Court Seizes Man's Phone For Recording Court Proceedings, Imposes ₹10,000 Costs
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-confiscates-man-phone-imposes-costs-video-recording-court-proceedings-553386
+
+[Read on Telegram](https://t.me/livelawindia/121693)
+
+---
+### 2026-10-06T12:40:11+00:00
+Delayed Medical Examination Can't Discard Evidence Of Permanent Disability: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-delayed-medical-examin-not-valid-ground-to-discard-permanent-disability-evidence-553388
+
+[Read on Telegram](https://t.me/livelawindia/121694)
+
+---
+### 2026-10-06T12:46:31+00:00
+Muslim Mother Has Preferential Right To Custody Of Daughter Till Puberty Under Hanafi Law, Welfare Paramount: Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-sets-aside-exparte-order-custody-minor-girl-553389
+
+[Read on Telegram](https://t.me/livelawindia/121695)
+
+---
+### 2026-10-06T12:55:31+00:00
+RILS Invites Registrations for 5th Inter-University Moot Court Competition 2026
+https://www.livelaw.in/lawschool/competitions/rils-invites-registrations-for-5th-inter-university-moot-court-competition-2026-553393
+
+[Read on Telegram](https://t.me/livelawindia/121696)
+
+---
+### 2026-10-06T13:02:11+00:00
+'Prescribing Diploma-Only Eligibility Criterion Not Illegal Merely Because Degree Holders Are Excluded': Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/prescribing-diploma-only-eligibility-criterion-not-illegal-553246
+
+[Read on Telegram](https://t.me/livelawindia/121697)
 
 ---
