@@ -1,6 +1,158 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-06T06:32:29+00:00*
+*Last Updated: 2026-10-06T16:02:44+00:00*
+
+---
+
+### 2026-10-06T16:02:44+00:00
+Manager (Legal) Vacancy At Jammu and Kashmir Development Finance Corporation Ltd. (JKDFC)
+https://www.verdictum.in/job-updates/jammu-and-kashmir-development-finance-corporation-ltd-1623468
+
+[Source Link](https://t.me/verdictumlegalupdates/29518)
+
+---
+
+### 2026-10-06T15:32:23+00:00
+Tendency Of Litigants To Colourize Civil Disputes As Criminal Offences Is Open Secret: Supreme Court Quashes Cheating Case Involving Land Sale
+https://www.verdictum.in/supreme-court/sudha-rakesh-v-the-state-of-karnataka-2026-insc-1086-tendency-litigants-civil-disputes-1623475
+
+[Source Link](https://t.me/verdictumlegalupdates/29517)
+
+---
+
+### 2026-10-06T15:02:42+00:00
+S. 368 BNSS | Low IQ Or Intellectual Disability By Itself Doesn't Render Accused Unfit For Trial: Kerala High Court
+https://www.verdictum.in/kerala-high-court/kamal-raj-v-state-of-kerala-2026ker75844-s-368-bnss-low-iq-intellectual-disability-pocso-1623467
+
+[Source Link](https://t.me/verdictumlegalupdates/29516)
+
+---
+
+### 2026-10-06T14:33:21+00:00
+Power U/s. 311 CrPC Cannot Be Used To Supplement Or Reconstruct Case After Evidence Is Closed: Punjab & Haryana High Court
+https://www.verdictum.in/punjab-and-haryana-high-court/2026-phhc-183802-avtar-singh-v-ms-des-raj-1623471
+
+[Source Link](https://t.me/verdictumlegalupdates/29515)
+
+---
+
+### 2026-10-06T14:03:00+00:00
+Police Not Prohibited From Entering University Campus In All Circumstances; Prior Communication Not Absolute Condition: Delhi High Court
+https://www.verdictum.in/delhi-high-court/manoj-dhiryan-v-union-of-india-2026dhc8709-db-jamia-violence-2019-police-not-prohibited-can-enter-1623463
+
+[Source Link](https://t.me/verdictumlegalupdates/29514)
+
+---
+
+### 2026-10-06T13:32:38+00:00
+Instagram Chats Without  Statutory Certification Not Admissible: Allahabad High Court Rejects Husband's Argument About Adultery By Wife
+https://www.verdictum.in/allahabad-high-court/a-v-state-of-up-2026ahc203794-instagram-chats-certification-maintenance-1623462
+
+[Source Link](https://t.me/verdictumlegalupdates/29513)
+
+---
+
+### 2026-10-06T13:02:17+00:00
+Intimidating Magistrate In Open Court: Bombay High Court Convicts Former Bar President & Son For Contempt Of Court
+https://www.verdictum.in/bombay-high-court/sajiduzzaman-mhammad-hanif-shahid-v-sagar-durgadas-rathod-2026bhc-nag13168-db-bar-president-advocate-son-contempt-1623461
+
+[Source Link](https://t.me/verdictumlegalupdates/29512)
+
+---
+
+### 2026-10-06T12:32:57+00:00
+Trial Is Progressing Actively & At A Rapid Pace: Rajasthan High Court Upholds Denial Of Bail To UAPA Accused in Kanhaiya Lal Murder Case
+https://www.verdictum.in/rajasthan-high-court/wasim-ali-v-national-investigation-agency-2026rj-jp40450-db-communal-disharmony-bail-1623460
+
+[Source Link](https://t.me/verdictumlegalupdates/29511)
+
+---
+
+### 2026-10-06T12:02:36+00:00
+Allegations Not Specific, Cogent & Credible; No Overt Act: Supreme Court Quashes Case U/S. 498A IPC Against Husband's Parents
+https://www.verdictum.in/supreme-court/p-v-state-of-west-bengal-2026-insc-1087-in-laws-not-specific-cogent-credible-498a-ipc-1623459
+
+[Source Link](https://t.me/verdictumlegalupdates/29510)
+
+---
+
+### 2026-10-06T11:32:25+00:00
+Classification For Rate Of Commercial Tax Must Be Based On Form Of Goods At Time Of Sale & Not On Manner In Which Consumer May Choose To Use It: Supreme Court
+https://www.verdictum.in/supreme-court/addl-commr-commercial-tax-ors-v-cadila-health-care-ltd-2026-insc-1078-tax-goods-consumer-1623458
+
+[Source Link](https://t.me/verdictumlegalupdates/29509)
+
+---
+
+### 2026-10-06T11:02:44+00:00
+Supreme Court Asks NHAI Why Electronic Surveillance Can't Be Used To Track Parked Vehicles On Highways
+https://www.verdictum.in/supreme-court/nhai-electronic-surveillance-track-parked-vehicles-on-highways-1623457
+
+[Source Link](https://t.me/verdictumlegalupdates/29508)
+
+---
+
+### 2026-10-06T10:32:23+00:00
+Delhi Court Grants Bail To Influencer Swatantra Bhardwaj In Jantar Mantar Protest Assault Case
+https://www.verdictum.in/other-courts/bail-to-influencer-swatantra-bhardwaj-in-jantar-mantar-protest-assault-case-1623453
+
+[Source Link](https://t.me/verdictumlegalupdates/29507)
+
+---
+
+### 2026-10-06T10:03:02+00:00
+Claim Of Juvenility Can Be Raised At Any Stage Even After Final Disposal: Uttarakhand High Court Quashes Life Term In Murder Case, Upholds Conviction
+https://www.verdictum.in/uttarakhand-high-court/rajiv-kashyap-v-state-of-uttarakhand-criminal-jail-appeal-no-72-of-2019-claim-of-juvenility-upholds-conviction-1623452
+
+[Source Link](https://t.me/verdictumlegalupdates/29506)
+
+---
+
+### 2026-10-06T09:32:21+00:00
+Demand For Bribe Is Sine Qua Non For Establishing Offence U/S 7 & 13 PC Act: Supreme Court Sets Aside Conviction Despite Sentence Already Undergone
+https://www.verdictum.in/supreme-court/ajit-kumar-v-state-of-jharkhand-2026-insc-1084-demand-for-bribe-corruption-conviction-1623450
+
+[Source Link](https://t.me/verdictumlegalupdates/29505)
+
+---
+
+### 2026-10-06T09:02:35+00:00
+Alleged Victims’ Recantation Alone Not Enough To Quash Immoral Traffic Act Proceedings At Threshold: Kerala High Court
+https://www.verdictum.in/kerala-high-court/praveen-sodharan-v-state-of-kerala-2026ker73015-immoral-trafficking-1623447
+
+[Source Link](https://t.me/verdictumlegalupdates/29504)
+
+---
+
+### 2026-10-06T08:32:14+00:00
+Supreme Court Agrees To List Punjab Govt's Plea Against HC Order For CBI Probe Into Corruption Allegations
+https://www.verdictum.in/supreme-court/punjab-govts-plea-against-hc-order-for-cbi-probe-into-corruption-allegations-1623445
+
+[Source Link](https://t.me/verdictumlegalupdates/29503)
+
+---
+
+### 2026-10-06T08:02:53+00:00
+Cheating & Criminal Breach Of Trust Are "Independent & Distinct" Offences, Cannot Coexist On Same Facts: Supreme Court Reiterates
+https://www.verdictum.in/supreme-court/yogesh-premjibhai-suvariya-v-state-of-gujarat-2026-insc-1079-pre-eminently-civil-steel-trading-company-directors-1623437
+
+[Source Link](https://t.me/verdictumlegalupdates/29502)
+
+---
+
+### 2026-10-06T07:32:31+00:00
+Gratuity Is A Distinct Retiral Benefit & Payment Of Other Service Dues Alone Cannot Justify Its Denial: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/raisa-khan-v-state-of-uttar-pradesh-2026ahc-lko70249-retirement-dues-gratuity-1623436
+
+[Source Link](https://t.me/verdictumlegalupdates/29501)
+
+---
+
+### 2026-10-06T07:02:50+00:00
+Suspension Order U/S.35 (3)(c) Of Advocates Act Is Final, Can’t Be Passed At Interim Stage By Bar Council: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/akhilesh-jaiswal-and-another-v-bar-council-of-india-2026ahclko70443-db-suspension-order-advocates-act-1623431
+
+[Source Link](https://t.me/verdictumlegalupdates/29500)
 
 ---
 
@@ -9,158 +161,6 @@ Alleged Police Misconduct During 2020 Delhi Riots Is Not, By Itself, Ground For 
 https://www.verdictum.in/delhi-high-court/shaikh-mujtaba-farooq-v-union-of-india-2026dhc8710-db-police-misconduct-allegation-investigation-fair-probe-1623426
 
 [Source Link](https://t.me/verdictumlegalupdates/29499)
-
----
-
-### 2026-10-06T05:57:29+00:00
-Supreme Court Disposes Of 2003 Tamil Nadu Assembly Privilege Reference As Infructuous; Keeps Constitutional Questions Open
-https://www.verdictum.in/supreme-court/disposes-2003-tamil-nadu-assembly-privilege-reference-infructuous-1623428
-
-[Source Link](https://t.me/verdictumlegalupdates/29498)
-
----
-
-### 2026-10-06T05:33:07+00:00
-Centre Notifies Appointment Of Acting Chief Justices For Three High Courts, Additional Judge For Delhi HC
-https://www.verdictum.in/court-updates/high-courts/appointment-of-acting-chief-justices-for-three-high-courts-additional-judge-for-delhi-hc-1623420
-
-[Source Link](https://t.me/verdictumlegalupdates/29497)
-
----
-
-### 2026-10-06T05:03:07+00:00
-'Advocates Can't Be Made Guarantors For Petitioner’s Whereabouts': Gauhati High Court Sets Aside Costs After Petitioner Could Not Be Traced
-https://www.verdictum.in/guwahati-high-court/harbinder-singh-kalsi-and-another-v-state-of-assam-and-others-advocates-1623387
-
-[Source Link](https://t.me/verdictumlegalupdates/29496)
-
----
-
-### 2026-10-06T04:32:56+00:00
-Victim’s Wish To Preserve Family With Accused & Child’s Interest Not Sufficient To Quash POCSO Case: Delhi High Court
-https://www.verdictum.in/delhi-high-court/x-v-the-state-pocso-victim-accused-married-child-interest-family-minor-pregnancy-1623393
-
-[Source Link](https://t.me/verdictumlegalupdates/29495)
-
----
-
-### 2026-10-05T16:02:35+00:00
-GST Refund Can Be Withheld During Pending Anti-Evasion Investigation Without Separate Court Stay: Delhi High Court
-https://www.verdictum.in/delhi-high-court/devi-electronics-private-limited-v-commissioner-cgst-delhi-south-and-others-2026dhc8551-db-1623392
-
-[Source Link](https://t.me/verdictumlegalupdates/29494)
-
----
-
-### 2026-10-05T15:33:03+00:00
-Sympathy Or Possibility Of Academic Loss Cannot Substitute Eligibility Requirement: Delhi High Court Dismisses JEE Aspirant's Plea For Supernumerary IIT Seat
-https://www.verdictum.in/delhi-high-court/ashi-agarwal-v-union-of-india-2026dhc8630-nta-iit-jee-aspirants-plea-for-supernumerary-iit-seat-1623391
-
-[Source Link](https://t.me/verdictumlegalupdates/29493)
-
----
-
-### 2026-10-05T15:02:57+00:00
-Children’s Court Must Independently Decide Whether Child Should Be Tried As Adult U/S 19 JJ Act: Orissa High Court Sets Aside POCSO Conviction
-https://www.verdictum.in/orissa-high-court/ps-v-state-of-odisha-2026ohc169-pocso-conviction-section-19-juvenile-justice-1623390
-
-[Source Link](https://t.me/verdictumlegalupdates/29492)
-
----
-
-### 2026-10-05T14:32:13+00:00
-Foreigners Have No Inherent Right To Enter India; Visa Does Not Guarantee Unconditional Entry Right: Delhi High Court
-https://www.verdictum.in/delhi-high-court/annagurbanova-yazbibi-hummetgulyyevna-v-union-of-india-2026dhc8621-1623388
-
-[Source Link](https://t.me/verdictumlegalupdates/29491)
-
----
-
-### 2026-10-05T14:02:53+00:00
-Article 22(1) Challenge To Initial Arrest Cannot Be Raised After Section 207 CrPC Compliance: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/moti-ram-jaat-moti-ram-jaat-fauji-v-state-of-uttar-pradesh-2026ahc-lko70349-1623389
-
-[Source Link](https://t.me/verdictumlegalupdates/29490)
-
----
-
-### 2026-10-05T13:32:32+00:00
-Halal Ingredient In Sabarimala Prasad: Kerala HC Asks State To Avoid Symbols Which Create Apprehension Of Conflict With Religious Practices
-https://www.verdictum.in/kerala-high-court/sjrkumar-v-the-travancore-devaswom-board-2026ker75371-sabarimala-prasadam-halal-jaggery-1623398
-
-[Source Link](https://t.me/verdictumlegalupdates/29489)
-
----
-
-### 2026-10-05T13:02:31+00:00
-Weekly Overview| Supreme Court Judgments: September 28– October 01, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-september-28-october-01-2026-1623394
-
-[Source Link](https://t.me/verdictumlegalupdates/29488)
-
----
-
-### 2026-10-05T12:32:30+00:00
-Supreme Court Dismisses Centre's Plea Against Maintainability Of PILs In HC In Great Nicobar Project
-https://www.verdictum.in/supreme-court/plea-against-maintainability-of-pils-in-hc-in-great-nicobar-project-1623381
-
-[Source Link](https://t.me/verdictumlegalupdates/29487)
-
----
-
-### 2026-10-05T12:03:50+00:00
-Centre Notifies Elevation Of Chief Justices Of Three High Courts To Supreme Court
-https://www.verdictum.in/supreme-court/elevation-of-chief-justices-of-three-high-courts-to-supreme-court-1623386
-
-[Source Link](https://t.me/verdictumlegalupdates/29486)
-
----
-
-### 2026-10-05T12:02:28+00:00
-Disputed & Unadjudicated Claim For Damages Can’t Be Treated As Debt Presently Due In Cross Contract Recovery Cases: Supreme Court
-https://www.verdictum.in/supreme-court/ms-awadhesh-singh-gautam-v-state-of-chhattisgarh-2026-insc-1072-damages-cross-contract-1623382
-
-[Source Link](https://t.me/verdictumlegalupdates/29485)
-
----
-
-### 2026-10-05T11:33:07+00:00
-Supreme Court Seeks Centre, States Response On Vacancies, Functioning Of State Human Rights Commissions
-https://www.verdictum.in/supreme-court/response-on-vacancies-functioning-of-state-human-rights-commissions-1623380
-
-[Source Link](https://t.me/verdictumlegalupdates/29484)
-
----
-
-### 2026-10-05T11:02:47+00:00
-2021 Lakhimpur Kheri Case: Supreme Court Asks Allahabad HC Chief Justice To Expeditiously Act On Allegations Against Trial Judge
-https://www.verdictum.in/supreme-court/allahabad-hc-chief-justice-to-expeditiously-act-on-allegations-against-trial-judge-lakhimpur-kheri-case-1623376
-
-[Source Link](https://t.me/verdictumlegalupdates/29483)
-
----
-
-### 2026-10-05T10:32:26+00:00
-Running Linguistic Minority Institution Alone Does Not Entitle Trust To Property Tax Exemption; "Education Per Se" Not A Charitable Purpose: Bombay High Court
-https://www.verdictum.in/bombay-high-court/jai-hind-sindhu-education-trust-v-state-of-maharashtra-2026bhc-as40180-db-running-linguistic-minority-institution-charitable-purpose-1623378
-
-[Source Link](https://t.me/verdictumlegalupdates/29482)
-
----
-
-### 2026-10-05T10:02:45+00:00
-Modified Form 6 Not Approved By Us: Supreme Court Says It Will Examine Who Authorized Changes In Electoral Form For New Voters
-https://www.verdictum.in/supreme-court/modified-form-6-not-approved-will-examine-electoral-form-1623379
-
-[Source Link](https://t.me/verdictumlegalupdates/29481)
-
----
-
-### 2026-10-05T09:32:24+00:00
-Supreme Court Agrees To List Plea Seeking Permission For Peaceful Protests In Delhi Against ECI
-https://www.verdictum.in/supreme-court/plea-seeking-permission-for-peaceful-protests-in-delhi-against-eci-1623374
-
-[Source Link](https://t.me/verdictumlegalupdates/29480)
 
 ---
 
