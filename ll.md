@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-06T12:28:41+00:00*
+*Last Updated: 2026-10-07T03:05:28+00:00*
 
 ---
 
-### 2026-10-06T12:28:41+00:00
-Supreme Court Acquits Govt Clerk Who Already Served Sentence In 16 Year Old Bribery Case
-https://www.livelaw.in/top-stories/supreme-court-acquits-government-clerk-bribery-case-already-served-sentence-553385
+### 2026-10-07T03:05:28+00:00
+Legal Consultant Vacancy At Central Government Hospitals Of Delhi/NCR
+https://www.livelaw.in/job-updates/legal-consultant-vacancy-at-central-government-hospitals-of-delhincr-553421
 
-[Read on Telegram](https://t.me/livelawindia/121692)
-
----
-### 2026-10-06T12:30:51+00:00
-Bombay High Court Seizes Man's Phone For Recording Court Proceedings, Imposes ₹10,000 Costs
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-confiscates-man-phone-imposes-costs-video-recording-court-proceedings-553386
-
-[Read on Telegram](https://t.me/livelawindia/121693)
+[Read on Telegram](https://t.me/livelawindia/121714)
 
 ---
-### 2026-10-06T12:40:11+00:00
-Delayed Medical Examination Can't Discard Evidence Of Permanent Disability: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-delayed-medical-examin-not-valid-ground-to-discard-permanent-disability-evidence-553388
+### 2026-10-07T03:11:29+00:00
+'Fruit Of Poisonous Tree': Subsequent Arrest, Remand Cannot Cure Illegal Detention, Holds Allahabad High Court; Awards ₹30K Compensation
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-illegal-detention-fruit-poisonous-tree-553422
 
-[Read on Telegram](https://t.me/livelawindia/121694)
-
----
-### 2026-10-06T12:46:31+00:00
-Muslim Mother Has Preferential Right To Custody Of Daughter Till Puberty Under Hanafi Law, Welfare Paramount: Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-sets-aside-exparte-order-custody-minor-girl-553389
-
-[Read on Telegram](https://t.me/livelawindia/121695)
+[Read on Telegram](https://t.me/livelawindia/121715)
 
 ---
-### 2026-10-06T12:55:31+00:00
-RILS Invites Registrations for 5th Inter-University Moot Court Competition 2026
-https://www.livelaw.in/lawschool/competitions/rils-invites-registrations-for-5th-inter-university-moot-court-competition-2026-553393
+### 2026-10-07T03:16:49+00:00
+Shiv Sena Row | ECI's Symbol Allotment May Have To Be Revisited If Speaker's Refusal To Disqualify Is Found Erroneous, Says Supreme Court
+https://www.livelaw.in/top-stories/shiv-sena-row-ecis-symbol-allotment-may-have-to-be-revisited-if-speakers-refusal-to-disqualify-is-found-erroneous-says-supreme-court-553423
 
-[Read on Telegram](https://t.me/livelawindia/121696)
-
----
-### 2026-10-06T13:02:11+00:00
-'Prescribing Diploma-Only Eligibility Criterion Not Illegal Merely Because Degree Holders Are Excluded': Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/prescribing-diploma-only-eligibility-criterion-not-illegal-553246
-
-[Read on Telegram](https://t.me/livelawindia/121697)
+[Read on Telegram](https://t.me/livelawindia/121716)
 
 ---
-### 2026-10-06T13:08:11+00:00
-'Amounts To Forgery': J&K&L High Court Upholds Charges Against Man Accused Of Using Forged Records To Secure Bank Loan
-https://www.livelaw.in/high-court/jammu-kashmir/signing-own-name-can-amount-to-forgery-in-certain-circumstances-jk-high-court-upholds-charges-against-man-accused-of-using-forged-revenue-records-to-secure-bank-loan-553239
+### 2026-10-07T03:32:09+00:00
+LiveLaw Bombay High Court Weekly Round-Up: September 28 - October 4, 2026
+https://www.livelaw.in/high-court/bombay-high-court/livelaw-bombay-high-court-weekly-round-up-september-28-october-4-2026-553416
 
-[Read on Telegram](https://t.me/livelawindia/121698)
-
----
-### 2026-10-06T13:11:31+00:00
-Khaitan & Co Advises RPG Life Sciences On API Business Carve-Out and InvAscent Investment
-https://www.livelaw.in/law-firms/deals/khaitan-co-advises-rpg-life-sciences-api-business-carve-out-553394
-
-[Read on Telegram](https://t.me/livelawindia/121699)
+[Read on Telegram](https://t.me/livelawindia/121717)
 
 ---
-### 2026-10-06T13:11:41+00:00
-Bar Association President Moves MP High Court Against Blocking Of His WhatsApp Accounts
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-in-plea-of-mp-high-court-bar-association-president-over-whatsapp-accounts-ban-553395
+### 2026-10-07T03:47:30+00:00
+Sudden Shift From Grandparents May Disturb Child: Rajasthan High Court Creates Phased Visitation, Custody Arrangement For Father
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-denies-immediate-custody-father-553417
 
-[Read on Telegram](https://t.me/livelawindia/121700)
-
----
-### 2026-10-06T13:33:01+00:00
-Opposition To Matrimonial Alliance Not Enough To Book Accused's Family For Abetment Of Rape On Pretext Of Marriage: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-court-quashes-proceedings-against-relatives-man-accused-rape-553376
-
-[Read on Telegram](https://t.me/livelawindia/121701)
+[Read on Telegram](https://t.me/livelawindia/121718)
 
 ---
-### 2026-10-06T13:37:41+00:00
-'Not Sanctioned By Law': Calcutta High Court Awards ₹5.36 Lakh To Man Illegally Detained For 60 Days After Bail
-https://www.livelaw.in/high-court/calcutta-high-court/not-sanctioned-by-law-calcutta-high-court-awards-536-lakh-to-man-illegally-detained-for-60-days-after-bail-553287
+### 2026-10-07T04:02:40+00:00
+Maharashtra Has Become 'Centre' Of Maoist Urban Network: State Defence Special Public Security Act Before Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/maharashtra-has-become-centre-of-maoist-urban-network-state-defence-special-public-security-act-before-bombay-high-court-553418
 
-[Read on Telegram](https://t.me/livelawindia/121702)
-
----
-### 2026-10-06T13:58:21+00:00
-LiveLaw Daily | Legislative Privilege | Dharmasthala SIT | New SC Judges | Salman Khan & More
-https://www.livelaw.in/podcast/swatantra-bhardwaj-kala-hiran-salman-khan-news-india-legal-upsc-clat-supreme-court-ias-553402
-
-[Read on Telegram](https://t.me/livelawindia/121703)
+[Read on Telegram](https://t.me/livelawindia/121719)
 
 ---
-### 2026-10-06T14:08:51+00:00
-2016 Rohith Vemula Protest: Karnataka High Court Quashes Case Against 15 Students, Says Assembly Below 250 Persons Didn't Need Permission
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-case-against-students-2016rohith-vemula-protest-case-553404
+### 2026-10-07T04:18:20+00:00
+Informing Accused In Prison About Plea To Extend Investigation Period Not Enough; Must Produce Them Before Court: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/informing-accused-in-prison-about-plea-to-extend-investigation-period-not-enough-must-produce-them-before-court-bombay-high-court-553425
 
-[Read on Telegram](https://t.me/livelawindia/121704)
-
----
-### 2026-10-06T14:15:51+00:00
-Veeramani POCSO Case: Media Houses Oppose Injunction Before Madras High Court, Say Informed Debate On Child Assault Cases Can Further Justice
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-veeramani-pocso-case-republic-tv-informed-debate-cause-of-justice-553405
-
-[Read on Telegram](https://t.me/livelawindia/121705)
+[Read on Telegram](https://t.me/livelawindia/121720)
 
 ---
-### 2026-10-06T14:18:11+00:00
-'Mere Absence Not Always Willful': Patna High Court Quashes SBI Employee's Deemed Voluntary Resignation Over Medical Leave
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-quashes-sbi-employee-deemed-voluntary-resignation-medical-leave-553391
+### 2026-10-07T04:20:00+00:00
+Loan Amount Alone Cannot Establish 'Commercial Purpose': NCDRC Restores Farmers' Complaints Against HDFC, DCB Banks
+https://www.livelaw.in/consumer-cases/loan-amount-alone-cannot-establish-commercial-purpose-ncdrc-restores-farmers-complaints-against-hdfc-dcb-banks-553431
 
-[Read on Telegram](https://t.me/livelawindia/121706)
-
----
-### 2026-10-06T14:42:32+00:00
-Revenue Authorities Cannot Refuse To Issue Revenue Extracts Unless Barred By Court Order Or Competent Authority: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/revenue-authorities-cannot-refuse-to-issue-revenue-extractsfard-unless-barred-by-court-order-or-direction-of-competent-authority-jk-high-court-553237
-
-[Read on Telegram](https://t.me/livelawindia/121707)
+[Read on Telegram](https://t.me/livelawindia/121721)
 
 ---
-### 2026-10-06T15:34:22+00:00
-Marital Estrangement Not By Itself Ground For Abortion Under MTP Rules: Allahabad High Court Dismisses Woman's Plea
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-marital-estrangement-ground-abortion-mtp-rules-dismisses-woman-plea-553412
+### 2026-10-07T04:25:00+00:00
+Legal Officer Vacancy At National Commission For Minorities
+https://www.livelaw.in/job-updates/legal-officer-vacancy-at-national-commission-for-minorities-553433
 
-[Read on Telegram](https://t.me/livelawindia/121708)
-
----
-### 2026-10-06T15:53:12+00:00
-Supreme Court Reserves Judgment On Pleas Against Delhi HC Verdict Diluting Mandatory Attendance Requirement For Law Students
-https://www.livelaw.in/top-stories/supreme-court-reserves-judgment-on-pleas-against-delhi-hc-verdict-diluting-mandatory-attendance-requirement-for-law-students-553414
-
-[Read on Telegram](https://t.me/livelawindia/121709)
+[Read on Telegram](https://t.me/livelawindia/121722)
 
 ---
-### 2026-10-06T16:21:32+00:00
-Allahabad High Court Initiates Suo Motu PIL Over Town Planning Gaps, Says Amenities Must Be Planned For Future Needs
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-suo-motu-pil-town-planning-gaps-future-needs-553415
+### 2026-10-07T04:32:40+00:00
+POCSO Act | “Lethargic Attitude” Of Authorities In Serving Bail Notices Delays Hearings, Affects Liberty Of Accused: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-flags-improper-service-pocso-bail-notices-553426
 
-[Read on Telegram](https://t.me/livelawindia/121710)
+[Read on Telegram](https://t.me/livelawindia/121723)
 
 ---
-### 2026-10-06T17:32:52+00:00
-LiveLaw High Courts Daily Highlights: October 06, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-06-2026-553406
+### 2026-10-07T04:41:30+00:00
+Judicial Officer Gurvinder Pal Singh Sworn In As Additional Judge Of Delhi High Court, Total Strength Rises To 50
+https://www.livelaw.in/high-court/delhi-high-court/judicial-officer-gurvinder-pal-singh-sworn-in-as-additional-judge-of-delhi-high-court-total-strength-rises-to-50-553440
 
-[Read on Telegram](https://t.me/livelawindia/121711)
+[Read on Telegram](https://t.me/livelawindia/121724)
+
+---
+### 2026-10-07T04:46:10+00:00
+Marks In Exam Cannot Cure Lack Of Essential Qualification Under Recruitment Rules: Supreme Court
+https://www.livelaw.in/supreme-court/marks-in-exam-cannot-cure-lack-of-essential-qualification-under-recruitment-rules-supreme-court-553443
+
+[Read on Telegram](https://t.me/livelawindia/121725)
+
+---
+### 2026-10-07T04:47:10+00:00
+2026 LiveLaw (SC) 1021 | SANTOSH B. NAIK VERSUS STATE OF GOA & ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1021-santosh-b-naik-versus-state-of-goa-ors-553444
+
+[Read on Telegram](https://t.me/livelawindia/121726)
+
+---
+### 2026-10-07T04:50:30+00:00
+LiveLaw Breaking News Alerts: 07 October 2026
+https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts-07-october-2026-553446
+
+[Read on Telegram](https://t.me/livelawindia/121727)
+
+---
+### 2026-10-07T04:50:40+00:00
+2026 LiveLaw (SC) 1022 | SUDHA RAKESH VERSUS THE STATE OF KARNATAKA & ANR
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1022-sudha-rakesh-versus-the-state-of-karnataka-anr-553447
+
+[Read on Telegram](https://t.me/livelawindia/121728)
+
+---
+### 2026-10-07T04:52:40+00:00
+Section 151 CPC Can Permit Additional Evidence After Closure Of Trial If Necessary In Interests Of Justice: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/section-151-cpc-can-permit-additional-evidence-after-closure-of-trial-if-necessary-in-interests-of-justice-jk-high-court-553241
+
+[Read on Telegram](https://t.me/livelawindia/121729)
+
+---
+### 2026-10-07T04:52:50+00:00
+2026 LiveLaw (SC) 1023 | Ajit Kumar v State of Jharkhand
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1023-ajit-kumar-v-state-of-jharkhand-553448
+
+[Read on Telegram](https://t.me/livelawindia/121730)
+
+---
+### 2026-10-07T05:02:50+00:00
+Suit Not Liable To Dismissal For Want Of Permission To Sue In Representative Capacity, But Outcome Binds Only Parties: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-suit-liable-dismissal-permission-representative-capacity-553439
+
+[Read on Telegram](https://t.me/livelawindia/121731)
+
+---
+### 2026-10-07T05:08:50+00:00
+PITNDPS Act | Detenu Must Be Specifically Informed Of Right To Represent To Detaining Authority: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/pitndps-act-detenu-right-represent-detaining-authority-allahabad-high-court-553453
+
+[Read on Telegram](https://t.me/livelawindia/121732)
+
+---
+### 2026-10-07T05:12:30+00:00
+Wife Spending On Child's Birthday From Her Own Earnings Not Cruelty By Husband: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-wife-spending-money-child-birthday-celebration-not-cruelty-553427
+
+[Read on Telegram](https://t.me/livelawindia/121733)
 
 ---
