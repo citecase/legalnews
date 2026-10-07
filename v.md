@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-07T13:32:20+00:00*
+*Last Updated: 2026-10-07T16:02:45+00:00*
+
+---
+
+### 2026-10-07T16:02:45+00:00
+Consultant (legal) Vacancy At Ministry of External Affairs
+https://www.verdictum.in/job-updates/ministry-of-external-affairs-1623540
+
+[Source Link](https://t.me/verdictumlegalupdates/29543)
+
+---
+
+### 2026-10-07T15:32:54+00:00
+Disqualifying Candidates Facing Trial For Serious Offences Prevents Criminalization Of Politics: Rajasthan High Court Rejects Challenge To Municipalities Act
+https://www.verdictum.in/rajasthan-high-court/budh-dan-v-state-of-rajasthan-and-others-2026rj-jd43445-db-municipalities-act-1623551
+
+[Source Link](https://t.me/verdictumlegalupdates/29542)
+
+---
+
+### 2026-10-07T15:32:44+00:00
+Sexual Intercourse After Suppressing Earlier Relationship & Child, Though Not Rape, Falls Under 'Deceitful Means' U/S 69 BNS: Kerala High Court
+https://www.verdictum.in/kerala-high-court/udayan-v-x-2026ker74972-deceitful-means-us-69-bns-sexual-intercourse-1623548
+
+[Source Link](https://t.me/verdictumlegalupdates/29541)
+
+---
+
+### 2026-10-07T15:03:03+00:00
+Child Marriage Is Social Evil Eradicated By Legislation; Settlement In Such Cases Can’t Wipe Out Criminality: Delhi High Court
+https://www.verdictum.in/delhi-high-court/sher-bahadur-shera-v-state-govt-of-nct-of-delhi-2026dhc8700-child-marriage-social-evil-1623549
+
+[Source Link](https://t.me/verdictumlegalupdates/29540)
+
+---
+
+### 2026-10-07T14:33:02+00:00
+Consent Under Fear Or Misconception Cannot Be Loosely Inferred To Fasten Criminal Liability: Supreme Court While Quashing Rape Case
+https://www.verdictum.in/supreme-court/martanda-singh-v-state-of-chhattisgarh-2026-insc-1081-consent-misconception-physical-relationship-1623550
+
+[Source Link](https://t.me/verdictumlegalupdates/29539)
+
+---
+
+### 2026-10-07T14:02:41+00:00
+Delhi High Court Asks Centre To Consider Plea For Body-Worn Cameras For Police Managing Protests, Crowd
+https://www.verdictum.in/delhi-high-court/plea-for-body-worn-cameras-for-police-managing-protests-crowd-1623543
+
+[Source Link](https://t.me/verdictumlegalupdates/29538)
 
 ---
 
@@ -113,54 +161,6 @@ Annual Proceeds From Sale Of Shares Form Part Of Husband’s Income For Determin
 https://www.verdictum.in/karnataka-high-court/eg-v-jg-2026khc53083-husband-annual-income-wife-maintenance-shares-sale-1623515
 
 [Source Link](https://t.me/verdictumlegalupdates/29524)
-
----
-
-### 2026-10-07T06:32:48+00:00
-Reserved Candidates Above Open Cut-Off Must Enter Unreserved List At Screening Stage If Marks Count In Final Merit: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/bhavna-yadav-and-6-others-v-state-of-uttar-pradesh-and-others-2026ahc-lko69231-db-1623505
-
-[Source Link](https://t.me/verdictumlegalupdates/29523)
-
----
-
-### 2026-10-07T06:03:07+00:00
-Dates On Electronic Summary Forms DRC-01/DRC-07 Cannot "By Themselves" Render SCN Or Order Time-Barred U/S 74 CGST Act: Delhi High Court
-https://www.verdictum.in/delhi-high-court/ms-aparna-collection-v-union-of-india-2026dhc8603-db-electronic-summary-forms-drc-01drc-07-1623504
-
-[Source Link](https://t.me/verdictumlegalupdates/29522)
-
----
-
-### 2026-10-07T05:32:46+00:00
-Courts Ordinarily Can’t Add To Or Alter Essential Qualifications Prescribed Under Recruitment Rules While Exercising Judicial Review: Supreme Court
-https://www.verdictum.in/supreme-court/santosh-b-naik-v-state-of-goa-2026-insc-1089-qualifications-recruitment-rules-judicial-review-1623500
-
-[Source Link](https://t.me/verdictumlegalupdates/29521)
-
----
-
-### 2026-10-07T05:02:25+00:00
-Can’t Quash NDPS Case Merely On Ground That Confessional Statement Can’t Be Relied On In Trial: Supreme Court
-https://www.verdictum.in/supreme-court/the-state-of-karnataka-v-sadiq-pasha-2026-insc-1083-ndps-charges-confessional-statement-trial-1623496
-
-[Source Link](https://t.me/verdictumlegalupdates/29520)
-
----
-
-### 2026-10-07T04:32:35+00:00
-Excess Amount Paid To Employees By Mistake Can Be Recovered If Undertakings Are Given By Them: Supreme Court
-https://www.verdictum.in/supreme-court/dr-m-k-ravi-varma-v-national-institute-of-technology-2026-insc-1080-employee-amount-undertaking-1623470
-
-[Source Link](https://t.me/verdictumlegalupdates/29519)
-
----
-
-### 2026-10-06T16:02:44+00:00
-Manager (Legal) Vacancy At Jammu and Kashmir Development Finance Corporation Ltd. (JKDFC)
-https://www.verdictum.in/job-updates/jammu-and-kashmir-development-finance-corporation-ltd-1623468
-
-[Source Link](https://t.me/verdictumlegalupdates/29518)
 
 ---
 
