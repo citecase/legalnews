@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-07T10:51:42+00:00*
+*Last Updated: 2026-10-07T13:15:03+00:00*
 
 ---
 
-### 2026-10-07T10:51:42+00:00
-Supreme Court Requests Allahabad High Court Chief Justice To Examine Giving Priority To Pension Cases
-https://www.livelaw.in/top-stories/supreme-court-asks-allahabad-high-court-chief-justice-examine-priority-hearing-pension-cases-553537
+### 2026-10-07T13:15:03+00:00
+RP Act | Election Petition Must Be Presented Petitioner Himself & Not Counsel : Supreme Court
+https://www.livelaw.in/supreme-court/rp-act-election-petition-must-be-presented-petitioner-himself-not-counsel-supreme-court-553574
 
-[Read on Telegram](https://t.me/livelawindia/121781)
-
----
-### 2026-10-07T10:52:22+00:00
-Existing Hotels, Guest Houses Nearby Cannot Justify Commercial Land Use In Restricted Area: Himachal Pradesh High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-existing-commercial-activity-justify-commercial-land-use-restricted-area-553514
-
-[Read on Telegram](https://t.me/livelawindia/121782)
+[Read on Telegram](https://t.me/livelawindia/121803)
 
 ---
-### 2026-10-07T11:03:02+00:00
-Use Of Term 'Jihadi' In Facebook Post Doesn't Attract Offence Of Outraging Religious Sentiments: Karnataka High Court Quashes Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-proceedings-man-social-media-post-553540
+### 2026-10-07T13:18:03+00:00
+'Merely Running School Is Not Charitable Purpose': Bombay High Court Rejects Education Trust's Property-Tax Exemption Bid
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-rejects-education-trust-property-tax-exemption-bid-553516
 
-[Read on Telegram](https://t.me/livelawindia/121783)
-
----
-### 2026-10-07T11:03:32+00:00
-'Make A Good Movie, You Can Restore Your Image': CJI To Rajpal Yadav After He Deposits 1.15 Cr In Cheque Bounce Cases
-https://www.livelaw.in/top-stories/supreme-court-actor-rajpal-yadav-movie-loss-plea-against-conviction-sentence-in-7-cheque-dishonor-cases-sc-warns-enhancement-of-sentence-553542
-
-[Read on Telegram](https://t.me/livelawindia/121784)
+[Read on Telegram](https://t.me/livelawindia/121804)
 
 ---
-### 2026-10-07T11:07:52+00:00
-Bombay High Court Rejects Anticipatory Bail To Galaxy Hospital Licensee In Illegal Abortion Death Case
-https://www.livelaw.in/high-court/bombay-high-court/hospital-licensee-duty-bound-to-ensure-qualified-staff-553513
+### 2026-10-07T13:22:23+00:00
+Income Tax | Subsidy Can Become Taxable Depending On Purpose Test : Supreme Court
+https://www.livelaw.in/supreme-court/income-tax-subsidy-can-become-taxable-depending-on-purpose-test-supreme-court-553578
 
-[Read on Telegram](https://t.me/livelawindia/121785)
-
----
-### 2026-10-07T11:08:52+00:00
-Mumbai Court Discharges One In Bulli Bai App Case; Says Merely Following The App Is Not An Offence
-https://www.livelaw.in/news-updates/mumbai-court-discharges-one-bulli-bai-app-case-following-app-not-offence-553543
-
-[Read on Telegram](https://t.me/livelawindia/121786)
+[Read on Telegram](https://t.me/livelawindia/121805)
 
 ---
-### 2026-10-07T11:14:12+00:00
-Police's Condition In Uttar Pradesh Is A Mess: Allahabad High Court Orally Rebukes Noida Cops Over Man's Illegal Detention
-https://www.livelaw.in/top-stories/allahabad-hc-police-condition-uttar-pradesh-mess-noida-illegal-detention-553544
+### 2026-10-07T13:22:43+00:00
+Migrated In Search Of Employment, Unable To Pay Fine: Madras High Court Reduces Default Sentence Imposed On Bangladeshi National
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-bangladeshi-nationals-default-sentence-reduced-unable-to-pay-fine-553575
 
-[Read on Telegram](https://t.me/livelawindia/121787)
-
----
-### 2026-10-07T11:24:12+00:00
-MP High Court Seeks Centre's Stand On Bar Association President's Plea Against Blocking Of His WhatsApp Accounts
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-grants-time-to-union-high-court-bar-association-president-blocking-of-his-whatsapp-accounts-553546
-
-[Read on Telegram](https://t.me/livelawindia/121788)
+[Read on Telegram](https://t.me/livelawindia/121806)
 
 ---
-### 2026-10-07T11:32:12+00:00
-MSME Supplier's Non-Registration At Time Of Transaction Does Not Render Facilitation Council's Award A Nullity: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/msme-suppliers-non-registration-at-time-of-transaction-does-not-render-facilitation-councils-award-a-nullity-jk-high-court-553518
+### 2026-10-07T13:26:03+00:00
+MP High Court Directs Father To Return Daughter's Custody To Mother If He Remarries Or Enters Live-In Relationship
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-childs-custody-goes-to-with-mother-once-father-remarries-or-enters-live-in-relationship-553580
 
-[Read on Telegram](https://t.me/livelawindia/121789)
-
----
-### 2026-10-07T11:32:23+00:00
-'Undue Fetter' On Right Of Appeal: Kerala High Court Sets Aside Order Requiring 50% Maintenance Deposit For Delay Condonation
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-condition-award-amount-delay-condonation-553548
-
-[Read on Telegram](https://t.me/livelawindia/121790)
+[Read on Telegram](https://t.me/livelawindia/121807)
 
 ---
-### 2026-10-07T11:40:32+00:00
-CJI Surya Kant To Preside NLSIU Convocation; Arundhati Nag To Be Chief Guest
-https://www.livelaw.in/top-stories/cji-surya-kant-to-preside-nlsiu-convocation-arundhati-nag-to-be-chief-guest-553553
+### 2026-10-07T13:51:03+00:00
+LiveLaw Daily | AIIMS in Kerala| CEC Recall| CM Vijay's Assets |Police Cameras| Rajpal Yadav
+https://www.livelaw.in/podcast/supreme-court-rajpal-yadav-delhi-police-cm-joseph-vijay-india-upsc-clat-news-legal-news-553584
 
-[Read on Telegram](https://t.me/livelawindia/121791)
-
----
-### 2026-10-07T11:48:02+00:00
-VGU R.K. Rastogi Memorial Negotiation Competition 2026 To Be Held On October 24-25; Registrations Open
-https://www.livelaw.in/lawschool/competitions/vgu-rk-rastogi-memorial-negotiation-competition-2026-to-be-held-on-october-24-25-registrations-open-553556
-
-[Read on Telegram](https://t.me/livelawindia/121792)
+[Read on Telegram](https://t.me/livelawindia/121808)
 
 ---
-### 2026-10-07T12:03:02+00:00
-Civil Court Can Direct Police Assistance To Enforce Injunction Order Under Section 151 CPC: Himachal Pradesh High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-civil-court-direct-police-assistance-enforce-injunction-order-553519
+### 2026-10-07T14:07:54+00:00
+Penalty For Delayed Compensation Under Employees' Compensation Act Cannot Be Imposed Without Finding Of Unjustified Delay: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/penalty-under-section-4-a3b-employees-compensation-act-cannot-be-imposed-without-finding-of-unjustified-delay-opportunity-of-hearing-jk-high-court-553521
 
-[Read on Telegram](https://t.me/livelawindia/121793)
-
----
-### 2026-10-07T12:06:43+00:00
-Karnataka High Court Reserves Order On WinZO's Plea To Shift US Bank Funds Attached By ED
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-reserves-order-winzo-plea-relocate-attached-us-bank-funds-553559
-
-[Read on Telegram](https://t.me/livelawindia/121794)
+[Read on Telegram](https://t.me/livelawindia/121809)
 
 ---
-### 2026-10-07T12:12:43+00:00
-Sabarimala Gold Theft: Kerala High Court Sets Timelines For SIT To Request Prosecution Sanctions In Dwarapalaka, Doorframes Cases
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sabarimala-gold-theft-553560
+### 2026-10-07T15:01:24+00:00
+Supreme Court Asks AP High Court To Monitor Probe Into Death Of Girl After Anti-Malaria Drive
+https://www.livelaw.in/top-stories/supreme-court-asks-ap-high-court-to-monitor-probe-into-death-of-girl-after-anti-malaria-drive-553593
 
-[Read on Telegram](https://t.me/livelawindia/121795)
-
----
-### 2026-10-07T12:27:23+00:00
-'Absence Of Signs Of Resistance Not Ground To Disbelieve Rape Victim': Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-absence-resistance-sign-ground-disbelieve-rape-victim-553508
-
-[Read on Telegram](https://t.me/livelawindia/121796)
+[Read on Telegram](https://t.me/livelawindia/121810)
 
 ---
-### 2026-10-07T12:28:33+00:00
-Supreme Court Refuses To Interfere With Interim Bail To Congress Nandigram Candidate Milan Pradhan
-https://www.livelaw.in/top-stories/supreme-court-refuses-to-interfere-with-interim-bail-to-congress-nandigram-candidate-milan-pradhan-553565
+### 2026-10-07T15:04:24+00:00
+2026 LiveLaw (SC) 1026 | V. PON. PANEERSELVAM VERSUS S. REGUPATHY AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1026-v-pon-paneerselvam-versus-s-regupathy-and-others-553594
 
-[Read on Telegram](https://t.me/livelawindia/121797)
-
----
-### 2026-10-07T12:46:53+00:00
-Karnataka High Court Allows Minor To Change Name For Astrological Beliefs, Says Everyone Has Right To Be Recognized By Their Name
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-allows-minor-plea-change-name-per-astrological-beliefs-553568
-
-[Read on Telegram](https://t.me/livelawindia/121798)
+[Read on Telegram](https://t.me/livelawindia/121811)
 
 ---
-### 2026-10-07T12:47:33+00:00
-'Signature Variations Alone Cannot Establish OMR Tampering': Patna High Court Dismisses NEET Aspirants' Pleas
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-dismisses-neet-aspirants-pleas-challenging-marks-553520
+### 2026-10-07T15:05:44+00:00
+2026 LiveLaw (SC) 1027 | M/S. MEPCO INDUSTRIES LTD. VERSUS COMMISSIONER OF INCOME TAX COMPANY CIRCLE
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1027-ms-mepco-industries-ltd-versus-commissioner-of-income-tax-company-circle-553595
 
-[Read on Telegram](https://t.me/livelawindia/121799)
+[Read on Telegram](https://t.me/livelawindia/121812)
 
 ---
-### 2026-10-07T12:48:13+00:00
-Covid Ex-Gratia Claims Cannot Be Rejected Merely Because Test Was Conducted At Unauthorised Laboratory: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-directs-state-follow-supreme-court-gaurav-bansal-judgment-553390
+### 2026-10-07T15:30:24+00:00
+Supreme Court Quashes Cheating Case Over Unpaid Steel Dues, Calls Criminal Cases In Civil Disputes An Abuse Of Process Of Law
+https://www.livelaw.in/supreme-court/supreme-court-quashes-cheating-case-unpaid-steel-dues-553597
 
-[Read on Telegram](https://t.me/livelawindia/121800)
+[Read on Telegram](https://t.me/livelawindia/121813)
+
+---
+### 2026-10-07T15:31:04+00:00
+2026 LiveLaw (SC) 1028 | Yogesh Premjibhai Suvariya & Anr. v State of Gujarat & Anr
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1028-yogesh-premjibhai-suvariya-anr-v-state-of-gujarat-anr-553598
+
+[Read on Telegram](https://t.me/livelawindia/121814)
+
+---
+### 2026-10-07T16:10:35+00:00
+Supreme Court Flags Delhi HC Judgment Impeding Speedy Execution Of Civil Decrees
+https://www.livelaw.in/top-stories/supreme-court-flags-delhi-hc-judgment-impeding-speedy-execution-of-civil-decrees-553600
+
+[Read on Telegram](https://t.me/livelawindia/121815)
+
+---
+### 2026-10-07T16:32:25+00:00
+Shiv Sena Row | Supreme Court Questions ECI Using 'Legislative Majority' Test, Asks Why Official Symbol Wasn't Withheld From Both Factions
+https://www.livelaw.in/top-stories/shiv-sena-row-supreme-court-questions-eci-applying-legislative-majority-test-553602
+
+[Read on Telegram](https://t.me/livelawindia/121816)
+
+---
+### 2026-10-07T16:38:45+00:00
+'We Don't See Any Improvement': Bombay High Court Pulls Up BMC Over Garbage, Poor Hygiene Across Mumbai
+https://www.livelaw.in/high-court/bombay-high-court/we-dont-see-any-improvement-bombay-high-court-pulls-up-bmc-over-garbage-poor-hygiene-across-mumbai-553603
+
+[Read on Telegram](https://t.me/livelawindia/121817)
+
+---
+### 2026-10-07T17:25:36+00:00
+Call For Papers: First International Conference On Future Of Justice: Crime, Constitution & Technology (KLE-JUSTECH 2027) By KLE Law College, Bengaluru
+https://www.livelaw.in/lawschool/call-for-papers/first-international-conference-on-future-of-justice-crime-constitution-technology-kle-law-college-bengaluru-553605
+
+[Read on Telegram](https://t.me/livelawindia/121818)
+
+---
+### 2026-10-07T17:27:36+00:00
+Supreme Court Daily Round-Up : October 7, 2026
+https://www.livelaw.in/round-ups/supreme-court-daily-round-up-october-7-2026-553599
+
+[Read on Telegram](https://t.me/livelawindia/121819)
+
+---
+### 2026-10-07T17:32:36+00:00
+LiveLaw High Courts Daily Highlights: October 07, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-07-2026-553604
+
+[Read on Telegram](https://t.me/livelawindia/121820)
+
+---
+### 2026-10-07T17:40:56+00:00
+NCW Holds Consultation On State-Specific Laws, Highlights Women's Property Rights And Access To Justice
+https://www.livelaw.in/news-updates/ncw-holds-consultation-on-state-specific-laws-highlights-womens-property-rights-and-access-to-justice-553606
+
+[Read on Telegram](https://t.me/livelawindia/121821)
+
+---
+### 2026-10-07T17:55:36+00:00
+Koninika Bhattacharjee Launches Windward Law Office, Focusing On PE, VC, M&A, Capital Markets And Investment Funds
+https://www.livelaw.in/law-firms/professional-announcement/koninika-bhattacharjee-launches-windward-law-office-focusing-pe-vc-ma-capital-markets-investment-funds-553608
+
+[Read on Telegram](https://t.me/livelawindia/121822)
 
 ---
