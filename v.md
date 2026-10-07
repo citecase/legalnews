@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-06T16:02:44+00:00*
+*Last Updated: 2026-10-07T06:03:07+00:00*
+
+---
+
+### 2026-10-07T06:03:07+00:00
+Dates On Electronic Summary Forms DRC-01/DRC-07 Cannot "By Themselves" Render SCN Or Order Time-Barred U/S 74 CGST Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/ms-aparna-collection-v-union-of-india-2026dhc8603-db-electronic-summary-forms-drc-01drc-07-1623504
+
+[Source Link](https://t.me/verdictumlegalupdates/29522)
+
+---
+
+### 2026-10-07T05:32:46+00:00
+Courts Ordinarily Can’t Add To Or Alter Essential Qualifications Prescribed Under Recruitment Rules While Exercising Judicial Review: Supreme Court
+https://www.verdictum.in/supreme-court/santosh-b-naik-v-state-of-goa-2026-insc-1089-qualifications-recruitment-rules-judicial-review-1623500
+
+[Source Link](https://t.me/verdictumlegalupdates/29521)
+
+---
+
+### 2026-10-07T05:02:25+00:00
+Can’t Quash NDPS Case Merely On Ground That Confessional Statement Can’t Be Relied On In Trial: Supreme Court
+https://www.verdictum.in/supreme-court/the-state-of-karnataka-v-sadiq-pasha-2026-insc-1083-ndps-charges-confessional-statement-trial-1623496
+
+[Source Link](https://t.me/verdictumlegalupdates/29520)
+
+---
+
+### 2026-10-07T04:32:35+00:00
+Excess Amount Paid To Employees By Mistake Can Be Recovered If Undertakings Are Given By Them: Supreme Court
+https://www.verdictum.in/supreme-court/dr-m-k-ravi-varma-v-national-institute-of-technology-2026-insc-1080-employee-amount-undertaking-1623470
+
+[Source Link](https://t.me/verdictumlegalupdates/29519)
 
 ---
 
@@ -129,38 +161,6 @@ Supreme Court Agrees To List Punjab Govt's Plea Against HC Order For CBI Probe I
 https://www.verdictum.in/supreme-court/punjab-govts-plea-against-hc-order-for-cbi-probe-into-corruption-allegations-1623445
 
 [Source Link](https://t.me/verdictumlegalupdates/29503)
-
----
-
-### 2026-10-06T08:02:53+00:00
-Cheating & Criminal Breach Of Trust Are "Independent & Distinct" Offences, Cannot Coexist On Same Facts: Supreme Court Reiterates
-https://www.verdictum.in/supreme-court/yogesh-premjibhai-suvariya-v-state-of-gujarat-2026-insc-1079-pre-eminently-civil-steel-trading-company-directors-1623437
-
-[Source Link](https://t.me/verdictumlegalupdates/29502)
-
----
-
-### 2026-10-06T07:32:31+00:00
-Gratuity Is A Distinct Retiral Benefit & Payment Of Other Service Dues Alone Cannot Justify Its Denial: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/raisa-khan-v-state-of-uttar-pradesh-2026ahc-lko70249-retirement-dues-gratuity-1623436
-
-[Source Link](https://t.me/verdictumlegalupdates/29501)
-
----
-
-### 2026-10-06T07:02:50+00:00
-Suspension Order U/S.35 (3)(c) Of Advocates Act Is Final, Can’t Be Passed At Interim Stage By Bar Council: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/akhilesh-jaiswal-and-another-v-bar-council-of-india-2026ahclko70443-db-suspension-order-advocates-act-1623431
-
-[Source Link](https://t.me/verdictumlegalupdates/29500)
-
----
-
-### 2026-10-06T06:32:29+00:00
-Alleged Police Misconduct During 2020 Delhi Riots Is Not, By Itself, Ground For Transfer Of Probe: Delhi High Court
-https://www.verdictum.in/delhi-high-court/shaikh-mujtaba-farooq-v-union-of-india-2026dhc8710-db-police-misconduct-allegation-investigation-fair-probe-1623426
-
-[Source Link](https://t.me/verdictumlegalupdates/29499)
 
 ---
 
