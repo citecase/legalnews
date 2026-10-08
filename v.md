@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-07T16:02:45+00:00*
+*Last Updated: 2026-10-08T06:02:07+00:00*
+
+---
+
+### 2026-10-08T06:02:07+00:00
+Length Of Custody Alone Not A Ground To Override Statutory Embargo U/S 37 NDPS Act In Commercial Quantity Cases: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/shakoor-khan-v-state-of-rajasthan-2026rj-jd48352-length-of-custody-alone-not-a-ground-us-37-ndps-act-1623580
+
+[Source Link](https://t.me/verdictumlegalupdates/29547)
+
+---
+
+### 2026-10-08T05:21:46+00:00
+Breaking: Supreme Court Directs Centre To Form Committee On Unethical Pharma Practices And Mandatory Marketing Code
+https://www.verdictum.in/supreme-court/freebies-to-doctor-directs-centre-form-committee-pharma-practices-marketing-code-1623578
+
+[Source Link](https://t.me/verdictumlegalupdates/29546)
+
+---
+
+### 2026-10-08T05:02:46+00:00
+Wholesale Reproduction Of News Videos As Substitutes Is Not Fair Dealing Under Copyright Act: Delhi High Court Decrees Suit Filed By ANI
+https://www.verdictum.in/delhi-high-court/ani-media-private-limited-v-rsy-news-and-another-2026dhc8749-copyright-act-1623575
+
+[Source Link](https://t.me/verdictumlegalupdates/29545)
+
+---
+
+### 2026-10-08T04:32:35+00:00
+Vacant OBC-NCL Seats Cannot Justify Category Change After NEET-UG Results: Madras High Court
+https://www.verdictum.in/madras-high-court/-keerthi-v-v-the-secretary-medical-counselling-committee-and-others-1623572
+
+[Source Link](https://t.me/verdictumlegalupdates/29544)
 
 ---
 
@@ -129,38 +161,6 @@ Mere Trademark Registration Not Enough To Establish "First Owner" Status Of Copy
 https://www.verdictum.in/delhi-high-court/japan-tobacco-inc-v-the-central-warehouse-2026dhc8713-first-owner-mere-trademark-registration-1623527
 
 [Source Link](https://t.me/verdictumlegalupdates/29528)
-
----
-
-### 2026-10-07T08:32:31+00:00
-Supreme Court To Examine Early Listing Of Application Seeking Recall In Split Verdict Over Election Commissioners’ Appointment Law
-https://www.verdictum.in/supreme-court/examine-early-listing-application-recall-split-verdict-election-commissioners-appointment-law-1623525
-
-[Source Link](https://t.me/verdictumlegalupdates/29527)
-
----
-
-### 2026-10-07T08:03:10+00:00
-Offence Does Not Become Lesser Just Because Victim Is An Illegal Immigrant: Bombay High Court Upholds Conviction In Immoral Traffic Case
-https://www.verdictum.in/bombay-high-court/rani-pratap-singh-v-state-of-maharashtra-criminal-revision-application-no-461-of-2015-illegal-immigrant-sex-worker-bangladeshi-woman-indignity-human-being-1623521
-
-[Source Link](https://t.me/verdictumlegalupdates/29526)
-
----
-
-### 2026-10-07T07:32:30+00:00
-Extra Excavation Alone Not Sufficient to Hold That Excavated Material Is Minor Mineral; Royalty Can’t Be Imposed On Same: Bombay High Court
-https://www.verdictum.in/bombay-high-court/viren-buildcon-llp-v-the-state-of-maharshtra-extra-excavation-minor-mineral-royalty-1623517
-
-[Source Link](https://t.me/verdictumlegalupdates/29525)
-
----
-
-### 2026-10-07T07:02:09+00:00
-Annual Proceeds From Sale Of Shares Form Part Of Husband’s Income For Determining Maintenance: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/eg-v-jg-2026khc53083-husband-annual-income-wife-maintenance-shares-sale-1623515
-
-[Source Link](https://t.me/verdictumlegalupdates/29524)
 
 ---
 
