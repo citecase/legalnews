@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-08T03:03:23+00:00*
+*Last Updated: 2026-10-08T09:10:37+00:00*
 
 ---
 
-### 2026-10-08T03:03:23+00:00
-Motor Accident Compensation Can Exceed Amount Claimed If Evidence Justifies Higher Award: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-enhances-compensation-tribunal-cannot-restrict-award-claim-amount-553610
+### 2026-10-08T09:10:37+00:00
+Meghalaya High Court Expresses Displeasure Over Amicus' Non-Appearance Amid Lawyers' Strike; Says Their Loyalty Is To Justice, Not To Bar Body
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-expresses-displeasure-regarding-non-appearance-amicus-bar-strike-553710
 
-[Read on Telegram](https://t.me/livelawindia/121823)
-
----
-### 2026-10-08T03:17:43+00:00
-Gauhati High Court Awards ₹5 Lakh Compensation For Death During Illegal Police Custody
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-awards-5-lakh-compensation-death-during-illegal-police-custody-553611
-
-[Read on Telegram](https://t.me/livelawindia/121824)
+[Read on Telegram](https://t.me/livelawindia/121876)
 
 ---
-### 2026-10-08T03:33:03+00:00
-Writ Petition Alleging Violations Of Natural Justice Can't Be Dismissed At Threshold For Alternative Remedy: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-writ-petition-alleging-violations-ponj-dismissed-alternative-remedy-553612
+### 2026-10-08T09:17:07+00:00
+Mechanical Transfer Of Caregiver 1000 Kms Away From Thalassemia Patient 'Inhumane', Violates Article 21: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-sets-aside-order-of-transfer-of-caregiver-thalassemia-patient-says-its-inhumane-and-violates-article-21-constitution-553712
 
-[Read on Telegram](https://t.me/livelawindia/121825)
-
----
-### 2026-10-08T03:43:13+00:00
-Rajasthan High Court Directs State To Comply With Asaram's 20-Day Parole Order
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-directs-state-comply-asaram-parole-order-553613
-
-[Read on Telegram](https://t.me/livelawindia/121826)
+[Read on Telegram](https://t.me/livelawindia/121877)
 
 ---
-### 2026-10-08T03:52:14+00:00
-Caste-Based Insult Not In 'Public View', Eyewitness Didn't Support Prosecution: Gujarat High Court Upholds SC/ST Act Acquittal
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-upholds-acquittal-of-three-accused-of-using-caste-based-slurs-553614
+### 2026-10-08T09:23:07+00:00
+Supreme Court Questions Jharkhand DGP Appointment Rule, Asks Amicus To Examine Validity Of Other States' Rules
+https://www.livelaw.in/top-stories/supreme-court-jharkhand-dgp-appointment-union-files-application-amicus-to-examine-dgp-appointments-and-laws-of-other-states-prakash-singh-judgment-553714
 
-[Read on Telegram](https://t.me/livelawindia/121827)
-
----
-### 2026-10-08T04:03:14+00:00
-Revenue Authority's Decision Doesn't Bar Civil Suit Or Operate As Res Judicata In Absence Of Express Statutory Bar: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-decision-by-revenue-authority-does-not-by-itself-operate-as-res-judicata-in-subsequent-civil-suit-553615
-
-[Read on Telegram](https://t.me/livelawindia/121828)
+[Read on Telegram](https://t.me/livelawindia/121878)
 
 ---
-### 2026-10-08T04:12:34+00:00
-CCTV Footage Helped Court Intervene In Police Station Assault Case: Tripura High Court
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-cctv-footage-helped-court-intervene-in-alleged-police-station-assault-553621
+### 2026-10-08T09:30:47+00:00
+Calcutta High Court Seeks Withdrawal Of Lawyers' Strikes After Attacks On Advocates, Cites Hardship To Litigants
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-seeks-withdrawal-of-lawyers-strikes-after-attacks-on-advocates-cites-hardship-to-litigants-553715
 
-[Read on Telegram](https://t.me/livelawindia/121829)
-
----
-### 2026-10-08T04:12:54+00:00
-Jharkhand High Court Holds Mega Blood Donation Camp In Association With Legal Services Committee, Advocates' Association, Sadar Hospital & Others
-https://www.livelaw.in/news-updates/jharkhand-high-court-holds-mega-blood-donation-camp-legal-services-committee-advocates-association-553607
-
-[Read on Telegram](https://t.me/livelawindia/121830)
+[Read on Telegram](https://t.me/livelawindia/121879)
 
 ---
-### 2026-10-08T04:22:54+00:00
-S.498A IPC | Delayed Cruelty FIR Not Counterblast When Wife “Remains Silent” To Save Marriage: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-merely-delay-in-filing-section-498a-ipc-fir-cannot-be-deemed-to-be-counterblast-553618
+### 2026-10-08T09:36:27+00:00
+Nirma University To Host ILNU MUN Chapter VI From October 30
+https://www.livelaw.in/lawschool/competitions/nirma-university-to-host-ilnu-mun-chapter-vi-from-october-30-553717
 
-[Read on Telegram](https://t.me/livelawindia/121831)
-
----
-### 2026-10-08T04:23:55+00:00
-New Bus Suffers Engine Overheating, Seizure Within 2 Months: Belagavi Consumer Commission Orders Replacement Or Refund
-https://www.livelaw.in/consumer-cases/new-bus-suffers-engine-overheating-seizure-within-2-months-belagavi-consumer-commission-orders-replacement-or-refund-553626
-
-[Read on Telegram](https://t.me/livelawindia/121832)
+[Read on Telegram](https://t.me/livelawindia/121880)
 
 ---
-### 2026-10-08T04:33:04+00:00
-Rajasthan High Court Upholds 10% Lifetime Pension Cut After Police Officials Fled Mob, Sub-Inspector Burnt Alive
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-upholds-lifetime-pension-cut-cops-fled-mob-attack-553616
+### 2026-10-08T09:45:47+00:00
+Madras High Court Reserves Order On CM Vijay's Plea To Reject Election Petition; Asks If Asset Non-Disclosure Constituted 'Undue Influence'
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-cm-vijay-reject-election-petition-voter-orders-reserved-553718
 
-[Read on Telegram](https://t.me/livelawindia/121833)
-
----
-### 2026-10-08T04:35:44+00:00
-Case Worker Vacancy At One Stop Center Adoni, Andhra Pradesh
-https://www.livelaw.in/job-updates/case-worker-vacancy-at-one-stop-center-adoni-andhra-pradesh-553628
-
-[Read on Telegram](https://t.me/livelawindia/121834)
+[Read on Telegram](https://t.me/livelawindia/121881)
 
 ---
-### 2026-10-08T04:37:25+00:00
-Assistant Director (Prosecution) And Assistant Public Prosecutor Vacancy At Arunachal Pradesh Public Service Commission
-https://www.livelaw.in/job-updates/assistant-director-prosecution-and-assistant-public-prosecutor-vacancy-at-arunachal-pradesh-public-service-commission-553630
+### 2026-10-08T10:03:38+00:00
+Codeine Syrup 'Racket' | Allahabad High Court Allows Habeas Corpus Pleas Of 2 Alleged Kingpins, Quashes Detention Under PITNDPS Act
+https://www.livelaw.in/high-court/allahabad-high-court/codeine-syrup-racket-allahabad-hc-allows-habeas-corpus-kingpins-quashes-detention-in-pitndps-act-553722
 
-[Read on Telegram](https://t.me/livelawindia/121835)
-
----
-### 2026-10-08T04:38:45+00:00
-Chief Manager (Legal) Vacancy At The Shipping Corporation of India Limited
-https://www.livelaw.in/job-updates/chief-manager-legal-vacancy-at-the-shipping-corporation-of-india-limited-553631
-
-[Read on Telegram](https://t.me/livelawindia/121836)
+[Read on Telegram](https://t.me/livelawindia/121882)
 
 ---
-### 2026-10-08T04:42:45+00:00
-Rajasthan High Court Imposes ₹10,000 Costs On State For Forcing Employee To Litigate Over Name Correction
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-fines-state-failing-correct-employee-name-553629
+### 2026-10-08T10:08:38+00:00
+Obscene Words, General Abuse At Woman Not Offence U/S 354A(1)(iv) IPC If No Allegation Of Sexually Coloured Remark: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sexual-harassment-sexually-coloured-remark-553723
 
-[Read on Telegram](https://t.me/livelawindia/121837)
-
----
-### 2026-10-08T04:57:05+00:00
-LiveLaw Breaking News Alerts: 08 October 2026
-https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts-08-october-2026-553634
-
-[Read on Telegram](https://t.me/livelawindia/121838)
+[Read on Telegram](https://t.me/livelawindia/121883)
 
 ---
-### 2026-10-08T04:59:25+00:00
-'ASI Lost Credibility': Supreme Court Lambasts Agency After Lodhi-Era Monument Found Used As Cow Shed, Dumping Yard
-https://www.livelaw.in/top-stories/asi-lost-credibility-supreme-court-lambasts-agency-after-lodhi-era-monument-found-used-as-cow-shed-dumping-yard-553635
+### 2026-10-08T10:58:28+00:00
+Doctrine Of Seat Of Arbitration In Indian Jurisprudence
+https://www.livelaw.in/articles/doctrine-seat-arbitration-indian-jurisprudence-553730
 
-[Read on Telegram](https://t.me/livelawindia/121839)
-
----
-### 2026-10-08T05:09:05+00:00
-Offence Of Sexual Intercourse On False Promise Of Marriage U/S 69 BNS Doesn't Apply To Women: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-section69-bns-cannot-invoked-against-women-553636
-
-[Read on Telegram](https://t.me/livelawindia/121840)
+[Read on Telegram](https://t.me/livelawindia/121884)
 
 ---
-### 2026-10-08T05:16:05+00:00
-Freebies To Doctors : Supreme Court Asks Union To Form Committee To Recommend Regulations On Pharma Marketing Practices
-https://www.livelaw.in/top-stories/freebies-to-doctors-supreme-court-asks-union-to-form-committee-to-recommend-regulations-on-pharma-marketing-practices-553638
+### 2026-10-08T11:00:48+00:00
+No Impropriety In Justice Ujjal Bhuyan's Comment Against Mass Disenfranchisement : Justice Oka
+https://www.livelaw.in/top-stories/justice-abhay-oka-says-no-judicial-impropriety-in-justice-ujjal-bhuyan-comment-on-sir-disenfranchisement-of-voters-while-matter-sub-judice-553731
 
-[Read on Telegram](https://t.me/livelawindia/121841)
+[Read on Telegram](https://t.me/livelawindia/121885)
 
 ---
-### 2026-10-08T05:23:15+00:00
-Supreme Court Adjourns Punjab Plea Challenging CBI Probe Against CM Bhagwant Mann's OSD Till Tomorrow
-https://www.livelaw.in/top-stories/supreme-court-adjourns-punjab-plea-challenging-cbi-probe-against-cm-bhagwant-manns-osd-till-tomorrow-553639
+### 2026-10-08T11:02:48+00:00
+Karnataka High Court Grants Bail In Section 69 BNS Case, Says Promise To Marry Was Made After Sexual Intercourse
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-grants-bail-accused-s69-bns-promise-to-marry-made-after-sexual-intercourse-553732
 
-[Read on Telegram](https://t.me/livelawindia/121842)
+[Read on Telegram](https://t.me/livelawindia/121886)
+
+---
+### 2026-10-08T11:03:08+00:00
+Permanent Alimony Cannot Be Adjudicated For First Time On Appeal Without Pleadings, Evidence Before Trial Court: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/permanent-alimony-cannot-adjudicated-first-time-appeal-553645
+
+[Read on Telegram](https://t.me/livelawindia/121887)
+
+---
+### 2026-10-08T11:08:48+00:00
+'Some Experiences Encourage, Some Test, Some Make Us Stronger': Delhi High Court Justice C Sudha Retires After 3-Decade Judicial Journey
+https://www.livelaw.in/high-court/delhi-high-court/some-experiences-encourage-some-test-some-make-us-stronger-delhi-high-court-justice-c-sudha-retires-after-3-decade-judicial-journey-553735
+
+[Read on Telegram](https://t.me/livelawindia/121888)
+
+---
+### 2026-10-08T11:15:08+00:00
+DBRANLU Sonepat To Host National Conference On Emerging Trends In Trademark Protection; Abstracts Invited
+https://www.livelaw.in/lawschool/seminars/dbranlu-sonepat-host-national-conference-emerging-trends-trademark-protection-abstracts-invited-553737
+
+[Read on Telegram](https://t.me/livelawindia/121889)
+
+---
+### 2026-10-08T11:17:28+00:00
+ED Should Prioritise Cases Involving Public Money, National Scams; Not Private Property Disputes: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ed-resources-use-for-public-money-scams-not-private-dispute-553736
+
+[Read on Telegram](https://t.me/livelawindia/121890)
+
+---
+### 2026-10-08T11:27:28+00:00
+Employee Can't Revive Stale Pay-Fixation Claim Years After Retirement By Calling It Pension Deficiency: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/employee-cant-revive-stale-pay-fixation-claim-years-after-retirement-by-calling-it-pension-deficiency-553738
+
+[Read on Telegram](https://t.me/livelawindia/121891)
+
+---
+### 2026-10-08T11:37:18+00:00
+Long Custody Alone Is Not A "Substantial Change" For Successive Bail Plea: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-refuses-bail-in-ncb-case-over-137-crore-psychotropic-tablets-553733
+
+[Read on Telegram](https://t.me/livelawindia/121892)
+
+---
+### 2026-10-08T11:47:18+00:00
+Waqf Tribunal Can Permit Interrogatories Under Order XI CPC: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-waqf-tribunal-interrogatories-order-xi-cpc-553740
+
+[Read on Telegram](https://t.me/livelawindia/121893)
+
+---
+### 2026-10-08T12:07:18+00:00
+CA Student's Future Earning Potential Must Be Considered While Determining Motor Accident Compensation: AP High Court Triples Award
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-motor-accident-tribunal-compensation-ca-student-bright-future-553742
+
+[Read on Telegram](https://t.me/livelawindia/121894)
+
+---
+### 2026-10-08T12:30:49+00:00
+Authorized Govt Officer's Complaint Not Needed When Notary Intentionally Participates In Document Forgery: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-notary-section-13-553749
+
+[Read on Telegram](https://t.me/livelawindia/121895)
 
 ---
