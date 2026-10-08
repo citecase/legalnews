@@ -1,166 +1,166 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-08T06:02:07+00:00*
+*Last Updated: 2026-10-08T16:03:02+00:00*
 
 ---
 
-### 2026-10-08T06:02:07+00:00
-Length Of Custody Alone Not A Ground To Override Statutory Embargo U/S 37 NDPS Act In Commercial Quantity Cases: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/shakoor-khan-v-state-of-rajasthan-2026rj-jd48352-length-of-custody-alone-not-a-ground-us-37-ndps-act-1623580
+### 2026-10-08T16:03:02+00:00
+Empanelment Of Advocates At United India Insurance Company Limited For Kerala
+https://www.verdictum.in/job-updates/united-india-insurance-company-limited-empanelment-1623624
 
-[Source Link](https://t.me/verdictumlegalupdates/29547)
-
----
-
-### 2026-10-08T05:21:46+00:00
-Breaking: Supreme Court Directs Centre To Form Committee On Unethical Pharma Practices And Mandatory Marketing Code
-https://www.verdictum.in/supreme-court/freebies-to-doctor-directs-centre-form-committee-pharma-practices-marketing-code-1623578
-
-[Source Link](https://t.me/verdictumlegalupdates/29546)
+[Source Link](https://t.me/verdictumlegalupdates/29567)
 
 ---
 
-### 2026-10-08T05:02:46+00:00
-Wholesale Reproduction Of News Videos As Substitutes Is Not Fair Dealing Under Copyright Act: Delhi High Court Decrees Suit Filed By ANI
-https://www.verdictum.in/delhi-high-court/ani-media-private-limited-v-rsy-news-and-another-2026dhc8749-copyright-act-1623575
+### 2026-10-08T15:32:41+00:00
+Custom Seeking Departure From General Law Must Be Proved As Ancient, Continuous And Compulsory: Jharkhand High Court
+https://www.verdictum.in/jharkhand-high-court/budhan-devi-and-others-v-daho-devi-and-another-2026jhhc29793-customary-laws-1623620
 
-[Source Link](https://t.me/verdictumlegalupdates/29545)
-
----
-
-### 2026-10-08T04:32:35+00:00
-Vacant OBC-NCL Seats Cannot Justify Category Change After NEET-UG Results: Madras High Court
-https://www.verdictum.in/madras-high-court/-keerthi-v-v-the-secretary-medical-counselling-committee-and-others-1623572
-
-[Source Link](https://t.me/verdictumlegalupdates/29544)
+[Source Link](https://t.me/verdictumlegalupdates/29566)
 
 ---
 
-### 2026-10-07T16:02:45+00:00
-Consultant (legal) Vacancy At Ministry of External Affairs
-https://www.verdictum.in/job-updates/ministry-of-external-affairs-1623540
+### 2026-10-08T15:02:20+00:00
+Medical Evidence Of Permanent Disability Can’t Be Discarded Merely Because Doctor Examined One Year After Accident: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/suraj-prasad-chakraverti-v-sukhchain-kudape-2026mphc-jbp77852-motor-accident-1623621
 
-[Source Link](https://t.me/verdictumlegalupdates/29543)
-
----
-
-### 2026-10-07T15:32:54+00:00
-Disqualifying Candidates Facing Trial For Serious Offences Prevents Criminalization Of Politics: Rajasthan High Court Rejects Challenge To Municipalities Act
-https://www.verdictum.in/rajasthan-high-court/budh-dan-v-state-of-rajasthan-and-others-2026rj-jd43445-db-municipalities-act-1623551
-
-[Source Link](https://t.me/verdictumlegalupdates/29542)
+[Source Link](https://t.me/verdictumlegalupdates/29565)
 
 ---
 
-### 2026-10-07T15:32:44+00:00
-Sexual Intercourse After Suppressing Earlier Relationship & Child, Though Not Rape, Falls Under 'Deceitful Means' U/S 69 BNS: Kerala High Court
-https://www.verdictum.in/kerala-high-court/udayan-v-x-2026ker74972-deceitful-means-us-69-bns-sexual-intercourse-1623548
+### 2026-10-08T14:32:19+00:00
+"Grave Prejudice To Victim": Allahabad High Court Sets Aside Anticipatory Bail Granted To POCSO Accused Without Mandatory Notice
+https://www.verdictum.in/allahabad-high-court/veer-singh-v-state-of-up-2026ahc204121-pocso-anticipatory-bail-granted-safety-safety-victim-natural-justice-1623619
 
-[Source Link](https://t.me/verdictumlegalupdates/29541)
-
----
-
-### 2026-10-07T15:03:03+00:00
-Child Marriage Is Social Evil Eradicated By Legislation; Settlement In Such Cases Can’t Wipe Out Criminality: Delhi High Court
-https://www.verdictum.in/delhi-high-court/sher-bahadur-shera-v-state-govt-of-nct-of-delhi-2026dhc8700-child-marriage-social-evil-1623549
-
-[Source Link](https://t.me/verdictumlegalupdates/29540)
+[Source Link](https://t.me/verdictumlegalupdates/29564)
 
 ---
 
-### 2026-10-07T14:33:02+00:00
-Consent Under Fear Or Misconception Cannot Be Loosely Inferred To Fasten Criminal Liability: Supreme Court While Quashing Rape Case
-https://www.verdictum.in/supreme-court/martanda-singh-v-state-of-chhattisgarh-2026-insc-1081-consent-misconception-physical-relationship-1623550
+### 2026-10-08T14:03:07+00:00
+Citizen’s Attire A Personal Choice: Kerala High Court Directs Police To Ensure Entry Of Headmistress Allegedly Stopped For Wearing Churidar
+https://www.verdictum.in/kerala-high-court/sindhu-s-nair-v-secretary-general-education-department-and-others-2026ker76813-1623618
 
-[Source Link](https://t.me/verdictumlegalupdates/29539)
-
----
-
-### 2026-10-07T14:02:41+00:00
-Delhi High Court Asks Centre To Consider Plea For Body-Worn Cameras For Police Managing Protests, Crowd
-https://www.verdictum.in/delhi-high-court/plea-for-body-worn-cameras-for-police-managing-protests-crowd-1623543
-
-[Source Link](https://t.me/verdictumlegalupdates/29538)
+[Source Link](https://t.me/verdictumlegalupdates/29563)
 
 ---
 
-### 2026-10-07T13:32:20+00:00
-One Shouldn't Feel That He Was Unfairly Denied Opportunity To Contest: Apex Court Refuses To Interfere With Interim Bail To Congress Candidate Milan Pradhan
-https://www.verdictum.in/supreme-court/refuses-interfere-interim-bail-congress-candidate-milan-pradhan-nandigram-1623545
+### 2026-10-08T13:32:25+00:00
+Supreme Court Asks NALSA To Look Into Plea Of Permanent Lok Adalat Members For Better Remuneration
+https://www.verdictum.in/supreme-court/nalsa-to-look-into-plea-of-permanent-lok-adalat-members-for-better-remuneration-1623622
 
-[Source Link](https://t.me/verdictumlegalupdates/29537)
-
----
-
-### 2026-10-07T13:02:19+00:00
-Can Sitting Judges Comment On Ongoing Litigation?
-https://www.verdictum.in/columns/can-sitting-judges-comment-on-ongoing-litigation-1623547
-
-[Source Link](https://t.me/verdictumlegalupdates/29536)
+[Source Link](https://t.me/verdictumlegalupdates/29562)
 
 ---
 
-### 2026-10-07T12:32:38+00:00
-Justice Ujjal Bhuyan's Remarks: What Former Judges And Senior Advocates Have Said So Far
-https://www.verdictum.in/news/justice-ujjal-bhuyan-comments-sir-retired-judges-respond-1623541
+### 2026-10-08T13:02:25+00:00
+"Trust Is The Currency Of Democracy": 42 Former Judges Back Election Commission's Special Intensive Revision, Call For End To Unfounded Allegations
+https://www.verdictum.in/news/former-judges-back-election-commissions-special-intensive-revision-gyanesh-kumar-1623626
 
-[Source Link](https://t.me/verdictumlegalupdates/29535)
-
----
-
-### 2026-10-07T12:02:37+00:00
-Part Of Right To Fair Trial: Uttarakhand High Court Directs To Provide Witness Testimony To Blind Accused In Braille
-https://www.verdictum.in/calcutta-high-court/suchit-narang-v-state-of-uttarakhand-2026uhc9014-fair-trial-witness-testimony-blind-accused-braille-1623537
-
-[Source Link](https://t.me/verdictumlegalupdates/29534)
+[Source Link](https://t.me/verdictumlegalupdates/29561)
 
 ---
 
-### 2026-10-07T11:38:57+00:00
-"Agony Of The Moment" Not A Defence For Negligent Driving: Delhi High Court On Accident Caused While Avoiding Stray Dog
-https://www.verdictum.in/delhi-high-court/icici-lombard-general-insurance-co-ltd-v-satish-chandra-gupta-2026dhc8726-traffic-reflexes-stray-dog-accident-agony-of-the-moment-1623534
+### 2026-10-08T12:33:04+00:00
+Preventive Policing Cannot Justify Arbitrary Exercise of Police Powers: Supreme Court Issues Directives For Women’s Safety In Delhi NCR
+https://www.verdictum.in/supreme-court/2026-insc-1096-in-re-recent-rape-incidents-in-delhi-ncr-1623614
 
-[Source Link](https://t.me/verdictumlegalupdates/29533)
-
----
-
-### 2026-10-07T11:02:35+00:00
-Supreme Court Upholds Delhi HC Order Restraining Gujarati Newspaper From Using 'Saurashtra Aaj Tak' Name
-https://www.verdictum.in/supreme-court/delhi-hc-order-restraining-gujarati-newspaper-from-using-saurashtra-aaj-tak-name-1623533
-
-[Source Link](https://t.me/verdictumlegalupdates/29532)
+[Source Link](https://t.me/verdictumlegalupdates/29560)
 
 ---
 
-### 2026-10-07T10:32:34+00:00
-Organisations Engaged In Converting People Of One Religious Faith To Another Shall Be Denied FCRA Registration: Madras High Court
-https://www.verdictum.in/madras-high-court/kanzeon-public-charitable-trust-v-union-of-india-converting-religious-faith-fcra-registration-1623532
+### 2026-10-08T12:02:23+00:00
+Is It Practically Possible To Deport All Those Who Crossed India-Bangladesh Border In 1970s: Calcutta High Court Asks State
+https://www.verdictum.in/calcutta-high-court/deportation-who-crossed-india-bangladesh-border-in-1970-1623613
 
-[Source Link](https://t.me/verdictumlegalupdates/29531)
-
----
-
-### 2026-10-07T10:02:34+00:00
-Husband Crossing Age Limit Under ART Act Does Not Automatically Extinguish Wife’s Independent Eligibility For IVF: Chhattisgarh High Court
-https://www.verdictum.in/chhattisgarh-high-court/archana-tiwari-and-another-v-state-of-chhattisgarh-and-others-2026cghc43127-1623531
-
-[Source Link](https://t.me/verdictumlegalupdates/29530)
+[Source Link](https://t.me/verdictumlegalupdates/29559)
 
 ---
 
-### 2026-10-07T09:32:53+00:00
-Make A Good Movie To Entertain People And Your Respect Will Be Restored: Supreme Court To Rajpal Yadav After Taking Note Of Deposit Of ₹1.15 Crore
-https://www.verdictum.in/supreme-court/rajpal-yadav-movie-cheque-bounce-case-deposit-115-crore-1623529
+### 2026-10-08T11:33:02+00:00
+'Udayasthamana Pooja' At Guruvayur Temple Will Be Performed On Vrishchikam Ekadasi: Supreme Court
+https://www.verdictum.in/supreme-court/udayasthamana-pooja-at-guruvayur-temple-will-be-performed-on-vrishchikam-ekadasi-1623612
 
-[Source Link](https://t.me/verdictumlegalupdates/29529)
+[Source Link](https://t.me/verdictumlegalupdates/29558)
 
 ---
 
-### 2026-10-07T09:02:52+00:00
-Mere Trademark Registration Not Enough To Establish "First Owner" Status Of Copyright In Artistic Work: Delhi High Court
-https://www.verdictum.in/delhi-high-court/japan-tobacco-inc-v-the-central-warehouse-2026dhc8713-first-owner-mere-trademark-registration-1623527
+### 2026-10-08T11:02:21+00:00
+Supreme Court Seeks Centre's View On Creation Of Corpus Fund For Treatment Of SMA Patients
+https://www.verdictum.in/supreme-court/centres-view-on-creation-of-corpus-fund-for-treatment-of-sma-patients-1623611
 
-[Source Link](https://t.me/verdictumlegalupdates/29528)
+[Source Link](https://t.me/verdictumlegalupdates/29557)
+
+---
+
+### 2026-10-08T10:33:00+00:00
+Robbery Or Attempted Robbery Essential Component Of Offence Under Section 394 Of IPC: Supreme Court
+https://www.verdictum.in/supreme-court/appa-v-the-state-of-maharashtra-2026-insc-1091-robbery-sec394-ipc-1623609
+
+[Source Link](https://t.me/verdictumlegalupdates/29556)
+
+---
+
+### 2026-10-08T10:02:39+00:00
+Trial Court Can Alter Charge Under Section 307 IPC To Section 308 IPC Or Another Appropriate Lesser Offence If Evidence Falls Short: Supreme Court
+https://www.verdictum.in/supreme-court/abhishek-v-state-of-rajasthan-and-others-2026-insc-1093-section-216-crpc-1623608
+
+[Source Link](https://t.me/verdictumlegalupdates/29555)
+
+---
+
+### 2026-10-08T09:32:19+00:00
+Mere Printing Or Selling Of Sarees With Artistic Depictions Of A Deity Cannot Be Presumed As Deliberate Malice: Gujarat High Court Quashes FIR U/S 295A IPC
+https://www.verdictum.in/gujarat-high-court/bharatbhai-hirjibhai-shankar-v-state-of-gujarat-2026gujhc62863-fir-us-295a-sarees-artistic-depictions-deity-1623606
+
+[Source Link](https://t.me/verdictumlegalupdates/29554)
+
+---
+
+### 2026-10-08T09:02:58+00:00
+Rules Appointing Jharkhand DGP Prima Facie In Teeth Of Earlier Decision: Supreme Court
+https://www.verdictum.in/supreme-court/rules-appointing-jharkhand-dgp-1623605
+
+[Source Link](https://t.me/verdictumlegalupdates/29553)
+
+---
+
+### 2026-10-08T08:32:37+00:00
+Gujarat High Court Launches Pilot WhatsApp Service For Advocate-Specific Daily Cause List Delivery
+https://www.verdictum.in/gujarat-high-court/advocate-specific-daily-cause-list-delivery-on-whatsapp-1623604
+
+[Source Link](https://t.me/verdictumlegalupdates/29552)
+
+---
+
+### 2026-10-08T08:02:36+00:00
+Supreme Court Seeks Punjab's Proposal On Land For Compensatory Afforestation Amid NHAI Road Project Delays
+https://www.verdictum.in/supreme-court/punjabs-proposal-on-land-for-compensatory-afforestation-amid-nhai-road-project-delays-1623597
+
+[Source Link](https://t.me/verdictumlegalupdates/29551)
+
+---
+
+### 2026-10-08T07:32:55+00:00
+Requirement U/S 81 RP Act Mandatory; Election Petition Not Maintainable When It Is Not Presented By Petitioner Himself: Supreme Court
+https://www.verdictum.in/supreme-court/v-pon-paneerselvam-v-s-regupathy-2026-insc-1092-representation-of-people-act-election-petition-1623596
+
+[Source Link](https://t.me/verdictumlegalupdates/29550)
+
+---
+
+### 2026-10-08T07:03:14+00:00
+False Statement Made Before Court: Delhi High Court Directs Section 340 CrPC Complaint Against Five Former CBI Officials
+https://www.verdictum.in/delhi-high-court/ashok-kumar-aggarwal-v-sushil-dewan-and-others-2026dhc8774-cbi-offcier-1623592
+
+[Source Link](https://t.me/verdictumlegalupdates/29549)
+
+---
+
+### 2026-10-08T06:33:08+00:00
+Parallel Criminal Trial On Identical Allegations Is Abuse Of Process When Civil Court Is Already Seized Of Lis & Fraud Isn’t Established: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/subrata-halder-v-state-of-west-bengal-criminal-trial-abuse-of-process-civil-court-fraud-1623582
+
+[Source Link](https://t.me/verdictumlegalupdates/29548)
 
 ---
 
