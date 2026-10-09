@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-08T16:03:02+00:00*
+*Last Updated: 2026-10-09T06:32:29+00:00*
+
+---
+
+### 2026-10-09T06:32:29+00:00
+Kerala High Court Orders FIR Against Former CM Pinarayi Vijayan In CMRL Bribery Case
+https://www.verdictum.in/kerala-high-court/fir-against-former-cm-pinarayi-vijayan-in-cmrl-bribery-case-1623657
+
+[Source Link](https://t.me/verdictumlegalupdates/29572)
+
+---
+
+### 2026-10-09T06:02:48+00:00
+Overlap Of Disputes With Mother Agreement Cannot Be Ground To Refuse Reference U/S 11 A&C Act At Threshold: Supreme Court
+https://www.verdictum.in/supreme-court/shubham-equipment-private-limited-v-rothwell-water-company-limited-2026-insc-1098-jva-mou-mother-agreement-1623651
+
+[Source Link](https://t.me/verdictumlegalupdates/29571)
+
+---
+
+### 2026-10-09T05:32:47+00:00
+Recording Court Proceedings Without Written Permission Is Expressly Barred: Bombay High Court Confiscates Violator's Phone
+https://www.verdictum.in/bombay-high-court/high-court-on-its-own-motion-v-vilas-shamrao-wagh-suo-motu-st-no-29396-of-2026-court-proceedings-recording-phone-mobile-1623650
+
+[Source Link](https://t.me/verdictumlegalupdates/29570)
+
+---
+
+### 2026-10-09T05:02:26+00:00
+Personality Rights Protect Well-Known Individuals’ Name, Image, Voice And Likeness Against AI & Deepfake Misuse: Delhi High Court
+https://www.verdictum.in/delhi-high-court/dr-devi-prasad-shetty-and-another-v-medicine-me-and-others-2026dhc8897-1623616
+
+[Source Link](https://t.me/verdictumlegalupdates/29569)
+
+---
+
+### 2026-10-09T04:32:55+00:00
+Bank Can’t Force Defaulter To Stay Within Country To Ensure Loan Is Repaid: Madras High Court
+https://www.verdictum.in/madras-high-court/bank-of-baroda-formerly-vijaya-bank-v-kondepati-ganga-prasad-1623617
+
+[Source Link](https://t.me/verdictumlegalupdates/29568)
 
 ---
 
@@ -121,46 +161,6 @@ Rules Appointing Jharkhand DGP Prima Facie In Teeth Of Earlier Decision: Supreme
 https://www.verdictum.in/supreme-court/rules-appointing-jharkhand-dgp-1623605
 
 [Source Link](https://t.me/verdictumlegalupdates/29553)
-
----
-
-### 2026-10-08T08:32:37+00:00
-Gujarat High Court Launches Pilot WhatsApp Service For Advocate-Specific Daily Cause List Delivery
-https://www.verdictum.in/gujarat-high-court/advocate-specific-daily-cause-list-delivery-on-whatsapp-1623604
-
-[Source Link](https://t.me/verdictumlegalupdates/29552)
-
----
-
-### 2026-10-08T08:02:36+00:00
-Supreme Court Seeks Punjab's Proposal On Land For Compensatory Afforestation Amid NHAI Road Project Delays
-https://www.verdictum.in/supreme-court/punjabs-proposal-on-land-for-compensatory-afforestation-amid-nhai-road-project-delays-1623597
-
-[Source Link](https://t.me/verdictumlegalupdates/29551)
-
----
-
-### 2026-10-08T07:32:55+00:00
-Requirement U/S 81 RP Act Mandatory; Election Petition Not Maintainable When It Is Not Presented By Petitioner Himself: Supreme Court
-https://www.verdictum.in/supreme-court/v-pon-paneerselvam-v-s-regupathy-2026-insc-1092-representation-of-people-act-election-petition-1623596
-
-[Source Link](https://t.me/verdictumlegalupdates/29550)
-
----
-
-### 2026-10-08T07:03:14+00:00
-False Statement Made Before Court: Delhi High Court Directs Section 340 CrPC Complaint Against Five Former CBI Officials
-https://www.verdictum.in/delhi-high-court/ashok-kumar-aggarwal-v-sushil-dewan-and-others-2026dhc8774-cbi-offcier-1623592
-
-[Source Link](https://t.me/verdictumlegalupdates/29549)
-
----
-
-### 2026-10-08T06:33:08+00:00
-Parallel Criminal Trial On Identical Allegations Is Abuse Of Process When Civil Court Is Already Seized Of Lis & Fraud Isn’t Established: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/subrata-halder-v-state-of-west-bengal-criminal-trial-abuse-of-process-civil-court-fraud-1623582
-
-[Source Link](https://t.me/verdictumlegalupdates/29548)
 
 ---
 
