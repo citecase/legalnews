@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-08T14:17:30+00:00*
+*Last Updated: 2026-10-09T04:07:18+00:00*
 
 ---
 
-### 2026-10-08T14:17:30+00:00
-Procedural Violation Will Not Vitiate Seizure But Can Affect Evidentiary Value : Supreme Court
-https://www.livelaw.in/supreme-court/procedural-violation-will-not-vitiate-seizure-but-can-affect-evidentiary-value-supreme-court-553763
+### 2026-10-09T04:07:18+00:00
+After A Decade, Bombay High Court Discharges Rahul Raj Singh From TV Actress Pratyusha Banerjee Suicide Case
+https://www.livelaw.in/high-court/bombay-high-court/after-a-decade-bombay-high-court-discharges-rahul-raj-singh-from-tv-actress-pratyusha-banerjee-suicide-case-553798
 
-[Read on Telegram](https://t.me/livelawindia/121904)
-
----
-### 2026-10-08T14:18:30+00:00
-2026 LiveLaw (SC) 1032  | RAMKRUSHNA PRAHLLAD DONGARDIVE VERSUS THE STATE OF MAHARASHTRA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1032-ramkrushna-prahllad-dongardive-versus-the-state-of-maharashtra-553764
-
-[Read on Telegram](https://t.me/livelawindia/121905)
+[Read on Telegram](https://t.me/livelawindia/121927)
 
 ---
-### 2026-10-08T14:26:50+00:00
-Shiv Sena Row | ECI Was Bound To Award Bow And Arrow Symbol Once It Found Shinde Faction Was Real Party: Kaul Tells Supreme Court
-https://www.livelaw.in/top-stories/shiv-sena-row-eci-was-bound-to-award-bow-and-arrow-symbol-once-it-found-shinde-faction-was-real-party-kaul-tells-supreme-court-553765
+### 2026-10-09T04:18:07+00:00
+Madras High Court Orders Inquiry Into Unauthorised Auction Of 200 Buffaloes Offered By Devotees, Action Against Temple Executive Officer
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-enquiry-unauthorised-auction-200-temple-buffaloes-553801
 
-[Read on Telegram](https://t.me/livelawindia/121906)
-
----
-### 2026-10-08T14:27:50+00:00
-'Courts Must Appoint Guardians For Dementia/Alzheimer's Patients If Circumstances Warrant': Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-dementia-alzheimers-guardian-553762
-
-[Read on Telegram](https://t.me/livelawindia/121907)
+[Read on Telegram](https://t.me/livelawindia/121928)
 
 ---
-### 2026-10-08T14:28:50+00:00
-High Court Bar Association Condemns Congress MLA Sukhpal Khaira's Remarks Against Punjab Law Officers, Seeks Apology
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-bar-association-condemns-sukhpal-khairas-alleged-bhade-de-tattu-remark-against-punjab-law-officers-553766
+### 2026-10-09T04:18:37+00:00
+LiveLaw Breaking News Alerts: 09 October 2026
+https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts-09-october-2026-553804
 
-[Read on Telegram](https://t.me/livelawindia/121908)
-
----
-### 2026-10-08T14:29:00+00:00
-Uttarakhand High Court Upholds Reservation For Women In Student Union Polls, Dismisses Pleas Challenging 50% Quota
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-upholds-reservation-women-student-union-polls-553767
-
-[Read on Telegram](https://t.me/livelawindia/121909)
+[Read on Telegram](https://t.me/livelawindia/121929)
 
 ---
-### 2026-10-08T14:31:10+00:00
-Cattle Smuggling Allegations Without Communal Tension Not Public Order Issue: J&K&L High Court Quashes Detention Of 65-Yr-Old
-https://www.livelaw.in/high-court/jammu-kashmir/bovine-smuggling-allegations-without-communal-tension-or-law-order-problem-cannot-establish-public-order-jk-high-court-quashes-detention-of-65-year-old-man-553769
+### 2026-10-09T04:23:07+00:00
+Research Assistants Vacancy At High Court Of Jammu & Kashmir And Ladakh
+https://www.livelaw.in/job-updates/research-assistants-vacancy-at-high-court-of-jammu-kashmir-and-ladakh-553807
 
-[Read on Telegram](https://t.me/livelawindia/121910)
-
----
-### 2026-10-08T14:37:10+00:00
-Mere Fabricated Caste Certificate Not Enough To Remove Advocate From State Rolls: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/mere-fabricated-caste-certificate-not-enough-to-remove-advocate-from-state-rolls-delhi-high-court-553770
-
-[Read on Telegram](https://t.me/livelawindia/121911)
+[Read on Telegram](https://t.me/livelawindia/121930)
 
 ---
-### 2026-10-08T14:57:40+00:00
-“Intrinsic To Fair Trial”: Uttarakhand High Court Directs Witness Testimony In Braille For Blind POCSO Accused
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-sets-aside-order-closing-blind-pocso-accused-right-to-cross-examine-553771
+### 2026-10-09T04:25:27+00:00
+Para Legal Volunteer Vacancy At Taluk Legal Services Committee, Begunia
+https://www.livelaw.in/job-updates/para-legal-volunteer-vacancy-at-taluk-legal-services-committee-begunia-553809
 
-[Read on Telegram](https://t.me/livelawindia/121912)
-
----
-### 2026-10-08T14:59:00+00:00
-Bombay High Court Expresses Surprise Over Former Cop Sachin Waze Owning Lavish Cars, Notes Extortion Allegations
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-expresses-surprise-over-former-cop-sachin-waze-owning-lavish-cars-notes-extortion-allegations-553775
-
-[Read on Telegram](https://t.me/livelawindia/121913)
+[Read on Telegram](https://t.me/livelawindia/121931)
 
 ---
-### 2026-10-08T15:19:41+00:00
-Supreme Court Asks NALSA To Consider Plea For Better Pay Scale Of Permanent Lok Adalat Members
-https://www.livelaw.in/top-stories/supreme-court-nalsa-to-consider-plea-for-better-pay-scale-permanent-lok-adalat-members-expanded-jurisdiction-553779
+### 2026-10-09T04:27:08+00:00
+Teaching Faculty Vacancy At University Of Allahabad
+https://www.livelaw.in/job-updates/teaching-faculty-vacancy-at-university-of-allahabad-553811
 
-[Read on Telegram](https://t.me/livelawindia/121914)
-
----
-### 2026-10-08T15:19:51+00:00
-Delhi High Court Refuses To Restrain Delhi Law House From Selling 47 Law Books, Cites Lack Of Prima Facie Copyright Title
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-to-restrain-delhi-law-house-from-selling-47-law-books-cites-lack-of-prima-facie-copyright-title-553780
-
-[Read on Telegram](https://t.me/livelawindia/121915)
+[Read on Telegram](https://t.me/livelawindia/121932)
 
 ---
-### 2026-10-08T15:30:21+00:00
-SIR Judgment Must Be Recalled As ECI Played Fraud On Supreme Court By Misrepresenting Facts : Ex-SC Judge Gopala Gowda
-https://www.livelaw.in/top-stories/sir-judgment-must-be-recalled-as-eci-played-fraud-on-supreme-court-by-misrepresenting-facts-ex-sc-judge-gopala-gowda-553783
+### 2026-10-09T04:32:28+00:00
+Inordinate Delay In Filing Chargesheet Violates Accused's Right To Speedy Investigation And Trial: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/inordinate-delay-in-filing-chargesheet-violates-accuseds-right-to-speedy-investigation-and-trial-delhi-high-court-553802
 
-[Read on Telegram](https://t.me/livelawindia/121916)
-
----
-### 2026-10-08T15:32:01+00:00
-Delhi High Court Slams Cop Over 'Sham Paperwork' In Cyber-fraud Probe, Grants Bail To Man After 10 Months In Jail
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-slams-cop-over-sham-paperwork-in-cyber-fraud-probe-grants-bail-to-man-after-10-months-in-jail-553784
-
-[Read on Telegram](https://t.me/livelawindia/121917)
+[Read on Telegram](https://t.me/livelawindia/121933)
 
 ---
-### 2026-10-08T15:59:11+00:00
-Karnataka High Court Grants Interim Protection To BJP Leader Booked Over Alleged Attempt To Delete Muslim Voters' Names During SIR
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-shields-bjp-leader-ravi-patil-coercive-steps-sir-553786
+### 2026-10-09T04:40:48+00:00
+'Shocking' : Supreme Court Questions MP High Court For Reducing Murder Conviction In Cryptic & Casual Manner
+https://www.livelaw.in/top-stories/shocking-supreme-court-questions-mp-high-court-for-reducing-murder-conviction-in-cryptic-casual-manner-553818
 
-[Read on Telegram](https://t.me/livelawindia/121918)
-
----
-### 2026-10-08T16:05:31+00:00
-Can High Courts Be Directly Approached For Anticipatory Bail Bypassing Sessions Courts? Supreme Court Reserves Judgment
-https://www.livelaw.in/top-stories/can-high-courts-be-directly-approached-for-anticipatory-bail-bypassing-sessions-courts-supreme-court-reserves-judgment-553787
-
-[Read on Telegram](https://t.me/livelawindia/121919)
+[Read on Telegram](https://t.me/livelawindia/121934)
 
 ---
-### 2026-10-08T16:07:11+00:00
-SIR-Deleted Voters Move Supreme Court For Expeditious Disposal Of Appeals Before Kolkata, Howrah Municipal Elections
-https://www.livelaw.in/top-stories/supreme-court-5-deleted-voters-plea-for-expeditious-decision-on-appeals-against-exclusion-appellate-tribunals-howrah-kolkata-municipal-elections-553788
+### 2026-10-09T04:43:08+00:00
+'Mindset Needs To Change': Bombay High Court Criticises Practice Of Prosecutors 'Vehemently' Opposing Bail Despite Long Incarceration
+https://www.livelaw.in/high-court/bombay-high-court/mindset-needs-to-change-bombay-high-court-criticises-practice-of-prosecutors-vehemently-opposing-bail-despite-long-incarceration-553805
 
-[Read on Telegram](https://t.me/livelawindia/121920)
-
----
-### 2026-10-08T16:19:01+00:00
-Guruvayur Temple | Hold Udayasthamana Pooja On Ekadashi As Last Year, Supreme Court Directs Devaswom Board
-https://www.livelaw.in/top-stories/guruvayur-temple-hold-udayasthamana-pooja-on-ekadashi-as-last-year-supreme-court-directs-devaswom-board-553789
-
-[Read on Telegram](https://t.me/livelawindia/121921)
+[Read on Telegram](https://t.me/livelawindia/121935)
 
 ---
-### 2026-10-08T17:27:32+00:00
-Supreme Court Daily Round-Up : October 8, 2026
-https://www.livelaw.in/round-ups/supreme-court-daily-round-up-october-8-2026-553785
+### 2026-10-09T04:47:28+00:00
+Deputy Manager (Risk Management) Vacancy At Deloitte Touche Tohmatsu India LLP
+https://www.livelaw.in/job-updates/deputy-manager-risk-management-vacancy-at-deloitte-touche-tohmatsu-india-llp-553821
 
-[Read on Telegram](https://t.me/livelawindia/121922)
+[Read on Telegram](https://t.me/livelawindia/121936)
 
 ---
-### 2026-10-08T17:32:32+00:00
-LiveLaw High Courts Daily Highlights: October 08, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-08-2026-553772
+### 2026-10-09T04:52:48+00:00
+'Alarming Degradation': Rajasthan High Court Initiates Suo Motu PIL To Protect Jaipur's UNESCO World Heritage Status
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-registers-pil-threat-jaipur-walled-city-unesco-world-heritage-status-553812
 
-[Read on Telegram](https://t.me/livelawindia/121923)
+[Read on Telegram](https://t.me/livelawindia/121937)
+
+---
+### 2026-10-09T04:54:48+00:00
+BREAKING| Kerala High Court Directs FIR Against Ex-CM Pinarayi Vijayan, Daughter Based On ED Information In CMRL-Exalogic Case
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-directs-fir-against-ex-cm-pinarayi-vijayan-daughter-based-on-ed-information-in-cmrl-exalogic-case-553824
+
+[Read on Telegram](https://t.me/livelawindia/121938)
+
+---
+### 2026-10-09T04:59:48+00:00
+From Merit-Based Selection To Women's Representation: Allahabad High Court Issues Guidelines On UP State Law Officers' Appointments
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-merit-based-selection-women-representation-guidelines-up-state-law-officers-553825
+
+[Read on Telegram](https://t.me/livelawindia/121939)
+
+---
+### 2026-10-09T05:03:09+00:00
+Supreme Court Orders Integration Of Digital Portals On Road Accidents To Curb Fake Claims
+https://www.livelaw.in/top-stories/supreme-court-orders-integration-of-digital-portals-on-road-accidents-to-curb-fake-claims-553827
+
+[Read on Telegram](https://t.me/livelawindia/121940)
+
+---
+### 2026-10-09T05:03:19+00:00
+Following Eviction, Delhi High Court Allows Central Secretariat Club Officers To Access Premises And Collect Belongings
+https://www.livelaw.in/high-court/delhi-high-court/following-eviction-delhi-high-court-allows-central-secretariat-club-officers-to-access-premises-and-collect-belongings-553814
+
+[Read on Telegram](https://t.me/livelawindia/121941)
+
+---
+### 2026-10-09T05:12:09+00:00
+Calcutta High Court Declines APDR's Plea For Stall At Kolkata Book Fair, Says It Is Not A 'Public Function'
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-declines-apdrs-plea-for-stall-at-kolkata-book-fair-says-it-is-not-a-public-function-553831
+
+[Read on Telegram](https://t.me/livelawindia/121942)
+
+---
+### 2026-10-09T05:12:49+00:00
+'Trying To Sail In Two Boats': Rajasthan High Court Rejects Doctor's Plea To Retain Lien In Two Govt Services While Pursuing Higher Studies
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-joining-extension-retain-multiple-employment-pursuing-higher-studies-govt-servant-553819
+
+[Read on Telegram](https://t.me/livelawindia/121943)
+
+---
+### 2026-10-09T05:19:39+00:00
+Victim Also Has Right To Seek Speedy Like Accused : Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-speedy-trial-right-exclusive-prerogative-accused-553834
+
+[Read on Telegram](https://t.me/livelawindia/121944)
+
+---
+### 2026-10-09T05:21:19+00:00
+2026 LiveLaw (SC) 1033 | RENUKA JAIN VERSUS THE STATE OF NCT OF DELHI & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1033-renuka-jain-versus-the-state-of-nct-of-delhi-ors-553835
+
+[Read on Telegram](https://t.me/livelawindia/121945)
+
+---
+### 2026-10-09T05:22:39+00:00
+S.148 NI Act | Repeal Of 2018 Amendment Act Doesn't End 20% Pre-Deposit Pending Cheque-Bounce Appeal: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-repeal-2018amendment-act-section148-ni-act-compensation-deposit-requirement-553826
+
+[Read on Telegram](https://t.me/livelawindia/121946)
 
 ---
