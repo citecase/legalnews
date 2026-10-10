@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-10T12:33:05+00:00*
+*Last Updated: 2026-10-10T14:32:48+00:00*
+
+---
+
+### 2026-10-10T14:32:48+00:00
+Senior & Junior Consultant Vacancy At Delhi Commission for Protection of Child Rights (DCPCR)
+https://www.verdictum.in/job-updates/delhi-commission-for-protection-of-child-rights-1623756
+
+[Source Link](https://t.me/verdictumlegalupdates/29606)
+
+---
+
+### 2026-10-10T13:52:27+00:00
+Madras High Court Orders Peaceful Celebration Of Malai Meal Kumarara Festival, Takes Note Of ASI’s Withdrawal Of Ban On Cooking At Thiruparankundram Hill
+https://www.verdictum.in/madras-high-court/pandiarajan-v-the-district-collector-celebration-malai-meal-kumarara-festival-asi-1623768
+
+[Source Link](https://t.me/verdictumlegalupdates/29605)
+
+---
+
+### 2026-10-10T13:12:26+00:00
+Allahabad High Court Issues Statewide Directions To Judicial Officers For Procedural Compliance With Sections 173, 175 BNSS
+https://www.verdictum.in/allahabad-high-court/rakesh-kumar-yadav-v-state-of-up-and-2-others-2026ahc211987-section-173-bnss-1623753
+
+[Source Link](https://t.me/verdictumlegalupdates/29604)
 
 ---
 
@@ -137,30 +161,6 @@ Automatic Revocation Of Will On Marriage U/S 69 Of Indian Succession Act Not Unc
 https://www.verdictum.in/kerala-high-court/suo-motu-civil-reference-to-examine-the-validity-of-section-69-of-the-indian-succession-act-1925-2026ker77525-1623695
 
 [Source Link](https://t.me/verdictumlegalupdates/29587)
-
----
-
-### 2026-10-09T13:32:20+00:00
-Mere Presence Of Fraudulent Document Not Enough For Removal U/S 26(1) Advocates Act; Fraud Must Materially Impact Enrolment: Delhi High Court
-https://www.verdictum.in/delhi-high-court/dipinder-kaur-v-bar-council-of-delhi-2026dhc8936-mere-presence-of-fraudulent-document-advocates-act-obc-1623687
-
-[Source Link](https://t.me/verdictumlegalupdates/29586)
-
----
-
-### 2026-10-09T13:02:59+00:00
-False Promise To Marry Case U/S.69 Of BNS Can’t Be Applied Against Woman: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/hk-prathibha-v-the-state-of-karnataka-2026khc53190-false-promise-to-marry-woman-1623686
-
-[Source Link](https://t.me/verdictumlegalupdates/29585)
-
----
-
-### 2026-10-09T12:32:39+00:00
-Right To Be Recognised By One's Name Is A Civil Right; Civil Court Can Entertain Suit For Change Of Name: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/minor-plaintiff-rep-by-natural-guardian-father-v-state-of-karnataka-2026khc50858-right-recognised-ones-name-is-a-civil-right-1623685
-
-[Source Link](https://t.me/verdictumlegalupdates/29584)
 
 ---
 
