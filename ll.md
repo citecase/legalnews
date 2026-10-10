@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-10T03:02:45+00:00*
+*Last Updated: 2026-10-10T06:26:06+00:00*
 
 ---
 
-### 2026-10-10T03:02:45+00:00
-Private Employers, Educational Institutions Can't Mandatorily Seek Caste Details In Application Forms: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/private-employers-educational-institutions-cant-mandatorily-seek-caste-details-in-application-forms-madras-high-court-553987
+### 2026-10-10T06:26:06+00:00
+Compliance Analyst Vacancy At CapFloat Financial Service Pvt Limited
+https://www.livelaw.in/job-updates/compliance-analyst-vacancy-at-capfloat-financial-service-pvt-limited-554029
 
-[Read on Telegram](https://t.me/livelawindia/122023)
-
----
-### 2026-10-10T03:21:45+00:00
-BREAKING| Contempt Plea Filed In Supreme Court Alleging Arbitrary Metro Station Closures & Train Cancellations Violating Court Order
-https://www.livelaw.in/top-stories/contempt-petition-filed-in-supreme-court-alleging-arbitrary-metro-station-closures-train-cancellations-violating-court-order-553990
-
-[Read on Telegram](https://t.me/livelawindia/122024)
+[Read on Telegram](https://t.me/livelawindia/122056)
 
 ---
-### 2026-10-10T04:14:56+00:00
-Contempt Notice: Kerala MLA Najeeb Kanthapuram Tenders Unconditional Apology Before Court
-https://www.livelaw.in/news-updates/kerala-court-mla-najeeb-kanthapuram-contempt-553993
+### 2026-10-10T06:27:26+00:00
+Supreme Court Asks High Court To Re-Hear Plea Against Goa Female Weightlifter's Selection As Coach
+https://www.livelaw.in/news-updates/supreme-court-asks-high-court-to-re-hear-plea-against-goa-female-weightlifters-selection-as-coach-553979
 
-[Read on Telegram](https://t.me/livelawindia/122025)
-
----
-### 2026-10-10T04:17:16+00:00
-'Make Data Protection Board Functional In 8 Weeks': Kerala High Court In PIL Raising Privacy Concerns In 'Digi Yatra'
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-digi-yatra-data-protection-board-553994
-
-[Read on Telegram](https://t.me/livelawindia/122026)
+[Read on Telegram](https://t.me/livelawindia/122057)
 
 ---
-### 2026-10-10T04:18:35+00:00
-National Law University Delhi's The Innovation Brief Invites Blog Submissions On EU–India Free Trade Agreement
-https://www.livelaw.in/lawschool/call-for-papers/national-law-university-delhis-innovation-brief-invites-blog-submissions-euindia-free-trade-agreement-553995
+### 2026-10-10T06:31:06+00:00
+SCBA Condemns Detention Of Protesting Lawyers, Seeks CJI's Urgent Intervention
+https://www.livelaw.in/top-stories/scba-condemns-detention-of-protesting-lawyers-seeks-cjis-urgent-intervention-554031
 
-[Read on Telegram](https://t.me/livelawindia/122027)
-
----
-### 2026-10-10T04:21:26+00:00
-Delhi High Court Directs Amitabh Bachchan To Appear Personally If Settlement In Personality Rights Suit Fails
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-amitabh-bachchan-to-appear-personally-if-settlement-in-personality-rights-suit-fails-553996
-
-[Read on Telegram](https://t.me/livelawindia/122028)
+[Read on Telegram](https://t.me/livelawindia/122058)
 
 ---
-### 2026-10-10T04:27:46+00:00
-Can We Blame Citizens For Acting On Their Own When Official Machinery Fails? Madras High Court On Villagers Removing Illegally Installed Pipes
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-citizen-acting-on-own-official-machinery-fails-553997
+### 2026-10-10T06:32:26+00:00
+Doctrine Of Necessity Can Be Invoked To Prevent Administrative Exercise From Becoming Futile: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-doctrine-necessity-confined-cases-of-bias-554022
 
-[Read on Telegram](https://t.me/livelawindia/122029)
-
----
-### 2026-10-10T04:32:46+00:00
-Legal Expert Vacancy At Urban Development Directorate (UDD), Government Of Uttarakhand
-https://www.livelaw.in/job-updates/legal-expert-vacancy-at-urban-development-directorate-udd-government-of-uttarakhand-553999
-
-[Read on Telegram](https://t.me/livelawindia/122030)
+[Read on Telegram](https://t.me/livelawindia/122059)
 
 ---
-### 2026-10-10T04:33:06+00:00
-Simplifying Transmission Or Complicating Succession: Critical Analysis Of SEBI's 2026 Framework For Transmission Of Securities
-https://www.livelaw.in/articles/simplifying-transmission-complicating-succession-sebi-2026framework-553970
+### 2026-10-10T06:47:57+00:00
+Surat Corporation Can't Back Out From Agreement To Rehabilitate Residents Whose Homes Were Razed: Gujarat High Court Remarks
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-surat-demolition-drive-residents-rehabilitate-554033
 
-[Read on Telegram](https://t.me/livelawindia/122031)
-
----
-### 2026-10-10T04:34:06+00:00
-Vigilance Inspector (Transportation) Vacancy At Rajkot Rajpath Limited
-https://www.livelaw.in/job-updates/vigilance-inspector-transportation-vacancy-at-rajkot-rajpath-limited-554000
-
-[Read on Telegram](https://t.me/livelawindia/122032)
+[Read on Telegram](https://t.me/livelawindia/122060)
 
 ---
-### 2026-10-10T04:38:26+00:00
-Probationer Can Be Transferred: Rajasthan High Court Quashes Condition Denying Relieving On Transfer
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-prohibition-probationer-transferred-another-place-posting-probation-period-553998
+### 2026-10-10T07:03:18+00:00
+Rajasthan High Court Grants Third Parole To Convict Despite Earlier Unauthorized Absence, Cites Long Custody & Favourable Reports
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-parole-applicant-history-escaping-open-air-camp-granted-third-parole-554025
 
-[Read on Telegram](https://t.me/livelawindia/122033)
-
----
-### 2026-10-10T04:43:26+00:00
-Consultant Vacancy At Ernst & Young [Mumbai; Apply Now]
-https://www.livelaw.in/job-updates/consultant-vacancy-at-ernst-young-mumbai-554002
-
-[Read on Telegram](https://t.me/livelawindia/122034)
+[Read on Telegram](https://t.me/livelawindia/122061)
 
 ---
-### 2026-10-10T04:45:26+00:00
-LiveLaw High Courts Daily Highlights: October 09, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-09-2026-554003
+### 2026-10-10T07:17:58+00:00
+Unmerited Appeal Against Motor Accident Award Is Abuse Of Process, Aggravates Victim's Hardship: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-motor-accident-award-right-to-appeal-delay-victim-hardship-554023
 
-[Read on Telegram](https://t.me/livelawindia/122035)
-
----
-### 2026-10-10T04:47:26+00:00
-When Can ECI Choose Not To Hold Bye-Election? Supreme Court Reserves Judgment On Interpretation Of S.151A RP Act
-https://www.livelaw.in/top-stories/when-can-eci-choose-not-to-hold-bye-election-supreme-court-reserves-judgment-on-interpretation-of-s151a-rp-act-553942
-
-[Read on Telegram](https://t.me/livelawindia/122036)
+[Read on Telegram](https://t.me/livelawindia/122062)
 
 ---
-### 2026-10-10T04:47:36+00:00
-Google Does Not Perform Public Functions Merely By Providing Email Services: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/google-doesnt-perform-public-functions-by-providing-email-services-554001
+### 2026-10-10T07:23:58+00:00
+Delhi Court Dismisses Deputy CM Parvesh Verma's Criminal Defamation Case Against AAP Leader Saurabh Bhardwaj
+https://www.livelaw.in/news-updates/delhi-court-dismisses-deputy-cm-parvesh-vermas-criminal-defamation-case-against-aap-leader-saurabh-bhardwaj-554036
 
-[Read on Telegram](https://t.me/livelawindia/122037)
-
----
-### 2026-10-10T04:49:26+00:00
-Central Armed Police Force (General Administration) Act To Take Effect From October 8, 2026
-https://www.livelaw.in/top-stories/central-armed-police-force-general-administration-act-to-take-effect-from-october-8-2026-554004
-
-[Read on Telegram](https://t.me/livelawindia/122038)
+[Read on Telegram](https://t.me/livelawindia/122063)
 
 ---
-### 2026-10-10T04:58:46+00:00
-Delhi High Court Protects Actor Vijay Deverakonda's Personality Rights Against AI Deepfakes, Obscene Content
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-protects-actor-vijay-deverakondas-personality-rights-against-ai-deepfakes-obscene-content-554006
+### 2026-10-10T07:32:48+00:00
+Gauhati High Court Refuses To Interfere With CRPF Officer's Transfer Over Wife's Anxiety Disorder
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-declines-set-aside-transfer-order-crpf-personnel-citing-wife-anxiety-disorder-554035
 
-[Read on Telegram](https://t.me/livelawindia/122039)
-
----
-### 2026-10-10T05:06:46+00:00
-Hindu Widow's Limited Interest Became Absolute Under 1956 Succession Act : Supreme Court
-https://www.livelaw.in/supreme-court/hindu-widows-limited-interest-became-absolute-under-1956-succession-act-supreme-court-554007
-
-[Read on Telegram](https://t.me/livelawindia/122040)
+[Read on Telegram](https://t.me/livelawindia/122064)
 
 ---
-### 2026-10-10T05:08:06+00:00
-2026 LiveLaw (SC) 1037 | Sultan Singh (Dead) Through LRs and Others v. The Financial Commissioner, Government of NCT of Delhi and Others
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1037-sultan-singh-dead-through-lrs-and-others-v-the-financial-commissioner-government-of-nct-of-delhi-and-others-554009
+### 2026-10-10T07:33:18+00:00
+CJI Intervenes For Release Of Lawyers Detained Over Protest March
+https://www.livelaw.in/top-stories/cji-intervenes-for-release-of-lawyers-detained-over-protest-march-554040
 
-[Read on Telegram](https://t.me/livelawindia/122041)
+[Read on Telegram](https://t.me/livelawindia/122065)
 
 ---
-### 2026-10-10T05:11:36+00:00
-Lying On Woman & Pressing Her Mouth Without Any Act Towards Penetration Is Not Attempted Rape: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-lying-woman-pressing-mouth-act-towards-penetration-not-rape-attempt-554010
+### 2026-10-10T07:38:48+00:00
+Karnataka SIR: High Court Stays FIRs Against BJP Booth Level Agents For Attempting To Delete Voter Names
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-stays-fir-against-bjp-booth-level-agents-bulk-fake-form7-filings-554041
 
-[Read on Telegram](https://t.me/livelawindia/122042)
+[Read on Telegram](https://t.me/livelawindia/122066)
+
+---
+### 2026-10-10T07:47:28+00:00
+Lawyer's Failure To Advise Litigant On Remedy Can Be 'Sufficient Cause' To Condone Delay: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-limitation-act-litigant-should-not-suffer-from-lawyers-mistake-554039
+
+[Read on Telegram](https://t.me/livelawindia/122067)
+
+---
+### 2026-10-10T07:52:28+00:00
+Lawyers' Strike To Seek Removal Of Advocate General 'Completely Illegal': Meghalaya High Court Issues Contempt Notices
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-lawyers-strike-contempt-notice-high-court-bar-association-shillong-bar-association-554043
+
+[Read on Telegram](https://t.me/livelawindia/122068)
+
+---
+### 2026-10-10T08:18:09+00:00
+PMLA Amount Need Not Have 'Arithmetical Correspondence' With Predicate Offence: Jharkhand High Court Dismisses Ex-CM Madhu Koda's Plea
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-dismisses-former-cm-madhu-koda-plea-alter-charges-554011
+
+[Read on Telegram](https://t.me/livelawindia/122069)
+
+---
+### 2026-10-10T08:27:59+00:00
+Mere Use Of Forged Document Not Offence, Knowledge That It Was Forged Must Be Established: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/mere-use-of-forged-document-not-enough-for-section-471-rpc-knowledge-or-reason-to-believe-it-was-forged-must-be-established-jk-high-court-553890
+
+[Read on Telegram](https://t.me/livelawindia/122070)
+
+---
+### 2026-10-10T08:52:59+00:00
+CEC Protest: CJP Legal Affairs Head Ratna Singh Moves Delhi Court Seeking FIR Against Cops Over 'Illegal Detention'
+https://www.livelaw.in/top-stories/delhi-court-ratna-singh-cjp-fir-illegal-detention-gyanesh-kumar-protest-554049
+
+[Read on Telegram](https://t.me/livelawindia/122071)
+
+---
+### 2026-10-10T09:25:49+00:00
+CJI Surya Kant Constitutes 'Judicial Well-Being Committee' For Judges' Mental Health
+https://www.livelaw.in/top-stories/cji-surya-kant-constitutes-judicial-well-being-committee-for-judges-mental-health-554053
+
+[Read on Telegram](https://t.me/livelawindia/122072)
+
+---
+### 2026-10-10T10:09:00+00:00
+Arogya Legal Expands Its Mumbai Presence
+https://www.livelaw.in/law-firms/professional-announcement/arogya-legal-expands-mumbai-presence-554055
+
+[Read on Telegram](https://t.me/livelawindia/122073)
+
+---
+### 2026-10-10T10:29:20+00:00
+Delhi Riots: Court Convicts Tahir Hussain For Abetment Of Rioting, Acquits Him Of Other Charges
+https://www.livelaw.in/news-updates/delhi-riots-court-convicts-tahir-hussain-for-abetment-of-rioting-acquits-him-of-other-charges-554061
+
+[Read on Telegram](https://t.me/livelawindia/122074)
+
+---
+### 2026-10-10T11:13:10+00:00
+Sharjeel Imam Flouted Conditions Imposed While Granting Interim Bail: Delhi Court
+https://www.livelaw.in/news-updates/sharjeel-imam-flouted-conditions-imposed-while-granting-interim-bail-delhi-court-554070
+
+[Read on Telegram](https://t.me/livelawindia/122075)
 
 ---
