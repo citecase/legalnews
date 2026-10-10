@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-09T16:03:04+00:00*
+*Last Updated: 2026-10-10T05:52:37+00:00*
+
+---
+
+### 2026-10-10T05:52:37+00:00
+Appointment Of State Law Officers Must Follow Need Assessment & Transparent, Merit-Based Criteria: Allahabad High Court Issues Guidelines
+https://www.verdictum.in/allahabad-high-court/mahendra-singh-pawar-v-state-of-uttar-pradesh-through-principal-secretary-to-the-chief-minister-and-others-2026ahc-lko72290-db-1623722
+
+[Source Link](https://t.me/verdictumlegalupdates/29593)
+
+---
+
+### 2026-10-10T05:12:56+00:00
+State Government To Ensure Infrastructural Facilities Are Provided In Time To Courts, Tribunals & Commissions: Kerala High Court
+https://www.verdictum.in/kerala-high-court/adv-j-surya-v-state-of-kerala-consumer-commission-shortage-manpower-1623719
+
+[Source Link](https://t.me/verdictumlegalupdates/29592)
+
+---
+
+### 2026-10-10T04:32:35+00:00
+Cases Alleging Illegal Cattle Transportation Didn’t Evoke Communal Tension Or Law & Order Problem: Jammu & Kashmir and Ladakh High Court Quashes Detention Order
+https://www.verdictum.in/jammu-ladakh-high-court/cause-title-din-mohd-wani-v-ut-of-jk-illegal-cattle-transportation-communal-tension-detention-1623696
+
+[Source Link](https://t.me/verdictumlegalupdates/29591)
 
 ---
 
@@ -137,30 +161,6 @@ Don't Want Students Entangled In Court Proceedings: Apex Court Dismisses Plea Se
 https://www.verdictum.in/supreme-court/dismisses-plea-seeking-investigation-fir-jantar-mantar-student-protest-held-july-1623668
 
 [Source Link](https://t.me/verdictumlegalupdates/29574)
-
----
-
-### 2026-10-09T07:02:34+00:00
-Justice Sheel Nagu Recuses From Hearing Punjab Govt's Plea Against High Court Order For CBI Probe
-https://www.verdictum.in/supreme-court/justice-sheel-nagu-recuses-punjab-govts-plea-against-high-court-order-for-cbi-probe-1623664
-
-[Source Link](https://t.me/verdictumlegalupdates/29573)
-
----
-
-### 2026-10-09T06:32:29+00:00
-Kerala High Court Orders FIR Against Former CM Pinarayi Vijayan In CMRL Bribery Case
-https://www.verdictum.in/kerala-high-court/fir-against-former-cm-pinarayi-vijayan-in-cmrl-bribery-case-1623657
-
-[Source Link](https://t.me/verdictumlegalupdates/29572)
-
----
-
-### 2026-10-09T06:02:48+00:00
-Overlap Of Disputes With Mother Agreement Cannot Be Ground To Refuse Reference U/S 11 A&C Act At Threshold: Supreme Court
-https://www.verdictum.in/supreme-court/shubham-equipment-private-limited-v-rothwell-water-company-limited-2026-insc-1098-jva-mou-mother-agreement-1623651
-
-[Source Link](https://t.me/verdictumlegalupdates/29571)
 
 ---
 
