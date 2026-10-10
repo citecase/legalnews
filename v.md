@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-10T05:52:37+00:00*
+*Last Updated: 2026-10-10T12:33:05+00:00*
+
+---
+
+### 2026-10-10T12:33:05+00:00
+Widow’s Limited Estate Right Is Transformed Into Absolute Right As Per Section 14(1) Hindu Succession Act: Supreme Court
+https://www.verdictum.in/supreme-court/sultan-singh-dead-through-lrs-and-others-v-the-financial-commissioner-2026-insc-1107-widow-estate-1623752
+
+[Source Link](https://t.me/verdictumlegalupdates/29603)
+
+---
+
+### 2026-10-10T11:52:48+00:00
+Accused Not To Be Declared Absconders Without Cogent Grounds: Delhi High Court Issues Directions To Trial Courts
+https://www.verdictum.in/delhi-high-court/tajinder-mohan-singh-v-the-state-government-of-nct-of-delhi-2026dhc8954-1623751
+
+[Source Link](https://t.me/verdictumlegalupdates/29602)
+
+---
+
+### 2026-10-10T11:12:44+00:00
+Kerala High Court Appoints Sister As Guardian For 93-Year-Old Woman With Severe Dementia & Alzheimer's
+https://www.verdictum.in/kerala-high-court/2026ker74368-smt-annamma-p-s-karia-v-state-of-kerala-1623746
+
+[Source Link](https://t.me/verdictumlegalupdates/29601)
+
+---
+
+### 2026-10-10T10:32:23+00:00
+Supreme Court Constitutes Standing Committee On Judicial Well-Being
+https://www.verdictum.in/supreme-court/standing-committee-on-judicial-well-being-1623747
+
+[Source Link](https://t.me/verdictumlegalupdates/29600)
+
+---
+
+### 2026-10-10T09:53:07+00:00
+Youngsters Must Have A Sense Of National Pride In Our Institutions: Justice Gopinath Says It Is Easy To Attack Institutions
+https://www.verdictum.in/news/kerala-high-court-judge-justice-gopinath-p-national-pride-institutions-1623750
+
+[Source Link](https://t.me/verdictumlegalupdates/29599)
+
+---
+
+### 2026-10-10T09:12:21+00:00
+Guest Faculties Only Have Right To Continue Till Regular Incumbents Take Charge Either On Appointment Or Transfer: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/dr-abha-agrawal-and-others-v-the-state-of-madhya-pradesh-guest-faculties-appointment-1623742
+
+[Source Link](https://t.me/verdictumlegalupdates/29598)
+
+---
+
+### 2026-10-10T08:08:51+00:00
+CJI Intervenes After Urgent Appeal By Supreme Court Bar Association Condemning Detention Of Protesting Advocates
+https://www.verdictum.in/news/supreme-court-bar-association-condemns-detention-protesting-advocates-1623743
+
+[Source Link](https://t.me/verdictumlegalupdates/29597)
+
+---
+
+### 2026-10-10T07:52:40+00:00
+Caste Scrutiny Committee Has Inherent Power To Seek Fresh Vigilance Report On A Document: Bombay High Court
+https://www.verdictum.in/bombay-high-court/rupali-kashinath-shigwan-rupali-amol-jadhav-v-state-of-maharashtra-2026bhc-as40252-db-rule-177-of-the-caste-certificate-rules-obc-hindu-maratha-1623735
+
+[Source Link](https://t.me/verdictumlegalupdates/29596)
+
+---
+
+### 2026-10-10T07:12:19+00:00
+Electricity Subsidy Tied to Power Charges Received Under Govt Scheme Is Revenue Receipt: Supreme Court
+https://www.verdictum.in/supreme-court/ms-mepco-industries-ltd-v-commissioner-of-income-tax-2026-insc-1090-electricity-subsidy-1623734
+
+[Source Link](https://t.me/verdictumlegalupdates/29595)
+
+---
+
+### 2026-10-10T06:32:58+00:00
+Interest Must Be Granted From Claim Date In Motor Accident Compensation Cases Unless Special Reasons Exist: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/s-v-gurumejsing-ajitsing-jaat-2026gujhc63345-advocate-rendered-impotent-loss-marital-life-age-32-1623726
+
+[Source Link](https://t.me/verdictumlegalupdates/29594)
 
 ---
 
@@ -81,86 +161,6 @@ Right To Be Recognised By One's Name Is A Civil Right; Civil Court Can Entertain
 https://www.verdictum.in/karnataka-high-court/minor-plaintiff-rep-by-natural-guardian-father-v-state-of-karnataka-2026khc50858-right-recognised-ones-name-is-a-civil-right-1623685
 
 [Source Link](https://t.me/verdictumlegalupdates/29584)
-
----
-
-### 2026-10-09T12:02:38+00:00
-Prima Facie Satisfies Test Of Rogue Website: Delhi High Court Grants Relief To Reliance Industries, Directs Suspension Of "JIO Lottery’" Websites
-https://www.verdictum.in/delhi-high-court/reliance-industries-limited-v-rahul-meena-test-rogue-website-relief-suspension-jio-lottery-1623684
-
-[Source Link](https://t.me/verdictumlegalupdates/29583)
-
----
-
-### 2026-10-09T11:32:57+00:00
-Supreme Court Dismisses AP Govt’s Plea Against HC Order Striking Down 34% Backward Class Quota in Local Polls
-https://www.verdictum.in/supreme-court/ap-govts-plea-against-hc-order-striking-down-34-backward-class-quota-in-local-polls-1623683
-
-[Source Link](https://t.me/verdictumlegalupdates/29582)
-
----
-
-### 2026-10-09T11:02:36+00:00
-Information Passed By ED To DGP Would Show Sufficient Materials: Kerala High Court While Ordering FIR Against Pinarayi Vijayan & Family Members
-https://www.verdictum.in/kerala-high-court/adv-km-shajahan-v-state-of-kerala-2026ker78014-ex-cm-pinarayi-vijayan-ex-minister-mohammed-riyas-1623682
-
-[Source Link](https://t.me/verdictumlegalupdates/29581)
-
----
-
-### 2026-10-09T10:32:55+00:00
-Disputed Wills Cannot Fill Gap In Copyright Title; Legatee Takes Only What Testator Held: Delhi High Court
-https://www.verdictum.in/delhi-high-court/shakti-sagar-v-the-delhi-law-house-2026dhc8862-widow-claiming-47-titles-disputed-wills-1623679
-
-[Source Link](https://t.me/verdictumlegalupdates/29580)
-
----
-
-### 2026-10-09T10:04:15+00:00
-Breaking| Stop Unruly Mob Movement, But That Doesn't Mean You Halt Everything: Apex Court Orders Reconsideration Of Metro, Train Shutdowns Ahead Of Oct 10 Protests
-https://www.verdictum.in/supreme-court/orders-reconsideration-of-metro-train-shutdowns-ahead-of-oct-10-protests-1623681
-
-[Source Link](https://t.me/verdictumlegalupdates/29579)
-
----
-
-### 2026-10-09T09:32:54+00:00
-Delhi High Court Refuses To Grant Urgent Hearing To IYC's Plea For Protest At Jantar Mantar
-https://www.verdictum.in/delhi-high-court/urgent-hearing-to-iycs-plea-for-protest-at-jantar-mantar-1623677
-
-[Source Link](https://t.me/verdictumlegalupdates/29578)
-
----
-
-### 2026-10-09T09:02:53+00:00
-A Very Small Window Is Open: Bombay High Court Explains Scope Of Anticipatory Bail In Sexual Offences Against Minors
-https://www.verdictum.in/bombay-high-court/kasif-sahabuddin-khan-v-state-of-maharashtra-2026bhc-nag13292-anticipatory-bail-bar-in-sexual-offences-pocso-1623676
-
-[Source Link](https://t.me/verdictumlegalupdates/29577)
-
----
-
-### 2026-10-09T08:32:52+00:00
-Not A Case Of Non-Availability Of EWS Candidate: Uttarakhand High Court Quashes Recommendation Of General Category Candidate To EWS Reserved Post
-https://www.verdictum.in/uttarakhand-high-court/jagdish-chandra-purohit-v-veer-chandra-singh-garhwali-uttarakhand-university-2026uhc9009-db-1623661
-
-[Source Link](https://t.me/verdictumlegalupdates/29576)
-
----
-
-### 2026-10-09T07:58:31+00:00
-Supreme Court Agrees To Hear Urgent Plea Against Shutdown Of Delhi Metro, Trains & Internet Ahead Of October 10 Jantar Mantar Protest
-https://www.verdictum.in/supreme-court/agrees-plea-against-shutdown-delhi-metro-trains-internet-ahead-october-10-jantar-mantar-protest-1623673
-
-[Source Link](https://t.me/verdictumlegalupdates/29575)
-
----
-
-### 2026-10-09T07:16:10+00:00
-Don't Want Students Entangled In Court Proceedings: Apex Court Dismisses Plea Seeking Investigation Of FIRs Of Jantar Mantar Student Protest Held In July
-https://www.verdictum.in/supreme-court/dismisses-plea-seeking-investigation-fir-jantar-mantar-student-protest-held-july-1623668
-
-[Source Link](https://t.me/verdictumlegalupdates/29574)
 
 ---
 
