@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-10T13:24:41+00:00*
+*Last Updated: 2026-10-11T05:27:35+00:00*
 
 ---
 
-### 2026-10-10T13:24:41+00:00
-Questioning Govt On Public Issues Not Defamation, Politicians Must Accept Criticism In Democracy: Delhi Court
-https://www.livelaw.in/top-stories/questioning-govt-on-public-issues-not-defamation-politicians-must-accept-criticism-in-democracy-delhi-court-554079
+### 2026-10-11T05:27:35+00:00
+J&K High Court Quashes Preventive Detention Order After 2-Year Delay, Says 'Live & Proximate Link' With Past Activities Snapped
+https://www.livelaw.in/high-court/jammu-kashmir/man-kept-attending-court-while-order-remained-unexecuted-jk-hc-quashes-detention-order-says-two-years-of-inaction-snapped-live-and-proximate-link-between-past-allegations-and-need-for-detention-554100
 
-[Read on Telegram](https://t.me/livelawindia/122077)
-
----
-### 2026-10-10T14:17:31+00:00
-Supreme Court To Hold Sunday Sitting To Hear Contempt Plea Over Closure Of Metro Stations & Train Cancellations In Delhi
-https://www.livelaw.in/top-stories/supreme-court-to-hold-sunday-sitting-to-hear-contempt-plea-over-closure-of-metro-stations-train-cancellations-in-delhi-554082
-
-[Read on Telegram](https://t.me/livelawindia/122078)
+[Read on Telegram](https://t.me/livelawindia/122097)
 
 ---
-### 2026-10-10T14:44:51+00:00
-ED Moves Supreme Court Against Delhi HC Order Quashing Money Laundering Case Against NewsClick & Prabir Purkayastha
-https://www.livelaw.in/top-stories/ed-moves-supreme-court-against-delhi-hc-order-quashing-money-laundering-case-against-newsclick-prabir-purkayastha-554083
+### 2026-10-11T05:32:56+00:00
+Silk Saree Zari Quality Dispute: NCDRC Remands Cases After Test Report Shows Low Silver Content
+https://www.livelaw.in/consumer-cases/silk-saree-zari-quality-dispute-ncdrc-remands-cases-after-test-report-shows-low-silver-content-554115
 
-[Read on Telegram](https://t.me/livelawindia/122079)
-
----
-### 2026-10-10T14:55:41+00:00
-Delhi High Court Bar Association Condemns Detention Of Lawyers, Excessive Police Force During Protest Against CEC
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-bar-association-condemns-detention-of-lawyers-excessive-police-force-during-protest-against-cec-554084
-
-[Read on Telegram](https://t.me/livelawindia/122080)
+[Read on Telegram](https://t.me/livelawindia/122098)
 
 ---
-### 2026-10-10T15:01:02+00:00
-BREAKING| Menaka Guruswamy Files Habeas Petition In Supreme Court Against Detention Of Political Leaders During Delhi Protests
-https://www.livelaw.in/top-stories/menaka-guruswamy-files-habeas-petition-in-supreme-court-against-detention-of-political-leaders-during-delhi-protests-554085
+### 2026-10-11T05:38:36+00:00
+PIL In Supreme Court Seeks Scrutiny Of Central Delhi Internet Shutdown During CEC Protest
+https://www.livelaw.in/top-stories/pil-in-supreme-court-seeks-scrutiny-of-central-delhi-internet-shutdown-during-cec-protest-554120
 
-[Read on Telegram](https://t.me/livelawindia/122081)
-
----
-### 2026-10-10T15:37:52+00:00
-Allegations Of “Jhaad-Phoonk” Cannot Attract Section 307 IPC Without Intention To Cause Death: Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-sets-aside-attempt-murder-conviction-554092
-
-[Read on Telegram](https://t.me/livelawindia/122082)
+[Read on Telegram](https://t.me/livelawindia/122099)
 
 ---
-### 2026-10-10T15:38:32+00:00
-HP High Court Directs Status Quo On Disputed Temple Land, Warns Officials Of Contempt Proceedings
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-directs-status-quo-disputed-temple-land-554093
+### 2026-10-11T06:43:56+00:00
+Supreme Court Weekly Roundup: September 28, 2026 To October 4, 2026
+https://www.livelaw.in/round-ups/supreme-court-weekly-roundup-september-28-2026-to-october-4-2026-554032
 
-[Read on Telegram](https://t.me/livelawindia/122083)
-
----
-### 2026-10-10T17:41:53+00:00
-Call For Blogs: NUSRL Ranchi's 'The Policy Chronicle' Invites Submissions On Rolling Basis
-https://www.livelaw.in/lawschool/call-for-papers/call-for-blogs-nusrl-ranchis-policy-chronicle-invites-submissions-rolling-basis-554105
-
-[Read on Telegram](https://t.me/livelawindia/122084)
+[Read on Telegram](https://t.me/livelawindia/122100)
 
 ---
-### 2026-10-10T17:49:53+00:00
-Allahabad High Court Makes 1 Lakh Judgments Available In Hindi Through AI-Assisted Translation
-https://www.livelaw.in/news-updates/allahabad-high-court-makes-1-lakh-judgments-available-hindi-through-ai-assisted-translation-554106
+### 2026-10-11T07:02:56+00:00
+CEC Protest: Supreme Court Directs No Illegal Detention Of Peaceful Protesters, Normal Metro & Rail Services, Free Movement, Undisturbed Internet
+https://www.livelaw.in/top-stories/supreme-court-hearing-cec-gyanesh-kumar-delhi-protests-unarmed-protestors-detention-metro-train-services-554122
 
-[Read on Telegram](https://t.me/livelawindia/122085)
-
----
-### 2026-10-10T18:27:04+00:00
-CEC Protest: CJP Moves Supreme Court Seeking Release of Abhijeet Dipke, Saurav Das & Others Over Alleged Detention
-https://www.livelaw.in/top-stories/cec-protest-cjp-moves-supreme-court-seeking-release-of-abhijeet-dipke-saurav-das-others-over-alleged-detention-554107
-
-[Read on Telegram](https://t.me/livelawindia/122086)
+[Read on Telegram](https://t.me/livelawindia/122101)
 
 ---
-### 2026-10-11T02:24:35+00:00
-Contempt Petition Filed In Supreme Court Against Delhi Police Commissioner Over Alleged Violence Against Civilians Amid CEC Protests
-https://www.livelaw.in/top-stories/contempt-petition-filed-in-supreme-court-against-delhi-police-commissioner-over-alleged-violence-against-civilians-amid-cec-protests-554108
+### 2026-10-11T07:16:16+00:00
+NLSIU Alumni Condemn Police Action Against Protestors, Detention Of Lawyers During CEC Protest
+https://www.livelaw.in/news-updates/nlsiu-alumni-association-condemns-police-action-against-protestors-detention-of-lawyers-during-cec-protest-554123
 
-[Read on Telegram](https://t.me/livelawindia/122087)
-
----
-### 2026-10-11T02:32:15+00:00
-Supreme Court Sunday Hearing Against Detentions & Curbs During Delhi Protests [Live Updates]
-https://www.livelaw.in/top-stories/supreme-court-sunday-hearing-against-detentions-curbs-during-delhi-protests-live-updates-554104
-
-[Read on Telegram](https://t.me/livelawindia/122088)
+[Read on Telegram](https://t.me/livelawindia/122102)
 
 ---
-### 2026-10-11T02:58:25+00:00
-'Tired Of Going To Supreme Court, Lost Faith' : Senior Advocate Kapil Sibal
-https://www.livelaw.in/top-stories/tired-of-going-to-supreme-court-lost-faith-senior-advocate-kapil-sibal-554109
+### 2026-10-11T08:32:56+00:00
+Jammu & Kashmir And Ladakh High Court Monthly Digest: September 2026
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-monthly-digest-september-2026-553238
 
-[Read on Telegram](https://t.me/livelawindia/122089)
-
----
-### 2026-10-11T03:12:45+00:00
-Courts This Week | SC Refuses To Suspend CEC, Delhi Women's Safety, Telangana SIR & More
-https://www.livelaw.in/videos/supreme-court-gyanesh-kumar-eci-news-india-legal-news-clat-upsc-554111
-
-[Read on Telegram](https://t.me/livelawindia/122090)
+[Read on Telegram](https://t.me/livelawindia/122103)
 
 ---
-### 2026-10-11T03:18:25+00:00
-RJD MP Manoj Jha Moves Supreme Court Against Delhi Police Actions During Protests Against CEC Gyanesh Kumar
-https://www.livelaw.in/top-stories/supreme-court-manoj-jha-urgent-plea-delhi-police-cec-gyanesh-kumar-eci-protest-disproportionate-force-sexual-harassment-metro-train-closure-554113
+### 2026-10-11T08:38:16+00:00
+'Officers Not Posted In Dept During RTI Response Period Cannot Be Penalised For Delayed Disclosure': Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/officers-not-posted-during-rti-response-period-cannot-penalized-delayed-disclosure-554098
 
-[Read on Telegram](https://t.me/livelawindia/122091)
-
----
-### 2026-10-11T03:30:45+00:00
-'Advocate' Stickers No Ground To Refuse Policy Endorsement Without Justification: Coimbatore Consumer Commission Holds Insurer Liable
-https://www.livelaw.in/consumer-cases/advocate-stickers-no-ground-to-refuse-policy-endorsement-without-justification-coimbatore-consumer-commission-holds-insurer-liable-554114
-
-[Read on Telegram](https://t.me/livelawindia/122092)
+[Read on Telegram](https://t.me/livelawindia/122104)
 
 ---
-### 2026-10-11T03:32:25+00:00
-Deputy Manager Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/deputy-manager-vacancy-at-deloitte-touche-tohmatsu-india-llp-554090
+### 2026-10-11T09:16:06+00:00
+CEC Protest: Supreme Court Issues Notice On Contempt Plea Against Union, Delhi Police Authorities Over Metro And Train Curbs Despite SC Order
+https://www.livelaw.in/top-stories/supreme-court-contempt-plea-against-union-delhi-police-authorities-metro-closure-train-cancellation-despite-sc-order-notice-554126
 
-[Read on Telegram](https://t.me/livelawindia/122093)
-
----
-### 2026-10-11T04:02:55+00:00
-Associate (Tax) Vacancy At Ernst & Young [Mumbai; Apply Now]
-https://www.livelaw.in/job-updates/associate-tax-vacancy-at-ernst-young-mumbai-554094
-
-[Read on Telegram](https://t.me/livelawindia/122094)
+[Read on Telegram](https://t.me/livelawindia/122105)
 
 ---
-### 2026-10-11T04:32:45+00:00
-LiveLaw Bharatiya Nagarik Suraksha Sanhita (BNSS) And Bharatiya Nyaya Sanhita (BNS) Monthly Digest: September 2026
-https://www.livelaw.in/top-stories/bnss-bns-monthly-digest-september-2026-553056
+### 2026-10-11T09:32:26+00:00
+Manager (Ethics) Vacancy At KPMG India [Bangalore; Apply Now]
+https://www.livelaw.in/job-updates/manager-ethics-vacancy-at-kpmg-india-bangalore-554127
 
-[Read on Telegram](https://t.me/livelawindia/122095)
+[Read on Telegram](https://t.me/livelawindia/122106)
 
 ---
-### 2026-10-11T04:35:45+00:00
-Delhi Executive Magistrate Court Orders Release Of CJP Leaders Abhijit Dipke, Saurav Das & Ashutosh Ranka
-https://www.livelaw.in/top-stories/delhi-executive-magistrate-court-orders-release-of-cjp-leaders-abhijit-dipke-saurav-das-ashutosh-ranka-554116
+### 2026-10-11T09:41:26+00:00
+Legal Associate Vacancy At Barclays Bank PLC
+https://www.livelaw.in/job-updates/legal-associate-vacancy-at-barclays-bank-plc-554129
 
-[Read on Telegram](https://t.me/livelawindia/122096)
+[Read on Telegram](https://t.me/livelawindia/122107)
+
+---
+### 2026-10-11T09:56:16+00:00
+Legal Manager Vacancy At HDFC Bank
+https://www.livelaw.in/job-updates/legal-manager-vacancy-at-hdfc-bank-554130
+
+[Read on Telegram](https://t.me/livelawindia/122108)
+
+---
+### 2026-10-11T10:23:37+00:00
+Advocate Amit Rana Elected As Chairperson Of Punjab & Haryana Bar Council
+https://www.livelaw.in/news-updates/advocate-amit-rana-elected-as-chairperson-punjab-haryana-bar-council-554136
+
+[Read on Telegram](https://t.me/livelawindia/122109)
+
+---
+### 2026-10-11T10:53:07+00:00
+Lawyers' Body Moves Supreme Court; Says Protests Cannot Paralyse Delhi, Impede Lawyers' Livelihood
+https://www.livelaw.in/top-stories/lawyers-body-moves-supreme-court-says-protests-cannot-paralyse-delhi-impede-lawyers-livelihood-554137
+
+[Read on Telegram](https://t.me/livelawindia/122110)
+
+---
+### 2026-10-11T11:06:07+00:00
+When Child Breaks The Law, Law Must Not Break The Child : Justice BV Nagarathna
+https://www.livelaw.in/top-stories/when-child-breaks-the-law-law-must-not-break-the-child-justice-bv-nagarathna-554139
+
+[Read on Telegram](https://t.me/livelawindia/122111)
+
+---
+### 2026-10-11T11:12:48+00:00
+Supreme Court Acquits Man In POCSO Case Over Victim's Failure To Identify Him In Court, Unexplained Delay In FIR
+https://www.livelaw.in/supreme-court/supreme-court-acquits-man-pocso-case-victim-failure-identify-unexplained-delay-fir-554140
+
+[Read on Telegram](https://t.me/livelawindia/122112)
+
+---
+### 2026-10-11T11:13:48+00:00
+2026 LiveLaw (SC) 1038 | Charming Rupon v State of Meghalaya
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1038-charming-rupon-v-state-of-meghalaya-554141
+
+[Read on Telegram](https://t.me/livelawindia/122113)
+
+---
+### 2026-10-11T11:23:48+00:00
+Did Authorities Seek CJI Surya Kant's Permission Before Imposing S.163 BNSS Outside Supreme Court?: Sr Adv Gopal Sankaranarayanan
+https://www.livelaw.in/top-stories/supreme-court-gopal-sankaranarayanan-solicitor-general-tushar-mehta-permission-from-cji-surya-kant-for-section-163-prohibition-around-sc-554142
+
+[Read on Telegram](https://t.me/livelawindia/122114)
+
+---
+### 2026-10-11T11:45:18+00:00
+Lawyers, Journalists, Other Professionals Should Not Be Stopped From Doing Their Job Amid Delhi Protest Curbs : Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-no-lawyer-journalist-other-professional-be-obstructed-in-professional-duty-cec-protest-direction-to-authorities-554143
+
+[Read on Telegram](https://t.me/livelawindia/122115)
+
+---
+### 2026-10-11T11:47:38+00:00
+2026 LiveLaw (SC) 1039 | Shilendra Mani Tripathi v Govind Mohan
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1039-shilendra-mani-tripathi-v-govind-mohan-554144
+
+[Read on Telegram](https://t.me/livelawindia/122116)
 
 ---
