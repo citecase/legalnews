@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-10T07:47:28+00:00*
+*Last Updated: 2026-10-10T13:24:41+00:00*
 
 ---
 
-### 2026-10-10T07:47:28+00:00
-Lawyer's Failure To Advise Litigant On Remedy Can Be 'Sufficient Cause' To Condone Delay: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-limitation-act-litigant-should-not-suffer-from-lawyers-mistake-554039
-
-[Read on Telegram](https://t.me/livelawindia/122067)
-
----
-### 2026-10-10T07:52:28+00:00
-Lawyers' Strike To Seek Removal Of Advocate General 'Completely Illegal': Meghalaya High Court Issues Contempt Notices
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-lawyers-strike-contempt-notice-high-court-bar-association-shillong-bar-association-554043
-
-[Read on Telegram](https://t.me/livelawindia/122068)
-
----
-### 2026-10-10T08:18:09+00:00
-PMLA Amount Need Not Have 'Arithmetical Correspondence' With Predicate Offence: Jharkhand High Court Dismisses Ex-CM Madhu Koda's Plea
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-dismisses-former-cm-madhu-koda-plea-alter-charges-554011
-
-[Read on Telegram](https://t.me/livelawindia/122069)
-
----
-### 2026-10-10T08:27:59+00:00
-Mere Use Of Forged Document Not Offence, Knowledge That It Was Forged Must Be Established: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/mere-use-of-forged-document-not-enough-for-section-471-rpc-knowledge-or-reason-to-believe-it-was-forged-must-be-established-jk-high-court-553890
-
-[Read on Telegram](https://t.me/livelawindia/122070)
-
----
-### 2026-10-10T08:52:59+00:00
-CEC Protest: CJP Legal Affairs Head Ratna Singh Moves Delhi Court Seeking FIR Against Cops Over 'Illegal Detention'
-https://www.livelaw.in/top-stories/delhi-court-ratna-singh-cjp-fir-illegal-detention-gyanesh-kumar-protest-554049
-
-[Read on Telegram](https://t.me/livelawindia/122071)
-
----
-### 2026-10-10T09:25:49+00:00
-CJI Surya Kant Constitutes 'Judicial Well-Being Committee' For Judges' Mental Health
-https://www.livelaw.in/top-stories/cji-surya-kant-constitutes-judicial-well-being-committee-for-judges-mental-health-554053
-
-[Read on Telegram](https://t.me/livelawindia/122072)
-
----
-### 2026-10-10T10:09:00+00:00
-Arogya Legal Expands Its Mumbai Presence
-https://www.livelaw.in/law-firms/professional-announcement/arogya-legal-expands-mumbai-presence-554055
-
-[Read on Telegram](https://t.me/livelawindia/122073)
-
----
-### 2026-10-10T10:29:20+00:00
-Delhi Riots: Court Convicts Tahir Hussain For Abetment Of Rioting, Acquits Him Of Other Charges
-https://www.livelaw.in/news-updates/delhi-riots-court-convicts-tahir-hussain-for-abetment-of-rioting-acquits-him-of-other-charges-554061
-
-[Read on Telegram](https://t.me/livelawindia/122074)
-
----
-### 2026-10-10T11:13:10+00:00
-Sharjeel Imam Flouted Conditions Imposed While Granting Interim Bail: Delhi Court
-https://www.livelaw.in/news-updates/sharjeel-imam-flouted-conditions-imposed-while-granting-interim-bail-delhi-court-554070
-
-[Read on Telegram](https://t.me/livelawindia/122075)
-
----
-### 2026-10-10T12:29:51+00:00
-BREAKING | Delhi Court Rejects CJP Leader Ratna Singh's Plea For FIR Against Cops Over 'Illegal Detention'
-https://www.livelaw.in/top-stories/delhi-court-cjp-leader-ratna-singh-fir-against-cops-over-illegal-detention-554074
-
-[Read on Telegram](https://t.me/livelawindia/122076)
-
----
 ### 2026-10-10T13:24:41+00:00
 Questioning Govt On Public Issues Not Defamation, Politicians Must Accept Criticism In Democracy: Delhi Court
 https://www.livelaw.in/top-stories/questioning-govt-on-public-issues-not-defamation-politicians-must-accept-criticism-in-democracy-delhi-court-554079
@@ -142,5 +72,75 @@ CEC Protest: CJP Moves Supreme Court Seeking Release of Abhijeet Dipke, Saurav D
 https://www.livelaw.in/top-stories/cec-protest-cjp-moves-supreme-court-seeking-release-of-abhijeet-dipke-saurav-das-others-over-alleged-detention-554107
 
 [Read on Telegram](https://t.me/livelawindia/122086)
+
+---
+### 2026-10-11T02:24:35+00:00
+Contempt Petition Filed In Supreme Court Against Delhi Police Commissioner Over Alleged Violence Against Civilians Amid CEC Protests
+https://www.livelaw.in/top-stories/contempt-petition-filed-in-supreme-court-against-delhi-police-commissioner-over-alleged-violence-against-civilians-amid-cec-protests-554108
+
+[Read on Telegram](https://t.me/livelawindia/122087)
+
+---
+### 2026-10-11T02:32:15+00:00
+Supreme Court Sunday Hearing Against Detentions & Curbs During Delhi Protests [Live Updates]
+https://www.livelaw.in/top-stories/supreme-court-sunday-hearing-against-detentions-curbs-during-delhi-protests-live-updates-554104
+
+[Read on Telegram](https://t.me/livelawindia/122088)
+
+---
+### 2026-10-11T02:58:25+00:00
+'Tired Of Going To Supreme Court, Lost Faith' : Senior Advocate Kapil Sibal
+https://www.livelaw.in/top-stories/tired-of-going-to-supreme-court-lost-faith-senior-advocate-kapil-sibal-554109
+
+[Read on Telegram](https://t.me/livelawindia/122089)
+
+---
+### 2026-10-11T03:12:45+00:00
+Courts This Week | SC Refuses To Suspend CEC, Delhi Women's Safety, Telangana SIR & More
+https://www.livelaw.in/videos/supreme-court-gyanesh-kumar-eci-news-india-legal-news-clat-upsc-554111
+
+[Read on Telegram](https://t.me/livelawindia/122090)
+
+---
+### 2026-10-11T03:18:25+00:00
+RJD MP Manoj Jha Moves Supreme Court Against Delhi Police Actions During Protests Against CEC Gyanesh Kumar
+https://www.livelaw.in/top-stories/supreme-court-manoj-jha-urgent-plea-delhi-police-cec-gyanesh-kumar-eci-protest-disproportionate-force-sexual-harassment-metro-train-closure-554113
+
+[Read on Telegram](https://t.me/livelawindia/122091)
+
+---
+### 2026-10-11T03:30:45+00:00
+'Advocate' Stickers No Ground To Refuse Policy Endorsement Without Justification: Coimbatore Consumer Commission Holds Insurer Liable
+https://www.livelaw.in/consumer-cases/advocate-stickers-no-ground-to-refuse-policy-endorsement-without-justification-coimbatore-consumer-commission-holds-insurer-liable-554114
+
+[Read on Telegram](https://t.me/livelawindia/122092)
+
+---
+### 2026-10-11T03:32:25+00:00
+Deputy Manager Vacancy At Deloitte Touche Tohmatsu India LLP
+https://www.livelaw.in/job-updates/deputy-manager-vacancy-at-deloitte-touche-tohmatsu-india-llp-554090
+
+[Read on Telegram](https://t.me/livelawindia/122093)
+
+---
+### 2026-10-11T04:02:55+00:00
+Associate (Tax) Vacancy At Ernst & Young [Mumbai; Apply Now]
+https://www.livelaw.in/job-updates/associate-tax-vacancy-at-ernst-young-mumbai-554094
+
+[Read on Telegram](https://t.me/livelawindia/122094)
+
+---
+### 2026-10-11T04:32:45+00:00
+LiveLaw Bharatiya Nagarik Suraksha Sanhita (BNSS) And Bharatiya Nyaya Sanhita (BNS) Monthly Digest: September 2026
+https://www.livelaw.in/top-stories/bnss-bns-monthly-digest-september-2026-553056
+
+[Read on Telegram](https://t.me/livelawindia/122095)
+
+---
+### 2026-10-11T04:35:45+00:00
+Delhi Executive Magistrate Court Orders Release Of CJP Leaders Abhijit Dipke, Saurav Das & Ashutosh Ranka
+https://www.livelaw.in/top-stories/delhi-executive-magistrate-court-orders-release-of-cjp-leaders-abhijit-dipke-saurav-das-ashutosh-ranka-554116
+
+[Read on Telegram](https://t.me/livelawindia/122096)
 
 ---
