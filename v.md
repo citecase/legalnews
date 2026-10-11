@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-11T13:02:41+00:00*
+*Last Updated: 2026-10-11T15:02:22+00:00*
+
+---
+
+### 2026-10-11T15:02:22+00:00
+Manager (Legal) Vacancy At Gliders India Limited (GIL), Kanpur
+https://www.verdictum.in/job-updates/gliders-india-limited-1623760
+
+[Source Link](https://t.me/verdictumlegalupdates/29615)
 
 ---
 
@@ -153,14 +161,6 @@ Caste Scrutiny Committee Has Inherent Power To Seek Fresh Vigilance Report On A 
 https://www.verdictum.in/bombay-high-court/rupali-kashinath-shigwan-rupali-amol-jadhav-v-state-of-maharashtra-2026bhc-as40252-db-rule-177-of-the-caste-certificate-rules-obc-hindu-maratha-1623735
 
 [Source Link](https://t.me/verdictumlegalupdates/29596)
-
----
-
-### 2026-10-10T07:12:19+00:00
-Electricity Subsidy Tied to Power Charges Received Under Govt Scheme Is Revenue Receipt: Supreme Court
-https://www.verdictum.in/supreme-court/ms-mepco-industries-ltd-v-commissioner-of-income-tax-2026-insc-1090-electricity-subsidy-1623734
-
-[Source Link](https://t.me/verdictumlegalupdates/29595)
 
 ---
 
