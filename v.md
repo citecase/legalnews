@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-11T06:02:56+00:00*
+*Last Updated: 2026-10-11T13:02:41+00:00*
+
+---
+
+### 2026-10-11T13:02:41+00:00
+LOC Can’t Be Resorted To As Matter Of Routine Merely Because A Person Is Undergoing Trial: Delhi High Court
+https://www.verdictum.in/delhi-high-court/sirajuddin-qureshi-v-union-of-india-2026dhc8939-lookout-circular-1623759
+
+[Source Link](https://t.me/verdictumlegalupdates/29614)
+
+---
+
+### 2026-10-11T11:32:40+00:00
+Inherent Duty To Give Adequate Warning To Public About Passing Of Train At Rail Crossing: Jharkhand High Court Orders ₹8 Lakh Compensation
+https://www.verdictum.in/jharkhand-high-court/smt-rita-devi-v-the-union-of-india-2026jhhc29897-duty-warning-public-railways-compensation-1623769
+
+[Source Link](https://t.me/verdictumlegalupdates/29613)
+
+---
+
+### 2026-10-11T10:03:19+00:00
+Promise To Marry Made After Sexual Intercourse Does Not Attract Offence U/s. 69 BNS: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/2026khc55046-sri-mohammed-ayan-v-state-of-karnataka-69-bns-1623754
+
+[Source Link](https://t.me/verdictumlegalupdates/29612)
+
+---
+
+### 2026-10-11T09:14:19+00:00
+Courts Are Agnostic To Who The Victim Is;: Supreme Court On Lawyers & Police Officers Alleging Brutality Against Them During Delhi Protests
+https://www.verdictum.in/supreme-court/courts-are-agnostic-to-who-victim-is-brutality-lawyers-police-delhi-protests-1623794
+
+[Source Link](https://t.me/verdictumlegalupdates/29611)
+
+---
+
+### 2026-10-11T08:40:58+00:00
+"Lawyer's Job Is In Court, Not On Street": Lawyers' Group Intervenes To Tell Supreme Court In Plea Against Detention Of Advocates
+https://www.verdictum.in/supreme-court/senior-advocate-kirti-uppal-protest-by-advocates-police-action-delhi-1623793
+
+[Source Link](https://t.me/verdictumlegalupdates/29610)
+
+---
+
+### 2026-10-11T07:18:17+00:00
+Breaking: Supreme Court Passes Interim Order For Normal Operations Of Delhi Metro, Barricade Review & Removal Of Prohibitory Notices Around Court Premises
+https://www.verdictum.in/supreme-court/directs-normal-operations-delhi-metro-barricade-review-removal-of-prohibitory-notice-boards-around-court-premises-1623790
+
+[Source Link](https://t.me/verdictumlegalupdates/29609)
 
 ---
 
@@ -113,54 +161,6 @@ Electricity Subsidy Tied to Power Charges Received Under Govt Scheme Is Revenue 
 https://www.verdictum.in/supreme-court/ms-mepco-industries-ltd-v-commissioner-of-income-tax-2026-insc-1090-electricity-subsidy-1623734
 
 [Source Link](https://t.me/verdictumlegalupdates/29595)
-
----
-
-### 2026-10-10T06:32:58+00:00
-Interest Must Be Granted From Claim Date In Motor Accident Compensation Cases Unless Special Reasons Exist: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/s-v-gurumejsing-ajitsing-jaat-2026gujhc63345-advocate-rendered-impotent-loss-marital-life-age-32-1623726
-
-[Source Link](https://t.me/verdictumlegalupdates/29594)
-
----
-
-### 2026-10-10T05:52:37+00:00
-Appointment Of State Law Officers Must Follow Need Assessment & Transparent, Merit-Based Criteria: Allahabad High Court Issues Guidelines
-https://www.verdictum.in/allahabad-high-court/mahendra-singh-pawar-v-state-of-uttar-pradesh-through-principal-secretary-to-the-chief-minister-and-others-2026ahc-lko72290-db-1623722
-
-[Source Link](https://t.me/verdictumlegalupdates/29593)
-
----
-
-### 2026-10-10T05:12:56+00:00
-State Government To Ensure Infrastructural Facilities Are Provided In Time To Courts, Tribunals & Commissions: Kerala High Court
-https://www.verdictum.in/kerala-high-court/adv-j-surya-v-state-of-kerala-consumer-commission-shortage-manpower-1623719
-
-[Source Link](https://t.me/verdictumlegalupdates/29592)
-
----
-
-### 2026-10-10T04:32:35+00:00
-Cases Alleging Illegal Cattle Transportation Didn’t Evoke Communal Tension Or Law & Order Problem: Jammu & Kashmir and Ladakh High Court Quashes Detention Order
-https://www.verdictum.in/jammu-ladakh-high-court/cause-title-din-mohd-wani-v-ut-of-jk-illegal-cattle-transportation-communal-tension-detention-1623696
-
-[Source Link](https://t.me/verdictumlegalupdates/29591)
-
----
-
-### 2026-10-09T16:03:04+00:00
-IDDRC Invites Expressions Of Interest For Empanelment Of Arbitrators
-https://www.verdictum.in/job-updates/international-digital-dispute-resolution-centre-1623690
-
-[Source Link](https://t.me/verdictumlegalupdates/29590)
-
----
-
-### 2026-10-09T15:32:23+00:00
-Temporary Misappropriation Cannot Constitute Criminal Breach Of Trust Unless Entrustment And Dishonest Intention Are Proved: Supreme Court
-https://www.verdictum.in/supreme-court/ramkrushna-prahllad-dongardive-v-state-of-maharashtra-2026-insc-1099-1623698
-
-[Source Link](https://t.me/verdictumlegalupdates/29589)
 
 ---
 
