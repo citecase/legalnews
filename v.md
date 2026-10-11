@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-10T14:32:48+00:00*
+*Last Updated: 2026-10-11T06:02:56+00:00*
+
+---
+
+### 2026-10-11T06:02:56+00:00
+High Court Bench Expected To Sincerely Endeavour To Expedite Decision Once Priority Hearing Is Requested: Supreme Court
+https://www.verdictum.in/supreme-court/meerut-development-authority-v-parmeshwar-dayal-and-another-2026-insc-1106-1623758
+
+[Source Link](https://t.me/verdictumlegalupdates/29608)
+
+---
+
+### 2026-10-11T04:33:15+00:00
+Ambiguity In Qualification Prescribed In Advertisement Should Be Construed To Benefit Of Candidate: Supreme Court
+https://www.verdictum.in/supreme-court/irfan-ahmad-hakak-v-ut-of-jammu-and-kashmir-2026-insc-1104-ambiguity-advertisement-1623757
+
+[Source Link](https://t.me/verdictumlegalupdates/29607)
 
 ---
 
@@ -145,22 +161,6 @@ Temporary Misappropriation Cannot Constitute Criminal Breach Of Trust Unless Ent
 https://www.verdictum.in/supreme-court/ramkrushna-prahllad-dongardive-v-state-of-maharashtra-2026-insc-1099-1623698
 
 [Source Link](https://t.me/verdictumlegalupdates/29589)
-
----
-
-### 2026-10-09T15:03:02+00:00
-General Abuse Directed At Woman Without Sexually Coloured Remarks Does Not Attract Section 354A(1)(iv) IPC: Kerala High Court
-https://www.verdictum.in/kerala-high-court/prasad-mahendragiri-v-state-of-kerala-and-another-2026ker71105-section-354a1iv-ipc-1623697
-
-[Source Link](https://t.me/verdictumlegalupdates/29588)
-
----
-
-### 2026-10-09T14:43:41+00:00
-Automatic Revocation Of Will On Marriage U/S 69 Of Indian Succession Act Not Unconstitutional: Kerala High Court
-https://www.verdictum.in/kerala-high-court/suo-motu-civil-reference-to-examine-the-validity-of-section-69-of-the-indian-succession-act-1925-2026ker77525-1623695
-
-[Source Link](https://t.me/verdictumlegalupdates/29587)
 
 ---
 
