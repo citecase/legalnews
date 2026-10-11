@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-11T05:27:35+00:00*
+*Last Updated: 2026-10-11T09:41:26+00:00*
 
 ---
 
-### 2026-10-11T05:27:35+00:00
-J&K High Court Quashes Preventive Detention Order After 2-Year Delay, Says 'Live & Proximate Link' With Past Activities Snapped
-https://www.livelaw.in/high-court/jammu-kashmir/man-kept-attending-court-while-order-remained-unexecuted-jk-hc-quashes-detention-order-says-two-years-of-inaction-snapped-live-and-proximate-link-between-past-allegations-and-need-for-detention-554100
-
-[Read on Telegram](https://t.me/livelawindia/122097)
-
----
-### 2026-10-11T05:32:56+00:00
-Silk Saree Zari Quality Dispute: NCDRC Remands Cases After Test Report Shows Low Silver Content
-https://www.livelaw.in/consumer-cases/silk-saree-zari-quality-dispute-ncdrc-remands-cases-after-test-report-shows-low-silver-content-554115
-
-[Read on Telegram](https://t.me/livelawindia/122098)
-
----
-### 2026-10-11T05:38:36+00:00
-PIL In Supreme Court Seeks Scrutiny Of Central Delhi Internet Shutdown During CEC Protest
-https://www.livelaw.in/top-stories/pil-in-supreme-court-seeks-scrutiny-of-central-delhi-internet-shutdown-during-cec-protest-554120
-
-[Read on Telegram](https://t.me/livelawindia/122099)
-
----
-### 2026-10-11T06:43:56+00:00
-Supreme Court Weekly Roundup: September 28, 2026 To October 4, 2026
-https://www.livelaw.in/round-ups/supreme-court-weekly-roundup-september-28-2026-to-october-4-2026-554032
-
-[Read on Telegram](https://t.me/livelawindia/122100)
-
----
-### 2026-10-11T07:02:56+00:00
-CEC Protest: Supreme Court Directs No Illegal Detention Of Peaceful Protesters, Normal Metro & Rail Services, Free Movement, Undisturbed Internet
-https://www.livelaw.in/top-stories/supreme-court-hearing-cec-gyanesh-kumar-delhi-protests-unarmed-protestors-detention-metro-train-services-554122
-
-[Read on Telegram](https://t.me/livelawindia/122101)
-
----
-### 2026-10-11T07:16:16+00:00
-NLSIU Alumni Condemn Police Action Against Protestors, Detention Of Lawyers During CEC Protest
-https://www.livelaw.in/news-updates/nlsiu-alumni-association-condemns-police-action-against-protestors-detention-of-lawyers-during-cec-protest-554123
-
-[Read on Telegram](https://t.me/livelawindia/122102)
-
----
-### 2026-10-11T08:32:56+00:00
-Jammu & Kashmir And Ladakh High Court Monthly Digest: September 2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-monthly-digest-september-2026-553238
-
-[Read on Telegram](https://t.me/livelawindia/122103)
-
----
-### 2026-10-11T08:38:16+00:00
-'Officers Not Posted In Dept During RTI Response Period Cannot Be Penalised For Delayed Disclosure': Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/officers-not-posted-during-rti-response-period-cannot-penalized-delayed-disclosure-554098
-
-[Read on Telegram](https://t.me/livelawindia/122104)
-
----
-### 2026-10-11T09:16:06+00:00
-CEC Protest: Supreme Court Issues Notice On Contempt Plea Against Union, Delhi Police Authorities Over Metro And Train Curbs Despite SC Order
-https://www.livelaw.in/top-stories/supreme-court-contempt-plea-against-union-delhi-police-authorities-metro-closure-train-cancellation-despite-sc-order-notice-554126
-
-[Read on Telegram](https://t.me/livelawindia/122105)
-
----
-### 2026-10-11T09:32:26+00:00
-Manager (Ethics) Vacancy At KPMG India [Bangalore; Apply Now]
-https://www.livelaw.in/job-updates/manager-ethics-vacancy-at-kpmg-india-bangalore-554127
-
-[Read on Telegram](https://t.me/livelawindia/122106)
-
----
 ### 2026-10-11T09:41:26+00:00
 Legal Associate Vacancy At Barclays Bank PLC
 https://www.livelaw.in/job-updates/legal-associate-vacancy-at-barclays-bank-plc-554129
@@ -142,5 +72,75 @@ https://www.livelaw.in/top-stories/supreme-court-no-lawyer-journalist-other-prof
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1039-shilendra-mani-tripathi-v-govind-mohan-554144
 
 [Read on Telegram](https://t.me/livelawindia/122116)
+
+---
+### 2026-10-11T12:32:29+00:00
+LiveLaw Karnataka High Court Monthly Digest: September 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-monthly-digest-september2026-553083
+
+[Read on Telegram](https://t.me/livelawindia/122117)
+
+---
+### 2026-10-11T12:42:29+00:00
+Accused Already Released On Bail Cannot Seek Anticipatory Bail Again, Must Surrender And Seek Regular Bail: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-anticipatory-bail-sought-person-released-bail-accused-constructive-custody-554102
+
+[Read on Telegram](https://t.me/livelawindia/122118)
+
+---
+### 2026-10-11T12:47:29+00:00
+Bombay High Court Directs Maharashtra DGP To Review Arrest Protocols; Ensure Compliance With SC Directions
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-directs-maharashtra-dgp-review-arrest-protocols-554097
+
+[Read on Telegram](https://t.me/livelawindia/122119)
+
+---
+### 2026-10-11T13:10:09+00:00
+LiveLaw Supreme Court Weekly Digest: September 1 - 10, 2026
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-weekly-digest-september-2026-554146
+
+[Read on Telegram](https://t.me/livelawindia/122120)
+
+---
+### 2026-10-11T13:22:59+00:00
+Supreme Court Takes Note Of Fake Medical College In UP Operating From Farmhouse With Illiterate Tea Seller As Chairman
+https://www.livelaw.in/top-stories/supreme-court-takes-note-of-fake-medical-college-in-up-operating-from-farmhouse-with-illiterate-tea-seller-as-chairman-554145
+
+[Read on Telegram](https://t.me/livelawindia/122121)
+
+---
+### 2026-10-11T13:58:59+00:00
+Delhi Riots: Court Denies Natasha Narwal Permission To Travel To UK For Academic Conference
+https://www.livelaw.in/news-updates/delhi-riots-court-denies-natasha-narwal-permission-to-travel-to-uk-for-academic-conference-554147
+
+[Read on Telegram](https://t.me/livelawindia/122122)
+
+---
+### 2026-10-11T14:18:09+00:00
+Victim Cannot Appeal Against Inadequacy Of Sentence Under Juvenile Justice Act; Remedy Is Revision: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-victim-cannot-appeal-inadequacy-sentence-jj-act-554103
+
+[Read on Telegram](https://t.me/livelawindia/122123)
+
+---
+### 2026-10-11T16:41:20+00:00
+''Is There An Undeclared Emergency?': Sr Adv Menaka Guruswamy Flags Mass Detentions; Reminds Supreme Court Of ADM Jabalpur Verdict
+https://www.livelaw.in/top-stories/supreme-court-protest-delhi-cec-gyanesh-kumar-menaka-guruswamy-adm-jabalpur-hr-khanna-dissent-unimposed-emergency-554154
+
+[Read on Telegram](https://t.me/livelawindia/122124)
+
+---
+### 2026-10-11T16:55:40+00:00
+CJI Surya Kant Declines LoP Rahul Gandhi's Request For Meeting Over SIR & CEC
+https://www.livelaw.in/top-stories/cji-surya-kant-declines-lop-rahul-gandhis-request-for-meeting-over-sir-cec-554155
+
+[Read on Telegram](https://t.me/livelawindia/122125)
+
+---
+### 2026-10-11T17:18:30+00:00
+Rajya Sabha MP John Brittas Writes To CJI Alleging Delhi Police Assault, Seeks Judicial Intervention
+https://www.livelaw.in/top-stories/rajya-sabha-mp-john-brittas-writes-to-cji-alleging-delhi-police-assault-seeks-judicial-intervention-554156
+
+[Read on Telegram](https://t.me/livelawindia/122126)
 
 ---
