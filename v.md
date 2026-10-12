@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-11T15:02:22+00:00*
+*Last Updated: 2026-10-12T06:02:28+00:00*
+
+---
+
+### 2026-10-12T06:02:28+00:00
+Complete Failure Of Victim To Identify Accused Before Court: Supreme Court Acquits POCSO Accused
+https://www.verdictum.in/supreme-court/charming-rupon-v-state-of-meghalaya-2026-insc-1102-complete-failure-of-victim-to-identify-accused-1623829
+
+[Source Link](https://t.me/verdictumlegalupdates/29619)
+
+---
+
+### 2026-10-12T05:32:47+00:00
+Competent Authority Can’t Refuse Prosecution Sanction Contrary To CVC Advice; Must Refer Disagreement To DoPT: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/jay-pratap-singh-chauhan-v-cbi-through-superintendent-of-police-and-head-of-branch-lucknow-and-another-2026ahc-lko72445-1623826
+
+[Source Link](https://t.me/verdictumlegalupdates/29618)
+
+---
+
+### 2026-10-12T05:03:27+00:00
+Litigants Should Approach Courts In Time; Should Not Blame A Previously Engaged Counsel Without Proper Verification: Sikkim High Court
+https://www.verdictum.in/sikkim-high-court/the-branch-manager-national-insurance-company-limited-v-yoel-subba-ia-no-01-of-2026-in-crp-no-05-of-2026-blaming-advocate-for-delay-1623825
+
+[Source Link](https://t.me/verdictumlegalupdates/29617)
+
+---
+
+### 2026-10-12T04:33:15+00:00
+Preventive Detention Order, Relied-On Documents Must Be Supplied In Language Known To Detenue: Kerala High Court
+https://www.verdictum.in/kerala-high-court/ayishath-ruksana-v-state-of-kerala-and-others-2026ker77781-preventive-detention-1623796
+
+[Source Link](https://t.me/verdictumlegalupdates/29616)
 
 ---
 
@@ -129,38 +161,6 @@ Supreme Court Constitutes Standing Committee On Judicial Well-Being
 https://www.verdictum.in/supreme-court/standing-committee-on-judicial-well-being-1623747
 
 [Source Link](https://t.me/verdictumlegalupdates/29600)
-
----
-
-### 2026-10-10T09:53:07+00:00
-Youngsters Must Have A Sense Of National Pride In Our Institutions: Justice Gopinath Says It Is Easy To Attack Institutions
-https://www.verdictum.in/news/kerala-high-court-judge-justice-gopinath-p-national-pride-institutions-1623750
-
-[Source Link](https://t.me/verdictumlegalupdates/29599)
-
----
-
-### 2026-10-10T09:12:21+00:00
-Guest Faculties Only Have Right To Continue Till Regular Incumbents Take Charge Either On Appointment Or Transfer: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/dr-abha-agrawal-and-others-v-the-state-of-madhya-pradesh-guest-faculties-appointment-1623742
-
-[Source Link](https://t.me/verdictumlegalupdates/29598)
-
----
-
-### 2026-10-10T08:08:51+00:00
-CJI Intervenes After Urgent Appeal By Supreme Court Bar Association Condemning Detention Of Protesting Advocates
-https://www.verdictum.in/news/supreme-court-bar-association-condemns-detention-protesting-advocates-1623743
-
-[Source Link](https://t.me/verdictumlegalupdates/29597)
-
----
-
-### 2026-10-10T07:52:40+00:00
-Caste Scrutiny Committee Has Inherent Power To Seek Fresh Vigilance Report On A Document: Bombay High Court
-https://www.verdictum.in/bombay-high-court/rupali-kashinath-shigwan-rupali-amol-jadhav-v-state-of-maharashtra-2026bhc-as40252-db-rule-177-of-the-caste-certificate-rules-obc-hindu-maratha-1623735
-
-[Source Link](https://t.me/verdictumlegalupdates/29596)
 
 ---
 
