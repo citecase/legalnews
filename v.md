@@ -1,6 +1,158 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-12T06:02:28+00:00*
+*Last Updated: 2026-10-12T15:42:24+00:00*
+
+---
+
+### 2026-10-12T15:42:24+00:00
+No Compassionate Appointment When Family Survived & Substantial Period Is Over After Death: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/rampyari-dhurve-v-chairman-managing-director-and-others-2026mphc-jbp80399-compassionate-appointment-1623872
+
+[Source Link](https://t.me/verdictumlegalupdates/29638)
+
+---
+
+### 2026-10-12T15:02:43+00:00
+Family Members Not Liable U/S 495 IPC For Accused’s Concealment Of First Marriage Unless They Abetted Or Conspired: Patna High Court
+https://www.verdictum.in/patna-high-court/indrajeet-rai-and-others-v-state-of-bihar-and-another-second-marriage-concealment-1623862
+
+[Source Link](https://t.me/verdictumlegalupdates/29637)
+
+---
+
+### 2026-10-12T14:32:22+00:00
+Statewide SOP For Timely Response To Underage Pregnancies Notified: Karnataka High Court Disposes Of Petition By Minor Sexual Assault Survivor
+https://www.verdictum.in/karnataka-high-court/ms-x-v-state-of-karnataka-and-others-2026khc56135-sop-underage-pregnancies-1623861
+
+[Source Link](https://t.me/verdictumlegalupdates/29636)
+
+---
+
+### 2026-10-12T14:03:01+00:00
+RTI Act| Exemption Granted To Directorate Of Vigilance & Anti-Corruption Doesn’t Apply To Information Related To Allegations Of Corruption & Human Rights Violations: Madras High Court
+https://www.verdictum.in/madras-high-court/state-of-tamil-nadu-v-tamil-nadu-state-information-commission-sec244-rti-act-corruption-human-rights-violation-1623860
+
+[Source Link](https://t.me/verdictumlegalupdates/29635)
+
+---
+
+### 2026-10-12T13:32:20+00:00
+Suspending Email On Security Grounds Doesn’t Constitute Public Function: Delhi High Court Dismisses Petition Seeking Restoration of Gmail Account
+https://www.verdictum.in/delhi-high-court/janta-live-press-network-pvt-ltd-anr-v-google-llc-2026dhc8978-public-function-gmail-1623859
+
+[Source Link](https://t.me/verdictumlegalupdates/29634)
+
+---
+
+### 2026-10-12T13:03:19+00:00
+Divorce On Desertion Requires Abandoning Marital Duties For Two Years, Not Just Leaving Matrimonial Home: Jharkhand High Court
+https://www.verdictum.in/jharkhand-high-court/x-v-y-2026jhhc30306-db-desertion-divorce-cruelty-matrimonial-home-marital-obligation-1623858
+
+[Source Link](https://t.me/verdictumlegalupdates/29633)
+
+---
+
+### 2026-10-12T12:32:58+00:00
+Cruelty U/S 27(1)(d) Special Marriage Act Must Be Shown "Since" Solemnization Of Marriage, Unlike “After” Under Hindu Marriage Act: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/p-v-s-miscellaneous-first-appeal-no-2480-of-2022-fc-since-solemnization-of-marriage-special-marriage-act-1623857
+
+[Source Link](https://t.me/verdictumlegalupdates/29632)
+
+---
+
+### 2026-10-12T12:02:18+00:00
+Supreme Court Directs Delhi Police Commissioner To Ensure Probe Into Alleged Assault On Lawyers Outside BCI Office
+https://www.verdictum.in/supreme-court/delhi-police-commissioner-to-ensure-probe-into-alleged-assault-on-lawyers-outside-bci-office-1623856
+
+[Source Link](https://t.me/verdictumlegalupdates/29631)
+
+---
+
+### 2026-10-12T11:32:57+00:00
+Weekly Overview| Supreme Court Judgments: October 05– October 09, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-october-05-october-09-2026-1623854
+
+[Source Link](https://t.me/verdictumlegalupdates/29630)
+
+---
+
+### 2026-10-12T11:02:56+00:00
+No Adjudication On New Form 6 While Hearing Bihar SIR Matter: Supreme Court
+https://www.verdictum.in/supreme-court/no-adjudication-on-new-form-6-while-hearing-bihar-sir-matter-1623852
+
+[Source Link](https://t.me/verdictumlegalupdates/29629)
+
+---
+
+### 2026-10-12T10:32:35+00:00
+Convening Meeting Will Contravene Principle Of Separation Of Powers & Is Incompatible With Judicial Propriety: CJI's Letter To Rahul Gandhi
+https://www.verdictum.in/news/cji-surya-kant-declines-kharge-rahul-gandhi-request-1623853
+
+[Source Link](https://t.me/verdictumlegalupdates/29628)
+
+---
+
+### 2026-10-12T10:02:14+00:00
+Delhi Protests| Supreme Court Agrees To Hear Plea Challenging Section 172 BNSS & Blanket Prohibitory Orders
+https://www.verdictum.in/supreme-court/delhi-protest-challenging-prohibitory-orders-mass-detentions-section-172-bnss-section-163-1623851
+
+[Source Link](https://t.me/verdictumlegalupdates/29627)
+
+---
+
+### 2026-10-12T09:32:34+00:00
+Attempt To Rape Conviction Requires Overt Act Beyond Preparation Towards Penetration: Patna High Court Alters Conviction To Section 354 IPC
+https://www.verdictum.in/patna-high-court/md-ainul-haque-v-the-state-of-bihar-attempt-to-rape-preparation-penetration-1623850
+
+[Source Link](https://t.me/verdictumlegalupdates/29626)
+
+---
+
+### 2026-10-12T09:01:53+00:00
+Legislation Protecting Senior Citizens Can’t Be Reduced To Mere Monetary Arrangement When Residence And Security Are At Stake: Madras High Court
+https://www.verdictum.in/madras-high-court/mahalakshmi-v-moorthy-and-another-domestic-violence-right-to-residence-1623848
+
+[Source Link](https://t.me/verdictumlegalupdates/29625)
+
+---
+
+### 2026-10-12T08:32:52+00:00
+RTE Students Cannot Demand Automatic Transfer From One Private Unaided School To Another Upon Closure: Chhattisgarh High Court
+https://www.verdictum.in/chhattisgarh-high-court/atharv-gupta-and-others-v-union-of-india-and-others-2026cghc43126-rte-1623844
+
+[Source Link](https://t.me/verdictumlegalupdates/29624)
+
+---
+
+### 2026-10-12T08:05:12+00:00
+Supreme Court Directs No Coercive Action Against Punjab Govt Officials in CBI Corruption Probe, Refuses To Stay FIR
+https://www.verdictum.in/supreme-court/no-coercive-action-against-punjab-govt-officials-in-cbi-corruption-probe-1623843
+
+[Source Link](https://t.me/verdictumlegalupdates/29623)
+
+---
+
+### 2026-10-12T07:32:50+00:00
+Trust Cannot Be Equated Or Treated As A “Company” Or “Association Of Persons” U/S 34 Drugs & Cosmetics Act: Bombay High Court
+https://www.verdictum.in/bombay-high-court/a-p-hinduja-v-state-of-maharashtra-2026bhc-as41182-managing-trustee-drugs-and-cosmetics-act-1623840
+
+[Source Link](https://t.me/verdictumlegalupdates/29622)
+
+---
+
+### 2026-10-12T07:03:09+00:00
+Will Not Hurt Religious Sentiments But We'll Create Welcoming Preference: Apex Court Emphasizes Voluntary Awakening Over Coercive Bans On Firecrackers
+https://www.verdictum.in/supreme-court/emphasizes-voluntary-awakening-balancing-approach-coercive-bans-firecrackers-1623841
+
+[Source Link](https://t.me/verdictumlegalupdates/29621)
+
+---
+
+### 2026-10-12T06:32:49+00:00
+Norm Of Counting Seniority From Date Of Regularization Should Be Followed For Inter Se Seniority Unless Recruitment Rules Clearly Provides Another Methodology: Supreme Court
+https://www.verdictum.in/supreme-court/m-prema-v-the-state-of-tamil-nadu-2026-insc-1105-seniority-regularization-inter-se-seniority-1623835
+
+[Source Link](https://t.me/verdictumlegalupdates/29620)
 
 ---
 
@@ -9,158 +161,6 @@ Complete Failure Of Victim To Identify Accused Before Court: Supreme Court Acqui
 https://www.verdictum.in/supreme-court/charming-rupon-v-state-of-meghalaya-2026-insc-1102-complete-failure-of-victim-to-identify-accused-1623829
 
 [Source Link](https://t.me/verdictumlegalupdates/29619)
-
----
-
-### 2026-10-12T05:32:47+00:00
-Competent Authority Can’t Refuse Prosecution Sanction Contrary To CVC Advice; Must Refer Disagreement To DoPT: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/jay-pratap-singh-chauhan-v-cbi-through-superintendent-of-police-and-head-of-branch-lucknow-and-another-2026ahc-lko72445-1623826
-
-[Source Link](https://t.me/verdictumlegalupdates/29618)
-
----
-
-### 2026-10-12T05:03:27+00:00
-Litigants Should Approach Courts In Time; Should Not Blame A Previously Engaged Counsel Without Proper Verification: Sikkim High Court
-https://www.verdictum.in/sikkim-high-court/the-branch-manager-national-insurance-company-limited-v-yoel-subba-ia-no-01-of-2026-in-crp-no-05-of-2026-blaming-advocate-for-delay-1623825
-
-[Source Link](https://t.me/verdictumlegalupdates/29617)
-
----
-
-### 2026-10-12T04:33:15+00:00
-Preventive Detention Order, Relied-On Documents Must Be Supplied In Language Known To Detenue: Kerala High Court
-https://www.verdictum.in/kerala-high-court/ayishath-ruksana-v-state-of-kerala-and-others-2026ker77781-preventive-detention-1623796
-
-[Source Link](https://t.me/verdictumlegalupdates/29616)
-
----
-
-### 2026-10-11T15:02:22+00:00
-Manager (Legal) Vacancy At Gliders India Limited (GIL), Kanpur
-https://www.verdictum.in/job-updates/gliders-india-limited-1623760
-
-[Source Link](https://t.me/verdictumlegalupdates/29615)
-
----
-
-### 2026-10-11T13:02:41+00:00
-LOC Can’t Be Resorted To As Matter Of Routine Merely Because A Person Is Undergoing Trial: Delhi High Court
-https://www.verdictum.in/delhi-high-court/sirajuddin-qureshi-v-union-of-india-2026dhc8939-lookout-circular-1623759
-
-[Source Link](https://t.me/verdictumlegalupdates/29614)
-
----
-
-### 2026-10-11T11:32:40+00:00
-Inherent Duty To Give Adequate Warning To Public About Passing Of Train At Rail Crossing: Jharkhand High Court Orders ₹8 Lakh Compensation
-https://www.verdictum.in/jharkhand-high-court/smt-rita-devi-v-the-union-of-india-2026jhhc29897-duty-warning-public-railways-compensation-1623769
-
-[Source Link](https://t.me/verdictumlegalupdates/29613)
-
----
-
-### 2026-10-11T10:03:19+00:00
-Promise To Marry Made After Sexual Intercourse Does Not Attract Offence U/s. 69 BNS: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/2026khc55046-sri-mohammed-ayan-v-state-of-karnataka-69-bns-1623754
-
-[Source Link](https://t.me/verdictumlegalupdates/29612)
-
----
-
-### 2026-10-11T09:14:19+00:00
-Courts Are Agnostic To Who The Victim Is;: Supreme Court On Lawyers & Police Officers Alleging Brutality Against Them During Delhi Protests
-https://www.verdictum.in/supreme-court/courts-are-agnostic-to-who-victim-is-brutality-lawyers-police-delhi-protests-1623794
-
-[Source Link](https://t.me/verdictumlegalupdates/29611)
-
----
-
-### 2026-10-11T08:40:58+00:00
-"Lawyer's Job Is In Court, Not On Street": Lawyers' Group Intervenes To Tell Supreme Court In Plea Against Detention Of Advocates
-https://www.verdictum.in/supreme-court/senior-advocate-kirti-uppal-protest-by-advocates-police-action-delhi-1623793
-
-[Source Link](https://t.me/verdictumlegalupdates/29610)
-
----
-
-### 2026-10-11T07:18:17+00:00
-Breaking: Supreme Court Passes Interim Order For Normal Operations Of Delhi Metro, Barricade Review & Removal Of Prohibitory Notices Around Court Premises
-https://www.verdictum.in/supreme-court/directs-normal-operations-delhi-metro-barricade-review-removal-of-prohibitory-notice-boards-around-court-premises-1623790
-
-[Source Link](https://t.me/verdictumlegalupdates/29609)
-
----
-
-### 2026-10-11T06:02:56+00:00
-High Court Bench Expected To Sincerely Endeavour To Expedite Decision Once Priority Hearing Is Requested: Supreme Court
-https://www.verdictum.in/supreme-court/meerut-development-authority-v-parmeshwar-dayal-and-another-2026-insc-1106-1623758
-
-[Source Link](https://t.me/verdictumlegalupdates/29608)
-
----
-
-### 2026-10-11T04:33:15+00:00
-Ambiguity In Qualification Prescribed In Advertisement Should Be Construed To Benefit Of Candidate: Supreme Court
-https://www.verdictum.in/supreme-court/irfan-ahmad-hakak-v-ut-of-jammu-and-kashmir-2026-insc-1104-ambiguity-advertisement-1623757
-
-[Source Link](https://t.me/verdictumlegalupdates/29607)
-
----
-
-### 2026-10-10T14:32:48+00:00
-Senior & Junior Consultant Vacancy At Delhi Commission for Protection of Child Rights (DCPCR)
-https://www.verdictum.in/job-updates/delhi-commission-for-protection-of-child-rights-1623756
-
-[Source Link](https://t.me/verdictumlegalupdates/29606)
-
----
-
-### 2026-10-10T13:52:27+00:00
-Madras High Court Orders Peaceful Celebration Of Malai Meal Kumarara Festival, Takes Note Of ASI’s Withdrawal Of Ban On Cooking At Thiruparankundram Hill
-https://www.verdictum.in/madras-high-court/pandiarajan-v-the-district-collector-celebration-malai-meal-kumarara-festival-asi-1623768
-
-[Source Link](https://t.me/verdictumlegalupdates/29605)
-
----
-
-### 2026-10-10T13:12:26+00:00
-Allahabad High Court Issues Statewide Directions To Judicial Officers For Procedural Compliance With Sections 173, 175 BNSS
-https://www.verdictum.in/allahabad-high-court/rakesh-kumar-yadav-v-state-of-up-and-2-others-2026ahc211987-section-173-bnss-1623753
-
-[Source Link](https://t.me/verdictumlegalupdates/29604)
-
----
-
-### 2026-10-10T12:33:05+00:00
-Widow’s Limited Estate Right Is Transformed Into Absolute Right As Per Section 14(1) Hindu Succession Act: Supreme Court
-https://www.verdictum.in/supreme-court/sultan-singh-dead-through-lrs-and-others-v-the-financial-commissioner-2026-insc-1107-widow-estate-1623752
-
-[Source Link](https://t.me/verdictumlegalupdates/29603)
-
----
-
-### 2026-10-10T11:52:48+00:00
-Accused Not To Be Declared Absconders Without Cogent Grounds: Delhi High Court Issues Directions To Trial Courts
-https://www.verdictum.in/delhi-high-court/tajinder-mohan-singh-v-the-state-government-of-nct-of-delhi-2026dhc8954-1623751
-
-[Source Link](https://t.me/verdictumlegalupdates/29602)
-
----
-
-### 2026-10-10T11:12:44+00:00
-Kerala High Court Appoints Sister As Guardian For 93-Year-Old Woman With Severe Dementia & Alzheimer's
-https://www.verdictum.in/kerala-high-court/2026ker74368-smt-annamma-p-s-karia-v-state-of-kerala-1623746
-
-[Source Link](https://t.me/verdictumlegalupdates/29601)
-
----
-
-### 2026-10-10T10:32:23+00:00
-Supreme Court Constitutes Standing Committee On Judicial Well-Being
-https://www.verdictum.in/supreme-court/standing-committee-on-judicial-well-being-1623747
-
-[Source Link](https://t.me/verdictumlegalupdates/29600)
 
 ---
 
