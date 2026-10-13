@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-12T15:42:24+00:00*
+*Last Updated: 2026-10-12T16:03:05+00:00*
+
+---
+
+### 2026-10-12T16:03:05+00:00
+Legal Consultant Vacancy At Food Safety and Standards Authority of India (FSSAI)
+https://www.verdictum.in/job-updates/food-safety-and-standards-authority-of-india-1623863
+
+[Source Link](https://t.me/verdictumlegalupdates/29639)
 
 ---
 
@@ -153,14 +161,6 @@ Norm Of Counting Seniority From Date Of Regularization Should Be Followed For In
 https://www.verdictum.in/supreme-court/m-prema-v-the-state-of-tamil-nadu-2026-insc-1105-seniority-regularization-inter-se-seniority-1623835
 
 [Source Link](https://t.me/verdictumlegalupdates/29620)
-
----
-
-### 2026-10-12T06:02:28+00:00
-Complete Failure Of Victim To Identify Accused Before Court: Supreme Court Acquits POCSO Accused
-https://www.verdictum.in/supreme-court/charming-rupon-v-state-of-meghalaya-2026-insc-1102-complete-failure-of-victim-to-identify-accused-1623829
-
-[Source Link](https://t.me/verdictumlegalupdates/29619)
 
 ---
 
