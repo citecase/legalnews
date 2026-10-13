@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-13T10:29:57+00:00*
+*Last Updated: 2026-10-13T13:56:48+00:00*
 
 ---
 
-### 2026-10-13T10:29:57+00:00
-2026 LiveLaw (SC) 1045 | Hemant D. Shah HUF & Anr. Versus Chittaranjan D. Shah HUF & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1045-hemant-d-shah-huf-anr-versus-chittaranjan-d-shah-huf-ors-554462
+### 2026-10-13T13:56:48+00:00
+LiveLaw Daily| India BLOC in SC| CEC legal immunity| Ramleela| Reservation Cap & more
+https://www.livelaw.in/podcast/ken-betwa-nobel-peace-prize-brij-bhushan-singh-delhi-protests-jantar-mantar-cjp-news-india-554499
 
-[Read on Telegram](https://t.me/livelawindia/122298)
-
----
-### 2026-10-13T10:32:17+00:00
-CEC Protests: Delhi High Court Adjourns PIL Against Closure Of 57 Metro Stations; Seeks Details Of Cases Pending Before SC
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-pil-against-closure-of-57-metro-stations-554460
-
-[Read on Telegram](https://t.me/livelawindia/122299)
+[Read on Telegram](https://t.me/livelawindia/122318)
 
 ---
-### 2026-10-13T10:38:07+00:00
-'Won't Permit This': Bombay High Court On Alleged Illegal Detentions During Mumbai CEC Protests
-https://www.livelaw.in/high-court/bombay-high-court/wont-permit-this-bombay-high-court-on-alleged-illegal-detentions-during-mumbai-cec-protests-554463
+### 2026-10-13T14:06:48+00:00
+Democracy Poisoned At The Source If Integrity Of Election Commission Cannot Be Trusted: Justice Kurian Joseph
+https://www.livelaw.in/top-stories/democracy-poisoned-at-the-source-if-integrity-of-election-commission-cannot-be-trusted-justice-kurian-joseph-554501
 
-[Read on Telegram](https://t.me/livelawindia/122300)
-
----
-### 2026-10-13T10:42:27+00:00
-Delhi High Court Seeks Centre's Stand On PILs To Implement SC Directions To Prevent Protests From Disrupting Traffic, Businesses
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-seeks-centres-stand-on-pils-to-implement-sc-directions-to-prevent-protests-from-disrupting-traffic-businesses-554464
-
-[Read on Telegram](https://t.me/livelawindia/122301)
+[Read on Telegram](https://t.me/livelawindia/122319)
 
 ---
-### 2026-10-13T10:54:28+00:00
-Senior Legal Associate Vacancy At Kang And Associates [Apply Now]
-https://www.livelaw.in/job-updates/senior-legal-associate-vacancy-at-kang-and-associates-554467
+### 2026-10-13T14:12:48+00:00
+Party Cannot Be Forced To Remain In Suit Where No Cause Of Action Or Relief Is Pleaded Against Them: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/parties-lacking-pleaded-cause-of-action-relief-or-necessary-presence-may-be-struck-out-under-order-i-rule-102-cpc-jk-high-court-554344
 
-[Read on Telegram](https://t.me/livelawindia/122302)
-
----
-### 2026-10-13T10:55:48+00:00
-Karnataka SIR: High Court Stays Investigation Against BJP Leader Over Alleged Attempt To Delete Muslim Voters' Names
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-stays-investigation-bjp-ravi-patil-muslim-voter-deletion-fir-554468
-
-[Read on Telegram](https://t.me/livelawindia/122303)
+[Read on Telegram](https://t.me/livelawindia/122320)
 
 ---
-### 2026-10-13T11:04:08+00:00
-DHJS 2026: Delhi High Court Rejects Challenge To Questions, Says Error Must Be 'Glaring And Apparent'
-https://www.livelaw.in/high-court/delhi-high-court/dhjs-2026-delhi-high-court-rejects-challenge-to-questions-says-error-must-be-glaring-and-apparent-554472
+### 2026-10-13T14:19:09+00:00
+Freedom Of Religion Does Not Entitle Christian Community To Specific Plot For Housing Cemetery: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-religious-freedom-christian-cemetery-land-554505
 
-[Read on Telegram](https://t.me/livelawindia/122304)
-
----
-### 2026-10-13T11:08:08+00:00
-CEC Protest: MP High Court Disposes Habeas Corpus Pleas After Police Return Detainees To Families
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-disposes-of-petitions-of-people-detained-during-train-journey-to-delhi-for-cjp-protest-554471
-
-[Read on Telegram](https://t.me/livelawindia/122305)
+[Read on Telegram](https://t.me/livelawindia/122321)
 
 ---
-### 2026-10-13T11:13:08+00:00
-Ken-Betwa Project: MP High Court Seeks Centre, State Replies On PIL Raising Wildlife, Environmental Concerns
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-grants-time-to-union-and-state-in-plea-concerning-environmental-impact-of-ken-betwa-link-project-554473
+### 2026-10-13T14:55:59+00:00
+Asking Daughter-In-Law To Do Household Chores Like Washing Clothes, Utensils Is Not Cruelty U/S 498A IPC: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/asking-daughter-in-law-to-do-household-chores-like-washing-clothes-utensils-is-not-cruelty-us-498a-ipc-bombay-high-court-554511
 
-[Read on Telegram](https://t.me/livelawindia/122306)
-
----
-### 2026-10-13T11:15:28+00:00
-Punjab CM Beant Singh Assassination | Supreme Court Seeks Intelligence Bureau Inputs On Convict's Prison Transfer Plea
-https://www.livelaw.in/top-stories/punjab-cm-beant-singh-assassination-supreme-court-seeks-intelligence-bureau-inputs-on-convicts-prison-transfer-plea-554475
-
-[Read on Telegram](https://t.me/livelawindia/122307)
+[Read on Telegram](https://t.me/livelawindia/122322)
 
 ---
-### 2026-10-13T11:28:18+00:00
-Why Set A Private Trap Instead Of Seeking Police Help? Gujarat High Court Quashes Outraging Modesty FIR
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-fir-outraging-womans-modesty-staged-confrontation-bait-554476
+### 2026-10-13T15:07:59+00:00
+Income Tax | Fresh Claim Cannot Be Raised Before Revisional Authority Without Timely Revised Return : Supreme Court
+https://www.livelaw.in/supreme-court/income-tax-fresh-claim-cannot-be-raised-before-revisional-authority-without-timely-revised-return-supreme-court-554514
 
-[Read on Telegram](https://t.me/livelawindia/122308)
-
----
-### 2026-10-13T11:34:18+00:00
-Karnataka High Court Seeks State's Response To Plea Challenging 'Er.' Prefix For Engineers
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-seek-state-reply-advocate-plea-govt-order-permitting-engineers-prefix-er-554477
-
-[Read on Telegram](https://t.me/livelawindia/122309)
+[Read on Telegram](https://t.me/livelawindia/122323)
 
 ---
-### 2026-10-13T11:57:58+00:00
-POCSO Act Requires Only Greater Punishment Where Same Offence Attracts POCSO & IPC Charges: Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-sets-aside-pocso-sentence-orders-release-after-13years-554339
+### 2026-10-13T15:08:59+00:00
+2026 LiveLaw (SC) 1046 | ORISSA RURAL HOUSING DEVELOPMENT CORPORATION LTD. VERSUS THE ASST. COMMISSIONER OF INCOME TAX & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1046-orissa-rural-housing-development-corporation-ltd-versus-the-asst-commissioner-of-income-tax-ors-554515
 
-[Read on Telegram](https://t.me/livelawindia/122310)
-
----
-### 2026-10-13T12:39:48+00:00
-Delhi High Court Issues Notice On Indian Youth Congress Plea To Reconsider Request To Protest Against CEC Gyanesh Kumar
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-issues-notice-on-indian-youth-congress-plea-to-reconsider-request-to-hold-protest-at-jantar-mantar-554490
-
-[Read on Telegram](https://t.me/livelawindia/122311)
+[Read on Telegram](https://t.me/livelawindia/122324)
 
 ---
-### 2026-10-13T12:40:48+00:00
-Centre Notifies Appointment Of Two Judicial Officers As Additional Judges Of Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-two-judicial-officers-appointed-additional-judge-554491
+### 2026-10-13T15:16:39+00:00
+'Oudh Bar Must Lead By Example In Democratic Conduct': Allahabad High Court Calls For Free, Fair & Peaceful Bar Elections
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-oudh-bar-association-elections-554516
 
-[Read on Telegram](https://t.me/livelawindia/122312)
-
----
-### 2026-10-13T12:53:08+00:00
-Madras High Court Seeks Magistrate's Report On Delay In Numbering Complaint Alleging 'Corrupt Practices' By Udhayanidhi Stalin
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-udhayanidhi-stalin-magistrate-report-numbering-complaint-554493
-
-[Read on Telegram](https://t.me/livelawindia/122313)
+[Read on Telegram](https://t.me/livelawindia/122325)
 
 ---
-### 2026-10-13T13:02:18+00:00
-Bengaluru Court Restrains 42 Media Houses From Broadcasting 'Honey Trap' Videos Concerning Ex-CM Siddaramaiah, Cites Right To Privacy
-https://www.livelaw.in/news-updates/former-cm-siddaramaiah-files-defamation-suit-42media-houses-honey-trap-video-554495
+### 2026-10-13T15:17:19+00:00
+Juvenile's Bail Cannot Be Rejected With Mere Liberty To Renew Plea After 6 Months Without Change In Circumstances: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-disapproves-court-giving-liberty-juvenile-renew-bail-application-554340
 
-[Read on Telegram](https://t.me/livelawindia/122314)
-
----
-### 2026-10-13T13:33:58+00:00
-Tripura High Court Refuses To Quash FIR Against Former CM Manik Sarkar Over Allegedly Provocative Speech
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-refuses-quash-fir-manik-sarkar-provocative-speech-554497
-
-[Read on Telegram](https://t.me/livelawindia/122315)
+[Read on Telegram](https://t.me/livelawindia/122326)
 
 ---
-### 2026-10-13T13:35:18+00:00
-Jiostar Moves Kerala Court Challenging Order Halting Anali Series Allegedly Inspired By Koodathayi Murders
-https://www.livelaw.in/news-updates/kerala-court-jiostar-anali-koodathayi-murders-554498
+### 2026-10-13T15:35:09+00:00
+LiveLaw Delhi High Court Weekly Round-Up: October 05 To October 10, 2026
+https://www.livelaw.in/high-court/delhi-high-court/livelaw-delhi-high-court-weekly-round-up-october-05-to-october-10-2026-554517
 
-[Read on Telegram](https://t.me/livelawindia/122316)
+[Read on Telegram](https://t.me/livelawindia/122327)
 
 ---
-### 2026-10-13T13:47:30+00:00
-Patna High Court Directs Payment For Work Done Beyond Contract Period Despite No Extension Order, Notes Dept Was Benefited By Work
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-directs-payment-work-done-contract-period-extension-order-554342
+### 2026-10-13T15:39:49+00:00
+Father-In-Law Has 'Pious Obligation' To Maintain Widowed Daughter-In-Law If She Can't Maintain Herself: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/father-in-law-has-pious-obligation-to-maintain-widowed-daughter-in-law-if-she-cant-maintain-herself-delhi-high-court-554518
 
-[Read on Telegram](https://t.me/livelawindia/122317)
+[Read on Telegram](https://t.me/livelawindia/122328)
+
+---
+### 2026-10-13T15:40:00+00:00
+Himachal Pradesh High Court Monthly Digest : September 2026
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-monthly-digest-september2026-554346
+
+[Read on Telegram](https://t.me/livelawindia/122329)
+
+---
+### 2026-10-13T15:46:09+00:00
+July Student Protests: Complaints Portal Ready For Launch, High-Powered Enquiry Committee Tells Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-jantar-mantar-protest-high-powered-enquiry-committee-status-report-complaints-portal-ready-for-launch-mha-to-provide-infrastructure-554520
+
+[Read on Telegram](https://t.me/livelawindia/122330)
+
+---
+### 2026-10-13T16:06:29+00:00
+'Watchdog Must Bite If Barking Doesn't Work': Justice Kurian Joseph On Supreme Court's Role As Guardian Of Constitution
+https://www.livelaw.in/top-stories/watchdog-must-bite-if-barking-doesnt-work-justice-kurian-joseph-on-supreme-courts-role-as-guardian-of-constitution-554521
+
+[Read on Telegram](https://t.me/livelawindia/122331)
+
+---
+### 2026-10-13T16:08:39+00:00
+Kerala High Court Designates Longest-Serving Lawyer And Guinness World Record Holder P.B. Menon As Senior Advocate
+https://www.livelaw.in/news-updates/kerala-high-court-pb-menon-senior-advocate-554522
+
+[Read on Telegram](https://t.me/livelawindia/122332)
+
+---
+### 2026-10-13T16:44:40+00:00
+Give Insurance Cover To Tickets Sold Over Counter Like Online Tickets : Supreme Court Directs Railways
+https://www.livelaw.in/top-stories/give-insurance-cover-to-tickets-sold-over-counter-like-online-tickets-supreme-court-directs-railways-554524
+
+[Read on Telegram](https://t.me/livelawindia/122333)
+
+---
+### 2026-10-13T16:49:40+00:00
+Kerala Union Of Working Journalists Move Supreme Court Alleging Police Violence During Delhi Protests
+https://www.livelaw.in/top-stories/kerala-union-of-working-journalists-move-supreme-court-alleging-police-violence-during-delhi-protests-554525
+
+[Read on Telegram](https://t.me/livelawindia/122334)
+
+---
+### 2026-10-13T17:32:30+00:00
+LiveLaw High Courts Daily Highlights: October 13, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-13-2026-554508
+
+[Read on Telegram](https://t.me/livelawindia/122335)
+
+---
+### 2026-10-13T17:41:50+00:00
+Delhi SIR : Plea In Supreme Court Challenges ECI Directive That Deleted Voters Must File Form 6 For Electoral Roll Registration
+https://www.livelaw.in/top-stories/delhi-sir-plea-in-supreme-court-challenges-eci-directive-that-deleted-voters-must-file-form-6-for-electoral-roll-registration-554528
+
+[Read on Telegram](https://t.me/livelawindia/122336)
+
+---
+### 2026-10-13T17:44:20+00:00
+2026 LiveLaw (SC) 1047 | UNION OF INDIA V RADHA YADAV
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1047-union-of-india-v-radha-yadav-554529
+
+[Read on Telegram](https://t.me/livelawindia/122337)
 
 ---
