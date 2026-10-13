@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-12T12:16:27+00:00*
+*Last Updated: 2026-10-12T13:31:27+00:00*
 
 ---
 
-### 2026-10-12T12:16:27+00:00
-National Herald: Delhi High Court Declines To Restrain AJL From Seeking Release Of Attached Properties
-https://www.livelaw.in/high-court/delhi-high-court/national-herald-delhi-high-court-declines-to-restrain-ajl-from-seeking-release-of-attached-properties-554298
-
-[Read on Telegram](https://t.me/livelawindia/122205)
-
----
-### 2026-10-12T12:29:47+00:00
-Census 2027 : Supreme Court Seeks Centre's Response On Plea Raising Concerns Over Self-Declaration Of Caste Status
-https://www.livelaw.in/top-stories/supreme-court-asks-union-to-file-standing-operating-procedure-on-data-collection-under-2027-census-plea-against-self-disclosure-without-verification-554299
-
-[Read on Telegram](https://t.me/livelawindia/122206)
-
----
-### 2026-10-12T12:43:17+00:00
-Supreme Court Issues Notice On PIL Seeking Proper Maintenance Of Accessible Airport Infrastructure
-https://www.livelaw.in/top-stories/supreme-court-persons-with-disabilities-maintenance-of-airport-infrastructure-civil-aviation-braille-signage-right-to-accessibility-554303
-
-[Read on Telegram](https://t.me/livelawindia/122207)
-
----
-### 2026-10-12T12:48:57+00:00
-Past Ad Hoc Service Can Count For Pension, Not For Seniority Claim Over Direct Recruits: Supreme Court
-https://www.livelaw.in/supreme-court/past-ad-hoc-service-can-count-for-pension-not-for-seniority-claim-over-direct-recruits-supreme-court-554306
-
-[Read on Telegram](https://t.me/livelawindia/122208)
-
----
-### 2026-10-12T12:50:17+00:00
-2026 LiveLaw (SC) 1040 |  H. NAGARAJAN & ORS. Vs. STATE OF T.N. & ORS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1040-h-nagarajan-ors-vs-state-of-tn-ors-554307
-
-[Read on Telegram](https://t.me/livelawindia/122209)
-
----
-### 2026-10-12T13:03:17+00:00
-J&K&L High Court Makes AIBE Mandatory For Advocates Enrolled From 2009-10; COP Must Be Submitted Within One Month
-https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-makes-aibe-mandatory-for-advocates-enrolled-from-academic-year-2009-10-cop-must-be-submitted-within-one-month-554180
-
-[Read on Telegram](https://t.me/livelawindia/122210)
-
----
-### 2026-10-12T13:06:57+00:00
-TVK MLA Saravanan Approaches Madras High Court Seeking To Quash FIR Over 'Unauthorised' Hoardings
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-mla-saravanan-unauthorised-hoardings-fir-quash-plea-554309
-
-[Read on Telegram](https://t.me/livelawindia/122211)
-
----
-### 2026-10-12T13:13:37+00:00
-After Supreme Court Push, Centre To Cap Cancer Drug Margins At 30%
-https://www.livelaw.in/top-stories/after-supreme-court-push-centre-to-cap-cancer-drug-margins-at-30-554311
-
-[Read on Telegram](https://t.me/livelawindia/122212)
-
----
-### 2026-10-12T13:17:17+00:00
-Kerala High Court Admits State's Appeal Against Order Quashing Reorganisation Of Police Associations
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-appeals-single-judge-decision-quashing-government-order-restructuring-police-association-554310
-
-[Read on Telegram](https://t.me/livelawindia/122213)
-
----
 ### 2026-10-12T13:31:27+00:00
 Police Failure To Furnish Written Grounds Of Arrest Is Dereliction Of Duty, Officer Liable To Departmental Action: Madras High Court
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-no-written-grounds-of-arrest-dereliction-of-duty-554315
@@ -142,5 +79,68 @@ CNLU Patna Announces National Article Writing Competition 2026 On Competition La
 https://www.livelaw.in/lawschool/competitions/cnlu-patna-announces-national-article-writing-competition-2026-competition-law-554333
 
 [Read on Telegram](https://t.me/livelawindia/122224)
+
+---
+### 2026-10-12T15:08:48+00:00
+LiveLaw Allahabad High Court Weekly Round-Up: October 5 - October 11, 2026
+https://www.livelaw.in/round-ups/weekly/livelaw-allahabad-high-court-weekly-round-up-october-5-october-11-2026-554335
+
+[Read on Telegram](https://t.me/livelawindia/122225)
+
+---
+### 2026-10-12T15:30:08+00:00
+Jharkhand High Court Issues Contempt Notice Over Delay In Installing CCTV Cameras In Police Stations
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-issues-contempt-notice-additional-chief-secretary-delay-installing-cctv-cameras-police-stations-554338
+
+[Read on Telegram](https://t.me/livelawindia/122226)
+
+---
+### 2026-10-12T15:41:08+00:00
+CPC | Order Rejecting Application Under Order 9 Rule 9 CPC Appealable Under Order 43: J&K High Court
+https://www.livelaw.in/high-court/jammu-kashmir/cpc-order-rejecting-application-under-order-ix-rule-9-cpc-appealable-under-order-xliii-jk-high-court-554096
+
+[Read on Telegram](https://t.me/livelawindia/122227)
+
+---
+### 2026-10-12T15:48:18+00:00
+Calcutta High Court Seeks SEC Report On EVM, VVPAT Shortage Ahead Of Municipal Polls
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-seeks-sec-report-on-evm-vvpat-shortage-ahead-of-municipal-polls-554347
+
+[Read on Telegram](https://t.me/livelawindia/122228)
+
+---
+### 2026-10-12T16:15:18+00:00
+Saffronization Increasing In High Courts : Justice K Chandru
+https://www.livelaw.in/top-stories/justice-k-chandru-supreme-court-judges-appointed-by-modi-saffronisation-in-high-court-554348
+
+[Read on Telegram](https://t.me/livelawindia/122229)
+
+---
+### 2026-10-12T16:22:38+00:00
+Plea Filed In Supreme Court Against Detention, Assault Of Journalists Covering Delhi Protests
+https://www.livelaw.in/top-stories/plea-filed-in-supreme-court-against-detention-assault-of-journalists-covering-delhi-protests-554349
+
+[Read on Telegram](https://t.me/livelawindia/122230)
+
+---
+### 2026-10-12T16:26:38+00:00
+Arbitration | Governing Law Clause Relevant For Seat Determination Where Agreement Mentions Two Venues : Supreme Court
+https://www.livelaw.in/supreme-court/arbitration-governing-law-clause-relevant-for-seat-determination-where-agreement-mentions-two-venues-supreme-court-554350
+
+[Read on Telegram](https://t.me/livelawindia/122231)
+
+---
+### 2026-10-12T16:27:18+00:00
+2026 LiveLaw (SC) 1042 | ARCIS CLEAN ENERGY PVT. LTD VS. PARSHVA INNOVATION
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1042-arcis-clean-energy-pvt-ltd-vs-parshva-innovation-554351
+
+[Read on Telegram](https://t.me/livelawindia/122232)
+
+---
+### 2026-10-12T17:27:38+00:00
+Supreme Court Daily Round-Up : October 12, 2026
+https://www.livelaw.in/round-ups/supreme-court-daily-round-up-october-12-2026-554352
+
+[Read on Telegram](https://t.me/livelawindia/122233)
 
 ---
