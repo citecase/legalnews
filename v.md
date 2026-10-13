@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-13T14:02:22+00:00*
+*Last Updated: 2026-10-13T16:02:26+00:00*
+
+---
+
+### 2026-10-13T16:02:26+00:00
+Consultant (Legal) Vacancy At National Pharmaceutical Pricing Authority (NPPA)
+https://www.verdictum.in/job-updates/national-pharmaceutical-pricing-authority-1623900
+
+[Source Link](https://t.me/verdictumlegalupdates/29663)
+
+---
+
+### 2026-10-13T15:32:24+00:00
+Section 4 Of Probation of Offenders Act Can't Be Invoked When Accused Is First Offender: Supreme Court
+https://www.verdictum.in/supreme-court/umesh-chand-v-state-of-up-ors-2026-insc-1114-sec4-probation-of-offenders-act-accused-surrender-1623908
+
+[Source Link](https://t.me/verdictumlegalupdates/29662)
+
+---
+
+### 2026-10-13T15:03:04+00:00
+Mere Non-Availability Of Accused At His Address Not Sufficient To Proceed Against Him As Absconder Unless Deliberate Concealment To Avoid Arrest Is Established: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/sandeepkumar-radhakrushnalal-shrivastav-v-state-of-gujarat-2026gujhc64164-non-availability-of-accused-at-his-address-not-sufficient-1623907
+
+[Source Link](https://t.me/verdictumlegalupdates/29661)
+
+---
+
+### 2026-10-13T14:32:43+00:00
+Misbehaving With Law Officers Communicating Court Orders Amounts To Contempt: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/2026-ahc-213930-sachin-yadav-v-state-of-up-1623911
+
+[Source Link](https://t.me/verdictumlegalupdates/29660)
 
 ---
 
@@ -129,38 +161,6 @@ Supreme Court Stays Defamation Trial Against Rahul Gandhi Over "Commander-in-Thi
 https://www.verdictum.in/supreme-court/stays-defamation-trial-rahul-gandhi-over-commander-in-thief-against-pm-narender-modi-1623884
 
 [Source Link](https://t.me/verdictumlegalupdates/29644)
-
----
-
-### 2026-10-13T06:02:48+00:00
-Married Daughter Has Right To Claim Share In Joint Property Granted To Predecessors Under Karnataka Land Reforms Act: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/smt-jayavva-v-smt-girijavva-2026khc-d15990-karnataka-land-reforms-act-married-daughter-property-1623883
-
-[Source Link](https://t.me/verdictumlegalupdates/29643)
-
----
-
-### 2026-10-13T05:32:07+00:00
-Proposed Accused Has No Locus Standi At Pre-Cognizance Stage To Challenge Order Passed By Special Court Under SC/ST Act: Madras High Court
-https://www.verdictum.in/madras-high-court/ckanmani-v-the-state-of-tamil-nadu-proposed-accused-locus-standi-scst-act-1623881
-
-[Source Link](https://t.me/verdictumlegalupdates/29642)
-
----
-
-### 2026-10-13T05:02:46+00:00
-Homebuyer Can’t Be Prosecuted For Builder’s Acts Contrary To Agreement Merely Because Loan Remains Outstanding: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/pritesh-bari-v-state-of-karnataka-and-another-2026khc53492-housing-loan-recovery-1623880
-
-[Source Link](https://t.me/verdictumlegalupdates/29641)
-
----
-
-### 2026-10-13T04:32:16+00:00
-Venue Won’t Automatically Be Seat Of Arbitration; It Must Be Ascertained By Reading Agreement In Its Entirety: Supreme Court
-https://www.verdictum.in/supreme-court/arcis-clean-energy-pvt-ltd-v-parshva-innovation-2026-insc-1109-venue-arbitral-proceeding-seat-1623876
-
-[Source Link](https://t.me/verdictumlegalupdates/29640)
 
 ---
 
