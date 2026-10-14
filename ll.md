@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-13T13:56:48+00:00*
+*Last Updated: 2026-10-13T15:17:19+00:00*
 
 ---
 
-### 2026-10-13T13:56:48+00:00
-LiveLaw Daily| India BLOC in SC| CEC legal immunity| Ramleela| Reservation Cap & more
-https://www.livelaw.in/podcast/ken-betwa-nobel-peace-prize-brij-bhushan-singh-delhi-protests-jantar-mantar-cjp-news-india-554499
-
-[Read on Telegram](https://t.me/livelawindia/122318)
-
----
-### 2026-10-13T14:06:48+00:00
-Democracy Poisoned At The Source If Integrity Of Election Commission Cannot Be Trusted: Justice Kurian Joseph
-https://www.livelaw.in/top-stories/democracy-poisoned-at-the-source-if-integrity-of-election-commission-cannot-be-trusted-justice-kurian-joseph-554501
-
-[Read on Telegram](https://t.me/livelawindia/122319)
-
----
-### 2026-10-13T14:12:48+00:00
-Party Cannot Be Forced To Remain In Suit Where No Cause Of Action Or Relief Is Pleaded Against Them: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/parties-lacking-pleaded-cause-of-action-relief-or-necessary-presence-may-be-struck-out-under-order-i-rule-102-cpc-jk-high-court-554344
-
-[Read on Telegram](https://t.me/livelawindia/122320)
-
----
-### 2026-10-13T14:19:09+00:00
-Freedom Of Religion Does Not Entitle Christian Community To Specific Plot For Housing Cemetery: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-religious-freedom-christian-cemetery-land-554505
-
-[Read on Telegram](https://t.me/livelawindia/122321)
-
----
-### 2026-10-13T14:55:59+00:00
-Asking Daughter-In-Law To Do Household Chores Like Washing Clothes, Utensils Is Not Cruelty U/S 498A IPC: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/asking-daughter-in-law-to-do-household-chores-like-washing-clothes-utensils-is-not-cruelty-us-498a-ipc-bombay-high-court-554511
-
-[Read on Telegram](https://t.me/livelawindia/122322)
-
----
-### 2026-10-13T15:07:59+00:00
-Income Tax | Fresh Claim Cannot Be Raised Before Revisional Authority Without Timely Revised Return : Supreme Court
-https://www.livelaw.in/supreme-court/income-tax-fresh-claim-cannot-be-raised-before-revisional-authority-without-timely-revised-return-supreme-court-554514
-
-[Read on Telegram](https://t.me/livelawindia/122323)
-
----
-### 2026-10-13T15:08:59+00:00
-2026 LiveLaw (SC) 1046 | ORISSA RURAL HOUSING DEVELOPMENT CORPORATION LTD. VERSUS THE ASST. COMMISSIONER OF INCOME TAX & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1046-orissa-rural-housing-development-corporation-ltd-versus-the-asst-commissioner-of-income-tax-ors-554515
-
-[Read on Telegram](https://t.me/livelawindia/122324)
-
----
-### 2026-10-13T15:16:39+00:00
-'Oudh Bar Must Lead By Example In Democratic Conduct': Allahabad High Court Calls For Free, Fair & Peaceful Bar Elections
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-oudh-bar-association-elections-554516
-
-[Read on Telegram](https://t.me/livelawindia/122325)
-
----
 ### 2026-10-13T15:17:19+00:00
 Juvenile's Bail Cannot Be Rejected With Mere Liberty To Renew Plea After 6 Months Without Change In Circumstances: Patna High Court
 https://www.livelaw.in/high-court/patna-high-court/patna-high-court-disapproves-court-giving-liberty-juvenile-renew-bail-application-554340
@@ -142,5 +86,61 @@ https://www.livelaw.in/top-stories/delhi-sir-plea-in-supreme-court-challenges-ec
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1047-union-of-india-v-radha-yadav-554529
 
 [Read on Telegram](https://t.me/livelawindia/122337)
+
+---
+### 2026-10-14T03:10:03+00:00
+Legal Consultant (Maritime Law) Vacancy At NALSAR University Of Law, Hyderabad
+https://www.livelaw.in/job-updates/legal-consultant-maritime-law-vacancy-at-nalsar-university-of-law-hyderabad-554530
+
+[Read on Telegram](https://t.me/livelawindia/122338)
+
+---
+### 2026-10-14T03:21:24+00:00
+Delhi Consumer Commission Directs United India Insurance To Pay ₹38,000 For Stolen Motorcycle Despite 59-Day Delay
+https://www.livelaw.in/consumer-cases/delhi-consumer-commission-directs-united-india-insurance-to-pay-38000-for-stolen-motorcycle-despite-59-day-delay-554531
+
+[Read on Telegram](https://t.me/livelawindia/122339)
+
+---
+### 2026-10-14T03:32:14+00:00
+Delhi Court Remands CJP Leaders Saurav Das, Ashutosh Ranka To Five Days Judicial Custody For 'Trespassing' At Jantar Mantar
+https://www.livelaw.in/news-updates/delhi-court-remands-cjp-leaders-saurav-das-ashutosh-ranka-to-five-days-judicial-custody-for-trespassing-at-jantar-mantar-554532
+
+[Read on Telegram](https://t.me/livelawindia/122340)
+
+---
+### 2026-10-14T03:32:34+00:00
+Demolition Order Can't Be Based On 'Visual Inspection' Alone Without Structural Audit: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/demolition-order-cant-be-based-on-visual-inspection-alone-without-structural-audit-delhi-high-court-554519
+
+[Read on Telegram](https://t.me/livelawindia/122341)
+
+---
+### 2026-10-14T03:47:54+00:00
+Gujarat High Court Grants Bail To Man Accused Of Attempting To Break Open ATM Machine
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-grants-bail-to-man-accused-of-breaking-open-atm-machine-554492
+
+[Read on Telegram](https://t.me/livelawindia/122342)
+
+---
+### 2026-10-14T03:51:54+00:00
+Allahabad High Court Declines Mother's Plea Seeking CBI Probe Into Bhojpuri Actress Akanksha Dubey's Death
+https://www.livelaw.in/high-court/allahabad-high-court/akanksha-dubey-death-allahabad-high-court-cbi-probe-plea-554535
+
+[Read on Telegram](https://t.me/livelawindia/122343)
+
+---
+### 2026-10-14T04:02:34+00:00
+Delhi High Court Directs Authorities To Inform Industrialist Anil Ambani's Son About Subsisting Look Out Circular
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-authorities-to-inform-industrialist-anil-ambanis-son-about-subsisting-look-out-circular-554526
+
+[Read on Telegram](https://t.me/livelawindia/122344)
+
+---
+### 2026-10-14T04:17:14+00:00
+LiveLaw Rajasthan High Court Weekly Round-Up: October 5 - October 11, 2026
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-weekly-roundup-554527
+
+[Read on Telegram](https://t.me/livelawindia/122345)
 
 ---
