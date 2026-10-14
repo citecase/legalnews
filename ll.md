@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-14T12:38:06+00:00*
+*Last Updated: 2026-10-14T12:40:46+00:00*
 
 ---
 
-### 2026-10-14T12:38:06+00:00
-Departmental Proceedings After Retirement Barred For Misconduct Beyond 4-Year Limit Under Bihar Pension Rules: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-interprets-bihar-pension-rules-departmental-proceedings-retirement-barred-misconduct-554560
-
-[Read on Telegram](https://t.me/livelawindia/122412)
-
----
 ### 2026-10-14T12:40:46+00:00
 Census 2027: P&H High Court Stays Communications Seeking Details Of Private School Teachers For Census Duty
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/census-2027-haryana-move-private-school-teachers-census-duty-stayed-554661
@@ -142,5 +135,12 @@ Supreme Court Asks MEA To Issue Public Notice Inviting Compensation Claims From 
 https://www.livelaw.in/top-stories/supreme-court-asks-mea-to-issue-public-notice-inviting-compensation-claims-from-families-of-indians-killed-in-russia-ukraine-war-554704
 
 [Read on Telegram](https://t.me/livelawindia/122431)
+
+---
+### 2026-10-14T17:33:09+00:00
+LiveLaw High Courts Daily Highlights: October 14, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-14-2026-554686
+
+[Read on Telegram](https://t.me/livelawindia/122432)
 
 ---
