@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-13T16:02:26+00:00*
+*Last Updated: 2026-10-14T05:02:20+00:00*
+
+---
+
+### 2026-10-14T05:02:20+00:00
+Strict Application Of Rigours Of Section 37 NDPS Act Unjustified For Recovery Slightly Above Commercial Quantity: Delhi High Court
+https://www.verdictum.in/delhi-high-court/strict-application-section-37-ndps-act-recovery-above-commercial-quantity-1623906
+
+[Source Link](https://t.me/verdictumlegalupdates/29665)
+
+---
+
+### 2026-10-14T04:32:50+00:00
+Bond Cannot Be Resurrected At Retirement To Justify What Rules Do Not Permit: Delhi High Court Quashes Recovery From Retired DU Teacher’s Pension Dues
+https://www.verdictum.in/delhi-high-court/vinod-kumar-khurana-v-university-of-delhi-2026dhc8995-study-leave-rules-in-1979-college-teacher-1623909
+
+[Source Link](https://t.me/verdictumlegalupdates/29664)
 
 ---
 
@@ -145,22 +161,6 @@ Supreme Court To Hear Plea Against Incidents On Supreme Court Premises After IND
 https://www.verdictum.in/supreme-court/plea-against-india-bloc-over-protest-march-incidents-supreme-court-premises-1623887
 
 [Source Link](https://t.me/verdictumlegalupdates/29646)
-
----
-
-### 2026-10-13T07:03:10+00:00
-Order VI Rule 17 CPC|Amendment Application Needn’t Be Rejected At Threshold Where Question Of Limitation Is Arguable & Depends Upon Disputed Facts: Supreme Court
-https://www.verdictum.in/supreme-court/haramani-sahoo-and-others-v-lalita-nayak-and-others-2026-insc-1112-ovi-r17-cpc-amendment-1623885
-
-[Source Link](https://t.me/verdictumlegalupdates/29645)
-
----
-
-### 2026-10-13T06:33:09+00:00
-Supreme Court Stays Defamation Trial Against Rahul Gandhi Over "Commander-in-Thief" Remarks Against PM Narender Modi
-https://www.verdictum.in/supreme-court/stays-defamation-trial-rahul-gandhi-over-commander-in-thief-against-pm-narender-modi-1623884
-
-[Source Link](https://t.me/verdictumlegalupdates/29644)
 
 ---
 
