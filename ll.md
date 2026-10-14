@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-13T15:17:19+00:00*
+*Last Updated: 2026-10-14T08:41:55+00:00*
 
 ---
 
-### 2026-10-13T15:17:19+00:00
-Juvenile's Bail Cannot Be Rejected With Mere Liberty To Renew Plea After 6 Months Without Change In Circumstances: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-disapproves-court-giving-liberty-juvenile-renew-bail-application-554340
+### 2026-10-14T08:41:55+00:00
+Bar Council Of Delhi Elects New Office Bearers
+https://www.livelaw.in/news-updates/bar-council-delhi-elects-new-office-bearers-554610
 
-[Read on Telegram](https://t.me/livelawindia/122326)
-
----
-### 2026-10-13T15:35:09+00:00
-LiveLaw Delhi High Court Weekly Round-Up: October 05 To October 10, 2026
-https://www.livelaw.in/high-court/delhi-high-court/livelaw-delhi-high-court-weekly-round-up-october-05-to-october-10-2026-554517
-
-[Read on Telegram](https://t.me/livelawindia/122327)
+[Read on Telegram](https://t.me/livelawindia/122382)
 
 ---
-### 2026-10-13T15:39:49+00:00
-Father-In-Law Has 'Pious Obligation' To Maintain Widowed Daughter-In-Law If She Can't Maintain Herself: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/father-in-law-has-pious-obligation-to-maintain-widowed-daughter-in-law-if-she-cant-maintain-herself-delhi-high-court-554518
+### 2026-10-14T08:55:45+00:00
+“Questionable Energy”: FSSAI's Crackdown On 'Energy Drinks' And Limits Of Regulatory Enforcement
+https://www.livelaw.in/law-firms/law-firm-articles-/questionable-energy-fssais-crackdown-energy-drinks-limits-regulatory-enforcement-554614
 
-[Read on Telegram](https://t.me/livelawindia/122328)
-
----
-### 2026-10-13T15:40:00+00:00
-Himachal Pradesh High Court Monthly Digest : September 2026
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-monthly-digest-september2026-554346
-
-[Read on Telegram](https://t.me/livelawindia/122329)
+[Read on Telegram](https://t.me/livelawindia/122383)
 
 ---
-### 2026-10-13T15:46:09+00:00
-July Student Protests: Complaints Portal Ready For Launch, High-Powered Enquiry Committee Tells Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-jantar-mantar-protest-high-powered-enquiry-committee-status-report-complaints-portal-ready-for-launch-mha-to-provide-infrastructure-554520
+### 2026-10-14T09:02:25+00:00
+Karnataka High Court Quashes Case Against 17 Accused Of Provoking Riots Near Dargah, Says No Independent Witnesses Except Cops
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-unlawful-assembly-provocative-remarks-cause-riots-554615
 
-[Read on Telegram](https://t.me/livelawindia/122330)
-
----
-### 2026-10-13T16:06:29+00:00
-'Watchdog Must Bite If Barking Doesn't Work': Justice Kurian Joseph On Supreme Court's Role As Guardian Of Constitution
-https://www.livelaw.in/top-stories/watchdog-must-bite-if-barking-doesnt-work-justice-kurian-joseph-on-supreme-courts-role-as-guardian-of-constitution-554521
-
-[Read on Telegram](https://t.me/livelawindia/122331)
+[Read on Telegram](https://t.me/livelawindia/122384)
 
 ---
-### 2026-10-13T16:08:39+00:00
-Kerala High Court Designates Longest-Serving Lawyer And Guinness World Record Holder P.B. Menon As Senior Advocate
-https://www.livelaw.in/news-updates/kerala-high-court-pb-menon-senior-advocate-554522
+### 2026-10-14T09:02:45+00:00
+Magistrate Can Summon Persons Not Formally Chargesheeted By Police, But Must Pass Reasoned Order: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/magistrate-can-summon-persons-not-formally-chargesheeted-by-police-but-must-pass-reasoned-order-delhi-high-court-554545
 
-[Read on Telegram](https://t.me/livelawindia/122332)
-
----
-### 2026-10-13T16:44:40+00:00
-Give Insurance Cover To Tickets Sold Over Counter Like Online Tickets : Supreme Court Directs Railways
-https://www.livelaw.in/top-stories/give-insurance-cover-to-tickets-sold-over-counter-like-online-tickets-supreme-court-directs-railways-554524
-
-[Read on Telegram](https://t.me/livelawindia/122333)
+[Read on Telegram](https://t.me/livelawindia/122385)
 
 ---
-### 2026-10-13T16:49:40+00:00
-Kerala Union Of Working Journalists Move Supreme Court Alleging Police Violence During Delhi Protests
-https://www.livelaw.in/top-stories/kerala-union-of-working-journalists-move-supreme-court-alleging-police-violence-during-delhi-protests-554525
+### 2026-10-14T09:19:05+00:00
+Delhi Union Of Journalists Moves Supreme Court Alleging Police Violence During Delhi Protests, Seeks Protection For Independent Reporters
+https://www.livelaw.in/top-stories/supreme-court-delhi-cec-protest-journalists-independent-reporters-protection-free-press-554618
 
-[Read on Telegram](https://t.me/livelawindia/122334)
-
----
-### 2026-10-13T17:32:30+00:00
-LiveLaw High Courts Daily Highlights: October 13, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-13-2026-554508
-
-[Read on Telegram](https://t.me/livelawindia/122335)
+[Read on Telegram](https://t.me/livelawindia/122386)
 
 ---
-### 2026-10-13T17:41:50+00:00
-Delhi SIR : Plea In Supreme Court Challenges ECI Directive That Deleted Voters Must File Form 6 For Electoral Roll Registration
-https://www.livelaw.in/top-stories/delhi-sir-plea-in-supreme-court-challenges-eci-directive-that-deleted-voters-must-file-form-6-for-electoral-roll-registration-554528
+### 2026-10-14T09:28:05+00:00
+HP High Court Directs HPSEBL To Pay 50% Back Wages With Interest To Reinstated Workman Over Alleged Illegal Termination
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-directs-hpsebl-pay-back-wages-with-interest-reinstated-workman-554558
 
-[Read on Telegram](https://t.me/livelawindia/122336)
-
----
-### 2026-10-13T17:44:20+00:00
-2026 LiveLaw (SC) 1047 | UNION OF INDIA V RADHA YADAV
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1047-union-of-india-v-radha-yadav-554529
-
-[Read on Telegram](https://t.me/livelawindia/122337)
+[Read on Telegram](https://t.me/livelawindia/122387)
 
 ---
-### 2026-10-14T03:10:03+00:00
-Legal Consultant (Maritime Law) Vacancy At NALSAR University Of Law, Hyderabad
-https://www.livelaw.in/job-updates/legal-consultant-maritime-law-vacancy-at-nalsar-university-of-law-hyderabad-554530
+### 2026-10-14T09:32:25+00:00
+Preliminary Order Under Section 133 CrPC Is Sine Qua Non For Proceedings Seeking Removal Of Public Nuisance: Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-preliminary-order-section133-crpc-sine-qua-non-removal-public-nuisance-554561
 
-[Read on Telegram](https://t.me/livelawindia/122338)
-
----
-### 2026-10-14T03:21:24+00:00
-Delhi Consumer Commission Directs United India Insurance To Pay ₹38,000 For Stolen Motorcycle Despite 59-Day Delay
-https://www.livelaw.in/consumer-cases/delhi-consumer-commission-directs-united-india-insurance-to-pay-38000-for-stolen-motorcycle-despite-59-day-delay-554531
-
-[Read on Telegram](https://t.me/livelawindia/122339)
+[Read on Telegram](https://t.me/livelawindia/122388)
 
 ---
-### 2026-10-14T03:32:14+00:00
-Delhi Court Remands CJP Leaders Saurav Das, Ashutosh Ranka To Five Days Judicial Custody For 'Trespassing' At Jantar Mantar
-https://www.livelaw.in/news-updates/delhi-court-remands-cjp-leaders-saurav-das-ashutosh-ranka-to-five-days-judicial-custody-for-trespassing-at-jantar-mantar-554532
+### 2026-10-14T09:41:55+00:00
+Allahabad High Court Flags Concern Over MP/MLA Cases Listed Before Non-Designated Courts, Low In Cause List
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-mp-mla-cases-non-designated-courts-cause-list-554621
 
-[Read on Telegram](https://t.me/livelawindia/122340)
-
----
-### 2026-10-14T03:32:34+00:00
-Demolition Order Can't Be Based On 'Visual Inspection' Alone Without Structural Audit: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/demolition-order-cant-be-based-on-visual-inspection-alone-without-structural-audit-delhi-high-court-554519
-
-[Read on Telegram](https://t.me/livelawindia/122341)
+[Read on Telegram](https://t.me/livelawindia/122389)
 
 ---
-### 2026-10-14T03:47:54+00:00
-Gujarat High Court Grants Bail To Man Accused Of Attempting To Break Open ATM Machine
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-grants-bail-to-man-accused-of-breaking-open-atm-machine-554492
+### 2026-10-14T09:47:15+00:00
+Mosque Demolition: Gujarat High Court Seeks Kutch Collector's Response To Plea Alleging Lack Of Due Process
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-demolition-mosque-encroachment-554622
 
-[Read on Telegram](https://t.me/livelawindia/122342)
-
----
-### 2026-10-14T03:51:54+00:00
-Allahabad High Court Declines Mother's Plea Seeking CBI Probe Into Bhojpuri Actress Akanksha Dubey's Death
-https://www.livelaw.in/high-court/allahabad-high-court/akanksha-dubey-death-allahabad-high-court-cbi-probe-plea-554535
-
-[Read on Telegram](https://t.me/livelawindia/122343)
+[Read on Telegram](https://t.me/livelawindia/122390)
 
 ---
-### 2026-10-14T04:02:34+00:00
-Delhi High Court Directs Authorities To Inform Industrialist Anil Ambani's Son About Subsisting Look Out Circular
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-authorities-to-inform-industrialist-anil-ambanis-son-about-subsisting-look-out-circular-554526
+### 2026-10-14T10:11:35+00:00
+Delhi Metro Was Functional On October 10 But Protests Compelled Citizens To Avoid Travel: DMRC Tells Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-delhi-metro-functional-cec-protest-dmrc-compliance-554627
 
-[Read on Telegram](https://t.me/livelawindia/122344)
+[Read on Telegram](https://t.me/livelawindia/122391)
 
 ---
-### 2026-10-14T04:17:14+00:00
-LiveLaw Rajasthan High Court Weekly Round-Up: October 5 - October 11, 2026
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-weekly-roundup-554527
+### 2026-10-14T10:12:55+00:00
+Operational Creditor Who Suffered 99.28% Haircut In CIRP Can Claim Set-Off In Post-CIRP Arbitration Initiated By SRA: Supreme Court
+https://www.livelaw.in/law-firms/litigation/operational-creditor-who-suffered-9928-haircut-in-cirp-can-claim-set-off-in-post-cirp-arbitration-initiated-by-sra-supreme-court-554628
 
-[Read on Telegram](https://t.me/livelawindia/122345)
+[Read on Telegram](https://t.me/livelawindia/122392)
+
+---
+### 2026-10-14T10:46:06+00:00
+'Overkill': Supreme Court Quashes UP Police Notice To 'X' Seeking Journalist Abhishek Upadhyay's Digital Data In Road-Rage Case
+https://www.livelaw.in/top-stories/supreme-court-quashes-uttar-pradesh-police-notice-to-x-twitter-journalist-abhishek-upadhyay-digital-data-ram-mandir-donation-theft-row-554634
+
+[Read on Telegram](https://t.me/livelawindia/122393)
+
+---
+### 2026-10-14T10:48:06+00:00
+Jharkhand High Court Questions Continued Detention Of Bangladeshi National After Sentence Completion, Directs Repatriation
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-questions-continued-jail-custody-taxpayers-expense-554563
+
+[Read on Telegram](https://t.me/livelawindia/122394)
+
+---
+### 2026-10-14T10:53:06+00:00
+Waqf Tribunal Can't Exercise Supervisory Powers Over Waqf Board: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-waqf-tribunal-cant-exercise-supervisory-powers-over-waqf-board-554637
+
+[Read on Telegram](https://t.me/livelawindia/122395)
+
+---
+### 2026-10-14T10:58:46+00:00
+Ex-Judges' Commission To Begin Public Hearings From October 15 To Examine SIR's Legality & Impact
+https://www.livelaw.in/top-stories/ex-judges-commission-to-begin-public-hearings-from-october-15-to-examine-sirs-legality-impact-554640
+
+[Read on Telegram](https://t.me/livelawindia/122396)
+
+---
+### 2026-10-14T11:02:46+00:00
+'Touts Can't Function In Govt Offices Without Officials' Protection, Encouragement': Delhi High Court Upholds Conviction In ₹1,300 Bribery Case
+https://www.livelaw.in/high-court/delhi-high-court/touts-cant-function-in-govt-offices-without-officials-protection-encouragement-delhi-high-court-upholds-conviction-in-1300-bribery-case-554548
+
+[Read on Telegram](https://t.me/livelawindia/122397)
+
+---
+### 2026-10-14T11:05:46+00:00
+Madras High Court Imposes ₹50K Costs On Man Who Sought Child's DNA Test To Humiliate Wife, Protract Her Maintenance Case
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-husband-cost-wife-dna-application-to-humiliate-defame-554644
+
+[Read on Telegram](https://t.me/livelawindia/122398)
+
+---
+### 2026-10-14T11:08:06+00:00
+HP High Court Quashes LOC Against British Citizen In Property Dispute, Permits Overseas Travel Subject To Conditions
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-quashes-loc-british-citizen-property-dispute-permits-overseas-travel-554559
+
+[Read on Telegram](https://t.me/livelawindia/122399)
+
+---
+### 2026-10-14T11:14:26+00:00
+Sreekrishnapuram Double Murder: Kerala High Court Directs Comparison Of Fingerprints In Aadhar Database To Trace Culprits
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-aadhaar-database-fingerprint-criminal-investigation-554647
+
+[Read on Telegram](https://t.me/livelawindia/122400)
+
+---
+### 2026-10-14T11:24:56+00:00
+Mahua Moitra Disputes WB Govt Statement Before Calcutta High Court Claiming She Was Given Round-The-Clock PSO
+https://www.livelaw.in/high-court/calcutta-high-court/mahua-moitra-challenges-wb-govt-memo-before-calcutta-high-court-claiming-she-has-been-given-24-hour-security-officer-554649
+
+[Read on Telegram](https://t.me/livelawindia/122401)
 
 ---
