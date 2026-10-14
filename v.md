@@ -1,6 +1,118 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-14T05:02:20+00:00*
+*Last Updated: 2026-10-14T12:02:53+00:00*
+
+---
+
+### 2026-10-14T12:02:53+00:00
+Supreme Court Asks MEA To Provide Compensation Details & Clarify Action Against Illegal Agents For Forced Recruitment Of Indians In Russian Army
+https://www.verdictum.in/supreme-court/mea-compensation-details-clarify-action-against-illegal-agents-recruitment-indians-russian-army-1623976
+
+[Source Link](https://t.me/verdictumlegalupdates/29679)
+
+---
+
+### 2026-10-14T11:32:52+00:00
+Supreme Court Fixes Nov 17 For Hearing Asaram's Plea Against Conviction In Rape Case In Rajasthan
+https://www.verdictum.in/supreme-court/asarams-plea-against-conviction-in-rape-case-in-rajasthan-1623973
+
+[Source Link](https://t.me/verdictumlegalupdates/29678)
+
+---
+
+### 2026-10-14T11:02:11+00:00
+Around 200 Members Demand SCBA To Pass Resolution Condemning Rahul Gandhi's March To Supreme Court
+https://www.verdictum.in/news/scba-members-seek-resolution-rahul-gandhi-congress-march-1623971
+
+[Source Link](https://t.me/verdictumlegalupdates/29677)
+
+---
+
+### 2026-10-14T10:32:30+00:00
+Delhi High Court Calls For Report From Jail On Non-Appearance Of Yasin Malik In Terror Case
+https://www.verdictum.in/delhi-high-court/report-from-jail-on-non-appearance-of-yasin-malik-in-terror-case-1623967
+
+[Source Link](https://t.me/verdictumlegalupdates/29676)
+
+---
+
+### 2026-10-14T10:01:09+00:00
+Supreme Court Makes Interim Protection From Arrest Granted To YouTuber Abhishek Upadhyay Absolute, Quashes Notice To 'X' Over Road Rage Case
+https://www.verdictum.in/supreme-court/interim-protection-arrest-youtuber-abhishek-upadhyay-absolute-police-notice-x-over-road-rage-1623969
+
+[Source Link](https://t.me/verdictumlegalupdates/29675)
+
+---
+
+### 2026-10-14T09:32:48+00:00
+Delhi High Court Seeks FSSAI Stand On PIL Against Non-Dairy, Analogous 'Paneer'
+https://www.verdictum.in/delhi-high-court/fssai-stand-on-pil-against-non-dairy-analogous-paneer-1623965
+
+[Source Link](https://t.me/verdictumlegalupdates/29674)
+
+---
+
+### 2026-10-14T09:02:27+00:00
+Compensation Cannot Rest On Stereotype That Persons Cease To Contribute With Age: Delhi High Court Enhances Compensation For Elderly Homemaker Who Lost Leg In Road Accident
+https://www.verdictum.in/delhi-high-court/ganga-devi-v-rajesh-kumar-2026dhc9013-elderly-homemaker-who-lost-leg-in-road-accident-age-over-70-grandmother-1623963
+
+[Source Link](https://t.me/verdictumlegalupdates/29673)
+
+---
+
+### 2026-10-14T08:33:07+00:00
+Filing Forged, Fabricated Pleadings In Writ Petition Is Good Ground To Dismiss It In Limine: Gauhati High Court
+https://www.verdictum.in/guwahati-high-court/nurul-hoque-v-union-of-india-2026gau-as15325-citizenship-vakalatnama-to-bar-council-in-foreigners-tribunal-challenge-1623962
+
+[Source Link](https://t.me/verdictumlegalupdates/29672)
+
+---
+
+### 2026-10-14T08:02:26+00:00
+Named Co-Adulterer Must Be Heard Before Adverse Finding In Maintenance Case: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/gs-v-state-of-up-and-2-others-2026ahc214569-divorce-adultery-maintenance-section-125-crpc-1623961
+
+[Source Link](https://t.me/verdictumlegalupdates/29671)
+
+---
+
+### 2026-10-14T07:33:05+00:00
+Kiss On Minor’s Lips Can Attract Offence U/S 7 POCSO Even If Private Parts Aren't Touched: Delhi High Court
+https://www.verdictum.in/delhi-high-court/suraj-singh-laala-v-state-nct-of-delhi-2026dhc9071-body-part-touched-kiss-on-lips-6-year-old-girl-neighbor-1623957
+
+[Source Link](https://t.me/verdictumlegalupdates/29670)
+
+---
+
+### 2026-10-14T07:03:44+00:00
+Charging Patients Does Not By Itself Deprive Hospital Of Philanthropic Character: Bombay High Court
+https://www.verdictum.in/bombay-high-court/breach-candy-hospital-trust-v-chief-commissioner-of-income-tax-2026bhc-os22219-db-income-tax-charitable-purpose-hospital-advanced-technique-1623952
+
+[Source Link](https://t.me/verdictumlegalupdates/29669)
+
+---
+
+### 2026-10-14T06:32:43+00:00
+Prosecutrix’s Alleged Immorality Cannot Be A Basis To Infer Consent At Charge Stage: Delhi High Court
+https://www.verdictum.in/delhi-high-court/prosecutrix-v-state-of-nct-of-delhi-2026dhc9070-prosecutrixs-alleged-immorality-character-charge-stage-consent-1623945
+
+[Source Link](https://t.me/verdictumlegalupdates/29668)
+
+---
+
+### 2026-10-14T06:03:02+00:00
+TN Sentence Suspension Rules| 40 Days Annual Ordinary Leave Can Be Availed By Prisoner In 2 Instalments Only Within 1 Year: Madras High Court
+https://www.verdictum.in/madras-high-court/sbabu-v-the-state-2026mhc4186-rule-22-tamil-nadu-suspension-of-sentence-rules-leave-1623940
+
+[Source Link](https://t.me/verdictumlegalupdates/29667)
+
+---
+
+### 2026-10-14T05:33:01+00:00
+Rigid Adherence To Letter Of Tender Document Can't Be Countenanced When There Is Impossibility In Compliance: Supreme Court
+https://www.verdictum.in/supreme-court/hardev-construction-private-limited-v-union-of-india-2026-insc-1110-letter-tender-document-rejection-bid-1623904
+
+[Source Link](https://t.me/verdictumlegalupdates/29666)
 
 ---
 
@@ -49,118 +161,6 @@ Misbehaving With Law Officers Communicating Court Orders Amounts To Contempt: Al
 https://www.verdictum.in/allahabad-high-court/2026-ahc-213930-sachin-yadav-v-state-of-up-1623911
 
 [Source Link](https://t.me/verdictumlegalupdates/29660)
-
----
-
-### 2026-10-13T14:02:22+00:00
-50% Reservation Ceiling Is A Firm Rule: Karnataka High Court Strikes Down Increase In SC/ST Quota To 17% And 7%
-https://www.verdictum.in/karnataka-high-court/mahendra-kumar-mitra-v-secretary-to-government-of-india-ministry-of-social-justice-and-empowerment-wp-no-200448-of-2025-1623905
-
-[Source Link](https://t.me/verdictumlegalupdates/29659)
-
----
-
-### 2026-10-13T13:33:01+00:00
-Madras High Court Upholds TN Assembly Speaker's Decision Accepting Resignations Of Six AIADMK MLAs
-https://www.verdictum.in/madras-high-court/tn-assembly-speakers-decision-accepting-resignations-of-six-aiadmk-mlas-upheld-1623903
-
-[Source Link](https://t.me/verdictumlegalupdates/29658)
-
----
-
-### 2026-10-13T13:03:00+00:00
-Registrar General Of Kerala High Court Restrains Lawyer Group From Holding "Symbolic Impeachment Of CEC" In Court Premises
-https://www.verdictum.in/news/indian-association-of-lawyers-protest-chief-election-commissioner-of-india-sir-1623910
-
-[Source Link](https://t.me/verdictumlegalupdates/29657)
-
----
-
-### 2026-10-13T12:32:59+00:00
-Bombay High Court Declines Blanket Protection Against Police Detention For Anti-CEC Protesters
-https://www.verdictum.in/bombay-high-court/blanket-protection-against-police-detention-for-anti-cec-protesters-declined-1623902
-
-[Source Link](https://t.me/verdictumlegalupdates/29656)
-
----
-
-### 2026-10-13T12:02:39+00:00
-Delhi High Court Seeks Centre's Stand On Pleas By Lawyers, Traders To Regulate Protests
-https://www.verdictum.in/delhi-high-court/centres-stand-on-pleas-by-lawyers-traders-to-regulate-protests-1623901
-
-[Source Link](https://t.me/verdictumlegalupdates/29655)
-
----
-
-### 2026-10-13T11:37:39+00:00
-Centre Notifies Appointment Of Two Judicial Officers As Judges Of Madras High Court
-https://www.verdictum.in/court-updates/high-courts/appointment-of-two-judicial-officers-as-judges-of-madras-high-court-1623898
-
-[Source Link](https://t.me/verdictumlegalupdates/29654)
-
----
-
-### 2026-10-13T11:02:17+00:00
-Dishonest Intention At Inception Of Transaction Necessary For Offence Of Cheating; Criminal Character Can't Be Assumed: Supreme Court
-https://www.verdictum.in/supreme-court/indroneel-goho-v-razouvonuo-thong-2026-insc-1115-cheating-contractual-relationship-1623897
-
-[Source Link](https://t.me/verdictumlegalupdates/29653)
-
----
-
-### 2026-10-13T10:33:16+00:00
-Promoting One’s Own Religion Does Not Amount To Outraging Religious Feelings Of Any Class: Bombay High Court
-https://www.verdictum.in/bombay-high-court/joseph-khudawant-v-the-state-of-maharashtra-2026bhc-nag13533-convert-from-hinduism-to-christianity-was-mere-promotion-1623895
-
-[Source Link](https://t.me/verdictumlegalupdates/29652)
-
----
-
-### 2026-10-13T10:02:55+00:00
-First Come First Serve Policy Marred With Blemishes: Delhi High Court Orders Framing Of Guidelines for Allotment Of Grounds For Ramleela
-https://www.verdictum.in/delhi-high-court/rays-of-new-beginning-foundation-v-delhi-urban-shelter-improvement-board-2026dhc9064-ground-ramleela-1623896
-
-[Source Link](https://t.me/verdictumlegalupdates/29651)
-
----
-
-### 2026-10-13T09:32:14+00:00
-Death Of Husband Does Not, By Itself, Sever His Wife's Right To Reside In Shared Household: Delhi High Court
-https://www.verdictum.in/delhi-high-court/late-raj-kumar-babbal-deceased-through-lrs-manju-verma-v-attar-singh-2026dhc9028-widowed-daughter-in-law-father-in-laws-decree-for-possession-1623893
-
-[Source Link](https://t.me/verdictumlegalupdates/29650)
-
----
-
-### 2026-10-13T09:02:54+00:00
-Supreme Court Refuses To Entertain Plea For CBI Probe Into Sale Of Tickets By UP-Based Political Parties
-https://www.verdictum.in/supreme-court/plea-for-cbi-probe-into-sale-of-tickets-by-up-based-political-parties-refused-1623890
-
-[Source Link](https://t.me/verdictumlegalupdates/29649)
-
----
-
-### 2026-10-13T08:32:33+00:00
-Supreme Court Seeks IB's Input On Hawara's Plea For Transfer To Punjab Jail In Beant Singh Murder Case
-https://www.verdictum.in/supreme-court/ibs-input-on-hawaras-plea-for-transfer-to-punjab-jail-in-beant-singh-murder-case-1623888
-
-[Source Link](https://t.me/verdictumlegalupdates/29648)
-
----
-
-### 2026-10-13T08:02:32+00:00
-Failure To Furnish Written Grounds Of Arrest To Be Treated As Dereliction Of Duty By Arresting Officer: Madras High Court
-https://www.verdictum.in/madras-high-court/ankur-kumar-jain-v-the-state-rep-by-the-inspector-of-police-crlop-no-27525-of-2026-failure-to-furnish-written-grounds-of-arrest-1623886
-
-[Source Link](https://t.me/verdictumlegalupdates/29647)
-
----
-
-### 2026-10-13T07:33:11+00:00
-Supreme Court To Hear Plea Against Incidents On Supreme Court Premises After INDIA Bloc Protest March, Lists All Matters On Oct 15
-https://www.verdictum.in/supreme-court/plea-against-india-bloc-over-protest-march-incidents-supreme-court-premises-1623887
-
-[Source Link](https://t.me/verdictumlegalupdates/29646)
 
 ---
 
