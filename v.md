@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-14T12:02:53+00:00*
+*Last Updated: 2026-10-14T16:02:59+00:00*
+
+---
+
+### 2026-10-14T16:02:59+00:00
+Senior Consultant (Law) Vacancy At EdCIL (India)
+https://www.verdictum.in/job-updates/edcil-india-1623979
+
+[Source Link](https://t.me/verdictumlegalupdates/29687)
+
+---
+
+### 2026-10-14T15:32:58+00:00
+Property Acquired By Priest After Final Vows Cannot Be Treated As His Individual Property: Madras High Court
+https://www.verdictum.in/madras-high-court/the-abvm-society-of-the-catholic-apostolate-pallottines-v-a-deiva-nayagam-cmamd-nos-560-and-623-of-2026-diocesan-priests-jesus-christ-unattested-will-1623986
+
+[Source Link](https://t.me/verdictumlegalupdates/29686)
+
+---
+
+### 2026-10-14T15:03:17+00:00
+Student Can’t Be Made To Suffer Because Of University’s Clerical Error: Supreme Court Directs Issuance Of Law Student’s Degree
+https://www.verdictum.in/supreme-court/stuti-sharma-v-manav-bharti-university-mbu-2026-insc-1117-student-university-clerical-error-law-degree-1623985
+
+[Source Link](https://t.me/verdictumlegalupdates/29685)
+
+---
+
+### 2026-10-14T14:32:17+00:00
+Arraying Officer Or Department Without State As Juristic Entity Renders Writ Petition Involving Financial Liability Defective: Supreme Court
+https://www.verdictum.in/supreme-court/state-of-maharashtra-v-sudhir-2026-insc-1118-impleadment-state-juristic-entity-financial-liability-1623984
+
+[Source Link](https://t.me/verdictumlegalupdates/29684)
+
+---
+
+### 2026-10-14T14:02:36+00:00
+Details Of Unauthorised Modifications & Alterations In Accident Vehicles Must Be Uploaded With Photos, Videos On e-DAR: Kerala High Court
+https://www.verdictum.in/kerala-high-court/suo-motu-v-union-of-india-and-others-2026ioker14-motor-vehicles-act-1623978
+
+[Source Link](https://t.me/verdictumlegalupdates/29683)
+
+---
+
+### 2026-10-14T13:32:35+00:00
+Dissatisfaction With Outcome Or Manner Of Investigation Does Not By Itself Attract Section 4 SC/ST Act: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/g-v-state-of-up-and-7-others-2026ahc214606-sc-st-act-section-4-wilful-negligence-1623977
+
+[Source Link](https://t.me/verdictumlegalupdates/29682)
+
+---
+
+### 2026-10-14T13:02:14+00:00
+Absence Of Minority Status Certificate Not Conclusive Against Minority Character: Delhi High Court
+https://www.verdictum.in/delhi-high-court/hemnani-public-school-v-ipsa-gurnani-2026dhc9031-section-82-dse-act-and-rules-118-and-12-unaided-linguistic-minority-schools-1623974
+
+[Source Link](https://t.me/verdictumlegalupdates/29681)
+
+---
+
+### 2026-10-14T12:32:33+00:00
+SC/ST Status Doesn't Travel Across States Even When Caste Is Notified In Both States Of Origin & Migration: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/uma-devi-navaiya-v-state-of-madhya-pradesh-and-others-2026mphc-jbp80995-1623975
+
+[Source Link](https://t.me/verdictumlegalupdates/29680)
 
 ---
 
@@ -97,70 +161,6 @@ Prosecutrix’s Alleged Immorality Cannot Be A Basis To Infer Consent At Charge 
 https://www.verdictum.in/delhi-high-court/prosecutrix-v-state-of-nct-of-delhi-2026dhc9070-prosecutrixs-alleged-immorality-character-charge-stage-consent-1623945
 
 [Source Link](https://t.me/verdictumlegalupdates/29668)
-
----
-
-### 2026-10-14T06:03:02+00:00
-TN Sentence Suspension Rules| 40 Days Annual Ordinary Leave Can Be Availed By Prisoner In 2 Instalments Only Within 1 Year: Madras High Court
-https://www.verdictum.in/madras-high-court/sbabu-v-the-state-2026mhc4186-rule-22-tamil-nadu-suspension-of-sentence-rules-leave-1623940
-
-[Source Link](https://t.me/verdictumlegalupdates/29667)
-
----
-
-### 2026-10-14T05:33:01+00:00
-Rigid Adherence To Letter Of Tender Document Can't Be Countenanced When There Is Impossibility In Compliance: Supreme Court
-https://www.verdictum.in/supreme-court/hardev-construction-private-limited-v-union-of-india-2026-insc-1110-letter-tender-document-rejection-bid-1623904
-
-[Source Link](https://t.me/verdictumlegalupdates/29666)
-
----
-
-### 2026-10-14T05:02:20+00:00
-Strict Application Of Rigours Of Section 37 NDPS Act Unjustified For Recovery Slightly Above Commercial Quantity: Delhi High Court
-https://www.verdictum.in/delhi-high-court/strict-application-section-37-ndps-act-recovery-above-commercial-quantity-1623906
-
-[Source Link](https://t.me/verdictumlegalupdates/29665)
-
----
-
-### 2026-10-14T04:32:50+00:00
-Bond Cannot Be Resurrected At Retirement To Justify What Rules Do Not Permit: Delhi High Court Quashes Recovery From Retired DU Teacher’s Pension Dues
-https://www.verdictum.in/delhi-high-court/vinod-kumar-khurana-v-university-of-delhi-2026dhc8995-study-leave-rules-in-1979-college-teacher-1623909
-
-[Source Link](https://t.me/verdictumlegalupdates/29664)
-
----
-
-### 2026-10-13T16:02:26+00:00
-Consultant (Legal) Vacancy At National Pharmaceutical Pricing Authority (NPPA)
-https://www.verdictum.in/job-updates/national-pharmaceutical-pricing-authority-1623900
-
-[Source Link](https://t.me/verdictumlegalupdates/29663)
-
----
-
-### 2026-10-13T15:32:24+00:00
-Section 4 Of Probation of Offenders Act Can't Be Invoked When Accused Is First Offender: Supreme Court
-https://www.verdictum.in/supreme-court/umesh-chand-v-state-of-up-ors-2026-insc-1114-sec4-probation-of-offenders-act-accused-surrender-1623908
-
-[Source Link](https://t.me/verdictumlegalupdates/29662)
-
----
-
-### 2026-10-13T15:03:04+00:00
-Mere Non-Availability Of Accused At His Address Not Sufficient To Proceed Against Him As Absconder Unless Deliberate Concealment To Avoid Arrest Is Established: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/sandeepkumar-radhakrushnalal-shrivastav-v-state-of-gujarat-2026gujhc64164-non-availability-of-accused-at-his-address-not-sufficient-1623907
-
-[Source Link](https://t.me/verdictumlegalupdates/29661)
-
----
-
-### 2026-10-13T14:32:43+00:00
-Misbehaving With Law Officers Communicating Court Orders Amounts To Contempt: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/2026-ahc-213930-sachin-yadav-v-state-of-up-1623911
-
-[Source Link](https://t.me/verdictumlegalupdates/29660)
 
 ---
 
