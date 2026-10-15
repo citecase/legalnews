@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-14T16:02:59+00:00*
+*Last Updated: 2026-10-15T04:32:56+00:00*
+
+---
+
+### 2026-10-15T04:32:56+00:00
+Karnataka High Court Imposes ₹15k Cost On Lawyer For Contending That God Can’t Represent Before Court Or Tribunal
+https://www.verdictum.in/karnataka-high-court/arala-damodar-prabhu-v-state-by-bantwal-town-police-2026khc56798-cost-lawyer-conduct-god-temple-1623989
+
+[Source Link](https://t.me/verdictumlegalupdates/29688)
 
 ---
 
@@ -153,14 +161,6 @@ Charging Patients Does Not By Itself Deprive Hospital Of Philanthropic Character
 https://www.verdictum.in/bombay-high-court/breach-candy-hospital-trust-v-chief-commissioner-of-income-tax-2026bhc-os22219-db-income-tax-charitable-purpose-hospital-advanced-technique-1623952
 
 [Source Link](https://t.me/verdictumlegalupdates/29669)
-
----
-
-### 2026-10-14T06:32:43+00:00
-Prosecutrix’s Alleged Immorality Cannot Be A Basis To Infer Consent At Charge Stage: Delhi High Court
-https://www.verdictum.in/delhi-high-court/prosecutrix-v-state-of-nct-of-delhi-2026dhc9070-prosecutrixs-alleged-immorality-character-charge-stage-consent-1623945
-
-[Source Link](https://t.me/verdictumlegalupdates/29668)
 
 ---
 
