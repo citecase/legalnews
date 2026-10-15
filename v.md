@@ -1,6 +1,118 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-15T04:32:56+00:00*
+*Last Updated: 2026-10-15T11:33:16+00:00*
+
+---
+
+### 2026-10-15T11:33:16+00:00
+Students Must Know Professional Course Fee Before Admission; Mid-Course Hike Only In Exceptional Circumstances: Supreme Court
+https://www.verdictum.in/supreme-court/dr-bc-roy-engineering-college-v-the-state-of-west-bengal-2026-insc-1120-fee-liability-students-college-financial-1624048
+
+[Source Link](https://t.me/verdictumlegalupdates/29702)
+
+---
+
+### 2026-10-15T11:02:56+00:00
+Limitation Period For Appeal U/S 62 IBC Commences On Date NCLAT Pronounces Order: Supreme Court
+https://www.verdictum.in/supreme-court/the-assistant-commissioner-of-central-tax-v-sreenivasa-rao-ravinuthala-2026-insc-1121-1624047
+
+[Source Link](https://t.me/verdictumlegalupdates/29701)
+
+---
+
+### 2026-10-15T10:33:15+00:00
+Supreme Court Asks Trial Court To Release Passport Of Rajpal Yadav, Refers Cheque-Bounce Dispute To Mediation
+https://www.verdictum.in/supreme-court/rajpal-yadav-cheque-bounce-dispute-referred-mediation-1624044
+
+[Source Link](https://t.me/verdictumlegalupdates/29700)
+
+---
+
+### 2026-10-15T10:02:54+00:00
+Delhi High Court Refuses Urgent Hearing To Journalist In 'Casteist' Remark Case Filed By ACP Vivek Bhagat
+https://www.verdictum.in/delhi-high-court/urgent-hearing-to-journalist-in-casteist-remark-case-filed-by-acp-vivek-bhagat-refused-1624040
+
+[Source Link](https://t.me/verdictumlegalupdates/29699)
+
+---
+
+### 2026-10-15T09:32:13+00:00
+Delhi Protests|Supreme Court Issues Notices On All Pleas, Protects Women Journalist From Coercive Action After She Accused ACP For Harassment
+https://www.verdictum.in/supreme-court/issues-notices-on-all-pleas-protects-women-journalist-accused-acp-harassment-coercive-action-1624043
+
+[Source Link](https://t.me/verdictumlegalupdates/29698)
+
+---
+
+### 2026-10-15T09:02:52+00:00
+Superior Officer’s Report, Public Servant’s Version Must Be Considered Before Ordering Probe U/S 175(4) BNSS: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/sandhya-jaisawal-v-state-of-up-and-another-2026ahc214563-section-1754-bnss-1624034
+
+[Source Link](https://t.me/verdictumlegalupdates/29697)
+
+---
+
+### 2026-10-15T08:17:52+00:00
+Supreme Court Issues Notice On Plea Challenging Delhi Police Order De-notifying Jantar Mantar As Protest Site
+https://www.verdictum.in/supreme-court/plea-challenging-delhi-police-order-de-notifying-jantar-mantar-as-protest-site-1624038
+
+[Source Link](https://t.me/verdictumlegalupdates/29696)
+
+---
+
+### 2026-10-15T07:46:31+00:00
+We Will Ask One Of Them To Explain Conduct On Next Date: Supreme Court Says While Issuing Notice In Rahul Gandhi's Plea Challenging SIR Process
+https://www.verdictum.in/supreme-court/asks-rahul-gandhi-issuing-notice-challenging-sir-process-1624032
+
+[Source Link](https://t.me/verdictumlegalupdates/29695)
+
+---
+
+### 2026-10-15T07:32:50+00:00
+Rejection Of Highest Bid Needs Material Showing Current Inadequacy, Not Mere Comparison With Bidder’s Earlier Bid: Supreme Court
+https://www.verdictum.in/supreme-court/ms-dhanlaxmi-merchandise-pvt-ltd-v-state-of-madhya-pradesh-2026-insc-1125-rejection-of-highest-bid-public-interest-1624025
+
+[Source Link](https://t.me/verdictumlegalupdates/29694)
+
+---
+
+### 2026-10-15T07:02:49+00:00
+Can Article 226 Jurisdiction Be Divided Into Civil And Criminal To Bar Intra-Court Appeals? Supreme Court Refers Question To Larger Bench
+https://www.verdictum.in/supreme-court/sanjay-prasad-v-madhusudan-dwivedi-others-2026-insc-1128-article-226-1624024
+
+[Source Link](https://t.me/verdictumlegalupdates/29693)
+
+---
+
+### 2026-10-15T06:32:53+00:00
+SC/ST Rights Group Seeks Public Apology From Rahul Gandhi For March Into Supreme Court, Says Dr. Ambedkar's Ideals Were Trampled Upon
+https://www.verdictum.in/news/dastak-unconditional-public-apology-rahul-gandhi-october-12-supreme-court-incident-1624021
+
+[Source Link](https://t.me/verdictumlegalupdates/29692)
+
+---
+
+### 2026-10-15T06:03:07+00:00
+Marriage In Ignorance Of POCSO Act May Not Be Disrupted: Allahabad High Court Asks Law Commission To Recommend Amendments
+https://www.verdictum.in/allahabad-high-court/a-v-state-of-up-2026ahc207289-db-family-ignorance-pocso-act-law-commission-amendments-1624016
+
+[Source Link](https://t.me/verdictumlegalupdates/29691)
+
+---
+
+### 2026-10-15T05:31:07+00:00
+Breaking: Conversion Alone Doesn't Confer Membership In Backward Class Muslim Communities: Apex Court Upholds HC Striking Down Order On Reservation Benefits For Religious Converts
+https://www.verdictum.in/supreme-court/upholds-hc-striking-down-order-on-reservation-benefits-for-religious-converts-1624019
+
+[Source Link](https://t.me/verdictumlegalupdates/29690)
+
+---
+
+### 2026-10-15T05:02:46+00:00
+Mere Failure Of Relationship Doesn’t Give Rise To Criminal Liability: Uttarakhand High Court Quashes Rape Case
+https://www.verdictum.in/uttarakhand-high-court/kunal-bhakat-v-state-of-uttarakhand-dissolution-relationship-criminal-liability-rape-1624008
+
+[Source Link](https://t.me/verdictumlegalupdates/29689)
 
 ---
 
@@ -49,118 +161,6 @@ Details Of Unauthorised Modifications & Alterations In Accident Vehicles Must Be
 https://www.verdictum.in/kerala-high-court/suo-motu-v-union-of-india-and-others-2026ioker14-motor-vehicles-act-1623978
 
 [Source Link](https://t.me/verdictumlegalupdates/29683)
-
----
-
-### 2026-10-14T13:32:35+00:00
-Dissatisfaction With Outcome Or Manner Of Investigation Does Not By Itself Attract Section 4 SC/ST Act: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/g-v-state-of-up-and-7-others-2026ahc214606-sc-st-act-section-4-wilful-negligence-1623977
-
-[Source Link](https://t.me/verdictumlegalupdates/29682)
-
----
-
-### 2026-10-14T13:02:14+00:00
-Absence Of Minority Status Certificate Not Conclusive Against Minority Character: Delhi High Court
-https://www.verdictum.in/delhi-high-court/hemnani-public-school-v-ipsa-gurnani-2026dhc9031-section-82-dse-act-and-rules-118-and-12-unaided-linguistic-minority-schools-1623974
-
-[Source Link](https://t.me/verdictumlegalupdates/29681)
-
----
-
-### 2026-10-14T12:32:33+00:00
-SC/ST Status Doesn't Travel Across States Even When Caste Is Notified In Both States Of Origin & Migration: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/uma-devi-navaiya-v-state-of-madhya-pradesh-and-others-2026mphc-jbp80995-1623975
-
-[Source Link](https://t.me/verdictumlegalupdates/29680)
-
----
-
-### 2026-10-14T12:02:53+00:00
-Supreme Court Asks MEA To Provide Compensation Details & Clarify Action Against Illegal Agents For Forced Recruitment Of Indians In Russian Army
-https://www.verdictum.in/supreme-court/mea-compensation-details-clarify-action-against-illegal-agents-recruitment-indians-russian-army-1623976
-
-[Source Link](https://t.me/verdictumlegalupdates/29679)
-
----
-
-### 2026-10-14T11:32:52+00:00
-Supreme Court Fixes Nov 17 For Hearing Asaram's Plea Against Conviction In Rape Case In Rajasthan
-https://www.verdictum.in/supreme-court/asarams-plea-against-conviction-in-rape-case-in-rajasthan-1623973
-
-[Source Link](https://t.me/verdictumlegalupdates/29678)
-
----
-
-### 2026-10-14T11:02:11+00:00
-Around 200 Members Demand SCBA To Pass Resolution Condemning Rahul Gandhi's March To Supreme Court
-https://www.verdictum.in/news/scba-members-seek-resolution-rahul-gandhi-congress-march-1623971
-
-[Source Link](https://t.me/verdictumlegalupdates/29677)
-
----
-
-### 2026-10-14T10:32:30+00:00
-Delhi High Court Calls For Report From Jail On Non-Appearance Of Yasin Malik In Terror Case
-https://www.verdictum.in/delhi-high-court/report-from-jail-on-non-appearance-of-yasin-malik-in-terror-case-1623967
-
-[Source Link](https://t.me/verdictumlegalupdates/29676)
-
----
-
-### 2026-10-14T10:01:09+00:00
-Supreme Court Makes Interim Protection From Arrest Granted To YouTuber Abhishek Upadhyay Absolute, Quashes Notice To 'X' Over Road Rage Case
-https://www.verdictum.in/supreme-court/interim-protection-arrest-youtuber-abhishek-upadhyay-absolute-police-notice-x-over-road-rage-1623969
-
-[Source Link](https://t.me/verdictumlegalupdates/29675)
-
----
-
-### 2026-10-14T09:32:48+00:00
-Delhi High Court Seeks FSSAI Stand On PIL Against Non-Dairy, Analogous 'Paneer'
-https://www.verdictum.in/delhi-high-court/fssai-stand-on-pil-against-non-dairy-analogous-paneer-1623965
-
-[Source Link](https://t.me/verdictumlegalupdates/29674)
-
----
-
-### 2026-10-14T09:02:27+00:00
-Compensation Cannot Rest On Stereotype That Persons Cease To Contribute With Age: Delhi High Court Enhances Compensation For Elderly Homemaker Who Lost Leg In Road Accident
-https://www.verdictum.in/delhi-high-court/ganga-devi-v-rajesh-kumar-2026dhc9013-elderly-homemaker-who-lost-leg-in-road-accident-age-over-70-grandmother-1623963
-
-[Source Link](https://t.me/verdictumlegalupdates/29673)
-
----
-
-### 2026-10-14T08:33:07+00:00
-Filing Forged, Fabricated Pleadings In Writ Petition Is Good Ground To Dismiss It In Limine: Gauhati High Court
-https://www.verdictum.in/guwahati-high-court/nurul-hoque-v-union-of-india-2026gau-as15325-citizenship-vakalatnama-to-bar-council-in-foreigners-tribunal-challenge-1623962
-
-[Source Link](https://t.me/verdictumlegalupdates/29672)
-
----
-
-### 2026-10-14T08:02:26+00:00
-Named Co-Adulterer Must Be Heard Before Adverse Finding In Maintenance Case: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/gs-v-state-of-up-and-2-others-2026ahc214569-divorce-adultery-maintenance-section-125-crpc-1623961
-
-[Source Link](https://t.me/verdictumlegalupdates/29671)
-
----
-
-### 2026-10-14T07:33:05+00:00
-Kiss On Minor’s Lips Can Attract Offence U/S 7 POCSO Even If Private Parts Aren't Touched: Delhi High Court
-https://www.verdictum.in/delhi-high-court/suraj-singh-laala-v-state-nct-of-delhi-2026dhc9071-body-part-touched-kiss-on-lips-6-year-old-girl-neighbor-1623957
-
-[Source Link](https://t.me/verdictumlegalupdates/29670)
-
----
-
-### 2026-10-14T07:03:44+00:00
-Charging Patients Does Not By Itself Deprive Hospital Of Philanthropic Character: Bombay High Court
-https://www.verdictum.in/bombay-high-court/breach-candy-hospital-trust-v-chief-commissioner-of-income-tax-2026bhc-os22219-db-income-tax-charitable-purpose-hospital-advanced-technique-1623952
-
-[Source Link](https://t.me/verdictumlegalupdates/29669)
 
 ---
 
