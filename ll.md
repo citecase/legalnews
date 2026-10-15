@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-15T08:47:58+00:00*
+*Last Updated: 2026-10-15T12:32:29+00:00*
 
 ---
 
-### 2026-10-15T08:47:58+00:00
-False Representation Of Superior Court Order Is Among Gravest Species Of Fraud: Patna High Court Cancels Bail
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-cancels-bail-falsely-claimed-earlier-hc-order-permitted-fresh-bail-plea-554797
+### 2026-10-15T12:32:29+00:00
+Additional Public Prosecutor Not State Employee; Cannot Be Prosecuted As 'Public Servant' Under PC Act: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/additional-public-prosecutor-cannot-prosecuted-public-servant-554796
 
-[Read on Telegram](https://t.me/livelawindia/122503)
-
----
-### 2026-10-15T09:01:48+00:00
-Delhi Protests: Supreme Court Directs Police To Produce Prohibitory Orders Under S. 163 BNSS, Preserve CCTV Footage
-https://www.livelaw.in/top-stories/delhi-protests-supreme-court-directs-police-to-produce-prohibitory-orders-under-s-163-bnss-preserve-cctv-footage-554828
-
-[Read on Telegram](https://t.me/livelawindia/122504)
+[Read on Telegram](https://t.me/livelawindia/122542)
 
 ---
-### 2026-10-15T09:08:28+00:00
-P&H High Court Seeks DGP's Response To PIL Challenging Punjab Police Instagram Videos Showing Injured Arrestees
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/pil-filed-in-punjab-haryana-high-court-challenges-punjab-police-instagram-videos-showing-injured-arrestees-554829
+### 2026-10-15T12:40:49+00:00
+Authority Granting Prosecution Sanction Must Independently Assess Evidence, Uninfluenced By Trial Court's Prima Facie Finding: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-sanctioning-authority-must-independently-decide-prosecution-sanction-554889
 
-[Read on Telegram](https://t.me/livelawindia/122505)
-
----
-### 2026-10-15T09:19:48+00:00
-JJ Rules | Regular FIR Can't Be Lodged Against Juveniles For 'Serious Offences': Allahabad High Court Quashes FIR Against 2 Minors
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-regular-fir-juveniles-serious-offences-jj-rules-554830
-
-[Read on Telegram](https://t.me/livelawindia/122506)
+[Read on Telegram](https://t.me/livelawindia/122543)
 
 ---
-### 2026-10-15T09:31:08+00:00
-Karnataka High Court Quashes Cow Slaughter Case After Police Conduct Raid Before Registering FIR
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-fir-cow-slaughter-allegations-554832
+### 2026-10-15T12:47:29+00:00
+Madras High Court Closes Plea Seeking Expeditious Action On Complaint Against Udhayanidhi Stalin After Magistrate Issues Pre-Cognisance Notice
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-udhayanidhi-stalin-delay-numbering-complaint-corrupt-practice-554893
 
-[Read on Telegram](https://t.me/livelawindia/122507)
-
----
-### 2026-10-15T09:42:28+00:00
-Father's Remarriage, Second Child No Ground To Reduce Maintenance For Child From First Marriage: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-remarrying-not-legally-recognisable-defence-reduce-maintenance-amount-child-first-marriage-554833
-
-[Read on Telegram](https://t.me/livelawindia/122508)
+[Read on Telegram](https://t.me/livelawindia/122544)
 
 ---
-### 2026-10-15T09:47:08+00:00
-Doctors Not Discharging Duties Under MTP Act, Leaving Distressed Mothers To Approach Courts: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/doctors-not-discharging-duties-under-mtp-act-leaving-distressed-mothers-to-approach-courts-jk-high-court-554791
+### 2026-10-15T12:51:19+00:00
+Anti-Drug Activist Shot While Live Streaming: PIL In P&H High Court Seeks CBI Probe
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-murder-of-anti-drug-activist-recorded-i-seeks-cbi-probe-inquiry-into-accused-chemists-drug-and-arms-licences-554894
 
-[Read on Telegram](https://t.me/livelawindia/122509)
-
----
-### 2026-10-15T09:49:58+00:00
-“No One Can Survive Without Electricity In Modern Times”, Occupier Entitled To Connection Even If Property Is Disputed: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-says-right-to-electricity-is-a-facet-of-the-right-to-life-and-liberty-in-the-modern-era-554834
-
-[Read on Telegram](https://t.me/livelawindia/122510)
+[Read on Telegram](https://t.me/livelawindia/122545)
 
 ---
-### 2026-10-15T09:55:38+00:00
-'Time Of Essence': Kerala High Court Seeks Urgent Practical Inputs From Authorities For Ensuring Road Safety
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-road-safety-suo-motu-554836
+### 2026-10-15T12:59:39+00:00
+RJD MP Manoj Jha Moves Supreme Court Challenging Lifelong Immunity To CEC, Election Commissioners; Calls It 'Fraud On Constitution'
+https://www.livelaw.in/top-stories/supreme-court-cec-election-commissioners-section-16-lifelong-immunity-challenge-manoj-jha-554897
 
-[Read on Telegram](https://t.me/livelawindia/122511)
-
----
-### 2026-10-15T09:57:18+00:00
-Madras High Court Slams State For Denying RSS March Permission Citing Mosques On Route, Says 'Don't Give Muslims A Bad Name'
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-rss-route-march-citizens-right-cannot-be-surrendered-to-police-554837
-
-[Read on Telegram](https://t.me/livelawindia/122512)
+[Read on Telegram](https://t.me/livelawindia/122546)
 
 ---
-### 2026-10-15T10:01:38+00:00
-Supreme Court Sets Aside Orders Rejecting Waqf Trust's Objection To Execution Of Property Decree, Orders Fresh Inquiry
-https://www.livelaw.in/supreme-court/supreme-court-sets-aside-orders-rejecting-waqf-trusts-objection-to-execution-of-property-decree-orders-fresh-inquiry-554839
+### 2026-10-15T13:15:19+00:00
+No Offence Made Out Against Delhi CM Rekha Gupta Over Remarks On Lord Hanuman: Police Tells Court
+https://www.livelaw.in/news-updates/no-offence-made-out-against-delhi-cm-rekha-gupta-over-remarks-on-lord-hanuman-police-tells-court-554903
 
-[Read on Telegram](https://t.me/livelawindia/122513)
-
----
-### 2026-10-15T10:03:18+00:00
-2026 LiveLaw (SC) 1056 | | ALLADIN CHARITIES AND ZAKAT WAKF VERSUS MOHAMMED SALEEM ALIAS MOHD. WAJID ALI AND ANOTHER
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1056-alladin-charities-and-zakat-wakf-versus-mohammed-saleem-alias-mohd-wajid-ali-and-another-554840
-
-[Read on Telegram](https://t.me/livelawindia/122514)
+[Read on Telegram](https://t.me/livelawindia/122547)
 
 ---
-### 2026-10-15T10:06:58+00:00
-'Serious Allegations': Karnataka High Court Denies Anticipatory Bail To Lawyer Accused Of Rape, Caste-Based Abuse
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-hc-denies-anticipatory-bail-to-advocate-accused-of-rape-unnatural-offence-caste-based-abuse-554841
+### 2026-10-15T13:23:00+00:00
+Himachal Pradesh High Court Sets Aside ₹1.65 Crore Electricity Assessment For Lack Of Inspection
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-sets-aside-electricity-assessment-lack-of-inspection-section126-554788
 
-[Read on Telegram](https://t.me/livelawindia/122515)
-
----
-### 2026-10-15T10:16:18+00:00
-'Will Take Steps Against CJP, Abhijeet Dipke': Delhi Police Tells High Court In Plea Over Protest At Connaught Place
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-plea-against-cjp-protest-at-connaught-place-central-park-554843
-
-[Read on Telegram](https://t.me/livelawindia/122516)
+[Read on Telegram](https://t.me/livelawindia/122548)
 
 ---
-### 2026-10-15T10:16:58+00:00
-Sarvaank Associates Launches Dispute Resolution, Regulatory & Enforcement Practice
-https://www.livelaw.in/law-firms/professional-announcement/sarvaank-associates-launches-dispute-resolution-regulatory-enforcement-practice-554844
+### 2026-10-15T13:32:50+00:00
+Alleged Failure To Assess Decree-Holder's Mental Capacity Can't Be Reopened Under S. 47 CPC After Decree Attains Finality: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/failure-to-inquire-decree-holders-mental-capacity-cannot-reopen-section-47-cpc-decree-finality-554876
 
-[Read on Telegram](https://t.me/livelawindia/122517)
-
----
-### 2026-10-15T10:22:18+00:00
-Calcutta High Court Upholds Life Sentence Of Couple For Murder Of 6-Year-Old Girl, Concealing Body In Bag Under Cot
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-upholds-life-sentence-of-couple-for-murder-of-6-year-old-girl-concealing-body-in-bag-under-cot-554816
-
-[Read on Telegram](https://t.me/livelawindia/122518)
+[Read on Telegram](https://t.me/livelawindia/122549)
 
 ---
-### 2026-10-15T10:39:29+00:00
-Delhi Protests: SG Tushar Mehta Objects To 'Misleading' Reports On Govt Apology In Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-delhi-protest-cec-solicitor-general-tushar-mehta-apology-clarification-justice-bagchi-says-apology-qualified-554849
+### 2026-10-15T13:42:30+00:00
+'Scant Respect For Individual Liberty': Delhi High Court Slams 'Botched Up' Police Probe In Murder Case, Grants Bail
+https://www.livelaw.in/high-court/delhi-high-court/scant-respect-for-individual-liberty-delhi-high-court-slams-botched-up-police-probe-in-murder-case-grants-bail-554910
 
-[Read on Telegram](https://t.me/livelawindia/122519)
-
----
-### 2026-10-15T10:42:29+00:00
-Madras High Court Quashes FIR Against TVK MLA ECR Saravanan Over 'Unauthorised' Hoardings, Says No Public Structure Destroyed
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ecr-saravanan-fir-unauthorised-hoarding-quashed-554851
-
-[Read on Telegram](https://t.me/livelawindia/122520)
+[Read on Telegram](https://t.me/livelawindia/122550)
 
 ---
-### 2026-10-15T10:48:09+00:00
-Calcutta High Court Reduces Bangladeshi Woman's Sentence For Illegal Entry To Period Already Served, Orders Repatriation
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-reduces-bangladeshi-womans-sentence-for-illegal-entry-to-period-already-served-orders-repatriation-554819
+### 2026-10-15T13:58:10+00:00
+Calcutta High Court Sets Aside Appointment Of Govt College Principal, Says State Cannot Create 'Eminent Artist' Criteria Outside UGC Norms
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-cancels-appointment-of-govt-college-principal-holds-state-cannot-create-eminent-artist-category-outside-ugc-norms-554820
 
-[Read on Telegram](https://t.me/livelawindia/122521)
+[Read on Telegram](https://t.me/livelawindia/122551)
 
 ---
-### 2026-10-15T11:05:29+00:00
-Women Can Be Charged With Gang Rape Even If They Don't Physically Commit Rape: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/women-can-be-charged-with-gang-rape-even-if-they-dont-physically-commit-rape-delhi-high-court-554857
+### 2026-10-15T14:02:10+00:00
+Pharma License Can't Be Suspended After Issuing Show Cause Notice Without Opportunity To Submit Reply: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-pharma-company-license-suspension-show-cause-notice-554879
 
-[Read on Telegram](https://t.me/livelawindia/122522)
+[Read on Telegram](https://t.me/livelawindia/122552)
+
+---
+### 2026-10-15T14:10:30+00:00
+Menstrual Hygiene A Fundamental Right: Supreme Court Warns States Of Contempt Over Non-Implementation Of Directions
+https://www.livelaw.in/top-stories/menstrual-hygiene-a-fundamental-right-supreme-court-warns-states-of-contempt-over-non-implementation-of-directions-554915
+
+[Read on Telegram](https://t.me/livelawindia/122553)
+
+---
+### 2026-10-15T14:36:20+00:00
+LiveLaw Daily|No RSS March?|Gang-rape charge against women| Delhi Protests & Rahul Gandhi & more
+https://www.livelaw.in/podcast/livelaw-daily-rahul-gandhi-supreme-court-delhi-protests-police-violence-gyanesh-kumar-rajpal-yadav-news-india-legal-554917
+
+[Read on Telegram](https://t.me/livelawindia/122554)
+
+---
+### 2026-10-15T15:04:00+00:00
+RBI Was Mere Bystander When YES Bank Carried Out Business Clandestinely : Supreme Court
+https://www.livelaw.in/supreme-court/rbi-was-mere-bystander-when-yes-bank-carried-out-business-clandestinely-supreme-court-554919
+
+[Read on Telegram](https://t.me/livelawindia/122555)
+
+---
+### 2026-10-15T15:05:20+00:00
+2026 LiveLaw (SC) 1060 | YES BANK LIMITED & ANR. VERSUS AXIS TRUSTEE SERVICES LIMITED & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1060-yes-bank-limited-anr-versus-axis-trustee-services-limited-ors-554920
+
+[Read on Telegram](https://t.me/livelawindia/122556)
+
+---
+### 2026-10-15T15:14:10+00:00
+Kia Seltos Dashboard Glare Case: Delhi Consumer Commission Holds Kia India, Authorised Dealer Guilty Of Unfair Trade Practice
+https://www.livelaw.in/consumer-cases/kia-seltos-dashboard-glare-case-delhi-consumer-commission-holds-kia-india-authorised-dealer-guilty-of-unfair-trade-practice-554921
+
+[Read on Telegram](https://t.me/livelawindia/122557)
+
+---
+### 2026-10-15T15:53:10+00:00
+Call For Papers: Indian Arbitration Law Review Invites Submissions For Volume IX
+https://www.livelaw.in/lawschool/call-for-papers/indian-arbitration-law-review-invites-submissions-for-volume-ix-554924
+
+[Read on Telegram](https://t.me/livelawindia/122558)
+
+---
+### 2026-10-15T16:03:20+00:00
+SCBA Files Contempt Petition Against Journalist Nikhil Wagle & MP Sanjay Raut For Comments Against CJI Surya Kant
+https://www.livelaw.in/top-stories/scba-files-contempt-petition-against-journalist-nikhil-wagle-mp-sanjay-raut-for-comments-against-cji-surya-kant-554925
+
+[Read on Telegram](https://t.me/livelawindia/122559)
+
+---
+### 2026-10-15T16:10:00+00:00
+Supreme Court Flags AI-Generated Fake Judgments In Compilation Filed By Party
+https://www.livelaw.in/supreme-court/supreme-court-flags-ai-generated-fake-judgments-in-compilation-filed-by-party-554926
+
+[Read on Telegram](https://t.me/livelawindia/122560)
+
+---
+### 2026-10-15T16:11:20+00:00
+2026 LiveLaw (SC) 1061 | Deepak Raheja and Another v. Omkara Assets Reconstruction Private Ltd. and Another
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1061-deepak-raheja-and-another-v-omkara-assets-reconstruction-private-ltd-and-another-554927
+
+[Read on Telegram](https://t.me/livelawindia/122561)
 
 ---
