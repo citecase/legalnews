@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-15T11:33:16+00:00*
+*Last Updated: 2026-10-15T16:02:30+00:00*
+
+---
+
+### 2026-10-15T16:02:30+00:00
+Prosecutor Not Mouthpiece Of Police; Must Function Fearlessly & Take Independent Decisions: Madras High Court
+https://www.verdictum.in/madras-high-court/rajaikumar-v-the-home-secretary-prosecutor-mouthpiece-police-adverse-remark-1624054
+
+[Source Link](https://t.me/verdictumlegalupdates/29711)
+
+---
+
+### 2026-10-15T15:32:29+00:00
+Allahabad High Court Directs State Election Commission To Complete Village Panchayat Elections Within 3 Months With Existing 27% OBC Reservation
+https://www.verdictum.in/allahabad-high-court/dashrath-yadav-v-state-of-uttar-pradesh-and-others-along-with-connected-matters-1624066
+
+[Source Link](https://t.me/verdictumlegalupdates/29710)
+
+---
+
+### 2026-10-15T15:03:08+00:00
+“Order Of Foreign Court Must Yield To Welfare Of Child”: Karnataka High Court Refuses Father’s Plea To Return Daughter To Canada
+https://www.verdictum.in/karnataka-high-court/pn-v-state-of-karnataka-and-others-child-custody-habeas-corpus-foreign-court-1624065
+
+[Source Link](https://t.me/verdictumlegalupdates/29709)
+
+---
+
+### 2026-10-15T14:32:47+00:00
+Vendor Moves Delhi High Court Against CJP’s Connaught Place Protest On Oct 16; Police Assure Steps To Prevent Disruption
+https://www.verdictum.in/delhi-high-court/delhi-police-assure-action-against-cjp-protest-on-oct-16-connaught-place-vendors-1624069
+
+[Source Link](https://t.me/verdictumlegalupdates/29708)
+
+---
+
+### 2026-10-15T14:02:41+00:00
+Commitment Must Be To Justice, Not Selective Outrage: Harvard Alumni Condemn Targeting Of Institutions After Another Group Supported Shadan Farasat
+https://www.verdictum.in/news/harvard-alumni-condemn-targeting-of-constitutional-institutions-shadan-farasat-1624068
+
+[Source Link](https://t.me/verdictumlegalupdates/29707)
+
+---
+
+### 2026-10-15T13:33:20+00:00
+Kerala High Court Allows UIDAI To Compare Suspects’ Fingerprints To Those Available In Its Database In Double Murder Case Investigation
+https://www.verdictum.in/kerala-high-court/the-state-of-kerala-v-govt-of-india-2026ker78637-uidai-fingerprints-suspects-database-1624055
+
+[Source Link](https://t.me/verdictumlegalupdates/29706)
+
+---
+
+### 2026-10-15T13:02:39+00:00
+Imran Khan Asked To Leave India After Participating In Mumbai Protest: What Law Says On Rights Of OCI Cardholders
+https://www.verdictum.in/news/actor-imran-khan-mumbai-protest-deportation-election-commissioner-gyanesh-kumar-1624062
+
+[Source Link](https://t.me/verdictumlegalupdates/29705)
+
+---
+
+### 2026-10-15T12:32:38+00:00
+Recording Public Servants On Duty In Public Is Not Criminal Force Or Obstruction U/S 353 IPC: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/mehul-mansukhbhai-boghara-v-state-of-gujarat-criminal-force-obstruction-353-ipc-1624053
+
+[Source Link](https://t.me/verdictumlegalupdates/29704)
+
+---
+
+### 2026-10-15T12:02:57+00:00
+Children Born From Void Marriages Cannot Be Denied Railway Passes Or Other Benefits: Bombay High Court Quashes Railway Board Circular
+https://www.verdictum.in/bombay-high-court/kiran-tukaram-shelke-v-union-of-india-and-others-2026bhc-as41837-db-1624050
+
+[Source Link](https://t.me/verdictumlegalupdates/29703)
 
 ---
 
@@ -89,78 +161,6 @@ SC/ST Rights Group Seeks Public Apology From Rahul Gandhi For March Into Supreme
 https://www.verdictum.in/news/dastak-unconditional-public-apology-rahul-gandhi-october-12-supreme-court-incident-1624021
 
 [Source Link](https://t.me/verdictumlegalupdates/29692)
-
----
-
-### 2026-10-15T06:03:07+00:00
-Marriage In Ignorance Of POCSO Act May Not Be Disrupted: Allahabad High Court Asks Law Commission To Recommend Amendments
-https://www.verdictum.in/allahabad-high-court/a-v-state-of-up-2026ahc207289-db-family-ignorance-pocso-act-law-commission-amendments-1624016
-
-[Source Link](https://t.me/verdictumlegalupdates/29691)
-
----
-
-### 2026-10-15T05:31:07+00:00
-Breaking: Conversion Alone Doesn't Confer Membership In Backward Class Muslim Communities: Apex Court Upholds HC Striking Down Order On Reservation Benefits For Religious Converts
-https://www.verdictum.in/supreme-court/upholds-hc-striking-down-order-on-reservation-benefits-for-religious-converts-1624019
-
-[Source Link](https://t.me/verdictumlegalupdates/29690)
-
----
-
-### 2026-10-15T05:02:46+00:00
-Mere Failure Of Relationship Doesn’t Give Rise To Criminal Liability: Uttarakhand High Court Quashes Rape Case
-https://www.verdictum.in/uttarakhand-high-court/kunal-bhakat-v-state-of-uttarakhand-dissolution-relationship-criminal-liability-rape-1624008
-
-[Source Link](https://t.me/verdictumlegalupdates/29689)
-
----
-
-### 2026-10-15T04:32:56+00:00
-Karnataka High Court Imposes ₹15k Cost On Lawyer For Contending That God Can’t Represent Before Court Or Tribunal
-https://www.verdictum.in/karnataka-high-court/arala-damodar-prabhu-v-state-by-bantwal-town-police-2026khc56798-cost-lawyer-conduct-god-temple-1623989
-
-[Source Link](https://t.me/verdictumlegalupdates/29688)
-
----
-
-### 2026-10-14T16:02:59+00:00
-Senior Consultant (Law) Vacancy At EdCIL (India)
-https://www.verdictum.in/job-updates/edcil-india-1623979
-
-[Source Link](https://t.me/verdictumlegalupdates/29687)
-
----
-
-### 2026-10-14T15:32:58+00:00
-Property Acquired By Priest After Final Vows Cannot Be Treated As His Individual Property: Madras High Court
-https://www.verdictum.in/madras-high-court/the-abvm-society-of-the-catholic-apostolate-pallottines-v-a-deiva-nayagam-cmamd-nos-560-and-623-of-2026-diocesan-priests-jesus-christ-unattested-will-1623986
-
-[Source Link](https://t.me/verdictumlegalupdates/29686)
-
----
-
-### 2026-10-14T15:03:17+00:00
-Student Can’t Be Made To Suffer Because Of University’s Clerical Error: Supreme Court Directs Issuance Of Law Student’s Degree
-https://www.verdictum.in/supreme-court/stuti-sharma-v-manav-bharti-university-mbu-2026-insc-1117-student-university-clerical-error-law-degree-1623985
-
-[Source Link](https://t.me/verdictumlegalupdates/29685)
-
----
-
-### 2026-10-14T14:32:17+00:00
-Arraying Officer Or Department Without State As Juristic Entity Renders Writ Petition Involving Financial Liability Defective: Supreme Court
-https://www.verdictum.in/supreme-court/state-of-maharashtra-v-sudhir-2026-insc-1118-impleadment-state-juristic-entity-financial-liability-1623984
-
-[Source Link](https://t.me/verdictumlegalupdates/29684)
-
----
-
-### 2026-10-14T14:02:36+00:00
-Details Of Unauthorised Modifications & Alterations In Accident Vehicles Must Be Uploaded With Photos, Videos On e-DAR: Kerala High Court
-https://www.verdictum.in/kerala-high-court/suo-motu-v-union-of-india-and-others-2026ioker14-motor-vehicles-act-1623978
-
-[Source Link](https://t.me/verdictumlegalupdates/29683)
 
 ---
 
