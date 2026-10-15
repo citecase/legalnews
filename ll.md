@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-14T12:40:46+00:00*
+*Last Updated: 2026-10-14T12:58:17+00:00*
 
 ---
 
-### 2026-10-14T12:40:46+00:00
-Census 2027: P&H High Court Stays Communications Seeking Details Of Private School Teachers For Census Duty
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/census-2027-haryana-move-private-school-teachers-census-duty-stayed-554661
-
-[Read on Telegram](https://t.me/livelawindia/122413)
-
----
-### 2026-10-14T12:45:26+00:00
-P&H High Court Rejects Woman's Plea Claiming Arrest Was Illegal As Grounds Were In Punjabi
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-signed-grounds-of-arrest-in-punjabi-not-violative-of-constitution-article-22-without-a-objection-on-language-554662
-
-[Read on Telegram](https://t.me/livelawindia/122414)
-
----
-### 2026-10-14T12:50:47+00:00
-Kerala High Court Directs NHAI To Decide Representation Seeking Toll Deferment Over 'Incomplete' Highway Works
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-nhai-representation-deferment-toll-collection-nattika-toll-plaza-554665
-
-[Read on Telegram](https://t.me/livelawindia/122415)
-
----
-### 2026-10-14T12:51:37+00:00
-Delhi Protest Crackdown, Detentions and Violence Before Supreme Court | Here's what happened
-https://www.livelaw.in/videos/delhi-protests-delhi-police-lawyers-scba-supreme-court-rahul-gandhi-india-bloc-news-india-554666
-
-[Read on Telegram](https://t.me/livelawindia/122416)
-
----
-### 2026-10-14T12:57:17+00:00
-Saurav Das, Ashutosh Ranka in Custody For Trespassing At Jantar Mantar? | Here's what happened
-https://www.livelaw.in/videos/jantar-mantar-saurav-das-ashutosh-ranka-cockroach-janta-party-cjp-jantar-mantar-554667
-
-[Read on Telegram](https://t.me/livelawindia/122417)
-
----
 ### 2026-10-14T12:58:17+00:00
 S. 62 IBC | Limitation For Filing Appeal Runs From NCLAT Order Pronouncement, Not Receipt Of Certified Copy : Supreme Court
 https://www.livelaw.in/supreme-court/supreme-court-ibc-section-62-nclat-order-appeal-limitation-prnouncement-certified-copy-554668
@@ -142,5 +107,40 @@ LiveLaw High Courts Daily Highlights: October 14, 2026
 https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-14-2026-554686
 
 [Read on Telegram](https://t.me/livelawindia/122432)
+
+---
+### 2026-10-15T02:27:35+00:00
+Supreme Court Hearing On Delhi CEC Protest Crackdown [Live Updates]
+https://www.livelaw.in/top-stories/supreme-court-hearing-on-delhi-cec-protest-crackdown-live-updates-554705
+
+[Read on Telegram](https://t.me/livelawindia/122433)
+
+---
+### 2026-10-15T02:42:05+00:00
+Supreme Court To Hear Pleas On Delhi Protest Crackdown, Rahul Gandhi's Plea Against ECI's SIR Today
+https://www.livelaw.in/top-stories/supreme-court-to-hear-pleas-on-delhi-protest-crackdown-rahul-gandhis-plea-against-ecis-sir-today-554719
+
+[Read on Telegram](https://t.me/livelawindia/122434)
+
+---
+### 2026-10-15T03:21:05+00:00
+Rahul Gandhi & Others v Election Commission of India : Live Updates From Supreme Court
+https://www.livelaw.in/top-stories/rahul-gandhi-others-v-election-commission-of-india-live-updates-from-supreme-court-554720
+
+[Read on Telegram](https://t.me/livelawindia/122435)
+
+---
+### 2026-10-15T03:33:15+00:00
+Karnataka High Court Refuses To Quash FIR Against Doctor, Hospital Management Booked Over Amputation Of Infant's Finger
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-allows-probe-against-doctor-hospital-management-finger-amputation-case-554706
+
+[Read on Telegram](https://t.me/livelawindia/122436)
+
+---
+### 2026-10-15T03:47:15+00:00
+Father Can't Seek Child's Custody Through Habeas Corpus Without Exceptional Circumstances: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-habeas-corpus-writ-child-custody-mother-absence-exceptional-circumstances-554707
+
+[Read on Telegram](https://t.me/livelawindia/122437)
 
 ---
