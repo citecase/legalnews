@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-16T08:12:54+00:00*
+*Last Updated: 2026-10-16T12:15:05+00:00*
 
 ---
 
-### 2026-10-16T08:12:54+00:00
-No HC Leave Required Under Section 378(3) CrPC To Appeal Acquittal Before Sessions Court: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/no-high-court-leave-appeal-acquittal-before-sessions-court-554794
+### 2026-10-16T12:15:05+00:00
+Free Legal Aid In Prison No Ground To Deny Parole To Convict Seeking Lawyer Of Choice To File SLP: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/free-legal-aid-in-prison-no-ground-to-deny-parole-to-convict-seeking-lawyer-of-choice-to-file-slp-delhi-high-court-555074
 
-[Read on Telegram](https://t.me/livelawindia/122610)
-
----
-### 2026-10-16T08:22:54+00:00
-After 14 Years Of Service, Allahabad High Court Quashes Appointment Made From Expired Select List; But Refuses To Recover Salary Paid
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-select-list-1947ministerial-establishment-rules-555015
-
-[Read on Telegram](https://t.me/livelawindia/122611)
+[Read on Telegram](https://t.me/livelawindia/122638)
 
 ---
-### 2026-10-16T08:29:54+00:00
-HNLU Launches First Cohort Of विधि सारथी – Justice Connect Litigation Fellowship
-https://www.livelaw.in/lawschool/news/hnlu-launches-first-cohort-justice-connect-litigation-fellowship-555019
+### 2026-10-16T12:19:05+00:00
+Bombay High Court Seeks Credentials Of Congress, PUCL, AITUC In Pleas Challenging Maharashtra Special Public Security Act
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-seeks-credentials-of-congress-pucl-aituc-in-pleas-challenging-maharashtra-special-public-security-act-555076
 
-[Read on Telegram](https://t.me/livelawindia/122612)
-
----
-### 2026-10-16T08:32:34+00:00
-Goods Owner Travelling In Truck With His Goods Not A Gratuitous Passenger; Insurer Liable: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-holds-insurer-liable-injuries-goods-owner-travelling-goods-carriage-555012
-
-[Read on Telegram](https://t.me/livelawindia/122613)
+[Read on Telegram](https://t.me/livelawindia/122639)
 
 ---
-### 2026-10-16T08:33:34+00:00
-There's Stark Non-Compliance With Direction For Cadre Review Of CAPFs, Says Supreme Court
-https://www.livelaw.in/top-stories/theres-stark-non-compliance-with-direction-for-cadre-review-of-capfs-says-supreme-court-555020
+### 2026-10-16T12:24:05+00:00
+Veeramani POCSO Case: Madras High Court Refuses To Entertain Fresh Plea For CBI Probe, Calls It Attempt To Stall Proceedings
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-gem-veeramani-pocso-fresh-plea-cbi-probe-not-entertained-555077
 
-[Read on Telegram](https://t.me/livelawindia/122614)
-
----
-### 2026-10-16T08:34:14+00:00
-CM Vijay Asking Children To Persuade Parents To Vote For TVK Not 'Corrupt Practice': Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-cm-joseph-vijay-asking-kids-persuade-family-vote-tvk-not-corrupt-practice-555021
-
-[Read on Telegram](https://t.me/livelawindia/122615)
+[Read on Telegram](https://t.me/livelawindia/122640)
 
 ---
-### 2026-10-16T08:41:14+00:00
-Give Mahua Moitra Circuit House Accommodation As Per Protocol After She Gives One Day's Notice: Supreme Court To West Bengal Authorities
-https://www.livelaw.in/top-stories/give-mahua-moitra-circuit-house-accommodation-as-per-protocol-after-she-gives-one-days-notice-supreme-court-to-west-bengal-authorities-555024
+### 2026-10-16T12:32:25+00:00
+Delhi High Court Refuses To Stay Probe Against Woman Journalist Booked By ACP Vivek Bhagat Under SC/ST Act
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-to-stay-probe-against-woman-journalist-booked-by-acp-vivek-bhagat-under-scst-act-555079
 
-[Read on Telegram](https://t.me/livelawindia/122616)
-
----
-### 2026-10-16T08:42:54+00:00
-State Can Devise Own Palm Oil Pricing Formula, But Must Be Based On Relevant Data: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-independent-pricing-power-state-govt-andhra-pradesh-oil-palm-act-555016
-
-[Read on Telegram](https://t.me/livelawindia/122617)
+[Read on Telegram](https://t.me/livelawindia/122641)
 
 ---
-### 2026-10-16T08:53:24+00:00
-Passenger's Fatal Fall From Overcrowded Local Train: Calcutta High Court Awards ₹8 Lakh Compensation Despite Missing Ticket
-https://www.livelaw.in/high-court/calcutta-high-court/passengers-fatal-fall-from-overcrowded-local-train-calcutta-high-court-awards-8-lakh-compensation-despite-missing-ticket-554983
+### 2026-10-16T12:35:25+00:00
+'If No Concrete Steps Taken, We Will Sit On Dharna' : Supreme Court To Centre On Lack Of Pedestrian Crossing Near Delhi HC
+https://www.livelaw.in/top-stories/if-no-concrete-steps-taken-we-will-sit-on-dharna-supreme-court-to-centre-on-lack-of-pedestrian-crossing-near-delhi-hc-555080
 
-[Read on Telegram](https://t.me/livelawindia/122618)
-
----
-### 2026-10-16T09:01:44+00:00
-Delhi High Court Closes PIL Against Use Of 'Shoorveer' Song In Mirzapur Movie, Notes Track Removed
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-closes-pil-against-use-of-shoorveer-song-in-mirzapur-movie-notes-track-removed-555027
-
-[Read on Telegram](https://t.me/livelawindia/122619)
+[Read on Telegram](https://t.me/livelawindia/122642)
 
 ---
-### 2026-10-16T09:20:44+00:00
-Delhi SIR: High Court Allows Voters Whose Names Were Deleted From Electoral Rolls To Apply Through Form 6, Finds Apprehension 'Misplaced'
-https://www.livelaw.in/high-court/delhi-high-court/delhi-sir-high-court-allows-voters-whose-names-were-deleted-from-electoral-rolls-to-apply-through-form-6-finds-apprehension-misplaced-555029
+### 2026-10-16T12:38:05+00:00
+Firecracker Ban On Roads Applies To All Festivities Year-Round Across Maharashtra: Bombay High Court Clarifies
+https://www.livelaw.in/high-court/bombay-high-court/firecracker-ban-on-roads-applies-to-all-festivities-year-round-across-maharashtra-bombay-high-court-clarifies-555082
 
-[Read on Telegram](https://t.me/livelawindia/122620)
-
----
-### 2026-10-16T09:28:04+00:00
-Counterclaim Need Not Concern Same Property As Suit: Bombay High Court Restores Claim, Says Plaintiff's Exclusion Request Is Not Binding
-https://www.livelaw.in/high-court/bombay-high-court/counterclaim-need-not-concern-same-property-suit-555004
-
-[Read on Telegram](https://t.me/livelawindia/122621)
+[Read on Telegram](https://t.me/livelawindia/122643)
 
 ---
-### 2026-10-16T09:32:44+00:00
-Rat Or Tail?
-https://www.livelaw.in/articles/rat-tail-554957
+### 2026-10-16T12:43:05+00:00
+Supreme Court Asks ECI To Produce Video Records Of Vote-Counting In 2023 Sringeri Assembly Election
+https://www.livelaw.in/top-stories/supreme-court-asks-eci-to-produce-video-records-of-vote-counting-in-2023-sringeri-assembly-election-555085
 
-[Read on Telegram](https://t.me/livelawindia/122622)
-
----
-### 2026-10-16T09:33:04+00:00
-Suspension Of Table Tennis Federation Prima Facie Arbitrary: Delhi High Court Seeks Centre's Response
-https://www.livelaw.in/high-court/delhi-high-court/suspension-of-table-tennis-federation-prima-facie-arbitrary-delhi-high-court-seeks-centres-response-555030
-
-[Read on Telegram](https://t.me/livelawindia/122623)
+[Read on Telegram](https://t.me/livelawindia/122644)
 
 ---
-### 2026-10-16T09:41:34+00:00
-Twisha Sharma Death | Supreme Court Stays Trial, Issues Notice On Father's Plea To Transfer Case To Delhi
-https://www.livelaw.in/top-stories/twisha-sharma-death-supreme-court-stays-trial-issues-notice-on-fathers-plea-to-transfer-case-to-delhi-555031
+### 2026-10-16T12:48:35+00:00
+Supreme Court Grants Bail To Former RG Kar College Principal Sandip Ghosh In CBI Case
+https://www.livelaw.in/top-stories/supreme-court-grants-bail-to-former-rg-kar-college-principal-sandip-ghosh-in-cbi-case-555086
 
-[Read on Telegram](https://t.me/livelawindia/122624)
-
----
-### 2026-10-16T10:06:34+00:00
-Delhi Riots: High Court Allows Natasha Narwal Plea To To UK For Academic Conference
-https://www.livelaw.in/high-court/delhi-high-court/delhi-riots-high-court-allows-natasha-narwal-plea-to-to-uk-for-academic-conference-555034
-
-[Read on Telegram](https://t.me/livelawindia/122625)
+[Read on Telegram](https://t.me/livelawindia/122645)
 
 ---
-### 2026-10-16T10:12:34+00:00
-Karnataka High Court Quashes FIRs Against Amit Malviya, Arnab Goswami Over Congress Party's Turkey Office Claim
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-fir-amit-malviya-arnab-goswami-istanbul-congress-centre-tv-claim-555036
+### 2026-10-16T12:51:35+00:00
+Twisha Sharma Dowry Death Case: MP High Court Lists Giribala Singh's Bail Plea For Final Hearing On October 26
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-lists-giribala-singhs-bail-plea-on-october-26-555087
 
-[Read on Telegram](https://t.me/livelawindia/122626)
-
----
-### 2026-10-16T10:12:54+00:00
-No Deportation Of Alleged Bangladeshi Woman Till CAA Citizenship Application Is Decided: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/no-deportation-of-alleged-bangladeshi-woman-till-caa-citizenship-application-is-decided-calcutta-high-court-554993
-
-[Read on Telegram](https://t.me/livelawindia/122627)
+[Read on Telegram](https://t.me/livelawindia/122646)
 
 ---
-### 2026-10-16T10:25:34+00:00
-Mere Participation In A Protest Can't Be Equated With Participation In Every Connected Offence: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-participation-protest-equated-participation-every-connected-offence-555039
+### 2026-10-16T12:57:55+00:00
+Madras High Court Seeks Data On Matrimonial Disputes Involving COVID-Era Marriages, To Explore New Ways For Amicable Resolution
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-corona-divorce-data-sought-amicable-settlement-considered-555090
 
-[Read on Telegram](https://t.me/livelawindia/122628)
+[Read on Telegram](https://t.me/livelawindia/122647)
 
 ---
-### 2026-10-16T11:02:25+00:00
-Karnataka High Court Directs State To Set Up District-Level Committees To Deal With Illegal Immigrants Within 3 Months
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-fir-bengaluru-doctor-directs-deport-illegal-immigrants-555046
+### 2026-10-16T13:32:56+00:00
+Employees Appointed Before 2004 Eligible For Old Pension Scheme Even If Regularised Later: P&H High Court Rejects PGIMER's Plea
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-upholds-cat-order-against-pgimer-pre-2004-work-charged-employees-regularised-555010
 
-[Read on Telegram](https://t.me/livelawindia/122629)
+[Read on Telegram](https://t.me/livelawindia/122648)
+
+---
+### 2026-10-16T13:43:06+00:00
+Mere Beating Five Days Before Suicide, Without Intent To Instigate Does Not Prove Abetment: Chhattisgarh High Court Acquits Accused
+https://www.livelaw.in/high-court/chhattisgarh-high-court/mere-beating-not-abetment-555006
+
+[Read on Telegram](https://t.me/livelawindia/122649)
+
+---
+### 2026-10-16T14:00:06+00:00
+Calcutta High Court Stays Order Allowing CPIM Book Stall During Durga Puja
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-stays-order-allowing-cpim-book-stall-during-durga-puja-555096
+
+[Read on Telegram](https://t.me/livelawindia/122650)
+
+---
+### 2026-10-16T14:13:26+00:00
+'Used Position To Facilitate Violence': Court Sentences Tahir Hussain To Two Years In Jail In Delhi Riots Case
+https://www.livelaw.in/news-updates/used-position-to-facilitate-violence-court-sentences-tahir-hussain-to-two-years-in-jail-in-delhi-riots-case-555098
+
+[Read on Telegram](https://t.me/livelawindia/122651)
+
+---
+### 2026-10-16T14:32:36+00:00
+Reassessing Criminalisation Of Cheque Dishonour
+https://www.livelaw.in/articles/reassessing-criminalisation-cheque-dishonour-554958
+
+[Read on Telegram](https://t.me/livelawindia/122652)
+
+---
+### 2026-10-16T14:37:36+00:00
+LiveLaw Daily| Mahua Moitra| Twisha Sharma Case| Rahul Gandhi Accused| Delhi Protests & more
+https://www.livelaw.in/podcast/mahua-moitra-rahul-gandhi-capf-cjp-twisha-sharma-news-law-legal-supreme-court-clat-555100
+
+[Read on Telegram](https://t.me/livelawindia/122653)
+
+---
+### 2026-10-16T14:42:36+00:00
+Delhi Protest | Supreme Court Refuses To Examine Challenge To Section 163 BNSS, Issues Notice On Plea Challenging S. 172 BNSS
+https://www.livelaw.in/top-stories/delhi-protest-supreme-court-refuses-to-examine-challenge-to-section-163-bnss-issues-notice-on-plea-challenging-s-172-bnss-555102
+
+[Read on Telegram](https://t.me/livelawindia/122654)
+
+---
+### 2026-10-16T14:47:16+00:00
+LiveLaw Supreme Court Weekly Digest: September 11 - 21, 2026
+https://www.livelaw.in/supreme-court/supreme-court-orders-and-judgments-weekly-digest-september-2026-555103
+
+[Read on Telegram](https://t.me/livelawindia/122655)
+
+---
+### 2026-10-16T15:09:56+00:00
+Supreme Court Stays Demolition Of CSI Church Built As Community Hall In Tamil Nadu's Tenkasi District
+https://www.livelaw.in/top-stories/supreme-court-stays-demolition-of-csi-church-built-as-community-hall-in-tamil-nadus-tenkasi-district-555106
+
+[Read on Telegram](https://t.me/livelawindia/122656)
+
+---
+### 2026-10-16T15:23:06+00:00
+High Court Seeks Chief Secretary's Affidavit In PIL On Punjab Government's Unpaid Power Subsidy,  Dues To PSPCL
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-seeks-chief-secretarys-affidavit-in-pil-on-punjab-governments-unpaid-power-subsidy-and-dues-to-pspcl-555107
+
+[Read on Telegram](https://t.me/livelawindia/122657)
 
 ---
