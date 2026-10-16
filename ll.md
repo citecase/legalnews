@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-15T12:32:29+00:00*
+*Last Updated: 2026-10-15T13:23:00+00:00*
 
 ---
 
-### 2026-10-15T12:32:29+00:00
-Additional Public Prosecutor Not State Employee; Cannot Be Prosecuted As 'Public Servant' Under PC Act: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/additional-public-prosecutor-cannot-prosecuted-public-servant-554796
-
-[Read on Telegram](https://t.me/livelawindia/122542)
-
----
-### 2026-10-15T12:40:49+00:00
-Authority Granting Prosecution Sanction Must Independently Assess Evidence, Uninfluenced By Trial Court's Prima Facie Finding: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-sanctioning-authority-must-independently-decide-prosecution-sanction-554889
-
-[Read on Telegram](https://t.me/livelawindia/122543)
-
----
-### 2026-10-15T12:47:29+00:00
-Madras High Court Closes Plea Seeking Expeditious Action On Complaint Against Udhayanidhi Stalin After Magistrate Issues Pre-Cognisance Notice
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-udhayanidhi-stalin-delay-numbering-complaint-corrupt-practice-554893
-
-[Read on Telegram](https://t.me/livelawindia/122544)
-
----
-### 2026-10-15T12:51:19+00:00
-Anti-Drug Activist Shot While Live Streaming: PIL In P&H High Court Seeks CBI Probe
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-murder-of-anti-drug-activist-recorded-i-seeks-cbi-probe-inquiry-into-accused-chemists-drug-and-arms-licences-554894
-
-[Read on Telegram](https://t.me/livelawindia/122545)
-
----
-### 2026-10-15T12:59:39+00:00
-RJD MP Manoj Jha Moves Supreme Court Challenging Lifelong Immunity To CEC, Election Commissioners; Calls It 'Fraud On Constitution'
-https://www.livelaw.in/top-stories/supreme-court-cec-election-commissioners-section-16-lifelong-immunity-challenge-manoj-jha-554897
-
-[Read on Telegram](https://t.me/livelawindia/122546)
-
----
-### 2026-10-15T13:15:19+00:00
-No Offence Made Out Against Delhi CM Rekha Gupta Over Remarks On Lord Hanuman: Police Tells Court
-https://www.livelaw.in/news-updates/no-offence-made-out-against-delhi-cm-rekha-gupta-over-remarks-on-lord-hanuman-police-tells-court-554903
-
-[Read on Telegram](https://t.me/livelawindia/122547)
-
----
 ### 2026-10-15T13:23:00+00:00
 Himachal Pradesh High Court Sets Aside ₹1.65 Crore Electricity Assessment For Lack Of Inspection
 https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-sets-aside-electricity-assessment-lack-of-inspection-section126-554788
@@ -142,5 +100,47 @@ https://www.livelaw.in/supreme-court/supreme-court-flags-ai-generated-fake-judgm
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1061-deepak-raheja-and-another-v-omkara-assets-reconstruction-private-ltd-and-another-554927
 
 [Read on Telegram](https://t.me/livelawindia/122561)
+
+---
+### 2026-10-16T01:16:42+00:00
+Supreme Court Asks Sanjay Raut To Explain Remarks Against CJI & Judges While Entertaining INDIA Bloc Petition
+https://www.livelaw.in/top-stories/supreme-court-asks-sanjay-raut-to-explain-remarks-against-cji-judges-while-entertaining-india-bloc-petition-554928
+
+[Read on Telegram](https://t.me/livelawindia/122562)
+
+---
+### 2026-10-16T02:48:42+00:00
+Repeated Document Demands, Health Claim Rejection: Delhi Consumer Commission Holds Niva Bupa Liable
+https://www.livelaw.in/consumer-cases/repeated-document-demands-health-claim-rejection-delhi-consumer-commission-holds-niva-bupa-liable-554929
+
+[Read on Telegram](https://t.me/livelawindia/122563)
+
+---
+### 2026-10-16T03:13:42+00:00
+S. 125 CrPC | Allahabad High Court Seeks Chief Justice's Consideration Of Rules For Notice To Alleged Co-Adulterer In Maintenance Cases
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-section-125-crpc-alleged-co-adulterer-554930
+
+[Read on Telegram](https://t.me/livelawindia/122564)
+
+---
+### 2026-10-16T03:23:42+00:00
+'Whether There Are Classes Among Journalists Who Require Additional Protection' : Supreme Court In Delhi Protest Matter
+https://www.livelaw.in/top-stories/supreme-court-journalists-freelancers-influencers-freedom-of-speech-and-expression-justice-bagchi-554931
+
+[Read on Telegram](https://t.me/livelawindia/122565)
+
+---
+### 2026-10-16T03:33:12+00:00
+Second Appeal Against Same Stamp Duty Order Not Maintainable After Earlier Appeal Withdrawn: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-second-appeal-stamp-act-against-same-order-once-first-appeal-withdrawn-554888
+
+[Read on Telegram](https://t.me/livelawindia/122566)
+
+---
+### 2026-10-16T03:54:12+00:00
+45 Years After Murder Conviction, Allahabad High Court Finds 2 Life Convicts Were 'Juveniles'; Remits Sentencing To JJB
+https://www.livelaw.in/high-court/allahabad-high-court/45-years-after-murder-conviction-allahabad-high-court-finds-2-life-convicts-were-juveniles-remits-sentencing-to-jjb-554932
+
+[Read on Telegram](https://t.me/livelawindia/122567)
 
 ---
