@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-16T11:22:45+00:00*
+*Last Updated: 2026-10-16T15:53:11+00:00*
+
+---
+
+### 2026-10-16T15:53:11+00:00
+Woman Can Also Be Charged With Offence Of Gang Rape: Delhi High Court
+https://www.verdictum.in/delhi-high-court/ans-xxx-v-state-of-nct-of-delhi-2026dhc9197-woman-can-be-charged-with-gang-rape-common-intention-mother-minor-son-1624141
+
+[Source Link](https://t.me/verdictumlegalupdates/29728)
+
+---
+
+### 2026-10-16T15:12:30+00:00
+Caste Membership Not Conclusive Proof Of Social Backwardness Under Article 16(4): Supreme Court Holds Conversion To Non-Hindu Religions Severs Entitlement Backward Class Reservation
+https://www.verdictum.in/supreme-court/2026-insc-1129-secretary-government-of-tamil-nadu-v-sameer-ahmed-1624140
+
+[Source Link](https://t.me/verdictumlegalupdates/29727)
+
+---
+
+### 2026-10-16T14:22:49+00:00
+Order Of A Foreign Court Must Yield To Welfare Of The Child; Indian Court Cannot Blindly Follow It Acting Merely As Executing Court: Supreme Court
+https://www.verdictum.in/supreme-court/v-v-state-of-karnataka-2026-insc-1130-wrongdoing-of-parent-welfare-of-cthe-child-comity-of-courts-foreign-court-matrimonial-dispute-1624139
+
+[Source Link](https://t.me/verdictumlegalupdates/29726)
+
+---
+
+### 2026-10-16T13:43:08+00:00
+Supreme Court Tells Mahua Moitra To Inform Nadia District Administration Day Prior To Her Visit For Accommodation
+https://www.verdictum.in/supreme-court/mahua-moitra-inform-nadia-district-administration-visit-for-accommodation-1624137
+
+[Source Link](https://t.me/verdictumlegalupdates/29725)
+
+---
+
+### 2026-10-16T13:23:07+00:00
+Supreme Court Stays Trial In Twisha Sharma Case, Seeks Response On Transfer Plea
+https://www.verdictum.in/supreme-court/supreme-court-stays-trial-in-twisha-sharma-case-seeks-response-on-transfer-plea-1624136
+
+[Source Link](https://t.me/verdictumlegalupdates/29724)
+
+---
+
+### 2026-10-16T13:02:47+00:00
+“Or Otherwise” Clause Operates As Absolute Bar On Pre-Award Interest; Arbitrator Cannot Act Contrary To Contract: Supreme Court
+https://www.verdictum.in/supreme-court/ms-sharma-enterprises-v-national-building-construction-corporation-2026-insc-1135-or-otherwise-clause-operates-as-absolute-bar-1624131
+
+[Source Link](https://t.me/verdictumlegalupdates/29723)
+
+---
+
+### 2026-10-16T12:12:26+00:00
+Compilation Replete With AI-Generated Non-Existing Judgments: Supreme Court Drops Proposed Costs Noticing Death Of Litigant
+https://www.verdictum.in/supreme-court/deepak-raheja-and-another-v-omkara-assets-reconstruction-private-limited-and-another-2026-insc-1134-1624126
+
+[Source Link](https://t.me/verdictumlegalupdates/29722)
 
 ---
 
@@ -105,62 +161,6 @@ https://www.verdictum.in/allahabad-high-court/dashrath-yadav-v-state-of-uttar-pr
 https://www.verdictum.in/karnataka-high-court/pn-v-state-of-karnataka-and-others-child-custody-habeas-corpus-foreign-court-1624065
 
 [Source Link](https://t.me/verdictumlegalupdates/29709)
-
----
-
-### 2026-10-15T14:32:47+00:00
-Vendor Moves Delhi High Court Against CJP’s Connaught Place Protest On Oct 16; Police Assure Steps To Prevent Disruption
-https://www.verdictum.in/delhi-high-court/delhi-police-assure-action-against-cjp-protest-on-oct-16-connaught-place-vendors-1624069
-
-[Source Link](https://t.me/verdictumlegalupdates/29708)
-
----
-
-### 2026-10-15T14:02:41+00:00
-Commitment Must Be To Justice, Not Selective Outrage: Harvard Alumni Condemn Targeting Of Institutions After Another Group Supported Shadan Farasat
-https://www.verdictum.in/news/harvard-alumni-condemn-targeting-of-constitutional-institutions-shadan-farasat-1624068
-
-[Source Link](https://t.me/verdictumlegalupdates/29707)
-
----
-
-### 2026-10-15T13:33:20+00:00
-Kerala High Court Allows UIDAI To Compare Suspects’ Fingerprints To Those Available In Its Database In Double Murder Case Investigation
-https://www.verdictum.in/kerala-high-court/the-state-of-kerala-v-govt-of-india-2026ker78637-uidai-fingerprints-suspects-database-1624055
-
-[Source Link](https://t.me/verdictumlegalupdates/29706)
-
----
-
-### 2026-10-15T13:02:39+00:00
-Imran Khan Asked To Leave India After Participating In Mumbai Protest: What Law Says On Rights Of OCI Cardholders
-https://www.verdictum.in/news/actor-imran-khan-mumbai-protest-deportation-election-commissioner-gyanesh-kumar-1624062
-
-[Source Link](https://t.me/verdictumlegalupdates/29705)
-
----
-
-### 2026-10-15T12:32:38+00:00
-Recording Public Servants On Duty In Public Is Not Criminal Force Or Obstruction U/S 353 IPC: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/mehul-mansukhbhai-boghara-v-state-of-gujarat-criminal-force-obstruction-353-ipc-1624053
-
-[Source Link](https://t.me/verdictumlegalupdates/29704)
-
----
-
-### 2026-10-15T12:02:57+00:00
-Children Born From Void Marriages Cannot Be Denied Railway Passes Or Other Benefits: Bombay High Court Quashes Railway Board Circular
-https://www.verdictum.in/bombay-high-court/kiran-tukaram-shelke-v-union-of-india-and-others-2026bhc-as41837-db-1624050
-
-[Source Link](https://t.me/verdictumlegalupdates/29703)
-
----
-
-### 2026-10-15T11:33:16+00:00
-Students Must Know Professional Course Fee Before Admission; Mid-Course Hike Only In Exceptional Circumstances: Supreme Court
-https://www.verdictum.in/supreme-court/dr-bc-roy-engineering-college-v-the-state-of-west-bengal-2026-insc-1120-fee-liability-students-college-financial-1624048
-
-[Source Link](https://t.me/verdictumlegalupdates/29702)
 
 ---
 
