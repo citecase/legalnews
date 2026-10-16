@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-16T04:32:36+00:00*
+*Last Updated: 2026-10-16T11:22:45+00:00*
+
+---
+
+### 2026-10-16T11:22:45+00:00
+Administrator Cannot Assume RBI’s Regulatory Role & Write Down AT-1 Bonds After Reconstruction Scheme Omitted Write-Down Clause: Supreme Court In YES Bank Case
+https://www.verdictum.in/supreme-court/yes-bank-limited-v-axis-trustee-services-limited-2026-insc-1132-reserve-bank-of-india-rbis-regulatory-role-write-down-at-1-bonds-1624125
+
+[Source Link](https://t.me/verdictumlegalupdates/29721)
+
+---
+
+### 2026-10-16T10:33:04+00:00
+Supreme Court Seeks Response From Centre & NCPCR In Plea Seeking Framework To Protect Children From Social Media Risks
+https://www.verdictum.in/supreme-court/supreme-court-plea-seeking-framework-to-protect-children-from-social-media-risks-1624123
+
+[Source Link](https://t.me/verdictumlegalupdates/29720)
+
+---
+
+### 2026-10-16T09:52:23+00:00
+Majesty Of Law Restored: Meghalaya High Court Purges Advocates Of Contempt After Apology & Withdrawal Of Call For Abstention
+https://www.verdictum.in/meghalaya-high-court/registrar-general-high-court-of-meghalaya-v-state-of-meghalaya-2026mlhc1154-db-advocate-boycott-strike-apology-contempt-1624109
+
+[Source Link](https://t.me/verdictumlegalupdates/29719)
+
+---
+
+### 2026-10-16T09:02:42+00:00
+Supreme Court Seeks Centre's Response On Plea To Frame Guidelines Governing All Forms of 'Talaq'
+https://www.verdictum.in/supreme-court/supreme-court-seeks-centres-response-on-plea-to-frame-guidelines-governing-all-forms-of-talaq-1624118
+
+[Source Link](https://t.me/verdictumlegalupdates/29718)
+
+---
+
+### 2026-10-16T08:23:21+00:00
+Supreme Court: Arrest Order & Material To Be Forwarded To Adjudicating Authority U/s. 19 PMLA  "Immediately", Meaning "Expeditiously & Simultaneously"
+https://www.verdictum.in/supreme-court/sanjay-sureka-sanjay-kumar-sureka-v-directorate-of-enforcement-2026-insc-1124-arrest-order-timeline-pmla-1624110
+
+[Source Link](https://t.me/verdictumlegalupdates/29717)
+
+---
+
+### 2026-10-16T07:34:20+00:00
+Have Protected Their Rights Still They Keep Condemning, Very Unfortunate: Apex Court Issues Notice To Nikhil Wagle, Sanjay Raut On Contempt Plea Over Remarks Against CJI
+https://www.verdictum.in/supreme-court/issues-notice-journalist-nikhil-wagle-mp-sanjay-raut-on-contempt-plea-remarks-against-cji-1624112
+
+[Source Link](https://t.me/verdictumlegalupdates/29716)
+
+---
+
+### 2026-10-16T06:53:19+00:00
+Calcutta High Court Rejects Anticipatory Bail Plea Of Ex-TMC Minister Indranil Sen In Durga Puja Pandal Tickets Scam
+https://www.verdictum.in/calcutta-high-court/in-the-matter-of-indranil-sen-anticipatory-bail-plea-ex-tmc-indranil-sen-durga-puja-pandal-scam-1624100
+
+[Source Link](https://t.me/verdictumlegalupdates/29715)
+
+---
+
+### 2026-10-16T06:02:18+00:00
+We Hope Better Sense Will Prevail On Everyone: Supreme Court Declines Same-Day Listing On Plea Against Connaught Place Protest, Schedules Matter For October 26
+https://www.verdictum.in/supreme-court/declines-same-day-listing-plea-against-connaught-place-protest-central-park-cockroach-janta-party-october-26-1624097
+
+[Source Link](https://t.me/verdictumlegalupdates/29714)
+
+---
+
+### 2026-10-16T05:22:57+00:00
+Decide Execution Applications In Maintenance Cases Within Six Months: Allahabad High Court To Trial Courts
+https://www.verdictum.in/allahabad-high-court/a-v-state-of-up-2026ahc214414-execution-application-maintenance-case-1624092
+
+[Source Link](https://t.me/verdictumlegalupdates/29713)
 
 ---
 
@@ -89,78 +161,6 @@ Students Must Know Professional Course Fee Before Admission; Mid-Course Hike Onl
 https://www.verdictum.in/supreme-court/dr-bc-roy-engineering-college-v-the-state-of-west-bengal-2026-insc-1120-fee-liability-students-college-financial-1624048
 
 [Source Link](https://t.me/verdictumlegalupdates/29702)
-
----
-
-### 2026-10-15T11:02:56+00:00
-Limitation Period For Appeal U/S 62 IBC Commences On Date NCLAT Pronounces Order: Supreme Court
-https://www.verdictum.in/supreme-court/the-assistant-commissioner-of-central-tax-v-sreenivasa-rao-ravinuthala-2026-insc-1121-1624047
-
-[Source Link](https://t.me/verdictumlegalupdates/29701)
-
----
-
-### 2026-10-15T10:33:15+00:00
-Supreme Court Asks Trial Court To Release Passport Of Rajpal Yadav, Refers Cheque-Bounce Dispute To Mediation
-https://www.verdictum.in/supreme-court/rajpal-yadav-cheque-bounce-dispute-referred-mediation-1624044
-
-[Source Link](https://t.me/verdictumlegalupdates/29700)
-
----
-
-### 2026-10-15T10:02:54+00:00
-Delhi High Court Refuses Urgent Hearing To Journalist In 'Casteist' Remark Case Filed By ACP Vivek Bhagat
-https://www.verdictum.in/delhi-high-court/urgent-hearing-to-journalist-in-casteist-remark-case-filed-by-acp-vivek-bhagat-refused-1624040
-
-[Source Link](https://t.me/verdictumlegalupdates/29699)
-
----
-
-### 2026-10-15T09:32:13+00:00
-Delhi Protests|Supreme Court Issues Notices On All Pleas, Protects Women Journalist From Coercive Action After She Accused ACP For Harassment
-https://www.verdictum.in/supreme-court/issues-notices-on-all-pleas-protects-women-journalist-accused-acp-harassment-coercive-action-1624043
-
-[Source Link](https://t.me/verdictumlegalupdates/29698)
-
----
-
-### 2026-10-15T09:02:52+00:00
-Superior Officer’s Report, Public Servant’s Version Must Be Considered Before Ordering Probe U/S 175(4) BNSS: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/sandhya-jaisawal-v-state-of-up-and-another-2026ahc214563-section-1754-bnss-1624034
-
-[Source Link](https://t.me/verdictumlegalupdates/29697)
-
----
-
-### 2026-10-15T08:17:52+00:00
-Supreme Court Issues Notice On Plea Challenging Delhi Police Order De-notifying Jantar Mantar As Protest Site
-https://www.verdictum.in/supreme-court/plea-challenging-delhi-police-order-de-notifying-jantar-mantar-as-protest-site-1624038
-
-[Source Link](https://t.me/verdictumlegalupdates/29696)
-
----
-
-### 2026-10-15T07:46:31+00:00
-We Will Ask One Of Them To Explain Conduct On Next Date: Supreme Court Says While Issuing Notice In Rahul Gandhi's Plea Challenging SIR Process
-https://www.verdictum.in/supreme-court/asks-rahul-gandhi-issuing-notice-challenging-sir-process-1624032
-
-[Source Link](https://t.me/verdictumlegalupdates/29695)
-
----
-
-### 2026-10-15T07:32:50+00:00
-Rejection Of Highest Bid Needs Material Showing Current Inadequacy, Not Mere Comparison With Bidder’s Earlier Bid: Supreme Court
-https://www.verdictum.in/supreme-court/ms-dhanlaxmi-merchandise-pvt-ltd-v-state-of-madhya-pradesh-2026-insc-1125-rejection-of-highest-bid-public-interest-1624025
-
-[Source Link](https://t.me/verdictumlegalupdates/29694)
-
----
-
-### 2026-10-15T07:02:49+00:00
-Can Article 226 Jurisdiction Be Divided Into Civil And Criminal To Bar Intra-Court Appeals? Supreme Court Refers Question To Larger Bench
-https://www.verdictum.in/supreme-court/sanjay-prasad-v-madhusudan-dwivedi-others-2026-insc-1128-article-226-1624024
-
-[Source Link](https://t.me/verdictumlegalupdates/29693)
 
 ---
 
