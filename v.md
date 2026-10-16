@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-15T16:02:30+00:00*
+*Last Updated: 2026-10-16T04:32:36+00:00*
+
+---
+
+### 2026-10-16T04:32:36+00:00
+Unsubstantiated Claims Of Mental Disorder Amount To Legal Cruelty: Karnataka High Court Upholds Grant Of Divorce
+https://www.verdictum.in/karnataka-high-court/a-v-b-2026khc-k10230-db-unsubstantiated-claims-mental-disorder-legal-cruelty-1624064
+
+[Source Link](https://t.me/verdictumlegalupdates/29712)
 
 ---
 
@@ -153,14 +161,6 @@ Can Article 226 Jurisdiction Be Divided Into Civil And Criminal To Bar Intra-Cou
 https://www.verdictum.in/supreme-court/sanjay-prasad-v-madhusudan-dwivedi-others-2026-insc-1128-article-226-1624024
 
 [Source Link](https://t.me/verdictumlegalupdates/29693)
-
----
-
-### 2026-10-15T06:32:53+00:00
-SC/ST Rights Group Seeks Public Apology From Rahul Gandhi For March Into Supreme Court, Says Dr. Ambedkar's Ideals Were Trampled Upon
-https://www.verdictum.in/news/dastak-unconditional-public-apology-rahul-gandhi-october-12-supreme-court-incident-1624021
-
-[Source Link](https://t.me/verdictumlegalupdates/29692)
 
 ---
 
