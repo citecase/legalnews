@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-15T13:23:00+00:00*
+*Last Updated: 2026-10-16T08:12:54+00:00*
 
 ---
 
-### 2026-10-15T13:23:00+00:00
-Himachal Pradesh High Court Sets Aside ₹1.65 Crore Electricity Assessment For Lack Of Inspection
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-sets-aside-electricity-assessment-lack-of-inspection-section126-554788
+### 2026-10-16T08:12:54+00:00
+No HC Leave Required Under Section 378(3) CrPC To Appeal Acquittal Before Sessions Court: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/no-high-court-leave-appeal-acquittal-before-sessions-court-554794
 
-[Read on Telegram](https://t.me/livelawindia/122548)
-
----
-### 2026-10-15T13:32:50+00:00
-Alleged Failure To Assess Decree-Holder's Mental Capacity Can't Be Reopened Under S. 47 CPC After Decree Attains Finality: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/failure-to-inquire-decree-holders-mental-capacity-cannot-reopen-section-47-cpc-decree-finality-554876
-
-[Read on Telegram](https://t.me/livelawindia/122549)
+[Read on Telegram](https://t.me/livelawindia/122610)
 
 ---
-### 2026-10-15T13:42:30+00:00
-'Scant Respect For Individual Liberty': Delhi High Court Slams 'Botched Up' Police Probe In Murder Case, Grants Bail
-https://www.livelaw.in/high-court/delhi-high-court/scant-respect-for-individual-liberty-delhi-high-court-slams-botched-up-police-probe-in-murder-case-grants-bail-554910
+### 2026-10-16T08:22:54+00:00
+After 14 Years Of Service, Allahabad High Court Quashes Appointment Made From Expired Select List; But Refuses To Recover Salary Paid
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-select-list-1947ministerial-establishment-rules-555015
 
-[Read on Telegram](https://t.me/livelawindia/122550)
-
----
-### 2026-10-15T13:58:10+00:00
-Calcutta High Court Sets Aside Appointment Of Govt College Principal, Says State Cannot Create 'Eminent Artist' Criteria Outside UGC Norms
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-cancels-appointment-of-govt-college-principal-holds-state-cannot-create-eminent-artist-category-outside-ugc-norms-554820
-
-[Read on Telegram](https://t.me/livelawindia/122551)
+[Read on Telegram](https://t.me/livelawindia/122611)
 
 ---
-### 2026-10-15T14:02:10+00:00
-Pharma License Can't Be Suspended After Issuing Show Cause Notice Without Opportunity To Submit Reply: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-pharma-company-license-suspension-show-cause-notice-554879
+### 2026-10-16T08:29:54+00:00
+HNLU Launches First Cohort Of विधि सारथी – Justice Connect Litigation Fellowship
+https://www.livelaw.in/lawschool/news/hnlu-launches-first-cohort-justice-connect-litigation-fellowship-555019
 
-[Read on Telegram](https://t.me/livelawindia/122552)
-
----
-### 2026-10-15T14:10:30+00:00
-Menstrual Hygiene A Fundamental Right: Supreme Court Warns States Of Contempt Over Non-Implementation Of Directions
-https://www.livelaw.in/top-stories/menstrual-hygiene-a-fundamental-right-supreme-court-warns-states-of-contempt-over-non-implementation-of-directions-554915
-
-[Read on Telegram](https://t.me/livelawindia/122553)
+[Read on Telegram](https://t.me/livelawindia/122612)
 
 ---
-### 2026-10-15T14:36:20+00:00
-LiveLaw Daily|No RSS March?|Gang-rape charge against women| Delhi Protests & Rahul Gandhi & more
-https://www.livelaw.in/podcast/livelaw-daily-rahul-gandhi-supreme-court-delhi-protests-police-violence-gyanesh-kumar-rajpal-yadav-news-india-legal-554917
+### 2026-10-16T08:32:34+00:00
+Goods Owner Travelling In Truck With His Goods Not A Gratuitous Passenger; Insurer Liable: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-holds-insurer-liable-injuries-goods-owner-travelling-goods-carriage-555012
 
-[Read on Telegram](https://t.me/livelawindia/122554)
-
----
-### 2026-10-15T15:04:00+00:00
-RBI Was Mere Bystander When YES Bank Carried Out Business Clandestinely : Supreme Court
-https://www.livelaw.in/supreme-court/rbi-was-mere-bystander-when-yes-bank-carried-out-business-clandestinely-supreme-court-554919
-
-[Read on Telegram](https://t.me/livelawindia/122555)
+[Read on Telegram](https://t.me/livelawindia/122613)
 
 ---
-### 2026-10-15T15:05:20+00:00
-2026 LiveLaw (SC) 1060 | YES BANK LIMITED & ANR. VERSUS AXIS TRUSTEE SERVICES LIMITED & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1060-yes-bank-limited-anr-versus-axis-trustee-services-limited-ors-554920
+### 2026-10-16T08:33:34+00:00
+There's Stark Non-Compliance With Direction For Cadre Review Of CAPFs, Says Supreme Court
+https://www.livelaw.in/top-stories/theres-stark-non-compliance-with-direction-for-cadre-review-of-capfs-says-supreme-court-555020
 
-[Read on Telegram](https://t.me/livelawindia/122556)
-
----
-### 2026-10-15T15:14:10+00:00
-Kia Seltos Dashboard Glare Case: Delhi Consumer Commission Holds Kia India, Authorised Dealer Guilty Of Unfair Trade Practice
-https://www.livelaw.in/consumer-cases/kia-seltos-dashboard-glare-case-delhi-consumer-commission-holds-kia-india-authorised-dealer-guilty-of-unfair-trade-practice-554921
-
-[Read on Telegram](https://t.me/livelawindia/122557)
+[Read on Telegram](https://t.me/livelawindia/122614)
 
 ---
-### 2026-10-15T15:53:10+00:00
-Call For Papers: Indian Arbitration Law Review Invites Submissions For Volume IX
-https://www.livelaw.in/lawschool/call-for-papers/indian-arbitration-law-review-invites-submissions-for-volume-ix-554924
+### 2026-10-16T08:34:14+00:00
+CM Vijay Asking Children To Persuade Parents To Vote For TVK Not 'Corrupt Practice': Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-cm-joseph-vijay-asking-kids-persuade-family-vote-tvk-not-corrupt-practice-555021
 
-[Read on Telegram](https://t.me/livelawindia/122558)
-
----
-### 2026-10-15T16:03:20+00:00
-SCBA Files Contempt Petition Against Journalist Nikhil Wagle & MP Sanjay Raut For Comments Against CJI Surya Kant
-https://www.livelaw.in/top-stories/scba-files-contempt-petition-against-journalist-nikhil-wagle-mp-sanjay-raut-for-comments-against-cji-surya-kant-554925
-
-[Read on Telegram](https://t.me/livelawindia/122559)
+[Read on Telegram](https://t.me/livelawindia/122615)
 
 ---
-### 2026-10-15T16:10:00+00:00
-Supreme Court Flags AI-Generated Fake Judgments In Compilation Filed By Party
-https://www.livelaw.in/supreme-court/supreme-court-flags-ai-generated-fake-judgments-in-compilation-filed-by-party-554926
+### 2026-10-16T08:41:14+00:00
+Give Mahua Moitra Circuit House Accommodation As Per Protocol After She Gives One Day's Notice: Supreme Court To West Bengal Authorities
+https://www.livelaw.in/top-stories/give-mahua-moitra-circuit-house-accommodation-as-per-protocol-after-she-gives-one-days-notice-supreme-court-to-west-bengal-authorities-555024
 
-[Read on Telegram](https://t.me/livelawindia/122560)
-
----
-### 2026-10-15T16:11:20+00:00
-2026 LiveLaw (SC) 1061 | Deepak Raheja and Another v. Omkara Assets Reconstruction Private Ltd. and Another
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1061-deepak-raheja-and-another-v-omkara-assets-reconstruction-private-ltd-and-another-554927
-
-[Read on Telegram](https://t.me/livelawindia/122561)
+[Read on Telegram](https://t.me/livelawindia/122616)
 
 ---
-### 2026-10-16T01:16:42+00:00
-Supreme Court Asks Sanjay Raut To Explain Remarks Against CJI & Judges While Entertaining INDIA Bloc Petition
-https://www.livelaw.in/top-stories/supreme-court-asks-sanjay-raut-to-explain-remarks-against-cji-judges-while-entertaining-india-bloc-petition-554928
+### 2026-10-16T08:42:54+00:00
+State Can Devise Own Palm Oil Pricing Formula, But Must Be Based On Relevant Data: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-independent-pricing-power-state-govt-andhra-pradesh-oil-palm-act-555016
 
-[Read on Telegram](https://t.me/livelawindia/122562)
-
----
-### 2026-10-16T02:48:42+00:00
-Repeated Document Demands, Health Claim Rejection: Delhi Consumer Commission Holds Niva Bupa Liable
-https://www.livelaw.in/consumer-cases/repeated-document-demands-health-claim-rejection-delhi-consumer-commission-holds-niva-bupa-liable-554929
-
-[Read on Telegram](https://t.me/livelawindia/122563)
+[Read on Telegram](https://t.me/livelawindia/122617)
 
 ---
-### 2026-10-16T03:13:42+00:00
-S. 125 CrPC | Allahabad High Court Seeks Chief Justice's Consideration Of Rules For Notice To Alleged Co-Adulterer In Maintenance Cases
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-section-125-crpc-alleged-co-adulterer-554930
+### 2026-10-16T08:53:24+00:00
+Passenger's Fatal Fall From Overcrowded Local Train: Calcutta High Court Awards ₹8 Lakh Compensation Despite Missing Ticket
+https://www.livelaw.in/high-court/calcutta-high-court/passengers-fatal-fall-from-overcrowded-local-train-calcutta-high-court-awards-8-lakh-compensation-despite-missing-ticket-554983
 
-[Read on Telegram](https://t.me/livelawindia/122564)
-
----
-### 2026-10-16T03:23:42+00:00
-'Whether There Are Classes Among Journalists Who Require Additional Protection' : Supreme Court In Delhi Protest Matter
-https://www.livelaw.in/top-stories/supreme-court-journalists-freelancers-influencers-freedom-of-speech-and-expression-justice-bagchi-554931
-
-[Read on Telegram](https://t.me/livelawindia/122565)
+[Read on Telegram](https://t.me/livelawindia/122618)
 
 ---
-### 2026-10-16T03:33:12+00:00
-Second Appeal Against Same Stamp Duty Order Not Maintainable After Earlier Appeal Withdrawn: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-second-appeal-stamp-act-against-same-order-once-first-appeal-withdrawn-554888
+### 2026-10-16T09:01:44+00:00
+Delhi High Court Closes PIL Against Use Of 'Shoorveer' Song In Mirzapur Movie, Notes Track Removed
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-closes-pil-against-use-of-shoorveer-song-in-mirzapur-movie-notes-track-removed-555027
 
-[Read on Telegram](https://t.me/livelawindia/122566)
+[Read on Telegram](https://t.me/livelawindia/122619)
 
 ---
-### 2026-10-16T03:54:12+00:00
-45 Years After Murder Conviction, Allahabad High Court Finds 2 Life Convicts Were 'Juveniles'; Remits Sentencing To JJB
-https://www.livelaw.in/high-court/allahabad-high-court/45-years-after-murder-conviction-allahabad-high-court-finds-2-life-convicts-were-juveniles-remits-sentencing-to-jjb-554932
+### 2026-10-16T09:20:44+00:00
+Delhi SIR: High Court Allows Voters Whose Names Were Deleted From Electoral Rolls To Apply Through Form 6, Finds Apprehension 'Misplaced'
+https://www.livelaw.in/high-court/delhi-high-court/delhi-sir-high-court-allows-voters-whose-names-were-deleted-from-electoral-rolls-to-apply-through-form-6-finds-apprehension-misplaced-555029
 
-[Read on Telegram](https://t.me/livelawindia/122567)
+[Read on Telegram](https://t.me/livelawindia/122620)
+
+---
+### 2026-10-16T09:28:04+00:00
+Counterclaim Need Not Concern Same Property As Suit: Bombay High Court Restores Claim, Says Plaintiff's Exclusion Request Is Not Binding
+https://www.livelaw.in/high-court/bombay-high-court/counterclaim-need-not-concern-same-property-suit-555004
+
+[Read on Telegram](https://t.me/livelawindia/122621)
+
+---
+### 2026-10-16T09:32:44+00:00
+Rat Or Tail?
+https://www.livelaw.in/articles/rat-tail-554957
+
+[Read on Telegram](https://t.me/livelawindia/122622)
+
+---
+### 2026-10-16T09:33:04+00:00
+Suspension Of Table Tennis Federation Prima Facie Arbitrary: Delhi High Court Seeks Centre's Response
+https://www.livelaw.in/high-court/delhi-high-court/suspension-of-table-tennis-federation-prima-facie-arbitrary-delhi-high-court-seeks-centres-response-555030
+
+[Read on Telegram](https://t.me/livelawindia/122623)
+
+---
+### 2026-10-16T09:41:34+00:00
+Twisha Sharma Death | Supreme Court Stays Trial, Issues Notice On Father's Plea To Transfer Case To Delhi
+https://www.livelaw.in/top-stories/twisha-sharma-death-supreme-court-stays-trial-issues-notice-on-fathers-plea-to-transfer-case-to-delhi-555031
+
+[Read on Telegram](https://t.me/livelawindia/122624)
+
+---
+### 2026-10-16T10:06:34+00:00
+Delhi Riots: High Court Allows Natasha Narwal Plea To To UK For Academic Conference
+https://www.livelaw.in/high-court/delhi-high-court/delhi-riots-high-court-allows-natasha-narwal-plea-to-to-uk-for-academic-conference-555034
+
+[Read on Telegram](https://t.me/livelawindia/122625)
+
+---
+### 2026-10-16T10:12:34+00:00
+Karnataka High Court Quashes FIRs Against Amit Malviya, Arnab Goswami Over Congress Party's Turkey Office Claim
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-fir-amit-malviya-arnab-goswami-istanbul-congress-centre-tv-claim-555036
+
+[Read on Telegram](https://t.me/livelawindia/122626)
+
+---
+### 2026-10-16T10:12:54+00:00
+No Deportation Of Alleged Bangladeshi Woman Till CAA Citizenship Application Is Decided: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/no-deportation-of-alleged-bangladeshi-woman-till-caa-citizenship-application-is-decided-calcutta-high-court-554993
+
+[Read on Telegram](https://t.me/livelawindia/122627)
+
+---
+### 2026-10-16T10:25:34+00:00
+Mere Participation In A Protest Can't Be Equated With Participation In Every Connected Offence: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-participation-protest-equated-participation-every-connected-offence-555039
+
+[Read on Telegram](https://t.me/livelawindia/122628)
+
+---
+### 2026-10-16T11:02:25+00:00
+Karnataka High Court Directs State To Set Up District-Level Committees To Deal With Illegal Immigrants Within 3 Months
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-fir-bengaluru-doctor-directs-deport-illegal-immigrants-555046
+
+[Read on Telegram](https://t.me/livelawindia/122629)
 
 ---
