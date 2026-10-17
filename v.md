@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-17T10:32:32+00:00*
+*Last Updated: 2026-10-17T15:12:38+00:00*
+
+---
+
+### 2026-10-17T15:12:38+00:00
+No-Objection Certificate Or Parental Consent Not Condition For Solemnization Of Marriage Under Special Marriage Act: Gauhati High Court
+https://www.verdictum.in/guwahati-high-court/a-v-the-state-of-assam-no-objection-certificate-parental-consent-special-marriage-act-1624199
+
+[Source Link](https://t.me/verdictumlegalupdates/29745)
+
+---
+
+### 2026-10-17T14:32:57+00:00
+An Independent Commission Without A Mandate? The Constitutional Questions Behind The SIR Inquiry
+https://www.verdictum.in/columns/lawyers-association-for-constitution-lafc-justice-madan-b-lokur-1624207
+
+[Source Link](https://t.me/verdictumlegalupdates/29744)
+
+---
+
+### 2026-10-17T13:52:17+00:00
+Challenging Arrest & Parallelly Seeking Bail Without Adequate Disclosure Amounts To Abuse Of Process: Supreme Court
+https://www.verdictum.in/supreme-court/senior-intelligence-officer-v-mohammed-kamran-2026-insc-1140-arrest-bail-disclosure-1624211
+
+[Source Link](https://t.me/verdictumlegalupdates/29743)
+
+---
+
+### 2026-10-17T13:12:56+00:00
+Demanding Bribe Is Pure Criminal Act; No Protective Umbrella U/S.17A PC Act As It Is Not Connected With Official Functions Of Public Servant: Supreme Court
+https://www.verdictum.in/supreme-court/tejaram-v-state-of-rajasthan-2026-insc-1147-bribe-criminal-act-official-functions-sec17a-pc-act-1624195
+
+[Source Link](https://t.me/verdictumlegalupdates/29742)
+
+---
+
+### 2026-10-17T12:32:35+00:00
+Lok Adalat Award Can Formalise Settlement Reached Before It Without Prior Memorandum: Telangana High Court
+https://www.verdictum.in/telangana-high-court/smt-m-nagalakshmi-and-another-v-chairman-mandal-legal-services-committee-cyberabad-and-others-1624194
+
+[Source Link](https://t.me/verdictumlegalupdates/29741)
+
+---
+
+### 2026-10-17T11:53:14+00:00
+Private Complaint Alleging Offence U/S.125-A Of Representation of People Act Maintainable; Rigor Of 195 CrPC Won’t Apply: Supreme Court
+https://www.verdictum.in/supreme-court/sri-rajkumar-madki-v-dr-shailendra-beldal-2026-insc-1138-complaint-sec125a-representation-of-people-act-1624193
+
+[Source Link](https://t.me/verdictumlegalupdates/29740)
+
+---
+
+### 2026-10-17T11:12:13+00:00
+State Cannot Unilaterally Usurp Property Of Religious & Charitable Institutions: Supreme Court
+https://www.verdictum.in/supreme-court/k-ramalingam-v-government-of-tamil-nadu-rep-by-its-secretary-2026-insc-1144-property-of-religiouscharitable-institutions-1624191
+
+[Source Link](https://t.me/verdictumlegalupdates/29739)
 
 ---
 
@@ -105,62 +161,6 @@ Order Of A Foreign Court Must Yield To Welfare Of The Child; Indian Court Cannot
 https://www.verdictum.in/supreme-court/v-v-state-of-karnataka-2026-insc-1130-wrongdoing-of-parent-welfare-of-cthe-child-comity-of-courts-foreign-court-matrimonial-dispute-1624139
 
 [Source Link](https://t.me/verdictumlegalupdates/29726)
-
----
-
-### 2026-10-16T13:43:08+00:00
-Supreme Court Tells Mahua Moitra To Inform Nadia District Administration Day Prior To Her Visit For Accommodation
-https://www.verdictum.in/supreme-court/mahua-moitra-inform-nadia-district-administration-visit-for-accommodation-1624137
-
-[Source Link](https://t.me/verdictumlegalupdates/29725)
-
----
-
-### 2026-10-16T13:23:07+00:00
-Supreme Court Stays Trial In Twisha Sharma Case, Seeks Response On Transfer Plea
-https://www.verdictum.in/supreme-court/supreme-court-stays-trial-in-twisha-sharma-case-seeks-response-on-transfer-plea-1624136
-
-[Source Link](https://t.me/verdictumlegalupdates/29724)
-
----
-
-### 2026-10-16T13:02:47+00:00
-“Or Otherwise” Clause Operates As Absolute Bar On Pre-Award Interest; Arbitrator Cannot Act Contrary To Contract: Supreme Court
-https://www.verdictum.in/supreme-court/ms-sharma-enterprises-v-national-building-construction-corporation-2026-insc-1135-or-otherwise-clause-operates-as-absolute-bar-1624131
-
-[Source Link](https://t.me/verdictumlegalupdates/29723)
-
----
-
-### 2026-10-16T12:12:26+00:00
-Compilation Replete With AI-Generated Non-Existing Judgments: Supreme Court Drops Proposed Costs Noticing Death Of Litigant
-https://www.verdictum.in/supreme-court/deepak-raheja-and-another-v-omkara-assets-reconstruction-private-limited-and-another-2026-insc-1134-1624126
-
-[Source Link](https://t.me/verdictumlegalupdates/29722)
-
----
-
-### 2026-10-16T11:22:45+00:00
-Administrator Cannot Assume RBI’s Regulatory Role & Write Down AT-1 Bonds After Reconstruction Scheme Omitted Write-Down Clause: Supreme Court In YES Bank Case
-https://www.verdictum.in/supreme-court/yes-bank-limited-v-axis-trustee-services-limited-2026-insc-1132-reserve-bank-of-india-rbis-regulatory-role-write-down-at-1-bonds-1624125
-
-[Source Link](https://t.me/verdictumlegalupdates/29721)
-
----
-
-### 2026-10-16T10:33:04+00:00
-Supreme Court Seeks Response From Centre & NCPCR In Plea Seeking Framework To Protect Children From Social Media Risks
-https://www.verdictum.in/supreme-court/supreme-court-plea-seeking-framework-to-protect-children-from-social-media-risks-1624123
-
-[Source Link](https://t.me/verdictumlegalupdates/29720)
-
----
-
-### 2026-10-16T09:52:23+00:00
-Majesty Of Law Restored: Meghalaya High Court Purges Advocates Of Contempt After Apology & Withdrawal Of Call For Abstention
-https://www.verdictum.in/meghalaya-high-court/registrar-general-high-court-of-meghalaya-v-state-of-meghalaya-2026mlhc1154-db-advocate-boycott-strike-apology-contempt-1624109
-
-[Source Link](https://t.me/verdictumlegalupdates/29719)
 
 ---
 
