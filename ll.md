@@ -1,79 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-17T06:26:46+00:00*
+*Last Updated: 2026-10-17T07:45:26+00:00*
 
 ---
 
-### 2026-10-17T06:26:46+00:00
-Delhi Court Issues Bailable Warrants Against YouTuber Dhruv Rathee In 2018 Defamation Case
-https://www.livelaw.in/news-updates/delhi-court-issues-bailable-warrants-against-youtuber-dhruv-rathee-in-2018-defamation-case-555149
-
-[Read on Telegram](https://t.me/livelawindia/122680)
-
----
-### 2026-10-17T06:48:16+00:00
-Human Faeces Found In School's Water Tank: Madras High Court Calls For Status Report By State
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-human-faeces-school-water-tank-status-report-sought-555111
-
-[Read on Telegram](https://t.me/livelawindia/122681)
-
----
-### 2026-10-17T07:01:16+00:00
-Supreme Court Quarterly Digest 2026 - Administrative, Labour & Service Laws [July - September 2026]
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-quarterly-digest-2026-555156
-
-[Read on Telegram](https://t.me/livelawindia/122682)
-
----
-### 2026-10-17T07:18:16+00:00
-Can Transgender Woman Invoke S. 69 BNS In False Promise Of Marriage Case? Allahabad High Court Answers
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-transgender-woman-section-69-bns-555161
-
-[Read on Telegram](https://t.me/livelawindia/122683)
-
----
-### 2026-10-17T07:23:16+00:00
-Supreme Court Directs Union To Create National Database On Child Sexual Exploitation & Abuse Materials (CSEAM) For Removal Across Platforms
-https://www.livelaw.in/supreme-court/supreme-court-directs-union-to-create-national-database-on-child-sexual-exploitation-abuse-materials-cseam-for-removal-across-platforms-555162
-
-[Read on Telegram](https://t.me/livelawindia/122684)
-
----
-### 2026-10-17T07:27:36+00:00
-Financial Burden On State Is No Ground To Deny Legitimate Dues To Teachers: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/financial-burden-on-state-is-no-ground-to-deny-legitimate-dues-to-teachers-bombay-high-court-555114
-
-[Read on Telegram](https://t.me/livelawindia/122685)
-
----
-### 2026-10-17T07:36:26+00:00
-HC Registry Must Ordinarily Exclude Intervening Vacation Period When Bench Directs To List After Certain Days : Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-high-court-directs-matter-listed-period-expires-court-vacation-registry-555163
-
-[Read on Telegram](https://t.me/livelawindia/122686)
-
----
-### 2026-10-17T07:37:46+00:00
-2026 LiveLaw (SC) 1064 | SENIOR INTELLIGENCE OFFICER VERSUS MOHAMMED KAMRAN
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1064-senior-intelligence-officer-versus-mohammed-kamran-555164
-
-[Read on Telegram](https://t.me/livelawindia/122687)
-
----
-### 2026-10-17T07:41:06+00:00
-Police Can Contact Adult Woman Reported To Be Missing, But Can't Compel Her To Return Home : Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-police-harassment-missing-person-compel-adult-555165
-
-[Read on Telegram](https://t.me/livelawindia/122688)
-
----
-### 2026-10-17T07:44:26+00:00
-Mere Proximity In Time & Sameness Of Accused Can't Justify Joint Trial When Places Of Occurrence & Victims Are Different: Supreme Court
-https://www.livelaw.in/supreme-court/mere-proximity-in-time-sameness-of-accused-cant-justify-joint-trial-when-places-of-occurrence-victims-are-different-supreme-court-555166
-
-[Read on Telegram](https://t.me/livelawindia/122689)
-
----
 ### 2026-10-17T07:45:26+00:00
 2026 LiveLaw (SC) 1065 | DANISH & ORS. VERSUS STATE OF UP & ANR.
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1065-danish-ors-versus-state-of-up-anr-555167
@@ -142,5 +72,75 @@ Kerala High Court Orders Re-Trial In Convict's Appeal After Finding Trial Court 
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-retrial-suo-motu-revision-convict-appeal-555113
 
 [Read on Telegram](https://t.me/livelawindia/122699)
+
+---
+### 2026-10-17T10:28:57+00:00
+UAPA Charges Can't Curtail Right To Travel Abroad In Blanket Manner: Delhi High Court In Natasha Narwal Case
+https://www.livelaw.in/high-court/delhi-high-court/uapa-charges-cant-curtail-right-to-travel-abroad-in-blanket-manner-delhi-high-court-in-natasha-narwal-case-555187
+
+[Read on Telegram](https://t.me/livelawindia/122700)
+
+---
+### 2026-10-17T10:35:17+00:00
+State Cannot Accept Gift Of Temple Land; Govt Only Custodian, Not Owner Of Temple Properties Under HR&CE Act : Supreme Court
+https://www.livelaw.in/top-stories/state-cannot-accept-gift-of-temple-land-govt-only-custodian-not-owner-of-temple-properties-under-hrce-act-supreme-court-555188
+
+[Read on Telegram](https://t.me/livelawindia/122701)
+
+---
+### 2026-10-17T10:36:17+00:00
+2026 LiveLaw (SC) 1067 |  K Ramalingam and Others v. Government of Tamil Nadu and Others
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1067-k-ramalingam-and-others-v-government-of-tamil-nadu-and-others-555189
+
+[Read on Telegram](https://t.me/livelawindia/122702)
+
+---
+### 2026-10-17T11:06:47+00:00
+Delhi High Court Stays FSSAI Order Directing Britannia To Remove 'No Added Sugar', 'No Maida' Claims From Biscuit Labels
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-stays-fssai-order-directing-britannia-to-remove-no-added-sugar-no-maida-claims-from-biscuit-labels-555193
+
+[Read on Telegram](https://t.me/livelawindia/122703)
+
+---
+### 2026-10-17T11:19:27+00:00
+Delhi Court Grants Bail To CJP Founder Abhijeet Dipke
+https://www.livelaw.in/news-updates/delhi-court-grants-bail-to-cjp-founder-abhijeet-dipke-555194
+
+[Read on Telegram](https://t.me/livelawindia/122704)
+
+---
+### 2026-10-17T12:36:28+00:00
+Delhi High Court Decrees Arjun Kapoor's Personality Rights Suit, Orders Takedown Of Infringing Links
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-decrees-arjun-kapoors-personality-rights-suit-orders-takedown-of-infringing-links-555201
+
+[Read on Telegram](https://t.me/livelawindia/122705)
+
+---
+### 2026-10-17T13:05:38+00:00
+Actor Imran Khan Moves Bombay High Court Challenging "Leave India" Notice For Participating In Anti-CEC Protests
+https://www.livelaw.in/high-court/bombay-high-court/actor-imran-khan-move-bombay-high-court-tomorrow-555203
+
+[Read on Telegram](https://t.me/livelawindia/122706)
+
+---
+### 2026-10-17T13:32:38+00:00
+Mere Participation In Protest Does Not Establish Common Intention To Obstruct Police: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/mere-participation-in-protest-does-not-establish-common-intention-to-obstruct-police-delhi-high-court-555207
+
+[Read on Telegram](https://t.me/livelawindia/122707)
+
+---
+### 2026-10-17T14:08:08+00:00
+Children Must Be Taught About Safe & Unsafe Touch, Train Teachers To Identify Grooming & Abuse : Supreme Court
+https://www.livelaw.in/top-stories/children-must-be-taught-about-safe-unsafe-touch-train-teachers-to-identify-grooming-abuse-supreme-court-555196
+
+[Read on Telegram](https://t.me/livelawindia/122708)
+
+---
+### 2026-10-17T14:32:48+00:00
+Regulating Algorithm: Free Speech And Social Media Censorship
+https://www.livelaw.in/articles/free-speech-social-media-censorship-555142
+
+[Read on Telegram](https://t.me/livelawindia/122709)
 
 ---
