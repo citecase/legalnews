@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-17T04:33:14+00:00*
+*Last Updated: 2026-10-17T10:32:32+00:00*
+
+---
+
+### 2026-10-17T10:32:32+00:00
+Homebuyer Cannot Claim Both Interest On Full Refund And Rent For Builder’s Same Delay: Supreme Court
+https://www.verdictum.in/supreme-court/madhu-kudapa-madhusudhan-rao-v-lodha-healthy-constructions-and-developer-private-limited-lhcpl-2026-insc-1131-1624190
+
+[Source Link](https://t.me/verdictumlegalupdates/29738)
+
+---
+
+### 2026-10-17T09:52:11+00:00
+Use Of Trademark To Refer To A Company On Social Media Does Not Constitute Infringement: Delhi High Court Imposes  ₹1 Cost On Niva Bupa
+https://www.verdictum.in/delhi-high-court/niva-bupa-health-insurance-company-limited-v-vishal-rattewal-withdraw-suit-vishal-rattewal-trademark-1624189
+
+[Source Link](https://t.me/verdictumlegalupdates/29737)
+
+---
+
+### 2026-10-17T09:13:00+00:00
+Gift Of Inam Property Dedicated To Support Of A Deity Is Void Ab Initio Under Tamil Nadu HR & CE Act: Supreme Court
+https://www.verdictum.in/supreme-court/k-ramalingam-v-government-of-tamil-nadu-rep-by-its-secretary-2026-insc-1144-tamil-nadu-hrce-act-gift-if-inam-property-1624182
+
+[Source Link](https://t.me/verdictumlegalupdates/29736)
+
+---
+
+### 2026-10-17T08:32:39+00:00
+Public Authority's Act Of Revisiting Auction Process For Price Maximization Justified As Long As Enforceable Contract Isn’t Entered Into: Supreme Court
+https://www.verdictum.in/supreme-court/satinder-pal-singh-ors-v-bedi-hospital-ors-2026-insc-1142-auction-price-maximization-1624186
+
+[Source Link](https://t.me/verdictumlegalupdates/29735)
+
+---
+
+### 2026-10-17T07:53:18+00:00
+All Individuals Including Children Have Fundamental Right To Access Internet: Supreme Court Disapproves Blanket Restrictions
+https://www.verdictum.in/supreme-court/just-rights-for-children-alliance-v-s-harish-2026-insc-1149-children-irrespective-of-age-fundamental-right-social-media-1624185
+
+[Source Link](https://t.me/verdictumlegalupdates/29734)
+
+---
+
+### 2026-10-17T07:12:57+00:00
+Suit For Possession Simpliciter Not Maintainable Where Serious Dispute Casts A Cloud Over Plaintiff’s Title: Supreme Court
+https://www.verdictum.in/supreme-court/rano-singh-v-gurbax-singh-d-th-lrs-2026-insc-1137-agreement-to-sell-confers-no-title-without-a-registered-sale-deed-1624179
+
+[Source Link](https://t.me/verdictumlegalupdates/29733)
+
+---
+
+### 2026-10-17T06:32:36+00:00
+Section 7 IBC Requires Proof Of Default On Preponderance Of Probabilities, Not Forensic Reconciliation Of Accounts: Supreme Court
+https://www.verdictum.in/supreme-court/deepak-raheja-and-another-v-omkara-assets-reconstruction-private-limited-and-another-s-62-1624171
+
+[Source Link](https://t.me/verdictumlegalupdates/29732)
+
+---
+
+### 2026-10-17T05:52:05+00:00
+Right To Electricity Is Also Right To Life & Liberty Under Article 21 Of Constitution: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/preeti-sharma-v-the-state-of-madhya-pradesh-2026mphc-gwl29384-right-to-electricity-right-to-life-article-21-1624167
+
+[Source Link](https://t.me/verdictumlegalupdates/29731)
+
+---
+
+### 2026-10-17T05:12:44+00:00
+Permanent Fireworks-Shop Rules Do Not Apply To Temporary-Shop Licence Applications: Kerala High Court
+https://www.verdictum.in/kerala-high-court/prasanth-k-v-district-collector-and-another-2026ker77035-fireworks-rules-1624163
+
+[Source Link](https://t.me/verdictumlegalupdates/29730)
 
 ---
 
@@ -89,78 +161,6 @@ Majesty Of Law Restored: Meghalaya High Court Purges Advocates Of Contempt After
 https://www.verdictum.in/meghalaya-high-court/registrar-general-high-court-of-meghalaya-v-state-of-meghalaya-2026mlhc1154-db-advocate-boycott-strike-apology-contempt-1624109
 
 [Source Link](https://t.me/verdictumlegalupdates/29719)
-
----
-
-### 2026-10-16T09:02:42+00:00
-Supreme Court Seeks Centre's Response On Plea To Frame Guidelines Governing All Forms of 'Talaq'
-https://www.verdictum.in/supreme-court/supreme-court-seeks-centres-response-on-plea-to-frame-guidelines-governing-all-forms-of-talaq-1624118
-
-[Source Link](https://t.me/verdictumlegalupdates/29718)
-
----
-
-### 2026-10-16T08:23:21+00:00
-Supreme Court: Arrest Order & Material To Be Forwarded To Adjudicating Authority U/s. 19 PMLA  "Immediately", Meaning "Expeditiously & Simultaneously"
-https://www.verdictum.in/supreme-court/sanjay-sureka-sanjay-kumar-sureka-v-directorate-of-enforcement-2026-insc-1124-arrest-order-timeline-pmla-1624110
-
-[Source Link](https://t.me/verdictumlegalupdates/29717)
-
----
-
-### 2026-10-16T07:34:20+00:00
-Have Protected Their Rights Still They Keep Condemning, Very Unfortunate: Apex Court Issues Notice To Nikhil Wagle, Sanjay Raut On Contempt Plea Over Remarks Against CJI
-https://www.verdictum.in/supreme-court/issues-notice-journalist-nikhil-wagle-mp-sanjay-raut-on-contempt-plea-remarks-against-cji-1624112
-
-[Source Link](https://t.me/verdictumlegalupdates/29716)
-
----
-
-### 2026-10-16T06:53:19+00:00
-Calcutta High Court Rejects Anticipatory Bail Plea Of Ex-TMC Minister Indranil Sen In Durga Puja Pandal Tickets Scam
-https://www.verdictum.in/calcutta-high-court/in-the-matter-of-indranil-sen-anticipatory-bail-plea-ex-tmc-indranil-sen-durga-puja-pandal-scam-1624100
-
-[Source Link](https://t.me/verdictumlegalupdates/29715)
-
----
-
-### 2026-10-16T06:02:18+00:00
-We Hope Better Sense Will Prevail On Everyone: Supreme Court Declines Same-Day Listing On Plea Against Connaught Place Protest, Schedules Matter For October 26
-https://www.verdictum.in/supreme-court/declines-same-day-listing-plea-against-connaught-place-protest-central-park-cockroach-janta-party-october-26-1624097
-
-[Source Link](https://t.me/verdictumlegalupdates/29714)
-
----
-
-### 2026-10-16T05:22:57+00:00
-Decide Execution Applications In Maintenance Cases Within Six Months: Allahabad High Court To Trial Courts
-https://www.verdictum.in/allahabad-high-court/a-v-state-of-up-2026ahc214414-execution-application-maintenance-case-1624092
-
-[Source Link](https://t.me/verdictumlegalupdates/29713)
-
----
-
-### 2026-10-16T04:32:36+00:00
-Unsubstantiated Claims Of Mental Disorder Amount To Legal Cruelty: Karnataka High Court Upholds Grant Of Divorce
-https://www.verdictum.in/karnataka-high-court/a-v-b-2026khc-k10230-db-unsubstantiated-claims-mental-disorder-legal-cruelty-1624064
-
-[Source Link](https://t.me/verdictumlegalupdates/29712)
-
----
-
-### 2026-10-15T16:02:30+00:00
-Prosecutor Not Mouthpiece Of Police; Must Function Fearlessly & Take Independent Decisions: Madras High Court
-https://www.verdictum.in/madras-high-court/rajaikumar-v-the-home-secretary-prosecutor-mouthpiece-police-adverse-remark-1624054
-
-[Source Link](https://t.me/verdictumlegalupdates/29711)
-
----
-
-### 2026-10-15T15:32:29+00:00
-Allahabad High Court Directs State Election Commission To Complete Village Panchayat Elections Within 3 Months With Existing 27% OBC Reservation
-https://www.verdictum.in/allahabad-high-court/dashrath-yadav-v-state-of-uttar-pradesh-and-others-along-with-connected-matters-1624066
-
-[Source Link](https://t.me/verdictumlegalupdates/29710)
 
 ---
 
