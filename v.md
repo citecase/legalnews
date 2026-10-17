@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-16T15:53:11+00:00*
+*Last Updated: 2026-10-17T04:33:14+00:00*
+
+---
+
+### 2026-10-17T04:33:14+00:00
+Preventive Powers Under BNSS Cannot Be Invoked After Cognizable Offence Is Committed: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/deepak-v-state-of-up-2026ahc209894-db-service-books-of-acp-and-investigating-officer-1624143
+
+[Source Link](https://t.me/verdictumlegalupdates/29729)
 
 ---
 
@@ -153,14 +161,6 @@ Allahabad High Court Directs State Election Commission To Complete Village Panch
 https://www.verdictum.in/allahabad-high-court/dashrath-yadav-v-state-of-uttar-pradesh-and-others-along-with-connected-matters-1624066
 
 [Source Link](https://t.me/verdictumlegalupdates/29710)
-
----
-
-### 2026-10-15T15:03:08+00:00
-“Order Of Foreign Court Must Yield To Welfare Of Child”: Karnataka High Court Refuses Father’s Plea To Return Daughter To Canada
-https://www.verdictum.in/karnataka-high-court/pn-v-state-of-karnataka-and-others-child-custody-habeas-corpus-foreign-court-1624065
-
-[Source Link](https://t.me/verdictumlegalupdates/29709)
 
 ---
 
