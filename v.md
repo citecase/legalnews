@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-17T15:12:38+00:00*
+*Last Updated: 2026-10-17T15:52:19+00:00*
+
+---
+
+### 2026-10-17T15:52:19+00:00
+Administrative Officer (Legal) Vacancy At National Insurance Company Limited (NICL)
+https://www.verdictum.in/job-updates/national-insurance-company-limited-1624197
+
+[Source Link](https://t.me/verdictumlegalupdates/29746)
 
 ---
 
@@ -153,14 +161,6 @@ Caste Membership Not Conclusive Proof Of Social Backwardness Under Article 16(4)
 https://www.verdictum.in/supreme-court/2026-insc-1129-secretary-government-of-tamil-nadu-v-sameer-ahmed-1624140
 
 [Source Link](https://t.me/verdictumlegalupdates/29727)
-
----
-
-### 2026-10-16T14:22:49+00:00
-Order Of A Foreign Court Must Yield To Welfare Of The Child; Indian Court Cannot Blindly Follow It Acting Merely As Executing Court: Supreme Court
-https://www.verdictum.in/supreme-court/v-v-state-of-karnataka-2026-insc-1130-wrongdoing-of-parent-welfare-of-cthe-child-comity-of-courts-foreign-court-matrimonial-dispute-1624139
-
-[Source Link](https://t.me/verdictumlegalupdates/29726)
 
 ---
 
