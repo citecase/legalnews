@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-16T12:15:05+00:00*
+*Last Updated: 2026-10-16T12:38:05+00:00*
 
 ---
 
-### 2026-10-16T12:15:05+00:00
-Free Legal Aid In Prison No Ground To Deny Parole To Convict Seeking Lawyer Of Choice To File SLP: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/free-legal-aid-in-prison-no-ground-to-deny-parole-to-convict-seeking-lawyer-of-choice-to-file-slp-delhi-high-court-555074
-
-[Read on Telegram](https://t.me/livelawindia/122638)
-
----
-### 2026-10-16T12:19:05+00:00
-Bombay High Court Seeks Credentials Of Congress, PUCL, AITUC In Pleas Challenging Maharashtra Special Public Security Act
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-seeks-credentials-of-congress-pucl-aituc-in-pleas-challenging-maharashtra-special-public-security-act-555076
-
-[Read on Telegram](https://t.me/livelawindia/122639)
-
----
-### 2026-10-16T12:24:05+00:00
-Veeramani POCSO Case: Madras High Court Refuses To Entertain Fresh Plea For CBI Probe, Calls It Attempt To Stall Proceedings
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-gem-veeramani-pocso-fresh-plea-cbi-probe-not-entertained-555077
-
-[Read on Telegram](https://t.me/livelawindia/122640)
-
----
-### 2026-10-16T12:32:25+00:00
-Delhi High Court Refuses To Stay Probe Against Woman Journalist Booked By ACP Vivek Bhagat Under SC/ST Act
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-to-stay-probe-against-woman-journalist-booked-by-acp-vivek-bhagat-under-scst-act-555079
-
-[Read on Telegram](https://t.me/livelawindia/122641)
-
----
-### 2026-10-16T12:35:25+00:00
-'If No Concrete Steps Taken, We Will Sit On Dharna' : Supreme Court To Centre On Lack Of Pedestrian Crossing Near Delhi HC
-https://www.livelaw.in/top-stories/if-no-concrete-steps-taken-we-will-sit-on-dharna-supreme-court-to-centre-on-lack-of-pedestrian-crossing-near-delhi-hc-555080
-
-[Read on Telegram](https://t.me/livelawindia/122642)
-
----
 ### 2026-10-16T12:38:05+00:00
 Firecracker Ban On Roads Applies To All Festivities Year-Round Across Maharashtra: Bombay High Court Clarifies
 https://www.livelaw.in/high-court/bombay-high-court/firecracker-ban-on-roads-applies-to-all-festivities-year-round-across-maharashtra-bombay-high-court-clarifies-555082
@@ -142,5 +107,40 @@ High Court Seeks Chief Secretary's Affidavit In PIL On Punjab Government's Unpai
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-seeks-chief-secretarys-affidavit-in-pil-on-punjab-governments-unpaid-power-subsidy-and-dues-to-pspcl-555107
 
 [Read on Telegram](https://t.me/livelawindia/122657)
+
+---
+### 2026-10-17T03:23:05+00:00
+Abhijit Dipke To Be Produced Before SEM; Neha Bora Released : Live Updates
+https://www.livelaw.in/top-stories/abhijit-dipke-to-be-produced-before-sem-neha-bora-released-live-updates-555110
+
+[Read on Telegram](https://t.me/livelawindia/122658)
+
+---
+### 2026-10-17T03:26:25+00:00
+If You Want To Play For India, Accept Indian Citizenship: Bombay High Court To OCI Card Holders Challenging BCCI Rule
+https://www.livelaw.in/high-court/bombay-high-court/if-you-want-to-play-for-india-accept-indian-citizenship-bombay-high-court-to-oci-card-holders-challenging-bcci-rule-555112
+
+[Read on Telegram](https://t.me/livelawindia/122659)
+
+---
+### 2026-10-17T03:30:15+00:00
+Delhi High Court Quashes SFIO Probe Into Educomp, Says Govt Cannot Form Opinion Whimsically
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-quashes-sfio-probe-into-educomp-says-govt-cannot-form-opinion-whimsically-555116
+
+[Read on Telegram](https://t.me/livelawindia/122660)
+
+---
+### 2026-10-17T03:35:55+00:00
+Arbitration Clause Does Not Bar Criminal Case : Supreme Court
+https://www.livelaw.in/top-stories/arbitration-clause-does-not-bar-criminal-case-supreme-court-555117
+
+[Read on Telegram](https://t.me/livelawindia/122661)
+
+---
+### 2026-10-17T03:36:35+00:00
+2026 LiveLaw (SC) 1062 | Indroneel Goho v Razouvonuo Thong & Anr
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1062-indroneel-goho-v-razouvonuo-thong-anr-555118
+
+[Read on Telegram](https://t.me/livelawindia/122662)
 
 ---
