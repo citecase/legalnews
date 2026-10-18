@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-18T04:32:33+00:00*
+*Last Updated: 2026-10-18T10:32:37+00:00*
+
+---
+
+### 2026-10-18T10:32:37+00:00
+Using Children In Election Reels Is “Cheap” But Not Undue Influence Unless Adult Voters’ Free Will Is Overpowered: Madras High Court
+https://www.verdictum.in/madras-high-court/k-sivakumar-v-r-rajendran-and-others-minor-children-election-campaign-1624232
+
+[Source Link](https://t.me/verdictumlegalupdates/29751)
+
+---
+
+### 2026-10-18T09:02:56+00:00
+Letters Patent Bench Can Interfere With Writ-Court Decision Only For Glaring, Demonstrable Error: Supreme Court
+https://www.verdictum.in/supreme-court/r-saravanan-v-periyar-university-represented-by-its-registrar-and-others-2026-insc-1136-1624234
+
+[Source Link](https://t.me/verdictumlegalupdates/29750)
+
+---
+
+### 2026-10-18T07:32:35+00:00
+Claimant Requiring Lifelong Attendant Can Be Treated As 100% Functionally Disabled Under Motor Vehicles Act: Supreme Court
+https://www.verdictum.in/supreme-court/sunil-kumar-totally-disabled-represented-by-wife-v-iffco-tokio-general-insurance-company-limited-2026-insc-1145-1624233
+
+[Source Link](https://t.me/verdictumlegalupdates/29749)
+
+---
+
+### 2026-10-18T06:02:54+00:00
+Digital Safety & Sex Education Are Two Sides Of The Same Coin, Must Form Part Of School Curriculum: Supreme Court issues Guidelines For Child Safety
+https://www.verdictum.in/supreme-court/-just-rights-for-children-alliance-v-s-harish-2026-insc-1149-digital-safety-sex-education-measures-for-child-safety-1624235
+
+[Source Link](https://t.me/verdictumlegalupdates/29748)
 
 ---
 
@@ -129,38 +161,6 @@ Section 7 IBC Requires Proof Of Default On Preponderance Of Probabilities, Not F
 https://www.verdictum.in/supreme-court/deepak-raheja-and-another-v-omkara-assets-reconstruction-private-limited-and-another-s-62-1624171
 
 [Source Link](https://t.me/verdictumlegalupdates/29732)
-
----
-
-### 2026-10-17T05:52:05+00:00
-Right To Electricity Is Also Right To Life & Liberty Under Article 21 Of Constitution: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/preeti-sharma-v-the-state-of-madhya-pradesh-2026mphc-gwl29384-right-to-electricity-right-to-life-article-21-1624167
-
-[Source Link](https://t.me/verdictumlegalupdates/29731)
-
----
-
-### 2026-10-17T05:12:44+00:00
-Permanent Fireworks-Shop Rules Do Not Apply To Temporary-Shop Licence Applications: Kerala High Court
-https://www.verdictum.in/kerala-high-court/prasanth-k-v-district-collector-and-another-2026ker77035-fireworks-rules-1624163
-
-[Source Link](https://t.me/verdictumlegalupdates/29730)
-
----
-
-### 2026-10-17T04:33:14+00:00
-Preventive Powers Under BNSS Cannot Be Invoked After Cognizable Offence Is Committed: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/deepak-v-state-of-up-2026ahc209894-db-service-books-of-acp-and-investigating-officer-1624143
-
-[Source Link](https://t.me/verdictumlegalupdates/29729)
-
----
-
-### 2026-10-16T15:53:11+00:00
-Woman Can Also Be Charged With Offence Of Gang Rape: Delhi High Court
-https://www.verdictum.in/delhi-high-court/ans-xxx-v-state-of-nct-of-delhi-2026dhc9197-woman-can-be-charged-with-gang-rape-common-intention-mother-minor-son-1624141
-
-[Source Link](https://t.me/verdictumlegalupdates/29728)
 
 ---
 
