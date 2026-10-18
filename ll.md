@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-17T07:45:26+00:00*
+*Last Updated: 2026-10-17T08:32:57+00:00*
 
 ---
 
-### 2026-10-17T07:45:26+00:00
-2026 LiveLaw (SC) 1065 | DANISH & ORS. VERSUS STATE OF UP & ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1065-danish-ors-versus-state-of-up-anr-555167
-
-[Read on Telegram](https://t.me/livelawindia/122690)
-
----
-### 2026-10-17T07:51:46+00:00
-Can't Insist Compliance With Impossible Tender Conditions : Supreme Court
-https://www.livelaw.in/supreme-court/cant-insist-compliance-with-impossible-tender-conditions-supreme-court-555168
-
-[Read on Telegram](https://t.me/livelawindia/122691)
-
----
-### 2026-10-17T07:52:27+00:00
-2026 LiveLaw (SC) 1066 | Hardev Construction Private Limited v. Union of India & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1066-hardev-construction-private-limited-v-union-of-india-ors-555169
-
-[Read on Telegram](https://t.me/livelawindia/122692)
-
----
-### 2026-10-17T08:02:27+00:00
-High Court Denies Bail To Accountant Accused Of Embezzling ₹4 Crore From Donations To A Religious Institution In Varanasi
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-denies-bail-accountant-embezzle-4-crore-religious-donations-varanasi-555171
-
-[Read on Telegram](https://t.me/livelawindia/122693)
-
----
 ### 2026-10-17T08:32:57+00:00
 Supreme Court Issues Notice On Plea Challenging Allahabad HC Order Banning Hookah Bars In Restaurants
 https://www.livelaw.in/top-stories/supreme-court-issues-notice-on-plea-challenging-allahabad-hc-order-banning-hookah-bars-in-restaurants-555175
@@ -142,5 +114,33 @@ Regulating Algorithm: Free Speech And Social Media Censorship
 https://www.livelaw.in/articles/free-speech-social-media-censorship-555142
 
 [Read on Telegram](https://t.me/livelawindia/122709)
+
+---
+### 2026-10-18T02:37:33+00:00
+Kerala High Court Refuses To Stay Order Reconstituting State Waqf Board
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-state-waqf-board-reconstitution-555217
+
+[Read on Telegram](https://t.me/livelawindia/122710)
+
+---
+### 2026-10-18T02:53:43+00:00
+Private Aided Educational Institution Employees Can't Claim Monetary Benefits From State For Non-Grant Period: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/private-aided-educational-institution-employees-cant-claim-monetary-benefits-from-state-for-non-grant-period-karnataka-high-court-555227
+
+[Read on Telegram](https://t.me/livelawindia/122711)
+
+---
+### 2026-10-18T03:18:23+00:00
+Mini Cooper Accident: Kerala Court Denies Bail To 4 Accused
+https://www.livelaw.in/news-updates/kerala-court-mini-cooper-accident-bail-555228
+
+[Read on Telegram](https://t.me/livelawindia/122712)
+
+---
+### 2026-10-18T03:37:33+00:00
+Government Trying To 'Capture' Supreme Court, Have Complete Faith It Won't Happen: Senior Advocate Kapil Sibal
+https://www.livelaw.in/top-stories/government-trying-to-capture-supreme-court-have-complete-faith-it-wont-happen-senior-advocate-kapil-sibal-555226
+
+[Read on Telegram](https://t.me/livelawindia/122713)
 
 ---
