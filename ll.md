@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-17T08:32:57+00:00*
+*Last Updated: 2026-10-18T04:45:24+00:00*
 
 ---
 
-### 2026-10-17T08:32:57+00:00
-Supreme Court Issues Notice On Plea Challenging Allahabad HC Order Banning Hookah Bars In Restaurants
-https://www.livelaw.in/top-stories/supreme-court-issues-notice-on-plea-challenging-allahabad-hc-order-banning-hookah-bars-in-restaurants-555175
+### 2026-10-18T04:45:24+00:00
+Umar Khalid & Sharjeel Imam Should Have Been Granted Bail Long Ago: Justice Sudhanshu Dhulia
+https://www.livelaw.in/top-stories/umar-khalid-sharjeel-imam-should-have-been-granted-bail-long-ago-justice-sudhanshu-dhulia-555231
 
-[Read on Telegram](https://t.me/livelawindia/122694)
-
----
-### 2026-10-17T08:42:57+00:00
-Universities Cannot Reject Associate Professor Aspirants Solely Over Lower Pay During Contractual Service: AP High Court
-https://www.livelaw.in/high-court/allahabad-high-court/ap-high-court-lower-pay-disqualify-contractual-teachers-associate-professor-posts-555147
-
-[Read on Telegram](https://t.me/livelawindia/122695)
+[Read on Telegram](https://t.me/livelawindia/122717)
 
 ---
-### 2026-10-17T08:53:37+00:00
-'Disagree Without Denying Dignity, Hear Before Judging' : CJI Surya Kant At NLSIU Convocation
-https://www.livelaw.in/top-stories/disagree-without-denying-dignity-hear-before-judging-cji-surya-kant-at-nlsiu-convocation-555178
+### 2026-10-18T05:03:14+00:00
+Supreme Court Directs States, UTs To Notify Anti-Human Trafficking Units As Police Station
+https://www.livelaw.in/supreme-court/supreme-court-directs-states-uts-to-notify-anti-human-trafficking-units-as-police-station-555119
 
-[Read on Telegram](https://t.me/livelawindia/122696)
-
----
-### 2026-10-17T09:32:27+00:00
-AI Enabled Ransomware, New Threat
-https://www.livelaw.in/articles/ai-enabled-ransomware-new-threat-555141
-
-[Read on Telegram](https://t.me/livelawindia/122697)
+[Read on Telegram](https://t.me/livelawindia/122718)
 
 ---
-### 2026-10-17T10:07:17+00:00
-'Clear Embargo On Taking Cognizance Without Hearing Accused': Patna High Court Quashes Cognizance Order, Calls Violation Of Section 223(1) BNSS A Serious Legal Infirmity
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-quashes-cognizance-order-violation-section2231-bnss-serious-legal-infirmity-555115
+### 2026-10-18T05:17:34+00:00
+Probationer Can Be Terminated For Unsatisfactory Performance Without Enquiry: Chhattisgarh High Court Reiterates
+https://www.livelaw.in/high-court/chhattisgarh-high-court/probationer-can-be-terminated-for-unsatisfactory-performance-without-enquiry-chhattisgarh-high-court-555229
 
-[Read on Telegram](https://t.me/livelawindia/122698)
-
----
-### 2026-10-17T10:17:37+00:00
-Kerala High Court Orders Re-Trial In Convict's Appeal After Finding Trial Court Acquitted Him Of Attempt To Rape Despite Victim's Sterling Testimony
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-retrial-suo-motu-revision-convict-appeal-555113
-
-[Read on Telegram](https://t.me/livelawindia/122699)
+[Read on Telegram](https://t.me/livelawindia/122719)
 
 ---
-### 2026-10-17T10:28:57+00:00
-UAPA Charges Can't Curtail Right To Travel Abroad In Blanket Manner: Delhi High Court In Natasha Narwal Case
-https://www.livelaw.in/high-court/delhi-high-court/uapa-charges-cant-curtail-right-to-travel-abroad-in-blanket-manner-delhi-high-court-in-natasha-narwal-case-555187
+### 2026-10-18T05:27:54+00:00
+MEA's Refusal Of Clearance To Punjab CM Bhagwant Mann For France Visit Citing 'Political Angle' Is Without Reason : High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-mea-refused-clearance-to-punjab-cm-bhagwant-mann-for-france-visit-citing-political-angle-without-reason-555224
 
-[Read on Telegram](https://t.me/livelawindia/122700)
-
----
-### 2026-10-17T10:35:17+00:00
-State Cannot Accept Gift Of Temple Land; Govt Only Custodian, Not Owner Of Temple Properties Under HR&CE Act : Supreme Court
-https://www.livelaw.in/top-stories/state-cannot-accept-gift-of-temple-land-govt-only-custodian-not-owner-of-temple-properties-under-hrce-act-supreme-court-555188
-
-[Read on Telegram](https://t.me/livelawindia/122701)
+[Read on Telegram](https://t.me/livelawindia/122720)
 
 ---
-### 2026-10-17T10:36:17+00:00
-2026 LiveLaw (SC) 1067 |  K Ramalingam and Others v. Government of Tamil Nadu and Others
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1067-k-ramalingam-and-others-v-government-of-tamil-nadu-and-others-555189
+### 2026-10-18T05:43:54+00:00
+Detained Protesters Get Fewer Safeguards Than Those Arrested For Heinous Crimes: Rebecca John
+https://www.livelaw.in/top-stories/detained-protesters-get-fewer-safeguards-than-those-arrested-for-heinous-crimes-rebecca-john-555232
 
-[Read on Telegram](https://t.me/livelawindia/122702)
-
----
-### 2026-10-17T11:06:47+00:00
-Delhi High Court Stays FSSAI Order Directing Britannia To Remove 'No Added Sugar', 'No Maida' Claims From Biscuit Labels
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-stays-fssai-order-directing-britannia-to-remove-no-added-sugar-no-maida-claims-from-biscuit-labels-555193
-
-[Read on Telegram](https://t.me/livelawindia/122703)
+[Read on Telegram](https://t.me/livelawindia/122721)
 
 ---
-### 2026-10-17T11:19:27+00:00
-Delhi Court Grants Bail To CJP Founder Abhijeet Dipke
-https://www.livelaw.in/news-updates/delhi-court-grants-bail-to-cjp-founder-abhijeet-dipke-555194
+### 2026-10-18T06:32:44+00:00
+Where Agreement To Sell Fixes No Date For Performance But Ties It To A Future Event, Limitation Runs From Notice Of Refusal: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-agreement-sell-fixes-date-for-performance-555225
 
-[Read on Telegram](https://t.me/livelawindia/122704)
-
----
-### 2026-10-17T12:36:28+00:00
-Delhi High Court Decrees Arjun Kapoor's Personality Rights Suit, Orders Takedown Of Infringing Links
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-decrees-arjun-kapoors-personality-rights-suit-orders-takedown-of-infringing-links-555201
-
-[Read on Telegram](https://t.me/livelawindia/122705)
+[Read on Telegram](https://t.me/livelawindia/122722)
 
 ---
-### 2026-10-17T13:05:38+00:00
-Actor Imran Khan Moves Bombay High Court Challenging "Leave India" Notice For Participating In Anti-CEC Protests
-https://www.livelaw.in/high-court/bombay-high-court/actor-imran-khan-move-bombay-high-court-tomorrow-555203
+### 2026-10-18T06:38:04+00:00
+Facebook Page Blocking | Police Intimation To Intermediary Must Come From DIG Or Above, SP Cannot Act As Delegatee: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-facebook-page-blocking-police-intimation-to-intermediary-must-come-from-dig-or-above-555218
 
-[Read on Telegram](https://t.me/livelawindia/122706)
-
----
-### 2026-10-17T13:32:38+00:00
-Mere Participation In Protest Does Not Establish Common Intention To Obstruct Police: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/mere-participation-in-protest-does-not-establish-common-intention-to-obstruct-police-delhi-high-court-555207
-
-[Read on Telegram](https://t.me/livelawindia/122707)
+[Read on Telegram](https://t.me/livelawindia/122723)
 
 ---
-### 2026-10-17T14:08:08+00:00
-Children Must Be Taught About Safe & Unsafe Touch, Train Teachers To Identify Grooming & Abuse : Supreme Court
-https://www.livelaw.in/top-stories/children-must-be-taught-about-safe-unsafe-touch-train-teachers-to-identify-grooming-abuse-supreme-court-555196
+### 2026-10-18T06:57:35+00:00
+Allegation Of Illicit Relationship Does Not Divest A Woman Of Her Legal Status As Widow: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-allegation-illicit-relationship-divest-woman-legal-status-widow-555220
 
-[Read on Telegram](https://t.me/livelawindia/122708)
-
----
-### 2026-10-17T14:32:48+00:00
-Regulating Algorithm: Free Speech And Social Media Censorship
-https://www.livelaw.in/articles/free-speech-social-media-censorship-555142
-
-[Read on Telegram](https://t.me/livelawindia/122709)
+[Read on Telegram](https://t.me/livelawindia/122724)
 
 ---
-### 2026-10-18T02:37:33+00:00
-Kerala High Court Refuses To Stay Order Reconstituting State Waqf Board
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-state-waqf-board-reconstitution-555217
+### 2026-10-18T07:06:15+00:00
+Supreme Court Weekly Roundup: October 05, 2026 To October 11, 2026
+https://www.livelaw.in/round-ups/weekly/supreme-court-weekly-roundup-october-05-2026-to-october-11-2026-555233
 
-[Read on Telegram](https://t.me/livelawindia/122710)
-
----
-### 2026-10-18T02:53:43+00:00
-Private Aided Educational Institution Employees Can't Claim Monetary Benefits From State For Non-Grant Period: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/private-aided-educational-institution-employees-cant-claim-monetary-benefits-from-state-for-non-grant-period-karnataka-high-court-555227
-
-[Read on Telegram](https://t.me/livelawindia/122711)
+[Read on Telegram](https://t.me/livelawindia/122725)
 
 ---
-### 2026-10-18T03:18:23+00:00
-Mini Cooper Accident: Kerala Court Denies Bail To 4 Accused
-https://www.livelaw.in/news-updates/kerala-court-mini-cooper-accident-bail-555228
+### 2026-10-18T07:21:35+00:00
+Young Professional (Law) Vacancy At Directorate General Of Foreign Trade [Srinagar; Apply Now]
+https://www.livelaw.in/job-updates/young-professional-law-vacancy-at-directorate-general-of-foreign-trade-srinagar-555234
 
-[Read on Telegram](https://t.me/livelawindia/122712)
+[Read on Telegram](https://t.me/livelawindia/122726)
 
 ---
-### 2026-10-18T03:37:33+00:00
-Government Trying To 'Capture' Supreme Court, Have Complete Faith It Won't Happen: Senior Advocate Kapil Sibal
-https://www.livelaw.in/top-stories/government-trying-to-capture-supreme-court-have-complete-faith-it-wont-happen-senior-advocate-kapil-sibal-555226
+### 2026-10-18T07:22:35+00:00
+Consultant Vacancy At Deloitte Touche Tohmatsu India LLP [Pune; Apply Now]
+https://www.livelaw.in/job-updates/consultant-vacancy-at-deloitte-touche-tohmatsu-india-llp-pune-555235
 
-[Read on Telegram](https://t.me/livelawindia/122713)
+[Read on Telegram](https://t.me/livelawindia/122727)
+
+---
+### 2026-10-18T07:23:55+00:00
+Factory Theft Went Unnoticed For Months: NCDRC Rejects Insurance Claim
+https://www.livelaw.in/consumer-cases/factory-theft-went-unnoticed-for-months-ncdrc-rejects-insurance-claim-555236
+
+[Read on Telegram](https://t.me/livelawindia/122728)
+
+---
+### 2026-10-18T07:24:05+00:00
+Project Analyst Vacancy At Ernst & Young [Noida; Apply Now]
+https://www.livelaw.in/job-updates/project-analyst-vacancy-at-ernst-young-noida-555237
+
+[Read on Telegram](https://t.me/livelawindia/122729)
+
+---
+### 2026-10-18T07:29:05+00:00
+Manager (Legal & Remedial) Vacancy At Tata Capital Limited [Vijayawada; Apply Now]
+https://www.livelaw.in/job-updates/manager-legal-remedial-vacancy-at-tata-capital-limited-vijayawada-555238
+
+[Read on Telegram](https://t.me/livelawindia/122730)
+
+---
+### 2026-10-18T07:34:25+00:00
+Assistant Manager Vacancy At KPMG India [Gurgaon; Apply Now]
+https://www.livelaw.in/job-updates/assistant-manager-vacancy-at-kpmg-india-gurgaon-555239
+
+[Read on Telegram](https://t.me/livelawindia/122731)
+
+---
+### 2026-10-18T08:03:05+00:00
+Reinstatement Of Daily-Wage Workman Is Not Automatic In Case Of Illegal Termination, Instead Monetary Compensation Is Appropriate:  Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/reinstatement-of-daily-wage-workman-is-not-automatic-in-case-of-illegal-termination-instead-monetary-compensation-is-appropriate-ph-high-court-555230
+
+[Read on Telegram](https://t.me/livelawindia/122732)
+
+---
+### 2026-10-18T08:07:45+00:00
+Rajasthan High Court Denies Bail To Government Officials Accused Of Facilitating Fake Aadhaar Cards, Cites National Security Concerns
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-denies-bail-government-officials-accused-facilitating-fake-aadhaar-cards-555219
+
+[Read on Telegram](https://t.me/livelawindia/122733)
+
+---
+### 2026-10-18T08:32:15+00:00
+LiveLaw Telangana High Court Monthly Digest : September, 2026
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-monthly-digest-554038
+
+[Read on Telegram](https://t.me/livelawindia/122734)
+
+---
+### 2026-10-18T08:57:55+00:00
+Non-Payment Of Admitted Contractual Dues Is Arbitrary, Writ Lies For Their Recovery: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-nonpayment-admitted-contractual-dues-arbitrary-555221
+
+[Read on Telegram](https://t.me/livelawindia/122735)
+
+---
+### 2026-10-18T09:32:25+00:00
+Between Najeeb And Gulfisha: UAPA Bail Dilemma After Khalid And Imam
+https://www.livelaw.in/articles/between-najeeb-gulfisha-uapa-bail-dilemma-khalid-imam-555215
+
+[Read on Telegram](https://t.me/livelawindia/122736)
 
 ---
