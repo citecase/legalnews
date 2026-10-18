@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-18T04:45:24+00:00*
+*Last Updated: 2026-10-18T06:57:35+00:00*
 
 ---
 
-### 2026-10-18T04:45:24+00:00
-Umar Khalid & Sharjeel Imam Should Have Been Granted Bail Long Ago: Justice Sudhanshu Dhulia
-https://www.livelaw.in/top-stories/umar-khalid-sharjeel-imam-should-have-been-granted-bail-long-ago-justice-sudhanshu-dhulia-555231
-
-[Read on Telegram](https://t.me/livelawindia/122717)
-
----
-### 2026-10-18T05:03:14+00:00
-Supreme Court Directs States, UTs To Notify Anti-Human Trafficking Units As Police Station
-https://www.livelaw.in/supreme-court/supreme-court-directs-states-uts-to-notify-anti-human-trafficking-units-as-police-station-555119
-
-[Read on Telegram](https://t.me/livelawindia/122718)
-
----
-### 2026-10-18T05:17:34+00:00
-Probationer Can Be Terminated For Unsatisfactory Performance Without Enquiry: Chhattisgarh High Court Reiterates
-https://www.livelaw.in/high-court/chhattisgarh-high-court/probationer-can-be-terminated-for-unsatisfactory-performance-without-enquiry-chhattisgarh-high-court-555229
-
-[Read on Telegram](https://t.me/livelawindia/122719)
-
----
-### 2026-10-18T05:27:54+00:00
-MEA's Refusal Of Clearance To Punjab CM Bhagwant Mann For France Visit Citing 'Political Angle' Is Without Reason : High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-mea-refused-clearance-to-punjab-cm-bhagwant-mann-for-france-visit-citing-political-angle-without-reason-555224
-
-[Read on Telegram](https://t.me/livelawindia/122720)
-
----
-### 2026-10-18T05:43:54+00:00
-Detained Protesters Get Fewer Safeguards Than Those Arrested For Heinous Crimes: Rebecca John
-https://www.livelaw.in/top-stories/detained-protesters-get-fewer-safeguards-than-those-arrested-for-heinous-crimes-rebecca-john-555232
-
-[Read on Telegram](https://t.me/livelawindia/122721)
-
----
-### 2026-10-18T06:32:44+00:00
-Where Agreement To Sell Fixes No Date For Performance But Ties It To A Future Event, Limitation Runs From Notice Of Refusal: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-agreement-sell-fixes-date-for-performance-555225
-
-[Read on Telegram](https://t.me/livelawindia/122722)
-
----
-### 2026-10-18T06:38:04+00:00
-Facebook Page Blocking | Police Intimation To Intermediary Must Come From DIG Or Above, SP Cannot Act As Delegatee: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-facebook-page-blocking-police-intimation-to-intermediary-must-come-from-dig-or-above-555218
-
-[Read on Telegram](https://t.me/livelawindia/122723)
-
----
 ### 2026-10-18T06:57:35+00:00
 Allegation Of Illicit Relationship Does Not Divest A Woman Of Her Legal Status As Widow: Allahabad High Court
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-allegation-illicit-relationship-divest-woman-legal-status-widow-555220
@@ -142,5 +93,54 @@ Between Najeeb And Gulfisha: UAPA Bail Dilemma After Khalid And Imam
 https://www.livelaw.in/articles/between-najeeb-gulfisha-uapa-bail-dilemma-khalid-imam-555215
 
 [Read on Telegram](https://t.me/livelawindia/122736)
+
+---
+### 2026-10-18T11:44:16+00:00
+CJI Surya Kant Inaugurates Ladakh HC Bench, Assures All Matters From Region Will Be Listed On Single Day In Supreme Court
+https://www.livelaw.in/top-stories/cji-surya-kant-inaugurates-ladakh-hc-bench-assures-all-matters-from-region-will-be-listed-on-single-day-in-supreme-court-555240
+
+[Read on Telegram](https://t.me/livelawindia/122737)
+
+---
+### 2026-10-18T12:14:06+00:00
+NCDRC Directs GMADA To Reassess Purab Premium Apartments Completion Certificates, Issue Fresh Certificates Within 30 Days
+https://www.livelaw.in/consumer-cases/ncdrc-directs-gmada-to-reassess-purab-premium-apartments-completion-certificates-issue-fresh-certificates-within-30-days-555241
+
+[Read on Telegram](https://t.me/livelawindia/122738)
+
+---
+### 2026-10-18T12:27:26+00:00
+Public Tender| Experience Of Building A Road Can't Be Equated With Internal Development Works Of A Township: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-experience-building-road-equated-internal-development-works-township-555222
+
+[Read on Telegram](https://t.me/livelawindia/122739)
+
+---
+### 2026-10-18T14:11:27+00:00
+Case Worker And Para Legal Personnel/ Lawyer Vacancy At One Stop Centre, Macherla Of Palnadu District
+https://www.livelaw.in/job-updates/case-worker-and-para-legal-personnel-lawyer-vacancy-at-one-stop-centre-macherla-of-palnadu-district-555242
+
+[Read on Telegram](https://t.me/livelawindia/122740)
+
+---
+### 2026-10-18T14:18:07+00:00
+Case Worker Vacancy At One Stop Centre, Narasaraopet of Palnadu District [Women's Only]
+https://www.livelaw.in/job-updates/case-worker-vacancy-at-one-stop-centre-narasaraopet-of-palnadu-district-womens-only-555243
+
+[Read on Telegram](https://t.me/livelawindia/122741)
+
+---
+### 2026-10-18T14:32:48+00:00
+How Generative AI Is Pushing India's Designs Act To Its Breaking Point
+https://www.livelaw.in/articles/how-generative-ai-pushing-india-designs-act-breaking-point-555216
+
+[Read on Telegram](https://t.me/livelawindia/122742)
+
+---
+### 2026-10-18T14:52:38+00:00
+Indemnity Bond Taken At Retirement Won't Let State Recover Wrongly Fixed Pay, Undertaking Must Be At Time Of Pay Fixation: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-indemnity-bond-retirement-state-recover-wrongly-fixed-pay-555223
+
+[Read on Telegram](https://t.me/livelawindia/122743)
 
 ---
