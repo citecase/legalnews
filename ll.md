@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-18T06:57:35+00:00*
+*Last Updated: 2026-10-18T07:21:35+00:00*
 
 ---
 
-### 2026-10-18T06:57:35+00:00
-Allegation Of Illicit Relationship Does Not Divest A Woman Of Her Legal Status As Widow: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-allegation-illicit-relationship-divest-woman-legal-status-widow-555220
-
-[Read on Telegram](https://t.me/livelawindia/122724)
-
----
-### 2026-10-18T07:06:15+00:00
-Supreme Court Weekly Roundup: October 05, 2026 To October 11, 2026
-https://www.livelaw.in/round-ups/weekly/supreme-court-weekly-roundup-october-05-2026-to-october-11-2026-555233
-
-[Read on Telegram](https://t.me/livelawindia/122725)
-
----
 ### 2026-10-18T07:21:35+00:00
 Young Professional (Law) Vacancy At Directorate General Of Foreign Trade [Srinagar; Apply Now]
 https://www.livelaw.in/job-updates/young-professional-law-vacancy-at-directorate-general-of-foreign-trade-srinagar-555234
@@ -142,5 +128,19 @@ Indemnity Bond Taken At Retirement Won't Let State Recover Wrongly Fixed Pay, Un
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-indemnity-bond-retirement-state-recover-wrongly-fixed-pay-555223
 
 [Read on Telegram](https://t.me/livelawindia/122743)
+
+---
+### 2026-10-18T17:03:08+00:00
+Courts This Week | ECI Under Fire, Cancer Drug Prices, Reservation & More
+https://www.livelaw.in/videos/eci-supreme-court-same-sex-reservation-rekha-gupta-rahul-gandhi-news-india-clat-students-judiciary-555254
+
+[Read on Telegram](https://t.me/livelawindia/122744)
+
+---
+### 2026-10-18T17:20:08+00:00
+Durg District Court Organises Campus Mediation Competition Under Mediation 3.0
+https://www.livelaw.in/news-updates/durg-district-court-organises-campus-mediation-competition-under-mediation-30-555255
+
+[Read on Telegram](https://t.me/livelawindia/122745)
 
 ---
