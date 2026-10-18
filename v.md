@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-18T10:32:37+00:00*
+*Last Updated: 2026-10-18T15:02:39+00:00*
+
+---
+
+### 2026-10-18T15:02:39+00:00
+Public Prosecutor Vacancy At Office of the District Magistrate, Arwal
+https://www.verdictum.in/job-updates/office-of-the-district-magistrate-1624204
+
+[Source Link](https://t.me/verdictumlegalupdates/29753)
+
+---
+
+### 2026-10-18T13:32:38+00:00
+Litigant Cannot Plead Ignorance Of Case Status When Court Orders Are Available Online; Failure To Follow Up Shows Lack Of Diligence: Delhi High Court
+https://www.verdictum.in/delhi-high-court/pawan-v-amit-gupta-2026dhc9215-db-litigants-internet-court-website-difficult-to-believe-1624196
+
+[Source Link](https://t.me/verdictumlegalupdates/29752)
 
 ---
 
@@ -145,22 +161,6 @@ All Individuals Including Children Have Fundamental Right To Access Internet: Su
 https://www.verdictum.in/supreme-court/just-rights-for-children-alliance-v-s-harish-2026-insc-1149-children-irrespective-of-age-fundamental-right-social-media-1624185
 
 [Source Link](https://t.me/verdictumlegalupdates/29734)
-
----
-
-### 2026-10-17T07:12:57+00:00
-Suit For Possession Simpliciter Not Maintainable Where Serious Dispute Casts A Cloud Over Plaintiff’s Title: Supreme Court
-https://www.verdictum.in/supreme-court/rano-singh-v-gurbax-singh-d-th-lrs-2026-insc-1137-agreement-to-sell-confers-no-title-without-a-registered-sale-deed-1624179
-
-[Source Link](https://t.me/verdictumlegalupdates/29733)
-
----
-
-### 2026-10-17T06:32:36+00:00
-Section 7 IBC Requires Proof Of Default On Preponderance Of Probabilities, Not Forensic Reconciliation Of Accounts: Supreme Court
-https://www.verdictum.in/supreme-court/deepak-raheja-and-another-v-omkara-assets-reconstruction-private-limited-and-another-s-62-1624171
-
-[Source Link](https://t.me/verdictumlegalupdates/29732)
 
 ---
 
