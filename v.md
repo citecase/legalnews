@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-17T15:52:19+00:00*
+*Last Updated: 2026-10-18T04:32:33+00:00*
+
+---
+
+### 2026-10-18T04:32:33+00:00
+Maximum Imprisonment For Non-Compliance With Maintenance Order U/S.125(3) CrPC Is One Month; Trial Court Can’t Continuously Imprison Husband: Jharkhand High Court
+https://www.verdictum.in/jharkhand-high-court/a-v-b-2026jhhc30968-imprisonment-maintenance-order-husband-section-1253-crpc-1624198
+
+[Source Link](https://t.me/verdictumlegalupdates/29747)
 
 ---
 
@@ -153,14 +161,6 @@ Woman Can Also Be Charged With Offence Of Gang Rape: Delhi High Court
 https://www.verdictum.in/delhi-high-court/ans-xxx-v-state-of-nct-of-delhi-2026dhc9197-woman-can-be-charged-with-gang-rape-common-intention-mother-minor-son-1624141
 
 [Source Link](https://t.me/verdictumlegalupdates/29728)
-
----
-
-### 2026-10-16T15:12:30+00:00
-Caste Membership Not Conclusive Proof Of Social Backwardness Under Article 16(4): Supreme Court Holds Conversion To Non-Hindu Religions Severs Entitlement Backward Class Reservation
-https://www.verdictum.in/supreme-court/2026-insc-1129-secretary-government-of-tamil-nadu-v-sameer-ahmed-1624140
-
-[Source Link](https://t.me/verdictumlegalupdates/29727)
 
 ---
 
