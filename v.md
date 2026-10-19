@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-18T15:02:39+00:00*
+*Last Updated: 2026-10-19T04:32:53+00:00*
+
+---
+
+### 2026-10-19T04:32:53+00:00
+Deceased’s Substance-Abuse History Made Accident Theory Probable: Supreme Court Acquits Man Of Murder
+https://www.verdictum.in/supreme-court/kusumlal-sao-v-state-of-chhattisgarh-2026-insc-1148-murder-acquittal-1624259
+
+[Source Link](https://t.me/verdictumlegalupdates/29754)
 
 ---
 
@@ -153,14 +161,6 @@ Public Authority's Act Of Revisiting Auction Process For Price Maximization Just
 https://www.verdictum.in/supreme-court/satinder-pal-singh-ors-v-bedi-hospital-ors-2026-insc-1142-auction-price-maximization-1624186
 
 [Source Link](https://t.me/verdictumlegalupdates/29735)
-
----
-
-### 2026-10-17T07:53:18+00:00
-All Individuals Including Children Have Fundamental Right To Access Internet: Supreme Court Disapproves Blanket Restrictions
-https://www.verdictum.in/supreme-court/just-rights-for-children-alliance-v-s-harish-2026-insc-1149-children-irrespective-of-age-fundamental-right-social-media-1624185
-
-[Source Link](https://t.me/verdictumlegalupdates/29734)
 
 ---
 
