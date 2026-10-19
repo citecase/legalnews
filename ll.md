@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-19T05:21:56+00:00*
+*Last Updated: 2026-10-19T07:39:06+00:00*
 
 ---
 
-### 2026-10-19T05:21:56+00:00
-'Non-Detection Of Sperm After 72 Hours Natural, Three-Day Delay In FIR Properly Explained': Jharkhand High Court Upholds Gang Rape Conviction
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-upholds-gang-rape-conviction-555273
-
-[Read on Telegram](https://t.me/livelawindia/122759)
-
----
-### 2026-10-19T05:35:56+00:00
-Voters Can File Private Complaints Against Candidates For False Affidavits Under S. 125A Of RP Act: Supreme Court
-https://www.livelaw.in/top-stories/voters-can-file-private-complaints-against-candidates-for-false-affidavits-under-s-125a-of-rp-act-supreme-court-555274
-
-[Read on Telegram](https://t.me/livelawindia/122760)
-
----
-### 2026-10-19T05:37:16+00:00
-2026 LiveLaw (SC) 1069 | Rajkumar Madki v. Dr. Shailendra Beldale
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1069-rajkumar-madki-v-dr-shailendra-beldale-555275
-
-[Read on Telegram](https://t.me/livelawindia/122761)
-
----
-### 2026-10-19T05:43:56+00:00
-Bombay High Court To Hear Actor Imran Khan's Plea Against 'Leave India' Notice On October 26
-https://www.livelaw.in/top-stories/bombay-high-court-to-hear-actor-imran-khans-plea-against-leave-india-notice-on-october-26-555276
-
-[Read on Telegram](https://t.me/livelawindia/122762)
-
----
-### 2026-10-19T06:18:06+00:00
-Program Assistant – I Vacancy At Indian Institute Of Technology Gandhinagar
-https://www.livelaw.in/job-updates/program-assistant-i-vacancy-at-indian-institute-of-technology-gandhinagar-555280
-
-[Read on Telegram](https://t.me/livelawindia/122763)
-
----
-### 2026-10-19T06:19:06+00:00
-Manager (Legal) Vacancy At Jammu & Kashmir Development Finance Corporation Limited (JKDFC)
-https://www.livelaw.in/job-updates/manager-legal-vacancy-at-jammu-kashmir-development-finance-corporation-limited-jkdfc-555281
-
-[Read on Telegram](https://t.me/livelawindia/122764)
-
----
-### 2026-10-19T06:55:36+00:00
-'Entrustment Basic Ingredient Of Criminal Breach Of Trust' : Supreme Court Restores Acquittal of Telephone Department Cashier
-https://www.livelaw.in/supreme-court/supreme-court-restores-acquittal-telephone-department-cashier-criminal-breach-trust-case-555285
-
-[Read on Telegram](https://t.me/livelawindia/122765)
-
----
-### 2026-10-19T07:28:06+00:00
-Bombay High Court Seeks State Response On Plea Alleging Illegal Mumbai Police Detentions During Anti-CEC Protests
-https://www.livelaw.in/top-stories/bombay-high-court-seeks-state-response-on-plea-alleging-illegal-mumbai-police-detentions-during-anti-cec-protests-555287
-
-[Read on Telegram](https://t.me/livelawindia/122766)
-
----
 ### 2026-10-19T07:39:06+00:00
 Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
 https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-555288
@@ -142,5 +86,61 @@ YSRCP Moves Supreme Court Alleging Violence Prevented Its Candidates From Filing
 https://www.livelaw.in/top-stories/ysrcp-moves-supreme-court-alleging-violence-prevented-its-candidates-from-filing-nominations-for-ap-municipal-polls-555322
 
 [Read on Telegram](https://t.me/livelawindia/122778)
+
+---
+### 2026-10-19T13:42:27+00:00
+Executive Magistrate Extends CJP Leaders Saurav Das, Ashutosh Ranka's Judicial Custody By Two Days
+https://www.livelaw.in/top-stories/executive-magistrate-extends-cjp-leaders-saurav-das-ashutosh-rankas-judicial-custody-by-two-days-555330
+
+[Read on Telegram](https://t.me/livelawindia/122779)
+
+---
+### 2026-10-19T14:32:37+00:00
+Reading Between Lines: Interpretive Analysis Of Section 144 BNSS
+https://www.livelaw.in/articles/reading-between-lines-interpretive-analysis-section144-bnss-555266
+
+[Read on Telegram](https://t.me/livelawindia/122780)
+
+---
+### 2026-10-19T16:05:38+00:00
+Criticising Supreme Court's Judgment As 'Denial Of Justice' Not Offence : Karnataka High Court Quashes FIR Under S.153A, 295A IPC
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-fir-against-wall-slogans-criticizing-apex-court-verdict-555333
+
+[Read on Telegram](https://t.me/livelawindia/122781)
+
+---
+### 2026-10-19T17:09:48+00:00
+Calcutta High Court Urges State To Consider Law Against 'Vexatious Litigation', Restricts PILs By Frequent Litigant
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-urges-state-to-consider-law-against-vexatious-litigation-restricts-pils-by-frequent-litigant-555335
+
+[Read on Telegram](https://t.me/livelawindia/122782)
+
+---
+### 2026-10-19T17:10:28+00:00
+Jammu & Kashmir And Ladakh High Court Weekly Roundup October 12 - October 18, 2026
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-weekly-roundup-october-12-october-18-2026-555336
+
+[Read on Telegram](https://t.me/livelawindia/122783)
+
+---
+### 2026-10-19T17:22:08+00:00
+'No Respect For Law, Habitual In Calling Protests At Denotified Area' : Executive Magistrate On Extending CJP Leaders' Custody
+https://www.livelaw.in/top-stories/saurav-das-ashutosh-ranka-no-respect-for-law-repeatedly-called-executive-magistrate-on-extending-cjp-leaders-custody-555340
+
+[Read on Telegram](https://t.me/livelawindia/122784)
+
+---
+### 2026-10-19T17:40:19+00:00
+NLIU Bhopal Invites Registrations For Advanced Certificate Programme On Commercial Arbitration
+https://www.livelaw.in/lawschool/seminars/nliu-bhopal-invites-registrations-for-advanced-certificate-programme-on-commercial-arbitration-555341
+
+[Read on Telegram](https://t.me/livelawindia/122785)
+
+---
+### 2026-10-19T17:58:59+00:00
+CJI Surya Kant Inaugurates Ladakh Bench Of Jammu & Kashmir And Ladakh High Court
+https://www.livelaw.in/news-updates/cji-surya-kant-inaugurates-ladakh-bench-jammu-kashmir-ladakh-high-court-555342
+
+[Read on Telegram](https://t.me/livelawindia/122786)
 
 ---
