@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-19T13:13:01+00:00*
+*Last Updated: 2026-10-19T15:12:22+00:00*
+
+---
+
+### 2026-10-19T15:12:22+00:00
+Legal Assistant, Counsel Vacancies At Secunderabad Cantonment Board
+https://www.verdictum.in/job-updates/secunderabad-cantonment-board-1624305
+
+[Source Link](https://t.me/verdictumlegalupdates/29770)
+
+---
+
+### 2026-10-19T14:32:42+00:00
+Delhi High Court Allows UAPA Accused Natasha Narwal To Travel To UK For PhD Presentation, Holds UAPA Charges Do Not Blanketly Curtail Right To Travel
+https://www.verdictum.in/delhi-high-court/2026-dhc-9372-natasha-narwal-v-state-of-nct-of-delhi-1624315
+
+[Source Link](https://t.me/verdictumlegalupdates/29769)
+
+---
+
+### 2026-10-19T13:53:07+00:00
+Law Respects Larger Interest Over Individual Interest: Orissa High Court Refuses To Pass Orders Against Temporary Puja Pandals On Road
+https://www.verdictum.in/orissa-high-court/sarat-kumar-gajendra-v-collector-2026ohc220-db-individual-interest-temporary-puja-pandals-1624313
+
+[Source Link](https://t.me/verdictumlegalupdates/29768)
 
 ---
 
@@ -137,30 +161,6 @@ Using Children In Election Reels Is “Cheap” But Not Undue Influence Unless A
 https://www.verdictum.in/madras-high-court/k-sivakumar-v-r-rajendran-and-others-minor-children-election-campaign-1624232
 
 [Source Link](https://t.me/verdictumlegalupdates/29751)
-
----
-
-### 2026-10-18T09:02:56+00:00
-Letters Patent Bench Can Interfere With Writ-Court Decision Only For Glaring, Demonstrable Error: Supreme Court
-https://www.verdictum.in/supreme-court/r-saravanan-v-periyar-university-represented-by-its-registrar-and-others-2026-insc-1136-1624234
-
-[Source Link](https://t.me/verdictumlegalupdates/29750)
-
----
-
-### 2026-10-18T07:32:35+00:00
-Claimant Requiring Lifelong Attendant Can Be Treated As 100% Functionally Disabled Under Motor Vehicles Act: Supreme Court
-https://www.verdictum.in/supreme-court/sunil-kumar-totally-disabled-represented-by-wife-v-iffco-tokio-general-insurance-company-limited-2026-insc-1145-1624233
-
-[Source Link](https://t.me/verdictumlegalupdates/29749)
-
----
-
-### 2026-10-18T06:02:54+00:00
-Digital Safety & Sex Education Are Two Sides Of The Same Coin, Must Form Part Of School Curriculum: Supreme Court issues Guidelines For Child Safety
-https://www.verdictum.in/supreme-court/-just-rights-for-children-alliance-v-s-harish-2026-insc-1149-digital-safety-sex-education-measures-for-child-safety-1624235
-
-[Source Link](https://t.me/verdictumlegalupdates/29748)
 
 ---
 
