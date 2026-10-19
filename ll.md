@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-18T07:21:35+00:00*
+*Last Updated: 2026-10-18T07:23:55+00:00*
 
 ---
 
-### 2026-10-18T07:21:35+00:00
-Young Professional (Law) Vacancy At Directorate General Of Foreign Trade [Srinagar; Apply Now]
-https://www.livelaw.in/job-updates/young-professional-law-vacancy-at-directorate-general-of-foreign-trade-srinagar-555234
-
-[Read on Telegram](https://t.me/livelawindia/122726)
-
----
-### 2026-10-18T07:22:35+00:00
-Consultant Vacancy At Deloitte Touche Tohmatsu India LLP [Pune; Apply Now]
-https://www.livelaw.in/job-updates/consultant-vacancy-at-deloitte-touche-tohmatsu-india-llp-pune-555235
-
-[Read on Telegram](https://t.me/livelawindia/122727)
-
----
 ### 2026-10-18T07:23:55+00:00
 Factory Theft Went Unnoticed For Months: NCDRC Rejects Insurance Claim
 https://www.livelaw.in/consumer-cases/factory-theft-went-unnoticed-for-months-ncdrc-rejects-insurance-claim-555236
@@ -142,5 +128,19 @@ Durg District Court Organises Campus Mediation Competition Under Mediation 3.0
 https://www.livelaw.in/news-updates/durg-district-court-organises-campus-mediation-competition-under-mediation-30-555255
 
 [Read on Telegram](https://t.me/livelawindia/122745)
+
+---
+### 2026-10-19T03:03:05+00:00
+Paytm Payments Bank Liable For Failed Insurance Payment; Delhi Consumer Commission Orders Refund With Interest
+https://www.livelaw.in/consumer-cases/paytm-payments-bank-liable-for-failed-insurance-payment-delhi-consumer-commission-orders-refund-with-interest-555256
+
+[Read on Telegram](https://t.me/livelawindia/122746)
+
+---
+### 2026-10-19T03:48:35+00:00
+LiveLaw Allahabad High Court Weekly Round-Up: October 12 - October 18, 2026
+https://www.livelaw.in/round-ups/weekly/allahabad-high-court-weekly-round-up-october12-october18-2026-555257
+
+[Read on Telegram](https://t.me/livelawindia/122747)
 
 ---
