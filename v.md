@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-20T04:32:54+00:00*
+*Last Updated: 2026-10-20T10:32:14+00:00*
+
+---
+
+### 2026-10-20T10:32:14+00:00
+Apprehension That Future Policy Might Restrict Running Of Two Colleges For Same Course Within One Campus Is Speculative: Delhi High Court Rejects NCAHP's Stand
+https://www.verdictum.in/delhi-high-court/parul-university-v-national-commission-for-allied-and-healthcare-professions-2026dhc9267-policy-college-course-1624317
+
+[Source Link](https://t.me/verdictumlegalupdates/29775)
+
+---
+
+### 2026-10-20T09:03:14+00:00
+Karnataka High Court Refuses To Quash Criminal Proceedings Against Advocate Practicing For A Decade Without Clearing AIBE
+https://www.verdictum.in/karnataka-high-court/refuses-quash-criminal-proceedings-advocate-clearing-aib-examination-1624304
+
+[Source Link](https://t.me/verdictumlegalupdates/29774)
+
+---
+
+### 2026-10-20T07:32:54+00:00
+Registration As MSME After Executing Contract Doesn’t Bar Reference Of Dispute To Arbitration U/S 18 MSMED Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/ms-tpl-kipl-joint-ventures-v-micro-and-small-enterprise-facilitation-council-district-magistrate-west-government-of-nct-of-delhi-2026dhc9282-1624303
+
+[Source Link](https://t.me/verdictumlegalupdates/29773)
+
+---
+
+### 2026-10-20T06:03:14+00:00
+No Law Defines Love Jihad: Calcutta High Court While Dismissing Quashing Plea Of Muslim Man Accused Of Representing Himself As Hindu
+https://www.verdictum.in/calcutta-high-court/2026-chc-as-1890-md-rafikul-islam-v-state-of-west-bengal-1624307
+
+[Source Link](https://t.me/verdictumlegalupdates/29772)
 
 ---
 
@@ -129,38 +161,6 @@ Alternative Remedy Not Absolute Bar To Writ Petition In SARFAESI Matters Where S
 https://www.verdictum.in/delhi-high-court/shashi-r-jatia-v-prudent-arc-2026dhc9120-fraud-and-forgery-alternative-remedy-not-absolute-bar-1624270
 
 [Source Link](https://t.me/verdictumlegalupdates/29756)
-
----
-
-### 2026-10-19T05:15:34+00:00
-Residential Zoning Can’t Extinguish State’s Legitimate Rights Over Water Bodies: Supreme Court Affirms Demolition Of Flats After Alternative Allotment
-https://www.verdictum.in/supreme-court/gururaj-v-the-additional-chief-secretarycommissioner-of-land-administration-and-others-2026-insc-1146-1624269
-
-[Source Link](https://t.me/verdictumlegalupdates/29755)
-
----
-
-### 2026-10-19T04:32:53+00:00
-Deceased’s Substance-Abuse History Made Accident Theory Probable: Supreme Court Acquits Man Of Murder
-https://www.verdictum.in/supreme-court/kusumlal-sao-v-state-of-chhattisgarh-2026-insc-1148-murder-acquittal-1624259
-
-[Source Link](https://t.me/verdictumlegalupdates/29754)
-
----
-
-### 2026-10-18T15:02:39+00:00
-Public Prosecutor Vacancy At Office of the District Magistrate, Arwal
-https://www.verdictum.in/job-updates/office-of-the-district-magistrate-1624204
-
-[Source Link](https://t.me/verdictumlegalupdates/29753)
-
----
-
-### 2026-10-18T13:32:38+00:00
-Litigant Cannot Plead Ignorance Of Case Status When Court Orders Are Available Online; Failure To Follow Up Shows Lack Of Diligence: Delhi High Court
-https://www.verdictum.in/delhi-high-court/pawan-v-amit-gupta-2026dhc9215-db-litigants-internet-court-website-difficult-to-believe-1624196
-
-[Source Link](https://t.me/verdictumlegalupdates/29752)
 
 ---
 
