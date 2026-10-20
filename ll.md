@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-19T07:39:06+00:00*
+*Last Updated: 2026-10-19T09:17:46+00:00*
 
 ---
 
-### 2026-10-19T07:39:06+00:00
-Legal Researcher Vacancy At The Rajasthan High Court, Jodhpur [Apply Now]
-https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-the-rajasthan-high-court-jodhpur-555288
-
-[Read on Telegram](https://t.me/livelawindia/122767)
-
----
-### 2026-10-19T07:47:26+00:00
-Para Legal Volunteer Vacancy At District Legal Services Authority, Moradabad
-https://www.livelaw.in/job-updates/para-legal-volunteer-vacancy-at-district-legal-services-authority-moradabad-555289
-
-[Read on Telegram](https://t.me/livelawindia/122768)
-
----
-### 2026-10-19T08:38:16+00:00
-Neha Bora Moves Delhi High Court Challenges Police Notice For Peace Bond Amid Anti-CEC Protests
-https://www.livelaw.in/top-stories/neha-bora-moves-delhi-high-court-challenges-police-notice-for-peace-bond-amid-anti-cec-protests-555293
-
-[Read on Telegram](https://t.me/livelawindia/122769)
-
----
-### 2026-10-19T08:41:16+00:00
-Sikkim Bar Association Opposes Dushyant Gautam's Swearing-In As Governor
-https://www.livelaw.in/news-updates/sikkim-bar-association-opposes-dushyant-gautams-swearing-in-as-governor-555294
-
-[Read on Telegram](https://t.me/livelawindia/122770)
-
----
-### 2026-10-19T08:54:06+00:00
-Allahabad High Court Stays Conviction Of Murder Convict Who Wishes To Contest UP Assembly Polls On BJP Ticket
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-stays-murder-convict-conviction-bjp-ticket-555295
-
-[Read on Telegram](https://t.me/livelawindia/122771)
-
----
 ### 2026-10-19T09:17:46+00:00
 Criminal Action Can Be Taken Against Advocates Practising Without Clearing AIBE: Karnataka High Court
 https://www.livelaw.in/high-court/karnataka-high-court/criminal-action-can-be-taken-against-advocates-practising-without-clearing-aibe-karnataka-high-court-555299
@@ -142,5 +107,40 @@ CJI Surya Kant Inaugurates Ladakh Bench Of Jammu & Kashmir And Ladakh High Court
 https://www.livelaw.in/news-updates/cji-surya-kant-inaugurates-ladakh-bench-jammu-kashmir-ladakh-high-court-555342
 
 [Read on Telegram](https://t.me/livelawindia/122786)
+
+---
+### 2026-10-20T02:50:43+00:00
+Executive Notification Granting Age Relaxation Can't Override Separate Recruitment Rules Of MCD : Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/executive-notification-granting-age-relaxation-cant-override-separate-recruitment-rules-of-mcd-delhi-high-court-555344
+
+[Read on Telegram](https://t.me/livelawindia/122787)
+
+---
+### 2026-10-20T02:55:43+00:00
+2026 LiveLaw (SC) 1070 | Tejaram v. State of Rajasthan
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1070-tejaram-v-state-of-rajasthan-555346
+
+[Read on Telegram](https://t.me/livelawindia/122788)
+
+---
+### 2026-10-20T04:02:14+00:00
+LiveLaw Kerala High Court Weekly Round-Up: October 12 - October 18, 2026
+https://www.livelaw.in/high-court/kerala-high-court/livelaw-kerala-high-court-weekly-round-up-october-2026-555351
+
+[Read on Telegram](https://t.me/livelawindia/122789)
+
+---
+### 2026-10-20T04:02:54+00:00
+LiveLaw Madras High Court Weekly Roundup: October 12 - October 18, 2026
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-october-12-to-october-18-2026-555349
+
+[Read on Telegram](https://t.me/livelawindia/122790)
+
+---
+### 2026-10-20T04:03:04+00:00
+Supreme Court Directs Centre To Publicise Scheme For Interim Compensation To Road Accident Victims
+https://www.livelaw.in/supreme-court/supreme-court-directs-centre-to-publicise-scheme-for-interim-compensation-to-road-accident-victims-555334
+
+[Read on Telegram](https://t.me/livelawindia/122791)
 
 ---
