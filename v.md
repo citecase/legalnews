@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-19T15:12:22+00:00*
+*Last Updated: 2026-10-20T04:32:54+00:00*
+
+---
+
+### 2026-10-20T04:32:54+00:00
+Woman’s Remarriage Does Not By Itself Wipe Out Alimony Entitlement But Is Material Factor To Determine Its Quantum: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/bnp-v-sag-2026khc51576-db-divorce-woman-remarriage-alimony-quantum-1624306
+
+[Source Link](https://t.me/verdictumlegalupdates/29771)
 
 ---
 
@@ -153,14 +161,6 @@ Litigant Cannot Plead Ignorance Of Case Status When Court Orders Are Available O
 https://www.verdictum.in/delhi-high-court/pawan-v-amit-gupta-2026dhc9215-db-litigants-internet-court-website-difficult-to-believe-1624196
 
 [Source Link](https://t.me/verdictumlegalupdates/29752)
-
----
-
-### 2026-10-18T10:32:37+00:00
-Using Children In Election Reels Is “Cheap” But Not Undue Influence Unless Adult Voters’ Free Will Is Overpowered: Madras High Court
-https://www.verdictum.in/madras-high-court/k-sivakumar-v-r-rajendran-and-others-minor-children-election-campaign-1624232
-
-[Source Link](https://t.me/verdictumlegalupdates/29751)
 
 ---
 
