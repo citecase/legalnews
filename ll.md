@@ -1,121 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-20T05:59:24+00:00*
+*Last Updated: 2026-10-20T10:37:05+00:00*
 
 ---
 
-### 2026-10-20T05:59:24+00:00
-How Can Dependants Access Bank Savings Of Coma Patients? Allahabad High Court Seeks Centre, RBI Response On Legal Framework
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-coma-patients-bank-savings-rbi-guidelines-555361
-
-[Read on Telegram](https://t.me/livelawindia/122802)
-
----
-### 2026-10-20T05:59:44+00:00
-LiveLaw Andhra Pradesh High Court Weekly Round-Up: October 12 - October 18, 2026
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-weekly-roundup-555362
-
-[Read on Telegram](https://t.me/livelawindia/122803)
-
----
-### 2026-10-20T06:38:24+00:00
-'Very Unfortunate': Allahabad High Court On Non-Circulation Of Its February 2026 Order On Police Station CCTV Inspections
-https://www.livelaw.in/high-court/allahabad-high-court/very-unfortunate-allahabad-high-court-police-station-cctv-inspections-555368
-
-[Read on Telegram](https://t.me/livelawindia/122804)
-
----
-### 2026-10-20T07:03:14+00:00
-Legal Researcher Vacancy At Rajasthan High Court, Jodhpur
-https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-rajasthan-high-court-jodhpur-555369
-
-[Read on Telegram](https://t.me/livelawindia/122805)
-
----
-### 2026-10-20T07:10:14+00:00
-UP Mahila Samman Kosh | Can't Deny Compensation To POCSO Survivor Citing Absence Of Injury In Medical Report: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-up-mahila-samman-kosh-deny-compensation-pocso-survivor-absence-injury-555370
-
-[Read on Telegram](https://t.me/livelawindia/122806)
-
----
-### 2026-10-20T07:13:15+00:00
-Disability Not Recorded At Enrolment Presumed To Have Arisen During Service Unless Rebutted By Cogent Medical Evidence: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/disability-not-recorded-at-enrolment-presumed-to-have-arisen-during-service-unless-rebutted-by-cogent-medical-evidence-jkl-high-court-555337
-
-[Read on Telegram](https://t.me/livelawindia/122807)
-
----
-### 2026-10-20T07:20:14+00:00
-Area Legal Manager Vacancy At Kotak Mahindra Bank Limited
-https://www.livelaw.in/job-updates/area-legal-manager-vacancy-at-kotak-mahindra-bank-limited-555371
-
-[Read on Telegram](https://t.me/livelawindia/122808)
-
----
-### 2026-10-20T07:25:54+00:00
-Consultant Vacancy At Ernst & Young [Mumbai; Apply Now]
-https://www.livelaw.in/job-updates/consultant-vacancy-at-ernst-young-mumbai-555373
-
-[Read on Telegram](https://t.me/livelawindia/122809)
-
----
-### 2026-10-20T07:27:45+00:00
-Social Media Users Must Be Given Copy Of Govt Intimation To Intermediary For Content Blocking: Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/social-media-users-must-be-given-copy-of-govt-intimation-to-intermediary-for-content-blocking-punjab-haryana-high-court-555374
-
-[Read on Telegram](https://t.me/livelawindia/122810)
-
----
-### 2026-10-20T07:34:04+00:00
-Deputy Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/deputy-manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-555375
-
-[Read on Telegram](https://t.me/livelawindia/122811)
-
----
-### 2026-10-20T07:35:04+00:00
-Why Teaching Post Vacancies Notified Separately For Males & Females? Supreme Court Asks Delhi Govt On Transgender Candidate's Plea
-https://www.livelaw.in/top-stories/why-teaching-post-vacancies-notified-separately-for-males-females-supreme-court-asks-delhi-govt-on-transgender-candidates-plea-555376
-
-[Read on Telegram](https://t.me/livelawindia/122812)
-
----
-### 2026-10-20T08:45:15+00:00
-Allahabad High Court Upholds Rejection Of Plea Seeking 1% Senior Citizens' Quota In NEET Admissions
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-senior-citizens-mbbs-reservation-plea-555380
-
-[Read on Telegram](https://t.me/livelawindia/122813)
-
----
-### 2026-10-20T08:55:55+00:00
-Amity Law School To Host 8th National Moot Court Competition
-https://www.livelaw.in/lawschool/competitions/amity-law-school-host-8th-national-moot-court-competition-555381
-
-[Read on Telegram](https://t.me/livelawindia/122814)
-
----
-### 2026-10-20T09:04:05+00:00
-20th Pro Bono Enviro National Moot Court Competition, 2026-27, By SoEL, TNDALU, Chennai: Register By 20 November 2026
-https://www.livelaw.in/lawschool/competitions/tndalu-host-20th-pro-bono-enviro-national-moot-court-competition-555383
-
-[Read on Telegram](https://t.me/livelawindia/122815)
-
----
-### 2026-10-20T09:33:05+00:00
-Can Tata Sons Restructure Its Way Past RBI's Listing Mandate?
-https://www.livelaw.in/articles/tata-sons-restructure-way-past-rbi-listing-mandate-555318
-
-[Read on Telegram](https://t.me/livelawindia/122816)
-
----
-### 2026-10-20T10:33:05+00:00
-LiveLaw Bombay High Court Monthly Digest: September 2026
-https://www.livelaw.in/high-court/bombay-high-court/livelaw-bombay-high-court-monthly-digest-september-2026-555013
-
-[Read on Telegram](https://t.me/livelawindia/122817)
-
----
 ### 2026-10-20T10:37:05+00:00
 Precedents Barring Recovery Of Excess Payments Have Not Considered Section 72 Contract Act: Supreme Court
 https://www.livelaw.in/top-stories/supreme-court-precedents-barring-recovery-excess-payments-considered-section72-contract-act-555397
@@ -142,5 +30,117 @@ https://www.livelaw.in/high-court/jammu-kashmir/proceedings-under-sections-107-a
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-quash-homicide-charges-against-father-handing-car-keys-555400
 
 [Read on Telegram](https://t.me/livelawindia/122821)
+
+---
+### 2026-10-20T11:51:36+00:00
+BREAKING | CJP Leaders Saurav Das, Ashutosh Ranka Move Delhi High Court Against Judicial Custody
+https://www.livelaw.in/high-court/delhi-high-court/cjp-leaders-saurav-das-ashutosh-ranka-move-delhi-high-court-against-extension-of-judicial-custody-555408
+
+[Read on Telegram](https://t.me/livelawindia/122822)
+
+---
+### 2026-10-20T11:55:56+00:00
+Durga Puja Stampede | Calcutta High Court Suggests Appointment Of Retd Judge To Probe Incident If Sitting Judge Unavailable
+https://www.livelaw.in/high-court/calcutta-high-court/durga-puja-stampede-calcutta-high-court-suggests-appointment-of-retd-judge-to-probe-incident-if-sitting-judge-unavailable-555409
+
+[Read on Telegram](https://t.me/livelawindia/122823)
+
+---
+### 2026-10-20T12:02:56+00:00
+Longstanding Possession Of Land Cannot Be Treated As Unauthorized Under Migrant Property Act Without Proper Enquiry: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/longstanding-possession-of-land-cannot-be-treated-as-unauthorized-under-migrant-property-act-without-proper-enquiry-jk-high-court-555339
+
+[Read on Telegram](https://t.me/livelawindia/122824)
+
+---
+### 2026-10-20T12:03:06+00:00
+Recommendation For Out-Of-Turn Promotion Does Not Create Right To Retrospective Promotion: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/recommendation-for-out-of-turn-promotion-does-not-create-enforceable-right-to-retrospective-promotion-jk-hc-rejects-police-officers-claim-to-promotion-from-1998-555338
+
+[Read on Telegram](https://t.me/livelawindia/122825)
+
+---
+### 2026-10-20T12:23:06+00:00
+Yamuna Expressway Bus Fire: Allahabad High Court Issues Notice To MoRTH Over Compliance With Sleeper Bus Safety Standards
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-yamuna-expressway-bus-fire-morth-notice-555411
+
+[Read on Telegram](https://t.me/livelawindia/122826)
+
+---
+### 2026-10-20T12:32:26+00:00
+Madras High Court Launches Digital Dashboard To Track Unclaimed Motor Accident, Labour Court Awards
+https://www.livelaw.in/news-updates/madras-high-court-digital-dashboard-unclaimed-motor-accident-labour-court-awards-555405
+
+[Read on Telegram](https://t.me/livelawindia/122827)
+
+---
+### 2026-10-20T12:59:16+00:00
+Allahabad High Court Directs Verification Of Educational & Appointment Documents Of All UP Basic School Teachers: Here's Why
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-verification-documents-up-basic-school-teachers-555413
+
+[Read on Telegram](https://t.me/livelawindia/122828)
+
+---
+### 2026-10-20T13:38:36+00:00
+Can Certificate Of Practice (CoP) Be Reissued With Changed Place Of Practice? Allahabad High Court Asks UP Bar Council
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-cop-changed-place-of-practice-555414
+
+[Read on Telegram](https://t.me/livelawindia/122829)
+
+---
+### 2026-10-20T14:03:26+00:00
+Taming Final Bell: SEBI's Derivatives Settlement Decoupling
+https://www.livelaw.in/articles/taming-final-bell-sebi-derivatives-settlement-decoupling-555417
+
+[Read on Telegram](https://t.me/livelawindia/122830)
+
+---
+### 2026-10-20T14:18:46+00:00
+Calcutta High Court Seeks State's Reply To PIL Alleging Police Used Fraudulently Issued Stamp Papers To Force TMC Workers To Back Rival Faction
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-seeks-states-reply-to-pil-alleging-police-used-fraudulently-issued-stamp-papers-to-force-tmc-workers-to-back-rival-faction-555418
+
+[Read on Telegram](https://t.me/livelawindia/122831)
+
+---
+### 2026-10-20T14:32:36+00:00
+Supreme Court Quietly Rewrote Law On Alibi
+https://www.livelaw.in/articles/supreme-court-quietly-rewrote-law-on-alibi-555319
+
+[Read on Telegram](https://t.me/livelawindia/122832)
+
+---
+### 2026-10-20T14:39:56+00:00
+MNLU Mumbai To Host Fireside Chat On Artificial Intelligence And Future Of Banking
+https://www.livelaw.in/lawschool/news/mnlu-mumbai-to-host-fireside-chat-on-artificial-intelligence-and-future-of-banking-555421
+
+[Read on Telegram](https://t.me/livelawindia/122833)
+
+---
+### 2026-10-20T14:46:56+00:00
+LiveLaw Rajasthan High Court Weekly Round-Up: October 12 - October 18, 2026
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-weekly-roundup-555424
+
+[Read on Telegram](https://t.me/livelawindia/122834)
+
+---
+### 2026-10-20T15:03:37+00:00
+Calcutta High Court Dismisses CPIM's Plea Against Removal Of Durga Puja Bookstall In Jadavpur Over Lack Of Permission
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-dismisses-cpim-plea-against-removal-of-durga-puja-bookstall-for-want-of-permission-555427
+
+[Read on Telegram](https://t.me/livelawindia/122835)
+
+---
+### 2026-10-20T15:08:37+00:00
+Calcutta High Court Extends Interim Bail Of Milan Pradhan In 2007 Nandigram Violence Case Till November 25
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-extends-interim-bail-of-milan-pradhan-in-2007-nandigram-violence-case-till-november-25-555429
+
+[Read on Telegram](https://t.me/livelawindia/122836)
+
+---
+### 2026-10-20T15:32:47+00:00
+MP High Court Issues Notice On Plea Challenging Datia MLA's Election Alleging Incomplete Disclosure Of Criminal Antecedents
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-issues-notice-in-plea-challenging-election-of-datia-mla-555377
+
+[Read on Telegram](https://t.me/livelawindia/122837)
 
 ---
