@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-20T10:32:14+00:00*
+*Last Updated: 2026-10-20T15:02:46+00:00*
+
+---
+
+### 2026-10-20T15:02:46+00:00
+Legal Officer Vacancy At Indian Institute of Foreign Trade
+https://www.verdictum.in/job-updates/indian-institute-of-foreign-trade-1624308
+
+[Source Link](https://t.me/verdictumlegalupdates/29778)
+
+---
+
+### 2026-10-20T13:33:05+00:00
+Mere Possession Of Object Capable Of Being Affixed With Fake ISI Mark Not Punishable Under BIS Act Without Proof Of Use: Kerala High Court
+https://www.verdictum.in/kerala-high-court/bureau-of-indian-standards-v-ms-mars-veneers-and-boards-and-others-2026ker79827-1624339
+
+[Source Link](https://t.me/verdictumlegalupdates/29777)
+
+---
+
+### 2026-10-20T12:02:34+00:00
+Transgender Woman Cannot Be Considered As 'Woman' For Purposes Of Section 69 BNS: Allahabad High Court Grants Bail
+https://www.verdictum.in/allahabad-high-court/2026-ahc-217466-mohd-saakir-v-state-1624318
+
+[Source Link](https://t.me/verdictumlegalupdates/29776)
 
 ---
 
@@ -137,30 +161,6 @@ State’s Delay Denied Supplier Effective Opportunity To Retest Disputed Drug Sa
 https://www.verdictum.in/supreme-court/ms-jpee-drugs-v-state-of-madhya-pradesh-2026-insc-1143-administrative-and-contractual-blacklisting-drug-sample-1624280
 
 [Source Link](https://t.me/verdictumlegalupdates/29759)
-
----
-
-### 2026-10-19T07:12:36+00:00
-Order XXI Rule 97 CPC| Executing Court Must Conduct Full Fledged Enquiry Into All Questions: Supreme Court
-https://www.verdictum.in/supreme-court/alladin-charities-and-zakat-wakf-v-mohammed-saleem-alias-mohd-wajid-ali-and-another-2026-insc-1122-1624279
-
-[Source Link](https://t.me/verdictumlegalupdates/29758)
-
----
-
-### 2026-10-19T06:33:56+00:00
-Failed To Overcome Rigors Of S. 45 PMLA: Calcutta High Court Denies Bail To Former Minister Sujit Bose In Money Laundering Case
-https://www.verdictum.in/calcutta-high-court/sujit-bose-v-directorate-of-enforcement-crm-r-58-of-2026-sujit-bose-in-money-laundering-case-1624273
-
-[Source Link](https://t.me/verdictumlegalupdates/29757)
-
----
-
-### 2026-10-19T05:52:54+00:00
-Alternative Remedy Not Absolute Bar To Writ Petition In SARFAESI Matters Where Security Interest Itself Is Alleged To Be Founded On Fraud & Forgery: Delhi High Court
-https://www.verdictum.in/delhi-high-court/shashi-r-jatia-v-prudent-arc-2026dhc9120-fraud-and-forgery-alternative-remedy-not-absolute-bar-1624270
-
-[Source Link](https://t.me/verdictumlegalupdates/29756)
 
 ---
 
