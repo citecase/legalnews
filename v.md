@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-20T15:02:46+00:00*
+*Last Updated: 2026-10-21T05:02:20+00:00*
+
+---
+
+### 2026-10-21T05:02:20+00:00
+Allahabad High Court Orders Enquiry Into Allegations Of Document Fabrication And Perjury Against Police; Directs Release Of Accused
+https://www.verdictum.in/allahabad-high-court/junaid-and-another-v-state-of-up-2026ahc215995-db-enquiry-document-fabrication-perjury-1624360
+
+[Source Link](https://t.me/verdictumlegalupdates/29780)
+
+---
+
+### 2026-10-21T04:52:09+00:00
+“Difficulties Of A Litigant In India Begin When He Has Obtained A Decree”: Bombay High Court Dismisses Obstructionist’s Plea Against 1974 Eviction Decree
+https://www.verdictum.in/bombay-high-court/sameer-dinkarrao-javalekar-v-gulab-haribhau-ladkat-2026-bhc-as42341-litigant-in-india-half-the-battle-winning-obstructionist-changed-avatar-1624353
+
+[Source Link](https://t.me/verdictumlegalupdates/29779)
 
 ---
 
@@ -145,22 +161,6 @@ Jharkhand High Court Holds Hearing On Sunday To Order Clearance Of Bokaro Steel 
 https://www.verdictum.in/jharkhand-high-court/steel-authority-of-india-limited-v-the-state-of-jharkhand-bokaro-steel-plant-blockade-1624290
 
 [Source Link](https://t.me/verdictumlegalupdates/29761)
-
----
-
-### 2026-10-19T08:32:38+00:00
-Participation In Later Dealings Is Money Laundering Only If Assets Are Proceeds Of Crime: Delhi High Court
-https://www.verdictum.in/delhi-high-court/punit-narendra-garg-v-directorate-of-enforcement-2026dhc9285-refinancing-punit-garg-in-eds-reliance-communications-1624289
-
-[Source Link](https://t.me/verdictumlegalupdates/29760)
-
----
-
-### 2026-10-19T07:52:17+00:00
-State’s Delay Denied Supplier Effective Opportunity To Retest Disputed Drug Sample: Supreme Court Quashes Blacklisting Of Medicine Supplier
-https://www.verdictum.in/supreme-court/ms-jpee-drugs-v-state-of-madhya-pradesh-2026-insc-1143-administrative-and-contractual-blacklisting-drug-sample-1624280
-
-[Source Link](https://t.me/verdictumlegalupdates/29759)
 
 ---
 
