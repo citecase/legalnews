@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-21T07:21:58+00:00*
+*Last Updated: 2026-10-21T11:28:20+00:00*
 
 ---
 
-### 2026-10-21T07:21:58+00:00
-'Courts Cannot Second-Guess Railway Experts': Jharkhand High Court Declines Plea For Road Over Bridge
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-declines-plea-road-over-bridge-directs-railways-complete-subway-address-flooding-555461
+### 2026-10-21T11:28:20+00:00
+J&K Land Acquisition Act |  Collector Duty-Bound To Ensure Satisfaction Of Award By Handing Over Possession Of Entire Alternate Land: High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jk-land-acquisition-act-collector-is-duty-bound-to-ensure-satisfaction-of-award-by-handing-over-possession-of-entire-alternate-land-high-court-555466
 
-[Read on Telegram](https://t.me/livelawindia/122865)
-
----
-### 2026-10-21T07:25:58+00:00
-Neha Bora Plea Against Peace Bond Notice : Live Updates From Delhi High Court
-https://www.livelaw.in/top-stories/neha-bora-plea-against-peace-bond-notice-live-updates-from-delhi-high-court-555468
-
-[Read on Telegram](https://t.me/livelawindia/122866)
+[Read on Telegram](https://t.me/livelawindia/122885)
 
 ---
-### 2026-10-21T07:57:48+00:00
-Bridge Collapse Cases Pending Since 2009: Jharkhand High Court Orders 3-Month Deadline For Police To Complete Probe
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-orders-deadline-police-refuse-interfere-555477
+### 2026-10-21T11:42:40+00:00
+BNSS Expands Safeguards For Public Servants Before FIR Registration : Supreme Court Explains In Pinarayi Vijayan Case
+https://www.livelaw.in/top-stories/bnss-expands-safeguards-for-public-servants-before-fir-registration-supreme-court-explains-in-pinarayi-vijayan-case-555515
 
-[Read on Telegram](https://t.me/livelawindia/122867)
-
----
-### 2026-10-21T07:59:08+00:00
-2026 LiveLaw (SC) 1071 | SEEMA SHARMA v. STATE OF PUNJAB
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1071-seema-sharma-v-state-of-punjab-555480
-
-[Read on Telegram](https://t.me/livelawindia/122868)
+[Read on Telegram](https://t.me/livelawindia/122886)
 
 ---
-### 2026-10-21T08:01:08+00:00
-2026 LiveLaw (SC) 1072 | STATE OF HIMACHAL PRADESH REPRESENTED BY ITS ADDITIONAL SECRETARY (HOME) Versus COURT ON ITS OWN MOTION
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1072-state-of-himachal-pradesh-represented-by-its-additional-secretary-home-versus-court-on-its-own-motion-555481
+### 2026-10-21T11:47:20+00:00
+Children's Maintenance Claim Does Not Perish With Mother's Death: Rajasthan High Court Permits Grandmother To Continue Proceedings
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-allows-maternal-grandmother-continue-proceedings-pending-custody-proceedings-555508
 
-[Read on Telegram](https://t.me/livelawindia/122869)
-
----
-### 2026-10-21T08:13:08+00:00
-Motor Accident Claims | Victim Requiring Lifelong Attendant Can Be Considered 100% Functionally Disabled : Supreme Court
-https://www.livelaw.in/supreme-court/motor-accident-claims-victim-requiring-lifelong-attendant-can-be-considered-100-functionally-disabled-supreme-court-555482
-
-[Read on Telegram](https://t.me/livelawindia/122870)
+[Read on Telegram](https://t.me/livelawindia/122887)
 
 ---
-### 2026-10-21T08:13:48+00:00
-2026 LiveLaw (SC) 1073 | Sunil Kumar (Totally Disabled Represented by Wife) v. IFFCO Tokio General Insurance Company Ltd
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1073-sunil-kumar-totally-disabled-represented-by-wife-v-iffco-tokio-general-insurance-company-ltd-555483
+### 2026-10-21T12:02:40+00:00
+Burden To Prove Caste Lies On Claimant; False Caste Certificates Can Lead To Withdrawal Of Benefits: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-fresh-inquiry-right-course-natural-justice-violation-andhra-pradesh-community-certificates-act-555512
 
-[Read on Telegram](https://t.me/livelawindia/122871)
-
----
-### 2026-10-21T08:16:28+00:00
-CJP Leaders Saurav Das, Ashutosh Ranka Withdraw From Delhi High Court Plea Challenging Judicial Custody
-https://www.livelaw.in/high-court/delhi-high-court/cjp-leaders-saurav-das-ashutosh-ranka-withdraw-from-delhi-high-court-plea-challenging-judicial-custody-555484
-
-[Read on Telegram](https://t.me/livelawindia/122872)
+[Read on Telegram](https://t.me/livelawindia/122888)
 
 ---
-### 2026-10-21T08:17:28+00:00
-Mere Acquittal In Criminal Proceeding U/S 498A IPC Does Not Establish That Cruelty Allegations Were False: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/mere-acquittal-criminal-proceeding-section-498a-ipc-not-establish-cruelty-false-555478
+### 2026-10-21T12:18:10+00:00
+Rajasthan High Court Invokes India-US Treaty To Serve Summons On Rape Complainant Living In America
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-invokes-india-us-mlat-trace-us-based-prosecutrix-serve-notice-rape-case-555510
 
-[Read on Telegram](https://t.me/livelawindia/122873)
-
----
-### 2026-10-21T08:18:08+00:00
-'Documentary Evidence Cannot Prove Itself Without Oral Testimony': Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-quashes-pnb-employee-dismissal-555475
-
-[Read on Telegram](https://t.me/livelawindia/122874)
+[Read on Telegram](https://t.me/livelawindia/122889)
 
 ---
-### 2026-10-21T08:27:38+00:00
-Final Acquittal Obliterating Sole Basis Of Dismissal Entitles Police Officer To Reinstatement: HP High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-final-acquittal-obliterating-sole-basis-dismissal-entitles-police-officer-reinstatement-555462
+### 2026-10-21T12:32:10+00:00
+Maternal Grandmother Can Seek Maintenance For Minor Without Being Appointed Legal Guardian: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-maternal-grandmother-without-being-guardian-can-seek-maintenance-for-minor-girl-555513
 
-[Read on Telegram](https://t.me/livelawindia/122875)
-
----
-### 2026-10-21T08:33:18+00:00
-Supreme Court Quashes Blacklisting Of Drug Supplier Over Quality Failure As Retesting Opportunity Denied
-https://www.livelaw.in/supreme-court/supreme-court-quashes-blacklisting-of-drug-supplier-over-quality-failure-as-retesting-opportunity-denied-555486
-
-[Read on Telegram](https://t.me/livelawindia/122876)
+[Read on Telegram](https://t.me/livelawindia/122890)
 
 ---
-### 2026-10-21T08:33:58+00:00
-2026 LiveLaw (SC) 1074 | M/S Jpee Drugs vs State Of Madhya Pradesh
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1074-ms-jpee-drugs-vs-state-of-madhya-pradesh-555487
+### 2026-10-21T12:33:30+00:00
+UNUC Legal LLP Launches Netherlands Desk For International Arbitration And Cross-Border Dispute Resolution
+https://www.livelaw.in/law-firms/professional-announcement/unuc-legal-llp-launches-netherlands-desk-for-international-arbitration-and-cross-border-dispute-resolution-555525
 
-[Read on Telegram](https://t.me/livelawindia/122877)
-
----
-### 2026-10-21T09:19:49+00:00
-Right To Electricity Protected U/Art 21, Connection Can't Be Denied Merely Due To Property Ownership Dispute: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/right-to-electricity-article-21-property-dispute-allahabad-high-court-555494
-
-[Read on Telegram](https://t.me/livelawindia/122878)
+[Read on Telegram](https://t.me/livelawindia/122891)
 
 ---
-### 2026-10-21T09:32:29+00:00
-Jharkhand High Court Adds Overtime To Deceased Security Guard's Income For Motor Accident Compensation Despite Salary Slip Not Showing It
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-adds-overtime-deceased-security-guard-income-motor-accident-compensation-555472
+### 2026-10-21T12:52:50+00:00
+Absconding Accused Cannot Ordinarily Claim Anticipatory Bail: J&K&L High Court Rejects Rape Accused's Plea
+https://www.livelaw.in/high-court/jammu-kashmir/absconding-accused-cannot-ordinarily-claim-anticipatory-bail-jk-high-court-says-rejects-rape-accuseds-plea-555467
 
-[Read on Telegram](https://t.me/livelawindia/122879)
-
----
-### 2026-10-21T09:32:49+00:00
-Critical Thinking In Age Of Artificial Intelligence
-https://www.livelaw.in/articles/critical-thinking-artificial-intelligence-age-555353
-
-[Read on Telegram](https://t.me/livelawindia/122880)
+[Read on Telegram](https://t.me/livelawindia/122892)
 
 ---
-### 2026-10-21T09:39:49+00:00
-Don't Meddle In Domain Of Other Agencies: Supreme Court To ED In CMRL-Exalogic Case
-https://www.livelaw.in/top-stories/dont-meddle-in-domain-of-other-agencies-supreme-court-to-ed-in-cmrl-exalogic-case-555498
+### 2026-10-21T13:08:40+00:00
+Delhi Court Orders Release Of CJP Leaders Saurav Das, Ashutosh Ranka
+https://www.livelaw.in/news-updates/delhi-court-orders-release-of-cjp-leaders-saurav-das-ashutosh-ranka-555526
 
-[Read on Telegram](https://t.me/livelawindia/122881)
-
----
-### 2026-10-21T10:02:39+00:00
-Omission To Specifically Mention Offence In Sanction Order Does Not Vitiate Proceedings If Allegations Disclose Offence: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/omission-to-specifically-mention-offence-in-sanction-order-does-not-vitiate-proceedings-if-allegations-disclose-ingredients-jk-high-court-555465
-
-[Read on Telegram](https://t.me/livelawindia/122882)
+[Read on Telegram](https://t.me/livelawindia/122893)
 
 ---
-### 2026-10-21T10:48:10+00:00
-Courts' Hands Aren't Tied To Interfere When Free & Fair Elections Are Polluted By Unconstitutional Or Illegal Means: Supreme Court
-https://www.livelaw.in/top-stories/courts-hands-arent-tied-to-interfere-when-free-fair-elections-are-polluted-by-unconstitutional-or-illegal-means-supreme-court-555506
+### 2026-10-21T13:13:00+00:00
+Prior Agreement On Dowry Amount Not Necessary For Prosecution; Subsequent Dowry Demand Also Punishable: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-pre-marriage-dowry-agreement-not-required-to-prosecute-under-section-4-of-the-dowry-prohibition-act-555516
 
-[Read on Telegram](https://t.me/livelawindia/122883)
+[Read on Telegram](https://t.me/livelawindia/122894)
 
 ---
-### 2026-10-21T11:02:50+00:00
-'Prosecution Cannot Rely On Witness For One Part Of Case While Ignoring Other': Patna High Court Acquits Murder Accused
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-acquits-accused-murder-case-555476
+### 2026-10-21T13:30:21+00:00
+2026 LiveLaw (SC) 1075 | YUVAJANA SRAMIKA RYTHU CONGRESS PARTY Versus THE STATE OF ANDHRA PRADESH AND ORS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1075-yuvajana-sramika-rythu-congress-party-versus-the-state-of-andhra-pradesh-and-ors-555528
 
-[Read on Telegram](https://t.me/livelawindia/122884)
+[Read on Telegram](https://t.me/livelawindia/122895)
+
+---
+### 2026-10-21T13:33:01+00:00
+Rajasthan High Court Orders Reconsideration Of Retired Judge's Kidney Transplant Reimbursement Claim, Sets Aside Law Department's Rejection
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-law-department-secretary-organ-authorization-imposes-cost-555518
+
+[Read on Telegram](https://t.me/livelawindia/122896)
+
+---
+### 2026-10-21T14:02:31+00:00
+High Court Directs Identification Of Dog-Bite Hotspots In Lucknow, Prayagraj; Orders Humane Removal Of Aggressive Dogs
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-dog-bite-hotspots-lucknow-prayagraj-555531
+
+[Read on Telegram](https://t.me/livelawindia/122897)
+
+---
+### 2026-10-21T14:02:51+00:00
+Non-Service Of Charge Sheet To Official Accused Of Sexual Harassment Does Not Automatically Invalidate Suspension: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-restores-suspension-medical-officer-accused-sexual-harassment-555519
+
+[Read on Telegram](https://t.me/livelawindia/122898)
+
+---
+### 2026-10-21T14:33:02+00:00
+Re Arrest - Short Note On Jaskaran Jeet Singh Deol
+https://www.livelaw.in/articles/rearrest-short-note-jaskaran-jeet-singh-deol-555354
+
+[Read on Telegram](https://t.me/livelawindia/122899)
+
+---
+### 2026-10-21T14:52:42+00:00
+J&K High Court Closes Contempt Proceedings Against Law Secretary, Says No Willful Disobedience Where Order Admits Plausible Interpretation
+https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-closes-contempt-proceedings-against-law-secretary-says-no-willful-disobedience-where-court-order-admits-plausible-interpretation-555470
+
+[Read on Telegram](https://t.me/livelawindia/122900)
+
+---
+### 2026-10-21T14:54:02+00:00
+CJP Leaders Saurav Das, Ashutosh Ranka Undertake Not To Call For Jantar Mantar Protest Until It Remains De-Notified
+https://www.livelaw.in/top-stories/cjp-leaders-saurav-das-ashutosh-ranka-undertake-not-to-call-for-jantar-mantar-protest-until-it-remains-de-notified-555534
+
+[Read on Telegram](https://t.me/livelawindia/122901)
+
+---
+### 2026-10-21T15:00:22+00:00
+Cough Syrup With Permissible Codeine Limit Not Contraband Under NDPS Act; Police Misusing Procedure: Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/cough-syrups-permissible-codeine-limits-schedule-h-drugs-555536
+
+[Read on Telegram](https://t.me/livelawindia/122902)
+
+---
+### 2026-10-21T15:12:02+00:00
+Tiger Shroff Firing Case: Mumbai Court Remands Accused To Police Custody Till October 31
+https://www.livelaw.in/news-updates/tiger-shroff-firing-case-mumbai-court-remands-accused-police-custody-555539
+
+[Read on Telegram](https://t.me/livelawindia/122903)
+
+---
+### 2026-10-21T15:54:12+00:00
+2026 LiveLaw (SC) 1076 | Pinarayi Vijayan v KM Shajahan
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1076-pinarayi-vijayan-v-km-shajahan-555546
+
+[Read on Telegram](https://t.me/livelawindia/122904)
 
 ---
