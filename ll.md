@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-20T10:37:05+00:00*
+*Last Updated: 2026-10-20T10:47:05+00:00*
 
 ---
 
-### 2026-10-20T10:37:05+00:00
-Precedents Barring Recovery Of Excess Payments Have Not Considered Section 72 Contract Act: Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-precedents-barring-recovery-excess-payments-considered-section72-contract-act-555397
-
-[Read on Telegram](https://t.me/livelawindia/122818)
-
----
-### 2026-10-20T10:45:05+00:00
-Know The Law | When Can A Plaint Be Amended After Trial Has Begun? Supreme Court Explains Order VI Rule 17 CPC
-https://www.livelaw.in/know-the-law/supreme-court-explains-ordervi-rule17-cpc-555398
-
-[Read on Telegram](https://t.me/livelawindia/122819)
-
----
 ### 2026-10-20T10:47:05+00:00
 Proceedings Under Sections 107 And 117 Cr.P.C. Are Preventive In Nature And Do Not Attract Bar Of Double Jeopardy: J&K High Court
 https://www.livelaw.in/high-court/jammu-kashmir/proceedings-under-sections-107-and-117-crpc-are-preventive-in-nature-and-do-not-attract-bar-of-double-jeopardy-jk-high-court-555399
@@ -142,5 +128,19 @@ MP High Court Issues Notice On Plea Challenging Datia MLA's Election Alleging In
 https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-issues-notice-in-plea-challenging-election-of-datia-mla-555377
 
 [Read on Telegram](https://t.me/livelawindia/122837)
+
+---
+### 2026-10-21T03:29:25+00:00
+Kupwara Consumer Commission Orders Cooperative Bank To Honour OTS, Issue No Dues Certificate
+https://www.livelaw.in/consumer-cases/kupwara-consumer-commission-orders-cooperative-bank-to-honour-ots-issue-no-dues-certificate-555431
+
+[Read on Telegram](https://t.me/livelawindia/122838)
+
+---
+### 2026-10-21T03:53:35+00:00
+LiveLaw Allahabad High Court Quarterly Digest: July-September, 2026 [Citations 341-772]
+https://www.livelaw.in/digests/Quarterly-digests/livelaw-allahabad-high-court-quarterly-digest-july-september-2026-citations-341-772-555432
+
+[Read on Telegram](https://t.me/livelawindia/122839)
 
 ---
