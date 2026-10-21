@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-20T10:47:05+00:00*
+*Last Updated: 2026-10-21T07:21:58+00:00*
 
 ---
 
-### 2026-10-20T10:47:05+00:00
-Proceedings Under Sections 107 And 117 Cr.P.C. Are Preventive In Nature And Do Not Attract Bar Of Double Jeopardy: J&K High Court
-https://www.livelaw.in/high-court/jammu-kashmir/proceedings-under-sections-107-and-117-crpc-are-preventive-in-nature-and-do-not-attract-bar-of-double-jeopardy-jk-high-court-555399
+### 2026-10-21T07:21:58+00:00
+'Courts Cannot Second-Guess Railway Experts': Jharkhand High Court Declines Plea For Road Over Bridge
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-declines-plea-road-over-bridge-directs-railways-complete-subway-address-flooding-555461
 
-[Read on Telegram](https://t.me/livelawindia/122820)
-
----
-### 2026-10-20T10:50:25+00:00
-'Steering Wheel Not A Plaything': Karnataka High Court Sustains Homicide Charge Against Father For Handing Car Keys To Minor Son
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-quash-homicide-charges-against-father-handing-car-keys-555400
-
-[Read on Telegram](https://t.me/livelawindia/122821)
+[Read on Telegram](https://t.me/livelawindia/122865)
 
 ---
-### 2026-10-20T11:51:36+00:00
-BREAKING | CJP Leaders Saurav Das, Ashutosh Ranka Move Delhi High Court Against Judicial Custody
-https://www.livelaw.in/high-court/delhi-high-court/cjp-leaders-saurav-das-ashutosh-ranka-move-delhi-high-court-against-extension-of-judicial-custody-555408
+### 2026-10-21T07:25:58+00:00
+Neha Bora Plea Against Peace Bond Notice : Live Updates From Delhi High Court
+https://www.livelaw.in/top-stories/neha-bora-plea-against-peace-bond-notice-live-updates-from-delhi-high-court-555468
 
-[Read on Telegram](https://t.me/livelawindia/122822)
-
----
-### 2026-10-20T11:55:56+00:00
-Durga Puja Stampede | Calcutta High Court Suggests Appointment Of Retd Judge To Probe Incident If Sitting Judge Unavailable
-https://www.livelaw.in/high-court/calcutta-high-court/durga-puja-stampede-calcutta-high-court-suggests-appointment-of-retd-judge-to-probe-incident-if-sitting-judge-unavailable-555409
-
-[Read on Telegram](https://t.me/livelawindia/122823)
+[Read on Telegram](https://t.me/livelawindia/122866)
 
 ---
-### 2026-10-20T12:02:56+00:00
-Longstanding Possession Of Land Cannot Be Treated As Unauthorized Under Migrant Property Act Without Proper Enquiry: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/longstanding-possession-of-land-cannot-be-treated-as-unauthorized-under-migrant-property-act-without-proper-enquiry-jk-high-court-555339
+### 2026-10-21T07:57:48+00:00
+Bridge Collapse Cases Pending Since 2009: Jharkhand High Court Orders 3-Month Deadline For Police To Complete Probe
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-orders-deadline-police-refuse-interfere-555477
 
-[Read on Telegram](https://t.me/livelawindia/122824)
-
----
-### 2026-10-20T12:03:06+00:00
-Recommendation For Out-Of-Turn Promotion Does Not Create Right To Retrospective Promotion: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/recommendation-for-out-of-turn-promotion-does-not-create-enforceable-right-to-retrospective-promotion-jk-hc-rejects-police-officers-claim-to-promotion-from-1998-555338
-
-[Read on Telegram](https://t.me/livelawindia/122825)
+[Read on Telegram](https://t.me/livelawindia/122867)
 
 ---
-### 2026-10-20T12:23:06+00:00
-Yamuna Expressway Bus Fire: Allahabad High Court Issues Notice To MoRTH Over Compliance With Sleeper Bus Safety Standards
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-yamuna-expressway-bus-fire-morth-notice-555411
+### 2026-10-21T07:59:08+00:00
+2026 LiveLaw (SC) 1071 | SEEMA SHARMA v. STATE OF PUNJAB
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1071-seema-sharma-v-state-of-punjab-555480
 
-[Read on Telegram](https://t.me/livelawindia/122826)
-
----
-### 2026-10-20T12:32:26+00:00
-Madras High Court Launches Digital Dashboard To Track Unclaimed Motor Accident, Labour Court Awards
-https://www.livelaw.in/news-updates/madras-high-court-digital-dashboard-unclaimed-motor-accident-labour-court-awards-555405
-
-[Read on Telegram](https://t.me/livelawindia/122827)
+[Read on Telegram](https://t.me/livelawindia/122868)
 
 ---
-### 2026-10-20T12:59:16+00:00
-Allahabad High Court Directs Verification Of Educational & Appointment Documents Of All UP Basic School Teachers: Here's Why
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-verification-documents-up-basic-school-teachers-555413
+### 2026-10-21T08:01:08+00:00
+2026 LiveLaw (SC) 1072 | STATE OF HIMACHAL PRADESH REPRESENTED BY ITS ADDITIONAL SECRETARY (HOME) Versus COURT ON ITS OWN MOTION
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1072-state-of-himachal-pradesh-represented-by-its-additional-secretary-home-versus-court-on-its-own-motion-555481
 
-[Read on Telegram](https://t.me/livelawindia/122828)
-
----
-### 2026-10-20T13:38:36+00:00
-Can Certificate Of Practice (CoP) Be Reissued With Changed Place Of Practice? Allahabad High Court Asks UP Bar Council
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-cop-changed-place-of-practice-555414
-
-[Read on Telegram](https://t.me/livelawindia/122829)
+[Read on Telegram](https://t.me/livelawindia/122869)
 
 ---
-### 2026-10-20T14:03:26+00:00
-Taming Final Bell: SEBI's Derivatives Settlement Decoupling
-https://www.livelaw.in/articles/taming-final-bell-sebi-derivatives-settlement-decoupling-555417
+### 2026-10-21T08:13:08+00:00
+Motor Accident Claims | Victim Requiring Lifelong Attendant Can Be Considered 100% Functionally Disabled : Supreme Court
+https://www.livelaw.in/supreme-court/motor-accident-claims-victim-requiring-lifelong-attendant-can-be-considered-100-functionally-disabled-supreme-court-555482
 
-[Read on Telegram](https://t.me/livelawindia/122830)
-
----
-### 2026-10-20T14:18:46+00:00
-Calcutta High Court Seeks State's Reply To PIL Alleging Police Used Fraudulently Issued Stamp Papers To Force TMC Workers To Back Rival Faction
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-seeks-states-reply-to-pil-alleging-police-used-fraudulently-issued-stamp-papers-to-force-tmc-workers-to-back-rival-faction-555418
-
-[Read on Telegram](https://t.me/livelawindia/122831)
+[Read on Telegram](https://t.me/livelawindia/122870)
 
 ---
-### 2026-10-20T14:32:36+00:00
-Supreme Court Quietly Rewrote Law On Alibi
-https://www.livelaw.in/articles/supreme-court-quietly-rewrote-law-on-alibi-555319
+### 2026-10-21T08:13:48+00:00
+2026 LiveLaw (SC) 1073 | Sunil Kumar (Totally Disabled Represented by Wife) v. IFFCO Tokio General Insurance Company Ltd
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1073-sunil-kumar-totally-disabled-represented-by-wife-v-iffco-tokio-general-insurance-company-ltd-555483
 
-[Read on Telegram](https://t.me/livelawindia/122832)
-
----
-### 2026-10-20T14:39:56+00:00
-MNLU Mumbai To Host Fireside Chat On Artificial Intelligence And Future Of Banking
-https://www.livelaw.in/lawschool/news/mnlu-mumbai-to-host-fireside-chat-on-artificial-intelligence-and-future-of-banking-555421
-
-[Read on Telegram](https://t.me/livelawindia/122833)
+[Read on Telegram](https://t.me/livelawindia/122871)
 
 ---
-### 2026-10-20T14:46:56+00:00
-LiveLaw Rajasthan High Court Weekly Round-Up: October 12 - October 18, 2026
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-weekly-roundup-555424
+### 2026-10-21T08:16:28+00:00
+CJP Leaders Saurav Das, Ashutosh Ranka Withdraw From Delhi High Court Plea Challenging Judicial Custody
+https://www.livelaw.in/high-court/delhi-high-court/cjp-leaders-saurav-das-ashutosh-ranka-withdraw-from-delhi-high-court-plea-challenging-judicial-custody-555484
 
-[Read on Telegram](https://t.me/livelawindia/122834)
-
----
-### 2026-10-20T15:03:37+00:00
-Calcutta High Court Dismisses CPIM's Plea Against Removal Of Durga Puja Bookstall In Jadavpur Over Lack Of Permission
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-dismisses-cpim-plea-against-removal-of-durga-puja-bookstall-for-want-of-permission-555427
-
-[Read on Telegram](https://t.me/livelawindia/122835)
+[Read on Telegram](https://t.me/livelawindia/122872)
 
 ---
-### 2026-10-20T15:08:37+00:00
-Calcutta High Court Extends Interim Bail Of Milan Pradhan In 2007 Nandigram Violence Case Till November 25
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-extends-interim-bail-of-milan-pradhan-in-2007-nandigram-violence-case-till-november-25-555429
+### 2026-10-21T08:17:28+00:00
+Mere Acquittal In Criminal Proceeding U/S 498A IPC Does Not Establish That Cruelty Allegations Were False: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/mere-acquittal-criminal-proceeding-section-498a-ipc-not-establish-cruelty-false-555478
 
-[Read on Telegram](https://t.me/livelawindia/122836)
-
----
-### 2026-10-20T15:32:47+00:00
-MP High Court Issues Notice On Plea Challenging Datia MLA's Election Alleging Incomplete Disclosure Of Criminal Antecedents
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-issues-notice-in-plea-challenging-election-of-datia-mla-555377
-
-[Read on Telegram](https://t.me/livelawindia/122837)
+[Read on Telegram](https://t.me/livelawindia/122873)
 
 ---
-### 2026-10-21T03:29:25+00:00
-Kupwara Consumer Commission Orders Cooperative Bank To Honour OTS, Issue No Dues Certificate
-https://www.livelaw.in/consumer-cases/kupwara-consumer-commission-orders-cooperative-bank-to-honour-ots-issue-no-dues-certificate-555431
+### 2026-10-21T08:18:08+00:00
+'Documentary Evidence Cannot Prove Itself Without Oral Testimony': Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-quashes-pnb-employee-dismissal-555475
 
-[Read on Telegram](https://t.me/livelawindia/122838)
+[Read on Telegram](https://t.me/livelawindia/122874)
 
 ---
-### 2026-10-21T03:53:35+00:00
-LiveLaw Allahabad High Court Quarterly Digest: July-September, 2026 [Citations 341-772]
-https://www.livelaw.in/digests/Quarterly-digests/livelaw-allahabad-high-court-quarterly-digest-july-september-2026-citations-341-772-555432
+### 2026-10-21T08:27:38+00:00
+Final Acquittal Obliterating Sole Basis Of Dismissal Entitles Police Officer To Reinstatement: HP High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-final-acquittal-obliterating-sole-basis-dismissal-entitles-police-officer-reinstatement-555462
 
-[Read on Telegram](https://t.me/livelawindia/122839)
+[Read on Telegram](https://t.me/livelawindia/122875)
+
+---
+### 2026-10-21T08:33:18+00:00
+Supreme Court Quashes Blacklisting Of Drug Supplier Over Quality Failure As Retesting Opportunity Denied
+https://www.livelaw.in/supreme-court/supreme-court-quashes-blacklisting-of-drug-supplier-over-quality-failure-as-retesting-opportunity-denied-555486
+
+[Read on Telegram](https://t.me/livelawindia/122876)
+
+---
+### 2026-10-21T08:33:58+00:00
+2026 LiveLaw (SC) 1074 | M/S Jpee Drugs vs State Of Madhya Pradesh
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1074-ms-jpee-drugs-vs-state-of-madhya-pradesh-555487
+
+[Read on Telegram](https://t.me/livelawindia/122877)
+
+---
+### 2026-10-21T09:19:49+00:00
+Right To Electricity Protected U/Art 21, Connection Can't Be Denied Merely Due To Property Ownership Dispute: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/right-to-electricity-article-21-property-dispute-allahabad-high-court-555494
+
+[Read on Telegram](https://t.me/livelawindia/122878)
+
+---
+### 2026-10-21T09:32:29+00:00
+Jharkhand High Court Adds Overtime To Deceased Security Guard's Income For Motor Accident Compensation Despite Salary Slip Not Showing It
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-adds-overtime-deceased-security-guard-income-motor-accident-compensation-555472
+
+[Read on Telegram](https://t.me/livelawindia/122879)
+
+---
+### 2026-10-21T09:32:49+00:00
+Critical Thinking In Age Of Artificial Intelligence
+https://www.livelaw.in/articles/critical-thinking-artificial-intelligence-age-555353
+
+[Read on Telegram](https://t.me/livelawindia/122880)
+
+---
+### 2026-10-21T09:39:49+00:00
+Don't Meddle In Domain Of Other Agencies: Supreme Court To ED In CMRL-Exalogic Case
+https://www.livelaw.in/top-stories/dont-meddle-in-domain-of-other-agencies-supreme-court-to-ed-in-cmrl-exalogic-case-555498
+
+[Read on Telegram](https://t.me/livelawindia/122881)
+
+---
+### 2026-10-21T10:02:39+00:00
+Omission To Specifically Mention Offence In Sanction Order Does Not Vitiate Proceedings If Allegations Disclose Offence: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/omission-to-specifically-mention-offence-in-sanction-order-does-not-vitiate-proceedings-if-allegations-disclose-ingredients-jk-high-court-555465
+
+[Read on Telegram](https://t.me/livelawindia/122882)
+
+---
+### 2026-10-21T10:48:10+00:00
+Courts' Hands Aren't Tied To Interfere When Free & Fair Elections Are Polluted By Unconstitutional Or Illegal Means: Supreme Court
+https://www.livelaw.in/top-stories/courts-hands-arent-tied-to-interfere-when-free-fair-elections-are-polluted-by-unconstitutional-or-illegal-means-supreme-court-555506
+
+[Read on Telegram](https://t.me/livelawindia/122883)
+
+---
+### 2026-10-21T11:02:50+00:00
+'Prosecution Cannot Rely On Witness For One Part Of Case While Ignoring Other': Patna High Court Acquits Murder Accused
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-acquits-accused-murder-case-555476
+
+[Read on Telegram](https://t.me/livelawindia/122884)
 
 ---
