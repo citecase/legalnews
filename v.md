@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-21T12:02:04+00:00*
+*Last Updated: 2026-10-21T16:02:34+00:00*
+
+---
+
+### 2026-10-21T16:02:34+00:00
+Legal Researcher Vacancy At Rajasthan State Legal Services Authority
+https://www.verdictum.in/job-updates/rajasthan-state-legal-services-authority-1624395
+
+[Source Link](https://t.me/verdictumlegalupdates/29800)
+
+---
+
+### 2026-10-21T15:12:13+00:00
+Allahabad High Court Calls For Legislation On Mechanism For Releasing Money In Bank Account Of Coma Patient In Dependents' Favour
+https://www.verdictum.in/allahabad-high-court/parveen-jahan-v-state-of-up-legislation-mechanism-release-money-account-coma-patient-1624400
+
+[Source Link](https://t.me/verdictumlegalupdates/29799)
+
+---
+
+### 2026-10-21T14:33:12+00:00
+Contention By One Spouse That The Other Is A Complete Villain Should Not Ordinarily Be Accepted In Custody Cases: Delhi HC Says Child Can't Be Made 'Football'
+https://www.verdictum.in/delhi-high-court/2026-dhc-9200-db-spouse-other-complete-villain-child-football-parents-1624399
+
+[Source Link](https://t.me/verdictumlegalupdates/29798)
+
+---
+
+### 2026-10-21T13:52:51+00:00
+Bombay High Court Directs UIDAI To Hand Over Documents Of Illegal Bangladeshi National To ATS; Orders Probe Into Infiltration Rackets
+https://www.verdictum.in/bombay-high-court/2026-bhc-as-42669-db-state-of-maharashtra-v-unique-identification-authority-of-india-1624397
+
+[Source Link](https://t.me/verdictumlegalupdates/29797)
+
+---
+
+### 2026-10-21T13:12:30+00:00
+Duty Of Advocate Is To Assist Court And Not Insist On Favourable Order: Karnataka High Court Initiates Contempt Action Against Lawyer
+https://www.verdictum.in/karnataka-high-court/vm-kumarswamy-v-state-of-karnataka-2026khc59045-contempt-advocate-implead-deceased-complainant-1624396
+
+[Source Link](https://t.me/verdictumlegalupdates/29796)
+
+---
+
+### 2026-10-21T12:33:05+00:00
+Date Of Import Under Foreign Trade Policy Must Be Reckoned From Shipment Date, Not Customs Clearance Date: Bombay High Court
+https://www.verdictum.in/bombay-high-court/heimerle-refinery-private-limited-v-union-of-india-and-others-2026bhc-os22729-db-1624394
+
+[Source Link](https://t.me/verdictumlegalupdates/29795)
 
 ---
 
@@ -113,54 +161,6 @@ Vehicle Insurance Exemption U/S 146 MV Act Does Not Free Government Authorities 
 https://www.verdictum.in/delhi-high-court/rohtash-kumar-v-sangeeta-verma-others-2026dhc9208-motor-vehicles-act-1624365
 
 [Source Link](https://t.me/verdictumlegalupdates/29781)
-
----
-
-### 2026-10-21T05:02:20+00:00
-Allahabad High Court Orders Enquiry Into Allegations Of Document Fabrication And Perjury Against Police; Directs Release Of Accused
-https://www.verdictum.in/allahabad-high-court/junaid-and-another-v-state-of-up-2026ahc215995-db-enquiry-document-fabrication-perjury-1624360
-
-[Source Link](https://t.me/verdictumlegalupdates/29780)
-
----
-
-### 2026-10-21T04:52:09+00:00
-“Difficulties Of A Litigant In India Begin When He Has Obtained A Decree”: Bombay High Court Dismisses Obstructionist’s Plea Against 1974 Eviction Decree
-https://www.verdictum.in/bombay-high-court/sameer-dinkarrao-javalekar-v-gulab-haribhau-ladkat-2026-bhc-as42341-litigant-in-india-half-the-battle-winning-obstructionist-changed-avatar-1624353
-
-[Source Link](https://t.me/verdictumlegalupdates/29779)
-
----
-
-### 2026-10-20T15:02:46+00:00
-Legal Officer Vacancy At Indian Institute of Foreign Trade
-https://www.verdictum.in/job-updates/indian-institute-of-foreign-trade-1624308
-
-[Source Link](https://t.me/verdictumlegalupdates/29778)
-
----
-
-### 2026-10-20T13:33:05+00:00
-Mere Possession Of Object Capable Of Being Affixed With Fake ISI Mark Not Punishable Under BIS Act Without Proof Of Use: Kerala High Court
-https://www.verdictum.in/kerala-high-court/bureau-of-indian-standards-v-ms-mars-veneers-and-boards-and-others-2026ker79827-1624339
-
-[Source Link](https://t.me/verdictumlegalupdates/29777)
-
----
-
-### 2026-10-20T12:02:34+00:00
-Transgender Woman Cannot Be Considered As 'Woman' For Purposes Of Section 69 BNS: Allahabad High Court Grants Bail
-https://www.verdictum.in/allahabad-high-court/2026-ahc-217466-mohd-saakir-v-state-1624318
-
-[Source Link](https://t.me/verdictumlegalupdates/29776)
-
----
-
-### 2026-10-20T10:32:14+00:00
-Apprehension That Future Policy Might Restrict Running Of Two Colleges For Same Course Within One Campus Is Speculative: Delhi High Court Rejects NCAHP's Stand
-https://www.verdictum.in/delhi-high-court/parul-university-v-national-commission-for-allied-and-healthcare-professions-2026dhc9267-policy-college-course-1624317
-
-[Source Link](https://t.me/verdictumlegalupdates/29775)
 
 ---
 
