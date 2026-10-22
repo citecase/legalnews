@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-21T11:28:20+00:00*
+*Last Updated: 2026-10-21T11:42:40+00:00*
 
 ---
 
-### 2026-10-21T11:28:20+00:00
-J&K Land Acquisition Act |  Collector Duty-Bound To Ensure Satisfaction Of Award By Handing Over Possession Of Entire Alternate Land: High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jk-land-acquisition-act-collector-is-duty-bound-to-ensure-satisfaction-of-award-by-handing-over-possession-of-entire-alternate-land-high-court-555466
-
-[Read on Telegram](https://t.me/livelawindia/122885)
-
----
 ### 2026-10-21T11:42:40+00:00
 BNSS Expands Safeguards For Public Servants Before FIR Registration : Supreme Court Explains In Pinarayi Vijayan Case
 https://www.livelaw.in/top-stories/bnss-expands-safeguards-for-public-servants-before-fir-registration-supreme-court-explains-in-pinarayi-vijayan-case-555515
@@ -142,5 +135,12 @@ https://www.livelaw.in/news-updates/tiger-shroff-firing-case-mumbai-court-remand
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1076-pinarayi-vijayan-v-km-shajahan-555546
 
 [Read on Telegram](https://t.me/livelawindia/122904)
+
+---
+### 2026-10-22T03:34:54+00:00
+UP Court Sentences Woman, Lover To Death For Strangling Husband And Planting Live Snake To Pass Off Murder As Snakebite
+https://www.livelaw.in/news-updates/up-meerut-court-woman-lover-death-kill-husband-live-snake-beside-body-to-stage-snakebite-555547
+
+[Read on Telegram](https://t.me/livelawindia/122905)
 
 ---
