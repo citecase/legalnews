@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-22T12:02:39+00:00*
+*Last Updated: 2026-10-22T16:02:57+00:00*
+
+---
+
+### 2026-10-22T16:02:57+00:00
+Legal Assistant Vacancy At Chhattisgarh High Court
+https://www.verdictum.in/job-updates/chhattisgarh-high-court-1624468
+
+[Source Link](https://t.me/verdictumlegalupdates/29823)
+
+---
+
+### 2026-10-22T15:33:05+00:00
+Bombay High Court Pulls Up Police For Non-Implementation Of Its Order For Pollution Curb During Festive Season
+https://www.verdictum.in/bombay-high-court/pollution-due-to-unregulated-use-of-music-systems-and-firecrackers-on-public-streets-during-festival-1624477
+
+[Source Link](https://t.me/verdictumlegalupdates/29822)
+
+---
+
+### 2026-10-22T15:03:04+00:00
+Retention Of Stridhan Not A Continuing Offence After Divorce; Three-Year Limitation Applies: Himachal Pradesh High Court
+https://www.verdictum.in/himachal-high-court/tr-v-kl-and-another-2026hhc45122-hindu-marriage-stridhan-retention-offence-1624474
+
+[Source Link](https://t.me/verdictumlegalupdates/29821)
+
+---
+
+### 2026-10-22T14:32:23+00:00
+Litigant Has No Right To Seek Copies Of Recordings Of Court Proceedings: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/a-sathyanarayana-swamy-v-the-high-court-of-karnataka-2026khc51810-copies-court-proceeding-recording-1624473
+
+[Source Link](https://t.me/verdictumlegalupdates/29820)
+
+---
+
+### 2026-10-22T14:03:02+00:00
+Mere Participation In Demonstration Doesn’t Establish Common Intention: Delhi High Court Quashes FIR Against SCC Aspirant
+https://www.verdictum.in/delhi-high-court/khurshid-ahmed-v-state-of-nct-of-delhi-participation-demonstration-common-intention-fir-1624475
+
+[Source Link](https://t.me/verdictumlegalupdates/29819)
+
+---
+
+### 2026-10-22T13:33:01+00:00
+Cases Involving Recovery Of Cough Syrup Containing Codeine Should Be Filed Under Drugs & Cosmetics Act & Not NDPS Act: Patna High Court
+https://www.verdictum.in/patna-high-court/bharat-kumar-v-the-state-of-bihar-recovery-cough-syrup-codeine-drugs-cosmetics-act-ndps-1624472
+
+[Source Link](https://t.me/verdictumlegalupdates/29818)
+
+---
+
+### 2026-10-22T12:42:20+00:00
+Family Courts Reorganisation Was Done In Interest Of Administration Of Justice: Kerala High Court Rejects Plea Seeking Re-Transfer Of Matrimonial Plea
+https://www.verdictum.in/kerala-high-court/2026-ker-77263-h-v-w-1624470
+
+[Source Link](https://t.me/verdictumlegalupdates/29817)
 
 ---
 
@@ -105,62 +161,6 @@ Police Must Issue Written Summons U/S.179 Of BNSS; Minutes Of Enquiry To Be Reco
 https://www.verdictum.in/madras-high-court/varadhan-v-state-police-written-summons-sec179-bnss-enquiry-general-diary-harassment-1624431
 
 [Source Link](https://t.me/verdictumlegalupdates/29804)
-
----
-
-### 2026-10-22T05:33:08+00:00
-Consequence Alone Cannot Metamorphose Negligence Into Culpable Homicide: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/nadeem-ur-rehman-v-state-of-karnataka-criminal-petition-no-10711-of-2026-s-304-father-minor-son-motor-accident-1624428
-
-[Source Link](https://t.me/verdictumlegalupdates/29803)
-
----
-
-### 2026-10-22T05:01:27+00:00
-Special Public Prosecutors Appointed For POCSO Cases Can’t Conduct Other Cases: Kerala High Court Directs Appointments Within Six Weeks
-https://www.verdictum.in/kerala-high-court/district-court-bar-association-thodupuzha-muttom-and-another-v-state-of-kerala-and-others-2026ker79390-1624423
-
-[Source Link](https://t.me/verdictumlegalupdates/29802)
-
----
-
-### 2026-10-22T04:32:36+00:00
-Rape Victims Undergo Second Victimization If They Suffer Due To Non-Compensation Or Non-Availability Of Legal Assistance: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/harisingh-v-the-state-of-madhya-pradesh-2026mphc-ind29221-rape-victims-compliance-sec-397-bnss-1624401
-
-[Source Link](https://t.me/verdictumlegalupdates/29801)
-
----
-
-### 2026-10-21T16:02:34+00:00
-Legal Researcher Vacancy At Rajasthan State Legal Services Authority
-https://www.verdictum.in/job-updates/rajasthan-state-legal-services-authority-1624395
-
-[Source Link](https://t.me/verdictumlegalupdates/29800)
-
----
-
-### 2026-10-21T15:12:13+00:00
-Allahabad High Court Calls For Legislation On Mechanism For Releasing Money In Bank Account Of Coma Patient In Dependents' Favour
-https://www.verdictum.in/allahabad-high-court/parveen-jahan-v-state-of-up-legislation-mechanism-release-money-account-coma-patient-1624400
-
-[Source Link](https://t.me/verdictumlegalupdates/29799)
-
----
-
-### 2026-10-21T14:33:12+00:00
-Contention By One Spouse That The Other Is A Complete Villain Should Not Ordinarily Be Accepted In Custody Cases: Delhi HC Says Child Can't Be Made 'Football'
-https://www.verdictum.in/delhi-high-court/2026-dhc-9200-db-spouse-other-complete-villain-child-football-parents-1624399
-
-[Source Link](https://t.me/verdictumlegalupdates/29798)
-
----
-
-### 2026-10-21T13:52:51+00:00
-Bombay High Court Directs UIDAI To Hand Over Documents Of Illegal Bangladeshi National To ATS; Orders Probe Into Infiltration Rackets
-https://www.verdictum.in/bombay-high-court/2026-bhc-as-42669-db-state-of-maharashtra-v-unique-identification-authority-of-india-1624397
-
-[Source Link](https://t.me/verdictumlegalupdates/29797)
 
 ---
 
