@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-21T16:02:34+00:00*
+*Last Updated: 2026-10-22T05:01:27+00:00*
+
+---
+
+### 2026-10-22T05:01:27+00:00
+Special Public Prosecutors Appointed For POCSO Cases Can’t Conduct Other Cases: Kerala High Court Directs Appointments Within Six Weeks
+https://www.verdictum.in/kerala-high-court/district-court-bar-association-thodupuzha-muttom-and-another-v-state-of-kerala-and-others-2026ker79390-1624423
+
+[Source Link](https://t.me/verdictumlegalupdates/29802)
+
+---
+
+### 2026-10-22T04:32:36+00:00
+Rape Victims Undergo Second Victimization If They Suffer Due To Non-Compensation Or Non-Availability Of Legal Assistance: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/harisingh-v-the-state-of-madhya-pradesh-2026mphc-ind29221-rape-victims-compliance-sec-397-bnss-1624401
+
+[Source Link](https://t.me/verdictumlegalupdates/29801)
 
 ---
 
@@ -145,22 +161,6 @@ Breaking: Supreme Court Directs EC To Postpone Publication Of Final Candidate Li
 https://www.verdictum.in/supreme-court/directs-state-election-commission-postpone-publication-final-candidate-list-least-two-days-1624371
 
 [Source Link](https://t.me/verdictumlegalupdates/29783)
-
----
-
-### 2026-10-21T06:05:02+00:00
-Maternal Grandmother Having Sufficient Interest In Minor Child Can Move Maintenance Application: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/a-v-b-2026mphc-jbp82144-grandmother-interest-minor-maintenance-applicatio-guardianship-1624368
-
-[Source Link](https://t.me/verdictumlegalupdates/29782)
-
----
-
-### 2026-10-21T05:33:21+00:00
-Vehicle Insurance Exemption U/S 146 MV Act Does Not Free Government Authorities From Paying Accident Compensation: Delhi High Court
-https://www.verdictum.in/delhi-high-court/rohtash-kumar-v-sangeeta-verma-others-2026dhc9208-motor-vehicles-act-1624365
-
-[Source Link](https://t.me/verdictumlegalupdates/29781)
 
 ---
 
