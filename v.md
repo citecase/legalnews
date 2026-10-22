@@ -1,6 +1,118 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-22T05:01:27+00:00*
+*Last Updated: 2026-10-22T12:02:39+00:00*
+
+---
+
+### 2026-10-22T12:02:39+00:00
+Wife's Refusal For Physical Relations & Giving Suicide Threats Amount To Mental Cruelty On Husband: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/2026-rj-jd-48351-db-w-v-h-1624463
+
+[Source Link](https://t.me/verdictumlegalupdates/29816)
+
+---
+
+### 2026-10-22T11:32:59+00:00
+Court Employee Found Guilty Of Theft Not “Deserving Of Special Consideration” For Compassionate Pension Under Rule 101 MCSR, 1982: Bombay High Court
+https://www.verdictum.in/bombay-high-court/waman-shamrao-kulkarni-v-the-registrar-administration-high-court-of-judicature-of-bombay-bench-at-aurangabad-2026bhc-aug50126-db-court-employee-1624462
+
+[Source Link](https://t.me/verdictumlegalupdates/29815)
+
+---
+
+### 2026-10-22T11:02:38+00:00
+Bombay High Court Calls For Uniform Warning Policy At Public Beaches, Directs State To Fund Rescue Measures
+https://www.verdictum.in/bombay-high-court/a-inamdar-and-others-v-state-of-maharashtra-and-another-connected-applications-1624460
+
+[Source Link](https://t.me/verdictumlegalupdates/29814)
+
+---
+
+### 2026-10-22T10:32:17+00:00
+SDM Cannot Unilaterally Issue Orders Imposing Pecuniary Penalties Under Disaster Management Act: Chhattisgarh High Court
+https://www.verdictum.in/chhattisgarh-high-court/saroj-sahu-v-state-of-chhattisgarh-2026cghc44242-disaster-management-act-sub-divisional-magistrate-1624459
+
+[Source Link](https://t.me/verdictumlegalupdates/29813)
+
+---
+
+### 2026-10-22T10:02:56+00:00
+Failure To Allege Negligence In Police Statement Does Not By Itself Defeat Motor Accident Claim: Bombay High Court
+https://www.verdictum.in/bombay-high-court/mohan-laxman-chavan-v-the-transport-manager-thane-municipal-transport-and-others-2026bhc-as42966-1624458
+
+[Source Link](https://t.me/verdictumlegalupdates/29812)
+
+---
+
+### 2026-10-22T09:32:15+00:00
+Unexplained Delay Snaps Live Link Between Last Prejudicial Activity And Detention Order Under PITNDPS Act: Kerala High Court
+https://www.verdictum.in/kerala-high-court/sajina-cv-v-union-of-india-2026khc77216-narcotic-drugs-psychotropic-substances-act-1988-1624457
+
+[Source Link](https://t.me/verdictumlegalupdates/29811)
+
+---
+
+### 2026-10-22T09:02:54+00:00
+Sexual-Assault Victim’s Non-Disclosure Of Every Detail Before Doctor During Medical Examination Is Not By Itself A Material Omission: Kerala High Court
+https://www.verdictum.in/kerala-high-court/shilpi-v-state-of-kerala-2026ker78263-sexual-assault-victim-non-disclosure-1624453
+
+[Source Link](https://t.me/verdictumlegalupdates/29810)
+
+---
+
+### 2026-10-22T08:33:13+00:00
+Forfeiture Of Earnest Money Not Automatic Consequence Of Breach; Seller Must Prove Legal Injury U/S 74 Contract Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/shriram-pal-saini-v-shri-anil-kumar-2026dhc9361-legal-injury-us-74-contract-act-forfeiture-1624451
+
+[Source Link](https://t.me/verdictumlegalupdates/29809)
+
+---
+
+### 2026-10-22T08:02:52+00:00
+Mere Raising Of Plea Of Adverse Possession Does Not Shift Burden Of Proof To True Owner: Bombay High Court
+https://www.verdictum.in/bombay-high-court/chandrahas-jethalal-patel-and-others-v-nirmalaben-shambhuprasad-patel-and-others-2026bhc-as42879-1624450
+
+[Source Link](https://t.me/verdictumlegalupdates/29808)
+
+---
+
+### 2026-10-22T07:32:31+00:00
+Separate Sentence U/S 376AB IPC Need Not Be Imposed After Punishment U/S 6 POCSO Act For Same Act: Kerala High Court
+https://www.verdictum.in/kerala-high-court/shaji-v-state-of-kerala-2026ker78048-section-376-ipc-section-6-pocso-act-1624444
+
+[Source Link](https://t.me/verdictumlegalupdates/29807)
+
+---
+
+### 2026-10-22T07:02:50+00:00
+Dowry Demand Made After Marriage Is Punishable Even Without Prior Agreement Or Fixed Amount: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/db-v-state-of-madhya-pradesh-and-others-2026mphc-ind28859-dowry-demand-1624440
+
+[Source Link](https://t.me/verdictumlegalupdates/29806)
+
+---
+
+### 2026-10-22T06:32:29+00:00
+Reservation Of Life Interest In Settlement Deed Does Not Satisfy Condition Of Providing Basic Amenities U/S 23(1) Senior Citizens Act: Kerala High Court
+https://www.verdictum.in/kerala-high-court/bindu-v-the-district-officer-2026ker77464-basic-amenities-us-231-senior-citizens-act-1624435
+
+[Source Link](https://t.me/verdictumlegalupdates/29805)
+
+---
+
+### 2026-10-22T06:02:48+00:00
+Police Must Issue Written Summons U/S.179 Of BNSS; Minutes Of Enquiry To Be Recorded In General Diary: Madras High Court Issues Guidelines To Curb Harassment
+https://www.verdictum.in/madras-high-court/varadhan-v-state-police-written-summons-sec179-bnss-enquiry-general-diary-harassment-1624431
+
+[Source Link](https://t.me/verdictumlegalupdates/29804)
+
+---
+
+### 2026-10-22T05:33:08+00:00
+Consequence Alone Cannot Metamorphose Negligence Into Culpable Homicide: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/nadeem-ur-rehman-v-state-of-karnataka-criminal-petition-no-10711-of-2026-s-304-father-minor-son-motor-accident-1624428
+
+[Source Link](https://t.me/verdictumlegalupdates/29803)
 
 ---
 
@@ -49,118 +161,6 @@ Bombay High Court Directs UIDAI To Hand Over Documents Of Illegal Bangladeshi Na
 https://www.verdictum.in/bombay-high-court/2026-bhc-as-42669-db-state-of-maharashtra-v-unique-identification-authority-of-india-1624397
 
 [Source Link](https://t.me/verdictumlegalupdates/29797)
-
----
-
-### 2026-10-21T13:12:30+00:00
-Duty Of Advocate Is To Assist Court And Not Insist On Favourable Order: Karnataka High Court Initiates Contempt Action Against Lawyer
-https://www.verdictum.in/karnataka-high-court/vm-kumarswamy-v-state-of-karnataka-2026khc59045-contempt-advocate-implead-deceased-complainant-1624396
-
-[Source Link](https://t.me/verdictumlegalupdates/29796)
-
----
-
-### 2026-10-21T12:33:05+00:00
-Date Of Import Under Foreign Trade Policy Must Be Reckoned From Shipment Date, Not Customs Clearance Date: Bombay High Court
-https://www.verdictum.in/bombay-high-court/heimerle-refinery-private-limited-v-union-of-india-and-others-2026bhc-os22729-db-1624394
-
-[Source Link](https://t.me/verdictumlegalupdates/29795)
-
----
-
-### 2026-10-21T12:02:04+00:00
-Posters Calling SC Judgment "Denial Of Justice" Is Protected Dissent; Not Offences U/S 153A Or 295A IPC: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/mahammed-hanif-and-others-v-state-of-karnataka-and-another-2026khc58498-1624392
-
-[Source Link](https://t.me/verdictumlegalupdates/29794)
-
----
-
-### 2026-10-21T11:32:23+00:00
-Potential Implications For National Security: Delhi High Court Upholds Denial Of Information Regarding PM’s Foreign Visit Undertaken On IAF Aircraft
-https://www.verdictum.in/delhi-high-court/the-central-public-information-officer-v-commodore-lokesh-k-batra-2026dhc9404-pm-iaf-1624390
-
-[Source Link](https://t.me/verdictumlegalupdates/29793)
-
----
-
-### 2026-10-21T11:02:22+00:00
-Bombay High Court Restrains Release Of Sonakshi Sinha-Starrer "Tu Hai Meri Kiran" Until ₹8.85 Crore Plus Interest Is Deposited
-https://www.verdictum.in/bombay-high-court/and-movie-products-llp-v-echelon-productions-and-others-2026bhc-os22712-1624389
-
-[Source Link](https://t.me/verdictumlegalupdates/29792)
-
----
-
-### 2026-10-21T10:32:41+00:00
-Caveat That A Decision “Cannot Be Cited As Precedent” Is Unique To Supreme Court: Delhi High Court
-https://www.verdictum.in/delhi-high-court/union-of-india-v-om-prakash-2026dhc9162-db-in-situ-promotion-over-such-delay-scientist-1624388
-
-[Source Link](https://t.me/verdictumlegalupdates/29791)
-
----
-
-### 2026-10-21T10:05:40+00:00
-Consensual Acts Between Accused & Victim For Years Together Cannot Be Projected As Offence U/S 69 BNS: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/dr-ramdas-ramdas-patil-v-state-of-karnataka-criminal-petition-no10701-of-2025-consensual-acts-between-accused-victim-1624387
-
-[Source Link](https://t.me/verdictumlegalupdates/29790)
-
----
-
-### 2026-10-21T09:32:19+00:00
-Sodium Not An Explosive: Karnataka High Court Quashes FIR Against Content Creator Who Caused Explosion By Dropping Sodium Into Pond
-https://www.verdictum.in/karnataka-high-court/pratap-nm-v-state-of-karnataka-and-another-2026khc53677-sodium-explosion-1624384
-
-[Source Link](https://t.me/verdictumlegalupdates/29789)
-
----
-
-### 2026-10-21T09:02:38+00:00
-Lodging FIR Is Not Institution Of Criminal Proceedings; Prosecution Begins When Police Report Is Filed In Court: Madras High Court
-https://www.verdictum.in/madras-high-court/sivaganesh-v-the-inspector-of-police-ss-colony-police-station-madurai-city-crlopmd-no-15408-of-2024-retrospective-use-of-s-193-bnss-1624383
-
-[Source Link](https://t.me/verdictumlegalupdates/29788)
-
----
-
-### 2026-10-21T08:27:07+00:00
-Breaking: CJP Leaders Saurav Das & Ashutosh Ranka Withdraw Plea Before Delhi High Court Challenging Custody
-https://www.verdictum.in/delhi-high-court/saurav-das-ashutosh-ranka-withdraw-delhi-high-court-plea-challenging-custody-1624382
-
-[Source Link](https://t.me/verdictumlegalupdates/29787)
-
----
-
-### 2026-10-21T08:02:46+00:00
-Couples With Two Or More Children Ineligible To Adopt Normal Child Under 2022 Adoption Regulations: Delhi High Court
-https://www.verdictum.in/delhi-high-court/s-v-union-of-india-2026dhc9354-adoption-cara-baby-k-1624378
-
-[Source Link](https://t.me/verdictumlegalupdates/29786)
-
----
-
-### 2026-10-21T07:24:05+00:00
-Breaking: Supreme Court Stays Investigation In CMRL-Exalogic Case Against Former Kerala CM Pinarayi Vijayan & Family, Sets Aside High Court Order Directing FIR
-https://www.verdictum.in/supreme-court/stays-investigation-in-fir-against-pinarayi-vijayan-kin-for-one-week-1624377
-
-[Source Link](https://t.me/verdictumlegalupdates/29785)
-
----
-
-### 2026-10-21T07:03:04+00:00
-Permitting Investigation Would Be Abuse Of Process Of Law: Karnataka High Court Quashes FIR Against Amith Malviya Over X Post On Rahul Gandhi
-https://www.verdictum.in/karnataka-high-court/amith-malviya-v-state-of-karnataka-criminal-petition-no-7434-of-2025-fir-against-amit-over-x-post-on-rahul-gandhi-1624374
-
-[Source Link](https://t.me/verdictumlegalupdates/29784)
-
----
-
-### 2026-10-21T06:34:03+00:00
-Breaking: Supreme Court Directs EC To Postpone Publication Of Final Candidate List By Two Days In Andhra Pradesh Local Body Elections, Asks To Examine YSRCP Obstruction Claims
-https://www.verdictum.in/supreme-court/directs-state-election-commission-postpone-publication-final-candidate-list-least-two-days-1624371
-
-[Source Link](https://t.me/verdictumlegalupdates/29783)
 
 ---
 
