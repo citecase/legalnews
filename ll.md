@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-22T11:13:08+00:00*
+*Last Updated: 2026-10-22T11:27:18+00:00*
 
 ---
 
-### 2026-10-22T11:13:08+00:00
-Practice Of Engaging Persons Of Choice As Casual Workers And Later Regularising Them Is Fraud On Constitution: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/practice-of-engaging-persons-of-choice-as-casual-workers-and-later-regularising-them-is-fraud-on-constitution-jk-high-court-555593
-
-[Read on Telegram](https://t.me/livelawindia/122944)
-
----
 ### 2026-10-22T11:27:18+00:00
 Denial Of Wages For Work Actually Performed Violates Article 23: J&K&L High Court Orders Payment To Doctor Despite Retrospective Cancellation Of Engagement
 https://www.livelaw.in/high-court/jammu-kashmir/denial-of-wages-for-work-actually-performed-violates-article-23-jk-high-court-orders-payment-to-doctor-despite-retrospective-cancellation-of-engagement-555595
@@ -142,5 +135,12 @@ NCLT Kolkata Rejects Section 9 Plea Against Bridge & Roof Company Over Pre-Exist
 https://www.livelaw.in/law-firms/litigation/nclt-kolkata-rejects-section-9-plea-against-bridge-roof-company-over-pre-existing-dispute-555659
 
 [Read on Telegram](https://t.me/livelawindia/122963)
+
+---
+### 2026-10-22T20:58:21+00:00
+“Heated Exchanges Common Between Bar & Bench”: J&K&L High Court Quashes Tribunal Order Imposing ₹10K Cost On Senior Advocate
+https://www.livelaw.in/high-court/jammu-kashmir/heated-exchanges-common-between-bar-bench-jk-hc-calls-for-restraint-quashes-tribunal-order-imposing-10000-costs-on-senior-advocate-555660
+
+[Read on Telegram](https://t.me/livelawindia/122964)
 
 ---
