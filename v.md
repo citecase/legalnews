@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-22T16:02:57+00:00*
+*Last Updated: 2026-10-23T05:02:06+00:00*
+
+---
+
+### 2026-10-23T05:02:06+00:00
+Teachers With Fake Documents: Allahabad High Court Asks All Teachers From Class 1 To 8 To Furnish Educational Certificates
+https://www.verdictum.in/allahabad-high-court/kusumlata-v-state-of-up-employment-forged-documents-appointment-letter-certificates-1624493
+
+[Source Link](https://t.me/verdictumlegalupdates/29825)
+
+---
+
+### 2026-10-23T04:33:15+00:00
+Bombay High Court Confiscates Mobile And Fines Junior Lawyer, Clerk For Illegal Courtroom Recording
+https://www.verdictum.in/bombay-high-court/confiscates-mobile-fines-junior-lawyer-clerk-illegal-courtroom-recording-1624478
+
+[Source Link](https://t.me/verdictumlegalupdates/29824)
 
 ---
 
@@ -145,22 +161,6 @@ Dowry Demand Made After Marriage Is Punishable Even Without Prior Agreement Or F
 https://www.verdictum.in/madhya-pradesh-high-court/db-v-state-of-madhya-pradesh-and-others-2026mphc-ind28859-dowry-demand-1624440
 
 [Source Link](https://t.me/verdictumlegalupdates/29806)
-
----
-
-### 2026-10-22T06:32:29+00:00
-Reservation Of Life Interest In Settlement Deed Does Not Satisfy Condition Of Providing Basic Amenities U/S 23(1) Senior Citizens Act: Kerala High Court
-https://www.verdictum.in/kerala-high-court/bindu-v-the-district-officer-2026ker77464-basic-amenities-us-231-senior-citizens-act-1624435
-
-[Source Link](https://t.me/verdictumlegalupdates/29805)
-
----
-
-### 2026-10-22T06:02:48+00:00
-Police Must Issue Written Summons U/S.179 Of BNSS; Minutes Of Enquiry To Be Recorded In General Diary: Madras High Court Issues Guidelines To Curb Harassment
-https://www.verdictum.in/madras-high-court/varadhan-v-state-police-written-summons-sec179-bnss-enquiry-general-diary-harassment-1624431
-
-[Source Link](https://t.me/verdictumlegalupdates/29804)
 
 ---
 
