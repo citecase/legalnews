@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-22T11:27:18+00:00*
+*Last Updated: 2026-10-22T12:17:48+00:00*
 
 ---
 
-### 2026-10-22T11:27:18+00:00
-Denial Of Wages For Work Actually Performed Violates Article 23: J&K&L High Court Orders Payment To Doctor Despite Retrospective Cancellation Of Engagement
-https://www.livelaw.in/high-court/jammu-kashmir/denial-of-wages-for-work-actually-performed-violates-article-23-jk-high-court-orders-payment-to-doctor-despite-retrospective-cancellation-of-engagement-555595
-
-[Read on Telegram](https://t.me/livelawindia/122945)
-
----
-### 2026-10-22T11:32:58+00:00
-Delhi High Court Denies Bail To Man Accused Of Passing Classified Military Documents To Pakistan High Commission
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-denies-bail-to-man-accused-of-passing-classified-military-documents-to-pakistan-high-commission-555600
-
-[Read on Telegram](https://t.me/livelawindia/122946)
-
----
-### 2026-10-22T11:47:58+00:00
-Misuse Of Authority By Bank Officials Undermines Customers' Trust In Banks: Gujarat High Court Denies Anticipatory Bail
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-banking-institution-customer-money-trust-misuse-power-555610
-
-[Read on Telegram](https://t.me/livelawindia/122947)
-
----
-### 2026-10-22T11:53:18+00:00
-Delhi High Court Reserves Verdict On Neha Bora's Plea Against Peace Bond Notice Amid Anti-CEC Protests, Judgment Tomorrow
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-neha-boras-plea-against-notice-for-peace-bond-amid-anti-cec-protests-555630
-
-[Read on Telegram](https://t.me/livelawindia/122948)
-
----
-### 2026-10-22T12:02:18+00:00
-Wife Can't Authorise Husband's Detention At De-Addiction Centre Without His Consent Or Legal/Medical Mandate: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-private-rehabilitation-center-cannot-detain-person-merely-on-spouses-consent-555617
-
-[Read on Telegram](https://t.me/livelawindia/122949)
-
----
-### 2026-10-22T12:14:48+00:00
-Nothing Wrong With Seeking Regime Change In Democracy: Neha Bora Tells Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-neha-bora-notice-peace-bond-regime-change-democracy-555633
-
-[Read on Telegram](https://t.me/livelawindia/122950)
-
----
 ### 2026-10-22T12:17:48+00:00
 Placing Penis On Minor's Vagina Can Amount To 'Penetrative Sexual Assault' Under POCSO Act: Kerala High Court
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-placing-touching-penetrative-sexual-assault-555626
@@ -142,5 +100,47 @@ https://www.livelaw.in/law-firms/litigation/nclt-kolkata-rejects-section-9-plea-
 https://www.livelaw.in/high-court/jammu-kashmir/heated-exchanges-common-between-bar-bench-jk-hc-calls-for-restraint-quashes-tribunal-order-imposing-10000-costs-on-senior-advocate-555660
 
 [Read on Telegram](https://t.me/livelawindia/122964)
+
+---
+### 2026-10-23T02:32:55+00:00
+Extended Passing Off In India: Evolution And Judicial Recognition
+https://www.livelaw.in/lawschool/articles/extended-passing-off-india-evolution-judicial-recognition-555637
+
+[Read on Telegram](https://t.me/livelawindia/122965)
+
+---
+### 2026-10-23T03:29:25+00:00
+Senior Consultant Vacancy At Ernst & Young [Gurgaon; Apply Now]
+https://www.livelaw.in/job-updates/senior-consultant-vacancy-at-ernst-young-gurgaon-555661
+
+[Read on Telegram](https://t.me/livelawindia/122966)
+
+---
+### 2026-10-23T03:31:55+00:00
+Associate (Coordination) Vacancy At National Law University Delhi (NLUD)
+https://www.livelaw.in/job-updates/associate-coordination-vacancy-at-national-law-university-delhi-nlud-555662
+
+[Read on Telegram](https://t.me/livelawindia/122967)
+
+---
+### 2026-10-23T03:32:55+00:00
+'Mute Spectator' During Crime Can Also Be Complicit: Delhi High Court Denies Bail To Accused In Murder Case
+https://www.livelaw.in/high-court/delhi-high-court/mute-spectator-during-crime-can-also-be-complicit-delhi-high-court-denies-bail-to-accused-in-murder-case-555603
+
+[Read on Telegram](https://t.me/livelawindia/122968)
+
+---
+### 2026-10-23T03:41:35+00:00
+Senior Cluster Manager Vacancy At Bajaj Finance Limited
+https://www.livelaw.in/job-updates/senior-cluster-manager-vacancy-at-bajaj-finance-limited-555663
+
+[Read on Telegram](https://t.me/livelawindia/122969)
+
+---
+### 2026-10-23T03:48:35+00:00
+Senior Counsel (Corporate Legal) Vacancy At Tata Communications Limited
+https://www.livelaw.in/job-updates/senior-counsel-corporate-legal-vacancy-at-tata-communications-limited-555664
+
+[Read on Telegram](https://t.me/livelawindia/122970)
 
 ---
