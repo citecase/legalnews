@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-23T05:02:06+00:00*
+*Last Updated: 2026-10-23T11:32:19+00:00*
+
+---
+
+### 2026-10-23T11:32:19+00:00
+Delhi High Court Says Hygienic Public Toilets Part Of Right To Life, Proposes Their Surprise Inspection In MCD Limits
+https://www.verdictum.in/delhi-high-court/hygienic-public-toilets-part-of-right-to-life-delhi-high-court-1624528
+
+[Source Link](https://t.me/verdictumlegalupdates/29837)
+
+---
+
+### 2026-10-23T10:52:18+00:00
+Area Limits To Determine “Neighbourhood School” Under RTE Act Are A Means To Secure Right To Education, Not An End In Itself: Bombay High Court
+https://www.verdictum.in/bombay-high-court/karuna-sumit-kamble-v-the-deputy-director-of-education-mumbai-region-2026bhc-as42896-neighbourhood-school-rte-act-weaker-section-25-quota-1624525
+
+[Source Link](https://t.me/verdictumlegalupdates/29836)
+
+---
+
+### 2026-10-23T10:12:17+00:00
+Major Woman Entitled To Take Decisions About Her; Parents Or Police Can’t Force Her To Return Home: Kerala High Court
+https://www.verdictum.in/kerala-high-court/a-v-state-of-kerala-2026ker74216-major-woman-decisions-parents-police-return-home-1624524
+
+[Source Link](https://t.me/verdictumlegalupdates/29835)
+
+---
+
+### 2026-10-23T09:32:56+00:00
+Karnataka High Court Directs Police To Examine Unauthorised SIM Card Activations; Seeks Review Of Verification Safeguards
+https://www.verdictum.in/karnataka-high-court/mallikarjuna-v-state-of-karnataka-2026khc54091-unauthorised-sim-cards-1624522
+
+[Source Link](https://t.me/verdictumlegalupdates/29834)
+
+---
+
+### 2026-10-23T09:02:36+00:00
+Police "Con-Wrote" Story In Connivance With Developer: Bombay High Court Directs ₹5L Compensation For Illegal Arrest In Extortion Case
+https://www.verdictum.in/bombay-high-court/2026-bhc-as-43037-db-bipin-satish-chandra-agrwal-v-state-of-maharashtra-1624521
+
+[Source Link](https://t.me/verdictumlegalupdates/29833)
+
+---
+
+### 2026-10-23T08:32:55+00:00
+Absence Of Specific Maintenance Condition In Deed Does Not Bar Action U/S 23 Senior Citizens Act: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/drakshayini-girija-v-assistant-commissioner-and-sub-divisional-magistrate-2026khc58865-senior-citizen-daughter-father-1624518
+
+[Source Link](https://t.me/verdictumlegalupdates/29832)
+
+---
+
+### 2026-10-23T08:02:39+00:00
+Gauhati High Court Directs Juvenile Justice Boards To Inspect Adult Jails For Minor Inmates, Calls For Visits Every Three Months
+https://www.verdictum.in/guwahati-high-court/smt-nandinee-das-v-state-of-assam-and-38-others-juvenile-justice-boards-1624513
+
+[Source Link](https://t.me/verdictumlegalupdates/29831)
+
+---
+
+### 2026-10-23T07:32:32+00:00
+Muslim Mother Not Legal Guardian Of Minor’s Property By Right, But Court May Appoint Her For Child’s Welfare: Orissa High Court
+https://www.verdictum.in/orissa-high-court/shamina-naaz-and-another-versus-rimsha-taashfeen-and-another-2026ohc189-1624508
+
+[Source Link](https://t.me/verdictumlegalupdates/29830)
+
+---
+
+### 2026-10-23T07:02:57+00:00
+Police Must Not Behave Like Procrustes: Madras High Court Directs Police To Process RSS Route March Applications
+https://www.verdictum.in/madras-high-court/vg-jagadeesan-v-the-state-of-tamil-nadu-wp-crl-no-2790-of-2026-1624504
+
+[Source Link](https://t.me/verdictumlegalupdates/29829)
+
+---
+
+### 2026-10-23T06:33:08+00:00
+Karnataka High Court Directs Police To Build Integrated Database Of Criminal Case Status Before Opening Or Continuing Rowdy Sheets
+https://www.verdictum.in/karnataka-high-court/2026-khc-39049-anthony-david-j-kutti-v-the-state-of-karnataka-1624501
+
+[Source Link](https://t.me/verdictumlegalupdates/29828)
+
+---
+
+### 2026-10-23T06:02:27+00:00
+Criminal Process Cannot Be Converted Into A Retaliatory Weapon: Karnataka High Court Quashes FIRs Against Doctor Who Reported Illegal Immigrants
+https://www.verdictum.in/karnataka-high-court/nagendrappa-t-v-state-of-karnataka-wp-no-24641-of-2026-doctor-who-reported-illegal-immigrants-1624498
+
+[Source Link](https://t.me/verdictumlegalupdates/29827)
+
+---
+
+### 2026-10-23T05:32:07+00:00
+FIR Against Husband Can’t Be Quashed Merely Because It Was Lodged After He Filed Application For Restitution Of Conjugal Rights: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/a-others-v-the-state-of-mp-2026mphc-jbp76288-section-498a-ipc-husband-restitution-conjugal-rights-1624496
+
+[Source Link](https://t.me/verdictumlegalupdates/29826)
 
 ---
 
@@ -65,102 +161,6 @@ Cases Involving Recovery Of Cough Syrup Containing Codeine Should Be Filed Under
 https://www.verdictum.in/patna-high-court/bharat-kumar-v-the-state-of-bihar-recovery-cough-syrup-codeine-drugs-cosmetics-act-ndps-1624472
 
 [Source Link](https://t.me/verdictumlegalupdates/29818)
-
----
-
-### 2026-10-22T12:42:20+00:00
-Family Courts Reorganisation Was Done In Interest Of Administration Of Justice: Kerala High Court Rejects Plea Seeking Re-Transfer Of Matrimonial Plea
-https://www.verdictum.in/kerala-high-court/2026-ker-77263-h-v-w-1624470
-
-[Source Link](https://t.me/verdictumlegalupdates/29817)
-
----
-
-### 2026-10-22T12:02:39+00:00
-Wife's Refusal For Physical Relations & Giving Suicide Threats Amount To Mental Cruelty On Husband: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/2026-rj-jd-48351-db-w-v-h-1624463
-
-[Source Link](https://t.me/verdictumlegalupdates/29816)
-
----
-
-### 2026-10-22T11:32:59+00:00
-Court Employee Found Guilty Of Theft Not “Deserving Of Special Consideration” For Compassionate Pension Under Rule 101 MCSR, 1982: Bombay High Court
-https://www.verdictum.in/bombay-high-court/waman-shamrao-kulkarni-v-the-registrar-administration-high-court-of-judicature-of-bombay-bench-at-aurangabad-2026bhc-aug50126-db-court-employee-1624462
-
-[Source Link](https://t.me/verdictumlegalupdates/29815)
-
----
-
-### 2026-10-22T11:02:38+00:00
-Bombay High Court Calls For Uniform Warning Policy At Public Beaches, Directs State To Fund Rescue Measures
-https://www.verdictum.in/bombay-high-court/a-inamdar-and-others-v-state-of-maharashtra-and-another-connected-applications-1624460
-
-[Source Link](https://t.me/verdictumlegalupdates/29814)
-
----
-
-### 2026-10-22T10:32:17+00:00
-SDM Cannot Unilaterally Issue Orders Imposing Pecuniary Penalties Under Disaster Management Act: Chhattisgarh High Court
-https://www.verdictum.in/chhattisgarh-high-court/saroj-sahu-v-state-of-chhattisgarh-2026cghc44242-disaster-management-act-sub-divisional-magistrate-1624459
-
-[Source Link](https://t.me/verdictumlegalupdates/29813)
-
----
-
-### 2026-10-22T10:02:56+00:00
-Failure To Allege Negligence In Police Statement Does Not By Itself Defeat Motor Accident Claim: Bombay High Court
-https://www.verdictum.in/bombay-high-court/mohan-laxman-chavan-v-the-transport-manager-thane-municipal-transport-and-others-2026bhc-as42966-1624458
-
-[Source Link](https://t.me/verdictumlegalupdates/29812)
-
----
-
-### 2026-10-22T09:32:15+00:00
-Unexplained Delay Snaps Live Link Between Last Prejudicial Activity And Detention Order Under PITNDPS Act: Kerala High Court
-https://www.verdictum.in/kerala-high-court/sajina-cv-v-union-of-india-2026khc77216-narcotic-drugs-psychotropic-substances-act-1988-1624457
-
-[Source Link](https://t.me/verdictumlegalupdates/29811)
-
----
-
-### 2026-10-22T09:02:54+00:00
-Sexual-Assault Victim’s Non-Disclosure Of Every Detail Before Doctor During Medical Examination Is Not By Itself A Material Omission: Kerala High Court
-https://www.verdictum.in/kerala-high-court/shilpi-v-state-of-kerala-2026ker78263-sexual-assault-victim-non-disclosure-1624453
-
-[Source Link](https://t.me/verdictumlegalupdates/29810)
-
----
-
-### 2026-10-22T08:33:13+00:00
-Forfeiture Of Earnest Money Not Automatic Consequence Of Breach; Seller Must Prove Legal Injury U/S 74 Contract Act: Delhi High Court
-https://www.verdictum.in/delhi-high-court/shriram-pal-saini-v-shri-anil-kumar-2026dhc9361-legal-injury-us-74-contract-act-forfeiture-1624451
-
-[Source Link](https://t.me/verdictumlegalupdates/29809)
-
----
-
-### 2026-10-22T08:02:52+00:00
-Mere Raising Of Plea Of Adverse Possession Does Not Shift Burden Of Proof To True Owner: Bombay High Court
-https://www.verdictum.in/bombay-high-court/chandrahas-jethalal-patel-and-others-v-nirmalaben-shambhuprasad-patel-and-others-2026bhc-as42879-1624450
-
-[Source Link](https://t.me/verdictumlegalupdates/29808)
-
----
-
-### 2026-10-22T07:32:31+00:00
-Separate Sentence U/S 376AB IPC Need Not Be Imposed After Punishment U/S 6 POCSO Act For Same Act: Kerala High Court
-https://www.verdictum.in/kerala-high-court/shaji-v-state-of-kerala-2026ker78048-section-376-ipc-section-6-pocso-act-1624444
-
-[Source Link](https://t.me/verdictumlegalupdates/29807)
-
----
-
-### 2026-10-22T07:02:50+00:00
-Dowry Demand Made After Marriage Is Punishable Even Without Prior Agreement Or Fixed Amount: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/db-v-state-of-madhya-pradesh-and-others-2026mphc-ind28859-dowry-demand-1624440
-
-[Source Link](https://t.me/verdictumlegalupdates/29806)
 
 ---
 
