@@ -1,93 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-23T06:39:16+00:00*
+*Last Updated: 2026-10-23T09:02:27+00:00*
 
 ---
 
-### 2026-10-23T06:39:16+00:00
-2026 LiveLaw (SC) 1080 | ABHISHEK UPADHYAY v. STATE OF UTTAR PRADESH AND ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1080-abhishek-upadhyay-v-state-of-uttar-pradesh-and-ors-555699
-
-[Read on Telegram](https://t.me/livelawindia/122995)
-
----
-### 2026-10-23T06:47:16+00:00
-Motor Accident | Vehicle Owner's Lack Of Personal Assets Can't Be A Ground To Deny 'Pay And Recover' Relief: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-directs-insurance-company-pay-victim-555684
-
-[Read on Telegram](https://t.me/livelawindia/122996)
-
----
-### 2026-10-23T06:57:16+00:00
-National Song Replaced With 'Religious War Song' From Anandamath : Ex-IAS Officer's Plea In Supreme Court
-https://www.livelaw.in/top-stories/national-song-replaced-with-religious-war-song-from-anandamath-ex-ias-officers-plea-in-supreme-court-555702
-
-[Read on Telegram](https://t.me/livelawindia/122997)
-
----
-### 2026-10-23T07:02:36+00:00
-Red Sanders Smuggling: AP High Court Upholds Preventive Detention, Says Delay In Deciding Detenu's Representation Satisfactorily Explained
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-upholds-preventive-detention-sandalwood-smuggling-accused-555687
-
-[Read on Telegram](https://t.me/livelawindia/122998)
-
----
-### 2026-10-23T07:16:16+00:00
-Madras High Court Grants Bail To Man Accused Of Using AI Videos Of CM Joseph Vijay To Scam Public
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-grants-bail-to-man-accused-of-using-ai-videos-of-cm-joseph-vijay-to-scam-public-555708
-
-[Read on Telegram](https://t.me/livelawindia/122999)
-
----
-### 2026-10-23T07:33:06+00:00
-Advocate's Duty To Maintain Client Confidentiality Doesn't End With Service, Remains Perpetual: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-advocates-confidentiality-obligation-does-not-end-with-service-termination-555691
-
-[Read on Telegram](https://t.me/livelawindia/123000)
-
----
-### 2026-10-23T07:40:06+00:00
-Mother Has Right To Decide Whether To Bring Child Into World If Child Won't Have Normal Life : Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-24-week-foetal-abnormality-abortion-permittted-555717
-
-[Read on Telegram](https://t.me/livelawindia/123001)
-
----
-### 2026-10-23T07:48:06+00:00
-Executive Magistrate's Inquest Report Only Aids Probe, Cannot Substitute Police's Final Report: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-inquest-report-neither-concludes-probe-substitutes-final-report-555693
-
-[Read on Telegram](https://t.me/livelawindia/123002)
-
----
-### 2026-10-23T08:02:06+00:00
-12-Month Limitation To Recover Maintenance Arrears Runs From Date Of Order, Not Previous Period For Which It Is Awarded: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-limitation-recovery-maintenance-begins-date-maintenance-order-555692
-
-[Read on Telegram](https://t.me/livelawindia/123003)
-
----
-### 2026-10-23T08:17:36+00:00
-Removal Of Undergarment Without Further Act Amounts To 'Attempt To Commit Sexual Assault' Under POCSO Act: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/removal-of-undergarment-amounts-attempt-commit-sexual-assault-555690
-
-[Read on Telegram](https://t.me/livelawindia/123004)
-
----
-### 2026-10-23T08:32:17+00:00
-Further Investigation Into Ancillary Terror Links Does Not Render Chargesheet Incomplete For Default Bail Claim: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/further-investigation-into-ancillary-terror-links-does-not-render-chargesheet-incomplete-for-default-bail-jk-high-court-upholds-denial-of-bail-to-3-uapa-accused-555642
-
-[Read on Telegram](https://t.me/livelawindia/123005)
-
----
-### 2026-10-23T08:47:17+00:00
-Mere Use Of Abusive Language Not Criminal Intimidation Or Intentional Insult Under BNS: Karnataka High Court Quashes FIR
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-mere-use-abuse-words-criminal-intimidation-intentional-insult-555715
-
-[Read on Telegram](https://t.me/livelawindia/123006)
-
----
 ### 2026-10-23T09:02:27+00:00
 Removal Of Court Employee For Off-Duty Incident After Two Decades Of Service 'Shockingly Disproportionate': Allahabad High Court
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-removal-court-employee-single-off-duty-incident-555716
@@ -142,5 +58,89 @@ Bomb Threats Can't Be Taken Lightly Merely Because Sender Never Intended To Exec
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-quash-case-sending-bomb-threat-email-bengaluru-police-claiming-555739
 
 [Read on Telegram](https://t.me/livelawindia/123014)
+
+---
+### 2026-10-23T11:18:37+00:00
+Delhi High Court's Judgment On Neha Bora's Plea Against Peace Bond Notice : Live Updates
+https://www.livelaw.in/top-stories/neha-bora-plea-against-peace-bond-notice-live-updates-from-delhi-high-court-555757
+
+[Read on Telegram](https://t.me/livelawindia/123015)
+
+---
+### 2026-10-23T12:29:47+00:00
+E-Waste Delivered Instead Of Laptop: Bhopal Consumer Commission Directs Amazon To Refund ₹1.29 Lakh With Interest
+https://www.livelaw.in/consumer-cases/e-waste-delivered-instead-of-laptop-bhopal-consumer-commission-directs-amazon-to-refund-129-lakh-with-interest-555769
+
+[Read on Telegram](https://t.me/livelawindia/123016)
+
+---
+### 2026-10-23T12:40:07+00:00
+Kerala High Court Refuses To Stay Reconstitution Of State Waqf Board, Says New Members Have Already Assumed Office
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-waqf-board-reconstitution-appeal-555771
+
+[Read on Telegram](https://t.me/livelawindia/123017)
+
+---
+### 2026-10-23T12:52:38+00:00
+Custody Plea Under Guardians & Wards Act Must Be Heard By Court Where Child Resides: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-guardians-wards-act-custody-child-resides-family-court-555772
+
+[Read on Telegram](https://t.me/livelawindia/123018)
+
+---
+### 2026-10-23T12:57:58+00:00
+Kerala High Court Strikes Down Guideline Restricting Production Of Arrested Persons Before Magistrates After 5 PM
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-5-pm-cut-off-producing-arrested-persons-magistrates-prior-intimation-555776
+
+[Read on Telegram](https://t.me/livelawindia/123019)
+
+---
+### 2026-10-23T13:05:18+00:00
+Driver Can't Escape Negligence By Citing Sudden Appearance Of Stray Animal, Must Anticipate Road Hazards: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/driver-cant-escape-negligence-by-citing-sudden-appearance-of-stray-animal-must-anticipate-road-hazards-delhi-high-court-555778
+
+[Read on Telegram](https://t.me/livelawindia/123020)
+
+---
+### 2026-10-23T13:12:58+00:00
+Surat Municipal Corporation's U-Turn On Rehabilitation Assurance To Demolition Victims Prima Facie Contemptuous: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-surat-municipal-corporation-contempt-demolition-555779
+
+[Read on Telegram](https://t.me/livelawindia/123021)
+
+---
+### 2026-10-23T13:30:38+00:00
+Fiscal Federalism On Trial: Article 131 And Constitutional Economics Of State Borrowing
+https://www.livelaw.in/articles/fiscal-federalism-trial-article131-constitutional-economics-state-borrowing-555640
+
+[Read on Telegram](https://t.me/livelawindia/123022)
+
+---
+### 2026-10-23T13:32:18+00:00
+[Advertisement] NLU Delhi And Mentblue Launch Certificate Course On Civil Litigation Drafting And Practice Under The Litigation Series
+https://www.livelaw.in/lawschool/diploma-certificate-courses/nlu-delhi-mentblue-launch-certificate-course-civil-litigation-drafting-practice-under-litigation-series-555755
+
+[Read on Telegram](https://t.me/livelawindia/123023)
+
+---
+### 2026-10-23T13:40:48+00:00
+BREAKING | Delhi High Court Rejects Neha Bora's Plea Against Peace Bond Notice Amid Anti-CEC Protests
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-neha-boras-plea-against-peace-bond-notice-amid-anti-cec-protests-555786
+
+[Read on Telegram](https://t.me/livelawindia/123024)
+
+---
+### 2026-10-23T13:57:28+00:00
+Rajasthan High Court Admits Appeal Against SC/ST Ward Reservation Over Allegedly Fake Population Data, But Refuses To Stay Election Process
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-refuses-interfere-sc-st-ward-reservation-allegedly-fake-population-records-555787
+
+[Read on Telegram](https://t.me/livelawindia/123025)
+
+---
+### 2026-10-23T14:13:08+00:00
+No Right To Obtain Archived Court Hearing Recordings Without Court's Permission: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-copies-court-proceedings-videos-specifically-ordered-555788
+
+[Read on Telegram](https://t.me/livelawindia/123026)
 
 ---
