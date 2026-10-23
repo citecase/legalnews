@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-22T12:17:48+00:00*
+*Last Updated: 2026-10-23T06:39:16+00:00*
 
 ---
 
-### 2026-10-22T12:17:48+00:00
-Placing Penis On Minor's Vagina Can Amount To 'Penetrative Sexual Assault' Under POCSO Act: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-placing-touching-penetrative-sexual-assault-555626
+### 2026-10-23T06:39:16+00:00
+2026 LiveLaw (SC) 1080 | ABHISHEK UPADHYAY v. STATE OF UTTAR PRADESH AND ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1080-abhishek-upadhyay-v-state-of-uttar-pradesh-and-ors-555699
 
-[Read on Telegram](https://t.me/livelawindia/122951)
-
----
-### 2026-10-22T12:32:28+00:00
-Bank Can't Freeze Entire Account Over Small Suspicious Transaction Without Applying Mind: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/bank-cant-freeze-entire-account-over-small-suspicious-transaction-without-applying-mind-delhi-high-court-555601
-
-[Read on Telegram](https://t.me/livelawindia/122952)
+[Read on Telegram](https://t.me/livelawindia/122995)
 
 ---
-### 2026-10-22T12:43:08+00:00
-Delhi High Court Refuses To Stay 'Doosra' Film On Sourav Ganguly's Plea Alleging Personality Rights Violation
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-refuses-to-stay-doosra-film-on-sourav-gangulys-plea-alleging-personality-rights-violation-555636
+### 2026-10-23T06:47:16+00:00
+Motor Accident | Vehicle Owner's Lack Of Personal Assets Can't Be A Ground To Deny 'Pay And Recover' Relief: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-directs-insurance-company-pay-victim-555684
 
-[Read on Telegram](https://t.me/livelawindia/122953)
-
----
-### 2026-10-22T12:47:48+00:00
-Juvenile Justice Boards Must Pass Specific Orders For Sending Children To Observation Homes If Bail Is Denied: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-safe-institution-placement-child-in-conflict-with-law-jjb-555628
-
-[Read on Telegram](https://t.me/livelawindia/122954)
+[Read on Telegram](https://t.me/livelawindia/122996)
 
 ---
-### 2026-10-22T13:27:38+00:00
-Repeated Livestock Theft Cases Can Create 'Fear Psychosis' Among Public: J&K&L High Court Upholds PSA Detention
-https://www.livelaw.in/high-court/jammu-kashmir/repeated-livestock-theft-cases-can-create-fear-psychosis-among-public-jk-high-court-upholds-psa-detention-555594
+### 2026-10-23T06:57:16+00:00
+National Song Replaced With 'Religious War Song' From Anandamath : Ex-IAS Officer's Plea In Supreme Court
+https://www.livelaw.in/top-stories/national-song-replaced-with-religious-war-song-from-anandamath-ex-ias-officers-plea-in-supreme-court-555702
 
-[Read on Telegram](https://t.me/livelawindia/122955)
-
----
-### 2026-10-22T14:23:48+00:00
-Allegations Of Anti-Social Activities Cannot Justify Preventive Detention Without Threat To Public Order: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/general-allegations-of-anti-social-activities-cannot-justify-preventive-detention-without-demonstrating-threat-to-public-order-jk-high-court-555641
-
-[Read on Telegram](https://t.me/livelawindia/122956)
+[Read on Telegram](https://t.me/livelawindia/122997)
 
 ---
-### 2026-10-22T14:49:38+00:00
-UP Legislative Council Elections: ECI Assures Allahabad High Court Of Continuous Polling Station Videography
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-up-mlc-elections-eci-polling-station-videography-555648
+### 2026-10-23T07:02:36+00:00
+Red Sanders Smuggling: AP High Court Upholds Preventive Detention, Says Delay In Deciding Detenu's Representation Satisfactorily Explained
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-upholds-preventive-detention-sandalwood-smuggling-accused-555687
 
-[Read on Telegram](https://t.me/livelawindia/122957)
-
----
-### 2026-10-22T15:37:28+00:00
-Bombay High Court Orders ₹5 Lakh Compensation For Illegal Arrest; Directs Action Against Police, Magistrate
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-orders-5-lakh-compensation-for-illegal-arrest-directs-action-against-police-magistrate-555654
-
-[Read on Telegram](https://t.me/livelawindia/122958)
+[Read on Telegram](https://t.me/livelawindia/122998)
 
 ---
-### 2026-10-22T15:52:48+00:00
-Bombay High Court Calls For Strict Action Against Those Helping Foreign Nationals Obtain Fake Aadhar, PAN Cards
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-calls-for-strict-action-against-those-helping-foreign-nationals-obtain-fake-aadhar-pan-cards-555655
+### 2026-10-23T07:16:16+00:00
+Madras High Court Grants Bail To Man Accused Of Using AI Videos Of CM Joseph Vijay To Scam Public
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-grants-bail-to-man-accused-of-using-ai-videos-of-cm-joseph-vijay-to-scam-public-555708
 
-[Read on Telegram](https://t.me/livelawindia/122959)
-
----
-### 2026-10-22T16:00:58+00:00
-University Adopting UGC-NET Criteria Cannot Be Compelled To Accept JEST Score For PhD Admissions: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-jest-score-ugc-net-phd-admissions-555657
-
-[Read on Telegram](https://t.me/livelawindia/122960)
+[Read on Telegram](https://t.me/livelawindia/122999)
 
 ---
-### 2026-10-22T16:24:19+00:00
-Kochhar & Co. Advises Agrawal Infrabuild On ₹1,200 Crore Ludhiana Toll Road Insolvency Resolution
-https://www.livelaw.in/law-firms/deals/kochhar-co-advises-agrawal-infrabuild-on-1200-crore-ludhiana-toll-road-insolvency-resolution-555658
+### 2026-10-23T07:33:06+00:00
+Advocate's Duty To Maintain Client Confidentiality Doesn't End With Service, Remains Perpetual: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-advocates-confidentiality-obligation-does-not-end-with-service-termination-555691
 
-[Read on Telegram](https://t.me/livelawindia/122961)
-
----
-### 2026-10-22T16:32:19+00:00
-LiveLaw High Courts Daily Highlights: October 22, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-22-2026-555656
-
-[Read on Telegram](https://t.me/livelawindia/122962)
+[Read on Telegram](https://t.me/livelawindia/123000)
 
 ---
-### 2026-10-22T16:34:39+00:00
-NCLT Kolkata Rejects Section 9 Plea Against Bridge & Roof Company Over Pre-Existing Dispute
-https://www.livelaw.in/law-firms/litigation/nclt-kolkata-rejects-section-9-plea-against-bridge-roof-company-over-pre-existing-dispute-555659
+### 2026-10-23T07:40:06+00:00
+Mother Has Right To Decide Whether To Bring Child Into World If Child Won't Have Normal Life : Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-24-week-foetal-abnormality-abortion-permittted-555717
 
-[Read on Telegram](https://t.me/livelawindia/122963)
-
----
-### 2026-10-22T20:58:21+00:00
-“Heated Exchanges Common Between Bar & Bench”: J&K&L High Court Quashes Tribunal Order Imposing ₹10K Cost On Senior Advocate
-https://www.livelaw.in/high-court/jammu-kashmir/heated-exchanges-common-between-bar-bench-jk-hc-calls-for-restraint-quashes-tribunal-order-imposing-10000-costs-on-senior-advocate-555660
-
-[Read on Telegram](https://t.me/livelawindia/122964)
+[Read on Telegram](https://t.me/livelawindia/123001)
 
 ---
-### 2026-10-23T02:32:55+00:00
-Extended Passing Off In India: Evolution And Judicial Recognition
-https://www.livelaw.in/lawschool/articles/extended-passing-off-india-evolution-judicial-recognition-555637
+### 2026-10-23T07:48:06+00:00
+Executive Magistrate's Inquest Report Only Aids Probe, Cannot Substitute Police's Final Report: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-inquest-report-neither-concludes-probe-substitutes-final-report-555693
 
-[Read on Telegram](https://t.me/livelawindia/122965)
-
----
-### 2026-10-23T03:29:25+00:00
-Senior Consultant Vacancy At Ernst & Young [Gurgaon; Apply Now]
-https://www.livelaw.in/job-updates/senior-consultant-vacancy-at-ernst-young-gurgaon-555661
-
-[Read on Telegram](https://t.me/livelawindia/122966)
+[Read on Telegram](https://t.me/livelawindia/123002)
 
 ---
-### 2026-10-23T03:31:55+00:00
-Associate (Coordination) Vacancy At National Law University Delhi (NLUD)
-https://www.livelaw.in/job-updates/associate-coordination-vacancy-at-national-law-university-delhi-nlud-555662
+### 2026-10-23T08:02:06+00:00
+12-Month Limitation To Recover Maintenance Arrears Runs From Date Of Order, Not Previous Period For Which It Is Awarded: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-limitation-recovery-maintenance-begins-date-maintenance-order-555692
 
-[Read on Telegram](https://t.me/livelawindia/122967)
-
----
-### 2026-10-23T03:32:55+00:00
-'Mute Spectator' During Crime Can Also Be Complicit: Delhi High Court Denies Bail To Accused In Murder Case
-https://www.livelaw.in/high-court/delhi-high-court/mute-spectator-during-crime-can-also-be-complicit-delhi-high-court-denies-bail-to-accused-in-murder-case-555603
-
-[Read on Telegram](https://t.me/livelawindia/122968)
+[Read on Telegram](https://t.me/livelawindia/123003)
 
 ---
-### 2026-10-23T03:41:35+00:00
-Senior Cluster Manager Vacancy At Bajaj Finance Limited
-https://www.livelaw.in/job-updates/senior-cluster-manager-vacancy-at-bajaj-finance-limited-555663
+### 2026-10-23T08:17:36+00:00
+Removal Of Undergarment Without Further Act Amounts To 'Attempt To Commit Sexual Assault' Under POCSO Act: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/removal-of-undergarment-amounts-attempt-commit-sexual-assault-555690
 
-[Read on Telegram](https://t.me/livelawindia/122969)
+[Read on Telegram](https://t.me/livelawindia/123004)
 
 ---
-### 2026-10-23T03:48:35+00:00
-Senior Counsel (Corporate Legal) Vacancy At Tata Communications Limited
-https://www.livelaw.in/job-updates/senior-counsel-corporate-legal-vacancy-at-tata-communications-limited-555664
+### 2026-10-23T08:32:17+00:00
+Further Investigation Into Ancillary Terror Links Does Not Render Chargesheet Incomplete For Default Bail Claim: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/further-investigation-into-ancillary-terror-links-does-not-render-chargesheet-incomplete-for-default-bail-jk-high-court-upholds-denial-of-bail-to-3-uapa-accused-555642
 
-[Read on Telegram](https://t.me/livelawindia/122970)
+[Read on Telegram](https://t.me/livelawindia/123005)
+
+---
+### 2026-10-23T08:47:17+00:00
+Mere Use Of Abusive Language Not Criminal Intimidation Or Intentional Insult Under BNS: Karnataka High Court Quashes FIR
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-mere-use-abuse-words-criminal-intimidation-intentional-insult-555715
+
+[Read on Telegram](https://t.me/livelawindia/123006)
+
+---
+### 2026-10-23T09:02:27+00:00
+Removal Of Court Employee For Off-Duty Incident After Two Decades Of Service 'Shockingly Disproportionate': Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-removal-court-employee-single-off-duty-incident-555716
+
+[Read on Telegram](https://t.me/livelawindia/123007)
+
+---
+### 2026-10-23T09:17:27+00:00
+Cruelty FIR Against Mother-In-Law Can't Be Sustained When Complainant's Earlier Marriage Still Subsisting: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-complainant-mother-in-law-cruelty-fir-555718
+
+[Read on Telegram](https://t.me/livelawindia/123008)
+
+---
+### 2026-10-23T09:32:27+00:00
+US Sanctions And Threat To Independent International Justice – On ICC Sanctions
+https://www.livelaw.in/articles/us-sanctions-threat-independent-international-justice-icc-sanctions-555639
+
+[Read on Telegram](https://t.me/livelawindia/123009)
+
+---
+### 2026-10-23T09:33:07+00:00
+Vehicle Driven At Person Can Be 'Instrument Of Death'; Victim's Survival Doesn't Efface Attempt To Murder Charge: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-quash-attempt-murder-charge-555723
+
+[Read on Telegram](https://t.me/livelawindia/123010)
+
+---
+### 2026-10-23T09:47:57+00:00
+Registration Act | Writ Court Can't Conduct Full-Fledged Trial To Decide Fraud Allegations Over Land Agreement: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-registration-ac-serious-allegations-fraud-turn-writ-court-record-evidence-555738
+
+[Read on Telegram](https://t.me/livelawindia/123011)
+
+---
+### 2026-10-23T09:55:17+00:00
+Mere Suit Seeking Recovery Of Possession Not Sufficient When Plaintiff's Title Is Disputed : Supreme Court
+https://www.livelaw.in/supreme-court/mere-suit-seeking-recovery-of-possession-not-sufficient-when-plaintiffs-title-is-disputed-supreme-court-555742
+
+[Read on Telegram](https://t.me/livelawindia/123012)
+
+---
+### 2026-10-23T09:56:17+00:00
+2026 LiveLaw (SC) 1081 | SMT. RANO SINGH AND OTHERS VERSUS SH. GURBAX SINGH (D) TH LRS AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1081-smt-rano-singh-and-others-versus-sh-gurbax-singh-d-th-lrs-and-others-555743
+
+[Read on Telegram](https://t.me/livelawindia/123013)
+
+---
+### 2026-10-23T10:02:37+00:00
+Bomb Threats Can't Be Taken Lightly Merely Because Sender Never Intended To Execute Them: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-quash-case-sending-bomb-threat-email-bengaluru-police-claiming-555739
+
+[Read on Telegram](https://t.me/livelawindia/123014)
 
 ---
