@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-23T11:32:19+00:00*
+*Last Updated: 2026-10-23T16:02:28+00:00*
+
+---
+
+### 2026-10-23T16:02:28+00:00
+Tata Memorial Centre (TMC) Invites Applications For Post Of Assistant Administrative Officer (Legal)
+https://www.verdictum.in/job-updates/tata-memorial-centre-1624540
+
+[Source Link](https://t.me/verdictumlegalupdates/29846)
+
+---
+
+### 2026-10-23T15:32:47+00:00
+An Advocate’s Duty Of Loyalty And Client Confidentiality Survives Termination Of His Employment: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/dr-krishna-kumar-tripathi-v-state-of-madhya-pradesh-and-others-2026mphc-jbp75279-1624546
+
+[Source Link](https://t.me/verdictumlegalupdates/29845)
+
+---
+
+### 2026-10-23T15:02:26+00:00
+Fraud Must Be Dealt With To Punish Wrongdoer & Deter Others: Allahabad High Court Imposes Costs On Petitioner For Filing Forged Documents
+https://www.verdictum.in/allahabad-high-court/2026-ahc-lko-71652-db-gareeba-v-state-of-up-1624544
+
+[Source Link](https://t.me/verdictumlegalupdates/29844)
+
+---
+
+### 2026-10-23T14:32:25+00:00
+Abdication Of Duty To Interact With Child: Madras High Court Sets Aside Family Court’s Order Based Merely On Child Welfare Committee’s Report
+https://www.verdictum.in/madras-high-court/ab-v-cd-family-court-order-cant-abdicate-duty-interact-child-welfare-committees-report-1624542
+
+[Source Link](https://t.me/verdictumlegalupdates/29843)
+
+---
+
+### 2026-10-23T14:02:44+00:00
+Recovery of Single Live Cartridge Without Corresponding Firearm Or Conscious Possession Cannot Sustain Prosecution U/S 25 Arms Act: Delhi High Court
+https://www.verdictum.in/delhi-high-court/lingamally-veera-gopal-rao-v-state-of-nct-of-delhi-2026dhc9329-recovery-of-single-live-cartridge-firearm-airport-harassment-1624539
+
+[Source Link](https://t.me/verdictumlegalupdates/29842)
+
+---
+
+### 2026-10-23T13:32:23+00:00
+False Terror Threat Not Innocuous Even If No Intent To Execute It: Karnataka High Court Refuses To Quash Kempegowda Airport Bomb Threat Case
+https://www.verdictum.in/karnataka-high-court/abhay-shee-v-state-of-karnataka-and-another-2026khc47735-kempegowda-airport-bomb-threat-1624537
+
+[Source Link](https://t.me/verdictumlegalupdates/29841)
+
+---
+
+### 2026-10-23T13:02:22+00:00
+Can't Re-Argue Entire Case In Review Petition: Delhi High Court Dismisses Plea Against Policy Providing Cash Instead Of Uniforms To EWS/DG Students
+https://www.verdictum.in/delhi-high-court/2026-dhc-9419-db-justice-for-all-v-govt-of-nct-of-delhi-1624536
+
+[Source Link](https://t.me/verdictumlegalupdates/29840)
+
+---
+
+### 2026-10-23T12:33:01+00:00
+Victim’s Survival After Vehicle Was Allegedly Driven At Him Doesn’t Rule Out Mens Rea For Attempt To Murder: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/ramanjalu-v-state-of-karnataka-and-another-motor-accident-attempt-to-murder-1624535
+
+[Source Link](https://t.me/verdictumlegalupdates/29839)
+
+---
+
+### 2026-10-23T12:03:00+00:00
+Mere Processing Of Matter Through Various Authorities No Cause For Delay Condonation; State Can’t Be Treated As Privileged Litigant: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/the-state-of-madhya-pradesh-v-rakesh-singh-jadon-2026mphc-gwl31633-delay-privileged-litigant-1624529
+
+[Source Link](https://t.me/verdictumlegalupdates/29838)
 
 ---
 
@@ -89,78 +161,6 @@ Criminal Process Cannot Be Converted Into A Retaliatory Weapon: Karnataka High C
 https://www.verdictum.in/karnataka-high-court/nagendrappa-t-v-state-of-karnataka-wp-no-24641-of-2026-doctor-who-reported-illegal-immigrants-1624498
 
 [Source Link](https://t.me/verdictumlegalupdates/29827)
-
----
-
-### 2026-10-23T05:32:07+00:00
-FIR Against Husband Can’t Be Quashed Merely Because It Was Lodged After He Filed Application For Restitution Of Conjugal Rights: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/a-others-v-the-state-of-mp-2026mphc-jbp76288-section-498a-ipc-husband-restitution-conjugal-rights-1624496
-
-[Source Link](https://t.me/verdictumlegalupdates/29826)
-
----
-
-### 2026-10-23T05:02:06+00:00
-Teachers With Fake Documents: Allahabad High Court Asks All Teachers From Class 1 To 8 To Furnish Educational Certificates
-https://www.verdictum.in/allahabad-high-court/kusumlata-v-state-of-up-employment-forged-documents-appointment-letter-certificates-1624493
-
-[Source Link](https://t.me/verdictumlegalupdates/29825)
-
----
-
-### 2026-10-23T04:33:15+00:00
-Bombay High Court Confiscates Mobile And Fines Junior Lawyer, Clerk For Illegal Courtroom Recording
-https://www.verdictum.in/bombay-high-court/confiscates-mobile-fines-junior-lawyer-clerk-illegal-courtroom-recording-1624478
-
-[Source Link](https://t.me/verdictumlegalupdates/29824)
-
----
-
-### 2026-10-22T16:02:57+00:00
-Legal Assistant Vacancy At Chhattisgarh High Court
-https://www.verdictum.in/job-updates/chhattisgarh-high-court-1624468
-
-[Source Link](https://t.me/verdictumlegalupdates/29823)
-
----
-
-### 2026-10-22T15:33:05+00:00
-Bombay High Court Pulls Up Police For Non-Implementation Of Its Order For Pollution Curb During Festive Season
-https://www.verdictum.in/bombay-high-court/pollution-due-to-unregulated-use-of-music-systems-and-firecrackers-on-public-streets-during-festival-1624477
-
-[Source Link](https://t.me/verdictumlegalupdates/29822)
-
----
-
-### 2026-10-22T15:03:04+00:00
-Retention Of Stridhan Not A Continuing Offence After Divorce; Three-Year Limitation Applies: Himachal Pradesh High Court
-https://www.verdictum.in/himachal-high-court/tr-v-kl-and-another-2026hhc45122-hindu-marriage-stridhan-retention-offence-1624474
-
-[Source Link](https://t.me/verdictumlegalupdates/29821)
-
----
-
-### 2026-10-22T14:32:23+00:00
-Litigant Has No Right To Seek Copies Of Recordings Of Court Proceedings: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/a-sathyanarayana-swamy-v-the-high-court-of-karnataka-2026khc51810-copies-court-proceeding-recording-1624473
-
-[Source Link](https://t.me/verdictumlegalupdates/29820)
-
----
-
-### 2026-10-22T14:03:02+00:00
-Mere Participation In Demonstration Doesn’t Establish Common Intention: Delhi High Court Quashes FIR Against SCC Aspirant
-https://www.verdictum.in/delhi-high-court/khurshid-ahmed-v-state-of-nct-of-delhi-participation-demonstration-common-intention-fir-1624475
-
-[Source Link](https://t.me/verdictumlegalupdates/29819)
-
----
-
-### 2026-10-22T13:33:01+00:00
-Cases Involving Recovery Of Cough Syrup Containing Codeine Should Be Filed Under Drugs & Cosmetics Act & Not NDPS Act: Patna High Court
-https://www.verdictum.in/patna-high-court/bharat-kumar-v-the-state-of-bihar-recovery-cough-syrup-codeine-drugs-cosmetics-act-ndps-1624472
-
-[Source Link](https://t.me/verdictumlegalupdates/29818)
 
 ---
 
