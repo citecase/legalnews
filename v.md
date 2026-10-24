@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-24T11:12:55+00:00*
+*Last Updated: 2026-10-24T14:32:19+00:00*
+
+---
+
+### 2026-10-24T14:32:19+00:00
+Consultant (Legal) Vacancy At Warehousing Development and Regulatory Authority (WDRA)
+https://www.verdictum.in/job-updates/warehousing-development-and-regulatory-authority-1624599
+
+[Source Link](https://t.me/verdictumlegalupdates/29862)
+
+---
+
+### 2026-10-24T13:52:58+00:00
+Patient In Grave Emergency Can’t Be Forced To Verify Whether Hospital Is Empaneled: Kerala High Court Dismisses FCI's Appeal
+https://www.verdictum.in/kerala-high-court/food-corporation-of-india-v-govindan-p-2026ker73842-grave-emergency-hospital-empanelled-1624598
+
+[Source Link](https://t.me/verdictumlegalupdates/29861)
+
+---
+
+### 2026-10-24T13:12:58+00:00
+Limitation For Execution Of Arbitration Award Starts Running From Date It Becomes Enforceable: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/ashok-kumar-v-bhupendra-kumar-lunkad-2026mphc-ind29713-execution-runs-from-date-award-becomes-enforceable-1624597
+
+[Source Link](https://t.me/verdictumlegalupdates/29860)
+
+---
+
+### 2026-10-24T12:32:37+00:00
+Government Can Manufacture Patented Medicines And Sell Them Non-Commercially To Needy Patients: Kerala High Court
+https://www.verdictum.in/kerala-high-court/in-re-exorbitant-pricing-of-life-saving-patented-medicines-2026ker74251-1624596
+
+[Source Link](https://t.me/verdictumlegalupdates/29859)
+
+---
+
+### 2026-10-24T11:52:16+00:00
+“Conscious Of Plight Of Birds”: Madhya Pradesh High Court Directs Cutting Of Trees In Phased Manner For Indore Metro Project; Directs Planting Of 2500 Trees
+https://www.verdictum.in/madhya-pradesh-high-court/priyanshu-jain-v-union-of-india-2026mphc-ind28553-cutting-trees-phased-indore-metro-project-1624595
+
+[Source Link](https://t.me/verdictumlegalupdates/29858)
 
 ---
 
@@ -121,46 +161,6 @@ Abdication Of Duty To Interact With Child: Madras High Court Sets Aside Family C
 https://www.verdictum.in/madras-high-court/ab-v-cd-family-court-order-cant-abdicate-duty-interact-child-welfare-committees-report-1624542
 
 [Source Link](https://t.me/verdictumlegalupdates/29843)
-
----
-
-### 2026-10-23T14:02:44+00:00
-Recovery of Single Live Cartridge Without Corresponding Firearm Or Conscious Possession Cannot Sustain Prosecution U/S 25 Arms Act: Delhi High Court
-https://www.verdictum.in/delhi-high-court/lingamally-veera-gopal-rao-v-state-of-nct-of-delhi-2026dhc9329-recovery-of-single-live-cartridge-firearm-airport-harassment-1624539
-
-[Source Link](https://t.me/verdictumlegalupdates/29842)
-
----
-
-### 2026-10-23T13:32:23+00:00
-False Terror Threat Not Innocuous Even If No Intent To Execute It: Karnataka High Court Refuses To Quash Kempegowda Airport Bomb Threat Case
-https://www.verdictum.in/karnataka-high-court/abhay-shee-v-state-of-karnataka-and-another-2026khc47735-kempegowda-airport-bomb-threat-1624537
-
-[Source Link](https://t.me/verdictumlegalupdates/29841)
-
----
-
-### 2026-10-23T13:02:22+00:00
-Can't Re-Argue Entire Case In Review Petition: Delhi High Court Dismisses Plea Against Policy Providing Cash Instead Of Uniforms To EWS/DG Students
-https://www.verdictum.in/delhi-high-court/2026-dhc-9419-db-justice-for-all-v-govt-of-nct-of-delhi-1624536
-
-[Source Link](https://t.me/verdictumlegalupdates/29840)
-
----
-
-### 2026-10-23T12:33:01+00:00
-Victim’s Survival After Vehicle Was Allegedly Driven At Him Doesn’t Rule Out Mens Rea For Attempt To Murder: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/ramanjalu-v-state-of-karnataka-and-another-motor-accident-attempt-to-murder-1624535
-
-[Source Link](https://t.me/verdictumlegalupdates/29839)
-
----
-
-### 2026-10-23T12:03:00+00:00
-Mere Processing Of Matter Through Various Authorities No Cause For Delay Condonation; State Can’t Be Treated As Privileged Litigant: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/the-state-of-madhya-pradesh-v-rakesh-singh-jadon-2026mphc-gwl31633-delay-privileged-litigant-1624529
-
-[Source Link](https://t.me/verdictumlegalupdates/29838)
 
 ---
 
