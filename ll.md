@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-24T05:32:36+00:00*
+*Last Updated: 2026-10-24T06:32:47+00:00*
 
 ---
 
-### 2026-10-24T05:32:36+00:00
-Bombay High Court Seizes Phone After Advocate's Clerk Caught Recording Court Proceedings, Fines Both
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-junior-lawyer-instructs-clerk-video-record-court-proceedings-555804
-
-[Read on Telegram](https://t.me/livelawindia/123038)
-
----
-### 2026-10-24T05:35:36+00:00
-Allahabad High Court Declares Mandatory Injury Report Requirement Under UP Financial Assistance Scheme For POCSO Survivors 'Unconstitutional'
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-up-mahila-samman-kosh-injury-report-rule-unconstitutional-555805
-
-[Read on Telegram](https://t.me/livelawindia/123039)
-
----
-### 2026-10-24T05:39:36+00:00
-Legal Officer Vacancy At Indian Institute Of Foreign Trade
-https://www.livelaw.in/job-updates/legal-officer-vacancy-at-indian-institute-of-foreign-trade-555806
-
-[Read on Telegram](https://t.me/livelawindia/123040)
-
----
-### 2026-10-24T05:40:36+00:00
-Executive Director (Law), Joint Director (Law), And Deputy Director (Law) Vacancy At Delhi Electricity Regulatory Commission
-https://www.livelaw.in/job-updates/executive-director-law-joint-director-law-and-deputy-director-law-vacancy-at-delhi-electricity-regulatory-commission-555807
-
-[Read on Telegram](https://t.me/livelawindia/123041)
-
----
-### 2026-10-24T05:41:56+00:00
-Professor (Law) And Associate Professor (Law) Vacancy At National Law School Of India University (NLSIU)
-https://www.livelaw.in/job-updates/professor-law-and-associate-professor-law-vacancy-at-national-law-school-of-india-university-nlsiu-555808
-
-[Read on Telegram](https://t.me/livelawindia/123042)
-
----
-### 2026-10-24T05:45:56+00:00
-Legal Researcher Vacancy At Rajasthan High Court, Jodhpur
-https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-rajasthan-high-court-jodhpur-555809
-
-[Read on Telegram](https://t.me/livelawindia/123043)
-
----
-### 2026-10-24T06:02:46+00:00
-Meghalaya High Court Quashes POCSO Case Against Man Living With Survivor As Husband Since 2017
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-quashes-pocso-case-against-man-living-survivor-husband-wife-since-2017-555799
-
-[Read on Telegram](https://t.me/livelawindia/123044)
-
----
-### 2026-10-24T06:06:26+00:00
-Lakhimpur Kheri Case | Trial Judge Replaced After Supreme Court Seeks Allahabad High Court's Remedial Action On Victims' Concerns
-https://www.livelaw.in/news-updates/lakhimpur-kheri-case-trial-judge-replaced-supreme-court-allahabad-hc-555810
-
-[Read on Telegram](https://t.me/livelawindia/123045)
-
----
 ### 2026-10-24T06:32:47+00:00
 LiveLaw Karnataka High Court Weekly Round Up: October 12 - October 18, 2026
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-round-up-555800
@@ -142,5 +86,61 @@ Kerala High Court Expunges Adverse Remarks Against Young Advocate, Stresses Lawy
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-stresses-professional-duties-of-the-bar-555813
 
 [Read on Telegram](https://t.me/livelawindia/123057)
+
+---
+### 2026-10-24T11:32:38+00:00
+Karnataka High Court Quashes Immoral Trafficking Case Against Lodge Owners, Cites Absence Of Woman In Raiding Team
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-fir-lodge-immoral-trafficking-case-raiding-team-women-555822
+
+[Read on Telegram](https://t.me/livelawindia/123058)
+
+---
+### 2026-10-24T12:50:38+00:00
+Allahabad High Court Flags Use Of 'False' Victim DOB Certificates In POCSO Cases; UP Govt Proposes School Record Guidelines
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-false-victim-dob-certificates-pocso-school-guidelines-555838
+
+[Read on Telegram](https://t.me/livelawindia/123059)
+
+---
+### 2026-10-24T13:16:39+00:00
+Lack Of Infrastructure No Excuse For Failure To Preserve Police Station CCTV Footage As Directed By SC: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-police-station-cctv-footage-preservation-555841
+
+[Read on Telegram](https://t.me/livelawindia/123060)
+
+---
+### 2026-10-24T14:02:30+00:00
+Calcutta High Court Holds Customs Can Independently Sample Imported Food For Tariff Classification, Fraud Investigation
+https://www.livelaw.in/law-firms/litigation/calcutta-high-court-holds-custom-independently-sample-imported-food-tariff-classification-fraud-investigation-555845
+
+[Read on Telegram](https://t.me/livelawindia/123061)
+
+---
+### 2026-10-24T14:17:09+00:00
+NMIMS Kirit P. Mehta School Of Law, Mumbai, To Organise International Research Conference 2027
+https://www.livelaw.in/lawschool/seminars/nmims-kirit-p-mehta-school-law-mumbai-organise-international-research-conference-555847
+
+[Read on Telegram](https://t.me/livelawindia/123062)
+
+---
+### 2026-10-24T14:22:10+00:00
+Call For Papers: NLU Odisha Student Law Journal Invites Submissions For Volume IX
+https://www.livelaw.in/lawschool/call-for-papers/nlu-odisha-student-law-journal-invites-submissions-volume-ix-555848
+
+[Read on Telegram](https://t.me/livelawindia/123063)
+
+---
+### 2026-10-24T14:32:38+00:00
+Kaziranga's Shrinking Buffer: When Judicial Floor Becomes State's Ceiling
+https://www.livelaw.in/articles/kazirangas-shrinking-buffer-when-judicial-floor-becomes-state-ceiling-555722
+
+[Read on Telegram](https://t.me/livelawindia/123064)
+
+---
+### 2026-10-24T14:45:18+00:00
+Court Custody Till 4 PM, ₹5K Cost: Allahabad High Court Acts Against Woman IO Who Failed To Collect POCSO Accused's Phone
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-io-pocso-case-mobile-phone-555849
+
+[Read on Telegram](https://t.me/livelawindia/123065)
 
 ---
