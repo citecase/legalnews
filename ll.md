@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-23T09:02:27+00:00*
+*Last Updated: 2026-10-23T09:47:57+00:00*
 
 ---
 
-### 2026-10-23T09:02:27+00:00
-Removal Of Court Employee For Off-Duty Incident After Two Decades Of Service 'Shockingly Disproportionate': Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-removal-court-employee-single-off-duty-incident-555716
-
-[Read on Telegram](https://t.me/livelawindia/123007)
-
----
-### 2026-10-23T09:17:27+00:00
-Cruelty FIR Against Mother-In-Law Can't Be Sustained When Complainant's Earlier Marriage Still Subsisting: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-complainant-mother-in-law-cruelty-fir-555718
-
-[Read on Telegram](https://t.me/livelawindia/123008)
-
----
-### 2026-10-23T09:32:27+00:00
-US Sanctions And Threat To Independent International Justice – On ICC Sanctions
-https://www.livelaw.in/articles/us-sanctions-threat-independent-international-justice-icc-sanctions-555639
-
-[Read on Telegram](https://t.me/livelawindia/123009)
-
----
-### 2026-10-23T09:33:07+00:00
-Vehicle Driven At Person Can Be 'Instrument Of Death'; Victim's Survival Doesn't Efface Attempt To Murder Charge: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-quash-attempt-murder-charge-555723
-
-[Read on Telegram](https://t.me/livelawindia/123010)
-
----
 ### 2026-10-23T09:47:57+00:00
 Registration Act | Writ Court Can't Conduct Full-Fledged Trial To Decide Fraud Allegations Over Land Agreement: Allahabad High Court
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-registration-ac-serious-allegations-fraud-turn-writ-court-record-evidence-555738
@@ -142,5 +114,33 @@ No Right To Obtain Archived Court Hearing Recordings Without Court's Permission:
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-copies-court-proceedings-videos-specifically-ordered-555788
 
 [Read on Telegram](https://t.me/livelawindia/123026)
+
+---
+### 2026-10-24T02:32:55+00:00
+Medical Fitness Standards In Public Recruitment: Balancing Service Requirements And Fundamental Rights
+https://www.livelaw.in/articles/medical-fitness-standards-public-recruitment-balancing-service-requirements-fundamental-rights-555719
+
+[Read on Telegram](https://t.me/livelawindia/123027)
+
+---
+### 2026-10-24T03:03:05+00:00
+Loan Foreclosure | Delhi Consumer Commission Dismisses Widow's Insurance Claim, Says Coverage Does Not Continue Automatically
+https://www.livelaw.in/consumer-cases/loan-foreclosure-delhi-consumer-commission-dismisses-widows-insurance-claim-says-coverage-does-not-continue-automatically-555793
+
+[Read on Telegram](https://t.me/livelawindia/123028)
+
+---
+### 2026-10-24T03:32:55+00:00
+Gujarat High Court Upholds Acquittal Of Two Accused Of Setting Electric Fence That Killed 11-Year-Old
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-culpable-homicide-death-electric-fence-ownership-field-555781
+
+[Read on Telegram](https://t.me/livelawindia/123029)
+
+---
+### 2026-10-24T03:44:15+00:00
+Culpable Homicide vs Murder | Sections 100 & 101 BNS Explained with Examples
+https://www.livelaw.in/videos/culpable-homicide-murder-bns-bharatiya-nyaya-sanhita-section-100-bns-section-101-bns-criminal-law-judiciary-preparation-555795
+
+[Read on Telegram](https://t.me/livelawindia/123030)
 
 ---
