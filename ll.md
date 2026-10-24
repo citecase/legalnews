@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-23T09:47:57+00:00*
+*Last Updated: 2026-10-24T05:32:36+00:00*
 
 ---
 
-### 2026-10-23T09:47:57+00:00
-Registration Act | Writ Court Can't Conduct Full-Fledged Trial To Decide Fraud Allegations Over Land Agreement: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-registration-ac-serious-allegations-fraud-turn-writ-court-record-evidence-555738
+### 2026-10-24T05:32:36+00:00
+Bombay High Court Seizes Phone After Advocate's Clerk Caught Recording Court Proceedings, Fines Both
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-junior-lawyer-instructs-clerk-video-record-court-proceedings-555804
 
-[Read on Telegram](https://t.me/livelawindia/123011)
-
----
-### 2026-10-23T09:55:17+00:00
-Mere Suit Seeking Recovery Of Possession Not Sufficient When Plaintiff's Title Is Disputed : Supreme Court
-https://www.livelaw.in/supreme-court/mere-suit-seeking-recovery-of-possession-not-sufficient-when-plaintiffs-title-is-disputed-supreme-court-555742
-
-[Read on Telegram](https://t.me/livelawindia/123012)
+[Read on Telegram](https://t.me/livelawindia/123038)
 
 ---
-### 2026-10-23T09:56:17+00:00
-2026 LiveLaw (SC) 1081 | SMT. RANO SINGH AND OTHERS VERSUS SH. GURBAX SINGH (D) TH LRS AND OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1081-smt-rano-singh-and-others-versus-sh-gurbax-singh-d-th-lrs-and-others-555743
+### 2026-10-24T05:35:36+00:00
+Allahabad High Court Declares Mandatory Injury Report Requirement Under UP Financial Assistance Scheme For POCSO Survivors 'Unconstitutional'
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-up-mahila-samman-kosh-injury-report-rule-unconstitutional-555805
 
-[Read on Telegram](https://t.me/livelawindia/123013)
-
----
-### 2026-10-23T10:02:37+00:00
-Bomb Threats Can't Be Taken Lightly Merely Because Sender Never Intended To Execute Them: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-quash-case-sending-bomb-threat-email-bengaluru-police-claiming-555739
-
-[Read on Telegram](https://t.me/livelawindia/123014)
+[Read on Telegram](https://t.me/livelawindia/123039)
 
 ---
-### 2026-10-23T11:18:37+00:00
-Delhi High Court's Judgment On Neha Bora's Plea Against Peace Bond Notice : Live Updates
-https://www.livelaw.in/top-stories/neha-bora-plea-against-peace-bond-notice-live-updates-from-delhi-high-court-555757
+### 2026-10-24T05:39:36+00:00
+Legal Officer Vacancy At Indian Institute Of Foreign Trade
+https://www.livelaw.in/job-updates/legal-officer-vacancy-at-indian-institute-of-foreign-trade-555806
 
-[Read on Telegram](https://t.me/livelawindia/123015)
-
----
-### 2026-10-23T12:29:47+00:00
-E-Waste Delivered Instead Of Laptop: Bhopal Consumer Commission Directs Amazon To Refund ₹1.29 Lakh With Interest
-https://www.livelaw.in/consumer-cases/e-waste-delivered-instead-of-laptop-bhopal-consumer-commission-directs-amazon-to-refund-129-lakh-with-interest-555769
-
-[Read on Telegram](https://t.me/livelawindia/123016)
+[Read on Telegram](https://t.me/livelawindia/123040)
 
 ---
-### 2026-10-23T12:40:07+00:00
-Kerala High Court Refuses To Stay Reconstitution Of State Waqf Board, Says New Members Have Already Assumed Office
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-waqf-board-reconstitution-appeal-555771
+### 2026-10-24T05:40:36+00:00
+Executive Director (Law), Joint Director (Law), And Deputy Director (Law) Vacancy At Delhi Electricity Regulatory Commission
+https://www.livelaw.in/job-updates/executive-director-law-joint-director-law-and-deputy-director-law-vacancy-at-delhi-electricity-regulatory-commission-555807
 
-[Read on Telegram](https://t.me/livelawindia/123017)
-
----
-### 2026-10-23T12:52:38+00:00
-Custody Plea Under Guardians & Wards Act Must Be Heard By Court Where Child Resides: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-guardians-wards-act-custody-child-resides-family-court-555772
-
-[Read on Telegram](https://t.me/livelawindia/123018)
+[Read on Telegram](https://t.me/livelawindia/123041)
 
 ---
-### 2026-10-23T12:57:58+00:00
-Kerala High Court Strikes Down Guideline Restricting Production Of Arrested Persons Before Magistrates After 5 PM
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-5-pm-cut-off-producing-arrested-persons-magistrates-prior-intimation-555776
+### 2026-10-24T05:41:56+00:00
+Professor (Law) And Associate Professor (Law) Vacancy At National Law School Of India University (NLSIU)
+https://www.livelaw.in/job-updates/professor-law-and-associate-professor-law-vacancy-at-national-law-school-of-india-university-nlsiu-555808
 
-[Read on Telegram](https://t.me/livelawindia/123019)
-
----
-### 2026-10-23T13:05:18+00:00
-Driver Can't Escape Negligence By Citing Sudden Appearance Of Stray Animal, Must Anticipate Road Hazards: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/driver-cant-escape-negligence-by-citing-sudden-appearance-of-stray-animal-must-anticipate-road-hazards-delhi-high-court-555778
-
-[Read on Telegram](https://t.me/livelawindia/123020)
+[Read on Telegram](https://t.me/livelawindia/123042)
 
 ---
-### 2026-10-23T13:12:58+00:00
-Surat Municipal Corporation's U-Turn On Rehabilitation Assurance To Demolition Victims Prima Facie Contemptuous: Gujarat High Court
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-surat-municipal-corporation-contempt-demolition-555779
+### 2026-10-24T05:45:56+00:00
+Legal Researcher Vacancy At Rajasthan High Court, Jodhpur
+https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-rajasthan-high-court-jodhpur-555809
 
-[Read on Telegram](https://t.me/livelawindia/123021)
-
----
-### 2026-10-23T13:30:38+00:00
-Fiscal Federalism On Trial: Article 131 And Constitutional Economics Of State Borrowing
-https://www.livelaw.in/articles/fiscal-federalism-trial-article131-constitutional-economics-state-borrowing-555640
-
-[Read on Telegram](https://t.me/livelawindia/123022)
+[Read on Telegram](https://t.me/livelawindia/123043)
 
 ---
-### 2026-10-23T13:32:18+00:00
-[Advertisement] NLU Delhi And Mentblue Launch Certificate Course On Civil Litigation Drafting And Practice Under The Litigation Series
-https://www.livelaw.in/lawschool/diploma-certificate-courses/nlu-delhi-mentblue-launch-certificate-course-civil-litigation-drafting-practice-under-litigation-series-555755
+### 2026-10-24T06:02:46+00:00
+Meghalaya High Court Quashes POCSO Case Against Man Living With Survivor As Husband Since 2017
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-quashes-pocso-case-against-man-living-survivor-husband-wife-since-2017-555799
 
-[Read on Telegram](https://t.me/livelawindia/123023)
-
----
-### 2026-10-23T13:40:48+00:00
-BREAKING | Delhi High Court Rejects Neha Bora's Plea Against Peace Bond Notice Amid Anti-CEC Protests
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-neha-boras-plea-against-peace-bond-notice-amid-anti-cec-protests-555786
-
-[Read on Telegram](https://t.me/livelawindia/123024)
+[Read on Telegram](https://t.me/livelawindia/123044)
 
 ---
-### 2026-10-23T13:57:28+00:00
-Rajasthan High Court Admits Appeal Against SC/ST Ward Reservation Over Allegedly Fake Population Data, But Refuses To Stay Election Process
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-refuses-interfere-sc-st-ward-reservation-allegedly-fake-population-records-555787
+### 2026-10-24T06:06:26+00:00
+Lakhimpur Kheri Case | Trial Judge Replaced After Supreme Court Seeks Allahabad High Court's Remedial Action On Victims' Concerns
+https://www.livelaw.in/news-updates/lakhimpur-kheri-case-trial-judge-replaced-supreme-court-allahabad-hc-555810
 
-[Read on Telegram](https://t.me/livelawindia/123025)
-
----
-### 2026-10-23T14:13:08+00:00
-No Right To Obtain Archived Court Hearing Recordings Without Court's Permission: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-copies-court-proceedings-videos-specifically-ordered-555788
-
-[Read on Telegram](https://t.me/livelawindia/123026)
+[Read on Telegram](https://t.me/livelawindia/123045)
 
 ---
-### 2026-10-24T02:32:55+00:00
-Medical Fitness Standards In Public Recruitment: Balancing Service Requirements And Fundamental Rights
-https://www.livelaw.in/articles/medical-fitness-standards-public-recruitment-balancing-service-requirements-fundamental-rights-555719
+### 2026-10-24T06:32:47+00:00
+LiveLaw Karnataka High Court Weekly Round Up: October 12 - October 18, 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-round-up-555800
 
-[Read on Telegram](https://t.me/livelawindia/123027)
-
----
-### 2026-10-24T03:03:05+00:00
-Loan Foreclosure | Delhi Consumer Commission Dismisses Widow's Insurance Claim, Says Coverage Does Not Continue Automatically
-https://www.livelaw.in/consumer-cases/loan-foreclosure-delhi-consumer-commission-dismisses-widows-insurance-claim-says-coverage-does-not-continue-automatically-555793
-
-[Read on Telegram](https://t.me/livelawindia/123028)
+[Read on Telegram](https://t.me/livelawindia/123046)
 
 ---
-### 2026-10-24T03:32:55+00:00
-Gujarat High Court Upholds Acquittal Of Two Accused Of Setting Electric Fence That Killed 11-Year-Old
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-culpable-homicide-death-electric-fence-ownership-field-555781
+### 2026-10-24T07:02:37+00:00
+'Self-Negligence': Gujarat High Court Rejects Compensation Claim By Heirs Of Auto-Rickshaw Driver Killed At Unmanned Railway Crossing
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-auto-driver-railway-crossing-accident-compensation-555801
 
-[Read on Telegram](https://t.me/livelawindia/123029)
+[Read on Telegram](https://t.me/livelawindia/123047)
 
 ---
-### 2026-10-24T03:44:15+00:00
-Culpable Homicide vs Murder | Sections 100 & 101 BNS Explained with Examples
-https://www.livelaw.in/videos/culpable-homicide-murder-bns-bharatiya-nyaya-sanhita-section-100-bns-section-101-bns-criminal-law-judiciary-preparation-555795
+### 2026-10-24T07:28:27+00:00
+Undertrial Prisoner Produced Before Mumbai Court Escapes From Police Custody, FIR Lodged
+https://www.livelaw.in/news-updates/accused-escapes-police-custody-produced-mumbai-court-555815
 
-[Read on Telegram](https://t.me/livelawindia/123030)
+[Read on Telegram](https://t.me/livelawindia/123048)
+
+---
+### 2026-10-24T07:32:27+00:00
+High Court Slams Tripura University For Exploiting Contractual Lecturer For Years, Orders Regularisation
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-orders-regularisation-long-term-contractual-service-cant-disregarded-merely-nature-appointment-555803
+
+[Read on Telegram](https://t.me/livelawindia/123049)
+
+---
+### 2026-10-24T08:02:47+00:00
+Minor's Marriage Alone Cannot Establish Human Trafficking Without Proof Of Monetary Consideration: Rajasthan High Court Suspends Sentence
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-minor-marriage-establish-human-trafficking-without-proof-monetary-consideration-555784
+
+[Read on Telegram](https://t.me/livelawindia/123050)
+
+---
+### 2026-10-24T08:22:17+00:00
+Postal Receipt Alone Cannot Establish Service Of Court Summons: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/postal-receipt-alone-cannot-establish-service-of-court-summons-jk-high-court-sets-aside-order-rejecting-governments-plea-to-reopen-ex-parte-decree-555791
+
+[Read on Telegram](https://t.me/livelawindia/123051)
+
+---
+### 2026-10-24T09:02:27+00:00
+'Abuse Of Process': Karnataka High Court Quashes Criminal Case Over Business Dispute Pending Before Arbitrator
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-fir-shalimar-agarbatti-firm-partners-555783
+
+[Read on Telegram](https://t.me/livelawindia/123052)
+
+---
+### 2026-10-24T09:32:27+00:00
+Mediation Process Can't Be Used As Ruse To Secure Adjournments: Karnataka High Court Dismisses Husband's Plea To Quash Cruelty Case
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-quash-dowry-harassment-case-petitioner-absence-555811
+
+[Read on Telegram](https://t.me/livelawindia/123053)
+
+---
+### 2026-10-24T09:32:47+00:00
+Why India Still Has No One To Call When Death Looks Like Ritual
+https://www.livelaw.in/articles/india-still-has-no-one-call-when-death-looks-like-ritual-555721
+
+[Read on Telegram](https://t.me/livelawindia/123054)
+
+---
+### 2026-10-24T10:02:17+00:00
+Kerala High Court Seeks State's Response To Ex-DGP Tomin Thachankary's Plea To Go Abroad For Rejoining Work
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-tomin-thachankary-abroad-555830
+
+[Read on Telegram](https://t.me/livelawindia/123055)
+
+---
+### 2026-10-24T10:03:17+00:00
+Allottee Must Be Compensated For Investment If Advertisement Is Withdrawn Due To Authority's Own Fault: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-allottee-compensated-investment-advertisement-withdrawn-555812
+
+[Read on Telegram](https://t.me/livelawindia/123056)
+
+---
+### 2026-10-24T10:32:47+00:00
+Kerala High Court Expunges Adverse Remarks Against Young Advocate, Stresses Lawyers' Role In Preserving Integrity Of Justice Delivery System
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-stresses-professional-duties-of-the-bar-555813
+
+[Read on Telegram](https://t.me/livelawindia/123057)
 
 ---
