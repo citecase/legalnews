@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-24T04:32:56+00:00*
+*Last Updated: 2026-10-24T11:12:55+00:00*
+
+---
+
+### 2026-10-24T11:12:55+00:00
+Absence Of Injury Report Doesn’t Diminish Need For Rehabilitative Support: Allahabad High Court Directs Release Of ₹3 Lakh To POCSO Victim
+https://www.verdictum.in/allahabad-high-court/victim-x-v-state-of-up-2026ahc220399-db-absence-injury-report-support-pocso-victim-1624594
+
+[Source Link](https://t.me/verdictumlegalupdates/29857)
+
+---
+
+### 2026-10-24T10:32:34+00:00
+An Order Does Not Become Non-Speaking Merely Because It Does Not Reproduce Every Contention Verbatim: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/rajendra-kumar-and-another-v-state-of-uttar-pradesh-and-others-2026ahc-lko75352-1624593
+
+[Source Link](https://t.me/verdictumlegalupdates/29856)
+
+---
+
+### 2026-10-24T09:52:13+00:00
+Executive Protocol Cannot Dilute Constitutional Safeguards: Kerala High Court Strikes Down Guidelines Treating Production Of Accused Before Magistrate After 5 PM As “Exceptional”
+https://www.verdictum.in/kerala-high-court/adv-ps-subeesh-v-state-of-kerala-2026ker80664-production-of-accused-after-5-pm-as-exceptional-1624592
+
+[Source Link](https://t.me/verdictumlegalupdates/29855)
+
+---
+
+### 2026-10-24T09:12:52+00:00
+Child-Custody Case Cannot Be Transferred To Family Court Without Jurisdiction Over Children’s Place Of Residence: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/xx-v-yy-child-custody-case-family-court-jurisdiction-childs-residence-1624590
+
+[Source Link](https://t.me/verdictumlegalupdates/29854)
+
+---
+
+### 2026-10-24T08:33:11+00:00
+Mechanical Registration Of Crimes Over Social Media Posts Must Be Prevented: Karnataka High Court Issues Guidelines To Police
+https://www.verdictum.in/karnataka-high-court/sandeep-kumar-v-state-of-karnataka-criminal-petition-no-13010-of-2026-section-3532-bns-fir-social-media-repost-religious-community-1624588
+
+[Source Link](https://t.me/verdictumlegalupdates/29853)
+
+---
+
+### 2026-10-24T07:52:50+00:00
+Delhi Court Remands Content Creator Amir Shokeen To Police Custody For Racial Abuse Against Youth From Tripura
+https://www.verdictum.in/other-courts/content-creator-amir-shokeen-police-custody-racial-abuse-youth-tripura-remand-1624585
+
+[Source Link](https://t.me/verdictumlegalupdates/29852)
+
+---
+
+### 2026-10-24T07:12:30+00:00
+Parties Entered Into Agreement To Live Together & Mutually Cancelled It By Another Deed: Gujarat High Court Upholds Acquittal In Rape By False Promise To Marry Case
+https://www.verdictum.in/gujarat-high-court/xyz-victim-v-state-of-gujarat-rcra22732026-parties-agreement-acquittal-false-promise-to-marry-1624581
+
+[Source Link](https://t.me/verdictumlegalupdates/29851)
+
+---
+
+### 2026-10-24T06:32:49+00:00
+There Was Sufficient Material Before Magistrate For Notice U/S 126 BNSS: Delhi High Court Dismisses AISA President Neha Bora’s Plea
+https://www.verdictum.in/delhi-high-court/neha-v-the-state-nct-of-delhi-2026dhc9436-aisa-president-neha-boras-plea-1624575
+
+[Source Link](https://t.me/verdictumlegalupdates/29850)
+
+---
+
+### 2026-10-24T05:53:08+00:00
+Can Industrial Courts Grant Blanket Permanency Of Service ? Bombay High Court Answers
+https://www.verdictum.in/bombay-high-court/university-of-mumbai-v-sunil-tanga-pagare-2026bhc-os22827-10-years-service-permanency-is-no-bar-affirmative-action-umadevi-1624574
+
+[Source Link](https://t.me/verdictumlegalupdates/29849)
+
+---
+
+### 2026-10-24T05:12:27+00:00
+Fault Of Department While Floating Tender Cannot Make Award Violative Of Public Policy: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/2026-mphc-jbp-78446-laxman-sharma-v-union-of-india-1624566
+
+[Source Link](https://t.me/verdictumlegalupdates/29848)
 
 ---
 
@@ -81,86 +161,6 @@ Mere Processing Of Matter Through Various Authorities No Cause For Delay Condona
 https://www.verdictum.in/madhya-pradesh-high-court/the-state-of-madhya-pradesh-v-rakesh-singh-jadon-2026mphc-gwl31633-delay-privileged-litigant-1624529
 
 [Source Link](https://t.me/verdictumlegalupdates/29838)
-
----
-
-### 2026-10-23T11:32:19+00:00
-Delhi High Court Says Hygienic Public Toilets Part Of Right To Life, Proposes Their Surprise Inspection In MCD Limits
-https://www.verdictum.in/delhi-high-court/hygienic-public-toilets-part-of-right-to-life-delhi-high-court-1624528
-
-[Source Link](https://t.me/verdictumlegalupdates/29837)
-
----
-
-### 2026-10-23T10:52:18+00:00
-Area Limits To Determine “Neighbourhood School” Under RTE Act Are A Means To Secure Right To Education, Not An End In Itself: Bombay High Court
-https://www.verdictum.in/bombay-high-court/karuna-sumit-kamble-v-the-deputy-director-of-education-mumbai-region-2026bhc-as42896-neighbourhood-school-rte-act-weaker-section-25-quota-1624525
-
-[Source Link](https://t.me/verdictumlegalupdates/29836)
-
----
-
-### 2026-10-23T10:12:17+00:00
-Major Woman Entitled To Take Decisions About Her; Parents Or Police Can’t Force Her To Return Home: Kerala High Court
-https://www.verdictum.in/kerala-high-court/a-v-state-of-kerala-2026ker74216-major-woman-decisions-parents-police-return-home-1624524
-
-[Source Link](https://t.me/verdictumlegalupdates/29835)
-
----
-
-### 2026-10-23T09:32:56+00:00
-Karnataka High Court Directs Police To Examine Unauthorised SIM Card Activations; Seeks Review Of Verification Safeguards
-https://www.verdictum.in/karnataka-high-court/mallikarjuna-v-state-of-karnataka-2026khc54091-unauthorised-sim-cards-1624522
-
-[Source Link](https://t.me/verdictumlegalupdates/29834)
-
----
-
-### 2026-10-23T09:02:36+00:00
-Police "Con-Wrote" Story In Connivance With Developer: Bombay High Court Directs ₹5L Compensation For Illegal Arrest In Extortion Case
-https://www.verdictum.in/bombay-high-court/2026-bhc-as-43037-db-bipin-satish-chandra-agrwal-v-state-of-maharashtra-1624521
-
-[Source Link](https://t.me/verdictumlegalupdates/29833)
-
----
-
-### 2026-10-23T08:32:55+00:00
-Absence Of Specific Maintenance Condition In Deed Does Not Bar Action U/S 23 Senior Citizens Act: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/drakshayini-girija-v-assistant-commissioner-and-sub-divisional-magistrate-2026khc58865-senior-citizen-daughter-father-1624518
-
-[Source Link](https://t.me/verdictumlegalupdates/29832)
-
----
-
-### 2026-10-23T08:02:39+00:00
-Gauhati High Court Directs Juvenile Justice Boards To Inspect Adult Jails For Minor Inmates, Calls For Visits Every Three Months
-https://www.verdictum.in/guwahati-high-court/smt-nandinee-das-v-state-of-assam-and-38-others-juvenile-justice-boards-1624513
-
-[Source Link](https://t.me/verdictumlegalupdates/29831)
-
----
-
-### 2026-10-23T07:32:32+00:00
-Muslim Mother Not Legal Guardian Of Minor’s Property By Right, But Court May Appoint Her For Child’s Welfare: Orissa High Court
-https://www.verdictum.in/orissa-high-court/shamina-naaz-and-another-versus-rimsha-taashfeen-and-another-2026ohc189-1624508
-
-[Source Link](https://t.me/verdictumlegalupdates/29830)
-
----
-
-### 2026-10-23T07:02:57+00:00
-Police Must Not Behave Like Procrustes: Madras High Court Directs Police To Process RSS Route March Applications
-https://www.verdictum.in/madras-high-court/vg-jagadeesan-v-the-state-of-tamil-nadu-wp-crl-no-2790-of-2026-1624504
-
-[Source Link](https://t.me/verdictumlegalupdates/29829)
-
----
-
-### 2026-10-23T06:33:08+00:00
-Karnataka High Court Directs Police To Build Integrated Database Of Criminal Case Status Before Opening Or Continuing Rowdy Sheets
-https://www.verdictum.in/karnataka-high-court/2026-khc-39049-anthony-david-j-kutti-v-the-state-of-karnataka-1624501
-
-[Source Link](https://t.me/verdictumlegalupdates/29828)
 
 ---
 
