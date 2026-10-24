@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-23T16:02:28+00:00*
+*Last Updated: 2026-10-24T04:32:56+00:00*
+
+---
+
+### 2026-10-24T04:32:56+00:00
+Assessing Officer Didn't Understand Basics Of Accounting: Delhi High Court Quashes Income Tax Demand Of ₹3.9 Crore On Cook
+https://www.verdictum.in/delhi-high-court/lalit-v-union-of-india-2026dhc9012-db-assessing-officer-assessee-tax-demand-1624548
+
+[Source Link](https://t.me/verdictumlegalupdates/29847)
 
 ---
 
@@ -153,14 +161,6 @@ Karnataka High Court Directs Police To Build Integrated Database Of Criminal Cas
 https://www.verdictum.in/karnataka-high-court/2026-khc-39049-anthony-david-j-kutti-v-the-state-of-karnataka-1624501
 
 [Source Link](https://t.me/verdictumlegalupdates/29828)
-
----
-
-### 2026-10-23T06:02:27+00:00
-Criminal Process Cannot Be Converted Into A Retaliatory Weapon: Karnataka High Court Quashes FIRs Against Doctor Who Reported Illegal Immigrants
-https://www.verdictum.in/karnataka-high-court/nagendrappa-t-v-state-of-karnataka-wp-no-24641-of-2026-doctor-who-reported-illegal-immigrants-1624498
-
-[Source Link](https://t.me/verdictumlegalupdates/29827)
 
 ---
 
