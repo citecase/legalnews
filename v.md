@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-25T10:32:16+00:00*
+*Last Updated: 2026-10-25T14:32:38+00:00*
+
+---
+
+### 2026-10-25T14:32:38+00:00
+Empanelment Of Advocates At District Legal Services Authority, Gaya
+https://www.verdictum.in/job-updates/district-legal-services-authority-1624601
+
+[Source Link](https://t.me/verdictumlegalupdates/29868)
+
+---
+
+### 2026-10-25T12:32:17+00:00
+Land “Required” For Public Purpose Under Development Control Regulations, Forming Part Of Development Plan, Can Be Acquired U/S 126 MRTP Act: Bombay High Court
+https://www.verdictum.in/bombay-high-court/moiz-dawoodbhai-palitanawala-v-the-municipal-corporation-of-greater-mumbai-2026bhc-os23000-db-126-mrtp-act-required-designated-1624613
+
+[Source Link](https://t.me/verdictumlegalupdates/29867)
 
 ---
 
@@ -145,22 +161,6 @@ Can Industrial Courts Grant Blanket Permanency Of Service ? Bombay High Court An
 https://www.verdictum.in/bombay-high-court/university-of-mumbai-v-sunil-tanga-pagare-2026bhc-os22827-10-years-service-permanency-is-no-bar-affirmative-action-umadevi-1624574
 
 [Source Link](https://t.me/verdictumlegalupdates/29849)
-
----
-
-### 2026-10-24T05:12:27+00:00
-Fault Of Department While Floating Tender Cannot Make Award Violative Of Public Policy: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/2026-mphc-jbp-78446-laxman-sharma-v-union-of-india-1624566
-
-[Source Link](https://t.me/verdictumlegalupdates/29848)
-
----
-
-### 2026-10-24T04:32:56+00:00
-Assessing Officer Didn't Understand Basics Of Accounting: Delhi High Court Quashes Income Tax Demand Of ₹3.9 Crore On Cook
-https://www.verdictum.in/delhi-high-court/lalit-v-union-of-india-2026dhc9012-db-assessing-officer-assessee-tax-demand-1624548
-
-[Source Link](https://t.me/verdictumlegalupdates/29847)
 
 ---
 
