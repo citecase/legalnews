@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-25T04:32:53+00:00*
+*Last Updated: 2026-10-25T10:32:16+00:00*
+
+---
+
+### 2026-10-25T10:32:16+00:00
+Section 498A IPC Not Attracted Against Mother-In-Law When Daughter-In-Law Contracted Marriage During Subsistence Of First Marriage: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/a-v-state-of-gujarat-sec498a-ipc-mother-in-law-subsistence-first-marriage-1624612
+
+[Source Link](https://t.me/verdictumlegalupdates/29866)
+
+---
+
+### 2026-10-25T08:33:15+00:00
+Breach Of Law In All Cases Doesn’t Lead To Public Disorder: Jammu & Kashmir and Ladakh High Court Quashes Detention Order Against Accused In Cattle Theft Cases
+https://www.verdictum.in/jammu-ladakh-high-court/tariq-ahmad-dar-v-union-territory-of-j-and-public-disorder-detention-order-cattle-theft-1624611
+
+[Source Link](https://t.me/verdictumlegalupdates/29865)
+
+---
+
+### 2026-10-25T06:32:34+00:00
+Bench Should Not Escalate Heated Exchanges With Bar Into Contempt Proceedings Or Costs Against Advocates: J&K And Ladakh High Court
+https://www.verdictum.in/jammu-ladakh-high-court/jahangir-iqbal-ganai-v-mohd-amin-dar-and-others-senior-advocate-contempt-1624604
+
+[Source Link](https://t.me/verdictumlegalupdates/29864)
 
 ---
 
@@ -137,30 +161,6 @@ Assessing Officer Didn't Understand Basics Of Accounting: Delhi High Court Quash
 https://www.verdictum.in/delhi-high-court/lalit-v-union-of-india-2026dhc9012-db-assessing-officer-assessee-tax-demand-1624548
 
 [Source Link](https://t.me/verdictumlegalupdates/29847)
-
----
-
-### 2026-10-23T16:02:28+00:00
-Tata Memorial Centre (TMC) Invites Applications For Post Of Assistant Administrative Officer (Legal)
-https://www.verdictum.in/job-updates/tata-memorial-centre-1624540
-
-[Source Link](https://t.me/verdictumlegalupdates/29846)
-
----
-
-### 2026-10-23T15:32:47+00:00
-An Advocate’s Duty Of Loyalty And Client Confidentiality Survives Termination Of His Employment: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/dr-krishna-kumar-tripathi-v-state-of-madhya-pradesh-and-others-2026mphc-jbp75279-1624546
-
-[Source Link](https://t.me/verdictumlegalupdates/29845)
-
----
-
-### 2026-10-23T15:02:26+00:00
-Fraud Must Be Dealt With To Punish Wrongdoer & Deter Others: Allahabad High Court Imposes Costs On Petitioner For Filing Forged Documents
-https://www.verdictum.in/allahabad-high-court/2026-ahc-lko-71652-db-gareeba-v-state-of-up-1624544
-
-[Source Link](https://t.me/verdictumlegalupdates/29844)
 
 ---
 
