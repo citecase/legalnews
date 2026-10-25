@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-24T13:16:39+00:00*
+*Last Updated: 2026-10-25T04:33:05+00:00*
 
 ---
 
-### 2026-10-24T13:16:39+00:00
-Lack Of Infrastructure No Excuse For Failure To Preserve Police Station CCTV Footage As Directed By SC: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-police-station-cctv-footage-preservation-555841
-
-[Read on Telegram](https://t.me/livelawindia/123060)
-
----
-### 2026-10-24T14:02:30+00:00
-Calcutta High Court Holds Customs Can Independently Sample Imported Food For Tariff Classification, Fraud Investigation
-https://www.livelaw.in/law-firms/litigation/calcutta-high-court-holds-custom-independently-sample-imported-food-tariff-classification-fraud-investigation-555845
-
-[Read on Telegram](https://t.me/livelawindia/123061)
-
----
-### 2026-10-24T14:17:09+00:00
-NMIMS Kirit P. Mehta School Of Law, Mumbai, To Organise International Research Conference 2027
-https://www.livelaw.in/lawschool/seminars/nmims-kirit-p-mehta-school-law-mumbai-organise-international-research-conference-555847
-
-[Read on Telegram](https://t.me/livelawindia/123062)
-
----
-### 2026-10-24T14:22:10+00:00
-Call For Papers: NLU Odisha Student Law Journal Invites Submissions For Volume IX
-https://www.livelaw.in/lawschool/call-for-papers/nlu-odisha-student-law-journal-invites-submissions-volume-ix-555848
-
-[Read on Telegram](https://t.me/livelawindia/123063)
-
----
-### 2026-10-24T14:32:38+00:00
-Kaziranga's Shrinking Buffer: When Judicial Floor Becomes State's Ceiling
-https://www.livelaw.in/articles/kazirangas-shrinking-buffer-when-judicial-floor-becomes-state-ceiling-555722
-
-[Read on Telegram](https://t.me/livelawindia/123064)
-
----
-### 2026-10-24T14:45:18+00:00
-Court Custody Till 4 PM, ₹5K Cost: Allahabad High Court Acts Against Woman IO Who Failed To Collect POCSO Accused's Phone
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-io-pocso-case-mobile-phone-555849
-
-[Read on Telegram](https://t.me/livelawindia/123065)
-
----
-### 2026-10-25T02:32:55+00:00
-₹80,889 For Boycott: Trade Associations And India's Deterrence Gap
-https://www.livelaw.in/articles/trade-associations-india-deterrence-gap-555724
-
-[Read on Telegram](https://t.me/livelawindia/123066)
-
----
-### 2026-10-25T02:56:25+00:00
-Customer Receives Lifebuoy Soap Instead Of Realme Mobile Phone; Delhi Consumer Commission Holds Flipkart Liable
-https://www.livelaw.in/consumer-cases/customer-receives-lifebuoy-soap-instead-of-realme-mobile-phone-delhi-consumer-commission-holds-flipkart-liable-555850
-
-[Read on Telegram](https://t.me/livelawindia/123067)
-
----
-### 2026-10-25T03:50:15+00:00
-CJI Chandrachud Used To Seek Government's Pre-Approval Before Collegium Discussed Names For Judicial Appointments : Justice Kaul
-https://www.livelaw.in/top-stories/cji-chandrachud-used-to-seek-governments-pre-approval-before-collegium-discussed-names-for-judicial-appointments-justice-kaul-555851
-
-[Read on Telegram](https://t.me/livelawindia/123068)
-
----
 ### 2026-10-25T04:33:05+00:00
 LiveLaw Karnataka High Court Quarterly Digest: July- September, 2026
 https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quarterly-digest-july-september-554718
@@ -142,5 +79,68 @@ CJI Chandrachud Asked Me To Take 'Middle Path' In PMLA Case; Was Under Pressure 
 https://www.livelaw.in/top-stories/j-kaul-555859
 
 [Read on Telegram](https://t.me/livelawindia/123079)
+
+---
+### 2026-10-25T11:26:11+00:00
+J&K&L High Court Grants Bail To Man Accused Of Wife's Murder After 11 Years In Jail, Says Speedy Trial Is A Fundamental Right
+https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-grants-bail-to-man-accused-of-wifes-murder-after-11-years-in-jail-says-speedy-trial-is-a-fundamental-right-555860
+
+[Read on Telegram](https://t.me/livelawindia/123080)
+
+---
+### 2026-10-25T11:58:01+00:00
+Patna High Court Acquits Two Men In NDPS Case, Cites Unexplained Year-Long Delay In Sending 'Charas' Sample For Testing
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-acquits-charas-sample-remains-unaccounted-555864
+
+[Read on Telegram](https://t.me/livelawindia/123081)
+
+---
+### 2026-10-25T12:03:01+00:00
+Mere Expectation Of Large Crowd At Garba Event On Ramlila Maidan Cannot Be Termed Law & Order Situation: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/mere-expectation-large-crowd-cannot-law-and-order-situation-555866
+
+[Read on Telegram](https://t.me/livelawindia/123082)
+
+---
+### 2026-10-25T12:21:01+00:00
+Major Unmarried Daughter Can Claim Maintenance Under Section 125 CrPC Despite Alternative Remedy Under HAMA: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/alternate-remedy-hama-no-bar-maintenance-under-crpc-555867
+
+[Read on Telegram](https://t.me/livelawindia/123083)
+
+---
+### 2026-10-25T12:38:51+00:00
+Can't Penalise Flat Buyers Who Relied On Official Documents : Supreme Court Directs Alternative Site Before Demolition
+https://www.livelaw.in/supreme-court/cant-penalise-flat-buyers-who-relied-on-official-documents-supreme-court-directs-alternative-site-before-demolition-555868
+
+[Read on Telegram](https://t.me/livelawindia/123084)
+
+---
+### 2026-10-25T12:40:11+00:00
+2026 LiveLaw (SC) 1082 | S. GURURAJ VERSUS THE ADDITIONAL CHIEF SECRETARY/ COMMISSIONER OF LAND ADMINISTRATION AND OTHERS (with connected cases)
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1082-s-gururaj-versus-the-additional-chief-secretary-commissioner-of-land-administration-and-others-with-connected-cases-555869
+
+[Read on Telegram](https://t.me/livelawindia/123085)
+
+---
+### 2026-10-25T14:17:31+00:00
+Patna High Court Cancels Anticipatory Bail Granted 8 Years Ago, Says False Statement On Oath Cannot Be Excused
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-cancels-anticipatory-bail-granted-nearly-8years-ago-555861
+
+[Read on Telegram](https://t.me/livelawindia/123086)
+
+---
+### 2026-10-25T14:32:31+00:00
+Handcuffs Come Off, Leverage Stays: India's Section 69 GST Reform
+https://www.livelaw.in/articles/handcuffs-come-off-leverage-stays-india-section69-gst-reform-555727
+
+[Read on Telegram](https://t.me/livelawindia/123087)
+
+---
+### 2026-10-25T15:08:22+00:00
+“Ordinary Criminal Law Sufficient”: J&K High Court Quashes Preventive Detention Of Man Accused In Repeated Livestock Theft Cases
+https://www.livelaw.in/high-court/jammu-kashmir/ordinary-criminal-law-was-sufficient-jk-high-court-quashes-psa-detention-of-man-accused-in-repeated-livestock-theft-cases-555862
+
+[Read on Telegram](https://t.me/livelawindia/123088)
 
 ---
