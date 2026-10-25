@@ -1,86 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-24T07:32:27+00:00*
+*Last Updated: 2026-10-24T13:16:39+00:00*
 
 ---
 
-### 2026-10-24T07:32:27+00:00
-High Court Slams Tripura University For Exploiting Contractual Lecturer For Years, Orders Regularisation
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-orders-regularisation-long-term-contractual-service-cant-disregarded-merely-nature-appointment-555803
-
-[Read on Telegram](https://t.me/livelawindia/123049)
-
----
-### 2026-10-24T08:02:47+00:00
-Minor's Marriage Alone Cannot Establish Human Trafficking Without Proof Of Monetary Consideration: Rajasthan High Court Suspends Sentence
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-minor-marriage-establish-human-trafficking-without-proof-monetary-consideration-555784
-
-[Read on Telegram](https://t.me/livelawindia/123050)
-
----
-### 2026-10-24T08:22:17+00:00
-Postal Receipt Alone Cannot Establish Service Of Court Summons: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/postal-receipt-alone-cannot-establish-service-of-court-summons-jk-high-court-sets-aside-order-rejecting-governments-plea-to-reopen-ex-parte-decree-555791
-
-[Read on Telegram](https://t.me/livelawindia/123051)
-
----
-### 2026-10-24T09:02:27+00:00
-'Abuse Of Process': Karnataka High Court Quashes Criminal Case Over Business Dispute Pending Before Arbitrator
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-fir-shalimar-agarbatti-firm-partners-555783
-
-[Read on Telegram](https://t.me/livelawindia/123052)
-
----
-### 2026-10-24T09:32:27+00:00
-Mediation Process Can't Be Used As Ruse To Secure Adjournments: Karnataka High Court Dismisses Husband's Plea To Quash Cruelty Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-quash-dowry-harassment-case-petitioner-absence-555811
-
-[Read on Telegram](https://t.me/livelawindia/123053)
-
----
-### 2026-10-24T09:32:47+00:00
-Why India Still Has No One To Call When Death Looks Like Ritual
-https://www.livelaw.in/articles/india-still-has-no-one-call-when-death-looks-like-ritual-555721
-
-[Read on Telegram](https://t.me/livelawindia/123054)
-
----
-### 2026-10-24T10:02:17+00:00
-Kerala High Court Seeks State's Response To Ex-DGP Tomin Thachankary's Plea To Go Abroad For Rejoining Work
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-tomin-thachankary-abroad-555830
-
-[Read on Telegram](https://t.me/livelawindia/123055)
-
----
-### 2026-10-24T10:03:17+00:00
-Allottee Must Be Compensated For Investment If Advertisement Is Withdrawn Due To Authority's Own Fault: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-allottee-compensated-investment-advertisement-withdrawn-555812
-
-[Read on Telegram](https://t.me/livelawindia/123056)
-
----
-### 2026-10-24T10:32:47+00:00
-Kerala High Court Expunges Adverse Remarks Against Young Advocate, Stresses Lawyers' Role In Preserving Integrity Of Justice Delivery System
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-stresses-professional-duties-of-the-bar-555813
-
-[Read on Telegram](https://t.me/livelawindia/123057)
-
----
-### 2026-10-24T11:32:38+00:00
-Karnataka High Court Quashes Immoral Trafficking Case Against Lodge Owners, Cites Absence Of Woman In Raiding Team
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-fir-lodge-immoral-trafficking-case-raiding-team-women-555822
-
-[Read on Telegram](https://t.me/livelawindia/123058)
-
----
-### 2026-10-24T12:50:38+00:00
-Allahabad High Court Flags Use Of 'False' Victim DOB Certificates In POCSO Cases; UP Govt Proposes School Record Guidelines
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-false-victim-dob-certificates-pocso-school-guidelines-555838
-
-[Read on Telegram](https://t.me/livelawindia/123059)
-
----
 ### 2026-10-24T13:16:39+00:00
 Lack Of Infrastructure No Excuse For Failure To Preserve Police Station CCTV Footage As Directed By SC: Allahabad High Court
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-police-station-cctv-footage-preservation-555841
@@ -142,5 +65,82 @@ CJI Chandrachud Used To Seek Government's Pre-Approval Before Collegium Discusse
 https://www.livelaw.in/top-stories/cji-chandrachud-used-to-seek-governments-pre-approval-before-collegium-discussed-names-for-judicial-appointments-justice-kaul-555851
 
 [Read on Telegram](https://t.me/livelawindia/123068)
+
+---
+### 2026-10-25T04:33:05+00:00
+LiveLaw Karnataka High Court Quarterly Digest: July- September, 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quarterly-digest-july-september-554718
+
+[Read on Telegram](https://t.me/livelawindia/123069)
+
+---
+### 2026-10-25T05:02:46+00:00
+Jammu & Kashmir And Ladakh High Court Quarterly Digest: July - September 2026
+https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-quarterly-digest-july-september-2026-555792
+
+[Read on Telegram](https://t.me/livelawindia/123070)
+
+---
+### 2026-10-25T05:32:16+00:00
+Impunity Beyond Judges: Is Section 16 Of 2023 CEC Act Justifiable?
+https://www.livelaw.in/lawschool/articles/impunity-beyond-judges-section16-2023cec-act-justifiable-555725
+
+[Read on Telegram](https://t.me/livelawindia/123071)
+
+---
+### 2026-10-25T06:36:07+00:00
+Senior Team Member (Legal) Vacancy At Cipla Limited
+https://www.livelaw.in/job-updates/senior-team-member-legal-vacancy-at-cipla-limited-555852
+
+[Read on Telegram](https://t.me/livelawindia/123072)
+
+---
+### 2026-10-25T06:37:47+00:00
+Legal Officer Vacancy At Indian Institute Of Foreign Trade
+https://www.livelaw.in/job-updates/legal-officer-vacancy-at-indian-institute-of-foreign-trade-555853
+
+[Read on Telegram](https://t.me/livelawindia/123073)
+
+---
+### 2026-10-25T06:38:47+00:00
+Senior Consultant (Law) Vacancy At Airports Authority Of India (AAI)
+https://www.livelaw.in/job-updates/senior-consultant-law-vacancy-at-airports-authority-of-india-aai-555854
+
+[Read on Telegram](https://t.me/livelawindia/123074)
+
+---
+### 2026-10-25T06:40:47+00:00
+Special Judicial Magistrate (Second Class) Vacancy At Asifabad Of Kumuram Bheem Asifabad District, Telangana
+https://www.livelaw.in/job-updates/special-judicial-magistrate-second-class-vacancy-at-asifabad-of-kumuram-bheem-asifabad-district-telangana-555855
+
+[Read on Telegram](https://t.me/livelawindia/123075)
+
+---
+### 2026-10-25T06:41:47+00:00
+Multiple Vacancies At Tata Memorial Centre
+https://www.livelaw.in/job-updates/multiple-vacancies-at-tata-memorial-centre-555856
+
+[Read on Telegram](https://t.me/livelawindia/123076)
+
+---
+### 2026-10-25T08:46:20+00:00
+Kerala High Court Underscores 'Peer Restraint' Among Benches, Says Judicial Strength Flows From Discipline, Not Dominion
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-peer-restraint-among-benches-judicial-strength-discipline-not-dominion-555857
+
+[Read on Telegram](https://t.me/livelawindia/123077)
+
+---
+### 2026-10-25T09:32:51+00:00
+From Administrative Ease To Judicial Scrutiny: India's New Registration Regime
+https://www.livelaw.in/lawschool/articles/administrative-ease-judicial-scrutiny-india-new-registration-regime-555726
+
+[Read on Telegram](https://t.me/livelawindia/123078)
+
+---
+### 2026-10-25T09:37:11+00:00
+CJI Chandrachud Asked Me To Take 'Middle Path' In PMLA Case; Was Under Pressure To Remove Judges Appointment Matter From Me  : Justice Kaul
+https://www.livelaw.in/top-stories/j-kaul-555859
+
+[Read on Telegram](https://t.me/livelawindia/123079)
 
 ---
