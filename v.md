@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-24T14:32:19+00:00*
+*Last Updated: 2026-10-25T04:32:53+00:00*
+
+---
+
+### 2026-10-25T04:32:53+00:00
+Section 406 IPC Cannot Be Invoked Without Entrustment Of Property By Person Having Dominion Over It: Kerala High Court
+https://www.verdictum.in/kerala-high-court/krishnankutty-up-v-state-of-kerala-and-another-2026ker79734-section-406-ipc-1624600
+
+[Source Link](https://t.me/verdictumlegalupdates/29863)
 
 ---
 
@@ -153,14 +161,6 @@ Fraud Must Be Dealt With To Punish Wrongdoer & Deter Others: Allahabad High Cour
 https://www.verdictum.in/allahabad-high-court/2026-ahc-lko-71652-db-gareeba-v-state-of-up-1624544
 
 [Source Link](https://t.me/verdictumlegalupdates/29844)
-
----
-
-### 2026-10-23T14:32:25+00:00
-Abdication Of Duty To Interact With Child: Madras High Court Sets Aside Family Court’s Order Based Merely On Child Welfare Committee’s Report
-https://www.verdictum.in/madras-high-court/ab-v-cd-family-court-order-cant-abdicate-duty-interact-child-welfare-committees-report-1624542
-
-[Source Link](https://t.me/verdictumlegalupdates/29843)
 
 ---
 
