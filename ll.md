@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-25T04:33:05+00:00*
+*Last Updated: 2026-10-25T05:32:16+00:00*
 
 ---
 
-### 2026-10-25T04:33:05+00:00
-LiveLaw Karnataka High Court Quarterly Digest: July- September, 2026
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quarterly-digest-july-september-554718
-
-[Read on Telegram](https://t.me/livelawindia/123069)
-
----
-### 2026-10-25T05:02:46+00:00
-Jammu & Kashmir And Ladakh High Court Quarterly Digest: July - September 2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-and-kashmir-and-ladakh-high-court-quarterly-digest-july-september-2026-555792
-
-[Read on Telegram](https://t.me/livelawindia/123070)
-
----
 ### 2026-10-25T05:32:16+00:00
 Impunity Beyond Judges: Is Section 16 Of 2023 CEC Act Justifiable?
 https://www.livelaw.in/lawschool/articles/impunity-beyond-judges-section16-2023cec-act-justifiable-555725
@@ -142,5 +128,19 @@ https://www.livelaw.in/articles/handcuffs-come-off-leverage-stays-india-section6
 https://www.livelaw.in/high-court/jammu-kashmir/ordinary-criminal-law-was-sufficient-jk-high-court-quashes-psa-detention-of-man-accused-in-repeated-livestock-theft-cases-555862
 
 [Read on Telegram](https://t.me/livelawindia/123088)
+
+---
+### 2026-10-25T16:21:02+00:00
+13th NLIU–VKC Law Offices International Corporate Law Moot, 2027; Register By November 3
+https://www.livelaw.in/lawschool/competitions/nliuvkc-law-offices-international-corporate-law-moot-2027-555871
+
+[Read on Telegram](https://t.me/livelawindia/123089)
+
+---
+### 2026-10-25T16:34:42+00:00
+NLIU Bhopal To Organise International Conference On Law, Language And Literature In February 2027; Submit Abstracts By November 15
+https://www.livelaw.in/lawschool/seminars/nliu-bhopal-organise-international-conference-law-language-literature-555872
+
+[Read on Telegram](https://t.me/livelawindia/123090)
 
 ---
