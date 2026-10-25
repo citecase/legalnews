@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-24T06:32:47+00:00*
+*Last Updated: 2026-10-24T07:32:27+00:00*
 
 ---
 
-### 2026-10-24T06:32:47+00:00
-LiveLaw Karnataka High Court Weekly Round Up: October 12 - October 18, 2026
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-weekly-round-up-555800
-
-[Read on Telegram](https://t.me/livelawindia/123046)
-
----
-### 2026-10-24T07:02:37+00:00
-'Self-Negligence': Gujarat High Court Rejects Compensation Claim By Heirs Of Auto-Rickshaw Driver Killed At Unmanned Railway Crossing
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-auto-driver-railway-crossing-accident-compensation-555801
-
-[Read on Telegram](https://t.me/livelawindia/123047)
-
----
-### 2026-10-24T07:28:27+00:00
-Undertrial Prisoner Produced Before Mumbai Court Escapes From Police Custody, FIR Lodged
-https://www.livelaw.in/news-updates/accused-escapes-police-custody-produced-mumbai-court-555815
-
-[Read on Telegram](https://t.me/livelawindia/123048)
-
----
 ### 2026-10-24T07:32:27+00:00
 High Court Slams Tripura University For Exploiting Contractual Lecturer For Years, Orders Regularisation
 https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-orders-regularisation-long-term-contractual-service-cant-disregarded-merely-nature-appointment-555803
@@ -142,5 +121,26 @@ Court Custody Till 4 PM, ₹5K Cost: Allahabad High Court Acts Against Woman IO 
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-io-pocso-case-mobile-phone-555849
 
 [Read on Telegram](https://t.me/livelawindia/123065)
+
+---
+### 2026-10-25T02:32:55+00:00
+₹80,889 For Boycott: Trade Associations And India's Deterrence Gap
+https://www.livelaw.in/articles/trade-associations-india-deterrence-gap-555724
+
+[Read on Telegram](https://t.me/livelawindia/123066)
+
+---
+### 2026-10-25T02:56:25+00:00
+Customer Receives Lifebuoy Soap Instead Of Realme Mobile Phone; Delhi Consumer Commission Holds Flipkart Liable
+https://www.livelaw.in/consumer-cases/customer-receives-lifebuoy-soap-instead-of-realme-mobile-phone-delhi-consumer-commission-holds-flipkart-liable-555850
+
+[Read on Telegram](https://t.me/livelawindia/123067)
+
+---
+### 2026-10-25T03:50:15+00:00
+CJI Chandrachud Used To Seek Government's Pre-Approval Before Collegium Discussed Names For Judicial Appointments : Justice Kaul
+https://www.livelaw.in/top-stories/cji-chandrachud-used-to-seek-governments-pre-approval-before-collegium-discussed-names-for-judicial-appointments-justice-kaul-555851
+
+[Read on Telegram](https://t.me/livelawindia/123068)
 
 ---
