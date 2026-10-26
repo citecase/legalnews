@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-26T13:02:57+00:00*
+*Last Updated: 2026-10-26T16:03:00+00:00*
+
+---
+
+### 2026-10-26T16:03:00+00:00
+Legal Adviser Vacancy At National Commission for Homoeopathy
+https://www.verdictum.in/job-updates/national-commission-for-homoeopathy-1624657
+
+[Source Link](https://t.me/verdictumlegalupdates/29891)
+
+---
+
+### 2026-10-26T15:32:39+00:00
+Six Years Erased From His Life: Supreme Court Directs UP Govt. To Pay 6 Lakh As Compensation To Man Acquitted In Kidnapping & Murder Case
+https://www.verdictum.in/supreme-court/arun-deepak-v-state-of-up-2026-insc-1150-police-officers-cost-up-govt-acquittal-jail-1624662
+
+[Source Link](https://t.me/verdictumlegalupdates/29890)
+
+---
+
+### 2026-10-26T15:03:20+00:00
+Negligence In Not Seizing POCSO Accused’s Phone: Allahabad High Court Asks IO To Remain In Court Custody Till 4 PM, Imposes ₹5K Cost
+https://www.verdictum.in/allahabad-high-court/raj-raeen-v-state-of-up-2026ahc221357-negligence-pocso-accused-phone-io-cost-1624656
+
+[Source Link](https://t.me/verdictumlegalupdates/29889)
+
+---
+
+### 2026-10-26T14:33:02+00:00
+Women Can’t Be Denied Maternity Leave Merely Due To Nature Of Employment If Eligibility Conditions Are Met: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/smt-shivangi-khandelwal-v-state-of-rajasthan-and-another-2026rj-jd49861-1624655
+
+[Source Link](https://t.me/verdictumlegalupdates/29888)
+
+---
+
+### 2026-10-26T14:02:38+00:00
+Teacher Can’t Be Prosecuted For Inflicting Trivial Punishment To Correct Child Or Maintain Discipline: Kerala High Court
+https://www.verdictum.in/kerala-high-court/jolly-john-v-state-of-kerala-2026ker78515-teacher-punishment-child-school-discipline-1624654
+
+[Source Link](https://t.me/verdictumlegalupdates/29887)
+
+---
+
+### 2026-10-26T13:32:18+00:00
+Cannot Be Restricted By 24 Weeks’ Statutory Period: Delhi High Court Permits Termination Of 29-Week Pregnancy For Minor Rape Survivor
+https://www.verdictum.in/delhi-high-court/minor-v-through-grandmother-m-v-state-of-nct-of-delhi-2026dhhc2446-29-week-pregnancy-for-minor-survivor-1624653
+
+[Source Link](https://t.me/verdictumlegalupdates/29886)
 
 ---
 
@@ -113,54 +161,6 @@ Domestic Enquiry Which May Culminate In Employee's Dismissal Cannot Be Treated A
 https://www.verdictum.in/kerala-high-court/r-nitya-v-dhanlaxmi-bank-ltd-2026ker77180-domestic-enquiry-dismissal-of-employee-1624630
 
 [Source Link](https://t.me/verdictumlegalupdates/29872)
-
----
-
-### 2026-10-26T05:52:54+00:00
-“Natural Response Would Be To Give Back At Least ₹1,000”: Kerala High Court Upholds Bribery Conviction Of Village Assistant, Rejects Land-Tax Receipt Defence
-https://www.verdictum.in/kerala-high-court/anil-kumar-r-v-state-of-kerala2026ker77546-ribery-conviction-of-village-assistant-back-of-pocket-money-1624627
-
-[Source Link](https://t.me/verdictumlegalupdates/29871)
-
----
-
-### 2026-10-26T05:12:53+00:00
-“You Shall Not Identify With The Client”: Kerala High Court Expunges Harsh Remarks Against Young Advocate To Protect His Future
-https://www.verdictum.in/kerala-high-court/sadiqali-m-v-federal-bank-and-others-2026ker78810-advocate-harsh-remarks-judgment-1624623
-
-[Source Link](https://t.me/verdictumlegalupdates/29870)
-
----
-
-### 2026-10-26T04:32:12+00:00
-No Proof Of Monetary Consideration: Rajasthan High Court Suspends Sentence Of Men Accused Of Selling Minors
-https://www.verdictum.in/rajasthan-high-court/shrawan-nath-v-state-of-rajasthan-and-another-with-mangunath-v-state-of-rajasthan-and-another-2026rj-jd51515-1624621
-
-[Source Link](https://t.me/verdictumlegalupdates/29869)
-
----
-
-### 2026-10-25T14:32:38+00:00
-Empanelment Of Advocates At District Legal Services Authority, Gaya
-https://www.verdictum.in/job-updates/district-legal-services-authority-1624601
-
-[Source Link](https://t.me/verdictumlegalupdates/29868)
-
----
-
-### 2026-10-25T12:32:17+00:00
-Land “Required” For Public Purpose Under Development Control Regulations, Forming Part Of Development Plan, Can Be Acquired U/S 126 MRTP Act: Bombay High Court
-https://www.verdictum.in/bombay-high-court/moiz-dawoodbhai-palitanawala-v-the-municipal-corporation-of-greater-mumbai-2026bhc-os23000-db-126-mrtp-act-required-designated-1624613
-
-[Source Link](https://t.me/verdictumlegalupdates/29867)
-
----
-
-### 2026-10-25T10:32:16+00:00
-Section 498A IPC Not Attracted Against Mother-In-Law When Daughter-In-Law Contracted Marriage During Subsistence Of First Marriage: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/a-v-state-of-gujarat-sec498a-ipc-mother-in-law-subsistence-first-marriage-1624612
-
-[Source Link](https://t.me/verdictumlegalupdates/29866)
 
 ---
 
