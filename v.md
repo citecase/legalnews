@@ -1,6 +1,14 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-25T14:32:38+00:00*
+*Last Updated: 2026-10-26T04:32:12+00:00*
+
+---
+
+### 2026-10-26T04:32:12+00:00
+No Proof Of Monetary Consideration: Rajasthan High Court Suspends Sentence Of Men Accused Of Selling Minors
+https://www.verdictum.in/rajasthan-high-court/shrawan-nath-v-state-of-rajasthan-and-another-with-mangunath-v-state-of-rajasthan-and-another-2026rj-jd51515-1624621
+
+[Source Link](https://t.me/verdictumlegalupdates/29869)
 
 ---
 
@@ -153,14 +161,6 @@ There Was Sufficient Material Before Magistrate For Notice U/S 126 BNSS: Delhi H
 https://www.verdictum.in/delhi-high-court/neha-v-the-state-nct-of-delhi-2026dhc9436-aisa-president-neha-boras-plea-1624575
 
 [Source Link](https://t.me/verdictumlegalupdates/29850)
-
----
-
-### 2026-10-24T05:53:08+00:00
-Can Industrial Courts Grant Blanket Permanency Of Service ? Bombay High Court Answers
-https://www.verdictum.in/bombay-high-court/university-of-mumbai-v-sunil-tanga-pagare-2026bhc-os22827-10-years-service-permanency-is-no-bar-affirmative-action-umadevi-1624574
-
-[Source Link](https://t.me/verdictumlegalupdates/29849)
 
 ---
 
