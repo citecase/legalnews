@@ -1,6 +1,134 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-26T04:32:12+00:00*
+*Last Updated: 2026-10-26T13:02:57+00:00*
+
+---
+
+### 2026-10-26T13:02:57+00:00
+Judicial Orders Don't Lose Efficacy Because Judicial Officer Who Passed Them Was Relieved From Service: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/bharvad-harishbhai-becharbhai-and-others-v-state-of-gujarat-and-another-1624652
+
+[Source Link](https://t.me/verdictumlegalupdates/29885)
+
+---
+
+### 2026-10-26T12:32:56+00:00
+Cheque Issued For Time-Barred Debt Does Not Make Prosecution U/S 138 NI Act Impermissible: Kerala High Court
+https://www.verdictum.in/kerala-high-court/2026-ker-78185-g-sanil-kumar-v-sujith-1624651
+
+[Source Link](https://t.me/verdictumlegalupdates/29884)
+
+---
+
+### 2026-10-26T12:02:55+00:00
+Supreme Court Reserves Order On Plea Challenging Land Acquisition For Residential Housing Scheme In Ayodhya
+https://www.verdictum.in/supreme-court/plea-challenging-land-acquisition-for-residential-housing-scheme-in-ayodhya-1624650
+
+[Source Link](https://t.me/verdictumlegalupdates/29883)
+
+---
+
+### 2026-10-26T11:33:14+00:00
+Public Authority Must Compensate Successful Applicant For Investments Made Under LOI If Cancellation Is Due To Its Own Fault: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/shantanu-singh-v-state-of-uttar-pradesh-and-others-2026ahc213205-db-1624642
+
+[Source Link](https://t.me/verdictumlegalupdates/29882)
+
+---
+
+### 2026-10-26T11:03:13+00:00
+Supreme Court Issues Notice To Centre & ECI On Plea Challenging SIR In Maharashtra
+https://www.verdictum.in/supreme-court/notice-to-centre-eci-on-plea-challenging-sir-in-maharashtra-1624647
+
+[Source Link](https://t.me/verdictumlegalupdates/29881)
+
+---
+
+### 2026-10-26T10:32:32+00:00
+“Go And Tell The Trial Court”: Supreme Court Refuses To Relax Bail Terms For Delhi Riots Accused Shadab Ahmad To Attend Law Classes In Ghaziabad
+https://www.verdictum.in/supreme-court/refuses-relax-bail-delhi-riots-accused-shadab-ahmad-attend-law-classes-ghaziabad-1624648
+
+[Source Link](https://t.me/verdictumlegalupdates/29880)
+
+---
+
+### 2026-10-26T10:02:51+00:00
+Somebody Resigns & Becomes Minister, It’s Part Of Political Process: Apex Court Dismisses Plea Against 6 AIADMK MLAs Who Defected To TVK
+https://www.verdictum.in/supreme-court/plea-against-6-aiadmk-mlas-who-defected-to-tvk-1624643
+
+[Source Link](https://t.me/verdictumlegalupdates/29879)
+
+---
+
+### 2026-10-26T09:34:10+00:00
+Lack Of Bar Room Is Not A Justification: Supreme Court Asks States To Provide Washrooms & Basic Amenities For Women Advocates
+https://www.verdictum.in/supreme-court/states-to-provide-exclusive-women-bar-rooms-washrooms-women-advocates-1624645
+
+[Source Link](https://t.me/verdictumlegalupdates/29878)
+
+---
+
+### 2026-10-26T09:02:29+00:00
+“Further Attempt To Invoke Sympathy”: Bombay High Court Refuses To Entertain Litigant’s Post-Hearing Representations Alleging Counsel Did Not Argue Properly
+https://www.verdictum.in/bombay-high-court/ambegaon-taluka-vidya-vikas-mandal-v-husen-kasam-shaikh-2026bhc-as43276-litigants-post-hearing-representations-chief-justice-2-crore-1624641
+
+[Source Link](https://t.me/verdictumlegalupdates/29877)
+
+---
+
+### 2026-10-26T08:32:09+00:00
+UP Court Acquits Rahul Gandhi In 2018 Defamation Case Over Remarks Against Amit Shah
+https://www.verdictum.in/other-courts/up-court-acquits-rahul-gandhi-in-2018-defamation-case-over-remarks-against-amit-shah-1624640
+
+[Source Link](https://t.me/verdictumlegalupdates/29876)
+
+---
+
+### 2026-10-26T08:02:09+00:00
+Directly Recruited District Judges With Postgraduate Law Degree Entitled To Three Advance Increments From July 01, 1996: Kerala High Court
+https://www.verdictum.in/kerala-high-court/av-ramakrishna-pillai-v-state-of-kerala-2026ker75152-district-judges-with-postgraduate-law-degree-1624635
+
+[Source Link](https://t.me/verdictumlegalupdates/29875)
+
+---
+
+### 2026-10-26T07:34:47+00:00
+Supreme Court Seeks Tripura & TTAADC Response To PIL Challenging Provision Of Customary Law
+https://www.verdictum.in/supreme-court/tripura-ttaadc-response-to-pil-challenging-provision-of-customary-law-1624633
+
+[Source Link](https://t.me/verdictumlegalupdates/29874)
+
+---
+
+### 2026-10-26T07:01:26+00:00
+Power Under Article 226 Constitution To Order Investigation Is In No Way Restrained By Any Other Statutory Provisions: Kerala High Court
+https://www.verdictum.in/kerala-high-court/m-r-ajayan-v-the-director-cbi-2026ker81401-ed-officials-vacb-probe-into-bribery-case-1624632
+
+[Source Link](https://t.me/verdictumlegalupdates/29873)
+
+---
+
+### 2026-10-26T06:33:15+00:00
+Domestic Enquiry Which May Culminate In Employee's Dismissal Cannot Be Treated As Mere Formality: Kerala High Court
+https://www.verdictum.in/kerala-high-court/r-nitya-v-dhanlaxmi-bank-ltd-2026ker77180-domestic-enquiry-dismissal-of-employee-1624630
+
+[Source Link](https://t.me/verdictumlegalupdates/29872)
+
+---
+
+### 2026-10-26T05:52:54+00:00
+“Natural Response Would Be To Give Back At Least ₹1,000”: Kerala High Court Upholds Bribery Conviction Of Village Assistant, Rejects Land-Tax Receipt Defence
+https://www.verdictum.in/kerala-high-court/anil-kumar-r-v-state-of-kerala2026ker77546-ribery-conviction-of-village-assistant-back-of-pocket-money-1624627
+
+[Source Link](https://t.me/verdictumlegalupdates/29871)
+
+---
+
+### 2026-10-26T05:12:53+00:00
+“You Shall Not Identify With The Client”: Kerala High Court Expunges Harsh Remarks Against Young Advocate To Protect His Future
+https://www.verdictum.in/kerala-high-court/sadiqali-m-v-federal-bank-and-others-2026ker78810-advocate-harsh-remarks-judgment-1624623
+
+[Source Link](https://t.me/verdictumlegalupdates/29870)
 
 ---
 
@@ -33,134 +161,6 @@ Section 498A IPC Not Attracted Against Mother-In-Law When Daughter-In-Law Contra
 https://www.verdictum.in/gujarat-high-court/a-v-state-of-gujarat-sec498a-ipc-mother-in-law-subsistence-first-marriage-1624612
 
 [Source Link](https://t.me/verdictumlegalupdates/29866)
-
----
-
-### 2026-10-25T08:33:15+00:00
-Breach Of Law In All Cases Doesn’t Lead To Public Disorder: Jammu & Kashmir and Ladakh High Court Quashes Detention Order Against Accused In Cattle Theft Cases
-https://www.verdictum.in/jammu-ladakh-high-court/tariq-ahmad-dar-v-union-territory-of-j-and-public-disorder-detention-order-cattle-theft-1624611
-
-[Source Link](https://t.me/verdictumlegalupdates/29865)
-
----
-
-### 2026-10-25T06:32:34+00:00
-Bench Should Not Escalate Heated Exchanges With Bar Into Contempt Proceedings Or Costs Against Advocates: J&K And Ladakh High Court
-https://www.verdictum.in/jammu-ladakh-high-court/jahangir-iqbal-ganai-v-mohd-amin-dar-and-others-senior-advocate-contempt-1624604
-
-[Source Link](https://t.me/verdictumlegalupdates/29864)
-
----
-
-### 2026-10-25T04:32:53+00:00
-Section 406 IPC Cannot Be Invoked Without Entrustment Of Property By Person Having Dominion Over It: Kerala High Court
-https://www.verdictum.in/kerala-high-court/krishnankutty-up-v-state-of-kerala-and-another-2026ker79734-section-406-ipc-1624600
-
-[Source Link](https://t.me/verdictumlegalupdates/29863)
-
----
-
-### 2026-10-24T14:32:19+00:00
-Consultant (Legal) Vacancy At Warehousing Development and Regulatory Authority (WDRA)
-https://www.verdictum.in/job-updates/warehousing-development-and-regulatory-authority-1624599
-
-[Source Link](https://t.me/verdictumlegalupdates/29862)
-
----
-
-### 2026-10-24T13:52:58+00:00
-Patient In Grave Emergency Can’t Be Forced To Verify Whether Hospital Is Empaneled: Kerala High Court Dismisses FCI's Appeal
-https://www.verdictum.in/kerala-high-court/food-corporation-of-india-v-govindan-p-2026ker73842-grave-emergency-hospital-empanelled-1624598
-
-[Source Link](https://t.me/verdictumlegalupdates/29861)
-
----
-
-### 2026-10-24T13:12:58+00:00
-Limitation For Execution Of Arbitration Award Starts Running From Date It Becomes Enforceable: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/ashok-kumar-v-bhupendra-kumar-lunkad-2026mphc-ind29713-execution-runs-from-date-award-becomes-enforceable-1624597
-
-[Source Link](https://t.me/verdictumlegalupdates/29860)
-
----
-
-### 2026-10-24T12:32:37+00:00
-Government Can Manufacture Patented Medicines And Sell Them Non-Commercially To Needy Patients: Kerala High Court
-https://www.verdictum.in/kerala-high-court/in-re-exorbitant-pricing-of-life-saving-patented-medicines-2026ker74251-1624596
-
-[Source Link](https://t.me/verdictumlegalupdates/29859)
-
----
-
-### 2026-10-24T11:52:16+00:00
-“Conscious Of Plight Of Birds”: Madhya Pradesh High Court Directs Cutting Of Trees In Phased Manner For Indore Metro Project; Directs Planting Of 2500 Trees
-https://www.verdictum.in/madhya-pradesh-high-court/priyanshu-jain-v-union-of-india-2026mphc-ind28553-cutting-trees-phased-indore-metro-project-1624595
-
-[Source Link](https://t.me/verdictumlegalupdates/29858)
-
----
-
-### 2026-10-24T11:12:55+00:00
-Absence Of Injury Report Doesn’t Diminish Need For Rehabilitative Support: Allahabad High Court Directs Release Of ₹3 Lakh To POCSO Victim
-https://www.verdictum.in/allahabad-high-court/victim-x-v-state-of-up-2026ahc220399-db-absence-injury-report-support-pocso-victim-1624594
-
-[Source Link](https://t.me/verdictumlegalupdates/29857)
-
----
-
-### 2026-10-24T10:32:34+00:00
-An Order Does Not Become Non-Speaking Merely Because It Does Not Reproduce Every Contention Verbatim: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/rajendra-kumar-and-another-v-state-of-uttar-pradesh-and-others-2026ahc-lko75352-1624593
-
-[Source Link](https://t.me/verdictumlegalupdates/29856)
-
----
-
-### 2026-10-24T09:52:13+00:00
-Executive Protocol Cannot Dilute Constitutional Safeguards: Kerala High Court Strikes Down Guidelines Treating Production Of Accused Before Magistrate After 5 PM As “Exceptional”
-https://www.verdictum.in/kerala-high-court/adv-ps-subeesh-v-state-of-kerala-2026ker80664-production-of-accused-after-5-pm-as-exceptional-1624592
-
-[Source Link](https://t.me/verdictumlegalupdates/29855)
-
----
-
-### 2026-10-24T09:12:52+00:00
-Child-Custody Case Cannot Be Transferred To Family Court Without Jurisdiction Over Children’s Place Of Residence: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/xx-v-yy-child-custody-case-family-court-jurisdiction-childs-residence-1624590
-
-[Source Link](https://t.me/verdictumlegalupdates/29854)
-
----
-
-### 2026-10-24T08:33:11+00:00
-Mechanical Registration Of Crimes Over Social Media Posts Must Be Prevented: Karnataka High Court Issues Guidelines To Police
-https://www.verdictum.in/karnataka-high-court/sandeep-kumar-v-state-of-karnataka-criminal-petition-no-13010-of-2026-section-3532-bns-fir-social-media-repost-religious-community-1624588
-
-[Source Link](https://t.me/verdictumlegalupdates/29853)
-
----
-
-### 2026-10-24T07:52:50+00:00
-Delhi Court Remands Content Creator Amir Shokeen To Police Custody For Racial Abuse Against Youth From Tripura
-https://www.verdictum.in/other-courts/content-creator-amir-shokeen-police-custody-racial-abuse-youth-tripura-remand-1624585
-
-[Source Link](https://t.me/verdictumlegalupdates/29852)
-
----
-
-### 2026-10-24T07:12:30+00:00
-Parties Entered Into Agreement To Live Together & Mutually Cancelled It By Another Deed: Gujarat High Court Upholds Acquittal In Rape By False Promise To Marry Case
-https://www.verdictum.in/gujarat-high-court/xyz-victim-v-state-of-gujarat-rcra22732026-parties-agreement-acquittal-false-promise-to-marry-1624581
-
-[Source Link](https://t.me/verdictumlegalupdates/29851)
-
----
-
-### 2026-10-24T06:32:49+00:00
-There Was Sufficient Material Before Magistrate For Notice U/S 126 BNSS: Delhi High Court Dismisses AISA President Neha Bora’s Plea
-https://www.verdictum.in/delhi-high-court/neha-v-the-state-nct-of-delhi-2026dhc9436-aisa-president-neha-boras-plea-1624575
-
-[Source Link](https://t.me/verdictumlegalupdates/29850)
 
 ---
 
