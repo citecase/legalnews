@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-25T05:32:16+00:00*
+*Last Updated: 2026-10-25T06:40:47+00:00*
 
 ---
 
-### 2026-10-25T05:32:16+00:00
-Impunity Beyond Judges: Is Section 16 Of 2023 CEC Act Justifiable?
-https://www.livelaw.in/lawschool/articles/impunity-beyond-judges-section16-2023cec-act-justifiable-555725
-
-[Read on Telegram](https://t.me/livelawindia/123071)
-
----
-### 2026-10-25T06:36:07+00:00
-Senior Team Member (Legal) Vacancy At Cipla Limited
-https://www.livelaw.in/job-updates/senior-team-member-legal-vacancy-at-cipla-limited-555852
-
-[Read on Telegram](https://t.me/livelawindia/123072)
-
----
-### 2026-10-25T06:37:47+00:00
-Legal Officer Vacancy At Indian Institute Of Foreign Trade
-https://www.livelaw.in/job-updates/legal-officer-vacancy-at-indian-institute-of-foreign-trade-555853
-
-[Read on Telegram](https://t.me/livelawindia/123073)
-
----
-### 2026-10-25T06:38:47+00:00
-Senior Consultant (Law) Vacancy At Airports Authority Of India (AAI)
-https://www.livelaw.in/job-updates/senior-consultant-law-vacancy-at-airports-authority-of-india-aai-555854
-
-[Read on Telegram](https://t.me/livelawindia/123074)
-
----
 ### 2026-10-25T06:40:47+00:00
 Special Judicial Magistrate (Second Class) Vacancy At Asifabad Of Kumuram Bheem Asifabad District, Telangana
 https://www.livelaw.in/job-updates/special-judicial-magistrate-second-class-vacancy-at-asifabad-of-kumuram-bheem-asifabad-district-telangana-555855
@@ -142,5 +114,33 @@ NLIU Bhopal To Organise International Conference On Law, Language And Literature
 https://www.livelaw.in/lawschool/seminars/nliu-bhopal-organise-international-conference-law-language-literature-555872
 
 [Read on Telegram](https://t.me/livelawindia/123090)
+
+---
+### 2026-10-26T02:22:54+00:00
+Legal Researcher Vacancy At Rajasthan High Court, Jodhpur
+https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-rajasthan-high-court-jodhpur-555873
+
+[Read on Telegram](https://t.me/livelawindia/123091)
+
+---
+### 2026-10-26T02:32:34+00:00
+Treatment Of Advance Deposits And Pre -CIRP Dues Under IBC Moratorium
+https://www.livelaw.in/lawschool/articles/treatment-advance-deposits-pre-cirp-dues-under-ibc-moratorium-555728
+
+[Read on Telegram](https://t.me/livelawindia/123092)
+
+---
+### 2026-10-26T02:37:54+00:00
+Multiple Vacancies At Vacancy At MECON Limited
+https://www.livelaw.in/job-updates/multiple-vacancies-at-vacancy-at-mecon-limited-555874
+
+[Read on Telegram](https://t.me/livelawindia/123093)
+
+---
+### 2026-10-26T03:03:04+00:00
+Kamala Mills Fire | Consumer Commission Dismisses ₹5.67 Crore '1Above' Insurance Claim
+https://www.livelaw.in/consumer-cases/kamala-mills-fire-consumer-commission-dismisses-567-crore-1above-insurance-claim-555870
+
+[Read on Telegram](https://t.me/livelawindia/123094)
 
 ---
