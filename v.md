@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-27T12:32:34+00:00*
+*Last Updated: 2026-10-27T16:02:48+00:00*
+
+---
+
+### 2026-10-27T16:02:48+00:00
+Young Professional (Legal) Vacancy At Ministry Of Defence
+https://www.verdictum.in/job-updates/ministry-of-defence-1624694
+
+[Source Link](https://t.me/verdictumlegalupdates/29911)
+
+---
+
+### 2026-10-27T15:12:18+00:00
+Husband’s Insistence That Wife Should Accept His Relationship & Live With Another Woman As Younger Sister Amounts To Grave Mental Cruelty: Jharkhand High Court
+https://www.verdictum.in/jharkhand-high-court/a-v-b-2026jhhc28726-db-husband-insistence-wife-live-another-woman-younger-sister-cruelty-1624693
+
+[Source Link](https://t.me/verdictumlegalupdates/29910)
+
+---
+
+### 2026-10-27T14:32:57+00:00
+Unmarried Sister Entitled To Personal Accident Death Benefit Under Kisan Yojana Even Though She Isn’t Covered As Family Member: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/kmvidyawati-v-state-of-up-2026ahc221877-db-unmarried-sister-death-benefit-kisan-yojana-1624692
+
+[Source Link](https://t.me/verdictumlegalupdates/29909)
+
+---
+
+### 2026-10-27T13:52:36+00:00
+OCI Cardholders Must Obtain Special Permission To Undertake Missionary Preaching In India: Madras High Court
+https://www.verdictum.in/madras-high-court/john-daniel-v-union-of-india-and-others-2026mhc4303-oci-card-holder-religion-preaching-1624691
+
+[Source Link](https://t.me/verdictumlegalupdates/29908)
+
+---
+
+### 2026-10-27T13:12:15+00:00
+Bombay High Court Keeps 'Leave India' Notice To Actor Imran Khan In Abeyance For A Week
+https://www.verdictum.in/bombay-high-court/leave-india-notice-to-actor-imran-khan-in-abeyance-for-a-week-1624690
+
+[Source Link](https://t.me/verdictumlegalupdates/29907)
 
 ---
 
@@ -121,46 +161,6 @@ Alternate Remedy U/S.20(3) Of HAMA No Bar To Unmarried Major Daughter’s Claim 
 https://www.verdictum.in/bombay-high-court/a-v-b-2026bhc-nag13753-alternate-remedy-hama-maintenance-section-125-crpc-1624658
 
 [Source Link](https://t.me/verdictumlegalupdates/29892)
-
----
-
-### 2026-10-26T16:03:00+00:00
-Legal Adviser Vacancy At National Commission for Homoeopathy
-https://www.verdictum.in/job-updates/national-commission-for-homoeopathy-1624657
-
-[Source Link](https://t.me/verdictumlegalupdates/29891)
-
----
-
-### 2026-10-26T15:32:39+00:00
-Six Years Erased From His Life: Supreme Court Directs UP Govt. To Pay 6 Lakh As Compensation To Man Acquitted In Kidnapping & Murder Case
-https://www.verdictum.in/supreme-court/arun-deepak-v-state-of-up-2026-insc-1150-police-officers-cost-up-govt-acquittal-jail-1624662
-
-[Source Link](https://t.me/verdictumlegalupdates/29890)
-
----
-
-### 2026-10-26T15:03:20+00:00
-Negligence In Not Seizing POCSO Accused’s Phone: Allahabad High Court Asks IO To Remain In Court Custody Till 4 PM, Imposes ₹5K Cost
-https://www.verdictum.in/allahabad-high-court/raj-raeen-v-state-of-up-2026ahc221357-negligence-pocso-accused-phone-io-cost-1624656
-
-[Source Link](https://t.me/verdictumlegalupdates/29889)
-
----
-
-### 2026-10-26T14:33:02+00:00
-Women Can’t Be Denied Maternity Leave Merely Due To Nature Of Employment If Eligibility Conditions Are Met: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/smt-shivangi-khandelwal-v-state-of-rajasthan-and-another-2026rj-jd49861-1624655
-
-[Source Link](https://t.me/verdictumlegalupdates/29888)
-
----
-
-### 2026-10-26T14:02:38+00:00
-Teacher Can’t Be Prosecuted For Inflicting Trivial Punishment To Correct Child Or Maintain Discipline: Kerala High Court
-https://www.verdictum.in/kerala-high-court/jolly-john-v-state-of-kerala-2026ker78515-teacher-punishment-child-school-discipline-1624654
-
-[Source Link](https://t.me/verdictumlegalupdates/29887)
 
 ---
 
