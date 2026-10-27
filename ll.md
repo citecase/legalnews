@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-26T13:44:30+00:00*
+*Last Updated: 2026-10-26T14:52:00+00:00*
 
 ---
 
-### 2026-10-26T13:44:30+00:00
-Sultanpur Court Says Defamation Complaint By BJP Office-Bearer Against Rahul Gandhi May Have Been Politically Motivated
-https://www.livelaw.in/news-updates/sultanpur-court-rahul-gandhi-defamation-case-acquittal-556026
-
-[Read on Telegram](https://t.me/livelawindia/123185)
-
----
-### 2026-10-26T13:48:10+00:00
-Retention Of 'Istridhan' After Divorce Is Not A Continuing Offence For Limitation Purposes: HP High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-retention-istridhan-after-divorce-continuing-offence-limitation-purposes-555923
-
-[Read on Telegram](https://t.me/livelawindia/123186)
-
----
-### 2026-10-26T13:51:10+00:00
-Supreme Court Quashes Karnataka Land Acquisition Over Fraud & Bribery In Housing Society Scheme, Orders Land Restoration To Owners
-https://www.livelaw.in/supreme-court/supreme-court-quashes-karnataka-land-acquisition-over-fraud-bribery-in-housing-society-scheme-orders-land-restoration-to-owners-556028
-
-[Read on Telegram](https://t.me/livelawindia/123187)
-
----
-### 2026-10-26T13:52:10+00:00
-2026 LiveLaw (SC) 1086 | N. Arasappa Versus State of Karnataka & Ors. (with connected cases)
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1086-n-arasappa-versus-state-of-karnataka-ors-with-connected-cases-556029
-
-[Read on Telegram](https://t.me/livelawindia/123188)
-
----
-### 2026-10-26T14:02:30+00:00
-LiveLaw Daily| Maharashtra SIR| Rahul Gandhi Acquittal| Imran Khan Before Court & more
-https://www.livelaw.in/podcast/maharashtra-cm-pinarayi-vijayan-imran-khan-clat-judiciary-legal-news-uapa-amit-shah-rahul-gandhi-news-india-556031
-
-[Read on Telegram](https://t.me/livelawindia/123189)
-
----
-### 2026-10-26T14:14:10+00:00
-LiveLaw Allahabad High Court Weekly Round-Up: October 19 - October 25, 2026
-https://www.livelaw.in/round-ups/weekly/allahabad-high-court-weekly-roundup-october-19-october-25-2026-556033
-
-[Read on Telegram](https://t.me/livelawindia/123190)
-
----
-### 2026-10-26T14:33:03+00:00
-Beyond Bars: Why Supreme Court's Landmark Ruling On Grounds Of Arrest Is Triumph For Constitutionalism
-https://cmsv3site.livelaw.in/lawschool/articles/beyond-bars-why-supreme-court-landmark-ruling-grounds-arrest-triumph-constitutionalism-555731
-
-[Read on Telegram](https://t.me/livelawindia/123191)
-
----
-### 2026-10-26T14:33:20+00:00
-Beyond Bars: Why Supreme Court's Landmark Ruling On Grounds Of Arrest Is Triumph For Constitutionalism
-https://www.livelaw.in/lawschool/articles/beyond-bars-why-supreme-court-landmark-ruling-grounds-arrest-triumph-constitutionalism-555731
-
-[Read on Telegram](https://t.me/livelawindia/123192)
-
----
 ### 2026-10-26T14:52:00+00:00
 Bombay High Court Criticises Celebrities Charging For Anti-Firecracker Campaign, Says They Must Give Back To Society
 https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-criticises-celebrities-charging-for-anti-firecracker-campaign-says-they-must-give-back-to-society-556034
@@ -142,5 +86,61 @@ Calcutta High Court Orders Social Media Sites To Remove Video Alleging Modi-Adan
 https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-orders-removal-of-youtube-video-alleging-modi-adani-stole-india-556058
 
 [Read on Telegram](https://t.me/livelawindia/123204)
+
+---
+### 2026-10-27T02:33:15+00:00
+Mandatory Listing, Missing Enforcement: Default Ladder For Upper-Layer NBFCs
+https://www.livelaw.in/lawschool/articles/mandatory-listing-missing-enforcement-default-ladder-upper-layer-nbfc-555943
+
+[Read on Telegram](https://t.me/livelawindia/123205)
+
+---
+### 2026-10-27T03:21:46+00:00
+Plea Against ECI, CEC Gyanesh Kumar, SIR Decisions : Live Updates From Supreme Court
+https://www.livelaw.in/top-stories/plea-against-eci-cec-gyanesh-kumar-sir-decisions-live-updates-from-supreme-court-556059
+
+[Read on Telegram](https://t.me/livelawindia/123206)
+
+---
+### 2026-10-27T03:22:46+00:00
+Lay's Chips Packet Weighed 4 Grams Against Declared 15 Grams: Jaipur Consumer Commission Orders PepsiCo To Pay Compensation
+https://www.livelaw.in/consumer-cases/jaipur-consumer-consumer-lays-chips-short-weight-pepsico-556060
+
+[Read on Telegram](https://t.me/livelawindia/123207)
+
+---
+### 2026-10-27T03:33:46+00:00
+LiveLaw Breaking News Alerts:27 October 2026
+https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts27-october-2026-556061
+
+[Read on Telegram](https://t.me/livelawindia/123208)
+
+---
+### 2026-10-27T03:38:16+00:00
+Can Election Expenses Be Recovered From Candidate Who Resigns To Re-Contest For Another Party? Supreme Court To Decide
+https://www.livelaw.in/top-stories/supreme-court-aiadmk-mla-resignation-to-re-contest-bye-elections-tamil-nadu-election-expenditure-recovery-plea-notice-issued-556052
+
+[Read on Telegram](https://t.me/livelawindia/123209)
+
+---
+### 2026-10-27T04:10:36+00:00
+In Electricity Theft Cases,High Courts Can Restore Supply On 50% Deposit If Provisional Assessment Appears Arbitrary : Supreme Court
+https://www.livelaw.in/supreme-court/in-electricity-theft-caseshigh-courts-can-restore-supply-on-50-deposit-if-provisional-assessment-appears-arbitrary-supreme-court-556065
+
+[Read on Telegram](https://t.me/livelawindia/123210)
+
+---
+### 2026-10-27T04:11:36+00:00
+2026 LiveLaw (SC) 1087 | DAKSHIN GUJARAT VIJ COMPANY LIMITED & ANR. VERSUS VAIBHAV METAL CRUSHER (with connected case)
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1087-dakshin-gujarat-vij-company-limited-anr-versus-vaibhav-metal-crusher-with-connected-case-556066
+
+[Read on Telegram](https://t.me/livelawindia/123211)
+
+---
+### 2026-10-27T04:21:36+00:00
+Prescribed Authority Under UP Ceiling Act Not A Civil Court, Its Orders Are Amenable To Article 226: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-prescribed-authority-civil-court-order-challengeable-article226-556068
+
+[Read on Telegram](https://t.me/livelawindia/123212)
 
 ---
