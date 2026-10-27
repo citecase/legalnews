@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-27T12:32:58+00:00*
+*Last Updated: 2026-10-27T12:46:28+00:00*
 
 ---
 
-### 2026-10-27T12:32:58+00:00
-Procedural Defect Pointed Out By Opposite Party Does Not Create Absolute Bar Against Rectification By Amendment: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/procedural-defect-pointed-out-by-opposite-party-does-not-create-absolute-bar-against-rectification-by-amendment-jk-high-court-556107
-
-[Read on Telegram](https://t.me/livelawindia/123281)
-
----
 ### 2026-10-27T12:46:28+00:00
 “No” Means “No”: HP High Court Denies Anticipatory Bail, Says Mere Relationship Does Not Imply Consent To Sexual Acts
 https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-denies-anticipatory-bail-relationship-does-not-imply-consent-sexual-acts-556189
@@ -142,5 +135,12 @@ Supreme Court Daily Round-Up : October 27, 2026
 https://www.livelaw.in/top-stories/supreme-court-daily-round-up-october-27-2026-556232
 
 [Read on Telegram](https://t.me/livelawindia/123300)
+
+---
+### 2026-10-27T17:47:30+00:00
+Non-Hindus Wearing Religious Markers Can't Enter Agamic Temples Without Affirming 'Reverence' To Deity: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/non-hindus-wearing-religious-markers-enter-agamic-temples-556233
+
+[Read on Telegram](https://t.me/livelawindia/123301)
 
 ---
