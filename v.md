@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-26T16:03:00+00:00*
+*Last Updated: 2026-10-27T05:02:24+00:00*
+
+---
+
+### 2026-10-27T05:02:24+00:00
+Supreme Court Collegium Recommends 9 Judges For Two High Courts, 4 Judges For Elevation As Chief Justices
+https://www.verdictum.in/supreme-court/collegium-recommends-9-judges-for-two-high-courts-4-judges-for-elevation-as-chief-justices-1624667
+
+[Source Link](https://t.me/verdictumlegalupdates/29893)
+
+---
+
+### 2026-10-27T04:32:53+00:00
+Alternate Remedy U/S.20(3) Of HAMA No Bar To Unmarried Major Daughter’s Claim To Maintenance U/S.125 CrPC: Bombay High Court
+https://www.verdictum.in/bombay-high-court/a-v-b-2026bhc-nag13753-alternate-remedy-hama-maintenance-section-125-crpc-1624658
+
+[Source Link](https://t.me/verdictumlegalupdates/29892)
 
 ---
 
@@ -145,22 +161,6 @@ Supreme Court Seeks Tripura & TTAADC Response To PIL Challenging Provision Of Cu
 https://www.verdictum.in/supreme-court/tripura-ttaadc-response-to-pil-challenging-provision-of-customary-law-1624633
 
 [Source Link](https://t.me/verdictumlegalupdates/29874)
-
----
-
-### 2026-10-26T07:01:26+00:00
-Power Under Article 226 Constitution To Order Investigation Is In No Way Restrained By Any Other Statutory Provisions: Kerala High Court
-https://www.verdictum.in/kerala-high-court/m-r-ajayan-v-the-director-cbi-2026ker81401-ed-officials-vacb-probe-into-bribery-case-1624632
-
-[Source Link](https://t.me/verdictumlegalupdates/29873)
-
----
-
-### 2026-10-26T06:33:15+00:00
-Domestic Enquiry Which May Culminate In Employee's Dismissal Cannot Be Treated As Mere Formality: Kerala High Court
-https://www.verdictum.in/kerala-high-court/r-nitya-v-dhanlaxmi-bank-ltd-2026ker77180-domestic-enquiry-dismissal-of-employee-1624630
-
-[Source Link](https://t.me/verdictumlegalupdates/29872)
 
 ---
 
