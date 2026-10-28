@@ -1,6 +1,118 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-28T05:52:26+00:00*
+*Last Updated: 2026-10-28T13:02:22+00:00*
+
+---
+
+### 2026-10-28T13:02:22+00:00
+Life Sentences Awarded For Multiple Offences In Single Trial Can’t Be Directed To Run Consecutively; Remission In One Won’t Result in Remission In Other: Supreme Court
+https://www.verdictum.in/supreme-court/raju-shantaram-koli-v-the-state-of-maharashtra-2026-insc-1161-life-sentences-remission-commutation-1624731
+
+[Source Link](https://t.me/verdictumlegalupdates/29928)
+
+---
+
+### 2026-10-28T12:33:01+00:00
+Issue Pertains To Entire Institution Of Judiciary: Apex Court Directs Sanjay Raut To Appear In Person  In Contempt Case Over Remarks On CJI
+https://www.verdictum.in/supreme-court/sanjay-raut-appear-person-on-nov-17-contempt-case-over-remarks-cji-surya-kant-1624730
+
+[Source Link](https://t.me/verdictumlegalupdates/29927)
+
+---
+
+### 2026-10-28T12:02:40+00:00
+Agreement to Sell Does Not Convey Title; Suit for Bare Injunction Restraining Vendor From Selling Property To Others Not Maintainable: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/kiledar-singh-deceased-through-lrs-v-anil-kumar-2026mphc-gwl32136-non-executant-of-a-sale-deed-1624729
+
+[Source Link](https://t.me/verdictumlegalupdates/29926)
+
+---
+
+### 2026-10-28T11:32:59+00:00
+Supreme Court Dismisses Review Petitions Against Verdict Upholding State Power To Ban Betting On Online Rummy, Poker
+https://www.verdictum.in/supreme-court/dismisses-review-petitions-verdict-upholding-state-power-ban-betting-online-rummy-poker-1624727
+
+[Source Link](https://t.me/verdictumlegalupdates/29925)
+
+---
+
+### 2026-10-28T11:02:38+00:00
+Trial Courts Must Verify Parties Understand Lok Adalat Settlement Terms; Should Obtain Signatures On Every Page: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/gangavva-v-vishwanath-and-others-2026khc-d15357-compromise-petiton-1624725
+
+[Source Link](https://t.me/verdictumlegalupdates/29924)
+
+---
+
+### 2026-10-28T10:16:17+00:00
+We Haven't Finally Adjudicated On Legality Of Logical Discrepancy: Apex Court Remarks As It Asks ECI To Streamline Electoral Roll Inclusions In Delhi SIR
+https://www.verdictum.in/supreme-court/remarks-after-asking-eci-streamline-electoral-roll-inclusions-delhi-sir-1624724
+
+[Source Link](https://t.me/verdictumlegalupdates/29923)
+
+---
+
+### 2026-10-28T10:03:16+00:00
+Supreme Court Seeks Centre’s Response On Plea Flagging Transgender Law’s Impact On Women’s Reservations, Safeguards
+https://www.verdictum.in/supreme-court/plea-flagging-transgender-laws-impact-on-womens-reservations-safeguards-1624723
+
+[Source Link](https://t.me/verdictumlegalupdates/29922)
+
+---
+
+### 2026-10-28T09:32:52+00:00
+Children’s Court Must Independently Decide Whether Child Needs Adult Trial After JJB’s Preliminary Assessment: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/juvenile-x-v-state-of-up-and-another-2026ahc222817-juvenile-trial-adult-1624721
+
+[Source Link](https://t.me/verdictumlegalupdates/29921)
+
+---
+
+### 2026-10-28T09:01:11+00:00
+Financial Creditor’s Role In Navigating Corporate Debtor’s Policy Suffices For Related-Party Status, Barring CoC Participation Under IBC: Supreme Court
+https://www.verdictum.in/supreme-court/ecl-finance-limited-and-another-v-abhinav-mukherjee-and-others-2026-insc-1159-1624720
+
+[Source Link](https://t.me/verdictumlegalupdates/29920)
+
+---
+
+### 2026-10-28T08:32:10+00:00
+Rape & POCSO Convicts Not Absolutely Barred From Open-Air Camps; Individual Assessment Required: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/gangaram-v-state-of-rajasthan-and-others-2026rj-jp40987-db-open-air-camps-1624717
+
+[Source Link](https://t.me/verdictumlegalupdates/29919)
+
+---
+
+### 2026-10-28T08:02:49+00:00
+“Digital Dacoity”: Supreme Court Refuses To Club 30  Cyber Fraud Cases Against Two Accused
+https://www.verdictum.in/supreme-court/30-cyber-fraud-cases-against-two-accused-digital-dacoity-1624715
+
+[Source Link](https://t.me/verdictumlegalupdates/29918)
+
+---
+
+### 2026-10-28T07:32:28+00:00
+Absence Of Proof Of Fatal Injuries Does Not By Itself Absolve Members Of Unlawful Assembly: Delhi High Court Upholds Conviction Of Five In 2020 Delhi Riots Case
+https://www.verdictum.in/delhi-high-court/aman-kashyap-v-state-of-nct-of-delhi-2026dhc9442-delhi-riots-north-east-deaths-1624714
+
+[Source Link](https://t.me/verdictumlegalupdates/29917)
+
+---
+
+### 2026-10-28T07:03:07+00:00
+Subsequent Overstay Of Foreign Citizen Accused Cannot Attract S. 43D(7) UAPA Bar Unless Initial Entry Was Unauthorized or Illegal: Supreme Court
+https://www.verdictum.in/supreme-court/union-of-india-v-mohamed-rifas-mohamed-rigbas-2026-insc-1160-subsequent-overstay-uapa-1624713
+
+[Source Link](https://t.me/verdictumlegalupdates/29916)
+
+---
+
+### 2026-10-28T06:32:46+00:00
+Non-Hindus Not Signing Undertaking Can't Cross Flag-Pole In Agamic Temples: Madras High Court Reiterates
+https://www.verdictum.in/madras-high-court/thangam-venkatesh-v-state-of-tamil-nadu-wpmd-no-30452-of-2026-agamic-temples-chamchagiri-optics-1624710
+
+[Source Link](https://t.me/verdictumlegalupdates/29915)
 
 ---
 
@@ -49,118 +161,6 @@ Unmarried Sister Entitled To Personal Accident Death Benefit Under Kisan Yojana 
 https://www.verdictum.in/allahabad-high-court/kmvidyawati-v-state-of-up-2026ahc221877-db-unmarried-sister-death-benefit-kisan-yojana-1624692
 
 [Source Link](https://t.me/verdictumlegalupdates/29909)
-
----
-
-### 2026-10-27T13:52:36+00:00
-OCI Cardholders Must Obtain Special Permission To Undertake Missionary Preaching In India: Madras High Court
-https://www.verdictum.in/madras-high-court/john-daniel-v-union-of-india-and-others-2026mhc4303-oci-card-holder-religion-preaching-1624691
-
-[Source Link](https://t.me/verdictumlegalupdates/29908)
-
----
-
-### 2026-10-27T13:12:15+00:00
-Bombay High Court Keeps 'Leave India' Notice To Actor Imran Khan In Abeyance For A Week
-https://www.verdictum.in/bombay-high-court/leave-india-notice-to-actor-imran-khan-in-abeyance-for-a-week-1624690
-
-[Source Link](https://t.me/verdictumlegalupdates/29907)
-
----
-
-### 2026-10-27T12:32:34+00:00
-Mahua Moitra Agrees Before Delhi High Court To Remove Defamatory Posts On 'X' Against BJP MP Nishikant Dubey
-https://www.verdictum.in/delhi-high-court/mahua-moitra-to-remove-defamatory-posts-on-x-against-bjp-mp-nishikant-dubey-1624689
-
-[Source Link](https://t.me/verdictumlegalupdates/29906)
-
----
-
-### 2026-10-27T11:52:13+00:00
-Why Is Entire System Working To Help Pharma Manufacturers: Supreme Court Asks Centre Over Gap Between MRP & Retail Price Of Medicines
-https://www.verdictum.in/supreme-court/centre-over-gap-between-mrp-retail-price-of-medicines-1624684
-
-[Source Link](https://t.me/verdictumlegalupdates/29905)
-
----
-
-### 2026-10-27T11:11:52+00:00
-Supreme Court Seeks Centre’s Response On Plea To Transfer PIL Seeking National Anthem Status For ‘Vande Mataram’ From Delhi HC
-https://www.verdictum.in/supreme-court/seeks-centre-response-transfer-pil-seeking-national-anthem-status-vande-mataram-delhi-hc-1624686
-
-[Source Link](https://t.me/verdictumlegalupdates/29904)
-
----
-
-### 2026-10-27T10:32:11+00:00
-Writ Court Can Restore Electricity Supply On Minimum 50% Deposit If Provisional Assessment In Theft Case Is Prima Facie Arbitrary: Supreme Court
-https://www.verdictum.in/supreme-court/dakshin-gujarat-vij-company-v-vaibhav-metal-crusher-with-paschim-gujarat-vij-company-v-jamanbhai-nanajibhai-bhuva-2026-insc-1157-1624682
-
-[Source Link](https://t.me/verdictumlegalupdates/29903)
-
----
-
-### 2026-10-27T09:53:00+00:00
-Supreme Court Gives Centre Four Weeks To Place Policy Regime On Child Sexual Abuse Material, Non-Consensual Intimate Content Online
-https://www.verdictum.in/supreme-court/centre-four-weeks-place-policy-regime-child-sexual-abuse-material-non-consensual-intimate-content-online-1624683
-
-[Source Link](https://t.me/verdictumlegalupdates/29902)
-
----
-
-### 2026-10-27T09:12:39+00:00
-Principle Of Finality Of Litigation Shouldn't Become An Engine Of Fraud: Supreme Court Reiterates
-https://www.verdictum.in/supreme-court/n-arasappa-v-state-of-karnataka-and-others-2026-insc-1151-res-judicata-1624681
-
-[Source Link](https://t.me/verdictumlegalupdates/29901)
-
----
-
-### 2026-10-27T08:33:58+00:00
-Definition From Another Statute Applies Only If Laws Are Pari Materia Or Legislature Adopts It By Reference Or Incorporation: Supreme Court
-https://www.verdictum.in/supreme-court/the-assessing-officer-textiles-committee-v-ms-premium-suiting-private-limited-and-another-2026-insc-1158-1624677
-
-[Source Link](https://t.me/verdictumlegalupdates/29900)
-
----
-
-### 2026-10-27T08:02:57+00:00
-This Court Is Not Only The Court Of Law But Also A Court Of Equity: Supreme Court Directs ₹125 Crore Payment To Settle Loan Dispute
-https://www.verdictum.in/allahabad-high-court/atibir-industries-co-ltd-v-state-bank-of-india-and-another-2026-insc-1156-1624676
-
-[Source Link](https://t.me/verdictumlegalupdates/29899)
-
----
-
-### 2026-10-27T07:33:16+00:00
-Material Relating To Private Body Which Can Be Accessed By Public Authority Can Also Fall Under Definition Of Information Under RTI Act: Supreme Court
-https://www.verdictum.in/supreme-court/the-muppathadam-service-co-operative-bank-ltd-v-the-state-chief-information-commissioner-2026-insc-1153-1624675
-
-[Source Link](https://t.me/verdictumlegalupdates/29898)
-
----
-
-### 2026-10-27T07:03:15+00:00
-Stamp Act| Refund Claims Cannot Be Rejected Merely Because Original ESBTRs Are Not Physically Available: Bombay High Court
-https://www.verdictum.in/bombay-high-court/anita-jayant-oswal-v-joint-district-registrar-and-collector-of-stamps-2026bhc-as43379-1624674
-
-[Source Link](https://t.me/verdictumlegalupdates/29897)
-
----
-
-### 2026-10-27T06:16:14+00:00
-You Are The Best Person To Suggest How To Ensure No Misuse: Supreme Court Issues Notice on Digital News Publishers Association’s Plea Challenging DPDP Act
-https://www.verdictum.in/supreme-court/issues-notice-on-digital-news-publishers-associations-plea-challenging-dpdp-act-1624672
-
-[Source Link](https://t.me/verdictumlegalupdates/29896)
-
----
-
-### 2026-10-27T06:02:46+00:00
-Government Approval U/S 3(f)(vi) Land Acquisition Act Must Be For Actual Cooperative Housing Scheme With Layout & Blueprint, Not Mere Requisitions: Supreme Court
-https://www.verdictum.in/supreme-court/-n-arasappa-v-state-of-karnataka-and-others-2026-insc-1151-land-acquisition-act-1624671
-
-[Source Link](https://t.me/verdictumlegalupdates/29895)
 
 ---
 
