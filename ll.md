@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-28T02:32:34+00:00*
+*Last Updated: 2026-10-28T09:22:39+00:00*
 
 ---
 
-### 2026-10-28T02:32:34+00:00
-Applying Kant's Epistemology To Legal Fact-Finding, Judgment Writing And Quest For Truth
-https://www.livelaw.in/articles/applying-kant-epistemology-legal-fact-finding-judgment-writing-quest-truth-556040
+### 2026-10-28T09:22:39+00:00
+Supreme Court Asks Nikhil Wagle To Appear Virtually & Sanjay Raut Physically In Contempt Case Over Comments Against CJI
+https://www.livelaw.in/top-stories/supreme-court-asks-nikhil-wagle-to-appear-virtually-sanjay-raut-physically-in-contempt-case-over-comments-against-cji-556310
 
-[Read on Telegram](https://t.me/livelawindia/123302)
-
----
-### 2026-10-28T02:42:04+00:00
-LiveLaw Bombay High Court Quarterly Digest: July - September, 2026
-https://www.livelaw.in/high-court/bombay-high-court/livelaw-bombay-high-court-quarterly-digest-july-september-2026-556235
-
-[Read on Telegram](https://t.me/livelawindia/123303)
+[Read on Telegram](https://t.me/livelawindia/123351)
 
 ---
-### 2026-10-28T03:17:36+00:00
-Gujarat High Court To Hear Next Month Asaram's Appeal Against Rape Conviction, Life Sentence
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-asaram-rape-conviction-life-sentence-556237
+### 2026-10-28T09:23:19+00:00
+2019 Rash Driving Case: Kerala High Court Asks Why Prosecutor From Another Court Assigned To Try IAS Officer Sreeram Venkitaraman
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-2019-rash-driving-sreeram-venkitaraman-ias-556309
 
-[Read on Telegram](https://t.me/livelawindia/123304)
-
----
-### 2026-10-28T03:17:56+00:00
-Karnataka High Court Warns Non-Compliant Bengaluru PGs Of Sealing, Gives Operators One Week To Submit Compliance Plan
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-warns-pg-owners-sealing-directs-affidavit-compliance-timeline-556239
-
-[Read on Telegram](https://t.me/livelawindia/123305)
+[Read on Telegram](https://t.me/livelawindia/123352)
 
 ---
-### 2026-10-28T03:31:36+00:00
-Collegium System Works Just Like Government Appointing Judges : Justice Rekha Sharma
-https://www.livelaw.in/top-stories/collegium-system-works-just-like-government-appointing-judges-justice-rekha-sharma-556241
+### 2026-10-28T09:33:19+00:00
+Kerala High Court Seeks Clarification On Whether Vigilance Inquiries Against Officials Are Exempt From Disclosure Under RTI Act
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-vigilance-inquiries-officials-vacb-rti-act-556312
 
-[Read on Telegram](https://t.me/livelawindia/123306)
-
----
-### 2026-10-28T03:32:16+00:00
-Rajasthan High Court Stays Conviction Of Man Whose Appeal Is Pending Since 2013, Allows Him To Contest Panchayat Polls
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-stays-2013conviction-allows-petitioner-contest-panchayat-election-pending-appeal-556234
-
-[Read on Telegram](https://t.me/livelawindia/123307)
+[Read on Telegram](https://t.me/livelawindia/123353)
 
 ---
-### 2026-10-28T03:33:36+00:00
-S. 43B Income Tax | Unpaid Excise Duty Cannot Be Disallowed If No Deduction Was Claimed : Supreme Court
-https://www.livelaw.in/supreme-court/s-43b-income-tax-unpaid-excise-duty-cannot-be-disallowed-if-no-deduction-was-claimed-supreme-court-556243
+### 2026-10-28T09:44:59+00:00
+Mini Cooper Crash: Kerala Court Rejects Bail Pleas Of 4 Accused
+https://www.livelaw.in/news-updates/kerala-court-mini-cooper-crash-bail-denied-556313
 
-[Read on Telegram](https://t.me/livelawindia/123308)
-
----
-### 2026-10-28T03:34:36+00:00
-2026 LiveLaw (SC) 1092 | M/S. LAKSHMI SUGAR MILLS CO. LTD. VERSUS COMMISSIONER OF INCOME TAX, DELHI -II
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1092-ms-lakshmi-sugar-mills-co-ltd-versus-commissioner-of-income-tax-delhi-ii-556244
-
-[Read on Telegram](https://t.me/livelawindia/123309)
+[Read on Telegram](https://t.me/livelawindia/123354)
 
 ---
-### 2026-10-28T03:37:36+00:00
-Allahabad High Court Bar Association Threatens To Boycott Justice Ajay Bhanot's Court Over Alleged Humiliation Of An Advocate
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-bar-association-accuses-justice-ajay-bhanot-556245
+### 2026-10-28T10:37:30+00:00
+IGNOU Regional Centres In J&K Are Permanent Establishments With Cadre Posts: High Court Directs Consideration Of Regularisation Of Daily Wagers
+https://www.livelaw.in/high-court/jammu-kashmir/ignou-regional-centres-in-jk-are-in-permanent-establishment-mode-with-cadre-posts-jk-high-court-directs-consideration-of-regularisation-of-daily-wagers-556273
 
-[Read on Telegram](https://t.me/livelawindia/123310)
-
----
-### 2026-10-28T03:47:17+00:00
-Co-operative Society Employee Need Not Exhaust Departmental Appeal Before Approaching Labour Court: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-co-operative-society-employee-departmental-appeal-before-labour-court-556236
-
-[Read on Telegram](https://t.me/livelawindia/123311)
+[Read on Telegram](https://t.me/livelawindia/123355)
 
 ---
-### 2026-10-28T03:51:27+00:00
-Hyderabad Consumer Commission Holds Interior Company Liable For Mismatch Between Promised Designs And Executed Work
-https://www.livelaw.in/consumer-cases/hyderabad-consumer-commission-holds-interior-company-liable-for-mismatch-between-promised-designs-and-executed-work-556246
+### 2026-10-28T10:44:50+00:00
+Delhi SIR : Why Deleted Voters Asked To File Form 6 When They Were On 2026 Rolls? Supreme Court Asks ECI
+https://www.livelaw.in/top-stories/delhi-sir-why-deleted-voters-asked-to-file-form-6-when-they-were-on-2026-rolls-supreme-court-asks-eci-556328
 
-[Read on Telegram](https://t.me/livelawindia/123312)
-
----
-### 2026-10-28T04:02:47+00:00
-AP High Court Upholds Police Officer's Pay Reduction For Concealing Misfire, Says Negligence In Duty Can't Be Condoned
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-rejects-reserve-inspector-plea-pay-reduction-concealing-misfire-556238
-
-[Read on Telegram](https://t.me/livelawindia/123313)
+[Read on Telegram](https://t.me/livelawindia/123356)
 
 ---
-### 2026-10-28T04:18:07+00:00
-Detaining Child In Observation Home Despite Father Willing To Take Responsibility Defeats Reformative Purpose Of JJ Act: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-prolonged-detention-not-allowed-under-juvenile-justice-act-if-natural-guardian-ready-to-take-responsibility-556240
+### 2026-10-28T10:45:00+00:00
+'Even Roads Outside High Court Are Used For Parking': Delhi High Court Remarks In PIL Against Footpath Encroachments
+https://www.livelaw.in/high-court/delhi-high-court/even-roads-outside-high-court-are-used-for-parking-delhi-high-court-remarks-in-pil-against-footpath-encroachments-556329
 
-[Read on Telegram](https://t.me/livelawindia/123314)
-
----
-### 2026-10-28T04:32:27+00:00
-Birth Register Alone Not Enough To Prove Victim's Age Without Establishing Source Of Information: Gujarat High Court Upholds POCSO Acquittal
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-pocso-acquittal-age-birth-register-source-556242
-
-[Read on Telegram](https://t.me/livelawindia/123315)
+[Read on Telegram](https://t.me/livelawindia/123357)
 
 ---
-### 2026-10-28T04:33:27+00:00
-Allahabad High Court Questions Omission Of 138 Amethi Residents' Names From Final Voter List Despite Inclusion In Draft Roll
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-138-amethi-residents-names-missing-final-voter-list-556249
+### 2026-10-28T11:04:00+00:00
+Anti-CEC Protests: Delhi High Court Declines PIL Seeking 'Community Fine' From CJP For Public Disruption, Cites Pending SC Proceedings
+https://www.livelaw.in/high-court/delhi-high-court/anti-cec-protests-delhi-high-court-declines-pil-seeking-community-fine-from-cjp-for-public-disruption-cites-pending-sc-proceedings-556332
 
-[Read on Telegram](https://t.me/livelawindia/123316)
-
----
-### 2026-10-28T04:33:37+00:00
-Apprenticeship Training At Meghalaya Energy Corporation Limited
-https://www.livelaw.in/job-updates/apprenticeship-training-at-meghalaya-energy-corporation-limited-556250
-
-[Read on Telegram](https://t.me/livelawindia/123317)
+[Read on Telegram](https://t.me/livelawindia/123358)
 
 ---
-### 2026-10-28T04:35:27+00:00
-Consultant (Placement & Career Development) Vacancy At National Law University, Delhi
-https://www.livelaw.in/job-updates/consultant-placement-career-development-vacancy-at-national-law-university-delhi-556251
+### 2026-10-28T11:17:00+00:00
+S. 69 BNS | Woman's Education, Financial Independence Doesn't Rule Out Consent Obtained By Deception: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/woman-education-does-not-rule-out-consent-obtained-by-deception-false-promise-to-marry-556334
 
-[Read on Telegram](https://t.me/livelawindia/123318)
-
----
-### 2026-10-28T04:40:17+00:00
-Senior Associate (Office Support)-Law Vacancy At NPCC Limited
-https://www.livelaw.in/job-updates/senior-associate-office-support-law-vacancy-at-npcc-limited-556254
-
-[Read on Telegram](https://t.me/livelawindia/123319)
+[Read on Telegram](https://t.me/livelawindia/123359)
 
 ---
-### 2026-10-28T04:41:17+00:00
-Research Scholar Vacancy At Rajasthan State Judicial Academy
-https://www.livelaw.in/job-updates/research-scholar-vacancy-at-rajasthan-state-judicial-academy-556256
+### 2026-10-28T11:17:10+00:00
+National Law University Delhi's Journal of Legal Studies Invites Submissions For Volume IX
+https://www.livelaw.in/lawschool/call-for-papers/national-law-university-delhis-journal-of-legal-studies-invites-submissions-for-volume-ix-556335
 
-[Read on Telegram](https://t.me/livelawindia/123320)
+[Read on Telegram](https://t.me/livelawindia/123360)
 
 ---
-### 2026-10-28T04:48:17+00:00
-LiveLaw Breaking News Alerts: 28 October 2026
-https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts-28-october-2026-556259
+### 2026-10-28T11:27:20+00:00
+'Logical Discrepancy' Category Allowed In Bengal SIR As Interim Arrangement, It's Legality Yet To Be Decided : Supreme Court
+https://www.livelaw.in/top-stories/logical-discrepancy-category-allowed-in-bengal-sir-as-interim-arrangement-its-legality-yet-to-be-decided-supreme-court-556338
 
-[Read on Telegram](https://t.me/livelawindia/123321)
+[Read on Telegram](https://t.me/livelawindia/123361)
+
+---
+### 2026-10-28T11:28:00+00:00
+'Process Of Justice Must Never Become Another Wound': Karnataka High Court On Repeated Cross-Examination Of Minor Rape Survivor
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-order-recalling-child-victim-repeated-cross-examination-556337
+
+[Read on Telegram](https://t.me/livelawindia/123362)
+
+---
+### 2026-10-28T11:32:20+00:00
+AITUC Moves Supreme Court Challenging 'Industry' Definition In Industrial Relations Code 2020
+https://www.livelaw.in/top-stories/supreme-court-plea-filed-against-section-2p-exclusions-industrial-relations-code-definition-of-industry-charitable-establishments-556339
+
+[Read on Telegram](https://t.me/livelawindia/123363)
+
+---
+### 2026-10-28T11:35:50+00:00
+Allahabad High Court Mulls Contempt Action Against Advocates Over Sloganeering, Ruckus In Court Corridors
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-contempt-action-advocates-court-disruption-justice-ajay-bhanot-556341
+
+[Read on Telegram](https://t.me/livelawindia/123364)
+
+---
+### 2026-10-28T11:51:50+00:00
+MP High Court Raps Govt Official For Appearing In Underpants During VC Hearing, Orders Disciplinary Action
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/state-officer-appeared-in-underpants-from-bed-during-vc-hearing-556346
+
+[Read on Telegram](https://t.me/livelawindia/123365)
+
+---
+### 2026-10-28T11:52:30+00:00
+HNLU-UNCITRAL RCAP To Organise International Symposium On Access To Credit For MSMEs On December 8
+https://www.livelaw.in/lawschool/call-for-papers/hnlu-uncitral-rcap-organise-international-symposium-access-credit-msmes-556347
+
+[Read on Telegram](https://t.me/livelawindia/123366)
+
+---
+### 2026-10-28T11:52:40+00:00
+No Equity Or Permission To Construct Can Be Extended To Party Accused Of Disobeying Court Orders: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/no-equity-or-permission-to-construct-can-be-extended-to-party-accused-of-disobeying-court-orders-jk-high-court-556278
+
+[Read on Telegram](https://t.me/livelawindia/123367)
+
+---
+### 2026-10-28T12:02:30+00:00
+Trusteeship Of Public Charitable Trust Prima Facie Cannot Be Bequeathed Through Will: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-trusteeship-of-public-charitable-trust-is-a-personal-office-and-cannot-be-bequeathed-by-will-556348
+
+[Read on Telegram](https://t.me/livelawindia/123368)
+
+---
+### 2026-10-28T12:20:40+00:00
+Supreme Court Upholds Bombay High Court Ruling Setting Aside ₹8,415 Crore YES Bank AT-1 Bond Write-Down
+https://www.livelaw.in/law-firms/litigation/supreme-court-upholds-bombay-high-court-ruling-setting-aside-8415-crore-yes-bank-at-1-bond-write-down-556351
+
+[Read on Telegram](https://t.me/livelawindia/123369)
+
+---
+### 2026-10-28T12:26:00+00:00
+P&H High Court Emphasizes "Humanized Confinement", Says Life Convict's Need To Care For Disabled Son Relevant For Parole
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/parole-to-life-convict-care-for-disabled-son-556353
+
+[Read on Telegram](https://t.me/livelawindia/123370)
 
 ---
