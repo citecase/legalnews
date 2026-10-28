@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-28T09:22:39+00:00*
+*Last Updated: 2026-10-28T13:00:40+00:00*
 
 ---
 
-### 2026-10-28T09:22:39+00:00
-Supreme Court Asks Nikhil Wagle To Appear Virtually & Sanjay Raut Physically In Contempt Case Over Comments Against CJI
-https://www.livelaw.in/top-stories/supreme-court-asks-nikhil-wagle-to-appear-virtually-sanjay-raut-physically-in-contempt-case-over-comments-against-cji-556310
+### 2026-10-28T13:00:40+00:00
+'Digital Dacoity' : Supreme Court Calls For Strong Action Against Cyber Crimes
+https://www.livelaw.in/top-stories/supreme-court-refuses-to-entertain-consolidation-plea-of-digital-arrest-accused-ruthless-criminals-targeting-senior-citizens-punish-even-before-trial-556362
 
-[Read on Telegram](https://t.me/livelawindia/123351)
-
----
-### 2026-10-28T09:23:19+00:00
-2019 Rash Driving Case: Kerala High Court Asks Why Prosecutor From Another Court Assigned To Try IAS Officer Sreeram Venkitaraman
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-2019-rash-driving-sreeram-venkitaraman-ias-556309
-
-[Read on Telegram](https://t.me/livelawindia/123352)
+[Read on Telegram](https://t.me/livelawindia/123377)
 
 ---
-### 2026-10-28T09:33:19+00:00
-Kerala High Court Seeks Clarification On Whether Vigilance Inquiries Against Officials Are Exempt From Disclosure Under RTI Act
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-vigilance-inquiries-officials-vacb-rti-act-556312
+### 2026-10-28T13:06:30+00:00
+UNUC Legal LLP Launches Italy Desk for International Arbitration and Cross-Border Dispute Resolution
+https://www.livelaw.in/law-firms/deals/unuc-legal-llp-launches-italy-desk-for-international-arbitration-and-cross-border-dispute-resolution-556364
 
-[Read on Telegram](https://t.me/livelawindia/123353)
-
----
-### 2026-10-28T09:44:59+00:00
-Mini Cooper Crash: Kerala Court Rejects Bail Pleas Of 4 Accused
-https://www.livelaw.in/news-updates/kerala-court-mini-cooper-crash-bail-denied-556313
-
-[Read on Telegram](https://t.me/livelawindia/123354)
+[Read on Telegram](https://t.me/livelawindia/123378)
 
 ---
-### 2026-10-28T10:37:30+00:00
-IGNOU Regional Centres In J&K Are Permanent Establishments With Cadre Posts: High Court Directs Consideration Of Regularisation Of Daily Wagers
-https://www.livelaw.in/high-court/jammu-kashmir/ignou-regional-centres-in-jk-are-in-permanent-establishment-mode-with-cadre-posts-jk-high-court-directs-consideration-of-regularisation-of-daily-wagers-556273
+### 2026-10-28T13:07:30+00:00
+Karnataka High Court Restrains Power TV From Telecasting Alleged Sting Video Of Former MLA A Manjunath, Cites Privacy Violation
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-restrains-power-tv-anchor-telecasting-private-recording-former-mla-manjunath-556361
 
-[Read on Telegram](https://t.me/livelawindia/123355)
-
----
-### 2026-10-28T10:44:50+00:00
-Delhi SIR : Why Deleted Voters Asked To File Form 6 When They Were On 2026 Rolls? Supreme Court Asks ECI
-https://www.livelaw.in/top-stories/delhi-sir-why-deleted-voters-asked-to-file-form-6-when-they-were-on-2026-rolls-supreme-court-asks-eci-556328
-
-[Read on Telegram](https://t.me/livelawindia/123356)
+[Read on Telegram](https://t.me/livelawindia/123379)
 
 ---
-### 2026-10-28T10:45:00+00:00
-'Even Roads Outside High Court Are Used For Parking': Delhi High Court Remarks In PIL Against Footpath Encroachments
-https://www.livelaw.in/high-court/delhi-high-court/even-roads-outside-high-court-are-used-for-parking-delhi-high-court-remarks-in-pil-against-footpath-encroachments-556329
+### 2026-10-28T13:10:31+00:00
+Supreme Court Asks Law Commission To Recommend Measures For Speedy Execution Of Arbitral Awards
+https://www.livelaw.in/supreme-court/supreme-court-asks-law-commission-to-recommend-measures-for-speedy-execution-of-arbitral-awards-556365
 
-[Read on Telegram](https://t.me/livelawindia/123357)
-
----
-### 2026-10-28T11:04:00+00:00
-Anti-CEC Protests: Delhi High Court Declines PIL Seeking 'Community Fine' From CJP For Public Disruption, Cites Pending SC Proceedings
-https://www.livelaw.in/high-court/delhi-high-court/anti-cec-protests-delhi-high-court-declines-pil-seeking-community-fine-from-cjp-for-public-disruption-cites-pending-sc-proceedings-556332
-
-[Read on Telegram](https://t.me/livelawindia/123358)
+[Read on Telegram](https://t.me/livelawindia/123380)
 
 ---
-### 2026-10-28T11:17:00+00:00
-S. 69 BNS | Woman's Education, Financial Independence Doesn't Rule Out Consent Obtained By Deception: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/woman-education-does-not-rule-out-consent-obtained-by-deception-false-promise-to-marry-556334
+### 2026-10-28T13:11:31+00:00
+2026 LiveLaw (SC) 1096  | M/s Royal Construction Company Pvt. Ltd. v. M/s National Projects Construction Corporation
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1096-ms-royal-construction-company-pvt-ltd-v-ms-national-projects-construction-corporation-556366
 
-[Read on Telegram](https://t.me/livelawindia/123359)
-
----
-### 2026-10-28T11:17:10+00:00
-National Law University Delhi's Journal of Legal Studies Invites Submissions For Volume IX
-https://www.livelaw.in/lawschool/call-for-papers/national-law-university-delhis-journal-of-legal-studies-invites-submissions-for-volume-ix-556335
-
-[Read on Telegram](https://t.me/livelawindia/123360)
+[Read on Telegram](https://t.me/livelawindia/123381)
 
 ---
-### 2026-10-28T11:27:20+00:00
-'Logical Discrepancy' Category Allowed In Bengal SIR As Interim Arrangement, It's Legality Yet To Be Decided : Supreme Court
-https://www.livelaw.in/top-stories/logical-discrepancy-category-allowed-in-bengal-sir-as-interim-arrangement-its-legality-yet-to-be-decided-supreme-court-556338
+### 2026-10-28T13:50:31+00:00
+St. Xavier's University Kolkata To Host Third Edition Of Ignatius Trial & Advocacy Competition From November 4
+https://www.livelaw.in/lawschool/competitions/st-xaviers-university-kolkata-host-third-edition-ignatius-trial-advocacy-competition-556370
 
-[Read on Telegram](https://t.me/livelawindia/123361)
-
----
-### 2026-10-28T11:28:00+00:00
-'Process Of Justice Must Never Become Another Wound': Karnataka High Court On Repeated Cross-Examination Of Minor Rape Survivor
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-order-recalling-child-victim-repeated-cross-examination-556337
-
-[Read on Telegram](https://t.me/livelawindia/123362)
+[Read on Telegram](https://t.me/livelawindia/123382)
 
 ---
-### 2026-10-28T11:32:20+00:00
-AITUC Moves Supreme Court Challenging 'Industry' Definition In Industrial Relations Code 2020
-https://www.livelaw.in/top-stories/supreme-court-plea-filed-against-section-2p-exclusions-industrial-relations-code-definition-of-industry-charitable-establishments-556339
+### 2026-10-28T14:02:21+00:00
+Kochi Mercedes-Benz Crash: Victim's Wife Seeks Impleadment In Kerala Govt's Plea To Cancel Minor's Bail
+https://www.livelaw.in/news-updates/kerala-mercedes-benz-crash-impleadment-bail-cancel-556371
 
-[Read on Telegram](https://t.me/livelawindia/123363)
-
----
-### 2026-10-28T11:35:50+00:00
-Allahabad High Court Mulls Contempt Action Against Advocates Over Sloganeering, Ruckus In Court Corridors
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-contempt-action-advocates-court-disruption-justice-ajay-bhanot-556341
-
-[Read on Telegram](https://t.me/livelawindia/123364)
+[Read on Telegram](https://t.me/livelawindia/123383)
 
 ---
-### 2026-10-28T11:51:50+00:00
-MP High Court Raps Govt Official For Appearing In Underpants During VC Hearing, Orders Disciplinary Action
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/state-officer-appeared-in-underpants-from-bed-during-vc-hearing-556346
+### 2026-10-28T14:17:21+00:00
+LiveLaw Daily|Brij Bhushan's Reply|RTI & Vigilance Probes|CEC|Delhi Pollution|Deleted Voters
+https://www.livelaw.in/podcast/cec-eci-jio-hotstar-zee-news-law-clat-india-lawyers-advocates-556376
 
-[Read on Telegram](https://t.me/livelawindia/123365)
-
----
-### 2026-10-28T11:52:30+00:00
-HNLU-UNCITRAL RCAP To Organise International Symposium On Access To Credit For MSMEs On December 8
-https://www.livelaw.in/lawschool/call-for-papers/hnlu-uncitral-rcap-organise-international-symposium-access-credit-msmes-556347
-
-[Read on Telegram](https://t.me/livelawindia/123366)
+[Read on Telegram](https://t.me/livelawindia/123384)
 
 ---
-### 2026-10-28T11:52:40+00:00
-No Equity Or Permission To Construct Can Be Extended To Party Accused Of Disobeying Court Orders: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/no-equity-or-permission-to-construct-can-be-extended-to-party-accused-of-disobeying-court-orders-jk-high-court-556278
+### 2026-10-28T14:23:41+00:00
+Procedural Defect In Informing Arrest Grounds Won't Lead To Bail If No Prejudice Caused To Accused : Supreme Court
+https://www.livelaw.in/supreme-court/procedural-defect-in-informing-arrest-grounds-wont-lead-to-bail-if-no-prejudice-caused-to-accused-supreme-court-556379
 
-[Read on Telegram](https://t.me/livelawindia/123367)
-
----
-### 2026-10-28T12:02:30+00:00
-Trusteeship Of Public Charitable Trust Prima Facie Cannot Be Bequeathed Through Will: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-trusteeship-of-public-charitable-trust-is-a-personal-office-and-cannot-be-bequeathed-by-will-556348
-
-[Read on Telegram](https://t.me/livelawindia/123368)
+[Read on Telegram](https://t.me/livelawindia/123385)
 
 ---
-### 2026-10-28T12:20:40+00:00
-Supreme Court Upholds Bombay High Court Ruling Setting Aside ₹8,415 Crore YES Bank AT-1 Bond Write-Down
-https://www.livelaw.in/law-firms/litigation/supreme-court-upholds-bombay-high-court-ruling-setting-aside-8415-crore-yes-bank-at-1-bond-write-down-556351
+### 2026-10-28T14:25:01+00:00
+2026 LiveLaw (SC) 1097 | STATE OF RAJASTHAN VERSUS JHABRA RAM
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1097-state-of-rajasthan-versus-jhabra-ram-556380
 
-[Read on Telegram](https://t.me/livelawindia/123369)
+[Read on Telegram](https://t.me/livelawindia/123386)
 
 ---
-### 2026-10-28T12:26:00+00:00
-P&H High Court Emphasizes "Humanized Confinement", Says Life Convict's Need To Care For Disabled Son Relevant For Parole
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/parole-to-life-convict-care-for-disabled-son-556353
+### 2026-10-28T14:30:01+00:00
+Rape Case Can't Be Quashed Solely On 'Settlement' Between Victim & Accused : Supreme Court
+https://www.livelaw.in/top-stories/rape-case-cant-be-quashed-solely-on-settlement-between-victim-accused-supreme-court-556382
 
-[Read on Telegram](https://t.me/livelawindia/123370)
+[Read on Telegram](https://t.me/livelawindia/123387)
+
+---
+### 2026-10-28T14:30:41+00:00
+2026 LiveLaw (SC) 1098 | Gopal Lodhi v State of MP & Anr
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1098-gopal-lodhi-v-state-of-mp-anr-556383
+
+[Read on Telegram](https://t.me/livelawindia/123388)
+
+---
+### 2026-10-28T14:33:01+00:00
+Thirty Films A Year: What Paramount-Warner Bros Settlement Teaches Indian Merger Control
+https://www.livelaw.in/articles/thirty-films-year-paramount-warner-bros-settlement-teaches-indian-merger-control-556047
+
+[Read on Telegram](https://t.me/livelawindia/123389)
+
+---
+### 2026-10-28T14:48:51+00:00
+UP's Forensic Lab Infra Insufficient Considering State's Size, Population: Allahabad High Court Seeks Govt's Response
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-uttar-pradesh-forensic-lab-infra-insufficient-size-population-govt-response-556389
+
+[Read on Telegram](https://t.me/livelawindia/123390)
+
+---
+### 2026-10-28T15:08:11+00:00
+Religious Conversion And Question Of Scheduled Caste Entitlements.
+https://www.livelaw.in/articles/religious-conversion-question-scheduled-caste-entitlements-556044
+
+[Read on Telegram](https://t.me/livelawindia/123391)
+
+---
+### 2026-10-28T15:26:51+00:00
+Supreme Court Stays Punjab & Haryana HC Order Restraining Rohtak Courts From Hearing Bail Pleas In DHL Real Estate Scam Case
+https://www.livelaw.in/top-stories/supreme-court-stays-punjab-haryana-hc-order-restraining-rohtak-courts-from-hearing-bail-pleas-in-dhl-real-estate-scam-case-556396
+
+[Read on Telegram](https://t.me/livelawindia/123392)
+
+---
+### 2026-10-28T15:39:41+00:00
+Uddhav Sena's Disqualification Plea Infructuous After 14th Maharashtra Assembly Term Expired : Shinde To Supreme Court
+https://www.livelaw.in/top-stories/uddhav-senas-disqualification-plea-infructuous-after-14th-maharashtra-assembly-term-expired-shinde-to-supreme-court-556397
+
+[Read on Telegram](https://t.me/livelawindia/123393)
+
+---
+### 2026-10-28T15:57:21+00:00
+Supreme Court Cancels Bail Of Man Accused Of Sharing Sensitive Military Information With Pakistan
+https://www.livelaw.in/supreme-court/supreme-court-cancels-bail-of-man-accused-of-sharing-sensitive-military-information-with-pakistan-556398
+
+[Read on Telegram](https://t.me/livelawindia/123394)
+
+---
+### 2026-10-28T17:02:52+00:00
+LiveLaw High Courts Daily Highlights: October 28, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-28-2026-556373
+
+[Read on Telegram](https://t.me/livelawindia/123395)
+
+---
+### 2026-10-28T18:27:32+00:00
+Supreme Court Daily Round-Up : October 28, 2026
+https://www.livelaw.in/supreme-court/mere-apprehension-that-convict-may-abscond-or-reoffend-without-tangible-material-cannot-justify-denial-of-parole-556399
+
+[Read on Telegram](https://t.me/livelawindia/123396)
 
 ---
