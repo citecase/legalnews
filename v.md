@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-28T13:02:22+00:00*
+*Last Updated: 2026-10-28T16:03:08+00:00*
+
+---
+
+### 2026-10-28T16:03:08+00:00
+Assistant Legal Aid Advisor, Superintendent, Assistant (Legal) Vacancies At NALSA
+https://www.verdictum.in/job-updates/national-legal-services-authority-1624736
+
+[Source Link](https://t.me/verdictumlegalupdates/29934)
+
+---
+
+### 2026-10-28T15:32:27+00:00
+Reckless & Unsubstantiated Allegations Against Wife, Disowning Child & Refusing DNA Test, Amount To Cruelty By Husband: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/s-v-j-so-d-2026khc-d17353-db-two-year-desertion-period-1624737
+
+[Source Link](https://t.me/verdictumlegalupdates/29933)
+
+---
+
+### 2026-10-28T15:02:25+00:00
+School Certificate Or Birth Record Alone Cannot Prove Victim’s Age; Source Of Entry Must Be Established: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/bhimbhai-virabhai-dhangri-v-state-of-gujarat-and-another-school-record-age-proof-1624735
+
+[Source Link](https://t.me/verdictumlegalupdates/29932)
+
+---
+
+### 2026-10-28T14:32:44+00:00
+Maternity Benefit Act Doesn’t Deny Benefit To Those Engaged On Casual, Daily Wage Basis or Guest Employees: Chhattisgarh High Court
+https://www.verdictum.in/chhattisgarh-high-court/pushpa-jaiswal-v-state-of-chhattisgarh-2026cghc45231-maternity-benefit-act-guest-employees-1624734
+
+[Source Link](https://t.me/verdictumlegalupdates/29931)
+
+---
+
+### 2026-10-28T14:02:43+00:00
+Appeal Against Penal Sanction Rooted In FERA Contravention Maintainable On Criminal Side Under FEMA: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/barun-kumar-chattopadhyay-v-special-director-enforcement-directorate-and-connected-appeals-1624733
+
+[Source Link](https://t.me/verdictumlegalupdates/29930)
+
+---
+
+### 2026-10-28T13:32:22+00:00
+Auxiliary Consumption Of Electricity At Power Station Is “Consumption” & Not Generation; Taxable Event Under DMC Act Is Consumption: Delhi High Court
+https://www.verdictum.in/delhi-high-court/ntpc-ltd-v-south-delhi-municipal-corporation-2026dhc9358-db-dmc-act-consumption-auxiliary-1624732
+
+[Source Link](https://t.me/verdictumlegalupdates/29929)
 
 ---
 
@@ -113,54 +161,6 @@ Non-Hindus Not Signing Undertaking Can't Cross Flag-Pole In Agamic Temples: Madr
 https://www.verdictum.in/madras-high-court/thangam-venkatesh-v-state-of-tamil-nadu-wpmd-no-30452-of-2026-agamic-temples-chamchagiri-optics-1624710
 
 [Source Link](https://t.me/verdictumlegalupdates/29915)
-
----
-
-### 2026-10-28T05:52:26+00:00
-No Withdrawal Of Application Or Approved Resolution Plan Once CoC Approves Plan & It Is Placed Before Adjudicating Authority: Supreme Court
-https://www.verdictum.in/supreme-court/bank-of-india-v-sm-kamal-pasha-2026-insc-1154-coc-approves-plan-1624709
-
-[Source Link](https://t.me/verdictumlegalupdates/29914)
-
----
-
-### 2026-10-28T05:12:45+00:00
-Judge Can't Insist That He Must Be Permitted to Engage Lawyer To Defend Him In Disciplinary Proceedings: Kerala High Court
-https://www.verdictum.in/kerala-high-court/a-v-the-registrar-district-judiciary-district-judge-engage-lawyer-defend-disciplinary-proceedings-1624707
-
-[Source Link](https://t.me/verdictumlegalupdates/29913)
-
----
-
-### 2026-10-28T04:32:34+00:00
-Rajasthan Municipality| Nominated Members Who Have No Right To Vote Not To Be Included For Computing Two-Thirds No-Confidence Majority: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/dharam-pal-singh-jain-v-the-state-of-rajasthan-2026rj-jp40615-db-members-no-confidence-majority-1624695
-
-[Source Link](https://t.me/verdictumlegalupdates/29912)
-
----
-
-### 2026-10-27T16:02:48+00:00
-Young Professional (Legal) Vacancy At Ministry Of Defence
-https://www.verdictum.in/job-updates/ministry-of-defence-1624694
-
-[Source Link](https://t.me/verdictumlegalupdates/29911)
-
----
-
-### 2026-10-27T15:12:18+00:00
-Husband’s Insistence That Wife Should Accept His Relationship & Live With Another Woman As Younger Sister Amounts To Grave Mental Cruelty: Jharkhand High Court
-https://www.verdictum.in/jharkhand-high-court/a-v-b-2026jhhc28726-db-husband-insistence-wife-live-another-woman-younger-sister-cruelty-1624693
-
-[Source Link](https://t.me/verdictumlegalupdates/29910)
-
----
-
-### 2026-10-27T14:32:57+00:00
-Unmarried Sister Entitled To Personal Accident Death Benefit Under Kisan Yojana Even Though She Isn’t Covered As Family Member: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/kmvidyawati-v-state-of-up-2026ahc221877-db-unmarried-sister-death-benefit-kisan-yojana-1624692
-
-[Source Link](https://t.me/verdictumlegalupdates/29909)
 
 ---
 
