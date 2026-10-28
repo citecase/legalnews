@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-27T16:02:48+00:00*
+*Last Updated: 2026-10-28T05:52:26+00:00*
+
+---
+
+### 2026-10-28T05:52:26+00:00
+No Withdrawal Of Application Or Approved Resolution Plan Once CoC Approves Plan & It Is Placed Before Adjudicating Authority: Supreme Court
+https://www.verdictum.in/supreme-court/bank-of-india-v-sm-kamal-pasha-2026-insc-1154-coc-approves-plan-1624709
+
+[Source Link](https://t.me/verdictumlegalupdates/29914)
+
+---
+
+### 2026-10-28T05:12:45+00:00
+Judge Can't Insist That He Must Be Permitted to Engage Lawyer To Defend Him In Disciplinary Proceedings: Kerala High Court
+https://www.verdictum.in/kerala-high-court/a-v-the-registrar-district-judiciary-district-judge-engage-lawyer-defend-disciplinary-proceedings-1624707
+
+[Source Link](https://t.me/verdictumlegalupdates/29913)
+
+---
+
+### 2026-10-28T04:32:34+00:00
+Rajasthan Municipality| Nominated Members Who Have No Right To Vote Not To Be Included For Computing Two-Thirds No-Confidence Majority: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/dharam-pal-singh-jain-v-the-state-of-rajasthan-2026rj-jp40615-db-members-no-confidence-majority-1624695
+
+[Source Link](https://t.me/verdictumlegalupdates/29912)
 
 ---
 
@@ -137,30 +161,6 @@ Government Approval U/S 3(f)(vi) Land Acquisition Act Must Be For Actual Coopera
 https://www.verdictum.in/supreme-court/-n-arasappa-v-state-of-karnataka-and-others-2026-insc-1151-land-acquisition-act-1624671
 
 [Source Link](https://t.me/verdictumlegalupdates/29895)
-
----
-
-### 2026-10-27T05:32:25+00:00
-Section 175(4) BNSS Safeguard Applies To Magistrate, Not Writ Court Acting On Statutory Agency’s Prima Facie Material: Madras High Court
-https://www.verdictum.in/madras-high-court/is-inbadurai-v-at-durai-kumar-and-connected-matters-2026mhc4285-1624668
-
-[Source Link](https://t.me/verdictumlegalupdates/29894)
-
----
-
-### 2026-10-27T05:02:24+00:00
-Supreme Court Collegium Recommends 9 Judges For Two High Courts, 4 Judges For Elevation As Chief Justices
-https://www.verdictum.in/supreme-court/collegium-recommends-9-judges-for-two-high-courts-4-judges-for-elevation-as-chief-justices-1624667
-
-[Source Link](https://t.me/verdictumlegalupdates/29893)
-
----
-
-### 2026-10-27T04:32:53+00:00
-Alternate Remedy U/S.20(3) Of HAMA No Bar To Unmarried Major Daughter’s Claim To Maintenance U/S.125 CrPC: Bombay High Court
-https://www.verdictum.in/bombay-high-court/a-v-b-2026bhc-nag13753-alternate-remedy-hama-maintenance-section-125-crpc-1624658
-
-[Source Link](https://t.me/verdictumlegalupdates/29892)
 
 ---
 
