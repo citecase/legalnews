@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-29T09:13:07+00:00*
+*Last Updated: 2026-10-29T13:33:08+00:00*
 
 ---
 
-### 2026-10-29T09:13:07+00:00
-2026 LiveLaw (SC) 1102 | Rajasthan Housing Board v M/s Hariyali Rural Ventures Ltd. & Ors
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1102-rajasthan-housing-board-v-ms-hariyali-rural-ventures-ltd-ors-556466
+### 2026-10-29T13:33:08+00:00
+Distance Between Student's Residence And College Is Relevant Factor In Inter-College Migration: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/distance-between-students-residence-and-college-is-relevant-factor-in-inter-college-migration-delhi-high-court-556450
 
-[Read on Telegram](https://t.me/livelawindia/123443)
-
----
-### 2026-10-29T09:21:07+00:00
-S. 147 Income Tax | Assessment Can Be Reopened Based On Fresh Material If No Opinion Was Formed In First Instance : Supreme Court
-https://www.livelaw.in/supreme-court/s-147-income-tax-assessment-can-be-reopened-based-on-fresh-material-if-no-opinion-was-formed-in-first-instance-supreme-court-556468
-
-[Read on Telegram](https://t.me/livelawindia/123444)
+[Read on Telegram](https://t.me/livelawindia/123471)
 
 ---
-### 2026-10-29T09:22:27+00:00
-2026 LiveLaw (SC) 1103 | CHETAN SABHARWAL VERSUS ASSISTANT COMMISSIONER OF INCOME TAX CIRCLE 28(1) NEW DELHI
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1103-chetan-sabharwal-versus-assistant-commissioner-of-income-tax-circle-281-new-delhi-556470
+### 2026-10-29T13:35:08+00:00
+Renukaswamy Murder Trial: Key Witness Fails To Identify Darshan, Most Accused In Court
+https://www.livelaw.in/news-updates/witness-puneeth-bengaluru-court-fled-city-seeing-godown-viral-video-556536
 
-[Read on Telegram](https://t.me/livelawindia/123445)
-
----
-### 2026-10-29T09:22:47+00:00
-Karnataka High Court Grants Bail To Man Accused Of Placing Footwear On Ambedkar, Jagjivan Ram Photos; Says Probe Complete
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-grants-bail-man-accused-tying-footwear-ambedkar-jagjivan-ram-photos-556467
-
-[Read on Telegram](https://t.me/livelawindia/123446)
+[Read on Telegram](https://t.me/livelawindia/123472)
 
 ---
-### 2026-10-29T09:28:47+00:00
-Supreme Court Reserves Order On ED's Plea For CBI Probe Against Mamata Banerjee Over Alleged Blocking Of I-PAC Raid
-https://www.livelaw.in/top-stories/supreme-court-reserves-order-on-eds-plea-for-cbi-probe-against-mamata-banerjee-over-alleged-blocking-of-i-pac-raid-556471
+### 2026-10-29T13:41:08+00:00
+Supreme Court Says Banks Must Compensate Cyber Fraud Victims If It Took Place Due To Bank's Lack Of Due Diligence
+https://www.livelaw.in/top-stories/supreme-court-digital-arrest-cyber-fraud-banks-strict-liability-negligence-failure-in-due-diligence-collusion-556538
 
-[Read on Telegram](https://t.me/livelawindia/123447)
-
----
-### 2026-10-29T09:32:47+00:00
-Beyond Adoption Leave: Is Indian Workplace Law Doing Enough For Adoptive Parents?
-https://www.livelaw.in/lawschool/articles/beyond-adoption-leave-indian-workplace-law-doing-enough-adoptive-parents-556209
-
-[Read on Telegram](https://t.me/livelawindia/123448)
+[Read on Telegram](https://t.me/livelawindia/123473)
 
 ---
-### 2026-10-29T09:36:57+00:00
-Kerala High Court Upholds Denial Of OBC Non-Creamy Layer Certificate To Daughter Of Directly Recruited Judge
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-direct-recruitment-creamy-layer-reservation-claim-556472
+### 2026-10-29T13:42:48+00:00
+Investigation Can Be Transferred Even After Filing Of Final Report If It Was Not Conducted Properly: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-investigation-transferred-after-final-report-if-not-conducted-properly-556537
 
-[Read on Telegram](https://t.me/livelawindia/123449)
-
----
-### 2026-10-29T09:47:17+00:00
-'No Special Circumstances': Gujarat High Court Rejects Plea Seeking Direction To Register FIR, Cites Remedy Under BNSS
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-dismisses-writ-petition-seeking-fir-registration-alternative-remedies-available-bnss-556469
-
-[Read on Telegram](https://t.me/livelawindia/123450)
+[Read on Telegram](https://t.me/livelawindia/123474)
 
 ---
-### 2026-10-29T10:14:37+00:00
-'If Not Punished, Gau Mata Will Go Extinct': Gujarat Court Awards Life Term To 3 In Cow-Slaughter Case; Cites Manusmriti, Vedas
-https://www.livelaw.in/news-updates/gujarat-court-life-term-cow-slaughter-case-manusmriti-vedas-556484
+### 2026-10-29T13:49:09+00:00
+LiveLaw Daily | NCLT Crisis | Mahua Moitra | Transgender Rights | Mamata Banerjee & More
+https://www.livelaw.in/podcast/news-clat-judiciary-nalsa-trans-rights-transgender-delhi-mahua-moitra-india-legal-advocates-556540
 
-[Read on Telegram](https://t.me/livelawindia/123451)
-
----
-### 2026-10-29T10:17:57+00:00
-Senior Manager (Legal) Vacancy At Tata Capital Limited
-https://www.livelaw.in/job-updates/senior-manager-legal-vacancy-at-tata-capital-limited-556485
-
-[Read on Telegram](https://t.me/livelawindia/123452)
+[Read on Telegram](https://t.me/livelawindia/123475)
 
 ---
-### 2026-10-29T10:19:57+00:00
-'What Kind Of People Believe They Can Get Arrested On Mobile?" CJI Expresses Shock At Digital Arrest Scams
-https://www.livelaw.in/top-stories/what-kind-of-people-believe-they-can-get-arrested-on-mobile-cji-expresses-shock-at-digital-arrest-scams-556486
+### 2026-10-29T13:53:08+00:00
+Kerala High Court Seeks State's Response To PIL Seeking Specialised Mechanism To Tackle Cyberbullying, Online Harassment
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-pil-state-level-specialised-mechanism-prevent-investigate-serious-cyberbullying-556539
 
-[Read on Telegram](https://t.me/livelawindia/123453)
-
----
-### 2026-10-29T10:30:47+00:00
-Rule That Select List Confers No Indefeasible Right Can't Substitute For Examining Claim Based On Available Vacancy: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-rule-select-list-confers-indefeasible-right-examining-claim-556488
-
-[Read on Telegram](https://t.me/livelawindia/123454)
+[Read on Telegram](https://t.me/livelawindia/123476)
 
 ---
-### 2026-10-29T10:36:47+00:00
-Project Coordinator (Child Law and Policy) Vacancy At National Institute Of Advanced Studies (NIAS)
-https://www.livelaw.in/job-updates/project-coordinator-child-law-and-policy-vacancy-at-national-institute-of-advanced-studies-nias-556491
+### 2026-10-29T13:55:48+00:00
+'Make This Diwali Enjoyable': Supreme Court Suggests Virat Kohli, Other Public Figures Promote Firecracker-Free Celebrations
+https://www.livelaw.in/top-stories/make-this-diwali-enjoyable-supreme-court-suggests-virat-kohli-other-public-figures-promote-firecracker-free-celebrations-556541
 
-[Read on Telegram](https://t.me/livelawindia/123455)
-
----
-### 2026-10-29T10:47:37+00:00
-Karnataka High Court Quashes Case Against Advocate Over Alleged Assault, Outraging Modesty Of Client
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-section324-354ipc-case-556490
-
-[Read on Telegram](https://t.me/livelawindia/123456)
+[Read on Telegram](https://t.me/livelawindia/123477)
 
 ---
-### 2026-10-29T10:48:27+00:00
-Analyst Vacancy At KPMG India [Gurgaon; Apply Now]
-https://www.livelaw.in/job-updates/analyst-vacancy-at-kpmg-india-gurgaon-556496
+### 2026-10-29T14:12:38+00:00
+“Possession Of Intermediate Quantity Of Drugs Rule Out Chances Of Being Peddler”: HP High Court Grants Bail To NDPS Accused
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-grants-bail-ndps-accused-reform-opportunity-556507
 
-[Read on Telegram](https://t.me/livelawindia/123457)
-
----
-### 2026-10-29T11:53:08+00:00
-J&K&L High Court Quashes Preventive Detention, Says Yak Transportation Cannot Be Basis To Presume Communal Disharmony
-https://www.livelaw.in/high-court/jammu-kashmir/mechanical-exercise-of-power-where-detaining-authority-fails-to-distinguish-between-transportation-of-yaks-and-cows-to-infer-communal-disharmony-jk-high-court-quashes-psa-556518
-
-[Read on Telegram](https://t.me/livelawindia/123458)
+[Read on Telegram](https://t.me/livelawindia/123478)
 
 ---
-### 2026-10-29T11:59:08+00:00
-Mitigating Factors Can Entitle Accused To Bail But Cannot Be Grounds To Quash POCSO Chargesheet: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/mitigating-factors-can-at-best-entitle-accused-to-bail-but-cannot-be-ground-to-quash-charge-sheet-under-pocso-act-jk-high-court-556522
+### 2026-10-29T14:24:18+00:00
+Levy Of Water Usage Charges On Hydropower Projects Is Tax On Generation Of Electricity, Beyond State Legislature's Competence: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/levy-of-water-usage-charges-on-hydropower-projects-is-in-substance-a-tax-on-generation-of-electricity-beyond-state-legislatures-competence-jk-high-court-556542
 
-[Read on Telegram](https://t.me/livelawindia/123459)
-
----
-### 2026-10-29T12:28:28+00:00
-“Not Happy With How Munnar, Idukki Being Handled”: Kerala High Court Seeks Names For Special Task Force To Tackle Land Encroachments
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-munnar-bench-special-task-force-556526
-
-[Read on Telegram](https://t.me/livelawindia/123460)
+[Read on Telegram](https://t.me/livelawindia/123479)
 
 ---
-### 2026-10-29T12:32:48+00:00
-'Compromise Cannot Be Sole Ground For Quashing Rape Case, Overall Circumstances Must Be Examined': Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-quashes-proceedings-proposed-inlaws-police-finds-allegations-untrue-556508
+### 2026-10-29T14:25:18+00:00
+Arbitral Tribunal Cannot Rewrite Contract Or Grant Relief Against Its Terms : Supreme Court
+https://www.livelaw.in/supreme-court/arbitral-tribunal-cannot-rewrite-contract-or-grant-relief-against-its-terms-supreme-court-556543
 
-[Read on Telegram](https://t.me/livelawindia/123461)
+[Read on Telegram](https://t.me/livelawindia/123480)
 
 ---
-### 2026-10-29T12:36:08+00:00
-“Are We Living In A Police State?”: Senior Advocate P Wilson Questions Before Madras High Court Anbil Mahesh's Arrest From Lawyer's Office
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-anbil-mahesh-arrest-advocates-office-objected-556527
+### 2026-10-29T14:25:58+00:00
+2026 LiveLaw (SC) 1105 | Shreeram Builders versus Upendra Kantilal Thanawala and others
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1105-shreeram-builders-versus-upendra-kantilal-thanawala-and-others-556544
 
-[Read on Telegram](https://t.me/livelawindia/123462)
+[Read on Telegram](https://t.me/livelawindia/123481)
+
+---
+### 2026-10-29T14:27:38+00:00
+Failure To Seek Clubbing Of Matters Not Ground To Dismiss Application Or Impose ₹25 Lakh Cost: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/failure-move-clubbing-matters-not-ground-dismiss-application-impose-cost-556513
+
+[Read on Telegram](https://t.me/livelawindia/123482)
+
+---
+### 2026-10-29T14:32:38+00:00
+Remembering Justice Leila Seth At 96
+https://www.livelaw.in/articles/remembering-justice-leila-seth-at-96-556210
+
+[Read on Telegram](https://t.me/livelawindia/123483)
+
+---
+### 2026-10-29T14:47:59+00:00
+'Advisory Board Not A Mere Post Office To Facilitate Confirmation Of Detention Orders': J&K&L High Court Quashes Preventive Detention
+https://www.livelaw.in/high-court/jammu-kashmir/advisory-board-not-a-mere-post-office-to-facilitate-confirmation-of-detention-orders-jk-high-court-quashes-psa-detention-orders-immediate-release-556519
+
+[Read on Telegram](https://t.me/livelawindia/123484)
+
+---
+### 2026-10-29T14:57:19+00:00
+Tripura High Court Upholds Husband's Life Term For Wife's Murder, Cites Cruelty Over Money Demands And Failure To Explain Death
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-upholds-husband-life-term-wife-murder-556516
+
+[Read on Telegram](https://t.me/livelawindia/123485)
+
+---
+### 2026-10-29T15:01:09+00:00
+DMs Cannot Act Like 'Plenipotentiary' In District: Allahabad High Court Suspends Bijnor DM's Order On 'Gogaji Naumi' Fair
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-bijnor-dm-goga-naumi-fair-556552
+
+[Read on Telegram](https://t.me/livelawindia/123486)
+
+---
+### 2026-10-29T15:02:29+00:00
+Delhi High Court Rejects Former DRT Presiding Officer's Review Plea Against Suspension, Says No Apparent Error In Earlier Ruling
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-rejects-former-drt-presiding-officers-review-plea-against-suspension-says-no-apparent-error-in-earlier-ruling-556451
+
+[Read on Telegram](https://t.me/livelawindia/123487)
+
+---
+### 2026-10-29T16:04:19+00:00
+Supreme Court Collegium Recommends 9 Advocates For Appointment As Judges Of J&K And Ladakh High Court
+https://www.livelaw.in/high-court/all-high-courts/supreme-court-collegium-recommends-9-advocates-for-appointment-as-judges-of-jk-and-ladakh-high-court-556557
+
+[Read on Telegram](https://t.me/livelawindia/123488)
+
+---
+### 2026-10-29T17:03:09+00:00
+LiveLaw High Courts Daily Highlights: October 29, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-29-2026-556545
+
+[Read on Telegram](https://t.me/livelawindia/123489)
+
+---
+### 2026-10-29T18:28:10+00:00
+Supreme Court Daily Round-Up : October 29, 2026
+https://www.livelaw.in/supreme-court/supreme-court-daily-round-up-october-29-2026-556546
+
+[Read on Telegram](https://t.me/livelawindia/123490)
 
 ---
