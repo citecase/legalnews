@@ -1,6 +1,118 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-29T05:56:58+00:00*
+*Last Updated: 2026-10-29T13:32:30+00:00*
+
+---
+
+### 2026-10-29T13:32:30+00:00
+Supreme Court Declines To Supervise Arbitral Awards Execution Through Clarification Plea; Requests Law Commission To Study Enforcement
+https://www.verdictum.in/supreme-court/ms-royal-construction-company-pvt-ltd-v-ms-national-projects-construction-corporation-2026-insc-1167-article-134-a-constitution-of-india-1624765
+
+[Source Link](https://t.me/verdictumlegalupdates/29951)
+
+---
+
+### 2026-10-29T13:03:09+00:00
+Income-Tax Reassessment Without Section 143(2) Notice Is Invalid; Assessee’s Participation Cannot Cure Its Absence: Supreme Court
+https://www.verdictum.in/supreme-court/principal-commissioner-of-income-tax-bhubaneshwar-v-orissa-mining-corporation-ltd-2026-insc-1171-1624764
+
+[Source Link](https://t.me/verdictumlegalupdates/29950)
+
+---
+
+### 2026-10-29T12:32:48+00:00
+I-PAC Raids| Supreme Court Reserves Verdict On ED Plea, Mamata Banerjee Says State Can Send Case To CBI
+https://www.verdictum.in/supreme-court/reserves-verdict-on-ed-mamata-banerjee-says-state-send-case-to-cbi-1624761
+
+[Source Link](https://t.me/verdictumlegalupdates/29949)
+
+---
+
+### 2026-10-29T12:02:27+00:00
+If Permission Given For 100% Ethanol-Run Vehicles, How Will Supply Be Made: Supreme Court Asks Govt
+https://www.verdictum.in/supreme-court/100-ethanol-run-vehicles-permission-supply-1624759
+
+[Source Link](https://t.me/verdictumlegalupdates/29948)
+
+---
+
+### 2026-10-29T11:16:36+00:00
+Firecrackers Ban|Supreme Court Says Orders Become “Mockery” Without Enforcement; Suggests Public Figures Like Virat Kohli For Awareness Campaign
+https://www.verdictum.in/supreme-court/orders-become-mockery-enforcement-public-figures-like-virat-kohli-awareness-campaign-1624760
+
+[Source Link](https://t.me/verdictumlegalupdates/29947)
+
+---
+
+### 2026-10-29T11:02:55+00:00
+Party Participating Before Sole Arbitrator Without Objection Waives Right To Insist On Three-Member Tribunal Under Agreement: Supreme Court
+https://www.verdictum.in/supreme-court/south-bihar-power-distribution-company-ltd-v-india-power-corporation-ltd-2026-insc-1165-s-29a-lies-with-court-us-21e-1624757
+
+[Source Link](https://t.me/verdictumlegalupdates/29946)
+
+---
+
+### 2026-10-29T10:16:56+00:00
+Digital Arrest| Supreme Court Says RBI Rules Must Make Banks Compensate Victims Not Less Than Amount Lost Where Due Diligence Fails
+https://www.verdictum.in/supreme-court/rbi-rules-must-banks-compensate-victims-not-less-amount-lost-due-diligence-fails-1624758
+
+[Source Link](https://t.me/verdictumlegalupdates/29945)
+
+---
+
+### 2026-10-29T10:02:54+00:00
+Execution Application Filed Under Order XXI Rule 97-101 CPC Is On Par With Regular Suit: Supreme Court
+https://www.verdictum.in/supreme-court/balakrishna-v-gn-kanniah-naidu-2026-insc-1155-order-xxi-rule-101-separate-suit-title-1624756
+
+[Source Link](https://t.me/verdictumlegalupdates/29944)
+
+---
+
+### 2026-10-29T09:32:13+00:00
+Kerala High Court Grants Interim Protection From Arrest To Judge In Benz Car Accident Case Involving His Minor Son
+https://www.verdictum.in/kerala-high-court/interim-protection-from-arrest-to-judge-in-benz-car-accident-case-involving-his-minor-son-1624754
+
+[Source Link](https://t.me/verdictumlegalupdates/29943)
+
+---
+
+### 2026-10-29T09:02:32+00:00
+Supreme Court Disposes Of Mahua Moitra's Plea For Public Disclosure Of Ultimate Beneficial Owners Of AIFs, FPIs
+https://www.verdictum.in/supreme-court/mahua-moitras-plea-for-public-disclosure-of-ultimate-beneficial-owners-of-aifs-fpis-1624753
+
+[Source Link](https://t.me/verdictumlegalupdates/29942)
+
+---
+
+### 2026-10-29T08:33:21+00:00
+Supreme Court Rejects Actor's Plea Seeking Recognition Of Relationship With Rajesh Khanna As Marriage
+https://www.verdictum.in/supreme-court/plea-seeking-recognition-of-relationship-with-rajesh-khanna-as-marriage-1624752
+
+[Source Link](https://t.me/verdictumlegalupdates/29941)
+
+---
+
+### 2026-10-29T07:53:00+00:00
+“Suspicion Has to Be Converted Into Foolproof Evidence”: Supreme Court Declines Chhattisgarh’s Plea Against Bail To Former IAS Officer Anil Tuteja
+https://www.verdictum.in/supreme-court/chhattisgarh-plea-against-bail-to-former-ias-officer-anil-tuteja-1624751
+
+[Source Link](https://t.me/verdictumlegalupdates/29940)
+
+---
+
+### 2026-10-29T07:12:09+00:00
+Tribunal Hijacked By MCA: Apex Court Says Autonomy Of Tribunal Is Impinged & Seeks Proposal From NCLAT & NCLT On Infrastructure Deficiencies
+https://www.verdictum.in/supreme-court/says-autonomy-tribunal-impinged-proposal-from-nclat-nclt-infrastructure-deficiencies-1624750
+
+[Source Link](https://t.me/verdictumlegalupdates/29939)
+
+---
+
+### 2026-10-29T06:33:08+00:00
+“What A Policy Says, It Is”: Supreme Court Grants War Injury Pension For Disability During Operation Rakshak Posting
+https://www.verdictum.in/supreme-court/union-of-india-v-narender-kumar-2026-insc-1166-operation-rakshak-posting-disability-pension-1624748
+
+[Source Link](https://t.me/verdictumlegalupdates/29938)
 
 ---
 
@@ -49,118 +161,6 @@ School Certificate Or Birth Record Alone Cannot Prove Victim’s Age; Source Of 
 https://www.verdictum.in/gujarat-high-court/bhimbhai-virabhai-dhangri-v-state-of-gujarat-and-another-school-record-age-proof-1624735
 
 [Source Link](https://t.me/verdictumlegalupdates/29932)
-
----
-
-### 2026-10-28T14:32:44+00:00
-Maternity Benefit Act Doesn’t Deny Benefit To Those Engaged On Casual, Daily Wage Basis or Guest Employees: Chhattisgarh High Court
-https://www.verdictum.in/chhattisgarh-high-court/pushpa-jaiswal-v-state-of-chhattisgarh-2026cghc45231-maternity-benefit-act-guest-employees-1624734
-
-[Source Link](https://t.me/verdictumlegalupdates/29931)
-
----
-
-### 2026-10-28T14:02:43+00:00
-Appeal Against Penal Sanction Rooted In FERA Contravention Maintainable On Criminal Side Under FEMA: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/barun-kumar-chattopadhyay-v-special-director-enforcement-directorate-and-connected-appeals-1624733
-
-[Source Link](https://t.me/verdictumlegalupdates/29930)
-
----
-
-### 2026-10-28T13:32:22+00:00
-Auxiliary Consumption Of Electricity At Power Station Is “Consumption” & Not Generation; Taxable Event Under DMC Act Is Consumption: Delhi High Court
-https://www.verdictum.in/delhi-high-court/ntpc-ltd-v-south-delhi-municipal-corporation-2026dhc9358-db-dmc-act-consumption-auxiliary-1624732
-
-[Source Link](https://t.me/verdictumlegalupdates/29929)
-
----
-
-### 2026-10-28T13:02:22+00:00
-Life Sentences Awarded For Multiple Offences In Single Trial Can’t Be Directed To Run Consecutively; Remission In One Won’t Result in Remission In Other: Supreme Court
-https://www.verdictum.in/supreme-court/raju-shantaram-koli-v-the-state-of-maharashtra-2026-insc-1161-life-sentences-remission-commutation-1624731
-
-[Source Link](https://t.me/verdictumlegalupdates/29928)
-
----
-
-### 2026-10-28T12:33:01+00:00
-Issue Pertains To Entire Institution Of Judiciary: Apex Court Directs Sanjay Raut To Appear In Person  In Contempt Case Over Remarks On CJI
-https://www.verdictum.in/supreme-court/sanjay-raut-appear-person-on-nov-17-contempt-case-over-remarks-cji-surya-kant-1624730
-
-[Source Link](https://t.me/verdictumlegalupdates/29927)
-
----
-
-### 2026-10-28T12:02:40+00:00
-Agreement to Sell Does Not Convey Title; Suit for Bare Injunction Restraining Vendor From Selling Property To Others Not Maintainable: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/kiledar-singh-deceased-through-lrs-v-anil-kumar-2026mphc-gwl32136-non-executant-of-a-sale-deed-1624729
-
-[Source Link](https://t.me/verdictumlegalupdates/29926)
-
----
-
-### 2026-10-28T11:32:59+00:00
-Supreme Court Dismisses Review Petitions Against Verdict Upholding State Power To Ban Betting On Online Rummy, Poker
-https://www.verdictum.in/supreme-court/dismisses-review-petitions-verdict-upholding-state-power-ban-betting-online-rummy-poker-1624727
-
-[Source Link](https://t.me/verdictumlegalupdates/29925)
-
----
-
-### 2026-10-28T11:02:38+00:00
-Trial Courts Must Verify Parties Understand Lok Adalat Settlement Terms; Should Obtain Signatures On Every Page: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/gangavva-v-vishwanath-and-others-2026khc-d15357-compromise-petiton-1624725
-
-[Source Link](https://t.me/verdictumlegalupdates/29924)
-
----
-
-### 2026-10-28T10:16:17+00:00
-We Haven't Finally Adjudicated On Legality Of Logical Discrepancy: Apex Court Remarks As It Asks ECI To Streamline Electoral Roll Inclusions In Delhi SIR
-https://www.verdictum.in/supreme-court/remarks-after-asking-eci-streamline-electoral-roll-inclusions-delhi-sir-1624724
-
-[Source Link](https://t.me/verdictumlegalupdates/29923)
-
----
-
-### 2026-10-28T10:03:16+00:00
-Supreme Court Seeks Centre’s Response On Plea Flagging Transgender Law’s Impact On Women’s Reservations, Safeguards
-https://www.verdictum.in/supreme-court/plea-flagging-transgender-laws-impact-on-womens-reservations-safeguards-1624723
-
-[Source Link](https://t.me/verdictumlegalupdates/29922)
-
----
-
-### 2026-10-28T09:32:52+00:00
-Children’s Court Must Independently Decide Whether Child Needs Adult Trial After JJB’s Preliminary Assessment: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/juvenile-x-v-state-of-up-and-another-2026ahc222817-juvenile-trial-adult-1624721
-
-[Source Link](https://t.me/verdictumlegalupdates/29921)
-
----
-
-### 2026-10-28T09:01:11+00:00
-Financial Creditor’s Role In Navigating Corporate Debtor’s Policy Suffices For Related-Party Status, Barring CoC Participation Under IBC: Supreme Court
-https://www.verdictum.in/supreme-court/ecl-finance-limited-and-another-v-abhinav-mukherjee-and-others-2026-insc-1159-1624720
-
-[Source Link](https://t.me/verdictumlegalupdates/29920)
-
----
-
-### 2026-10-28T08:32:10+00:00
-Rape & POCSO Convicts Not Absolutely Barred From Open-Air Camps; Individual Assessment Required: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/gangaram-v-state-of-rajasthan-and-others-2026rj-jp40987-db-open-air-camps-1624717
-
-[Source Link](https://t.me/verdictumlegalupdates/29919)
-
----
-
-### 2026-10-28T08:02:49+00:00
-“Digital Dacoity”: Supreme Court Refuses To Club 30  Cyber Fraud Cases Against Two Accused
-https://www.verdictum.in/supreme-court/30-cyber-fraud-cases-against-two-accused-digital-dacoity-1624715
-
-[Source Link](https://t.me/verdictumlegalupdates/29918)
 
 ---
 
