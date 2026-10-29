@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-28T16:03:08+00:00*
+*Last Updated: 2026-10-29T05:56:58+00:00*
+
+---
+
+### 2026-10-29T05:56:58+00:00
+Income Tax Reopening Notice Valid When Based On Tangible Material With Live Link; Change Of Opinion Requires Conscious Application Of Mind: Supreme Court
+https://www.verdictum.in/supreme-court/chetan-sabharwal-v-assistant-commissioner-of-income-tax-2026-insc-1163-section-1431-intimations-assessments-1624747
+
+[Source Link](https://t.me/verdictumlegalupdates/29937)
+
+---
+
+### 2026-10-29T05:12:47+00:00
+Staff Statements Do Not Conclusively Establish Promotion; ACP Financial Upgradation Is Not Substantive Promotion: Delhi High Court
+https://www.verdictum.in/delhi-high-court/the-managing-committee-of-the-pinnacle-school-v-the-director-of-education-2026dhc9497-substantive-promotion-teacher-1624745
+
+[Source Link](https://t.me/verdictumlegalupdates/29936)
+
+---
+
+### 2026-10-29T04:32:56+00:00
+Disallowing Amount Not Treated As Allowance By Assessee Is Impermissible Under  Income Tax Act: Supreme Court
+https://www.verdictum.in/supreme-court/ms-lakshmi-sugar-mills-co-ltd-v-commissioner-of-income-tax-delhi-ii-2026-insc-1162-1624743
+
+[Source Link](https://t.me/verdictumlegalupdates/29935)
 
 ---
 
@@ -137,30 +161,6 @@ https://www.verdictum.in/rajasthan-high-court/gangaram-v-state-of-rajasthan-and-
 https://www.verdictum.in/supreme-court/30-cyber-fraud-cases-against-two-accused-digital-dacoity-1624715
 
 [Source Link](https://t.me/verdictumlegalupdates/29918)
-
----
-
-### 2026-10-28T07:32:28+00:00
-Absence Of Proof Of Fatal Injuries Does Not By Itself Absolve Members Of Unlawful Assembly: Delhi High Court Upholds Conviction Of Five In 2020 Delhi Riots Case
-https://www.verdictum.in/delhi-high-court/aman-kashyap-v-state-of-nct-of-delhi-2026dhc9442-delhi-riots-north-east-deaths-1624714
-
-[Source Link](https://t.me/verdictumlegalupdates/29917)
-
----
-
-### 2026-10-28T07:03:07+00:00
-Subsequent Overstay Of Foreign Citizen Accused Cannot Attract S. 43D(7) UAPA Bar Unless Initial Entry Was Unauthorized or Illegal: Supreme Court
-https://www.verdictum.in/supreme-court/union-of-india-v-mohamed-rifas-mohamed-rigbas-2026-insc-1160-subsequent-overstay-uapa-1624713
-
-[Source Link](https://t.me/verdictumlegalupdates/29916)
-
----
-
-### 2026-10-28T06:32:46+00:00
-Non-Hindus Not Signing Undertaking Can't Cross Flag-Pole In Agamic Temples: Madras High Court Reiterates
-https://www.verdictum.in/madras-high-court/thangam-venkatesh-v-state-of-tamil-nadu-wpmd-no-30452-of-2026-agamic-temples-chamchagiri-optics-1624710
-
-[Source Link](https://t.me/verdictumlegalupdates/29915)
 
 ---
 
