@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-28T14:02:21+00:00*
+*Last Updated: 2026-10-29T09:13:07+00:00*
 
 ---
 
-### 2026-10-28T14:02:21+00:00
-Kochi Mercedes-Benz Crash: Victim's Wife Seeks Impleadment In Kerala Govt's Plea To Cancel Minor's Bail
-https://www.livelaw.in/news-updates/kerala-mercedes-benz-crash-impleadment-bail-cancel-556371
+### 2026-10-29T09:13:07+00:00
+2026 LiveLaw (SC) 1102 | Rajasthan Housing Board v M/s Hariyali Rural Ventures Ltd. & Ors
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1102-rajasthan-housing-board-v-ms-hariyali-rural-ventures-ltd-ors-556466
 
-[Read on Telegram](https://t.me/livelawindia/123383)
-
----
-### 2026-10-28T14:17:21+00:00
-LiveLaw Daily|Brij Bhushan's Reply|RTI & Vigilance Probes|CEC|Delhi Pollution|Deleted Voters
-https://www.livelaw.in/podcast/cec-eci-jio-hotstar-zee-news-law-clat-india-lawyers-advocates-556376
-
-[Read on Telegram](https://t.me/livelawindia/123384)
+[Read on Telegram](https://t.me/livelawindia/123443)
 
 ---
-### 2026-10-28T14:23:41+00:00
-Procedural Defect In Informing Arrest Grounds Won't Lead To Bail If No Prejudice Caused To Accused : Supreme Court
-https://www.livelaw.in/supreme-court/procedural-defect-in-informing-arrest-grounds-wont-lead-to-bail-if-no-prejudice-caused-to-accused-supreme-court-556379
+### 2026-10-29T09:21:07+00:00
+S. 147 Income Tax | Assessment Can Be Reopened Based On Fresh Material If No Opinion Was Formed In First Instance : Supreme Court
+https://www.livelaw.in/supreme-court/s-147-income-tax-assessment-can-be-reopened-based-on-fresh-material-if-no-opinion-was-formed-in-first-instance-supreme-court-556468
 
-[Read on Telegram](https://t.me/livelawindia/123385)
-
----
-### 2026-10-28T14:25:01+00:00
-2026 LiveLaw (SC) 1097 | STATE OF RAJASTHAN VERSUS JHABRA RAM
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1097-state-of-rajasthan-versus-jhabra-ram-556380
-
-[Read on Telegram](https://t.me/livelawindia/123386)
+[Read on Telegram](https://t.me/livelawindia/123444)
 
 ---
-### 2026-10-28T14:30:01+00:00
-Rape Case Can't Be Quashed Solely On 'Settlement' Between Victim & Accused : Supreme Court
-https://www.livelaw.in/top-stories/rape-case-cant-be-quashed-solely-on-settlement-between-victim-accused-supreme-court-556382
+### 2026-10-29T09:22:27+00:00
+2026 LiveLaw (SC) 1103 | CHETAN SABHARWAL VERSUS ASSISTANT COMMISSIONER OF INCOME TAX CIRCLE 28(1) NEW DELHI
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1103-chetan-sabharwal-versus-assistant-commissioner-of-income-tax-circle-281-new-delhi-556470
 
-[Read on Telegram](https://t.me/livelawindia/123387)
-
----
-### 2026-10-28T14:30:41+00:00
-2026 LiveLaw (SC) 1098 | Gopal Lodhi v State of MP & Anr
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1098-gopal-lodhi-v-state-of-mp-anr-556383
-
-[Read on Telegram](https://t.me/livelawindia/123388)
+[Read on Telegram](https://t.me/livelawindia/123445)
 
 ---
-### 2026-10-28T14:33:01+00:00
-Thirty Films A Year: What Paramount-Warner Bros Settlement Teaches Indian Merger Control
-https://www.livelaw.in/articles/thirty-films-year-paramount-warner-bros-settlement-teaches-indian-merger-control-556047
+### 2026-10-29T09:22:47+00:00
+Karnataka High Court Grants Bail To Man Accused Of Placing Footwear On Ambedkar, Jagjivan Ram Photos; Says Probe Complete
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-grants-bail-man-accused-tying-footwear-ambedkar-jagjivan-ram-photos-556467
 
-[Read on Telegram](https://t.me/livelawindia/123389)
-
----
-### 2026-10-28T14:48:51+00:00
-UP's Forensic Lab Infra Insufficient Considering State's Size, Population: Allahabad High Court Seeks Govt's Response
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-uttar-pradesh-forensic-lab-infra-insufficient-size-population-govt-response-556389
-
-[Read on Telegram](https://t.me/livelawindia/123390)
+[Read on Telegram](https://t.me/livelawindia/123446)
 
 ---
-### 2026-10-28T15:08:11+00:00
-Religious Conversion And Question Of Scheduled Caste Entitlements.
-https://www.livelaw.in/articles/religious-conversion-question-scheduled-caste-entitlements-556044
+### 2026-10-29T09:28:47+00:00
+Supreme Court Reserves Order On ED's Plea For CBI Probe Against Mamata Banerjee Over Alleged Blocking Of I-PAC Raid
+https://www.livelaw.in/top-stories/supreme-court-reserves-order-on-eds-plea-for-cbi-probe-against-mamata-banerjee-over-alleged-blocking-of-i-pac-raid-556471
 
-[Read on Telegram](https://t.me/livelawindia/123391)
-
----
-### 2026-10-28T15:26:51+00:00
-Supreme Court Stays Punjab & Haryana HC Order Restraining Rohtak Courts From Hearing Bail Pleas In DHL Real Estate Scam Case
-https://www.livelaw.in/top-stories/supreme-court-stays-punjab-haryana-hc-order-restraining-rohtak-courts-from-hearing-bail-pleas-in-dhl-real-estate-scam-case-556396
-
-[Read on Telegram](https://t.me/livelawindia/123392)
+[Read on Telegram](https://t.me/livelawindia/123447)
 
 ---
-### 2026-10-28T15:39:41+00:00
-Uddhav Sena's Disqualification Plea Infructuous After 14th Maharashtra Assembly Term Expired : Shinde To Supreme Court
-https://www.livelaw.in/top-stories/uddhav-senas-disqualification-plea-infructuous-after-14th-maharashtra-assembly-term-expired-shinde-to-supreme-court-556397
+### 2026-10-29T09:32:47+00:00
+Beyond Adoption Leave: Is Indian Workplace Law Doing Enough For Adoptive Parents?
+https://www.livelaw.in/lawschool/articles/beyond-adoption-leave-indian-workplace-law-doing-enough-adoptive-parents-556209
 
-[Read on Telegram](https://t.me/livelawindia/123393)
-
----
-### 2026-10-28T15:57:21+00:00
-Supreme Court Cancels Bail Of Man Accused Of Sharing Sensitive Military Information With Pakistan
-https://www.livelaw.in/supreme-court/supreme-court-cancels-bail-of-man-accused-of-sharing-sensitive-military-information-with-pakistan-556398
-
-[Read on Telegram](https://t.me/livelawindia/123394)
+[Read on Telegram](https://t.me/livelawindia/123448)
 
 ---
-### 2026-10-28T17:02:52+00:00
-LiveLaw High Courts Daily Highlights: October 28, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-28-2026-556373
+### 2026-10-29T09:36:57+00:00
+Kerala High Court Upholds Denial Of OBC Non-Creamy Layer Certificate To Daughter Of Directly Recruited Judge
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-direct-recruitment-creamy-layer-reservation-claim-556472
 
-[Read on Telegram](https://t.me/livelawindia/123395)
-
----
-### 2026-10-28T18:27:32+00:00
-Supreme Court Daily Round-Up : October 28, 2026
-https://www.livelaw.in/supreme-court/mere-apprehension-that-convict-may-abscond-or-reoffend-without-tangible-material-cannot-justify-denial-of-parole-556399
-
-[Read on Telegram](https://t.me/livelawindia/123396)
+[Read on Telegram](https://t.me/livelawindia/123449)
 
 ---
-### 2026-10-29T02:32:55+00:00
-Copyright, Courts, And Code: Understanding AI Architecture Through Lens Of Litigation
-https://www.livelaw.in/top-stories/copyright-courts-code-understanding-ai-architecture-through-lens-litigation-556207
+### 2026-10-29T09:47:17+00:00
+'No Special Circumstances': Gujarat High Court Rejects Plea Seeking Direction To Register FIR, Cites Remedy Under BNSS
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-dismisses-writ-petition-seeking-fir-registration-alternative-remedies-available-bnss-556469
 
-[Read on Telegram](https://t.me/livelawindia/123397)
-
----
-### 2026-10-29T04:36:05+00:00
-Supreme Court's Requests To Courts Or Tribunals Must Be Treated As Directions : Supreme Court
-https://www.livelaw.in/supreme-court/supreme-courts-requests-to-courts-or-tribunals-must-be-treated-as-directions-supreme-court-556405
-
-[Read on Telegram](https://t.me/livelawindia/123398)
+[Read on Telegram](https://t.me/livelawindia/123450)
 
 ---
-### 2026-10-29T04:37:27+00:00
-2026 LiveLaw (SC) 1099 | SONA BANSAL VERSUS VASHISHT KUMAR GOYAL & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1099-sona-bansal-versus-vashisht-kumar-goyal-ors-556406
+### 2026-10-29T10:14:37+00:00
+'If Not Punished, Gau Mata Will Go Extinct': Gujarat Court Awards Life Term To 3 In Cow-Slaughter Case; Cites Manusmriti, Vedas
+https://www.livelaw.in/news-updates/gujarat-court-life-term-cow-slaughter-case-manusmriti-vedas-556484
 
-[Read on Telegram](https://t.me/livelawindia/123399)
-
----
-### 2026-10-29T04:37:45+00:00
-Right To Protest Can't Be Nipped In The Bud: Madras High Court Allows Villagers To Hold Sit-In At Cremation Ground
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-permits-sit-in-protest-villagers-crematorium-govt-inaction-pollution-556407
-
-[Read on Telegram](https://t.me/livelawindia/123400)
+[Read on Telegram](https://t.me/livelawindia/123451)
 
 ---
-### 2026-10-29T04:39:25+00:00
-Mumbai Court Denies Anticipatory Bail To 3 Booked For Misappropriating ₹3.92 Crore During Dharma's 'Naagzilla' Film Production
-https://www.livelaw.in/news-updates/mumbai-court-denies-anticipatory-bail-to-3-booked-for-misappropriating-392-crore-during-dharmas-naagzilla-film-production-556408
+### 2026-10-29T10:17:57+00:00
+Senior Manager (Legal) Vacancy At Tata Capital Limited
+https://www.livelaw.in/job-updates/senior-manager-legal-vacancy-at-tata-capital-limited-556485
 
-[Read on Telegram](https://t.me/livelawindia/123401)
+[Read on Telegram](https://t.me/livelawindia/123452)
 
 ---
-### 2026-10-29T04:51:25+00:00
-LiveLaw Breaking News Alerts: 29 October 2026
-https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts-29-october-2026-556409
+### 2026-10-29T10:19:57+00:00
+'What Kind Of People Believe They Can Get Arrested On Mobile?" CJI Expresses Shock At Digital Arrest Scams
+https://www.livelaw.in/top-stories/what-kind-of-people-believe-they-can-get-arrested-on-mobile-cji-expresses-shock-at-digital-arrest-scams-556486
 
-[Read on Telegram](https://t.me/livelawindia/123402)
+[Read on Telegram](https://t.me/livelawindia/123453)
+
+---
+### 2026-10-29T10:30:47+00:00
+Rule That Select List Confers No Indefeasible Right Can't Substitute For Examining Claim Based On Available Vacancy: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-rule-select-list-confers-indefeasible-right-examining-claim-556488
+
+[Read on Telegram](https://t.me/livelawindia/123454)
+
+---
+### 2026-10-29T10:36:47+00:00
+Project Coordinator (Child Law and Policy) Vacancy At National Institute Of Advanced Studies (NIAS)
+https://www.livelaw.in/job-updates/project-coordinator-child-law-and-policy-vacancy-at-national-institute-of-advanced-studies-nias-556491
+
+[Read on Telegram](https://t.me/livelawindia/123455)
+
+---
+### 2026-10-29T10:47:37+00:00
+Karnataka High Court Quashes Case Against Advocate Over Alleged Assault, Outraging Modesty Of Client
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-section324-354ipc-case-556490
+
+[Read on Telegram](https://t.me/livelawindia/123456)
+
+---
+### 2026-10-29T10:48:27+00:00
+Analyst Vacancy At KPMG India [Gurgaon; Apply Now]
+https://www.livelaw.in/job-updates/analyst-vacancy-at-kpmg-india-gurgaon-556496
+
+[Read on Telegram](https://t.me/livelawindia/123457)
+
+---
+### 2026-10-29T11:53:08+00:00
+J&K&L High Court Quashes Preventive Detention, Says Yak Transportation Cannot Be Basis To Presume Communal Disharmony
+https://www.livelaw.in/high-court/jammu-kashmir/mechanical-exercise-of-power-where-detaining-authority-fails-to-distinguish-between-transportation-of-yaks-and-cows-to-infer-communal-disharmony-jk-high-court-quashes-psa-556518
+
+[Read on Telegram](https://t.me/livelawindia/123458)
+
+---
+### 2026-10-29T11:59:08+00:00
+Mitigating Factors Can Entitle Accused To Bail But Cannot Be Grounds To Quash POCSO Chargesheet: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/mitigating-factors-can-at-best-entitle-accused-to-bail-but-cannot-be-ground-to-quash-charge-sheet-under-pocso-act-jk-high-court-556522
+
+[Read on Telegram](https://t.me/livelawindia/123459)
+
+---
+### 2026-10-29T12:28:28+00:00
+“Not Happy With How Munnar, Idukki Being Handled”: Kerala High Court Seeks Names For Special Task Force To Tackle Land Encroachments
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-munnar-bench-special-task-force-556526
+
+[Read on Telegram](https://t.me/livelawindia/123460)
+
+---
+### 2026-10-29T12:32:48+00:00
+'Compromise Cannot Be Sole Ground For Quashing Rape Case, Overall Circumstances Must Be Examined': Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-quashes-proceedings-proposed-inlaws-police-finds-allegations-untrue-556508
+
+[Read on Telegram](https://t.me/livelawindia/123461)
+
+---
+### 2026-10-29T12:36:08+00:00
+“Are We Living In A Police State?”: Senior Advocate P Wilson Questions Before Madras High Court Anbil Mahesh's Arrest From Lawyer's Office
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-anbil-mahesh-arrest-advocates-office-objected-556527
+
+[Read on Telegram](https://t.me/livelawindia/123462)
 
 ---
