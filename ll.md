@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-28T13:00:40+00:00*
+*Last Updated: 2026-10-28T14:02:21+00:00*
 
 ---
 
-### 2026-10-28T13:00:40+00:00
-'Digital Dacoity' : Supreme Court Calls For Strong Action Against Cyber Crimes
-https://www.livelaw.in/top-stories/supreme-court-refuses-to-entertain-consolidation-plea-of-digital-arrest-accused-ruthless-criminals-targeting-senior-citizens-punish-even-before-trial-556362
-
-[Read on Telegram](https://t.me/livelawindia/123377)
-
----
-### 2026-10-28T13:06:30+00:00
-UNUC Legal LLP Launches Italy Desk for International Arbitration and Cross-Border Dispute Resolution
-https://www.livelaw.in/law-firms/deals/unuc-legal-llp-launches-italy-desk-for-international-arbitration-and-cross-border-dispute-resolution-556364
-
-[Read on Telegram](https://t.me/livelawindia/123378)
-
----
-### 2026-10-28T13:07:30+00:00
-Karnataka High Court Restrains Power TV From Telecasting Alleged Sting Video Of Former MLA A Manjunath, Cites Privacy Violation
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-restrains-power-tv-anchor-telecasting-private-recording-former-mla-manjunath-556361
-
-[Read on Telegram](https://t.me/livelawindia/123379)
-
----
-### 2026-10-28T13:10:31+00:00
-Supreme Court Asks Law Commission To Recommend Measures For Speedy Execution Of Arbitral Awards
-https://www.livelaw.in/supreme-court/supreme-court-asks-law-commission-to-recommend-measures-for-speedy-execution-of-arbitral-awards-556365
-
-[Read on Telegram](https://t.me/livelawindia/123380)
-
----
-### 2026-10-28T13:11:31+00:00
-2026 LiveLaw (SC) 1096  | M/s Royal Construction Company Pvt. Ltd. v. M/s National Projects Construction Corporation
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1096-ms-royal-construction-company-pvt-ltd-v-ms-national-projects-construction-corporation-556366
-
-[Read on Telegram](https://t.me/livelawindia/123381)
-
----
-### 2026-10-28T13:50:31+00:00
-St. Xavier's University Kolkata To Host Third Edition Of Ignatius Trial & Advocacy Competition From November 4
-https://www.livelaw.in/lawschool/competitions/st-xaviers-university-kolkata-host-third-edition-ignatius-trial-advocacy-competition-556370
-
-[Read on Telegram](https://t.me/livelawindia/123382)
-
----
 ### 2026-10-28T14:02:21+00:00
 Kochi Mercedes-Benz Crash: Victim's Wife Seeks Impleadment In Kerala Govt's Plea To Cancel Minor's Bail
 https://www.livelaw.in/news-updates/kerala-mercedes-benz-crash-impleadment-bail-cancel-556371
@@ -142,5 +100,47 @@ Supreme Court Daily Round-Up : October 28, 2026
 https://www.livelaw.in/supreme-court/mere-apprehension-that-convict-may-abscond-or-reoffend-without-tangible-material-cannot-justify-denial-of-parole-556399
 
 [Read on Telegram](https://t.me/livelawindia/123396)
+
+---
+### 2026-10-29T02:32:55+00:00
+Copyright, Courts, And Code: Understanding AI Architecture Through Lens Of Litigation
+https://www.livelaw.in/top-stories/copyright-courts-code-understanding-ai-architecture-through-lens-litigation-556207
+
+[Read on Telegram](https://t.me/livelawindia/123397)
+
+---
+### 2026-10-29T04:36:05+00:00
+Supreme Court's Requests To Courts Or Tribunals Must Be Treated As Directions : Supreme Court
+https://www.livelaw.in/supreme-court/supreme-courts-requests-to-courts-or-tribunals-must-be-treated-as-directions-supreme-court-556405
+
+[Read on Telegram](https://t.me/livelawindia/123398)
+
+---
+### 2026-10-29T04:37:27+00:00
+2026 LiveLaw (SC) 1099 | SONA BANSAL VERSUS VASHISHT KUMAR GOYAL & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1099-sona-bansal-versus-vashisht-kumar-goyal-ors-556406
+
+[Read on Telegram](https://t.me/livelawindia/123399)
+
+---
+### 2026-10-29T04:37:45+00:00
+Right To Protest Can't Be Nipped In The Bud: Madras High Court Allows Villagers To Hold Sit-In At Cremation Ground
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-permits-sit-in-protest-villagers-crematorium-govt-inaction-pollution-556407
+
+[Read on Telegram](https://t.me/livelawindia/123400)
+
+---
+### 2026-10-29T04:39:25+00:00
+Mumbai Court Denies Anticipatory Bail To 3 Booked For Misappropriating ₹3.92 Crore During Dharma's 'Naagzilla' Film Production
+https://www.livelaw.in/news-updates/mumbai-court-denies-anticipatory-bail-to-3-booked-for-misappropriating-392-crore-during-dharmas-naagzilla-film-production-556408
+
+[Read on Telegram](https://t.me/livelawindia/123401)
+
+---
+### 2026-10-29T04:51:25+00:00
+LiveLaw Breaking News Alerts: 29 October 2026
+https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts-29-october-2026-556409
+
+[Read on Telegram](https://t.me/livelawindia/123402)
 
 ---
