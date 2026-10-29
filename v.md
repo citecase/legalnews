@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-29T13:32:30+00:00*
+*Last Updated: 2026-10-29T16:02:34+00:00*
+
+---
+
+### 2026-10-29T16:02:34+00:00
+Apprehensive Of False Complaints Made With Lure Of Future Settlement: Supreme Court Says Rape Case Can’t Be Quashed Solely On Compromise
+https://www.verdictum.in/supreme-court/gopal-lodhi-v-state-of-madhya-pradesh-and-another-2026-insc-1164-rape-1624770
+
+[Source Link](https://t.me/verdictumlegalupdates/29956)
+
+---
+
+### 2026-10-29T15:32:53+00:00
+Supreme Court Issues Notice On PIL Seeking Protocol To Protect Women Police Personnel During Protests
+https://www.verdictum.in/supreme-court/issues-notice-pil-seeking-protocol-protect-women-police-personnel-protest-deployments-1624772
+
+[Source Link](https://t.me/verdictumlegalupdates/29955)
+
+---
+
+### 2026-10-29T15:02:33+00:00
+Unauthorised Transactions Alone Do Not Establish Bank’s Service Deficiency Without Proven Fault: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/state-bank-of-india-v-prof-kp-sreenath-unauthorised-transaction-otp-bank-1624768
+
+[Source Link](https://t.me/verdictumlegalupdates/29954)
+
+---
+
+### 2026-10-29T14:33:12+00:00
+Selection Of A Pontiff Is A Purely Religious Function And Not A Secular Or Administrative Act: Madras High Court
+https://www.verdictum.in/madras-high-court/s-veeraraghavan-v-state-of-tamil-nadu-wpmd-no-30431-of-2026-pontiff-jeeyar-vacancy-at-srirangam-1624767
+
+[Source Link](https://t.me/verdictumlegalupdates/29953)
+
+---
+
+### 2026-10-29T14:02:11+00:00
+Once Foundational Facts Are Proved, Prosecution Need Not Negate Every Hypothetical Income Source In Disproportionate-Assets Case: Supreme Court
+https://www.verdictum.in/supreme-court/v-gopalakrishnan-v-state-of-kerala-2026-insc-1172-disproportionate-assets-1624766
+
+[Source Link](https://t.me/verdictumlegalupdates/29952)
 
 ---
 
@@ -121,46 +161,6 @@ Income Tax Reopening Notice Valid When Based On Tangible Material With Live Link
 https://www.verdictum.in/supreme-court/chetan-sabharwal-v-assistant-commissioner-of-income-tax-2026-insc-1163-section-1431-intimations-assessments-1624747
 
 [Source Link](https://t.me/verdictumlegalupdates/29937)
-
----
-
-### 2026-10-29T05:12:47+00:00
-Staff Statements Do Not Conclusively Establish Promotion; ACP Financial Upgradation Is Not Substantive Promotion: Delhi High Court
-https://www.verdictum.in/delhi-high-court/the-managing-committee-of-the-pinnacle-school-v-the-director-of-education-2026dhc9497-substantive-promotion-teacher-1624745
-
-[Source Link](https://t.me/verdictumlegalupdates/29936)
-
----
-
-### 2026-10-29T04:32:56+00:00
-Disallowing Amount Not Treated As Allowance By Assessee Is Impermissible Under  Income Tax Act: Supreme Court
-https://www.verdictum.in/supreme-court/ms-lakshmi-sugar-mills-co-ltd-v-commissioner-of-income-tax-delhi-ii-2026-insc-1162-1624743
-
-[Source Link](https://t.me/verdictumlegalupdates/29935)
-
----
-
-### 2026-10-28T16:03:08+00:00
-Assistant Legal Aid Advisor, Superintendent, Assistant (Legal) Vacancies At NALSA
-https://www.verdictum.in/job-updates/national-legal-services-authority-1624736
-
-[Source Link](https://t.me/verdictumlegalupdates/29934)
-
----
-
-### 2026-10-28T15:32:27+00:00
-Reckless & Unsubstantiated Allegations Against Wife, Disowning Child & Refusing DNA Test, Amount To Cruelty By Husband: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/s-v-j-so-d-2026khc-d17353-db-two-year-desertion-period-1624737
-
-[Source Link](https://t.me/verdictumlegalupdates/29933)
-
----
-
-### 2026-10-28T15:02:25+00:00
-School Certificate Or Birth Record Alone Cannot Prove Victim’s Age; Source Of Entry Must Be Established: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/bhimbhai-virabhai-dhangri-v-state-of-gujarat-and-another-school-record-age-proof-1624735
-
-[Source Link](https://t.me/verdictumlegalupdates/29932)
 
 ---
 
