@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-30T13:12:35+00:00*
+*Last Updated: 2026-10-30T16:03:04+00:00*
+
+---
+
+### 2026-10-30T16:03:04+00:00
+Water Usage Charges On Hydropower Projects Are Tax On Electricity Generation: J&K And Ladakh High Court Strikes Down Levy
+https://www.verdictum.in/jammu-ladakh-high-court/ms-mass-n-energy-and-others-v-union-of-india-and-others-with-connected-petitions-1624837
+
+[Source Link](https://t.me/verdictumlegalupdates/29978)
+
+---
+
+### 2026-10-30T15:32:23+00:00
+Any Request Made By Supreme Court To Any Court Or Tribunal Shall Be Treated As A Direction: Apex Court Pulls Up NCLAT
+https://www.verdictum.in/supreme-court/request-treat-as-direction-1624846
+
+[Source Link](https://t.me/verdictumlegalupdates/29977)
+
+---
+
+### 2026-10-30T15:02:42+00:00
+Property Upon Attachment Becomes Custodia Legis: Apex Court Sets Aside Order Outsting Mother-In-Law & Sisters-In-Law From Shared Household Under DV Act
+https://www.verdictum.in/supreme-court/mother-in-law-sisters-in-law-cant-be-ousted-shared-household-non-appearance-of-husband-1624844
+
+[Source Link](https://t.me/verdictumlegalupdates/29976)
+
+---
+
+### 2026-10-30T14:33:01+00:00
+120-Day Limit U/S 74 Of RFCTLARR Act Is Inflexible; Even One-Day Delay Bars Land Acquisition Appeal: Supreme Court
+https://www.verdictum.in/supreme-court/rajasthan-housing-board-v-ms-hariyali-rural-ventures-ltd-others-2026-insc-1168-1624835
+
+[Source Link](https://t.me/verdictumlegalupdates/29975)
+
+---
+
+### 2026-10-30T14:02:37+00:00
+Allahabad High Court Dismisses PIL Against 18% GST On Online Legal Research Services
+https://www.verdictum.in/allahabad-high-court/aniket-gupta-v-union-of-india-and-four-others-2026ahc221725-db-legal-services-gst-1624843
+
+[Source Link](https://t.me/verdictumlegalupdates/29974)
+
+---
+
+### 2026-10-30T13:33:16+00:00
+Arbitral Tribunal Cannot Rewrite Contract Or Grant Relief Contrary To Its Terms: Supreme Court
+https://www.verdictum.in/supreme-court/shreeram-builders-v-upendra-kantilal-thanawala-and-others-2026-insc-1176-1624834
+
+[Source Link](https://t.me/verdictumlegalupdates/29973)
 
 ---
 
@@ -113,54 +161,6 @@ Legislature Cannot Nullify Judgments Of Constitutional Courts: Supreme Court Str
 https://www.verdictum.in/supreme-court/srinivasa-t-v-the-state-of-karnataka-2026-insc-1173-2011-kpsc-recruitment-tainted-employees-1624795
 
 [Source Link](https://t.me/verdictumlegalupdates/29959)
-
----
-
-### 2026-10-30T04:32:40+00:00
-Moratorium U/S 14 IBC Bars Proceedings Against Corporate Debtor, Not Counterclaims Pursued By It: Bombay High Court
-https://www.verdictum.in/bombay-high-court/a-a-estates-private-limited-through-its-resolution-professional-v-govind-niwas-co-operative-housing-society-2026bhc-os23161-1624771
-
-[Source Link](https://t.me/verdictumlegalupdates/29958)
-
----
-
-### 2026-10-30T04:32:29+00:00
-Being A Practicing Advocate Does Not Make It To Be Exceptional Case: Delhi High Court Denies Anticipatory Bail To Advocate Declared Proclaimed Offender
-https://www.verdictum.in/delhi-high-court/vikas-yadav-v-state-of-nct-of-delhi-2026dhc9520-advocate-declared-proclaimed-offender-molest-assault-1624769
-
-[Source Link](https://t.me/verdictumlegalupdates/29957)
-
----
-
-### 2026-10-29T16:02:34+00:00
-Apprehensive Of False Complaints Made With Lure Of Future Settlement: Supreme Court Says Rape Case Can’t Be Quashed Solely On Compromise
-https://www.verdictum.in/supreme-court/gopal-lodhi-v-state-of-madhya-pradesh-and-another-2026-insc-1164-rape-1624770
-
-[Source Link](https://t.me/verdictumlegalupdates/29956)
-
----
-
-### 2026-10-29T15:32:53+00:00
-Supreme Court Issues Notice On PIL Seeking Protocol To Protect Women Police Personnel During Protests
-https://www.verdictum.in/supreme-court/issues-notice-pil-seeking-protocol-protect-women-police-personnel-protest-deployments-1624772
-
-[Source Link](https://t.me/verdictumlegalupdates/29955)
-
----
-
-### 2026-10-29T15:02:33+00:00
-Unauthorised Transactions Alone Do Not Establish Bank’s Service Deficiency Without Proven Fault: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/state-bank-of-india-v-prof-kp-sreenath-unauthorised-transaction-otp-bank-1624768
-
-[Source Link](https://t.me/verdictumlegalupdates/29954)
-
----
-
-### 2026-10-29T14:33:12+00:00
-Selection Of A Pontiff Is A Purely Religious Function And Not A Secular Or Administrative Act: Madras High Court
-https://www.verdictum.in/madras-high-court/s-veeraraghavan-v-state-of-tamil-nadu-wpmd-no-30431-of-2026-pontiff-jeeyar-vacancy-at-srirangam-1624767
-
-[Source Link](https://t.me/verdictumlegalupdates/29953)
 
 ---
 
