@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-29T16:02:34+00:00*
+*Last Updated: 2026-10-30T05:33:02+00:00*
+
+---
+
+### 2026-10-30T05:33:02+00:00
+Supreme Court Collegium Recommends 9 Advocates For Appointment As Judges Of Jammu & Kashmir and Ladakh High Court
+https://www.verdictum.in/supreme-court/sc-collegium-recommends-9-advocates-for-appointment-as-judges-of-jk-and-l-hc-1624796
+
+[Source Link](https://t.me/verdictumlegalupdates/29960)
+
+---
+
+### 2026-10-30T05:22:41+00:00
+Legislature Cannot Nullify Judgments Of Constitutional Courts: Supreme Court Strikes Down Karnataka Validation Act For 2011 KPSC Recruitment
+https://www.verdictum.in/supreme-court/srinivasa-t-v-the-state-of-karnataka-2026-insc-1173-2011-kpsc-recruitment-tainted-employees-1624795
+
+[Source Link](https://t.me/verdictumlegalupdates/29959)
+
+---
+
+### 2026-10-30T04:32:40+00:00
+Moratorium U/S 14 IBC Bars Proceedings Against Corporate Debtor, Not Counterclaims Pursued By It: Bombay High Court
+https://www.verdictum.in/bombay-high-court/a-a-estates-private-limited-through-its-resolution-professional-v-govind-niwas-co-operative-housing-society-2026bhc-os23161-1624771
+
+[Source Link](https://t.me/verdictumlegalupdates/29958)
+
+---
+
+### 2026-10-30T04:32:29+00:00
+Being A Practicing Advocate Does Not Make It To Be Exceptional Case: Delhi High Court Denies Anticipatory Bail To Advocate Declared Proclaimed Offender
+https://www.verdictum.in/delhi-high-court/vikas-yadav-v-state-of-nct-of-delhi-2026dhc9520-advocate-declared-proclaimed-offender-molest-assault-1624769
+
+[Source Link](https://t.me/verdictumlegalupdates/29957)
 
 ---
 
@@ -129,38 +161,6 @@ Supreme Court Rejects Actor's Plea Seeking Recognition Of Relationship With Raje
 https://www.verdictum.in/supreme-court/plea-seeking-recognition-of-relationship-with-rajesh-khanna-as-marriage-1624752
 
 [Source Link](https://t.me/verdictumlegalupdates/29941)
-
----
-
-### 2026-10-29T07:53:00+00:00
-“Suspicion Has to Be Converted Into Foolproof Evidence”: Supreme Court Declines Chhattisgarh’s Plea Against Bail To Former IAS Officer Anil Tuteja
-https://www.verdictum.in/supreme-court/chhattisgarh-plea-against-bail-to-former-ias-officer-anil-tuteja-1624751
-
-[Source Link](https://t.me/verdictumlegalupdates/29940)
-
----
-
-### 2026-10-29T07:12:09+00:00
-Tribunal Hijacked By MCA: Apex Court Says Autonomy Of Tribunal Is Impinged & Seeks Proposal From NCLAT & NCLT On Infrastructure Deficiencies
-https://www.verdictum.in/supreme-court/says-autonomy-tribunal-impinged-proposal-from-nclat-nclt-infrastructure-deficiencies-1624750
-
-[Source Link](https://t.me/verdictumlegalupdates/29939)
-
----
-
-### 2026-10-29T06:33:08+00:00
-“What A Policy Says, It Is”: Supreme Court Grants War Injury Pension For Disability During Operation Rakshak Posting
-https://www.verdictum.in/supreme-court/union-of-india-v-narender-kumar-2026-insc-1166-operation-rakshak-posting-disability-pension-1624748
-
-[Source Link](https://t.me/verdictumlegalupdates/29938)
-
----
-
-### 2026-10-29T05:56:58+00:00
-Income Tax Reopening Notice Valid When Based On Tangible Material With Live Link; Change Of Opinion Requires Conscious Application Of Mind: Supreme Court
-https://www.verdictum.in/supreme-court/chetan-sabharwal-v-assistant-commissioner-of-income-tax-2026-insc-1163-section-1431-intimations-assessments-1624747
-
-[Source Link](https://t.me/verdictumlegalupdates/29937)
 
 ---
 
