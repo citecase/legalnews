@@ -1,93 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-30T09:32:48+00:00*
+*Last Updated: 2026-10-30T11:17:18+00:00*
 
 ---
 
-### 2026-10-30T09:32:48+00:00
-Equal Access To Joy: Disability And Right To Entertainment
-https://www.livelaw.in/articles/equal-access-joy-disability-entertainment-right-556318
-
-[Read on Telegram](https://t.me/livelawindia/123545)
-
----
-### 2026-10-30T09:36:48+00:00
-Ashish Joshi Moves High Court Seeking Reasons For Repeated CAPF Deployment During Delhi Protests
-https://www.livelaw.in/high-court/delhi-high-court/ashish-joshi-moves-high-court-seeking-reasons-for-repeated-capf-deployment-during-delhi-protests-556642
-
-[Read on Telegram](https://t.me/livelawindia/123546)
-
----
-### 2026-10-30T10:00:58+00:00
-UGC Regulations | Will Time Spent On PhD Count As 'Teaching Experience' For Associate Professor Post? Supreme Court Reserves Judgment
-https://www.livelaw.in/top-stories/ugc-regulations-will-time-spent-on-phd-count-as-teaching-experience-for-associate-professor-post-supreme-court-reserves-judgment-556644
-
-[Read on Telegram](https://t.me/livelawindia/123547)
-
----
-### 2026-10-30T10:06:38+00:00
-Rajasthan High Court Closes Asaram's 20-Day Parole Plea, Notes State's Compliance
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-disposes-of-asarams-20-day-parole-petition-notes-compliance-by-state-556647
-
-[Read on Telegram](https://t.me/livelawindia/123548)
-
----
-### 2026-10-30T10:13:38+00:00
-Supreme Court Directs Atibir Industries To Pay ₹375 Crore To Settle SBI Loan Dispute
-https://www.livelaw.in/supreme-court/supreme-court-directs-atibir-industries-to-pay-375-crore-to-settle-sbi-loan-dispute-556651
-
-[Read on Telegram](https://t.me/livelawindia/123549)
-
----
-### 2026-10-30T10:14:28+00:00
-P&H High Court Refuses To Quash POCSO Case Against Man Accused Of Offering Money, Making Obscene Gestures At Minor Girls
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/pocso-compromise-rejected-man-accused-of-offering-money-making-obscene-gestures-556653
-
-[Read on Telegram](https://t.me/livelawindia/123550)
-
----
-### 2026-10-30T10:14:38+00:00
-2026 LiveLaw (SC) 1108 |  ATIBIR INDUSTRIES CO. LTD VERSUS STATE BANK OF INDIA & ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1108-atibir-industries-co-ltd-versus-state-bank-of-india-anr-556652
-
-[Read on Telegram](https://t.me/livelawindia/123551)
-
----
-### 2026-10-30T10:17:58+00:00
-Meghalaya High Court Quashes POCSO Case Against Man Living With Survivor, Directs Authorities To Ensure Welfare Benefits For Her And Child
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-quashes-pocso-case-against-man-living-with-survivor-556624
-
-[Read on Telegram](https://t.me/livelawindia/123552)
-
----
-### 2026-10-30T10:33:08+00:00
-Sanction To Prosecute Public Servant Can't Substitute Superior Officer's Report U/S 223(2) BNSS For PMLA Cognizance: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/section-2232b-bnss-mandatory-before-cognizance-pmla-cases-against-public-servants-556657
-
-[Read on Telegram](https://t.me/livelawindia/123553)
-
----
-### 2026-10-30T10:52:48+00:00
-Claimants Can Receive Motor Accident Compensation In Any Nationalised Bank Account, Need Not Open Union Bank Account: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-account-in-any-nationalised-bank-sufficient-to-receive-motor-accident-compensation-556661
-
-[Read on Telegram](https://t.me/livelawindia/123554)
-
----
-### 2026-10-30T10:58:28+00:00
-Twisha Sharma Case | Former Judge Giribala Singh Likely To Influence Trial In MP : CBI Tells Supreme Court, Supports Transfer Plea
-https://www.livelaw.in/top-stories/twisha-sharma-case-former-judge-giribala-singh-likely-to-influence-trial-in-mp-cbi-tells-supreme-court-supports-transfer-plea-556664
-
-[Read on Telegram](https://t.me/livelawindia/123555)
-
----
-### 2026-10-30T10:58:48+00:00
-Reminding Maharashtra Police Of Its Motto, Bombay High Court Declares Arun Ferreira's 2011 Arrest Illegal, Grants ₹2 Lakh Compensation
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-declares-arun-ferreira-arrest-illegal-grants-compensation-556665
-
-[Read on Telegram](https://t.me/livelawindia/123556)
-
----
 ### 2026-10-30T11:17:18+00:00
 S. 96 CPC | Non-Parties Can Challenge Consent Decree With Leave If Their Rights Are Affected: Supreme Court
 https://www.livelaw.in/supreme-court/s-96-cpc-non-parties-can-challenge-consent-decree-with-leave-if-their-rights-are-affected-supreme-court-556670
@@ -142,5 +58,89 @@ Disputed Liability Cannot Be Converted Into Admitted Obligation To Attract Order
 https://www.livelaw.in/high-court/jammu-kashmir/disputed-liability-cannot-be-converted-into-admitted-obligation-to-attract-order-xxxix-rule-10-cpc-jk-high-court-556521
 
 [Read on Telegram](https://t.me/livelawindia/123564)
+
+---
+### 2026-10-30T12:36:29+00:00
+Vizhinjam Port : Kerala High Court Quashes Govt Order Forming Expert Committee To Examine Coastal Erosion
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-vizhinjam-port-erosion-directs-stateconstitute-independent-expert-committee-556683
+
+[Read on Telegram](https://t.me/livelawindia/123565)
+
+---
+### 2026-10-30T12:42:09+00:00
+2026 LiveLaw (SC) 1111 | SANTHOSH KUMAR N.P Vs STATE-STATION HOUSE OFFICER
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1111-santhosh-kumar-np-vs-state-station-house-officer-556684
+
+[Read on Telegram](https://t.me/livelawindia/123566)
+
+---
+### 2026-10-30T12:51:59+00:00
+Court Cannot Pass Moral Judgments On Adults' Choices': Supreme Court
+https://www.livelaw.in/top-stories/court-cannot-pass-moral-judgments-on-adults-choices-supreme-court-556686
+
+[Read on Telegram](https://t.me/livelawindia/123567)
+
+---
+### 2026-10-30T13:28:19+00:00
+Supreme Court Collegium Recommends Six Names For Appointment As Chhattisgarh High Court Judges
+https://www.livelaw.in/top-stories/supreme-court-collegium-recommends-six-names-for-appointment-as-chhattisgarh-high-court-judges-556690
+
+[Read on Telegram](https://t.me/livelawindia/123568)
+
+---
+### 2026-10-30T13:34:29+00:00
+Supreme Court Collegium Recommends Appointment of 5 Judicial Officers as Judges of Madhya Pradesh High Court
+https://www.livelaw.in/news-updates/supreme-court-collegium-recommends-appointment-of-5-judicial-officers-as-judges-of-madhya-pradesh-high-court-556691
+
+[Read on Telegram](https://t.me/livelawindia/123569)
+
+---
+### 2026-10-30T14:27:19+00:00
+'Focus On Career, Not Social Media Likes': Allahabad High Court Advises Young Advocates Amid Bar-Bench Tensions
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-focus-career-not-social-media-likes-advises-young-advocates-bench-bar-tensions-556693
+
+[Read on Telegram](https://t.me/livelawindia/123570)
+
+---
+### 2026-10-30T14:32:39+00:00
+Once Cloned, Why Kept? Digital Devices And Limits Of Retention Under PMLA
+https://www.livelaw.in/articles/digital-devices-limits-retention-pmla-556320
+
+[Read on Telegram](https://t.me/livelawindia/123571)
+
+---
+### 2026-10-30T14:34:39+00:00
+"Matter Of Serious Concern": Bombay High Court Flags Misuse Of Former CJ's Name By Special Officer In Trust Matter
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-quashes-order-former-cj-name-556697
+
+[Read on Telegram](https://t.me/livelawindia/123572)
+
+---
+### 2026-10-30T14:46:59+00:00
+Allahabad High Court Prescribes Uniform Formatting Rules For Physical & E-Filings; New Norms Applicable From November 12
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-uniform-formatting-rules-physical-e-filings-556701
+
+[Read on Telegram](https://t.me/livelawindia/123573)
+
+---
+### 2026-10-30T15:01:59+00:00
+Gurgaon School Murder Case| P&H High Court Rejects CBI's Plea To Transfer Trial From Children's Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-gurgaon-school-murder-case-refuses-to-transfer-case-to-cbi-556705
+
+[Read on Telegram](https://t.me/livelawindia/123574)
+
+---
+### 2026-10-30T15:03:49+00:00
+Delhi High Court Bar Association Seeks Exemption For Judges, Lawyers From Proposed BS-VI Vehicle Ban
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-bar-association-seeks-exemption-for-judges-lawyers-from-proposed-bs-vi-vehicle-ban-556707
+
+[Read on Telegram](https://t.me/livelawindia/123575)
+
+---
+### 2026-10-30T17:52:40+00:00
+LiveLaw Daily | NCLT Crisis | Mahua Moitra | Transgender Rights | Mamata Banerjee & More
+https://www.livelaw.in/podcast/cjp-saurav-das-twisha-sharma-reliance-industries-cji-surya-kant-bns-law-news-india-judiciary-upsc-556714
+
+[Read on Telegram](https://t.me/livelawindia/123576)
 
 ---
