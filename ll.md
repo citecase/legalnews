@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-30T11:17:18+00:00*
+*Last Updated: 2026-10-30T12:42:09+00:00*
 
 ---
 
-### 2026-10-30T11:17:18+00:00
-S. 96 CPC | Non-Parties Can Challenge Consent Decree With Leave If Their Rights Are Affected: Supreme Court
-https://www.livelaw.in/supreme-court/s-96-cpc-non-parties-can-challenge-consent-decree-with-leave-if-their-rights-are-affected-supreme-court-556670
-
-[Read on Telegram](https://t.me/livelawindia/123557)
-
----
-### 2026-10-30T11:18:58+00:00
-2026 LiveLaw (SC) 1109 | GIRISHBHAI NATWARLAL PATEL Versus GAUTAM PUNJABHAI PALKHIWALA (DEAD) BY LRS & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1109-girishbhai-natwarlal-patel-versus-gautam-punjabhai-palkhiwala-dead-by-lrs-ors-556671
-
-[Read on Telegram](https://t.me/livelawindia/123558)
-
----
-### 2026-10-30T11:27:38+00:00
-Are Trans Women's Rights Different From Women's Rights? | Women's Group Moves SC
-https://www.livelaw.in/videos/nalsa-trans-rights-gender-womens-rights-india-sex-transgender-protection-act-supreme-court-india-news-law-legal-news-556674
-
-[Read on Telegram](https://t.me/livelawindia/123559)
-
----
-### 2026-10-30T11:37:38+00:00
-Mere Filing Of Police Complaint Does Not Amount To Defamation: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/mere-filing-of-police-complaint-does-not-amount-to-defamation-delhi-high-court-556637
-
-[Read on Telegram](https://t.me/livelawindia/123560)
-
----
-### 2026-10-30T11:38:58+00:00
-Women Who Tried To Throw Purse At Bombay High Court Judge Apologises
-https://www.livelaw.in/high-court/bombay-high-court/women-who-tried-to-throw-purse-at-bombay-high-court-judge-apologises-556677
-
-[Read on Telegram](https://t.me/livelawindia/123561)
-
----
-### 2026-10-30T11:46:58+00:00
-'APTEL Has Gone Haywire' : Supreme Court Slams Tribunal For Overruling SC Precedent In Review
-https://www.livelaw.in/supreme-court/aptel-has-gone-haywire-supreme-court-slams-tribunal-for-overruling-sc-precedent-in-review-556678
-
-[Read on Telegram](https://t.me/livelawindia/123562)
-
----
-### 2026-10-30T11:47:58+00:00
-2026 LiveLaw (SC) 1110 | Damodar Valley Corporation v. Maithan Alloys Limited & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1110-damodar-valley-corporation-v-maithan-alloys-limited-ors-556679
-
-[Read on Telegram](https://t.me/livelawindia/123563)
-
----
-### 2026-10-30T11:58:29+00:00
-Disputed Liability Cannot Be Converted Into Admitted Obligation To Attract Order 39 Rule 10 CPC: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/disputed-liability-cannot-be-converted-into-admitted-obligation-to-attract-order-xxxix-rule-10-cpc-jk-high-court-556521
-
-[Read on Telegram](https://t.me/livelawindia/123564)
-
----
-### 2026-10-30T12:36:29+00:00
-Vizhinjam Port : Kerala High Court Quashes Govt Order Forming Expert Committee To Examine Coastal Erosion
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-vizhinjam-port-erosion-directs-stateconstitute-independent-expert-committee-556683
-
-[Read on Telegram](https://t.me/livelawindia/123565)
-
----
 ### 2026-10-30T12:42:09+00:00
 2026 LiveLaw (SC) 1111 | SANTHOSH KUMAR N.P Vs STATE-STATION HOUSE OFFICER
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1111-santhosh-kumar-np-vs-state-station-house-officer-556684
@@ -142,5 +79,69 @@ LiveLaw Daily | NCLT Crisis | Mahua Moitra | Transgender Rights | Mamata Banerje
 https://www.livelaw.in/podcast/cjp-saurav-das-twisha-sharma-reliance-industries-cji-surya-kant-bns-law-news-india-judiciary-upsc-556714
 
 [Read on Telegram](https://t.me/livelawindia/123576)
+
+---
+### 2026-10-31T04:14:19+00:00
+LiveLaw High Courts Daily Highlights: October 30, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-october-30-2026-556718
+
+[Read on Telegram](https://t.me/livelawindia/123577)
+
+---
+### 2026-10-31T04:17:39+00:00
+A Compromised Collegium Without Collegiality? Justice Kaul's Memoir Raises Concerns
+https://www.livelaw.in/articles/a-compromised-collegium-without-collegiality-justice-kauls-memoir-raises-concerns-556720
+
+[Read on Telegram](https://t.me/livelawindia/123578)
+
+---
+### 2026-10-31T04:30:19+00:00
+Kerala High Court Refuses Interim Plea To Restrain Former Kerala Bar Council Chairman From Attending Legal Education Trust Function
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-refuses-interim-plea-to-restrain-former-bar-council-chairman-from-attending-legal-education-trust-function-556721
+
+[Read on Telegram](https://t.me/livelawindia/123579)
+
+---
+### 2026-10-31T04:30:29+00:00
+Client Hurling Casteist Slurs At Lawyer In Her Office Amounts To 'Public View' Under SC/ST Act: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-quash-sc-st-act-proceedings-against-client-556722
+
+[Read on Telegram](https://t.me/livelawindia/123580)
+
+---
+### 2026-10-31T04:32:19+00:00
+Permanent On Paper: How One Exception In OSH Code Could Quietly Shrink Protection For Contract Workers
+https://www.livelaw.in/articles/exception-osh-code-quietly-shrink-protection-contract-workers-556502
+
+[Read on Telegram](https://t.me/livelawindia/123581)
+
+---
+### 2026-10-31T04:32:29+00:00
+#TheLawChallenge
+ : A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
+https://www.livelaw.in/top-stories/livelaw-and-qshala-weekly-quiz-556706
+
+[Read on Telegram](https://t.me/livelawindia/123582)
+
+---
+### 2026-10-31T04:38:19+00:00
+Explainer : What Are Peace Bonds? When Can Executive Magistrates Order Them?
+https://www.livelaw.in/news-updates/when-can-magistrate-direct-execution-of-peace-bond-556711
+
+[Read on Telegram](https://t.me/livelawindia/123583)
+
+---
+### 2026-10-31T04:38:29+00:00
+Undertrial Prisoner Entitled To Food Suited To His Medical Condition: Chennai Court On Anbil Mahesh's Plea For Home-Cooked Food In Prison
+https://www.livelaw.in/news-updates/anbil-mahesh-home-cooked-food-prison-undertrial-prisoner-entitled-556723
+
+[Read on Telegram](https://t.me/livelawindia/123584)
+
+---
+### 2026-10-31T04:47:29+00:00
+Continuing Kasturba Gandhi Balika Vidyalaya Teachers On Contract For Years On Paltry Pay Is 'Forced Labour' Under Article 23: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-continuing-kasturba-gandhi-balika-vidyalayas-teachers-contract-article23-556724
+
+[Read on Telegram](https://t.me/livelawindia/123585)
 
 ---
