@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-30T16:03:04+00:00*
+*Last Updated: 2026-10-31T05:53:17+00:00*
+
+---
+
+### 2026-10-31T05:53:17+00:00
+State Cannot Abandon Ongoing Recruitment Process Without Proper Reasons And Justification: Chhattisgarh High Court
+https://www.verdictum.in/chhattisgarh-high-court/aditya-saini-and-others-v-state-of-chhattisgarh-and-others-2026cghc45524-1624836
+
+[Source Link](https://t.me/verdictumlegalupdates/29981)
+
+---
+
+### 2026-10-31T05:13:16+00:00
+Supreme Court Collegium Recommends 11 Judges For Chhattisgarh & Madhya Pradesh High Courts
+https://www.verdictum.in/supreme-court/collegium-recommends-11-judges-for-chhattisgarh-madhya-pradesh-high-courts-1624867
+
+[Source Link](https://t.me/verdictumlegalupdates/29980)
+
+---
+
+### 2026-10-31T04:32:55+00:00
+Driver Holding Licence For LMV Can Drive Light Goods Vehicle Not Exceeding 7,500 Kg Without Transport Endorsement: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/oriental-insurance-company-ltd-v-jitendraji-manuji-chavda-rfirst-appeal-no-1696-of-2019-vehicle-exceeding-7500-kg-1624838
+
+[Source Link](https://t.me/verdictumlegalupdates/29979)
 
 ---
 
@@ -137,30 +161,6 @@ Breaking: Supreme Court Directs MeitY To Ensure Compliance With Directions On Un
 https://www.verdictum.in/supreme-court/directs-meity-ensure-compliance-directions-unauthorised-extraction-circulation-court-proceedings-1624810
 
 [Source Link](https://t.me/verdictumlegalupdates/29962)
-
----
-
-### 2026-10-30T06:22:28+00:00
-Occupant Of Private Car Is Not A "Third Party": Himachal Pradesh High Court Allows Appeal By Insurance Company  Against MACT Award
-https://www.verdictum.in/himachal-high-court/new-india-assurance-company-limited-v-promila-devi-2026hhc47519-motor-vehicles-act-head-of-the-district-judiciary-1624802
-
-[Source Link](https://t.me/verdictumlegalupdates/29961)
-
----
-
-### 2026-10-30T05:33:02+00:00
-Supreme Court Collegium Recommends 9 Advocates For Appointment As Judges Of Jammu & Kashmir and Ladakh High Court
-https://www.verdictum.in/supreme-court/sc-collegium-recommends-9-advocates-for-appointment-as-judges-of-jk-and-l-hc-1624796
-
-[Source Link](https://t.me/verdictumlegalupdates/29960)
-
----
-
-### 2026-10-30T05:22:41+00:00
-Legislature Cannot Nullify Judgments Of Constitutional Courts: Supreme Court Strikes Down Karnataka Validation Act For 2011 KPSC Recruitment
-https://www.verdictum.in/supreme-court/srinivasa-t-v-the-state-of-karnataka-2026-insc-1173-2011-kpsc-recruitment-tainted-employees-1624795
-
-[Source Link](https://t.me/verdictumlegalupdates/29959)
 
 ---
 
