@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-31T12:32:57+00:00*
+*Last Updated: 2026-10-31T15:12:22+00:00*
+
+---
+
+### 2026-10-31T15:12:22+00:00
+Senior Associate (Law) Vacancy At National Projects Construction Corporation Limited (NPCC)
+https://www.verdictum.in/job-updates/national-projects-construction-corporation-limited-1624894
+
+[Source Link](https://t.me/verdictumlegalupdates/29995)
+
+---
+
+### 2026-10-31T14:32:21+00:00
+Large Number Of Devotees Likely To Visit Somnath Temple During Deepavali: Gujarat High Court Stays Order Quashing Meat Ban Notification
+https://www.verdictum.in/gujarat-high-court/state-of-gujarat-v-ms-taj-restaurant-owner-aakib-aminbhai-khan-rletters-patent-appeal-no-886-of-2026-meat-ban-notification-1624913
+
+[Source Link](https://t.me/verdictumlegalupdates/29994)
+
+---
+
+### 2026-10-31T13:52:20+00:00
+Kerala High Court's Internship Policy: High Court Directs Issuance Of Temporary Entry Pass To Law Intern Challenging Policy
+https://www.verdictum.in/kerala-high-court/austin-suney-v-high-court-of-kerala-temporary-entry-pass-law-internship-policy-1624910
+
+[Source Link](https://t.me/verdictumlegalupdates/29993)
+
+---
+
+### 2026-10-31T13:12:59+00:00
+Supreme Court Declines To Direct Pre-Loaded OBC Drop-Down Menu For Caste Column In Census, Terms It A Policy Decision
+https://www.verdictum.in/supreme-court/direct-pre-loaded-obc-drop-down-menu-caste-column-issue-is-a-policy-decision-1624889
+
+[Source Link](https://t.me/verdictumlegalupdates/29992)
 
 ---
 
@@ -129,38 +161,6 @@ Property Upon Attachment Becomes Custodia Legis: Apex Court Sets Aside Order Out
 https://www.verdictum.in/supreme-court/mother-in-law-sisters-in-law-cant-be-ousted-shared-household-non-appearance-of-husband-1624844
 
 [Source Link](https://t.me/verdictumlegalupdates/29976)
-
----
-
-### 2026-10-30T14:33:01+00:00
-120-Day Limit U/S 74 Of RFCTLARR Act Is Inflexible; Even One-Day Delay Bars Land Acquisition Appeal: Supreme Court
-https://www.verdictum.in/supreme-court/rajasthan-housing-board-v-ms-hariyali-rural-ventures-ltd-others-2026-insc-1168-1624835
-
-[Source Link](https://t.me/verdictumlegalupdates/29975)
-
----
-
-### 2026-10-30T14:02:37+00:00
-Allahabad High Court Dismisses PIL Against 18% GST On Online Legal Research Services
-https://www.verdictum.in/allahabad-high-court/aniket-gupta-v-union-of-india-and-four-others-2026ahc221725-db-legal-services-gst-1624843
-
-[Source Link](https://t.me/verdictumlegalupdates/29974)
-
----
-
-### 2026-10-30T13:33:16+00:00
-Arbitral Tribunal Cannot Rewrite Contract Or Grant Relief Contrary To Its Terms: Supreme Court
-https://www.verdictum.in/supreme-court/shreeram-builders-v-upendra-kantilal-thanawala-and-others-2026-insc-1176-1624834
-
-[Source Link](https://t.me/verdictumlegalupdates/29973)
-
----
-
-### 2026-10-30T13:12:35+00:00
-Trial Court Cannot Overlook Cross-Examination Demolishing Chief Deposition While Invoking Section 319 CrPC: Supreme Court
-https://www.verdictum.in/supreme-court/trial-court-overlook-statement-during-cross-examination-demolishing-chief-deposition-1624833
-
-[Source Link](https://t.me/verdictumlegalupdates/29972)
 
 ---
 
