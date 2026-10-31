@@ -1,6 +1,86 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-31T05:53:17+00:00*
+*Last Updated: 2026-10-31T12:32:57+00:00*
+
+---
+
+### 2026-10-31T12:32:57+00:00
+Consent To A Relationship Is Not Tantamount To Consent To Each Act Within It: Delhi High Court
+https://www.verdictum.in/delhi-high-court/akshay-aditya-v-the-state-of-nct-of-delhi-2026dhc9608-doctor-accused-of-rape-consensual-relationship-1624888
+
+[Source Link](https://t.me/verdictumlegalupdates/29991)
+
+---
+
+### 2026-10-31T11:52:36+00:00
+Supreme Court Stays Demolition Of Kinara Mosque Near Haji Ali Dargah Until Maharashtra Decides On Regularisation
+https://www.verdictum.in/supreme-court/demolition-kinara-mosque-haji-ali-dargah-until-maharashtra-regularisation-1624887
+
+[Source Link](https://t.me/verdictumlegalupdates/29990)
+
+---
+
+### 2026-10-31T11:13:15+00:00
+Doctor’s Certificate And Thumb Impression Are Rules of Caution, Not Legal Requirements For A Valid Dying Declaration: Delhi High Court
+https://www.verdictum.in/delhi-high-court/raj-kumari-v-state-nct-of-delhi-2026dhc9629-db-1998-bride-burning-case-dowry-death-1624886
+
+[Source Link](https://t.me/verdictumlegalupdates/29989)
+
+---
+
+### 2026-10-31T10:33:03+00:00
+Supreme Court Cautions Against Release Of Accused Convicted For Heinous Offences On Ground Of No Possibility Of Appeal Being Heard
+https://www.verdictum.in/supreme-court/hanuman-prasad-hanuta-ram-v-state-of-rajasthan-2026-insc-1180-release-convict-heinous-offences-1624885
+
+[Source Link](https://t.me/verdictumlegalupdates/29988)
+
+---
+
+### 2026-10-31T09:52:33+00:00
+Order Relying On Omitted Statute Shows “Utter Ignorance”: Madhya Pradesh High Court Imposes ₹1 Lakh Costs On Municipal Officer
+https://www.verdictum.in/madhya-pradesh-high-court/ms-bafgna-hospital-and-orthopedics-research-centre-pvt-ltd-v-indore-municipal-corporation-2026mphc-ind30316-municipal-officer-indore-omitted-laws-1624882
+
+[Source Link](https://t.me/verdictumlegalupdates/29987)
+
+---
+
+### 2026-10-31T09:12:52+00:00
+Existence Of Other Infringers Is No Defence To Trademark Infringement: Delhi High Court Confirms Injunction Against Jabsons' Foods Over "Hot Mix" Namkeen
+https://www.verdictum.in/delhi-high-court/sunit-shah-proprietor-of-ms-shah-namkeen-v-ms-jabsons-foods-pvt-ltd-2026dhc9547-hot-mix-trademark-dispute-shah-hot-mix-1624881
+
+[Source Link](https://t.me/verdictumlegalupdates/29986)
+
+---
+
+### 2026-10-31T08:32:51+00:00
+Can't Claim Benefit Citing Old Age: Supreme Court Refuses To Reduce Life Sentence In Murder Case Where Appeal Was Pending For 40 Years
+https://www.verdictum.in/supreme-court/old-age-claim-any-benefit-sentence-because-significant-time-elapsed-incident-1624880
+
+[Source Link](https://t.me/verdictumlegalupdates/29985)
+
+---
+
+### 2026-10-31T07:53:20+00:00
+Physical Intimacy That Occurred During Currency Of A Functioning Relationship Cannot Be Retrospectively Branded As Acts Of Rape: Supreme Court
+https://www.verdictum.in/supreme-court/santhosh-kumar-np-v-state-station-house-officer-kadirur-police-tellicherry-kannur-district-2026-insc-1179-consensual-relationship-rape-1624874
+
+[Source Link](https://t.me/verdictumlegalupdates/29984)
+
+---
+
+### 2026-10-31T07:12:39+00:00
+Supreme Court Registers Suo Motu Writ Petition On Lawyer’s Representation Over Kerala Congress's Post Against CJI Surya Kant
+https://www.verdictum.in/supreme-court/registers-writ-petition-on-its-own-motion-lawyer-congress-kerala-post-cji-surya-kant-1624877
+
+[Source Link](https://t.me/verdictumlegalupdates/29983)
+
+---
+
+### 2026-10-31T06:32:38+00:00
+ED Cannot Arrest On Same Material After Invoking Power U/S 50 PMLA To Question Accused: Bombay High Court
+https://www.verdictum.in/bombay-high-court/jitendra-pandey-v-directorate-of-enforcement-2026bhc-as43626-ed-cannot-arrest-us-19-pmla-1624839
+
+[Source Link](https://t.me/verdictumlegalupdates/29982)
 
 ---
 
@@ -81,86 +161,6 @@ Trial Court Cannot Overlook Cross-Examination Demolishing Chief Deposition While
 https://www.verdictum.in/supreme-court/trial-court-overlook-statement-during-cross-examination-demolishing-chief-deposition-1624833
 
 [Source Link](https://t.me/verdictumlegalupdates/29972)
-
----
-
-### 2026-10-30T12:32:13+00:00
-Coordinated Defamatory Or Caste-Based Attacks On Sitting Judges Not Protected Free Speech: Madras High Court
-https://www.verdictum.in/madras-high-court/r-karthikeyan-v-union-of-india-and-others-criticism-judges-judgments-article-19-1624832
-
-[Source Link](https://t.me/verdictumlegalupdates/29971)
-
----
-
-### 2026-10-30T11:53:12+00:00
-Gravity Of Offence, Victim’s Mental And Physical Harm Must Guide Compensation In POCSO Cases: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/n-v-member-secretary-karnataka-state-legal-services-authority-and-another-2026khc-k11584-1624827
-
-[Source Link](https://t.me/verdictumlegalupdates/29970)
-
----
-
-### 2026-10-30T11:23:31+00:00
-Supreme Court Dismisses NIA's Plea Challenging Bail Granted To JK Activist Khuram Parvez In UAPA case
-https://www.verdictum.in/supreme-court/supreme-court-dismisses-nias-plea-challenging-bail-granted-to-khuram-parvez-in-uapa-case-1624826
-
-[Source Link](https://t.me/verdictumlegalupdates/29969)
-
----
-
-### 2026-10-30T11:02:50+00:00
-Bombay High Court Prohibits Census Commissioner From Notifying Estimated ST Population In Goa
-https://www.verdictum.in/bombay-high-court/edwin-lucio-fernandes-v-union-of-india-census-commissioner-notifying-estimated-st-population-goa-1624823
-
-[Source Link](https://t.me/verdictumlegalupdates/29968)
-
----
-
-### 2026-10-30T10:32:29+00:00
-Principal Offender Of Robbery Cannot Be Convicted For Receiving Same Stolen Property U/S 411 IPC: Delhi High Court
-https://www.verdictum.in/delhi-high-court/pramod-kumar-v-state-2026dhc9555-robbery-stolen-property-us-411-ipc-1624824
-
-[Source Link](https://t.me/verdictumlegalupdates/29967)
-
----
-
-### 2026-10-30T09:52:08+00:00
-Public Authority Need Not Cite Reasons To End Occupation Of Public Premises Not Protected By Rent Control: Bombay High Court
-https://www.verdictum.in/bombay-high-court/munjee-nathoobhoy-company-pvt-ltd-v-reserve-bank-of-india-2026bhc-as43529-rbi-public-premises-act-rent-control-1624821
-
-[Source Link](https://t.me/verdictumlegalupdates/29966)
-
----
-
-### 2026-10-30T09:02:27+00:00
-Supreme Court Directs JDU MLA Anant Singh To Surrender By Dec 1 In Dular Chand Yadav Murder Case
-https://www.verdictum.in/supreme-court/sc-directs-jdu-mla-anant-singh-to-surrender-by-dec-1-in-dular-chand-yadav-murder-case-1624820
-
-[Source Link](https://t.me/verdictumlegalupdates/29965)
-
----
-
-### 2026-10-30T08:42:26+00:00
-“Diwali Cleaning” Cannot Convert Documents Always In Plaintiff’s Custody Into “Subsequently Discovered” Ones: Delhi High Court Dismisses Plea For Additional Evidence
-https://www.verdictum.in/delhi-high-court/ms-cafe-brown-sugar-pvt-ltd-v-vyom-foodcraft-pvt-ltd-2026dhc9604-additional-documents-in-commercial-suit-1624809
-
-[Source Link](https://t.me/verdictumlegalupdates/29964)
-
----
-
-### 2026-10-30T08:03:10+00:00
-Supreme Court Appoints Former Judge Ranjana Prakash Desai As Sole Mediator In KG Basin Dispute
-https://www.verdictum.in/supreme-court/supreme-court-appoints-former-judge-ranjana-prakash-desai-as-sole-mediator-in-kg-basin-dispute-1624811
-
-[Source Link](https://t.me/verdictumlegalupdates/29963)
-
----
-
-### 2026-10-30T07:09:49+00:00
-Breaking: Supreme Court Directs MeitY To Ensure Compliance With Directions On Unauthorised Extraction & Circulation Of Court Proceedings
-https://www.verdictum.in/supreme-court/directs-meity-ensure-compliance-directions-unauthorised-extraction-circulation-court-proceedings-1624810
-
-[Source Link](https://t.me/verdictumlegalupdates/29962)
 
 ---
 
