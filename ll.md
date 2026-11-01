@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-31T10:05:31+00:00*
+*Last Updated: 2026-10-31T14:24:52+00:00*
 
 ---
 
-### 2026-10-31T10:05:31+00:00
-Collegium Remains Male-Dominated, Must Invite Woman Judges : Justice Ujjal Bhuyan
-https://www.livelaw.in/top-stories/collegium-remains-male-dominated-must-invite-woman-judges-justice-ujjal-bhuyan-556761
-
-[Read on Telegram](https://t.me/livelawindia/123604)
-
----
-### 2026-10-31T10:06:11+00:00
-Actor Ajay Devgan Moves Bombay High Court Against FDA Show Cause Notice Over Vimal Elaichi Ad
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-ajay-devgan-challenges-fda-show-cause-notice-vimal-elaichi-ad-556762
-
-[Read on Telegram](https://t.me/livelawindia/123605)
-
----
-### 2026-10-31T10:54:21+00:00
-Acid Burns Must Have Lasting Impact To Attract S. 326A IPC: Allahabad High Court Alters Acid Attack Conviction To S. 324 IPC
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-acid-attack-burns-lasting-impact-section-326a-ipc-alters-acid-attack-conviction-556766
-
-[Read on Telegram](https://t.me/livelawindia/123606)
-
----
-### 2026-10-31T11:47:51+00:00
-[Advertisement] 6 Weeks Course For UPSC Combined Recruitment Test: Law (Delhi APP SAnd Other Combined exams)
-https://www.livelaw.in/lawschool/diploma-certificate-courses/6-weeks-course-upsc-combined-recruitment-test-law-delhi-app-other-combined-exams-556774
-
-[Read on Telegram](https://t.me/livelawindia/123607)
-
----
-### 2026-10-31T13:46:02+00:00
-CCPA Imposes ₹1 Lakh Penalty On Britannia Industries Over '100% Whole Wheat Bread' Claim
-https://www.livelaw.in/consumer-cases/ccpa-imposes-1-lakh-penalty-on-britannia-industries-over-100-whole-wheat-bread-claim-556778
-
-[Read on Telegram](https://t.me/livelawindia/123608)
-
----
-### 2026-10-31T14:23:32+00:00
-Police Officer Accused Of Corruption Can't Claim Parity With Layman : Supreme Court Cancels Anticipatory Bail Of Karnataka SP
-https://www.livelaw.in/supreme-court/police-officer-accused-of-corruption-cant-claim-parity-with-layman-supreme-court-cancels-anticipatory-bail-of-karnataka-sp-556783
-
-[Read on Telegram](https://t.me/livelawindia/123609)
-
----
 ### 2026-10-31T14:24:52+00:00
 2026 LiveLaw (SC) 1112 | KARNATAKA LOKAYUKTHA POLICE, BANGALORE DISTRICT VERSUS SRINATH JOSHI MAHADEV, IPS
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1112-karnataka-lokayuktha-police-bangalore-district-versus-srinath-joshi-mahadev-ips-556784
@@ -142,5 +100,47 @@ Tournament Organisers, Streamers And Liability: Who Answers When Esports Event G
 https://www.livelaw.in/articles/tournament-organisers-streamers-liability-answers-when-esports-event-goes-wrong-556694
 
 [Read on Telegram](https://t.me/livelawindia/123623)
+
+---
+### 2026-11-01T07:36:05+00:00
+Calcutta High Court Rejects OBC Candidate's Plea To Reopen Portal For Primary Teacher Recruitment Application
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-rejects-obc-candidates-plea-to-reopen-portal-for-primary-teacher-recruitment-application-556797
+
+[Read on Telegram](https://t.me/livelawindia/123624)
+
+---
+### 2026-11-01T08:22:55+00:00
+'Accused Not Produced Before Trial Court For Nearly 14 Months', Supreme Court Seeks Explanation From Bihar Police & Gaya Court
+https://www.livelaw.in/top-stories/accused-not-produced-before-trial-court-for-nearly-14-months-supreme-court-seeks-explanation-from-bihar-police-gaya-court-556799
+
+[Read on Telegram](https://t.me/livelawindia/123625)
+
+---
+### 2026-11-01T08:23:55+00:00
+Amid Bar-Bench Tensions, Why Has Allahabad HCBA Sought Oudh Bar's Intervention Against Justice Arun Kumar Singh Deshwal?
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hcba-oudh-bar-intervention-justice-arun-deshwal-bar-bench-tensions-556800
+
+[Read on Telegram](https://t.me/livelawindia/123626)
+
+---
+### 2026-11-01T09:32:05+00:00
+Self-Approval By Another Name: 2026 Draft Animal Testing Rules And PCA Act
+https://www.livelaw.in/articles/self-approval-another-name-2026draft-animal-testing-rules-pca-act-556696
+
+[Read on Telegram](https://t.me/livelawindia/123627)
+
+---
+### 2026-11-01T12:02:36+00:00
+Authorities Must Ensure Proper Implementation Of Subsisting Civil Court Status Quo Order: Calcutta High Court In Land Dispute Case
+https://www.livelaw.in/high-court/calcutta-high-court/authorities-must-ensure-proper-implementation-of-subsisting-civil-court-status-quo-order-calcutta-high-court-in-land-dispute-case-556798
+
+[Read on Telegram](https://t.me/livelawindia/123628)
+
+---
+### 2026-11-01T12:44:26+00:00
+Delhi Protests And Illegal Detentions | Advocates Raghavi Shukla, Rishav & IFF Founder Apar Gupta
+https://www.livelaw.in/videos/delhi-protests-surveillance-internet-freedom-foundation-supreme-court-law-news-india-cjp-rahul-gandhi-gyanesh-kumar-aap-delhi-556801
+
+[Read on Telegram](https://t.me/livelawindia/123629)
 
 ---
