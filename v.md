@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-01T06:02:36+00:00*
+*Last Updated: 2026-11-01T15:02:42+00:00*
+
+---
+
+### 2026-11-01T15:02:42+00:00
+Consultant (Legal) Vacancy At Dr. Ram Manohar Lohia Hospital
+https://www.verdictum.in/job-updates/dr-ram-manohar-lohia-hospital-1624891
+
+[Source Link](https://t.me/verdictumlegalupdates/30003)
+
+---
+
+### 2026-11-01T13:32:41+00:00
+Allahabad High Court In Its Judgment Issues Formatting Guidelines For Physical & Electronic Filings Before It
+https://www.verdictum.in/allahabad-high-court/sheo-kinkar-singh-v-state-of-up-2026ahc224293-db-uniformity-readability-filings-1624912
+
+[Source Link](https://t.me/verdictumlegalupdates/30002)
+
+---
+
+### 2026-11-01T12:03:00+00:00
+Mere Presence With Co-Accused Who Carried Knife, Without Overt Act Or Proof Of Meeting Of Minds, Cannot Sustain Conviction U/S. 302 R/W S. 34 IPC: Delhi High Court
+https://www.verdictum.in/delhi-high-court/abhishek-sharma-v-the-state-nct-of-delhi-2026dhc9511-db-1624890
+
+[Source Link](https://t.me/verdictumlegalupdates/30001)
+
+---
+
+### 2026-11-01T10:33:19+00:00
+Kerala High Court Refuses To Permit Couple Who Crossed Age Limit To Undergo ART Treatment Based On Undertaking
+https://www.verdictum.in/kerala-high-court/assisted-reproductive-technology-age-limit-undertaking-1624907
+
+[Source Link](https://t.me/verdictumlegalupdates/30000)
+
+---
+
+### 2026-11-01T09:02:58+00:00
+Consensual Relationship & Nikah Not Ground To Quash POCSO Charges: J&K&L High Court Dismisses Minor Victim's Plea
+https://www.verdictum.in/jammu-ladakh-high-court/2026-jklhc-sgr-368-xxxx-v-union-territory-of-jk-1624901
+
+[Source Link](https://t.me/verdictumlegalupdates/29999)
+
+---
+
+### 2026-11-01T07:32:17+00:00
+Desire Of Prospective Parents Subservient To Child's Welfare: Rajasthan High Court Upholds Constitutional Validity Of Upper Age Limit Prescriptions U/S 21(g) ART Act
+https://www.verdictum.in/rajasthan-high-court/dr-arvind-mathur-v-union-of-india-2026rj-jp40484-db-assisted-reproductive-technology-regulation-act-2021-1624900
+
+[Source Link](https://t.me/verdictumlegalupdates/29998)
 
 ---
 
@@ -113,54 +161,6 @@ Physical Intimacy That Occurred During Currency Of A Functioning Relationship Ca
 https://www.verdictum.in/supreme-court/santhosh-kumar-np-v-state-station-house-officer-kadirur-police-tellicherry-kannur-district-2026-insc-1179-consensual-relationship-rape-1624874
 
 [Source Link](https://t.me/verdictumlegalupdates/29984)
-
----
-
-### 2026-10-31T07:12:39+00:00
-Supreme Court Registers Suo Motu Writ Petition On Lawyer’s Representation Over Kerala Congress's Post Against CJI Surya Kant
-https://www.verdictum.in/supreme-court/registers-writ-petition-on-its-own-motion-lawyer-congress-kerala-post-cji-surya-kant-1624877
-
-[Source Link](https://t.me/verdictumlegalupdates/29983)
-
----
-
-### 2026-10-31T06:32:38+00:00
-ED Cannot Arrest On Same Material After Invoking Power U/S 50 PMLA To Question Accused: Bombay High Court
-https://www.verdictum.in/bombay-high-court/jitendra-pandey-v-directorate-of-enforcement-2026bhc-as43626-ed-cannot-arrest-us-19-pmla-1624839
-
-[Source Link](https://t.me/verdictumlegalupdates/29982)
-
----
-
-### 2026-10-31T05:53:17+00:00
-State Cannot Abandon Ongoing Recruitment Process Without Proper Reasons And Justification: Chhattisgarh High Court
-https://www.verdictum.in/chhattisgarh-high-court/aditya-saini-and-others-v-state-of-chhattisgarh-and-others-2026cghc45524-1624836
-
-[Source Link](https://t.me/verdictumlegalupdates/29981)
-
----
-
-### 2026-10-31T05:13:16+00:00
-Supreme Court Collegium Recommends 11 Judges For Chhattisgarh & Madhya Pradesh High Courts
-https://www.verdictum.in/supreme-court/collegium-recommends-11-judges-for-chhattisgarh-madhya-pradesh-high-courts-1624867
-
-[Source Link](https://t.me/verdictumlegalupdates/29980)
-
----
-
-### 2026-10-31T04:32:55+00:00
-Driver Holding Licence For LMV Can Drive Light Goods Vehicle Not Exceeding 7,500 Kg Without Transport Endorsement: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/oriental-insurance-company-ltd-v-jitendraji-manuji-chavda-rfirst-appeal-no-1696-of-2019-vehicle-exceeding-7500-kg-1624838
-
-[Source Link](https://t.me/verdictumlegalupdates/29979)
-
----
-
-### 2026-10-30T16:03:04+00:00
-Water Usage Charges On Hydropower Projects Are Tax On Electricity Generation: J&K And Ladakh High Court Strikes Down Levy
-https://www.verdictum.in/jammu-ladakh-high-court/ms-mass-n-energy-and-others-v-union-of-india-and-others-with-connected-petitions-1624837
-
-[Source Link](https://t.me/verdictumlegalupdates/29978)
 
 ---
 
