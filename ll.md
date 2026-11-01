@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-31T14:24:52+00:00*
+*Last Updated: 2026-10-31T15:04:33+00:00*
 
 ---
 
-### 2026-10-31T14:24:52+00:00
-2026 LiveLaw (SC) 1112 | KARNATAKA LOKAYUKTHA POLICE, BANGALORE DISTRICT VERSUS SRINATH JOSHI MAHADEV, IPS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1112-karnataka-lokayuktha-police-bangalore-district-versus-srinath-joshi-mahadev-ips-556784
-
-[Read on Telegram](https://t.me/livelawindia/123610)
-
----
-### 2026-10-31T14:29:52+00:00
-While Rejecting Anticipatory Bail, HC Can't Direct Trial Court To Grant Regular Bail On Preset Conditions : Supreme Court
-https://www.livelaw.in/supreme-court/while-rejecting-anticipatory-bail-hc-cant-direct-trial-court-to-grant-regular-bail-on-preset-conditions-supreme-court-556785
-
-[Read on Telegram](https://t.me/livelawindia/123611)
-
----
-### 2026-10-31T14:31:32+00:00
-2026 LiveLaw (SC) 1114 | JAGANNATH MANDANGI VERSUS STATE OF ODISHA & ANR. ETC.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1114-jagannath-mandangi-versus-state-of-odisha-anr-etc-556786
-
-[Read on Telegram](https://t.me/livelawindia/123612)
-
----
-### 2026-10-31T14:32:32+00:00
-Rewriting Record: Rethinking Evidentiary Consequences Of Edited Messages
-https://www.livelaw.in/lawschool/articles/rewriting-record-rethinking-evidentiary-consequences-edited-messages-556506
-
-[Read on Telegram](https://t.me/livelawindia/123613)
-
----
 ### 2026-10-31T15:04:33+00:00
 Forfeiture Of Earnest Money Not Automatic On Breach Of Agreement To Sell, Seller Must Prove Loss: Delhi High Court
 https://www.livelaw.in/high-court/delhi-high-court/forfeiture-of-earnest-money-not-automatic-on-breach-of-agreement-to-sell-seller-must-prove-loss-delhi-high-court-556789
@@ -142,5 +114,33 @@ Delhi Protests And Illegal Detentions | Advocates Raghavi Shukla, Rishav & IFF F
 https://www.livelaw.in/videos/delhi-protests-surveillance-internet-freedom-foundation-supreme-court-law-news-india-cjp-rahul-gandhi-gyanesh-kumar-aap-delhi-556801
 
 [Read on Telegram](https://t.me/livelawindia/123629)
+
+---
+### 2026-11-01T14:33:17+00:00
+Moral Kinship, A Legal Partition
+https://www.livelaw.in/articles/moral-kinship-legal-partition-556699
+
+[Read on Telegram](https://t.me/livelawindia/123630)
+
+---
+### 2026-11-01T16:04:57+00:00
+LiveLaw Allahabad High Court Weekly Round-Up: October 26 - November 1, 2026
+https://www.livelaw.in/round-ups/weekly/livelaw-allahabad-high-court-weekly-round-up-october-26-november-1-2026-556806
+
+[Read on Telegram](https://t.me/livelawindia/123631)
+
+---
+### 2026-11-01T16:14:37+00:00
+Kerala High Court's Example Prompted Supreme Court To Strive For More Women Representation : CJI Surya Kant
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-platinum-jubilee-556809
+
+[Read on Telegram](https://t.me/livelawindia/123632)
+
+---
+### 2026-11-01T16:46:37+00:00
+'Arrogance Of Authority': Allahabad High Court Awards ₹1.25 Lakh Compensation For 5-Day Illegal Police Detention
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-compensation-five-day-illegal-police-detention-556810
+
+[Read on Telegram](https://t.me/livelawindia/123633)
 
 ---
