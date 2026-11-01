@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-31T07:46:30+00:00*
+*Last Updated: 2026-10-31T10:05:31+00:00*
 
 ---
 
-### 2026-10-31T07:46:30+00:00
-SCBA Seeks Exemption For Advocates' Vehicles From BS-VI Rule In Delhi
-https://www.livelaw.in/top-stories/scba-seeks-exemption-for-advocates-vehicles-from-bs-vi-rule-in-delhi-556746
-
-[Read on Telegram](https://t.me/livelawindia/123597)
-
----
-### 2026-10-31T07:47:30+00:00
-Kerala High Court Orders Dignified Burial Of Indian Man Whose Body Remained In UAE For 1.5 Years
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-decent-burial-indian-abroad-15-years-relative-dispute-556744
-
-[Read on Telegram](https://t.me/livelawindia/123598)
-
----
-### 2026-10-31T08:09:30+00:00
-'Jagirdar Has No Title, Land Vests In Govt' : Supreme Court Rejects Claims To 550 Acres Miyapur Land In Telangana
-https://www.livelaw.in/top-stories/supreme-court-rejects-claims-550acres-miyapur-land-556747
-
-[Read on Telegram](https://t.me/livelawindia/123599)
-
----
-### 2026-10-31T08:10:50+00:00
-2026 LiveLaw (SC) 1112 | Bandari Ramchander & Ors. Maitri Coop. Housing Ltd. & Ors
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1112-bandari-ramchander-ors-maitri-coop-housing-ltd-ors-556748
-
-[Read on Telegram](https://t.me/livelawindia/123600)
-
----
-### 2026-10-31T08:54:01+00:00
-NLIU Bhopal To Organise Commercial Arbitration Drafting Exercise On November 14–15
-https://www.livelaw.in/lawschool/news/nliu-bhopal-organise-commercial-arbitration-drafting-exercise-556753
-
-[Read on Telegram](https://t.me/livelawindia/123601)
-
----
-### 2026-10-31T09:15:21+00:00
-Kochi Mercedes Benz Crash: Kerala Court Directs Cyber Police To Take Down Social Media Posts Revealing Minor's Details
-https://www.livelaw.in/news-updates/kerala-court-kochi-mercedes-benz-crash-cancel-minor-bail-556757
-
-[Read on Telegram](https://t.me/livelawindia/123602)
-
----
-### 2026-10-31T09:33:11+00:00
-Ambit Of Constructive Trust, And What Does Section 92 CPC Bring Into Play?
-https://www.livelaw.in/articles/ambit-constructive-trust-section92-cpc-bring-into-play-556504
-
-[Read on Telegram](https://t.me/livelawindia/123603)
-
----
 ### 2026-10-31T10:05:31+00:00
 Collegium Remains Male-Dominated, Must Invite Woman Judges : Justice Ujjal Bhuyan
 https://www.livelaw.in/top-stories/collegium-remains-male-dominated-must-invite-woman-judges-justice-ujjal-bhuyan-556761
@@ -142,5 +93,54 @@ Can OCI Cardholder Be Told To Leave India For Joining Protest?
 https://www.livelaw.in/articles/oci-cardholder-leave-india-joining-protest-556790
 
 [Read on Telegram](https://t.me/livelawindia/123616)
+
+---
+### 2026-11-01T02:47:44+00:00
+CJI Surya Kant Confers NR Madhava Menon Memorial Award On Attorney General R Venkataramani
+https://www.livelaw.in/top-stories/cji-surya-kant-confers-nr-madhava-menon-memorial-award-on-attorney-general-r-venkataramani-556791
+
+[Read on Telegram](https://t.me/livelawindia/123617)
+
+---
+### 2026-11-01T03:02:24+00:00
+Para Legal Volunteer Vacancy At District Legal Services Authority, Solan (HP)
+https://www.livelaw.in/job-updates/para-legal-volunteer-vacancy-at-district-legal-services-authority-solan-hp-556792
+
+[Read on Telegram](https://t.me/livelawindia/123618)
+
+---
+### 2026-11-01T03:13:44+00:00
+Engagement Of Apprentices At Indian Railway Construction International Limited
+https://www.livelaw.in/job-updates/engagement-of-apprentices-at-indian-railway-construction-international-limited-556793
+
+[Read on Telegram](https://t.me/livelawindia/123619)
+
+---
+### 2026-11-01T03:14:44+00:00
+Program Associate – I Vacancy At Indian Institute Of Technology Gandhinagar
+https://www.livelaw.in/job-updates/program-associate-i-vacancy-at-indian-institute-of-technology-gandhinagar-556794
+
+[Read on Telegram](https://t.me/livelawindia/123620)
+
+---
+### 2026-11-01T03:19:04+00:00
+'Society That Treats Tradition As Beyond Scrutiny Fails To Reform Unjust Practices': Justice Ujjal Bhuyan Bats For Scientific Temper
+https://www.livelaw.in/top-stories/society-that-treats-tradition-as-beyond-scrutiny-fails-to-reform-unjust-practices-justice-ujjal-bhuyan-scientific-temper-556795
+
+[Read on Telegram](https://t.me/livelawindia/123621)
+
+---
+### 2026-11-01T03:35:54+00:00
+Associate Consultant Vacancy At Ernst & Young [Mumbai; Apply Now]
+https://www.livelaw.in/job-updates/associate-consultant-vacancy-at-ernst-young-mumbai-556796
+
+[Read on Telegram](https://t.me/livelawindia/123622)
+
+---
+### 2026-11-01T04:32:24+00:00
+Tournament Organisers, Streamers And Liability: Who Answers When Esports Event Goes Wrong?
+https://www.livelaw.in/articles/tournament-organisers-streamers-liability-answers-when-esports-event-goes-wrong-556694
+
+[Read on Telegram](https://t.me/livelawindia/123623)
 
 ---
