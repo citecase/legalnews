@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-10-31T15:12:22+00:00*
+*Last Updated: 2026-11-01T06:02:36+00:00*
+
+---
+
+### 2026-11-01T06:02:36+00:00
+Statutory Bar On Appeal Against Compromise Decree Does Not Apply To Stranger: Supreme Court
+https://www.verdictum.in/supreme-court/girishbhai-natwarlal-patel-v-gautam-punjabhai-palkhiwala-dead-by-lrs-2026-insc-1177-collusive-consent-decree-by-non-parties-1624898
+
+[Source Link](https://t.me/verdictumlegalupdates/29997)
+
+---
+
+### 2026-11-01T04:33:15+00:00
+Grant Of Jagir Not To Be Misconstrued As One Of Title Over The Property: Supreme Court
+https://www.verdictum.in/supreme-court/bandari-ramchander-v-maitri-coop-housing-society-ltd-2026-insc-1175-miyapur-lands-in-telangana-1624897
+
+[Source Link](https://t.me/verdictumlegalupdates/29996)
 
 ---
 
@@ -145,22 +161,6 @@ Water Usage Charges On Hydropower Projects Are Tax On Electricity Generation: J&
 https://www.verdictum.in/jammu-ladakh-high-court/ms-mass-n-energy-and-others-v-union-of-india-and-others-with-connected-petitions-1624837
 
 [Source Link](https://t.me/verdictumlegalupdates/29978)
-
----
-
-### 2026-10-30T15:32:23+00:00
-Any Request Made By Supreme Court To Any Court Or Tribunal Shall Be Treated As A Direction: Apex Court Pulls Up NCLAT
-https://www.verdictum.in/supreme-court/request-treat-as-direction-1624846
-
-[Source Link](https://t.me/verdictumlegalupdates/29977)
-
----
-
-### 2026-10-30T15:02:42+00:00
-Property Upon Attachment Becomes Custodia Legis: Apex Court Sets Aside Order Outsting Mother-In-Law & Sisters-In-Law From Shared Household Under DV Act
-https://www.verdictum.in/supreme-court/mother-in-law-sisters-in-law-cant-be-ousted-shared-household-non-appearance-of-husband-1624844
-
-[Source Link](https://t.me/verdictumlegalupdates/29976)
 
 ---
 
