@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-01T15:02:42+00:00*
+*Last Updated: 2026-11-02T06:32:30+00:00*
+
+---
+
+### 2026-11-02T06:32:30+00:00
+Bombay High Court Raps State For “Administrative Inertia” In Sitting Over Proposal For Sanction Of Posts For Over A Decade
+https://www.verdictum.in/bombay-high-court/kannulal-vitore-v-state-of-maharashtra-2026bhc-aug52690-db-regularisation-of-model-college-teachers-ugc-1624983
+
+[Source Link](https://t.me/verdictumlegalupdates/30008)
+
+---
+
+### 2026-11-02T06:02:49+00:00
+Decisions Of Highest Court To Be Followed, Without Which There Will Be Mayhem: Supreme Court Sets Aside APTEL’s Order
+https://www.verdictum.in/supreme-court/damodar-valley-corporation-v-maithan-alloys-limited-2026-insc-1178-finality-closure-litigation-cost-sail-1624980
+
+[Source Link](https://t.me/verdictumlegalupdates/30007)
+
+---
+
+### 2026-11-02T05:33:00+00:00
+Meghalaya High Court Asks State Cricket Association To Ensure Strict Implementation Of POSH Act; Upholds Suspension Of Honorary Secretary
+https://www.verdictum.in/meghalaya-high-court/james-pk-sangma-v-rayanold-kharkamni-honorary-secretary-2026mlhc1217-mca-posh-act-1624978
+
+[Source Link](https://t.me/verdictumlegalupdates/30006)
+
+---
+
+### 2026-11-02T05:02:59+00:00
+Whip Must Be Served At Least Five Days Before Election: Karnataka High Court Reinstates Panchayat President & Vice-President
+https://www.verdictum.in/karnataka-high-court/ravindrappa-mudiyappanavar-v-the-deputy-commissioner-haveri2026khc-d16759-rattihalli-pattana-panchayat-members-1624975
+
+[Source Link](https://t.me/verdictumlegalupdates/30005)
+
+---
+
+### 2026-11-02T04:33:08+00:00
+Percentage-Based Pre-Deposit U/S 112(8)(b) CGST Act Does Not Extend To Disputed Interest Alone When Entire Tax Is Paid: Bombay High Court
+https://www.verdictum.in/bombay-high-court/roadway-solutions-india-infra-ltd-v-state-of-maharashtra-2026bhc-as43662-db-bank-recovery-notices-1624896
+
+[Source Link](https://t.me/verdictumlegalupdates/30004)
 
 ---
 
@@ -121,46 +161,6 @@ Doctor’s Certificate And Thumb Impression Are Rules of Caution, Not Legal Requ
 https://www.verdictum.in/delhi-high-court/raj-kumari-v-state-nct-of-delhi-2026dhc9629-db-1998-bride-burning-case-dowry-death-1624886
 
 [Source Link](https://t.me/verdictumlegalupdates/29989)
-
----
-
-### 2026-10-31T10:33:03+00:00
-Supreme Court Cautions Against Release Of Accused Convicted For Heinous Offences On Ground Of No Possibility Of Appeal Being Heard
-https://www.verdictum.in/supreme-court/hanuman-prasad-hanuta-ram-v-state-of-rajasthan-2026-insc-1180-release-convict-heinous-offences-1624885
-
-[Source Link](https://t.me/verdictumlegalupdates/29988)
-
----
-
-### 2026-10-31T09:52:33+00:00
-Order Relying On Omitted Statute Shows “Utter Ignorance”: Madhya Pradesh High Court Imposes ₹1 Lakh Costs On Municipal Officer
-https://www.verdictum.in/madhya-pradesh-high-court/ms-bafgna-hospital-and-orthopedics-research-centre-pvt-ltd-v-indore-municipal-corporation-2026mphc-ind30316-municipal-officer-indore-omitted-laws-1624882
-
-[Source Link](https://t.me/verdictumlegalupdates/29987)
-
----
-
-### 2026-10-31T09:12:52+00:00
-Existence Of Other Infringers Is No Defence To Trademark Infringement: Delhi High Court Confirms Injunction Against Jabsons' Foods Over "Hot Mix" Namkeen
-https://www.verdictum.in/delhi-high-court/sunit-shah-proprietor-of-ms-shah-namkeen-v-ms-jabsons-foods-pvt-ltd-2026dhc9547-hot-mix-trademark-dispute-shah-hot-mix-1624881
-
-[Source Link](https://t.me/verdictumlegalupdates/29986)
-
----
-
-### 2026-10-31T08:32:51+00:00
-Can't Claim Benefit Citing Old Age: Supreme Court Refuses To Reduce Life Sentence In Murder Case Where Appeal Was Pending For 40 Years
-https://www.verdictum.in/supreme-court/old-age-claim-any-benefit-sentence-because-significant-time-elapsed-incident-1624880
-
-[Source Link](https://t.me/verdictumlegalupdates/29985)
-
----
-
-### 2026-10-31T07:53:20+00:00
-Physical Intimacy That Occurred During Currency Of A Functioning Relationship Cannot Be Retrospectively Branded As Acts Of Rape: Supreme Court
-https://www.verdictum.in/supreme-court/santhosh-kumar-np-v-state-station-house-officer-kadirur-police-tellicherry-kannur-district-2026-insc-1179-consensual-relationship-rape-1624874
-
-[Source Link](https://t.me/verdictumlegalupdates/29984)
 
 ---
 
