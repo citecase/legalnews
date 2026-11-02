@@ -1,121 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-10-31T15:04:33+00:00*
+*Last Updated: 2026-11-01T14:33:17+00:00*
 
 ---
 
-### 2026-10-31T15:04:33+00:00
-Forfeiture Of Earnest Money Not Automatic On Breach Of Agreement To Sell, Seller Must Prove Loss: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/forfeiture-of-earnest-money-not-automatic-on-breach-of-agreement-to-sell-seller-must-prove-loss-delhi-high-court-556789
-
-[Read on Telegram](https://t.me/livelawindia/123614)
-
----
-### 2026-10-31T15:23:03+00:00
-Meghalaya High Court Rejects Third Bail Plea Of Bangladeshi Nationals Prosecuted Under Foreigners Act Over Alleged Illegal Stay In India
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-rejects-third-bail-plea-bangladesh-nationals-556782
-
-[Read on Telegram](https://t.me/livelawindia/123615)
-
----
-### 2026-10-31T16:10:13+00:00
-Can OCI Cardholder Be Told To Leave India For Joining Protest?
-https://www.livelaw.in/articles/oci-cardholder-leave-india-joining-protest-556790
-
-[Read on Telegram](https://t.me/livelawindia/123616)
-
----
-### 2026-11-01T02:47:44+00:00
-CJI Surya Kant Confers NR Madhava Menon Memorial Award On Attorney General R Venkataramani
-https://www.livelaw.in/top-stories/cji-surya-kant-confers-nr-madhava-menon-memorial-award-on-attorney-general-r-venkataramani-556791
-
-[Read on Telegram](https://t.me/livelawindia/123617)
-
----
-### 2026-11-01T03:02:24+00:00
-Para Legal Volunteer Vacancy At District Legal Services Authority, Solan (HP)
-https://www.livelaw.in/job-updates/para-legal-volunteer-vacancy-at-district-legal-services-authority-solan-hp-556792
-
-[Read on Telegram](https://t.me/livelawindia/123618)
-
----
-### 2026-11-01T03:13:44+00:00
-Engagement Of Apprentices At Indian Railway Construction International Limited
-https://www.livelaw.in/job-updates/engagement-of-apprentices-at-indian-railway-construction-international-limited-556793
-
-[Read on Telegram](https://t.me/livelawindia/123619)
-
----
-### 2026-11-01T03:14:44+00:00
-Program Associate – I Vacancy At Indian Institute Of Technology Gandhinagar
-https://www.livelaw.in/job-updates/program-associate-i-vacancy-at-indian-institute-of-technology-gandhinagar-556794
-
-[Read on Telegram](https://t.me/livelawindia/123620)
-
----
-### 2026-11-01T03:19:04+00:00
-'Society That Treats Tradition As Beyond Scrutiny Fails To Reform Unjust Practices': Justice Ujjal Bhuyan Bats For Scientific Temper
-https://www.livelaw.in/top-stories/society-that-treats-tradition-as-beyond-scrutiny-fails-to-reform-unjust-practices-justice-ujjal-bhuyan-scientific-temper-556795
-
-[Read on Telegram](https://t.me/livelawindia/123621)
-
----
-### 2026-11-01T03:35:54+00:00
-Associate Consultant Vacancy At Ernst & Young [Mumbai; Apply Now]
-https://www.livelaw.in/job-updates/associate-consultant-vacancy-at-ernst-young-mumbai-556796
-
-[Read on Telegram](https://t.me/livelawindia/123622)
-
----
-### 2026-11-01T04:32:24+00:00
-Tournament Organisers, Streamers And Liability: Who Answers When Esports Event Goes Wrong?
-https://www.livelaw.in/articles/tournament-organisers-streamers-liability-answers-when-esports-event-goes-wrong-556694
-
-[Read on Telegram](https://t.me/livelawindia/123623)
-
----
-### 2026-11-01T07:36:05+00:00
-Calcutta High Court Rejects OBC Candidate's Plea To Reopen Portal For Primary Teacher Recruitment Application
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-rejects-obc-candidates-plea-to-reopen-portal-for-primary-teacher-recruitment-application-556797
-
-[Read on Telegram](https://t.me/livelawindia/123624)
-
----
-### 2026-11-01T08:22:55+00:00
-'Accused Not Produced Before Trial Court For Nearly 14 Months', Supreme Court Seeks Explanation From Bihar Police & Gaya Court
-https://www.livelaw.in/top-stories/accused-not-produced-before-trial-court-for-nearly-14-months-supreme-court-seeks-explanation-from-bihar-police-gaya-court-556799
-
-[Read on Telegram](https://t.me/livelawindia/123625)
-
----
-### 2026-11-01T08:23:55+00:00
-Amid Bar-Bench Tensions, Why Has Allahabad HCBA Sought Oudh Bar's Intervention Against Justice Arun Kumar Singh Deshwal?
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hcba-oudh-bar-intervention-justice-arun-deshwal-bar-bench-tensions-556800
-
-[Read on Telegram](https://t.me/livelawindia/123626)
-
----
-### 2026-11-01T09:32:05+00:00
-Self-Approval By Another Name: 2026 Draft Animal Testing Rules And PCA Act
-https://www.livelaw.in/articles/self-approval-another-name-2026draft-animal-testing-rules-pca-act-556696
-
-[Read on Telegram](https://t.me/livelawindia/123627)
-
----
-### 2026-11-01T12:02:36+00:00
-Authorities Must Ensure Proper Implementation Of Subsisting Civil Court Status Quo Order: Calcutta High Court In Land Dispute Case
-https://www.livelaw.in/high-court/calcutta-high-court/authorities-must-ensure-proper-implementation-of-subsisting-civil-court-status-quo-order-calcutta-high-court-in-land-dispute-case-556798
-
-[Read on Telegram](https://t.me/livelawindia/123628)
-
----
-### 2026-11-01T12:44:26+00:00
-Delhi Protests And Illegal Detentions | Advocates Raghavi Shukla, Rishav & IFF Founder Apar Gupta
-https://www.livelaw.in/videos/delhi-protests-surveillance-internet-freedom-foundation-supreme-court-law-news-india-cjp-rahul-gandhi-gyanesh-kumar-aap-delhi-556801
-
-[Read on Telegram](https://t.me/livelawindia/123629)
-
----
 ### 2026-11-01T14:33:17+00:00
 Moral Kinship, A Legal Partition
 https://www.livelaw.in/articles/moral-kinship-legal-partition-556699
@@ -142,5 +30,117 @@ https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-platinum-j
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-compensation-five-day-illegal-police-detention-556810
 
 [Read on Telegram](https://t.me/livelawindia/123633)
+
+---
+### 2026-11-02T01:59:33+00:00
+Justice Vikram Nath Addresses Global Forum On Mothers In Detention And Their Children
+https://www.livelaw.in/news-updates/justice-vikram-nath-addresses-global-forum-on-mothers-in-detention-and-their-children-556812
+
+[Read on Telegram](https://t.me/livelawindia/123634)
+
+---
+### 2026-11-02T02:05:53+00:00
+Vidhibhashya Chapter 2: National-Level Debate, MUN, Youth Parliament And Elocution Competition 2026 – Registrations Open
+https://www.livelaw.in/lawschool/competitions/vidhibhashya-chapter-2-national-level-debate-mun-youth-parliament-and-elocution-competition-2026-registrations-open-556813
+
+[Read on Telegram](https://t.me/livelawindia/123635)
+
+---
+### 2026-11-02T03:47:14+00:00
+LiveLaw Allahabad High Court Monthly Digest: October 2026 [Citations 773 - 903]
+https://www.livelaw.in/round-ups/monthly/livelaw-allahabad-high-court-monthly-digest-october-2026-citations-773-903-556811
+
+[Read on Telegram](https://t.me/livelawindia/123636)
+
+---
+### 2026-11-02T03:48:14+00:00
+Waqf Registration Of Property Based On Tenant's Application Without Notifying Mutawalli Violates Natural Justice: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-waqf-registration-certificate-issued-mutawalli-application-556814
+
+[Read on Telegram](https://t.me/livelawindia/123637)
+
+---
+### 2026-11-02T04:02:14+00:00
+Application Moved Before Kerala High Court Seeking Survey Of Land Occupied By AKG Centre
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-akg-centre-survey-land-occupied-kerala-university-556815
+
+[Read on Telegram](https://t.me/livelawindia/123638)
+
+---
+### 2026-11-02T04:05:54+00:00
+'Uniform Civil Code: Gender Equality and Individual Autonomy In Family Rights' by Justice K Kannan [Part -1]
+https://www.livelaw.in/articles/uniform-civil-code-analysis-state-ucc-live-in-relationships-succession-privacy-556820
+
+[Read on Telegram](https://t.me/livelawindia/123639)
+
+---
+### 2026-11-02T04:17:44+00:00
+Accepting Reduced Penalty To Resume Job Doesn't Bar Employee From Challenging Subsequent Revisional Order Terminating Employment: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-accepting-reduced-penalty-does-not-bar-subsequent-challenge-to-termination-order-556816
+
+[Read on Telegram](https://t.me/livelawindia/123640)
+
+---
+### 2026-11-02T04:32:24+00:00
+Hijacked, Then Terminated: How IT Rules Fail Owner Of Stolen YouTube Channel
+https://www.livelaw.in/articles/hijacked-terminated-it-rules-fail-owner-stolen-youtube-channel-556767
+
+[Read on Telegram](https://t.me/livelawindia/123641)
+
+---
+### 2026-11-02T04:32:44+00:00
+Top 20 High Court Judgments Of The Week
+https://www.livelaw.in/high-court/all-high-courts/most-important-judgments-of-the-week-from-high-courts-556826
+
+[Read on Telegram](https://t.me/livelawindia/123642)
+
+---
+### 2026-11-02T04:37:44+00:00
+P&H High Court Asks Union To Consider Suggestions On LGBTQ  Children's Safety, Directs Haryana Schools, CBSE To Enforce Anti-Bullying Guidelines
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-directs-lgbtq-children-cbse-to-enforce-anti-bullying-norms-after-minor-student-suicide-in-faridabad-556817
+
+[Read on Telegram](https://t.me/livelawindia/123643)
+
+---
+### 2026-11-02T04:43:04+00:00
+Orissa High Court Launches Summons Management System To Address Delays In Serving Govt Officials
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-holds-district-judges-conference2026-launches-summons-management-system-556818
+
+[Read on Telegram](https://t.me/livelawindia/123644)
+
+---
+### 2026-11-02T04:46:04+00:00
+J&K State Commission Dismisses ₹35 Lakh Insurance Claim Over Suppression of Material Facts
+https://www.livelaw.in/consumer-cases/jk-state-commission-dismisses-35-lakh-insurance-claim-over-suppression-of-material-facts-556831
+
+[Read on Telegram](https://t.me/livelawindia/123645)
+
+---
+### 2026-11-02T04:53:04+00:00
+Motor Accident Claims Tribunal Can't Decide Framed Issues In Negative Merely Because Counsel Says 'Not Pressed': Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-motor-vehicles-claims-tribunal-decide-framed-issues-negative-556821
+
+[Read on Telegram](https://t.me/livelawindia/123646)
+
+---
+### 2026-11-02T05:02:24+00:00
+MP High Court Stays Single Judge Order On Ujjain Mahakaleshwar Temple Pujari Appointment Dispute
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-stays-single-judge-order-concerning-appointment-of-pujari-in-mahakaleshwar-temple-ujjain-556834
+
+[Read on Telegram](https://t.me/livelawindia/123647)
+
+---
+### 2026-11-02T05:13:04+00:00
+Parties Can File Application In Kannada Language Before State Administrative Tribunal: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-complete-embargo-litigants-file-application-kannada-administrative-tribunal-556827
+
+[Read on Telegram](https://t.me/livelawindia/123648)
+
+---
+### 2026-11-02T05:13:34+00:00
+LiveLaw Breaking News Alerts: 02 November 2026
+https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts-02-november-2026-556838
+
+[Read on Telegram](https://t.me/livelawindia/123649)
 
 ---
