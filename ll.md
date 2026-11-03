@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-02T11:39:16+00:00*
+*Last Updated: 2026-11-02T12:11:26+00:00*
 
 ---
 
-### 2026-11-02T11:39:16+00:00
-LiveLaw Andhra Pradesh High Court Weekly Round-Up: October 26 - November 01, 2026
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-weekly-roundup-556941
-
-[Read on Telegram](https://t.me/livelawindia/123706)
-
----
-### 2026-11-02T12:02:26+00:00
-O.P. Jindal Global University Announces Inaugural World Ideas Forum In January 2027 To Mark Haryana's 60th Anniversary
-https://www.livelaw.in/lawschool/news/op-jindal-global-university-announces-inaugural-world-ideas-forum-j-556944
-
-[Read on Telegram](https://t.me/livelawindia/123707)
-
----
 ### 2026-11-02T12:11:26+00:00
 Simple Nature Of Injuries Don't Rule Out Attempt To Murder Charge Under S. 109 BNS: P&H High Court Denies Anticipatory Bail
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-rejects-pre-arrest-bail-simple-nature-of-injury-not-conclusive-against-attempt-to-murder-charge-under-section-109-bns-556947
@@ -142,5 +128,19 @@ https://www.livelaw.in/supreme-court/supreme-court-censures-tn-ips-officer-a-aru
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1117-a-arun-versus-varsha-sharma-ors-556982
 
 [Read on Telegram](https://t.me/livelawindia/123725)
+
+---
+### 2026-11-02T17:03:08+00:00
+LiveLaw High Courts Daily Highlights: November 02, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-02-2026-556979
+
+[Read on Telegram](https://t.me/livelawindia/123726)
+
+---
+### 2026-11-02T18:27:49+00:00
+Supreme Court Daily Round-Up : November 2, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-november-2-2026-556984
+
+[Read on Telegram](https://t.me/livelawindia/123727)
 
 ---
