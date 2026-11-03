@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-02T16:02:56+00:00*
+*Last Updated: 2026-11-03T07:02:59+00:00*
+
+---
+
+### 2026-11-03T07:02:59+00:00
+Freedom From Bondage Can't Be Secured By Act Of Rescue Alone: Supreme Court Directs Uniform SOP & 7-Day Financial Assistance For Rescued Bonded Labourers
+https://www.verdictum.in/supreme-court/2026-insc-1185-surendra-manjhi-v-union-of-india-1625053
+
+[Source Link](https://t.me/verdictumlegalupdates/30033)
+
+---
+
+### 2026-11-03T06:32:38+00:00
+Offensive Taunt Does Not By Itself Promote Enmity: Karnataka High Court Quashes FIR Against Influencer Over Remark On Siddaramaiah’s Support For Muslims
+https://www.verdictum.in/karnataka-high-court/jyothi-r-v-state-of-karnataka-and-another-2026khc60067-former-cm-siddarmaiah-1625051
+
+[Source Link](https://t.me/verdictumlegalupdates/30032)
+
+---
+
+### 2026-11-03T06:03:10+00:00
+Merely Because Ministerial Staff Hold LL.B. Degree, They Don’t Constitute Separate Class: Madhya Pradesh High Court Strikes Down 10% Promotion Quota For Clerks To ADPO Post
+https://www.verdictum.in/madhya-pradesh-high-court/rohan-sharma-v-state-of-madhya-pradesh-2026mphc-gwl33079-promotion-quota-for-clerks-to-adpo-post-1625050
+
+[Source Link](https://t.me/verdictumlegalupdates/30031)
+
+---
+
+### 2026-11-03T05:32:48+00:00
+Party Isn’t Entitled To Any Refund Of Court Fee In Out-Of-Court Settlement Once Evidence Is Recorded: Madras High Court
+https://www.verdictum.in/madras-high-court/susheela-kawar-v-mpettu-lakshmi-2026mhc4385-party-refund-court-fee-settlement-1625049
+
+[Source Link](https://t.me/verdictumlegalupdates/30030)
+
+---
+
+### 2026-11-03T05:02:27+00:00
+Weekly Overview| Supreme Court Judgments: October 26– October 30, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-october-26-october-30-2026-1625041
+
+[Source Link](https://t.me/verdictumlegalupdates/30029)
+
+---
+
+### 2026-11-03T04:32:56+00:00
+‘Such Act Tarnishes Name Of Judge As Well As Institution’: Karnataka High Court Grants Bail To Lawyer Accused Of Demanding Bribe For Securing Bail Order
+https://www.verdictum.in/karnataka-high-court/dayeen-banubm-v-state-of-karnataka-2026khc59251-judge-institution-lawyer-bribe-bail-1625026
+
+[Source Link](https://t.me/verdictumlegalupdates/30028)
 
 ---
 
@@ -113,54 +161,6 @@ Procedural Defect In Mode Of Service Of Grounds Of Arrest By Itself Not A Ground
 https://www.verdictum.in/supreme-court/state-of-rajasthan-v-jhabra-ram-2026-insc-1169-alleged-procedural-defect-service-defend-bail-espionage-cases-1625002
 
 [Source Link](https://t.me/verdictumlegalupdates/30014)
-
----
-
-### 2026-11-02T09:02:49+00:00
-Punjab & Haryana High Court Directs Enforcement Of LGBTQIA  Anti-Bullying Safeguards In All Haryana Schools
-https://www.verdictum.in/punjab-and-haryana-high-court/aarti-malhotra-v-union-of-india-and-others-2026phhc192847-lgbtq-safeguards-1625001
-
-[Source Link](https://t.me/verdictumlegalupdates/30013)
-
----
-
-### 2026-11-02T08:32:51+00:00
-Supreme Court To Hear Plea Of Azam Khan Against Arrest By ED In Fresh PMLA Case
-https://www.verdictum.in/supreme-court/plea-of-azam-khan-against-arrest-by-ed-in-fresh-pmla-case-1624998
-
-[Source Link](https://t.me/verdictumlegalupdates/30012)
-
----
-
-### 2026-11-02T08:03:10+00:00
-Proviso To Order VI Rule 17 CPC Cannot Be Elevated Into An Inflexible Rule Defeating Section 10(3) Of Family Courts Act: Delhi High Court
-https://www.verdictum.in/delhi-high-court/s-sy-v-st-2026dhc9444-family-courts-act-husband-amend-pleadings-1624995
-
-[Source Link](https://t.me/verdictumlegalupdates/30011)
-
----
-
-### 2026-11-02T07:05:29+00:00
-Breaking: Supreme Court Disposes Of Pleas Seeking CBI Probe Into Ram Mandir Donation Row After State Files Chargesheet; Petitioners Allowed To Assist Magistrate
-https://www.verdictum.in/supreme-court/pleas-cbi-probe-into-ram-mandir-donation-embezzlement-state-files-chargesheet-1624992
-
-[Source Link](https://t.me/verdictumlegalupdates/30010)
-
----
-
-### 2026-11-02T07:02:08+00:00
-Criminal Contempt Can Be Initiated Against Person Who Had Knowledge That His Conduct Was Oriented Towards Interfering In Administration Of Justice: Delhi High Court
-https://www.verdictum.in/delhi-high-court/suraj-prakash-taneja-v-state-nct-of-delhi-2026dhc9576-criminal-contempt-conduct-1624990
-
-[Source Link](https://t.me/verdictumlegalupdates/30009)
-
----
-
-### 2026-11-02T06:32:30+00:00
-Bombay High Court Raps State For “Administrative Inertia” In Sitting Over Proposal For Sanction Of Posts For Over A Decade
-https://www.verdictum.in/bombay-high-court/kannulal-vitore-v-state-of-maharashtra-2026bhc-aug52690-db-regularisation-of-model-college-teachers-ugc-1624983
-
-[Source Link](https://t.me/verdictumlegalupdates/30008)
 
 ---
 
