@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-03T16:03:05+00:00*
+*Last Updated: 2026-11-04T06:37:49+00:00*
+
+---
+
+### 2026-11-04T06:37:49+00:00
+Judicial Finding Can't Be Permitted To Stand Once Factual Foundation On Which It Rests Is Shown To Be Incorrect: Allahabad High Court Reiterates
+https://www.verdictum.in/allahabad-high-court/ashok-kumar-v-state-of-up-finding-foundation-erroneous-conclude-rights-parties-2026ahc-lko77650-db-1625123
+
+[Source Link](https://t.me/verdictumlegalupdates/30056)
+
+---
+
+### 2026-11-04T05:56:48+00:00
+Supreme Court Holds Reference On State Legislatures’ Power To Levy Surcharge On Sales Tax Infructuous; Affirms S. Kodar Judgment As Good Law
+https://www.verdictum.in/supreme-court/holds-reference-state-legislatures-power-to-levy-surcharge-sales-tax-infructuous-1625117
+
+[Source Link](https://t.me/verdictumlegalupdates/30055)
+
+---
+
+### 2026-11-04T05:32:27+00:00
+Judicial Officer Should Not Be Castigated For Inadvertent Typographical Errors: Supreme Court Expunges Adverse Remarks
+https://www.verdictum.in/supreme-court/in-re-xxx-a-judicial-officer-in-the-district-judge-cadre-of-rajasthan-judicial-services-2026-insc-1188-1625114
+
+[Source Link](https://t.me/verdictumlegalupdates/30054)
+
+---
+
+### 2026-11-04T05:02:26+00:00
+Tendering Apology No Substitute For Due Care: Supreme Court While Expunging Remarks By High Court Against IPS Officer
+https://www.verdictum.in/supreme-court/a-arun-v-varsha-sharma-2026-insc-1186-tendering-apology-adverse-remarks-ips-officer-1625107
+
+[Source Link](https://t.me/verdictumlegalupdates/30053)
+
+---
+
+### 2026-11-04T04:32:35+00:00
+Public Office Cannot Be Treated As Consolation Prize For A Defeated Politician: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/gururaj-gantihole-v-state-of-karnataka-writ-appeal-no-2030-of-2026-section-94-a2-a-of-land-revenue-act-1625084
+
+[Source Link](https://t.me/verdictumlegalupdates/30052)
 
 ---
 
@@ -121,46 +161,6 @@ Row Over Dia Mirza's Firecracker Appeal: Deeply Pained, Says High Court; Asks BM
 https://www.verdictum.in/bombay-high-court/dia-mirzas-firecracker-appeal-bmc-to-re-upload-her-video-1625058
 
 [Source Link](https://t.me/verdictumlegalupdates/30037)
-
----
-
-### 2026-11-03T08:21:31+00:00
-No Site Can Be Occupied For All Times, Everyone Has Right To Protest: Supreme Court Issues Notice In Traders' Plea Against Ramlila Maidan As Protest Site
-https://www.verdictum.in/supreme-court/no-site-can-be-occupied-all-times-everyone-has-right-protest-1625057
-
-[Source Link](https://t.me/verdictumlegalupdates/30036)
-
----
-
-### 2026-11-03T08:02:40+00:00
-Supreme Court Flags Report On Open Sale Of Firecrackers In Delhi Markets, Asks Centre To Ensure Compliance
-https://www.verdictum.in/supreme-court/report-on-open-sale-of-firecrackers-in-delhi-markets-compliance-1625056
-
-[Source Link](https://t.me/verdictumlegalupdates/30035)
-
----
-
-### 2026-11-03T07:33:20+00:00
-Overarching Goal Of Punishment Is Deterrence: Punjab & Haryana High Court Stresses Rehabilitation In Premature-Release Cases
-https://www.verdictum.in/punjab-and-haryana-high-court/mukesh-v-state-of-haryana-and-others-2026phhc19846-punishment-rehabilitation-1625054
-
-[Source Link](https://t.me/verdictumlegalupdates/30034)
-
----
-
-### 2026-11-03T07:02:59+00:00
-Freedom From Bondage Can't Be Secured By Act Of Rescue Alone: Supreme Court Directs Uniform SOP & 7-Day Financial Assistance For Rescued Bonded Labourers
-https://www.verdictum.in/supreme-court/2026-insc-1185-surendra-manjhi-v-union-of-india-1625053
-
-[Source Link](https://t.me/verdictumlegalupdates/30033)
-
----
-
-### 2026-11-03T06:32:38+00:00
-Offensive Taunt Does Not By Itself Promote Enmity: Karnataka High Court Quashes FIR Against Influencer Over Remark On Siddaramaiah’s Support For Muslims
-https://www.verdictum.in/karnataka-high-court/jyothi-r-v-state-of-karnataka-and-another-2026khc60067-former-cm-siddarmaiah-1625051
-
-[Source Link](https://t.me/verdictumlegalupdates/30032)
 
 ---
 
