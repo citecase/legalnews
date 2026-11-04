@@ -1,107 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-04T10:38:26+00:00*
+*Last Updated: 2026-11-04T12:44:07+00:00*
 
 ---
 
-### 2026-11-04T10:38:26+00:00
-Shraddha Walkar Murder: Delhi Court Directs Tihar Jail To Ensure Aaftab Poonawala's Safety Amid Death Threats From Inmates
-https://www.livelaw.in/news-updates/shraddha-walkar-murder-delhi-court-directs-tihar-jail-to-ensure-aaftab-poonawalas-safety-amid-death-threats-from-inmates-557318
-
-[Read on Telegram](https://t.me/livelawindia/123909)
-
----
-### 2026-11-04T10:41:26+00:00
-2026 LiveLaw (SC) 1129 | MANGALA BHIMRAO INGLE PRATIK v THE ADDITIONAL COMMISSIONER AMRAVATI DIVISION AND ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1129-mangala-bhimrao-ingle-pratik-v-the-additional-commissioner-amravati-division-and-ors-557319
-
-[Read on Telegram](https://t.me/livelawindia/123910)
-
----
-### 2026-11-04T10:42:46+00:00
-Unlikely That BJP Protesters Would Raise “Pakistan Zindabad” Slogan: Karnataka High Court Quashes Case
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-bjp-protest-pakistan-zindabad-slogan-case-quashed-557320
-
-[Read on Telegram](https://t.me/livelawindia/123911)
-
----
-### 2026-11-04T10:52:26+00:00
-Calcutta High Court Restrains State From Notifying KMC Elections Till Nov 6, Reserves Orders In Challenge To Ward Delimitation
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-restrains-state-from-notifying-kmc-elections-till-nov-6-reserves-orders-in-challenge-to-ward-delimitation-557321
-
-[Read on Telegram](https://t.me/livelawindia/123912)
-
----
-### 2026-11-04T10:57:26+00:00
-Bombay High Court Acquits Man In Outraging Modesty Case, Says Money Recovery Dispute May Have Prompted Him To Hold Woman's Hand
-https://www.livelaw.in/high-court/bombay-high-court/element-sexual-intent-missing-when-force-used-demand-borrowed-money-557274
-
-[Read on Telegram](https://t.me/livelawindia/123913)
-
----
-### 2026-11-04T10:57:46+00:00
-Non-Communication Of Written Grounds Of Arrest Does Not Vitiate Remand Without Demonstrable Prejudice: Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-rejects-habeas-corpus-plea-accused-aware-fir-anticipatory-bail-557279
-
-[Read on Telegram](https://t.me/livelawindia/123914)
-
----
-### 2026-11-04T10:59:16+00:00
-Inferences Based On Digestive Timings Cannot Refute Credible Eyewitnesses' Account About Murder Time : Supreme Court
-https://www.livelaw.in/supreme-court/inferences-based-on-digestive-timings-cannot-refute-credible-eyewitnesses-account-about-murder-time-supreme-court-557322
-
-[Read on Telegram](https://t.me/livelawindia/123915)
-
----
-### 2026-11-04T10:59:46+00:00
-Dal Lake Pollution: J&K&L High Court Continues Ban On Motor Boats, Directs Comprehensive Policy For Motor Boats, Jet Skis & Shikaras
-https://www.livelaw.in/high-court/jammu-kashmir/dal-lake-pollution-jk-high-court-continues-ban-on-engine-powered-boats-directs-government-to-frame-comprehensive-policy-for-motor-boats-jet-skis-and-shikaras-557323
-
-[Read on Telegram](https://t.me/livelawindia/123916)
-
----
-### 2026-11-04T10:59:56+00:00
-2026 LiveLaw (SC) 1130 | SHEKAPPA & ORS. VERSUS STATE OF KARNATAKA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1130-shekappa-ors-versus-state-of-karnataka-557324
-
-[Read on Telegram](https://t.me/livelawindia/123917)
-
----
-### 2026-11-04T11:33:16+00:00
-Employee Performing Duties Of Higher Post Is Entitled To Promotion From Date Of Formal Assignment Of Charge: Jammu & Kashmir High Court
-https://www.livelaw.in/high-court/jammu-kashmir/employee-performing-duties-of-higher-post-is-entitled-to-promotion-from-date-of-formal-assignment-of-charge-jk-high-court-557316
-
-[Read on Telegram](https://t.me/livelawindia/123918)
-
----
-### 2026-11-04T12:12:26+00:00
-Land Acquisition Does Not Confer Right To Public Employment: J&K&L High Court Strikes Down Land-Loser Appointment Policy As Unconstitutional
-https://www.livelaw.in/high-court/jammu-kashmir/land-loser-policy-granting-employment-without-open-selection-violates-articles-14-and-16-acquisition-of-land-does-not-confer-indefeasible-right-to-public-employment-jk-high-court-557178
-
-[Read on Telegram](https://t.me/livelawindia/123919)
-
----
-### 2026-11-04T12:19:06+00:00
-Madras High Court Directs Passport Authorities To Process Application Of Rajiv Gandhi Assassination Convict
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-passport-authorities-process-application-ag-perarivalan-557331
-
-[Read on Telegram](https://t.me/livelawindia/123920)
-
----
-### 2026-11-04T12:19:46+00:00
-Allahabad High Court Takes Exception To Protesting Lawyers Blocking Courtroom Doors, Creating Noise Impeding Proceedings
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-lawyers-blocking-courtroom-entry-bar-bench-tensions-557332
-
-[Read on Telegram](https://t.me/livelawindia/123921)
-
----
-### 2026-11-04T12:34:46+00:00
-'Encroachments Removed'  : BMC Tells Supreme Court After Order Halting Mumbai Municipal Commissioner's Salary
-https://www.livelaw.in/top-stories/encroachments-removed-bmc-tells-supreme-court-after-order-halting-mumbai-municipal-commissioners-salary-557336
-
-[Read on Telegram](https://t.me/livelawindia/123922)
-
----
 ### 2026-11-04T12:44:07+00:00
 'Disturbing' : Supreme Court Rebukes UP Govt For Detaining Man For 1.5 Months After Bail, Asks Why Compensation Be Not Ordered
 https://www.livelaw.in/top-stories/disturbing-supreme-court-rebukes-up-govt-for-detaining-man-for-15-months-after-bail-asks-why-compensation-be-not-ordered-557341
@@ -142,5 +44,103 @@ Accused Claiming Grave Illness Cannot Absent Himself From Scheduled Procedure; M
 https://www.livelaw.in/high-court/jammu-kashmir/accused-claiming-grave-illness-cannot-absent-himself-from-scheduled-medical-procedure-medical-bail-is-not-open-ended-liberty-jk-high-court-557282
 
 [Read on Telegram](https://t.me/livelawindia/123928)
+
+---
+### 2026-11-04T14:27:37+00:00
+Supreme Court Upholds Rule On Pension Deduction From Salary Of Retired Govt Servants Appointed To Uttarakhand PSC
+https://www.livelaw.in/supreme-court/supreme-court-upholds-rule-on-pension-deduction-from-salary-of-retired-govt-servants-appointed-to-uttarakhand-psc-557361
+
+[Read on Telegram](https://t.me/livelawindia/123929)
+
+---
+### 2026-11-04T14:28:37+00:00
+2026 LiveLaw (SC) 1131 | STATE OF UTTARAKHAND THR. CHIEF SECRETARY AND OTHERS VERSUS M.C. BHANDARI AND ANOTHER
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1131-state-of-uttarakhand-thr-chief-secretary-and-others-versus-mc-bhandari-and-another-557362
+
+[Read on Telegram](https://t.me/livelawindia/123930)
+
+---
+### 2026-11-04T14:32:57+00:00
+Before Assent: Two Constitutional Fault Lines In Keralam's Senior Citizens Bill
+https://www.livelaw.in/articles/before-assent-two-constitutional-fault-lines-keralam-senior-citizens-bill-557107
+
+[Read on Telegram](https://t.me/livelawindia/123931)
+
+---
+### 2026-11-04T14:50:17+00:00
+Personality Rights Not A Single Cause Of Action, Mere Use Of Identity Not Unlawful: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/personality-rights-not-a-single-cause-of-action-mere-use-of-identity-not-unlawful-delhi-high-court-557364
+
+[Read on Telegram](https://t.me/livelawindia/123932)
+
+---
+### 2026-11-04T15:18:17+00:00
+LiveLaw Daily | 2-Child Rule, Deleted Voters, SC/ST Quota, Khan Sir & Child Labour
+https://www.livelaw.in/podcast/cbse-acp-vashishtha-khan-sir-anjana-om-kashyap-news-india-clat-india-judiciary-lawyers-legal-557371
+
+[Read on Telegram](https://t.me/livelawindia/123933)
+
+---
+### 2026-11-04T15:18:27+00:00
+TN CM Joseph Vijay Writes To PM Narendra Modi Seeking Supreme Court's Regional Bench In Chennai
+https://www.livelaw.in/news-updates/cm-joseph-vijay-letter-narendra-modi-sc-regional-bench-at-chennai-557370
+
+[Read on Telegram](https://t.me/livelawindia/123934)
+
+---
+### 2026-11-04T15:56:47+00:00
+Bombay High Court Seeks Details Of Maharashtra Government's Scheme For Drought-Affected People
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-seeks-details-of-maharashtra-governments-scheme-for-drought-affected-people-557374
+
+[Read on Telegram](https://t.me/livelawindia/123935)
+
+---
+### 2026-11-04T16:08:37+00:00
+2026 LiveLaw (SC) 1132 | Arjun Flour Mills v State of Odisha
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1132-arjun-flour-mills-v-state-of-odisha-557376
+
+[Read on Telegram](https://t.me/livelawindia/123936)
+
+---
+### 2026-11-04T16:35:17+00:00
+One Factor I Consider For Elevation Is How Judge Would Be A Team Player In Supreme Court : CJI Surya Kant
+https://www.livelaw.in/top-stories/one-factor-i-consider-for-elevation-is-how-judge-would-be-a-team-player-in-supreme-court-cji-surya-kant-557378
+
+[Read on Telegram](https://t.me/livelawindia/123937)
+
+---
+### 2026-11-04T16:42:17+00:00
+Judiciary Is Citizens' Last Resort, Judges Must Hear Advocates Patiently: Justice K Natarajan Bids Farewell To Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/justice-k-natarajan-farewell-to-kerala-high-court-557380
+
+[Read on Telegram](https://t.me/livelawindia/123938)
+
+---
+### 2026-11-04T16:52:47+00:00
+Students Must Not Be Uprooted: Bombay High Court Allows 14 Schools Operating Without Sanction To Run Till March 2027
+https://www.livelaw.in/high-court/bombay-high-court/students-must-not-be-uprooted-bombay-high-court-allows-14-schools-operating-without-sanction-to-run-till-march-2027-557381
+
+[Read on Telegram](https://t.me/livelawindia/123939)
+
+---
+### 2026-11-04T17:03:07+00:00
+LiveLaw High Courts Daily Highlights: November 04, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-04-2026-557377
+
+[Read on Telegram](https://t.me/livelawindia/123940)
+
+---
+### 2026-11-04T17:54:58+00:00
+Chennai Court Acquits Former Minister K Ponmudi In Hate Speech Case For Comments On Saivism, Vaishnavism & Women
+https://www.livelaw.in/news-updates/chennai-court-ponmudi-acquitted-hate-speech-case-saivism-vaishnavism-women-557388
+
+[Read on Telegram](https://t.me/livelawindia/123941)
+
+---
+### 2026-11-04T18:28:08+00:00
+Supreme Court Daily Round-Up : November 4, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-november-4-2026-557375
+
+[Read on Telegram](https://t.me/livelawindia/123942)
 
 ---
