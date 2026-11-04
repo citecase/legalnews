@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-03T14:24:19+00:00*
+*Last Updated: 2026-11-04T03:48:13+00:00*
 
 ---
 
-### 2026-11-03T14:24:19+00:00
-Supreme Court Stops Salary Of Mumbai Corporation Commissioner Over Failure To Remove Encroachments; Imposes Rs 5 Lakh Cost
-https://www.livelaw.in/top-stories/supreme-court-stops-salary-of-mumbai-corporation-commissioner-over-failure-to-remove-encroachments-imposes-rs-5-lakh-cost-557160
+### 2026-11-04T03:48:13+00:00
+Mere Website Accessibility Can't Confer Territorial Jurisdiction In IP Suits: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/mere-website-accessibility-cant-confer-territorial-jurisdiction-in-ip-suits-delhi-high-court-557203
 
-[Read on Telegram](https://t.me/livelawindia/123826)
-
----
-### 2026-11-03T14:24:29+00:00
-Delhi High Court Keeps In Abeyance Its Order Directing Criminal Complaint Against 6 CBI Officers For Making False Statement In Court
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-keeps-in-abeyance-its-order-directing-criminal-complaint-against-6-cbi-officers-for-making-false-statement-in-court-557161
-
-[Read on Telegram](https://t.me/livelawindia/123827)
+[Read on Telegram](https://t.me/livelawindia/123850)
 
 ---
-### 2026-11-03T14:32:39+00:00
-Section 163 BNSS And Its Persistent Misuse
-https://www.livelaw.in/lawschool/articles/section163-bnss-persistent-misuse-556911
+### 2026-11-04T04:02:13+00:00
+TN Universities Functioning Without VC Or Syndicate, Will Impact Higher Education If State Doesn't Take Steps: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tn-universities-vc-appointment-higher-education-impact-557204
 
-[Read on Telegram](https://t.me/livelawindia/123828)
-
----
-### 2026-11-03T14:32:49+00:00
-Adani Defamation Case: Gujarat High Court Rejects Journalist Ravi Nair's Plea To Produce Additional Evidence
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-ravi-nair-plea-additional-evidence-adani-defamation-557162
-
-[Read on Telegram](https://t.me/livelawindia/123829)
+[Read on Telegram](https://t.me/livelawindia/123851)
 
 ---
-### 2026-11-03T14:38:09+00:00
-Wife's LinkedIn Profile Not Proof Of 'Sufficient Income', Doesn't Disentitle Her From Maintenance: Bengaluru Court
-https://www.livelaw.in/news-updates/bengaluru-court-wife-linkedin-profile-facebook-photos-income-maintenance-557164
+### 2026-11-04T04:25:23+00:00
+Legal Advisor Vacancy At National Institute Of Technology, Agartala
+https://www.livelaw.in/job-updates/legal-advisor-vacancy-at-national-institute-of-technology-agartala-557216
 
-[Read on Telegram](https://t.me/livelawindia/123830)
-
----
-### 2026-11-03T14:38:39+00:00
-'Sorry State Of Affairs': Bombay High Court Summons Home Secy Over MHA's Failure To Respond To RBI's Loan Waiver Fraud Alert
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-directs-union-home-secretary-appear-inaction-rbi-557169
-
-[Read on Telegram](https://t.me/livelawindia/123831)
+[Read on Telegram](https://t.me/livelawindia/123852)
 
 ---
-### 2026-11-03T14:42:39+00:00
-P&H High Court Issues Contempt Notice To Punjab Chief Secretary Over Non-Payment Of DA Arrears
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/ph-high-court-issues-contempt-notice-to-punjab-chief-secretary-over-non-payment-of-da-arrears-557166
+### 2026-11-04T04:26:23+00:00
+Law Officer Vacancy At Jail Department, Madhya Pradesh
+https://www.livelaw.in/job-updates/law-officer-vacancy-at-jail-department-madhya-pradesh-557217
 
-[Read on Telegram](https://t.me/livelawindia/123832)
-
----
-### 2026-11-03T14:44:39+00:00
-'Spouses Must Endure Hardships Together': Jharkhand High Court Dismisses Husband's Plea Seeking Divorce Over Wife's Alleged Mental Illness
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-upholds-dismissal-husband-divorce-plea-alleging-wife-mental-illness-557176
-
-[Read on Telegram](https://t.me/livelawindia/123833)
+[Read on Telegram](https://t.me/livelawindia/123853)
 
 ---
-### 2026-11-03T14:50:10+00:00
-Victim's Disability Cannot Be Ground To Discard Her Testimony: J&K&L High Court Upholds Rape Conviction Of Two
-https://www.livelaw.in/high-court/jammu-kashmir/victims-disability-cannot-be-a-disability-of-the-court-to-decipher-truth-rejecting-testimony-merely-on-account-of-disability-unjustified-jk-high-court-upholds-rape-conviction-557180
+### 2026-11-04T04:27:23+00:00
+Young Professional Vacancy At Central Silk Board
+https://www.livelaw.in/job-updates/young-professional-vacancy-at-central-silk-board-557218
 
-[Read on Telegram](https://t.me/livelawindia/123834)
-
----
-### 2026-11-03T14:55:50+00:00
-P&H High Court Orders Armed Security For Lawyer Alleging 'Surveillance' Ever Since He Filed Pleas Against Police
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/ph-high-court-orders-armed-security-for-lawyer-alleging-surveillance-ever-since-he-filed-pleas-against-police-557183
-
-[Read on Telegram](https://t.me/livelawindia/123835)
+[Read on Telegram](https://t.me/livelawindia/123854)
 
 ---
-### 2026-11-03T15:03:10+00:00
-Right To Education Doesn't Mean Right To Secure Seat In Course Of Choice Without Meeting Eligibility Criteria: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/right-to-education-no-seat-in-course-of-choice-without-eligibility-557184
+### 2026-11-04T04:28:03+00:00
+Temple Staff Paid Atrociously Low Salary : Madras High Court Asks HR & CE Department To Step In
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-temple-staff-low-salary-hr-ce-department-take-steps-557209
 
-[Read on Telegram](https://t.me/livelawindia/123836)
-
----
-### 2026-11-03T15:04:50+00:00
-Bring Back Child Taken To Russia, This Is About Dignity Of This Court : Supreme Court To Centre
-https://www.livelaw.in/top-stories/bring-back-child-taken-to-russia-this-is-about-dignity-of-this-court-supreme-court-to-centre-557187
-
-[Read on Telegram](https://t.me/livelawindia/123837)
+[Read on Telegram](https://t.me/livelawindia/123855)
 
 ---
-### 2026-11-03T15:13:20+00:00
-Allahabad High Court Grants Interim Protection From Arrest To Mohd Shami's Brother In FIR Over Alleged Sex On False Marriage Promise
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-mohammed-shami-brother-kaif-no-arrest-protection-fir-557193
+### 2026-11-04T04:29:24+00:00
+Theni Jail Break | Madras High Court Orders Medical Examination Of Prisoners After Mother Alleges Police Torture
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-theni-jail-break-medical-examination-ordered-alleged-police-torture-557219
 
-[Read on Telegram](https://t.me/livelawindia/123838)
-
----
-### 2026-11-03T15:17:40+00:00
-Can Service Tribunal Hear Challenges To Promotion Exam Marks? Rajasthan High Court Seeks Bar's Assistance
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-civil-services-tribunal-decide-disputes-evaluation-departmental-exam-answer-sheets-557185
-
-[Read on Telegram](https://t.me/livelawindia/123839)
+[Read on Telegram](https://t.me/livelawindia/123856)
 
 ---
-### 2026-11-03T15:22:20+00:00
-Confidential Information Can Be Relied On To Establish Security Threat: Bombay High Court Upholds Eviction Of Tenant By RBI
-https://www.livelaw.in/high-court/bombay-high-court/reliance-placed-confidential-information-establishing-security-threat-557171
+### 2026-11-04T04:31:03+00:00
+Competitor Cannot Challenge Grant Of Registration Certificate Under Insecticides Act : Supreme Court
+https://www.livelaw.in/supreme-court/competitor-cannot-challenge-grant-of-registration-certificate-under-insecticides-act-supreme-court-557220
 
-[Read on Telegram](https://t.me/livelawindia/123840)
-
----
-### 2026-11-03T15:26:40+00:00
-Delhi Court Seeks Action Taken Report On Woman Journalist's Plea For FIR Against ACP Vivek Bhagat Over Alleged Sexual Assault
-https://www.livelaw.in/news-updates/delhi-court-seeks-action-taken-report-on-woman-journalists-plea-for-fir-against-acp-vivek-bhagat-over-alleged-sexual-assault-557197
-
-[Read on Telegram](https://t.me/livelawindia/123841)
+[Read on Telegram](https://t.me/livelawindia/123857)
 
 ---
-### 2026-11-03T15:33:00+00:00
-MP High Court Allows RTI Applicant To Inspect Records Before Seeking Copies Of Documents
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-allows-rti-applicant-to-inspect-records-before-identifying-documents-sought-over-14-year-delay-557175
+### 2026-11-04T04:32:04+00:00
+2026 LiveLaw (SC) 1126 | CRYSTAL CROP PROTECTION LTD v DHANUKA AGRITECH LTD & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1126-crystal-crop-protection-ltd-v-dhanuka-agritech-ltd-ors-557221
 
-[Read on Telegram](https://t.me/livelawindia/123842)
-
----
-### 2026-11-03T17:32:01+00:00
-LiveLaw High Courts Daily Highlights: November 03, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-03-2026-557202
-
-[Read on Telegram](https://t.me/livelawindia/123843)
+[Read on Telegram](https://t.me/livelawindia/123858)
 
 ---
-### 2026-11-03T17:35:31+00:00
-Actress Assault Case: Survivor's Trial Court Lawyer Moves Kerala High Court Seeking Contempt Action Against Judge
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-actress-assault-contempt-honey-m-varghese-557205
+### 2026-11-04T04:32:43+00:00
+Freebie Has Giver: What Pharma Marketing Committee Must Recommend
+https://www.livelaw.in/lawschool/articles/freebie-pharma-marketing-committee-recommend-557103
 
-[Read on Telegram](https://t.me/livelawindia/123844)
+[Read on Telegram](https://t.me/livelawindia/123859)
 
 ---
-### 2026-11-03T18:23:12+00:00
-Supreme Court Daily Round-Up : November 3, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-november-3-2026-557188
+### 2026-11-04T04:35:24+00:00
+Project Associate - II Vacancy At Indian Institute Of Technology, Gandhinagar
+https://www.livelaw.in/job-updates/project-associate-ii-vacancy-at-indian-institute-of-technology-gandhinagar-557222
 
-[Read on Telegram](https://t.me/livelawindia/123845)
+[Read on Telegram](https://t.me/livelawindia/123860)
+
+---
+### 2026-11-04T04:37:44+00:00
+Madras High Court Orders Closure, Demolition Of Illegal Resorts In Sathyamangalam Tiger Reserve
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-sathyamangalam-tiger-reserve-illegal-resort-closure-order-557223
+
+[Read on Telegram](https://t.me/livelawindia/123861)
+
+---
+### 2026-11-04T04:47:24+00:00
+Courts Should Not Interfere With Bona Fide Technical Evaluations Of Infrastructure Projects: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-dismisses-pil-against-ajmer-road-underpass-557224
+
+[Read on Telegram](https://t.me/livelawindia/123862)
+
+---
+### 2026-11-04T04:53:04+00:00
+Uploading Photo On Social Media Not Consent For Others To Use It In Obscene Material: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-uploading-photo-social-media-obscene-material-557226
+
+[Read on Telegram](https://t.me/livelawindia/123863)
+
+---
+### 2026-11-04T05:02:04+00:00
+LiveLaw Breaking News Alerts: 04 November 2026
+https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts-04-november-2026-557229
+
+[Read on Telegram](https://t.me/livelawindia/123864)
+
+---
+### 2026-11-04T05:03:14+00:00
+Appeals Against Urban Land Ceiling Orders Abated After 1999 Repeal: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-appeal-under-s33-survives-1999repeal-557225
+
+[Read on Telegram](https://t.me/livelawindia/123865)
+
+---
+### 2026-11-04T05:12:34+00:00
+Does Parole Temporarily Suspend Sentence? Rajasthan High Court Refers Key Questions To Larger Bench
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-refers-questions-parole-rules-suspension-sentence-557227
+
+[Read on Telegram](https://t.me/livelawindia/123866)
+
+---
+### 2026-11-04T05:22:54+00:00
+Mere Presence Of Another Person In Matrimonial Home Can't Prove Adultery: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-upholds-restitution-conjugal-rights-order-557231
+
+[Read on Telegram](https://t.me/livelawindia/123867)
+
+---
+### 2026-11-04T05:30:54+00:00
+BREAKING| Laws Penalising Having More Than 2 Children Have Lost Relevance Due To India's Falling Fertility Rate : Supreme Court
+https://www.livelaw.in/top-stories/laws-penalising-having-more-than-2-children-have-lost-relevance-due-to-indias-falling-fertility-rate-supreme-court-557233
+
+[Read on Telegram](https://t.me/livelawindia/123868)
+
+---
+### 2026-11-04T05:32:34+00:00
+'Love Of Both Parents Is Child's Basic Right': Jharkhand High Court Upholds Father's Visitation, Declines To Disturb Mother's Custody
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-upholds-father-visitation-rights-declines-disturb-mother-custody-557177
+
+[Read on Telegram](https://t.me/livelawindia/123869)
 
 ---
