@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-05T02:33:14+00:00*
+*Last Updated: 2026-11-05T11:20:58+00:00*
 
 ---
 
-### 2026-11-05T02:33:14+00:00
-Empanelment Of Advocates Vacancy At Bihar Shiksha Pariyojana Parishad (BSPP)
-https://www.livelaw.in/job-updates/empanelment-of-advocates-vacancy-at-bihar-shiksha-pariyojana-parishad-bspp-557395
+### 2026-11-05T11:20:58+00:00
+Rahul Gandhi's Remarks On Sikhs Protected U/Article 19; Elected Leader Can Raise Minority Rights Concerns, Says Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-rahul-gandhi-sikh-remarks-article-19-varanasi-557504
 
-[Read on Telegram](https://t.me/livelawindia/123946)
-
----
-### 2026-11-05T02:34:34+00:00
-Registrar/ Joint Director (Legal) Vacancy At Punjab State Electricity Regulatory Commission
-https://www.livelaw.in/job-updates/registrar-joint-director-legal-vacancy-at-punjab-state-electricity-regulatory-commission-557396
-
-[Read on Telegram](https://t.me/livelawindia/123947)
+[Read on Telegram](https://t.me/livelawindia/124017)
 
 ---
-### 2026-11-05T03:03:04+00:00
-Rajasthan High Court Condon​es State's 130-Day Delay In Filing Corruption Appeal, Says File Processing And Approvals May Cause Delay
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-calls-pragmatic-justice-oriented-approach-557382
+### 2026-11-05T11:32:48+00:00
+Sexual Intercourse By Deceitful Means: Telangana High Court Upholds Bail Cancellation After Accused Allegedly Assaulted Complainant
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-upholds-bail-cancellation-citing-post-bail-threatening-557505
 
-[Read on Telegram](https://t.me/livelawindia/123948)
-
----
-### 2026-11-05T03:33:14+00:00
-Pendency Of Guardian And Wards Act Proceedings No Absolute Bar To Grant Of Child Custody By Writ Court: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-pendency-guardian-wards-act-proceedings-bar-grant-child-custody-writ-court-557383
-
-[Read on Telegram](https://t.me/livelawindia/123949)
+[Read on Telegram](https://t.me/livelawindia/124018)
 
 ---
-### 2026-11-05T04:02:16+00:00
-Transit Remand Not Mandatory If Arrested Person Is Produced Before Jurisdictional Magistrate Within 24 Hours: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-transit-remand-mandatory-arrested-person-produced-jurisdictional-magistrate-557390
+### 2026-11-05T11:42:58+00:00
+MP High Court Asks Bar Council To Consider Action Against Advocate Over Alleged Failure To Inform Client About Court Proceedings
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-asks-state-bar-to-examine-professional-misconduct-allegations-against-advocate-557506
 
-[Read on Telegram](https://t.me/livelawindia/123950)
-
----
-### 2026-11-05T04:17:46+00:00
-Aadhaar Card Age Not Conclusive: AP High Court Relies On Age Mentioned In Post-Mortem Report To Enhance Accident Compensation
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-says-aadhaar-card-age-conclusive-revises-age-assessment-557391
-
-[Read on Telegram](https://t.me/livelawindia/123951)
+[Read on Telegram](https://t.me/livelawindia/124019)
 
 ---
-### 2026-11-05T04:32:46+00:00
-Settlement Without Finding Of Contravention: Reassessing Compensation Claims Under Section 53N Of  Competition Act
-https://www.livelaw.in/articles/settlement-without-finding-contravention-reassessing-compensation-claims-557335
+### 2026-11-05T11:43:08+00:00
+Merchants Cannot Pass On UPI Charges To Customers, MDR Necessary To Sustain UPI Ecosystem : NPCI Tells Supreme Court
+https://www.livelaw.in/top-stories/merchants-cannot-pass-on-upi-charges-to-customers-mdr-necessary-to-sustain-upi-ecosystem-npci-tells-supreme-court-557510
 
-[Read on Telegram](https://t.me/livelawindia/123952)
-
----
-### 2026-11-05T04:33:06+00:00
-Opposite Party Can't Compel Litigant To Pursue Challenge On Merits: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-withdrawal-challenge-does-not-nullify-order-challenged-557384
-
-[Read on Telegram](https://t.me/livelawindia/123953)
+[Read on Telegram](https://t.me/livelawindia/124020)
 
 ---
-### 2026-11-05T04:42:16+00:00
-Failure To Deposit Stamp Duty Within 15 Days Renders Auction Sale Void, Executing Court Cannot Extend Deadline: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-auction-sale-void-istamp-duty-deposited-executing-court-extend-deadline-557389
+### 2026-11-05T11:48:08+00:00
+Antilia Bomb Scare Case: Bombay High Court Sets Aside Former Cop Sachin Waze's Bail
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-upheld-bail-granted-special-court-controversial-cop-sachin-waze-557512
 
-[Read on Telegram](https://t.me/livelawindia/123954)
-
----
-### 2026-11-05T04:42:46+00:00
-In Freedom Fighters' Pension Claims, Authorities Must Take Practical Approach; Don't Insist On Strict Proof : Supreme Court
-https://www.livelaw.in/supreme-court/in-freedom-fighters-pension-claims-authorities-must-take-practical-approach-dont-insist-on-strict-proof-supreme-court-557404
-
-[Read on Telegram](https://t.me/livelawindia/123955)
+[Read on Telegram](https://t.me/livelawindia/124021)
 
 ---
-### 2026-11-05T04:44:26+00:00
-2026 LiveLaw (SC) 1133 | SUSHILA TRIPATHI VERSUS STATE OF MADHYA PRADESH & ANR.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1133-sushila-tripathi-versus-state-of-madhya-pradesh-anr-557406
+### 2026-11-05T11:52:28+00:00
+Kerala High Court Asks Special Task Force To Prepare Protocol To Tackle Munnar, Vagamon Govt Land Encroachments
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-special-task-force-protocol-munnar-557508
 
-[Read on Telegram](https://t.me/livelawindia/123956)
-
----
-### 2026-11-05T04:52:06+00:00
-Teachers Of UP Sports Colleges Society Not 'Public Servants', Can't Approach State Public Services Tribunal: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-teachers-sports-colleges-up-sports-colleges-society-557403
-
-[Read on Telegram](https://t.me/livelawindia/123957)
+[Read on Telegram](https://t.me/livelawindia/124022)
 
 ---
-### 2026-11-05T04:55:46+00:00
-LiveLaw Breaking News Alerts: 05 November 2026
-https://www.livelaw.in/top-stories/livelaw-breaking-news-alerts-05-november-2026-557408
+### 2026-11-05T11:56:08+00:00
+CPC | Plaints Rejected At Pre-Registration Stage Must Be Recorded Under Order IV Rule 2 : Supreme Court
+https://www.livelaw.in/supreme-court/cpc-plaints-rejected-at-pre-registration-stage-must-be-recorded-under-order-iv-rule-2-supreme-court-557517
 
-[Read on Telegram](https://t.me/livelawindia/123958)
-
----
-### 2026-11-05T05:02:56+00:00
-Highest Auction Bid Can't Be Cancelled Merely In Hope Of Fetching Better Price: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-highest-auction-bid-cancelled-fetching-better-price-557405
-
-[Read on Telegram](https://t.me/livelawindia/123959)
+[Read on Telegram](https://t.me/livelawindia/124023)
 
 ---
-### 2026-11-05T05:13:16+00:00
-Property Bought Before Alleged Money Laundering Offence Not Immune From Provisional Attachment Under PMLA: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-pmla-property-shielded-provisional-attachment-557407
+### 2026-11-05T12:02:18+00:00
+Kerala High Court Says Dignitaries' Visits, Public Addresses At Thekkinkadu Maidan Not Prohibited
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-clarifies-restrictions-on-thekkinkadu-maidan-events-557509
 
-[Read on Telegram](https://t.me/livelawindia/123960)
-
----
-### 2026-11-05T05:29:16+00:00
-BREAKING| 24-Hour Period For Production Before Magistrate Runs From Time Of Detention & Not From Formal Arrest : Supreme Court
-https://www.livelaw.in/supreme-court/24-hour-period-for-production-before-magistrate-runs-from-time-of-detention-not-from-formal-arrest-supreme-court-557409
-
-[Read on Telegram](https://t.me/livelawindia/123961)
+[Read on Telegram](https://t.me/livelawindia/124024)
 
 ---
-### 2026-11-05T05:32:36+00:00
-NDPS Act | Being A Police Officer Doesn't Establish Authority To Conduct Search & Seizure: Rajasthan High Court Upholds Acquittal
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-police-officer-membership-police-establishment-establish-authority-557386
+### 2026-11-05T12:02:48+00:00
+Supreme Court Asks Trinamool MLA To Approach Calcutta HC For Expeditious Decision On Disqualification Pleas Against Rebel MLAs
+https://www.livelaw.in/top-stories/supreme-court-asks-trinamool-mla-to-approach-calcutta-hc-for-expeditious-decision-on-disqualification-pleas-against-rebel-mlas-557519
 
-[Read on Telegram](https://t.me/livelawindia/123962)
-
----
-### 2026-11-05T05:44:16+00:00
-Madras High Court Orders Relocation Of EV Ramasamy's Statue From Temple Land To Some Other Suitable Place
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-ev-ramasamy-statue-relocate-temple-land-to-other-place-557410
-
-[Read on Telegram](https://t.me/livelawindia/123963)
+[Read on Telegram](https://t.me/livelawindia/124025)
 
 ---
-### 2026-11-05T05:51:46+00:00
-NLU Delhi's Centre For Corporate Law, Governance And Financial Laws Invites Submissions For CCLGFL Blog
-https://www.livelaw.in/lawschool/call-for-papers/nlu-delhis-centre-corporate-law-governance-financial-laws-invites-submissions-cclgfl-blog-557412
+### 2026-11-05T12:07:48+00:00
+Umar Khalid Moves Supreme Court Seeking Bail In Delhi Riots UAPA Case, Cites Near Expiry Of One Year Embargo
+https://www.livelaw.in/top-stories/umar-khalid-moves-supreme-court-seeking-bail-in-delhi-riots-uapa-case-cites-near-expiry-of-one-year-embargo-557521
 
-[Read on Telegram](https://t.me/livelawindia/123964)
+[Read on Telegram](https://t.me/livelawindia/124026)
 
 ---
-### 2026-11-05T05:52:46+00:00
-Riding Motorcycle Without Number Plate Is Not Cheating Under BNS: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/riding-motorcycle-without-number-plate-not-cheating-557414
+### 2026-11-05T12:18:38+00:00
+Centre Supports Plea In Supreme Court Against Grant Of Perks To Judges Who Resign Amid Impeachment
+https://www.livelaw.in/top-stories/centre-supports-plea-in-supreme-court-against-grant-of-perks-to-judges-who-resign-amid-impeachment-557524
 
-[Read on Telegram](https://t.me/livelawindia/123965)
+[Read on Telegram](https://t.me/livelawindia/124027)
+
+---
+### 2026-11-05T12:38:58+00:00
+2026 LiveLaw (SC) 1138 | G. PAZHANIVEL VERSUS S. THILAGAVATHY
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1138-g-pazhanivel-versus-s-thilagavathy-557525
+
+[Read on Telegram](https://t.me/livelawindia/124028)
+
+---
+### 2026-11-05T13:06:28+00:00
+When Co-Accused Charged Under S.302 & S.34 IPC Are Acquitted, One Accused Can't Be Convicted Without Independent S.302 Charge : Supreme Court
+https://www.livelaw.in/supreme-court/supreme-court-acquits-woman-convicted-murdering-daughter-inlaw-557526
+
+[Read on Telegram](https://t.me/livelawindia/124029)
+
+---
+### 2026-11-05T13:07:28+00:00
+2026 LiveLaw (SC) 1139 | Sau. Kamalbai Waman Patil v State of Maharashtra
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1139-sau-kamalbai-waman-patil-v-state-of-maharashtra-557528
+
+[Read on Telegram](https://t.me/livelawindia/124030)
+
+---
+### 2026-11-05T13:08:08+00:00
+AP High Court Directs News Channel To Take Down Disputed Videos Of Railway Officer
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-orders-removal-disputed-videos-allegedly-linking-railway-officer-blackmail-incident-557530
+
+[Read on Telegram](https://t.me/livelawindia/124031)
+
+---
+### 2026-11-05T13:27:28+00:00
+'Absence Of Injuries Does Not Ipso Facto Negate Rape': Patna High Court Refuses To Quash Cognizance In Minor's Alleged Gang-Rape Case
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-refuses-quash-cognizance-minor-alleged-gang-rape-case-557429
+
+[Read on Telegram](https://t.me/livelawindia/124032)
+
+---
+### 2026-11-05T13:29:48+00:00
+Can Police Take More Than 24 Hours To Produce You Before A Magistrate? Here's What The SC Said Today
+https://www.livelaw.in/videos/detention-india-news-supreme-court-arrest-police-breaking-illegal-lawyers-clat-judiciary-557531
+
+[Read on Telegram](https://t.me/livelawindia/124033)
+
+---
+### 2026-11-05T13:35:49+00:00
+LiveLaw Daily| Sharjeel Imam | Ananya Panday | Student Protests | SC Eviction Ruling & more
+https://www.livelaw.in/podcast/detention-arrest-supreme-court-rupali-ganguly-ananya-panday-news-india-legal-student-protests-clat-judiciary-upsc-557533
+
+[Read on Telegram](https://t.me/livelawindia/124034)
+
+---
+### 2026-11-05T13:59:19+00:00
+ECI Must Accept Form 8 For Voters' Change Of Address Even During SIR; Can't Ask Them To File Form 6 : Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/beci-must-accept-form-8-for-voters-change-of-address-even-during-sir-cant-ask-them-to-file-form-6-bombay-high-court-557535
+
+[Read on Telegram](https://t.me/livelawindia/124035)
+
+---
+### 2026-11-05T14:00:19+00:00
+Conversion Racket Case: Allahabad High Court Denies Post-Conviction Bail To Kaleem Siddiqui, Umar Gautam; Grants Relief To 8
+https://www.livelaw.in/high-court/allahabad-high-court/conversion-racket-case-allahabad-high-court-denies-post-conviction-bail-to-kaleem-siddiqui-umar-gautam-grants-relief-to-8-other-convicts-557536
+
+[Read on Telegram](https://t.me/livelawindia/124036)
 
 ---
