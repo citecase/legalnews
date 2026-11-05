@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-04T16:02:22+00:00*
+*Last Updated: 2026-11-05T07:00:09+00:00*
+
+---
+
+### 2026-11-05T07:00:09+00:00
+Supreme Court Refuses To Entertain Azam Khan’s Plea Challenging PMLA Arrest, Transfers Record To Allahabad High Court
+https://www.verdictum.in/supreme-court/refuses-to-entertain-azam-khan-plea-challenging-pmla-arrest-1625192
+
+[Source Link](https://t.me/verdictumlegalupdates/30080)
+
+---
+
+### 2026-11-05T06:33:09+00:00
+Transferred Judge Entitled To Avail Applicable Post-Retirement Allowances From Parent High Court: Orissa High Court
+https://www.verdictum.in/orissa-high-court/shri-chitta-ranjan-dash-v-state-of-odisha-2026ohc262-db-transferred-judge-post-retirement-allowances-1625188
+
+[Source Link](https://t.me/verdictumlegalupdates/30079)
+
+---
+
+### 2026-11-05T05:55:38+00:00
+Public Officer Has To Submit Complaint As Per Section 215 BNSS: Madhya Pradesh High Court Quashes FIR Against Protestor Student
+https://www.verdictum.in/madhya-pradesh-high-court/rajesh-achaliya-v-the-state-of-madhya-pradesh-2026mphc-ind30816-protest-fir-student-sec144-crpc-1625185
+
+[Source Link](https://t.me/verdictumlegalupdates/30078)
+
+---
+
+### 2026-11-05T05:02:27+00:00
+Govt. Employee Accepting Post Can’t Agitate In Respect Of Service Conditions: Supreme Court Upholds Regulation 7(2) Of Uttarakhand PSC Regulations
+https://www.verdictum.in/supreme-court/state-of-uttarakhand-v-mc-bhandari-and-another-2026-insc-1194-govt-employee-psc-regulations-1625181
+
+[Source Link](https://t.me/verdictumlegalupdates/30077)
+
+---
+
+### 2026-11-05T04:32:56+00:00
+Closure Report On Basis Of Inconclusive Forensic Report Doesn’t Conclude That No Offence Is Made Out: Madhya Pradesh Upholds Voice Sample Collection in Bribery Case
+https://www.verdictum.in/madhya-pradesh-high-court/sanjay-sisodiya-v-the-state-of-madhya-pradesh-2026mphc-jbp85170-closure-report-bribery-1625173
+
+[Source Link](https://t.me/verdictumlegalupdates/30076)
 
 ---
 
@@ -121,46 +161,6 @@ Advocates Must Be Shown Due Respect At Police Stations, Police Cannot Settle Civ
 https://www.verdictum.in/karnataka-high-court/in-the-matter-of-murder-of-two-advocates-by-name-sriram-v-and-manjunath-and-attempt-to-murder-of-senior-advocate-venkataramanappa-sannakki-and-other-connected-matters-suo-motu-writ-petition-pil-1625135
 
 [Source Link](https://t.me/verdictumlegalupdates/30061)
-
----
-
-### 2026-11-04T08:32:54+00:00
-Courts Cannot Direct Universities To Permit Students To Write Exams Contrary To Regulations: Kerala High Court
-https://www.verdictum.in/kerala-high-court/sree-sankaracharya-university-of-sanskrit-v-archana-ps-2026ker83945-suspended-students-to-sit-for-examination-1625134
-
-[Source Link](https://t.me/verdictumlegalupdates/30060)
-
----
-
-### 2026-11-04T08:02:33+00:00
-Handwriting Expert’s Report Cannot Be Relied Upon To Prove Authorship Of A Document Unless Such Expert Is Examined: Supreme Court
-https://www.verdictum.in/supreme-court/goverdhan-v-the-state-of-rajasthan-2026-insc-1190-suicide-note-handwriting-expert-1625131
-
-[Source Link](https://t.me/verdictumlegalupdates/30059)
-
----
-
-### 2026-11-04T07:32:52+00:00
-Delhi Police Files FIR Against Prashant Bhushan Over Fake Video Of Russian Foreign Minister
-https://www.verdictum.in/news/delhi-police-fir-prashant-bhushan-fake-video-russian-foreign-minister-1625128
-
-[Source Link](https://t.me/verdictumlegalupdates/30058)
-
----
-
-### 2026-11-04T07:02:30+00:00
-Digestive Timing Cannot Be Sole Basis To Reject Oral Evidence Of Acceptable Eyewitnesses: Supreme Court
-https://www.verdictum.in/supreme-court/shekappa-v-state-of-karnataka-2026-insc-1189-digestive-timing-eyewitnesses-names-inquest-report-1625126
-
-[Source Link](https://t.me/verdictumlegalupdates/30057)
-
----
-
-### 2026-11-04T06:37:49+00:00
-Judicial Finding Can't Be Permitted To Stand Once Factual Foundation On Which It Rests Is Shown To Be Incorrect: Allahabad High Court Reiterates
-https://www.verdictum.in/allahabad-high-court/ashok-kumar-v-state-of-up-finding-foundation-erroneous-conclude-rights-parties-2026ahc-lko77650-db-1625123
-
-[Source Link](https://t.me/verdictumlegalupdates/30056)
 
 ---
 
