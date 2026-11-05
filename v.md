@@ -1,6 +1,142 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-05T07:00:09+00:00*
+*Last Updated: 2026-11-05T16:02:51+00:00*
+
+---
+
+### 2026-11-05T16:02:51+00:00
+Legal Assistant Vacancy At Gujarat Road Safety Authority
+https://www.verdictum.in/job-updates/gujarat-road-safety-authority-1625217
+
+[Source Link](https://t.me/verdictumlegalupdates/30097)
+
+---
+
+### 2026-11-05T15:32:30+00:00
+Scheduled Caste Status Exists By Birth, Not From Date Of Issuance Of Certificate: Patna High Court
+https://www.verdictum.in/patna-high-court/bihar-public-service-commission-and-another-v-dr-ss-and-others-caste-certificate-1625216
+
+[Source Link](https://t.me/verdictumlegalupdates/30096)
+
+---
+
+### 2026-11-05T15:02:10+00:00
+Coparcenary Right Under Amended Section 6 Of Hindu Succession Act Cannot Vest In Daughter Who Died Before Its Commencement: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/leela-scottish-lace-limited-anr-v-smt-vinoda-ors-2026khc60058-section-6-of-hindu-succession-act-1625215
+
+[Source Link](https://t.me/verdictumlegalupdates/30095)
+
+---
+
+### 2026-11-05T14:32:48+00:00
+Hindu Succession Act | Son Doesn't Get Share In Property During Father's Lifetime; Birthright Doesn't Exist: MP High Court
+https://www.verdictum.in/madhya-pradesh-high-court/prembai-v-ramswaroop-hindu-succession-act-son-property-share-death-father-lifetime-birthright-1625214
+
+[Source Link](https://t.me/verdictumlegalupdates/30094)
+
+---
+
+### 2026-11-05T14:02:47+00:00
+Bombay High Court Directs Goa Club Owners To Pay ₹20 Lakh To Family Of Each Victim Of 2025 Fire Tragedy
+https://www.verdictum.in/bombay-high-court/high-court-on-its-own-motion-v-state-of-goa-ex-gratia-payment-goa-club-owners-victim-1625224
+
+[Source Link](https://t.me/verdictumlegalupdates/30093)
+
+---
+
+### 2026-11-05T13:32:26+00:00
+Laws Penalising More Than Two Children Have Lost Relevance As Fear Of Overpopulation Has Crumbled: Supreme Court Refers Issue To Larger Bench
+https://www.verdictum.in/supreme-court/mangala-bhimrao-ingle-v-additional-commissioner-amravati-division-and-others-2026-insc-1193-1625212
+
+[Source Link](https://t.me/verdictumlegalupdates/30092)
+
+---
+
+### 2026-11-05T13:03:05+00:00
+"Ignorance Of Technology": Madras High Court Quashes Criminal Case Against Advocate Whose Private Act Was Accidentally Streamed During Virtual Court Hearing
+https://www.verdictum.in/madras-high-court/quashes-criminal-against-advocate-private-act-accidentally-streamed-virtual-court-hearing-1625211
+
+[Source Link](https://t.me/verdictumlegalupdates/30091)
+
+---
+
+### 2026-11-05T12:32:44+00:00
+Plaint Can Be Rejected Prior To Its Registration; Such Rejection Ought To Be Duly Recorded In Register Maintained As Per Order IV Rule 2 Of CPC: Supreme Court
+https://www.verdictum.in/supreme-court/cause-title-g-pazhanivel-v-s-thilagavathy-2026-insc-1197-plaint-rejected-order-iv-rule-2-cpc-1625210
+
+[Source Link](https://t.me/verdictumlegalupdates/30090)
+
+---
+
+### 2026-11-05T12:02:38+00:00
+Absence Of Plausible Explanation By Accused Can Count Against Him Only After Prosecution Leads Evidence Capable Of Sustaining Conviction: Supreme Court
+https://www.verdictum.in/supreme-court/sau-kamalbai-waman-patil-v-the-state-of-maharashtra-2026-insc-1196-1625209
+
+[Source Link](https://t.me/verdictumlegalupdates/30089)
+
+---
+
+### 2026-11-05T11:32:57+00:00
+24-Hour Timeline Under Article 22(2) Constitution Starts From Detention, Not Formal Arrest: Supreme Court
+https://www.verdictum.in/supreme-court/sujit-das-v-union-of-india-2026-insc-1195-1625208
+
+[Source Link](https://t.me/verdictumlegalupdates/30088)
+
+---
+
+### 2026-11-05T10:52:16+00:00
+Supreme Court Stays Criminal Contempt Proceedings Against Punjab Chief Secretary In DA Case
+https://www.verdictum.in/supreme-court/criminal-contempt-proceedings-against-punjab-chief-secretary-in-da-case-stayed-1625205
+
+[Source Link](https://t.me/verdictumlegalupdates/30087)
+
+---
+
+### 2026-11-05T10:39:35+00:00
+Centre Notifies Advocate As Additional Judge Of Bombay High Court
+https://www.verdictum.in/bombay-high-court/advocate-as-additional-judge-of-bombay-high-court-1625207
+
+[Source Link](https://t.me/verdictumlegalupdates/30086)
+
+---
+
+### 2026-11-05T10:12:54+00:00
+Supreme Court Raises Concern Over 'Hasty' Transfer Of Captive Elephants
+https://www.verdictum.in/supreme-court/concern-over-hasty-transfer-of-captive-elephants-1625203
+
+[Source Link](https://t.me/verdictumlegalupdates/30085)
+
+---
+
+### 2026-11-05T09:32:13+00:00
+Centre Tells Supreme Court It Is Considering Forming Committee On UGC Equity Regulations
+https://www.verdictum.in/supreme-court/considering-forming-committee-on-ugc-equity-regulations-1625202
+
+[Source Link](https://t.me/verdictumlegalupdates/30084)
+
+---
+
+### 2026-11-05T09:12:32+00:00
+Supreme Court Refuses To Transfer Trial In Tirupati Laddus Ghee Adulteration Case Out Of Andhra Pradesh
+https://www.verdictum.in/supreme-court/transfer-trial-in-tirupati-laddus-ghee-adulteration-case-out-of-andhra-pradesh-refused-1625200
+
+[Source Link](https://t.me/verdictumlegalupdates/30083)
+
+---
+
+### 2026-11-05T08:32:41+00:00
+Absence Of Signature On Credit Card Application Does Not Mean No Arbitration Agreement, But Bank Must Show Customer Accepted Its Terms: Bombay High Court
+https://www.verdictum.in/bombay-high-court/kotak-mahindra-bank-limited-v-maulin-niranjan-patel-2026bhc-os23818-signature-on-credit-card-digital-record-1625199
+
+[Source Link](https://t.me/verdictumlegalupdates/30082)
+
+---
+
+### 2026-11-05T07:32:30+00:00
+Continued Survival Of Reference Depends Upon Continued Existence Of Doubt Which Occasioned It: Supreme Court While Closing 7-Judge Bench Reference As Infructuous
+https://www.verdictum.in/supreme-court/arjun-flour-mills-v-state-of-odisha-finance-department-secretary-2026-insc-1192-1625194
+
+[Source Link](https://t.me/verdictumlegalupdates/30081)
 
 ---
 
@@ -25,142 +161,6 @@ Public Officer Has To Submit Complaint As Per Section 215 BNSS: Madhya Pradesh H
 https://www.verdictum.in/madhya-pradesh-high-court/rajesh-achaliya-v-the-state-of-madhya-pradesh-2026mphc-ind30816-protest-fir-student-sec144-crpc-1625185
 
 [Source Link](https://t.me/verdictumlegalupdates/30078)
-
----
-
-### 2026-11-05T05:02:27+00:00
-Govt. Employee Accepting Post Can’t Agitate In Respect Of Service Conditions: Supreme Court Upholds Regulation 7(2) Of Uttarakhand PSC Regulations
-https://www.verdictum.in/supreme-court/state-of-uttarakhand-v-mc-bhandari-and-another-2026-insc-1194-govt-employee-psc-regulations-1625181
-
-[Source Link](https://t.me/verdictumlegalupdates/30077)
-
----
-
-### 2026-11-05T04:32:56+00:00
-Closure Report On Basis Of Inconclusive Forensic Report Doesn’t Conclude That No Offence Is Made Out: Madhya Pradesh Upholds Voice Sample Collection in Bribery Case
-https://www.verdictum.in/madhya-pradesh-high-court/sanjay-sisodiya-v-the-state-of-madhya-pradesh-2026mphc-jbp85170-closure-report-bribery-1625173
-
-[Source Link](https://t.me/verdictumlegalupdates/30076)
-
----
-
-### 2026-11-04T16:02:22+00:00
-MP High Court Asks Bar Council To Consider Action Against Defendant's Advocate For 'Collusion' After His 'No Objection' To Status Quo Order
-https://www.verdictum.in/madhya-pradesh-high-court/ku-jyoti-singh-v-chetan-lashkari-2026mphc-ind30719-bar-council-professional-misconduct-1625157
-
-[Source Link](https://t.me/verdictumlegalupdates/30075)
-
----
-
-### 2026-11-04T15:33:01+00:00
-Rajasthan High Court Bans Parties, Marriages And Restaurants At Declared Monument In Reserved Forest Area
-https://www.verdictum.in/rajasthan-high-court/citezens-protection-society-v-the-state-of-rajasthan-and-others-vidhyadhar-ka-bag-1625153
-
-[Source Link](https://t.me/verdictumlegalupdates/30074)
-
----
-
-### 2026-11-04T15:02:40+00:00
-'Pakistan Zindabad’ Slogan At BJP Rally Highly Unimaginable: Karnataka High Court Quashes FIR Against BJP Workers
-https://www.verdictum.in/karnataka-high-court/d-s-ravi-kumar-v-state-of-karnataka-2026khc59836-protesters-slogan-bjp-rally-1625158
-
-[Source Link](https://t.me/verdictumlegalupdates/30073)
-
----
-
-### 2026-11-04T14:33:09+00:00
-Delhi High Court Issues Time-Bound Directions On Staff Vacancies, ICU Helpline, Hospital Heads And Equipment Across 38 Government Hospitals
-https://www.verdictum.in/delhi-high-court/court-on-its-own-motion-v-union-of-india-and-others-and-connected-matters-2026dhc9736-db-1625145
-
-[Source Link](https://t.me/verdictumlegalupdates/30072)
-
----
-
-### 2026-11-04T14:03:08+00:00
-Widen Pool From Which Arbitrators Are Drawn To Include Qualified Women & Technical Experts: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/shilpaben-shah-ors-v-jasmin-pravinchandra-shah-pool-arbitrators-women-technical-experts-1625151
-
-[Source Link](https://t.me/verdictumlegalupdates/30071)
-
----
-
-### 2026-11-04T13:32:47+00:00
-Review Arrangements In Coordination With Delhi Police Whenever Large Passenger Footfall Is Expected: High Court To Railways
-https://www.verdictum.in/delhi-high-court/govind-kumar-dhuriya-ors-v-union-of-india-2026dhc9828-delhi-police-passenger-railways-1625147
-
-[Source Link](https://t.me/verdictumlegalupdates/30070)
-
----
-
-### 2026-11-04T13:02:26+00:00
-Statue Installed In Temple Land Without Permission Must Be Removed: Madras High Court Orders Removal Of Periyar Statue
-https://www.verdictum.in/madras-high-court/rama-ravikumar-v-state-of-tamil-nadu-wpmd-no-22916-of-2026-ev-ramasamy-statue-thanjavur-temple-1625152
-
-[Source Link](https://t.me/verdictumlegalupdates/30069)
-
----
-
-### 2026-11-04T12:33:05+00:00
-State Cannot Levy Road Tax On Out-Of-State Private Vehicles Without A Notification U/S 4(1)(c) Motor Vehicles Taxation Act: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/harpy-core-network-india-private-limited-v-state-of-rajasthan-2026rj-jp43947-db-oad-tax-on-out-of-state-private-vehicles-1625144
-
-[Source Link](https://t.me/verdictumlegalupdates/30068)
-
----
-
-### 2026-11-04T12:02:44+00:00
-Mere Presence Of Another Person In Matrimonial Home Without Reliable Evidence Of Adulterous Relationship Does Not Establish Adultery: Madras High Court Upholds Dismissal Of Divorce Plea
-https://www.verdictum.in/madras-high-court/ms-v-vk-matrimonial-household-adultery-cheating-cruelty-divorce-proceedings-1625139
-
-[Source Link](https://t.me/verdictumlegalupdates/30067)
-
----
-
-### 2026-11-04T11:33:00+00:00
-Even If Second Marriage Took Place Outside India, Offence Of Bigamy U/S 494 IPC Cannot Be Said To Be Diluted: Supreme Court
-https://www.verdictum.in/supreme-court/a-v-the-state-of-ap-through-secretary-and-others-2026-insc-1191-legal-consequences-subsisting-marriage-1625141
-
-[Source Link](https://t.me/verdictumlegalupdates/30066)
-
----
-
-### 2026-11-04T11:15:39+00:00
-Supreme Court Asks MP Assembly Speaker To Decide In Two Months Disqualification Plea Against MLA Nirmala Sapre
-https://www.verdictum.in/supreme-court/mp-assembly-speaker-to-decide-in-two-months-disqualification-plea-against-mla-nirmala-sapre-1625143
-
-[Source Link](https://t.me/verdictumlegalupdates/30065)
-
----
-
-### 2026-11-04T10:55:18+00:00
-Supreme Court Stays Madras High Court Ruling Constituting Board Of Management For Chidambaram Nataraja Temple From Podhu Dikshitars
-https://www.verdictum.in/supreme-court/stays-madras-high-court-board-management-chidambaram-nataraja-temple-podhu-dikshitars-1625142
-
-[Source Link](https://t.me/verdictumlegalupdates/30064)
-
----
-
-### 2026-11-04T09:47:17+00:00
-We Can't Rewrite Statute To Introduce Rotation In Reservation Of Seats: Apex Court Refuses To Interfere With HC Ruling Upholding Section 9(1)(c) Of Delimitation Act
-https://www.verdictum.in/supreme-court/refuses-to-interfere-hc-ruling-upholding-section-91c-delimitation-act-1625138
-
-[Source Link](https://t.me/verdictumlegalupdates/30063)
-
----
-
-### 2026-11-04T09:32:16+00:00
-Follower Of Spiritual Leader Not “Person Aggrieved” U/S 199(1) CrPC To Prosecute For Defamation: Patna High Court Quashes Complaint Over Book On Swami Ramdev
-https://www.verdictum.in/patna-high-court/ms-juggernaut-books-pvt-ltd-v-state-of-bihar-criminal-miscellaneous-no-10548-of-2018-swami-ramdev-godman-to-tycoon-1625137
-
-[Source Link](https://t.me/verdictumlegalupdates/30062)
-
----
-
-### 2026-11-04T09:02:35+00:00
-Advocates Must Be Shown Due Respect At Police Stations, Police Cannot Settle Civil Disputes: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/in-the-matter-of-murder-of-two-advocates-by-name-sriram-v-and-manjunath-and-attempt-to-murder-of-senior-advocate-venkataramanappa-sannakki-and-other-connected-matters-suo-motu-writ-petition-pil-1625135
-
-[Source Link](https://t.me/verdictumlegalupdates/30061)
 
 ---
 
