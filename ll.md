@@ -1,86 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-06T09:07:04+00:00*
+*Last Updated: 2026-11-06T10:38:05+00:00*
 
 ---
 
-### 2026-11-06T09:07:04+00:00
-Supreme Court Takes Suo Motu Case On Judicial Officer Aman Sharma's 'Suspicious Death', Seeks Status Report From Probe Agency
-https://www.livelaw.in/top-stories/supreme-court-judicial-officer-aman-sharma-dlsa-secretary-suspicious-death-harassment-by-wife-suo-motu-status-report-to-be-filed-by-probe-agency-557644
-
-[Read on Telegram](https://t.me/livelawindia/124096)
-
----
-### 2026-11-06T09:10:04+00:00
-Supreme Court Admits Plea By DMK's KR Periakaruppan Against One Vote Victory Of TVK's Seenivasa Sethupathi
-https://www.livelaw.in/top-stories/supreme-court-admits-plea-by-dmks-kr-periakaruppan-against-one-vote-victory-of-tvks-seenivasa-sethupathi-557646
-
-[Read on Telegram](https://t.me/livelawindia/124097)
-
----
-### 2026-11-06T09:11:04+00:00
-Calcutta High Court Restrains Deportation Of Man Arrested On Suspicion Of Being Foreigner While Travelling To Bangladesh
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-restrains-deportation-of-man-arrested-while-travelling-to-bangladesh-on-suspicion-of-being-foreigner-557647
-
-[Read on Telegram](https://t.me/livelawindia/124098)
-
----
-### 2026-11-06T09:18:04+00:00
-Supreme Court Refuses To Stay Meat Ban Near Somnath Temple, Asks Gujarat High Court To Decide Appeals Soon
-https://www.livelaw.in/top-stories/supreme-court-refuses-to-stay-meat-ban-near-somnath-temple-asks-gujarat-high-court-to-decide-appeals-soon-557648
-
-[Read on Telegram](https://t.me/livelawindia/124099)
-
----
-### 2026-11-06T09:32:04+00:00
-Uttarakhand High Court Stays Blacklisting Of 'Shrimat Express' Newspaper, Removal Of Editor From Print Media Steering Committee
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-stays-blacklisting-shrimat-express-removal-editor-print-media-steering-committee-557548
-
-[Read on Telegram](https://t.me/livelawindia/124100)
-
----
-### 2026-11-06T09:32:44+00:00
-Can Bureaucratic Uncertainty Defeat Supreme Court Judgment? OBC Creamy Layer Dispute
-https://www.livelaw.in/articles/bureaucratic-uncertainty-defeat-supreme-court-judgment-obc-creamy-layer-dispute-557514
-
-[Read on Telegram](https://t.me/livelawindia/124101)
-
----
-### 2026-11-06T09:36:24+00:00
-Delhi High Court Transfers Case After Lawyer Repeatedly Says 'I Cry My Beloved Justice System' And Walks Out Of Court, Calls It Misconduct
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-transfers-case-after-lawyer-repeatedly-says-i-cry-my-beloved-justice-system-and-walks-out-of-court-calls-it-misconduct-557650
-
-[Read on Telegram](https://t.me/livelawindia/124102)
-
----
-### 2026-11-06T09:42:54+00:00
-Upper-Age Limit On Admission To LLB Courses Withdrawn: BCI Tells Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-bci-resolves-to-withdraw-upper-age-restriction-on-admission-to-3-year-and-5-year-law-programmes-557653
-
-[Read on Telegram](https://t.me/livelawindia/124103)
-
----
-### 2026-11-06T09:44:54+00:00
-Delhi High Court Directs 'Doosra' Makers To Add Disclaimer Stating Film Doesn't Have Sourav Ganguly's Consent To Use His Name
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-doosra-makers-to-add-disclaimer-stating-film-doesnt-have-sourav-gangulys-consent-to-use-his-name-557655
-
-[Read on Telegram](https://t.me/livelawindia/124104)
-
----
-### 2026-11-06T09:47:34+00:00
-Kerala High Court Orders Police To Protect Journalist Facing Death Threats After Program On Islamic Scholar's Remarks On Women Rights
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-protection-journalist-big-tv-aparna-kurup-kanthapuram-remarks-557651
-
-[Read on Telegram](https://t.me/livelawindia/124105)
-
----
-### 2026-11-06T10:26:25+00:00
-Karnataka High Court Quashes Case Against RTI Activist Snehamayi Krishna Booked For Shouting At Govt Official
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-case-rti-activist-snehamayi-krishna-557660
-
-[Read on Telegram](https://t.me/livelawindia/124106)
-
----
 ### 2026-11-06T10:38:05+00:00
 Voluntary Discharge From Service Entails Forfeiture Of Past Service, Pension Benefit Cannot Be Invoked: Meghalaya High Court
 https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-voluntary-discharge-service-entails-forfeiture-past-service-557553
@@ -142,5 +65,82 @@ https://www.livelaw.in/supreme-court/national-book-trust-qualifies-as-state-due-
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1143-the-chairman-national-book-trust-india-anr-versus-ar-abdul-gaffar-ors-557682
 
 [Read on Telegram](https://t.me/livelawindia/124115)
+
+---
+### 2026-11-06T14:33:16+00:00
+From Demise Charterer To Gratuitous Bailee: Termination, Repossession And Sister-Ship Arrest Under Admiralty Act
+https://www.livelaw.in/articles/demise-charterer-gratuitous-bailee-termination-repossession-sister-ship-arrest-admiralty-act-557516
+
+[Read on Telegram](https://t.me/livelawindia/124116)
+
+---
+### 2026-11-06T14:58:56+00:00
+Commercial Crop Cultivation Cannot Be Recognized As Forest Right To Justify Presence In Forest Area : Supreme Court
+https://www.livelaw.in/supreme-court/commercial-crop-cultivation-cannot-be-recognized-as-forest-right-to-justify-presence-in-forest-area-supreme-court-557685
+
+[Read on Telegram](https://t.me/livelawindia/124117)
+
+---
+### 2026-11-06T15:00:16+00:00
+2026 LiveLaw (SC) 1144 | A. John Kennedy & Ors. v. State of Tamil Nadu & Ors
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1144-a-john-kennedy-ors-v-state-of-tamil-nadu-ors-557686
+
+[Read on Telegram](https://t.me/livelawindia/124118)
+
+---
+### 2026-11-06T15:01:17+00:00
+ECI's Instruction To Not Engage Children In Election Campaigns Has Statutory Force, Is Binding On Candidates: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-eci-instruction-no-children-election-campaugn-statutory-force-557687
+
+[Read on Telegram](https://t.me/livelawindia/124119)
+
+---
+### 2026-11-06T15:30:06+00:00
+'Political Satire Can't Attack Dignity': Delhi High Court Orders Takedown Of AAP's Deepfake Videos Targeting CM Rekha Gupta
+https://www.livelaw.in/high-court/delhi-high-court/political-satire-cant-attack-dignity-delhi-high-court-orders-takedown-of-aaps-deepfake-videos-targeting-cm-rekha-gupta-557688
+
+[Read on Telegram](https://t.me/livelawindia/124120)
+
+---
+### 2026-11-06T16:16:56+00:00
+Supreme Court Dismisses Plea Challenging Allahabad HC's Senior Designations Conferred In 2019
+https://www.livelaw.in/top-stories/supreme-court-dismisses-plea-challenging-allahabad-hcs-senior-designations-conferred-in-2019-557690
+
+[Read on Telegram](https://t.me/livelawindia/124121)
+
+---
+### 2026-11-06T16:24:56+00:00
+Kerala High Court Expresses Anguish Over Death of 28-Year-Old Woman, Calls for Accountability Over Lack of Pedestrian Pathways
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-anguish-over-death-of-28-year-old-woman-557691
+
+[Read on Telegram](https://t.me/livelawindia/124122)
+
+---
+### 2026-11-06T16:26:56+00:00
+Supreme Court Orders SIT Probe Into Illegal Gravel Mining In Rajasthan's Luni, Jojari And Bandi Rivers, Bars New Industries Near River Ecosystem
+https://www.livelaw.in/top-stories/supreme-court-orders-sit-probe-into-illegal-gravel-mining-in-rajasthans-luni-jojari-and-bandi-rivers-bars-new-industries-near-river-ecosystem-557692
+
+[Read on Telegram](https://t.me/livelawindia/124123)
+
+---
+### 2026-11-06T16:27:56+00:00
+2026 LiveLaw (SC) 1145 | In Re: 2 Million Lives At Risk, Contamination In Jojari River, Rajasthan
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1145-in-re-2-million-lives-at-risk-contamination-in-jojari-river-rajasthan-557693
+
+[Read on Telegram](https://t.me/livelawindia/124124)
+
+---
+### 2026-11-06T16:31:56+00:00
+Criminal Defamation Complaint Filed Against Dhirendra Shastri In Agra Court Over Remarks On Lord Krishna
+https://www.livelaw.in/news-updates/dhirendra-shastri-criminal-defamation-complaint-lord-krishna-remarks-557695
+
+[Read on Telegram](https://t.me/livelawindia/124125)
+
+---
+### 2026-11-06T18:22:27+00:00
+LiveLaw High Courts Daily Highlights: November 06, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-06-2026-557689
+
+[Read on Telegram](https://t.me/livelawindia/124126)
 
 ---
