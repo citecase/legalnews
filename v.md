@@ -1,6 +1,142 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-06T06:32:10+00:00*
+*Last Updated: 2026-11-06T16:03:19+00:00*
+
+---
+
+### 2026-11-06T16:03:19+00:00
+Research Assistant Vacancy At Kerala High Court
+https://www.verdictum.in/job-updates/kerala-high-court-1625289
+
+[Source Link](https://t.me/verdictumlegalupdates/30119)
+
+---
+
+### 2026-11-06T16:03:08+00:00
+Executive Authorities Along With Police Cannot Facilitate Private Recovery Of Possession Without Lawful Authority: Gauhati High Court
+https://www.verdictum.in/guwahati-high-court/sabita-paul-v-state-of-assam-and-others-possession-recovery-executive-magistrate-1625298
+
+[Source Link](https://t.me/verdictumlegalupdates/30118)
+
+---
+
+### 2026-11-06T15:31:47+00:00
+Surrogacy Act- Collective Age Of Intending Couple Can Be Considered; No Bar Where One Spouse Is Within Age Limit: Bombay High Court
+https://www.verdictum.in/bombay-high-court/surrogacy-age-limit-collective-age-intending-couple-art-act-2026bhc-as45246-db-1625300
+
+[Source Link](https://t.me/verdictumlegalupdates/30117)
+
+---
+
+### 2026-11-06T14:13:06+00:00
+Delete Prohibited List Of Lands Maintained In National Generic Document Registration System: Jharkhand High Court To State Govt.
+https://www.verdictum.in/jharkhand-high-court/amit-ranjan-v-the-state-of-jharkhand-2026jhhc32512-prohibited-list-lands-document-registration-1625297
+
+[Source Link](https://t.me/verdictumlegalupdates/30116)
+
+---
+
+### 2026-11-06T13:32:45+00:00
+“Final Quietus” To Bhakra-Beas Power Dispute: Supreme Court Directs Punjab & Haryana To Supply 11,973 MU Energy Arrears To Himachal Pradesh
+https://www.verdictum.in/supreme-court/2026-insc-1200-state-of-himachal-pradesh-v-union-of-india-1625296
+
+[Source Link](https://t.me/verdictumlegalupdates/30115)
+
+---
+
+### 2026-11-06T13:03:04+00:00
+Manipur High Court Calls For Early Notification Of Mediation Act Provisions Governing Settlement Agreements And Their Enforcement
+https://www.verdictum.in/manipur-high-court/state-of-manipur-and-others-v-konsam-ningol-khagembam-ongbi-rebina-devi-and-another-2026mnhc260-db-1625288
+
+[Source Link](https://t.me/verdictumlegalupdates/30114)
+
+---
+
+### 2026-11-06T12:33:03+00:00
+28-Week-Old Foetus To Be Treated As Child: Punjab And Haryana High Court Enhances Motor Accident Compensation For Death Of Unborn Child
+https://www.verdictum.in/punjab-and-haryana-high-court/suresh-kumar-sethi-v-sanjeev-kumar-2026phhc196006-foetus-child-motor-accident-compensation-1625287
+
+[Source Link](https://t.me/verdictumlegalupdates/30113)
+
+---
+
+### 2026-11-06T12:02:22+00:00
+Karnataka High Court Quashes Defamation Case Against Siddaramaiah, D.K. Shivakumar Over Advertisement Alleging Corruption In BJP Government
+https://www.verdictum.in/karnataka-high-court/siddaramaiah-v-bharatiya-janata-party-cw-karnataka-pradesh-congress-committee-and-v-bharatiya-janata-party-1625283
+
+[Source Link](https://t.me/verdictumlegalupdates/30112)
+
+---
+
+### 2026-11-06T11:32:01+00:00
+BCI Withdraws Upper Age Limit For 3-Year, 5-Year LLB Courses; Supreme Court Disposes Of Challenge As Infructuous
+https://www.verdictum.in/supreme-court/bci-withdraws-upper-age-limit-for-3-year-5-year-llb-courses-1625282
+
+[Source Link](https://t.me/verdictumlegalupdates/30111)
+
+---
+
+### 2026-11-06T11:02:20+00:00
+J&K And Ladakh High Court Seeks Category-Wise Details Of Fire Stations Required & Functional Under SFAC Norms
+https://www.verdictum.in/jammu-ladakh-high-court/mohd-rahoof-khan-v-union-territory-of-jk-wpcpil-132024-sfac-norms-on-firefighting-policy-1625280
+
+[Source Link](https://t.me/verdictumlegalupdates/30110)
+
+---
+
+### 2026-11-06T10:32:19+00:00
+Supreme Court Refuses To Suspend Tarun Tejpal's 10-Year Sentence In 2013 Rape Case
+https://www.verdictum.in/supreme-court/tarun-tejpals-10-year-sentence-in-2013-rape-case-1625281
+
+[Source Link](https://t.me/verdictumlegalupdates/30109)
+
+---
+
+### 2026-11-06T10:02:38+00:00
+Rashness & Negligence Are Not The Same Things: Supreme Court Quashes Criminal Case Against School Management Over Pillar Collapse Death Of Student
+https://www.verdictum.in/supreme-court/matin-shankarrao-bhosale-v-state-of-maharashtra-2026-insc-1198-pillar-collapse-death-us-304a-ipc-1625278
+
+[Source Link](https://t.me/verdictumlegalupdates/30108)
+
+---
+
+### 2026-11-06T09:32:39+00:00
+Rule 167(7) Of Central Motor Vehicles Rules Is Not Retrospective, Can’t Interdict Registration For Prior Unpaid Challans: Kerala High Court
+https://www.verdictum.in/kerala-high-court/t-n-arun-kumar-v-ministry-of-road-transport-and-highways-2026ker77134-motor-vehicle-registration-1625277
+
+[Source Link](https://t.me/verdictumlegalupdates/30107)
+
+---
+
+### 2026-11-06T09:02:36+00:00
+Census Stayed Till April 2027, No Rollback Of Notifications; Registrar General To Decide Representations: Manipur High Court
+https://www.verdictum.in/manipur-high-court/the-kangleipak-students-association-v-union-of-india-2026mnhc259-db-manipur-census-1625268
+
+[Source Link](https://t.me/verdictumlegalupdates/30106)
+
+---
+
+### 2026-11-06T08:22:55+00:00
+Breaking: Supreme Court Issues Show-Cause Notice To All KPCC Office Bearers In Suo Motu Contempt Case Over INC Kerala Post Against CJI Surya Kant
+https://www.verdictum.in/supreme-court/issues-show-cause-notice-kpcc-office-bearers-suo-motu-contempt-case-inc-kerala-post-against-cji-surya-kant-1625275
+
+[Source Link](https://t.me/verdictumlegalupdates/30105)
+
+---
+
+### 2026-11-06T07:50:13+00:00
+Supreme Court Issues Notice To Prabir Purkayastha & NewsClick On ED’s Plea Against Order Quashing Money Laundering Case
+https://www.verdictum.in/supreme-court/issues-notice-on-eds-plea-delhi-high-court-quashing-newsclick-money-laundering-case-1625271
+
+[Source Link](https://t.me/verdictumlegalupdates/30104)
+
+---
+
+### 2026-11-06T07:22:11+00:00
+De-Panelment Of Advocate Is Not Defamation; Resulting Financial Loss Is Not Compensable Under Defamation Law: Patna High Court
+https://www.verdictum.in/patna-high-court/assistant-general-manager-state-bank-of-india-and-others-v-mantosh-prasad-sinha-1625265
+
+[Source Link](https://t.me/verdictumlegalupdates/30103)
 
 ---
 
@@ -25,142 +161,6 @@ Elected Representative Raising Concerns Of Minorities Not An Offence: Allahabad 
 https://www.verdictum.in/allahabad-high-court/nageshwar-mishra-and-another-v-state-of-up-and-another-2026ahc230511-1625251
 
 [Source Link](https://t.me/verdictumlegalupdates/30100)
-
----
-
-### 2026-11-06T05:02:47+00:00
-Allahabad High Court Quashes Permission Granted By Police Under Noise Pollution Rules For Concert With Condition Not To Serve Alcohol
-https://www.verdictum.in/allahabad-high-court/atlani-brothers-v-state-of-up-2026ahc-lko72565-db-provision-noise-pollution-permission-alcohol-concerts-1625248
-
-[Source Link](https://t.me/verdictumlegalupdates/30099)
-
----
-
-### 2026-11-06T04:33:16+00:00
-Intention To Provoke Suicide Cannot Be Inferred From Deceased’s Attribution Of Responsibility Alone: Delhi High Court Discharges Husband In Anissia Batra Case
-https://www.verdictum.in/delhi-high-court/nillum-batra-v-state-2026dhc9804-matrimonial-restraint-instigate-or-facilitate-suicide-1625213
-
-[Source Link](https://t.me/verdictumlegalupdates/30098)
-
----
-
-### 2026-11-05T16:02:51+00:00
-Legal Assistant Vacancy At Gujarat Road Safety Authority
-https://www.verdictum.in/job-updates/gujarat-road-safety-authority-1625217
-
-[Source Link](https://t.me/verdictumlegalupdates/30097)
-
----
-
-### 2026-11-05T15:32:30+00:00
-Scheduled Caste Status Exists By Birth, Not From Date Of Issuance Of Certificate: Patna High Court
-https://www.verdictum.in/patna-high-court/bihar-public-service-commission-and-another-v-dr-ss-and-others-caste-certificate-1625216
-
-[Source Link](https://t.me/verdictumlegalupdates/30096)
-
----
-
-### 2026-11-05T15:02:10+00:00
-Coparcenary Right Under Amended Section 6 Of Hindu Succession Act Cannot Vest In Daughter Who Died Before Its Commencement: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/leela-scottish-lace-limited-anr-v-smt-vinoda-ors-2026khc60058-section-6-of-hindu-succession-act-1625215
-
-[Source Link](https://t.me/verdictumlegalupdates/30095)
-
----
-
-### 2026-11-05T14:32:48+00:00
-Hindu Succession Act | Son Doesn't Get Share In Property During Father's Lifetime; Birthright Doesn't Exist: MP High Court
-https://www.verdictum.in/madhya-pradesh-high-court/prembai-v-ramswaroop-hindu-succession-act-son-property-share-death-father-lifetime-birthright-1625214
-
-[Source Link](https://t.me/verdictumlegalupdates/30094)
-
----
-
-### 2026-11-05T14:02:47+00:00
-Bombay High Court Directs Goa Club Owners To Pay ₹20 Lakh To Family Of Each Victim Of 2025 Fire Tragedy
-https://www.verdictum.in/bombay-high-court/high-court-on-its-own-motion-v-state-of-goa-ex-gratia-payment-goa-club-owners-victim-1625224
-
-[Source Link](https://t.me/verdictumlegalupdates/30093)
-
----
-
-### 2026-11-05T13:32:26+00:00
-Laws Penalising More Than Two Children Have Lost Relevance As Fear Of Overpopulation Has Crumbled: Supreme Court Refers Issue To Larger Bench
-https://www.verdictum.in/supreme-court/mangala-bhimrao-ingle-v-additional-commissioner-amravati-division-and-others-2026-insc-1193-1625212
-
-[Source Link](https://t.me/verdictumlegalupdates/30092)
-
----
-
-### 2026-11-05T13:03:05+00:00
-"Ignorance Of Technology": Madras High Court Quashes Criminal Case Against Advocate Whose Private Act Was Accidentally Streamed During Virtual Court Hearing
-https://www.verdictum.in/madras-high-court/quashes-criminal-against-advocate-private-act-accidentally-streamed-virtual-court-hearing-1625211
-
-[Source Link](https://t.me/verdictumlegalupdates/30091)
-
----
-
-### 2026-11-05T12:32:44+00:00
-Plaint Can Be Rejected Prior To Its Registration; Such Rejection Ought To Be Duly Recorded In Register Maintained As Per Order IV Rule 2 Of CPC: Supreme Court
-https://www.verdictum.in/supreme-court/cause-title-g-pazhanivel-v-s-thilagavathy-2026-insc-1197-plaint-rejected-order-iv-rule-2-cpc-1625210
-
-[Source Link](https://t.me/verdictumlegalupdates/30090)
-
----
-
-### 2026-11-05T12:02:38+00:00
-Absence Of Plausible Explanation By Accused Can Count Against Him Only After Prosecution Leads Evidence Capable Of Sustaining Conviction: Supreme Court
-https://www.verdictum.in/supreme-court/sau-kamalbai-waman-patil-v-the-state-of-maharashtra-2026-insc-1196-1625209
-
-[Source Link](https://t.me/verdictumlegalupdates/30089)
-
----
-
-### 2026-11-05T11:32:57+00:00
-24-Hour Timeline Under Article 22(2) Constitution Starts From Detention, Not Formal Arrest: Supreme Court
-https://www.verdictum.in/supreme-court/sujit-das-v-union-of-india-2026-insc-1195-1625208
-
-[Source Link](https://t.me/verdictumlegalupdates/30088)
-
----
-
-### 2026-11-05T10:52:16+00:00
-Supreme Court Stays Criminal Contempt Proceedings Against Punjab Chief Secretary In DA Case
-https://www.verdictum.in/supreme-court/criminal-contempt-proceedings-against-punjab-chief-secretary-in-da-case-stayed-1625205
-
-[Source Link](https://t.me/verdictumlegalupdates/30087)
-
----
-
-### 2026-11-05T10:39:35+00:00
-Centre Notifies Advocate As Additional Judge Of Bombay High Court
-https://www.verdictum.in/bombay-high-court/advocate-as-additional-judge-of-bombay-high-court-1625207
-
-[Source Link](https://t.me/verdictumlegalupdates/30086)
-
----
-
-### 2026-11-05T10:12:54+00:00
-Supreme Court Raises Concern Over 'Hasty' Transfer Of Captive Elephants
-https://www.verdictum.in/supreme-court/concern-over-hasty-transfer-of-captive-elephants-1625203
-
-[Source Link](https://t.me/verdictumlegalupdates/30085)
-
----
-
-### 2026-11-05T09:32:13+00:00
-Centre Tells Supreme Court It Is Considering Forming Committee On UGC Equity Regulations
-https://www.verdictum.in/supreme-court/considering-forming-committee-on-ugc-equity-regulations-1625202
-
-[Source Link](https://t.me/verdictumlegalupdates/30084)
-
----
-
-### 2026-11-05T09:12:32+00:00
-Supreme Court Refuses To Transfer Trial In Tirupati Laddus Ghee Adulteration Case Out Of Andhra Pradesh
-https://www.verdictum.in/supreme-court/transfer-trial-in-tirupati-laddus-ghee-adulteration-case-out-of-andhra-pradesh-refused-1625200
-
-[Source Link](https://t.me/verdictumlegalupdates/30083)
 
 ---
 
