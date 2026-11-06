@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-05T16:02:51+00:00*
+*Last Updated: 2026-11-06T06:32:10+00:00*
+
+---
+
+### 2026-11-06T06:32:10+00:00
+No Distinction Between “Law Graduates” And “Candidates”: Bombay High Court Upholds Bar On Fresh Law Graduates Applying For Civil Judge (Junior Division) Exam
+https://www.verdictum.in/bombay-high-court/satish-maulyawan-patole-v-state-of-maharashtra-2026bhc-as45143-db-civil-judge-junior-division-exam-1625257
+
+[Source Link](https://t.me/verdictumlegalupdates/30102)
+
+---
+
+### 2026-11-06T06:02:49+00:00
+Delhi High Court: Customs Can Examine Whether Third-Party Remittances In Bank Accounts Are Genuine Sale Proceeds For Drawback
+https://www.verdictum.in/delhi-high-court/commissioner-of-customs-export-v-ms-gd-manglam-exim-pvt-ltd-now-ms-welldone-exim-pvt-ltd-2026dhc9812-db-cestat-order-rs-67-crore-drawback-case-1625254
+
+[Source Link](https://t.me/verdictumlegalupdates/30101)
+
+---
+
+### 2026-11-06T05:33:08+00:00
+Elected Representative Raising Concerns Of Minorities Not An Offence: Allahabad High Court Refuses To Order FIR Against Rahul Gandhi
+https://www.verdictum.in/allahabad-high-court/nageshwar-mishra-and-another-v-state-of-up-and-another-2026ahc230511-1625251
+
+[Source Link](https://t.me/verdictumlegalupdates/30100)
+
+---
+
+### 2026-11-06T05:02:47+00:00
+Allahabad High Court Quashes Permission Granted By Police Under Noise Pollution Rules For Concert With Condition Not To Serve Alcohol
+https://www.verdictum.in/allahabad-high-court/atlani-brothers-v-state-of-up-2026ahc-lko72565-db-provision-noise-pollution-permission-alcohol-concerts-1625248
+
+[Source Link](https://t.me/verdictumlegalupdates/30099)
+
+---
+
+### 2026-11-06T04:33:16+00:00
+Intention To Provoke Suicide Cannot Be Inferred From Deceased’s Attribution Of Responsibility Alone: Delhi High Court Discharges Husband In Anissia Batra Case
+https://www.verdictum.in/delhi-high-court/nillum-batra-v-state-2026dhc9804-matrimonial-restraint-instigate-or-facilitate-suicide-1625213
+
+[Source Link](https://t.me/verdictumlegalupdates/30098)
 
 ---
 
@@ -121,46 +161,6 @@ Supreme Court Refuses To Transfer Trial In Tirupati Laddus Ghee Adulteration Cas
 https://www.verdictum.in/supreme-court/transfer-trial-in-tirupati-laddus-ghee-adulteration-case-out-of-andhra-pradesh-refused-1625200
 
 [Source Link](https://t.me/verdictumlegalupdates/30083)
-
----
-
-### 2026-11-05T08:32:41+00:00
-Absence Of Signature On Credit Card Application Does Not Mean No Arbitration Agreement, But Bank Must Show Customer Accepted Its Terms: Bombay High Court
-https://www.verdictum.in/bombay-high-court/kotak-mahindra-bank-limited-v-maulin-niranjan-patel-2026bhc-os23818-signature-on-credit-card-digital-record-1625199
-
-[Source Link](https://t.me/verdictumlegalupdates/30082)
-
----
-
-### 2026-11-05T07:32:30+00:00
-Continued Survival Of Reference Depends Upon Continued Existence Of Doubt Which Occasioned It: Supreme Court While Closing 7-Judge Bench Reference As Infructuous
-https://www.verdictum.in/supreme-court/arjun-flour-mills-v-state-of-odisha-finance-department-secretary-2026-insc-1192-1625194
-
-[Source Link](https://t.me/verdictumlegalupdates/30081)
-
----
-
-### 2026-11-05T07:00:09+00:00
-Supreme Court Refuses To Entertain Azam Khan’s Plea Challenging PMLA Arrest, Transfers Record To Allahabad High Court
-https://www.verdictum.in/supreme-court/refuses-to-entertain-azam-khan-plea-challenging-pmla-arrest-1625192
-
-[Source Link](https://t.me/verdictumlegalupdates/30080)
-
----
-
-### 2026-11-05T06:33:09+00:00
-Transferred Judge Entitled To Avail Applicable Post-Retirement Allowances From Parent High Court: Orissa High Court
-https://www.verdictum.in/orissa-high-court/shri-chitta-ranjan-dash-v-state-of-odisha-2026ohc262-db-transferred-judge-post-retirement-allowances-1625188
-
-[Source Link](https://t.me/verdictumlegalupdates/30079)
-
----
-
-### 2026-11-05T05:55:38+00:00
-Public Officer Has To Submit Complaint As Per Section 215 BNSS: Madhya Pradesh High Court Quashes FIR Against Protestor Student
-https://www.verdictum.in/madhya-pradesh-high-court/rajesh-achaliya-v-the-state-of-madhya-pradesh-2026mphc-ind30816-protest-fir-student-sec144-crpc-1625185
-
-[Source Link](https://t.me/verdictumlegalupdates/30078)
 
 ---
 
