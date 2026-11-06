@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-06T04:53:03+00:00*
+*Last Updated: 2026-11-06T09:07:04+00:00*
 
 ---
 
-### 2026-11-06T04:53:03+00:00
-'Fatwas Have No Legal Status Or Binding Enforceability': Chhattisgarh High Court Dismisses Plea Alleging Social Boycott
-https://www.livelaw.in/high-court/chhattisgarh-high-court/fatwas-no-legal-status-binding-enforceability-557555
+### 2026-11-06T09:07:04+00:00
+Supreme Court Takes Suo Motu Case On Judicial Officer Aman Sharma's 'Suspicious Death', Seeks Status Report From Probe Agency
+https://www.livelaw.in/top-stories/supreme-court-judicial-officer-aman-sharma-dlsa-secretary-suspicious-death-harassment-by-wife-suo-motu-status-report-to-be-filed-by-probe-agency-557644
 
-[Read on Telegram](https://t.me/livelawindia/124054)
-
----
-### 2026-11-06T04:57:23+00:00
-NOIDA Is 'State' Under Article 12 But Not 'Govt' Under Section 80 CPC, No Prior Notice Needed Before Suing It: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-noida-state-article12-government-557573
-
-[Read on Telegram](https://t.me/livelawindia/124055)
+[Read on Telegram](https://t.me/livelawindia/124096)
 
 ---
-### 2026-11-06T05:02:23+00:00
-Fair Trial Under Article 21 Does Not Require Certified Copies Of Trial Proceedings Before Confirmation Of Sentence: J&K&L High Court Upholds BSF Rule
-https://www.livelaw.in/high-court/jammu-kashmir/possession-of-certified-copies-not-an-invariable-requirement-of-fair-trial-under-article-21-rule-129-bsf-rules-constitutionally-valid-jk-high-court-557578
+### 2026-11-06T09:10:04+00:00
+Supreme Court Admits Plea By DMK's KR Periakaruppan Against One Vote Victory Of TVK's Seenivasa Sethupathi
+https://www.livelaw.in/top-stories/supreme-court-admits-plea-by-dmks-kr-periakaruppan-against-one-vote-victory-of-tvks-seenivasa-sethupathi-557646
 
-[Read on Telegram](https://t.me/livelawindia/124056)
-
----
-### 2026-11-06T05:02:33+00:00
-Adequate, Timely Medical Facilities Intrinsically Linked To Right To Life; Healthcare Reforms Must Yield Tangible Results: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-closes-pil-statewide-healthcare-deficiencies-557574
-
-[Read on Telegram](https://t.me/livelawindia/124057)
+[Read on Telegram](https://t.me/livelawindia/124097)
 
 ---
-### 2026-11-06T05:13:13+00:00
-Gujarat High Court Fines Gram Panchayat ₹1.20 Lakh For Demolishing Homes Without Following 'Due Process'
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-fines-gram-panchayat-120-lakh-for-demolishing-homes-without-following-due-process-557575
+### 2026-11-06T09:11:04+00:00
+Calcutta High Court Restrains Deportation Of Man Arrested On Suspicion Of Being Foreigner While Travelling To Bangladesh
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-restrains-deportation-of-man-arrested-while-travelling-to-bangladesh-on-suspicion-of-being-foreigner-557647
 
-[Read on Telegram](https://t.me/livelawindia/124058)
-
----
-### 2026-11-06T05:19:53+00:00
-Calcutta High Court Defers KMC Elections Till Plea Challenging Ward Delimitation From 144 To 209 Is Decided
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-defers-kmc-elections-till-plea-challenging-ward-delimitation-from-144-to-209-is-decided-557582
-
-[Read on Telegram](https://t.me/livelawindia/124059)
+[Read on Telegram](https://t.me/livelawindia/124098)
 
 ---
-### 2026-11-06T05:20:03+00:00
-Call For Papers | 5th RGNUL-SAM Conclave On 'Regulating The Digital Economy: Emerging Legal Frontiers'
-https://www.livelaw.in/lawschool/call-for-papers/call-papers-5th-rgnul-sam-conclave-regulating-digital-economy-emerging-legal-frontiers-557583
+### 2026-11-06T09:18:04+00:00
+Supreme Court Refuses To Stay Meat Ban Near Somnath Temple, Asks Gujarat High Court To Decide Appeals Soon
+https://www.livelaw.in/top-stories/supreme-court-refuses-to-stay-meat-ban-near-somnath-temple-asks-gujarat-high-court-to-decide-appeals-soon-557648
 
-[Read on Telegram](https://t.me/livelawindia/124060)
-
----
-### 2026-11-06T05:21:53+00:00
-Supreme Court Expresses Pain Over Death Of Girl Due To School Pillar Collapse, Quashes Criminal Case Against Officer-Bearers
-https://www.livelaw.in/top-stories/supreme-court-quashes-case-school-officer-bearers-death-student-pillar-collapse-case-557584
-
-[Read on Telegram](https://t.me/livelawindia/124061)
+[Read on Telegram](https://t.me/livelawindia/124099)
 
 ---
-### 2026-11-06T05:22:33+00:00
-Sanction For Prosecution Under Prevention Of Corruption Act Is Governed By Law On Date Of Offence, Not Date Of Cognizance: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-sanction-prosecution-prevention-of-corruption-act-law-governed-offence-date-557576
+### 2026-11-06T09:32:04+00:00
+Uttarakhand High Court Stays Blacklisting Of 'Shrimat Express' Newspaper, Removal Of Editor From Print Media Steering Committee
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-stays-blacklisting-shrimat-express-removal-editor-print-media-steering-committee-557548
 
-[Read on Telegram](https://t.me/livelawindia/124062)
-
----
-### 2026-11-06T05:27:23+00:00
-Legal Assistant Vacancy At West Bengal State Health & Family Welfare Samiti
-https://www.livelaw.in/job-updates/legal-assistant-vacancy-at-west-bengal-state-health-family-welfare-samiti-557585
-
-[Read on Telegram](https://t.me/livelawindia/124063)
+[Read on Telegram](https://t.me/livelawindia/124100)
 
 ---
-### 2026-11-06T05:27:33+00:00
-Madhya Pradesh State Legal Services Authority Launches 'Surakshit Bachpan Abhiyan' Across State
-https://www.livelaw.in/news-updates/madhya-pradesh-state-legal-services-authority-launches-surakshit-bachpan-abhiyan-across-state-557586
+### 2026-11-06T09:32:44+00:00
+Can Bureaucratic Uncertainty Defeat Supreme Court Judgment? OBC Creamy Layer Dispute
+https://www.livelaw.in/articles/bureaucratic-uncertainty-defeat-supreme-court-judgment-obc-creamy-layer-dispute-557514
 
-[Read on Telegram](https://t.me/livelawindia/124064)
-
----
-### 2026-11-06T05:27:53+00:00
-Assistant Registrar Vacancy At Gurugram University, Gurugram
-https://www.livelaw.in/job-updates/assistant-registrar-vacancy-at-gurugram-university-gurugram-557587
-
-[Read on Telegram](https://t.me/livelawindia/124065)
+[Read on Telegram](https://t.me/livelawindia/124101)
 
 ---
-### 2026-11-06T05:29:13+00:00
-Data Protection (Data Privacy & Security) And Technical Officer (Data Privacy & Access) Vacancy At Employees' State Insurance Corporation
-https://www.livelaw.in/job-updates/data-protection-data-privacy-security-and-technical-officer-data-privacy-access-vacancy-at-employees-state-insurance-corporation-557588
+### 2026-11-06T09:36:24+00:00
+Delhi High Court Transfers Case After Lawyer Repeatedly Says 'I Cry My Beloved Justice System' And Walks Out Of Court, Calls It Misconduct
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-transfers-case-after-lawyer-repeatedly-says-i-cry-my-beloved-justice-system-and-walks-out-of-court-calls-it-misconduct-557650
 
-[Read on Telegram](https://t.me/livelawindia/124066)
-
----
-### 2026-11-06T05:30:13+00:00
-Legal Advisor Vacancy At National Institute Of Technology Agartala (NIT Agartala)
-https://www.livelaw.in/job-updates/legal-advisor-vacancy-at-national-institute-of-technology-agartala-nit-agartala-557589
-
-[Read on Telegram](https://t.me/livelawindia/124067)
+[Read on Telegram](https://t.me/livelawindia/124102)
 
 ---
-### 2026-11-06T05:30:23+00:00
-Rajasthan High Court Asks Authorities To Decide Rape Convict Asaram's Open Air Camp Eligibility Within 3 Weeks
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-seeks-administrative-decision-full-bench-ruling-rape-pocso-convicts-eligibility-557590
+### 2026-11-06T09:42:54+00:00
+Upper-Age Limit On Admission To LLB Courses Withdrawn: BCI Tells Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-bci-resolves-to-withdraw-upper-age-restriction-on-admission-to-3-year-and-5-year-law-programmes-557653
 
-[Read on Telegram](https://t.me/livelawindia/124068)
-
----
-### 2026-11-06T05:32:43+00:00
-Karnataka High Court Quashes Case Over Social Media Post Linking Rahul Gandhi With Pakistani Army Officer
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-case-against-man-shared-objectionable-photo-rahul-gandhi-557580
-
-[Read on Telegram](https://t.me/livelawindia/124069)
+[Read on Telegram](https://t.me/livelawindia/124103)
 
 ---
-### 2026-11-06T05:33:13+00:00
-Kerala Law Academy Invites Papers For 33rd International Seminar On Good Governance And Artificial Intelligence In The Digital Era
-https://www.livelaw.in/lawschool/seminars/kerala-law-academy-invites-papers-for-33rd-international-seminar-on-good-governance-and-artificial-intelligence-in-the-digital-era-557591
+### 2026-11-06T09:44:54+00:00
+Delhi High Court Directs 'Doosra' Makers To Add Disclaimer Stating Film Doesn't Have Sourav Ganguly's Consent To Use His Name
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-directs-doosra-makers-to-add-disclaimer-stating-film-doesnt-have-sourav-gangulys-consent-to-use-his-name-557655
 
-[Read on Telegram](https://t.me/livelawindia/124070)
-
----
-### 2026-11-06T05:42:53+00:00
-Intervening Termination Won't Disentitle Employees From Regularisation If They Complete 10 Years' Service: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-slams-state-practice-periodic-appointments-avoid-regularization-557581
-
-[Read on Telegram](https://t.me/livelawindia/124071)
+[Read on Telegram](https://t.me/livelawindia/124104)
 
 ---
-### 2026-11-06T05:45:54+00:00
-Takedown Notices Sent To IFF, SFLC Were Fake; Complaint Filed Against Impostor: X Corp Tells Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/takedown-notices-sent-to-iff-sflc-were-fake-complaint-filed-against-impostor-x-corp-tells-delhi-high-court-557595
+### 2026-11-06T09:47:34+00:00
+Kerala High Court Orders Police To Protect Journalist Facing Death Threats After Program On Islamic Scholar's Remarks On Women Rights
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-protection-journalist-big-tv-aparna-kurup-kanthapuram-remarks-557651
 
-[Read on Telegram](https://t.me/livelawindia/124072)
+[Read on Telegram](https://t.me/livelawindia/124105)
 
 ---
-### 2026-11-06T05:52:24+00:00
-NEET PG In-Service Quota: MP High Court Issues Notice On Plea Challenging Exclusion Of Central PSU Doctors From 30% Quota
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-petition-challenging-definition-of-in-service-category-mp-chikitsa-shiksha-pravesh-niyam-557592
+### 2026-11-06T10:26:25+00:00
+Karnataka High Court Quashes Case Against RTI Activist Snehamayi Krishna Booked For Shouting At Govt Official
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-case-rti-activist-snehamayi-krishna-557660
 
-[Read on Telegram](https://t.me/livelawindia/124073)
+[Read on Telegram](https://t.me/livelawindia/124106)
+
+---
+### 2026-11-06T10:38:05+00:00
+Voluntary Discharge From Service Entails Forfeiture Of Past Service, Pension Benefit Cannot Be Invoked: Meghalaya High Court
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-voluntary-discharge-service-entails-forfeiture-past-service-557553
+
+[Read on Telegram](https://t.me/livelawindia/124107)
+
+---
+### 2026-11-06T11:44:35+00:00
+Delhi High Court Exempts NCR-Based  Court Staff, Lawyers From Winter Ban On Non-BS-VI Vehicles
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-exempts-ncr-based-court-staff-lawyers-from-winter-ban-on-non-bs-vi-vehicles-557670
+
+[Read on Telegram](https://t.me/livelawindia/124108)
+
+---
+### 2026-11-06T11:56:15+00:00
+Govt Servants Getting Lifelong Pension, But Where Is Their Accountability? Justice BV Nagarathna
+https://www.livelaw.in/top-stories/supreme-court-justice-bv-nagarathna-punjab-chief-secretary-freebies-government-servants-privileged-class-must-recruit-on-contract-basis-557672
+
+[Read on Telegram](https://t.me/livelawindia/124109)
+
+---
+### 2026-11-06T11:59:05+00:00
+Delhi Women Safety | Supreme Court Grants Union Government Time To File A 'Meaningful' Reply
+https://www.livelaw.in/news-updates/supreme-court-grants-union-government-file-meaningful-reply-557673
+
+[Read on Telegram](https://t.me/livelawindia/124110)
+
+---
+### 2026-11-06T12:06:25+00:00
+2026 LiveLaw (SC) 1142 | Union of India v. Rohith Nathan and Anr.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1142-union-of-india-v-rohith-nathan-and-anr-557675
+
+[Read on Telegram](https://t.me/livelawindia/124111)
+
+---
+### 2026-11-06T12:12:45+00:00
+The Only CPC Course You Need! | Learn Civil Litigation with Justice K. Kannan
+https://www.livelaw.in/videos/cpc-civil-procedure-code-livelaw-livelaw-academy-law-students-advocates-legal-education-litigation-557676
+
+[Read on Telegram](https://t.me/livelawindia/124112)
+
+---
+### 2026-11-06T13:16:16+00:00
+Delhi High Court Decrees Amitabh Bachchan's Personality Rights Suit Against Multiple Defendants
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-decrees-amitabh-bachchans-personality-rights-suit-against-multiple-defendants-557680
+
+[Read on Telegram](https://t.me/livelawindia/124113)
+
+---
+### 2026-11-06T13:24:16+00:00
+National Book Trust Qualifies As 'State' Due To Deep And Pervasive Government Control : Supreme COurt
+https://www.livelaw.in/supreme-court/national-book-trust-qualifies-as-state-due-to-deep-and-pervasive-government-control-supreme-court-557681
+
+[Read on Telegram](https://t.me/livelawindia/124114)
+
+---
+### 2026-11-06T13:25:36+00:00
+2026 LiveLaw (SC) 1143 | THE CHAIRMAN NATIONAL BOOK TRUST INDIA & ANR. VERSUS AR ABDUL GAFFAR & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1143-the-chairman-national-book-trust-india-anr-versus-ar-abdul-gaffar-ors-557682
+
+[Read on Telegram](https://t.me/livelawindia/124115)
 
 ---
