@@ -1,6 +1,30 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-06T16:03:19+00:00*
+*Last Updated: 2026-11-07T05:52:57+00:00*
+
+---
+
+### 2026-11-07T05:52:57+00:00
+THOTA| Doctor Authorised By Appropriate Authority Through One Hospital Can Perform Emergency Transplant At Another Without Fresh Authority: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/dr-pradeep-krishna-rv-v-dr-sunil-shenvi-writ-petition-no-33361-of-2025-gm-res-transplantation-of-human-organs-and-tissues-act-1625324
+
+[Source Link](https://t.me/verdictumlegalupdates/30122)
+
+---
+
+### 2026-11-07T05:13:16+00:00
+Uncommunicated Adverse Entries Or Below-Benchmark Gradings May Be Considered For Ascertaining Compulsory Retirement: Supreme Court
+https://www.verdictum.in/supreme-court/chatur-singh-dhruw-v-the-state-of-chhattisgarh-2026-insc-1205-adverse-entries-compulsory-retirement-1625317
+
+[Source Link](https://t.me/verdictumlegalupdates/30121)
+
+---
+
+### 2026-11-07T04:32:55+00:00
+Authorities Can't Pass Orders Solely On Panel Counsel’s Opinion; Legal Advice Can't Replace Decision Making Process: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/sangamma-v-the-manager-rajiv-gandhi-vasati-abhivrudhi-nigama-2026khc-d16824-panel-counsels-opinion-1625301
+
+[Source Link](https://t.me/verdictumlegalupdates/30120)
 
 ---
 
@@ -137,30 +161,6 @@ De-Panelment Of Advocate Is Not Defamation; Resulting Financial Loss Is Not Comp
 https://www.verdictum.in/patna-high-court/assistant-general-manager-state-bank-of-india-and-others-v-mantosh-prasad-sinha-1625265
 
 [Source Link](https://t.me/verdictumlegalupdates/30103)
-
----
-
-### 2026-11-06T06:32:10+00:00
-No Distinction Between “Law Graduates” And “Candidates”: Bombay High Court Upholds Bar On Fresh Law Graduates Applying For Civil Judge (Junior Division) Exam
-https://www.verdictum.in/bombay-high-court/satish-maulyawan-patole-v-state-of-maharashtra-2026bhc-as45143-db-civil-judge-junior-division-exam-1625257
-
-[Source Link](https://t.me/verdictumlegalupdates/30102)
-
----
-
-### 2026-11-06T06:02:49+00:00
-Delhi High Court: Customs Can Examine Whether Third-Party Remittances In Bank Accounts Are Genuine Sale Proceeds For Drawback
-https://www.verdictum.in/delhi-high-court/commissioner-of-customs-export-v-ms-gd-manglam-exim-pvt-ltd-now-ms-welldone-exim-pvt-ltd-2026dhc9812-db-cestat-order-rs-67-crore-drawback-case-1625254
-
-[Source Link](https://t.me/verdictumlegalupdates/30101)
-
----
-
-### 2026-11-06T05:33:08+00:00
-Elected Representative Raising Concerns Of Minorities Not An Offence: Allahabad High Court Refuses To Order FIR Against Rahul Gandhi
-https://www.verdictum.in/allahabad-high-court/nageshwar-mishra-and-another-v-state-of-up-and-another-2026ahc230511-1625251
-
-[Source Link](https://t.me/verdictumlegalupdates/30100)
 
 ---
 
