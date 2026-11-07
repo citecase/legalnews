@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-07T13:12:41+00:00*
+*Last Updated: 2026-11-07T14:32:43+00:00*
+
+---
+
+### 2026-11-07T14:32:43+00:00
+Fertilisers and Chemicals Travancore Ltd (FACT) Invites Applications For Post Of Officer (Legal Services)
+https://www.verdictum.in/job-updates/fertilisers-and-chemicals-travancore-ltd-1625360
+
+[Source Link](https://t.me/verdictumlegalupdates/30135)
+
+---
+
+### 2026-11-07T13:53:02+00:00
+Foreigner Without Valid Visa Cannot Seek Release Even After Acquittal While Foreigners Act Movement Restriction Order Stands: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/mohammed-fahad-hi-alias-mohammed-koya-v-the-state-of-karnataka-and-others-1625359
+
+[Source Link](https://t.me/verdictumlegalupdates/30134)
 
 ---
 
@@ -145,22 +161,6 @@ Delete Prohibited List Of Lands Maintained In National Generic Document Registra
 https://www.verdictum.in/jharkhand-high-court/amit-ranjan-v-the-state-of-jharkhand-2026jhhc32512-prohibited-list-lands-document-registration-1625297
 
 [Source Link](https://t.me/verdictumlegalupdates/30116)
-
----
-
-### 2026-11-06T13:32:45+00:00
-“Final Quietus” To Bhakra-Beas Power Dispute: Supreme Court Directs Punjab & Haryana To Supply 11,973 MU Energy Arrears To Himachal Pradesh
-https://www.verdictum.in/supreme-court/2026-insc-1200-state-of-himachal-pradesh-v-union-of-india-1625296
-
-[Source Link](https://t.me/verdictumlegalupdates/30115)
-
----
-
-### 2026-11-06T13:03:04+00:00
-Manipur High Court Calls For Early Notification Of Mediation Act Provisions Governing Settlement Agreements And Their Enforcement
-https://www.verdictum.in/manipur-high-court/state-of-manipur-and-others-v-konsam-ningol-khagembam-ongbi-rebina-devi-and-another-2026mnhc260-db-1625288
-
-[Source Link](https://t.me/verdictumlegalupdates/30114)
 
 ---
 
