@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-06T15:30:06+00:00*
+*Last Updated: 2026-11-07T06:32:46+00:00*
 
 ---
 
-### 2026-11-06T15:30:06+00:00
-'Political Satire Can't Attack Dignity': Delhi High Court Orders Takedown Of AAP's Deepfake Videos Targeting CM Rekha Gupta
-https://www.livelaw.in/high-court/delhi-high-court/political-satire-cant-attack-dignity-delhi-high-court-orders-takedown-of-aaps-deepfake-videos-targeting-cm-rekha-gupta-557688
+### 2026-11-07T06:32:46+00:00
+Pakistani Man Acquitted In NIA Case Can't Be Released Till Movement Restriction Order Under Foreigners Act Subsists: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-habeas-corpus-plea-pakistani-national-557724
 
-[Read on Telegram](https://t.me/livelawindia/124120)
-
----
-### 2026-11-06T16:16:56+00:00
-Supreme Court Dismisses Plea Challenging Allahabad HC's Senior Designations Conferred In 2019
-https://www.livelaw.in/top-stories/supreme-court-dismisses-plea-challenging-allahabad-hcs-senior-designations-conferred-in-2019-557690
-
-[Read on Telegram](https://t.me/livelawindia/124121)
+[Read on Telegram](https://t.me/livelawindia/124148)
 
 ---
-### 2026-11-06T16:24:56+00:00
-Kerala High Court Expresses Anguish Over Death of 28-Year-Old Woman, Calls for Accountability Over Lack of Pedestrian Pathways
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-anguish-over-death-of-28-year-old-woman-557691
+### 2026-11-07T07:02:56+00:00
+Migrants Cannot Claim SC/ST Reservation Benefits In Rajasthan Based On Caste Status In Home State: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-migrants-cannot-claim-sc-st-reservation-benefits-557731
 
-[Read on Telegram](https://t.me/livelawindia/124122)
-
----
-### 2026-11-06T16:26:56+00:00
-Supreme Court Orders SIT Probe Into Illegal Gravel Mining In Rajasthan's Luni, Jojari And Bandi Rivers, Bars New Industries Near River Ecosystem
-https://www.livelaw.in/top-stories/supreme-court-orders-sit-probe-into-illegal-gravel-mining-in-rajasthans-luni-jojari-and-bandi-rivers-bars-new-industries-near-river-ecosystem-557692
-
-[Read on Telegram](https://t.me/livelawindia/124123)
+[Read on Telegram](https://t.me/livelawindia/124149)
 
 ---
-### 2026-11-06T16:27:56+00:00
-2026 LiveLaw (SC) 1145 | In Re: 2 Million Lives At Risk, Contamination In Jojari River, Rajasthan
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1145-in-re-2-million-lives-at-risk-contamination-in-jojari-river-rajasthan-557693
+### 2026-11-07T07:32:26+00:00
+Medical Student's Original Certificates Are Exclusive Property, Retention By College Over Unpaid Fees Is Unlawful: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-directs-medical-college-return-original-certificates-withheld-over-unpaid-fees-557735
 
-[Read on Telegram](https://t.me/livelawindia/124124)
-
----
-### 2026-11-06T16:31:56+00:00
-Criminal Defamation Complaint Filed Against Dhirendra Shastri In Agra Court Over Remarks On Lord Krishna
-https://www.livelaw.in/news-updates/dhirendra-shastri-criminal-defamation-complaint-lord-krishna-remarks-557695
-
-[Read on Telegram](https://t.me/livelawindia/124125)
+[Read on Telegram](https://t.me/livelawindia/124150)
 
 ---
-### 2026-11-06T18:22:27+00:00
-LiveLaw High Courts Daily Highlights: November 06, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-06-2026-557689
+### 2026-11-07T07:51:26+00:00
+After Gorkha Association Says It Won't Pursue Case, Sikkim High Court Quashes Non-Compoundable BNS Charges Against Two Men
+https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-quashes-non-compoundable-bns-charges-against-two-men-557756
 
-[Read on Telegram](https://t.me/livelawindia/124126)
-
----
-### 2026-11-07T03:06:26+00:00
-'Civil Liberties Situation In UP Is Shameful; Police Have Little Regard For Citizens' Rights', Says Allahabad High Court
-https://www.livelaw.in/top-stories/allahabad-hc-up-civil-liberties-police-unlawful-detention-557705
-
-[Read on Telegram](https://t.me/livelawindia/124127)
+[Read on Telegram](https://t.me/livelawindia/124151)
 
 ---
-### 2026-11-07T03:46:16+00:00
-Govt Teachers Can Be Deployed As BLOs For Election-Related Duties, Including SIR Work: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-government-teachers-blo-electoral-roll-revision-rte-act-557706
+### 2026-11-07T07:55:47+00:00
+Tripura High Court Directs NIT Agartala To Pay Over ₹85 Lakh Towards Pension, Leave Salary And Gratuity To Former Employee
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-directs-nit-agartala-pay-towards-pension-leave-salary-gratuity-557761
 
-[Read on Telegram](https://t.me/livelawindia/124128)
-
----
-### 2026-11-07T04:17:26+00:00
-TN Government Discontinues High-Level Committee On Union-State Relations Headed By Justice Kurian Joseph
-https://www.livelaw.in/news-updates/tn-government-discontinues-high-level-committee-union-state-relation-justice-kurian-joseph-557708
-
-[Read on Telegram](https://t.me/livelawindia/124129)
+[Read on Telegram](https://t.me/livelawindia/124152)
 
 ---
-### 2026-11-07T04:22:06+00:00
-PMLA | ED Must Furnish Relied-Upon Documents To Accused At Pre-Cognizance Stage Under S. 223 BNSS: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-section-223-bnss-accused-legal-right-documents-relied-ed-pmla-proceedings-557710
+### 2026-11-07T07:57:47+00:00
+Relatives' Antecedents Cannot Disqualify: J&K&L High Court On Non-Appointment Of Lambardar Candidate After CID Report Linked Family To Militancy
+https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-quashes-appointment-of-lambardar-after-cid-report-links-applicants-family-to-militancy-says-relatives-antecedents-cannot-disqualify-candidate-557751
 
-[Read on Telegram](https://t.me/livelawindia/124130)
-
----
-### 2026-11-07T04:32:26+00:00
-Chargesheet Filed One Day After 180-Day Deadline? Orissa High Court Grants Default Bail In NDPS Case
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-accused-granted-default-bail-prosecution-files-chargesheet-557712
-
-[Read on Telegram](https://t.me/livelawindia/124131)
+[Read on Telegram](https://t.me/livelawindia/124153)
 
 ---
-### 2026-11-07T04:39:26+00:00
-Call For Papers; NLU Odisha Invites Submissions For Human Rights Law Journal, Volume XII
-https://www.livelaw.in/lawschool/call-for-papers/nlu-odisha-invites-submissions-human-rights-law-journal-volume-xii-557716
+### 2026-11-07T07:59:27+00:00
+Fake Freedom Fighter Quota Certificates In NEET-UG Counselling: Uttarakhand High Court Directs Verification, Action Against Erring Officials
+https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-directs-formation-verification-committee-action-erring-officials-557765
 
-[Read on Telegram](https://t.me/livelawindia/124132)
-
----
-### 2026-11-07T04:47:26+00:00
-Looking Inappropriately At Woman Does Not Amount To Demand For Sexual Favours In Absence Of Evidence: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-looking-inappropriately-woman-amount-demand-sexual-favours-557713
-
-[Read on Telegram](https://t.me/livelawindia/124133)
+[Read on Telegram](https://t.me/livelawindia/124154)
 
 ---
-### 2026-11-07T04:52:26+00:00
-J&K&L High Court Denies Default Bail To UAPA Accused; Holds Charge-Sheet Filed Within 180 Days Extinguishes Right To Statutory Bail
-https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-denies-default-bail-to-uapa-accused-holds-charge-sheet-filed-within-180-days-extinguished-right-to-statutory-bail-557704
+### 2026-11-07T08:01:47+00:00
+Advocates' Strike Not An Exceptional Ground To Extend 120-Day Deadline For Filing Written Statement: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/advocates-suspension-of-work-not-an-exceptional-ground-to-extend-120-day-deadline-for-filing-written-statement-jk-high-court-557768
 
-[Read on Telegram](https://t.me/livelawindia/124134)
-
----
-### 2026-11-07T04:55:06+00:00
-Former Supreme Court Judge Justice Rajesh Bindal Appointed NCLAT Chairperson
-https://www.livelaw.in/top-stories/former-supreme-court-judge-justice-rajesh-bindal-appointed-nclat-chairperson-557720
-
-[Read on Telegram](https://t.me/livelawindia/124135)
+[Read on Telegram](https://t.me/livelawindia/124155)
 
 ---
-### 2026-11-07T04:57:26+00:00
-Allegations Of Outraging Modesty Of Woman Can Be Sustained Even If Victim Is Transgender Woman: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/outraging-modesty-woman-charge-victim-transgender-woman-s75-bns-557717
+### 2026-11-07T08:02:47+00:00
+Rajasthan High Court Says State Need Not Be Impleaded In Cases Investigated By CBI, NCB, Other Central Agencies
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-directs-discontinuation-routine-impleadment-state-557734
 
-[Read on Telegram](https://t.me/livelawindia/124136)
-
----
-### 2026-11-07T05:02:06+00:00
-Messi Visit Row: Kerala High Court Issues Notice On Plea To Quash FIR Against Reporter TV MD Anto Augustine
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-notice-fir-quash-reporter-t-v-anto-augustine-messi-557721
-
-[Read on Telegram](https://t.me/livelawindia/124137)
+[Read on Telegram](https://t.me/livelawindia/124156)
 
 ---
-### 2026-11-07T05:12:56+00:00
-Manamadurai Custodial Death: Madras High Court Upholds Remand Of Four Accused Cops, Sets 9-Month Trial Deadline
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-manamadurai-custodial-death-remand-challenge-accused-cop-dismissed-557718
+### 2026-11-07T08:10:47+00:00
+Consultant (Legal) Vacancy At Jawaharlal Institute Of Postgraduate Medical Education And Research
+https://www.livelaw.in/job-updates/consultant-legal-vacancy-at-jawaharlal-institute-of-postgraduate-medical-education-and-research-557773
 
-[Read on Telegram](https://t.me/livelawindia/124138)
+[Read on Telegram](https://t.me/livelawindia/124157)
 
 ---
-### 2026-11-07T05:22:56+00:00
-Karnataka High Court Refuses To Quash Criminal Defamation Case Against Maneka Gandhi, But Stays Trial Court Summons For 2 Weeks
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-maneka-gandhi-plea-quash-criminal-proceedings-defamation-case-557725
+### 2026-11-07T08:12:07+00:00
+Legal Researcher Vacancy At Rajasthan High Court, Jodhpur
+https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-rajasthan-high-court-jodhpur-557774
 
-[Read on Telegram](https://t.me/livelawindia/124139)
+[Read on Telegram](https://t.me/livelawindia/124158)
+
+---
+### 2026-11-07T08:12:57+00:00
+Empanelment Of Advocates At Security Printing And Minting Corporation Of India Limited
+https://www.livelaw.in/job-updates/empanelment-of-advocates-at-security-printing-and-minting-corporation-of-india-limited-557776
+
+[Read on Telegram](https://t.me/livelawindia/124159)
+
+---
+### 2026-11-07T08:13:57+00:00
+Manager (Law) And Assistant Manager (Law) Vacancy At Tamilnad Mercantile Bank Limited
+https://www.livelaw.in/job-updates/manager-law-and-assistant-manager-law-vacancy-at-tamilnad-mercantile-bank-limited-557777
+
+[Read on Telegram](https://t.me/livelawindia/124160)
+
+---
+### 2026-11-07T08:32:37+00:00
+27-Year-Old Status Quo Order Still Binding; Rajasthan High Court Holds Respondents Guilty Of Contempt
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-holds-respondents-guilty-contempt-violating-1999order-557736
+
+[Read on Telegram](https://t.me/livelawindia/124161)
+
+---
+### 2026-11-07T08:52:37+00:00
+J&K&L High Court Orders Compensation For Owners Whose Land Was Wrongly Declared As Evacuee Property After 45 Years
+https://www.livelaw.in/high-court/jammu-kashmir/after-45-years-jk-hc-orders-market-rate-compensation-for-rajouri-owners-whose-land-was-wrongly-declared-evacuee-property-and-allotted-to-a-displaced-person-557753
+
+[Read on Telegram](https://t.me/livelawindia/124162)
+
+---
+### 2026-11-07T09:02:47+00:00
+AP High Court Restores Specific Performance Suit; Says Disputed Issues Of Sale Agreement, Identification Of Land Requires Trial
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-restores-specific-performance-suit-disputed-questions-decided-ordervii-rule11-cpc-557738
+
+[Read on Telegram](https://t.me/livelawindia/124163)
+
+---
+### 2026-11-07T09:32:27+00:00
+Campus Election Row: Kerala High Court Asks Sree Sankaracharya University To Produce Observer's Email Cited To Postpone Polls
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sree-sankaracharya-university-email-impartial-observer-postpone-campus-union-elections-557740
+
+[Read on Telegram](https://t.me/livelawindia/124164)
+
+---
+### 2026-11-07T11:52:58+00:00
+Meghalaya High Court Quashes POCSO Case Against Man, Cites Survivor's No-Objection As They Live Together With Their 6-Year-Old Son
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-quashes-pocso-case-citing-survivor-noobjection-quashing-live-together-557763
+
+[Read on Telegram](https://t.me/livelawindia/124165)
+
+---
+### 2026-11-07T12:07:18+00:00
+Judicial Recruitment | Deemed 1-Year Practice Exemption Restricted To Law Graduates Who Passed Out Before August 22, 2025: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/deemed-practice-exemption-restricted-law-graduates-557758
+
+[Read on Telegram](https://t.me/livelawindia/124166)
+
+---
+### 2026-11-07T12:07:58+00:00
+J&K&L High Court Denies Bail To Juvenile Tried As Adult In Terror Case; Says Alleged Links With JeM Handler Raise Concerns Of Danger
+https://www.livelaw.in/high-court/jammu-kashmir/jkl-high-court-denies-bail-to-juvenile-tried-as-adult-in-terror-case-says-alleged-links-with-jem-handler-raise-concerns-of-moral-psychological-danger-557755
+
+[Read on Telegram](https://t.me/livelawindia/124167)
 
 ---
