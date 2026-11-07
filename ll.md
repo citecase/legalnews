@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-07T06:32:46+00:00*
+*Last Updated: 2026-11-07T07:59:27+00:00*
 
 ---
 
-### 2026-11-07T06:32:46+00:00
-Pakistani Man Acquitted In NIA Case Can't Be Released Till Movement Restriction Order Under Foreigners Act Subsists: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-habeas-corpus-plea-pakistani-national-557724
-
-[Read on Telegram](https://t.me/livelawindia/124148)
-
----
-### 2026-11-07T07:02:56+00:00
-Migrants Cannot Claim SC/ST Reservation Benefits In Rajasthan Based On Caste Status In Home State: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-migrants-cannot-claim-sc-st-reservation-benefits-557731
-
-[Read on Telegram](https://t.me/livelawindia/124149)
-
----
-### 2026-11-07T07:32:26+00:00
-Medical Student's Original Certificates Are Exclusive Property, Retention By College Over Unpaid Fees Is Unlawful: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-directs-medical-college-return-original-certificates-withheld-over-unpaid-fees-557735
-
-[Read on Telegram](https://t.me/livelawindia/124150)
-
----
-### 2026-11-07T07:51:26+00:00
-After Gorkha Association Says It Won't Pursue Case, Sikkim High Court Quashes Non-Compoundable BNS Charges Against Two Men
-https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-quashes-non-compoundable-bns-charges-against-two-men-557756
-
-[Read on Telegram](https://t.me/livelawindia/124151)
-
----
-### 2026-11-07T07:55:47+00:00
-Tripura High Court Directs NIT Agartala To Pay Over ₹85 Lakh Towards Pension, Leave Salary And Gratuity To Former Employee
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-directs-nit-agartala-pay-towards-pension-leave-salary-gratuity-557761
-
-[Read on Telegram](https://t.me/livelawindia/124152)
-
----
-### 2026-11-07T07:57:47+00:00
-Relatives' Antecedents Cannot Disqualify: J&K&L High Court On Non-Appointment Of Lambardar Candidate After CID Report Linked Family To Militancy
-https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-quashes-appointment-of-lambardar-after-cid-report-links-applicants-family-to-militancy-says-relatives-antecedents-cannot-disqualify-candidate-557751
-
-[Read on Telegram](https://t.me/livelawindia/124153)
-
----
 ### 2026-11-07T07:59:27+00:00
 Fake Freedom Fighter Quota Certificates In NEET-UG Counselling: Uttarakhand High Court Directs Verification, Action Against Erring Officials
 https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-directs-formation-verification-committee-action-erring-officials-557765
@@ -142,5 +100,47 @@ J&K&L High Court Denies Bail To Juvenile Tried As Adult In Terror Case; Says All
 https://www.livelaw.in/high-court/jammu-kashmir/jkl-high-court-denies-bail-to-juvenile-tried-as-adult-in-terror-case-says-alleged-links-with-jem-handler-raise-concerns-of-moral-psychological-danger-557755
 
 [Read on Telegram](https://t.me/livelawindia/124167)
+
+---
+### 2026-11-07T12:47:29+00:00
+Fixed Sentence Of 20 Years Can Ordinarily Be Suspended During Appeal: Sikkim High Court Grants Bail To POCSO Convict
+https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-grants-bail-pocso-convict-557757
+
+[Read on Telegram](https://t.me/livelawindia/124168)
+
+---
+### 2026-11-07T14:12:29+00:00
+"Ministers Cannot Arrogate Functions Entrusted To Statutory Authorities": Bombay High Court Quashes Minister's Order Converting Land
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-quashes-state-minister-order-converting-devsthan-inam-land-557759
+
+[Read on Telegram](https://t.me/livelawindia/124169)
+
+---
+### 2026-11-07T15:12:39+00:00
+Isolated Sales Invoices Cannot Establish Territorial Jurisdiction In Patent Infringement Suit: HP High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-isolated-sales-invoices-establish-territorial-jurisdiction-patent-infringement-suit-557766
+
+[Read on Telegram](https://t.me/livelawindia/124170)
+
+---
+### 2026-11-07T15:52:29+00:00
+Woman Attacks Lady Judge, Prosecutor & Inspector With Iron Rod In Odisha's Court Premises
+https://www.livelaw.in/news-updates/woman-attacks-lady-judge-prosecutor-inspector-iron-rod-odisha-court-premises-557803
+
+[Read on Telegram](https://t.me/livelawindia/124171)
+
+---
+### 2026-11-07T16:03:09+00:00
+Kerala High Court Allows Digital News Platform NoCap's Editor To Operate Facebook Page After Deleting Comments Flagged By Police
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-reinstate-facebook-page-digital-news-platform-nocap-557805
+
+[Read on Telegram](https://t.me/livelawindia/124172)
+
+---
+### 2026-11-07T16:49:20+00:00
+72-Year-Old Landowner's 15-Year Legal Battle: J&K High Court Quashes Orders Setting Aside His Land Mutation Without Examining Limitation
+https://www.livelaw.in/high-court/jammu-kashmir/72-year-old-landowners-15-year-legal-battle-jk-high-court-quashes-orders-setting-aside-his-land-mutation-without-examining-limitation-557811
+
+[Read on Telegram](https://t.me/livelawindia/124173)
 
 ---
