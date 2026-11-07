@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-07T05:52:57+00:00*
+*Last Updated: 2026-11-07T13:12:41+00:00*
+
+---
+
+### 2026-11-07T13:12:41+00:00
+AI-Generated Video Attacks Dignity Of Woman: Delhi High Court Orders Takedown Of AAP’s Videos Portraying CM Rekha Gupta As Liquor Vendor
+https://www.verdictum.in/delhi-high-court/smt-rekha-gupta-v-aam-aadmi-party-ai-generated-videos-cm-liquor-vendor-1625358
+
+[Source Link](https://t.me/verdictumlegalupdates/30133)
+
+---
+
+### 2026-11-07T12:32:20+00:00
+Karnataka HC Refuses To Quash Case Against Man Accused Of Derogatory Facebook Post On Home Minister Priyank Kharge & B R Ambedkar, Imposes ₹25K Cost
+https://www.verdictum.in/karnataka-high-court/mahesha-k-c-mahesh-gowda-v-state-of-karnataka-2026khc60852-facebook-br-ambedkar-priyank-kharge-1625367
+
+[Source Link](https://t.me/verdictumlegalupdates/30132)
+
+---
+
+### 2026-11-07T11:52:59+00:00
+Subsequent Breach Of Promise By Donee Is Not Fraud To Extend Limitation For Setting Aside Gift: Supreme Court
+https://www.verdictum.in/supreme-court/d-kalidasreddy-v-chennamma-k-bharathi-2026-insc-1209-daughters-1997-suit-challenging-a-1974-gift-deed-1625356
+
+[Source Link](https://t.me/verdictumlegalupdates/30131)
+
+---
+
+### 2026-11-07T11:12:58+00:00
+Excuse Of CCTV Malfunctioning Unavailable To Police In Unlawful Detention Case: Allahabad HC Orders Entry In SHO's Service Record
+https://www.verdictum.in/allahabad-high-court/2026ahc228441-db-cctv-malfunctioning-police-unlawful-detention-1625355
+
+[Source Link](https://t.me/verdictumlegalupdates/30130)
+
+---
+
+### 2026-11-07T10:33:03+00:00
+Condition To Maintain Senior Citizen Need Not Be Expressly Recorded In Gift Deed But Must Be Proved To Seek Its Cancellation: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/narasimhamurthy-n-v-the-assistant-commissioner-2026khc60916-db-1625349
+
+[Source Link](https://t.me/verdictumlegalupdates/30129)
+
+---
+
+### 2026-11-07T09:53:02+00:00
+Compensation Cannot Be Awarded On Pittance: Delhi High Court Says Vegetative-State MACT Claims Need Reasonable Estimation, Not Proved Bills Alone
+https://www.verdictum.in/delhi-high-court/icici-lombard-general-insurance-co-ltd-v-parth-sareen-2026dhc9918-enhances-for-a-21-year-old-left-in-a-vegetative-state-1625344
+
+[Source Link](https://t.me/verdictumlegalupdates/30128)
+
+---
+
+### 2026-11-07T09:12:21+00:00
+Wife’s Pursuit Of Higher Education Or Employment Is A Right, Not Husband’s Favour: Jharkhand High Court
+https://www.verdictum.in/jharkhand-high-court/rd-v-dk-2026jhhc32647-db-woman-education-after-marriage-divorce-cruelty-1625341
+
+[Source Link](https://t.me/verdictumlegalupdates/30127)
+
+---
+
+### 2026-11-07T08:33:00+00:00
+Mere Cultivation Without Residence In Forest Does Not Confer Forest Dweller Status Under FRA: Supreme Court
+https://www.verdictum.in/supreme-court/a-john-kennedy-v-state-of-tamil-nadu-2026-insc-1204-forest-rights-act-1625339
+
+[Source Link](https://t.me/verdictumlegalupdates/30126)
+
+---
+
+### 2026-11-07T07:52:39+00:00
+Registration As Society Does Not Take Body Outside Article 12 Constitution If Government Control Is Pervasive: Supreme Court Holds National Book Trust Is “State”
+https://www.verdictum.in/supreme-court/the-chairman-national-book-trust-india-v-ar-abdul-gaffar-2026-insc-1202-national-book-trust-is-state-1625336
+
+[Source Link](https://t.me/verdictumlegalupdates/30125)
+
+---
+
+### 2026-11-07T07:12:18+00:00
+Balance Sheets Acknowledging Debt Give Rise To Fresh Period Of Limitation: Supreme Court Reiterates
+https://www.verdictum.in/supreme-court/yusuf-v-vigyapan-loke-delhi-advertising-cghs-ltd-2026-insc-1207-balance-sheets-debt-limitation-1625332
+
+[Source Link](https://t.me/verdictumlegalupdates/30124)
+
+---
+
+### 2026-11-07T06:32:38+00:00
+Miscellaneous Applications No Tool To Re-Hear Matters Already Decided: Supreme Court Clarifies Scope Of Judgment On Parents’ Salary & Status For UPSC OBC Claims
+https://www.verdictum.in/supreme-court/union-of-india-others-v-rohith-nathan-2026-insc-1201-miscellaneous-applications-upsc-obc-claim-1625327
+
+[Source Link](https://t.me/verdictumlegalupdates/30123)
 
 ---
 
@@ -73,94 +161,6 @@ Manipur High Court Calls For Early Notification Of Mediation Act Provisions Gove
 https://www.verdictum.in/manipur-high-court/state-of-manipur-and-others-v-konsam-ningol-khagembam-ongbi-rebina-devi-and-another-2026mnhc260-db-1625288
 
 [Source Link](https://t.me/verdictumlegalupdates/30114)
-
----
-
-### 2026-11-06T12:33:03+00:00
-28-Week-Old Foetus To Be Treated As Child: Punjab And Haryana High Court Enhances Motor Accident Compensation For Death Of Unborn Child
-https://www.verdictum.in/punjab-and-haryana-high-court/suresh-kumar-sethi-v-sanjeev-kumar-2026phhc196006-foetus-child-motor-accident-compensation-1625287
-
-[Source Link](https://t.me/verdictumlegalupdates/30113)
-
----
-
-### 2026-11-06T12:02:22+00:00
-Karnataka High Court Quashes Defamation Case Against Siddaramaiah, D.K. Shivakumar Over Advertisement Alleging Corruption In BJP Government
-https://www.verdictum.in/karnataka-high-court/siddaramaiah-v-bharatiya-janata-party-cw-karnataka-pradesh-congress-committee-and-v-bharatiya-janata-party-1625283
-
-[Source Link](https://t.me/verdictumlegalupdates/30112)
-
----
-
-### 2026-11-06T11:32:01+00:00
-BCI Withdraws Upper Age Limit For 3-Year, 5-Year LLB Courses; Supreme Court Disposes Of Challenge As Infructuous
-https://www.verdictum.in/supreme-court/bci-withdraws-upper-age-limit-for-3-year-5-year-llb-courses-1625282
-
-[Source Link](https://t.me/verdictumlegalupdates/30111)
-
----
-
-### 2026-11-06T11:02:20+00:00
-J&K And Ladakh High Court Seeks Category-Wise Details Of Fire Stations Required & Functional Under SFAC Norms
-https://www.verdictum.in/jammu-ladakh-high-court/mohd-rahoof-khan-v-union-territory-of-jk-wpcpil-132024-sfac-norms-on-firefighting-policy-1625280
-
-[Source Link](https://t.me/verdictumlegalupdates/30110)
-
----
-
-### 2026-11-06T10:32:19+00:00
-Supreme Court Refuses To Suspend Tarun Tejpal's 10-Year Sentence In 2013 Rape Case
-https://www.verdictum.in/supreme-court/tarun-tejpals-10-year-sentence-in-2013-rape-case-1625281
-
-[Source Link](https://t.me/verdictumlegalupdates/30109)
-
----
-
-### 2026-11-06T10:02:38+00:00
-Rashness & Negligence Are Not The Same Things: Supreme Court Quashes Criminal Case Against School Management Over Pillar Collapse Death Of Student
-https://www.verdictum.in/supreme-court/matin-shankarrao-bhosale-v-state-of-maharashtra-2026-insc-1198-pillar-collapse-death-us-304a-ipc-1625278
-
-[Source Link](https://t.me/verdictumlegalupdates/30108)
-
----
-
-### 2026-11-06T09:32:39+00:00
-Rule 167(7) Of Central Motor Vehicles Rules Is Not Retrospective, Can’t Interdict Registration For Prior Unpaid Challans: Kerala High Court
-https://www.verdictum.in/kerala-high-court/t-n-arun-kumar-v-ministry-of-road-transport-and-highways-2026ker77134-motor-vehicle-registration-1625277
-
-[Source Link](https://t.me/verdictumlegalupdates/30107)
-
----
-
-### 2026-11-06T09:02:36+00:00
-Census Stayed Till April 2027, No Rollback Of Notifications; Registrar General To Decide Representations: Manipur High Court
-https://www.verdictum.in/manipur-high-court/the-kangleipak-students-association-v-union-of-india-2026mnhc259-db-manipur-census-1625268
-
-[Source Link](https://t.me/verdictumlegalupdates/30106)
-
----
-
-### 2026-11-06T08:22:55+00:00
-Breaking: Supreme Court Issues Show-Cause Notice To All KPCC Office Bearers In Suo Motu Contempt Case Over INC Kerala Post Against CJI Surya Kant
-https://www.verdictum.in/supreme-court/issues-show-cause-notice-kpcc-office-bearers-suo-motu-contempt-case-inc-kerala-post-against-cji-surya-kant-1625275
-
-[Source Link](https://t.me/verdictumlegalupdates/30105)
-
----
-
-### 2026-11-06T07:50:13+00:00
-Supreme Court Issues Notice To Prabir Purkayastha & NewsClick On ED’s Plea Against Order Quashing Money Laundering Case
-https://www.verdictum.in/supreme-court/issues-notice-on-eds-plea-delhi-high-court-quashing-newsclick-money-laundering-case-1625271
-
-[Source Link](https://t.me/verdictumlegalupdates/30104)
-
----
-
-### 2026-11-06T07:22:11+00:00
-De-Panelment Of Advocate Is Not Defamation; Resulting Financial Loss Is Not Compensable Under Defamation Law: Patna High Court
-https://www.verdictum.in/patna-high-court/assistant-general-manager-state-bank-of-india-and-others-v-mantosh-prasad-sinha-1625265
-
-[Source Link](https://t.me/verdictumlegalupdates/30103)
 
 ---
 
