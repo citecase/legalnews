@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-06T10:38:05+00:00*
+*Last Updated: 2026-11-06T15:30:06+00:00*
 
 ---
 
-### 2026-11-06T10:38:05+00:00
-Voluntary Discharge From Service Entails Forfeiture Of Past Service, Pension Benefit Cannot Be Invoked: Meghalaya High Court
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-voluntary-discharge-service-entails-forfeiture-past-service-557553
-
-[Read on Telegram](https://t.me/livelawindia/124107)
-
----
-### 2026-11-06T11:44:35+00:00
-Delhi High Court Exempts NCR-Based  Court Staff, Lawyers From Winter Ban On Non-BS-VI Vehicles
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-exempts-ncr-based-court-staff-lawyers-from-winter-ban-on-non-bs-vi-vehicles-557670
-
-[Read on Telegram](https://t.me/livelawindia/124108)
-
----
-### 2026-11-06T11:56:15+00:00
-Govt Servants Getting Lifelong Pension, But Where Is Their Accountability? Justice BV Nagarathna
-https://www.livelaw.in/top-stories/supreme-court-justice-bv-nagarathna-punjab-chief-secretary-freebies-government-servants-privileged-class-must-recruit-on-contract-basis-557672
-
-[Read on Telegram](https://t.me/livelawindia/124109)
-
----
-### 2026-11-06T11:59:05+00:00
-Delhi Women Safety | Supreme Court Grants Union Government Time To File A 'Meaningful' Reply
-https://www.livelaw.in/news-updates/supreme-court-grants-union-government-file-meaningful-reply-557673
-
-[Read on Telegram](https://t.me/livelawindia/124110)
-
----
-### 2026-11-06T12:06:25+00:00
-2026 LiveLaw (SC) 1142 | Union of India v. Rohith Nathan and Anr.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1142-union-of-india-v-rohith-nathan-and-anr-557675
-
-[Read on Telegram](https://t.me/livelawindia/124111)
-
----
-### 2026-11-06T12:12:45+00:00
-The Only CPC Course You Need! | Learn Civil Litigation with Justice K. Kannan
-https://www.livelaw.in/videos/cpc-civil-procedure-code-livelaw-livelaw-academy-law-students-advocates-legal-education-litigation-557676
-
-[Read on Telegram](https://t.me/livelawindia/124112)
-
----
-### 2026-11-06T13:16:16+00:00
-Delhi High Court Decrees Amitabh Bachchan's Personality Rights Suit Against Multiple Defendants
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-decrees-amitabh-bachchans-personality-rights-suit-against-multiple-defendants-557680
-
-[Read on Telegram](https://t.me/livelawindia/124113)
-
----
-### 2026-11-06T13:24:16+00:00
-National Book Trust Qualifies As 'State' Due To Deep And Pervasive Government Control : Supreme COurt
-https://www.livelaw.in/supreme-court/national-book-trust-qualifies-as-state-due-to-deep-and-pervasive-government-control-supreme-court-557681
-
-[Read on Telegram](https://t.me/livelawindia/124114)
-
----
-### 2026-11-06T13:25:36+00:00
-2026 LiveLaw (SC) 1143 | THE CHAIRMAN NATIONAL BOOK TRUST INDIA & ANR. VERSUS AR ABDUL GAFFAR & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1143-the-chairman-national-book-trust-india-anr-versus-ar-abdul-gaffar-ors-557682
-
-[Read on Telegram](https://t.me/livelawindia/124115)
-
----
-### 2026-11-06T14:33:16+00:00
-From Demise Charterer To Gratuitous Bailee: Termination, Repossession And Sister-Ship Arrest Under Admiralty Act
-https://www.livelaw.in/articles/demise-charterer-gratuitous-bailee-termination-repossession-sister-ship-arrest-admiralty-act-557516
-
-[Read on Telegram](https://t.me/livelawindia/124116)
-
----
-### 2026-11-06T14:58:56+00:00
-Commercial Crop Cultivation Cannot Be Recognized As Forest Right To Justify Presence In Forest Area : Supreme Court
-https://www.livelaw.in/supreme-court/commercial-crop-cultivation-cannot-be-recognized-as-forest-right-to-justify-presence-in-forest-area-supreme-court-557685
-
-[Read on Telegram](https://t.me/livelawindia/124117)
-
----
-### 2026-11-06T15:00:16+00:00
-2026 LiveLaw (SC) 1144 | A. John Kennedy & Ors. v. State of Tamil Nadu & Ors
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1144-a-john-kennedy-ors-v-state-of-tamil-nadu-ors-557686
-
-[Read on Telegram](https://t.me/livelawindia/124118)
-
----
-### 2026-11-06T15:01:17+00:00
-ECI's Instruction To Not Engage Children In Election Campaigns Has Statutory Force, Is Binding On Candidates: Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-eci-instruction-no-children-election-campaugn-statutory-force-557687
-
-[Read on Telegram](https://t.me/livelawindia/124119)
-
----
 ### 2026-11-06T15:30:06+00:00
 'Political Satire Can't Attack Dignity': Delhi High Court Orders Takedown Of AAP's Deepfake Videos Targeting CM Rekha Gupta
 https://www.livelaw.in/high-court/delhi-high-court/political-satire-cant-attack-dignity-delhi-high-court-orders-takedown-of-aaps-deepfake-videos-targeting-cm-rekha-gupta-557688
@@ -142,5 +51,96 @@ LiveLaw High Courts Daily Highlights: November 06, 2026
 https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-06-2026-557689
 
 [Read on Telegram](https://t.me/livelawindia/124126)
+
+---
+### 2026-11-07T03:06:26+00:00
+'Civil Liberties Situation In UP Is Shameful; Police Have Little Regard For Citizens' Rights', Says Allahabad High Court
+https://www.livelaw.in/top-stories/allahabad-hc-up-civil-liberties-police-unlawful-detention-557705
+
+[Read on Telegram](https://t.me/livelawindia/124127)
+
+---
+### 2026-11-07T03:46:16+00:00
+Govt Teachers Can Be Deployed As BLOs For Election-Related Duties, Including SIR Work: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-government-teachers-blo-electoral-roll-revision-rte-act-557706
+
+[Read on Telegram](https://t.me/livelawindia/124128)
+
+---
+### 2026-11-07T04:17:26+00:00
+TN Government Discontinues High-Level Committee On Union-State Relations Headed By Justice Kurian Joseph
+https://www.livelaw.in/news-updates/tn-government-discontinues-high-level-committee-union-state-relation-justice-kurian-joseph-557708
+
+[Read on Telegram](https://t.me/livelawindia/124129)
+
+---
+### 2026-11-07T04:22:06+00:00
+PMLA | ED Must Furnish Relied-Upon Documents To Accused At Pre-Cognizance Stage Under S. 223 BNSS: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-section-223-bnss-accused-legal-right-documents-relied-ed-pmla-proceedings-557710
+
+[Read on Telegram](https://t.me/livelawindia/124130)
+
+---
+### 2026-11-07T04:32:26+00:00
+Chargesheet Filed One Day After 180-Day Deadline? Orissa High Court Grants Default Bail In NDPS Case
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-accused-granted-default-bail-prosecution-files-chargesheet-557712
+
+[Read on Telegram](https://t.me/livelawindia/124131)
+
+---
+### 2026-11-07T04:39:26+00:00
+Call For Papers; NLU Odisha Invites Submissions For Human Rights Law Journal, Volume XII
+https://www.livelaw.in/lawschool/call-for-papers/nlu-odisha-invites-submissions-human-rights-law-journal-volume-xii-557716
+
+[Read on Telegram](https://t.me/livelawindia/124132)
+
+---
+### 2026-11-07T04:47:26+00:00
+Looking Inappropriately At Woman Does Not Amount To Demand For Sexual Favours In Absence Of Evidence: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-looking-inappropriately-woman-amount-demand-sexual-favours-557713
+
+[Read on Telegram](https://t.me/livelawindia/124133)
+
+---
+### 2026-11-07T04:52:26+00:00
+J&K&L High Court Denies Default Bail To UAPA Accused; Holds Charge-Sheet Filed Within 180 Days Extinguishes Right To Statutory Bail
+https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-denies-default-bail-to-uapa-accused-holds-charge-sheet-filed-within-180-days-extinguished-right-to-statutory-bail-557704
+
+[Read on Telegram](https://t.me/livelawindia/124134)
+
+---
+### 2026-11-07T04:55:06+00:00
+Former Supreme Court Judge Justice Rajesh Bindal Appointed NCLAT Chairperson
+https://www.livelaw.in/top-stories/former-supreme-court-judge-justice-rajesh-bindal-appointed-nclat-chairperson-557720
+
+[Read on Telegram](https://t.me/livelawindia/124135)
+
+---
+### 2026-11-07T04:57:26+00:00
+Allegations Of Outraging Modesty Of Woman Can Be Sustained Even If Victim Is Transgender Woman: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/outraging-modesty-woman-charge-victim-transgender-woman-s75-bns-557717
+
+[Read on Telegram](https://t.me/livelawindia/124136)
+
+---
+### 2026-11-07T05:02:06+00:00
+Messi Visit Row: Kerala High Court Issues Notice On Plea To Quash FIR Against Reporter TV MD Anto Augustine
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-notice-fir-quash-reporter-t-v-anto-augustine-messi-557721
+
+[Read on Telegram](https://t.me/livelawindia/124137)
+
+---
+### 2026-11-07T05:12:56+00:00
+Manamadurai Custodial Death: Madras High Court Upholds Remand Of Four Accused Cops, Sets 9-Month Trial Deadline
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-manamadurai-custodial-death-remand-challenge-accused-cop-dismissed-557718
+
+[Read on Telegram](https://t.me/livelawindia/124138)
+
+---
+### 2026-11-07T05:22:56+00:00
+Karnataka High Court Refuses To Quash Criminal Defamation Case Against Maneka Gandhi, But Stays Trial Court Summons For 2 Weeks
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-dismisses-maneka-gandhi-plea-quash-criminal-proceedings-defamation-case-557725
+
+[Read on Telegram](https://t.me/livelawindia/124139)
 
 ---
