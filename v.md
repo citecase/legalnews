@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-07T14:32:43+00:00*
+*Last Updated: 2026-11-08T06:02:57+00:00*
+
+---
+
+### 2026-11-08T06:02:57+00:00
+College Cannot Retain Students’ Original Certificates As Security For Unpaid Fees: Telangana High Court
+https://www.verdictum.in/telangana-high-court/kolakatla-shravan-kumar-v-state-of-telangana-and-others-certificates-security-1625362
+
+[Source Link](https://t.me/verdictumlegalupdates/30137)
+
+---
+
+### 2026-11-08T04:32:36+00:00
+Lawful Lease Doesn't Absolve Environmental Safeguards In Riverbed Mining: Supreme Court Restrains New Industries Near Jojari-Luni Rivers
+https://www.verdictum.in/supreme-court/in-re-2-million-lives-at-risk-contamination-in-jojari-river-rajasthan-2026-insc-1203-1625361
+
+[Source Link](https://t.me/verdictumlegalupdates/30136)
 
 ---
 
@@ -145,22 +161,6 @@ Executive Authorities Along With Police Cannot Facilitate Private Recovery Of Po
 https://www.verdictum.in/guwahati-high-court/sabita-paul-v-state-of-assam-and-others-possession-recovery-executive-magistrate-1625298
 
 [Source Link](https://t.me/verdictumlegalupdates/30118)
-
----
-
-### 2026-11-06T15:31:47+00:00
-Surrogacy Act- Collective Age Of Intending Couple Can Be Considered; No Bar Where One Spouse Is Within Age Limit: Bombay High Court
-https://www.verdictum.in/bombay-high-court/surrogacy-age-limit-collective-age-intending-couple-art-act-2026bhc-as45246-db-1625300
-
-[Source Link](https://t.me/verdictumlegalupdates/30117)
-
----
-
-### 2026-11-06T14:13:06+00:00
-Delete Prohibited List Of Lands Maintained In National Generic Document Registration System: Jharkhand High Court To State Govt.
-https://www.verdictum.in/jharkhand-high-court/amit-ranjan-v-the-state-of-jharkhand-2026jhhc32512-prohibited-list-lands-document-registration-1625297
-
-[Source Link](https://t.me/verdictumlegalupdates/30116)
 
 ---
 
