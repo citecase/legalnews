@@ -1,100 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-07T08:12:57+00:00*
+*Last Updated: 2026-11-07T16:03:09+00:00*
 
 ---
 
-### 2026-11-07T08:12:57+00:00
-Empanelment Of Advocates At Security Printing And Minting Corporation Of India Limited
-https://www.livelaw.in/job-updates/empanelment-of-advocates-at-security-printing-and-minting-corporation-of-india-limited-557776
-
-[Read on Telegram](https://t.me/livelawindia/124159)
-
----
-### 2026-11-07T08:13:57+00:00
-Manager (Law) And Assistant Manager (Law) Vacancy At Tamilnad Mercantile Bank Limited
-https://www.livelaw.in/job-updates/manager-law-and-assistant-manager-law-vacancy-at-tamilnad-mercantile-bank-limited-557777
-
-[Read on Telegram](https://t.me/livelawindia/124160)
-
----
-### 2026-11-07T08:32:37+00:00
-27-Year-Old Status Quo Order Still Binding; Rajasthan High Court Holds Respondents Guilty Of Contempt
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-holds-respondents-guilty-contempt-violating-1999order-557736
-
-[Read on Telegram](https://t.me/livelawindia/124161)
-
----
-### 2026-11-07T08:52:37+00:00
-J&K&L High Court Orders Compensation For Owners Whose Land Was Wrongly Declared As Evacuee Property After 45 Years
-https://www.livelaw.in/high-court/jammu-kashmir/after-45-years-jk-hc-orders-market-rate-compensation-for-rajouri-owners-whose-land-was-wrongly-declared-evacuee-property-and-allotted-to-a-displaced-person-557753
-
-[Read on Telegram](https://t.me/livelawindia/124162)
-
----
-### 2026-11-07T09:02:47+00:00
-AP High Court Restores Specific Performance Suit; Says Disputed Issues Of Sale Agreement, Identification Of Land Requires Trial
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-restores-specific-performance-suit-disputed-questions-decided-ordervii-rule11-cpc-557738
-
-[Read on Telegram](https://t.me/livelawindia/124163)
-
----
-### 2026-11-07T09:32:27+00:00
-Campus Election Row: Kerala High Court Asks Sree Sankaracharya University To Produce Observer's Email Cited To Postpone Polls
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sree-sankaracharya-university-email-impartial-observer-postpone-campus-union-elections-557740
-
-[Read on Telegram](https://t.me/livelawindia/124164)
-
----
-### 2026-11-07T11:52:58+00:00
-Meghalaya High Court Quashes POCSO Case Against Man, Cites Survivor's No-Objection As They Live Together With Their 6-Year-Old Son
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-quashes-pocso-case-citing-survivor-noobjection-quashing-live-together-557763
-
-[Read on Telegram](https://t.me/livelawindia/124165)
-
----
-### 2026-11-07T12:07:18+00:00
-Judicial Recruitment | Deemed 1-Year Practice Exemption Restricted To Law Graduates Who Passed Out Before August 22, 2025: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/deemed-practice-exemption-restricted-law-graduates-557758
-
-[Read on Telegram](https://t.me/livelawindia/124166)
-
----
-### 2026-11-07T12:07:58+00:00
-J&K&L High Court Denies Bail To Juvenile Tried As Adult In Terror Case; Says Alleged Links With JeM Handler Raise Concerns Of Danger
-https://www.livelaw.in/high-court/jammu-kashmir/jkl-high-court-denies-bail-to-juvenile-tried-as-adult-in-terror-case-says-alleged-links-with-jem-handler-raise-concerns-of-moral-psychological-danger-557755
-
-[Read on Telegram](https://t.me/livelawindia/124167)
-
----
-### 2026-11-07T12:47:29+00:00
-Fixed Sentence Of 20 Years Can Ordinarily Be Suspended During Appeal: Sikkim High Court Grants Bail To POCSO Convict
-https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-grants-bail-pocso-convict-557757
-
-[Read on Telegram](https://t.me/livelawindia/124168)
-
----
-### 2026-11-07T14:12:29+00:00
-"Ministers Cannot Arrogate Functions Entrusted To Statutory Authorities": Bombay High Court Quashes Minister's Order Converting Land
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-quashes-state-minister-order-converting-devsthan-inam-land-557759
-
-[Read on Telegram](https://t.me/livelawindia/124169)
-
----
-### 2026-11-07T15:12:39+00:00
-Isolated Sales Invoices Cannot Establish Territorial Jurisdiction In Patent Infringement Suit: HP High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-isolated-sales-invoices-establish-territorial-jurisdiction-patent-infringement-suit-557766
-
-[Read on Telegram](https://t.me/livelawindia/124170)
-
----
-### 2026-11-07T15:52:29+00:00
-Woman Attacks Lady Judge, Prosecutor & Inspector With Iron Rod In Odisha's Court Premises
-https://www.livelaw.in/news-updates/woman-attacks-lady-judge-prosecutor-inspector-iron-rod-odisha-court-premises-557803
-
-[Read on Telegram](https://t.me/livelawindia/124171)
-
----
 ### 2026-11-07T16:03:09+00:00
 Kerala High Court Allows Digital News Platform NoCap's Editor To Operate Facebook Page After Deleting Comments Flagged By Police
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-reinstate-facebook-page-digital-news-platform-nocap-557805
@@ -142,5 +51,96 @@ Telangana High Court Laments 'Rubber Stamp' Cognizance Orders Passed By Magistra
 https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-flags-rubber-stamp-cognizance-directs-judicial-academy-training-557819
 
 [Read on Telegram](https://t.me/livelawindia/124178)
+
+---
+### 2026-11-08T05:33:15+00:00
+“Bench And Bar Share Responsibility”: Telangana High Court Sets Aside Trial Court's Adverse Remarks Against Lawyer
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-sets-aside-trial-court-adverse-remarks-counsel-seeking-adjournments-557807
+
+[Read on Telegram](https://t.me/livelawindia/124179)
+
+---
+### 2026-11-08T05:37:55+00:00
+Arms Licence Scam: J&K&L High Court Declines Plea By IAS Officers Seeking DoPT To Consider Their Representations Before Deciding Sanction
+https://www.livelaw.in/high-court/jammu-kashmir/arms-licence-scam-jk-high-court-declines-plea-by-two-ias-officers-seeking-direction-to-dopt-to-consider-their-representations-before-deciding-prosecution-sanction-557769
+
+[Read on Telegram](https://t.me/livelawindia/124180)
+
+---
+### 2026-11-08T06:09:25+00:00
+NLIU Bhopal's Cell For Studies In Intellectual Property Rights Invites Entries For 1st IP Blog Writing Competition, 2026
+https://www.livelaw.in/lawschool/competitions/nliu-bhopals-cell-for-studies-intellectual-property-rights-invites-entries-1st-ip-blog-writing-competition-557820
+
+[Read on Telegram](https://t.me/livelawindia/124181)
+
+---
+### 2026-11-08T06:27:45+00:00
+Madhya Pradesh SLSA Hosts 'Bal Srijan' Exhibition-cum-Sale Of Handicrafts Made By Children
+https://www.livelaw.in/news-updates/madhya-pradesh-slsa-hosts-bal-srijan-exhibition-cum-sale-handicrafts-made-children-557821
+
+[Read on Telegram](https://t.me/livelawindia/124182)
+
+---
+### 2026-11-08T07:01:35+00:00
+Bengaluru ADR Week To Host Discussions On AI, Arbitral Independence, Enforcement And Future Of ADR
+https://www.livelaw.in/events/bengaluru-adr-week-to-host-discussions-on-ai-arbitral-independence-enforcement-and-future-of-adr-557822
+
+[Read on Telegram](https://t.me/livelawindia/124183)
+
+---
+### 2026-11-08T07:07:55+00:00
+Jindal Global Law School Team Secures 5th Place In Oral Finals At FDI Moot 2026, Wins 3rd Best Claimant Memorial
+https://www.livelaw.in/lawschool/news/jindal-global-law-school-team-secures-5th-place-in-oral-finals-at-fdi-moot-2026-wins-3rd-best-claimant-memorial-557823
+
+[Read on Telegram](https://t.me/livelawindia/124184)
+
+---
+### 2026-11-08T07:47:45+00:00
+'Seven Years, Three Witnesses & Incomplete Testimony': J&K&L High Court Reopens Acquittal Case For Retrial
+https://www.livelaw.in/high-court/jammu-kashmir/seven-years-three-witnesses-an-incomplete-testimony-jk-high-court-reopens-acquittal-case-for-retrial-557752
+
+[Read on Telegram](https://t.me/livelawindia/124185)
+
+---
+### 2026-11-08T08:47:36+00:00
+Non-Production Of Malkhana Register Alone Cannot Vitiate NDPS Conviction: Tripura High Court Upholds 10-Year Jail Term In 987 Kg Ganja Case
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-nonproduction-malkhana-register-vitiate-ndps-conviction-557764
+
+[Read on Telegram](https://t.me/livelawindia/124186)
+
+---
+### 2026-11-08T08:47:56+00:00
+Meghalaya High Court Gives State 4 Months To Process Terminal Benefits For Widow Of Employee Who Died Without Receiving Dues
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-process-terminal-benefits-widow-employee-died-557762
+
+[Read on Telegram](https://t.me/livelawindia/124187)
+
+---
+### 2026-11-08T09:57:50+00:00
+Insurance Company Cannot Repudiate Health Claim Without Medical Evidence Justifying Denial: Kurukshetra Consumer Commission
+https://www.livelaw.in/consumer-cases/insurance-company-cannot-repudiate-health-claim-without-medical-evidence-justifying-denial-kurukshetra-consumer-commission-557824
+
+[Read on Telegram](https://t.me/livelawindia/124188)
+
+---
+### 2026-11-08T10:33:00+00:00
+LiveLaw Madhya Pradesh High Court Monthly Digest: October 2026 [Citations 399 - 438]
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-monthly-digest-october-2026-557611
+
+[Read on Telegram](https://t.me/livelawindia/124189)
+
+---
+### 2026-11-08T11:53:10+00:00
+'Case Of The Victim Cannot Be Totally Neglected': Bombay High Court Upholds Categorization Of Woman Convict In Stricter Category For Remission
+https://www.livelaw.in/high-court/bombay-high-court/categorization-woman-convict-stricter-category-remission-557770
+
+[Read on Telegram](https://t.me/livelawindia/124190)
+
+---
+### 2026-11-08T12:30:20+00:00
+NCR Pollution | 'Lungs Of Even Children In Delhi Not Pink', Amicus Tells Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-air-pollution-delhi-ncr-vehicular-pollution-stubble-burning-children-lungs-not-pink-grap-expert-view-valid-diwali-awareness-programmes-557825
+
+[Read on Telegram](https://t.me/livelawindia/124191)
 
 ---
