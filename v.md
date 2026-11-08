@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-08T06:02:57+00:00*
+*Last Updated: 2026-11-08T15:02:21+00:00*
+
+---
+
+### 2026-11-08T15:02:21+00:00
+Senior Associate Vacancy At National Highways and Infrastructure Development Corporation Limited
+https://www.verdictum.in/job-updates/national-highways-and-infrastructure-development-corporation-limited-1625365
+
+[Source Link](https://t.me/verdictumlegalupdates/30142)
+
+---
+
+### 2026-11-08T12:03:00+00:00
+Looking At Woman Inappropriately Does Not By Itself Constitute Demand For Sexual Favours U/S 75(1)(ii) BNS: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/hafeez-khasim-v-state-of-karnataka-and-another-2026khc60690-sexual-favour-1625369
+
+[Source Link](https://t.me/verdictumlegalupdates/30141)
+
+---
+
+### 2026-11-08T10:32:39+00:00
+ST Candidate From One State Can't Claim Reservation In Another Merely Because Same Tribe Is Notified In Both States: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/baria-sharmishtha-ben-v-state-of-rajasthan-and-others-2026rj-jd55282-db-1625357
+
+[Source Link](https://t.me/verdictumlegalupdates/30140)
+
+---
+
+### 2026-11-08T09:02:38+00:00
+Right To Peaceful Protest Cannot Be Curtailed By Frivolous Criminal Cases: Karnataka High Court Quashes Case Against SDPI Leaders
+https://www.verdictum.in/karnataka-high-court/abdul-jaleel-alias-yaseen-arkula-and-others-v-state-of-karnataka-and-another-2026khc59324-1625364
+
+[Source Link](https://t.me/verdictumlegalupdates/30139)
+
+---
+
+### 2026-11-08T07:32:17+00:00
+Sub-Inspector Cannot Issue Notice For Opening Rowdy Sheet; Power Lies With SP Or SDPO: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/manjunath-krishnappa-dalawai-v-state-of-karnataka-2026khc-d17446-rowdy-sheet-against-a-man-named-in-two-criminal-cases-1625363
+
+[Source Link](https://t.me/verdictumlegalupdates/30138)
 
 ---
 
@@ -121,46 +161,6 @@ Miscellaneous Applications No Tool To Re-Hear Matters Already Decided: Supreme C
 https://www.verdictum.in/supreme-court/union-of-india-others-v-rohith-nathan-2026-insc-1201-miscellaneous-applications-upsc-obc-claim-1625327
 
 [Source Link](https://t.me/verdictumlegalupdates/30123)
-
----
-
-### 2026-11-07T05:52:57+00:00
-THOTA| Doctor Authorised By Appropriate Authority Through One Hospital Can Perform Emergency Transplant At Another Without Fresh Authority: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/dr-pradeep-krishna-rv-v-dr-sunil-shenvi-writ-petition-no-33361-of-2025-gm-res-transplantation-of-human-organs-and-tissues-act-1625324
-
-[Source Link](https://t.me/verdictumlegalupdates/30122)
-
----
-
-### 2026-11-07T05:13:16+00:00
-Uncommunicated Adverse Entries Or Below-Benchmark Gradings May Be Considered For Ascertaining Compulsory Retirement: Supreme Court
-https://www.verdictum.in/supreme-court/chatur-singh-dhruw-v-the-state-of-chhattisgarh-2026-insc-1205-adverse-entries-compulsory-retirement-1625317
-
-[Source Link](https://t.me/verdictumlegalupdates/30121)
-
----
-
-### 2026-11-07T04:32:55+00:00
-Authorities Can't Pass Orders Solely On Panel Counsel’s Opinion; Legal Advice Can't Replace Decision Making Process: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/sangamma-v-the-manager-rajiv-gandhi-vasati-abhivrudhi-nigama-2026khc-d16824-panel-counsels-opinion-1625301
-
-[Source Link](https://t.me/verdictumlegalupdates/30120)
-
----
-
-### 2026-11-06T16:03:19+00:00
-Research Assistant Vacancy At Kerala High Court
-https://www.verdictum.in/job-updates/kerala-high-court-1625289
-
-[Source Link](https://t.me/verdictumlegalupdates/30119)
-
----
-
-### 2026-11-06T16:03:08+00:00
-Executive Authorities Along With Police Cannot Facilitate Private Recovery Of Possession Without Lawful Authority: Gauhati High Court
-https://www.verdictum.in/guwahati-high-court/sabita-paul-v-state-of-assam-and-others-possession-recovery-executive-magistrate-1625298
-
-[Source Link](https://t.me/verdictumlegalupdates/30118)
 
 ---
 
