@@ -1,72 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-07T16:03:09+00:00*
+*Last Updated: 2026-11-08T06:09:25+00:00*
 
 ---
 
-### 2026-11-07T16:03:09+00:00
-Kerala High Court Allows Digital News Platform NoCap's Editor To Operate Facebook Page After Deleting Comments Flagged By Police
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-reinstate-facebook-page-digital-news-platform-nocap-557805
-
-[Read on Telegram](https://t.me/livelawindia/124172)
-
----
-### 2026-11-07T16:49:20+00:00
-72-Year-Old Landowner's 15-Year Legal Battle: J&K High Court Quashes Orders Setting Aside His Land Mutation Without Examining Limitation
-https://www.livelaw.in/high-court/jammu-kashmir/72-year-old-landowners-15-year-legal-battle-jk-high-court-quashes-orders-setting-aside-his-land-mutation-without-examining-limitation-557811
-
-[Read on Telegram](https://t.me/livelawindia/124173)
-
----
-### 2026-11-08T03:25:44+00:00
-ED Not A Super Cop, Can't File Private Complaint If Local Police Refuses Investigation On Scheduled Offence : Karnataka High Court
-https://www.livelaw.in/top-stories/ed-not-a-super-cop-cant-file-private-complaint-if-local-police-refuses-investigation-on-scheduled-offence-karnataka-high-court-557816
-
-[Read on Telegram](https://t.me/livelawindia/124174)
-
----
-### 2026-11-08T03:47:54+00:00
-'Assisting Courts An Essential Duty': Delhi High Court Allows Advocates, Court Staff To Ply Vehicles Amid Pollution Curbs
-https://www.livelaw.in/high-court/delhi-high-court/assisting-courts-an-essential-duty-delhi-high-court-allows-advocates-court-staff-to-ply-vehicles-amid-pollution-curbs-557815
-
-[Read on Telegram](https://t.me/livelawindia/124175)
-
----
-### 2026-11-08T04:32:44+00:00
-LiveLaw Gujarat High Court Monthly Digest: October 2026
-https://www.livelaw.in/high-court/gujarat-high-court/livelaw-gujarat-high-court-monthly-digest-557610
-
-[Read on Telegram](https://t.me/livelawindia/124176)
-
----
-### 2026-11-08T04:56:04+00:00
-Woman Can't Continue IVF After Crossing ART Act Age Limit Even If Embryos Were Frozen Earlier: Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-woman-cant-continue-ivf-after-crossing-art-act-age-limit-even-if-embryos-were-frozen-earlier-557817
-
-[Read on Telegram](https://t.me/livelawindia/124177)
-
----
-### 2026-11-08T05:00:44+00:00
-Telangana High Court Laments 'Rubber Stamp' Cognizance Orders Passed By Magistrates, Directs Judicial Training
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-flags-rubber-stamp-cognizance-directs-judicial-academy-training-557819
-
-[Read on Telegram](https://t.me/livelawindia/124178)
-
----
-### 2026-11-08T05:33:15+00:00
-“Bench And Bar Share Responsibility”: Telangana High Court Sets Aside Trial Court's Adverse Remarks Against Lawyer
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-sets-aside-trial-court-adverse-remarks-counsel-seeking-adjournments-557807
-
-[Read on Telegram](https://t.me/livelawindia/124179)
-
----
-### 2026-11-08T05:37:55+00:00
-Arms Licence Scam: J&K&L High Court Declines Plea By IAS Officers Seeking DoPT To Consider Their Representations Before Deciding Sanction
-https://www.livelaw.in/high-court/jammu-kashmir/arms-licence-scam-jk-high-court-declines-plea-by-two-ias-officers-seeking-direction-to-dopt-to-consider-their-representations-before-deciding-prosecution-sanction-557769
-
-[Read on Telegram](https://t.me/livelawindia/124180)
-
----
 ### 2026-11-08T06:09:25+00:00
 NLIU Bhopal's Cell For Studies In Intellectual Property Rights Invites Entries For 1st IP Blog Writing Competition, 2026
 https://www.livelaw.in/lawschool/competitions/nliu-bhopals-cell-for-studies-intellectual-property-rights-invites-entries-1st-ip-blog-writing-competition-557820
@@ -142,5 +79,68 @@ NCR Pollution | 'Lungs Of Even Children In Delhi Not Pink', Amicus Tells Supreme
 https://www.livelaw.in/top-stories/supreme-court-air-pollution-delhi-ncr-vehicular-pollution-stubble-burning-children-lungs-not-pink-grap-expert-view-valid-diwali-awareness-programmes-557825
 
 [Read on Telegram](https://t.me/livelawindia/124191)
+
+---
+### 2026-11-08T13:17:50+00:00
+Meghalaya High Court Quashes POCSO Case After Informed-Consent Review Of Survivor Living With Accused And Their 2 Children
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-quashes-pocso-case-informed-consent-review-survivor-living-with-accused-557772
+
+[Read on Telegram](https://t.me/livelawindia/124192)
+
+---
+### 2026-11-08T13:37:11+00:00
+Sikkim High Court Condones National Insurance Company's 223-Day Delay In Filing Revision, Imposes ₹50K Cost For Incorrectly Blaming Counsel
+https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-condones-national-insurance-company-delay-filing-revision-557767
+
+[Read on Telegram](https://t.me/livelawindia/124193)
+
+---
+### 2026-11-08T15:39:01+00:00
+Kerala Court Grants Pre-Arrest Bail To UP Influencer Booked For Remarks On Kashi Art Cafe, Asks Him To Appear For Investigation
+https://www.livelaw.in/news-updates/kerala-court-up-actor-kashi-art-cafe-communal-remarks-557830
+
+[Read on Telegram](https://t.me/livelawindia/124194)
+
+---
+### 2026-11-08T16:08:31+00:00
+Lead Researcher Vacancy At National Law University, Delhi
+https://www.livelaw.in/job-updates/lead-researcher-vacancy-at-national-law-university-delhi-557831
+
+[Read on Telegram](https://t.me/livelawindia/124195)
+
+---
+### 2026-11-08T16:09:31+00:00
+Law Researcher Vacancy At Jagat Guru Nanak Dev Punjab State Open University, Patiala
+https://www.livelaw.in/job-updates/law-researcher-vacancy-at-jagat-guru-nanak-dev-punjab-state-open-university-patiala-557832
+
+[Read on Telegram](https://t.me/livelawindia/124196)
+
+---
+### 2026-11-08T16:10:11+00:00
+Empanelment of Advocates At District Legal Services Authority, Gaya and Sub Divisional Legal Services Committee, Sherghati
+https://www.livelaw.in/job-updates/empanelment-of-advocates-at-district-legal-services-authority-gaya-and-sub-divisional-legal-services-committee-sherghati-557833
+
+[Read on Telegram](https://t.me/livelawindia/124197)
+
+---
+### 2026-11-08T16:10:52+00:00
+Empanelment Of Advocates And Law Firms Vacancy At Central Mine Planning & Design Institute Limited (CMPDI)
+https://www.livelaw.in/job-updates/empanelment-of-advocates-and-law-firms-vacancy-at-central-mine-planning-design-institute-limited-cmpdi-557834
+
+[Read on Telegram](https://t.me/livelawindia/124198)
+
+---
+### 2026-11-08T17:56:12+00:00
+LiveLaw Delhi High Court Weekly Round-Up: November 02 To November 08, 2026
+https://www.livelaw.in/high-court/delhi-high-court/livelaw-delhi-high-court-weekly-round-up-november-02-to-november-08-2026-557835
+
+[Read on Telegram](https://t.me/livelawindia/124199)
+
+---
+### 2026-11-08T18:37:22+00:00
+LIVELAW DIWALI OFFER 2026 NOW LIVE: Get Up To 1 Year Of Extra Premium Access; Subscribe Now!
+https://www.livelaw.in/top-stories/livelaw-diwali-offer-2026-now-live-get-up-to-1-year-of-extra-premium-access-subscribe-now-557813
+
+[Read on Telegram](https://t.me/livelawindia/124200)
 
 ---
