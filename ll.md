@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-07T07:59:27+00:00*
+*Last Updated: 2026-11-07T08:12:57+00:00*
 
 ---
 
-### 2026-11-07T07:59:27+00:00
-Fake Freedom Fighter Quota Certificates In NEET-UG Counselling: Uttarakhand High Court Directs Verification, Action Against Erring Officials
-https://www.livelaw.in/high-court/uttarakhand-high-court/uttarakhand-high-court-directs-formation-verification-committee-action-erring-officials-557765
-
-[Read on Telegram](https://t.me/livelawindia/124154)
-
----
-### 2026-11-07T08:01:47+00:00
-Advocates' Strike Not An Exceptional Ground To Extend 120-Day Deadline For Filing Written Statement: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/advocates-suspension-of-work-not-an-exceptional-ground-to-extend-120-day-deadline-for-filing-written-statement-jk-high-court-557768
-
-[Read on Telegram](https://t.me/livelawindia/124155)
-
----
-### 2026-11-07T08:02:47+00:00
-Rajasthan High Court Says State Need Not Be Impleaded In Cases Investigated By CBI, NCB, Other Central Agencies
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-directs-discontinuation-routine-impleadment-state-557734
-
-[Read on Telegram](https://t.me/livelawindia/124156)
-
----
-### 2026-11-07T08:10:47+00:00
-Consultant (Legal) Vacancy At Jawaharlal Institute Of Postgraduate Medical Education And Research
-https://www.livelaw.in/job-updates/consultant-legal-vacancy-at-jawaharlal-institute-of-postgraduate-medical-education-and-research-557773
-
-[Read on Telegram](https://t.me/livelawindia/124157)
-
----
-### 2026-11-07T08:12:07+00:00
-Legal Researcher Vacancy At Rajasthan High Court, Jodhpur
-https://www.livelaw.in/job-updates/legal-researcher-vacancy-at-rajasthan-high-court-jodhpur-557774
-
-[Read on Telegram](https://t.me/livelawindia/124158)
-
----
 ### 2026-11-07T08:12:57+00:00
 Empanelment Of Advocates At Security Printing And Minting Corporation Of India Limited
 https://www.livelaw.in/job-updates/empanelment-of-advocates-at-security-printing-and-minting-corporation-of-india-limited-557776
@@ -142,5 +107,40 @@ https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-reinstate-
 https://www.livelaw.in/high-court/jammu-kashmir/72-year-old-landowners-15-year-legal-battle-jk-high-court-quashes-orders-setting-aside-his-land-mutation-without-examining-limitation-557811
 
 [Read on Telegram](https://t.me/livelawindia/124173)
+
+---
+### 2026-11-08T03:25:44+00:00
+ED Not A Super Cop, Can't File Private Complaint If Local Police Refuses Investigation On Scheduled Offence : Karnataka High Court
+https://www.livelaw.in/top-stories/ed-not-a-super-cop-cant-file-private-complaint-if-local-police-refuses-investigation-on-scheduled-offence-karnataka-high-court-557816
+
+[Read on Telegram](https://t.me/livelawindia/124174)
+
+---
+### 2026-11-08T03:47:54+00:00
+'Assisting Courts An Essential Duty': Delhi High Court Allows Advocates, Court Staff To Ply Vehicles Amid Pollution Curbs
+https://www.livelaw.in/high-court/delhi-high-court/assisting-courts-an-essential-duty-delhi-high-court-allows-advocates-court-staff-to-ply-vehicles-amid-pollution-curbs-557815
+
+[Read on Telegram](https://t.me/livelawindia/124175)
+
+---
+### 2026-11-08T04:32:44+00:00
+LiveLaw Gujarat High Court Monthly Digest: October 2026
+https://www.livelaw.in/high-court/gujarat-high-court/livelaw-gujarat-high-court-monthly-digest-557610
+
+[Read on Telegram](https://t.me/livelawindia/124176)
+
+---
+### 2026-11-08T04:56:04+00:00
+Woman Can't Continue IVF After Crossing ART Act Age Limit Even If Embryos Were Frozen Earlier: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-woman-cant-continue-ivf-after-crossing-art-act-age-limit-even-if-embryos-were-frozen-earlier-557817
+
+[Read on Telegram](https://t.me/livelawindia/124177)
+
+---
+### 2026-11-08T05:00:44+00:00
+Telangana High Court Laments 'Rubber Stamp' Cognizance Orders Passed By Magistrates, Directs Judicial Training
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-flags-rubber-stamp-cognizance-directs-judicial-academy-training-557819
+
+[Read on Telegram](https://t.me/livelawindia/124178)
 
 ---
