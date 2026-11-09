@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-08T15:02:21+00:00*
+*Last Updated: 2026-11-09T07:01:37+00:00*
+
+---
+
+### 2026-11-09T07:01:37+00:00
+Supreme Court Upholds High Court’s Order Permitting CBI Preliminary Enquiry Against Pastor Ankur Narula In PIL About Religious Conversion
+https://www.verdictum.in/supreme-court/declines-interfere-cbi-preliminary-enquiry-against-pastor-ankur-narula-religious-conversion-1625421
+
+[Source Link](https://t.me/verdictumlegalupdates/30146)
+
+---
+
+### 2026-11-09T06:12:36+00:00
+Non-Existent AI-Generated Judgments: Bombay High Court Quashes Customs Commissioner’s Order
+https://www.verdictum.in/bombay-high-court/quanta-logistics-pvt-ltd-v-commissioner-of-customs-import-i-2026bhc-os24069-db-ai-generated-judgments-1625415
+
+[Source Link](https://t.me/verdictumlegalupdates/30145)
+
+---
+
+### 2026-11-09T05:22:55+00:00
+Authorities Can Prevent Registered Child Sex Offender In US From Entering India: Delhi High Court Dismisses OCI Card Holder’s Petition
+https://www.verdictum.in/delhi-high-court/charnjit-singh-bains-v-union-of-india-2026dhc9891-authorities-child-sex-offender-us-india-1625409
+
+[Source Link](https://t.me/verdictumlegalupdates/30144)
+
+---
+
+### 2026-11-09T04:32:36+00:00
+RTE Act | Sec.27 Permits Deployment Of Teachers For Election-Related BLO Duties: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/azra-parveen-v-state-of-up-2026ahc226999-rte-act-sec27-deployment-teachers-blo-duties-1625370
+
+[Source Link](https://t.me/verdictumlegalupdates/30143)
 
 ---
 
@@ -129,38 +161,6 @@ Wife’s Pursuit Of Higher Education Or Employment Is A Right, Not Husband’s F
 https://www.verdictum.in/jharkhand-high-court/rd-v-dk-2026jhhc32647-db-woman-education-after-marriage-divorce-cruelty-1625341
 
 [Source Link](https://t.me/verdictumlegalupdates/30127)
-
----
-
-### 2026-11-07T08:33:00+00:00
-Mere Cultivation Without Residence In Forest Does Not Confer Forest Dweller Status Under FRA: Supreme Court
-https://www.verdictum.in/supreme-court/a-john-kennedy-v-state-of-tamil-nadu-2026-insc-1204-forest-rights-act-1625339
-
-[Source Link](https://t.me/verdictumlegalupdates/30126)
-
----
-
-### 2026-11-07T07:52:39+00:00
-Registration As Society Does Not Take Body Outside Article 12 Constitution If Government Control Is Pervasive: Supreme Court Holds National Book Trust Is “State”
-https://www.verdictum.in/supreme-court/the-chairman-national-book-trust-india-v-ar-abdul-gaffar-2026-insc-1202-national-book-trust-is-state-1625336
-
-[Source Link](https://t.me/verdictumlegalupdates/30125)
-
----
-
-### 2026-11-07T07:12:18+00:00
-Balance Sheets Acknowledging Debt Give Rise To Fresh Period Of Limitation: Supreme Court Reiterates
-https://www.verdictum.in/supreme-court/yusuf-v-vigyapan-loke-delhi-advertising-cghs-ltd-2026-insc-1207-balance-sheets-debt-limitation-1625332
-
-[Source Link](https://t.me/verdictumlegalupdates/30124)
-
----
-
-### 2026-11-07T06:32:38+00:00
-Miscellaneous Applications No Tool To Re-Hear Matters Already Decided: Supreme Court Clarifies Scope Of Judgment On Parents’ Salary & Status For UPSC OBC Claims
-https://www.verdictum.in/supreme-court/union-of-india-others-v-rohith-nathan-2026-insc-1201-miscellaneous-applications-upsc-obc-claim-1625327
-
-[Source Link](https://t.me/verdictumlegalupdates/30123)
 
 ---
 
