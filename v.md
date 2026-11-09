@@ -1,6 +1,110 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-09T07:01:37+00:00*
+*Last Updated: 2026-11-09T16:02:35+00:00*
+
+---
+
+### 2026-11-09T16:02:35+00:00
+Legal Assistant Vacancy At University of Delhi
+https://www.verdictum.in/job-updates/university-of-delhi-1625446
+
+[Source Link](https://t.me/verdictumlegalupdates/30159)
+
+---
+
+### 2026-11-09T15:33:09+00:00
+Take Steps Towards Procuring Early Warning Systems For High-Risk Glacial Lakes: Sikkim High Court To Government
+https://www.verdictum.in/sikkim-high-court/in-re-climatic-justice-in-the-state-of-sikkim-wppil-no11-of-2026-government-warning-systems-high-risk-glacial-lakes-1625454
+
+[Source Link](https://t.me/verdictumlegalupdates/30158)
+
+---
+
+### 2026-11-09T15:02:28+00:00
+Arbitrary State Action Warrants Compensation: Allahabad High Court Awards ₹15L For Vehicle Seized Over Cattle-Slaughter Suspicion
+https://www.verdictum.in/allahabad-high-court/tej-prakash-v-state-of-uttar-pradesh-and-others-2026ahc228068-vehicle-confiscation-1625444
+
+[Source Link](https://t.me/verdictumlegalupdates/30157)
+
+---
+
+### 2026-11-09T14:32:47+00:00
+Delhi Air Pollution|Supreme Court Flags Sharp Rise In Vehicular Emissions, Seeks Response On Inter-State Vehicle Regulation
+https://www.verdictum.in/supreme-court/delhi-air-pollution-flags-sharp-rise-vehicular-emissions-responses-states-inter-state-vehicle-regulation-1625453
+
+[Source Link](https://t.me/verdictumlegalupdates/30156)
+
+---
+
+### 2026-11-09T14:03:07+00:00
+Assisting Court Is An Essential Duty: Delhi HC Exempts NCR-Based Lawyers & Staff From Winter Vehicle Restrictions
+https://www.verdictum.in/delhi-high-court/delhi-high-court-bar-association-v-union-of-india-1625451
+
+[Source Link](https://t.me/verdictumlegalupdates/30155)
+
+---
+
+### 2026-11-09T13:33:05+00:00
+Large Scale Conversions With Objective Of Converting India To Islamic State: Allahabad High Court Refuses To Grant Bail To 8 Convicts
+https://www.verdictum.in/allahabad-high-court/kunal-ashok-chaudhari-atif-v-state-of-up-conversion-funding-outside-bail-convicts-1625443
+
+[Source Link](https://t.me/verdictumlegalupdates/30154)
+
+---
+
+### 2026-11-09T12:52:45+00:00
+Court Must Expedite Trial Instead Of Granting Bail In UAPA Cases: Bombay High Court Sets Aside Sachin Waze's Bail In Antilia Bomb Scare Case
+https://www.verdictum.in/bombay-high-court/national-investigation-agency-v-state-of-maharashtra-and-another-2026bhc-as45322-db-1625439
+
+[Source Link](https://t.me/verdictumlegalupdates/30153)
+
+---
+
+### 2026-11-09T12:12:24+00:00
+Appeal Against Acquittal U/S 138 NI Act Can Be Dismissed For Non-Prosecution If No Steps Taken To Serve Notice On Accused: Andhra Pradesh HC
+https://www.verdictum.in/andhra-pradesh-high-court/complainant-appeal-acquittal-section-138-ni-act-dismissed-non-prosecution-if-notice-not-served-1625438
+
+[Source Link](https://t.me/verdictumlegalupdates/30152)
+
+---
+
+### 2026-11-09T11:32:23+00:00
+Offence Committed Before Accused Became Legislator Can Be Tried By MP/MLA Special Court: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/bm-farooq-bava-mohammed-farookh-v-state-of-karnataka-and-another-1625436
+
+[Source Link](https://t.me/verdictumlegalupdates/30151)
+
+---
+
+### 2026-11-09T10:52:02+00:00
+Mere Reporting Of Violent Incident Doesn't Amount To Promoting Enmity Between Groups: Madhya Pradesh HC Quashes FIR Against Journalist
+https://www.verdictum.in/supreme-court/2026-mphcjbp-86748-uvesh-khan-v-state-section-1961-bnss-1625435
+
+[Source Link](https://t.me/verdictumlegalupdates/30150)
+
+---
+
+### 2026-11-09T10:12:21+00:00
+S. 8 Hindu Succession Act| Grandson Has No Birthright In Property Father Got On Partition Among Class I Heirs: Supreme Court
+https://www.verdictum.in/supreme-court/j-rajesh-minor-through-his-mother-and-natural-guardian-j-gomathi-v-m-kumaran-dead-through-lrs-2026-insc-1208-grandfathers-property-1625434
+
+[Source Link](https://t.me/verdictumlegalupdates/30149)
+
+---
+
+### 2026-11-09T08:42:39+00:00
+Sexual Harassment Charge U/S 75 BNS Sustainable Where Victim Is Transgender Person Identifying As Woman: Bombay High Court
+https://www.verdictum.in/bombay-high-court/vishal-sunil-ingle-v-state-of-maharashtra-2026bhc-nag15063-transgender-person-identifying-as-woman-1625425
+
+[Source Link](https://t.me/verdictumlegalupdates/30148)
+
+---
+
+### 2026-11-09T07:52:18+00:00
+Executive Act Cannot Contravene Judicial Order: Jharkhand High Court Quashes JSSC-CGL Recruitment Cancellation, Restores Appointments
+https://www.verdictum.in/jharkhand-high-court/ramesh-oraon-and-others-v-state-of-jharkhand-and-others-2026jhhc32695-1625423
+
+[Source Link](https://t.me/verdictumlegalupdates/30147)
 
 ---
 
@@ -57,110 +161,6 @@ ST Candidate From One State Can't Claim Reservation In Another Merely Because Sa
 https://www.verdictum.in/rajasthan-high-court/baria-sharmishtha-ben-v-state-of-rajasthan-and-others-2026rj-jd55282-db-1625357
 
 [Source Link](https://t.me/verdictumlegalupdates/30140)
-
----
-
-### 2026-11-08T09:02:38+00:00
-Right To Peaceful Protest Cannot Be Curtailed By Frivolous Criminal Cases: Karnataka High Court Quashes Case Against SDPI Leaders
-https://www.verdictum.in/karnataka-high-court/abdul-jaleel-alias-yaseen-arkula-and-others-v-state-of-karnataka-and-another-2026khc59324-1625364
-
-[Source Link](https://t.me/verdictumlegalupdates/30139)
-
----
-
-### 2026-11-08T07:32:17+00:00
-Sub-Inspector Cannot Issue Notice For Opening Rowdy Sheet; Power Lies With SP Or SDPO: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/manjunath-krishnappa-dalawai-v-state-of-karnataka-2026khc-d17446-rowdy-sheet-against-a-man-named-in-two-criminal-cases-1625363
-
-[Source Link](https://t.me/verdictumlegalupdates/30138)
-
----
-
-### 2026-11-08T06:02:57+00:00
-College Cannot Retain Students’ Original Certificates As Security For Unpaid Fees: Telangana High Court
-https://www.verdictum.in/telangana-high-court/kolakatla-shravan-kumar-v-state-of-telangana-and-others-certificates-security-1625362
-
-[Source Link](https://t.me/verdictumlegalupdates/30137)
-
----
-
-### 2026-11-08T04:32:36+00:00
-Lawful Lease Doesn't Absolve Environmental Safeguards In Riverbed Mining: Supreme Court Restrains New Industries Near Jojari-Luni Rivers
-https://www.verdictum.in/supreme-court/in-re-2-million-lives-at-risk-contamination-in-jojari-river-rajasthan-2026-insc-1203-1625361
-
-[Source Link](https://t.me/verdictumlegalupdates/30136)
-
----
-
-### 2026-11-07T14:32:43+00:00
-Fertilisers and Chemicals Travancore Ltd (FACT) Invites Applications For Post Of Officer (Legal Services)
-https://www.verdictum.in/job-updates/fertilisers-and-chemicals-travancore-ltd-1625360
-
-[Source Link](https://t.me/verdictumlegalupdates/30135)
-
----
-
-### 2026-11-07T13:53:02+00:00
-Foreigner Without Valid Visa Cannot Seek Release Even After Acquittal While Foreigners Act Movement Restriction Order Stands: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/mohammed-fahad-hi-alias-mohammed-koya-v-the-state-of-karnataka-and-others-1625359
-
-[Source Link](https://t.me/verdictumlegalupdates/30134)
-
----
-
-### 2026-11-07T13:12:41+00:00
-AI-Generated Video Attacks Dignity Of Woman: Delhi High Court Orders Takedown Of AAP’s Videos Portraying CM Rekha Gupta As Liquor Vendor
-https://www.verdictum.in/delhi-high-court/smt-rekha-gupta-v-aam-aadmi-party-ai-generated-videos-cm-liquor-vendor-1625358
-
-[Source Link](https://t.me/verdictumlegalupdates/30133)
-
----
-
-### 2026-11-07T12:32:20+00:00
-Karnataka HC Refuses To Quash Case Against Man Accused Of Derogatory Facebook Post On Home Minister Priyank Kharge & B R Ambedkar, Imposes ₹25K Cost
-https://www.verdictum.in/karnataka-high-court/mahesha-k-c-mahesh-gowda-v-state-of-karnataka-2026khc60852-facebook-br-ambedkar-priyank-kharge-1625367
-
-[Source Link](https://t.me/verdictumlegalupdates/30132)
-
----
-
-### 2026-11-07T11:52:59+00:00
-Subsequent Breach Of Promise By Donee Is Not Fraud To Extend Limitation For Setting Aside Gift: Supreme Court
-https://www.verdictum.in/supreme-court/d-kalidasreddy-v-chennamma-k-bharathi-2026-insc-1209-daughters-1997-suit-challenging-a-1974-gift-deed-1625356
-
-[Source Link](https://t.me/verdictumlegalupdates/30131)
-
----
-
-### 2026-11-07T11:12:58+00:00
-Excuse Of CCTV Malfunctioning Unavailable To Police In Unlawful Detention Case: Allahabad HC Orders Entry In SHO's Service Record
-https://www.verdictum.in/allahabad-high-court/2026ahc228441-db-cctv-malfunctioning-police-unlawful-detention-1625355
-
-[Source Link](https://t.me/verdictumlegalupdates/30130)
-
----
-
-### 2026-11-07T10:33:03+00:00
-Condition To Maintain Senior Citizen Need Not Be Expressly Recorded In Gift Deed But Must Be Proved To Seek Its Cancellation: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/narasimhamurthy-n-v-the-assistant-commissioner-2026khc60916-db-1625349
-
-[Source Link](https://t.me/verdictumlegalupdates/30129)
-
----
-
-### 2026-11-07T09:53:02+00:00
-Compensation Cannot Be Awarded On Pittance: Delhi High Court Says Vegetative-State MACT Claims Need Reasonable Estimation, Not Proved Bills Alone
-https://www.verdictum.in/delhi-high-court/icici-lombard-general-insurance-co-ltd-v-parth-sareen-2026dhc9918-enhances-for-a-21-year-old-left-in-a-vegetative-state-1625344
-
-[Source Link](https://t.me/verdictumlegalupdates/30128)
-
----
-
-### 2026-11-07T09:12:21+00:00
-Wife’s Pursuit Of Higher Education Or Employment Is A Right, Not Husband’s Favour: Jharkhand High Court
-https://www.verdictum.in/jharkhand-high-court/rd-v-dk-2026jhhc32647-db-woman-education-after-marriage-divorce-cruelty-1625341
-
-[Source Link](https://t.me/verdictumlegalupdates/30127)
 
 ---
 
