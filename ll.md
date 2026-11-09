@@ -1,121 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-08T06:09:25+00:00*
+*Last Updated: 2026-11-08T16:10:11+00:00*
 
 ---
 
-### 2026-11-08T06:09:25+00:00
-NLIU Bhopal's Cell For Studies In Intellectual Property Rights Invites Entries For 1st IP Blog Writing Competition, 2026
-https://www.livelaw.in/lawschool/competitions/nliu-bhopals-cell-for-studies-intellectual-property-rights-invites-entries-1st-ip-blog-writing-competition-557820
-
-[Read on Telegram](https://t.me/livelawindia/124181)
-
----
-### 2026-11-08T06:27:45+00:00
-Madhya Pradesh SLSA Hosts 'Bal Srijan' Exhibition-cum-Sale Of Handicrafts Made By Children
-https://www.livelaw.in/news-updates/madhya-pradesh-slsa-hosts-bal-srijan-exhibition-cum-sale-handicrafts-made-children-557821
-
-[Read on Telegram](https://t.me/livelawindia/124182)
-
----
-### 2026-11-08T07:01:35+00:00
-Bengaluru ADR Week To Host Discussions On AI, Arbitral Independence, Enforcement And Future Of ADR
-https://www.livelaw.in/events/bengaluru-adr-week-to-host-discussions-on-ai-arbitral-independence-enforcement-and-future-of-adr-557822
-
-[Read on Telegram](https://t.me/livelawindia/124183)
-
----
-### 2026-11-08T07:07:55+00:00
-Jindal Global Law School Team Secures 5th Place In Oral Finals At FDI Moot 2026, Wins 3rd Best Claimant Memorial
-https://www.livelaw.in/lawschool/news/jindal-global-law-school-team-secures-5th-place-in-oral-finals-at-fdi-moot-2026-wins-3rd-best-claimant-memorial-557823
-
-[Read on Telegram](https://t.me/livelawindia/124184)
-
----
-### 2026-11-08T07:47:45+00:00
-'Seven Years, Three Witnesses & Incomplete Testimony': J&K&L High Court Reopens Acquittal Case For Retrial
-https://www.livelaw.in/high-court/jammu-kashmir/seven-years-three-witnesses-an-incomplete-testimony-jk-high-court-reopens-acquittal-case-for-retrial-557752
-
-[Read on Telegram](https://t.me/livelawindia/124185)
-
----
-### 2026-11-08T08:47:36+00:00
-Non-Production Of Malkhana Register Alone Cannot Vitiate NDPS Conviction: Tripura High Court Upholds 10-Year Jail Term In 987 Kg Ganja Case
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-nonproduction-malkhana-register-vitiate-ndps-conviction-557764
-
-[Read on Telegram](https://t.me/livelawindia/124186)
-
----
-### 2026-11-08T08:47:56+00:00
-Meghalaya High Court Gives State 4 Months To Process Terminal Benefits For Widow Of Employee Who Died Without Receiving Dues
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-process-terminal-benefits-widow-employee-died-557762
-
-[Read on Telegram](https://t.me/livelawindia/124187)
-
----
-### 2026-11-08T09:57:50+00:00
-Insurance Company Cannot Repudiate Health Claim Without Medical Evidence Justifying Denial: Kurukshetra Consumer Commission
-https://www.livelaw.in/consumer-cases/insurance-company-cannot-repudiate-health-claim-without-medical-evidence-justifying-denial-kurukshetra-consumer-commission-557824
-
-[Read on Telegram](https://t.me/livelawindia/124188)
-
----
-### 2026-11-08T10:33:00+00:00
-LiveLaw Madhya Pradesh High Court Monthly Digest: October 2026 [Citations 399 - 438]
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-monthly-digest-october-2026-557611
-
-[Read on Telegram](https://t.me/livelawindia/124189)
-
----
-### 2026-11-08T11:53:10+00:00
-'Case Of The Victim Cannot Be Totally Neglected': Bombay High Court Upholds Categorization Of Woman Convict In Stricter Category For Remission
-https://www.livelaw.in/high-court/bombay-high-court/categorization-woman-convict-stricter-category-remission-557770
-
-[Read on Telegram](https://t.me/livelawindia/124190)
-
----
-### 2026-11-08T12:30:20+00:00
-NCR Pollution | 'Lungs Of Even Children In Delhi Not Pink', Amicus Tells Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-air-pollution-delhi-ncr-vehicular-pollution-stubble-burning-children-lungs-not-pink-grap-expert-view-valid-diwali-awareness-programmes-557825
-
-[Read on Telegram](https://t.me/livelawindia/124191)
-
----
-### 2026-11-08T13:17:50+00:00
-Meghalaya High Court Quashes POCSO Case After Informed-Consent Review Of Survivor Living With Accused And Their 2 Children
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-quashes-pocso-case-informed-consent-review-survivor-living-with-accused-557772
-
-[Read on Telegram](https://t.me/livelawindia/124192)
-
----
-### 2026-11-08T13:37:11+00:00
-Sikkim High Court Condones National Insurance Company's 223-Day Delay In Filing Revision, Imposes ₹50K Cost For Incorrectly Blaming Counsel
-https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-condones-national-insurance-company-delay-filing-revision-557767
-
-[Read on Telegram](https://t.me/livelawindia/124193)
-
----
-### 2026-11-08T15:39:01+00:00
-Kerala Court Grants Pre-Arrest Bail To UP Influencer Booked For Remarks On Kashi Art Cafe, Asks Him To Appear For Investigation
-https://www.livelaw.in/news-updates/kerala-court-up-actor-kashi-art-cafe-communal-remarks-557830
-
-[Read on Telegram](https://t.me/livelawindia/124194)
-
----
-### 2026-11-08T16:08:31+00:00
-Lead Researcher Vacancy At National Law University, Delhi
-https://www.livelaw.in/job-updates/lead-researcher-vacancy-at-national-law-university-delhi-557831
-
-[Read on Telegram](https://t.me/livelawindia/124195)
-
----
-### 2026-11-08T16:09:31+00:00
-Law Researcher Vacancy At Jagat Guru Nanak Dev Punjab State Open University, Patiala
-https://www.livelaw.in/job-updates/law-researcher-vacancy-at-jagat-guru-nanak-dev-punjab-state-open-university-patiala-557832
-
-[Read on Telegram](https://t.me/livelawindia/124196)
-
----
 ### 2026-11-08T16:10:11+00:00
 Empanelment of Advocates At District Legal Services Authority, Gaya and Sub Divisional Legal Services Committee, Sherghati
 https://www.livelaw.in/job-updates/empanelment-of-advocates-at-district-legal-services-authority-gaya-and-sub-divisional-legal-services-committee-sherghati-557833
@@ -142,5 +30,117 @@ LIVELAW DIWALI OFFER 2026 NOW LIVE: Get Up To 1 Year Of Extra Premium Access; Su
 https://www.livelaw.in/top-stories/livelaw-diwali-offer-2026-now-live-get-up-to-1-year-of-extra-premium-access-subscribe-now-557813
 
 [Read on Telegram](https://t.me/livelawindia/124200)
+
+---
+### 2026-11-09T02:02:53+00:00
+Doctor Assault Case: Kerala Court Denies Regular Bail To Actors Athulya Chandra, Bipin Perumpally
+https://www.livelaw.in/news-updates/kerala-court-doctor-assault-case-athulya-chandra-bipin-perumpally-bail-denied-557837
+
+[Read on Telegram](https://t.me/livelawindia/124201)
+
+---
+### 2026-11-09T02:32:53+00:00
+Research Assistant Vacancy At High Court Of Kerala
+https://www.livelaw.in/job-updates/research-assistant-vacancy-at-high-court-of-kerala-557839
+
+[Read on Telegram](https://t.me/livelawindia/124202)
+
+---
+### 2026-11-09T02:37:33+00:00
+Legal Manager Vacancy At Kotak Mahindra Bank Limited [Chandigarh; Apply Now]
+https://www.livelaw.in/job-updates/legal-manager-vacancy-at-kotak-mahindra-bank-limited-chandigarh-557840
+
+[Read on Telegram](https://t.me/livelawindia/124203)
+
+---
+### 2026-11-09T02:38:33+00:00
+Assistant (Legal) Vacancy At Law And Judiciary Department, Government Of Maharashtra
+https://www.livelaw.in/job-updates/assistant-legal-vacancy-at-law-and-judiciary-department-government-of-maharashtra-557841
+
+[Read on Telegram](https://t.me/livelawindia/124204)
+
+---
+### 2026-11-09T02:44:43+00:00
+Senior Associate Vacancy At Ernst & Young
+https://www.livelaw.in/job-updates/senior-associate-vacancy-at-ernst-young-557842
+
+[Read on Telegram](https://t.me/livelawindia/124205)
+
+---
+### 2026-11-09T03:22:23+00:00
+Supreme Court Disposes Of 2006 Plea Seeking Better Implementation Of PC&PNDT Act Due To Amendments Made In Over Two Decades
+https://www.livelaw.in/top-stories/supreme-court-disposes-2006plea-seeking-better-implementation-pc-pndt-act-557843
+
+[Read on Telegram](https://t.me/livelawindia/124206)
+
+---
+### 2026-11-09T03:32:33+00:00
+LiveLaw Madras High Court Weekly Roundup: November 2 - November 8, 2026
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-november-2-to-november-7-2026-557804
+
+[Read on Telegram](https://t.me/livelawindia/124207)
+
+---
+### 2026-11-09T03:59:14+00:00
+BSNL Liable For Deficiency In Service As Landline Remained Non-Functional For 18 Days: Thrissur Consumer Commission
+https://www.livelaw.in/consumer-cases/bsnl-liable-for-deficiency-in-service-as-landline-remained-non-functional-for-18-days-thrissur-consumer-commission-557844
+
+[Read on Telegram](https://t.me/livelawindia/124208)
+
+---
+### 2026-11-09T04:05:34+00:00
+Jharkhand High Court Sets Aside JSSC Recruitment Cancellation Following Protests, Appointees' Services To Depend On Final Outcome Of Litigation
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-sets-aside-jssc-recruitment-cancellation-following-protests-557845
+
+[Read on Telegram](https://t.me/livelawindia/124209)
+
+---
+### 2026-11-09T04:22:44+00:00
+Judge's Temperamental Issues Don't Mean Dishonesty Or Lack Of Integrity : Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-insubordination-of-judicial-officer-does-not-by-itself-mean-doubtful-integrity-adverse-remarks-in-acr-allahabad-hc-plea-rejected-557836
+
+[Read on Telegram](https://t.me/livelawindia/124210)
+
+---
+### 2026-11-09T04:56:04+00:00
+ED Is Not 'Super Cop', Can't File Private Complaint For Scheduled Offences To Initiate PMLA Probe: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-ed-investigate-anything-everything-comes-notice-557849
+
+[Read on Telegram](https://t.me/livelawindia/124211)
+
+---
+### 2026-11-09T04:58:14+00:00
+Citizen Engagement With Courts: Revisiting K.G Kannabiran's Arguments On Public Interest Litigation
+https://www.livelaw.in/articles/supreme-court-public-interest-litigation-pil-guidelines-k-g-kannabiran-557818
+
+[Read on Telegram](https://t.me/livelawindia/124212)
+
+---
+### 2026-11-09T05:07:54+00:00
+Supreme Court Directs Rajasthan To Frame Policy For Financial Assistance To Industries Setting Up Zero Liquid Discharge Plants
+https://www.livelaw.in/top-stories/supreme-court-directs-rajasthan-to-frame-policy-for-financial-assistance-to-industries-setting-up-zero-liquid-discharge-plants-557838
+
+[Read on Telegram](https://t.me/livelawindia/124213)
+
+---
+### 2026-11-09T05:13:34+00:00
+Top 20 High Court Judgments Of The Week
+https://www.livelaw.in/high-court/all-high-courts/most-important-high-court-judgments-of-the-week-557851
+
+[Read on Telegram](https://t.me/livelawindia/124214)
+
+---
+### 2026-11-09T05:32:14+00:00
+Herbicide Application, Not Product Defect, Caused Orchard Damage: J&K State Consumer Commission Sets Aside ₹1 Lakh Compensation
+https://www.livelaw.in/consumer-cases/herbicide-application-not-product-defect-caused-orchard-damage-jk-state-consumer-commission-sets-aside-1-lakh-compensation-557847
+
+[Read on Telegram](https://t.me/livelawindia/124215)
+
+---
+### 2026-11-09T05:32:54+00:00
+Complainant's Appeal Against Acquittal In Cheque Bounce Case Can Be Dismissed If Accused Is Not Served Notice: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-dismisses-bank-appeal-acquittal-cheque-dishonour-case-557852
+
+[Read on Telegram](https://t.me/livelawindia/124216)
 
 ---
