@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-08T16:10:11+00:00*
+*Last Updated: 2026-11-09T08:22:15+00:00*
 
 ---
 
-### 2026-11-08T16:10:11+00:00
-Empanelment of Advocates At District Legal Services Authority, Gaya and Sub Divisional Legal Services Committee, Sherghati
-https://www.livelaw.in/job-updates/empanelment-of-advocates-at-district-legal-services-authority-gaya-and-sub-divisional-legal-services-committee-sherghati-557833
+### 2026-11-09T08:22:15+00:00
+2026 LiveLaw (SC) 1146 | Vishwajeet Singh @ Bishwajeet Ramanand v State of Bihar & Ors
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1146-vishwajeet-singh-bishwajeet-ramanand-v-state-of-bihar-ors-557883
 
-[Read on Telegram](https://t.me/livelawindia/124197)
-
----
-### 2026-11-08T16:10:52+00:00
-Empanelment Of Advocates And Law Firms Vacancy At Central Mine Planning & Design Institute Limited (CMPDI)
-https://www.livelaw.in/job-updates/empanelment-of-advocates-and-law-firms-vacancy-at-central-mine-planning-design-institute-limited-cmpdi-557834
-
-[Read on Telegram](https://t.me/livelawindia/124198)
+[Read on Telegram](https://t.me/livelawindia/124235)
 
 ---
-### 2026-11-08T17:56:12+00:00
-LiveLaw Delhi High Court Weekly Round-Up: November 02 To November 08, 2026
-https://www.livelaw.in/high-court/delhi-high-court/livelaw-delhi-high-court-weekly-round-up-november-02-to-november-08-2026-557835
+### 2026-11-09T08:32:55+00:00
+Telling Wife To 'Go And Die' Does Not Automatically Amount To Abetment Of Suicide: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-guilt-assumed-merely-because-deceased-committed-suicide-557858
 
-[Read on Telegram](https://t.me/livelawindia/124199)
-
----
-### 2026-11-08T18:37:22+00:00
-LIVELAW DIWALI OFFER 2026 NOW LIVE: Get Up To 1 Year Of Extra Premium Access; Subscribe Now!
-https://www.livelaw.in/top-stories/livelaw-diwali-offer-2026-now-live-get-up-to-1-year-of-extra-premium-access-subscribe-now-557813
-
-[Read on Telegram](https://t.me/livelawindia/124200)
+[Read on Telegram](https://t.me/livelawindia/124236)
 
 ---
-### 2026-11-09T02:02:53+00:00
-Doctor Assault Case: Kerala Court Denies Regular Bail To Actors Athulya Chandra, Bipin Perumpally
-https://www.livelaw.in/news-updates/kerala-court-doctor-assault-case-athulya-chandra-bipin-perumpally-bail-denied-557837
+### 2026-11-09T08:34:35+00:00
+Compulsory Retirement Order Not Punitive Or Stigmatic, So No Hearing Of Employee Needed : Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-upholds-compulsory-retirement-two-government-clerks-based-poor-service-record-557886
 
-[Read on Telegram](https://t.me/livelawindia/124201)
-
----
-### 2026-11-09T02:32:53+00:00
-Research Assistant Vacancy At High Court Of Kerala
-https://www.livelaw.in/job-updates/research-assistant-vacancy-at-high-court-of-kerala-557839
-
-[Read on Telegram](https://t.me/livelawindia/124202)
+[Read on Telegram](https://t.me/livelawindia/124237)
 
 ---
-### 2026-11-09T02:37:33+00:00
-Legal Manager Vacancy At Kotak Mahindra Bank Limited [Chandigarh; Apply Now]
-https://www.livelaw.in/job-updates/legal-manager-vacancy-at-kotak-mahindra-bank-limited-chandigarh-557840
+### 2026-11-09T08:35:35+00:00
+2026 LiveLaw (SC) 1147 | Chatur Singh Dhruw v State of Chhattisgarh & Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1147-chatur-singh-dhruw-v-state-of-chhattisgarh-ors-557887
 
-[Read on Telegram](https://t.me/livelawindia/124203)
-
----
-### 2026-11-09T02:38:33+00:00
-Assistant (Legal) Vacancy At Law And Judiciary Department, Government Of Maharashtra
-https://www.livelaw.in/job-updates/assistant-legal-vacancy-at-law-and-judiciary-department-government-of-maharashtra-557841
-
-[Read on Telegram](https://t.me/livelawindia/124204)
+[Read on Telegram](https://t.me/livelawindia/124238)
 
 ---
-### 2026-11-09T02:44:43+00:00
-Senior Associate Vacancy At Ernst & Young
-https://www.livelaw.in/job-updates/senior-associate-vacancy-at-ernst-young-557842
+### 2026-11-09T09:07:45+00:00
+Man Offering ₹100 To Woman And Asking Her To Accompany Him To Jungle, Holding Her Hand Outrages Her Modesty: HP High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-offering-woman-asking-accompany-holding-hand-outraged-modest-557867
 
-[Read on Telegram](https://t.me/livelawindia/124205)
-
----
-### 2026-11-09T03:22:23+00:00
-Supreme Court Disposes Of 2006 Plea Seeking Better Implementation Of PC&PNDT Act Due To Amendments Made In Over Two Decades
-https://www.livelaw.in/top-stories/supreme-court-disposes-2006plea-seeking-better-implementation-pc-pndt-act-557843
-
-[Read on Telegram](https://t.me/livelawindia/124206)
+[Read on Telegram](https://t.me/livelawindia/124239)
 
 ---
-### 2026-11-09T03:32:33+00:00
-LiveLaw Madras High Court Weekly Roundup: November 2 - November 8, 2026
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-weekly-roundup-november-2-to-november-7-2026-557804
+### 2026-11-09T09:32:45+00:00
+LiveLaw Kerala High Court Weekly Round-Up: November 2 - November 8, 2026
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-weekly-round-november-557878
 
-[Read on Telegram](https://t.me/livelawindia/124207)
-
----
-### 2026-11-09T03:59:14+00:00
-BSNL Liable For Deficiency In Service As Landline Remained Non-Functional For 18 Days: Thrissur Consumer Commission
-https://www.livelaw.in/consumer-cases/bsnl-liable-for-deficiency-in-service-as-landline-remained-non-functional-for-18-days-thrissur-consumer-commission-557844
-
-[Read on Telegram](https://t.me/livelawindia/124208)
+[Read on Telegram](https://t.me/livelawindia/124240)
 
 ---
-### 2026-11-09T04:05:34+00:00
-Jharkhand High Court Sets Aside JSSC Recruitment Cancellation Following Protests, Appointees' Services To Depend On Final Outcome Of Litigation
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-sets-aside-jssc-recruitment-cancellation-following-protests-557845
+### 2026-11-09T10:02:35+00:00
+Meghalaya High Court Quashes POCSO Case Against Man After Finding Survivor's Consent Informed, Notes Couple Is Married With Two Children
+https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-quashes-pocso-case-finding-survivor-consent-informed-557880
 
-[Read on Telegram](https://t.me/livelawindia/124209)
-
----
-### 2026-11-09T04:22:44+00:00
-Judge's Temperamental Issues Don't Mean Dishonesty Or Lack Of Integrity : Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-insubordination-of-judicial-officer-does-not-by-itself-mean-doubtful-integrity-adverse-remarks-in-acr-allahabad-hc-plea-rejected-557836
-
-[Read on Telegram](https://t.me/livelawindia/124210)
+[Read on Telegram](https://t.me/livelawindia/124241)
 
 ---
-### 2026-11-09T04:56:04+00:00
-ED Is Not 'Super Cop', Can't File Private Complaint For Scheduled Offences To Initiate PMLA Probe: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-ed-investigate-anything-everything-comes-notice-557849
+### 2026-11-09T10:18:35+00:00
+Delhi High Court Rejects Plea To Remove Boxing Federation Of India President, Appoint Ad-Hoc Committee
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-rejects-plea-to-remove-boxing-federation-of-india-president-appoint-ad-hoc-committee-557895
 
-[Read on Telegram](https://t.me/livelawindia/124211)
-
----
-### 2026-11-09T04:58:14+00:00
-Citizen Engagement With Courts: Revisiting K.G Kannabiran's Arguments On Public Interest Litigation
-https://www.livelaw.in/articles/supreme-court-public-interest-litigation-pil-guidelines-k-g-kannabiran-557818
-
-[Read on Telegram](https://t.me/livelawindia/124212)
+[Read on Telegram](https://t.me/livelawindia/124242)
 
 ---
-### 2026-11-09T05:07:54+00:00
-Supreme Court Directs Rajasthan To Frame Policy For Financial Assistance To Industries Setting Up Zero Liquid Discharge Plants
-https://www.livelaw.in/top-stories/supreme-court-directs-rajasthan-to-frame-policy-for-financial-assistance-to-industries-setting-up-zero-liquid-discharge-plants-557838
+### 2026-11-09T10:33:05+00:00
+Disputed Easementary Rights Can't Ordinarily Be Decided In Writ Jurisdiction: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-dismisses-farmers-plea-removal-disputed-pathway-holds-easementary-rights-557884
 
-[Read on Telegram](https://t.me/livelawindia/124213)
-
----
-### 2026-11-09T05:13:34+00:00
-Top 20 High Court Judgments Of The Week
-https://www.livelaw.in/high-court/all-high-courts/most-important-high-court-judgments-of-the-week-557851
-
-[Read on Telegram](https://t.me/livelawindia/124214)
+[Read on Telegram](https://t.me/livelawindia/124243)
 
 ---
-### 2026-11-09T05:32:14+00:00
-Herbicide Application, Not Product Defect, Caused Orchard Damage: J&K State Consumer Commission Sets Aside ₹1 Lakh Compensation
-https://www.livelaw.in/consumer-cases/herbicide-application-not-product-defect-caused-orchard-damage-jk-state-consumer-commission-sets-aside-1-lakh-compensation-557847
+### 2026-11-09T10:43:05+00:00
+'Depanelment Of Advocate Is Not Defamation, Merely Discontinues Professional Engagement': Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-rejects-defamation-suit-against-sbi-officials-557869
 
-[Read on Telegram](https://t.me/livelawindia/124215)
+[Read on Telegram](https://t.me/livelawindia/124244)
 
 ---
-### 2026-11-09T05:32:54+00:00
-Complainant's Appeal Against Acquittal In Cheque Bounce Case Can Be Dismissed If Accused Is Not Served Notice: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-dismisses-bank-appeal-acquittal-cheque-dishonour-case-557852
+### 2026-11-09T11:47:56+00:00
+Jharkhand High Court Directs State To Delete Prohibited Land List From Registration Portal, Notes S.22-A Of Registration Act Was Struck Down
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-directs-state-immediately-delete-prohibited-land-list-registration-portal-557870
 
-[Read on Telegram](https://t.me/livelawindia/124216)
+[Read on Telegram](https://t.me/livelawindia/124245)
+
+---
+### 2026-11-09T12:41:26+00:00
+Supreme Court Quarterly Digest 2026 - Prevention Of Corruption Act [July To September]
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-prevention-of-corruption-act-quarterly-digest-2026-557909
+
+[Read on Telegram](https://t.me/livelawindia/124246)
+
+---
+### 2026-11-09T12:44:26+00:00
+Supreme Court Quarterly Digest 2026 - Motor Vehicles Act [July To September]
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-motor-vehicles-act-quarterly-digest-2026-557911
+
+[Read on Telegram](https://t.me/livelawindia/124247)
+
+---
+### 2026-11-09T13:12:56+00:00
+'Duty To Maintain Widow Daughter-In-Law, Children Despite Age': Jharkhand High Court Upholds Maintenance Obligation Of 84-Year-Old Father-In-Law
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-upholds-monthly-maintenance-father-inlaw-557871
+
+[Read on Telegram](https://t.me/livelawindia/124248)
+
+---
+### 2026-11-09T13:45:26+00:00
+LiveLaw Allahabad High Court Weekly Round-Up: November 02 To November 08, 2026
+https://www.livelaw.in/round-ups/weekly/livelaw-allahabad-high-court-weekly-round-up-november-02-to-november-08-2026-557916
+
+[Read on Telegram](https://t.me/livelawindia/124249)
+
+---
+### 2026-11-09T13:56:46+00:00
+Telangana High Court Quashes Cruelty FIR Against NRI Husband For Alleged Incidents In US, Flags Lack Of Territorial Jurisdiction
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-quashes-cruelty-fir-india-nri-husband-alleged-incidents-557920
+
+[Read on Telegram](https://t.me/livelawindia/124250)
+
+---
+### 2026-11-09T13:58:46+00:00
+JHALSA Celebrates Diwali Across Jharkhand, Justice Sujit Narayan Prasad Interacts With Children At Ranchi Observation Home
+https://www.livelaw.in/news-updates/jhalsa-celebrates-diwali-jharkhand-557923
+
+[Read on Telegram](https://t.me/livelawindia/124251)
+
+---
+### 2026-11-09T14:07:26+00:00
+UP Shouldn't Become Investment-Unfriendly : High Court Directs Protection For Environment-Cleared Factory Amid Villagers' Opposition
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-investment-unfriendly-environment-cleared-factory-villagers-opposition-557927
+
+[Read on Telegram](https://t.me/livelawindia/124252)
+
+---
+### 2026-11-09T14:32:36+00:00
+Wife Pursuing Higher Studies Or Employment Cannot Be Labelled 'Over-Ambitious': Jharkhand High Court Grants Divorce To Wife
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-grants-divorce-wife-557922
+
+[Read on Telegram](https://t.me/livelawindia/124253)
+
+---
+### 2026-11-09T15:16:46+00:00
+Supreme Court Directs UP Gov To Identify Undertrials Granted Bail But Haven't Been Released From Jail In 75 Districts
+https://www.livelaw.in/top-stories/supreme-court-directs-up-gov-to-identify-undertrials-granted-bail-but-havent-been-released-from-jail-in-75-districts-557933
+
+[Read on Telegram](https://t.me/livelawindia/124254)
 
 ---
