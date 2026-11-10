@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-10T07:24:44+00:00*
+*Last Updated: 2026-11-10T09:33:05+00:00*
 
 ---
 
-### 2026-11-10T07:24:44+00:00
-Supreme Court Directs WhatsApp And Other Intermediaries To Inform Measures To Prevent Digital Arrest Scam & Cybercrimes
-https://www.livelaw.in/top-stories/supreme-court-directs-whatsapp-apprise-court-measures-prevent-digital-arrest-scam-cybercrimes-557976
-
-[Read on Telegram](https://t.me/livelawindia/124278)
-
----
-### 2026-11-10T07:32:45+00:00
-Police Can't Restrict Licensed Bar Hotels' Operating Hours Merely Apprehending Drug Use: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-dj-party-police-notice-radisson-blu-hotel-557979
-
-[Read on Telegram](https://t.me/livelawindia/124279)
-
----
-### 2026-11-10T07:52:24+00:00
-J&K&L High Court Quashes FIR Over Railway Contract Dispute; Says Signing Agreement In Own Capacity Without Claiming Authority Is Not Forgery
-https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-quashes-fir-over-railway-tunnel-sub-contract-dispute-says-signing-agreement-in-own-capacity-without-claiming-authority-does-not-amount-to-forgery-557925
-
-[Read on Telegram](https://t.me/livelawindia/124280)
-
----
-### 2026-11-10T08:02:44+00:00
-Agricultural Entry In Revenue Records Alone Doesn't Exempt Land From SARFAESI Proceedings: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-revenue-entries-upzalr-absence-declaration-conclusive-agricultural-character-sarfaesi-557981
-
-[Read on Telegram](https://t.me/livelawindia/124281)
-
----
-### 2026-11-10T08:55:25+00:00
-High Court Directs UP Bar Council To Decide Bareilly Bar Affiliation Dispute Within 2 Months After Hearing Rival Associations
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-up-bar-council-rival-bareilly-bar-associations-affiliation-557988
-
-[Read on Telegram](https://t.me/livelawindia/124282)
-
----
 ### 2026-11-10T09:33:05+00:00
 Telangana High Court Seeks State's Response On Farmer's Plea Against Denial Of ₹2 Lakh Crop Loan Waiver
 https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-seeks-state-response-woman-farmer-plea-over-withheld-crop-loan-waiver-557958
@@ -142,5 +107,40 @@ J&K&L High Court Gives Two FCI Employees Last Chance To Save Jobs After Failing 
 https://www.livelaw.in/high-court/jammu-kashmir/food-corporation-employees-given-one-last-chance-to-save-jobs-after-being-denied-adequate-time-to-prepare-for-hindi-typing-test-jk-high-court-557919
 
 [Read on Telegram](https://t.me/livelawindia/124297)
+
+---
+### 2026-11-10T15:03:37+00:00
+Manipur High Court Keeps 2027 Census On Hold Till April 30, Directs Centre To Decide Seven Representations
+https://www.livelaw.in/high-court/manipur-high-court/manipur-high-court-directs-centre-decide-seven-representations-558038
+
+[Read on Telegram](https://t.me/livelawindia/124298)
+
+---
+### 2026-11-10T15:04:37+00:00
+PAN Card And Voter ID Alone Cannot Prove Indian Citizenship Without Supporting Records : Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-pan-card-voter-id-cannot-prove-indian-citizenship-supporting-records-558039
+
+[Read on Telegram](https://t.me/livelawindia/124299)
+
+---
+### 2026-11-10T15:11:57+00:00
+Balance Sheet Entries Can Count As Acknowledgment Of Debt Under S.18 Of Limitation Act: Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-restores-money-recovery-suit-558041
+
+[Read on Telegram](https://t.me/livelawindia/124300)
+
+---
+### 2026-11-10T15:12:57+00:00
+2026 LiveLaw (SC) 1149 | Yusuf v Vigyapan Loke Delhi Advertising CGHS Ltd.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1149-yusuf-v-vigyapan-loke-delhi-advertising-cghs-ltd-558042
+
+[Read on Telegram](https://t.me/livelawindia/124301)
+
+---
+### 2026-11-10T19:56:39+00:00
+LiveLaw High Courts Daily Highlights: November 10, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-10-2026-558045
+
+[Read on Telegram](https://t.me/livelawindia/124302)
 
 ---
