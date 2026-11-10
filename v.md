@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-10T07:13:13+00:00*
+*Last Updated: 2026-11-10T15:33:06+00:00*
+
+---
+
+### 2026-11-10T15:33:06+00:00
+Deputy Manager (Legal) Vacancy At NLC India Limited (NLCIL)
+https://www.verdictum.in/job-updates/nlc-india-limited-1625497
+
+[Source Link](https://t.me/verdictumlegalupdates/30176)
+
+---
+
+### 2026-11-10T14:53:06+00:00
+Family Of Comatose Claimant Cannot Be Faulted For Not Filing ITR For Accident Year: Delhi High Court Enhances Event Manager’s Compensation
+https://www.verdictum.in/delhi-high-court/bharat-ghai-through-his-wife-harpreet-kaur-v-raju-grover-since-deceased-through-his-lrs-2026dhc9958-injured-claimant-in-a-coma-covid-1625501
+
+[Source Link](https://t.me/verdictumlegalupdates/30175)
+
+---
+
+### 2026-11-10T14:12:45+00:00
+Prima Facie Defamatory Passages Cannot Justify Ban On Entire Book: Delhi High Court Lifts Blanket Injunction Against HarperCollins’ “Yes Man” Book On Rana Kapoor
+https://www.verdictum.in/delhi-high-court/harpercollins-publishers-india-pvt-ltd-v-rana-kapoor-2026dhc9973-yes-man-book-1625500
+
+[Source Link](https://t.me/verdictumlegalupdates/30174)
+
+---
+
+### 2026-11-10T13:32:23+00:00
+Number Of Marriages Contracted By A Woman Cannot By Itself Discredit Her Criminal Complaint Against Husband: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/rh-v-state-another-divorce-proceedings-cruelty-multiple-marriages-criminal-complaint-1625499
+
+[Source Link](https://t.me/verdictumlegalupdates/30173)
+
+---
+
+### 2026-11-10T12:52:42+00:00
+Old Age Does Not Exonerate Father-In-Law From Pious Responsibility To Maintain Widowed Daughter-In-Law & Grandchildren: Jharkhand High Court
+https://www.verdictum.in/jharkhand-high-court/2026-jhhc-32181-db-xxx-v-yyyy-1625496
+
+[Source Link](https://t.me/verdictumlegalupdates/30172)
+
+---
+
+### 2026-11-10T12:12:32+00:00
+State Must Provide Infrastructure & Staff: Madras High Court Flags 2,423 Pending Corruption Cases; Issues Directions
+https://www.verdictum.in/madras-high-court/a-shahul-hameed-v-state-of-tamil-nadu-and-others-prevention-corruption-1625495
+
+[Source Link](https://t.me/verdictumlegalupdates/30171)
+
+---
+
+### 2026-11-10T11:32:51+00:00
+Custody Can’t Be Taken By Force: Madras High Court Asks Father To Return 2.5 Year Old Son To Mother
+https://www.verdictum.in/madras-high-court/a-v-the-commissioner-of-police-custody-force-father-son-mother-1625491
+
+[Source Link](https://t.me/verdictumlegalupdates/30170)
+
+---
+
+### 2026-11-10T10:52:30+00:00
+Manufacturer Liable To Motor Vehicle Tax On Finished Vehicles Stocked In Factory, Proof Of Road Use Not Necessary: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/2026-rj-jp-31407-db-honda-motorcycle-and-scooter-india-pvt-ltd-v-union-of-india-1625490
+
+[Source Link](https://t.me/verdictumlegalupdates/30169)
+
+---
+
+### 2026-11-10T10:12:49+00:00
+Disputed Easementary Right Requiring Oral & Documentary Evidence Can’t Ordinarily Be Decided In Writ Jurisdiction: Andhra Pradesh High Court
+https://www.verdictum.in/andhra-pradesh-high-court/chinthalapati-venkata-satyanarayana-raju-and-others-v-state-of-andhra-pradesh-and-others-1625489
+
+[Source Link](https://t.me/verdictumlegalupdates/30168)
+
+---
+
+### 2026-11-10T09:32:55+00:00
+ED Is Not A Super Cop; Cannot File Private Complaint When Police Don’t Act On Information Shared U/S 66(2) PMLA: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/2026-khc-61902-yb-ashwathanarayan-v-union-of-india-1625488
+
+[Source Link](https://t.me/verdictumlegalupdates/30167)
+
+---
+
+### 2026-11-10T08:53:19+00:00
+Welfare Stamp On Vakalat Is Not A Toll On Right To Practise: Telangana High Court Upholds Mandatory Advocates Welfare Fund Levy
+https://www.verdictum.in/telangana-high-court/vijay-gopal-v-state-of-telangana-writ-petition-no-13352-of-2025-advocates-welfare-fund-levy-1625487
+
+[Source Link](https://t.me/verdictumlegalupdates/30166)
+
+---
+
+### 2026-11-10T08:02:33+00:00
+Gorkha Seva Sena’s Invitation To Consultation On Darjeeling-Sikkim Unification Does Not Attract S.196 BNS: Sikkim High Court Quashes Case
+https://www.verdictum.in/sikkim-high-court/bikram-rai-bikramadi-rai-v-state-of-sikkim-crl-mc-no-01-of-2026-gorkha-seva-senas-invitation-1625486
+
+[Source Link](https://t.me/verdictumlegalupdates/30165)
 
 ---
 
@@ -65,102 +161,6 @@ Arbitrary State Action Warrants Compensation: Allahabad High Court Awards ₹15L
 https://www.verdictum.in/allahabad-high-court/tej-prakash-v-state-of-uttar-pradesh-and-others-2026ahc228068-vehicle-confiscation-1625444
 
 [Source Link](https://t.me/verdictumlegalupdates/30157)
-
----
-
-### 2026-11-09T14:32:47+00:00
-Delhi Air Pollution|Supreme Court Flags Sharp Rise In Vehicular Emissions, Seeks Response On Inter-State Vehicle Regulation
-https://www.verdictum.in/supreme-court/delhi-air-pollution-flags-sharp-rise-vehicular-emissions-responses-states-inter-state-vehicle-regulation-1625453
-
-[Source Link](https://t.me/verdictumlegalupdates/30156)
-
----
-
-### 2026-11-09T14:03:07+00:00
-Assisting Court Is An Essential Duty: Delhi HC Exempts NCR-Based Lawyers & Staff From Winter Vehicle Restrictions
-https://www.verdictum.in/delhi-high-court/delhi-high-court-bar-association-v-union-of-india-1625451
-
-[Source Link](https://t.me/verdictumlegalupdates/30155)
-
----
-
-### 2026-11-09T13:33:05+00:00
-Large Scale Conversions With Objective Of Converting India To Islamic State: Allahabad High Court Refuses To Grant Bail To 8 Convicts
-https://www.verdictum.in/allahabad-high-court/kunal-ashok-chaudhari-atif-v-state-of-up-conversion-funding-outside-bail-convicts-1625443
-
-[Source Link](https://t.me/verdictumlegalupdates/30154)
-
----
-
-### 2026-11-09T12:52:45+00:00
-Court Must Expedite Trial Instead Of Granting Bail In UAPA Cases: Bombay High Court Sets Aside Sachin Waze's Bail In Antilia Bomb Scare Case
-https://www.verdictum.in/bombay-high-court/national-investigation-agency-v-state-of-maharashtra-and-another-2026bhc-as45322-db-1625439
-
-[Source Link](https://t.me/verdictumlegalupdates/30153)
-
----
-
-### 2026-11-09T12:12:24+00:00
-Appeal Against Acquittal U/S 138 NI Act Can Be Dismissed For Non-Prosecution If No Steps Taken To Serve Notice On Accused: Andhra Pradesh HC
-https://www.verdictum.in/andhra-pradesh-high-court/complainant-appeal-acquittal-section-138-ni-act-dismissed-non-prosecution-if-notice-not-served-1625438
-
-[Source Link](https://t.me/verdictumlegalupdates/30152)
-
----
-
-### 2026-11-09T11:32:23+00:00
-Offence Committed Before Accused Became Legislator Can Be Tried By MP/MLA Special Court: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/bm-farooq-bava-mohammed-farookh-v-state-of-karnataka-and-another-1625436
-
-[Source Link](https://t.me/verdictumlegalupdates/30151)
-
----
-
-### 2026-11-09T10:52:02+00:00
-Mere Reporting Of Violent Incident Doesn't Amount To Promoting Enmity Between Groups: Madhya Pradesh HC Quashes FIR Against Journalist
-https://www.verdictum.in/supreme-court/2026-mphcjbp-86748-uvesh-khan-v-state-section-1961-bnss-1625435
-
-[Source Link](https://t.me/verdictumlegalupdates/30150)
-
----
-
-### 2026-11-09T10:12:21+00:00
-S. 8 Hindu Succession Act| Grandson Has No Birthright In Property Father Got On Partition Among Class I Heirs: Supreme Court
-https://www.verdictum.in/supreme-court/j-rajesh-minor-through-his-mother-and-natural-guardian-j-gomathi-v-m-kumaran-dead-through-lrs-2026-insc-1208-grandfathers-property-1625434
-
-[Source Link](https://t.me/verdictumlegalupdates/30149)
-
----
-
-### 2026-11-09T08:42:39+00:00
-Sexual Harassment Charge U/S 75 BNS Sustainable Where Victim Is Transgender Person Identifying As Woman: Bombay High Court
-https://www.verdictum.in/bombay-high-court/vishal-sunil-ingle-v-state-of-maharashtra-2026bhc-nag15063-transgender-person-identifying-as-woman-1625425
-
-[Source Link](https://t.me/verdictumlegalupdates/30148)
-
----
-
-### 2026-11-09T07:52:18+00:00
-Executive Act Cannot Contravene Judicial Order: Jharkhand High Court Quashes JSSC-CGL Recruitment Cancellation, Restores Appointments
-https://www.verdictum.in/jharkhand-high-court/ramesh-oraon-and-others-v-state-of-jharkhand-and-others-2026jhhc32695-1625423
-
-[Source Link](https://t.me/verdictumlegalupdates/30147)
-
----
-
-### 2026-11-09T07:01:37+00:00
-Supreme Court Upholds High Court’s Order Permitting CBI Preliminary Enquiry Against Pastor Ankur Narula In PIL About Religious Conversion
-https://www.verdictum.in/supreme-court/declines-interfere-cbi-preliminary-enquiry-against-pastor-ankur-narula-religious-conversion-1625421
-
-[Source Link](https://t.me/verdictumlegalupdates/30146)
-
----
-
-### 2026-11-09T06:12:36+00:00
-Non-Existent AI-Generated Judgments: Bombay High Court Quashes Customs Commissioner’s Order
-https://www.verdictum.in/bombay-high-court/quanta-logistics-pvt-ltd-v-commissioner-of-customs-import-i-2026bhc-os24069-db-ai-generated-judgments-1625415
-
-[Source Link](https://t.me/verdictumlegalupdates/30145)
 
 ---
 
