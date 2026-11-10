@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-09T16:02:35+00:00*
+*Last Updated: 2026-11-10T07:13:13+00:00*
+
+---
+
+### 2026-11-10T07:13:13+00:00
+Hardship To Litigants Must Be Compensated From His Own Pocket: Gujarat High Court Imposes ₹1 Lakh Cost On Collector
+https://www.verdictum.in/gujarat-high-court/2026-gujhc-71914-bhumikaben-v-collector-1625485
+
+[Source Link](https://t.me/verdictumlegalupdates/30164)
+
+---
+
+### 2026-11-10T06:32:52+00:00
+Offering Woman Money, Catching Hold Of Her Hand & Asking Her To Go To Jungle Amounts To Outraging Her Modesty: Himachal Pradesh High Court
+https://www.verdictum.in/himachal-high-court/punnu-ram-v-state-of-hp-2026hhc47931-woman-money-hand-outraging-modesty-1625478
+
+[Source Link](https://t.me/verdictumlegalupdates/30163)
+
+---
+
+### 2026-11-10T05:52:31+00:00
+Weekly Overview| Supreme Court Judgments: November 2 – November 6, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-november-2-november-6-2026-1625472
+
+[Source Link](https://t.me/verdictumlegalupdates/30162)
+
+---
+
+### 2026-11-10T05:12:50+00:00
+Composite Mark Registration Does Not Confer Exclusive Right Over Common Element Absent Proof Of Distinctiveness: Delhi High Court
+https://www.verdictum.in/delhi-high-court/educomp-solutions-limited-v-mr-bd-park-and-others-2026dhc10007-trademarks-1625445
+
+[Source Link](https://t.me/verdictumlegalupdates/30161)
+
+---
+
+### 2026-11-10T04:33:09+00:00
+Prescription Of Minimum Sentence Does Not Bar Probation: Punjab & Haryana High Court Grants Relief To Arms Act Convicts
+https://www.verdictum.in/punjab-and-haryana-high-court/vikram-and-another-v-state-of-haryana-2026phhc198589-arms-act-probation-1625450
+
+[Source Link](https://t.me/verdictumlegalupdates/30160)
 
 ---
 
@@ -121,46 +161,6 @@ Non-Existent AI-Generated Judgments: Bombay High Court Quashes Customs Commissio
 https://www.verdictum.in/bombay-high-court/quanta-logistics-pvt-ltd-v-commissioner-of-customs-import-i-2026bhc-os24069-db-ai-generated-judgments-1625415
 
 [Source Link](https://t.me/verdictumlegalupdates/30145)
-
----
-
-### 2026-11-09T05:22:55+00:00
-Authorities Can Prevent Registered Child Sex Offender In US From Entering India: Delhi High Court Dismisses OCI Card Holder’s Petition
-https://www.verdictum.in/delhi-high-court/charnjit-singh-bains-v-union-of-india-2026dhc9891-authorities-child-sex-offender-us-india-1625409
-
-[Source Link](https://t.me/verdictumlegalupdates/30144)
-
----
-
-### 2026-11-09T04:32:36+00:00
-RTE Act | Sec.27 Permits Deployment Of Teachers For Election-Related BLO Duties: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/azra-parveen-v-state-of-up-2026ahc226999-rte-act-sec27-deployment-teachers-blo-duties-1625370
-
-[Source Link](https://t.me/verdictumlegalupdates/30143)
-
----
-
-### 2026-11-08T15:02:21+00:00
-Senior Associate Vacancy At National Highways and Infrastructure Development Corporation Limited
-https://www.verdictum.in/job-updates/national-highways-and-infrastructure-development-corporation-limited-1625365
-
-[Source Link](https://t.me/verdictumlegalupdates/30142)
-
----
-
-### 2026-11-08T12:03:00+00:00
-Looking At Woman Inappropriately Does Not By Itself Constitute Demand For Sexual Favours U/S 75(1)(ii) BNS: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/hafeez-khasim-v-state-of-karnataka-and-another-2026khc60690-sexual-favour-1625369
-
-[Source Link](https://t.me/verdictumlegalupdates/30141)
-
----
-
-### 2026-11-08T10:32:39+00:00
-ST Candidate From One State Can't Claim Reservation In Another Merely Because Same Tribe Is Notified In Both States: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/baria-sharmishtha-ben-v-state-of-rajasthan-and-others-2026rj-jd55282-db-1625357
-
-[Source Link](https://t.me/verdictumlegalupdates/30140)
 
 ---
 
