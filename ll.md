@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-09T08:22:15+00:00*
+*Last Updated: 2026-11-09T08:35:35+00:00*
 
 ---
 
-### 2026-11-09T08:22:15+00:00
-2026 LiveLaw (SC) 1146 | Vishwajeet Singh @ Bishwajeet Ramanand v State of Bihar & Ors
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1146-vishwajeet-singh-bishwajeet-ramanand-v-state-of-bihar-ors-557883
-
-[Read on Telegram](https://t.me/livelawindia/124235)
-
----
-### 2026-11-09T08:32:55+00:00
-Telling Wife To 'Go And Die' Does Not Automatically Amount To Abetment Of Suicide: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-guilt-assumed-merely-because-deceased-committed-suicide-557858
-
-[Read on Telegram](https://t.me/livelawindia/124236)
-
----
-### 2026-11-09T08:34:35+00:00
-Compulsory Retirement Order Not Punitive Or Stigmatic, So No Hearing Of Employee Needed : Supreme Court
-https://www.livelaw.in/top-stories/supreme-court-upholds-compulsory-retirement-two-government-clerks-based-poor-service-record-557886
-
-[Read on Telegram](https://t.me/livelawindia/124237)
-
----
 ### 2026-11-09T08:35:35+00:00
 2026 LiveLaw (SC) 1147 | Chatur Singh Dhruw v State of Chhattisgarh & Ors.
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1147-chatur-singh-dhruw-v-state-of-chhattisgarh-ors-557887
@@ -142,5 +121,26 @@ Supreme Court Directs UP Gov To Identify Undertrials Granted Bail But Haven't Be
 https://www.livelaw.in/top-stories/supreme-court-directs-up-gov-to-identify-undertrials-granted-bail-but-havent-been-released-from-jail-in-75-districts-557933
 
 [Read on Telegram](https://t.me/livelawindia/124254)
+
+---
+### 2026-11-09T16:07:16+00:00
+Police Cannot Permanently Seal Property On Apprehension Of Future Illegal Drug Manufacturing Or Sale: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-police-cannot-permanently-seal-property-drug-manufacturing-557942
+
+[Read on Telegram](https://t.me/livelawindia/124255)
+
+---
+### 2026-11-09T16:17:36+00:00
+Women Seeking Maintenance For Children Cannot Be Labelled 'Gold Diggers': Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-maintenance-child-woman-dignity-not-to-be-attacked-557944
+
+[Read on Telegram](https://t.me/livelawindia/124256)
+
+---
+### 2026-11-09T18:09:36+00:00
+LiveLaw High Courts Daily Highlights: November 09, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-09-2026-557950
+
+[Read on Telegram](https://t.me/livelawindia/124257)
 
 ---
