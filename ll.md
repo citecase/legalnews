@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-09T08:35:35+00:00*
+*Last Updated: 2026-11-10T07:24:44+00:00*
 
 ---
 
-### 2026-11-09T08:35:35+00:00
-2026 LiveLaw (SC) 1147 | Chatur Singh Dhruw v State of Chhattisgarh & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1147-chatur-singh-dhruw-v-state-of-chhattisgarh-ors-557887
+### 2026-11-10T07:24:44+00:00
+Supreme Court Directs WhatsApp And Other Intermediaries To Inform Measures To Prevent Digital Arrest Scam & Cybercrimes
+https://www.livelaw.in/top-stories/supreme-court-directs-whatsapp-apprise-court-measures-prevent-digital-arrest-scam-cybercrimes-557976
 
-[Read on Telegram](https://t.me/livelawindia/124238)
-
----
-### 2026-11-09T09:07:45+00:00
-Man Offering ₹100 To Woman And Asking Her To Accompany Him To Jungle, Holding Her Hand Outrages Her Modesty: HP High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-offering-woman-asking-accompany-holding-hand-outraged-modest-557867
-
-[Read on Telegram](https://t.me/livelawindia/124239)
+[Read on Telegram](https://t.me/livelawindia/124278)
 
 ---
-### 2026-11-09T09:32:45+00:00
-LiveLaw Kerala High Court Weekly Round-Up: November 2 - November 8, 2026
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-weekly-round-november-557878
+### 2026-11-10T07:32:45+00:00
+Police Can't Restrict Licensed Bar Hotels' Operating Hours Merely Apprehending Drug Use: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-dj-party-police-notice-radisson-blu-hotel-557979
 
-[Read on Telegram](https://t.me/livelawindia/124240)
-
----
-### 2026-11-09T10:02:35+00:00
-Meghalaya High Court Quashes POCSO Case Against Man After Finding Survivor's Consent Informed, Notes Couple Is Married With Two Children
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-quashes-pocso-case-finding-survivor-consent-informed-557880
-
-[Read on Telegram](https://t.me/livelawindia/124241)
+[Read on Telegram](https://t.me/livelawindia/124279)
 
 ---
-### 2026-11-09T10:18:35+00:00
-Delhi High Court Rejects Plea To Remove Boxing Federation Of India President, Appoint Ad-Hoc Committee
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-rejects-plea-to-remove-boxing-federation-of-india-president-appoint-ad-hoc-committee-557895
+### 2026-11-10T07:52:24+00:00
+J&K&L High Court Quashes FIR Over Railway Contract Dispute; Says Signing Agreement In Own Capacity Without Claiming Authority Is Not Forgery
+https://www.livelaw.in/high-court/jammu-kashmir/jk-high-court-quashes-fir-over-railway-tunnel-sub-contract-dispute-says-signing-agreement-in-own-capacity-without-claiming-authority-does-not-amount-to-forgery-557925
 
-[Read on Telegram](https://t.me/livelawindia/124242)
-
----
-### 2026-11-09T10:33:05+00:00
-Disputed Easementary Rights Can't Ordinarily Be Decided In Writ Jurisdiction: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-dismisses-farmers-plea-removal-disputed-pathway-holds-easementary-rights-557884
-
-[Read on Telegram](https://t.me/livelawindia/124243)
+[Read on Telegram](https://t.me/livelawindia/124280)
 
 ---
-### 2026-11-09T10:43:05+00:00
-'Depanelment Of Advocate Is Not Defamation, Merely Discontinues Professional Engagement': Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-rejects-defamation-suit-against-sbi-officials-557869
+### 2026-11-10T08:02:44+00:00
+Agricultural Entry In Revenue Records Alone Doesn't Exempt Land From SARFAESI Proceedings: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-revenue-entries-upzalr-absence-declaration-conclusive-agricultural-character-sarfaesi-557981
 
-[Read on Telegram](https://t.me/livelawindia/124244)
-
----
-### 2026-11-09T11:47:56+00:00
-Jharkhand High Court Directs State To Delete Prohibited Land List From Registration Portal, Notes S.22-A Of Registration Act Was Struck Down
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-directs-state-immediately-delete-prohibited-land-list-registration-portal-557870
-
-[Read on Telegram](https://t.me/livelawindia/124245)
+[Read on Telegram](https://t.me/livelawindia/124281)
 
 ---
-### 2026-11-09T12:41:26+00:00
-Supreme Court Quarterly Digest 2026 - Prevention Of Corruption Act [July To September]
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-prevention-of-corruption-act-quarterly-digest-2026-557909
+### 2026-11-10T08:55:25+00:00
+High Court Directs UP Bar Council To Decide Bareilly Bar Affiliation Dispute Within 2 Months After Hearing Rival Associations
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-up-bar-council-rival-bareilly-bar-associations-affiliation-557988
 
-[Read on Telegram](https://t.me/livelawindia/124246)
-
----
-### 2026-11-09T12:44:26+00:00
-Supreme Court Quarterly Digest 2026 - Motor Vehicles Act [July To September]
-https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-motor-vehicles-act-quarterly-digest-2026-557911
-
-[Read on Telegram](https://t.me/livelawindia/124247)
+[Read on Telegram](https://t.me/livelawindia/124282)
 
 ---
-### 2026-11-09T13:12:56+00:00
-'Duty To Maintain Widow Daughter-In-Law, Children Despite Age': Jharkhand High Court Upholds Maintenance Obligation Of 84-Year-Old Father-In-Law
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-upholds-monthly-maintenance-father-inlaw-557871
+### 2026-11-10T09:33:05+00:00
+Telangana High Court Seeks State's Response On Farmer's Plea Against Denial Of ₹2 Lakh Crop Loan Waiver
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-seeks-state-response-woman-farmer-plea-over-withheld-crop-loan-waiver-557958
 
-[Read on Telegram](https://t.me/livelawindia/124248)
-
----
-### 2026-11-09T13:45:26+00:00
-LiveLaw Allahabad High Court Weekly Round-Up: November 02 To November 08, 2026
-https://www.livelaw.in/round-ups/weekly/livelaw-allahabad-high-court-weekly-round-up-november-02-to-november-08-2026-557916
-
-[Read on Telegram](https://t.me/livelawindia/124249)
+[Read on Telegram](https://t.me/livelawindia/124283)
 
 ---
-### 2026-11-09T13:56:46+00:00
-Telangana High Court Quashes Cruelty FIR Against NRI Husband For Alleged Incidents In US, Flags Lack Of Territorial Jurisdiction
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-quashes-cruelty-fir-india-nri-husband-alleged-incidents-557920
+### 2026-11-10T10:01:15+00:00
+UP Jails House 80,326 Inmates Against Capacity Of 76,162, Allahabad High Court Told; Prison DG's Affidavit Sought On Overcrowding
+https://www.livelaw.in/high-court/allahabad-high-court/up-jails-overcrowding-80326-prisoners-allahabad-high-court-prison-dg-affidavit-557993
 
-[Read on Telegram](https://t.me/livelawindia/124250)
-
----
-### 2026-11-09T13:58:46+00:00
-JHALSA Celebrates Diwali Across Jharkhand, Justice Sujit Narayan Prasad Interacts With Children At Ranchi Observation Home
-https://www.livelaw.in/news-updates/jhalsa-celebrates-diwali-jharkhand-557923
-
-[Read on Telegram](https://t.me/livelawindia/124251)
+[Read on Telegram](https://t.me/livelawindia/124284)
 
 ---
-### 2026-11-09T14:07:26+00:00
-UP Shouldn't Become Investment-Unfriendly : High Court Directs Protection For Environment-Cleared Factory Amid Villagers' Opposition
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-investment-unfriendly-environment-cleared-factory-villagers-opposition-557927
+### 2026-11-10T10:07:15+00:00
+Death Of Ex Parte Respondent Does Not Justify Recalling Judgment When Appeal Remains Available: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/death-of-ex-parte-respondent-does-not-justify-recalling-judgment-when-appeal-remains-available-jk-high-court-557924
 
-[Read on Telegram](https://t.me/livelawindia/124252)
-
----
-### 2026-11-09T14:32:36+00:00
-Wife Pursuing Higher Studies Or Employment Cannot Be Labelled 'Over-Ambitious': Jharkhand High Court Grants Divorce To Wife
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-grants-divorce-wife-557922
-
-[Read on Telegram](https://t.me/livelawindia/124253)
+[Read on Telegram](https://t.me/livelawindia/124285)
 
 ---
-### 2026-11-09T15:16:46+00:00
-Supreme Court Directs UP Gov To Identify Undertrials Granted Bail But Haven't Been Released From Jail In 75 Districts
-https://www.livelaw.in/top-stories/supreme-court-directs-up-gov-to-identify-undertrials-granted-bail-but-havent-been-released-from-jail-in-75-districts-557933
+### 2026-11-10T10:32:45+00:00
+LiveLaw Andhra Pradesh High Court Monthly Digest: October 2026
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-monthly-digest-october2026-557613
 
-[Read on Telegram](https://t.me/livelawindia/124254)
-
----
-### 2026-11-09T16:07:16+00:00
-Police Cannot Permanently Seal Property On Apprehension Of Future Illegal Drug Manufacturing Or Sale: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-police-cannot-permanently-seal-property-drug-manufacturing-557942
-
-[Read on Telegram](https://t.me/livelawindia/124255)
+[Read on Telegram](https://t.me/livelawindia/124286)
 
 ---
-### 2026-11-09T16:17:36+00:00
-Women Seeking Maintenance For Children Cannot Be Labelled 'Gold Diggers': Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-maintenance-child-woman-dignity-not-to-be-attacked-557944
+### 2026-11-10T11:16:15+00:00
+Calcutta High Court Declines Urgent Relief In Plea Alleging Fake Encounter Threat To Abhishek Banerjee's PA Sumit Roy
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-declines-urgent-relief-in-plea-alleging-fake-encounter-threat-to-abhishek-banerjees-pa-sumit-roy-557999
 
-[Read on Telegram](https://t.me/livelawindia/124256)
+[Read on Telegram](https://t.me/livelawindia/124287)
 
 ---
-### 2026-11-09T18:09:36+00:00
-LiveLaw High Courts Daily Highlights: November 09, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-09-2026-557950
+### 2026-11-10T12:03:25+00:00
+Noise Pollution From Mushrooming Construction Sites In Mumbai A Serious Issue Needing Urgent Redressal: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/noise-pollution-construction-sites-mumbai-serious-issue-558011
 
-[Read on Telegram](https://t.me/livelawindia/124257)
+[Read on Telegram](https://t.me/livelawindia/124288)
+
+---
+### 2026-11-10T12:15:45+00:00
+Calcutta High Court Dismisses Fresh Plea Against Demolition Of 'Illegal' Building, Says Pending Appeal Does Not Automatically Stay Court's Order
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-dismisses-fresh-plea-against-demolition-of-illegal-building-says-pending-appeal-does-not-automatically-stay-courts-order-558017
+
+[Read on Telegram](https://t.me/livelawindia/124289)
+
+---
+### 2026-11-10T12:37:45+00:00
+'Mental Illness Cannot Be Ground For Divorce, Refusal To Undergo Treatment Not Automatically Cruelty': Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-mental-illness-refusal-undergo-treatment-automatically-cruelty-558001
+
+[Read on Telegram](https://t.me/livelawindia/124290)
+
+---
+### 2026-11-10T12:57:36+00:00
+'Compounding Of Companies Act Offence Extinguishes Foundation Of Criminal Prosecution': Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-compounding-companies-act-offence-extinguishes-foundation-criminal-prosecution-557921
+
+[Read on Telegram](https://t.me/livelawindia/124291)
+
+---
+### 2026-11-10T13:02:36+00:00
+AI-Generated Books For Public Libraries? Madras High Court Directs DVAC To Register FIR, Directs Freezing Of Publishers' Bank Accounts
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-book-procurement-scam-dvac-directed-register-fir-freeze-bank-account-558026
+
+[Read on Telegram](https://t.me/livelawindia/124292)
+
+---
+### 2026-11-10T13:07:56+00:00
+Failure To Prove Penetrative Sexual Assault Warrants Modification Of Conviction: Tripura High Court Reduces POCSO Sentence
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-reduces-pocso-conviction-aggravated-penetrative-sexual-assault-558000
+
+[Read on Telegram](https://t.me/livelawindia/124293)
+
+---
+### 2026-11-10T13:14:17+00:00
+Drunk Driving | Authorities Need Not Wait For Criminal Conviction To Suspend Or Revoke Driving Licence: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-drunken-driving-suspend-revoke-driving-licence-558029
+
+[Read on Telegram](https://t.me/livelawindia/124294)
+
+---
+### 2026-11-10T13:27:37+00:00
+Mental Health Centres To Be Renamed As 'Regional Institute For Happiness And Wellness': State Tells Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-mental-health-centres-rename-558030
+
+[Read on Telegram](https://t.me/livelawindia/124295)
+
+---
+### 2026-11-10T13:37:57+00:00
+2423 Corruption Cases Pending Throughout TN: Madras High Court Asks State To Examine Setting Up Special Courts
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-corruption-cases-pending-state-setup-special-courts-558032
+
+[Read on Telegram](https://t.me/livelawindia/124296)
+
+---
+### 2026-11-10T13:57:27+00:00
+J&K&L High Court Gives Two FCI Employees Last Chance To Save Jobs After Failing Mandatory Hindi Typing Test
+https://www.livelaw.in/high-court/jammu-kashmir/food-corporation-employees-given-one-last-chance-to-save-jobs-after-being-denied-adequate-time-to-prepare-for-hindi-typing-test-jk-high-court-557919
+
+[Read on Telegram](https://t.me/livelawindia/124297)
 
 ---
