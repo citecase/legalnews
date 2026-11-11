@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-10T19:56:39+00:00*
+*Last Updated: 2026-11-11T07:11:54+00:00*
 
 ---
 
-### 2026-11-10T19:56:39+00:00
-LiveLaw High Courts Daily Highlights: November 10, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-10-2026-558045
+### 2026-11-11T07:11:54+00:00
+LiveLaw Andhra Pradesh High Court Weekly Round-Up: November 2 - November 8, 2026
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-weekly-roundup-558087
 
-[Read on Telegram](https://t.me/livelawindia/124302)
-
----
-### 2026-11-11T02:32:35+00:00
-Delhi High Court Restrains US Copyright Suit Against TV Today Network Over Weather Footage In News Reports
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-restrains-us-copyright-suit-against-tv-today-network-over-weather-footage-in-news-reports-558048
-
-[Read on Telegram](https://t.me/livelawindia/124303)
+[Read on Telegram](https://t.me/livelawindia/124336)
 
 ---
-### 2026-11-11T03:12:45+00:00
-Federal Footprints Lead To Which Magistrate? A Critical Analysis of Sabena Prakash v. State of Andhra Pradesh
-https://www.livelaw.in/articles/andhra-pradesh-high-court-sabena-prakash-interstate-arrest-transit-remand-nearest-magistrate-558054
+### 2026-11-11T07:18:14+00:00
+P&H High Court Frames 'Root Of Eligibility Test' To Protect Eligible Candidates From Rejection Over Application Errors
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/ph-high-court-frames-root-of-eligibility-test-to-protect-eligible-candidates-from-rejection-over-application-errors-558078
 
-[Read on Telegram](https://t.me/livelawindia/124304)
-
----
-### 2026-11-11T03:32:15+00:00
-Delhi High Court Dismisses Plea Seeking Rules To Address Misconduct By Airlines Staff
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-dismisses-plea-seeking-rules-to-address-misconduct-by-airlines-staff-558046
-
-[Read on Telegram](https://t.me/livelawindia/124305)
+[Read on Telegram](https://t.me/livelawindia/124337)
 
 ---
-### 2026-11-11T03:47:32+00:00
-Sabarimala Gold Theft: SIT Seeks Sanction To Prosecute Accused Officials, Kerala High Court Calls For Expeditious Action
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sabarimala-gold-theft-final-report-prosecution-sanction-558052
+### 2026-11-11T07:41:14+00:00
+Veeramani's Daughter Moves Madras High Court Alleging Illegal Detention, Human Rights Violations By SIT
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-veeramani-pocso-case-sit-respond-daughter-plea-human-right-violation-558090
 
-[Read on Telegram](https://t.me/livelawindia/124306)
-
----
-### 2026-11-11T04:02:32+00:00
-MCD & Police Must Ensure Chandni Chowk Remains Free Of Encroachments, Accessible To Pedestrians: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/mcd-police-ensure-chandni-chowk-encroachment-free-accessible-to-pedestrians-558047
-
-[Read on Telegram](https://t.me/livelawindia/124307)
+[Read on Telegram](https://t.me/livelawindia/124338)
 
 ---
-### 2026-11-11T04:18:13+00:00
-Aadhaar Card Not Conclusive Proof Of Age, Postmortem Report More Reliable: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-age-reported-in-postmortem-report-more-valid-than-aadhaar-558056
+### 2026-11-11T08:03:05+00:00
+AI-Generated Marksheet Produced Before Court? Allahabad High Court Orders Police Probe, Says It Tarnishes Dignity Of Institution
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-ai-generated-marksheet-produced-before-court-police-probe-558093
 
-[Read on Telegram](https://t.me/livelawindia/124308)
-
----
-### 2026-11-11T04:32:33+00:00
-Written Down Or Left Out: Biodiversity Amendment And Northeast's Oral Knowledge
-https://www.livelaw.in/articles/written-down-left-out-biodiversity-amendment-northeast-oral-knowledge-558034
-
-[Read on Telegram](https://t.me/livelawindia/124309)
+[Read on Telegram](https://t.me/livelawindia/124339)
 
 ---
-### 2026-11-11T04:32:53+00:00
-LiveLaw Kerala High Court Monthly Digest: October, 2026
-https://www.livelaw.in/high-court/kerala-high-court/livelaw-kerala-high-court-monthly-digest-october-2026-557616
+### 2026-11-11T08:03:15+00:00
+'Replying To Show-Cause Notice That Does Not Mention Proposed Debarment Cannot Amount To Waiver Of Natural Justice': Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-replying-show-cause-notice-mention-proposed-debarment-558010
 
-[Read on Telegram](https://t.me/livelawindia/124310)
-
----
-### 2026-11-11T04:34:33+00:00
-Vehicle Washed Away In Floods: J&K State Commission Directs National Insurance To Pay ₹7.85 Lakh
-https://www.livelaw.in/consumer-cases/vehicle-washed-away-in-floods-jk-state-commission-directs-national-insurance-to-pay-785-lakh-558060
-
-[Read on Telegram](https://t.me/livelawindia/124311)
+[Read on Telegram](https://t.me/livelawindia/124340)
 
 ---
-### 2026-11-11T04:43:43+00:00
-Associate Corporate Counsel Vacancy At Amazon Healthcare Services Private Limited
-https://www.livelaw.in/job-updates/associate-corporate-counsel-vacancy-at-amazon-healthcare-services-private-limited-558063
+### 2026-11-11T08:17:25+00:00
+Tripura High Court Rejects ED's Plea To Lift Stay On Provisional Attachment Proceedings Against Suspended IAS Officer
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-refuses-vacate-stay-ed-provisional-attachment-proceedings-558091
 
-[Read on Telegram](https://t.me/livelawindia/124312)
-
----
-### 2026-11-11T04:44:43+00:00
-Assistant Manager (Data Privacy) Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/assistant-manager-data-privacy-vacancy-at-deloitte-touche-tohmatsu-india-llp-558064
-
-[Read on Telegram](https://t.me/livelawindia/124313)
+[Read on Telegram](https://t.me/livelawindia/124341)
 
 ---
-### 2026-11-11T04:46:23+00:00
-Research Associate (Criminal Law) Vacancy At National Law University, Delhi
-https://www.livelaw.in/job-updates/research-associate-criminal-law-vacancy-at-national-law-university-delhi-558065
+### 2026-11-11T08:33:15+00:00
+Divorce Can't Be Granted On Grounds Of Adultery Or Desertion When Plea Is Based Only On Cruelty: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-upholds-denial-divorce-husband-failed-prove-cruelty-allegations-558089
 
-[Read on Telegram](https://t.me/livelawindia/124314)
-
----
-### 2026-11-11T04:47:23+00:00
-Steno/ Typist Vacancy At District Legal Services Authority, Vikarabad
-https://www.livelaw.in/job-updates/steno-typist-vacancy-at-district-legal-services-authority-vikarabad-558066
-
-[Read on Telegram](https://t.me/livelawindia/124315)
+[Read on Telegram](https://t.me/livelawindia/124342)
 
 ---
-### 2026-11-11T04:48:23+00:00
-Child's Welfare Overrides Mother's Preferential Custody Right: P&H High Court Rejects Habeas Corpus Plea For 2-Year-Old Staying With Father
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-declines-habeas-corpus-for-2-year-old-staying-with-father-558055
+### 2026-11-11T08:47:15+00:00
+Public Discussion On Darjeeling-Sikkim Unification Doesn't Amount To Promoting Enmity: Sikkim High Court
+https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-quashes-fir-gorkha-seva-sena-members-darjeeling-sikkim-unification-consultation-558092
 
-[Read on Telegram](https://t.me/livelawindia/124316)
-
----
-### 2026-11-11T05:02:23+00:00
-Delhi High Court Flags Trend Of Disgruntled Litigants Casting Aspersions On Judges When Orders Go Against Them
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-flags-trend-of-disgruntled-litigants-casting-aspersions-on-judges-when-orders-go-against-them-558050
-
-[Read on Telegram](https://t.me/livelawindia/124317)
+[Read on Telegram](https://t.me/livelawindia/124343)
 
 ---
-### 2026-11-11T05:12:43+00:00
-Perception That One High Court Is Better For A Particular Dispute Is Misguided : Supreme Court Transfers IP Suit From Delhi To Madras
-https://www.livelaw.in/top-stories/supreme-court-transfers-commercial-suit-from-delhi-high-court-to-madras-high-court-558068
+### 2026-11-11T09:17:56+00:00
+Punjab & Haryana High Court Grants Bail To NDPS Accused After Police Wrongly Attributed 7 Criminal Cases To Him
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-grants-bail-directs-to-circulate-instructions-to-police-bail-rejected-over-fals-558094
 
-[Read on Telegram](https://t.me/livelawindia/124318)
-
----
-### 2026-11-11T05:12:53+00:00
-Calcutta High Court Declines Urgent Hearing On TMC's Plea Seeking De-Sealing Of Camac Street Office
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-declines-urgent-hearing-on-tmcs-plea-seeking-de-sealing-of-camac-street-office-matter-listed-on-november-23-558069
-
-[Read on Telegram](https://t.me/livelawindia/124319)
+[Read on Telegram](https://t.me/livelawindia/124344)
 
 ---
-### 2026-11-11T05:13:44+00:00
-2026 LiveLaw (SC) 1150 | Sai Maghalakshmi Traders & Ors. v M/s Sri Lakshmi Srinivasa Agro Foods & Anr
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1150-sai-maghalakshmi-traders-ors-v-ms-sri-lakshmi-srinivasa-agro-foods-anr-558070
+### 2026-11-11T09:27:27+00:00
+'Reasonable Accommodation Mandatory': Jharkhand High Court Directs Appointment Of PwD Candidate Who Missed Cut-Off By 3 Seconds
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-directs-appointment-pwd-candidate-missed-running-test-558009
 
-[Read on Telegram](https://t.me/livelawindia/124320)
+[Read on Telegram](https://t.me/livelawindia/124345)
 
 ---
-### 2026-11-11T05:17:43+00:00
-'Internet Wolves Operating In Packs': Delhi High Court Denies Anticipatory Bail To Man Accused Of ₹1 Crore Cyber Fraud
-https://www.livelaw.in/high-court/delhi-high-court/internet-wolves-operating-in-packs-delhi-high-court-denies-anticipatory-bail-to-man-accused-of-1-crore-cyber-fraud-558049
+### 2026-11-11T09:33:07+00:00
+Who Owns Voice? AI-Generated Music And Limits Of Performers' Rights
+https://www.livelaw.in/lawschool/articles/who-owns-voice-ai-generated-music-limits-performers-rights-558035
 
-[Read on Telegram](https://t.me/livelawindia/124321)
+[Read on Telegram](https://t.me/livelawindia/124346)
+
+---
+### 2026-11-11T10:02:08+00:00
+'Isn't 60 Days' Suspension Enough?'Kerala High Court Asks Sree Sankaracharya University
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sree-sankaracharya-university-demand-apology-suspension-of-students-558109
+
+[Read on Telegram](https://t.me/livelawindia/124347)
+
+---
+### 2026-11-11T10:32:58+00:00
+Live Law Rajasthan High Court Monthly Digest: October 2026
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-monthly-digest-october2026-557614
+
+[Read on Telegram](https://t.me/livelawindia/124348)
+
+---
+### 2026-11-11T10:44:38+00:00
+Does Aadhaar Prove Your Citizenship Or Age? | Here's What Happened
+https://www.livelaw.in/videos/aadhaar-citizenship-indian-citizenship-foreigner-legal-india-news-558112
+
+[Read on Telegram](https://t.me/livelawindia/124349)
+
+---
+### 2026-11-11T10:49:18+00:00
+Rahul Gandhi Defamation Case: Kerala Court Issues Summons To Ex-DGP Sreelekha
+https://www.livelaw.in/news-updates/kerala-court-rahul-gandhi-defamation-case-r-sreelekha-558113
+
+[Read on Telegram](https://t.me/livelawindia/124350)
+
+---
+### 2026-11-11T11:15:29+00:00
+Prohibitory Orders Near SC Premises Not Lifted; Display Board Can Be Kept : Supreme Court Clarifies
+https://www.livelaw.in/top-stories/supreme-court-allows-authorities-display-notice-section163-bnss-prohibitory-order-558117
+
+[Read on Telegram](https://t.me/livelawindia/124351)
+
+---
+### 2026-11-11T11:22:09+00:00
+Executing Courts Can Order Restoration Of Position Existing At Time Of Injunction Decree: HP High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-executing-courts-order-restoration-position-existing-injunction-decree-558008
+
+[Read on Telegram](https://t.me/livelawindia/124352)
+
+---
+### 2026-11-11T12:00:39+00:00
+'No Professional Enjoys Status-Based Immunity Under PMLA': Jharkhand High Court Rejects Discharge Plea Of Architect
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-rejects-discharge-plea-architect-accused-concealing-proceeds-crime-558005
+
+[Read on Telegram](https://t.me/livelawindia/124353)
+
+---
+### 2026-11-11T12:52:29+00:00
+Bombay High Court Orders To Fix System That Allows Automatic, Unexplained Changes To E-Roznama Entries
+https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-orders-fixing-of-system-allowing-automatic-changes-e-roznama-entries-558012
+
+[Read on Telegram](https://t.me/livelawindia/124354)
+
+---
+### 2026-11-11T13:37:39+00:00
+Graduation With 50% Marks Mandatory For Special Educator Posts For Classes VI–XII: HP High Court Upholds Recruitment Rules
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-graduation-marks-mandatory-special-educator-posts-upholds-recruitment-rules-558013
+
+[Read on Telegram](https://t.me/livelawindia/124355)
 
 ---
