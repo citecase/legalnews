@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-10T15:33:06+00:00*
+*Last Updated: 2026-11-11T06:02:42+00:00*
+
+---
+
+### 2026-11-11T06:02:42+00:00
+Locus Standi In Service Matters Requires Being In A Position To Apply For Post: Sikkim High Court Dismisses Challenge To Judicial Recruitment
+https://www.verdictum.in/sikkim-high-court/anirudh-gupta-v-state-of-sikkim-wpc-no-88-of-2026-sikkim-judicial-service-recruitment-1625503
+
+[Source Link](https://t.me/verdictumlegalupdates/30178)
+
+---
+
+### 2026-11-11T04:32:48+00:00
+Disclosure Resulted In Victimisation: Delhi High Court Directs Masking Sexual Offence Victim's Name In Orders
+https://www.verdictum.in/delhi-high-court/ms-x-v-high-court-of-delhi-2026dhc9684-disclosure-masking-name-sexual-offence-victim-1625502
+
+[Source Link](https://t.me/verdictumlegalupdates/30177)
 
 ---
 
@@ -145,22 +161,6 @@ Legal Assistant Vacancy At University of Delhi
 https://www.verdictum.in/job-updates/university-of-delhi-1625446
 
 [Source Link](https://t.me/verdictumlegalupdates/30159)
-
----
-
-### 2026-11-09T15:33:09+00:00
-Take Steps Towards Procuring Early Warning Systems For High-Risk Glacial Lakes: Sikkim High Court To Government
-https://www.verdictum.in/sikkim-high-court/in-re-climatic-justice-in-the-state-of-sikkim-wppil-no11-of-2026-government-warning-systems-high-risk-glacial-lakes-1625454
-
-[Source Link](https://t.me/verdictumlegalupdates/30158)
-
----
-
-### 2026-11-09T15:02:28+00:00
-Arbitrary State Action Warrants Compensation: Allahabad High Court Awards ₹15L For Vehicle Seized Over Cattle-Slaughter Suspicion
-https://www.verdictum.in/allahabad-high-court/tej-prakash-v-state-of-uttar-pradesh-and-others-2026ahc228068-vehicle-confiscation-1625444
-
-[Source Link](https://t.me/verdictumlegalupdates/30157)
 
 ---
 
