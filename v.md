@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-11T06:02:42+00:00*
+*Last Updated: 2026-11-11T15:32:39+00:00*
+
+---
+
+### 2026-11-11T15:32:39+00:00
+Deputy Manager (Legal) Vacancy At Goa Shipyard Limited (GSL)
+https://www.verdictum.in/job-updates/goa-shipyard-limited-1625498
+
+[Source Link](https://t.me/verdictumlegalupdates/30185)
+
+---
+
+### 2026-11-11T14:33:18+00:00
+Section 98(2) Of Gujarat Prohibition Act Doesn’t Bar Interim Release Of Seized Vehicles: High Court Reiterates
+https://www.verdictum.in/gujarat-high-court/maksudbhai-inusbhai-hamirka-v-state-of-gujarat-2026gujhc71192-gujarat-prohibition-act-1625549
+
+[Source Link](https://t.me/verdictumlegalupdates/30184)
+
+---
+
+### 2026-11-11T13:32:17+00:00
+Passing NISM Examination Does Not Confer Status Of SEBI-Registered Research Analyst: Gujarat High Court
+https://www.verdictum.in/gujarat-high-court/ruzan-arizbhai-khambhata-v-state-of-gujarat-and-others-sebi-research-analyst-1625541
+
+[Source Link](https://t.me/verdictumlegalupdates/30183)
+
+---
+
+### 2026-11-11T12:02:56+00:00
+Public Library Book Procurement Scam: Madras High Court Orders DVAC FIR, Account Freeze And Action Against Officials
+https://www.verdictum.in/madras-high-court/ramasubbu-v-k-gopal-and-another-tamil-nadu-public-library-book-procurement-scam-1625540
+
+[Source Link](https://t.me/verdictumlegalupdates/30182)
+
+---
+
+### 2026-11-11T10:32:55+00:00
+Freedom Of Religion Is Subject To Public Order: Bombay High Court Denies Relief To Mithila Sangh To Perform Chhath Puja At Girgaon Chowpatty
+https://www.verdictum.in/bombay-high-court/cause-title-mithila-chhath-puja-sangh-v-state-of-maharashtra-freedom-of-religion-public-order-1625507
+
+[Source Link](https://t.me/verdictumlegalupdates/30181)
+
+---
+
+### 2026-11-11T09:02:24+00:00
+Public Servant In Judicial Custody For Over 48 Hours Is Under Deemed Suspension, No Specific Order Required: Supreme Court
+https://www.verdictum.in/supreme-court/public-servant-judicial-custody-over-48-hours-under-deemed-suspension-1625506
+
+[Source Link](https://t.me/verdictumlegalupdates/30180)
+
+---
+
+### 2026-11-11T07:32:43+00:00
+Undertrials Unable To Comply With Bail Conditions Entitled To Legal Services Assistance Even If Represented By Private Lawyers: Supreme Court
+https://www.verdictum.in/supreme-court/undertrials-granted-bail-cannot-denied-legal-services-assistance-engaged-private-lawyers-1625505
+
+[Source Link](https://t.me/verdictumlegalupdates/30179)
 
 ---
 
@@ -105,62 +161,6 @@ Welfare Stamp On Vakalat Is Not A Toll On Right To Practise: Telangana High Cour
 https://www.verdictum.in/telangana-high-court/vijay-gopal-v-state-of-telangana-writ-petition-no-13352-of-2025-advocates-welfare-fund-levy-1625487
 
 [Source Link](https://t.me/verdictumlegalupdates/30166)
-
----
-
-### 2026-11-10T08:02:33+00:00
-Gorkha Seva Sena’s Invitation To Consultation On Darjeeling-Sikkim Unification Does Not Attract S.196 BNS: Sikkim High Court Quashes Case
-https://www.verdictum.in/sikkim-high-court/bikram-rai-bikramadi-rai-v-state-of-sikkim-crl-mc-no-01-of-2026-gorkha-seva-senas-invitation-1625486
-
-[Source Link](https://t.me/verdictumlegalupdates/30165)
-
----
-
-### 2026-11-10T07:13:13+00:00
-Hardship To Litigants Must Be Compensated From His Own Pocket: Gujarat High Court Imposes ₹1 Lakh Cost On Collector
-https://www.verdictum.in/gujarat-high-court/2026-gujhc-71914-bhumikaben-v-collector-1625485
-
-[Source Link](https://t.me/verdictumlegalupdates/30164)
-
----
-
-### 2026-11-10T06:32:52+00:00
-Offering Woman Money, Catching Hold Of Her Hand & Asking Her To Go To Jungle Amounts To Outraging Her Modesty: Himachal Pradesh High Court
-https://www.verdictum.in/himachal-high-court/punnu-ram-v-state-of-hp-2026hhc47931-woman-money-hand-outraging-modesty-1625478
-
-[Source Link](https://t.me/verdictumlegalupdates/30163)
-
----
-
-### 2026-11-10T05:52:31+00:00
-Weekly Overview| Supreme Court Judgments: November 2 – November 6, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-november-2-november-6-2026-1625472
-
-[Source Link](https://t.me/verdictumlegalupdates/30162)
-
----
-
-### 2026-11-10T05:12:50+00:00
-Composite Mark Registration Does Not Confer Exclusive Right Over Common Element Absent Proof Of Distinctiveness: Delhi High Court
-https://www.verdictum.in/delhi-high-court/educomp-solutions-limited-v-mr-bd-park-and-others-2026dhc10007-trademarks-1625445
-
-[Source Link](https://t.me/verdictumlegalupdates/30161)
-
----
-
-### 2026-11-10T04:33:09+00:00
-Prescription Of Minimum Sentence Does Not Bar Probation: Punjab & Haryana High Court Grants Relief To Arms Act Convicts
-https://www.verdictum.in/punjab-and-haryana-high-court/vikram-and-another-v-state-of-haryana-2026phhc198589-arms-act-probation-1625450
-
-[Source Link](https://t.me/verdictumlegalupdates/30160)
-
----
-
-### 2026-11-09T16:02:35+00:00
-Legal Assistant Vacancy At University of Delhi
-https://www.verdictum.in/job-updates/university-of-delhi-1625446
-
-[Source Link](https://t.me/verdictumlegalupdates/30159)
 
 ---
 
