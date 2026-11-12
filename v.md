@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-12T07:32:31+00:00*
+*Last Updated: 2026-11-12T15:52:45+00:00*
+
+---
+
+### 2026-11-12T15:52:45+00:00
+PIL Not Tool For Settling Policy Or Reopening Decisions Of Tribunals: Madras High Court Dismisses PIL To Curb Imports Under DFIA Scheme
+https://www.verdictum.in/madras-high-court/pil-not-tool-policy-reopening-decisions-tibunal-plea-to-curb-imports-dfia-scheme-1625616
+
+[Source Link](https://t.me/verdictumlegalupdates/30204)
+
+---
+
+### 2026-11-12T15:12:24+00:00
+Supreme Court Judgment Can’t Be Presumed Prospective Without Specific Direction: Patna High Court Upholds EBC Treatment Of Tanti-Tantwa Candidates
+https://www.verdictum.in/patna-high-court/suman-kumar-and-others-v-state-of-bihar-and-others-ebc-sc-status-tanti-tatwa-1625615
+
+[Source Link](https://t.me/verdictumlegalupdates/30203)
+
+---
+
+### 2026-11-12T14:42:43+00:00
+Nothing Eternal About OBC Status: Madras High Court Issues Notice In Plea Challenging Reservation For Christian Converts
+https://www.verdictum.in/madras-high-court/gkodeeswaran-v-state-of-tamilnadu-christian-converts-reservation-1625624
+
+[Source Link](https://t.me/verdictumlegalupdates/30202)
+
+---
+
+### 2026-11-12T14:22:29+00:00
+“Do Whatever You Want” Said In Anger During Domestic Quarrel Does Not Amount To Abetment Of Suicide: Bombay High Court
+https://www.verdictum.in/bombay-high-court/do-whatever-you-want-does-not-amount-abetment-suicide-1625614
+
+[Source Link](https://t.me/verdictumlegalupdates/30201)
+
+---
+
+### 2026-11-12T13:43:28+00:00
+Financially Independent Wife Cannot Claim Maintenance Merely Because Husband Earns More: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/sar-v-cm-husband-wife-divorce-maintenance-financially-independent-1625613
+
+[Source Link](https://t.me/verdictumlegalupdates/30200)
+
+---
+
+### 2026-11-12T13:02:17+00:00
+State Can Restructure Police Associations It Created; Members Have No Fundamental Right To Their Continuance: Kerala High Court
+https://www.verdictum.in/kerala-high-court/sugunan-ap-v-kerala-state-police-officers-association-and-connected-cases-2026ker86252-1625612
+
+[Source Link](https://t.me/verdictumlegalupdates/30199)
+
+---
+
+### 2026-11-12T12:22:56+00:00
+Owner Or Manager Not Automatically Criminally Liable: Madhya Pradesh High Court Grants Bail In Fireworks Factory Explosion Case
+https://www.verdictum.in/madhya-pradesh-high-court/mukesh-vij-v-state-of-madhya-pradesh-anil-malviya-v-state-of-madhya-pradesh-a-2026mphc-ind31069-1625605
+
+[Source Link](https://t.me/verdictumlegalupdates/30198)
+
+---
+
+### 2026-11-12T11:33:15+00:00
+Where Statute Fixes No Term For Nominated Members, Doctrine Of Pleasure Is Implied: Kerala High Court Upholds Withdrawal Of SNGOU Syndicate Nominations
+https://www.verdictum.in/kerala-high-court/prof-dr-pp-ajayakumar-v-state-of-kerala-2026ker85765-eminent-persons-syndicate-of-sree-narayana-guru-open-university-1625604
+
+[Source Link](https://t.me/verdictumlegalupdates/30197)
+
+---
+
+### 2026-11-12T10:42:55+00:00
+Husband Alleging Extramarital Affair Because Wife Spoke To Male Friend Is A “Gender-Based Stereotype” Amounting To Cruelty: Jharkhand HC
+https://www.verdictum.in/jharkhand-high-court/2026-jhhc-32222-db-xxxx-v-yyyy-1625603
+
+[Source Link](https://t.me/verdictumlegalupdates/30196)
+
+---
+
+### 2026-11-12T09:52:14+00:00
+Aadhaar Card Can’t Be Treated As Conclusive Proof Of Holder’s Age; Postmortem Report More Reliable: Madhya Pradesh High Court
+https://www.verdictum.in/madhya-pradesh-high-court/rajesh-singh-v-rahul-singh-and-others-2026mphc-gwl33646-aadhaar-card-postmortem-report-1625600
+
+[Source Link](https://t.me/verdictumlegalupdates/30195)
+
+---
+
+### 2026-11-12T08:52:53+00:00
+Police Cannot Restrict Extended Bar Hours On Mere Apprehension Of Law & Order Problem: Kerala High Court Sets Aside Notice Barring DJ Parties After 11 PM
+https://www.verdictum.in/kerala-high-court/2026-ker-85771-mahadevan-v-state-of-kerala-1625593
+
+[Source Link](https://t.me/verdictumlegalupdates/30194)
+
+---
+
+### 2026-11-12T08:12:32+00:00
+Undertrial’s Death From Assault By Co-Convicts Due To Jail Negligence: Orissa High Court Awards ₹15 Lakh, Compassionate Job To Widow
+https://www.verdictum.in/orissa-high-court/sasi-behera-v-state-of-odisha-wpc-no-5194-of-2025-assault-by-co-convicts-due-to-jail-negligence-1625588
+
+[Source Link](https://t.me/verdictumlegalupdates/30193)
 
 ---
 
@@ -65,102 +161,6 @@ Deputy Manager (Legal) Vacancy At Goa Shipyard Limited (GSL)
 https://www.verdictum.in/job-updates/goa-shipyard-limited-1625498
 
 [Source Link](https://t.me/verdictumlegalupdates/30185)
-
----
-
-### 2026-11-11T14:33:18+00:00
-Section 98(2) Of Gujarat Prohibition Act Doesn’t Bar Interim Release Of Seized Vehicles: High Court Reiterates
-https://www.verdictum.in/gujarat-high-court/maksudbhai-inusbhai-hamirka-v-state-of-gujarat-2026gujhc71192-gujarat-prohibition-act-1625549
-
-[Source Link](https://t.me/verdictumlegalupdates/30184)
-
----
-
-### 2026-11-11T13:32:17+00:00
-Passing NISM Examination Does Not Confer Status Of SEBI-Registered Research Analyst: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/ruzan-arizbhai-khambhata-v-state-of-gujarat-and-others-sebi-research-analyst-1625541
-
-[Source Link](https://t.me/verdictumlegalupdates/30183)
-
----
-
-### 2026-11-11T12:02:56+00:00
-Public Library Book Procurement Scam: Madras High Court Orders DVAC FIR, Account Freeze And Action Against Officials
-https://www.verdictum.in/madras-high-court/ramasubbu-v-k-gopal-and-another-tamil-nadu-public-library-book-procurement-scam-1625540
-
-[Source Link](https://t.me/verdictumlegalupdates/30182)
-
----
-
-### 2026-11-11T10:32:55+00:00
-Freedom Of Religion Is Subject To Public Order: Bombay High Court Denies Relief To Mithila Sangh To Perform Chhath Puja At Girgaon Chowpatty
-https://www.verdictum.in/bombay-high-court/cause-title-mithila-chhath-puja-sangh-v-state-of-maharashtra-freedom-of-religion-public-order-1625507
-
-[Source Link](https://t.me/verdictumlegalupdates/30181)
-
----
-
-### 2026-11-11T09:02:24+00:00
-Public Servant In Judicial Custody For Over 48 Hours Is Under Deemed Suspension, No Specific Order Required: Supreme Court
-https://www.verdictum.in/supreme-court/public-servant-judicial-custody-over-48-hours-under-deemed-suspension-1625506
-
-[Source Link](https://t.me/verdictumlegalupdates/30180)
-
----
-
-### 2026-11-11T07:32:43+00:00
-Undertrials Unable To Comply With Bail Conditions Entitled To Legal Services Assistance Even If Represented By Private Lawyers: Supreme Court
-https://www.verdictum.in/supreme-court/undertrials-granted-bail-cannot-denied-legal-services-assistance-engaged-private-lawyers-1625505
-
-[Source Link](https://t.me/verdictumlegalupdates/30179)
-
----
-
-### 2026-11-11T06:02:42+00:00
-Locus Standi In Service Matters Requires Being In A Position To Apply For Post: Sikkim High Court Dismisses Challenge To Judicial Recruitment
-https://www.verdictum.in/sikkim-high-court/anirudh-gupta-v-state-of-sikkim-wpc-no-88-of-2026-sikkim-judicial-service-recruitment-1625503
-
-[Source Link](https://t.me/verdictumlegalupdates/30178)
-
----
-
-### 2026-11-11T04:32:48+00:00
-Disclosure Resulted In Victimisation: Delhi High Court Directs Masking Sexual Offence Victim's Name In Orders
-https://www.verdictum.in/delhi-high-court/ms-x-v-high-court-of-delhi-2026dhc9684-disclosure-masking-name-sexual-offence-victim-1625502
-
-[Source Link](https://t.me/verdictumlegalupdates/30177)
-
----
-
-### 2026-11-10T15:33:06+00:00
-Deputy Manager (Legal) Vacancy At NLC India Limited (NLCIL)
-https://www.verdictum.in/job-updates/nlc-india-limited-1625497
-
-[Source Link](https://t.me/verdictumlegalupdates/30176)
-
----
-
-### 2026-11-10T14:53:06+00:00
-Family Of Comatose Claimant Cannot Be Faulted For Not Filing ITR For Accident Year: Delhi High Court Enhances Event Manager’s Compensation
-https://www.verdictum.in/delhi-high-court/bharat-ghai-through-his-wife-harpreet-kaur-v-raju-grover-since-deceased-through-his-lrs-2026dhc9958-injured-claimant-in-a-coma-covid-1625501
-
-[Source Link](https://t.me/verdictumlegalupdates/30175)
-
----
-
-### 2026-11-10T14:12:45+00:00
-Prima Facie Defamatory Passages Cannot Justify Ban On Entire Book: Delhi High Court Lifts Blanket Injunction Against HarperCollins’ “Yes Man” Book On Rana Kapoor
-https://www.verdictum.in/delhi-high-court/harpercollins-publishers-india-pvt-ltd-v-rana-kapoor-2026dhc9973-yes-man-book-1625500
-
-[Source Link](https://t.me/verdictumlegalupdates/30174)
-
----
-
-### 2026-11-10T13:32:23+00:00
-Number Of Marriages Contracted By A Woman Cannot By Itself Discredit Her Criminal Complaint Against Husband: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/rh-v-state-another-divorce-proceedings-cruelty-multiple-marriages-criminal-complaint-1625499
-
-[Source Link](https://t.me/verdictumlegalupdates/30173)
 
 ---
 
