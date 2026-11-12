@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-11T15:32:39+00:00*
+*Last Updated: 2026-11-12T07:32:31+00:00*
+
+---
+
+### 2026-11-12T07:32:31+00:00
+Voter Lists With Ancestors’ Names Cannot Prove Citizenship Without Linkage To Petitioner: Gauhati High Court Upholds Declaration Of Man As Foreigner
+https://www.verdictum.in/guwahati-high-court/2026-gau-as-16234-sofiqul-islam-v-union-of-india-1625585
+
+[Source Link](https://t.me/verdictumlegalupdates/30192)
+
+---
+
+### 2026-11-12T07:02:30+00:00
+Safeguards U/S 223(2) BNSS Must Be Followed Before Notice Is Issued On Private Complaint Against Police Officer: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/sri-shiva-shankar-v-state-of-karnataka-criminal-petition-no-3641-of-2026-notice-issued-to-head-constable-without-superior-officers-report-1625584
+
+[Source Link](https://t.me/verdictumlegalupdates/30191)
+
+---
+
+### 2026-11-12T06:33:09+00:00
+Accused Cannot Claim Default Bail By Treating Police Report As Incomplete For Want Of CCTV Or Call Records: Madras High Court
+https://www.verdictum.in/madras-high-court/m-alex-v-union-of-india-police-investigation-report-cognizance-magistrate-1625582
+
+[Source Link](https://t.me/verdictumlegalupdates/30190)
+
+---
+
+### 2026-11-12T06:02:33+00:00
+RTI| Right to Seek Information In Public Recruitment Process Can’t Depend Upon Information Seeker First Establishing Alleged Irregularity: Punjab & Haryana High Court
+https://www.verdictum.in/punjab-and-haryana-high-court/sunder-lal-v-state-of-haryana-2026phhc197042-rti-act-information-public-recruitment-process-1625579
+
+[Source Link](https://t.me/verdictumlegalupdates/30189)
+
+---
+
+### 2026-11-12T05:33:12+00:00
+Reference To Cash Loan Being Advanced In ₹2,000 Notes Before Their Introduction Not By Itself Sufficient To Rebut Presumption U/S 139 NI Act : Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/k-venkataswamy-v-chikka-hanumanthappa-2026khc60959-negotiable-instruments-1625578
+
+[Source Link](https://t.me/verdictumlegalupdates/30188)
+
+---
+
+### 2026-11-12T05:03:06+00:00
+Collector's Award Foreclosing Govt’s Revisional Power: Sikkim High Court Declares ₹565 Crore Army Land Award Near International Border Unenforceable
+https://www.verdictum.in/sikkim-high-court/union-of-india-v-state-of-sikkim-wpc-no-28-of-2023-indian-army-land-award-near-international-border-1625577
+
+[Source Link](https://t.me/verdictumlegalupdates/30187)
+
+---
+
+### 2026-11-12T04:32:35+00:00
+Married Daughter Cannot Be Shut Out From Motor Accident Compensation Merely Because She Lives Separately: Delhi High Court Lays Down Guideposts On Dependency
+https://www.verdictum.in/delhi-high-court/united-india-insurance-co-ltd-v-savita-2026dhc9920-married-daughter-mact-1625567
+
+[Source Link](https://t.me/verdictumlegalupdates/30186)
 
 ---
 
@@ -105,62 +161,6 @@ Number Of Marriages Contracted By A Woman Cannot By Itself Discredit Her Crimina
 https://www.verdictum.in/karnataka-high-court/rh-v-state-another-divorce-proceedings-cruelty-multiple-marriages-criminal-complaint-1625499
 
 [Source Link](https://t.me/verdictumlegalupdates/30173)
-
----
-
-### 2026-11-10T12:52:42+00:00
-Old Age Does Not Exonerate Father-In-Law From Pious Responsibility To Maintain Widowed Daughter-In-Law & Grandchildren: Jharkhand High Court
-https://www.verdictum.in/jharkhand-high-court/2026-jhhc-32181-db-xxx-v-yyyy-1625496
-
-[Source Link](https://t.me/verdictumlegalupdates/30172)
-
----
-
-### 2026-11-10T12:12:32+00:00
-State Must Provide Infrastructure & Staff: Madras High Court Flags 2,423 Pending Corruption Cases; Issues Directions
-https://www.verdictum.in/madras-high-court/a-shahul-hameed-v-state-of-tamil-nadu-and-others-prevention-corruption-1625495
-
-[Source Link](https://t.me/verdictumlegalupdates/30171)
-
----
-
-### 2026-11-10T11:32:51+00:00
-Custody Can’t Be Taken By Force: Madras High Court Asks Father To Return 2.5 Year Old Son To Mother
-https://www.verdictum.in/madras-high-court/a-v-the-commissioner-of-police-custody-force-father-son-mother-1625491
-
-[Source Link](https://t.me/verdictumlegalupdates/30170)
-
----
-
-### 2026-11-10T10:52:30+00:00
-Manufacturer Liable To Motor Vehicle Tax On Finished Vehicles Stocked In Factory, Proof Of Road Use Not Necessary: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/2026-rj-jp-31407-db-honda-motorcycle-and-scooter-india-pvt-ltd-v-union-of-india-1625490
-
-[Source Link](https://t.me/verdictumlegalupdates/30169)
-
----
-
-### 2026-11-10T10:12:49+00:00
-Disputed Easementary Right Requiring Oral & Documentary Evidence Can’t Ordinarily Be Decided In Writ Jurisdiction: Andhra Pradesh High Court
-https://www.verdictum.in/andhra-pradesh-high-court/chinthalapati-venkata-satyanarayana-raju-and-others-v-state-of-andhra-pradesh-and-others-1625489
-
-[Source Link](https://t.me/verdictumlegalupdates/30168)
-
----
-
-### 2026-11-10T09:32:55+00:00
-ED Is Not A Super Cop; Cannot File Private Complaint When Police Don’t Act On Information Shared U/S 66(2) PMLA: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/2026-khc-61902-yb-ashwathanarayan-v-union-of-india-1625488
-
-[Source Link](https://t.me/verdictumlegalupdates/30167)
-
----
-
-### 2026-11-10T08:53:19+00:00
-Welfare Stamp On Vakalat Is Not A Toll On Right To Practise: Telangana High Court Upholds Mandatory Advocates Welfare Fund Levy
-https://www.verdictum.in/telangana-high-court/vijay-gopal-v-state-of-telangana-writ-petition-no-13352-of-2025-advocates-welfare-fund-levy-1625487
-
-[Source Link](https://t.me/verdictumlegalupdates/30166)
 
 ---
 
