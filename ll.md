@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-12T08:37:19+00:00*
+*Last Updated: 2026-11-12T10:27:21+00:00*
 
 ---
 
-### 2026-11-12T08:37:19+00:00
-Kerala High Court Directs Close Monitoring To Prevent Sale Of Banned Chemical Kumkum, Plastic Sachets At Sabarimala
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sabarimala-chemical-kumkum-issue-558212
-
-[Read on Telegram](https://t.me/livelawindia/124405)
-
----
-### 2026-11-12T09:07:30+00:00
-APPs Are Distinct From Ministerial Staff, Not Entitled To Upper Age Relaxation Under Judicial Service Rules: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/assistant-public-prosecutors-distinct-ministerial-staff-not-entitled-upper-age-relaxation-558144
-
-[Read on Telegram](https://t.me/livelawindia/124406)
-
----
-### 2026-11-12T09:15:10+00:00
-UP Govt Sanctions ₹4.59 Crore For Construction Of 3 New Open Prisons Following Allahabad High Court's Repeated Push
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-up-govt-sanctions-459-crore-construction-3-new-open-prisons-push-558218
-
-[Read on Telegram](https://t.me/livelawindia/124407)
-
----
-### 2026-11-12T09:32:10+00:00
-One Nation, Two Flags? Constitutional Legitimacy Of State Flags In India
-https://www.livelaw.in/articles/one-nation-two-flags-constitutional-legitimacy-state-flags-india-558134
-
-[Read on Telegram](https://t.me/livelawindia/124408)
-
----
-### 2026-11-12T09:52:10+00:00
-Bombay High Court Calls For Regulatory Framework To Curb Misleading 'Debt Management' Campaigns Promising Loan Waiver
-https://www.livelaw.in/high-court/bombay-high-court/regulatory-framework-curb-misleading-debt-management-campaigns-promising-loan-waiverextinguishment-558147
-
-[Read on Telegram](https://t.me/livelawindia/124409)
-
----
-### 2026-11-12T10:21:41+00:00
-Earning Spouse, Married Children Or Siblings Not Automatically Disentitled To Motor Accident Compensation: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/earning-spouse-married-children-or-siblings-not-automatically-disentitled-to-motor-accident-compensation-delhi-high-court-558230
-
-[Read on Telegram](https://t.me/livelawindia/124410)
-
----
 ### 2026-11-12T10:27:21+00:00
 'He Has Not Even Seen The Cell': Kerala High Court Suspects Conspiracy To Keep Ex-DGP Tomin Thachankary Out Of Jail After Conviction
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-tomin-thachankary-abroad-plea-558233
@@ -142,5 +100,47 @@ High Court Gives UP Govt 3 More Months To Comply With Jan 2026 Order On Statewid
 https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-up-teachers-appointments-statewide-scrutiny-558258
 
 [Read on Telegram](https://t.me/livelawindia/124424)
+
+---
+### 2026-11-12T15:47:35+00:00
+Can Persons Who Convert To Christianity Claim “Most Backward Class” Reservation? Madras High Court To Examine
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-christian-converts-most-backward-class-reservation-claim-examine-558266
+
+[Read on Telegram](https://t.me/livelawindia/124425)
+
+---
+### 2026-11-12T15:49:35+00:00
+Tips Earned By Waiter Are Part Of Income For Computing Motor Accident Compensation: Punjab & Haryana High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-tips-earned-by-waiter-are-part-of-income-for-computing-motor-accident-compensation-558267
+
+[Read on Telegram](https://t.me/livelawindia/124426)
+
+---
+### 2026-11-12T15:57:46+00:00
+'Criminal Law Moves Fast Against Poor, But Not Influential': Madras High Court As Centre Sanctions Prosecution Of 2 IAS Officers
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tender-irregularities-case-sanction-given-prosecute-ias-officers-558269
+
+[Read on Telegram](https://t.me/livelawindia/124427)
+
+---
+### 2026-11-12T15:57:56+00:00
+Police Probes 'Hanging Fire' For Months Across UP: Allahabad High Court Flags IOs' Inaction, Seeks ACS Home's Plan To Remedy Delays
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-up-police-investigation-delays-acs-home-558272
+
+[Read on Telegram](https://t.me/livelawindia/124428)
+
+---
+### 2026-11-12T16:12:06+00:00
+Delhi High Court Enhances Compensation To ₹4.26 Crore For Road Accident Victim In Coma Since 2022
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-enhances-compensation-to-426-crore-for-road-accident-victim-in-coma-since-2022-558275
+
+[Read on Telegram](https://t.me/livelawindia/124429)
+
+---
+### 2026-11-12T19:52:50+00:00
+LiveLaw High Courts Daily Highlights: November 12, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-12-2026-558279
+
+[Read on Telegram](https://t.me/livelawindia/124430)
 
 ---
