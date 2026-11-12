@@ -1,121 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-11T07:11:54+00:00*
+*Last Updated: 2026-11-11T11:22:09+00:00*
 
 ---
 
-### 2026-11-11T07:11:54+00:00
-LiveLaw Andhra Pradesh High Court Weekly Round-Up: November 2 - November 8, 2026
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/andhra-pradesh-high-court-weekly-roundup-558087
-
-[Read on Telegram](https://t.me/livelawindia/124336)
-
----
-### 2026-11-11T07:18:14+00:00
-P&H High Court Frames 'Root Of Eligibility Test' To Protect Eligible Candidates From Rejection Over Application Errors
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/ph-high-court-frames-root-of-eligibility-test-to-protect-eligible-candidates-from-rejection-over-application-errors-558078
-
-[Read on Telegram](https://t.me/livelawindia/124337)
-
----
-### 2026-11-11T07:41:14+00:00
-Veeramani's Daughter Moves Madras High Court Alleging Illegal Detention, Human Rights Violations By SIT
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-veeramani-pocso-case-sit-respond-daughter-plea-human-right-violation-558090
-
-[Read on Telegram](https://t.me/livelawindia/124338)
-
----
-### 2026-11-11T08:03:05+00:00
-AI-Generated Marksheet Produced Before Court? Allahabad High Court Orders Police Probe, Says It Tarnishes Dignity Of Institution
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-ai-generated-marksheet-produced-before-court-police-probe-558093
-
-[Read on Telegram](https://t.me/livelawindia/124339)
-
----
-### 2026-11-11T08:03:15+00:00
-'Replying To Show-Cause Notice That Does Not Mention Proposed Debarment Cannot Amount To Waiver Of Natural Justice': Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-replying-show-cause-notice-mention-proposed-debarment-558010
-
-[Read on Telegram](https://t.me/livelawindia/124340)
-
----
-### 2026-11-11T08:17:25+00:00
-Tripura High Court Rejects ED's Plea To Lift Stay On Provisional Attachment Proceedings Against Suspended IAS Officer
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-refuses-vacate-stay-ed-provisional-attachment-proceedings-558091
-
-[Read on Telegram](https://t.me/livelawindia/124341)
-
----
-### 2026-11-11T08:33:15+00:00
-Divorce Can't Be Granted On Grounds Of Adultery Or Desertion When Plea Is Based Only On Cruelty: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-upholds-denial-divorce-husband-failed-prove-cruelty-allegations-558089
-
-[Read on Telegram](https://t.me/livelawindia/124342)
-
----
-### 2026-11-11T08:47:15+00:00
-Public Discussion On Darjeeling-Sikkim Unification Doesn't Amount To Promoting Enmity: Sikkim High Court
-https://www.livelaw.in/high-court/sikkim-high-court/sikkim-high-court-quashes-fir-gorkha-seva-sena-members-darjeeling-sikkim-unification-consultation-558092
-
-[Read on Telegram](https://t.me/livelawindia/124343)
-
----
-### 2026-11-11T09:17:56+00:00
-Punjab & Haryana High Court Grants Bail To NDPS Accused After Police Wrongly Attributed 7 Criminal Cases To Him
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-grants-bail-directs-to-circulate-instructions-to-police-bail-rejected-over-fals-558094
-
-[Read on Telegram](https://t.me/livelawindia/124344)
-
----
-### 2026-11-11T09:27:27+00:00
-'Reasonable Accommodation Mandatory': Jharkhand High Court Directs Appointment Of PwD Candidate Who Missed Cut-Off By 3 Seconds
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-directs-appointment-pwd-candidate-missed-running-test-558009
-
-[Read on Telegram](https://t.me/livelawindia/124345)
-
----
-### 2026-11-11T09:33:07+00:00
-Who Owns Voice? AI-Generated Music And Limits Of Performers' Rights
-https://www.livelaw.in/lawschool/articles/who-owns-voice-ai-generated-music-limits-performers-rights-558035
-
-[Read on Telegram](https://t.me/livelawindia/124346)
-
----
-### 2026-11-11T10:02:08+00:00
-'Isn't 60 Days' Suspension Enough?'Kerala High Court Asks Sree Sankaracharya University
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sree-sankaracharya-university-demand-apology-suspension-of-students-558109
-
-[Read on Telegram](https://t.me/livelawindia/124347)
-
----
-### 2026-11-11T10:32:58+00:00
-Live Law Rajasthan High Court Monthly Digest: October 2026
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-monthly-digest-october2026-557614
-
-[Read on Telegram](https://t.me/livelawindia/124348)
-
----
-### 2026-11-11T10:44:38+00:00
-Does Aadhaar Prove Your Citizenship Or Age? | Here's What Happened
-https://www.livelaw.in/videos/aadhaar-citizenship-indian-citizenship-foreigner-legal-india-news-558112
-
-[Read on Telegram](https://t.me/livelawindia/124349)
-
----
-### 2026-11-11T10:49:18+00:00
-Rahul Gandhi Defamation Case: Kerala Court Issues Summons To Ex-DGP Sreelekha
-https://www.livelaw.in/news-updates/kerala-court-rahul-gandhi-defamation-case-r-sreelekha-558113
-
-[Read on Telegram](https://t.me/livelawindia/124350)
-
----
-### 2026-11-11T11:15:29+00:00
-Prohibitory Orders Near SC Premises Not Lifted; Display Board Can Be Kept : Supreme Court Clarifies
-https://www.livelaw.in/top-stories/supreme-court-allows-authorities-display-notice-section163-bnss-prohibitory-order-558117
-
-[Read on Telegram](https://t.me/livelawindia/124351)
-
----
 ### 2026-11-11T11:22:09+00:00
 Executing Courts Can Order Restoration Of Position Existing At Time Of Injunction Decree: HP High Court
 https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-executing-courts-order-restoration-position-existing-injunction-decree-558008
@@ -142,5 +30,117 @@ Graduation With 50% Marks Mandatory For Special Educator Posts For Classes VI–
 https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-graduation-marks-mandatory-special-educator-posts-upholds-recruitment-rules-558013
 
 [Read on Telegram](https://t.me/livelawindia/124355)
+
+---
+### 2026-11-11T13:59:39+00:00
+Tripura High Court Directs DGP To Ensure Adequate Security For CPI(M) Candidates To File Nomination Papers In Municipal Elections
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-directs-dgp-ensure-adequate-security-cpi-candidates-file-nomination-papers-municipal-elections-558141
+
+[Read on Telegram](https://t.me/livelawindia/124356)
+
+---
+### 2026-11-11T14:03:40+00:00
+Husband Telling Wife 'Do Whatever You Want' Not Instigation To Suicide: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/words-spoken-anger-domestic-dispute-do-whatever-you-want-not-instigation-558145
+
+[Read on Telegram](https://t.me/livelawindia/124357)
+
+---
+### 2026-11-11T14:32:30+00:00
+Is Collegium System Failing Indian Women?
+https://www.livelaw.in/articles/collegium-system-failing-indian-women-558044
+
+[Read on Telegram](https://t.me/livelawindia/124358)
+
+---
+### 2026-11-11T15:01:01+00:00
+CCPA Imposes ₹10 Lakh Penalty On Just Dial For Facilitating Sale Of Ammonium Nitrate
+https://www.livelaw.in/consumer-cases/ccpa-imposes-10-lakh-penalty-on-just-dial-for-facilitating-sale-of-ammonium-nitrate-558151
+
+[Read on Telegram](https://t.me/livelawindia/124359)
+
+---
+### 2026-11-11T15:01:11+00:00
+Mercedes Benz Crash: Victim's Family Moves Kerala High Court Challenging Grant Of Bail To Minor
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-mercedes-benz-crash-minor-bail-cancel-558152
+
+[Read on Telegram](https://t.me/livelawindia/124360)
+
+---
+### 2026-11-11T15:01:41+00:00
+Book Procurement Scam | State Informs Madras High Court That FIR Will Be Registered By Monday, Says No One Will Be Spared
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-book-procurement-scam-fir-will-be-registered-state-tells-558153
+
+[Read on Telegram](https://t.me/livelawindia/124361)
+
+---
+### 2026-11-11T15:17:42+00:00
+Tripura High Court Rejects Age Relaxation Claim Of Candidate Who Failed To Prove Cancellation Of Earlier Recruitment Process
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-rejects-age-relaxation-claim-candidate-failed-prove-cancellation-earlier-recruitment-process-558140
+
+[Read on Telegram](https://t.me/livelawindia/124362)
+
+---
+### 2026-11-11T15:21:42+00:00
+Right To Protest Cannot Be Abolished For Students; Peaceful Dharna Is Not Grammar Of Anarchy: Ex-HC Judge K Babu
+https://www.livelaw.in/top-stories/right-to-protest-cannot-be-abolished-for-students-peaceful-dharna-is-not-grammar-of-anarchy-ex-hc-judge-k-babu-558155
+
+[Read on Telegram](https://t.me/livelawindia/124363)
+
+---
+### 2026-11-11T15:23:02+00:00
+LiveLaw Editorial Guidelines For Article Submissions
+https://www.livelaw.in/articles/livelaw-editorial-guidelines-article-submissions-558156
+
+[Read on Telegram](https://t.me/livelawindia/124364)
+
+---
+### 2026-11-11T15:23:42+00:00
+LiveLaw Editorial Guidelines For Article Submissions
+https://www.livelaw.in/lawschool/articles/livelaw-editorial-guidelines-article-submissions-558157
+
+[Read on Telegram](https://t.me/livelawindia/124365)
+
+---
+### 2026-11-11T15:24:02+00:00
+LiveLaw Editorial Guidelines For Article Submissions
+https://www.livelaw.in/law-firms/law-firm-articles-/livelaw-editorial-guidelines-article-submissions-558158
+
+[Read on Telegram](https://t.me/livelawindia/124366)
+
+---
+### 2026-11-11T15:24:42+00:00
+Gauhati High Court Quashes Activist's NSA Detention Linked With Protest Against Luxury Hotel Project, Cites Multiple Procedural Lapses
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-quashes-pranab-doley-nsa-detention-orders-immediate-release-558159
+
+[Read on Telegram](https://t.me/livelawindia/124367)
+
+---
+### 2026-11-11T15:25:23+00:00
+Scientific Measurement, Digital Monitoring: Kerala High Court Appreciates Devaswom Board Efforts To Address Irregularity In Sabarimala Ghee Sales
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sabarimala-ghee-sales-travancore-devaswom-board-558160
+
+[Read on Telegram](https://t.me/livelawindia/124368)
+
+---
+### 2026-11-11T15:26:02+00:00
+Merely Producing Voter Lists With Ancestor's Names Does Not Establish Citizenship Without Proof Of Family Linkage: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-mere-appearance-names-voter-lists-does-not-establish-citizenship-558161
+
+[Read on Telegram](https://t.me/livelawindia/124369)
+
+---
+### 2026-11-11T15:42:02+00:00
+Fake Allahabad High Court Order Cited In Centre's Takedown Directive For 95 Websites; UP Police Register FIR
+https://www.livelaw.in/top-stories/fake-allahabad-high-court-order-95-websites-blocked-fir-558162
+
+[Read on Telegram](https://t.me/livelawindia/124370)
+
+---
+### 2026-11-11T19:42:56+00:00
+LiveLaw High Courts Daily Highlights: November 11, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-11-2026-558163
+
+[Read on Telegram](https://t.me/livelawindia/124371)
 
 ---
