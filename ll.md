@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-12T10:27:21+00:00*
+*Last Updated: 2026-11-13T01:27:25+00:00*
 
 ---
 
-### 2026-11-12T10:27:21+00:00
-'He Has Not Even Seen The Cell': Kerala High Court Suspects Conspiracy To Keep Ex-DGP Tomin Thachankary Out Of Jail After Conviction
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-tomin-thachankary-abroad-plea-558233
+### 2026-11-13T01:27:25+00:00
+Legal Scholar Gautam Bhatia Awarded Infosys Prize 2026 In Humanities And Social Sciences
+https://www.livelaw.in/news-updates/legal-scholar-gautam-bhatia-awarded-infosys-prize-2026-in-humanities-and-social-sciences-558286
 
-[Read on Telegram](https://t.me/livelawindia/124411)
-
----
-### 2026-11-12T10:32:21+00:00
-LiveLaw Bombay High Court Monthly Digest: October 2026
-https://www.livelaw.in/high-court/bombay-high-court/livelaw-bombay-high-court-monthly-digest-october-2026-557860
-
-[Read on Telegram](https://t.me/livelawindia/124412)
+[Read on Telegram](https://t.me/livelawindia/124431)
 
 ---
-### 2026-11-12T10:32:41+00:00
-Litigant Can't Suffer Due To Vacancy In Debt Recovery Tribunal: MP High Court Orders Bank To Unlock Borrower's House
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-litigant-cannot-be-made-to-suffer-due-to-temporary-vacancy-of-presiding-officer-in-debt-recovery-tribunal-558232
+### 2026-11-13T02:32:15+00:00
+Telangana High Court Orders Criminal Complaint, Contempt Proceedings Against Suspended Advocate For Continuing Practice
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-directs-criminal-complaint-contempt-suspended-advocate-appearing-558282
 
-[Read on Telegram](https://t.me/livelawindia/124413)
-
----
-### 2026-11-12T10:37:21+00:00
-Recovery Of Tainted Money Provides Sufficient Corroboration In Bribery Case Even If Witness Turns Hostile: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/recovery-of-tainted-money-and-pink-handpant-wash-provide-sufficient-circumstantial-corroboration-even-if-shadow-witness-turns-hostile-jk-high-court-558143
-
-[Read on Telegram](https://t.me/livelawindia/124414)
+[Read on Telegram](https://t.me/livelawindia/124432)
 
 ---
-### 2026-11-12T10:38:01+00:00
-Madras High Court Dismisses PIL Against Vimal Elaichi Ads Over Alleged Surrogate Promotion Of Pan Masala
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-vimal-elaichi-advertisement-vimal-pan-masala-promoted-plea-dismissed-558234
+### 2026-11-13T03:02:46+00:00
+Wife Having Sufficient Cause To Reside Separately Not Automatically Entitled To Maintenance If She Can Support Herself: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-wife-having-sufficient-cause-not-itself-ground-for-maintenance-if-she-has-ability-to-maintain-herself-558285
 
-[Read on Telegram](https://t.me/livelawindia/124415)
-
----
-### 2026-11-12T11:24:01+00:00
-Kerala High Court Directs State To Implement Recommendations For Digital Organ Donation Platform, Transparent Pricing
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-recommendation-digital-organ-donation-platform-swap-transplants-558241
-
-[Read on Telegram](https://t.me/livelawindia/124416)
+[Read on Telegram](https://t.me/livelawindia/124433)
 
 ---
-### 2026-11-12T11:33:01+00:00
-Veeramani POCSO Case | First Chargesheet Filed, Multiple Other Chargesheet Will Be Filed In Few Days: SIT Tells Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-veeramani-pocso-case-first-chargesheet-filed-sit-tells-558242
+### 2026-11-13T03:32:37+00:00
+Telangana High Court Initiates Suo Motu PIL On Safety Of Govt Hospitals Following Fire, Ceiling Collapse Incidents
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-registers-suo-motu-pil-hospital-fire-ceiling-collapse-558273
 
-[Read on Telegram](https://t.me/livelawindia/124417)
-
----
-### 2026-11-12T11:42:41+00:00
-Prosecution For Overstaying Visa Would Only Prolong Afghan National's Stay In India: MP High Court Quashes FIR
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-dismisses-overstaying-fir-against-afghan-student-558243
-
-[Read on Telegram](https://t.me/livelawindia/124418)
+[Read on Telegram](https://t.me/livelawindia/124434)
 
 ---
-### 2026-11-12T12:18:12+00:00
-'Sanction Under Arms Act Cannot Be Treated As Inconsequential Objection & Be Postponed To Stage Of Framing Of Charges': Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-sanction-arms-act-treated-inconsequential-objection-558139
+### 2026-11-13T03:47:37+00:00
+Forgery Of Sale Agreements, Mortgage Deeds And Other Valuable Documents Can Attract Life Imprisonment: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/forgery-of-sale-agreements-mortgage-deeds-and-other-valuable-documents-can-attract-life-imprisonment-558277
 
-[Read on Telegram](https://t.me/livelawindia/124419)
-
----
-### 2026-11-12T13:17:23+00:00
-Meghalaya High Court Denies Retired School Staff Interest For Pre-Sanction Wait On ₹6.5 Lakh Gratuity Top-Up
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-denies-retired-school-staff-interest-pre-sanction-gratuity-topup-558142
-
-[Read on Telegram](https://t.me/livelawindia/124420)
+[Read on Telegram](https://t.me/livelawindia/124435)
 
 ---
-### 2026-11-12T14:25:54+00:00
-Take Final Decision On Removal Of Unauthorised Temple On Jhansi Cantonment Land In 4 Weeks: High Court To Defence Ministry
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-jhansi-cantonment-unauthorised-temple-removal-558252
+### 2026-11-13T04:02:17+00:00
+Minor Cannot Give Valid Consent To Sexual Intercourse: Gauhati High Court Upholds POCSO Convict's 20-Year Jail Term
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-holds-minor-cannot-give-valid-consent-558274
 
-[Read on Telegram](https://t.me/livelawindia/124421)
-
----
-### 2026-11-12T14:30:24+00:00
-“Who Are The Judges With BJP And Who Aren't?”: Calcutta High Court Raps Abhishek Banerjee Over Remarks On Judiciary
-https://www.livelaw.in/high-court/calcutta-high-court/who-are-the-judges-with-bjp-and-who-arent-calcutta-high-court-raps-abhishek-banerjee-over-remarks-on-judiciary-558253
-
-[Read on Telegram](https://t.me/livelawindia/124422)
+[Read on Telegram](https://t.me/livelawindia/124436)
 
 ---
-### 2026-11-12T14:42:24+00:00
-Who Gets Chair In Court? Dignity Of Advocates And Crisis Of Courtroom Chair Protocol
-https://www.livelaw.in/articles/advocates-dignity-courtroom-chair-protocol-crisis-558255
+### 2026-11-13T04:17:47+00:00
+Obtaining Certified Copies Of Property Documents Years Later Can't Revive Limitation Period For Filing Suit: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-dismisses-30-year-old-property-claim-558280
 
-[Read on Telegram](https://t.me/livelawindia/124423)
-
----
-### 2026-11-12T14:48:04+00:00
-High Court Gives UP Govt 3 More Months To Comply With Jan 2026 Order On Statewide Scrutiny Of Govt Teachers' Appointments
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-up-teachers-appointments-statewide-scrutiny-558258
-
-[Read on Telegram](https://t.me/livelawindia/124424)
+[Read on Telegram](https://t.me/livelawindia/124437)
 
 ---
-### 2026-11-12T15:47:35+00:00
-Can Persons Who Convert To Christianity Claim “Most Backward Class” Reservation? Madras High Court To Examine
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-christian-converts-most-backward-class-reservation-claim-examine-558266
+### 2026-11-13T04:32:27+00:00
+LiveLaw Karnataka High Court Monthly Digest: October 2026
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-monthly-digest-october-2026-557737
 
-[Read on Telegram](https://t.me/livelawindia/124425)
-
----
-### 2026-11-12T15:49:35+00:00
-Tips Earned By Waiter Are Part Of Income For Computing Motor Accident Compensation: Punjab & Haryana High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-tips-earned-by-waiter-are-part-of-income-for-computing-motor-accident-compensation-558267
-
-[Read on Telegram](https://t.me/livelawindia/124426)
+[Read on Telegram](https://t.me/livelawindia/124438)
 
 ---
-### 2026-11-12T15:57:46+00:00
-'Criminal Law Moves Fast Against Poor, But Not Influential': Madras High Court As Centre Sanctions Prosecution Of 2 IAS Officers
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tender-irregularities-case-sanction-given-prosecute-ias-officers-558269
+### 2026-11-13T04:32:37+00:00
+India's Doping Distress: How Effective Are Anti-Doping Laws?
+https://www.livelaw.in/lawschool/articles/india-doping-distress-how-effective-anti-doping-laws-558256
 
-[Read on Telegram](https://t.me/livelawindia/124427)
-
----
-### 2026-11-12T15:57:56+00:00
-Police Probes 'Hanging Fire' For Months Across UP: Allahabad High Court Flags IOs' Inaction, Seeks ACS Home's Plan To Remedy Delays
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-up-police-investigation-delays-acs-home-558272
-
-[Read on Telegram](https://t.me/livelawindia/124428)
+[Read on Telegram](https://t.me/livelawindia/124439)
 
 ---
-### 2026-11-12T16:12:06+00:00
-Delhi High Court Enhances Compensation To ₹4.26 Crore For Road Accident Victim In Coma Since 2022
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-enhances-compensation-to-426-crore-for-road-accident-victim-in-coma-since-2022-558275
+### 2026-11-13T04:47:47+00:00
+Wife Filing Harassment Complaint Against Husband Does Not By Itself Amount To Abetment Of Suicide: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-wife-alleging-harassment-cannot-itself-construed-abetting-suicide-558276
 
-[Read on Telegram](https://t.me/livelawindia/124429)
+[Read on Telegram](https://t.me/livelawindia/124440)
 
 ---
-### 2026-11-12T19:52:50+00:00
-LiveLaw High Courts Daily Highlights: November 12, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-12-2026-558279
+### 2026-11-13T04:55:47+00:00
+Public Prosecutor And Additional Public Prosecutor Vacancy At Navsari District
+https://www.livelaw.in/job-updates/public-prosecutor-and-additional-public-prosecutor-vacancy-at-navsari-district-558295
 
-[Read on Telegram](https://t.me/livelawindia/124430)
+[Read on Telegram](https://t.me/livelawindia/124441)
+
+---
+### 2026-11-13T04:56:27+00:00
+Officer (Legal Services) Vacancy At The Fertilisers And Chemicals Travancore Limited
+https://www.livelaw.in/job-updates/officer-legal-services-vacancy-at-the-fertilisers-and-chemicals-travancore-limited-558296
+
+[Read on Telegram](https://t.me/livelawindia/124442)
+
+---
+### 2026-11-13T05:02:17+00:00
+Gujarat High Court Imposes Costs On Lawyer For Attempting To 'Harass' Accused Through Frivolous Proceedings
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-fines-lawyer-5k-for-seeking-addition-disabilities-act-offence-in-absence-of-material-558281
+
+[Read on Telegram](https://t.me/livelawindia/124443)
+
+---
+### 2026-11-13T05:17:17+00:00
+Calcutta High Court Declines Urgent Hearing On Plea Seeking Permission To Hold Chhath Puja In Cooch Behar
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-declines-urgent-hearing-on-plea-seeking-permission-to-hold-chhath-puja-in-cooch-behar-558301
+
+[Read on Telegram](https://t.me/livelawindia/124444)
+
+---
+### 2026-11-13T05:17:57+00:00
+Ex-Servicemen Re-Employed In Civilian Posts Not Entitled To Protection Of Last-Drawn Defence Pay: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-holds-exservicemen-reemployed-epfo-pay-protection-558283
+
+[Read on Telegram](https://t.me/livelawindia/124445)
+
+---
+### 2026-11-13T05:23:58+00:00
+Madras High Court Dismisses Udhayanidhi Stalin's Plea To Reject Election Petition Challenging His Victory
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-udhayanidhi-election-petition-refused-to-reject-558303
+
+[Read on Telegram](https://t.me/livelawindia/124446)
+
+---
+### 2026-11-13T05:24:58+00:00
+Indian Army Aspirant Moves Calcutta High Court After Denial Of Domicile Certificate Over Deletion Of Mother's Name In SIR
+https://www.livelaw.in/high-court/calcutta-high-court/indian-army-aspirant-moves-calcutta-high-court-over-denial-of-domicile-certificate-over-deletion-of-mothers-name-in-sir-558304
+
+[Read on Telegram](https://t.me/livelawindia/124447)
+
+---
+### 2026-11-13T05:32:58+00:00
+Extra-Judicial Confession Before Stranger Highly Improbable, Can't Sustain Conviction Without Corroboration: AP High Court
+https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-acquits-couple-2009murder-case-uncorroborated-extra-judicial-confession-558284
+
+[Read on Telegram](https://t.me/livelawindia/124448)
+
+---
+### 2026-11-13T05:38:58+00:00
+Corporate Legal Vacancy At Godrej Capital Limited
+https://www.livelaw.in/job-updates/corporate-legal-vacancy-at-godrej-capital-limited-558306
+
+[Read on Telegram](https://t.me/livelawindia/124449)
+
+---
+### 2026-11-13T05:47:48+00:00
+Child's Welfare Paramount: Orissa High Court Refuses Custody To Filipino Mother, Allows Daily Video Calls
+https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-denies-daughter-custody-filipino-mother-grants-visiting-rights-video-call-558302
+
+[Read on Telegram](https://t.me/livelawindia/124450)
 
 ---
