@@ -1,6 +1,134 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-13T06:32:37+00:00*
+*Last Updated: 2026-11-13T16:02:44+00:00*
+
+---
+
+### 2026-11-13T16:02:44+00:00
+Reasons Behind Repeated CSAM Offences Must Be Examined To Prevent Recurrence: P&H High Court Orders Psychiatric Evaluation Of Accused
+https://www.verdictum.in/punjab-and-haryana-high-court/tinku-v-state-of-haryana-2026phhc199367-pocso-punjab-haryana-child-sexual-abuse-material-offences-1625680
+
+[Source Link](https://t.me/verdictumlegalupdates/30224)
+
+---
+
+### 2026-11-13T15:33:04+00:00
+No Requirement Of Removing Sacred Thread: Examination Authority Tells Karnataka HC; Court Directs Uniform Conduct Of CET
+https://www.verdictum.in/karnataka-high-court/2026-khc-61247-db-akhila-karnataka-brahmana-maha-sabha-v-state-of-karnataka-1625685
+
+[Source Link](https://t.me/verdictumlegalupdates/30223)
+
+---
+
+### 2026-11-13T15:02:23+00:00
+Tip Amount Can Be Included In Waiter’s Income For Assessing Motor Accident Compensation: Punjab & Haryana High Court
+https://www.verdictum.in/punjab-and-haryana-high-court/united-india-insurance-company-limited-v-vipin-kumar-2026phhc199075-1625684
+
+[Source Link](https://t.me/verdictumlegalupdates/30222)
+
+---
+
+### 2026-11-13T14:32:42+00:00
+Appearing In Person No Licence To File Repeated Petitions: Delhi High Court Imposes ₹2 Lakh Costs On ‘Serial Chronic Litigant’
+https://www.verdictum.in/delhi-high-court/satya-prakash-ravidas-v-the-sdmregistrar-of-societies-and-another-in-person-1625683
+
+[Source Link](https://t.me/verdictumlegalupdates/30221)
+
+---
+
+### 2026-11-13T14:03:01+00:00
+Madhya Pradesh HC Directs Bank To Unlock Borrower’s House After His Plea Before DRT Was Not Heard For Want Of Presiding Officer
+https://www.verdictum.in/madhya-pradesh-high-court/2026-mphc-ind-28903-vinod-dwivedi-v-principal-secretary-1625682
+
+[Source Link](https://t.me/verdictumlegalupdates/30220)
+
+---
+
+### 2026-11-13T13:02:59+00:00
+Cannot Set Jurisdiction In Motion Based On Internet Rumours: Madras High Court Dismisses PIL Against Vimal Elaichi Ads
+https://www.verdictum.in/madras-high-court/pil-against-vimal-elaichi-advertisements-writ-court-1625687
+
+[Source Link](https://t.me/verdictumlegalupdates/30219)
+
+---
+
+### 2026-11-13T12:32:18+00:00
+High Court Imposes ₹1 Lakh Costs On Delhi Government For Disregarding Court Orders; Directs Recovery From Officers’ Salaries
+https://www.verdictum.in/delhi-high-court/central-footwear-co-v-government-of-national-capital-territory-of-delhi-and-another-1625675
+
+[Source Link](https://t.me/verdictumlegalupdates/30218)
+
+---
+
+### 2026-11-13T12:02:38+00:00
+Magistrate Can Pass Residence Order Under DV Act For House Outside His Territorial Limits: Madras High Court
+https://www.verdictum.in/madras-high-court/2026-mhc-4541-domestic-violence-act-residence-territorial-jurisdiction-1625673
+
+[Source Link](https://t.me/verdictumlegalupdates/30217)
+
+---
+
+### 2026-11-13T11:32:37+00:00
+Kerala High Court Orders Implementation Of Single-Window Clearance & Digital Platform For Organ Transplants
+https://www.verdictum.in/kerala-high-court/2026-ker-86455-advaidh-m-v-state-of-kerala-1625672
+
+[Source Link](https://t.me/verdictumlegalupdates/30216)
+
+---
+
+### 2026-11-13T11:02:36+00:00
+Madras High Court Asks Medical Council To Investigate Woman’s Complaint About Surgical Needle Left In Abdomen After C-Section
+https://www.verdictum.in/madras-high-court/msangeetha-v-the-state-medical-council-woman-complaint-surgical-needle-left-c-section-1625671
+
+[Source Link](https://t.me/verdictumlegalupdates/30215)
+
+---
+
+### 2026-11-13T10:32:55+00:00
+CISF Personnel Not Provided Government Accommodation Cannot Be Denied Full HRA: Delhi High Court
+https://www.verdictum.in/delhi-high-court/gurvinder-singh-v-union-of-india-2026dhc9988-db-cisf-personnel-hra-1625668
+
+[Source Link](https://t.me/verdictumlegalupdates/30214)
+
+---
+
+### 2026-11-13T10:11:57+00:00
+Evening Courts To Be Launched As Pilot Project In Bihar, Delhi & Andhra Pradesh To Reduce Pendency: Union Law Minister
+https://www.verdictum.in/news/evening-courts-launched-pilot-project-bihar-delhi-andhra-pradesh-1625670
+
+[Source Link](https://t.me/verdictumlegalupdates/30213)
+
+---
+
+### 2026-11-13T09:22:16+00:00
+Absence Of Fresh Hymenal Tear 11 Days After Incident Does Not, By Itself, Negate Penetration: Delhi High Court Upholds POCSO Conviction
+https://www.verdictum.in/delhi-high-court/navratan-v-the-state-nct-of-delhi-2026dhc9866-pocso-conviction-fsl-report-1625666
+
+[Source Link](https://t.me/verdictumlegalupdates/30212)
+
+---
+
+### 2026-11-13T08:32:35+00:00
+Vague Criminal Charges Cannot Be Used To Stifle Peaceful Democratic Agitations: Bombay High Court
+https://www.verdictum.in/bombay-high-court/nishkarsh-so-kiran-nimgade-v-state-of-maharashtra-2026bhc-nag14958-1625665
+
+[Source Link](https://t.me/verdictumlegalupdates/30211)
+
+---
+
+### 2026-11-13T07:52:50+00:00
+Courts Can Interfere With Answer Key If Error Is Patent, Not Inferential: Delhi High Court Refers Four UGC-NET Questions To Experts
+https://www.verdictum.in/delhi-high-court/nasir-rasheed-v-university-grants-commission-and-connected-matters-2026dhc10098-1625658
+
+[Source Link](https://t.me/verdictumlegalupdates/30210)
+
+---
+
+### 2026-11-13T07:13:18+00:00
+Comedy Skit Meant To Make People Laugh: Karnataka High Court Quashes SC-ST Act FIR Over "Kokke Korava" Dialogue
+https://www.verdictum.in/karnataka-high-court/manu-c-v-state-of-karnataka-2026khc62244-1625654
+
+[Source Link](https://t.me/verdictumlegalupdates/30209)
 
 ---
 
@@ -33,134 +161,6 @@ Father’s Admission Of Relationship Do Not By Themselves Justify DNA Test In Ma
 https://www.verdictum.in/karnataka-high-court/fm-v-n-2026khc61121-justify-a-dna-test-to-determine-paternity-1625617
 
 [Source Link](https://t.me/verdictumlegalupdates/30205)
-
----
-
-### 2026-11-12T15:52:45+00:00
-PIL Not Tool For Settling Policy Or Reopening Decisions Of Tribunals: Madras High Court Dismisses PIL To Curb Imports Under DFIA Scheme
-https://www.verdictum.in/madras-high-court/pil-not-tool-policy-reopening-decisions-tibunal-plea-to-curb-imports-dfia-scheme-1625616
-
-[Source Link](https://t.me/verdictumlegalupdates/30204)
-
----
-
-### 2026-11-12T15:12:24+00:00
-Supreme Court Judgment Can’t Be Presumed Prospective Without Specific Direction: Patna High Court Upholds EBC Treatment Of Tanti-Tantwa Candidates
-https://www.verdictum.in/patna-high-court/suman-kumar-and-others-v-state-of-bihar-and-others-ebc-sc-status-tanti-tatwa-1625615
-
-[Source Link](https://t.me/verdictumlegalupdates/30203)
-
----
-
-### 2026-11-12T14:42:43+00:00
-Nothing Eternal About OBC Status: Madras High Court Issues Notice In Plea Challenging Reservation For Christian Converts
-https://www.verdictum.in/madras-high-court/gkodeeswaran-v-state-of-tamilnadu-christian-converts-reservation-1625624
-
-[Source Link](https://t.me/verdictumlegalupdates/30202)
-
----
-
-### 2026-11-12T14:22:29+00:00
-“Do Whatever You Want” Said In Anger During Domestic Quarrel Does Not Amount To Abetment Of Suicide: Bombay High Court
-https://www.verdictum.in/bombay-high-court/do-whatever-you-want-does-not-amount-abetment-suicide-1625614
-
-[Source Link](https://t.me/verdictumlegalupdates/30201)
-
----
-
-### 2026-11-12T13:43:28+00:00
-Financially Independent Wife Cannot Claim Maintenance Merely Because Husband Earns More: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/sar-v-cm-husband-wife-divorce-maintenance-financially-independent-1625613
-
-[Source Link](https://t.me/verdictumlegalupdates/30200)
-
----
-
-### 2026-11-12T13:02:17+00:00
-State Can Restructure Police Associations It Created; Members Have No Fundamental Right To Their Continuance: Kerala High Court
-https://www.verdictum.in/kerala-high-court/sugunan-ap-v-kerala-state-police-officers-association-and-connected-cases-2026ker86252-1625612
-
-[Source Link](https://t.me/verdictumlegalupdates/30199)
-
----
-
-### 2026-11-12T12:22:56+00:00
-Owner Or Manager Not Automatically Criminally Liable: Madhya Pradesh High Court Grants Bail In Fireworks Factory Explosion Case
-https://www.verdictum.in/madhya-pradesh-high-court/mukesh-vij-v-state-of-madhya-pradesh-anil-malviya-v-state-of-madhya-pradesh-a-2026mphc-ind31069-1625605
-
-[Source Link](https://t.me/verdictumlegalupdates/30198)
-
----
-
-### 2026-11-12T11:33:15+00:00
-Where Statute Fixes No Term For Nominated Members, Doctrine Of Pleasure Is Implied: Kerala High Court Upholds Withdrawal Of SNGOU Syndicate Nominations
-https://www.verdictum.in/kerala-high-court/prof-dr-pp-ajayakumar-v-state-of-kerala-2026ker85765-eminent-persons-syndicate-of-sree-narayana-guru-open-university-1625604
-
-[Source Link](https://t.me/verdictumlegalupdates/30197)
-
----
-
-### 2026-11-12T10:42:55+00:00
-Husband Alleging Extramarital Affair Because Wife Spoke To Male Friend Is A “Gender-Based Stereotype” Amounting To Cruelty: Jharkhand HC
-https://www.verdictum.in/jharkhand-high-court/2026-jhhc-32222-db-xxxx-v-yyyy-1625603
-
-[Source Link](https://t.me/verdictumlegalupdates/30196)
-
----
-
-### 2026-11-12T09:52:14+00:00
-Aadhaar Card Can’t Be Treated As Conclusive Proof Of Holder’s Age; Postmortem Report More Reliable: Madhya Pradesh High Court
-https://www.verdictum.in/madhya-pradesh-high-court/rajesh-singh-v-rahul-singh-and-others-2026mphc-gwl33646-aadhaar-card-postmortem-report-1625600
-
-[Source Link](https://t.me/verdictumlegalupdates/30195)
-
----
-
-### 2026-11-12T08:52:53+00:00
-Police Cannot Restrict Extended Bar Hours On Mere Apprehension Of Law & Order Problem: Kerala High Court Sets Aside Notice Barring DJ Parties After 11 PM
-https://www.verdictum.in/kerala-high-court/2026-ker-85771-mahadevan-v-state-of-kerala-1625593
-
-[Source Link](https://t.me/verdictumlegalupdates/30194)
-
----
-
-### 2026-11-12T08:12:32+00:00
-Undertrial’s Death From Assault By Co-Convicts Due To Jail Negligence: Orissa High Court Awards ₹15 Lakh, Compassionate Job To Widow
-https://www.verdictum.in/orissa-high-court/sasi-behera-v-state-of-odisha-wpc-no-5194-of-2025-assault-by-co-convicts-due-to-jail-negligence-1625588
-
-[Source Link](https://t.me/verdictumlegalupdates/30193)
-
----
-
-### 2026-11-12T07:32:31+00:00
-Voter Lists With Ancestors’ Names Cannot Prove Citizenship Without Linkage To Petitioner: Gauhati High Court Upholds Declaration Of Man As Foreigner
-https://www.verdictum.in/guwahati-high-court/2026-gau-as-16234-sofiqul-islam-v-union-of-india-1625585
-
-[Source Link](https://t.me/verdictumlegalupdates/30192)
-
----
-
-### 2026-11-12T07:02:30+00:00
-Safeguards U/S 223(2) BNSS Must Be Followed Before Notice Is Issued On Private Complaint Against Police Officer: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/sri-shiva-shankar-v-state-of-karnataka-criminal-petition-no-3641-of-2026-notice-issued-to-head-constable-without-superior-officers-report-1625584
-
-[Source Link](https://t.me/verdictumlegalupdates/30191)
-
----
-
-### 2026-11-12T06:33:09+00:00
-Accused Cannot Claim Default Bail By Treating Police Report As Incomplete For Want Of CCTV Or Call Records: Madras High Court
-https://www.verdictum.in/madras-high-court/m-alex-v-union-of-india-police-investigation-report-cognizance-magistrate-1625582
-
-[Source Link](https://t.me/verdictumlegalupdates/30190)
-
----
-
-### 2026-11-12T06:02:33+00:00
-RTI| Right to Seek Information In Public Recruitment Process Can’t Depend Upon Information Seeker First Establishing Alleged Irregularity: Punjab & Haryana High Court
-https://www.verdictum.in/punjab-and-haryana-high-court/sunder-lal-v-state-of-haryana-2026phhc197042-rti-act-information-public-recruitment-process-1625579
-
-[Source Link](https://t.me/verdictumlegalupdates/30189)
 
 ---
 
