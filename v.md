@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-12T15:52:45+00:00*
+*Last Updated: 2026-11-13T06:32:37+00:00*
+
+---
+
+### 2026-11-13T06:32:37+00:00
+Speeding Is A Significant Road Safety Concern: Kerala High Court Orders More Speed Cameras Across State
+https://www.verdictum.in/kerala-high-court/suo-motu-in-re-road-safety-in-kerala-v-chief-secretary-government-of-kerala-wpc-no-35016-of-2026-1625645
+
+[Source Link](https://t.me/verdictumlegalupdates/30208)
+
+---
+
+### 2026-11-13T05:52:16+00:00
+Road Tax Exemption For Disabled Persons Not Restricted To Specially Adapted Vehicles: Madras High Court
+https://www.verdictum.in/madras-high-court/prabhu-jai-sankar-g-v-secretary-tamil-nadu-2026mhc4515-road-tax-disabled-vehicles-1625644
+
+[Source Link](https://t.me/verdictumlegalupdates/30207)
+
+---
+
+### 2026-11-13T05:12:45+00:00
+Courts Can Exercise Parens Patriae Jurisdiction In Respect Of Deity: Madras High Court Directs Deity’s Name To Be Added In Revenue Records
+https://www.verdictum.in/madras-high-court/the-executive-officer-v-the-commissioner-of-land-administration-parens-patriae-deity-revenue-1625618
+
+[Source Link](https://t.me/verdictumlegalupdates/30206)
+
+---
+
+### 2026-11-13T04:32:14+00:00
+Father’s Admission Of Relationship Do Not By Themselves Justify DNA Test In Maintenance Case: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/fm-v-n-2026khc61121-justify-a-dna-test-to-determine-paternity-1625617
+
+[Source Link](https://t.me/verdictumlegalupdates/30205)
 
 ---
 
@@ -129,38 +161,6 @@ RTI| Right to Seek Information In Public Recruitment Process Can’t Depend Upon
 https://www.verdictum.in/punjab-and-haryana-high-court/sunder-lal-v-state-of-haryana-2026phhc197042-rti-act-information-public-recruitment-process-1625579
 
 [Source Link](https://t.me/verdictumlegalupdates/30189)
-
----
-
-### 2026-11-12T05:33:12+00:00
-Reference To Cash Loan Being Advanced In ₹2,000 Notes Before Their Introduction Not By Itself Sufficient To Rebut Presumption U/S 139 NI Act : Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/k-venkataswamy-v-chikka-hanumanthappa-2026khc60959-negotiable-instruments-1625578
-
-[Source Link](https://t.me/verdictumlegalupdates/30188)
-
----
-
-### 2026-11-12T05:03:06+00:00
-Collector's Award Foreclosing Govt’s Revisional Power: Sikkim High Court Declares ₹565 Crore Army Land Award Near International Border Unenforceable
-https://www.verdictum.in/sikkim-high-court/union-of-india-v-state-of-sikkim-wpc-no-28-of-2023-indian-army-land-award-near-international-border-1625577
-
-[Source Link](https://t.me/verdictumlegalupdates/30187)
-
----
-
-### 2026-11-12T04:32:35+00:00
-Married Daughter Cannot Be Shut Out From Motor Accident Compensation Merely Because She Lives Separately: Delhi High Court Lays Down Guideposts On Dependency
-https://www.verdictum.in/delhi-high-court/united-india-insurance-co-ltd-v-savita-2026dhc9920-married-daughter-mact-1625567
-
-[Source Link](https://t.me/verdictumlegalupdates/30186)
-
----
-
-### 2026-11-11T15:32:39+00:00
-Deputy Manager (Legal) Vacancy At Goa Shipyard Limited (GSL)
-https://www.verdictum.in/job-updates/goa-shipyard-limited-1625498
-
-[Source Link](https://t.me/verdictumlegalupdates/30185)
 
 ---
 
