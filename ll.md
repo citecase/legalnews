@@ -1,58 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-13T10:53:33+00:00*
+*Last Updated: 2026-11-13T11:52:24+00:00*
 
 ---
 
-### 2026-11-13T10:53:33+00:00
-'Why Assume Drugs Happen Only After Midnight?' Kerala High Court Questions Police Ban On DJ Parties At Bars Permitted To Operate Till 3 AM
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-dj-party-appeal-bar-hotel-timings-558360
-
-[Read on Telegram](https://t.me/livelawindia/124479)
-
----
-### 2026-11-13T11:02:13+00:00
-Meghalaya High Court Upholds 24-Year Jail Term For Man Convicted Of Sexually Assaulting 10-Year-Old Stepdaughter
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-upholds-man-convicted-sexually-assaulting-stepdaughter-558271
-
-[Read on Telegram](https://t.me/livelawindia/124480)
-
----
-### 2026-11-13T11:25:03+00:00
-AP High Court Declares 'No Waiting List' Clause In Police Recruitment Arbitrary, Orders Filling Of Vacant Posts
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-holds-waiting-list-clause-police-constable-recruitment-arbitrary-558364
-
-[Read on Telegram](https://t.me/livelawindia/124481)
-
----
-### 2026-11-13T11:27:43+00:00
-Uncommunicated Fraud Allegations Cannot Justify Adverse Licensing Action Without Opportunity To Respond: Meghalaya High Court
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-uncommunicated-fraud-allegations-justify-adverse-licensing-action-558335
-
-[Read on Telegram](https://t.me/livelawindia/124482)
-
----
-### 2026-11-13T11:32:43+00:00
-Psychiatric Evaluation Of Those Accused Of Sharing Child Sexual Abuse Content May Prevent Repeat Offences: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-grants-bail-man-accused-of-circulating-child-sexual-abuse-material-558367
-
-[Read on Telegram](https://t.me/livelawindia/124483)
-
----
-### 2026-11-13T11:42:44+00:00
-'Harm Caused To Public Interest': MP High Court Imposes Costs On PIL Petitioner For Stalling Dam Project
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-cout-imposes-cost-on-pil-petition-for-stallign-public-project-since-2019-558370
-
-[Read on Telegram](https://t.me/livelawindia/124484)
-
----
-### 2026-11-13T11:47:44+00:00
-'Absence Of Weapon, Lack Of Prior Enmity Relevant In Determining Whether Fatal Assault Constitutes Murder': Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/absence-weapon-prior-enmity-premeditation-relevant-determining-fatal-assault-constitutes-murder-558332
-
-[Read on Telegram](https://t.me/livelawindia/124485)
-
----
 ### 2026-11-13T11:52:24+00:00
 Cruel Transportation Of Cattle No Ground To Presume They Were Being Taken For Slaughter: Gujarat High Court
 https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-animal-slaughter-inhuman-condition-558371
@@ -142,5 +93,54 @@ High Court Summons Punjab Chief Secretary Over Officials' Repeated Failure To Fi
 https://www.livelaw.in/high-court/punjab-and-haryana-high-court/high-court-summons-punjab-chief-secretary-over-officials-repeated-failure-to-file-replies-in-25-year-old-pension-case-558406
 
 [Read on Telegram](https://t.me/livelawindia/124498)
+
+---
+### 2026-11-13T14:32:46+00:00
+Physical Relations Under Guise Of Marriage Followed By Unexplained Refusal To Marry Attracts S.69 BNS: Gujarat High Court
+https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-physical-relation-guise-of-marriage-refusing-later-no-reasons-558407
+
+[Read on Telegram](https://t.me/livelawindia/124499)
+
+---
+### 2026-11-13T14:33:06+00:00
+Constable, MP, And Authority That Doesn't Exist
+https://www.livelaw.in/articles/constable-mp-authority-that-doesnot-exist-558365
+
+[Read on Telegram](https://t.me/livelawindia/124500)
+
+---
+### 2026-11-13T14:42:46+00:00
+Calcutta High Court Upholds Life Sentence Of BSF Constable For Killing Colleague Over Relationship With Woman
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-upholds-life-sentence-of-bsf-constable-for-killing-colleague-over-relationship-with-woman-558385
+
+[Read on Telegram](https://t.me/livelawindia/124501)
+
+---
+### 2026-11-13T15:08:06+00:00
+'Permanent Lok Adalat Has No Jurisdiction To Record Compromise In Land Disputes': Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-permanent-lok-adalat-jurisdiction-record-compromise-land-disputes-558268
+
+[Read on Telegram](https://t.me/livelawindia/124502)
+
+---
+### 2026-11-13T15:17:56+00:00
+Fake High Court Orders Used To Takedown Of 95 Websites? | Here's What Happened
+https://www.livelaw.in/videos/internet-freedom-foundation-fake-high-court-order-website-takedown-news-india-x-twitter-558412
+
+[Read on Telegram](https://t.me/livelawindia/124503)
+
+---
+### 2026-11-13T18:14:38+00:00
+RGNUL Invites Entries For 7th International Arbitral Award Writing Competition, 2026
+https://www.livelaw.in/lawschool/competitions/rgnul-invites-entries-for-7th-international-arbitral-award-writing-competition-2026-558414
+
+[Read on Telegram](https://t.me/livelawindia/124504)
+
+---
+### 2026-11-13T18:27:18+00:00
+LiveLaw High Courts Daily Highlights: November 13, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-13-2026-558415
+
+[Read on Telegram](https://t.me/livelawindia/124505)
 
 ---
