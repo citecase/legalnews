@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-13T15:08:06+00:00*
+*Last Updated: 2026-11-14T07:47:51+00:00*
 
 ---
 
-### 2026-11-13T15:08:06+00:00
-'Permanent Lok Adalat Has No Jurisdiction To Record Compromise In Land Disputes': Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-permanent-lok-adalat-jurisdiction-record-compromise-land-disputes-558268
+### 2026-11-14T07:47:51+00:00
+'Very Grim Picture': Gauhati High Court Expresses Concern Over 1.16 Lakh Declared Foreigners Yet To Be Apprehended In Assam
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-upholds-detention-pending-expulsion-558445
 
-[Read on Telegram](https://t.me/livelawindia/124502)
-
----
-### 2026-11-13T15:17:56+00:00
-Fake High Court Orders Used To Takedown Of 95 Websites? | Here's What Happened
-https://www.livelaw.in/videos/internet-freedom-foundation-fake-high-court-order-website-takedown-news-india-x-twitter-558412
-
-[Read on Telegram](https://t.me/livelawindia/124503)
+[Read on Telegram](https://t.me/livelawindia/124533)
 
 ---
-### 2026-11-13T18:14:38+00:00
-RGNUL Invites Entries For 7th International Arbitral Award Writing Competition, 2026
-https://www.livelaw.in/lawschool/competitions/rgnul-invites-entries-for-7th-international-arbitral-award-writing-competition-2026-558414
+### 2026-11-14T08:02:31+00:00
+Rape Victim Need Not Resist By Biting Or Kicking Accused For Her Testimony To Be Believed: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-upholds-20year-pocso-sentence-558447
 
-[Read on Telegram](https://t.me/livelawindia/124504)
-
----
-### 2026-11-13T18:27:18+00:00
-LiveLaw High Courts Daily Highlights: November 13, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-13-2026-558415
-
-[Read on Telegram](https://t.me/livelawindia/124505)
+[Read on Telegram](https://t.me/livelawindia/124534)
 
 ---
-### 2026-11-14T03:07:46+00:00
-From Marital Brinkmanship To Meaningful Co-Parenting, Re-Imagining Joint Custody, Visitation Rights And Co-Parenting
-https://www.livelaw.in/articles/family-courts-child-custody-joint-custody-co-parenting-visitation-rights-558287
+### 2026-11-14T08:12:12+00:00
+HP High Court Upholds Acquittal In 2 Kg Charas Case, Cites Discrepancy In Colour Of Tape Used During Seizure & Produced In Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-yellow-tape-seizure-records-brown-tape-court-558464
 
-[Read on Telegram](https://t.me/livelawindia/124506)
-
----
-### 2026-11-14T03:32:47+00:00
-Special MP/MLA Courts Can Try Offences Committed Before Accused Became Legislator: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-cognizance-criminal-case-mp-mla-taken-special-courts-558416
-
-[Read on Telegram](https://t.me/livelawindia/124507)
+[Read on Telegram](https://t.me/livelawindia/124535)
 
 ---
-### 2026-11-14T04:05:57+00:00
-'High Time For Legislature To Consider Reducing Age Of Juveniles To 16 Years': Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-juvenile-justice-age-16-years-558418
+### 2026-11-14T08:18:12+00:00
+Country-Made Pistol Cannot Be Classified As 'Prohibited Arm' U/S 7 Arms Act Merely Because It Is Dangerous Or Unlicensed: Bombay High Court
+https://www.livelaw.in/high-court/bombay-high-court/country-made-pistol-cannot-be-classified-prohibited-arm-under-arms-act-merely-because-dangerous-unlicensed-558455
 
-[Read on Telegram](https://t.me/livelawindia/124508)
-
----
-### 2026-11-14T04:32:58+00:00
-Jammu & Kashmir And Ladakh High Court Monthly Digest: October  2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-kashmir-and-ladakh-high-court-monthly-digest-october-2026-557285
-
-[Read on Telegram](https://t.me/livelawindia/124509)
+[Read on Telegram](https://t.me/livelawindia/124536)
 
 ---
-### 2026-11-14T04:33:17+00:00
-Statutory Boundaries Of Securities-Market Adjudication: SEBI, SAT And Limits Of Procedural Power
-https://www.livelaw.in/articles/statutory-boundaries-securities-market-adjudication-sebi-sat-limits-procedural-power-558368
+### 2026-11-14T08:38:02+00:00
+Lacklustre Manner Of Addressing Critical Medical Officer And Paramedical Vacancies Directly Touches Right To Health: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/lacklustre-manner-of-addressing-critical-medical-officer-and-paramedical-vacancies-directly-touches-right-to-health-under-article-21-jk-high-court-seeks-comprehensive-affidavit-558450
 
-[Read on Telegram](https://t.me/livelawindia/124510)
-
----
-### 2026-11-14T04:33:28+00:00
-Plea To Disclose Tax Levied In Petrol, Diesel Bills Withdrawn From Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-rax-levied-petrol-diesel-bill-withdrawn-558421
-
-[Read on Telegram](https://t.me/livelawindia/124511)
+[Read on Telegram](https://t.me/livelawindia/124537)
 
 ---
-### 2026-11-14T04:52:08+00:00
-Deity's Status As 'Perpetual Minor' Doesn't Bar Adverse Possession Claims Over Its Property: Orissa High Court
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-deity-status-perpetual-minor-exemption-adverse-possession-claims-558423
+### 2026-11-14T09:11:02+00:00
+J&K&L High Court Questions Challan Against Deceased Man, Says Legal Heirs Have Right To Correct Judicial Record; Stays Trial Proceedings
+https://www.livelaw.in/high-court/jammu-kashmir/jkl-high-court-questions-challan-against-deceased-man-says-legal-heirs-have-right-to-correct-judicial-record-stays-trial-proceedings-558333
 
-[Read on Telegram](https://t.me/livelawindia/124512)
-
----
-### 2026-11-14T04:59:28+00:00
-Kerala High Court Flags Transparency Concerns Over KIIFB, Criticises Govt's Earlier Refusal Of CAG Audit
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-kiifb-pil-audit-state-expert-committee-recommendation-558424
-
-[Read on Telegram](https://t.me/livelawindia/124513)
+[Read on Telegram](https://t.me/livelawindia/124538)
 
 ---
-### 2026-11-14T05:07:49+00:00
-Surgical Needle Found In Woman's Abdomen 12 Years After Surgery: Madras High Court Orders Probe
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-inquiry-surgical-needle-abdomen-12-years-558425
+### 2026-11-14T09:13:42+00:00
+Allahabad High Court Upholds Dismissal Of Court Employee For Manipulating Convict's Age In Records To Make Him Eligible For Release
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-court-employee-dismissal-convict-age-manipulation-558471
 
-[Read on Telegram](https://t.me/livelawindia/124514)
-
----
-### 2026-11-14T05:17:19+00:00
-Longstanding Practice Of Organising Chhath Puja Can't Justify Use Of Public Green Area: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/longstanding-practice-of-organising-chhath-puja-cant-justify-use-of-public-green-area-delhi-high-court-558427
-
-[Read on Telegram](https://t.me/livelawindia/124515)
+[Read on Telegram](https://t.me/livelawindia/124539)
 
 ---
-### 2026-11-14T05:31:39+00:00
-Principal Private Secretary, Assistant Director, And Hindi Translator Vacancy At National Commission For Protection Of Child Rights, New Delhi
-https://www.livelaw.in/job-updates/principal-private-secretary-assistant-director-and-hindi-translator-vacancy-at-national-commission-for-protection-of-child-rights-new-delhi-558430
+### 2026-11-14T09:32:12+00:00
+Restrained Without Signing: Indirect Competition And Limits Of Section 9
+https://www.livelaw.in/articles/restrained-without-signing-indirect-competition-limits-section9-558366
 
-[Read on Telegram](https://t.me/livelawindia/124516)
-
----
-### 2026-11-14T05:32:19+00:00
-Para Legal Volunteer Vacancy At District Legal Services Authority (DLSA), Kannur, Kerala
-https://www.livelaw.in/job-updates/para-legal-volunteer-vacancy-at-district-legal-services-authority-dlsa-kannur-kerala-558431
-
-[Read on Telegram](https://t.me/livelawindia/124517)
+[Read on Telegram](https://t.me/livelawindia/124540)
 
 ---
-### 2026-11-14T05:32:39+00:00
-'Collective Duty Of Bench & Bar To Make Legal Profession Achieve Greatest Height': Orissa High Court CJ Harish Tandon Retires
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-cj-harish-tandon-retires-558428
+### 2026-11-14T10:22:23+00:00
+Waiting-List Appointee Cannot Claim Seniority From Date Of Original Select List: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/jkl-high-court-holds-waiting-list-appointee-cannot-claim-seniority-from-date-of-original-select-list-says-merit-alone-does-not-determine-inter-se-seniority-558454
 
-[Read on Telegram](https://t.me/livelawindia/124518)
-
----
-### 2026-11-14T05:32:49+00:00
-2023 Parliament Security Breach: Delhi Court Denies Bail To Accused, Says Accusations Prima Facie True
-https://www.livelaw.in/news-updates/2023-parliament-security-breach-delhi-court-denies-bail-to-accused-says-accusations-prima-facie-true-558432
-
-[Read on Telegram](https://t.me/livelawindia/124519)
+[Read on Telegram](https://t.me/livelawindia/124541)
 
 ---
-### 2026-11-14T05:35:59+00:00
-Consultant Vacancy At Deloitte Touche Tohmatsu India LLP
-https://www.livelaw.in/job-updates/consultant-vacancy-at-deloitte-touche-tohmatsu-india-llp-558433
+### 2026-11-14T10:32:23+00:00
+Beyond Access: Imagining Richer Idea Of Childhood
+https://www.livelaw.in/articles/beyond-access-imagining-richer-idea-childhood-558473
 
-[Read on Telegram](https://t.me/livelawindia/124520)
+[Read on Telegram](https://t.me/livelawindia/124542)
 
 ---
-### 2026-11-14T05:40:59+00:00
-Senior Analyst Vacancy At KPMG India
-https://www.livelaw.in/job-updates/senior-analyst-vacancy-at-kpmg-india-558434
+### 2026-11-14T10:33:03+00:00
+LiveLaw Himachal Pradesh High Court Monthly Digest : October 2026
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-monthly-digest-october2026-557874
 
-[Read on Telegram](https://t.me/livelawindia/124521)
+[Read on Telegram](https://t.me/livelawindia/124543)
+
+---
+### 2026-11-14T10:42:43+00:00
+Tripura High Court Restores Anganwadi Workers To Posts With Back Honorarium, Finds Their Cancellation Politically Influenced
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-restores-anganwadi-workers-posts-with-back-honorarium-558458
+
+[Read on Telegram](https://t.me/livelawindia/124544)
+
+---
+### 2026-11-14T10:48:03+00:00
+Retired Guarantor's Pension Was Family's Sole Income; J&K&L High Court Bars Bank From Recovering Borrower's Loan From His Account
+https://www.livelaw.in/high-court/jammu-kashmir/retired-guarantors-pension-was-his-familys-sole-income-jk-hc-bars-bank-from-recovering-borrowers-loan-from-his-account-558451
+
+[Read on Telegram](https://t.me/livelawindia/124545)
+
+---
+### 2026-11-14T10:52:33+00:00
+Mere Filing Of Cheque Dishonour Complaint A Day Before Expiry Of 15-Day Period Not Fatal When Cognizance Taken After Statutory Period: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/mere-filing-of-cheque-dishonour-complaint-a-day-before-expiry-of-15-day-period-not-fatal-when-cognizance-taken-after-statutory-period-jk-high-court-558442
+
+[Read on Telegram](https://t.me/livelawindia/124546)
+
+---
+### 2026-11-14T12:00:24+00:00
+60-Day Discharge Window Under BNSS Applies To POCSO Trials: Calcutta High Court Clarifies
+https://www.livelaw.in/high-court/calcutta-high-court/60-day-discharge-window-under-bnss-applies-to-pocso-trials-calcutta-high-court-clarifies-558482
+
+[Read on Telegram](https://t.me/livelawindia/124547)
+
+---
+### 2026-11-14T12:08:04+00:00
+HP High Court Acquits Postmaster In Misappropriation Case, Finds Audit Records Insufficient To Prove Depositors' Money Was Entrusted To Him
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-acquits-postmaster-finding-audit-records-account-books-insufficient-558462
+
+[Read on Telegram](https://t.me/livelawindia/124548)
+
+---
+### 2026-11-14T12:25:55+00:00
+Indefinite Suspension Of Excise Licence Without Reasons Is “Unjust And Unconscionable”: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/indefinite-suspension-of-excise-licence-without-reasons-is-unjust-and-unconscionable-calcutta-high-court-558483
+
+[Read on Telegram](https://t.me/livelawindia/124549)
+
+---
+### 2026-11-14T12:33:55+00:00
+Anganwadi Centres Are Educational Institutions Under Excise Rules, Liquor Shops Cannot Be Within 1000 Feet: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/anganwadi-centres-are-educational-institutions-under-excise-rules-liquor-shops-cannot-be-within-1000-feet-calcutta-high-court-558485
+
+[Read on Telegram](https://t.me/livelawindia/124550)
+
+---
+### 2026-11-14T12:40:15+00:00
+Calcutta High Court Stays Further Demolition Of Jahangir Khan's House, Seeks Video Proof Of Notice Served On Him
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-stays-further-demolition-of-tmcs-jahangir-khans-house-seeks-video-proof-of-notice-served-on-him-558487
+
+[Read on Telegram](https://t.me/livelawindia/124551)
+
+---
+### 2026-11-14T12:57:15+00:00
+National Highways Act | Landowners Entitled To Interest For Delay In Deposit Of Compensation: HP High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-landowners-entitled-interest-delay-deposit-compensation-558459
+
+[Read on Telegram](https://t.me/livelawindia/124552)
 
 ---
