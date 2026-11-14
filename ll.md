@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-14T07:47:51+00:00*
+*Last Updated: 2026-11-14T08:38:02+00:00*
 
 ---
 
-### 2026-11-14T07:47:51+00:00
-'Very Grim Picture': Gauhati High Court Expresses Concern Over 1.16 Lakh Declared Foreigners Yet To Be Apprehended In Assam
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-upholds-detention-pending-expulsion-558445
-
-[Read on Telegram](https://t.me/livelawindia/124533)
-
----
-### 2026-11-14T08:02:31+00:00
-Rape Victim Need Not Resist By Biting Or Kicking Accused For Her Testimony To Be Believed: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-upholds-20year-pocso-sentence-558447
-
-[Read on Telegram](https://t.me/livelawindia/124534)
-
----
-### 2026-11-14T08:12:12+00:00
-HP High Court Upholds Acquittal In 2 Kg Charas Case, Cites Discrepancy In Colour Of Tape Used During Seizure & Produced In Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-yellow-tape-seizure-records-brown-tape-court-558464
-
-[Read on Telegram](https://t.me/livelawindia/124535)
-
----
-### 2026-11-14T08:18:12+00:00
-Country-Made Pistol Cannot Be Classified As 'Prohibited Arm' U/S 7 Arms Act Merely Because It Is Dangerous Or Unlicensed: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/country-made-pistol-cannot-be-classified-prohibited-arm-under-arms-act-merely-because-dangerous-unlicensed-558455
-
-[Read on Telegram](https://t.me/livelawindia/124536)
-
----
 ### 2026-11-14T08:38:02+00:00
 Lacklustre Manner Of Addressing Critical Medical Officer And Paramedical Vacancies Directly Touches Right To Health: J&K&L High Court
 https://www.livelaw.in/high-court/jammu-kashmir/lacklustre-manner-of-addressing-critical-medical-officer-and-paramedical-vacancies-directly-touches-right-to-health-under-article-21-jk-high-court-seeks-comprehensive-affidavit-558450
@@ -142,5 +114,33 @@ National Highways Act | Landowners Entitled To Interest For Delay In Deposit Of 
 https://www.livelaw.in/high-court/himachal-pradesh-high-court/hp-high-court-landowners-entitled-interest-delay-deposit-compensation-558459
 
 [Read on Telegram](https://t.me/livelawindia/124552)
+
+---
+### 2026-11-14T13:16:57+00:00
+Religious Rituals vs Environmental Protection: Chhath Puja | Here's What Happened
+https://www.livelaw.in/videos/chhath-puja-delhi-high-court-cooch-behar-news-india-legal-clat-judiciary-upsc-558490
+
+[Read on Telegram](https://t.me/livelawindia/124553)
+
+---
+### 2026-11-14T13:32:47+00:00
+LiveLaw Jharkhand High Court Monthly Digest: October 2026
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-monthly-digest-october2026-558146
+
+[Read on Telegram](https://t.me/livelawindia/124554)
+
+---
+### 2026-11-14T14:32:58+00:00
+Recognised By Constitution, Forgotten By Criminal Law? Transgender Protection Gap In India
+https://www.livelaw.in/lawschool/articles/recognised-constitution-forgotten-criminal-law-transgender-protection-gap-india-558369
+
+[Read on Telegram](https://t.me/livelawindia/124555)
+
+---
+### 2026-11-14T14:36:38+00:00
+Courts This Week| Fake HC orders| Stalin's Election Challenge| Rahul Gandhi Defamation & More
+https://www.livelaw.in/videos/rahul-gandhi-stalin-gautam-bhatia-allahabad-high-court-clat-judiciary-students-legal-news-india-558496
+
+[Read on Telegram](https://t.me/livelawindia/124556)
 
 ---
