@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-13T16:02:44+00:00*
+*Last Updated: 2026-11-14T06:52:17+00:00*
+
+---
+
+### 2026-11-14T06:52:17+00:00
+Mere Pendency Of Maintenance Petition Before Family Court Does Not Confer Jurisdiction To Adjudicate DV Act Proceeding: Punjab & Haryana HC
+https://www.verdictum.in/punjab-and-haryana-high-court/2026-phhc-200211-xxxx-v-yyyy-1625719
+
+[Source Link](https://t.me/verdictumlegalupdates/30228)
+
+---
+
+### 2026-11-14T06:02:36+00:00
+Time Taken To Complete Inquiries Before Formal Arrest Cannot Be Excluded Under Article 22(2) Constitution: Delhi High Court
+https://www.verdictum.in/delhi-high-court/shadrach-nwogbo-v-customs-2026dhc10035-cocaine-case-igi-airport-1625715
+
+[Source Link](https://t.me/verdictumlegalupdates/30227)
+
+---
+
+### 2026-11-14T05:22:55+00:00
+Finance Company’s Right To Repossess Vehicle Cannot Be Enforced By Employing Goons: Allahabad High Court Orders Release Of Vehicle Seized At Gunpoint
+https://www.verdictum.in/allahabad-high-court/sadab-ahmad-v-state-of-up-2026ahc221690-db-release-of-vehicle-seized-at-gunpoint-1625714
+
+[Source Link](https://t.me/verdictumlegalupdates/30226)
+
+---
+
+### 2026-11-14T04:33:14+00:00
+Adulterer Is A Proper Party, Not A Necessary Party To Divorce Petition: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/a-v-b-petition-maintainable-non-arraignment-adulterer-party-divorce-proceedings-1625693
+
+[Source Link](https://t.me/verdictumlegalupdates/30225)
 
 ---
 
@@ -129,38 +161,6 @@ Comedy Skit Meant To Make People Laugh: Karnataka High Court Quashes SC-ST Act F
 https://www.verdictum.in/karnataka-high-court/manu-c-v-state-of-karnataka-2026khc62244-1625654
 
 [Source Link](https://t.me/verdictumlegalupdates/30209)
-
----
-
-### 2026-11-13T06:32:37+00:00
-Speeding Is A Significant Road Safety Concern: Kerala High Court Orders More Speed Cameras Across State
-https://www.verdictum.in/kerala-high-court/suo-motu-in-re-road-safety-in-kerala-v-chief-secretary-government-of-kerala-wpc-no-35016-of-2026-1625645
-
-[Source Link](https://t.me/verdictumlegalupdates/30208)
-
----
-
-### 2026-11-13T05:52:16+00:00
-Road Tax Exemption For Disabled Persons Not Restricted To Specially Adapted Vehicles: Madras High Court
-https://www.verdictum.in/madras-high-court/prabhu-jai-sankar-g-v-secretary-tamil-nadu-2026mhc4515-road-tax-disabled-vehicles-1625644
-
-[Source Link](https://t.me/verdictumlegalupdates/30207)
-
----
-
-### 2026-11-13T05:12:45+00:00
-Courts Can Exercise Parens Patriae Jurisdiction In Respect Of Deity: Madras High Court Directs Deity’s Name To Be Added In Revenue Records
-https://www.verdictum.in/madras-high-court/the-executive-officer-v-the-commissioner-of-land-administration-parens-patriae-deity-revenue-1625618
-
-[Source Link](https://t.me/verdictumlegalupdates/30206)
-
----
-
-### 2026-11-13T04:32:14+00:00
-Father’s Admission Of Relationship Do Not By Themselves Justify DNA Test In Maintenance Case: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/fm-v-n-2026khc61121-justify-a-dna-test-to-determine-paternity-1625617
-
-[Source Link](https://t.me/verdictumlegalupdates/30205)
 
 ---
 
