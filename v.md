@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-14T15:02:28+00:00*
+*Last Updated: 2026-11-15T06:02:36+00:00*
+
+---
+
+### 2026-11-15T06:02:36+00:00
+Permanent Lok Adalat Can’t Record Compromise In Respect Of Land Dispute: Patna High Court
+https://www.verdictum.in/patna-high-court/bigan-shah-v-the-state-of-bihar-permanent-lok-adalat-compromise-land-dispute-1625749
+
+[Source Link](https://t.me/verdictumlegalupdates/30242)
+
+---
+
+### 2026-11-15T04:32:35+00:00
+No Reason Stated For Not Marrying: Gujarat High Court Refuses To Quash FIR U/s. 69 BNS
+https://www.verdictum.in/gujarat-high-court/2026-gujhc-70883-no-reason-refusal-marry-section-69-bns-1625747
+
+[Source Link](https://t.me/verdictumlegalupdates/30241)
 
 ---
 
@@ -145,22 +161,6 @@ No Requirement Of Removing Sacred Thread: Examination Authority Tells Karnataka 
 https://www.verdictum.in/karnataka-high-court/2026-khc-61247-db-akhila-karnataka-brahmana-maha-sabha-v-state-of-karnataka-1625685
 
 [Source Link](https://t.me/verdictumlegalupdates/30223)
-
----
-
-### 2026-11-13T15:02:23+00:00
-Tip Amount Can Be Included In Waiter’s Income For Assessing Motor Accident Compensation: Punjab & Haryana High Court
-https://www.verdictum.in/punjab-and-haryana-high-court/united-india-insurance-company-limited-v-vipin-kumar-2026phhc199075-1625684
-
-[Source Link](https://t.me/verdictumlegalupdates/30222)
-
----
-
-### 2026-11-13T14:32:42+00:00
-Appearing In Person No Licence To File Repeated Petitions: Delhi High Court Imposes ₹2 Lakh Costs On ‘Serial Chronic Litigant’
-https://www.verdictum.in/delhi-high-court/satya-prakash-ravidas-v-the-sdmregistrar-of-societies-and-another-in-person-1625683
-
-[Source Link](https://t.me/verdictumlegalupdates/30221)
 
 ---
 
