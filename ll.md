@@ -1,37 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-14T08:38:02+00:00*
+*Last Updated: 2026-11-14T10:22:23+00:00*
 
 ---
 
-### 2026-11-14T08:38:02+00:00
-Lacklustre Manner Of Addressing Critical Medical Officer And Paramedical Vacancies Directly Touches Right To Health: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/lacklustre-manner-of-addressing-critical-medical-officer-and-paramedical-vacancies-directly-touches-right-to-health-under-article-21-jk-high-court-seeks-comprehensive-affidavit-558450
-
-[Read on Telegram](https://t.me/livelawindia/124537)
-
----
-### 2026-11-14T09:11:02+00:00
-J&K&L High Court Questions Challan Against Deceased Man, Says Legal Heirs Have Right To Correct Judicial Record; Stays Trial Proceedings
-https://www.livelaw.in/high-court/jammu-kashmir/jkl-high-court-questions-challan-against-deceased-man-says-legal-heirs-have-right-to-correct-judicial-record-stays-trial-proceedings-558333
-
-[Read on Telegram](https://t.me/livelawindia/124538)
-
----
-### 2026-11-14T09:13:42+00:00
-Allahabad High Court Upholds Dismissal Of Court Employee For Manipulating Convict's Age In Records To Make Him Eligible For Release
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-court-employee-dismissal-convict-age-manipulation-558471
-
-[Read on Telegram](https://t.me/livelawindia/124539)
-
----
-### 2026-11-14T09:32:12+00:00
-Restrained Without Signing: Indirect Competition And Limits Of Section 9
-https://www.livelaw.in/articles/restrained-without-signing-indirect-competition-limits-section9-558366
-
-[Read on Telegram](https://t.me/livelawindia/124540)
-
----
 ### 2026-11-14T10:22:23+00:00
 Waiting-List Appointee Cannot Claim Seniority From Date Of Original Select List: J&K&L High Court
 https://www.livelaw.in/high-court/jammu-kashmir/jkl-high-court-holds-waiting-list-appointee-cannot-claim-seniority-from-date-of-original-select-list-says-merit-alone-does-not-determine-inter-se-seniority-558454
@@ -142,5 +114,33 @@ Courts This Week| Fake HC orders| Stalin's Election Challenge| Rahul Gandhi Defa
 https://www.livelaw.in/videos/rahul-gandhi-stalin-gautam-bhatia-allahabad-high-court-clat-judiciary-students-legal-news-india-558496
 
 [Read on Telegram](https://t.me/livelawindia/124556)
+
+---
+### 2026-11-15T03:44:59+00:00
+Dismissal For Serious Financial Irregularities ; Terminal Benefits Can't Be Granted : Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/dismissal-for-serious-financial-irregularities-terminal-benefits-cant-be-granted-telangana-high-court-558498
+
+[Read on Telegram](https://t.me/livelawindia/124557)
+
+---
+### 2026-11-15T04:33:00+00:00
+Punjab & Haryana High Court Monthly Digest: October 2026
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-monthly-digest-october-2026-557951
+
+[Read on Telegram](https://t.me/livelawindia/124558)
+
+---
+### 2026-11-15T05:31:01+00:00
+Project Analyst Vacancy At Ernst & Young [Noida; Apply Now]
+https://www.livelaw.in/job-updates/project-analyst-vacancy-at-ernst-young-noida-558499
+
+[Read on Telegram](https://t.me/livelawindia/124559)
+
+---
+### 2026-11-15T05:38:41+00:00
+Associate Corporate Counsel Vacancy At Tata Consultancy Services Limited
+https://www.livelaw.in/job-updates/associate-corporate-counsel-vacancy-at-tata-consultancy-services-limited-558500
+
+[Read on Telegram](https://t.me/livelawindia/124560)
 
 ---
