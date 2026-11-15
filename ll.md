@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-14T10:22:23+00:00*
+*Last Updated: 2026-11-14T10:52:33+00:00*
 
 ---
 
-### 2026-11-14T10:22:23+00:00
-Waiting-List Appointee Cannot Claim Seniority From Date Of Original Select List: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/jkl-high-court-holds-waiting-list-appointee-cannot-claim-seniority-from-date-of-original-select-list-says-merit-alone-does-not-determine-inter-se-seniority-558454
-
-[Read on Telegram](https://t.me/livelawindia/124541)
-
----
-### 2026-11-14T10:32:23+00:00
-Beyond Access: Imagining Richer Idea Of Childhood
-https://www.livelaw.in/articles/beyond-access-imagining-richer-idea-childhood-558473
-
-[Read on Telegram](https://t.me/livelawindia/124542)
-
----
-### 2026-11-14T10:33:03+00:00
-LiveLaw Himachal Pradesh High Court Monthly Digest : October 2026
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-monthly-digest-october2026-557874
-
-[Read on Telegram](https://t.me/livelawindia/124543)
-
----
-### 2026-11-14T10:42:43+00:00
-Tripura High Court Restores Anganwadi Workers To Posts With Back Honorarium, Finds Their Cancellation Politically Influenced
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-restores-anganwadi-workers-posts-with-back-honorarium-558458
-
-[Read on Telegram](https://t.me/livelawindia/124544)
-
----
-### 2026-11-14T10:48:03+00:00
-Retired Guarantor's Pension Was Family's Sole Income; J&K&L High Court Bars Bank From Recovering Borrower's Loan From His Account
-https://www.livelaw.in/high-court/jammu-kashmir/retired-guarantors-pension-was-his-familys-sole-income-jk-hc-bars-bank-from-recovering-borrowers-loan-from-his-account-558451
-
-[Read on Telegram](https://t.me/livelawindia/124545)
-
----
 ### 2026-11-14T10:52:33+00:00
 Mere Filing Of Cheque Dishonour Complaint A Day Before Expiry Of 15-Day Period Not Fatal When Cognizance Taken After Statutory Period: J&K&L High Court
 https://www.livelaw.in/high-court/jammu-kashmir/mere-filing-of-cheque-dishonour-complaint-a-day-before-expiry-of-15-day-period-not-fatal-when-cognizance-taken-after-statutory-period-jk-high-court-558442
@@ -142,5 +107,40 @@ Associate Corporate Counsel Vacancy At Tata Consultancy Services Limited
 https://www.livelaw.in/job-updates/associate-corporate-counsel-vacancy-at-tata-consultancy-services-limited-558500
 
 [Read on Telegram](https://t.me/livelawindia/124560)
+
+---
+### 2026-11-15T05:58:02+00:00
+Deposit Of Balance Amount After Passing Of Decree Cannot Retrospectively Revive Right To Defend Under Order XXXVII CPC: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/deposit-of-balance-amount-after-passing-of-decree-cannot-retrospectively-revive-right-to-defend-under-order-xxxvii-cpc-jk-high-court-558457
+
+[Read on Telegram](https://t.me/livelawindia/124561)
+
+---
+### 2026-11-15T07:45:53+00:00
+J&K&L High Court Denies Bail To Two Accused In Alleged JKLF-Y Revival Case
+https://www.livelaw.in/high-court/jammu-kashmir/material-witnesses-about-disclosure-statements-and-recoveries-yet-to-be-examined-jk-ladakh-hc-denies-bail-to-two-accused-in-alleged-jklf-y-revival-case-558456
+
+[Read on Telegram](https://t.me/livelawindia/124562)
+
+---
+### 2026-11-15T13:03:17+00:00
+LiveLaw Allahabad High Court Weekly Round-Up: November 09 To November 15, 2026
+https://www.livelaw.in/round-ups/weekly/livelaw-allahabad-high-court-weekly-round-up-november-09-to-november-15-2026-558503
+
+[Read on Telegram](https://t.me/livelawindia/124563)
+
+---
+### 2026-11-15T13:35:27+00:00
+Better Financial Resources No Ground To Deprive Mother Of Child's Custody: Allahabad High Court Dismisses Grandparents' Appeal
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-better-financial-resources-mother-child-custody-558505
+
+[Read on Telegram](https://t.me/livelawindia/124564)
+
+---
+### 2026-11-15T13:39:47+00:00
+Important MCQs Based On Latest Supreme Court Judgments For Law Examinations
+https://www.livelaw.in/law-exams/important-mcqs-based-on-latest-supreme-court-judgments-for-law-examinations-558506
+
+[Read on Telegram](https://t.me/livelawindia/124565)
 
 ---
