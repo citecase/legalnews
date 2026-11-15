@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-15T06:02:36+00:00*
+*Last Updated: 2026-11-15T15:02:32+00:00*
+
+---
+
+### 2026-11-15T15:02:32+00:00
+Female Legal Fellow Vacancy At Tata Institute of Social Sciences (TISS), Mumbai
+https://www.verdictum.in/job-updates/tata-institute-of-social-sciences-1625741
+
+[Source Link](https://t.me/verdictumlegalupdates/30248)
+
+---
+
+### 2026-11-15T13:32:31+00:00
+Appears To Be A Case Of Regime Change Revenge: Calcutta High Court Upholds Order Setting Aside Mizoram Government's Land Sale Cancellation
+https://www.verdictum.in/calcutta-high-court/state-of-mizoram-and-others-v-excel-vincom-private-limited-and-another-1625769
+
+[Source Link](https://t.me/verdictumlegalupdates/30247)
+
+---
+
+### 2026-11-15T12:02:50+00:00
+POCSO Proceedings Cannot Ordinarily Be Quashed Solely On Settlement Even For Comparatively Less Grave Offence: Kerala High Court
+https://www.verdictum.in/kerala-high-court/ummer-v-station-house-officer-and-others-2026ker85738-posco-settlement-1625768
+
+[Source Link](https://t.me/verdictumlegalupdates/30246)
+
+---
+
+### 2026-11-15T10:32:19+00:00
+Seized Vehicles Involved In Any Offence To Be Released Only After Valid Insurance Policy Is Produced: Karnataka High Court Directs Police & Courts
+https://www.verdictum.in/karnataka-high-court/the-divisional-controller-nekrtc-v-marenna-2026khc-k9088-licence-or-insurance-and-triple-riding-50-negligent-1625767
+
+[Source Link](https://t.me/verdictumlegalupdates/30245)
+
+---
+
+### 2026-11-15T09:02:38+00:00
+Uncommunicated Fraud Allegation Casts Stigma: Meghalaya High Court Asks KHADC To Reconsider License Application
+https://www.verdictum.in/meghalaya-high-court/north-eastern-security-service-v-state-of-meghalaya-2026mlhc1277-1625752
+
+[Source Link](https://t.me/verdictumlegalupdates/30244)
+
+---
+
+### 2026-11-15T07:32:37+00:00
+Past Permissions Don't Justify Use Of Green Area: Delhi High Court Denies Plea To Hold Chhath Puja At Naraina Park
+https://www.verdictum.in/delhi-high-court/lalit-anand-v-govt-of-nct-of-delhi-performance-chhath-puja-green-area-1625750
+
+[Source Link](https://t.me/verdictumlegalupdates/30243)
 
 ---
 
@@ -113,54 +161,6 @@ NHRC Flags Meta’s Funding To UNICEF Amid CSAM Allegations, Seeks Examination B
 https://www.verdictum.in/news/nhrc-meta-funding-unicef-amid-csam-allegations-1625725
 
 [Source Link](https://t.me/verdictumlegalupdates/30229)
-
----
-
-### 2026-11-14T06:52:17+00:00
-Mere Pendency Of Maintenance Petition Before Family Court Does Not Confer Jurisdiction To Adjudicate DV Act Proceeding: Punjab & Haryana HC
-https://www.verdictum.in/punjab-and-haryana-high-court/2026-phhc-200211-xxxx-v-yyyy-1625719
-
-[Source Link](https://t.me/verdictumlegalupdates/30228)
-
----
-
-### 2026-11-14T06:02:36+00:00
-Time Taken To Complete Inquiries Before Formal Arrest Cannot Be Excluded Under Article 22(2) Constitution: Delhi High Court
-https://www.verdictum.in/delhi-high-court/shadrach-nwogbo-v-customs-2026dhc10035-cocaine-case-igi-airport-1625715
-
-[Source Link](https://t.me/verdictumlegalupdates/30227)
-
----
-
-### 2026-11-14T05:22:55+00:00
-Finance Company’s Right To Repossess Vehicle Cannot Be Enforced By Employing Goons: Allahabad High Court Orders Release Of Vehicle Seized At Gunpoint
-https://www.verdictum.in/allahabad-high-court/sadab-ahmad-v-state-of-up-2026ahc221690-db-release-of-vehicle-seized-at-gunpoint-1625714
-
-[Source Link](https://t.me/verdictumlegalupdates/30226)
-
----
-
-### 2026-11-14T04:33:14+00:00
-Adulterer Is A Proper Party, Not A Necessary Party To Divorce Petition: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/a-v-b-petition-maintainable-non-arraignment-adulterer-party-divorce-proceedings-1625693
-
-[Source Link](https://t.me/verdictumlegalupdates/30225)
-
----
-
-### 2026-11-13T16:02:44+00:00
-Reasons Behind Repeated CSAM Offences Must Be Examined To Prevent Recurrence: P&H High Court Orders Psychiatric Evaluation Of Accused
-https://www.verdictum.in/punjab-and-haryana-high-court/tinku-v-state-of-haryana-2026phhc199367-pocso-punjab-haryana-child-sexual-abuse-material-offences-1625680
-
-[Source Link](https://t.me/verdictumlegalupdates/30224)
-
----
-
-### 2026-11-13T15:33:04+00:00
-No Requirement Of Removing Sacred Thread: Examination Authority Tells Karnataka HC; Court Directs Uniform Conduct Of CET
-https://www.verdictum.in/karnataka-high-court/2026-khc-61247-db-akhila-karnataka-brahmana-maha-sabha-v-state-of-karnataka-1625685
-
-[Source Link](https://t.me/verdictumlegalupdates/30223)
 
 ---
 
