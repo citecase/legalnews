@@ -1,6 +1,134 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-16T06:32:57+00:00*
+*Last Updated: 2026-11-16T16:02:41+00:00*
+
+---
+
+### 2026-11-16T16:02:41+00:00
+Legal Retainer Vacancy At Jharkhand Rural Health Mission Society (JRHMS)
+https://www.verdictum.in/job-updates/jharkhand-rural-health-mission-society-1625844
+
+[Source Link](https://t.me/verdictumlegalupdates/30268)
+
+---
+
+### 2026-11-16T15:33:01+00:00
+Solitary Offence, Regardless Of Its Gravity Or Premeditation, Cannot Establish "Habituality" For ‘Goonda’ Classification: Telangana High Court
+https://www.verdictum.in/telangana-high-court/atmakuri-srinu-nagaraju-v-state-of-telangana-and-others-goonda-act-preventive-detention-1625841
+
+[Source Link](https://t.me/verdictumlegalupdates/30267)
+
+---
+
+### 2026-11-16T15:02:20+00:00
+Defamation Complainant Need Not Invariably Produce Witness At Cognizance Stage To Establish Damage To Reputation: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/basanagouda-ramanagouda-patil-yatnal-v-shivananda-s-patil-defamation-mla-1625843
+
+[Source Link](https://t.me/verdictumlegalupdates/30266)
+
+---
+
+### 2026-11-16T14:32:59+00:00
+Vesting Of Surplus Land Cannot Follow Without Final Statement U/S 7(3) Of Assam Ceiling Act: Gauhati High Court
+https://www.verdictum.in/guwahati-high-court/the-principal-secretary-to-the-govt-of-assam-v-arun-sarma-2026gau-as16714-db-family-continues-to-own-about-560-bighas-1625842
+
+[Source Link](https://t.me/verdictumlegalupdates/30265)
+
+---
+
+### 2026-11-16T13:32:17+00:00
+Rowdy Sheet Can't Be Continued Mechanically Or Merely On Past Antecedents: Telangana High Court Issues Guidelines
+https://www.verdictum.in/telangana-high-court/statewide-guidelines-rowdy-sheet-cant-continued-mechanically-past-antecedents-1625840
+
+[Source Link](https://t.me/verdictumlegalupdates/30264)
+
+---
+
+### 2026-11-16T13:02:56+00:00
+CAT Can Entertain Challenge To Notice Issued Without Jurisdiction: Allahabad High Court Upholds Order Quashing Second Notice Of Compulsory Retirement
+https://www.verdictum.in/allahabad-high-court/union-of-india-v-pramod-singh-yadav-2026ahc233845-db-cat-notice-compulsory-retirement-1625839
+
+[Source Link](https://t.me/verdictumlegalupdates/30263)
+
+---
+
+### 2026-11-16T12:32:55+00:00
+Cordial Moments, Family Functions Or Photographs Together Do Not By Themselves Negate Matrimonial Cruelty: Jharkhand High Court
+https://www.verdictum.in/jharkhand-high-court/vc-v-k-2026jhhc32533-db-husband-wife-divorce-cruelty-desertion-1625838
+
+[Source Link](https://t.me/verdictumlegalupdates/30262)
+
+---
+
+### 2026-11-16T12:04:15+00:00
+Bilkis Bano Case: Supreme Court Suspends Life Sentence Of Convicts, Grants Bail Citing Over 17 Years Of Incarceration
+https://www.verdictum.in/supreme-court/bilkis-bano-case-suspends-life-sentence-grants-bail-to-convicts-1625837
+
+[Source Link](https://t.me/verdictumlegalupdates/30261)
+
+---
+
+### 2026-11-16T11:32:34+00:00
+Insufficiently Stamped Document Admissible In Cheque Bounce Case; Payment Of Stamp Duty Not A Condition Precedent: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/insufficiently-stamped-document-admissible-cheque-bounce-case-1625835
+
+[Source Link](https://t.me/verdictumlegalupdates/30260)
+
+---
+
+### 2026-11-16T11:02:13+00:00
+State Cannot Take Adverse Action Against Employee Over Caste Certificate After Years Of Unexplained Delay: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/the-commandant-cisf-v-virupaxagouda-and-others-2026khc-d17609-db-caste-1625834
+
+[Source Link](https://t.me/verdictumlegalupdates/30259)
+
+---
+
+### 2026-11-16T10:32:52+00:00
+Date Of Election Stands Excluded In Computing 45 Days U/S 81(1) RP Act: Madras High Court Refuses To Reject Petition Against Udhayanidhi Stalin's Election
+https://www.verdictum.in/madras-high-court/udhayanidhi-stalin-v-p-milany-oa-nos-860-and-861-of-2026-in-elp-no-18-of-2026-improper-rejection-of-a-nomination-1625833
+
+[Source Link](https://t.me/verdictumlegalupdates/30258)
+
+---
+
+### 2026-11-16T10:03:01+00:00
+Property Dedicated To Deity Is Neither Trustee’s Personal Estate Nor Is Available For Disposal At Will Of Anyone Administering Temple: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/state-of-karnataka-v-sri-jagadguru-renukacharya-education-society-2026khc53883-db-property-deity-temple-1625832
+
+[Source Link](https://t.me/verdictumlegalupdates/30257)
+
+---
+
+### 2026-11-16T09:33:00+00:00
+No Vested Right To Have Constituency Reserved For SCs/STs: Apex Court Dismisses Plea Against Maharashtra's Rotation Policy In Local Bodies
+https://www.verdictum.in/supreme-court/no-vested-right-to-have-constituency-reserved-for-scssts-1625827
+
+[Source Link](https://t.me/verdictumlegalupdates/30256)
+
+---
+
+### 2026-11-16T08:52:59+00:00
+Anganwadi Centre Is Recognised Educational Institution For 1,000-Feet Liquor-Shop Restriction: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/aloke-kuma-dey-v-state-of-west-bengal-and-others-anganwadi-school-liquor-shop-1625826
+
+[Source Link](https://t.me/verdictumlegalupdates/30255)
+
+---
+
+### 2026-11-16T08:02:18+00:00
+Public Servant Status Grants No Immunity From Investigation: J&K And Ladakh High Court Refuses To Quash FIR Against Police Officer
+https://www.verdictum.in/jammu-ladakh-high-court/fayaz-ahmad-sheikh-v-union-territory-of-jammu-and-kashmir-and-others-fir-1625824
+
+[Source Link](https://t.me/verdictumlegalupdates/30254)
+
+---
+
+### 2026-11-16T07:13:17+00:00
+Financier’s Transactions Entered Into In Course Of Its Activities Are "Ordinary Transactions" Under Commercial Courts Act: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/sudha-kankaria-v-krishna-kumar-bhatter-huf-apd-no-8-of-2026-mercantile-document-as-an-indispensable-1625817
+
+[Source Link](https://t.me/verdictumlegalupdates/30253)
 
 ---
 
@@ -33,134 +161,6 @@ Verbatim Copying Of Headnotes: Delhi High Court Grants Interim Injunction To Tax
 https://www.verdictum.in/delhi-high-court/taxmann-allied-services-pvt-ltd-v-commercial-law-publishers-india-pvt-ltd-cscomm-11332026-1625797
 
 [Source Link](https://t.me/verdictumlegalupdates/30249)
-
----
-
-### 2026-11-15T15:02:32+00:00
-Female Legal Fellow Vacancy At Tata Institute of Social Sciences (TISS), Mumbai
-https://www.verdictum.in/job-updates/tata-institute-of-social-sciences-1625741
-
-[Source Link](https://t.me/verdictumlegalupdates/30248)
-
----
-
-### 2026-11-15T13:32:31+00:00
-Appears To Be A Case Of Regime Change Revenge: Calcutta High Court Upholds Order Setting Aside Mizoram Government's Land Sale Cancellation
-https://www.verdictum.in/calcutta-high-court/state-of-mizoram-and-others-v-excel-vincom-private-limited-and-another-1625769
-
-[Source Link](https://t.me/verdictumlegalupdates/30247)
-
----
-
-### 2026-11-15T12:02:50+00:00
-POCSO Proceedings Cannot Ordinarily Be Quashed Solely On Settlement Even For Comparatively Less Grave Offence: Kerala High Court
-https://www.verdictum.in/kerala-high-court/ummer-v-station-house-officer-and-others-2026ker85738-posco-settlement-1625768
-
-[Source Link](https://t.me/verdictumlegalupdates/30246)
-
----
-
-### 2026-11-15T10:32:19+00:00
-Seized Vehicles Involved In Any Offence To Be Released Only After Valid Insurance Policy Is Produced: Karnataka High Court Directs Police & Courts
-https://www.verdictum.in/karnataka-high-court/the-divisional-controller-nekrtc-v-marenna-2026khc-k9088-licence-or-insurance-and-triple-riding-50-negligent-1625767
-
-[Source Link](https://t.me/verdictumlegalupdates/30245)
-
----
-
-### 2026-11-15T09:02:38+00:00
-Uncommunicated Fraud Allegation Casts Stigma: Meghalaya High Court Asks KHADC To Reconsider License Application
-https://www.verdictum.in/meghalaya-high-court/north-eastern-security-service-v-state-of-meghalaya-2026mlhc1277-1625752
-
-[Source Link](https://t.me/verdictumlegalupdates/30244)
-
----
-
-### 2026-11-15T07:32:37+00:00
-Past Permissions Don't Justify Use Of Green Area: Delhi High Court Denies Plea To Hold Chhath Puja At Naraina Park
-https://www.verdictum.in/delhi-high-court/lalit-anand-v-govt-of-nct-of-delhi-performance-chhath-puja-green-area-1625750
-
-[Source Link](https://t.me/verdictumlegalupdates/30243)
-
----
-
-### 2026-11-15T06:02:36+00:00
-Permanent Lok Adalat Can’t Record Compromise In Respect Of Land Dispute: Patna High Court
-https://www.verdictum.in/patna-high-court/bigan-shah-v-the-state-of-bihar-permanent-lok-adalat-compromise-land-dispute-1625749
-
-[Source Link](https://t.me/verdictumlegalupdates/30242)
-
----
-
-### 2026-11-15T04:32:35+00:00
-No Reason Stated For Not Marrying: Gujarat High Court Refuses To Quash FIR U/s. 69 BNS
-https://www.verdictum.in/gujarat-high-court/2026-gujhc-70883-no-reason-refusal-marry-section-69-bns-1625747
-
-[Source Link](https://t.me/verdictumlegalupdates/30241)
-
----
-
-### 2026-11-14T15:02:28+00:00
-Chanakya National Law University Invites Applications For Post Of Assistant Professor
-https://www.verdictum.in/job-updates/chanakya-national-law-university-1625740
-
-[Source Link](https://t.me/verdictumlegalupdates/30240)
-
----
-
-### 2026-11-14T14:12:27+00:00
-Deity Is Not Exempt From Adverse Possession Claim Merely Because It Is Described As A Perpetual Minor: Orissa High Court
-https://www.verdictum.in/orissa-high-court/2026-ohc-259-ghuturam-bagh-v-commissioner-of-endowments-1625746
-
-[Source Link](https://t.me/verdictumlegalupdates/30239)
-
----
-
-### 2026-11-14T13:32:46+00:00
-Grounds Raised In Dismissed Plea For Divorce Can't Be Raised Again For Judicial Separation: Gauhati High Court
-https://www.verdictum.in/guwahati-high-court/a-v-b-raise-same-grounds-judicial-separation-suit-dismissal-suit-divorce-1625744
-
-[Source Link](https://t.me/verdictumlegalupdates/30238)
-
----
-
-### 2026-11-14T12:53:25+00:00
-Animals Found In Inhuman Condition No Ground To Presume They Were Being Transported For Slaughter: Gujarat High Court
-https://www.verdictum.in/gujarat-high-court/2026-gujhc-70678-ashvinbhai-govindbhai-navadiya-v-state-of-gujarat-1625738
-
-[Source Link](https://t.me/verdictumlegalupdates/30237)
-
----
-
-### 2026-11-14T12:12:44+00:00
-Demand & Acceptance May Be Inferred From Evidence: Kerala High Court Directs CBI Court To Complete Trial In 2014 Bribery Case
-https://www.verdictum.in/kerala-high-court/vincent-joseph-chowalloor-v-state-represented-by-inspector-of-police-cbispe-cochin-2026ker84142-1625736
-
-[Source Link](https://t.me/verdictumlegalupdates/30236)
-
----
-
-### 2026-11-14T11:32:23+00:00
-Negative Phenolphthalein Test No Aid To Accused When Bribe Was Placed In Measurement Book At His Direction: Kerala High Court
-https://www.verdictum.in/kerala-high-court/2026-ker-84870-vg-balanchandraji-v-state-of-kerala-1625735
-
-[Source Link](https://t.me/verdictumlegalupdates/30235)
-
----
-
-### 2026-11-14T10:53:03+00:00
-Magisterial Inquiry U/S 196 BNSS Is Limited To Establishing Apparent Cause Of Death; Can't Be Used To Determine Officials’ Negligence: Tripura High Court
-https://www.verdictum.in/tripura-high-court/inspector-general-of-prisons-tripura-v-tripura-human-rights-commission-and-another-2026thc1476-db-1625734
-
-[Source Link](https://t.me/verdictumlegalupdates/30234)
-
----
-
-### 2026-11-14T10:12:42+00:00
-Interest Component Of Arbitral Award Not To Be Included While Calculating Stamp Duty: Delhi High Court
-https://www.verdictum.in/delhi-high-court/interest-component-arbitral-award-not-included-stamp-duty-1625733
-
-[Source Link](https://t.me/verdictumlegalupdates/30233)
 
 ---
 
