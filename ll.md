@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-15T07:45:53+00:00*
+*Last Updated: 2026-11-16T11:32:33+00:00*
 
 ---
 
-### 2026-11-15T07:45:53+00:00
-J&K&L High Court Denies Bail To Two Accused In Alleged JKLF-Y Revival Case
-https://www.livelaw.in/high-court/jammu-kashmir/material-witnesses-about-disclosure-statements-and-recoveries-yet-to-be-examined-jk-ladakh-hc-denies-bail-to-two-accused-in-alleged-jklf-y-revival-case-558456
+### 2026-11-16T11:32:33+00:00
+Default In Deciding Objections Cannot Lead To Automatic Cancellation Of Order Keeping Building Permission In Abeyance: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/default-in-deciding-objections-cannot-lead-to-automatic-cancellation-of-order-keeping-building-permission-in-abeyance-jk-high-court-558515
 
-[Read on Telegram](https://t.me/livelawindia/124562)
-
----
-### 2026-11-15T13:03:17+00:00
-LiveLaw Allahabad High Court Weekly Round-Up: November 09 To November 15, 2026
-https://www.livelaw.in/round-ups/weekly/livelaw-allahabad-high-court-weekly-round-up-november-09-to-november-15-2026-558503
-
-[Read on Telegram](https://t.me/livelawindia/124563)
+[Read on Telegram](https://t.me/livelawindia/124611)
 
 ---
-### 2026-11-15T13:35:27+00:00
-Better Financial Resources No Ground To Deprive Mother Of Child's Custody: Allahabad High Court Dismisses Grandparents' Appeal
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-better-financial-resources-mother-child-custody-558505
+### 2026-11-16T11:43:03+00:00
+Court Can't Order Police Probe Against Party Seeking To Unfreeze Bank Account Merely Due To Large Amounts Credits: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-defreezing-plea-independent-police-probe-558604
 
-[Read on Telegram](https://t.me/livelawindia/124564)
-
----
-### 2026-11-15T13:39:47+00:00
-Important MCQs Based On Latest Supreme Court Judgments For Law Examinations
-https://www.livelaw.in/law-exams/important-mcqs-based-on-latest-supreme-court-judgments-for-law-examinations-558506
-
-[Read on Telegram](https://t.me/livelawindia/124565)
+[Read on Telegram](https://t.me/livelawindia/124612)
 
 ---
-### 2026-11-16T02:55:26+00:00
-Data Privacy And Consent Manager Vacancy At Small Industries Development Bank Of India
-https://www.livelaw.in/job-updates/data-privacy-and-consent-manager-vacancy-at-small-industries-development-bank-of-india-558516
+### 2026-11-16T11:52:03+00:00
+P&H High Court Denies Bail To Man Accused Of Spying On Indian Army Movements For Pakistan Through CCTV Cameras
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-denies-bail-to-accused-of-surveilling-cctv-of-army-movements-for-pakistan-based-handlers-558611
 
-[Read on Telegram](https://t.me/livelawindia/124566)
-
----
-### 2026-11-16T02:58:46+00:00
-Academic Fellow (Criminal Law) Vacancy At National Law University, Delhi
-https://www.livelaw.in/job-updates/academic-fellow-criminal-law-vacancy-at-national-law-university-delhi-558517
-
-[Read on Telegram](https://t.me/livelawindia/124567)
+[Read on Telegram](https://t.me/livelawindia/124613)
 
 ---
-### 2026-11-16T02:59:26+00:00
-Project Executive Officer Vacancy At Indian Institute Of Technology Kanpur
-https://www.livelaw.in/job-updates/project-executive-officer-vacancy-at-indian-institute-of-technology-kanpur-558518
+### 2026-11-16T12:03:03+00:00
+'Tried To Play Tricks': Allahabad High Court Criticises UP Govt Officials For Concealing Tender Cancellation From Contractor
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-cancelling-bidder-tender-security-shortfall-communicated-arbitrary-558612
 
-[Read on Telegram](https://t.me/livelawindia/124568)
-
----
-### 2026-11-16T03:00:06+00:00
-Law Researcher Vacancy At Commercial Courts Of South District, Saket Courts, New Delhi
-https://www.livelaw.in/job-updates/law-researcher-vacancy-at-commercial-courts-of-south-district-saket-courts-new-delhi-558519
-
-[Read on Telegram](https://t.me/livelawindia/124569)
+[Read on Telegram](https://t.me/livelawindia/124614)
 
 ---
-### 2026-11-16T03:36:26+00:00
-Nivaaran Announces 7th International Summer School On Mediation; CJI Surya Kant To Inaugurate
-https://www.livelaw.in/events/nivaaran-announces-7th-international-summer-school-mediation-cji-surya-kant-inaugurate-558520
+### 2026-11-16T12:12:34+00:00
+Past Criminal Cases Alone Can't Justify Police Surveillance: Telangana High Court Issues Guidelines For Opening, Review Of Rowdy Sheets
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-quashes-rowdy-sheet-issues-landmark-guidelines-police-surveillance-558614
 
-[Read on Telegram](https://t.me/livelawindia/124570)
-
----
-### 2026-11-16T03:39:36+00:00
-[Advertisement] Kerala Law Academy, CCIFS Delhi Announce 60-Hour Certification Course In Forensic Science & Law
-https://www.livelaw.in/lawschool/diploma-certificate-courses/kerala-law-academy-ccifs-delhi-announce-60-hour-certification-course-558521
-
-[Read on Telegram](https://t.me/livelawindia/124571)
+[Read on Telegram](https://t.me/livelawindia/124615)
 
 ---
-### 2026-11-16T04:34:26+00:00
-LiveLaw Gujarat High Court Weekly Round-Up: November 9 - November 16, 2026
-https://www.livelaw.in/high-court/gujarat-high-court/livelaw-gujarat-high-court-weekly-round-up-558524
+### 2026-11-16T12:22:54+00:00
+Kerala High Court Frowns Upon Junior Govt Officers Filing Affidavits On Behalf Of Senior Officials Specifically Directed To Respond
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-junior-officers-statements-on-behalf-senior-officers-not-be-followed-558615
 
-[Read on Telegram](https://t.me/livelawindia/124572)
-
----
-### 2026-11-16T04:42:46+00:00
-Top 20 High Court Judgments Of The Week
-https://www.livelaw.in/high-court/all-high-courts/most-important-high-court-judgments-of-the-week-558526
-
-[Read on Telegram](https://t.me/livelawindia/124573)
+[Read on Telegram](https://t.me/livelawindia/124616)
 
 ---
-### 2026-11-16T04:43:46+00:00
-No Prosecution Against SIR-Deleted Voters Filing Form 6 To Restore Names In Electoral Rolls, ECI Tells Supreme Court
-https://www.livelaw.in/top-stories/no-prosecution-against-sir-deleted-voters-filing-form-6-to-restore-names-in-electoral-rolls-eci-tells-supreme-court-558527
+### 2026-11-16T12:33:14+00:00
+Independent Witness Need Not Personally Believe Complainant's Reputation Was Lowered For Defamation Case To Proceed: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-complainant-examine-witness-cognizance-defamation-complaint-section356-bns-558616
 
-[Read on Telegram](https://t.me/livelawindia/124574)
-
----
-### 2026-11-16T04:48:06+00:00
-'Sad Day For Democracy' If Criminal Cases Are Used To Stifle Peaceful Protests: Bombay High Court
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-mindset-unleash-prosecution-against-right-protest-gains-traction-558528
-
-[Read on Telegram](https://t.me/livelawindia/124575)
+[Read on Telegram](https://t.me/livelawindia/124617)
 
 ---
-### 2026-11-16T04:49:26+00:00
-Kerala High Court Directs Police To Ensure Antioch Patriarch Abides By Church Dispute Judgments, Visa Conditions During Visit
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-state-police-chief-syrian-patriarch-not-violate-malankara-church-court-decrees-kerala-visit-558529
+### 2026-11-16T12:42:54+00:00
+Mere Mention Of Name Without Evidence Of Role In Criminal Conspiracy Not Enough For Trial: MP High Court Quashes FIR Against Law Student
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-name-mentioned-in-criminal-conspiracy-fir-without-specific-act-or-material-not-enough-for-trial-558617
 
-[Read on Telegram](https://t.me/livelawindia/124576)
-
----
-### 2026-11-16T04:54:26+00:00
-'Detention Can't Circumvent Bail': Kerala High Court Asks FRRO To Consider Rented Accommodation For Foreign National Booked Under UAPA
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-foreigner-bail-granted-transit-home-detention-558531
-
-[Read on Telegram](https://t.me/livelawindia/124577)
+[Read on Telegram](https://t.me/livelawindia/124618)
 
 ---
-### 2026-11-16T05:03:07+00:00
-Compassionate Appointment Can't Be Claimed After Decades Merely Because Application Was Filed On Time: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-holds-compassionate-appointment-claim-survive-30years-inaction-558532
+### 2026-11-16T12:53:04+00:00
+Third Party Claiming Ownership Or Possession Doesn't Automatically Become Necessary Party In Eviction Suit: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-third-party-asserting-independent-ownership-separate-tenancy-necessary-party-eviction-suit-558618
 
-[Read on Telegram](https://t.me/livelawindia/124578)
-
----
-### 2026-11-16T05:12:37+00:00
-POCSO Case Over Adolescent Relationship: Meghalaya High Court Quashes Proceedings As Couple Lives Together With Child
-https://www.livelaw.in/high-court/meghalaya-high-court/meghalaya-high-court-quashes-case-against-man-consensual-adolescent-relationship-558534
-
-[Read on Telegram](https://t.me/livelawindia/124579)
+[Read on Telegram](https://t.me/livelawindia/124619)
 
 ---
-### 2026-11-16T05:22:57+00:00
-LiveLaw Kerala High Court Weekly Round-Up: November 9 - November 15, 2026
-https://www.livelaw.in/high-court/kerala-high-court/livelaw-kerala-high-court-weekly-round-up-november-558535
+### 2026-11-16T13:02:44+00:00
+Investor Firm's CFO Cannot Be Implicated In Company's Alleged Fraud Merely Due To Association: Telangana High Court
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-investor-firm-cfo-implicated-company-alleged-fraud-558620
 
-[Read on Telegram](https://t.me/livelawindia/124580)
+[Read on Telegram](https://t.me/livelawindia/124620)
 
 ---
-### 2026-11-16T05:32:37+00:00
-Assam Land Ceiling Act | State Can't Transfer Surplus Land To Third Parties Without Completing Acquisition Process: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-state-transfer-surplus-land-third-parties-acquisition-process-558536
+### 2026-11-16T13:04:45+00:00
+Did Election Commissioners Approve ECI's Affidavit? Were Their Objections On SIR Recorded? INDIA Bloc Raise 48 Queries In Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-rahul-gandhi-india-bloc-leaders-interrogatory-for-election-commission-ecinet-approval-of-eci-affidavits-form-6-changes-558624
 
-[Read on Telegram](https://t.me/livelawindia/124581)
+[Read on Telegram](https://t.me/livelawindia/124621)
+
+---
+### 2026-11-16T13:14:05+00:00
+When Can NCLAT Remand Resolution Plan To CoC? Supreme Court Explains
+https://www.livelaw.in/supreme-court/when-can-nclat-remand-resolution-plan-to-coc-supreme-court-explains-558625
+
+[Read on Telegram](https://t.me/livelawindia/124622)
+
+---
+### 2026-11-16T13:15:05+00:00
+2026 LiveLaw (SC) 1152  |  TWINSTAR TECHNOLOGIES LIMITED VERSUS BANK OF MAHARASHTRA & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1152-twinstar-technologies-limited-versus-bank-of-maharashtra-ors-558626
+
+[Read on Telegram](https://t.me/livelawindia/124623)
+
+---
+### 2026-11-16T13:38:05+00:00
+Whether Grounds Of Arrest Were Offered To Azam Khan At The Time Of His Arrest? Allahabad High Court Seeks ED Affidavit
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-azam-khan-ed-arrest-grounds-of-arrest-affidavit-558628
+
+[Read on Telegram](https://t.me/livelawindia/124624)
+
+---
+### 2026-11-16T14:35:27+00:00
+Supreme Court Mulls Asking State Judicial Academies To Scan HC Judgments For Objectionable Remarks In Sexual Offence Cases
+https://www.livelaw.in/top-stories/supreme-court-mulls-judicial-academies-survey-of-high-court-decisions-objectionable-observations-sexual-offenses-expunging-remarks-558638
+
+[Read on Telegram](https://t.me/livelawindia/124625)
+
+---
+### 2026-11-16T15:04:47+00:00
+Supreme Court Awards Rs. 30 Lakhs To Man Kept In Jail For 7 Years Despite Acquittal, Recommends Law To Compensate Illegal Custody
+https://www.livelaw.in/supreme-court/supreme-court-awards-rs-30-lakhs-to-man-kept-in-jail-for-7-years-despite-acquittal-recommends-law-to-compensate-illegal-custody-558641
+
+[Read on Telegram](https://t.me/livelawindia/124626)
+
+---
+### 2026-11-16T15:07:18+00:00
+2026 LiveLaw (SC) 1153 | DEVILAL GOND VERSUS STATE OF CHHATTISGARH & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1153-devilal-gond-versus-state-of-chhattisgarh-ors-558642
+
+[Read on Telegram](https://t.me/livelawindia/124627)
+
+---
+### 2026-11-16T15:07:57+00:00
+One Notification Away: How DPDP Act Lets State Switch Itself Off
+https://www.livelaw.in/lawschool/articles/one-notification-away-how-dpdp-act-lets-state-switch-itself-off-558643
+
+[Read on Telegram](https://t.me/livelawindia/124628)
+
+---
+### 2026-11-16T15:10:57+00:00
+Gratuity Can't Be Withheld Because Of Pending Appeal Against Acquittal: Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-pending-appeal-against-acquittal-ground-withhold-retired-employees-gratuity-558644
+
+[Read on Telegram](https://t.me/livelawindia/124629)
+
+---
+### 2026-11-16T15:12:17+00:00
+2026 LiveLaw (SC) 1154 | Delhi Development Authority v Rajender Kumar Sharma
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1154-delhi-development-authority-v-rajender-kumar-sharma-558645
+
+[Read on Telegram](https://t.me/livelawindia/124630)
 
 ---
