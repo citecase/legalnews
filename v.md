@@ -1,6 +1,38 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-15T15:02:32+00:00*
+*Last Updated: 2026-11-16T06:32:57+00:00*
+
+---
+
+### 2026-11-16T06:32:57+00:00
+Adjudication Of Tenancy Rights Is Beyond Scope Of Proceedings U/S. 14 SARFAESI Act; Tenants’ Remedy Lies Before DRT: Kerala High Court
+https://www.verdictum.in/kerala-high-court/yousuf-sidique-v-axis-bank-ltd-2026ker86722-section-14-sarfaesi-proceedings-1625811
+
+[Source Link](https://t.me/verdictumlegalupdates/30252)
+
+---
+
+### 2026-11-16T05:42:26+00:00
+Without Proof Of Intoxication, Knowledge Cannot Be Attributed: Madras High Court Alters Conviction From S.304 IPC To S. 304A IPC
+https://www.verdictum.in/madras-high-court/muthiah-v-the-inspector-of-police-crl-amd-no-108-of-2019-evidence-of-blood-alcohol-legal-limit-1625808
+
+[Source Link](https://t.me/verdictumlegalupdates/30251)
+
+---
+
+### 2026-11-16T05:03:05+00:00
+Distinction Between Proof Of Sexual Intercourse & Proof Of Rape Is Fundamental: Delhi High Court Acquits Rape Accused
+https://www.verdictum.in/delhi-high-court/narayan-v-state-2026dhc9974-dna-bed-sheet-absence-of-consent-1625805
+
+[Source Link](https://t.me/verdictumlegalupdates/30250)
+
+---
+
+### 2026-11-16T04:32:14+00:00
+Verbatim Copying Of Headnotes: Delhi High Court Grants Interim Injunction To Taxmann Against Commercial Law Publishers
+https://www.verdictum.in/delhi-high-court/taxmann-allied-services-pvt-ltd-v-commercial-law-publishers-india-pvt-ltd-cscomm-11332026-1625797
+
+[Source Link](https://t.me/verdictumlegalupdates/30249)
 
 ---
 
@@ -129,38 +161,6 @@ Interest Component Of Arbitral Award Not To Be Included While Calculating Stamp 
 https://www.verdictum.in/delhi-high-court/interest-component-arbitral-award-not-included-stamp-duty-1625733
 
 [Source Link](https://t.me/verdictumlegalupdates/30233)
-
----
-
-### 2026-11-14T09:33:21+00:00
-Absence Of Weapon, Premeditation Or Prior Enmity Relevant In Determining Whether Fatal Assault Constitutes Murder: Jharkhand High Court
-https://www.verdictum.in/jharkhand-high-court/tasleem-khan-v-state-of-jharkhand-and-connected-appeal-2026jhhc31658-db-1625732
-
-[Source Link](https://t.me/verdictumlegalupdates/30232)
-
----
-
-### 2026-11-14T08:52:20+00:00
-Govt Has to Demonstrate That OBC List Inclusion Is Warranted: Madras High Court Admits Petition Challenging Schedule I Of Government Servants (Conditions of Service) Act, 2016
-https://www.verdictum.in/madras-high-court/gkodeeswaran-v-the-state-of-tamil-nadu-govt-obc-list-inclusion-challenge-schedule-i-government-servants-conditions-of-service-act-1625730
-
-[Source Link](https://t.me/verdictumlegalupdates/30231)
-
----
-
-### 2026-11-14T08:12:19+00:00
-Failure Of Family Members To Rescue Victim Cannot Sustain Their Dowry-Death Conviction Without Specific Proof: Jharkhand High Court
-https://www.verdictum.in/jharkhand-high-court/x-v-state-of-jharkhand-2026jhhc31680-db-family-members-dowry-death-cruelty-1625727
-
-[Source Link](https://t.me/verdictumlegalupdates/30230)
-
----
-
-### 2026-11-14T07:32:38+00:00
-NHRC Flags Meta’s Funding To UNICEF Amid CSAM Allegations, Seeks Examination By Ministry Of Women & Child Development
-https://www.verdictum.in/news/nhrc-meta-funding-unicef-amid-csam-allegations-1625725
-
-[Source Link](https://t.me/verdictumlegalupdates/30229)
 
 ---
 
