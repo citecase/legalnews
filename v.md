@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-16T16:02:41+00:00*
+*Last Updated: 2026-11-17T08:02:51+00:00*
+
+---
+
+### 2026-11-17T08:02:51+00:00
+Supreme Court Issues Notice On Kerala’s Appeal Against High Court Bail To Ex-BJP Leader Convicted In Palathayi POCSO Case
+https://www.verdictum.in/supreme-court/notice-on-keralas-appeal-against-high-court-bail-to-ex-bjp-leader-convicted-in-palathayi-pocso-case-1625894
+
+[Source Link](https://t.me/verdictumlegalupdates/30276)
+
+---
+
+### 2026-11-17T07:32:50+00:00
+Interim Relief Refused U/S 9 A&C Act Cannot Be Renewed In Suit Against Same Parties: Madras High Court Declines To Restrain OTT Release Of Drishyam 3
+https://www.verdictum.in/madras-high-court/rajkumar-theatres-pvt-ltd-v-wide-angle-creations-oa-no-1114-of-2026-dhrishyam-3the-conclusion-1625891
+
+[Source Link](https://t.me/verdictumlegalupdates/30275)
+
+---
+
+### 2026-11-17T07:02:09+00:00
+S.8 Kerala Private Forests Act| Burden of Proving That Land Is Not Private Forest Lies on Person Asserting Same: Supreme Court
+https://www.verdictum.in/supreme-court/state-of-kerala-v-p-krishna-pillai-ors-2026-insc-1212-sec8-kerala-private-forests-act-1625883
+
+[Source Link](https://t.me/verdictumlegalupdates/30274)
+
+---
+
+### 2026-11-17T06:32:48+00:00
+CoC Not Functus Officio On Approving Resolution Plan; Can Revisit Decision If Approval Is Set Aside In Appeal: Supreme Court In Videocon Case
+https://www.verdictum.in/supreme-court/twinstar-technologies-limited-v-bank-of-maharashtra-2026-insc-1214-videocon-insolvency-1625882
+
+[Source Link](https://t.me/verdictumlegalupdates/30273)
+
+---
+
+### 2026-11-17T06:02:27+00:00
+Punjab & Haryana HC Upholds Decision To Permit Couple Who Crossed Age Limit To Undergo ART Treatment Based On Undertaking
+https://www.verdictum.in/punjab-and-haryana-high-court/2026phhc201438-db-age-limit-assisted-reproductive-technology-act-undertaking-1625876
+
+[Source Link](https://t.me/verdictumlegalupdates/30272)
+
+---
+
+### 2026-11-17T05:28:47+00:00
+Breaking: Supreme Court Dismisses UP Govt’s Appeal Against Stay Of Azam Khan’s Conviction, Allows Pleas Of Wife And Son In Birth Certificate Case
+https://www.verdictum.in/supreme-court/dismisses-up-govts-appeal-against-stay-azam-khan-conviction-wife-and-son-birth-certificate-case-1625877
+
+[Source Link](https://t.me/verdictumlegalupdates/30271)
+
+---
+
+### 2026-11-17T05:02:26+00:00
+Trend Shows Sufficient Maturity In Children: Kerala High Court Suggests Reducing Age Of Juveniles To 16 Years
+https://www.verdictum.in/kerala-high-court/vinod-vikraman-pillai-v-state-of-kerala-trend-maturity-children-reducing-age-juvenile-1625874
+
+[Source Link](https://t.me/verdictumlegalupdates/30270)
+
+---
+
+### 2026-11-17T04:32:55+00:00
+Sec 175(3) BNSS- Magistrate Must Hear Police On Refusal To Register FIR Before Ordering Investigation: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/r-vijay-bhaskar-v-state-of-karnataka-2026khc61920-magistrate-order-sec1753-of-bnss-1625852
+
+[Source Link](https://t.me/verdictumlegalupdates/30269)
 
 ---
 
@@ -97,70 +161,6 @@ Property Dedicated To Deity Is Neither Trustee’s Personal Estate Nor Is Availa
 https://www.verdictum.in/karnataka-high-court/state-of-karnataka-v-sri-jagadguru-renukacharya-education-society-2026khc53883-db-property-deity-temple-1625832
 
 [Source Link](https://t.me/verdictumlegalupdates/30257)
-
----
-
-### 2026-11-16T09:33:00+00:00
-No Vested Right To Have Constituency Reserved For SCs/STs: Apex Court Dismisses Plea Against Maharashtra's Rotation Policy In Local Bodies
-https://www.verdictum.in/supreme-court/no-vested-right-to-have-constituency-reserved-for-scssts-1625827
-
-[Source Link](https://t.me/verdictumlegalupdates/30256)
-
----
-
-### 2026-11-16T08:52:59+00:00
-Anganwadi Centre Is Recognised Educational Institution For 1,000-Feet Liquor-Shop Restriction: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/aloke-kuma-dey-v-state-of-west-bengal-and-others-anganwadi-school-liquor-shop-1625826
-
-[Source Link](https://t.me/verdictumlegalupdates/30255)
-
----
-
-### 2026-11-16T08:02:18+00:00
-Public Servant Status Grants No Immunity From Investigation: J&K And Ladakh High Court Refuses To Quash FIR Against Police Officer
-https://www.verdictum.in/jammu-ladakh-high-court/fayaz-ahmad-sheikh-v-union-territory-of-jammu-and-kashmir-and-others-fir-1625824
-
-[Source Link](https://t.me/verdictumlegalupdates/30254)
-
----
-
-### 2026-11-16T07:13:17+00:00
-Financier’s Transactions Entered Into In Course Of Its Activities Are "Ordinary Transactions" Under Commercial Courts Act: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/sudha-kankaria-v-krishna-kumar-bhatter-huf-apd-no-8-of-2026-mercantile-document-as-an-indispensable-1625817
-
-[Source Link](https://t.me/verdictumlegalupdates/30253)
-
----
-
-### 2026-11-16T06:32:57+00:00
-Adjudication Of Tenancy Rights Is Beyond Scope Of Proceedings U/S. 14 SARFAESI Act; Tenants’ Remedy Lies Before DRT: Kerala High Court
-https://www.verdictum.in/kerala-high-court/yousuf-sidique-v-axis-bank-ltd-2026ker86722-section-14-sarfaesi-proceedings-1625811
-
-[Source Link](https://t.me/verdictumlegalupdates/30252)
-
----
-
-### 2026-11-16T05:42:26+00:00
-Without Proof Of Intoxication, Knowledge Cannot Be Attributed: Madras High Court Alters Conviction From S.304 IPC To S. 304A IPC
-https://www.verdictum.in/madras-high-court/muthiah-v-the-inspector-of-police-crl-amd-no-108-of-2019-evidence-of-blood-alcohol-legal-limit-1625808
-
-[Source Link](https://t.me/verdictumlegalupdates/30251)
-
----
-
-### 2026-11-16T05:03:05+00:00
-Distinction Between Proof Of Sexual Intercourse & Proof Of Rape Is Fundamental: Delhi High Court Acquits Rape Accused
-https://www.verdictum.in/delhi-high-court/narayan-v-state-2026dhc9974-dna-bed-sheet-absence-of-consent-1625805
-
-[Source Link](https://t.me/verdictumlegalupdates/30250)
-
----
-
-### 2026-11-16T04:32:14+00:00
-Verbatim Copying Of Headnotes: Delhi High Court Grants Interim Injunction To Taxmann Against Commercial Law Publishers
-https://www.verdictum.in/delhi-high-court/taxmann-allied-services-pvt-ltd-v-commercial-law-publishers-india-pvt-ltd-cscomm-11332026-1625797
-
-[Source Link](https://t.me/verdictumlegalupdates/30249)
 
 ---
 
