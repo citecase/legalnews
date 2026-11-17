@@ -1,6 +1,134 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-17T08:02:51+00:00*
+*Last Updated: 2026-11-17T16:02:44+00:00*
+
+---
+
+### 2026-11-17T16:02:44+00:00
+Manager-Legal Vacancy At Uttar Pradesh Medical Supplies Corporation Limited (UPMSCL)
+https://www.verdictum.in/job-updates/uttar-pradesh-medical-supplies-corporation-limited-1625912
+
+[Source Link](https://t.me/verdictumlegalupdates/30292)
+
+---
+
+### 2026-11-17T15:32:23+00:00
+"Cancerous Growth": Sikkim High Court Flags Nepotism In Own Administration, Upholds Termination Of 'Backdoor' Appointee
+https://www.verdictum.in/sikkim-high-court/smriti-chettri-protocol-cum-liaison-officer-backdoor-entry-nepotism-1625923
+
+[Source Link](https://t.me/verdictumlegalupdates/30291)
+
+---
+
+### 2026-11-17T15:02:43+00:00
+NCLAT Doesn't Have Power Of Review Under IBC But Can Recall Orders Under Rule 11 Of NCLAT Rules: Supreme Court Reiterates
+https://www.verdictum.in/supreme-court/lulu-international-shopping-malls-v-gorinka-pratyusha-2026-insc-1224-nclat-review-ibc-1625922
+
+[Source Link](https://t.me/verdictumlegalupdates/30290)
+
+---
+
+### 2026-11-17T14:33:02+00:00
+"Raises Unnecessary Doubts": Supreme Court Flags 6-Week Delay By Madras HC In Uploading Judgment
+https://www.verdictum.in/supreme-court/madras-high-court-six-week-delay-in-uploading-judgment-1625920
+
+[Source Link](https://t.me/verdictumlegalupdates/30289)
+
+---
+
+### 2026-11-17T14:02:41+00:00
+Accused Are Common & Evidence Is Overlapping: Supreme Court Directs Clubbing Of Two Lal Qila Blast Related FIRs
+https://www.verdictum.in/supreme-court/union-of-india-v-arif-nisar-sahil-and-others-etc-2026-insc-1210-accused-common-evidence-overlapping-1625919
+
+[Source Link](https://t.me/verdictumlegalupdates/30288)
+
+---
+
+### 2026-11-17T13:32:20+00:00
+Trap Officer's Hearsay Account Cannot Establish Demand & Acceptance Of Bribe Where Shadow Witness Did Not Testify: Supreme Court Acquits Tehsildar In Corruption Case
+https://www.verdictum.in/supreme-court/har-parsad-gaur-v-state-nct-of-delhi-2026-insc-1230-hearsay-account-of-trap-officer-1625911
+
+[Source Link](https://t.me/verdictumlegalupdates/30287)
+
+---
+
+### 2026-11-17T13:02:59+00:00
+Compensation For Rebuilding Life Of Wrongfully Incarcerated Person Is Not Charity, It Is Bare Minimum: Supreme Court
+https://www.verdictum.in/supreme-court/devilal-gond-v-state-of-chhattisgarh-2026-insc-1226-7-years-detention-after-acquittal-wrongful-incarceration-1625910
+
+[Source Link](https://t.me/verdictumlegalupdates/30286)
+
+---
+
+### 2026-11-17T12:32:38+00:00
+Fixing Solar Power System On Civil Foundation For Stability Does Not By Itself Make It Immovable Property: Supreme Court
+https://www.verdictum.in/supreme-court/ms-sterling-and-wilson-pvt-ltd-v-union-of-india-2026-insc-1222-works-contract-under-the-cgst-act-1625909
+
+[Source Link](https://t.me/verdictumlegalupdates/30285)
+
+---
+
+### 2026-11-17T12:02:17+00:00
+Probationer’s Termination Is Stigmatic Only If Foundation Is Finding Of Misconduct Visiting Civil Consequences: Supreme Court Upholds Discharge Of  IISc Associate Professor
+https://www.verdictum.in/supreme-court/dr-g-srinivasan-v-union-of-india-2026-insc-1218-discharge-of-associate-professor-1625906
+
+[Source Link](https://t.me/verdictumlegalupdates/30284)
+
+---
+
+### 2026-11-17T11:32:57+00:00
+“Apology Must Come From The Heart”: Supreme Court Tells Sanjay Raut To Know Restraint In Language In Contempt Case
+https://www.verdictum.in/supreme-court/sanjay-raut-to-know-restraint-in-language-in-contempt-case-1625905
+
+[Source Link](https://t.me/verdictumlegalupdates/30283)
+
+---
+
+### 2026-11-17T11:03:16+00:00
+Employee Cannot Be Held Responsible Merely For Relationship With Persons Alleged To Have Threatened Officials: Supreme Court Quashes CISF Constable’s Removal
+https://www.verdictum.in/supreme-court/sumit-kumar-v-union-of-india-2026-insc-1221-cisf-constables-removal-1625903
+
+[Source Link](https://t.me/verdictumlegalupdates/30282)
+
+---
+
+### 2026-11-17T10:32:55+00:00
+Supreme Court Reserves Order On Sucheta Dalal's Plea For Centralised Database Of Unclaimed Funds Of Deceased Account Holders
+https://www.verdictum.in/supreme-court/reserves-order-sucheta-dalal-centralised-database-unclaimed-funds-deceased-account-holders-1625904
+
+[Source Link](https://t.me/verdictumlegalupdates/30281)
+
+---
+
+### 2026-11-17T10:02:14+00:00
+Unrelated Third Party Can’t Be Made Liable For Proving Passing Of Resolution In Board Meeting: Supreme Court Upholds Sale Of Company Owned Land
+https://www.verdictum.in/supreme-court/elaine-info-solutions-pvt-ltd-v-ms-j-a-avenues-india-private-limited-2026-insc-1228-company-land-1625902
+
+[Source Link](https://t.me/verdictumlegalupdates/30280)
+
+---
+
+### 2026-11-17T09:33:13+00:00
+Earlier Guidelines Rendered Toothless, Time To Evolve Foolproof Procedure: Madras High Court On Public Libraries Book Procurement Scam
+https://www.verdictum.in/madras-high-court/ramasubbu-v-k-gopal-ias-cont-pmd-no-3763-of-2026-libraries-book-procurement-scam-1625900
+
+[Source Link](https://t.me/verdictumlegalupdates/30279)
+
+---
+
+### 2026-11-17T09:02:52+00:00
+Where Witness Departs In Court From What He Told Police, Court Cannot Prefer Police Version Over Testimony On Oath: Supreme Court Acquits Man In Double Murder Case
+https://www.verdictum.in/supreme-court/naresh-v-state-of-haryana-2026-insc-1220-bhagwan-dass-judgme-hostile-witness-1625896
+
+[Source Link](https://t.me/verdictumlegalupdates/30278)
+
+---
+
+### 2026-11-17T08:32:31+00:00
+'Unsavoury' Remarks Against CJI: SC To Hear Plea Seeking Contempt Action Against Lawyer On Wednesday
+https://www.verdictum.in/supreme-court/unsavoury-remarks-against-cji-contempt-lawyer-1625895
+
+[Source Link](https://t.me/verdictumlegalupdates/30277)
 
 ---
 
@@ -33,134 +161,6 @@ CoC Not Functus Officio On Approving Resolution Plan; Can Revisit Decision If Ap
 https://www.verdictum.in/supreme-court/twinstar-technologies-limited-v-bank-of-maharashtra-2026-insc-1214-videocon-insolvency-1625882
 
 [Source Link](https://t.me/verdictumlegalupdates/30273)
-
----
-
-### 2026-11-17T06:02:27+00:00
-Punjab & Haryana HC Upholds Decision To Permit Couple Who Crossed Age Limit To Undergo ART Treatment Based On Undertaking
-https://www.verdictum.in/punjab-and-haryana-high-court/2026phhc201438-db-age-limit-assisted-reproductive-technology-act-undertaking-1625876
-
-[Source Link](https://t.me/verdictumlegalupdates/30272)
-
----
-
-### 2026-11-17T05:28:47+00:00
-Breaking: Supreme Court Dismisses UP Govt’s Appeal Against Stay Of Azam Khan’s Conviction, Allows Pleas Of Wife And Son In Birth Certificate Case
-https://www.verdictum.in/supreme-court/dismisses-up-govts-appeal-against-stay-azam-khan-conviction-wife-and-son-birth-certificate-case-1625877
-
-[Source Link](https://t.me/verdictumlegalupdates/30271)
-
----
-
-### 2026-11-17T05:02:26+00:00
-Trend Shows Sufficient Maturity In Children: Kerala High Court Suggests Reducing Age Of Juveniles To 16 Years
-https://www.verdictum.in/kerala-high-court/vinod-vikraman-pillai-v-state-of-kerala-trend-maturity-children-reducing-age-juvenile-1625874
-
-[Source Link](https://t.me/verdictumlegalupdates/30270)
-
----
-
-### 2026-11-17T04:32:55+00:00
-Sec 175(3) BNSS- Magistrate Must Hear Police On Refusal To Register FIR Before Ordering Investigation: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/r-vijay-bhaskar-v-state-of-karnataka-2026khc61920-magistrate-order-sec1753-of-bnss-1625852
-
-[Source Link](https://t.me/verdictumlegalupdates/30269)
-
----
-
-### 2026-11-16T16:02:41+00:00
-Legal Retainer Vacancy At Jharkhand Rural Health Mission Society (JRHMS)
-https://www.verdictum.in/job-updates/jharkhand-rural-health-mission-society-1625844
-
-[Source Link](https://t.me/verdictumlegalupdates/30268)
-
----
-
-### 2026-11-16T15:33:01+00:00
-Solitary Offence, Regardless Of Its Gravity Or Premeditation, Cannot Establish "Habituality" For ‘Goonda’ Classification: Telangana High Court
-https://www.verdictum.in/telangana-high-court/atmakuri-srinu-nagaraju-v-state-of-telangana-and-others-goonda-act-preventive-detention-1625841
-
-[Source Link](https://t.me/verdictumlegalupdates/30267)
-
----
-
-### 2026-11-16T15:02:20+00:00
-Defamation Complainant Need Not Invariably Produce Witness At Cognizance Stage To Establish Damage To Reputation: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/basanagouda-ramanagouda-patil-yatnal-v-shivananda-s-patil-defamation-mla-1625843
-
-[Source Link](https://t.me/verdictumlegalupdates/30266)
-
----
-
-### 2026-11-16T14:32:59+00:00
-Vesting Of Surplus Land Cannot Follow Without Final Statement U/S 7(3) Of Assam Ceiling Act: Gauhati High Court
-https://www.verdictum.in/guwahati-high-court/the-principal-secretary-to-the-govt-of-assam-v-arun-sarma-2026gau-as16714-db-family-continues-to-own-about-560-bighas-1625842
-
-[Source Link](https://t.me/verdictumlegalupdates/30265)
-
----
-
-### 2026-11-16T13:32:17+00:00
-Rowdy Sheet Can't Be Continued Mechanically Or Merely On Past Antecedents: Telangana High Court Issues Guidelines
-https://www.verdictum.in/telangana-high-court/statewide-guidelines-rowdy-sheet-cant-continued-mechanically-past-antecedents-1625840
-
-[Source Link](https://t.me/verdictumlegalupdates/30264)
-
----
-
-### 2026-11-16T13:02:56+00:00
-CAT Can Entertain Challenge To Notice Issued Without Jurisdiction: Allahabad High Court Upholds Order Quashing Second Notice Of Compulsory Retirement
-https://www.verdictum.in/allahabad-high-court/union-of-india-v-pramod-singh-yadav-2026ahc233845-db-cat-notice-compulsory-retirement-1625839
-
-[Source Link](https://t.me/verdictumlegalupdates/30263)
-
----
-
-### 2026-11-16T12:32:55+00:00
-Cordial Moments, Family Functions Or Photographs Together Do Not By Themselves Negate Matrimonial Cruelty: Jharkhand High Court
-https://www.verdictum.in/jharkhand-high-court/vc-v-k-2026jhhc32533-db-husband-wife-divorce-cruelty-desertion-1625838
-
-[Source Link](https://t.me/verdictumlegalupdates/30262)
-
----
-
-### 2026-11-16T12:04:15+00:00
-Bilkis Bano Case: Supreme Court Suspends Life Sentence Of Convicts, Grants Bail Citing Over 17 Years Of Incarceration
-https://www.verdictum.in/supreme-court/bilkis-bano-case-suspends-life-sentence-grants-bail-to-convicts-1625837
-
-[Source Link](https://t.me/verdictumlegalupdates/30261)
-
----
-
-### 2026-11-16T11:32:34+00:00
-Insufficiently Stamped Document Admissible In Cheque Bounce Case; Payment Of Stamp Duty Not A Condition Precedent: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/insufficiently-stamped-document-admissible-cheque-bounce-case-1625835
-
-[Source Link](https://t.me/verdictumlegalupdates/30260)
-
----
-
-### 2026-11-16T11:02:13+00:00
-State Cannot Take Adverse Action Against Employee Over Caste Certificate After Years Of Unexplained Delay: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/the-commandant-cisf-v-virupaxagouda-and-others-2026khc-d17609-db-caste-1625834
-
-[Source Link](https://t.me/verdictumlegalupdates/30259)
-
----
-
-### 2026-11-16T10:32:52+00:00
-Date Of Election Stands Excluded In Computing 45 Days U/S 81(1) RP Act: Madras High Court Refuses To Reject Petition Against Udhayanidhi Stalin's Election
-https://www.verdictum.in/madras-high-court/udhayanidhi-stalin-v-p-milany-oa-nos-860-and-861-of-2026-in-elp-no-18-of-2026-improper-rejection-of-a-nomination-1625833
-
-[Source Link](https://t.me/verdictumlegalupdates/30258)
-
----
-
-### 2026-11-16T10:03:01+00:00
-Property Dedicated To Deity Is Neither Trustee’s Personal Estate Nor Is Available For Disposal At Will Of Anyone Administering Temple: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/state-of-karnataka-v-sri-jagadguru-renukacharya-education-society-2026khc53883-db-property-deity-temple-1625832
-
-[Source Link](https://t.me/verdictumlegalupdates/30257)
 
 ---
 
