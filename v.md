@@ -1,6 +1,62 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-17T16:02:44+00:00*
+*Last Updated: 2026-11-18T07:32:50+00:00*
+
+---
+
+### 2026-11-18T07:32:50+00:00
+IBC Regime Doesn’t Provide For Determination Of Liability Or Its Quantification: Supreme Court
+https://www.verdictum.in/supreme-court/ms-ganesh-benzoplast-ltd-v-the-state-trading-corporation-of-india-2026-insc-1223-sica-ibc-1625959
+
+[Source Link](https://t.me/verdictumlegalupdates/30299)
+
+---
+
+### 2026-11-18T06:46:30+00:00
+Supreme Court Agrees To List Plea Seeking Removal Of Videos Of Italian Politician Giacomo Filibeck Remarks At Bharat Summit 2026
+https://www.verdictum.in/supreme-court/plea-seeking-removal-videos-italian-politician-giacomo-filibeck-remarks-bharat-summit-2026-1625958
+
+[Source Link](https://t.me/verdictumlegalupdates/30298)
+
+---
+
+### 2026-11-18T06:33:09+00:00
+Plea Of Limitation Not Raised Before Arbitral Tribunal Ought Not To Be Considered By Court U/S 34 A&C Act Challenge: Supreme Court
+https://www.verdictum.in/supreme-court/rajasthan-rajya-vidyut-utpadan-nigam-ltd-v-parsa-kente-collieries-limited-2026-insc-1234-plea-of-limitation-arbitral-tribunal-1625954
+
+[Source Link](https://t.me/verdictumlegalupdates/30297)
+
+---
+
+### 2026-11-18T05:44:48+00:00
+Supreme Court Issues Notice On SCBA’s Contempt Plea Against Advocate Over Remarks Against CJI
+https://www.verdictum.in/supreme-court/issues-notice-on-scbas-contempt-plea-advocate-over-remarks-against-cji-1625951
+
+[Source Link](https://t.me/verdictumlegalupdates/30296)
+
+---
+
+### 2026-11-18T05:32:28+00:00
+Immediate Blood Relative Of Person Who Initiates Disciplinary Action Is Disqualified From Acting As Adjudicator: Supreme Court
+https://www.verdictum.in/supreme-court/kiran-v-sudhir-shikshan-sanstha-2026-insc-1229-immediate-blood-relative-of-person-1625949
+
+[Source Link](https://t.me/verdictumlegalupdates/30295)
+
+---
+
+### 2026-11-18T05:03:07+00:00
+Can't Withhold Gratuity Citing Pendency Of State's Appeal Against Acquittal: Supreme Court
+https://www.verdictum.in/supreme-court/delhi-development-authority-v-rajender-kumar-sharma-2026-insc-1213-superannuated-employees-acquittal-1625948
+
+[Source Link](https://t.me/verdictumlegalupdates/30294)
+
+---
+
+### 2026-11-18T04:33:16+00:00
+Procuring Entity Cannot Abdicate Its Obligation To Accept Settlement Under Vivad Se Vishwas II Scheme By Referring Decision To Public Authority: Delhi High Court
+https://www.verdictum.in/delhi-high-court/maytas-subhash-v-ircon-international-limited-2026dhc10103-vivad-se-vishwas-ii-contractual-disputes-scheme-1625942
+
+[Source Link](https://t.me/verdictumlegalupdates/30293)
 
 ---
 
@@ -105,62 +161,6 @@ Unrelated Third Party Can’t Be Made Liable For Proving Passing Of Resolution I
 https://www.verdictum.in/supreme-court/elaine-info-solutions-pvt-ltd-v-ms-j-a-avenues-india-private-limited-2026-insc-1228-company-land-1625902
 
 [Source Link](https://t.me/verdictumlegalupdates/30280)
-
----
-
-### 2026-11-17T09:33:13+00:00
-Earlier Guidelines Rendered Toothless, Time To Evolve Foolproof Procedure: Madras High Court On Public Libraries Book Procurement Scam
-https://www.verdictum.in/madras-high-court/ramasubbu-v-k-gopal-ias-cont-pmd-no-3763-of-2026-libraries-book-procurement-scam-1625900
-
-[Source Link](https://t.me/verdictumlegalupdates/30279)
-
----
-
-### 2026-11-17T09:02:52+00:00
-Where Witness Departs In Court From What He Told Police, Court Cannot Prefer Police Version Over Testimony On Oath: Supreme Court Acquits Man In Double Murder Case
-https://www.verdictum.in/supreme-court/naresh-v-state-of-haryana-2026-insc-1220-bhagwan-dass-judgme-hostile-witness-1625896
-
-[Source Link](https://t.me/verdictumlegalupdates/30278)
-
----
-
-### 2026-11-17T08:32:31+00:00
-'Unsavoury' Remarks Against CJI: SC To Hear Plea Seeking Contempt Action Against Lawyer On Wednesday
-https://www.verdictum.in/supreme-court/unsavoury-remarks-against-cji-contempt-lawyer-1625895
-
-[Source Link](https://t.me/verdictumlegalupdates/30277)
-
----
-
-### 2026-11-17T08:02:51+00:00
-Supreme Court Issues Notice On Kerala’s Appeal Against High Court Bail To Ex-BJP Leader Convicted In Palathayi POCSO Case
-https://www.verdictum.in/supreme-court/notice-on-keralas-appeal-against-high-court-bail-to-ex-bjp-leader-convicted-in-palathayi-pocso-case-1625894
-
-[Source Link](https://t.me/verdictumlegalupdates/30276)
-
----
-
-### 2026-11-17T07:32:50+00:00
-Interim Relief Refused U/S 9 A&C Act Cannot Be Renewed In Suit Against Same Parties: Madras High Court Declines To Restrain OTT Release Of Drishyam 3
-https://www.verdictum.in/madras-high-court/rajkumar-theatres-pvt-ltd-v-wide-angle-creations-oa-no-1114-of-2026-dhrishyam-3the-conclusion-1625891
-
-[Source Link](https://t.me/verdictumlegalupdates/30275)
-
----
-
-### 2026-11-17T07:02:09+00:00
-S.8 Kerala Private Forests Act| Burden of Proving That Land Is Not Private Forest Lies on Person Asserting Same: Supreme Court
-https://www.verdictum.in/supreme-court/state-of-kerala-v-p-krishna-pillai-ors-2026-insc-1212-sec8-kerala-private-forests-act-1625883
-
-[Source Link](https://t.me/verdictumlegalupdates/30274)
-
----
-
-### 2026-11-17T06:32:48+00:00
-CoC Not Functus Officio On Approving Resolution Plan; Can Revisit Decision If Approval Is Set Aside In Appeal: Supreme Court In Videocon Case
-https://www.verdictum.in/supreme-court/twinstar-technologies-limited-v-bank-of-maharashtra-2026-insc-1214-videocon-insolvency-1625882
-
-[Source Link](https://t.me/verdictumlegalupdates/30273)
 
 ---
 
