@@ -1,51 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-17T12:27:52+00:00*
+*Last Updated: 2026-11-17T12:54:42+00:00*
 
 ---
 
-### 2026-11-17T12:27:52+00:00
-POCSO Offences Of Lesser Gravity Can't Be Quashed Solely On Survivor's No-Objection Affidavit After Attaining Majority: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-pocso-act-settlement-quashing-558786
-
-[Read on Telegram](https://t.me/livelawindia/124712)
-
----
-### 2026-11-17T12:33:32+00:00
-'Can't Issue Blanket Order For Advance Notice Before Police Investigation': Madras High Court In Veeramani's Daughter's Plea Alleging Harassment
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-veeramani-pocso-no-blanket-order-for-police-to-give-advance-notice-558789
-
-[Read on Telegram](https://t.me/livelawindia/124713)
-
----
-### 2026-11-17T12:38:02+00:00
-Recruitment Benefits Not Disclosed To Candidates Can't Be Denied For Failure To Claim Them: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-psc-weightage-additional-qualifications-update-profiles-not-disclosed-recruitment-notifications-558788
-
-[Read on Telegram](https://t.me/livelawindia/124714)
-
----
-### 2026-11-17T12:47:42+00:00
-Disputed Claim Of Victim's Conversion To Christianity No Ground To Quash SC/ST Act Charge At Investigation Stage: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-declines-quash-sc-st-act-charge-murder-case-amid-dispute-558790
-
-[Read on Telegram](https://t.me/livelawindia/124715)
-
----
-### 2026-11-17T12:52:42+00:00
-NEET PG | 'Merit Includes Professional Experience': MP Govt Defends Incentive Marks For In-Service Doctors Before High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-hears-fresh-candidates-plea-over-pg-neet-counselling-558792
-
-[Read on Telegram](https://t.me/livelawindia/124716)
-
----
-### 2026-11-17T12:53:42+00:00
-Past Misconduct May Be Relevant To Decide Penalty For Subsequent Misconduct, But Cannot Fill Gaps In Fresh Charges: Supreme Court
-https://www.livelaw.in/supreme-court/past-misconduct-may-be-relevant-to-decide-penalty-for-subsequent-misconduct-but-cannot-fill-gaps-in-fresh-charges-supreme-court-558793
-
-[Read on Telegram](https://t.me/livelawindia/124717)
-
----
 ### 2026-11-17T12:54:42+00:00
 2026 LiveLaw (SC) 1161 | SUMIT KUMAR VERSUS UNION OF INDIA & ORS.
 https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1161-sumit-kumar-versus-union-of-india-ors-558794
@@ -142,5 +100,47 @@ Kerala High Court Directs KSRTC To Play Recorded Messages Cautioning Sabarimala 
 https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-recorded-messages-ksrtc-clothes-dump-kumkum-558826
 
 [Read on Telegram](https://t.me/livelawindia/124731)
+
+---
+### 2026-11-17T15:52:03+00:00
+Forgery Not Official Duty, Public Servant Accused Of Forging Records Can't Claim S.197 CrPC Sanction : Supreme Court
+https://www.livelaw.in/supreme-court/forgery-not-official-duty-public-servant-accused-of-forging-records-cant-claim-s197-crpc-sanction-supreme-court-558829
+
+[Read on Telegram](https://t.me/livelawindia/124732)
+
+---
+### 2026-11-17T15:53:04+00:00
+2026 LiveLaw (SC) 1164 | Ashok Versus Mahesh & Anr.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1164-ashok-versus-mahesh-anr-558830
+
+[Read on Telegram](https://t.me/livelawindia/124733)
+
+---
+### 2026-11-17T16:15:03+00:00
+Reel Makers Not Entitled To Journalistic Protection During Protests, Delhi Police To Supreme Court
+https://www.livelaw.in/top-stories/reel-makers-not-entitled-to-journalistic-protection-during-protests-delhi-police-to-supreme-court-558831
+
+[Read on Telegram](https://t.me/livelawindia/124734)
+
+---
+### 2026-11-17T16:21:03+00:00
+Supreme Court Restrains Estate Officer From Passing Final Order In Proceedings Against Delhi Gymkhana Club Without Court's Permission
+https://www.livelaw.in/news-updates/supreme-court-restrains-estate-officer-from-passing-final-order-in-proceedings-against-delhi-gymkhana-club-without-courts-permission-558832
+
+[Read on Telegram](https://t.me/livelawindia/124735)
+
+---
+### 2026-11-17T17:47:43+00:00
+LiveLaw High Courts Daily Highlights: November 17, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-17-2026-558821
+
+[Read on Telegram](https://t.me/livelawindia/124736)
+
+---
+### 2026-11-17T18:22:34+00:00
+Supreme Court Daily Round-Up : November 17, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-november-17-2026-558827
+
+[Read on Telegram](https://t.me/livelawindia/124737)
 
 ---
