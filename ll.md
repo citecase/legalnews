@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-17T12:54:42+00:00*
+*Last Updated: 2026-11-18T12:55:24+00:00*
 
 ---
 
-### 2026-11-17T12:54:42+00:00
-2026 LiveLaw (SC) 1161 | SUMIT KUMAR VERSUS UNION OF INDIA & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1161-sumit-kumar-versus-union-of-india-ors-558794
+### 2026-11-18T12:55:24+00:00
+2026 LiveLaw (SC) 1170 |  Rajasthan Rajya Vidyut Utpadan Nigam Ltd.v Parsa Kente Collieries Limited
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1170-rajasthan-rajya-vidyut-utpadan-nigam-ltdv-parsa-kente-collieries-limited-558969
 
-[Read on Telegram](https://t.me/livelawindia/124718)
-
----
-### 2026-11-17T13:05:02+00:00
-Supreme Court Upholds Introduction Of Written Exam Midway Through Recruitment, Says It Ensures Objective Assessment
-https://www.livelaw.in/supreme-court/supreme-court-upholds-introduction-of-written-exam-midway-through-recruitment-says-it-ensures-objective-assessment-558797
-
-[Read on Telegram](https://t.me/livelawindia/124719)
+[Read on Telegram](https://t.me/livelawindia/124808)
 
 ---
-### 2026-11-17T13:06:02+00:00
-2026 LiveLaw (SC) 1162 | T. AKON PHOM AND OTHERS VERSUS STATE OF NAGALAND AND OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1162-t-akon-phom-and-others-versus-state-of-nagaland-and-others-558798
+### 2026-11-18T12:59:04+00:00
+Telangana High Court Dismisses BRS MLA Koushik Reddy's Plea Against Magistrate's Direction To Give Voice Sample
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-dismisses-brs-mla-koushik-reddy-plea-obtaining-voice-sample-558970
 
-[Read on Telegram](https://t.me/livelawindia/124720)
-
----
-### 2026-11-17T13:35:32+00:00
-IBC Cannot Be Invoked To Recover Full Dues Contrary To Binding SICA Rehabilitation Scheme : Supreme Court
-https://www.livelaw.in/supreme-court/ibc-cannot-be-invoked-to-recover-full-dues-contrary-to-binding-sica-rehabilitation-scheme-supreme-court-558804
-
-[Read on Telegram](https://t.me/livelawindia/124721)
+[Read on Telegram](https://t.me/livelawindia/124809)
 
 ---
-### 2026-11-17T13:38:52+00:00
-2026 LiveLaw (SC) 1163 | M/s. Ganesh Benzoplast Ltd. v. The State Trading Corporation of India
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1163-ms-ganesh-benzoplast-ltd-v-the-state-trading-corporation-of-india-558806
+### 2026-11-18T13:02:24+00:00
+Social Media Handle Not Free License To Post Any Message, User Must Comply With Article 19(1)(a): Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-social-media-article-19-quash-fir-558973
 
-[Read on Telegram](https://t.me/livelawindia/124722)
-
----
-### 2026-11-17T13:39:03+00:00
-Allahabad High Court Grants Interim Bail To Azam Khan, Calls ED Arrest 'Motivated & Malafide'
-https://www.livelaw.in/top-stories/allahabad-high-court-grants-interim-bail-to-azam-khan-calls-ed-proceedings-motivated-and-malafide-558807
-
-[Read on Telegram](https://t.me/livelawindia/124723)
+[Read on Telegram](https://t.me/livelawindia/124810)
 
 ---
-### 2026-11-17T13:46:32+00:00
-LiveLaw Daily| Isha Yoga Centre | SIR & India BLOC | Azam Khan | Sinhgad Probe| Air Pollution & More
-https://www.livelaw.in/podcast/arvind-kejriwal-eci-sir-rahul-gandhi-maintenance-news-clat-india-judiciary-558808
+### 2026-11-18T13:02:34+00:00
+Whether Magistrate's Order Directing FIR Registration Is Revisable? J&K High Court Refers Legal Question To Larger Bench
+https://www.livelaw.in/high-court/jammu-kashmir/whether-magistrates-order-directing-fir-registration-is-revisable-jk-high-court-refers-legal-question-to-larger-bench-558974
 
-[Read on Telegram](https://t.me/livelawindia/124724)
-
----
-### 2026-11-17T13:55:32+00:00
-Calcutta High Court Confirms Death Sentence Of Man For Rape And Murder Of 5-Year-Old Girl
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-confirms-death-sentence-for-rape-and-murder-of-5-year-old-girl-558810
-
-[Read on Telegram](https://t.me/livelawindia/124725)
+[Read on Telegram](https://t.me/livelawindia/124811)
 
 ---
-### 2026-11-17T14:10:23+00:00
-Criminal Courts Must Pronounce Orders Within 15 Days Of Arguments On Miscellaneous Applications: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/criminal-courts-must-pronounce-orders-within-15-days-of-arguments-on-miscellaneous-applications-delhi-high-court-558812
+### 2026-11-18T13:08:24+00:00
+Independent Seizure Witnesses Turning Hostile Not By Itself Ground To Disbelieve Drug Recovery At Bail Stage: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-denies-bail-lack-of-support-from-seizure-witness-not-enough-to-disbelieve-recovery-558975
 
-[Read on Telegram](https://t.me/livelawindia/124726)
-
----
-### 2026-11-17T14:14:23+00:00
-DA Arrears Case: High Court Grants Punjab Chief Secretary Time To Reply To Contempt Notice
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-da-arrears-contempt-gives-punjab-chief-secretary-time-to-reply-to-show-cause-notes-supreme-courts-no-coercive-steps-order-558813
-
-[Read on Telegram](https://t.me/livelawindia/124727)
+[Read on Telegram](https://t.me/livelawindia/124812)
 
 ---
-### 2026-11-17T14:26:23+00:00
-Delhi High Court Rejects Murder Convict's Plea Against President's Decision To Commute Death Sentence To Life Imprisonment Without Remission
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-rejects-murder-convicts-plea-against-presidents-decision-to-commute-death-sentence-to-life-imprisonment-without-remission-558816
+### 2026-11-18T13:12:45+00:00
+P&H High Court Rejects Woman's Plea To Transfer Case After Finding She Falsely Claimed Her Deceased Father Was Bedridden
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-rejects-transfer-plea-over-concealment-woman-claimed-bedridden-father-needed-her-care-558976
 
-[Read on Telegram](https://t.me/livelawindia/124728)
-
----
-### 2026-11-17T14:54:13+00:00
-Unsuccessful Treatment Or Patient's Death Doesn't Automatically Establish Medical Negligence: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-medical-negligence-higher-burden-proof-558824
-
-[Read on Telegram](https://t.me/livelawindia/124729)
+[Read on Telegram](https://t.me/livelawindia/124813)
 
 ---
-### 2026-11-17T15:02:53+00:00
-Delhi High Court Closes Plea Against Sunny Deol's 'Suryaa' After Makers Agree To Carry 'Work Of Fiction' Disclaimer
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-closes-plea-against-sunny-deols-suryaa-after-makers-agree-to-carry-work-of-fiction-disclaimer-558825
+### 2026-11-18T13:18:05+00:00
+Dispute Over Deceased Central Govt Employee's Service Benefits Falls Within CAT's Jurisdiction, Not HC: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/deceased-central-govt-employee-service-benefits-dispute-cat-jurisdiction-558978
 
-[Read on Telegram](https://t.me/livelawindia/124730)
-
----
-### 2026-11-17T15:17:33+00:00
-Kerala High Court Directs KSRTC To Play Recorded Messages Cautioning Sabarimala Pilgrims Against Dumping Clothes, Plastic Waste
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-recorded-messages-ksrtc-clothes-dump-kumkum-558826
-
-[Read on Telegram](https://t.me/livelawindia/124731)
+[Read on Telegram](https://t.me/livelawindia/124814)
 
 ---
-### 2026-11-17T15:52:03+00:00
-Forgery Not Official Duty, Public Servant Accused Of Forging Records Can't Claim S.197 CrPC Sanction : Supreme Court
-https://www.livelaw.in/supreme-court/forgery-not-official-duty-public-servant-accused-of-forging-records-cant-claim-s197-crpc-sanction-supreme-court-558829
+### 2026-11-18T13:21:25+00:00
+Supreme Court Dismisses PIL Seeking Ban On Animal Sacrifices For Religious Rituals
+https://www.livelaw.in/top-stories/supreme-court-dismisses-pil-seeking-ban-on-animal-sacrifices-for-religious-rituals-558980
 
-[Read on Telegram](https://t.me/livelawindia/124732)
-
----
-### 2026-11-17T15:53:04+00:00
-2026 LiveLaw (SC) 1164 | Ashok Versus Mahesh & Anr.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1164-ashok-versus-mahesh-anr-558830
-
-[Read on Telegram](https://t.me/livelawindia/124733)
+[Read on Telegram](https://t.me/livelawindia/124815)
 
 ---
-### 2026-11-17T16:15:03+00:00
-Reel Makers Not Entitled To Journalistic Protection During Protests, Delhi Police To Supreme Court
-https://www.livelaw.in/top-stories/reel-makers-not-entitled-to-journalistic-protection-during-protests-delhi-police-to-supreme-court-558831
+### 2026-11-18T13:23:05+00:00
+56 Days In Custody Without Interrogation: Gauhati High Court Grants Bail To Accused In Corruption Case
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-grants-bail-accused-corruption-case-notes-56-days-custody-without-police-interrogation-558979
 
-[Read on Telegram](https://t.me/livelawindia/124734)
-
----
-### 2026-11-17T16:21:03+00:00
-Supreme Court Restrains Estate Officer From Passing Final Order In Proceedings Against Delhi Gymkhana Club Without Court's Permission
-https://www.livelaw.in/news-updates/supreme-court-restrains-estate-officer-from-passing-final-order-in-proceedings-against-delhi-gymkhana-club-without-courts-permission-558832
-
-[Read on Telegram](https://t.me/livelawindia/124735)
+[Read on Telegram](https://t.me/livelawindia/124816)
 
 ---
-### 2026-11-17T17:47:43+00:00
-LiveLaw High Courts Daily Highlights: November 17, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-17-2026-558821
+### 2026-11-18T13:43:15+00:00
+NEET PG | In-Service Doctors Defend Incentive Marks Before MP High Court, Say They Took Rural Postings With 'Legitimate Expectation' Of Benefits
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-in-service-candidate-argues-legitimate-expectations-in-fresh-candidates-plea-558982
 
-[Read on Telegram](https://t.me/livelawindia/124736)
+[Read on Telegram](https://t.me/livelawindia/124817)
 
 ---
-### 2026-11-17T18:22:34+00:00
-Supreme Court Daily Round-Up : November 17, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-november-17-2026-558827
+### 2026-11-18T13:52:15+00:00
+Gauhati High Court Imposes ₹25,000 Costs On Man For Filing Fourth Petition Over Govt Job Found To Be Illegal
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-litigants-repeatedly-raise-new-grounds-same-cause-action-558984
 
-[Read on Telegram](https://t.me/livelawindia/124737)
+[Read on Telegram](https://t.me/livelawindia/124818)
+
+---
+### 2026-11-18T14:02:35+00:00
+Father-In-Law Commits Suicide Amid Son's Matrimonial Dispute: P&H High Court Quashes Abetment FIR Against Woman's Family
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-section-108-bns-fir-against-daughter-in-laws-family-on-compromise-558985
+
+[Read on Telegram](https://t.me/livelawindia/124819)
+
+---
+### 2026-11-18T14:12:35+00:00
+Protective Homes Meant For Trafficking Victims Can't Be Used To Detain & Remand Accused: Telangana High Court Issues Directions
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-issues-directions-prevent-traffickers-entering-protective-homes-558986
+
+[Read on Telegram](https://t.me/livelawindia/124820)
+
+---
+### 2026-11-18T14:22:45+00:00
+Selection Process Can't Be Cancelled Merely Because Only One Candidate Appeared For Interview: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/selection-process-cant-be-cancelled-merely-because-only-one-candidate-appeared-for-interview-558988
+
+[Read on Telegram](https://t.me/livelawindia/124821)
+
+---
+### 2026-11-18T14:29:05+00:00
+Supreme Court Issues Notice On Plea To Finalise Judges' Appointment MoP, Bring Collegium Minutes Under RTI
+https://www.livelaw.in/top-stories/supreme-court-issues-notice-on-plea-to-finalise-judges-appointment-mop-bring-collegium-minutes-under-rti-558995
+
+[Read on Telegram](https://t.me/livelawindia/124822)
+
+---
+### 2026-11-18T14:32:45+00:00
+Rise In Criminal Cases Against Husband's Relatives No Reason For Automatic Quashing Of Dowry Harassment FIRs: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-quash-fir-dowry-harassment-case-558991
+
+[Read on Telegram](https://t.me/livelawindia/124823)
+
+---
+### 2026-11-18T14:34:05+00:00
+Constructive Res Judicata | Claim Based On Subsequent Cause Of Action Not Barred By Judgment On Prior Cause Of Action : Supreme Court
+https://www.livelaw.in/supreme-court/constructive-res-judicata-claim-based-on-subsequent-cause-of-action-not-barred-by-judgment-on-prior-cause-of-action-supreme-court-558997
+
+[Read on Telegram](https://t.me/livelawindia/124824)
+
+---
+### 2026-11-18T14:35:05+00:00
+2026 LiveLaw (SC) 1171 | Ashok Kumar v. Central Bank of India & Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1171-ashok-kumar-v-central-bank-of-india-ors-558998
+
+[Read on Telegram](https://t.me/livelawindia/124825)
+
+---
+### 2026-11-18T14:46:25+00:00
+'Bailable Offence': Madras High Court Grants Bail To Man Accused Of Making Obscene Social Media Post Against CM Vijay
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-obscene-derogative-social-media-post-cm-vijay-bail-granted-559001
+
+[Read on Telegram](https://t.me/livelawindia/124826)
+
+---
+### 2026-11-18T15:07:36+00:00
+By Deleting 13 Crore Voters In SIR, ECI Hijacked Sovereignty To Favour A Political Party : Justice Gopala Gowda
+https://www.livelaw.in/top-stories/by-deleting-13-crore-voters-in-sir-eci-hijacked-sovereignty-to-favour-a-political-party-justice-gopala-gowda-558972
+
+[Read on Telegram](https://t.me/livelawindia/124827)
 
 ---
