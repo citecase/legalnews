@@ -1,65 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-18T12:55:24+00:00*
+*Last Updated: 2026-11-18T13:23:05+00:00*
 
 ---
 
-### 2026-11-18T12:55:24+00:00
-2026 LiveLaw (SC) 1170 |  Rajasthan Rajya Vidyut Utpadan Nigam Ltd.v Parsa Kente Collieries Limited
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1170-rajasthan-rajya-vidyut-utpadan-nigam-ltdv-parsa-kente-collieries-limited-558969
-
-[Read on Telegram](https://t.me/livelawindia/124808)
-
----
-### 2026-11-18T12:59:04+00:00
-Telangana High Court Dismisses BRS MLA Koushik Reddy's Plea Against Magistrate's Direction To Give Voice Sample
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-dismisses-brs-mla-koushik-reddy-plea-obtaining-voice-sample-558970
-
-[Read on Telegram](https://t.me/livelawindia/124809)
-
----
-### 2026-11-18T13:02:24+00:00
-Social Media Handle Not Free License To Post Any Message, User Must Comply With Article 19(1)(a): Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-social-media-article-19-quash-fir-558973
-
-[Read on Telegram](https://t.me/livelawindia/124810)
-
----
-### 2026-11-18T13:02:34+00:00
-Whether Magistrate's Order Directing FIR Registration Is Revisable? J&K High Court Refers Legal Question To Larger Bench
-https://www.livelaw.in/high-court/jammu-kashmir/whether-magistrates-order-directing-fir-registration-is-revisable-jk-high-court-refers-legal-question-to-larger-bench-558974
-
-[Read on Telegram](https://t.me/livelawindia/124811)
-
----
-### 2026-11-18T13:08:24+00:00
-Independent Seizure Witnesses Turning Hostile Not By Itself Ground To Disbelieve Drug Recovery At Bail Stage: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-denies-bail-lack-of-support-from-seizure-witness-not-enough-to-disbelieve-recovery-558975
-
-[Read on Telegram](https://t.me/livelawindia/124812)
-
----
-### 2026-11-18T13:12:45+00:00
-P&H High Court Rejects Woman's Plea To Transfer Case After Finding She Falsely Claimed Her Deceased Father Was Bedridden
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-rejects-transfer-plea-over-concealment-woman-claimed-bedridden-father-needed-her-care-558976
-
-[Read on Telegram](https://t.me/livelawindia/124813)
-
----
-### 2026-11-18T13:18:05+00:00
-Dispute Over Deceased Central Govt Employee's Service Benefits Falls Within CAT's Jurisdiction, Not HC: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/deceased-central-govt-employee-service-benefits-dispute-cat-jurisdiction-558978
-
-[Read on Telegram](https://t.me/livelawindia/124814)
-
----
-### 2026-11-18T13:21:25+00:00
-Supreme Court Dismisses PIL Seeking Ban On Animal Sacrifices For Religious Rituals
-https://www.livelaw.in/top-stories/supreme-court-dismisses-pil-seeking-ban-on-animal-sacrifices-for-religious-rituals-558980
-
-[Read on Telegram](https://t.me/livelawindia/124815)
-
----
 ### 2026-11-18T13:23:05+00:00
 56 Days In Custody Without Interrogation: Gauhati High Court Grants Bail To Accused In Corruption Case
 https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-grants-bail-accused-corruption-case-notes-56-days-custody-without-police-interrogation-558979
@@ -142,5 +86,61 @@ By Deleting 13 Crore Voters In SIR, ECI Hijacked Sovereignty To Favour A Politic
 https://www.livelaw.in/top-stories/by-deleting-13-crore-voters-in-sir-eci-hijacked-sovereignty-to-favour-a-political-party-justice-gopala-gowda-558972
 
 [Read on Telegram](https://t.me/livelawindia/124827)
+
+---
+### 2026-11-18T15:25:16+00:00
+Supreme Court Reserves Judgment On Enhancement Of District Judges' Superannuation Age
+https://www.livelaw.in/top-stories/supreme-court-all-india-judges-association-judicial-officers-superannuation-age-enhance-judgment-reserved-559008
+
+[Read on Telegram](https://t.me/livelawindia/124828)
+
+---
+### 2026-11-18T15:30:36+00:00
+Cheque Dishonoured With Remark 'Bank Merged' Can Still Lead To NI Act Prosecution: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-refuses-quash-cheque-bounce-case-559010
+
+[Read on Telegram](https://t.me/livelawindia/124829)
+
+---
+### 2026-11-18T15:42:56+00:00
+Ramanujar Fought Caste Discrimination, Denying Scheduled Caste Devotees Entry To His Temple 'Extremely Unfortunate': Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-sc-community-not-permitted-ramanujar-temple-entry-unfortunate-559013
+
+[Read on Telegram](https://t.me/livelawindia/124830)
+
+---
+### 2026-11-18T15:53:46+00:00
+Time Spent On Search & Seizure Can't Be Excluded From 24-Hour Limit For Producing Accused Before Magistrate: Manipur High Court
+https://www.livelaw.in/high-court/manipur-high-court/manipur-high-court-quashes-ndps-remand-order-finding-violation-article222-559016
+
+[Read on Telegram](https://t.me/livelawindia/124831)
+
+---
+### 2026-11-18T15:58:26+00:00
+Hindu Marriage Can't Be Dissolved Through Community Separation Deed Unless Custom Is Established: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-hindu-marriage-dissolved-through-community-separation-deed-559018
+
+[Read on Telegram](https://t.me/livelawindia/124832)
+
+---
+### 2026-11-18T16:28:46+00:00
+Telangana High Court Quashes Preventive Detention Of 6 Accused In CPI Leader's Murder, Finds No Evidence Of Habitual Offending
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-quashes-preventive-detention-six-persons-accused-cpi-leader-chandu-rathod-murder-559021
+
+[Read on Telegram](https://t.me/livelawindia/124833)
+
+---
+### 2026-11-18T18:02:27+00:00
+LiveLaw High Courts Daily Highlights: November 18, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-18-2026-559022
+
+[Read on Telegram](https://t.me/livelawindia/124834)
+
+---
+### 2026-11-18T18:27:37+00:00
+Supreme Court Daily Round-Up : November 18, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-november-18-2026-559009
+
+[Read on Telegram](https://t.me/livelawindia/124835)
 
 ---
