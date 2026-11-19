@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-18T13:23:05+00:00*
+*Last Updated: 2026-11-19T12:17:51+00:00*
 
 ---
 
-### 2026-11-18T13:23:05+00:00
-56 Days In Custody Without Interrogation: Gauhati High Court Grants Bail To Accused In Corruption Case
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-grants-bail-accused-corruption-case-notes-56-days-custody-without-police-interrogation-558979
+### 2026-11-19T12:17:51+00:00
+Writ Court Cannot Direct Paddy Procurement After Extended Deadline Expires: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/writ-court-cannot-direct-paddy-procurement-after-deadline-559069
 
-[Read on Telegram](https://t.me/livelawindia/124816)
-
----
-### 2026-11-18T13:43:15+00:00
-NEET PG | In-Service Doctors Defend Incentive Marks Before MP High Court, Say They Took Rural Postings With 'Legitimate Expectation' Of Benefits
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-in-service-candidate-argues-legitimate-expectations-in-fresh-candidates-plea-558982
-
-[Read on Telegram](https://t.me/livelawindia/124817)
+[Read on Telegram](https://t.me/livelawindia/124916)
 
 ---
-### 2026-11-18T13:52:15+00:00
-Gauhati High Court Imposes ₹25,000 Costs On Man For Filing Fourth Petition Over Govt Job Found To Be Illegal
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-litigants-repeatedly-raise-new-grounds-same-cause-action-558984
+### 2026-11-19T12:22:31+00:00
+Gauhati High Court Sets Aside 'Aggravated' POCSO Conviction After Finding Victim Was Above 12 Years, Reduces Sentence
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-reduces-pocso-conviction-finding-victim-above12-assault-559166
 
-[Read on Telegram](https://t.me/livelawindia/124818)
-
----
-### 2026-11-18T14:02:35+00:00
-Father-In-Law Commits Suicide Amid Son's Matrimonial Dispute: P&H High Court Quashes Abetment FIR Against Woman's Family
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-quashes-section-108-bns-fir-against-daughter-in-laws-family-on-compromise-558985
-
-[Read on Telegram](https://t.me/livelawindia/124819)
+[Read on Telegram](https://t.me/livelawindia/124917)
 
 ---
-### 2026-11-18T14:12:35+00:00
-Protective Homes Meant For Trafficking Victims Can't Be Used To Detain & Remand Accused: Telangana High Court Issues Directions
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-issues-directions-prevent-traffickers-entering-protective-homes-558986
+### 2026-11-19T12:32:51+00:00
+Defective Investigation Can't Lead To Acquittal Unless Lapses Go To Root Of Prosecution Case: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-upholds-life-term-murdering-brother-559168
 
-[Read on Telegram](https://t.me/livelawindia/124820)
-
----
-### 2026-11-18T14:22:45+00:00
-Selection Process Can't Be Cancelled Merely Because Only One Candidate Appeared For Interview: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/selection-process-cant-be-cancelled-merely-because-only-one-candidate-appeared-for-interview-558988
-
-[Read on Telegram](https://t.me/livelawindia/124821)
+[Read on Telegram](https://t.me/livelawindia/124918)
 
 ---
-### 2026-11-18T14:29:05+00:00
-Supreme Court Issues Notice On Plea To Finalise Judges' Appointment MoP, Bring Collegium Minutes Under RTI
-https://www.livelaw.in/top-stories/supreme-court-issues-notice-on-plea-to-finalise-judges-appointment-mop-bring-collegium-minutes-under-rti-558995
+### 2026-11-19T12:39:11+00:00
+Plea In Madras High Court Seeks FIR Against TVK MLA For Allegedly Sending Obscene Messages To Woman Collector
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-register-fir-kallakurichi-mla-obscene-message-woman-collector-559171
 
-[Read on Telegram](https://t.me/livelawindia/124822)
-
----
-### 2026-11-18T14:32:45+00:00
-Rise In Criminal Cases Against Husband's Relatives No Reason For Automatic Quashing Of Dowry Harassment FIRs: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-refuses-quash-fir-dowry-harassment-case-558991
-
-[Read on Telegram](https://t.me/livelawindia/124823)
+[Read on Telegram](https://t.me/livelawindia/124919)
 
 ---
-### 2026-11-18T14:34:05+00:00
-Constructive Res Judicata | Claim Based On Subsequent Cause Of Action Not Barred By Judgment On Prior Cause Of Action : Supreme Court
-https://www.livelaw.in/supreme-court/constructive-res-judicata-claim-based-on-subsequent-cause-of-action-not-barred-by-judgment-on-prior-cause-of-action-supreme-court-558997
+### 2026-11-19T12:51:41+00:00
+Calcutta High Court Closes Plea For Independent Probe Into Ramkrishna Mission Student's Death After Drinking Hot Tea
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-closes-plea-for-independent-probe-into-ramkrishna-mission-students-death-after-drinking-hot-tea-559173
 
-[Read on Telegram](https://t.me/livelawindia/124824)
-
----
-### 2026-11-18T14:35:05+00:00
-2026 LiveLaw (SC) 1171 | Ashok Kumar v. Central Bank of India & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1171-ashok-kumar-v-central-bank-of-india-ors-558998
-
-[Read on Telegram](https://t.me/livelawindia/124825)
+[Read on Telegram](https://t.me/livelawindia/124920)
 
 ---
-### 2026-11-18T14:46:25+00:00
-'Bailable Offence': Madras High Court Grants Bail To Man Accused Of Making Obscene Social Media Post Against CM Vijay
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-obscene-derogative-social-media-post-cm-vijay-bail-granted-559001
+### 2026-11-19T13:11:35+00:00
+'Delay Defeats Equity': Calcutta High Court Declines Relief In Plea Against Customs' Seizure Of ₹30 Lakh Cash At Kolkata Airport In 2020
+https://www.livelaw.in/high-court/calcutta-high-court/delay-defeats-equity-calcutta-high-court-declines-relief-in-plea-against-customs-seizure-of-30-lakh-cash-at-kolkata-airport-in-2020-559175
 
-[Read on Telegram](https://t.me/livelawindia/124826)
-
----
-### 2026-11-18T15:07:36+00:00
-By Deleting 13 Crore Voters In SIR, ECI Hijacked Sovereignty To Favour A Political Party : Justice Gopala Gowda
-https://www.livelaw.in/top-stories/by-deleting-13-crore-voters-in-sir-eci-hijacked-sovereignty-to-favour-a-political-party-justice-gopala-gowda-558972
-
-[Read on Telegram](https://t.me/livelawindia/124827)
+[Read on Telegram](https://t.me/livelawindia/124921)
 
 ---
-### 2026-11-18T15:25:16+00:00
-Supreme Court Reserves Judgment On Enhancement Of District Judges' Superannuation Age
-https://www.livelaw.in/top-stories/supreme-court-all-india-judges-association-judicial-officers-superannuation-age-enhance-judgment-reserved-559008
+### 2026-11-19T13:13:15+00:00
+Myanmar Committed Genocide Against Rohingyas : International Court Of Justice
+https://www.livelaw.in/foreign-international/myanmar-committed-genocide-against-rohingyas-international-court-of-justice-559176
 
-[Read on Telegram](https://t.me/livelawindia/124828)
-
----
-### 2026-11-18T15:30:36+00:00
-Cheque Dishonoured With Remark 'Bank Merged' Can Still Lead To NI Act Prosecution: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-refuses-quash-cheque-bounce-case-559010
-
-[Read on Telegram](https://t.me/livelawindia/124829)
+[Read on Telegram](https://t.me/livelawindia/124922)
 
 ---
-### 2026-11-18T15:42:56+00:00
-Ramanujar Fought Caste Discrimination, Denying Scheduled Caste Devotees Entry To His Temple 'Extremely Unfortunate': Madras High Court
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-sc-community-not-permitted-ramanujar-temple-entry-unfortunate-559013
+### 2026-11-19T13:24:05+00:00
+Mere Online Accessibility Of Judicial Order Can't Confer Territorial Jurisdiction To Hear De-Indexing Plea: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/online-accessibility-judicial-order-no-territorial-jurisdiction-de-indexing-plea-right-to-be-forgotten-559177
 
-[Read on Telegram](https://t.me/livelawindia/124830)
-
----
-### 2026-11-18T15:53:46+00:00
-Time Spent On Search & Seizure Can't Be Excluded From 24-Hour Limit For Producing Accused Before Magistrate: Manipur High Court
-https://www.livelaw.in/high-court/manipur-high-court/manipur-high-court-quashes-ndps-remand-order-finding-violation-article222-559016
-
-[Read on Telegram](https://t.me/livelawindia/124831)
+[Read on Telegram](https://t.me/livelawindia/124923)
 
 ---
-### 2026-11-18T15:58:26+00:00
-Hindu Marriage Can't Be Dissolved Through Community Separation Deed Unless Custom Is Established: Rajasthan High Court
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-hindu-marriage-dissolved-through-community-separation-deed-559018
+### 2026-11-19T13:27:35+00:00
+Jharkhand High Court Takes Suo Motu Cognizance Of Neglect Of Sir Jagadish Chandra Bose's Museum, Seeks State's Response
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-takes-suo-motu-cognizance-neglect-sir-jagadish-chandra-bose-museum-559068
 
-[Read on Telegram](https://t.me/livelawindia/124832)
-
----
-### 2026-11-18T16:28:46+00:00
-Telangana High Court Quashes Preventive Detention Of 6 Accused In CPI Leader's Murder, Finds No Evidence Of Habitual Offending
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-quashes-preventive-detention-six-persons-accused-cpi-leader-chandu-rathod-murder-559021
-
-[Read on Telegram](https://t.me/livelawindia/124833)
+[Read on Telegram](https://t.me/livelawindia/124924)
 
 ---
-### 2026-11-18T18:02:27+00:00
-LiveLaw High Courts Daily Highlights: November 18, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-18-2026-559022
+### 2026-11-19T13:28:05+00:00
+'Pathetic Reality, Collective Shame': Delhi High Court Condemns Dowry Harassment, Deaths Of Married Women
+https://www.livelaw.in/high-court/delhi-high-court/pathetic-reality-collective-shame-delhi-high-court-condemns-dowry-harassment-deaths-of-married-women-559178
 
-[Read on Telegram](https://t.me/livelawindia/124834)
+[Read on Telegram](https://t.me/livelawindia/124925)
 
 ---
-### 2026-11-18T18:27:37+00:00
-Supreme Court Daily Round-Up : November 18, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-november-18-2026-559009
+### 2026-11-19T13:48:25+00:00
+Allahabad High Court Orders Man's Custody For Video Recording Its Hearing; Bars Litigants From Carrying Mobiles Into Courtrooms
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-man-custody-recording-hearing-mobile-phone-restriction-559181
 
-[Read on Telegram](https://t.me/livelawindia/124835)
+[Read on Telegram](https://t.me/livelawindia/124926)
+
+---
+### 2026-11-19T13:57:25+00:00
+Maharashtra Entertainment Duty Act | Business-To-Business Trade Exhibitions Liable To Duty If Entry Is Paid : Supreme Court
+https://www.livelaw.in/supreme-court/maharashtra-entertainment-duty-act-business-to-business-trade-exhibitions-liable-to-duty-if-entry-is-paid-supreme-court-559183
+
+[Read on Telegram](https://t.me/livelawindia/124927)
+
+---
+### 2026-11-19T13:57:35+00:00
+Non-Utilisation Of Land Acquired Under 1894 Land Acquisition Act Creates No Right To Restitution: Chhattisgarh High Court
+https://www.livelaw.in/high-court/chhattisgarh-high-court/non-utilisation-land-no-right-restitution-559070
+
+[Read on Telegram](https://t.me/livelawindia/124928)
+
+---
+### 2026-11-19T13:58:25+00:00
+2026 LiveLaw (SC) 1177 | THE GEM AND JEWELLERY EXPORT PROMOTION COUNCIL VERSUS THE STATE OF MAHARASHTRA AND OTHERS
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1177-the-gem-and-jewellery-export-promotion-council-versus-the-state-of-maharashtra-and-others-559184
+
+[Read on Telegram](https://t.me/livelawindia/124929)
+
+---
+### 2026-11-19T14:17:55+00:00
+High Court Holds It Has Jurisdiction To Hear Plea Against CARA For NOC Even Though Adoption Took Place Outside Delhi
+https://www.livelaw.in/high-court/delhi-high-court/high-court-holds-it-has-jurisdiction-to-hear-plea-against-cara-for-noc-even-though-adoption-took-place-outside-delhi-559180
+
+[Read on Telegram](https://t.me/livelawindia/124930)
+
+---
+### 2026-11-19T14:30:15+00:00
+Lender Does Not Hold Mortgage Security In Trust For Borrower: Supreme Court Quashes FIR Over Alleged Use Of Land As Cross-Collateral
+https://www.livelaw.in/top-stories/lender-does-not-hold-mortgage-security-in-trust-for-borrower-supreme-court-quashes-fir-over-alleged-use-of-land-as-cross-collateral-559185
+
+[Read on Telegram](https://t.me/livelawindia/124931)
+
+---
+### 2026-11-19T14:31:15+00:00
+2026 LiveLaw (SC) 1178  | Edelweiss Asset Reconstruction Company Limited v State of NCT of Delhi & Ors
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1178-edelweiss-asset-reconstruction-company-limited-v-state-of-nct-of-delhi-ors-559186
+
+[Read on Telegram](https://t.me/livelawindia/124932)
+
+---
+### 2026-11-19T14:32:35+00:00
+Fiction Of Party Intention: Rethinking Seat And Venue Conflict In Arbitration
+https://www.livelaw.in/articles/fiction-party-intention-rethinking-seat-venue-conflict-arbitration-559136
+
+[Read on Telegram](https://t.me/livelawindia/124933)
+
+---
+### 2026-11-19T14:43:55+00:00
+LiveLaw Daily | Gram Sabha Consent | Azam Khan's Bail | LiveLaw's IT Rules Challenge | & More
+https://www.livelaw.in/podcast/tina-ambani-ai-supreme-court-judiciary-exam-civil-judge-1-year-practice-news-india-clat-upsc-559189
+
+[Read on Telegram](https://t.me/livelawindia/124934)
+
+---
+### 2026-11-19T15:02:26+00:00
+Prisoner Can't Be Repeatedly Penalised For One Parole Violation Committed Long Ago: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/prisoner-cant-be-repeatedly-penalised-for-one-parole-violation-committed-long-ago-delhi-high-court-559179
+
+[Read on Telegram](https://t.me/livelawindia/124935)
 
 ---
