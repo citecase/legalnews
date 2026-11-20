@@ -1,23 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-20T09:56:19+00:00*
+*Last Updated: 2026-11-20T10:14:39+00:00*
 
 ---
 
-### 2026-11-20T09:56:19+00:00
-Calcutta High Court Declines Urgent Listing Of Mahua Moitra's Plea Over Egg-Pelting Incident
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-declines-urgent-listing-of-mahua-moitras-plea-over-egg-pelting-incident-559311
-
-[Read on Telegram](https://t.me/livelawindia/125010)
-
----
-### 2026-11-20T10:02:40+00:00
-Consumer Protection Authority Must Give Reasons Before Treating Complaint As 'Individual Grievance': Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/consumer-protection-authority-must-give-reasons-before-treating-complaint-as-individual-grievance-delhi-high-court-559226
-
-[Read on Telegram](https://t.me/livelawindia/125011)
-
----
 ### 2026-11-20T10:14:39+00:00
 Arbitrator Cannot Award Beyond Monetary Limit Of Dispute Referred To Arbitration: Supreme Court
 https://www.livelaw.in/supreme-court/arbitrator-cannot-award-beyond-monetary-limit-of-dispute-referred-to-arbitration-supreme-court-559314
@@ -142,5 +128,19 @@ Rajasthan High Court Grants Interim Protection From Arrest To Asaram In FIR Over
 https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-stays-asharam-arrest-fir-over-delayed-surrender-parole-expiry-559366
 
 [Read on Telegram](https://t.me/livelawindia/125029)
+
+---
+### 2026-11-20T15:27:52+00:00
+Employer Cannot Deny Gratuity To Long-Serving Ad Hoc Employee; Such Employee Is Deemed Regular For Retiral Benefits: Tripura High Court
+https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-employer-cannot-deny-gratuity-long-serving-ad-hoc-employee-559339
+
+[Read on Telegram](https://t.me/livelawindia/125030)
+
+---
+### 2026-11-20T19:32:50+00:00
+LiveLaw High Courts Daily Highlights: November 20, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-20-2026-559377
+
+[Read on Telegram](https://t.me/livelawindia/125031)
 
 ---
