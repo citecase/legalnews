@@ -1,30 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-19T12:17:51+00:00*
+*Last Updated: 2026-11-19T12:39:11+00:00*
 
 ---
 
-### 2026-11-19T12:17:51+00:00
-Writ Court Cannot Direct Paddy Procurement After Extended Deadline Expires: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/writ-court-cannot-direct-paddy-procurement-after-deadline-559069
-
-[Read on Telegram](https://t.me/livelawindia/124916)
-
----
-### 2026-11-19T12:22:31+00:00
-Gauhati High Court Sets Aside 'Aggravated' POCSO Conviction After Finding Victim Was Above 12 Years, Reduces Sentence
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-reduces-pocso-conviction-finding-victim-above12-assault-559166
-
-[Read on Telegram](https://t.me/livelawindia/124917)
-
----
-### 2026-11-19T12:32:51+00:00
-Defective Investigation Can't Lead To Acquittal Unless Lapses Go To Root Of Prosecution Case: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-upholds-life-term-murdering-brother-559168
-
-[Read on Telegram](https://t.me/livelawindia/124918)
-
----
 ### 2026-11-19T12:39:11+00:00
 Plea In Madras High Court Seeks FIR Against TVK MLA For Allegedly Sending Obscene Messages To Woman Collector
 https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-register-fir-kallakurichi-mla-obscene-message-woman-collector-559171
@@ -142,5 +121,26 @@ Prisoner Can't Be Repeatedly Penalised For One Parole Violation Committed Long A
 https://www.livelaw.in/high-court/delhi-high-court/prisoner-cant-be-repeatedly-penalised-for-one-parole-violation-committed-long-ago-delhi-high-court-559179
 
 [Read on Telegram](https://t.me/livelawindia/124935)
+
+---
+### 2026-11-19T15:49:38+00:00
+“Every Citizen Has Right To Choose Life Partner”: Calcutta High Court Grants Police Protection To Interfaith Couple
+https://www.livelaw.in/high-court/calcutta-high-court/every-citizen-has-right-to-choose-life-partner-calcutta-high-court-grants-police-protection-to-interfaith-couple-facing-threats-from-hindu-activist-group-559201
+
+[Read on Telegram](https://t.me/livelawindia/124936)
+
+---
+### 2026-11-19T18:02:29+00:00
+LiveLaw High Courts Daily Highlights: November 19, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-19-2026-559200
+
+[Read on Telegram](https://t.me/livelawindia/124937)
+
+---
+### 2026-11-19T18:28:09+00:00
+Supreme Court Daily Round-Up : November 19, 2026
+https://www.livelaw.in/top-stories/supreme-court-daily-round-up-november-19-2026-559187
+
+[Read on Telegram](https://t.me/livelawindia/124938)
 
 ---
