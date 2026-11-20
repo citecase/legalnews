@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-19T12:39:11+00:00*
+*Last Updated: 2026-11-20T09:56:19+00:00*
 
 ---
 
-### 2026-11-19T12:39:11+00:00
-Plea In Madras High Court Seeks FIR Against TVK MLA For Allegedly Sending Obscene Messages To Woman Collector
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-plea-register-fir-kallakurichi-mla-obscene-message-woman-collector-559171
+### 2026-11-20T09:56:19+00:00
+Calcutta High Court Declines Urgent Listing Of Mahua Moitra's Plea Over Egg-Pelting Incident
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-declines-urgent-listing-of-mahua-moitras-plea-over-egg-pelting-incident-559311
 
-[Read on Telegram](https://t.me/livelawindia/124919)
-
----
-### 2026-11-19T12:51:41+00:00
-Calcutta High Court Closes Plea For Independent Probe Into Ramkrishna Mission Student's Death After Drinking Hot Tea
-https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-closes-plea-for-independent-probe-into-ramkrishna-mission-students-death-after-drinking-hot-tea-559173
-
-[Read on Telegram](https://t.me/livelawindia/124920)
+[Read on Telegram](https://t.me/livelawindia/125010)
 
 ---
-### 2026-11-19T13:11:35+00:00
-'Delay Defeats Equity': Calcutta High Court Declines Relief In Plea Against Customs' Seizure Of ₹30 Lakh Cash At Kolkata Airport In 2020
-https://www.livelaw.in/high-court/calcutta-high-court/delay-defeats-equity-calcutta-high-court-declines-relief-in-plea-against-customs-seizure-of-30-lakh-cash-at-kolkata-airport-in-2020-559175
+### 2026-11-20T10:02:40+00:00
+Consumer Protection Authority Must Give Reasons Before Treating Complaint As 'Individual Grievance': Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/consumer-protection-authority-must-give-reasons-before-treating-complaint-as-individual-grievance-delhi-high-court-559226
 
-[Read on Telegram](https://t.me/livelawindia/124921)
-
----
-### 2026-11-19T13:13:15+00:00
-Myanmar Committed Genocide Against Rohingyas : International Court Of Justice
-https://www.livelaw.in/foreign-international/myanmar-committed-genocide-against-rohingyas-international-court-of-justice-559176
-
-[Read on Telegram](https://t.me/livelawindia/124922)
+[Read on Telegram](https://t.me/livelawindia/125011)
 
 ---
-### 2026-11-19T13:24:05+00:00
-Mere Online Accessibility Of Judicial Order Can't Confer Territorial Jurisdiction To Hear De-Indexing Plea: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/online-accessibility-judicial-order-no-territorial-jurisdiction-de-indexing-plea-right-to-be-forgotten-559177
+### 2026-11-20T10:14:39+00:00
+Arbitrator Cannot Award Beyond Monetary Limit Of Dispute Referred To Arbitration: Supreme Court
+https://www.livelaw.in/supreme-court/arbitrator-cannot-award-beyond-monetary-limit-of-dispute-referred-to-arbitration-supreme-court-559314
 
-[Read on Telegram](https://t.me/livelawindia/124923)
-
----
-### 2026-11-19T13:27:35+00:00
-Jharkhand High Court Takes Suo Motu Cognizance Of Neglect Of Sir Jagadish Chandra Bose's Museum, Seeks State's Response
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-takes-suo-motu-cognizance-neglect-sir-jagadish-chandra-bose-museum-559068
-
-[Read on Telegram](https://t.me/livelawindia/124924)
+[Read on Telegram](https://t.me/livelawindia/125012)
 
 ---
-### 2026-11-19T13:28:05+00:00
-'Pathetic Reality, Collective Shame': Delhi High Court Condemns Dowry Harassment, Deaths Of Married Women
-https://www.livelaw.in/high-court/delhi-high-court/pathetic-reality-collective-shame-delhi-high-court-condemns-dowry-harassment-deaths-of-married-women-559178
+### 2026-11-20T10:15:39+00:00
+2026 LiveLaw (SC) 1183 | NEYCER (INDIA) LTD. VS. GMB CERAMICS LTD.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1183-neycer-india-ltd-vs-gmb-ceramics-ltd-559315
 
-[Read on Telegram](https://t.me/livelawindia/124925)
-
----
-### 2026-11-19T13:48:25+00:00
-Allahabad High Court Orders Man's Custody For Video Recording Its Hearing; Bars Litigants From Carrying Mobiles Into Courtrooms
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-man-custody-recording-hearing-mobile-phone-restriction-559181
-
-[Read on Telegram](https://t.me/livelawindia/124926)
+[Read on Telegram](https://t.me/livelawindia/125013)
 
 ---
-### 2026-11-19T13:57:25+00:00
-Maharashtra Entertainment Duty Act | Business-To-Business Trade Exhibitions Liable To Duty If Entry Is Paid : Supreme Court
-https://www.livelaw.in/supreme-court/maharashtra-entertainment-duty-act-business-to-business-trade-exhibitions-liable-to-duty-if-entry-is-paid-supreme-court-559183
+### 2026-11-20T10:19:39+00:00
+'Shocking The Conscience' Not Enough To Modify Arbitral Award: Supreme Court Restores Contractor's Claim Against Kolkata Port Trust
+https://www.livelaw.in/supreme-court/shocking-the-conscience-not-enough-to-modify-arbitral-award-supreme-court-restores-contractors-claim-against-kolkata-port-trust-559316
 
-[Read on Telegram](https://t.me/livelawindia/124927)
-
----
-### 2026-11-19T13:57:35+00:00
-Non-Utilisation Of Land Acquired Under 1894 Land Acquisition Act Creates No Right To Restitution: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/non-utilisation-land-no-right-restitution-559070
-
-[Read on Telegram](https://t.me/livelawindia/124928)
+[Read on Telegram](https://t.me/livelawindia/125014)
 
 ---
-### 2026-11-19T13:58:25+00:00
-2026 LiveLaw (SC) 1177 | THE GEM AND JEWELLERY EXPORT PROMOTION COUNCIL VERSUS THE STATE OF MAHARASHTRA AND OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1177-the-gem-and-jewellery-export-promotion-council-versus-the-state-of-maharashtra-and-others-559184
+### 2026-11-20T10:20:39+00:00
+2026 LiveLaw (SC) 1184 | M/s Marino Dredgeco Limited Versus The Board of Trustees of the Port of Kolkata
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1184-ms-marino-dredgeco-limited-versus-the-board-of-trustees-of-the-port-of-kolkata-559317
 
-[Read on Telegram](https://t.me/livelawindia/124929)
-
----
-### 2026-11-19T14:17:55+00:00
-High Court Holds It Has Jurisdiction To Hear Plea Against CARA For NOC Even Though Adoption Took Place Outside Delhi
-https://www.livelaw.in/high-court/delhi-high-court/high-court-holds-it-has-jurisdiction-to-hear-plea-against-cara-for-noc-even-though-adoption-took-place-outside-delhi-559180
-
-[Read on Telegram](https://t.me/livelawindia/124930)
+[Read on Telegram](https://t.me/livelawindia/125015)
 
 ---
-### 2026-11-19T14:30:15+00:00
-Lender Does Not Hold Mortgage Security In Trust For Borrower: Supreme Court Quashes FIR Over Alleged Use Of Land As Cross-Collateral
-https://www.livelaw.in/top-stories/lender-does-not-hold-mortgage-security-in-trust-for-borrower-supreme-court-quashes-fir-over-alleged-use-of-land-as-cross-collateral-559185
+### 2026-11-20T10:27:29+00:00
+'Voter ID Or Electors Photo Identity Card Of Individuals Don't Prove Citizenship': Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/voter-id-dont-prove-citizenship-woman-foreigner-status-different-names-electoral-rolls-559318
 
-[Read on Telegram](https://t.me/livelawindia/124931)
-
----
-### 2026-11-19T14:31:15+00:00
-2026 LiveLaw (SC) 1178  | Edelweiss Asset Reconstruction Company Limited v State of NCT of Delhi & Ors
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1178-edelweiss-asset-reconstruction-company-limited-v-state-of-nct-of-delhi-ors-559186
-
-[Read on Telegram](https://t.me/livelawindia/124932)
+[Read on Telegram](https://t.me/livelawindia/125016)
 
 ---
-### 2026-11-19T14:32:35+00:00
-Fiction Of Party Intention: Rethinking Seat And Venue Conflict In Arbitration
-https://www.livelaw.in/articles/fiction-party-intention-rethinking-seat-venue-conflict-arbitration-559136
+### 2026-11-20T11:12:30+00:00
+'Prior Sanction U/S 197 CrPC Mandatory For Cognizance Against Public Servant': Bombay High Court Quashes Cognizance Against IRS Officer
+https://www.livelaw.in/high-court/bombay-high-court/prior-sanction-section-197-crpc-mandatory-cognizance-against-public-servant-559217
 
-[Read on Telegram](https://t.me/livelawindia/124933)
-
----
-### 2026-11-19T14:43:55+00:00
-LiveLaw Daily | Gram Sabha Consent | Azam Khan's Bail | LiveLaw's IT Rules Challenge | & More
-https://www.livelaw.in/podcast/tina-ambani-ai-supreme-court-judiciary-exam-civil-judge-1-year-practice-news-india-clat-upsc-559189
-
-[Read on Telegram](https://t.me/livelawindia/124934)
+[Read on Telegram](https://t.me/livelawindia/125017)
 
 ---
-### 2026-11-19T15:02:26+00:00
-Prisoner Can't Be Repeatedly Penalised For One Parole Violation Committed Long Ago: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/prisoner-cant-be-repeatedly-penalised-for-one-parole-violation-committed-long-ago-delhi-high-court-559179
+### 2026-11-20T11:35:20+00:00
+Kerala High Court Upholds Reinstatement Of Former State Bar Council Secretary, Modifies Finding Of Fraud Against Bar Council To 'Negligence'
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-upholds-reinstatement-of-former-bar-council-secretary-559333
 
-[Read on Telegram](https://t.me/livelawindia/124935)
-
----
-### 2026-11-19T15:49:38+00:00
-“Every Citizen Has Right To Choose Life Partner”: Calcutta High Court Grants Police Protection To Interfaith Couple
-https://www.livelaw.in/high-court/calcutta-high-court/every-citizen-has-right-to-choose-life-partner-calcutta-high-court-grants-police-protection-to-interfaith-couple-facing-threats-from-hindu-activist-group-559201
-
-[Read on Telegram](https://t.me/livelawindia/124936)
+[Read on Telegram](https://t.me/livelawindia/125018)
 
 ---
-### 2026-11-19T18:02:29+00:00
-LiveLaw High Courts Daily Highlights: November 19, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-19-2026-559200
+### 2026-11-20T12:10:50+00:00
+Aadhaar Card Not Proof Of Age: Karnataka High Court Relies On Post Mortem Report To Determine Deceased's Age In Motor Accident Case
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-aadhar-card-proof-of-age-absence-other-documents-produced-mact-559338
 
-[Read on Telegram](https://t.me/livelawindia/124937)
+[Read on Telegram](https://t.me/livelawindia/125019)
 
 ---
-### 2026-11-19T18:28:09+00:00
-Supreme Court Daily Round-Up : November 19, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-november-19-2026-559187
+### 2026-11-20T12:32:31+00:00
+Bail Not Warranted When Trial Is At Fag End And Final Verdict Is Expected Soon: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/bail-not-warranted-when-trial-is-at-fag-end-and-final-verdict-is-expected-soon-jk-high-court-559340
 
-[Read on Telegram](https://t.me/livelawindia/124938)
+[Read on Telegram](https://t.me/livelawindia/125020)
+
+---
+### 2026-11-20T14:07:31+00:00
+Microfinance Fraud Case: Kerala High Court Directs Investigating Officer To File Final Reports By November 26
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sndp-microfinance-fraud-559353
+
+[Read on Telegram](https://t.me/livelawindia/125021)
+
+---
+### 2026-11-20T14:08:51+00:00
+UP Urban Tenancy Act 2021 | Pending Petitions Shouldn't Be Dismissed : Supreme Court To Examine HC Verdict Striking Down Law
+https://www.livelaw.in/top-stories/up-urban-tenancy-act-2021-pending-petitions-shouldnt-be-dismissed-supreme-court-to-examine-hc-verdict-striking-down-law-559354
+
+[Read on Telegram](https://t.me/livelawindia/125022)
+
+---
+### 2026-11-20T14:09:31+00:00
+Calcutta High Court Refuses To Quash Murder Charges Against Promoter After 15 Died In Building Collapse
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-refuses-to-quash-murder-charges-against-promoter-after-15-died-in-building-collapse-559355
+
+[Read on Telegram](https://t.me/livelawindia/125023)
+
+---
+### 2026-11-20T14:12:31+00:00
+Pahalgam Tourism Huts: J&K High Court Quashes Withdrawal Of Town Planner's NOC, Directs Reconsideration Of Building Permission
+https://www.livelaw.in/high-court/jammu-kashmir/pahalgam-tourism-huts-jk-high-court-quashes-withdrawal-of-town-planners-noc-directs-boca-to-reconsider-building-permission-559341
+
+[Read on Telegram](https://t.me/livelawindia/125024)
+
+---
+### 2026-11-20T14:24:32+00:00
+Pan-India Case On Unauthorised Construction Shifted From Justice Amanullah's Bench
+https://www.livelaw.in/top-stories/pan-india-case-on-unauthorised-construction-shifted-from-justice-amanullahs-bench-559361
+
+[Read on Telegram](https://t.me/livelawindia/125025)
+
+---
+### 2026-11-20T14:26:42+00:00
+New House Saddled With ₹2.1 Lakh Joint Family Electricity Dues; Kupwara Consumer Commission Quashes Bill
+https://www.livelaw.in/consumer-cases/new-house-saddled-with-21-lakh-joint-family-electricity-dues-kupwara-consumer-commission-quashes-bill-559362
+
+[Read on Telegram](https://t.me/livelawindia/125026)
+
+---
+### 2026-11-20T14:32:42+00:00
+The Examined Judge
+https://www.livelaw.in/top-stories/examined-judge-559233
+
+[Read on Telegram](https://t.me/livelawindia/125027)
+
+---
+### 2026-11-20T14:52:02+00:00
+Marriage Between Hindu And Christian Can't Be Validated By Registration Under Hindu Marriage Act: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-hindu-and-christian-not-solemnise-hindu-marriage-act-registration-not-validate-559365
+
+[Read on Telegram](https://t.me/livelawindia/125028)
+
+---
+### 2026-11-20T14:56:02+00:00
+Rajasthan High Court Grants Interim Protection From Arrest To Asaram In FIR Over Delay In Surrendering After Parole
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-stays-asharam-arrest-fir-over-delayed-surrender-parole-expiry-559366
+
+[Read on Telegram](https://t.me/livelawindia/125029)
 
 ---
