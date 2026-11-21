@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-20T16:02:30+00:00*
+*Last Updated: 2026-11-21T07:12:58+00:00*
+
+---
+
+### 2026-11-21T07:12:58+00:00
+Social Media Post Showing Wife Having Enjoyable Life Not Proof Of Being Able To Maintain Herself: Gauhati High Court
+https://www.verdictum.in/guwahati-high-court/a-v-b-2026gau-as16967-social-media-post-wife-enjoyable-maintain-lifestyle-employment-1626166
+
+[Source Link](https://t.me/verdictumlegalupdates/30369)
+
+---
+
+### 2026-11-21T06:35:38+00:00
+Accidental Discharge Of Serviceman’s Own Weapon Cannot Be Treated As Self-Inflicted Injury Without Evidence Of Intention: Supreme Court
+https://www.verdictum.in/supreme-court/jc-377745m-ex-sub-maj-hony-lt-devi-singh-v-union-of-india-2026-insc-1256-operation-rakshak-subedar-major-army-1626165
+
+[Source Link](https://t.me/verdictumlegalupdates/30368)
+
+---
+
+### 2026-11-21T05:53:17+00:00
+Epilepsy Not Mental Disorder, Having It Does Not Prove Matrimonial Cruelty: Gauhati High Court
+https://www.verdictum.in/guwahati-high-court/2026gau-as16743-db-epilepsy-neurological-disorder-matrimonial-cruelty-marriage-divorce-1626162
+
+[Source Link](https://t.me/verdictumlegalupdates/30367)
+
+---
+
+### 2026-11-21T05:13:06+00:00
+Can’t Let Livestock Wander On Streets: Madras High Court Issues State-Wide Directions
+https://www.verdictum.in/madras-high-court/mkamesh-v-the-municipal-commissioner-livestock-streets-traffic-cautions-cattle-owners-1626155
+
+[Source Link](https://t.me/verdictumlegalupdates/30366)
+
+---
+
+### 2026-11-21T04:32:35+00:00
+Mere Fact That Complaint Was Initiated By Individual Consumer Cannot Furnish Reason For Treating Grievance As Individual In Nature: Delhi High Court
+https://www.verdictum.in/delhi-high-court/rupesh-kumar-jha-v-central-consumer-protection-authority-2026dhc10249-ccpa-communication-complaint-cuet-ug-2025-books-individual-1626135
+
+[Source Link](https://t.me/verdictumlegalupdates/30365)
 
 ---
 
@@ -121,46 +161,6 @@ Supreme Court Permits One-Time Lighting Of Karthigai Deepam At Thiruparankundram
 https://www.verdictum.in/supreme-court/permits-one-time-lighting-karthigai-deepam-thiruparankundrams-deepathoon-nov-24-1626113
 
 [Source Link](https://t.me/verdictumlegalupdates/30350)
-
----
-
-### 2026-11-20T08:32:13+00:00
-Bilkis Bano Case: Convicts' Lawyer Issues Press Release, Says Bail Plea Was Listed 10 Times & Widely Reported
-https://www.verdictum.in/supreme-court/bilkis-bano-convicts-lawyer-claim-false-only-meant-publicity-1626111
-
-[Source Link](https://t.me/verdictumlegalupdates/30349)
-
----
-
-### 2026-11-20T08:02:32+00:00
-Contesting Claims On Merits Without Prejudice To Pleaded Jurisdictional Objection Does Not Amount To Waiver Or Confer Jurisdiction By Acquiescence: Supreme Court
-https://www.verdictum.in/supreme-court/neycer-india-ltd-v-gmb-ceramics-ltd-2026-insc-1251-arbitration-reference-crystallised-at-rs-2-crore-1626106
-
-[Source Link](https://t.me/verdictumlegalupdates/30348)
-
----
-
-### 2026-11-20T07:32:31+00:00
-Mortgage Taken By Lender To Secure Repayment Not Property Held "In Trust"; Sections 406 & 409 IPC Can’t Be Invoked On That Basis: Supreme Court
-https://www.verdictum.in/supreme-court/edelweiss-asset-reconstruction-company-limited-v-state-of-nct-of-delhi-ors-2026-insc-1236-1626100
-
-[Source Link](https://t.me/verdictumlegalupdates/30347)
-
----
-
-### 2026-11-20T07:02:50+00:00
-Supreme Court Issues Notice To Centre On Plea Seeking Safeguards Against Consanguineous Marriages
-https://www.verdictum.in/weekly-summary/notice-centre-plea-seeking-safeguards-against-consanguineous-marriages-1626103
-
-[Source Link](https://t.me/verdictumlegalupdates/30346)
-
----
-
-### 2026-11-20T06:31:30+00:00
-In The Case Of A Child Born To Unwed Parents, Mother Has A Better Prima Facie Claim Of Custody: Supreme Court
-https://www.verdictum.in/supreme-court/h-v-state-of-goa-2026-insc-1248-mother-to-take-the-young-child-to-singapore-1626099
-
-[Source Link](https://t.me/verdictumlegalupdates/30345)
 
 ---
 
