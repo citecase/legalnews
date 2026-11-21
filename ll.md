@@ -1,147 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-21T04:17:59+00:00*
+*Last Updated: 2026-11-21T09:17:04+00:00*
 
 ---
 
-### 2026-11-21T04:17:59+00:00
-2019 Amendment Enhancing Minimum Punishment Under POCSO Act Not Retrospective: Tripura High Court
-https://www.livelaw.in/high-court/tripura-high-court/tripura-high-court-corrects-trial-court-retrospective-application-2019pocso-amendment-559386
+### 2026-11-21T09:17:04+00:00
+Legal Aid Work Be Made Compulsory For Every Student To Graduate: CJI Surya Kant
+https://www.livelaw.in/top-stories/legal-aid-work-be-made-compulsory-for-every-student-to-graduate-cji-surya-kant-559431
 
-[Read on Telegram](https://t.me/livelawindia/125040)
-
----
-### 2026-11-21T04:32:39+00:00
-Beyond Reactive Policing: Making Situational Crime Prevention An Institutional Duty
-https://www.livelaw.in/top-stories/beyond-reactive-policing-making-situational-crime-prevention-institutional-duty-559371
-
-[Read on Telegram](https://t.me/livelawindia/125041)
+[Read on Telegram](https://t.me/livelawindia/125071)
 
 ---
-### 2026-11-21T04:32:59+00:00
-Orissa High Court Quashes Cognizance Against Chanda Kochhar Over Alleged Illegal Deductions From Customer's ICICI Bank Account
-https://www.livelaw.in/high-court/orissa-high-court/orissa-high-court-quashes-cognizance-against-chanda-kochhar-alleged-illegal-deductions-559393
+### 2026-11-21T09:18:04+00:00
+Car Parking Allotment Does Not Automatically Pass With Flat Sale Unless Expressly Conveyed: Calcutta High Court
+https://www.livelaw.in/high-court/calcutta-high-court/car-parking-allotment-does-not-automatically-pass-with-flat-sale-unless-expressly-conveyed-calcutta-high-court-559360
 
-[Read on Telegram](https://t.me/livelawindia/125042)
-
----
-### 2026-11-21T04:33:39+00:00
-Child's Right To Know Biological Father Can Outweigh Father's Right To Privacy: Delhi High Court Upholds DNA Test Order
-https://www.livelaw.in/high-court/delhi-high-court/childs-right-to-know-biological-father-can-outweigh-fathers-right-to-privacy-delhi-high-court-upholds-dna-test-order-559395
-
-[Read on Telegram](https://t.me/livelawindia/125043)
+[Read on Telegram](https://t.me/livelawindia/125072)
 
 ---
-### 2026-11-21T04:42:49+00:00
-Bilkis Bano Case: Convicts' Sentence Suspension Raises Questions
-https://www.livelaw.in/top-stories/bilkis-bano-case-convicts-sentence-suspension-raises-questions-559391
+### 2026-11-21T09:32:14+00:00
+Digital Arrests And Wrong Bank: Why Liability Must Follow Mule Account
+https://www.livelaw.in/lawschool/articles/digital-arrests-wrong-bank-liability-must-follow-mule-account-559372
 
-[Read on Telegram](https://t.me/livelawindia/125044)
-
----
-### 2026-11-21T04:47:29+00:00
-28 Years On, Gujarat High Court Upholds Acquittal In POCSO Case; Cites Faulty TIP
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-pocso-acquittal-tip-559381
-
-[Read on Telegram](https://t.me/livelawindia/125045)
+[Read on Telegram](https://t.me/livelawindia/125073)
 
 ---
-### 2026-11-21T05:02:29+00:00
-'Stringent Bail Conditions Under PMLA Cannot Override Constitutional Right To Personal Liberty': Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-grants-bail-two-accused-prayag-group-money-laundering-case-559215
+### 2026-11-21T09:33:14+00:00
+Limitation Act | Delay Must Be Assessed On Cumulative Circumstances, Not Isolated Reasons: Supreme Court
+https://www.livelaw.in/supreme-court/limitation-act-delay-must-be-assessed-on-cumulative-circumstances-not-isolated-reasons-supreme-court-559433
 
-[Read on Telegram](https://t.me/livelawindia/125046)
-
----
-### 2026-11-21T05:07:29+00:00
-Kerala's Juvenile Age Debate Runs On Outrage, Not Evidence
-https://www.livelaw.in/articles/kerala-juvenile-age-debate-runs-outrage-evidence-559390
-
-[Read on Telegram](https://t.me/livelawindia/125047)
+[Read on Telegram](https://t.me/livelawindia/125074)
 
 ---
-### 2026-11-21T05:16:49+00:00
-Mother's Employment-Related Travel Not Grounds To Deny Child Custody When Father Is Also Busy Professional: Chhattisgarh High Court
-https://www.livelaw.in/high-court/chhattisgarh-high-court/mother-travel-not-ground-deny-child-custody-when-father-busy-professional-559397
+### 2026-11-21T09:34:14+00:00
+2026 LiveLaw (SC) 1186 | DELHI DEVELOPMENT AUTHORITY v.SUDARSHAN MANJHI & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1186-delhi-development-authority-vsudarshan-manjhi-ors-559434
 
-[Read on Telegram](https://t.me/livelawindia/125048)
-
----
-### 2026-11-21T05:18:09+00:00
-Rajasthan High Court Defers Interim Relief On IAS Officer Shikhar Agrawal's Plea In Corruption Case Over Luxury Villas
-https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-denies-interim-relief-ias-officer-shikhar-agarwal-corruption-case-559384
-
-[Read on Telegram](https://t.me/livelawindia/125049)
+[Read on Telegram](https://t.me/livelawindia/125075)
 
 ---
-### 2026-11-21T05:23:10+00:00
-Allahabad High Court Releases Man Who Filmed Hearing After He Tenders Apology; Courtroom Mobile Phone Ban To Continue
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-releases-man-filmed-hearing-apology-mobile-phone-ban-559402
+### 2026-11-21T09:37:54+00:00
+Site Plan Prepared By Architect Can't Substitute Engineer's Certification When Tender Expressly Requires It: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-upholds-rejection-of-liquor-shop-bid-architect-prepared-site-plan-does-not-satisfy-tender-requirement-of-engineer-certification-559382
 
-[Read on Telegram](https://t.me/livelawindia/125050)
-
----
-### 2026-11-21T05:33:00+00:00
-#TheLawChallenge
- : A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
-https://www.livelaw.in/top-stories/livelaw-and-qshala-weekly-quiz-559403
-
-[Read on Telegram](https://t.me/livelawindia/125051)
+[Read on Telegram](https://t.me/livelawindia/125076)
 
 ---
-### 2026-11-21T05:48:00+00:00
-Refunding Money To Customers Does Not Wipe Out Banking Misconduct: Calcutta High Court Upholds SBI Employee's Removal
-https://www.livelaw.in/high-court/calcutta-high-court/refunding-money-to-customers-does-not-wipe-out-banking-misconduct-calcutta-high-court-upholds-sbi-employees-removal-559358
+### 2026-11-21T09:47:55+00:00
+"Behind Every Case, There Is A Human Story": Justice Shivraj V. Patil At Release Of Hindi Edition Of His Autobiography
+https://www.livelaw.in/events/behind-every-case-there-is-a-human-story-justice-shivraj-v-patil-at-release-of-hindi-edition-of-his-autobiography-559435
 
-[Read on Telegram](https://t.me/livelawindia/125052)
-
----
-### 2026-11-21T06:00:20+00:00
-Why Are Gangsters Act FIRs Still Being Lodged Despite SC Declaring Law 'Stillborn'? Allahabad High Court Questions UP Authorities
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-gangsters-act-firs-stillborn-supreme-court-559404
-
-[Read on Telegram](https://t.me/livelawindia/125053)
+[Read on Telegram](https://t.me/livelawindia/125077)
 
 ---
-### 2026-11-21T06:11:10+00:00
-Independent SIR Commission Writes To Uttar Pradesh Chief Minister Seeking Details Of Claim On Exclusion of 1.27 Crore Electors
-https://www.livelaw.in/top-stories/independent-sir-commission-writes-to-uttar-pradesh-chief-minister-seeking-details-of-claim-on-exclusion-of-127-crore-electors-559405
+### 2026-11-21T10:16:46+00:00
+Bengaluru Court Denies Anticipatory Bail To Expelled Congress Leader Kripa Alva, Others In Siddaramaiah 'Sting' Video Case
+https://www.livelaw.in/news-updates/bengaluru-court-anticipatory-bail-congress-leader-kripa-alva-siddaramaiah-video-case-559437
 
-[Read on Telegram](https://t.me/livelawindia/125054)
-
----
-### 2026-11-21T06:12:30+00:00
-Family Courts And High Courts Can't Grant Divorce Solely On Ground Of Irretrievable Breakdown Of Marriage: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-grant-divorce-solely-ground-irretrievable-breakdown-559394
-
-[Read on Telegram](https://t.me/livelawindia/125055)
+[Read on Telegram](https://t.me/livelawindia/125078)
 
 ---
-### 2026-11-21T06:22:10+00:00
-Para Legal Volunteer Vacancy At District Legal Services Authority, Pudukkottai
-https://www.livelaw.in/job-updates/para-legal-volunteer-vacancy-at-district-legal-services-authority-pudukkottai-559406
+### 2026-11-21T10:36:05+00:00
+No Student Should Be Penalised Based On AI Detection Tool Alone: CJI Surya Kant
+https://www.livelaw.in/top-stories/no-student-should-be-penalised-based-on-ai-detection-tool-alone-cji-surya-kant-559448
 
-[Read on Telegram](https://t.me/livelawindia/125056)
-
----
-### 2026-11-21T06:24:30+00:00
-Court Assistant (Technical Assistant-cum Programmer) Vacancy At Supreme Court Of India
-https://www.livelaw.in/job-updates/court-assistant-technical-assistant-cum-programmer-vacancy-at-supreme-court-of-india-559407
-
-[Read on Telegram](https://t.me/livelawindia/125057)
+[Read on Telegram](https://t.me/livelawindia/125079)
 
 ---
-### 2026-11-21T06:25:30+00:00
-Legal Fellow Vacancy At Centre For Criminology And Justice, School Of Social Work, TISS, Mumbai
-https://www.livelaw.in/job-updates/legal-fellow-vacancy-at-centre-for-criminology-and-justice-school-of-social-work-tiss-mumbai-559408
+### 2026-11-21T11:08:15+00:00
+Mother Alone Entitled To Accident Compensation For Death Of Unmarried Son; Father & Sisters Not Dependents: HP High Court
+https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-mother-alone-entitled-to-dependency-compensation-for-death-of-unmarried-son-father-and-sisters-not-dependents-559401
 
-[Read on Telegram](https://t.me/livelawindia/125058)
+[Read on Telegram](https://t.me/livelawindia/125080)
 
 ---
-### 2026-11-21T06:26:10+00:00
-Law Clerks-Cum-Legal Research Assistant Vacancy At High Court Of Tripura
-https://www.livelaw.in/job-updates/law-clerks-cum-legal-research-assistant-vacancy-at-high-court-of-tripura-559409
+### 2026-11-21T11:27:35+00:00
+Non-Participant In Auction Cannot Seek Award By Making Higher Offer Later : Supreme Court
+https://www.livelaw.in/supreme-court/non-participant-in-auction-cannot-seek-award-by-making-higher-offer-later-supreme-court-559449
 
-[Read on Telegram](https://t.me/livelawindia/125059)
+[Read on Telegram](https://t.me/livelawindia/125081)
+
+---
+### 2026-11-21T11:28:55+00:00
+2026 LiveLaw (SC) 1187 |  M/s Kalindi Associates v M/s Bharat Commerce and Industries Limited & Ors.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1187-ms-kalindi-associates-v-ms-bharat-commerce-and-industries-limited-ors-559450
+
+[Read on Telegram](https://t.me/livelawindia/125082)
+
+---
+### 2026-11-21T11:57:25+00:00
+Jharkhand High Court Directs Improvements To AIIMS Deoghar Infra In MP Nishikant Dubey's PIL, Cites Right To Healthcare
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-directs-improvement-aiims-deoghar-infrastructure-mp-nishikant-dubey-pil-559399
+
+[Read on Telegram](https://t.me/livelawindia/125083)
+
+---
+### 2026-11-21T12:02:05+00:00
+Krishna Janmabhumi Dispute | Allahabad High Court Rejects Plea Challenging 1968 Land-Sharing Compromise With Idgah Trust
+https://www.livelaw.in/high-court/allahabad-high-court/krishna-janmabhoomi-1968-compromise-allahabad-high-court-559451
+
+[Read on Telegram](https://t.me/livelawindia/125084)
+
+---
+### 2026-11-21T12:21:05+00:00
+'Mere Driver Of Vehicle Cannot Be Prosecuted Under Essential Commodities Act': Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-mere-driver-vehicle-prosecuted-essential-commodities-act-559342
+
+[Read on Telegram](https://t.me/livelawindia/125085)
+
+---
+### 2026-11-21T13:28:06+00:00
+'Delay In Trial Cannot By Itself Override Stringent Bail Conditions Under PMLA': Jharkhand High Court Refuses Bail In 750-Cr Fraud Case
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-refuses-bail-fake-itc-fraud-case-559400
+
+[Read on Telegram](https://t.me/livelawindia/125086)
+
+---
+### 2026-11-21T14:26:36+00:00
+Magistrate Must Give Reasons When Ordering FIR Despite Police Report Of 'No Offence': Supreme Court
+https://www.livelaw.in/supreme-court/magistrate-must-give-reasons-when-ordering-fir-despite-police-report-of-no-offence-supreme-court-559470
+
+[Read on Telegram](https://t.me/livelawindia/125087)
+
+---
+### 2026-11-21T14:32:56+00:00
+India's Disclosure Standards For Influencer Advertising Remain Dangerously Vague
+https://www.livelaw.in/lawschool/articles/india-disclosure-standards-influencer-advertising-remain-dangerously-vague-559373
+
+[Read on Telegram](https://t.me/livelawindia/125088)
+
+---
+### 2026-11-21T14:33:56+00:00
+BHU Hospital Medicine Purchase Irregularities: Allahabad High Court Seeks Enquiry Reports, Says VC's Inaction Can't Be Ignored
+https://www.livelaw.in/high-court/allahabad-high-court/bhu-hospital-medicine-purchase-irregularities-allahabad-high-court-559471
+
+[Read on Telegram](https://t.me/livelawindia/125089)
+
+---
+### 2026-11-21T17:05:06+00:00
+LiveLaw High Courts Daily Highlights: November 21, 2026
+https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-21-2026-559475
+
+[Read on Telegram](https://t.me/livelawindia/125090)
 
 ---
