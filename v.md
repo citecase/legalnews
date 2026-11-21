@@ -1,6 +1,110 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-21T07:12:58+00:00*
+*Last Updated: 2026-11-21T16:02:23+00:00*
+
+---
+
+### 2026-11-21T16:02:23+00:00
+Young Professional (Legal) Vacancy At Directorate General of Foreign Trade
+https://www.verdictum.in/job-updates/directorate-general-of-foreign-trade-1626191
+
+[Source Link](https://t.me/verdictumlegalupdates/30382)
+
+---
+
+### 2026-11-21T15:13:02+00:00
+Removal Of Encroachments Must Be Undertaken In Accordance With Control of National Highways (Land and Traffic) Act: Supreme Court Issues Directions
+https://www.verdictum.in/supreme-court/in-re-phalodi-accident-v-national-highways-authority-of-india-2026-insc-1243-encroachments-private-land-1626190
+
+[Source Link](https://t.me/verdictumlegalupdates/30381)
+
+---
+
+### 2026-11-21T14:32:22+00:00
+Can A Mutawalli Whose Term Has Expired Continue Waqf Proceedings By Claiming To Be Sajjadanashin? Supreme Court To Examine
+https://www.verdictum.in/supreme-court/mutawalli-whose-term-expired-continue-waqf-proceedings-claiming-sajjadanashin-1626189
+
+[Source Link](https://t.me/verdictumlegalupdates/30380)
+
+---
+
+### 2026-11-21T13:53:01+00:00
+"Still Born" UP Gangsters Act Continues To Be Operative: Allahabad High Court Quashes FIR In Saharanpur Liquor Case
+https://www.verdictum.in/allahabad-high-court/pranay-aneja-v-state-of-up-2026ahc236800-db-gangchart-fir-saharanpur-liquor-case-1626188
+
+[Source Link](https://t.me/verdictumlegalupdates/30379)
+
+---
+
+### 2026-11-21T13:13:00+00:00
+Commissioners Must Call For At Least One Independent Witness To Prove Employer-Employee Relationship Between Close Relatives: Bombay High Court
+https://www.verdictum.in/bombay-high-court/hdfc-ergo-general-insurance-co-ltd-v-pallavi-arjun-dalvi-2026bhc-aug55238-employer-employee-relationship-between-close-relatives-1626187
+
+[Source Link](https://t.me/verdictumlegalupdates/30378)
+
+---
+
+### 2026-11-21T12:32:39+00:00
+Multiple Correct Answers To MCQ Warrant Exclusion Or Equal Marks: Allahabad High Court Directs Revision Of UPTET Results
+https://www.verdictum.in/allahabad-high-court/up-education-service-selection-commissioner-2026ahc235265-db-multiple-correct-answers-1626193
+
+[Source Link](https://t.me/verdictumlegalupdates/30377)
+
+---
+
+### 2026-11-21T11:53:18+00:00
+Supreme Court Directs Delhi Govt To Recall Gender-Specific Vacancy Notices To Accommodate Transgender Persons
+https://www.verdictum.in/supreme-court/delhi-govt-recall-gender-vacancy-notices-re-advertise-gender-neutral-1626185
+
+[Source Link](https://t.me/verdictumlegalupdates/30376)
+
+---
+
+### 2026-11-21T11:12:57+00:00
+Cauvery Water Release Monitoring Entrusted To CWMA & CWRC: Supreme Court Dismisses Applications By State Of Tamil Nadu & DMK
+https://www.verdictum.in/supreme-court/state-of-tamil-nadu-v-state-of-karnataka-and-others-2026-insc-1257-cauvery-water-dispute-1626184
+
+[Source Link](https://t.me/verdictumlegalupdates/30375)
+
+---
+
+### 2026-11-21T10:32:37+00:00
+Courts Must Examine Each Head While Enhancing Motor Accident Compensation; Composite Increase Without Basis Is ‘Guesswork’: Supreme Court
+https://www.verdictum.in/supreme-court/mohammad-sabir-v-ramesh-prasad-and-others-2026-insc-1255-motor-accident-compensation-1626182
+
+[Source Link](https://t.me/verdictumlegalupdates/30374)
+
+---
+
+### 2026-11-21T09:52:36+00:00
+Supreme Court To Examine If “Pay And Recover” Applies When Policy Was Cancelled Before Accident
+https://www.verdictum.in/supreme-court/examine-pay-and-recover-applies-policy-cancelled-before-accident-1626181
+
+[Source Link](https://t.me/verdictumlegalupdates/30373)
+
+---
+
+### 2026-11-21T09:12:45+00:00
+IBC Moratorium Operates Only Against Corporate Debtor, Not Its Promoters: Supreme Court
+https://www.verdictum.in/supreme-court/ibc-moratorium-operates-against-corporate-debtor-not-promoters-1626179
+
+[Source Link](https://t.me/verdictumlegalupdates/30372)
+
+---
+
+### 2026-11-21T08:32:20+00:00
+Continuous Residency Is A Sine Qua Non To Prove Citizenship, Scattered Voters’ Lists Cannot Establish Lineage: Gauhati High Court
+https://www.verdictum.in/guwahati-high-court/jaygun-nessa-joygun-nessa-joygon-nessa-v-the-union-of-india-wpc-59852023-voters-lists-left-her-lineage-1626177
+
+[Source Link](https://t.me/verdictumlegalupdates/30371)
+
+---
+
+### 2026-11-21T07:52:19+00:00
+PIL On Railway Station Sanitation: Supreme Court Flags "Substantial Public Interest", Grants Authorities Time To Act On CAG Report
+https://www.verdictum.in/supreme-court/cag-report-railway-station-sanitation-representation-1626168
+
+[Source Link](https://t.me/verdictumlegalupdates/30370)
 
 ---
 
@@ -57,110 +161,6 @@ Hotel Manager Having Access To Room No Reason To Doubt Recover From Occupant: SC
 https://www.verdictum.in/supreme-court/state-of-goa-v-agniv-sengupta-2026-insc-1245-raid-accused-drugs-recovery-1626137
 
 [Source Link](https://t.me/verdictumlegalupdates/30363)
-
----
-
-### 2026-11-20T15:02:28+00:00
-Petitioner’s Residence Does Not By Itself Confer Territorial Jurisdiction To Order De-Indexing Of Another High Court’s Decision: Delhi High Court
-https://www.verdictum.in/delhi-high-court/at-v-union-of-india-and-others-2026dhc10254-deindexing-privacy-rights-1626123
-
-[Source Link](https://t.me/verdictumlegalupdates/30362)
-
----
-
-### 2026-11-20T14:32:27+00:00
-Supreme Court Directs States To Constitute Grievance Committees Under Wetlands Rules Forthwith
-https://www.verdictum.in/supreme-court/wetlands-protected-court-orders-being-encroached-grievance-committees-1626133
-
-[Source Link](https://t.me/verdictumlegalupdates/30361)
-
----
-
-### 2026-11-20T14:02:26+00:00
-“Everyone Has A Right To File Even 100 Complaints”: Apex Court Junks PIL Seeking Database Of Repeat Sexual Offence Complainants
-https://www.verdictum.in/supreme-court/pil-seeking-database-of-repeat-sexual-offence-complainants-1626120
-
-[Source Link](https://t.me/verdictumlegalupdates/30360)
-
----
-
-### 2026-11-20T13:32:45+00:00
-No Interference Possible U/S.34 A&C Act On "Excessive" Quantum Of Award Merely Because Award Debtor Is Government Entity: Supreme Court
-https://www.verdictum.in/supreme-court/ms-marino-dredgeco-limited-v-the-board-of-trustees-of-the-port-of-kolkata-2026-insc-1238-1626124
-
-[Source Link](https://t.me/verdictumlegalupdates/30359)
-
----
-
-### 2026-11-20T13:03:04+00:00
-Madras High Court Flags Parallel Petition In Christian Reservation Case; Terms It Forum Shopping
-https://www.verdictum.in/madras-high-court/g-kodeeswaran-v-state-of-tamil-nadu-christian-backward-class-reservation-1626134
-
-[Source Link](https://t.me/verdictumlegalupdates/30358)
-
----
-
-### 2026-11-20T12:33:00+00:00
-Supreme Court Asks Rajasthan High Court To Decide Plea Relating To Women's Quota In Cricket Association
-https://www.verdictum.in/supreme-court/rajasthan-high-court-to-decide-plea-relating-to-womens-quota-in-cricket-association-1626122
-
-[Source Link](https://t.me/verdictumlegalupdates/30357)
-
----
-
-### 2026-11-20T12:02:59+00:00
-Supreme Court Directs Inquiry Into Non-Listing Of ED's Plea In Bail Matter For Nearly Three Years
-https://www.verdictum.in/supreme-court/non-listing-of-eds-plea-in-bail-matter-for-nearly-three-years-1626121
-
-[Source Link](https://t.me/verdictumlegalupdates/30356)
-
----
-
-### 2026-11-20T11:32:38+00:00
-Kerala High Court Permits Mayilpeely Scholarship Exam In Govt Schools After State Withdrew Permission Citing Religious Affiliation
-https://www.verdictum.in/kerala-high-court/national-teachers-union-ntu-mayilpeely-magazine-school-exam-1626125
-
-[Source Link](https://t.me/verdictumlegalupdates/30355)
-
----
-
-### 2026-11-20T11:02:17+00:00
-Scrapped Examination Cannot Be Resurrected To Eclipse Merit Earned In Examination That Survived: Karnataka High Court Directs Release Of Withheld NEET (UG) Result
-https://www.verdictum.in/karnataka-high-court/anushka-basavaraj-maidur-v-national-testing-agency-writ-petition-no-107041-of-2026-edn-ex-1626119
-
-[Source Link](https://t.me/verdictumlegalupdates/30354)
-
----
-
-### 2026-11-20T10:32:16+00:00
-Pre-Regularisation Service Can’t Be Retrospectively Excluded From Pension: Supreme Court Strikes Down UP Validation Acts
-https://www.verdictum.in/supreme-court/uttar-pradesh-ground-water-department-non-gazetted-employee-association-v-the-chief-secretary-2026-insc-1252-1626117
-
-[Source Link](https://t.me/verdictumlegalupdates/30353)
-
----
-
-### 2026-11-20T10:02:35+00:00
-Accused Can’t Dictate Where Victims File Complaints: Apex Court Refuses To Club FIRs In Cloud Space Investment Fraud
-https://www.verdictum.in/supreme-court/cloud-space-investment-fraud-fir-club-refused-1626115
-
-[Source Link](https://t.me/verdictumlegalupdates/30352)
-
----
-
-### 2026-11-20T09:33:14+00:00
-Manning Agent Cannot Arrest Vessel For Disputes And Claims With Ship’s Manager: Kerala High Court
-https://www.verdictum.in/kerala-high-court/light-house-marine-service-india-pvt-ltd-v-charterer-and-parties-interested-in-the-vessel-mt-ocean-faye-2026ker87851-admiralty-act-2017-1626112
-
-[Source Link](https://t.me/verdictumlegalupdates/30351)
-
----
-
-### 2026-11-20T08:50:54+00:00
-Supreme Court Permits One-Time Lighting Of Karthigai Deepam At Thiruparankundram’s Deepathoon On Nov 24
-https://www.verdictum.in/supreme-court/permits-one-time-lighting-karthigai-deepam-thiruparankundrams-deepathoon-nov-24-1626113
-
-[Source Link](https://t.me/verdictumlegalupdates/30350)
 
 ---
 
