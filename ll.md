@@ -1,107 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-21T09:37:54+00:00*
+*Last Updated: 2026-11-21T17:05:06+00:00*
 
 ---
 
-### 2026-11-21T09:37:54+00:00
-Site Plan Prepared By Architect Can't Substitute Engineer's Certification When Tender Expressly Requires It: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-upholds-rejection-of-liquor-shop-bid-architect-prepared-site-plan-does-not-satisfy-tender-requirement-of-engineer-certification-559382
-
-[Read on Telegram](https://t.me/livelawindia/125076)
-
----
-### 2026-11-21T09:47:55+00:00
-"Behind Every Case, There Is A Human Story": Justice Shivraj V. Patil At Release Of Hindi Edition Of His Autobiography
-https://www.livelaw.in/events/behind-every-case-there-is-a-human-story-justice-shivraj-v-patil-at-release-of-hindi-edition-of-his-autobiography-559435
-
-[Read on Telegram](https://t.me/livelawindia/125077)
-
----
-### 2026-11-21T10:16:46+00:00
-Bengaluru Court Denies Anticipatory Bail To Expelled Congress Leader Kripa Alva, Others In Siddaramaiah 'Sting' Video Case
-https://www.livelaw.in/news-updates/bengaluru-court-anticipatory-bail-congress-leader-kripa-alva-siddaramaiah-video-case-559437
-
-[Read on Telegram](https://t.me/livelawindia/125078)
-
----
-### 2026-11-21T10:36:05+00:00
-No Student Should Be Penalised Based On AI Detection Tool Alone: CJI Surya Kant
-https://www.livelaw.in/top-stories/no-student-should-be-penalised-based-on-ai-detection-tool-alone-cji-surya-kant-559448
-
-[Read on Telegram](https://t.me/livelawindia/125079)
-
----
-### 2026-11-21T11:08:15+00:00
-Mother Alone Entitled To Accident Compensation For Death Of Unmarried Son; Father & Sisters Not Dependents: HP High Court
-https://www.livelaw.in/high-court/himachal-pradesh-high-court/himachal-pradesh-high-court-mother-alone-entitled-to-dependency-compensation-for-death-of-unmarried-son-father-and-sisters-not-dependents-559401
-
-[Read on Telegram](https://t.me/livelawindia/125080)
-
----
-### 2026-11-21T11:27:35+00:00
-Non-Participant In Auction Cannot Seek Award By Making Higher Offer Later : Supreme Court
-https://www.livelaw.in/supreme-court/non-participant-in-auction-cannot-seek-award-by-making-higher-offer-later-supreme-court-559449
-
-[Read on Telegram](https://t.me/livelawindia/125081)
-
----
-### 2026-11-21T11:28:55+00:00
-2026 LiveLaw (SC) 1187 |  M/s Kalindi Associates v M/s Bharat Commerce and Industries Limited & Ors.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1187-ms-kalindi-associates-v-ms-bharat-commerce-and-industries-limited-ors-559450
-
-[Read on Telegram](https://t.me/livelawindia/125082)
-
----
-### 2026-11-21T11:57:25+00:00
-Jharkhand High Court Directs Improvements To AIIMS Deoghar Infra In MP Nishikant Dubey's PIL, Cites Right To Healthcare
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-directs-improvement-aiims-deoghar-infrastructure-mp-nishikant-dubey-pil-559399
-
-[Read on Telegram](https://t.me/livelawindia/125083)
-
----
-### 2026-11-21T12:02:05+00:00
-Krishna Janmabhumi Dispute | Allahabad High Court Rejects Plea Challenging 1968 Land-Sharing Compromise With Idgah Trust
-https://www.livelaw.in/high-court/allahabad-high-court/krishna-janmabhoomi-1968-compromise-allahabad-high-court-559451
-
-[Read on Telegram](https://t.me/livelawindia/125084)
-
----
-### 2026-11-21T12:21:05+00:00
-'Mere Driver Of Vehicle Cannot Be Prosecuted Under Essential Commodities Act': Patna High Court
-https://www.livelaw.in/high-court/patna-high-court/patna-high-court-mere-driver-vehicle-prosecuted-essential-commodities-act-559342
-
-[Read on Telegram](https://t.me/livelawindia/125085)
-
----
-### 2026-11-21T13:28:06+00:00
-'Delay In Trial Cannot By Itself Override Stringent Bail Conditions Under PMLA': Jharkhand High Court Refuses Bail In 750-Cr Fraud Case
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-refuses-bail-fake-itc-fraud-case-559400
-
-[Read on Telegram](https://t.me/livelawindia/125086)
-
----
-### 2026-11-21T14:26:36+00:00
-Magistrate Must Give Reasons When Ordering FIR Despite Police Report Of 'No Offence': Supreme Court
-https://www.livelaw.in/supreme-court/magistrate-must-give-reasons-when-ordering-fir-despite-police-report-of-no-offence-supreme-court-559470
-
-[Read on Telegram](https://t.me/livelawindia/125087)
-
----
-### 2026-11-21T14:32:56+00:00
-India's Disclosure Standards For Influencer Advertising Remain Dangerously Vague
-https://www.livelaw.in/lawschool/articles/india-disclosure-standards-influencer-advertising-remain-dangerously-vague-559373
-
-[Read on Telegram](https://t.me/livelawindia/125088)
-
----
-### 2026-11-21T14:33:56+00:00
-BHU Hospital Medicine Purchase Irregularities: Allahabad High Court Seeks Enquiry Reports, Says VC's Inaction Can't Be Ignored
-https://www.livelaw.in/high-court/allahabad-high-court/bhu-hospital-medicine-purchase-irregularities-allahabad-high-court-559471
-
-[Read on Telegram](https://t.me/livelawindia/125089)
-
----
 ### 2026-11-21T17:05:06+00:00
 LiveLaw High Courts Daily Highlights: November 21, 2026
 https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-21-2026-559475
@@ -142,5 +44,103 @@ Centre's Order Cancelling Author Amrit Wilson's OCI Card Lacks Details Of 'Anti-
 https://www.livelaw.in/high-court/delhi-high-court/centres-order-cancelling-author-amrit-wilsons-oci-card-lacks-details-of-anti-india-activities-delhi-high-court-559485
 
 [Read on Telegram](https://t.me/livelawindia/125095)
+
+---
+### 2026-11-22T06:17:48+00:00
+Delhi High Court Declines Death Penalty For Cop Convicted Of Double Murder, Says Breach Of Public Trust Alone Can't Justify Capital Punishment
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-declines-death-penalty-for-cop-convicted-of-double-murder-says-breach-of-public-trust-alone-cant-justify-capital-punishment-559482
+
+[Read on Telegram](https://t.me/livelawindia/125096)
+
+---
+### 2026-11-22T06:23:08+00:00
+IPR Chair Professor Vacancy At National Law University, Delhi
+https://www.livelaw.in/job-updates/ipr-chair-professor-vacancy-at-national-law-university-delhi-559487
+
+[Read on Telegram](https://t.me/livelawindia/125097)
+
+---
+### 2026-11-22T06:24:08+00:00
+District Judge Vacancy At State Of Orissa
+https://www.livelaw.in/job-updates/district-judge-vacancy-at-state-of-orissa-559488
+
+[Read on Telegram](https://t.me/livelawindia/125098)
+
+---
+### 2026-11-22T06:24:48+00:00
+Assistant Law Officer Vacancy At Chhattisgarh State Power Distribution Company Limited
+https://www.livelaw.in/job-updates/assistant-law-officer-vacancy-at-chhattisgarh-state-power-distribution-company-limited-559489
+
+[Read on Telegram](https://t.me/livelawindia/125099)
+
+---
+### 2026-11-22T06:25:48+00:00
+Senior Associate (Legal) Vacancy At National Highways And Infrastructure Development Corporation Limited (NHIDCL)
+https://www.livelaw.in/job-updates/senior-associate-legal-vacancy-at-national-highways-and-infrastructure-development-corporation-limited-nhidcl-559490
+
+[Read on Telegram](https://t.me/livelawindia/125100)
+
+---
+### 2026-11-22T06:47:18+00:00
+Child's Welfare Paramount In Custody Disputes, Not Parents' 'Battle Of Wits And Egos': Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/childs-welfare-paramount-in-custody-disputes-not-parents-battle-of-wits-and-egos-delhi-high-court-559483
+
+[Read on Telegram](https://t.me/livelawindia/125101)
+
+---
+### 2026-11-22T07:01:18+00:00
+Haryana State Legal Services Authority Conducts Statewide Special Lok Adalat For Negotiable Instruments Act Cases
+https://www.livelaw.in/news-updates/haryana-state-legal-services-authority-special-lok-adalat-negotiable-instruments-act-cases-559491
+
+[Read on Telegram](https://t.me/livelawindia/125102)
+
+---
+### 2026-11-22T07:37:08+00:00
+Tamil Nadu Files Review Petition Against Supreme Court Order Allowing Karthigai Lamp Lighting At Thiruparankundram Deepathoon
+https://www.livelaw.in/top-stories/tamil-nadu-files-review-petition-against-supreme-court-order-allowing-karthigai-lamp-lighting-at-thiruparankundram-deepathoon-559492
+
+[Read on Telegram](https://t.me/livelawindia/125103)
+
+---
+### 2026-11-22T08:28:40+00:00
+Supreme Court To Examine Whether Former Mutawalli Can Represent Waqf As Sajjadanashin After Tenure Ends
+https://www.livelaw.in/supreme-court/supreme-court-to-examine-whether-former-mutawalli-can-represent-waqf-as-sajjadanashin-after-tenure-ends-559493
+
+[Read on Telegram](https://t.me/livelawindia/125104)
+
+---
+### 2026-11-22T09:08:11+00:00
+Court Must Assess Builder-Banker Nexus Before Directing Loan Recovery From Homebuyer : Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-builder-banks-nexus-loan-disbursement-homebuyer-fault-to-be-assessed-before-interim-direction-of-installment-payment-559494
+
+[Read on Telegram](https://t.me/livelawindia/125105)
+
+---
+### 2026-11-22T09:09:51+00:00
+2026 LiveLaw (SC )1188 |  Ravi Kumar Jangra and Anr. v. Union of India and Ors.,
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1188-ravi-kumar-jangra-and-anr-v-union-of-india-and-ors-559495
+
+[Read on Telegram](https://t.me/livelawindia/125106)
+
+---
+### 2026-11-22T09:32:51+00:00
+Stretch Too Far: Amar Mandal V. Directorate Of Enforcement And Scope Of Section 66(2) PMLA
+https://www.livelaw.in/articles/stretch-too-far-amar-mandal-v-directorate-of-enforcement-scope-pmla-559375
+
+[Read on Telegram](https://t.me/livelawindia/125107)
+
+---
+### 2026-11-22T09:33:01+00:00
+Fresh Divorce Petition Maintainable Despite Earlier Withdrawal Without Liberty To Refile On Jurisdictional Grounds: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/fresh-divorce-petition-maintainable-despite-earlier-withdrawal-without-liberty-to-refile-on-jurisdictional-grounds-delhi-high-court-559484
+
+[Read on Telegram](https://t.me/livelawindia/125108)
+
+---
+### 2026-11-22T12:02:42+00:00
+Senior Citizen Can't Be Compelled To Share Own House With Children Against Wishes: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/senior-citizen-cant-be-compelled-to-share-own-house-with-children-against-wishes-delhi-high-court-559486
+
+[Read on Telegram](https://t.me/livelawindia/125109)
 
 ---
