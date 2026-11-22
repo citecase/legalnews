@@ -1,16 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-21T17:05:06+00:00*
+*Last Updated: 2026-11-22T03:10:26+00:00*
 
 ---
 
-### 2026-11-21T17:05:06+00:00
-LiveLaw High Courts Daily Highlights: November 21, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-21-2026-559475
-
-[Read on Telegram](https://t.me/livelawindia/125090)
-
----
 ### 2026-11-22T03:10:26+00:00
 Police Can't Justify Restraint Of Journalists By Merely Avoiding Words 'Arrest' Or 'Detention': Media Organisation Tells Supreme Court
 https://www.livelaw.in/top-stories/police-cant-justify-restraint-of-journalists-by-merely-avoiding-words-arrest-or-detention-media-organisation-tells-supreme-court-559479
@@ -142,5 +135,12 @@ Senior Citizen Can't Be Compelled To Share Own House With Children Against Wishe
 https://www.livelaw.in/high-court/delhi-high-court/senior-citizen-cant-be-compelled-to-share-own-house-with-children-against-wishes-delhi-high-court-559486
 
 [Read on Telegram](https://t.me/livelawindia/125109)
+
+---
+### 2026-11-22T16:01:53+00:00
+TVK MLA Sent Obscene Messages To District Collector, Police Took No Action On Complaint : Justice Victoria Gowri
+https://www.livelaw.in/high-court/madras-high-court/tvk-mla-sent-obscene-messages-to-district-collector-police-took-no-action-on-complaint-justice-victoria-gowri-559506
+
+[Read on Telegram](https://t.me/livelawindia/125110)
 
 ---
