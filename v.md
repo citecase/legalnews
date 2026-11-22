@@ -1,6 +1,22 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-21T16:02:23+00:00*
+*Last Updated: 2026-11-22T06:02:16+00:00*
+
+---
+
+### 2026-11-22T06:02:16+00:00
+Allahabad High Court Bans Litigants From Carrying Mobile Phones Into Courtroom
+https://www.verdictum.in/allahabad-high-court/kuldeep-batra-v-state-of-up-courtroom-mobile-litigant-recording-1626186
+
+[Source Link](https://t.me/verdictumlegalupdates/30384)
+
+---
+
+### 2026-11-22T04:32:55+00:00
+Prior Sanction U/S 197 CrPC Required For PMLA Prosecution: Bombay High Court Quashes ED Complaint Against IRS Officer
+https://www.verdictum.in/bombay-high-court/sachin-sawant-v-union-of-india-and-another-2026bhc-as45633-pmla-section-197-crpc-1626192
+
+[Source Link](https://t.me/verdictumlegalupdates/30383)
 
 ---
 
@@ -145,22 +161,6 @@ Mere Fact That Complaint Was Initiated By Individual Consumer Cannot Furnish Rea
 https://www.verdictum.in/delhi-high-court/rupesh-kumar-jha-v-central-consumer-protection-authority-2026dhc10249-ccpa-communication-complaint-cuet-ug-2025-books-individual-1626135
 
 [Source Link](https://t.me/verdictumlegalupdates/30365)
-
----
-
-### 2026-11-20T16:02:30+00:00
-MNLU, Mumbai Invites Applications For Posts Of Programme Coordinator & Junior Legal Fellow
-https://www.verdictum.in/job-updates/maharashtra-national-law-university-1626130
-
-[Source Link](https://t.me/verdictumlegalupdates/30364)
-
----
-
-### 2026-11-20T15:33:12+00:00
-Hotel Manager Having Access To Room No Reason To Doubt Recover From Occupant: SC Sets Aside Bail In NDPS Case
-https://www.verdictum.in/supreme-court/state-of-goa-v-agniv-sengupta-2026-insc-1245-raid-accused-drugs-recovery-1626137
-
-[Source Link](https://t.me/verdictumlegalupdates/30363)
 
 ---
 
