@@ -1,6 +1,54 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-22T06:02:16+00:00*
+*Last Updated: 2026-11-22T15:02:46+00:00*
+
+---
+
+### 2026-11-22T15:02:46+00:00
+Legal Consultant Vacancy At Archaeological Survey of India
+https://www.verdictum.in/job-updates/archaeological-survey-of-india-1626199
+
+[Source Link](https://t.me/verdictumlegalupdates/30390)
+
+---
+
+### 2026-11-22T13:32:40+00:00
+Marriage Between A Hindu And A Person Of Another Religion Cannot Be Validated By Registration Under Hindu Marriage Act: Madras High Court
+https://www.verdictum.in/madras-high-court/ank-v-kv-2026mhc4630-interfaith-couple-hindu-marriage-act-validity-1626231
+
+[Source Link](https://t.me/verdictumlegalupdates/30389)
+
+---
+
+### 2026-11-22T12:03:00+00:00
+Treadmills, Exercise Bikes & Fitness Equipment Are ‘Sports Goods’ Exempt Under UP VAT Notification: Supreme Court
+https://www.verdictum.in/supreme-court/treadmills-exercise-bikes-fitness-equipment-are-sports-goods-exempt-under-up-vat-1626205
+
+[Source Link](https://t.me/verdictumlegalupdates/30388)
+
+---
+
+### 2026-11-22T10:32:19+00:00
+No Entrustment In Hypothecation, Sale Of Such Property Not Offence U/s. 406 IPC: Jharkhand High Court
+https://www.verdictum.in/jharkhand-high-court/nimisha-sinha-v-state-2026jhhc32856-hypothecated-property-sec406-ipc-1626198
+
+[Source Link](https://t.me/verdictumlegalupdates/30387)
+
+---
+
+### 2026-11-22T09:02:18+00:00
+Sikkim HC Reinstates Suspended District Judge Subject To Outcome Of Disciplinary Proceedings; Leaves Decision On Judicial Duties To HC Administration
+https://www.verdictum.in/sikkim-high-court/bebika-chettri-v-high-court-of-sikkim-wpc-no-85-of-2026-suspended-officiating-district-judge-soleng-1626197
+
+[Source Link](https://t.me/verdictumlegalupdates/30386)
+
+---
+
+### 2026-11-22T07:32:57+00:00
+Refusing Firearms To Eligible Sportsperson For Practice Curbs Fundamental Right To Participate In Sport: Bombay High Court
+https://www.verdictum.in/bombay-high-court/hemant-ankush-balwadkar-v-state-of-maharashtra-sport-of-his-choice-additional-arms-shooter-sportsperson-1626195
+
+[Source Link](https://t.me/verdictumlegalupdates/30385)
 
 ---
 
@@ -113,54 +161,6 @@ Continuous Residency Is A Sine Qua Non To Prove Citizenship, Scattered Voters’
 https://www.verdictum.in/guwahati-high-court/jaygun-nessa-joygun-nessa-joygon-nessa-v-the-union-of-india-wpc-59852023-voters-lists-left-her-lineage-1626177
 
 [Source Link](https://t.me/verdictumlegalupdates/30371)
-
----
-
-### 2026-11-21T07:52:19+00:00
-PIL On Railway Station Sanitation: Supreme Court Flags "Substantial Public Interest", Grants Authorities Time To Act On CAG Report
-https://www.verdictum.in/supreme-court/cag-report-railway-station-sanitation-representation-1626168
-
-[Source Link](https://t.me/verdictumlegalupdates/30370)
-
----
-
-### 2026-11-21T07:12:58+00:00
-Social Media Post Showing Wife Having Enjoyable Life Not Proof Of Being Able To Maintain Herself: Gauhati High Court
-https://www.verdictum.in/guwahati-high-court/a-v-b-2026gau-as16967-social-media-post-wife-enjoyable-maintain-lifestyle-employment-1626166
-
-[Source Link](https://t.me/verdictumlegalupdates/30369)
-
----
-
-### 2026-11-21T06:35:38+00:00
-Accidental Discharge Of Serviceman’s Own Weapon Cannot Be Treated As Self-Inflicted Injury Without Evidence Of Intention: Supreme Court
-https://www.verdictum.in/supreme-court/jc-377745m-ex-sub-maj-hony-lt-devi-singh-v-union-of-india-2026-insc-1256-operation-rakshak-subedar-major-army-1626165
-
-[Source Link](https://t.me/verdictumlegalupdates/30368)
-
----
-
-### 2026-11-21T05:53:17+00:00
-Epilepsy Not Mental Disorder, Having It Does Not Prove Matrimonial Cruelty: Gauhati High Court
-https://www.verdictum.in/guwahati-high-court/2026gau-as16743-db-epilepsy-neurological-disorder-matrimonial-cruelty-marriage-divorce-1626162
-
-[Source Link](https://t.me/verdictumlegalupdates/30367)
-
----
-
-### 2026-11-21T05:13:06+00:00
-Can’t Let Livestock Wander On Streets: Madras High Court Issues State-Wide Directions
-https://www.verdictum.in/madras-high-court/mkamesh-v-the-municipal-commissioner-livestock-streets-traffic-cautions-cattle-owners-1626155
-
-[Source Link](https://t.me/verdictumlegalupdates/30366)
-
----
-
-### 2026-11-21T04:32:35+00:00
-Mere Fact That Complaint Was Initiated By Individual Consumer Cannot Furnish Reason For Treating Grievance As Individual In Nature: Delhi High Court
-https://www.verdictum.in/delhi-high-court/rupesh-kumar-jha-v-central-consumer-protection-authority-2026dhc10249-ccpa-communication-complaint-cuet-ug-2025-books-individual-1626135
-
-[Source Link](https://t.me/verdictumlegalupdates/30365)
 
 ---
 
