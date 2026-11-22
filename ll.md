@@ -1,44 +1,9 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-21T09:17:04+00:00*
+*Last Updated: 2026-11-21T09:37:54+00:00*
 
 ---
 
-### 2026-11-21T09:17:04+00:00
-Legal Aid Work Be Made Compulsory For Every Student To Graduate: CJI Surya Kant
-https://www.livelaw.in/top-stories/legal-aid-work-be-made-compulsory-for-every-student-to-graduate-cji-surya-kant-559431
-
-[Read on Telegram](https://t.me/livelawindia/125071)
-
----
-### 2026-11-21T09:18:04+00:00
-Car Parking Allotment Does Not Automatically Pass With Flat Sale Unless Expressly Conveyed: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/car-parking-allotment-does-not-automatically-pass-with-flat-sale-unless-expressly-conveyed-calcutta-high-court-559360
-
-[Read on Telegram](https://t.me/livelawindia/125072)
-
----
-### 2026-11-21T09:32:14+00:00
-Digital Arrests And Wrong Bank: Why Liability Must Follow Mule Account
-https://www.livelaw.in/lawschool/articles/digital-arrests-wrong-bank-liability-must-follow-mule-account-559372
-
-[Read on Telegram](https://t.me/livelawindia/125073)
-
----
-### 2026-11-21T09:33:14+00:00
-Limitation Act | Delay Must Be Assessed On Cumulative Circumstances, Not Isolated Reasons: Supreme Court
-https://www.livelaw.in/supreme-court/limitation-act-delay-must-be-assessed-on-cumulative-circumstances-not-isolated-reasons-supreme-court-559433
-
-[Read on Telegram](https://t.me/livelawindia/125074)
-
----
-### 2026-11-21T09:34:14+00:00
-2026 LiveLaw (SC) 1186 | DELHI DEVELOPMENT AUTHORITY v.SUDARSHAN MANJHI & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1186-delhi-development-authority-vsudarshan-manjhi-ors-559434
-
-[Read on Telegram](https://t.me/livelawindia/125075)
-
----
 ### 2026-11-21T09:37:54+00:00
 Site Plan Prepared By Architect Can't Substitute Engineer's Certification When Tender Expressly Requires It: Gauhati High Court
 https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-upholds-rejection-of-liquor-shop-bid-architect-prepared-site-plan-does-not-satisfy-tender-requirement-of-engineer-certification-559382
@@ -142,5 +107,40 @@ LiveLaw High Courts Daily Highlights: November 21, 2026
 https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-21-2026-559475
 
 [Read on Telegram](https://t.me/livelawindia/125090)
+
+---
+### 2026-11-22T03:10:26+00:00
+Police Can't Justify Restraint Of Journalists By Merely Avoiding Words 'Arrest' Or 'Detention': Media Organisation Tells Supreme Court
+https://www.livelaw.in/top-stories/police-cant-justify-restraint-of-journalists-by-merely-avoiding-words-arrest-or-detention-media-organisation-tells-supreme-court-559479
+
+[Read on Telegram](https://t.me/livelawindia/125091)
+
+---
+### 2026-11-22T03:28:56+00:00
+Independence Of Judiciary Is Non-Negotiable: Justice KV Viswanathan
+https://www.livelaw.in/top-stories/independence-of-judiciary-is-non-negotiable-justice-kv-viswanathan-559480
+
+[Read on Telegram](https://t.me/livelawindia/125092)
+
+---
+### 2026-11-22T04:33:07+00:00
+SME IPOs Under Scrutiny: Merchant Banker Accountability And SEBI'S Reforms
+https://www.livelaw.in/articles/sme-ipo-under-scrutiny-merchant-banker-accountability-sebi-reforms-559374
+
+[Read on Telegram](https://t.me/livelawindia/125093)
+
+---
+### 2026-11-22T05:20:38+00:00
+Daughter-In-Law Can't Be Expected To Vacate Senior Citizen's House Without Assured Alternate Accommodation: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/daughter-in-law-cant-be-expected-to-vacate-senior-citizens-house-without-assured-alternate-accommodation-delhi-high-court-559481
+
+[Read on Telegram](https://t.me/livelawindia/125094)
+
+---
+### 2026-11-22T05:46:28+00:00
+Centre's Order Cancelling Author Amrit Wilson's OCI Card Lacks Details Of 'Anti-India Activities': Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/centres-order-cancelling-author-amrit-wilsons-oci-card-lacks-details-of-anti-india-activities-delhi-high-court-559485
+
+[Read on Telegram](https://t.me/livelawindia/125095)
 
 ---
