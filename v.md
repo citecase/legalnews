@@ -1,6 +1,70 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-22T15:02:46+00:00*
+*Last Updated: 2026-11-23T08:02:44+00:00*
+
+---
+
+### 2026-11-23T08:02:44+00:00
+Dates Of Waqf’s Registration & Issuance Of Certificate Do Not Establish When It Was Created: Allahabad High Court Dismisses State’s Review Petition
+https://www.verdictum.in/allahabad-high-court/state-of-up-through-collector-faizabad-and-another-v-shrimati-afsar-jahan-and-others-2026ahc-lko81973-1626279
+
+[Source Link](https://t.me/verdictumlegalupdates/30398)
+
+---
+
+### 2026-11-23T07:32:24+00:00
+Supreme Court Bars Tamil Nadu From Coercive Action Against SASTRA University Over 31 Acres Of Government Land
+https://www.verdictum.in/supreme-court/bars-tamil-nadu-coercive-action-sastra-university-government-land-1626278
+
+[Source Link](https://t.me/verdictumlegalupdates/30397)
+
+---
+
+### 2026-11-23T07:02:23+00:00
+CJI Surya Kant Recuses Himself From Hearing Plea Related To Supertech Projects
+https://www.verdictum.in/supreme-court/cji-surya-kant-recuses-himself-hearing-plea-related-supertech-projects-1626277
+
+[Source Link](https://t.me/verdictumlegalupdates/30396)
+
+---
+
+### 2026-11-23T06:32:42+00:00
+Senior Citizen Can’t Be Compelled To Share His Own House With His Children Against His Wishes: Delhi High Court
+https://www.verdictum.in/delhi-high-court/subhash-chander-malhotra-v-raman-malhotra-2026dhc10342-senior-citizen-share-house-1626269
+
+[Source Link](https://t.me/verdictumlegalupdates/30395)
+
+---
+
+### 2026-11-23T06:03:01+00:00
+Tamil Nadu Seeks Review Of Supreme Court’s Interim Order Permitting Karthigai Deepam At Thirupparankundram
+https://www.verdictum.in/supreme-court/tamil-nadu-seeks-review-order-permitting-karthigai-deepam-thirupparankundram-deepathoon-nov-24-1626270
+
+[Source Link](https://t.me/verdictumlegalupdates/30394)
+
+---
+
+### 2026-11-23T05:32:40+00:00
+Once Strong & Eminent Need Is Established, Child’s Right To Know Parentage Through DNA Test Cannot Be Denied: Delhi High Court
+https://www.verdictum.in/delhi-high-court/v-v-ss-2026dhc10283-db-dna-test-of-alleged-father-right-to-privacy-1626265
+
+[Source Link](https://t.me/verdictumlegalupdates/30393)
+
+---
+
+### 2026-11-23T05:02:39+00:00
+Father Or Sisters Cannot Be Considered As Dependent On Earnings Of Deceased Bachelor: Himachal Pradesh High Court Modifies MACT Award
+https://www.verdictum.in/himachal-high-court/om-parkash-v-anita-2026hhc49849-mother-father-sisters-dependent-deceased-motor-accident-1626261
+
+[Source Link](https://t.me/verdictumlegalupdates/30392)
+
+---
+
+### 2026-11-23T04:32:29+00:00
+Delay Not Intended To Secure Undue Advantage: SC Condones Delay While Saying Internal Administrative Procedures Alone Are No Justification
+https://www.verdictum.in/supreme-court/delhi-development-authority-v-sudarshan-manjhi-2026-insc-1254-delay-condonation-1626206
+
+[Source Link](https://t.me/verdictumlegalupdates/30391)
 
 ---
 
@@ -97,70 +161,6 @@ https://www.verdictum.in/supreme-court/mutawalli-whose-term-expired-continue-waq
 https://www.verdictum.in/allahabad-high-court/pranay-aneja-v-state-of-up-2026ahc236800-db-gangchart-fir-saharanpur-liquor-case-1626188
 
 [Source Link](https://t.me/verdictumlegalupdates/30379)
-
----
-
-### 2026-11-21T13:13:00+00:00
-Commissioners Must Call For At Least One Independent Witness To Prove Employer-Employee Relationship Between Close Relatives: Bombay High Court
-https://www.verdictum.in/bombay-high-court/hdfc-ergo-general-insurance-co-ltd-v-pallavi-arjun-dalvi-2026bhc-aug55238-employer-employee-relationship-between-close-relatives-1626187
-
-[Source Link](https://t.me/verdictumlegalupdates/30378)
-
----
-
-### 2026-11-21T12:32:39+00:00
-Multiple Correct Answers To MCQ Warrant Exclusion Or Equal Marks: Allahabad High Court Directs Revision Of UPTET Results
-https://www.verdictum.in/allahabad-high-court/up-education-service-selection-commissioner-2026ahc235265-db-multiple-correct-answers-1626193
-
-[Source Link](https://t.me/verdictumlegalupdates/30377)
-
----
-
-### 2026-11-21T11:53:18+00:00
-Supreme Court Directs Delhi Govt To Recall Gender-Specific Vacancy Notices To Accommodate Transgender Persons
-https://www.verdictum.in/supreme-court/delhi-govt-recall-gender-vacancy-notices-re-advertise-gender-neutral-1626185
-
-[Source Link](https://t.me/verdictumlegalupdates/30376)
-
----
-
-### 2026-11-21T11:12:57+00:00
-Cauvery Water Release Monitoring Entrusted To CWMA & CWRC: Supreme Court Dismisses Applications By State Of Tamil Nadu & DMK
-https://www.verdictum.in/supreme-court/state-of-tamil-nadu-v-state-of-karnataka-and-others-2026-insc-1257-cauvery-water-dispute-1626184
-
-[Source Link](https://t.me/verdictumlegalupdates/30375)
-
----
-
-### 2026-11-21T10:32:37+00:00
-Courts Must Examine Each Head While Enhancing Motor Accident Compensation; Composite Increase Without Basis Is ‘Guesswork’: Supreme Court
-https://www.verdictum.in/supreme-court/mohammad-sabir-v-ramesh-prasad-and-others-2026-insc-1255-motor-accident-compensation-1626182
-
-[Source Link](https://t.me/verdictumlegalupdates/30374)
-
----
-
-### 2026-11-21T09:52:36+00:00
-Supreme Court To Examine If “Pay And Recover” Applies When Policy Was Cancelled Before Accident
-https://www.verdictum.in/supreme-court/examine-pay-and-recover-applies-policy-cancelled-before-accident-1626181
-
-[Source Link](https://t.me/verdictumlegalupdates/30373)
-
----
-
-### 2026-11-21T09:12:45+00:00
-IBC Moratorium Operates Only Against Corporate Debtor, Not Its Promoters: Supreme Court
-https://www.verdictum.in/supreme-court/ibc-moratorium-operates-against-corporate-debtor-not-promoters-1626179
-
-[Source Link](https://t.me/verdictumlegalupdates/30372)
-
----
-
-### 2026-11-21T08:32:20+00:00
-Continuous Residency Is A Sine Qua Non To Prove Citizenship, Scattered Voters’ Lists Cannot Establish Lineage: Gauhati High Court
-https://www.verdictum.in/guwahati-high-court/jaygun-nessa-joygun-nessa-joygon-nessa-v-the-union-of-india-wpc-59852023-voters-lists-left-her-lineage-1626177
-
-[Source Link](https://t.me/verdictumlegalupdates/30371)
 
 ---
 
