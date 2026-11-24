@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-24T06:22:46+00:00*
+*Last Updated: 2026-11-24T10:42:08+00:00*
 
 ---
 
-### 2026-11-24T06:22:46+00:00
-Earlier Counsel's Negligence In Conducting Case Can Justify Condoning Delay In Seeking Restoration Of Suit: Gauhati High Court
-https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-article227-jurisdiction-invoked-remedy-available-under-cpc-559711
+### 2026-11-24T10:42:08+00:00
+Author Ravi Hanjagimutt Moves Karnataka High Court To Quash FIR Over Allegedly Derogatory Remarks Against Basavanna In Book
+https://www.livelaw.in/high-court/karnataka-high-court/kannada-author-ravi-hanjagimutt-case-registered-objectionable-remarks-basavanna-559788
 
-[Read on Telegram](https://t.me/livelawindia/125231)
-
----
-### 2026-11-24T06:26:26+00:00
-Thiruaprankundam Kartigai Deepam : Live Updates From Madras High Court
-https://www.livelaw.in/top-stories/thiruaprankundam-kartigai-deepam-live-updates-from-madras-high-court-559747
-
-[Read on Telegram](https://t.me/livelawindia/125232)
+[Read on Telegram](https://t.me/livelawindia/125259)
 
 ---
-### 2026-11-24T06:29:17+00:00
-Thiruparankundram Deepam Row: Madras High Court Agrees To Urgently Hear Pleas Against Prohibitory Orders In Madurai
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-thiruparankundram-urgent-plea-prohibitory-order-madurai-559748
+### 2026-11-24T10:51:48+00:00
+3rd GAJE-NLUO Mediation And Negotiation Conclave 2027 To Focus On Community Mediation And Restorative Justice
+https://www.livelaw.in/lawschool/call-for-papers/3rd-gaje-nluo-mediation-and-negotiation-conclave-559792
 
-[Read on Telegram](https://t.me/livelawindia/125233)
-
----
-### 2026-11-24T06:32:57+00:00
-POSH Act | Cross-Examination Not An Absolute Right But Accused Must Be Given Fair Opportunity To Rebut Evidence: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/posh-act-cross-examination-not-an-absolute-right-but-accused-must-be-given-fair-opportunity-to-rebut-evidence-delhi-high-court-559721
-
-[Read on Telegram](https://t.me/livelawindia/125234)
+[Read on Telegram](https://t.me/livelawindia/125260)
 
 ---
-### 2026-11-24T06:38:17+00:00
-2026 LiveLaw (SC) 1195 | SAU. RUPALI INDRABHUSHAN SONDE @ KU. RUPALI SHARADRAO BADHIYE v. THE STATE OF MAHARASHTRA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1195-sau-rupali-indrabhushan-sonde-ku-rupali-sharadrao-badhiye-v-the-state-of-maharashtra-559750
+### 2026-11-24T10:52:28+00:00
+Sabarimala Clothes Dumping: Kerala High Court Approves Spot Fines Up To ₹5,000 For Polluting Pampa River
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sabarimala-clothes-dumping-spot-fines-polluting-pampa-river-559790
 
-[Read on Telegram](https://t.me/livelawindia/125235)
-
----
-### 2026-11-24T06:40:37+00:00
-2026 LiveLaw (SC) 1196 | SARIKA TYAGI v. UNION OF INDIA
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1196-sarika-tyagi-v-union-of-india-559751
-
-[Read on Telegram](https://t.me/livelawindia/125236)
+[Read on Telegram](https://t.me/livelawindia/125261)
 
 ---
-### 2026-11-24T06:47:57+00:00
-Pending Departmental Enquiry Doesn't Bar Compulsory Retirement Of Judicial Officer Based On Overall Service Record: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-pending-departmental-enquiry-bar-compulsory-retirement-judicial-officer-559722
+### 2026-11-24T11:02:28+00:00
+Father's Desire For Better Education Not Enough To Change Child's School Without Showing Institutional Deficiency: Karnataka High Court
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-father-desire-perceived-better-school-showing-deficiency-current-school-559791
 
-[Read on Telegram](https://t.me/livelawindia/125237)
-
----
-### 2026-11-24T07:02:17+00:00
-JJ Act Amendment Mandating Trial By Children's Courts Has Retrospective Effect: Delhi High Court
-https://www.livelaw.in/high-court/delhi-high-court/jj-act-amendment-mandating-trial-by-childrens-courts-has-retrospective-effect-delhi-high-court-559723
-
-[Read on Telegram](https://t.me/livelawindia/125238)
+[Read on Telegram](https://t.me/livelawindia/125262)
 
 ---
-### 2026-11-24T07:12:37+00:00
-'Posting Senior IAS Officer As Joint Secretary While Junior-Batch Officers Serve As Additional Secretaries Is Arbitrary': Jharkhand High Court
-https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-senior-ias-officer-joint-secretary-arbitrary-559736
+### 2026-11-24T11:12:38+00:00
+Charge Sheet Cannot Be Quashed Based On Affidavit By Complainant After S.164-A CrPC Statement Is Recorded: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/charge-sheet-cannot-be-quashed-on-basis-of-affidavit-sworn-by-complainant-during-investigation-once-statement-under-section-164-a-crpc-is-recorded-jk-high-court-559742
 
-[Read on Telegram](https://t.me/livelawindia/125239)
-
----
-### 2026-11-24T07:23:27+00:00
-MP High Court Summons Director Of Kanha Tiger Reserve; Notes Lack Of Cooperation From State Authorities
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-notes-lack-of-cooperation-from-state-in-tiger-deaths-at-kanha-national-park-559737
-
-[Read on Telegram](https://t.me/livelawindia/125240)
+[Read on Telegram](https://t.me/livelawindia/125263)
 
 ---
-### 2026-11-24T07:31:47+00:00
-Police Cannot Compel Accused To Produce Mobile Phone Or Other Things Which May Incriminate Him: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-self-incriminate-section-94-bnss-mobile-phone-produce-559756
+### 2026-11-24T11:20:58+00:00
+Thiruparankundram Karthigai Deepam | Implement SC Order, Review Pendency No Ground For Non-Compliance : Madras High Court To Authorities
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-thiruparankundram-deepam-row-lighting-lamp-559801
 
-[Read on Telegram](https://t.me/livelawindia/125241)
-
----
-### 2026-11-24T07:32:47+00:00
-Citing Fabricated Judgments May Be Professional Misconduct, But Won't Invalidate An Otherwise Sound Order: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-fake-judgments-professional-misconduct-559757
-
-[Read on Telegram](https://t.me/livelawindia/125242)
+[Read on Telegram](https://t.me/livelawindia/125264)
 
 ---
-### 2026-11-24T07:32:57+00:00
-P&H High Court Imposes ₹1 Lakh Costs On Man Pursuing Compassionate Appointment 31 Years After Father's Death
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-imposes-1-lakh-costs-on-51-year-old-who-sought-asi-post-31-years-after-fathers-death-559749
+### 2026-11-24T11:22:58+00:00
+'Chargesheet Without Head & Tail': Karnataka High Court Quashes Case Against Man For Allegedly Circulating Photo Of Calf Without Tail
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashing-case-registered-accused-circulating-photograph-559793
 
-[Read on Telegram](https://t.me/livelawindia/125243)
-
----
-### 2026-11-24T07:42:47+00:00
-Heinous And Pre-Planned Offences Are Often Committed In Secrecy; Circumstantial Evidence Cannot Be Brushed Aside For Want Of Ocular Evidence: J&K High Court
-https://www.livelaw.in/high-court/jammu-kashmir/heinous-and-pre-planned-offences-are-often-committed-in-secrecy-circumstantial-evidence-cannot-be-brushed-aside-for-want-of-ocular-evidence-jk-high-court-559754
-
-[Read on Telegram](https://t.me/livelawindia/125244)
+[Read on Telegram](https://t.me/livelawindia/125265)
 
 ---
-### 2026-11-24T07:47:47+00:00
-Recruiting Authority Can't Introduce New Eligibility Conditions Under Guise Of Prescribing Higher Shortlisting Criteria: P&H High Court
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-faults-nit-for-excluding-assistant-professor-over-papers-outside-phd-work-559752
+### 2026-11-24T11:37:38+00:00
+'Officer Cannot Seek Reconsideration Of Voluntary Retirement After Disciplinary Proceedings Result In Punishment': Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-officer-seek-reconsideration-voluntary-retirement-application-559744
 
-[Read on Telegram](https://t.me/livelawindia/125245)
-
----
-### 2026-11-24T08:07:37+00:00
-Failure To Decide Building Permission Within 60 Days Does Not Automatically Authorise Construction If NOC Withheld: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/failure-to-decide-building-permission-application-within-60-days-does-not-automatically-authorise-construction-if-development-authority-withholds-noc-jk-high-court-559738
-
-[Read on Telegram](https://t.me/livelawindia/125246)
+[Read on Telegram](https://t.me/livelawindia/125266)
 
 ---
-### 2026-11-24T08:32:37+00:00
-Holding Minor's Hand With Sexual Intent Constitutes Sexual Assault Under POCSO Act: MP High Court
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-section-7-pocso-act-holding-hand-of-minor-with-sexual-intent-is-sexual-assault-559764
+### 2026-11-24T11:41:18+00:00
+Kerala High Court Refuses To Stay Waqf Board Reconstitution, Notes Newly Constituted Board Has Already Assumed Office
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-state-waqf-board-reconstitution-559808
 
-[Read on Telegram](https://t.me/livelawindia/125247)
-
----
-### 2026-11-24T08:33:37+00:00
-Thiruparankundram Deepam Row: Madras High Court Asks State To Reconsider Prohibitory Orders In Madurai, Cites Devotees' Article 25 Rights
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-thiruparankundram-deepam-row-559767
-
-[Read on Telegram](https://t.me/livelawindia/125248)
+[Read on Telegram](https://t.me/livelawindia/125267)
 
 ---
-### 2026-11-24T08:52:47+00:00
-MP High Court Grants State Leave To Appeal Against Acquittals In Wildlife Smuggling Case, Allows CBI As Intervenor
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-allows-state-to-appeal-against-acquittal-in-wildlife-smuggling-case-559753
+### 2026-11-24T12:17:28+00:00
+Bombay High Court Allows Renowned Shooter To Acquire Six Sporting Firearms Despite Pending Criminal Case
+https://www.livelaw.in/high-court/bombay-high-court/bombay-hc-allows-renowned-shooter-add-six-sporting-arms-559745
 
-[Read on Telegram](https://t.me/livelawindia/125249)
+[Read on Telegram](https://t.me/livelawindia/125268)
 
 ---
-### 2026-11-24T09:12:27+00:00
-Awarding Government Contract Without Inviting Tenders Can Amount To Criminal Misconduct: J&K&L High Court
-https://www.livelaw.in/high-court/jammu-kashmir/awarding-government-contract-without-inviting-tenders-can-amount-to-criminal-misconduct-jk-high-court-refuses-to-quash-charges-against-former-jda-officials-559735
+### 2026-11-24T13:07:38+00:00
+Government Can't Deny Promotion Arrears Merely Because PWD Employee Initially Held Post On In-Charge Basis: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/in-charge-promotion-cannot-be-denied-regularisation-where-employee-fulfilled-eligibility-under-recruitment-rules-jk-high-court-upholds-tribunal-order-granting-retrospective-benefits-559746
 
-[Read on Telegram](https://t.me/livelawindia/125250)
+[Read on Telegram](https://t.me/livelawindia/125269)
+
+---
+### 2026-11-24T13:20:58+00:00
+GNLU Student Law Review Invites Submissions For Volume VIII; Last Date January 4, 2027
+https://www.livelaw.in/lawschool/call-for-papers/gnlu-student-law-review-invites-submissions-for-volume-viii-last-date-january-4-2027-559815
+
+[Read on Telegram](https://t.me/livelawindia/125270)
+
+---
+### 2026-11-24T14:18:18+00:00
+'Direction To Reconsider Rejected Mutation Application Without Challenging Rejection Order Amounts To Usurping Statute': Patna High Court
+https://www.livelaw.in/high-court/patna-high-court/patna-high-court-direction-reconsider-rejected-mutation-application-without-challenging-rejection-order-559743
+
+[Read on Telegram](https://t.me/livelawindia/125271)
+
+---
+### 2026-11-24T14:32:18+00:00
+Three Phases, One Law: Why Maternity Benefit Must Extend To Menstrual And Menopause Leave
+https://www.livelaw.in/articles/maternity-benefit-extend-menstrual-menopause-leave-559717
+
+[Read on Telegram](https://t.me/livelawindia/125272)
+
+---
+### 2026-11-24T15:58:39+00:00
+Indian Student In Russia Joins Russian Army; Supreme Court Seeks Centre's Response On Father's Plea For His Return
+https://www.livelaw.in/top-stories/supreme-court-indian-father-plea-regarding-son-stuck-in-russia-citizenship-intervention-on-humanitarian-grounds-559823
+
+[Read on Telegram](https://t.me/livelawindia/125273)
+
+---
+### 2026-11-24T15:59:59+00:00
+Sree Sankaracharya University Moves Appeal Before Kerala High Court Against Setting Aside Of Enquiry Report Against 16 Students
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-sree-sankaracharya-university-kalady-appeal-559824
+
+[Read on Telegram](https://t.me/livelawindia/125274)
+
+---
+### 2026-11-24T16:05:59+00:00
+Karnataka High Court Quashes Ballot Tampering Case Against BJP Leader DN Jeevaraja
+https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-quashes-case-against-bjp-leader-elections-officials-559825
+
+[Read on Telegram](https://t.me/livelawindia/125275)
+
+---
+### 2026-11-24T16:06:39+00:00
+Telangana High Court Directs Takedown Of Defamatory Online Content Against YSR Congress Leader Botcha Anusha
+https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-directs-takedown-defamatory-content-ysrcp-leader-botcha-anusha-559826
+
+[Read on Telegram](https://t.me/livelawindia/125276)
+
+---
+### 2026-11-24T16:37:29+00:00
+Supreme Court Collegium Recommends Justice Vibhu Bakhru As Jharkhand HC Chief Justice, Justice Ramachandra Rao For Karnataka HC
+https://www.livelaw.in/top-stories/supreme-court-collegium-recommends-justice-vibhu-bakhru-as-jharkhand-hc-chief-justice-justice-ramachandra-rao-for-karnataka-hc-559829
+
+[Read on Telegram](https://t.me/livelawindia/125277)
+
+---
+### 2026-11-24T17:18:00+00:00
+Madras High Court Gags Media From Publishing Details of Sexual Harassment Case Against Kallakurichi MLA
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-kallakurichi-mla-media-gag-order-restrain-publishing-details-559830
+
+[Read on Telegram](https://t.me/livelawindia/125278)
 
 ---
