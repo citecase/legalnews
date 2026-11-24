@@ -1,147 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-23T11:22:58+00:00*
+*Last Updated: 2026-11-24T06:22:46+00:00*
 
 ---
 
-### 2026-11-23T11:22:58+00:00
-Madras High Court Quashes FIR Over Critical Remarks Against CM Vijay For Giving Govt Jobs To Karur Tragedy Victims
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-man-posting-video-criticising-karur-stampede-government-job-case-quashed-559638
+### 2026-11-24T06:22:46+00:00
+Earlier Counsel's Negligence In Conducting Case Can Justify Condoning Delay In Seeking Restoration Of Suit: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-article227-jurisdiction-invoked-remedy-available-under-cpc-559711
 
-[Read on Telegram](https://t.me/livelawindia/125180)
-
----
-### 2026-11-23T11:23:58+00:00
-Disturbed By Flagrant Building Rule Violations Across Country : Supreme Court Seeks Suggestions From States/UTs
-https://www.livelaw.in/top-stories/disturbed-by-flagrant-building-rule-violations-across-country-supreme-court-seeks-suggestions-from-statesuts-559640
-
-[Read on Telegram](https://t.me/livelawindia/125181)
+[Read on Telegram](https://t.me/livelawindia/125231)
 
 ---
-### 2026-11-23T11:32:38+00:00
-Confirmed Property Auction Can't Be Reopened On Belated Objections Alleging Procedural Irregularities: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-commissioner-reopen-auction-sale-confirmed-land-revenue-act-559562
+### 2026-11-24T06:26:26+00:00
+Thiruaprankundam Kartigai Deepam : Live Updates From Madras High Court
+https://www.livelaw.in/top-stories/thiruaprankundam-kartigai-deepam-live-updates-from-madras-high-court-559747
 
-[Read on Telegram](https://t.me/livelawindia/125182)
-
----
-### 2026-11-23T12:02:38+00:00
-Woman's Marital History Alone Can't Be Ground To Disbelieve Cruelty Allegations: Karnataka High Court
-https://www.livelaw.in/high-court/karnataka-high-court/karnataka-high-court-marriage-history-ground-disbelieve-criminal-allegation-559649
-
-[Read on Telegram](https://t.me/livelawindia/125183)
+[Read on Telegram](https://t.me/livelawindia/125232)
 
 ---
-### 2026-11-23T12:32:28+00:00
-PG Accommodation More In Nature Of Licence Than Lease, Delhi Rent Control Act Not Applicable: High Court
-https://www.livelaw.in/high-court/delhi-high-court/pg-accommodation-more-in-nature-of-licence-than-lease-delhi-rent-control-act-not-applicable-high-court-559540
+### 2026-11-24T06:29:17+00:00
+Thiruparankundram Deepam Row: Madras High Court Agrees To Urgently Hear Pleas Against Prohibitory Orders In Madurai
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-thiruparankundram-urgent-plea-prohibitory-order-madurai-559748
 
-[Read on Telegram](https://t.me/livelawindia/125184)
-
----
-### 2026-11-23T12:46:08+00:00
-Qadeemi Masjid Can't Be Demolished For Central Vista Project Without Considering Waqf Status: Delhi Waqf Board Tells High Court
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-qadeemi-masjid-demolished-central-vista-redevelopment-559661
-
-[Read on Telegram](https://t.me/livelawindia/125185)
+[Read on Telegram](https://t.me/livelawindia/125233)
 
 ---
-### 2026-11-23T13:07:19+00:00
-Jammu & Kashmir And Ladakh High Court Weekly Roundup
-November 16 – November 22, 2026
-https://www.livelaw.in/high-court/jammu-kashmir/jammu-kashmir-and-ladakh-high-court-weekly-roundupnovember-16-november-22-2026-559581
+### 2026-11-24T06:32:57+00:00
+POSH Act | Cross-Examination Not An Absolute Right But Accused Must Be Given Fair Opportunity To Rebut Evidence: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/posh-act-cross-examination-not-an-absolute-right-but-accused-must-be-given-fair-opportunity-to-rebut-evidence-delhi-high-court-559721
 
-[Read on Telegram](https://t.me/livelawindia/125186)
-
----
-### 2026-11-23T13:17:59+00:00
-Petitioners Urge Supreme Court To Clarify SIR Deletion Won't Lead To Denial Of State Welfare Benefits
-https://www.livelaw.in/top-stories/supreme-court-west-bengal-plea-against-deprivation-of-sir-deleted-voters-from-welfare-pds-benefits-notice-aggrieved-person-may-approach-hc-559671
-
-[Read on Telegram](https://t.me/livelawindia/125187)
+[Read on Telegram](https://t.me/livelawindia/125234)
 
 ---
-### 2026-11-23T13:24:59+00:00
-Supreme Court Appoints Justice Sanjay Karol-Led Committee To Resolve Okhla Enclave Plot Claims
-https://www.livelaw.in/supreme-court/supreme-court-appoints-justice-sanjay-karol-led-committee-to-resolve-okhla-enclave-plot-claims-559672
+### 2026-11-24T06:38:17+00:00
+2026 LiveLaw (SC) 1195 | SAU. RUPALI INDRABHUSHAN SONDE @ KU. RUPALI SHARADRAO BADHIYE v. THE STATE OF MAHARASHTRA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1195-sau-rupali-indrabhushan-sonde-ku-rupali-sharadrao-badhiye-v-the-state-of-maharashtra-559750
 
-[Read on Telegram](https://t.me/livelawindia/125188)
-
----
-### 2026-11-23T13:26:19+00:00
-2026 LiveLaw (SC )1189 | OKHLA ENCLAVE PLOT HOLDERS WELFARE ASSOCIATION VERSUS UNION OF INDIA AND OTHERS
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1189-okhla-enclave-plot-holders-welfare-association-versus-union-of-india-and-others-559673
-
-[Read on Telegram](https://t.me/livelawindia/125189)
+[Read on Telegram](https://t.me/livelawindia/125235)
 
 ---
-### 2026-11-23T13:32:19+00:00
-Mere Illness Of Person Executing Sale Agreement Doesn't Establish Mental Incapacity: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-mere-illness-executant-registered-agreement-proving-fraud-onto-purchaser-559564
+### 2026-11-24T06:40:37+00:00
+2026 LiveLaw (SC) 1196 | SARIKA TYAGI v. UNION OF INDIA
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1196-sarika-tyagi-v-union-of-india-559751
 
-[Read on Telegram](https://t.me/livelawindia/125190)
-
----
-### 2026-11-23T13:54:49+00:00
-Lack Of Capacity To Pay Dowry By Itself Won't Discredit Dowry Harassment Allegations : Supreme Court
-https://www.livelaw.in/supreme-court/lack-of-capacity-to-pay-dowry-by-itself-wont-discredit-dowry-harassment-allegations-supreme-court-559676
-
-[Read on Telegram](https://t.me/livelawindia/125191)
+[Read on Telegram](https://t.me/livelawindia/125236)
 
 ---
-### 2026-11-23T13:55:49+00:00
-2026 LiveLaw (SC) 1190 | NEERAJ KUMAR VERSUS SURAJ PRAKASH & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1190-neeraj-kumar-versus-suraj-prakash-ors-559677
+### 2026-11-24T06:47:57+00:00
+Pending Departmental Enquiry Doesn't Bar Compulsory Retirement Of Judicial Officer Based On Overall Service Record: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-pending-departmental-enquiry-bar-compulsory-retirement-judicial-officer-559722
 
-[Read on Telegram](https://t.me/livelawindia/125192)
-
----
-### 2026-11-23T14:32:39+00:00
-Highest-Ranked Bidder Has No Vested Right To Govt Contract, Only Entitled To Fair Treatment: Allahabad High Court
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-highest-bidder-rights-equality-bid-unenforceable-formal-contract-559584
-
-[Read on Telegram](https://t.me/livelawindia/125193)
+[Read on Telegram](https://t.me/livelawindia/125237)
 
 ---
-### 2026-11-23T14:32:59+00:00
-Remand Court Must Now Ask One More Question
-https://www.livelaw.in/articles/remand-court-must-now-ask-one-more-question-559625
+### 2026-11-24T07:02:17+00:00
+JJ Act Amendment Mandating Trial By Children's Courts Has Retrospective Effect: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/jj-act-amendment-mandating-trial-by-childrens-courts-has-retrospective-effect-delhi-high-court-559723
 
-[Read on Telegram](https://t.me/livelawindia/125194)
-
----
-### 2026-11-23T15:03:59+00:00
-LiveLaw Delhi High Court Weekly Round-Up: November 16 To November 22, 2026
-https://www.livelaw.in/high-court/delhi-high-court/livelaw-delhi-high-court-weekly-round-up-november-16-to-november-22-2026-559679
-
-[Read on Telegram](https://t.me/livelawindia/125195)
+[Read on Telegram](https://t.me/livelawindia/125238)
 
 ---
-### 2026-11-23T15:15:29+00:00
-LiveLaw Daily | Phone Number Row Over Officer On Duty | Godhra Case | West Bengal SIR & More
-https://www.livelaw.in/podcast/supreme-court-cji-surya-kant-news-india-allahabad-high-court-dhruv-rathee-clat-judiciary-upsc-559680
+### 2026-11-24T07:12:37+00:00
+'Posting Senior IAS Officer As Joint Secretary While Junior-Batch Officers Serve As Additional Secretaries Is Arbitrary': Jharkhand High Court
+https://www.livelaw.in/high-court/jharkhand-high-court/jharkhand-high-court-senior-ias-officer-joint-secretary-arbitrary-559736
 
-[Read on Telegram](https://t.me/livelawindia/125196)
-
----
-### 2026-11-23T16:21:20+00:00
-CJI-led Bench Of Supreme Court To Hear Umar Khalid, Sharjeel Imam Bail Pleas On Nov 25
-https://www.livelaw.in/top-stories/cji-led-bench-of-supreme-court-to-hear-umar-khalid-sharjeel-imam-bail-pleas-on-nov-25-559687
-
-[Read on Telegram](https://t.me/livelawindia/125197)
+[Read on Telegram](https://t.me/livelawindia/125239)
 
 ---
-### 2026-11-23T16:31:00+00:00
-Saharanpur Mosque Demolition: Supreme Court Rejects Plea Alleging Contempt Of 2024 Bulldozer Judgment; Tells Petitioner To Approach HC
-https://www.livelaw.in/top-stories/supreme-court-saharanpur-mosque-demolition-contempt-bulldozer-judgment-plea-rejected-petitioner-to-approach-high-court-559688
+### 2026-11-24T07:23:27+00:00
+MP High Court Summons Director Of Kanha Tiger Reserve; Notes Lack Of Cooperation From State Authorities
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-notes-lack-of-cooperation-from-state-in-tiger-deaths-at-kanha-national-park-559737
 
-[Read on Telegram](https://t.me/livelawindia/125198)
+[Read on Telegram](https://t.me/livelawindia/125240)
 
 ---
-### 2026-11-23T19:19:21+00:00
-LiveLaw High Courts Daily Highlights: November 23, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-23-2026-559693
+### 2026-11-24T07:31:47+00:00
+Police Cannot Compel Accused To Produce Mobile Phone Or Other Things Which May Incriminate Him: Kerala High Court
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-self-incriminate-section-94-bnss-mobile-phone-produce-559756
 
-[Read on Telegram](https://t.me/livelawindia/125199)
+[Read on Telegram](https://t.me/livelawindia/125241)
+
+---
+### 2026-11-24T07:32:47+00:00
+Citing Fabricated Judgments May Be Professional Misconduct, But Won't Invalidate An Otherwise Sound Order: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-fake-judgments-professional-misconduct-559757
+
+[Read on Telegram](https://t.me/livelawindia/125242)
+
+---
+### 2026-11-24T07:32:57+00:00
+P&H High Court Imposes ₹1 Lakh Costs On Man Pursuing Compassionate Appointment 31 Years After Father's Death
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-imposes-1-lakh-costs-on-51-year-old-who-sought-asi-post-31-years-after-fathers-death-559749
+
+[Read on Telegram](https://t.me/livelawindia/125243)
+
+---
+### 2026-11-24T07:42:47+00:00
+Heinous And Pre-Planned Offences Are Often Committed In Secrecy; Circumstantial Evidence Cannot Be Brushed Aside For Want Of Ocular Evidence: J&K High Court
+https://www.livelaw.in/high-court/jammu-kashmir/heinous-and-pre-planned-offences-are-often-committed-in-secrecy-circumstantial-evidence-cannot-be-brushed-aside-for-want-of-ocular-evidence-jk-high-court-559754
+
+[Read on Telegram](https://t.me/livelawindia/125244)
+
+---
+### 2026-11-24T07:47:47+00:00
+Recruiting Authority Can't Introduce New Eligibility Conditions Under Guise Of Prescribing Higher Shortlisting Criteria: P&H High Court
+https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-faults-nit-for-excluding-assistant-professor-over-papers-outside-phd-work-559752
+
+[Read on Telegram](https://t.me/livelawindia/125245)
+
+---
+### 2026-11-24T08:07:37+00:00
+Failure To Decide Building Permission Within 60 Days Does Not Automatically Authorise Construction If NOC Withheld: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/failure-to-decide-building-permission-application-within-60-days-does-not-automatically-authorise-construction-if-development-authority-withholds-noc-jk-high-court-559738
+
+[Read on Telegram](https://t.me/livelawindia/125246)
+
+---
+### 2026-11-24T08:32:37+00:00
+Holding Minor's Hand With Sexual Intent Constitutes Sexual Assault Under POCSO Act: MP High Court
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-section-7-pocso-act-holding-hand-of-minor-with-sexual-intent-is-sexual-assault-559764
+
+[Read on Telegram](https://t.me/livelawindia/125247)
+
+---
+### 2026-11-24T08:33:37+00:00
+Thiruparankundram Deepam Row: Madras High Court Asks State To Reconsider Prohibitory Orders In Madurai, Cites Devotees' Article 25 Rights
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-thiruparankundram-deepam-row-559767
+
+[Read on Telegram](https://t.me/livelawindia/125248)
+
+---
+### 2026-11-24T08:52:47+00:00
+MP High Court Grants State Leave To Appeal Against Acquittals In Wildlife Smuggling Case, Allows CBI As Intervenor
+https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-allows-state-to-appeal-against-acquittal-in-wildlife-smuggling-case-559753
+
+[Read on Telegram](https://t.me/livelawindia/125249)
+
+---
+### 2026-11-24T09:12:27+00:00
+Awarding Government Contract Without Inviting Tenders Can Amount To Criminal Misconduct: J&K&L High Court
+https://www.livelaw.in/high-court/jammu-kashmir/awarding-government-contract-without-inviting-tenders-can-amount-to-criminal-misconduct-jk-high-court-refuses-to-quash-charges-against-former-jda-officials-559735
+
+[Read on Telegram](https://t.me/livelawindia/125250)
 
 ---
