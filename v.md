@@ -1,6 +1,102 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-23T16:02:58+00:00*
+*Last Updated: 2026-11-24T10:02:35+00:00*
+
+---
+
+### 2026-11-24T10:02:35+00:00
+Highest Bidder Has No Vested Right To Conclusion Of Contract Before Formal Acceptance: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/ms-shiv-anant-enterprises-v-state-of-up-and-3-others-2026ahc237675-db-1626364
+
+[Source Link](https://t.me/verdictumlegalupdates/30425)
+
+---
+
+### 2026-11-24T09:29:54+00:00
+Thiruparankundram Deepam: Can't Overreach Supreme Court, But Entitled To Direct Authorities To Obey Its Order: Madras High Court
+https://www.verdictum.in/madras-high-court/thiruparankundram-deepam-overreach-supreme-court-orders-entitled-direct-authorities-obey-order-1626365
+
+[Source Link](https://t.me/verdictumlegalupdates/30424)
+
+---
+
+### 2026-11-24T09:02:53+00:00
+Subsequent Arrangements Made By Landlord To Secure Alternative Accommodation Can't Be Construed As Extinguishing Original Bonafide Requirement: Supreme Court
+https://www.verdictum.in/supreme-court/ms-pm-shah-v-asmit-vijay-vedak-2026-insc-1261-arrangements-landlord-accommodation-1626363
+
+[Source Link](https://t.me/verdictumlegalupdates/30423)
+
+---
+
+### 2026-11-24T08:32:52+00:00
+Substantive Proof Regarding Execution Of Document Overrides Expert Opinion Regarding Handwriting In Determining Document’s Genuineness: Supreme Court
+https://www.verdictum.in/supreme-court/babita-chopra-v-state-gnct-of-delhi-2026-insc-1258-executiondocument-expert-opinion-1626361
+
+[Source Link](https://t.me/verdictumlegalupdates/30422)
+
+---
+
+### 2026-11-24T08:02:51+00:00
+Meta Not A Government Agency; Only Contractual Duties Enforceable: Bombay High Court Refuses Plea To Restore Blink Digital's Accounts
+https://www.verdictum.in/bombay-high-court/blink-digital-india-private-limited-v-facebook-india-online-services-private-limited-2026bhc-os24595-meta-not-a-government-agency-1626360
+
+[Source Link](https://t.me/verdictumlegalupdates/30421)
+
+---
+
+### 2026-11-24T07:33:50+00:00
+ED Need Not Separately Establish Likelihood Of Concealment For Provisional Attachment Of Crime Proceeds: Madras High Court
+https://www.verdictum.in/madras-high-court/p-rajasekaran-v-deputy-director-directorate-of-enforcement-and-others-1626357
+
+[Source Link](https://t.me/verdictumlegalupdates/30420)
+
+---
+
+### 2026-11-24T07:02:09+00:00
+Subsequent Refund Doesn't Erase Misconduct; Absence Of Financial Loss No Defence For Bank Employee: Calcutta High Court
+https://www.verdictum.in/calcutta-high-court/subsequent-refund-doesnt-erase-misconduct-financial-loss-defence-bank-employee-1626351
+
+[Source Link](https://t.me/verdictumlegalupdates/30419)
+
+---
+
+### 2026-11-24T06:33:09+00:00
+Okhla Enclave Forum Members Cannot Claim Automatic Exemption From Scrutiny: Supreme Court Appoints Justice Sanjay Karol To Head Special Committee
+https://www.verdictum.in/supreme-court/okhla-enclave-plot-holders-welfare-association-v-union-of-india-2026-insc-1259-sanjay-karol-to-head-special-committee-1626345
+
+[Source Link](https://t.me/verdictumlegalupdates/30418)
+
+---
+
+### 2026-11-24T06:08:08+00:00
+Rule That Father Should Get Child’s Custody Is Subject To Exceptions: Supreme Court Allows Mother To Continue With Sons' Custody
+https://www.verdictum.in/supreme-court/a-v-b-2026-insc-1260-rule-father-child-custody-mother-absence-welfare-relatives-1626342
+
+[Source Link](https://t.me/verdictumlegalupdates/30417)
+
+---
+
+### 2026-11-24T05:32:27+00:00
+Paying Guest Arrangement Is Closer To Concept Of License Than Lease: Delhi High Court
+https://www.verdictum.in/delhi-high-court/do-sh-sunder-lal-v-pooja-gupta-2026dhc10313-paying-guest-license-lease-suit-property-1626341
+
+[Source Link](https://t.me/verdictumlegalupdates/30416)
+
+---
+
+### 2026-11-24T05:02:26+00:00
+Ugly Scandal Has Taken Place: Madras High Court Issues Contempt Notice To IAS Officer In Book Procurement Scam Case
+https://www.verdictum.in/madras-high-court/ramasubbu-v-k-gopal-ias-and-others-public-library-book-procurement-scam-1626340
+
+[Source Link](https://t.me/verdictumlegalupdates/30415)
+
+---
+
+### 2026-11-24T04:33:15+00:00
+Karnataka High Court Refuses To Quash Criminal Case Against Doctor Accused Of Attesting Address Proof Documents Of 14 Bangladeshi Nationals
+https://www.verdictum.in/delhi-high-court/sri-bp-umashankar-v-state-by-bellandur-police-station-doctor-bangladeshi-nationals-aadhaar-1626315
+
+[Source Link](https://t.me/verdictumlegalupdates/30414)
 
 ---
 
@@ -65,102 +161,6 @@ Secondary Evidence Such As Unverified Photocopies No Basis To Institute Criminal
 https://www.verdictum.in/allahabad-high-court/gaurang-garg-v-state-of-up-2026ahc229628-secondary-evidence-unverified-photocopies-cheating-forgery-1626298
 
 [Source Link](https://t.me/verdictumlegalupdates/30406)
-
----
-
-### 2026-11-23T11:16:50+00:00
-West Bengal SIR: Supreme Court Directs Priority Disposal Of Appeals Against Voter Exclusion, Asks ECI To Increase Appellate Tribunals
-https://www.verdictum.in/supreme-court/directs-priority-disposal-appeals-against-voter-exclusion-eci-increase-appellate-tribunals-1626297
-
-[Source Link](https://t.me/verdictumlegalupdates/30405)
-
----
-
-### 2026-11-23T11:02:49+00:00
-How Can You Restrain Political Parties From Raising Their Agenda: Supreme Court
-https://www.verdictum.in/supreme-court/political-parties-raising-their-agenda-restriction-1626296
-
-[Source Link](https://t.me/verdictumlegalupdates/30404)
-
----
-
-### 2026-11-23T10:32:49+00:00
-High Threshold Required To Register FIR Over Social Media Posts: Karnataka High Court Quashes Two FIRs Over Post Against Congress Party
-https://www.verdictum.in/karnataka-high-court/kiran-r-kiran-aradhya-v-state-of-karnataka-2026khc61560-social-media-fir-1626294
-
-[Source Link](https://t.me/verdictumlegalupdates/30403)
-
----
-
-### 2026-11-23T10:03:08+00:00
-"People Waiting in Queue, Judges Thinking of Perks": Supreme Court Slams Judicial Officers Over Repeated Pleas For Perks
-https://www.verdictum.in/supreme-court/supreme-court-slams-judicial-officers-over-repeated-pleas-for-perks-1626289
-
-[Source Link](https://t.me/verdictumlegalupdates/30402)
-
----
-
-### 2026-11-23T09:33:07+00:00
-Supreme Court Seeks Response Of Centre, EC On PIL For Reforms In Anti-Defection Law
-https://www.verdictum.in/supreme-court/response-centre-ec-pil-reforms-anti-defection-law-1626287
-
-[Source Link](https://t.me/verdictumlegalupdates/30401)
-
----
-
-### 2026-11-23T09:02:26+00:00
-Godhra Train Burning Case: Supreme Court Suspends Life Sentence Of Convict On Medical Grounds
-https://www.verdictum.in/supreme-court/godhra-train-burning-suspends-life-sentence-convict-medical-grounds-1626288
-
-[Source Link](https://t.me/verdictumlegalupdates/30400)
-
----
-
-### 2026-11-23T08:32:45+00:00
-Mother’s Govt. Employment Requiring Travel Cannot, By Itself, Show She Is Unable To Look After Minor Child: Chhattisgarh High Court
-https://www.verdictum.in/chhattisgarh-high-court/dr-s-v-bb-2026cghc47331-db-custody-minor-son-under-guardians-and-wards-act-1626282
-
-[Source Link](https://t.me/verdictumlegalupdates/30399)
-
----
-
-### 2026-11-23T08:02:44+00:00
-Dates Of Waqf’s Registration & Issuance Of Certificate Do Not Establish When It Was Created: Allahabad High Court Dismisses State’s Review Petition
-https://www.verdictum.in/allahabad-high-court/state-of-up-through-collector-faizabad-and-another-v-shrimati-afsar-jahan-and-others-2026ahc-lko81973-1626279
-
-[Source Link](https://t.me/verdictumlegalupdates/30398)
-
----
-
-### 2026-11-23T07:32:24+00:00
-Supreme Court Bars Tamil Nadu From Coercive Action Against SASTRA University Over 31 Acres Of Government Land
-https://www.verdictum.in/supreme-court/bars-tamil-nadu-coercive-action-sastra-university-government-land-1626278
-
-[Source Link](https://t.me/verdictumlegalupdates/30397)
-
----
-
-### 2026-11-23T07:02:23+00:00
-CJI Surya Kant Recuses Himself From Hearing Plea Related To Supertech Projects
-https://www.verdictum.in/supreme-court/cji-surya-kant-recuses-himself-hearing-plea-related-supertech-projects-1626277
-
-[Source Link](https://t.me/verdictumlegalupdates/30396)
-
----
-
-### 2026-11-23T06:32:42+00:00
-Senior Citizen Can’t Be Compelled To Share His Own House With His Children Against His Wishes: Delhi High Court
-https://www.verdictum.in/delhi-high-court/subhash-chander-malhotra-v-raman-malhotra-2026dhc10342-senior-citizen-share-house-1626269
-
-[Source Link](https://t.me/verdictumlegalupdates/30395)
-
----
-
-### 2026-11-23T06:03:01+00:00
-Tamil Nadu Seeks Review Of Supreme Court’s Interim Order Permitting Karthigai Deepam At Thirupparankundram
-https://www.verdictum.in/supreme-court/tamil-nadu-seeks-review-order-permitting-karthigai-deepam-thirupparankundram-deepathoon-nov-24-1626270
-
-[Source Link](https://t.me/verdictumlegalupdates/30394)
 
 ---
 
