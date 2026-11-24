@@ -1,6 +1,94 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-24T10:02:35+00:00*
+*Last Updated: 2026-11-24T15:32:23+00:00*
+
+---
+
+### 2026-11-24T15:32:23+00:00
+SIDBI Invites Applications For Posts Of Assistant Manager & Manager (Legal)
+https://www.verdictum.in/job-updates/small-industries-development-bank-of-india-1626382
+
+[Source Link](https://t.me/verdictumlegalupdates/30436)
+
+---
+
+### 2026-11-24T15:03:02+00:00
+Becoming A Nun Does Not Extinguish Christian Woman's Inheritance Rights: Kerala High Court
+https://www.verdictum.in/kerala-high-court/jose-am-v-district-collector-and-others-2026ker86555-nuns-priests-inheritance-rights-1626389
+
+[Source Link](https://t.me/verdictumlegalupdates/30435)
+
+---
+
+### 2026-11-24T14:32:42+00:00
+Non-Submission Of Annual Property Return No Ground To Deny IAS Officer Posting Commensurate With Seniority: Jharkhand High Court
+https://www.verdictum.in/jharkhand-high-court/pawan-kumar-mandal-v-state-of-jharkhand-2026jhhc33186-ias-officer-property-return-1626384
+
+[Source Link](https://t.me/verdictumlegalupdates/30434)
+
+---
+
+### 2026-11-24T14:02:41+00:00
+Citing Fabricated Judgment Is Professional Misconduct But Won’t Invalidate Decision Based On Sound Legal Principle: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/shri-bhagwan-shrikrishna-lala-virajman-v-up-sunni-central-waqf-board-fabricated-judgment-1626381
+
+[Source Link](https://t.me/verdictumlegalupdates/30433)
+
+---
+
+### 2026-11-24T13:32:20+00:00
+S. 86(4) Juvenile Justice Act Has Retrospective Effect, Pending Trials Before Magistrate To Be Transferred To Children's Court: Delhi High Court
+https://www.verdictum.in/delhi-high-court/court-on-its-own-motion-v-state-govt-of-nct-of-delhi-juvenile-justice-act-s-864-act-has-retrospective-effect-1626380
+
+[Source Link](https://t.me/verdictumlegalupdates/30432)
+
+---
+
+### 2026-11-24T13:02:59+00:00
+POSH Act| Internal Committee Can’t Assume Jurisdiction Where Statute Entrusts Inquiry Into Complaint Against Employer To Local Committee: Delhi High Court
+https://www.verdictum.in/delhi-high-court/ax-v-union-of-india-2026dhc10377-internal-committee-posh-act-jurisdiction-local-committee-1626379
+
+[Source Link](https://t.me/verdictumlegalupdates/30431)
+
+---
+
+### 2026-11-24T12:32:59+00:00
+Madras HC Judge Victoria Gowri Questions Police Inaction Against TVK MLA Arul Vignesh Over Alleged Obscene Messages To Collector
+https://www.verdictum.in/news/madras-hc-judge-victoria-gowri-police-inaction-against-tvk-mla-arul-vignesh-1626378
+
+[Source Link](https://t.me/verdictumlegalupdates/30430)
+
+---
+
+### 2026-11-24T12:02:38+00:00
+Panel Lawyers Not Paid Fees Despite Assisting In Administration Of Justice: Allahabad HC Directs State To Clear Pending Bills
+https://www.verdictum.in/allahabad-high-court/panel-lawyers-gram-sabha-not-paid-fees-despite-assisting-administration-justice-1626372
+
+[Source Link](https://t.me/verdictumlegalupdates/30429)
+
+---
+
+### 2026-11-24T11:30:58+00:00
+Breaking: Madras High Court Passes John Doe Order Against Calls To Defy Supreme Court In Thiruparankundram Deepam Case
+https://www.verdictum.in/madras-high-court/passes-john-doe-order-defy-supreme-court-thiruparankundram-deepam-case-1626373
+
+[Source Link](https://t.me/verdictumlegalupdates/30428)
+
+---
+
+### 2026-11-24T11:02:36+00:00
+Large Gathering Raising Political Slogans Is Not Unlawful Assembly: Karnataka High Court Quashes Criminal Proceedings
+https://www.verdictum.in/karnataka-high-court/sri-farooq-mugili-v-state-of-karnataka-and-another-2026khc60751-141-ipc-1626369
+
+[Source Link](https://t.me/verdictumlegalupdates/30427)
+
+---
+
+### 2026-11-24T10:32:56+00:00
+Weekly Overview| Supreme Court Judgments: November 16 – November 20, 2026
+https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-november-16-november-20-2026-1626366
+
+[Source Link](https://t.me/verdictumlegalupdates/30426)
 
 ---
 
@@ -73,94 +161,6 @@ Rule That Father Should Get Child’s Custody Is Subject To Exceptions: Supreme 
 https://www.verdictum.in/supreme-court/a-v-b-2026-insc-1260-rule-father-child-custody-mother-absence-welfare-relatives-1626342
 
 [Source Link](https://t.me/verdictumlegalupdates/30417)
-
----
-
-### 2026-11-24T05:32:27+00:00
-Paying Guest Arrangement Is Closer To Concept Of License Than Lease: Delhi High Court
-https://www.verdictum.in/delhi-high-court/do-sh-sunder-lal-v-pooja-gupta-2026dhc10313-paying-guest-license-lease-suit-property-1626341
-
-[Source Link](https://t.me/verdictumlegalupdates/30416)
-
----
-
-### 2026-11-24T05:02:26+00:00
-Ugly Scandal Has Taken Place: Madras High Court Issues Contempt Notice To IAS Officer In Book Procurement Scam Case
-https://www.verdictum.in/madras-high-court/ramasubbu-v-k-gopal-ias-and-others-public-library-book-procurement-scam-1626340
-
-[Source Link](https://t.me/verdictumlegalupdates/30415)
-
----
-
-### 2026-11-24T04:33:15+00:00
-Karnataka High Court Refuses To Quash Criminal Case Against Doctor Accused Of Attesting Address Proof Documents Of 14 Bangladeshi Nationals
-https://www.verdictum.in/delhi-high-court/sri-bp-umashankar-v-state-by-bellandur-police-station-doctor-bangladeshi-nationals-aadhaar-1626315
-
-[Source Link](https://t.me/verdictumlegalupdates/30414)
-
----
-
-### 2026-11-23T16:02:58+00:00
-Associate (Legal)- B Vacancy At National Zoological Park
-https://www.verdictum.in/job-updates/national-zoological-park-1626305
-
-[Source Link](https://t.me/verdictumlegalupdates/30413)
-
----
-
-### 2026-11-23T15:12:17+00:00
-University Cannot Punish Students On Unilateral Enquiry Without Charge Memo Or Opportunity To Rebut Evidence: Kerala High Court
-https://www.verdictum.in/kerala-high-court/archana-ps-and-others-v-sree-sankaracharya-university-of-sanskrit-and-others-2026ker89409-1626314
-
-[Source Link](https://t.me/verdictumlegalupdates/30412)
-
----
-
-### 2026-11-23T14:32:36+00:00
-Can Senior Citizens Seek A Daughter-In-Law's Eviction From A Shared Household? Delhi High Court Answers
-https://www.verdictum.in/delhi-high-court/ny-v-rky-and-others-2026dhc10250-dw-act-right-to-residence-eviction-1626313
-
-[Source Link](https://t.me/verdictumlegalupdates/30411)
-
----
-
-### 2026-11-23T14:03:15+00:00
-Mere Continuation Of Membership, Without Professional Engagement, Not Sufficient To Determine Bar Association Voting Eligibility: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/virendra-agrawal-v-the-election-committee-rajasthan-high-court-bar-association-jaipur-2026rj-jp47102-election-committee-vakalatnamas-1626304
-
-[Source Link](https://t.me/verdictumlegalupdates/30410)
-
----
-
-### 2026-11-23T13:32:34+00:00
-Location Of Regional Passport Office At Amritsar Can’t Take Away Court’s Jurisdiction To Adjudicate On Relief Sought Against CARA: Delhi High Court
-https://www.verdictum.in/delhi-high-court/a-v-union-of-india-2026dhc10252-location-regional-passport-office-cara-1626303
-
-[Source Link](https://t.me/verdictumlegalupdates/30409)
-
----
-
-### 2026-11-23T13:02:13+00:00
-Father’s Duty To Fund Child’s Education Cannot Be Used As A Tool Of Oppression: Allahabad High Court Modifies Maintenance Order
-https://www.verdictum.in/allahabad-high-court/vkn-v-srt-2026ahc2395597-db-husband-wife-child-maintenance-education-1626302
-
-[Source Link](https://t.me/verdictumlegalupdates/30408)
-
----
-
-### 2026-11-23T12:32:52+00:00
-No Automatic Right Of Impleadment Upon Every Devotee Or Member: Supreme Court Refuses To Appoint Fresh Committee For Kolkata's Sri Guru Sangha's Management
-https://www.verdictum.in/supreme-court/subhasindu-das-ors-v-bacchu-ranjan-das-2026-insc-1250-committee-sri-guru-sangha-1626300
-
-[Source Link](https://t.me/verdictumlegalupdates/30407)
-
----
-
-### 2026-11-23T12:02:51+00:00
-Secondary Evidence Such As Unverified Photocopies No Basis To Institute Criminal Proceedings For Cheating & Forgery: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/gaurang-garg-v-state-of-up-2026ahc229628-secondary-evidence-unverified-photocopies-cheating-forgery-1626298
-
-[Source Link](https://t.me/verdictumlegalupdates/30406)
 
 ---
 
