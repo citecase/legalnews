@@ -1,6 +1,126 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-23T08:02:44+00:00*
+*Last Updated: 2026-11-23T16:02:58+00:00*
+
+---
+
+### 2026-11-23T16:02:58+00:00
+Associate (Legal)- B Vacancy At National Zoological Park
+https://www.verdictum.in/job-updates/national-zoological-park-1626305
+
+[Source Link](https://t.me/verdictumlegalupdates/30413)
+
+---
+
+### 2026-11-23T15:12:17+00:00
+University Cannot Punish Students On Unilateral Enquiry Without Charge Memo Or Opportunity To Rebut Evidence: Kerala High Court
+https://www.verdictum.in/kerala-high-court/archana-ps-and-others-v-sree-sankaracharya-university-of-sanskrit-and-others-2026ker89409-1626314
+
+[Source Link](https://t.me/verdictumlegalupdates/30412)
+
+---
+
+### 2026-11-23T14:32:36+00:00
+Can Senior Citizens Seek A Daughter-In-Law's Eviction From A Shared Household? Delhi High Court Answers
+https://www.verdictum.in/delhi-high-court/ny-v-rky-and-others-2026dhc10250-dw-act-right-to-residence-eviction-1626313
+
+[Source Link](https://t.me/verdictumlegalupdates/30411)
+
+---
+
+### 2026-11-23T14:03:15+00:00
+Mere Continuation Of Membership, Without Professional Engagement, Not Sufficient To Determine Bar Association Voting Eligibility: Rajasthan High Court
+https://www.verdictum.in/rajasthan-high-court/virendra-agrawal-v-the-election-committee-rajasthan-high-court-bar-association-jaipur-2026rj-jp47102-election-committee-vakalatnamas-1626304
+
+[Source Link](https://t.me/verdictumlegalupdates/30410)
+
+---
+
+### 2026-11-23T13:32:34+00:00
+Location Of Regional Passport Office At Amritsar Can’t Take Away Court’s Jurisdiction To Adjudicate On Relief Sought Against CARA: Delhi High Court
+https://www.verdictum.in/delhi-high-court/a-v-union-of-india-2026dhc10252-location-regional-passport-office-cara-1626303
+
+[Source Link](https://t.me/verdictumlegalupdates/30409)
+
+---
+
+### 2026-11-23T13:02:13+00:00
+Father’s Duty To Fund Child’s Education Cannot Be Used As A Tool Of Oppression: Allahabad High Court Modifies Maintenance Order
+https://www.verdictum.in/allahabad-high-court/vkn-v-srt-2026ahc2395597-db-husband-wife-child-maintenance-education-1626302
+
+[Source Link](https://t.me/verdictumlegalupdates/30408)
+
+---
+
+### 2026-11-23T12:32:52+00:00
+No Automatic Right Of Impleadment Upon Every Devotee Or Member: Supreme Court Refuses To Appoint Fresh Committee For Kolkata's Sri Guru Sangha's Management
+https://www.verdictum.in/supreme-court/subhasindu-das-ors-v-bacchu-ranjan-das-2026-insc-1250-committee-sri-guru-sangha-1626300
+
+[Source Link](https://t.me/verdictumlegalupdates/30407)
+
+---
+
+### 2026-11-23T12:02:51+00:00
+Secondary Evidence Such As Unverified Photocopies No Basis To Institute Criminal Proceedings For Cheating & Forgery: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/gaurang-garg-v-state-of-up-2026ahc229628-secondary-evidence-unverified-photocopies-cheating-forgery-1626298
+
+[Source Link](https://t.me/verdictumlegalupdates/30406)
+
+---
+
+### 2026-11-23T11:16:50+00:00
+West Bengal SIR: Supreme Court Directs Priority Disposal Of Appeals Against Voter Exclusion, Asks ECI To Increase Appellate Tribunals
+https://www.verdictum.in/supreme-court/directs-priority-disposal-appeals-against-voter-exclusion-eci-increase-appellate-tribunals-1626297
+
+[Source Link](https://t.me/verdictumlegalupdates/30405)
+
+---
+
+### 2026-11-23T11:02:49+00:00
+How Can You Restrain Political Parties From Raising Their Agenda: Supreme Court
+https://www.verdictum.in/supreme-court/political-parties-raising-their-agenda-restriction-1626296
+
+[Source Link](https://t.me/verdictumlegalupdates/30404)
+
+---
+
+### 2026-11-23T10:32:49+00:00
+High Threshold Required To Register FIR Over Social Media Posts: Karnataka High Court Quashes Two FIRs Over Post Against Congress Party
+https://www.verdictum.in/karnataka-high-court/kiran-r-kiran-aradhya-v-state-of-karnataka-2026khc61560-social-media-fir-1626294
+
+[Source Link](https://t.me/verdictumlegalupdates/30403)
+
+---
+
+### 2026-11-23T10:03:08+00:00
+"People Waiting in Queue, Judges Thinking of Perks": Supreme Court Slams Judicial Officers Over Repeated Pleas For Perks
+https://www.verdictum.in/supreme-court/supreme-court-slams-judicial-officers-over-repeated-pleas-for-perks-1626289
+
+[Source Link](https://t.me/verdictumlegalupdates/30402)
+
+---
+
+### 2026-11-23T09:33:07+00:00
+Supreme Court Seeks Response Of Centre, EC On PIL For Reforms In Anti-Defection Law
+https://www.verdictum.in/supreme-court/response-centre-ec-pil-reforms-anti-defection-law-1626287
+
+[Source Link](https://t.me/verdictumlegalupdates/30401)
+
+---
+
+### 2026-11-23T09:02:26+00:00
+Godhra Train Burning Case: Supreme Court Suspends Life Sentence Of Convict On Medical Grounds
+https://www.verdictum.in/supreme-court/godhra-train-burning-suspends-life-sentence-convict-medical-grounds-1626288
+
+[Source Link](https://t.me/verdictumlegalupdates/30400)
+
+---
+
+### 2026-11-23T08:32:45+00:00
+Mother’s Govt. Employment Requiring Travel Cannot, By Itself, Show She Is Unable To Look After Minor Child: Chhattisgarh High Court
+https://www.verdictum.in/chhattisgarh-high-court/dr-s-v-bb-2026cghc47331-db-custody-minor-son-under-guardians-and-wards-act-1626282
+
+[Source Link](https://t.me/verdictumlegalupdates/30399)
 
 ---
 
@@ -41,126 +161,6 @@ Tamil Nadu Seeks Review Of Supreme Court’s Interim Order Permitting Karthigai 
 https://www.verdictum.in/supreme-court/tamil-nadu-seeks-review-order-permitting-karthigai-deepam-thirupparankundram-deepathoon-nov-24-1626270
 
 [Source Link](https://t.me/verdictumlegalupdates/30394)
-
----
-
-### 2026-11-23T05:32:40+00:00
-Once Strong & Eminent Need Is Established, Child’s Right To Know Parentage Through DNA Test Cannot Be Denied: Delhi High Court
-https://www.verdictum.in/delhi-high-court/v-v-ss-2026dhc10283-db-dna-test-of-alleged-father-right-to-privacy-1626265
-
-[Source Link](https://t.me/verdictumlegalupdates/30393)
-
----
-
-### 2026-11-23T05:02:39+00:00
-Father Or Sisters Cannot Be Considered As Dependent On Earnings Of Deceased Bachelor: Himachal Pradesh High Court Modifies MACT Award
-https://www.verdictum.in/himachal-high-court/om-parkash-v-anita-2026hhc49849-mother-father-sisters-dependent-deceased-motor-accident-1626261
-
-[Source Link](https://t.me/verdictumlegalupdates/30392)
-
----
-
-### 2026-11-23T04:32:29+00:00
-Delay Not Intended To Secure Undue Advantage: SC Condones Delay While Saying Internal Administrative Procedures Alone Are No Justification
-https://www.verdictum.in/supreme-court/delhi-development-authority-v-sudarshan-manjhi-2026-insc-1254-delay-condonation-1626206
-
-[Source Link](https://t.me/verdictumlegalupdates/30391)
-
----
-
-### 2026-11-22T15:02:46+00:00
-Legal Consultant Vacancy At Archaeological Survey of India
-https://www.verdictum.in/job-updates/archaeological-survey-of-india-1626199
-
-[Source Link](https://t.me/verdictumlegalupdates/30390)
-
----
-
-### 2026-11-22T13:32:40+00:00
-Marriage Between A Hindu And A Person Of Another Religion Cannot Be Validated By Registration Under Hindu Marriage Act: Madras High Court
-https://www.verdictum.in/madras-high-court/ank-v-kv-2026mhc4630-interfaith-couple-hindu-marriage-act-validity-1626231
-
-[Source Link](https://t.me/verdictumlegalupdates/30389)
-
----
-
-### 2026-11-22T12:03:00+00:00
-Treadmills, Exercise Bikes & Fitness Equipment Are ‘Sports Goods’ Exempt Under UP VAT Notification: Supreme Court
-https://www.verdictum.in/supreme-court/treadmills-exercise-bikes-fitness-equipment-are-sports-goods-exempt-under-up-vat-1626205
-
-[Source Link](https://t.me/verdictumlegalupdates/30388)
-
----
-
-### 2026-11-22T10:32:19+00:00
-No Entrustment In Hypothecation, Sale Of Such Property Not Offence U/s. 406 IPC: Jharkhand High Court
-https://www.verdictum.in/jharkhand-high-court/nimisha-sinha-v-state-2026jhhc32856-hypothecated-property-sec406-ipc-1626198
-
-[Source Link](https://t.me/verdictumlegalupdates/30387)
-
----
-
-### 2026-11-22T09:02:18+00:00
-Sikkim HC Reinstates Suspended District Judge Subject To Outcome Of Disciplinary Proceedings; Leaves Decision On Judicial Duties To HC Administration
-https://www.verdictum.in/sikkim-high-court/bebika-chettri-v-high-court-of-sikkim-wpc-no-85-of-2026-suspended-officiating-district-judge-soleng-1626197
-
-[Source Link](https://t.me/verdictumlegalupdates/30386)
-
----
-
-### 2026-11-22T07:32:57+00:00
-Refusing Firearms To Eligible Sportsperson For Practice Curbs Fundamental Right To Participate In Sport: Bombay High Court
-https://www.verdictum.in/bombay-high-court/hemant-ankush-balwadkar-v-state-of-maharashtra-sport-of-his-choice-additional-arms-shooter-sportsperson-1626195
-
-[Source Link](https://t.me/verdictumlegalupdates/30385)
-
----
-
-### 2026-11-22T06:02:16+00:00
-Allahabad High Court Bans Litigants From Carrying Mobile Phones Into Courtroom
-https://www.verdictum.in/allahabad-high-court/kuldeep-batra-v-state-of-up-courtroom-mobile-litigant-recording-1626186
-
-[Source Link](https://t.me/verdictumlegalupdates/30384)
-
----
-
-### 2026-11-22T04:32:55+00:00
-Prior Sanction U/S 197 CrPC Required For PMLA Prosecution: Bombay High Court Quashes ED Complaint Against IRS Officer
-https://www.verdictum.in/bombay-high-court/sachin-sawant-v-union-of-india-and-another-2026bhc-as45633-pmla-section-197-crpc-1626192
-
-[Source Link](https://t.me/verdictumlegalupdates/30383)
-
----
-
-### 2026-11-21T16:02:23+00:00
-Young Professional (Legal) Vacancy At Directorate General of Foreign Trade
-https://www.verdictum.in/job-updates/directorate-general-of-foreign-trade-1626191
-
-[Source Link](https://t.me/verdictumlegalupdates/30382)
-
----
-
-### 2026-11-21T15:13:02+00:00
-Removal Of Encroachments Must Be Undertaken In Accordance With Control of National Highways (Land and Traffic) Act: Supreme Court Issues Directions
-https://www.verdictum.in/supreme-court/in-re-phalodi-accident-v-national-highways-authority-of-india-2026-insc-1243-encroachments-private-land-1626190
-
-[Source Link](https://t.me/verdictumlegalupdates/30381)
-
----
-
-### 2026-11-21T14:32:22+00:00
-Can A Mutawalli Whose Term Has Expired Continue Waqf Proceedings By Claiming To Be Sajjadanashin? Supreme Court To Examine
-https://www.verdictum.in/supreme-court/mutawalli-whose-term-expired-continue-waqf-proceedings-claiming-sajjadanashin-1626189
-
-[Source Link](https://t.me/verdictumlegalupdates/30380)
-
----
-
-### 2026-11-21T13:53:01+00:00
-"Still Born" UP Gangsters Act Continues To Be Operative: Allahabad High Court Quashes FIR In Saharanpur Liquor Case
-https://www.verdictum.in/allahabad-high-court/pranay-aneja-v-state-of-up-2026ahc236800-db-gangchart-fir-saharanpur-liquor-case-1626188
-
-[Source Link](https://t.me/verdictumlegalupdates/30379)
 
 ---
 
