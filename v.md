@@ -1,6 +1,126 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-25T08:22:12+00:00*
+*Last Updated: 2026-11-25T16:03:09+00:00*
+
+---
+
+### 2026-11-25T16:03:09+00:00
+Management Trainee (Legal) Vacancy At Export-Import Bank of India (Exim Bank)
+https://www.verdictum.in/job-updates/export-import-bank-of-india-1626445
+
+[Source Link](https://t.me/verdictumlegalupdates/30460)
+
+---
+
+### 2026-11-25T15:32:48+00:00
+Allegation Of Fraud Cannot Automatically Establish Sufficient Cause To Condone Inordinate Delay: Kerala High Court
+https://www.verdictum.in/kerala-high-court/usha-v-geetha-died-allegation-of-fraud-condone-2450-day-delay-1626446
+
+[Source Link](https://t.me/verdictumlegalupdates/30459)
+
+---
+
+### 2026-11-25T15:02:49+00:00
+Presumption U/S 139 NI Act Can Be Rebutted Based On Circumstances: Chhattisgarh High Court Upholds Acquittal Over Alleged Lost Cheque Misuse
+https://www.verdictum.in/chhattisgarh-high-court/gurvinder-singh-v-balvinder-singh-2026cghc48127-ni-act-lost-cheque-defense-1626449
+
+[Source Link](https://t.me/verdictumlegalupdates/30458)
+
+---
+
+### 2026-11-25T14:33:03+00:00
+Elected Member Facing Pending FIR Cannot Seek Inclusion In Temple Advisory Committee Against Bye-Laws: Kerala High Court
+https://www.verdictum.in/kerala-high-court/arun-anirudhan-v-state-of-kerala-travancore-devaswom-board-temple-advisory-1626444
+
+[Source Link](https://t.me/verdictumlegalupdates/30457)
+
+---
+
+### 2026-11-25T14:02:42+00:00
+Karan Murmu Judgment Not Authoritative Pronouncement On Existence Of Santhal Custom Excluding Inheritance By Daughters: Jharkhand High Court
+https://www.verdictum.in/jharkhand-high-court/sanatan-hembram-v-hite-lal-hembrom-karan-murmu-single-bench-judgment-1626443
+
+[Source Link](https://t.me/verdictumlegalupdates/30456)
+
+---
+
+### 2026-11-25T13:33:01+00:00
+Delay Vitiates Complaint: Karnataka High Court Quashes FIR Against Ex-DC, Returning Officer In Sringeri Assembly Election Postal Ballot Tampering Case
+https://www.verdictum.in/karnataka-high-court/kn-ramesh-v-state-of-karnataka-fir-against-ex-dc-returning-officer-1626442
+
+[Source Link](https://t.me/verdictumlegalupdates/30455)
+
+---
+
+### 2026-11-25T13:03:01+00:00
+Rajasthan High Court Stays Order Restoring Two-Vakalatnama Or Appearance Condition For Members To Vote In Bar Association Polls
+https://www.verdictum.in/rajasthan-high-court/gajendra-singh-shekhawat-v-virendra-agrawal-two-vakalatnama-condition-bar-election-1626441
+
+[Source Link](https://t.me/verdictumlegalupdates/30454)
+
+---
+
+### 2026-11-25T12:32:40+00:00
+Arbitrator Cannot Discard Highest-Valued Sale Deed While Fixing Land Compensation: Kerala High Court Dismisses NHAI Appeals
+https://www.verdictum.in/kerala-high-court/the-project-director-national-highway-authority-of-india-v-abdul-salam-ba-nhai-appeals-1626440
+
+[Source Link](https://t.me/verdictumlegalupdates/30453)
+
+---
+
+### 2026-11-25T12:02:20+00:00
+Will You Go To Ukraine Or Russia To Fight The War?: Apex Court Refuses Anticipatory Bail To Couple Accused Of Taking ₹4.46 Lakh For European Job Visa
+https://www.verdictum.in/supreme-court/ukraine-or-russia-to-fight-the-war-anticipatory-bail-1626439
+
+[Source Link](https://t.me/verdictumlegalupdates/30452)
+
+---
+
+### 2026-11-25T11:32:38+00:00
+Cheque Dishonour Complainant Need Not Prove Financial Capacity Unless Accused Challenged It In Reply To Notice: Himachal Pradesh High Court
+https://www.verdictum.in/himachal-high-court/inder-lal-v-shiv-sharma-2026hhc50408-cheque-dishonor-statutory-presumption-1626438
+
+[Source Link](https://t.me/verdictumlegalupdates/30451)
+
+---
+
+### 2026-11-25T11:02:56+00:00
+Supreme Court Sets Aside HC Order Suspending Vinay Kulkarni's Life Sentence In BJP Leader Yogesh Goudar Murder Case
+https://www.verdictum.in/supreme-court/order-suspending-vinay-kulkarnis-life-sentence-in-bjp-leader-yogesh-goudar-murder-case-1626435
+
+[Source Link](https://t.me/verdictumlegalupdates/30450)
+
+---
+
+### 2026-11-25T10:32:35+00:00
+Delhi High Court Refuses To Interfere With Govt's Decision To Shut Kartarpur Sahib Corridor For Pilgrims
+https://www.verdictum.in/delhi-high-court/govts-decision-shut-kartarpur-sahib-corridor-pilgrims-1626432
+
+[Source Link](https://t.me/verdictumlegalupdates/30449)
+
+---
+
+### 2026-11-25T10:03:14+00:00
+Breaking| State Should Purge Itself Of Contempt: Petitioners Mention Fresh Plea Before SC For Permission To Light Deepam
+https://www.verdictum.in/supreme-court/fresh-application-before-sc-permission-light-deepam-thiruparankundram-1626434
+
+[Source Link](https://t.me/verdictumlegalupdates/30448)
+
+---
+
+### 2026-11-25T09:32:53+00:00
+Supreme Court Sets Aside Allahabad HC Order Directing CBI, ED Verification of DA Allegations Against Rahul Gandhi
+https://www.verdictum.in/supreme-court/allahabad-hc-order-directing-cbi-ed-verification-da-allegations-against-rahul-gandhi-1626431
+
+[Source Link](https://t.me/verdictumlegalupdates/30447)
+
+---
+
+### 2026-11-25T09:02:13+00:00
+Cognizance Of Food Safety Act Offences On Police Final Report Is Without Authority Of Law: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/kumar-shrikant-harugeri-v-state-of-karnataka-milk-adulteration-case-against-dairy-owner-1626420
+
+[Source Link](https://t.me/verdictumlegalupdates/30446)
 
 ---
 
@@ -41,126 +161,6 @@ Supreme Court Issues Notice On Bail Pleas Of Umar Khalid, Sharjeel Imam; Refers 
 https://www.verdictum.in/supreme-court/issues-notice-on-bail-pleas-of-umar-khalid-sharjeel-imam-1626416
 
 [Source Link](https://t.me/verdictumlegalupdates/30441)
-
----
-
-### 2026-11-25T05:46:48+00:00
-Breaking: Supreme Court Told Thiruparankundram Lamp Not Lit Despite Its Order; Petitioners To File Contempt Plea
-https://www.verdictum.in/supreme-court/thiruparankundram-deepathoon-lamp-not-lit-despite-order-petitioners-file-contempt-plea-supreme-court-1626414
-
-[Source Link](https://t.me/verdictumlegalupdates/30440)
-
----
-
-### 2026-11-25T05:32:57+00:00
-Supreme Court Collegium Recommends New Chief Justice For Tripura High Court, Transfers Two High Court Chief Justices
-https://www.verdictum.in/supreme-court/collegium-recommends-new-chief-justice-for-tripura-high-court-transfers-two-1626413
-
-[Source Link](https://t.me/verdictumlegalupdates/30439)
-
----
-
-### 2026-11-25T05:02:36+00:00
-No Blanket Bar U/S.59 Of Patents Act In Allowing Amendment Of Method Of Treatment Claim To Composition Claim: Delhi High Court
-https://www.verdictum.in/delhi-high-court/bristol-myers-squibb-company-v-assistant-controller-of-patents-designs-2026dhc10240-sec59-1626410
-
-[Source Link](https://t.me/verdictumlegalupdates/30438)
-
----
-
-### 2026-11-25T04:32:35+00:00
-Order Summoning Accused To Face Trial Cannot Be Cryptic And Must Reflect Application Of Mind: Telangana High Court
-https://www.verdictum.in/telangana-high-court/j-raghu-ram-and-another-v-state-of-telangana-and-another-summon-criminal-trial-1626388
-
-[Source Link](https://t.me/verdictumlegalupdates/30437)
-
----
-
-### 2026-11-24T15:32:23+00:00
-SIDBI Invites Applications For Posts Of Assistant Manager & Manager (Legal)
-https://www.verdictum.in/job-updates/small-industries-development-bank-of-india-1626382
-
-[Source Link](https://t.me/verdictumlegalupdates/30436)
-
----
-
-### 2026-11-24T15:03:02+00:00
-Becoming A Nun Does Not Extinguish Christian Woman's Inheritance Rights: Kerala High Court
-https://www.verdictum.in/kerala-high-court/jose-am-v-district-collector-and-others-2026ker86555-nuns-priests-inheritance-rights-1626389
-
-[Source Link](https://t.me/verdictumlegalupdates/30435)
-
----
-
-### 2026-11-24T14:32:42+00:00
-Non-Submission Of Annual Property Return No Ground To Deny IAS Officer Posting Commensurate With Seniority: Jharkhand High Court
-https://www.verdictum.in/jharkhand-high-court/pawan-kumar-mandal-v-state-of-jharkhand-2026jhhc33186-ias-officer-property-return-1626384
-
-[Source Link](https://t.me/verdictumlegalupdates/30434)
-
----
-
-### 2026-11-24T14:02:41+00:00
-Citing Fabricated Judgment Is Professional Misconduct But Won’t Invalidate Decision Based On Sound Legal Principle: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/shri-bhagwan-shrikrishna-lala-virajman-v-up-sunni-central-waqf-board-fabricated-judgment-1626381
-
-[Source Link](https://t.me/verdictumlegalupdates/30433)
-
----
-
-### 2026-11-24T13:32:20+00:00
-S. 86(4) Juvenile Justice Act Has Retrospective Effect, Pending Trials Before Magistrate To Be Transferred To Children's Court: Delhi High Court
-https://www.verdictum.in/delhi-high-court/court-on-its-own-motion-v-state-govt-of-nct-of-delhi-juvenile-justice-act-s-864-act-has-retrospective-effect-1626380
-
-[Source Link](https://t.me/verdictumlegalupdates/30432)
-
----
-
-### 2026-11-24T13:02:59+00:00
-POSH Act| Internal Committee Can’t Assume Jurisdiction Where Statute Entrusts Inquiry Into Complaint Against Employer To Local Committee: Delhi High Court
-https://www.verdictum.in/delhi-high-court/ax-v-union-of-india-2026dhc10377-internal-committee-posh-act-jurisdiction-local-committee-1626379
-
-[Source Link](https://t.me/verdictumlegalupdates/30431)
-
----
-
-### 2026-11-24T12:32:59+00:00
-Madras HC Judge Victoria Gowri Questions Police Inaction Against TVK MLA Arul Vignesh Over Alleged Obscene Messages To Collector
-https://www.verdictum.in/news/madras-hc-judge-victoria-gowri-police-inaction-against-tvk-mla-arul-vignesh-1626378
-
-[Source Link](https://t.me/verdictumlegalupdates/30430)
-
----
-
-### 2026-11-24T12:02:38+00:00
-Panel Lawyers Not Paid Fees Despite Assisting In Administration Of Justice: Allahabad HC Directs State To Clear Pending Bills
-https://www.verdictum.in/allahabad-high-court/panel-lawyers-gram-sabha-not-paid-fees-despite-assisting-administration-justice-1626372
-
-[Source Link](https://t.me/verdictumlegalupdates/30429)
-
----
-
-### 2026-11-24T11:30:58+00:00
-Breaking: Madras High Court Passes John Doe Order Against Calls To Defy Supreme Court In Thiruparankundram Deepam Case
-https://www.verdictum.in/madras-high-court/passes-john-doe-order-defy-supreme-court-thiruparankundram-deepam-case-1626373
-
-[Source Link](https://t.me/verdictumlegalupdates/30428)
-
----
-
-### 2026-11-24T11:02:36+00:00
-Large Gathering Raising Political Slogans Is Not Unlawful Assembly: Karnataka High Court Quashes Criminal Proceedings
-https://www.verdictum.in/karnataka-high-court/sri-farooq-mugili-v-state-of-karnataka-and-another-2026khc60751-141-ipc-1626369
-
-[Source Link](https://t.me/verdictumlegalupdates/30427)
-
----
-
-### 2026-11-24T10:32:56+00:00
-Weekly Overview| Supreme Court Judgments: November 16 – November 20, 2026
-https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-november-16-november-20-2026-1626366
-
-[Source Link](https://t.me/verdictumlegalupdates/30426)
 
 ---
 
