@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-24T15:32:23+00:00*
+*Last Updated: 2026-11-25T08:22:12+00:00*
+
+---
+
+### 2026-11-25T08:22:12+00:00
+Thiruparankundram Deepam| Contemnors 'Hell Bent' On Non-Compliance From Inception, Made False Submission About Compliance Before HC: Contempt Plea Before SC
+https://www.verdictum.in/supreme-court/contempt-petition-thiruparankundram-deepam-deepathoon-1626428
+
+[Source Link](https://t.me/verdictumlegalupdates/30445)
+
+---
+
+### 2026-11-25T07:46:11+00:00
+Temple Board Decided To Light Deepam At 'Customary' Spot, Did Not Authorise Team For Deepathoon: Madurai Collector Tells Supreme Court
+https://www.verdictum.in/supreme-court/temple-board-lit-karthigai-deepam-customary-spot-not-deepathoon-1626423
+
+[Source Link](https://t.me/verdictumlegalupdates/30444)
+
+---
+
+### 2026-11-25T07:33:00+00:00
+Supreme Court Says It Is Inclined To Stay Calcutta HC's Order Deferring Civic Polls Till Decision On Delimitation
+https://www.verdictum.in/supreme-court/calcutta-hcs-order-deferring-civic-polls-till-decision-delimitation-stay-1626421
+
+[Source Link](https://t.me/verdictumlegalupdates/30443)
+
+---
+
+### 2026-11-25T07:02:19+00:00
+Demise Of Landlord After Order Of Eviction Has Been Passed Is Not Itself Sufficient To Nullify Adjudicated Claim: Delhi High Court
+https://www.verdictum.in/delhi-high-court/nayabuddin-v-parveen-singh-2026dhc10259-demise-landlor-eviction-adjudicated-claim-1626415
+
+[Source Link](https://t.me/verdictumlegalupdates/30442)
+
+---
+
+### 2026-11-25T06:22:38+00:00
+Supreme Court Issues Notice On Bail Pleas Of Umar Khalid, Sharjeel Imam; Refers Matter For Constitution Of Three-Judge Bench
+https://www.verdictum.in/supreme-court/issues-notice-on-bail-pleas-of-umar-khalid-sharjeel-imam-1626416
+
+[Source Link](https://t.me/verdictumlegalupdates/30441)
+
+---
+
+### 2026-11-25T05:46:48+00:00
+Breaking: Supreme Court Told Thiruparankundram Lamp Not Lit Despite Its Order; Petitioners To File Contempt Plea
+https://www.verdictum.in/supreme-court/thiruparankundram-deepathoon-lamp-not-lit-despite-order-petitioners-file-contempt-plea-supreme-court-1626414
+
+[Source Link](https://t.me/verdictumlegalupdates/30440)
+
+---
+
+### 2026-11-25T05:32:57+00:00
+Supreme Court Collegium Recommends New Chief Justice For Tripura High Court, Transfers Two High Court Chief Justices
+https://www.verdictum.in/supreme-court/collegium-recommends-new-chief-justice-for-tripura-high-court-transfers-two-1626413
+
+[Source Link](https://t.me/verdictumlegalupdates/30439)
+
+---
+
+### 2026-11-25T05:02:36+00:00
+No Blanket Bar U/S.59 Of Patents Act In Allowing Amendment Of Method Of Treatment Claim To Composition Claim: Delhi High Court
+https://www.verdictum.in/delhi-high-court/bristol-myers-squibb-company-v-assistant-controller-of-patents-designs-2026dhc10240-sec59-1626410
+
+[Source Link](https://t.me/verdictumlegalupdates/30438)
+
+---
+
+### 2026-11-25T04:32:35+00:00
+Order Summoning Accused To Face Trial Cannot Be Cryptic And Must Reflect Application Of Mind: Telangana High Court
+https://www.verdictum.in/telangana-high-court/j-raghu-ram-and-another-v-state-of-telangana-and-another-summon-criminal-trial-1626388
+
+[Source Link](https://t.me/verdictumlegalupdates/30437)
 
 ---
 
@@ -89,78 +161,6 @@ Weekly Overview| Supreme Court Judgments: November 16 – November 20, 2026
 https://www.verdictum.in/weekly-summary/weekly-overview-supreme-court-judgments-november-16-november-20-2026-1626366
 
 [Source Link](https://t.me/verdictumlegalupdates/30426)
-
----
-
-### 2026-11-24T10:02:35+00:00
-Highest Bidder Has No Vested Right To Conclusion Of Contract Before Formal Acceptance: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/ms-shiv-anant-enterprises-v-state-of-up-and-3-others-2026ahc237675-db-1626364
-
-[Source Link](https://t.me/verdictumlegalupdates/30425)
-
----
-
-### 2026-11-24T09:29:54+00:00
-Thiruparankundram Deepam: Can't Overreach Supreme Court, But Entitled To Direct Authorities To Obey Its Order: Madras High Court
-https://www.verdictum.in/madras-high-court/thiruparankundram-deepam-overreach-supreme-court-orders-entitled-direct-authorities-obey-order-1626365
-
-[Source Link](https://t.me/verdictumlegalupdates/30424)
-
----
-
-### 2026-11-24T09:02:53+00:00
-Subsequent Arrangements Made By Landlord To Secure Alternative Accommodation Can't Be Construed As Extinguishing Original Bonafide Requirement: Supreme Court
-https://www.verdictum.in/supreme-court/ms-pm-shah-v-asmit-vijay-vedak-2026-insc-1261-arrangements-landlord-accommodation-1626363
-
-[Source Link](https://t.me/verdictumlegalupdates/30423)
-
----
-
-### 2026-11-24T08:32:52+00:00
-Substantive Proof Regarding Execution Of Document Overrides Expert Opinion Regarding Handwriting In Determining Document’s Genuineness: Supreme Court
-https://www.verdictum.in/supreme-court/babita-chopra-v-state-gnct-of-delhi-2026-insc-1258-executiondocument-expert-opinion-1626361
-
-[Source Link](https://t.me/verdictumlegalupdates/30422)
-
----
-
-### 2026-11-24T08:02:51+00:00
-Meta Not A Government Agency; Only Contractual Duties Enforceable: Bombay High Court Refuses Plea To Restore Blink Digital's Accounts
-https://www.verdictum.in/bombay-high-court/blink-digital-india-private-limited-v-facebook-india-online-services-private-limited-2026bhc-os24595-meta-not-a-government-agency-1626360
-
-[Source Link](https://t.me/verdictumlegalupdates/30421)
-
----
-
-### 2026-11-24T07:33:50+00:00
-ED Need Not Separately Establish Likelihood Of Concealment For Provisional Attachment Of Crime Proceeds: Madras High Court
-https://www.verdictum.in/madras-high-court/p-rajasekaran-v-deputy-director-directorate-of-enforcement-and-others-1626357
-
-[Source Link](https://t.me/verdictumlegalupdates/30420)
-
----
-
-### 2026-11-24T07:02:09+00:00
-Subsequent Refund Doesn't Erase Misconduct; Absence Of Financial Loss No Defence For Bank Employee: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/subsequent-refund-doesnt-erase-misconduct-financial-loss-defence-bank-employee-1626351
-
-[Source Link](https://t.me/verdictumlegalupdates/30419)
-
----
-
-### 2026-11-24T06:33:09+00:00
-Okhla Enclave Forum Members Cannot Claim Automatic Exemption From Scrutiny: Supreme Court Appoints Justice Sanjay Karol To Head Special Committee
-https://www.verdictum.in/supreme-court/okhla-enclave-plot-holders-welfare-association-v-union-of-india-2026-insc-1259-sanjay-karol-to-head-special-committee-1626345
-
-[Source Link](https://t.me/verdictumlegalupdates/30418)
-
----
-
-### 2026-11-24T06:08:08+00:00
-Rule That Father Should Get Child’s Custody Is Subject To Exceptions: Supreme Court Allows Mother To Continue With Sons' Custody
-https://www.verdictum.in/supreme-court/a-v-b-2026-insc-1260-rule-father-child-custody-mother-absence-welfare-relatives-1626342
-
-[Source Link](https://t.me/verdictumlegalupdates/30417)
 
 ---
 
