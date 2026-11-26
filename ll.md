@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-25T14:17:19+00:00*
+*Last Updated: 2026-11-26T05:55:17+00:00*
 
 ---
 
-### 2026-11-25T14:17:19+00:00
-P&H High Court Denies Anticipatory Bail To Man Accused Of Stealing His Own Impounded Car From Police Station
-https://www.livelaw.in/high-court/punjab-and-haryana-high-court/punjab-haryana-high-court-denies-anticipatory-bail-to-man-accused-of-taking-his-own-impounded-car-from-police-station-559965
+### 2026-11-26T05:55:17+00:00
+Retirement During Pendency Of Regularisation Claim Doesn't Extinguish Employee's Entitlement: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-directs-assam-government-grant-regularisation-pensionary-benefits-560058
 
-[Read on Telegram](https://t.me/livelawindia/125373)
-
----
-### 2026-11-25T14:32:19+00:00
-India's Drone Framework Needs To Talk About Privacy
-https://www.livelaw.in/articles/india-drone-framework-needs-talk-about-privacy-559927
-
-[Read on Telegram](https://t.me/livelawindia/125374)
+[Read on Telegram](https://t.me/livelawindia/125415)
 
 ---
-### 2026-11-25T14:32:39+00:00
-Complainant's Marital History, Allegations Against Her Character Can't Discredit Sexual Assault Complaint: Telangana High Court
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-denies-anticipatory-bail-allegedly-aiding-attempted-sexual-assault-559969
+### 2026-11-26T06:02:47+00:00
+State Can't Make Employees Who Served For Decades Compete With Freshers For Regular Posts: Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/state-cant-make-employees-who-served-for-decades-compete-with-freshers-for-regular-posts-delhi-high-court-560028
 
-[Read on Telegram](https://t.me/livelawindia/125375)
-
----
-### 2026-11-25T14:38:59+00:00
-TN Library Scam | Madras High Court Asks G Venkataraman IPS To Go Through Case Materials, Submit Periodical Status Reports
-https://www.livelaw.in/high-court/madras-high-court/madras-high-court-tn-library-scam-ips-officer-asked-submit-periodical-status-reports-559995
-
-[Read on Telegram](https://t.me/livelawindia/125376)
+[Read on Telegram](https://t.me/livelawindia/125416)
 
 ---
-### 2026-11-25T14:41:39+00:00
-Supreme Court Grants Bail To 3 Former Rajasthan PHED Officials In ₹979 Crore Jal Jeevan Mission Tender Scam
-https://www.livelaw.in/supreme-court/supreme-court-grants-bail-to-3-former-rajasthan-phed-officials-in-979-crore-jal-jeevan-mission-tender-scam-559996
+### 2026-11-26T06:08:27+00:00
+BREAKING| Packaged Foods Need Separate Pictorial Warnings On High-Fat, High-Sugar Or High-Salt: Supreme Court Issues Directions On Front-of-Pack Labels
+https://www.livelaw.in/top-stories/breaking-packaged-foods-need-separate-red-hexagon-labels-on-high-fat-high-sugar-or-high-salt-supreme-court-issues-directions-on-front-of-pack-labels-560059
 
-[Read on Telegram](https://t.me/livelawindia/125377)
-
----
-### 2026-11-25T14:42:59+00:00
-2026 LiveLaw (SC) 1202 | SUBODH AGARWAL VS. STATE OF RAJASTHAN
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1202-subodh-agarwal-vs-state-of-rajasthan-559997
-
-[Read on Telegram](https://t.me/livelawindia/125378)
+[Read on Telegram](https://t.me/livelawindia/125417)
 
 ---
-### 2026-11-25T14:48:19+00:00
-'Sailing In Two Boats': MP High Court Rejects Husband's Divorce Plea Filed Within One Year Of Obtaining Restitution Decree
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/sailing-in-two-boats-mp-high-court-rejects-husbands-divorce-plea-filed-within-one-year-of-obtaining-restitution-decree-559972
+### 2026-11-26T06:11:27+00:00
+JGU Team Wins Overall Championship At International ADR ODR Negotiation And Mediation Competition 2026 In Dubai
+https://www.livelaw.in/lawschool/news/jgu-team-wins-overall-championship-at-international-adr-odr-negotiation-and-mediation-competition-2026-in-dubai-560060
 
-[Read on Telegram](https://t.me/livelawindia/125379)
-
----
-### 2026-11-25T14:52:39+00:00
-Texture Of Prosecution Changing With Govt Change Worst Part Of Criminal Justice Administration' : Justice Joymalya Bagchi
-https://www.livelaw.in/top-stories/supreme-court-justice-joymalya-bagchi-ex-tamil-nadu-minister-senthil-balaji-cash-for-jobs-scam-change-in-government-affecting-prosecution-worst-part-560000
-
-[Read on Telegram](https://t.me/livelawindia/125380)
+[Read on Telegram](https://t.me/livelawindia/125418)
 
 ---
-### 2026-11-25T15:03:09+00:00
-Cheque Dishonour | Demand Notice Served On Director In Individual Capacity Doesn't Constitute Valid Notice To Company: AP High Court
-https://www.livelaw.in/high-court/andhra-pradesh-high-court/ap-high-court-company-named-served-cheque-dishonour-case-559973
+### 2026-11-26T06:12:47+00:00
+Non-Receipt Of Foreign Funds For Three Consecutive Years Not Ground To Cancel FCRA Registration: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-quashes-home-ministry-order-revives-registration-560061
 
-[Read on Telegram](https://t.me/livelawindia/125381)
-
----
-### 2026-11-25T15:08:49+00:00
-Indian Youth Congress Moves Delhi High Court Against Alleged Blocking Of Social Media Posts Carrying Rahul Gandhi's Name Or Photo
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-indian-youth-congress-blocking-posts-featuring-rahul-gandhi-560003
-
-[Read on Telegram](https://t.me/livelawindia/125382)
+[Read on Telegram](https://t.me/livelawindia/125419)
 
 ---
-### 2026-11-25T15:16:09+00:00
-Allahabad High Court Upholds 25-Year Sentence Of Man Convicted For Rape Of 5-Year-Old Girl
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-upholds-25-year-sentence-rape-five-year-old-girl-560006
+### 2026-11-26T06:18:28+00:00
+Story of India's Constitution | Beyond the Constituent Assembly | Constitution Day Special
+https://www.livelaw.in/videos/indian-constitution-india-constitution-day-constituent-assembly-india-law-news-livelaw-560064
 
-[Read on Telegram](https://t.me/livelawindia/125383)
-
----
-### 2026-11-25T15:16:49+00:00
-Fire-Damaged Stock: J&K Consumer Commission Directs Bajaj Allianz To Pay ₹50,273 Despite Disputed Bills
-https://www.livelaw.in/consumer-cases/fire-damaged-stock-jk-consumer-commission-directs-bajaj-allianz-to-pay-50273-despite-disputed-bills-560007
-
-[Read on Telegram](https://t.me/livelawindia/125384)
+[Read on Telegram](https://t.me/livelawindia/125420)
 
 ---
-### 2026-11-25T15:34:49+00:00
-Prosecution Case Fails When Medical Evidence Is Completely Opposite Eyewitness Account : Supreme Court Acquits In 1986 Murder Case
-https://www.livelaw.in/supreme-court/prosecution-case-fails-when-medical-evidence-is-completely-opposite-eyewitness-account-supreme-court-acquits-in-1986-murder-case-560011
+### 2026-11-26T06:20:28+00:00
+Courts This Week | Azam Khan Gets Relief | ICJ On Rohingya Genocide | Bilkis Bano Case & More
+https://www.livelaw.in/videos/azam-khan-rohingya-bilkis-bano-supreme-court-clat-judiciary-upsc-news-law-legal-560066
 
-[Read on Telegram](https://t.me/livelawindia/125385)
-
----
-### 2026-11-25T15:36:29+00:00
-2026 LiveLaw (SC) 1203 | PRABHU SINGH VERSUS STATE OF UTTAR PRADESH
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1203-prabhu-singh-versus-state-of-uttar-pradesh-560012
-
-[Read on Telegram](https://t.me/livelawindia/125386)
+[Read on Telegram](https://t.me/livelawindia/125421)
 
 ---
-### 2026-11-25T15:55:39+00:00
-Call For Papers: International Conference On “Sea Lanes, Sanctions And Sovereignty” At TNDALU, Chennai
-https://www.livelaw.in/lawschool/call-for-papers/international-conference-sea-lanes-sanctions-sovereignty-tndalu-chennai-560018
+### 2026-11-26T06:24:48+00:00
+Look Out Circular Issued Against Saurav Das; Passport Discrepancies May Have Bearing On His Citizenship: Centre Informs Delhi High Court
+https://www.livelaw.in/high-court/delhi-high-court/saurav-das-loc-passport-discrepancies-citizenship-560069
 
-[Read on Telegram](https://t.me/livelawindia/125387)
-
----
-### 2026-11-25T15:56:59+00:00
-Mere Erection Of Tin Sheets To Cover Vacant Plot Not Unauthorised Construction: Delhi High Court Refuses Contempt Against MCD
-https://www.livelaw.in/high-court/delhi-high-court/mere-erection-of-tin-sheets-to-cover-vacant-plot-not-unauthorised-construction-delhi-high-court-refuses-contempt-against-mcd-560019
-
-[Read on Telegram](https://t.me/livelawindia/125388)
+[Read on Telegram](https://t.me/livelawindia/125422)
 
 ---
-### 2026-11-25T16:32:40+00:00
-Woman Alleges 7-Hour Detention Without Being Told Grounds, Delhi High Court Orders Preservation Of CCTV Footage
-https://www.livelaw.in/high-court/delhi-high-court/woman-alleges-7-hour-detention-without-being-told-grounds-delhi-high-court-orders-preservation-of-cctv-footage-560020
+### 2026-11-26T06:32:08+00:00
+Women's Reserved Seats In Public Transport Exist “More On Paper”: J&K&L High Court Seeks Compliance From Authorities
+https://www.livelaw.in/high-court/jammu-kashmir/womens-reserved-seats-in-public-transport-exist-more-on-paper-rather-than-presence-on-the-roads-jk-high-court-seeks-compliance-from-authorities-560047
 
-[Read on Telegram](https://t.me/livelawindia/125389)
-
----
-### 2026-11-25T16:48:10+00:00
-Delhi High Court Grants Anticipatory Bail To Lawyer Accused Of Molesting Woman On Pretext Of Offering Job, Cites Investigation Lapses
-https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-grants-anticipatory-bail-to-lawyer-accused-of-molesting-woman-on-pretext-of-offering-job-cites-investigation-lapses-560022
-
-[Read on Telegram](https://t.me/livelawindia/125390)
+[Read on Telegram](https://t.me/livelawindia/125423)
 
 ---
-### 2026-11-25T18:17:10+00:00
-LiveLaw High Courts Daily Highlights: November 25, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-25-2026-560023
+### 2026-11-26T06:33:08+00:00
+J&K&L High Court Says 2002 Order Protecting Dal, Nigeen & Anchar Lakes Will Override Conflicting Government Policies
+https://www.livelaw.in/high-court/jammu-kashmir/dal-nigeen-and-anchar-lakes-jk-high-court-reaffirms-primacy-of-2002-protection-order-seeks-fresh-reports-on-pollution-encroachments-and-construction-560050
 
-[Read on Telegram](https://t.me/livelawindia/125391)
+[Read on Telegram](https://t.me/livelawindia/125424)
 
 ---
-### 2026-11-25T18:23:11+00:00
-Supreme Court Daily Round-Up : November 25, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-november-25-2026-560013
+### 2026-11-26T06:37:38+00:00
+Gauhati High Court Allows Recall Of POCSO Victim For Further Cross-Examination Citing Defence Counsel's Oversight
+https://www.livelaw.in/high-court/gauhati-high-court/gauhati-high-court-directs-cross-examination-victim-alleged-rape-trial-stage-560071
 
-[Read on Telegram](https://t.me/livelawindia/125392)
+[Read on Telegram](https://t.me/livelawindia/125425)
+
+---
+### 2026-11-26T06:38:08+00:00
+PMLA Adjudicating Authority Must Have Judicial Member To Confirm Attachment, But Chairperson Can Be Non-Judicial : Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-judgment-whether-pmla-adjudicating-authority-can-be-single-bench-is-judicial-member-necessary-560073
+
+[Read on Telegram](https://t.me/livelawindia/125426)
+
+---
+### 2026-11-26T06:43:08+00:00
+Microfinance Fraud: Kerala High Court Questions Reluctance To Act Against 'Powerful Persons', Summons IO Over Failure To File All Final Reports
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-microfinance-fraud-investigating-officer-appearance-560072
+
+[Read on Telegram](https://t.me/livelawindia/125427)
+
+---
+### 2026-11-26T06:46:38+00:00
+LiveLaw Supreme Court Weekly Digest: October 01-16, 2026
+https://www.livelaw.in/supreme-court/supreme-court-judgments-and-orders-weekly-digest-october-2026-560074
+
+[Read on Telegram](https://t.me/livelawindia/125428)
+
+---
+### 2026-11-26T06:51:18+00:00
+Thiruparankundram | Supreme Court To Hear Fresh Plea For Deepathoon Lamp Lighting & Contempt Petitions Tomorrow
+https://www.livelaw.in/top-stories/thiruparankundram-supreme-court-to-hear-fresh-plea-for-deepathoon-lamp-lighting-contempt-petitions-tomorrow-560075
+
+[Read on Telegram](https://t.me/livelawindia/125429)
+
+---
+### 2026-11-26T07:08:18+00:00
+CJI Surya Kant Delivers Inaugural Address At Ambedkar National Law University Colloquium On Dharma, Constitutional Morality
+https://www.livelaw.in/lawschool/news/cji-surya-kant-delivers-inaugural-address-at-ambedkar-national-law-university-colloquium-on-dharma-constitutional-morality-560078
+
+[Read on Telegram](https://t.me/livelawindia/125430)
+
+---
+### 2026-11-26T07:15:38+00:00
+Minister Of State (MoS) Competent To Grant Prosecution Sanction Against Telecom Dept Officer Under PC Act: Allahabad High Court
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-minister-state-prosecution-sanction-telecom-officer-pc-act-560079
+
+[Read on Telegram](https://t.me/livelawindia/125431)
+
+---
+### 2026-11-26T07:25:18+00:00
+Supreme Court Directs Inquiry Committee To Examine Journalists' Allegation Of Police Abuse During Delhi CEC Protests
+https://www.livelaw.in/top-stories/supreme-court-directs-inquiry-committee-to-examine-journalists-allegation-of-police-abuse-during-delhi-cec-protests-560081
+
+[Read on Telegram](https://t.me/livelawindia/125432)
+
+---
+### 2026-11-26T07:30:58+00:00
+Courts Can't Be Mute Spectators To Insensitive Cross-Examination Of POCSO Victims By Defence Counsel: Madras High Court
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-pocso-court-not-mute-spectator-insensitive-questioning-defence-560082
+
+[Read on Telegram](https://t.me/livelawindia/125433)
+
+---
+### 2026-11-26T07:32:48+00:00
+Calcutta High Court Quashes Maintenance Case Against Husband, Imposes ₹20K Cost On Wife After Finding She Earned More Than Him
+https://www.livelaw.in/high-court/calcutta-high-court/calcutta-high-court-quashes-maintenance-case-against-husband-imposes-20k-cost-on-wife-after-finding-she-earned-more-than-him-560053
+
+[Read on Telegram](https://t.me/livelawindia/125434)
 
 ---
