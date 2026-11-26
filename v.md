@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-25T16:03:09+00:00*
+*Last Updated: 2026-11-26T08:33:16+00:00*
+
+---
+
+### 2026-11-26T08:33:16+00:00
+Balance-Sheet Entries Can Constitute Valid Acknowledgement Of Debt: Supreme Court Restores CIRP Application Before NCLT
+https://www.verdictum.in/supreme-court/uv-asset-reconstruction-company-limited-v-gautam-sinha-and-others-2026-insc-1263-1626513
+
+[Source Link](https://t.me/verdictumlegalupdates/30469)
+
+---
+
+### 2026-11-26T08:02:35+00:00
+Mere Erection Of Political Party Flagpoles In Public Place Not Sufficient To Attract Offence Under Open Places (Prevention Of Disfigurement) Act: Madras High Court
+https://www.verdictum.in/madras-high-court/shanmugavel-prabhakaran-shanmugavadivel-v-the-state-political-party-flagpoles-prevention-disfigurement-1626505
+
+[Source Link](https://t.me/verdictumlegalupdates/30468)
+
+---
+
+### 2026-11-26T07:33:09+00:00
+Eligibility Is Mere Qualifying Condition Which Can’t Create Right Where No Post Exists: Supreme Court
+https://www.verdictum.in/supreme-court/brij-kumar-mishra-v-nilamber-pitambar-university-ors-2026-insc-1271-eligibility-qualifying-condition-1626502
+
+[Source Link](https://t.me/verdictumlegalupdates/30467)
+
+---
+
+### 2026-11-26T07:02:48+00:00
+Stay Of Conviction Needs "Palpable Mistake" In Judgment; Legislator's Possible Disqualification Cannot Be Primary Ground: Supreme Court
+https://www.verdictum.in/supreme-court/state-of-karnataka-v-vinay-rajashekharappa-kulkarni-mla-vinay-kulkarnis-conviction-1626492
+
+[Source Link](https://t.me/verdictumlegalupdates/30466)
+
+---
+
+### 2026-11-26T06:15:27+00:00
+Breaking: Supreme Court Agrees To List Contempt Plea Against Madurai Collector & Urgent Plea To Light Lamp At Deepathoon On Nov 27
+https://www.verdictum.in/supreme-court/agrees-to-list-contempt-plea-against-madurai-collector-urgent-plea-light-lamp-deepathoon-1626495
+
+[Source Link](https://t.me/verdictumlegalupdates/30465)
+
+---
+
+### 2026-11-26T05:53:27+00:00
+Breaking: Supreme Court Quashes Premature Release Of Former MP Anand Mohan, Strikes Down Bihar's 2023 Prison Manual Amendment
+https://www.verdictum.in/supreme-court/quashes-premature-release-former-mp-anand-mohan-strikes-bihar-2023-prison-manual-amendment-1626493
+
+[Source Link](https://t.me/verdictumlegalupdates/30464)
+
+---
+
+### 2026-11-26T05:32:26+00:00
+Plea Of Repudiatory Breach Not Argued Before Arbitral Tribunal Cannot Resist Foreign Award Enforcement On Public-Policy Ground: Bombay High Court
+https://www.verdictum.in/bombay-high-court/total-energies-gas-power-limited-v-western-concessions-private-limited-2026bhc-os24618-1626487
+
+[Source Link](https://t.me/verdictumlegalupdates/30463)
+
+---
+
+### 2026-11-26T05:02:45+00:00
+Senior Citizens Act Has No Retrospective Effect To Cover Instruments Executed Before Enactment: Karnataka High Court
+https://www.verdictum.in/karnataka-high-court/gunashree-h-b-v-state-of-karnataka-2026khc63027-senior-citizens-no-retrospective-effect-1626481
+
+[Source Link](https://t.me/verdictumlegalupdates/30462)
+
+---
+
+### 2026-11-26T04:32:34+00:00
+Sale Deed For Uttar Pradesh Property Registered Outside State After 1994 Amendment Is Void: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/dharmendra-kumar-and-another-v-state-bank-of-india-and-others-2026ahc-lko83650-1626450
+
+[Source Link](https://t.me/verdictumlegalupdates/30461)
 
 ---
 
@@ -89,78 +161,6 @@ Supreme Court Sets Aside HC Order Suspending Vinay Kulkarni's Life Sentence In B
 https://www.verdictum.in/supreme-court/order-suspending-vinay-kulkarnis-life-sentence-in-bjp-leader-yogesh-goudar-murder-case-1626435
 
 [Source Link](https://t.me/verdictumlegalupdates/30450)
-
----
-
-### 2026-11-25T10:32:35+00:00
-Delhi High Court Refuses To Interfere With Govt's Decision To Shut Kartarpur Sahib Corridor For Pilgrims
-https://www.verdictum.in/delhi-high-court/govts-decision-shut-kartarpur-sahib-corridor-pilgrims-1626432
-
-[Source Link](https://t.me/verdictumlegalupdates/30449)
-
----
-
-### 2026-11-25T10:03:14+00:00
-Breaking| State Should Purge Itself Of Contempt: Petitioners Mention Fresh Plea Before SC For Permission To Light Deepam
-https://www.verdictum.in/supreme-court/fresh-application-before-sc-permission-light-deepam-thiruparankundram-1626434
-
-[Source Link](https://t.me/verdictumlegalupdates/30448)
-
----
-
-### 2026-11-25T09:32:53+00:00
-Supreme Court Sets Aside Allahabad HC Order Directing CBI, ED Verification of DA Allegations Against Rahul Gandhi
-https://www.verdictum.in/supreme-court/allahabad-hc-order-directing-cbi-ed-verification-da-allegations-against-rahul-gandhi-1626431
-
-[Source Link](https://t.me/verdictumlegalupdates/30447)
-
----
-
-### 2026-11-25T09:02:13+00:00
-Cognizance Of Food Safety Act Offences On Police Final Report Is Without Authority Of Law: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/kumar-shrikant-harugeri-v-state-of-karnataka-milk-adulteration-case-against-dairy-owner-1626420
-
-[Source Link](https://t.me/verdictumlegalupdates/30446)
-
----
-
-### 2026-11-25T08:22:12+00:00
-Thiruparankundram Deepam| Contemnors 'Hell Bent' On Non-Compliance From Inception, Made False Submission About Compliance Before HC: Contempt Plea Before SC
-https://www.verdictum.in/supreme-court/contempt-petition-thiruparankundram-deepam-deepathoon-1626428
-
-[Source Link](https://t.me/verdictumlegalupdates/30445)
-
----
-
-### 2026-11-25T07:46:11+00:00
-Temple Board Decided To Light Deepam At 'Customary' Spot, Did Not Authorise Team For Deepathoon: Madurai Collector Tells Supreme Court
-https://www.verdictum.in/supreme-court/temple-board-lit-karthigai-deepam-customary-spot-not-deepathoon-1626423
-
-[Source Link](https://t.me/verdictumlegalupdates/30444)
-
----
-
-### 2026-11-25T07:33:00+00:00
-Supreme Court Says It Is Inclined To Stay Calcutta HC's Order Deferring Civic Polls Till Decision On Delimitation
-https://www.verdictum.in/supreme-court/calcutta-hcs-order-deferring-civic-polls-till-decision-delimitation-stay-1626421
-
-[Source Link](https://t.me/verdictumlegalupdates/30443)
-
----
-
-### 2026-11-25T07:02:19+00:00
-Demise Of Landlord After Order Of Eviction Has Been Passed Is Not Itself Sufficient To Nullify Adjudicated Claim: Delhi High Court
-https://www.verdictum.in/delhi-high-court/nayabuddin-v-parveen-singh-2026dhc10259-demise-landlor-eviction-adjudicated-claim-1626415
-
-[Source Link](https://t.me/verdictumlegalupdates/30442)
-
----
-
-### 2026-11-25T06:22:38+00:00
-Supreme Court Issues Notice On Bail Pleas Of Umar Khalid, Sharjeel Imam; Refers Matter For Constitution Of Three-Judge Bench
-https://www.verdictum.in/supreme-court/issues-notice-on-bail-pleas-of-umar-khalid-sharjeel-imam-1626416
-
-[Source Link](https://t.me/verdictumlegalupdates/30441)
 
 ---
 
