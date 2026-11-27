@@ -1,6 +1,78 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-26T15:32:29+00:00*
+*Last Updated: 2026-11-27T08:31:20+00:00*
+
+---
+
+### 2026-11-27T08:31:20+00:00
+MHA Can’t Withhold Security Inputs From Court When Relying On Them To Cancel FCRA Registration: Delhi High Court
+https://www.verdictum.in/delhi-high-court/socio-legal-information-centre-v-union-of-india-2026dhc10474-mha-fcra-1626590
+
+[Source Link](https://t.me/verdictumlegalupdates/30492)
+
+---
+
+### 2026-11-27T08:02:35+00:00
+Competing Property Claims Requiring Evidence Should Be Decided By Civil Court, Not Under Article 226: Supreme Court
+https://www.verdictum.in/supreme-court/ajit-patel-v-evita-co-operative-housing-society-limited-and-others-2026-insc-1269-1626581
+
+[Source Link](https://t.me/verdictumlegalupdates/30491)
+
+---
+
+### 2026-11-27T07:31:54+00:00
+In-Depth Investigation Is Bound To Take Time: Delhi High Court Denies Bail To UAPA Accused
+https://www.verdictum.in/delhi-high-court/munzir-abubakar-kunnathpeedikal-v-national-investigating-agency-delay-due-to-in-depth-pan-india-investigation-1626579
+
+[Source Link](https://t.me/verdictumlegalupdates/30490)
+
+---
+
+### 2026-11-27T07:02:33+00:00
+Fire Policy's "Goods Held In Trust" Exclusion Cannot Be Applied Merely Because Stored Goods Belong To Third Parties: Supreme Court
+https://www.verdictum.in/supreme-court/ramsakhi-gupta-v-icici-lombard-general-insurance-co-ltd-farmers-produce-insurer-for-damaged-produce-1626575
+
+[Source Link](https://t.me/verdictumlegalupdates/30489)
+
+---
+
+### 2026-11-27T06:33:12+00:00
+Oil Dealership Can’t Be Terminated Without Mandatory Hearing Or Evidence Of Dealer’s Involvement In Manipulation: Allahabad High Court
+https://www.verdictum.in/allahabad-high-court/ms-aliganj-service-station-through-its-partners-and-others-v-indian-oil-corporation-limited-through-its-managing-director-and-others-2026ahc-lko83649-1626570
+
+[Source Link](https://t.me/verdictumlegalupdates/30488)
+
+---
+
+### 2026-11-27T06:02:47+00:00
+Sanctioning Of Posts For New NDPS Courts Does Not Create Vacancies Before Courts Commence Functioning: Kerala High Court
+https://www.verdictum.in/kerala-high-court/abibash-ps-v-principal-district-judge-palakkad-2026ker89676-sanction-of-posts-for-new-ndps-courts-1626569
+
+[Source Link](https://t.me/verdictumlegalupdates/30487)
+
+---
+
+### 2026-11-27T05:20:46+00:00
+Breaking| "Concerns Substantially Addressed": Apex Court Closes Sucheta Dalal's Plea On Unclaimed Deposits Of Deceased Account Holders
+https://www.verdictum.in/supreme-court/closes-sucheta-dalal-unclaimed-deposits-of-deceased-account-holders-1626568
+
+[Source Link](https://t.me/verdictumlegalupdates/30486)
+
+---
+
+### 2026-11-27T05:02:25+00:00
+Meritorious Reserved Candidates Must Be Placed In Open Category Even At Preliminary Stage: Allahabad High Court Quashes UPPSC APO 2025 Preliminary Result
+https://www.verdictum.in/allahabad-high-court/pankaj-verma-v-state-of-up-uppsc-apo-2025-preliminary-result-1626566
+
+[Source Link](https://t.me/verdictumlegalupdates/30485)
+
+---
+
+### 2026-11-27T04:32:14+00:00
+MCD Receipts, Municipal Correspondence & Electricity Bills Don’t Establish Property Ownership: Delhi High Court
+https://www.verdictum.in/delhi-high-court/neera-suri-v-jagjit-singh-sawhney-since-deceased-thr-lrs-2026dhc10404-mcd-receipts-ownership-1626541
+
+[Source Link](https://t.me/verdictumlegalupdates/30484)
 
 ---
 
@@ -89,78 +161,6 @@ Tamil Nadu Governor Invokes Article 167(b) To Seek Explanation From CM Vijay Ove
 https://www.verdictum.in/news/tamil-nadu-governor-invokes-article-167b-non-implementation-of-scs-deepam-order-1626521
 
 [Source Link](https://t.me/verdictumlegalupdates/30473)
-
----
-
-### 2026-11-26T10:02:38+00:00
-Using Live-In Partner’s Mobile Does Not Attract Offence Under Sections 65 & 66 IT Act Without Dishonest Or Fraudulent Intent: Karnataka High Court
-https://www.verdictum.in/karnataka-high-court/dtm-alias-n-and-others-v-state-of-karnataka-and-another-connected-with-gp-v-state-of-karnataka-and-another-1626519
-
-[Source Link](https://t.me/verdictumlegalupdates/30472)
-
----
-
-### 2026-11-26T09:32:37+00:00
-Internal Committee Under POSH Act Can Be Headed By Male Officer Where No Senior Woman Official Is Available: Calcutta High Court
-https://www.verdictum.in/calcutta-high-court/kajal-choubey-v-state-of-west-bengal-posh-act-male-officer-1626515
-
-[Source Link](https://t.me/verdictumlegalupdates/30471)
-
----
-
-### 2026-11-26T09:02:57+00:00
-Press Could Have Shown Some Sensitivity: Madras High Court Injuncts Media From Publishing Content Regarding Sexual Harassment Case Involving TVK MLA
-https://www.verdictum.in/madras-high-court/rthrishuli-v-the-secretary-press-media-content-sexual-harassment-case-tvk-mla-1626516
-
-[Source Link](https://t.me/verdictumlegalupdates/30470)
-
----
-
-### 2026-11-26T08:33:16+00:00
-Balance-Sheet Entries Can Constitute Valid Acknowledgement Of Debt: Supreme Court Restores CIRP Application Before NCLT
-https://www.verdictum.in/supreme-court/uv-asset-reconstruction-company-limited-v-gautam-sinha-and-others-2026-insc-1263-1626513
-
-[Source Link](https://t.me/verdictumlegalupdates/30469)
-
----
-
-### 2026-11-26T08:02:35+00:00
-Mere Erection Of Political Party Flagpoles In Public Place Not Sufficient To Attract Offence Under Open Places (Prevention Of Disfigurement) Act: Madras High Court
-https://www.verdictum.in/madras-high-court/shanmugavel-prabhakaran-shanmugavadivel-v-the-state-political-party-flagpoles-prevention-disfigurement-1626505
-
-[Source Link](https://t.me/verdictumlegalupdates/30468)
-
----
-
-### 2026-11-26T07:33:09+00:00
-Eligibility Is Mere Qualifying Condition Which Can’t Create Right Where No Post Exists: Supreme Court
-https://www.verdictum.in/supreme-court/brij-kumar-mishra-v-nilamber-pitambar-university-ors-2026-insc-1271-eligibility-qualifying-condition-1626502
-
-[Source Link](https://t.me/verdictumlegalupdates/30467)
-
----
-
-### 2026-11-26T07:02:48+00:00
-Stay Of Conviction Needs "Palpable Mistake" In Judgment; Legislator's Possible Disqualification Cannot Be Primary Ground: Supreme Court
-https://www.verdictum.in/supreme-court/state-of-karnataka-v-vinay-rajashekharappa-kulkarni-mla-vinay-kulkarnis-conviction-1626492
-
-[Source Link](https://t.me/verdictumlegalupdates/30466)
-
----
-
-### 2026-11-26T06:15:27+00:00
-Breaking: Supreme Court Agrees To List Contempt Plea Against Madurai Collector & Urgent Plea To Light Lamp At Deepathoon On Nov 27
-https://www.verdictum.in/supreme-court/agrees-to-list-contempt-plea-against-madurai-collector-urgent-plea-light-lamp-deepathoon-1626495
-
-[Source Link](https://t.me/verdictumlegalupdates/30465)
-
----
-
-### 2026-11-26T05:53:27+00:00
-Breaking: Supreme Court Quashes Premature Release Of Former MP Anand Mohan, Strikes Down Bihar's 2023 Prison Manual Amendment
-https://www.verdictum.in/supreme-court/quashes-premature-release-former-mp-anand-mohan-strikes-bihar-2023-prison-manual-amendment-1626493
-
-[Source Link](https://t.me/verdictumlegalupdates/30464)
 
 ---
 
