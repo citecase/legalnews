@@ -1,6 +1,118 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-27T08:31:20+00:00*
+*Last Updated: 2026-11-27T16:02:50+00:00*
+
+---
+
+### 2026-11-27T16:02:50+00:00
+Deputy Manager (Law) vacancy At National Small Industries Corporation Ltd. (NSIC)
+https://www.verdictum.in/job-updates/national-small-industries-corporation-ltd-1626606
+
+[Source Link](https://t.me/verdictumlegalupdates/30506)
+
+---
+
+### 2026-11-27T15:12:29+00:00
+Revised Petrol-Pump Site Plan Requires Fresh ADM NOC Despite PESO Approval: Kerala High Court
+https://www.verdictum.in/kerala-high-court/naseef-meethale-paingol-v-sreekandhan-r-territory-manager-bharat-petroleum-corporation-neutral-citation-2026ker86683-1626616
+
+[Source Link](https://t.me/verdictumlegalupdates/30505)
+
+---
+
+### 2026-11-27T14:32:48+00:00
+Judicial Member Need Not Chair PMLA Adjudicating Authority But Must Sit On Bench Adjudicating Under Sections 8(2) & 8(3) Of The Act: Supreme Court
+https://www.verdictum.in/supreme-court/union-of-india-and-others-v-j-sekar-with-connected-matters-2026-insc-1277-1626615
+
+[Source Link](https://t.me/verdictumlegalupdates/30504)
+
+---
+
+### 2026-11-27T14:02:48+00:00
+Do Not Place Courts In An Adversarial Role: Supreme Court Criticises Senior Advocate Who Responded Acrimoniously To Its Queries
+https://www.verdictum.in/supreme-court/p-kathirvel-v-state-the-manner-in-which-senior-counsel-responded-to-its-queries-belligerently-1626614
+
+[Source Link](https://t.me/verdictumlegalupdates/30503)
+
+---
+
+### 2026-11-27T13:32:47+00:00
+Do Secured Creditors Under SARFAESI Have Priority Over MPID Depositors? Supreme Court Refers Issue To Three-Judge Bench
+https://www.verdictum.in/supreme-court/state-bank-of-india-v-state-of-maharashtra-and-others-2026-insc-1279-1626600
+
+[Source Link](https://t.me/verdictumlegalupdates/30502)
+
+---
+
+### 2026-11-27T13:02:46+00:00
+Work Rather Than Facing Wrath Of Court: Supreme Court Raps Rajasthan Over Jojari-Bandi-Luni Contamination
+https://www.verdictum.in/supreme-court/supreme-court-raps-rajasthan-over-jojari-bandi-luni-contamination-1626604
+
+[Source Link](https://t.me/verdictumlegalupdates/30501)
+
+---
+
+### 2026-11-27T12:32:45+00:00
+Non-Believers Among Trustees Of Thiruparankundram Temple: Solicitor General Tells Supreme Court, All Trustees Ordered To Appear In Person
+https://www.verdictum.in/supreme-court/asks-trustees-thiruparankundram-temple-appear-person-1626610
+
+[Source Link](https://t.me/verdictumlegalupdates/30500)
+
+---
+
+### 2026-11-27T12:02:41+00:00
+Sanctioning Authority Cannot Change Opinion On Same Materials Merely On A Nudge By Vigilance Commission: Supreme Court Quashes Prosecution Of Customs Examiner
+https://www.verdictum.in/supreme-court/p-kathirvel-v-state-criminal-culpability-of-customs-officers-1626601
+
+[Source Link](https://t.me/verdictumlegalupdates/30499)
+
+---
+
+### 2026-11-27T11:32:40+00:00
+Supreme Court Directs Sale Certificates For Eligible Buyers, Refund With 8% Interest For Others In Decade Old PACL Plot-Allotment Dispute
+https://www.verdictum.in/supreme-court/subrata-bhattacharya-v-securities-and-exchange-board-of-india-and-others-1626598
+
+[Source Link](https://t.me/verdictumlegalupdates/30498)
+
+---
+
+### 2026-11-27T10:50:40+00:00
+Seem To Have Acted At Dictates Of Political Bosses: Apex Court Directs TN Chief Secretary To Disclose Emails, Calls & Texts Between Officials
+https://www.verdictum.in/supreme-court/directs-tn-chief-secretary-to-disclose-emails-calls-texts-exchanged-between-officials-1626599
+
+[Source Link](https://t.me/verdictumlegalupdates/30497)
+
+---
+
+### 2026-11-27T10:32:39+00:00
+Supreme Court Grants Bail To Former AAP MLA Naresh Balyan In MCOCA Case
+https://www.verdictum.in/supreme-court/bail-to-former-aap-mla-naresh-balyan-in-mcoca-case-1626593
+
+[Source Link](https://t.me/verdictumlegalupdates/30496)
+
+---
+
+### 2026-11-27T09:51:38+00:00
+Breaking: Supreme Court Directs Lighting Of Lamp At Deepathoon Tomorrow, Appoints Two Former Judges As Receivers Of Temple, Hands Security To CRPF
+https://www.verdictum.in/supreme-court/directs-lighting-of-lamp-at-deepathoon-november-28-two-former-judges-receivers-hands-security-crpf-1626597
+
+[Source Link](https://t.me/verdictumlegalupdates/30495)
+
+---
+
+### 2026-11-27T09:33:17+00:00
+'Who Is Stopping You?': Supreme Court Junks Plea Against Videos Of European Socialist Leader's 'Vote Chor' Slogan
+https://www.verdictum.in/supreme-court/plea-against-videos-of-european-socialist-leaders-vote-chor-slogan-1626592
+
+[Source Link](https://t.me/verdictumlegalupdates/30494)
+
+---
+
+### 2026-11-27T09:02:36+00:00
+Apex Court Grants 3-Week Interim Bail To AAP Leader Deepak Singla In Rs 155-Crore Bank Fraud Money Laundering Case
+https://www.verdictum.in/supreme-court/3-week-interim-bail-to-aap-leader-deepak-singla-in-rs-155-crore-bank-fraud-money-laundering-case-1626591
+
+[Source Link](https://t.me/verdictumlegalupdates/30493)
 
 ---
 
@@ -49,118 +161,6 @@ Sanctioning Of Posts For New NDPS Courts Does Not Create Vacancies Before Courts
 https://www.verdictum.in/kerala-high-court/abibash-ps-v-principal-district-judge-palakkad-2026ker89676-sanction-of-posts-for-new-ndps-courts-1626569
 
 [Source Link](https://t.me/verdictumlegalupdates/30487)
-
----
-
-### 2026-11-27T05:20:46+00:00
-Breaking| "Concerns Substantially Addressed": Apex Court Closes Sucheta Dalal's Plea On Unclaimed Deposits Of Deceased Account Holders
-https://www.verdictum.in/supreme-court/closes-sucheta-dalal-unclaimed-deposits-of-deceased-account-holders-1626568
-
-[Source Link](https://t.me/verdictumlegalupdates/30486)
-
----
-
-### 2026-11-27T05:02:25+00:00
-Meritorious Reserved Candidates Must Be Placed In Open Category Even At Preliminary Stage: Allahabad High Court Quashes UPPSC APO 2025 Preliminary Result
-https://www.verdictum.in/allahabad-high-court/pankaj-verma-v-state-of-up-uppsc-apo-2025-preliminary-result-1626566
-
-[Source Link](https://t.me/verdictumlegalupdates/30485)
-
----
-
-### 2026-11-27T04:32:14+00:00
-MCD Receipts, Municipal Correspondence & Electricity Bills Don’t Establish Property Ownership: Delhi High Court
-https://www.verdictum.in/delhi-high-court/neera-suri-v-jagjit-singh-sawhney-since-deceased-thr-lrs-2026dhc10404-mcd-receipts-ownership-1626541
-
-[Source Link](https://t.me/verdictumlegalupdates/30484)
-
----
-
-### 2026-11-26T15:32:29+00:00
-Property Being In Wife’s Possession Doesn’t Establish That It Is Enough To Maintain Her: Supreme Court Allows Wife To Retain Possession Of Husband's Property
-https://www.verdictum.in/supreme-court/a-v-b-2026-insc-1273-property-wife-possession-maintenance-relief-woman-1626539
-
-[Source Link](https://t.me/verdictumlegalupdates/30483)
-
----
-
-### 2026-11-26T15:03:06+00:00
-Magistrate Can Treat Protest Petition As Complaint Only When It Contains Specific Allegation Against Accused Persons & Witnesses’ List: Supreme Court
-https://www.verdictum.in/supreme-court/deepti-singh-v-state-of-up-2026-insc-1264-magistrate-protest-petition-complaint-chapter-xv-crpc-1626537
-
-[Source Link](https://t.me/verdictumlegalupdates/30482)
-
----
-
-### 2026-11-26T14:33:05+00:00
-Involvement With Naxals In Discharge Of Hippocratic Oath Cannot Be Ruled Out: Supreme Court Grants Bail To Doctor In UAPA Case
-https://www.verdictum.in/supreme-court/pawankumar-fakirchand-uike-v-state-of-maharashtra-2026-insc-1268-involvement-naxals-doctor-uapa-1626536
-
-[Source Link](https://t.me/verdictumlegalupdates/30481)
-
----
-
-### 2026-11-26T14:02:25+00:00
-Phone Calls With Co-Accused At Time Of Alleged Murder Lend Credence To Motive: Delhi High Court Denies Bail To Woman Accused Of Killing Husband
-https://www.verdictum.in/delhi-high-court/hema-v-state-of-nct-of-delhi-wife-murdered-husband-illicit-affair-1626533
-
-[Source Link](https://t.me/verdictumlegalupdates/30480)
-
----
-
-### 2026-11-26T13:33:04+00:00
-Right To Health Requires Effective Labelling: Supreme Court Directs FSSAI To Use Separate Pictorial Hexagons For Total Sugar, Saturated Fat And Salt
-https://www.verdictum.in/supreme-court/3s-and-our-health-society-v-union-of-india-and-others-2026-insc-1275-1626532
-
-[Source Link](https://t.me/verdictumlegalupdates/30479)
-
----
-
-### 2026-11-26T13:03:03+00:00
-Cancellation Report Accepted By Magistrate Is Not "Acquittal" Under Rule 12 Of Delhi Police (Punishment And Appeal) Rules: Delhi High Court
-https://www.verdictum.in/delhi-high-court/commissioner-of-police-delhi-v-h-s-saini-1626530
-
-[Source Link](https://t.me/verdictumlegalupdates/30478)
-
----
-
-### 2026-11-26T12:32:22+00:00
-Upper Age Limit Of 65 Years For ASI-Licensed Taj Mahal Photographers Is Discriminatory & Affects Right To Livelihood: Delhi High Court
-https://www.verdictum.in/delhi-high-court/prabhakar-singh-pal-v-union-of-india-65-years-asi-licensed-taj-mahal-photographers-1626529
-
-[Source Link](https://t.me/verdictumlegalupdates/30477)
-
----
-
-### 2026-11-26T12:02:21+00:00
-Absence Of Insurer's Liability Not An Absolute Bar To "Pay And Recover" Direction Under Article 142 Constitution: Supreme Court
-https://www.verdictum.in/supreme-court/sukumarbai-v-united-india-insurance-company-ltd-2026-insc-1272-insurers-liability-article-142-1626525
-
-[Source Link](https://t.me/verdictumlegalupdates/30476)
-
----
-
-### 2026-11-26T11:32:41+00:00
-Section 11 Arbitration Act Applications Not Maintainable For Land Acquisition Disputes Under National Highways Act: Rajasthan High Court
-https://www.verdictum.in/rajasthan-high-court/parvesh-kohli-v-union-of-india-2026rj-jp47564-applications-section-11-arbitration-conciliation-act-1626522
-
-[Source Link](https://t.me/verdictumlegalupdates/30475)
-
----
-
-### 2026-11-26T11:02:40+00:00
-Compulsory Third Party Insurance U/S 147 MV Act Does Not Automatically Cover Gratuitous Occupants Of Private Vehicles Or Pillion Riders Under Act Only Policy: Supreme Court
-https://www.verdictum.in/supreme-court/sukumarbai-v-united-india-insurance-company-ltd-act-only-policy-compulsory-insurance-us-147-mv-act-1626520
-
-[Source Link](https://t.me/verdictumlegalupdates/30474)
-
----
-
-### 2026-11-26T10:32:39+00:00
-Tamil Nadu Governor Invokes Article 167(b) To Seek Explanation From CM Vijay Over Non-Implementation Of SC's Deepam Order
-https://www.verdictum.in/news/tamil-nadu-governor-invokes-article-167b-non-implementation-of-scs-deepam-order-1626521
-
-[Source Link](https://t.me/verdictumlegalupdates/30473)
 
 ---
 
