@@ -1,146 +1,146 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-26T11:52:40+00:00*
+*Last Updated: 2026-11-27T04:35:25+00:00*
 
 ---
 
-### 2026-11-26T11:52:40+00:00
-PMLA Court Cannot Order Defreezing Of Accused's Bank Account In Medical Bail Proceedings: Calcutta High Court
-https://www.livelaw.in/high-court/calcutta-high-court/pmla-court-cannot-order-defreezing-of-accuseds-bank-account-in-medical-bail-proceedings-calcutta-high-court-560054
+### 2026-11-27T04:35:25+00:00
+Retrospective Extension Of Govt Employee's Suspension Can't Cure Failure To Review It Within 90 Days: Gauhati High Court
+https://www.livelaw.in/high-court/gauhati-high-court/retrospective-extension-of-govt-employees-suspension-cant-cure-failure-to-review-it-within-90-days-560220
 
-[Read on Telegram](https://t.me/livelawindia/125476)
-
----
-### 2026-11-26T12:11:30+00:00
-Support Person Vacancy At District Child Protection Unit, Pudukkottai
-https://www.livelaw.in/job-updates/support-person-vacancy-at-district-child-protection-unit-pudukkottai-560159
-
-[Read on Telegram](https://t.me/livelawindia/125477)
+[Read on Telegram](https://t.me/livelawindia/125503)
 
 ---
-### 2026-11-26T12:33:30+00:00
-Compensation Under Probation Of Offenders Act Is Not 'Fine', Can't Attract Service Disqualification: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-probation-of-offenders-act-compensation-not-fine-560166
+### 2026-11-27T04:40:05+00:00
+Wife's Capacity To Earn Doesn't By Itself Defeat Her Right To Maintenance: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-wife-educational-qualification-husband-maintenance-obligation-560221
 
-[Read on Telegram](https://t.me/livelawindia/125478)
-
----
-### 2026-11-26T12:36:50+00:00
-Bengaluru Court Grants Pre-Arrest Bail To Author & Journalist Booked Over Allegedly Offensive References To Basavanna
-https://www.livelaw.in/news-updates/aba-granted-nri-author-ravi-hanj-editor-vishweshwar-bhat-560168
-
-[Read on Telegram](https://t.me/livelawindia/125479)
+[Read on Telegram](https://t.me/livelawindia/125504)
 
 ---
-### 2026-11-26T13:37:40+00:00
-Supreme Court Must Not Remain A Court Of Privileged Few : CJI Surya Kant On Constitution Day
-https://www.livelaw.in/top-stories/supreme-court-must-not-remain-a-court-of-privileged-few-cji-surya-kant-on-constitution-day-560176
+### 2026-11-27T04:50:05+00:00
+Rajasthan High Court Imposes ₹50,000 Cost On Chief Secretary Over 6-Year Delay In Addressing Family Court Infrastructure Concerns
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-imposes-cost-chief-secretary-state-failure-lack-basic-facilities-560222
 
-[Read on Telegram](https://t.me/livelawindia/125480)
-
----
-### 2026-11-26T13:48:10+00:00
-Surat Demolition: Gujarat High Court Keeps In Abeyance Order Summoning Municipal Commissioner, Standing Committee Head
-https://www.livelaw.in/high-court/gujarat-high-court/gujarat-high-court-personal-appearance-municipal-commissioner-surat-demolition-560179
-
-[Read on Telegram](https://t.me/livelawindia/125481)
+[Read on Telegram](https://t.me/livelawindia/125505)
 
 ---
-### 2026-11-26T13:55:50+00:00
-Lawyers Must Not Acrimoniously Respond To Judge's Queries : Supreme Court Cautions Senior Advocate Over Heated Exchanges
-https://www.livelaw.in/supreme-court/lawyers-must-not-acrimoniously-respond-to-judges-queries-supreme-court-cautions-senior-advocate-over-heated-exchanges-560183
+### 2026-11-27T05:01:25+00:00
+'Zero Tolerance' Claims, But No Action: Allahabad High Court Says State Officials Aid & Abet Public Land Encroachers
+https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-state-officials-land-encroachers-560223
 
-[Read on Telegram](https://t.me/livelawindia/125482)
-
----
-### 2026-11-26T13:58:11+00:00
-UP Public Service Commission Lacks Legislative Competence To Decide Reservation Policy: Allahabad High Court Quashes 2020 Office Memorandum
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-strikes-down-office-memorandum-560182
-
-[Read on Telegram](https://t.me/livelawindia/125483)
+[Read on Telegram](https://t.me/livelawindia/125506)
 
 ---
-### 2026-11-26T14:01:51+00:00
-2026 LiveLaw (SC) 1213 |P. Kathirvel Versus State
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1213-p-kathirvel-versus-state-560186
+### 2026-11-27T05:03:45+00:00
+Adjudicating Officer Vacancy At Real Estate Regulatory Authority, Bihar
+https://www.livelaw.in/job-updates/adjudicating-officer-vacancy-at-real-estate-regulatory-authority-bihar-560224
 
-[Read on Telegram](https://t.me/livelawindia/125484)
-
----
-### 2026-11-26T14:07:11+00:00
-Telangana High Court Laments Parents Engaging In Matrimonial Disputes Instead Of Caring For Child With Neurodevelopment Issues
-https://www.livelaw.in/high-court/telangana-high-court/telangana-high-court-sets-aside-husband-detention-violating-interim-anti-suit-injunction-560181
-
-[Read on Telegram](https://t.me/livelawindia/125485)
+[Read on Telegram](https://t.me/livelawindia/125507)
 
 ---
-### 2026-11-26T14:21:31+00:00
-Parliament To Have Special Session From November 30 To December 3 For 'Essential Govt Business'
-https://www.livelaw.in/top-stories/parliament-to-have-special-session-from-november-30-to-december-3-for-essential-govt-business-560188
+### 2026-11-27T05:04:26+00:00
+Empanelment As Legal Services Advocates For Specialised Panel Vacancy At Delhi State Legal Services Authority (DSLSA)
+https://www.livelaw.in/job-updates/empanelment-as-legal-services-advocates-for-specialised-panel-vacancy-at-delhi-state-legal-services-authority-dslsa-560225
 
-[Read on Telegram](https://t.me/livelawindia/125486)
-
----
-### 2026-11-26T14:33:01+00:00
-Allahabad High Court Quashes Assistant Prosecution Officer Prelims Results, Says Unreserved Category Open To All At Every Stage
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-quashes-apo-prelims-result-560184
-
-[Read on Telegram](https://t.me/livelawindia/125487)
+[Read on Telegram](https://t.me/livelawindia/125508)
 
 ---
-### 2026-11-26T14:33:21+00:00
-When Faster Is Not Better: Rethinking Procedural Efficiency In Arbitration
-https://www.livelaw.in/articles/rethinking-procedural-efficiency-arbitration-560127
+### 2026-11-27T05:05:26+00:00
+Legal Consultant Vacancy At Archaeological Survey Of India
+https://www.livelaw.in/job-updates/legal-consultant-vacancy-at-archaeological-survey-of-india-560226
 
-[Read on Telegram](https://t.me/livelawindia/125488)
-
----
-### 2026-11-26T14:53:21+00:00
-Merely Because Paddy Land Was Left Fallow, It Cannot Be Treated As Converted Land : Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-land-left-fallow-continues-to-be-paddy-land-560193
-
-[Read on Telegram](https://t.me/livelawindia/125489)
+[Read on Telegram](https://t.me/livelawindia/125509)
 
 ---
-### 2026-11-26T15:01:41+00:00
-Legislator's Conviction Can't Be Stayed Only To Avoid Disqualification : Supreme Court
-https://www.livelaw.in/top-stories/legislators-conviction-cant-be-stayed-only-to-avoid-disqualification-supreme-court-560195
+### 2026-11-27T05:06:46+00:00
+Chief General Manager (Law) Vacancy At GAIL (India) Limited
+https://www.livelaw.in/job-updates/chief-general-manager-law-vacancy-at-gail-india-limited-560227
 
-[Read on Telegram](https://t.me/livelawindia/125490)
-
----
-### 2026-11-26T15:10:51+00:00
-Kerala High Court Appoints Amicus In Rahul Mamkootathil's Plea Against Order To Give Mobile Phone Passcodes To Police
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-rahul-mamkootathil-passcode-mobile-amicus-560197
-
-[Read on Telegram](https://t.me/livelawindia/125491)
+[Read on Telegram](https://t.me/livelawindia/125510)
 
 ---
-### 2026-11-26T16:02:01+00:00
-2026 LiveLaw (SC) | 1214 UNION OF INDIA Vs J. SEKAR
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1214-union-of-india-vs-j-sekar-560206
+### 2026-11-27T05:17:56+00:00
+FCRA Compliance Does Not Mean Mechanical Compliance: Delhi High Court Sets Aside Cancellation Of Legal Aid NGO's Registration
+https://www.livelaw.in/high-court/delhi-high-court/fcra-compliance-does-not-mean-mechanical-compliance-delhi-high-court-sets-aside-cancellation-of-legal-aid-ngos-registration-560228
 
-[Read on Telegram](https://t.me/livelawindia/125492)
-
----
-### 2026-11-26T16:19:22+00:00
-Those Who Drew Innocent People To Naxalism Must Be Held Accountable : President Droupadi Murmu
-https://www.livelaw.in/top-stories/those-who-drew-innocent-people-to-naxalism-must-be-held-accountable-president-droupadi-murmu-560210
-
-[Read on Telegram](https://t.me/livelawindia/125493)
+[Read on Telegram](https://t.me/livelawindia/125511)
 
 ---
-### 2026-11-26T18:17:53+00:00
-LiveLaw High Courts Daily Highlights: November 26, 2026
-https://www.livelaw.in/high-court/all-high-courts/high-courts-daily-highlights-november-26-2026-560201
+### 2026-11-27T05:18:56+00:00
+Madras High Court Bars Bye-Election In Seat Vacated By CM Vijay & Two Others Till Election Petitions Are Decided
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-bars-bye-election-in-seat-vacated-by-cm-vijay-two-others-till-election-petitions-are-decided-560229
 
-[Read on Telegram](https://t.me/livelawindia/125494)
+[Read on Telegram](https://t.me/livelawindia/125512)
 
 ---
-### 2026-11-26T18:27:33+00:00
-Supreme Court Daily Round-Up : November 26, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-november-26-2026-560208
+### 2026-11-27T05:22:56+00:00
+Madras High Court Dismisses CM Vijay's Plea To Reject Election Petition, Says Allegations Of Asset Suppression Require Trial
+https://www.livelaw.in/high-court/madras-high-court/madras-high-court-cm-joseph-vijay-perambur-victory-challenge-refuse-to-reject-560230
 
-[Read on Telegram](https://t.me/livelawindia/125495)
+[Read on Telegram](https://t.me/livelawindia/125513)
+
+---
+### 2026-11-27T05:27:16+00:00
+Supreme Court Appreciates Sucheta Dalal's PIL On Unclaimed Financial Assets, Disposes Plea Noting Measures Taken By Authorities
+https://www.livelaw.in/top-stories/supreme-court-appreciates-sucheta-dalals-pil-on-unclaimed-financial-assets-disposes-plea-noting-measures-taken-by-authorities-560231
+
+[Read on Telegram](https://t.me/livelawindia/125514)
+
+---
+### 2026-11-27T05:34:56+00:00
+State Has Right To Choose Its Lawyers Just Like Any Other Client: Kerala High Court Upholds Replacement Of Govt Pleaders Before End Of Tenure
+https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-states-power-replace-additional-district-government-pleaders-and-public-prosecutors-tenure-560232
+
+[Read on Telegram](https://t.me/livelawindia/125515)
+
+---
+### 2026-11-27T05:46:16+00:00
+Supreme Court Grants Bail To AAP Leader Naresh Balyan In MCOCA Case
+https://www.livelaw.in/top-stories/supreme-court-grants-bail-to-aap-leader-naresh-balyan-in-mcoca-case-560234
+
+[Read on Telegram](https://t.me/livelawindia/125516)
+
+---
+### 2026-11-27T05:53:26+00:00
+Delhi High Court Issues Notice On Plea Challenging BCI Circular Restricting Internships To Vacations
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-issues-notice-on-plea-challenging-bci-circular-restricting-internships-to-vacations-560235
+
+[Read on Telegram](https://t.me/livelawindia/125517)
+
+---
+### 2026-11-27T06:02:26+00:00
+Delhi High Court Pulls Up Customs For 'Lackadaisical Approach' In Opposing Bail Of Woman Accused Of Smuggling Heroin
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-pulls-up-customs-for-lackadaisical-approach-in-opposing-bail-of-woman-accused-of-smuggling-heroin-560236
+
+[Read on Telegram](https://t.me/livelawindia/125518)
+
+---
+### 2026-11-27T06:18:46+00:00
+High Court Cannot Act Like An Appellate Court Under Article 227 Supervisory Jurisdiction : Supreme Court
+https://www.livelaw.in/supreme-court/high-court-cannot-act-like-an-appellate-court-under-article-227-supervisory-jurisdiction-supreme-court-560238
+
+[Read on Telegram](https://t.me/livelawindia/125519)
+
+---
+### 2026-11-27T06:20:06+00:00
+2026 LiveLaw (SC) 1215 |  DESTINI REALPRO DEVELOPERS LLP (FORMERLY KNOWN AS M/S FENKIN INFOTECH LLP) VERSUS ANIRUDDH NIKHIL MAKHECHA & ORS. (with connected cases)
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1215-destini-realpro-developers-llp-formerly-known-as-ms-fenkin-infotech-llp-versus-aniruddh-nikhil-makhecha-ors-with-connected-cases-560239
+
+[Read on Telegram](https://t.me/livelawindia/125520)
+
+---
+### 2026-11-27T06:29:46+00:00
+Delhi High Court Rejects Writ To Declare Its Bar Association A 'Public Authority' Under RTI Act
+https://www.livelaw.in/high-court/delhi-high-court/delhi-high-court-rejects-writ-to-declare-its-bar-association-a-public-authority-under-rti-act-560241
+
+[Read on Telegram](https://t.me/livelawindia/125521)
+
+---
+### 2026-11-27T07:33:26+00:00
+10 Former Chief Justices Of India Inaugurate First-Ever CJI Museum At Jindal Global University
+https://www.livelaw.in/lawschool/news/10-former-chief-justices-india-inaugurate-first-ever-cji-museum-jindal-global-university-560255
+
+[Read on Telegram](https://t.me/livelawindia/125522)
 
 ---
