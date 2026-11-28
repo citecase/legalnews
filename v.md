@@ -1,6 +1,46 @@
 # Verdictum Legal Updates
 
-*Last Updated: 2026-11-27T16:02:50+00:00*
+*Last Updated: 2026-11-28T07:52:26+00:00*
+
+---
+
+### 2026-11-28T07:52:26+00:00
+Distribution Licence Cannot Continue In Perpetuity; Deemed Licensee Gets No Fresh 25-Year Term From Electricity Act Commencement: Supreme Court
+https://www.verdictum.in/supreme-court/state-of-uttar-pradesh-v-noida-power-company-limited-and-another-connected-matters-2026-insc-1286-1626659
+
+[Source Link](https://t.me/verdictumlegalupdates/30511)
+
+---
+
+### 2026-11-28T07:02:45+00:00
+Loyal Consumers Likely To Be Misled: Delhi High Court Restrains iQ Gin's Look-Alike Bottle & Trade Dress
+https://www.verdictum.in/delhi-high-court/nao-spirits-and-beverages-private-limited-v-mohan-meakin-limited-gin-bottle-trade-dress-1626653
+
+[Source Link](https://t.me/verdictumlegalupdates/30510)
+
+---
+
+### 2026-11-28T06:12:44+00:00
+Quantum of Sentence May Not Always Be Overbearing Consideration For Suspension Of Sentence; Gravity Of Crime May Take Precedence: Supreme Court
+https://www.verdictum.in/supreme-court/state-of-karnataka-v-vinay-rajashekharappa-kulkarni-2026-insc-1265-conviction-mla-murder-1626647
+
+[Source Link](https://t.me/verdictumlegalupdates/30509)
+
+---
+
+### 2026-11-28T05:22:49+00:00
+Article 227 Constitution| High Court Can't Act Like Appellate Court Over Charity Commissioner's Reasoned Sanction For Sale Of Trust Land: Supreme Court
+https://www.verdictum.in/supreme-court/destini-realpro-developers-llp-formerly-known-as-ms-fenkin-infotech-llp-v-aniruddh-nikhil-makhecha-section-36-maharashtra-public-trusts-act-1950-1626644
+
+[Source Link](https://t.me/verdictumlegalupdates/30508)
+
+---
+
+### 2026-11-28T04:33:08+00:00
+Banks Must Ensure Hassle-Free Transactions For Senior Citizens: Bombay High Court
+https://www.verdictum.in/bombay-high-court/ashwin-shantilal-khandwala-v-the-reserve-bank-of-india-ors-senior-citizens-1626634
+
+[Source Link](https://t.me/verdictumlegalupdates/30507)
 
 ---
 
@@ -121,46 +161,6 @@ MHA Can’t Withhold Security Inputs From Court When Relying On Them To Cancel F
 https://www.verdictum.in/delhi-high-court/socio-legal-information-centre-v-union-of-india-2026dhc10474-mha-fcra-1626590
 
 [Source Link](https://t.me/verdictumlegalupdates/30492)
-
----
-
-### 2026-11-27T08:02:35+00:00
-Competing Property Claims Requiring Evidence Should Be Decided By Civil Court, Not Under Article 226: Supreme Court
-https://www.verdictum.in/supreme-court/ajit-patel-v-evita-co-operative-housing-society-limited-and-others-2026-insc-1269-1626581
-
-[Source Link](https://t.me/verdictumlegalupdates/30491)
-
----
-
-### 2026-11-27T07:31:54+00:00
-In-Depth Investigation Is Bound To Take Time: Delhi High Court Denies Bail To UAPA Accused
-https://www.verdictum.in/delhi-high-court/munzir-abubakar-kunnathpeedikal-v-national-investigating-agency-delay-due-to-in-depth-pan-india-investigation-1626579
-
-[Source Link](https://t.me/verdictumlegalupdates/30490)
-
----
-
-### 2026-11-27T07:02:33+00:00
-Fire Policy's "Goods Held In Trust" Exclusion Cannot Be Applied Merely Because Stored Goods Belong To Third Parties: Supreme Court
-https://www.verdictum.in/supreme-court/ramsakhi-gupta-v-icici-lombard-general-insurance-co-ltd-farmers-produce-insurer-for-damaged-produce-1626575
-
-[Source Link](https://t.me/verdictumlegalupdates/30489)
-
----
-
-### 2026-11-27T06:33:12+00:00
-Oil Dealership Can’t Be Terminated Without Mandatory Hearing Or Evidence Of Dealer’s Involvement In Manipulation: Allahabad High Court
-https://www.verdictum.in/allahabad-high-court/ms-aliganj-service-station-through-its-partners-and-others-v-indian-oil-corporation-limited-through-its-managing-director-and-others-2026ahc-lko83649-1626570
-
-[Source Link](https://t.me/verdictumlegalupdates/30488)
-
----
-
-### 2026-11-27T06:02:47+00:00
-Sanctioning Of Posts For New NDPS Courts Does Not Create Vacancies Before Courts Commence Functioning: Kerala High Court
-https://www.verdictum.in/kerala-high-court/abibash-ps-v-principal-district-judge-palakkad-2026ker89676-sanction-of-posts-for-new-ndps-courts-1626569
-
-[Source Link](https://t.me/verdictumlegalupdates/30487)
 
 ---
 
