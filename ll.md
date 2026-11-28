@@ -1,146 +1,147 @@
 # LiveLaw India Latest Updates
 
-*Last Updated: 2026-11-27T11:31:38+00:00*
+*Last Updated: 2026-11-28T04:59:26+00:00*
 
 ---
 
-### 2026-11-27T11:31:38+00:00
-Victim Has Right To Be Heard Before Convict Is Granted Remission : Supreme Court
-https://www.livelaw.in/supreme-court/victim-has-right-to-be-heard-before-convict-is-granted-remission-supreme-court-560304
+### 2026-11-28T04:59:26+00:00
+DRT Issuing Recovery Certificate Can Execute It Against Property Outside Its Jurisdiction : Supreme Court
+https://www.livelaw.in/supreme-court/drt-issuing-recovery-certificate-can-execute-it-against-property-outside-its-jurisdiction-supreme-court-560352
 
-[Read on Telegram](https://t.me/livelawindia/125546)
-
----
-### 2026-11-27T11:32:18+00:00
-Senior Officers Turning Police Department Into 'Unruly Horse', Promoting Disregard For Fundamental Rights: MP High Court Slams Gwalior SSP
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-slams-gwalior-ssp-over-disregard-for-prisoners-fundamental-rights-560305
-
-[Read on Telegram](https://t.me/livelawindia/125547)
+[Read on Telegram](https://t.me/livelawindia/125572)
 
 ---
-### 2026-11-27T11:33:18+00:00
-2026 LiveLaw (SC) 1217  | TELUGU UMADEVI KRISHNAIAH & ANR.VERSUS THE STATE OF BIHAR & ORS.
-https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1217-telugu-umadevi-krishnaiah-anrversus-the-state-of-bihar-ors-560306
+### 2026-11-28T05:00:26+00:00
+2026 LiveLaw (SC) 1218 | ASST. GENERAL MANAGER, STATE BANK OF INDIA VERSUS S. LOGANATHAN & ORS.
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1218-asst-general-manager-state-bank-of-india-versus-s-loganathan-ors-560353
 
-[Read on Telegram](https://t.me/livelawindia/125548)
-
----
-### 2026-11-27T12:00:08+00:00
-Kerala High Court Dismisses PIL Seeking To Prevent Tranquilisation Of Elephant 'Chakkakomban', Doubts Petitioner's Bona Fides
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-pil-chakkakomban-elephant-dismissed-560309
-
-[Read on Telegram](https://t.me/livelawindia/125549)
+[Read on Telegram](https://t.me/livelawindia/125573)
 
 ---
-### 2026-11-27T12:03:48+00:00
-Allahabad High Court Acquits Man Sentenced To Death For Murder Of Parents, Cites Material Contradictions In Eyewitness Accounts
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-acquits-man-parents-murder-case-560310
+### 2026-11-28T05:00:46+00:00
+Knowingly Selling Contaminated Food Can Constitute Cheating Even If No Actual Harm Is Caused To Consumers: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-food-adulteration-attract-cheating-charges-560354
 
-[Read on Telegram](https://t.me/livelawindia/125550)
-
----
-### 2026-11-27T12:22:48+00:00
-Strong Suspicion Of Conspiracy Sufficient To Deny Discharge Even In Absence Of Direct Evidence: Kerala High Court
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-strong-suspicion-conspiracy-sufficient-deny-discharge-absence-direct-evidence-560315
-
-[Read on Telegram](https://t.me/livelawindia/125551)
+[Read on Telegram](https://t.me/livelawindia/125574)
 
 ---
-### 2026-11-27T12:37:38+00:00
-MP High Court Warns AAG Office Against Retaining Documents Despite Undertaking To File Them
-https://www.livelaw.in/high-court/madhya-pradesh-high-court/madhya-pradesh-high-court-directs-aag-office-to-file-shown-documents-within-the-same-day-or-inform-it-560319
+### 2026-11-28T05:07:36+00:00
+Rajasthan High Court Stays Consumer Case Against Salman Khan Over Allegedly Misleading Pan Masala Ad
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-stays-consumer-case-salman-khan-rajshree-pan-masala-ad-560355
 
-[Read on Telegram](https://t.me/livelawindia/125552)
-
----
-### 2026-11-27T13:14:19+00:00
-Supreme Court Seeks Union's Response On Allowing Restricted Entry To OCI Cardholder Blacklisted Over Alleged Anti-National Acts
-https://www.livelaw.in/top-stories/supreme-court-seeks-union-response-to-us-based-professor-khalid-jahangir-qazi-entry-in-india-restrictions-oci-cancellation-blacklisted-anti-india-activities-560322
-
-[Read on Telegram](https://t.me/livelawindia/125553)
+[Read on Telegram](https://t.me/livelawindia/125575)
 
 ---
-### 2026-11-27T13:14:29+00:00
-BJP Leader Shone George Moves New PIL Before Kerala High Court Seeking Nomination Of Two Non-Muslim Members To State Waqf Board
-https://www.livelaw.in/high-court/kerala-high-court/kerala-high-court-state-waqf-board-constitution-non-muslims-pil-560323
+### 2026-11-28T05:09:16+00:00
+Warehouse Owner Stores Farmers' Produce As Bailee, Insurance Policy Covers Them : Supreme Court
+https://www.livelaw.in/top-stories/supreme-court-insurance-cover-extends-farmers-produce-stored-warehouse-560356
 
-[Read on Telegram](https://t.me/livelawindia/125554)
-
----
-### 2026-11-27T13:49:29+00:00
-Madras Bar Association To Hold 2nd Edition Of National Moot Court Competition, Registrations Open
-https://www.livelaw.in/lawschool/competitions/madras-bar-association-national-moot-court-competition-2026-560328
-
-[Read on Telegram](https://t.me/livelawindia/125555)
+[Read on Telegram](https://t.me/livelawindia/125576)
 
 ---
-### 2026-11-27T14:04:09+00:00
-Allahabad High Court Accepts Chitrakoot SDM's Apology Over Drawing Room VC Appearance, Clarifies No Action Be Taken Against Him
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-hc-chitrakoot-sdm-apology-drawing-room-vc-appearance-560331
+### 2026-11-28T05:10:36+00:00
+2026 LiveLaw (SC) 1218 | Ramsakhi Gupta v ICICI Lombard General Insurance Co. Ltd. & Anr
+https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1218-ramsakhi-gupta-v-icici-lombard-general-insurance-co-ltd-anr-560357
 
-[Read on Telegram](https://t.me/livelawindia/125556)
-
----
-### 2026-11-27T14:08:39+00:00
-'Speaker Has Not Acted Impartially And Neutrally': Calcutta High Court Quashes Ritabrata Banerjee's Appointment As LoP
-https://www.livelaw.in/high-court/calcutta-high-court/speaker-has-not-acted-impartially-and-neutrally-calcutta-high-court-quashes-ritabrata-banerjees-appointment-as-lop-560332
-
-[Read on Telegram](https://t.me/livelawindia/125557)
+[Read on Telegram](https://t.me/livelawindia/125577)
 
 ---
-### 2026-11-27T14:32:59+00:00
-Wollstonecraft Dilemma And Purposive Interpretation, How Supreme Court Redefined Motherhood
-https://www.livelaw.in/articles/wollstonecraft-dilemma-purposive-interpretation-supreme-court-redefined-motherhood-560178
+### 2026-11-28T05:18:36+00:00
+Drinking Water Supply Must Take Precedence Over All Other Uses Of Water: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-disposes-pil-seeking-water-reservation-rajsamand-lake-560359
 
-[Read on Telegram](https://t.me/livelawindia/125558)
-
----
-### 2026-11-27T15:14:09+00:00
-Nirma University Invites Abstracts For International Conference On 'Law In Transition: Navigating Emerging Global Challenges'
-https://www.livelaw.in/lawschool/call-for-papers/nirma-university-invites-abstracts-for-international-conference-on-law-in-transition-navigating-emerging-global-challenges-560336
-
-[Read on Telegram](https://t.me/livelawindia/125559)
+[Read on Telegram](https://t.me/livelawindia/125578)
 
 ---
-### 2026-11-27T15:14:49+00:00
-High Court Questions UPPSC Transparency In Medical College Professor Selections, Seeks Details Of Integrity Safeguards For Examiners
-https://www.livelaw.in/high-court/allahabad-high-court/allahabad-high-court-uppsc-professor-recruitment-transparency-560337
+### 2026-11-28T05:22:57+00:00
+Unregistered Association Can File Writ Petition To Enforce Fundamental Rights Of Its Members: Rajasthan High Court Five-Judge Bench
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-unregistered-association-can-file-writ-petition-560361
 
-[Read on Telegram](https://t.me/livelawindia/125560)
-
----
-### 2026-11-27T15:21:29+00:00
-Madhya Pradesh High Court Celebrates Constitution Day With Theme 'The Constitution: Our Guiding Light'
-https://www.livelaw.in/events/madhya-pradesh-high-court-celebrates-constitution-day-560338
-
-[Read on Telegram](https://t.me/livelawindia/125561)
+[Read on Telegram](https://t.me/livelawindia/125579)
 
 ---
-### 2026-11-27T15:51:00+00:00
-HNLU Organises Summit On Implementation Of New Criminal Laws In Chhattisgarh On Constitution Day
-https://www.livelaw.in/lawschool/news/hnlu-organises-summit-implementation-new-criminal-laws-chhattisgarh-constitution-day-560340
+### 2026-11-28T05:32:36+00:00
+Public Servant Can't Be Prosecuted Under S. 166 IPC For Mere Administrative Lapses In Complying With Court Orders: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-quashes-charges-ias-officer-non-compliance-civil-court-decree-560360
 
-[Read on Telegram](https://t.me/livelawindia/125562)
-
----
-### 2026-11-27T15:57:00+00:00
-KIIT School Of Law Names Library After Eminent Legal Scholar Prof. N.L. Mitra On His 90th Birth Anniversary
-https://www.livelaw.in/lawschool/news/kiit-school-law-names-library-after-eminent-legal-scholar-prof-nl-mitra-560341
-
-[Read on Telegram](https://t.me/livelawindia/125563)
+[Read on Telegram](https://t.me/livelawindia/125580)
 
 ---
-### 2026-11-27T16:21:20+00:00
-Bombay High Court Denies Interim Relief In Tata Trusts' Challenge To N Chandrasekaran's Third Term
-https://www.livelaw.in/high-court/bombay-high-court/bombay-high-court-tata-sons-board-meeting-interim-relief-tata-trusts-560342
+### 2026-11-28T05:41:36+00:00
+Period Spent By Foreign National In Detention Centre Despite Grant Of Bail Can Be Set Off Against Prison Sentence: Rajasthan High Court
+https://www.livelaw.in/high-court/rajasthan-high-court/rajasthan-high-court-allows-iranian-ndps-convicts-plea-560362
 
-[Read on Telegram](https://t.me/livelawindia/125564)
+[Read on Telegram](https://t.me/livelawindia/125581)
 
 ---
-### 2026-11-27T18:27:11+00:00
-Supreme Court Daily Round Up : November 27, 2026
-https://www.livelaw.in/top-stories/supreme-court-daily-round-up-november-27-2026-560325
+### 2026-11-28T05:48:36+00:00
+Chandigarh Court Rejects Punjab CM Bhagwant Mann's Wife's Defamation Suit Against Retired High Court Judge
+https://www.livelaw.in/news-updates/chandigarh-court-rejects-cm-manns-wife-defamation-suit-over-retired-judge-560363
 
-[Read on Telegram](https://t.me/livelawindia/125565)
+[Read on Telegram](https://t.me/livelawindia/125582)
+
+---
+### 2026-11-28T05:57:26+00:00
+No Writ Against BSF School: J&K High Court Rules Service Disputes Over Pay Parity Are Private Contracts, Not Public Law
+https://www.livelaw.in/high-court/jammu-kashmir/no-writ-against-bsf-school-jk-high-court-rules-service-disputes-over-pay-parity-are-private-contracts-not-public-law-560349
+
+[Read on Telegram](https://t.me/livelawindia/125583)
+
+---
+### 2026-11-28T05:59:06+00:00
+#TheLawChallenge
+ : A Weekly Quiz For The Legally Curious By LiveLaw & QShala, Attractive Prizes For Winners
+https://www.livelaw.in/top-stories/livelaw-and-qshala-weekly-quiz-560364
+
+[Read on Telegram](https://t.me/livelawindia/125584)
+
+---
+### 2026-11-28T06:31:47+00:00
+Supreme Court Extends Interim Bail Of Khalid Saifi and Tasleem Ahmad In Delhi Riots Larger Conspiracy Case
+https://www.livelaw.in/news-updates/supreme-court-extends-interim-bail-of-khalid-saifi-and-tasleem-ahmad-in-delhi-riots-larger-conspiracy-case-560369
+
+[Read on Telegram](https://t.me/livelawindia/125585)
+
+---
+### 2026-11-28T06:31:57+00:00
+Research Associate Vacancy At National Law School Of India University (NLSIU)
+https://www.livelaw.in/job-updates/research-associate-vacancy-at-national-law-school-of-india-university-nlsiu-560370
+
+[Read on Telegram](https://t.me/livelawindia/125586)
+
+---
+### 2026-11-28T06:32:27+00:00
+Constitution Day-2026
+https://www.livelaw.in/articles/constitution-day-2026-560343
+
+[Read on Telegram](https://t.me/livelawindia/125587)
+
+---
+### 2026-11-28T06:36:37+00:00
+Manager (Legal) Vacancy At Uttar Pradesh Medical Supplies Corporation Limited
+https://www.livelaw.in/job-updates/manager-legal-vacancy-at-uttar-pradesh-medical-supplies-corporation-limited-560371
+
+[Read on Telegram](https://t.me/livelawindia/125588)
+
+---
+### 2026-11-28T06:37:37+00:00
+Legal Consultant Vacancy At Central Government Health Scheme (CGHS) Directorate
+https://www.livelaw.in/job-updates/legal-consultant-vacancy-at-central-government-health-scheme-cghs-directorate-560372
+
+[Read on Telegram](https://t.me/livelawindia/125589)
+
+---
+### 2026-11-28T06:38:37+00:00
+Junior Technical Experts (Legal) Vacancy At National Commission For Women
+https://www.livelaw.in/job-updates/junior-technical-experts-legal-vacancy-at-national-commission-for-women-560373
+
+[Read on Telegram](https://t.me/livelawindia/125590)
+
+---
+### 2026-11-28T06:51:37+00:00
+LiveLaw Daily | Ex-CJI Gavai's Letter | Vijay's Election Plea | Thiruparankundram Deepam & More
+https://www.livelaw.in/podcast/tmc-thiruparankdundram-cm-vijay-supreme-court-legal-news-news-india-upsc-clat-560375
+
+[Read on Telegram](https://t.me/livelawindia/125591)
 
 ---
